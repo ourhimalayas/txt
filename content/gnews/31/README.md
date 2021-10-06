@@ -2,43 +2,34 @@
 ---
 
 
-## 前员工指证脸书“伤害儿童、煽动分裂削弱民主”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1577124/)
+## 有声|“潘朵拉文件”发酵,香港前特首梁振英被曝光!
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1577183/)
 
-栏目记者／责任编辑：流浪的阳光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-106.png)
-这几天Facebook可谓遇上了多事之秋 ：本周一（3日）经历了旗下平台全部宕机。故障期间，Facebook的全球市值蒸发最多时近500亿美金，目前略有恢复。
+配音：香草山美食部-玫瑰园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9.jpeg)
+立场新闻10月4日报道表示，其参与调查的“潘朵拉文件”显示，现任中共国政协副主席、前特首梁振英是恒泰信托的客户，通过中介人使用恒泰服务，为其本人及家族成员注册离岸公司。
 
-正可谓福无双至，祸不单行，周二（5日）在参议院商务委员会消费者保护小组的听证会作证，Facebook 被猛烈抨击。
+梁振英在任职香港特首期间，申报持有戴德梁行附属公司的股权，但多次拒绝交代相关业务。“潘朵拉文件”首次证实梁振英在任内通过两家离岸公司，迂回持有一间戴德梁行日本业务公司的3成股权，并于2015年12月以20万英镑出售，梁振英没有申报特首任内出售股权。当时，廉政公署正调查他与澳洲上市公司UGL签订协议，收取400万英镑一事，翻查行政会议利益申报，梁振英从未申报持有UGL股权。
 
-一名前员工告诉美国立法者，该公司的网站和应用程序“伤害儿童、煽动分裂并削弱我们的民主”。
+梁振英是中共在香港的代理人和打手，于2012至2017年任香港特首，期间发生雨伞革命。他打压人权和自由，并牵涉多宗腐败及黑金事件，外界指证其为中共地下党员。身居中共要位的梁振英，其贪腐行为与其它中共高官并无区别，牵涉“潘朵拉文件”也不奇怪。
 
-弗朗西斯·豪根（Frances Haugen ）是前脸书产品经理，后来成为吹哨人，并在国会山的听证会上严厉批评了该公司。 Facebook 面临着越来越多的审查，社会也更多地呼吁对科技巨头进行监管。
+梁振英当天通过社交媒体狡辩称：间接的股权持有和变动不必申报；他主动作出制度外安排，将所有股权放入信托，他本人不行使决策权。他的无耻和撒谎嘴脸跃然纸上，但这恰恰证实，其通过匿名公司隐瞒财产。
 
-豪根告诉参议员，脸书掌握的权力影响深远，与约20亿用户的日常生活紧紧交织， 她呼吁国会需采取行动来解决危机。
+原文链接：[“潘朵拉文件”发酵,香港前特首梁振英被曝光!](https://gnews.org/zh-hans/1575120)
 
-参议院两党议员罕见立场一致，认为脸书公司必须做出改变。听证会小组主席布卢门撒尔（Richard Blumenthal）指控脸书公司“道德破产”，其影响将“困扰一整代人”。
 
-郭文贵先生在5日的大直播中爆料，让Facebook 全线崩溃半天的是俄罗斯。
 
-从去年美国大选期间的拙劣行为，到现在无所不用其极的阻挡、删除人们发布疫苗害人的真相，助纣为虐黑暗势力掩盖事实，Facebook的结果肯定是非死不可！
-
-(本文仅代表作者观点)
-
-参考链接: [Facebook Market Cap](https://ycharts.com/companies/FB/market_cap)
-[https://www.ft.com/content/e9e25ff3-639a-4cc1-bb81-dedf24d956e3](https://www.ft.com/content/e9e25ff3-639a-4cc1-bb81-dedf24d956e3)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审：暗黑
-校正/发稿：谐趣园
-
+音频处理：喜山必胜Maveric
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

@@ -2,17 +2,32 @@
 ---
 
 
-## 四川南充遭遇泄洪和洪峰过境
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1576971/)
+## 众议员联名致函拜登总统, 呼吁重新考量中美关系!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1577045/)
 
-韩国首尔天池农场—–追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/10/62.jpeg)
-据新京报我们视频10月6日的微博，受嘉陵江上游亭子口、升钟水库泄洪计划变更及东河暴雨洪水情况影响，嘉陵江四川南充蓬安段出现特大洪峰过境，洪峰过境时最大流量达24700立方米/秒。为保障嘉陵江沿岸堤防安全，南部县文家坝紧急炸毁江面上失控船只。5日，蓬安县启动I级防汛应急响应，组织力量将沿线民众转移至安全地带。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/6插图.jpeg)图片来源：网络
-点评 中共统治下的中国，每年的汛期都发生浸泡。今年从河南720特大水灾起，到今天的四川南充遭遇泄洪和洪峰过境，浸泡了多少村巷，多少人受灾，多少人失去生命，灾后给这些居民的建设经费又有多少？这些数据我们都无法得知。
+栏目记者/责任编辑：云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-103.png)
+10月5日, 美国共和党籍众议员蒂芬妮/佩里/戴佳雷及史杜比等人联名致函拜登总统, 称美中1979年建交时, 前提条件是中共会和平妥善处理与台湾的分歧，这些承诺和保证被列入”台湾关系法”。 但近几个月中共在台湾周边空域的侵扰行动，清楚表明中共并不打算履行继续这项承诺。
 
-然而中共却天天喊着为人民服务，原来是人民为他们服务！他们通过对14亿中国人民的统治，把中国人民从加入世界贸易组织起挣取的血汗钱，大部分被他们转移到国外挪为己有，剩余的在国内就成为他们续命的血液。你们家园被浸泡了，道路桥梁被毁了，因洪水导致的损失等等，都跟他们无关，他们也不关心！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-4.jpeg)
 
-中国人民就是一群为他们服务的屁民，没有医疗、保险和养老，等到他们年老回到农村的时候才发现自己这些年真的一无所有，唯一挣得就是疾病、年老和贫穷。有中共在的一天，中国人民就不可能有好日子，TAKE DOWN THE CCP!
+在此前提下, 议员们呼吁：”美国是时候重新考量与中共国的关系，并考虑是否应该逆转卡特政府时期与台湾的断交决定，并鼓励盟友对此效法。”
 
-（本文仅代表作者观点，与Gnews平台无关）
+根据这份台湾关系法，任何企图以非和平方式来决定台湾前途的举动，包括使用经济抵制及禁运手段在内，都将被视为对西太平洋地区和平稳定的威胁，而为美国所严重关切及引发反应。
+
+(本文仅代表作者观点)
+
+参考链接：[中國企圖武力解決台海問題 美議員促拜登與台復交](https://www.cna.com.tw/news/firstnews/202110060009.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：文龍
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
