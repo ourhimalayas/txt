@@ -2,35 +2,162 @@
 ---
 
 
-## DC大中华时事：新中国联邦会尊重台湾人民的选择
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1574626/)
+## 台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574684/)
 
-*编辑：映兰轩 / 作图：*中华之光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2387.png)
+[https://gtv.org/video/id=615bc988d2e2b81748715b47](https://gtv.org/video/id=615bc988d2e2b81748715b47)
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
+共产党要打台湾
+El Partido Comunista atacará a Taiwán
 
-#   墙国妄语每日驳
+怎么打你芯片厂
+Cómo atacará a tu fábrica de circuito integrado
 
-### ***10.04. 新华网：外交部发言人就美国国务院发言人发表涉台声明答记者问***
+我问他两遍, 他傻眼了
+Le pregunté dos veces y se quedó estupefacto
 
-*新华社北京10月4日电 外交部发言人华春莹4日就美国国务院发言人发表涉台声明答记者问。有记者问：10月3日，美国国务院发言人普莱斯发表声明称，美方对中方在台湾附近军事挑衅活动深表关切，此举易引发误判，破坏地区和平稳定，敦促中方停止对台施压与胁迫。美将依据美中三个联合公报及“与台湾关系法”“对台六项保证”维持对台承诺，支持台加强自卫能力。中方对此有何评论？华春莹说，台湾是中国的台湾，轮不到美国说三道四。美方有关言论严重违反一个中国原则和中美三个联合公报规定，对外发出极为错误和不负责任的信号。她说，一段时间来，美方在售台武器、加强美台官方军事联系等方面消极动作不断，包括出台7.5亿美元售台武器计划，美军机降落台岛，军舰频频过航台湾海峡等。这些挑衅行动损害中美关系，破坏地区和平稳定，中方坚决反对并采取必要应对措施。华春莹说，一个中国原则是中美关系的政治基础。在台湾问题上，美方应该遵守的是一个中国原则和中美三个联合公报规定，而不是自己单方面炮制的什么东西。华春莹表示，搞“台独”是死路一条。中方将采取一切必要措施，坚决粉碎任何“台独”图谋。中方捍卫国家主权和领土完整的决心与意志坚定不移。她说，美方应纠正错误，切实恪守一个中国原则和中美三个联合公报规定，慎重妥善处理涉台问题，停止为“台独”分裂势力撑腰打气，以实际行动维护而不是破坏台海和平稳定。*
+我们有这样的安排, 那样的安排
+Nosotros tenemos planeado esto y lo otro
 
-**简评：中共说“台湾是中国的台湾”，实际意思是“台湾是中共的台湾”。因为中共不在乎台湾政府的选择，更不在乎台湾人民的选择。如果中共真的爱台湾，就应该把台湾变成台湾人的台湾。于此相比，新中国联邦的框架才是美好的未来。联合国和欧州议会已经开始研究新中国联邦的合法性。新中国联邦允许台湾、香港、新疆、西藏等高度自治，比美国各邦还要自由。如果台湾人民想独立，会尊重台湾人民的选择。孰优孰劣，不辨自明。新中国联邦的新型模式才是未来，不分种族、不分领土，未来可期。**
+我说你懂个屁, 你还以为
+Y le dije, que sabes un pedo, tú crees
 
-### *10.04.网易：**女孩看完《长津湖》尝冻土豆：很心酸 根本咬不动***
+你能搞芯片
+Que si puedes fabricar microchip
 
-*近日，云南昆明，[电影](https://news.163.com/news/search?keyword=%E7%94%B5%E5%BD%B1)《长津湖》热映感动众多网友，迟女士看完电影后找来[土豆](https://news.163.com/news/search?keyword=%E5%9C%9F%E8%B1%86)煮熟冻在冰箱，体验英雄们啃冻土豆的艰苦。迟女士表示，根本咬不动，吃了第一口就觉得很心酸，特别[想哭](https://news.163.com/news/search?keyword=%E6%83%B3%E5%93%AD)，现在美好的生活都是战士们奋斗来的。*
+你都能搞一切了
+Podrás hacer todo
 
-**简评：“抗美援朝”题材电影《长津湖》，是中共国庆期间的大洗脑电影，不仅收割了韭菜的钱，还收割了韭菜的感情。除了民间自愿观看以外，中共还组织党员集体收看，这阵势，没有任何政党可以匹敌。但是还是有不少观众明白电影剧情是矫揉造作，瞎编乱造，名不副实的。有人在这篇文章下留言：他们吃冻土豆是因为饿呀！看完电影去模仿是傻逼！也有讽刺说“饭店应该推出冻土豆爱国菜”！还有的网友指出，影视里还有那么多吃草根啃皮带的是不是也得去试试？更有网友认为“现在美好的生活都是战士们奋斗来的”这句话不对，这世上根本没有救世主。**
+你懂政治? 共产党打你厂子
+¿Conoces la política? Si el Partido Comunista va a atacar tu fábrica
 
-### *10.04.环球网：中央广播电视总台文艺中心发言人：继续支持台湾演艺人员参演，反对绿媒打压*
+第一件事情就把你所有的芯片, 周围的所有人
+La primera cosa que hará es dejar que todos tus microchips y las personas que están alrededor
 
-*10月1日晚，中央广播电视总台《中国梦 •祖国颂——2021国庆特别节目》播出后，在海内外产生热烈反响。多位港澳台演艺人员与大陆同行同台演出，向全球华人奉献了一台爱祖国、共圆梦的精品晚会。针对近日台湾岛内绿媒的轮番攻击和恐吓，中央广播电视总台文艺节目中心发言人应询答复如下：每逢中华儿女的重大节日，中央广播电视总台都会制作文艺晚会等特别节目，邀请港澳台同胞和大陆演艺人员一起参与演出，共享节日荣光。今年的国庆节也是如此。总台推出的《中国梦 •祖国颂——2021国庆特别节目》，仅在电视端就触达观众7815万人次，新媒体话题互动量超过50亿次。无论是艺术水准还是海内外观众的满意度，今年的国庆特别节目都创下了新高。台湾演艺人员来大陆发展，参加总台主办的文艺晚会等活动，观众喜爱、社会反响积极。岛内绿媒罔顾事实，动辄对与大陆交往的台湾演艺人员进行威胁恐吓、乱扣帽子，只能说是欲加之罪何患无辞，我们坚决反对。我们重申，继续欢迎台湾演艺人员来参加节目制作，与大陆同胞同台演出。*
+你会突然发现你旁边的秘书
+De repente te darás cuenta que la secretaria que está a tu lado
 
-**简评：中共支持台湾艺人参演？绝不是。中共支持“为中共唱赞歌”的台湾艺人参演。这些上台的港台艺人哪一个不是给中共跪下了，举红旗、表忠心。否则就是何韵诗的下场，不仅被大陆封杀，还要追究法律责任。对港台艺人政治立场的审查这几年尤甚，因此前一阵包括成龙在内的比较有名的艺人，主动声明“爱中国爱共产党”。中共势力控制范围内的艺人很可怜，比晚清末年文字狱还可怕，因为他们天天被强奸承受痛苦还要拍手叫好。**
+就是共产党, 立马给你下掉(防卫装备)
+Es del Partido Comunista, de una vez te deja sin equipos de defensa
 
-#   港台资讯
-![](https://media.discordapp.net/attachments/858887785507323904/894829380742819860/20211005A.jpg?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/894829381032243200/20211005B.jpg?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/894829381883670578/20211005C.jpg?width=1043&amp;height=586)
-*编辑：*映兰轩
-*作图：中华之光
-发布：文顾*
+你连一个芯片都拿不走
+No te podrás llevar ni un chip
+
+你连一个玻璃都砸不碎
+Si no podrás romper ni un vidrio
+
+还转移你什么技术, 你通通搁在这儿
+Cómo transferirás tu tecnología, todo lo debes dejar aquí
+
+而且马上把你这些人, 立马把你押送到大陆去
+Además, enviarán directamente a todos ustedes a China
+
+都不会让你去福建
+No te dejará ir a Fujian
+
+都是把你押到新疆
+Sino te llevará a Xinjiang
+
+跟那些劳改犯押到一起去
+Para que estés con aquellos prisioneros reformados por el trabajo
+
+去了
+Arrestarte
+
+跟那些男的女的关一起去
+Encerrarte con esos hombres y mujeres
+
+先把你精神上肉体上折磨垮你
+Primero te torturarán física y mentalmente
+
+然后你老老实实的给你个电脑, 去把所有的技术给我放出来
+Luego te darán una computadora para que descargues todas las tecnologías
+
+他一听说, 不会吧
+Una vez que él escuchó todo esto, dijo, no creo
+
+我说你不用见我
+Le dije, no necesitas verme
+
+还想着战争了
+Todavía estás pensando que para la guerra
+
+我们有72小时转移技术, 转移硬体
+Tendremos 72 horas para transferir la tecnología y el hardware
+
+我说你天真, 你找死呢
+Le respondí, que inocente eres, estás buscando la muerte
+
+我说你
+Le dije, tú
+
+你只要自己不把脑袋切下来砸烂它
+Siempre y cuando no te cortes la cabeza y lo rompas en pedazos
+
+他就把你脑子里所有东西都给你拿走
+Él podrá quitar todas las cosas de tu cabeza
+
+他一句话听傻了
+Él al escuchar esto se quedó asombrado
+
+我说你以为美国人72小时, 我说共产党开始那一刻起
+Yo dije, tú crees que los estadounidenses en 72 horas, en el momento en que comenzó el Partido Comunista
+
+72小时
+Dentro de 72 horas
+
+美国人100%不会接触到你
+Los estadounidenses 100% no podrán tocarte
+
+他一定会在前24小时
+Él seguramente en menos de 24 horas
+
+把你这些脑袋全带走
+Llevará toda tu cabeza
+
+而且甚至会切你几个手指头, 告诉我还有什么该拿的
+Incluso cortará unos cuantos dedos tuyos, diciéndote, qué más debo llevarme
+
+中国大陆当兵的
+Los soldados de China
+
+对付别人, 对付日本人
+Al tratar con los demás o los japoneses
+
+我不觉得有这么狠
+Yo siento que no serán muy crueles
+
+对付美国人也没这个胆, 对付台湾人
+Al igual que con los estadounidenses, no tienen esa valentía, pero con los taiwaneses
+
+可能就像印尼人对付华人一样那么狠
+Quizás sean tan despiadados como los indonesios tratan a los asiáticos
+
+这共产党训练的兵
+Los soldados que son entrenados por el Partido Comunista
+
+对付外国人不敢, 对付同胞
+No se atreven con los extranjeros, pero con los compatriotas
+
+那是比谁都狠
+Son aún más crueles que cualquier otra persona
+
+—————————————————
+
+日期：10/02/2021
+原视频标题：台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切
+Los taiwaneses no se sientan afortunados, el Partido Comunista llevará todo lo que tengan en 24 horas
+原视频日期：09/30/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1443538103944159233?s=24](https://twitter.com/se1y7cblljselva/status/1443538103944159233?s=24)
+任务编号：KC143（2387）
+视频时间段：0:00-2:00
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

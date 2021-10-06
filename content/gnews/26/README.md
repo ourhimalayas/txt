@@ -2,42 +2,47 @@
 ---
 
 
-## 2021年10月4日 文贵先生盖特 10
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1575515/)
+## 欧盟官员强调，Facebook的宕机表明市场需要更多的竞争者
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1575621/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+作者：纽约香草山农场 – 四季
 
-爆料革命90天 vs. 要饭烂命90天（下）
-90 Days of the Whistleblower Movement vs 90 Days Begging for survival （P2-2)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-1、要饭烂命 我爹是塞林 大卫被抓了
-Begging for survival
-Sellin is my “daddy”.
-David is said to be arrested.
 
-2、要饭烂命 郭先生和长岛哥等人被禁止离境
-Begging for survival
-Mr. Miles Guo and Brother Long Island and others are prohibited from leaving the country.
 
-3、形式坦荡，SEC 跟我们（爆料革命）和解
-Bold and clear, the SEC has settle with us (the Whistleblower Movement)
 
-4、要饭烂命 抹黑GTV
-Begging for survival
-Discredit GTV
 
-5、要饭烂命 抹黑G系列
-Begging for survival
-Discredit G-series
+据[OAN](https://www.oann.com/facebook-outage-shows-need-for-more-players-eus-vestager-says/)网站援引路透社10月5日报道，欧盟反垄断局局长玛格丽特-维斯塔格 (Margrethe Vestager) 周二表示，Facebook前一天六小时的宕机，显示了仅仅依靠几个大公司所产生的后果，并强调市场需要更多的竞争者。
 
-6、要饭烂命 G-CLUB 卡变成政治献金
-Begging for survival
-Buying a G- Club membership considered as political donation
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1139-1-2021-10-05T113833Z_1_LYNXMPEH940LG_RTROPTP_0_EU-BELGIUM-TAXAVOIDANCE_1.jpg)2021年6月9日，欧盟反垄断局局长玛格丽特·维斯塔格在比利时布鲁塞尔欧盟总部举行的竞争部门调查新闻发布会上发表讲话。（ John Thys/Pool via REUTERS/File Photo）
 
-7、爆料革命 美国将承认新中国联邦
-The Whistleblower Movement
-The USA will recognize the legitimacy of the New Federal State of China (NFSC)
+这次宕机涵盖Facebook旗下的WhatsApp、Instagram和Messenger，使得该公司的35亿用户无法访问其社交媒体和消息服务。这是网络监测集团Downdetector有史以来监测到的最大的一次故障。
 
-[【2021年10月4日】文贵先生盖特原文](https://gettr.com/post/pd913b2111)
+维斯塔格去年提出了被称为数字市场法（DMA）的规则草案，为亚马逊、苹果、Facebook和谷歌列出了一份该做和不该做清单，从本质上讲，这将迫使它们改变其核心商业模式，以允许更多的竞争。
 
-**喜联盟Gnews编辑部**
+欧盟立法者和欧盟国家现在正在对提案进行辩论，并需要在技术规则生效之前调和这三个草案。
+
+大科技公司的暴雷凸显了独特的、拥有自由言论、独立思想以及卓越技术的Gettr 的宝贵，它可以让人们自由的发声，在全世界分享自由和民主。
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

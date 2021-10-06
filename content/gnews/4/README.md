@@ -2,30 +2,39 @@
 ---
 
 
-## 由于使用了伊维菌素，印度人口最稠密的北方邦已彻底摆脱了新冠疫情
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1575712/)
+## 美NIH院长科林斯将辞职
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575795/)
 
-翻译：喜国公民
-视频来自网络
-印度北方邦州长刚刚正式宣布，现在北方邦已经没有新冠疫情了。由于政府一直在广泛推广使用伊维菌素治疗新冠患者，不但没有媒体报道由于服用了伊维菌素而产生的死亡，相反，一个与美国全部人口相当的地区已经完全没有疫情了。
+作者：香草山写作组-文一
 
-印度的北方邦有2.4亿人口，是印度人口最多的邦。 那里的人们密集地生活在一起，比美国要拥挤得多。由于人口稠密，不可能保持适当的社交距离。值得注意的是，那里只有5.8%的人口打了两针新冠疫苗。
 
-在印度北方邦发生的事情可以充分证明，伊维菌素可以而且确实能够治疗新冠病毒。然而，伊维菌素在美国和整个西方世界都在被抹黑。这背后可能是有动机的。
 
-伊维菌素是在80年代专门为人类开发的，后来被发现对治疗动物也很有效，已经安全使用了几十年，没有发现与其药物相互抵触，彻底改变了非洲的医疗保健，拯救了数百万人的生命。因其成功治疗人类疾病而在2015年获得了诺贝尔奖，并被列入世卫组织全世界最安全有效的药物名单中。伊维菌素很便宜且很容易买到。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
-但问题是，伊维菌素不会像正处在研究中的疫苗那样给辉瑞或莫得纳公司带来每年600亿美元的利润。所以，主流媒体把它说成是给马治疗用的驱虫剂。
 
-政治，医疗和媒体机构在用虚假抹黑这种安全的药物，声称伊维菌素会致命，同时在推销未经测试和证实的新冠疫苗。实际上，新冠疫苗正在杀害身体没有问题的年轻健康人。
 
-如密歇根州13岁的Jacob Clynic ，他在接种疫苗三天后因致命的心肌炎而死亡。疫苗也可使人瘫痪，如12岁的 Maddie De Grey，她在接种了第二针辉瑞疫苗后几乎丧命。她的腿已经不能动了，靠轮椅活动。
+美国国立卫生研究院NIH周二宣布，该院院长科斯林，在工作近三十年，在位12年后，计划年底离任。据相关人士透露，他离职其实已经有一段时间了。
 
-当卫生官员们不尊重科学时,我们为什么还要相信他们？我们被告知不要相信我们亲眼看到的事实。而大药厂却从大流行带来的死亡和痛苦中，赚取了数百亿美元的利润。
+科斯林现年71岁，为内科遗传学家，在位期间历经三届总统，是任职时间最长的院长。柯林斯领导了全球人类基因组测序的工作，并发现了囊性纤维化的基因。2007年，成立BioLogos基金会，一个旨在调和宗教与科学的团体。
 
-真相是，我们今天 就可以像印度一样开放，不需要更多的封锁，不需要强制接种，不需要强制孩子们在学校戴口罩。我们所要做的就要真正地尊重科学。
+据悉，首席副主任劳伦斯-塔巴克（Lawrence Tabak）可能会成为代理主任。
 
-(文章内容仅代表作者观点)
+参考链接：
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+[https://www.msn.com/en-us/news/politics/francis-collins-to-step-down-as-nih-director-by-years-end/ar-AAP8SNh](https://www.msn.com/en-us/news/politics/francis-collins-to-step-down-as-nih-director-by-years-end/ar-AAP8SNh)
+
+[https://www.msn.com/en-us/news/politics/biden-calls-nih-director-frances-collins-one-of-the-most-important-scientists-of-our-time/ar-AAPahji](https://www.msn.com/en-us/news/politics/biden-calls-nih-director-frances-collins-one-of-the-most-important-scientists-of-our-time/ar-AAPahji)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)

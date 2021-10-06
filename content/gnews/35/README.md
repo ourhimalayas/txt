@@ -2,21 +2,33 @@
 ---
 
 
-## 韩政府表示给孕妇接种疫苗不会对胎儿有影响
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1575169/)
+## 视频| 真相工程&#8211;暗访辉瑞科学家
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1575331/)
 
-韩国首尔天池农场
-翻译：林俊泽
-编辑/上传：追着曙光跑
+制作：香草山视频部
 
-据韩国MBS新闻10月4日的报道 从10日8日起，孕妇可以提前预约疫苗，8日当天就有13万6千多名孕妇的疫苗接种预约在即。政府表示孕妇接种疫苗，不影响早产、流产、畸形儿的产生，反而具有将抗体传达给胎儿的优点。政府要求孕妇积极参与接种。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-点评 在全世界那么多国家和地区的民众上街反对强制打疫苗的时候，韩国政府对于这些游行是视而不见。对打疫苗之后出现的副作用的视频和文字在网上流传没有对其重视，现在还公开说打疫苗不会对胎儿有影响，还积极鼓励孕妇接种。如果因疫苗对母体和胎儿有影响，这些将由谁来负责？
 
-请孕妇们，要多多关注世界各国因为打疫苗导致各种副作用的信息，自己的生命自己维护。在推特、脸书和油管等社交媒体可能无法了解到更多真相，因为这些社交媒体都已经被中共控制。想要了解更多疫苗带来的危害，请到GTV、Gnews和Gettr。
 
-真爱生命，请拒绝接种疫苗！
 
-[新闻来源](https://imnews.imbc.com/replay/2021/nwdesk/article/6304854_34936.html)
 
-（本文仅代表作者观点，与Gnews平台无关）
+
+
+
+
+*发稿：雪梨*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

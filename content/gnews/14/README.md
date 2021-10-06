@@ -2,31 +2,70 @@
 ---
 
 
-## 文贵视角：分析共产党造成的排华原因
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1575638/)
+## 英国首席医疗官批准儿童疫苗后…
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1575727/)
 
-撰稿：Skagen【㊙️翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图像-3-e1633463626735.jpg)
-图片来源：GTV
+- 编译：西班牙喜悦农场–wenwu
 
-2021年10月5月大直播中，郭文贵先生从医疗、疫苗、教育、中概股、房地产方面、影子银行，谈到地方债，他说他最担心的是这些事情最后将导致全世界的排华危机。
 
-背景：回顾当年印尼杀华人，中共和亲共的印尼苏加诺政府串通共产党要把印尼国送给共产党，导致华人成了罪魁祸首。当时1%的华人控制了印尼的90%的财富，苏哈托盯上了普遍都比较富裕的华人群体，他将民族矛盾和仇共的情绪转移到了华人身上。110万华人被修理了，60万人被杀害啊！（郭先生9月29号直播）
+**2021 **年** 9 **月** 13 **日，英国的四位首席医疗官** (CMO) **建议英国政府向所有** 12 **岁以上的儿童，提供辉瑞中共病毒（**Covid-19**）疫苗；尽管疫苗接种和免疫联合委员会** (JCVI) **先前曾表示，他们不能支持对儿童进行普遍的疫苗接种。
 
-郭先生揭示了华尔街和中共如何揭示了这狼狈为奸把全人类的未来给毁了。他说：中共叫人家投钱而把人家养老钱投到了共产党操控的海外恒大、碧桂园、合生创展、富力、保利、Jack Ma等，又投到各种基金地方债。地方债和隐形债根本找不着，最后暴雷，这个钱就没了。
+自那以后，男性儿童的死亡率增加了** 400% **只是巧合，还是英格兰首席医疗官克里斯**·**惠蒂手上沾满了鲜血？
 
-后果就是全地球75亿的养老医保保险没了。郭先生举例如平安陆金所“非常懂得玩保险的钱”，众所周知保险的钱是为了出事如冠状病毒，保险公司是需要赔钱的，所以保险公司需要保证有一定的盈利。但平安把投保人投保长期保险的钱，通过各种金融全给弄走。郭先生惊呼，“人类最后不就恨死你中国人了吗？”
+克里斯·惠蒂 (Chris Whitty) 赞同为所有 12 岁以上的健康儿童接种疫苗的举措，声称这可能“有助于防止教室里的疫情和今年冬天上课的进一步中断”。
 
-郭先生更进一步指出，“见黄皮肤的人都恨，不光是中国人，全世界要排华的时候那会杀红了眼的”。在郭先生接触的生活圈子中，这些人对中国人恨已经从骨子里往外漾。经过一两年的病毒quarantine，对疫苗的恐惧，深受其害的各国人民认为一切的根源都是中国人和中国共产党，很多人分不清中国共产党和中国人，直接就说China。
+四个 CMO [致政府](https://www.gov.uk/government/publications/universal-vaccination-of-children-and-young-people-aged-12-to-15-years-against-covid-19/universal-vaccination-of-children-and-young-people-aged-12-to-15-years-against-covid-19)的[信件](https://www.gov.uk/government/publications/universal-vaccination-of-children-and-young-people-aged-12-to-15-years-against-covid-19/universal-vaccination-of-children-and-young-people-aged-12-to-15-years-against-covid-19)指出，他们研究了在儿童中普及疫苗接种的更广泛的公共卫生利益和风险，以确定这是否会改变风险与利益的比例。 Chris Whitty 和他的同事们在信中声称，”在这个年龄组最重要的是对教育的影响”。
 
-郭先生揭示关键的原因在于“是你动人家的钱了”。这些地方债、隐形债整垮了别人的钱，世界就会跟中国人算账可不分人是“在国内国外”。
+但是，如果 Chris Whitty 到现在还不知道 Covid-19 疫苗在预防传播或感染方面是无效的，那么他的无能应该让他辞职。因为即使是美国疾病控制中心 (CDC) 的主任也知道（[如下图](https://www.cdc.gov/media/releases/2021/s0730-mmwr-covid-19.html)）， 中共疫苗并不能防止传播或感染。
 
-如日本，除了养老基金最可怕是金融系统，日本以为它把钱投资在了新加坡、香港了，所以在账表上显示的都是投到了国际海外资产、欧洲生产，但实际上又从欧洲转投了中共国。郭先生反问大家：“日本90%靠进口的国家，40%钱没了你觉得怎么办呢？他只有破腹了，到那时对中国人的恨会是什么样子？”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-17.png)
 
-再如德国，德国人发现绝大多数钱都被中共国从另外手段给掏走了：隐形债务、国际银行，德国发现给共产党白白打工那么多年，结果所有的一切被毁了，比二战希特勒毁你还夸张。日本和德国发现未来被中共国偷走了。这个血腥是你无法想像的！
+据称，德尔塔变体现在是英国最主要的变体，而且已经持续了数月了，多亏了英国公共卫生部门的数据，我们现在知道了：自2021年2月1日到2021年9月12日，曾经接种过 Covid-19 疫苗的人占所有德尔塔 Covid-19 死亡人数的 71%。
 
-（本文仅代表撰稿者个人观点）
+部分接种疫苗的人群中有126人死亡，未接种疫苗的人群中有722人死亡，而完全接种疫苗的人群中有1613人死亡（[如下图](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1018547/Technical_Briefing_23_21_09_16.pdf)）。
 
-参考连结
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-1-3.png)
 
-[2021年10月5号郭文贵先生大直播](https://gtv.org/video/id=615c44da304e992109afc719)
+因此，中共疫苗不仅无法预防感染或传播，而且似乎也无法预防死亡。您只需要比较与** 2020 **年夏季同期的** ****Covid-19 **死亡人数相比即可（[如下图](https://www.google.co.uk/search?q=covid+19+deaths+england)）。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-2-1.png)
+
+我们假设 Covid-19 疫苗能够有效地预防死亡（事实并非如此），这仍然不能成为最早在 2023 年之前为儿童提供仍在临床试验中的实验性预防感染的理由，因为没有报道过儿童因为感染 Covid- 19 而死亡的。
+
+[国家医疗服务系统（NHS）提供的数据](https://www.england.nhs.uk/statistics/statistical-work-areas/covid-19-daily-deaths/weekly-total-archive/)显示，在 2020 年 3 月至 2021 年 8 月 25 日期间，只有 9 名 19 岁以下的人在英国医院死于 Covid-19 ，且没有已知的预先存在的疾病；另外，只有 39 名 19 岁以下的人死在英国医院，是由于有其他极其严重的、虚弱的、预先存在的疾病（[如下图](https://www.england.nhs.uk/statistics/statistical-work-areas/covid-19-daily-deaths/weekly-total-archive/)）。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-3-1.png)
+
+英国[大约有 1560 万是 19 岁及以下的人](https://www.statista.com/statistics/281174/uk-population-by-age/)。这也就是说，每41万0526名儿童和青少年中就有1人在18个月内感染 Covid-19 而死亡，而他们之前还有其他的严重疾病；而在18个月内，每170万名儿童中仅有1人因感染 Covid-19 而死亡，而这些儿童原本是健康的。
+
+如您所见，绝对没有理由给儿童提供实验性 Covid-19 疫苗，而克里斯·惠蒂（Chris Whitty）使用的借口说它可能“有助于预防今年冬天教室疫情爆发和学校教育进一步中断”，这是令人发指的。因为中共疫苗不能预防感染或传播，就连英国政府和牛津大学都在[最近发表的科学研究中](https://theexpose.uk/2021/09/12/three-studies-find-the-covid-19-vaccines-do-not-work/)，承认了这一点。
+
+综上所述，国家统计局 (ONS) 提供的证据绝对表明，英格兰首席医疗官克里斯·惠蒂手上沾满了鲜血。 2020 年版《英格兰和威尔士每周登记的死亡人数》（可在[此处](https://www.ons.gov.uk/file?uri=%2fpeoplepopulationandcommunity%2fbirthsdeathsandmarriages%2fdeaths%2fdatasets%2fweeklyprovisionalfiguresondeathsregisteredinenglandandwales%2f2020/publishedweek532020.xlsx)下载，并在[国家统计局](https://www.ons.gov.uk/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/datasets/weeklyprovisionalfiguresondeathsregisteredinenglandandwales)的网站上访问 ）显示，在截至 2020 年 9 月 25 日的一周内，只有一名 10 至14 岁的单身男孩丧失（[如下图](https://www.ons.gov.uk/file?uri=%2fpeoplepopulationandcommunity%2fbirthsdeathsandmarriages%2fdeaths%2fdatasets%2fweeklyprovisionalfiguresondeathsregisteredinenglandandwales%2f2020/publishedweek532020.xlsx)）。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-4-1.png)
+
+这表明，截至 2021 年 9 月 24 日那周，10 至 14 岁青少年男性儿童的死亡人数比 2020 年同期该年龄组的死亡人数高 400%，而且死亡人数增加在他们开始接种 Covid-19 疫苗后，立即出现的。 这当然只是开始，我们希望没有孩子因为实验性辉瑞 Covid-19 疫苗而丧生。然而，自从青少年开始接受中共疫苗以来，打电话要求救护车的次数一直比预期的要高……（[如下图](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1021620/NASS_Bulletin_2021_38.pdf)）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-5-1.png)
+
+心肌炎和心包炎已被正式添加到辉瑞** Covid-19 **疫苗的安全标签中，它们视为可能发生的疫苗副作用，尤其是在年轻男性中**…… **（[如下图](https://www.gov.uk/drug-safety-update/covid-19-vaccines-updates-for-july-2021#further-information-on-reports-of-myocarditis-and-pericarditis)）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-6-1.png)
+
+根据国家统计局的数据，自首次接种**Covid-19 **疫苗以来，**15 **至** 19 **岁的青少年男孩的死亡人数增加了** 63%… **（[下图是**– ONS 2020 + 2021 **数据集](https://www.ons.gov.uk/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/datasets/weeklyprovisionalfiguresondeathsregisteredinenglandandwales)）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-7-1.png)
+
+不难弄清楚的是，未来几周孩子们会发生什么。尤其是对年幼的男孩来说，由于 Covid-19 疫苗导致的儿童死亡似乎已经开始，英国国家统计局的官方数据显示，自从英格兰首席医疗官Chris Whitty推翻 JCVI 的建议，并决定所有12岁以上的儿童都应该注射实验性的中共疫苗之后，男性儿童的死亡人数增加了400%。
+
+必须立即停止向儿童推广 Covid-19 疫苗的工作。
+
+（文章仅代表作者观点** **与**GNEWS**无关）
+
+**新闻来源：**《[吹哨人](https://theexpose.uk/2021/10/05/ons-data-shows-400-percent-increase-male-children-deaths-since-they-had-covid-vaccine/)》｜发布时间：**10**月**5**日｜封面图来源：本篇新闻
+
+* * *
+
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)

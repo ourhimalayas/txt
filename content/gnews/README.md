@@ -15,134 +15,134 @@
 
 ---
 
-### [俄罗斯一摁开关，Facebook、Instagram、WhatsApp集体遭删](/content/gnews/1/README.md)
- ` YALUN 亚伦`
+### [中共国前公安详述打击新疆维族酷刑细节](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [维州反腐败委员会正在审查州长丹尼尔·安德鲁斯](/content/gnews/2/README.md)
- ` 走进澳洲`
-
-### [英国首席医疗官批准儿童疫苗后…](/content/gnews/3/README.md)
- ` wenwu`
-
-### [由于使用了伊维菌素，印度人口最稠密的北方邦已彻底摆脱了新冠疫情](/content/gnews/4/README.md)
+### [2021年10月05日澳喜要闻（每日更新）](/content/gnews/2/README.md)
  ` 澳喜农场`
 
-### [中共警官逃亡欧洲证实中共犯下“反人类罪”](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [辉瑞称 COVID 疫苗对儿童“安全”——但辉瑞此前曾对儿童和药物撒谎](/content/gnews/6/README.md)
- ` 纽约香草山MOS02`
-
-### [更多中共国房地产公司债务违约](/content/gnews/7/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [解释：为什么油管(YouTube)阻止了反新冠病毒疫苗的内容](/content/gnews/8/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [国会议员称，美国可能会重新命名台湾驻美代表处](/content/gnews/9/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [日本新首相设立内阁级职务以应对来自中共国的经济威胁](/content/gnews/10/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [前高管在美参议院听证会上揭露脸书](/content/gnews/11/README.md)
- ` HimalayaRussia`
-
-### [“告密者”现身主流媒体后，脸书遭遇全球大宕机](/content/gnews/12/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [未来的财富会大量流入喜币](/content/gnews/13/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [文贵视角：分析共产党造成的排华原因](/content/gnews/14/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [欧盟官员强调，Facebook的宕机表明市场需要更多的竞争者](/content/gnews/15/README.md)
- ` 纽约香草山MOS02`
-
-### [辉瑞科学家曝“天然抗体可能比接种疫苗更好”](/content/gnews/16/README.md)
- ` HimalayaRussia`
-
-### [五角大楼让文职雇员在11月初之前全面接种疫苗](/content/gnews/17/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美国代表批评中共国的贸易行为 不排除采取额外措施](/content/gnews/18/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美国国家卫生研究院院长柯林斯宣布年底下台](/content/gnews/19/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [重磅——辉瑞公司被指控对孤儿进行试验，测试新冠疫苗](/content/gnews/20/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中国的PCR检测订单在第一例COVID确诊病例之前就已飙升](/content/gnews/21/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共可能会释放热病毒，并将一切归咎于冠状病毒](/content/gnews/22/README.md)
- ` 秘密翻译组-原创组`
-
-### [中共在19年病毒爆发前几月囤积PCR检测物资](/content/gnews/23/README.md)
- ` 日本东京方舟农场`
-
-### [习近平被干掉的可能性非常非常大](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
-
-### [新中国联邦即将登上世界政治舞台的中心](/content/gnews/25/README.md)
- ` 波士顿五月花农场`
-
-### [2021年10月4日 文贵先生盖特 10](/content/gnews/26/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月4日 文贵先生盖特 9](/content/gnews/27/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [欺我合法投资，必讨伐之！](/content/gnews/28/README.md)
- ` 纽约香草山MOS03`
-
-### [2021年10月4日 文贵先生盖特 8](/content/gnews/29/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [北约秘书长访美：调整战略思想，共同应对中共的挑战](/content/gnews/30/README.md)
- ` 日本东京方舟农场`
-
-### [中国秘密社会史—哥老会](/content/gnews/31/README.md)
- ` 骄子`
-
-### [欧洲3国的核电计划排除中广核集团](/content/gnews/32/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [视频| 真相工程&#8211;暗访辉瑞科学家](/content/gnews/33/README.md)
- ` MOSREC`
-
-### [辉瑞科学家称雇主为邪恶的公司 天然抗体才是王道](/content/gnews/34/README.md)
+### [中共绑架世界经济，或导致全世界大排华](/content/gnews/3/README.md)
  ` 纽约香草山MOS01`
 
-### [韩政府表示给孕妇接种疫苗不会对胎儿有影响](/content/gnews/35/README.md)
- ` 首尔天池农场`
+### [美NIH院长科林斯将辞职](/content/gnews/4/README.md)
+ ` 纽约香草山MOS01`
 
-### [前新疆警察接受CNN采访, 揭露中共暴行!](/content/gnews/36/README.md)
- ` GTV新闻访谈`
+### [全球供应链“灾难”将会变得更糟](/content/gnews/5/README.md)
+ ` 纽约香草山MOS01`
 
-### [“潘朵拉文件&#8221;发酵,香港前特首梁振英被曝光!](/content/gnews/37/README.md)
- ` GTV新闻访谈`
+### [美国加州将要求学生接种冠状病毒疫苗才可返校](/content/gnews/6/README.md)
+ ` 纽约香草山MOS01`
 
-### [10/5/2021国际财经快讯：美国新对华贸易计划；脸书告密者称前雇主对美国构成威胁](/content/gnews/38/README.md)
- ` 秘密翻译组金融团队`
+### [加拿大越来越专制：安省副议长因拒绝接种疫苗被免职](/content/gnews/7/README.md)
+ ` 丁过`
 
-### [美中贸易政策揭晓，寻求对话但保持施压中共](/content/gnews/39/README.md)
- ` GTV新闻访谈`
+### [经济学人评论：中共国寻求庇护者人数猛增](/content/gnews/8/README.md)
+ ` 纽约香草山MOS01`
 
-### [除了恒大，还有很多中共国开发商都面临债务危机](/content/gnews/40/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [汉莎航空计划引入员工疫苗接种义务](/content/gnews/9/README.md)
+ ` 纽约香草山MOS01`
 
-### [郭文贵曝光傅振华造假案陷害并逮捕他的家人和员工](/content/gnews/41/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [63%的delta病毒死亡者已注射疫苗](/content/gnews/10/README.md)
+ ` 纽约香草山MOS01`
 
-### [台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切](/content/gnews/42/README.md)
+### [俄罗斯一摁开关，Facebook、Instagram、WhatsApp集体遭删](/content/gnews/11/README.md)
+ ` YALUN 亚伦`
+
+### [维州反腐败委员会正在审查州长丹尼尔·安德鲁斯](/content/gnews/12/README.md)
+ ` 走进澳洲`
+
+### [誓撞南墙&#8211;加拿大阿省长突然宣布开始第三剂中共病毒疫苗接种！](/content/gnews/13/README.md)
+ ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
+
+### [英国首席医疗官批准儿童疫苗后…](/content/gnews/14/README.md)
+ ` wenwu`
+
+### [由于使用了伊维菌素，印度人口最稠密的北方邦已彻底摆脱了新冠疫情](/content/gnews/15/README.md)
+ ` 澳喜农场`
+
+### [中共警官逃亡欧洲证实中共犯下“反人类罪”](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [辉瑞称 COVID 疫苗对儿童“安全”——但辉瑞此前曾对儿童和药物撒谎](/content/gnews/17/README.md)
+ ` 纽约香草山MOS02`
+
+### [更多中共国房地产公司债务违约](/content/gnews/18/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [解释：为什么油管(YouTube)阻止了反新冠病毒疫苗的内容](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [DC大中华时事：新中国联邦会尊重台湾人民的选择](/content/gnews/43/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [国会议员称，美国可能会重新命名台湾驻美代表处](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [日本新首相设立内阁级职务以应对来自中共国的经济威胁](/content/gnews/21/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [前高管在美参议院听证会上揭露脸书](/content/gnews/22/README.md)
+ ` HimalayaRussia`
+
+### [“告密者”现身主流媒体后，脸书遭遇全球大宕机](/content/gnews/23/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [未来的财富会大量流入喜币](/content/gnews/24/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [文贵视角：分析共产党造成的排华原因](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [欧盟官员强调，Facebook的宕机表明市场需要更多的竞争者](/content/gnews/26/README.md)
+ ` 纽约香草山MOS02`
+
+### [辉瑞科学家曝“天然抗体可能比接种疫苗更好”](/content/gnews/27/README.md)
+ ` HimalayaRussia`
+
+### [五角大楼让文职雇员在11月初之前全面接种疫苗](/content/gnews/28/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国代表批评中共国的贸易行为 不排除采取额外措施](/content/gnews/29/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国国家卫生研究院院长柯林斯宣布年底下台](/content/gnews/30/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中国的PCR检测订单在第一例COVID确诊病例之前就已飙升](/content/gnews/31/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共可能会释放热病毒，并将一切归咎于冠状病毒](/content/gnews/32/README.md)
+ ` 秘密翻译组-原创组`
+
+### [习近平被干掉的可能性非常非常大](/content/gnews/33/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [欧洲3国的核电计划排除中广核集团](/content/gnews/34/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [视频| 真相工程&#8211;暗访辉瑞科学家](/content/gnews/35/README.md)
+ ` MOSREC`
+
+### [辉瑞科学家称雇主为邪恶的公司 天然抗体才是王道](/content/gnews/36/README.md)
+ ` 纽约香草山MOS01`
+
+### [韩政府表示给孕妇接种疫苗不会对胎儿有影响](/content/gnews/37/README.md)
+ ` 首尔天池农场`
+
+### [前新疆警察接受CNN采访, 揭露中共暴行!](/content/gnews/38/README.md)
+ ` GTV新闻访谈`
+
+### [“潘朵拉文件&#8221;发酵,香港前特首梁振英被曝光!](/content/gnews/39/README.md)
+ ` GTV新闻访谈`
+
+### [10/5/2021国际财经快讯：美国新对华贸易计划；脸书告密者称前雇主对美国构成威胁](/content/gnews/40/README.md)
+ ` 秘密翻译组金融团队`
+
+### [除了恒大，还有很多中共国开发商都面临债务危机](/content/gnews/41/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [郭文贵曝光傅振华造假案陷害并逮捕他的家人和员工](/content/gnews/42/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切](/content/gnews/43/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [2021/10/05 墙内世界](/content/gnews/44/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

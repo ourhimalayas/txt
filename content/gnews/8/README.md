@@ -2,50 +2,39 @@
 ---
 
 
-## 解释：为什么油管(YouTube)阻止了反新冠病毒疫苗的内容
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1575687/)
+## 经济学人评论：中共国寻求庇护者人数猛增
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575791/)
 
-**据《印度快讯》记者Explained Desk，2021年10月2日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/aeax3-hm1yr.jpg)图片来源：路透社/Dado Ruvic
-到目前为止，油管(YouTube) 已经删除超过 130,000 个违反中共病毒疫苗政策的视频。
+作者：香草山写作组-文一
 
-周三，油管(YouTube) 宣布将通过新的疫苗指南扩大其医疗误导信息政策，其中包括针对中共病毒的疫苗以及关于其他疫苗的一般声明。
 
-此举是因为有人批评社交媒体平台在处理与中共病毒相关的错误信息方面做得不够。
 
-**油管(YouTube) 针对的是什么样的错误信息呢?**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
-根据周三（9月29日）生效的新政策，任何声称已获批的中共病毒疫苗会导致自闭症、癌症或不孕症，或声称疫苗中的物质可以追踪接种者的内容都将被删除。
 
-此外，虚假声称已批准的疫苗具有危险性并导致慢性健康影响；或声称疫苗不会减少病毒的传播；或疫苗不能防止疾病；或疫苗中包含有关物质的错误信息的内容都将被删除。
 
-在一篇博客文章中，油管(YouTube )表示其社区准则已经禁止某些类型的医疗误导信息，包括宣传有害疗法的内容，例如饮用松节油可以治愈疾病的信息。
+《经济学人》不久前发文指出，上世纪60年代，毛泽东领导的文化大革命期间，数以万计的人逃离中共国。随着国家的稳定，这个数字有所下降。但是七十年后，这一数字再次迅速上升。根据联合国难民事务高级专员办事处的数据，2012年至2020年期间，每年来自中共国寻求庇护者的人数从1万5362人上升到10万7864人。自习近平2012年底上台以来，有61.3万名中共国公民在他国申请庇护。2020年，其中70%的人去往美国寻求庇护。
 
-自大流行开始以来，该平台已经针对中共病毒和医疗错误信息采取措施。到目前为止，油管(YouTube) 已经删除了超过 130,000 个违反打疫苗政策的视频。
+《世界一体新闻台》 (WION)也发文称许多富有的中国人，正在逃离中共国污染严重的城市和集权专制，以寻求更好的教育机会和财产安全。国际政治学者兰霍特拉（Sanbeer Singh Ranhotra）给出了中共政府花在维稳上的巨额数字：2019年，中共政府的维稳支出为2160亿美元，包括国家安全、警察、国内监控和武装民兵，是10年前的三倍多，比军费开支还要多出大约2600万美元。文章还指出持不同政见者和少数民族都是压制的目标，对言论自由的限制仍然有增无减。
 
-**当涉及中共病毒相关内容时，油管(YouTube)将以下内容视为错误信息：**
+参考链接：
 
-● 鼓励使用家庭疗法、祈祷或仪式代替医疗（例如咨询医生或去医院）的内容
-● 声称可以治愈中共病毒的内容
-● 推荐使用伊维菌素或羟氯喹治疗中共病毒的内容
-● 声称羟氯喹是治疗中共病毒的有效方法
-● 明确声称伊维菌素是中共病毒的有效治疗方法
-● 声称伊维菌素和羟氯喹可安全用于治疗中共病毒
-● 其他不鼓励人们咨询医疗专业人士或寻求医疗建议的内容
+[https://www.economist.com/graphic-detail/2021/07/28/under-xi-jinping-the-number-of-chinese-asylum-seekers-has-shot-up](https://www.economist.com/graphic-detail/2021/07/28/under-xi-jinping-the-number-of-chinese-asylum-seekers-has-shot-up)
 
-油管(YouTube )决定扩大对错误信息审查活动的可能原因之一是人们对是否打疫苗犹豫不决，尤其是在美国各地都有这种情况。
+[https://www.wionews.com/world/the-great-exodus-from-china-under-xi-jinping-asylum-seekers-number-shoots-up-over-600000-401406](https://www.wionews.com/world/the-great-exodus-from-china-under-xi-jinping-asylum-seekers-number-shoots-up-over-600000-401406)
 
-根据皮尤研究中心进行的一项调查，美国民主党人比共和党人更有可能至少接种一剂中共病毒疫苗。该调查还指出，一个人的疫苗接种状况与对疫苗研发过程的信心密切相关。
+[https://www.secretchina.com/news/gb/2021/10/04/985454.html](https://www.secretchina.com/news/gb/2021/10/04/985454.html)
 
-本次调查中约有81%的受访者表示，他们不知道中共病毒疫苗是否存在严重的健康风险，80%的受访者表示，公共卫生官员没有告诉他们所知道的关于这些疫苗的一切。
+（本文仅代表作者观点）
 
-**原文链接:** [https://indianexpress.com/article/explained/youtube-medical-misinformation-covid-vaccines-7547763/](https://indianexpress.com/article/explained/youtube-medical-misinformation-covid-vaccines-7547763/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-翻译：洛杉矶盘古农场 – Freeearth
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场– 明子
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+编辑/校对/发稿：正义的小新
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)
