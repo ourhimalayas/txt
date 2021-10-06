@@ -2,19 +2,25 @@
 ---
 
 
-## 秘翻在线：美国众议员谴责左翼团体替中共宣传 要求调查其与中共的关系
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576711/)
+## 秘翻在线：全球供应链危机将持续到2023年
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576723/)
 
-#### 翻译撰稿：zzballack
+#### 文章撰写：寶寶
 
-#### 校对发布：文柯Miles
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Snipaste_2021-10-06_18-30-58.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/sa1d5f165g65tr4jh56yt4j56sfdaf.jpg)图片来源：纽约时报
+据《零对冲》10月4日报道，全球央行行长一直在宣传通胀是“暂时性”的说法。从逻辑上讲，供应链瓶颈导致的通货膨胀会自行解决，但这些官员尚未提供时间表，因为他们不知道。
 
-据《福克斯新闻网》（Fox News）10月3日报道，分别在美国众议院能源和商业委员会（Energy and Commerce Committee）与监督和调查委员会（Oversight and Investigations）担任共和党领袖的凯西·麦克莫里斯·罗杰斯（Cathy McMorris Rodgers）和摩甘·格里菲斯（Morgan Griffith）等数位议员10月3日致函美国四个著名的左派气候组织，包括日出运动（the Sunrise Movement）、忧思科学家联盟（Union of Concerned Scientists）、继续前行（MoveOn）和地球工程组织（Earthworks）。他们在信中谴责这些组织今年7月呼吁拜登政府和国会放弃对中共的”敌对姿态”，转而与其合作来应对气候变化。他们担心“外国利益”可能会影响这些组织“发起针对国会的宣传活动”，因此要求调查这些组织与中共的关系。
+为了更深入地了解全球供应链瓶颈何时会消退，迪拜最大的国际港口运营商之一迪拜DP World董事长兼首席执行官苏丹艾哈迈德·本·苏拉耶姆（Sultan Ahmed Bin Sulayem）周五在2020年迪拜世博会接受彭博电视采访时表示，供应链问题可能会持续两年。
 
-他们在信中说：“地球工程组织好像不仅要求美国政府忽视中共对香港民众民主诉求的镇压，以及中共残暴的侵犯人权罪行，比如对维吾尔人的种族灭绝行为；还要求美国政府忽视中共对美国经济和国家安全构成的明显威胁。你们更像在帮助中共削弱美国，将责任推给美国，宣传中共的国家和经济安全政治议程。你们的信也反映了中共欲制止外界对其的批评，同时推动中共优先政策利益的战略。”
+“在疫情开始时，全球供应链处于危机之中，”本·苏拉耶姆说。 “也许在2023年我们会看到缓和。”
 
-他们要求这些组织回答一些问题来了解其工作与中共影响美国政策发展的努力之间的关系。这些问题包括：是否与中共有关联；是否是在中共或与中共有关的个人和组织指使下起草和签署交给美国政府的信件；是否曾经批评过中共的任何行为，例如是否批评过中共对维吾尔族人的种族灭绝行为。
+他指出集装箱费率飙升，并表示价格上涨是由于短缺和积压延误造成的。 “运费将继续上涨，航运公司正因此受益，”他补充道。
 
-新闻来源：[**House Republicans demand answers from progressive groups on possible ties to Chinese Communist Party**](https://www.foxnews.com/politics/house-republicans-letter-progressives-ties-chinese-communist-party)
+全球最大的航运公司A.P.穆勒-马士基（A.P. Moller-Maersk）最近警告说，供应链瓶颈可能会持续比预期更长的时间，一些托运人已要求限制运费单价。 DHL和UPS还警告说，供应链混乱不仅会持续到明年，而且可能会留下永久的影响。
+
+安联前PIMCO首席执行官兼首席经济顾问穆罕默德·埃里安（Mohamed El-Erian）也认为供应链问题将会持续至少一到两年，促使全球范围内生产价格继续飙升，最终推高消费价格。
+
+参考文章：[“Global Supply Chain Crisis To Last Until 2023,” Says Middle East’s Largest Port Operator](https://www.zerohedge.com/commodities/global-supply-chain-crisis-last-until-2023-says-middle-easts-largest-port-operator)
+
+本文仅代表作者本人观点，不代表Gnews平台

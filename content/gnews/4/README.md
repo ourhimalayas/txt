@@ -2,20 +2,51 @@
 ---
 
 
-## 中共不灭，灾难不断
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1576828/)
+## 苏格兰场馆拒绝执行疫苗护照计划
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1576841/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-99.png)
-10月6日新京报从山西省太原市清徐县应急管理局获悉，5日，乌马河孟封小武段发生决堤，沿河附近的小武、西罗、东罗、闫家营、孟封、杜村等村约有12000余人需要转移。孟封镇政府工作人员称，决堤发生后，当地紧急连夜转移沿河附近的村庄村民。截至6日12时许，4000多人已转移至安全地带。
+栏目记者/责任编辑：AsG諾雅
 
-另外，由于持续多雨，10月6日山西省蒲县荆坡村一带昨日晚11时许发生山体滑坡，造成5人被埋压。经过连夜抢险救援，被困人员全部救出，其中，4人遇难，1人受伤。遇难者主要为交警。
 
-水患是2021年常用词，先是长江流域，再是黄河流域，所谓自然灾害更多的是人为灾难，独裁体制下的管理僵硬，灾民得不到及时的救援和提前预警，每当灾难过去又常常会忘记这些教训，中共不灭，一切的灾难都是刚刚开始！
 
-[信息来源：乌马河山西清徐段发生决堤](https://my.mbd.baidu.com/r/ui7bDpTzSE?f=cp&amp;rs=1580906033&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=6648f4761bc9edd1)
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+
+
+
+
+
+
+
+信息战网10月5日报道，苏格兰的疫苗护照系统于上周五生效后，很快收到阿伯丁足球俱乐部的球迷投诉，称无法使用该应用程序购买门票，俱乐部迅速宣布在周末的比赛中不会要求出示疫苗护照。随即引发连锁反应，其他足球俱乐部和酒店业老板也表示，将拒绝要求顾客出示疫苗接种证明。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-2.jpg)
+据悉，该上线即失败的系统耗费了纳税人总计60万英镑。对此，苏格兰保守党领袖道格拉斯-罗斯表示，应该完全取消疫苗护照计划，即使执政党苏格兰民族党坚持一意孤行，也必须无限期地推迟计划，直到解决最基本的问题。
+
+疫苗护照计划具有歧视性，也是对基本隐私和自由的侵犯，在法国主要城市的人们开始在街上野餐抗议后，法国的餐馆、酒吧和咖啡馆停止执行该系统。中共病毒疫苗无效且有害的事实已经被证明，通过不断宣传真相和采取智慧的方法，一定可以成功抵制政府部门的不合理政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.3-1.jpg)
+信息链接：
+[Scottish Venues Rebel Against Vaccine Passport Scheme](https://www.infowars.com/posts/scottish-venues-rebel-against-vaccine-passport-scheme/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+终审： Ryan
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
