@@ -2,19 +2,20 @@
 ---
 
 
-## 秘翻在线：美国众议员谴责左翼团体替中共宣传 要求调查其与中共的关系
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576711/)
+## 中共为何谩骂日本的话锋一转，开始宣传盐野义制药？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1576777/)
 
-#### 翻译撰稿：zzballack
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-97.png)（图片源自微信）
+众所周知，自从日本表示与美国结盟应对中共制造的海上危机那天开始，中共外交部战狼们代表中共无数次谩骂日本，大外宣更是紧随其后，使得近期中文报道中的“日本”已经成了贬义词，网络上几乎看不到对日本的正面报道。
 
-#### 校对发布：文柯Miles
+然而，在盐野义制药公司宣布其生产的中共病毒治疗药进入最后临床试验阶段后，中文报道马上赤膊上阵，不遗余力地对盐野义制药这款新药赞许有加。[参考链接](https://www.sohu.com/a/485142764_120759049)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/sa1d5f165g65tr4jh56yt4j56sfdaf.jpg)图片来源：纽约时报
+一时间，中共国民应用最广泛的微信上也充满了这个“好消息”。在全世界媒体一边倒的宣传疫苗，不提不念治疗方法的当下，突然冒出这么一股不合时宜的报道，而且是出自之前不说日本一点好话的中共的报道，实在是令人费解！对出自中共这张已经失信于全球的臭嘴的这则消息，有人进行了挖掘。其结果，盐野义制药确实有中共的投资背景。更对细节请参照笔者另一篇GNEWS报道[【日本盐野义制药和中国平安保险关系详解】](https://gnews.org/zh-hans/1576641/)。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-98.png)[图片来源](https://answers.ten-navi.com/pharmanews/18870/)
+是不是细思极恐？敢尝试服用吗？
 
-据《福克斯新闻网》（Fox News）10月3日报道，分别在美国众议院能源和商业委员会（Energy and Commerce Committee）与监督和调查委员会（Oversight and Investigations）担任共和党领袖的凯西·麦克莫里斯·罗杰斯（Cathy McMorris Rodgers）和摩甘·格里菲斯（Morgan Griffith）等数位议员10月3日致函美国四个著名的左派气候组织，包括日出运动（the Sunrise Movement）、忧思科学家联盟（Union of Concerned Scientists）、继续前行（MoveOn）和地球工程组织（Earthworks）。他们在信中谴责这些组织今年7月呼吁拜登政府和国会放弃对中共的”敌对姿态”，转而与其合作来应对气候变化。他们担心“外国利益”可能会影响这些组织“发起针对国会的宣传活动”，因此要求调查这些组织与中共的关系。
-
-他们在信中说：“地球工程组织好像不仅要求美国政府忽视中共对香港民众民主诉求的镇压，以及中共残暴的侵犯人权罪行，比如对维吾尔人的种族灭绝行为；还要求美国政府忽视中共对美国经济和国家安全构成的明显威胁。你们更像在帮助中共削弱美国，将责任推给美国，宣传中共的国家和经济安全政治议程。你们的信也反映了中共欲制止外界对其的批评，同时推动中共优先政策利益的战略。”
-
-他们要求这些组织回答一些问题来了解其工作与中共影响美国政策发展的努力之间的关系。这些问题包括：是否与中共有关联；是否是在中共或与中共有关的个人和组织指使下起草和签署交给美国政府的信件；是否曾经批评过中共的任何行为，例如是否批评过中共对维吾尔族人的种族灭绝行为。
-
-新闻来源：[**House Republicans demand answers from progressive groups on possible ties to Chinese Communist Party**](https://www.foxnews.com/politics/house-republicans-letter-progressives-ties-chinese-communist-party)
+（本文只代表个人观点，与Gnews网站无关）
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)

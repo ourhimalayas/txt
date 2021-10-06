@@ -2,25 +2,20 @@
 ---
 
 
-## 秘翻在线：全球供应链危机将持续到2023年
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576723/)
+## 中共不灭，灾难不断
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1576828/)
 
-#### 文章撰写：寶寶
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-99.png)
+10月6日新京报从山西省太原市清徐县应急管理局获悉，5日，乌马河孟封小武段发生决堤，沿河附近的小武、西罗、东罗、闫家营、孟封、杜村等村约有12000余人需要转移。孟封镇政府工作人员称，决堤发生后，当地紧急连夜转移沿河附近的村庄村民。截至6日12时许，4000多人已转移至安全地带。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Snipaste_2021-10-06_18-30-58.png)
+另外，由于持续多雨，10月6日山西省蒲县荆坡村一带昨日晚11时许发生山体滑坡，造成5人被埋压。经过连夜抢险救援，被困人员全部救出，其中，4人遇难，1人受伤。遇难者主要为交警。
 
-据《零对冲》10月4日报道，全球央行行长一直在宣传通胀是“暂时性”的说法。从逻辑上讲，供应链瓶颈导致的通货膨胀会自行解决，但这些官员尚未提供时间表，因为他们不知道。
+水患是2021年常用词，先是长江流域，再是黄河流域，所谓自然灾害更多的是人为灾难，独裁体制下的管理僵硬，灾民得不到及时的救援和提前预警，每当灾难过去又常常会忘记这些教训，中共不灭，一切的灾难都是刚刚开始！
 
-为了更深入地了解全球供应链瓶颈何时会消退，迪拜最大的国际港口运营商之一迪拜DP World董事长兼首席执行官苏丹艾哈迈德·本·苏拉耶姆（Sultan Ahmed Bin Sulayem）周五在2020年迪拜世博会接受彭博电视采访时表示，供应链问题可能会持续两年。
+[信息来源：乌马河山西清徐段发生决堤](https://my.mbd.baidu.com/r/ui7bDpTzSE?f=cp&amp;rs=1580906033&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=6648f4761bc9edd1)
 
-“在疫情开始时，全球供应链处于危机之中，”本·苏拉耶姆说。 “也许在2023年我们会看到缓和。”
-
-他指出集装箱费率飙升，并表示价格上涨是由于短缺和积压延误造成的。 “运费将继续上涨，航运公司正因此受益，”他补充道。
-
-全球最大的航运公司A.P.穆勒-马士基（A.P. Moller-Maersk）最近警告说，供应链瓶颈可能会持续比预期更长的时间，一些托运人已要求限制运费单价。 DHL和UPS还警告说，供应链混乱不仅会持续到明年，而且可能会留下永久的影响。
-
-安联前PIMCO首席执行官兼首席经济顾问穆罕默德·埃里安（Mohamed El-Erian）也认为供应链问题将会持续至少一到两年，促使全球范围内生产价格继续飙升，最终推高消费价格。
-
-参考文章：[“Global Supply Chain Crisis To Last Until 2023,” Says Middle East’s Largest Port Operator](https://www.zerohedge.com/commodities/global-supply-chain-crisis-last-until-2023-says-middle-easts-largest-port-operator)
-
-本文仅代表作者本人观点，不代表Gnews平台
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)

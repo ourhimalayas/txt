@@ -2,17 +2,19 @@
 ---
 
 
-## 秘翻在线:CIA在电报中承认失去了大量线人
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576681/)
+## 秘翻在线：美国众议员谴责左翼团体替中共宣传 要求调查其与中共的关系
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576711/)
 
-#### 翻译/撰稿：zzballack
+#### 翻译撰稿：zzballack
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-2-2.jpg)图片来源：每日邮报
-据《布雷特巴特新闻网》（Breitbart News）10月5日报道，《纽约时报》（New York Times）本周二的一篇文章援引知情人士消息说，美国中央情报局（CIA）的全球各个站点在上周收到了一封绝密电报，电报说在过去几年中，有数十名CIA海外线人被杀、被捕或者被策反。这份电报列出了被对手情报机构处决的特工的具体人数，通常情况下反情报官员不会在此类电报分享这个秘密细节。
+#### 校对发布：文柯Miles
 
-据报道，这份电报指出，CIA在世界各地努力招募间谍时遇到了困难。文章说：“近年来，俄罗斯、中共国、伊朗和巴基斯坦等国家的敌对情报机构一直在追查中情局的消息来源，并在某些情况下将中情局特工变成双重间谍。”一些国家利用生物识别扫描、面部识别、人工智能和黑客工具等手段跟踪中情局官员的行动，以确定他们的消息来源，而且这一手段越来越厉害。“某前官员说，线人流失并不是一个新问题。但电报内容表明这个问题比公众所理解的更加严峻。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/sa1d5f165g65tr4jh56yt4j56sfdaf.jpg)图片来源：纽约时报
 
-美联社（Associated Press）2020年7月曾报道过，伊朗的一位前国防部雇员礼萨·阿斯加利 (Reza Asgari)因为被伊朗司法部认定为CIA从事间谍活动而被处决。2020年8月，已退休的中情局官员、67岁的马玉清（Alexander Yuk Ching Ma）因被指控向中共特工出售美国情报机密而被捕。”指控马玉清的一段视频证据说他在提供机密信息后获得了5万美元现金报酬。”
+据《福克斯新闻网》（Fox News）10月3日报道，分别在美国众议院能源和商业委员会（Energy and Commerce Committee）与监督和调查委员会（Oversight and Investigations）担任共和党领袖的凯西·麦克莫里斯·罗杰斯（Cathy McMorris Rodgers）和摩甘·格里菲斯（Morgan Griffith）等数位议员10月3日致函美国四个著名的左派气候组织，包括日出运动（the Sunrise Movement）、忧思科学家联盟（Union of Concerned Scientists）、继续前行（MoveOn）和地球工程组织（Earthworks）。他们在信中谴责这些组织今年7月呼吁拜登政府和国会放弃对中共的”敌对姿态”，转而与其合作来应对气候变化。他们担心“外国利益”可能会影响这些组织“发起针对国会的宣传活动”，因此要求调查这些组织与中共的关系。
 
-新闻来源：[Report: CIA Admits Losing Numerous Informants in Top Secret Cable](https://www.breitbart.com/national-security/2021/10/05/report-cia-admits-losing-numerous-informants-in-top-secret-cable/)
+他们在信中说：“地球工程组织好像不仅要求美国政府忽视中共对香港民众民主诉求的镇压，以及中共残暴的侵犯人权罪行，比如对维吾尔人的种族灭绝行为；还要求美国政府忽视中共对美国经济和国家安全构成的明显威胁。你们更像在帮助中共削弱美国，将责任推给美国，宣传中共的国家和经济安全政治议程。你们的信也反映了中共欲制止外界对其的批评，同时推动中共优先政策利益的战略。”
+
+他们要求这些组织回答一些问题来了解其工作与中共影响美国政策发展的努力之间的关系。这些问题包括：是否与中共有关联；是否是在中共或与中共有关的个人和组织指使下起草和签署交给美国政府的信件；是否曾经批评过中共的任何行为，例如是否批评过中共对维吾尔族人的种族灭绝行为。
+
+新闻来源：[**House Republicans demand answers from progressive groups on possible ties to Chinese Communist Party**](https://www.foxnews.com/politics/house-republicans-letter-progressives-ties-chinese-communist-party)

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/6/2021 1:43 PM (UTC)`
+
+A Pfizer scientist ran away when asked by an investigative reporter to publicly repeat what he said in private about natural immunity being better than Covid vaccine.<br/><br/>当调查记者要求他公开重复他在私下所说的关于中共病毒的自然抗体好于疫苗抗体时，辉瑞公司的一名科学家跑掉了
+![img](https://media.gettr.com/group4/getter/2021/10/06/13/43/5804f82c-b20e-2cca-3bb8-bd29c22d0fa9/out.jpg)
+
+---
+
 `@miles 10/6/2021 1:29 PM (UTC)`
 
 大胡子医生：疫苗不是用来对抗病毒的，释放病毒是为了引入疫苗<br/><br/>Dr. Zelenko: Vaccines are not for combatting the virus, but releasing the virus was to introduce the vaccines
@@ -288,13 +295,6 @@ Mr. Miles Guo accurately predicted the fall of Fu Zhenghua during his first whis
 
 🔥🔥🔥
 > `@jasonmillerindc 10/2/2021 1:19 PM (UTC)`<br/>Who's Hot on #GETTR<br/><br/>These are the 10 fastest growing accounts in the U.S. right now!<br/><br/>@NRA<br/>@MaxMAGA<br/>@Conservativee_<br/>@ToddStarnes<br/>@MTG4America<br/>@Mr3Rights<br/>@TimMurtaugh<br/>@GatewayPundit<br/>@EpochTV<br/>@MarkLevinShow
-
----
-
-`@miles 10/2/2021 1:46 PM (UTC)`
-
-💪💪💪
-> `@jasonmillerindc 10/2/2021 1:36 PM (UTC)`<br/>And definitely make sure to follow @Kaelan and @Christianne_L_A on #GETTR as well - they're based here in the U.S. and heading up our Global Engagement Team!
 
 ---
 
