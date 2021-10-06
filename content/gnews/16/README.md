@@ -2,39 +2,24 @@
 ---
 
 
-## 有声|罗马尼亚亿万富翁等8人在米兰附近的飞机失事中丧生
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1577532/)
+## 安倍在日本新政府的影响
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1577686/)
 
-配音：纽约香草山教育部 – 蒙古鸿雁
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/fumio-kishida-mitte-mit.jpg)
 
 
+资料来源：FAZ
 
-据意大利媒体报道，罗马尼亚亿万富翁丹·佩特雷斯库 （Dan Petrescu）周日在米兰附近的一次飞机失事中死亡。
+日本新首相岸田文雄是务实的。但他在他的前任首相安倍的控制之下。
 
-佩特雷斯库驾驶飞机在起飞几分钟后坠毁，撞向一个建筑工地。包括佩特雷斯库的妻子和儿子在内的八人在坠机中死亡。罗马尼亚外交部已证实其中7人均拥有双重国籍。68岁的佩特雷斯库个人净资产超过10亿欧元（12亿美元），同时拥有罗马尼亚和德国国籍。
+日本人在政府首脑的领导下提供了很多种类。自 2000 年以来，该国已经有 10 位总理。只有小泉纯一郎和安倍晋三两个人持续了几年。安倍甚至成为执政时间最长的首相，并为该国带来了不同寻常的政治稳定，直到他在一年前辞职。但十位政府首脑中的八位只在位一年或更短时间。周一，岸田文雄被议会选举为新政府首脑。他是千禧年以来的第十一位首相，也是继安倍之后的第二位首相。
 
-最近飞机事故频发，美国陆军医生和航空航天医学专家特蕾莎·朗刚向五角大楼呼吁，要求所有接种新冠疫苗的飞行员都必须停飞。 因未任何人都不能排除因心脏病发作，而突然发生飞行事故的可能性。疫苗灾难导致的空难事件恐将接连发生。
+问岸田是否会在位一年多才现实。尽管新政府首脑正试图传播所有的乐观情绪，但这远非确定。岸田的主要原因是执政联盟自民党（自民党）领导人仍受安倍影响。但这也是阻碍长期任职的最重要原因。
 
-文贵先生对此也发盖文表示，没人愿意看到这种灾难时刻的发生，但是我们也要面对现实。
+[https://www.faz.net/aktuell/politik/ausland/japan-fumio-kishida-ist-ministerpraesident-von-abes-gnaden-17570654.html](https://www.faz.net/aktuell/politik/ausland/japan-fumio-kishida-ist-ministerpraesident-von-abes-gnaden-17570654.html)
 
-文字版原文：[罗马尼亚亿万富翁等8人在米兰附近的飞机失事中丧生](https://gnews.org/zh-hans/1573830/)
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 
-音频处理：喜山必胜Maverick
-
-*发稿：*Yuki jiang
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+*责任编辑/校对/发布： Shuizhuyu*
