@@ -2,47 +2,45 @@
 ---
 
 
-## 欧盟官员强调，Facebook的宕机表明市场需要更多的竞争者
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1575621/)
+## “告密者”现身主流媒体后，脸书遭遇全球大宕机
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1575665/)
 
-作者：纽约香草山农场 – 四季
+【**简评】脸书等社交网站的服务中断，导致全球用户涌入盖特等提倡言论自由的平台。此前，举报脸书内幕的豪根最近公开真实身份，公众不免将此事联系起来。然而质疑者认为，最近的曝光疑似脸书的心理操作，并且因豪根在2020年大选前曾担任的角色，以及她在主流媒体受到的待遇与其他告密者截然不同，其告密者身份存疑。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+**据《门户专家》作者：Alicia Powe 2021年10月4日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ai6ay-xnho6-1.jpg)脸书的前产品经理弗朗西斯·豪根 (Frances Haugen) 透露，她是揭露数万页公司内部研究报告背后的消息人士。图片来源：《门户专家》
+本周一，脸书（Facebook）在毫无预警的情况下宕机了。
 
+目前尚不清楚是什么导致了这天的全球断网， 脸书、WhatsApp 和 Instagram 都崩溃了。
 
+断网之前，一名脸书的前产品经理成为“告密者”，揭露了数万份内部文件，发布在《华尔街日报》的一系列重磅报道里。
 
+脸书高管们在内部备忘录中承认，在被泄露的大量信息中，扎克伯格“阻碍”美国接种疫苗，推动人口贩运，并且该公司的子公司 Instagram对青少年的心理健康有害。
 
+然而，这位告密者、37岁的数据科学家弗朗西斯·豪根 (Frances Haugen)，从2019年开始就领导脸书的公民诚信和虚假信息小组，在受操纵的2020年大选之前，曾担任社交媒体平台的首席审查员。
 
-据[OAN](https://www.oann.com/facebook-outage-shows-need-for-more-players-eus-vestager-says/)网站援引路透社10月5日报道，欧盟反垄断局局长玛格丽特-维斯塔格 (Margrethe Vestager) 周二表示，Facebook前一天六小时的宕机，显示了仅仅依靠几个大公司所产生的后果，并强调市场需要更多的竞争者。
+**与此前曝光大科技公司的告密者不同，豪根明显受到了主流媒体的拥护支持。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1139-1-2021-10-05T113833Z_1_LYNXMPEH940LG_RTROPTP_0_EU-BELGIUM-TAXAVOIDANCE_1.jpg)2021年6月9日，欧盟反垄断局局长玛格丽特·维斯塔格在比利时布鲁塞尔欧盟总部举行的竞争部门调查新闻发布会上发表讲话。（ John Thys/Pool via REUTERS/File Photo）
+虽然最新披露的文件证实了针对脸书的多次投诉，但最近的曝光被怀疑是 脸书为了联合联邦政府，以积累不受约束的权力而设计的心理操作。
 
-这次宕机涵盖Facebook旗下的WhatsApp、Instagram和Messenger，使得该公司的35亿用户无法访问其社交媒体和消息服务。这是网络监测集团Downdetector有史以来监测到的最大的一次故障。
+脸书高管“看到人们正在离开脸书。他们要去盖特（GETTR），他们要去电报（Telegram）。他们要去所有这些脸书以外的地方。他们正在分享视频网站Rumble”——《人事》（Human Event）杂志社的杰克·波索比奇（Jack Posobeic）周一告诉史蒂夫班农（Steve Bannon）—— 在2020 年大选期间，她是脸书首席审查员。但她要现身并表现得像个告密者? 这说不通。
 
-维斯塔格去年提出了被称为数字市场法（DMA）的规则草案，为亚马逊、苹果、Facebook和谷歌列出了一份该做和不该做清单，从本质上讲，这将迫使它们改变其核心商业模式，以允许更多的竞争。
+**波索比奇警告说，豪根是一名受到控制的反对派人士。**
 
-欧盟立法者和欧盟国家现在正在对提案进行辩论，并需要在技术规则生效之前调和这三个草案。
+“她意识到唯一的方法就是采取立法行动。他们希望政府介入，他们将使用强行的方式。”他说，“当然，他们会说解决这个问题的唯一方法是政府为了‘更大的利益’而采取行动。”
 
-大科技公司的暴雷凸显了独特的、拥有自由言论、独立思想以及卓越技术的Gettr 的宝贵，它可以让人们自由的发声，在全世界分享自由和民主。
+“想想那些从脸书、谷歌、Pinterest、真相工程（Project Veritas）站出来的告密者 —— 他们才是真正的告密者 —— 那些失去工作、被诉讼、被毁掉的人，还有被送进监狱的人。真正的告密者不会有机会在《60分钟》节目中现身。这是一场运作。”
 
-（本文仅代表作者观点）
+扎克伯格（Zuckerberg）尚未就9月13日以来公布的一系列指控公开发表评论。相反，这位首席执行官最近几周发布的是自己航行和击剑的视频。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+**文章来源：**[https://www.thegatewaypundit.com/2021/10/facebook-crashes-globally-mainstream-media-heralds-alleged-whistleblower/](https://www.thegatewaypundit.com/2021/10/facebook-crashes-globally-mainstream-media-heralds-alleged-whistleblower/)
 
-编辑/校对/发稿：小鹿
+**（本文评论仅代表个人观点）**
 
+翻译/评论：洛杉矶盘古农场 – maru
+校对/编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

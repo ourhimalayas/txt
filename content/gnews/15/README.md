@@ -2,44 +2,47 @@
 ---
 
 
-## 美国代表批评中共国的贸易行为 不排除采取额外措施
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1575558/)
+## 欧盟官员强调，Facebook的宕机表明市场需要更多的竞争者
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1575621/)
 
-- **编译：蚂蚁兄弟**
+作者：纽约香草山农场 – 四季
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip250.png)
 
-美国对外贸易代表戴琪（katherine Tai 凯瑟琳-戴）周一批评中共国的“不公平”贸易做法损害了中国劳动人民的“繁荣富强”，但华盛顿不会寻求对北京的紧张贸易关系的“升级”。
 
-戴琪在战略与国际研究中心发言时，阐述了美国总统拜登在其前任特朗普执政期间释放出来的公开性斗争之后，现任美国总统的施政方针的关键。
 
-“长期以来，中共国未能遵守全球贸易规则，破坏了美国和世界其他各地区和人民的繁荣”。
+据[OAN](https://www.oann.com/facebook-outage-shows-need-for-more-players-eus-vestager-says/)网站援引路透社10月5日报道，欧盟反垄断局局长玛格丽特-维斯塔格 (Margrethe Vestager) 周二表示，Facebook前一天六小时的宕机，显示了仅仅依靠几个大公司所产生的后果，并强调市场需要更多的竞争者。
 
-戴琪说，她“很快”将与中共官员进行“坦诚的讨论”，在讨论中她将表达对这些问题的“关切”。她说，她将强调“中共未能按照过去15年的承诺改革非市场政策”。然而，国会的“目标不是升级与中共国的贸易紧张关系”，指的是关税战。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1139-1-2021-10-05T113833Z_1_LYNXMPEH940LG_RTROPTP_0_EU-BELGIUM-TAXAVOIDANCE_1.jpg)2021年6月9日，欧盟反垄断局局长玛格丽特·维斯塔格在比利时布鲁塞尔欧盟总部举行的竞争部门调查新闻发布会上发表讲话。（ John Thys/Pool via REUTERS/File Photo）
 
-戴琪在上任后不久，5月份她组织了美国当局与中共国副总理刘鹤举行的一次网络会谈。
+这次宕机涵盖Facebook旗下的WhatsApp、Instagram和Messenger，使得该公司的35亿用户无法访问其社交媒体和消息服务。这是网络监测集团Downdetector有史以来监测到的最大的一次故障。
 
-关于可能的额外措施，贸易代表说，这些措施将取决于与中共国的会谈内容如何进展，同时重申“所有选项都在桌面上”。世界上最大的两个经济体在特朗普担任总统期间的贸易关系很困难，加征的几轮对等关税引起了全球动荡。最终，美国和中共国达成了贸易协定，其中包括中共国增加购买美国商品，特别是牲畜和农产品，但经济学家指出，中共国政府没有履行声明中的承诺。
+维斯塔格去年提出了被称为数字市场法（DMA）的规则草案，为亚马逊、苹果、Facebook和谷歌列出了一份该做和不该做清单，从本质上讲，这将迫使它们改变其核心商业模式，以允许更多的竞争。
 
-人物背景介绍：戴琪（Katherine Chi Tai 凱瑟琳**·**琪**·**戴）是一名美国出生的华裔贸易律师，现任美国贸易代表。 2007年至2014年间在美国贸易代表署担任负责中国事务的重要律师，期间处理美国在世界贸易组织对中国提出的争端诉讼。
+欧盟立法者和欧盟国家现在正在对提案进行辩论，并需要在技术规则生效之前调和这三个草案。
 
-**简评：**
+大科技公司的暴雷凸显了独特的、拥有自由言论、独立思想以及卓越技术的Gettr 的宝贵，它可以让人们自由的发声，在全世界分享自由和民主。
 
-**我们可以预见的是，即将要发生的这一次贸易谈判似乎又会是一场“口水战”。中共从来不会认真的执行其所承诺过的事情。而中美两国近一年以来的谈判，让人看起来只不过是在“做做样子”，并没有任何实质性的改变。**
+（本文仅代表作者观点）
 
-**这场中共病毒大疫情并没有解决，世界的经济也即将到达崩溃的边缘。不去付诸行动的任何“谈判”都是在做无用功。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
 
-**与其在贸易上进行毫无作用的讨价还价，还不如多多关注一下病毒的溯源，关注一下疫苗的危害性。这样才能让世界的经济早日回到正轨。**
+编辑/校对/发稿：小鹿
 
-（文章仅代表作者观点，与GNEWS无关）
 
-**来源：[elconfidencial.com](https://www.elconfidencial.com/empresas/2021-10-04/ee-uu-critica-las_3301012/)**
 
-* * *
+**更多资讯，更多关注**
 
-***审核：Aires的星
-校对：阿伯塔
-发布：信心满满***
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip190.png)
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
