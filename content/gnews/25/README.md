@@ -2,31 +2,17 @@
 ---
 
 
-## 拜登政府如轻信中共承诺 ，将加剧台海危机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1576877/)
+## 四川南充遭遇泄洪和洪峰过境
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1576971/)
 
-栏目记者/责任编辑：在远方
+韩国首尔天池农场—–追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/10/62.jpeg)
+据新京报我们视频10月6日的微博，受嘉陵江上游亭子口、升钟水库泄洪计划变更及东河暴雨洪水情况影响，嘉陵江四川南充蓬安段出现特大洪峰过境，洪峰过境时最大流量达24700立方米/秒。为保障嘉陵江沿岸堤防安全，南部县文家坝紧急炸毁江面上失控船只。5日，蓬安县启动I级防汛应急响应，组织力量将沿线民众转移至安全地带。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/6插图.jpeg)图片来源：网络
+点评 中共统治下的中国，每年的汛期都发生浸泡。今年从河南720特大水灾起，到今天的四川南充遭遇泄洪和洪峰过境，浸泡了多少村巷，多少人受灾，多少人失去生命，灾后给这些居民的建设经费又有多少？这些数据我们都无法得知。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+然而中共却天天喊着为人民服务，原来是人民为他们服务！他们通过对14亿中国人民的统治，把中国人民从加入世界贸易组织起挣取的血汗钱，大部分被他们转移到国外挪为己有，剩余的在国内就成为他们续命的血液。你们家园被浸泡了，道路桥梁被毁了，因洪水导致的损失等等，都跟他们无关，他们也不关心！
 
+中国人民就是一群为他们服务的屁民，没有医疗、保险和养老，等到他们年老回到农村的时候才发现自己这些年真的一无所有，唯一挣得就是疾病、年老和贫穷。有中共在的一天，中国人民就不可能有好日子，TAKE DOWN THE CCP!
 
-
-美国总统拜登10月5日称，他与中共党魁习近平9月9日通话时，曾谈及台湾问题，双方均同意遵守此前的“台湾协议”。拜登没有明确说明是哪项协议，但根据国务院发言人普赖斯10月3日发出的声明，该协议应该还是指 “中美三个联合公报”中对台湾问题的六项保证。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1006-AM（3、4）.001.jpeg)
-自10月1日开始，中共已经连续在5天内派遣总计149架次军机入侵台湾空域，其武力挑衅升级，被外界认为是中共对台湾和美国等盟友的压力反应测试。虽然拜登政府一直有批评中共对台的军事、经济与外交胁迫，并在菲律宾海举行了6国联合演习，但是对于中共这个言而无信、毫无底线的独裁恐怖政权来说，对习近平所谓承诺的任何轻信和绥靖，都将导致台湾面临更为危险的境地。
-(本文仅代表作者观点)
-
-参考链接：[拜登：与习近平谈到台湾，双方同意遵守“台湾协议”](https://www.voachinese.com/a/biden-xijinping-taiwan-20211005/6259051.html)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审：文龙
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（本文仅代表作者观点，与Gnews平台无关）

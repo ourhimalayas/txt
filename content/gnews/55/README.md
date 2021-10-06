@@ -2,27 +2,37 @@
 ---
 
 
-## 疫苗灾情｜爱尔兰 28 岁医科女学生接种疫苗后瘫痪
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1574393/)
+## 看完长津湖就要开启啃冻土豆和冰窖体验的美好生活了
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1573256/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期****/ 5/10/2021**
+据[**观察者网**](https://weibo.com/newoutlook?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年10月4日 23:01](https://weibo.com/1887344341/KBdP5zvxU?ref=home&amp;rid=6_0_8_6667924340392403151_6_0_0) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
+【[#女孩看完长津湖回家尝冻土豆#](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E7%9C%8B%E5%AE%8C%E9%95%BF%E6%B4%A5%E6%B9%96%E5%9B%9E%E5%AE%B6%E5%B0%9D%E5%86%BB%E5%9C%9F%E8%B1%86%23&amp;from=default) ：觉得很心酸，根本咬不动 】近日，云南昆明，电影《长津湖》热映感动众多网友，迟女士看完电影后找来土豆煮熟冻在冰箱，体验英雄们啃冻土豆的艰苦。迟女士表示，根本咬不动，吃了第一口就觉得很心酸，特别想哭，现在美好的生活都是战士们奋斗来的。（新华网）[L西部决策的微博视频](http://t.cn/A6MxDqMt)
 
-【爱尔兰】沃特福德一名 28 岁的医科女学生 Arooj Imtiaz Lughmani 在接种辉瑞 COVID-19 疫苗后立即住院。
+我们不得不承认中共官媒树立起的这位云南昆明迟女士是脑子里进大粪的最好榜样，如果观众们与这位迟女士一样感同深受，那么吃冻土豆是不够的，还应该穿着单衣到冰雪地里去卧上一卧，以此体验一把当年中共炮灰们的感觉。
 
-Arooj 于 9 月 10 日接种第一剂疫苗，10分钟后，身体就出现了一系列症状，包括呼吸困难、心律加快、无意识癫痫、失语症以及瘫痪，自接种当日被紧急送院治疗至今，她仍在等待明确的诊断。
+可是我们不想体验的啃冻土豆和我们不想体验的冰窖体验却并不以我们意志为转移地走下银幕进入我们的生活——在不定期、无预警停电之下的东北，在停电时哪怕能吃上冻的熟土豆不也是一份幸运么？在停电的阴冷天气之下，难道每个人不都在冰窖中么？
 
-Arooj 在 Instagram 上发表长文分享了她整个故事，她警示道，“看看辉瑞疫苗对我做了什么，看看政府和医院对我做了什么。”
+在想到这些的时候，恍然明白中共媒体树立那个脑子进水的云南昆明迟女士为榜样的用意了，原来电影上的生活正在向我们走来，接下来能吃上冻土豆的、能在冰窖中活下来的就已经是很美好的生活了，并且这很美好的生活就是当年那些啃着冻土豆的炮灰们与那些吃着火鸡和各种美味食品的美国大兵斗争的结果！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/螢幕截圖-2021-10-05-下午2.48.13.png)
+撰稿：喜马拉雅的肉夹馍
 
-在最近的一则贴文中，她更新了近况，她说“我仍然不知道到底发生了什么，我也不知道我还能不能走路，能不能呼吸到新鲜空气，我只能期盼奇迹发生。”
+审核：喜马拉雅的馍夹肉
 
-一段 Arooj 接种疫苗前后的生活视频：
+校对：Maarago
 
-来源｜ [个案011](https://www.instagram.com/alughmani/)
+（文章内容仅代表作者个人观点）
 
-* * *
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-他们的故事：[//英国 29 岁创意总监接种疫苗后瘫痪//](https://gnews.org/zh-hant/1568385/)｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](http://%E8%87%B4%E8%82%BA%E6%A0%93%E5%A1%9E%20https://gnews.org/zh-hant/1570229/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hant/1572288/)//
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
