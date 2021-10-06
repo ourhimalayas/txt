@@ -2,39 +2,24 @@
 ---
 
 
-## 有声|罗马尼亚亿万富翁等8人在米兰附近的飞机失事中丧生
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1577532/)
+## 從尸袋引發的疑問
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1577588/)
 
-配音：纽约香草山教育部 – 蒙古鸿雁
+作者：HimaFAFA
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109-1.jpg)
+什麽是mRNA疫苗? 作爲普通人的我們又了解多少? 根據維基百科mRNA疫苗是一類借由導入病原mRNA或癌細胞mRNA而使人體細胞產生抗原，進而引發適應性免疫應答以達到免疫效果的新型疫苗。它首次發現于1989年，經歷了十幾年在小鼠身上的研究，在2005年由哈弗大學幹細胞學者Derrick Rossi提出這項技術能用於疫苗開發。2008 年BioNTech 也就是我們熟知的輝瑞公司成立，但此後的一段時間内，各國研發的RNA疫苗的臨床實驗結果都不夠理想。然而，在2019年COVID-19肆意蔓延的情況下mRNA疫苗被美國藥監局FDA緊急通過并廣範使用與各國人民。
 
+各國政府瘋狂的搶購儲備mRNA疫苗并對接種疫苗采取了一系列變相强制措施，比如疫苗護照限制那些未接種疫苗者進入公共場所。政府甚至擔保疫苗的安全性，促使人們接種疫苗並提高疫苗接種率。然而，疫苗的安全性真的如政府所宣揚的嗎？疫苗在各國開打已經有一段時間了，但是新冠的死亡率還是居高不下。
 
+以上一段外國尸袋工廠工人上傳的視頻可以看出尸袋的需求量有多大，每一個尸袋對應著一具尸體，也就意味著死亡人數龐大。這些尸袋是會裝打過疫苗的人呢還是沒打過疫苗的人？這些死亡人數到底是由於病毒感染還是由於接種疫苗后產生的并發症呢？這些訂單來自哪裏？又是由誰訂購的？誰又知道會死這麽多人呢？
 
-据意大利媒体报道，罗马尼亚亿万富翁丹·佩特雷斯库 （Dan Petrescu）周日在米兰附近的一次飞机失事中死亡。
+人死不能復生，如果説接種疫苗的死亡率僅爲0.008%，作爲政府是否會放棄這0.008%的人大肆鼓勵疫苗的接種？如果你或你的家人就是這0.008%的這類人，你又會做出何種選擇呢？
 
-佩特雷斯库驾驶飞机在起飞几分钟后坠毁，撞向一个建筑工地。包括佩特雷斯库的妻子和儿子在内的八人在坠机中死亡。罗马尼亚外交部已证实其中7人均拥有双重国籍。68岁的佩特雷斯库个人净资产超过10亿欧元（12亿美元），同时拥有罗马尼亚和德国国籍。
+Reference: [https://zh.wikipedia.org/wiki/RNA%E7%96%AB%E8%8B%97](https://zh.wikipedia.org/wiki/RNA%E7%96%AB%E8%8B%97)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+**關注我們**
 
-最近飞机事故频发，美国陆军医生和航空航天医学专家特蕾莎·朗刚向五角大楼呼吁，要求所有接种新冠疫苗的飞行员都必须停飞。 因未任何人都不能排除因心脏病发作，而突然发生飞行事故的可能性。疫苗灾难导致的空难事件恐将接连发生。
-
-文贵先生对此也发盖文表示，没人愿意看到这种灾难时刻的发生，但是我们也要面对现实。
-
-文字版原文：[罗马尼亚亿万富翁等8人在米兰附近的飞机失事中丧生](https://gnews.org/zh-hans/1573830/)
-
-音频处理：喜山必胜Maverick
-
-*发稿：*Yuki jiang
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+Discord 賬號
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+Gettr 賬號
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

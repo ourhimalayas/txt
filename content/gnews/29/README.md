@@ -2,35 +2,208 @@
 ---
 
 
-## 法国议会报告：中共在学术界的影响占主导地位
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1577400/)
+## 澳大利亚人们需要意识到发生在我们身上的事情……我们需要站起来说够了！
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1577425/)
 
-**撰稿：日本东京方舟农场 海星**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2409.png)
+[https://gtv.org/video/id=615dc30ad2e2b8174871fc94](https://gtv.org/video/id=615dc30ad2e2b8174871fc94)
 
-10月5日，法国参议院发布了一份报告，揭示了中共在法国大学和学术界中的影响已占主导地位。
+**Joe Rogan
+乔·罗根**
 
-据《法广》报道，法国参议院发布的这份报告长达240页，讨论了欧洲以外国家对法国的影响，影响的范围已经不再局限于经济情报问题，而是扩展到了学术自由和科学诚信。该报告称，虽然俄罗斯、土耳其和某些波斯湾国家等对法国有所影响，但都无法与中共的战略手段和规模相提并论。中共的战略在多个层面发挥作用，也不再掩饰其在国际关系中占据核心地位的愿望。
+Look at the amount of the the authoritarian response, just in Australia.
+看看专制的反应，就在澳大利亚
 
-该报告的负责人艾蒂安·布朗（Étienne Blanc）参议员表示，中共凭借其权力和执行长期政策的能力，是采取这种全球性和系统性影响最突出的国家。
+Australia has turned into a fucking prison colony.
+澳大利亚已经变成了该死的监狱殖民地
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/id12930006-2105062326382378-600x400-1.jpg)图片来自于网络
+And then, here’s one where the Second Amendment advocates step up
+然后，这是第二修正案倡导者站出来的地方
 
-报告指出，这种影响是双向性的，一方面，中共通过宣传与人文社会科学的方式塑造一个国家的形象或声誉，或强化一个官方的意识形态。另一方面，中共以一国之力入侵和捕获敏感的科学数据来获得战略、经济或军事优势。
+and say, hey, this is why we have the Second Amendment,
+而且说，嘿，这就是为什么我们有第二修正案（持枪权）
 
-中共影响学术界的方式之一是利用遍布世界各地的孔子学院，以独立或与大学合作的方式传播“中国文化”，但孔子学院涉嫌是中共的宣传工具，而且也威胁其合作伙伴的学术自由，甚至藏匿间谍。此前，法国军事学院战略研究所（IRSEM）也在其报告中，详细揭露孔子学院的真面目。
+like you could always say that the Second Amendment is supposed to apply to protection of yourself,
+就像你总是说第二修正案应该适用于保护你自己
 
-参议院在报告中强调，法国、大学在知识层面面临的困境，并警示教育机构保持警惕，特别是对来自外国的学生。
+and a well armed militia, it has nothing to do with,
+和一个装备精良的民兵，这与
 
-报告建议将外国干涉的威胁提升到政治优先级，以便更好地保护法国的科学遗产和学术自由。
+you know, some guy being able to have 150 fucking ARs in his, in his bedroom
+你知道，有些人可以在他的卧室里放 150 个的 AR步枪是不同的概念
 
-*注：本文仅代表作者观点，与 Gnews无关*
+and this is crazy and it’s, it’s overreach,
+这太疯狂了，这真是过分
 
-*参考链接：*
+or it’s, it’s, it’s, it’s being abused, rather,
+或者它，它，它，它正在被滥用，相反
 
-[法国大学与研究机构有中国影响的阴影？](https://www.rfi.fr/cn/%E6%B3%95%E5%9B%BD/20211005-%E6%B3%95%E5%9B%BD%E5%A4%A7%E5%AD%A6%E4%B8%8E%E7%A0%94%E7%A9%B6%E6%9C%BA%E6%9E%84%E6%9C%89%E4%B8%AD%E5%9B%BD%E5%BD%B1%E5%93%8D%E7%9A%84%E9%98%B4%E5%BD%B1)
+but Australia has no guns, the general population,
+但澳大利亚的普通民众没有枪支
 
-[法国参议院重磅报告 揭孔子学院影响学术界](https://www.epochtimes.com/gb/21/10/5/n13284050.htm)
+there’s a few people that have like rifles for hunting,
+只有少许人有像步枪用于打猎
 
-* * *
+but it’s, there’s nothing like we have here in America,
+但它是，没有什么像我们在美国这里有的
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+and they are being overrun.
+而且他们被侵犯了
+
+Cops are beat or they’re pulling people over
+警察殴打或者他们把人们拉到路边
+
+for simply being outside their homes,
+只是因为他们在家门口
+
+and they’re thrown into the ground like thugs.
+而且人们像暴徒一样被扔到地上
+
+You’ve seen these protests
+你已经看到了这些抗议活动
+
+where they’re literally pepper spraying old ladies in the face.
+他们实际上是在向老太太脸上喷胡椒粉
+
+It’s crazy how much they’ve been divided
+他们被分裂到如此程度，太疯狂了
+
+and what’s here’s the shit out of me is I’ve got to think
+而且对我来说可怕的是我要想想
+
+that any foreign entity any, any foreign government
+任何外国实体，任何外国政府
+
+that sees what’s possible in Australia
+看到澳大利亚可能发生的事情
+
+would like to see that happen in America.
+会希望看到这种情况发生在美国
+
+Elvis Sinosic （retired Australian professional mixed martial artist ）
+埃尔维斯·辛诺克 （退休的澳大利亚职业综合格斗家）
+
+Well, yeah.
+嗯，是呀
+
+Joe Rogan
+乔·罗根
+
+It’s nothing’s more diverse, no divides the population more than seeing this
+没有什么比看到这个一直是个好地方的美国
+
+place that was like always a great place to visit
+社会变得更加分化
+
+Elvis Sinosic
+埃尔维斯·辛诺克
+
+right
+是的
+
+People are so friendly and now it’s a fucking police state
+人们是非常的友好，现在它是一个该死的警察国家了
+
+like…
+像
+
+Elvis Sinosic
+埃尔维斯·辛诺克
+
+I spent part of my childhood
+我的部分童年时光是在
+
+I didn’t come to the States till my last year of high school right
+直到我高中的最后一年才来美国，对吧
+
+so, and I was in Australia, and …
+所以，我在澳大利亚，然后……
+
+Joe Rogan
+乔·罗根
+
+what’s it like for you watching,
+你看着是什么感觉？
+
+Elvis Sinosic
+埃尔维斯·辛诺克
+
+I was I was I’m stunned by their, their reaction,
+我被他们的行为惊呆了
+
+first of all to to imposing the regulations, the requirements with the protocols that they’ve got in place
+首先要强制规定，以及他们已经制定的协议的要求
+
+and also kind of stunned at that the Australian populations willingness to,
+而且也有点惊讶的是澳大利亚人愿意
+
+you know, allow it to happen the sense
+你知道，允许它发生
+
+Joe Rogan
+乔·罗根
+
+Well, they’re rejecting it now.
+好吧，他们现在反抗了
+
+Elvis Sinosic
+埃尔维斯·辛诺克
+
+Yeah, it took a while though it took a while
+是的，虽然花了一些时间
+
+because this has been going on for a while.
+因为这已经持续了一段时间
+
+Melbourne is the most lockdown city.
+墨尔本是封锁最严重的城市
+
+Joe Rogan
+乔·罗根
+
+Yeah. Which is crazy, and the amount of deaths they’ve had is so minimal,
+是的， 这太疯狂了，他们的死亡人数如此之少
+
+yeah, it’s so small
+是的，它太小了
+
+it’s like Florida on a weekend for the entire pandemic.
+整个大流行如同在佛罗里达州一个周末的数量的样子
+
+I’m not kidding.
+我不是在开玩笑
+
+Elvis Sinosic
+埃尔维斯·辛诺克
+
+No, it’s true,
+不，这是真的
+
+Joe Rogan
+乔·罗根
+
+it really is like that.
+真的是这样
+
+Elvis Sinosic
+埃尔维斯·辛诺克
+
+Yeah, so I’m shocked
+是的，所以我很震惊
+——————————————————————————
+Date:10/04/2021
+原视频标题: Australia is not being looked upon kindly… the people need to realize what is happening to us… we need to stand up and say enough!
+澳大利亚没有被善待……人们需要意识到发生在我们身上的事情……我们需要站起来说够了！
+原视频日期：2021/10/02
+原视频链接: [https://twitter.com/elvissinosic/status/1444294453724737542?s=24](https://twitter.com/elvissinosic/status/1444294453724737542?s=24)
+任务编号：KE330（2409）
+视频时间段 : 0:00-2:20
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

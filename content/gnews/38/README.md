@@ -2,17 +2,43 @@
 ---
 
 
-## 四川南充遭遇泄洪和洪峰过境
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1576971/)
+## 前员工指证脸书“伤害儿童、煽动分裂削弱民主”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1577124/)
 
-韩国首尔天池农场—–追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/10/62.jpeg)
-据新京报我们视频10月6日的微博，受嘉陵江上游亭子口、升钟水库泄洪计划变更及东河暴雨洪水情况影响，嘉陵江四川南充蓬安段出现特大洪峰过境，洪峰过境时最大流量达24700立方米/秒。为保障嘉陵江沿岸堤防安全，南部县文家坝紧急炸毁江面上失控船只。5日，蓬安县启动I级防汛应急响应，组织力量将沿线民众转移至安全地带。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/6插图.jpeg)图片来源：网络
-点评 中共统治下的中国，每年的汛期都发生浸泡。今年从河南720特大水灾起，到今天的四川南充遭遇泄洪和洪峰过境，浸泡了多少村巷，多少人受灾，多少人失去生命，灾后给这些居民的建设经费又有多少？这些数据我们都无法得知。
+栏目记者／责任编辑：流浪的阳光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-106.png)
+这几天Facebook可谓遇上了多事之秋 ：本周一（3日）经历了旗下平台全部宕机。故障期间，Facebook的全球市值蒸发最多时近500亿美金，目前略有恢复。
 
-然而中共却天天喊着为人民服务，原来是人民为他们服务！他们通过对14亿中国人民的统治，把中国人民从加入世界贸易组织起挣取的血汗钱，大部分被他们转移到国外挪为己有，剩余的在国内就成为他们续命的血液。你们家园被浸泡了，道路桥梁被毁了，因洪水导致的损失等等，都跟他们无关，他们也不关心！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9.jpeg)
 
-中国人民就是一群为他们服务的屁民，没有医疗、保险和养老，等到他们年老回到农村的时候才发现自己这些年真的一无所有，唯一挣得就是疾病、年老和贫穷。有中共在的一天，中国人民就不可能有好日子，TAKE DOWN THE CCP!
+正可谓福无双至，祸不单行，周二（5日）在参议院商务委员会消费者保护小组的听证会作证，Facebook 被猛烈抨击。
 
-（本文仅代表作者观点，与Gnews平台无关）
+一名前员工告诉美国立法者，该公司的网站和应用程序“伤害儿童、煽动分裂并削弱我们的民主”。
+
+弗朗西斯·豪根（Frances Haugen ）是前脸书产品经理，后来成为吹哨人，并在国会山的听证会上严厉批评了该公司。 Facebook 面临着越来越多的审查，社会也更多地呼吁对科技巨头进行监管。
+
+豪根告诉参议员，脸书掌握的权力影响深远，与约20亿用户的日常生活紧紧交织， 她呼吁国会需采取行动来解决危机。
+
+参议院两党议员罕见立场一致，认为脸书公司必须做出改变。听证会小组主席布卢门撒尔（Richard Blumenthal）指控脸书公司“道德破产”，其影响将“困扰一整代人”。
+
+郭文贵先生在5日的大直播中爆料，让Facebook 全线崩溃半天的是俄罗斯。
+
+从去年美国大选期间的拙劣行为，到现在无所不用其极的阻挡、删除人们发布疫苗害人的真相，助纣为虐黑暗势力掩盖事实，Facebook的结果肯定是非死不可！
+
+(本文仅代表作者观点)
+
+参考链接: [Facebook Market Cap](https://ycharts.com/companies/FB/market_cap)
+[https://www.ft.com/content/e9e25ff3-639a-4cc1-bb81-dedf24d956e3](https://www.ft.com/content/e9e25ff3-639a-4cc1-bb81-dedf24d956e3)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：暗黑
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

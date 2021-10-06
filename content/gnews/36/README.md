@@ -2,30 +2,21 @@
 ---
 
 
-## 新任首相岸田文雄欢迎台湾加入CPTPP
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1577089/)
+## 视死如归&#8211;加拿大特鲁多宣布公务员接种中共病毒疫苗的最后大限！
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1577205/)
 
-责任编辑：文一
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-10月4日, 刚刚当选日本新一任首相的岸田文雄举办了记者发布会，当被问及如何看待中共国与台湾先后申请加入跨太平洋伙伴关系协定时，岸田表示对中共国目前能否满足该协定组织的要求标准抱 存疑。并称，在重视企业知识产权保护等方面，中国大陆方面恐难以满足CPTPP要求的自由贸易标准。他同时声称: “（中共政府）在自由、民主、法治和人权等方面，都存在令人质疑的做法”。而对于台湾在9月份申请加入CPTPP, 岸田则表示了欢迎!
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/tc-edited.jpg)加拿大总理特鲁多和副总理克里斯蒂亚
+图片来源：Thepostmillennial
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-1.jpeg)
 
-最后岸田文雄首相明确指出, 对于现阶段 东海、南海地区存在试图以实力改变现状的动向，日本“ 将与共享普世价值, 且志同道合的盟国携手应对”。
+据加拿大知名自媒体《Thepostmillennial》10月6日刊登突发新闻报道，总理特鲁多当日正式宣布，10月29日将是所有联邦政府公务员全面接种COVID19疫苗的最后期限，而所有那些未接种该疫苗的联邦雇员将被安排“无薪休假”。
 
-(本文仅代表作者观点)
+这些公务员职能部门包括：加拿大皇家骑警、联邦政府部门、惩教服务处、加拿大边境服务部，以及许多其他联邦职能办公室和相关机构。至于那些不能出示该疫苗接种证明的公务人员将在11月15日前被当局安排“无薪行政休假”。
 
-参考链接：[日本新首相岸田：质疑中国能否满足TPP标准](https://www.rfi.fr/cn/亚洲/20211005-日本新首相岸田-质疑中国能否满足tpp标准)
+对此，副总理克里斯蒂亚.弗里兰还宣布指示道：“所有皇家企业和其事务机构将不遗余力地执行反映我们今天所宣布的这项政策。同时，国防参谋长将发布一项指令，规定加拿大武装部队人员也必须接种COVID19疫苗。为此，我们正与联邦政府监管下的各工作场所的所有雇员紧密合作。”
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+总理特鲁多强调道：“实行该政策的最后期限是不迟于本月底，届时将要求所有联邦雇员必须提供COVID19疫苗的接种证明。而且到11月中旬，该已到位的执法措施将确保每位公务员都接种了该疫苗。此外，至10月底，在加拿大境内乘坐飞机或火车等公共交通工具的12岁或以上的人员都必须完全接种了该疫苗。因此，病毒检测将不再是登机前的一个选择。”
 
-终审：文龍
-校正/发稿：谐趣园
+（以上内容仅代表原文信息和作者个人观点。）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[原文链接：](https://thepostmillennial.com/breaking-trudeau-liberals-announce-october-vaccine-deadline-for-public-servants)

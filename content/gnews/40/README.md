@@ -2,44 +2,37 @@
 ---
 
 
-## 拜习峰会：这是杨洁篪会晤沙利文的主要任务
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1576703/)
+## 索罗斯继续抛售股票 将部分资本投入加密货币
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1577068/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10614-scaled.jpg)
-据中共国[新华社北京10月6日](http://www.news.cn/politics/leaders/2021-10/06/c_1127931769.htm)通讯证实：不吃那一套的杨洁篪将代表他的老板吃定美国。美国安全事务助理沙利文将在瑞士苏黎世与杨洁篪举行会晤。双方将就中美关系及有关问题交换意见。
+栏目记者/责任编辑： Yousei
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-104.png)
+近日全球股市低迷，美股指数集体下挫，虽昨日有所回升，但脸书事件再度领跌科技股。周二的彭博投资全球虚拟会议上，气氛似乎更加悲观。位于多伦多的布鲁克菲尔德（Brookfield）资管公司管理着6260亿美元，其首席执行官布鲁斯（Bruce Flatt）说，现在是清算资产的好时机，我们已经变现了很多资产，今年还会继续。
 
-中美外事人员再度接触是基于9月10日习拜电话外交达成交易的一部分。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-3.jpeg)
 
-目前，[沙利文](https://twitter.com/JakeSullivan46/status/1445561291372781571?s=19)官方推特暂未发布此消息。不过这一外交举措外界表示关注。
+索罗斯家族基金握有资产达270亿美元，信息主管道恩·菲茨罗伊（ Dawn Fitzpatrick） ，在接受采访时也表示，她一直在出售资产，并表明索罗斯避免在中共国投资的真正原因是钱会很快消失。索罗斯在8月底清仓中概股，并于近日在媒体专栏文章中直言不讳的批评，向中共国投资是一个悲剧性的错误。
 
-延展阅读：[*白宫证实沙利文与杨洁篪将在瑞士会面以缓解紧张关系升*](https://www.voachinese.com/a/US-envoy-Sullivan-to-meet-China-Yang-Jiechi-this-week-20211005/6257842.html)。
+另外值得注意的是，索罗斯是继亿万富翁史蒂夫·科恩（Steve Cohen）和传奇投资人丹·洛布之后，最新进入加密货币领域的对冲基金大佬。
 
-不过，世界仍需要问三个问题：
+道恩指出，加密货币已经成为主流。巧合的是，HCOIN即将于10月上市，它是唯一以黄金为锚，同时对接稳定币的加密货币。显而易见，各方资本跃跃欲试，正在为此做着准备。
 
-1，拜登有隐情基于和中共接触？
+全世界的”沼泽地”不论黑白，“资本嗅觉“极其灵敏。索罗斯曾是中共最早的投资者和支持者之一，在资本力量的驱动下，一直在权衡并调整方向。新中国联邦通过揭露病毒疫苗真相和建立的喜联储，将以实力赢得更多话语权，推动各方势力转向。
 
-2，拜习之间如何能绕过新冠病毒溯源进而实现两国元首拥抱？
+(本文仅代表作者观点)
 
-3，在COVID-19病毒和疫苗灾难下，拜登能直面中共种族灭绝罪吗？
+参考链接：[Soros Is Cashing Out Of Stocks, Putting Some Capital Into Cryptocurrencies](https://www.zerohedge.com/markets/soros-cashing-out-stocks-putting-some-capital-cryptocurrencies)
+[金融巨鳄索罗斯二季度清仓腾讯音乐 百度、唯品会等中概股亦遭抛售](https://cn.reuters.com/article/soros-fund-tencent-music-0816-idCNKBS2FH0CX)
 
-而人们心中的疑虑——急待中美两国直面撞击后撕裂那层隔阂的帷幕。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-据南华早报援引所谓知情人士说：“[这可以看作是双方试图重建沟通渠道、落实两国领导人共识的一次会晤。](https://www.scmp.com/news/china/diplomacy/article/3151214/china-us-eye-further-talks-yang-jiechi-set-meet-jake-sullivan)”
+终审：暗黑
+校正/发稿：谐趣园
 
-另一位消息人士称，本次杨与沙利文的一项议程是讨论“习近平与拜登举行峰会的可能性。”[阅读更多](https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/Biden-and-Xi-explore-recoupling-as-advisers-meet-in-Zurich)。
-
-*· 延展阅读：*[*拜登称与习近平通话确认习将遵守“台湾协议”*](https://www.voachinese.com/a/biden-xijinping-taiwan-20211005/6259051.html)*（*[*更新版*](https://cn.reuters.com/article/xi-biden-call-1005-tues-idCNKBS2GW00F)*）*
-
-*· 延展阅读：“*[*慕尼黑协议*](https://zh.wikipedia.org/wiki/%E6%85%95%E5%B0%BC%E9%BB%91%E5%8D%94%E5%AE%9A)*”-*[*时任英国首相张伯伦曾与希特勒见面，为何仍坚信其不开战*](https://www.163.com/dy/article/GI0JRA2L0543H867.html)*？*
-
-不过，无论外界怎样猜测，这一外交努力不符合世界各国任何一方利益，但唯一利好的仍将是新中国联邦。
-
-9月10日，郭文贵先生表示，“如果美国突然要好了，就是中共立马死亡的时候，所有的9300万党员，你已经没有任何能力决定你的命运，包括习。”（1;26时段）因为中共和俄罗斯和中美之间的关系决定了这是中共一条不归路。
-
-2021年10月6日
-
-（本文只代表个人观点，与Gnews网站无关）
-*校对：东京樱花团 /*平安卿卿
-*发布：东京樱花团 /*平安卿卿
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,27 +2,39 @@
 ---
 
 
-## 法参议员抵台 沙利文将在瑞士与杨洁篪会谈
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1577321/)
+## 年轻女性死后斯洛文尼亚叫停强生疫苗接种
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1577416/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-6.png)
-文章仅代表作者本人观点，与Gnews无关
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/S.jpg)rastaroutes.com
+《塔克·卡尔森团队》报道，“年轻女性死后，斯洛文尼亚暂停强生疫苗的接种”。
 
-视频参看：2021.10.06早GTV新闻访谈
+全文如下：
 
-[https://gtv.org/broadcast/watch/615d9622304e992109b07e21](https://gtv.org/broadcast/watch/615d9622304e992109b07e21)
+斯洛文尼亚卫生部长表示，斯洛文尼亚将停止使用强生公司的强生疫苗，同时调查一名可能与施打疫苗有关的20岁女子的死亡原因。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+据医生称，一名两周前接种强生疫苗的年轻女子在周二（10月5日）死于“脑部同时出现血块和出血”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+周三（10月6日），卫生部长詹尼兹·波克鲁卡（Janez Poklukar）在新闻发布会上宣布，这一悲惨消息促使斯洛文尼亚当局暂停使用强生疫苗。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+他补充说，强生疫苗的接种将保持冻结状态，直到对该女子死亡与疫苗接种之间可能存在联系的调查完成。
+
+波克鲁卡说，斯洛文尼亚约有12万人已经接种了疫苗，这是接种后出现的第二例不良反应。然而，他坚持认为“接种疫苗的好处大于潜在的并发症。”
+
+自9月中旬以来，斯洛文尼亚政府在感染人数迅速上升的情况下，对几乎所有商店、服务和工作场所强制实施中共病毒疫苗通行证后，该国对单剂的强生疫苗的需求一直很高。斯洛文尼亚以前是欧洲受灾最严重的国家之一，每10万人中的病例数超过500例。
+
+本周早些时候，斯洛文尼亚当局批准从匈牙利额外购买10万剂强生疫苗。波克鲁卡说，他目前无法对这批货物的命运发表评论，并补充说，一旦对这名女性死亡的调查结束就将做出决定。
+
+到目前为止，斯洛文尼亚200万人口中约有48%已经完全接种了中共病毒疫苗，强生是该国批准的几种疫苗之一。
+
+强生申诉委员会此前曾因其不良影响（包括罕见的血栓病例）在欧盟、美国和南非面临暂停施打。
+
+（原文完）
+
+该到叫停的时候了，对恶果的反应不是马上能显现的，需要时间。如果不及时制止，会有更多的人遭难。祈祷调查人员没有被邪恶力量操控，能够完成实事求是的调查，将疫苗阴谋彻底揭露。
+
+原文链接：
+
+[https://teamtuckercarlson.com/news/slovenia-suspends-johnson-johnson-vaccine-after-young-womans-death/](https://teamtuckercarlson.com/news/slovenia-suspends-johnson-johnson-vaccine-after-young-womans-death/)
