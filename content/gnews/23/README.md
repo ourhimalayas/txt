@@ -2,35 +2,30 @@
 ---
 
 
-## DC每日热点1006
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1576996/)
+## 新任首相岸田文雄欢迎台湾加入CPTPP
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1577089/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/10/E1A52F6C-8AEF-414B-8540-28DC1682E7C7-scaled.jpeg)
-道琼斯指数 34163.29 ▼0.44%
-纳斯达克指数 14362.11 ▼0.50%
-WTI纽约原油CFD 77.594 ▼1.69%
-布伦特原油CFD 81.245 ▼1.59%
-标普中概股50指数 3,365.69CNY▼21.8%
-美元兑人民币 1USD=6.444RMB
-美元兑港币 1USD=7.785HKD
-国际黄金 1758.31美元/盎司
-全球CCP病毒感染人数 236,726,445 例
+责任编辑：文一
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月4日, 刚刚当选日本新一任首相的岸田文雄举办了记者发布会，当被问及如何看待中共国与台湾先后申请加入跨太平洋伙伴关系协定时，岸田表示对中共国目前能否满足该协定组织的要求标准抱 存疑。并称，在重视企业知识产权保护等方面，中国大陆方面恐难以满足CPTPP要求的自由贸易标准。他同时声称: “（中共政府）在自由、民主、法治和人权等方面，都存在令人质疑的做法”。而对于台湾在9月份申请加入CPTPP, 岸田则表示了欢迎!
 
-1、日本与英国将于10日7月召开首次缔结军事联合训练等的《互惠准入协定》谈判的会议
-2、美军F-35B战机首次成功在日本直升机航母上起降
-3、台国防部长：从军40年来台海局势现在最严峻
-4、报告：湖北2019年PCR采购大幅增加，表明疫情爆发比之前公布的更早
-5、澳大利亚总理莫里森10月5日说，国际游客可能最快要等到明年才能进入澳大利亚
-6、拜登：与习近平谈到台湾，双方同意遵守“台湾协议”
-7、美国向蒙古国运送辉瑞疫苗
-8、白宫证实：沙利文与杨洁篪将在瑞士会面以缓解紧张关系升级
-9、两岸情势紧张之际 澳大利亚前总理阿博特抵达台湾访问
-10、马来西亚召见中共国大使 抗议中共国船只侵扰专属经济区
-11、欧盟列香港入税务观察名单 港府修例免双重避税应对
-12、脸书公布当机原因超过15亿用户数据被出售
-13、美USTR就549种对华商品关税排除征求意见
-14、美证交会主席：不会效仿中共禁止加密货币
-15、美政府暂停授权向中广核出售核材料
-16、马克龙预计月底与拜登会面，为AUKUS潜舰争议一事修补美法关係
-17、隐瞒与中共的联系 前美军飞行员遭刑事指控
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-1.jpeg)
+
+最后岸田文雄首相明确指出, 对于现阶段 东海、南海地区存在试图以实力改变现状的动向，日本“ 将与共享普世价值, 且志同道合的盟国携手应对”。
+
+(本文仅代表作者观点)
+
+参考链接：[日本新首相岸田：质疑中国能否满足TPP标准](https://www.rfi.fr/cn/亚洲/20211005-日本新首相岸田-质疑中国能否满足tpp标准)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：文龍
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

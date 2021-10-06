@@ -2,23 +2,32 @@
 ---
 
 
-## “断电门”后, WhatsApp 用户的隐私设定可能被重置!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1576981/)
+## 索罗斯继续抛售股票 将部分资本投入加密货币
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1577068/)
 
-栏目记者/责任编辑：安吉拉
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/1006-AM5-10.001-1.jpeg)
-美东时间5日夜晚，脸书集团各平台功能逐步恢复。但有用户发现，在软件应用未发出更新警告的情况下，WhatsApp 有可能重置个人隐私的设定，也就是说用户所在群组默认状态被自动更改为“公开”。这意味着用户所在的群组不再具有保密性，变成了对所有人开放，即用户在不知情的情况下，可被陌生人，比如诈骗惯犯、高利贷者或皮条客直接查看。请使用WhatsApp的战友尽快进入个人设置，将“群组”隐私设置项目改回“仅限联系人”，以保护个人信息安全，防止其他安全隐患 。
+栏目记者/责任编辑： Yousei
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-104.png)
+近日全球股市低迷，美股指数集体下挫，虽昨日有所回升，但脸书事件再度领跌科技股。周二的彭博投资全球虚拟会议上，气氛似乎更加悲观。位于多伦多的布鲁克菲尔德（Brookfield）资管公司管理着6260亿美元，其首席执行官布鲁斯（Bruce Flatt）说，现在是清算资产的好时机，我们已经变现了很多资产，今年还会继续。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-3.jpeg)
+
+索罗斯家族基金握有资产达270亿美元，信息主管道恩·菲茨罗伊（ Dawn Fitzpatrick） ，在接受采访时也表示，她一直在出售资产，并表明索罗斯避免在中共国投资的真正原因是钱会很快消失。索罗斯在8月底清仓中概股，并于近日在媒体专栏文章中直言不讳的批评，向中共国投资是一个悲剧性的错误。
+
+另外值得注意的是，索罗斯是继亿万富翁史蒂夫·科恩（Steve Cohen）和传奇投资人丹·洛布之后，最新进入加密货币领域的对冲基金大佬。
+
+道恩指出，加密货币已经成为主流。巧合的是，HCOIN即将于10月上市，它是唯一以黄金为锚，同时对接稳定币的加密货币。显而易见，各方资本跃跃欲试，正在为此做着准备。
+
+全世界的”沼泽地”不论黑白，“资本嗅觉“极其灵敏。索罗斯曾是中共最早的投资者和支持者之一，在资本力量的驱动下，一直在权衡并调整方向。新中国联邦通过揭露病毒疫苗真相和建立的喜联储，将以实力赢得更多话语权，推动各方势力转向。
+
 (本文仅代表作者观点)
 
-参考链接：
-
-1. [Has WhatsApp Secretly Changed Your Privacy Settings?](https://forbes.kz/process/technologies/has_whatsapp_secretly_changed_your_privacy_settings/?)
-2. [FACT-CHECK: WhatsApp **has NOT **secretly changed its privacy settings for groups](https://ghanafact.com/2021/05/fact-check-whatsapp-has-not-secretly-changed-its-privacy-settings-for-groups/#:~:text=FACT-CHECK%3A%20WhatsApp%20has%20NOT%20secretly%20changed%20its%20privacy,knowing.%20These%20may%20include%20scammer%2C%20loan%20sharks%20etc...”.)
-
+参考链接：[Soros Is Cashing Out Of Stocks, Putting Some Capital Into Cryptocurrencies](https://www.zerohedge.com/markets/soros-cashing-out-stocks-putting-some-capital-cryptocurrencies)
+[金融巨鳄索罗斯二季度清仓腾讯音乐 百度、唯品会等中概股亦遭抛售](https://cn.reuters.com/article/soros-fund-tencent-music-0816-idCNKBS2FH0CX)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-校正/发稿：我不在这里
+终审：暗黑
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -26,5 +35,4 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

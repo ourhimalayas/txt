@@ -2,37 +2,20 @@
 ---
 
 
-## 索罗斯继续抛售股票 将部分资本投入加密货币
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1577068/)
+## 秘翻在线: 第三次世界大战可能“随时”爆发
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1577154/)
 
-栏目记者/责任编辑： Yousei
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-104.png)
-近日全球股市低迷，美股指数集体下挫，虽昨日有所回升，但脸书事件再度领跌科技股。周二的彭博投资全球虚拟会议上，气氛似乎更加悲观。位于多伦多的布鲁克菲尔德（Brookfield）资管公司管理着6260亿美元，其首席执行官布鲁斯（Bruce Flatt）说，现在是清算资产的好时机，我们已经变现了很多资产，今年还会继续。
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/p.jpg)
+网路图片: 英国皇家海军航空母舰“伊丽莎白女王”号
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-3.jpeg)
+据《每日邮报》报导，中共国警告说，第三次世界大战可能”随时”爆发。自10月1日以来，近 150 架中共国战机闯入台湾领空，其中包括10月4日的 56 架喷气式飞机。10月5日，中共的传声筒《环球时报》在一篇文章称，”美国和台湾之间的勾结是如此大胆，以至于局势几乎没有任何回旋馀地。”它声称中共国人民已准备与美国的全面战争，警告台湾不要”玩火”。
 
-索罗斯家族基金握有资产达270亿美元，信息主管道恩·菲茨罗伊（ Dawn Fitzpatrick） ，在接受采访时也表示，她一直在出售资产，并表明索罗斯避免在中共国投资的真正原因是钱会很快消失。索罗斯在8月底清仓中概股，并于近日在媒体专栏文章中直言不讳的批评，向中共国投资是一个悲剧性的错误。
+10月5日，拜登在白宫对记者说，他与中共国国家主席习近平在9月9日通话，同意遵守台湾协议。 然而，这可能是指美国正式承认的是北京而不是台北，以及《台湾关系法》明确表明，美国决定与北京而不是与台湾建立外交关系。
 
-另外值得注意的是，索罗斯是继亿万富翁史蒂夫·科恩（Steve Cohen）和传奇投资人丹·洛布之后，最新进入加密货币领域的对冲基金大佬。
+10月5日，台湾总统蔡英文发誓”不惜一切代价”保护台湾免受入侵。她同时表示，如果没有台湾盟友的帮助，”威权主义将战胜民主”。蔡英文说：”人们应该记住，如果台湾垮台，后果将是对地区和平和民主联盟体系的灾难性后果。”她补充说：”在中国人民解放军几乎每天都闯入的情况下，我们在两岸关系上的立场始终不变：台湾不会屈服于压力。”
 
-道恩指出，加密货币已经成为主流。巧合的是，HCOIN即将于10月上市，它是唯一以黄金为锚，同时对接稳定币的加密货币。显而易见，各方资本跃跃欲试，正在为此做着准备。
+中共国的剑拔弩张并没有奏效，10月9日，英国的伊丽莎白女王号仍然会与美国和日本的航空母舰将一起在菲律宾海域进行一次大规模的海军演习。
 
-全世界的”沼泽地”不论黑白，“资本嗅觉“极其灵敏。索罗斯曾是中共最早的投资者和支持者之一，在资本力量的驱动下，一直在权衡并调整方向。新中国联邦通过揭露病毒疫苗真相和建立的喜联储，将以实力赢得更多话语权，推动各方势力转向。
-
-(本文仅代表作者观点)
-
-参考链接：[Soros Is Cashing Out Of Stocks, Putting Some Capital Into Cryptocurrencies](https://www.zerohedge.com/markets/soros-cashing-out-stocks-putting-some-capital-cryptocurrencies)
-[金融巨鳄索罗斯二季度清仓腾讯音乐 百度、唯品会等中概股亦遭抛售](https://cn.reuters.com/article/soros-fund-tencent-music-0816-idCNKBS2FH0CX)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审：暗黑
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+消息来源:
+[https://www.dailymail.co.uk/news/article-10063171/China-warns-World-War-Three-triggered-time.html](https://www.dailymail.co.uk/news/article-10063171/China-warns-World-War-Three-triggered-time.html)
