@@ -2,162 +2,48 @@
 ---
 
 
-## 未来的财富会大量流入喜币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1575652/)
+## 解释：为什么油管(YouTube)阻止了反新冠病毒疫苗的内容
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1575687/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ai6ay-xnho6.jpg)
-[https://gtv.org/video/id=615c9323d2e2b8174871948b](https://gtv.org/video/id=615c9323d2e2b8174871948b)
+**据《印度快讯》记者Explained Desk，2021年10月2日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/aeax3-hm1yr.jpg)图片来源：路透社/Dado Ruvic
+到目前为止，油管(YouTube) 已经删除超过 130,000 个违反中共病毒疫苗政策的视频。
 
-**郭文贵
-Miles**
+周三，油管(YouTube) 宣布将通过新的疫苗指南扩大其医疗误导信息政策，其中包括针对中共病毒的疫苗以及关于其他疫苗的一般声明。
 
-钱流向的唯一的洼地
-El dinero circula hacia la única depresión
+此举是因为有人批评社交媒体平台在处理与中共病毒相关的错误信息方面做得不够。
 
-洼地这词儿, 国内开会的政法委战友
-Esta palabra depresión, los compañeros luchadores que estuvieron en la reunión del Comité Político y Legal en China
+**油管(YouTube) 针对的是什么样的错误信息呢?**
 
-你们都知道我说的啥
-Saben de lo que estoy hablando
+根据周三（9月29日）生效的新政策，任何声称已获批的中共病毒疫苗会导致自闭症、癌症或不孕症，或声称疫苗中的物质可以追踪接种者的内容都将被删除。
 
-所以说政法委秘密开会议
-Por eso la reunión secreta realizada por el Comité Político y Legal
+此外，虚假声称已批准的疫苗具有危险性并导致慢性健康影响；或声称疫苗不会减少病毒的传播；或疫苗不能防止疾病；或疫苗中包含有关物质的错误信息的内容都将被删除。
 
-关于防止
-Acerca de la prevención de
+在一篇博客文章中，油管(YouTube )表示其社区准则已经禁止某些类型的医疗误导信息，包括宣传有害疗法的内容，例如饮用松节油可以治愈疾病的信息。
 
-喜玛拉雅币和喜币, 成为中国海外流通财富的洼地
-Las monedas de Himalaya y H-Coin se han convertido en la depresión de la riqueza que circula en los chinos que están en el extranjero
+自大流行开始以来，该平台已经针对中共病毒和医疗错误信息采取措施。到目前为止，油管(YouTube) 已经删除了超过 130,000 个违反打疫苗政策的视频。
 
-紧急会议, 都开了七八回了
-La reunión de emergencia se ha realizado siete u ocho veces
+**当涉及中共病毒相关内容时，油管(YouTube)将以下内容视为错误信息：**
 
-一次预估比一次预估还厉害
-La estimación es cada vez más estupendo
+● 鼓励使用家庭疗法、祈祷或仪式代替医疗（例如咨询医生或去医院）的内容
+● 声称可以治愈中共病毒的内容
+● 推荐使用伊维菌素或羟氯喹治疗中共病毒的内容
+● 声称羟氯喹是治疗中共病毒的有效方法
+● 明确声称伊维菌素是中共病毒的有效治疗方法
+● 声称伊维菌素和羟氯喹可安全用于治疗中共病毒
+● 其他不鼓励人们咨询医疗专业人士或寻求医疗建议的内容
 
-头几次预估都靠谱
-Las primeras veces de dicha estimación son confiables
+油管(YouTube )决定扩大对错误信息审查活动的可能原因之一是人们对是否打疫苗犹豫不决，尤其是在美国各地都有这种情况。
 
-说喜马拉雅在一两年内可能会形成几千亿上万亿的规模
-Dicen que Himalaya en uno a dos años puede formarse en una escala de cientos de miles de millones a billones
+根据皮尤研究中心进行的一项调查，美国民主党人比共和党人更有可能至少接种一剂中共病毒疫苗。该调查还指出，一个人的疫苗接种状况与对疫苗研发过程的信心密切相关。
 
-百分之三四十的钱流向喜币
-El 30-40% de dinero circulará hacia H-Coin
+本次调查中约有81%的受访者表示，他们不知道中共病毒疫苗是否存在严重的健康风险，80%的受访者表示，公共卫生官员没有告诉他们所知道的关于这些疫苗的一切。
 
-稳定币和喜币
-La moneda estable y el H-Coin
+**原文链接:** [https://indianexpress.com/article/explained/youtube-medical-misinformation-covid-vaccines-7547763/](https://indianexpress.com/article/explained/youtube-medical-misinformation-covid-vaccines-7547763/)
 
-到年底, 特别在六七个月稳定运行以后
-Hasta finales del año, especialmente luego de seis a siete meses de funcionamiento estable
-
-会大量的钱流入进去
-Habrá una gran cantidad de dinero que entrará
-
-那么后来就是夸张了
-Después lo que vienen diciendo ya es exagerado
-
-所有的这钱那钱都要过去
-Todo el dinero pasará
-
-就想啥了
-De qué piensa
-
-想把它喜币干掉
-Está pensando eliminar al H-Coin
-
-就这些火币的头
-Sólo las cabezas de estos Huobi
-
-想把咱喜币干掉
-Quieren destruir a nuestro H-Coin
-
-所有的中国控制的虚拟币
-Todas las monedas virtuales controladas por China
-
-包括加拿大的那个币安交易所最大的币安
-Incluyendo el mayor intercambio de Binance en Canadá
-
-最想干掉咱
-Son los que más quieren destruir a nosotros
-
-因为币安(也)是共产党控制的嘛
-Porque Binance (también) es controlado por el Partido Comunista
-
-也想干掉咱
-También quiere eliminarnos
-
-因为咱要成老大
-Porque nosotros seremos el primero
-
-他们不就成老二了吗
-De esta forma, ellos serán el segundo
-
-但是呢, 做梦没想到
-Sin embargo, ni soñando pensaron que
-
-这个疫苗和冠状病毒给世界带来的恐惧
-El temor que trajo esta vacuna y el covid-19 al mundo
-
-给中国人带来的恐惧
-El miedo que le trajo a los chinos
-
-它不仅是在中共国
-No solamente en la República Popular de China
-
-它美国人也知道
-Los estadounidenses también saben que
-
-美元也会出大问题
-El dólar estadounidense igual habrá grandes problemas
-
-日本人也想把钱, 澳大利亚也想把钱找去(处)
-Los japoneses y Australia igualmente quieren buscar un lugar para su dinero
-
-你告诉我找谁呀, 比特币吗
-Dime tú, a quién deben buscar, ¿ Bitcoin?
-
-比特币成本那么高
-El costo de Bitcoin es tan alto
-
-还是比特币那么容易进的去吗
-O es tan fácil entrar al Bitcoin
-
-再一个你都知道它一定会倒的
-Y lo otro es que tú mismo sabes que él seguramente caerá
-
-那你给我什么币
-Entonces qué moneda me darás
-
-它没想到, 共产党我们不要你共产党的钱
-Él no había pensado, el propio PCCh no queremos su dinero
-
-国际上的钱那也老了去了
-El dinero internacional también se está envejeciendo
-
-何况你共产党没选择
-Además, el PCCh no tiene opciones
-
-因为共产党明白
-Porque ellos saben
-
-任何有钱的像许家印, 像马云都懂的
-Cualquier rico como Xu Jiayin o Jack Ma entienden
-
-买郭文贵的币的安不安全, 不是我能决定的
-Es seguro o no comprar la moneda de Guo Wengui, no es algo que puedo decidir
-
-也不是喜马拉雅币决定的, 是100%没有人可以碰的
-Ni tampoco la moneda de Himilaya, es 100% intocable
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1443888127026733056?s=24](https://twitter.com/se1y7cblljselva/status/1443888127026733056?s=24)
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场 – 银龙
+翻译：洛杉矶盘古农场 – Freeearth
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场– 明子
 发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

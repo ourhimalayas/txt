@@ -2,44 +2,164 @@
 ---
 
 
-## 美国代表批评中共国的贸易行为 不排除采取额外措施
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1575558/)
+## 未来的财富会大量流入喜币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1575652/)
 
-- **编译：蚂蚁兄弟**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ai6ay-xnho6.jpg)
+[https://gtv.org/video/id=615c9323d2e2b8174871948b](https://gtv.org/video/id=615c9323d2e2b8174871948b)
 
+**郭文贵
+Miles**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip250.png)
+钱流向的唯一的洼地
+El dinero circula hacia la única depresión
 
-美国对外贸易代表戴琪（katherine Tai 凯瑟琳-戴）周一批评中共国的“不公平”贸易做法损害了中国劳动人民的“繁荣富强”，但华盛顿不会寻求对北京的紧张贸易关系的“升级”。
+洼地这词儿, 国内开会的政法委战友
+Esta palabra depresión, los compañeros luchadores que estuvieron en la reunión del Comité Político y Legal en China
 
-戴琪在战略与国际研究中心发言时，阐述了美国总统拜登在其前任特朗普执政期间释放出来的公开性斗争之后，现任美国总统的施政方针的关键。
+你们都知道我说的啥
+Saben de lo que estoy hablando
 
-“长期以来，中共国未能遵守全球贸易规则，破坏了美国和世界其他各地区和人民的繁荣”。
+所以说政法委秘密开会议
+Por eso la reunión secreta realizada por el Comité Político y Legal
 
-戴琪说，她“很快”将与中共官员进行“坦诚的讨论”，在讨论中她将表达对这些问题的“关切”。她说，她将强调“中共未能按照过去15年的承诺改革非市场政策”。然而，国会的“目标不是升级与中共国的贸易紧张关系”，指的是关税战。
+关于防止
+Acerca de la prevención de
 
-戴琪在上任后不久，5月份她组织了美国当局与中共国副总理刘鹤举行的一次网络会谈。
+喜玛拉雅币和喜币, 成为中国海外流通财富的洼地
+Las monedas de Himalaya y H-Coin se han convertido en la depresión de la riqueza que circula en los chinos que están en el extranjero
 
-关于可能的额外措施，贸易代表说，这些措施将取决于与中共国的会谈内容如何进展，同时重申“所有选项都在桌面上”。世界上最大的两个经济体在特朗普担任总统期间的贸易关系很困难，加征的几轮对等关税引起了全球动荡。最终，美国和中共国达成了贸易协定，其中包括中共国增加购买美国商品，特别是牲畜和农产品，但经济学家指出，中共国政府没有履行声明中的承诺。
+紧急会议, 都开了七八回了
+La reunión de emergencia se ha realizado siete u ocho veces
 
-人物背景介绍：戴琪（Katherine Chi Tai 凱瑟琳**·**琪**·**戴）是一名美国出生的华裔贸易律师，现任美国贸易代表。 2007年至2014年间在美国贸易代表署担任负责中国事务的重要律师，期间处理美国在世界贸易组织对中国提出的争端诉讼。
+一次预估比一次预估还厉害
+La estimación es cada vez más estupendo
 
-**简评：**
+头几次预估都靠谱
+Las primeras veces de dicha estimación son confiables
 
-**我们可以预见的是，即将要发生的这一次贸易谈判似乎又会是一场“口水战”。中共从来不会认真的执行其所承诺过的事情。而中美两国近一年以来的谈判，让人看起来只不过是在“做做样子”，并没有任何实质性的改变。**
+说喜马拉雅在一两年内可能会形成几千亿上万亿的规模
+Dicen que Himalaya en uno a dos años puede formarse en una escala de cientos de miles de millones a billones
 
-**这场中共病毒大疫情并没有解决，世界的经济也即将到达崩溃的边缘。不去付诸行动的任何“谈判”都是在做无用功。**
+百分之三四十的钱流向喜币
+El 30-40% de dinero circulará hacia H-Coin
 
-**与其在贸易上进行毫无作用的讨价还价，还不如多多关注一下病毒的溯源，关注一下疫苗的危害性。这样才能让世界的经济早日回到正轨。**
+稳定币和喜币
+La moneda estable y el H-Coin
 
-（文章仅代表作者观点，与GNEWS无关）
+到年底, 特别在六七个月稳定运行以后
+Hasta finales del año, especialmente luego de seis a siete meses de funcionamiento estable
 
-**来源：[elconfidencial.com](https://www.elconfidencial.com/empresas/2021-10-04/ee-uu-critica-las_3301012/)**
+会大量的钱流入进去
+Habrá una gran cantidad de dinero que entrará
 
-* * *
+那么后来就是夸张了
+Después lo que vienen diciendo ya es exagerado
 
-***审核：Aires的星
-校对：阿伯塔
-发布：信心满满***
+所有的这钱那钱都要过去
+Todo el dinero pasará
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip190.png)
+就想啥了
+De qué piensa
+
+想把它喜币干掉
+Está pensando eliminar al H-Coin
+
+就这些火币的头
+Sólo las cabezas de estos Huobi
+
+想把咱喜币干掉
+Quieren destruir a nuestro H-Coin
+
+所有的中国控制的虚拟币
+Todas las monedas virtuales controladas por China
+
+包括加拿大的那个币安交易所最大的币安
+Incluyendo el mayor intercambio de Binance en Canadá
+
+最想干掉咱
+Son los que más quieren destruir a nosotros
+
+因为币安(也)是共产党控制的嘛
+Porque Binance (también) es controlado por el Partido Comunista
+
+也想干掉咱
+También quiere eliminarnos
+
+因为咱要成老大
+Porque nosotros seremos el primero
+
+他们不就成老二了吗
+De esta forma, ellos serán el segundo
+
+但是呢, 做梦没想到
+Sin embargo, ni soñando pensaron que
+
+这个疫苗和冠状病毒给世界带来的恐惧
+El temor que trajo esta vacuna y el covid-19 al mundo
+
+给中国人带来的恐惧
+El miedo que le trajo a los chinos
+
+它不仅是在中共国
+No solamente en la República Popular de China
+
+它美国人也知道
+Los estadounidenses también saben que
+
+美元也会出大问题
+El dólar estadounidense igual habrá grandes problemas
+
+日本人也想把钱, 澳大利亚也想把钱找去(处)
+Los japoneses y Australia igualmente quieren buscar un lugar para su dinero
+
+你告诉我找谁呀, 比特币吗
+Dime tú, a quién deben buscar, ¿ Bitcoin?
+
+比特币成本那么高
+El costo de Bitcoin es tan alto
+
+还是比特币那么容易进的去吗
+O es tan fácil entrar al Bitcoin
+
+再一个你都知道它一定会倒的
+Y lo otro es que tú mismo sabes que él seguramente caerá
+
+那你给我什么币
+Entonces qué moneda me darás
+
+它没想到, 共产党我们不要你共产党的钱
+Él no había pensado, el propio PCCh no queremos su dinero
+
+国际上的钱那也老了去了
+El dinero internacional también se está envejeciendo
+
+何况你共产党没选择
+Además, el PCCh no tiene opciones
+
+因为共产党明白
+Porque ellos saben
+
+任何有钱的像许家印, 像马云都懂的
+Cualquier rico como Xu Jiayin o Jack Ma entienden
+
+买郭文贵的币的安不安全, 不是我能决定的
+Es seguro o no comprar la moneda de Guo Wengui, no es algo que puedo decidir
+
+也不是喜马拉雅币决定的, 是100%没有人可以碰的
+Ni tampoco la moneda de Himilaya, es 100% intocable
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1443888127026733056?s=24](https://twitter.com/se1y7cblljselva/status/1443888127026733056?s=24)
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

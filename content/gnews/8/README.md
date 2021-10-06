@@ -2,10 +2,10 @@
 ---
 
 
-## 经济学人评论：中共国寻求庇护者人数猛增
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575791/)
+## 中共绑架世界经济，或导致全世界大排华
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575797/)
 
-作者：香草山写作组-文一
+作者：香草山写作组-晓仙女
 
 
 
@@ -13,17 +13,15 @@
 
 
 
-《经济学人》不久前发文指出，上世纪60年代，毛泽东领导的文化大革命期间，数以万计的人逃离中共国。随着国家的稳定，这个数字有所下降。但是七十年后，这一数字再次迅速上升。根据联合国难民事务高级专员办事处的数据，2012年至2020年期间，每年来自中共国寻求庇护者的人数从1万5362人上升到10万7864人。自习近平2012年底上台以来，有61.3万名中共国公民在他国申请庇护。2020年，其中70%的人去往美国寻求庇护。
 
-《世界一体新闻台》 (WION)也发文称许多富有的中国人，正在逃离中共国污染严重的城市和集权专制，以寻求更好的教育机会和财产安全。国际政治学者兰霍特拉（Sanbeer Singh Ranhotra）给出了中共政府花在维稳上的巨额数字：2019年，中共政府的维稳支出为2160亿美元，包括国家安全、警察、国内监控和武装民兵，是10年前的三倍多，比军费开支还要多出大约2600万美元。文章还指出持不同政见者和少数民族都是压制的目标，对言论自由的限制仍然有增无减。
 
-参考链接：
+10月5日，郭文贵先生在其大直播中谈到，中共国自加入WTO以来，用21年绑架了世界经济。中共不仅压榨中国人民的劳动价值，还同华尔街一起绑架了世界财富。共产党的虚假经济一旦崩塌，将导致世界经济大灾难，直接影响全世界老百姓的生活。
 
-[https://www.economist.com/graphic-detail/2021/07/28/under-xi-jinping-the-number-of-chinese-asylum-seekers-has-shot-up](https://www.economist.com/graphic-detail/2021/07/28/under-xi-jinping-the-number-of-chinese-asylum-seekers-has-shot-up)
+共产党还制造了新冠病毒和疫苗生化武器，导致全世界处于病毒恐慌和疫苗灾害中，造成亿万人死亡。郭文贵先生指出，当世界经济大崩溃，再加上疫苗灾难爆发时，人类会将一切归罪于中国，造成不可抗拒的排华灾难。当华人处于危难之时，新中国联邦人正不遗余力地塑造正道主义的价值观，身体力行让更多人认知：中国共产党不等于中国人。
 
-[https://www.wionews.com/world/the-great-exodus-from-china-under-xi-jinping-asylum-seekers-number-shoots-up-over-600000-401406](https://www.wionews.com/world/the-great-exodus-from-china-under-xi-jinping-asylum-seekers-number-shoots-up-over-600000-401406)
+参考链接
 
-[https://www.secretchina.com/news/gb/2021/10/04/985454.html](https://www.secretchina.com/news/gb/2021/10/04/985454.html)
+[https://gtv.org/broadcast/watch/615c44da304e992109afc71a](https://gtv.org/broadcast/watch/615c44da304e992109afc71a)
 
 （本文仅代表作者观点）
 

@@ -2,30 +2,31 @@
 ---
 
 
-## 由于使用了伊维菌素，印度人口最稠密的北方邦已彻底摆脱了新冠疫情
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1575712/)
+## 63%的delta病毒死亡者已注射疫苗
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575781/)
 
-翻译：喜国公民
-视频来自网络
-印度北方邦州长刚刚正式宣布，现在北方邦已经没有新冠疫情了。由于政府一直在广泛推广使用伊维菌素治疗新冠患者，不但没有媒体报道由于服用了伊维菌素而产生的死亡，相反，一个与美国全部人口相当的地区已经完全没有疫情了。
+作者：香草山写作组-文一
 
-印度的北方邦有2.4亿人口，是印度人口最多的邦。 那里的人们密集地生活在一起，比美国要拥挤得多。由于人口稠密，不可能保持适当的社交距离。值得注意的是，那里只有5.8%的人口打了两针新冠疫苗。
 
-在印度北方邦发生的事情可以充分证明，伊维菌素可以而且确实能够治疗新冠病毒。然而，伊维菌素在美国和整个西方世界都在被抹黑。这背后可能是有动机的。
 
-伊维菌素是在80年代专门为人类开发的，后来被发现对治疗动物也很有效，已经安全使用了几十年，没有发现与其药物相互抵触，彻底改变了非洲的医疗保健，拯救了数百万人的生命。因其成功治疗人类疾病而在2015年获得了诺贝尔奖，并被列入世卫组织全世界最安全有效的药物名单中。伊维菌素很便宜且很容易买到。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
-但问题是，伊维菌素不会像正处在研究中的疫苗那样给辉瑞或莫得纳公司带来每年600亿美元的利润。所以，主流媒体把它说成是给马治疗用的驱虫剂。
 
-政治，医疗和媒体机构在用虚假抹黑这种安全的药物，声称伊维菌素会致命，同时在推销未经测试和证实的新冠疫苗。实际上，新冠疫苗正在杀害身体没有问题的年轻健康人。
 
-如密歇根州13岁的Jacob Clynic ，他在接种疫苗三天后因致命的心肌炎而死亡。疫苗也可使人瘫痪，如12岁的 Maddie De Grey，她在接种了第二针辉瑞疫苗后几乎丧命。她的腿已经不能动了，靠轮椅活动。
+9月30日，在美国参议院会议上，罗恩-约翰逊参议员指出，在过去7.5个月里，因感染delta冠状病毒的死亡病例中，有63%是完全接种过疫苗的人。 最近的病例和死亡人数激增，并不是未接种疫苗者导致的。然而，主流媒体对此只字不提，社交媒体严格审查。包括CDC在内的数量文章报道，可以总结道： 1. 接种疫苗实际上可能会增加住院的风险 2. CDC拒绝公布按疫苗接种情况分类的住院/死亡数据… 3. 死亡率激增，但CDC不提供原因。真相不能掩盖，正义的人持续在发声。暗黑时期，每个发声都弥足珍贵，每个人都应该力所能及传播疫苗真相，让正义快点到来！
 
-当卫生官员们不尊重科学时,我们为什么还要相信他们？我们被告知不要相信我们亲眼看到的事实。而大药厂却从大流行带来的死亡和痛苦中，赚取了数百亿美元的利润。
+参考链接： [https://www.thegatewaypundit.com/2021/10/boom-sen-ron-johnson-drops-truth-bomb-senate-floor-63-uk-delta-deaths-last-7-5-months-fully-vaccinated-video/](https://www.thegatewaypundit.com/2021/10/boom-sen-ron-johnson-drops-truth-bomb-senate-floor-63-uk-delta-deaths-last-7-5-months-fully-vaccinated-video/) [https://threadreaderapp.com/thread/1443669605231304709.html](https://threadreaderapp.com/thread/1443669605231304709.html) [https://threadreaderapp.com/thread/1443431536641015810.html](https://threadreaderapp.com/thread/1443431536641015810.html)
 
-真相是，我们今天 就可以像印度一样开放，不需要更多的封锁，不需要强制接种，不需要强制孩子们在学校戴口罩。我们所要做的就要真正地尊重科学。
+（本文仅代表作者观点）
 
-(文章内容仅代表作者观点)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)

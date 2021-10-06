@@ -2,27 +2,17 @@
 ---
 
 
-## 辉瑞科学家称雇主为邪恶的公司 天然抗体才是王道
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575250/)
+## 中共可能会释放热病毒，并将一切归咎于冠状病毒
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1575541/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
+撰稿：Ermat【㊙️翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/covid-19-variants.jpg)图片来源：www.un.org
+郭文贵先生在9月23日的直播中说，如果共产党再次释放病毒，它将不是目前的病毒，而是一种死亡率非常高的热病毒。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-5.png)
-文章仅代表作者本人观点，与Gnews无关
+当经济失败，中共在国际上就完蛋，人们会上街游行。当出现大量因接种疫苗而死亡的情况时，中共会继续释放大量的病毒，让人民留在家里。如果共产党再次释放病毒，它将不是目前的病毒，而是一种热病毒，当你感染它时，你将立即流血致死，它的死亡率非常高。现在有数百万人死亡，数亿人被感染，大家都已经习惯了，任何进一步释放病毒的行为都不会受到惩罚。耻辱的面纱被揭开了，每个人都没有羞耻心。中共在日本周围就有一个实验室，一旦毒药被释放，日本一半的人都会死亡，而这一切都会被归咎于冠状病毒。未来中共使用任何生化武器都会被归咎于冠状病毒。
 
-视频参看：2021.10.05早GTV新闻访谈
+”红色的病毒“、”黑色的疫苗“——一场无声的屠杀正在进行。但人们已从最初的焦虑、恐惧中，慢慢地恢复到往日的平静，也渐渐地也习惯了这种生活，只是增加了口罩、隔离和管制。沉默、冷漠、麻木，一切如常，生活继续、屠杀继续。
 
-[https://gtv.org/broadcast/watch/615c44e0304e992109afc723](https://gtv.org/broadcast/watch/615c44e0304e992109afc723)
+参考链接：
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[2021年9月23日郭文贵先生G-TV直播小飞象速记版](https://gnews.org/zh-hans/1551197/)
