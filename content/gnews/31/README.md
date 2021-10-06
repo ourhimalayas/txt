@@ -2,27 +2,55 @@
 ---
 
 
-## 针下亡魂｜巴西 16 岁女学生接种疫苗8日后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1576377/)
+## 前国务卿蓬佩奥：拜登令美国屈服于竞争对手
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1576487/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 6/10/2021**
+据《美国一新闻网》新闻室2021年10月3日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/10/mp_adobespark.jpeg)前国务卿迈克·蓬佩奥 ( Mike Pompeo ) 于 2021 年 4 月 21 日在华盛顿特区与“共和党研究委员会”成员就伊朗问题向媒体发表讲话（摄影：约书亚·罗伯茨（ Joshua Roberts ）| GETTY图像）
+美国前国务卿迈克·蓬佩奥嘲笑乔·拜登（ Joe Biden ）的外交政策决定以及这些决定如何正在将美国人的生命置于危险之中。周日，蓬佩奥强调拜登政府已经“放弃了保证边界安全的努力”。
 
-***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
+蓬佩奥声称拜登正在向主张开放边界的民主党进步派屈膝。此外，这位前美国最高外交官表示，拜登政府忽视了有关非法移民和毒品大量涌入的负面影响的警告。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/14-1.jpg)
+蓬佩奥还谈到了阿富汗危机，敦促美国政府信守对仍在阿富汗的美国人以及盟友的承诺。他警告说，如果拜登政府抛弃他们，这些与美国有联系的人将受迫害、被处决和被失踪。
 
-【巴西】一名 16 岁女学生 Isabelli Borges Valentim 在接受第一剂辉瑞 COVID-19 疫苗后的第 8 天死亡。
 
-8 月 25 日这位健康的 16 岁少女接种了第一针，第二日，她开始感到头痛、身体刺痛、呼吸急促等症状，就医后，主治医生认为，症状可以是接种疫苗之后的心理反应所致。
 
-據 Isabelli 的媽媽描述，女兒返家后依然觉得身体异常难受，家人唯有再次带她前往圣安德烈的科拉索德耶稣医院，后来她突然昏厥，才发现， Isabelli 的红细胞和血红蛋白水平极低，医院立即为她输血，可惜，她又再次癫痫发作，被转移到圣保罗维达医院及妇产医院的重症监护室 (ICU)，直至9 月 2 日，即接种疫苗后的第 8 日，她因病重不治身亡。
+> American security and sovereignty depend on a secure border. We left the Biden administration a functioning plan and they tore it up and are trying to do so again. [https://t.co/nrNFmzF90o](https://t.co/nrNFmzF90o)
+> — Mike Pompeo (@mikepompeo) [September 30, 2021](https://twitter.com/mikepompeo/status/1443648132965879808?ref_src=twsrc%5Etfw)
 
-Isabelli 的妈妈 Cristina 是一位单亲妈妈，与女儿相依为命，感情很好，她伤心的说：“ Isabelli 是因为想去佛罗里达的迪斯尼乐园才无奈打疫苗，这是她的梦想，她是我的生命，我活着的唯一理由。”
 
-唯一庆幸的是 Isabelli 去世后，巴西卫生部意识到问题严重性，立即暂停了对 12 至 17 岁青少年进行 COVID-19 疫苗接种。目前，巴西当局已经启动对 Isabelli 的死因调查。
 
-来源｜ [个案014](https://g1.globo.com/sp/sao-paulo/noticia/2021/09/16/morte-de-uma-adolescente-em-sao-bernardo-do-campo-e-investigada-pelo-centro-de-vigilancia-epidemiologica.ghtml)
+*迈克**·**蓬佩奥**@mikepompeo*
 
-* * *
+*美国的安全和主权取决于安全的边界。我们给拜登政府留下了一个有效的计划，他们把它撕毁了，并试图再次这么干。*
 
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//
+*2021**年**9**月**30**日*
+
+*查得**·**沃尔夫**@ChadFWolf*
+
+*这是不可思议的。国土安全部的重点是再次终止“留在墨西哥”计划 — 在法院要求他们重启该计划之后，尽管该计划有效。看起来就像他们在追求失败。*
+
+*2021**年**10**月**1**日*
+
+他接着说，从阿富汗的拙劣撤军正在增强包括中共国和伊朗在内的美国对手的力量，他们正急不可耐地巩固在该地区的战略地位。他感叹拜登正在绥靖我们的竞争对手，指出司法部最近放弃了对华为首席财务官孟晚舟的指控，孟晚舟协助（伊朗）违反了美国失败的伊朗核协议并窃取了宝贵的美国知识产权。
+
+据称，中国共产党扣押了两名加拿大人质，希望以此为筹码确保孟晚舟返回中共大陆。此外，蓬佩奥批评拜登政府将气候议程置于稳健的国际政策之上。他指出，从阿富汗撤军为我们的对手留下了宝贵的资源，他预计这将损害美国的芯片、汽车和天然气生产。
+
+
+
+> The U.S. Constitution says “We the People” not “We the Government.”
+> — Mike Pompeo (@mikepompeo) [September 24, 2021](https://twitter.com/mikepompeo/status/1441483094985302017?ref_src=twsrc%5Etfw)
+
+
+
+*迈克**·**蓬佩奥**@mikepompeo*
+
+*美国宪法说“我们人民”而不是“我们政府”。*
+
+*2021**年**9**月**25**日*
+
+与此同时，蓬佩奥敦促拜登和他的顾问学川普政府，看看如何实施和执行美国优先政策。这位前国务卿赞扬了川普普总统领导下的强大边境和以美国为中心的供应链政策，认为是可以造福美国未来几代人的好政策。
+
+翻译：JS709｜校对：Nick｜编辑&发布：V
+
+原文链接：[https://www.oann.com/fmr-secy-of-state-pompeo-biden-surrendering-america-to-progressives-adversaries/](https://www.oann.com/fmr-secy-of-state-pompeo-biden-surrendering-america-to-progressives-adversaries/)

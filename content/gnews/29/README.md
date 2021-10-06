@@ -2,50 +2,38 @@
 ---
 
 
-## “现在购买，将来偿还”—消费者债务陷阱
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1576426/)
+## 效仿中共恐吓民众，维州安德鲁斯政府编造病毒谎言
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1576498/)
 
-作者：香草山金融部 – 闲聊钱币
+#### **翻译：月映万川**
 
+## **编辑：文泓**
 
+#### 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/打倒-10.png)
+**图片来源：****National Retail Association**
 
+在大流行期间，权威当局对社会大众的谎言正在不断出现，而这也是他们最为令人不齿的一幕。澳大利亚维多利亚州安德鲁斯政府抛出的“新冠病毒不会区别对待任何人”的论断，正是这其中最为荒谬的谎言之一。而事实却是，新冠病毒确实会区别对待被感染者，而不成比例地影响着老人、有基础疾病的病人和肥胖者。
 
+这一基本事实是我们自大流行以来就清楚的，并且这一事实通过不断地数据得到了强有力的支持。澳大利亚新冠病毒死亡年龄的中位数是85岁，高于澳人平均寿命。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+近期，昆士兰大学法学教授詹姆斯.艾伦（James Allan）在他的书中写到，政府的宣传——因为没有其它更为合适的说法来描述政府这一行为了，是有目地的试图毫无意义的恫吓大众，并且进一步来扭曲他们对相关风险的评估。艾伦教授也严厉批评了漏洞百出的错误预测模型和其媒体共谋们，他们一致都在助纣为虐。
 
+“然后加上一个想象中的最坏预测模型的包装，”再把它扔给那些要么愚蠢，要么是俄罗斯真理报转世的媒体或者新闻集团。这就是澳大利亚目前的现状。教授写道。
 
+读者们，但是，即使是在对新冠病毒肆虐的维多利亚州，人们最后也清醒的意思到，以防止政府病毒为名义造成更深的危害。根据专业调查机构“堡垒洞察”的问卷调查，近期只有不到三分之一的维州人相信，新冠病毒的风险要比经济封锁的影响更高。
 
+通过封锁来战胜病毒的概念是直接来源于中国共产党。而中国共产党也声称，通过封锁武汉，新冠病毒（实际是中共病毒）被有效的清除。
 
+出于（对病毒疫情）需要数十年时间来研究的考量，世界大多数国家（不是所有的国家）已经放弃了他们以共产中国模式为蓝本的应对大流行的激进计划。尽管中国共产党不断宣传他们那套令人难以置信的论断。
 
-Pattie Lovett-Reid 在她最新的专栏里阐述了’先消费后还款’这种看起来很有吸引力的消费方式其实隐藏着巨大的风险。
+把年轻人、健康成年人，以及老人和病人一起封锁的全球影响可能会证明，这一措施本身就要比大流行还令人绝望。
 
-最新的MNP消费者债务指数表明，低利率和高物价都刺激着加拿大人借贷。近六成（58%）的受访者表示在年底前可能会借更多的钱，其中37%的人信用卡已经有尚未偿还的债务。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture5.jpg)
-低到谷底的利率使很多人购买了他们想要但不一定需要或者不能承受的东西。而生活成本的不断提高使很多加拿大人不得不依赖贷款度日。一旦利率提高，这些人会陷入很大的麻烦。
+发布：文泓
 
-这种先买后付的消费方式更多的利于放贷公司，而非消费者。
-
-举例来说，大约6000块的信用卡债务，如果每月只还最低还款额，借款人要大约用14年来偿清10000元的本金和利息。（利率=14.99%）
-
-借贷消费还涉及各种手续费，特别是晚付费罚款。
-
-MNP 的受访者中46%称他们的收支勉强持平。更有27%的人说他们的收入已经不足以支付账单和现有债务。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture6.jpg)
-加拿大家庭的财务风险是真实存在的。人们沉浸在提前消费延后偿还的自我满足中。
-
-（本文仅代表作者观点）
-
-参考来源：[https://www.ctvnews.ca/business/pattie-lovett-reid-buy-now-pay-later-don-t-do-it-1.5607416](https://www.ctvnews.ca/business/pattie-lovett-reid-buy-now-pay-later-don-t-do-it-1.5607416)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

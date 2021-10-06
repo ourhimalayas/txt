@@ -2,15 +2,40 @@
 ---
 
 
-## 2021年10月5日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1576563/)
+## 【潘多拉文件】引发全球震荡
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1576605/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+**By:秘翻新闻**
 
-10/05/2021 Miles Guo’s GETTR: The par value of the CCP’s fake and fraud banknotes is shocking, and by working and colluding with Wall Street, the Chinese people have been slaves for the whole world for 21 years (commencing from CCP joining WTO); the CCP China’s fake finance and market will for sure explode, which will trigger the global bankruptcy & collapse
+***2021-9-6***
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/IMAGE-2021-10-06-111208.jpg)](https://gtv.org/video/id=615d1242304e992109b055c4)*点击图片观看完整视频*
+## **主题内容：**
 
-10/05/2021文贵直播：中共国的假骗金融票据数字惊人，又和美国华尔街搞到了一起，结果就是中国人给全世界当了二十一年奴隶，中共国的虚假金融爆雷不可避免，且必将引爆全球破产崩溃
+[**【潘多拉文件**】](https://gtv.org/video/id=615d1242304e992109b055c4)引发全球震荡
 
-[【2021年10月5日】文贵先生盖特原文](https://gettr.com/post/pdbp8v1949)
+**一，** 离岸公司注册方便，监管宽松，是合法瞒报资产和避税天堂。离岸金融的秘密世界被彻底曝光。
 
-**喜联盟Gnews编辑部**
+**二，** 全球数百名领袖政要商界富豪，利用离岸公司，进行贪腐受贿，隐匿财富，以及中共蓝金黄的惯用手法。
+
+**三，** 离岸金融系统是一个应该让全世界所有守法人士都关注的问题。所谓守法人士就是指的辛苦劳作的广大工薪阶层了，和小型企业主。富人都在想方设法避税和藏匿资产。
+
+**四，** 文件显示，目标群体通过转移资产所有权，来逃避金融制裁。经济制裁还能否行之有效。
+
+**五，** 申报制度的要求是申报直接持有的公司股权，因而产生所谓的代持人。而代持人的出现则更利于财富的隐匿。
+
+**六，** 中共国盗国贼的名字为什么没在文件中？这档文件只是泄漏了一部分机密，之后是否还会有更多内幕流出？
+
+**七，** 【潘多拉文件】的调查是否有势力在推动，是什么立场？即将出现的全球政坛集体大辞职是否跟此文件有关？
+
+**八，** 与5年前的【巴拿马文件】相比，账户持有人数量多了两倍，这是因为什么样的历史大背景造成的——中共独裁行入了快车道。
+
+请移步GTV观看**[【秘翻新视野】](https://gtv.org/video/id=615d1242304e992109b055c4)**，为您讲述[【潘多拉文件】](https://gtv.org/video/id=615d1242304e992109b055c4)即将引发的全球震荡。
+
+**GTV链接:**[https://gtv.org/video/id=615d1242304e992109b055c4](https://gtv.org/video/id=615d1242304e992109b055c4)
+
+*发布:星星*
+
+* * *
+
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/IMAGE-2021-08-12-195949.jpg)
