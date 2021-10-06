@@ -2,37 +2,31 @@
 ---
 
 
-## 全球供应链“灾难”将会变得更糟
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575794/)
+## 华裔英雄《尚气》撕下中共民族主义的遮羞布
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1575885/)
 
-作者：加拿大枫叶农场-文仁
+配音：美食部玫瑰园
 
+好莱坞第一部由亚裔演员主演的漫威系列英雄电影《尚气与十环传奇》，在全球获得巨大成功。但由于紧张的美中关系和民族主义尘嚣日上，此片至今无缘与中国观众见面。
 
+据悉，此片制作初期就非常重视中国市场，不但亚裔演员阵容强大，而且此片大量使用普通话，影片也运用了很多中国元素。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+据有关报导称，该片涉及辱华情节。且该片的主演刘思慕，曾于2016年发表推文，批评中共的审查制度非常不成熟和不明就里，还曾在访谈中提到，“活在共产主义的中国，很多人死于饥饿”。
 
+虽然中共《环球时报》狡辩称该片无法在中共国上映是由于角色偏见，但这恰好反映出中共当局对民主自由思想和反抗精神的恐惧。
 
+参考链接：[《尚气》获全球赞誉却踢到中国民族主义铁板](https://www.voachinese.com/a/marvel-s-shang-chi-was-made-with-china-in-mind-but-beijing-still-doesn-t-like-it-20211003/6255409.html)
 
-据彭博社报道，十月初四零售界的商业“高峰”的开始，但是今年该行业已经处于各种形式的恐慌之中。通常，这种状况要到圣诞节前几周才会出现。
-
-当中共病毒在 2020 年初打击全球经济，导致工厂减产或关闭。与此同时，供应链也被苏伊士运河堵塞等众多事件，以及劳动力短缺和运输成本飙升等市场动态所扼杀。
-
-在欧洲，由于交货延迟，服装连锁店 H&M 等零售商也无法满足客户需求。在美国，耐克因越南工厂关闭，导致生产中断，之后被迫下调了销售预期。新冠病毒的大爆发使港口码头闲置，导致没有足够的集装箱，因而集装箱的价格比一年前飙升 10 倍。劳动力短缺，导致卡车运输停滞，美国缺人的岗位的人数达到历史新高。
-
-中共的病毒疫情已经给世界的制造业和经济带来了巨大的打击。这接踵而来的全球物流“灾难”也一时难以缓冲，让人们原本满怀期待的圣诞经济复苏，也变得希望渺茫。
-
-【参考链接】[https://www.investing.com/news/stock-market-news/christmasat-risk-assupply-chain-disaster-only-gets-worse-2633348](https://www.investing.com/news/stock-market-news/christmasat-risk-assupply-chain-disaster-only-gets-worse-2633348)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-编辑/校对/发稿：正义的小新
-
+编辑/校对/发稿：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

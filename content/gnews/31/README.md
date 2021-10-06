@@ -2,47 +2,33 @@
 ---
 
 
-## 欧盟官员强调，Facebook的宕机表明市场需要更多的竞争者
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1575621/)
+## 日本新首相设立内阁级职务以应对来自中共国的经济威胁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1575680/)
 
-作者：纽约香草山农场 – 四季
+![](https://assets.gnews.org/wp-content/uploads/2021/10/c1_2190995-5.jpg)受过哈佛教育的小林孝之将成为日本第一任经济安全大臣 AP Photto
+台北（台湾新闻）报道，日本新当选的首相岸田文雄新设立了一个经济安全部长职位，据了解，其重点是来自中共国的现实威胁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+据英国《金融时报》报道，新任经济安全部长小林孝之的职位将围绕北京涉嫌技术盗窃和经济间谍活动以及半导体供应链问题展开工作。
 
+前国防部副部长兼三届国会议员的小林可能会与自民党秘书长产业大臣甘利明在中国事务上密切合作。
 
+据《日本时报》报道，受过哈佛教育的小林的新工作实际上是在2020年成立的国家安全秘书处经济司内阁内的制度化。
 
+前首相安倍晋三的弟弟岸信夫将继续担任防卫大臣，这是他在即将卸任的首相菅义伟的领导下一直做的工作。
 
+岸田首相于周一（10月4日）正式上任，预计将于10月底举行大选。他被称为温和的自由主义者，是日本第100任首相，曾是日本战后时代任职时间最长的外相。
 
-据[OAN](https://www.oann.com/facebook-outage-shows-need-for-more-players-eus-vestager-says/)网站援引路透社10月5日报道，欧盟反垄断局局长玛格丽特-维斯塔格 (Margrethe Vestager) 周二表示，Facebook前一天六小时的宕机，显示了仅仅依靠几个大公司所产生的后果，并强调市场需要更多的竞争者。
+简介：日本逐渐意识到了中共共产党用经济绑架全世界的阴谋，内阁设立经济安全部长这个职位意味着将长期把经济安全威胁，尤其是把应对中共带来的经济安全威胁放在重要的位置。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1139-1-2021-10-05T113833Z_1_LYNXMPEH940LG_RTROPTP_0_EU-BELGIUM-TAXAVOIDANCE_1.jpg)2021年6月9日，欧盟反垄断局局长玛格丽特·维斯塔格在比利时布鲁塞尔欧盟总部举行的竞争部门调查新闻发布会上发表讲话。（ John Thys/Pool via REUTERS/File Photo）
+原文链接：[https://www.taiwannews.com.tw/en/news/4305790](https://www.taiwannews.com.tw/en/news/4305790)
 
-这次宕机涵盖Facebook旗下的WhatsApp、Instagram和Messenger，使得该公司的35亿用户无法访问其社交媒体和消息服务。这是网络监测集团Downdetector有史以来监测到的最大的一次故障。
+* * *
 
-维斯塔格去年提出了被称为数字市场法（DMA）的规则草案，为亚马逊、苹果、Facebook和谷歌列出了一份该做和不该做清单，从本质上讲，这将迫使它们改变其核心商业模式，以允许更多的竞争。
-
-欧盟立法者和欧盟国家现在正在对提案进行辩论，并需要在技术规则生效之前调和这三个草案。
-
-大科技公司的暴雷凸显了独特的、拥有自由言论、独立思想以及卓越技术的Gettr 的宝贵，它可以让人们自由的发声，在全世界分享自由和民主。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
-
-编辑/校对/发稿：小鹿
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

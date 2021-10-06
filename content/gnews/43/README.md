@@ -2,162 +2,41 @@
 ---
 
 
-## 台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574684/)
+## 10/5/2021国际财经快讯：美国新对华贸易计划；脸书告密者称前雇主对美国构成威胁
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1575118/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2387.png)
-[https://gtv.org/video/id=615bc988d2e2b81748715b47](https://gtv.org/video/id=615bc988d2e2b81748715b47)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-12.png)[图片来源](https://www.reuters.com/)
+**1.****美国新的对华贸易计划****令人关注**
 
-共产党要打台湾
-El Partido Comunista atacará a Taiwán
+[华盛顿，10月5日（路透社）–美国贸易代表Katherine Tai承诺的对华贸易 “从上到下 “的政策审查已经等了8个月，一些美国行业和专家对该计划缺乏具体的谈判或时间安排表示抱怨。美国总统拜登的最高贸易官员Tai周一公布了她的计划，承诺与中国官员举行会谈，讨论他们未能满足前总统特朗普 “第一阶段 “贸易协议的条款，并恢复对中国进口商品征收关税的豁免程序。”她将重新与中国接触，这是一件好事，”在华盛顿出席戴笠演讲的雪城大学贸易经济学家玛丽-洛夫利说。”但她的整个计划似乎是，’我将进行一次对话’。”](https://www.reuters.com/business/new-us-china-trade-plan-leaves-industry-hungry-specifics-2021-10-05/)
 
-怎么打你芯片厂
-Cómo atacará a tu fábrica de circuito integrado
+**2.****脸书告密者称前雇主对美国构成****“****紧急威胁****”**
 
-我问他两遍, 他傻眼了
-Le pregunté dos veces y se quedó estupefacto
+[华盛顿，10月5日（路透社）–Facebook（FB.O）的举报人Frances Haugen将于周二在美国国会出庭，她将严厉批评她的前雇主是美国面临的 “最紧迫的威胁之一”，并要求其运作的透明度，以便更好地监管它。豪根是Facebook公民错误信息团队的前产品经理，他说这家社交媒体巨头对其算法和运作保密。”她在为听证会准备的书面证词中说：”问题的核心是，没有人能够比Facebook更好地理解Facebook的破坏性选择，因为只有Facebook能够查看引擎盖下的内容。](https://www.reuters.com/technology/facebook-whistleblower-say-former-employer-an-urgent-threat-us-2021-10-05/)
 
-我们有这样的安排, 那样的安排
-Nosotros tenemos planeado esto y lo otro
+**3.****短缺、通胀和缓慢增长让英国经济陷入困境**
 
-我说你懂个屁, 你还以为
-Y le dije, que sabes un pedo, tú crees
+[伦敦（路透社）–英国经济在冠状病毒封锁后的反弹正受到供应链问题、通货膨胀率跳升和失业率上升风险的阻碍，使政策制定者引导复苏的任务更加复杂。前英国央行首席经济学家安迪-霍尔丹（Andy Haldane）说，英国正处于一个通货膨胀不稳定、低度扩张的VILE时代。金融市场现在认为，英国央行几乎肯定会在2月前加息，但一些经济学家对复苏乏力的迹象感到担忧，并不那么肯定。以下是经济政策制定者可能会考虑的英国经济的一些衡量标准。英国8月份的通货膨胀率达到3.2%，是近十年来的最高值。一些一次性因素造成了7月的创纪录跳升，但英国央行认为通胀率正走向4%以上，是其2%目标的两倍以上。英国央行正在观察是否有任何迹象表明消费者对通货膨胀将在长期内得到控制失去信心。](https://www.oann.com/shortages-inflation-and-slow-growth-fog-uk-economy/)
 
-你能搞芯片
-Que si puedes fabricar microchip
+**4.****法国认为有可能就全球最低税率为****15%****达成妥协**
 
-你都能搞一切了
-Podrás hacer todo
+[巴黎（路透社）–法国财政部长布鲁诺-勒梅尔（Bruno Le Maire）周二表示，重新制定跨境业务征税规则的全球谈判正处于关键阶段，有可能就15%的最低公司税率达成妥协。到目前为止，参与谈判的140个国家中，有134个国家支持 “至少 “15%的最低税率，但与其他国家相比税率较低的爱尔兰迄今拒绝签字，因为它担心税率最终可能高于15%。勒梅尔告诉记者，虽然就15%的税率达成妥协是可能的，但在根据跨国公司在国外市场的资产和薪资从全球最低税率中扣除多大比例的问题上，仍然存在重大障碍。](https://www.oann.com/france-sees-compromise-possible-on-global-minimum-tax-rate-at-15/)
 
-你懂政治? 共产党打你厂子
-¿Conoces la política? Si el Partido Comunista va a atacar tu fábrica
+**5.****日本新任部长誓言为受大流行影响的经济采取大胆行动**
 
-第一件事情就把你所有的芯片, 周围的所有人
-La primera cosa que hará es dejar que todos tus microchips y las personas que están alrededor
+[东京（路透社）–日本新任财政部长和经济部长周二发誓要采取大胆的政策行动，以振兴受大流行影响的经济，这表明在岸田文雄首相领导的政府下，财政和货币刺激措施将保持不变。财政部长铃木顺一说，岸田告诉他要坚持大胆的货币宽松政策、灵活的财政支出和增长战略，以决定性地结束通货紧缩。”我希望日本银行努力实现其价格目标，同时确保市场和企业资金保持稳定，”铃木在岸田周一组阁后的首次新闻发布会上告诉记者。新任经济部长山木大四郎在另一个新闻发布会上说，政府将采取一切必要措施，”毫不犹豫地以灵活的方式 “支持经济。岸田承诺编制价值几十万亿日元的经济刺激计划，这可能有助于巩固世界第三大经济体的增长。](https://www.oann.com/japan-will-take-necessary-steps-to-support-economy-new-minister-yamagiwa-says/)
 
-你会突然发现你旁边的秘书
-De repente te darás cuenta que la secretaria que está a tu lado
+**6.****美国智库研究显示****中****共****国****经济****增长****将****放缓**
 
-就是共产党, 立马给你下掉(防卫装备)
-Es del Partido Comunista, de una vez te deja sin equipos de defensa
+[北京（路透社）–周二的一份报告显示，如果中共国不采取足够的措施，通过允许私营部门在经济中发挥更大的作用和更大的跨境投资双向流动来刺激市场竞争，它将面临增长放缓的风险。”美国智库大西洋理事会和咨询公司Rhodium Group发布的一份报告称：”如果没有市场导向的转变，中共国将很难在本十年中期之前保持每年超过3%的增长潜力。从2011年到2020年，中共国的经济增长逐渐放缓，与2001年底刚加入世界贸易组织后几年的相对大的涨幅相比，中共国的经济增长在个位数上扩张。中共国已经设定了2021年经济至少增长6%的目标，此前它在受大流行影响的2020年勉强实现了2.3%的增长。](https://www.oann.com/china-risks-slower-growth-without-more-market-competition-u-s-study/)
 
-你连一个芯片都拿不走
-No te podrás llevar ni un chip
+**7.****美联储称监察部门将审查决策者的交易活动是否有失误**
 
-你连一个玻璃都砸不碎
-Si no podrás romper ni un vidrio
+[(路透社）–美国联邦储备委员会周一表示，在达拉斯联储主席罗伯特-卡普兰和波士顿联储主席埃里克-罗森格伦披露了2020年期间的交易，引起了公众的强烈不满之后，它已经开始与内部监督机构进行会谈，审查某些高层央行官员的金融市场交易是否存在道德或法律漏洞。”作为我们全面审查的一部分，我们上周开始与联邦储备委员会监察长办公室讨论，以启动对某些高级官员的交易活动是否符合相关道德规则和法律的独立审查，”美联储发言人在一份声明中说。”我们欢迎这一审查，并将接受和根据其调查结果采取适当的行动。”](https://www.oann.com/fed-says-watchdog-to-review-policymakers-trading-activity-for-lapses/)
 
-还转移你什么技术, 你通通搁在这儿
-Cómo transferirás tu tecnología, todo lo debes dejar aquí
+**8.****期货走高，科技股从大跌中恢复，周期性股票上涨**
 
-而且马上把你这些人, 立马把你押送到大陆去
-Además, enviarán directamente a todos ustedes a China
+[10月5日（路透社）–美国股指期货周二上涨，因为科技股从上一交易日的大幅下挫中恢复过来，而对经济敏感的周期性股票在本周晚些时候受到密切关注的月度工资数据之前受到青睐。包括苹果公司（AAPL.O）、亚马逊公司（AMZN.O）、微软公司（MSFT.O）和Alphabet公司（GOOGL.O）在内的高增长股票在盘前交易中上涨0.3%至0.7%。Facebook上涨了1.5%，一天前它的应用程序和照片分享平台Instagram在晚间恢复之前曾遭受打击。周一，大多数科技股受到冲击，因为美国国债收益率在对美国政府可能发生债务违约的担忧中走高。](https://www.reuters.com/business/futures-tick-higher-tech-shares-recover-selloff-cyclicals-rise-2021-10-05/)
 
-都不会让你去福建
-No te dejará ir a Fujian
-
-都是把你押到新疆
-Sino te llevará a Xinjiang
-
-跟那些劳改犯押到一起去
-Para que estés con aquellos prisioneros reformados por el trabajo
-
-去了
-Arrestarte
-
-跟那些男的女的关一起去
-Encerrarte con esos hombres y mujeres
-
-先把你精神上肉体上折磨垮你
-Primero te torturarán física y mentalmente
-
-然后你老老实实的给你个电脑, 去把所有的技术给我放出来
-Luego te darán una computadora para que descargues todas las tecnologías
-
-他一听说, 不会吧
-Una vez que él escuchó todo esto, dijo, no creo
-
-我说你不用见我
-Le dije, no necesitas verme
-
-还想着战争了
-Todavía estás pensando que para la guerra
-
-我们有72小时转移技术, 转移硬体
-Tendremos 72 horas para transferir la tecnología y el hardware
-
-我说你天真, 你找死呢
-Le respondí, que inocente eres, estás buscando la muerte
-
-我说你
-Le dije, tú
-
-你只要自己不把脑袋切下来砸烂它
-Siempre y cuando no te cortes la cabeza y lo rompas en pedazos
-
-他就把你脑子里所有东西都给你拿走
-Él podrá quitar todas las cosas de tu cabeza
-
-他一句话听傻了
-Él al escuchar esto se quedó asombrado
-
-我说你以为美国人72小时, 我说共产党开始那一刻起
-Yo dije, tú crees que los estadounidenses en 72 horas, en el momento en que comenzó el Partido Comunista
-
-72小时
-Dentro de 72 horas
-
-美国人100%不会接触到你
-Los estadounidenses 100% no podrán tocarte
-
-他一定会在前24小时
-Él seguramente en menos de 24 horas
-
-把你这些脑袋全带走
-Llevará toda tu cabeza
-
-而且甚至会切你几个手指头, 告诉我还有什么该拿的
-Incluso cortará unos cuantos dedos tuyos, diciéndote, qué más debo llevarme
-
-中国大陆当兵的
-Los soldados de China
-
-对付别人, 对付日本人
-Al tratar con los demás o los japoneses
-
-我不觉得有这么狠
-Yo siento que no serán muy crueles
-
-对付美国人也没这个胆, 对付台湾人
-Al igual que con los estadounidenses, no tienen esa valentía, pero con los taiwaneses
-
-可能就像印尼人对付华人一样那么狠
-Quizás sean tan despiadados como los indonesios tratan a los asiáticos
-
-这共产党训练的兵
-Los soldados que son entrenados por el Partido Comunista
-
-对付外国人不敢, 对付同胞
-No se atreven con los extranjeros, pero con los compatriotas
-
-那是比谁都狠
-Son aún más crueles que cualquier otra persona
-
-—————————————————
-
-日期：10/02/2021
-原视频标题：台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切
-Los taiwaneses no se sientan afortunados, el Partido Comunista llevará todo lo que tengan en 24 horas
-原视频日期：09/30/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1443538103944159233?s=24](https://twitter.com/se1y7cblljselva/status/1443538103944159233?s=24)
-任务编号：KC143（2387）
-视频时间段：0:00-2:00
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+By 【秘密翻译组-金融组】
+作者：千年等一回

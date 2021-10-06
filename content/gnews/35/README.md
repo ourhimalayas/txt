@@ -2,20 +2,47 @@
 ---
 
 
-## 美国国家卫生研究院院长柯林斯宣布年底下台
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1575554/)
+## 欧盟官员强调，Facebook的宕机表明市场需要更多的竞争者
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1575621/)
 
-#### 编译: 文旺 | 校对: 沙拉猫
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image1005.png)图片来源：npr.org
+作者：纽约香草山农场 – 四季
 
-据美国《极度新闻》(Newsmax) 2021年10月5日消息，美国国家卫生研究院(NIH)院长柯林斯(Francis Collins)刚宣布，他将在今年底辞去NIH院长的职位。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-柯林斯于2009年就开始担任NIH院长一职。在接受《华盛顿邮报》（Washington Post）采访时，柯林斯称他已决定不再延长任职时间，将在12月底辞职。
 
-在中共病毒疫情爆发初期，柯林斯与其下属福奇（Anthony Fauci）谎称中共病毒起源于自然，而不是来自中共的武汉病毒研究所（武毒所），其目的无非是企图掩盖NIH非法动用NIH经费资助武毒所进行“病毒增强性试验”的真相。
 
-全世界当下正遭受中共生物武器的肆虐，数亿人感染，几百万人丧生。重创之下，世界各国越来越认识到对病毒溯源的重要性，连最初与中共勾结的世界卫生组织（WHO）也表示要在中共国进一步调查病毒的起源。可以相信，调查结果一定会揭示出NIH和武毒所在研发中共病毒方面的关系，在此背景下，柯林斯的下台，无不让人怀疑他是想金蝉脱壳，逃避追责。
 
-（文章内容仅代表作者个人观点）
 
-参考报道：[https://www.newsmax.com/newsfront/nih-cirector-francis-s-collins-steps-down/2021/10/05/id/1039158/](https://www.newsmax.com/newsfront/nih-cirector-francis-s-collins-steps-down/2021/10/05/id/1039158/)
+据[OAN](https://www.oann.com/facebook-outage-shows-need-for-more-players-eus-vestager-says/)网站援引路透社10月5日报道，欧盟反垄断局局长玛格丽特-维斯塔格 (Margrethe Vestager) 周二表示，Facebook前一天六小时的宕机，显示了仅仅依靠几个大公司所产生的后果，并强调市场需要更多的竞争者。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1139-1-2021-10-05T113833Z_1_LYNXMPEH940LG_RTROPTP_0_EU-BELGIUM-TAXAVOIDANCE_1.jpg)2021年6月9日，欧盟反垄断局局长玛格丽特·维斯塔格在比利时布鲁塞尔欧盟总部举行的竞争部门调查新闻发布会上发表讲话。（ John Thys/Pool via REUTERS/File Photo）
+
+这次宕机涵盖Facebook旗下的WhatsApp、Instagram和Messenger，使得该公司的35亿用户无法访问其社交媒体和消息服务。这是网络监测集团Downdetector有史以来监测到的最大的一次故障。
+
+维斯塔格去年提出了被称为数字市场法（DMA）的规则草案，为亚马逊、苹果、Facebook和谷歌列出了一份该做和不该做清单，从本质上讲，这将迫使它们改变其核心商业模式，以允许更多的竞争。
+
+欧盟立法者和欧盟国家现在正在对提案进行辩论，并需要在技术规则生效之前调和这三个草案。
+
+大科技公司的暴雷凸显了独特的、拥有自由言论、独立思想以及卓越技术的Gettr 的宝贵，它可以让人们自由的发声，在全世界分享自由和民主。
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
