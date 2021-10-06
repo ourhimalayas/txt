@@ -2,8 +2,8 @@
 ---
 
 
-## 63%的delta病毒死亡者已注射疫苗
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575781/)
+## 美NIH院长科林斯将辞职
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575795/)
 
 作者：香草山写作组-文一
 
@@ -13,9 +13,17 @@
 
 
 
-9月30日，在美国参议院会议上，罗恩-约翰逊参议员指出，在过去7.5个月里，因感染delta冠状病毒的死亡病例中，有63%是完全接种过疫苗的人。 最近的病例和死亡人数激增，并不是未接种疫苗者导致的。然而，主流媒体对此只字不提，社交媒体严格审查。包括CDC在内的数量文章报道，可以总结道： 1. 接种疫苗实际上可能会增加住院的风险 2. CDC拒绝公布按疫苗接种情况分类的住院/死亡数据… 3. 死亡率激增，但CDC不提供原因。真相不能掩盖，正义的人持续在发声。暗黑时期，每个发声都弥足珍贵，每个人都应该力所能及传播疫苗真相，让正义快点到来！
+美国国立卫生研究院NIH周二宣布，该院院长科斯林，在工作近三十年，在位12年后，计划年底离任。据相关人士透露，他离职其实已经有一段时间了。
 
-参考链接： [https://www.thegatewaypundit.com/2021/10/boom-sen-ron-johnson-drops-truth-bomb-senate-floor-63-uk-delta-deaths-last-7-5-months-fully-vaccinated-video/](https://www.thegatewaypundit.com/2021/10/boom-sen-ron-johnson-drops-truth-bomb-senate-floor-63-uk-delta-deaths-last-7-5-months-fully-vaccinated-video/) [https://threadreaderapp.com/thread/1443669605231304709.html](https://threadreaderapp.com/thread/1443669605231304709.html) [https://threadreaderapp.com/thread/1443431536641015810.html](https://threadreaderapp.com/thread/1443431536641015810.html)
+科斯林现年71岁，为内科遗传学家，在位期间历经三届总统，是任职时间最长的院长。柯林斯领导了全球人类基因组测序的工作，并发现了囊性纤维化的基因。2007年，成立BioLogos基金会，一个旨在调和宗教与科学的团体。
+
+据悉，首席副主任劳伦斯-塔巴克（Lawrence Tabak）可能会成为代理主任。
+
+参考链接：
+
+[https://www.msn.com/en-us/news/politics/francis-collins-to-step-down-as-nih-director-by-years-end/ar-AAP8SNh](https://www.msn.com/en-us/news/politics/francis-collins-to-step-down-as-nih-director-by-years-end/ar-AAP8SNh)
+
+[https://www.msn.com/en-us/news/politics/biden-calls-nih-director-frances-collins-one-of-the-most-important-scientists-of-our-time/ar-AAPahji](https://www.msn.com/en-us/news/politics/biden-calls-nih-director-frances-collins-one-of-the-most-important-scientists-of-our-time/ar-AAPahji)
 
 （本文仅代表作者观点）
 

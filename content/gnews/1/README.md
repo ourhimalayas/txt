@@ -2,44 +2,39 @@
 ---
 
 
-## 有声| 前新疆警察接受CNN采访, 揭露中共暴行!
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1576067/)
+## 加拿大护士告密：许多人因接种疫苗后死亡和住院
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1576131/)
 
-配音：香草山美食部-玫瑰园
+#### 整理报道：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/10/nurses-in-canada-1080x675-1.jpg)
+图片来源：immilawglobal.com
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+**【雅典娜快讯】，紧贴时事脉搏**
 
+两名加拿大护士挺身出来告密，告诉记者他们在中共病毒（COVID-19）大流行期间所看到的情况。这包括接种中共病毒疫苗后死亡的病人，以及医院里挤满了完全接种疫苗后，患有中共病毒的人。
 
+来自加拿大魁北克省（Quebec）庞蒂亚克（Pontiac）小镇的埃里卡·比尔兹利(Erica Beardsley)做了11年的护士，在她的雇主强制要求她接种疫苗后辞职。
 
+在加拿大的一次反疫苗授权的抗议活动中，比尔兹利向记者讲述了她作为护士在大流行期间看到的可怕事情。
 
+比尔兹利说：”我亲眼看到人们束缚着老人，违背他们的意愿为他们接种疫苗，而老人却大喊’不要’。我见过自杀的病人，一旦病人死了，他们就对病人进中共病毒测试。”
 
+“我目睹了很多人在接种疫苗后不久死于心脏病，”她继续说。”我目睹了疫苗接种后五天、四天就足月流产的情况。”这是一个令人惊讶的普遍现象，尽管她来自一个不足5000人的小镇。
 
+另一位在多伦多（Toronto）圣迈克尔（St. Michael’s）医院工作的护士称，医院里到处都是完全接种了中共病毒疫苗的病人。
 
-CNN播出最新纪实访谈节目, 采访了几位遭受过中共暴行迫害的维族人, 以及一位前中共警察蒋先生(音译)。
+加拿大各地的人们，包括医护人员，都在抗议强行接种疫苗的行为。这些抗议活动在全国各地涌现，反对人们被迫接种实验性和致命的中共病毒疫苗。
 
-这位蒋姓警察目前人在欧洲避难, 他向CNN讲述了他在新疆从业期间的所见所闻, 在被称为再教育营的集中营中, 对维族及其他宗教人群所进行的系统性酷刑,  他本人也参与了这些暴行, 包括电刑/水刑和性暴力, 相对而言侮辱和不允许睡觉是最普通的待遇。蒋姓警察也从最初的 “渴望前往新疆打击企图分裂国家恐怖分子” , 到最后转变为质疑和彻底厌恶。虽然他在这种名为”援疆”的部署期间获得了两倍的工资和福利。这位勇敢警察的讲述, 是对中共新疆暴政暴行最有力的佐证和控诉!
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
+**参考新闻：**[Canadian nurse whistleblowers say many people are dying after getting vaccines while hospitals are filled with the fully vaccinated – NaturalNews.com](https://www.naturalnews.com/2021-09-27-canadian-nurse-whistleblowers-fully-vaccinated-dying.html)
 
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-**文字版原文：[前新疆警察接受CNN采访, 揭露中共暴行!](https://gnews.org/zh-hans/1575136/)**
-
-
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

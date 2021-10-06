@@ -2,28 +2,30 @@
 ---
 
 
-## 应对中共威胁，日美举行年内第5次海上联训
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1575941/)
+## 特鲁多将于本周三公布联邦强制疫苗计划
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1575986/)
 
-配音：美食部玫瑰园
+蒙特利尔皇家山战友团 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/10/AR-210919039.jpg)图片来源：Khaleej Times
+根据《CBC新闻》10月5 日报道，总理贾斯汀-特鲁多将于周三公布政府计划的细节，即在公共服务部门和加拿大境内的旅行者必须接种COVID-19疫苗。
 
-栏目记者/责任编辑：修文
+该消息来自一位政府高级消息人士，他在接受CBC新闻网采访时不愿透露姓名，因为此人未被授权公开发言。
 
-昨日，日本海上保安厅舰艇协同美国海岸警卫队，在神奈川县横须贺市的横须贺港内进行了联合训练，联训科目是”设想应对可疑船只”。日方向外界透露，此次联训目的是为应对中共在东海、南海海域日益加强的军事威胁，而日美双方均秉持推广自由开放的印太区域概念，并加强双方合作, 包括在该海域的军事及准军事协作。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-73.png)
-经历20年发展的中共,近年来在军事上持续扩张和行动，特别是在东海/南海水域，这些咄咄逼人的行动已引发世界各国关注和连锁反应，各国间针对中共威胁的结盟、军演和训练空前频繁，此次演习, 已经是日美今年所举行的第5次海上联合作训。
+预计该公告将包括如何执行这些规定以及何时生效的细节。
 
-(本文仅代表作者观点)
+特鲁多和副总理克里斯蒂娅-弗里兰将在定于美国东部时间周三上午11点举行的新闻发布会上谈及该计划。
 
-[https://news.ltn.com.tw/news/world/breakingnews/3692394](https://news.ltn.com.tw/news/world/breakingnews/3692394)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-终审：FoxRina
-校正/发稿：浪迹天涯
+联邦政府于8月首次宣布，打算对联邦公务员和乘坐飞机、轮船和省际列车的旅客强制接种疫苗。特鲁多说选举后的首要任务是对公务员和旅行者进行疫苗强制接种。他上周说，执行这项任务是他的政府在大选后待办事项清单中的首要任务。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-35.png)
+联邦政府表示，这项任务将不迟于10月底生效。
+
+特鲁多还希望为联邦监管部门的雇员强制注射疫苗，这些部门包括银行业、电信业和大多数国营企业。
+
+在英国和丹麦取消疫苗护照，德国宣布不强制疫苗的新形势下，特鲁多不顾疫苗致命副作用，执意继续推行他深度参与的“大重置”计划，如今加拿大人疫苗完全接种率为71.5%，让人担忧。
+
+原文链接：
+[https://www.cbc.ca/news/politics/vaccine-mandate-announcement-1.6201101](https://www.cbc.ca/news/politics/vaccine-mandate-announcement-1.6201101)
+
+* * *
+
+发稿 Spirit
