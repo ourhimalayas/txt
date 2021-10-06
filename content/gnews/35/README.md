@@ -2,20 +2,30 @@
 ---
 
 
-## 索罗斯基金预测中概股将被退市 虚拟货币已成主流
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576213/)
+## 有声|中共国“血旗”挂满大街小巷引发的思考
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1576257/)
 
-#### 翻译：坤霆
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-11.jpg)图片来源：网络截图
-10月5日据零对冲报道，在索罗斯和北京之间的争吵升级后，基金管理家族办公室的首席信息官道恩·菲茨帕特里克表示，该公司正在避免在中国投资：“我们现在不把钱投入中国，”她说，并补充说，投资者在将现金投入美中上市时需要“非常小心”。她解释说，投资者对中共国正在做的事情以及政府愿意容忍其有计划的经济破坏程度感到惊讶。
+配音：教育部蒙古鸿雁
 
-索罗斯不把钱投入中国的真正原因是钱会立即烟消云散：乔治·索罗斯公开批评了中共国国家主席习近平的政策，并在上个月的《华尔街日报》专栏文章中表示，“现在向中共国倾注数十亿美元是一个悲剧性错误。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109-1.jpg)
 
-无论如何，据索罗斯首席信息官称，目前在美国交易的中共国公司将在很大程度上必须退市并转移到香港，中共国的早期风险投资公司还需要“一段时间”才能上市。因此，尽管一些大牌公司近期可能会在香港上市，但总体而言，中共国从私有到公有的道路将花费很长的时间。
+10月1日，网易新闻一篇《巨幅国旗为祖国庆生》的文稿，用各种活动方式展示“血旗”，活动中人流聚集，完全忽视当下新冠病毒肆虐状态，曾经强制封社区、封门户的官警，瞬间消失，中共国的“血旗”挂满大街小巷，似乎“血旗”可以防病毒。
 
-“二十年来，拥有西方资本和西方既得利益的中共国科技公司非常符合中共的目标。他们现在不再需要在美国上市了，所以他们可以拿走7000亿美元，然后去香港上市，”菲茨帕特里克说。“我认为这就是他们要做的事情。”
+文字版原文：[中共国“血旗”挂满大街小巷引发的思考](https://gnews.org/zh-hans/1573906/)
 
-另一个值得注意的观察：索罗斯是继史蒂夫·科恩的《Poin 72》和丹·勒布的《第三点》的脚步进入加密交易的最大的对冲基金。她说：“我们拥有一些虚拟加密币——不多——但货币本身不如“去中心化金融”或类似的东西有趣。”她指出，“加密货币已成为主流。”
+音频处理：喜山必胜Maverick
+发稿：孤独的小生（文留）
 
-原文链接：[Soros Is Cashing Out Of Stocks, Putting Some Capital Into Cryptocurrencies](https://www.zerohedge.com/markets/soros-cashing-out-stocks-putting-some-capital-cryptocurrencies)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

@@ -2,27 +2,15 @@
 ---
 
 
-## 中共国又一家房企债务违约 揭开行业危机序幕
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1576535/)
+## 2021年10月5日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1576563/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/C2F07C7F-B6B1-4979-8076-B7D5264682DD_cx0_cy6_cw0_w1023_r1_s.jpg)网络图片
-据美国之音10月5日报道，中共国最大的房地产开发商恒大集团的债务危机日益严重之时，另一家花样年房地产控股集团未能如期支付一笔2.05亿美元的票据债务，此前花样年旗下一个公司已经被曝出未能如期偿付一笔7亿元的贷款。
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-相对于恒大集团负债接近2万亿人民币，花样年集团在规模和债务金额方面都比恒大小得多，但它的困境仍然让外界担心房地产行业会对中共国整体经济造成冲击。国际三大评级公司之一的惠誉将花样年的评级降为“CCC”。同时，惠誉将另一家房地产公司新力控股集团从“CCC”降级至“C”，称新力控股的债务偿还能力几乎耗尽。新力控股9月30日股价暴跌90%，百亿市值缩水至17.85亿港元。
+10/05/2021 Miles Guo’s GETTR: The par value of the CCP’s fake and fraud banknotes is shocking, and by working and colluding with Wall Street, the Chinese people have been slaves for the whole world for 21 years (commencing from CCP joining WTO); the CCP China’s fake finance and market will for sure explode, which will trigger the global bankruptcy & collapse
 
-与此同时，另一家房地产开放商、A股上市的华夏幸福公告了2192亿元的债务重组计划。自2020年以来，包括华夏幸福、泰禾集团、蓝光发展、中国恒大、新力控股、阳光100、花样年在内的8家房企都不同程度遭遇经营和债务危机。为避免恒大无序倒闭、破产，万科、中国金茂、华润置地等政府背景的地产开发商被要求向恒大购买资产。
+10/05/2021文贵直播：中共国的假骗金融票据数字惊人，又和美国华尔街搞到了一起，结果就是中国人给全世界当了二十一年奴隶，中共国的虚假金融爆雷不可避免，且必将引爆全球破产崩溃
 
-中共再输血，也不可能让一个已经倒塌的恒大再次崛起。恒大的垮台会将中共国所有的房地产企业带进深渊，彻底戳破中共国虚假的房地产泡沫。倾家荡产、终生背负房贷的压力，甚至祖孙三代充当房奴为中共续命的时代已经一去不复返了。中共这条吸血的蚂蝗再也不能从房地产获取财富，但是房地产行业的债务无可避免地又落到中国人民的头上。中共不灭，中国人民的灾难永不止息。
+[【2021年10月5日】文贵先生盖特原文](https://gettr.com/post/pdbp8v1949)
 
-新闻参考链接：[https://t.co/6H7SfmPnmj?amp=1](https://t.co/6H7SfmPnmj?amp=1)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**喜联盟Gnews编辑部**
