@@ -16,6 +16,10 @@
 ---
 ## 頁面 4/36 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [36](/content/README-36.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
 
+[全文字版2021年7月18日下午郭文贵先生G-TV试直播](/content/2021/07/20210718-1406174.md)
+
+[全文字版2021年7月18日郭文贵先生第一次G-TV直播](/content/2021/07/20210718-1405966.md)
+
 [全文字版2021年7月16日郭文贵先生G-TV直播](/content/2021/07/20210716-1402217.md)
 
 [全文字版郭文贵先生2021年7月15日G-TV直播](/content/2021/07/20210715-1399731.md)
@@ -61,10 +65,6 @@
 [全文字版2021年5月30日郭文贵先生G-TV直播](/content/2021/05/20210530-1285961.md)
 
 [全文字版2021年5月27日郭文贵先生G-TV直播:新中国联邦拯救了世界](/content/2021/05/20210527-1277441.md)
-
-[全文字版2021年5月23日郭文贵先生G-TV直播](/content/2021/05/20210523-1268679.md)
-
-[全文字版2021年5月19日郭文贵先生G-TV直播](/content/2021/05/20210519-1259336.md)
 
 
 ## 頁面 4/36 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [36](/content/README-36.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
