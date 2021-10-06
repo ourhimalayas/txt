@@ -2,30 +2,23 @@
 ---
 
 
-## 有声|中共国“血旗”挂满大街小巷引发的思考
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1576257/)
+## 针下亡魂｜希腊 60 岁男检察官接种疫苗后肺栓塞死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1576437/)
 
-配音：教育部蒙古鸿雁
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 6/10/2021**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109-1.jpg)
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
+![](https://assets.gnews.org/wp-content/uploads/2021/10/13-1.jpg)
+【希腊】帕特拉一名 60 岁的男检察官 Georgios Tsironis 在接种了第二剂阿斯利康 COVID-19 疫苗之后，引起肺栓塞，经过几个月的治疗他仍然宣告死亡。
 
-10月1日，网易新闻一篇《巨幅国旗为祖国庆生》的文稿，用各种活动方式展示“血旗”，活动中人流聚集，完全忽视当下新冠病毒肆虐状态，曾经强制封社区、封门户的官警，瞬间消失，中共国的“血旗”挂满大街小巷，似乎“血旗”可以防病毒。
+Georgios 的遗孀 Tacia Dimitriou 认为，她丈夫的死是由于疫苗并发症所致引，“我相信我的丈夫死于疫苗，他生前没有任何慢性病。”
 
-文字版原文：[中共国“血旗”挂满大街小巷引发的思考](https://gnews.org/zh-hans/1573906/)
+她续指，她的丈夫 4 月 2 日出现呼吸急促，后来听说锡罗斯有另一个人亦有类似的症状，而且情况危急，于是他们即刻去了一间私人诊所做测试，当时测试表明一切正常。然而， Georgios 仍然感到非常疲倦，一直上气不接下气，后再经过断层扫描，才发现他的肺部有血块。
 
-音频处理：喜山必胜Maverick
-发稿：孤独的小生（文留）
+经过几次治疗之后， Georgios 又经历了几次心脏病发作，但是，未打疫苗前， 他根本没有任何心脏问题，最后一次心脏病发，他送院后就立即被安排进重症监护室，几个小时之后， Georgios 不治身亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
+来源｜[个案013](https://newsique.gr/pethane-o-giorgos-tsironis-ti-synevi-meta-to-emvolio-tis-astrazeneca-i-moiraia-emvoli)
 
-**更多资讯，更多关注**
+* * *
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//

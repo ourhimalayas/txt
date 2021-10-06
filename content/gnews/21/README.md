@@ -2,57 +2,31 @@
 ---
 
 
-## 美国国务院：美国贸易代表宣布了美国将重新调整对华贸易政策
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1576000/)
+## 美天然气大涨创12年新高，国际油价奔向80美元每桶
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1576086/)
 
-美国国务院： 我们欢迎与 [#中华人民共和国](https://twitter.com/hashtag/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD?src=hashtag_click) 的竞争，但这种竞争需要公平和负责任地管理。美国贸易代表宣布了美国将围绕我们的优先事项重新调整对华贸易政策的初步步骤：[http://go.usa.gov/xMdyg](https://t.co/Ssd10LTWia?amp=1)。
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/21-1.jpg)
+[图片来源](https://www.sohu.com/a/205794153_377241)
 
+NYMEX天然气期货价格创下近12年来新高。对于全球关注的美国债务违约风险，美国民主共和两党就解决方案僵持不下。美国国会参议院民主党领袖称，需在本周末之前提高债务上限。有业内人士指出，如果不能及时完成，美国经济可能会受到持续多个季度的打击。
 
+据期货日报，本周一，尽管能源价格的飙升引发了人们对更多石油产品将被用于发电的担忧，但OPEC+决定维持其供应协议，选择11月份温和增产40万桶/日。
 
-> We welcome competition with the People’s Republic of China, but that competition needs to be fair and managed responsibly. [@USTradeRep](https://twitter.com/USTradeRep?ref_src=twsrc%5Etfw) announced the initial steps the U.S. will take to re-align our trade policies towards the PRC around our priorities: [https://t.co/yCcKGM3aMJ](https://t.co/yCcKGM3aMJ).
-> — Department of State (@StateDept) [October 5, 2021](https://twitter.com/StateDept/status/1445509102373781509?ref_src=twsrc%5Etfw)
+在OPEC+决定维持供应协议的第二天，洲际交易所(ICE)宣布，将布伦特原油期货的保证金上调8.7%，从10月7日收盘后开始生效，10月8日开始发出相关追加保证金通知。
 
+此外，上周末发生的重大原油泄露事故也加剧了人们对原油供应的担忧，推动了油价的上涨。但据俄罗斯卫星网周二报道，美国跨部门反应小组表示，潜水员确认加州水下石油管道泄漏的位置，泄漏已经停止。
 
+当地时间周二，还有分析师上调油价预期。渣打银行分析师表示，将布伦特原油2022年价格预测从59美元/桶提高至67美元/桶，将布伦特原油2021年价格预测从65美元/桶上调至71美元/桶。 美国天然气一夜飙涨10% 欧洲天然气创历史新高。
 
-参议员瑞克·斯科特： 拜登的财政部长希望监控美国人的财务往来。拜登的司法部部长希望让批判种族理论的反对者保持沉默。这就是中国、俄罗斯和古巴政权目前所做的：窥探他们的公民并压制异议。拜登 = 系统性社会主义。 【附每日电讯：拜登因“武器化”司法部反对父母们发对批判种族理论】
+据期货日报，欧洲天然气期货价格继续上涨，被视为西欧天然气价格风向标的荷兰天然气期货价格首次突破每千立方米1200美元，创下历史新高。美国天然气期货涨近10%至2014年2月以来的盘中最高水平。
 
+许多市场参与者担心，尽管预计冬季温和，但寒冷的天气和更多的海外出口可能会完全耗尽天然气供应。随着价格继续攀升，交易员预计电力将从天然气转向石油或煤炭，也可能导致石油供应紧张。
 
+消息来源：中国基金报
 
-> Biden’s Treasury Secretary wants to monitor Americans’ financial transactions. Biden’s AG wants to silence opponents of Critical Race Theory. This is what the Chinese, Russian & Cuban regimes currently do: snoop on their citizens & squash dissent. Biden = Systemic Socialism. [https://t.co/g8vcA4g3iT](https://t.co/g8vcA4g3iT)
-> — Rick Scott (@SenRickScott) [October 5, 2021](https://twitter.com/SenRickScott/status/1445466122900238346?ref_src=twsrc%5Etfw)
+（文章仅代表作者个人观点，与GNEWS无关）
 
-
-
-众议员迈克·沃尔茨： 感谢基思在捍卫民主、促进清洁网络和讲述华为真相方面发挥的领导作用。 【转前副国务卿基思·克拉克推文：自由世界不应该向共产中国屈膝。我们必须与台湾这个民主模范 美国的好朋友站在一起。去年,我有幸成为访问台湾的40年来最高级别外交官,并为加强我们的经济联系而感到自豪】
-
-
-
-> Thank you Keith for your leadership on defending democracy, promoting clean networks, and telling the truth about Huawei. [https://t.co/55vaFGZfzz](https://t.co/55vaFGZfzz)
-> — Rep. Mike Waltz (@michaelgwaltz) [October 5, 2021](https://twitter.com/michaelgwaltz/status/1445457506755620864?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·加西亚： 尽管许多非法越境的移民甚至没有接受新冠COVID 测试，更不用说接种疫苗了——拜登政府现在却要求所有海关与边境保卫局[@CBP](https://twitter.com/CBP) 的官员在 11 月 1 日之前接种疫苗。这种虚伪何时结束？ 【转[http://saraacarter.com](https://t.co/dMuhtW8L5x?amp=1): 边境巡逻人员对新的强制疫苗规定感到不安】
-
-
-
-> Despite the fact that many of the migrants illegally crossing the border are not even taking a COVID test, let alone getting vaccinated – the Biden administration is now mandating all [@CBP](https://twitter.com/CBP?ref_src=twsrc%5Etfw) officials get vaccinated by Nov. 1st. When will the hypocrisy end? [https://t.co/H1azHT98lF](https://t.co/H1azHT98lF)
-> — Rep. Mike Garcia (@RepMikeGarcia) [October 5, 2021](https://twitter.com/RepMikeGarcia/status/1445443555162427394?ref_src=twsrc%5Etfw)
-
-
-
-参议员兰德·保罗： 在一个如此多的运动员无法成为好的榜样的时代，乔纳森·艾萨克 (Jonathan Isaac) 因他对权力说出真相的勇气和信仰而脱颖而出。 【转福克斯晚间新闻：联邦新闻网FNN 独家与主持人[@ShannonBream](https://twitter.com/ShannonBream)：篮球运动员乔纳森·艾萨克[@JJudahIsaac](https://twitter.com/JJudahIsaac) 权衡疫苗强制要求以及为什么他选择不接种疫苗】
-
-
-
-> In a time when so many athletes fail to be good role models, Jonathan Isaac stands out for his courage to speak truth to power and for his faith. [https://t.co/iWShFCDIUb](https://t.co/iWShFCDIUb)
-> — Senator Rand Paul (@RandPaul) [October 5, 2021](https://twitter.com/RandPaul/status/1445430140952059907?ref_src=twsrc%5Etfw)
-
-
-
-众议员李·泽尔丁： 如果这次福奇得手了（指圣诞节也不能聚集），每一个人都要把他们书架上的精灵换成沙发上的福奇。他想插手到每个人的生活中，特别是最近引起轩然大波的-建议大家取消和所爱之人的圣诞节。太过分了。 [@GutfeldFox](https://twitter.com/Gutfeldfox) （附节目访谈）
-
-
-
-> If Fauci had his way, everyone would be replacing their Elf on a Shelf with a Fauci on the Couchy. He wants to be all up in everyone's business, most recently causing an uproar by suggesting your Christmas plans with loved ones may need to be canceled. It's too much. [@GutfeldFox](https://twitter.com/Gutfeldfox?ref_src=twsrc%5Etfw) [pic.twitter.com/xC9Ke8dSeg](https://t.co/xC9Ke8dSeg)
-> — Lee Zeldin (@RepLeeZeldin) [October 5, 2021](https://twitter.com/RepLeeZeldin/status/1445373719426347010?ref_src=twsrc%5Etfw)
+*校对：东京樱花团 / 知了知了*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

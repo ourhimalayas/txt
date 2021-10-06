@@ -2,18 +2,30 @@
 ---
 
 
-## 雅典娜时报-第073期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1575873/)
+## 特鲁多将于本周三公布联邦强制疫苗计划
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1575986/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+蒙特利尔皇家山战友团 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/10/AR-210919039.jpg)图片来源：Khaleej Times
+根据《CBC新闻》10月5 日报道，总理贾斯汀-特鲁多将于周三公布政府计划的细节，即在公共服务部门和加拿大境内的旅行者必须接种COVID-19疫苗。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/10/731.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/732.png)
-***发布：小红帽***
+该消息来自一位政府高级消息人士，他在接受CBC新闻网采访时不愿透露姓名，因为此人未被授权公开发言。
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+预计该公告将包括如何执行这些规定以及何时生效的细节。
+
+特鲁多和副总理克里斯蒂娅-弗里兰将在定于美国东部时间周三上午11点举行的新闻发布会上谈及该计划。
+
+联邦政府于8月首次宣布，打算对联邦公务员和乘坐飞机、轮船和省际列车的旅客强制接种疫苗。特鲁多说选举后的首要任务是对公务员和旅行者进行疫苗强制接种。他上周说，执行这项任务是他的政府在大选后待办事项清单中的首要任务。
+
+联邦政府表示，这项任务将不迟于10月底生效。
+
+特鲁多还希望为联邦监管部门的雇员强制注射疫苗，这些部门包括银行业、电信业和大多数国营企业。
+
+在英国和丹麦取消疫苗护照，德国宣布不强制疫苗的新形势下，特鲁多不顾疫苗致命副作用，执意继续推行他深度参与的“大重置”计划，如今加拿大人疫苗完全接种率为71.5%，让人担忧。
+
+原文链接：
+[https://www.cbc.ca/news/politics/vaccine-mandate-announcement-1.6201101](https://www.cbc.ca/news/politics/vaccine-mandate-announcement-1.6201101)
+
+* * *
+
+发稿 Spirit
