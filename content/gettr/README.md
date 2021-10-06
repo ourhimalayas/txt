@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/6/2021 12:07 AM (UTC)`
+
+10/5/2021 Miles Guo: When the CCP’s local government debt and “invisible” debt make the whole world’s pension funds and insurance money vanish, the world will get even with the Chinese people, and the history of anti-Chinese atrocities in Indonesia will repeat itself on a global scale!<br/><br/>10/5/2021 文贵直播：当中共的地方债和隐形债让全世界的养老金和保险金蒸发的时候，世界将找中国人算账，而印尼排华的暴行将在全球重演！<br/>
+![img](https://media.gettr.com/group2/getter/2021/10/06/00/07/884c9588-1690-63ee-b6b3-7e1107e58a94/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@financegclub 10/5/2021 12:17 PM (UTC)`
@@ -289,13 +296,6 @@ Mr. Miles Guo accurately predicted the fall of Fu Zhenghua during his first whis
 🆘🆘🆘喜站出品．必是精品！🙏🙏🙏
 > `@globalhimalaya 10/1/2021 7:56 PM (UTC)`<br/>New Wuhan COVID docs 'completely contradict Fauci' on gain-of-function claims, ex-State Dept official says<br/>前国务院新冠来源调查员大卫艾舍：最新泄漏的文档揭示了中共制造病毒的实锤证据和犯罪现场！病毒是杀人武器！
 ![img](https://media.gettr.com/group30/origin/2021/10/01/19/56/632cfcc7-d46c-4b6f-c778-1691e65cd1dc/out.jpg)
-
----
-
-`@miles 10/2/2021 12:11 AM (UTC)`
-
-10/01/2021 Miles Guo’s GETTR: All our fellow fighters around the world shall keep disseminating videos and information regarding poisonous Covid vaccine, DO NOT STOP YOUR FINGERS! Xi Jinping is surrounded by followers of Jiang Zemin, Zeng Qinghong, Wang Qishan, and Meng Jianzhu, Xi is in great danger!<br/><br/>10/01/2021 文贵盖特：全球各地的战友们继续加油传播毒疫苗的视频和信息，不要停！习周围都是江曾王孟的爪牙，习危险了啊！<br/>
-![img](https://media.gettr.com/group9/getter/2021/10/02/00/11/6a3a549a-b425-88df-2db2-cbe480fd2b06/out.jpg)
 
 ---
 
