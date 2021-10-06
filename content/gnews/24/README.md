@@ -2,36 +2,17 @@
 ---
 
 
-## 郭先生直播：中共的假骗经济给世界金融埋下了巨雷
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1576669/)
+## 秘翻在线:CIA在电报中承认失去了大量线人
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576681/)
 
-**By:秘翻新闻**
+#### 翻译/撰稿：zzballack
 
-***2021-10-06***
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/1006-2.jpg)](https://gtv.org/broadcast/watch/615d64a2304e992109b06c59)点击图片观看视频
-**新闻摘要:**
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-2-2.jpg)图片来源：每日邮报
+据《布雷特巴特新闻网》（Breitbart News）10月5日报道，《纽约时报》（New York Times）本周二的一篇文章援引知情人士消息说，美国中央情报局（CIA）的全球各个站点在上周收到了一封绝密电报，电报说在过去几年中，有数十名CIA海外线人被杀、被捕或者被策反。这份电报列出了被对手情报机构处决的特工的具体人数，通常情况下反情报官员不会在此类电报分享这个秘密细节。
 
-1、郭先生直播：中共的假骗经济给世界金融埋下了巨雷
+据报道，这份电报指出，CIA在世界各地努力招募间谍时遇到了困难。文章说：“近年来，俄罗斯、中共国、伊朗和巴基斯坦等国家的敌对情报机构一直在追查中情局的消息来源，并在某些情况下将中情局特工变成双重间谍。”一些国家利用生物识别扫描、面部识别、人工智能和黑客工具等手段跟踪中情局官员的行动，以确定他们的消息来源，而且这一手段越来越厉害。“某前官员说，线人流失并不是一个新问题。但电报内容表明这个问题比公众所理解的更加严峻。”
 
-2、大陆城市负债率排行出炉 北京是深圳的10倍
+美联社（Associated Press）2020年7月曾报道过，伊朗的一位前国防部雇员礼萨·阿斯加利 (Reza Asgari)因为被伊朗司法部认定为CIA从事间谍活动而被处决。2020年8月，已退休的中情局官员、67岁的马玉清（Alexander Yuk Ching Ma）因被指控向中共特工出售美国情报机密而被捕。”指控马玉清的一段视频证据说他在提供机密信息后获得了5万美元现金报酬。”
 
-3、辽宁持续出现大暴雨，冰雹及大风的极端天气
-
-4、黄河水位达历史高度又逢汛期  河南山东或受水灾
-
-5、甘肃灵台特大泥石流灾害 毁损上百栋房屋
-
-6、人神共愤  法国神职人员性侵20多万儿童
-
-7、细数NIH院长弗朗西斯·柯林斯的六大丑闻
-
-8、《真相工程》节目暗访：辉瑞科学家认为自然抗体可能比疫苗更好
-
-**GTV链接：**[https://gtv.org/broadcast/watch/615d64a2304e992109b06c59](https://gtv.org/broadcast/watch/615d64a2304e992109b06c59)
-
-发布: 文橙
-
-* * *
-
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+新闻来源：[Report: CIA Admits Losing Numerous Informants in Top Secret Cable](https://www.breitbart.com/national-security/2021/10/05/report-cia-admits-losing-numerous-informants-in-top-secret-cable/)

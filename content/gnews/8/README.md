@@ -2,51 +2,20 @@
 ---
 
 
-## 美联储放风：准备启动对央行数字货币利弊的审查
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1576821/)
+## 中共不灭，灾难不断
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1576828/)
 
-栏目记者/责任编辑：AsG諾雅
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-99.png)
+10月6日新京报从山西省太原市清徐县应急管理局获悉，5日，乌马河孟封小武段发生决堤，沿河附近的小武、西罗、东罗、闫家营、孟封、杜村等村约有12000余人需要转移。孟封镇政府工作人员称，决堤发生后，当地紧急连夜转移沿河附近的村庄村民。截至6日12时许，4000多人已转移至安全地带。
 
+另外，由于持续多雨，10月6日山西省蒲县荆坡村一带昨日晚11时许发生山体滑坡，造成5人被埋压。经过连夜抢险救援，被困人员全部救出，其中，4人遇难，1人受伤。遇难者主要为交警。
 
+水患是2021年常用词，先是长江流域，再是黄河流域，所谓自然灾害更多的是人为灾难，独裁体制下的管理僵硬，灾民得不到及时的救援和提前预警，每当灾难过去又常常会忘记这些教训，中共不灭，一切的灾难都是刚刚开始！
 
+[信息来源：乌马河山西清徐段发生决堤](https://my.mbd.baidu.com/r/ui7bDpTzSE?f=cp&amp;rs=1580906033&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=6648f4761bc9edd1)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
-
-
-
-
-
-
-
-零对冲10月4日晚援引《华尔街日报》消息，作为对欧洲央行和中共国央行数字货币（CBDC）项目的回应，美联储最早可能在本周发布关于CBDC的官方报告，以开始对央行数字货币利弊的审查，并承诺在审查期间征求公众意见。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-29.jpg)
-美联储高级官员们对央行数字货币一直表现得意见不一，犹豫不决，他们称迄今为止的相关研究是早期和探索性的，理论上讲，该系统将允许美联储直接把钱存入普通美国人的 “数字钱包”，这种权力最终可能使整个私人银行系统过时，现金消失，美联储将可以监控每个美国人的财务状况。
-
-郭先生今天直播中评论说，这些新闻都是故意放料，实际上，美国一旦推行数字货币，美联储就不存在了，沼泽地也就没了，美国人民只有摆脱美联储才会有真正的自由，这是一个人类史上前所未有金融大变局。美联储、沼泽地和全美国人斗争的结果，一定会产生虚拟美元，世界未来所有的货币绝对不是国家主权可以完全垄断的。谈笑间，透露了新中国联邦还有非常厉害的规划和武器，期待揭秘的时刻。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-2.jpg)
-信息链接：
-[Fed Prepares To Launch “Review” Of Central Bank Digital Currency That Could Render Cash, Privacy Obsolete](https://www.zerohedge.com/crypto/fed-prepares-release-report-fedcoin-could-render-cash-obsolete)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-终审： Ryan
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)

@@ -2,15 +2,15 @@
 ---
 
 
-## 2021年10月5日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1576557/)
+## 2021年10月5日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1576563/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-10/5/2021 Miles Guo: Only Russia, North Korea, and Pakistan don’t buy the government bonds issued by the Communist China; The Chinese people will have to pay for the price of the collapse of the world’s economy caused due to the fact that the CCP holds the whole world hostage by using the economy.
+10/05/2021 Miles Guo’s GETTR: The par value of the CCP’s fake and fraud banknotes is shocking, and by working and colluding with Wall Street, the Chinese people have been slaves for the whole world for 21 years (commencing from CCP joining WTO); the CCP China’s fake finance and market will for sure explode, which will trigger the global bankruptcy & collapse
 
-10/5/2021 文贵直播：全球只有俄罗斯、北朝鲜和巴基斯坦不买中共国国债；中国人将不得不为中共利用经济绑架全世界而导致的世界经济大崩溃而买单！
+10/05/2021文贵直播：中共国的假骗金融票据数字惊人，又和美国华尔街搞到了一起，结果就是中国人给全世界当了二十一年奴隶，中共国的虚假金融爆雷不可避免，且必将引爆全球破产崩溃
 
-[【2021年10月5日】文贵先生盖特原文](https://gettr.com/post/pdap9843a8)
+[【2021年10月5日】文贵先生盖特原文](https://gettr.com/post/pdbp8v1949)
 
 **喜联盟Gnews编辑部**
