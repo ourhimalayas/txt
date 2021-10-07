@@ -2,45 +2,19 @@
 ---
 
 
-## 芬兰、瑞典和丹麦宣布停止将Moderna中共病毒疫苗用于年轻男性
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1579628/)
+## 秘翻在线：山西十月出现罕见暴雨 水库泄洪煤矿停产百姓遭殃
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1579655/)
 
-作者：纽约香草山农场 – 四季
+**撰稿：葛大饼**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-08-002926.jpg)
+根据2021年10月7日新浪网的报道，自十月初以来，山西陆续发布了地质灾害、山洪灾害气象风险和暴雨等预警。山西省乌马河清徐县、祁县段5日发生多处决堤，多个村庄进水。10月6日，祁县子洪水库泄洪放水。
 
+有关视频显示，祁县某处铁轨被洪水冲垮，导致火车和铁轨悬空。央视新闻另一段视频显示，农田和村庄都已淹没。而且多处发生山体滑坡，造成人员被埋压死亡的情况。而最受关注的是山西的煤矿，在暴雨影响下，已有27座煤矿紧急停产，这对后续煤矿保供有明显影响，对目前中共国的煤炭紧缺状况更是雪上加霜。北方的冬天马上就要来临，不知道多少会因为缺煤少电而被冻死饿死了。
 
+天灾人祸的悲剧反复在中共国内上演，受伤的永远是中国的老百姓。只有灭掉共产党这个体制，才不会有这样的灾难重复轮回在中国的土地上！
 
+更多山西洪水新闻我们会及时跟踪报道。
 
-
-据[零对冲](https://www.zerohedge.com/covid-19/finland-joins-sweden-denmark-limiting-use-modernas-jab-young-men)10月7日报道，在确定Moderna公司的Covid-19疫苗对接种人群尤其是年轻人造成包括心脏炎症在内的罕见、但有害的副作用风险后，北欧国家芬兰、瑞典和丹麦都宣布停止将其用于特定年龄组。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1166-1-JAB_1.jpg)图片来源：零对冲
-
-瑞典公共卫生局要求立即停止将Moderna的SpikeVax疫苗用于所有1991年以后出生的年轻人。丹麦已经对12至17岁的儿童实施了该药物的禁令。芬兰也将停止对年轻男性使用这种疫苗。
-
-这项涉及芬兰、瑞典、挪威和丹麦的北欧研究结果将在几周内公布。初步数据已经被送往欧洲药品管理局（EMA）进行进一步评估。EMA是泛欧盟的药品监管机构，早在7月就确定在一些年轻的男性患者中发现了罕见的心脏炎症病例。
-
-越来越多的研究结果显示中共病毒疫苗的风险，相信会有更多的国家不得不采取相应措施应对。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+**[新闻来源](https://finance.sina.com.cn/jjxw/2021-10-07/doc-iktzscyx8258026.shtml)**

@@ -2,15 +2,13 @@
 ---
 
 
-## 2021年10月7日 文贵先生盖特 9
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1579466/)
+## 2021年10月7日 文贵先生盖特 11
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1579508/)
 
 编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-Sep 7th,2017, Miles Guo revealed that even though Fu Zhenghua was under protection of Xi Jinping, he will be killed sooner or later as he knew too much hidden dirt of Wang Qishan, Meng Jianzhu and Sun Lijun
+Sept.10, 2017, Fu Zhenghua used the task force and law enforcement under his control for extortion & money laundering, the extent was outrageous! 2017年9月10号傅政华控制的专案组和公检法，敲诈勒索，向海外洗钱，巨额财富，已经黑暗到天怒人怨！
 
-2017年9月7日文贵爆料恶人傅政华虽然有习的保护，但是早晚都会被弄死，因为他知道的王孟孙的黑材料太多了
-
-[【2021年10月7日】文贵先生盖特原文](https://gettr.com/post/pdfgdt4b15)
+[【2021年10月7日】文贵先生盖特原文](https://gettr.com/post/pdftjobe16)
 
 **喜联盟Gnews编辑部**

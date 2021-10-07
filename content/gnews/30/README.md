@@ -2,33 +2,21 @@
 ---
 
 
-## 隐瞒与中共联络人的长期关系 美国国防承包商受刑事指控
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579292/)
+## 疫苗灾情｜希腊 65 岁男演员接种疫苗后因血栓而中风入院
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1579390/)
 
-栏目记者/责任编辑：飞虹
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 7/10/2021**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
+![](https://assets.gnews.org/wp-content/uploads/2021/10/17-1.jpg)
+【希腊】65 岁著名男演员 Lakis Lazopoulos 因血栓引致中风而被紧急送往医院，两周前，他接种了第二剂辉瑞 COVID-19 疫苗。
 
+Lakis 于 6 月 4 日接受第二针疫苗之后，他的身体立即出现了各种不适，半个月之后，即 6 月 19 日他因中风而被送院诊治。此后就一直在家中休养。经诊断显示，他的脑部有一个明显的“凝块”，而这个血块已经向四处扩散。
 
+Lakis 在接受采访时表示，**确信血栓是辉瑞 COVID-19 疫苗造成的结果**。“在 6 月 4 日接种第二剂辉瑞之后，我就感觉到我的身体开始瓦解，我没有潜在的疾病或健康问题，在过去的检查中没有发现过任何问题，是疫苗激活了触发血栓形成的机制。”
 
-10月5日，美国司法部称，前美国陆军直升机飞行员沙普尔·莫伊尼安因在国家安全背景调查上作虚假陈述，隐瞒一名与中共情报部门有关的中国籍女子接触合作而受到刑事指控。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1007-AM（4-6）.005.jpeg)
-现年66岁的沙普尔·莫伊尼安，从美军退役后为多家国防承包商工作。2017年3月他曾前往中国，参与一家国防承包商的多个项目，包括美国军方使用的高空无人侦察机。返美后，莫伊尼安继续与一名中方女性联系人沟通，向她通报工作进展，并通过亲属的韩国银行账户收取这名中共代理人的回报款项。
+来源｜[个案017](https://thegreektimes.gr/actor-lakis-lazopoulos-suffers-blood-clot-after-getting-2nd-pfizer-vaccine/)
 
-从2017年到2019年期间，莫伊尼安与这名女性联络人分别在香港、澳门、印尼的巴里岛和台湾见面并收受现金报酬。 然而在多次接受国家安全背景调查时，莫伊尼安却称在过去七年内，与外国国民没有任何密切或持续接触，也没有被要求担任顾问或考虑被外国机构雇用。 莫伊尼安已于10月1日正式被捕，当时他正计划移居韩国，准备为一家向韩国政府提供军用飞机生产服务的国防承包商工作。
-(本文仅代表作者观点)
+* * *
 
-参考链接：[一名美国防承包商因隐瞒与中国联络人的关系而受到刑事指控](https://www.voachinese.com/a/DOJ-complaint-foreign-contacts-china-20211006/6260212.html)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审：FoxRina
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//
