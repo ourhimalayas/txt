@@ -2,25 +2,41 @@
 ---
 
 
-## 新西兰护卫舰加入英国航母编队穿行南中国海
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1578008/)
+## 众议员加拉格尔新闻室:中共 无法隐瞒的病毒大流行起源的细节
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1578057/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16335696571.png)资料照片：菲律宾海军乐队欢迎来访马尼拉大都会的新西兰海军“特卡哈”号护卫舰。(2017年4月4日)
-新西兰皇家海军10月6日宣布，“特卡哈”号导弹护卫舰加入了英国航母打击群，穿行南中国海前去参加 “2021五国金禧演习”。并且在印太地区与包括美国海军航母“卡尔·文森”号和“罗纳德·里根”号在内的来自日本、荷兰、加拿大和美国的军舰进行军事演习和训练活动。
-
-“2021五国金禧演习”为庆祝“五国联防”(FPDA)签署50周年。演习将在新加坡和马来西亚半岛附近海域举行。“五国联防”成员包括澳大利亚、英国、新加坡、马来西亚和新西兰。
-
-新闻参考链接：[https://www.voachinese.com/a/new-zealand-warship-joins-uk-carrier-group-on-transit-of-south-china-sea-20211006/6260154.html](https://www.voachinese.com/a/new-zealand-warship-joins-uk-carrier-group-on-transit-of-south-china-sea-20211006/6260154.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+众议员加拉格尔新闻室： “一组美国科学家以近4000种不同方式,使冠状病毒基因组的茎进行突变…最终确定,原始SARS-CoV-2病原体被针对人类感染进行了99.5%的优化-泄漏假说的实验室有力证据” 【转华尔街日报:科学接近Covid(中共病毒)起源 四项研究,包括两项来自世卫,提供了支持实验室泄漏理论有力证据】 “关键证据已经很明显了，只要他们想看……我们有一个目击者，一个从武汉逃出来的吹哨人，带着 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 无法隐瞒的大流行起源的细节。这个吹哨人的名字就是 SARS-CoV-2 ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click))。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+> "The crucial evidence is already in plain sight, if only they would look…We have an eyewitness, a whistleblower who escaped from Wuhan and carried details of the pandemic’s origin that the Chinese Communist Party can’t hide. The whistleblower’s name is SARS-CoV-2."
+> — Rep. Gallagher Press Office (@RepGallagher) [October 6, 2021](https://twitter.com/RepGallagher/status/1445772636986871817?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 是一个意在统治全球的专制政权。现在，它把目光转向了台湾。本周在 Unmuted 节目上，章家敦和我将一起讨论保护我们的台湾盟友和坚决反对中国的侵略。
+
+
+
+> Communist China is an authoritarian regime set on global domination. Now, it has turned its sights towards Taiwan. This week on Unmuted, [@GordonGChang](https://twitter.com/GordonGChang?ref_src=twsrc%5Etfw) joins me to discuss protecting our Taiwanese allies and standing firm against China’s aggression. [https://t.co/HtZRnPfT20](https://t.co/HtZRnPfT20)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [October 6, 2021](https://twitter.com/MarshaBlackburn/status/1445871339059904517?ref_src=twsrc%5Etfw)
+
+
+
+众议院中国工作组： 众议院中国工作组主席麦考尔：“随着 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 进行了前所未有的军事挑衅，美国对我们合作伙伴的支持不会动摇。台湾的经济对我们的经济和国家安全上的利益至关重要，台湾的民主仍然是自由的灯塔。“[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 在一个几乎生产世界上所有先进半导体的地区，所展现的军事上的好战，加大了这一关键供应链的风险。众议院必须尽快通过 ‘投资国内半导体制造、研发和设计’ 拨款，以恢复美国的高端半成品制造业!”
+
+
+
+> “The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)’s military belligerence in a region that manufactures nearly all the world’s advanced semiconductors heightens the risk to this vital supply chain. The House must pass CHIPS appropriations ASAP to restore American manufacturing of advanced semis!"
+> — China Task Force (@China\_TaskForce) [October 6, 2021](https://twitter.com/China_TaskForce/status/1445833802799005696?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特: 拜登最近的过度行为直接来自 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的剧本：派美国国税局监视美国人的银行账户，并跟踪你花费的美元。专家们一致认为，我们不能相信美国国税局能保证这些信息的安全！ 我将会继续为保护美国人的隐私权而战。 【附听证会视频】
+
+
+
+> Biden’s latest overreach is straight from Communist China’s playbook: sending the IRS to SPY on Americans’ bank accounts & track the dollars you spend. Experts agree we can't trust the IRS to keep this info safe!
+>  
+> I'll keep fighting to protect Americans' right to privacy. 👀⬇️ [pic.twitter.com/L53DLWoxhf](https://t.co/L53DLWoxhf)
+> — Rick Scott (@SenRickScott) [October 6, 2021](https://twitter.com/SenRickScott/status/1445790931844620292?ref_src=twsrc%5Etfw)

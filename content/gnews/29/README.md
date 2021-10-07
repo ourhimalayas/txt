@@ -2,51 +2,41 @@
 ---
 
 
-## 最新研究发现：接种疫苗会增加感染病毒及住院风险
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1578058/)
+## 新加坡AI聊天机器人：因中共病毒问题的错误回复被禁用
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1578092/)
 
-栏目记者/责任编辑：圣母院钟声
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/新加坡.jpg)
+图片来源：ns.sg
 
+整理报道：小红帽
 
+新加坡卫生部 (MOH) 日前关闭了一个聊天机器人工具“Ask Jamie”，因为它对有关中共病毒（Covid-19）的问题发出了一系列“错误”的回复，其中包括安全性行为建议。这些失误在网上被广泛流传。
 
+当 该人工智能聊天机器人被一位女儿检测出中共病毒呈阳性的家长询问该怎么做时，它回答说：“你应该通过正确和持续地使用避孕套来进行安全的性行为，或者禁欲，至少在你的女性伴侣怀孕的整个期间实施安全性行为。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/mi_askjamie_041021.jpg)
+图片来源：straitstimes.com
 
+类似错误的屏幕截图在本周初出现在网上。在Reddit上甚至出现了一个专门的帖子，引发了关于中共病毒成为STD（性传播疾病）的笑话。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+在回答有关新加坡居民在哪里可以获得ART（抗原快速检测）的问题时，聊天机器人提供了一个无关的答案，即“脊髓灰质炎疫苗在综合诊所、私人诊所以及旅行者诊所都可以得到”。
 
+但是，如果问题的措辞不同，聊天机器人会提供适当的建议——“让中共病毒阳性者保持冷静并留在他们的住宿地点或指定的医疗机构，同时等待前往医院的“必要交通安排”。
 
+由于“不一致”的答复，卫生部告诉当地媒体，它已在周一“暂时禁用”聊天机器人，以“进行彻底的系统检查并进行改进”。然而，据媒体报道，“Ask Jamie”在其他几个政府网站上仍然在运行。
 
+该聊天机器人由新加坡政府技术机构 (GovTech)于2014年开发，并部署在70个政府机构网站上。据报道，在大流行期间，GovTech鼓励居民使用该工具（被一家软件提供商吹捧为“世界上第一个全政府虚拟助理”）解决与中共病毒相关的问题。
 
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
+**参考新闻：**[Abstinence & condoms? AI chatbot in Singapore dropped after giving strange advice about testing positive for Covid-19 — RT World News](https://www.rt.com/news/536726-abstinence-condoms-chatbot-singapore-covid/)
 
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-最新一期《新英格兰医学杂志》发表了有41,000多个样本的号称“新冠疫苗在门诊和住院环境中的有效性研究”，立即被疾病控制中心（CDC）视为推荐疫苗的宣传性广告作品。 可是在有心人进一步研究文章数据后发现：为了提高所谓的”疫苗疗效”，该研究省略了最近接种疫苗者的住院人数，所以研究结论具有欺骗性。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-1.jpg)
-令人震惊的是：接种疫苗后的第一周，1872名接种疫苗者被病毒感染而住院的人数被故意遗漏，而大多数不良事件和住院发生偏偏在这第一周。这项研究通过人工减少接种疫苗群体感染病毒的总数，和调控病毒核酸检测，来放大未接种者的感染率，最终提高疫苗的疗效百分比。由此人为创造了所谓的“疫苗功效”。CDC原本想利用诊断欺诈和失真的数据来欺骗公众，没成想被抓包。在调整了接种疫苗后的真实患病率后，疫苗疗效其实为-13%！显而易见，接种疫苗会增加住院风险，即增加了患重症的可能性。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-32.jpg)
-美国政府医疗管理机构CDC，FDA等在这场新冠疫情中一直扮演着误导公众的角色，以科学的名义干着伪科学的勾当。随着越来越多的数据造假被揭露，其遮羞面纱已被撕下。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.2-1.jpg)
-参考链接：
-[New study on 41,000 people reveals that taking vaccines INCREASES a person’s risk of hospitalization](https://newstarget.com/2021-10-04-study-reveals-taking-vaccines-increases-hospitalization-risk.html)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-终审： Ryan
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,49 +2,25 @@
 ---
 
 
-## 欧盟药品管理局建议将深部静脉血栓列入强生疫苗的副作用
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1577982/)
+## 莫德纳疫苗易导致心脏炎症 瑞典和丹麦限制年轻人接种
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1577995/)
 
-作者：纽约香草山农场 – 云豹
+#### 撰稿：billwilliam
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-21.jpg)图片来源：网络截图
+据零对冲报道，瑞典和丹麦颁布政策限制年轻人接种莫德纳（Mordena）疫苗，原因是疫苗导致心脏发炎和严重副作用。
 
+瑞典首先宣布停止向1991年或之后出生者（30岁以下）接种莫德纳疫苗。数小时后，丹麦卫生部门宣布停止向18岁或以下者接种莫德纳疫苗。
 
+据称，喊停的原因是至少一项研究发现疫苗导致危险的心脏发炎，尤其是年轻人。瑞典公共卫生部的公告称：“原因是副作用增加的信号，例如心肌炎、心包炎。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+但是瑞典并没有叫停所有mRNA疫苗。瑞典卫生部门称他们推荐这个年龄段的人接种辉瑞疫苗；这个年龄段已经接种一针莫德纳疫苗的人不需要接种第二针（但不清楚是否会要求他们再接种一针辉瑞疫苗）。
 
+此举可能会促使其它斯堪的纳维亚国家重新审视莫德纳以及其他疫苗。瑞典和丹麦的公告发布后，莫德纳股价大幅下挫，雅虎财经显示其盘终跌幅达-8.94%。
 
+郭文贵先生引领的爆料革命早就指出疫苗是中共用来进一步毒害人类的生化武器。此次瑞典和丹麦的禁制令对于未来全面禁止疫苗接种迈出了一小步。国际社会正在逐渐意识到毒疫苗带来的灾难。
 
-10月1日，欧盟药品管理局建议，将深部静脉血栓列入强生新冠疫苗的副作用，以提醒大众注意。
+参考资料：
 
-![](https://imgcdn.cna.com.tw/www/WebPhotos/800/20211002/1470x980_48321000239.jpg)图片来源：Unsplash
-
-据悉，强生与阿斯利康药厂所生产的新冠疫苗均采用无害病毒做为载体。先前，阿斯利康新冠疫苗就已经被认定，其与疫苗接种者发生的深层静脉血栓有关，相关机构曾依此发布过警示。此次，欧盟药品管理局再度建议，将强生新冠疫苗列入到相同的副作用警示中。
-
-除了深层静脉血栓外，欧盟药品管理局也同时建议，将免疫性血小板减少症列入强生与阿斯利康新冠疫苗的不良反应资讯中。
-
-事实上，随着越来越多的相关病例被爆出，新冠疫苗的副作用已逐渐被世界各地的民众及政府发觉、证实。 最终，世人一定会认清新冠病毒及疫苗的真相，并向中共这个罪魁祸首追责。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-[嬌生疫苗副作用 歐盟建議列入深部靜脈血栓](https://www.cna.com.tw/news/aopl/202110020072.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+1. [https://www.zerohedge.com/covid-19/sweden-denmark-restrict-use-moderna-jab-over-risk-heart-inflammation-other-side-effects](https://www.zerohedge.com/covid-19/sweden-denmark-restrict-use-moderna-jab-over-risk-heart-inflammation-other-side-effects)
+2. [https://finance.yahoo.com/quote/MRNA?p=MRNA&.tsrc=fin-srch](https://finance.yahoo.com/quote/MRNA?p=MRNA&amp;.tsrc=fin-srch)

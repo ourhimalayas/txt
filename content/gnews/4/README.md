@@ -2,68 +2,43 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1578387/)
+## 美中苏黎世“最深入对话” 拜习会或年底前于线上举行
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1578436/)
 
-- **编译：西班牙喜悦农场–wenwu**
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-16.png)
+（图片来自网络）
 
+在3月份的阿拉斯加会谈不欢而散后，中美最高外交官员沙利文和杨洁篪10月6日在瑞士苏黎世进行了长达6小时的闭门会议。有美方官员表示，这是拜登政府与中（共）国有史以来“最深入的对话”。
 
-您若想了解全文报导内容，请点击标题链接
+据《德国之声》中文网10月7日报道，美国国家安全顾问沙利文（Jake Sullivan）与中共中央外事工作委员会办公室主任杨洁篪10月6日在瑞士苏黎世会面。美国官员表示，美国总统拜登与中（共）国国家主席习近平“原则上达成协议”，将在年底前举行一场线上峰会。
 
-（爱惜生命 远离疫苗）
+据报道，沙利文和杨洁篪的这场闭门会议，不仅承接了拜登与习近平9月10日的通话，同时也是双方自3月份在阿拉斯加进行激烈言词交锋之后的首次面对面接触。
 
-**1.[日本发现能传染人类新病毒：可致39度高烧 至少7人感染](https://health.huanqiu.com/article/453k0Gd5EU5)**
+在这场长达6小时的会谈结束后，中共国外交部表示，双方此次交流具有建设性，且态度坦诚。《路透社》则引述美国一位资深官员的说法报道称，苏黎世会面是“拜登政府与中（共）国有过的最深入的对话”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip253.png)
+据悉，双方原则上同意在年底前举办中美领导人线上峰会。白宫发言人莎琪（Jen Psaki）表示，目前仍在研究峰会将如何呈现及何时举行，部分细节尚未掌握。
 
-据《环球网》援引《海外网》2021年10月6日电，日本科学家松野发现了一种此前未知的、可传染给人类的新病毒——“Yezo病毒”，该病毒可导致高达39度的高烧;最早是2019年发现，1名41岁的男子在日本北海道森林里散步时被蜱虫叮咬感染未知病毒，之后因发烧和腿痛入院；至今已有7人感染了这种病毒，并没有出现死亡。
+据报道，在此次会议上，沙利文提出美方有兴趣与中（共）国共同合作，以因应重大跨国挑战领域，以及管理美中关系风险的方法；同时他也对中（共）国在人权、新疆、香港、南海及台湾的相关作为表示关切。沙利文表示，在持续投资自身国力，并与盟友及合作伙伴密切合作的同时，美方将继续与中（共）国进行高层接触，以确保负责任的竞争。
 
-**2. [台湾拟引进抗病毒药物治疗中共病毒](https://www.taiwannews.com.tw/en/news/4307846)**
+杨洁篪则表示，中美双方应“加强战略沟通，妥善管控分歧，避免冲突对抗，寻求互利共赢”。他还反对以“竞争”来定义中美关系，并要求美方停止在“涉台、涉港、涉疆、涉藏、涉海、人权”议题上干涉中（共）国的内政。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip254.png)
+中国外交部也表示中美双方就“气候变化和共同关心的地区问题交换了意见”，并同意“就重要问题保持经常性对话和沟通”。
 
-据《台湾英文新闻》2021年10月6日电，默克和 Ridgeback Biotherapeutics 合股在 10 月 1 日的新闻稿中宣布，对于具有轻度至中度症状的高危、非住院中共病毒（COVID-19）患者，莫诺拉韦（molnupiravir）可将其住院或死亡风险降低约 50%；中央流行病指挥中心（CECC）负责人陈时中（陈时中）周三（6日）表示，台湾将在11月底积极争取获得用于治疗 COVID-19 的口服抗病毒药莫奈拉韦。
+在沙利文与杨洁篪举行会谈前，中共在国庆期间向台湾防空识别区派出了近150架战机，台海局势快速升温。对此，正在法国巴黎出访的美国国务卿布林肯10月6日批评称，中（共）国的行动不仅具有“挑衅”的性质，还有造成“误判”的风险，可能损害区域的和平与稳定。
 
-**3. [默克以 40 倍于生产成本的价格向美国出售由纳税人出资研究的中共病毒药丸](https://www.thegatewaypundit.com/2021/10/update-merck-sells-federally-financed-covid-pill-us-40-times-costs-produce/)**
+布林肯敦促中共停止在军事、外交和经济上对台湾进行施压和胁迫，重申美国对台湾的承诺坚如磐石，并称美国会与盟友合作，推进共同繁荣、共同安全和共同价值，继续深化与民主台湾的关系。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip255.png)
+在前一天的10月5日，拜登也曾在白宫表示，他与习近平谈过台湾议题，双方同意遵守有关台湾的协议，并称他不认为习会做出任何超出协议的举动。
 
-据《门户网》2021年10月6日电，在发现羟氯喹在早期[成功治疗中共病毒](https://c19hcq.com/)一年多之后，在发现伊维菌素在治疗（尤其是[在印度](https://www.thegatewaypundit.com/2021/09/huge-uttar-pradesh-india-announces-state-covid-19-free-proving-effectiveness-deworming-drug-ivermectin/)）中共病毒方面取得惊人成功的几个月后；上周，主流假新闻媒体对默克公司发现了治疗 COVID 病毒的药物的消息，表示欢迎。
+《路透社》的报道指出，拜登指的似乎是华盛顿长期以来的“一个中国政策”，也就是承认北京而不是台北；另一个有关的协议则是《台湾关系法》，该法案明确指出，台湾未来的所有问题必须通过对话和平解决，并得到台湾人民的同意。
 
-默克不是免费赠送他们的新药，新药莫奈拉韦的售价相当于生产成本（来自美国纳税人）的 40 倍；这是大型制药公司的又一次胜利。
+笔者是个政治小白，对这种政治角力，各种桌面上和桌面下的交易和妥协，看不太清楚。不过，在笔者看来，此次会谈前后的一系列举动似乎给人的感觉是，拜登政府是向中共低头了，无论是孟晚舟事件，还是近期美国贸易代表戴琦要在关税上对中共做出部分松绑的举动，以及此次苏黎世会谈表达与中共合作的态度。
 
-**4.  [Fauci 和 HHS 官员曾策划“一种新的禽流感病毒”以强制执行疫苗护照](https://www.thegatewaypundit.com/2021/10/explosive-video-emerges-fauci-hhs-officials-plotting-new-avian-flu-virus-enforce-universal-flu-vaccination-video/)**
+从阿拉斯加会谈被中共骂得狗血淋头却毫无反击，到这次沙利文不敢提“对抗”只敢提“竞争”，却仍被“杨娘娘”毫不客气地提出反对，美国又一次丢了面子。中共国国内官媒一片欢腾，各种胜利宣言，各种对美国的不屑与嘲笑，大肆宣扬中共国又赢啦、美国终于改正错误重回正轨啦等等。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip256.png)
+中共释放中共病毒这一生物武器令美国超过70万人死亡、几千万人染疫。美国政府不去深究中共病毒和疫苗真相，追究中共刽子手的责任，居然还要与中共这个恶魔谈合作！美国人民，这样的政府真是你们想要的吗？！
 
-据《门户网》2021年10月6日电，[Infowars 的](https://www.infowars.com/posts/monday-night-emergency-broadcast-video-of-fauci-and-hhs-plotting-to-stage-massive-health-scare-using-new-virus-emerges/)亚历克斯·琼斯 (Alex Jones)周一（4日）晚上特别广播了一段有关福奇的爆炸性[C-SPAN视频](https://www.c-span.org/video/?465845-1/universal-flu-vaccine)，HHS 官员和其他健康专家于 2019 年 10 月在华盛顿特区的米尔肯研究（Milken Institute）所组织的峰会上，讨论了如何实施疫苗护照；这些片段证明了中共病毒（COVID-19）大流行是计划好的，并且大型制药公司与联合国和其他腐败的政府官员早有预谋，开发和启动了 COVID-19 病毒世界“大重置”。
+注：本文仅代表作者观点
 
-在这段视频中，他们设想了一场来自中共国的新型禽流感病毒的新演习，这样他们就可以绕过 FDA 批准的方法，向大众实施 mRNA 毒疫苗；与 Fauci、Rick Bright 和 Michael Specter 一起参加此次活动的还有：美国国家医学科学院外交大臣 Margaret Hamburg、Sabin 疫苗研究所全球免疫总裁 Bruce Gellin、FluLab 首席执行官 Casey Wright，他们需要向全球发起生物武器攻击，让许多人渴望能够推出一种新的 mRNA 疫苗（另一种生物武器），以供公众测试（要钱也要命）。
-
-**5. [疫苗和中共病毒等同种族灭绝和危害人类罪，进行刑事起诉](https://theexpose.uk/2021/10/04/international-criminal-court-to-begin-criminal-prosecution-of-world-leaders-for-covid-genocide-with-your-help/)——[点击并签名](https://www.petitions.net/investigation_and_prosecution_of_those_individuals_responsible_for_crimes_against_humanity) **
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip257.png)
-
-据《吹哨人》2021年10月4日电，由于大量证据证明世界各国政府及其顾问参与了种族灭绝、危害人类罪和违反纽伦堡法典，世界各地的律师最近向国际刑事法院（ICC）提交了调查请求；这些证据包括理查德·弗莱明博士和诺贝尔奖获得者吕克·莫塔尼耶教授的宣誓证词，以及纳粹集中营幸存者的支持。
-
-律师们一直在耐心等待国际刑事法院的回应，但由于** ****Covid-19 **疫苗伤害儿童的情况正在发生，律师和他们的专家证人迫切需要您的帮助，通过签署理查德**·**弗莱明博士创建的请愿书来敦促国际刑事法院接受调查请求，并开始对提交的证据中确定的个人进行调查和刑事起诉；一旦国际刑事法院做出决定，我们将及时向您通报调查请求的结果。
-
-纳粹集中营大屠杀的幸存者写给国际刑事法院的信（[可在此处全文阅读](https://theexpose.uk/wp-content/uploads/2021/09/We-For-Humanity-letter-to-ICC-20.9.2021.pdf)）
-
-[**签署请愿书**](https://www.petitions.net/investigation_and_prosecution_of_those_individuals_responsible_for_crimes_against_humanity)
-
-**6. [辉瑞科学家说他为“一个邪恶的公司”工作](https://theexpose.uk/2021/10/05/pfizer-scientist-caught-on-film-stating-natural-antibodies-are-much-better-than-the-pfizer-covid-19-vaccine/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip258.png)
-
-据《吹哨人》2021年10月5日电，在《真相工程》发布的秘密镜头中，为辉瑞公司工作的科学家尼克·卡尔表示，天然抗体要好得多，因为它们可以攻击整个病毒系列，而不仅仅是中共病毒（Covid-19）疫苗所针对的单个病毒变体；辉瑞公司的科学家 Rahul Khandke 说：“我们是为了工资，被教导说疫苗免疫比自然免疫更安全……如果你有抗体，这就足够了。”
-
-虽然辉瑞的高级科学家克里斯克罗齐说，他觉得自己在为“邪恶的公司”工作，接种疫苗的人仍然生病，因为他们的中共疫苗产生的抗体正在减弱，这与新的德尔塔关变体。完整视频报告：[点击这里](https://videopress.com/ade26147-2702-4f27-99d2-05afdced4060)。
-
-（文章仅代表作者本人观点，与Gnews无关）
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+**新闻链接**： [https://twitter.com/dw\_chinese/status/1445926888782716928](https://twitter.com/dw_chinese/status/1445926888782716928)

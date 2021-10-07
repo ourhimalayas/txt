@@ -2,18 +2,15 @@
 ---
 
 
-## 雅典娜时报-第074期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1577978/)
+## 秘翻在线：拜登政府秘密命令谷歌追踪用户数据
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1577985/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+#### 撰稿：nstar
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/10/072.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/071.png)
-***发布：小红帽***
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16335692751.png)[图片来源](https://assets.gnews.org/wp-content/uploads/2021/10/16335692751.png)
+据《雅虎新闻》10月5日报道，拜登政府正在秘密向谷歌发出指令，要求谷歌提供所有输入特定搜索词者的用户数据，这引发了人们的担忧，即无辜的在线用户可能会以比以前想象的更高的频率陷入严重的犯罪调查。
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+政府以追查罪犯为名，责令联邦调查人员开始使用新的“关键字搜查令”，并使用它们要求谷歌向他们提供在特定年份搜索受害者姓名或地址的任何人的信息，福布斯无意中将这份法庭文件解封发现节目。
+
+[信息来源](https://news.yahoo.com/government-secretly-orders-google-track-151000879.html)

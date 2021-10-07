@@ -2,25 +2,47 @@
 ---
 
 
-## 莫德纳疫苗易导致心脏炎症 瑞典和丹麦限制年轻人接种
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1577995/)
+## 美欧贸易技术会谈决定联手应对中共挑战
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1578005/)
 
-#### 撰稿：billwilliam
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-21.jpg)图片来源：网络截图
-据零对冲报道，瑞典和丹麦颁布政策限制年轻人接种莫德纳（Mordena）疫苗，原因是疫苗导致心脏发炎和严重副作用。
+作者：纽约香草山农场 – 在远方
 
-瑞典首先宣布停止向1991年或之后出生者（30岁以下）接种莫德纳疫苗。数小时后，丹麦卫生部门宣布停止向18岁或以下者接种莫德纳疫苗。
 
-据称，喊停的原因是至少一项研究发现疫苗导致危险的心脏发炎，尤其是年轻人。瑞典公共卫生部的公告称：“原因是副作用增加的信号，例如心肌炎、心包炎。”
 
-但是瑞典并没有叫停所有mRNA疫苗。瑞典卫生部门称他们推荐这个年龄段的人接种辉瑞疫苗；这个年龄段已经接种一针莫德纳疫苗的人不需要接种第二针（但不清楚是否会要求他们再接种一针辉瑞疫苗）。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
 
-此举可能会促使其它斯堪的纳维亚国家重新审视莫德纳以及其他疫苗。瑞典和丹麦的公告发布后，莫德纳股价大幅下挫，雅虎财经显示其盘终跌幅达-8.94%。
 
-郭文贵先生引领的爆料革命早就指出疫苗是中共用来进一步毒害人类的生化武器。此次瑞典和丹麦的禁制令对于未来全面禁止疫苗接种迈出了一小步。国际社会正在逐渐意识到毒疫苗带来的灾难。
 
-参考资料：
+9月29日，美国和欧盟启动了“美国-欧盟贸易和技术委员会”（TCC）首次正式会谈，旨在加强美国和欧盟对核心战略技术的协调，维护供应链安全和减少对中共国的经济依赖。会后，双方发表了暗指中共的联合声明，强调共享民主价值观并承诺共同应对“正在破坏世界贸易体系的非市场经济国家”。
 
-1. [https://www.zerohedge.com/covid-19/sweden-denmark-restrict-use-moderna-jab-over-risk-heart-inflammation-other-side-effects](https://www.zerohedge.com/covid-19/sweden-denmark-restrict-use-moderna-jab-over-risk-heart-inflammation-other-side-effects)
-2. [https://finance.yahoo.com/quote/MRNA?p=MRNA&.tsrc=fin-srch](https://finance.yahoo.com/quote/MRNA?p=MRNA&amp;.tsrc=fin-srch)
+![](https://gdb.voanews.com/B6DA51B9-A088-45E1-8C38-3FFFA64B999E_w1023_r1_s.jpg)图片来源：路透社
+
+值得注意的是，双方将就外国投资筛选和出口管制进行协作，意图对中共长期通过投资和进口来获取欧美先进技术的行为展开进一步打击。另外，针对中共高压维稳政策，特别是用高科技监控国内百姓，尤其是新疆穆斯林，并向全球多个国家出口监控民众技术的做法，美欧还成立了小组，专门打击“威胁安全和人权的技术滥用”，包括打击任意或非法监控，并保护民众言论自由和隐私权等基本人权。
+
+由于中共国长期不遵守国际贸易协定，让美欧对中共强制技术转让、非法补贴和国企的流氓反竞争行为感到十分不满，所以此次会谈让美欧这两个世界上最重要的经济伙伴政策立场趋于一致，决定联合反击中共的地缘政治野心。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+[美欧对华立场趋于一致，联手应对中（共）国挑战](https://www.voachinese.com/a/china-technology-trade-security-20210930/6252423.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)

@@ -2,41 +2,51 @@
 ---
 
 
-## 新加坡AI聊天机器人：因中共病毒问题的错误回复被禁用
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1578092/)
+## 福奇的NIAID资助下的美国研究所帮助培训中共科研人员
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1578101/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/新加坡.jpg)
-图片来源：ns.sg
+栏目记者/责任编辑：圣母院钟声
 
-整理报道：小红帽
 
-新加坡卫生部 (MOH) 日前关闭了一个聊天机器人工具“Ask Jamie”，因为它对有关中共病毒（Covid-19）的问题发出了一系列“错误”的回复，其中包括安全性行为建议。这些失误在网上被广泛流传。
 
-当 该人工智能聊天机器人被一位女儿检测出中共病毒呈阳性的家长询问该怎么做时，它回答说：“你应该通过正确和持续地使用避孕套来进行安全的性行为，或者禁欲，至少在你的女性伴侣怀孕的整个期间实施安全性行为。”
-![](https://assets.gnews.org/wp-content/uploads/2021/10/mi_askjamie_041021.jpg)
-图片来源：straitstimes.com
 
-类似错误的屏幕截图在本周初出现在网上。在Reddit上甚至出现了一个专门的帖子，引发了关于中共病毒成为STD（性传播疾病）的笑话。
 
-在回答有关新加坡居民在哪里可以获得ART（抗原快速检测）的问题时，聊天机器人提供了一个无关的答案，即“脊髓灰质炎疫苗在综合诊所、私人诊所以及旅行者诊所都可以得到”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-但是，如果问题的措辞不同，聊天机器人会提供适当的建议——“让中共病毒阳性者保持冷静并留在他们的住宿地点或指定的医疗机构，同时等待前往医院的“必要交通安排”。
 
-由于“不一致”的答复，卫生部告诉当地媒体，它已在周一“暂时禁用”聊天机器人，以“进行彻底的系统检查并进行改进”。然而，据媒体报道，“Ask Jamie”在其他几个政府网站上仍然在运行。
 
-该聊天机器人由新加坡政府技术机构 (GovTech)于2014年开发，并部署在70个政府机构网站上。据报道，在大流行期间，GovTech鼓励居民使用该工具（被一家软件提供商吹捧为“世界上第一个全政府虚拟助理”）解决与中共病毒相关的问题。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
 
-**参考新闻：**[Abstinence & condoms? AI chatbot in Singapore dropped after giving strange advice about testing positive for Covid-19 — RT World News](https://www.rt.com/news/536726-abstinence-condoms-chatbot-singapore-covid/)
 
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据《国家脉动》10月4日报导：一封泄露的福奇博士和国家艾滋病规划署资助的加尔维斯顿国家实验室主任杰姆斯.勒杜克(James LeDuc) 之间的电子邮件被曝光，显示由福奇担任所长的NIAID**（**国家过敏和传染病研究所）资助了加尔维斯顿国家实验室，用那里的生物安全四级（BSL4）实验设施培训来自中共国的科学家， 涉及的有中国农业科学院（哈尔滨生物安全四级实验室）、中国科学院（武汉生物安全四级实验室）和中国医学科学院（昆明生物安全四级实验室）等。这些研究人员与中国冠状病毒的起源有关。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-3.jpg)
+这封2017年的电子邮件显示了由国家艾滋病规划署资助的加尔维斯顿国家实验室如何直接参与在生物安全四级设施培训中国科学家的细节。重要的是，这些设施可以处理通过气溶胶传播的,可导致人类致命的病原体。勒杜克强调了上述中国科研机构如何同意参观加尔维斯顿国家实验室,还提到了加强这种”合作”的重要性，以及由此会见”中国重要领导人”的机会。
+
+显然,中共的蓝金黄早已击中美国顶尖科研机构掌门人, 美国的内鬼帮助中共盗国贼集团获得可以致西方文明于死地的致命武器。在美国这样的法治国家，确着证据面前，叛国者该得到应有的惩罚。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-22.jpg)
+参考链接： 
+[Fauci’s NIAID Funded an American Institute that Helped Train Chinese Researchers from Wuhan Where COVID Is Suspected of Originating](https://www.thegatewaypundit.com/2021/10/faucis-niaid-funded-american-institute-helped-train-chinese-researchers-wuhan-covid-suspected-originating/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+终审： 鬼五
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

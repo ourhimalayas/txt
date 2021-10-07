@@ -2,41 +2,33 @@
 ---
 
 
-## MoneyGram与Stellar 和 USDC 合作进行区块链支付
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1578453/)
+## 美国司法部宣布成立国家加密执法团队
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1578457/)
 
 - **编译：西班牙喜悦农场–wenwu**
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip260.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip261.png)
 
-传统的跨境支付巨头速汇金（MoneyGram）正在与恒星（Stellar）区块链网络合作，并通过 Circle 的 USDC 稳定币创建即时汇款，这两家公司周三（6日）宣布了以上内容。
+我们需要确保人们在使用这些系统时能够充满信心，我们需要确保我们准备好根除可能影响他们的滥用行为，**”**丽莎**·**摩纳哥（**Lisa Monaco**）说。
 
-这两家公司将在今年第四季度开始进行试点。2022年初，基于账本的稳定币将在加密货币和本地流通货币之间逐步推广，为了连接速汇金的1.5亿左右容量的消费者。
+司法部长办公室的一位官员表示，美国政府将在针对利用加密货币洗钱和其他网络犯罪的行为人的执法行动中，发挥更积极的作用。
 
-“与速汇金合作，使最终消费者可以在 MoneyGram 庞大的代理网络支持下，在任何地方可以有汇出、汇进手段。因此，就能够将加密货币兑换成法定货币和将法定货币兑换成加密货币而言，这只是一种变革，”恒星发展基金会（Stellar Development Foundation）首席执行官兼执行董事 Denelle Dixon 在接受采访时，表示：“我们正在努力尽可能地做大。”
+司法部副部长丽莎·摩纳哥周三（6日）在阿斯彭研究所网络峰会上发表讲话[说](https://www.youtube.com/watch?v=WfjGHD1n7gU)，司法部已经启动了国家加密货币执法小组，该项目旨在追查“帮助犯罪分子洗钱或隐藏犯罪收益”的平台。摩纳哥[引用了她的办公室](https://cointelegraph.com/news/darknet-crypto-mixer-operator-pleads-guilty-to-laundering-300m-in-btc)在 8 月针对基于暗网的比特币 ( [BTC](https://cointelegraph.com/bitcoin-price) ) 混合服务 Helix [所做的工作](https://cointelegraph.com/news/darknet-crypto-mixer-operator-pleads-guilty-to-laundering-300m-in-btc)，但她表示美国政府应该做更多。
 
-这一消息将给瑞波公司（Ripple）一记耳光，Ripple 是加密货币支付网络，在美国证券交易委员会 (SEC)于 2020 年 12 月[对 Ripple 提起诉讼](https://www.coindesk.com/policy/2020/12/22/sec-sues-ripple-over-7-year-13b-ongoing-xrp-sale/)后，称 Ripple 公司违反了联邦证券法后， Ripple 与速汇金的长期合作关系也随之结束。
+摩纳哥说：“我们希望加强我们的能力，拆除使这些犯罪行为人能够蓬勃发展的金融生态系统，并且—坦率地说–从他们的加密货币系统中获利；我们将利用我们的网络专家、网络检察官，以及洗钱专家来做到这一点。”
 
-速汇金董事长兼首席执行官 Alex Holmes 指出，此次与 Stellar 的合作关系和 MoneyGram 与 Ripple 的关系完全不同，后者利用加密货币公司的按需流动性（ODL）来促进外汇（FX）交易。
+她补充说：
 
-Holmes 表示，与 Stellar 的合作范围更大，因为它直接涉及消费者支付。
+**“**加密货币交易所希望成为未来的银行。我们需要确保人们在使用这些系统时能够充满信心，并且我们需要确保我们准备好根除可能在这个加密货币系统上，发生的滥用行为。**”**
 
-撇开 Ripple 的原生加密货币（XRP）在法律上，是否是一种证券形式的问题不谈，这家公司正在努力的远见，产生了一定的局限性。
+摩纳哥一直是美国政府应对涉及加密货币支付的重大勒索软件和网络攻击的核心人物。她是[一个特别工作组的成员](https://cointelegraph.com/news/us-officials-recover-2-3m-in-crypto-from-colonial-pipeline-ransom)，[该工作组](https://cointelegraph.com/news/us-officials-recover-2-3m-in-crypto-from-colonial-pipeline-ransom)在 5 月份俄罗斯对 Colonial Pipeline 系统进行攻击后，”发现并夺回了”支付给俄罗斯 DarkSide 黑客的价值数百万美元的比特币。
 
-“这个过程奏效了，” Holmes 在接受采访时说。“加密货币市场的挑战在于我们试图在不同的世界中创建外汇市场。它真的需要更多的时间来实现它，并使其发挥作用；另一个挑战是，因为我们交易的是 XRP，不幸的是，这会带来价格波动。”
-
-银行通常对接触加密货币感到不安。 Holmes 表示，德克萨斯联合银行（United Texas Bank）将作为 Circle 和 MoneyGram 之间的结算银行，受益于采用渐进式方法，德克萨斯州也是如此。
-
-“德克萨斯州对加密货币持相当积极的立场，州长发表了一些评论，” Holmes 说。“德克萨斯联合银行是这里的一家老牌银行，非常专注于加密货币领域的机会。并非每家银行都愿意涉足加密货币世界，我认为这充分说明了该银行的努力是多么的远见。”
-
-在日益[升温的](https://www.coindesk.com/business/2021/10/05/sec-subpoenas-usdc-stablecoin-backer-circle/)监管环境中，[CoinDesk 本周报道称](https://www.coindesk.com/business/2021/10/05/sec-subpoenas-usdc-stablecoin-backer-circle/)，Circle 收到了美国证券交易委员会的传票。那么对于 MoneyGram 来说，这是否又像是似曾相识呢？
-
-“我已经习惯了监管，” Holmes 说，“不幸的是，很多监管最终都变成了一种回顾。我认为区块链世界和数字资产世界 [已经] 真正加速发展了，现在我看到很多监管机构都希望迎头赶上。”
+副司法部长摩纳哥还宣布了一项民事网络欺诈计划，旨在追查未能报告违规行为并遵守安全标准的政府承包商。
 
 （文章仅代表作者观点** **与**GNEWS**无关）
 
-**新闻来源：《[Coindesk](https://www.coindesk.com/business/2021/10/06/moneygram-partners-with-stellar-and-usdc-for-blockchain-based-payments/)》｜作者：伊恩·艾利森｜发布时间：2021年10月6日｜**
+**新闻来源：《[虚拟货币电报](https://cointelegraph.com/news/us-justice-dept-announces-launch-of-national-crypto-enforcement-team)》｜作者：特纳·赖特｜发布时间：2021年10月6日｜**
 
 * * *
 
