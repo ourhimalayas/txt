@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/7/2021 3:11 AM (UTC)`
+
+10月6号：尊敬的战友们好，由于很多重大的事件要紧急的开会，明天，后天都没有大直播，一切都已经开始。 !!!!!!<br/><br/>https://mobile.twitter.com/thewuhanclan/status/1445940092565065730
+![img](https://media.gettr.com/group31/getter/2021/10/07/03/11/d4dbd017-66fe-96d9-6f1f-702ef98e7d61/out.jpg)
+
+---
+
 `@miles 10/7/2021 2:22 AM (UTC)`
 
 10/06/2021 Miles Guo’s GETTR: PAG (Hong Kong) mainly connected and deceived the Jewish investors, and further manipulated stock markets by deceiving institutional and individual investors in the West, and when all these are revealed one day, something big will happen inside of the Chinese legal community; various of situations inside of CCP China are all in mess<br/><br/>10/06/2021 文贵盖特：香港太盟投资(PAG)以联络欺骗犹太投资圈为主、哄抬股市、欺骗西方机构投资人和小股东，这个雷爆的时候中国律师界要出大事儿；国内各种形势一塌糊涂<br/>
@@ -289,13 +296,6 @@ WOW WOWWOW🙏🙏🙏🙏🔥🔥🔥👇👇👇👇👇👇👇👇👇👇�
 
 2015年，傅振华与郭文贵先生的秘密通话（下）<br/>傅以郭先生家人和其本人人身安全为威胁，要求郭先生把人、钱、资产安排回国，同时，要求文贵先生查清王岐山、孟建柱海外资金和不正当男女关系情况，并声称这是习近平的指示。傅爆出孟决策的执行人是孙力军，吴征代表孙力军和孟建柱<br/><br/>In 2015, Fu Zhenhua had a secret call with Mr. Guo Wengui（Part 2-2)<br/>Fu threatened Mr. Guo's family and his own personal safety and asked Mr. Guo to arrange the return of his family members, money and assets back to China, and at the same time, asked Mr. Wengui to find out about Wang Qishan and Meng Jianzhu's overseas funds and inappropriate sexual relationships, claiming that this was a directive from Xi Jinping. Fu exploded that Sun Lijun is the executive of Meng Jianzhu's decision, and Wu Zheng (Bruno Wu) represents Sun Lijun and Meng Jianzhu
 ![img](https://media.gettr.com/group14/getter/2021/10/02/17/19/73bb2fe1-7b64-9478-87bb-26fd2e556fdb/out.jpg)
-
----
-
-`@miles 10/2/2021 5:08 PM (UTC)`
-
-2015年，傅振华与郭文贵先生的秘密通话（上）<br/>傅以郭先生家人和其本人人身安全为威胁，要求郭先生把人、钱、资产安排回国，同时，要求文贵先生查清王岐山、孟建柱海外资金和不正当男女关系情况，并声称这是习近平的指示。傅爆出孟决策的执行人是孙力军，吴征代表孙力军和孟建柱<br/><br/>In 2015, Fu Zhenhua had a secret call with Mr. Guo Wengui（Part 1-2)<br/>Fu threatened Mr. Guo's family and his own personal safety and asked Mr. Guo to arrange the return of his family members, money and assets back to China, and at the same time, asked Mr. Wengui to find out about Wang Qishan and Meng Jianzhu's overseas funds and inappropriate sexual relationships, claiming that this was a directive from Xi Jinping. Fu exploded that Sun Lijun is the executive of Meng Jianzhu's decision, and Wu Zheng (Bruno Wu) represents Sun Lijun and Meng Jianzhu
-![img](https://media.gettr.com/group39/getter/2021/10/02/17/08/d09c4679-80b0-8e07-b021-891de1eebf2b/out.jpg)
 
 ---
 
