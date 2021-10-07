@@ -2,27 +2,44 @@
 ---
 
 
-## 中共房地产将引爆世界 布林肯呼吁负责任地处理恒大危机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1578250/)
+## 有声| 美联储放风：准备启动对央行数字货币利弊的审查
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1578356/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+配音：香草山教育部-蒙古鸿雁
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/36-1Q226164Q51B.png)[图片来源](http://www.lunwenstudy.com/shengtaijj/138005.html)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-据美国之音中文网10月7日讯，正在巴黎访问的美国国务卿布林肯（Antony Blinken）呼吁中共负责任地处理恒大债务危机。布林肯的发言是拜登政府官员首次就恒大债务危机发表看法。
 
-布林肯是星期三（10月6日）在巴黎接受彭博电视台访问时对目前困扰中共的恒大集团债务危机发表了看法。布林肯呼吁中共以“负责任”的行动，处理恒大债务危机可能带来的影响。布林肯表示，“中国必须自主作出其经济决定，但我们也知道，中国经济上的行动会对实际上整个世界产生重大的影响、重大的冲击，因为我们所有的经济都已经如此高度融合。”“因此，当然，当涉及到可能对中国经济产生重大影响的事情时，我们期待中国采取负责任的行动，有效地应对任何挑战。”布林肯说。
 
-中共房地产高度金融化且严重泡沫化，中共通过与世界的经济融合与金融通联，给全世界埋下了巨大的金融炸弹，当前的恒大已经成为“中国的雷曼兄弟”，全球主要基金均参与其中，恒大危机冲击的不仅是中国甚至是全球金融和经济。
 
-四年多的爆料革命，郭文贵先生一直不断地向世界揭露中共房地产和金融“假骗偷”的本质。但令人遗憾的是，由于贪婪与侥幸，世界终究还是被中共裹挟走到了最危险地步。当前，中共围绕“20大”的内斗已全面展开，作为中共内斗支点之一的恒大恐将随时被引爆。
 
-信息来源：
 
-[布林肯呼吁北京停止“挑衅”台湾并负责任地处理恒大债务危机](https://www.voachinese.com/a/Blinken-urges-China-to-halt-provocative-actions-toward-taiwan-20211006/6259852.html)
 
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
+零对冲10月4日晚援引《华尔街日报》消息，作为对欧洲央行和中共国央行数字货币（CBDC）项目的回应，美联储最早可能在本周发布关于CBDC的官方报告，以开始对央行数字货币利弊的审查，并承诺在审查期间征求公众意见。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+美联储高级官员们对央行数字货币一直表现得意见不一，犹豫不决，他们称迄今为止的相关研究是早期和探索性的，理论上讲，该系统将允许美联储直接把钱存入普通美国人的 “数字钱包”，这种权力最终可能使整个私人银行系统过时，现金消失，美联储将可以监控每个美国人的财务状况。
+
+
+
+**文字版原文：[美联储放风：准备启动对央行数字货币利弊的审查](https://gnews.org/zh-hans/1576821/)**
+
+
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

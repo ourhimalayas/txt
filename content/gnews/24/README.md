@@ -2,25 +2,27 @@
 ---
 
 
-## 莫德纳疫苗易导致心脏炎症 瑞典和丹麦限制年轻人接种
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1577995/)
+## 中共国多个港口悄然开放澳洲煤进口
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1578077/)
 
-#### 撰稿：billwilliam
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-21.jpg)图片来源：网络截图
-据零对冲报道，瑞典和丹麦颁布政策限制年轻人接种莫德纳（Mordena）疫苗，原因是疫苗导致心脏发炎和严重副作用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-瑞典首先宣布停止向1991年或之后出生者（30岁以下）接种莫德纳疫苗。数小时后，丹麦卫生部门宣布停止向18岁或以下者接种莫德纳疫苗。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/text-SC-5.png)
+文章仅代表作者本人观点，与Gnews无关
 
-据称，喊停的原因是至少一项研究发现疫苗导致危险的心脏发炎，尤其是年轻人。瑞典公共卫生部的公告称：“原因是副作用增加的信号，例如心肌炎、心包炎。”
+视频参看： 2021.10.06晚GTV新闻访谈
 
-但是瑞典并没有叫停所有mRNA疫苗。瑞典卫生部门称他们推荐这个年龄段的人接种辉瑞疫苗；这个年龄段已经接种一针莫德纳疫苗的人不需要接种第二针（但不清楚是否会要求他们再接种一针辉瑞疫苗）。
+[https://gtv.org/broadcast/watch/615e3f24304e992109b0a606](https://gtv.org/broadcast/watch/615e3f24304e992109b0a606)
 
-此举可能会促使其它斯堪的纳维亚国家重新审视莫德纳以及其他疫苗。瑞典和丹麦的公告发布后，莫德纳股价大幅下挫，雅虎财经显示其盘终跌幅达-8.94%。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-郭文贵先生引领的爆料革命早就指出疫苗是中共用来进一步毒害人类的生化武器。此次瑞典和丹麦的禁制令对于未来全面禁止疫苗接种迈出了一小步。国际社会正在逐渐意识到毒疫苗带来的灾难。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
 
-参考资料：
-
-1. [https://www.zerohedge.com/covid-19/sweden-denmark-restrict-use-moderna-jab-over-risk-heart-inflammation-other-side-effects](https://www.zerohedge.com/covid-19/sweden-denmark-restrict-use-moderna-jab-over-risk-heart-inflammation-other-side-effects)
-2. [https://finance.yahoo.com/quote/MRNA?p=MRNA&.tsrc=fin-srch](https://finance.yahoo.com/quote/MRNA?p=MRNA&amp;.tsrc=fin-srch)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
