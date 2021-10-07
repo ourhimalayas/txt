@@ -2,41 +2,48 @@
 ---
 
 
-## 莫德纳不顾疫苗副作用，仍向加拿大卫生部提交加强针申请
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1578497/)
+## 台湾总统蔡英文：台湾若落入中共国手中，将是一场灾难
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1578604/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/莫德纳.jpg)
-图片来源：EDUARDO MUNOZ ALVAREZ / POOL/AFP via Getty Images
+*【简评：】 蔡英文总统称台湾为“现代政治史上民主转型最成功的范例之一”，并称台湾在两岸关系上立场不变：“遇到压迫不屈服，得到国际支持也不冒进。如果台湾的民主和生活方式遭受威胁，台湾必将竭尽全力捍卫自己。”然而，现实情况不容忽视，一旦中共攻台（几乎注定会发生），台湾将在短时间内沦陷，美国和日本根本指望不上。台湾的未来在哪里？蔡英文只是一个专业的政治家，太软弱，太表面化，太政客了，台湾需要一个智慧的、有国际视野的、无私的领导人，跳出统独之圈，打破所谓的九二共识魔咒，与美国和新中国联邦合作，否则没有任何选择。*
 
-整理报道：小红帽
+据《路透社》记者：Ben Blanchard，2021年10月5日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-34.jpg)2020 年10月6日，台湾总统蔡英文在总统府国庆庆典灯光秀前发表讲话。图片来源：路透社/Ann Wang
+2020 年10月6日，台湾总统蔡英文在总统府国庆庆典灯光秀前发表讲话。图片来源：路透社/Ann Wang
 
-自从实施疫苗接种以来，欧洲各国年轻人陆续出现心肌炎和其它严重的副作用，因此瑞典和丹麦颁布政策以限制年轻人接种莫德纳（Mordena）疫苗。然而，莫德纳公司不顾疫苗的副作用，仍向加拿大卫生部提交了Spikevax【注：莫德纳疫苗的一个品牌】加强针的审批申请。
+《路透社》台北10月5日 —— 台湾总统蔡英文周二在《外交事务》杂志上撰文称，如果台湾落入中共国之手，将对亚洲和平造成“灾难性”后果。如果受到威胁，台湾将倾尽全力自我防卫。
 
-据悉，该加强针的剂量是目前使用的第一剂和第二剂疫苗接种剂量的一半。
+中共国声称台湾是其领土主权的一部分，自上周五以来，中共国148架次军机连续四天飞入台湾防空识别区，台湾面临着来自北京的巨大压力。
 
-上个月，莫德纳公司宣称，有迹象表明，人们距离接种疫苗的时间越长，免疫力就越弱。
+中共国将紧张局势升级归咎于美国（台湾最重要的国际支持者和先进武器供应商），而台湾则称中共国是当前局势的“罪魁祸首”。
 
-国家免疫咨询委员会 (NACI) 建议为高风险的加拿大人（例如长期住在护理院的居民，以及中度至重度的免疫功能低下的人）接种中共病毒（COVID-19）的加强针。
+蔡英文在《外交事务》中写道，随着各国越来越认识到中国共产党构成的威胁，他们也应该了解与台湾合作的价值。
 
-今年初，加拿大总理贾斯汀·特鲁多 (Justin Trudeau) 曾宣布，该国将从辉瑞 (Pfizer) 获得3500万剂的疫苗加强针。
+“他们应该记住，如果台湾沦陷，地区和平以及民主联盟体系将遭受灾难性的后果。那也意味着在今天全球性的价值观竞争中，威权主义比民主更占上风。” 蔡英文写道。
 
-加拿大卫生部表示，国家免疫咨询委员会将继续监测关键人群和普通公众接种加强针的剂量，并将根据需要更新指南。
+中共国认为蔡英文是分裂主义者，拒绝接受台湾是“一个中国”的一部分，并切断了与台湾的对话。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+蔡英文说台湾是一个独立的国家，正式名称为中华民国。
 
-**参考新闻：**
+她写道，台湾不寻求军事对抗，而是希望与邻国在和平、稳定、可预测而且互惠的原则下共存。
 
-1. [Moderna submits for approval of Spikevax booster dose to Health Canada (citynews.ca)](https://toronto.citynews.ca/2021/10/06/moderna-covid-19-vaccine-booster/)
-2. [Sweden, Denmark Restrict Use Of Moderna Jab Over Risk Of Heart Inflammation, Other Side Effects | ZeroHedge](https://www.zerohedge.com/covid-19/sweden-denmark-restrict-use-moderna-jab-over-risk-heart-inflammation-other-side-effects)
+“但如果它的民主和生活方式受到威胁，台湾将不惜一切代价自我防卫。”蔡英文补充说，如果台湾的存在受到威胁，台湾人民会“站起来”，并明确表示民主是没有商量余地的。
 
+她重申了与中国对话的呼吁，只要对话是本着平等精神、没有政治先决条件的，对此，北京一再拒绝。
 
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
+“在中国人民解放军几乎每天都出动军机绕台的情况下，我们对两岸关系的立场是不变的。台湾不会屈服于压力，但也不会冒险，即使它得到了国际社会的支持。”
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+蔡英文写道，台湾既是一个充满活力的民主国家，也受到西方影响，但同时也受到中华文明的影响和亚洲传统的塑造。
+
+“台湾凭借其固有的存在和持续繁荣，既是对中共价值观的一个碰撞，也是中共区域野心的一个阻碍。”
+
+原文连接：https://www.reuters.com/world/asia-pacific/taiwan-president-warns-catastrophic-consequences-if-it-falls-china-2021-10-05/
+
+（本文评论仅代表个人观点）
+
+翻译/评论：洛杉矶盘古农场 – 钢蛋儿
+校对/编辑：洛杉矶盘古农场 – 明子
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

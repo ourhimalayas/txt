@@ -2,39 +2,21 @@
 ---
 
 
-## 台湾总统：如果台湾落到中共手里，后果是“灾难性的”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1578496/)
+## Moderna疫苗：因心肌炎风险而停止为年轻人接种第二剂
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1578595/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/istockphoto-500685969-170667a-1.jpg)
-**摘要翻译：**
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10074.jpg)
+Moderna 疫苗重新成为人们关注的焦点，北欧出现了一系列关于非常罕见的副作用（如心肌炎）的突发新闻。在一些国家，决定对某些年龄组暂停接种：在瑞典和丹麦，一些报告表明，与接种疫苗相比，接种第二剂 Spikevax（Moderna 疫苗）后，年轻男性患心肌炎的风险可能更高。关于第二剂辉瑞的 Comirnaty – BioNTech，还需要其他评估。
 
-在中共国数十架军机飞越台湾防空识别区，这一挑衅行为引起了美国的深切关注后，台湾总统蔡英文警告说，如果台湾落入中共手里，将是“灾难性”的后果。
+在瑞典和丹麦宣布暂停对 30 岁以下和 18 岁以下人群接种 Spikevax 疫苗后，欧洲药品监督局(EMA)将评估新数据以确定是否有必要更新产品信息中的当前建议。瑞典公共卫生局解释说：“关于心肌炎和心包炎等副作用的报告正在增加”。
 
-蔡英文在周二发表的《外交事务》一文中写道：“他们应该记住，如果台湾沦陷，对地区和平及民主同盟体系将是灾难性的后果。这将表明，在当今全球价值观的较量中，专制独裁比民主更占优势。”
+欧盟监管机构说：”根据北欧国家（丹麦、芬兰、挪威和瑞典）的新数据分析表明，在第二剂辉瑞Comirnaty 疫苗和Moderna Spikevax疫苗 后，心肌炎发生的频率更高。初步分析表明年轻男性在第二次服用 Spikevax 后患心肌炎的风险可能高于第二次服用 Comirnaty。
 
-“但如果台湾的民主和生活方式受到威胁，台湾将不惜一切代价保卫自己，”蔡写道。
+在瑞典和丹麦的年轻人中已经暂停使用Moderan苗。挪威已经向未成年人推荐辉瑞疫苗。一位芬兰卫生官员也表示，芬兰应该在周四，即周四公布其决定。
 
-拜登总统将他的外交政策定义为一场民主与独裁的生死之战，并承诺在北京寻求扩大其在印-太地区的权力和军事存在时，对其采取更强硬的立场。
+免责申明：本文只代表译者观点，与Gnews无关
 
-**简评：**
+原文链接：[https://www.today.it/attualita/seconda-dose-vaccino-moderna-miocardite-giovani.html](https://www.today.it/attualita/seconda-dose-vaccino-moderna-miocardite-giovani.html)
 
-台湾国防部长说：当前的台海紧张局势是他从军40多年来最严峻的时候，并警告台湾海峡存在发生擦枪走火的风险。在普通大众眼里：以美国为首的民主同盟国家，除了表达关切外，继续将台湾当棋子，仅限于喊话支持台湾？
-
-然而，正如蔡英文向世界警告的那样，“如果台湾失守，不仅是台湾人民的浩劫，也将瓦解70多年来得以维持和平和卓越经济发展的安全架构。”
-
-为了应对中共国对台湾的挑衅，请以美国为首的民主国家拿出积极支持台湾的实际行动，而不是拜登总统仅限于呈现在书面或口头上的“一场民主与独裁的生死之战“的外交政策。
-
-[新闻链接](https://thehill.com/policy/international/europe/575309-taiwan-president-consequences-of-chinese-takeover-would-be)
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*翻译/简评：Brianchow | 校对：Julia Win*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦

@@ -2,58 +2,79 @@
 ---
 
 
-## 屏蔽林依然8月9日的新浪微博坐实新浪的疫苗杀人本色
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1578579/)
+## 正道主义就是当下教
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1578687/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/001_副本.jpg)
-日前我们发布了[**林依然关于疫苗的新浪微博引来无数脑梗心梗受害者留言**](https://gnews.org/zh-hans/1547117/)的文章，在文章中我们详细记录了在[林依然LLL\_](https://weibo.com/yiranbaby?refer_flag=1005055014_) [2021年8月9日 01:01](https://weibo.com/1797014755/KszfAuFd4?from=page_1005051797014755_profile&amp;wvr=6&amp;mod=weibotime) 来自 [HUAWEI P40 Pro 5G](https://app.weibo.com/t/feed/6uaYFC)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-12.jpg)https://gtv.org/video/id=615e893ed2e2b81748722dc8
+郭文贵：
+Miles Guo：
 
-#新冠疫苗副作用#有没有人打完新冠疫苗后发烧，血小板减少的？ ​​​​那条微博下的评论——
+正道主义就是当下教
+Righteousness is the present teaching
 
-在原文中我们提到：
+把当下教搞明白才能说未来
+Understand the present teaching, then you can talk about the future
 
-［但是我们要重点关注的是在本文发出后林依然的这条新浪微博的命运将会如何——如果这条微博被和谐或者这条微博下边的评论被删除，那么这条微博和已经留存的所有评论都可以作为新浪及背后控制新浪的中共的反人类罪；
+所有的基督教、天主教、佛教都是未来教，告诉你未来的
+All Christianity, Catholicism, and Buddhism are futuristic religions that giving you a picture of the future world
 
-如果这条微博和下边的评论被留置，那么我们希望看到每一个在评论区留下自己及亲人因疫苗而产生副作用的网友可以被重视，并且进行一对一的调查和确认，当然，即使这条微博和下边的评论被留置，后边的可能性几乎是零，我知道我想多了，因为在这个国家，一条反党言论的发言者都可以被精确定位，而任何一个丢失的孩子却永远也无法通过它们精准控制的监控和大数据网找到。］
+让今天的付出，让你换一个不可确定的未来
+Let you practice today for an indefinable future
 
-现在这条记录着大量因植入新冠疫苗而引发各种后遗症的新浪微博终于不见了，据[**林依然LLL\_**](https://weibo.com/yiranbaby) [2021年9月23日 16:10](https://weibo.com/1797014755/KzvqH9rcG?from=page_1005051797014755_profile&amp;wvr=6&amp;mod=weibotime) 来自 [🍓小姐的HarmonyOS设备](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
+No
+No
 
-没删，被屏蔽了。 ​​​​
-![](https://assets.gnews.org/wp-content/uploads/2021/10/001-7.jpg)
-这条记录着中共国部分因植入疫苗而产生不良反应的新浪微博的不可见，至少可以证明新浪微博和它背后的主子中国共产党一样，是反人类的犯罪集团，所以我们也有必要把这条微博下面的评论做一下存底。
+咱们的inspiration4就告诉你，它就是宗教
+Our inspiration4 have told you. It is religion
 
-令人欣喜的是我们依然可以看到黑夜里发出的新中国联邦的光芒——
+我现在就给你打电话，让一个这样的女孩上太空
+(For example), I’m calling you right now to get a girl into space
 
-[新联邦之利刃](https://weibo.com/7545869003)：青蒿素9月24日 00:40
+让一个黑人直接上太空，让一个企业家上太空
+to have one black person straight headed into space, to put an entrepreneur in space
 
-[暴暴李小暴](https://weibo.com/1886186695)：战🈶？9月24日 02:00
+担当、分享、勇气、希望、成功，上太空，就是当下教啊
+Responsibility, sharing, courage, hope, success, going up to space, is the present teaching
 
-[\_一三土一\_](https://weibo.com/3892199609)：回复[@暴暴李小暴](https://weibo.com/n/%E6%9A%B4%E6%9A%B4%E6%9D%8E%E5%B0%8F%E6%9A%B4?from=feed&amp;loc=at):健身了吗9月25日 10:40
+我们今天的喜币、新GTV，还有盖特，GTV、GFASHION、GCLUB都是当下教
+Today our H-coin, new G-TV, and GETTR, G-TV, G-FASHION, G-CLUB are all representing the present teaching
 
-[解忧杂货店1号](https://weibo.com/5531762878)：回复[@暴暴李小暴](https://weibo.com/n/%E6%9A%B4%E6%9A%B4%E6%9D%8E%E5%B0%8F%E6%9A%B4?from=feed&amp;loc=at):原来占有真的在身边9月25日 11:05
+当下有了教，我们就有了未来
+With the present teaching, we have the future
 
-[新联邦之利刃](https://weibo.com/7545869003)：回复[@暴暴李小暴](https://weibo.com/n/%E6%9A%B4%E6%9A%B4%E6%9D%8E%E5%B0%8F%E6%9A%B4?from=feed&amp;loc=at):无处不在9月28日 20:17
+所以你看这4个人的时候，就是这4个人的经历和历史
+So when you look at these 4 people, I mean the experience and past history of these 4 people
 
-在这个至暗的时代里，在中共国有那么多因疫苗致死、致残者，他们哪怕发出的一点点关于疫苗致死致残的真相，都会被扑灭，但是真相就是刺破黑暗的利器，无论在哪里，我们都可以喜逢队友，我们都可以看到真相的力量，今天新浪微博可以封杀真相，明天我们必然用真相埋葬新浪微博和它背后的反人类集团——中国共产党！
+你看一个美国的普通孩子，从自己创业，你看他们创业在一起
+You see the average American kids, starting their own business, starting a business together
 
-撰稿：喜马拉雅的肉夹馍
+考瑞德、谢尔曼，你看这几个人，这太不简单了
+Look at these guys, Kaurid, Sherman. This is amazing.
 
-审核：喜马拉雅的馍夹肉
+完全不同的人，只有在美国，他们这些人才有这样的机会
+Completely different people, and only in the United States do these people have such opportunities
 
-校对：Maarago
+就是以人为本，就是要有公平的机会，就是付出要能得到
+It is the United States can put people first, that is, to have a fair chance to give and get rewarded
 
-（文章内容仅代表作者个人观点）
+就是每个人有安全感，每个人要有希望
+It is that everyone has a secured feeling, everyone has to have hope
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+这些都是我们新中国联邦要给大家能做到的
+All these are what our New Federal State of China will offer to you
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+这才是我们今天要说的核心，新中国联邦人，最最重要的就是这个
+This is the core of what we are talking about today, the most important thing for the people of New Federal State of China
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+原视频日期：2021/09/29
+原视频链接: https://twitter.com/se1y7cblljselva/status/1443702537492721701?s=21
+视频时间段 : 0:00-1:42
+英听校： 洛杉矶盘古农场 – Mike Li
+翻译： 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场–郭班之樱
+字幕+视频制作：洛杉矶盘古农场–天涯行
+审片：洛杉矶盘古农场–银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,70 +2,88 @@
 ---
 
 
-## 中国的PCR测试订单在第一例确诊的COVID病例之前就已飙升
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1578569/)
+## 印尼排华的根本原因
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1578668/)
 
-翻译：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-11.jpg)https://gtv.org/video/id=615e88c7d2e2b81748722dab
+郭文贵：
+Miles Guo：
 
+你去看一看，当年斯大林杀人的时候
+You should take a look at the time when Stalin was killing people
 
+天天以杀人为乐，他也没被灭
+He was not exterminated even though he killed people for fun every day
 
+当年苏哈托杀华人的时候，你们仔细看看
+but look carefully, at the time that Suharto was killing Chinese people
 
+苏哈托是华人的后裔，是华人睡了他妈，他妈生了12个孩子
+Suharto was a person of Chinese descent who slept his mother, who gave birth to 12 children
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+他爸爸抛弃了他妈，他从小恨华人
+His father abandoned his mother. He grew up hating the Chinese
 
+这小子是个投机分子，你要记住
+You should know that this kid was an opportunist
 
+苏哈托前面的总统是谁啊？叫苏加诺
+Who was the president before Suharto? Sukarno was
 
+苏加诺是共产党，他已经把印尼交给中国共产党了，是吧？
+Sukarno was a communist, and he had given Indonesia to the Chinese communists, right?
 
+当时你知道他（苏哈托）上来以后，当总统怎么收拾他（苏加诺），为啥？
+Do you know what Suharto did to clean up Sukarno when Suharto became president? and why?
 
-东京 — 根据澳大利亚网络安全公司Internet 2.0的一份报告，在中国湖北省出现第一例新型冠状病毒病例的官方报告前几个月，该省的PCR测试采购量已激增。
+他说苏加诺是亲共的
+He said Sukarno is pro-communist
 
-报告称，2019年期间，湖北用于PCR测试的费用约为6740万元人民币（按当前汇率计算为1050万美元），几乎是2018年总额的两倍。这种上升趋势从5月份开始。
+他（苏加诺）把这个60万华人、110万华人是要卖给印尼的
+He （Sukarno） was about to sell these 600,000 Chinese people, these 1.1 million Chinese people to Indonesia.
 
-互联网2.0从一个中国公共采购招标信息的网站收集并分析了大量数据。该分析团队由美国、英国、澳大利亚和其他国家的前情报官员组成。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture6-1.jpg)
-该报告使人们对中国关于病毒来源的官方说法产生了进一步的怀疑。这个话题加剧了北京和华盛顿之间的紧张关系。中国外交部对该报告的结论提出异议。
+他其实充分的挑拨了当时印尼的军方，还有共产党关系
+He actually did enough to provoke the Indonesian military and the Chinese Communist Party at the time.
 
-PCR（聚合酶链式反应）测试用于检测样品中是否存在特定的基因序列，其应用范围超出了COVID-19的测试。该报告称，这种不寻常的上升可能预示着一种新的疾病正在湖北省省会武汉及其周边地区蔓延。
+你知道当时是110万华人被人修理了，60万人被杀害呀
+Do you know that 1.1 million Chinese were beaten up and 600,000 were killed?
 
-来自多个大学的订单增加了一倍，来自中国疾病控制和预防中心的订单增加了五倍，来自动物试验局的订单增加了十倍。来自医院的订单下降了10%以上。
+一夜之间，曾有7万人被奸、被杀呀
+In one night, 70,000 people were raped and killed
 
-月度采购数据显示5月份的订单激增，特别是来自中国疾病预防控制中心和中国人民解放军的买家。
+你们想过吗？兄弟姐妹们，那是共产党惹的祸
+Have you ever thought about it? Brothers and sisters, it was the Communist Party that caused the trouble
 
-“我们认为5月份测试试剂购买的增加表明有可能这是最早的感染日期”报告说。
+共产党要统治印尼（实行）共产主义
+The Communist Party wanted to rule Indonesia and to enforce communism.
 
-该试剂购买量从7月到10月同样急剧上升，特别是来自武汉科技大学。该机构在2019年花了892万元购买PCR测试，大约是前一年总额的八倍。报告称，该大学与当地医院和公共卫生部门一起直接参与了应对新疾病的爆发。
+苏加诺要把它（共产主义）加给（印尼）
+Sukarno wanted to bring communism to Indonesia.
 
-这些团体的参与佐证了”试剂购买的增加很可能与2019年湖北省出现的COVID-19有关”，该报告还说，”我们高度自信地评估该大流行病开始的时间远远早于中国向[世界卫生组织]通报COVID-19的时间。”
+这时候苏哈托利用这个报了私仇
+This is when Suharto used it to take personal revenge
 
-中国外交部对这些发现提出异议。在对彭博新闻社的回应中，一位发言人说，这些发现与其他关于冠状病毒起源的可疑说法属于同一类别，包括一篇 “所谓的论文”，该论文分析了武汉几家医院附近的交通量，并搜索了 “咳嗽 “和 “腹泻 “等关键词，然后得出结论，武汉的疫情最早于2019年8月开始。
+把他娘睡的这个中国男人，抛弃他家人，抛弃他娘的人干掉了
+to take out the Chinese man who slept with his mother, abandoned his family, and abandoned his mother.
 
-“病毒溯源是严肃的科学问题，应该由科学家来解决，”该发言人告诉彭博社。该发言人还补充说中国国务院新闻办公室发表了一份关于中国抗击Covid-19的白皮书，以 “清晰的时间轴和铁的事实 “记录了中国抗击该流行病的努力。
+而且第二次他又出事儿了，他又杀中国人
+And the second time he did it again, killing Chinese people again
 
-美国和中国从该流行病的早期就在这个问题上交锋。北京告诉世卫组织，第一个有症状的病例是在2019年12月8日记录。但美国的一些人指责说，在那之前，病毒早就人传人了，并说它是从一个研究实验室中泄露出来的。
+又干了一把（杀了）几十万人
+killing hundreds of thousands of Chinese people
 
-独立审查该数据的东京多摩研究生院客座教授Akira Igata说：“我们不能仅凭”公共采购信息就肯定这一观点，但这些强有力的信息表明在19年12月之前的几个月甚至半年的时间里，武汉周围病毒爆发就已经被注意到。
+一直到2008年的金融危机，这孙子又杀了1800个华人呐
+And until the financial crisis in 2008, this bastard killed another 1,800
 
-“这份报告可以为各国提供一个机会，让他们再次向中国索取信息。”Igata说。
+原视频日期：2021/09/26
+原视频链接: https://twitter.com/se1y7cblljselva/status/1443158834902491138?s=24
+视频时间段 : 0:00-1:45
+英听校： 洛杉矶盘古农场 – Mike Li
+翻译： 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 -银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-根据哈佛大学和其他机构的研究人员去年的一项研究，武汉医院停车场的卫星图像显示，从2019年8月开始，活动急剧增加。但美国情报机构8月份的一份报告发现，没有证实这种疾病是由动物宿主溢出还是从实验室泄露出来。
-
-这份最新报告的作者之一大卫-罗宾逊说：”关于COVID-19是如何以及何时开始的，中国没有分享有用的数据。”没有透明度助长了大量的假设、推理、错误信息以及对受害者的心痛。”
-
-“互联网2.0利用我们的技能，试图为世界提供一些可靠的数据，以及如何应对大流行病的影响，”他补充说，暗指发布该报告的网络安全公司。
-
-（本文仅代表作者观点）
-
-参考来源：[https://asia.nikkei.com/Spotlight/Coronavirus/China-PCR-test-orders-soared-before-first-confirmed-COVID-case](https://asia.nikkei.com/Spotlight/Coronavirus/China-PCR-test-orders-soared-before-first-confirmed-COVID-case)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

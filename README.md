@@ -15,89 +15,89 @@
 
 ---
 
-### [台湾总统蔡英文：台湾若落入中共国手中，将是一场灾难](/content/gnews/1/README.md)
+### [孙力军的公告证明了他的势力很强大并且无处不在](/content/gnews/1/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [Moderna疫苗：因心肌炎风险而停止为年轻人接种第二剂](/content/gnews/2/README.md)
+### [每日快报：中台军事紧张局势“40年来最严重”](/content/gnews/2/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [秘翻在线：零感染却需要从中共运输医疗物资 确定不是给朝鲜放毒？](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [正道主义就是当下教](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [印尼排华的根本原因](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [洪水又淹山东河南农田，中共粮食问题势必雪上加霜](/content/gnews/6/README.md)
+ ` 澳喜农场`
+
+### [中共国利用搜索引擎推动covid-19起源美国军事基地的虚假宣传](/content/gnews/7/README.md)
+ ` 象声`
+
+### [对中共国《“十四五”全民医疗保障规划》的几点追问](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [台湾总统蔡英文：台湾若落入中共国手中，将是一场灾难](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [Moderna疫苗：因心肌炎风险而停止为年轻人接种第二剂](/content/gnews/10/README.md)
  ` Charlie`
 
-### [飞机在米兰坠毁：疾病假设](/content/gnews/3/README.md)
+### [飞机在米兰坠毁：疾病假设](/content/gnews/11/README.md)
  ` Charlie`
 
-### [屏蔽林依然8月9日的新浪微博坐实新浪的疫苗杀人本色](/content/gnews/4/README.md)
+### [屏蔽林依然8月9日的新浪微博坐实新浪的疫苗杀人本色](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中国的PCR测试订单在第一例确诊的COVID病例之前就已飙升](/content/gnews/5/README.md)
+### [中国的PCR测试订单在第一例确诊的COVID病例之前就已飙升](/content/gnews/13/README.md)
  ` 纽约香草山MOS02`
 
-### [美国，2021 年的死亡人数比 2020 年还多](/content/gnews/6/README.md)
+### [美国，2021 年的死亡人数比 2020 年还多](/content/gnews/14/README.md)
  ` Charlie`
 
-### [拜登在民意调查中崩溃](/content/gnews/7/README.md)
+### [拜登在民意调查中崩溃](/content/gnews/15/README.md)
  ` Charlie`
 
-### [疫苗问题越来越难了](/content/gnews/8/README.md)
+### [疫苗问题越来越难了](/content/gnews/16/README.md)
  ` 澳喜农场`
 
-### [莫德纳不顾疫苗副作用，仍向加拿大卫生部提交加强针申请](/content/gnews/9/README.md)
+### [莫德纳不顾疫苗副作用，仍向加拿大卫生部提交加强针申请](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [台湾总统：如果台湾落到中共手里，后果是“灾难性的”](/content/gnews/10/README.md)
+### [台湾总统：如果台湾落到中共手里，后果是“灾难性的”](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [《长津湖》上映后维基百科词条遭小粉红篡改引发论战](/content/gnews/11/README.md)
+### [《长津湖》上映后维基百科词条遭小粉红篡改引发论战](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [与中共国的战争：全面开战](/content/gnews/12/README.md)
+### [与中共国的战争：全面开战](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [墙内热点新闻](/content/gnews/13/README.md)
+### [墙内热点新闻](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [美国司法部宣布成立国家加密执法团队](/content/gnews/14/README.md)
+### [美国司法部宣布成立国家加密执法团队](/content/gnews/22/README.md)
  ` wenwu`
 
-### [MoneyGram与Stellar 和 USDC 合作进行区块链支付](/content/gnews/15/README.md)
+### [MoneyGram与Stellar 和 USDC 合作进行区块链支付](/content/gnews/23/README.md)
  ` wenwu`
 
-### [拜登提名人从简历中删除了卡尔·马克思的论文](/content/gnews/16/README.md)
+### [拜登提名人从简历中删除了卡尔·马克思的论文](/content/gnews/24/README.md)
  ` wenwu`
 
-### [美中苏黎世“最深入对话” 拜习会或年底前于线上举行](/content/gnews/17/README.md)
+### [美中苏黎世“最深入对话” 拜习会或年底前于线上举行](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/18/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/26/README.md)
  ` wenwu`
 
-### [纽约州大型医疗保健系统解雇了 1,400 名未接种疫苗的员工](/content/gnews/19/README.md)
+### [纽约州大型医疗保健系统解雇了 1,400 名未接种疫苗的员工](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声| 苏格兰场馆拒绝执行疫苗护照计划](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [有声| 民众揭露“油荒” 事件 英国执行疫苗接种证B计划](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [有声| 中共的地方债务是其金融核弹的渊薮](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [合规发展时代到来！美成立国家加密货币执法团队](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声| 美联储放风：准备启动对央行数字货币利弊的审查](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [澳大利亚各大企业反抗政府严厉的中共病毒封锁](/content/gnews/25/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [有声| “现在购买，将来偿还”—消费者债务陷阱](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [郭文贵精品视频-新中国联邦人向世界呼叫：🆘](/content/gnews/27/README.md)
+### [郭文贵精品视频-新中国联邦人向世界呼叫：🆘](/content/gnews/28/README.md)
  ` 澳喜农场`
-
-### [2021年10月6日郭先生盖特 — 视频盖特1「9分58秒」](/content/gnews/28/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
 ### [国人何时醒](/content/gnews/29/README.md)
  ` 纽约香草山MOS03`
@@ -135,14 +135,14 @@
 ### [英国数据显示63%Covid死亡病人已完全接种疫苗（粤语配音）](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [郭文贵先生2021年10月6日盖特视频（9分58秒）全文字版](/content/gnews/41/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [法国参议员不顾台海紧张局势毅然访问台湾](/content/gnews/41/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [大胡子医生：西方的顺从教育加重了病毒和疫苗危机！](/content/gnews/42/README.md)
+### [主流媒体指鹿为马 欲将比尔·盖茨洗白成救世主](/content/gnews/42/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [大胡子医生：西方的顺从教育加重了病毒和疫苗危机！](/content/gnews/43/README.md)
  ` 军迷wilson`
-
-### [10/05/2021七哥直播：中共体制内上蒙下骗，都在等着对手早于自己倒下](/content/gnews/43/README.md)
- ` 秘密翻译组-北美组`
 
 ### [中国的经济自由赤字如何扭曲境外市场](/content/gnews/44/README.md)
  ` 象声`
