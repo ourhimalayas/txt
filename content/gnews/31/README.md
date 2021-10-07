@@ -2,79 +2,21 @@
 ---
 
 
-## 正道主义就是当下教
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1578687/)
+## 针下亡魂｜加拿大 17 岁曲棍球运动员接种疫苗两周后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1578774/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-12.jpg)https://gtv.org/video/id=615e893ed2e2b81748722dc8
-郭文贵：
-Miles Guo：
+**撰文/ 台湾宝岛农场 天滅中共****｜发布日期/ 7/10/2021**
 
-正道主义就是当下教
-Righteousness is the present teaching
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
+![](https://assets.gnews.org/wp-content/uploads/2021/10/14-2.jpg)
+【加拿大】 安大略省一名 17 岁高中生 Sean Hartman 在接种 COVID-19 疫苗两周后因心肌炎在家中去世。
 
-把当下教搞明白才能说未来
-Understand the present teaching, then you can talk about the future
+出生于 2004 年 1 月 31 日 Sean 是当地班廷纪念高中的一名学生，亦是一名曲棍球运动员，根据家人描述，Sean 酷爱曲棍球，由于当地强制所有入场打球的人都必须接种新冠疫苗，他才于九月初接种了第一针，从此就衍生出许多健康问题，直至 9 月 27 日，Sean 因心肌炎致心脏病发死亡。
 
-所有的基督教、天主教、佛教都是未来教，告诉你未来的
-All Christianity, Catholicism, and Buddhism are futuristic religions that giving you a picture of the future world
+Sean 的家人参与了一场在曲棍球馆附近举办的抗议活动，反对政府强制青少年接种疫苗，其中一位抗议人士表示：“这太让人心碎了，这位 17 岁的运动员被告知必须接种疫苗才能进入冰球馆，所以他打了针，两周后，他死了。”
 
-让今天的付出，让你换一个不可确定的未来
-Let you practice today for an indefinable future
+来源｜ [个案015](https://globintel.com/canada/what-was-sean-hartman-from-beeton-cause-of-death-he-died-after-covid-19-shot/)
 
-No
-No
+* * *
 
-咱们的inspiration4就告诉你，它就是宗教
-Our inspiration4 have told you. It is religion
-
-我现在就给你打电话，让一个这样的女孩上太空
-(For example), I’m calling you right now to get a girl into space
-
-让一个黑人直接上太空，让一个企业家上太空
-to have one black person straight headed into space, to put an entrepreneur in space
-
-担当、分享、勇气、希望、成功，上太空，就是当下教啊
-Responsibility, sharing, courage, hope, success, going up to space, is the present teaching
-
-我们今天的喜币、新GTV，还有盖特，GTV、GFASHION、GCLUB都是当下教
-Today our H-coin, new G-TV, and GETTR, G-TV, G-FASHION, G-CLUB are all representing the present teaching
-
-当下有了教，我们就有了未来
-With the present teaching, we have the future
-
-所以你看这4个人的时候，就是这4个人的经历和历史
-So when you look at these 4 people, I mean the experience and past history of these 4 people
-
-你看一个美国的普通孩子，从自己创业，你看他们创业在一起
-You see the average American kids, starting their own business, starting a business together
-
-考瑞德、谢尔曼，你看这几个人，这太不简单了
-Look at these guys, Kaurid, Sherman. This is amazing.
-
-完全不同的人，只有在美国，他们这些人才有这样的机会
-Completely different people, and only in the United States do these people have such opportunities
-
-就是以人为本，就是要有公平的机会，就是付出要能得到
-It is the United States can put people first, that is, to have a fair chance to give and get rewarded
-
-就是每个人有安全感，每个人要有希望
-It is that everyone has a secured feeling, everyone has to have hope
-
-这些都是我们新中国联邦要给大家能做到的
-All these are what our New Federal State of China will offer to you
-
-这才是我们今天要说的核心，新中国联邦人，最最重要的就是这个
-This is the core of what we are talking about today, the most important thing for the people of New Federal State of China
-
-原视频日期：2021/09/29
-原视频链接: https://twitter.com/se1y7cblljselva/status/1443702537492721701?s=21
-视频时间段 : 0:00-1:42
-英听校： 洛杉矶盘古农场 – Mike Li
-翻译： 洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场–郭班之樱
-字幕+视频制作：洛杉矶盘古农场–天涯行
-审片：洛杉矶盘古农场–银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//

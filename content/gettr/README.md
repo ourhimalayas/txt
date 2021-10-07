@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/7/2021 12:42 PM (UTC)`
+
+10月7号：平安银行还需要，大半年时间，才能真正的倒下，因为它涉及的政治太深了，但他最终会倒得，很惨，很惨，很惨！【七哥！平安也开始爆雷啦！ 宁波杭州湾新区的平安银行，刚刚发生的，宁波东部新城的平安银行】
+![img](https://media.gettr.com/group18/getter/2021/10/07/12/42/aecb7aea-81f5-5688-5695-cec8398d927e/out.jpg)
+
+---
+
 `@miles 10/7/2021 12:17 PM (UTC)`
 
 10月7号：我那个老天爷来……
@@ -289,13 +296,6 @@ WOW WOWWOW🙏🙏🙏🙏🔥🔥🔥👇👇👇👇👇👇👇👇👇👇�
 
 10月3号：尊敬的战友们好！物无美恶．过则为灾。运动，一定要智慧的运动，千万不要伤了肌肉和身体，否则后悔莫及，健身绝对不能逞强，就像爆料革命灭共事业也一样，不要硬撑．在愉悦快乐，轻松中．消灭共产党。任何勉强的事情都不是好事情。
 ![img](https://media.gettr.com/group8/getter/2021/10/03/23/17/dc03b89e-3c88-13b5-ac16-c31136100dc5/out.jpg)
-
----
-
-`@miles 10/3/2021 11:17 PM (UTC)`
-
-10/3/2021 Miles Guo: Please make sure to stay at home and avoid going out or traveling if you can until December 2022! My biggest concerns are the vindictive social disasters and the collapse of the financial and monetary system caused by the COVID vaccines; Billions of people in the world have received COVID jabs in an extremely short period of time, which means the disasters caused by the COVID vaccines will break out in an extremely short period of time as<br/>well<br/><br/>10/3/2021 文贵直播：直到2022年12月以前，请大家务必待在家里，尽量不出门、不旅行！文贵最大的担心是疫苗造成的报复性的社会灾难以及金融货币系统的崩溃；全世界在极短时间内给几十亿人打了疫苗，疫苗的灾难也将在极短时间内爆发！
-![img](https://media.gettr.com/group29/getter/2021/10/03/23/17/d3c90861-4444-8821-7b46-bb1a412fdd34/out.jpg)
 
 ---
 

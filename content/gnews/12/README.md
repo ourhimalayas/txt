@@ -2,12 +2,9 @@
 ---
 
 
-## 参议员Ed Markey致马克-扎克伯格，国会将会对其公司采取行动
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1578839/)
+## 当被要求公开复述他在私下说的中共病毒的自然抗体好于疫苗抗体时，辉瑞公司的科学家跑掉
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1578996/)
 
-- 制作：葛大饼
+10/05/2021 当调查记者要求他公开重复他在私下所说的关于中共病毒的自然抗体好于疫苗抗体时，一名辉瑞公司的科学家跑掉了。
 
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

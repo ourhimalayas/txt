@@ -2,38 +2,15 @@
 ---
 
 
-## 秘密视频：辉瑞科学家承认COVID自然抗体优于疫苗
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1578873/)
+## 2021年10月6日 文贵先生盖特 7
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1579123/)
 
-撰稿：Runaway
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-一份秘密采访辉瑞科学家的视频揭露并证实了更多的疫苗真相。
+2021年9月20日 德国新冠调查委员会记者会精选片段 (一) 验尸报告的主要病理学家之一 Burkhardt 博士： **1️⃣**含有部分病毒（S蛋白）的疫苗可在心肌及其包膜中引起类似的以淋巴细胞为主的淋巴细胞性心肌炎。如果发生在心脏的传导系统中，会导致立即的心脏死亡。即使在尸检中，这也很难诊断。 **2️⃣**他观察到所有器官和所有组织中的淋巴细胞”疯狂”异常增生，免疫反应过度，即自我攻击 – 淋巴器官的激活，以及浸润和非淋巴器官中淋巴滤泡的形成。 **3️⃣**告诉你疫苗引起的心肌炎在年轻人和运动员中的后果。 记者会完整版链接 (德文原版)：[https://gtv.org/video/id=614b40…](https://gtv.org/video/id=614b401442a8af3151a34afa) 记者会完整版链接 (英文字幕)：[https://gtv.org/video/id=61598e…](https://gtv.org/video/id=61598e4c304e992109ae6487) 记者会完整版链接 (中文字幕)：[https://gtv.org/video/id=61588b…](https://gtv.org/video/id=61588b8f304e992109ae20b0)
 
-**辉瑞COVID-19疫苗研发科学家–尼克.卡尔（Nick Karl）：**
+[https://gtv.org/video/id=614b401442a8af3151a34afa](https://gtv.org/video/id=614b401442a8af3151a34afa)
 
-“疫苗是蛋白质，只在病毒外面产生抗体。而当您真正感染病毒时，您将从病毒内部产生抗体。因此，自然抗体比疫苗更有效。”
+[【2021年10月6日】文贵先生盖特原文](https://gettr.com/post/pdej5p192a)
 
-“他们通过推广疫苗接种卡和限制未接种疫苗者做任何事，最后都会主动接种疫苗。”
-
-**辉瑞高级副科学家-克里斯克罗齐（Chris Croce）：**
-
-“因为是自然反应，自然免疫会比疫苗得到更长时间的保护。”
-
-“辉瑞正在进行的研究，不是为了确定疫苗有效性，而是为了观测疫苗如何引起心脏病。”
-
-“即使在公司内部也不能随意谈论相关信息，我觉得我在为一个邪恶的公司工作，因为它只追求利润。”
-
-**辉瑞科学家Rahul Khandke：**
-
-公司要求员工向公众保密。
-
-（以上观点不代表GNEWS）
-
-*发布：Runaway*
-
-参考链接：
-
-[COVERT VIDEO: Self-Declared “Evil” Pfizer Scientists Admit Natural Immunity BETTER Than Vaccine… ‘Our Org is Run on COVID Now’.](https://thenationalpulse.com/news/covert-video-self-declared-evil-pfizer-scientists-admit-natural-immunity-better-than-vaccine-our-org-is-run-on-covid-now/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+**喜联盟Gnews编辑部**

@@ -2,82 +2,66 @@
 ---
 
 
-## 孙力军的公告证明了他的势力很强大并且无处不在
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1578725/)
+## 统计数据：儿童死亡原因COVID仅占3.6%
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1578820/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-13.jpg)https://gtv.org/video/id=615e8b11d2e2b81748722e37
-郭文贵：
-Miles Guo：
+- **编译：JennyBall**
 
-你像北京市公安局的李东
-I talked about Li Dong, a former member of the Beijing Public Security Bureau
 
-2017年说过，我现在都不说了
-But I no longer speak of him now
+我们还处于大流行之中——在某些州，我们的孩子在学校必须始终戴着口罩。自然，这是必要的，否则他们会大量地死于一种简单的病毒。
 
-那李东是河南人，那李东跟吴征是生死兄弟
-Li Dong came from Henan province. He and Bruno Wu are brothers in blood and death
+好吧，大量地可能是错误的词。值得注意的是，根据美国疾病控制与预防中心(CDC)过去几年的数据，死于 COVID 的儿童和青少年少于死于溺水的儿童和青少年。
 
-这是李东的原话说的
-Li Dong had told me
+还有车祸，枪支暴力，交通事故，中毒，自杀。事实上，据英国《每日邮报》报道，在 2020 年 5 月 20 日至 2021 年 9 月 23 日期间，因 COVID 死亡的人数，仅占美国每年儿童死亡人数的一小部分。
 
-那个时候孙立军还不是公安部副部长的时候
-Sun Lijun would be appointed as the Vice Minister of Public Security quite early
+“美国大多数儿童死于各种事故，包括车祸、溺水和被枪杀，CDC说，”《每日邮报》的安德里亚·布兰科报道。
 
-说孙立军要当公安部副部长
-before Sun was actually assigned to that position
+2019 年，共有 3,343 名 19 岁及以下儿童在交通事故中丧生，而估计每年有近 4,000 名儿童死于意外溺水死亡。
 
-老郭，那是人家孟建柱、王岐山公认的枪靶子
-He told me that Sun Lijun was the gunman that both Meng Jianzhu and Wang Qishan wanted
+“该国每年因中毒事故导致 730 名儿童死亡。”
 
-人家光杨澜一个人在美国的那个AI公司、数据公司
-Yang Lan (Bruno Wu’s wife) once received $3.4 billion
+这些数字可以在下图中从邮件周一文章的世界新闻推文中看到.
 
-人家就是34亿美金拿走了，你们上网可以查一查，上网可以查一查
-from a certain company in the US — the Digital AI Corporation, everybody can check it over on the internet
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-114.png)
 
-这家公司，吴征最起码2到3次，辞职、进来，辞职、进来，当CEO
-You could find Bruno Wu once joined and resigned from the company as CEO at least 2 to 3 times
+根据图表中的 2019 年统计数据，只有 498 名儿童死于 COVID-19，相比之下，死于其他意外原因的儿童为 13,075 名。
 
-之后把公司34亿美元卖给了阿里巴巴，阿里巴巴等于给他送钱嘛
-The company was sold to Alibaba for $3.4 billion. It was like Alibaba giving them the money as a gift
+换句话说，您的孩子死于车内的可能性几乎是死于 COVID-19 的 7 倍。他们溺水的可能性几乎是其八倍。
 
-但仅这一家公司就34亿美元
-Just one company alone, $3.4 billion was involved
+此外，大多数感染 COVID 的儿童没有症状或病情较轻。
 
-说光杨澜、钥匙澜就300多亿美元
-Yang Lan, nicknamed “looking-for-the-key Lan”, was involved in dirty business dealings of over $30 billion in combination
+但别担心，很可能会有办法确保 498人死亡不会再出现。
 
-说吴征在海外持有的股权，像湄公河、泰国、缅甸、台湾的黑帮
-The overseas equities that her husband, Bruno Wu holding are worth $100 billion or more
-包括整个俄罗斯这一带的，包括江浙沪，都1000多亿美元
-Involving mobs in the Mekong River in Thailand, Myanmar, and Taiwan, including
-areas in Russia
+上个月，辉瑞-生物科技宣布，他们计划寻求批准，为 5 至 11 岁的儿童注射减少剂量的 COVID 疫苗。
 
-2016年跟我说的，现在李东在哪儿我都不知道
-And these are just what Li Dong told me in 2016. Where is Li Dong now?
+“在接下来的几周内，我们将向世界各地的监管机构提交我们在 5 至 11 岁儿童中进行的试验结果，并将要求该年龄组的疫苗获得批准，包括在欧洲，”首席医疗官厄兹勒姆·图雷奇（ Oezlem Tuereci）据路透社报道。
 
-你说这2016年到现在，孙立军、孟建柱、王岐山干了啥？
-What have Sun Lijun, Meng Jianzhu, and Wang Qishan done since 2016 until now?
+乔·拜登总统的教育部长**全心全意批准**。
 
-中国只要有孟建柱、孙立军，还有王岐山，还有周亮
-As long as those bastards, like Meng Jianzhu, Sun Lijun, Wang Qishan, Zhou Liang,
+据《美国新闻》报道，教育部长米格尔·卡多纳 (Miguel Cardona) 说：“我们知道，我们小学生的疫苗接种资格将改变游戏规则。”
 
-还有曾庆红在，反腐扯王八犊子的事
-and Zeng Qinghong are still in power in China, anti-corruption is bullshit.
+他们专注于确保在接下来的 16 个月内不会再有 498 例死亡。
 
-所有孙立军的公告证明了孙立军的势力更强大，无处不在
-From the statement about Sun Lijun, we can tell that the forces behind him are even more mighty than before, and they are everywhere.
+我们很清楚，每月有 31 多位未成年人死亡。与此同时，“每年有超过 12,000 名儿童因溺水、跌倒、烧伤和道路交通伤害等伤害而死亡。这相当于每天大约有 33 个孩子，”据邮报报道。
 
-原视频日期：2021/09/30
-原视频链接: https://twitter.com/se1y7cblljselva/status/1443967825782054913?s=24
-视频时间段 : 0:00-1:25
-英听校： 洛杉矶盘古农场 – Mike Li
-翻译： 洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+我们是否应该假设，**我们将采取严厉措施来阻止这些死亡？毕竟，没有疫苗可以解决这个问题。**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**评论：**
+
+**作者翻译这篇文章，是想从另一个角度让“相信科学”的人们看看， 所谓****CDC****的科学依据是什么？****Covid****疫苗现在还在实验阶段，而政府和所谓的科学部门****CDC****却让我们所有的孩子充当实验室白老鼠，为死亡率仅有****3.6%****的****Covid****的疫苗做实验？而所有****Covid****疫苗连开发疫苗应该具备的第二阶段动物实验都没有通过！如果他们真的以科学为依据关心人们，关心孩子，那么是不是应该为死亡率更高的溺水开发一种疫苗？**
+
+**而且，****CDC****和政府如何保证接种疫苗后，“接下来的 ****16 ****个月内不会再有 ****498 ****例死亡？”政府批准的疫苗是用以紧急状况的，先别说根本没有紧急状况的必要，因为有廉价且有效的药物（羟氯喹，伊维菌素，锌等），就是紧急状况下，制药公司和医疗部门就免除了因疫苗而造成的伤亡和死亡责任！而****CDC****定疫苗伤亡报告死亡人数已经到达了****18,000****！**
+
+**相信科学，我们也要用科学的方法来思考一下：政府强推实验期疫苗是何居心？**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+素材链接：[westernjournal.com](https://www.westernjournal.com/stats-13573-child-fatalities-covid-accounts-3-6-deaths-7-causes-account-96-4/?utm_source=Email&amp;utm_medium=newsletter-CT&amp;utm_campaign=dailypm&amp;utm_content=conservative-tribune&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip190.png)
