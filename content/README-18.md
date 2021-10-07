@@ -16,6 +16,8 @@
 ---
 ## 頁面 18/36 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [36](/content/README-36.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年9月17日文貴報平安](/content/2019/09/20190917-2323498074578492581.md)
+
 [文字版：2019年9月15日 香港已成为恐惧之港](/content/2019/09/20190917-7577220596935524798.md)
 
 [文字版：2019年9月16日郭先生直播](/content/2019/09/20190917-3170231134844722988.md)
@@ -63,8 +65,6 @@
 [文字版：郭文貴先生8月16日文貴直播](/content/2019/08/20190819-2341336785643764547.md)
 
 [文字版：郭文貴先生2019年8月15日報平安直播](/content/2019/08/20190819-7582253714688026419.md)
-
-[文字版: 2019年8月14日 郭文贵先生谈美國已秘密調查 中共安插在香港警隊中的PLA 操縱美國股](/content/2019/08/20190815-8696204592091636594.md)
 
 
 ## 頁面 18/36 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [36](/content/README-36.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
