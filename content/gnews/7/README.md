@@ -2,36 +2,39 @@
 ---
 
 
-## 拜登提名人从简历中删除了卡尔·马克思的论文
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1578440/)
+## 台湾总统：如果台湾落到中共手里，后果是“灾难性的”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1578496/)
 
-- **编译：西班牙喜悦农场–wenwu**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/istockphoto-500685969-170667a-1.jpg)
+**摘要翻译：**
+
+在中共国数十架军机飞越台湾防空识别区，这一挑衅行为引起了美国的深切关注后，台湾总统蔡英文警告说，如果台湾落入中共手里，将是“灾难性”的后果。
+
+蔡英文在周二发表的《外交事务》一文中写道：“他们应该记住，如果台湾沦陷，对地区和平及民主同盟体系将是灾难性的后果。这将表明，在当今全球价值观的较量中，专制独裁比民主更占优势。”
+
+“但如果台湾的民主和生活方式受到威胁，台湾将不惜一切代价保卫自己，”蔡写道。
+
+拜登总统将他的外交政策定义为一场民主与独裁的生死之战，并承诺在北京寻求扩大其在印-太地区的权力和军事存在时，对其采取更强硬的立场。
+
+**简评：**
+
+台湾国防部长说：当前的台海紧张局势是他从军40多年来最严峻的时候，并警告台湾海峡存在发生擦枪走火的风险。在普通大众眼里：以美国为首的民主同盟国家，除了表达关切外，继续将台湾当棋子，仅限于喊话支持台湾？
+
+然而，正如蔡英文向世界警告的那样，“如果台湾失守，不仅是台湾人民的浩劫，也将瓦解70多年来得以维持和平和卓越经济发展的安全架构。”
+
+为了应对中共国对台湾的挑衅，请以美国为首的民主国家拿出积极支持台湾的实际行动，而不是拜登总统仅限于呈现在书面或口头上的“一场民主与独裁的生死之战“的外交政策。
+
+[新闻链接](https://thehill.com/policy/international/europe/575309-taiwan-president-consequences-of-chinese-takeover-would-be)
+
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*翻译/简评：Brianchow | 校对：Julia Win*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip259.png)
+编辑：【英国伦敦喜庄园编辑部】
 
-前提摘要：拜登总统挑选来监督国家银行的监管人，曾经称赞苏联的男女平等，并曾在大学期间获得了**“**列宁**”**奖；《福克斯》已经联系了奥马洛娃和白宫以寻求评论，截至**9**月**30**日仍没有得到回复。
-
-本周二，拜登提名的货币审计长办公室主任（**the Office of the Comptroller of the Currency**** **）[索勒**·**奥马洛娃](https://thepostmillennial.com/bidens-pick-for-bank-regulator-slammed-for-past-pro-communism-comments)**( **[**Saule Omarova)**](https://thepostmillennial.com/bidens-pick-for-bank-regulator-slammed-for-past-pro-communism-comments)，她已将关于卡尔**·**马克思的论文从简历中删除；据《[华盛顿自由灯塔](https://freebeacon.com/biden-administration/biden-banking-nominee-scrubs-karl-marx-paper-from-resume/)》[报道](https://freebeacon.com/biden-administration/biden-banking-nominee-scrubs-karl-marx-paper-from-resume/)，奥马洛娃最近在她** 2017 **年的简历中列出了一篇题为《卡尔**·**马克思的经济分析和首都革命理论》的论文。
-
-参议院银行、住房和城市事务委员会（Urban Affairs Committee）的高级成员帕特·图米(Pat Toomey)参议员，他在周二（5日）写的[一封信中](https://www.banking.senate.gov/imo/media/doc/toomey_letter_to_omarova_requesting_thesis_on_marxism1.pdf)要求奥马洛娃交出该论文的副本。他说，委员会需要“全面评估个人是否适合担任参议院确认的行政和独立机构的职位。”
-
-据报道，奥马洛娃是在获得列宁个人学术奖学金就读莫斯科国立大学时，写下了这篇论文。但是，参议院银行、住房和城市事务委员会查看的简历 (CV) 中，并未列出该论文。
-
-图米要求奥马洛娃不迟于 10 月 13 日之前，将俄文的马克思论文原件和英文版本（如果存在）交给城市事务委员会。 “为了确保立法者有足够的时间进行翻译和审查，我的委员会工作人员与你们联系“货币审计长办公室（OCC）的工作人员上个月要求提供一份副本。不幸的是，我们没有得到任何保证委员会会及时收到该文件的副本，”他写道。
-
-由于奥马洛娃的评论似乎是，同情或支持前苏联时代的政策和价值观而受到批评。她在 2019 年[写道：](https://twitter.com/STOmarova/status/1112387645882200064) “在我来到美国之前，我无法想象像男女工资差距这样的事情在当今世界仍然存在；说说你对前苏联的看法，那里没有男女薪酬差距。自由市场体制并不总是’有效的’。”
-
-在一篇题为《[人民的账本](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=3715735)》[的](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=3715735)论文中，奥马洛娃主张“终结银行业”，正如我们所知，“这引起了图米的强烈反对。奥马洛娃呼吁‘从根本上重塑现代金融的基本架构和动力’，包括将零售银行国有化，并由美联储分配信贷，”[图米](https://www.banking.senate.gov/newsroom/minority/toomey-i-have-serious-reservations-about-occ-nominee)在奥马洛娃被拜登提名后的第二天说。
-
-相关文章：《[美国国家银行监管人曾获得**”**列宁**”**奖](https://gnews.org/zh-hans/1564376/)》
-
-（文章仅代表作者观点** **与**GNEWS**无关）
-
-**新闻来源：《[后千禧年](https://thepostmillennial.com/biden-nominee-karl-marx-thesis)》｜作者：汗娜·南丁格尔｜发布时间：2021年10月6日｜**
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

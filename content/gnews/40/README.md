@@ -2,34 +2,54 @@
 ---
 
 
-## 洛杉矶市议会通过了全面强制疫苗令
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1577996/)
+## 未接种疫苗的足球运动员或将被允许参加世界杯
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1578124/)
 
-#### 撰稿：Grace
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-31.jpg)图片来源：CBSLA
-据洛杉矶哥伦比亚网站（CBSLA）10月6日报道， 洛杉矶市议会在周三进行了第二次投票，并且以11比2的比例，通过了一项全面的条例。该条例最早可以在一个月后，或在11月6日生效。
+栏目记者/责任编辑：AsG諾雅
 
-**这条法令要求当地居民在进入餐馆、酒吧、购物中心和其他场所时必须有****中共病毒****疫苗接种证明。**
 
-**该条例将适用于：**
 
-– 餐馆、酒吧、快餐店、咖啡店、品酒室、自助餐厅、美食广场、啤酒厂、葡萄酒厂、蒸馏厂的宴会厅和酒店宴会厅。
 
-– 健身房和健身场所，包括娱乐设施、健身工作室（包括瑜伽、普拉提、舞蹈和巴雷）、拳击馆、健身训练营和举办室内团体健身课程的设施。
 
-– 娱乐和休闲场所，包括电影院、购物中心、音乐会场所、表演场所、成人娱乐场所、商业活动和聚会场所、体育场馆、会议中心、展览馆、博物馆、商场、表演艺术剧院、保龄球馆、拱廊、棋牌室、家庭娱乐中心、台球和撞球厅、游戏区和游戏中心。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-– 个人护理机构，包括水疗中心、美甲店、发廊、理发店、日光浴沙龙、美容师、皮肤护理、纹身店、穿孔店和按摩治疗场所，除非有医疗需要。
 
-**但是，零售机构，包括杂货店和药店，不包括在该条例中。**
 
-据报道，**如果有人有限制其接种疫苗能力的医疗条件，或有**** “****真诚的宗教信仰****“****，经过他们试图进入的地点审查后，将可以被豁免于该法令**。被豁免的人将能够使用该地点的室外区域，他们也可以通过提供中共病毒测试阴性的证明而被允许进入室内区域。
 
-根据该条例的规定，参加有5000人或以上的户外活动的人，必须出示其疫苗接种证明或中共病毒测试阴性。
 
-该条例的执法工作在11月29日开始执行。违反该条例的企业将被处以1000美元的罚款，第二次违规将被处以2000美元的罚款，第三次违规将被处以5000美元的罚款。
 
-有人认为洛杉矶市的这条法令将与西好莱坞、纽约和旧金山的政策类似。西好莱坞的政策要求进入许多室内企业的成人顾客提交至少部分疫苗接种的证明，该政策于周四生效，从11月4日开始要求全面接种。
 
-**新闻来源****：**[**Los Angeles City Council approves sweeping COVID vaccine mandate to enter restaurants and shopping centers**](https://www.cbsnews.com/news/covid-vaccine-mandate-los-angeles-restaurants-shopping/)
+《每日邮报 》10月5日消息，国际足联正在与卡塔尔当局就取消2022年世界杯的强制性疫苗接种要求进行谈判，以决定是否允许球迷、球员和官员提供中共病毒康复证明，或提供阴性测试来代替疫苗接种要求。
+
+卡塔尔总理谢赫-哈立德-本-哈利法-本-阿卜杜勒-阿齐兹-阿勒萨尼在6月曾宣布，将要求任何想要参加明年比赛的球迷完全接种冠状病毒疫苗。而周日，国际足联首次鼓励足球运动员接种疫苗，导致人们担心未接种疫苗的球员会被禁止参赛。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-14.jpg)
+《体育报》上周披露，英超球员普遍反对接种疫苗，几乎三分之二的顶级球员尚未完全接种，许多人拒绝接种疫苗，其中包括了三名帮助球队进入2020年欧洲杯决赛的三狮军团球员。根据最新数据，在20个英超俱乐部中，只有7个俱乐部有一半以上队员完成了疫苗接种。
+
+中共病毒疫苗的有效性和安全性都已经被证伪，对于靠身体机能保持运动生涯的足球运动员来说，拒绝疫苗是明智的选择。期待国际足联在未来几周发布阿拉伯杯的比赛规则，届时可能会出现卡塔尔放宽疫苗要求的第一个迹象。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-2.jpg)
+参考链接：
+1. [Unvaccinated footballers ‘WILL be allowed to play at the World Cup’, with Qatar preparing to ease requirements and test them instead](https://www.dailymail.co.uk/sport/sportsnews/article-10060417/Unvaccinated-England-stars-allowed-play-World-Cup.html)
+2. [Football’s vaccine crisis: Two thirds of top-flight players are not jabbed… Stars are polluting dressing rooms spouting Covid anti-vaxx theories about Bill Gates, infertility and using VITAMINS!](https://www.dailymail.co.uk/sport/football/article-10047239/SPECIAL-REPORT-Footballs-vaccine-problem-laid-bare-two-thirds-flight-stars-not-jabbed.html)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+终审：鬼五
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

@@ -2,51 +2,36 @@
 ---
 
 
-## 最新研究发现：接种疫苗会增加感染病毒及住院风险
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1578058/)
+## 印度将面临能源供应短缺，对世界提出了预警
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1578224/)
 
-栏目记者/责任编辑：圣母院钟声
+栏目记者：正义的小新
+责任编辑：晓仙女
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
 
+10月5日，印度电力部长在发布的一份报告中表示：由于煤炭短缺和疫情后需求激增，印度未来几个月可能面临能源供应问题，截至9月底，印度燃煤发电厂的平均库存为四天，为多年来的最低水平。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-7.jpg)
+由于疫情和毒疫苗次生灾难扰乱了全球供应链，导致全球性的能源危机和能源价格飙升。信用评级公司，基础设施咨询总监告诉彭博社：在供应完全稳定之前，可能会看到一些地区停电，同时电费也会上涨。
 
+辛格坚表示：印度政府正在努力避免危机，但从目前情况来看，电力供应无法满足市场需求。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
-
-
-
-
-
-
-
-最新一期《新英格兰医学杂志》发表了有41,000多个样本的号称“新冠疫苗在门诊和住院环境中的有效性研究”，立即被疾病控制中心（CDC）视为推荐疫苗的宣传性广告作品。 可是在有心人进一步研究文章数据后发现：为了提高所谓的”疫苗疗效”，该研究省略了最近接种疫苗者的住院人数，所以研究结论具有欺骗性。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-1.jpg)
-令人震惊的是：接种疫苗后的第一周，1872名接种疫苗者被病毒感染而住院的人数被故意遗漏，而大多数不良事件和住院发生偏偏在这第一周。这项研究通过人工减少接种疫苗群体感染病毒的总数，和调控病毒核酸检测，来放大未接种者的感染率，最终提高疫苗的疗效百分比。由此人为创造了所谓的“疫苗功效”。CDC原本想利用诊断欺诈和失真的数据来欺骗公众，没成想被抓包。在调整了接种疫苗后的真实患病率后，疫苗疗效其实为-13%！显而易见，接种疫苗会增加住院风险，即增加了患重症的可能性。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-32.jpg)
-美国政府医疗管理机构CDC，FDA等在这场新冠疫情中一直扮演着误导公众的角色，以科学的名义干着伪科学的勾当。随着越来越多的数据造假被揭露，其遮羞面纱已被撕下。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.2-1.jpg)
-参考链接：
-[New study on 41,000 people reveals that taking vaccines INCREASES a person’s risk of hospitalization](https://newstarget.com/2021-10-04-study-reveals-taking-vaccines-increases-hospitalization-risk.html)
+正如郭文贵先生多次发出预警：停电现象将在全世界发生，甚至成为“常态”，人类正在面临前所未有的多重危机。
 
 （本文仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+参考链接：[印度将面临能源供应短缺，对世界提出了预警](https://www.dailymail.co.uk/wires/afp/article-10060259/India-warns-possible-power-shortages.html)
 
-终审： Ryan
-校对/发稿：为真不破20
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审编辑：Q大哥
+校正/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)

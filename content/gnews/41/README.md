@@ -2,25 +2,51 @@
 ---
 
 
-## 莫德纳疫苗易导致心脏炎症 瑞典和丹麦限制年轻人接种
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1577995/)
+## 福奇的NIAID资助下的美国研究所帮助培训中共科研人员
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1578101/)
 
-#### 撰稿：billwilliam
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-21.jpg)图片来源：网络截图
-据零对冲报道，瑞典和丹麦颁布政策限制年轻人接种莫德纳（Mordena）疫苗，原因是疫苗导致心脏发炎和严重副作用。
+栏目记者/责任编辑：圣母院钟声
 
-瑞典首先宣布停止向1991年或之后出生者（30岁以下）接种莫德纳疫苗。数小时后，丹麦卫生部门宣布停止向18岁或以下者接种莫德纳疫苗。
 
-据称，喊停的原因是至少一项研究发现疫苗导致危险的心脏发炎，尤其是年轻人。瑞典公共卫生部的公告称：“原因是副作用增加的信号，例如心肌炎、心包炎。”
 
-但是瑞典并没有叫停所有mRNA疫苗。瑞典卫生部门称他们推荐这个年龄段的人接种辉瑞疫苗；这个年龄段已经接种一针莫德纳疫苗的人不需要接种第二针（但不清楚是否会要求他们再接种一针辉瑞疫苗）。
 
-此举可能会促使其它斯堪的纳维亚国家重新审视莫德纳以及其他疫苗。瑞典和丹麦的公告发布后，莫德纳股价大幅下挫，雅虎财经显示其盘终跌幅达-8.94%。
 
-郭文贵先生引领的爆料革命早就指出疫苗是中共用来进一步毒害人类的生化武器。此次瑞典和丹麦的禁制令对于未来全面禁止疫苗接种迈出了一小步。国际社会正在逐渐意识到毒疫苗带来的灾难。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-参考资料：
 
-1. [https://www.zerohedge.com/covid-19/sweden-denmark-restrict-use-moderna-jab-over-risk-heart-inflammation-other-side-effects](https://www.zerohedge.com/covid-19/sweden-denmark-restrict-use-moderna-jab-over-risk-heart-inflammation-other-side-effects)
-2. [https://finance.yahoo.com/quote/MRNA?p=MRNA&.tsrc=fin-srch](https://finance.yahoo.com/quote/MRNA?p=MRNA&amp;.tsrc=fin-srch)
+
+
+
+
+
+据《国家脉动》10月4日报导：一封泄露的福奇博士和国家艾滋病规划署资助的加尔维斯顿国家实验室主任杰姆斯.勒杜克(James LeDuc) 之间的电子邮件被曝光，显示由福奇担任所长的NIAID**（**国家过敏和传染病研究所）资助了加尔维斯顿国家实验室，用那里的生物安全四级（BSL4）实验设施培训来自中共国的科学家， 涉及的有中国农业科学院（哈尔滨生物安全四级实验室）、中国科学院（武汉生物安全四级实验室）和中国医学科学院（昆明生物安全四级实验室）等。这些研究人员与中国冠状病毒的起源有关。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-3.jpg)
+这封2017年的电子邮件显示了由国家艾滋病规划署资助的加尔维斯顿国家实验室如何直接参与在生物安全四级设施培训中国科学家的细节。重要的是，这些设施可以处理通过气溶胶传播的,可导致人类致命的病原体。勒杜克强调了上述中国科研机构如何同意参观加尔维斯顿国家实验室,还提到了加强这种”合作”的重要性，以及由此会见”中国重要领导人”的机会。
+
+显然,中共的蓝金黄早已击中美国顶尖科研机构掌门人, 美国的内鬼帮助中共盗国贼集团获得可以致西方文明于死地的致命武器。在美国这样的法治国家，确着证据面前，叛国者该得到应有的惩罚。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-22.jpg)
+参考链接： 
+[Fauci’s NIAID Funded an American Institute that Helped Train Chinese Researchers from Wuhan Where COVID Is Suspected of Originating](https://www.thegatewaypundit.com/2021/10/faucis-niaid-funded-american-institute-helped-train-chinese-researchers-wuhan-covid-suspected-originating/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+终审： 鬼五
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

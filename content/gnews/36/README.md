@@ -2,41 +2,39 @@
 ---
 
 
-## 众议员加拉格尔新闻室:中共 无法隐瞒的病毒大流行起源的细节
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1578057/)
+## 浙江首次进口哈萨克、美国煤，港口悄然开放澳洲煤进口
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1578223/)
 
-众议员加拉格尔新闻室： “一组美国科学家以近4000种不同方式,使冠状病毒基因组的茎进行突变…最终确定,原始SARS-CoV-2病原体被针对人类感染进行了99.5%的优化-泄漏假说的实验室有力证据” 【转华尔街日报:科学接近Covid(中共病毒)起源 四项研究,包括两项来自世卫,提供了支持实验室泄漏理论有力证据】 “关键证据已经很明显了，只要他们想看……我们有一个目击者，一个从武汉逃出来的吹哨人，带着 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 无法隐瞒的大流行起源的细节。这个吹哨人的名字就是 SARS-CoV-2 ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click))。
-
-
-
-> "The crucial evidence is already in plain sight, if only they would look…We have an eyewitness, a whistleblower who escaped from Wuhan and carried details of the pandemic’s origin that the Chinese Communist Party can’t hide. The whistleblower’s name is SARS-CoV-2."
-> — Rep. Gallagher Press Office (@RepGallagher) [October 6, 2021](https://twitter.com/RepGallagher/status/1445772636986871817?ref_src=twsrc%5Etfw)
+栏目记者/责任编辑：AsG諾雅
 
 
 
-参议员玛莎·布莱克本： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 是一个意在统治全球的专制政权。现在，它把目光转向了台湾。本周在 Unmuted 节目上，章家敦和我将一起讨论保护我们的台湾盟友和坚决反对中国的侵略。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
 
 
 
-> Communist China is an authoritarian regime set on global domination. Now, it has turned its sights towards Taiwan. This week on Unmuted, [@GordonGChang](https://twitter.com/GordonGChang?ref_src=twsrc%5Etfw) joins me to discuss protecting our Taiwanese allies and standing firm against China’s aggression. [https://t.co/HtZRnPfT20](https://t.co/HtZRnPfT20)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [October 6, 2021](https://twitter.com/MarshaBlackburn/status/1445871339059904517?ref_src=twsrc%5Etfw)
+【法广】10月6日讯，在中共国多地限电，“电荒”“煤荒”情况下，浙江省能源集团不得不首次从哈萨克采购13.6万吨“热值高、硫分低、灰分低”的优质煤碳，运煤船要跑15700公里，海上货运历时30天 ，于10月4日运抵舟山港，预计10月中旬完成通关。该集团负责本次采购的浙能富兴燃料公司于6、7月份时还首次采购了13万吨美国动力煤。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-6.jpg)
+同时，德国之声也援引路透社报道称，中共多个港口已于9月末，悄然重新放行来自澳大利亚的煤炭，以缓解全国各地因燃煤供应不足而导致的供电紧张状况。中共从去年10月起因澳大利亚要求追溯病毒起源，而对该国煤炭执行非正式的进口禁令，直接导致约100万吨澳洲煤炭因中共海关拒绝清关，而滞留在各港口的保税区仓库中。但这批煤仅相当于中国一天的煤炭进口量，完全无法缓解目前的问题。
 
+在中共眼中，为了党的面子、钱袋子，老百姓的生计无足轻重，随时可以牺牲。危难当前，呼吁中国人尽早觉醒，加入真正维护中国人利益的新中国联邦。
 
+（本文仅代表作者观点）
 
-众议院中国工作组： 众议院中国工作组主席麦考尔：“随着 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 进行了前所未有的军事挑衅，美国对我们合作伙伴的支持不会动摇。台湾的经济对我们的经济和国家安全上的利益至关重要，台湾的民主仍然是自由的灯塔。“[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 在一个几乎生产世界上所有先进半导体的地区，所展现的军事上的好战，加大了这一关键供应链的风险。众议院必须尽快通过 ‘投资国内半导体制造、研发和设计’ 拨款，以恢复美国的高端半成品制造业!”
+参考链接：
+1. [浙江首次进口哈萨克、美国煤，港口悄然开放澳洲煤进口](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211005-%E6%B5%99%E6%B1%9F%E9%A6%96%E6%AC%A1%E8%BF%9B%E5%8F%A3%E5%93%88%E8%90%A8%E5%85%8B%E7%85%A4%EF%BC%8C%E8%BF%90%E7%85%A4%E8%88%B9%E8%A6%81%E8%B7%9115700%E5%85%AC%E9%87%8C)
+2. [浙江首次进口哈萨克、美国煤，港口悄然开放澳洲煤进口](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E6%AC%B2%E7%94%A8%E6%BE%B3%E6%B4%B2%E7%85%A4%E7%82%AD%E8%A7%A3%E7%87%83%E7%85%A4%E4%B9%8B%E6%80%A5/a-59426790)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
+终审编辑：Q大哥
+校正/发稿：Hetangyuese
 
-> “The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)’s military belligerence in a region that manufactures nearly all the world’s advanced semiconductors heightens the risk to this vital supply chain. The House must pass CHIPS appropriations ASAP to restore American manufacturing of advanced semis!"
-> — China Task Force (@China\_TaskForce) [October 6, 2021](https://twitter.com/China_TaskForce/status/1445833802799005696?ref_src=twsrc%5Etfw)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-
-参议员瑞克·斯科特: 拜登最近的过度行为直接来自 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的剧本：派美国国税局监视美国人的银行账户，并跟踪你花费的美元。专家们一致认为，我们不能相信美国国税局能保证这些信息的安全！ 我将会继续为保护美国人的隐私权而战。 【附听证会视频】
-
-
-
-> Biden’s latest overreach is straight from Communist China’s playbook: sending the IRS to SPY on Americans’ bank accounts & track the dollars you spend. Experts agree we can't trust the IRS to keep this info safe!
->  
-> I'll keep fighting to protect Americans' right to privacy. 👀⬇️ [pic.twitter.com/L53DLWoxhf](https://t.co/L53DLWoxhf)
-> — Rick Scott (@SenRickScott) [October 6, 2021](https://twitter.com/SenRickScott/status/1445790931844620292?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)

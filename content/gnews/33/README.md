@@ -2,41 +2,39 @@
 ---
 
 
-## 新加坡AI聊天机器人：因中共病毒问题的错误回复被禁用
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1578092/)
+## 黑客窃取并公布了亚马逊Twitch源代码等关键数据
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1578226/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/新加坡.jpg)
-图片来源：ns.sg
+栏目记者/责任编辑：AsG諾雅
 
-整理报道：小红帽
 
-新加坡卫生部 (MOH) 日前关闭了一个聊天机器人工具“Ask Jamie”，因为它对有关中共病毒（Covid-19）的问题发出了一系列“错误”的回复，其中包括安全性行为建议。这些失误在网上被广泛流传。
 
-当 该人工智能聊天机器人被一位女儿检测出中共病毒呈阳性的家长询问该怎么做时，它回答说：“你应该通过正确和持续地使用避孕套来进行安全的性行为，或者禁欲，至少在你的女性伴侣怀孕的整个期间实施安全性行为。”
-![](https://assets.gnews.org/wp-content/uploads/2021/10/mi_askjamie_041021.jpg)
-图片来源：straitstimes.com
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)
 
-类似错误的屏幕截图在本周初出现在网上。在Reddit上甚至出现了一个专门的帖子，引发了关于中共病毒成为STD（性传播疾病）的笑话。
 
-在回答有关新加坡居民在哪里可以获得ART（抗原快速检测）的问题时，聊天机器人提供了一个无关的答案，即“脊髓灰质炎疫苗在综合诊所、私人诊所以及旅行者诊所都可以得到”。
 
-但是，如果问题的措辞不同，聊天机器人会提供适当的建议——“让中共病毒阳性者保持冷静并留在他们的住宿地点或指定的医疗机构，同时等待前往医院的“必要交通安排”。
+亚马逊公司的视频游戏流媒体平台Twitch于10月6日早间遭到黑客攻击，被泄露内容包括：Twitch的源代码，内部管理工具，一个开发中的、旨在挑战Valve公司Steam店面的游戏工作室产品文件，和记录Twitch顶级游戏玩家2019至2021年收入的电子表格等关键数据。可见这次有计划的黑客攻击不仅是为了赚钱，更是为了伤害Twitch和亚马逊公司。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-3.jpg)
+Twitch已经通过推特确认了这次攻击。亚马逊于2014年收购了Twitch，据悉，该视频游戏直播每天有1500万用户，9月，Twitch曾因不当处理机器人或攻击者在直播节目的聊天框发布海量仇恨言论，而受到客户抵制。
 
-由于“不一致”的答复，卫生部告诉当地媒体，它已在周一“暂时禁用”聊天机器人，以“进行彻底的系统检查并进行改进”。然而，据媒体报道，“Ask Jamie”在其他几个政府网站上仍然在运行。
+继黑客攻击脸书、Whatsapp、Instagram后，亚马逊再受创，不由得令人质疑是否新一轮反大科技企业的 “黑客行动 “已经开始，但对摇摇欲坠的股市和经济来说又是一个噩耗。
 
-该聊天机器人由新加坡政府技术机构 (GovTech)于2014年开发，并部署在70个政府机构网站上。据报道，在大流行期间，GovTech鼓励居民使用该工具（被一家软件提供商吹捧为“世界上第一个全政府虚拟助理”）解决与中共病毒相关的问题。
+（本文仅代表作者观点）
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+信息链接：
+1. [黑客窃取并公布了亚马逊Twitch源代码等关键数据](https://www.zerohedge.com/technology/hackers-own-jeff-bezos-stealing-publishing-twitch-source-code-huge-hack)
+2. [黑客窃取并公布了亚马逊Twitch源代码等关键数据](https://www.bloomberg.com/news/articles/2021-10-06/amazon-s-twitch-is-hacked-exposing-source-code-creator-payouts)
 
-**参考新闻：**[Abstinence & condoms? AI chatbot in Singapore dropped after giving strange advice about testing positive for Covid-19 — RT World News](https://www.rt.com/news/536726-abstinence-condoms-chatbot-singapore-covid/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-04-at-21.43.18.png)
 
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
+终审编辑：Ryan
+校正/发稿：Hetangyuese
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)

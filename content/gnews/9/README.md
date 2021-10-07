@@ -2,68 +2,80 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1578387/)
+## 与中共国的战争：全面开战
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1578469/)
 
-- **编译：西班牙喜悦农场–wenwu**
+#### 翻译：Lish
 
+#### 编辑/评论：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/10/np_file_91737.jpeg)
+图片来源： The Japan Times
 
-您若想了解全文报导内容，请点击标题链接
+**编者按：**
 
-（爱惜生命 远离疫苗）
+澳大利亚主流媒体九频道访谈节目《60分钟》，有一档主题是“与中共国的战争”，近期播出后大热，油管上471万次观看，7.5万个赞。参与的嘉宾有军情专家、战略分析师、政治学者和商界精英，也代表了西方社会相当一部分主流声音。节目深入探讨分析了各种可能发生的情况：从常规战争到战术核武器，美国从观望到全面参与，澳大利亚随后的深度介入，最后澳洲成为对抗中共国的主战场。
 
-**1.[日本发现能传染人类新病毒：可致39度高烧 至少7人感染](https://health.huanqiu.com/article/453k0Gd5EU5)**
+虽然，节目的观点我们并不完全认同，但仅从点击率和点赞数就可以看出这档节目的巨大影响力。因为它几乎完整地推演了一遍澳大利亚与中共国开战的全过程，视频制作精良，嘉宾都很专业，极具参考价值，也体现了西方社会对中共国穷兵黩武的深度担忧。经过四年爆料革命，郭先生揭示的中共数十年苦心孤诣的深耕布局，图谋就是统治全世界。希望借此可以尽早警醒全世界，一起加入灭共的时代大潮。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip253.png)
+鉴于文字内容篇幅较大，本篇是第三部分《与中共国全面开战》，中共国将借鉴美军沙漠风暴战术入侵台湾战争，美国和西方盟国势必驰援台湾，澳大利亚跟随美国加入战斗，超级大国对垒核门槛随时跨过，而澳大利亚更有可能在早期遭遇中共国核打击。
 
-据《环球网》援引《海外网》2021年10月6日电，日本科学家松野发现了一种此前未知的、可传染给人类的新病毒——“Yezo病毒”，该病毒可导致高达39度的高烧;最早是2019年发现，1名41岁的男子在日本北海道森林里散步时被蜱虫叮咬感染未知病毒，之后因发烧和腿痛入院；至今已有7人感染了这种病毒，并没有出现死亡。
+**译文：**
 
-**2. [台湾拟引进抗病毒药物治疗中共病毒](https://www.taiwannews.com.tw/en/news/4307846)**
+中共国入侵台湾的招数借鉴了美军海湾战争，第一次海湾战争期间，美军“沙漠风暴”行动中的战术——“冲击和滚动”策略。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip254.png)
+当时，美军为了实现其目标，连续轰炸了伊拉克42天42夜。现在也没有任何可以阻止中共国这样做，美国也无法阻止，除非付出非常大的代价。
 
-据《台湾英文新闻》2021年10月6日电，默克和 Ridgeback Biotherapeutics 合股在 10 月 1 日的新闻稿中宣布，对于具有轻度至中度症状的高危、非住院中共病毒（COVID-19）患者，莫诺拉韦（molnupiravir）可将其住院或死亡风险降低约 50%；中央流行病指挥中心（CECC）负责人陈时中（陈时中）周三（6日）表示，台湾将在11月底积极争取获得用于治疗 COVID-19 的口服抗病毒药莫奈拉韦。
+中共国专门研究过“沙漠风暴”，现在中共国有1000多枚弹道导弹，沿中共国东海岸排列。这些火箭和弹道导弹将瞄准台湾的关键节点和军事中心，如他们的港口、机场和已知的台湾军队驻扎地点。中共国一旦决定行动，他们将毫不迟疑，全力以赴。
 
-**3. [默克以 40 倍于生产成本的价格向美国出售由纳税人出资研究的中共病毒药丸](https://www.thegatewaypundit.com/2021/10/update-merck-sells-federally-financed-covid-pill-us-40-times-costs-produce/)**
+目前，中共国已有一些非常令人印象深刻的武器装备，他们正在发展这种非常远距离的打击能力，旨在能够打击美国及其盟友。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip255.png)
+他们正在开发一些世界上最先进的武器系统，包括，空基武器；手持和战场上的激光武器；扩充核导弹武库；电磁轨道炮；高超音速导弹。
 
-据《门户网》2021年10月6日电，在发现羟氯喹在早期[成功治疗中共病毒](https://c19hcq.com/)一年多之后，在发现伊维菌素在治疗（尤其是[在印度](https://www.thegatewaypundit.com/2021/09/huge-uttar-pradesh-india-announces-state-covid-19-free-proving-effectiveness-deworming-drug-ivermectin/)）中共病毒方面取得惊人成功的几个月后；上周，主流假新闻媒体对默克公司发现了治疗 COVID 病毒的药物的消息，表示欢迎。
+他们正在开发的系统之一是东风-26（DF26），这是一种中程弹道导弹，可以打击远至关岛的美军航母。如果他们一旦击沉美军航母，那将造成巨大的生命损失。每艘航空母舰上有大约5000名人员。
 
-默克不是免费赠送他们的新药，新药莫奈拉韦的售价相当于生产成本（来自美国纳税人）的 40 倍；这是大型制药公司的又一次胜利。
+由此可见，**中共国让美国及其盟友（包括澳大利亚）付出巨大代价的可能性是非常真实的。**
 
-**4.  [Fauci 和 HHS 官员曾策划“一种新的禽流感病毒”以强制执行疫苗护照](https://www.thegatewaypundit.com/2021/10/explosive-video-emerges-fauci-hhs-officials-plotting-new-avian-flu-virus-enforce-universal-flu-vaccination-video/)**
+中共国习近平主席确保他的国家的军事力量能让他的人民和世界看到，并在沿海有争议的领土上增加了战争挑衅。南中国海上中共国已经建造了充满防御性硬件的人工岛。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip256.png)
+自2013年以来，中共国在南中国海建造了七个人工岛，总土地面积1300公顷（超过3000个足球场）。中共国这么做仅仅是在保卫其海岸线？
 
-据《门户网》2021年10月6日电，[Infowars 的](https://www.infowars.com/posts/monday-night-emergency-broadcast-video-of-fauci-and-hhs-plotting-to-stage-massive-health-scare-using-new-virus-emerges/)亚历克斯·琼斯 (Alex Jones)周一（4日）晚上特别广播了一段有关福奇的爆炸性[C-SPAN视频](https://www.c-span.org/video/?465845-1/universal-flu-vaccine)，HHS 官员和其他健康专家于 2019 年 10 月在华盛顿特区的米尔肯研究（Milken Institute）所组织的峰会上，讨论了如何实施疫苗护照；这些片段证明了中共病毒（COVID-19）大流行是计划好的，并且大型制药公司与联合国和其他腐败的政府官员早有预谋，开发和启动了 COVID-19 病毒世界“大重置”。
+然而，美国和中国都是世界上的超级大国，如果美中发生全面战争很可能涉及到核武器。
 
-在这段视频中，他们设想了一场来自中共国的新型禽流感病毒的新演习，这样他们就可以绕过 FDA 批准的方法，向大众实施 mRNA 毒疫苗；与 Fauci、Rick Bright 和 Michael Specter 一起参加此次活动的还有：美国国家医学科学院外交大臣 Margaret Hamburg、Sabin 疫苗研究所全球免疫总裁 Bruce Gellin、FluLab 首席执行官 Casey Wright，他们需要向全球发起生物武器攻击，让许多人渴望能够推出一种新的 mRNA 疫苗（另一种生物武器），以供公众测试（要钱也要命）。
+一旦战争爆发，其规模谁也无法控制和预料。一般来说，美国保持着首先使用核打击的选项。对中共国而言，他们会无所顾忌打一场核战争。
 
-**5. [疫苗和中共病毒等同种族灭绝和危害人类罪，进行刑事起诉](https://theexpose.uk/2021/10/04/international-criminal-court-to-begin-criminal-prosecution-of-world-leaders-for-covid-genocide-with-your-help/)——[点击并签名](https://www.petitions.net/investigation_and_prosecution_of_those_individuals_responsible_for_crimes_against_humanity) **
+【备注：近日，中国国军机挂载核弹突防台湾防空识别区，核威慑意味很浓。】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip257.png)
+当涉及到如此重要、对全球有潜在破坏性的事情时，美国需要保持其在第一时间使用战术核武器的确定威慑。
 
-据《吹哨人》2021年10月4日电，由于大量证据证明世界各国政府及其顾问参与了种族灭绝、危害人类罪和违反纽伦堡法典，世界各地的律师最近向国际刑事法院（ICC）提交了调查请求；这些证据包括理查德·弗莱明博士和诺贝尔奖获得者吕克·莫塔尼耶教授的宣誓证词，以及纳粹集中营幸存者的支持。
+美国需要让中共国习近平知道，也许会有一枚核导弹要落到他头上。当然，这并不意味着美国一定要这么做，应该理性地让中共国知道美国的能力。
 
-律师们一直在耐心等待国际刑事法院的回应，但由于** ****Covid-19 **疫苗伤害儿童的情况正在发生，律师和他们的专家证人迫切需要您的帮助，通过签署理查德**·**弗莱明博士创建的请愿书来敦促国际刑事法院接受调查请求，并开始对提交的证据中确定的个人进行调查和刑事起诉；一旦国际刑事法院做出决定，我们将及时向您通报调查请求的结果。
+如果美中这些超级大国之间发生战争，没有人知道核门槛会在哪里。也许澳大利亚应该将重点放在缓和事态上，并确保美国和中共国能够找到某种方式与对方和平共处。
 
-纳粹集中营大屠杀的幸存者写给国际刑事法院的信（[可在此处全文阅读](https://theexpose.uk/wp-content/uploads/2021/09/We-For-Humanity-letter-to-ICC-20.9.2021.pdf)）
+但是，中共国将澳大利亚视为美国最亲密的盟友，所以澳大利亚甚至有可能成为中共国核打击的目标。
 
-[**签署请愿书**](https://www.petitions.net/investigation_and_prosecution_of_those_individuals_responsible_for_crimes_against_humanity)
+如果中共国和美国真的进入全面战争状态，中共国如果在不攻击美国本土的情况下升级一步，那么像澳大利亚这样的国家就成了一个选项。而他们承担不了直接打击美国的风险，因为这会导致美国大规模的核报复。
 
-**6. [辉瑞科学家说他为“一个邪恶的公司”工作](https://theexpose.uk/2021/10/05/pfizer-scientist-caught-on-film-stating-natural-antibodies-are-much-better-than-the-pfizer-covid-19-vaccine/)**
+如果中共国袭击澳大利亚领土，就是攻击美国的盟国，那会被视为对美国的攻击，美国同样将以压倒性的力量进行报复。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip258.png)
+令人恐惧的是，澳大利亚的前瞻性规划者，包括领导未来运营研究小组的基尔库伦教授，也认为**不排除有来自中共国的核打击的可能**。
 
-据《吹哨人》2021年10月5日电，在《真相工程》发布的秘密镜头中，为辉瑞公司工作的科学家尼克·卡尔表示，天然抗体要好得多，因为它们可以攻击整个病毒系列，而不仅仅是中共病毒（Covid-19）疫苗所针对的单个病毒变体；辉瑞公司的科学家 Rahul Khandke 说：“我们是为了工资，被教导说疫苗免疫比自然免疫更安全……如果你有抗体，这就足够了。”
+如果澳大利亚全面参与美中两个超级大国的战争，并达到战术核门槛，**实际上很可能澳大利亚会在早期冲突中地遭遇核打击。**现在，虽然双方的战略家都不希望事态发展为核战争。但是，如果它发生了，那么这将使澳大利亚很快陷入火线。
 
-虽然辉瑞的高级科学家克里斯克罗齐说，他觉得自己在为“邪恶的公司”工作，接种疫苗的人仍然生病，因为他们的中共疫苗产生的抗体正在减弱，这与新的德尔塔关变体。完整视频报告：[点击这里](https://videopress.com/ade26147-2702-4f27-99d2-05afdced4060)。
+中共国知道，如果他们使用核武器，我们就会使用核武器还击，那将是中共国的末日。好的，所以他们也明白跨越核门槛的影响。
 
-（文章仅代表作者本人观点，与Gnews无关）
+澳大利亚与美国的牢固关系，包括澳新美安全条约，意味着我们在上个世纪的每一次重大冲突中都与美国并肩作战，包括在越南、伊拉克和阿富汗。
 
-* * *
+专家们认为，如果因中共国入侵台湾而引发的美中战争，澳大利亚必然紧随其后。**澳大利亚正在以这样一种方式表明它愿意配合美国更强硬的战略，这就是澳大利亚的战略。**
 
-***发稿：信心满满***
+（文中仅代表作者个人观点，与Gnews平台无关）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+视频链接：[War with China: Are we closer than we think? | Under Investigation – YouTube](https://www.youtube.com/watch?v=kA2KaEKs1LA)
+
+**发布： 文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

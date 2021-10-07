@@ -2,44 +2,26 @@
 ---
 
 
-## 有声| 前员工指证脸书“伤害儿童、煽动分裂削弱民主”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1578279/)
+## 合规发展时代到来！美成立国家加密货币执法团队
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1578358/)
 
-配音：香草山美食部-玫瑰园
+撰稿：东京樱花团/喜马拉雅的微尘
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/无标题.jpg)
 
+据华尔街日报10月7日消息，美国司法部当地时间周三宣布成立国家加密货币执法团队，以处理对滥用加密货币刑事犯罪的调查和起诉。
 
+美司法部表示，这个新团队将调查涉及虚拟货币交易所和洗钱者等的犯罪行为，还将努力追踪和追回因欺诈和勒索而损失的资产，包括向勒索软件集团支付的加密货币。美司法部称，该团队的负责人将通过申请程序遴选，要求申请者具有复杂刑事调查和起诉经验，并熟悉支持加密货币和区块链的技术。
 
+可以预见，美国针对数字加密货币监管成立国家级的专业执法队伍，必然会对全球数字加密货币监管形成示范性效应，数字加密货币也将迎来全球合规发展的时代。这对于即将上市的喜币（HCN）又是一个重大利好！
 
+信息来源：
 
+[美国司法部创建国家加密货币执法团队](https://cn.wsj.com/articles/%E7%BE%8E%E5%9B%BD%E5%8F%B8%E6%B3%95%E9%83%A8%E5%88%9B%E5%BB%BA%E5%9B%BD%E5%AE%B6%E5%8A%A0%E5%AF%86%E8%B4%A7%E5%B8%81%E6%89%A7%E6%B3%95%E5%9B%A2%E9%98%9F-11633564209?tesla=y)
 
+（免责声明：文章仅代表作者本人观点，与GNEWS无关）
 
-这几天Facebook可谓遇上了多事之秋 ：本周一（3日）经历了旗下平台全部宕机。故障期间，Facebook的全球市值蒸发最多时近500亿美金，目前略有恢复。
+*校对：东京樱花团/知了知了
+发布：东京樱花团/老黑*
 
-正可谓福无双至，祸不单行，周二（5日）在参议院商务委员会消费者保护小组的听证会作证，Facebook 被猛烈抨击。
-
-
-
-**文字版原文：[前员工指证脸书“伤害儿童、煽动分裂削弱民主”](https://gnews.org/zh-hans/1577124/)**
-
-
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)

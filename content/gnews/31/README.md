@@ -2,51 +2,35 @@
 ---
 
 
-## 福奇的NIAID资助下的美国研究所帮助培训中共科研人员
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1578101/)
+## 国际要闻汇编
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1578231/)
 
-栏目记者/责任编辑：圣母院钟声
+#### 素材：东京樱花团GNEWS组 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/44.png)[图片来源](https://www.voachinese.com/a/US-China-sullivan-yang-20211006/6259962.html)
+10月7日**汇编**
 
+[1、沙利文与杨洁篪会谈 提出令美方关切问题](https://www.voachinese.com/a/US-China-sullivan-yang-20211006/6259962.html)
 
+据路透社消息，周三（6日）美国国家安全顾问沙利文当天在瑞士苏黎世与中共政治局委员杨洁篪举行了会谈，以保持沟通，负责任的管控双方日趋激烈的战略竞争。在两人会晤之际，北京连日派遣大量的军机侵扰台湾空域，引发了美方的严重关切。白宫在一份声明中说，沙利文与中共中央政治局委员、中央外事工作委员会办公室主任杨洁篪的会晤是对拜登总统与习近平主席9月9日（中国时间9月10日）通话的后续跟进。在那次通话中，双方领导人讨论了保持开放的沟通渠道以负责任地管控美国和中华人民共和国之间竞争的重要性。白宫表示，沙利文提出了一些美方对中国的行动感到关切的好几个领域，包括与人权、新疆、香港、南中国海和台湾有关的行动。
 
+[2、丹麦瑞典停止向18、30岁以下族群施打莫德纳疫苗](https://www.aboluowang.com/2021/1007/1656333.html)
 
+自Covid-19疫苗开打以来，欧洲多国经常传出年轻族群出现心肌炎等副作用，且发生率呈上升趋势的消息，为此，瑞典卫生局周三（10月6日）援引报告宣布，停止对30岁以下者施打莫德纳（Moderna）疫苗，而丹麦也宣布停止为18岁以下族群施打该疫苗。瑞典卫生局在声明中说：“官员们已经决定暂停对1991年、和以后出生的所有人施打莫德纳公司的疫苗Spikevax，以防万一。”与此同时，丹麦也宣布禁止18岁以下的人接种莫德纳疫苗，以预防风险。该国的卫生监管机构表示，从四个北欧国家获得的数据显示，当年轻人接受莫德纳疫苗时，他们出现心脏炎症的风险明显在增加。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+[3、新西兰护卫舰加入英国航母编队穿行南中国海](https://www.voachinese.com/a/new-zealand-warship-joins-uk-carrier-group-on-transit-of-south-china-sea-20211006/6260154.html)
 
+新西兰皇家海军周三(6日)宣布，“特卡哈”号(HMNZS Te Kaha)护卫舰加入军事伙伴行列，穿行南中国海，参加 “2021五国金禧演习”( Exercise Bersama Gold 21)，并且在印太地区展开接触活动期间将与英国皇家海军“伊丽莎白号”( HMS Queen Elizabeth)航空母舰打击群互动。这艘新西兰军舰最近几天加入了英国航母打击群，并在此期间与包括美国海军航母“卡尔·文森”号(USS Carl Vinson)和“罗纳德·里根”号(USS Ronald Reagan)在内的来自日本、荷兰、加拿大和美国的军舰进行了演习和训练活动。“2021五国金禧演习”庆祝“五国联防”(FPDA)签署50周年。演习将在新加坡和马来西亚半岛附近海域举行。“五国联防”成员包括澳大利亚、英国、新加坡、马来西亚和新西兰。
 
+[4、台湾认为成功加入CPTPP希望大，对入会前景表示乐观](https://www.voachinese.com/a/Taiwan-pleased-with-positive-feedback-to-CPTPP-application-20211006/6259789.html%E3%80%82)
 
+据美国之音消息，台湾行政院政务委员兼经贸谈判办公室总谈判代表邓振中周三（6日）在接受网络节目专访时表示，台湾于9月22日以“台澎金马个别关税领域”的名义提出加入CPTPP申请后，CPTPP今年轮值主席国日本以及其他成员国加拿大、新西兰和澳大利亚都对台湾很友好，“得到的回应还算鼓舞”。他认为，以台湾整体局面来看，成功的希望很大。邓振中指出，对于北京突袭式提出加入CPTPP申请，很多国家都很错愕。他认为，CPTPP协定涵盖范围很全面，而中国国营企业仍占GDP的52%，从体制上来讲，中国很难符合CPTPP的规范与要求。正在台湾访问的澳大利亚前总理阿博特（Tony Abbott）表示，澳大利亚政府不应该因为担心激化与中国的紧张关系，而阻碍接受台湾加入CPTPP的申请。CPTPP的创始会员包括日本、新西兰、加拿大、澳大利亚、文莱、智利、马来西亚、墨西哥、秘鲁、新加坡和越南11个国家。
 
+[5、阿拉巴马州蒙市192年地标性教堂遭中国留学生纵火](https://www.aboluowang.com/2021/1007/1656336.html)
 
+据外媒7日消息，具有192年历史的阿拉巴马州蒙哥马利市(Montgomery)地标性建筑：第一浸信会教堂(First Baptist Church)，9月29日夜晚遭人纵火，内部一些设施被烧毁。蒙市执法机关依据教堂内部监视器录像，已将来自中国的留学生严晓琴(音译，Xiaoqin Yan)逮捕，等候进一步调查。据了解，嫌犯这次犯案共有四个现场，其中包括教堂主堂和办公室等，主堂地毯由于使用防火材料制作，火势无法充分燃烧扩大，主堂才能免于毁灭性灾难。法院数据显示，嫌犯严晓琴今年27岁，来自中国，持留学生签证。蒙哥马利郡地区检察官贝利(Daryl Bailey)日前除将其留学生签证取消外，并请求将保释金提高，以防止嫌犯弃保潜逃。
 
+（本文只代表个人观点，与Gnews网站无关）
 
-据《国家脉动》10月4日报导：一封泄露的福奇博士和国家艾滋病规划署资助的加尔维斯顿国家实验室主任杰姆斯.勒杜克(James LeDuc) 之间的电子邮件被曝光，显示由福奇担任所长的NIAID**（**国家过敏和传染病研究所）资助了加尔维斯顿国家实验室，用那里的生物安全四级（BSL4）实验设施培训来自中共国的科学家， 涉及的有中国农业科学院（哈尔滨生物安全四级实验室）、中国科学院（武汉生物安全四级实验室）和中国医学科学院（昆明生物安全四级实验室）等。这些研究人员与中国冠状病毒的起源有关。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-3.jpg)
-这封2017年的电子邮件显示了由国家艾滋病规划署资助的加尔维斯顿国家实验室如何直接参与在生物安全四级设施培训中国科学家的细节。重要的是，这些设施可以处理通过气溶胶传播的,可导致人类致命的病原体。勒杜克强调了上述中国科研机构如何同意参观加尔维斯顿国家实验室,还提到了加强这种”合作”的重要性，以及由此会见”中国重要领导人”的机会。
-
-显然,中共的蓝金黄早已击中美国顶尖科研机构掌门人, 美国的内鬼帮助中共盗国贼集团获得可以致西方文明于死地的致命武器。在美国这样的法治国家，确着证据面前，叛国者该得到应有的惩罚。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-22.jpg)
-参考链接： 
-[Fauci’s NIAID Funded an American Institute that Helped Train Chinese Researchers from Wuhan Where COVID Is Suspected of Originating](https://www.thegatewaypundit.com/2021/10/faucis-niaid-funded-american-institute-helped-train-chinese-researchers-wuhan-covid-suspected-originating/)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-终审： 鬼五
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+*编辑：东京樱花团 / 文小白*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

@@ -2,48 +2,27 @@
 ---
 
 
-## 喜马拉雅交易所启动在即 参与竞猜赢取欢乐惊喜
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1578137/)
+## 中共房地产将引爆世界 布林肯呼吁负责任地处理恒大危机
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1578250/)
 
-栏目记者/责任编辑：安吉拉
+撰稿：东京樱花团/喜马拉雅的微尘
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/36-1Q226164Q51B.png)[图片来源](http://www.lunwenstudy.com/shengtaijj/138005.html)
 
+据美国之音中文网10月7日讯，正在巴黎访问的美国国务卿布林肯（Antony Blinken）呼吁中共负责任地处理恒大债务危机。布林肯的发言是拜登政府官员首次就恒大债务危机发表看法。
 
+布林肯是星期三（10月6日）在巴黎接受彭博电视台访问时对目前困扰中共的恒大集团债务危机发表了看法。布林肯呼吁中共以“负责任”的行动，处理恒大债务危机可能带来的影响。布林肯表示，“中国必须自主作出其经济决定，但我们也知道，中国经济上的行动会对实际上整个世界产生重大的影响、重大的冲击，因为我们所有的经济都已经如此高度融合。”“因此，当然，当涉及到可能对中国经济产生重大影响的事情时，我们期待中国采取负责任的行动，有效地应对任何挑战。”布林肯说。
 
+中共房地产高度金融化且严重泡沫化，中共通过与世界的经济融合与金融通联，给全世界埋下了巨大的金融炸弹，当前的恒大已经成为“中国的雷曼兄弟”，全球主要基金均参与其中，恒大危机冲击的不仅是中国甚至是全球金融和经济。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+四年多的爆料革命，郭文贵先生一直不断地向世界揭露中共房地产和金融“假骗偷”的本质。但令人遗憾的是，由于贪婪与侥幸，世界终究还是被中共裹挟走到了最危险地步。当前，中共围绕“20大”的内斗已全面展开，作为中共内斗支点之一的恒大恐将随时被引爆。
 
+信息来源：
 
+[布林肯呼吁北京停止“挑衅”台湾并负责任地处理恒大债务危机](https://www.voachinese.com/a/Blinken-urges-China-to-halt-provocative-actions-toward-taiwan-20211006/6259852.html)
 
+（免责声明：文章仅代表作者本人观点，与GNEWS无关）
 
-
-
-
-Himalaya Exchange加密货币交易所即将全面启动，推出特别“Guess & Win”活动。符合资格的用户只需在截止时间前在专属页面输入您的预测答案，即能参与本次活动。
-
-首位正确猜出比特币在10月13日 UTC 凌晨12点，即美东时间12日晚8点的价格或与之最接近的用户将会成为本次竞猜活动大赢家！获得一万喜美元。
-
-截止时间为10月10日UTC晚上11点59分，即美东时间晚上7点59分，伦敦时间11日凌晨零点59分。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-17.jpg)
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-终审：鬼五
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
