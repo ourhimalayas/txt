@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/7/2021 2:22 AM (UTC)`
+
+10/06/2021 Miles Guo’s GETTR: PAG (Hong Kong) mainly connected and deceived the Jewish investors, and further manipulated stock markets by deceiving institutional and individual investors in the West, and when all these are revealed one day, something big will happen inside of the Chinese legal community; various of situations inside of CCP China are all in mess<br/><br/>10/06/2021 文贵盖特：香港太盟投资(PAG)以联络欺骗犹太投资圈为主、哄抬股市、欺骗西方机构投资人和小股东，这个雷爆的时候中国律师界要出大事儿；国内各种形势一塌糊涂<br/>
+![img](https://media.gettr.com/group47/getter/2021/10/07/02/22/d2967fa0-9c0e-140e-9547-f19f75631bb9/out.jpg)
+
+---
+
 `@miles 10/7/2021 12:10 AM (UTC)`
 
 September 20th, 2021 — German Corona Investigative Committee Press Conference (1)<br/><br/>Dr. Burkhardt:<br/>1️⃣Vaccines can cause similar lymphocyte predominant lymphocytic carditis in the heart muscle and its capsule. If it happened at the heart's conducting system, it will cause immediate heart death. This is very hard to be diagnosed even in post-mortems. <br/>2️⃣He observed the Lymphocyte Amok (Crazy) in all organs and all tissues, overshooting immune reaction, i.e., self-to-self attack - Activation of the lymphatic organs.<br/>3️⃣He told you the consequences of the vaccine-caused myocarditis in young people and sportsmen. <br/><br/>Full German version: https://gtv.org/video/id=614b401442a8af3151a34afa<br/>Full English version: https://gtv.org/video/id=61598e4c304e992109ae6487
@@ -289,12 +296,6 @@ WOW WOWWOW🙏🙏🙏🙏🔥🔥🔥👇👇👇👇👇👇👇👇👇👇�
 
 2015年，傅振华与郭文贵先生的秘密通话（上）<br/>傅以郭先生家人和其本人人身安全为威胁，要求郭先生把人、钱、资产安排回国，同时，要求文贵先生查清王岐山、孟建柱海外资金和不正当男女关系情况，并声称这是习近平的指示。傅爆出孟决策的执行人是孙力军，吴征代表孙力军和孟建柱<br/><br/>In 2015, Fu Zhenhua had a secret call with Mr. Guo Wengui（Part 1-2)<br/>Fu threatened Mr. Guo's family and his own personal safety and asked Mr. Guo to arrange the return of his family members, money and assets back to China, and at the same time, asked Mr. Wengui to find out about Wang Qishan and Meng Jianzhu's overseas funds and inappropriate sexual relationships, claiming that this was a directive from Xi Jinping. Fu exploded that Sun Lijun is the executive of Meng Jianzhu's decision, and Wu Zheng (Bruno Wu) represents Sun Lijun and Meng Jianzhu
 ![img](https://media.gettr.com/group39/getter/2021/10/02/17/08/d09c4679-80b0-8e07-b021-891de1eebf2b/out.jpg)
-
----
-
-`@miles 10/2/2021 4:48 PM (UTC)`
-
-法国媒体9月30日报道：<br/>是真是假：中国亿万富翁郭文贵称“疫苗灾难即将发生”<br/><br/>vrai ou fake：Guo Wengui, ce milliardaire chinois qui affirme que "le désastre des vaccins va arriver"<br/><br/>https://www.francetvinfo.fr/sante/maladie/coronavirus/vaccin/vrai-ou-fake-guo-wengui-ce-milliardaire-chinois-qui-affirme-que-ledesastre-des-vaccins-va-arriver_4789897.html
 
 ---
 
