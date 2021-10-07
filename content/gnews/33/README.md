@@ -2,32 +2,32 @@
 ---
 
 
-## 黑客窃取并公布了亚马逊Twitch源代码等关键数据
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1578226/)
+## 浙江首次进口哈萨克、美国煤，港口悄然开放澳洲煤进口
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1578223/)
 
 栏目记者/责任编辑：AsG諾雅
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
 
 
 
-亚马逊公司的视频游戏流媒体平台Twitch于10月6日早间遭到黑客攻击，被泄露内容包括：Twitch的源代码，内部管理工具，一个开发中的、旨在挑战Valve公司Steam店面的游戏工作室产品文件，和记录Twitch顶级游戏玩家2019至2021年收入的电子表格等关键数据。可见这次有计划的黑客攻击不仅是为了赚钱，更是为了伤害Twitch和亚马逊公司。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-3.jpg)
-Twitch已经通过推特确认了这次攻击。亚马逊于2014年收购了Twitch，据悉，该视频游戏直播每天有1500万用户，9月，Twitch曾因不当处理机器人或攻击者在直播节目的聊天框发布海量仇恨言论，而受到客户抵制。
+【法广】10月6日讯，在中共国多地限电，“电荒”“煤荒”情况下，浙江省能源集团不得不首次从哈萨克采购13.6万吨“热值高、硫分低、灰分低”的优质煤碳，运煤船要跑15700公里，海上货运历时30天 ，于10月4日运抵舟山港，预计10月中旬完成通关。该集团负责本次采购的浙能富兴燃料公司于6、7月份时还首次采购了13万吨美国动力煤。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-6.jpg)
+同时，德国之声也援引路透社报道称，中共多个港口已于9月末，悄然重新放行来自澳大利亚的煤炭，以缓解全国各地因燃煤供应不足而导致的供电紧张状况。中共从去年10月起因澳大利亚要求追溯病毒起源，而对该国煤炭执行非正式的进口禁令，直接导致约100万吨澳洲煤炭因中共海关拒绝清关，而滞留在各港口的保税区仓库中。但这批煤仅相当于中国一天的煤炭进口量，完全无法缓解目前的问题。
 
-继黑客攻击脸书、Whatsapp、Instagram后，亚马逊再受创，不由得令人质疑是否新一轮反大科技企业的 “黑客行动 “已经开始，但对摇摇欲坠的股市和经济来说又是一个噩耗。
+在中共眼中，为了党的面子、钱袋子，老百姓的生计无足轻重，随时可以牺牲。危难当前，呼吁中国人尽早觉醒，加入真正维护中国人利益的新中国联邦。
 
 （本文仅代表作者观点）
 
-信息链接：
-1. [黑客窃取并公布了亚马逊Twitch源代码等关键数据](https://www.zerohedge.com/technology/hackers-own-jeff-bezos-stealing-publishing-twitch-source-code-huge-hack)
-2. [黑客窃取并公布了亚马逊Twitch源代码等关键数据](https://www.bloomberg.com/news/articles/2021-10-06/amazon-s-twitch-is-hacked-exposing-source-code-creator-payouts)
+参考链接：
+1. [浙江首次进口哈萨克、美国煤，港口悄然开放澳洲煤进口](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211005-%E6%B5%99%E6%B1%9F%E9%A6%96%E6%AC%A1%E8%BF%9B%E5%8F%A3%E5%93%88%E8%90%A8%E5%85%8B%E7%85%A4%EF%BC%8C%E8%BF%90%E7%85%A4%E8%88%B9%E8%A6%81%E8%B7%9115700%E5%85%AC%E9%87%8C)
+2. [浙江首次进口哈萨克、美国煤，港口悄然开放澳洲煤进口](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E6%AC%B2%E7%94%A8%E6%BE%B3%E6%B4%B2%E7%85%A4%E7%82%AD%E8%A7%A3%E7%87%83%E7%85%A4%E4%B9%8B%E6%80%A5/a-59426790)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-04-at-21.43.18.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-终审编辑：Ryan
+终审编辑：Q大哥
 校正/发稿：Hetangyuese
 
 **更多资讯，更多关注**

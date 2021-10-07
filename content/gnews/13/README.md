@@ -2,36 +2,22 @@
 ---
 
 
-## 拜登提名人从简历中删除了卡尔·马克思的论文
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1578440/)
+## 墙内热点新闻
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1578467/)
 
-- **编译：西班牙喜悦农场–wenwu**
+撰稿人：Microkevin
 
+**上海迪士尼一男性游客在游玩时，突然晕倒，并不幸死亡。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16335854141.png)
+官方公告：10月3日上午，一名男性游客在创极速光轮项目排队等候区域突然昏倒。现场工作人员立即按乐园应急程序采取了急救措施，并迅速呼叫救护车将其送至最近的指定医院，后经抢救无效不幸身故。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip259.png)
+作者简评：本人第一反应就是不知道这名不幸的男子的死亡是否新冠疫苗有关，且看事后，否有详细的尸检报告。在中共国即使出来个尸检报告估计也没人信吧。值得注意的是为死亡男子发声的微博，再次不出所料的在发声之后被清空。我想说的是， 这事不能怪咱老百姓多想，就这个做派是个人都得多想。我就纳闷了有啥说啥，咋就不行了。
 
-前提摘要：拜登总统挑选来监督国家银行的监管人，曾经称赞苏联的男女平等，并曾在大学期间获得了**“**列宁**”**奖；《福克斯》已经联系了奥马洛娃和白宫以寻求评论，截至**9**月**30**日仍没有得到回复。
+**陕西延安G65高速段因降雨导致山体滑坡，车主们进入隧道避难**。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16335854071.png)图片来自网络
+据报道称，10月6日，陕西延安。G65高速黄陵段因降雨发生山体滑坡，许多车主们在隧道中避难，有车主称当时持续堵车了12小时。为缓解紧张情绪，有车主爬上车顶挥舞着国旗，众多车主下车一起合唱《我和我的祖国》。图片来自网络。
 
-本周二，拜登提名的货币审计长办公室主任（**the Office of the Comptroller of the Currency**** **）[索勒**·**奥马洛娃](https://thepostmillennial.com/bidens-pick-for-bank-regulator-slammed-for-past-pro-communism-comments)**( **[**Saule Omarova)**](https://thepostmillennial.com/bidens-pick-for-bank-regulator-slammed-for-past-pro-communism-comments)，她已将关于卡尔**·**马克思的论文从简历中删除；据《[华盛顿自由灯塔](https://freebeacon.com/biden-administration/biden-banking-nominee-scrubs-karl-marx-paper-from-resume/)》[报道](https://freebeacon.com/biden-administration/biden-banking-nominee-scrubs-karl-marx-paper-from-resume/)，奥马洛娃最近在她** 2017 **年的简历中列出了一篇题为《卡尔**·**马克思的经济分析和首都革命理论》的论文。
+作者简评，无语啊。这么快就忘了河南京广隧道的惨剧了么？那大客车拖出来之后，车窗都是用黑布蒙上的，死了多少人不用我说吧！我要是知道河南京广隧道的悲剧后，如果是我在隧道里避难的话，我第一时间想起来的肯定是河南京广隧道的场景。怎么也没有心情唱歌。而我此时此刻想的是，万一山体滑坡导致的泥石流如果倒灌进隧道里，您们还有心情唱歌么？还有，不知道您们歌唱完祖国之后，祖国有没有让您们少交点车贷，房贷啥的。
 
-参议院银行、住房和城市事务委员会（Urban Affairs Committee）的高级成员帕特·图米(Pat Toomey)参议员，他在周二（5日）写的[一封信中](https://www.banking.senate.gov/imo/media/doc/toomey_letter_to_omarova_requesting_thesis_on_marxism1.pdf)要求奥马洛娃交出该论文的副本。他说，委员会需要“全面评估个人是否适合担任参议院确认的行政和独立机构的职位。”
-
-据报道，奥马洛娃是在获得列宁个人学术奖学金就读莫斯科国立大学时，写下了这篇论文。但是，参议院银行、住房和城市事务委员会查看的简历 (CV) 中，并未列出该论文。
-
-图米要求奥马洛娃不迟于 10 月 13 日之前，将俄文的马克思论文原件和英文版本（如果存在）交给城市事务委员会。 “为了确保立法者有足够的时间进行翻译和审查，我的委员会工作人员与你们联系“货币审计长办公室（OCC）的工作人员上个月要求提供一份副本。不幸的是，我们没有得到任何保证委员会会及时收到该文件的副本，”他写道。
-
-由于奥马洛娃的评论似乎是，同情或支持前苏联时代的政策和价值观而受到批评。她在 2019 年[写道：](https://twitter.com/STOmarova/status/1112387645882200064) “在我来到美国之前，我无法想象像男女工资差距这样的事情在当今世界仍然存在；说说你对前苏联的看法，那里没有男女薪酬差距。自由市场体制并不总是’有效的’。”
-
-在一篇题为《[人民的账本](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=3715735)》[的](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=3715735)论文中，奥马洛娃主张“终结银行业”，正如我们所知，“这引起了图米的强烈反对。奥马洛娃呼吁‘从根本上重塑现代金融的基本架构和动力’，包括将零售银行国有化，并由美联储分配信贷，”[图米](https://www.banking.senate.gov/newsroom/minority/toomey-i-have-serious-reservations-about-occ-nominee)在奥马洛娃被拜登提名后的第二天说。
-
-相关文章：《[美国国家银行监管人曾获得**”**列宁**”**奖](https://gnews.org/zh-hans/1564376/)》
-
-（文章仅代表作者观点** **与**GNEWS**无关）
-
-**新闻来源：《[后千禧年](https://thepostmillennial.com/biden-nominee-karl-marx-thesis)》｜作者：汗娜·南丁格尔｜发布时间：2021年10月6日｜**
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+本文纯属个人观点。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

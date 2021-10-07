@@ -2,10 +2,10 @@
 ---
 
 
-## 有声| 前员工指证脸书“伤害儿童、煽动分裂削弱民主”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1578279/)
+## 有声| “现在购买，将来偿还”—消费者债务陷阱
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1578313/)
 
-配音：香草山美食部-玫瑰园
+配音：香草山教育部-蒙古鸿雁
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -15,13 +15,13 @@
 
 
 
-这几天Facebook可谓遇上了多事之秋 ：本周一（3日）经历了旗下平台全部宕机。故障期间，Facebook的全球市值蒸发最多时近500亿美金，目前略有恢复。
+Pattie Lovett-Reid 在她最新的专栏里阐述了’先消费后还款’这种看起来很有吸引力的消费方式其实隐藏着巨大的风险。
 
-正可谓福无双至，祸不单行，周二（5日）在参议院商务委员会消费者保护小组的听证会作证，Facebook 被猛烈抨击。
+最新的MNP消费者债务指数表明，低利率和高物价都刺激着加拿大人借贷。近六成（58%）的受访者表示在年底前可能会借更多的钱，其中37%的人信用卡已经有尚未偿还的债务。
 
 
 
-**文字版原文：[前员工指证脸书“伤害儿童、煽动分裂削弱民主”](https://gnews.org/zh-hans/1577124/)**
+**文字版原文：[“现在购买，将来偿还”—消费者债务陷阱](https://gnews.org/zh-hans/1576426/)**
 
 
 

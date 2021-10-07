@@ -2,45 +2,36 @@
 ---
 
 
-## 纽约州大型医疗保健系统解雇了 1,400 名未接种疫苗的员工
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1578375/)
+## 拜登提名人从简历中删除了卡尔·马克思的论文
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1578440/)
 
-据《零对冲》作者 泰勒·杜登（Tyler Durden）2021年10月5日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-1.png)2020 年 4 月 25 日纽约市麦迪逊广场花园（大屏幕）展示诺斯韦尔健康希望追踪系统（Northwell Health Hope Tracker）。（杰米·麦卡锡（Jamie McCarthy ）|盖蒂图片社）
-纽约一家大型医疗保健系统周一说它解雇了 1,400 名员工，原因是他们拒绝接种中共病毒疫苗。
+- **编译：西班牙喜悦农场–wenwu**
 
-诺斯韦尔卫生系统**解雇了大约**** 2% ****的员工**，这些员工遍布纽约市、威彻斯特和长岛。
 
-该系统在一份声明中告诉新闻媒体，整个由 23 家医院构成的系统现在 100% 工作人员都接种了疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip259.png)
 
-这一医疗系统表示：**“****诺斯韦尔认为，所有员工全部接种是我们保护员工、患者和我们服务的社区的健康安全的一项重要举措。****”**
+前提摘要：拜登总统挑选来监督国家银行的监管人，曾经称赞苏联的男女平等，并曾在大学期间获得了**“**列宁**”**奖；《福克斯》已经联系了奥马洛娃和白宫以寻求评论，截至**9**月**30**日仍没有得到回复。
 
-“这使我们能够继续在我们所有的设施中提供特殊护理，不受干扰，保持开放和全面运作。”
+本周二，拜登提名的货币审计长办公室主任（**the Office of the Comptroller of the Currency**** **）[索勒**·**奥马洛娃](https://thepostmillennial.com/bidens-pick-for-bank-regulator-slammed-for-past-pro-communism-comments)**( **[**Saule Omarova)**](https://thepostmillennial.com/bidens-pick-for-bank-regulator-slammed-for-past-pro-communism-comments)，她已将关于卡尔**·**马克思的论文从简历中删除；据《[华盛顿自由灯塔](https://freebeacon.com/biden-administration/biden-banking-nominee-scrubs-karl-marx-paper-from-resume/)》[报道](https://freebeacon.com/biden-administration/biden-banking-nominee-scrubs-karl-marx-paper-from-resume/)，奥马洛娃最近在她** 2017 **年的简历中列出了一篇题为《卡尔**·**马克思的经济分析和首都革命理论》的论文。
 
-声明补充说：“ **在这种情况下失去任何员工，诺斯韦尔都感到遗憾，**但作为医疗保健专业人员和纽约州最大医疗保健提供者的成员，我们清楚我们保护患者和彼此健康的独特责任。 我们应该为了我们的员工、患者和我们服务的社区 100% 接种中共病毒疫苗”。
+参议院银行、住房和城市事务委员会（Urban Affairs Committee）的高级成员帕特·图米(Pat Toomey)参议员，他在周二（5日）写的[一封信中](https://www.banking.senate.gov/imo/media/doc/toomey_letter_to_omarova_requesting_thesis_on_marxism1.pdf)要求奥马洛娃交出该论文的副本。他说，委员会需要“全面评估个人是否适合担任参议院确认的行政和独立机构的职位。”
 
-一位发言人没有立即回应是否给予过任何宗教或医疗豁免的评论请求。
+据报道，奥马洛娃是在获得列宁个人学术奖学金就读莫斯科国立大学时，写下了这篇论文。但是，参议院银行、住房和城市事务委员会查看的简历 (CV) 中，并未列出该论文。
 
-民主党州长凯西·霍赫尔 (Kathy Hochul) 命令纽约的医护人员接种中共病毒疫苗。上个月底一项法律挑战被部分驳回，除了寻求宗教豁免的人外。此外，乔·拜登（ Joe Biden ）总统的政府计划发布一项新的全国性要求，要求拥有 100 名或以上员工的雇主强制要求雇员接种疫苗或每周进行中共病毒检测。
+图米要求奥马洛娃不迟于 10 月 13 日之前，将俄文的马克思论文原件和英文版本（如果存在）交给城市事务委员会。 “为了确保立法者有足够的时间进行翻译和审查，我的委员会工作人员与你们联系“货币审计长办公室（OCC）的工作人员上个月要求提供一份副本。不幸的是，我们没有得到任何保证委员会会及时收到该文件的副本，”他写道。
 
-由于霍赫尔的强制要求，上周数千名未接种疫苗的医护人员被停薪留职。这种情况导致了一些中断。例如，斯特朗纪念医院（Strong Memorial Hospital）表示将暂停两周一些选择性手术。
+由于奥马洛娃的评论似乎是，同情或支持前苏联时代的政策和价值观而受到批评。她在 2019 年[写道：](https://twitter.com/STOmarova/status/1112387645882200064) “在我来到美国之前，我无法想象像男女工资差距这样的事情在当今世界仍然存在；说说你对前苏联的看法，那里没有男女薪酬差距。自由市场体制并不总是’有效的’。”
 
-据《大纪元时报》此前报道，因拒绝接种疫苗而被解雇的诺斯韦尔工人被剥夺了雇主对退休计划的供款等福利。
+在一篇题为《[人民的账本](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=3715735)》[的](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=3715735)论文中，奥马洛娃主张“终结银行业”，正如我们所知，“这引起了图米的强烈反对。奥马洛娃呼吁‘从根本上重塑现代金融的基本架构和动力’，包括将零售银行国有化，并由美联储分配信贷，”[图米](https://www.banking.senate.gov/newsroom/minority/toomey-i-have-serious-reservations-about-occ-nominee)在奥马洛娃被拜登提名后的第二天说。
 
-注册护士约翰·特林奇诺（John Trinchino）告诉《纽约时报》，他上周在史坦顿岛大学医院被解雇，该医院是诺斯韦尔的一部分。
+相关文章：《[美国国家银行监管人曾获得**”**列宁**”**奖](https://gnews.org/zh-hans/1564376/)》
 
-特林奇诺说，他不同意疫苗强制，因为他已从中共病毒中康复。研究表明，从这种由中共病毒引起的疾病中康复的人，与接种疫苗的人相比，可以拥有类似的保护免受后期感染。（译者注：有资料表明，自然免疫比疫苗好得多。）
+（文章仅代表作者观点** **与**GNEWS**无关）
 
-他说：“所有这一切都将导致对患者的护理更差，我真是对此感到厌恶”。
+**新闻来源：《[后千禧年](https://thepostmillennial.com/biden-nominee-karl-marx-thesis)》｜作者：汗娜·南丁格尔｜发布时间：2021年10月6日｜**
 
-诺斯韦尔的工人在该强制令生效当天进行了抗议，认为它侵犯了人们的自由。
+* * *
 
-纽约州里弗黑德（Riverhead）的诺斯韦尔医院的病人护理技术员凯伦·罗斯（Karen Roses）告诉大纪元时报，她知道拒绝接种疫苗可能意味着她会失去工作，但她说她将“不会屈服于来自任何人出于任何目的的霸凌或压力。”
+***发稿：信心满满***
 
-她说：“这不是反疫苗声明。这是一个自由选择声明”。
-
-【本文仅代表作者个人观点，与Gnews无关】
-
-原文链接：[https://www.zerohedge.com/political/large-new-york-health-care-system-fires-1400-unvaccinated-workers](https://www.zerohedge.com/political/large-new-york-health-care-system-fires-1400-unvaccinated-workers)
-
-翻译：Nick｜校对：JS709｜编辑&发布：黎明的光芒
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
