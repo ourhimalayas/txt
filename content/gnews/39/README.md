@@ -2,27 +2,41 @@
 ---
 
 
-## 法参议员抵台 沙利文将在瑞士与杨洁篪会谈
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1577321/)
+## 郭文贵直播摘要和音频 2021.10.5
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1577475/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
+摘要撰稿人： 文俊
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-6.png)
-文章仅代表作者本人观点，与Gnews无关
+音频提供者：左媛
 
-视频参看：2021.10.06早GTV新闻访谈
 
-[https://gtv.org/broadcast/watch/615d9622304e992109b07e21](https://gtv.org/broadcast/watch/615d9622304e992109b07e21)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-06-at-1.41.04-PM.png)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+### 视频：
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[视频链接：](https://gtv.org/video/id=615c44da304e992109afc719)
+
+### 音频：
+
+### 摘要：
+
+1. 七哥昨天差点毁容 灯突然掉下来了 砸在地上 七哥伤了一口子
+2. 没水没电怎么活 七哥在准备安全屋
+3. 房地产一定是800万亿而非400万亿
+4. 中国地方债 107万亿人民币约15万亿美元
+5. 全球GDP 1500万亿美元
+6. 中共GDP从1.3万亿成了15万亿，货币增发 120亿美元(800万亿RMB)
+7. 丽舞台世界第一夜总会。不是天上人间
+8. 啥叫金融票据? 一个南京的女孩 能干多少个亿 掉了一块表600多万美元 江诗丹顿
+9. 日本不光养老基金没了 还有日本金融系统 他们投了欧洲 淡马锡 最后又转到了中国
+10. 养老金没了 保险没了 像平安陆金所 吸引了世界上保险的钱 通过各种手段弄走了 这些人最后不恨中国人吗？
+11. 七哥的朋友因为无知给11岁的孩子打了三针结果孩子死亡了
+12. 30天后会让你看到不一样的GETTR
+13. whatsapp的机房居然人为断电
+14. 喜币就牛在这儿 是区块链技术 这些灾难中 唯一能受益的就是我们
+15. 腾讯音乐和太平联盟洗钱 我们要发动全球的战友 把太平联盟好好挖一挖
+16. 现在中共地方债欠那么多 灭了共谁来还? 还不了.崩塌 一定是崩盘的
+17. 美国摆脱美联储 美国人就自由了
+18. 昨天断网就是俄罗斯干的
+19. 90天大事已经92天了，还没有爆呢别急在等等 晚两天一定会来的
