@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/7/2021 12:17 PM (UTC)`
+
+10月7号：我那个老天爷来……
+> `@anping2016 10/7/2021 12:04 PM (UTC)`<br/>越离真相多么近<br/>越知战友多么勇<br/>🙏🙏🙏🙏🙏🙏
+
+---
+
 `@miles 10/7/2021 9:29 AM (UTC)`
 
 September 20th, 2021 — German Corona Investigative Committee Press Conference (2)<br/><br/>1️⃣Dr. Elmor Becker told a story to explain what the post vaccination "turbo cancer" is!  <br/>2️⃣Mr. Helga Fischer, Attorney:<br/>Europe should have test protocols and standards using microscope to examine vaccine batches. If these "un-declared" substances in the vaccines cannot be identified in Germany, this is a scandal.<br/>3️⃣Dr. Maria Hubmer- Mogg, MD:<br/>We should request to remove the vaccines off the market and the approval of the Emergency Authorization Use has to be stopped . It is a crime to vaccinate youngsters and babies!<br/><br/>Full German version: https://gtv.org/video/id=614b401442a8af3151a34afa<br/>Full English version: https://gtv.org/video/id=61598e4c304e992109ae6487
@@ -289,13 +296,6 @@ WOW WOWWOW🙏🙏🙏🙏🔥🔥🔥👇👇👇👇👇👇👇👇👇👇�
 
 10/3/2021 Miles Guo: Please make sure to stay at home and avoid going out or traveling if you can until December 2022! My biggest concerns are the vindictive social disasters and the collapse of the financial and monetary system caused by the COVID vaccines; Billions of people in the world have received COVID jabs in an extremely short period of time, which means the disasters caused by the COVID vaccines will break out in an extremely short period of time as<br/>well<br/><br/>10/3/2021 文贵直播：直到2022年12月以前，请大家务必待在家里，尽量不出门、不旅行！文贵最大的担心是疫苗造成的报复性的社会灾难以及金融货币系统的崩溃；全世界在极短时间内给几十亿人打了疫苗，疫苗的灾难也将在极短时间内爆发！
 ![img](https://media.gettr.com/group29/getter/2021/10/03/23/17/d3c90861-4444-8821-7b46-bb1a412fdd34/out.jpg)
-
----
-
-`@miles 10/3/2021 7:12 PM (UTC)`
-
-10月3号：衷心地感谢，今天所有的战友们，参与的六个小时的大直播，感谢所有的台前幕后的工作的兄弟姐妹们，七哥还是感觉，意犹未尽，🔥🔥🔥现在还想马上直播，咋弄咧咋弄咧？
-![img](https://media.gettr.com/group8/getter/2021/10/03/19/12/4a546b20-af48-1d45-cab4-bb282af7ba03/out.jpg)
 
 ---
 
