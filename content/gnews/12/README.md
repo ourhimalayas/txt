@@ -2,25 +2,25 @@
 ---
 
 
-## 莫德纳疫苗易导致心脏炎症 瑞典和丹麦限制年轻人接种
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1577995/)
+## 新西兰护卫舰加入英国航母编队穿行南中国海
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1578008/)
 
-#### 撰稿：billwilliam
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-21.jpg)图片来源：网络截图
-据零对冲报道，瑞典和丹麦颁布政策限制年轻人接种莫德纳（Mordena）疫苗，原因是疫苗导致心脏发炎和严重副作用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16335696571.png)资料照片：菲律宾海军乐队欢迎来访马尼拉大都会的新西兰海军“特卡哈”号护卫舰。(2017年4月4日)
+新西兰皇家海军10月6日宣布，“特卡哈”号导弹护卫舰加入了英国航母打击群，穿行南中国海前去参加 “2021五国金禧演习”。并且在印太地区与包括美国海军航母“卡尔·文森”号和“罗纳德·里根”号在内的来自日本、荷兰、加拿大和美国的军舰进行军事演习和训练活动。
 
-瑞典首先宣布停止向1991年或之后出生者（30岁以下）接种莫德纳疫苗。数小时后，丹麦卫生部门宣布停止向18岁或以下者接种莫德纳疫苗。
+“2021五国金禧演习”为庆祝“五国联防”(FPDA)签署50周年。演习将在新加坡和马来西亚半岛附近海域举行。“五国联防”成员包括澳大利亚、英国、新加坡、马来西亚和新西兰。
 
-据称，喊停的原因是至少一项研究发现疫苗导致危险的心脏发炎，尤其是年轻人。瑞典公共卫生部的公告称：“原因是副作用增加的信号，例如心肌炎、心包炎。”
+新闻参考链接：[https://www.voachinese.com/a/new-zealand-warship-joins-uk-carrier-group-on-transit-of-south-china-sea-20211006/6260154.html](https://www.voachinese.com/a/new-zealand-warship-joins-uk-carrier-group-on-transit-of-south-china-sea-20211006/6260154.html)
 
-但是瑞典并没有叫停所有mRNA疫苗。瑞典卫生部门称他们推荐这个年龄段的人接种辉瑞疫苗；这个年龄段已经接种一针莫德纳疫苗的人不需要接种第二针（但不清楚是否会要求他们再接种一针辉瑞疫苗）。
+编辑：胖丁
 
-此举可能会促使其它斯堪的纳维亚国家重新审视莫德纳以及其他疫苗。瑞典和丹麦的公告发布后，莫德纳股价大幅下挫，雅虎财经显示其盘终跌幅达-8.94%。
+* * *
 
-郭文贵先生引领的爆料革命早就指出疫苗是中共用来进一步毒害人类的生化武器。此次瑞典和丹麦的禁制令对于未来全面禁止疫苗接种迈出了一小步。国际社会正在逐渐意识到毒疫苗带来的灾难。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-参考资料：
 
-1. [https://www.zerohedge.com/covid-19/sweden-denmark-restrict-use-moderna-jab-over-risk-heart-inflammation-other-side-effects](https://www.zerohedge.com/covid-19/sweden-denmark-restrict-use-moderna-jab-over-risk-heart-inflammation-other-side-effects)
-2. [https://finance.yahoo.com/quote/MRNA?p=MRNA&.tsrc=fin-srch](https://finance.yahoo.com/quote/MRNA?p=MRNA&amp;.tsrc=fin-srch)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

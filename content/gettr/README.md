@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/7/2021 3:30 AM (UTC)`
+
+10/06/2021 Miles Guo Getter：In 2017, Mr. Miles Guo has already said that, the CCP will definitely be destroyed as it rules China by frauds, by deception, by committing corruption, and by using police to suppress people in a mafia style; and now, the lies similar to the propaganda in the Cultural Revolution and the Nazi ideology received the highest level of approval from the leadership inside the Zhongnanhai Pit.<br/><br/>10月6日文贵盖特：2017年文贵就说过共产党一定会死在以假治国，以黑治国，以骗治国，以贪治国，以警治国上；现在类似文革中的谎言，纳粹的思想竟能得到中南坑老杂毛的最高批示<br/>
+![img](https://media.gettr.com/group18/getter/2021/10/07/03/30/096e5735-b73f-20f9-cb81-b22e494cd092/out.jpg)
+
+---
+
 `@miles 10/7/2021 3:11 AM (UTC)`
 
 10月6号：尊敬的战友们好，由于很多重大的事件要紧急的开会，明天，后天都没有大直播，一切都已经开始。 !!!!!!<br/><br/>https://mobile.twitter.com/thewuhanclan/status/1445940092565065730
@@ -289,13 +296,6 @@ WOW WOWWOW🙏🙏🙏🙏🔥🔥🔥👇👇👇👇👇👇👇👇👇👇�
 
 🙏🙏🙏【‼️罗马，意大利 🇮🇹 ‼️<br/><br/>经过努力部分警察已经决定不对人民采取行动，而是与人民在一起。爆料革命太牛了 】
 ![img](https://media.gettr.com/group30/getter/2021/10/02/17/21/73c903c6-119f-bdee-dc8e-122adabb350a/out.jpg)
-
----
-
-`@miles 10/2/2021 5:19 PM (UTC)`
-
-2015年，傅振华与郭文贵先生的秘密通话（下）<br/>傅以郭先生家人和其本人人身安全为威胁，要求郭先生把人、钱、资产安排回国，同时，要求文贵先生查清王岐山、孟建柱海外资金和不正当男女关系情况，并声称这是习近平的指示。傅爆出孟决策的执行人是孙力军，吴征代表孙力军和孟建柱<br/><br/>In 2015, Fu Zhenhua had a secret call with Mr. Guo Wengui（Part 2-2)<br/>Fu threatened Mr. Guo's family and his own personal safety and asked Mr. Guo to arrange the return of his family members, money and assets back to China, and at the same time, asked Mr. Wengui to find out about Wang Qishan and Meng Jianzhu's overseas funds and inappropriate sexual relationships, claiming that this was a directive from Xi Jinping. Fu exploded that Sun Lijun is the executive of Meng Jianzhu's decision, and Wu Zheng (Bruno Wu) represents Sun Lijun and Meng Jianzhu
-![img](https://media.gettr.com/group14/getter/2021/10/02/17/19/73bb2fe1-7b64-9478-87bb-26fd2e556fdb/out.jpg)
 
 ---
 

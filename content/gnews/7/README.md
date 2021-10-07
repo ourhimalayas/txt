@@ -2,41 +2,41 @@
 ---
 
 
-## 众议员加拉格尔新闻室:中共 无法隐瞒的病毒大流行起源的细节
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1578057/)
+## 新加坡AI聊天机器人：因中共病毒问题的错误回复被禁用
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1578092/)
 
-众议员加拉格尔新闻室： “一组美国科学家以近4000种不同方式,使冠状病毒基因组的茎进行突变…最终确定,原始SARS-CoV-2病原体被针对人类感染进行了99.5%的优化-泄漏假说的实验室有力证据” 【转华尔街日报:科学接近Covid(中共病毒)起源 四项研究,包括两项来自世卫,提供了支持实验室泄漏理论有力证据】 “关键证据已经很明显了，只要他们想看……我们有一个目击者，一个从武汉逃出来的吹哨人，带着 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 无法隐瞒的大流行起源的细节。这个吹哨人的名字就是 SARS-CoV-2 ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click))。
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/新加坡.jpg)
+图片来源：ns.sg
 
+整理报道：小红帽
 
+新加坡卫生部 (MOH) 日前关闭了一个聊天机器人工具“Ask Jamie”，因为它对有关中共病毒（Covid-19）的问题发出了一系列“错误”的回复，其中包括安全性行为建议。这些失误在网上被广泛流传。
 
-> "The crucial evidence is already in plain sight, if only they would look…We have an eyewitness, a whistleblower who escaped from Wuhan and carried details of the pandemic’s origin that the Chinese Communist Party can’t hide. The whistleblower’s name is SARS-CoV-2."
-> — Rep. Gallagher Press Office (@RepGallagher) [October 6, 2021](https://twitter.com/RepGallagher/status/1445772636986871817?ref_src=twsrc%5Etfw)
+当 该人工智能聊天机器人被一位女儿检测出中共病毒呈阳性的家长询问该怎么做时，它回答说：“你应该通过正确和持续地使用避孕套来进行安全的性行为，或者禁欲，至少在你的女性伴侣怀孕的整个期间实施安全性行为。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/mi_askjamie_041021.jpg)
+图片来源：straitstimes.com
 
+类似错误的屏幕截图在本周初出现在网上。在Reddit上甚至出现了一个专门的帖子，引发了关于中共病毒成为STD（性传播疾病）的笑话。
 
+在回答有关新加坡居民在哪里可以获得ART（抗原快速检测）的问题时，聊天机器人提供了一个无关的答案，即“脊髓灰质炎疫苗在综合诊所、私人诊所以及旅行者诊所都可以得到”。
 
-参议员玛莎·布莱克本： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 是一个意在统治全球的专制政权。现在，它把目光转向了台湾。本周在 Unmuted 节目上，章家敦和我将一起讨论保护我们的台湾盟友和坚决反对中国的侵略。
+但是，如果问题的措辞不同，聊天机器人会提供适当的建议——“让中共病毒阳性者保持冷静并留在他们的住宿地点或指定的医疗机构，同时等待前往医院的“必要交通安排”。
 
+由于“不一致”的答复，卫生部告诉当地媒体，它已在周一“暂时禁用”聊天机器人，以“进行彻底的系统检查并进行改进”。然而，据媒体报道，“Ask Jamie”在其他几个政府网站上仍然在运行。
 
+该聊天机器人由新加坡政府技术机构 (GovTech)于2014年开发，并部署在70个政府机构网站上。据报道，在大流行期间，GovTech鼓励居民使用该工具（被一家软件提供商吹捧为“世界上第一个全政府虚拟助理”）解决与中共病毒相关的问题。
 
-> Communist China is an authoritarian regime set on global domination. Now, it has turned its sights towards Taiwan. This week on Unmuted, [@GordonGChang](https://twitter.com/GordonGChang?ref_src=twsrc%5Etfw) joins me to discuss protecting our Taiwanese allies and standing firm against China’s aggression. [https://t.co/HtZRnPfT20](https://t.co/HtZRnPfT20)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [October 6, 2021](https://twitter.com/MarshaBlackburn/status/1445871339059904517?ref_src=twsrc%5Etfw)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
+**参考新闻：**[Abstinence & condoms? AI chatbot in Singapore dropped after giving strange advice about testing positive for Covid-19 — RT World News](https://www.rt.com/news/536726-abstinence-condoms-chatbot-singapore-covid/)
 
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-众议院中国工作组： 众议院中国工作组主席麦考尔：“随着 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 进行了前所未有的军事挑衅，美国对我们合作伙伴的支持不会动摇。台湾的经济对我们的经济和国家安全上的利益至关重要，台湾的民主仍然是自由的灯塔。“[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 在一个几乎生产世界上所有先进半导体的地区，所展现的军事上的好战，加大了这一关键供应链的风险。众议院必须尽快通过 ‘投资国内半导体制造、研发和设计’ 拨款，以恢复美国的高端半成品制造业!”
-
-
-
-> “The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)’s military belligerence in a region that manufactures nearly all the world’s advanced semiconductors heightens the risk to this vital supply chain. The House must pass CHIPS appropriations ASAP to restore American manufacturing of advanced semis!"
-> — China Task Force (@China\_TaskForce) [October 6, 2021](https://twitter.com/China_TaskForce/status/1445833802799005696?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特: 拜登最近的过度行为直接来自 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的剧本：派美国国税局监视美国人的银行账户，并跟踪你花费的美元。专家们一致认为，我们不能相信美国国税局能保证这些信息的安全！ 我将会继续为保护美国人的隐私权而战。 【附听证会视频】
-
-
-
-> Biden’s latest overreach is straight from Communist China’s playbook: sending the IRS to SPY on Americans’ bank accounts & track the dollars you spend. Experts agree we can't trust the IRS to keep this info safe!
->  
-> I'll keep fighting to protect Americans' right to privacy. 👀⬇️ [pic.twitter.com/L53DLWoxhf](https://t.co/L53DLWoxhf)
-> — Rick Scott (@SenRickScott) [October 6, 2021](https://twitter.com/SenRickScott/status/1445790931844620292?ref_src=twsrc%5Etfw)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

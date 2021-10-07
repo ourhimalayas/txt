@@ -2,7 +2,18 @@
 ---
 
 
-## 10/05/2021七哥直播：中共体制内上蒙下骗，都在等着对手早于自己倒下
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1577933/)
+## 雅典娜时报-第074期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1577978/)
 
-秘密翻译组-北美组
+#### **《雅典娜时报》汇聚全球新闻时事**
+
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/10/072.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/071.png)
+***发布：小红帽***
+
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

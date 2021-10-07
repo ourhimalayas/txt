@@ -2,41 +2,54 @@
 ---
 
 
-## 新加坡AI聊天机器人：因中共病毒问题的错误回复被禁用
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1578092/)
+## 未接种疫苗的足球运动员或将被允许参加世界杯
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1578124/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/新加坡.jpg)
-图片来源：ns.sg
+栏目记者/责任编辑：AsG諾雅
 
-整理报道：小红帽
 
-新加坡卫生部 (MOH) 日前关闭了一个聊天机器人工具“Ask Jamie”，因为它对有关中共病毒（Covid-19）的问题发出了一系列“错误”的回复，其中包括安全性行为建议。这些失误在网上被广泛流传。
 
-当 该人工智能聊天机器人被一位女儿检测出中共病毒呈阳性的家长询问该怎么做时，它回答说：“你应该通过正确和持续地使用避孕套来进行安全的性行为，或者禁欲，至少在你的女性伴侣怀孕的整个期间实施安全性行为。”
-![](https://assets.gnews.org/wp-content/uploads/2021/10/mi_askjamie_041021.jpg)
-图片来源：straitstimes.com
 
-类似错误的屏幕截图在本周初出现在网上。在Reddit上甚至出现了一个专门的帖子，引发了关于中共病毒成为STD（性传播疾病）的笑话。
 
-在回答有关新加坡居民在哪里可以获得ART（抗原快速检测）的问题时，聊天机器人提供了一个无关的答案，即“脊髓灰质炎疫苗在综合诊所、私人诊所以及旅行者诊所都可以得到”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-但是，如果问题的措辞不同，聊天机器人会提供适当的建议——“让中共病毒阳性者保持冷静并留在他们的住宿地点或指定的医疗机构，同时等待前往医院的“必要交通安排”。
 
-由于“不一致”的答复，卫生部告诉当地媒体，它已在周一“暂时禁用”聊天机器人，以“进行彻底的系统检查并进行改进”。然而，据媒体报道，“Ask Jamie”在其他几个政府网站上仍然在运行。
 
-该聊天机器人由新加坡政府技术机构 (GovTech)于2014年开发，并部署在70个政府机构网站上。据报道，在大流行期间，GovTech鼓励居民使用该工具（被一家软件提供商吹捧为“世界上第一个全政府虚拟助理”）解决与中共病毒相关的问题。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
 
-**参考新闻：**[Abstinence & condoms? AI chatbot in Singapore dropped after giving strange advice about testing positive for Covid-19 — RT World News](https://www.rt.com/news/536726-abstinence-condoms-chatbot-singapore-covid/)
 
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+《每日邮报 》10月5日消息，国际足联正在与卡塔尔当局就取消2022年世界杯的强制性疫苗接种要求进行谈判，以决定是否允许球迷、球员和官员提供中共病毒康复证明，或提供阴性测试来代替疫苗接种要求。
+
+卡塔尔总理谢赫-哈立德-本-哈利法-本-阿卜杜勒-阿齐兹-阿勒萨尼在6月曾宣布，将要求任何想要参加明年比赛的球迷完全接种冠状病毒疫苗。而周日，国际足联首次鼓励足球运动员接种疫苗，导致人们担心未接种疫苗的球员会被禁止参赛。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-14.jpg)
+《体育报》上周披露，英超球员普遍反对接种疫苗，几乎三分之二的顶级球员尚未完全接种，许多人拒绝接种疫苗，其中包括了三名帮助球队进入2020年欧洲杯决赛的三狮军团球员。根据最新数据，在20个英超俱乐部中，只有7个俱乐部有一半以上队员完成了疫苗接种。
+
+中共病毒疫苗的有效性和安全性都已经被证伪，对于靠身体机能保持运动生涯的足球运动员来说，拒绝疫苗是明智的选择。期待国际足联在未来几周发布阿拉伯杯的比赛规则，届时可能会出现卡塔尔放宽疫苗要求的第一个迹象。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-2.jpg)
+参考链接：
+1. [Unvaccinated footballers ‘WILL be allowed to play at the World Cup’, with Qatar preparing to ease requirements and test them instead](https://www.dailymail.co.uk/sport/sportsnews/article-10060417/Unvaccinated-England-stars-allowed-play-World-Cup.html)
+2. [Football’s vaccine crisis: Two thirds of top-flight players are not jabbed… Stars are polluting dressing rooms spouting Covid anti-vaxx theories about Bill Gates, infertility and using VITAMINS!](https://www.dailymail.co.uk/sport/football/article-10047239/SPECIAL-REPORT-Footballs-vaccine-problem-laid-bare-two-thirds-flight-stars-not-jabbed.html)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+终审：鬼五
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
