@@ -2,23 +2,15 @@
 ---
 
 
-## 2021年10月7日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1579358/)
+## 狮城快讯：郭文贵先生提到的为星链提供芯片的公司IPO原来是这家
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1579452/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+**撰稿：小坡**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-07-232013.jpg)
+格芯（Global Foundries）本周一（10月4日）在其证券交易委员会的招股说明书中表示，阿联酋国家投资基金穆巴达拉将在纳斯达克上市，并“在此次发行后继续拥有实质性控制权”。穆巴达拉目前拥有该公司 100% 的股份。
 
-10月7号：我那个老天爷来……
+GlobalFoundries 成立于 2008 年，当时阿布扎比政府的一个分支机构收购了 AMD 在德国德累斯顿的制造业务。 GlobalFoundries 在其招股说明书中表示，半导体行业将需要大幅增加投资才能跟上需求，预计未来八到十年行业总收入将翻一番。
 
-瑞安平Ping Ryan
-@AnPing2016
-·越离真相多么近
-越知战友多么勇
-🙏🙏🙏🙏🙏🙏
+原来七哥直播提到的AMD 其实是AMD曾经的子公司格芯。国际半导体制造公司格芯（GlobalFoundries）最近就斥资40亿美元（53亿新元）在新加坡兀兰建设新工厂，以增加产能来满足客户激增需求及解决全球当前面临“芯片荒”。
 
-PandaRolling（Athena Farm）
-@Pandarolling
-辉瑞疫苗含有婴儿胚胎细胞！所有接种疫苗的人，毫无疑问已经是新一代生物技术实验者，所有没有接种疫苗者，都是潜在的下一代生物技术实验者，我们所有人，都正处于一个对我们而言保密、风险未知的恐怖生物技术实验链条之上The Pfizer vaccine contains baby embryonic cells! All those who have received the vaccine are undoubtedly already the next generation of biotech experimenters, and all those who have not received the vaccine are the potential next generation of biotech experimenters, all of us, are on top of a chain of horrific biotech experiments that are secret to us and whose risks are unknown
-
-[【2021年10月7日】文贵先生盖特原文](https://gettr.com/post/pdfgu11a1b)
-
-**喜联盟Gnews编辑部**
+格芯首席执行官考菲尔德（Tom Caulfield）今年6月22日在新厂线上动土仪式上披露，新厂目前已在建设，2023年便能投产，它将给新加坡本地带来1000个新的就业机会，包括工程师和技术员。格芯在本地聘用4800名员工。

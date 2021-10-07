@@ -2,22 +2,31 @@
 ---
 
 
-## 芬兰加入瑞典和丹麦 共同限制莫德纳COVID-19疫苗
-` 象声` [轉載自GNews](https://gnews.org/zh-hans/1579124/)
+## 美参议院两议员致函蔡英文，承诺支持台湾
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579233/)
 
-译者：快速推广到目前为止有争议德疫苗，这在世界医疗史上非常罕见，无论欧洲各国政要在对待疫苗的事情上各自为阵，我们面对的现实就是欧盟国家正在因为疫情因为疫苗，而滑向分裂的边缘。是否不久的将来，欧盟即将因为疫苗事件而解散呢？
+栏目记者/责任编辑：云豹
 
-赫尔辛基，10月7日（路透社）报道说：由于罕见的心血管副作用的报道，芬兰周四暂停了莫德纳(MRNA.O) 的COVID-19 疫苗对年轻男性的使用，瑞典和丹麦加入了限制其使用的行列。之前芬兰卫生研究所所长Mika Salminen表示，芬兰将向1991 及以后出生的男性提供辉瑞的疫苗。但是，“一项涉及芬兰、瑞典、挪威和丹麦的北欧研究发现，接受Moderna Spikevax治疗的 30 岁以下男性患心肌炎的风险略高于其他人，”他说。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-瑞典和丹麦卫生官员周三宣布，他们将暂停对所有年轻人和儿童使用 Moderna 疫苗，理由是同样未发表的研究。挪威卫生官员周三重申，他们建议30岁以下的男性选择辉瑞的疫苗。芬兰研究所表示，北欧研究将在几周内发表，初步数据已发送给欧洲药品管理局 (EMA) 进行进一步评估。
 
-EMA 的安全委员会在7月得出结论，在接种 Spikevax 或辉瑞 / BioNTech Comirnaty 疫苗后，这种炎症性心脏病可能发生在非常罕见的情况下，更常见于第二次接种后的年轻男性。然而，美国、欧盟和世界卫生组织的监管机构强调，莫德纳和辉瑞使用的基于 mRNA技术的注射疫苗在预防 COVID-19 方面的好处继续大于风险。
 
-莫德纳德发言人周三晚间表示，它了解瑞典和丹麦监管机构的决定。“这些通常是轻度病例，个人在接受标准治疗和休息后往往会在短时间内康复。感染 COVID-19 的人患心肌炎的风险大大增加，接种疫苗是预防这种情况的最佳方法。”
+美国参议院外交委员会主席梅南德兹、及军委会首席殷荷菲6日共同致函台湾总统蔡英文，除恭贺中华民国国庆外，也对中共军机近日频频扰台的行动表示了关切。称将呼吁国际社会联手捍卫台湾民主价值，承诺会持续支持台湾。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1007AM（1-3）視頻備用.005.jpeg)
+两位议员在信函中向蔡总统表示，台湾站在面对中共挑战的最前线，他们很骄傲能在美国国会中推动立法行动，强化台湾安全与美台双边伙伴关系，称 “捍卫台湾人民与政府所体现的民主价值、自由市场原则，比以往任何时候都更为重要”。表明虽然面临中共日益严峻的威胁态势，但台湾也得到越来越多国家，政府以及政要的公开支持,包括军事行动和舆论发声,  这些都是在向蠢蠢欲动的中共释放警告的信号! 
+(本文仅代表作者观点)
 
-意大利卫生部长罗伯托·斯佩兰萨告诉记者，意大利不打算暂停莫德纳疫苗，并表示欧洲国家应该更紧密地合作以更好地协调。“我们必须信任国际权威机构，首先是 EMA，它是我们的参考机构，并已对此事表达了非常明确的判断，”他说。
+参考链接：[美參院外委軍委領袖致函蔡總統 關切共機擾台](https://www.cna.com.tw/news/aipl/202110070017.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-\*文章仅代表作者观点\*
- 原文参考链接：
- https://www.reuters.com/world/europe/finland-pauses-use-moderna-covid-19-vaccine-young-men-2021-10-07/?taid=615edb6a3784a10001418fe9&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter
- 翻译&编辑： 洛杉矶盘古农场—蓝精灵
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

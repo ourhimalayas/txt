@@ -2,38 +2,33 @@
 ---
 
 
-## 拜登计划的阻挠者
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1579230/)
+## 隐瞒与中共联络人的长期关系 美国国防承包商受刑事指控
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579292/)
 
-翻译 /整理  ：意大利罗马达芬奇农场： Shuizhuyu
+栏目记者/责任编辑：飞虹
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/an-ihnen-koennten-bidens.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-图片来源：FAZ
 
-由于国会中保守的民主党人，乔拜登总统最雄心勃勃的计划可能会失败。两位带头人，来自西弗吉尼亚州的乔曼钦和来自亚利桑那州的凯尔斯滕·斯内玛充分发挥了他们的力量。
+10月5日，美国司法部称，前美国陆军直升机飞行员沙普尔·莫伊尼安因在国家安全背景调查上作虚假陈述，隐瞒一名与中共情报部门有关的中国籍女子接触合作而受到刑事指控。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1007-AM（4-6）.005.jpeg)
+现年66岁的沙普尔·莫伊尼安，从美军退役后为多家国防承包商工作。2017年3月他曾前往中国，参与一家国防承包商的多个项目，包括美国军方使用的高空无人侦察机。返美后，莫伊尼安继续与一名中方女性联系人沟通，向她通报工作进展，并通过亲属的韩国银行账户收取这名中共代理人的回报款项。
 
-现在大计划可能要被否定，乔·拜登总统很可能会接纳保守的民主党人，并缩减他雄心勃勃的经济和社会计划。过去几天，白宫员工一直忙于与乔·曼钦 (Joe Manchin) 和凯尔斯滕·斯内玛 (Kyrsten Sinema) 周围的所谓“温和”参议员进行谈判——而拜登则不得不控制党内的期望。现在可能会削减一揽子计划的所有领域——从健康保险到带薪育儿假，再到气候保护。
+从2017年到2019年期间，莫伊尼安与这名女性联络人分别在香港、澳门、印尼的巴里岛和台湾见面并收受现金报酬。 然而在多次接受国家安全背景调查时，莫伊尼安却称在过去七年内，与外国国民没有任何密切或持续接触，也没有被要求担任顾问或考虑被外国机构雇用。 莫伊尼安已于10月1日正式被捕，当时他正计划移居韩国，准备为一家向韩国政府提供军用飞机生产服务的国防承包商工作。
+(本文仅代表作者观点)
 
-凭借 3.5 万亿美元的“重建得更好”计划，拜登旨在兑现他的许多竞选承诺。对于民主党内强大的保守派来说，这笔开支太过分了。反过来，如果拜登在“重建得更好”上崩溃，左派则希望拒绝对第二个方案进行投票，即与共和党谈判的基础设施计划。众议院发言人南希佩洛西此后放弃了快速投票的希望。它发布了一个新的协议目标——民主党希望在 10 月 31 日之前解决他们的困境。
+参考链接：[一名美国防承包商因隐瞒与中国联络人的关系而受到刑事指控](https://www.voachinese.com/a/DOJ-complaint-foreign-contacts-china-20211006/6260212.html)
 
-许多人将计划的阻力归咎于来自西弗吉尼亚州的乔曼钦和来自亚利桑那州的凯尔斯滕·斯内玛。民主党不是左翼或工人党，而是各种社会利益的蓄水池——目前，在两位参议员的领导下，保守派正在发挥最大的作用。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-曼钦来自现在一个以白人为主的共和党州——他总是强调他代表选民的利益。去年 11 月，他们实际上以 69% 的票数支持唐纳德特朗普担任总统。对于凯尔斯滕·斯内玛来说，州内的情况有所不同——她还在左翼民主人士和活动家的支持下赢得了参议院席位，她现在必须为自己辩护。
+终审：FoxRina
+校正/发稿：我不在这里
 
-如果前州长曼钦不采取保守立场，他可能无法在西弗吉尼亚州的煤炭州站稳脚跟。在特朗普时期，曼钦经常在参议院与共和党人一起投票。他投票反对使用联邦资金进行堕胎，支持提名布雷特·卡瓦诺 (Brett Kavanaugh) 担任最高法院大法官，并公开表示赞成撤销某些金融市场法规。政府更迭后，他和其他国会议员阻止民主党将全国最低工资提高到每小时15美元。
-
-凯尔斯滕·斯内玛现在还阻止了许多观察家将其与拜登总统任期的成败联系在一起的经济和社会预算。在抵抗中，有些人引用了“重建更好”议程的成本。
-
-3.5 万亿美元的一揽子计划过于昂贵，而且计划中的增税对公司和（富裕的）公民来说负担太大。除了扩大公共医疗保险系统或免费获得第一学位的资金外，一揽子计划还包括对气候保护和可再生能源的投资。
-
-[https://www.faz.net/aktuell/politik/ausland/wie-joe-biden-von-konservativen-demokraten-blockiert-wird-17573378.html](https://www.faz.net/aktuell/politik/ausland/wie-joe-biden-von-konservativen-demokraten-blockiert-wird-17573378.html)
-
-新闻来源： 德国法兰克福报网络版
-
-免责声明：本文观点只代表作者， 与Gnews平台无关。
-
-校对： 旦旦
-
-编辑/ 发布： Shuizhuyu
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
