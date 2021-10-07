@@ -2,15 +2,27 @@
 ---
 
 
-## 拜登在民意调查中崩溃
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1578521/)
+## 飞机在米兰坠毁：疾病假设
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1578581/)
 
 翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10071.jpg)
-乔拜登在民意调查中失败。根据昆尼帕克大学的一项调查，只有 38% 的美国人认可总统的工作：低于三周前的 42% 和 2 月份的 50%。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10073.jpeg)
+从地铁站附近自动取款机停车场的监控摄像头拍摄的视频，以及路人和发生撞击的停车场附近拍摄的一些视频中可以看到：飞机发动机没有看到火焰。从一辆在东环路上行驶的汽车拍摄的视频最清楚地显示了飞机如何俯冲向圣多纳托地铁总站。
+
+正是由于这个原因，关于事故原因流传着不同的假设，与司法机构同时进行的技术安全调查的负责人国家飞行安全局 (ANSV) 呼吁保持谨慎。
+
+发动机熄火，飞机突然坠毁到 90 度，这可能是最后一次绝望的尝试将其恢复，这也是视频捕获的的结果。可能受到多种技术因素的影响，例如故障，但也可能是由于错误、特定天气条件或疾病引起的飞行员异常机动。发动机失速（如果速度上升，飞机会因为不平衡而坠毁）是非常罕见的。
+
+我们考虑可能会发生什么。对遇难者遗骸进行重组和基因确认，但不可能进行任何形式的尸检。然而，多亏了毒理学测试，寻找某些酶，才有可能确定飞行员是否患有心脏病或其他疾病。
+
+在飞行员和利纳特雷达控制中心之间的通信过程中，没有收到任何紧急报告来自坠毁的飞机，既不是发动机故障或问题，也不是恶劣天气。
+
+因此，这可能是飞行员生病或飞机故障。唯一的选择是尝试大转弯返回利纳特机场，从轨道上可以明显看出这一点。
+
+如果飞行记录仪完好无损，它将提供大量信息，以及对发动机残骸的分析：从残骸中也可以至少部分了解可能发生的情况。调查专家已经在试图整合了一些快速方法。
 
 免责申明：本文只代表译者观点，与Gnews无关
 
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/10/07/usa-biden-crolla-nei-sondaggi-solo-il-38-lo-promuove\_932dd910-7ef1-4214-9f7e-82426a8dcb4e.html](https://www.ansa.it/sito/notizie/topnews/2021/10/07/usa-biden-crolla-nei-sondaggi-solo-il-38-lo-promuove_932dd910-7ef1-4214-9f7e-82426a8dcb4e.html)
+原文链接：[https://www.today.it/cronaca/aereo-caduto-milano-malore-pilota.html](https://www.today.it/cronaca/aereo-caduto-milano-malore-pilota.html)
 
 责任编辑/校对/发布：意大利达芬奇农场   萧亦

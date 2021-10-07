@@ -2,24 +2,27 @@
 ---
 
 
-## 默克中共病毒口服药堪称印钞机 售价高出成本40倍
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1578047/)
+## 法国参议员不顾台海紧张局势毅然访问台湾
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1578052/)
 
-#### 撰稿：坤霆
+#### 撰稿：Evalu
 校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/6-4.jpg)图片来源：网络截图
-10月7日，据零对冲报道，援引哈佛大学公共卫生学院和伦敦国王学院医院上周发布的一份报告，默克（Merck）新的“非伊维菌素”新冠口服药物 Molnupiravir 成本为17.74美元，但该公司正在向美国政府收取712美元，是成本的40倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-36.jpg)图片来源：AisaNews
+美联社10月6日报道，随着中共国自10月1日到10月4日共有149架军机进入台湾南部及西南部航空识别区骚乱台湾，引起台海地区紧张局势，台湾国防部长说这是近40年来最严重的挑衅行为。美国称中共的行为是“危险的和破坏稳定”的行为。
 
-上周，默克口服“神奇药物”的消息使默克股价飙升，因为该公司表示，到年底可以供应一千万剂。
+台湾总统蔡英文警告说：“如果台湾沦陷，那将对地区和平与世界民主联盟是灾难性的。一位来自美国斯坦福大学的学者认为中共的扰台行为更多的是“一种信号战和心理战，以警告美国不要与台湾走得太近。”
 
-显然，该药丸可能会给默克及其药物合作伙伴Ridgeback Biotherapeutics带来巨额利润——该公司于2020年从埃默里大学获得了该药物的许可，然后以尚未披露的金额将该药物的全球版权出售给默克。
+在这种形势下，一些法国参议员组团对台湾进行为期五天的访问，北京称这次访问伤害了中法关系。这个访问团由参议员埃兰·理查德带队，将与蔡英文总统，台湾经济与健康官员和陆委会会面，理查德是一位前法国国防部长，曾于2015年和2018年访问台湾是法国参议院中的台湾友好组的领袖。
 
-与此同时，据非营利组织知识生态国际发现，国防部下属的“国防威胁减少局”（Defense Threat Reduction Agency)在2013年至2015年期间资助了这个的药物开发，达到百万美元。
+中共曾试图通过驻法大使威胁说这个访问不仅损害中共国的核心利益和中法关系，而且也损害法国的“名誉和利益”来施压这次访问。
 
-知识生态国际高级研究员路易斯.吉尔.阿比南德（Luis Gil Abinader）说：“公众资助了这种药物，因此公众享有一些权利，包括您在合理条件下获得它的权利。”
+巴黎亚洲项目主任说，这次访问也是正常访问和常规性的法国与台湾的国会交流。
 
-Ridgeback联合创始人文迪.霍曼（Wendy Holman）上周在接受CNBC采访时表示，他们要求制造molnupiravir，“从未获得政府资金”。该公司还在一份新闻稿中声称，吹嘘这项研究，“自Ridgeback许可以来，用于开发molnupiravir的所有资金均由默克以及Ridgeback的韦恩（Wayne）和 文迪.霍曼（Wendy Holman)提供。”
+中共称自治的台湾是中国领土，反对外国干涉包括外国政府官员的访问。
 
-国王学院（King’s College）医院医生Dzintars Gotham说，在某人还没有生病时向他们提供700美元的治疗将意味着许多人不会接受治疗。对于这种情况不如选用便宜而且极其安全的伊维菌素。
+因着中共的扰台行为，台湾也在增加相应的国防开支。
 
-原文链接：[Merck Charging US 40 Times What It Costs To Make Govt-Financed COVID Pill](https://www.zerohedge.com/covid-19/merck-charging-us-40-times-what-it-costs-make-govt-financed-covid-pill)
+新闻来源：
+
+1. [French senators arrive in Taiwan amid tensions with China](https://apnews.com/article/business-tsai-ing-wen-china-taiwan-15f6d31b13ea8e50f7ff11b15934e409)
+2. [Tensions flare as Chinese flights near Taiwan intensify](https://apnews.com/article/tensions-flare-chinese-flights-near-taiwan-02b30ed449f663cf53ef0782482e35e9)
