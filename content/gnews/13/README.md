@@ -2,9 +2,13 @@
 ---
 
 
-## 疫苗不是用来对抗病毒，释放病毒是为了引入疫苗
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1578994/)
+## 2021年10月6日 文贵先生盖特 8
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1579157/)
 
-9/29/2021 弗拉德米尔·泽连科医生：媒体、学术界操控个人自由选择意识，人们在情感上被错误的解决方案所吸引；疫苗并非用来对抗病毒，但释放病毒是为了引入疫苗。
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+September 20th, 2021 — German Corona Investigative Committee Press Conference (1) Dr. Burkhardt: **1️⃣**Vaccines can cause similar lymphocyte predominant lymphocytic carditis in the heart muscle and its capsule. If it happened at the heart’s conducting system, it will cause immediate heart death. This is very hard to be diagnosed even in post-mortems. **2️⃣**He observed the Lymphocyte Amok (Crazy) in all organs and all tissues, overshooting immune reaction, i.e., self-to-self attack – Activation of the lymphatic organs. **3️⃣**He told you the consequences of the vaccine-caused myocarditis in young people and sportsmen. Full German version: [https://gtv.org/video/id=614b40…](https://gtv.org/video/id=614b401442a8af3151a34afa) Full English version: [https://gtv.org/video/id=61598e…](https://gtv.org/video/id=61598e4c304e992109ae6487)
+
+[【2021年10月6日】文贵先生盖特原文](https://gettr.com/post/pddsnibf21)
+
+**喜联盟Gnews编辑部**

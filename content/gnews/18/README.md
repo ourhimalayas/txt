@@ -2,25 +2,32 @@
 ---
 
 
-## 塔利班司令官通过媒体吆喝希望日本使馆恢复业务
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1578910/)
+## 跪舔中共谋连任 林郑强推23条
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579009/)
 
-#### 撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Snipaste_2021-10-07_19-14-19.png)[图片来源](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20210824-%E5%A1%94%E5%88%A9%E7%8F%AD%E5%90%91%E6%97%A5%E6%9C%AC%E4%BC%B8%E6%A9%84%E6%A6%84%E6%9E%9D)
-日本电视早间新闻10月7日独家报道：
+栏目记者/责任编辑：在远方
 
-声称守卫日本驻阿富汗大使馆的伊斯兰组织塔利班的一名司令官接受了ANN的采访，呼吁在保证安全的情况下尽早恢复大使馆业务。希杰拉司令官说：自从我们部署以来，日本大使馆的所有门窗都被关闭，任何人都不允许进入。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-日本驻喀布尔大使馆所在的区域被塔利班封锁，入口处挂着塔利班的旗帜, 还部署了美制装甲车。这个地区有许多国家的大使馆，但除了塔利班士兵，看不到其他人。被高墙和铁丝网包围的日本大使馆大门紧闭，自从塔利班开始守卫以来，没有人进去过。
+为谋求连任香港特首，林郑月娥6日发表新《施政报告》，表示正在积极推展《基本法》23条的本地立法工作。这项与中共国安恶法相关的法例草案，曾于2002至2003年在香港引发巨大争议，触发50万人游行，最后立法程序不得不搁置。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1007AM（1-3）視頻備用.001.jpeg)
+香港民主人士普遍认为，基本法第23条内容含糊不清，其中尤以香港、内地两地标准定义不同为首，而其中所谓煽动叛乱、颠覆国家政权和窃取国家机密等入罪条件轻则数句即可入狱，最高刑期则更达终身监禁。
 
-塔利班的警备负责人库德拉说：没有安全问题，我们希望使馆的外国工作人员回来恢复工作。塔利班一直在加紧努力实现外交关系正常化，包括4月5日与英国派遣的特使会面。
+香港抗争运动两年多来，中共对香港人民进行残酷镇压，妄图将香港变为内地城市。因此在北京的授意下，林郑将过于苛刻和刑事条文泛政治化的第23条强行推展，甚至在立法会通过，这将会是对香港人权和自由的又一个重大打击。
+(本文仅代表作者观点)
 
-[信息源](https://news.yahoo.co.jp/articles/4418995d10fc4b62e40a01c80378fe24726e47bf)
+参考链接：[香港特首林郑月娥发表《施政报告》 23条、北部都会区和土地供应成焦点](https://www.bbc.com/zhongwen/simp/chinese-news-58815057)
 
-塔利班，以恐怖组织著称。这又跟中国共产党搞到一起去了，怎能不令各国敬而远之。用老百姓话说，就是不跟你玩了。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-（文章仅代表作者个人观点，与GNEWS无关）
+终审：文龙
+校正/发稿：我不在这里
 
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

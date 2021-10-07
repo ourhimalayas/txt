@@ -2,58 +2,31 @@
 ---
 
 
-## 屏蔽林依然8月9日的新浪微博坐实新浪的疫苗杀人本色
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1578579/)
+## 潘多拉文件：促多国采取反洗钱行动
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1578703/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/001_副本.jpg)
-日前我们发布了[**林依然关于疫苗的新浪微博引来无数脑梗心梗受害者留言**](https://gnews.org/zh-hans/1547117/)的文章，在文章中我们详细记录了在[林依然LLL\_](https://weibo.com/yiranbaby?refer_flag=1005055014_) [2021年8月9日 01:01](https://weibo.com/1797014755/KszfAuFd4?from=page_1005051797014755_profile&amp;wvr=6&amp;mod=weibotime) 来自 [HUAWEI P40 Pro 5G](https://app.weibo.com/t/feed/6uaYFC)
+#### 撰稿：致敬香港！
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/7-3.jpg)ttu图
+据国际调查记者联盟（ICIJ）网站10 月 6 日报道，自该联盟及其媒体伙伴3日开始公布《潘多拉文件》（Pandora Papers）、揭发多国离岸金融腐败之后，各地立法者和监管机构纷纷开始采取行动、回应调查。
 
-#新冠疫苗副作用#有没有人打完新冠疫苗后发烧，血小板减少的？ ​​​​那条微博下的评论——
+**美国拟公布新法案**
 
-在原文中我们提到：
+《潘多拉文件》来源于该联盟有史以来最大规模的调查行动，涉及90 多个国家/地区的 330 多名政治家的秘密交易和隐藏资产，和一系列的中间行业。针对该文件揭示的内容，美国两党预计将于周五公布一项具有里程碑意义的法案，以打击那些协助腐败客户转移脏钱的职业推手。美国民主党众议员马林诺夫斯基（Tom Malinowski）和柯蒂斯（John Curtis）表示，潘多拉文件披露的是迄今为止、他国腐败力量对美国构成历史性威胁的最清楚证明，敌对势力的数十亿美元的脏钱正在涌入美国。
 
-［但是我们要重点关注的是在本文发出后林依然的这条新浪微博的命运将会如何——如果这条微博被和谐或者这条微博下边的评论被删除，那么这条微博和已经留存的所有评论都可以作为新浪及背后控制新浪的中共的反人类罪；
+这项被称为《中间人法案》（Enablers Act）的举措，将要求各方职业人士确保不参与洗钱，涉及行业包括律师、会计师、房地产专业人士、信托管理人员、艺术品经销商、财务顾问和公关专家。法案将要求他们不仅要对业务资金的来源进行背景调查，而且须将任何来源可疑的资金和可疑活动向监管机构和律政官员报告。现有的法律仅要求银行报告可疑的金融活动，而未涉及到其他行业。反腐专家表示，这项法案的拟定已经超过两年，《潘多拉文件》揭露的各个行业正是该法案计划监管的对象，现在推出将恰到好处。
 
-如果这条微博和下边的评论被留置，那么我们希望看到每一个在评论区留下自己及亲人因疫苗而产生副作用的网友可以被重视，并且进行一对一的调查和确认，当然，即使这条微博和下边的评论被留置，后边的可能性几乎是零，我知道我想多了，因为在这个国家，一条反党言论的发言者都可以被精确定位，而任何一个丢失的孩子却永远也无法通过它们精准控制的监控和大数据网找到。］
+国会反腐败顾问马萨罗（Paul Massaro）认为，全球性腐败是对民主制度生死存亡的威胁，他和德国马歇尔基金会“恶意金融”的研究员鲁道夫 (Josh Rudolph)列举了潘多拉文件中的多个调查案例，以助推新法案的通过：
 
-现在这条记录着大量因植入新冠疫苗而引发各种后遗症的新浪微博终于不见了，据[**林依然LLL\_**](https://weibo.com/yiranbaby) [2021年9月23日 16:10](https://weibo.com/1797014755/KzvqH9rcG?from=page_1005051797014755_profile&amp;wvr=6&amp;mod=weibotime) 来自 [🍓小姐的HarmonyOS设备](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
+1. 美国避税天堂的可疑信托：一些被指控对世界上最弱势的群体犯有欺诈、贿赂或侵犯人权罪的个人或公司，通过代理人在南达科他州设立了近 30 个美国信托。
+2. 大型律所“麦坚时”：美国最大的律师事务所、贝克·麦坚时（Baker McKenzie）受雇于美国制裁的俄罗斯军火商、乌克兰寡头科洛莫伊斯基（Ihor Kolomoisky）和马来西亚逃亡金融家刘特佐（Jho Low），刘特佐被指控协助策划了两起世界上最大的涉嫌欺诈案。文件揭示了该公司如何成为离岸影子经济的规划师和中流砥柱、为大型银行和大型科技公司游说、并反对那些旨在加强金融监管和税法的提案。
+3. 约旦国王的房地产帝国：阿卜杜拉二世通过离岸公司在伦敦、华盛顿特区和马里布购买豪宅，交易总额达 1.06 亿美元。文件揭示了世界上最富有、和政治背景深厚的人如何利用空壳公司来逃避对国际房地产交易的审查，以及房地产经纪人帮助外国统治者转移不义之财的问题。
+4. 俄罗斯私密交易：普京的形象塑造者、恩斯特 (Konstantin Ernst) 在中间人的帮助下、通过离岸公司秘密收购了一项 10 亿美元房地产交易的股份。
+5. 被掠夺的柬埔寨宝藏：柬埔寨宝藏被盗，美国调查人员追查到臭名昭著的艺术品经销商拉奇福德（Douglas Latchford）后不久，他和家人就设立了拥有数十件文物的离岸信托。
 
-没删，被屏蔽了。 ​​​​
-![](https://assets.gnews.org/wp-content/uploads/2021/10/001-7.jpg)
-这条记录着中共国部分因植入疫苗而产生不良反应的新浪微博的不可见，至少可以证明新浪微博和它背后的主子中国共产党一样，是反人类的犯罪集团，所以我们也有必要把这条微博下面的评论做一下存底。
 
-令人欣喜的是我们依然可以看到黑夜里发出的新中国联邦的光芒——
+**世界各地的回应行动**
 
-[新联邦之利刃](https://weibo.com/7545869003)：青蒿素9月24日 00:40
+欧洲议会议员在当日的会议上讨论了潘多拉文件并敦促改革，以阻止利用空壳公司和在避税天堂设立的信托、助长逃税和其他金融犯罪。其中来自意大利的议员提出，当两位（欧洲）国家领导人和一位财政部长都在想方设法避税，如何要求公民做出自我牺牲？同时，《卫报》报道新加坡一家主要的金融监管机构正在审查离岸服务商盛亚信托（Asiaciti Trust），当局发言人表示，监管机构不容忍滥用金融体系从事非法活动。
 
-[暴暴李小暴](https://weibo.com/1886186695)：战🈶？9月24日 02:00
-
-[\_一三土一\_](https://weibo.com/3892199609)：回复[@暴暴李小暴](https://weibo.com/n/%E6%9A%B4%E6%9A%B4%E6%9D%8E%E5%B0%8F%E6%9A%B4?from=feed&amp;loc=at):健身了吗9月25日 10:40
-
-[解忧杂货店1号](https://weibo.com/5531762878)：回复[@暴暴李小暴](https://weibo.com/n/%E6%9A%B4%E6%9A%B4%E6%9D%8E%E5%B0%8F%E6%9A%B4?from=feed&amp;loc=at):原来占有真的在身边9月25日 11:05
-
-[新联邦之利刃](https://weibo.com/7545869003)：回复[@暴暴李小暴](https://weibo.com/n/%E6%9A%B4%E6%9A%B4%E6%9D%8E%E5%B0%8F%E6%9A%B4?from=feed&amp;loc=at):无处不在9月28日 20:17
-
-在这个至暗的时代里，在中共国有那么多因疫苗致死、致残者，他们哪怕发出的一点点关于疫苗致死致残的真相，都会被扑灭，但是真相就是刺破黑暗的利器，无论在哪里，我们都可以喜逢队友，我们都可以看到真相的力量，今天新浪微博可以封杀真相，明天我们必然用真相埋葬新浪微博和它背后的反人类集团——中国共产党！
-
-撰稿：喜马拉雅的肉夹馍
-
-审核：喜马拉雅的馍夹肉
-
-校对：Maarago
-
-（文章内容仅代表作者个人观点）
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+新闻来源：[Lawmakers and regulators around the world take action in the wake of Pandora Papers](https://www.icij.org/investigations/pandora-papers/lawmakers-and-regulators-around-the-world-take-action-in-the-wake-of-pandora-papers/)

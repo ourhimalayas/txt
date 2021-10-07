@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/7/2021 1:38 PM (UTC)`
+
+10月7号：尊敬的战友们好……太多战友给我发信息，要求直播啦，受不了啦，马上开始乱聊直播。
+![img](https://media.gettr.com/group19/getter/2021/10/07/13/38/b17841ec-f35a-8d06-74a1-69955d9a7e91/2ed728637a1e9667ffdd6d99fa94bcd2.jpg)
+
+---
+
+`@miles 10/7/2021 1:38 PM (UTC)`
+
+一名中国警察首次接受CNN采访揭露维吾尔人在新疆所遭受的监禁和虐待<br/>A Chinese policeman who interviewed by CNN first time exposes imprisonment and torture of Uyghurs in Xinjiang<br/>
+![img](https://media.gettr.com/group12/getter/2021/10/07/13/9dc7fa3d-6075-294f-64dc-a32e33d4ff5e/out.jpg)
+
+---
+
 `@miles 10/7/2021 12:42 PM (UTC)`
 
 10月7号：平安银行还需要，大半年时间，才能真正的倒下，因为它涉及的政治太深了，但他最终会倒得，很惨，很惨，很惨！【七哥！平安也开始爆雷啦！ 宁波杭州湾新区的平安银行，刚刚发生的，宁波东部新城的平安银行】
@@ -282,20 +296,6 @@ WOW WOWWOW🙏🙏🙏🙏🔥🔥🔥👇👇👇👇👇👇👇👇👇👇�
 
 10月3号：这是真的吗？【美国陆军医生和航空航天医学专家特蕾莎·朗向五角大楼发出了前所未有的呼吁，要求所有接种COVID-19疫苗的飞行员都必须停飞。 任何人都不能排除因心脏病发作而突然发生飞行事故的可能性。推特文摘】
 ![img](https://media.gettr.com/group41/getter/2021/10/03/23/39/3f38d319-e163-8dbd-3c87-edd3542c8fd2/67b360381a685ca192382bcf571022c5.jpg)
-
----
-
-`@miles 10/3/2021 11:18 PM (UTC)`
-
-10月3号：人性啊……人……性啊……人性——啊人……性……啊😜😜😜😜😜😜😜🤣🤣🤣🤣🤣🤣🔥🔥🔥🔥🔥
-![img](https://media.gettr.com/group3/getter/2021/10/03/23/18/efa49331-b4a8-b12e-ef3c-a4555bcac3ca/out.jpg)
-
----
-
-`@miles 10/3/2021 11:17 PM (UTC)`
-
-10月3号：尊敬的战友们好！物无美恶．过则为灾。运动，一定要智慧的运动，千万不要伤了肌肉和身体，否则后悔莫及，健身绝对不能逞强，就像爆料革命灭共事业也一样，不要硬撑．在愉悦快乐，轻松中．消灭共产党。任何勉强的事情都不是好事情。
-![img](https://media.gettr.com/group8/getter/2021/10/03/23/17/dc03b89e-3c88-13b5-ac16-c31136100dc5/out.jpg)
 
 ---
 
