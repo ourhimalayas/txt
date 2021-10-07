@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/7/2021 11:41 PM (UTC)`
+
+Pfizer is tightly arranging new vaccines to fight the next generation of the CCP Virus for the benefit. But Pfizer scientists admitted on camera that vaccines are not as effective as human natural immune system. <br/>Although such reports are backed up by science, they are covered up, censored online, and banned by Big Tech as dangerous misinformation, because they contradict the narratives of the media, medical establishments and big pharmaceutical companies about COVID vaccines.<br/><br/>为了利益，辉瑞仍在紧凑地安排新型疫苗对抗下一代中共病毒。但辉瑞科学家在镜头上承认，疫苗并不比人天然免疫系统更有效。<br/>尽管这类报道是有科学支撑的，但被科技巨头以危险虚假信息的理由封锁，这是因为报道与媒体、医疗机构和大制药公司对疫苗的说法相矛盾。
+![img](https://media.gettr.com/group48/origin/2021/10/07/23/41/94ec055b-2361-d8f4-d3ac-70fdf900e669/out.jpg)
+
+---
+
 `@miles 10/7/2021 10:25 PM (UTC)`
 
 CCP Virus Covid-19 Treatment & Prophylaxis Protocol<br/>& Covid-19 Vaccinated People<br/>Detox Protocol<br/> <br/>Recommended by <br/>the New Federal State of China Whistleblowers Movement
@@ -290,13 +297,6 @@ WOW WOWWOW🙏🙏🙏🙏🔥🔥🔥👇👇👇👇👇👇👇👇👇👇�
 
 10月4号：衷心地感谢，国内外很多战友发来的对昨天大直播的反馈和信息。但是所有的国内的公检法的爷们儿，扪心自问，你们对得起自己的良知，和自己是个人的条件吗？自己曾经被傅振华，孙力军，孟建柱，王岐山，周亮.。等玩弄你们的家人！帮他们杀人陷害，好人，抢夺合法资产，你们收手了吗？你们觉醒了吗？你们有勇气敢面对这一切吗？最终都会受到审判的，莘县阳谷县搭县咱走着看……
 ![img](https://media.gettr.com/group36/getter/2021/10/04/14/24/9bf056b7-41b4-705b-e8a3-47646511a0dd/out.jpg)
-
----
-
-`@miles 10/4/2021 12:19 PM (UTC)`
-
-10月4号：没有人愿意看到这种灾难的时刻发生，但是我们也要面对现实！【7哥  您说的疫苗灾难的空难事件已经发生了  10月3日米蘭一架私人飛機撞入空辦公室，造成8人死亡】
-![img](https://media.gettr.com/group4/getter/2021/10/04/12/19/4067a6a8-7557-fee2-73cf-64530a397c94/out.jpg)
 
 ---
 
