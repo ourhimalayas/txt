@@ -2,45 +2,24 @@
 ---
 
 
-## 有声|脸书旗下社交平台服务全部关闭 现代通讯艰难的一天
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1577523/)
+## 從尸袋引發的疑問
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1577588/)
 
-配音：纽约香草山教育部 – 蒙古鸿雁
+作者：HimaFAFA
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109-1.jpg)
+什麽是mRNA疫苗? 作爲普通人的我們又了解多少? 根據維基百科mRNA疫苗是一類借由導入病原mRNA或癌細胞mRNA而使人體細胞產生抗原，進而引發適應性免疫應答以達到免疫效果的新型疫苗。它首次發現于1989年，經歷了十幾年在小鼠身上的研究，在2005年由哈弗大學幹細胞學者Derrick Rossi提出這項技術能用於疫苗開發。2008 年BioNTech 也就是我們熟知的輝瑞公司成立，但此後的一段時間内，各國研發的RNA疫苗的臨床實驗結果都不夠理想。然而，在2019年COVID-19肆意蔓延的情況下mRNA疫苗被美國藥監局FDA緊急通過并廣範使用與各國人民。
 
+各國政府瘋狂的搶購儲備mRNA疫苗并對接種疫苗采取了一系列變相强制措施，比如疫苗護照限制那些未接種疫苗者進入公共場所。政府甚至擔保疫苗的安全性，促使人們接種疫苗並提高疫苗接種率。然而，疫苗的安全性真的如政府所宣揚的嗎？疫苗在各國開打已經有一段時間了，但是新冠的死亡率還是居高不下。
 
+以上一段外國尸袋工廠工人上傳的視頻可以看出尸袋的需求量有多大，每一個尸袋對應著一具尸體，也就意味著死亡人數龐大。這些尸袋是會裝打過疫苗的人呢還是沒打過疫苗的人？這些死亡人數到底是由於病毒感染還是由於接種疫苗后產生的并發症呢？這些訂單來自哪裏？又是由誰訂購的？誰又知道會死這麽多人呢？
 
-今天对全球第一社交巨头扎克伯格来说非常艰难。Facebook, Instagram, WhatsApp, Oculus和Messenger所有的服务都被关闭了。而且奇怪的是，Facebook.com域名被列为出售对象。
+人死不能復生，如果説接種疫苗的死亡率僅爲0.008%，作爲政府是否會放棄這0.008%的人大肆鼓勵疫苗的接種？如果你或你的家人就是這0.008%的這類人，你又會做出何種選擇呢？
 
-以上社交通讯软件都隶属于Facebook旗下，在今日美东时间上午11:40左右开始出现故障。
+Reference: [https://zh.wikipedia.org/wiki/RNA%E7%96%AB%E8%8B%97](https://zh.wikipedia.org/wiki/RNA%E7%96%AB%E8%8B%97)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+**關注我們**
 
-WhatsApp在其推特账号上承认了这个问题，对造成的不便表示抱歉，并解释团队正在努力使服务恢复正常。截止到发稿时间，以上社交媒体仍停留在无法使用状态。Telegram的使用也出现了问题，用户反应收发信息延迟严重，有时在群组消息之间会突然出现色情图片。
-
-据悉，15亿客户的个人数据被从这些平台抽取出来，在暗网上以每一百万个名字五千美元的价格出售。用户ID、真实姓名、电子邮件、电话及地址都在待售之列。
-
-脸书每月有2.8亿活跃用户，Instagram全球用户已超过10亿，WhatsApp全球用户约22亿。而今天所发生的并不是一个普通的宕机，有人删除了大段的路由器指令，Facebook的整个域名解析服务器记录已经消失。从数据角度解释，Facebook已经消失了。
-
-Facebook的股票从9月7日开始呈下降趋势，今日开盘至今每股已下跌16.78美元，约5%。今日事件发生原因尚未明晰，市场对Facebook雄心勃勃的加密货币支付系统计划的期望也在急剧下跌。
-
-截稿时另一则最新消息，今天美国银行Bank of America的许多用户，报告其银行系统出问题，敦促用户检查自己的余额及明细账。截稿时问题仍未解决。
-
-文字版原文：[脸书旗下社交平台服务全部关闭 现代通讯艰难的一天](https://gnews.org/zh-hans/1573907/)
-
-音频处理：喜山必胜Maverick
-
-*发稿：*Yuki jiang
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+Discord 賬號
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+Gettr 賬號
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

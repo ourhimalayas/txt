@@ -15,119 +15,119 @@
 
 ---
 
-### [中共国地方政府&#8221;隐性&#8221;债务估计为8万亿美元，占中国GDP的近一半](/content/gnews/1/README.md)
+### [10/05/2021七哥直播：香港太盟投资(PAG)以联络欺骗犹太投资圈为主、哄抬股市、欺骗西方机构投资人和小股东](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [10/05/2021七哥直播：中共的地方债多达15万亿美元(包括央企债务)](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [香港证监会：正在研究与推动香港证券交易以人民币计价](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [疫苗/病毒 要證據](/content/gnews/2/README.md)
- ` MG FARM`
-
-### [欧洲政党基本上是在说脸书编写算法改变我们领导国家](/content/gnews/3/README.md)
+### [脸书吹哨人弗朗西丝·豪根认为联邦政府应该实施监管](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [由尸袋引發的思考](/content/gnews/4/README.md)
+### [与中共国的战争：中共国入侵台湾](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共国地方政府&#8221;隐性&#8221;债务估计为8万亿美元，占中国GDP的近一半](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2021年10月06日澳喜要闻（每日更新）](/content/gnews/7/README.md)
+ ` 澳喜农场`
+
+### [疫苗/病毒 要證據](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [中共国的“一带一路”倡议面临越来越多参与国的反对](/content/gnews/5/README.md)
+### [欧洲政党基本上是在说脸书编写算法改变我们领导国家](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [由尸袋引發的思考](/content/gnews/10/README.md)
+ ` MG FARM`
+
+### [中共国的“一带一路”倡议面临越来越多参与国的反对](/content/gnews/11/README.md)
  ` 纽约香草山MOS02`
 
-### [樱花灭共诗——经济第一大国](/content/gnews/6/README.md)
+### [樱花灭共诗——经济第一大国](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子之真相大白、大妈与金鱼](/content/gnews/7/README.md)
+### [樱花灭共段子之真相大白、大妈与金鱼](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021/10/06文贵先生盖特精要](/content/gnews/8/README.md)
+### [2021/10/06文贵先生盖特精要](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [樱花灭共段子之嘀嘀打马、国家随想](/content/gnews/9/README.md)
+### [樱花灭共段子之嘀嘀打马、国家随想](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [遭遇网络攻击，Facebook真的“非死不可”么？](/content/gnews/10/README.md)
+### [遭遇网络攻击，Facebook真的“非死不可”么？](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [脸书已经意识到，人们会点击更少的广告，他们会赚更少的钱](/content/gnews/11/README.md)
+### [脸书已经意识到，人们会点击更少的广告，他们会赚更少的钱](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [樱花灭共段子之零分、无法反驳、www.坑你.com](/content/gnews/12/README.md)
+### [樱花灭共段子之零分、无法反驳、www.坑你.com](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [脸书前雇员作证：脸书对儿童危害大](/content/gnews/13/README.md)
+### [脸书前雇员作证：脸书对儿童危害大](/content/gnews/19/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [研究表明，完全接种疫苗者体内抗体在三个月后急剧下降](/content/gnews/14/README.md)
+### [研究表明，完全接种疫苗者体内抗体在三个月后急剧下降](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [大PIAN记 – 观《长津湖》有感](/content/gnews/15/README.md)
+### [大PIAN记 – 观《长津湖》有感](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [NIH宣布，该机构主任弗朗西斯·柯林斯将于年底前卸任](/content/gnews/16/README.md)
+### [NIH宣布，该机构主任弗朗西斯·柯林斯将于年底前卸任](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [拜登政府施压中共国履行贸易协议承诺](/content/gnews/17/README.md)
+### [拜登政府施压中共国履行贸易协议承诺](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [海外为什么一定会发生排华？](/content/gnews/18/README.md)
+### [海外为什么一定会发生排华？](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [马克龙质疑拜登对法国的态度](/content/gnews/19/README.md)
+### [马克龙质疑拜登对法国的态度](/content/gnews/25/README.md)
  ` Shuizhuyu`
 
-### [北约撤销八名俄罗斯外交官的认证](/content/gnews/20/README.md)
+### [北约撤销八名俄罗斯外交官的认证](/content/gnews/26/README.md)
  ` Shuizhuyu`
 
-### [由于电力短缺，中共国服软，悄然允许澳煤船卸货](/content/gnews/21/README.md)
+### [由于电力短缺，中共国服软，悄然允许澳煤船卸货](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [安倍在日本新政府的影响](/content/gnews/22/README.md)
+### [安倍在日本新政府的影响](/content/gnews/28/README.md)
  ` Shuizhuyu`
 
-### [沙利文和杨洁篪在苏黎世会晤](/content/gnews/23/README.md)
+### [沙利文和杨洁篪在苏黎世会晤](/content/gnews/29/README.md)
  ` Shuizhuyu`
 
-### [“一带一路”沿线债台高筑，参与国日益强烈反对](/content/gnews/24/README.md)
+### [“一带一路”沿线债台高筑，参与国日益强烈反对](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [卖港求荣——林郑月娥2021施政报告](/content/gnews/25/README.md)
+### [卖港求荣——林郑月娥2021施政报告](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [從尸袋引發的疑問](/content/gnews/26/README.md)
+### [從尸袋引發的疑問](/content/gnews/32/README.md)
  ` MG FARM`
 
-### [美华盛顿州首例疫苗死亡案例被确认](/content/gnews/27/README.md)
+### [美华盛顿州首例疫苗死亡案例被确认](/content/gnews/33/README.md)
  ` HimalayaRussia`
 
-### [西媒头条 — 第81期](/content/gnews/28/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|台湾表示正在“准备战争”](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [有声|罗马尼亚亿万富翁等8人在米兰附近的飞机失事中丧生](/content/gnews/30/README.md)
- ` MOSREC`
-
-### [澳智库：中共以经济实力胁迫印太岛国](/content/gnews/31/README.md)
- ` 日本东京方舟农场`
-
-### [有声|脸书旗下社交平台服务全部关闭 现代通讯艰难的一天](/content/gnews/32/README.md)
- ` MOSREC`
-
-### [郭文贵直播摘要和音频 2021.10.5](/content/gnews/33/README.md)
+### [郭文贵直播摘要和音频 2021.10.5](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美联储主席鲍威尔表示“无意”禁止加密货币](/content/gnews/34/README.md)
+### [美联储主席鲍威尔表示“无意”禁止加密货币](/content/gnews/35/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [狮城快讯：荒唐！父亲为了女儿可以打疫苗诉诸法律手段](/content/gnews/35/README.md)
+### [狮城快讯：荒唐！父亲为了女儿可以打疫苗诉诸法律手段](/content/gnews/36/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [法参议员抵台 沙利文将在瑞士与杨洁篪会谈](/content/gnews/36/README.md)
+### [法参议员抵台 沙利文将在瑞士与杨洁篪会谈](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`
 
-### [2021年10月05日郭文贵先生直播 全文字版](/content/gnews/37/README.md)
+### [2021年10月05日郭文贵先生直播 全文字版](/content/gnews/38/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [视死如归&#8211;加拿大特鲁多宣布公务员接种中共病毒疫苗的最后大限！](/content/gnews/38/README.md)
- ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
 
 ### [三票专栏：中共是如何用房地产泡沫掠夺中国和全世界人民的](/content/gnews/39/README.md)
  ` 三票先生`

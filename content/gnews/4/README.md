@@ -2,24 +2,59 @@
 ---
 
 
-## 由尸袋引發的思考
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1577796/)
+## 脸书吹哨人弗朗西丝·豪根认为联邦政府应该实施监管
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1577841/)
 
-作者：溫哥華英里農場
+![](https://assets.gnews.org/wp-content/uploads/2021/10/33-aeax3-hm1yr.jpg)
+[https://gtv.org/video/id=615de19cd2e2b81748720539](https://gtv.org/video/id=615de19cd2e2b81748720539)
 
-视频中的尸体袋子，你可以想到什么？
+**Scott Pelley**
+**斯科特·佩利**
 
-当你看到这些尸体袋子：
+Facebook is a $1 trillion company just 17 years old.
+脸书是一家成立仅17年，市值 1 万亿美元的公司
 
-1，这个尸体袋子，会装打过疫苗的人还是没打过疫苗的人？
+It has 2.8 billion users, which is 60% of all internet connected people on Earth.
+它拥有 28 亿用户，占地球上所有互联网连接人数的 60%
 
-2，这是尸体袋子会装被感染CCP 病毒的人？
+Frances Haugen plans to testify before Congress this week.
+弗朗西丝·豪根计划本周在国会作证
 
-3，媒体看不到，现在到底死了多少人？都是什么原因死的！
+She believes the federal government should impose regulations.
+她认为联邦政府应该对脸书实施监管
 
-4，为什么这么多的尸体袋子？是已经死了这么多人还是将要死这么多的人？
+Frances Haugen
+弗朗西丝·豪根
 
-5，如果死了这么多的人，为什么媒体报道看不到？
+Facebook has demonstrated they cannot act independently,
+脸书已经证明他们不能独立行动
 
-6，如果将要死这么多人，谁知道会死那么多人？他们是怎么知道的？
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+Facebook over and over again has shown, it choices profit over safety.
+脸书一再显示它选择利润而不是安全
+
+It is subsidizing is paying for its profits with our safety.
+它的补贴是用我们的安全来支付它的利润
+
+I’m hoping that this will have had a big enough impact on the world,
+我希望这会对世界产生足够大的影响
+
+that they get the fortitude and the motivation to actually go put those regulations into place.
+使他们有毅力和动力，真正去把这些法规落实到位
+
+That’s my hope.
+这是我的希望
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接: **[https://youtube.com/watch?v=\_Lx5VmAdZSI](https://youtube.com/watch?v=_Lx5VmAdZSI)
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
