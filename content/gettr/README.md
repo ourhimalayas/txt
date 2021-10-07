@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/7/2021 10:22 PM (UTC)`
+
+中共病毒预防与治疗方案和疫苗排毒方案<br/> <br/>新中国联邦 爆料革命 推荐
+![img](https://media.gettr.com/group8/getter/2021/10/07/22/bcbfa061-aee5-59dc-db4f-f60848246be2/0fdf94a38f1c9d4ff0b140ea690df674.jpg)
+
+---
+
 `@miles 10/7/2021 2:37 PM (UTC)`
 
 Sept.10, 2017, Fu Zhenghua used the task force and law enforcement under his control for extortion & money laundering, the extent was outrageous!<br/><br/>2017年9月10号傅政华控制的专案组和公检法，敲诈勒索，向海外洗钱，巨额财富，已经黑暗到天怒人怨！
@@ -290,13 +297,6 @@ WOW WOWWOW🙏🙏🙏🙏🔥🔥🔥👇👇👇👇👇👇👇👇👇👇�
 
 10/3/2021 Miles Guo: There are 77 countries in the world that have received the information regarding the truth of the COVID vaccines. The CCP had begun to implement the plan to depopulate the world’s population long ago, with Liang Guanglie talking about using biochemical weapons to fight the Americans in the 90s. The COVID vaccines were prepared by the CCP in a very deliberate manner long ago! The most challenging time of the COVID vaccines disaster is the end of this year towards the beginning of the next year. Those with 3 COVID shots will have at least 50% of chance to die in the next 3 to 5 years!<br/><br/>10/3/2021 文贵直播：全世界已有77个国家收到了我们发出的关于疫苗真相的信息。中共早就开始实施消灭地球一部分人口的计划，梁光烈在90年代就曾说要用生化武器对付美国人，而冠状病毒疫苗是中共早就处心积虑准备好的！疫苗灾难最难的日子在今年年底到明年年初，打了三针的人起码有50%的机率在未来3到5年内死亡！<br/>
 ![img](https://media.gettr.com/group30/getter/2021/10/04/09/57/1b5fd2c9-7ad3-a680-d1e6-5263d8ddc07d/out.jpg)
-
----
-
-`@miles 10/4/2021 9:47 AM (UTC)`
-
-10/3/2021 Miles Guo: What made me feel the happiest in the past ten days or so is that the international organizations such as the United Nations and European Parliament have started to examine if the New Federal State of China (NFSC) can represent the Chinese people; We hope that Taiwan, Hong Kong, Xinjiang, and Tibet will be independent in the future and then become part of the NFSC; I am very confident that we can prevent the CCP from occupying Taiwan by cooperating with the world’s evil and justice forces in the “swamps”! Both Taiwan and Hong Kong will have a bright future!<br/><br/>10/3/2021 文贵直播：在过去的十几天中让我最开心的是，联合国和欧洲议会等国际组织已开始研究是否承认新中国联邦代表中国人；我们希望未来台湾、香港、新疆和西藏都独立并成为新中国联邦的一部分！我很有信心这次跟世界上的邪恶和正义的沼泽地的力量能合作阻止共产党攻占台湾！台湾和香港都会有美好的未来！
-![img](https://media.gettr.com/group28/getter/2021/10/04/09/47/85f07069-980f-43b8-1766-82645e97a1e9/out.jpg)
 
 ---
 
