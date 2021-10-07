@@ -2,28 +2,28 @@
 ---
 
 
-## 北欧三国承认莫德纳疫苗与青少年心脏疾病相关性
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579897/)
+## 中国留学生教堂纵火,国人须慎行防排华!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579948/)
 
-栏目记者/责任编辑：云豹
+栏目记者/责任编辑：文龍
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-102.png)
-瑞典6日宣布，承认年轻人在注射莫德纳疫苗后，心肌炎及心包膜炎等副作用的风险增加的事实现象，提出暂停在年轻人范围内该品牌新冠毒针疫苗的使用。
+美国阿拉巴马州当地媒体10月5号报道,  第一浸信会教堂是 阿拉巴马州蒙哥马利市地标建筑，该教堂9月29日晚遭人纵火, 内部一些设施遭烧毁。当地执法机关依据教堂内部监视器录像追踪涉案人，将来自中国的留学生严晓琴(音译，Xiaoqin Yan)逮捕，嫌犯目前收押在蒙市拘留所，等候接受调查起诉。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9-1.jpeg)
 
-挪威和丹麦也重申对莫德纳疫苗的慎重态度。 瑞典公共卫生局展示了该mRNA疫苗和心肌炎和心包膜炎的风险相关性，男性年轻人为高危人群，多数在接种第2剂疫苗后的数周内发生。
+法庭文件显示, 嫌犯严晓琴今年27岁，是一名来自中国的留学生，检察官贝利已将其留学生签证取消，并提高了原定3万美金的保释金，以防止嫌犯弃保潜逃,因为该案在当地引起轩然大破, 民众愤怒不已! 但嫌犯纵火焚烧教堂的动机尚未公布。
 
-丹麦已经取消了所有新冠限制令，春季引入的新冠健康通行证也从9月1日起不再使用。
+在病毒及疫苗真相正在揭晓的当下, 爆料革命也在警示全球各地华人，一定慎言慎行，在传播真相的同时告知周遭,  中共不代表中国人，中国人不都是共产党 ! 与此相对应,  任何违背当地法律法规，支持中共邪恶政权，甚至给当地人文或环境带来威胁/损害的言行，都有可能引发并酿成 严重的排华事件。本台将关注这一事件的后续报道。
 
 (本文仅代表作者观点)
 
-参考链接：[憂心肌炎風險 瑞典丹麥建議年輕人暫不用莫德納](https://www.cna.com.tw/news/aopl/202110070037.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-[Denmark is first in EU to lift all coronavirus restrictions](https://www.politico.eu/article/denmark-first-eu-lift-coronavirus-restrictions/#:~:text=High%20levels%20of%20trust%20in,the%20country%27s%20successful%20vaccine%20rollout.&amp;text=Denmark%20is%20set%20to%20lift,to%20pre%2Dpandemic%20daily%20life)
-[Denmark’s high vaccination rate sees COVID pass ended for restaurants](https://www.euronews.com/2021/09/01/denmark-s-high-vaccination-rate-sees-covid-pass-ended-for-restaurants)
+参考链接：[Arrest made in arson at First Baptist Church Montgomery](https://thealabamabaptist.org/arrest-made-in-arson-at-first-baptist-church-montgomery/)
+[中国留学生纵火烧毁百年教堂被捕](https://www.sinchew.com.my/20211007/中国留学生涉嫌纵火192历史教堂遭被捕/)
+[清秀中國女留學生縱火燒美國200年教堂 友人：她不知受了什么刺激](https://lihkg.com/thread/2727354/page/1)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-终审：暗黑
+终审：文龍
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

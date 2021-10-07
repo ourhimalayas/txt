@@ -2,31 +2,31 @@
 ---
 
 
-## 新冠溯源新证据！中共早在2019年5月已大量采购PCR检测
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579887/)
+## 中共国正面临经济危机，或已陷入危机之中
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1579936/)
 
-责任编辑：FoxRina
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-116.png)
-根据澳大利亚网络安全公司 Internet 2.0 的一份报告，在中共首次正式报告新型冠状病毒病例前几个月，政府合同报告显示，2019 年 5 月起武汉地区的PCR 检测采购量激增。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/c1_2190995-12.jpg)网络图片
+中共国制造业萎缩的速度快于中共国或媒体所披露的。加上数万亿的企业和地方政府偿付能力问题，该国正面临一场金融危机。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-6.jpeg)
+我们已经报道了许多涉及中共国房地产公司最近面临的偿付能力危机。它始于恒大，现在已发现多家负债数十亿的公司存在偿付能力问题。
 
-数据显示，2019 年湖北省的 PCR 检测花费了约 6740 万元人民币，几乎是 2018 年总数的两倍。月度采购数据显示，2019年5 月份的订单激增，尤其是来自 CDC 采购商和中国人民解放军的订单。
+但可能还有更多其它原因。根据我们最近从中共国内部收到的信息，某些地区的制造业，例如东莞（靠近深圳，在香港对面），已降至每周只工作3天或更少。（这座城市位于珠江三角洲，据报道约有5000万人居住在那里，是地球上人口最多的地方。）
 
-报告认为，5 月份支出的增加表明这可能是新冠感染的最早开始日期。从 7 月到 10 月，采购量也大幅上升，尤其是来自武汉科技大学的采购量。该机构2019年PCR检测经费892万元，约为上年的8倍。武汉科技大学与当地医院和公共卫生当局一起，在应对新疾病的爆发方面发挥着直接作用。报告评估，这些团体的参与提供了证据，新冠大流行开始的时间比中共向世卫组织通报的时间要早​​得多。
+一些生产商正在囤积库存或购买耗电量较低的设备，中共国媒体周二报道称，近几周来，31个省级行政区中至少有20个推出了限电措施，给企业和家庭造成了严重影响。
 
-(本文仅代表作者观点)
+蜡烛制造厂是因需求激增而急于满足订单的工厂之一，但随着过去一个月升级的危机恶化，大多数工厂和制造商都面临生产放缓、成本上升和利润下降的问题。
 
-参考链接：[China PCR test orders soared before first confirmed COVID case](https://asia.nikkei.com/Spotlight/Coronavirus/China-PCR-test-orders-soared-before-first-confirmed-COVID-case)
+中共国正面临经济危机，或已经陷入危机之中，无论如何，这都是一个严重的事态发展。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+新闻链接：[https://www.thegatewaypundit.com/2021/10/exclusive-chinese-manufacturers-working-1-day-week-china-faces-economic-crisis/](https://www.thegatewaypundit.com/2021/10/exclusive-chinese-manufacturers-working-1-day-week-china-faces-economic-crisis/)
 
-校正/发稿：谐趣园
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

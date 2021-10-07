@@ -2,36 +2,166 @@
 ---
 
 
-## 加拿大威胁公务员限制民众 强推毒针注射
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579918/)
+## 中共停电的目的是打垮美元和美股
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580019/)
 
-栏目记者/责任编辑：修文
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-102.png)
-加拿大总理特鲁多10月6日宣布，在10月底前所有公务员必须完整接种新冠毒针疫苗，否则最快将于11月被留职停薪。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/aii18-iytb4.jpg)
+[https://gtv.org/video/id=615f36a5d2e2b81748725a0d](https://gtv.org/video/id=615f36a5d2e2b81748725a0d)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-2.jpeg)
+**郭文贵
+Miles Guo**
 
-特鲁多上月选举前就提出公务员强制接种计划，已经引发部分民众不满。10月6日他正式宣布执行强制令，以停薪留职威胁联邦政府所有公务员，以及铁路、民航、机构、银行等员工。根据该政策以10月底为期限，要求以上人员完成毒针接种，否则，最快于下月中旬，政府将对未完成任务或没有提交接种证明的员工实行停薪留职，该计划预计将影响27万员工。该计划还包括12岁以上民众，政府试图以限制搭乘公共交通工具来迫使人们屈服。
+记住啊
+Recuerden
 
-加拿大民众一直在为自由而战，8月份纽芬兰和拉布拉多的护士联合起来，抗议新冠疫苗强制令和疫苗护照。面对政府各项强制措施，爆料革命战友和觉醒的加拿大民众从未后退，自发向周围的人传播疫苗真相、利益链黑幕，并展示毒针带来的危害。
+咱是有时间的
+Nosotros tenemos tiempo
 
-加拿大政府强制推行接种计划，只会激起更强烈的民众反抗。本周六，抗议者将会和家人一起，在蒙特利尔和其他加拿大城市的街道上，同各国人民一起和平游行，维护个人医疗自主权和人权。
+咱不是没时间, 咱有时间的
+No es que no lo tengamos, si tenemos
 
-(本文仅代表作者观点)
+这不会
+Esto no…
 
-参考链接：[加拿大強制公務員完整接種疫苗 違者將留職停薪](https://news.ltn.com.tw/news/world/breakingnews/3695989)
-[Nurses denounce anti-vaccine passport protest in St. John’s](https://www.cbc.ca/news/canada/newfoundland-labrador/anti-vaccination-passport-protest-st-johns-1.6173996)
-[Thousands in Canada and France Protest Vaccine Passports](https://www.voanews.com/a/covid-19-pandemic_thousands-canada-and-france-protest-vaccine-passports/6209589.html)
+如果2025年灭不了共的话
+Si en el 2025 no podemos derribar al Partido Comunista
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+七哥也不会再去灭共了
+Entonces no lo haré más
 
-终审：暗黑
-校正/发稿：谐趣园
+你们也不会再看到七哥, 真的
+Tampoco me verán más, estoy hablando en serio
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这个什么事都可能发生
+Puede suceder cualquier cosa
+
+我不会再
+No seguiré
+
+2025年如果是共产党还存在的话
+Si en 2025 el Partido Comunista todavía existe
+
+你们不会再看到七哥
+No me verán más
+
+但是我是不会的
+Pero esto no sucederá
+
+2025年绝对是
+En el año 2025 es definitivamente
+我是2015年
+En el año 2015
+
+我跟刘延平联系, 国内的人跟我联系, 我都说过
+Me contacté con Liu Yanping, la persona que estaba en China se comunicó conmigo y yo dije
+
+我等你们十年, 我都等死你们
+Los esperaré diez años, hasta la muerte los esperaré
+
+不是我今天说的
+No lo dije hoy
+
+我不相信共产党能过2025年
+Yo no creo que el Partido Comunista pueda pasar el año 2025
+
+这个是有时间限制的
+Esto habrá un tiempo limitado
+
+另外一个, 就刚才说这个共产党的停电
+Otra cosa, lo que estaba hablando hace rato sobre el apagón del Partido Comunista
+
+是不是跟世界经济
+Si tiene relación con la economía mundial
+
+为啥我说这个世界经济会跟这个共产党停电有关系
+Por qué digo entre ellos tienen relación
+
+大家没有
+Ustedes
+
+昨天你那个数里边没算
+No contaron los datos de ayer
+
+就你那些都是所谓的官方统计数据
+Los supuesto datos oficiales que tú dices
+
+你绝对要记住
+Debes recordar
+
+七哥从一开始爆料就说
+Yo desde el principio del Movimiento de Denunciantes dije
+
+如果你相信了任何一个共产党对着镜头和对着人
+Si crees en cualquier persona del Partido Comunista que habla frente a la cámara y a las personas
+
+说出的话和公开的表格和数据
+Acerca de los formularios y los datos públicos
+
+那你就是天下最愚蠢的傻子
+Entonces eres el tonto más estúpido del mundo
+
+共产党的那些, 所有的, 现在今天干的事情
+Todas las cosas que ha hecho y que hizo hoy en día el Partido Comunista
+
+他只有两个目标大家没搞明白
+Simplemente tiene dos objetivos que ustedes no lo han entendido todavía
+
+一切都是为了干倒美元, 干倒欧元而干的
+Todo es para destrozar al dólar estadounidense y el euro
+
+共产党所有干的事情就是杀敌一千
+Todo lo que ha hecho el Partido Comunista
+
+自伤一万, 我也得干
+Por matar a mil enemigos pueden sacrificar diez mil de los suyos
+
+我断我九指
+Me corto nueve dedos
+
+我断你一指
+Corto uno del tuyo
+
+我也得干
+Aún así lo tengo que hacer
+
+我都变成九指妖了, 我也认了
+Y si me convierto en Sara Wei, lo asumiré
+
+所有的现在想了美国和中美之间
+Toda la relación entre EE. UU y China
+
+过去5000亿的逆差
+El déficit de los últimos 500 mil millones
+
+5000亿的逆差到最后变成了几百亿的逆差
+El déficit de los 500 mil millones finalmente se convirtió en un déficit de decenas de miles de millones
+
+但几千亿美元的贸易
+Pero cientos de miles de millones de dólares en comercio
+
+他绝对能把美国股票给打垮了
+Él seguramente puede derribar a las acciones de EE. UU
+
+这个不是假的
+Esto no es falso
+
+真能打垮, 今天中共国就这么停电再停六个月
+Realmente puede destrozarlo, hoy, el PCCh si viene otro apagón de seis meses
+
+美国的股票市场经济一蹋糊涂
+La economía del mercado de valores de EE. UU será un desastre
+
+**——————————————————**
+
+**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1445260826655424515?s=24](https://twitter.com/se1y7cblljselva/status/1445260826655424515?s=24)
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 :洛杉矶盘古农场–彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
