@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/7/2021 2:37 PM (UTC)`
+
+Sept.10, 2017, Fu Zhenghua used the task force and law enforcement under his control for extortion & money laundering, the extent was outrageous!<br/><br/>2017年9月10号傅政华控制的专案组和公检法，敲诈勒索，向海外洗钱，巨额财富，已经黑暗到天怒人怨！
+![img](https://media.gettr.com/group28/getter/2021/10/07/14/37/f4609250-0a25-dce1-70b5-60931a7f868a/out.jpg)
+
+---
+
+`@miles 10/7/2021 2:25 PM (UTC)`
+
+10/12/2018, Miles Guo was accused of the so-called "crime of forced trading", which is 100% false, completely following the orders of Fu Zhenghua, Meng Jianzhu, Sun Lijun and Wang Qishan<br/><br/>10/12/2018 文贵被指控所谓的​​“强迫交易罪”，这百分之百都是假的，完全是执行傅政华，孟建柱，孙力军，王岐山的命令
+![img](https://media.gettr.com/group40/getter/2021/10/07/14/25/2418d678-3fac-bb58-4648-5c4698832fd5/out.jpg)
+
+---
+
 `@miles 10/7/2021 2:21 PM (UTC)`
 
 Sep 7th,2017, Miles Guo revealed that even though Fu Zhenghua was under protection of Xi Jinping, he will be killed sooner or later as he knew too much hidden dirt of Wang Qishan, Meng Jianzhu and Sun Lijun<br/><br/>2017年9月7日文贵爆料恶人傅政华虽然有习的保护，但是早晚都会被弄死，因为他知道的王孟孙的黑材料太多了
@@ -283,19 +297,6 @@ WOW WOWWOW🙏🙏🙏🙏🔥🔥🔥👇👇👇👇👇👇👇👇👇👇�
 
 10/3/2021 Miles Guo: What made me feel the happiest in the past ten days or so is that the international organizations such as the United Nations and European Parliament have started to examine if the New Federal State of China (NFSC) can represent the Chinese people; We hope that Taiwan, Hong Kong, Xinjiang, and Tibet will be independent in the future and then become part of the NFSC; I am very confident that we can prevent the CCP from occupying Taiwan by cooperating with the world’s evil and justice forces in the “swamps”! Both Taiwan and Hong Kong will have a bright future!<br/><br/>10/3/2021 文贵直播：在过去的十几天中让我最开心的是，联合国和欧洲议会等国际组织已开始研究是否承认新中国联邦代表中国人；我们希望未来台湾、香港、新疆和西藏都独立并成为新中国联邦的一部分！我很有信心这次跟世界上的邪恶和正义的沼泽地的力量能合作阻止共产党攻占台湾！台湾和香港都会有美好的未来！
 ![img](https://media.gettr.com/group28/getter/2021/10/04/09/47/85f07069-980f-43b8-1766-82645e97a1e9/out.jpg)
-
----
-
-`@miles 10/4/2021 3:48 AM (UTC)`
-
-10/3/2021 Miles Guo: The recording of the phone call between Fu Zhenghua and me was actually between me and the driver manipulated by Fu. Falun Gong followers and those in the public security organs, procuratorates, and courts are the people Fu arrested the most. Bringing down Fu Zhenghua meets Xi Jinping’s political interests as he can show off his “fairness” before arresting Meng Jianzhu and Wang Qishan. Fu Zhenghua not only sent people to prison, but also controlled the prisons and tortured the prisoners he arrested. This is the CCP’s wickedness!<br/><br/>10/3/2021 文贵直播：文贵当年公布的傅政华通话录音其实是由他操控的一个司机和我通话的；傅政华抓的最多的是法轮功和公检法的人；习近平拿下傅政华符合他的政治利益，在抓孟建柱和王岐山之前，习借此表现了一下“公正性“；傅政华不仅抓人进监狱，而且还管监狱并虐待他抓的人，这就是中共的邪恶！<br/>
-![img](https://media.gettr.com/group43/getter/2021/10/04/03/48/77820590-4b39-58dd-680a-f380e98a4767/out.jpg)
-
----
-
-`@miles 10/4/2021 1:13 AM (UTC)`
-
-10月3号：疫苗灭共．疫苗灭黑暗势力，这速度怎么样？【辉瑞前员工报告 FDA 研究并警告辉瑞的疫苗使 COVID-19病例增加 300% 以上<br/><br/>https://www.lifesitenews.com/news/if-you-get-the-pfizer-vax-youre-more-likely-to-get-covid-insider-leaks-fda-study/】
 
 ---
 
