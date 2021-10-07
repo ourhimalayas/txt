@@ -2,62 +2,155 @@
 ---
 
 
-## 海外为什么一定会发生排华？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1577701/)
+## 欧洲政党基本上是在说脸书编写算法改变我们领导国家
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1577808/)
 
-文字整理：顺其自然
+![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl.jpg)
+[https://gtv.org/video/id=615ddf9fd2e2b817487204c6](https://gtv.org/video/id=615ddf9fd2e2b817487204c6)
 
-编辑、校对、发布：Candy
+Scott Pelley
+斯科特·佩利
 
+Facebook essentially amplifies the worst of human nature.
+脸书本质上放大了人性中最坏的一面
 
-闲聊澳洲
-在美国时间的10月5日，郭先生与几位嘉宾做了三个多小时的直播。在直播中，郭先生主要讲了以下内容：
+Frances Haugen
+弗朗西丝·豪根
 
-1）两周前盖特办公室发一个通知，发通知的这个人是盖特的律师总监。说：任何进入办公室的人，包括：Miles Guo， Jason Miller 都必须打疫苗，不打疫苗不能进办公室。不打疫苗，每次进入都要测病毒，而且可以拒绝。Jason Miller当然气疯了。
+It’s one of these unfortunate consequences, right,
+这是这些不幸的后果之一，对吧
 
-2）昨天雷神的一个审计董事会成员，在美国玩儿上市的亚裔韩国人，他打了两针疫苗儿，他说他要相信科学。郭先生问他：“你相信政府吗？你相信福奇吗？” 郭先生说：美国情报部门儿都拿共产党的钱，福奇都和北京国药合作，为啥媒体要控制？为啥打疫苗的要让不打疫苗的承担责任？他说，要相信科学啊。所以，不要高估这个世界上高智商的人，千万别相信呆在政府最高椅子上坐着的人，不要相信有名的人和任何专家，某些方面的专家一定是某些方面的白痴。
+knowing that Facebook is malevolent.
+知道脸书是恶意的
 
-3）所有的统计局，一大部分都是郭先生的人，以河南人为主。中国最重要的两个数据：人民银行和海关。海关涉外造不了假，只能百分之三十到百分之五十造假，百分之百很难造假。第二是人民银行，外汇、中国货币双轨制，有数据可参考，造假超过几倍也不可能。审计专员都是局级干部，中央领导给你的数，你就按这个数去填，不能问的。这是政治数据。
+But the incentives are misaligned right
+但激励措施错位了，对吧
 
-4）2001年加入WTO之前，中国GDP是1.3万亿，现在已经是15万亿美元，12倍。房地产你们说是400多万亿（人民币)，其实房地产一定是700到800万亿(人民币)，差了一倍。地方债这块儿，西方说是8.5万亿美元，西方是非常无知的。其实三周以前，中国包括中央的，整个地方债是107万亿人民币，15万亿美元，这才是真正的数，地方债这块儿。中国所有的外债里面和伊朗的交易能公开吗？伊朗多大，一个昆仑银行就4000多亿，巴基斯坦你能算数吗？北朝鲜你能算数吗？非洲几个国家你算不算数？
+like Facebook makes more money when you consume more content.
+就像脸书在你消费更多的内容时赚更多的钱
 
-5）中国是双轨机制：国内人民币、海外人民币。海外那块儿也就是几十万亿人民币，国内这块现在是800万亿（人民币）。从2001年到现在，全人类全地球儿GDP是总额1500万亿。2001年到现在，共产党你从1.3万亿到了15万亿，你总共官方也就是94万亿美元的总GDP，咱就说一百万亿，你怎么整出这800万亿人民币，就120万亿美元的这个货币增发啊。然后你GDP涨了12倍，地方债就干了15万亿美元，你海外永远存的钱就3万多亿美元，然后修桥架路，修水什么的，房地产60-70%的钱都给到中央了。所以必然崩溃。
+People enjoy engaging with things that will listen to emotional reactions,
+人们喜欢参与能够倾听情绪反应的事物
 
-6）西方基金就是吃中国人卖掉子宫的血汗经济，西方沼泽地就是榨取中国人民劳动血汗的钱，就是骗他们自己国民的钱。基金就是你的钱交给我管，赔了是你的，赚了分你20%。不管赔还是赚，抽你佣金5%。这就是基金，永远都是吸血的。
+and more angered they exposed to the more interactive more they consume
+他们接触的互动越多，消费的越多，他们就越愤怒
 
-7）这两天儿，很多人都在说Facebook那个事儿。人类未来这种事情发生，几乎可能每周、每个月都会发生，就像拉肚子那么简单，非常正常，是常态化的；而且Facebook、 Instagram 、WhatsApp没有任何能生存下去的条件，现在他们把自己IP地址藏起来了。另外他们有很多的法律纠纷，还有这次的病毒和疫苗灾难，他是罪魁祸首，黑白两道都会弄死他。facebook上万亿的产业，一秒钟就没了。
+Scott Pelley
+斯科特·佩利
 
-现在在暗网里面卖Facebook用户信息的，卖用户帐号的，一堆一堆的，1万个客户十美金。到刚才郭先生直播前已经看到，100万个客户十美金，包括你们的、我的，所谓的十五亿客户，他几乎全给你拿走。whatsapp昨天事儿，1万个客户100美金。你觉得未来没有诉讼吗？他是总部的店员给干掉了，给他封了总部的大门儿，进不去了。地下室地上，中间最安全，机房都进不去了。你们不懂的，这个所有的机房里边儿，他把最安全的，不是放地下、地上，不放的，都是放在中间的，叫“数据中心”，最核心安监室。他的三道门全砸了，人都进不去，警察都进不去，这个是最可怕的。昨天Facebook一看就是俄罗斯出手。俄罗斯告诉你，别跟我玩儿，共产党是不敢出手的。只有俄罗斯，拔电源销IP，这只是刚刚开始。
+that dynamic led to a complaint to Facebook by major political parties across Europe.
+这种动态导致欧洲主要政党向脸书投诉
 
-8）很多人都知道天上人间，但是不知道丽舞台，丽舞台才是第一夜总会。是郭先生的CEO林强的老婆开的。他俩离婚了。林强曾是公安部一局局长，所谓的海外情报局，港澳台黑白两道，还有海外派遣调查，都归一局管。
+This 2019 internal report obtained by Haugen says
+豪根获得的这份 2019 年内部报告说
 
-9）共产党的所谓的隐形债务，影子银行，影子金融，上帝都不知道发生了多少数。南京商业银行一个女孩，干1万多亿人民币，你说这个女孩儿有多夸张啊！郭先生说，我有一次喝酒喝多了，跟她一起啊，当时在我裕达酒店，我早上五点钟走离开的啊，我也真不知道发生了什么事儿啊。早上女孩说，郭先生不好意思啊，我这手表掉床上了，能帮我找找去吗？我说，咱俩睡一起啦？她说睡了啊。结果一找，掉床缝里边儿了。那一块表，后来我才知道多少钱。那块儿表600多万美元啊，江诗丹顿，双边儿的，全世界就三块，那是1998，1999年。你想想这女孩玩多少钱！
+that the parties “feel strongly that the change to the algorithm has forced them
+双方“强烈认为算法的变化迫使他们
 
-10）华尔街这帮人，郭先生说，我给你数，我能数几个小时，你不知道一个基金经理有多夸张。我2015年参与投资的基金，当时在高盛，这个人刚出来，现在在美国有17套房子，每套房子都在五千万美元。他就是干什么？他是保尔森的这个下属，到中国去跟王岐山，周亮，康点，平安马明哲，杰克马认识，在美国就赚了大量的钱。人们看他真赚钱了，回报1800%，谁不投啊。但是对他来讲，赚钱我拿20%，赚不赚我收你5%，他们就是吸血鬼。所有的就一句话：奴役中国人。中国加入WTO后，中国人顶住了最大的雷，但现在所有这一切即将爆发。
+to skew negative in their communications on Facebook,
+在脸书上的交流中产生负面影响
 
-11）这些基金叫人家投的钱、养老的钱，都投到了中国的恒大、碧桂园、合生创展、富力、保利，又投到各种基金、地方债、隐形债，你看都看不着，互相都不知道，最后爆雷，这个钱就没了。华尔街和中共搞出来的，全世界的未来都毁了，比如说你们五个人借了100亿，全世界报表儿多了500亿，这500亿吃的是人家养老的钱。这些人吃的是西方人的养老的钱，人家的命根子，养老、医疗保险都没了。到那时候，人家不恨死你中国人，全世界像印尼排华的时候，是杀红眼的。又经过了这一两年的疫情隔离，疫苗恐惧，认为这一切的根源都是共产党和中国人，现在中国人还在到处拉仇恨。很多中国人在国外的那种牛X、傲慢、耍流氓、拉仇恨，真的无法让人想象，一副暴发户的样子。而最关键的是，今天你动了人家的奶酪儿了，这些地方债务，隐形债务。他可不分你在国内国外。
+leading them into more extreme policy positions. ”
+引导他们采取更极端的政策立场
 
-12）日本的不只是养老基金没了，日本除了养老基金，最可怕的日本的金融系统，日本的金融系统很王八蛋的。日本把钱放到了新加坡，放香港，所以在账表上你看都是投到了什么，国际海外资产，新加坡淡马锡在下边产业，然后又投到了欧洲生产，但是它从欧洲转回去投的中国的。郭先生说，如果日本的金融系统低于40%钱没有投到中国的话，那你就把我宰了。日本的90%靠进口的国家，他40%钱没了，你说他怎么办？
+The European political parties were essentially saying
+欧洲政党基本上是在说
 
-郭先生问了日本的三个基金，日本人说，郭先生你不能这么说，我们投的是英国，不是中国。郭先生说，英国的那家基金是太平联盟，总部在香港，太平联盟就投了腾讯音乐。这个太平联盟，它绝对是跟共产党勾兑，太平联盟买通司法机关，利用律师事务所，控制很多部门儿，跟共产党一起控制律师，通过律师控制影响各种官司，包括通过律师控制各种所谓的法官，警察的儿女，输送利益，在英国，在美国，在中国大肆行贿。
+the Facebook the way you’ve written your algorithm is changing the way we lead our countries.
+脸书的编写算法的方式正在改变我们领导国家的方式
 
-13)德国卖宝马，大众车给中国，以为在中国赚了很多钱，但现在发现德国绝大多数钱都被中共从另外一个手段给你掏走了。隐形债务，国际银行，最后德国发现给共产党白白打工那么多年，结果所有的一切被毁，比二战希特勒毁你还夸张。
+Frances Haugen
+弗朗西丝·豪根
 
-14)不买中国国债：第一是俄罗斯，第二北朝鲜，没钱买，第三就是巴基斯坦。铁哥们儿绝不买你的。中国流通现金最多的，你们一定想是北京和上海是吧？不是的，中国现金流通最多是西藏，压榨的最高区，你可能想象的一定是北京和上海，不对的，压榨最多的是新疆。但是它的外债最多，地方债最多。在国内那么多年的政策，是整个对边远地区，少数民族地区是一种完全的剥削方式，其中之一就是隐形债和地方债，像云南，像新疆。人家西藏人大量现金流动剥削不起来。你到那曲去看，上万台路虎，全世界路虎最多的地方，8万个保险箱，都是现金，开始都存人民币，后来不存人民币，都存外汇了。
+Yes，you are forcing us to take positions.
+是的，你在强迫我们表明立场
 
-15）华尔街加一起不到3000个基金经理，几乎占有全人类财富的70%-80%。中国不超过100个家族，5000万分之一的家族，控制中国人所有的财财富，债留中国，钱进100个家族。来自中国的世界经济大崩塌，会回到1913到1917年一战的时候，经济大崩盘，伴随着一战西班牙流感大流行。
+We don’t like we know we’re bad for society.
+我们不喜欢我们知道我们对社会有害
 
-16）腾讯音乐背后孙力军，吴征，孟建柱，多可怕，现在才去查，习这个人，他没有这个雄心，他跟人家玩了十来年了，变成这个样子。现在所有两人，政法委、外交部、军队几大部，国安委都是天天给他假报告，全都是忽悠他的，他就永远不会相信江志成是他的对手。另外瑞士信贷，摩根斯坦利也投资了腾讯音乐。
+We know, we don’t take those positions.
+我们知道，我们不采取这些立场
 
-17）草根小哥问，中国欠了这么多债，谁来还？郭先生回答，还不了，崩塌，就是没了。德国二战要赔1000多亿马克，它也没赔。二战的时候，很多国家是把德国人的钱扣下来的。若干掉日本的养老金三百亿，日本就完了，全球破产。
+We won’t win in the marketplace of social media.
+我们不会在社交媒体市场上获胜
 
-18）美国美国人，摆脱美联储以后，美国人才有自由，美国不摆脱美联储，美国是不会自由的，
+Scott Pelley
+斯科特·佩利
 
-19）共产党所有的数据都是假的，但有一样是真的，就是他知道自己是假的，习近平肯定知道这是假的。王毅、杨洁篪把所有东西一定给润色、改完以后到王沪宁那。军队里边儿人报许其亮那儿去的。国安委的人一定这几个人把关。人民银行呢，一定是郭淑清把关。不能伤到王岐山，不能伤自己，更不能惹习近平恼怒，恼怒以后，这会死人的。习近平也习惯了这些假的东西。
+Evidence so harm. She says extends to Facebook’s Instagram app.
+证据如此有害， 她说扩展到脸书的Instagram应用程序
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+One of the Facebook internal studies
+脸书的内部研究之一
+
+that you’ve found talks about how Instagram harms teenage girls.
+你发现讨论有关 Instagram 如何伤害少女的讨论
+
+Frances Haugen
+弗朗西丝·豪根
+
+Oh yeah
+哦，是的
+
+Scott Pelley
+斯科特·佩利
+
+One study says, 13 and a half percent of teen girls say
+一项研究表明，13.5% 的少女说
+
+Instagram makes lots of suicide worse
+Instagram使许多自杀事件变得更糟
+
+17% of teen girls say Instagram makes eating disorders worse
+17% 的少女说 Instagram 会使饮食失调变得更糟
+
+Frances Haugen
+弗朗西丝·豪根
+
+and super tragic is Facebook’s own research says,
+而且超级悲哀的是脸书自己的研究表明
+
+as these young women begin to consume the eating disorder content,
+随着这些年轻女性开始消费饮食失调的内容
+
+they get more and more depressed,
+她们变得越来越忧伤
+
+they actually makes them use the app more.
+他们实际上让她们更多地使用该应用程序
+
+So they end up in this feedback cycle
+所以她们最终进入了这个反馈循环
+
+where they hate their bodies more and more
+她们越来越讨厌自己的身体
+
+Facebook’s own research says,
+脸书自己的研究表明
+
+is not just the Instagram is dangerous for teenagers that harm teenagers,
+不仅仅是 Instagram 对青少年是危险的，对青少年的伤害
+
+is that is distinctly worse than other forms of social media
+是明显比其他形式的社交媒体更糟糕
+
+Facebook said just last week,
+脸书上周表示
+
+it would postpone plans to create an Instagram for younger children
+它将推迟为更年幼的孩子创建 Instagram 的计划
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接:**[https://youtube.com/watch?v=\_Lx5VmAdZSI](https://youtube.com/watch?v=_Lx5VmAdZSI)
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

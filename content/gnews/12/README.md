@@ -2,25 +2,48 @@
 ---
 
 
-## 新西兰护卫舰加入英国航母编队穿行南中国海
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1578008/)
+## 喜马拉雅交易所启动在即 参与竞猜赢取欢乐惊喜
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1578137/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16335696571.png)资料照片：菲律宾海军乐队欢迎来访马尼拉大都会的新西兰海军“特卡哈”号护卫舰。(2017年4月4日)
-新西兰皇家海军10月6日宣布，“特卡哈”号导弹护卫舰加入了英国航母打击群，穿行南中国海前去参加 “2021五国金禧演习”。并且在印太地区与包括美国海军航母“卡尔·文森”号和“罗纳德·里根”号在内的来自日本、荷兰、加拿大和美国的军舰进行军事演习和训练活动。
-
-“2021五国金禧演习”为庆祝“五国联防”(FPDA)签署50周年。演习将在新加坡和马来西亚半岛附近海域举行。“五国联防”成员包括澳大利亚、英国、新加坡、马来西亚和新西兰。
-
-新闻参考链接：[https://www.voachinese.com/a/new-zealand-warship-joins-uk-carrier-group-on-transit-of-south-china-sea-20211006/6260154.html](https://www.voachinese.com/a/new-zealand-warship-joins-uk-carrier-group-on-transit-of-south-china-sea-20211006/6260154.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+栏目记者/责任编辑：安吉拉
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+
+
+
+
+
+
+
+Himalaya Exchange加密货币交易所即将全面启动，推出特别“Guess & Win”活动。符合资格的用户只需在截止时间前在专属页面输入您的预测答案，即能参与本次活动。
+
+首位正确猜出比特币在10月13日 UTC 凌晨12点，即美东时间12日晚8点的价格或与之最接近的用户将会成为本次竞猜活动大赢家！获得一万喜美元。
+
+截止时间为10月10日UTC晚上11点59分，即美东时间晚上7点59分，伦敦时间11日凌晨零点59分。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-17.jpg)
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+终审：鬼五
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

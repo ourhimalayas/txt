@@ -2,59 +2,49 @@
 ---
 
 
-## 脸书吹哨人弗朗西丝·豪根认为联邦政府应该实施监管
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1577841/)
+## 欧盟药品管理局建议将深部静脉血栓列入强生疫苗的副作用
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1577982/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/33-aeax3-hm1yr.jpg)
-[https://gtv.org/video/id=615de19cd2e2b81748720539](https://gtv.org/video/id=615de19cd2e2b81748720539)
+作者：纽约香草山农场 – 云豹
 
-**Scott Pelley**
-**斯科特·佩利**
 
-Facebook is a $1 trillion company just 17 years old.
-脸书是一家成立仅17年，市值 1 万亿美元的公司
 
-It has 2.8 billion users, which is 60% of all internet connected people on Earth.
-它拥有 28 亿用户，占地球上所有互联网连接人数的 60%
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
 
-Frances Haugen plans to testify before Congress this week.
-弗朗西丝·豪根计划本周在国会作证
 
-She believes the federal government should impose regulations.
-她认为联邦政府应该对脸书实施监管
 
-Frances Haugen
-弗朗西丝·豪根
+10月1日，欧盟药品管理局建议，将深部静脉血栓列入强生新冠疫苗的副作用，以提醒大众注意。
 
-Facebook has demonstrated they cannot act independently,
-脸书已经证明他们不能独立行动
+![](https://imgcdn.cna.com.tw/www/WebPhotos/800/20211002/1470x980_48321000239.jpg)图片来源：Unsplash
 
-Facebook over and over again has shown, it choices profit over safety.
-脸书一再显示它选择利润而不是安全
+据悉，强生与阿斯利康药厂所生产的新冠疫苗均采用无害病毒做为载体。先前，阿斯利康新冠疫苗就已经被认定，其与疫苗接种者发生的深层静脉血栓有关，相关机构曾依此发布过警示。此次，欧盟药品管理局再度建议，将强生新冠疫苗列入到相同的副作用警示中。
 
-It is subsidizing is paying for its profits with our safety.
-它的补贴是用我们的安全来支付它的利润
+除了深层静脉血栓外，欧盟药品管理局也同时建议，将免疫性血小板减少症列入强生与阿斯利康新冠疫苗的不良反应资讯中。
 
-I’m hoping that this will have had a big enough impact on the world,
-我希望这会对世界产生足够大的影响
+事实上，随着越来越多的相关病例被爆出，新冠疫苗的副作用已逐渐被世界各地的民众及政府发觉、证实。 最终，世人一定会认清新冠病毒及疫苗的真相，并向中共这个罪魁祸首追责。
 
-that they get the fortitude and the motivation to actually go put those regulations into place.
-使他们有毅力和动力，真正去把这些法规落实到位
+（本文仅代表作者观点）
 
-That’s my hope.
-这是我的希望
+参考阅读：
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+[嬌生疫苗副作用 歐盟建議列入深部靜脈血栓](https://www.cna.com.tw/news/aopl/202110020072.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-**原视频链接: **[https://youtube.com/watch?v=\_Lx5VmAdZSI](https://youtube.com/watch?v=_Lx5VmAdZSI)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
 
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片: 洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+***编辑/校对/发稿：Irene木木***
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)

@@ -2,36 +2,59 @@
 ---
 
 
-## 樱花灭共段子之真相大白、大妈与金鱼
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1577780/)
+## 脸书吹哨人弗朗西丝·豪根认为联邦政府应该实施监管
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1577841/)
 
-#### 撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2021/10/aa9ebcd301558fa01e93007e20a4564f.jpg)
-【真相大白】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/33-aeax3-hm1yr.jpg)
+[https://gtv.org/video/id=615de19cd2e2b81748720539](https://gtv.org/video/id=615de19cd2e2b81748720539)
 
-樱团子：樱花君，你说现在墙国人口增长越来越少，用电率能高到哪里去！？可为什么停电区域越来越大，现在又喊着涨电价？
-樱花君：因为是国企！国家垄断行业！竞争力低下，设备不更新换代，管理无能，就指着给老百姓要钱！现在煤炭成本高腾，发电亏本，又来那一套，涨电费才能恢复正常，你能怎么办！
-樱团子：我就奇怪了，不买澳大利亚煤炭，买别国煤炭，价格能高到哪里去，为何供电却越来越困难了？
-樱花君：哼！因为现在给墙国卖煤炭的国家都是二道贩子！
-樱团子：啊！什么意思？
-樱花君：中共说为了惩罚澳大利亚不买煤炭！知道为何澳大利亚的煤炭出口量却比去年增长了13.3%！那是出口别的国家后加价在转手卖给中共！能不贵吗！
-樱团子：什么！那俄罗斯、蒙古、印度尼西亚都这样干？
-樱花君：不然你以为为何！为了显我“大国之威”即便没有国家储存货币了，也要打肿脸充胖子，在贵的煤炭也得买！而二道贩子的国家知道这个情况，那是想怎么涨就怎么涨了！知道你不得不买！
-樱团子：这回“真相大白了”！说是制裁澳国，显我之威！到头来还是老百姓买单！这个韭菜割的没脸没皮的！好一个大国！
-[盖特链接](https://www.gettr.com/post/pczwbq70d2)
+**Scott Pelley**
+**斯科特·佩利**
 
-【大妈与金鱼】
+Facebook is a $1 trillion company just 17 years old.
+脸书是一家成立仅17年，市值 1 万亿美元的公司
 
-金鱼：大妈，您休息会，我能在坚持一会，不然您累倒了怎么办！
-大妈：不行啊，我不能见死不救啊，养了你好久了都养出感情了，不能因为停电把你整没了。
-金鱼：大妈，您拿打气筒给我输氧，都打一晚上了，有心了。
-大妈：唉！你感谢我，我也很感动啊，做人啊要有良心，有些人连畜生都不如啊。吃我们的，喝我们的，拿我们的。没有了，就开始又偷又抢了。
-金鱼：这是哪个混蛋干这事啊？
-大妈：还能有谁！“裆”呗！
-[盖特链接](https://www.gettr.com/post/pd3lll1a6e)
+It has 2.8 billion users, which is 60% of all internet connected people on Earth.
+它拥有 28 亿用户，占地球上所有互联网连接人数的 60%
 
-(文章仅代表作者本人观点，与GNEWS无关)
+Frances Haugen plans to testify before Congress this week.
+弗朗西丝·豪根计划本周在国会作证
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+She believes the federal government should impose regulations.
+她认为联邦政府应该对脸书实施监管
+
+Frances Haugen
+弗朗西丝·豪根
+
+Facebook has demonstrated they cannot act independently,
+脸书已经证明他们不能独立行动
+
+Facebook over and over again has shown, it choices profit over safety.
+脸书一再显示它选择利润而不是安全
+
+It is subsidizing is paying for its profits with our safety.
+它的补贴是用我们的安全来支付它的利润
+
+I’m hoping that this will have had a big enough impact on the world,
+我希望这会对世界产生足够大的影响
+
+that they get the fortitude and the motivation to actually go put those regulations into place.
+使他们有毅力和动力，真正去把这些法规落实到位
+
+That’s my hope.
+这是我的希望
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接: **[https://youtube.com/watch?v=\_Lx5VmAdZSI](https://youtube.com/watch?v=_Lx5VmAdZSI)
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

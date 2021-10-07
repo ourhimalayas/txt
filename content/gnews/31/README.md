@@ -2,155 +2,54 @@
 ---
 
 
-## 欧洲政党基本上是在说脸书编写算法改变我们领导国家
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1577808/)
+## 中国的经济自由赤字如何扭曲境外市场
+` 象声` [轉載自GNews](https://gnews.org/zh-hans/1577883/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl.jpg)
-[https://gtv.org/video/id=615ddf9fd2e2b817487204c6](https://gtv.org/video/id=615ddf9fd2e2b817487204c6)
+安东尼.金在2021年10月6日发表一篇评论文章指出：更大的中央集权和国家控制”，它扼杀了中国人民的智力、社会和经济实力。
 
-Scott Pelley
-斯科特·佩利
+美国贸易代表凯瑟琳·戴（Katherine Tai）指出，“近年来，北京在其以国家为中心的经济体制上加倍努力。越来越明显的是，中国的计划不包括有意义的改革，以解决美国和许多其他国家共同的担忧。”
 
-Facebook essentially amplifies the worst of human nature.
-脸书本质上放大了人性中最坏的一面
+事实上，这正是推动“复杂且具有竞争性”的美中经济关系的核心问题。
 
-Frances Haugen
-弗朗西丝·豪根
+公平地说，中国的经济发展自 1970 年代后期向世界开放了更多，并允许更加资本主义的经济模式取得成功以来，一直引人注目。2001 年加入世界贸易组织进一步开放了中国的对外贸易和投资市场，使中国使数百万人摆脱了赤贫，让更多的中国公民获得了更好的生活和休闲质量。
 
-It’s one of these unfortunate consequences, right,
-这是这些不幸的后果之一，对吧
+长期以来，北京一直将中国的经济成功归功于自己，并希望保持这种状态。
 
-knowing that Facebook is malevolent.
-知道脸书是恶意的
+然而，中国共产党从未放弃其社会主义意识形态和威权主义道路。中国国家主席习近平成功地将党的新悖论注入了党的新矛盾，即在渴望将党置于首位的更大控制权与追求急需的积极经济成果之间，这变得越来越具有挑战性。
 
-But the incentives are misaligned right
-但激励措施错位了，对吧
+中共经常口头上说要改革臃肿、效率低下的国有企业和指挥经济结构。不幸的是，最近宣布的改革很少成功，偏向自由市场的改革在某些部门放缓甚至脱轨。
 
-like Facebook makes more money when you consume more content.
-就像脸书在你消费更多的内容时赚更多的钱
+大约 15 年前，北京的一党政府开始重新定义国有企业“改革”，用这个词来指代国家对重点行业的集中控制，这与世界其他地方的含义相反。
 
-People enjoy engaging with things that will listen to emotional reactions,
-人们喜欢参与能够倾听情绪反应的事物
+中国共产党 2013 年的三中全会概述了国家将如何减少对国有商业企业的控制，同时推动它们在对中国经济发展和国家安全贡献最大的重点行业专注于其业务的“核心”领域。
 
-and more angered they exposed to the more interactive more they consume
-他们接触的互动越多，消费的越多，他们就越愤怒
+在实践中，这意味着国有企业越来越尊重党的官员自上而下的活动控制。
 
-Scott Pelley
-斯科特·佩利
+当然，追求和保持高经济增长率并不是任何共产主义专政的主要目标。真正的目标始终是党保持对国家人民的完全控制，通常是通过任何必要的手段。该党似乎确实明白，刺激持续的经济增长是维持民众支持的关键因素。
 
-that dynamic led to a complaint to Facebook by major political parties across Europe.
-这种动态导致欧洲主要政党向脸书投诉
+这使得它继续依赖其“以国家为中心的经济体系”特别被误导，最终不可持续。这最终对中国不利，但它肯定也会导致中国境外市场的扭曲。
 
-This 2019 internal report obtained by Haugen says
-豪根获得的这份 2019 年内部报告说
+中国在传统基金会的年度经济自由指数中表现不佳，该指数衡量与经济增长和繁荣相关的关键领域的经济治理。
 
-that the parties “feel strongly that the change to the algorithm has forced them
-双方“强烈认为算法的变化迫使他们
+在过去的几十年里，中国的经济自由度有所增长，但速度非常缓慢。中国经济仍然“基本不自由”，在2021年指数中排名第107（在 179 个中），在最大限度地提高经济活力的机会方面落后于大多数其他国家。
 
-to skew negative in their communications on Facebook,
-在脸书上的交流中产生负面影响
+在最近的华尔街日报评论中，新西兰前贸易部长兼驻美国大使蒂姆·格罗泽 (Tim Groser) 通过强调：“我们还不知道中国共产党正在编写的新政策脚本将引领世界第二大经济体走向何方。……事情最近一直在倒退，朝着更大的中央集权和国家控制的方向发展。”
 
-leading them into more extreme policy positions. ”
-引导他们采取更极端的政策立场
+毫无疑问，“更大的中央集权和国家控制”——它扼杀了中国人民的智力、社会和经济实力是华盛顿在塑造其走向共产主义政权的道路时必须处理的所有问题的核心。
 
-The European political parties were essentially saying
-欧洲政党基本上是在说
+译者：中国的改革开放的初衷或者起因，并不是处于要提升民众的生活质量，增加社会文明进程，任何一次改革开放都伴随着中共如何持续统治的根本原因。每当政权出现危机的时候，中共背后的资本和权力与中共勾结，重新制定规则， 使其表面上在照顾民生。并美其名曰强调中共的自我纠错能力，从而彰显其正确性，唯一性，和无可替代性。
 
-the Facebook the way you’ve written your algorithm is changing the way we lead our countries.
-脸书的编写算法的方式正在改变我们领导国家的方式
+我们深刻的认识到，不动根本，任何改革，其本质仍是维护政权，继续奴役中共老百姓，为世界邪恶势力输血。
 
-Frances Haugen
-弗朗西丝·豪根
+\*文章仅代表作者观点，原文有删减\*
 
-Yes，you are forcing us to take positions.
-是的，你在强迫我们表明立场
+参考链接：
 
-We don’t like we know we’re bad for society.
-我们不喜欢我们知道我们对社会有害
 
-We know, we don’t take those positions.
-我们知道，我们不采取这些立场
+> [How China’s Economic Freedom Deficit Distorts Markets Beyond Its Borders](https://www.dailysignal.com/2021/10/06/how-chinas-economic-freedom-deficit-distorts-markets-beyond-its-borders/)
 
-We won’t win in the marketplace of social media.
-我们不会在社交媒体市场上获胜
 
-Scott Pelley
-斯科特·佩利
 
-Evidence so harm. She says extends to Facebook’s Instagram app.
-证据如此有害， 她说扩展到脸书的Instagram应用程序
 
-One of the Facebook internal studies
-脸书的内部研究之一
-
-that you’ve found talks about how Instagram harms teenage girls.
-你发现讨论有关 Instagram 如何伤害少女的讨论
-
-Frances Haugen
-弗朗西丝·豪根
-
-Oh yeah
-哦，是的
-
-Scott Pelley
-斯科特·佩利
-
-One study says, 13 and a half percent of teen girls say
-一项研究表明，13.5% 的少女说
-
-Instagram makes lots of suicide worse
-Instagram使许多自杀事件变得更糟
-
-17% of teen girls say Instagram makes eating disorders worse
-17% 的少女说 Instagram 会使饮食失调变得更糟
-
-Frances Haugen
-弗朗西丝·豪根
-
-and super tragic is Facebook’s own research says,
-而且超级悲哀的是脸书自己的研究表明
-
-as these young women begin to consume the eating disorder content,
-随着这些年轻女性开始消费饮食失调的内容
-
-they get more and more depressed,
-她们变得越来越忧伤
-
-they actually makes them use the app more.
-他们实际上让她们更多地使用该应用程序
-
-So they end up in this feedback cycle
-所以她们最终进入了这个反馈循环
-
-where they hate their bodies more and more
-她们越来越讨厌自己的身体
-
-Facebook’s own research says,
-脸书自己的研究表明
-
-is not just the Instagram is dangerous for teenagers that harm teenagers,
-不仅仅是 Instagram 对青少年是危险的，对青少年的伤害
-
-is that is distinctly worse than other forms of social media
-是明显比其他形式的社交媒体更糟糕
-
-Facebook said just last week,
-脸书上周表示
-
-it would postpone plans to create an Instagram for younger children
-它将推迟为更年幼的孩子创建 Instagram 的计划
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接:**[https://youtube.com/watch?v=\_Lx5VmAdZSI](https://youtube.com/watch?v=_Lx5VmAdZSI)
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片: 洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻采编：洛杉矶盘古农场新闻采编组
+ 翻译&编辑：洛杉矶盘古农场–蓝精灵

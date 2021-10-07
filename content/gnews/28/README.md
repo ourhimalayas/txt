@@ -2,35 +2,31 @@
 ---
 
 
-## 中共国地方政府&#8221;隐性&#8221;债务估计为8万亿美元，占中国GDP的近一半
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1577814/)
+## 墨尔本中央商务区入住率降至有史以来最低
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1577945/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/China-Travel-600x337-1.jpg)图片：来自网络
-不仅投资中共国房地产市场的公司面临偿付能力问题，而且中共国地方政府也面临巨额债务。我们现在也知道，中共国地方政府有数万亿美元的债务，这些债务并没有计入他们的账簿。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/shutterstock_1797375811-scaled-1.jpg)图片来源：The Market Herald
+**整理报道：**翼族
 
-高盛的经济学家表示，中国隐性地方政府债务已膨胀至经济规模的一半以上。由于土地销售放缓，收入已经面临压力，中国政府需要灵活应对。
+随着墨尔本进入第六次封城，一份最新的报告显示，中央商务区正在创下历史新低。周四公布的房地产委员会的调查发现，9月份墨尔本CBD的入住率仅为6%，低于今年早些时候的45%。
 
-经济学家们在一份报告中写道，截至去年年底，地方政府融资平台的总债务从2013年的16万亿元增至约53万 亿元（合8.2万 亿美元）。这相当于国内生产总值（GDP）的52%左右，比官方未偿还政府债务还多。
+维多利亚州房地产委员会执行董事丹妮·亨特（Danni Hunter）说：“任何地方都没有比我们墨尔本CBD受到的冲击更大。许多企业已经关闭，办公室入住率和空置率正创下历史新高，中央商务区正在奄奄一息。由于工人、游客和学生被迫远离，即使墨尔本市已尽其所能保持这座城市的活力，我们一些标志性的零售商场和酒店还是不得不关门大吉。”
 
-地方政府融资平台是政府可让贷款不出现在资产负债表上的借钱工具，但金融市场将其视为政府负债。
+亨特女士表示应尽快采取措施，例如在工作场所设立疫苗接种中心和检测点、取消在家工作，以及在达到疫苗接种目标后每周至少返回办公室三天，以吸引工人们返回城市。
 
-考虑到GDP，中国地方隐性债务是美国地方债务的四倍，这一事实令人吃惊。
+她说：“我们需要人们回到这座城市，因为他们是墨尔本的命脉并支持我们的业务。混合工作模式将继续存在，虽然在家工作的灵活性很好，但总是无法替代大家坐在一起合作、交流想法和知识”。
 
-**简评：**
+亨特女士表示，墨尔本CBD的经济支持了50万个工作岗位，并在高峰时期创造了澳大利亚约7%的GDP，以及维多利亚州GSP的25%。
 
-这篇文章揭示中共国的债务越来越多，地方政府面临巨额债务，郭先生给出了准确分析，地方债，隐形债，影子银行，华尔街勾结中共，压上了养老保险，退伍军人保险，因此引起一系列全世界对华人的攻击，最担心导致新的排华事件发生，这些真实的声音最早也是及时提醒发布，爆料革命一直在披荆斩棘，传播真实的声音，过去的无知总要付出代价的！
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-[原文链接](https://www.thegatewaypundit.com/2021/10/chinas-local-governments-hidden-debts-estimated-8-trillion-nearly-half-countrys-gdp/?ff_source=Twitter&amp;ff_medium=PostTopSharingButtons&amp;ff_campaign=websitesharingbuttons)
+**参考链接：**[1638 cases, two deaths; alarming spike in Covid hospital cases overnight](https://www.heraldsun.com.au/coronavirus/office-occupancy-hits-record-low-in-melbourne-cbd/news-story/acc88601582af8e68534b0e7504c9ce0)
 
-***编辑：【英国伦敦喜庄园编辑部】***
+*编辑/发布：翼族*
 
-*翻译/简评: Johnston2021 | 校对: 感恩*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

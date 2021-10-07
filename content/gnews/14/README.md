@@ -2,34 +2,51 @@
 ---
 
 
-## 洛杉矶市议会通过了全面强制疫苗令
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1577996/)
+## 福奇的NIAID资助下的美国研究所帮助培训中共科研人员
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1578101/)
 
-#### 撰稿：Grace
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-31.jpg)图片来源：CBSLA
-据洛杉矶哥伦比亚网站（CBSLA）10月6日报道， 洛杉矶市议会在周三进行了第二次投票，并且以11比2的比例，通过了一项全面的条例。该条例最早可以在一个月后，或在11月6日生效。
+栏目记者/责任编辑：圣母院钟声
 
-**这条法令要求当地居民在进入餐馆、酒吧、购物中心和其他场所时必须有****中共病毒****疫苗接种证明。**
 
-**该条例将适用于：**
 
-– 餐馆、酒吧、快餐店、咖啡店、品酒室、自助餐厅、美食广场、啤酒厂、葡萄酒厂、蒸馏厂的宴会厅和酒店宴会厅。
 
-– 健身房和健身场所，包括娱乐设施、健身工作室（包括瑜伽、普拉提、舞蹈和巴雷）、拳击馆、健身训练营和举办室内团体健身课程的设施。
 
-– 娱乐和休闲场所，包括电影院、购物中心、音乐会场所、表演场所、成人娱乐场所、商业活动和聚会场所、体育场馆、会议中心、展览馆、博物馆、商场、表演艺术剧院、保龄球馆、拱廊、棋牌室、家庭娱乐中心、台球和撞球厅、游戏区和游戏中心。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-– 个人护理机构，包括水疗中心、美甲店、发廊、理发店、日光浴沙龙、美容师、皮肤护理、纹身店、穿孔店和按摩治疗场所，除非有医疗需要。
 
-**但是，零售机构，包括杂货店和药店，不包括在该条例中。**
 
-据报道，**如果有人有限制其接种疫苗能力的医疗条件，或有**** “****真诚的宗教信仰****“****，经过他们试图进入的地点审查后，将可以被豁免于该法令**。被豁免的人将能够使用该地点的室外区域，他们也可以通过提供中共病毒测试阴性的证明而被允许进入室内区域。
 
-根据该条例的规定，参加有5000人或以上的户外活动的人，必须出示其疫苗接种证明或中共病毒测试阴性。
 
-该条例的执法工作在11月29日开始执行。违反该条例的企业将被处以1000美元的罚款，第二次违规将被处以2000美元的罚款，第三次违规将被处以5000美元的罚款。
 
-有人认为洛杉矶市的这条法令将与西好莱坞、纽约和旧金山的政策类似。西好莱坞的政策要求进入许多室内企业的成人顾客提交至少部分疫苗接种的证明，该政策于周四生效，从11月4日开始要求全面接种。
 
-**新闻来源****：**[**Los Angeles City Council approves sweeping COVID vaccine mandate to enter restaurants and shopping centers**](https://www.cbsnews.com/news/covid-vaccine-mandate-los-angeles-restaurants-shopping/)
+据《国家脉动》10月4日报导：一封泄露的福奇博士和国家艾滋病规划署资助的加尔维斯顿国家实验室主任杰姆斯.勒杜克(James LeDuc) 之间的电子邮件被曝光，显示由福奇担任所长的NIAID**（**国家过敏和传染病研究所）资助了加尔维斯顿国家实验室，用那里的生物安全四级（BSL4）实验设施培训来自中共国的科学家， 涉及的有中国农业科学院（哈尔滨生物安全四级实验室）、中国科学院（武汉生物安全四级实验室）和中国医学科学院（昆明生物安全四级实验室）等。这些研究人员与中国冠状病毒的起源有关。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-3.jpg)
+这封2017年的电子邮件显示了由国家艾滋病规划署资助的加尔维斯顿国家实验室如何直接参与在生物安全四级设施培训中国科学家的细节。重要的是，这些设施可以处理通过气溶胶传播的,可导致人类致命的病原体。勒杜克强调了上述中国科研机构如何同意参观加尔维斯顿国家实验室,还提到了加强这种”合作”的重要性，以及由此会见”中国重要领导人”的机会。
+
+显然,中共的蓝金黄早已击中美国顶尖科研机构掌门人, 美国的内鬼帮助中共盗国贼集团获得可以致西方文明于死地的致命武器。在美国这样的法治国家，确着证据面前，叛国者该得到应有的惩罚。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-22.jpg)
+参考链接： 
+[Fauci’s NIAID Funded an American Institute that Helped Train Chinese Researchers from Wuhan Where COVID Is Suspected of Originating](https://www.thegatewaypundit.com/2021/10/faucis-niaid-funded-american-institute-helped-train-chinese-researchers-wuhan-covid-suspected-originating/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+终审： 鬼五
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
