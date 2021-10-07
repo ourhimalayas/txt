@@ -2,9 +2,13 @@
 ---
 
 
-## 疫苗可能造成多种致命疾病，引发潜在的种族灭绝事件
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1578992/)
+## 2021年10月6日 文贵先生盖特 9
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1579197/)
 
-9/29/2021 弗拉德米尔·泽连科医生：这些疫苗具有很强针对性，会引起血栓、心肌炎、流产、癌症，增加患自身免疫性疾病的几率，影响卵巢功能，并且存在抗体依赖性增强的担忧，这可能是潜在的种族灭绝。
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+10/06/2021 Miles Guo’s GETTR: PAG (Hong Kong) mainly connected and deceived the Jewish investors, and further manipulated stock markets by deceiving institutional and individual investors in the West, and when all these are revealed one day, something big will happen inside of the Chinese legal community; various of situations inside of CCP China are all in mess 10/06/2021 文贵盖特：香港太盟投资(PAG)以联络欺骗犹太投资圈为主、哄抬股市、欺骗西方机构投资人和小股东，这个雷爆的时候中国律师界要出大事儿；国内各种形势一塌糊涂
+
+[【2021年10月6日】文贵先生盖特原文](https://gettr.com/post/pde8msb8dd)
+
+**喜联盟Gnews编辑部**

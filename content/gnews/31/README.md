@@ -2,12 +2,9 @@
 ---
 
 
-## 参议员Ed Markey致马克-扎克伯格，国会将会对其公司采取行动
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1578839/)
+## 疫苗不是用来对抗病毒，释放病毒是为了引入疫苗
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1578994/)
 
-- 制作：葛大饼
+9/29/2021 弗拉德米尔·泽连科医生：媒体、学术界操控个人自由选择意识，人们在情感上被错误的解决方案所吸引；疫苗并非用来对抗病毒，但释放病毒是为了引入疫苗。
 
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
