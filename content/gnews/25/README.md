@@ -2,13 +2,13 @@
 ---
 
 
-## 2021年10月7日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1579380/)
+## 2021年10月7日 文贵先生盖特 5
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1579409/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-10月7号：平安银行还需要，大半年时间，才能真正的倒下，因为它涉及的政治太深了，但他最终会倒得，很惨，很惨，很惨！【七哥！平安也开始爆雷啦！ 宁波杭州湾新区的平安银行，刚刚发生的，宁波东部新城的平安银行】
+一名中国警察首次接受CNN采访揭露维吾尔人在新疆所遭受的监禁和虐待 A Chinese policeman who interviewed by CNN first time exposes imprisonment and torture of Uyghurs in Xinjiang
 
-[【2021年10月7日】文贵先生盖特原文](https://gettr.com/post/pdfuws30cc)
+[【2021年10月7日】文贵先生盖特原文](https://gettr.com/post/pdfid26d80)
 
 **喜联盟Gnews编辑部**

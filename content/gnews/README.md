@@ -15,121 +15,121 @@
 
 ---
 
-### [紧随邻国芬兰宣布禁止给年轻人接种莫德纳疫苗](/content/gnews/1/README.md)
+### [恒大危机未解 布林肯敦促北京负责](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
+
+### [[闲聊澳洲]&#8212;&#8212;赵薇董卿，成也男人，败也男人](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [紧随邻国芬兰宣布禁止给年轻人接种莫德纳疫苗](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年10月07日郭先生直播速记](/content/gnews/2/README.md)
+### [2021年10月07日郭先生直播速记](/content/gnews/4/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [美国已将四架B-1B战略轰炸机调往欧洲](/content/gnews/3/README.md)
+### [美国已将四架B-1B战略轰炸机调往欧洲](/content/gnews/5/README.md)
  ` HimalayaRussia`
 
-### [秘翻在线：山西十月出现罕见暴雨 水库泄洪煤矿停产百姓遭殃](/content/gnews/4/README.md)
+### [秘翻在线：山西十月出现罕见暴雨 水库泄洪煤矿停产百姓遭殃](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [《金融时报》称气价下跌与普京的言论有关](/content/gnews/5/README.md)
+### [《金融时报》称气价下跌与普京的言论有关](/content/gnews/7/README.md)
  ` HimalayaRussia`
 
-### [辉瑞吹哨人：辉瑞疫苗技术的维持需要妇女流产](/content/gnews/6/README.md)
+### [辉瑞吹哨人：辉瑞疫苗技术的维持需要妇女流产](/content/gnews/8/README.md)
  ` wenwu`
 
-### [日本正在为可能的中共攻击台湾做“准备”](/content/gnews/7/README.md)
+### [日本正在为可能的中共攻击台湾做“准备”](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [芬兰、瑞典和丹麦宣布停止将Moderna中共病毒疫苗用于年轻男性](/content/gnews/8/README.md)
+### [芬兰、瑞典和丹麦宣布停止将Moderna中共病毒疫苗用于年轻男性](/content/gnews/10/README.md)
  ` 纽约香草山MOS02`
 
-### [俄罗斯外交部称美国在欧洲的核武器已升级](/content/gnews/9/README.md)
+### [俄罗斯外交部称美国在欧洲的核武器已升级](/content/gnews/11/README.md)
  ` HimalayaRussia`
 
-### [郭文贵先生2021年10月3日直播 重点信息整理](/content/gnews/10/README.md)
+### [郭文贵先生2021年10月3日直播 重点信息整理](/content/gnews/12/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [10/7/21 香港快讯 创立半世纪 中大学生会宣布解散：中大人仍在](/content/gnews/11/README.md)
+### [10/7/21 香港快讯 创立半世纪 中大学生会宣布解散：中大人仍在](/content/gnews/13/README.md)
  ` 英喜-粵語組`
 
-### [10/3/2021 七哥直播：中共早就开始实施消灭地球一部分人口的计划](/content/gnews/12/README.md)
+### [10/3/2021 七哥直播：中共早就开始实施消灭地球一部分人口的计划](/content/gnews/14/README.md)
  ` 秘密翻译组-北美组`
 
-### [爆料者郭文贵详细介绍新冠疫苗的危险性](/content/gnews/13/README.md)
+### [爆料者郭文贵详细介绍新冠疫苗的危险性](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年10月7日 文贵先生盖特 11](/content/gnews/14/README.md)
+### [2021年10月7日 文贵先生盖特 11](/content/gnews/16/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [台湾危机迫在眉睫 各方势力角逐海上话语权](/content/gnews/15/README.md)
+### [台湾危机迫在眉睫 各方势力角逐海上话语权](/content/gnews/17/README.md)
  ` 纽约香草山MOS01`
 
-### [2021年10月7日 文贵先生盖特 10](/content/gnews/16/README.md)
+### [2021年10月7日 文贵先生盖特 10](/content/gnews/18/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [大家一起来养猪](/content/gnews/17/README.md)
+### [大家一起来养猪](/content/gnews/19/README.md)
  ` 银河勇气之星`
 
-### [2021年10月7日 文贵先生盖特 9](/content/gnews/18/README.md)
+### [2021年10月7日 文贵先生盖特 9](/content/gnews/20/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年10月7日 文贵先生盖特 8](/content/gnews/19/README.md)
+### [2021年10月7日 文贵先生盖特 8](/content/gnews/21/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [狮城快讯：郭文贵先生提到的为星链提供芯片的公司IPO原来是这家](/content/gnews/20/README.md)
+### [狮城快讯：郭文贵先生提到的为星链提供芯片的公司IPO原来是这家](/content/gnews/22/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [2021年10月7日 文贵先生盖特 7](/content/gnews/21/README.md)
+### [2021年10月7日 文贵先生盖特 7](/content/gnews/23/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年10月7日 文贵先生盖特 6](/content/gnews/22/README.md)
+### [2021年10月7日 文贵先生盖特 6](/content/gnews/24/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年10月7日 文贵先生盖特 5](/content/gnews/23/README.md)
+### [2021年10月7日 文贵先生盖特 5](/content/gnews/25/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [疫苗灾情｜希腊 65 岁男演员接种疫苗后因血栓而中风入院](/content/gnews/24/README.md)
+### [疫苗灾情｜希腊 65 岁男演员接种疫苗后因血栓而中风入院](/content/gnews/26/README.md)
  ` G&#124;News TAIWAN`
 
-### [2021年10月7日 文贵先生盖特 4](/content/gnews/25/README.md)
+### [2021年10月7日 文贵先生盖特 4](/content/gnews/27/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [中共中央地方债15万亿美元，货币增发120万亿美元](/content/gnews/26/README.md)
+### [中共中央地方债15万亿美元，货币增发120万亿美元](/content/gnews/28/README.md)
  ` G-NEWS TAIWAN`
 
-### [DC大中华时事：港公营学校教师获聘须通过《基本法》测试](/content/gnews/27/README.md)
+### [DC大中华时事：港公营学校教师获聘须通过《基本法》测试](/content/gnews/29/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [疫苗通过抑制控制癌症的关键受体，从而引发癌症](/content/gnews/28/README.md)
- ` MG 澳喜农场多语组`
-
-### [隐瞒与中共联络人的长期关系 美国国防承包商受刑事指控](/content/gnews/29/README.md)
+### [隐瞒与中共联络人的长期关系 美国国防承包商受刑事指控](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [新西兰护卫舰加入英国航母编队穿行南海](/content/gnews/30/README.md)
+### [新西兰护卫舰加入英国航母编队穿行南海](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [西媒头条 — 第82期](/content/gnews/31/README.md)
+### [西媒头条 — 第82期](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [布林肯呼吁中共负责任妥善处理恒大危机](/content/gnews/32/README.md)
+### [布林肯呼吁中共负责任妥善处理恒大危机](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [拜登计划的阻挠者](/content/gnews/33/README.md)
+### [拜登计划的阻挠者](/content/gnews/34/README.md)
  ` Shuizhuyu`
 
-### [黑色幽默中疯狂又荒诞的世界！强制疫苗！](/content/gnews/34/README.md)
+### [黑色幽默中疯狂又荒诞的世界！强制疫苗！](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [郭文贵被指控所谓“强迫交易罪”百分之百都是假的](/content/gnews/35/README.md)
+### [郭文贵被指控所谓“强迫交易罪”百分之百都是假的](/content/gnews/36/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中国历史上政法委从来没像现在这么黑暗过](/content/gnews/36/README.md)
+### [中国历史上政法委从来没像现在这么黑暗过](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [郭文贵：傅政华虽有习的保护，但是早晚都会被弄死](/content/gnews/37/README.md)
+### [郭文贵：傅政华虽有习的保护，但是早晚都会被弄死](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [当被要求公开复述他在私下说的中共病毒的自然抗体好于疫苗抗体时，辉瑞公司的科学家跑掉](/content/gnews/38/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [疫苗不是用来对抗病毒，释放病毒是为了引入疫苗](/content/gnews/39/README.md)
+### [当被要求公开复述他在私下说的中共病毒的自然抗体好于疫苗抗体时，辉瑞公司的科学家跑掉](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [中美运输成本暴跌 原因是中国的产量已经停止](/content/gnews/40/README.md)
