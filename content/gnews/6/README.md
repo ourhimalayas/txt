@@ -2,27 +2,31 @@
 ---
 
 
-## 台湾华航女副机师打2剂莫德纳后仍确诊中共病毒
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1579805/)
+## 新冠溯源新证据！中共早在2019年5月已大量采购PCR检测
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579887/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+责任编辑：FoxRina
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-116.png)
+根据澳大利亚网络安全公司 Internet 2.0 的一份报告，在中共首次正式报告新型冠状病毒病例前几个月，政府合同报告显示，2019 年 5 月起武汉地区的PCR 检测采购量激增。
 
-据苹果新闻网10月6日报道，台湾华航一名女副机师在接种完两剂莫德纳后仍感染了中共病毒。属第四位打过疫苗仍感染的机师。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-6.jpeg)
 
-台湾中央流行疫情指挥中心发言人庄人祥表示，这位40多岁女性副机师在8月初接种完第二剂莫德纳，在9月23日至9月26日派飞美国安哥拉市，10月1日、10月2日曾与家人接触，10月3日单日往返新加坡。10月1日PCR快筛呈阴性，10月5日PCR阳性，Ct值33。当日PCR二采，Ct值22，N抗原阴性，S抗体阳性，分析是刚感染。
+数据显示，2019 年湖北省的 PCR 检测花费了约 6740 万元人民币，几乎是 2018 年总数的两倍。月度采购数据显示，2019年5 月份的订单激增，尤其是来自 CDC 采购商和中国人民解放军的订单。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211007211348.png)图片来自于网络
+报告认为，5 月份支出的增加表明这可能是新冠感染的最早开始日期。从 7 月到 10 月，采购量也大幅上升，尤其是来自武汉科技大学的采购量。该机构2019年PCR检测经费892万元，约为上年的8倍。武汉科技大学与当地医院和公共卫生当局一起，在应对新疾病的爆发方面发挥着直接作用。报告评估，这些团体的参与提供了证据，新冠大流行开始的时间比中共向世卫组织通报的时间要早​​得多。
 
-现任卫生福利部疾病管制署副署长罗一钧说，这名机师是首例打2剂莫德纳后遭感染，之前也有3位机师注射2剂AZ疫苗后感染中共病毒。
+(本文仅代表作者观点)
 
-报道称，女机师在居家期间和就读万芳小学的孩子有接触，所幸目前学生并无人确诊。受此影响，就读班级要进行预防性停课。
+参考链接：[China PCR test orders soared before first confirmed COVID case](https://asia.nikkei.com/Spotlight/Coronavirus/China-PCR-test-orders-soared-before-first-confirmed-COVID-case)
 
-*注：本文仅代表作者观点，与 Gnews无关*
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-*参考链接：*
+校正/发稿：谐趣园
 
-[華航女機師遭Delta突破性感染！打2劑莫德納仍高病毒量　女兒2小學停課](https://tw.appledaily.com/life/20211006/WQ4TNFHPNRAMLPSJ3L2VCZBZYE/)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

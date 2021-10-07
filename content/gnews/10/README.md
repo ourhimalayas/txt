@@ -2,37 +2,20 @@
 ---
 
 
-## 共和党领袖麦康奈尔就美国短期债务问题让步
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1579778/)
+## 日美确认岸田文雄领导下两国将密切合作
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1579846/)
 
-**撰稿：日本东京方舟农场 北极**
+俄罗斯莫斯科喀秋莎农场  银河
 
-据金融时报10月7日报道，参议院共和党领袖米奇·麦康奈尔本周三建议短期延长美国债务上限，此举打破了美国政府停摆和国债面临违约的僵局。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/J-1.jpg)diplomaticourier.com
+日本共同社10月7日报道，日美高级外交官在电话会谈中同意加强两国的双边联盟，并在岸田文雄这个星期成为日本新首相后继续为建立一个自由开放的印度洋-太平洋地区而努力。
 
-据报道，麦康奈尔(Mitch McConnell)建议暂时延长债务上限，以便美国国会共和党和民主党重新磋商，力争将美国的举债上限延长至12月。
+日本外相茂木敏充(Toshimitsu Motegi)与美国国务卿安东尼·布林肯(Antony Blinken)在15分钟的对话中确认将继续密切合作。声明称，双方“就包括朝鲜和中共国在内的地区形势以及气候变化合作等广泛问题交换了意见”。茂木敏充将继续在岸田文雄内阁任职。
 
-报道称，参议院共和党为此次危机打开了临时解决方案的大门。部分民主党人士认为此举既避免了迫在眉睫的经济和金融灾难，又可使他们可以重新集中精力谋求通过早前拜登总统提出的巨额国会预算案，一举提高债务上限。
+美国国务院在当天的新闻发布会上表示：“两国确认，美日同盟是印度洋-太平洋地区及周边地区和平、安全、繁荣的基石。”同时两国重申他们致力于通过包括韩国在内的三边合作来解决及实现朝鲜半岛的完全无核化。
 
-据路透社报道，如果国会不能就提高 28.4 万亿美元的债务上限达成共识，美国财政部将无法在 10 月 18 日之前批准联邦政府再借贷或支付开支，届时美国将面临史上首次国债违约风险。这无疑将引发全球的金融地震。
+岸田文雄称，两国外长举行电话会谈之前，两国领导人周二曾通话，美国总统拜登(Joe Biden)在通话中对尖阁列岛(Senkaku Islands，中共国称钓鱼岛)的防卫做出了“强有力的承诺”。岸田文雄表示，双边联盟仍是日本外交政策的基础，他将与包括华盛顿在内的伙伴合作，解决北京方面在周边海域“试图通过武力改变现状”的问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/000126673_piclink.jpg)图片来自于网络
-
-白宫经济顾问委员会(Council of Economic Advisers)在周三发出的警告称，“如果不采取行动，美国复苏可能需要‘几十年’的时间。金融市场将对美国失去信心，美元将走软，股市将下跌”。
-
-金融时报表示，周三的事态发展初步表明，美国国会议员——尤其是共和党人——正在避免美国债务违约。阿拉斯加州共和党参议员丽莎·穆尔科斯基(Lisa Murkowski)当天早些时候表示，她不希望美国“甚至接近”违约，而麦康奈尔的计划“将为我们提供一条走出困境的出路”。
-
-据金融时报分析，任何短期协议都只是将对全球金融市场和美国经济的威胁推迟几个月而已。
-
-此前，共和党议员一直坚称他们不会同意提高债务上限，包括拜登捆绑提出的1.2万亿美元基础设施法案和3.5万亿美元的社会支出计划。
-
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[美国共和党和民主党在解决短期债务上限问题上纠缠不休](https://www.ftchinese.com/interactive/49981?exclusive)
-
-[U.S. Senate rushes to advance $480 billion debt limit increase](https://www.reuters.com/world/us/us-senate-democrats-republicans-haggle-over-short-term-debt-fix-2021-10-07/)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+参考链接：
+[https://english.kyodonews.net/news/2021/10/b102bdd2318a-urgent-top-japan-us-diplomats-agree-to-strengthen-bilateral-alliance.html](https://english.kyodonews.net/news/2021/10/b102bdd2318a-urgent-top-japan-us-diplomats-agree-to-strengthen-bilateral-alliance.html)

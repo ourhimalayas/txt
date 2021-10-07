@@ -2,20 +2,31 @@
 ---
 
 
-## 日美确认岸田文雄领导下两国将密切合作
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1579846/)
+## 中共国正面临经济危机，或已陷入危机之中
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1579936/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+![](https://assets.gnews.org/wp-content/uploads/2021/10/c1_2190995-12.jpg)网络图片
+中共国制造业萎缩的速度快于中共国或媒体所披露的。加上数万亿的企业和地方政府偿付能力问题，该国正面临一场金融危机。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/J-1.jpg)diplomaticourier.com
-日本共同社10月7日报道，日美高级外交官在电话会谈中同意加强两国的双边联盟，并在岸田文雄这个星期成为日本新首相后继续为建立一个自由开放的印度洋-太平洋地区而努力。
+我们已经报道了许多涉及中共国房地产公司最近面临的偿付能力危机。它始于恒大，现在已发现多家负债数十亿的公司存在偿付能力问题。
 
-日本外相茂木敏充(Toshimitsu Motegi)与美国国务卿安东尼·布林肯(Antony Blinken)在15分钟的对话中确认将继续密切合作。声明称，双方“就包括朝鲜和中共国在内的地区形势以及气候变化合作等广泛问题交换了意见”。茂木敏充将继续在岸田文雄内阁任职。
+但可能还有更多其它原因。根据我们最近从中共国内部收到的信息，某些地区的制造业，例如东莞（靠近深圳，在香港对面），已降至每周只工作3天或更少。（这座城市位于珠江三角洲，据报道约有5000万人居住在那里，是地球上人口最多的地方。）
 
-美国国务院在当天的新闻发布会上表示：“两国确认，美日同盟是印度洋-太平洋地区及周边地区和平、安全、繁荣的基石。”同时两国重申他们致力于通过包括韩国在内的三边合作来解决及实现朝鲜半岛的完全无核化。
+一些生产商正在囤积库存或购买耗电量较低的设备，中共国媒体周二报道称，近几周来，31个省级行政区中至少有20个推出了限电措施，给企业和家庭造成了严重影响。
 
-岸田文雄称，两国外长举行电话会谈之前，两国领导人周二曾通话，美国总统拜登(Joe Biden)在通话中对尖阁列岛(Senkaku Islands，中共国称钓鱼岛)的防卫做出了“强有力的承诺”。岸田文雄表示，双边联盟仍是日本外交政策的基础，他将与包括华盛顿在内的伙伴合作，解决北京方面在周边海域“试图通过武力改变现状”的问题。
+蜡烛制造厂是因需求激增而急于满足订单的工厂之一，但随着过去一个月升级的危机恶化，大多数工厂和制造商都面临生产放缓、成本上升和利润下降的问题。
 
-参考链接：
-[https://english.kyodonews.net/news/2021/10/b102bdd2318a-urgent-top-japan-us-diplomats-agree-to-strengthen-bilateral-alliance.html](https://english.kyodonews.net/news/2021/10/b102bdd2318a-urgent-top-japan-us-diplomats-agree-to-strengthen-bilateral-alliance.html)
+中共国正面临经济危机，或已经陷入危机之中，无论如何，这都是一个严重的事态发展。
+
+新闻链接：[https://www.thegatewaypundit.com/2021/10/exclusive-chinese-manufacturers-working-1-day-week-china-faces-economic-crisis/](https://www.thegatewaypundit.com/2021/10/exclusive-chinese-manufacturers-working-1-day-week-china-faces-economic-crisis/)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

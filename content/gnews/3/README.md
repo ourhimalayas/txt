@@ -2,35 +2,36 @@
 ---
 
 
-## DC每日热点1007
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1579837/)
+## 加拿大威胁公务员限制民众 强推毒针注射
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579918/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1CA8D64B-3D52-4812-ACA5-366A5A5478C2-scaled.jpeg)
-道琼斯指数 34782.01 ▲1.06%
-纳斯达克指数 14666.36 ▲1.13%
-WTI纽约原油CFD 76.695 ▼0.95%
-布伦特原油CFD 80.456 ▼0.77%
-标普中概股50指数 3,385.44CNY▼21.8%
-美元兑人民币 1USD=6.444RMB
-美元兑港币 1USD=7.785HKD
-国际黄金 1759.52美元/盎司
-全球CCP病毒感染人数 237,221,331 例
+栏目记者/责任编辑：修文
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-102.png)
+加拿大总理特鲁多10月6日宣布，在10月底前所有公务员必须完整接种新冠毒针疫苗，否则最快将于11月被留职停薪。
 
-1、美国网络安全主管：未来工作重点之一是防范中共国的网络入侵
-2、运作半世纪的香港中大学生会宣布解散 国安法大棒下公民社会继续被摧残
-3、美国承诺捐助世界11亿计疫苗 已发送15%承诺剂量
-4、一名美国防承包商因隐瞒与中共国联络人的关系而受到刑事指控
-5、布林肯与俄罗斯外长讨论恢复伊朗核协议问题
-6、美贸易代表办公室就对中共国产品关税恢复特定关税排除征求公众评论
-7、新西兰护卫舰加入英国航母编队穿行南中国海
-8、沙利文与杨洁篪会谈 提出令美方关切问题 美中原则同意年底前视频峰会
-9、布林肯呼吁北京停止“挑衅”台湾并负责任地处理恒大债务危机
-10、美政府因安全原因暂停向中共国出口核材料
-11、据报道克里姆林宫驻阿富汗特使宣布，俄将邀请塔利班参加10月20日的阿富汗问题国际会谈
-12、蔡英文向法国参议员访问团表示 台湾将确保区域稳定与和平
-13、中共国报告9月末外汇储备3.201万亿美元
-14、谷歌未来5年将在非洲投资10亿美元
-15、台美12大学签备忘录 推动“优华语计划”
-16、港证监会：正研究股票人民币计价的可能性
-17、加拿大政府出台强制性疫苗政策：10月底前联邦公务员须完全接种疫苗，否则被迫休无薪假
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-2.jpeg)
+
+特鲁多上月选举前就提出公务员强制接种计划，已经引发部分民众不满。10月6日他正式宣布执行强制令，以停薪留职威胁联邦政府所有公务员，以及铁路、民航、机构、银行等员工。根据该政策以10月底为期限，要求以上人员完成毒针接种，否则，最快于下月中旬，政府将对未完成任务或没有提交接种证明的员工实行停薪留职，该计划预计将影响27万员工。该计划还包括12岁以上民众，政府试图以限制搭乘公共交通工具来迫使人们屈服。
+
+加拿大民众一直在为自由而战，8月份纽芬兰和拉布拉多的护士联合起来，抗议新冠疫苗强制令和疫苗护照。面对政府各项强制措施，爆料革命战友和觉醒的加拿大民众从未后退，自发向周围的人传播疫苗真相、利益链黑幕，并展示毒针带来的危害。
+
+加拿大政府强制推行接种计划，只会激起更强烈的民众反抗。本周六，抗议者将会和家人一起，在蒙特利尔和其他加拿大城市的街道上，同各国人民一起和平游行，维护个人医疗自主权和人权。
+
+(本文仅代表作者观点)
+
+参考链接：[加拿大強制公務員完整接種疫苗 違者將留職停薪](https://news.ltn.com.tw/news/world/breakingnews/3695989)
+[Nurses denounce anti-vaccine passport protest in St. John’s](https://www.cbc.ca/news/canada/newfoundland-labrador/anti-vaccination-passport-protest-st-johns-1.6173996)
+[Thousands in Canada and France Protest Vaccine Passports](https://www.voanews.com/a/covid-19-pandemic_thousands-canada-and-france-protest-vaccine-passports/6209589.html)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：暗黑
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
