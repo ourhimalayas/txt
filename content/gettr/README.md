@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/7/2021 1:52 PM (UTC)`
+
+11/13/2018 Miles Guo: Fu Zhenghua showing up to “protect” private enterprises is the biggest irony in the world! <br/><br/>11/13/2018 傅政华出来替民营企业护航，简直是天下最大的讽刺！
+![img](https://media.gettr.com/group39/getter/2021/10/07/13/52/f2a6b8a9-3779-4a99-7f07-807bdc66f783/out.jpg)
+
+---
+
+`@miles 10/7/2021 1:47 PM (UTC)`
+
+Project Veritas releases videos series to expose the truth of the CCP Virus vaccine<br/><br/>“真理项目”发布系列视频揭露中共病毒的真相<br/>
+![img](https://media.gettr.com/group10/getter/2021/10/07/13/47/22e3bd4b-6184-1a7e-5383-f738a19801e0/out.jpg)
+
+---
+
 `@miles 10/7/2021 1:38 PM (UTC)`
 
 10月7号：尊敬的战友们好……太多战友给我发信息，要求直播啦，受不了啦，马上开始乱聊直播。
@@ -282,20 +296,6 @@ WOW WOWWOW🙏🙏🙏🙏🔥🔥🔥👇👇👇👇👇👇👇👇👇👇�
 
 10/3/2021 Miles Guo: None of the CCP’s 4.6 million people in the public security bureaus, procuratorates, and courts dares to challenge Fu Zhenghua! Fu Zhenghua sent to Canada the third oldest brother of his family, who threatened to kill my family and colleagues if I kept recording audios or talking about Fu. To protect the safety of my family and colleagues, I didn’t talk about Fu Zhenghua in the past year.<br/><br/>10/3/2021 七哥直播：中共460万公检法队伍竟无一人敢挑战傅政华！傅政华派他们家傅老三来加拿大来威胁文贵，称如果我再录音，再说傅政华，就将杀害我的家人和同事！为了家人和同事的安全，文贵过去一年都没有谈过傅政华<br/>
 ![img](https://media.gettr.com/group16/getter/2021/10/04/00/48/862c10e1-7556-4016-bf27-f075915510ac/out.jpg)
-
----
-
-`@miles 10/3/2021 11:50 PM (UTC)`
-
-10月3号：😡😡😡这么多装尸袋是准备干什么！October 3rd: What are you going to do with so many body bags?
-![img](https://media.gettr.com/group47/getter/2021/10/03/23/49/1d979e4e-6846-cbf6-5d07-350ebbdbc9c8/out.jpg)
-
----
-
-`@miles 10/3/2021 11:39 PM (UTC)`
-
-10月3号：这是真的吗？【美国陆军医生和航空航天医学专家特蕾莎·朗向五角大楼发出了前所未有的呼吁，要求所有接种COVID-19疫苗的飞行员都必须停飞。 任何人都不能排除因心脏病发作而突然发生飞行事故的可能性。推特文摘】
-![img](https://media.gettr.com/group41/getter/2021/10/03/23/39/3f38d319-e163-8dbd-3c87-edd3542c8fd2/67b360381a685ca192382bcf571022c5.jpg)
 
 ---
 
