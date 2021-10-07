@@ -2,35 +2,49 @@
 ---
 
 
-## 中共国地方政府&#8221;隐性&#8221;债务估计为8万亿美元，占中国GDP的近一半
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1577814/)
+## 北京冬奥会强行组织会前测试赛
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1577940/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/China-Travel-600x337-1.jpg)图片：来自网络
-不仅投资中共国房地产市场的公司面临偿付能力问题，而且中共国地方政府也面临巨额债务。我们现在也知道，中共国地方政府有数万亿美元的债务，这些债务并没有计入他们的账簿。
-
-高盛的经济学家表示，中国隐性地方政府债务已膨胀至经济规模的一半以上。由于土地销售放缓，收入已经面临压力，中国政府需要灵活应对。
-
-经济学家们在一份报告中写道，截至去年年底，地方政府融资平台的总债务从2013年的16万亿元增至约53万 亿元（合8.2万 亿美元）。这相当于国内生产总值（GDP）的52%左右，比官方未偿还政府债务还多。
-
-地方政府融资平台是政府可让贷款不出现在资产负债表上的借钱工具，但金融市场将其视为政府负债。
-
-考虑到GDP，中国地方隐性债务是美国地方债务的四倍，这一事实令人吃惊。
-
-**简评：**
-
-这篇文章揭示中共国的债务越来越多，地方政府面临巨额债务，郭先生给出了准确分析，地方债，隐形债，影子银行，华尔街勾结中共，压上了养老保险，退伍军人保险，因此引起一系列全世界对华人的攻击，最担心导致新的排华事件发生，这些真实的声音最早也是及时提醒发布，爆料革命一直在披荆斩棘，传播真实的声音，过去的无知总要付出代价的！
-
-[原文链接](https://www.thegatewaypundit.com/2021/10/chinas-local-governments-hidden-debts-estimated-8-trillion-nearly-half-countrys-gdp/?ff_source=Twitter&amp;ff_medium=PostTopSharingButtons&amp;ff_campaign=websitesharingbuttons)
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*翻译/简评: Johnston2021 | 校对: 感恩*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山农场 – 在远方
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+
+
+
+10月4日，北京冬奥会组委会宣布，从10月5日起至12月31日，北京冬奥会将在北京、延庆和张家口三个赛区举办会前测试赛。至于没有接种疫苗的与会人员，包括比赛选手，都必须在抵达北京后进行21天的强制隔离，然后才能进入封闭的赛会园区。
+
+![](https://s.rfi.fr/media/display/17d7442a-2558-11ec-93f1-005056a97e36/w:1280/p:16x9/1455914-le-centre-national-de-saut-a-ski-chinois-a-zhangjiakou-le-14-juillet-2021.webp)图片来源：AFP
+
+据估计，近期将有2000多名境外运动员、随队官员、国际技术官员以及计时和记分的专业人员陆续抵达北京，参加各项为测试冬奥会场馆而举行的国际赛事。对此，中共官员称，疫情防控将成为测试赛的“重中之重”，并表示“防疫压力很大”。
+
+此前，中共发出声明表示，本届冬奥会将仅向国内观众售票。事实上，正是由于中共研制并释放了新冠病毒，才导致冬奥会将在如此极端的条件下举办。目前，CCP病毒已经杀害了全世界455万无辜百姓的生命，并造成了约2.19亿人感染。
+
+而今，共产党一边放毒，一边假装“严格防疫”地举办冬奥会，充分暴露了中共残忍邪恶、阴险狡诈的本质。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+[北京开始举办冬奥会前测试赛](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211004-%E5%8C%97%E4%BA%AC%E5%BC%80%E5%A7%8B%E4%B8%BE%E5%8A%9E%E5%86%AC%E5%A5%A5%E4%BC%9A%E5%89%8D%E6%B5%8B%E8%AF%95%E8%B5%9B)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)

@@ -2,32 +2,143 @@
 ---
 
 
-## 沙利文和杨洁篪在苏黎世会晤
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1577682/)
+## 脸书已经意识到，人们会点击更少的广告，他们会赚更少的钱
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1577763/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2021/10/31-a5voy-uulo6.jpg)
+[https://gtv.org/video/id=615ddeb7d2e2b81748720494](https://gtv.org/video/id=615ddeb7d2e2b81748720494)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/jake-sullivan-am-6-oktober-in.jpg)
+**Frances Haugen (Facebook Whistleblower)
+弗朗西斯·豪根（脸书吹哨人）**
 
+I never wanted anyone to feel the pain that I felt,
+我从不希望任何人感受到我所感受到的痛苦
 
-资料来源：FAZ
+and I’d seen how high the stakes were in terms of making sure
+而且我已经看到在为了保证方面的风险有多大
 
-美国安全顾问杰克沙利文和中国最高外交政策官员杨洁篪在苏黎世会晤。尽管紧张局势日益加剧，但他们仍想继续对话。鉴于美中关系日益紧张，乔拜登总统的国家安全顾问杰克沙利文和北京最高级别的外国政治家杨洁篪周三在苏黎世会面。白宫表示，此次会晤是为了跟进拜登9月初与习近平主席的通话，寻求两国之间负责任的竞争。
+there was high quality information on Facebook
+脸书上有高质量的信息
 
-在七个月以来的第一次电话交谈中，两位总统强调了确保竞争不会导致冲突的必要性。
+Scott Pelley (CBS 60 minutes host)
+斯科特·佩利 (CBS 60分钟节目主持人）
 
-在苏黎世的会议结束后，沙利文宣布他已向华盛顿提出了一些关注点。其中包括人权、新疆、香港和台湾以及南海的局势。沙利文明确表示，华盛顿将继续加强自身国力， 并与其盟友密切合作，但也会继续与中国进行谈判，以确保负责任的竞争。
+At headquarters, she was assigned to civic integrity,
+在(脸书)总部，她被分配到公民诚信部
 
-沙利文提到了中共国最近在台湾的“挑衅性军事活动”，中共国军方多次通过允许飞机进入台北的防空识别区来挑战台湾的防空系统。华盛顿立即谴责北京的“挑衅性军事活动”。中共国官员在会前告诉《南华早报》，杨洁篪和杰克·沙利文谈话的目的是打开沟通渠道，讨论习近平和乔·拜登会面的可能性。与最初计划的显然相反，在罗马的 G20 峰会上举行，习近平只会通过视频切换参与。中共国外交部表示，杨洁篪与沙利文的会晤是在习近平与拜登9月通话期间安排的。
+which worked on risks to elections including misinformation.
+致力于解决选举风险，包括错误信息
 
-与他们三月份在阿拉斯加的首次会面不同，这两位外国政客这次对公开摊牌并不感兴趣。当时，杨洁篪曾雄辩地表示，美国不应站在实力地位与中国对话。这一次，北京决定用谨慎的语气。
+But after this past election, there was a turning point
+但在这次结束的选举之后，出现了一个转折点
 
-同时他们也提到了孟晚舟被释放， 中方媒体强调，最近中共国在与美国的关系上取得了重要的胜利。美国司法部已放弃向加拿大提出引渡华为经理孟晚舟的申请，之后她在软禁三年后得以返回中国。释放孟晚舟是中共国向外交部副部长温迪·谢尔曼提出的要求清单的一部分。
+Frances Haugen
+弗朗西丝·豪根
 
-但是在中方媒体没有提到的是， 孟已经书面承认她提供了有关其公司伊朗业务的虚假信息。官方媒体还试图将苏黎世会议视为中国正在履行其作为一个大国的责任的证据。评估表示，经过一个阶段的示范对抗后，拜登现在采取了对话的方式。
+They told us weren’t dissolving civic integrity.
+他们告诉我们并没有解散公民诚信部
 
-[https://www.faz.net/aktuell/politik/ausland/china-und-die-usa-jake-sullivan-und-yang-jiechi-reden-in-zuerich-17572628.html](https://www.faz.net/aktuell/politik/ausland/china-und-die-usa-jake-sullivan-und-yang-jiechi-reden-in-zuerich-17572628.html)
+They basically said okay we made it through the election,
+他们基本上说，好的，我们完成了选举
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+there wasn’t riots, we can get rid of civic integrity now
+没有骚乱，我们现在可以取消公民诚信部了
 
-责任编辑/校对/发布： Shuizhuyu
+fast forward a couple months we got the insurrection.
+快进几个月我们有了暴动
+
+And when they got rid of civic integrity.
+当他们取消公民诚信部
+
+It’s a moment where I was like, I don’t trust that they’re will-ing to actually invest
+那一刻我就像，我不相信他们愿意真正投资需要投资的东西
+
+what needs to be invested to keep Facebook from being dangerous
+来让脸书远离危险
+
+Scott Pelley
+斯科特·佩利
+
+Facebook says the work of civic integrity was distributed to oth-er units
+脸书表示公民诚信工作已分发给其他单位
+
+Haugen told us the root of Facebook’s problem is in the change
+豪根告诉我们，脸书问题的根源在于
+
+that it made in 2018 to its algorithms that programming that de-cides
+它在 2018 年对其算法所做出的改变
+
+what you see on your Facebook newsfeed.
+即决定你在脸书新闻推送上看到的内容
+
+Frances Haugen
+弗朗西丝·豪根
+
+So, you know, you have your phone, you might see only 100 pieces of content.
+所以，你知道，你用你的手机，你可能只能看到 100 条内容
+
+If you sit and scroll, for, you know, five minutes,
+如果你坐下来滚动你的手机五分钟，你知道，
+
+but Facebook has 1000s of options that can show you
+但是脸书有1000多个选项可以向你展示
+
+Scott Pelley
+斯科特·佩利
+
+the algorithm picks from those options based on the kind of con-tent
+该算法根据你过去参与最多的内容种类
+
+you’ve engaged with the most in the past.
+从这些选项中挑选
+
+Frances Haugen
+弗朗西丝·豪根
+
+And one of the consequences of how Facebook is picking out that content today,
+以及脸书今天如何挑选这些内容的后果之一
+
+is they’re just optimizing for content that gets engagement, or reaction,
+就是他们是否只是针对吸引人的参与或反应的内容进行优化
+
+but its own research is showing that content that is hateful that is divisive, that is polarizing.
+但它自己的研究表明，仇恨的内容是分裂的，是两极分化的
+
+It’s easier to inspire people to anger is to other emotions,
+激发人们的愤怒比激发其他情绪更容易
+
+Scott Pelley
+斯科特·佩利
+
+misinformation angry content is enticing to people
+错误信息、愤怒的内容对人们很有吸引力
+
+and keep keeps them on the platform.
+并将人们继续停留在平台上
+
+Frances Haugen
+弗朗西丝·豪根
+
+Yes, Facebook has realized that if they change the algorithm to be safer,
+是的，脸书已经意识到，如果他们改变算法以提高安全性
+
+people will spend less time on site,
+人们在平台上会花更少的时间
+
+they’ll click on less ads, they’ll make less money.
+人们会点击更少的广告，脸书赚的钱也会更少
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接: **[https://youtube.com/watch?v=\_Lx5VmAdZSI](https://youtube.com/watch?v=_Lx5VmAdZSI)
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

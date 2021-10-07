@@ -2,49 +2,51 @@
 ---
 
 
-## 欧盟药品管理局建议将深部静脉血栓列入强生疫苗的副作用
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1577982/)
+## 最新研究发现：接种疫苗会增加感染病毒及住院风险
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1578058/)
 
-作者：纽约香草山农场 – 云豹
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+栏目记者/责任编辑：圣母院钟声
 
 
 
-10月1日，欧盟药品管理局建议，将深部静脉血栓列入强生新冠疫苗的副作用，以提醒大众注意。
 
-![](https://imgcdn.cna.com.tw/www/WebPhotos/800/20211002/1470x980_48321000239.jpg)图片来源：Unsplash
 
-据悉，强生与阿斯利康药厂所生产的新冠疫苗均采用无害病毒做为载体。先前，阿斯利康新冠疫苗就已经被认定，其与疫苗接种者发生的深层静脉血栓有关，相关机构曾依此发布过警示。此次，欧盟药品管理局再度建议，将强生新冠疫苗列入到相同的副作用警示中。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-除了深层静脉血栓外，欧盟药品管理局也同时建议，将免疫性血小板减少症列入强生与阿斯利康新冠疫苗的不良反应资讯中。
 
-事实上，随着越来越多的相关病例被爆出，新冠疫苗的副作用已逐渐被世界各地的民众及政府发觉、证实。 最终，世人一定会认清新冠病毒及疫苗的真相，并向中共这个罪魁祸首追责。
+
+
+
+
+
+最新一期《新英格兰医学杂志》发表了有41,000多个样本的号称“新冠疫苗在门诊和住院环境中的有效性研究”，立即被疾病控制中心（CDC）视为推荐疫苗的宣传性广告作品。 可是在有心人进一步研究文章数据后发现：为了提高所谓的”疫苗疗效”，该研究省略了最近接种疫苗者的住院人数，所以研究结论具有欺骗性。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-1.jpg)
+令人震惊的是：接种疫苗后的第一周，1872名接种疫苗者被病毒感染而住院的人数被故意遗漏，而大多数不良事件和住院发生偏偏在这第一周。这项研究通过人工减少接种疫苗群体感染病毒的总数，和调控病毒核酸检测，来放大未接种者的感染率，最终提高疫苗的疗效百分比。由此人为创造了所谓的“疫苗功效”。CDC原本想利用诊断欺诈和失真的数据来欺骗公众，没成想被抓包。在调整了接种疫苗后的真实患病率后，疫苗疗效其实为-13%！显而易见，接种疫苗会增加住院风险，即增加了患重症的可能性。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-32.jpg)
+美国政府医疗管理机构CDC，FDA等在这场新冠疫情中一直扮演着误导公众的角色，以科学的名义干着伪科学的勾当。随着越来越多的数据造假被揭露，其遮羞面纱已被撕下。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1.2-1.jpg)
+参考链接：
+[New study on 41,000 people reveals that taking vaccines INCREASES a person’s risk of hospitalization](https://newstarget.com/2021-10-04-study-reveals-taking-vaccines-increases-hospitalization-risk.html)
 
 （本文仅代表作者观点）
 
-参考阅读：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-[嬌生疫苗副作用 歐盟建議列入深部靜脈血栓](https://www.cna.com.tw/news/aopl/202110020072.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-***编辑/校对/发稿：Irene木木***
+终审： Ryan
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

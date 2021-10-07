@@ -2,49 +2,25 @@
 ---
 
 
-## 北京冬奥会强行组织会前测试赛
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1577940/)
+## 新西兰护卫舰加入英国航母编队穿行南中国海
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1578008/)
 
-作者：纽约香草山农场 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16335696571.png)资料照片：菲律宾海军乐队欢迎来访马尼拉大都会的新西兰海军“特卡哈”号护卫舰。(2017年4月4日)
+新西兰皇家海军10月6日宣布，“特卡哈”号导弹护卫舰加入了英国航母打击群，穿行南中国海前去参加 “2021五国金禧演习”。并且在印太地区与包括美国海军航母“卡尔·文森”号和“罗纳德·里根”号在内的来自日本、荷兰、加拿大和美国的军舰进行军事演习和训练活动。
 
+“2021五国金禧演习”为庆祝“五国联防”(FPDA)签署50周年。演习将在新加坡和马来西亚半岛附近海域举行。“五国联防”成员包括澳大利亚、英国、新加坡、马来西亚和新西兰。
 
+新闻参考链接：[https://www.voachinese.com/a/new-zealand-warship-joins-uk-carrier-group-on-transit-of-south-china-sea-20211006/6260154.html](https://www.voachinese.com/a/new-zealand-warship-joins-uk-carrier-group-on-transit-of-south-china-sea-20211006/6260154.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+编辑：胖丁
 
+* * *
 
-
-10月4日，北京冬奥会组委会宣布，从10月5日起至12月31日，北京冬奥会将在北京、延庆和张家口三个赛区举办会前测试赛。至于没有接种疫苗的与会人员，包括比赛选手，都必须在抵达北京后进行21天的强制隔离，然后才能进入封闭的赛会园区。
-
-![](https://s.rfi.fr/media/display/17d7442a-2558-11ec-93f1-005056a97e36/w:1280/p:16x9/1455914-le-centre-national-de-saut-a-ski-chinois-a-zhangjiakou-le-14-juillet-2021.webp)图片来源：AFP
-
-据估计，近期将有2000多名境外运动员、随队官员、国际技术官员以及计时和记分的专业人员陆续抵达北京，参加各项为测试冬奥会场馆而举行的国际赛事。对此，中共官员称，疫情防控将成为测试赛的“重中之重”，并表示“防疫压力很大”。
-
-此前，中共发出声明表示，本届冬奥会将仅向国内观众售票。事实上，正是由于中共研制并释放了新冠病毒，才导致冬奥会将在如此极端的条件下举办。目前，CCP病毒已经杀害了全世界455万无辜百姓的生命，并造成了约2.19亿人感染。
-
-而今，共产党一边放毒，一边假装“严格防疫”地举办冬奥会，充分暴露了中共残忍邪恶、阴险狡诈的本质。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-[北京开始举办冬奥会前测试赛](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211004-%E5%8C%97%E4%BA%AC%E5%BC%80%E5%A7%8B%E4%B8%BE%E5%8A%9E%E5%86%AC%E5%A5%A5%E4%BC%9A%E5%89%8D%E6%B5%8B%E8%AF%95%E8%B5%9B)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
