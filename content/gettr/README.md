@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/7/2021 2:21 PM (UTC)`
+
+Sep 7th,2017, Miles Guo revealed that even though Fu Zhenghua was under protection of Xi Jinping, he will be killed sooner or later as he knew too much hidden dirt of Wang Qishan, Meng Jianzhu and Sun Lijun<br/><br/>2017年9月7日文贵爆料恶人傅政华虽然有习的保护，但是早晚都会被弄死，因为他知道的王孟孙的黑材料太多了
+![img](https://media.gettr.com/group6/getter/2021/10/07/14/21/014e2aba-746b-b213-e5b0-396f7fc7ba99/out.jpg)
+
+---
+
 `@miles 10/7/2021 1:52 PM (UTC)`
 
 11/13/2018 Miles Guo: Fu Zhenghua showing up to “protect” private enterprises is the biggest irony in the world! <br/><br/>11/13/2018 傅政华出来替民营企业护航，简直是天下最大的讽刺！
@@ -289,13 +296,6 @@ WOW WOWWOW🙏🙏🙏🙏🔥🔥🔥👇👇👇👇👇👇👇👇👇👇�
 `@miles 10/4/2021 1:13 AM (UTC)`
 
 10月3号：疫苗灭共．疫苗灭黑暗势力，这速度怎么样？【辉瑞前员工报告 FDA 研究并警告辉瑞的疫苗使 COVID-19病例增加 300% 以上<br/><br/>https://www.lifesitenews.com/news/if-you-get-the-pfizer-vax-youre-more-likely-to-get-covid-insider-leaks-fda-study/】
-
----
-
-`@miles 10/4/2021 12:48 AM (UTC)`
-
-10/3/2021 Miles Guo: None of the CCP’s 4.6 million people in the public security bureaus, procuratorates, and courts dares to challenge Fu Zhenghua! Fu Zhenghua sent to Canada the third oldest brother of his family, who threatened to kill my family and colleagues if I kept recording audios or talking about Fu. To protect the safety of my family and colleagues, I didn’t talk about Fu Zhenghua in the past year.<br/><br/>10/3/2021 七哥直播：中共460万公检法队伍竟无一人敢挑战傅政华！傅政华派他们家傅老三来加拿大来威胁文贵，称如果我再录音，再说傅政华，就将杀害我的家人和同事！为了家人和同事的安全，文贵过去一年都没有谈过傅政华<br/>
-![img](https://media.gettr.com/group16/getter/2021/10/04/00/48/862c10e1-7556-4016-bf27-f075915510ac/out.jpg)
 
 ---
 
