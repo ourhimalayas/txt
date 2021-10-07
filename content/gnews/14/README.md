@@ -2,47 +2,35 @@
 ---
 
 
-## 中共国的“一带一路”倡议面临越来越多参与国的反对
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1577795/)
+## 中共国地方政府&#8221;隐性&#8221;债务估计为8万亿美元，占中国GDP的近一半
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1577814/)
 
-作者：纽约香草山农场 – 四季
+![](https://assets.gnews.org/wp-content/uploads/2021/10/China-Travel-600x337-1.jpg)图片：来自网络
+不仅投资中共国房地产市场的公司面临偿付能力问题，而且中共国地方政府也面临巨额债务。我们现在也知道，中共国地方政府有数万亿美元的债务，这些债务并没有计入他们的账簿。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+高盛的经济学家表示，中国隐性地方政府债务已膨胀至经济规模的一半以上。由于土地销售放缓，收入已经面临压力，中国政府需要灵活应对。
 
+经济学家们在一份报告中写道，截至去年年底，地方政府融资平台的总债务从2013年的16万亿元增至约53万 亿元（合8.2万 亿美元）。这相当于国内生产总值（GDP）的52%左右，比官方未偿还政府债务还多。
 
+地方政府融资平台是政府可让贷款不出现在资产负债表上的借钱工具，但金融市场将其视为政府负债。
 
+考虑到GDP，中国地方隐性债务是美国地方债务的四倍，这一事实令人吃惊。
 
+**简评：**
 
-据[零对冲](https://www.zerohedge.com/geopolitical/chinas-belt-and-road-faces-growing-opposition-participating-countries-debts-mount)10月5日报道，威廉和玛丽全球研究所研究实验室AidData最近的一项研究显示，由于参与国与中共国项目有关的债务不断增加，中共国的“一带一路”倡议正面临着参与国越来越多的反对。根据AidData的报告，42个低收入和中等收入国家对中共国的公共债务风险超过其国内生产总值（GDP）的10%。
+这篇文章揭示中共国的债务越来越多，地方政府面临巨额债务，郭先生给出了准确分析，地方债，隐形债，影子银行，华尔街勾结中共，压上了养老保险，退伍军人保险，因此引起一系列全世界对华人的攻击，最担心导致新的排华事件发生，这些真实的声音最早也是及时提醒发布，爆料革命一直在披荆斩棘，传播真实的声音，过去的无知总要付出代价的！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1159-1.jpg)图片来源：零对冲
+[原文链接](https://www.thegatewaypundit.com/2021/10/chinas-local-governments-hidden-debts-estimated-8-trillion-nearly-half-countrys-gdp/?ff_source=Twitter&amp;ff_medium=PostTopSharingButtons&amp;ff_campaign=websitesharingbuttons)
 
-作为中国共产党全球扩张和债务陷阱外交的工具，“一带一路”向发展中国家提供用于建设基础设施的巨额贷款。参见项目包括开发道路、港口、发电厂、矿山、电信或银行机构。这些往往无法偿还的贷款将迫使这些国家用货物或土地来偿还中共国。
+***编辑：【英国伦敦喜庄园编辑部】***
 
-该研究分析了过去18年来中国在超过165个国家支持的13427个项目，这些项目的总价值达到了8430亿美元。其中，35%的“一带一路”项目涉及执行问题，如腐败丑闻、违反劳工法、环境危害和公众抗议。
+*翻译/简评: Johnston2021 | 校对: 感恩*
 
-近年来，参与国也出现了许多暂停和取消的情况。越来越多的中低收入国家的政策制定者因为项目定价过高、腐败和债务可持续性问题而放弃参与。
-
-这些参与国都希望通过这些项目发展经济，但是太多的例证显示，非但没有使国家变得繁荣，反而深陷债务危机，在政治经济上被中共所控制。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
-
-编辑/校对/发稿：小鹿
-
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-**更多资讯，更多关注**
+编辑：【英国伦敦喜庄园编辑部】
 
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

@@ -2,25 +2,21 @@
 ---
 
 
-## 疫苗/病毒 要證據
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1577809/)
+## 香港证监会：正在研究与推动香港证券交易以人民币计价
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1577843/)
 
-作者：溫哥華英里農場
-視頻來源與2021-10-03郭文貴的直播截取點4:35
-1. 病毒是哪裏來的？
-2. 爲什麽全世界的政府不查病毒的來源？讓人們打疫苗？
-3. 疫苗治病防病毒是否有證據證明？
-4. 打疫苗防什麽？防的冠狀病毒嗎？政府敢這麽寫嗎？爲什麽不敢？
-5. 疫苗有沒有副作用？有什麽證據證明？
-6. 接種疫苗是否會致癌？沒有證據證明爲什麽鼓勵人們接種？
-7. 政府打疫苗預防傳染，防止病毒有依據嗎？
-8. 我反疫苗你要證據，你讓我打疫苗你有證據嗎？
-9. 你有想過這個邏輯嗎？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/519891390197403648013284.jpg)香港证监会：正在研究与推动香港证券交易以人民币计价 网络图片
+据法国国际广播电台10月6日报道，香港特首林郑月娥今日发表其任内最后一次《施政报告》，提到将进一步扩大跨境人民币资金双向流通管道、离岸人民币产品和工具发展，包括研究提升发行及交易人民币证券需求、容许“港股通”南向交易的股票以人民币计价等措施。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-**關注我們**
+香港证监会表示欢迎并全力支持《施政报告》提出的措施，证监会正在和香港金融管理局、香港联合交易所组成工作小组，就推动在香港买卖人民币计价证券方面，进行可行性研究；证监会将与大陆有关部门，共同探讨将人民币柜台，纳入股票市场交易“互联互通”机制下的港股通之内。并将此举美其名曰——是为了提升香港的国际金融中心地位而采取的措施。
 
-Discord 賬號
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-Gettr 賬號
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+阅读新闻原文：[https://t.co/ylS0yb2kMC?amp=1](https://t.co/ylS0yb2kMC?amp=1)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

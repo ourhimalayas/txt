@@ -2,55 +2,141 @@
 ---
 
 
-## NIH宣布，该机构主任弗朗西斯·柯林斯将于年底前卸任
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1577728/)
+## 脸书已经意识到，人们会点击更少的广告，他们会赚更少的钱
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1577763/)
 
-**【简评】 对人类基因组项目感兴趣的战友对柯林斯都不会陌生，2021年前，美国总统比尔·克林顿（Bill Clinton），塞莱拉基因组公司CEO克雷格·文特尔（Craig Venter）和人类基因组计划负责人弗朗西斯·柯林斯（Francis Collins）共同宣布了一项可以说是现代人类历史上最伟大的事件之一：绘制完成了首个人类基因组草图。柯林斯在生物科学领域具有突出贡献，然而其支持中共病毒疫苗接种以及将美国纳税人的钱资助中共制造生化武器这两点，就让人对他的好感大打折扣。尤其他从无神论者转变为信仰上帝，并且主张“上帝将中共病毒疫苗带到人间拯救人类”，我认为这位老者真是走火入魔了，病的不轻啊。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/31-a5voy-uulo6.jpg)
+[https://gtv.org/video/id=615ddeb7d2e2b81748720494](https://gtv.org/video/id=615ddeb7d2e2b81748720494)
 
-**据《政客》记者：MEGAN WILSON，SARAH OWERMOHLE，ERIN BANCO，2021年10月4日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/a71ie-wzywl-2.jpg)NIH 主任弗朗西斯·柯林斯。图片来源：美联社/Sarah Silbige
-美国国家卫生研究院(National Institutes of Health，简称NIH)周二宣布，该机构主任弗朗西斯·柯林斯(Francis Collins)计划在今年年底前卸任。他在该机构工作了近30年，其中包括执掌该机构的12年。
+**Frances Haugen (Facebook Whistleblower)
+弗朗西斯·豪根（脸书吹哨人）**
 
-作为NIH主任，这位71岁的医生兼遗传学家的任期横跨美国三任总统，这使他成为首位在多届政府任职的总统任命的NIH主任，也是任职时间最长的NIH主任。
+I never wanted anyone to feel the pain that I felt,
+我从不希望任何人感受到我所感受到的痛苦
 
-《政客》周一晚间最先报道了他的离职消息。一位知情人士说，他的离职计划已经酝酿了一段时间。
+and I’d seen how high the stakes were in terms of making sure
+而且我已经看到在为了保证方面的风险有多大
 
-柯林斯在一份声明中说：“我从根本上相信……任何人都不应该在这个职位上任职太久，现在是时候引进一位新科学家来领导 NIH 走向未来了。”
+there was high quality information on Facebook
+脸书上有高质量的信息
 
-在中共冠状病毒大流行期间，柯林斯一直在前线敦促美国人戴口罩并接种疫苗。虽然美国顶级传染病专家、乔·拜登总统的首席医疗顾问安东尼·福奇(Anthony Fauci)成为政府疫苗接种工作最引人注目的倡导者，但拜登政府越来越多地让柯林斯参加网络节目，以敦促接种疫苗并捍卫疫苗加强针战略。
+Scott Pelley (CBS 60 minutes host)
+斯科特·佩利 (CBS 60分钟节目主持人）
 
-尽管拜登政府承诺将于9月20日大规模推出疫苗加强针，但美国食品和药物管理局(Food and Drug Administration)上个月底决定暂时将疫苗加强针限制在某些弱势群体，柯林斯回应说，“这是它应该的方式。”他在哥伦比亚广播公司(CBS)的《面对国家》(Face the Nation)节目中说:“科学是以一种非常透明的方式发挥作用的，观察来自多个地方，包括我们的国家和其他国家的数据，并尝试做出目前最好的决定。”
+At headquarters, she was assigned to civic integrity,
+在(脸书)总部，她被分配到公民诚信部
 
-在柯林斯的12年任期里，NIH的预算增长了38%，从2009年的300亿美元增长到2021年的413亿美元。柯林斯提出了一系列雄心勃勃的措施，旨在解决紧迫的健康问题，包括阿尔茨海默病、癌症、鸦片类药物使用紊乱、罕见疾病和冠状病毒大流行。
+which worked on risks to elections including misinformation.
+致力于解决选举风险，包括错误信息
 
-美国总统乔·拜登在周二的一份声明中称柯林斯是“我们这个时代最重要的科学家之一。”并补充说，在中共病毒疫情威胁期间，他是第一批被要求留任的政府官员之一。 “我很感激他响应了号召，尽管这意味着他比 NIH 的历任主任都要工作更久。今天，我理解他在今年年底辞去职位的决定，他的任期令人难以置信，影响深远。”
+But after this past election, there was a turning point
+但在这次结束的选举之后，出现了一个转折点
 
-斯克里普斯研究转化研究所的创始人兼主任埃里克·托波尔(Eric Topol)赞扬了柯林斯对生物医学科学的贡献，他在Twitter上写道:“看到他即将卸任，我很难过，想对他几十年来的领导表示最深切的感谢。”
+Frances Haugen
+弗朗西丝·豪根
 
-柯林斯将继续领导他在NIH的研究实验室，该实验室正在研究II型糖尿病的基础，并开发一种名为Hutchinson-Gilford早衰症的新型基因疗法。
+They told us weren’t dissolving civic integrity.
+他们告诉我们并没有解散公民诚信部
 
-柯林斯在谢南多厄河谷的一个农场长大，在完成弗吉尼亚大学化学本科和耶鲁大学研究生学习后，他对新兴的遗传学领域产生了浓厚的兴趣。之后就读于北卡罗来纳大学教堂山分校的医学院，然后在耶鲁大学和密歇根大学任职，并最终鉴定了囊性纤维化和其他疾病的相关基因。
+They basically said okay we made it through the election,
+他们基本上说，好的，我们完成了选举
 
-柯林斯详细讲述了他从无神论到基督教徒的转变，并在2006年写了一本书，名为《上帝的语言:一位科学家提出信仰的证据》。一年后，他成立了BioLogos基金会，该组织旨在调和宗教和科学，并主张上帝通过进化创造了世界。
+there wasn’t riots, we can get rid of civic integrity now
+没有骚乱，我们现在可以取消公民诚信部了
 
-2009年，奥巴马总统任命他为国立卫生研究院院长后，他离开了该BioLogos基金会，并在参议院一致通过后宣誓就职。
+fast forward a couple months we got the insurrection.
+快进几个月我们有了暴动
 
-在任职期间，柯林斯曾激发了反堕胎组织的愤怒，这些组织反对他支持在医学研究中使用胎儿组织，但此举没有影响到他的政治生涯。作为在国会山非常受欢迎的人物，柯林斯还在他的职业生涯中努力接触宗教团体，在 Covid-19 大流行期间一直如此。
+And when they got rid of civic integrity.
+当他们取消公民诚信部
 
-“对于一个有信仰的人来说，这就是对祈祷的回应。”他上个月在谈到冠状病毒疫苗时告诉《宗教新闻服务》 (Religion News Service)。 “如果我们都在向上帝祈祷，希望上帝能以某种方式把我们从这场可怕的流行病中拯救出来，而这些安全有效疫苗被研制出来，那么，你为什么不想说，‘谢谢你，上帝’?”
+It’s a moment where I was like, I don’t trust that they’re will-ing to actually invest
+那一刻我就像，我不相信他们愿意真正投资需要投资的东西
 
-2017年，当时任总统的唐纳德·特朗普邀请柯林斯继续担任NIH主任。 2020年乔·拜登总统入主白宫后也邀请了他。
+what needs to be invested to keep Facebook from being dangerous
+来让脸书远离危险
 
-在此之前，他曾领导国家人类基因组研究所，并负责绘制人类基因组图谱的国际项目，该项目于2003年完成。由于这项工作，乔治·沃克·布什总统在2007年授予柯林斯总统自由勋章。
+Scott Pelley
+斯科特·佩利
 
-白宫当时表示:“科学知识的这一里程碑式的进步，已经开始解开人类生命的一些重大奥秘，并为开发一些最严重疾病的治疗方法创造了潜力。”
+Facebook says the work of civic integrity was distributed to oth-er units
+脸书表示公民诚信工作已分发给其他单位
 
-**原文连接:**[https://www.politico.com/news/2021/10/04/francis-collins-nih-step-down-515114](https://www.politico.com/news/2021/10/04/francis-collins-nih-step-down-515114)
+Haugen told us the root of Facebook’s problem is in the change
+豪根告诉我们，脸书问题的根源在于
 
-**（本文评论仅代表个人观点）**
+that it made in 2018 to its algorithms that programming that de-cides
+它在 2018 年对其算法所做出的改变
 
-翻译/评论：洛杉矶盘古农场–钢蛋儿
-校对/编辑：洛杉矶盘古农场–明子
+what you see on your Facebook newsfeed.
+即决定你在脸书新闻推送上看到的内容
+
+Frances Haugen
+弗朗西丝·豪根
+
+So, you know, you have your phone, you might see only 100 pieces of content.
+所以，你知道，你用你的手机，你可能只能看到 100 条内容
+
+If you sit and scroll, for, you know, five minutes,
+如果你坐下来滚动你的手机五分钟，你知道，
+
+but Facebook has 1000s of options that can show you
+但是脸书有1000多个选项可以向你展示
+
+Scott Pelley
+斯科特·佩利
+
+the algorithm picks from those options based on the kind of con-tent
+该算法根据你过去参与最多的内容种类
+
+you’ve engaged with the most in the past.
+从这些选项中挑选
+
+Frances Haugen
+弗朗西丝·豪根
+
+And one of the consequences of how Facebook is picking out that content today,
+以及脸书今天如何挑选这些内容的后果之一
+
+is they’re just optimizing for content that gets engagement, or reaction,
+就是他们是否只是针对吸引人的参与或反应的内容进行优化
+
+but its own research is showing that content that is hateful that is divisive, that is polarizing.
+但它自己的研究表明，仇恨的内容是分裂的，是两极分化的
+
+It’s easier to inspire people to anger is to other emotions,
+激发人们的愤怒比激发其他情绪更容易
+
+Scott Pelley
+斯科特·佩利
+
+misinformation angry content is enticing to people
+错误信息、愤怒的内容对人们很有吸引力
+
+and keep keeps them on the platform.
+并将人们继续停留在平台上
+
+Frances Haugen
+弗朗西丝·豪根
+
+Yes, Facebook has realized that if they change the algorithm to be safer,
+是的，脸书已经意识到，如果他们改变算法以提高安全性
+
+people will spend less time on site,
+人们在平台上会花更少的时间
+
+they’ll click on less ads, they’ll make less money.
+人们会点击更少的广告，脸书赚的钱也会更少
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接: **[https://youtube.com/watch?v=\_Lx5VmAdZSI](https://youtube.com/watch?v=_Lx5VmAdZSI)
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

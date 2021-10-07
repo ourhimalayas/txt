@@ -2,151 +2,55 @@
 ---
 
 
-## 欧洲政党基本上是在说脸书编写算法改变我们领导国家
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1577808/)
+## 脸书吹哨人弗朗西丝·豪根认为联邦政府应该实施监管
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1577841/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl.jpg)
-[https://gtv.org/video/id=615ddf9fd2e2b817487204c6](https://gtv.org/video/id=615ddf9fd2e2b817487204c6)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/33-aeax3-hm1yr.jpg)
+[https://gtv.org/video/id=615de19cd2e2b81748720539](https://gtv.org/video/id=615de19cd2e2b81748720539)
 
-Scott Pelley
-斯科特·佩利
+**Scott Pelley**
+**斯科特·佩利**
 
-Facebook essentially amplifies the worst of human nature.
-脸书本质上放大了人性中最坏的一面
+Facebook is a $1 trillion company just 17 years old.
+脸书是一家成立仅17年，市值 1 万亿美元的公司
 
-Frances Haugen
-弗朗西丝·豪根
+It has 2.8 billion users, which is 60% of all internet connected people on Earth.
+它拥有 28 亿用户，占地球上所有互联网连接人数的 60%
 
-It’s one of these unfortunate consequences, right,
-这是这些不幸的后果之一，对吧
+Frances Haugen plans to testify before Congress this week.
+弗朗西丝·豪根计划本周在国会作证
 
-knowing that Facebook is malevolent.
-知道脸书是恶意的
-
-But the incentives are misaligned right
-但激励措施错位了，对吧
-
-like Facebook makes more money when you consume more content.
-就像脸书在你消费更多的内容时赚更多的钱
-
-People enjoy engaging with things that will listen to emotional reactions,
-人们喜欢参与能够倾听情绪反应的事物
-
-and more angered they exposed to the more interactive more they consume
-他们接触的互动越多，消费的越多，他们就越愤怒
-
-Scott Pelley
-斯科特·佩利
-
-that dynamic led to a complaint to Facebook by major political parties across Europe.
-这种动态导致欧洲主要政党向脸书投诉
-
-This 2019 internal report obtained by Haugen says
-豪根获得的这份 2019 年内部报告说
-
-that the parties “feel strongly that the change to the algorithm has forced them
-双方“强烈认为算法的变化迫使他们
-
-to skew negative in their communications on Facebook,
-在脸书上的交流中产生负面影响
-
-leading them into more extreme policy positions. ”
-引导他们采取更极端的政策立场
-
-The European political parties were essentially saying
-欧洲政党基本上是在说
-
-the Facebook the way you’ve written your algorithm is changing the way we lead our countries.
-脸书的编写算法的方式正在改变我们领导国家的方式
+She believes the federal government should impose regulations.
+她认为联邦政府应该对脸书实施监管
 
 Frances Haugen
 弗朗西丝·豪根
 
-Yes，you are forcing us to take positions.
-是的，你在强迫我们表明立场
+Facebook has demonstrated they cannot act independently,
+脸书已经证明他们不能独立行动
 
-We don’t like we know we’re bad for society.
-我们不喜欢我们知道我们对社会有害
+Facebook over and over again has shown, it choices profit over safety.
+脸书一再显示它选择利润而不是安全
 
-We know, we don’t take those positions.
-我们知道，我们不采取这些立场
+It is subsidizing is paying for its profits with our safety.
+它的补贴是用我们的安全来支付它的利润
 
-We won’t win in the marketplace of social media.
-我们不会在社交媒体市场上获胜
+I’m hoping that this will have had a big enough impact on the world,
+我希望这会对世界产生足够大的影响
 
-Scott Pelley
-斯科特·佩利
+that they get the fortitude and the motivation to actually go put those regulations into place.
+使他们有毅力和动力，真正去把这些法规落实到位
 
-Evidence so harm. She says extends to Facebook’s Instagram app.
-证据如此有害， 她说扩展到脸书的Instagram应用程序
+That’s my hope.
+这是我的希望
 
-One of the Facebook internal studies
-脸书的内部研究之一
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-that you’ve found talks about how Instagram harms teenage girls.
-你发现讨论有关 Instagram 如何伤害少女的讨论
-
-Frances Haugen
-弗朗西丝·豪根
-
-Oh yeah
-哦，是的
-
-Scott Pelley
-斯科特·佩利
-
-One study says, 13 and a half percent of teen girls say
-一项研究表明，13.5% 的少女说
-
-Instagram makes lots of suicide worse
-Instagram使许多自杀事件变得更糟
-
-17% of teen girls say Instagram makes eating disorders worse
-17% 的少女说 Instagram 会使饮食失调变得更糟
-
-Frances Haugen
-弗朗西丝·豪根
-
-and super tragic is Facebook’s own research says,
-而且超级悲哀的是脸书自己的研究表明
-
-as these young women begin to consume the eating disorder content,
-随着这些年轻女性开始消费饮食失调的内容
-
-they get more and more depressed,
-她们变得越来越忧伤
-
-they actually makes them use the app more.
-他们实际上让她们更多地使用该应用程序
-
-So they end up in this feedback cycle
-所以她们最终进入了这个反馈循环
-
-where they hate their bodies more and more
-她们越来越讨厌自己的身体
-
-Facebook’s own research says,
-脸书自己的研究表明
-
-is not just the Instagram is dangerous for teenagers that harm teenagers,
-不仅仅是 Instagram 对青少年是危险的，对青少年的伤害
-
-is that is distinctly worse than other forms of social media
-是明显比其他形式的社交媒体更糟糕
-
-Facebook said just last week,
-脸书上周表示
-
-it would postpone plans to create an Instagram for younger children
-它将推迟为更年幼的孩子创建 Instagram 的计划
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接:**[https://youtube.com/watch?v=\_Lx5VmAdZSI](https://youtube.com/watch?v=_Lx5VmAdZSI)
+**原视频链接: **[https://youtube.com/watch?v=\_Lx5VmAdZSI](https://youtube.com/watch?v=_Lx5VmAdZSI)
 
 英听校: 洛杉矶盘古农场 – Layka
 翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – Mike Li
 字幕+视频制作: 洛杉矶盘古农场 – 天涯行
 审片: 洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹Rainbow

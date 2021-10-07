@@ -2,21 +2,49 @@
 ---
 
 
-## 香港证监会：正在研究与推动香港证券交易以人民币计价
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1577843/)
+## 北京冬奥会强行组织会前测试赛
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1577940/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/519891390197403648013284.jpg)香港证监会：正在研究与推动香港证券交易以人民币计价 网络图片
-据法国国际广播电台10月6日报道，香港特首林郑月娥今日发表其任内最后一次《施政报告》，提到将进一步扩大跨境人民币资金双向流通管道、离岸人民币产品和工具发展，包括研究提升发行及交易人民币证券需求、容许“港股通”南向交易的股票以人民币计价等措施。
-
-香港证监会表示欢迎并全力支持《施政报告》提出的措施，证监会正在和香港金融管理局、香港联合交易所组成工作小组，就推动在香港买卖人民币计价证券方面，进行可行性研究；证监会将与大陆有关部门，共同探讨将人民币柜台，纳入股票市场交易“互联互通”机制下的港股通之内。并将此举美其名曰——是为了提升香港的国际金融中心地位而采取的措施。
-
-阅读新闻原文：[https://t.co/ylS0yb2kMC?amp=1](https://t.co/ylS0yb2kMC?amp=1)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山农场 – 在远方
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+
+
+
+10月4日，北京冬奥会组委会宣布，从10月5日起至12月31日，北京冬奥会将在北京、延庆和张家口三个赛区举办会前测试赛。至于没有接种疫苗的与会人员，包括比赛选手，都必须在抵达北京后进行21天的强制隔离，然后才能进入封闭的赛会园区。
+
+![](https://s.rfi.fr/media/display/17d7442a-2558-11ec-93f1-005056a97e36/w:1280/p:16x9/1455914-le-centre-national-de-saut-a-ski-chinois-a-zhangjiakou-le-14-juillet-2021.webp)图片来源：AFP
+
+据估计，近期将有2000多名境外运动员、随队官员、国际技术官员以及计时和记分的专业人员陆续抵达北京，参加各项为测试冬奥会场馆而举行的国际赛事。对此，中共官员称，疫情防控将成为测试赛的“重中之重”，并表示“防疫压力很大”。
+
+此前，中共发出声明表示，本届冬奥会将仅向国内观众售票。事实上，正是由于中共研制并释放了新冠病毒，才导致冬奥会将在如此极端的条件下举办。目前，CCP病毒已经杀害了全世界455万无辜百姓的生命，并造成了约2.19亿人感染。
+
+而今，共产党一边放毒，一边假装“严格防疫”地举办冬奥会，充分暴露了中共残忍邪恶、阴险狡诈的本质。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+[北京开始举办冬奥会前测试赛](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211004-%E5%8C%97%E4%BA%AC%E5%BC%80%E5%A7%8B%E4%B8%BE%E5%8A%9E%E5%86%AC%E5%A5%A5%E4%BC%9A%E5%89%8D%E6%B5%8B%E8%AF%95%E8%B5%9B)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
