@@ -2,143 +2,39 @@
 ---
 
 
-## 脸书已经意识到，人们会点击更少的广告，他们会赚更少的钱
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1577763/)
+## 2021/10/06文贵先生盖特精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1577776/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/31-a5voy-uulo6.jpg)
-[https://gtv.org/video/id=615ddeb7d2e2b81748720494](https://gtv.org/video/id=615ddeb7d2e2b81748720494)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/100606.png)[盖特链接](https://gettr.com/post/pdc9pgfb64)
+纽约今天很漂亮。七哥昨晚睡得很好，会开得也都很好。衷心感谢中共政法界，中纪委，统计局，海军的兄弟姐妹们，你们辛勤地劳动，冒着风险对爆料革命地支持，新中国联邦永远不会忘记，会永远感恩！
 
-**Frances Haugen (Facebook Whistleblower)
-弗朗西斯·豪根（脸书吹哨人）**
+2017年七哥已经说了“共产党一定死在它的以假治国，以黑治国、以骗治国、以贪治国、以警治国”。现在全国各地的高压政策，让下面的人苦不堪言，没有人敢讲真话。在海军某部份的采购上，全部都是首长的亲戚，还必须要下属配合他们作假，按照所谓的审计渠道、军内的所谓装备部，指导说明规划进行采购，全部都是领导的小三和家人，但下面的人要承担责任。谁都不敢往上报，谁报谁死，查你的人就是你举报的人。
 
-I never wanted anyone to feel the pain that I felt,
-我从不希望任何人感受到我所感受到的痛苦
+这两天收到公检法很多讯息，都说七哥直播说的话不公平，他们说不是没有勇气、不是不敢，只是在中共的体制下没有用。公安厅往上举报，全是孟建柱、王歧山、孙力军、周亮派人查他们。周亮负责中纪委人事，整个大楼没人敢惹周亮，如果“讲人话”去举报就会马上被消失，那是无谓的牺牲。
 
-and I’d seen how high the stakes were in terms of making sure
-而且我已经看到在为了保证方面的风险有多大
+关于停电和煤炭的事情，在政策室的人，竟然敢写“伟大的领袖、伟大的领导是时候对美帝国主义和西方的资源、人权、海洋霸权说‘不’了。即使停一年电，在黑暗中的生活，总比在黑暗中摸索，不确定的生存要好得多。因为西方法西斯垄断了资源，一定要与他们干到底”。这样一个疯狂的纳粹思想，竟然得到中南坑的最高批示，说这思想达到了国际境界。中纪委的人都知道如果王岐山和孟建柱不出事，反腐都是扯蛋的。
 
-there was high quality information on Facebook
-脸书上有高质量的信息
+打台湾已经是箭在弦上，只要质疑打台湾，就是叛国罪，会被消灭。
 
-Scott Pelley (CBS 60 minutes host)
-斯科特·佩利 (CBS 60分钟节目主持人）
+傅政华出事后政法委内部一大批人出来声讨傅政华，中伦律师事务所姓张的创始人, 他100%是孟建柱和孙力军的走狗，他把中国整个律师界毁了。还有北大法律系那帮人垄断了整个北京律师的大业务，把北京整个律师界毁了，这些人全是孟建柱和孙力军的帮凶。
 
-At headquarters, she was assigned to civic integrity,
-在(脸书)总部，她被分配到公民诚信部
+政法委的人也说七哥骂得不公平，但懦弱永远有很多理由的，特别是那些失败者。朱茂元就是苟延残喘给自己很多理由去背叛七哥，背叛自己的良知。
 
-which worked on risks to elections including misinformation.
-致力于解决选举风险，包括错误信息
+中伦律师所和西方律师事务所勾兑，美国会查到底的，他们利用合法的合作方式，偷盗美国人的信息，进行合法的腐败。它一定会出大事的。
 
-But after this past election, there was a turning point
-但在这次结束的选举之后，出现了一个转折点
+太平联盟在香港的基金以欺骗犹太人为主，然后玩弄女人，制造假文件，哄抬股市欺骗小股东，行贿西方各种法律机构，包括巴哈马。我们都掌握这些证据。这帮人打掉后，中国律师界就会出大事。中国律师界通过这种基金，互相之间做假帐、做假审计，欺骗西方股民。很多西方的国家养老基金和国家安全基金全被这帮人骗走了。犹太人也被他们骗惨了。
 
-Frances Haugen
-弗朗西丝·豪根
+现在国内军事、政治、经济、能源、社会、粮食、金融、房地产一塌糊涂。
 
-They told us weren’t dissolving civic integrity.
-他们告诉我们并没有解散公民诚信部
+***编辑：【英国伦敦喜庄园编辑部】***
 
-They basically said okay we made it through the election,
-他们基本上说，好的，我们完成了选举
+**听写：乐禧禧|校对：小雨**
 
-there wasn’t riots, we can get rid of civic integrity now
-没有骚乱，我们现在可以取消公民诚信部了
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-fast forward a couple months we got the insurrection.
-快进几个月我们有了暴动
 
-And when they got rid of civic integrity.
-当他们取消公民诚信部
+编辑：【英国伦敦喜庄园编辑部】
 
-It’s a moment where I was like, I don’t trust that they’re will-ing to actually invest
-那一刻我就像，我不相信他们愿意真正投资需要投资的东西
-
-what needs to be invested to keep Facebook from being dangerous
-来让脸书远离危险
-
-Scott Pelley
-斯科特·佩利
-
-Facebook says the work of civic integrity was distributed to oth-er units
-脸书表示公民诚信工作已分发给其他单位
-
-Haugen told us the root of Facebook’s problem is in the change
-豪根告诉我们，脸书问题的根源在于
-
-that it made in 2018 to its algorithms that programming that de-cides
-它在 2018 年对其算法所做出的改变
-
-what you see on your Facebook newsfeed.
-即决定你在脸书新闻推送上看到的内容
-
-Frances Haugen
-弗朗西丝·豪根
-
-So, you know, you have your phone, you might see only 100 pieces of content.
-所以，你知道，你用你的手机，你可能只能看到 100 条内容
-
-If you sit and scroll, for, you know, five minutes,
-如果你坐下来滚动你的手机五分钟，你知道，
-
-but Facebook has 1000s of options that can show you
-但是脸书有1000多个选项可以向你展示
-
-Scott Pelley
-斯科特·佩利
-
-the algorithm picks from those options based on the kind of con-tent
-该算法根据你过去参与最多的内容种类
-
-you’ve engaged with the most in the past.
-从这些选项中挑选
-
-Frances Haugen
-弗朗西丝·豪根
-
-And one of the consequences of how Facebook is picking out that content today,
-以及脸书今天如何挑选这些内容的后果之一
-
-is they’re just optimizing for content that gets engagement, or reaction,
-就是他们是否只是针对吸引人的参与或反应的内容进行优化
-
-but its own research is showing that content that is hateful that is divisive, that is polarizing.
-但它自己的研究表明，仇恨的内容是分裂的，是两极分化的
-
-It’s easier to inspire people to anger is to other emotions,
-激发人们的愤怒比激发其他情绪更容易
-
-Scott Pelley
-斯科特·佩利
-
-misinformation angry content is enticing to people
-错误信息、愤怒的内容对人们很有吸引力
-
-and keep keeps them on the platform.
-并将人们继续停留在平台上
-
-Frances Haugen
-弗朗西丝·豪根
-
-Yes, Facebook has realized that if they change the algorithm to be safer,
-是的，脸书已经意识到，如果他们改变算法以提高安全性
-
-people will spend less time on site,
-人们在平台上会花更少的时间
-
-they’ll click on less ads, they’ll make less money.
-人们会点击更少的广告，脸书赚的钱也会更少
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接: **[https://youtube.com/watch?v=\_Lx5VmAdZSI](https://youtube.com/watch?v=_Lx5VmAdZSI)
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

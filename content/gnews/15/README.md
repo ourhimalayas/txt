@@ -2,33 +2,22 @@
 ---
 
 
-## 樱花灭共段子之嘀嘀打马、国家随想
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1577768/)
+## 樱花灭共诗——经济第一大国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1577787/)
 
-#### 撰稿：东京樱花团/修文
-![](https://assets.gnews.org/wp-content/uploads/2021/10/b525576845a7d46ebc4e35fa7f437b5a-scaled.jpg)
-【小康四大发明】之《嘀嘀打马》
+#### 作者：东京樱花团/藤田村野
+![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
+农业之邦缺口粮，产煤大国闹煤慌。
 
-网友：我马上要发财了！
-樱团子：你投资发电厂了？！
-网友：没有，我投资了马场。以后国内断电就是小康社会新常态，新能源公交车基本报废，出门只能滴滴打马了。
-樱团子：那只能是单人座位啊，骑手得坐后边。
-网友：是啊，这相当于单排座跑车，还是敞篷的。
-樱团子：你要这么说，两个人出门只能滴滴租马了？
-网友：可不是么，口号我都想好了。“滴滴租马，两人同乘。一前一后，贴身随行。”简直是青年恋爱，拉近关系，必备神器。以后出门约会有车我都不坐，必须租马。
-樱团子：这婚事要是成了，这马应该算是媒人。
-[盖特链接](https://www.gettr.com/post/pcw53j562b)
+脱贫摘帽高声唱，温饱偷生奔小康。
 
-【国家随想】
+山路迢长城里市，管城打砸烂箩筐。
 
-响应国家号召的，叫人民。
-想薅国家羊毛的，叫领导。
-想占国家便宜的，叫犯罪。
-想靠国家致富的，叫为人民服务。
-[盖特链接](https://www.gettr.com/post/pd45p5d942)
+无煤断电讴歌在，党国光辉不可凉。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-30.jpg)
+(本文只代表作者观点，与GNews网站无关)
 
-(文章仅代表作者本人观点，与GNEWS无关)
-
+*插图：东京樱花团/闪闪*
 *校对：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)

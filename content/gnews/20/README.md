@@ -2,56 +2,141 @@
 ---
 
 
-## 研究表明，完全接种疫苗者体内抗体在三个月后急剧下降
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1577739/)
+## 脸书已经意识到，人们会点击更少的广告，他们会赚更少的钱
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1577763/)
 
-**【评语】马达加斯加没有推广疫苗接种，病毒感染几乎零。以色列是全球接种疫苗比率最高的国家之一，接种疫苗后病毒感染的比率开始急速飙升，美国也是如此。这足以说明疫苗接种不但对预防病毒感染无效，甚至还加速了病毒的传播。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/31-a5voy-uulo6.jpg)
+[https://gtv.org/video/id=615ddeb7d2e2b81748720494](https://gtv.org/video/id=615ddeb7d2e2b81748720494)
 
-**据《新闻目标》作者：Zoey Sky，2021年10月4日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/a71ie-wzywl-3.jpg)图片来源：新闻目标
-大型制药公司和美国政府继续向公众保证，接种疫苗是安全的，因为这样做可以帮助防止中共冠状病毒（COVID-19）的传播。但根据一项研究显示，完全接种冠状病毒疫苗的人，其体内的抗体在三到七个月内会下降。
+**Frances Haugen (Facebook Whistleblower)
+弗朗西斯·豪根（脸书吹哨人）**
 
-**为什么接种疫苗的人，其体内的抗体水平会下降?**
+I never wanted anyone to feel the pain that I felt,
+我从不希望任何人感受到我所感受到的痛苦
 
-在瑞典国家广播公司Sveriges Television AB（SVT）的一份报告中，一项研究显示，瑞典和其他大量接种疫苗的国家，在完全接种疫苗的人群中记录了更多的突破性感染病例，这让人质疑为什么政府一开始就要推动疫苗的强制接种。
+and I’d seen how high the stakes were in terms of making sure
+而且我已经看到在为了保证方面的风险有多大
 
-研究结果还显示，完全接种疫苗的人，其体内抗体水平“比研究人员之前认为的”下降得更快。
+there was high quality information on Facebook
+脸书上有高质量的信息
 
-在社区研究中，研究人员分析了来自2000多名医疗保健雇员的数据。研究小组着手了解冠状病毒感染后的免疫力和疫苗的效果，同时考虑到免疫力在接种者个体中消退的速度。
+Scott Pelley (CBS 60 minutes host)
+斯科特·佩利 (CBS 60分钟节目主持人）
 
-结果显示，在没有感染冠状病毒的辉瑞疫苗接种者中，抗体水平在三个月后减半。 SVT说，在七个月内，抗体水平只剩下原来水平的15%，表明下降了85%。
+At headquarters, she was assigned to civic integrity,
+在(脸书)总部，她被分配到公民诚信部
 
-由于接种阿斯利康疫苗的医护人员后来又接种了疫苗加强针，科学家们只能对他们进行三个月的监测。然而，抗体水平的下降率甚至更大。
+which worked on risks to elections including misinformation.
+致力于解决选举风险，包括错误信息
 
-仅仅三个月后，那些接种阿斯利康疫苗的人，其体内抗体水平只有接种辉瑞疫苗人群的五分之一。
+But after this past election, there was a turning point
+但在这次结束的选举之后，出现了一个转折点
 
-一些参与者接种了Moderna疫苗，但该组人数太少，而且随访时间很短，这不足以让科学家得出任何结论。
+Frances Haugen
+弗朗西丝·豪根
 
-研究负责人夏洛特·塔林（Charlotte Thalin）说，虽然抗体水平随着时间的推移而下降是正常的，但看到“在这样一个相对健康和年轻的群体中，抗体水平下降得如此明显，令人惊讶。抗体水平下降如此明显，意味着即使在接种过疫苗的群体中，仍然可能有更大的传播。”这对老年人等高危人群来说可能是危险的。
+They told us weren’t dissolving civic integrity.
+他们告诉我们并没有解散公民诚信部
 
-这项研究可以更清楚地解释，为什么瑞典和其他大量接种疫苗的国家中，现在开始在完全接种疫苗的人群中发现更多的突破性感染。
+They basically said okay we made it through the election,
+他们基本上说，好的，我们完成了选举
 
-科学家们不知道疫苗效果如何，或者它们是否真的有效
+there wasn’t riots, we can get rid of civic integrity now
+没有骚乱，我们现在可以取消公民诚信部了
 
-由于抗体只是免疫系统的一部分，而且高抗体水平与保护人们免受感染（如冠状病毒）有关，因此连科学家都对疫苗的有效性感到困惑。
+fast forward a couple months we got the insurrection.
+快进几个月我们有了暴动
 
-然而，免疫系统还包含记忆细胞，当病人接触到病毒时，它们会“迅速补充抗体水平”。
+And when they got rid of civic integrity.
+当他们取消公民诚信部
 
-瑞典人口超过1000万，超过63%的人口接种了疫苗。迄今为止，该国已经记录了115万例冠状病毒感染病例，超过15000人死亡。
+It’s a moment where I was like, I don’t trust that they’re will-ing to actually invest
+那一刻我就像，我不相信他们愿意真正投资需要投资的东西
 
-瑞典因中共冠状病毒大流行造成的人均死亡人数是它的邻国的数倍，但低于其他实施封锁的欧洲国家。
+what needs to be invested to keep Facebook from being dangerous
+来让脸书远离危险
 
-与实施全面封锁的邻国不同，瑞典的做法比较宽松，甚至在大流行的高峰期也是如此。瑞典甚至在9月29日取消了最后的限制。这意味着参加活动的客人数量不再受到限制。同时，不再建议公民在家工作，也不再强制执行保持社交距离要求。
+Scott Pelley
+斯科特·佩利
 
-虽然瑞典的感染人数在9月前有所减少，但在老年护理机构出现了几起聚集性疫情，其中一些导致了死亡。
+Facebook says the work of civic integrity was distributed to oth-er units
+脸书表示公民诚信工作已分发给其他单位
 
-**文章来源:**[https://newstarget.com/2021-10-04-study-antibodies-fully-vaccinated-coronavirus-decline-steeply.html](https://newstarget.com/2021-10-04-study-antibodies-fully-vaccinated-coronavirus-decline-steeply.html)
+Haugen told us the root of Facebook’s problem is in the change
+豪根告诉我们，脸书问题的根源在于
 
-**（本文评论仅代表个人观点）**
+that it made in 2018 to its algorithms that programming that de-cides
+它在 2018 年对其算法所做出的改变
 
-翻译/评论：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 钢蛋儿
-编辑：洛杉矶盘古农场 – 明子
+what you see on your Facebook newsfeed.
+即决定你在脸书新闻推送上看到的内容
+
+Frances Haugen
+弗朗西丝·豪根
+
+So, you know, you have your phone, you might see only 100 pieces of content.
+所以，你知道，你用你的手机，你可能只能看到 100 条内容
+
+If you sit and scroll, for, you know, five minutes,
+如果你坐下来滚动你的手机五分钟，你知道，
+
+but Facebook has 1000s of options that can show you
+但是脸书有1000多个选项可以向你展示
+
+Scott Pelley
+斯科特·佩利
+
+the algorithm picks from those options based on the kind of con-tent
+该算法根据你过去参与最多的内容种类
+
+you’ve engaged with the most in the past.
+从这些选项中挑选
+
+Frances Haugen
+弗朗西丝·豪根
+
+And one of the consequences of how Facebook is picking out that content today,
+以及脸书今天如何挑选这些内容的后果之一
+
+is they’re just optimizing for content that gets engagement, or reaction,
+就是他们是否只是针对吸引人的参与或反应的内容进行优化
+
+but its own research is showing that content that is hateful that is divisive, that is polarizing.
+但它自己的研究表明，仇恨的内容是分裂的，是两极分化的
+
+It’s easier to inspire people to anger is to other emotions,
+激发人们的愤怒比激发其他情绪更容易
+
+Scott Pelley
+斯科特·佩利
+
+misinformation angry content is enticing to people
+错误信息、愤怒的内容对人们很有吸引力
+
+and keep keeps them on the platform.
+并将人们继续停留在平台上
+
+Frances Haugen
+弗朗西丝·豪根
+
+Yes, Facebook has realized that if they change the algorithm to be safer,
+是的，脸书已经意识到，如果他们改变算法以提高安全性
+
+people will spend less time on site,
+人们在平台上会花更少的时间
+
+they’ll click on less ads, they’ll make less money.
+人们会点击更少的广告，脸书赚的钱也会更少
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接: **[https://youtube.com/watch?v=\_Lx5VmAdZSI](https://youtube.com/watch?v=_Lx5VmAdZSI)
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
