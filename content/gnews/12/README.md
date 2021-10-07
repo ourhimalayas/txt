@@ -2,31 +2,27 @@
 ---
 
 
-## 新冠溯源新证据！中共早在2019年5月已大量采购PCR检测
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579887/)
+## 中央情报局设立新中心，应对来自中共而非中国人民的威胁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1579905/)
 
-责任编辑：FoxRina
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-116.png)
-根据澳大利亚网络安全公司 Internet 2.0 的一份报告，在中共首次正式报告新型冠状病毒病例前几个月，政府合同报告显示，2019 年 5 月起武汉地区的PCR 检测采购量激增。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/c1_2190995-11.jpg)网络图片
+据福克斯新闻2021年10月7日报道，美国中央情报局（CIA）成立了中共国任务中心 (CMC)，以应对“敌对性越来越强”的中共政府，其行为已对美国造成21世纪“最重要的地缘政治威胁”。中央情报局局长威廉·伯恩斯宣布了这一消息。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-6.jpeg)
+中共国任务中心将促进整合中央情报局整个机构的响应机制，并将“统一中央情报局已经在做的、针对主要竞争对手的出色工作”。伯恩斯说。
 
-数据显示，2019 年湖北省的 PCR 检测花费了约 6740 万元人民币，几乎是 2018 年总数的两倍。月度采购数据显示，2019年5 月份的订单激增，尤其是来自 CDC 采购商和中国人民解放军的订单。
+值得注意的是，伯恩斯强调中共国任务中心将应对中华人民共和国带来的挑战，并强调“威胁来自中共政府，而不是中国人民”。
 
-报告认为，5 月份支出的增加表明这可能是新冠感染的最早开始日期。从 7 月到 10 月，采购量也大幅上升，尤其是来自武汉科技大学的采购量。该机构2019年PCR检测经费892万元，约为上年的8倍。武汉科技大学与当地医院和公共卫生当局一起，在应对新疾病的爆发方面发挥着直接作用。报告评估，这些团体的参与提供了证据，新冠大流行开始的时间比中共向世卫组织通报的时间要早​​得多。
+**简评：**美国中央情报局的中共国任务中心的组建，表明美国政府正在觉醒并在行动之中。事实证实如此，21世纪对美国，乃至全世界，最大的地缘政治威胁来自中国共产党（CCP）。他们用假骗偷、蓝金黄等卑鄙手段污染人心，摧毁着这个原以诚信为本的世界。由共产党统治的中共国政府不能代表无辜中国人。在郭文贵先生引领下，我们这些最最普通的中国老百姓，现在拥有了爆料革命和新中国联邦。为人类的福祉和心中的正道主义，我们与一切正义力量联合起来，一定能够将假恶丑的共产党及其背后的邪恶力量清除出地球！
 
-(本文仅代表作者观点)
+欲了解更多详情，请点击以下链接：[https://www.foxnews.com/world/cia-forming-china-mission-center](https://www.foxnews.com/world/cia-forming-china-mission-center)
 
-参考链接：[China PCR test orders soared before first confirmed COVID case](https://asia.nikkei.com/Spotlight/Coronavirus/China-PCR-test-orders-soared-before-first-confirmed-COVID-case)
+* * *
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-校正/发稿：谐趣园
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

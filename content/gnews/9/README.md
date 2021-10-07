@@ -2,36 +2,31 @@
 ---
 
 
-## 加拿大威胁公务员限制民众 强推毒针注射
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579918/)
+## 中共国正面临经济危机，或已陷入危机之中
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1579936/)
 
-栏目记者/责任编辑：修文
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-102.png)
-加拿大总理特鲁多10月6日宣布，在10月底前所有公务员必须完整接种新冠毒针疫苗，否则最快将于11月被留职停薪。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/c1_2190995-12.jpg)网络图片
+中共国制造业萎缩的速度快于中共国或媒体所披露的。加上数万亿的企业和地方政府偿付能力问题，该国正面临一场金融危机。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-2.jpeg)
+我们已经报道了许多涉及中共国房地产公司最近面临的偿付能力危机。它始于恒大，现在已发现多家负债数十亿的公司存在偿付能力问题。
 
-特鲁多上月选举前就提出公务员强制接种计划，已经引发部分民众不满。10月6日他正式宣布执行强制令，以停薪留职威胁联邦政府所有公务员，以及铁路、民航、机构、银行等员工。根据该政策以10月底为期限，要求以上人员完成毒针接种，否则，最快于下月中旬，政府将对未完成任务或没有提交接种证明的员工实行停薪留职，该计划预计将影响27万员工。该计划还包括12岁以上民众，政府试图以限制搭乘公共交通工具来迫使人们屈服。
+但可能还有更多其它原因。根据我们最近从中共国内部收到的信息，某些地区的制造业，例如东莞（靠近深圳，在香港对面），已降至每周只工作3天或更少。（这座城市位于珠江三角洲，据报道约有5000万人居住在那里，是地球上人口最多的地方。）
 
-加拿大民众一直在为自由而战，8月份纽芬兰和拉布拉多的护士联合起来，抗议新冠疫苗强制令和疫苗护照。面对政府各项强制措施，爆料革命战友和觉醒的加拿大民众从未后退，自发向周围的人传播疫苗真相、利益链黑幕，并展示毒针带来的危害。
+一些生产商正在囤积库存或购买耗电量较低的设备，中共国媒体周二报道称，近几周来，31个省级行政区中至少有20个推出了限电措施，给企业和家庭造成了严重影响。
 
-加拿大政府强制推行接种计划，只会激起更强烈的民众反抗。本周六，抗议者将会和家人一起，在蒙特利尔和其他加拿大城市的街道上，同各国人民一起和平游行，维护个人医疗自主权和人权。
+蜡烛制造厂是因需求激增而急于满足订单的工厂之一，但随着过去一个月升级的危机恶化，大多数工厂和制造商都面临生产放缓、成本上升和利润下降的问题。
 
-(本文仅代表作者观点)
+中共国正面临经济危机，或已经陷入危机之中，无论如何，这都是一个严重的事态发展。
 
-参考链接：[加拿大強制公務員完整接種疫苗 違者將留職停薪](https://news.ltn.com.tw/news/world/breakingnews/3695989)
-[Nurses denounce anti-vaccine passport protest in St. John’s](https://www.cbc.ca/news/canada/newfoundland-labrador/anti-vaccination-passport-protest-st-johns-1.6173996)
-[Thousands in Canada and France Protest Vaccine Passports](https://www.voanews.com/a/covid-19-pandemic_thousands-canada-and-france-protest-vaccine-passports/6209589.html)
+新闻链接：[https://www.thegatewaypundit.com/2021/10/exclusive-chinese-manufacturers-working-1-day-week-china-faces-economic-crisis/](https://www.thegatewaypundit.com/2021/10/exclusive-chinese-manufacturers-working-1-day-week-china-faces-economic-crisis/)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+* * *
 
-终审：暗黑
-校正/发稿：谐趣园
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
