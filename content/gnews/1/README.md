@@ -2,31 +2,34 @@
 ---
 
 
-## 中共国正面临经济危机，或已陷入危机之中
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1579936/)
+## 中国留学生教堂纵火,国人须慎行防排华!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579948/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/c1_2190995-12.jpg)网络图片
-中共国制造业萎缩的速度快于中共国或媒体所披露的。加上数万亿的企业和地方政府偿付能力问题，该国正面临一场金融危机。
+栏目记者/责任编辑：文龍
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-102.png)
+美国阿拉巴马州当地媒体10月5号报道,  第一浸信会教堂是 阿拉巴马州蒙哥马利市地标建筑，该教堂9月29日晚遭人纵火, 内部一些设施遭烧毁。当地执法机关依据教堂内部监视器录像追踪涉案人，将来自中国的留学生严晓琴(音译，Xiaoqin Yan)逮捕，嫌犯目前收押在蒙市拘留所，等候接受调查起诉。
 
-我们已经报道了许多涉及中共国房地产公司最近面临的偿付能力危机。它始于恒大，现在已发现多家负债数十亿的公司存在偿付能力问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9-1.jpeg)
 
-但可能还有更多其它原因。根据我们最近从中共国内部收到的信息，某些地区的制造业，例如东莞（靠近深圳，在香港对面），已降至每周只工作3天或更少。（这座城市位于珠江三角洲，据报道约有5000万人居住在那里，是地球上人口最多的地方。）
+法庭文件显示, 嫌犯严晓琴今年27岁，是一名来自中国的留学生，检察官贝利已将其留学生签证取消，并提高了原定3万美金的保释金，以防止嫌犯弃保潜逃,因为该案在当地引起轩然大破, 民众愤怒不已! 但嫌犯纵火焚烧教堂的动机尚未公布。
 
-一些生产商正在囤积库存或购买耗电量较低的设备，中共国媒体周二报道称，近几周来，31个省级行政区中至少有20个推出了限电措施，给企业和家庭造成了严重影响。
+在病毒及疫苗真相正在揭晓的当下, 爆料革命也在警示全球各地华人，一定慎言慎行，在传播真相的同时告知周遭,  中共不代表中国人，中国人不都是共产党 ! 与此相对应,  任何违背当地法律法规，支持中共邪恶政权，甚至给当地人文或环境带来威胁/损害的言行，都有可能引发并酿成 严重的排华事件。本台将关注这一事件的后续报道。
 
-蜡烛制造厂是因需求激增而急于满足订单的工厂之一，但随着过去一个月升级的危机恶化，大多数工厂和制造商都面临生产放缓、成本上升和利润下降的问题。
+(本文仅代表作者观点)
 
-中共国正面临经济危机，或已经陷入危机之中，无论如何，这都是一个严重的事态发展。
+参考链接：[Arrest made in arson at First Baptist Church Montgomery](https://thealabamabaptist.org/arrest-made-in-arson-at-first-baptist-church-montgomery/)
+[中国留学生纵火烧毁百年教堂被捕](https://www.sinchew.com.my/20211007/中国留学生涉嫌纵火192历史教堂遭被捕/)
+[清秀中國女留學生縱火燒美國200年教堂 友人：她不知受了什么刺激](https://lihkg.com/thread/2727354/page/1)
 
-新闻链接：[https://www.thegatewaypundit.com/2021/10/exclusive-chinese-manufacturers-working-1-day-week-china-faces-economic-crisis/](https://www.thegatewaypundit.com/2021/10/exclusive-chinese-manufacturers-working-1-day-week-china-faces-economic-crisis/)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-* * *
+终审：文龍
+校正/发稿：谐趣园
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

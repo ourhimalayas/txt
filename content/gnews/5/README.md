@@ -2,34 +2,27 @@
 ---
 
 
-## 北欧三国承认莫德纳疫苗与青少年心脏疾病相关性
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579897/)
+## 中央情报局设立新中心，应对来自中共而非中国人民的威胁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1579905/)
 
-栏目记者/责任编辑：云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-102.png)
-瑞典6日宣布，承认年轻人在注射莫德纳疫苗后，心肌炎及心包膜炎等副作用的风险增加的事实现象，提出暂停在年轻人范围内该品牌新冠毒针疫苗的使用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/c1_2190995-11.jpg)网络图片
+据福克斯新闻2021年10月7日报道，美国中央情报局（CIA）成立了中共国任务中心 (CMC)，以应对“敌对性越来越强”的中共政府，其行为已对美国造成21世纪“最重要的地缘政治威胁”。中央情报局局长威廉·伯恩斯宣布了这一消息。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-4.jpeg)
+中共国任务中心将促进整合中央情报局整个机构的响应机制，并将“统一中央情报局已经在做的、针对主要竞争对手的出色工作”。伯恩斯说。
 
-挪威和丹麦也重申对莫德纳疫苗的慎重态度。 瑞典公共卫生局展示了该mRNA疫苗和心肌炎和心包膜炎的风险相关性，男性年轻人为高危人群，多数在接种第2剂疫苗后的数周内发生。
+值得注意的是，伯恩斯强调中共国任务中心将应对中华人民共和国带来的挑战，并强调“威胁来自中共政府，而不是中国人民”。
 
-丹麦已经取消了所有新冠限制令，春季引入的新冠健康通行证也从9月1日起不再使用。
+**简评：**美国中央情报局的中共国任务中心的组建，表明美国政府正在觉醒并在行动之中。事实证实如此，21世纪对美国，乃至全世界，最大的地缘政治威胁来自中国共产党（CCP）。他们用假骗偷、蓝金黄等卑鄙手段污染人心，摧毁着这个原以诚信为本的世界。由共产党统治的中共国政府不能代表无辜中国人。在郭文贵先生引领下，我们这些最最普通的中国老百姓，现在拥有了爆料革命和新中国联邦。为人类的福祉和心中的正道主义，我们与一切正义力量联合起来，一定能够将假恶丑的共产党及其背后的邪恶力量清除出地球！
 
-(本文仅代表作者观点)
+欲了解更多详情，请点击以下链接：[https://www.foxnews.com/world/cia-forming-china-mission-center](https://www.foxnews.com/world/cia-forming-china-mission-center)
 
-参考链接：[憂心肌炎風險 瑞典丹麥建議年輕人暫不用莫德納](https://www.cna.com.tw/news/aopl/202110070037.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-[Denmark is first in EU to lift all coronavirus restrictions](https://www.politico.eu/article/denmark-first-eu-lift-coronavirus-restrictions/#:~:text=High%20levels%20of%20trust%20in,the%20country%27s%20successful%20vaccine%20rollout.&amp;text=Denmark%20is%20set%20to%20lift,to%20pre%2Dpandemic%20daily%20life)
-[Denmark’s high vaccination rate sees COVID pass ended for restaurants](https://www.euronews.com/2021/09/01/denmark-s-high-vaccination-rate-sees-covid-pass-ended-for-restaurants)
+* * *
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-终审：暗黑
-校正/发稿：谐趣园
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

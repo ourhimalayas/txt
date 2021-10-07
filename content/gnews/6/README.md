@@ -2,25 +2,28 @@
 ---
 
 
-## 新冠溯源新证据！中共早在2019年5月已大量采购PCR检测
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579887/)
+## 北欧三国承认莫德纳疫苗与青少年心脏疾病相关性
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579897/)
 
-责任编辑：FoxRina
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-116.png)
-根据澳大利亚网络安全公司 Internet 2.0 的一份报告，在中共首次正式报告新型冠状病毒病例前几个月，政府合同报告显示，2019 年 5 月起武汉地区的PCR 检测采购量激增。
+栏目记者/责任编辑：云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-102.png)
+瑞典6日宣布，承认年轻人在注射莫德纳疫苗后，心肌炎及心包膜炎等副作用的风险增加的事实现象，提出暂停在年轻人范围内该品牌新冠毒针疫苗的使用。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-6.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-4.jpeg)
 
-数据显示，2019 年湖北省的 PCR 检测花费了约 6740 万元人民币，几乎是 2018 年总数的两倍。月度采购数据显示，2019年5 月份的订单激增，尤其是来自 CDC 采购商和中国人民解放军的订单。
+挪威和丹麦也重申对莫德纳疫苗的慎重态度。 瑞典公共卫生局展示了该mRNA疫苗和心肌炎和心包膜炎的风险相关性，男性年轻人为高危人群，多数在接种第2剂疫苗后的数周内发生。
 
-报告认为，5 月份支出的增加表明这可能是新冠感染的最早开始日期。从 7 月到 10 月，采购量也大幅上升，尤其是来自武汉科技大学的采购量。该机构2019年PCR检测经费892万元，约为上年的8倍。武汉科技大学与当地医院和公共卫生当局一起，在应对新疾病的爆发方面发挥着直接作用。报告评估，这些团体的参与提供了证据，新冠大流行开始的时间比中共向世卫组织通报的时间要早​​得多。
+丹麦已经取消了所有新冠限制令，春季引入的新冠健康通行证也从9月1日起不再使用。
 
 (本文仅代表作者观点)
 
-参考链接：[China PCR test orders soared before first confirmed COVID case](https://asia.nikkei.com/Spotlight/Coronavirus/China-PCR-test-orders-soared-before-first-confirmed-COVID-case)
+参考链接：[憂心肌炎風險 瑞典丹麥建議年輕人暫不用莫德納](https://www.cna.com.tw/news/aopl/202110070037.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+[Denmark is first in EU to lift all coronavirus restrictions](https://www.politico.eu/article/denmark-first-eu-lift-coronavirus-restrictions/#:~:text=High%20levels%20of%20trust%20in,the%20country%27s%20successful%20vaccine%20rollout.&amp;text=Denmark%20is%20set%20to%20lift,to%20pre%2Dpandemic%20daily%20life)
+[Denmark’s high vaccination rate sees COVID pass ended for restaurants](https://www.euronews.com/2021/09/01/denmark-s-high-vaccination-rate-sees-covid-pass-ended-for-restaurants)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
+终审：暗黑
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
