@@ -2,13 +2,16 @@
 ---
 
 
-## 2021年10月6日 文贵先生盖特 9
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1579197/)
+## 西媒头条 — 第82期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1579257/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+- 制作：蚂蚁兄弟
 
-10/06/2021 Miles Guo’s GETTR: PAG (Hong Kong) mainly connected and deceived the Jewish investors, and further manipulated stock markets by deceiving institutional and individual investors in the West, and when all these are revealed one day, something big will happen inside of the Chinese legal community; various of situations inside of CCP China are all in mess 10/06/2021 文贵盖特：香港太盟投资(PAG)以联络欺骗犹太投资圈为主、哄抬股市、欺骗西方机构投资人和小股东，这个雷爆的时候中国律师界要出大事儿；国内各种形势一塌糊涂
 
-[【2021年10月6日】文贵先生盖特原文](https://gettr.com/post/pde8msb8dd)
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
 
-**喜联盟Gnews编辑部**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1007.001.jpeg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)

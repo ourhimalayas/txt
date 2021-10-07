@@ -2,32 +2,22 @@
 ---
 
 
-## 跪舔中共谋连任 林郑强推23条
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579009/)
+## 芬兰加入瑞典和丹麦 共同限制莫德纳COVID-19疫苗
+` 象声` [轉載自GNews](https://gnews.org/zh-hans/1579124/)
 
-栏目记者/责任编辑：在远方
+译者：快速推广到目前为止有争议德疫苗，这在世界医疗史上非常罕见，无论欧洲各国政要在对待疫苗的事情上各自为阵，我们面对的现实就是欧盟国家正在因为疫情因为疫苗，而滑向分裂的边缘。是否不久的将来，欧盟即将因为疫苗事件而解散呢？
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+赫尔辛基，10月7日（路透社）报道说：由于罕见的心血管副作用的报道，芬兰周四暂停了莫德纳(MRNA.O) 的COVID-19 疫苗对年轻男性的使用，瑞典和丹麦加入了限制其使用的行列。之前芬兰卫生研究所所长Mika Salminen表示，芬兰将向1991 及以后出生的男性提供辉瑞的疫苗。但是，“一项涉及芬兰、瑞典、挪威和丹麦的北欧研究发现，接受Moderna Spikevax治疗的 30 岁以下男性患心肌炎的风险略高于其他人，”他说。
 
-为谋求连任香港特首，林郑月娥6日发表新《施政报告》，表示正在积极推展《基本法》23条的本地立法工作。这项与中共国安恶法相关的法例草案，曾于2002至2003年在香港引发巨大争议，触发50万人游行，最后立法程序不得不搁置。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1007AM（1-3）視頻備用.001.jpeg)
-香港民主人士普遍认为，基本法第23条内容含糊不清，其中尤以香港、内地两地标准定义不同为首，而其中所谓煽动叛乱、颠覆国家政权和窃取国家机密等入罪条件轻则数句即可入狱，最高刑期则更达终身监禁。
+瑞典和丹麦卫生官员周三宣布，他们将暂停对所有年轻人和儿童使用 Moderna 疫苗，理由是同样未发表的研究。挪威卫生官员周三重申，他们建议30岁以下的男性选择辉瑞的疫苗。芬兰研究所表示，北欧研究将在几周内发表，初步数据已发送给欧洲药品管理局 (EMA) 进行进一步评估。
 
-香港抗争运动两年多来，中共对香港人民进行残酷镇压，妄图将香港变为内地城市。因此在北京的授意下，林郑将过于苛刻和刑事条文泛政治化的第23条强行推展，甚至在立法会通过，这将会是对香港人权和自由的又一个重大打击。
-(本文仅代表作者观点)
+EMA 的安全委员会在7月得出结论，在接种 Spikevax 或辉瑞 / BioNTech Comirnaty 疫苗后，这种炎症性心脏病可能发生在非常罕见的情况下，更常见于第二次接种后的年轻男性。然而，美国、欧盟和世界卫生组织的监管机构强调，莫德纳和辉瑞使用的基于 mRNA技术的注射疫苗在预防 COVID-19 方面的好处继续大于风险。
 
-参考链接：[香港特首林郑月娥发表《施政报告》 23条、北部都会区和土地供应成焦点](https://www.bbc.com/zhongwen/simp/chinese-news-58815057)
+莫德纳德发言人周三晚间表示，它了解瑞典和丹麦监管机构的决定。“这些通常是轻度病例，个人在接受标准治疗和休息后往往会在短时间内康复。感染 COVID-19 的人患心肌炎的风险大大增加，接种疫苗是预防这种情况的最佳方法。”
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+意大利卫生部长罗伯托·斯佩兰萨告诉记者，意大利不打算暂停莫德纳疫苗，并表示欧洲国家应该更紧密地合作以更好地协调。“我们必须信任国际权威机构，首先是 EMA，它是我们的参考机构，并已对此事表达了非常明确的判断，”他说。
 
-终审：文龙
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+\*文章仅代表作者观点\*
+ 原文参考链接：
+ https://www.reuters.com/world/europe/finland-pauses-use-moderna-covid-19-vaccine-young-men-2021-10-07/?taid=615edb6a3784a10001418fe9&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter
+ 翻译&编辑： 洛杉矶盘古农场—蓝精灵

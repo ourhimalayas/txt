@@ -2,31 +2,23 @@
 ---
 
 
-## 布林肯呼吁中共负责任妥善处理恒大危机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579249/)
+## G系列媒体平台给你真相
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1579336/)
 
-栏目记者/责任编辑：在远方
+#### 撰稿：东京樱花团/小小星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/9FA703BD-56CA-4C91-84C4-20880DFF0AC8.jpeg)
+自从中共病毒来到这个世界上，人类就没有了安宁的日子。死亡和各种灾难一夜之间从中国大地，迅速传遍了香港及世界。就连美国这个人间的天堂，也变成了黑暗之极。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+疫情严重扩散，死亡人数不断增长，但硫酸羟氯喹、伊维菌素、青蒿素和地塞米松这些廉价而有效的药物，却都被各种权力所恶意打压而让人们难以获取，导致全球死亡已接近五百万人。中共病毒之后，又用强制接种疫苗来继续控制着人们，设置层层关卡难为民众，不打疫苗诸事不顺，寸步难行。虽然觉醒的人们已经渐渐增多，但大多数人仍旧被国家机器、假媒体和假科学家所欺骗。
 
+当香港的学生和平游行被警察枪杀的时候，世界上很多人都以为此事离自己很远。但当澳、法、美等国家的人们进行反疫苗游行时，却发生和香港一样的事情。当人们在各种社交媒体发出真正声音时，又立刻被社交媒体屏蔽或删除！世界已经到了黑暗之极的时刻！
 
+整个世界只有我们的G系列媒体平台——GTV，GNEWS，GETTR在传播真相，在漆黑的世界里露出一丝光亮，不停地告诉世界关于中共病毒和疫苗的真相！
 
-美国国务卿 布林肯正在巴黎访问，在接受当地电视媒体采访时，他呼吁中共停止针对台湾的挑衅行动，同时称北京应该以负责任的行动处理恒大债务危机带来的影响。布林肯作为国务卿对一家中国企业的财务危机如此关注，无疑验证了文贵先生爆料所揭示的内幕。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1007-AM（4-6）.001.jpeg)
-恒大是盗国贼用来攫取全世界资金的白手套代理之一，华尔街与西方暗黑沼泽地势力勾结共产党盗国贼，将西方社会的养老保险基金投入到中共操纵的恒大、碧桂园、保利等地产公司，以及由地方债改头换面而成的各种基金中，在蓝金黄和巨大的利益面前，所有人都无视这些企业和基金的虚假报表，其结果就是全球众多发达国家的的养老医疗保险基金被套牢，一旦这些中概企业爆雷，所牵涉的地方债和隐形债也根本找不到责任人和抵押资产，所有的投资将血本无归！布林肯的这番话，体现出美国政府对恒大暴雷可能引发的全球财经后果深表担忧。
-(本文仅代表作者观点)
+现在GETTR已经集结了全世界数百万追求信息真相的人。越来越多的有良知有信仰追求正义自由的力量，都聚集在G系列。坚信我们可以战胜邪恶，唤醒人们，正义必胜！人们必将走向跨时代的明天！
 
-参考链接：[布林肯呼吁北京停止“挑衅”台湾并负责任地处理恒大债务危机](https://www.voachinese.com/a/Blinken-urges-China-to-halt-provocative-actions-toward-taiwan-20211006/6259852.html)
+（文章仅代表作者个人观点，与GNEWS无关）
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审：文龙
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团 / 喜马拉雅的微尘*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

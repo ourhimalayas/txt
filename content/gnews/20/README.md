@@ -2,20 +2,33 @@
 ---
 
 
-## 病毒感染下降，警惕中共再放新毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1579199/)
+## 新西兰护卫舰加入英国航母编队穿行南海
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579278/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/09/wer.png)
-据“界面新闻”10月7日报道，全球新增新冠确诊病例和死亡人数继续下降，联合国根据世界卫生组织的数据，上周报告310万新增确诊病例和54000多例新增死亡病例。
+栏目记者/责任编辑：飞虹
 
-世卫组织在其每周一次的流行病学更新发布会上表示，与前一周相比，新病例减少9%，而死亡人数大体稳定。 这延续了自8月以来观察到的趋势。在9月27日至10月3日这一周，除欧洲与前一周保持稳定外，所有地区的新增病例数均有所下降。每周新增病例减少最多的是非洲（43%），其次是东地中海（21%）、东南亚（19%）、美洲（12%）和西太平洋（12%）。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-当前，中共病毒感染病例下降是全球反疫苗运动不断兴起和病毒解药不断推广的结果。但最近也在全球多地相继报道发现新的病毒，对此，世界仍要警惕中共释放新的病毒毁灭世界。
 
-信息来源：[世卫组织：全球新增新冠确诊病例和死亡人数继续下降](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_8915190536729933775%22%7D&amp;n_type=-1&amp;p_from=-1)
 
-免责声明：文章仅代表作者本人观点，与GNEWS无关
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/樱花团-2.jpg)
+新西兰皇家海军昨日宣布，“特卡哈”号护卫舰加入军事伙伴行列，将穿行南中国海，参加一次重大国际防务演习。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1007-AM（4-6）.003.jpeg)
+上个月新西兰国防军宣布该艘军舰将参加“五国联防”成员国于10月份在新加坡举行的“2021五国金禧演习”，并在印太地区与英国皇家海军“伊丽莎白号”航空母舰打击群进行互动演练。 近日该护卫舰已加入英国航母打击群，并与包括美国海军航母“卡尔·文森”号和“罗纳德·里根”号在内的盟国舰队进行了演习和训练活动。
+
+中共长期声称，南中国海岛礁自古以来就属于中国，并对南中国海大部分海域都提出了主权声索，进行了大规模填海造岛、修建军事设施的行动。 然而国际海洋海事法庭已认定中方对南中国海的主权声明为“非法”。亚太及台海局势持续紧张情况下，各国海军近期频繁穿行南中国海进行警告性演习，都是在以实际行动抵制中共的海洋霸权。
+(本文仅代表作者观点)
+
+参考链接：[新西兰护卫舰加入英国航母编队穿行南中国海](https://www.voachinese.com/a/new-zealand-warship-joins-uk-carrier-group-on-transit-of-south-china-sea-20211006/6260154.html)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：FoxRina
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,18 +2,15 @@
 ---
 
 
-## 樱花灭共诗——倒路客（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1579345/)
+## 2021年10月7日 文贵先生盖特 10
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1579498/)
 
-#### 作者：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
-客值胜地路前倒，侧目同游或动颦。
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-毒疫无形同未见，且惜风景待年春。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-15.jpg)
-(本文只代表作者观点，与GNews网站无关)
+10/12/2018, Miles Guo was accused of the so-called “crime of forced trading”, which is 100% false, completely following the orders of Fu Zhenghua, Meng Jianzhu, Sun Lijun and Wang Qishan
 
-*插图：东京樱花团/闪闪*
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)
+10/12/2018 文贵被指控所谓的​​“强迫交易罪”，这百分之百都是假的，完全是执行傅政华，孟建柱，孙力军，王岐山的命令
+
+[【2021年10月7日】文贵先生盖特原文](https://gettr.com/post/pdg9f07d88)
+
+**喜联盟Gnews编辑部**

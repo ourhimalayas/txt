@@ -2,23 +2,15 @@
 ---
 
 
-## G系列媒体平台给你真相
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1579336/)
+## 2021年10月7日 文贵先生盖特 9
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1579466/)
 
-#### 撰稿：东京樱花团/小小星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/9FA703BD-56CA-4C91-84C4-20880DFF0AC8.jpeg)
-自从中共病毒来到这个世界上，人类就没有了安宁的日子。死亡和各种灾难一夜之间从中国大地，迅速传遍了香港及世界。就连美国这个人间的天堂，也变成了黑暗之极。
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-疫情严重扩散，死亡人数不断增长，但硫酸羟氯喹、伊维菌素、青蒿素和地塞米松这些廉价而有效的药物，却都被各种权力所恶意打压而让人们难以获取，导致全球死亡已接近五百万人。中共病毒之后，又用强制接种疫苗来继续控制着人们，设置层层关卡难为民众，不打疫苗诸事不顺，寸步难行。虽然觉醒的人们已经渐渐增多，但大多数人仍旧被国家机器、假媒体和假科学家所欺骗。
+Sep 7th,2017, Miles Guo revealed that even though Fu Zhenghua was under protection of Xi Jinping, he will be killed sooner or later as he knew too much hidden dirt of Wang Qishan, Meng Jianzhu and Sun Lijun
 
-当香港的学生和平游行被警察枪杀的时候，世界上很多人都以为此事离自己很远。但当澳、法、美等国家的人们进行反疫苗游行时，却发生和香港一样的事情。当人们在各种社交媒体发出真正声音时，又立刻被社交媒体屏蔽或删除！世界已经到了黑暗之极的时刻！
+2017年9月7日文贵爆料恶人傅政华虽然有习的保护，但是早晚都会被弄死，因为他知道的王孟孙的黑材料太多了
 
-整个世界只有我们的G系列媒体平台——GTV，GNEWS，GETTR在传播真相，在漆黑的世界里露出一丝光亮，不停地告诉世界关于中共病毒和疫苗的真相！
+[【2021年10月7日】文贵先生盖特原文](https://gettr.com/post/pdfgdt4b15)
 
-现在GETTR已经集结了全世界数百万追求信息真相的人。越来越多的有良知有信仰追求正义自由的力量，都聚集在G系列。坚信我们可以战胜邪恶，唤醒人们，正义必胜！人们必将走向跨时代的明天！
-
-（文章仅代表作者个人观点，与GNEWS无关）
-
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**喜联盟Gnews编辑部**
