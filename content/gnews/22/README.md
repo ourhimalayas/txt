@@ -2,13 +2,13 @@
 ---
 
 
-## 2021年10月7日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1579409/)
+## 2021年10月7日 文贵先生盖特 6
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1579419/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
-一名中国警察首次接受CNN采访揭露维吾尔人在新疆所遭受的监禁和虐待 A Chinese policeman who interviewed by CNN first time exposes imprisonment and torture of Uyghurs in Xinjiang
-
-[【2021年10月7日】文贵先生盖特原文](https://gettr.com/post/pdfid26d80)
+10月7号：尊敬的战友们好……太多战友给我发信息，要求直播啦，受不了啦，马上开始乱聊直播。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2ed728637a1e9667ffdd6d99fa94bcd2.jpg)
+[【2021年10月7日】文贵先生盖特原文](https://gettr.com/post/pdfw2o3703)
 
 **喜联盟Gnews编辑部**

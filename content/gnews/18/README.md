@@ -2,15 +2,15 @@
 ---
 
 
-## 2021年10月7日 文贵先生盖特 8
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1579453/)
+## 2021年10月7日 文贵先生盖特 9
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1579466/)
 
 编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-11/13/2018 Miles Guo: Fu Zhenghua showing up to “protect” private enterprises is the biggest irony in the world!
+Sep 7th,2017, Miles Guo revealed that even though Fu Zhenghua was under protection of Xi Jinping, he will be killed sooner or later as he knew too much hidden dirt of Wang Qishan, Meng Jianzhu and Sun Lijun
 
-11/13/2018 傅政华出来替民营企业护航，简直是天下最大的讽刺！
+2017年9月7日文贵爆料恶人傅政华虽然有习的保护，但是早晚都会被弄死，因为他知道的王孟孙的黑材料太多了
 
-[【2021年10月7日】文贵先生盖特原文](https://gettr.com/post/pdf97uc0e9)
+[【2021年10月7日】文贵先生盖特原文](https://gettr.com/post/pdfgdt4b15)
 
 **喜联盟Gnews编辑部**

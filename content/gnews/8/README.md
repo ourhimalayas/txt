@@ -2,25 +2,45 @@
 ---
 
 
-## 俄罗斯外交部称美国在欧洲的核武器已升级
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1579624/)
+## 芬兰、瑞典和丹麦宣布停止将Moderna中共病毒疫苗用于年轻男性
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1579628/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+作者：纽约香草山农场 – 四季
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/R-scaled.jpg)brookings.edu
-美东时间10月7日报道，俄罗斯外交部不扩散和军备控制司司长弗拉基米尔∙叶尔马科夫日前表示，美国正在对其在欧洲国家境内的非战略核武器进行现代化改造，包括运载工具。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-叶尔马科夫称，“美国违反了《不扩散核武器条约》（NPT）规定的义务，在无核欧洲国家的领土上部署了非战略核武器，并且正在对其进行现代化改造，包括运载工具。”
 
-他表示，北约绕过NPT的“联合核任务”的做法仍在继续，包括联盟中的非核武器成员的参与。
 
-早些时候，美国国务院解密了美国武库中的核弹头数量数据。因此，到去年9月，美国有3750枚现役核弹头。声明中称，“这比1989年底柏林墙倒塌时的数字（22,217）少了约83%。”国务院指出，从1994财年到2020财年，美国已经拆除了超过11680枚核弹头，自2017年9月30日以来拆除了711枚。现在还有大约2000枚已经退役，将被拆除。
 
-今年2月，俄罗斯和美国延长了《进一步削减和限制进攻性战略武器措施条约》（START），该条约规定双方部署的核弹头各方不得超过1550枚。部署的洲际弹道导弹（ICBM）、潜射弹道导弹（SLBM）和战略导弹轰炸机的数量应不超过700架，重型轰炸机不超过800架。
 
-根据美国国务院的数据，到9月1日，美国有2854件战略进攻性武器，而俄罗斯有2727件。美国在欧洲的核武器数量没有被披露。
+据[零对冲](https://www.zerohedge.com/covid-19/finland-joins-sweden-denmark-limiting-use-modernas-jab-young-men)10月7日报道，在确定Moderna公司的Covid-19疫苗对接种人群尤其是年轻人造成包括心脏炎症在内的罕见、但有害的副作用风险后，北欧国家芬兰、瑞典和丹麦都宣布停止将其用于特定年龄组。
 
-参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1166-1-JAB_1.jpg)图片来源：零对冲
 
-[https://www.rbc.ru/rbcfreenews/615e26759a79470d85661c98](https://www.rbc.ru/rbcfreenews/615e26759a79470d85661c98)
+瑞典公共卫生局要求立即停止将Moderna的SpikeVax疫苗用于所有1991年以后出生的年轻人。丹麦已经对12至17岁的儿童实施了该药物的禁令。芬兰也将停止对年轻男性使用这种疫苗。
+
+这项涉及芬兰、瑞典、挪威和丹麦的北欧研究结果将在几周内公布。初步数据已经被送往欧洲药品管理局（EMA）进行进一步评估。EMA是泛欧盟的药品监管机构，早在7月就确定在一些年轻的男性患者中发现了罕见的心脏炎症病例。
+
+越来越多的研究结果显示中共病毒疫苗的风险，相信会有更多的国家不得不采取相应措施应对。
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

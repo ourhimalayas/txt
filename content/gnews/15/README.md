@@ -2,15 +2,27 @@
 ---
 
 
-## 2021年10月7日 文贵先生盖特 10
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1579498/)
+## 台湾危机迫在眉睫 各方势力角逐海上话语权
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1579502/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-10/12/2018, Miles Guo was accused of the so-called “crime of forced trading”, which is 100% false, completely following the orders of Fu Zhenghua, Meng Jianzhu, Sun Lijun and Wang Qishan
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-7.png)
+文章仅代表作者本人观点，与Gnews无关
 
-10/12/2018 文贵被指控所谓的​​“强迫交易罪”，这百分之百都是假的，完全是执行傅政华，孟建柱，孙力军，王岐山的命令
+视频参看：2021.10.07早GTV新闻访谈
 
-[【2021年10月7日】文贵先生盖特原文](https://gettr.com/post/pdg9f07d88)
+[https://gtv.org/broadcast/watch/615ee7a7304e992109b0eef1](https://gtv.org/broadcast/watch/615ee7a7304e992109b0eef1)
 
-**喜联盟Gnews编辑部**
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

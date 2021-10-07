@@ -2,21 +2,21 @@
 ---
 
 
-## 美参议院两议员致函蔡英文，承诺支持台湾
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579233/)
+## 布林肯呼吁中共负责任妥善处理恒大危机
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579249/)
 
-栏目记者/责任编辑：云豹
+栏目记者/责任编辑：在远方
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-美国参议院外交委员会主席梅南德兹、及军委会首席殷荷菲6日共同致函台湾总统蔡英文，除恭贺中华民国国庆外，也对中共军机近日频频扰台的行动表示了关切。称将呼吁国际社会联手捍卫台湾民主价值，承诺会持续支持台湾。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1007AM（1-3）視頻備用.005.jpeg)
-两位议员在信函中向蔡总统表示，台湾站在面对中共挑战的最前线，他们很骄傲能在美国国会中推动立法行动，强化台湾安全与美台双边伙伴关系，称 “捍卫台湾人民与政府所体现的民主价值、自由市场原则，比以往任何时候都更为重要”。表明虽然面临中共日益严峻的威胁态势，但台湾也得到越来越多国家，政府以及政要的公开支持,包括军事行动和舆论发声,  这些都是在向蠢蠢欲动的中共释放警告的信号! 
+美国国务卿 布林肯正在巴黎访问，在接受当地电视媒体采访时，他呼吁中共停止针对台湾的挑衅行动，同时称北京应该以负责任的行动处理恒大债务危机带来的影响。布林肯作为国务卿对一家中国企业的财务危机如此关注，无疑验证了文贵先生爆料所揭示的内幕。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1007-AM（4-6）.001.jpeg)
+恒大是盗国贼用来攫取全世界资金的白手套代理之一，华尔街与西方暗黑沼泽地势力勾结共产党盗国贼，将西方社会的养老保险基金投入到中共操纵的恒大、碧桂园、保利等地产公司，以及由地方债改头换面而成的各种基金中，在蓝金黄和巨大的利益面前，所有人都无视这些企业和基金的虚假报表，其结果就是全球众多发达国家的的养老医疗保险基金被套牢，一旦这些中概企业爆雷，所牵涉的地方债和隐形债也根本找不到责任人和抵押资产，所有的投资将血本无归！布林肯的这番话，体现出美国政府对恒大暴雷可能引发的全球财经后果深表担忧。
 (本文仅代表作者观点)
 
-参考链接：[美參院外委軍委領袖致函蔡總統 關切共機擾台](https://www.cna.com.tw/news/aipl/202110070017.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+参考链接：[布林肯呼吁北京停止“挑衅”台湾并负责任地处理恒大债务危机](https://www.voachinese.com/a/Blinken-urges-China-to-halt-provocative-actions-toward-taiwan-20211006/6259852.html)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
