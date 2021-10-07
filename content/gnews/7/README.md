@@ -2,216 +2,43 @@
 ---
 
 
-## 每日快报：中台军事紧张局势“40年来最严重”
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1578724/)
+## 10/07/2021 国际财经快讯：美国考虑释放紧急石油储备以降低天然气价格；欧美争夺国际结算份额首位
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1578749/)
 
-*作者：*文零
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211007-1.jpg)[图片来源](https://caspiannews.com/news-detail/us-plans-to-disconnect-iran-from-swift-banking-system-may-not-matter-2018-10-25-33/)
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
-# ***今日摘要***
+**1.新一代半导体材料专利竞争力：日美企业垄断前五**
 
-1. [中台军事紧张局势“40年来最严重”](https://www.bbc.com/news/world-asia-58812100)
-2. [中共国“试水”闪电战入侵台湾](https://www.newsmax.com/platinum/china-taiwan-military-pressure-warplanes/2021/10/06/id/1039337/)
-3. [辉瑞游说达到十年来的最高水平，数十名高调的政治任命人员成为大型制药代表](https://thenationalpulse.com/exclusive/pfizer-and-moderna-increase-lobbying-efforts/)
-4. [默克向美国收取政府资助制造的新冠药丸成本40倍的费用](https://www.zerohedge.com/covid-19/merck-charging-us-40-times-what-it-costs-make-govt-financed-covid-pill)
-5. [随着中共国面临经济危机，许多中共国制造商每周只工作1天——31个省中的20个实施电力配给](https://www.thegatewaypundit.com/2021/10/exclusive-chinese-manufacturers-working-1-day-week-china-faces-economic-crisis/)
+[日美企业垄断了新一代半导体材料碳化硅（SiC）相关专利的前5位。从事专利分析的日本Patent Result公司的统计显示，涉足碳化硅半导体基板的美国科锐（Cree)排在首位，第2～5位是罗姆和住友电气工业等日本企业。根据截至7月29日发布的美国专利数据，通过数量和关注度计算了分数。碳化硅被用作替代现有的硅半导体基板材料，有助于提高功率半导体的性能和节能化。在纯电动汽车（EV）和光伏发电系统的逆变器等领域，碳化硅的应用范围不断扩大。在脱碳化社会之下，需求有望扩大。](https://cn.nikkei.com/industry/itelectric-appliance/46260-2021-10-07-11-45-44.html)
 
+**2.欧美争夺国际结算份额首位**
 
-# 重要事件
+[围绕用于贸易和汇款等国际结算的货币份额，美元和欧元争夺首位宝座的态势正在加强。在新冠疫情扩大的2020年以后，美元计价比率较高的全球贸易陷入低迷，另一方面，资金流入以复兴债券发行等为背景的欧元区，美元的份额下降。美元一强格局正在因疫情产生变化。运营全球银行汇款系统的环球银行金融电信协会（SWIFT）的统计显示，8月的美元份额为40.04％，与疫情前的2019年8月相比下降约2个百分点。到2020年7月降至38.77％，时隔1年零4个月低于4成，以后维持低位运行。另一方面，欧元2021年8月的份额为37.95％，排在仅次于美元的第2位，但相比2019年8月上升超过5个百分点。2020年10月一度超过美元，跃居份额首位，2021年5月也曾反超美元。](https://cn.nikkei.com/politicsaeconomy/efinance/46261-2021-10-07-13-43-09.html)
 
-- **10.06.BBC: [中台军事紧张局势“40年来最严重”; China-Taiwan military tensions ‘worst in 40 years’](https://www.bbc.com/news/world-asia-58812100)**
+**3.美国考虑释放紧急石油储备以降低天然气价格**
 
+[本周美国汽油价格飙升至每加仑3.21美元，创下7年来的最高价格。GasBuddy石油分析主管帕特里克德汉表示，到本月底，油价可能高达每加仑3.30美元。美国能源部长詹妮弗·格兰霍尔姆出席英国《金融时报》能源转型战略峰会时周三表示，拜登政府正在考虑释放紧急石油储备，作为缓解全球能源危机的几种选择之一。OPIS能源分析全球主管汤姆·克洛扎警告说，随着当前需求的增长，取暖油和柴油价格可能会”难以置信”地上涨。](https://www.foxbusiness.com/markets/us-emergency-oil-reserves-lower-gas-prices-granholm)
 
-台湾国防部长表示，与中共国的紧张局势处于40年来最严重的水平，并警告两国之间可能发生意外袭击。邱国诚的评论是在中共国连续四天向台湾防空区派出“创纪录数量”的军用飞机之后发表的。台湾认为自己是一个主权国家。然而，中共国将台湾视为一个分离的省份。它不排除可能使用武力来实现统一。虽然中共国的飞机还没有一路飞到岛上，但邱先生警告说存在“失火”的风险。它监视威胁的台湾防空区延伸到覆盖台湾海峡和中共国大陆大片地区的区域。他们认为喷气式飞机穿越中共国和台湾之间的非官方界线是一种入侵。
+**4.国际货币基金组织总裁格奥尔基耶娃说，她在世界银行调查时被律师事务所误导**
 
-邱先生还警告说，到2025年，中共国将有能力全面入侵该岛。他是在台北议会委员会审议一项数十亿美元的国防开支法案以建造导弹和军舰时发表讲话的。他承认中共国已经具备入侵的能力，但他表示，未来几年这样的举动会变得更容易，但他没有详细说明。
+[路透华盛顿10月6日电—国际货币基金组织总裁克里斯塔利娜·格奥尔基耶娃周三表示，威尔默黑尔律师事务所在担任世界银行首席执行官期间错误地描述了她的行为，并向她保证，她参与调查是保密的。在向IMF执行董事会发表的一份详细声明中，乔治耶娃驳斥了威尔默黑尔的结论，即她和其他世界银行高级官员向工作人员施压，要求他们改变数据，以利于中国，并说她被告知自己不是调查的对象。她否认她向世界银行工作人员施压，要求他们采取任何行动改变中国在2018年《营商报告》中的排名，并拒绝将排名与世界银行（World Bank）拟议增资联系起来。](https://www.reuters.com/business/imf-chief-georgieva-says-she-was-misled-by-law-firm-world-bank-probe-2021-10-06/)
 
-- **10.06.NEWSMAX: [中共国“试水”闪电战入侵台湾;China ‘Testing the Waters’ With Taiwan Incursion Blitz](https://www.newsmax.com/platinum/china-taiwan-military-pressure-warplanes/2021/10/06/id/1039337/)**
+**5.IAC 的 Dotdash 以 2.7 亿美元的价格收购杂志出版商梅雷迪斯**
 
+[10月6日（路透社） -IAC的数字媒体部门Dotdash周三同意以约27亿美元的价格收购梅雷迪斯公司（MDP.N），将《人物》、《阿雷西普斯》和《投资》等公司放在一个保护伞下。两家公司表示，合并后的公司将被称为多达什梅雷迪斯，将由多达什首席老板尼尔·沃格尔领导。这笔交易将把梅雷迪斯的40多个品牌，包括《更好的家园与花园》、《南方生活》和《InStyle》杂志，与多达什的数字品牌，如云杉、拜迪和新娘。](https://www.reuters.com/business/media-telecom/iacs-dotdash-buy-magazine-publisher-meredith-27-bln-deal-2021-10-06/)
 
-过去几天，中共国向台湾派遣了创纪录数量的战机，从而加大了对台湾的军事压力——中共国鹰派人士称，这一事态发展可能标志着“新阶段的开始”——岩石关系。在过去的一年里，尽管台湾和中共大陆自内战结束70多年以来一直分开治理，但随着共产党官员加强“一个中共国”的言论，台湾报告称中共的侵略和军事演习有所增加。尽管北京已经明确表示，它最终希望完全控制台北——据称将通过任何必要的方式获得它——尽管战斗机、具有核能力的轰炸机、反潜飞机以及机载预警和控制飞机自周五以来已进入台湾防空识别区，但中共国鹰派并不认为入侵台湾迫在眉睫。
+**6.NASA称波音的Starliner今年不会再次尝试发射**
 
-“中共现在正在试水。“在美国空军服役25年、在传统基金会担任国防政策高级研究员的约翰·维纳布尔(John Venable)说。“这是一个动荡的时期。”中共国人民解放军空军避免进入台湾的主权领空，该领空被定义为距其海岸线12海里。然而，这些航班已经进入了台湾的防空识别区，维纳布尔说台北可以通过无线电警告和战斗机拦截来应对该区域。虽然防空识别区不被国际法承认，但许多国家监控进入该区域的所有空中交通。
+[美国国家航空及太空总署(NASA)官员周三说，波音公司(Boeing Co., BA)的太空飞船Starliner今年将不会再次尝试发射，两名原定乘坐该飞船飞行的宇航员被重新分配到未来使用SpaceX飞船的一次任务。今年夏天，波音公司和NASA曾计划在没有宇航员的情况下发射Starliner前往国际空间站。发射该飞船到太空的火箭在搭乘宇航员之前必须完成测试飞行。波音公司和NASA 8月推迟了一项测试发射，因为Starliner推进系统的一些阀门在发射前卡住了。NASA的项目经理Steve Stich在周三的吹风会上说，今年不会再有机会完成Starliner的演示飞行，因为有其它飞行任务到空间站和其它发射。](https://cn.wsj.com/articles/nasa%E7%A7%B0%E6%B3%A2%E9%9F%B3%E7%9A%84starliner%E4%BB%8A%E5%B9%B4%E4%B8%8D%E4%BC%9A%E5%86%8D%E6%AC%A1%E5%B0%9D%E8%AF%95%E5%8F%91%E5%B0%84-11633565708)
 
-中共在10月1日庆祝国庆节时发起了入侵，这是一个标志着中华人民共和国成立的节日。中共问题专家、作家章家敦指出，许多分析人士将中共国的行为归结为为庆祝国庆而“捶胸”和“发泄”的一种方式。但他担心越来越多的空中入侵可能表明中共国正朝着“更加黑暗的方向”前进。“这是朝着一个可能导致灾难的方向发展，”他说。由于中共国避免直接渗透台湾领空，维纳布尔认为，最近的入侵激增可能是为了使这种侵略性军事活动基本正常化，并迫使人们“习惯”中共国的噪音和存在。另一方面，他说这可能是对更大包裹的预演，最终导致企图进行攻击。他指出，周一创纪录的65架战机具有“基本上你需要进入并对一个地区或地区进行全面攻击所需的一切”。维纳布尔说，中共可能会挑衅台湾，看看它的国防是否做出反应——这可能会引发一场足以让中共指责台湾挑衅行为的事件。或者，他说，中共可能是在考验美国，看看它在混乱的阿富汗撤军后对盟国的忠诚度如何。“这是美国国际疲软的时期。”维纳布尔说。“台湾每天甚至每小时都收到来自中共的信息，说他们不能相信美国会帮助他们。”章家敦说，中共国在10月10日的行为，在台湾被称为双十日或双十日，可以“给我们一个真正的线索，了解事情的走向。”他指出，在最近的空中入侵之前，中共国“做了一些更具挑衅性的事情”，而不仅仅是“切开台湾防空识别区的西南角”，并指出环岛飞行和海军演习等行为。他说，如果中共国在10月10日采取行动，这可能是“新阶段的开始”，也可能是“强化阶段”。虽然这一天不太可能标志着中共国寻求统一台湾与大陆的“终局”，但“任何事情都有可能发生”。“如果你告诉我第三次世界大战下周开始，我不会感到惊讶，”“如果你告诉我什么都不会发生，我也不会感到惊讶。一切皆有可能。”与之前的中共国行动相比，这一系列入侵的突出之处在于台湾的反应。他指出，在中共国周一向台湾的防空识别区派遣了56架飞机后，台湾官员的公开声明表明，他们比之前的情况“更加担心”。
+**7.亚马逊的 Twitch 受到数据泄露的打击**
 
-周二，苏曾昌总理表示，台湾需要警惕中共国“过头”的军事野心。他说：“世界也看到中共国一再违反地区和平和对台湾施压，”他补充说，台湾需要“自强”，团结起来。“只有这样，想吞并台湾的国家才不敢轻易动武。只有我们自己帮助自己，别人才能帮助我们。”台湾总统蔡英文还为外交事务撰写了一篇评论文章，她发誓台湾不会屈服于压力。她写道：“在中共国人民解放军几乎每天都在干涉的情况下，我们在两岸关系上的立场是不变的：台湾不会屈服于压力，但也不会冒险，即使它得到了国际社会的支持。”由于台湾正在认真对待军事压力，章家敦说美国也需要这样做。除了美国国务院发言人内德·普莱斯发表声明谴责中共国“对台湾施压和胁迫”外，章家敦还表示，拜登政府“似乎并没有认真对待这件事”。“美国需要做出更积极的回应，”“这是一个极其动荡的局势，软弱的拜登政府不愿意面对它。我们没有准备好与中共国发生全球冲突。”
+[10月6日（路透社） – Amazon.com 公司（AMZN.O）直播电子竞技平台Twitch周三表示，它受到数据泄露的打击，但没有提供进一步的细节。据《视频游戏纪事报》报道，一名匿名黑客声称泄露了Twitch数据，包括与公司源代码、客户和未发布的游戏相关的信息。Twitch证实了这一违规事件，并表示其”团队正在紧急工作，以了解其程度”。该公司拒绝进一步置评，并表示将”在获得更多信息后立即向社会通报最新情况”。亚马逊没有立即回应置评请求。](https://www.reuters.com/technology/amazons-twitch-hit-by-data-breach-2021-10-06/)
 
-- **10.06.National Pulse：[辉瑞游说达到十年来的最高水平，数十名高调的政治任命人员成为大型制药代表；Pfizer Lobbying Hits Decade High as DOZENS of High-Profile Political Appointees Become Big Pharma Reps.](https://thenationalpulse.com/exclusive/pfizer-and-moderna-increase-lobbying-efforts/)**
+**8.美国汽车经销商库存跌至历史新低**
 
+[美国9月份轻型车销量经季节性调整按年率计算为每辆12.2MM，每辆12.3MM，低于12.5MM的一致预期。处于12MM低位的美国SAAR从2020年9月的约16.3MM下降约25%，与8月的SAAR约13.1MM环比下降约1位数。库存下降的最大原因是库存水平持续创历史新低。9月份，汽车销量同比下降约33%，SUV销量同比下降约20%，皮卡销量同比下降约30%。皮卡和SUV占总销量的比例分别为19%和55%（2020年9月为20%和51%）。根据汽车情报，福特9月份销量同比下降约18%，通用汽车销量同比下降约53%。福特9月份的市场份额从14%上升至15%，通用汽车的市场份额从17%降至11%。](https://www.zerohedge.com/markets/inventory-us-car-dealers-falls-new-record-low)
 
-自 2019年以来，两家依赖疫苗的公司的游说机构——就雇佣的游说者人数和为影响政府官员而部署的总体预算而言——都出现了急剧增加。这一消息是在隐形摄像机镜头显示辉瑞公司的一名科学家承认的一天后发布的：“基本上，我们的组织现在是靠COVID资金运作的。”许多新聘用的大型制药公司都来自与现任白宫和乔·拜登总统本人有着深厚历史联系的咨询公司。仅在10月，辉瑞就聘请了乔·拜登(Joe Biden)担任副总统期间的前立法事务主管苏达菲·亨利(Sudafi Henry)。最近的另一位雇员是Kwabena Nsiah，他是卫生与公共服务部(HHS)秘书Xavier Becerra的前工作人员，也是白宫公众参与办公室主任的高级助手。Nsiah还在国会工作了八年多，最近担任国会黑人核心小组的政策主任和联合经济委员会的高级政策顾问。
-
-辉瑞强大的游说团队包括共和党总统政府和国会办公室的校友。贾斯汀·麦卡锡（Justin McCarthy）曾在乔治·W·布什（George W. Bush）领导下担任总统立法事务特别助理，而本·霍华德（Ben Howard）曾在唐纳德·特朗普（Donald Trump）领导下担任总统副助理兼立法事务副主任，都为这家制药巨头游说。担任共和党领袖米奇·麦康奈尔(Mitch McConnell)部长职务的参议院共和党长期工作人员戴维·夏帕(David Schiappa) 也在为辉瑞游说。
-
-辉瑞（Pfizer）最近获得了第三剂COVID-19疫苗的批准，该公司大幅增加了游说预算。2019年，该公司在游说活动上花费了11,000,000美元，然后将总额增加到13,150,000美元——这是自2010年以来的最高总额。2019年，该公司保留了77名说客，2020年总人数增长到102名说客。截至2021年，辉瑞已宣布有92名说客。虽然Moderna在2019年全年只保留了一名说客，并在第二年增加了一名说客，但在2021年，该公司已经额外聘请了12名说客，这意味着公司的总游说力量增加了600%。2019年，Moderna在游说上花费了40,000美元，2020年花费了280,000美元，而在2021年的一半时间里，该公司已经花费了290,000美元。然而，真正的丑闻体现在最近为大型制药公司工作的民主党和共和党办公室的政治特工数量之多。
-
-National Pulse 汇总了辉瑞和Moderna单独宣布的名单（详见原文）。该列表包括他们以前的工作或隶属关系。在列出的83人中，许多人来自白宫、总统候选人、众议院议长办公室和一些国会办公室等高层背景。
-
-- **10.06.ZeroHedge: [默克向美国收取政府资助制造的新冠药丸成本40倍的费用；Merck Charging US 40 Times What It Costs To Make Govt-Financed Covid Pill](https://www.zerohedge.com/covid-19/merck-charging-us-40-times-what-it-costs-make-govt-financed-covid-pill)**
-
-
-据The Intercept援引哈佛商学院上周发布的一份报告称，默克公司的新型“非伊维菌素”Covid-19治疗药物莫诺匹拉韦的生产成本为17.74美元——但该公司向美国政府收取712美元的治疗费用——加价40倍。该数据引自哈佛公共卫生学院和位于伦敦的国王学院医院。该药丸最初是使用美国政府资金开发的，作为委内瑞拉马脑炎的一种可能治疗方法，在一项随机试验中将住院和死亡的风险降低了一半，该试验对775名患有轻度/中度Covid的成年人进行了随机试验，这些成年人被认为因合并症而具有高患病风险比如肥胖、糖尿病和心脏病。该试验提前停止，因此公司可以申请紧急使用授权（EUA）。该药物并没有使已经因严重疾病住院的患者受益。
-
-上周，口服“神奇药物”的消息使默克的股价上涨，因为该公司表示，它可以在年底前提供10MM剂量。显然，这种药丸可以为默克及其药物合作伙伴Ridgeback Biotherapeutics带来巨额利润——该公司于2020年从埃默里大学获得了该药物的许可，然后将该药物的全球权利出售给默克，金额尚未披露。与此同时，据非营​​利组织知识生态国际发现，国防部下属的国防威胁减少局在2013年至2015年间为埃默里大学的药物开发提供了1000万美元的资金。
-
-- **10.06.Gateway Pundit: [随着中共国面临经济危机，许多中共国制造商每周只工作1天——31个省中的20个实施电力配给; Numerous Chinese Manufacturers Are Working Only 1-Day a Week As China Faces an Economic Crisis – 20 of 31 Provinces Roll Out Electricity Rationing](https://www.thegatewaypundit.com/2021/10/exclusive-chinese-manufacturers-working-1-day-week-china-faces-economic-crisis/)**
-
-
-中共国制造业萎缩的速度快于中共国或媒体所承认的。加上数万亿的企业和政府偿付能力问题，该国正面临金融危机。我们已经报道了许多涉及中共国房地产的公司最近面临的偿付能力危机。它始于恒大，现在已发现多家负债数十亿的公司存在偿付能力问题。Gateway Pundit 还报道了地方政府面临的偿付能力问题。据报道，还有8万亿美元隐藏在全国各地地方政府的账簿中。但可能还有更多。根据我们最近从中共国内部收到的信息，某些地区的制造业问题，例如东莞、深圳附近和香港对面，每周只工作3天或更少。（这座城市位于珠江三角洲，据报道约有5000万人居住在那里，使其成为地球上人口最多的地方。）但实际上可能更糟。据《南华早报》报道：中共国的中小型制造商(SME)大军受到全国性电力危机的重创，产量大幅下降，闷热的工作条件造成损失，而由于担心价格上涨，原材料和商品的恐慌性购买正变得司空见惯。
-
-一些生产商囤积库存或购买使用更小功率的设备，与中共国媒体周二报道说，至少20个司法管辖区都推出了电力配给措施，最近几周一直在削弱企业和家庭电力支出。随着需求飙升，蜡烛工厂急于满足订单，但随着过去一个月升级的危机恶化，大多数工厂和制造商都面临生产放缓、成本上升和利润下降的问题。“我们的产量至少下降了三分之一，而且我们只能从午夜工作到早上8点。工人们打瞌睡，效率比白天低很多。”广东东莞的鞋业生产商王杰说……“一些工厂甚至在仅运营一天后就被禁止生产[任何商品]六天。这听起来很荒谬，但这是真的。”
-
-中共国正面临经济危机或已经陷入危机，无论哪种方式，这都是一个严重的问题。
-
-# 每日文贵说
-![](https://himalayawashingtondc.org/wp-content/uploads/2021/10/2021-10-06-1024x576.jpg)
-# 更多要闻链接
-
-1. [美众议员呼吁恢复台湾邦交](https://www.epochtimes.com/gb/21/10/6/n13285655.htm)
-2. [拜登：与习近平谈到台湾，双方同意遵守“台湾协议”](https://www.voachinese.com/a/biden-xijinping-taiwan-20211005/6259051.html)
-3. [美国政府秘密命令谷歌追踪任何使用“关键字搜查令”搜索特定条款的人——引发人们担心无辜者可能会卷入严重犯罪](https://www.dailymail.co.uk/news/article-10063665/Government-orders-Google-track-searching-certain-names-addresses-phone-numbers.html)
-4. [没有封锁，瑞典的超额死亡人数少于欧洲大部分地区](https://www.zerohedge.com/covid-19/without-lockdowns-sweden-had-fewer-excess-deaths-most-europe)
-5. [重大进展！美军F-35B战机首次成功在日本直升机航母上起降](https://www.voachinese.com/a/us-japan-f-35b-20211006/6259259.html)
-
-
-# 每日推特文摘
-
-
-
-Want to win HDO?  Check out our new competition G U E S S & W I N! Open to our registered users, check your emails!
-
-想赢得 HDO？查看我们的新竞赛 GUESS & WIN！向我们的注册用户开放，检查您的电子邮件！
-
-
-
-
-
-> 🎁 🎁 🎁 Want to win HDO? 🎁 🎁 🎁 Check out our new competition G U E S S & W I N! Open to our registered users, check your emails![#himalayaexchange](https://twitter.com/hashtag/himalayaexchange?src=hash&amp;ref_src=twsrc%5Etfw) [#competition](https://twitter.com/hashtag/competition?src=hash&amp;ref_src=twsrc%5Etfw) [#crypto](https://twitter.com/hashtag/crypto?src=hash&amp;ref_src=twsrc%5Etfw) [#HDO](https://twitter.com/hashtag/HDO?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Himalaya Exchange Official (@himalayaxchange) [October 6, 2021](https://twitter.com/himalayaxchange/status/1445700988514361352?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-疫苗就是屠杀人类的阴谋计划，不要接种
-
-Vaccine is a conspiracy plan to kill human beings, don’t get it
-
-
-
-
-
-> 疫苗就是屠杀人类的阴谋计划，不要接种 Vaccine is a conspiracy plan to kill human beings, don't get it [https://t.co/ndneIjBaIF](https://t.co/ndneIjBaIF)
-> — 鹿克思 (@HimalayaLa8) [October 6, 2021](https://twitter.com/HimalayaLa8/status/1445674413769195522?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-大胡子医生：疫苗不是用来对抗病毒的，释放病毒是为了引入疫苗
-
-Dr. Zelenko: Vaccines are not for combatting the virus, but releasing the virus was to introduce the vaccines
-
-
-
-
-
-> 大胡子医生：疫苗不是用来对抗病毒的，释放病毒是为了引入疫苗
-> 
-> Dr. Zelenko: Vaccines are not for combatting the virus, but releasing the virus was to introduce the vaccines [https://t.co/pn0WSYoCAN](https://t.co/pn0WSYoCAN)
-> — 爰得我所 (@CarolZ20180214) [October 6, 2021](https://twitter.com/CarolZ20180214/status/1445748159209086984?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-一部抗美神剧“长津湖”，变成了揭露朝鲜战争真相的催化剂，也是区分脑残傻X的检测纸。
-
-
-
-
-
-> 一部抗美神剧“长津湖”，变成了揭露朝鲜战争真相的催化剂，也是区分脑残傻X的检测纸。 [pic.twitter.com/oXhN3Ncp14](https://t.co/oXhN3Ncp14)
-> — 没羽箭112 (@fQfEEj5mgK3d810) [October 6, 2021](https://twitter.com/fQfEEj5mgK3d810/status/1445710897540853766?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-The world sat back and watched Hong Kong’s democracy and freedom get squashed in broad daylight by China’s communist regime. Taiwan will NOT allow China to end its democracy and freedom. We hold all of China’s economic cards and we can win this fight without firing a shot.
-
-全世界都坐视不理，眼睁睁地看着香港的民主和自由在光天化日之下被中国共产党政权压制。台湾不会让中国结束它的民主和自由。我们拿着中国的经济底牌，我们可以不开枪打赢这场斗争。
-
-
-
-
-
-> The world sat back and watched Hong Kong’s democracy and freedom get squashed in broad daylight by China’s communist regime. Taiwan 🇹🇼 will NOT allow China to end its democracy and freedom. We 🇺🇸 hold all of China’s economic cards and we can win this fight without firing a shot. [https://t.co/wHEYUzozkj](https://t.co/wHEYUzozkj)
-> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [October 6, 2021](https://twitter.com/Jkylebass/status/1445701275329318918?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-比起放毒杀人，种族灭绝罪，中共赖账真不是什么事，主要也是确实没钱还了。
-
-然而可笑的是，杀人放火不会被灭，中共所有海外债务不还，却能让全世界都发疯！
-
-
-
-
-
-> 比起放毒杀人，种族灭绝罪，中共赖账真不是什么事，主要也是确实没钱还了。
-> 
-> 然而可笑的是，杀人放火不会被灭，中共所有海外债务不还，却能让全世界都发疯！😂😂😂 [https://t.co/s0HcZxGy3E](https://t.co/s0HcZxGy3E)
-> — 危船愚夫【澳喜特战旅】 (@OAtxBKAdTP6KIEz) [October 6, 2021](https://twitter.com/OAtxBKAdTP6KIEz/status/1445684314155339781?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-以钱灭共!千呼万唤始出来…..
-
-喜币即将面世!喜马拉雅支付系统蓄势待发.
-
-人类正起步迈向星际时代,
-
-新中国联邦区块链跨星系通用货币正在诞生…….
-
-喜币在手,遨游宇宙!
-
-
-
-
-
-> 以钱灭共!千呼万唤始出来…..
-> 喜币即将面世!喜马拉雅支付系统蓄势待发.
-> 人类正起步迈向星际时代,
-> 新中国联邦区块链跨星系通用货币正在诞生…….
-> 喜币在手,遨游宇宙!
-> 
-> #爆料革命#手绘招贴#传播真相#唤醒国人#20211006# [pic.twitter.com/sSbpsfAOr4](https://t.co/sSbpsfAOr4)
-> — Bo Lu II (文龍） (@BoLu213) [October 6, 2021](https://twitter.com/BoLu213/status/1445863413578665987?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-*编辑：文零
-审核发布：文顾*
+By 【秘密翻译组-金融组】
+作者：和理非

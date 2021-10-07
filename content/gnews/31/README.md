@@ -2,44 +2,36 @@
 ---
 
 
-## 一带一路十年，赞比亚债台高筑，经济恶化，引发社会动乱
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1578225/)
+## 美国司法部宣布成立国家加密执法团队
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1578457/)
 
-栏目记者：正义的小新
-责任编辑：文一
-
+- **编译：西班牙喜悦农场–wenwu**
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip261.png)
 
+我们需要确保人们在使用这些系统时能够充满信心，我们需要确保我们准备好根除可能影响他们的滥用行为，**”**丽莎**·**摩纳哥（**Lisa Monaco**）说。
 
+司法部长办公室的一位官员表示，美国政府将在针对利用加密货币洗钱和其他网络犯罪的行为人的执法行动中，发挥更积极的作用。
 
-赞比亚财政和国家部长周二表示，其政府外债总额为144.8亿美元，远远高于早先的129.1亿美元的数字，比预期至少高出12%。
+司法部副部长丽莎·摩纳哥周三（6日）在阿斯彭研究所网络峰会上发表讲话[说](https://www.youtube.com/watch?v=WfjGHD1n7gU)，司法部已经启动了国家加密货币执法小组，该项目旨在追查“帮助犯罪分子洗钱或隐藏犯罪收益”的平台。摩纳哥[引用了她的办公室](https://cointelegraph.com/news/darknet-crypto-mixer-operator-pleads-guilty-to-laundering-300m-in-btc)在 8 月针对基于暗网的比特币 ( [BTC](https://cointelegraph.com/bitcoin-price) ) 混合服务 Helix [所做的工作](https://cointelegraph.com/news/darknet-crypto-mixer-operator-pleads-guilty-to-laundering-300m-in-btc)，但她表示美国政府应该做更多。
 
-在过去十年里，赞比亚主要从中共国“一带一路”项目大量借款，以资助包括公路和铁路在内的大型基础设施项目。此后债务危机持续恶化，沉重的债务使财政赤字飙升，通货膨胀和食品价格飙升，激起了社会动荡。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-8.jpg)
-据悉，赞比亚至少欠中共国66亿美元。
+摩纳哥说：“我们希望加强我们的能力，拆除使这些犯罪行为人能够蓬勃发展的金融生态系统，并且—坦率地说–从他们的加密货币系统中获利；我们将利用我们的网络专家、网络检察官，以及洗钱专家来做到这一点。”
 
-去年赞比亚成为新冠疫情以来第一个主权违约国。
+她补充说：
 
-今年8月，赞比亚选民将现任总统埃德加-伦古赶下台，反对派领导人哈坎德-希切莱马以压倒性优势当选。分析人士称这是选民不愿意为高度负债的经济付出代价的体现。
+**“**加密货币交易所希望成为未来的银行。我们需要确保人们在使用这些系统时能够充满信心，并且我们需要确保我们准备好根除可能在这个加密货币系统上，发生的滥用行为。**”**
 
-中共的一带一路造成了发展中国家债台高筑，民怨载道！而为此买单，付出代价的却是两国民众。
+摩纳哥一直是美国政府应对涉及加密货币支付的重大勒索软件和网络攻击的核心人物。她是[一个特别工作组的成员](https://cointelegraph.com/news/us-officials-recover-2-3m-in-crypto-from-colonial-pipeline-ransom)，[该工作组](https://cointelegraph.com/news/us-officials-recover-2-3m-in-crypto-from-colonial-pipeline-ransom)在 5 月份俄罗斯对 Colonial Pipeline 系统进行攻击后，”发现并夺回了”支付给俄罗斯 DarkSide 黑客的价值数百万美元的比特币。
 
-（本文仅代表作者观点）
+副司法部长摩纳哥还宣布了一项民事网络欺诈计划，旨在追查未能报告违规行为并遵守安全标准的政府承包商。
 
-参考链接：[一带一路十年，赞比亚债台高筑，经济恶化，引发社会动乱](https://www.marketwatch.com/story/zambia-external-debt-much-higher-than-previously-thought-unsustainable-271633444901)
+（文章仅代表作者观点** **与**GNEWS**无关）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-04-at-21.43.18.png)
+**新闻来源：《[虚拟货币电报](https://cointelegraph.com/news/us-justice-dept-announces-launch-of-national-crypto-enforcement-team)》｜作者：特纳·赖特｜发布时间：2021年10月6日｜**
 
-终审编辑：Ryan
-校正/发稿：Hetangyuese
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+***发稿：信心满满***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)

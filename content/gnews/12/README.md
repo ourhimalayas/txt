@@ -2,88 +2,31 @@
 ---
 
 
-## 印尼排华的根本原因
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1578668/)
+## 潘多拉文件：促多国采取反洗钱行动
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1578703/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-11.jpg)https://gtv.org/video/id=615e88c7d2e2b81748722dab
-郭文贵：
-Miles Guo：
+#### 撰稿：致敬香港！
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/7-3.jpg)ttu图
+据国际调查记者联盟（ICIJ）网站10 月 6 日报道，自该联盟及其媒体伙伴3日开始公布《潘多拉文件》（Pandora Papers）、揭发多国离岸金融腐败之后，各地立法者和监管机构纷纷开始采取行动、回应调查。
 
-你去看一看，当年斯大林杀人的时候
-You should take a look at the time when Stalin was killing people
+**美国拟公布新法案**
 
-天天以杀人为乐，他也没被灭
-He was not exterminated even though he killed people for fun every day
+《潘多拉文件》来源于该联盟有史以来最大规模的调查行动，涉及90 多个国家/地区的 330 多名政治家的秘密交易和隐藏资产，和一系列的中间行业。针对该文件揭示的内容，美国两党预计将于周五公布一项具有里程碑意义的法案，以打击那些协助腐败客户转移脏钱的职业推手。美国民主党众议员马林诺夫斯基（Tom Malinowski）和柯蒂斯（John Curtis）表示，潘多拉文件披露的是迄今为止、他国腐败力量对美国构成历史性威胁的最清楚证明，敌对势力的数十亿美元的脏钱正在涌入美国。
 
-当年苏哈托杀华人的时候，你们仔细看看
-but look carefully, at the time that Suharto was killing Chinese people
+这项被称为《中间人法案》（Enablers Act）的举措，将要求各方职业人士确保不参与洗钱，涉及行业包括律师、会计师、房地产专业人士、信托管理人员、艺术品经销商、财务顾问和公关专家。法案将要求他们不仅要对业务资金的来源进行背景调查，而且须将任何来源可疑的资金和可疑活动向监管机构和律政官员报告。现有的法律仅要求银行报告可疑的金融活动，而未涉及到其他行业。反腐专家表示，这项法案的拟定已经超过两年，《潘多拉文件》揭露的各个行业正是该法案计划监管的对象，现在推出将恰到好处。
 
-苏哈托是华人的后裔，是华人睡了他妈，他妈生了12个孩子
-Suharto was a person of Chinese descent who slept his mother, who gave birth to 12 children
+国会反腐败顾问马萨罗（Paul Massaro）认为，全球性腐败是对民主制度生死存亡的威胁，他和德国马歇尔基金会“恶意金融”的研究员鲁道夫 (Josh Rudolph)列举了潘多拉文件中的多个调查案例，以助推新法案的通过：
 
-他爸爸抛弃了他妈，他从小恨华人
-His father abandoned his mother. He grew up hating the Chinese
+1. 美国避税天堂的可疑信托：一些被指控对世界上最弱势的群体犯有欺诈、贿赂或侵犯人权罪的个人或公司，通过代理人在南达科他州设立了近 30 个美国信托。
+2. 大型律所“麦坚时”：美国最大的律师事务所、贝克·麦坚时（Baker McKenzie）受雇于美国制裁的俄罗斯军火商、乌克兰寡头科洛莫伊斯基（Ihor Kolomoisky）和马来西亚逃亡金融家刘特佐（Jho Low），刘特佐被指控协助策划了两起世界上最大的涉嫌欺诈案。文件揭示了该公司如何成为离岸影子经济的规划师和中流砥柱、为大型银行和大型科技公司游说、并反对那些旨在加强金融监管和税法的提案。
+3. 约旦国王的房地产帝国：阿卜杜拉二世通过离岸公司在伦敦、华盛顿特区和马里布购买豪宅，交易总额达 1.06 亿美元。文件揭示了世界上最富有、和政治背景深厚的人如何利用空壳公司来逃避对国际房地产交易的审查，以及房地产经纪人帮助外国统治者转移不义之财的问题。
+4. 俄罗斯私密交易：普京的形象塑造者、恩斯特 (Konstantin Ernst) 在中间人的帮助下、通过离岸公司秘密收购了一项 10 亿美元房地产交易的股份。
+5. 被掠夺的柬埔寨宝藏：柬埔寨宝藏被盗，美国调查人员追查到臭名昭著的艺术品经销商拉奇福德（Douglas Latchford）后不久，他和家人就设立了拥有数十件文物的离岸信托。
 
-这小子是个投机分子，你要记住
-You should know that this kid was an opportunist
 
-苏哈托前面的总统是谁啊？叫苏加诺
-Who was the president before Suharto? Sukarno was
+**世界各地的回应行动**
 
-苏加诺是共产党，他已经把印尼交给中国共产党了，是吧？
-Sukarno was a communist, and he had given Indonesia to the Chinese communists, right?
+欧洲议会议员在当日的会议上讨论了潘多拉文件并敦促改革，以阻止利用空壳公司和在避税天堂设立的信托、助长逃税和其他金融犯罪。其中来自意大利的议员提出，当两位（欧洲）国家领导人和一位财政部长都在想方设法避税，如何要求公民做出自我牺牲？同时，《卫报》报道新加坡一家主要的金融监管机构正在审查离岸服务商盛亚信托（Asiaciti Trust），当局发言人表示，监管机构不容忍滥用金融体系从事非法活动。
 
-当时你知道他（苏哈托）上来以后，当总统怎么收拾他（苏加诺），为啥？
-Do you know what Suharto did to clean up Sukarno when Suharto became president? and why?
-
-他说苏加诺是亲共的
-He said Sukarno is pro-communist
-
-他（苏加诺）把这个60万华人、110万华人是要卖给印尼的
-He （Sukarno） was about to sell these 600,000 Chinese people, these 1.1 million Chinese people to Indonesia.
-
-他其实充分的挑拨了当时印尼的军方，还有共产党关系
-He actually did enough to provoke the Indonesian military and the Chinese Communist Party at the time.
-
-你知道当时是110万华人被人修理了，60万人被杀害呀
-Do you know that 1.1 million Chinese were beaten up and 600,000 were killed?
-
-一夜之间，曾有7万人被奸、被杀呀
-In one night, 70,000 people were raped and killed
-
-你们想过吗？兄弟姐妹们，那是共产党惹的祸
-Have you ever thought about it? Brothers and sisters, it was the Communist Party that caused the trouble
-
-共产党要统治印尼（实行）共产主义
-The Communist Party wanted to rule Indonesia and to enforce communism.
-
-苏加诺要把它（共产主义）加给（印尼）
-Sukarno wanted to bring communism to Indonesia.
-
-这时候苏哈托利用这个报了私仇
-This is when Suharto used it to take personal revenge
-
-把他娘睡的这个中国男人，抛弃他家人，抛弃他娘的人干掉了
-to take out the Chinese man who slept with his mother, abandoned his family, and abandoned his mother.
-
-而且第二次他又出事儿了，他又杀中国人
-And the second time he did it again, killing Chinese people again
-
-又干了一把（杀了）几十万人
-killing hundreds of thousands of Chinese people
-
-一直到2008年的金融危机，这孙子又杀了1800个华人呐
-And until the financial crisis in 2008, this bastard killed another 1,800
-
-原视频日期：2021/09/26
-原视频链接: https://twitter.com/se1y7cblljselva/status/1443158834902491138?s=24
-视频时间段 : 0:00-1:45
-英听校： 洛杉矶盘古农场 – Mike Li
-翻译： 洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 -银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻来源：[Lawmakers and regulators around the world take action in the wake of Pandora Papers](https://www.icij.org/investigations/pandora-papers/lawmakers-and-regulators-around-the-world-take-action-in-the-wake-of-pandora-papers/)
