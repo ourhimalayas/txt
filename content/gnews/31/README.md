@@ -2,8 +2,8 @@
 ---
 
 
-## 最新研究发现：接种疫苗会增加感染病毒及住院风险
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1578058/)
+## 福奇的NIAID资助下的美国研究所帮助培训中共科研人员
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1578101/)
 
 栏目记者/责任编辑：圣母院钟声
 
@@ -19,20 +19,20 @@
 
 
 
-最新一期《新英格兰医学杂志》发表了有41,000多个样本的号称“新冠疫苗在门诊和住院环境中的有效性研究”，立即被疾病控制中心（CDC）视为推荐疫苗的宣传性广告作品。 可是在有心人进一步研究文章数据后发现：为了提高所谓的”疫苗疗效”，该研究省略了最近接种疫苗者的住院人数，所以研究结论具有欺骗性。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-1.jpg)
-令人震惊的是：接种疫苗后的第一周，1872名接种疫苗者被病毒感染而住院的人数被故意遗漏，而大多数不良事件和住院发生偏偏在这第一周。这项研究通过人工减少接种疫苗群体感染病毒的总数，和调控病毒核酸检测，来放大未接种者的感染率，最终提高疫苗的疗效百分比。由此人为创造了所谓的“疫苗功效”。CDC原本想利用诊断欺诈和失真的数据来欺骗公众，没成想被抓包。在调整了接种疫苗后的真实患病率后，疫苗疗效其实为-13%！显而易见，接种疫苗会增加住院风险，即增加了患重症的可能性。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-32.jpg)
-美国政府医疗管理机构CDC，FDA等在这场新冠疫情中一直扮演着误导公众的角色，以科学的名义干着伪科学的勾当。随着越来越多的数据造假被揭露，其遮羞面纱已被撕下。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.2-1.jpg)
-参考链接：
-[New study on 41,000 people reveals that taking vaccines INCREASES a person’s risk of hospitalization](https://newstarget.com/2021-10-04-study-reveals-taking-vaccines-increases-hospitalization-risk.html)
+据《国家脉动》10月4日报导：一封泄露的福奇博士和国家艾滋病规划署资助的加尔维斯顿国家实验室主任杰姆斯.勒杜克(James LeDuc) 之间的电子邮件被曝光，显示由福奇担任所长的NIAID**（**国家过敏和传染病研究所）资助了加尔维斯顿国家实验室，用那里的生物安全四级（BSL4）实验设施培训来自中共国的科学家， 涉及的有中国农业科学院（哈尔滨生物安全四级实验室）、中国科学院（武汉生物安全四级实验室）和中国医学科学院（昆明生物安全四级实验室）等。这些研究人员与中国冠状病毒的起源有关。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-3.jpg)
+这封2017年的电子邮件显示了由国家艾滋病规划署资助的加尔维斯顿国家实验室如何直接参与在生物安全四级设施培训中国科学家的细节。重要的是，这些设施可以处理通过气溶胶传播的,可导致人类致命的病原体。勒杜克强调了上述中国科研机构如何同意参观加尔维斯顿国家实验室,还提到了加强这种”合作”的重要性，以及由此会见”中国重要领导人”的机会。
+
+显然,中共的蓝金黄早已击中美国顶尖科研机构掌门人, 美国的内鬼帮助中共盗国贼集团获得可以致西方文明于死地的致命武器。在美国这样的法治国家，确着证据面前，叛国者该得到应有的惩罚。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-22.jpg)
+参考链接： 
+[Fauci’s NIAID Funded an American Institute that Helped Train Chinese Researchers from Wuhan Where COVID Is Suspected of Originating](https://www.thegatewaypundit.com/2021/10/faucis-niaid-funded-american-institute-helped-train-chinese-researchers-wuhan-covid-suspected-originating/)
 
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-终审： Ryan
+终审： 鬼五
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

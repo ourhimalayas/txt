@@ -2,43 +2,117 @@
 ---
 
 
-## GTV投资人抗议SEC进入第三天
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1578230/)
+## 国人何时醒
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1578264/)
 
-栏目记者/责任编辑：葛朗台太太
+**作者**：香草山美食部-新世界的一员
 
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-1.jpg)
 
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-8-2.jpg)
+清晨的阳光淡淡地、忧伤地
+照看着生病的神州大地
+河两岸是热爱运动而早起的人们
+刚翻新不久的跑道
+依然是硬硬的细石子路面
+所不同的是铲除了绿化带
+新浇的路面多了层红红的漆
+远一看，还真的像一道有弹力的软胶
+地方政府永远是说一套做一套
+一层红漆替代了利民运动的塑胶跑道
+人们习以为常地保持沉默
+最多埋怨几句
+这几个狗娘养的当官的口袋又满了
+至于地方财政的赤字化
+人人心知肚明
 
+如常的早晨，如常的人们
+跳舞的身形轻盈
+跑步的健如劲风
+还有婉转悠扬的歌声
+我最喜欢听传统的越剧
+有古老美丽的动人故事
+更有幼时奶奶怀抱的温度
+记忆中她老抱着我坐在广播下听越剧
+由此我也被动地成了戏迷
 
+晨曦中的人们是如此的幸福
+追求健康，追求快乐
+发挥自我
+只有在这一刻，
+天赋的自由人权及爱好
+表现得淋漓尽致
 
-GTV投资人今天再次出现在SEC总部进行抗议。本台记者与现场抗议人士进行了连线，请看现场连线报道：
+我结束健身拉伸动作的十几分钟里
+救护车呼啸而进，又一辆呼啸而出
+频繁地尖叫着
+划破祥和安宁的天空
+仿佛警示着巨大的灾难
+一刻不停地步步紧逼
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-10-1.jpg)
+毒疫苗留出的时间不多了
+修补复修补的画皮
+露出狰狞的牙齿
+吞噬着这些刚唱过伟大党妈妈生日的无知人们
+正是相信共产党，走进火葬场
+下午忙好工作，又听到救“命”车特殊的叫嚣声
+像阎王殿索命的枷锁
+小鬼们满头大汗地签收画押
+阎王爷
+执笔写下的一个个问号
+是一条条无辜的生命
+原来是共产幽灵抢勾了阎王爷的生死簿
 
-（本文仅代表作者观点）
+我本想带给人们安宁和健康
+可叹谎言蓬勃的社会主义
+君子说话得小心翼翼
+善良被挤兑在墙的角落
+厚颜无耻的小人在台上表演
+台下的傻子黑压压一片
+共产诛心占尽了上风
+人心沉沦在贪嗔痴慢疑中
+和谐社会我去你个头
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+中国人受苦受难了七十几年
+为何总填不满邪恶的欲望
+这幽黑的共产魔洞
+这一次又要吸进去多少人命
+我们这一代
+愚昧无知而又傲慢的这一代人，
+沉睡的太久太久
+以至于天亮了依然做着白日梦
+躲避太阳的光和热
+麻木惯了的人心何时恢复知觉
+冷漠久了的人心何时启动智慧
+新中国联邦捣毁得了魔洞
+歼灭得了共产党
+化解得了所有灾难
+唯独无法塑造人心
+将一个人唤醒
+是对这个世界最大的功德
+你自己醒来
+是对这个世界最大的贡献！
+一切都需要自我的觉醒！
 
-校对/发稿：为真不破20
+***编辑/校对/发稿：遍地开花***
+
+***终审：飞虹***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct--e1633242488786.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-1.jpg)

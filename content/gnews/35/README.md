@@ -2,47 +2,51 @@
 ---
 
 
-## 美欧贸易技术会谈决定联手应对中共挑战
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1578005/)
+## 最新研究发现：接种疫苗会增加感染病毒及住院风险
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1578058/)
 
-作者：纽约香草山农场 – 在远方
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+栏目记者/责任编辑：圣母院钟声
 
 
 
-9月29日，美国和欧盟启动了“美国-欧盟贸易和技术委员会”（TCC）首次正式会谈，旨在加强美国和欧盟对核心战略技术的协调，维护供应链安全和减少对中共国的经济依赖。会后，双方发表了暗指中共的联合声明，强调共享民主价值观并承诺共同应对“正在破坏世界贸易体系的非市场经济国家”。
 
-![](https://gdb.voanews.com/B6DA51B9-A088-45E1-8C38-3FFFA64B999E_w1023_r1_s.jpg)图片来源：路透社
 
-值得注意的是，双方将就外国投资筛选和出口管制进行协作，意图对中共长期通过投资和进口来获取欧美先进技术的行为展开进一步打击。另外，针对中共高压维稳政策，特别是用高科技监控国内百姓，尤其是新疆穆斯林，并向全球多个国家出口监控民众技术的做法，美欧还成立了小组，专门打击“威胁安全和人权的技术滥用”，包括打击任意或非法监控，并保护民众言论自由和隐私权等基本人权。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-由于中共国长期不遵守国际贸易协定，让美欧对中共强制技术转让、非法补贴和国企的流氓反竞争行为感到十分不满，所以此次会谈让美欧这两个世界上最重要的经济伙伴政策立场趋于一致，决定联合反击中共的地缘政治野心。
+
+
+
+
+
+
+最新一期《新英格兰医学杂志》发表了有41,000多个样本的号称“新冠疫苗在门诊和住院环境中的有效性研究”，立即被疾病控制中心（CDC）视为推荐疫苗的宣传性广告作品。 可是在有心人进一步研究文章数据后发现：为了提高所谓的”疫苗疗效”，该研究省略了最近接种疫苗者的住院人数，所以研究结论具有欺骗性。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-1.jpg)
+令人震惊的是：接种疫苗后的第一周，1872名接种疫苗者被病毒感染而住院的人数被故意遗漏，而大多数不良事件和住院发生偏偏在这第一周。这项研究通过人工减少接种疫苗群体感染病毒的总数，和调控病毒核酸检测，来放大未接种者的感染率，最终提高疫苗的疗效百分比。由此人为创造了所谓的“疫苗功效”。CDC原本想利用诊断欺诈和失真的数据来欺骗公众，没成想被抓包。在调整了接种疫苗后的真实患病率后，疫苗疗效其实为-13%！显而易见，接种疫苗会增加住院风险，即增加了患重症的可能性。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-32.jpg)
+美国政府医疗管理机构CDC，FDA等在这场新冠疫情中一直扮演着误导公众的角色，以科学的名义干着伪科学的勾当。随着越来越多的数据造假被揭露，其遮羞面纱已被撕下。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1.2-1.jpg)
+参考链接：
+[New study on 41,000 people reveals that taking vaccines INCREASES a person’s risk of hospitalization](https://newstarget.com/2021-10-04-study-reveals-taking-vaccines-increases-hospitalization-risk.html)
 
 （本文仅代表作者观点）
 
-参考阅读：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-[美欧对华立场趋于一致，联手应对中（共）国挑战](https://www.voachinese.com/a/china-technology-trade-security-20210930/6252423.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-***编辑/校对/发稿：Irene木木***
+终审： Ryan
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
