@@ -2,29 +2,38 @@
 ---
 
 
-## 疫苗灾情｜法国 13 岁男孩接种疫苗10日后失明
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1578815/)
+## 秘密视频：辉瑞科学家承认COVID自然抗体优于疫苗
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1578873/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 7/10/2021**
+撰稿：Runaway
 
-***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
+一份秘密采访辉瑞科学家的视频揭露并证实了更多的疫苗真相。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16.jpg)
+**辉瑞COVID-19疫苗研发科学家–尼克.卡尔（Nick Karl）：**
 
-【法国】一名 13 岁的男孩 Yassine 在接种辉瑞 COVID-19 疫苗的 10 日后失明。
+“疫苗是蛋白质，只在病毒外面产生抗体。而当您真正感染病毒时，您将从病毒内部产生抗体。因此，自然抗体比疫苗更有效。”
 
-Yassine 于 7 月 17 日接受了第一针疫苗，即法国开放给 12 岁以上的未成年人提供疫苗接种的一个月后。10天后，他的视力变得模糊，直到完全看不见。
+“他们通过推广疫苗接种卡和限制未接种疫苗者做任何事，最后都会主动接种疫苗。”
 
-经诊断，Yassine 患有角膜血栓形成，怀疑与疫苗有关，法国官方称，这是未成年人在接种 COVID-19 疫苗后视力严重下降的首个病例。在法国官方更新的用药警示报告上，这么写着
+**辉瑞高级副科学家-克里斯克罗齐（Chris Croce）：**
 
-“患者 7 月中旬接种了 Comirnaty 疫苗（辉瑞-BioNTech），距离他十三岁生日还有一个多月，十日后患者出现视力显著下降，五天后获药物警戒报告证实，这名年轻患者患有急性视网膜炎（视网膜发炎。”
+“因为是自然反应，自然免疫会比疫苗得到更长时间的保护。”
 
-在接受纪录片《自由之子》拍摄时 ，Yassine 说：“有一天，我睡着了，然后我醒了，我就看不见了。”，他的妈妈补充指，“接种疫苗后，我的儿子就什么都看不见了。除了疫苗，我想不到其他原因。”
+“辉瑞正在进行的研究，不是为了确定疫苗有效性，而是为了观测疫苗如何引起心脏病。”
 
-*【视频**翻译】以前，我看得很清楚。打完疫苗就看不到了。 我在睡觉，然后我醒了。我对妈妈说：“妈妈我看不清了！” 然后我妈妈去上班，当她回到家时，她问“一切都恢复正常了吗？” 我说，“不，它仍然是一样的”。我妈妈问我是否会买面包，因为她忘记了，我说是的，但我躲在门后。我姐姐告诉我妈妈我在躲，所以我妈妈问“你为什么躲？” 我说，“因为我看不到。”*
+“即使在公司内部也不能随意谈论相关信息，我觉得我在为一个邪恶的公司工作，因为它只追求利润。”
 
-来源｜ [个案016](https://thecovidworld.com/yassine-13-year-old-boy-loses-eyesight-10-days-after-receiving-the-pfizer-covid-19-vaccine-mother-seeks-answers/)
+**辉瑞科学家Rahul Khandke：**
 
-* * *
+公司要求员工向公众保密。
 
-他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//
+（以上观点不代表GNEWS）
+
+*发布：Runaway*
+
+参考链接：
+
+[COVERT VIDEO: Self-Declared “Evil” Pfizer Scientists Admit Natural Immunity BETTER Than Vaccine… ‘Our Org is Run on COVID Now’.](https://thenationalpulse.com/news/covert-video-self-declared-evil-pfizer-scientists-admit-natural-immunity-better-than-vaccine-our-org-is-run-on-covid-now/)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)

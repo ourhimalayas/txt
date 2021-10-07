@@ -2,45 +2,17 @@
 ---
 
 
-## 芬兰、瑞典和丹麦宣布停止将Moderna中共病毒疫苗用于年轻男性
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1579628/)
+## 紧随邻国芬兰宣布禁止给年轻人接种莫德纳疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1579697/)
 
-作者：纽约香草山农场 – 四季
+#### 编译:文旺 | 校对: 沙拉猫
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-07-12.45.30-PM.png)图片来自网络截图
+据路透社（Reuters）2021年10月7日报道，芬兰政府宣布从周四开始，暂停给30岁以下的年轻人接种莫德纳（Moderna）疫苗，原因是有报道指出该疫苗会导致心血管方面的疾病，比如使年轻男性落患罕见的心肌炎。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+就在芬兰宣布该决定的前一天，其北欧邻国瑞典和丹麦的卫生官员以同样的理由率先宣布将暂停对所有年轻人和儿童使用莫德纳疫苗。另一北欧国家挪威，虽然没有暂停莫德纳疫苗，但建议年轻人首选同是mRNA类型的辉瑞（Pfizer）疫苗。
 
+评：郭文贵先生和他引领的爆料革命早就告知世界，所谓新冠病毒就是中共病毒，是中共故意释放出的生物武器，让全世界陷入了前所未有的灾难，数百万生灵涂炭。既然中共病毒是生物武器，那就没有疫苗能够防止，何况中共手里还有更多的病毒武器，疫苗研发的进度根本赶不上中共释放病毒的速度。眼下各国政客联手腐败专家，一不审查疫苗是否有效和安全，二不重视疫苗带来的众多致命副作用，而是动用国家力量强迫每个人接种，这种做法不是被金钱驱动，就是被政治利益绑架。这种被黑暗势力利用而导致的疯狂举动，如果不被马上制止，人类在遭受病毒肆虐后，必将陷入疫苗灾难的蹂躏之中。北欧各国这次暂停莫德纳疫苗是世界开始清醒的标志，希望其他国家也能跟进，尽快让强推疫苗的政策完结， 把注意力放在调查病毒起源，追责中共的正确道路上。
 
+（评论仅代表作者观点）
 
-
-
-据[零对冲](https://www.zerohedge.com/covid-19/finland-joins-sweden-denmark-limiting-use-modernas-jab-young-men)10月7日报道，在确定Moderna公司的Covid-19疫苗对接种人群尤其是年轻人造成包括心脏炎症在内的罕见、但有害的副作用风险后，北欧国家芬兰、瑞典和丹麦都宣布停止将其用于特定年龄组。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1166-1-JAB_1.jpg)图片来源：零对冲
-
-瑞典公共卫生局要求立即停止将Moderna的SpikeVax疫苗用于所有1991年以后出生的年轻人。丹麦已经对12至17岁的儿童实施了该药物的禁令。芬兰也将停止对年轻男性使用这种疫苗。
-
-这项涉及芬兰、瑞典、挪威和丹麦的北欧研究结果将在几周内公布。初步数据已经被送往欧洲药品管理局（EMA）进行进一步评估。EMA是泛欧盟的药品监管机构，早在7月就确定在一些年轻的男性患者中发现了罕见的心脏炎症病例。
-
-越来越多的研究结果显示中共病毒疫苗的风险，相信会有更多的国家不得不采取相应措施应对。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+消息来源：[https://www.yahoo.com/news/finland-joins-sweden-denmark-limiting-073018484.html](https://www.yahoo.com/news/finland-joins-sweden-denmark-limiting-073018484.html)
