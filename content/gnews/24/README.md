@@ -2,36 +2,41 @@
 ---
 
 
-## 拜登提名人从简历中删除了卡尔·马克思的论文
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1578440/)
+## 莫德纳不顾疫苗副作用，仍向加拿大卫生部提交加强针申请
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1578497/)
 
-- **编译：西班牙喜悦农场–wenwu**
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/莫德纳.jpg)
+图片来源：EDUARDO MUNOZ ALVAREZ / POOL/AFP via Getty Images
+
+整理报道：小红帽
+
+自从实施疫苗接种以来，欧洲各国年轻人陆续出现心肌炎和其它严重的副作用，因此瑞典和丹麦颁布政策以限制年轻人接种莫德纳（Mordena）疫苗。然而，莫德纳公司不顾疫苗的副作用，仍向加拿大卫生部提交了Spikevax【注：莫德纳疫苗的一个品牌】加强针的审批申请。
+
+据悉，该加强针的剂量是目前使用的第一剂和第二剂疫苗接种剂量的一半。
+
+上个月，莫德纳公司宣称，有迹象表明，人们距离接种疫苗的时间越长，免疫力就越弱。
+
+国家免疫咨询委员会 (NACI) 建议为高风险的加拿大人（例如长期住在护理院的居民，以及中度至重度的免疫功能低下的人）接种中共病毒（COVID-19）的加强针。
+
+今年初，加拿大总理贾斯汀·特鲁多 (Justin Trudeau) 曾宣布，该国将从辉瑞 (Pfizer) 获得3500万剂的疫苗加强针。
+
+加拿大卫生部表示，国家免疫咨询委员会将继续监测关键人群和普通公众接种加强针的剂量，并将根据需要更新指南。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**
+
+1. [Moderna submits for approval of Spikevax booster dose to Health Canada (citynews.ca)](https://toronto.citynews.ca/2021/10/06/moderna-covid-19-vaccine-booster/)
+2. [Sweden, Denmark Restrict Use Of Moderna Jab Over Risk Of Heart Inflammation, Other Side Effects | ZeroHedge](https://www.zerohedge.com/covid-19/sweden-denmark-restrict-use-moderna-jab-over-risk-heart-inflammation-other-side-effects)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip259.png)
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-前提摘要：拜登总统挑选来监督国家银行的监管人，曾经称赞苏联的男女平等，并曾在大学期间获得了**“**列宁**”**奖；《福克斯》已经联系了奥马洛娃和白宫以寻求评论，截至**9**月**30**日仍没有得到回复。
-
-本周二，拜登提名的货币审计长办公室主任（**the Office of the Comptroller of the Currency**** **）[索勒**·**奥马洛娃](https://thepostmillennial.com/bidens-pick-for-bank-regulator-slammed-for-past-pro-communism-comments)**( **[**Saule Omarova)**](https://thepostmillennial.com/bidens-pick-for-bank-regulator-slammed-for-past-pro-communism-comments)，她已将关于卡尔**·**马克思的论文从简历中删除；据《[华盛顿自由灯塔](https://freebeacon.com/biden-administration/biden-banking-nominee-scrubs-karl-marx-paper-from-resume/)》[报道](https://freebeacon.com/biden-administration/biden-banking-nominee-scrubs-karl-marx-paper-from-resume/)，奥马洛娃最近在她** 2017 **年的简历中列出了一篇题为《卡尔**·**马克思的经济分析和首都革命理论》的论文。
-
-参议院银行、住房和城市事务委员会（Urban Affairs Committee）的高级成员帕特·图米(Pat Toomey)参议员，他在周二（5日）写的[一封信中](https://www.banking.senate.gov/imo/media/doc/toomey_letter_to_omarova_requesting_thesis_on_marxism1.pdf)要求奥马洛娃交出该论文的副本。他说，委员会需要“全面评估个人是否适合担任参议院确认的行政和独立机构的职位。”
-
-据报道，奥马洛娃是在获得列宁个人学术奖学金就读莫斯科国立大学时，写下了这篇论文。但是，参议院银行、住房和城市事务委员会查看的简历 (CV) 中，并未列出该论文。
-
-图米要求奥马洛娃不迟于 10 月 13 日之前，将俄文的马克思论文原件和英文版本（如果存在）交给城市事务委员会。 “为了确保立法者有足够的时间进行翻译和审查，我的委员会工作人员与你们联系“货币审计长办公室（OCC）的工作人员上个月要求提供一份副本。不幸的是，我们没有得到任何保证委员会会及时收到该文件的副本，”他写道。
-
-由于奥马洛娃的评论似乎是，同情或支持前苏联时代的政策和价值观而受到批评。她在 2019 年[写道：](https://twitter.com/STOmarova/status/1112387645882200064) “在我来到美国之前，我无法想象像男女工资差距这样的事情在当今世界仍然存在；说说你对前苏联的看法，那里没有男女薪酬差距。自由市场体制并不总是’有效的’。”
-
-在一篇题为《[人民的账本](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=3715735)》[的](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=3715735)论文中，奥马洛娃主张“终结银行业”，正如我们所知，“这引起了图米的强烈反对。奥马洛娃呼吁‘从根本上重塑现代金融的基本架构和动力’，包括将零售银行国有化，并由美联储分配信贷，”[图米](https://www.banking.senate.gov/newsroom/minority/toomey-i-have-serious-reservations-about-occ-nominee)在奥马洛娃被拜登提名后的第二天说。
-
-相关文章：《[美国国家银行监管人曾获得**”**列宁**”**奖](https://gnews.org/zh-hans/1564376/)》
-
-（文章仅代表作者观点** **与**GNEWS**无关）
-
-**新闻来源：《[后千禧年](https://thepostmillennial.com/biden-nominee-karl-marx-thesis)》｜作者：汗娜·南丁格尔｜发布时间：2021年10月6日｜**
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

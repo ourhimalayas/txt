@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/7/2021 9:29 AM (UTC)`
+
+September 20th, 2021 — German Corona Investigative Committee Press Conference (2)<br/><br/>1️⃣Dr. Elmor Becker told a story to explain what the post vaccination "turbo cancer" is!  <br/>2️⃣Mr. Helga Fischer, Attorney:<br/>Europe should have test protocols and standards using microscope to examine vaccine batches. If these "un-declared" substances in the vaccines cannot be identified in Germany, this is a scandal.<br/>3️⃣Dr. Maria Hubmer- Mogg, MD:<br/>We should request to remove the vaccines off the market and the approval of the Emergency Authorization Use has to be stopped . It is a crime to vaccinate youngsters and babies!<br/><br/>Full German version: https://gtv.org/video/id=614b401442a8af3151a34afa<br/>Full English version: https://gtv.org/video/id=61598e4c304e992109ae6487
+![img](https://media.gettr.com/group3/origin/2021/10/07/09/29/c851d3c0-8986-d136-3879-159afe643e5b/out.jpg)
+
+---
+
 `@miles 10/7/2021 9:21 AM (UTC)`
 
 2021年9月20日 德国新冠调查委员会新闻发布会精选片段 (二)<br/><br/>1️⃣Elmor Becker 医生：<br/>Becker博士通过真实故事来解释什么是疫苗接种后的“加速癌”！<br/>2️⃣新冠调查委员会律师 Helga Fischer 先生：<br/>欧洲应该使用显微镜检查来設定测试协议和标准来審查含有未申报成分的疫苗批次。如果这些疫苗中发现的“未声明”材料却在德国无法查明，这就是丑闻！疫苗制造商是有问题、要负责的！<br/>3️⃣奥地利认证草药师和世界健康论坛 21 的联合创始人 Maria Hubmer-Mogg 医生：<br/>不需要做更多的研究，而是要求将疫苗从市场上撤下，并且必须停止紧急授权使用的批准！为青少年和婴儿接种疫苗是犯罪行为！已经存在有效的早期治疗！请不要为没有感染严重疾病风险的儿童接种疫苗！<br/><br/>记者会完整版链接 (德文原版)：https://gtv.org/video/id=614b401442a8af3151a34afa<br/>记者会完整版链接 (英文字幕)：https://gtv.org/video/id=61598e4c304e992109ae6487<br/>记者会完整版链接 (中文字幕)：https://gtv.org/video/id=61588b8f304e992109ae20b0
@@ -289,13 +296,6 @@ WOW WOWWOW🙏🙏🙏🙏🔥🔥🔥👇👇👇👇👇👇👇👇👇👇�
 
 10月3号：衷心地感谢，今天所有的战友们，参与的六个小时的大直播，感谢所有的台前幕后的工作的兄弟姐妹们，七哥还是感觉，意犹未尽，🔥🔥🔥现在还想马上直播，咋弄咧咋弄咧？
 ![img](https://media.gettr.com/group8/getter/2021/10/03/19/12/4a546b20-af48-1d45-cab4-bb282af7ba03/out.jpg)
-
----
-
-`@miles 10/2/2021 9:19 PM (UTC)`
-
-10月2日法国媒体Franceinfo报道说, “中国亿万富翁郭文贵先生提到疫苗灾难要来了！”  【中英文字幕】
-![img](https://media.gettr.com/group32/getter/2021/10/02/21/19/d37debb1-eb09-ef05-ef61-edb4beea8b22/out.jpg)
 
 ---
 

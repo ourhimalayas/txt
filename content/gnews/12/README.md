@@ -2,58 +2,88 @@
 ---
 
 
-## 屏蔽林依然8月9日的新浪微博坐实新浪的疫苗杀人本色
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1578579/)
+## 印尼排华的根本原因
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1578668/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/001_副本.jpg)
-日前我们发布了[**林依然关于疫苗的新浪微博引来无数脑梗心梗受害者留言**](https://gnews.org/zh-hans/1547117/)的文章，在文章中我们详细记录了在[林依然LLL\_](https://weibo.com/yiranbaby?refer_flag=1005055014_) [2021年8月9日 01:01](https://weibo.com/1797014755/KszfAuFd4?from=page_1005051797014755_profile&amp;wvr=6&amp;mod=weibotime) 来自 [HUAWEI P40 Pro 5G](https://app.weibo.com/t/feed/6uaYFC)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-11.jpg)https://gtv.org/video/id=615e88c7d2e2b81748722dab
+郭文贵：
+Miles Guo：
 
-#新冠疫苗副作用#有没有人打完新冠疫苗后发烧，血小板减少的？ ​​​​那条微博下的评论——
+你去看一看，当年斯大林杀人的时候
+You should take a look at the time when Stalin was killing people
 
-在原文中我们提到：
+天天以杀人为乐，他也没被灭
+He was not exterminated even though he killed people for fun every day
 
-［但是我们要重点关注的是在本文发出后林依然的这条新浪微博的命运将会如何——如果这条微博被和谐或者这条微博下边的评论被删除，那么这条微博和已经留存的所有评论都可以作为新浪及背后控制新浪的中共的反人类罪；
+当年苏哈托杀华人的时候，你们仔细看看
+but look carefully, at the time that Suharto was killing Chinese people
 
-如果这条微博和下边的评论被留置，那么我们希望看到每一个在评论区留下自己及亲人因疫苗而产生副作用的网友可以被重视，并且进行一对一的调查和确认，当然，即使这条微博和下边的评论被留置，后边的可能性几乎是零，我知道我想多了，因为在这个国家，一条反党言论的发言者都可以被精确定位，而任何一个丢失的孩子却永远也无法通过它们精准控制的监控和大数据网找到。］
+苏哈托是华人的后裔，是华人睡了他妈，他妈生了12个孩子
+Suharto was a person of Chinese descent who slept his mother, who gave birth to 12 children
 
-现在这条记录着大量因植入新冠疫苗而引发各种后遗症的新浪微博终于不见了，据[**林依然LLL\_**](https://weibo.com/yiranbaby) [2021年9月23日 16:10](https://weibo.com/1797014755/KzvqH9rcG?from=page_1005051797014755_profile&amp;wvr=6&amp;mod=weibotime) 来自 [🍓小姐的HarmonyOS设备](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
+他爸爸抛弃了他妈，他从小恨华人
+His father abandoned his mother. He grew up hating the Chinese
 
-没删，被屏蔽了。 ​​​​
-![](https://assets.gnews.org/wp-content/uploads/2021/10/001-7.jpg)
-这条记录着中共国部分因植入疫苗而产生不良反应的新浪微博的不可见，至少可以证明新浪微博和它背后的主子中国共产党一样，是反人类的犯罪集团，所以我们也有必要把这条微博下面的评论做一下存底。
+这小子是个投机分子，你要记住
+You should know that this kid was an opportunist
 
-令人欣喜的是我们依然可以看到黑夜里发出的新中国联邦的光芒——
+苏哈托前面的总统是谁啊？叫苏加诺
+Who was the president before Suharto? Sukarno was
 
-[新联邦之利刃](https://weibo.com/7545869003)：青蒿素9月24日 00:40
+苏加诺是共产党，他已经把印尼交给中国共产党了，是吧？
+Sukarno was a communist, and he had given Indonesia to the Chinese communists, right?
 
-[暴暴李小暴](https://weibo.com/1886186695)：战🈶？9月24日 02:00
+当时你知道他（苏哈托）上来以后，当总统怎么收拾他（苏加诺），为啥？
+Do you know what Suharto did to clean up Sukarno when Suharto became president? and why?
 
-[\_一三土一\_](https://weibo.com/3892199609)：回复[@暴暴李小暴](https://weibo.com/n/%E6%9A%B4%E6%9A%B4%E6%9D%8E%E5%B0%8F%E6%9A%B4?from=feed&amp;loc=at):健身了吗9月25日 10:40
+他说苏加诺是亲共的
+He said Sukarno is pro-communist
 
-[解忧杂货店1号](https://weibo.com/5531762878)：回复[@暴暴李小暴](https://weibo.com/n/%E6%9A%B4%E6%9A%B4%E6%9D%8E%E5%B0%8F%E6%9A%B4?from=feed&amp;loc=at):原来占有真的在身边9月25日 11:05
+他（苏加诺）把这个60万华人、110万华人是要卖给印尼的
+He （Sukarno） was about to sell these 600,000 Chinese people, these 1.1 million Chinese people to Indonesia.
 
-[新联邦之利刃](https://weibo.com/7545869003)：回复[@暴暴李小暴](https://weibo.com/n/%E6%9A%B4%E6%9A%B4%E6%9D%8E%E5%B0%8F%E6%9A%B4?from=feed&amp;loc=at):无处不在9月28日 20:17
+他其实充分的挑拨了当时印尼的军方，还有共产党关系
+He actually did enough to provoke the Indonesian military and the Chinese Communist Party at the time.
 
-在这个至暗的时代里，在中共国有那么多因疫苗致死、致残者，他们哪怕发出的一点点关于疫苗致死致残的真相，都会被扑灭，但是真相就是刺破黑暗的利器，无论在哪里，我们都可以喜逢队友，我们都可以看到真相的力量，今天新浪微博可以封杀真相，明天我们必然用真相埋葬新浪微博和它背后的反人类集团——中国共产党！
+你知道当时是110万华人被人修理了，60万人被杀害呀
+Do you know that 1.1 million Chinese were beaten up and 600,000 were killed?
 
-撰稿：喜马拉雅的肉夹馍
+一夜之间，曾有7万人被奸、被杀呀
+In one night, 70,000 people were raped and killed
 
-审核：喜马拉雅的馍夹肉
+你们想过吗？兄弟姐妹们，那是共产党惹的祸
+Have you ever thought about it? Brothers and sisters, it was the Communist Party that caused the trouble
 
-校对：Maarago
+共产党要统治印尼（实行）共产主义
+The Communist Party wanted to rule Indonesia and to enforce communism.
 
-（文章内容仅代表作者个人观点）
+苏加诺要把它（共产主义）加给（印尼）
+Sukarno wanted to bring communism to Indonesia.
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+这时候苏哈托利用这个报了私仇
+This is when Suharto used it to take personal revenge
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+把他娘睡的这个中国男人，抛弃他家人，抛弃他娘的人干掉了
+to take out the Chinese man who slept with his mother, abandoned his family, and abandoned his mother.
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+而且第二次他又出事儿了，他又杀中国人
+And the second time he did it again, killing Chinese people again
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+又干了一把（杀了）几十万人
+killing hundreds of thousands of Chinese people
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+一直到2008年的金融危机，这孙子又杀了1800个华人呐
+And until the financial crisis in 2008, this bastard killed another 1,800
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+原视频日期：2021/09/26
+原视频链接: https://twitter.com/se1y7cblljselva/status/1443158834902491138?s=24
+视频时间段 : 0:00-1:45
+英听校： 洛杉矶盘古农场 – Mike Li
+翻译： 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 -银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

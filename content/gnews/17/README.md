@@ -2,41 +2,21 @@
 ---
 
 
-## 莫德纳不顾疫苗副作用，仍向加拿大卫生部提交加强针申请
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1578497/)
+## Moderna疫苗：因心肌炎风险而停止为年轻人接种第二剂
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1578595/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/莫德纳.jpg)
-图片来源：EDUARDO MUNOZ ALVAREZ / POOL/AFP via Getty Images
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10074.jpg)
+Moderna 疫苗重新成为人们关注的焦点，北欧出现了一系列关于非常罕见的副作用（如心肌炎）的突发新闻。在一些国家，决定对某些年龄组暂停接种：在瑞典和丹麦，一些报告表明，与接种疫苗相比，接种第二剂 Spikevax（Moderna 疫苗）后，年轻男性患心肌炎的风险可能更高。关于第二剂辉瑞的 Comirnaty – BioNTech，还需要其他评估。
 
-整理报道：小红帽
+在瑞典和丹麦宣布暂停对 30 岁以下和 18 岁以下人群接种 Spikevax 疫苗后，欧洲药品监督局(EMA)将评估新数据以确定是否有必要更新产品信息中的当前建议。瑞典公共卫生局解释说：“关于心肌炎和心包炎等副作用的报告正在增加”。
 
-自从实施疫苗接种以来，欧洲各国年轻人陆续出现心肌炎和其它严重的副作用，因此瑞典和丹麦颁布政策以限制年轻人接种莫德纳（Mordena）疫苗。然而，莫德纳公司不顾疫苗的副作用，仍向加拿大卫生部提交了Spikevax【注：莫德纳疫苗的一个品牌】加强针的审批申请。
+欧盟监管机构说：”根据北欧国家（丹麦、芬兰、挪威和瑞典）的新数据分析表明，在第二剂辉瑞Comirnaty 疫苗和Moderna Spikevax疫苗 后，心肌炎发生的频率更高。初步分析表明年轻男性在第二次服用 Spikevax 后患心肌炎的风险可能高于第二次服用 Comirnaty。
 
-据悉，该加强针的剂量是目前使用的第一剂和第二剂疫苗接种剂量的一半。
+在瑞典和丹麦的年轻人中已经暂停使用Moderan苗。挪威已经向未成年人推荐辉瑞疫苗。一位芬兰卫生官员也表示，芬兰应该在周四，即周四公布其决定。
 
-上个月，莫德纳公司宣称，有迹象表明，人们距离接种疫苗的时间越长，免疫力就越弱。
+免责申明：本文只代表译者观点，与Gnews无关
 
-国家免疫咨询委员会 (NACI) 建议为高风险的加拿大人（例如长期住在护理院的居民，以及中度至重度的免疫功能低下的人）接种中共病毒（COVID-19）的加强针。
+原文链接：[https://www.today.it/attualita/seconda-dose-vaccino-moderna-miocardite-giovani.html](https://www.today.it/attualita/seconda-dose-vaccino-moderna-miocardite-giovani.html)
 
-今年初，加拿大总理贾斯汀·特鲁多 (Justin Trudeau) 曾宣布，该国将从辉瑞 (Pfizer) 获得3500万剂的疫苗加强针。
-
-加拿大卫生部表示，国家免疫咨询委员会将继续监测关键人群和普通公众接种加强针的剂量，并将根据需要更新指南。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**
-
-1. [Moderna submits for approval of Spikevax booster dose to Health Canada (citynews.ca)](https://toronto.citynews.ca/2021/10/06/moderna-covid-19-vaccine-booster/)
-2. [Sweden, Denmark Restrict Use Of Moderna Jab Over Risk Of Heart Inflammation, Other Side Effects | ZeroHedge](https://www.zerohedge.com/covid-19/sweden-denmark-restrict-use-moderna-jab-over-risk-heart-inflammation-other-side-effects)
-
-
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦

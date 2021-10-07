@@ -2,79 +2,64 @@
 ---
 
 
-## 正道主义就是当下教
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1578687/)
+## 国家卫生部门证实妇女在接种COVID疫苗后死于血栓
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1578746/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-12.jpg)https://gtv.org/video/id=615e893ed2e2b81748722dc8
-郭文贵：
-Miles Guo：
+- **编译：JennyBall**
 
-正道主义就是当下教
-Righteousness is the present teaching
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip262.png)
+据公共卫生官员称，华盛顿州一名 30 多岁的妇女，在接种 COVID-19 疫苗后死亡。
 
-把当下教搞明白才能说未来
-Understand the present teaching, then you can talk about the future
+华盛顿州卫生部在周二的新闻发布会上说，这名不愿透露姓名的妇女，在八月下旬接种了强生公司的疫苗。
 
-所有的基督教、天主教、佛教都是未来教，告诉你未来的
-All Christianity, Catholicism, and Buddhism are futuristic religions that giving you a picture of the future world
+该部门说，这名妇女死于血栓。
 
-让今天的付出，让你换一个不可确定的未来
-Let you practice today for an indefinable future
+“这是华盛顿州首例此类死亡事件。我们向她的家人和亲人表示最深切的哀悼，”该州卫生部长乌迈尔·沙阿（Umair Shah）说。“任何时候失去所爱的人都是一种悲哀而艰难的……在这场大流行的过去一年半中，这种痛苦已经变得非常频繁。”
 
-No
-No
+该女子是金县（包括西雅图）的居民。
 
-咱们的inspiration4就告诉你，它就是宗教
-Our inspiration4 have told you. It is religion
+“[卫生部]将继续与西雅图金县公共卫生部和CDC密切合作，因为有更多细节可用，”卫生部门说。
 
-我现在就给你打电话，让一个这样的女孩上太空
-(For example), I’m calling you right now to get a girl into space
+金县发布的新闻称，这种并发症“非常罕见”。
 
-让一个黑人直接上太空，让一个企业家上太空
-to have one black person straight headed into space, to put an entrepreneur in space
+新闻稿称：“美国疾病控制与预防中心 (CDC) 仅报告了全国其他三例确诊的死亡病例。”
 
-担当、分享、勇气、希望、成功，上太空，就是当下教啊
-Responsibility, sharing, courage, hope, success, going up to space, is the present teaching
+“该居民于 2021年8月26日接种了疫苗，并于 2021年9 月7日死亡。
 
-我们今天的喜币、新GTV，还有盖特，GTV、GFASHION、GCLUB都是当下教
-Today our H-coin, new G-TV, and GETTR, G-TV, G-FASHION, G-CLUB are all representing the present teaching
+“她的死因被确定为伴有血小板减少症（TTS）的血栓形成，这种情况已被确定为接受强生疫苗的人的一种罕见但可能的严重不良事件。”
 
-当下有了教，我们就有了未来
-With the present teaching, we have the future
+“今年 4 月，CDC 暂停了强生疫苗的授权，以研究这些罕见并发症的风险，”金县官员说。 “在确定疫苗的好处超过风险后，CDC取消了暂停。”
 
-所以你看这4个人的时候，就是这4个人的经历和历史
-So when you look at these 4 people, I mean the experience and past history of these 4 people
+官员们没有说明死者是否有任何既往病症。
 
-你看一个美国的普通孩子，从自己创业，你看他们创业在一起
-You see the average American kids, starting their own business, starting a business together
+金县向未接种疫苗的人保证，“**出现任何并发症的风险极低**”。
 
-考瑞德、谢尔曼，你看这几个人，这太不简单了
-Look at these guys, Kaurid, Sherman. This is amazing.
+该县援引CDC的话说，已经报告了 38 例与疫苗有关的 TTS 病例，“这些人中的大多数已经康复。”
 
-完全不同的人，只有在美国，他们这些人才有这样的机会
-Completely different people, and only in the United States do these people have such opportunities
+“**与许多药物一样，严重不良事件的风险很小，但不是零，”该县说**。
 
-就是以人为本，就是要有公平的机会，就是付出要能得到
-It is the United States can put people first, that is, to have a fair chance to give and get rewarded
+“让人们拥有这些信息以做出自己的明智决定至关重要。出于这个原因，重要的是提供有关 TTS 风险和其他 COVID-19 疫苗选择的可用性的教育，特别是对于 18-49 岁的女性。”
 
-就是每个人有安全感，每个人要有希望
-It is that everyone has a secured feeling, everyone has to have hope
+**评论：**
 
-这些都是我们新中国联邦要给大家能做到的
-All these are what our New Federal State of China will offer to you
+** CDC现在说，“让人们拥有这些信息以做出自己的明智决定至关重要**”， **那么：**
 
-这才是我们今天要说的核心，新中国联邦人，最最重要的就是这个
-This is the core of what we are talking about today, the most important thing for the people of New Federal State of China
+- **在任何疫苗开始使用之前，CDC就知道且有科学家提供的实验室证明，mRNA疫苗极有可能造成血栓死亡，为什么CDC不在那时向公众公布这些信息？**
+- **CDC****已经知道有可以防御和治疗Covid病毒的药物羟氯喹和伊维菌素加锌，但CDC所做的是打压一切这样的信息，据科学家和大夫的数据，这些药物和早期治疗方法，可以避免86%感染病人住院，可以减少96%的重症死亡，CDC为什么不推广？**
 
-原视频日期：2021/09/29
-原视频链接: https://twitter.com/se1y7cblljselva/status/1443702537492721701?s=21
-视频时间段 : 0:00-1:42
-英听校： 洛杉矶盘古农场 – Mike Li
-翻译： 洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场–郭班之樱
-字幕+视频制作：洛杉矶盘古农场–天涯行
-审片：洛杉矶盘古农场–银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+** ****那么，CDC为何在强制人们充当实验室老鼠之前不让人们拥有这些信息？**
+
+**那些现在还在相信科学的人们，难道不应该问问CDC为什么向我们掩盖这些科学信息和证据？**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**素材链接：[westernjournal.com](https://www.westernjournal.com/woman-dies-blood-clot-receiving-covid-vaccine-state-health-department-confirms/?utm_source=Email&amp;utm_medium=newsletter-CT&amp;utm_campaign=dailypm&amp;utm_content=conservative-tribune&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)**
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip190.png)

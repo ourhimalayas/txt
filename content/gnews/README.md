@@ -15,92 +15,92 @@
 
 ---
 
-### [孙力军的公告证明了他的势力很强大并且无处不在](/content/gnews/1/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [针下亡魂｜加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](/content/gnews/1/README.md)
+ ` G&#124;News TAIWAN`
 
-### [每日快报：中台军事紧张局势“40年来最严重”](/content/gnews/2/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [秘翻在线：零感染却需要从中共运输医疗物资 确定不是给朝鲜放毒？](/content/gnews/3/README.md)
+### [恒大遭香港地产中介起诉 追讨拖欠款八千多万港币](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [正道主义就是当下教](/content/gnews/4/README.md)
+### [10/07/2021 国际财经快讯：美国考虑释放紧急石油储备以降低天然气价格；欧美争夺国际结算份额首位](/content/gnews/3/README.md)
+ ` 秘密翻译组金融团队`
+
+### [国家卫生部门证实妇女在接种COVID疫苗后死于血栓](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [币圈新闻动态：世界区块链峰会将于2021年10月13日在迪拜举行](/content/gnews/5/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [孙力军的公告证明了他的势力很强大并且无处不在](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [印尼排华的根本原因](/content/gnews/5/README.md)
+### [每日快报：中台军事紧张局势“40年来最严重”](/content/gnews/7/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [新冠疫苗灾难篇——外出横祸天上来](/content/gnews/8/README.md)
+ ` 银河勇气之星`
+
+### [秘翻在线：零感染却需要从中共运输医疗物资 确定不是给朝鲜放毒？](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [正道主义就是当下教](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [洪水又淹山东河南农田，中共粮食问题势必雪上加霜](/content/gnews/6/README.md)
+### [韩国新型“万吨大驱”首舰入坞搭载！2024年列装3艘](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [印尼排华的根本原因](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [洪水又淹山东河南农田，中共粮食问题势必雪上加霜](/content/gnews/13/README.md)
  ` 澳喜农场`
 
-### [中共国利用搜索引擎推动covid-19起源美国军事基地的虚假宣传](/content/gnews/7/README.md)
+### [中共国利用搜索引擎推动covid-19起源美国军事基地的虚假宣传](/content/gnews/14/README.md)
  ` 象声`
 
-### [对中共国《“十四五”全民医疗保障规划》的几点追问](/content/gnews/8/README.md)
+### [对中共国《“十四五”全民医疗保障规划》的几点追问](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [台湾总统蔡英文：台湾若落入中共国手中，将是一场灾难](/content/gnews/9/README.md)
+### [台湾总统蔡英文：台湾若落入中共国手中，将是一场灾难](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [Moderna疫苗：因心肌炎风险而停止为年轻人接种第二剂](/content/gnews/10/README.md)
+### [Moderna疫苗：因心肌炎风险而停止为年轻人接种第二剂](/content/gnews/17/README.md)
  ` Charlie`
 
-### [飞机在米兰坠毁：疾病假设](/content/gnews/11/README.md)
+### [飞机在米兰坠毁：疾病假设](/content/gnews/18/README.md)
  ` Charlie`
 
-### [屏蔽林依然8月9日的新浪微博坐实新浪的疫苗杀人本色](/content/gnews/12/README.md)
+### [屏蔽林依然8月9日的新浪微博坐实新浪的疫苗杀人本色](/content/gnews/19/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中国的PCR测试订单在第一例确诊的COVID病例之前就已飙升](/content/gnews/13/README.md)
+### [中国的PCR测试订单在第一例确诊的COVID病例之前就已飙升](/content/gnews/20/README.md)
  ` 纽约香草山MOS02`
 
-### [美国，2021 年的死亡人数比 2020 年还多](/content/gnews/14/README.md)
+### [美国，2021 年的死亡人数比 2020 年还多](/content/gnews/21/README.md)
  ` Charlie`
 
-### [拜登在民意调查中崩溃](/content/gnews/15/README.md)
+### [拜登在民意调查中崩溃](/content/gnews/22/README.md)
  ` Charlie`
 
-### [疫苗问题越来越难了](/content/gnews/16/README.md)
+### [疫苗问题越来越难了](/content/gnews/23/README.md)
  ` 澳喜农场`
 
-### [莫德纳不顾疫苗副作用，仍向加拿大卫生部提交加强针申请](/content/gnews/17/README.md)
+### [莫德纳不顾疫苗副作用，仍向加拿大卫生部提交加强针申请](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [台湾总统：如果台湾落到中共手里，后果是“灾难性的”](/content/gnews/18/README.md)
+### [台湾总统：如果台湾落到中共手里，后果是“灾难性的”](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [《长津湖》上映后维基百科词条遭小粉红篡改引发论战](/content/gnews/19/README.md)
+### [《长津湖》上映后维基百科词条遭小粉红篡改引发论战](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [与中共国的战争：全面开战](/content/gnews/20/README.md)
+### [与中共国的战争：全面开战](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [墙内热点新闻](/content/gnews/21/README.md)
+### [墙内热点新闻](/content/gnews/28/README.md)
  ` 澳喜农场`
 
-### [美国司法部宣布成立国家加密执法团队](/content/gnews/22/README.md)
+### [美国司法部宣布成立国家加密执法团队](/content/gnews/29/README.md)
  ` wenwu`
-
-### [MoneyGram与Stellar 和 USDC 合作进行区块链支付](/content/gnews/23/README.md)
- ` wenwu`
-
-### [拜登提名人从简历中删除了卡尔·马克思的论文](/content/gnews/24/README.md)
- ` wenwu`
-
-### [美中苏黎世“最深入对话” 拜习会或年底前于线上举行](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/26/README.md)
- ` wenwu`
-
-### [纽约州大型医疗保健系统解雇了 1,400 名未接种疫苗的员工](/content/gnews/27/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [郭文贵精品视频-新中国联邦人向世界呼叫：🆘](/content/gnews/28/README.md)
- ` 澳喜农场`
-
-### [国人何时醒](/content/gnews/29/README.md)
- ` 纽约香草山MOS03`
 
 ### [黑客窃取并公布了亚马逊Twitch源代码等关键数据](/content/gnews/30/README.md)
  ` GTV新闻访谈`
@@ -138,38 +138,38 @@
 ### [法国参议员不顾台海紧张局势毅然访问台湾](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [主流媒体指鹿为马 欲将比尔·盖茨洗白成救世主](/content/gnews/42/README.md)
+### [默克中共病毒口服药堪称印钞机 售价高出成本40倍](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [大胡子医生：西方的顺从教育加重了病毒和疫苗危机！](/content/gnews/43/README.md)
+### [主流媒体指鹿为马 欲将比尔·盖茨洗白成救世主](/content/gnews/43/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [大胡子医生：西方的顺从教育加重了病毒和疫苗危机！](/content/gnews/44/README.md)
  ` 军迷wilson`
 
-### [中国的经济自由赤字如何扭曲境外市场](/content/gnews/44/README.md)
+### [中国的经济自由赤字如何扭曲境外市场](/content/gnews/45/README.md)
  ` 象声`
 
-### [研究表明，完全接种疫苗者体内抗体在三个月后急剧下降](/content/gnews/45/README.md)
+### [研究表明，完全接种疫苗者体内抗体在三个月后急剧下降](/content/gnews/46/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [三票专栏：中共是如何用房地产泡沫掠夺中国和全世界人民的](/content/gnews/46/README.md)
+### [三票专栏：中共是如何用房地产泡沫掠夺中国和全世界人民的](/content/gnews/47/README.md)
  ` 三票先生`
 
-### [10/06/2021 国际财经快讯：日本央行黑田东彦称日本劳动惯例使工资压力得到控制；多国劳动力市场面临工人短缺的难题](/content/gnews/47/README.md)
+### [10/06/2021 国际财经快讯：日本央行黑田东彦称日本劳动惯例使工资压力得到控制；多国劳动力市场面临工人短缺的难题](/content/gnews/48/README.md)
  ` 秘密翻译组金融团队`
 
-### [杰森·米勒：GETTR本周末测试直播；还有全新炫酷功能](/content/gnews/48/README.md)
+### [杰森·米勒：GETTR本周末测试直播；还有全新炫酷功能](/content/gnews/49/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【潘多拉文件】引发全球震荡](/content/gnews/49/README.md)
+### [【潘多拉文件】引发全球震荡](/content/gnews/50/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [针下亡魂｜希腊 60 岁男检察官接种疫苗后肺栓塞死亡](/content/gnews/50/README.md)
+### [针下亡魂｜希腊 60 岁男检察官接种疫苗后肺栓塞死亡](/content/gnews/51/README.md)
  ` G&#124;News TAIWAN`
 
-### [针下亡魂｜巴西 16 岁女学生接种疫苗8日后死亡](/content/gnews/51/README.md)
+### [针下亡魂｜巴西 16 岁女学生接种疫苗8日后死亡](/content/gnews/52/README.md)
  ` G&#124;News TAIWAN`
-
-### [美国代表批评中共国的贸易行为 不排除采取额外措施](/content/gnews/52/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [2021/10/05 墙内世界](/content/gnews/53/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

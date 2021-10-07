@@ -2,21 +2,79 @@
 ---
 
 
-## Moderna疫苗：因心肌炎风险而停止为年轻人接种第二剂
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1578595/)
+## 正道主义就是当下教
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1578687/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10074.jpg)
-Moderna 疫苗重新成为人们关注的焦点，北欧出现了一系列关于非常罕见的副作用（如心肌炎）的突发新闻。在一些国家，决定对某些年龄组暂停接种：在瑞典和丹麦，一些报告表明，与接种疫苗相比，接种第二剂 Spikevax（Moderna 疫苗）后，年轻男性患心肌炎的风险可能更高。关于第二剂辉瑞的 Comirnaty – BioNTech，还需要其他评估。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-12.jpg)https://gtv.org/video/id=615e893ed2e2b81748722dc8
+郭文贵：
+Miles Guo：
 
-在瑞典和丹麦宣布暂停对 30 岁以下和 18 岁以下人群接种 Spikevax 疫苗后，欧洲药品监督局(EMA)将评估新数据以确定是否有必要更新产品信息中的当前建议。瑞典公共卫生局解释说：“关于心肌炎和心包炎等副作用的报告正在增加”。
+正道主义就是当下教
+Righteousness is the present teaching
 
-欧盟监管机构说：”根据北欧国家（丹麦、芬兰、挪威和瑞典）的新数据分析表明，在第二剂辉瑞Comirnaty 疫苗和Moderna Spikevax疫苗 后，心肌炎发生的频率更高。初步分析表明年轻男性在第二次服用 Spikevax 后患心肌炎的风险可能高于第二次服用 Comirnaty。
+把当下教搞明白才能说未来
+Understand the present teaching, then you can talk about the future
 
-在瑞典和丹麦的年轻人中已经暂停使用Moderan苗。挪威已经向未成年人推荐辉瑞疫苗。一位芬兰卫生官员也表示，芬兰应该在周四，即周四公布其决定。
+所有的基督教、天主教、佛教都是未来教，告诉你未来的
+All Christianity, Catholicism, and Buddhism are futuristic religions that giving you a picture of the future world
 
-免责申明：本文只代表译者观点，与Gnews无关
+让今天的付出，让你换一个不可确定的未来
+Let you practice today for an indefinable future
 
-原文链接：[https://www.today.it/attualita/seconda-dose-vaccino-moderna-miocardite-giovani.html](https://www.today.it/attualita/seconda-dose-vaccino-moderna-miocardite-giovani.html)
+No
+No
 
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
+咱们的inspiration4就告诉你，它就是宗教
+Our inspiration4 have told you. It is religion
+
+我现在就给你打电话，让一个这样的女孩上太空
+(For example), I’m calling you right now to get a girl into space
+
+让一个黑人直接上太空，让一个企业家上太空
+to have one black person straight headed into space, to put an entrepreneur in space
+
+担当、分享、勇气、希望、成功，上太空，就是当下教啊
+Responsibility, sharing, courage, hope, success, going up to space, is the present teaching
+
+我们今天的喜币、新GTV，还有盖特，GTV、GFASHION、GCLUB都是当下教
+Today our H-coin, new G-TV, and GETTR, G-TV, G-FASHION, G-CLUB are all representing the present teaching
+
+当下有了教，我们就有了未来
+With the present teaching, we have the future
+
+所以你看这4个人的时候，就是这4个人的经历和历史
+So when you look at these 4 people, I mean the experience and past history of these 4 people
+
+你看一个美国的普通孩子，从自己创业，你看他们创业在一起
+You see the average American kids, starting their own business, starting a business together
+
+考瑞德、谢尔曼，你看这几个人，这太不简单了
+Look at these guys, Kaurid, Sherman. This is amazing.
+
+完全不同的人，只有在美国，他们这些人才有这样的机会
+Completely different people, and only in the United States do these people have such opportunities
+
+就是以人为本，就是要有公平的机会，就是付出要能得到
+It is the United States can put people first, that is, to have a fair chance to give and get rewarded
+
+就是每个人有安全感，每个人要有希望
+It is that everyone has a secured feeling, everyone has to have hope
+
+这些都是我们新中国联邦要给大家能做到的
+All these are what our New Federal State of China will offer to you
+
+这才是我们今天要说的核心，新中国联邦人，最最重要的就是这个
+This is the core of what we are talking about today, the most important thing for the people of New Federal State of China
+
+原视频日期：2021/09/29
+原视频链接: https://twitter.com/se1y7cblljselva/status/1443702537492721701?s=21
+视频时间段 : 0:00-1:42
+英听校： 洛杉矶盘古农场 – Mike Li
+翻译： 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场–郭班之樱
+字幕+视频制作：洛杉矶盘古农场–天涯行
+审片：洛杉矶盘古农场–银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

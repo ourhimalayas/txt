@@ -2,68 +2,37 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1578387/)
+## 《长津湖》上映后维基百科词条遭小粉红篡改引发论战
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1578480/)
 
-- **编译：西班牙喜悦农场–wenwu**
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-17.png)
+图片来自网络
 
+在中共国十一长假期间，各大院线上映了一部所谓“抗美援朝”题材的电影《长津湖》。该片上映6天票房报收25亿元人民币。不过，随后出现单日票房连续6天逆跌。有分析认为，该片的上映反而引致民众去了解这段真实历史，并对影片的过度虚假宣传产生反感。网络上开始出现正反两面的论战，而中共开始封杀负面消息。更有小粉红去删改维基百科词条，试图阻止公众了解“长津湖战役”这段真实历史。
 
-您若想了解全文报导内容，请点击标题链接
+据《希望之声》10月7日报道，《长津湖》在中共国上映后，从10月1日至10月6日，维基百科词条“长津湖战役”遭小粉红篡改48次，试图掩盖长津湖战役的真相。有网友表示，一部“抗美神剧”《长津湖》变成了揭露朝鲜战争真相的催化剂，也成了区分脑残的测试纸。
 
-（爱惜生命 远离疫苗）
+网名为“Dan3031949”的小粉红，试图篡改维基百科词条“长津湖战役”多达48次，但都被管理员修复。根据维基百科给“Dan3031949”贴出的标签，Dan Zhao 现在新加坡南洋理工大学学习，曾在中共海军服役5年。
 
-**1.[日本发现能传染人类新病毒：可致39度高烧 至少7人感染](https://health.huanqiu.com/article/453k0Gd5EU5)**
+对于此事，署名“月光博客”的网友表示：“到底是谁在破坏维基百科的“长津湖战役”条目？由于维基百科条目编辑都是有历史记录可查的，通过历史修改就可以看出是谁在搞破坏。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip253.png)
+也有网友指出：“此人一定是在海军服役期间脑子被洗残了。”还有网友表示，这是小粉红的一个完美的代表。
 
-据《环球网》援引《海外网》2021年10月6日电，日本科学家松野发现了一种此前未知的、可传染给人类的新病毒——“Yezo病毒”，该病毒可导致高达39度的高烧;最早是2019年发现，1名41岁的男子在日本北海道森林里散步时被蜱虫叮咬感染未知病毒，之后因发烧和腿痛入院；至今已有7人感染了这种病毒，并没有出现死亡。
+据悉，Dan Zhao在看到他篡改的内容被管理员修复后开始骂人：“什么狗屁东西，看美军有多少人，infobox上面都写了，别搁着秀智商，还‘15万人7个加强师包围1.7万人’…… 不会中文就回娘胎里重塑。”
 
-**2. [台湾拟引进抗病毒药物治疗中共病毒](https://www.taiwannews.com.tw/en/news/4307846)**
+对此，维基百科的管理员也不示弱，回复说：“补回五毛狗想遮掩的东西。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip254.png)
+通过维基百科词条的修改记录，网友发现，脑残小粉红拚命想要删除的是下面这一段内容，不过又不断被管理员修复：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片2-7.png)
+维基百科在中共国是被封禁的，但网友通过翻墙还是可以访问。有网友对《长津湖》这部电影发出讥讽说：“打仗的被冻成了冰雕，指挥打仗的被打成了反动派，只有拍电影忽悠傻X的发了大财。“
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片3-3.png)
+还有网友怒批中共的无耻，说：“没有御寒冬衣，没有后勤保障，‘冰雕连’成建制地冻毙，指挥官、后勤保障官员不应该上军事法庭吗？ 这种事情搁在正常国家都是天大的丑闻，中共还有脸拿出来歌颂？ ”
 
-据《台湾英文新闻》2021年10月6日电，默克和 Ridgeback Biotherapeutics 合股在 10 月 1 日的新闻稿中宣布，对于具有轻度至中度症状的高危、非住院中共病毒（COVID-19）患者，莫诺拉韦（molnupiravir）可将其住院或死亡风险降低约 50%；中央流行病指挥中心（CECC）负责人陈时中（陈时中）周三（6日）表示，台湾将在11月底积极争取获得用于治疗 COVID-19 的口服抗病毒药莫奈拉韦。
+更有网友表示，一部电影变成了揭露朝鲜战争真相的催化剂。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片4.png)
+尽管中共官媒大力宣传《长津湖》，但在截至10月5日的“豆瓣”电影评价中，25万人参与评分，平均分为7.6。其中，1.5%的人给出1星；5.8%的人给出2星；30.8%的人给出3星。 由此可见，中共的虚假洗脑宣传并不是那么成功。
 
-**3. [默克以 40 倍于生产成本的价格向美国出售由纳税人出资研究的中共病毒药丸](https://www.thegatewaypundit.com/2021/10/update-merck-sells-federally-financed-covid-pill-us-40-times-costs-produce/)**
+注：本文仅代表作者观点
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip255.png)
-
-据《门户网》2021年10月6日电，在发现羟氯喹在早期[成功治疗中共病毒](https://c19hcq.com/)一年多之后，在发现伊维菌素在治疗（尤其是[在印度](https://www.thegatewaypundit.com/2021/09/huge-uttar-pradesh-india-announces-state-covid-19-free-proving-effectiveness-deworming-drug-ivermectin/)）中共病毒方面取得惊人成功的几个月后；上周，主流假新闻媒体对默克公司发现了治疗 COVID 病毒的药物的消息，表示欢迎。
-
-默克不是免费赠送他们的新药，新药莫奈拉韦的售价相当于生产成本（来自美国纳税人）的 40 倍；这是大型制药公司的又一次胜利。
-
-**4.  [Fauci 和 HHS 官员曾策划“一种新的禽流感病毒”以强制执行疫苗护照](https://www.thegatewaypundit.com/2021/10/explosive-video-emerges-fauci-hhs-officials-plotting-new-avian-flu-virus-enforce-universal-flu-vaccination-video/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip256.png)
-
-据《门户网》2021年10月6日电，[Infowars 的](https://www.infowars.com/posts/monday-night-emergency-broadcast-video-of-fauci-and-hhs-plotting-to-stage-massive-health-scare-using-new-virus-emerges/)亚历克斯·琼斯 (Alex Jones)周一（4日）晚上特别广播了一段有关福奇的爆炸性[C-SPAN视频](https://www.c-span.org/video/?465845-1/universal-flu-vaccine)，HHS 官员和其他健康专家于 2019 年 10 月在华盛顿特区的米尔肯研究（Milken Institute）所组织的峰会上，讨论了如何实施疫苗护照；这些片段证明了中共病毒（COVID-19）大流行是计划好的，并且大型制药公司与联合国和其他腐败的政府官员早有预谋，开发和启动了 COVID-19 病毒世界“大重置”。
-
-在这段视频中，他们设想了一场来自中共国的新型禽流感病毒的新演习，这样他们就可以绕过 FDA 批准的方法，向大众实施 mRNA 毒疫苗；与 Fauci、Rick Bright 和 Michael Specter 一起参加此次活动的还有：美国国家医学科学院外交大臣 Margaret Hamburg、Sabin 疫苗研究所全球免疫总裁 Bruce Gellin、FluLab 首席执行官 Casey Wright，他们需要向全球发起生物武器攻击，让许多人渴望能够推出一种新的 mRNA 疫苗（另一种生物武器），以供公众测试（要钱也要命）。
-
-**5. [疫苗和中共病毒等同种族灭绝和危害人类罪，进行刑事起诉](https://theexpose.uk/2021/10/04/international-criminal-court-to-begin-criminal-prosecution-of-world-leaders-for-covid-genocide-with-your-help/)——[点击并签名](https://www.petitions.net/investigation_and_prosecution_of_those_individuals_responsible_for_crimes_against_humanity) **
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip257.png)
-
-据《吹哨人》2021年10月4日电，由于大量证据证明世界各国政府及其顾问参与了种族灭绝、危害人类罪和违反纽伦堡法典，世界各地的律师最近向国际刑事法院（ICC）提交了调查请求；这些证据包括理查德·弗莱明博士和诺贝尔奖获得者吕克·莫塔尼耶教授的宣誓证词，以及纳粹集中营幸存者的支持。
-
-律师们一直在耐心等待国际刑事法院的回应，但由于** ****Covid-19 **疫苗伤害儿童的情况正在发生，律师和他们的专家证人迫切需要您的帮助，通过签署理查德**·**弗莱明博士创建的请愿书来敦促国际刑事法院接受调查请求，并开始对提交的证据中确定的个人进行调查和刑事起诉；一旦国际刑事法院做出决定，我们将及时向您通报调查请求的结果。
-
-纳粹集中营大屠杀的幸存者写给国际刑事法院的信（[可在此处全文阅读](https://theexpose.uk/wp-content/uploads/2021/09/We-For-Humanity-letter-to-ICC-20.9.2021.pdf)）
-
-[**签署请愿书**](https://www.petitions.net/investigation_and_prosecution_of_those_individuals_responsible_for_crimes_against_humanity)
-
-**6. [辉瑞科学家说他为“一个邪恶的公司”工作](https://theexpose.uk/2021/10/05/pfizer-scientist-caught-on-film-stating-natural-antibodies-are-much-better-than-the-pfizer-covid-19-vaccine/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip258.png)
-
-据《吹哨人》2021年10月5日电，在《真相工程》发布的秘密镜头中，为辉瑞公司工作的科学家尼克·卡尔表示，天然抗体要好得多，因为它们可以攻击整个病毒系列，而不仅仅是中共病毒（Covid-19）疫苗所针对的单个病毒变体；辉瑞公司的科学家 Rahul Khandke 说：“我们是为了工资，被教导说疫苗免疫比自然免疫更安全……如果你有抗体，这就足够了。”
-
-虽然辉瑞的高级科学家克里斯克罗齐说，他觉得自己在为“邪恶的公司”工作，接种疫苗的人仍然生病，因为他们的中共疫苗产生的抗体正在减弱，这与新的德尔塔关变体。完整视频报告：[点击这里](https://videopress.com/ade26147-2702-4f27-99d2-05afdced4060)。
-
-（文章仅代表作者本人观点，与Gnews无关）
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+新闻链接：[https://twitter.com/SoundOfHope\_SOH/status/1445810806549925899](https://twitter.com/SoundOfHope_SOH/status/1445810806549925899)
