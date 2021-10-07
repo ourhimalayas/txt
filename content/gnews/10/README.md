@@ -2,82 +2,30 @@
 ---
 
 
-## 孙力军的公告证明了他的势力很强大并且无处不在
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1578725/)
+## 中共国中小微民营企业濒临集体死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1578782/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-13.jpg)https://gtv.org/video/id=615e8b11d2e2b81748722e37
-郭文贵：
-Miles Guo：
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-112.png)[图片来源](https://lvdao.sina.com.cn/2020-03-30/doc-iimxyqwa4078600.shtml)
+此世界上，唯有死亡和税收不可避免。
 
-你像北京市公安局的李东
-I talked about Li Dong, a former member of the Beijing Public Security Bureau
+秋风起，螃蟹肥，秋天的栗子湾，弥漫着太湖大闸蟹的香味，有家族在秦楼团聚，互道思念之情，同祈家人安康，共祝生意圆满。酒过三巡，王氏、钱氏和查氏聚于一处，聊起生意。
 
-2017年说过，我现在都不说了
-But I no longer speak of him now
+王氏经营着一个厨具代工厂，过去的二十年，平均年销售额约1亿，平均利润约为8%。今年以来，主要原材料价格大涨，不锈钢上涨近100%，冷轧板上涨50%，铝上涨70%，玻璃上涨近100%，电机、照明装置等均有大幅涨价，而下游品牌企业的订单价格全年保持不变，只是计划2022年的订单价格上调3—5%。目前，在完成订单的情况下，每月净亏约15%。近期，全国限电，工厂每月仅有14日可以安排生产，几乎不能完成订单，违约金折算到停工小时为5000元/小时。更为严峻的是，极其紧张的现金流，该行业账期为6个月，而大部分原材料却是现金交易，意味着王氏过去的绝大部分利润是以厂房、设备和现货的方式压在企业里。若关厂退出，6个月应收账款多半收不回来，还要发生上百家供应商应付账款的违约，二十多年的付出最多只赚个厂房。王氏估计，照此情形，今年年底该行业25%的上下游企业将会破产，明年年底该行业50%的上下游企业将破产。
 
-那李东是河南人，那李东跟吴征是生死兄弟
-Li Dong came from Henan province. He and Bruno Wu are brothers in blood and death
+钱氏是王氏表弟，经营着一个纺织代工厂，有自己的厂房和上亿的设备，曾给某顶级奢侈品牌代过工。2020年之前，门庭若市大货车排队等货；2020年，生意一落千丈，但尚能坚持；进入2021年，规模订单没有了，仅有些量小但要求极高的订单，开工的目的只是为了让剩余的工人有点事情做，保持工厂的日常经营状态，苟延残喘而已。钱氏估计，由于某著名印染基地每月停电一半，不少纺织企业的订单都会面临违约，赔偿费用极其高昂，恐只有破产一途。
 
-这是李东的原话说的
-Li Dong had told me
+查氏是王氏妻族堂弟，起伏数次，上次破产源于参与二十多家企业互保，其中一家债务违约把他数家企业也带破产了。按理，负债违约者很难东山再起，不过在基于亲缘、地缘和方言纽带而形成的宗亲团体中，查氏还是找到了机会。几年前，查氏着手经营一个中介企业，给政府提供招商引才中介服务。目前，地方政府隐形负债率高，第三季度房地产市场急跌，土地市场又几无成交，查氏估计政府也快断粮了，这中介能否维系还得看财政收入情况。
 
-那个时候孙立军还不是公安部副部长的时候
-Sun Lijun would be appointed as the Vice Minister of Public Security quite early
+以上除地点和人物是假的，别的都是真的，这三个企业就是中共国中小微企业的典型例子。2018年，中共国官方竟然承认民营中小微企业具有“五六七八九”的贡献，截至2020年底，中共国市场主体总数达到1.4亿户，中小微企业户数占比95.68％，营业收入占比62.98％，利润总额占比53.46％，整个民营企业的税收占比已达到60.1%。民营中小微企业可以称为社会稳定的基石，但面临的困境和围剿，超乎想象。
 
-说孙立军要当公安部副部长
-before Sun was actually assigned to that position
+2021年，各国印钞抗疫的后果开始显现，长期通胀在源头起航，能源价格飙升，原材料价格成倍上涨，大宗商品价格高位运行，再叠加停电限电、账期不断拉长、融资极度困难、违约风险高涨和税收等人为因素，致使中小微企业大幅亏损，维系生产和服务成为不可承受之重。接下来数月，疫苗灾难将至，交通输行业将会受到致命打击，供应链面临致命威胁，中小微民营企业除了大规模集体死亡别无选择。
 
-老郭，那是人家孟建柱、王岐山公认的枪靶子
-He told me that Sun Lijun was the gunman that both Meng Jianzhu and Wang Qishan wanted
+至此，需有所展望。本次中小微民营企业集体死亡绝无法避免，产业虽会逝去，但那颗永不停歇的利他之心才是持续的动力，这就是企业家精神，他们会在新中国联邦得以回归。
 
-人家光杨澜一个人在美国的那个AI公司、数据公司
-Yang Lan (Bruno Wu’s wife) once received $3.4 billion
+消息来源：[第三届小微经济发展论坛发布《中小微企业创新发展报告》](https://www.sohu.com/a/489609871_121106854)
 
-人家就是34亿美金拿走了，你们上网可以查一查，上网可以查一查
-from a certain company in the US — the Digital AI Corporation, everybody can check it over on the internet
-
-这家公司，吴征最起码2到3次，辞职、进来，辞职、进来，当CEO
-You could find Bruno Wu once joined and resigned from the company as CEO at least 2 to 3 times
-
-之后把公司34亿美元卖给了阿里巴巴，阿里巴巴等于给他送钱嘛
-The company was sold to Alibaba for $3.4 billion. It was like Alibaba giving them the money as a gift
-
-但仅这一家公司就34亿美元
-Just one company alone, $3.4 billion was involved
-
-说光杨澜、钥匙澜就300多亿美元
-Yang Lan, nicknamed “looking-for-the-key Lan”, was involved in dirty business dealings of over $30 billion in combination
-
-说吴征在海外持有的股权，像湄公河、泰国、缅甸、台湾的黑帮
-The overseas equities that her husband, Bruno Wu holding are worth $100 billion or more
-包括整个俄罗斯这一带的，包括江浙沪，都1000多亿美元
-Involving mobs in the Mekong River in Thailand, Myanmar, and Taiwan, including
-areas in Russia
-
-2016年跟我说的，现在李东在哪儿我都不知道
-And these are just what Li Dong told me in 2016. Where is Li Dong now?
-
-你说这2016年到现在，孙立军、孟建柱、王岐山干了啥？
-What have Sun Lijun, Meng Jianzhu, and Wang Qishan done since 2016 until now?
-
-中国只要有孟建柱、孙立军，还有王岐山，还有周亮
-As long as those bastards, like Meng Jianzhu, Sun Lijun, Wang Qishan, Zhou Liang,
-
-还有曾庆红在，反腐扯王八犊子的事
-and Zeng Qinghong are still in power in China, anti-corruption is bullshit.
-
-所有孙立军的公告证明了孙立军的势力更强大，无处不在
-From the statement about Sun Lijun, we can tell that the forces behind him are even more mighty than before, and they are everywhere.
-
-原视频日期：2021/09/30
-原视频链接: https://twitter.com/se1y7cblljselva/status/1443967825782054913?s=24
-视频时间段 : 0:00-1:25
-英听校： 洛杉矶盘古农场 – Mike Li
-翻译： 洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

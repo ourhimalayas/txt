@@ -2,36 +2,27 @@
 ---
 
 
-## 美国司法部宣布成立国家加密执法团队
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1578457/)
+## 飞机在米兰坠毁：疾病假设
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1578581/)
 
-- **编译：西班牙喜悦农场–wenwu**
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10073.jpeg)
+从地铁站附近自动取款机停车场的监控摄像头拍摄的视频，以及路人和发生撞击的停车场附近拍摄的一些视频中可以看到：飞机发动机没有看到火焰。从一辆在东环路上行驶的汽车拍摄的视频最清楚地显示了飞机如何俯冲向圣多纳托地铁总站。
 
+正是由于这个原因，关于事故原因流传着不同的假设，与司法机构同时进行的技术安全调查的负责人国家飞行安全局 (ANSV) 呼吁保持谨慎。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip261.png)
+发动机熄火，飞机突然坠毁到 90 度，这可能是最后一次绝望的尝试将其恢复，这也是视频捕获的的结果。可能受到多种技术因素的影响，例如故障，但也可能是由于错误、特定天气条件或疾病引起的飞行员异常机动。发动机失速（如果速度上升，飞机会因为不平衡而坠毁）是非常罕见的。
 
-我们需要确保人们在使用这些系统时能够充满信心，我们需要确保我们准备好根除可能影响他们的滥用行为，**”**丽莎**·**摩纳哥（**Lisa Monaco**）说。
+我们考虑可能会发生什么。对遇难者遗骸进行重组和基因确认，但不可能进行任何形式的尸检。然而，多亏了毒理学测试，寻找某些酶，才有可能确定飞行员是否患有心脏病或其他疾病。
 
-司法部长办公室的一位官员表示，美国政府将在针对利用加密货币洗钱和其他网络犯罪的行为人的执法行动中，发挥更积极的作用。
+在飞行员和利纳特雷达控制中心之间的通信过程中，没有收到任何紧急报告来自坠毁的飞机，既不是发动机故障或问题，也不是恶劣天气。
 
-司法部副部长丽莎·摩纳哥周三（6日）在阿斯彭研究所网络峰会上发表讲话[说](https://www.youtube.com/watch?v=WfjGHD1n7gU)，司法部已经启动了国家加密货币执法小组，该项目旨在追查“帮助犯罪分子洗钱或隐藏犯罪收益”的平台。摩纳哥[引用了她的办公室](https://cointelegraph.com/news/darknet-crypto-mixer-operator-pleads-guilty-to-laundering-300m-in-btc)在 8 月针对基于暗网的比特币 ( [BTC](https://cointelegraph.com/bitcoin-price) ) 混合服务 Helix [所做的工作](https://cointelegraph.com/news/darknet-crypto-mixer-operator-pleads-guilty-to-laundering-300m-in-btc)，但她表示美国政府应该做更多。
+因此，这可能是飞行员生病或飞机故障。唯一的选择是尝试大转弯返回利纳特机场，从轨道上可以明显看出这一点。
 
-摩纳哥说：“我们希望加强我们的能力，拆除使这些犯罪行为人能够蓬勃发展的金融生态系统，并且—坦率地说–从他们的加密货币系统中获利；我们将利用我们的网络专家、网络检察官，以及洗钱专家来做到这一点。”
+如果飞行记录仪完好无损，它将提供大量信息，以及对发动机残骸的分析：从残骸中也可以至少部分了解可能发生的情况。调查专家已经在试图整合了一些快速方法。
 
-她补充说：
+免责申明：本文只代表译者观点，与Gnews无关
 
-**“**加密货币交易所希望成为未来的银行。我们需要确保人们在使用这些系统时能够充满信心，并且我们需要确保我们准备好根除可能在这个加密货币系统上，发生的滥用行为。**”**
+原文链接：[https://www.today.it/cronaca/aereo-caduto-milano-malore-pilota.html](https://www.today.it/cronaca/aereo-caduto-milano-malore-pilota.html)
 
-摩纳哥一直是美国政府应对涉及加密货币支付的重大勒索软件和网络攻击的核心人物。她是[一个特别工作组的成员](https://cointelegraph.com/news/us-officials-recover-2-3m-in-crypto-from-colonial-pipeline-ransom)，[该工作组](https://cointelegraph.com/news/us-officials-recover-2-3m-in-crypto-from-colonial-pipeline-ransom)在 5 月份俄罗斯对 Colonial Pipeline 系统进行攻击后，”发现并夺回了”支付给俄罗斯 DarkSide 黑客的价值数百万美元的比特币。
-
-副司法部长摩纳哥还宣布了一项民事网络欺诈计划，旨在追查未能报告违规行为并遵守安全标准的政府承包商。
-
-（文章仅代表作者观点** **与**GNEWS**无关）
-
-**新闻来源：《[虚拟货币电报](https://cointelegraph.com/news/us-justice-dept-announces-launch-of-national-crypto-enforcement-team)》｜作者：特纳·赖特｜发布时间：2021年10月6日｜**
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦

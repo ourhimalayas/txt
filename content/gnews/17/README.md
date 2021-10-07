@@ -2,24 +2,82 @@
 ---
 
 
-## 韩国新型“万吨大驱”首舰入坞搭载！2024年列装3艘
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1578682/)
+## 孙力军的公告证明了他的势力很强大并且无处不在
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1578725/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-111.png)[图片来源](https://www.sohu.com/a/493746051_155167)
-据“国际舰船网”10月7日报道，现代重工正在加快建造韩国海军新一代“宙斯盾”驱逐舰（KDX-Ⅲ Batch-Ⅱ）先导舰（首舰）的步伐。10月5日，该舰入坞搭载仪式在现代重工蔚山造船厂举行，韩国防卫事业厅、韩国国防技术品质院相关人士等出席仪式。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-13.jpg)https://gtv.org/video/id=615e8b11d2e2b81748722e37
+郭文贵：
+Miles Guo：
 
-韩国海军新一代“宙斯盾”驱逐舰（KDX-Ⅲ Batch-Ⅱ）又被称为升级版“世宗大王”级“宙斯盾”驱逐舰，计划建造3艘。现代重工于2018年完成该型舰的基本设计，并于2019年10月与韩国防卫事业厅签署首舰的设计建造合同，合同金额6666亿韩元（约合6.28亿美元）。今年2月16日，该型舰首舰开工建造，比原计划提前了8个月。
+你像北京市公安局的李东
+I talked about Li Dong, a former member of the Beijing Public Security Bureau
 
-该舰舰长170米，舰宽21米，标准排水量8100吨，满载排水量达15000吨，最大航速为30节，是韩国目前最大的驱逐舰。与现有的“世宗大王”级“宙斯盾”驱逐舰相比，该舰弹道导弹拦截能力更强，并将搭载韩国国防科学研究所(ADD)正在开发的综合声呐系统(ISS•Integrated SONAR System)，其作战执行能力特别是反潜作战能力将得到划时代的提高。
+2017年说过，我现在都不说了
+But I no longer speak of him now
 
-此外，该舰还将搭载“宙斯盾”作战系统(Aegis combat system) 和5英寸舰炮，以及近程防御武器系统、舰对空导弹、舰对舰导弹、鱼雷、多功能相控阵雷达、红外线探测和追踪装备、电子光学追踪装备等武器装备，拥有异常强大的战斗能力。同时，现代重工还为该舰专门设计了由两台1.7兆瓦级推进马达组成的节能型辅助推进系统，可大幅节约燃料。
+那李东是河南人，那李东跟吴征是生死兄弟
+Li Dong came from Henan province. He and Bruno Wu are brothers in blood and death
 
-据悉，该舰将于明年下半年下水，经过约两年的试验评估，于2024年底交付韩国海军。
+这是李东的原话说的
+Li Dong had told me
 
-信息来源：[韩国海军新款“万吨大驱”首舰入坞搭载！现代重工计划建造3艘\_驱逐舰](https://www.sohu.com/a/493746051_155167)
+那个时候孙立军还不是公安部副部长的时候
+Sun Lijun would be appointed as the Vice Minister of Public Security quite early
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+说孙立军要当公安部副部长
+before Sun was actually assigned to that position
+
+老郭，那是人家孟建柱、王岐山公认的枪靶子
+He told me that Sun Lijun was the gunman that both Meng Jianzhu and Wang Qishan wanted
+
+人家光杨澜一个人在美国的那个AI公司、数据公司
+Yang Lan (Bruno Wu’s wife) once received $3.4 billion
+
+人家就是34亿美金拿走了，你们上网可以查一查，上网可以查一查
+from a certain company in the US — the Digital AI Corporation, everybody can check it over on the internet
+
+这家公司，吴征最起码2到3次，辞职、进来，辞职、进来，当CEO
+You could find Bruno Wu once joined and resigned from the company as CEO at least 2 to 3 times
+
+之后把公司34亿美元卖给了阿里巴巴，阿里巴巴等于给他送钱嘛
+The company was sold to Alibaba for $3.4 billion. It was like Alibaba giving them the money as a gift
+
+但仅这一家公司就34亿美元
+Just one company alone, $3.4 billion was involved
+
+说光杨澜、钥匙澜就300多亿美元
+Yang Lan, nicknamed “looking-for-the-key Lan”, was involved in dirty business dealings of over $30 billion in combination
+
+说吴征在海外持有的股权，像湄公河、泰国、缅甸、台湾的黑帮
+The overseas equities that her husband, Bruno Wu holding are worth $100 billion or more
+包括整个俄罗斯这一带的，包括江浙沪，都1000多亿美元
+Involving mobs in the Mekong River in Thailand, Myanmar, and Taiwan, including
+areas in Russia
+
+2016年跟我说的，现在李东在哪儿我都不知道
+And these are just what Li Dong told me in 2016. Where is Li Dong now?
+
+你说这2016年到现在，孙立军、孟建柱、王岐山干了啥？
+What have Sun Lijun, Meng Jianzhu, and Wang Qishan done since 2016 until now?
+
+中国只要有孟建柱、孙立军，还有王岐山，还有周亮
+As long as those bastards, like Meng Jianzhu, Sun Lijun, Wang Qishan, Zhou Liang,
+
+还有曾庆红在，反腐扯王八犊子的事
+and Zeng Qinghong are still in power in China, anti-corruption is bullshit.
+
+所有孙立军的公告证明了孙立军的势力更强大，无处不在
+From the statement about Sun Lijun, we can tell that the forces behind him are even more mighty than before, and they are everywhere.
+
+原视频日期：2021/09/30
+原视频链接: https://twitter.com/se1y7cblljselva/status/1443967825782054913?s=24
+视频时间段 : 0:00-1:25
+英听校： 洛杉矶盘古农场 – Mike Li
+翻译： 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
