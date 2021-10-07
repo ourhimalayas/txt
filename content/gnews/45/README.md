@@ -2,58 +2,30 @@
 ---
 
 
-## 屏蔽林依然8月9日的新浪微博坐实新浪的疫苗杀人本色
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1578579/)
+## 中共国利用搜索引擎推动covid-19起源美国军事基地的虚假宣传
+` 象声` [轉載自GNews](https://gnews.org/zh-hans/1578617/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/001_副本.jpg)
-日前我们发布了[**林依然关于疫苗的新浪微博引来无数脑梗心梗受害者留言**](https://gnews.org/zh-hans/1547117/)的文章，在文章中我们详细记录了在[林依然LLL\_](https://weibo.com/yiranbaby?refer_flag=1005055014_) [2021年8月9日 01:01](https://weibo.com/1797014755/KszfAuFd4?from=page_1005051797014755_profile&amp;wvr=6&amp;mod=weibotime) 来自 [HUAWEI P40 Pro 5G](https://app.weibo.com/t/feed/6uaYFC)
+科技通讯记者克里斯蒂亚诺利马2021年10月5日在华盛顿邮报发表文章指出：根据与The Technology 202独家分享的一份新报告，中共的政府官员和官方媒体正在利用 Google、YouTube 和 Bing 等强大引擎的搜索结果中的空白来推进有关 covid-19 起源的阴谋论，他们在散布冠状病毒是在德特里克堡的实验室中创造出来的消息，德特里克堡是马里兰州的一个军事基地，多年来一直是众多病毒骗局的中心。
 
-#新冠疫苗副作用#有没有人打完新冠疫苗后发烧，血小板减少的？ ​​​​那条微博下的评论——
+中共官方媒体和官员几个月以来已经发布了关于德特里克堡超过1000微博，文章和视频，根据周二公布的由联盟保护民主(ASD)，德国马歇尔基金会的一项无党派倡议的一份报告说。
 
-在原文中我们提到：
+研究人员说，这场运动特别值得注意的是，官员们利用了一种传播错误信息和虚假信息的高效手段：在缺乏可靠信息的问题上，在互联网上填充误导性内容。结果是当用户搜索这些更晦涩的话题时—，当他们在谷歌或必应中输入“德特里克堡”时，他们更有可能看到中国支持的阴谋论。研究人员发现，近几个月来搜索军事基地的用户在搜索引擎中都出现了这种趋势。这就是研究人员所说的“数据空白”，他们说它被中共武器化，以推动covid-19来自美国的实验室的理论。
 
-［但是我们要重点关注的是在本文发出后林依然的这条新浪微博的命运将会如何——如果这条微博被和谐或者这条微博下边的评论被删除，那么这条微博和已经留存的所有评论都可以作为新浪及背后控制新浪的中共的反人类罪；
+“它给那些试图宣传这个阴谋的人带来了优势，因为他们不断地一遍又一遍地发布它，所以当不熟悉这个词的人在谷歌上搜索它时……你往往会得到阴谋论者的消息，ASD的媒体和数字虚假信息研究员Bret Schafer说，他是该报告的共同作者。 据报道，自5月以来，德特里克堡在谷歌、YouTube和Bing上的新闻搜索结果在不同时间被CGTN和环球时报等中共官方媒体“主导”。研究人员称这些网点是“北京信息运作的核心”。
 
-如果这条微博和下边的评论被留置，那么我们希望看到每一个在评论区留下自己及亲人因疫苗而产生副作用的网友可以被重视，并且进行一对一的调查和确认，当然，即使这条微博和下边的评论被留置，后边的可能性几乎是零，我知道我想多了，因为在这个国家，一条反党言论的发言者都可以被精确定位，而任何一个丢失的孩子却永远也无法通过它们精准控制的监控和大数据网找到。］
+谷歌发言人 Lara Levin 表示，“这份报告中的示例查询只占谷歌上与冠状病毒相关信息的整体搜索的一小部分。” 莱文表示，拥有 YouTube 的谷歌正试图解决数据空白“是一个已知的挑战”。而拥有必应的微软拒绝置评。这种趋势一直延续到今天。
 
-现在这条记录着大量因植入新冠疫苗而引发各种后遗症的新浪微博终于不见了，据[**林依然LLL\_**](https://weibo.com/yiranbaby) [2021年9月23日 16:10](https://weibo.com/1797014755/KzvqH9rcG?from=page_1005051797014755_profile&amp;wvr=6&amp;mod=weibotime) 来自 [🍓小姐的HarmonyOS设备](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
+就在周一，由The Technology 202对Fort Detrick进行的搜索显示，CGTN和国营的《中国日报》在谷歌和必应的新闻搜索引擎以及 YouTube 的主要搜索引擎上的最高结果中出现了帖子。其中包括CGTN的YouTube视频，质疑德特里克堡的“可怕”历史，并指出“超过1500万中国人签署了一封公开信，呼吁世界卫生组织（WHO）”调查美国军事基地。
+ 周一，微软旗下 Bing 上 Fort Detrick 的头条新闻搜索结果之一是《中国日报》的一篇文章，题为“关于 Fort Detrick 的神话需要澄清”。文章称，“现在反驳了病毒首先出现在中国的理论，越来越多的信息开始出现，即‘德特里克堡’作为病毒的来源可能是一个令人信服的可能性。”
 
-没删，被屏蔽了。 ​​​​
-![](https://assets.gnews.org/wp-content/uploads/2021/10/001-7.jpg)
-这条记录着中共国部分因植入疫苗而产生不良反应的新浪微博的不可见，至少可以证明新浪微博和它背后的主子中国共产党一样，是反人类的犯罪集团，所以我们也有必要把这条微博下面的评论做一下存底。
+研究人员表示，并非他们追踪的所有帖子都包含关于 covid-19 起源的彻头彻尾的谎言，但通过在该地区充斥有关德特里克堡的误导性或暗示性内容，中共实际上发起了一场虚假宣传运动。“如果你进行了一场虚假宣传活动，然后你发布了一些真实的东西来继续关注这个特定主题，这仍然有助于整个活动，”ASD 初级研究员Elen Aghekyan 说，他也是该报告的合著者。谢弗说，中国官方媒体和官员“在框架上经常小心翼翼，只是为了暗示”，并在个别帖子中“站在正确的一边”。他说：“这是一砖一瓦地建立这种论点，有时直接将德特里克堡与冠状病毒联系起来，有时是对整个实验室进行诽谤。”
 
-令人欣喜的是我们依然可以看到黑夜里发出的新中国联邦的光芒——
+研究人员表示，科技公司已经意识到这个问题，并已采取措施来缓解它，包括在某个术语的搜索结果有限时提醒用户，或者在突发新闻场景中通知他们信息正在发展。但最终，研究人员表示，数据空白代表了信息生态系统中更广泛的问题，硅谷公司无法单独解决这些问题。“这绝对是一个没有简单解决方案的问题，当然也不是只有搜索引擎才能提供的解决方案，”Aghekyan说。
 
-[新联邦之利刃](https://weibo.com/7545869003)：青蒿素9月24日 00:40
+\*文章仅代表作者观点\*
 
-[暴暴李小暴](https://weibo.com/1886186695)：战🈶？9月24日 02:00
+新闻采编：洛杉矶盘古农场新闻组
+ 翻译&编辑：洛杉矶盘古农场-蓝精灵
 
-[\_一三土一\_](https://weibo.com/3892199609)：回复[@暴暴李小暴](https://weibo.com/n/%E6%9A%B4%E6%9A%B4%E6%9D%8E%E5%B0%8F%E6%9A%B4?from=feed&amp;loc=at):健身了吗9月25日 10:40
-
-[解忧杂货店1号](https://weibo.com/5531762878)：回复[@暴暴李小暴](https://weibo.com/n/%E6%9A%B4%E6%9A%B4%E6%9D%8E%E5%B0%8F%E6%9A%B4?from=feed&amp;loc=at):原来占有真的在身边9月25日 11:05
-
-[新联邦之利刃](https://weibo.com/7545869003)：回复[@暴暴李小暴](https://weibo.com/n/%E6%9A%B4%E6%9A%B4%E6%9D%8E%E5%B0%8F%E6%9A%B4?from=feed&amp;loc=at):无处不在9月28日 20:17
-
-在这个至暗的时代里，在中共国有那么多因疫苗致死、致残者，他们哪怕发出的一点点关于疫苗致死致残的真相，都会被扑灭，但是真相就是刺破黑暗的利器，无论在哪里，我们都可以喜逢队友，我们都可以看到真相的力量，今天新浪微博可以封杀真相，明天我们必然用真相埋葬新浪微博和它背后的反人类集团——中国共产党！
-
-撰稿：喜马拉雅的肉夹馍
-
-审核：喜马拉雅的馍夹肉
-
-校对：Maarago
-
-（文章内容仅代表作者个人观点）
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+原文参考链接：
+ https://www.washingtonpost.com/politics/2021/10/05/china-is-exploiting-search-engines-push-propaganda-about-origins-covid-19-study-finds/
