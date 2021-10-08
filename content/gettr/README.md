@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/8/2021 4:14 PM (UTC)`
+
+10/7/2021 Miles Guo: In 6 weeks you will see which Nasdaq-listed company owns the new technologies combining nanotechnology and biotechnology! The CCP can only use dirty tricks like reporting fake cases to attack us<br/><br/>10/7/2021 文贵直播：大家在6周后会看到是哪家在纳斯达克上市的公司拥有着纳米技术和生物技术结合的新技术！共产党只会用报假案等下三滥的招儿来对付我们<br/>
+![img](https://media.gettr.com/group30/getter/2021/10/08/16/14/bcea85cc-590d-37c8-2323-b22e10e4d838/out.jpg)
+
+---
+
 `@miles 10/8/2021 2:06 PM (UTC)`
 
 10月8号：尊敬的战友们好……台湾再次成为中美两国之间的政治经济交易的筹码，对台湾没有任何好处，美国等西方国家正在利用中国的内部政治斗争，获取自己的短暂的政治经济的利益，对中国人，对世界没有任何好处，但对我们新中国联邦，却是百利无一害，天助我新中国联邦。
@@ -289,15 +296,6 @@ Attorney Thomas Renz: If you get the vaccine, you are more likely to get Covid. 
 
 10/04/2021 Miles Guo’s GETTR: People in the CCP’s law enforcement, ask yourselves if all you dare to do is bullying the harmless Lao Bai Xing. The CCP virus and the vaccine disaster is a “Great Purge of the wrongdoers,” where all those who have oppressed and plundered the people will be put on trial<br/><br/>10/04/2021 文贵盖特：中共所谓的公检法人士摸摸良心，你们是不是只敢欺负手无寸铁的老百姓？中共病毒和疫苗灾难是一场全人类的坏人大清洗，所有在过去欺压人民、掠夺财富的人都会受到审判<br/>
 ![img](https://media.gettr.com/group46/getter/2021/10/05/00/05/85e272b6-0fd8-ee49-d6fc-4f88df1cea14/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@jasonmillerindc 10/4/2021 11:00 PM (UTC)`
-
-While Big Tech imploded, @GETTROfficial was still going strong! There’s a reason #GETTR is the fastest growing social media platform in history… Free Speech. Independent Thought. Superior Technology. It’s time to cancel “Cancel Culture.” Thank you for making your voice heard here on GETTR!!! <br/><br/>
-![img](https://media.gettr.com/group48/getter/2021/10/04/23/8590eb71-38a0-eb07-c1aa-9895d9a0f42f/9a5b2e9a705b0aa0610da0f067a9e79f.jpg)
 
 ---
 
