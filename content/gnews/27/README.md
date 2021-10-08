@@ -2,47 +2,56 @@
 ---
 
 
-## AMD芯片公司“格芯”将在纳斯达克上市
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1580822/)
+## 2021/10/07大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1580857/)
 
-栏目记者/责任编辑：火来
+本期嘉宾：Castle
 
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+[点击观看GTV直播视频](https://gtv.org/video/id=615eefd6304e992109b0f3a1)
 
 
 
+#### 板块1–国际政治
+
+1. 中共与拜登政府一直在进行勾兑。拜习电话后，可能已达成“默契”。中共利用拜登之口传递信息–不攻打台湾、香港法案并未实施等系列操作，表明拜登政府无心灭共。
+2. 杨洁篪背负“习的任务”在瑞士会见沙利文。瑞士是中共洗钱藏钱关键国家，谈判内容涉及中美国家安全和情报信息、为习掌握中共各大家族的“藏宝图”甚至探讨拿走部分利益。
+3. 国内利用《长津湖》电影和军演进行政治宣传，避而不谈真正的危机–国内采购、对外出口、恒大、影子银行等事件。
 
 
+#### 板块2–香港台湾
+
+蔡英文撰文强调“为民主而战”，本质是向国际社会呼吁不要彻底出卖台湾。中共和拜登政府“暧昧举动”可能在部分问题上出卖台湾，美方看重–台湾地理位置（在战略上有重要意义）和核心技术产业（如芯片供应美国）。
+
+#### 板块3–财经
+
+1. 中共国违反禁令进口澳大利亚煤炭，凸显能源短缺。去年澳大利亚要求病毒溯源，中共开始禁止进口澳煤炭、红酒、牛肉等，上月“打脸”高价进口38万吨澳煤炭，预计用于中共有特别要求保障电力的地方，老百姓永远是最直接受害者。
+2. 曾家背景房地产公司“花样年”逾期付款，体现中共国房地产发展出现大问题。恒大爆雷后引发市场恐慌、大众信心丧失、局部踩踏，曾庆红家族也没有砸钱欲望和救市接盘计划。
+3. 索罗斯套现美股，将一些投入加密货币，将引发华尔街资本转向，数字货币和加密货币不可逆。疫苗经济是虚假的，普遍预测在2021底美股到顶，随着工业疲软将开始下行。美国SEC主席表示不会效仿中国禁止加密货币，大众看好数字货币和加密货币前景。
+4. 喜币价值可期。数字货币和加密货币之间的矛盾不可调和，文贵先生创意“双脚走路”–双币挂钩黄金和美元，调节双币间的矛盾；中共实行“单脚走路”–强推数字货币，由于需要掌控货币，废除加密货币。美国最终将迎合“双脚走路”模式。
 
 
-今天，郭文贵先生在直播中透露，三周后，AMD曾经的芯片制造公司格芯（Global Foundries）将在纽约纳斯达克上市，市值250亿美元。该公司将由阿布扎比Mubadala基金100%控股。Mubadala基金是阿联酋的主权基金，与郭文贵先生有多年的合作。格芯公司拥有生产7纳米以下级别芯片最好的技术。中共垂涎格芯的技术多年，使用各种蓝金黄手段，但是，最终都无法得到。格芯生产的芯片是“星链计划”，天空wifi必需的核心元件。Mubadala基金也是“星链计划”的大股东。同时，格芯和IBM联合研发的生物芯片也在突飞猛进的发展。未来，芯片对于GTV，Gnews，Gettr，喜币，以及人类的社交媒体的变革都将有重大的意义。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-20.jpg)
-参考链接：
-[2021-10-07 七哥回答战友们的问题：AMD将在纽约上市，背后股东是谁？中共95%肯定要打台湾的；曾家的灾难还没开始，江家一定会付出代价；新加坡的何晶非常聪明；杨洁篪已岌岌可危](https://gtv.org/video/id=615ef95d304e992109b0faaf)
+#### 板块4–中共病毒
 
-（本文仅代表作者观点）
+武汉和美国科学家（Peter Daszak在2018年向美国国防高级研究设计局提交拨款计划）曾计划制造新型冠状病毒，佐证中共一直是按计划有操作准备生化战。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+***编辑：【英国伦敦喜庄园编辑部】***
 
-终审：鬼五
-校对/发稿：为真不破20
+*听写：call me uncle | 校对：乐禧禧 | PAGE：彼岸花*
 
-**更多资讯，更多关注**
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-121.png)
 
 
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

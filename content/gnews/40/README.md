@@ -2,49 +2,151 @@
 ---
 
 
-## 埃隆·马斯克表示星链互联网服务不久将在全国范围内推出
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1580542/)
+## 作为一家上市公司，脸书必须不能对其投资者撒谎，甚至隐瞒重要信息
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580543/)
 
-据《混搭网》迈克尔·坎（Michael Kan）2021 年 10 月 7 日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-2.png)图片来源于网络
-SpaceX首席执行官埃隆·马斯克（Elon Musk）表示，卫星互联网服务星链将于本月晚些时候在全国范围内推出。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-15.jpg)https://gtv.org/video/id=615fc368d2e2b81748729059
+Scott Pelley
+斯科特·佩利
 
-马斯克是在他之前提到星链将于10月退出测试阶段后发表上述声明的。周四，一位推特用户询问这对美国消费者，特别是南方消费者意味着什么？该用户写道：“星链测试版将于本月结束，如前所述，我们会看到更多的南方州（路易斯安那州、德克萨斯州等）推出吗？”。
+Last month, Haugen’s lawyers filed at least eight complaints with the Securities and Exchange Commission
+上个月，豪根的律师向在金融市场执法的美国证券交易委员会
 
+which enforces the law in financial markets.
+提交了至少8份投诉
 
+The complaints compare the internal research
+这些投诉将内部研究
 
-> Starlink beta is ending this month as stated, will we see more of the southern states (Louisiana, Texas, etc.) roll outs?
-> — JC\_Comrade (@jc\_comrade) [October 7, 2021](https://twitter.com/jc_comrade/status/1446108729816977424?ref_src=twsrc%5Etfw)
+with the company’s public face often matters CEO Mark Zuckerberg
+与公司的公众形象密切相关首席执行官马克·扎克伯格
 
+here testifying remotely to Congress last March,
+去年三月(他)在这里(视频)远程向国会作证进行比较
 
-*埃隆·马斯克 @elonmusk*
-*FSD Beta 10.2 将于周五午夜向大约 1000 名安全评分为 100/100 的业主推出。*
-*在此之后，发布将持续数天，以查看进展情况。*
-*如果这看起来不错，测试版将逐渐开始推广到 99 分及以下。*
-*2021年10月7日*
- 
-*JC\_同志 @jc\_comrade*
-*回复 @elonmusk Starlink 测试版将于本月结束，我们会看到更多的南部各州（路易斯安那州、德克萨斯州等）推出吗？*
-*2021年10月7日*
- 
-*埃隆·马斯克 @elonmusk*
-*回复 @jc\_comrade 月底应该会全国推广。 注意，仍受同一地区用户高峰数量的限制。*
-*随着更多卫星的发射，这种情况将有所改善。*
-*2021年10月7日*
-作为回应，马斯克在推特上写道：“应该在本月底在全国范围内推出。注意，仍受同一区域内用户峰值数量的限制。随着更多卫星的发射，这将有所改善。”
+Mark Zuckerberg (Facebook CEO)
+马克·扎克伯格（脸书首席执行官）
 
-该声明表明，SpaceX正准备向美国各地的用户发送更多的星链终端。然而，如果你居住的地区已经满是现有的星链用户，你仍然需要等待，直到该公司能够将更多卫星发射到轨道上，以创造更多的网络容量。目前为全球超过10万 名用户提供服务。
+we’ve removed content that could lead to imminent real world harm.
+我们删除了可能导致迫在眉睫的现实世界伤害的内容
 
-最大的问题是SpaceX如何定义全国范围。星链已经服务于美国全国大多数州。但速度测试（Speedtest）背后的奥克拉 （Ookla）公司的数据表明，星链的覆盖范围仍然存在很大差距。
+We built an unprecedented third party fact checking program.
+我们构建了前所未有的第三方事实核查程序
 
-在后续推文中，马斯克补充道：“星链专为中低人口密度地区而设计，这意味着我们可以在某些地区快速达到最大用户数。请提前注册以确保获得一个位置。随着更多卫星的推出，SpaceX将能够提供更多服务。”
+The system isn’t perfect, but it’s the best approach that we’ve found,
+这个系统并不完美，但它是我们找到的最好的方法
 
-感兴趣的用户可以在该公司的官方网站上为星链下99美元一份的预购订单。然而，这项服务已经有超过50万名用户注册试用星链。因此，星链官网在某些情况下会说，这项服务要到2022年甚至2023年才能提供，这取决于不同的地区。
+to address misinformation in line with our country’s values,
+以解决符合我们国家价值观的错误信息
 
-为了吸引更多的客户，SpaceX正准备用一种更易于制造的新版本来提高星链碟形终端的生产。这些新碟形终端预计将在今年晚些时候上市。
+Scott Pelley
+斯科特·佩利
 
-【本文仅代表作者个人观点，与Gnews无关】
+one of France’s Huggins lawyers is John Tye.
+豪根其中的一个律师是约翰·泰
 
-原文链接：[https://mashable.com/article/spacex-starlink-nationwide-rollout](https://mashable.com/article/spacex-starlink-nationwide-rollout)
+He’s the founder of a Washington legal group called whistleblower aid.
+他是华盛顿一家名为“吹哨人援助”的法律团体的创始人
 
-翻译：烟波浩淼 |校对：雨山溪桥客 |编辑&发布：黎明的光芒
+What is the legal theory behind going to the SEC
+支持去美国证券交易委员会的法律理论是什么？
+
+what laws are you alleging have been broken
+你指称违反了什么法律 ？
+
+John Tye (founder of whistleblower aid)
+约翰·泰（吹哨人援助的创始人）
+
+As a publicly traded company, Facebook is required to not lie to its investors,
+作为一家上市公司，脸书必须不能对其投资者撒谎
+
+or even withhold material information.
+甚至隐瞒重要信息
+
+So, the SEC regularly brings enforcement actions,
+因此，美国证券交易委员会定期提起执法诉讼
+
+alleging that companies like Facebook and others
+指控像脸书和其他的这样的公司
+
+are making material misstatements, and emissions that affect investors adversely.
+正在作出重大的错误陈述，以及对投资者产生不利影响的信息推送
+
+Scott Pelley
+斯科特·佩利
+
+One of the things that Facebook might alleges that she stole company documents.
+脸书可能声称她窃取了公司档的这件事
+
+John Tye
+约翰·泰
+
+The Dodd-Frank Act passed over 10 years ago at this point,
+在这一点上多德-弗兰克法案已于 10 多年前通过
+
+created an office of the whistleblower inside the SEC.
+在美国证券交易委员会内部设立了一个举报人办公室
+
+And one of the provisions of that law says
+而且该法律的一项规定说
+
+that no company can prohibit its employees from, from communicating with the SEC,
+任何公司都不能禁止其员工与美国证券交易委员会沟通
+
+and sharing internal corporate documents with the SEC.
+并与美国证券交易委员共享内部公司档
+
+Frances Haugen
+弗朗西丝·豪根
+
+I have a lot of empathy for Mark, and Mark has never set out to make a hateful platform,
+我对马克有很多同情，马克从来没有打算做一个可恶的平台
+
+but he has allowed choices to be made,
+但他允许做出选择
+
+where the side effects of those choices are the hateful polarizing content gets more distribution more reach
+这些选择的副作用是可恶的两极分化内容得到更多的传播更多的影响
+
+Scott Pelley
+斯科特·佩利
+
+Facebook declined an interview, but in a written statement to 60 minutes it said,
+脸书拒绝接受采访，但在一份给60 分钟的书面声明中表示
+
+“Every day our teams have to balance
+“每天我们的团队都必须平衡
+
+protecting the right of billions of people to express themselves openly
+保护数十亿人公开表达自己的权利
+
+with the need to keep our platform as safe and positive place.
+需要保持我们的平台作为安全和积极的地方
+
+We continue to make significant improvements
+我们继续进行重大改进
+
+to tackle the spread of misinformation and harmful content.
+解决错误信息和有害内容的传播
+
+To suggest we encourage bad content and do nothing is just not true. ”
+如果说我们鼓励不良内容而不采取行动，那是不对的。”
+
+“If any research had identified an exact solution to these complex challenges,
+“如果有任何研究确定了这些复杂挑战的确切解决方案，
+
+the tech industry, governments and society would have solved them a long time ago.”
+科技行业、政府和社会早就解决了这些问题。”
+
+原视频日期：2021/10/03
+原视频链接: https://youtube.com/watch?v=\_Lx5VmAdZSI
+视频时间段 : 9:54-12:33
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
