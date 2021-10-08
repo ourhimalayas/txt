@@ -2,28 +2,39 @@
 ---
 
 
-## “十一”消费数据：后疫情消费反弹与红色宣传洗脑集中展现
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1580413/)
+## 奥地利绿党质疑：总理在接受腐败、贿赂调查后能否留任
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1580490/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1083.jpg)[图片来源](http://www.chinanews.com/gn/2021/10-07/9581163.shtml)
-2021年“十一”假期消费数据出炉，国内游达5.15亿人次，全国预计共发送旅客4.03亿人次，北京、长沙等地成为红色旅游热门目的。
+#### 【**雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GettyImages-1234974387-1320x905-1.jpg)
+图片来源：politico.eu
 
-据中共文化和旅游部消息，10月1日至7日，全国国内旅游出游5.15亿人次，按可比口径同比减少1.5%，按可比口径恢复至疫前同期的70.1%。实现国内旅游收入3890.61亿元，同比减少4.7%，恢复至疫前同期的59.9%。
+整理报道：小红帽
 
-据中共交通运输部消息，10月1日至7日，全国预计共发送旅客4.03亿人次，日均5750万人次，比2019年同期（7天假期）日均下降33.9%，比2020年同期（中秋“国庆”8天假期）日均下降7.5%。其中，铁路预计发送旅客8307.3万人次，日均1186.8万人次；公路预计发送旅客3.04亿人次，日均4340万人次；水路预计发送旅客631.2万人次，日均90.2万人次；民航预计发送旅客931万人次，日均133万人次。
+在检察官宣布奥地利领导人将接受调查后，奥地利绿党副总理维尔纳·科格勒(Werner Kogler)质疑，总理塞巴斯蒂安·库尔茨（Sebastian Kurz）能否留任。
 
-中共加快对00后年轻人洗脑宣传，看《长津湖》、红色旅游成为今年“十一”旅游市场的新亮点。飞猪平台上，“00后”“十一”红色旅游订单量同比涨超80%。长沙、湘潭、南昌、遵义、延安、嘉兴、井冈山等是红色旅游热门目的地。
+在周四的一份声明中，科格勒表示，他们无法与由库尔茨领导的联盟伙伴恢复“照常工作”。
 
-信息来源：
+科格勒在一份声明中说：“事实必须得到充分证实……在这种情况下，总理的行动能力受到质疑。”他呼吁，与库尔茨涉嫌参与腐败和贿赂有关的问题在回到议程之前必须“完全澄清”。
 
-[http://www.chinanews.com/gn/2021/10-07/9581163.shtml](http://www.chinanews.com/gn/2021/10-07/9581163.shtml)
+周三，经济和腐败检察官办公室 (WKStA) 宣布，以涉嫌违反信托、贿赂和腐败为由，对库尔茨和其他九人展开调查。
 
-[http://www.chinanews.com/gn/2021/10-07/9581159.shtml](http://www.chinanews.com/gn/2021/10-07/9581159.shtml)
+检察官办公室声称，财政部的资金在2016年至2018年期间被一家投票机构用于支付“出于政党政治动机的、有时被操纵的调查”。
 
-[http://news.enorth.com.cn/system/2021/10/08/051900955.shtml](http://news.enorth.com.cn/system/2021/10/08/051900955.shtml)
+该机构的调查随后被发表在一家奥地利日报的社论部分和同一媒体集团的其他媒体上。由沃尔夫冈·费尔纳 (Wolfgang Fellner) 拥有的集团驳回了这些指控。
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+这项调查是在突击搜查属于库尔茨保守派人民党 (OVP) 的办公室后宣布的。这次突击检查在预料之中，保守派人民党早就暗示不会发现任何东西。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Austrian Greens question chancellor’s ability to remain in office after he is placed under investigation for corruption, bribery — RT World News](https://www.rt.com/news/536829-austria-kurz-corruption-probe-greens/)
+
+***编辑：小红帽 /翼族
+发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

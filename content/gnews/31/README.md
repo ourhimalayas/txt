@@ -2,166 +2,50 @@
 ---
 
 
-## 中共停电的目的是打垮美元和美股
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580019/)
+## 中共政府要求天然气进口商承担高昂成本以解决能源危机
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1580080/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/aii18-iytb4.jpg)
-[https://gtv.org/video/id=615f36a5d2e2b81748725a0d](https://gtv.org/video/id=615f36a5d2e2b81748725a0d)
+## China tells gas importers to bear high cost to fix energy crisis
 
-**郭文贵
-Miles Guo**
+China is urging its liquefied natural gas (LNG) importers to procure more supply to fix its energy crisis, while providing little financial support for firms paying record-high rates for the super-chilled fuel.
 
-记住啊
-Recuerden
+中共政府正在敦促其液化天然气 (LNG) 进口商提供更多供给以解决当前其能源危机问题，但它却没有为需要支付创纪录高价购买这一超冷燃料的企业提供财政补贴。
 
-咱是有时间的
-Nosotros tenemos tiempo
+The government isn’t providing enough subsidies for recent purchases, making it difficult for the nation’s smaller gas distributors to meet the request to secure enough fuel before winter, according to traders with knowledge of the matter. While some firms are avoiding buying for now, they may ultimately have to bow to Beijing’s wishes.
 
-咱不是没时间, 咱有时间的
-No es que no lo tengamos, si tenemos
+据知情交易员透露，政府没有为近期的采购提供足够的补贴，这使得该国小型天然气分销商难以实现在冬季到来之前获得足够燃料的需求。虽然一些公司目前都在逃避购买，但他们最终可能不得不屈从于中共政府的意愿。
 
-这不会
-Esto no…
+North Asian LNG spot prices surged to a record high this week as importers from China to the UK intensify competition for a shrinking pool of available winter supply. The world is grappling with an energy crisis as the post-pandemic recovery collides with supply restraints, sending fuel and power prices rallying to eye-watering heights.
 
-如果2025年灭不了共的话
-Si en el 2025 no podemos derribar al Partido Comunista
+由于从中共国到英国的进口商抢购所剩不多的冬季燃料的竞争加剧，北亚液化天然气现货价格本周飙升至历史新高。由于疫情后经济恢复与有限的供给发生冲突，全世界正陷入能源危机，从而导致燃料和电力价格上涨至令人瞠目结舌的高度。
 
-七哥也不会再去灭共了
-Entonces no lo haré más
+Many of China’s gas distributors are state-owned, and are used to taking losses buying pricey LNG and selling to domestic consumers at fixed rates. The largest companies are still willing to pay high spot prices to attract shipments away from rivals in Asia and Europe.
 
-你们也不会再看到七哥, 真的
-Tampoco me verán más, estoy hablando en serio
+中共国的许多天然气分销商大多都是国有企业，习惯于亏损买入昂贵的液化天然气并以固定价格出售给国内消费者。大的公司仍然愿意支付高昂的现货价格从亚洲和欧洲的竞争者手中抢购出货量。
 
-这个什么事都可能发生
-Puede suceder cualquier cosa
+But with a single LNG spot cargo currently costing more than $130 million, compared to about $17 million this time last year, the extreme losses are making buyers blanch. Also, some LNG importers have struggled to secure additional loans from banks to make purchases, traders said.
 
-我不会再
-No seguiré
+但随着目前单艘液化天然气现货货船的成本超过 1.3 亿美元，相比于去年同期的大约 1,700 万美元，极端的损失让买家望而却步。此外，交易员表示，一些液化天然气进口商一直难以从银行获得额外贷款来进行购买。
 
-2025年如果是共产党还存在的话
-Si en 2025 el Partido Comunista todavía existe
+At least two second-tier companies including Shenzhen Energy Group Co. have decided against purchasing shipments because of the high prices, despite the government orders, according to traders. But China’s largest state-owned importers have been busy procuring spot supply.
 
-你们不会再看到七哥
-No me verán más
+据交易员称，尽管有政府的命令，至少有包括深圳能源集团有限公司在内的两家二线公司因为价格居高不下已决定不再采购。但中共国大型国有进口商一直忙于采购现货供应。
 
-但是我是不会的
-Pero esto no sucederá
+The government is trying to make it easier for energy companies to secure loans. Banks and other financial institutions should prioritise lending to qualified mines and power plants so they can increase thermal coal and electricity output, China Banking and Insurance Regulatory Commission said in a statement Tuesday.
 
-2025年绝对是
-En el año 2025 es definitivamente
-我是2015年
-En el año 2015
+政府正努力让能源公司更容易获得贷款。中国银保监会周二在一份声明中表示，银行和其他金融机构应优先向符合条件的矿山和电厂提供贷款，以增加燃煤和电力的产出。
 
-我跟刘延平联系, 国内的人跟我联系, 我都说过
-Me contacté con Liu Yanping, la persona que estaba en China se comunicó conmigo y yo dije
+简评：如本篇报道所述，为了解决中共国的能源危机，在不能提供补贴的情况下，中共政府要求天然气进口商自负超额成本完成政府的进口采购命令，在这个命令执行过程中，小型分销商因为成本过高而回避采购，一些大型国企也是在亏损的状态下买入昂贵的天然气。由于疫情后经济恢复与有限的供给发生冲突，造成了当下全球性的能源危机，而中共政府自去年下半年颁布澳大利亚煤炭进口禁令以来，一直没能找到合适的澳洲煤炭替代品。如今能源短缺，中共不得不在近日放风要逐渐恢复澳大利亚煤炭进口。但是，可怕的是，不仅是天然气价格高企，今年澳洲煤炭的价格也已经达到了去年同期的2倍多。在经济低迷、外汇短缺、能源供应不足的情况下，我们不禁怀疑，中共政权能否撑过这个冬天。
 
-我等你们十年, 我都等死你们
-Los esperaré diez años, hasta la muerte los esperaré
+[新闻链接](https://www.energyvoice.com/oilandgas/asia/354657/china-tells-gas-importers-to-bear-high-cost-to-fix-energy-crisis/)
 
-不是我今天说的
-No lo dije hoy
+* * *
 
-我不相信共产党能过2025年
-Yo no creo que el Partido Comunista pueda pasar el año 2025
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-这个是有时间限制的
-Esto habrá un tiempo limitado
 
-另外一个, 就刚才说这个共产党的停电
-Otra cosa, lo que estaba hablando hace rato sobre el apagón del Partido Comunista
+编辑：【英国伦敦喜庄园编辑部】
 
-是不是跟世界经济
-Si tiene relación con la economía mundial
-
-为啥我说这个世界经济会跟这个共产党停电有关系
-Por qué digo entre ellos tienen relación
-
-大家没有
-Ustedes
-
-昨天你那个数里边没算
-No contaron los datos de ayer
-
-就你那些都是所谓的官方统计数据
-Los supuesto datos oficiales que tú dices
-
-你绝对要记住
-Debes recordar
-
-七哥从一开始爆料就说
-Yo desde el principio del Movimiento de Denunciantes dije
-
-如果你相信了任何一个共产党对着镜头和对着人
-Si crees en cualquier persona del Partido Comunista que habla frente a la cámara y a las personas
-
-说出的话和公开的表格和数据
-Acerca de los formularios y los datos públicos
-
-那你就是天下最愚蠢的傻子
-Entonces eres el tonto más estúpido del mundo
-
-共产党的那些, 所有的, 现在今天干的事情
-Todas las cosas que ha hecho y que hizo hoy en día el Partido Comunista
-
-他只有两个目标大家没搞明白
-Simplemente tiene dos objetivos que ustedes no lo han entendido todavía
-
-一切都是为了干倒美元, 干倒欧元而干的
-Todo es para destrozar al dólar estadounidense y el euro
-
-共产党所有干的事情就是杀敌一千
-Todo lo que ha hecho el Partido Comunista
-
-自伤一万, 我也得干
-Por matar a mil enemigos pueden sacrificar diez mil de los suyos
-
-我断我九指
-Me corto nueve dedos
-
-我断你一指
-Corto uno del tuyo
-
-我也得干
-Aún así lo tengo que hacer
-
-我都变成九指妖了, 我也认了
-Y si me convierto en Sara Wei, lo asumiré
-
-所有的现在想了美国和中美之间
-Toda la relación entre EE. UU y China
-
-过去5000亿的逆差
-El déficit de los últimos 500 mil millones
-
-5000亿的逆差到最后变成了几百亿的逆差
-El déficit de los 500 mil millones finalmente se convirtió en un déficit de decenas de miles de millones
-
-但几千亿美元的贸易
-Pero cientos de miles de millones de dólares en comercio
-
-他绝对能把美国股票给打垮了
-Él seguramente puede derribar a las acciones de EE. UU
-
-这个不是假的
-Esto no es falso
-
-真能打垮, 今天中共国就这么停电再停六个月
-Realmente puede destrozarlo, hoy, el PCCh si viene otro apagón de seis meses
-
-美国的股票市场经济一蹋糊涂
-La economía del mercado de valores de EE. UU será un desastre
-
-**——————————————————**
-
-**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1445260826655424515?s=24](https://twitter.com/se1y7cblljselva/status/1445260826655424515?s=24)
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 :洛杉矶盘古农场–彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

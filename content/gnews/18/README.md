@@ -2,29 +2,29 @@
 ---
 
 
-## 澳大利亚：周一开始为“免疫功能低下者”注射加强针
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1580147/)
+## 加拿大即将对12岁以下儿童接种中共病毒疫苗
+` 军迷wilson` [轉載自GNews](https://gnews.org/zh-hans/1580306/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/c9012d9d06476f6acb55af28fed0a0de.jpg)图片来源：The Australian
-**整理报道：**翼族
+#### 加拿大多伦多枫叶农场 向真
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2C0A976B-0F43-426E-89D5-36F0F91645BF_1_201_a.jpeg)图片来源于网络
+目前加拿大12岁以上的中共病毒疫苗接种率已高达80%，但加拿大特鲁多政府还在公务员等群体极力推行强制疫苗接种和全民疫苗护照，纵观全球，确实找不到如此疯狂和恶毒的政府。
 
-澳大利亚卫生部长格雷格·亨特（Greg Hunt）今天表示，政府的疫苗顾问已批准为大约50万澳洲人接种第三剂疫苗。从下周开始，“免疫功能低下者”将获得中共病毒（COVID-19）疫苗的加强针。
+据《环球邮报》7日晚间头条新闻报道，辉瑞公司驻加拿大代表今天表示，辉瑞将在几天内向加拿大卫生部的审查团队，提交名为“社区”（Commirnaty）的12岁以下儿童专用疫苗的“临床试验数据”。
 
-亨特说：“然后下一阶段将是普通人群接种加强针计划的阶段，我们期待澳大利亚免疫治疗咨询小组在10月底之前给出建议，届时我们将与公众分享”。
+该代表称，上周辉瑞公司已经向美国卫生当局提交了相同的数据资料，他没有进一步说明美国方面的审批情况如何，但他透露加拿大的审批以及“与辉瑞的合作”已经到达“最后步骤”，辉瑞公司不久就可以将“儿科配方”的疫苗运抵加拿大。
 
-首席医疗官保罗·凯利(Paul Kelly)表示，“免疫功能低下者”，比如癌症患者或接受过移植手术的病人，可以优先接种疫苗加强针。他说：“现在的证据很清楚，那些免疫受损类别的病人应该接受第三剂……（第三针接种）应在第二针之后的两到六个月之间。”
+该款“社区”疫苗并不是最新研发的疫苗，去年12月已经授权给16岁以上的人接种，今年5月批准在12至15岁儿童接种，这一次辉瑞又将“社区”疫苗授权范围扩大到5岁儿童。
 
-与此同时，卫生部长亨特表示，澳大利亚将在今天晚些时候通过疫苗的3000万剂接种大关。在全国范围内，澳大利亚的第二剂接种率为60.2%，第一剂接种率为81.5%。亨特称接种率高于美国、以色列和欧盟。
+利用普通药物比如羟氯喹、伊维菌素等成功抗击中共病毒，从而获得今年诺贝尔奖提名的的医生泽连科博士，近日在接受媒体公开釆访时指出，据可靠数据，疫苗致死率和病毒致死率是惊人的100:1，因此可以断定，疫苗的出现不是为了制服病毒，而是为了让人类中的弱势群体消亡，即中共和国际黑暗势力释放中共病毒，是为了引出疫苗这个大杀器。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/截屏2021-10-07-下午10.21.33.png)图片来源于网络
+特鲁多无视加拿大疫苗接种率是非洲的40倍以上，但感染率却是非洲10倍的事实，在疫苗巨大危害已经被大量证据证明的情况下，仍然丧心病狂地将加拿大人和他们的幼童推入死亡陷阱！
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+加拿大政府以公共安全为名，用欺骗和各种名目繁多的胁迫手段，将毒疫苗强行注入无辜民众的体内，如果接种者因此生病或死亡，这个无耻的政府就以纳税人的钱作一些轻微补偿了事。
 
-**参考链接：**[Australia news LIVE: Victoria records 1838 new local COVID-19 cases, five deaths; NSW Premier brings forward changes to state road map](https://www.smh.com.au/national/australia-news-live-victorian-covid-19-cases-continue-to-grow-nsw-premier-brings-forward-changes-to-state-road-map-20211007-p58y6a.html)
+相信所有的加拿大人都有巨大的疑问，加拿大政府为什么这么干？郭文贵先生在今天的直播中道出了其中的玄机：每剂疫苗的成本约为17美分，但卖给各国政府的价格是20至40美元 ，有平均200倍（取中间价）的暴利，疫苗生产商和各国政府当权的腐败分子已经形成固若金汤的利益同盟。至于有多少人直接参与到泽连科博士听说的疫苗杀人计划之中，需要由将来的正义大审判来揭晓。
 
-*编辑/发布：翼族*
+显然，特鲁多政府利用人民赋予的公权力大搞强制疫苗剥夺他人生命，已经构成犯罪，加拿大政府的非法行为无疑就是令人发指的暴政，如果允许特鲁多政府再执政4年，将是一个巨大的灾难！根据加拿大宪法，人民有推翻暴政的权利！
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+参考来源：
+
+[Evening Update: Pfizer eyes fast approval in Canada for COVID-19 vaccine for kids under 12](https://www.theglobeandmail.com/canada/article-evening-update-pfizer-eyes-fast-approval-in-canada-for-covid-19/)

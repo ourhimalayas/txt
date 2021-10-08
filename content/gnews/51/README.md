@@ -2,43 +2,58 @@
 ---
 
 
-## 10/07/2021 国际财经快讯：美国考虑释放紧急石油储备以降低天然气价格；欧美争夺国际结算份额首位
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1578749/)
+## 屏蔽林依然8月9日的新浪微博坐实新浪的疫苗杀人本色
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1578579/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20211007-1.jpg)[图片来源](https://caspiannews.com/news-detail/us-plans-to-disconnect-iran-from-swift-banking-system-may-not-matter-2018-10-25-33/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/001_副本.jpg)
+日前我们发布了[**林依然关于疫苗的新浪微博引来无数脑梗心梗受害者留言**](https://gnews.org/zh-hans/1547117/)的文章，在文章中我们详细记录了在[林依然LLL\_](https://weibo.com/yiranbaby?refer_flag=1005055014_) [2021年8月9日 01:01](https://weibo.com/1797014755/KszfAuFd4?from=page_1005051797014755_profile&amp;wvr=6&amp;mod=weibotime) 来自 [HUAWEI P40 Pro 5G](https://app.weibo.com/t/feed/6uaYFC)
 
+#新冠疫苗副作用#有没有人打完新冠疫苗后发烧，血小板减少的？ ​​​​那条微博下的评论——
 
-**1.新一代半导体材料专利竞争力：日美企业垄断前五**
+在原文中我们提到：
 
-[日美企业垄断了新一代半导体材料碳化硅（SiC）相关专利的前5位。从事专利分析的日本Patent Result公司的统计显示，涉足碳化硅半导体基板的美国科锐（Cree)排在首位，第2～5位是罗姆和住友电气工业等日本企业。根据截至7月29日发布的美国专利数据，通过数量和关注度计算了分数。碳化硅被用作替代现有的硅半导体基板材料，有助于提高功率半导体的性能和节能化。在纯电动汽车（EV）和光伏发电系统的逆变器等领域，碳化硅的应用范围不断扩大。在脱碳化社会之下，需求有望扩大。](https://cn.nikkei.com/industry/itelectric-appliance/46260-2021-10-07-11-45-44.html)
+［但是我们要重点关注的是在本文发出后林依然的这条新浪微博的命运将会如何——如果这条微博被和谐或者这条微博下边的评论被删除，那么这条微博和已经留存的所有评论都可以作为新浪及背后控制新浪的中共的反人类罪；
 
-**2.欧美争夺国际结算份额首位**
+如果这条微博和下边的评论被留置，那么我们希望看到每一个在评论区留下自己及亲人因疫苗而产生副作用的网友可以被重视，并且进行一对一的调查和确认，当然，即使这条微博和下边的评论被留置，后边的可能性几乎是零，我知道我想多了，因为在这个国家，一条反党言论的发言者都可以被精确定位，而任何一个丢失的孩子却永远也无法通过它们精准控制的监控和大数据网找到。］
 
-[围绕用于贸易和汇款等国际结算的货币份额，美元和欧元争夺首位宝座的态势正在加强。在新冠疫情扩大的2020年以后，美元计价比率较高的全球贸易陷入低迷，另一方面，资金流入以复兴债券发行等为背景的欧元区，美元的份额下降。美元一强格局正在因疫情产生变化。运营全球银行汇款系统的环球银行金融电信协会（SWIFT）的统计显示，8月的美元份额为40.04％，与疫情前的2019年8月相比下降约2个百分点。到2020年7月降至38.77％，时隔1年零4个月低于4成，以后维持低位运行。另一方面，欧元2021年8月的份额为37.95％，排在仅次于美元的第2位，但相比2019年8月上升超过5个百分点。2020年10月一度超过美元，跃居份额首位，2021年5月也曾反超美元。](https://cn.nikkei.com/politicsaeconomy/efinance/46261-2021-10-07-13-43-09.html)
+现在这条记录着大量因植入新冠疫苗而引发各种后遗症的新浪微博终于不见了，据[**林依然LLL\_**](https://weibo.com/yiranbaby) [2021年9月23日 16:10](https://weibo.com/1797014755/KzvqH9rcG?from=page_1005051797014755_profile&amp;wvr=6&amp;mod=weibotime) 来自 [🍓小姐的HarmonyOS设备](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
 
-**3.美国考虑释放紧急石油储备以降低天然气价格**
+没删，被屏蔽了。 ​​​​
+![](https://assets.gnews.org/wp-content/uploads/2021/10/001-7.jpg)
+这条记录着中共国部分因植入疫苗而产生不良反应的新浪微博的不可见，至少可以证明新浪微博和它背后的主子中国共产党一样，是反人类的犯罪集团，所以我们也有必要把这条微博下面的评论做一下存底。
 
-[本周美国汽油价格飙升至每加仑3.21美元，创下7年来的最高价格。GasBuddy石油分析主管帕特里克德汉表示，到本月底，油价可能高达每加仑3.30美元。美国能源部长詹妮弗·格兰霍尔姆出席英国《金融时报》能源转型战略峰会时周三表示，拜登政府正在考虑释放紧急石油储备，作为缓解全球能源危机的几种选择之一。OPIS能源分析全球主管汤姆·克洛扎警告说，随着当前需求的增长，取暖油和柴油价格可能会”难以置信”地上涨。](https://www.foxbusiness.com/markets/us-emergency-oil-reserves-lower-gas-prices-granholm)
+令人欣喜的是我们依然可以看到黑夜里发出的新中国联邦的光芒——
 
-**4.国际货币基金组织总裁格奥尔基耶娃说，她在世界银行调查时被律师事务所误导**
+[新联邦之利刃](https://weibo.com/7545869003)：青蒿素9月24日 00:40
 
-[路透华盛顿10月6日电—国际货币基金组织总裁克里斯塔利娜·格奥尔基耶娃周三表示，威尔默黑尔律师事务所在担任世界银行首席执行官期间错误地描述了她的行为，并向她保证，她参与调查是保密的。在向IMF执行董事会发表的一份详细声明中，乔治耶娃驳斥了威尔默黑尔的结论，即她和其他世界银行高级官员向工作人员施压，要求他们改变数据，以利于中国，并说她被告知自己不是调查的对象。她否认她向世界银行工作人员施压，要求他们采取任何行动改变中国在2018年《营商报告》中的排名，并拒绝将排名与世界银行（World Bank）拟议增资联系起来。](https://www.reuters.com/business/imf-chief-georgieva-says-she-was-misled-by-law-firm-world-bank-probe-2021-10-06/)
+[暴暴李小暴](https://weibo.com/1886186695)：战🈶？9月24日 02:00
 
-**5.IAC 的 Dotdash 以 2.7 亿美元的价格收购杂志出版商梅雷迪斯**
+[\_一三土一\_](https://weibo.com/3892199609)：回复[@暴暴李小暴](https://weibo.com/n/%E6%9A%B4%E6%9A%B4%E6%9D%8E%E5%B0%8F%E6%9A%B4?from=feed&amp;loc=at):健身了吗9月25日 10:40
 
-[10月6日（路透社） -IAC的数字媒体部门Dotdash周三同意以约27亿美元的价格收购梅雷迪斯公司（MDP.N），将《人物》、《阿雷西普斯》和《投资》等公司放在一个保护伞下。两家公司表示，合并后的公司将被称为多达什梅雷迪斯，将由多达什首席老板尼尔·沃格尔领导。这笔交易将把梅雷迪斯的40多个品牌，包括《更好的家园与花园》、《南方生活》和《InStyle》杂志，与多达什的数字品牌，如云杉、拜迪和新娘。](https://www.reuters.com/business/media-telecom/iacs-dotdash-buy-magazine-publisher-meredith-27-bln-deal-2021-10-06/)
+[解忧杂货店1号](https://weibo.com/5531762878)：回复[@暴暴李小暴](https://weibo.com/n/%E6%9A%B4%E6%9A%B4%E6%9D%8E%E5%B0%8F%E6%9A%B4?from=feed&amp;loc=at):原来占有真的在身边9月25日 11:05
 
-**6.NASA称波音的Starliner今年不会再次尝试发射**
+[新联邦之利刃](https://weibo.com/7545869003)：回复[@暴暴李小暴](https://weibo.com/n/%E6%9A%B4%E6%9A%B4%E6%9D%8E%E5%B0%8F%E6%9A%B4?from=feed&amp;loc=at):无处不在9月28日 20:17
 
-[美国国家航空及太空总署(NASA)官员周三说，波音公司(Boeing Co., BA)的太空飞船Starliner今年将不会再次尝试发射，两名原定乘坐该飞船飞行的宇航员被重新分配到未来使用SpaceX飞船的一次任务。今年夏天，波音公司和NASA曾计划在没有宇航员的情况下发射Starliner前往国际空间站。发射该飞船到太空的火箭在搭乘宇航员之前必须完成测试飞行。波音公司和NASA 8月推迟了一项测试发射，因为Starliner推进系统的一些阀门在发射前卡住了。NASA的项目经理Steve Stich在周三的吹风会上说，今年不会再有机会完成Starliner的演示飞行，因为有其它飞行任务到空间站和其它发射。](https://cn.wsj.com/articles/nasa%E7%A7%B0%E6%B3%A2%E9%9F%B3%E7%9A%84starliner%E4%BB%8A%E5%B9%B4%E4%B8%8D%E4%BC%9A%E5%86%8D%E6%AC%A1%E5%B0%9D%E8%AF%95%E5%8F%91%E5%B0%84-11633565708)
+在这个至暗的时代里，在中共国有那么多因疫苗致死、致残者，他们哪怕发出的一点点关于疫苗致死致残的真相，都会被扑灭，但是真相就是刺破黑暗的利器，无论在哪里，我们都可以喜逢队友，我们都可以看到真相的力量，今天新浪微博可以封杀真相，明天我们必然用真相埋葬新浪微博和它背后的反人类集团——中国共产党！
 
-**7.亚马逊的 Twitch 受到数据泄露的打击**
+撰稿：喜马拉雅的肉夹馍
 
-[10月6日（路透社） – Amazon.com 公司（AMZN.O）直播电子竞技平台Twitch周三表示，它受到数据泄露的打击，但没有提供进一步的细节。据《视频游戏纪事报》报道，一名匿名黑客声称泄露了Twitch数据，包括与公司源代码、客户和未发布的游戏相关的信息。Twitch证实了这一违规事件，并表示其”团队正在紧急工作，以了解其程度”。该公司拒绝进一步置评，并表示将”在获得更多信息后立即向社会通报最新情况”。亚马逊没有立即回应置评请求。](https://www.reuters.com/technology/amazons-twitch-hit-by-data-breach-2021-10-06/)
+审核：喜马拉雅的馍夹肉
 
-**8.美国汽车经销商库存跌至历史新低**
+校对：Maarago
 
-[美国9月份轻型车销量经季节性调整按年率计算为每辆12.2MM，每辆12.3MM，低于12.5MM的一致预期。处于12MM低位的美国SAAR从2020年9月的约16.3MM下降约25%，与8月的SAAR约13.1MM环比下降约1位数。库存下降的最大原因是库存水平持续创历史新低。9月份，汽车销量同比下降约33%，SUV销量同比下降约20%，皮卡销量同比下降约30%。皮卡和SUV占总销量的比例分别为19%和55%（2020年9月为20%和51%）。根据汽车情报，福特9月份销量同比下降约18%，通用汽车销量同比下降约53%。福特9月份的市场份额从14%上升至15%，通用汽车的市场份额从17%降至11%。](https://www.zerohedge.com/markets/inventory-us-car-dealers-falls-new-record-low)
+（文章内容仅代表作者个人观点）
 
-By 【秘密翻译组-金融组】
-作者：和理非
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

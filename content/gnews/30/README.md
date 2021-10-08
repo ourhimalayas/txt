@@ -2,17 +2,12 @@
 ---
 
 
-## 一剂疫苗获利20美金——生命是如此之轻
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1580026/)
+## 2021年10月07日澳喜要闻（每日更新）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1580081/)
 
-撰稿：Ermat【㊙️翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/shutterstock_1680091963-copy.jpg)图片来源：chinese.aljazeera.net
-10月7日，郭先生在GTV直播中揭示了疫苗的暴利。他说，疫苗的成本在6-8美分，却卖20美金左右。另外，有一位大人物也接种了。
+撰稿：GTV澳喜影像视频组、新闻组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1008image0-3-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/1008image1-scaled.jpg)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-我昨天跟某国领导人说，我不需要任何人听我的，相信我说的。但是作为朋友，不说我坏良心。作为多年的兄弟，我只告诉你疫苗的危害。这个人一开始不屑，后来脸都绿了。说打了两针，赶紧回去找药吃了。他是一把手，全世界五个人中之一。每次澳洲政府某官员跟我通话，都有重大改变。一位官员说，6个月前，我对你的话半信半疑，不相信澳洲政府这么腐败。这个哥们很聪明，找廉政公署，这个药厂生产的疫苗如果是拯救人类的，为什么疫苗的成本在6-8美分，却卖20美金左右。药厂多大的暴力啊？
-
-一剂疫苗可获利20美金，而一两剂就可致命，“生命是如此之轻”！与以往不同，此次疫苗灾难无贵贱之分，下至平民，上至达官权贵，甚至总统都纷纷中招，疫苗之荒唐可谓“荒天下之大唐”。
-
-参考链接：
-
-[2021年10月07日郭先生直播速记](https://gnews.org/zh-hans/1579667/)
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

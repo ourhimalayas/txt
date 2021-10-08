@@ -2,37 +2,20 @@
 ---
 
 
-## 与英特尔竞争加剧，AMD推出“米兰”芯片
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1580288/)
+## 东京发生5级以上地震,交通影响仍在再继续
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1580408/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/AMD-processor-logo-1000x523-1.jpg)
-图片来源：androidauthority.com
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-119.png)[图片来源](/cdn-cgi/l/email-protection#533b27272320697c7c273c382a3c7d3f362720343c39237d303c3e7c3221303b3a2536207c62676465637c)
+10月8日时事通讯社消息：
 
-整理报道：小红帽
+10月7日晚，紧邻东京的千叶县西北部发生地震后，东京都地区的五个县共有32人被确认受伤，其中包括3名重伤者。总务省的消防和灾害管理机构8日上午宣布：直到8日早上的通勤时间地震造成的严重影响仍在持续。
 
-高级微设备公司（Advanced Micro Devices Inc）周一发布了一款新的数据中心芯片，旨在从竞争对手英特尔公司手中夺走更多的市场份额。
+地震发生在7日晚上10点41分左右。东京市足立区和埼玉县川口市均破5级。这是自2011年3月11日东日本大地震以来，东京23区首次发生强度为5级以上的地震。震源深度为75公里。震级估计为里氏5.9级。
 
-该公司表示，其“米兰（Milan）”数据中心处理器比英特尔目前最好的数据中心芯片更快。位于加利福尼亚州圣克拉拉的高级微设备公司设计了该芯片。该芯片采用台积电的7纳米芯片制造工艺，由台湾半导体制造有限公司负责制造。
+[信息源](/cdn-cgi/l/email-protection#ee869a9a9e9dd4c1c1808b999dc0978f868181c08d81c0849ec18f9c9a878d828b9dc1de8fd8d6ddd688d7dd8ad9d8d68bdadad68b8dd78bd88888d7dddcd78fdbd7dbdcdf8d8fd7daddda)
 
-“米兰”芯片及其前身都超过了英特尔的芯片，帮助高级微设备公司获得了市场份额，并获得字母控股（Alphabet Inc）旗下谷歌等客户。
-
-然而，英特尔计划进行反击。分析师预计它将在未来几周内推出其最新的“冰湖（Ice Lake）”服务器芯片，这将是第一款采用英特尔10纳米制造技术制造的芯片，其性能相当于用于高级微设备公司 “米兰”芯片的台积电7纳米技术。
-
-无论两款芯片在发布后的速度上如何，高级微设备公司仍拥有一些优势，例如每款芯片上有更多的计算核心，这让芯片可以同时处理更多的软件应用程序。
-
-高级微设备公司服务器业务部高级副总裁兼总经理丹·麦克纳马拉 (Dan McNamara) 表示，他相信，如果公司继续将客户的反馈整合到每一代新芯片中，就可以保持其领先地位。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[AMD launches ‘Milan’ chip for data centers as battle with Intel intensifies | Reuters](https://www.reuters.com/article/us-amd-intel-idUSKBN2B71VY)
-
-***编辑：小红帽******/******文泓*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+（文章仅代表作者个人观点，与GNEWS无关）
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

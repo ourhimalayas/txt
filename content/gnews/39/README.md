@@ -2,31 +2,73 @@
 ---
 
 
-## 新冠溯源新证据！中共早在2019年5月已大量采购PCR检测
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579887/)
+## 各大媒体热炒布林肯对恒大的反应
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1579929/)
 
-责任编辑：FoxRina
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-116.png)
-根据澳大利亚网络安全公司 Internet 2.0 的一份报告，在中共首次正式报告新型冠状病毒病例前几个月，政府合同报告显示，2019 年 5 月起武汉地区的PCR 检测采购量激增。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-6.jpeg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/b.jpg)bnnbloomberg.ca
+媒体众多，标题只有两样，“美国国务卿布林肯警告中（共）国恒大危机可能影响‘整个世界’”、“美国国务卿布林肯敦促中（共）国政府在处理恒大危机时‘采取负责任的行动’”，内容基本一致，明显是在同一个操盘手下的操作。
 
-数据显示，2019 年湖北省的 PCR 检测花费了约 6740 万元人民币，几乎是 2018 年总数的两倍。月度采购数据显示，2019年5 月份的订单激增，尤其是来自 CDC 采购商和中国人民解放军的订单。
+彭博社、路透社、华尔街日报、南华早报等需要花钱才能看到全文，其实他们想说什么，笔者也能猜个八九不离十，还是节省点吧！
 
-报告认为，5 月份支出的增加表明这可能是新冠感染的最早开始日期。从 7 月到 10 月，采购量也大幅上升，尤其是来自武汉科技大学的采购量。该机构2019年PCR检测经费892万元，约为上年的8倍。武汉科技大学与当地医院和公共卫生当局一起，在应对新疾病的爆发方面发挥着直接作用。报告评估，这些团体的参与提供了证据，新冠大流行开始的时间比中共向世卫组织通报的时间要早​​得多。
+看看《知乎》（knews）的报道吧，题目就是那个“可能影响整个世界”的唬人标题。【1】
 
-(本文仅代表作者观点)
+文章说，中共国的恒大噩梦已经引起了全世界的关注——现在有一个新的迹象表明，它可能对我们所有人产生“深远的影响”。
 
-参考链接：[China PCR test orders soared before first confirmed COVID case](https://asia.nikkei.com/Spotlight/Coronavirus/China-PCR-test-orders-soared-before-first-confirmed-COVID-case)
+美国国务卿安东尼·布林肯（Antony Blinken）对恒大的倒闭做出了令人震惊的评估，并警告该公司的倒闭可能“影响到整个世界”。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+中共国房地产巨头——目前是全球负债最多的房地产公司，约为4080亿美元——继续在崩溃边缘暴跌。
 
-校正/发稿：谐趣园
+在恒大危机的早期，金融业内人士担心这可能是中共国的雷曼时刻，是2008年金融危机的翻版。有人严重担心，这可能导致信贷紧缩，并产生可能蔓延到其他公司和部门的传染效应。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+本周，有迹象表明，这些担忧可能会实现，另一家中共国房地产公司嘉年华（Fantasia）也错过了前一天到期的2.06亿美元债券的付款，导致破产。
+
+在本周接受彭博社（Bloomberg）的一次特别采访中，布林肯呼吁中共在应对不断升级的灾难时采取“负责任”的行动，这表明该公司的倒闭可能会影响到我们所有人。
+
+“深度效应”
+
+在周三（10月6日）接受《彭博电视台》煽动性的采访时，布林肯直接向中共发出呼吁。
+
+布林肯说：“中共国必须自己做出主权经济决策，但我们也知道，中共国在经济上的所作所为将对整个世界产生深远的影响，因为我们所有的经济都是如此的相互关联。”
+
+“因此，当涉及到可能对中共国经济产生重大影响的问题时，我们肯定会确保中共国采取负责任的行动，有效应对所有挑战。”
+
+布林肯备受争议的警告立即在金融界引起了轩然大波，促使一些人猜测，这个故事可能比大多数人所意识到的更多。
+
+但他的评论也招致了一些批评，受人尊敬的研究机构《中（共）国褐皮书》（China Beige Book）在推特上声称，布林肯的警告“来自无知和无条理”。
+
+不管解释如何，布林肯的采访是拜登政府高级官员第一次的评论介入（笔者注，两周前鲍威尔对恒大事件作过淡化的评论），表明全球对北京处理此事的关注日益增强。
+
+恒大被起诉
+
+与此同时，本周，香港两家房地产经纪公司起诉该公司未兑付佣金后，恒大受到了新的打击。
+
+据路透社报道，最近披露的一份诉讼显示，中原地产（Centaline）希望能够从恒大收回546,854美元，而米德兰控股公司（Midland Holdings）要求在香港的两项发展中支付7.6亿美元的未付佣金。
+
+“严重劣势”
+
+在《南华早报》发表的一份分析报告中，牛津经济学院（Oxford Economics）首席经济学家吴宇人（Tommy Wu）概述了恒大最坏情况下可能发生的情况。
+
+“在房地产市场迅速变质的更为严重的下行情景中，或者如果恒大重组中的经济和经济下滑加剧，经济急剧下滑将导致住房需求快速下降。”吴写道。
+
+“房地产开发商的融资成本将增加，融资可能枯竭。
+
+政府可能会采取更重要的措施来调整其对房地产的总体政策立场，并更广泛地限制对整体经济增长的影响。
+
+考虑到我们对中共国铁矿石的依赖，在整个事件中，澳大利亚的投资尤其巨大。
+
+现在，专家们几乎相信，无论恒大的情况如何，我们都会受到特别大的影响，因为中共国房地产行业不太可能很快经历另一轮的繁荣。”
+
+（全文完）
+
+布林肯在访欧期间，布隆伯格急于推出这样的采访，虽然有关内容只占全部采访的极小部分（美国国务院的新闻稿只有103个英文字【2】），但全世界媒体却纷纷报道，并进行了强劲解读。是在给习神施压，还是给世界吹风？明显是美国拜登政府给中共跪下了。
+
+文贵先生早就告诫你们，中共的经济是个怎样的情况，要你们及早脱钩，你们执迷不悟，在暂时的、虚无缥缈的利益诱惑下，怀着惴惴不安的侥幸心理，继续铤而走险。如果说鲍威尔两周前淡化表态，反映的是自欺欺人式的自我安慰，布林肯昨天的言论则有点像“狼来了”的告诫。无论怎样，中共经济是个巨大的泡沫，美国人民的资金是泡沫构成的一部分，泡沫破灭只是时间问题，剩下的就是你们醒悟和如何应对的问题了，恒大问题只是冰山一角！
+
+参考链接：
+
+【1】[https://knews.uk/us-secretary-of-state-antony-blinken-warns-china-evergrande-crisis-could-affect-the-whole-world/](https://knews.uk/us-secretary-of-state-antony-blinken-warns-china-evergrande-crisis-could-affect-the-whole-world/)
+
+【2】[https://www.state.gov/secretary-antony-j-blinken-with-francine-lacqua-of-bloomberg/](https://www.state.gov/secretary-antony-j-blinken-with-francine-lacqua-of-bloomberg/)

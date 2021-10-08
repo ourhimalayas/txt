@@ -2,32 +2,27 @@
 ---
 
 
-## 加拿大威胁公务员限制民众 强推毒针注射
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579918/)
+## 有声|中共国的“一带一路”倡议面临越来越多参与国的反对
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1579981/)
 
-栏目记者/责任编辑：修文
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-102.png)
-加拿大总理特鲁多10月6日宣布，在10月底前所有公务员必须完整接种新冠毒针疫苗，否则最快将于11月被留职停薪。
+配音：香草山美食部-玫瑰园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-2.jpeg)
+据[零对冲](https://www.zerohedge.com/geopolitical/chinas-belt-and-road-faces-growing-opposition-participating-countries-debts-mount)10月5日报道，威廉和玛丽全球研究所研究实验室AidData最近的一项研究显示，由于参与国与中共国项目有关的债务不断增加，中共国的“一带一路”倡议正面临着参与国越来越多的反对。根据AidData的报告，42个低收入和中等收入国家对中共国的公共债务风险超过其国内生产总值（GDP）的10%。
 
-特鲁多上月选举前就提出公务员强制接种计划，已经引发部分民众不满。10月6日他正式宣布执行强制令，以停薪留职威胁联邦政府所有公务员，以及铁路、民航、机构、银行等员工。根据该政策以10月底为期限，要求以上人员完成毒针接种，否则，最快于下月中旬，政府将对未完成任务或没有提交接种证明的员工实行停薪留职，该计划预计将影响27万员工。该计划还包括12岁以上民众，政府试图以限制搭乘公共交通工具来迫使人们屈服。
+作为中国共产党全球扩张和债务陷阱外交的工具，“一带一路”向发展中国家提供用于建设基础设施的巨额贷款。参见项目包括开发道路、港口、发电厂、矿山、电信或银行机构。这些往往无法偿还的贷款将迫使这些国家用货物或土地来偿还中共国。
 
-加拿大民众一直在为自由而战，8月份纽芬兰和拉布拉多的护士联合起来，抗议新冠疫苗强制令和疫苗护照。面对政府各项强制措施，爆料革命战友和觉醒的加拿大民众从未后退，自发向周围的人传播疫苗真相、利益链黑幕，并展示毒针带来的危害。
+该研究分析了过去18年来中国在超过165个国家支持的13427个项目，这些项目的总价值达到了8430亿美元。其中，35%的“一带一路”项目涉及执行问题，如腐败丑闻、违反劳工法、环境危害和公众抗议。
 
-加拿大政府强制推行接种计划，只会激起更强烈的民众反抗。本周六，抗议者将会和家人一起，在蒙特利尔和其他加拿大城市的街道上，同各国人民一起和平游行，维护个人医疗自主权和人权。
+近年来，参与国也出现了许多暂停和取消的情况。越来越多的中低收入国家的政策制定者因为项目定价过高、腐败和债务可持续性问题而放弃参与。
 
-(本文仅代表作者观点)
+这些参与国都希望通过这些项目发展经济，但是太多的例证显示，非但没有使国家变得繁荣，反而深陷债务危机，在政治经济上被中共所控制。
 
-参考链接：[加拿大強制公務員完整接種疫苗 違者將留職停薪](https://news.ltn.com.tw/news/world/breakingnews/3695989)
-[Nurses denounce anti-vaccine passport protest in St. John’s](https://www.cbc.ca/news/canada/newfoundland-labrador/anti-vaccination-passport-protest-st-johns-1.6173996)
-[Thousands in Canada and France Protest Vaccine Passports](https://www.voanews.com/a/covid-19-pandemic_thousands-canada-and-france-protest-vaccine-passports/6209589.html)
+文字版原文：[中共国的“一带一路”倡议面临越来越多参与国的反对](https://gnews.org/zh-hans/1577795/)
 
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审：暗黑
-校正/发稿：谐趣园
-
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
