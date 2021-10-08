@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/8/2021 8:57 PM (UTC)`
+
+20-8日：这帮孙子【七哥您好！华尔街几十分钟内的推，开始吹抗毒神药了。争抢疫情蛋糕的黑手们利益开始分割，等这个药正式批准后，所有投资者和相关利益者将变成最坚决的反疫苗成员。看这红线划的用词，牛吹得无边了，内核估计还是青蒿素：“早期数据显示这种神药是自从有疫苗以来“抗新冠最大的科学成就”。这篇发在个人观点栏目的正文就更厉害，第一句：随着FDA批准的钢笔抖一抖，今天将会拯钱数千性命。很少见华尔街日报上发表这么煽情的文字，即使在个人观点栏目也很少见。🙏🙏🙏🙏】
+![img](https://media.gettr.com/group25/getter/2021/10/08/20/57/c58cc682-5d79-152f-ad9b-e2e959586eac/b8feab11528ecbf5014fc112779e5834.jpg)
+
+---
+
 `@miles 10/8/2021 4:43 PM (UTC)`
 
 10/7/2021 Miles Guo: I persuaded a country’s leader to buy medicines like artemisinin for its citizens; The COVID vaccines are extremely profitable; Although big pharma companies claim to save people, they are paying people to get the jab through lobbying and also have the governments push vaccine mandate; Any decisions made by the CDC cannot deprive the people of their right to survival.<br/><br/>10/7/2021 文贵直播：七哥劝某国领导人给他们国家的公民买青蒿素等药物；冠状病毒疫苗一本万利；大药厂美其名曰救人，但却通过游说、给他人钱去打疫苗并让政府强制接种疫苗；美国疾控中心的任何决定都不能剥夺人们生存的权利！<br/>
@@ -289,13 +296,6 @@ Attorney Thomas Renz: If you get the vaccine, you are more likely to get Covid. 
 
 10/04/2021 Miles Guo’s GETTR: The CCP kleptocrats Fu Zhenghua, Meng Jianzhu, Wang Qishan, Sun Lijun, Zhou Liang, Dong Xiansheng, and others have framed, killed, and seized people’s legitimate properties in the name of law enforcement. The people working in the public security organs, procuratorates and courts have become a bunch of walking corpses. The “earthquake” in these three sectors has not yet started. After Meng Jianzhu's case, all these kleptocrats will be punished. And we, the New Federal State of China, will take actions in accordance with international laws!<br/><br/>10/04/2021 文贵盖特: 中共盗国贼傅政华、孟建柱、王岐山、孙力军、周亮、董仚生等人借执法之名陷害、杀人、掠夺他人合法财产。公检法的人已变成行尸走肉，公检法的地震远远没有开始，孟建柱案后这些恶人都会受到最终的审判，我们新中国联邦会根据国际法律采取行动！<br/>
 ![img](https://media.gettr.com/group7/getter/2021/10/05/04/02/a129daca-7086-f69d-7fcf-dae265514753/out.jpg)
-
----
-
-`@miles 10/5/2021 1:10 AM (UTC)`
-
-10月4号：尊敬的战友们好，明天10月5号，上午8:30至11:00七哥和帅哥美女的战友们，开始大直播，一切都已经开始！
-![img](https://media.gettr.com/group18/getter/2021/10/05/01/5b91c951-29f7-fc83-1df4-793036cd768f/32f1541adbc7fe43464391a420bff9e2.jpg)
 
 ---
 
