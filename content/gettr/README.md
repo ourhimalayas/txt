@@ -24,13 +24,6 @@
 
 ---
 
-`@miles 10/8/2021 11:08 PM (UTC)`
-
-...
-![img](https://media.gettr.com/group46/origin/2021/10/08/22/dcea9bcd-e61b-16aa-9d9a-c49e9010eb27/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
 `@miles 10/8/2021 10:06 PM (UTC)`
 
 《把他们都抓起来 Arrest Them All》（ENG）
@@ -296,6 +289,13 @@ Attorney Thomas Renz: If you get the vaccine, you are more likely to get Covid. 
 
 爆料革命90天 vs. 要飯爛命90天（下）<br/>90 Days of the Whistleblower Movement vs 90 Days Begging for survival （P2-2)<br/><br/>1、要飯爛命 我爹是塞林  大衛被抓了<br/>Begging for survival <br/>Sellin is my “daddy”.<br/>David is said to be arrested.<br/><br/>2、要飯爛命  郭先生和長島哥等人被禁止離境<br/>Begging for survival <br/>Mr. Miles Guo and Brother Long Island and others are prohibited from leaving the country. <br/><br/>3、形式坦蕩，SEC 跟我們（爆料革命）和解<br/>Bold and clear, the SEC has settle with us (the Whistleblower Movement)<br/><br/>4、要飯爛命  抹黑GTV<br/>Begging for survival <br/>Discredit GTV<br/><br/>5、要飯爛命 抹黑G系列 <br/>Begging for survival <br/>Discredit G-series<br/><br/>6、要飯爛命 G-CLUB 卡變成政治獻金 <br/>Begging for survival <br/>Buying a  G- Club membership considered as political donation  <br/><br/>7、爆料革命  美國將承認新中國聯邦<br/>The Whistleblower Movement <br/>The USA will recognize the legitimacy of the New Federal State of China (NFSC)
 ![img](https://media.gettr.com/group33/getter/2021/10/05/11/27/6b544913-76e1-1a4d-90d7-47ddeb2c5781/out.jpg)
+
+---
+
+`@miles 10/5/2021 11:19 AM (UTC)`
+
+爆料革命90 天 vs. 要飯爛命90天（上）<br/>90 Days of the Whistleblower Movement vs 90 Days Begging for survival （P1-2)<br/><br/>1. 爆料革命公布疫苗的真相<br/>The truth of the COVID Vaccine was exposed by Whistleblower Movement <br/><br/>2.要飯爛命說郭先生是中共特務<br/>Begging for survival<br/>States that Mr. Miles Guo is a CCP intelligent agent<br/><br/>3、爆料革命 公佈COVID -19 解藥<br/>The Whistleblower Movement  <br/>announced the antidote of COVID-19 <br/><br/>4、爆料革命 以毒滅共<br/>The Whistleblower Movement  <br/>Reveal the truth of COVID-19 virus to take down the CCP<br/><br/>5、路大腦袋能教美國如何做決定？<br/>How can Lude teach the U.S. decision making?<br/><br/><br/>6、爆料革命  以毒滅共<br/>The Whistleblower Movement  <br/>Taking down the CCP with the truth of COVID-19 virus <br/>
+![img](https://media.gettr.com/group19/getter/2021/10/05/11/19/74d0df75-968d-4a3f-ec56-474edfcaabf0/out.jpg)
 
 ---
 

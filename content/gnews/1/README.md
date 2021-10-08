@@ -2,27 +2,83 @@
 ---
 
 
-## 恐引发心脏疾病，瑞典和丹麦暂停年轻人接种莫德纳新冠疫苗
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1582227/)
+## 中共欠世界的钱还不了，也没人还
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1582252/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/100820-1.jpg)
-**编辑摘要：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/155-a8dbe-mmnjy.jpg)
+[https://gtv.org/video/id=6160268ad2e2b8174872af35](https://gtv.org/video/id=6160268ad2e2b8174872af35)
 
-据法国国际广播电台10月8日报道，瑞典卫生局6日宣布，暂停为1990年以后出生或30岁以下的年轻人接种莫德纳疫苗。卫生局在声明中表示，有清晰的证据证明接种莫德纳疫苗与出现心肌炎（Myocarditis）和心包炎（pericarditis）之间的关系，特别是在接种第二剂疫苗后，接种者出现心肌炎和心包炎的可能性更高，特别是年轻男子出现心脏问题的几率更大。
+**草根小哥：**
+**Caogen：**
 
-同为北欧国家的丹麦也于同日宣布，“出于审慎原因”，暂停为18岁以下的年轻人接种莫德纳疫苗。而早在今年6月份，美国疾控中心（CDC）也在相关的声明中表示，年轻男子接种新冠疫苗后出现心肌炎的风险在增加。
+现在中共这些地方债欠那么多债，欠全世界那么多的钱
+Now the CCP owes so many local debts and so much money to the whole world
 
-[新闻原文链接](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20211007-%E5%BF%A7%E5%BC%95%E5%8F%91%E5%BF%83%E8%84%8F%E7%96%BE%E7%97%85%EF%BC%8C%E4%B8%B9%E9%BA%A6%E5%92%8C%E7%91%9E%E5%85%B8%E6%9A%82%E5%81%9C%E5%B9%B4%E8%BD%BB%E4%BA%BA%E6%8E%A5%E7%A7%8D%E8%8E%AB%E5%BE%B7%E7%BA%B3%E7%96%AB%E8%8B%97)
+那最终这笔债谁来还？如果灭了共谁来还？
+Who will pay this debt in the end? Who will pay the debts after CCP is destroyed?
 
-***编辑：【英国伦敦喜庄园编辑部】***
+**郭文贵**
+**Miles Guo**
 
-*编辑：仙女儿-文善*
+还不了的，崩塌，你像很多战友说中国没有电了一年怎么活
+Can’t pay it back, collapsing, like many comrades-in-arms asked how do you live a year without electricity in China?
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+太阳能发电呢，找太阳能啊
+Solar power, use solar power
 
+还有现在很多这个可以让你暂短使用电的很多科学资料
+There are also a lot of scientific materials that allow you to use electricity for a while
 
-编辑：【英国伦敦喜庄园编辑部】
+军用的东西要备啊，这是要有一些要装备的
+You need to prepare something for self defense, this is something you need to equip
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+但不要过度啊，不要听七哥建议，
+But don’t overdo it, don’t listen to me
+
+就是债没人还的，一定是崩盘的
+nobody will pay off the debt, it must have collapsed
+
+没啦，没有人能还，你不用想的，
+Nothing, no one can pay it back, you don’t have to think about it
+
+德国二战赔多少钱知道吗？ 1000多亿马克
+Do you know how much Germany will compensate for the World War II? More than 100 billion marks
+
+到现在德国还了吗？到现在都没还现在这德国的钱
+Has Germany compensate it up to now? German haven’t pay it compensation yet till now
+
+德国人严格讲到很多国家去就是二战之后
+After the world war II, strictly Germans go to many countries
+
+很多国家可以把德国人扣下来，把德国的钱给扣下来的，你知道吧啊
+that many countries can detain Germans and keep the Germans’ money, you know？
+
+这个是完了，崩盘了，全世界的崩盘了，还不了的
+It’s all over, it’s crashing, the world’s crashing, it can’t be paid
+
+你想想这个光他一家就干那么多钱，你想想
+Think about it, just that one company owes so much money, think about it
+
+你想日本不用多，日本只把日本的保险和养老金就干掉个200到300亿
+You think that Japan doesn’t need to be lost too much, only takes out Japanese in-surance and pensions by 20 to 30 billion
+
+日本就完了，不要说几千亿
+that Japan is over, don’t even think about hundreds of billions
+
+就两三百亿它就结束了，破产了，全球破产了，崩溃
+It’s over for only 20 to 30 billion, it’s bankrupt, the world is bankrupt, it collapses
+
+**——————————————————**
+
+**原视频链接 :**[https://twitter.com/se1y7cblljselva/status/1445679817207123971?s=24](https://twitter.com/se1y7cblljselva/status/1445679817207123971?s=24)
+
+英听校 : 洛杉矶盘古农场 – Layka
+翻译 : 洛杉矶盘古农场 – Layka
+翻译终校 : 洛杉矶盘古农场 – Mike Li
+字幕+视频制作 : 洛杉矶盘古农场 -天涯行
+审片 : 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

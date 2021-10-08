@@ -2,45 +2,49 @@
 ---
 
 
-## 中国工商银行将限制外汇和大宗商品交易
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1581904/)
+## 洛杉矶县警长拒绝执行疫苗命令
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1581932/)
 
-作者：纽约香草山农场 – 四季
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+作者：纽约香草山美食部 – 蓝天大海
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
 
-据[ONA](https://www.oann.com/chinas-icbc-to-restrict-some-forex-and-commodities-trading/)网站10月8日报道，中共国最大的银行 – 工商银行（ICBC）周五表示，它将限制涉及外汇和商品交易的某些类型的零售业务。与此同时，中共监管机构还采取了一系列行动，包括抑制商品价格上涨，禁止加密货币交易和限制房地产投机。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1174-1-2021-10-08T102252Z_1_LYNXMPEH970GQ_RTROPTP_0_CHINA-BANKS-RESULTS_1.jpg)2019年4月1日，中国工商银行（ICBC）北京分行门口的工商银行标志。（REUTERS/Florence Lo）
+据零对冲10月8日报道，洛杉矶县警长亚历克斯-维兰纽瓦（Alex Villanueva）拒绝执行当地政府下达的关于新冠疫苗强制接种的命令。警长表示，如果按照政府的疫苗接种要求，警局可能会失去多达10%的员工。他还提到，该县今年前6个月的凶杀案比去年同期激增了31%；而从去年6月开始，警局的经费已经被削减了1.455亿美元，倘若加上执行政府疫苗任务的额外负担，这将进一步削弱警队。
 
-工商银行将从10月17日开始，暂停“外汇业务账户”新账户的开立，并还将在涉及能源、基本金属、农产品和贵金属指数的类似交易业务中停止吸收新客户。从11月14日起，现有客户将被禁止开设新的交易仓位。
+![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/081021sheriff1.jpg?itok=2rz6Et6w)图片来源：零对冲
 
-而最近几个月，工商银行和其他银行，包括中国银行和招商银行，关闭了允许个人客户押注非人民币货币的外汇交易业务。
+维兰纽瓦警长表示：“我不会强迫任何人接种新冠疫苗，也不会强制他们戴口罩。疫苗问题现在已经变得政治化。再者，有一部分员工已经表示，他们宁愿被解雇或者被辞职，也不会去接种疫苗。”警长强调，疫苗强制接种命令没有科学依据支持，他不会执行。
 
-从限制煤炭的进口、大面积的停电到银行停止外汇业务，中共外汇短缺的情况可见一斑，经济崩溃一触即发。
+据悉，洛杉矶县将于11月4日开始执行全国最严历的新冠疫苗接种命令，该地区将强制任何希望进入酒吧、餐馆、健身房或其他场所的民众出示COVID-19疫苗接种证明或阴性测试结果。该命令还强制要求市政府雇员接种疫苗。
+
+而今，在反对新冠疫苗的声浪中，世界各地的民众正在觉醒，其中也包括了一些官员和警察——这支队伍正在变得越来越壮大。相信结束强制接种新冠疫苗的日子不远了。
 
 （本文仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+参考阅读：
 
-编辑/校对/发稿：小鹿
+[Los Angeles County Sheriff Refuses To Enforce Vaccine Mandate](https://www.zerohedge.com/political/los-angeles-county-sheriff-refuses-enforce-vaccine-mandate)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
 
+***编辑/校对/发稿：Irene木木***
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
