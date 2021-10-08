@@ -2,15 +2,13 @@
 ---
 
 
-## 2021年10月8日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1581808/)
+## 2021年10月8日 文贵先生盖特 5
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1581837/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-辉瑞前雇员爆料：辉瑞向公众隐瞒其新冠疫苗含有胎儿组织
+10月8号：尊敬的战友们好……台湾再次成为中美两国之间的政治经济交易的筹码，对台湾没有任何好处，美国等西方国家正在利用中国的内部政治斗争，获取自己的短暂的政治经济的利益，对中国人，对世界没有任何好处，但对我们新中国联邦，却是百利无一害，天助我新中国联邦。
 
-Former employee exposes Pfizer’s deception regarding the fetal tissue within its COVID vaccine
-
-[【2021年10月8日】文贵先生盖特原文](https://gettr.com/post/pdiint3e31)
+[【2021年10月8日】文贵先生盖特原文](https://gettr.com/post/pdiwza018f)
 
 **喜联盟Gnews编辑部**

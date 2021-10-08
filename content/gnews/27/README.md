@@ -2,22 +2,26 @@
 ---
 
 
-## 欧洲议会决议: 与美国合作降低台海紧张局势
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1581512/)
+## 美参院再提国债上限， 难逃金融危机寒冬
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1581557/)
 
 作者：云豹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-欧洲议会于6日，以550票赞成、83票反对、55票弃权，高票通过“展望欧盟—美国关系决议。
+美国联邦参议院于7日通过议案，暂时为联邦政府已高达28.4兆美元的举债上限，增加4800亿美元的额度，避免在本月发生历史性债务违约的风险，并借此争取缓冲时间，寻求更长期的解决方案。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-14.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-7.jpeg)
 
-该决议建议，欧盟与美国应就降低台海紧张局势寻求共识及合作。强调欧盟必须与美国就保护中国少数民族人权、降低南海、东海、香港及台湾海峡紧张情势等议题寻求共识及合作的可能；决议同时指出，欧盟正推行的「印太战略」，应强化与日韩、澳洲、以及台湾等美欧共同民主伙伴所扮演的角色。
+此前美国财政部长叶伦警告，如果没有解决债务上限问题，财政部的现金和非常规手段很可能会在 10 月 18 日前耗尽，引发一场历史性的金融危机。
 
-台湾外交部对此决议表示欢迎，并感谢欧洲议会再度以具体行动，高度关切台海和平稳定。并称，面对中共的威胁挑衅，台湾将持续与欧盟及美国等理念相近的国家深化合作，共同致力维护印太地区的和平、稳定及繁荣。
+此议案经过数周的两党争论，以50票赞成、48票反对的结果，经参议院通过，将送交联邦众议院表决，如众议院通过议案，则会呈送白宫由拜登总统签署执行。
+
+众议院议长裴洛西稍早表示，她将把正在休会期的众议员们召集回来表决，但目前无法确定开会日期。
+
+该法案如获执行，则美国联邦政府的举债上限总额将达到28.9兆美元，即便如此债台高筑，政府运作预期只能维持到12月3日。疫情对世界经济影响重大，各国政府均超量印钞、艰难维持、危机重重，今年年底，全球经济必将面临巨大考验。
 
 (本文仅代表作者观点)
 
-参考链接：[歐洲議會高票決議 促歐盟與美合作降低台海緊張](https://www.cna.com.tw/news/firstnews/202110085001.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+参考链接：[美國參院允暫拉高債務上限 讓政府運作至12月初](https://www.cna.com.tw/news/firstnews/202110080045.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 

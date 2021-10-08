@@ -2,15 +2,39 @@
 ---
 
 
-## 2021年10月8日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1581791/)
+## 台湾校园施打辉瑞疫苗三天内致两名学生命危
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1581821/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+**撰稿：日本东京方舟农场 Kevin wang**
 
-Pfizer is tightly arranging new vaccines to fight the next generation of the CCP Virus for the benefit. But Pfizer scientists admitted on camera that vaccines are not as effective as human natural immune system. Although such reports are backed up by science, they are covered up, censored online, and banned by Big Tech as dangerous misinformation, because they contradict the narratives of the media, medical establishments and big pharmaceutical companies about COVID vaccines.
+据苹果新闻网10月8日报道，台湾三天内发生两起在校学生因接种辉瑞疫苗导致命危住院的案例。国高中生打辉瑞疫苗后，台中副院长傅云庆的门诊量暴增1.5成。
 
-为了利益，辉瑞仍在紧凑地安排新型疫苗对抗下一代中共病毒。但辉瑞科学家在镜头上承认，疫苗并不比人天然免疫系统更有效。 尽管这类报道是有科学支撑的，但被科技巨头以危险虚假信息的理由封锁，这是因为报道与媒体、医疗机构和大制药公司对疫苗的说法相矛盾。
+报道称, 台中市卫生局医管科长吴雅玲证实，17岁男学生9月24日接种辉瑞疫苗，10月2日因出现胸痛症状，到医院治疗后症状缓解返家；但10月3日又不舒服，再次就医检查后发现是气胸，紧急收治住院插胸管治疗，目前症状缓解，已经转普通病房。
 
-[【2021年10月8日】文贵先生盖特原文](https://gettr.com/post/pdhjy5c675)
+吴雅玲表示，因男生在发病前10天打辉瑞疫苗，不能排除与疫苗关系，所以医院依然进行疫苗注射后不良反应通报。
 
-**喜联盟Gnews编辑部**
+另一例是桃园的一名国中女生，9月24日在校打辉瑞疫苗后11天，突然出现呼吸喘等症状就医，医师诊断为心肌炎，紧急以叶克膜抢救至今。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211008191329.png)图片来自于网络
+
+台中荣总副院长傅云庆说，高中生打辉瑞疫苗后，他的门诊量暴增1.5成，大多是学生打完疫苗后出现胸闷等不适症状就医。
+
+台中市卫生局表示，截至目前，台中市通报的辉瑞疫苗不良反应数总计有72例，仍有6位病人住院治疗中。
+
+中央流行疫情指挥中心发言人庄人祥在当天的发布会中表示，目前辉瑞疫苗不良反应共有158例，包括22件死亡、1件疑似严重过敏反应、135件其他疑似严重不良事件，是否有其他血栓昏迷部分还需要再统计。
+
+此外，由于疫苗接种严重不良反应人数超过染疫死亡人数，民众党呼吁放宽赔偿审议的标准。指挥中心发言人庄人祥回应称，目前最高赔偿金额为600万元，由疫苗接种咨询小组进行审查。
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[17歲男接種BNT十天內2度送醫！氣胸插管進加護　中市通報不良反應](https://tw.appledaily.com/life/20211008/QXHJYX2YPNH27M2XM7P52DHEE4/)
+
+[獨家｜國一女打BNT命危　名醫曝心肌炎5大症狀！命中一項就送醫](https://tw.appledaily.com/life/20211008/YWLM4XGERJCFZJPHRQU2RFFPDI/)
+
+[桃園國中生心肌炎非首例　莊人祥：和BNT相關的還有幾例](https://tw.appledaily.com/life/20211008/2TQJRKZYLBES7J2KFBVZNBEQKM/)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

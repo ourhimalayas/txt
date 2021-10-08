@@ -2,33 +2,15 @@
 ---
 
 
-## 美国国家安全顾问：美中两国必须负责任地管理“激烈的竞争”
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1581732/)
+## 2021年10月8日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1581791/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-据路透社10月7日报道，美国国家安全顾问沙利文(Jake Sullivan)周四表示，他周三在瑞士与中共最高外交官杨洁篪举行了会晤，并表示需要采取更多行动来避免两国之间的冲突。
+Pfizer is tightly arranging new vaccines to fight the next generation of the CCP Virus for the benefit. But Pfizer scientists admitted on camera that vaccines are not as effective as human natural immune system. Although such reports are backed up by science, they are covered up, censored online, and banned by Big Tech as dangerous misinformation, because they contradict the narratives of the media, medical establishments and big pharmaceutical companies about COVID vaccines.
 
-沙利文称，这次在苏黎世一家机场酒店举行的闭门会议持续了大约六个小时，这是两位官员在阿拉斯加交流以来的首次面对面会晤。
+为了利益，辉瑞仍在紧凑地安排新型疫苗对抗下一代中共病毒。但辉瑞科学家在镜头上承认，疫苗并不比人天然免疫系统更有效。 尽管这类报道是有科学支撑的，但被科技巨头以危险虚假信息的理由封锁，这是因为报道与媒体、医疗机构和大制药公司对疫苗的说法相矛盾。
 
-他表示，这次会晤是一种方式，“尽我们最大努力创造一种环境，使这场(美中之间的)激烈竞争能够得到负责任的管理，而不会转向冲突或对抗。”
+[【2021年10月8日】文贵先生盖特原文](https://gettr.com/post/pdhjy5c675)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ee2c0c7cb8d8b133a6b9bdfdcb3cec0b.jpg)图片来自于网络
-
-沙利文说：“我得出的基本结果是，激烈的竞争需要积极的外交。所以我们需要更多，而不是更少这样的会晤。”
-
-不过，在台海问题上，沙利文表示与杨洁篪进行了“艰难而直接的交流”，但他并未给出细节。
-
-他说，“我们认为台湾是一个充满活力的经济体，一个充满活力的民主政体……我们非常注重与台湾在多个维度上保持深厚而持久的关系。”
-
-自10月1日以来四天内，已有149架中共军机入侵台湾南部和西南部的防空识别区。美国国务院发表声明敦促中共“停止对台湾的军事、外交和经济压力与胁迫”。
-
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[美国家安全顾问沙利文称美中两国必须负责任地管理“激烈的竞争”](https://cn.reuters.com/article/usa-china-competition-management-1007-th-idCNKBS2GY025)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**喜联盟Gnews编辑部**
