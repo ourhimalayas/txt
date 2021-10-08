@@ -2,13 +2,13 @@
 ---
 
 
-## 2021年10月8日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1581837/)
+## 2021年10月8日 文贵先生盖特 6
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1581848/)
 
 编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-10月8号：尊敬的战友们好……台湾再次成为中美两国之间的政治经济交易的筹码，对台湾没有任何好处，美国等西方国家正在利用中国的内部政治斗争，获取自己的短暂的政治经济的利益，对中国人，对世界没有任何好处，但对我们新中国联邦，却是百利无一害，天助我新中国联邦。
+10/7/2021 Miles Guo: In 6 weeks you will see which Nasdaq-listed company owns the new technologies combining nanotechnology and biotechnology! The CCP can only use dirty tricks like reporting fake cases to attack us 10/7/2021 文贵直播：大家在6周后会看到是哪家在纳斯达克上市的公司拥有着纳米技术和生物技术结合的新技术！共产党只会用报假案等下三滥的招儿来对付我们
 
-[【2021年10月8日】文贵先生盖特原文](https://gettr.com/post/pdiwza018f)
+[【2021年10月8日】文贵先生盖特原文](https://gettr.com/post/pdjjpx5a01)
 
 **喜联盟Gnews编辑部**

@@ -2,22 +2,32 @@
 ---
 
 
-## 学生接种疫苗后死亡！学校强烈否认
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1581504/)
+## 欧洲议会决议: 与美国合作降低台海紧张局势
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1581512/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1087.png)[图片来源](https://news.yahoo.co.jp/articles/f5825bd3e47f26e22139b2a4c2baf60ca5de8b67/images/000)
-据日本“读卖新闻”10月8日报道，一些小学和高中的学生在社交媒体上发布了“接种疫苗后死亡”的信息，该信息被广泛传播，因此，学校方面接到很多抗议电话，让学校不要隐瞒，学校强烈的否定该信息的真实性。新闻称，最开始是兵库县的一名诊所医生发布相关帖子，学校要求医生修改言论内容，被拒后，该贴遭删除。
+作者：云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+欧洲议会于6日，以550票赞成、83票反对、55票弃权，高票通过“展望欧盟—美国关系决议。
 
-报道最后引用了千叶大学医院的黑川友哉医生的话，称“家长和孩子应该讨论是否接种疫苗，最好是接受之后再做决定。根据可靠的信息做出判断是很重要的，不要被不确定的言论所迷惑。”有趣的是，日本“体育报知”10月8日对该事件也进行了报道，作家乙武洋匡在推特上呼吁，呼吁内容与黑川友哉医生几乎一样。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-14.jpeg)
 
-疫苗的危害终究是掩盖不住，有识之士在说出真相，无为的媒体却在抹杀真相。有些医生是真正医者仁心，可怕的是，有些医生却在诱导孩子接种疫苗。
+该决议建议，欧盟与美国应就降低台海紧张局势寻求共识及合作。强调欧盟必须与美国就保护中国少数民族人权、降低南海、东海、香港及台湾海峡紧张情势等议题寻求共识及合作的可能；决议同时指出，欧盟正推行的「印太战略」，应强化与日韩、澳洲、以及台湾等美欧共同民主伙伴所扮演的角色。
 
-信息来源：
-1、[乙武洋匡氏、ワクチン接種後に児童死亡の誤情報拡散で訴え「不確かな話に惑わされないでほしい」](https://news.yahoo.co.jp/articles/017f7f85d6ba432dd619a81539fa15a76b62b2bd)
-2、[児童ら「接種後に死亡」と誤情報…開業医の投稿で拡散も、「隠蔽するな」学校に抗議続々](https://news.yahoo.co.jp/articles/f5825bd3e47f26e22139b2a4c2baf60ca5de8b67)
+台湾外交部对此决议表示欢迎，并感谢欧洲议会再度以具体行动，高度关切台海和平稳定。并称，面对中共的威胁挑衅，台湾将持续与欧盟及美国等理念相近的国家深化合作，共同致力维护印太地区的和平、稳定及繁荣。
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+(本文仅代表作者观点)
+
+参考链接：[歐洲議會高票決議 促歐盟與美合作降低台海緊張](https://www.cna.com.tw/news/firstnews/202110085001.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：FoxRina
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

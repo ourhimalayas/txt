@@ -2,38 +2,49 @@
 ---
 
 
-## 江泽民当年下令杀令谷,江绵恒和江志成将为此付出代价
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1581895/)
+## 洛杉矶县警长拒绝执行疫苗命令
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1581932/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/cachedImage-3-1536x864_副本.jpg)
-据[2021-10-07 七哥回答战友们的问题：AMD将在纽约上市，背后股东是谁？中共95%肯定要打台湾的；曾家的灾难还没开始，江家一定会付出代价；新加坡的何晶非常聪明；杨洁篪已岌岌可危](https://gtv.org/video/id=615ef95d304e992109b0faaf)时间点1：36：08——
+作者：纽约香草山美食部 – 蓝天大海
 
-（念战友留言）——七哥，江家会反击吗？
 
-哎！可以这么说吧，他反击的机会越来越渺茫了，江——如果他要是江家当年弄死令计划的儿子，弄死令计划的儿子，（对工作人员说，你让他给他联系一下，你让他直接联系他，好吧？）所以说兄弟姐妹们，你知道当年我见过风水先生，我说共产党干掉了令计划的儿子，干掉令谷以后，他们会是带来什么样的代价，他说颠倒乾坤，我说到底是江家干的，还是那个谁家干的，咱就不说吧，他说绝对是江家干的。
 
-我说好，我说我从来不相信你们这些风水大师们，从来不信，但是我问因为你能佐证我的正确性与不正确，我说你给我预测预测，其中就有预测一个，他说江家的孙子江志成活不长。我说为什么，他说江家这次动手干掉令谷，下的命令就是老江干的，而且江家儿子江绵恒还有他的孙子江志成都将为此付出代价，他说这就是轮回报应。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-所以江志成这小子只谈恋爱不结婚，而且这小子生活中你见过这个人，叫毛毛，绝对他长不了，所以最后江家如何为此付出代价，就现在他看来他的机会，他越来越没有机会了，江是不行，他是个象征性的，江绵恒、江绵康、江志成在军队的势力是巨大的，但是我觉得越来越渺茫。
 
-（以下暂略）
 
-撰稿：喜马拉雅的肉夹馍；
+据零对冲10月8日报道，洛杉矶县警长亚历克斯-维兰纽瓦（Alex Villanueva）拒绝执行当地政府下达的关于新冠疫苗强制接种的命令。警长表示，如果按照政府的疫苗接种要求，警局可能会失去多达10%的员工。他还提到，该县今年前6个月的凶杀案比去年同期激增了31%；而从去年6月开始，警局的经费已经被削减了1.455亿美元，倘若加上执行政府疫苗任务的额外负担，这将进一步削弱警队。
 
-审核：喜马拉雅的馍夹肉；
+![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/081021sheriff1.jpg?itok=2rz6Et6w)图片来源：零对冲
 
-校对：Maarago；
+维兰纽瓦警长表示：“我不会强迫任何人接种新冠疫苗，也不会强制他们戴口罩。疫苗问题现在已经变得政治化。再者，有一部分员工已经表示，他们宁愿被解雇或者被辞职，也不会去接种疫苗。”警长强调，疫苗强制接种命令没有科学依据支持，他不会执行。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+据悉，洛杉矶县将于11月4日开始执行全国最严历的新冠疫苗接种命令，该地区将强制任何希望进入酒吧、餐馆、健身房或其他场所的民众出示COVID-19疫苗接种证明或阴性测试结果。该命令还强制要求市政府雇员接种疫苗。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+而今，在反对新冠疫苗的声浪中，世界各地的民众正在觉醒，其中也包括了一些官员和警察——这支队伍正在变得越来越壮大。相信结束强制接种新冠疫苗的日子不远了。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+（本文仅代表作者观点）
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+参考阅读：
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+[Los Angeles County Sheriff Refuses To Enforce Vaccine Mandate](https://www.zerohedge.com/political/los-angeles-county-sheriff-refuses-enforce-vaccine-mandate)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
