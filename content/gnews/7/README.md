@@ -2,16 +2,9 @@
 ---
 
 
-## 西媒头条 — 第83期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1581081/)
+## 王岐山和傅政华收集包括习总书记在内所有政商重要人物腐败犯罪证据
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1581146/)
 
-- 制作：蚂蚁兄弟
+7/3/2017 郭文贵先生爆料王岐山和傅政华收集了包括习总书记在内的所有政商重要人物的腐败犯罪证据。
 
-
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1008.001.jpeg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
