@@ -2,76 +2,50 @@
 ---
 
 
-## 与中共国的战争4：澳洲前线与排华浪潮
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1580058/)
+## 中共政府要求天然气进口商承担高昂成本以解决能源危机
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1580080/)
 
-#### 翻译：Lish
+## China tells gas importers to bear high cost to fix energy crisis
 
-#### 编辑/评论：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/打倒-13.png)
-图片来源： The New Daily & SBS News
+China is urging its liquefied natural gas (LNG) importers to procure more supply to fix its energy crisis, while providing little financial support for firms paying record-high rates for the super-chilled fuel.
 
-**编者按：**
+中共政府正在敦促其液化天然气 (LNG) 进口商提供更多供给以解决当前其能源危机问题，但它却没有为需要支付创纪录高价购买这一超冷燃料的企业提供财政补贴。
 
-澳大利亚主流媒体九频道访谈节目《60分钟》，有一档主题是“与中共国的战争”，近期播出后大热，油管上471万次观看，7.5万个赞。参与的嘉宾有军情专家、战略分析师、政治学者和商界精英，也代表了西方社会相当一部分主流声音。节目深入探讨分析了各种可能发生的情况：从常规战争到战术核武器，美国携盟国全面参与，澳大利亚紧随其后的深度介入，最后澳洲成为对抗中共国的主战场。
+The government isn’t providing enough subsidies for recent purchases, making it difficult for the nation’s smaller gas distributors to meet the request to secure enough fuel before winter, according to traders with knowledge of the matter. While some firms are avoiding buying for now, they may ultimately have to bow to Beijing’s wishes.
 
-虽然，节目的观点我们并不完全认同，但仅从点击率和点赞数就可以看出这档节目的巨大影响力。因为它几乎完整地推演了一遍澳大利亚与中共国开战的全过程，视频制作精良，嘉宾都很专业，极具参考价值，也体现了西方社会对中共国穷兵黩武的深度担忧。经过四年爆料革命，郭先生揭示的中共数十年苦心孤诣的深耕布局，图谋就是统治全世界。希望借此可以尽早警醒全世界，一起加入灭共的时代大潮。
+据知情交易员透露，政府没有为近期的采购提供足够的补贴，这使得该国小型天然气分销商难以实现在冬季到来之前获得足够燃料的需求。虽然一些公司目前都在逃避购买，但他们最终可能不得不屈从于中共政府的意愿。
 
-鉴于文字内容篇幅较大，本篇是第四部分《澳洲前线与排华浪潮》，美国与中共国陷入全面对抗，中共国攻击驻澳美军基地，澳洲陷入火战。在两国进入交战状态之际，澳洲外交和军事政策必然会激起全社会反华排华浪潮，在澳140万华人关进拘留营是非常残酷的预期。
+North Asian LNG spot prices surged to a record high this week as importers from China to the UK intensify competition for a shrinking pool of available winter supply. The world is grappling with an energy crisis as the post-pandemic recovery collides with supply restraints, sending fuel and power prices rallying to eye-watering heights.
 
-**译文：**
+由于从中共国到英国的进口商抢购所剩不多的冬季燃料的竞争加剧，北亚液化天然气现货价格本周飙升至历史新高。由于疫情后经济恢复与有限的供给发生冲突，全世界正陷入能源危机，从而导致燃料和电力价格上涨至令人瞠目结舌的高度。
 
-鉴于中共国和美国之间的任何战争基本上都会发生在澳大利亚周边。澳美两国军事关系密切，美国在澳大利亚有两处情报基地，即北领地的松树沟和西澳海岸的西北角。未来与中共国爆发冲突，这两个基地至关重要。
+Many of China’s gas distributors are state-owned, and are used to taking losses buying pricey LNG and selling to domestic consumers at fixed rates. The largest companies are still willing to pay high spot prices to attract shipments away from rivals in Asia and Europe.
 
-那里有很多设施，将在冲突局势爆发的同一时刻运转起来。然而，这也将意味着澳大利亚的土地将陷入战火，而澳大利亚人对这个问题并没有真正有发言权。
+中共国的许多天然气分销商大多都是国有企业，习惯于亏损买入昂贵的液化天然气并以固定价格出售给国内消费者。大的公司仍然愿意支付高昂的现货价格从亚洲和欧洲的竞争者手中抢购出货量。
 
-澳大利亚政府对这些基地发生的事情几乎没有控制权，或者当美国面临战争时，也不知道可能会做出什么样的防御决定。
+But with a single LNG spot cargo currently costing more than $130 million, compared to about $17 million this time last year, the extreme losses are making buyers blanch. Also, some LNG importers have struggled to secure additional loans from banks to make purchases, traders said.
 
-虽然从理论上讲，松树沟基地是澳美两国的联合设施。事实上，该基地的负责人是美国人，只有1/10的人员是澳大利亚人。基地内部有一个秘密房间，澳大利亚人不允许进入。
+但随着目前单艘液化天然气现货货船的成本超过 1.3 亿美元，相比于去年同期的大约 1,700 万美元，极端的损失让买家望而却步。此外，交易员表示，一些液化天然气进口商一直难以从银行获得额外贷款来进行购买。
 
-因为美国的资产在澳大利亚的土地上，（美国）绝对可以下达开火的指令。
+At least two second-tier companies including Shenzhen Energy Group Co. have decided against purchasing shipments because of the high prices, despite the government orders, according to traders. But China’s largest state-owned importers have been busy procuring spot supply.
 
-因为美国国会成员比澳大利亚议会成员对这些设施的情况有更多的监督和了解，我们必须认识到我们所处的位置，任何社会都可能面临的最重要的问题，即是否参战的问题，很可能最终是（美国开火）为澳大利亚做出决定。
+据交易员称，尽管有政府的命令，至少有包括深圳能源集团有限公司在内的两家二线公司因为价格居高不下已决定不再采购。但中共国大型国有进口商一直忙于采购现货供应。
 
-无论战争的情况如何，澳大利亚将是一个历史上独一无二的前线，可能在未放一枪一弹之前就被打残了。
+The government is trying to make it easier for energy companies to secure loans. Banks and other financial institutions should prioritise lending to qualified mines and power plants so they can increase thermal coal and electricity output, China Banking and Insurance Regulatory Commission said in a statement Tuesday.
 
-几乎可以肯定的是，**在美中爆发重大冲突前，首先会发生的一件事就是打掉全球贸易服务系统，**使很多依赖该系统的美国军事系统瘫痪，一旦发生这种情况，**澳大利亚无法进行刷卡交易，无法在加油站给汽车加油**。因为所有这些都依赖于全球贸易服务系统，澳大利亚的经济将在最初阶段遭受非常严重的影响。在几个星期内，澳大利亚很难获得足够的燃料和石油。
+政府正努力让能源公司更容易获得贷款。中国银保监会周二在一份声明中表示，银行和其他金融机构应优先向符合条件的矿山和电厂提供贷款，以增加燃煤和电力的产出。
 
-或许澳大利亚很容易认为，这一次做一个看客。但现实是，澳大利亚做不到，也无法避免。
+简评：如本篇报道所述，为了解决中共国的能源危机，在不能提供补贴的情况下，中共政府要求天然气进口商自负超额成本完成政府的进口采购命令，在这个命令执行过程中，小型分销商因为成本过高而回避采购，一些大型国企也是在亏损的状态下买入昂贵的天然气。由于疫情后经济恢复与有限的供给发生冲突，造成了当下全球性的能源危机，而中共政府自去年下半年颁布澳大利亚煤炭进口禁令以来，一直没能找到合适的澳洲煤炭替代品。如今能源短缺，中共不得不在近日放风要逐渐恢复澳大利亚煤炭进口。但是，可怕的是，不仅是天然气价格高企，今年澳洲煤炭的价格也已经达到了去年同期的2倍多。在经济低迷、外汇短缺、能源供应不足的情况下，我们不禁怀疑，中共政权能否撑过这个冬天。
 
-澳大利亚有澳美新安全条约的保障，该条约承认，在太平洋地区对一个成员国的攻击将危及其他国家的和平与安全，所有签署国都承诺“采取行动以应对共同的危险”。
+[新闻链接](https://www.energyvoice.com/oilandgas/asia/354657/china-tells-gas-importers-to-bear-high-cost-to-fix-energy-crisis/)
 
-澳大利亚也可以选择置身事外吗？因为这不是一场为台湾或民主的战争，这将是美中竞争升级的结果，主要事关经济利益和世界政治主导地位。
+* * *
 
-不能，美澳联盟对澳大利亚国家安全至关重要，如果澳大利亚选择不加入（战争）的情况，就必须考虑这样做的战略后果——任何时候都只能孤军奋战。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-如果澳大利亚置身事外，退出在台湾发生的战争冲突，而日本和美国都在那里，那么澳新美安全联盟已经结束。
 
-如果澳大利亚加入美国与中共国的战争，普通澳大利亚人是没有发言权的。
+编辑：【英国伦敦喜庄园编辑部】
 
-实际上不需要在议会中投票，军队部署部队的决定权取决于总理，他负责通知国防部长。
-
-所以，澳大利亚人民并没有真正去辩论这个问题。然而，今天所讨论的所有内容对澳洲每个普通人来而言，很多方面都是非常残酷的。
-
-澳大利亚国防军上一次参与高强度的战争是在韩国，还在阿富汗部署了20年，而塔利班甚至没有空军（拥有制空权）。
-
-此外，**这场与中共国的战争将对近150万澳大利亚华人产生深远影响**。在二战期间，在本地生活了50多年的日裔澳大利亚人却被围捕和监禁，共有4301名日本平民被囚禁在澳大利亚的拘留营中。
-
-战争一旦爆发，澳洲社会上各种（反华）逻辑都有，华裔或看起来像华裔的人在街上被虐待，极右派和少数派将会呼吁将他们安置在拘留营中。
-
-澳洲社会（舆论）将视华人为敌，而华人社区和所有看起来有点像中国人的亚裔关进拘留营是一个非常残酷的预期。
-
-在澳大利亚与中共国全面对抗之时，一个国家的外交和军事政策必然会激起反华种族主义，这就是未来面临的现实。
-
-（文中仅代表作者个人观点，与Gnews平台无关）
-
-视频链接：[War with China: Are we closer than we think? | Under Investigation – YouTube](https://www.youtube.com/watch?v=kA2KaEKs1LA)
-
-**发布：文泓**
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

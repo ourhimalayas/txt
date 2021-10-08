@@ -2,34 +2,73 @@
 ---
 
 
-## 北欧三国承认莫德纳疫苗与青少年心脏疾病相关性
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579897/)
+## 各大媒体热炒布林肯对恒大的反应
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1579929/)
 
-栏目记者/责任编辑：云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-102.png)
-瑞典6日宣布，承认年轻人在注射莫德纳疫苗后，心肌炎及心包膜炎等副作用的风险增加的事实现象，提出暂停在年轻人范围内该品牌新冠毒针疫苗的使用。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-4.jpeg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/b.jpg)bnnbloomberg.ca
+媒体众多，标题只有两样，“美国国务卿布林肯警告中（共）国恒大危机可能影响‘整个世界’”、“美国国务卿布林肯敦促中（共）国政府在处理恒大危机时‘采取负责任的行动’”，内容基本一致，明显是在同一个操盘手下的操作。
 
-挪威和丹麦也重申对莫德纳疫苗的慎重态度。 瑞典公共卫生局展示了该mRNA疫苗和心肌炎和心包膜炎的风险相关性，男性年轻人为高危人群，多数在接种第2剂疫苗后的数周内发生。
+彭博社、路透社、华尔街日报、南华早报等需要花钱才能看到全文，其实他们想说什么，笔者也能猜个八九不离十，还是节省点吧！
 
-丹麦已经取消了所有新冠限制令，春季引入的新冠健康通行证也从9月1日起不再使用。
+看看《知乎》（knews）的报道吧，题目就是那个“可能影响整个世界”的唬人标题。【1】
 
-(本文仅代表作者观点)
+文章说，中共国的恒大噩梦已经引起了全世界的关注——现在有一个新的迹象表明，它可能对我们所有人产生“深远的影响”。
 
-参考链接：[憂心肌炎風險 瑞典丹麥建議年輕人暫不用莫德納](https://www.cna.com.tw/news/aopl/202110070037.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-[Denmark is first in EU to lift all coronavirus restrictions](https://www.politico.eu/article/denmark-first-eu-lift-coronavirus-restrictions/#:~:text=High%20levels%20of%20trust%20in,the%20country%27s%20successful%20vaccine%20rollout.&amp;text=Denmark%20is%20set%20to%20lift,to%20pre%2Dpandemic%20daily%20life)
-[Denmark’s high vaccination rate sees COVID pass ended for restaurants](https://www.euronews.com/2021/09/01/denmark-s-high-vaccination-rate-sees-covid-pass-ended-for-restaurants)
+美国国务卿安东尼·布林肯（Antony Blinken）对恒大的倒闭做出了令人震惊的评估，并警告该公司的倒闭可能“影响到整个世界”。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+中共国房地产巨头——目前是全球负债最多的房地产公司，约为4080亿美元——继续在崩溃边缘暴跌。
 
-终审：暗黑
-校正/发稿：谐趣园
+在恒大危机的早期，金融业内人士担心这可能是中共国的雷曼时刻，是2008年金融危机的翻版。有人严重担心，这可能导致信贷紧缩，并产生可能蔓延到其他公司和部门的传染效应。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+本周，有迹象表明，这些担忧可能会实现，另一家中共国房地产公司嘉年华（Fantasia）也错过了前一天到期的2.06亿美元债券的付款，导致破产。
+
+在本周接受彭博社（Bloomberg）的一次特别采访中，布林肯呼吁中共在应对不断升级的灾难时采取“负责任”的行动，这表明该公司的倒闭可能会影响到我们所有人。
+
+“深度效应”
+
+在周三（10月6日）接受《彭博电视台》煽动性的采访时，布林肯直接向中共发出呼吁。
+
+布林肯说：“中共国必须自己做出主权经济决策，但我们也知道，中共国在经济上的所作所为将对整个世界产生深远的影响，因为我们所有的经济都是如此的相互关联。”
+
+“因此，当涉及到可能对中共国经济产生重大影响的问题时，我们肯定会确保中共国采取负责任的行动，有效应对所有挑战。”
+
+布林肯备受争议的警告立即在金融界引起了轩然大波，促使一些人猜测，这个故事可能比大多数人所意识到的更多。
+
+但他的评论也招致了一些批评，受人尊敬的研究机构《中（共）国褐皮书》（China Beige Book）在推特上声称，布林肯的警告“来自无知和无条理”。
+
+不管解释如何，布林肯的采访是拜登政府高级官员第一次的评论介入（笔者注，两周前鲍威尔对恒大事件作过淡化的评论），表明全球对北京处理此事的关注日益增强。
+
+恒大被起诉
+
+与此同时，本周，香港两家房地产经纪公司起诉该公司未兑付佣金后，恒大受到了新的打击。
+
+据路透社报道，最近披露的一份诉讼显示，中原地产（Centaline）希望能够从恒大收回546,854美元，而米德兰控股公司（Midland Holdings）要求在香港的两项发展中支付7.6亿美元的未付佣金。
+
+“严重劣势”
+
+在《南华早报》发表的一份分析报告中，牛津经济学院（Oxford Economics）首席经济学家吴宇人（Tommy Wu）概述了恒大最坏情况下可能发生的情况。
+
+“在房地产市场迅速变质的更为严重的下行情景中，或者如果恒大重组中的经济和经济下滑加剧，经济急剧下滑将导致住房需求快速下降。”吴写道。
+
+“房地产开发商的融资成本将增加，融资可能枯竭。
+
+政府可能会采取更重要的措施来调整其对房地产的总体政策立场，并更广泛地限制对整体经济增长的影响。
+
+考虑到我们对中共国铁矿石的依赖，在整个事件中，澳大利亚的投资尤其巨大。
+
+现在，专家们几乎相信，无论恒大的情况如何，我们都会受到特别大的影响，因为中共国房地产行业不太可能很快经历另一轮的繁荣。”
+
+（全文完）
+
+布林肯在访欧期间，布隆伯格急于推出这样的采访，虽然有关内容只占全部采访的极小部分（美国国务院的新闻稿只有103个英文字【2】），但全世界媒体却纷纷报道，并进行了强劲解读。是在给习神施压，还是给世界吹风？明显是美国拜登政府给中共跪下了。
+
+文贵先生早就告诫你们，中共的经济是个怎样的情况，要你们及早脱钩，你们执迷不悟，在暂时的、虚无缥缈的利益诱惑下，怀着惴惴不安的侥幸心理，继续铤而走险。如果说鲍威尔两周前淡化表态，反映的是自欺欺人式的自我安慰，布林肯昨天的言论则有点像“狼来了”的告诫。无论怎样，中共经济是个巨大的泡沫，美国人民的资金是泡沫构成的一部分，泡沫破灭只是时间问题，剩下的就是你们醒悟和如何应对的问题了，恒大问题只是冰山一角！
+
+参考链接：
+
+【1】[https://knews.uk/us-secretary-of-state-antony-blinken-warns-china-evergrande-crisis-could-affect-the-whole-world/](https://knews.uk/us-secretary-of-state-antony-blinken-warns-china-evergrande-crisis-could-affect-the-whole-world/)
+
+【2】[https://www.state.gov/secretary-antony-j-blinken-with-francine-lacqua-of-bloomberg/](https://www.state.gov/secretary-antony-j-blinken-with-francine-lacqua-of-bloomberg/)
