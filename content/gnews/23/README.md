@@ -2,34 +2,34 @@
 ---
 
 
-## 肾衰竭晚期患者因未接种毒针疫苗被拒绝移植手术
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1581659/)
+## 银河快讯：日经股指连续下跌；日本政府额外出售10亿股日本邮政股票
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1581667/)
 
-作者：飞虹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月7日，科罗拉多州一位患有5期肾病，即肾功能衰竭最晚期的女性莱拉尼·卢塔利对媒体表示，因为她与捐赠者杰米·福格纳（Jaimee Fougner）都没有接种新冠病毒疫苗，科罗拉多州的医院拒绝为她们进行肾移植。目前，她们正在努力寻找其他医院。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-22.png)[图片来源](https://www3.nhk.or.jp/)
+**1.****日经指****数****连续第8个交易日下跌**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-3.jpeg)
+[据NHK 10月6日报道，由于对油价上涨引起的企业盈利的担忧，日经股票平均指数与5日相比下跌超过293点，这是自2009年以来近12年来首次出现连续8个交易日的指数下跌。该指数也比上个月14日达到的今年最高水平下跌了8%以上。当日交易量为16.7382亿股。人们还继续担心美国政府可能会出现债务违约，因此出现了强烈的规避风险的行动。](https://www3.nhk.or.jp/news/html/20211006/k10013294191000.html?utm_int=all_side_business-ranking_001)
 
-卢塔利一直在器官移植等待名单中排队。8月份的时候，她还被告知接种新冠疫苗不是接受移植的先决条件。但9月底，她收到了一封来自州卫生联盟（UCHealth）的信件，告诉她相关规定被修改。卫生联盟设定30天的期限要求两人接种，否则将把她们从肾移植名单中删除。
+**2.****日本政府将额外出售10亿股日本邮政股票**
 
-卢塔利用“太多未知因素”暗指新冠疫苗具有危险性，福格纳因为宗教信仰选择不接种。
+[据NHK  10月6日报道，日本政府将额外出售10亿股日本邮政的股票，以筹集资金用于东日本大地震后的重建。这将使政府在日本邮政的股份降至邮政私有化法律要求的最低限度的近三分之一，预计这将是最后一次出售股份。政府目前持有日本邮政约60%的流通股，但这次将出售约27%，或约10亿股。出售的价格尚未决定，但预计收益约为9500亿日元，预计出售将在下月初完成。这次出售有望获得东日本大地震后的重建计划的4万亿日元。](https://www3.nhk.or.jp/news/html/20211006/k10013294531000.html?utm_int=news-politics_contents_list-items_012)
 
-受控政府和主流媒体仅为背后利益代言，事实不被重视反被掩盖，疫苗接种的逻辑变得越来越荒谬；现代医疗科学在共产主义浸泡下，从治病救人演变为压迫与杀戮。
+**3.****日本开发以氨为燃料的发电设备**
 
-只有真相，才能解决重重迷雾掩盖下的种种问题，才能将真正的自由还给世界，还给每一个人。
+[据NHK  10月6日报道，经济产业省宣布，它将从国家基金中投资多达700亿日元，以在2030财年之前开发一种仅使用氨作为燃料的发电设施。虽然氨在燃烧时不产生二氧化碳，但它确实会排放有害的氮氧化物，这是一个问题。日本政府将向严重依赖燃煤发电的其他亚洲国家出口该技术，以帮助减少二氧化碳排放。同时，经济产业省正在与电力公司和贸易公司合作，制定作为发电燃料的氨的国际贸易规则，并加强与天然气生产国的合作，建立一个供应网络。](https://www3.nhk.or.jp/news/html/20211006/k10013295381000.html?utm_int=news-business_contents_news-main_001)
 
-(本文仅代表作者观点)
+**4.****汽油零售价格平均为每升160日元**
 
-参考链接：[Unvaccinated Colorado woman who was denied kidney transplant shares story on ‘Fox & Friends First’](https://www.foxnews.com/media/unvaccinated-woman-colorado-denied-kidney-transplant-hospital)
+[据NHK  10月6日报道，本周普通汽油的零售价格平均为每升160日元，这是连续第五周的价格上涨，比上周上涨1.3日元，是2018年10月以来近三年的最高水平。这主要是由于今年8月底飓风袭击美国南部海岸后，原油期货价格持续上涨。至于未来的前景，石油信息中心表示：“欧佩克和俄罗斯等非成员石油生产国已经决定在下个月保持产量不变，欧洲也有为冬季做准备而增加燃料库存。”](https://www3.nhk.or.jp/news/html/20211006/k10013294231000.html?utm_int=news-business_contents_list-items_010)
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
+**5.****日本最大的劳工机构Rengo的首位女性负责人就职**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[据共同社 10月6日报道，吉野智子成为日本最大的劳工组织Rengo有史以来第一位女性负责人。55岁的吉野来自一个主要代表日本中小型制造商的工会，她的任期为两年，接替领导日本工会联合会的小津力夫。这是自1989年Rengo成立以来，第一次由女性执掌这个拥有约700万会员的组织。吉野说：“我将通过认真听取我们成员的声音来开展我们的活动，以便我们能够创造一个即使在中共病毒蔓延的情况下人们也能继续工作而不用担心的环境。”](https://english.kyodonews.net/news/2021/10/16842d79d04f-japans-largest-labor-body-rengo-gets-1st-female-chief.html)
+
+**6.****永旺的中期业绩：最高的销售额和利润**
+
+[据NHK  10月6日报道，世界上最大的零售商之一永旺报告说，截至8月的6个月的销售额超过4.3万亿日元，创下该时期的最高纪录，并高于中共病毒传播之前的水平。 永旺公布了今年3月至8月的集团财务业绩，营业收入为43,449亿日元，比去年同期增长1.7%，创下了该时期的新高。最终利润为45亿日元，与前一年超过500亿日元的亏损相比，扭亏为盈。](https://www3.nhk.or.jp/news/html/20211006/k10013295291000.html?utm_int=news-business_contents_news-main_002)
+
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：Curiosity

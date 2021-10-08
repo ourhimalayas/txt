@@ -2,15 +2,62 @@
 ---
 
 
-## 2021年10月8日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1581791/)
+## 疫苗公司数以千万计美元游说政府强推疫苗图暴利害人命
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1581806/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/E95HoxUUcAU_A0X_副本.jpg)
+据[2021-10-07 七哥回答战友们的问题：AMD将在纽约上市，背后股东是谁？中共95%肯定要打台湾的；曾家的灾难还没开始，江家一定会付出代价；新加坡的何晶非常聪明；杨洁篪已岌岌可危](https://gtv.org/video/id=615ef95d304e992109b0faaf)时间点1：19：27——
 
-Pfizer is tightly arranging new vaccines to fight the next generation of the CCP Virus for the benefit. But Pfizer scientists admitted on camera that vaccines are not as effective as human natural immune system. Although such reports are backed up by science, they are covered up, censored online, and banned by Big Tech as dangerous misinformation, because they contradict the narratives of the media, medical establishments and big pharmaceutical companies about COVID vaccines.
+说说疫苗，这疫苗兄弟姐妹们，哎呀，太多话了，我都不知道该咋说好，我真不知道该咋说好，太多这方面信息了，你看看加拿大现在有些疯狂，包括现在有些政府制订的所谓的不让你出去呀，大家一定要记住，这个事情它根本你不需要问我。
 
-为了利益，辉瑞仍在紧凑地安排新型疫苗对抗下一代中共病毒。但辉瑞科学家在镜头上承认，疫苗并不比人天然免疫系统更有效。 尽管这类报道是有科学支撑的，但被科技巨头以危险虚假信息的理由封锁，这是因为报道与媒体、医疗机构和大制药公司对疫苗的说法相矛盾。
+就像昨天我跟某国的领导人说那话一模一样，我说你不需要相信我，你也不需要听我的，我不需要任何人的相信，我不需要任何人你听我的。我说，但是我作为朋友，我不跟你说，我觉得我坏良心，我是你的兄弟——多年的兄弟，我只告诉你我所了解的疫苗的它的危害性。兄弟姐妹们，他那个脸是啥样的知道吧？一开始是这样的——
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-16.jpg)
+Miles，说着说着，他的脸——
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-24.jpg)
+就这样了，我说你打了几针？——两针。我给他说完以后，他马上说，兄弟，我跟你放下这个视频，你们继续开，我就去吃药去，我说你把能买的全世界最好的青蒿素你都买了，给你的国家的公民，多买些地塞米松、伊维菌素。
 
-[【2021年10月8日】文贵先生盖特原文](https://gettr.com/post/pdhjy5c675)
+他是一个这么，他多重要我可以告诉大家，他是全世界最起码世界上一把手五个人中之一，它是个常识。我说让你吃的药，全都是你可以查的，他不是我，我又不卖药，我也没有一分利益，我也不需要你给我什么立碑树传，我只是告诉你我的本质。为啥我说大胡子医生厉害呢？大胡子医生说的话、大胡子医生做的事情他是真靠谱、真懂技术，他真付出，他没有任何盈利。
 
-**喜联盟Gnews编辑部**
+我说你们可以不用相信，你不用相信，我只是告诉了你，所以战友们你们知道，就像昨天我跟澳大利亚的一位政府的官员，他每次跟我通电话他都有重大的改变，他说，Miles，现在只有你告诉我，他说在6个月以前你告诉我的时候，你说他们会花钱游说你澳大利亚政府执行疫苗，他说我真的当时是半信半疑的，你说话我都信他，他说但我半信半疑，我不相信澳大利亚政府那么腐败，而且我告诉他，我说这个对你的游说是数以几千万美元上亿美元的。
+
+所以说这个哥们儿很聪明，这个哥们就找他们廉政公署，他说Miles Guo告诉我的，这个药厂如果生产了疫苗是拯救人类的，大家记住，它的疫苗的成本是多少呢？大概在6美分到8美分，卖的价格是19美金到35美金和40美金不等——不同的时期、不同的地方，你想想他有多大的暴利呀，那药厂既然在人类遇到最大危难的时候，发展出了疫苗，拯救人类，是吧？你不应该再花钱去游说别人去救别人去呀！
+
+哪有这个天下说我现在能救你，你在危难之中我得给你钱，让你救我，有人掉到水里了，都快死了，说我要拉你上来，但是我再给你准备上100万，这到底啥？是你把我推下去的？还是你把我拉上来以后有事还有什么事？
+
+我就搞不懂了，为啥疫苗公司全人类不知道病毒哪来的你就生产出疫苗，生产出疫苗呢让别人打，而且你要拿钱游说给别人钱打你的疫苗，然后让政府强制打，你不情愿打，但是打的时候还得让你自己承担责任，他药厂不承担责任，这叫啥疫苗啊？这符合逻辑吗？
+
+最重要的事情，所有的西方天主教、基督教徒根本原则人命天授，老天爷给我的命不属于政府，谁也不是，连父母也没有权利剥夺。是我每个人都有追求幸福、安全、言论自由的美好生活的权利，这是基本人权吧？是吧？——自我表达，追求幸福各种方式的权利。
+
+那我这个药不打总行吧？你就剥夺我的工作，你就不让我坐飞机，你就不让我坐车，那到底你是救我呢还是害我呢？你救我还拿着钱说服政府拿着警察拿着枪来救我，我掉在水里了你来救我，然后叫警察来拿着枪，你必须让我救，谁也不能救必须我救，哪有这种道理？
+
+关键的问题这疫苗，那你干那么多好事，这些媒体得让人家说实话夸你呀，那为啥全球的媒体共同的不让人家被救的人说出来我感谢你的话呢？或者救完以后浑身的感受你也不让人家说。你救了我，你拿着枪让警察强迫救我，我不让你救你就让我没工作，不让我坐飞机、不让我坐火车。
+
+救了我以后还不让我说话，不让我感谢你。不但要救我还得把我孩子也救了，全家都得救了，都得用同样方式救，这天下是什么逻辑呀？如果在这个问题上还有人问到底要不要打疫苗，为什么这么做，这人智商已经有大问题了。就是人这个被洗脑到过到安乐生活和平时期七十年，人类已经不会识好，完全是被别人操纵，那就该可怜了，那你就该出大事儿了！
+
+说我没有工作我咋办呢？你没有工作？你到底是没有命重要呢？还是没有工作重要？说我不能上学，你觉得不能上学重要呢？还是要命重要呢？是吧？——起码的常识。谁给他们的宪法的权力剥夺你上学的权利？美国说CDC呀什么医疗委员会的决定，它哪个决定它也不能剥夺人的生存权利。
+
+希特勒是干什么？上来以后就说犹太人占有他们，1%的犹太人占有他们80%的财富，所以要杀掉他们，当时还立法了呢，还是说把犹太人送到了集中营是送到最美好的地方呢，最后不都去了吗？去的人90%的相信是去到最美好的地方，结果都把人给烧了、给毒死了。现在让犹太人又打针，而且告诉犹太人打了针以后打四针更好、打三针更好。
+
+所以说兄弟姐妹们，这是个常识。
+
+（以下暂略）
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago；
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

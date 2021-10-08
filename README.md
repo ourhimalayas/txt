@@ -15,101 +15,101 @@
 
 ---
 
-### [江泽民当年下令杀令谷,江绵恒和江志成将为此付出代价](/content/gnews/1/README.md)
- ` NewFOC`
-
-### [2021年10月8日 文贵先生盖特 8](/content/gnews/2/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月8日 文贵先生盖特 7](/content/gnews/3/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月8日 文贵先生盖特 6](/content/gnews/4/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [纳瓦罗称他曾两次敦促川普总统解雇福奇](/content/gnews/5/README.md)
- ` HimalayaRussia`
-
-### [2021年10月8日 文贵先生盖特 5](/content/gnews/6/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [沉睡的公卫与疫苗霸凌，可能造成意外事件的急遽攀升](/content/gnews/7/README.md)
- ` G-NEWS TAIWAN`
-
-### [2021年10月8日 文贵先生盖特 4](/content/gnews/8/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [台湾校园施打辉瑞疫苗三天内致两名学生命危](/content/gnews/9/README.md)
- ` 日本东京方舟农场`
-
-### [2021年10月8日 文贵先生盖特 3](/content/gnews/10/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [疫苗公司数以千万计美元游说政府强推疫苗图暴利害人命](/content/gnews/11/README.md)
- ` NewFOC`
-
-### [美国CIA改组，新设中共任务中心](/content/gnews/12/README.md)
- ` 日本东京方舟农场`
-
-### [2021年10月8日 文贵先生盖特 2](/content/gnews/13/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月8日 文贵先生盖特 1](/content/gnews/14/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [爱达荷州副州长趁州长不在时禁止了疫苗护照](/content/gnews/15/README.md)
- ` HimalayaRussia`
-
-### [美国暂停向中共出售核材料](/content/gnews/16/README.md)
- ` 日本东京方舟农场`
-
-### [美国国家安全顾问：美中两国必须负责任地管理“激烈的竞争”](/content/gnews/17/README.md)
- ` 日本东京方舟农场`
-
-### [一艘美国潜艇在太平洋上与不明物体相撞](/content/gnews/18/README.md)
- ` HimalayaRussia`
-
-### [美国部队已秘密训练台湾军队至少一年](/content/gnews/19/README.md)
- ` 日本东京方舟农场`
-
-### [2020年11月23日喜马拉雅农场联盟工作汇报摘要](/content/gnews/20/README.md)
+### [中国工商银行将限制外汇和大宗商品交易](/content/gnews/1/README.md)
  ` 纽约香草山MOS02`
 
-### [银河快讯：岸田与普京首次日俄首脑会谈；疫情经济成为众院选举焦点](/content/gnews/21/README.md)
+### [江泽民当年下令杀令谷,江绵恒和江志成将为此付出代价](/content/gnews/2/README.md)
+ ` NewFOC`
+
+### [2021年10月8日 文贵先生盖特 8](/content/gnews/3/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月8日 文贵先生盖特 7](/content/gnews/4/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月8日 文贵先生盖特 6](/content/gnews/5/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [纳瓦罗称他曾两次敦促川普总统解雇福奇](/content/gnews/6/README.md)
+ ` HimalayaRussia`
+
+### [2021年10月8日 文贵先生盖特 5](/content/gnews/7/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [沉睡的公卫与疫苗霸凌，可能造成意外事件的急遽攀升](/content/gnews/8/README.md)
+ ` G-NEWS TAIWAN`
+
+### [2021年10月8日 文贵先生盖特 4](/content/gnews/9/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [【闲聊澳洲】 江家反习处弱势，中共备战三个月](/content/gnews/10/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [台湾校园施打辉瑞疫苗三天内致两名学生命危](/content/gnews/11/README.md)
+ ` 日本东京方舟农场`
+
+### [2021年10月8日 文贵先生盖特 3](/content/gnews/12/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [疫苗公司数以千万计美元游说政府强推疫苗图暴利害人命](/content/gnews/13/README.md)
+ ` NewFOC`
+
+### [美国CIA改组，新设中共任务中心](/content/gnews/14/README.md)
+ ` 日本东京方舟农场`
+
+### [2021年10月8日 文贵先生盖特 2](/content/gnews/15/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月8日 文贵先生盖特 1](/content/gnews/16/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [爱达荷州副州长趁州长不在时禁止了疫苗护照](/content/gnews/17/README.md)
+ ` HimalayaRussia`
+
+### [美国暂停向中共出售核材料](/content/gnews/18/README.md)
+ ` 日本东京方舟农场`
+
+### [美国国家安全顾问：美中两国必须负责任地管理“激烈的竞争”](/content/gnews/19/README.md)
+ ` 日本东京方舟农场`
+
+### [一艘美国潜艇在太平洋上与不明物体相撞](/content/gnews/20/README.md)
+ ` HimalayaRussia`
+
+### [美国部队已秘密训练台湾军队至少一年](/content/gnews/21/README.md)
+ ` 日本东京方舟农场`
+
+### [银河快讯：岸田与普京首次日俄首脑会谈；疫情经济成为众院选举焦点](/content/gnews/22/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [银河快讯：日经股指连续下跌；日本政府额外出售10亿股日本邮政股票](/content/gnews/22/README.md)
+### [银河快讯：日经股指连续下跌；日本政府额外出售10亿股日本邮政股票](/content/gnews/23/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [肾衰竭晚期患者因未接种毒针疫苗被拒绝移植手术](/content/gnews/23/README.md)
+### [肾衰竭晚期患者因未接种毒针疫苗被拒绝移植手术](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [战友SEC门前抗议第五天 敦促尽早退款](/content/gnews/24/README.md)
+### [战友SEC门前抗议第五天 敦促尽早退款](/content/gnews/25/README.md)
  ` 纽约香草山MOS01`
 
-### [报告：美国特种作战人员秘密训练台军](/content/gnews/25/README.md)
+### [报告：美国特种作战人员秘密训练台军](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美快速攻击潜舰印太海域撞击不明物体](/content/gnews/26/README.md)
+### [美快速攻击潜舰印太海域撞击不明物体](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [美参院再提国债上限， 难逃金融危机寒冬](/content/gnews/27/README.md)
+### [美参院再提国债上限， 难逃金融危机寒冬](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [欧洲议会决议: 与美国合作降低台海紧张局势](/content/gnews/28/README.md)
+### [欧洲议会决议: 与美国合作降低台海紧张局势](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线:洛杉矶县警长拒绝执行疫苗授权](/content/gnews/29/README.md)
+### [秘翻在线:洛杉矶县警长拒绝执行疫苗授权](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [学生接种疫苗后死亡！学校强烈否认](/content/gnews/30/README.md)
+### [学生接种疫苗后死亡！学校强烈否认](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭先生直播：中共95％的可能打台湾，AMD将上市](/content/gnews/31/README.md)
+### [郭先生直播：中共95％的可能打台湾，AMD将上市](/content/gnews/32/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [DC每日热点1008](/content/gnews/32/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [秘翻在线：刚申请在美国上市的“格芯” 被郭先生寄予怎样厚望？](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`

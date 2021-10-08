@@ -2,37 +2,29 @@
 ---
 
 
-## 报告：美国特种作战人员秘密训练台军
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1581617/)
+## 战友SEC门前抗议第五天 敦促尽早退款
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1581645/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/100810.jpg.jpg)图片：来自网络
-**原文作者**：约翰·海沃德  2021/10/07
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-**摘要翻译：**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-2-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-《华尔街日报》（WSJ）周四援引不具名“官员”的话说，一支大约由二十几名美国特种作战和支援部队组成的特遣队已部署到台湾至少一年，以训练台湾同行。这篇报道引起了中共国的强烈反应 ，中共国强烈反对任何数量的美国士兵驻扎在台湾。
+视频参看：2021.10.08早GTV新闻访谈
 
-报道中引用官员的说法将这次训练任务描述为“美国为增强台北建立防御潜在中共国侵略的信心所做的一项微小但具有象征意义的努力”，目的是教台湾人如何充分利用简单易行方法来保护设备，让这些设备在中共国入侵时可能不会立即成为摧毁的目标。
+[https://gtv.org/broadcast/watch/61603962304e992109b1b6fa ​​​​](https://gtv.org/broadcast/watch/61603962304e992109b1b6fa%20​​​​https://www.youtube.com/watch?v=PuCKki7MAzo)
 
-台湾事件爆发时，参议院军事委员会的共和党参议员汤姆.蒂利斯（Thom Tillis ）和众议院外交事务委员会的民主党众议员阿米.贝拉（Ami Bera）正在参加由新闻公司《政客》（Politico）主办的国防论坛. 两人都说他们不知道《华尔街日报》描述的特种作战训练任务，尽管他们都支持这个想法。
+[https://www.youtube.com/watch?v=PuCKki7MAzo](https://gtv.org/broadcast/watch/61603962304e992109b1b6fa%20​​​​https://www.youtube.com/watch?v=PuCKki7MAzo)
 
-中共国不断抱怨美国向台湾大规模出售武器，但对美国在岛上部署的任何军队，无论规模大小，通常都会以夸张的激烈反应来回应。例如，北京在 2019 年对美国驻台湾研究所–美国非官方大使馆–可以受到美国海军陆战队保护的建议感到愤怒。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-**简评：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
 
-做为普通善良的民众都知道战争对民生造成的伤害及后果，但凡可以都会选择没有战争。可中共国军机为什么会频频飞往台湾的防空识别区去挑衅台湾？正如郭先生的话：95%的可能性将会打台湾。这是中共国当局为了转移国内各种爆雷经济事件不得不采取的维护政权的措施之一。如果以美国为主的民主联盟国家的政客能够清醒认识到中共国与台湾的目前现状，并且强烈支持民主台湾的话。那么美军采取什么行动都不为过，派军队驻扎在台湾都是应该的。何况《路透社》此篇报道还只是引用不具名美国“官员”的话说：派二十几人的特战队员去台湾做相应的培训就是太不值得一提的小事。我们希望能更多的宣传中共国对台湾的狼子野心，让更多的民众觉醒去支持民主台湾。
-
-[新闻链接](https://www.breitbart.com/national-security/2021/10/07/u-s-special-operators-taiwanese-forces/)
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*翻译：Brianchow / 校对：Shuibozhuliu*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

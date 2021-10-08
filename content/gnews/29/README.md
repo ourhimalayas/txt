@@ -2,21 +2,32 @@
 ---
 
 
-## 秘翻在线:洛杉矶县警长拒绝执行疫苗授权
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1581507/)
+## 欧洲议会决议: 与美国合作降低台海紧张局势
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1581512/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/epa-5.jpg)
-图片:网路
+作者：云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+欧洲议会于6日，以550票赞成、83票反对、55票弃权，高票通过“展望欧盟—美国关系决议。
 
-据《零对冲》报导，11 月 4 日生效的洛杉矶县的疫苗强制规定成为美国最严格的命令之一，它强制要求任何进入酒吧、餐馆、健身房和其他场所的人，须要出示中共病毒疫苗( COVID-19 )接种证明或阴性测试。它同时也强制要求市政府僱员接种疫苗，导致上个月洛杉矶警察局 12,000 名员工中有 24% 寻求疫苗豁免的宗教或医疗豁免。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-14.jpeg)
 
-警长亚历克斯·维拉纽瓦 (Alex Villanueva) 拒绝执行当地的疫苗强制规定，声称如果这样做，他将面临失去多达 10% 警力的风险。维拉纽瓦表示，在 2020 年 6 月，部分因为“废除警察”的运动，导致警察部门预算被削减了 1.455 亿美元，他已经面临失去数百名警察的困境。而在 2021 年的前六个月凶杀案比去年激增 31% ，强制执行中共疫苗规定将进一步增加警力的负担。
+该决议建议，欧盟与美国应就降低台海紧张局势寻求共识及合作。强调欧盟必须与美国就保护中国少数民族人权、降低南海、东海、香港及台湾海峡紧张情势等议题寻求共识及合作的可能；决议同时指出，欧盟正推行的「印太战略」，应强化与日韩、澳洲、以及台湾等美欧共同民主伙伴所扮演的角色。
 
-维拉纽瓦说： “这就像两个世界中最糟糕的情况，所以我们必须做出选择，”他补充说，如果他颁布洛杉矶市议会10月六日通过的授权，他将“一夜之间”失去 5-10% 的员工。“我不会强迫任何人，”维拉纽瓦说。“问题已经变得政治化。有一整群员工宁愿被解僱，也不愿接种疫苗。”
+台湾外交部对此决议表示欢迎，并感谢欧洲议会再度以具体行动，高度关切台海和平稳定。并称，面对中共的威胁挑衅，台湾将持续与欧盟及美国等理念相近的国家深化合作，共同致力维护印太地区的和平、稳定及繁荣。
 
-维拉纽瓦也拒绝执行强制戴口罩的命令，他坚定地认为戴口罩的命令没有“科学支持”，他不会强制执行。
+(本文仅代表作者观点)
 
-看来，维拉纽瓦是一个有独立思考能力的警长。对于目前全人类都遭受中共病毒疫苗荼毒之际，唯有坚持独立思考、追求真相，才能真正击败那群正在黑暗角落哆嗦惊恐的邪恶势力。
+参考链接：[歐洲議會高票決議 促歐盟與美合作降低台海緊張](https://www.cna.com.tw/news/firstnews/202110085001.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-消息来源:[Los Angeles County Sheriff Refuses To Enforce Vaccine Mandate](http://Los%20Angeles%20County%20Sheriff%20Refuses%20To%20Enforce%20Vaccine%20Mandate)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：FoxRina
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
