@@ -2,27 +2,15 @@
 ---
 
 
-## 一艘美国潜艇在太平洋上与不明物体相撞
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1581727/)
+## 2021年10月8日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1581791/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/U-1.jpg)newsplaneta.com
-美东时间10月8日报道，美国海军“康涅狄格”号核动力潜艇(USS Connecticut)上周在南中国海与一个不明物体相撞。
+Pfizer is tightly arranging new vaccines to fight the next generation of the CCP Virus for the benefit. But Pfizer scientists admitted on camera that vaccines are not as effective as human natural immune system. Although such reports are backed up by science, they are covered up, censored online, and banned by Big Tech as dangerous misinformation, because they contradict the narratives of the media, medical establishments and big pharmaceutical companies about COVID vaccines.
 
-美国海军表示，“该潜艇处于安全和稳定的状态。‘康涅狄格’号的核推进系统和内部空间完好无损，仍然可以完全运作。将对该事件进行调查。”
+为了利益，辉瑞仍在紧凑地安排新型疫苗对抗下一代中共病毒。但辉瑞科学家在镜头上承认，疫苗并不比人天然免疫系统更有效。 尽管这类报道是有科学支撑的，但被科技巨头以危险虚假信息的理由封锁，这是因为报道与媒体、医疗机构和大制药公司对疫苗的说法相矛盾。
 
-彭博社写道，这次碰撞使得潜艇上的11名水手受伤。美国海军称，没有威胁到生命的伤害。目前还不清楚这艘潜艇与什么具体物体相撞。
+[【2021年10月8日】文贵先生盖特原文](https://gettr.com/post/pdhjy5c675)
 
-“康涅狄格”号是一艘海狼级核动力快速攻击潜艇，在1997年下水，1998年服役。
-
-攻击潜艇的用途是发现和摧毁敌方潜艇和水面舰船，利用巡航导弹和特种作战部队向岸上投射武力，执行情报、监视和侦查任务，支持战斗群行动并从事水雷战。
-
-8月，美国开始与英国、日本和澳大利亚在南中国海进行联合演习。作为回应，中共国也进行了类似的演习。10月初，中共向台湾海岸派出38架战机，这是入侵这个未获承认的国家领空的最大数量的战机。
-
-《华尔街日报》早些时候援引美国官员的话报道称，美国已经在台湾与特种部队和海军陆战队秘密进行了一年的训练演习。美国军方正在训练当地部队，以防“中共国侵略”。
-
-参考链接：
-
-[https://www.rbc.ru/rbcfreenews/615f54dc9a79477d4f04b5fd?from=from\_main\_11](https://www.rbc.ru/rbcfreenews/615f54dc9a79477d4f04b5fd?from=from_main_11)
+**喜联盟Gnews编辑部**

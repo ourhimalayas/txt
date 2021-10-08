@@ -2,15 +2,18 @@
 ---
 
 
-## 2021年10月8日 文贵先生盖特 7
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1581855/)
+## ISIS在阿富汗发动自杀炸弹袭击，目前已经造成50人死亡
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1581933/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+翻译：神奇四侠
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Snipaste_2021-10-08_21-01-32.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/Snipaste_2021-10-08_21-04-40.png)
+这次袭击发生在昆都士地区的一座什叶派清真寺，发动袭击时民众正在祈祷。昆都士的文化和信息主任马蒂乌拉-罗哈尼告诉记者，初步证据显示这是一起 “自杀式爆炸袭击”。
 
-10/7/2021 Miles Guo: I persuaded a country’s leader to buy medicines like artemisinin for its citizens; The COVID vaccines are extremely profitable; Although big pharma companies claim to save people, they are paying people to get the jab through lobbying and also have the governments push vaccine mandate; Any decisions made by the CDC cannot deprive the people of their right to survival.
+ISIS声称对此次屠杀至少50名祈祷者的事件负责。
 
-10/7/2021 文贵直播：七哥劝某国领导人给他们国家的公民买青蒿素等药物；冠状病毒疫苗一本万利；大药厂美其名曰救人，但却通过游说、给他人钱去打疫苗并让政府强制接种疫苗；美国疾控中心的任何决定都不能剥夺人们生存的权利！
+- 新闻来源：[太阳报](https://www.thesun.co.uk/news/16368002/jihadi-maniacs-blow-themselves-up-in-friday-prayer-in-afghanistan-killing-100-worshippers/)
+- 图片来源：[太阳报](https://www.thesun.co.uk/news/16368002/jihadi-maniacs-blow-themselves-up-in-friday-prayer-in-afghanistan-killing-100-worshippers/)
 
-[【2021年10月8日】文贵先生盖特原文](https://gettr.com/post/pdj3ul4328)
 
-**喜联盟Gnews编辑部**
+校对发布：Ada （马德里）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

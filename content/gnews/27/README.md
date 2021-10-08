@@ -2,29 +2,35 @@
 ---
 
 
-## 战友SEC门前抗议第五天 敦促尽早退款
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1581645/)
+## 美国部队已秘密训练台湾军队至少一年
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1581714/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
+**撰稿：日本东京方舟农场 北极**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-2-1.png)
-文章仅代表作者本人观点，与Gnews无关
+据华尔街日报10月8日报道，美方披露，两支美国作战部队在台湾秘密训练当地军队至少一年，这是美方加强台湾防御力量的举措之一。
 
-视频参看：2021.10.08早GTV新闻访谈
+透露消息的美国官员们说，驻台部队包括一支特种作战部队和一支美国海军陆战队，属于轮调部署。其中二十几名美国特种作战部队成员正在为台湾陆军小分队进行训练，美国海军陆战队的成员则在与当地海军陆战队合作进行小艇训练。这些官员说，这些美国军人已经在台湾进行了至少一年的军事作业。
 
-[https://gtv.org/broadcast/watch/61603962304e992109b1b6fa ​​​​](https://gtv.org/broadcast/watch/61603962304e992109b1b6fa%20​​​​https://www.youtube.com/watch?v=PuCKki7MAzo)
+报道说，上述特种作战部队和海军陆战队特遣队的部署是美国一项规模不大但具有象征意义的行动，旨在使台湾更有信心加强防御力量防范中共的潜在攻台行动。现任和前任美国政府官员和军事专家认为，加深美国和台湾军事部门之间的联系比单纯向台湾出售军事装备作用更大。
 
-[https://www.youtube.com/watch?v=PuCKki7MAzo](https://gtv.org/broadcast/watch/61603962304e992109b1b6fa%20​​​​https://www.youtube.com/watch?v=PuCKki7MAzo)
+美国官员表示，近年来台湾购买了以十亿美元计的军事硬件，美国应据此进一步帮助台湾增强军事能力，发展自身的防务。美国特种作战部队可以向台湾军队展示如何防御两栖登陆，或为台湾防御工作需要的其他多种行动进行训练。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211008182442.png)图片来自于网络
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+中共声称美国军队的存在违反了华盛顿方面在过去协议中所做的承诺。对此，五角大楼发言人表示，美国国会于1979年通过的《与台湾关系法》(Taiwan Relations Act)中已表明态度，任何威胁台湾人民安全的行为视同威胁西太平洋的和平安定，等同于危及美国利益，必将引起美国“严重关切”，美国会采取“适当行动”。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+此外，川普政府期间曾解密了美国的《印太战略框架》(U.S. Strategic Framework for the Indo-Pacific)。文件中阐明台海局势，“中共会采取越来越强硬的举措迫使两岸统一”；文件建议美国“使台湾能够发展有效的非对称防御战略能力，这将有助于确保台湾的安全、免受胁迫”。该战略还要求进行“具备可靠作战能力的”美国军事部署，以防止中共在包括台湾在内的地区占据主导地位。
+
+据报道，拜登政府官员承认，两届政府在对华政策上存在延续性。
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[美国部队已秘密训练台湾军队至少一年](https://cn.wsj.com/articles/%E7%BE%8E%E5%86%9B%E5%B7%B2%E5%9C%A8%E5%8F%B0%E6%B9%BE%E9%83%A8%E7%BD%B2%E8%87%B3%E5%B0%91%E4%B8%80%E5%B9%B4-%E5%B8%AE%E5%8A%A9%E8%AE%AD%E7%BB%83%E5%BD%93%E5%9C%B0%E9%83%A8%E9%98%9F-11633649709)
+
+[台湾关系法40周年 北京拔不掉的眼中钉](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20190409-%E5%8F%B0%E6%B9%BE%E5%85%B3%E7%B3%BB%E6%B3%9540%E5%91%A8%E5%B9%B4-%E5%8C%97%E4%BA%AC%E6%8B%94%E4%B8%8D%E6%8E%89%E7%9A%84%E7%9C%BC%E4%B8%AD%E9%92%89)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

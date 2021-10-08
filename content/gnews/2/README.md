@@ -2,49 +2,19 @@
 ---
 
 
-## 洛杉矶县警长拒绝执行疫苗命令
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1581932/)
+## 中共在台湾附近军事基地部署新型电子战斗机
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1581975/)
 
-作者：纽约香草山美食部 – 蓝天大海
+撰稿：西枫westca
 
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/10/0A98778704E8A65A89013CD1C97F4446801E7263_size39_w1080_h720.jpeg)图片来源：mil.ifeng.com
+据马拉西亚星报10月8日报道， 中共已将引入更多电子对抗设备的新型J-16D战斗机部署在台湾附近的一个东部空军基地。据卫星图像显示，在浙江和江西的两个军事基地都有部署J-16D战斗机。这两个空军基地都由负责监督台湾海峡的中共东部战区司令部管理。
 
+自上周以来，中共有近80架战机进入台湾的防空识别区，包括了轰-6轰炸机，歼-16战斗机、反潜机和空中预警机，促使台湾战机紧急起飞。一位来自中共军方的匿名人士证实，J-6D已经部署在空军基地且基地已经投入使用。他还说，台湾附近的军事活动激增是“战备训练的一部分：这强化了中共最终可能武力攻台的警告。来自国防杂志主编Andrei Chang表示，中共军队的空中入侵升级意味着有更多的台湾战机升空，这增加了碰撞的机会，因为没有任何交战规则。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
+中共军队近期在台海间的频繁的军事行动，反映出中共国越来越不掩饰地发出要吞并台湾的信号。“本是同根生，相煎何太急”，道出了人间最大的悲剧莫过于骨肉相残。推翻中共政权是人类的正义需要。
 
+**新闻来源：**
 
-
-据零对冲10月8日报道，洛杉矶县警长亚历克斯-维兰纽瓦（Alex Villanueva）拒绝执行当地政府下达的关于新冠疫苗强制接种的命令。警长表示，如果按照政府的疫苗接种要求，警局可能会失去多达10%的员工。他还提到，该县今年前6个月的凶杀案比去年同期激增了31%；而从去年6月开始，警局的经费已经被削减了1.455亿美元，倘若加上执行政府疫苗任务的额外负担，这将进一步削弱警队。
-
-![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/081021sheriff1.jpg?itok=2rz6Et6w)图片来源：零对冲
-
-维兰纽瓦警长表示：“我不会强迫任何人接种新冠疫苗，也不会强制他们戴口罩。疫苗问题现在已经变得政治化。再者，有一部分员工已经表示，他们宁愿被解雇或者被辞职，也不会去接种疫苗。”警长强调，疫苗强制接种命令没有科学依据支持，他不会执行。
-
-据悉，洛杉矶县将于11月4日开始执行全国最严历的新冠疫苗接种命令，该地区将强制任何希望进入酒吧、餐馆、健身房或其他场所的民众出示COVID-19疫苗接种证明或阴性测试结果。该命令还强制要求市政府雇员接种疫苗。
-
-而今，在反对新冠疫苗的声浪中，世界各地的民众正在觉醒，其中也包括了一些官员和警察——这支队伍正在变得越来越壮大。相信结束强制接种新冠疫苗的日子不远了。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-[Los Angeles County Sheriff Refuses To Enforce Vaccine Mandate](https://www.zerohedge.com/political/los-angeles-county-sheriff-refuses-enforce-vaccine-mandate)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+[China’s new J-16D fighter jet has been deployed to an eastern airbase near Taiwan | The Star](https://www.thestar.com.my/aseanplus/aseanplus-news/2021/10/08/chinas-new-j-16d-fighter-jet-has-been-deployed-to-an-eastern-airbase-near-taiwan)

@@ -2,38 +2,47 @@
 ---
 
 
-## 江泽民当年下令杀令谷,江绵恒和江志成将为此付出代价
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1581895/)
+## 特鲁多禁止未接种疫苗的人出国和谋生
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1581972/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/cachedImage-3-1536x864_副本.jpg)
-据[2021-10-07 七哥回答战友们的问题：AMD将在纽约上市，背后股东是谁？中共95%肯定要打台湾的；曾家的灾难还没开始，江家一定会付出代价；新加坡的何晶非常聪明；杨洁篪已岌岌可危](https://gtv.org/video/id=615ef95d304e992109b0faaf)时间点1：36：08——
+蒙特利尔皇家山战友团 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4855bacca3fb37df9a8f4cdb1cdd79c2.jpg)图片来源： Yahoo Movie Canada
+Justice Centre for Constitutional Freedoms （宪法自由正义中心）10月7日报道, 正义中心今天对联邦政府宣布未接种疫苗的加拿大人将失去在加拿大境内自由移动和旅行的权利、离开加拿大的权利以及不受歧视地谋生和参与社会的权利作出回应。
 
-（念战友留言）——七哥，江家会反击吗？
+“政府正在寻求让100%的加拿大人注射实验性的mRNA疫苗，这种疫苗还没有经过任何长期的人体测试”，正义中心主席约翰-卡佩律师说。
 
-哎！可以这么说吧，他反击的机会越来越渺茫了，江——如果他要是江家当年弄死令计划的儿子，弄死令计划的儿子，（对工作人员说，你让他给他联系一下，你让他直接联系他，好吧？）所以说兄弟姐妹们，你知道当年我见过风水先生，我说共产党干掉了令计划的儿子，干掉令谷以后，他们会是带来什么样的代价，他说颠倒乾坤，我说到底是江家干的，还是那个谁家干的，咱就不说吧，他说绝对是江家干的。
+由于加拿大和美国的陆地边界关闭非必要的旅行，Covid-19疫苗旅行任务将有效地阻止未接种疫苗的人以任何方式离开加拿大。除了剥夺未接种疫苗的加拿大人乘坐飞机或火车旅行的权利外，联邦政府还宣布，联邦雇员和承包商将失去工作，除非他们参加世界范围的新mRNA疫苗实验。
 
-我说好，我说我从来不相信你们这些风水大师们，从来不信，但是我问因为你能佐证我的正确性与不正确，我说你给我预测预测，其中就有预测一个，他说江家的孙子江志成活不长。我说为什么，他说江家这次动手干掉令谷，下的命令就是老江干的，而且江家儿子江绵恒还有他的孙子江志成都将为此付出代价，他说这就是轮回报应。
+“我们最近承诺，在去年夏天，一旦70%的加拿大人注射了mRNA，生活就会恢复正常。这一高接种率已经实现，但并没有阻止病毒的传播。新的mRNA疫苗也没有提供对Delta变体的保证”，卡佩律师继续说道。
 
-所以江志成这小子只谈恋爱不结婚，而且这小子生活中你见过这个人，叫毛毛，绝对他长不了，所以最后江家如何为此付出代价，就现在他看来他的机会，他越来越没有机会了，江是不行，他是个象征性的，江绵恒、江绵康、江志成在军队的势力是巨大的，但是我觉得越来越渺茫。
+据媒体报道，总理特鲁多宣称，需要对未接种疫苗的加拿大人采取这些歧视性措施，以保证人们的 “安全”，包括儿童。
 
-（以下暂略）
+“来自加拿大各省以及世界各国的政府数据和统计资料告诉我们，儿童、青少年和年轻人没有面临科威德的严重威胁，这使得总理关于拯救儿童的言论具有很大的误导性，”卡佩先生继续说道。
 
-撰稿：喜马拉雅的肉夹馍；
+“医学报告和科学研究清楚地表明，接种疫苗和未接种疫苗的人都会传播Covid-19。将未接种疫苗的加拿大人变成二等公民没有任何科学依据”，正义中心工作人员律师Allison Pejovic说。
 
-审核：喜马拉雅的馍夹肉；
+目前，加拿大各省和联邦政府接受两次注射就可以获得 “完全 “的疫苗接种资格。但是，这可能很快就会改变，要求进行三次、四次甚至更多的注射，以保持一个人 “完全 “接种疫苗的合法地位，这在以色列和荷兰已经得到证明。
 
-校对：Maarago；
+历史上，各国政府都利用 “科学 “的概念来支持他们的政策，以及对公共卫生、安全、安保、道德等方面的各种呼吁。没有一个政府会在不提出好听的理由的情况下侵犯人权，例如对恐怖主义、共产主义、网上仇恨、毒品或讨厌的病毒的战争”，卡佩律师说。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+政府自己的数据和统计资料告诉我们，Covid比起1918年的西班牙流感，更接近于年度流感。这一点很重要，因为整个世界被帝国学院的尼尔-弗格森博士的可怕预测置于恐慌之中，他在2020年3月声称Covid将像1918年的西班牙流感一样，杀死数千万人。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+“加拿大的疫苗护照，以及头等和二等公民身份的设立，都是建立在尼尔-弗格森关于Covid是一个异常致命的杀手的明显错误说法之上，”卡佩律师说。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+“Covid是真实的，但对Covid的恐惧被疯狂地夸大了。在过去的18个月里，政府资助的媒体非常成功地说服了大多数人，疫苗护照（以及之前的禁闭政策）是基于科学的。当人们听到一个信息成千上万次，他们就会相信它是真的，”卡佩律师继续说道。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+“另司法中心深感不安的是，联邦授权将阻止未接种疫苗的加拿大人离开该国。这种授权是对加拿大人受宪法保护的流动权利的恶劣和不可接受的侵犯”。Pejovic女士总结说：”这没有任何科学依据“。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+政府对公民自由的这些新限制在现阶段仍然是公告，议会没有通过任何法律，也没有通过内阁条例（Order-in-Council）的方式。因此，目前不可能有任何法律挑战。如果政府打算实施这些疫苗旅行授权并赋予其法律效力，那么这些政策就可以在法庭上受到质疑。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+特鲁多政府强制疫苗的高压政策会引起各界的反抗，但愿在法律层面会被制止，我们密切关注事态发展。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+原文链接：
+[https://www.jccf.ca/trudeau-bans-the-unvaccinated-from-leaving-the-country-and-from-earning-a-living/](https://www.jccf.ca/trudeau-bans-the-unvaccinated-from-leaving-the-country-and-from-earning-a-living/)
+
+* * *
+
+发稿 Spirit
+
+
+![]()
