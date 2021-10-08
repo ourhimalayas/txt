@@ -2,31 +2,227 @@
 ---
 
 
-## 有声|中共国的“一带一路”倡议面临越来越多参与国的反对
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1579981/)
+## 中共外交部的三大重要功能
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580016/)
 
-配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/51-a71ie-wzywl.jpg)
+[https://gtv.org/video/id=615f354dd2e2b817487259a1](https://gtv.org/video/id=615f354dd2e2b817487259a1)
 
-据[零对冲](https://www.zerohedge.com/geopolitical/chinas-belt-and-road-faces-growing-opposition-participating-countries-debts-mount)10月5日报道，威廉和玛丽全球研究所研究实验室AidData最近的一项研究显示，由于参与国与中共国项目有关的债务不断增加，中共国的“一带一路”倡议正面临着参与国越来越多的反对。根据AidData的报告，42个低收入和中等收入国家对中共国的公共债务风险超过其国内生产总值（GDP）的10%。
+**郭文贵
+Miles Guo**
 
-作为中国共产党全球扩张和债务陷阱外交的工具，“一带一路”向发展中国家提供用于建设基础设施的巨额贷款。参见项目包括开发道路、港口、发电厂、矿山、电信或银行机构。这些往往无法偿还的贷款将迫使这些国家用货物或土地来偿还中共国。
+外交部代表共产党
+El Ministerio de Relaciones Exteriores representa al Partido Comunista
 
-该研究分析了过去18年来中国在超过165个国家支持的13427个项目，这些项目的总价值达到了8430亿美元。其中，35%的“一带一路”项目涉及执行问题，如腐败丑闻、违反劳工法、环境危害和公众抗议。
+代表任何政府发言
+Enuncia en nombre del cualquier gobierno
 
-近年来，参与国也出现了许多暂停和取消的情况。越来越多的中低收入国家的政策制定者因为项目定价过高、腐败和债务可持续性问题而放弃参与。
+它是个最小的功能
+Es su función más pequeña
 
-这些参与国都希望通过这些项目发展经济，但是太多的例证显示，非但没有使国家变得繁荣，反而深陷债务危机，在政治经济上被中共所控制。
+它是代表官方的立场
+Él representa a la posición oficial
 
-文字版原文：[中共国的“一带一路”倡议面临越来越多参与国的反对](https://gnews.org/zh-hans/1577795/)
+国家的, 民族的
+La nación
 
-音频处理：喜山必胜Maverick
+形象和对国际事件的态度
+La figura y el actitud ante los eventos internacionales
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+它有一套专用的
+Tiene un conjunto especializado
+
+这是你看到的, 还有签证
+Esto es lo que tú ves, también está la visa
+
+公民保护, 这是最简单的
+Esto es lo más fácil, la protección ciudadana
+
+还有两个最特殊的功能
+También hay dos funciones más especiales
+
+第一个功能
+La primera función
+
+外交部是真正的
+El Ministerio de Relaciones Exteriores es realmente
+
+一个国家对外的
+El departamento de inteligencia legal
+
+合法的情报部
+De un país
+
+你不要说中共国
+No digas el Partido Comunista de China
+
+美国派出的情报人员
+Estados Unidos ha enviado la mayor cantidad de
+
+到大陆是最多的
+Personal de inteligencia a China
+
+一个北京
+Uno a Beijing
+
+一个香港, 加一起将近一万人
+Uno a Hong Kong, sumando todo esto casi son 10 mil de personas
+
+最重要的东西就是情报
+El asunto más importante son las informaciones
+
+合法的情报
+Informaciones legales
+
+所以它有武官呐
+Por eso tiene oficiales militares
+
+参赞呐, 文化参赞呐
+Consejero, Consejero Cultural
+
+都是假的
+Son falsos
+
+全都是情报, 都是情报
+Todo son informaciones
+
+这是明面的
+Esto es lo superficial
+
+更有一个隐形的
+Hay uno que es invisible
+
+它有一个按(体制)
+Tiene un sistema
+
+叫什么武官呐
+Lo que llaman oficiales militares
+
+安全官呐
+Oficial de seguridad
+
+看上去是表面的
+Son superficiales
+
+事实上全部都是绑架
+De hecho, todo son secuestros
+
+抓人, 杀人, 合法的杀手
+Arrestros, matanza y asesinos legales
+
+哪国都有
+En cualquier país lo hay
+
+没有一个国家没有的
+No hay ninguno que no haya
+
+开启者是美国和英国
+El iniciador fue EE. UU y Reino Unido
+
+所以大使馆就是
+Por eso la embajada
+
+代表国在国土
+Representa el país
+
+大使馆的土(地)
+La tierra de la embajada
+
+是跟国家兑换来的
+Es intercambiado por el país
+
+这个国土
+Este país
+
+这个土地上
+En esta tierra
+
+就是我的国家的国土
+Lo que es la tierra de mi país
+
+它就是战争
+Es una guerra
+
+它就是代表国家意志的
+Representa la voluntad del país
+
+第三个大家可能还不知道的
+El tercero, tal vez ustedes no lo saben
+
+所有的黑社会
+Toda la delincuencia organizada
+
+在这个国家的黑社会
+La delincuencia organizada de este país
+
+到别的国家都是白社会
+Al pasar para otros países son delitos de guante blanco
+
+走私、毒品、绑架
+Contrabando, drogas, secuestro
+
+履行外交权力
+Ejercer el poder diplomático
+
+把这个人怎么弄回去
+Cómo hacer para enviar a esta persona
+
+你只要进了大使馆了
+Si tan sólo entras a la embajada
+
+你不能动了
+No podrás moverte
+
+就像那个瞎子
+Así como ese ciego
+
+叫什么陈什么成一样
+Llamado tal Chen o Cheng
+
+它就玩这个游戏嘛
+Él se divierte con este tipo de juego
+
+就是反正到美国是
+De todos modos llegar a EE. UU es
+
+跟那个当年民主民运
+Al igual que el movimiento democrático de aquel momento
+
+我说过林强抓了以后
+Yo dije que Lin qiang luego de ser arrestado
+
+送到机场说再见了林强
+Cuando lo llevamos hasta el aeropuerto y nos despedimos de él
+
+去美国吃牛排啰, 就是
+Vaya a comer bistec en EE. UU
+
+因为美国人把他送走
+Porque si los estadounidenses lo enviaron lejos
+
+你是不能碰他
+No lo puedes tocar
+
+这叫外交包, 外交飞机
+A esto lo llamamos paquete diplomático, avión diplomático
+
+这是合法的
+Esto es legal
+
+黑社会变白社会
+La delincuencia organizada es convertida en delitos de guante blanco
+
+——————————————————
+
+**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1445260353701511171?s=24](https://twitter.com/se1y7cblljselva/status/1445260353701511171?s=24)
+
+西听校: 洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 文霙
+字幕+视频制作: 洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 :洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -15,110 +15,110 @@
 
 ---
 
-### [有声| 白宫国安顾问苏利文会晤杨洁篪](/content/gnews/1/README.md)
- ` MOSREC`
+### [秘翻在线:美国今年冬天会停电?](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [东京发生5级以上地震,交通影响仍在再继续](/content/gnews/2/README.md)
+### [“十一”消费数据：后疫情消费反弹与红色宣传洗脑集中展现](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声| 黑客窃取并公布了亚马逊Twitch源代码等关键数据](/content/gnews/3/README.md)
+### [有声| 白宫国安顾问苏利文会晤杨洁篪](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [“真相工程”发布系列视频揭露中共病毒的真相](/content/gnews/4/README.md)
+### [东京发生5级以上地震,交通影响仍在再继续](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声| 黑客窃取并公布了亚马逊Twitch源代码等关键数据](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [“真相工程”发布系列视频揭露中共病毒的真相](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [傅政华出来替民营企业护航，简直是天下最大的讽刺！](/content/gnews/5/README.md)
+### [傅政华出来替民营企业护航，简直是天下最大的讽刺！](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [超过20家虚拟币相关企业退出中共国](/content/gnews/6/README.md)
+### [喜迎喜币上市有感](/content/gnews/8/README.md)
+ ` 纽约香草山MOS03`
+
+### [超过20家虚拟币相关企业退出中共国](/content/gnews/9/README.md)
  ` 纽约香草山MOS01`
 
-### [加拿大即将对12岁以下儿童接种中共病毒疫苗](/content/gnews/7/README.md)
+### [加拿大即将对12岁以下儿童接种中共病毒疫苗](/content/gnews/10/README.md)
  ` 军迷wilson`
 
-### [欧盟通过决议，必须与美国合作遏制中共威胁](/content/gnews/8/README.md)
+### [欧盟通过决议，必须与美国合作遏制中共威胁](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [与英特尔竞争加剧，AMD推出“米兰”芯片](/content/gnews/9/README.md)
+### [与英特尔竞争加剧，AMD推出“米兰”芯片](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本汽油价格已连续5周上涨，达到3年来高位](/content/gnews/10/README.md)
+### [日本汽油价格已连续5周上涨，达到3年来高位](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [众议员肯·巴克:习主席准备入侵 台湾的事实正在显露](/content/gnews/11/README.md)
+### [众议员肯·巴克:习主席准备入侵 台湾的事实正在显露](/content/gnews/14/README.md)
  ` 美国政要直译推`
 
-### [“豆腐渣”工程的秘密之二（体制篇）](/content/gnews/12/README.md)
+### [“豆腐渣”工程的秘密之二（体制篇）](/content/gnews/15/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [维多利亚州新增确诊病例再创纪录](/content/gnews/13/README.md)
+### [维多利亚州新增确诊病例再创纪录](/content/gnews/16/README.md)
  ` 走进澳洲`
 
-### [雅典娜时报-第075期](/content/gnews/14/README.md)
+### [雅典娜时报-第075期](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳大利亚：周一开始为“免疫功能低下者”注射加强针](/content/gnews/15/README.md)
+### [澳大利亚：周一开始为“免疫功能低下者”注射加强针](/content/gnews/18/README.md)
  ` 走进澳洲`
 
-### [恒大的命运威胁着中共国影子银行系统](/content/gnews/16/README.md)
+### [恒大的命运威胁着中共国影子银行系统](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [曾家公司竟然债务违约，中共最高层开撕了？](/content/gnews/17/README.md)
+### [曾家公司竟然债务违约，中共最高层开撕了？](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国核潜艇在南海击中水下物体](/content/gnews/18/README.md)
+### [美国核潜艇在南海击中水下物体](/content/gnews/21/README.md)
  ` 象声`
 
-### [2021年10月07日澳喜要闻（每日更新）](/content/gnews/19/README.md)
+### [2021年10月07日澳喜要闻（每日更新）](/content/gnews/22/README.md)
  ` 澳喜农场`
 
-### [中共政府要求天然气进口商承担高昂成本以解决能源危机](/content/gnews/20/README.md)
+### [中共政府要求天然气进口商承担高昂成本以解决能源危机](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [GlobalFoundries申请美国IPO](/content/gnews/21/README.md)
+### [GlobalFoundries申请美国IPO](/content/gnews/24/README.md)
  ` 象声`
 
-### [世界正在目睹由血栓引起的N-STEMI心脏病大流行](/content/gnews/22/README.md)
+### [世界正在目睹由血栓引起的N-STEMI心脏病大流行](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [与中共国的战争4：澳洲前线与排华浪潮](/content/gnews/23/README.md)
+### [与中共国的战争4：澳洲前线与排华浪潮](/content/gnews/26/README.md)
  ` 走进澳洲`
 
-### [索罗斯正从股票中套现，并将部分资金投入加密货币](/content/gnews/24/README.md)
+### [索罗斯正从股票中套现，并将部分资金投入加密货币](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [拜登说，他和习近平同意遵守有关的台湾协议](/content/gnews/25/README.md)
+### [拜登说，他和习近平同意遵守有关的台湾协议](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共病毒及其疫苗灾难对旅日华人有潜在的巨大危害](/content/gnews/26/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [中共全面封杀！超20家涉币企业宣布退出中国市场](/content/gnews/27/README.md)
+### [中共全面封杀！超20家涉币企业宣布退出中国市场](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一剂疫苗获利20美金——生命是如此之轻](/content/gnews/28/README.md)
+### [一剂疫苗获利20美金——生命是如此之轻](/content/gnews/30/README.md)
  ` 秘密翻译组-原创组`
 
-### [山西27座煤矿停产！今冬煤电雪上加霜](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共停电的目的是打垮美元和美股](/content/gnews/30/README.md)
+### [中共停电的目的是打垮美元和美股](/content/gnews/31/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共外交部的三大重要功能](/content/gnews/31/README.md)
+### [中共外交部的三大重要功能](/content/gnews/32/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|中共国的“一带一路”倡议面临越来越多参与国的反对](/content/gnews/32/README.md)
+### [有声|中共国的“一带一路”倡议面临越来越多参与国的反对](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [有声|索罗斯继续抛售股票 将部分资本投入加密货币](/content/gnews/33/README.md)
+### [有声|索罗斯继续抛售股票 将部分资本投入加密货币](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [中国留学生教堂纵火,国人须慎行防排华!](/content/gnews/34/README.md)
+### [中国留学生教堂纵火,国人须慎行防排华!](/content/gnews/35/README.md)
  ` GTV新闻访谈`
-
-### [中共国正面临经济危机，或已陷入危机之中](/content/gnews/35/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [各大媒体热炒布林肯对恒大的反应](/content/gnews/36/README.md)
  ` HimalayaRussia`

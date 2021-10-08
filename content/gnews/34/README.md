@@ -2,29 +2,30 @@
 ---
 
 
-## 中国留学生教堂纵火,国人须慎行防排华!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579948/)
+## 有声|索罗斯继续抛售股票 将部分资本投入加密货币
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1579970/)
 
-栏目记者/责任编辑：文龍
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-102.png)
-美国阿拉巴马州当地媒体10月5号报道,  第一浸信会教堂是 阿拉巴马州蒙哥马利市地标建筑，该教堂9月29日晚遭人纵火, 内部一些设施遭烧毁。当地执法机关依据教堂内部监视器录像追踪涉案人，将来自中国的留学生严晓琴(音译，Xiaoqin Yan)逮捕，嫌犯目前收押在蒙市拘留所，等候接受调查起诉。
+配音：香草山美食部-玫瑰园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9-1.jpeg)
 
-法庭文件显示, 嫌犯严晓琴今年27岁，是一名来自中国的留学生，检察官贝利已将其留学生签证取消，并提高了原定3万美金的保释金，以防止嫌犯弃保潜逃,因为该案在当地引起轩然大破, 民众愤怒不已! 但嫌犯纵火焚烧教堂的动机尚未公布。
 
-在病毒及疫苗真相正在揭晓的当下, 爆料革命也在警示全球各地华人，一定慎言慎行，在传播真相的同时告知周遭,  中共不代表中国人，中国人不都是共产党 ! 与此相对应,  任何违背当地法律法规，支持中共邪恶政权，甚至给当地人文或环境带来威胁/损害的言行，都有可能引发并酿成 严重的排华事件。本台将关注这一事件的后续报道。
+近日全球股市低迷，美股指数集体下挫，虽昨日有所回升，但脸书事件再度领跌科技股。周二的彭博投资全球虚拟会议上，气氛似乎更加悲观。位于多伦多的布鲁克菲尔德（Brookfield）资管公司管理着6260亿美元，其首席执行官布鲁斯（Bruce Flatt）说，现在是清算资产的好时机，我们已经变现了很多资产，今年还会继续。
 
-(本文仅代表作者观点)
+索罗斯家族基金握有资产达270亿美元，信息主管道恩·菲茨罗伊（ Dawn Fitzpatrick） ，在接受采访时也表示，她一直在出售资产，并表明索罗斯避免在中共国投资的真正原因是钱会很快消失。索罗斯在8月底清仓中概股，并于近日在媒体专栏文章中直言不讳的批评，向中共国投资是一个悲剧性的错误。
 
-参考链接：[Arrest made in arson at First Baptist Church Montgomery](https://thealabamabaptist.org/arrest-made-in-arson-at-first-baptist-church-montgomery/)
-[中国留学生纵火烧毁百年教堂被捕](https://www.sinchew.com.my/20211007/中国留学生涉嫌纵火192历史教堂遭被捕/)
-[清秀中國女留學生縱火燒美國200年教堂 友人：她不知受了什么刺激](https://lihkg.com/thread/2727354/page/1)
+另外值得注意的是，索罗斯是继亿万富翁史蒂夫·科恩（Steve Cohen）和传奇投资人丹·洛布之后，最新进入加密货币领域的对冲基金大佬。
 
+道恩指出，加密货币已经成为主流。巧合的是，HCOIN即将于10月上市，它是唯一以黄金为锚，同时对接稳定币的加密货币。显而易见，各方资本跃跃欲试，正在为此做着准备。
+
+全世界的”沼泽地”不论黑白，“资本嗅觉“极其灵敏。索罗斯曾是中共最早的投资者和支持者之一，在资本力量的驱动下，一直在权衡并调整方向。新中国联邦通过揭露病毒疫苗真相和建立的喜联储，将以实力赢得更多话语权，推动各方势力转向。
+
+文字版原文：[索罗斯继续抛售股票 将部分资本投入加密货币](https://gnews.org/zh-hans/1577068/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-终审：文龍
-校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -33,3 +34,4 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
++2

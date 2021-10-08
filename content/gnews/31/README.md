@@ -2,226 +2,165 @@
 ---
 
 
-## 中共外交部的三大重要功能
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580016/)
+## 中共停电的目的是打垮美元和美股
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580019/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/51-a71ie-wzywl.jpg)
-[https://gtv.org/video/id=615f354dd2e2b817487259a1](https://gtv.org/video/id=615f354dd2e2b817487259a1)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/aii18-iytb4.jpg)
+[https://gtv.org/video/id=615f36a5d2e2b81748725a0d](https://gtv.org/video/id=615f36a5d2e2b81748725a0d)
 
 **郭文贵
 Miles Guo**
 
-外交部代表共产党
-El Ministerio de Relaciones Exteriores representa al Partido Comunista
+记住啊
+Recuerden
 
-代表任何政府发言
-Enuncia en nombre del cualquier gobierno
+咱是有时间的
+Nosotros tenemos tiempo
 
-它是个最小的功能
-Es su función más pequeña
+咱不是没时间, 咱有时间的
+No es que no lo tengamos, si tenemos
 
-它是代表官方的立场
-Él representa a la posición oficial
+这不会
+Esto no…
 
-国家的, 民族的
-La nación
+如果2025年灭不了共的话
+Si en el 2025 no podemos derribar al Partido Comunista
 
-形象和对国际事件的态度
-La figura y el actitud ante los eventos internacionales
+七哥也不会再去灭共了
+Entonces no lo haré más
 
-它有一套专用的
-Tiene un conjunto especializado
+你们也不会再看到七哥, 真的
+Tampoco me verán más, estoy hablando en serio
 
-这是你看到的, 还有签证
-Esto es lo que tú ves, también está la visa
+这个什么事都可能发生
+Puede suceder cualquier cosa
 
-公民保护, 这是最简单的
-Esto es lo más fácil, la protección ciudadana
+我不会再
+No seguiré
 
-还有两个最特殊的功能
-También hay dos funciones más especiales
+2025年如果是共产党还存在的话
+Si en 2025 el Partido Comunista todavía existe
 
-第一个功能
-La primera función
+你们不会再看到七哥
+No me verán más
 
-外交部是真正的
-El Ministerio de Relaciones Exteriores es realmente
+但是我是不会的
+Pero esto no sucederá
 
-一个国家对外的
-El departamento de inteligencia legal
+2025年绝对是
+En el año 2025 es definitivamente
+我是2015年
+En el año 2015
 
-合法的情报部
-De un país
+我跟刘延平联系, 国内的人跟我联系, 我都说过
+Me contacté con Liu Yanping, la persona que estaba en China se comunicó conmigo y yo dije
 
-你不要说中共国
-No digas el Partido Comunista de China
+我等你们十年, 我都等死你们
+Los esperaré diez años, hasta la muerte los esperaré
 
-美国派出的情报人员
-Estados Unidos ha enviado la mayor cantidad de
+不是我今天说的
+No lo dije hoy
 
-到大陆是最多的
-Personal de inteligencia a China
+我不相信共产党能过2025年
+Yo no creo que el Partido Comunista pueda pasar el año 2025
 
-一个北京
-Uno a Beijing
+这个是有时间限制的
+Esto habrá un tiempo limitado
 
-一个香港, 加一起将近一万人
-Uno a Hong Kong, sumando todo esto casi son 10 mil de personas
+另外一个, 就刚才说这个共产党的停电
+Otra cosa, lo que estaba hablando hace rato sobre el apagón del Partido Comunista
 
-最重要的东西就是情报
-El asunto más importante son las informaciones
+是不是跟世界经济
+Si tiene relación con la economía mundial
 
-合法的情报
-Informaciones legales
+为啥我说这个世界经济会跟这个共产党停电有关系
+Por qué digo entre ellos tienen relación
 
-所以它有武官呐
-Por eso tiene oficiales militares
+大家没有
+Ustedes
 
-参赞呐, 文化参赞呐
-Consejero, Consejero Cultural
+昨天你那个数里边没算
+No contaron los datos de ayer
 
-都是假的
-Son falsos
+就你那些都是所谓的官方统计数据
+Los supuesto datos oficiales que tú dices
 
-全都是情报, 都是情报
-Todo son informaciones
+你绝对要记住
+Debes recordar
 
-这是明面的
-Esto es lo superficial
+七哥从一开始爆料就说
+Yo desde el principio del Movimiento de Denunciantes dije
 
-更有一个隐形的
-Hay uno que es invisible
+如果你相信了任何一个共产党对着镜头和对着人
+Si crees en cualquier persona del Partido Comunista que habla frente a la cámara y a las personas
 
-它有一个按(体制)
-Tiene un sistema
+说出的话和公开的表格和数据
+Acerca de los formularios y los datos públicos
 
-叫什么武官呐
-Lo que llaman oficiales militares
+那你就是天下最愚蠢的傻子
+Entonces eres el tonto más estúpido del mundo
 
-安全官呐
-Oficial de seguridad
+共产党的那些, 所有的, 现在今天干的事情
+Todas las cosas que ha hecho y que hizo hoy en día el Partido Comunista
 
-看上去是表面的
-Son superficiales
+他只有两个目标大家没搞明白
+Simplemente tiene dos objetivos que ustedes no lo han entendido todavía
 
-事实上全部都是绑架
-De hecho, todo son secuestros
+一切都是为了干倒美元, 干倒欧元而干的
+Todo es para destrozar al dólar estadounidense y el euro
 
-抓人, 杀人, 合法的杀手
-Arrestros, matanza y asesinos legales
+共产党所有干的事情就是杀敌一千
+Todo lo que ha hecho el Partido Comunista
 
-哪国都有
-En cualquier país lo hay
+自伤一万, 我也得干
+Por matar a mil enemigos pueden sacrificar diez mil de los suyos
 
-没有一个国家没有的
-No hay ninguno que no haya
+我断我九指
+Me corto nueve dedos
 
-开启者是美国和英国
-El iniciador fue EE. UU y Reino Unido
+我断你一指
+Corto uno del tuyo
 
-所以大使馆就是
-Por eso la embajada
+我也得干
+Aún así lo tengo que hacer
 
-代表国在国土
-Representa el país
+我都变成九指妖了, 我也认了
+Y si me convierto en Sara Wei, lo asumiré
 
-大使馆的土(地)
-La tierra de la embajada
+所有的现在想了美国和中美之间
+Toda la relación entre EE. UU y China
 
-是跟国家兑换来的
-Es intercambiado por el país
+过去5000亿的逆差
+El déficit de los últimos 500 mil millones
 
-这个国土
-Este país
+5000亿的逆差到最后变成了几百亿的逆差
+El déficit de los 500 mil millones finalmente se convirtió en un déficit de decenas de miles de millones
 
-这个土地上
-En esta tierra
+但几千亿美元的贸易
+Pero cientos de miles de millones de dólares en comercio
 
-就是我的国家的国土
-Lo que es la tierra de mi país
+他绝对能把美国股票给打垮了
+Él seguramente puede derribar a las acciones de EE. UU
 
-它就是战争
-Es una guerra
+这个不是假的
+Esto no es falso
 
-它就是代表国家意志的
-Representa la voluntad del país
+真能打垮, 今天中共国就这么停电再停六个月
+Realmente puede destrozarlo, hoy, el PCCh si viene otro apagón de seis meses
 
-第三个大家可能还不知道的
-El tercero, tal vez ustedes no lo saben
+美国的股票市场经济一蹋糊涂
+La economía del mercado de valores de EE. UU será un desastre
 
-所有的黑社会
-Toda la delincuencia organizada
+**——————————————————**
 
-在这个国家的黑社会
-La delincuencia organizada de este país
+**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1445260826655424515?s=24](https://twitter.com/se1y7cblljselva/status/1445260826655424515?s=24)
 
-到别的国家都是白社会
-Al pasar para otros países son delitos de guante blanco
-
-走私、毒品、绑架
-Contrabando, drogas, secuestro
-
-履行外交权力
-Ejercer el poder diplomático
-
-把这个人怎么弄回去
-Cómo hacer para enviar a esta persona
-
-你只要进了大使馆了
-Si tan sólo entras a la embajada
-
-你不能动了
-No podrás moverte
-
-就像那个瞎子
-Así como ese ciego
-
-叫什么陈什么成一样
-Llamado tal Chen o Cheng
-
-它就玩这个游戏嘛
-Él se divierte con este tipo de juego
-
-就是反正到美国是
-De todos modos llegar a EE. UU es
-
-跟那个当年民主民运
-Al igual que el movimiento democrático de aquel momento
-
-我说过林强抓了以后
-Yo dije que Lin qiang luego de ser arrestado
-
-送到机场说再见了林强
-Cuando lo llevamos hasta el aeropuerto y nos despedimos de él
-
-去美国吃牛排啰, 就是
-Vaya a comer bistec en EE. UU
-
-因为美国人把他送走
-Porque si los estadounidenses lo enviaron lejos
-
-你是不能碰他
-No lo puedes tocar
-
-这叫外交包, 外交飞机
-A esto lo llamamos paquete diplomático, avión diplomático
-
-这是合法的
-Esto es legal
-
-黑社会变白社会
-La delincuencia organizada es convertida en delitos de guante blanco
-
-——————————————————
-
-**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1445260353701511171?s=24](https://twitter.com/se1y7cblljselva/status/1445260353701511171?s=24)
-
-西听校: 洛杉矶盘古农场 – 小文萱
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
 翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 文霙
-字幕+视频制作: 洛杉矶盘古农场 -天涯行
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
-发布 :洛杉矶盘古农场 – 彩虹Rainbow
+发布 :洛杉矶盘古农场–彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
