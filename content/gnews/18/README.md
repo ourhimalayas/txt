@@ -2,16 +2,33 @@
 ---
 
 
-## 中共国成品油零售限价或迎年内最大幅度上调
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1580646/)
+## 视频| 真相工程—辉瑞员工爆料，新冠疫苗里可能含有人类胚胎细胞株
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1580728/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-120.png)[图片来源](https://www.ntdtv.com/gb/2021/09/23/a103225413.html)
-本轮计价周期内，欧美原油价格上涨为主，国内参考的原油变化率正值范围内上行。截止10月7日收盘，国内第九个工作日参考原油变化率为7.15%，预计汽柴油价格上调315元/吨，若上调预期兑现，将刷新年内最大涨幅记录。
+制作：香草山视频部
 
-信息来源：[http://www.nbd.com.cn/articles/2021-10-08/1936275.html](http://www.nbd.com.cn/articles/2021-10-08/1936275.html)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+
+
+
+
+
+
+
+*发稿：雪梨*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

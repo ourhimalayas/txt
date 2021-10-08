@@ -2,40 +2,43 @@
 ---
 
 
-## 欧洲已有四个国家限用莫德纳疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1578704/)
+## 10/07/2021 国际财经快讯：美国考虑释放紧急石油储备以降低天然气价格；欧美争夺国际结算份额首位
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1578749/)
 
-#### 撰稿：Grace
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/7-4.jpg)图片来源：网络合成
-基于一项未公布的研究，瑞典公共卫生局预测（中共病毒疫苗的 ）“副作用的风险增加，比如心肌炎或心包炎”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211007-1.jpg)[图片来源](https://caspiannews.com/news-detail/us-plans-to-disconnect-iran-from-swift-banking-system-may-not-matter-2018-10-25-33/)
 
-这项研究由丹麦的Statens Serum Institut（一个负责绘制冠状病毒在该国传播情况的政府机构）、瑞典的医疗产品局、挪威的国家公共卫生研究所以及芬兰的卫生和福利研究所进行。丹麦政府卫生机构的Bolette Soeborg说，最终结果预计将在一个月左右公布。
 
-据KSBW 10月7日报道，**在周三，瑞典、丹麦和挪威决定暂停或不鼓励年轻人使用莫德纳Moderna疫苗。**
+**1.新一代半导体材料专利竞争力：日美企业垄断前五**
 
-**瑞典已期暂停对30岁以下的人使用莫德纳，丹麦表示他们不会向18岁以下的人提供该疫苗，而挪威敦促30岁以下的人改用辉瑞公司的疫苗。**
+[日美企业垄断了新一代半导体材料碳化硅（SiC）相关专利的前5位。从事专利分析的日本Patent Result公司的统计显示，涉足碳化硅半导体基板的美国科锐（Cree)排在首位，第2～5位是罗姆和住友电气工业等日本企业。根据截至7月29日发布的美国专利数据，通过数量和关注度计算了分数。碳化硅被用作替代现有的硅半导体基板材料，有助于提高功率半导体的性能和节能化。在纯电动汽车（EV）和光伏发电系统的逆变器等领域，碳化硅的应用范围不断扩大。在脱碳化社会之下，需求有望扩大。](https://cn.nikkei.com/industry/itelectric-appliance/46260-2021-10-07-11-45-44.html)
 
-美国和欧洲监管机构警告说，**Moderna和辉瑞公司的疫苗似乎都与青少年和年轻成年人的胸痛和心脏炎症的反应有关。**
+**2.欧美争夺国际结算份额首位**
 
-据路透社10月7日报道，**芬兰周四加入瑞典，丹麦和挪威的行列，暂停对年轻男性使用莫德纳（MRNA.O）的中共病毒疫苗，并限制其使用。**
+[围绕用于贸易和汇款等国际结算的货币份额，美元和欧元争夺首位宝座的态势正在加强。在新冠疫情扩大的2020年以后，美元计价比率较高的全球贸易陷入低迷，另一方面，资金流入以复兴债券发行等为背景的欧元区，美元的份额下降。美元一强格局正在因疫情产生变化。运营全球银行汇款系统的环球银行金融电信协会（SWIFT）的统计显示，8月的美元份额为40.04％，与疫情前的2019年8月相比下降约2个百分点。到2020年7月降至38.77％，时隔1年零4个月低于4成，以后维持低位运行。另一方面，欧元2021年8月的份额为37.95％，排在仅次于美元的第2位，但相比2019年8月上升超过5个百分点。2020年10月一度超过美元，跃居份额首位，2021年5月也曾反超美元。](https://cn.nikkei.com/politicsaeconomy/efinance/46261-2021-10-07-13-43-09.html)
 
-但是芬兰卫生研究所所长Mika Salminen说，**芬兰将为1991年及以后出生的男性提供辉瑞公司的疫苗。**
+**3.美国考虑释放紧急石油储备以降低天然气价格**
 
-Mika 还说：”一项涉及芬兰、瑞典、挪威和丹麦的北欧研究发现，**接受莫德纳 Spikevax的30岁以下男性患心肌炎的风险比其他人略高。**
+[本周美国汽油价格飙升至每加仑3.21美元，创下7年来的最高价格。GasBuddy石油分析主管帕特里克德汉表示，到本月底，油价可能高达每加仑3.30美元。美国能源部长詹妮弗·格兰霍尔姆出席英国《金融时报》能源转型战略峰会时周三表示，拜登政府正在考虑释放紧急石油储备，作为缓解全球能源危机的几种选择之一。OPIS能源分析全球主管汤姆·克洛扎警告说，随着当前需求的增长，取暖油和柴油价格可能会”难以置信”地上涨。](https://www.foxbusiness.com/markets/us-emergency-oil-reserves-lower-gas-prices-granholm)
 
-**瑞典公共卫生局表示，这些心脏症状在年轻男性中最为常见。2019年，约有300名30岁以下的人因心肌炎在医院接受治疗。**
+**4.国际货币基金组织总裁格奥尔基耶娃说，她在世界银行调查时被律师事务所误导**
 
-**数据表明，发病率的增加也与接种中共病毒疫苗有关，主要是在青少年和年轻成年人中，而且主要是在男孩和男性中。**
+[路透华盛顿10月6日电—国际货币基金组织总裁克里斯塔利娜·格奥尔基耶娃周三表示，威尔默黑尔律师事务所在担任世界银行首席执行官期间错误地描述了她的行为，并向她保证，她参与调查是保密的。在向IMF执行董事会发表的一份详细声明中，乔治耶娃驳斥了威尔默黑尔的结论，即她和其他世界银行高级官员向工作人员施压，要求他们改变数据，以利于中国，并说她被告知自己不是调查的对象。她否认她向世界银行工作人员施压，要求他们采取任何行动改变中国在2018年《营商报告》中的排名，并拒绝将排名与世界银行（World Bank）拟议增资联系起来。](https://www.reuters.com/business/imf-chief-georgieva-says-she-was-misled-by-law-firm-world-bank-probe-2021-10-06/)
 
-瑞典公共卫生局说，新的初步分析表明，莫德纳疫苗的这种副作用表现得特别明显，尤其是在打了第二剂量之后。**卫生局官员表示这种风险的增加是在接种疫苗后的四周内，特别是在前两周看得到的**。其暂停莫德纳疫苗的决定有效期至12月1日。
+**5.IAC 的 Dotdash 以 2.7 亿美元的价格收购杂志出版商梅雷迪斯**
 
-报道称，**瑞典、丹麦，挪威和芬兰做出的这些暂停使用莫德纳疫苗的决定都是基于这一项未公布的研究**。
+[10月6日（路透社） -IAC的数字媒体部门Dotdash周三同意以约27亿美元的价格收购梅雷迪斯公司（MDP.N），将《人物》、《阿雷西普斯》和《投资》等公司放在一个保护伞下。两家公司表示，合并后的公司将被称为多达什梅雷迪斯，将由多达什首席老板尼尔·沃格尔领导。这笔交易将把梅雷迪斯的40多个品牌，包括《更好的家园与花园》、《南方生活》和《InStyle》杂志，与多达什的数字品牌，如云杉、拜迪和新娘。](https://www.reuters.com/business/media-telecom/iacs-dotdash-buy-magazine-publisher-meredith-27-bln-deal-2021-10-06/)
 
-但是，意大利卫生部长Roberto Speranza告诉记者，意大利不打算暂停莫德纳疫苗。
+**6.NASA称波音的Starliner今年不会再次尝试发射**
 
-**新闻来源****：**
+[美国国家航空及太空总署(NASA)官员周三说，波音公司(Boeing Co., BA)的太空飞船Starliner今年将不会再次尝试发射，两名原定乘坐该飞船飞行的宇航员被重新分配到未来使用SpaceX飞船的一次任务。今年夏天，波音公司和NASA曾计划在没有宇航员的情况下发射Starliner前往国际空间站。发射该飞船到太空的火箭在搭乘宇航员之前必须完成测试飞行。波音公司和NASA 8月推迟了一项测试发射，因为Starliner推进系统的一些阀门在发射前卡住了。NASA的项目经理Steve Stich在周三的吹风会上说，今年不会再有机会完成Starliner的演示飞行，因为有其它飞行任务到空间站和其它发射。](https://cn.wsj.com/articles/nasa%E7%A7%B0%E6%B3%A2%E9%9F%B3%E7%9A%84starliner%E4%BB%8A%E5%B9%B4%E4%B8%8D%E4%BC%9A%E5%86%8D%E6%AC%A1%E5%B0%9D%E8%AF%95%E5%8F%91%E5%B0%84-11633565708)
 
-1. [Sweden suspends Moderna vaccine for those age 30 and under](https://www.rebelnews.com/sweden_suspends_moderna_vaccine_for_those_age_30_and_under)
-2. [Finland joins Sweden and Denmark in limiting Moderna COVID-19 vaccine](https://www.reuters.com/world/europe/finland-pauses-use-moderna-covid-19-vaccine-young-men-2021-10-07/)
-3. [Sweden, Norway pause Moderna shots for patients under 30](https://www.ksbw.com/article/sweden-norway-moderna-shots-for-patients-under-30/37887625)[Sweden, Denmark, Finland pause Moderna vaccine for younger people](https://insiderpaper.com/sweden-denmark-finland-pause-moderna-vaccine-for-younger-people/)
+**7.亚马逊的 Twitch 受到数据泄露的打击**
+
+[10月6日（路透社） – Amazon.com 公司（AMZN.O）直播电子竞技平台Twitch周三表示，它受到数据泄露的打击，但没有提供进一步的细节。据《视频游戏纪事报》报道，一名匿名黑客声称泄露了Twitch数据，包括与公司源代码、客户和未发布的游戏相关的信息。Twitch证实了这一违规事件，并表示其”团队正在紧急工作，以了解其程度”。该公司拒绝进一步置评，并表示将”在获得更多信息后立即向社会通报最新情况”。亚马逊没有立即回应置评请求。](https://www.reuters.com/technology/amazons-twitch-hit-by-data-breach-2021-10-06/)
+
+**8.美国汽车经销商库存跌至历史新低**
+
+[美国9月份轻型车销量经季节性调整按年率计算为每辆12.2MM，每辆12.3MM，低于12.5MM的一致预期。处于12MM低位的美国SAAR从2020年9月的约16.3MM下降约25%，与8月的SAAR约13.1MM环比下降约1位数。库存下降的最大原因是库存水平持续创历史新低。9月份，汽车销量同比下降约33%，SUV销量同比下降约20%，皮卡销量同比下降约30%。皮卡和SUV占总销量的比例分别为19%和55%（2020年9月为20%和51%）。根据汽车情报，福特9月份销量同比下降约18%，通用汽车销量同比下降约53%。福特9月份的市场份额从14%上升至15%，通用汽车的市场份额从17%降至11%。](https://www.zerohedge.com/markets/inventory-us-car-dealers-falls-new-record-low)
+
+By 【秘密翻译组-金融组】
+作者：和理非
