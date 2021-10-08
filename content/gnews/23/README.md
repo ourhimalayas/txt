@@ -2,52 +2,70 @@
 ---
 
 
-## 辉瑞公司举报人披露的电子邮件显示流产婴儿细胞被用于疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1580781/)
+## 快讯：瑞典和丹麦禁止使用引起年轻人的心肌炎的莫德纳疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1580862/)
 
-栏目记者/责任编辑：AsG諾雅
-
-
+- **编译：Jenny Ball**
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip272.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+在确定了莫德纳（Moderna） Covid-19“疫苗”会导致心肌炎，尤其是年轻人的心肌炎后，北欧国家瑞典和丹麦都禁止在特定年龄组中使用它。
 
+据报道，瑞典和北欧数据来源的一项新的初步分析发现，莫德纳刺突蛋白疫苗“SpikeVax”会损害年轻人的身体，必须停止使用。
 
+瑞典公共卫生局建议，立即停止对 1991 年后出生的所有年轻人使用莫德纳的 SpikeVax。丹麦已经禁止 12 至 17 岁的儿童使用这种疫苗。
 
+该机构宣布：“出于预防原因，瑞典公共卫生局已决定，暂停对 1991 年及以后出生的所有人使用莫德纳的Spikevax疫苗。”
 
+“原因是副作用风险增加的信号，例如心肌或心囊发炎。 但是，受到影响的风险非常小。”
 
+声明继续解释说，莫德纳的 SpikeVax 与心肌炎和心包炎病例之间的联系“特别明显……尤其是在第二剂之后。”
 
+“在接种疫苗后的 4 周内，主要是在前两周内可以看到风险的增加。”
 
-10月6日，辉瑞疫苗生产质量审计员梅丽莎-斯蒂克勒向“真相工程”泄露了内部邮件，揭示公司高管指示员工对其疫苗测试中，使用了人类胎儿组织一事保密，但她不确定疫苗的成品中是否含有那些组织。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-4.jpg)
-辉瑞的首席科学官菲利普-多米泽承认，“用于IVE试验的HEK293T细胞最终来自于流产的胎儿”，然而梵蒂冈教义委员会已经确认，支持生命权的信徒是可以接种疫苗的。辉瑞公司全球研究高级总监凡妮莎-盖尔曼，有求员工谨慎讨论公司疫苗使用人类胎儿细胞之事。她在邮件中表示，在过去几周没有收到来自决策者或媒体相关问题的任何提问，所以希望尽可能避免触及。她还在另一封邮件中，加倍地强调了这一信息的保密性，她说：”我们一直在尽可能地不提及胎儿细胞系已被用于与疫苗项目有关的实验室测试。”
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-23.jpg)
-这个消息对于有虔诚宗教信仰的人士来说是一个震撼弹，它展现了梵蒂冈和各大宗教组织、政府与大制药厂的深层勾结。目前， 包括美国和梵蒂冈的许多政府都不允许人们以宗教原因申请豁免疫苗接种。这一消息将导致宗教界人士对强制疫苗接种的强烈反对。
+**已经证实，****莫德纳****的**** SpikeVax ****疫苗会引起年轻人的心脏炎症**
 
-信息链接：
-1. [Pfizer Whistleblower Reveals E-Mails Implying Aborted Baby Cell Use in Vaccine.](https://thenationalpulse.com/news/pfizer-whistleblower-emails-imply-aborted-baby-cells-in-vaccine/)
-2. [Pfizer Whistleblower Leaks Execs Emails: ‘We Want to Avoid Having Info on Fetal Cells Out There’](https://youtu.be/FUXGB5FzhPc)
+就在瑞典公共卫生局发表此声明的同一天，丹麦卫生局发表了自己的声明，说明莫德纳的 SpikeVax 导致“心脏炎症风险增加”。
 
-（本文仅代表作者观点）
+该机构坚称，尽管“极其罕见”，但对于年轻人来说，心脏炎症并不是一件好事，尤其是因为，CCP病毒对他们（年龄段）几乎没有风险。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+甚至加拿大公共卫生局也同意这一评估。几天后发表声明说：
 
-终审：鬼五
-校对/发稿：为真不破20
+“已证明感染 COVID-19 后心脏并发症（包括心脏炎症）的风险显著增加，接种疫苗后感染的风险更高。”
 
-**更多资讯，更多关注**
+早在 4 月，丹麦在确定疫苗会导致致命的血栓后，[永久禁止](https://www.naturalnews.com/2021-04-14-denmark-permanently-bans-covid19-vaccine-astrazeneca-clots.html)阿斯利康福奇感冒疫苗。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+丹麦是第一个禁止这种疫苗的国家，尽管与许多其他国家一样，它继续推动辉瑞生物技术公司的 mRNA注射，这似乎是世界各国政府的首选类型。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+**各地的患者在接受阿斯利康疫苗后纷纷死亡，而且非常明显，政客们被迫采取行动。**** ****使用**** mRNA****的****损伤通常需要更长的时间显露，这意味着更容易隐藏。**
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+mRNA 技术还会永久性地重新编程接种者的 DNA，这也可以解释为什么它是全世界首选的注射类型。不是直接注射刺突蛋白（阿斯利康），mRNA 注射（辉瑞-生物医药和莫德纳）对身体进行编程，以随着时间的推移不断产生刺突蛋白。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+顺便说一下，瑞典最近结束了所有的 Covid 限制，这些限制一开始就很少。 那里不需要所谓的“疫苗”，现在完全恢复正常，没有限制或其他强制措施。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+顺便还要说一下，**你不太可能从主流媒体听到任何这些**信息。丹麦和瑞典都是你可能称之为“进步”的国家，它们都在逆着大流行趋势，这不符合美国极左的新冠病毒叙事，即只有“川普支持者”反对CCP病毒法西斯主义。
 
+“让我们看看狂热的左派是否赞扬瑞典人和丹麦人的这一转变，”国家档案的一位评论者开玩笑地说。
 
+**评论：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+**用作者的话来总结全文再合适不过，“你不太可能从主流媒体听到任何这些信息。”但是， 不仅“只有“川普支持者”反对CCP病毒法西斯主义，当更多疫苗危害的真相传播出来，受害的中国人民和全世界人民都会联合起来找共产党算账。**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**文章内容来源如下：**
+
+[NationalFile.com](https://nationalfile.com/breaking-sweden-and-denmark-ban-use-of-moderna-spikevax-in-young-people-citing-myocarditis/)
+
+[NaturalNews.com](https://www.naturalnews.com/2021-04-14-denmark-permanently-bans-covid19-vaccine-astrazeneca-clots.html)
+
+**素材链接**：**[newstarget.com](https://www.newstarget.com/2021-10-06-sweden-denmark-ban-moderna-covid-vaccine-myocarditis-young-people.html)**
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip190.png)

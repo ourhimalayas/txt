@@ -2,50 +2,151 @@
 ---
 
 
-## 中共海外藏钱20万亿，文贵揭开藏宝图一小角，中共剧烈内斗即将开始
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1580501/)
+## 作为一家上市公司，脸书必须不能对其投资者撒谎，甚至隐瞒重要信息
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580543/)
 
-作者：纽约香草山健身部 – Jack Li文阳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-文贵先生在10月3日的直播中透露：中共在海外的钱原来主要是由姬家掌管——姬鹏飞、姬胜德。有次军队开会的时候，汪东兴把姬鹏飞找来，告诉他海外哪些钱能动，哪些钱不能动。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-15.jpg)https://gtv.org/video/id=615fc368d2e2b81748729059
+Scott Pelley
+斯科特·佩利
 
-文贵先生在直播中揭示了中共外交部与中共藏在海外的20万亿有重大关联。他首次提到了中共驻阿联酋的大使倪坚，此人曾经是驻伊拉克的大使，后来被调到了阿联酋任大使。倪坚曾在新疆待过 ，心黑手辣，罪恶滔天，手上沾满新疆人的鲜血。他在任新疆建设兵团局长期间，屠杀大量的新疆人、疯狂敛财，包括当地的宝石和玉石。中共的外交部不但是卖党部、卖国部、腐败部、性交部、性乱部，它还负责经手中共在海外腐败与藏钱业务。
+Last month, Haugen’s lawyers filed at least eight complaints with the Securities and Exchange Commission
+上个月，豪根的律师向在金融市场执法的美国证券交易委员会
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/0-2.jpg)
+which enforces the law in financial markets.
+提交了至少8份投诉
 
-另外文贵先生也提到了程国平，他从2009年到2011年任外交部长杨洁篪的部长助理。杨洁篪当时曾代表江家去做一些“重要事情”，部长助理肯定要紧紧跟随，并亲自落实、亲自安排，所以他是杨洁篪当时“主政工作”的重要知情人和参与者。
+The complaints compare the internal research
+这些投诉将内部研究
 
-马建副部长掌握共产党几十年的情报，包括中共在海外藏钱。在中共党内，他就像美国的胡佛一样。胡佛一死，当时的美国总统就说：他终于在恰当的时候死了。胡佛“绑架”了几个总统，胡佛的下场众所周知，谁都想把他灭掉。马健副部长也一样，这就是他被抓的根本原因。
+with the company’s public face often matters CEO Mark Zuckerberg
+与公司的公众形象密切相关首席执行官马克·扎克伯格
 
-当时文贵先生亲自问过马建副部长：“孟建柱、孙力军、傅政华为啥要搞定你？”他说这帮孙子，就是想要他手里的“料”，咱们叫“料”——但是他们说的是情报。他说：“就把我的东西拿走呗！”这些东西包括中共在海外的钱，2008、2009年的时候就有很多钱了。他说“那怎么得有个几万亿”。当时真是吓了文贵先生一大跳，那时候都几万亿，还不到十八大的时候啊。马健说仅中东，就迪拜这一个地方，就有七十多亿，而且是当时发生的。
+here testifying remotely to Congress last March,
+去年三月(他)在这里(视频)远程向国会作证进行比较
 
-马健副部长说：“孟（建柱）每次都敲打我，当时我们去过俄罗斯，包括程国平。 在专机上就警告并敲打我，那次周永康也场，孟就跟马建副部长说：“那些东西到时候你整理整理都给我，让我知道知道。”那时孟建柱正准备当政法委书记，而且做好准备要接收这钱了，并且知道要找马建副部长要。孟建柱要控制住了绝对的海外藏钱和密码，前提是把马建副部长做掉，并把所有执行者全抓起来，然后把钱拿回来。
+Mark Zuckerberg (Facebook CEO)
+马克·扎克伯格（脸书首席执行官）
 
-郭文贵先生**：“**现在这个局势好玩了，中共在中东的钱，外国的钱，习绝对没这个概念。他从来不相信海外存的什么上万亿的钱，他压根就不信。他看过报表，虽然他在某些方面很有特长，但在这些事上，他几乎是个傻白，傻小白，他不懂的。一两个月前就有人给他报告，他问：到底咱们海外的钱，到底……，那人就说了个数：我们大概两万多亿。他深信不疑，这两万多亿够了，就是一万四千亿是党的小私钱，六千多亿是所谓党组织的钱。他觉得自己还有一万多亿的私房钱，他不知道这二十万亿在哪，他根本不信，他也不知道。”
+we’ve removed content that could lead to imminent real world harm.
+我们删除了可能导致迫在眉睫的现实世界伤害的内容
 
-文贵先生抛出程国平和倪坚这两个江家马仔，中共海外藏钱的经手人，明确向中共喊话叫其报告习近平。国安再大胆也不敢不上报。20万亿太大太吸引，习近平再傻，也不会轻易放过不调查。这下就会动到江曾的奶酪，人为财死，鸟为食亡，中共黑帮火拼一触即发。
+We built an unprecedented third party fact checking program.
+我们构建了前所未有的第三方事实核查程序
 
-文贵先生说：共产党的内斗现在是刚刚开始，甚至还没有开始。程国平很快会被抓的，倪坚也会被抓的，一定会被抓的……杨洁篪，王毅都会被抓起来。我第一次说，一定会被抓起来。因为今天我的爆料，大家走着看。
+The system isn’t perfect, but it’s the best approach that we’ve found,
+这个系统并不完美，但它是我们找到的最好的方法
 
-习大神啊习大神，虽然您很不情愿听从文贵先生的指挥，但为了您自己，尽快行动吧！切实保护好相关人员，必须包括马建副部长。分别调查，核对口供，一定能捞到大量的线索。夜长梦多，不要让这些人跳楼死，游泳死。另外，外交部程倪杨王等人千万保重身体，为黑帮办坏事，总会死得很难看。别看你们昨天闹得欢，习神要拉你们的清单。相信直播后，相关人等会如热锅蚂蚁，左右为难，背叛还是顽抗？都是死路一条。江曾习估计直播没完就已排兵布阵了，虽然明知是文贵先生的反间计，但20万亿面前，也管不了太多了。就像房间内，这几人都拔出枪，不打死对方，必然会被对方击毙，黑帮套路，身不由己。
+to address misinformation in line with our country’s values,
+以解决符合我们国家价值观的错误信息
 
-文贵先生巧施惊天妙计，战友的板凳不够用了。
+Scott Pelley
+斯科特·佩利
 
-**本文仅代表作者观点**
+one of France’s Huggins lawyers is John Tye.
+豪根其中的一个律师是约翰·泰
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
+He’s the founder of a Washington legal group called whistleblower aid.
+他是华盛顿一家名为“吹哨人援助”的法律团体的创始人
 
-**校对/发稿：童谣**
+What is the legal theory behind going to the SEC
+支持去美国证券交易委员会的法律理论是什么？
 
-**更多资讯，更多关注**
+what laws are you alleging have been broken
+你指称违反了什么法律 ？
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+John Tye (founder of whistleblower aid)
+约翰·泰（吹哨人援助的创始人）
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+As a publicly traded company, Facebook is required to not lie to its investors,
+作为一家上市公司，脸书必须不能对其投资者撒谎
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+or even withhold material information.
+甚至隐瞒重要信息
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+So, the SEC regularly brings enforcement actions,
+因此，美国证券交易委员会定期提起执法诉讼
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+alleging that companies like Facebook and others
+指控像脸书和其他的这样的公司
+
+are making material misstatements, and emissions that affect investors adversely.
+正在作出重大的错误陈述，以及对投资者产生不利影响的信息推送
+
+Scott Pelley
+斯科特·佩利
+
+One of the things that Facebook might alleges that she stole company documents.
+脸书可能声称她窃取了公司档的这件事
+
+John Tye
+约翰·泰
+
+The Dodd-Frank Act passed over 10 years ago at this point,
+在这一点上多德-弗兰克法案已于 10 多年前通过
+
+created an office of the whistleblower inside the SEC.
+在美国证券交易委员会内部设立了一个举报人办公室
+
+And one of the provisions of that law says
+而且该法律的一项规定说
+
+that no company can prohibit its employees from, from communicating with the SEC,
+任何公司都不能禁止其员工与美国证券交易委员会沟通
+
+and sharing internal corporate documents with the SEC.
+并与美国证券交易委员共享内部公司档
+
+Frances Haugen
+弗朗西丝·豪根
+
+I have a lot of empathy for Mark, and Mark has never set out to make a hateful platform,
+我对马克有很多同情，马克从来没有打算做一个可恶的平台
+
+but he has allowed choices to be made,
+但他允许做出选择
+
+where the side effects of those choices are the hateful polarizing content gets more distribution more reach
+这些选择的副作用是可恶的两极分化内容得到更多的传播更多的影响
+
+Scott Pelley
+斯科特·佩利
+
+Facebook declined an interview, but in a written statement to 60 minutes it said,
+脸书拒绝接受采访，但在一份给60 分钟的书面声明中表示
+
+“Every day our teams have to balance
+“每天我们的团队都必须平衡
+
+protecting the right of billions of people to express themselves openly
+保护数十亿人公开表达自己的权利
+
+with the need to keep our platform as safe and positive place.
+需要保持我们的平台作为安全和积极的地方
+
+We continue to make significant improvements
+我们继续进行重大改进
+
+to tackle the spread of misinformation and harmful content.
+解决错误信息和有害内容的传播
+
+To suggest we encourage bad content and do nothing is just not true. ”
+如果说我们鼓励不良内容而不采取行动，那是不对的。”
+
+“If any research had identified an exact solution to these complex challenges,
+“如果有任何研究确定了这些复杂挑战的确切解决方案，
+
+the tech industry, governments and society would have solved them a long time ago.”
+科技行业、政府和社会早就解决了这些问题。”
+
+原视频日期：2021/10/03
+原视频链接: https://youtube.com/watch?v=\_Lx5VmAdZSI
+视频时间段 : 9:54-12:33
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
