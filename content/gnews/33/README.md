@@ -2,38 +2,37 @@
 ---
 
 
-## Facebook被前员工揭发内幕
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1581059/)
+## 秘翻在线：为避免接种中共病毒疫苗 荷兰世界小姐退出选美决赛
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1581137/)
 
-**By:秘翻新视野**
+#### 翻译发布：文柯Miles
 
-***2021-10-8***
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/IMAGE-2021-10-08-111407.jpg)](https://gtv.org/video/id=615fb4d3304e992109b176e3)*点击图片可看完整视频*
-**Facebook**前产品经理接受主流媒体采访爆料，公开内部文件证明Facebook一再将公司的商业利益置于公众安全之前。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/asdf6asd6f46rg4t9080k43oktopko.jpg)荷兰世界小姐迪莱·威廉斯坦
 
-• 脸书针对特定目标投放广告，决定哪些人看到哪些广告、看不到哪些广告，带有性别主义偏见。
+为了避免接种中共病毒（COVID-19）疫苗，荷兰世界小姐已主动退出 12 月的选美决赛。
 
-• Facebook对名人政要采取不同的待遇，和不同的管理政策，导致人们相信脸书而受到政治上和商业领域的影响。
+21岁的迪莱·威廉斯坦（Dilay Willemstein）周二在Instagram上发布了这一惊人的消息，她称将“不再代表荷兰登上世界小姐的大舞台”。
 
-• 脸书因利益分配不公，一度封锁澳洲政府网站链接，可见获取利益是任何一家媒体的永恒第一目标。
+“这个决定是由于需要接种疫苗，”她承认说，“就个人而言，我还没有准备好。”
 
-• 在美国竞选期间，脸书曾开启减少假消息的安全系统。在公众利益和脸书利益之间有冲突时，彻底背叛美国的民主信念。
+“在我获得加冕之后，我们被告知，如果你想去参加世界小姐比赛，就必须接种疫苗，”她进一步向荷兰报纸《Algemeen Dagblad》解释了为什么退出定于12月16日在波多黎各举行的选美决赛。
 
-• Instagram社交平台对年轻人心理健康有害，社交平台的审美标准固定化，而轻易操控人的情感和左右事物的准则，从而潜移默化的影响青少年对社会和自我的认知。
+“所以我仔细考虑了一下，我想我根本没有准备好，我感觉不好。”她告诉该报。
 
-• 脸书，WhatsApp，instagram等三大应用宕机，这是一秒钟即可消失的脆弱系统，而唯有盖特正常运转。
+“这对我来说简直是最好的选择，”她说。“我想，如果我做了一件我实际上感觉不舒服的事情，我会更加后悔。”
 
-• Facebook, Whatsapp的用户信息被打包低价出售，根据客户信息，把人群分类，再进行AI智能分析，人就这样轻易的被大数据控制了。
+荷兰世界小姐协会首席执行官卡蒂亚·梅斯（Katja Maes）告诉AD报纸，他们“没有询问选手的疫苗接种情况”，因为这是他们私人医疗信息的一部分，而且“事先不知道接种疫苗是否会有问题”。
 
-• 文贵先生：Facebook宕机是俄罗斯干的，接下来还有大事发生，宕机会成为常态。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片.png)
 
-请移步**GTV**观看**[【秘翻新视野】](https://gtv.org/video/id=615fb4d3304e992109b176e3)**的详细阐述
+梅斯说，协会首先通过 Instagram 帖子听到了消息。
 
-**GTV链接:**[https://gtv.org/video/id=615fb4d3304e992109b176e3](https://gtv.org/video/id=615fb4d3304e992109b176e3)
+“但我们仍然爱她，为她感到骄傲，并祝她一切顺利，”她坚持说。
 
-*发布:星星*
+迪莱·威廉斯坦被亚军莉兹·多布（Lizzy Dobbe）取代。
 
-* * *
+![](https://nypost.com/wp-content/uploads/sites/2/2021/10/miss-world-netherlands-34.jpg?quality=90&amp;strip=all&amp;w=1535)亚军 莉兹·多布（右）
 
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/IMAGE-2021-08-12-195949.jpg)
+“人们必须做出自己的选择，我们必须接受彼此的选择，”莉兹谈到威廉斯坦反对疫苗的立场时说。
+
+原文链接：**[Miss World Netherlands quits pageant final to avoid getting COVID vaccine](https://nypost.com/2021/10/07/miss-world-netherlands-quits-pageant-final-to-avoid-covid-vaccine/)**

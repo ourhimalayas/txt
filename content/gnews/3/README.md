@@ -2,22 +2,34 @@
 ---
 
 
-## 学生接种疫苗后死亡！学校强烈否认
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1581504/)
+## 美快速攻击潜舰印太海域撞击不明物体
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1581612/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1087.png)[图片来源](https://news.yahoo.co.jp/articles/f5825bd3e47f26e22139b2a4c2baf60ca5de8b67/images/000)
-据日本“读卖新闻”10月8日报道，一些小学和高中的学生在社交媒体上发布了“接种疫苗后死亡”的信息，该信息被广泛传播，因此，学校方面接到很多抗议电话，让学校不要隐瞒，学校强烈的否定该信息的真实性。新闻称，最开始是兵库县的一名诊所医生发布相关帖子，学校要求医生修改言论内容，被拒后，该贴遭删除。
+作者：云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国海军7日公布，一艘核动力潜舰2日在印太海域水下执行任务时，撞击到不明物体受损，并有10多人轻中度受伤。各方猜测，撞击物可能是沉没船只、货柜等其他物体。
 
-报道最后引用了千叶大学医院的黑川友哉医生的话，称“家长和孩子应该讨论是否接种疫苗，最好是接受之后再做决定。根据可靠的信息做出判断是很重要的，不要被不确定的言论所迷惑。”有趣的是，日本“体育报知”10月8日对该事件也进行了报道，作家乙武洋匡在推特上呼吁，呼吁内容与黑川友哉医生几乎一样。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-5.jpeg)
 
-疫苗的危害终究是掩盖不住，有识之士在说出真相，无为的媒体却在抹杀真相。有些医生是真正医者仁心，可怕的是，有些医生却在诱导孩子接种疫苗。
+此次发生事故的是“海狼级”核动力快速攻击潜舰“康乃狄克”（USS Connecticut）号，事故发生时正在印度太平洋地区的国际海域执行任务。 海狼级潜艇是冷战后期的攻击性潜艇，是美国海军最有能力和最敏感的攻击艇，旨在猎杀深蓝水域最复杂的苏联潜艇。
 
-信息来源：
-1、[乙武洋匡氏、ワクチン接種後に児童死亡の誤情報拡散で訴え「不確かな話に惑わされないでほしい」](https://news.yahoo.co.jp/articles/017f7f85d6ba432dd619a81539fa15a76b62b2bd)
-2、[児童ら「接種後に死亡」と誤情報…開業医の投稿で拡散も、「隠蔽するな」学校に抗議続々](https://news.yahoo.co.jp/articles/f5825bd3e47f26e22139b2a4c2baf60ca5de8b67)
+康乃狄克号自事件发生后保持水面航行，正前往关岛靠岸。国防官员证实这次水下打击发生在南中国海，但未透露任何细节。
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+从周六计算，时隔5天后此事件才被报道，期间中共军方罕见沉默。印太地区目前由于中共的挑衅，正处于紧张的火药库状态，任何的军事事故都有可能造成区域性的紧张态式，需谨慎观察后续发展。
+
+(本文仅代表作者观点)
+
+参考链接：[美核動力潛艦南海撞擊不明物體受損 10多人受傷](https://www.cna.com.tw/news/firstnews/202110080019.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
