@@ -2,38 +2,29 @@
 ---
 
 
-## 郭先生直播：中共95％的可能打台湾，AMD将上市
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1581478/)
+## 战友SEC门前抗议第五天 敦促尽早退款
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1581645/)
 
-**By:秘翻新闻**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-***2021-10-08***
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/1008-2.jpg)](https://gtv.org/broadcast/watch/61600817304e992109b19a29)点击图片观看视频
-**新闻摘要:**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-2-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-1、郭先生直播：中共95％的可能打台湾，AMD将上市
+视频参看：2021.10.08早GTV新闻访谈
 
-2、中共视角之外的长津湖战役
+[https://gtv.org/broadcast/watch/61603962304e992109b1b6fa ​​​​](https://gtv.org/broadcast/watch/61603962304e992109b1b6fa%20​​​​https://www.youtube.com/watch?v=PuCKki7MAzo)
 
-3、芯片禁令冲击下 华为手机及5G业务全球萎缩
+[https://www.youtube.com/watch?v=PuCKki7MAzo](https://gtv.org/broadcast/watch/61603962304e992109b1b6fa%20​​​​https://www.youtube.com/watch?v=PuCKki7MAzo)
 
-4、山西汾河面临40年最大洪峰 新绛县民众连夜撤离
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-5、中共国一医院擅自对未成年少女手术 遭网络谴责
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
 
-6、辉瑞请求FDA批准5-11岁儿童中共病毒疫苗许可
-
-7、巴西欲在2022年购买多达1.5亿支辉瑞疫苗
-
-8、芬兰加入瑞典，丹麦和挪威的行列，限制使用莫德纳中共病毒疫苗
-
-9、美国特种部队和海军陆战队在台湾驻扎一年
-
-**GTV链接：**[https://gtv.org/broadcast/watch/61600817304e992109b19a29](https://gtv.org/broadcast/watch/61600817304e992109b19a29)
-
-发布: 文橙
-
-* * *
-
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

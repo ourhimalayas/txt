@@ -2,34 +2,27 @@
 ---
 
 
-## 美快速攻击潜舰印太海域撞击不明物体
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1581612/)
+## 一艘美国潜艇在太平洋上与不明物体相撞
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1581727/)
 
-作者：云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国海军7日公布，一艘核动力潜舰2日在印太海域水下执行任务时，撞击到不明物体受损，并有10多人轻中度受伤。各方猜测，撞击物可能是沉没船只、货柜等其他物体。
+俄罗斯莫斯科喀秋莎农场 星河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-5.jpeg)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/U-1.jpg)newsplaneta.com
+美东时间10月8日报道，美国海军“康涅狄格”号核动力潜艇(USS Connecticut)上周在南中国海与一个不明物体相撞。
 
-此次发生事故的是“海狼级”核动力快速攻击潜舰“康乃狄克”（USS Connecticut）号，事故发生时正在印度太平洋地区的国际海域执行任务。 海狼级潜艇是冷战后期的攻击性潜艇，是美国海军最有能力和最敏感的攻击艇，旨在猎杀深蓝水域最复杂的苏联潜艇。
+美国海军表示，“该潜艇处于安全和稳定的状态。‘康涅狄格’号的核推进系统和内部空间完好无损，仍然可以完全运作。将对该事件进行调查。”
 
-康乃狄克号自事件发生后保持水面航行，正前往关岛靠岸。国防官员证实这次水下打击发生在南中国海，但未透露任何细节。
+彭博社写道，这次碰撞使得潜艇上的11名水手受伤。美国海军称，没有威胁到生命的伤害。目前还不清楚这艘潜艇与什么具体物体相撞。
 
-从周六计算，时隔5天后此事件才被报道，期间中共军方罕见沉默。印太地区目前由于中共的挑衅，正处于紧张的火药库状态，任何的军事事故都有可能造成区域性的紧张态式，需谨慎观察后续发展。
+“康涅狄格”号是一艘海狼级核动力快速攻击潜艇，在1997年下水，1998年服役。
 
-(本文仅代表作者观点)
+攻击潜艇的用途是发现和摧毁敌方潜艇和水面舰船，利用巡航导弹和特种作战部队向岸上投射武力，执行情报、监视和侦查任务，支持战斗群行动并从事水雷战。
 
-参考链接：[美核動力潛艦南海撞擊不明物體受損 10多人受傷](https://www.cna.com.tw/news/firstnews/202110080019.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+8月，美国开始与英国、日本和澳大利亚在南中国海进行联合演习。作为回应，中共国也进行了类似的演习。10月初，中共向台湾海岸派出38架战机，这是入侵这个未获承认的国家领空的最大数量的战机。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+《华尔街日报》早些时候援引美国官员的话报道称，美国已经在台湾与特种部队和海军陆战队秘密进行了一年的训练演习。美国军方正在训练当地部队，以防“中共国侵略”。
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
+参考链接：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://www.rbc.ru/rbcfreenews/615f54dc9a79477d4f04b5fd?from=from\_main\_11](https://www.rbc.ru/rbcfreenews/615f54dc9a79477d4f04b5fd?from=from_main_11)
