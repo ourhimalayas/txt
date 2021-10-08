@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/8/2021 1:17 PM (UTC)`
+
+10月8号：尊敬的战友们好……七哥说的都在发生中……我们将是最干净最纯洁……对社会最有益处的👉新人类的，👈新社交，金融融合的媒体平台。
+![img](https://media.gettr.com/group6/getter/2021/10/08/13/17/4d90c5a0-5147-9f48-387c-c819fd71aa4e/out.jpg)
+
+---
+
 `@miles 10/8/2021 2:34 AM (UTC)`
 
 辉瑞前雇员爆料：辉瑞向公众隐瞒其新冠疫苗含有胎儿组织<br/><br/>Former employee exposes Pfizer’s deception regarding the fetal tissue within its COVID vaccine 
@@ -291,12 +298,6 @@ While Big Tech imploded, @GETTROfficial was still going strong! There’s a reas
 
 以色列COVID-19 疫苗受害者证词(六）<br/><br/>以色列COVID-19 疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。<br/><br/>证词项目网站： https://www.vaxtestimonies.org/en/
 ![img](https://media.gettr.com/group24/getter/2021/10/04/16/41/bb1c537b-0ce7-c12d-2566-b11e0584c4ba/out.jpg)
-
----
-
-`@miles 10/4/2021 3:26 PM (UTC)`
-
-WOW WOWWOW🙏🙏🙏🙏🔥🔥🔥👇👇👇👇👇👇👇👇👇👇👇👇👇【GTV投资者对SEC的五大诉求：<br/>GTV Investors‘ Five Demand For The SEC<br/>1. 立刻归还属于投资者的资金<br/>Immediately Return GTV investor’s funds <br/>2. 立刻停止和中国共产党的勾兑<br/>Immediately stop collusion with the Chinese Communist Party<br/>3. 立刻停止针对华裔投资者的种族歧视<br/>Immediately stop racial discrimination against Chinese-Americans<br/>4. 赔偿投资者的一切损失<br/>Compensate GTV Investors for our loss <br/>5. 要求负责的人出来对话<br/>We demand to talk to those in charge for accountability】<br/><br/>https://gtv.org/broadcast/watch/615b1a14304e992109af6570
 
 ---
 
