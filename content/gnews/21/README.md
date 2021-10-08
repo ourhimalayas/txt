@@ -2,20 +2,39 @@
 ---
 
 
-## 美国中央情报局新建任务中心应对中共国
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1580442/)
+## 奥地利绿党质疑：总理在接受腐败、贿赂调查后能否留任
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1580490/)
 
-#### 翻译：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-37.jpg)图片来源：网络截图
-美国合众国际社10月7日报道，中央情报局（CIA)周四宣布建立两个新的任务中心作为部分战略以应对21世纪的威胁，包括气候变化，对美国操作员的威胁并增加与中共国的“对抗”。
+#### 【**雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GettyImages-1234974387-1320x905-1.jpg)
+图片来源：politico.eu
 
-CIA 主任威廉·博恩在一份声明中详述了该任务中心，称北京政府是美国要面对的最重要的地缘威胁。其中一个中心将只聚焦于中共国的威胁，另一个名为跨国技术任务中心，将检测和寻找有助于应对全球变暖的技术并保护CIA全球操作员们能更好地检测到威胁性情报。
+整理报道：小红帽
 
-美国已经认识到中共国是一个“关键竞争者”，这个公告说两个任务中心来自过去的春季CIA开始进行的一系列战略评估。
+在检察官宣布奥地利领导人将接受调查后，奥地利绿党副总理维尔纳·科格勒(Werner Kogler)质疑，总理塞巴斯蒂安·库尔茨（Sebastian Kurz）能否留任。
 
-在周三CIA人员的评论中，博恩说中共国中心将致力于“加强我们的收集工作”以监测中共国增加的影响力。他提到由于中共国巨大的经济体量和向全球的扩展，北京是一个独特的和不断增加的威胁。
+在周四的一份声明中，科格勒表示，他们无法与由库尔茨领导的联盟伙伴恢复“照常工作”。
 
-博恩说他将每周与各中心的领导者和其他CIA领导者会面。
+科格勒在一份声明中说：“事实必须得到充分证实……在这种情况下，总理的行动能力受到质疑。”他呼吁，与库尔茨涉嫌参与腐败和贿赂有关的问题在回到议程之前必须“完全澄清”。
 
-新闻来源： [CIA creating mission centers to focus on ‘adversarial’ China and technologies](https://www.upi.com/Top_News/US/2021/10/07/cia-china-climate-mission-centers/4161633609239/)
+周三，经济和腐败检察官办公室 (WKStA) 宣布，以涉嫌违反信托、贿赂和腐败为由，对库尔茨和其他九人展开调查。
+
+检察官办公室声称，财政部的资金在2016年至2018年期间被一家投票机构用于支付“出于政党政治动机的、有时被操纵的调查”。
+
+该机构的调查随后被发表在一家奥地利日报的社论部分和同一媒体集团的其他媒体上。由沃尔夫冈·费尔纳 (Wolfgang Fellner) 拥有的集团驳回了这些指控。
+
+这项调查是在突击搜查属于库尔茨保守派人民党 (OVP) 的办公室后宣布的。这次突击检查在预料之中，保守派人民党早就暗示不会发现任何东西。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Austrian Greens question chancellor’s ability to remain in office after he is placed under investigation for corruption, bribery — RT World News](https://www.rt.com/news/536829-austria-kurz-corruption-probe-greens/)
+
+***编辑：小红帽 /翼族
+发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

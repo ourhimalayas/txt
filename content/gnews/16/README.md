@@ -2,35 +2,151 @@
 ---
 
 
-## 墙内要闻汇编
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1580466/)
+## 作为一家上市公司，脸书必须不能对其投资者撒谎，甚至隐瞒重要信息
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580543/)
 
-#### 素材：东京樱花团｜GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-1-2.png)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1007/20211007034206341.jpg)
-**10月8日汇编**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-15.jpg)https://gtv.org/video/id=615fc368d2e2b81748729059
+Scott Pelley
+斯科特·佩利
 
-1、[**“生死攸关”宣传喉舌传递特殊政治暗示**](https://www.aboluowang.com/2021/1007/1656482.html)
+Last month, Haugen’s lawyers filed at least eight complaints with the Securities and Exchange Commission
+上个月，豪根的律师向在金融市场执法的美国证券交易委员会
 
-10月5日，中共喉舌《央广网》的《每日一习话》栏目内容是“遵义会议是生死攸关转折点”，这个标题在中共十九届六中全会、中共二十大即将召开之际，似乎蕴含着特殊的政治暗示。在中共十一长假极力维稳之际，中共喉舌突然再谈《遵义会议是生死攸关转折点》，不仅令人们刚刚放松的神经再度紧张，同时也显示出中南海正紧锣密鼓地为下个月即将召开的“六中全会”造势。对于中共的这次“六中全会”，外界均普遍关注，因为有消息称会上将通过“中共第三份历史决议”。中共的前两份历史决议，均是对前任中共领导人错误的清算。同时，因事关中共二十大人事布局，此次六中全会对习近平、对中共党内反习势力均显得极为关键。一句“生死攸关”突显中共目前的处境。
+which enforces the law in financial markets.
+提交了至少8份投诉
 
-2、[**纪念辛亥革命110周年大会习将对台新论述**](https://www.aboluowang.com/2021/1008/1656710.html)
+The complaints compare the internal research
+这些投诉将内部研究
 
-据新华社稍早报道，纪念辛亥革命110周年大会将于10月9日上午10时在北京人民大会堂举行。消息人士称，习近平将有对台新论述，这是继2019年“告台湾同胞书”40周年纪念会和今年“七一”中共建党百年讲话后，习再度提出对台论述。台陆委会发言人邱垂正7日表示，辛亥革命纪念日，就是中华民国国庆日，中共办的活动是要否定中华民国主权；他更提醒，台方已制定“反渗透法”与“国安五法”，提醒国人不应参加此类的统战交流活动。
+with the company’s public face often matters CEO Mark Zuckerberg
+与公司的公众形象密切相关首席执行官马克·扎克伯格
 
-3、[**山西泄洪惨状：多村被淹 火车悬空 古城墙坍塌**](https://www.aboluowang.com/2021/1007/1656502.html)
+here testifying remotely to Congress last March,
+去年三月(他)在这里(视频)远程向国会作证进行比较
 
-综合陆媒报道，山西洪灾严重。受洪灾影响，山西南同蒲铁路祁县站至东观站之间的昌源河大桥桥台日前被冲垮，枕木悬空，导致致南同蒲铁路行车中断，截至10月7日，停运的旅客列车已增至10列。6日，山西晋中市咸样河水库水位再次超出警戒线并向四周溢出，淹没农田，同样威胁南同蒲铁路线的安全。
+Mark Zuckerberg (Facebook CEO)
+马克·扎克伯格（脸书首席执行官）
 
-4、[**中国十一长假 国内旅游消费不如人意**](https://www.aboluowang.com/2021/1008/1656699.html)
+we’ve removed content that could lead to imminent real world harm.
+我们删除了可能导致迫在眉睫的现实世界伤害的内容
 
-中共官方公布今年“十一”长假7天期间，国内旅游经测算共5.15亿人次，仅恢复至疫情前同期的70.1%；国内旅游收入则只有疫情前同期的59.9%。无论是人次或消费金额，都比去年还低。尽管先前有民间旅游平台业者预估，今年“十一”长假的中国国内旅游人次上看6.5亿人，但官方的测算数据显然少了许多。据中国文化和旅游部官网今天发布，经测算，1日至7日，全国国内旅游出游5.15亿人次，按可比口径较去年同期减少1.5%，按可比口径恢复至疫情前同期的70.1%。据发布，今年“十一”长假期间，实现国内旅游收入人民币3890.61亿元，较去年同期减少4.7%，恢复至疫情前同期的59.9%。
+We built an unprecedented third party fact checking program.
+我们构建了前所未有的第三方事实核查程序
 
-5、[**担心新政策变化 补教行业试水温转型**](https://www.aboluowang.com/2021/1008/1656667.html)
+The system isn’t perfect, but it’s the best approach that we’ve found,
+这个系统并不完美，但它是我们找到的最好的方法
 
-7月下旬，中共官方发布“关于进一步减轻义务教育阶段学生作业负担和校外培训负担的意见”，这项简称“双减”的政策开始在各地落实。其中对补教业者最具冲击性的，是义务教育阶段学科类课程不得在周末、寒暑假等节假日组织补习，且业者必须改登记为非营利性机构，不得上市融资，收费也需依官方规范。“双减”政策公布2个月后，在去资本化、去营利化的新形势下，补教业者几个月来努力转型，但业者仍担心官方突然颁布新的政策，当前的转型更多是试水温。其中，高途教育投入了成人和职业教育领域；新东方选择回到老本行，也就是大学生补教；好未来旗下业者正式推出素质教育品牌，发展科学、写程式、美育等素质课程；作业帮也将于近期上线素质类课程。
+to address misinformation in line with our country’s values,
+以解决符合我们国家价值观的错误信息
 
-（本文只代表个人观点，与Gnews网站无关）
+Scott Pelley
+斯科特·佩利
 
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+one of France’s Huggins lawyers is John Tye.
+豪根其中的一个律师是约翰·泰
+
+He’s the founder of a Washington legal group called whistleblower aid.
+他是华盛顿一家名为“吹哨人援助”的法律团体的创始人
+
+What is the legal theory behind going to the SEC
+支持去美国证券交易委员会的法律理论是什么？
+
+what laws are you alleging have been broken
+你指称违反了什么法律 ？
+
+John Tye (founder of whistleblower aid)
+约翰·泰（吹哨人援助的创始人）
+
+As a publicly traded company, Facebook is required to not lie to its investors,
+作为一家上市公司，脸书必须不能对其投资者撒谎
+
+or even withhold material information.
+甚至隐瞒重要信息
+
+So, the SEC regularly brings enforcement actions,
+因此，美国证券交易委员会定期提起执法诉讼
+
+alleging that companies like Facebook and others
+指控像脸书和其他的这样的公司
+
+are making material misstatements, and emissions that affect investors adversely.
+正在作出重大的错误陈述，以及对投资者产生不利影响的信息推送
+
+Scott Pelley
+斯科特·佩利
+
+One of the things that Facebook might alleges that she stole company documents.
+脸书可能声称她窃取了公司档的这件事
+
+John Tye
+约翰·泰
+
+The Dodd-Frank Act passed over 10 years ago at this point,
+在这一点上多德-弗兰克法案已于 10 多年前通过
+
+created an office of the whistleblower inside the SEC.
+在美国证券交易委员会内部设立了一个举报人办公室
+
+And one of the provisions of that law says
+而且该法律的一项规定说
+
+that no company can prohibit its employees from, from communicating with the SEC,
+任何公司都不能禁止其员工与美国证券交易委员会沟通
+
+and sharing internal corporate documents with the SEC.
+并与美国证券交易委员共享内部公司档
+
+Frances Haugen
+弗朗西丝·豪根
+
+I have a lot of empathy for Mark, and Mark has never set out to make a hateful platform,
+我对马克有很多同情，马克从来没有打算做一个可恶的平台
+
+but he has allowed choices to be made,
+但他允许做出选择
+
+where the side effects of those choices are the hateful polarizing content gets more distribution more reach
+这些选择的副作用是可恶的两极分化内容得到更多的传播更多的影响
+
+Scott Pelley
+斯科特·佩利
+
+Facebook declined an interview, but in a written statement to 60 minutes it said,
+脸书拒绝接受采访，但在一份给60 分钟的书面声明中表示
+
+“Every day our teams have to balance
+“每天我们的团队都必须平衡
+
+protecting the right of billions of people to express themselves openly
+保护数十亿人公开表达自己的权利
+
+with the need to keep our platform as safe and positive place.
+需要保持我们的平台作为安全和积极的地方
+
+We continue to make significant improvements
+我们继续进行重大改进
+
+to tackle the spread of misinformation and harmful content.
+解决错误信息和有害内容的传播
+
+To suggest we encourage bad content and do nothing is just not true. ”
+如果说我们鼓励不良内容而不采取行动，那是不对的。”
+
+“If any research had identified an exact solution to these complex challenges,
+“如果有任何研究确定了这些复杂挑战的确切解决方案，
+
+the tech industry, governments and society would have solved them a long time ago.”
+科技行业、政府和社会早就解决了这些问题。”
+
+原视频日期：2021/10/03
+原视频链接: https://youtube.com/watch?v=\_Lx5VmAdZSI
+视频时间段 : 9:54-12:33
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

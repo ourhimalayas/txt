@@ -2,166 +2,29 @@
 ---
 
 
-## 中共停电的目的是打垮美元和美股
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580019/)
+## 加拿大即将对12岁以下儿童接种中共病毒疫苗
+` 军迷wilson` [轉載自GNews](https://gnews.org/zh-hans/1580306/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/aii18-iytb4.jpg)
-[https://gtv.org/video/id=615f36a5d2e2b81748725a0d](https://gtv.org/video/id=615f36a5d2e2b81748725a0d)
+#### 加拿大多伦多枫叶农场 向真
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2C0A976B-0F43-426E-89D5-36F0F91645BF_1_201_a.jpeg)图片来源于网络
+目前加拿大12岁以上的中共病毒疫苗接种率已高达80%，但加拿大特鲁多政府还在公务员等群体极力推行强制疫苗接种和全民疫苗护照，纵观全球，确实找不到如此疯狂和恶毒的政府。
 
-**郭文贵
-Miles Guo**
+据《环球邮报》7日晚间头条新闻报道，辉瑞公司驻加拿大代表今天表示，辉瑞将在几天内向加拿大卫生部的审查团队，提交名为“社区”（Commirnaty）的12岁以下儿童专用疫苗的“临床试验数据”。
 
-记住啊
-Recuerden
+该代表称，上周辉瑞公司已经向美国卫生当局提交了相同的数据资料，他没有进一步说明美国方面的审批情况如何，但他透露加拿大的审批以及“与辉瑞的合作”已经到达“最后步骤”，辉瑞公司不久就可以将“儿科配方”的疫苗运抵加拿大。
 
-咱是有时间的
-Nosotros tenemos tiempo
+该款“社区”疫苗并不是最新研发的疫苗，去年12月已经授权给16岁以上的人接种，今年5月批准在12至15岁儿童接种，这一次辉瑞又将“社区”疫苗授权范围扩大到5岁儿童。
 
-咱不是没时间, 咱有时间的
-No es que no lo tengamos, si tenemos
+利用普通药物比如羟氯喹、伊维菌素等成功抗击中共病毒，从而获得今年诺贝尔奖提名的的医生泽连科博士，近日在接受媒体公开釆访时指出，据可靠数据，疫苗致死率和病毒致死率是惊人的100:1，因此可以断定，疫苗的出现不是为了制服病毒，而是为了让人类中的弱势群体消亡，即中共和国际黑暗势力释放中共病毒，是为了引出疫苗这个大杀器。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/截屏2021-10-07-下午10.21.33.png)图片来源于网络
+特鲁多无视加拿大疫苗接种率是非洲的40倍以上，但感染率却是非洲10倍的事实，在疫苗巨大危害已经被大量证据证明的情况下，仍然丧心病狂地将加拿大人和他们的幼童推入死亡陷阱！
 
-这不会
-Esto no…
+加拿大政府以公共安全为名，用欺骗和各种名目繁多的胁迫手段，将毒疫苗强行注入无辜民众的体内，如果接种者因此生病或死亡，这个无耻的政府就以纳税人的钱作一些轻微补偿了事。
 
-如果2025年灭不了共的话
-Si en el 2025 no podemos derribar al Partido Comunista
+相信所有的加拿大人都有巨大的疑问，加拿大政府为什么这么干？郭文贵先生在今天的直播中道出了其中的玄机：每剂疫苗的成本约为17美分，但卖给各国政府的价格是20至40美元 ，有平均200倍（取中间价）的暴利，疫苗生产商和各国政府当权的腐败分子已经形成固若金汤的利益同盟。至于有多少人直接参与到泽连科博士听说的疫苗杀人计划之中，需要由将来的正义大审判来揭晓。
 
-七哥也不会再去灭共了
-Entonces no lo haré más
+显然，特鲁多政府利用人民赋予的公权力大搞强制疫苗剥夺他人生命，已经构成犯罪，加拿大政府的非法行为无疑就是令人发指的暴政，如果允许特鲁多政府再执政4年，将是一个巨大的灾难！根据加拿大宪法，人民有推翻暴政的权利！
 
-你们也不会再看到七哥, 真的
-Tampoco me verán más, estoy hablando en serio
+参考来源：
 
-这个什么事都可能发生
-Puede suceder cualquier cosa
-
-我不会再
-No seguiré
-
-2025年如果是共产党还存在的话
-Si en 2025 el Partido Comunista todavía existe
-
-你们不会再看到七哥
-No me verán más
-
-但是我是不会的
-Pero esto no sucederá
-
-2025年绝对是
-En el año 2025 es definitivamente
-我是2015年
-En el año 2015
-
-我跟刘延平联系, 国内的人跟我联系, 我都说过
-Me contacté con Liu Yanping, la persona que estaba en China se comunicó conmigo y yo dije
-
-我等你们十年, 我都等死你们
-Los esperaré diez años, hasta la muerte los esperaré
-
-不是我今天说的
-No lo dije hoy
-
-我不相信共产党能过2025年
-Yo no creo que el Partido Comunista pueda pasar el año 2025
-
-这个是有时间限制的
-Esto habrá un tiempo limitado
-
-另外一个, 就刚才说这个共产党的停电
-Otra cosa, lo que estaba hablando hace rato sobre el apagón del Partido Comunista
-
-是不是跟世界经济
-Si tiene relación con la economía mundial
-
-为啥我说这个世界经济会跟这个共产党停电有关系
-Por qué digo entre ellos tienen relación
-
-大家没有
-Ustedes
-
-昨天你那个数里边没算
-No contaron los datos de ayer
-
-就你那些都是所谓的官方统计数据
-Los supuesto datos oficiales que tú dices
-
-你绝对要记住
-Debes recordar
-
-七哥从一开始爆料就说
-Yo desde el principio del Movimiento de Denunciantes dije
-
-如果你相信了任何一个共产党对着镜头和对着人
-Si crees en cualquier persona del Partido Comunista que habla frente a la cámara y a las personas
-
-说出的话和公开的表格和数据
-Acerca de los formularios y los datos públicos
-
-那你就是天下最愚蠢的傻子
-Entonces eres el tonto más estúpido del mundo
-
-共产党的那些, 所有的, 现在今天干的事情
-Todas las cosas que ha hecho y que hizo hoy en día el Partido Comunista
-
-他只有两个目标大家没搞明白
-Simplemente tiene dos objetivos que ustedes no lo han entendido todavía
-
-一切都是为了干倒美元, 干倒欧元而干的
-Todo es para destrozar al dólar estadounidense y el euro
-
-共产党所有干的事情就是杀敌一千
-Todo lo que ha hecho el Partido Comunista
-
-自伤一万, 我也得干
-Por matar a mil enemigos pueden sacrificar diez mil de los suyos
-
-我断我九指
-Me corto nueve dedos
-
-我断你一指
-Corto uno del tuyo
-
-我也得干
-Aún así lo tengo que hacer
-
-我都变成九指妖了, 我也认了
-Y si me convierto en Sara Wei, lo asumiré
-
-所有的现在想了美国和中美之间
-Toda la relación entre EE. UU y China
-
-过去5000亿的逆差
-El déficit de los últimos 500 mil millones
-
-5000亿的逆差到最后变成了几百亿的逆差
-El déficit de los 500 mil millones finalmente se convirtió en un déficit de decenas de miles de millones
-
-但几千亿美元的贸易
-Pero cientos de miles de millones de dólares en comercio
-
-他绝对能把美国股票给打垮了
-Él seguramente puede derribar a las acciones de EE. UU
-
-这个不是假的
-Esto no es falso
-
-真能打垮, 今天中共国就这么停电再停六个月
-Realmente puede destrozarlo, hoy, el PCCh si viene otro apagón de seis meses
-
-美国的股票市场经济一蹋糊涂
-La economía del mercado de valores de EE. UU será un desastre
-
-**——————————————————**
-
-**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1445260826655424515?s=24](https://twitter.com/se1y7cblljselva/status/1445260826655424515?s=24)
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 :洛杉矶盘古农场–彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[Evening Update: Pfizer eyes fast approval in Canada for COVID-19 vaccine for kids under 12](https://www.theglobeandmail.com/canada/article-evening-update-pfizer-eyes-fast-approval-in-canada-for-covid-19/)

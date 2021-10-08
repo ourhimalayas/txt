@@ -2,68 +2,73 @@
 ---
 
 
-## 辉瑞泄密：举报人透露内部电子邮件
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1579870/)
+## 各大媒体热炒布林肯对恒大的反应
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1579929/)
 
-- 编译：Jenny Ball
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/b.jpg)bnnbloomberg.ca
+媒体众多，标题只有两样，“美国国务卿布林肯警告中（共）国恒大危机可能影响‘整个世界’”、“美国国务卿布林肯敦促中（共）国政府在处理恒大危机时‘采取负责任的行动’”，内容基本一致，明显是在同一个操盘手下的操作。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-2-3.png)
+彭博社、路透社、华尔街日报、南华早报等需要花钱才能看到全文，其实他们想说什么，笔者也能猜个八九不离十，还是节省点吧！
 
-PFIZER 泄密：举报人公开记录，披露首席科学官兼全球研究高级总监讨论 COVID 疫苗的内部电子邮件……“我们希望避免有关胚胎细胞的信息流露出去”
+看看《知乎》（knews）的报道吧，题目就是那个“可能影响整个世界”的唬人标题。【1】
 
-- **辉瑞全球研究高级总监凡妮莎·格尔曼（****Vanessa Gelman****）：“从公司事务的角度来看，我们希望避免有关胚胎细胞的信息出现****……****现在传达这一信息的风险超过了我们可以看到的任何潜在好处，特别是对于一般可能获取此信息，并以我们可能不希望出现的方式使用它的公众成员。在过去的几周里，我们没有收到政策制定者或媒体就此问题提出的任何问题，因此我们希望尽可能避免提出这个问题。”**
+文章说，中共国的恒大噩梦已经引起了全世界的关注——现在有一个新的迹象表明，它可能对我们所有人产生“深远的影响”。
 
+美国国务卿安东尼·布林肯（Antony Blinken）对恒大的倒闭做出了令人震惊的评估，并警告该公司的倒闭可能“影响到整个世界”。
 
-- **格尔曼****: ****“我们一直在尽量不提及胚胎细胞系……已经有一个或多个起源可追溯到人类胎儿组织的细胞系，用于了与疫苗计划相关的实验室测试。”**
+中共国房地产巨头——目前是全球负债最多的房地产公司，约为4080亿美元——继续在崩溃边缘暴跌。
 
+在恒大危机的早期，金融业内人士担心这可能是中共国的雷曼时刻，是2008年金融危机的翻版。有人严重担心，这可能导致信贷紧缩，并产生可能蔓延到其他公司和部门的传染效应。
 
-- 辉瑞首席科学官菲利普·多米策（ Philip Dormitzer）：“用于 IVE 检测的 HEK293T 细胞，最终来自流产的胎儿。另一方面，梵蒂冈教义委员会已确认，他们认为支持生命的信徒接种是可以接受的。 辉瑞的官方声明很好地回答了这个问题，也是回应外部询问时应该提供的。”
+本周，有迹象表明，这些担忧可能会实现，另一家中共国房地产公司嘉年华（Fantasia）也错过了前一天到期的2.06亿美元债券的付款，导致破产。
 
+在本周接受彭博社（Bloomberg）的一次特别采访中，布林肯呼吁中共在应对不断升级的灾难时采取“负责任”的行动，这表明该公司的倒闭可能会影响到我们所有人。
 
-- 辉瑞内部人士兼制造质量审核员 梅丽莎·斯特里克勒 (Melissa Strickler)：“他们在电子邮件中如此具有欺骗性，就像最终的疫苗一样。 它只是让我更不相信它。”
+“深度效应”
 
+在周三（10月6日）接受《彭博电视台》煽动性的采访时，布林肯直接向中共发出呼吁。
 
-- 斯特里克勒：我加入 “真相工程”（Project Veritas）是因为，“当我自己的公司对我不诚实时，我没有其他人可以求助。我被告知要做的是信任 “真相工程”，并与你们的立法者和律师一起。”
+布林肯说：“中共国必须自己做出主权经济决策，但我们也知道，中共国在经济上的所作所为将对整个世界产生深远的影响，因为我们所有的经济都是如此的相互关联。”
 
+“因此，当涉及到可能对中共国经济产生重大影响的问题时，我们肯定会确保中共国采取负责任的行动，有效应对所有挑战。”
 
-- 斯特里克勒为她自己发起了一个 “传出发送行动”GiveSendGo 活动，公众可以在她需要的时候直接在经济上支持她。
+布林肯备受争议的警告立即在金融界引起了轩然大波，促使一些人猜测，这个故事可能比大多数人所意识到的更多。
 
+但他的评论也招致了一些批评，受人尊敬的研究机构《中（共）国褐皮书》（China Beige Book）在推特上声称，布林肯的警告“来自无知和无条理”。
 
-请点击这里观看视频：[**\*CLICK HERE TO WATCH THE VIDEO\***](https://u7061146.ct.sendgrid.net/ls/click?upn=4tNED-2FM8iDZJQyQ53jATUdaB0KOyvTRCuJBGyZ19lkV3EYzpoJ8BLPKMmwHAQnj4Wp5H_v6MjQTA5yALmG3TU149d5RMTZfeo3EXY7L-2FZSYjBEiLvY6khTDUE1pNJpmG9XNguMvlkRBP7llRZZQrPmHXLhYIKncyXoLnwRzmhM-2Fx-2FU-2BZRrW00lEm9lzSdVX3WSHtkrfKU-2Fx4UmCYIEzs689ylFli61VdW53tApvHBLreMibXO-2F21LBqXXmzp6erwKDgLR1tx-2BjfX4UsxuN-2FUfXTfihNXIhZyTGIA-2Ft-2FULQlWkRa578tcXFpmAj-2F3XDVmAyTdwDWMzhrDOwFuiHDyDu9HhaQFVeX7eY1cBUTzhOooQRv9K23hvLmNgvJSBKu4rZQtszWo5lo6eXWwE-2F7CHtK62-2BM9ylY2NydiBbeByMjXmFB9d4s-2FxkN3xVtIBCHUZ67fI)
+不管解释如何，布林肯的采访是拜登政府高级官员第一次的评论介入（笔者注，两周前鲍威尔对恒大事件作过淡化的评论），表明全球对北京处理此事的关注日益增强。
 
-[纽约 – 2021年10月6日]：“真相工程”今天发布了其 COVID 疫苗调查系列的第五部视频，其中包括对辉瑞内部人士 梅丽莎·斯特里克勒的采访。她泄露了内部电子邮件，显示公司高管告诉员工，要对在 COVID 疫苗的实验室测试中使用人类胎儿组织保密。
+恒大被起诉
 
-辉瑞的首席科学官菲利普·多米策承认，公司的疫苗计划中使用了流产的胎儿组织，但员工应该坚持辉瑞的优美叙述，省略任何提及流产的胎儿组织，以避免与公众产生任何问题。
+与此同时，本周，香港两家房地产经纪公司起诉该公司未兑付佣金后，恒大受到了新的打击。
 
-“用于 IVE 检测的 HEK293T 细胞最终来自流产的胎儿，”多米策说，“另一方面，梵蒂冈教义委员会已经确认，他们认为支持生命的信徒接受免疫接种是可以接受的。辉瑞的官方声明很好地回答了这个问题，也是回应外部询问时应该提供的。”
+据路透社报道，最近披露的一份诉讼显示，中原地产（Centaline）希望能够从恒大收回546,854美元，而米德兰控股公司（Midland Holdings）要求在香港的两项发展中支付7.6亿美元的未付佣金。
 
-辉瑞全球研究高级总监**凡妮莎·格尔曼，**告诫员工在公司疫苗计划中谈论人类胚胎细胞时要小心。“从公司事务的角度来看，我们希望避免让有关胚胎细胞的信息外流，”格尔曼说。
+“严重劣势”
 
-与辉瑞制造质量审核员梅丽莎·斯特里克勒共享这些电子邮件的举报人说，她不确定流产的胎儿组织是否能用于最终的 COVID 疫苗产品。
+在《南华早报》发表的一份分析报告中，牛津经济学院（Oxford Economics）首席经济学家吴宇人（Tommy Wu）概述了恒大最坏情况下可能发生的情况。
 
-“他们在电子邮件中如此具有欺骗性，这几乎就像是最后的疫苗中一样。 这只能让我不相信它，”她说。
+“在房地产市场迅速变质的更为严重的下行情景中，或者如果恒大重组中的经济和经济下滑加剧，经济急剧下滑将导致住房需求快速下降。”吴写道。
 
-斯特里克勒说，“真相工程”是她唯一可以讲述自己故事的地方。
+“房地产开发商的融资成本将增加，融资可能枯竭。
 
-人们可以通过以下网址直接捐款来支持她： [GiveSendGo.com](https://u7061146.ct.sendgrid.net/ls/click?upn=TeZUXWpUv-2B6TCY38pVLo9rG5tTwhTLErz-2BSsGLWTlFtItYemA0d5Br1zX7fK0S9Hz2cXPDLogGoDIljOrvlFlg-3D-3D3IED_v6MjQTA5yALmG3TU149d5RMTZfeo3EXY7L-2FZSYjBEiLvY6khTDUE1pNJpmG9XNguMvlkRBP7llRZZQrPmHXLhYIKncyXoLnwRzmhM-2Fx-2FU-2BZRrW00lEm9lzSdVX3WSHtkrfKU-2Fx4UmCYIEzs689ylFli61VdW53tApvHBLreMibXO-2F21LBqXXmzp6erwKDgLR1tx-2BjfX4UsxuN-2FUfXTfihEyNAZIyrCrCrEPgpRZ8W7nQfMdl5FsLWJimtlaFMcz0PVPuHuPhfcNeUVe3-2F-2FcCJiyQzKF-2FyKxGsZnlhe36f5-2ByLcUe47X5axqKwCO-2BW6tGyQDmmolqTrvTja2Lnvywl1falD0k03OR2oiScUSAC-2Fbc70AIo09hz3bWgSZprpvf)
+政府可能会采取更重要的措施来调整其对房地产的总体政策立场，并更广泛地限制对整体经济增长的影响。
 
-**评论：这篇真相揭露的文章，让我们看到了西方民主国家，现在在经历着与独裁国家一样的现实：**
+考虑到我们对中共国铁矿石的依赖，在整个事件中，澳大利亚的投资尤其巨大。
 
-- **没有了言论自由！****“****真相工程”是她唯一可以讲述自己故事的地方。**
-- **生活在谎言中！人们还在相信着****政策制定者，媒体，梵蒂冈，****哪怕是人们崇尚的“科学”，都在用谎言掠财害命。**
+现在，专家们几乎相信，无论恒大的情况如何，我们都会受到特别大的影响，因为中共国房地产行业不太可能很快经历另一轮的繁荣。”
 
+（全文完）
 
-**因为译者在与西方朋友交谈疫苗危害和用以人类大屠杀的目的时，听到最多的是：我相信政府，我相信科学。Me too, 我也曾经相信，但是当看到了他们的谎言，我和梅丽莎·斯特里克勒一样，而且我相信所有正常人看到真相后， 都会和举报人一样： “它只是让我更不相信它！”**
+布林肯在访欧期间，布隆伯格急于推出这样的采访，虽然有关内容只占全部采访的极小部分（美国国务院的新闻稿只有103个英文字【2】），但全世界媒体却纷纷报道，并进行了强劲解读。是在给习神施压，还是给世界吹风？明显是美国拜登政府给中共跪下了。
 
-（文章仅代表作者观点，与GNEWS无关）
+文贵先生早就告诫你们，中共的经济是个怎样的情况，要你们及早脱钩，你们执迷不悟，在暂时的、虚无缥缈的利益诱惑下，怀着惴惴不安的侥幸心理，继续铤而走险。如果说鲍威尔两周前淡化表态，反映的是自欺欺人式的自我安慰，布林肯昨天的言论则有点像“狼来了”的告诫。无论怎样，中共经济是个巨大的泡沫，美国人民的资金是泡沫构成的一部分，泡沫破灭只是时间问题，剩下的就是你们醒悟和如何应对的问题了，恒大问题只是冰山一角！
 
-**素材来源：**[creativedestructionmedia.com](https://creativedestructionmedia.com/news/2021/10/06/pfizer-leaks-whistleblower-goes-on-record-reveals-internal-emails/)
+参考链接：
 
-* * *
+【1】[https://knews.uk/us-secretary-of-state-antony-blinken-warns-china-evergrande-crisis-could-affect-the-whole-world/](https://knews.uk/us-secretary-of-state-antony-blinken-warns-china-evergrande-crisis-could-affect-the-whole-world/)
 
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+【2】[https://www.state.gov/secretary-antony-j-blinken-with-francine-lacqua-of-bloomberg/](https://www.state.gov/secretary-antony-j-blinken-with-francine-lacqua-of-bloomberg/)
