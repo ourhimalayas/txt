@@ -2,12 +2,20 @@
 ---
 
 
-## 2021年10月07日澳喜要闻（每日更新）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1580081/)
+## 雅典娜时报-第075期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1580148/)
 
-撰稿：GTV澳喜影像视频组、新闻组
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1008image0-3-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/1008image1-scaled.jpg)
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1082.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/1081.png)
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+***发布：小红帽***
+
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

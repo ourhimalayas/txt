@@ -2,68 +2,34 @@
 ---
 
 
-## 辉瑞科学家被隐摄：承认自然免疫比疫苗更有效
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1579857/)
+## 北欧三国承认莫德纳疫苗与青少年心脏疾病相关性
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579897/)
 
-- **编译：Lulumi**
+栏目记者/责任编辑：云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-102.png)
+瑞典6日宣布，承认年轻人在注射莫德纳疫苗后，心肌炎及心包膜炎等副作用的风险增加的事实现象，提出暂停在年轻人范围内该品牌新冠毒针疫苗的使用。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-4.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip266.png)在纽约展示的辉瑞公司的标志。(Timothy A. Clary/AFP via Getty Images)
+挪威和丹麦也重申对莫德纳疫苗的慎重态度。 瑞典公共卫生局展示了该mRNA疫苗和心肌炎和心包膜炎的风险相关性，男性年轻人为高危人群，多数在接种第2剂疫苗后的数周内发生。
 
-自然免疫是指人们在从COVID-19中恢复后对中共病毒享有的保护。
+丹麦已经取消了所有新冠限制令，春季引入的新冠健康通行证也从9月1日起不再使用。
 
-辉瑞科学家之一尼克·卡尔说：”当某人自然免疫时——比如他们感染了COVID——他们可能有更好的，比如不是更好，而是更多针对中共病毒的抗体”。
+(本文仅代表作者观点)
 
-他后来补充说：”所以你的抗体在那时候可能比接种疫苗更好。”
+参考链接：[憂心肌炎風險 瑞典丹麥建議年輕人暫不用莫德納](https://www.cna.com.tw/news/aopl/202110070037.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+[Denmark is first in EU to lift all coronavirus restrictions](https://www.politico.eu/article/denmark-first-eu-lift-coronavirus-restrictions/#:~:text=High%20levels%20of%20trust%20in,the%20country%27s%20successful%20vaccine%20rollout.&amp;text=Denmark%20is%20set%20to%20lift,to%20pre%2Dpandemic%20daily%20life)
+[Denmark’s high vaccination rate sees COVID pass ended for restaurants](https://www.euronews.com/2021/09/01/denmark-s-high-vaccination-rate-sees-covid-pass-ended-for-restaurants)
 
-辉瑞公司的另一位科学家克里斯·克罗齐告诉卧底记者，与接种疫苗相比，人们受到自然免疫力的保护”可能更多”。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-他说：”你的保护时间很可能更长，因为有自然反应。”
+终审：暗黑
+校正/发稿：谐趣园
 
-第三位据称为辉瑞公司工作的科学家拉胡尔·坎德克说，在员工不得不参加的许多研讨会中，他们被告知接种该公司的疫苗比感染中共病毒后的自然免疫力更安全，并且他们不能在公众面前讨论疫苗和自然免疫力的差异。
-
-他说：”虽然从逻辑上讲，如果你有抗体的积累，你应该能够证明你有这些积累的抗体。我不知道，从潜在的角度来看，这似乎并不那么疯狂。”
-
-这些科学家是在与非营利性报道组织“真相工程”的卧底记者谈话。
-
-辉瑞公司没有回复寻求评论的电子邮件或语音信箱。
-
-辉瑞公司在美国生产使用最多的COVID-19疫苗。截至10月5日，已经使用了超过2.3亿剂。联邦政府从辉瑞公司、莫德纳公司和强生公司购买COVID-19疫苗，并免费提供给接种这些疫苗的美国人。这些公司在2022年之前已经锁定了600多亿美元的资金，并准备在疫苗加强针上再赚取数十亿美元。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip267.png)
-
-越来越多的研究报告显示了天然免疫力的效力，特别是在某些群体。一些专家说，证据显示，自然免疫力与疫苗接种相似或更好。但是联邦官员和其他一些专家说，实际上每个人都应该接种疫苗，无论之前是否感染。他们认为，疫苗可以增强康复后的保护力。
-
-辉瑞公司等疫苗制造商的高管们很少讨论自然免疫力。
-
-根据克罗齐的推特账户的存档，他在辉瑞公司担任疫苗研发科学家，该账户在“真相工程”视频发布后被删除。
-
-他在一篇文章中写道：”我很自豪能成为辉瑞公司的一部分，这家公司明白帮助病人不仅仅是医学，而是提高健康素养，让人们不需要医学学位或辞典就能做出正确的医疗决定。”
-
-卡尔是纽约辉瑞公司的一名生物化学家，根据他的领英个人资料（该资料在视频被公开后被下线了），他从8月开始在辉瑞公司工作。卡尔拒绝对他在一家餐馆被问及时私下对“真相工程”的负责人詹姆斯·奥基夫所说的话发表评论。
-
-无法找到关于坎德克在辉瑞公司工作的证明。
-
-参议员兰德·保罗是一名医生，他说卧底视频相当于一个”真相炸弹！”
-
-保罗在推特上写道：”辉瑞公司的科学家坦率地承认自然获得的COVID免疫力等同于或优于疫苗。”
-
-**评论：**
-
-**辉瑞员工只说了自然免疫力比疫苗有效，没说疫苗刺突蛋白的毒性和长期危害，疫苗灾难还没到。**
-
-**现在全世界已经打了37亿剂毒疫苗，未来身边经过的人可能都是行走的病毒库，战友们一定要备好羟氯喹，锌，伊维菌素，地塞米松，青蒿素这些药，救人救己。**
-
-**为最黑暗的时刻做好万全准备，才有机会生存下来，迎接新中国联邦创造的美好未来。**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**新闻来源：[大紀元時報](https://www.theepochtimes.com/pfizer-scientists-in-undercover-videos-say-natural-immunity-likely-better-than-covid-19-vaccination_4034713.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-10-07)(The Epoch Times) | 作者：Zachary Stieber** **发布时间：2021年10月6日 **
-
-* * *
-
-***审核：文乐
-校对：信心满满
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip190.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

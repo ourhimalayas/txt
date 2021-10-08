@@ -2,165 +2,45 @@
 ---
 
 
-## 中共停电的目的是打垮美元和美股
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580019/)
+## 拜登说，他和习近平同意遵守有关的台湾协议
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580040/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/aii18-iytb4.jpg)
-[https://gtv.org/video/id=615f36a5d2e2b81748725a0d](https://gtv.org/video/id=615f36a5d2e2b81748725a0d)
+**【简评】 拜登总统的几句话，引起轩然大波。各位看官一定会云里雾里，疑惑啥时候拜习又通话了？不光我们丈二和尚摸不着头脑，台湾外交部也第一时间与美方确认到底拜登说的啥事，美相关官员确认没有最新通话后，双方才恍然大悟，原来拜登指的是9月份的通话，至此，台湾外交部才松了一口气，并向媒体表示“美国政府对台政策不变，美国将继续依据「台湾关系法」及「六项保证」，维持对台湾“坚若盘石的承诺”。一场闹剧后，我们不禁要问，台湾的未来在哪里？在我看来，台湾需要一个智慧的，有国际视野的，无私的领导人，跳出统独之圈，打破所谓的九二共识魔咒，与美国和新中国联邦深度合作，否则没有任何选择。**
 
-**郭文贵
-Miles Guo**
+**据《路透社》记者：Jeff Mason，2021年10月6日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/af3bj-z1cp6.jpg)图片来源：《ABC新闻》
+**《**路透社》华盛顿10月5日 —— 美国总统拜登周二表示，他已与中共国国家主席习近平就台湾问题进行了交谈，双方同意遵守“台湾协议”。目前，台北与北京之间的紧张局势不断升级。
 
-记住啊
-Recuerden
+“我已经与习近平谈过台湾问题。我们同意……我们将遵守台湾协议。”他说，“我们明确表示，我认为除了遵守协议外，他不应该做任何事情。”
 
-咱是有时间的
-Nosotros tenemos tiempo
+拜登似乎指的是华盛顿长期奉行的“一个中国政策”以及台湾关系法。一个中国政策即华盛顿正式承认北京而不是台北。台湾关系法则明确指出，美国决定与北京而不是台湾建立外交关系，是基于对台湾的未来将通过和平手段来决定的期望。
 
-咱不是没时间, 咱有时间的
-No es que no lo tengamos, si tenemos
+尽管此举意味着美国必须向台湾提供自卫手段，但华盛顿只承认中共国的立场，即台湾属于中国，只存在“一个中国”，在台湾主权问题上不采取任何立场。
 
-这不会
-Esto no…
+台湾外交部表示，已就拜登的言论向美方寻求澄清，并确信美国对台政策没有改变，美国对台湾的承诺“坚如磐石”，美国将继续帮助台湾维持其防御。
 
-如果2025年灭不了共的话
-Si en el 2025 no podemos derribar al Partido Comunista
+台湾外交部表示，“面对中国政府的军事、外交和经济威胁，台湾和美国一直保持着密切和畅通的沟通渠道。”
 
-七哥也不会再去灭共了
-Entonces no lo haré más
+拜登周二在密歇根州宣传他的一揽子支出计划，在返回白宫后对记者发表上述言论，此时正值台湾与中共国的紧张关系升级之际。
 
-你们也不会再看到七哥, 真的
-Tampoco me verán más, estoy hablando en serio
+中共国声称台湾是自己的领土，必要时应采取武力夺取。台湾表示，它是一个独立国家，将捍卫其自由和民主，并将紧张局势归咎于中共国。
 
-这个什么事都可能发生
-Puede suceder cualquier cosa
+台湾报道称，从周五开始的四天时间里，148架次中共国的飞机在其防空识别区的南部和西南部分地区飞行，而周五当天正值中共国重要的爱国节日 —— 国庆节。
 
-我不会再
-No seguiré
+美国周日敦促中共国停止在台湾附近的军事活动。
 
-2025年如果是共产党还存在的话
-Si en 2025 el Partido Comunista todavía existe
+美国国务院发言人内德·普莱斯周日在一份声明中说：“美国非常关注中华人民共和国在台湾附近的挑衅性军事活动，这破坏稳定，有误判的风险，并破坏地区和平与稳定。”
 
-你们不会再看到七哥
-No me verán más
+拜登似乎还提到了他在 9 月 9 日与习近平举行的 90 分钟通话，这是他们七个月以来的首次会谈，他们讨论了确保世界两大经济体之间的竞争不会陷入冲突的必要性。
 
-但是我是不会的
-Pero esto no sucederá
+**原文连接：**[https://www.reuters.com/world/asia-pacific/biden-says-he-chinas-xi-have-agreed-abide-by-taiwan-agreement-2021-10-05/](https://www.reuters.com/world/asia-pacific/biden-says-he-chinas-xi-have-agreed-abide-by-taiwan-agreement-2021-10-05/)
 
-2025年绝对是
-En el año 2025 es definitivamente
-我是2015年
-En el año 2015
+**（本文评论仅代表个人观点）**
 
-我跟刘延平联系, 国内的人跟我联系, 我都说过
-Me contacté con Liu Yanping, la persona que estaba en China se comunicó conmigo y yo dije
-
-我等你们十年, 我都等死你们
-Los esperaré diez años, hasta la muerte los esperaré
-
-不是我今天说的
-No lo dije hoy
-
-我不相信共产党能过2025年
-Yo no creo que el Partido Comunista pueda pasar el año 2025
-
-这个是有时间限制的
-Esto habrá un tiempo limitado
-
-另外一个, 就刚才说这个共产党的停电
-Otra cosa, lo que estaba hablando hace rato sobre el apagón del Partido Comunista
-
-是不是跟世界经济
-Si tiene relación con la economía mundial
-
-为啥我说这个世界经济会跟这个共产党停电有关系
-Por qué digo entre ellos tienen relación
-
-大家没有
-Ustedes
-
-昨天你那个数里边没算
-No contaron los datos de ayer
-
-就你那些都是所谓的官方统计数据
-Los supuesto datos oficiales que tú dices
-
-你绝对要记住
-Debes recordar
-
-七哥从一开始爆料就说
-Yo desde el principio del Movimiento de Denunciantes dije
-
-如果你相信了任何一个共产党对着镜头和对着人
-Si crees en cualquier persona del Partido Comunista que habla frente a la cámara y a las personas
-
-说出的话和公开的表格和数据
-Acerca de los formularios y los datos públicos
-
-那你就是天下最愚蠢的傻子
-Entonces eres el tonto más estúpido del mundo
-
-共产党的那些, 所有的, 现在今天干的事情
-Todas las cosas que ha hecho y que hizo hoy en día el Partido Comunista
-
-他只有两个目标大家没搞明白
-Simplemente tiene dos objetivos que ustedes no lo han entendido todavía
-
-一切都是为了干倒美元, 干倒欧元而干的
-Todo es para destrozar al dólar estadounidense y el euro
-
-共产党所有干的事情就是杀敌一千
-Todo lo que ha hecho el Partido Comunista
-
-自伤一万, 我也得干
-Por matar a mil enemigos pueden sacrificar diez mil de los suyos
-
-我断我九指
-Me corto nueve dedos
-
-我断你一指
-Corto uno del tuyo
-
-我也得干
-Aún así lo tengo que hacer
-
-我都变成九指妖了, 我也认了
-Y si me convierto en Sara Wei, lo asumiré
-
-所有的现在想了美国和中美之间
-Toda la relación entre EE. UU y China
-
-过去5000亿的逆差
-El déficit de los últimos 500 mil millones
-
-5000亿的逆差到最后变成了几百亿的逆差
-El déficit de los 500 mil millones finalmente se convirtió en un déficit de decenas de miles de millones
-
-但几千亿美元的贸易
-Pero cientos de miles de millones de dólares en comercio
-
-他绝对能把美国股票给打垮了
-Él seguramente puede derribar a las acciones de EE. UU
-
-这个不是假的
-Esto no es falso
-
-真能打垮, 今天中共国就这么停电再停六个月
-Realmente puede destrozarlo, hoy, el PCCh si viene otro apagón de seis meses
-
-美国的股票市场经济一蹋糊涂
-La economía del mercado de valores de EE. UU será un desastre
-
-**——————————————————**
-
-**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1445260826655424515?s=24](https://twitter.com/se1y7cblljselva/status/1445260826655424515?s=24)
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 :洛杉矶盘古农场–彩虹Rainbow
+翻译/评论：洛杉矶盘古农场 – 钢蛋儿
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
+发布 :洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

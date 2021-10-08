@@ -2,20 +2,31 @@
 ---
 
 
-## 日美确认岸田文雄领导下两国将密切合作
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1579846/)
+## 新冠溯源新证据！中共早在2019年5月已大量采购PCR检测
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579887/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+责任编辑：FoxRina
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-116.png)
+根据澳大利亚网络安全公司 Internet 2.0 的一份报告，在中共首次正式报告新型冠状病毒病例前几个月，政府合同报告显示，2019 年 5 月起武汉地区的PCR 检测采购量激增。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/J-1.jpg)diplomaticourier.com
-日本共同社10月7日报道，日美高级外交官在电话会谈中同意加强两国的双边联盟，并在岸田文雄这个星期成为日本新首相后继续为建立一个自由开放的印度洋-太平洋地区而努力。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-6.jpeg)
 
-日本外相茂木敏充(Toshimitsu Motegi)与美国国务卿安东尼·布林肯(Antony Blinken)在15分钟的对话中确认将继续密切合作。声明称，双方“就包括朝鲜和中共国在内的地区形势以及气候变化合作等广泛问题交换了意见”。茂木敏充将继续在岸田文雄内阁任职。
+数据显示，2019 年湖北省的 PCR 检测花费了约 6740 万元人民币，几乎是 2018 年总数的两倍。月度采购数据显示，2019年5 月份的订单激增，尤其是来自 CDC 采购商和中国人民解放军的订单。
 
-美国国务院在当天的新闻发布会上表示：“两国确认，美日同盟是印度洋-太平洋地区及周边地区和平、安全、繁荣的基石。”同时两国重申他们致力于通过包括韩国在内的三边合作来解决及实现朝鲜半岛的完全无核化。
+报告认为，5 月份支出的增加表明这可能是新冠感染的最早开始日期。从 7 月到 10 月，采购量也大幅上升，尤其是来自武汉科技大学的采购量。该机构2019年PCR检测经费892万元，约为上年的8倍。武汉科技大学与当地医院和公共卫生当局一起，在应对新疾病的爆发方面发挥着直接作用。报告评估，这些团体的参与提供了证据，新冠大流行开始的时间比中共向世卫组织通报的时间要早​​得多。
 
-岸田文雄称，两国外长举行电话会谈之前，两国领导人周二曾通话，美国总统拜登(Joe Biden)在通话中对尖阁列岛(Senkaku Islands，中共国称钓鱼岛)的防卫做出了“强有力的承诺”。岸田文雄表示，双边联盟仍是日本外交政策的基础，他将与包括华盛顿在内的伙伴合作，解决北京方面在周边海域“试图通过武力改变现状”的问题。
+(本文仅代表作者观点)
 
-参考链接：
-[https://english.kyodonews.net/news/2021/10/b102bdd2318a-urgent-top-japan-us-diplomats-agree-to-strengthen-bilateral-alliance.html](https://english.kyodonews.net/news/2021/10/b102bdd2318a-urgent-top-japan-us-diplomats-agree-to-strengthen-bilateral-alliance.html)
+参考链接：[China PCR test orders soared before first confirmed COVID case](https://asia.nikkei.com/Spotlight/Coronavirus/China-PCR-test-orders-soared-before-first-confirmed-COVID-case)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

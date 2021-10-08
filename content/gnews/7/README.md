@@ -2,46 +2,50 @@
 ---
 
 
-## 拜登说，他和习近平同意遵守有关的台湾协议
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580040/)
+## 中共政府要求天然气进口商承担高昂成本以解决能源危机
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1580080/)
 
-**【简评】 拜登总统的几句话，引起轩然大波。各位看官一定会云里雾里，疑惑啥时候拜习又通话了？不光我们丈二和尚摸不着头脑，台湾外交部也第一时间与美方确认到底拜登说的啥事，美相关官员确认没有最新通话后，双方才恍然大悟，原来拜登指的是9月份的通话，至此，台湾外交部才松了一口气，并向媒体表示“美国政府对台政策不变，美国将继续依据「台湾关系法」及「六项保证」，维持对台湾“坚若盘石的承诺”。一场闹剧后，我们不禁要问，台湾的未来在哪里？在我看来，台湾需要一个智慧的，有国际视野的，无私的领导人，跳出统独之圈，打破所谓的九二共识魔咒，与美国和新中国联邦深度合作，否则没有任何选择。**
+## China tells gas importers to bear high cost to fix energy crisis
 
-**据《路透社》记者：Jeff Mason，2021年10月6日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/af3bj-z1cp6.jpg)图片来源：《ABC新闻》
-**《**路透社》华盛顿10月5日 —— 美国总统拜登周二表示，他已与中共国国家主席习近平就台湾问题进行了交谈，双方同意遵守“台湾协议”。目前，台北与北京之间的紧张局势不断升级。
+China is urging its liquefied natural gas (LNG) importers to procure more supply to fix its energy crisis, while providing little financial support for firms paying record-high rates for the super-chilled fuel.
 
-“我已经与习近平谈过台湾问题。我们同意……我们将遵守台湾协议。”他说，“我们明确表示，我认为除了遵守协议外，他不应该做任何事情。”
+中共政府正在敦促其液化天然气 (LNG) 进口商提供更多供给以解决当前其能源危机问题，但它却没有为需要支付创纪录高价购买这一超冷燃料的企业提供财政补贴。
 
-拜登似乎指的是华盛顿长期奉行的“一个中国政策”以及台湾关系法。一个中国政策即华盛顿正式承认北京而不是台北。台湾关系法则明确指出，美国决定与北京而不是台湾建立外交关系，是基于对台湾的未来将通过和平手段来决定的期望。
+The government isn’t providing enough subsidies for recent purchases, making it difficult for the nation’s smaller gas distributors to meet the request to secure enough fuel before winter, according to traders with knowledge of the matter. While some firms are avoiding buying for now, they may ultimately have to bow to Beijing’s wishes.
 
-尽管此举意味着美国必须向台湾提供自卫手段，但华盛顿只承认中共国的立场，即台湾属于中国，只存在“一个中国”，在台湾主权问题上不采取任何立场。
+据知情交易员透露，政府没有为近期的采购提供足够的补贴，这使得该国小型天然气分销商难以实现在冬季到来之前获得足够燃料的需求。虽然一些公司目前都在逃避购买，但他们最终可能不得不屈从于中共政府的意愿。
 
-台湾外交部表示，已就拜登的言论向美方寻求澄清，并确信美国对台政策没有改变，美国对台湾的承诺“坚如磐石”，美国将继续帮助台湾维持其防御。
+North Asian LNG spot prices surged to a record high this week as importers from China to the UK intensify competition for a shrinking pool of available winter supply. The world is grappling with an energy crisis as the post-pandemic recovery collides with supply restraints, sending fuel and power prices rallying to eye-watering heights.
 
-台湾外交部表示，“面对中国政府的军事、外交和经济威胁，台湾和美国一直保持着密切和畅通的沟通渠道。”
+由于从中共国到英国的进口商抢购所剩不多的冬季燃料的竞争加剧，北亚液化天然气现货价格本周飙升至历史新高。由于疫情后经济恢复与有限的供给发生冲突，全世界正陷入能源危机，从而导致燃料和电力价格上涨至令人瞠目结舌的高度。
 
-拜登周二在密歇根州宣传他的一揽子支出计划，在返回白宫后对记者发表上述言论，此时正值台湾与中共国的紧张关系升级之际。
+Many of China’s gas distributors are state-owned, and are used to taking losses buying pricey LNG and selling to domestic consumers at fixed rates. The largest companies are still willing to pay high spot prices to attract shipments away from rivals in Asia and Europe.
 
-中共国声称台湾是自己的领土，必要时应采取武力夺取。台湾表示，它是一个独立国家，将捍卫其自由和民主，并将紧张局势归咎于中共国。
+中共国的许多天然气分销商大多都是国有企业，习惯于亏损买入昂贵的液化天然气并以固定价格出售给国内消费者。大的公司仍然愿意支付高昂的现货价格从亚洲和欧洲的竞争者手中抢购出货量。
 
-台湾报道称，从周五开始的四天时间里，148架次中共国的飞机在其防空识别区的南部和西南部分地区飞行，而周五当天正值中共国重要的爱国节日 —— 国庆节。
+But with a single LNG spot cargo currently costing more than $130 million, compared to about $17 million this time last year, the extreme losses are making buyers blanch. Also, some LNG importers have struggled to secure additional loans from banks to make purchases, traders said.
 
-美国周日敦促中共国停止在台湾附近的军事活动。
+但随着目前单艘液化天然气现货货船的成本超过 1.3 亿美元，相比于去年同期的大约 1,700 万美元，极端的损失让买家望而却步。此外，交易员表示，一些液化天然气进口商一直难以从银行获得额外贷款来进行购买。
 
-美国国务院发言人内德·普莱斯周日在一份声明中说：“美国非常关注中华人民共和国在台湾附近的挑衅性军事活动，这破坏稳定，有误判的风险，并破坏地区和平与稳定。”
+At least two second-tier companies including Shenzhen Energy Group Co. have decided against purchasing shipments because of the high prices, despite the government orders, according to traders. But China’s largest state-owned importers have been busy procuring spot supply.
 
-拜登似乎还提到了他在 9 月 9 日与习近平举行的 90 分钟通话，这是他们七个月以来的首次会谈，他们讨论了确保世界两大经济体之间的竞争不会陷入冲突的必要性。
+据交易员称，尽管有政府的命令，至少有包括深圳能源集团有限公司在内的两家二线公司因为价格居高不下已决定不再采购。但中共国大型国有进口商一直忙于采购现货供应。
 
-**原文连接：**[https://www.reuters.com/world/asia-pacific/biden-says-he-chinas-xi-have-agreed-abide-by-taiwan-agreement-2021-10-05/](https://www.reuters.com/world/asia-pacific/biden-says-he-chinas-xi-have-agreed-abide-by-taiwan-agreement-2021-10-05/)
+The government is trying to make it easier for energy companies to secure loans. Banks and other financial institutions should prioritise lending to qualified mines and power plants so they can increase thermal coal and electricity output, China Banking and Insurance Regulatory Commission said in a statement Tuesday.
 
-**（本文评论仅代表个人观点）**
+政府正努力让能源公司更容易获得贷款。中国银保监会周二在一份声明中表示，银行和其他金融机构应优先向符合条件的矿山和电厂提供贷款，以增加燃煤和电力的产出。
 
-翻译/评论：洛杉矶盘古农场 – 钢蛋儿
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 明子
-发布 :洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+简评：如本篇报道所述，为了解决中共国的能源危机，在不能提供补贴的情况下，中共政府要求天然气进口商自负超额成本完成政府的进口采购命令，在这个命令执行过程中，小型分销商因为成本过高而回避采购，一些大型国企也是在亏损的状态下买入昂贵的天然气。由于疫情后经济恢复与有限的供给发生冲突，造成了当下全球性的能源危机，而中共政府自去年下半年颁布澳大利亚煤炭进口禁令以来，一直没能找到合适的澳洲煤炭替代品。如今能源短缺，中共不得不在近日放风要逐渐恢复澳大利亚煤炭进口。但是，可怕的是，不仅是天然气价格高企，今年澳洲煤炭的价格也已经达到了去年同期的2倍多。在经济低迷、外汇短缺、能源供应不足的情况下，我们不禁怀疑，中共政权能否撑过这个冬天。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[新闻链接](https://www.energyvoice.com/oilandgas/asia/354657/china-tells-gas-importers-to-bear-high-cost-to-fix-energy-crisis/)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
