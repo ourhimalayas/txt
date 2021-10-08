@@ -2,49 +2,43 @@
 ---
 
 
-## 埃隆·马斯克表示星链互联网服务不久将在全国范围内推出
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1580542/)
+## GTV投资人抗议SEC进入第四天
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1580654/)
 
-据《混搭网》迈克尔·坎（Michael Kan）2021 年 10 月 7 日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-2.png)图片来源于网络
-SpaceX首席执行官埃隆·马斯克（Elon Musk）表示，卫星互联网服务星链将于本月晚些时候在全国范围内推出。
-
-马斯克是在他之前提到星链将于10月退出测试阶段后发表上述声明的。周四，一位推特用户询问这对美国消费者，特别是南方消费者意味着什么？该用户写道：“星链测试版将于本月结束，如前所述，我们会看到更多的南方州（路易斯安那州、德克萨斯州等）推出吗？”。
+栏目记者/责任编辑：葛朗台太太
 
 
 
-> Starlink beta is ending this month as stated, will we see more of the southern states (Louisiana, Texas, etc.) roll outs?
-> — JC\_Comrade (@jc\_comrade) [October 7, 2021](https://twitter.com/jc_comrade/status/1446108729816977424?ref_src=twsrc%5Etfw)
 
 
-*埃隆·马斯克 @elonmusk*
-*FSD Beta 10.2 将于周五午夜向大约 1000 名安全评分为 100/100 的业主推出。*
-*在此之后，发布将持续数天，以查看进展情况。*
-*如果这看起来不错，测试版将逐渐开始推广到 99 分及以下。*
-*2021年10月7日*
- 
-*JC\_同志 @jc\_comrade*
-*回复 @elonmusk Starlink 测试版将于本月结束，我们会看到更多的南部各州（路易斯安那州、德克萨斯州等）推出吗？*
-*2021年10月7日*
- 
-*埃隆·马斯克 @elonmusk*
-*回复 @jc\_comrade 月底应该会全国推广。 注意，仍受同一地区用户高峰数量的限制。*
-*随着更多卫星的发射，这种情况将有所改善。*
-*2021年10月7日*
-作为回应，马斯克在推特上写道：“应该在本月底在全国范围内推出。注意，仍受同一区域内用户峰值数量的限制。随着更多卫星的发射，这将有所改善。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-该声明表明，SpaceX正准备向美国各地的用户发送更多的星链终端。然而，如果你居住的地区已经满是现有的星链用户，你仍然需要等待，直到该公司能够将更多卫星发射到轨道上，以创造更多的网络容量。目前为全球超过10万 名用户提供服务。
 
-最大的问题是SpaceX如何定义全国范围。星链已经服务于美国全国大多数州。但速度测试（Speedtest）背后的奥克拉 （Ookla）公司的数据表明，星链的覆盖范围仍然存在很大差距。
 
-在后续推文中，马斯克补充道：“星链专为中低人口密度地区而设计，这意味着我们可以在某些地区快速达到最大用户数。请提前注册以确保获得一个位置。随着更多卫星的推出，SpaceX将能够提供更多服务。”
 
-感兴趣的用户可以在该公司的官方网站上为星链下99美元一份的预购订单。然而，这项服务已经有超过50万名用户注册试用星链。因此，星链官网在某些情况下会说，这项服务要到2022年甚至2023年才能提供，这取决于不同的地区。
 
-为了吸引更多的客户，SpaceX正准备用一种更易于制造的新版本来提高星链碟形终端的生产。这些新碟形终端预计将在今年晚些时候上市。
 
-【本文仅代表作者个人观点，与Gnews无关】
 
-原文链接：[https://mashable.com/article/spacex-starlink-nationwide-rollout](https://mashable.com/article/spacex-starlink-nationwide-rollout)
+10月7日，GTV投资人再次出现在SEC华盛顿总部进行抗议。 未参与抗议的投资人又是如何看待这次抗议活动的呢？ 请看本台记者与一位投资人的连线：
 
-翻译：烟波浩淼 |校对：雨山溪桥客 |编辑&发布：黎明的光芒
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

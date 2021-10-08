@@ -2,58 +2,40 @@
 ---
 
 
-## 屏蔽林依然8月9日的新浪微博坐实新浪的疫苗杀人本色
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1578579/)
+## 欧洲已有四个国家限用莫德纳疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1578704/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/001_副本.jpg)
-日前我们发布了[**林依然关于疫苗的新浪微博引来无数脑梗心梗受害者留言**](https://gnews.org/zh-hans/1547117/)的文章，在文章中我们详细记录了在[林依然LLL\_](https://weibo.com/yiranbaby?refer_flag=1005055014_) [2021年8月9日 01:01](https://weibo.com/1797014755/KszfAuFd4?from=page_1005051797014755_profile&amp;wvr=6&amp;mod=weibotime) 来自 [HUAWEI P40 Pro 5G](https://app.weibo.com/t/feed/6uaYFC)
+#### 撰稿：Grace
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/7-4.jpg)图片来源：网络合成
+基于一项未公布的研究，瑞典公共卫生局预测（中共病毒疫苗的 ）“副作用的风险增加，比如心肌炎或心包炎”。
 
-#新冠疫苗副作用#有没有人打完新冠疫苗后发烧，血小板减少的？ ​​​​那条微博下的评论——
+这项研究由丹麦的Statens Serum Institut（一个负责绘制冠状病毒在该国传播情况的政府机构）、瑞典的医疗产品局、挪威的国家公共卫生研究所以及芬兰的卫生和福利研究所进行。丹麦政府卫生机构的Bolette Soeborg说，最终结果预计将在一个月左右公布。
 
-在原文中我们提到：
+据KSBW 10月7日报道，**在周三，瑞典、丹麦和挪威决定暂停或不鼓励年轻人使用莫德纳Moderna疫苗。**
 
-［但是我们要重点关注的是在本文发出后林依然的这条新浪微博的命运将会如何——如果这条微博被和谐或者这条微博下边的评论被删除，那么这条微博和已经留存的所有评论都可以作为新浪及背后控制新浪的中共的反人类罪；
+**瑞典已期暂停对30岁以下的人使用莫德纳，丹麦表示他们不会向18岁以下的人提供该疫苗，而挪威敦促30岁以下的人改用辉瑞公司的疫苗。**
 
-如果这条微博和下边的评论被留置，那么我们希望看到每一个在评论区留下自己及亲人因疫苗而产生副作用的网友可以被重视，并且进行一对一的调查和确认，当然，即使这条微博和下边的评论被留置，后边的可能性几乎是零，我知道我想多了，因为在这个国家，一条反党言论的发言者都可以被精确定位，而任何一个丢失的孩子却永远也无法通过它们精准控制的监控和大数据网找到。］
+美国和欧洲监管机构警告说，**Moderna和辉瑞公司的疫苗似乎都与青少年和年轻成年人的胸痛和心脏炎症的反应有关。**
 
-现在这条记录着大量因植入新冠疫苗而引发各种后遗症的新浪微博终于不见了，据[**林依然LLL\_**](https://weibo.com/yiranbaby) [2021年9月23日 16:10](https://weibo.com/1797014755/KzvqH9rcG?from=page_1005051797014755_profile&amp;wvr=6&amp;mod=weibotime) 来自 [🍓小姐的HarmonyOS设备](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
+据路透社10月7日报道，**芬兰周四加入瑞典，丹麦和挪威的行列，暂停对年轻男性使用莫德纳（MRNA.O）的中共病毒疫苗，并限制其使用。**
 
-没删，被屏蔽了。 ​​​​
-![](https://assets.gnews.org/wp-content/uploads/2021/10/001-7.jpg)
-这条记录着中共国部分因植入疫苗而产生不良反应的新浪微博的不可见，至少可以证明新浪微博和它背后的主子中国共产党一样，是反人类的犯罪集团，所以我们也有必要把这条微博下面的评论做一下存底。
+但是芬兰卫生研究所所长Mika Salminen说，**芬兰将为1991年及以后出生的男性提供辉瑞公司的疫苗。**
 
-令人欣喜的是我们依然可以看到黑夜里发出的新中国联邦的光芒——
+Mika 还说：”一项涉及芬兰、瑞典、挪威和丹麦的北欧研究发现，**接受莫德纳 Spikevax的30岁以下男性患心肌炎的风险比其他人略高。**
 
-[新联邦之利刃](https://weibo.com/7545869003)：青蒿素9月24日 00:40
+**瑞典公共卫生局表示，这些心脏症状在年轻男性中最为常见。2019年，约有300名30岁以下的人因心肌炎在医院接受治疗。**
 
-[暴暴李小暴](https://weibo.com/1886186695)：战🈶？9月24日 02:00
+**数据表明，发病率的增加也与接种中共病毒疫苗有关，主要是在青少年和年轻成年人中，而且主要是在男孩和男性中。**
 
-[\_一三土一\_](https://weibo.com/3892199609)：回复[@暴暴李小暴](https://weibo.com/n/%E6%9A%B4%E6%9A%B4%E6%9D%8E%E5%B0%8F%E6%9A%B4?from=feed&amp;loc=at):健身了吗9月25日 10:40
+瑞典公共卫生局说，新的初步分析表明，莫德纳疫苗的这种副作用表现得特别明显，尤其是在打了第二剂量之后。**卫生局官员表示这种风险的增加是在接种疫苗后的四周内，特别是在前两周看得到的**。其暂停莫德纳疫苗的决定有效期至12月1日。
 
-[解忧杂货店1号](https://weibo.com/5531762878)：回复[@暴暴李小暴](https://weibo.com/n/%E6%9A%B4%E6%9A%B4%E6%9D%8E%E5%B0%8F%E6%9A%B4?from=feed&amp;loc=at):原来占有真的在身边9月25日 11:05
+报道称，**瑞典、丹麦，挪威和芬兰做出的这些暂停使用莫德纳疫苗的决定都是基于这一项未公布的研究**。
 
-[新联邦之利刃](https://weibo.com/7545869003)：回复[@暴暴李小暴](https://weibo.com/n/%E6%9A%B4%E6%9A%B4%E6%9D%8E%E5%B0%8F%E6%9A%B4?from=feed&amp;loc=at):无处不在9月28日 20:17
+但是，意大利卫生部长Roberto Speranza告诉记者，意大利不打算暂停莫德纳疫苗。
 
-在这个至暗的时代里，在中共国有那么多因疫苗致死、致残者，他们哪怕发出的一点点关于疫苗致死致残的真相，都会被扑灭，但是真相就是刺破黑暗的利器，无论在哪里，我们都可以喜逢队友，我们都可以看到真相的力量，今天新浪微博可以封杀真相，明天我们必然用真相埋葬新浪微博和它背后的反人类集团——中国共产党！
+**新闻来源****：**
 
-撰稿：喜马拉雅的肉夹馍
-
-审核：喜马拉雅的馍夹肉
-
-校对：Maarago
-
-（文章内容仅代表作者个人观点）
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+1. [Sweden suspends Moderna vaccine for those age 30 and under](https://www.rebelnews.com/sweden_suspends_moderna_vaccine_for_those_age_30_and_under)
+2. [Finland joins Sweden and Denmark in limiting Moderna COVID-19 vaccine](https://www.reuters.com/world/europe/finland-pauses-use-moderna-covid-19-vaccine-young-men-2021-10-07/)
+3. [Sweden, Norway pause Moderna shots for patients under 30](https://www.ksbw.com/article/sweden-norway-moderna-shots-for-patients-under-30/37887625)[Sweden, Denmark, Finland pause Moderna vaccine for younger people](https://insiderpaper.com/sweden-denmark-finland-pause-moderna-vaccine-for-younger-people/)

@@ -2,21 +2,33 @@
 ---
 
 
-## 欧洲议会通过决议，关切台海等中共国议题
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1580603/)
+## 视频| 真相工程 &#8211; 辉瑞科学家爆料 ：你的自然免疫抗体比新冠疫苗更好
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1580741/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/hemicycle_str-1633639815639.jpg.jpg)欧洲议会通过决议，关切台海等中共国议题 网络图片
-据路透社10月7日报道，欧洲议会于10月6日高票通过“展望欧盟—美国关系”决议，强调欧盟必须与美国就保护中共国少数民族人权、降低南海、东海、香港及台湾海峡的紧张情势等议题寻求共识及合作的可能。
+制作：香草山视频部
 
-台湾外交部对欧洲议会再度关切台海的和平稳定表示感谢，并指出中共国军机近日频繁入侵台湾“防空识别区”。台湾外交部呼吁中共国停止军事威胁及破坏区域和平稳定。台湾政府与2,350万台湾人民有决心和能力捍卫国家主权与台海和平。中共妖孽存在一天，整个世界就动荡不安。
-
-新闻参考链接：[https://amp.rfi.fr/cn/中国/20211007-欧洲议会通过决议促与美国合作关切台海紧张等中国议题](https://amp.rfi.fr/cn/中国/20211007-欧洲议会通过决议促与美国合作关切台海紧张等中国议题)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
+
+
+
+*发稿：雪梨*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

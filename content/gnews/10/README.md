@@ -2,39 +2,51 @@
 ---
 
 
-## 菲律宾和澳大利亚将扩大海上合作
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1580617/)
+## 疫苗公司花费巨资游说美国政府推动疫苗接种
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1580742/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ph-australia.jpg)图片来源：filipinawives.com.au
-**整理报道：**小红帽
+栏目记者/责任编辑：AsG諾雅
 
-在西菲律宾海面临日益严峻的挑战之际，菲律宾和澳大利亚将扩大在海洋领域的合作。
 
-澳大利亚驻菲律宾大使史蒂文·罗宾逊(Steven Robinson AO)表示，他最近将飞往距离西菲律宾海最近的巴拉望省，与该地区的军事和海岸警卫队官员会面，了解他们面临的挑战，以及澳大利亚可以如何支持他们。
 
-“我们可以通过一项新的菲律宾民事-海事安全计划来做到这一点，扩大我们对海上合作的参与，该计划旨在支持菲律宾，加强其民海安全”，罗宾逊周三（10月6日） 在他的马卡蒂市的住所告诉记者。
 
-罗宾逊说，上周他访问菲律宾武装部队总部期间也讨论了这一新的合作。
 
-澳大利亚大使馆将于周四（10月7日）与堪培拉当局讨论上述合作。合作将侧重于海洋治理系统、机构间协调、自然资源管理和环境保护、技术援助、研究和伙伴关系等方面。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-罗宾逊说，澳大利亚支持国际法，尤其是《联合国海洋法公约》。
 
-今年年初，自从在朱利安·费利佩（Julian Felipe）牛轭礁（Whitsun reef）发现了200多艘中共国民兵船只后，菲律宾加强了在西菲律宾海的巡逻。
 
-尽管菲律宾一再抗议，中共国船只继续随着北京当局在南海积极执行其虚构的九段线侵占西菲律宾海。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
 
-**参考新闻：**[PH, Australia expanding maritime cooperation | Global News (inquirer.net)](https://globalnation.inquirer.net/199446/ph-australia-expanding-maritime-cooperation)
 
-***编辑：小红帽 /翼族
-发布：小红帽***
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+国家脉动10月7日揭秘，辉瑞和摩德纳疫苗公司不约而同地在中共病毒大流行中，巨幅增加了游说经费。其中，辉瑞公司的游说活动达到了十年来的最高水平，数十名高知名度的政治相关人员代表该药厂。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-39.jpg)
+2019年，辉瑞在游说工作上花费了1100万美元，之后将总额增加到自2010年以来最高的1315万美元。2019年，该公司雇用了77名游说者，并于2020年增加到102名，而2021年到目前为止，辉瑞公司已经申报了92名说客。其强大的游说团队雇员包括了两党中有影响力的诸多人士。摩德纳公司则显得相形见绌，2019年，该公司在游说方面花费了4万美元，雇用了一名说客；2020年花费28万美元，说客增至两名；2021年上半年，该公司已经花费了29万美元，并而外雇用了12名说客。
+
+文末，作者披露了一份83人的由上述两家公司申报的说客名单，许多人来自高级别背景，如白宫、总统候选人、众议院议长办公室和一些国会办公室，其涉及人数之众、范围之广、和影响力之大令人震惊，也完全解释了美国疫苗强制接种背后不可告人的原因。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1.2-2.jpg)
+信息链接：
+[REVEALED: Pfizer Lobbying Hits Decade High as DOZENS of High-Profile Political Appointees Become Big Pharma Reps](https://thenationalpulse.com/exclusive/pfizer-and-moderna-increase-lobbying-efforts/)[.](Pfizer%20Lobbying%20Hits%20Decade%20High%20as%20DOZENS%20of%20High-Profile%20Political%20Appointees%20Become%20Big%20Pharma%20Reps.)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+终审：Ryan
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

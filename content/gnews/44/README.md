@@ -2,30 +2,166 @@
 ---
 
 
-## 大家一起来养猪
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1579484/)
+## 中共停电的目的是打垮美元和美股
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580019/)
 
-By：银河勇气星｜骄子
-视频来源：网路
-生猪价格创历史新低，对养殖户带来致命的打击，于是养猪的痛下杀手。 评：猪肉40元一斤时，盲目上马的结果！那时我就考虑到有今天，所以当时有个人叫我去云南合伙养猪，我没同意！*（引用源自网络）*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/aii18-iytb4.jpg)
+[https://gtv.org/video/id=615f36a5d2e2b81748725a0d](https://gtv.org/video/id=615f36a5d2e2b81748725a0d)
 
-视频里讲述愤怒的养猪户在对地上哇哇大叫的小猪仔痛下杀手。
+**郭文贵
+Miles Guo**
 
-养猪这几年几乎成为了中共国互联网企业的项目首选。自2009年网易丁磊开始宣布养猪以后，阿里，万科，华为，京东，都紧随其后。老百姓感觉到猪肉价格暴涨的那一年是2019年，猪肉在那一年某个瞬间成为了富裕的象征，无论是五花肉还是后腿肉，或者猪蹄子，腌腊肉。互联网上各式各样的炫富不再是豪车豪表，而是挂在脖子上的猪肉。一度有些非常不理智的发言充斥在评论区，如“你这么有钱你买什么表啊，你买五花肉啊”。也是在那一年开始，养猪散户突然多了起来，暴涨的猪肉价格，确实让人看得心痒痒。
+记住啊
+Recuerden
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/22-1280x720.jpg)
+咱是有时间的
+Nosotros tenemos tiempo
 
-中共国的各级官员，一个个都是饭桶。都是为了贪污，为了政绩而走马观花，一个县一个市一个省，最后到中央，这些地市省不过是踩在脚下的筹码，没有人会真正为了本地区的民生，经过专业的考察，参考专业的意见，给老百姓正确的指导。你们常说的“盐碱地”，就是这样形成的。一个地区要种什么都种什么，要养殖什么都养殖什么，要干直播都干直播。一个村子天然形成了竞争对手，每家每户的质量都差不多的，只要辛勤劳动，老天爷赏脸，几乎都会有收获，你的产量好，别人家的产量也会好，那么价格自然就会降下来。从社会产业链全球化来说，一个区域特定发展某项养殖/种植，对完整稳定的物流链和农产品的稳定价格要求很高的。放眼全球，没有哪个时期做到了稳定这两点。尤其是现在，中共的生物武器CCP病毒，以及中共的毒疫苗，随时就要quarantine，货物随时会滞留，滞留就会变质，产量就会缩小。或者因为毒疫苗，运输过程中无预警就倒地的司机，运输费用的上涨势必会导致产品成本的上升。没有一个稳定的和平的外部环境，整个村子/县/市都发展一种产业，简直就是灾难。
+咱不是没时间, 咱有时间的
+No es que no lo tengamos, si tenemos
 
-更有一些村干部为了贪污各类款项，专门弄些奇奇怪怪的东西来养，有个养虫子的，说是蛋白质高，有人爱吃。还有养鸵鸟的。一旦有一个人从这个中间赚到了钱（无论有没有赚到钱，或者宣传赚到钱了，让人看着眼红），呼呼啦啦会有一大片跟随着一起来干这些的。这些养殖都是平时卖还好，因为经济都还好，人手里有闲钱，会去尝试一下新鲜的玩意儿，一旦经济下行了，饭都吃不饱，猪都吃不上，谁还会去吃这些？在这种时刻此类奇异养殖亏到倾家荡产几乎是定局。那么回到养猪，这几乎看起来是一本万利的生意，因为猪肉是平常人家里都会去吃的，不存在有亏本的可能。当时开展养猪的散户，有几个不是看到暴涨的猪肉价格心里痒痒的？大互联网企业都跟着养猪了，散户眼红就跟着一起养猪。从来也不去打听一下，中国的猪肉有多少是自己养的，有多少是进口的，市场对猪肉的缺口到底能不能让我养猪赚到钱？就算现在赚不到钱，过后第几年就开始开始不亏本，以后开始慢慢赚钱？没有人会考虑这些的，都想着我今年开始养猪，出栏我就发财，明年我就发大财。就像人家炒股一样，股价哄抬到最高的时候跟着进去了，进去就开始跌，直到被套牢了出不来了。俗话说站在风口上，猪都能飞起来。大风聚集在风口，在猪肉价格暴涨的那一年，把所有的猪都吹上天了。地球是有引力的，猪还是要回到地面上，一下子多了这么多猪，价格自然就一降再降。
+这不会
+Esto no…
 
-人总要为自己的愚蠢买单。对小猪仔痛下杀手是怎么回事，猪有什么错啊。要杀就杀到中南坑，中南坑里那些饭桶都等着你去杀呢。
+如果2025年灭不了共的话
+Si en el 2025 no podemos derribar al Partido Comunista
 
-（文章内容仅代表作者观点）
+七哥也不会再去灭共了
+Entonces no lo haré más
 
-作者：骄子
-审核：兵嫂、天雷滚滚
-发布：骄子
+你们也不会再看到七哥, 真的
+Tampoco me verán más, estoy hablando en serio
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家-1.jpeg)
+这个什么事都可能发生
+Puede suceder cualquier cosa
+
+我不会再
+No seguiré
+
+2025年如果是共产党还存在的话
+Si en 2025 el Partido Comunista todavía existe
+
+你们不会再看到七哥
+No me verán más
+
+但是我是不会的
+Pero esto no sucederá
+
+2025年绝对是
+En el año 2025 es definitivamente
+我是2015年
+En el año 2015
+
+我跟刘延平联系, 国内的人跟我联系, 我都说过
+Me contacté con Liu Yanping, la persona que estaba en China se comunicó conmigo y yo dije
+
+我等你们十年, 我都等死你们
+Los esperaré diez años, hasta la muerte los esperaré
+
+不是我今天说的
+No lo dije hoy
+
+我不相信共产党能过2025年
+Yo no creo que el Partido Comunista pueda pasar el año 2025
+
+这个是有时间限制的
+Esto habrá un tiempo limitado
+
+另外一个, 就刚才说这个共产党的停电
+Otra cosa, lo que estaba hablando hace rato sobre el apagón del Partido Comunista
+
+是不是跟世界经济
+Si tiene relación con la economía mundial
+
+为啥我说这个世界经济会跟这个共产党停电有关系
+Por qué digo entre ellos tienen relación
+
+大家没有
+Ustedes
+
+昨天你那个数里边没算
+No contaron los datos de ayer
+
+就你那些都是所谓的官方统计数据
+Los supuesto datos oficiales que tú dices
+
+你绝对要记住
+Debes recordar
+
+七哥从一开始爆料就说
+Yo desde el principio del Movimiento de Denunciantes dije
+
+如果你相信了任何一个共产党对着镜头和对着人
+Si crees en cualquier persona del Partido Comunista que habla frente a la cámara y a las personas
+
+说出的话和公开的表格和数据
+Acerca de los formularios y los datos públicos
+
+那你就是天下最愚蠢的傻子
+Entonces eres el tonto más estúpido del mundo
+
+共产党的那些, 所有的, 现在今天干的事情
+Todas las cosas que ha hecho y que hizo hoy en día el Partido Comunista
+
+他只有两个目标大家没搞明白
+Simplemente tiene dos objetivos que ustedes no lo han entendido todavía
+
+一切都是为了干倒美元, 干倒欧元而干的
+Todo es para destrozar al dólar estadounidense y el euro
+
+共产党所有干的事情就是杀敌一千
+Todo lo que ha hecho el Partido Comunista
+
+自伤一万, 我也得干
+Por matar a mil enemigos pueden sacrificar diez mil de los suyos
+
+我断我九指
+Me corto nueve dedos
+
+我断你一指
+Corto uno del tuyo
+
+我也得干
+Aún así lo tengo que hacer
+
+我都变成九指妖了, 我也认了
+Y si me convierto en Sara Wei, lo asumiré
+
+所有的现在想了美国和中美之间
+Toda la relación entre EE. UU y China
+
+过去5000亿的逆差
+El déficit de los últimos 500 mil millones
+
+5000亿的逆差到最后变成了几百亿的逆差
+El déficit de los 500 mil millones finalmente se convirtió en un déficit de decenas de miles de millones
+
+但几千亿美元的贸易
+Pero cientos de miles de millones de dólares en comercio
+
+他绝对能把美国股票给打垮了
+Él seguramente puede derribar a las acciones de EE. UU
+
+这个不是假的
+Esto no es falso
+
+真能打垮, 今天中共国就这么停电再停六个月
+Realmente puede destrozarlo, hoy, el PCCh si viene otro apagón de seis meses
+
+美国的股票市场经济一蹋糊涂
+La economía del mercado de valores de EE. UU será un desastre
+
+**——————————————————**
+
+**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1445260826655424515?s=24](https://twitter.com/se1y7cblljselva/status/1445260826655424515?s=24)
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 :洛杉矶盘古农场–彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

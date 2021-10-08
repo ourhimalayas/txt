@@ -2,41 +2,46 @@
 ---
 
 
-## 超过 20 家与虚拟币相关的企业宣布退出中共国市场
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1580421/)
+## 我这个写作菜鸟是如何开始动笔的
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1580508/)
 
-作者：Andy5/文仁
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-13.png)
+作者：纽约香草山福音部 – 护眼罩
 
 
 
-【证券日报】10 月 7 日消息，9 月 24 日，中共政府金融监管机构公布最新政策，包含中国人民银行在内的十个部门再发新规整治“虚拟币炒作”，随后多家交易平台、挖矿企业、行情网站纷纷对此做出了回应。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-8.jpg)
-截至10月7日，已经有超过 20 家与虚拟币相关的企业，宣布停止为中国境内用户提供相关服务，并全面退出中国市场。继火币之后，KuCoin 近日也发布公告，针对中国大陆地区用户，将在 2021 年底之前逐步完成有序清退。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
 
-中共国对虚拟货币加强管制、打压的同时，大力推行人民币数字货币国际化，充分揭示了中共对以美元为主导的金融体系的不满与挑战。
 
-中共在喜币即将上市之际发布“金融新政策”，也表明其对新中国联邦喜马拉雅金融体系的恐惧。
 
-（本文仅代表作者观点）
 
-参考链接：
-1. [超过 20 家与虚拟币相关的企业宣布退出中共国市场](https://finance.sina.com.cn/tech/2021-10-07/doc-iktzscyx8346881.shtml)
-2. [超过 20 家与虚拟币相关的企业宣布退出中共国市场](https://www.kucoin.com/news/announcement-on-the-gradual-removal-of-existing-users-in-mainland-china)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211008_1.jpg)图片来自网络
 
-新闻访谈终审：Q大哥
-编辑/校对/审核：Hetangyuese
+
+
+有一天，我在农场福音部的Discord群看到一则公告，说周二有写作培训课程。当时我只是抱着去听一听写作方面的知识这样的想法，根本没有想有一天我会开始写文章。记得那次培训课程有十来位战友参加，Daxia姊妹就在其中，她给我留下了很深的印象，Daxia姊妹的话语给了我很多的鼓励，我听了之后当时就有一种蠢蠢欲动的感觉。
+
+培训会后，我就想动笔写点什么，可是问题来了，从何下手呢？我自我感觉词汇量不够，语言组织能力欠佳，大脑一片空白，于是那次就不了了之了。后来Daxia姊妹私底下和我沟通，鼓励我，让我有了勇气和自信，让我又有了写的冲动。我借着重拾的自信，趁热硬是整出了第一篇文字。因为是第一次发表文章，许多流程细节都不熟悉，Daxia 姊妹一步一步地教我，添加图片，润色语句。在这里我发自内心地感谢Daxia 姊妹耐心和热情的帮助，使我得以发出第一篇文章。
+
+现在我已经发表了几篇文章了，虽然在我看来这几篇文章没有什么惊人之处，甚至可能还有一种拿不出手的感觉。但我想在爆料革命当中做些事情，就算是最小的事情，我愿意克服这些困难，拿起笔来写，就算一开始写得不好。Daxia姊妹常说，“我们都是第一次灭共”，我想我也算是第一次写文章来发表了，共一定要灭，文章我一定要写。
+
+我鼓励战友们多动笔写，也欢迎战友们到香草山农场福音部来，在这里一起写作。我很感谢福音部写作组的战友们让我这个没有自信的人能找到自信，谢谢Daxia姊妹、生命美歌弟兄、武装的羔羊弟兄，谢谢你们的鼓励和帮助，使我开始写文章，或者说开始学习写文章。感谢所有帮助我的弟兄姊妹。
+
+（本文仅代表作者个人观点）
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct.jpg)
+
+
+
+编辑/校对/发稿：武裝的羔羊
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-13.png)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
