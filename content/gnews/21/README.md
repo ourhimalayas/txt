@@ -2,37 +2,34 @@
 ---
 
 
-## 秘翻在线：为避免接种中共病毒疫苗 荷兰世界小姐退出选美决赛
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1581137/)
+## 土地出让遇冷 中共地方经济又一支柱行将倒塌
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1581180/)
 
-#### 翻译发布：文柯Miles
+作者：飞虹
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/asdf6asd6f46rg4t9080k43oktopko.jpg)荷兰世界小姐迪莱·威廉斯坦
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-为了避免接种中共病毒（COVID-19）疫苗，荷兰世界小姐已主动退出 12 月的选美决赛。
 
-21岁的迪莱·威廉斯坦（Dilay Willemstein）周二在Instagram上发布了这一惊人的消息，她称将“不再代表荷兰登上世界小姐的大舞台”。
 
-“这个决定是由于需要接种疫苗，”她承认说，“就个人而言，我还没有准备好。”
+中共实施分税制度改革后，中央政府攫取了税收的最大比例，卖地经济便成为地方政府最大的收入来源，加上各个环节的贪腐，墙内地产泡沫由此不断变大。中共经济也在这种类似庞氏骗局的房地产扩张粉饰下，长期保持虚幻增长。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1008AM（1-6，9）視頻備用-2.001.jpeg)
+但近期的统计数据显示，中共国的城市土地拍卖情况出现了罕见的冷场局面。在今年3到6月份的第一轮拍卖中，众多地产开发商因资金困境无力参加竞拍，造成土地需求锐减。 而在6至10月份的第二轮拍卖中，全国范围内因无人出价而流拍的地块比例高达40% !
 
-“在我获得加冕之后，我们被告知，如果你想去参加世界小姐比赛，就必须接种疫苗，”她进一步向荷兰报纸《Algemeen Dagblad》解释了为什么退出定于12月16日在波多黎各举行的选美决赛。
+自去年夏季以来，中共监管部门收紧了对民营地产开发商的信贷支持，导致开发商借贷无门从而无力竞拍土地，表明房地产这一中共体治下的泡沫支柱产业，已经行将倒塌。
+(本文仅代表作者观点)
 
-“所以我仔细考虑了一下，我想我根本没有准备好，我感觉不好。”她告诉该报。
+参考链接：[中国土地出让遭遇冷风，地方经济增长又一支柱倒塌](https://www.voachinese.com/a/fall-in-China-s-land-sales-tests-local-finances-economy-20211007/6261211.html)
 
-“这对我来说简直是最好的选择，”她说。“我想，如果我做了一件我实际上感觉不舒服的事情，我会更加后悔。”
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-荷兰世界小姐协会首席执行官卡蒂亚·梅斯（Katja Maes）告诉AD报纸，他们“没有询问选手的疫苗接种情况”，因为这是他们私人医疗信息的一部分，而且“事先不知道接种疫苗是否会有问题”。
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-梅斯说，协会首先通过 Instagram 帖子听到了消息。
-
-“但我们仍然爱她，为她感到骄傲，并祝她一切顺利，”她坚持说。
-
-迪莱·威廉斯坦被亚军莉兹·多布（Lizzy Dobbe）取代。
-
-![](https://nypost.com/wp-content/uploads/sites/2/2021/10/miss-world-netherlands-34.jpg?quality=90&amp;strip=all&amp;w=1535)亚军 莉兹·多布（右）
-
-“人们必须做出自己的选择，我们必须接受彼此的选择，”莉兹谈到威廉斯坦反对疫苗的立场时说。
-
-原文链接：**[Miss World Netherlands quits pageant final to avoid getting COVID vaccine](https://nypost.com/2021/10/07/miss-world-netherlands-quits-pageant-final-to-avoid-covid-vaccine/)**
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
