@@ -2,41 +2,36 @@
 ---
 
 
-## 10/8/2021国际财经快讯：美联储表示通胀受疫情因素驱动；英国NatWest承认阻止洗钱失败
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1581319/)
+## 美参院再提国债上限， 难逃金融危机寒冬
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1581557/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-21.png)[图片来源](https://www.reuters.com/)
-**1.美联储表示通胀主要受疫情因素驱动**
+作者：云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国联邦参议院于7日通过议案，暂时为联邦政府已高达28.4兆美元的举债上限，增加4800亿美元的额度，避免在本月发生历史性债务违约的风险，并借此争取缓冲时间，寻求更长期的解决方案。
 
-[克利夫兰联邦储备银行称，目前供应方和需求方因素都在助长美国通胀，但当前的大部分价格变化可能是由与大流行相关的变化驱动的，这些变化可能会随着时间的推移而消退。梅斯特在欧洲央行组织的一个小组会议上表示，决策者在决定如何应对时需要区分短期通胀压力与可能持续更长时间的通胀压力。“这种增长有多少是由供应冲击驱动的，有多少是由对货币政策做出反应的需求驱动的？”梅斯特说。梅斯特表示，中长期通胀预期上升，加上通胀持续上升，可能表明价格变化更多是由需求高于决策者预期驱动的。](https://www.reuters.com/world/us/feds-mester-says-us-inflation-mostly-driven-by-pandemic-related-factors-2021-10-07/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-7.jpeg)
 
-**2.英国NatWest承认阻止洗钱失败**
+此前美国财政部长叶伦警告，如果没有解决债务上限问题，财政部的现金和非常规手段很可能会在 10 月 18 日前耗尽，引发一场历史性的金融危机。
 
-[NatWest周四承认未能阻止近4亿英镑（5.44亿美元）的洗钱，并成为英国第一家承认犯罪的银行，面临巨额罚款。该银行在金融危机期间获得450亿英镑和国家救助后由纳税人拥有55%，该银行在伦敦法院表示认罪，承认在2012年至2016年期间没有充分监控客户账户的三项刑事指控。负责起诉NatWest案件的金融行为监管局(FCA)的律师克莱尔·蒙哥马利(Clare Montgomery)告诉威斯敏斯特地方法院：“案件的事实很复杂，可能的判决是巨额罚款。”蒙哥马利告诉法庭，根据量刑指南，NatWest可能面临约3.4亿英镑的潜在罚款，但法官将在今年晚些时候确定罚款。](https://www.reuters.com/business/finance/natwest-pleads-guilty-money-laundering-offences-2021-10-07/)
+此议案经过数周的两党争论，以50票赞成、48票反对的结果，经参议院通过，将送交联邦众议院表决，如众议院通过议案，则会呈送白宫由拜登总统签署执行。
 
-**3.日本9月批发通胀率可能触及13年高位**
+众议院议长裴洛西稍早表示，她将把正在休会期的众议员们召集回来表决，但目前无法确定开会日期。
 
-[周五的一项路透调查显示，日本9月批发价格可能触及13年高位，受高企的大宗商品价格提振，而企业的机械订单预计将在8月连续第二个月上升。对17位经济学家进行的一项调查显示，9月份企业商品价格指数(CGPI)可能比去年同期上涨5.9%。这将是自2008年9月以来的最高年度价格涨幅。该指数8月份同比增长5.5%。调查显示，按月计算，日本的批发价格在上月持平后，9月可能上涨0.3%。三菱日联研究咨询公司经济学家Shunpei Fujita表示，“商品通胀将影响石油产品、化学品、钢铁和其他金属的价格，从而导致批发通胀的更高增长”。“但随着大宗商品价格增长放缓，日本企业商品通胀将逐渐降温。”](https://www.oann.com/japan-wholesale-inflation-likely-hit-13-year-high-in-sept-on-rising-commodity-costs-reuters-poll/)
+该法案如获执行，则美国联邦政府的举债上限总额将达到28.9兆美元，即便如此债台高筑，政府运作预期只能维持到12月3日。疫情对世界经济影响重大，各国政府均超量印钞、艰难维持、危机重重，今年年底，全球经济必将面临巨大考验。
 
-**4.Delta挫败美国就业增长出现回升**
+(本文仅代表作者观点)
 
-[随着夏季COVID-19感染浪潮开始消退，推动对外出就餐等高接触服务的需求，并使美联储开始缩减每月债券购买规模，美国就业增长可能在9月加速。美国劳工部周五备受关注的就业报告也表明，第三季度经济活动明显放缓可能是暂时的。尽管如此，劳动力市场和更广泛的经济仍然受到大流行造成的工人和原材料短缺的限制。ING驻纽约的首席国际经济学家James Knightley表示：“随着新冠肺炎疫情明显再次走下坡路，我认为就业报告应该相当不错。” “但就业市场显然仍然存在压力，因为劳动力供应仍然非常有限。”](https://www.oann.com/u-s-job-growth-seen-picking-up-after-delta-setback/)
+参考链接：[美國參院允暫拉高債務上限 讓政府運作至12月初](https://www.cna.com.tw/news/firstnews/202110080045.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-**5.新西兰储备银行将现金利率上调至0.5%**
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-[储备银行的加息并不意外，因为它跟随挪威和韩国在大流行后提高利率。新西兰的现金利率从0.25%上调，政府发表声明称，现在是提高利率并消除因通货膨胀而创下的历史最低利率的合适时机。声明还表示，预计新西兰的通胀率将升至4%。澳大利亚储备银行行长菲利普·洛(Philip Lowe)表示，现金利率将保持在0.1%不变，直到2024年。](https://www.skynews.com.au/business/finance/reserve-bank-of-new-zealand-raises-cash-rate-to-05-per-cent/video/9da5694407cc504e3a78301e67f53c00)
+新闻访谈终审：FoxRina
+编辑/校正/发稿：谐趣园
 
-**6.莫里森称企业应该依靠“自己的经济努力”**
-
-[澳大利亚总理斯科特·莫里森(Scott Morrison)表示，在全国达到80%的双重疫苗接种率后，那些寻求COVID-19支持付款的人将需要重新申请。莫里森先生说：“这些付款，一旦我们达到80%，在发生后的下一周，他们将要求人们再次重新申请，第一周将降至450澳元。” “不过，我提醒你，在商业支持方面，国家内阁协议是联邦将支付个人付款，而各州将支付所有商业付款。” “联邦政府在经济支持方面做了很大的努力，以帮助澳大利亚人和澳大利亚企业渡过难关。这就是为什么我们现在希望看到澳大利亚人，不要依赖政府的经济支持，而是依赖他们自己的企业和企业的经济努力。”](https://www.skynews.com.au/business/finance/morrison-businesses-should-rely-on-their-own-economic-efforts/video/5ece8e553a35c012fca5e2423889dbec)
-
-**7.美国银行预计第三季度业绩**
-
-[预计美国最大的银行下周将公布第三季度利润小幅上涨，因为与大流行相关的会计调整在今年早些时候将其收益翻了一番，并且业务开始恢复正常。根据I/B/E/S分析师平均预计，该国最大的银行摩根大通(JPM.N)报告的利润将略低于去年同期开始的财报季。下周四，花旗集团(C.N)和摩根士丹利(MS.N)的利润料将增长15%，而美国银行(BAC.N)的利润料将增长约35%。富国银行(WFC.N)也于周四发布报告，预计该季度业绩将大幅上涨100%以上，该季度业绩因异常支出而受到抑制。高盛集团(GS.N)将在周五结束本周的交易，预计利润将小幅上升。](https://www.reuters.com/business/finance/us-banks-expected-report-mixed-q3-results-iffy-loan-outlook-2021-10-07/)
-
-**8.贝莱德给予客户更多发言权**
-
-[贝莱德(BLK.N)计划让大客户在公司年会上的投票中拥有更多发言权，一些行业专家预测，此举可能导致公司面临更多来自反叛者股东的反对。贝莱德是拥有9.5万亿美元资产的全球最大资金管理公司——通常代表其基金的投资者投票，使其成为华尔街在公司董事选举、气候变化和劳动力多元化等问题上最具影响力的声音之一。然而，贝莱德在给客户的一封信中表示，从明年开始，某些机构账户持有人将能够将贝莱德股票指数策略所持有的4.8万亿美元资产中的40%投给自己。其他人可以选择第三方投票政策并使用贝莱德提交投票。](https://www.reuters.com/business/finance/blackrock-give-clients-more-say-holding-companies-account-2021-10-07/)
-
-By 【秘密翻译组-金融组】
-作者：小海星
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

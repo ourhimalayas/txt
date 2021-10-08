@@ -2,54 +2,34 @@
 ---
 
 
-## 中国的经济自由赤字如何扭曲境外市场
-` 象声` [轉載自GNews](https://gnews.org/zh-hans/1577883/)
+## 纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1534601/)
 
-安东尼.金在2021年10月6日发表一篇评论文章指出：更大的中央集权和国家控制”，它扼杀了中国人民的智力、社会和经济实力。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-CN.jpg)
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-美国贸易代表凯瑟琳·戴（Katherine Tai）指出，“近年来，北京在其以国家为中心的经济体制上加倍努力。越来越明显的是，中国的计划不包括有意义的改革，以解决美国和许多其他国家共同的担忧。”
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
 
-事实上，这正是推动“复杂且具有竞争性”的美中经济关系的核心问题。
-
-公平地说，中国的经济发展自 1970 年代后期向世界开放了更多，并允许更加资本主义的经济模式取得成功以来，一直引人注目。2001 年加入世界贸易组织进一步开放了中国的对外贸易和投资市场，使中国使数百万人摆脱了赤贫，让更多的中国公民获得了更好的生活和休闲质量。
-
-长期以来，北京一直将中国的经济成功归功于自己，并希望保持这种状态。
-
-然而，中国共产党从未放弃其社会主义意识形态和威权主义道路。中国国家主席习近平成功地将党的新悖论注入了党的新矛盾，即在渴望将党置于首位的更大控制权与追求急需的积极经济成果之间，这变得越来越具有挑战性。
-
-中共经常口头上说要改革臃肿、效率低下的国有企业和指挥经济结构。不幸的是，最近宣布的改革很少成功，偏向自由市场的改革在某些部门放缓甚至脱轨。
-
-大约 15 年前，北京的一党政府开始重新定义国有企业“改革”，用这个词来指代国家对重点行业的集中控制，这与世界其他地方的含义相反。
-
-中国共产党 2013 年的三中全会概述了国家将如何减少对国有商业企业的控制，同时推动它们在对中国经济发展和国家安全贡献最大的重点行业专注于其业务的“核心”领域。
-
-在实践中，这意味着国有企业越来越尊重党的官员自上而下的活动控制。
-
-当然，追求和保持高经济增长率并不是任何共产主义专政的主要目标。真正的目标始终是党保持对国家人民的完全控制，通常是通过任何必要的手段。该党似乎确实明白，刺激持续的经济增长是维持民众支持的关键因素。
-
-这使得它继续依赖其“以国家为中心的经济体系”特别被误导，最终不可持续。这最终对中国不利，但它肯定也会导致中国境外市场的扭曲。
-
-中国在传统基金会的年度经济自由指数中表现不佳，该指数衡量与经济增长和繁荣相关的关键领域的经济治理。
-
-在过去的几十年里，中国的经济自由度有所增长，但速度非常缓慢。中国经济仍然“基本不自由”，在2021年指数中排名第107（在 179 个中），在最大限度地提高经济活力的机会方面落后于大多数其他国家。
-
-在最近的华尔街日报评论中，新西兰前贸易部长兼驻美国大使蒂姆·格罗泽 (Tim Groser) 通过强调：“我们还不知道中国共产党正在编写的新政策脚本将引领世界第二大经济体走向何方。……事情最近一直在倒退，朝着更大的中央集权和国家控制的方向发展。”
-
-毫无疑问，“更大的中央集权和国家控制”——它扼杀了中国人民的智力、社会和经济实力是华盛顿在塑造其走向共产主义政权的道路时必须处理的所有问题的核心。
-
-译者：中国的改革开放的初衷或者起因，并不是处于要提升民众的生活质量，增加社会文明进程，任何一次改革开放都伴随着中共如何持续统治的根本原因。每当政权出现危机的时候，中共背后的资本和权力与中共勾结，重新制定规则， 使其表面上在照顾民生。并美其名曰强调中共的自我纠错能力，从而彰显其正确性，唯一性，和无可替代性。
-
-我们深刻的认识到，不动根本，任何改革，其本质仍是维护政权，继续奴役中共老百姓，为世界邪恶势力输血。
-
-\*文章仅代表作者观点，原文有删减\*
-
-参考链接：
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-001-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-002-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-003-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-004-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-005-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-006-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-007-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-008-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-009-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-010-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-011-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-012-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-013-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-014-scaled.jpg)
 
 
-> [How China’s Economic Freedom Deficit Distorts Markets Beyond Its Borders](https://www.dailysignal.com/2021/10/06/how-chinas-economic-freedom-deficit-distorts-markets-beyond-its-borders/)
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
 
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-
-新闻采编：洛杉矶盘古农场新闻采编组
- 翻译&编辑：洛杉矶盘古农场–蓝精灵
++4

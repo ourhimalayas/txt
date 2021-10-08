@@ -2,26 +2,26 @@
 ---
 
 
-## 美快速攻击潜舰印太海域撞击不明物体
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1581612/)
+## 肾衰竭晚期患者因未接种毒针疫苗被拒绝移植手术
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1581659/)
 
-作者：云豹
+作者：飞虹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国海军7日公布，一艘核动力潜舰2日在印太海域水下执行任务时，撞击到不明物体受损，并有10多人轻中度受伤。各方猜测，撞击物可能是沉没船只、货柜等其他物体。
+10月7日，科罗拉多州一位患有5期肾病，即肾功能衰竭最晚期的女性莱拉尼·卢塔利对媒体表示，因为她与捐赠者杰米·福格纳（Jaimee Fougner）都没有接种新冠病毒疫苗，科罗拉多州的医院拒绝为她们进行肾移植。目前，她们正在努力寻找其他医院。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-3.jpeg)
 
-此次发生事故的是“海狼级”核动力快速攻击潜舰“康乃狄克”（USS Connecticut）号，事故发生时正在印度太平洋地区的国际海域执行任务。 海狼级潜艇是冷战后期的攻击性潜艇，是美国海军最有能力和最敏感的攻击艇，旨在猎杀深蓝水域最复杂的苏联潜艇。
+卢塔利一直在器官移植等待名单中排队。8月份的时候，她还被告知接种新冠疫苗不是接受移植的先决条件。但9月底，她收到了一封来自州卫生联盟（UCHealth）的信件，告诉她相关规定被修改。卫生联盟设定30天的期限要求两人接种，否则将把她们从肾移植名单中删除。
 
-康乃狄克号自事件发生后保持水面航行，正前往关岛靠岸。国防官员证实这次水下打击发生在南中国海，但未透露任何细节。
+卢塔利用“太多未知因素”暗指新冠疫苗具有危险性，福格纳因为宗教信仰选择不接种。
 
-从周六计算，时隔5天后此事件才被报道，期间中共军方罕见沉默。印太地区目前由于中共的挑衅，正处于紧张的火药库状态，任何的军事事故都有可能造成区域性的紧张态式，需谨慎观察后续发展。
+受控政府和主流媒体仅为背后利益代言，事实不被重视反被掩盖，疫苗接种的逻辑变得越来越荒谬；现代医疗科学在共产主义浸泡下，从治病救人演变为压迫与杀戮。
+
+只有真相，才能解决重重迷雾掩盖下的种种问题，才能将真正的自由还给世界，还给每一个人。
 
 (本文仅代表作者观点)
 
-参考链接：[美核動力潛艦南海撞擊不明物體受損 10多人受傷](https://www.cna.com.tw/news/firstnews/202110080019.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+参考链接：[Unvaccinated Colorado woman who was denied kidney transplant shares story on ‘Fox & Friends First’](https://www.foxnews.com/media/unvaccinated-woman-colorado-denied-kidney-transplant-hospital)
 
 新闻访谈终审：暗黑
 编辑/校正/发稿：谐趣园

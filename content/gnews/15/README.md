@@ -2,38 +2,35 @@
 ---
 
 
-## 江泽民当年下令杀令谷,江绵恒和江志成将为此付出代价
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1581895/)
+## 2021/10/08文贵先生盖特精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1581962/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/cachedImage-3-1536x864_副本.jpg)
-据[2021-10-07 七哥回答战友们的问题：AMD将在纽约上市，背后股东是谁？中共95%肯定要打台湾的；曾家的灾难还没开始，江家一定会付出代价；新加坡的何晶非常聪明；杨洁篪已岌岌可危](https://gtv.org/video/id=615ef95d304e992109b0faaf)时间点1：36：08——
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-137.png)[盖特链接](https://gettr.com/post/pdiwza018f)
+世界变化太快了！FaceBook、Instagram、WhatsApp内部管理团队大崩溃，面临全球的讨绞。他们在病毒和疫苗背后的非法操作，用所谓的“媒体正义”、“媒体法院”、“媒体引导”通过技术诱导未成年孩子沉溺于不健康的网络灾难之中。全世界都在行动，“扎泽东”“扎特勒”（扎克伯格）太坏了。
 
-（念战友留言）——七哥，江家会反击吗？
+所谓的“瑞士会谈”就是美方糊弄“习大神”不要打台湾。西方判断习的身体最多撑不过二年，甚至现在的内部政治斗争都可能消耗掉他。美方通过一些人探知中共的内部政治，发现所有人都在等“习大神”出事。
 
-哎！可以这么说吧，他反击的机会越来越渺茫了，江——如果他要是江家当年弄死令计划的儿子，弄死令计划的儿子，（对工作人员说，你让他给他联系一下，你让他直接联系他，好吧？）所以说兄弟姐妹们，你知道当年我见过风水先生，我说共产党干掉了令计划的儿子，干掉令谷以后，他们会是带来什么样的代价，他说颠倒乾坤，我说到底是江家干的，还是那个谁家干的，咱就不说吧，他说绝对是江家干的。
+马云现在到香港，表面上答应中央往回弄资产，实际干着自己的事，他和李嘉诚都是一伙的，是江志成的兵，都等着习出事。杨洁篪是“身在习营心在江”，所以美方根据国内政治和经济和杨洁篪来勾兑，糊弄习不打台湾，但这对于台湾更坏了。江家给美方这种消息，让江家势力得以苟延残喘，当一定时候就会果断对台湾出手，台湾凶也！
 
-我说好，我说我从来不相信你们这些风水大师们，从来不信，但是我问因为你能佐证我的正确性与不正确，我说你给我预测预测，其中就有预测一个，他说江家的孙子江志成活不长。我说为什么，他说江家这次动手干掉令谷，下的命令就是老江干的，而且江家儿子江绵恒还有他的孙子江志成都将为此付出代价，他说这就是轮回报应。
+美国通过糊弄中共要友好，减关税来忽悠习买美国国债。刚批了4800亿，这样美方可以先把美股市托上去，把美国国债的问题解决了。但是天天靠骗钱、借钱，最终要负责任的，也只能骗一时，经济一定会出问题。中美两边政治形式都不看好，都是玩假经济，玩假政治。他们一切利好，但最终牺牲的还是台湾和老百姓。
 
-所以江志成这小子只谈恋爱不结婚，而且这小子生活中你见过这个人，叫毛毛，绝对他长不了，所以最后江家如何为此付出代价，就现在他看来他的机会，他越来越没有机会了，江是不行，他是个象征性的，江绵恒、江绵康、江志成在军队的势力是巨大的，但是我觉得越来越渺茫。
+更可怕的是社交媒体在病毒和疫苗，对世界的影响每时每刻都在改变着一切。昨天开会，七哥说所有计划都特别好，但是6个月以后都会和想象不一样。当疫苗灾难改变人类生存时，这些计划的事还会发生吗？
 
-（以下暂略）
+以后金融只有虚拟货币，数字经济，世界将会重写金融秩序，金融体系。新的生命科技、新的技术改变病毒和疫苗对人类的灾害，这才是高科技。
 
-撰稿：喜马拉雅的肉夹馍；
+所有强迫打疫苗的，都会受到审判。疫苗灾难会改变人类一切，生存方式、水、电、交通、粮食都会改变。这时候谈选举政策都是扯淡，所谓的政治家都是罪人。
 
-审核：喜马拉雅的馍夹肉；
+最终得让共产党交代病毒哪来的，疫苗的背后是谁，黑暗势力是谁。新的政治、经济、媒体的势力都将诞生。新中国联邦对人类无任何伤害，我们的社交媒体平台都是对人类最好的。未来几周看看会发生什么，别太小看了新中国联邦，从现在开始的每天都会很精彩！
 
-校对：Maarago；
+***编辑：【英国伦敦喜庄园编辑部】***
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+*听写：文评 / 校对：小雨*
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+编辑：【英国伦敦喜庄园编辑部】
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

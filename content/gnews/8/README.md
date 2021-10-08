@@ -2,19 +2,59 @@
 ---
 
 
-## 中共在台湾附近军事基地部署新型电子战斗机
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1581975/)
+## 2021/10/08大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1582007/)
 
-撰稿：西枫westca
+**主播**：大卫｜**嘉宾**：Castle、微蓝
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/10/0A98778704E8A65A89013CD1C97F4446801E7263_size39_w1080_h720.jpeg)图片来源：mil.ifeng.com
-据马拉西亚星报10月8日报道， 中共已将引入更多电子对抗设备的新型J-16D战斗机部署在台湾附近的一个东部空军基地。据卫星图像显示，在浙江和江西的两个军事基地都有部署J-16D战斗机。这两个空军基地都由负责监督台湾海峡的中共东部战区司令部管理。
+[GTV视频链接](https://gtv.org/video/id=6160283a304e992109b1a696)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/100814.jpg)
+**板块1–国际政治**
 
-自上周以来，中共有近80架战机进入台湾的防空识别区，包括了轰-6轰炸机，歼-16战斗机、反潜机和空中预警机，促使台湾战机紧急起飞。一位来自中共军方的匿名人士证实，J-6D已经部署在空军基地且基地已经投入使用。他还说，台湾附近的军事活动激增是“战备训练的一部分：这强化了中共最终可能武力攻台的警告。来自国防杂志主编Andrei Chang表示，中共军队的空中入侵升级意味着有更多的台湾战机升空，这增加了碰撞的机会，因为没有任何交战规则。
+1. 美国中央情报局CIA成立新的中共国国际任务中心，应对中共国的考验。2010年左右在“美内鬼”的配合下，美在中共国的“线人”全部被抹除。
 
-中共军队近期在台海间的频繁的军事行动，反映出中共国越来越不掩饰地发出要吞并台湾的信号。“本是同根生，相煎何太急”，道出了人间最大的悲剧莫过于骨肉相残。推翻中共政权是人类的正义需要。
+2. 拜习将在年底举行虚拟峰会，双方利益勾兑已完成。美方下半年经济压力大，中共国购买美债，稳定美国经济；中方要求美国放宽“长臂管辖权”使其各家族继续洗钱藏钱，放松对台政策。
 
-**新闻来源：**
+3. 布林肯敦促中共国对恒大事件采取负责任行动，体现恒大问题的严重性。国际各评级机构对恒大、花样年等公司下调评级，中共国房地产已危如累卵，其中全球投资者比如华尔街感受到危机。
 
-[China’s new J-16D fighter jet has been deployed to an eastern airbase near Taiwan | The Star](https://www.thestar.com.my/aseanplus/aseanplus-news/2021/10/08/chinas-new-j-16d-fighter-jet-has-been-deployed-to-an-eastern-airbase-near-taiwan)
+**板块2–香港台湾**
+
+1. 美国军队已秘密训练台湾部队至少一年，提升台湾军事力量。各媒体密集报导此新闻目的在于稳定稳定台湾军心、强调台湾面临侵略要自身有反抗决心、继续出售美军武器。
+
+2. 川普喊话与中共开战，提醒拜登政府对中共国贸易战不能松绑。川普时期主打中共国软肋–贸易、外汇；拜登政府强调–人权、气候、松绑贸易战，恰是中共擅长的套路。拜习电话后中方将继续购买美国国债，对内继续洗脑宣传，对外跪求美国保证“二十大”顺利过渡。
+
+3. 美军一艘核潜艇撞上不明物体，极大可能中共从中“使坏”。美英军演航空母舰战斗群各监测雷达准备较完善，本不应该出现重大失误。卫星图捕捉到中共军方在远方“围观”军演，中共背景公司–中交建在南海长期挖沙填海。
+
+**板块3-网络科技**
+
+1. 各大科技公司（谷歌、脸书等）被中共渗透并与中共合作，为中共卖命打击真相和爆料革命。
+
+2. AMD旗下研究纳米芯片的公司GlobalFoundries将于美国纳斯达克上市，配合文贵先生爆料节奏，此行动或许与推倒防火墙、灭共行动有关联。
+
+**板块4–中共病毒、疫苗**
+
+1. 芬兰、瑞典、丹麦三国禁止Modena疫苗对未成年人使用。
+
+2. 德国科学家关于疫苗发布会翻译版本已经上传油管、GTV 。
+
+3. 德国对70岁以上人群强推第三针加强针。
+
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+
+[![](https://spark.adobe.com/page/jSn8OaThZqoVY/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://spark.adobe.com/page/jSn8OaThZqoVY/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*听写：call me uncle | 校对：乐禧禧* *| Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
