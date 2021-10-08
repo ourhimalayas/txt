@@ -2,73 +2,227 @@
 ---
 
 
-## 各大媒体热炒布林肯对恒大的反应
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1579929/)
+## 中共外交部的三大重要功能
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580016/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/51-a71ie-wzywl.jpg)
+[https://gtv.org/video/id=615f354dd2e2b817487259a1](https://gtv.org/video/id=615f354dd2e2b817487259a1)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/b.jpg)bnnbloomberg.ca
-媒体众多，标题只有两样，“美国国务卿布林肯警告中（共）国恒大危机可能影响‘整个世界’”、“美国国务卿布林肯敦促中（共）国政府在处理恒大危机时‘采取负责任的行动’”，内容基本一致，明显是在同一个操盘手下的操作。
+**郭文贵
+Miles Guo**
 
-彭博社、路透社、华尔街日报、南华早报等需要花钱才能看到全文，其实他们想说什么，笔者也能猜个八九不离十，还是节省点吧！
+外交部代表共产党
+El Ministerio de Relaciones Exteriores representa al Partido Comunista
 
-看看《知乎》（knews）的报道吧，题目就是那个“可能影响整个世界”的唬人标题。【1】
+代表任何政府发言
+Enuncia en nombre del cualquier gobierno
 
-文章说，中共国的恒大噩梦已经引起了全世界的关注——现在有一个新的迹象表明，它可能对我们所有人产生“深远的影响”。
+它是个最小的功能
+Es su función más pequeña
 
-美国国务卿安东尼·布林肯（Antony Blinken）对恒大的倒闭做出了令人震惊的评估，并警告该公司的倒闭可能“影响到整个世界”。
+它是代表官方的立场
+Él representa a la posición oficial
 
-中共国房地产巨头——目前是全球负债最多的房地产公司，约为4080亿美元——继续在崩溃边缘暴跌。
+国家的, 民族的
+La nación
 
-在恒大危机的早期，金融业内人士担心这可能是中共国的雷曼时刻，是2008年金融危机的翻版。有人严重担心，这可能导致信贷紧缩，并产生可能蔓延到其他公司和部门的传染效应。
+形象和对国际事件的态度
+La figura y el actitud ante los eventos internacionales
 
-本周，有迹象表明，这些担忧可能会实现，另一家中共国房地产公司嘉年华（Fantasia）也错过了前一天到期的2.06亿美元债券的付款，导致破产。
+它有一套专用的
+Tiene un conjunto especializado
 
-在本周接受彭博社（Bloomberg）的一次特别采访中，布林肯呼吁中共在应对不断升级的灾难时采取“负责任”的行动，这表明该公司的倒闭可能会影响到我们所有人。
+这是你看到的, 还有签证
+Esto es lo que tú ves, también está la visa
 
-“深度效应”
+公民保护, 这是最简单的
+Esto es lo más fácil, la protección ciudadana
 
-在周三（10月6日）接受《彭博电视台》煽动性的采访时，布林肯直接向中共发出呼吁。
+还有两个最特殊的功能
+También hay dos funciones más especiales
 
-布林肯说：“中共国必须自己做出主权经济决策，但我们也知道，中共国在经济上的所作所为将对整个世界产生深远的影响，因为我们所有的经济都是如此的相互关联。”
+第一个功能
+La primera función
 
-“因此，当涉及到可能对中共国经济产生重大影响的问题时，我们肯定会确保中共国采取负责任的行动，有效应对所有挑战。”
+外交部是真正的
+El Ministerio de Relaciones Exteriores es realmente
 
-布林肯备受争议的警告立即在金融界引起了轩然大波，促使一些人猜测，这个故事可能比大多数人所意识到的更多。
+一个国家对外的
+El departamento de inteligencia legal
 
-但他的评论也招致了一些批评，受人尊敬的研究机构《中（共）国褐皮书》（China Beige Book）在推特上声称，布林肯的警告“来自无知和无条理”。
+合法的情报部
+De un país
 
-不管解释如何，布林肯的采访是拜登政府高级官员第一次的评论介入（笔者注，两周前鲍威尔对恒大事件作过淡化的评论），表明全球对北京处理此事的关注日益增强。
+你不要说中共国
+No digas el Partido Comunista de China
 
-恒大被起诉
+美国派出的情报人员
+Estados Unidos ha enviado la mayor cantidad de
 
-与此同时，本周，香港两家房地产经纪公司起诉该公司未兑付佣金后，恒大受到了新的打击。
+到大陆是最多的
+Personal de inteligencia a China
 
-据路透社报道，最近披露的一份诉讼显示，中原地产（Centaline）希望能够从恒大收回546,854美元，而米德兰控股公司（Midland Holdings）要求在香港的两项发展中支付7.6亿美元的未付佣金。
+一个北京
+Uno a Beijing
 
-“严重劣势”
+一个香港, 加一起将近一万人
+Uno a Hong Kong, sumando todo esto casi son 10 mil de personas
 
-在《南华早报》发表的一份分析报告中，牛津经济学院（Oxford Economics）首席经济学家吴宇人（Tommy Wu）概述了恒大最坏情况下可能发生的情况。
+最重要的东西就是情报
+El asunto más importante son las informaciones
 
-“在房地产市场迅速变质的更为严重的下行情景中，或者如果恒大重组中的经济和经济下滑加剧，经济急剧下滑将导致住房需求快速下降。”吴写道。
+合法的情报
+Informaciones legales
 
-“房地产开发商的融资成本将增加，融资可能枯竭。
+所以它有武官呐
+Por eso tiene oficiales militares
 
-政府可能会采取更重要的措施来调整其对房地产的总体政策立场，并更广泛地限制对整体经济增长的影响。
+参赞呐, 文化参赞呐
+Consejero, Consejero Cultural
 
-考虑到我们对中共国铁矿石的依赖，在整个事件中，澳大利亚的投资尤其巨大。
+都是假的
+Son falsos
 
-现在，专家们几乎相信，无论恒大的情况如何，我们都会受到特别大的影响，因为中共国房地产行业不太可能很快经历另一轮的繁荣。”
+全都是情报, 都是情报
+Todo son informaciones
 
-（全文完）
+这是明面的
+Esto es lo superficial
 
-布林肯在访欧期间，布隆伯格急于推出这样的采访，虽然有关内容只占全部采访的极小部分（美国国务院的新闻稿只有103个英文字【2】），但全世界媒体却纷纷报道，并进行了强劲解读。是在给习神施压，还是给世界吹风？明显是美国拜登政府给中共跪下了。
+更有一个隐形的
+Hay uno que es invisible
 
-文贵先生早就告诫你们，中共的经济是个怎样的情况，要你们及早脱钩，你们执迷不悟，在暂时的、虚无缥缈的利益诱惑下，怀着惴惴不安的侥幸心理，继续铤而走险。如果说鲍威尔两周前淡化表态，反映的是自欺欺人式的自我安慰，布林肯昨天的言论则有点像“狼来了”的告诫。无论怎样，中共经济是个巨大的泡沫，美国人民的资金是泡沫构成的一部分，泡沫破灭只是时间问题，剩下的就是你们醒悟和如何应对的问题了，恒大问题只是冰山一角！
+它有一个按(体制)
+Tiene un sistema
 
-参考链接：
+叫什么武官呐
+Lo que llaman oficiales militares
 
-【1】[https://knews.uk/us-secretary-of-state-antony-blinken-warns-china-evergrande-crisis-could-affect-the-whole-world/](https://knews.uk/us-secretary-of-state-antony-blinken-warns-china-evergrande-crisis-could-affect-the-whole-world/)
+安全官呐
+Oficial de seguridad
 
-【2】[https://www.state.gov/secretary-antony-j-blinken-with-francine-lacqua-of-bloomberg/](https://www.state.gov/secretary-antony-j-blinken-with-francine-lacqua-of-bloomberg/)
+看上去是表面的
+Son superficiales
+
+事实上全部都是绑架
+De hecho, todo son secuestros
+
+抓人, 杀人, 合法的杀手
+Arrestros, matanza y asesinos legales
+
+哪国都有
+En cualquier país lo hay
+
+没有一个国家没有的
+No hay ninguno que no haya
+
+开启者是美国和英国
+El iniciador fue EE. UU y Reino Unido
+
+所以大使馆就是
+Por eso la embajada
+
+代表国在国土
+Representa el país
+
+大使馆的土(地)
+La tierra de la embajada
+
+是跟国家兑换来的
+Es intercambiado por el país
+
+这个国土
+Este país
+
+这个土地上
+En esta tierra
+
+就是我的国家的国土
+Lo que es la tierra de mi país
+
+它就是战争
+Es una guerra
+
+它就是代表国家意志的
+Representa la voluntad del país
+
+第三个大家可能还不知道的
+El tercero, tal vez ustedes no lo saben
+
+所有的黑社会
+Toda la delincuencia organizada
+
+在这个国家的黑社会
+La delincuencia organizada de este país
+
+到别的国家都是白社会
+Al pasar para otros países son delitos de guante blanco
+
+走私、毒品、绑架
+Contrabando, drogas, secuestro
+
+履行外交权力
+Ejercer el poder diplomático
+
+把这个人怎么弄回去
+Cómo hacer para enviar a esta persona
+
+你只要进了大使馆了
+Si tan sólo entras a la embajada
+
+你不能动了
+No podrás moverte
+
+就像那个瞎子
+Así como ese ciego
+
+叫什么陈什么成一样
+Llamado tal Chen o Cheng
+
+它就玩这个游戏嘛
+Él se divierte con este tipo de juego
+
+就是反正到美国是
+De todos modos llegar a EE. UU es
+
+跟那个当年民主民运
+Al igual que el movimiento democrático de aquel momento
+
+我说过林强抓了以后
+Yo dije que Lin qiang luego de ser arrestado
+
+送到机场说再见了林强
+Cuando lo llevamos hasta el aeropuerto y nos despedimos de él
+
+去美国吃牛排啰, 就是
+Vaya a comer bistec en EE. UU
+
+因为美国人把他送走
+Porque si los estadounidenses lo enviaron lejos
+
+你是不能碰他
+No lo puedes tocar
+
+这叫外交包, 外交飞机
+A esto lo llamamos paquete diplomático, avión diplomático
+
+这是合法的
+Esto es legal
+
+黑社会变白社会
+La delincuencia organizada es convertida en delitos de guante blanco
+
+——————————————————
+
+**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1445260353701511171?s=24](https://twitter.com/se1y7cblljselva/status/1445260353701511171?s=24)
+
+西听校: 洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 文霙
+字幕+视频制作: 洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 :洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
