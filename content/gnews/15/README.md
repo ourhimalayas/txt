@@ -2,23 +2,47 @@
 ---
 
 
-## 运作半世纪的香港中大学生会宣布解散 国安法大棒下公民社会继续被摧残
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1580754/)
+## AMD芯片公司“格芯”将在纳斯达克上市
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1580822/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/855c1718-6e81-48e5-ab47-1ec7f751950b.jpeg.jpg)运作半世纪的香港中大学生会宣布解散 国安法大棒下公民社会继续被摧残 网络图片
-成立了半个世纪的香港中文大学学生会2021年10月7日宣布解散，成为国安法之下港府镇压公民社会团体最新一个牺牲品。自2020年港版国安法实施以来，香港陆续有大约50个公民社会团体宣布解散。
-
-自今年二月以来，香港中文大学收回学生会运作的场地并停止代收学生会会费，并要求学生会向政府独立注册，但是专业律师表示学生会不需要独立注册，于是学生会宣布解散。此外，香港城市大学、理工大学也宣布停止为学生会代收会费，以切断学生会的运作经费来源。
-
-香港各大学的学生会一直积极参与社会运动，包括2014年占领中环、每年悼念六四、2019年反送中，也包括1970年代同情中共、反抗殖民主义的左派运动。自从去年香港强制实施国家安全法之后，学生会受到严厉打压。中共一贯吹嘘的自信和强大，竟然连一个学生会都容不下！港府也很可能另行扶植所谓“爱港者”学生组织，通过校园打击香港的民主运动。
-
-新闻参考链接：[https://www.voachinese.com/a/hong-kong-student-union-20211007/6260768.html](https://www.voachinese.com/a/hong-kong-student-union-20211007/6260768.html)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+栏目记者/责任编辑：火来
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+
+
+
+
+
+
+
+今天，郭文贵先生在直播中透露，三周后，AMD曾经的芯片制造公司格芯（Global Foundries）将在纽约纳斯达克上市，市值250亿美元。该公司将由阿布扎比Mubadala基金100%控股。Mubadala基金是阿联酋的主权基金，与郭文贵先生有多年的合作。格芯公司拥有生产7纳米以下级别芯片最好的技术。中共垂涎格芯的技术多年，使用各种蓝金黄手段，但是，最终都无法得到。格芯生产的芯片是“星链计划”，天空wifi必需的核心元件。Mubadala基金也是“星链计划”的大股东。同时，格芯和IBM联合研发的生物芯片也在突飞猛进的发展。未来，芯片对于GTV，Gnews，Gettr，喜币，以及人类的社交媒体的变革都将有重大的意义。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-20.jpg)
+参考链接：
+[2021-10-07 七哥回答战友们的问题：AMD将在纽约上市，背后股东是谁？中共95%肯定要打台湾的；曾家的灾难还没开始，江家一定会付出代价；新加坡的何晶非常聪明；杨洁篪已岌岌可危](https://gtv.org/video/id=615ef95d304e992109b0faaf)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+终审：鬼五
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

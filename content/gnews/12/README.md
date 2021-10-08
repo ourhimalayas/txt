@@ -2,52 +2,56 @@
 ---
 
 
-## 辉瑞公司举报人披露的电子邮件显示流产婴儿细胞被用于疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1580781/)
+## 2021/10/07大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1580857/)
 
-栏目记者/责任编辑：AsG諾雅
+本期嘉宾：Castle
 
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+[点击观看GTV直播视频](https://gtv.org/video/id=615eefd6304e992109b0f3a1)
 
 
 
+#### 板块1–国际政治
+
+1. 中共与拜登政府一直在进行勾兑。拜习电话后，可能已达成“默契”。中共利用拜登之口传递信息–不攻打台湾、香港法案并未实施等系列操作，表明拜登政府无心灭共。
+2. 杨洁篪背负“习的任务”在瑞士会见沙利文。瑞士是中共洗钱藏钱关键国家，谈判内容涉及中美国家安全和情报信息、为习掌握中共各大家族的“藏宝图”甚至探讨拿走部分利益。
+3. 国内利用《长津湖》电影和军演进行政治宣传，避而不谈真正的危机–国内采购、对外出口、恒大、影子银行等事件。
 
 
+#### 板块2–香港台湾
+
+蔡英文撰文强调“为民主而战”，本质是向国际社会呼吁不要彻底出卖台湾。中共和拜登政府“暧昧举动”可能在部分问题上出卖台湾，美方看重–台湾地理位置（在战略上有重要意义）和核心技术产业（如芯片供应美国）。
+
+#### 板块3–财经
+
+1. 中共国违反禁令进口澳大利亚煤炭，凸显能源短缺。去年澳大利亚要求病毒溯源，中共开始禁止进口澳煤炭、红酒、牛肉等，上月“打脸”高价进口38万吨澳煤炭，预计用于中共有特别要求保障电力的地方，老百姓永远是最直接受害者。
+2. 曾家背景房地产公司“花样年”逾期付款，体现中共国房地产发展出现大问题。恒大爆雷后引发市场恐慌、大众信心丧失、局部踩踏，曾庆红家族也没有砸钱欲望和救市接盘计划。
+3. 索罗斯套现美股，将一些投入加密货币，将引发华尔街资本转向，数字货币和加密货币不可逆。疫苗经济是虚假的，普遍预测在2021底美股到顶，随着工业疲软将开始下行。美国SEC主席表示不会效仿中国禁止加密货币，大众看好数字货币和加密货币前景。
+4. 喜币价值可期。数字货币和加密货币之间的矛盾不可调和，文贵先生创意“双脚走路”–双币挂钩黄金和美元，调节双币间的矛盾；中共实行“单脚走路”–强推数字货币，由于需要掌控货币，废除加密货币。美国最终将迎合“双脚走路”模式。
 
 
-10月6日，辉瑞疫苗生产质量审计员梅丽莎-斯蒂克勒向“真相工程”泄露了内部邮件，揭示公司高管指示员工对其疫苗测试中，使用了人类胎儿组织一事保密，但她不确定疫苗的成品中是否含有那些组织。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-4.jpg)
-辉瑞的首席科学官菲利普-多米泽承认，“用于IVE试验的HEK293T细胞最终来自于流产的胎儿”，然而梵蒂冈教义委员会已经确认，支持生命权的信徒是可以接种疫苗的。辉瑞公司全球研究高级总监凡妮莎-盖尔曼，有求员工谨慎讨论公司疫苗使用人类胎儿细胞之事。她在邮件中表示，在过去几周没有收到来自决策者或媒体相关问题的任何提问，所以希望尽可能避免触及。她还在另一封邮件中，加倍地强调了这一信息的保密性，她说：”我们一直在尽可能地不提及胎儿细胞系已被用于与疫苗项目有关的实验室测试。”
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-23.jpg)
-这个消息对于有虔诚宗教信仰的人士来说是一个震撼弹，它展现了梵蒂冈和各大宗教组织、政府与大制药厂的深层勾结。目前， 包括美国和梵蒂冈的许多政府都不允许人们以宗教原因申请豁免疫苗接种。这一消息将导致宗教界人士对强制疫苗接种的强烈反对。
+#### 板块4–中共病毒
 
-信息链接：
-1. [Pfizer Whistleblower Reveals E-Mails Implying Aborted Baby Cell Use in Vaccine.](https://thenationalpulse.com/news/pfizer-whistleblower-emails-imply-aborted-baby-cells-in-vaccine/)
-2. [Pfizer Whistleblower Leaks Execs Emails: ‘We Want to Avoid Having Info on Fetal Cells Out There’](https://youtu.be/FUXGB5FzhPc)
+武汉和美国科学家（Peter Daszak在2018年向美国国防高级研究设计局提交拨款计划）曾计划制造新型冠状病毒，佐证中共一直是按计划有操作准备生化战。
 
-（本文仅代表作者观点）
+***编辑：【英国伦敦喜庄园编辑部】***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+*听写：call me uncle | 校对：乐禧禧 | PAGE：彼岸花*
 
-终审：鬼五
-校对/发稿：为真不破20
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
 
-**更多资讯，更多关注**
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-121.png)
 
 
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

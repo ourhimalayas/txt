@@ -2,47 +2,19 @@
 ---
 
 
-## AMD芯片公司“格芯”将在纳斯达克上市
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1580822/)
+## 秘翻在线：澳智库：何必在意欧洲的反应？澳英美联盟才是重点
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1580866/)
 
-栏目记者/责任编辑：火来
+#### 撰稿：彩虹
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-08-182721.png)图片来源：视频截图
+10月7日，澳洲智库伯斯美国亚洲中心(Perth USAsia Centre)首席执行官戈登•弗莱克（Gordon Flake）在参与《天空新闻台》(skynews)节目时说，对印太地区来讲，澳英美联盟（AUKUS）是一项巨大的成就，但我们过多地关注了欧洲方面的反应。
 
+他告诉《天空新闻台》观众：“我仍然非常犹豫是否用重要性不同来定义澳英美联盟，因为虽然与法国的关系是重要的，法国的印太战略是受到欢迎的，……（但）澳英美联盟本身是一项重大的成就。更多的注意力应该集中于日本新首相岸田文雄（Fumio Kishida）和印度已经支持这个联盟以及在该地区这对于澳大利亚意味着什么。”
 
+弗莱克先生说“归根结底，澳英美联盟是一个印太地区联盟，但我们大部分时间其却浪费在了谈论欧洲的反应上。”
 
+**新闻链接**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
-
-
-
-
-
-
-
-今天，郭文贵先生在直播中透露，三周后，AMD曾经的芯片制造公司格芯（Global Foundries）将在纽约纳斯达克上市，市值250亿美元。该公司将由阿布扎比Mubadala基金100%控股。Mubadala基金是阿联酋的主权基金，与郭文贵先生有多年的合作。格芯公司拥有生产7纳米以下级别芯片最好的技术。中共垂涎格芯的技术多年，使用各种蓝金黄手段，但是，最终都无法得到。格芯生产的芯片是“星链计划”，天空wifi必需的核心元件。Mubadala基金也是“星链计划”的大股东。同时，格芯和IBM联合研发的生物芯片也在突飞猛进的发展。未来，芯片对于GTV，Gnews，Gettr，喜币，以及人类的社交媒体的变革都将有重大的意义。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-20.jpg)
-参考链接：
-[2021-10-07 七哥回答战友们的问题：AMD将在纽约上市，背后股东是谁？中共95%肯定要打台湾的；曾家的灾难还没开始，江家一定会付出代价；新加坡的何晶非常聪明；杨洁篪已岌岌可危](https://gtv.org/video/id=615ef95d304e992109b0faaf)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-终审：鬼五
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+[AUKUS focus should be on Indo-Pacific not ‘European reaction’](https://www.skynews.com.au/australia-news/defence-and-foreign-affairs/aukus-focus-should-be-on-indopacific-not-european-reaction/video/6098e75e52e06b36db0d4f4498390060)

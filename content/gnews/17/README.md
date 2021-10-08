@@ -2,8 +2,8 @@
 ---
 
 
-## 疫苗公司花费巨资游说美国政府推动疫苗接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1580742/)
+## 辉瑞公司举报人披露的电子邮件显示流产婴儿细胞被用于疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1580781/)
 
 栏目记者/责任编辑：AsG諾雅
 
@@ -19,20 +19,21 @@
 
 
 
-国家脉动10月7日揭秘，辉瑞和摩德纳疫苗公司不约而同地在中共病毒大流行中，巨幅增加了游说经费。其中，辉瑞公司的游说活动达到了十年来的最高水平，数十名高知名度的政治相关人员代表该药厂。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-39.jpg)
-2019年，辉瑞在游说工作上花费了1100万美元，之后将总额增加到自2010年以来最高的1315万美元。2019年，该公司雇用了77名游说者，并于2020年增加到102名，而2021年到目前为止，辉瑞公司已经申报了92名说客。其强大的游说团队雇员包括了两党中有影响力的诸多人士。摩德纳公司则显得相形见绌，2019年，该公司在游说方面花费了4万美元，雇用了一名说客；2020年花费28万美元，说客增至两名；2021年上半年，该公司已经花费了29万美元，并而外雇用了12名说客。
+10月6日，辉瑞疫苗生产质量审计员梅丽莎-斯蒂克勒向“真相工程”泄露了内部邮件，揭示公司高管指示员工对其疫苗测试中，使用了人类胎儿组织一事保密，但她不确定疫苗的成品中是否含有那些组织。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-4.jpg)
+辉瑞的首席科学官菲利普-多米泽承认，“用于IVE试验的HEK293T细胞最终来自于流产的胎儿”，然而梵蒂冈教义委员会已经确认，支持生命权的信徒是可以接种疫苗的。辉瑞公司全球研究高级总监凡妮莎-盖尔曼，有求员工谨慎讨论公司疫苗使用人类胎儿细胞之事。她在邮件中表示，在过去几周没有收到来自决策者或媒体相关问题的任何提问，所以希望尽可能避免触及。她还在另一封邮件中，加倍地强调了这一信息的保密性，她说：”我们一直在尽可能地不提及胎儿细胞系已被用于与疫苗项目有关的实验室测试。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-23.jpg)
+这个消息对于有虔诚宗教信仰的人士来说是一个震撼弹，它展现了梵蒂冈和各大宗教组织、政府与大制药厂的深层勾结。目前， 包括美国和梵蒂冈的许多政府都不允许人们以宗教原因申请豁免疫苗接种。这一消息将导致宗教界人士对强制疫苗接种的强烈反对。
 
-文末，作者披露了一份83人的由上述两家公司申报的说客名单，许多人来自高级别背景，如白宫、总统候选人、众议院议长办公室和一些国会办公室，其涉及人数之众、范围之广、和影响力之大令人震惊，也完全解释了美国疫苗强制接种背后不可告人的原因。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.2-2.jpg)
 信息链接：
-[REVEALED: Pfizer Lobbying Hits Decade High as DOZENS of High-Profile Political Appointees Become Big Pharma Reps](https://thenationalpulse.com/exclusive/pfizer-and-moderna-increase-lobbying-efforts/)[.](Pfizer%20Lobbying%20Hits%20Decade%20High%20as%20DOZENS%20of%20High-Profile%20Political%20Appointees%20Become%20Big%20Pharma%20Reps.)
+1. [Pfizer Whistleblower Reveals E-Mails Implying Aborted Baby Cell Use in Vaccine.](https://thenationalpulse.com/news/pfizer-whistleblower-emails-imply-aborted-baby-cells-in-vaccine/)
+2. [Pfizer Whistleblower Leaks Execs Emails: ‘We Want to Avoid Having Info on Fetal Cells Out There’](https://youtu.be/FUXGB5FzhPc)
 
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-终审：Ryan
+终审：鬼五
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

@@ -2,58 +2,53 @@
 ---
 
 
-## 统计数据继续显示COVID-19 疫苗运动与预期相反
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1580834/)
+## 中共对美国在台湾突击队的报道进行反击
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1580890/)
 
-- **编译：JennyBall**
+- **编译：Lulumi**
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip269.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip273.png)
 
-《生活新闻》[(LifeSiteNews](https://www.lifesitenews.com/)) ——上周发布的一段简短视频，使用来自[约翰斯·霍普金斯大学冠状病毒资源中心](https://coronavirus.jhu.edu/)的数据来说明，在引入[实验性](https://www.lifesitenews.com/blogs/10-reasons-why-the-fda-approval-for-pfizer-jab-isnt-about-health-but-about-forcing-people-to-take-the-shot/?utm_source=featured&amp;utm_campaign=usa) COVID 后，全球许多国家的 COVID 死亡人数急剧增加 。
+周四，中共领导人几乎立即对一份新的报告表示愤怒，报告显示美国已在台湾秘密驻扎军队，试图加强该岛国的防御，以应对来自大陆的越来越大可能性的攻击。
 
-由[HART 集团](https://www.hartgroup.org/)附属的定量数据分析师乔尔·斯莫利（[Joel Smalley](https://twitter.com/RealJoelSmalley)）作的引人注目的演示文稿，标题为“疫苗接种计划前后的 COVID 死亡人数”，似乎是他[5 月发布的类似视频的续集](https://www.lifesitenews.com/news/video-points-out-unexpected-spikes-in-covid-19-deaths-following-vaccine-uptake/)。
+《华尔街日报》首先报道说，一小队特种作战部队已经在台湾驻扎了至少一年，以训练当地的军事力量——中共此前曾表示此举将违反华盛顿和北京之间有争议的协议，这些协议几十年来一直保持着有关台湾脆弱的安全的谅解。亚洲媒体去年首次报道了海军陆战队在那里的可能存在。
 
-在[视频](https://www.youtube.com/watch?v=WR-pqrMWu3E)的[推文](https://twitter.com/RealJoelSmalley/status/1442059898582355969)介绍中，英国人斯莫利挑战了所谓的“疫苗”已显示出足够的效力来维持其紧急使用授权的说法。
+“为什么只有二十几名成员？为什么是秘密的？美国应该公开派遣240名军人，穿着美国军装，并公布他们的驻扎地点。”被认为是中共喉舌的英文《环球时报》的主编胡锡进在该报文章的推特上写道。他在谈到中共军队时补充说：”看看解放军是否会发动有针对性的空袭，消灭那些美国侵略者！”
 
-他写道：“COVID 疫苗在减少严重疾病和死亡方面的有效率为 50% 至 80%。” “它们必须至少有 50% 效果才能保留紧急使用授权。这种显着的功效在经验性的“真实世界”数据中应该是显而易见的， 应该很少有国家例外。”
+中共此前曾表示，它将对美国在台湾部署军事力量的任何迹象进行迅速和立即的报复。当德克萨斯州共和党参议员约翰·科尔尼在8月声称美国在台湾有大约3万名军队时。（但没有解释消息来源）北京的宣传机器回击说，如果是真的，中共军队将 “用武力粉碎他们”。
 
-该[视频](https://www.youtube.com/watch?v=WR-pqrMWu3E)显示了每个国家在实验性疫苗接种活动开始之前（蓝色）和之后（红色）每周的 COVID-19 死亡人数，显示了大约 [40 个不同国家](https://photos.google.com/share/AF1QipN3RNLe6QJrvtlyUquqWTfYEX6FDVME1Xy4KK8FbognSTIEJNDn4YmpMyizuGrk3Q?pli=1&amp;key=VWxnOU5uZGlYY3FHWlE3aUNGY05KVDNRUmgtZ2x3)的疫苗接种率与死亡人数激增之间的显着相关性。
+在中共以前所未有的规模，不断向台湾防空识别区部署飞机之后，以前被淡化为空洞的威胁在最近几天又有了新的效力。几十架战机在周五和周六进入台湾防空识别区——技术上是在台湾自称的空域之外——这一天是中共纪念篡政72年的年度庆典，随后在周一又有50多架战机进入，几乎比6月份的最大一次挑衅规模翻了一番。
 
-例如，以色列、台湾和乌干达的 COVID 死亡人数急剧增加。
+最新一轮的威胁发生在中美关系特别有争议的时候，在川普政府的经济和外交政策以及北京最近几个月的侵略性增加之后，中美关系在许多方面已经达到了历史最低点。美国国防官员今年早些时候警告说，中共可能试图在六年内入侵台湾，夺取它声称是大陆叛逃省份的领土。五角大楼的规划人员已经开始将该岛称为 “台湾要塞”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip270.png)
+自从最近的空中入侵以来，台湾的国防部长邱国正说，现在（中共）可能最快在2025年就会发生全面的攻击。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip271.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip274.png)
+2019年2月14日，中共国工作人员在北京钓鱼台国宾馆举行的中美贸易代表贸易谈判开幕式前调整中美两国国旗。在乔·拜登担任总统的九个月里，美国对中共在贸易、台湾和其他问题上的政策的抱怨并没有减少。(AP Photo/Mark Schiefelbein)
 
-虽然，相关性并不能证明因果关系，**但从更广泛的相关数据来看，在接种疫苗的人群中可以发现高感染率、高住院率和高死亡率的全球趋势。**
+目前还不清楚最新消息是否会影响拜登政府与习近平主席之间关系的解冻。国家安全顾问杰克·沙利文(Jake Sullivan)本周早些时候在瑞士苏黎世会见了他的中共同行，这是他们自3月份在阿拉斯加安克雷奇举行紧张会谈以来的首次聚会。
 
-7 月份[报道](https://www.lifesitenews.com/news/uk-govt-official-revises-previous-statement-asserts-only-60-of-covid-hospitalizations-are-of-the-unvaccinated)，英国 40% 的 COVID-19 住院患者是“完全接种疫苗”的。 最近，正如威斯康星州公共卫生部的美国共和党参议员罗恩·约翰逊所[强调](https://fb.watch/8qcN_XZQZy/)的那样，英国 63% 的 Delta 变异死亡病例都接种了疫苗。
+北京随后将最新的会谈描述为 “富有成效”，并说它们 “可以结出果实”。
 
-此外，以色列最近几个月因 COVID 病例和接种疫苗的住院率飙升而成为头条新闻。 截至 8 月初，耶路撒冷赫尔佐格医院院长科比·哈维夫( Kobi Haviv) 博士在以色列第 13 频道指出，以色列“大多数人口”都接种了疫苗，他看到“85-90% 的住院患者”都“完全接种了疫苗”。
-
-**这种与高疫苗接种率相关的病例上升现象已成为普遍趋势，伴随着疾病（或伴随）死亡率的上升，**如上所示。
-
-辉瑞公司在 9 月 17 日提交给美国食品和药物管理局 (FDA) 的一份简报文件中透露了这种相关性，辉瑞公司本身也承认了这种相关性。简报包括制药巨头自己的一项研究报告，表明注射后感染率较高 ，相当于注射接受者变得更容易感染 COVID-19。
-
-此外，彼得·麦卡洛 (Peter McCullough) 博士在 8 月的一项预印本研究中报告说，“与未接种疫苗的人相比，已接种疫苗人的鼻孔中携带的 COVID-19 病毒载量是其 251 倍。”
-
-“由于感染症状轻微，疫苗使得接种疫苗的人携带异常高的病毒载量，但不会一开始就生病，这有可能使他们转化为症状前的超级传播者，”两本主要[医学期刊](https://www.ajconline.org/)的编辑麦卡洛写道。
-
-他继续[推测](https://www.lifesitenews.com/news/dr-peter-mccullough-tells-rfk-jr-the-vaccines-are-failing/)，这可能是许多地方，即使群体免疫水平很高，并接种疫苗率很高，但却出现大规模“突破性爆发”的原因。
+乔·拜登总统本周宣布，他已同意在年底前与习近平进行一次线上会晤。
 
 **评论：**
 
-**人们应该相信科学，真实的科学，而不是被编篡的“科学”。希望这些无声的科学数据震醒还蒙在“伪科学”谎言中的民众！**
+**2017****年10月在哈德逊演讲被取消后，文贵先生在华盛顿国家记者俱乐部召开了发布会。第一次向世界发出警告：“黑暗即将到来，请大家保持警惕”。当时各国政府并没有重视起来，继续纵容中共邪魔在世界上为非作歹，结果全世界都深陷中共病毒的泥潭。**
+
+**关于台湾，2021年8月19号文贵先生再次严肃地向世界发出****警告，中共密谋20大前对台湾发动进攻。文贵先生以赌逼和，开出100亿美元赌局将中共犯台的图谋曝光在世界面前。然而台湾国防部还认为攻台时间在2025年左右，这样的国防部如何保护台湾人民？美国方面拜登跟习近平暗通款曲，美军保护台湾也是做做样子。**
+
+**真正有实力并用实际行动来保护台湾的，只有文贵先生领导的新中国联邦。或许狼来了喊太久了，就算到了现在兵凶战危的时刻，大部分台湾民众还是双手一摊事不关己的感觉。我们不用苛求他们的认同，我们追求的是对自己信仰的坚持。我们只需默默坚持做正道之事，不求回报，用行动拯救更多人。**
 
 （文章仅代表作者观点，与GNEWS无关）
 
-**素材链接**：**[lifesitenews.com](https://www.lifesitenews.com/news/brief-video-illustrates-dramatic-spikes-in-covid-19-deaths-following-jabs-in-40-nations/)**
+**来源：[美國新聞與世界報導](https://www.usnews.com/news/world-report/articles/2021-10-07/china-levies-new-threats-at-reports-of-us-commandos-in-taiwan)(US News & World Report) | 作者：Paul D. Shinkman** ** 发布时间：2021年10月7日 **
 
 * * *
 
 ***审核：文乐
-校对：阿伯塔
+校对：信心满满
 发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip190.png)
