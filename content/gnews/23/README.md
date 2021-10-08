@@ -2,13 +2,35 @@
 ---
 
 
-## 2021年10月8日 文贵先生盖特 8
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1581862/)
+## 2021/10/08文贵先生盖特精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1581962/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-137.png)[盖特链接](https://gettr.com/post/pdiwza018f)
+世界变化太快了！FaceBook、Instagram、WhatsApp内部管理团队大崩溃，面临全球的讨绞。他们在病毒和疫苗背后的非法操作，用所谓的“媒体正义”、“媒体法院”、“媒体引导”通过技术诱导未成年孩子沉溺于不健康的网络灾难之中。全世界都在行动，“扎泽东”“扎特勒”（扎克伯格）太坏了。
 
-CCP Virus Covid-19 Treatment & Prophylaxis Protocol & Covid-19 Vaccinated People Detox Protocol Recommended by the New Federal State of China Whistleblowers Movement
-![](https://assets.gnews.org/wp-content/uploads/2021/10/b0a2030f06b1c426204fe2067d04ff58.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/8d5b5ac1ad466daf5f1d8f22a75435f6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/f4bf0519f0418bf698cc020794ccd5e3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/a8c4860a890fc2c025f282b5443e2a35.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0746600f47fd6033b2786804d9710646.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0cdd38ccafd45771b6a14eb54296bc4b.jpg)
-[【2021年10月8日】文贵先生盖特原文](https://gettr.com/post/pdgntbf168)
+所谓的“瑞士会谈”就是美方糊弄“习大神”不要打台湾。西方判断习的身体最多撑不过二年，甚至现在的内部政治斗争都可能消耗掉他。美方通过一些人探知中共的内部政治，发现所有人都在等“习大神”出事。
 
-**喜联盟Gnews编辑部**
+马云现在到香港，表面上答应中央往回弄资产，实际干着自己的事，他和李嘉诚都是一伙的，是江志成的兵，都等着习出事。杨洁篪是“身在习营心在江”，所以美方根据国内政治和经济和杨洁篪来勾兑，糊弄习不打台湾，但这对于台湾更坏了。江家给美方这种消息，让江家势力得以苟延残喘，当一定时候就会果断对台湾出手，台湾凶也！
+
+美国通过糊弄中共要友好，减关税来忽悠习买美国国债。刚批了4800亿，这样美方可以先把美股市托上去，把美国国债的问题解决了。但是天天靠骗钱、借钱，最终要负责任的，也只能骗一时，经济一定会出问题。中美两边政治形式都不看好，都是玩假经济，玩假政治。他们一切利好，但最终牺牲的还是台湾和老百姓。
+
+更可怕的是社交媒体在病毒和疫苗，对世界的影响每时每刻都在改变着一切。昨天开会，七哥说所有计划都特别好，但是6个月以后都会和想象不一样。当疫苗灾难改变人类生存时，这些计划的事还会发生吗？
+
+以后金融只有虚拟货币，数字经济，世界将会重写金融秩序，金融体系。新的生命科技、新的技术改变病毒和疫苗对人类的灾害，这才是高科技。
+
+所有强迫打疫苗的，都会受到审判。疫苗灾难会改变人类一切，生存方式、水、电、交通、粮食都会改变。这时候谈选举政策都是扯淡，所谓的政治家都是罪人。
+
+最终得让共产党交代病毒哪来的，疫苗的背后是谁，黑暗势力是谁。新的政治、经济、媒体的势力都将诞生。新中国联邦对人类无任何伤害，我们的社交媒体平台都是对人类最好的。未来几周看看会发生什么，别太小看了新中国联邦，从现在开始的每天都会很精彩！
+
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*听写：文评 / 校对：小雨*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
