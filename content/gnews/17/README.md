@@ -2,22 +2,38 @@
 ---
 
 
-## 学生接种疫苗后死亡！学校强烈否认
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1581504/)
+## 加拿大扩大强制疫苗范围，乘坐飞机火车等必须出示完全接种证明
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1581545/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1087.png)[图片来源](https://news.yahoo.co.jp/articles/f5825bd3e47f26e22139b2a4c2baf60ca5de8b67/images/000)
-据日本“读卖新闻”10月8日报道，一些小学和高中的学生在社交媒体上发布了“接种疫苗后死亡”的信息，该信息被广泛传播，因此，学校方面接到很多抗议电话，让学校不要隐瞒，学校强烈的否定该信息的真实性。新闻称，最开始是兵库县的一名诊所医生发布相关帖子，学校要求医生修改言论内容，被拒后，该贴遭删除。
+作者：香草山金融部 – 闲聊钱币
 
-报道最后引用了千叶大学医院的黑川友哉医生的话，称“家长和孩子应该讨论是否接种疫苗，最好是接受之后再做决定。根据可靠的信息做出判断是很重要的，不要被不确定的言论所迷惑。”有趣的是，日本“体育报知”10月8日对该事件也进行了报道，作家乙武洋匡在推特上呼吁，呼吁内容与黑川友哉医生几乎一样。
 
-疫苗的危害终究是掩盖不住，有识之士在说出真相，无为的媒体却在抹杀真相。有些医生是真正医者仁心，可怕的是，有些医生却在诱导孩子接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture7-1.jpg)
 
-信息来源：
-1、[乙武洋匡氏、ワクチン接種後に児童死亡の誤情報拡散で訴え「不確かな話に惑わされないでほしい」](https://news.yahoo.co.jp/articles/017f7f85d6ba432dd619a81539fa15a76b62b2bd)
-2、[児童ら「接種後に死亡」と誤情報…開業医の投稿で拡散も、「隠蔽するな」学校に抗議続々](https://news.yahoo.co.jp/articles/f5825bd3e47f26e22139b2a4c2baf60ca5de8b67)
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+十月六日，加拿大政府发表声明凡是乘坐飞机火车等交通工具必须出示完全接种证名。新法规从十月三十日生效。
+
+尽管反对强制接种疫苗的呼声此起彼伏，但现任政府无视大众的呼声，回避疫苗的潜在危害，再次扩大强制注射疫苗的范围。早前，餐馆，影院，健身房等场所已经被要求客人出示注射证明才可进入，现在更加扩大到乘坐飞机火车邮轮等交通工具。
+
+总理小土豆在周三的发布会上用强硬的语气说如果你想在这个冬天旅行，你必须注射疫苗。同时表明只有很少很少的特例可以免于注射。伴随着该法规的出台还有非常严厉的罚款措施，最高可达$250,000加元。
+
+加拿大政府的这些官僚打着为民众好的旗号，不去追究病毒的来源，无视注射疫苗后可能的严重后果，禁止医生用有效药品治疗病人。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture8-3.jpg)
+越来越多的加拿大人无论是精神上还是肉体上都会受到强制疫苗的危害。他们会失去工作，失去自由，受到歧视。
+
+（本文仅代表作者观点）
+
+参考来源：[https://ca.news.yahoo.com/traveling-canada-plane-youre-going-175904121.html](https://ca.news.yahoo.com/traveling-canada-plane-youre-going-175904121.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)

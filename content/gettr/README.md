@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/8/2021 4:43 PM (UTC)`
+
+10/7/2021 Miles Guo: I persuaded a country’s leader to buy medicines like artemisinin for its citizens; The COVID vaccines are extremely profitable; Although big pharma companies claim to save people, they are paying people to get the jab through lobbying and also have the governments push vaccine mandate; Any decisions made by the CDC cannot deprive the people of their right to survival.<br/><br/>10/7/2021 文贵直播：七哥劝某国领导人给他们国家的公民买青蒿素等药物；冠状病毒疫苗一本万利；大药厂美其名曰救人，但却通过游说、给他人钱去打疫苗并让政府强制接种疫苗；美国疾控中心的任何决定都不能剥夺人们生存的权利！<br/>
+![img](https://media.gettr.com/group27/getter/2021/10/08/16/43/59901e57-bfb2-e0a4-0beb-a6e06f446291/out.jpg)
+
+---
+
 `@miles 10/8/2021 4:14 PM (UTC)`
 
 10/7/2021 Miles Guo: In 6 weeks you will see which Nasdaq-listed company owns the new technologies combining nanotechnology and biotechnology! The CCP can only use dirty tricks like reporting fake cases to attack us<br/><br/>10/7/2021 文贵直播：大家在6周后会看到是哪家在纳斯达克上市的公司拥有着纳米技术和生物技术结合的新技术！共产党只会用报假案等下三滥的招儿来对付我们<br/>
@@ -289,13 +296,6 @@ Attorney Thomas Renz: If you get the vaccine, you are more likely to get Covid. 
 
 10月4号：尊敬的战友们好，明天10月5号，上午8:30至11:00七哥和帅哥美女的战友们，开始大直播，一切都已经开始！
 ![img](https://media.gettr.com/group18/getter/2021/10/05/01/5b91c951-29f7-fc83-1df4-793036cd768f/32f1541adbc7fe43464391a420bff9e2.jpg)
-
----
-
-`@miles 10/5/2021 12:05 AM (UTC)`
-
-10/04/2021 Miles Guo’s GETTR: People in the CCP’s law enforcement, ask yourselves if all you dare to do is bullying the harmless Lao Bai Xing. The CCP virus and the vaccine disaster is a “Great Purge of the wrongdoers,” where all those who have oppressed and plundered the people will be put on trial<br/><br/>10/04/2021 文贵盖特：中共所谓的公检法人士摸摸良心，你们是不是只敢欺负手无寸铁的老百姓？中共病毒和疫苗灾难是一场全人类的坏人大清洗，所有在过去欺压人民、掠夺财富的人都会受到审判<br/>
-![img](https://media.gettr.com/group46/getter/2021/10/05/00/05/85e272b6-0fd8-ee49-d6fc-4f88df1cea14/out.jpg)
 
 ---
 
