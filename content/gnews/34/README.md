@@ -2,62 +2,34 @@
 ---
 
 
-## 澳医疗制造商因“假阳性”召回在美近 20万个测试器
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1579841/)
+## 中国留学生教堂纵火,国人须慎行防排华!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579948/)
 
-- **编译：JennyBall**
+栏目记者/责任编辑：文龍
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-102.png)
+美国阿拉巴马州当地媒体10月5号报道,  第一浸信会教堂是 阿拉巴马州蒙哥马利市地标建筑，该教堂9月29日晚遭人纵火, 内部一些设施遭烧毁。当地执法机关依据教堂内部监视器录像追踪涉案人，将来自中国的留学生严晓琴(音译，Xiaoqin Yan)逮捕，嫌犯目前收押在蒙市拘留所，等候接受调查起诉。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9-1.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip265.png)
+法庭文件显示, 嫌犯严晓琴今年27岁，是一名来自中国的留学生，检察官贝利已将其留学生签证取消，并提高了原定3万美金的保释金，以防止嫌犯弃保潜逃,因为该案在当地引起轩然大破, 民众愤怒不已! 但嫌犯纵火焚烧教堂的动机尚未公布。
 
-**澳大利亚医疗技术制造商“埃卢姆” （Ellume ），发现他们产生了不正确的阳性结果后，召回了销往美国近 200,000 个 COVID-19 家庭测试器。**
+在病毒及疫苗真相正在揭晓的当下, 爆料革命也在警示全球各地华人，一定慎言慎行，在传播真相的同时告知周遭,  中共不代表中国人，中国人不都是共产党 ! 与此相对应,  任何违背当地法律法规，支持中共邪恶政权，甚至给当地人文或环境带来威胁/损害的言行，都有可能引发并酿成 严重的排华事件。本台将关注这一事件的后续报道。
 
-Ellume 于 2020 年 12 月获得美国食品和药物管理局 (FDA) 的紧急授权，可以为 2 岁以上有症状和无症状的个人提供 COVID-19家庭测试，以供非处方使用。家庭测试在 15 分钟内可提供结果。
+(本文仅代表作者观点)
 
-拜登政府与该公司签署了一项价值 2.318 亿美元的交易，该公司最初于 2020 年获得川普政府的批准，每天生产超过 633,000 个测试套件（每月 1900 万个），其中 850 万个销往美国。
+参考链接：[Arrest made in arson at First Baptist Church Montgomery](https://thealabamabaptist.org/arrest-made-in-arson-at-first-baptist-church-montgomery/)
+[中国留学生纵火烧毁百年教堂被捕](https://www.sinchew.com.my/20211007/中国留学生涉嫌纵火192历史教堂遭被捕/)
+[清秀中國女留學生縱火燒美國200年教堂 友人：她不知受了什么刺激](https://lihkg.com/thread/2727354/page/1)
 
-但FDA在 10 月 5 日表示，它“提醒测试用户、护理人员、医疗保健人员和公众注意，由于最近发现的制造问题，Ellume COVID-19 家庭测试的某些批次可能出现假阳性结果 。”
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-**“**对于这些测试，‘假阳性’是一种测试结果，表明一个人实际上没有感染病毒。 阴性结果似乎不受制造问题的影响，”通知中写道。
+终审：文龍
+校正/发稿：谐趣园
 
-FDA 补充说，它正在与 Ellume 密切合作，以“评估公司的额外制造检查和其他纠正措施，以帮助确保问题得到解决。”
-
-与此同时，要求使用测试器的用户，通过比较测试纸箱上的批号与公司网站上的批号，检查他们的家庭测试器是否在要召回的范围内。
-
-如果用户在过去两周内收到了可能有缺陷的家庭测试的阳性结果，并且还没有进行过 COVID-19 分子诊断测试，则还要求他们联系他们的医疗保健提供者或紧急护理机构，请求进行 COVID-19 分子诊断测试。 与医疗保健提供者进行随访，以确认阳性结果。
-
-“您不应该假设您患有 COVID-19 或对 COVID-19 具有免疫力，”FDA 表示，同时建议在家测试的用户仍然按照CDC的建议采取预防措施。
-
-Ellume 的一位发言人在 10 月 6 日告诉法新社，在运往美国的 350 万份测试中，有 195,000 份受到了影响。
-
-据《纽约时报》报道，部分召回的测试已提供给美国国防部。
-
-该公司在其网站上的一份声明中表示，经过彻底调查后，它已经确定了特定批次测试中误报的发生率。
-
-“我们为人们因假阳性结果而可能遇到的压力或困难表示诚挚的歉意。我们已经并将继续努力确保在所有情况下的测试准确性，”声明中写道。
-
-Ellume 是获得 FDA 紧急使用授权进行快速抗原 COVID-19测试的几家公司之一，此次召回，是对支持拜登政府打击 COVID-19 努力的家庭测试的需求不断增长的情况下进行的。
-
-10 月 4 日，FDA 授予 ACON Laboratories公司的 Flowflex COVID-19家庭测试紧急使用授权，该产品无需处方即可在家中使用。
-
-FDA 在一份声明中表示，总部位于圣地亚哥的 ACON 公司，计划每月生产超过 1 亿次测试，到 2022 年 2 月每月生产 2 亿次。
-
-**评论：**
-
-**如果已经有人因为错误的结果， 被错误地治疗或恐惧受伤或死亡，可以找回他们的健康和生命吗？**
-
-**事出反常必有妖！**
-
-**如果病毒大流行和强制疫苗不是阴谋，政府和严谨的“科学界”就不会如此违反科学规律草菅人命! 不惜一切手段，不惜违反所有科学原理，不惜违反所有人权自由和法律，强推没有通过二期动物实验的Covid疫苗!**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**素材链接**：**[theepochtimes.com](https://www.theepochtimes.com/mkt_morningbrief/australian-medical-manufacturer-recalls-nearly-200000-covid-19-tests-in-us-over-false-positive-results_4034443.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-10-07&amp;mktids=834a710dbc101f0a6fc6ece50ef33e91&amp;est=wAFiGJPoGcWeP6m7HmU2ni%2FhbMKGA0BAUwTFOblwx%2BcVnUT%2Bk0jW3NyTJbXXtI96KaYw%2Fg%3D%3D)**
-
-* * *
-
-***审核：文乐
-校对:  阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip190.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

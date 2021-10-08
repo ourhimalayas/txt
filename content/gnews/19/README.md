@@ -2,25 +2,12 @@
 ---
 
 
-## 山西27座煤矿停产！今冬煤电雪上加霜
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1580021/)
+## 2021年10月07日澳喜要闻（每日更新）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1580081/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/30407cd4-fcdf-4529-9480-6de3248f575a.jpeg)[图片来源](https://www.rfa.org/mandarin/yataibaodao/jingmao/ql2-10072021063150.html)
-能源业界目前有一个普遍的结论：若煤的逻辑不理顺，中国产业链的逻辑就很难顺！而长假期间，山西的天气让煤的逻辑又变得复杂起来。
+撰稿：GTV澳喜影像视频组、新闻组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1008image0-3-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/1008image1-scaled.jpg)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-据中国天气网10月7日消息，今年“十一”假期，山西遭遇强降雨侵袭，受暴雨影响，截至10月4日8时，山西共转移10704名群众，停产煤矿27座、非煤矿山99座、危化企业7家，停工在建工程231个，关闭景区74个。
-
-有机构表示，“十一”期间，山西因防汛需要，二十余座煤矿关闭，恐在节后造成更大的缺口预期，虽有零星进口到港煤炭，但效果还有待观察。进口蒙煤方面，后期蒙煤增量难度依然较大，对高价焦煤相对有支撑。后续重点关注粗钢压减进度，影响双焦需求的程度，以及动力煤保供政策是否能带来配煤供给增加。
-
-山西是中共国最大的煤炭生产与输出基地，据统计，仅改革开放以来，山西累计生产煤炭90亿吨，占全国煤炭生产总量的30%，累计跳出煤炭60亿吨，占全国省际间调出量的70%，煤炭出口占全国70%。
-
-作为能源输出大省对中共国能源供应起着举足轻重的作用，而这场地质灾害时间恰逢入冬，对本来已经严重缺煤的热电企业来说，无异于雪上加霜，这个冬天可能真的很难过。
-
-[信息来源](http://m.news.cctv.com/2021/10/04/ARTILwgKzG2QB1euQbciNuQp211004.shtml)
-
-（文章仅代表作者个人观点，与GNEWS无关）
-
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

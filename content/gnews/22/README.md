@@ -2,34 +2,36 @@
 ---
 
 
-## 中国留学生教堂纵火,国人须慎行防排华!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579948/)
+## 世界正在目睹由血栓引起的N-STEMI心脏病大流行
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580068/)
 
-栏目记者/责任编辑：文龍
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-102.png)
-美国阿拉巴马州当地媒体10月5号报道,  第一浸信会教堂是 阿拉巴马州蒙哥马利市地标建筑，该教堂9月29日晚遭人纵火, 内部一些设施遭烧毁。当地执法机关依据教堂内部监视器录像追踪涉案人，将来自中国的留学生严晓琴(音译，Xiaoqin Yan)逮捕，嫌犯目前收押在蒙市拘留所，等候接受调查起诉。
+**据《新闻目标》作者：Lance D. Johnson，2021年10月5日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/atsxf-zwqgf.jpg)图片来源：《新闻目标》
+某种类型的心脏病发作在全世界范围内呈上升趋势。苏格兰的医护人员已经看到一种可能致命的心脏病发作类型急剧上升，称为N-STEMI心脏病发作。这种情况是部分动脉阻塞的结果，切断了对心脏的血液供应。与普通STEMI心脏病发作相比，它的组织损伤较小，但同样可能是致命的。将支架放入患者的动脉可以挽救他们的生命。虽然STEMI发作的案例多年来一直保持稳定，每年约有750例，但最近N-STEMI的案例激增。来自克莱德班克的金禧国家医院的医生们记录了夏季N-STEMI心脏病发作持续上升25%的情况。这家医院通常每月接收240名N-STEMI患者，但在今年5月、6月和7月，N-STEMI心脏病发作患者的数量攀升至每月超过300人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9-1.jpeg)
+**锁定人口并剥夺他们的生计会造成严重的副作用**
 
-法庭文件显示, 嫌犯严晓琴今年27岁，是一名来自中国的留学生，检察官贝利已将其留学生签证取消，并提高了原定3万美金的保释金，以防止嫌犯弃保潜逃,因为该案在当地引起轩然大破, 民众愤怒不已! 但嫌犯纵火焚烧教堂的动机尚未公布。
+心脏病人从全国卫生服务网的各个地方涌入金禧国家医院，从NHS大格拉斯哥，到克莱德、邓弗里斯和加洛韦，再到艾尔郡和阿兰、福斯谷和高地。在这个夏天，医院不得不将其心脏科的床位数量增加44%，因为一线医护人员要应对心脏病患者的需求增加。
 
-在病毒及疫苗真相正在揭晓的当下, 爆料革命也在警示全球各地华人，一定慎言慎行，在传播真相的同时告知周遭,  中共不代表中国人，中国人不都是共产党 ! 与此相对应,  任何违背当地法律法规，支持中共邪恶政权，甚至给当地人文或环境带来威胁/损害的言行，都有可能引发并酿成 严重的排华事件。本台将关注这一事件的后续报道。
+医生们正试图确定为什么N-STEMI患者数量会有如此急剧的上升。在封锁期间，人们获得健康检查的机会较少，如果没有呼吸道症状，他们更可能远离医院。金禧国家医院的首席顾问心脏病专家米切尔·林赛（Mitchell Lindsay）说，他们找不到“任何证据”表明N-STEMI患者数量的上升是“任何延迟护理或错过治疗机会的结果”。
 
-(本文仅代表作者观点)
+在前两波封锁期间，心脏病发作没有类似的上升。医生们认为，在过去两年的封锁期间，人们变得更加久坐不动，无法应对封锁带来的所有新压力。他们还认为，许多病人在封锁期间忽略了心脏病发作的症状，因为他们不想出现在医院，冒着被感染和与家人分离的风险。林赛说：“可能有五到十个原因，都有联系。”
 
-参考链接：[Arrest made in arson at First Baptist Church Montgomery](https://thealabamabaptist.org/arrest-made-in-arson-at-first-baptist-church-montgomery/)
-[中国留学生纵火烧毁百年教堂被捕](https://www.sinchew.com.my/20211007/中国留学生涉嫌纵火192历史教堂遭被捕/)
-[清秀中國女留學生縱火燒美國200年教堂 友人：她不知受了什么刺激](https://lihkg.com/thread/2727354/page/1)
+**炎症性、凝血性的Covid疫苗是导致心脏急症涌现的原因之一**
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+医生们没有提到covid-19疫苗在这次医疗事故中的作用。这些疫苗正在造成可核实的血凝块，对心血管系统造成炎症。根据研究，SARS-CoV-2尖峰蛋白破坏了人类心脏周围细胞的功能，并通过CD147受体介导的信号传导促进了微血管疾病。 (相关：心脏病专家警告说，这是covid疫苗的虚假和由注射引起的过度炎症免疫反应。)
 
-终审：文龍
-校正/发稿：谐趣园
+2021年夏天，随着全国乃至全球的心血管健康状况骤降，重病患者激增。这种心脏病患者的大流行造成了医院床位的短缺，并导致急诊室的长时间延误。据报道，由于所有这些新的、由疫苗引起的公共卫生问题，导致救护车已经被堵在医院门口排队。锁定人群的血液凝固，尖峰蛋白注射，都带来严重的（预期）后果。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+由于心理压力、生理压力和炎症被强加给人们的生活，该医院不得不在2021年进行创纪录的血管成形术手术。病人来的时候，动脉部分堵塞，需要用支架来撑开血管，以保持血液流向心脏。过去，这些病人中的许多人可以在离家较近的医院康复；然而，现在许多病人不得不留在大医院，因为小医院已经挤满了仍在努力康复的心脏病患者。
+
+**原文连接：**[https://newstarget.com/2021-10-05-world-witnessing-pandemic-of-nstemi-heart-attacks.html](https://newstarget.com/2021-10-05-world-witnessing-pandemic-of-nstemi-heart-attacks.html)
+
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

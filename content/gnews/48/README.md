@@ -2,38 +2,21 @@
 ---
 
 
-## 秘密视频：辉瑞科学家承认COVID自然抗体优于疫苗
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1578873/)
+## 疫苗灾情｜希腊 65 岁男演员接种疫苗后因血栓而中风入院
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1579390/)
 
-撰稿：Runaway
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 7/10/2021**
 
-一份秘密采访辉瑞科学家的视频揭露并证实了更多的疫苗真相。
+***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
+![](https://assets.gnews.org/wp-content/uploads/2021/10/17-1.jpg)
+【希腊】65 岁著名男演员 Lakis Lazopoulos 因血栓引致中风而被紧急送往医院，两周前，他接种了第二剂辉瑞 COVID-19 疫苗。
 
-**辉瑞COVID-19疫苗研发科学家–尼克.卡尔（Nick Karl）：**
+Lakis 于 6 月 4 日接受第二针疫苗之后，他的身体立即出现了各种不适，半个月之后，即 6 月 19 日他因中风而被送院诊治。此后就一直在家中休养。经诊断显示，他的脑部有一个明显的“凝块”，而这个血块已经向四处扩散。
 
-“疫苗是蛋白质，只在病毒外面产生抗体。而当您真正感染病毒时，您将从病毒内部产生抗体。因此，自然抗体比疫苗更有效。”
+Lakis 在接受采访时表示，**确信血栓是辉瑞 COVID-19 疫苗造成的结果**。“在 6 月 4 日接种第二剂辉瑞之后，我就感觉到我的身体开始瓦解，我没有潜在的疾病或健康问题，在过去的检查中没有发现过任何问题，是疫苗激活了触发血栓形成的机制。”
 
-“他们通过推广疫苗接种卡和限制未接种疫苗者做任何事，最后都会主动接种疫苗。”
+来源｜[个案017](https://thegreektimes.gr/actor-lakis-lazopoulos-suffers-blood-clot-after-getting-2nd-pfizer-vaccine/)
 
-**辉瑞高级副科学家-克里斯克罗齐（Chris Croce）：**
+* * *
 
-“因为是自然反应，自然免疫会比疫苗得到更长时间的保护。”
-
-“辉瑞正在进行的研究，不是为了确定疫苗有效性，而是为了观测疫苗如何引起心脏病。”
-
-“即使在公司内部也不能随意谈论相关信息，我觉得我在为一个邪恶的公司工作，因为它只追求利润。”
-
-**辉瑞科学家Rahul Khandke：**
-
-公司要求员工向公众保密。
-
-（以上观点不代表GNEWS）
-
-*发布：Runaway*
-
-参考链接：
-
-[COVERT VIDEO: Self-Declared “Evil” Pfizer Scientists Admit Natural Immunity BETTER Than Vaccine… ‘Our Org is Run on COVID Now’.](https://thenationalpulse.com/news/covert-video-self-declared-evil-pfizer-scientists-admit-natural-immunity-better-than-vaccine-our-org-is-run-on-covid-now/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//

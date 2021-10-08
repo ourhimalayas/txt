@@ -2,19 +2,36 @@
 ---
 
 
-## 郭先生提醒海外华人
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1579776/)
+## 加拿大威胁公务员限制民众 强推毒针注射
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579918/)
 
-郭先生觉得最担心的现在是我们华人在海外的安危。这个排华导火索一定是共产党作孽，让海外的华人买单。
+栏目记者/责任编辑：修文
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-102.png)
+加拿大总理特鲁多10月6日宣布，在10月底前所有公务员必须完整接种新冠毒针疫苗，否则最快将于11月被留职停薪。
 
-**【郭先生直播摘要】2021.9.26 郭先生提醒海外华人**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-2.jpeg)
 
-**郭先生：**
+特鲁多上月选举前就提出公务员强制接种计划，已经引发部分民众不满。10月6日他正式宣布执行强制令，以停薪留职威胁联邦政府所有公务员，以及铁路、民航、机构、银行等员工。根据该政策以10月底为期限，要求以上人员完成毒针接种，否则，最快于下月中旬，政府将对未完成任务或没有提交接种证明的员工实行停薪留职，该计划预计将影响27万员工。该计划还包括12岁以上民众，政府试图以限制搭乘公共交通工具来迫使人们屈服。
 
-苏哈托事件一定要记住，海外排华是我最担心的，而且这个排华导火索一定是共产党作孽，让海外的华人买单，这是很危险的，这个是真可怕的。另外一个我要告诉你，像苏哈托的事件，能第二次1968 – 1998，第三次还干，都是因为华人的懦弱不团结。那么的惨，还是华人的投资。所有说我觉得我最担心的现在是我们华人在海外的安危。这种排华真的太可怕了。我希望下次在直播的时候重点谈一谈历史上排华的动机和原因和造成伤害。
+加拿大民众一直在为自由而战，8月份纽芬兰和拉布拉多的护士联合起来，抗议新冠疫苗强制令和疫苗护照。面对政府各项强制措施，爆料革命战友和觉醒的加拿大民众从未后退，自发向周围的人传播疫苗真相、利益链黑幕，并展示毒针带来的危害。
 
-现在我们大家都知道了去查一查当时就是苏哈托，对苏加诺要把印尼交给共产主义，共产国际为借口发动了一个种族主义战争。结果干到100多万华人。这种惨剧你们但凡有点脑子的动动手查一查，你们没看我过那些视频，把小女孩，八和九岁的孩子，几个人给肛门、阴道给撕开，强奸完以后，拿个棍穿上给烤了。跟烤鹌鹑一样。一家一家的弄。你们去想想，昨天我给他们说，我说，如何是你的女儿这样，你什么感觉？他们说，那我跟他们玩命。我说关键你的命也没了，谁给你玩命？而且你的后人还替他们投资，这个海外排华事件一定会发生，只是大小。第二，经济危机全球崩溃，一定会发生，只是谁赢的问题，谁能活到最后。第三个，虚拟货币一定成为主导。最终是，虚拟货币一定是世界最牛的货币，你能否把握住的问题。
+加拿大政府强制推行接种计划，只会激起更强烈的民众反抗。本周六，抗议者将会和家人一起，在蒙特利尔和其他加拿大城市的街道上，同各国人民一起和平游行，维护个人医疗自主权和人权。
 
-再一个，我们的GTV，Gnews，盖特一定是世界上最牛的牛家。 大家一定要团结起来，怎么用的问题。我今天说的话都是直播说的。你们可以未来看。就像你们现在看我说孟晚舟一样，当时所有的人觉得我疯子。说Miles怎么样怎么样。结果那个哥们说，Miles太厉害了。我说我当时在Hilton酒店我告诉你孟晚舟一定会回来，包括头两天皮特纳瓦罗参与直播跟我抬杠，他说孟晚舟一定会到美国，我给你保证，皮特纳罗先生说了，我说我给你打赌只吃一顿饭的钱，她一定会回去，而且我说会专机，而且你可以问她去，我说的是777飞机。
+(本文仅代表作者观点)
 
-视频剪辑：北方信使 |听写：烟波浩淼 |翻译：Arthur |校对：tonyj |视频制作+字幕：文零 |编辑+发布：黎明的光芒
+参考链接：[加拿大強制公務員完整接種疫苗 違者將留職停薪](https://news.ltn.com.tw/news/world/breakingnews/3695989)
+[Nurses denounce anti-vaccine passport protest in St. John’s](https://www.cbc.ca/news/canada/newfoundland-labrador/anti-vaccination-passport-protest-st-johns-1.6173996)
+[Thousands in Canada and France Protest Vaccine Passports](https://www.voanews.com/a/covid-19-pandemic_thousands-canada-and-france-protest-vaccine-passports/6209589.html)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：暗黑
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

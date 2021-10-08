@@ -2,20 +2,36 @@
 ---
 
 
-## 日美确认岸田文雄领导下两国将密切合作
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1579846/)
+## 有声|索罗斯继续抛售股票 将部分资本投入加密货币
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1579970/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+配音：香草山美食部-玫瑰园
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/J-1.jpg)diplomaticourier.com
-日本共同社10月7日报道，日美高级外交官在电话会谈中同意加强两国的双边联盟，并在岸田文雄这个星期成为日本新首相后继续为建立一个自由开放的印度洋-太平洋地区而努力。
 
-日本外相茂木敏充(Toshimitsu Motegi)与美国国务卿安东尼·布林肯(Antony Blinken)在15分钟的对话中确认将继续密切合作。声明称，双方“就包括朝鲜和中共国在内的地区形势以及气候变化合作等广泛问题交换了意见”。茂木敏充将继续在岸田文雄内阁任职。
 
-美国国务院在当天的新闻发布会上表示：“两国确认，美日同盟是印度洋-太平洋地区及周边地区和平、安全、繁荣的基石。”同时两国重申他们致力于通过包括韩国在内的三边合作来解决及实现朝鲜半岛的完全无核化。
+近日全球股市低迷，美股指数集体下挫，虽昨日有所回升，但脸书事件再度领跌科技股。周二的彭博投资全球虚拟会议上，气氛似乎更加悲观。位于多伦多的布鲁克菲尔德（Brookfield）资管公司管理着6260亿美元，其首席执行官布鲁斯（Bruce Flatt）说，现在是清算资产的好时机，我们已经变现了很多资产，今年还会继续。
 
-岸田文雄称，两国外长举行电话会谈之前，两国领导人周二曾通话，美国总统拜登(Joe Biden)在通话中对尖阁列岛(Senkaku Islands，中共国称钓鱼岛)的防卫做出了“强有力的承诺”。岸田文雄表示，双边联盟仍是日本外交政策的基础，他将与包括华盛顿在内的伙伴合作，解决北京方面在周边海域“试图通过武力改变现状”的问题。
+索罗斯家族基金握有资产达270亿美元，信息主管道恩·菲茨罗伊（ Dawn Fitzpatrick） ，在接受采访时也表示，她一直在出售资产，并表明索罗斯避免在中共国投资的真正原因是钱会很快消失。索罗斯在8月底清仓中概股，并于近日在媒体专栏文章中直言不讳的批评，向中共国投资是一个悲剧性的错误。
 
-参考链接：
-[https://english.kyodonews.net/news/2021/10/b102bdd2318a-urgent-top-japan-us-diplomats-agree-to-strengthen-bilateral-alliance.html](https://english.kyodonews.net/news/2021/10/b102bdd2318a-urgent-top-japan-us-diplomats-agree-to-strengthen-bilateral-alliance.html)
+另外值得注意的是，索罗斯是继亿万富翁史蒂夫·科恩（Steve Cohen）和传奇投资人丹·洛布之后，最新进入加密货币领域的对冲基金大佬。
+
+道恩指出，加密货币已经成为主流。巧合的是，HCOIN即将于10月上市，它是唯一以黄金为锚，同时对接稳定币的加密货币。显而易见，各方资本跃跃欲试，正在为此做着准备。
+
+全世界的”沼泽地”不论黑白，“资本嗅觉“极其灵敏。索罗斯曾是中共最早的投资者和支持者之一，在资本力量的驱动下，一直在权衡并调整方向。新中国联邦通过揭露病毒疫苗真相和建立的喜联储，将以实力赢得更多话语权，推动各方势力转向。
+
+文字版原文：[索罗斯继续抛售股票 将部分资本投入加密货币](https://gnews.org/zh-hans/1577068/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
++2

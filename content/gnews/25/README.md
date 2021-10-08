@@ -2,36 +2,46 @@
 ---
 
 
-## 加拿大威胁公务员限制民众 强推毒针注射
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579918/)
+## 拜登说，他和习近平同意遵守有关的台湾协议
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580040/)
 
-栏目记者/责任编辑：修文
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-102.png)
-加拿大总理特鲁多10月6日宣布，在10月底前所有公务员必须完整接种新冠毒针疫苗，否则最快将于11月被留职停薪。
+**【简评】 拜登总统的几句话，引起轩然大波。各位看官一定会云里雾里，疑惑啥时候拜习又通话了？不光我们丈二和尚摸不着头脑，台湾外交部也第一时间与美方确认到底拜登说的啥事，美相关官员确认没有最新通话后，双方才恍然大悟，原来拜登指的是9月份的通话，至此，台湾外交部才松了一口气，并向媒体表示“美国政府对台政策不变，美国将继续依据「台湾关系法」及「六项保证」，维持对台湾“坚若盘石的承诺”。一场闹剧后，我们不禁要问，台湾的未来在哪里？在我看来，台湾需要一个智慧的，有国际视野的，无私的领导人，跳出统独之圈，打破所谓的九二共识魔咒，与美国和新中国联邦深度合作，否则没有任何选择。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-2.jpeg)
+**据《路透社》记者：Jeff Mason，2021年10月6日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/af3bj-z1cp6.jpg)图片来源：《ABC新闻》
+**《**路透社》华盛顿10月5日 —— 美国总统拜登周二表示，他已与中共国国家主席习近平就台湾问题进行了交谈，双方同意遵守“台湾协议”。目前，台北与北京之间的紧张局势不断升级。
 
-特鲁多上月选举前就提出公务员强制接种计划，已经引发部分民众不满。10月6日他正式宣布执行强制令，以停薪留职威胁联邦政府所有公务员，以及铁路、民航、机构、银行等员工。根据该政策以10月底为期限，要求以上人员完成毒针接种，否则，最快于下月中旬，政府将对未完成任务或没有提交接种证明的员工实行停薪留职，该计划预计将影响27万员工。该计划还包括12岁以上民众，政府试图以限制搭乘公共交通工具来迫使人们屈服。
+“我已经与习近平谈过台湾问题。我们同意……我们将遵守台湾协议。”他说，“我们明确表示，我认为除了遵守协议外，他不应该做任何事情。”
 
-加拿大民众一直在为自由而战，8月份纽芬兰和拉布拉多的护士联合起来，抗议新冠疫苗强制令和疫苗护照。面对政府各项强制措施，爆料革命战友和觉醒的加拿大民众从未后退，自发向周围的人传播疫苗真相、利益链黑幕，并展示毒针带来的危害。
+拜登似乎指的是华盛顿长期奉行的“一个中国政策”以及台湾关系法。一个中国政策即华盛顿正式承认北京而不是台北。台湾关系法则明确指出，美国决定与北京而不是台湾建立外交关系，是基于对台湾的未来将通过和平手段来决定的期望。
 
-加拿大政府强制推行接种计划，只会激起更强烈的民众反抗。本周六，抗议者将会和家人一起，在蒙特利尔和其他加拿大城市的街道上，同各国人民一起和平游行，维护个人医疗自主权和人权。
+尽管此举意味着美国必须向台湾提供自卫手段，但华盛顿只承认中共国的立场，即台湾属于中国，只存在“一个中国”，在台湾主权问题上不采取任何立场。
 
-(本文仅代表作者观点)
+台湾外交部表示，已就拜登的言论向美方寻求澄清，并确信美国对台政策没有改变，美国对台湾的承诺“坚如磐石”，美国将继续帮助台湾维持其防御。
 
-参考链接：[加拿大強制公務員完整接種疫苗 違者將留職停薪](https://news.ltn.com.tw/news/world/breakingnews/3695989)
-[Nurses denounce anti-vaccine passport protest in St. John’s](https://www.cbc.ca/news/canada/newfoundland-labrador/anti-vaccination-passport-protest-st-johns-1.6173996)
-[Thousands in Canada and France Protest Vaccine Passports](https://www.voanews.com/a/covid-19-pandemic_thousands-canada-and-france-protest-vaccine-passports/6209589.html)
+台湾外交部表示，“面对中国政府的军事、外交和经济威胁，台湾和美国一直保持着密切和畅通的沟通渠道。”
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+拜登周二在密歇根州宣传他的一揽子支出计划，在返回白宫后对记者发表上述言论，此时正值台湾与中共国的紧张关系升级之际。
 
-终审：暗黑
-校正/发稿：谐趣园
+中共国声称台湾是自己的领土，必要时应采取武力夺取。台湾表示，它是一个独立国家，将捍卫其自由和民主，并将紧张局势归咎于中共国。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台湾报道称，从周五开始的四天时间里，148架次中共国的飞机在其防空识别区的南部和西南部分地区飞行，而周五当天正值中共国重要的爱国节日 —— 国庆节。
+
+美国周日敦促中共国停止在台湾附近的军事活动。
+
+美国国务院发言人内德·普莱斯周日在一份声明中说：“美国非常关注中华人民共和国在台湾附近的挑衅性军事活动，这破坏稳定，有误判的风险，并破坏地区和平与稳定。”
+
+拜登似乎还提到了他在 9 月 9 日与习近平举行的 90 分钟通话，这是他们七个月以来的首次会谈，他们讨论了确保世界两大经济体之间的竞争不会陷入冲突的必要性。
+
+**原文连接：**[https://www.reuters.com/world/asia-pacific/biden-says-he-chinas-xi-have-agreed-abide-by-taiwan-agreement-2021-10-05/](https://www.reuters.com/world/asia-pacific/biden-says-he-chinas-xi-have-agreed-abide-by-taiwan-agreement-2021-10-05/)
+
+**（本文评论仅代表个人观点）**
+
+翻译/评论：洛杉矶盘古农场 – 钢蛋儿
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
+发布 :洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
