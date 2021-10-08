@@ -2,34 +2,25 @@
 ---
 
 
-## 中国留学生教堂纵火,国人须慎行防排华!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579948/)
+## 山西27座煤矿停产！今冬煤电雪上加霜
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1580021/)
 
-栏目记者/责任编辑：文龍
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-102.png)
-美国阿拉巴马州当地媒体10月5号报道,  第一浸信会教堂是 阿拉巴马州蒙哥马利市地标建筑，该教堂9月29日晚遭人纵火, 内部一些设施遭烧毁。当地执法机关依据教堂内部监视器录像追踪涉案人，将来自中国的留学生严晓琴(音译，Xiaoqin Yan)逮捕，嫌犯目前收押在蒙市拘留所，等候接受调查起诉。
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/30407cd4-fcdf-4529-9480-6de3248f575a.jpeg)[图片来源](https://www.rfa.org/mandarin/yataibaodao/jingmao/ql2-10072021063150.html)
+能源业界目前有一个普遍的结论：若煤的逻辑不理顺，中国产业链的逻辑就很难顺！而长假期间，山西的天气让煤的逻辑又变得复杂起来。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9-1.jpeg)
+据中国天气网10月7日消息，今年“十一”假期，山西遭遇强降雨侵袭，受暴雨影响，截至10月4日8时，山西共转移10704名群众，停产煤矿27座、非煤矿山99座、危化企业7家，停工在建工程231个，关闭景区74个。
 
-法庭文件显示, 嫌犯严晓琴今年27岁，是一名来自中国的留学生，检察官贝利已将其留学生签证取消，并提高了原定3万美金的保释金，以防止嫌犯弃保潜逃,因为该案在当地引起轩然大破, 民众愤怒不已! 但嫌犯纵火焚烧教堂的动机尚未公布。
+有机构表示，“十一”期间，山西因防汛需要，二十余座煤矿关闭，恐在节后造成更大的缺口预期，虽有零星进口到港煤炭，但效果还有待观察。进口蒙煤方面，后期蒙煤增量难度依然较大，对高价焦煤相对有支撑。后续重点关注粗钢压减进度，影响双焦需求的程度，以及动力煤保供政策是否能带来配煤供给增加。
 
-在病毒及疫苗真相正在揭晓的当下, 爆料革命也在警示全球各地华人，一定慎言慎行，在传播真相的同时告知周遭,  中共不代表中国人，中国人不都是共产党 ! 与此相对应,  任何违背当地法律法规，支持中共邪恶政权，甚至给当地人文或环境带来威胁/损害的言行，都有可能引发并酿成 严重的排华事件。本台将关注这一事件的后续报道。
+山西是中共国最大的煤炭生产与输出基地，据统计，仅改革开放以来，山西累计生产煤炭90亿吨，占全国煤炭生产总量的30%，累计跳出煤炭60亿吨，占全国省际间调出量的70%，煤炭出口占全国70%。
 
-(本文仅代表作者观点)
+作为能源输出大省对中共国能源供应起着举足轻重的作用，而这场地质灾害时间恰逢入冬，对本来已经严重缺煤的热电企业来说，无异于雪上加霜，这个冬天可能真的很难过。
 
-参考链接：[Arrest made in arson at First Baptist Church Montgomery](https://thealabamabaptist.org/arrest-made-in-arson-at-first-baptist-church-montgomery/)
-[中国留学生纵火烧毁百年教堂被捕](https://www.sinchew.com.my/20211007/中国留学生涉嫌纵火192历史教堂遭被捕/)
-[清秀中國女留學生縱火燒美國200年教堂 友人：她不知受了什么刺激](https://lihkg.com/thread/2727354/page/1)
+[信息来源](http://m.news.cctv.com/2021/10/04/ARTILwgKzG2QB1euQbciNuQp211004.shtml)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+（文章仅代表作者个人观点，与GNEWS无关）
 
-终审：文龍
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团 / 喜马拉雅的微尘*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

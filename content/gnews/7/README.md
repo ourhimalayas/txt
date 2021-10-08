@@ -2,50 +2,41 @@
 ---
 
 
-## 中共政府要求天然气进口商承担高昂成本以解决能源危机
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1580080/)
+## 曾家公司竟然债务违约，中共最高层开撕了？
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1580120/)
 
-## China tells gas importers to bear high cost to fix energy crisis
+#### **作者：顺其自然****
+****编辑****/****导读：守望黎明**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/习曾斗1.jpg)
+图片来源：澳洲雅典娜农场设计组
 
-China is urging its liquefied natural gas (LNG) importers to procure more supply to fix its energy crisis, while providing little financial support for firms paying record-high rates for the super-chilled fuel.
+**【****导读：**中共大佬曾庆红家族的地产公司居然出现债务违约，让很多人大跌眼镜。中共的国字头领导人个个富可敌国，哪一个也不屑为了这么一点点债务把自己搞得灰头土脸。一句话，丢不起那个人！所以这背后隐含的故事耐人寻味。让人不由得想到，会不是中共的内部在相互使绊子，开始把撕逼大战延烧到最高层了？**】**
 
-中共政府正在敦促其液化天然气 (LNG) 进口商提供更多供给以解决当前其能源危机问题，但它却没有为需要支付创纪录高价购买这一超冷燃料的企业提供财政补贴。
+据《华尔街日报》报道，中国豪宅开发商花样年控股集团未能偿付到期债务。花样年表示，未能对10月4日到期的金额为2.06亿美元的票据进行偿付，这加剧了市场对中共国高负债房地产公司的不安情绪。
 
-The government isn’t providing enough subsidies for recent purchases, making it difficult for the nation’s smaller gas distributors to meet the request to secure enough fuel before winter, according to traders with knowledge of the matter. While some firms are avoiding buying for now, they may ultimately have to bow to Beijing’s wishes.
+10月4日晚9点，花样年集团创始人兼地产集团CEO曾宝宝发了一条微博，没写任何文字只配了一张电影《至暗时刻》的海报，给人一种欲言又止的感觉。10月4日，国际评级机构把花样年的评级直降四个等级，由B级下调至CCC￣，评级展望下调为“负面”。公开资料显示，花样年控股集团目前共存续12笔美元债，债务余额为39.8亿美元（257.33亿人民币），其中，5只一年内到期，共计15.59亿美元（100.8亿人民币）；3只今年就要年到期，共计7.62亿美元（49.27亿人民币）。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/习曾斗2.jpg)
+图片来源：微博截图
 
-据知情交易员透露，政府没有为近期的采购提供足够的补贴，这使得该国小型天然气分销商难以实现在冬季到来之前获得足够燃料的需求。虽然一些公司目前都在逃避购买，但他们最终可能不得不屈从于中共政府的意愿。
+这位曾宝宝可不是一般人，她有一个非常有名的老爸叫曾庆淮，那可是叱咤香港和内地政、商、文圈子内的风云人物；还有一个更有名的大伯叫曾庆红，是曾经长期主抓中共组织人事和情报工作的正国级大咖。多年来，一大批政、商、文圈子内的大腕级人物围在曾庆淮身边，而从中央到地方、从国内到国外的高官巨商，若能贴上曾庆红简直是莫大的幸事。
 
-North Asian LNG spot prices surged to a record high this week as importers from China to the UK intensify competition for a shrinking pool of available winter supply. The world is grappling with an energy crisis as the post-pandemic recovery collides with supply restraints, sending fuel and power prices rallying to eye-watering heights.
+正因为有了这么逆天的背景，2009年花样年在香港上市时风光无限。据港媒报导，2009年11月召开的花样年公司的投资推介会，办成了一场香港名流的大聚会。除曾庆淮亲自出面为女儿助阵外，到场的还有郑裕彤、刘銮雄、张松桥、蔡志明等一干香港富商巨贾，其中的很多人都认购了花样年的股份。曾宝宝作为公司创办人兼执行董事和大股东，拥有65%的股票，当时市值约70亿港元。
 
-由于从中共国到英国的进口商抢购所剩不多的冬季燃料的竞争加剧，北亚液化天然气现货价格本周飙升至历史新高。由于疫情后经济恢复与有限的供给发生冲突，全世界正陷入能源危机，从而导致燃料和电力价格上涨至令人瞠目结舌的高度。
+如今，连背景如此雄厚的花样年都会欠账不还，让人觉得匪夷所思。前面以“皇弟弟”习远平做靠山的恒大，一方面出现了对海外债务的违约，另一方面习近平可是让地方政府和国企想尽一切办法堵住其国内的窟窿，要在20大之前尽量把问题捂住。但是现在花样年出事了，按常理以曾家的实力应该丢不起这个脸，随便从哪里调过来一笔钱，把债还上就是了。事有反常必有妖！这会不会是曾家在向习近平示威啊：你能救助你弟弟罩着的恒大，那你救不救我曾家的花样年呢？你要是不救的话，那么我也同样在恒大那边儿落井下石，出你的洋相。还有一种可能是习下令外债一律不还，你曾家再有钱也不能违这个令、破这个例，你曾家的面子重要，还是我习大神的权威重要啊？
 
-Many of China’s gas distributors are state-owned, and are used to taking losses buying pricey LNG and selling to domestic consumers at fixed rates. The largest companies are still willing to pay high spot prices to attract shipments away from rivals in Asia and Europe.
+现在习近平势力与江曾王孟集团之间在政治上的斗争愈演愈烈，外加经济上随时可能崩塌的房地产以及深深牵连其中的银行金融业，整个经济形势岌岌可危。然而中共高层新老势力却依然缠斗不止，感觉他们就像《射雕英雄传》里的西毒欧阳锋与丐帮帮主洪七公的生死决斗——双方在一条着火的大船上拼命打斗，都想着尽快解决掉对手以保自己逃生，却忘掉了船上越烧越大的火势可能随时要了他们双方的命。现在中共高层派系间的斗争就是这个样子！双方就是你整我的人，我搞你的将，都开始有点杀红眼了。习近平这边，习的发小、北京法院系统的田玉玺已被干掉，脚踩多条船但最终紧抱习大腿的傅正华也被拿下，而皇弟弟习远平力保的恒大泡沫也被捅破。而在江曾王孟这一边，不仅海航彻底倒了，得力干将孙力军被抓，王岐山的心腹董宏被收监，孟建柱的马仔王立科、罗文进、邓恢林也都进去了。目前看， 习和江曾王孟之间各有折损、胜负未明。但随着中共二十大的临近，围绕着习能否连任并长期执政这一天大的变局，中共各方的厮杀一定会越来越惨烈，被卷进绞肉机里的人马也会越来越多。
 
-中共国的许多天然气分销商大多都是国有企业，习惯于亏损买入昂贵的液化天然气并以固定价格出售给国内消费者。大的公司仍然愿意支付高昂的现货价格从亚洲和欧洲的竞争者手中抢购出货量。
+内部的争斗不断升级，境外的各方势力也在虎视眈眈。现在中共还有余钱养活和收买华尔街大咖和其他西方的大佬政客，并且维系住同为邪恶同盟的俄、伊、朝、委、巴等国的关系。若真到了经济崩盘、外汇枯竭的时候，这些昔日的同盟军翻脸会比翻书来得还要快，说不定转过头就变成了催命鬼。中东非洲的那班铁哥们也会跟着变脸。到那时候内外交困，中共想哭都找不到坟头了。
 
-But with a single LNG spot cargo currently costing more than $130 million, compared to about $17 million this time last year, the extreme losses are making buyers blanch. Also, some LNG importers have struggled to secure additional loans from banks to make purchases, traders said.
+作者YOUTUBE频道链接：[闲聊澳洲](https://www.youtube.com/channel/UCPxB0vpNpmHN0hORXK4gj2A)
 
-但随着目前单艘液化天然气现货货船的成本超过 1.3 亿美元，相比于去年同期的大约 1,700 万美元，极端的损失让买家望而却步。此外，交易员表示，一些液化天然气进口商一直难以从银行获得额外贷款来进行购买。
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-At least two second-tier companies including Shenzhen Energy Group Co. have decided against purchasing shipments because of the high prices, despite the government orders, according to traders. But China’s largest state-owned importers have been busy procuring spot supply.
+发布：小红帽
 
-据交易员称，尽管有政府的命令，至少有包括深圳能源集团有限公司在内的两家二线公司因为价格居高不下已决定不再采购。但中共国大型国有进口商一直忙于采购现货供应。
-
-The government is trying to make it easier for energy companies to secure loans. Banks and other financial institutions should prioritise lending to qualified mines and power plants so they can increase thermal coal and electricity output, China Banking and Insurance Regulatory Commission said in a statement Tuesday.
-
-政府正努力让能源公司更容易获得贷款。中国银保监会周二在一份声明中表示，银行和其他金融机构应优先向符合条件的矿山和电厂提供贷款，以增加燃煤和电力的产出。
-
-简评：如本篇报道所述，为了解决中共国的能源危机，在不能提供补贴的情况下，中共政府要求天然气进口商自负超额成本完成政府的进口采购命令，在这个命令执行过程中，小型分销商因为成本过高而回避采购，一些大型国企也是在亏损的状态下买入昂贵的天然气。由于疫情后经济恢复与有限的供给发生冲突，造成了当下全球性的能源危机，而中共政府自去年下半年颁布澳大利亚煤炭进口禁令以来，一直没能找到合适的澳洲煤炭替代品。如今能源短缺，中共不得不在近日放风要逐渐恢复澳大利亚煤炭进口。但是，可怕的是，不仅是天然气价格高企，今年澳洲煤炭的价格也已经达到了去年同期的2倍多。在经济低迷、外汇短缺、能源供应不足的情况下，我们不禁怀疑，中共政权能否撑过这个冬天。
-
-[新闻链接](https://www.energyvoice.com/oilandgas/asia/354657/china-tells-gas-importers-to-bear-high-cost-to-fix-energy-crisis/)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

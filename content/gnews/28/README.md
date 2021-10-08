@@ -2,22 +2,22 @@
 ---
 
 
-## 台湾危机迫在眉睫 各方势力角逐海上话语权
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579862/)
+## 新冠溯源新证据！中共早在2019年5月已大量采购PCR检测
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1579887/)
 
-栏目记者/责任编辑：Andy再开，安吉拉
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-115.png)
-10月6日，美国国家安全顾问奥布莱恩（O’brein）和彭培奥强调台湾局势危机。在昨日答疑环节，两位中美关系专家就台海危机做出回答，直言美国无法承担失去台湾的后果。
+责任编辑：FoxRina
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-116.png)
+根据澳大利亚网络安全公司 Internet 2.0 的一份报告，在中共首次正式报告新型冠状病毒病例前几个月，政府合同报告显示，2019 年 5 月起武汉地区的PCR 检测采购量激增。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-13.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-6.jpeg)
 
-奥布莱恩重申了台湾的特殊地理位置，和其在全球地缘政治格局中的重要性。在第一岛链中，台湾居于核心战略地位。一旦中共侵略台湾得逞，东南亚国家和澳大利亚的盟友阵线将被拦腰斩断，连同第二岛链拱手送给共产党，直接威胁夏威夷甚至美国西岸。几代台湾人为之付出惊人努力的民主将被屠戮，美国和自由世界人民的信心将被摧毁。
+数据显示，2019 年湖北省的 PCR 检测花费了约 6740 万元人民币，几乎是 2018 年总数的两倍。月度采购数据显示，2019年5 月份的订单激增，尤其是来自 CDC 采购商和中国人民解放军的订单。
 
-南中国海自15世纪以来就是东西方文明和贸易的交融之地，在现代社会，更是能源枢纽和战略要地，聚集了各方势力。美英、欧洲及日本、俄罗斯都在该地区拥有各种形式的军事存在。中共在香港的暴行和大湾区计划已宣布一国两制实为骗局，对台湾的诱骗政策已转为直接军事威胁。
+报告认为，5 月份支出的增加表明这可能是新冠感染的最早开始日期。从 7 月到 10 月，采购量也大幅上升，尤其是来自武汉科技大学的采购量。该机构2019年PCR检测经费892万元，约为上年的8倍。武汉科技大学与当地医院和公共卫生当局一起，在应对新疾病的爆发方面发挥着直接作用。报告评估，这些团体的参与提供了证据，新冠大流行开始的时间比中共向世卫组织通报的时间要早​​得多。
 
 (本文仅代表作者观点)
 
-参考链接：[20211006國家安全顧問O’brein和蓬佩奧國務卿答疑環節](https://gettr.com/post/pdeqz52e2a)
+参考链接：[China PCR test orders soared before first confirmed COVID case](https://asia.nikkei.com/Spotlight/Coronavirus/China-PCR-test-orders-soared-before-first-confirmed-COVID-case)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
