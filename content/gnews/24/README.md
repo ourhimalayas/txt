@@ -2,47 +2,15 @@
 ---
 
 
-## 纳瓦罗称他曾两次敦促川普总统解雇福奇
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1581843/)
+## 2021年10月8日 文贵先生盖特 7
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1581855/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/P-2.jpg)ustreama.com
-有一段时间没有搭理老贼福奇了，刚刚看到咱们新中国联邦的国家代表大使彼得·纳瓦罗（Peter Navarro）先生称福奇是“邪恶的”一篇文章，值得与战友分享一下。
+10/7/2021 Miles Guo: I persuaded a country’s leader to buy medicines like artemisinin for its citizens; The COVID vaccines are extremely profitable; Although big pharma companies claim to save people, they are paying people to get the jab through lobbying and also have the governments push vaccine mandate; Any decisions made by the CDC cannot deprive the people of their right to survival.
 
-《福克斯新闻》10月7日文章的题目中称，纳瓦罗先生说他曾两次敦促川普总统解雇他，文章副标题补充，福奇在中共病毒疫情期间成为家喻户晓的名字。
+10/7/2021 文贵直播：七哥劝某国领导人给他们国家的公民买青蒿素等药物；冠状病毒疫苗一本万利；大药厂美其名曰救人，但却通过游说、给他人钱去打疫苗并让政府强制接种疫苗；美国疾控中心的任何决定都不能剥夺人们生存的权利！
 
-全文如下：
+[【2021年10月8日】文贵先生盖特原文](https://gettr.com/post/pdj3ul4328)
 
-川普总统的前贸易顾问彼得·纳瓦罗周三（10月6日）称福奇为“邪恶”，因为他在中共病毒爆发前的功能增强研究中发挥了作用。
-
-纳瓦罗是在周三接受西雅图杰森·兰茨秀（the Seattle-based Jason Rantz Show）的采访时作出上述评论的。
-
-这位前白宫贸易顾问正在讨论他的新书《在川普时代》（In Trump Time），该书记录了川普政府执政的最后一年抗击中共病毒疫情的情况。
-
-纳瓦罗淡化了川普政府在中共病毒疫情初期不够积极的观点。
-
-兰茨认为，左派媒体在批评川普对疫情的反应时并没有退缩，反而支持福奇，尽管他在问题的态度上有摇摆不定，但川普总统是一个“上帝般”的人物。
-
-福奇是国家过敏和传染病研究所所长，在中共病毒疫情期间家喻户晓。
-
-纳瓦罗讲述了他和福奇在白宫“战况室”（the situation room）会面的头三分钟内，因为福奇不愿意实施旅行禁令而陷入了一场“叫嚷式争吵”。
-
-纳瓦罗说：“我当时想，‘哇，那个家伙自以为他很聪明，’还有一个更重要的是，‘那个家伙会伤害我们和总统。’”
-
-兰茨问纳瓦罗，他是否认为川普没有解雇福奇并允许他获得媒体的关注是一个错误？
-
-纳瓦罗说，他至少两次建议川普解雇福奇，但他并没有指责总统没有采纳他的建议。纳瓦罗说：“但这对国家来说是一个错误，因为那个人是邪恶的，不要搞错了，他是邪恶的，因为他在美国官僚机构工作，用纳税人的钱‘追求功能增强实验’”。他指的“功能增强实验”是一项试图通过使病原体更具传染性和致命性以寻找新的方法来对抗疾病的研究。
-
-福奇没有回应《福克斯新闻》的置评请求。
-
-（原文完）
-
-文贵先生建议战友们预定、购买纳瓦罗先生的这本书，的确这是一本值得阅读、了解真相的书。如果说，川普总统在反共灭共问题上因各种原因显得犹豫不决（当然，比拜登强得多），2020年1月对中共国的旅行禁令可谓是其防疫的大亮点，而作出这个决策的过程，则是以新中国联邦提供的信息为依据，纳瓦罗等人排除罪恶势力的代表老贼福奇的影响，（还有其他帮凶，希望纳瓦罗先生书中有透露），使得川普作出了最明智的选择，否则，美国很有可能在一年前就被击溃。
-
-期待纳瓦罗先生新书《在川普时代》的发行。
-
-原文链接：
-
-[https://www.foxnews.com/politics/peter-navarro-calls-fauci-evil-says-he-urged-trump-to-fire-him](https://www.foxnews.com/politics/peter-navarro-calls-fauci-evil-says-he-urged-trump-to-fire-him)
+**喜联盟Gnews编辑部**

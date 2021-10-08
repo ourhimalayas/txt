@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/8/2021 10:06 PM (UTC)`
+
+《把他们都抓起来 Arrest Them All》（ENG）
+![img](https://media.gettr.com/group33/origin/2021/10/08/22/06/53e568c9-72e4-6f27-8dfb-c79190bd5b15/out.jpg)
+
+---
+
 `@miles 10/8/2021 8:57 PM (UTC)`
 
 20-8日：这帮孙子【七哥您好！华尔街几十分钟内的推，开始吹抗毒神药了。争抢疫情蛋糕的黑手们利益开始分割，等这个药正式批准后，所有投资者和相关利益者将变成最坚决的反疫苗成员。看这红线划的用词，牛吹得无边了，内核估计还是青蒿素：“早期数据显示这种神药是自从有疫苗以来“抗新冠最大的科学成就”。这篇发在个人观点栏目的正文就更厉害，第一句：随着FDA批准的钢笔抖一抖，今天将会拯钱数千性命。很少见华尔街日报上发表这么煽情的文字，即使在个人观点栏目也很少见。🙏🙏🙏🙏】
@@ -289,13 +296,6 @@ Attorney Thomas Renz: If you get the vaccine, you are more likely to get Covid. 
 
 10月5号：真的假的啊，吓死叔叔了。😡😡😡👉👉👉【In Jerusalem on October 5, other sectarian cases found that women and children gave birth to babies with hands, feet, tails, etc. after BioNTech or Moderna holidays. 10月5日土耳其，有多宗案例發現婦女接種了BioNTech或者Moderna疫苗後，產下的嬰兒有多手、脚、尾巴的婴儿，許多這樣案例】
 ![img](https://media.gettr.com/group37/getter/2021/10/05/10/23/07eb7e18-5da6-48d7-c200-a35a81e9681a/out.jpg)
-
----
-
-`@miles 10/5/2021 4:02 AM (UTC)`
-
-10/04/2021 Miles Guo’s GETTR: The CCP kleptocrats Fu Zhenghua, Meng Jianzhu, Wang Qishan, Sun Lijun, Zhou Liang, Dong Xiansheng, and others have framed, killed, and seized people’s legitimate properties in the name of law enforcement. The people working in the public security organs, procuratorates and courts have become a bunch of walking corpses. The “earthquake” in these three sectors has not yet started. After Meng Jianzhu's case, all these kleptocrats will be punished. And we, the New Federal State of China, will take actions in accordance with international laws!<br/><br/>10/04/2021 文贵盖特: 中共盗国贼傅政华、孟建柱、王岐山、孙力军、周亮、董仚生等人借执法之名陷害、杀人、掠夺他人合法财产。公检法的人已变成行尸走肉，公检法的地震远远没有开始，孟建柱案后这些恶人都会受到最终的审判，我们新中国联邦会根据国际法律采取行动！<br/>
-![img](https://media.gettr.com/group7/getter/2021/10/05/04/02/a129daca-7086-f69d-7fcf-dae265514753/out.jpg)
 
 ---
 

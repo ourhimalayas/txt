@@ -2,29 +2,33 @@
 ---
 
 
-## 有声|欧盟药品管理局建议将深部静脉血栓列入强生疫苗的副作用
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1582115/)
+## 逻辑和常识很重要
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1582197/)
 
-配音：香草山香港部 – 文凯琳
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/23-2.jpg)[图片来源](https://www.sohu.com/a/311118544_609049)
+同事：《长津湖》电影，你看了没？
 
-10月1日，欧盟药品管理局建议，将深部静脉血栓列入强生新冠疫苗的副作用，以提醒大众注意。
+我:我才不看！
 
-据悉，强生与阿斯利康药厂所生产的新冠疫苗均采用无害病毒做为载体。先前，阿斯利康新冠疫苗就已经被认定，其与疫苗接种者发生的深层静脉血栓有关，相关机构曾依此发布过警示。此次，欧盟药品管理局再度建议，将强生新冠疫苗列入到相同的副作用警示中。
+同事：为什么不看呢？
 
-除了深层静脉血栓外，欧盟药品管理局也同时建议，将免疫性血小板减少症列入强生与阿斯利康新冠疫苗的不良反应资讯中。
+我：这部电影不符合历史事实，涉嫌美化战争。
 
-事实上，随着越来越多的相关病例被爆出，新冠疫苗的副作用已逐渐被世界各地的民众及政府发觉、证实。 最终，世人一定会认清新冠病毒及疫苗的真相，并向中共这个罪魁祸首追责。
+同事：你认为什么战争片才是好的战争片？
 
-文字版原文：[欧盟药品管理局建议将深部静脉血栓列入强生疫苗的副作用](https://gnews.org/zh-hans/1577982/)
+我：好的战争片都是反战的！看完之后让人反思战争，甚至厌恶战争的才是好的战争片！
 
-音频处理：喜山必胜Maverick
+同事：落后就会挨打，如果不抗美援朝美国就会入侵中国，你知道吗？
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+我：你知道吗？是朝鲜的金日成先进攻韩国在先，然后以美国为首的多国部队经过联合国授权保卫韩国抵抗侵略，中共国师出无名，只能冠以“志愿军”自居，况且世界上落后的国家这么多，为什么没有看到美国去主动侵略他们呢？如果美军要入侵中国，驻守在日本的轰炸机应该先轰炸北京！（美军）特么有病啊从朝鲜打过来……
+
+同事：你这人不爱国，怎么总是替美国说话？我们这是围魏救赵，曲线救国。
+
+我：啊……
+
+(文章仅代表作者本人观点，与GNEWS无关)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
