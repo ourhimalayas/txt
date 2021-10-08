@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/8/2021 2:06 PM (UTC)`
+
+10月8号：尊敬的战友们好……台湾再次成为中美两国之间的政治经济交易的筹码，对台湾没有任何好处，美国等西方国家正在利用中国的内部政治斗争，获取自己的短暂的政治经济的利益，对中国人，对世界没有任何好处，但对我们新中国联邦，却是百利无一害，天助我新中国联邦。
+![img](https://media.gettr.com/group48/getter/2021/10/08/14/06/c4f688a8-6ed3-bf60-8762-882a99fb254a/out.jpg)
+
+---
+
 `@miles 10/8/2021 1:17 PM (UTC)`
 
 10月8号：尊敬的战友们好……七哥说的都在发生中……我们将是最干净最纯洁……对社会最有益处的👉新人类的，👈新社交，金融融合的媒体平台。
@@ -291,13 +298,6 @@ Attorney Thomas Renz: If you get the vaccine, you are more likely to get Covid. 
 
 While Big Tech imploded, @GETTROfficial was still going strong! There’s a reason #GETTR is the fastest growing social media platform in history… Free Speech. Independent Thought. Superior Technology. It’s time to cancel “Cancel Culture.” Thank you for making your voice heard here on GETTR!!! <br/><br/>
 ![img](https://media.gettr.com/group48/getter/2021/10/04/23/8590eb71-38a0-eb07-c1aa-9895d9a0f42f/9a5b2e9a705b0aa0610da0f067a9e79f.jpg)
-
----
-
-`@miles 10/4/2021 4:41 PM (UTC)`
-
-以色列COVID-19 疫苗受害者证词(六）<br/><br/>以色列COVID-19 疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。<br/><br/>证词项目网站： https://www.vaxtestimonies.org/en/
-![img](https://media.gettr.com/group24/getter/2021/10/04/16/41/bb1c537b-0ce7-c12d-2566-b11e0584c4ba/out.jpg)
 
 ---
 

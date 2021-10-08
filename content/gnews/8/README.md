@@ -2,25 +2,31 @@
 ---
 
 
-## 美团领34亿元反垄断罚单
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1581244/)
+## 蔡英文向到访法国参议员理察授勋致谢
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1581333/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/100806.jpg)
-**编辑摘要：**
+作者：在远方
 
-据路透北京10月8日消息，继阿里巴巴后，中共国最大在线外卖平台—美团反垄断罚单靴子落地。中共国市场监管总局周五公告，对美团在中共国境内网络餐饮外卖平台服务市场实施“二选一”垄断行为作出行政处罚，责令美团全额退还独家合作保证金12.89亿元人民币，并处以其2020年中共国境内销售额1,147.48亿元3%的罚款，计34.42亿元。
-
-美团官方随即发布公告回应称，诚恳接受，坚决落实整改，切实履行社会责任，更好地服从和服务于经济社会发展大局。
-
-[新闻参考链接](https://www.reuters.com/article/meituan-antitrust-penalty-1008-idCNKBS2GY0VW)
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+10月7日，台湾总统蔡英文总统向率团访问台湾的法国前国防部长理察授勋，并重申台湾将会努力履行国际成员的责任，保障台海及印太区域的和平稳定。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1008AM（1-6，9）視頻備用-2.005.jpeg)
+此次法国参议院友台小组在理察率领下访问台湾，表明欧盟国家高度关注台湾局势，力挺台湾对抗中共威胁，并已成为全球民主国家的共识。而且理察议员不畏中共的威胁和阻挠，已经是第三次率团访问台湾。因此蔡英文表示，向理察议员颁赠“特种大绶卿云勋章”，不但是表彰理察对与促进台法良好关系的贡献，也是代表台湾人民向他表达最深的感谢。
+(本文仅代表作者观点)
+
+参考链接：[蔡英文为到访法国参议员李察授勋 称其为“台法关系开拓者”](https://www.rfi.fr/cn/专栏检索/要闻分析/20211007-蔡英文为到访法国参议员李察授勋-称其为-台法关系开拓者)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
