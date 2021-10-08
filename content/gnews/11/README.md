@@ -2,44 +2,18 @@
 ---
 
 
-## 有声| 白宫国安顾问苏利文会晤杨洁篪
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1580412/)
+## 三星预期明年上半年生产首批 3 纳米芯片
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1580459/)
 
-配音：香草山美食部-玫瑰园
+#### 撰稿：坤霆/萌萌的朋克
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-38.jpg)图片来源：网络截图
+据 gsmarena.com 10月8日报道，在一年一度的三星代工论坛上，三星铸造业务的总裁兼负责人Choi Si-young谈到了三星制造3纳米和2纳米芯片的路线图。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+他预计将在2022年上半年开始为客户生产第一批3纳米芯片。三星3 纳米芯片将采用环绕栅极场效应晶体管（GAA）技术，预计性能将提高30%，且能耗低一半，而占用的空间比5纳米芯片少35%。
 
+三星计划在2025年开始大规模生产2纳米芯片。三星和苹果（由三星、高通和台积电制造）的当前一代智能手机是由基于5纳米制程的SoC芯片驱动。
 
+该公司透露，2纳米制程的芯片正处于早期开发阶段，将使用GAA和多桥通道FET技术，该技术也在开发中。
 
-
-
-
-
-10月6日，美国白宫国家安全顾问苏利文，在瑞士苏黎世与中共中央外事工作委员会办公室主任杨洁篪进行了会晤。
-
-苏利文在会谈中向杨洁篪表示，美方有兴趣与中共合作来应对国际间的挑战，及管理美中关系的风险。 同时也表达对中共在人权问题上，在新疆、香港、南海，以及在对台湾的有关行动上的关切。 称美国在加强本身国力、与盟友及合作伙伴密切合作的同时，将继续与中共进行高层接触，以确保双方间保持负责任的竞争。
-
-
-
-**文字版原文：[白宫国安顾问苏利文会晤杨洁篪](https://gnews.org/zh-hans/1579206/)**
-
-
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+原文链接：[Samsung outlines its chipmaking roadmap, expects first 3nm chips in H1 2022](https://www.gsmarena.com/samsung_outlines_its_chipmaking_roadmap_expects_first_3nm_chips_in_h1_2022-news-51325.php)

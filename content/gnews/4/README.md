@@ -2,35 +2,139 @@
 ---
 
 
-## 墙内要闻汇编
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1580466/)
+## 疫苗灾难将导致人类大混乱
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580517/)
 
-#### 素材：东京樱花团｜GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-1-2.png)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1007/20211007034206341.jpg)
-**10月8日汇编**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-14.jpg)https://gtv.org/video/id=615fc2b2d2e2b81748729010
+这是一个担心, 另外一个让我很担心
+Esto es una preocupación, hay otro que me hace preocupar mucho
 
-1、[**“生死攸关”宣传喉舌传递特殊政治暗示**](https://www.aboluowang.com/2021/1007/1656482.html)
+就是货币金融
+Es la moneda financiera
 
-10月5日，中共喉舌《央广网》的《每日一习话》栏目内容是“遵义会议是生死攸关转折点”，这个标题在中共十九届六中全会、中共二十大即将召开之际，似乎蕴含着特殊的政治暗示。在中共十一长假极力维稳之际，中共喉舌突然再谈《遵义会议是生死攸关转折点》，不仅令人们刚刚放松的神经再度紧张，同时也显示出中南海正紧锣密鼓地为下个月即将召开的“六中全会”造势。对于中共的这次“六中全会”，外界均普遍关注，因为有消息称会上将通过“中共第三份历史决议”。中共的前两份历史决议，均是对前任中共领导人错误的清算。同时，因事关中共二十大人事布局，此次六中全会对习近平、对中共党内反习势力均显得极为关键。一句“生死攸关”突显中共目前的处境。
+不管你有多少钱
+No importa cuánto dinero tengas
 
-2、[**纪念辛亥革命110周年大会习将对台新论述**](https://www.aboluowang.com/2021/1008/1656710.html)
+你拿着, 你上哪取钱去
+En dónde puedes sacar efectivo
 
-据新华社稍早报道，纪念辛亥革命110周年大会将于10月9日上午10时在北京人民大会堂举行。消息人士称，习近平将有对台新论述，这是继2019年“告台湾同胞书”40周年纪念会和今年“七一”中共建党百年讲话后，习再度提出对台论述。台陆委会发言人邱垂正7日表示，辛亥革命纪念日，就是中华民国国庆日，中共办的活动是要否定中华民国主权；他更提醒，台方已制定“反渗透法”与“国安五法”，提醒国人不应参加此类的统战交流活动。
+谁在银行来运营银行
+Quién estará en el banco para su funcionamiento
 
-3、[**山西泄洪惨状：多村被淹 火车悬空 古城墙坍塌**](https://www.aboluowang.com/2021/1007/1656502.html)
+谁来管理银行的信用卡刷卡
+Quién administrará las tarjetas de crédito del banco
 
-综合陆媒报道，山西洪灾严重。受洪灾影响，山西南同蒲铁路祁县站至东观站之间的昌源河大桥桥台日前被冲垮，枕木悬空，导致致南同蒲铁路行车中断，截至10月7日，停运的旅客列车已增至10列。6日，山西晋中市咸样河水库水位再次超出警戒线并向四周溢出，淹没农田，同样威胁南同蒲铁路线的安全。
+就说你有钱
+Si dices que tienes dinero
 
-4、[**中国十一长假 国内旅游消费不如人意**](https://www.aboluowang.com/2021/1008/1656699.html)
+就说你不需要用虚拟货币
+Y no necesitas usar la moneda virtual
 
-中共官方公布今年“十一”长假7天期间，国内旅游经测算共5.15亿人次，仅恢复至疫情前同期的70.1%；国内旅游收入则只有疫情前同期的59.9%。无论是人次或消费金额，都比去年还低。尽管先前有民间旅游平台业者预估，今年“十一”长假的中国国内旅游人次上看6.5亿人，但官方的测算数据显然少了许多。据中国文化和旅游部官网今天发布，经测算，1日至7日，全国国内旅游出游5.15亿人次，按可比口径较去年同期减少1.5%，按可比口径恢复至疫情前同期的70.1%。据发布，今年“十一”长假期间，实现国内旅游收入人民币3890.61亿元，较去年同期减少4.7%，恢复至疫情前同期的59.9%。
+你要取现的时候怎么取
+Cómo haces para sacar el efectivo
 
-5、[**担心新政策变化 补教行业试水温转型**](https://www.aboluowang.com/2021/1008/1656667.html)
+再一个, 如果停电了
+Y lo otro, si viene el apagón
 
-7月下旬，中共官方发布“关于进一步减轻义务教育阶段学生作业负担和校外培训负担的意见”，这项简称“双减”的政策开始在各地落实。其中对补教业者最具冲击性的，是义务教育阶段学科类课程不得在周末、寒暑假等节假日组织补习，且业者必须改登记为非营利性机构，不得上市融资，收费也需依官方规范。“双减”政策公布2个月后，在去资本化、去营利化的新形势下，补教业者几个月来努力转型，但业者仍担心官方突然颁布新的政策，当前的转型更多是试水温。其中，高途教育投入了成人和职业教育领域；新东方选择回到老本行，也就是大学生补教；好未来旗下业者正式推出素质教育品牌，发展科学、写程式、美育等素质课程；作业帮也将于近期上线素质类课程。
+电厂谁再干电话儿, 谁在管理银行
+Quién hará la llamada telefónica en la central eléctrica, quién estará a cargo del banco
 
-（本文只代表个人观点，与Gnews网站无关）
+谁再确定你信用卡不被偷走
+Quién confirmará que tu tarjeta de crédito no será robada
 
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+你家被抢劫的时候谁来给你报案
+Quién te informará cuándo te atracarán en la casa
+
+那警察
+Y los policías
+
+你所有能想像的下一步
+Todo lo que se te puede ocurrir en el siguiente paso
+
+都有可能是脑梗, 心梗, 肛梗, 眼梗, 你怎么办
+Puede ser infarto cerebral, infarto de miocardio, infarto anal e infarto ocular, cómo harás
+
+你现在的货流物流都出问题了
+Si hay problemas con la logística de carga
+
+上哪儿去找超市买东西
+A dónde conseguirás mercado para comprar cosas
+
+你喝(水)上哪, 在城市里边一没水你就傻了
+A dónde obtendrás agua si quieres tomarlo, si en la ciudad no hay ni una gota de agua, te quedarás estupefacto
+
+你能坚持五天吗
+?Puedes resistir cinco días?
+
+你不洗澡可以, 你能活下去吗
+Puedes no ba?arte pero ?puedes sobrevivir?
+
+然后再没电, 没电能有水吗
+Luego viene el apagón, si no hay electricidad, ?habrá agua?
+
+有手机
+Tienes celular
+
+你手机都没电了
+Pero sin batería
+
+你怎么用啊
+Cómo lo utilizarás
+
+它不是开玩笑的啊
+Esto no es una broma
+
+而且这个打疫苗让人更恐惧的是它在极短的时间内
+Además, lo más temeroso de inyectarse la vacuna es que en un tiempo muy corto
+
+给这几十亿人打了疫苗
+Se pudo vacunar miles de millones de personas
+
+那爆发期, 基本在极短的时间内爆发
+El período del brote básicamente estalló en un período de tiempo muy corto
+
+你想过这个问题没有, 兄弟姊妹们
+?Has pensado este problema? Hermanos y hermanas
+
+我不知道哪国政府现在真正研究
+No sé cuál gobierno del país realmente está investigando
+
+我希望是看这直播的各国政府都能意识到
+Yo deseo para el gobierno de los países que están viendo esta transmisión en vivo pueden darse cuenta
+
+如果有并发症的时候
+Cuando haya complicaciones
+
+37亿35亿咱就按万分比
+3.7 mil millones, 3.5 mil millones, tomemos diez mil puntos
+
+一万个(里)
+Dentro de diez mil
+
+有一个37亿是多少个
+?Cuántos son 3.7 mil millones?
+
+你想想它要同时并发, 这个人类不大混乱了吗
+Piensa si al mismo tiempo todos tienen complicaciones, ?no será un gran caos de la humanidad?
+
+你这里边儿, 出来几个王岐山
+Dentro de esto, aparece varios Wang Qishan,
+
+出来几个陈峰, 希特勒
+Chen Feng, Hitler
+
+你这个社会是什么样的
+Cómo será esta sociedad
+
+原视频日期：10/05/2021
+原视频网址： https://twitter.com/se1y7cblljselva/status/1445262169352773633?s=24
+视频时间段：0:00-2:00
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,11 +2,9 @@
 ---
 
 
-## 日本汽油价格已连续5周上涨，达到3年来高位
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1580286/)
+## “真相工程”发布系列视频揭露中共病毒的真相
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1580338/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1081-1-scaled.jpg)
-（文章仅代表作者个人观点，与GNEWS无关）
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 /平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+10/05/2021 疯狗体育电台：真相工程发布系列视频揭露中共病毒的真相，最新一集是关于制造这些疫苗的科学家对该疫苗的真实想法。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

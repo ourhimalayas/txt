@@ -15,98 +15,98 @@
 
 ---
 
-### [一艘美军核潜艇在南中国海国际水域潜航时撞上不明物体](/content/gnews/1/README.md)
+### [秘翻在线：美军已在台湾秘密训练至少一年](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [奥地利绿党质疑：总理在接受腐败、贿赂调查后能否留任](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
+### [问题的根本不是习近平，而是共产主义](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [欧企计划撤出香港去他国重组业务](/content/gnews/3/README.md)
- ` 秘密翻譯組G-Translators`
+### [作为一家上市公司，脸书必须不能对其投资者撒谎，甚至隐瞒重要信息](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [墙内要闻汇编](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [疫苗灾难将导致人类大混乱](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [国际要闻汇编](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [传奇摇滚鼓手抨击中共疫苗：救人？还是杀人？](/content/gnews/6/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [辉瑞正式把黑手伸向了你的孩子](/content/gnews/7/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国中央情报局新建任务中心应对中共国](/content/gnews/8/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线:美国今年冬天会停电?](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [“十一”消费数据：后疫情消费反弹与红色宣传洗脑集中展现](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声| 白宫国安顾问苏利文会晤杨洁篪](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [东京发生5级以上地震,交通影响仍在再继续](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声| 黑客窃取并公布了亚马逊Twitch源代码等关键数据](/content/gnews/13/README.md)
- ` MOSREC`
-
-### [“真相工程”发布系列视频揭露中共病毒的真相](/content/gnews/14/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [傅政华出来替民营企业护航，简直是天下最大的讽刺！](/content/gnews/15/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [喜迎喜币上市有感](/content/gnews/16/README.md)
+### [我这个写作菜鸟是如何开始动笔的](/content/gnews/5/README.md)
  ` 纽约香草山MOS03`
 
-### [超过20家虚拟币相关企业退出中共国](/content/gnews/17/README.md)
+### [一艘美军核潜艇在南中国海国际水域潜航时撞上不明物体](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [奥地利绿党质疑：总理在接受腐败、贿赂调查后能否留任](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [欧企计划撤出香港去他国重组业务](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [墙内要闻汇编](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [国际要闻汇编](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [三星预期明年上半年生产首批 3 纳米芯片](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [传奇摇滚鼓手抨击中共疫苗：救人？还是杀人？](/content/gnews/12/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [辉瑞正式把黑手伸向了你的孩子](/content/gnews/13/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国中央情报局新建任务中心应对中共国](/content/gnews/14/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线:美国今年冬天会停电?](/content/gnews/15/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [香港中文大学学生会宣布解散](/content/gnews/16/README.md)
+ ` GTV新闻访谈`
+
+### [“十一”消费数据：后疫情消费反弹与红色宣传洗脑集中展现](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声| 白宫国安顾问苏利文会晤杨洁篪](/content/gnews/18/README.md)
+ ` MOSREC`
+
+### [东京发生5级以上地震,交通影响仍在再继续](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声| 黑客窃取并公布了亚马逊Twitch源代码等关键数据](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [“真相工程”发布系列视频揭露中共病毒的真相](/content/gnews/21/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [傅政华出来替民营企业护航，简直是天下最大的讽刺！](/content/gnews/22/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [喜迎喜币上市有感](/content/gnews/23/README.md)
+ ` 纽约香草山MOS03`
+
+### [超过20家虚拟币相关企业退出中共国](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [加拿大即将对12岁以下儿童接种中共病毒疫苗](/content/gnews/18/README.md)
+### [加拿大即将对12岁以下儿童接种中共病毒疫苗](/content/gnews/25/README.md)
  ` 军迷wilson`
 
-### [欧盟通过决议，必须与美国合作遏制中共威胁](/content/gnews/19/README.md)
+### [欧盟通过决议，必须与美国合作遏制中共威胁](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [与英特尔竞争加剧，AMD推出“米兰”芯片](/content/gnews/20/README.md)
+### [与英特尔竞争加剧，AMD推出“米兰”芯片](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本汽油价格已连续5周上涨，达到3年来高位](/content/gnews/21/README.md)
+### [日本汽油价格已连续5周上涨，达到3年来高位](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [众议员肯·巴克:习主席准备入侵 台湾的事实正在显露](/content/gnews/22/README.md)
+### [众议员肯·巴克:习主席准备入侵 台湾的事实正在显露](/content/gnews/29/README.md)
  ` 美国政要直译推`
 
-### [“豆腐渣”工程的秘密之二（体制篇）](/content/gnews/23/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [维多利亚州新增确诊病例再创纪录](/content/gnews/24/README.md)
+### [维多利亚州新增确诊病例再创纪录](/content/gnews/30/README.md)
  ` 走进澳洲`
 
-### [雅典娜时报-第075期](/content/gnews/25/README.md)
- ` 墨尔本雅典娜农场`
-
-### [澳大利亚：周一开始为“免疫功能低下者”注射加强针](/content/gnews/26/README.md)
- ` 走进澳洲`
-
-### [恒大的命运威胁着中共国影子银行系统](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
-
-### [曾家公司竟然债务违约，中共最高层开撕了？](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国核潜艇在南海击中水下物体](/content/gnews/29/README.md)
- ` 象声`
-
-### [2021年10月07日澳喜要闻（每日更新）](/content/gnews/30/README.md)
+### [2021年10月07日澳喜要闻（每日更新）](/content/gnews/31/README.md)
  ` 澳喜农场`
-
-### [中共政府要求天然气进口商承担高昂成本以解决能源危机](/content/gnews/31/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [GlobalFoundries申请美国IPO](/content/gnews/32/README.md)
  ` 象声`
@@ -123,47 +123,47 @@
 ### [中共外交部的三大重要功能](/content/gnews/36/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|中共国的“一带一路”倡议面临越来越多参与国的反对](/content/gnews/37/README.md)
+### [有声|新任首相岸田文雄欢迎台湾 加入CPTPP](/content/gnews/37/README.md)
  ` MOSREC`
 
-### [有声|索罗斯继续抛售股票 将部分资本投入加密货币](/content/gnews/38/README.md)
+### [有声|中共国的“一带一路”倡议面临越来越多参与国的反对](/content/gnews/38/README.md)
  ` MOSREC`
 
-### [各大媒体热炒布林肯对恒大的反应](/content/gnews/39/README.md)
+### [有声|索罗斯继续抛售股票 将部分资本投入加密货币](/content/gnews/39/README.md)
+ ` MOSREC`
+
+### [各大媒体热炒布林肯对恒大的反应](/content/gnews/40/README.md)
  ` HimalayaRussia`
 
-### [文雍漫谈：一种超越国家意志的信仰——正道主义](/content/gnews/40/README.md)
+### [文雍漫谈：一种超越国家意志的信仰——正道主义](/content/gnews/41/README.md)
  ` 文雍`
 
-### [辉瑞泄密：举报人透露内部电子邮件](/content/gnews/41/README.md)
+### [辉瑞泄密：举报人透露内部电子邮件](/content/gnews/42/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日美确认岸田文雄领导下两国将密切合作](/content/gnews/42/README.md)
+### [日美确认岸田文雄领导下两国将密切合作](/content/gnews/43/README.md)
  ` HimalayaRussia`
 
-### [揭秘：近百名知名政客在为疫苗巨头游说](/content/gnews/43/README.md)
+### [流亡的中国侦探揭示中共对穆斯林人的酷刑程度（一）](/content/gnews/44/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [郭先生提醒海外华人](/content/gnews/44/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [流亡的中国侦探揭示中共对穆斯林人的酷刑程度（一）](/content/gnews/45/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [大家一起来养猪](/content/gnews/46/README.md)
+### [大家一起来养猪](/content/gnews/45/README.md)
  ` 银河勇气之星`
 
-### [疫苗灾情｜希腊 65 岁男演员接种疫苗后因血栓而中风入院](/content/gnews/47/README.md)
+### [疫苗灾情｜希腊 65 岁男演员接种疫苗后因血栓而中风入院](/content/gnews/46/README.md)
  ` G&#124;News TAIWAN`
 
-### [中美运输成本暴跌 原因是中国的产量已经停止](/content/gnews/48/README.md)
+### [中美运输成本暴跌 原因是中国的产量已经停止](/content/gnews/47/README.md)
  ` 象声`
 
-### [疫苗灾情｜法国 13 岁男孩接种疫苗10日后失明](/content/gnews/49/README.md)
+### [疫苗灾情｜法国 13 岁男孩接种疫苗10日后失明](/content/gnews/48/README.md)
  ` G&#124;News TAIWAN`
 
-### [10/07/2021 国际财经快讯：美国考虑释放紧急石油储备以降低天然气价格；欧美争夺国际结算份额首位](/content/gnews/50/README.md)
+### [10/07/2021 国际财经快讯：美国考虑释放紧急石油储备以降低天然气价格；欧美争夺国际结算份额首位](/content/gnews/49/README.md)
  ` 秘密翻译组金融团队`
+
+### [欧洲已有四个国家限用莫德纳疫苗](/content/gnews/50/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [屏蔽林依然8月9日的新浪微博坐实新浪的疫苗杀人本色](/content/gnews/51/README.md)
  ` 喜马拉雅日本银河系农场`

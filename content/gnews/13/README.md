@@ -2,44 +2,18 @@
 ---
 
 
-## 有声| 黑客窃取并公布了亚马逊Twitch源代码等关键数据
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1580373/)
+## 辉瑞正式把黑手伸向了你的孩子
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1580457/)
 
-配音：香草山美食部-玫瑰园
+#### 撰稿：坤霆
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-19.jpg)图片来源：网络截图
+据信息战（infowars.com）10月7日报道，疫苗制造商辉瑞周四宣布，它已要求FDA批准5至12岁儿童的实验注射的紧急使用授权。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+白宫新冠病毒应对协调员杰夫·齐内特斯周四在美国有线电视新闻网发表讲话时表示，疫苗最早可能在感恩节获得批准。
 
+早在6月份，疾控中心就警告说，在接种辉瑞或莫德纳疫苗后，他们收到了1,200多份心脏炎症报告，主要影响16至24岁的人。
 
+该公告宣布成立前一天，爆料项目Veritas展示了一名辉瑞爆料者的公司电子邮件，高管们在电子邮件中讨论了如何掩盖在新冠病毒疫苗实验室测试中使用人类胎儿组织的问题。
 
-
-
-
-
-亚马逊公司的视频游戏流媒体平台Twitch于10月6日早间遭到黑客攻击，被泄露内容包括：Twitch的源代码，内部管理工具，一个开发中的、旨在挑战Valve公司Steam店面的游戏工作室产品文件，和记录Twitch顶级游戏玩家2019至2021年收入的电子表格等关键数据。可见这次有计划的黑客攻击不仅是为了赚钱，更是为了伤害Twitch和亚马逊公司。
-
-Twitch已经通过推特确认了这次攻击。亚马逊于2014年收购了Twitch，据悉，该视频游戏直播每天有1500万用户，9月，Twitch曾因不当处理机器人或攻击者在直播节目的聊天框发布海量仇恨言论，而受到客户抵制。
-
-
-
-**文字版原文：[黑客窃取并公布了亚马逊Twitch源代码等关键数据](https://gnews.org/zh-hans/1578226/)**
-
-
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+原文链接：[Pfizer Officially Announces It’s Coming For Your Kids](https://www.infowars.com/posts/pfizer-officially-announces-its-coming-for-your-kids/)

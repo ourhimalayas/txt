@@ -2,33 +2,151 @@
 ---
 
 
-## 欧企计划撤出香港去他国重组业务
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1580478/)
+## 作为一家上市公司，脸书必须不能对其投资者撒谎，甚至隐瞒重要信息
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580543/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片2-8.png)
-（图片来自网络）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-15.jpg)https://gtv.org/video/id=615fc368d2e2b81748729059
+Scott Pelley
+斯科特·佩利
 
-据《法国国际广播电台》10月7日报道，香港欧洲商务协会10月6日表示，多家欧洲公司正在考虑撤出香港，去其他国家重组业务。据称，该商会给出的理由是：香港在防疫政策上使用的是中共的“清零”战略，这令许多公司举步维艰。
+Last month, Haugen’s lawyers filed at least eight complaints with the Securities and Exchange Commission
+上个月，豪根的律师向在金融市场执法的美国证券交易委员会
 
-代表法国、德国和西班牙等国企业的香港欧洲商会表示，几乎所有的其他国家都已经放弃使用“清零”战略，但是香港仍在沿用这一严格的防疫措施，因此，许多欧洲公司都在讨论从香港撤离员工的问题。
+which enforces the law in financial markets.
+提交了至少8份投诉
 
-香港欧洲商务协会主席弗雷德里克‧戈洛布（Frederik Gollob）6日在接受媒体采访时表示，在欧洲和香港的大多数企业的董事会上，撤离香港是一个讨论的主题。戈洛布还表示，即使不是完全撤出香港，许多欧洲企业也正在考虑至少将部分业务重组到其他亚洲国家。
+The complaints compare the internal research
+这些投诉将内部研究
 
-今年8月，香港欧洲商会曾罕见地向香港特首林郑月娥发出公开信，警告说，香港严厉的防疫隔离措施已造成香港居民无限期地受困于境内，恐威胁到香港的国际商业中心地位。戈洛布在那封信中指出，“港府最近对入境旅客采取更严格的防疫措施，不仅不合比例，而且是一个重大的退步。”
+with the company’s public face often matters CEO Mark Zuckerberg
+与公司的公众形象密切相关首席执行官马克·扎克伯格
 
-然而，林郑月娥日前却公开回应称，香港与中共国大陆的关系比那些帮助巩固香港作为亚洲金融中心地位的国际企业更重要，也比香港同全球旅游业的联系更重要。
+here testifying remotely to Congress last March,
+去年三月(他)在这里(视频)远程向国会作证进行比较
 
-在10月6日的年度施政报告中，林郑月娥虽然轻描淡写地提到了国际商界对跨境旅行的担忧，但她几乎没有提出任何针对这种情况的解决方案。
+Mark Zuckerberg (Facebook CEO)
+马克·扎克伯格（脸书首席执行官）
 
-目前，从海外返港的居民，即使已完全接种中共病毒疫苗，也必须在酒店进行21天的隔离。
+we’ve removed content that could lead to imminent real world harm.
+我们删除了可能导致迫在眉睫的现实世界伤害的内容
 
-在今年早些时候，香港美国商会发布的一项调查显示，有超过40%的美国企业正在考虑撤离香港。
+We built an unprecedented third party fact checking program.
+我们构建了前所未有的第三方事实核查程序
 
-虽说对于欧企计划撤出香港一事，香港欧洲商务协会公开给出的理由仅仅只是防疫，但事实恐怕远非如此。自国安恶法颁布后，香港的营商环境已急剧恶化，“一国一制”之下，在港外企面临着多重危机，甚至极有可能日后成为中共的“绑票”。尽快撤离香港是明智的选择，香港已非昨日的“东方明珠”，它已经成了中共极权统治下的大“集中营”。
+The system isn’t perfect, but it’s the best approach that we’ve found,
+这个系统并不完美，但它是我们找到的最好的方法
 
-值得一提的是，港府现在仍采用与中共保持一致的严苛防疫措施，即便已经完全接种了疫苗也要隔离21天。这也从另一个方面证明，释放中共病毒的邪恶中共心知肚明：疫苗根本没用。
+to address misinformation in line with our country’s values,
+以解决符合我们国家价值观的错误信息
 
-注：本文仅代表作者观点
+Scott Pelley
+斯科特·佩利
 
-**新闻链接**：[https://twitter.com/RFI\_Cn/status/1446214521782091792](https://twitter.com/RFI_Cn/status/1446214521782091792)
+one of France’s Huggins lawyers is John Tye.
+豪根其中的一个律师是约翰·泰
+
+He’s the founder of a Washington legal group called whistleblower aid.
+他是华盛顿一家名为“吹哨人援助”的法律团体的创始人
+
+What is the legal theory behind going to the SEC
+支持去美国证券交易委员会的法律理论是什么？
+
+what laws are you alleging have been broken
+你指称违反了什么法律 ？
+
+John Tye (founder of whistleblower aid)
+约翰·泰（吹哨人援助的创始人）
+
+As a publicly traded company, Facebook is required to not lie to its investors,
+作为一家上市公司，脸书必须不能对其投资者撒谎
+
+or even withhold material information.
+甚至隐瞒重要信息
+
+So, the SEC regularly brings enforcement actions,
+因此，美国证券交易委员会定期提起执法诉讼
+
+alleging that companies like Facebook and others
+指控像脸书和其他的这样的公司
+
+are making material misstatements, and emissions that affect investors adversely.
+正在作出重大的错误陈述，以及对投资者产生不利影响的信息推送
+
+Scott Pelley
+斯科特·佩利
+
+One of the things that Facebook might alleges that she stole company documents.
+脸书可能声称她窃取了公司档的这件事
+
+John Tye
+约翰·泰
+
+The Dodd-Frank Act passed over 10 years ago at this point,
+在这一点上多德-弗兰克法案已于 10 多年前通过
+
+created an office of the whistleblower inside the SEC.
+在美国证券交易委员会内部设立了一个举报人办公室
+
+And one of the provisions of that law says
+而且该法律的一项规定说
+
+that no company can prohibit its employees from, from communicating with the SEC,
+任何公司都不能禁止其员工与美国证券交易委员会沟通
+
+and sharing internal corporate documents with the SEC.
+并与美国证券交易委员共享内部公司档
+
+Frances Haugen
+弗朗西丝·豪根
+
+I have a lot of empathy for Mark, and Mark has never set out to make a hateful platform,
+我对马克有很多同情，马克从来没有打算做一个可恶的平台
+
+but he has allowed choices to be made,
+但他允许做出选择
+
+where the side effects of those choices are the hateful polarizing content gets more distribution more reach
+这些选择的副作用是可恶的两极分化内容得到更多的传播更多的影响
+
+Scott Pelley
+斯科特·佩利
+
+Facebook declined an interview, but in a written statement to 60 minutes it said,
+脸书拒绝接受采访，但在一份给60 分钟的书面声明中表示
+
+“Every day our teams have to balance
+“每天我们的团队都必须平衡
+
+protecting the right of billions of people to express themselves openly
+保护数十亿人公开表达自己的权利
+
+with the need to keep our platform as safe and positive place.
+需要保持我们的平台作为安全和积极的地方
+
+We continue to make significant improvements
+我们继续进行重大改进
+
+to tackle the spread of misinformation and harmful content.
+解决错误信息和有害内容的传播
+
+To suggest we encourage bad content and do nothing is just not true. ”
+如果说我们鼓励不良内容而不采取行动，那是不对的。”
+
+“If any research had identified an exact solution to these complex challenges,
+“如果有任何研究确定了这些复杂挑战的确切解决方案，
+
+the tech industry, governments and society would have solved them a long time ago.”
+科技行业、政府和社会早就解决了这些问题。”
+
+原视频日期：2021/10/03
+原视频链接: https://youtube.com/watch?v=\_Lx5VmAdZSI
+视频时间段 : 9:54-12:33
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

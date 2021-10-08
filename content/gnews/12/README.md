@@ -2,20 +2,20 @@
 ---
 
 
-## 东京发生5级以上地震,交通影响仍在再继续
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1580408/)
+## 传奇摇滚鼓手抨击中共疫苗：救人？还是杀人？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1580458/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-119.png)[图片来源](/cdn-cgi/l/email-protection#533b27272320697c7c273c382a3c7d3f362720343c39237d303c3e7c3221303b3a2536207c62676465637c)
-10月8日时事通讯社消息：
+#### 撰稿：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/6-5.jpg)图片来源：网络截图
+据INFOWAR网站10月7日报道，传奇摇滚乐队的鼓手卡明·阿皮斯（Carmine Appice）在周四的采访中提到，中共疫苗还没有经过长期的试验来确定它是否致命。
 
-10月7日晚，紧邻东京的千叶县西北部发生地震后，东京都地区的五个县共有32人被确认受伤，其中包括3名重伤者。总务省的消防和灾害管理机构8日上午宣布：直到8日早上的通勤时间地震造成的严重影响仍在持续。
+在接受油管上与《与果酱人一起摇摆》的采访时，这位香草软糖乐队（Vanilla Fudge）鼓手讨论了中共冠状病毒的封锁和强制疫苗是如何影响他的巡演生涯的，称这是他见过的“最疯狂的事情”。
 
-地震发生在7日晚上10点41分左右。东京市足立区和埼玉县川口市均破5级。这是自2011年3月11日东日本大地震以来，东京23区首次发生强度为5级以上的地震。震源深度为75公里。震级估计为里氏5.9级。
+“我曾经每年做60场演出，去年我做了4场。今年我最终可能演奏18场，但不能确定。就像我们做我和我哥哥的演出时，中间有一场演出，因为中共病毒被取消了……大家都在接种疫苗。而且甚至没有人知道这种疫苗是真的疫苗，还是要杀死所有人的东西。”
 
-[信息源](/cdn-cgi/l/email-protection#ee869a9a9e9dd4c1c1808b999dc0978f868181c08d81c0849ec18f9c9a878d828b9dc1de8fd8d6ddd688d7dd8ad9d8d68bdadad68b8dd78bd88888d7dddcd78fdbd7dbdcdf8d8fd7daddda)
+虽然这些评论有些令人震惊，但现实是中共疫苗被迅速开发出来，并在几个月内匆匆通过FDA的监管程序，而大多数疫苗有多年的长期研究的安全数据。
 
-（文章仅代表作者个人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+卡明被《滚石》杂志评为有史以来第28位最伟大的鼓手。
+
+新闻来源：[Rock Legend Drummer Bashes Covid Vax: ‘Nobody Knows If It’s Really A Vaccine, Or Something To Kill Everybody’](https://www.infowars.com/posts/rock-legend-drummer-bashes-covid-vax-nobody-knows-if-its-really-a-vaccine-or-something-to-kill-everybody/)
