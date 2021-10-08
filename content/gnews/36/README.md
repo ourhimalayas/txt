@@ -2,19 +2,23 @@
 ---
 
 
-## 秘翻在线：澳智库：何必在意欧洲的反应？澳英美联盟才是重点
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1580866/)
+## 疫苗灾情｜加拿大 22 岁女医护接种疫苗后瘫痪
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1580961/)
 
-#### 撰稿：彩虹
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 8/10/2021**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-08-182721.png)图片来源：视频截图
-10月7日，澳洲智库伯斯美国亚洲中心(Perth USAsia Centre)首席执行官戈登•弗莱克（Gordon Flake）在参与《天空新闻台》(skynews)节目时说，对印太地区来讲，澳英美联盟（AUKUS）是一项巨大的成就，但我们过多地关注了欧洲方面的反应。
+***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
+![](https://assets.gnews.org/wp-content/uploads/2021/10/18-2.jpg)
+【加拿大】哥伦比亚省一名 22 岁的女医务工作者 Tenley Csolle 在接种第一剂莫德纳 COVID-19 疫苗后瘫痪。
 
-他告诉《天空新闻台》观众：“我仍然非常犹豫是否用重要性不同来定义澳英美联盟，因为虽然与法国的关系是重要的，法国的印太战略是受到欢迎的，……（但）澳英美联盟本身是一项重大的成就。更多的注意力应该集中于日本新首相岸田文雄（Fumio Kishida）和印度已经支持这个联盟以及在该地区这对于澳大利亚意味着什么。”
+Tenley 于 2020 年 12 月 30 日接种第一针，之后就开始感到不适，并出现类似流感的症状，随着时间推移，她的症状恶化的很快，逐渐失去了双腿的功能，更有严重的认知障碍。
 
-弗莱克先生说“归根结底，澳英美联盟是一个印太地区联盟，但我们大部分时间其却浪费在了谈论欧洲的反应上。”
+Tenley 的母亲 Brenda 形容她的女儿在接种疫苗前，是一个“喜爱运动、充满活力并且十分健康的年轻女性，刚刚开始了她的职业生涯——康复治疗师助理。”
 
-**新闻链接**
+可惜，现在 Tenley 只能借助助行器慢慢移动，完全无法在没有支撑的情况下站立。不仅如此，她的认知障碍越来越严重，已经没办法快速思考并且完整表达自己的意思。
+Tenley 父母接受独立媒体《Rebelnews》的采访，述说自己女儿在接种疫苗后的不幸经历
+来源｜ [个案018](https://www.rebelnews.com/bc_vax_pass_punishes_young_health_care_worker_who_cant_walk_following_moderna_jab)
 
-[AUKUS focus should be on Indo-Pacific not ‘European reaction’](https://www.skynews.com.au/australia-news/defence-and-foreign-affairs/aukus-focus-should-be-on-indopacific-not-european-reaction/video/6098e75e52e06b36db0d4f4498390060)
+* * *
+
+他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//

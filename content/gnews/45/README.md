@@ -2,138 +2,150 @@
 ---
 
 
-## 疫苗灾难将导致人类大混乱
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580517/)
+## 作为一家上市公司，脸书必须不能对其投资者撒谎，甚至隐瞒重要信息
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580543/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-14.jpg)https://gtv.org/video/id=615fc2b2d2e2b81748729010
-这是一个担心, 另外一个让我很担心
-Esto es una preocupación, hay otro que me hace preocupar mucho
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-15.jpg)https://gtv.org/video/id=615fc368d2e2b81748729059
+Scott Pelley
+斯科特·佩利
 
-就是货币金融
-Es la moneda financiera
+Last month, Haugen’s lawyers filed at least eight complaints with the Securities and Exchange Commission
+上个月，豪根的律师向在金融市场执法的美国证券交易委员会
 
-不管你有多少钱
-No importa cuánto dinero tengas
+which enforces the law in financial markets.
+提交了至少8份投诉
 
-你拿着, 你上哪取钱去
-En dónde puedes sacar efectivo
+The complaints compare the internal research
+这些投诉将内部研究
 
-谁在银行来运营银行
-Quién estará en el banco para su funcionamiento
+with the company’s public face often matters CEO Mark Zuckerberg
+与公司的公众形象密切相关首席执行官马克·扎克伯格
 
-谁来管理银行的信用卡刷卡
-Quién administrará las tarjetas de crédito del banco
+here testifying remotely to Congress last March,
+去年三月(他)在这里(视频)远程向国会作证进行比较
 
-就说你有钱
-Si dices que tienes dinero
+Mark Zuckerberg (Facebook CEO)
+马克·扎克伯格（脸书首席执行官）
 
-就说你不需要用虚拟货币
-Y no necesitas usar la moneda virtual
+we’ve removed content that could lead to imminent real world harm.
+我们删除了可能导致迫在眉睫的现实世界伤害的内容
 
-你要取现的时候怎么取
-Cómo haces para sacar el efectivo
+We built an unprecedented third party fact checking program.
+我们构建了前所未有的第三方事实核查程序
 
-再一个, 如果停电了
-Y lo otro, si viene el apagón
+The system isn’t perfect, but it’s the best approach that we’ve found,
+这个系统并不完美，但它是我们找到的最好的方法
 
-电厂谁再干电话儿, 谁在管理银行
-Quién hará la llamada telefónica en la central eléctrica, quién estará a cargo del banco
+to address misinformation in line with our country’s values,
+以解决符合我们国家价值观的错误信息
 
-谁再确定你信用卡不被偷走
-Quién confirmará que tu tarjeta de crédito no será robada
+Scott Pelley
+斯科特·佩利
 
-你家被抢劫的时候谁来给你报案
-Quién te informará cuándo te atracarán en la casa
+one of France’s Huggins lawyers is John Tye.
+豪根其中的一个律师是约翰·泰
 
-那警察
-Y los policías
+He’s the founder of a Washington legal group called whistleblower aid.
+他是华盛顿一家名为“吹哨人援助”的法律团体的创始人
 
-你所有能想像的下一步
-Todo lo que se te puede ocurrir en el siguiente paso
+What is the legal theory behind going to the SEC
+支持去美国证券交易委员会的法律理论是什么？
 
-都有可能是脑梗, 心梗, 肛梗, 眼梗, 你怎么办
-Puede ser infarto cerebral, infarto de miocardio, infarto anal e infarto ocular, cómo harás
+what laws are you alleging have been broken
+你指称违反了什么法律 ？
 
-你现在的货流物流都出问题了
-Si hay problemas con la logística de carga
+John Tye (founder of whistleblower aid)
+约翰·泰（吹哨人援助的创始人）
 
-上哪儿去找超市买东西
-A dónde conseguirás mercado para comprar cosas
+As a publicly traded company, Facebook is required to not lie to its investors,
+作为一家上市公司，脸书必须不能对其投资者撒谎
 
-你喝(水)上哪, 在城市里边一没水你就傻了
-A dónde obtendrás agua si quieres tomarlo, si en la ciudad no hay ni una gota de agua, te quedarás estupefacto
+or even withhold material information.
+甚至隐瞒重要信息
 
-你能坚持五天吗
-?Puedes resistir cinco días?
+So, the SEC regularly brings enforcement actions,
+因此，美国证券交易委员会定期提起执法诉讼
 
-你不洗澡可以, 你能活下去吗
-Puedes no ba?arte pero ?puedes sobrevivir?
+alleging that companies like Facebook and others
+指控像脸书和其他的这样的公司
 
-然后再没电, 没电能有水吗
-Luego viene el apagón, si no hay electricidad, ?habrá agua?
+are making material misstatements, and emissions that affect investors adversely.
+正在作出重大的错误陈述，以及对投资者产生不利影响的信息推送
 
-有手机
-Tienes celular
+Scott Pelley
+斯科特·佩利
 
-你手机都没电了
-Pero sin batería
+One of the things that Facebook might alleges that she stole company documents.
+脸书可能声称她窃取了公司档的这件事
 
-你怎么用啊
-Cómo lo utilizarás
+John Tye
+约翰·泰
 
-它不是开玩笑的啊
-Esto no es una broma
+The Dodd-Frank Act passed over 10 years ago at this point,
+在这一点上多德-弗兰克法案已于 10 多年前通过
 
-而且这个打疫苗让人更恐惧的是它在极短的时间内
-Además, lo más temeroso de inyectarse la vacuna es que en un tiempo muy corto
+created an office of the whistleblower inside the SEC.
+在美国证券交易委员会内部设立了一个举报人办公室
 
-给这几十亿人打了疫苗
-Se pudo vacunar miles de millones de personas
+And one of the provisions of that law says
+而且该法律的一项规定说
 
-那爆发期, 基本在极短的时间内爆发
-El período del brote básicamente estalló en un período de tiempo muy corto
+that no company can prohibit its employees from, from communicating with the SEC,
+任何公司都不能禁止其员工与美国证券交易委员会沟通
 
-你想过这个问题没有, 兄弟姊妹们
-?Has pensado este problema? Hermanos y hermanas
+and sharing internal corporate documents with the SEC.
+并与美国证券交易委员共享内部公司档
 
-我不知道哪国政府现在真正研究
-No sé cuál gobierno del país realmente está investigando
+Frances Haugen
+弗朗西丝·豪根
 
-我希望是看这直播的各国政府都能意识到
-Yo deseo para el gobierno de los países que están viendo esta transmisión en vivo pueden darse cuenta
+I have a lot of empathy for Mark, and Mark has never set out to make a hateful platform,
+我对马克有很多同情，马克从来没有打算做一个可恶的平台
 
-如果有并发症的时候
-Cuando haya complicaciones
+but he has allowed choices to be made,
+但他允许做出选择
 
-37亿35亿咱就按万分比
-3.7 mil millones, 3.5 mil millones, tomemos diez mil puntos
+where the side effects of those choices are the hateful polarizing content gets more distribution more reach
+这些选择的副作用是可恶的两极分化内容得到更多的传播更多的影响
 
-一万个(里)
-Dentro de diez mil
+Scott Pelley
+斯科特·佩利
 
-有一个37亿是多少个
-?Cuántos son 3.7 mil millones?
+Facebook declined an interview, but in a written statement to 60 minutes it said,
+脸书拒绝接受采访，但在一份给60 分钟的书面声明中表示
 
-你想想它要同时并发, 这个人类不大混乱了吗
-Piensa si al mismo tiempo todos tienen complicaciones, ?no será un gran caos de la humanidad?
+“Every day our teams have to balance
+“每天我们的团队都必须平衡
 
-你这里边儿, 出来几个王岐山
-Dentro de esto, aparece varios Wang Qishan,
+protecting the right of billions of people to express themselves openly
+保护数十亿人公开表达自己的权利
 
-出来几个陈峰, 希特勒
-Chen Feng, Hitler
+with the need to keep our platform as safe and positive place.
+需要保持我们的平台作为安全和积极的地方
 
-你这个社会是什么样的
-Cómo será esta sociedad
+We continue to make significant improvements
+我们继续进行重大改进
 
-原视频日期：10/05/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1445262169352773633?s=24
-视频时间段：0:00-2:00
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
+to tackle the spread of misinformation and harmful content.
+解决错误信息和有害内容的传播
+
+To suggest we encourage bad content and do nothing is just not true. ”
+如果说我们鼓励不良内容而不采取行动，那是不对的。”
+
+“If any research had identified an exact solution to these complex challenges,
+“如果有任何研究确定了这些复杂挑战的确切解决方案，
+
+the tech industry, governments and society would have solved them a long time ago.”
+科技行业、政府和社会早就解决了这些问题。”
+
+原视频日期：2021/10/03
+原视频链接: https://youtube.com/watch?v=\_Lx5VmAdZSI
+视频时间段 : 9:54-12:33
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

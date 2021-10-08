@@ -2,27 +2,39 @@
 ---
 
 
-## 中情局成立全新部门，应对中共扩张带来的威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1581243/)
+## 中共国警告澳中关系将在台湾紧张局势中“遭受无法弥补的损害”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1581375/)
 
-作者：在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月7日，美国中央情报局局长威廉·伯恩斯宣布成立一个全新的部门“中(共)国任务中心”，以确保中情局有能力应对来自中共日益增强的对抗。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1008AM（1-6，9）視頻備用-2.003.jpeg)
-伯恩斯称中共政府是美国21世纪面对的最重要的地缘政治威胁，与中共之间的竞争，尤其是在科技领域方面，将会是美国国家安全的关键。他形容中共政权的扩张既是对抗性的，更是掠夺性的，近年来的变化已经引起美国的警醒。该中心的成立，正是表明美国政府已清楚认识到中共已经超过俄罗斯，成为美国最大的威胁。
-(本文仅代表作者观点)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GettyImages-1343647441-640x426-4.jpg)网络图片
+澳大利亚前总理托尼·阿博特(Tony Abbott)几天前到访台湾，此举引发在该岛的紧张局势中焦虑不安的中共国的回应。《环球时报》发布警告称，如果堪培拉干预该地区，两国关系将“遭受无法弥补的损害”。
 
-参考链接：[中情局长宣布成立中国任务中心，称中国政府为美国最重要地缘政治威胁](https://www.voachinese.com/a/cia-focused-on-china-20211007/6261751.html)
+社论说：“许多人担心澳大利亚可能会鲁莽地跟随一些欧洲国家的步伐，采取一些不明智的行动。”
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+“毕竟，阿博特不是以官方身份访问台北。”“但如果澳大利亚国会议员甚至现任内阁部长以官方身份访问台湾，或者堪培拉允许将‘台北经济文化办事处’的名称更改为违反一个中国原则的东西，中澳双边关系将遭受无法弥补的损害。”
 
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
+社论写道：“澳大利亚政府干涉中国内政，诽谤大陆在台湾岛周围的空军活动，称这是对台湾所谓的防空区的‘入侵’，并与华盛顿保持一致。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+专家称，这一决定性举措（澳大利亚加入AUKUS）表明澳大利亚选择与美国站在一起，而不是中共国。
+
+澳大利亚一直坚称，它不必在两国之间做出选择，但近年来，它对北京的态度变得更加强硬。
+
+当澳大利亚呼吁对中共病毒(COVID)的起源进行调查时，这种关系进一步恶化，这导致中共国对澳大利亚的出口实施制裁以进行报复。
+
+《环球时报》社论警告说，澳大利亚有可能成为美国“反华战略”的“棋子”。
+
+**简评：** 澳大利亚前总理访华引起中共官媒《环球时报》的叫嚣，说明中共国虽然近期在台海地区很嚣张，但它还是很在乎周边国家和国际社会对台海紧张局势的反应。如果台湾能够得到日本、加拿大和美欧各国支持的话，中共收复台湾的企图将很可能面临破产。
+
+日本新任首相岸田文雄上台后，日本外务省于10月5日表示，“如果中共国继续加大对台湾的军事恐吓力度，日本将为支持台湾做必要的准备。”欧盟在10月6日的欧洲议会上通过了“展望欧盟-美国关系”决议，其中强调了欧盟必须与美国就台湾海峡紧张情势寻求共识及合作。虽然美国拜登政府在台海问题上一直很软弱，但是美国政府中以共和党为首的反共力量仍然是台湾可以争取的方向。根据郭文贵先生爆料，习近平政府为了转移国内经济、政治压力，随时有可能发动对台战争。为了挽救台湾人民于水火之中，台湾政府需要尽快解决岛内的党派纷争、清除岛内的亲共力量，发挥政治智慧积极寻求国际社会的支持，联合岛内民众，做好应战准备。
+
+新闻链接: [https://www.express.co.uk/news/world/1502752/China-Australia-relationship-suffer-irreparable-damages-Taiwan-tensions-Global-Times-ont](https://www.express.co.uk/news/world/1502752/China-Australia-relationship-suffer-irreparable-damages-Taiwan-tensions-Global-Times-ont)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
