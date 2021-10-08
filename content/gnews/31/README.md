@@ -2,21 +2,39 @@
 ---
 
 
-## 欧洲议会通过决议，关切台海等中共国议题
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1580603/)
+## 菲律宾和澳大利亚将扩大海上合作
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1580617/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/hemicycle_str-1633639815639.jpg.jpg)欧洲议会通过决议，关切台海等中共国议题 网络图片
-据路透社10月7日报道，欧洲议会于10月6日高票通过“展望欧盟—美国关系”决议，强调欧盟必须与美国就保护中共国少数民族人权、降低南海、东海、香港及台湾海峡的紧张情势等议题寻求共识及合作的可能。
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ph-australia.jpg)图片来源：filipinawives.com.au
+**整理报道：**小红帽
 
-台湾外交部对欧洲议会再度关切台海的和平稳定表示感谢，并指出中共国军机近日频繁入侵台湾“防空识别区”。台湾外交部呼吁中共国停止军事威胁及破坏区域和平稳定。台湾政府与2,350万台湾人民有决心和能力捍卫国家主权与台海和平。中共妖孽存在一天，整个世界就动荡不安。
+在西菲律宾海面临日益严峻的挑战之际，菲律宾和澳大利亚将扩大在海洋领域的合作。
 
-新闻参考链接：[https://amp.rfi.fr/cn/中国/20211007-欧洲议会通过决议促与美国合作关切台海紧张等中国议题](https://amp.rfi.fr/cn/中国/20211007-欧洲议会通过决议促与美国合作关切台海紧张等中国议题)
+澳大利亚驻菲律宾大使史蒂文·罗宾逊(Steven Robinson AO)表示，他最近将飞往距离西菲律宾海最近的巴拉望省，与该地区的军事和海岸警卫队官员会面，了解他们面临的挑战，以及澳大利亚可以如何支持他们。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+“我们可以通过一项新的菲律宾民事-海事安全计划来做到这一点，扩大我们对海上合作的参与，该计划旨在支持菲律宾，加强其民海安全”，罗宾逊周三（10月6日） 在他的马卡蒂市的住所告诉记者。
 
+罗宾逊说，上周他访问菲律宾武装部队总部期间也讨论了这一新的合作。
 
-编辑：【英国伦敦喜庄园编辑部】
+澳大利亚大使馆将于周四（10月7日）与堪培拉当局讨论上述合作。合作将侧重于海洋治理系统、机构间协调、自然资源管理和环境保护、技术援助、研究和伙伴关系等方面。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+罗宾逊说，澳大利亚支持国际法，尤其是《联合国海洋法公约》。
+
+今年年初，自从在朱利安·费利佩（Julian Felipe）牛轭礁（Whitsun reef）发现了200多艘中共国民兵船只后，菲律宾加强了在西菲律宾海的巡逻。
+
+尽管菲律宾一再抗议，中共国船只继续随着北京当局在南海积极执行其虚构的九段线侵占西菲律宾海。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[PH, Australia expanding maritime cooperation | Global News (inquirer.net)](https://globalnation.inquirer.net/199446/ph-australia-expanding-maritime-cooperation)
+
+***编辑：小红帽 /翼族
+发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

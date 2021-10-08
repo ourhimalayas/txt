@@ -2,139 +2,49 @@
 ---
 
 
-## 疫苗灾难将导致人类大混乱
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580517/)
+## 埃隆·马斯克表示星链互联网服务不久将在全国范围内推出
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1580542/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-14.jpg)https://gtv.org/video/id=615fc2b2d2e2b81748729010
-这是一个担心, 另外一个让我很担心
-Esto es una preocupación, hay otro que me hace preocupar mucho
+据《混搭网》迈克尔·坎（Michael Kan）2021 年 10 月 7 日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-2.png)图片来源于网络
+SpaceX首席执行官埃隆·马斯克（Elon Musk）表示，卫星互联网服务星链将于本月晚些时候在全国范围内推出。
 
-就是货币金融
-Es la moneda financiera
+马斯克是在他之前提到星链将于10月退出测试阶段后发表上述声明的。周四，一位推特用户询问这对美国消费者，特别是南方消费者意味着什么？该用户写道：“星链测试版将于本月结束，如前所述，我们会看到更多的南方州（路易斯安那州、德克萨斯州等）推出吗？”。
 
-不管你有多少钱
-No importa cuánto dinero tengas
 
-你拿着, 你上哪取钱去
-En dónde puedes sacar efectivo
 
-谁在银行来运营银行
-Quién estará en el banco para su funcionamiento
+> Starlink beta is ending this month as stated, will we see more of the southern states (Louisiana, Texas, etc.) roll outs?
+> — JC\_Comrade (@jc\_comrade) [October 7, 2021](https://twitter.com/jc_comrade/status/1446108729816977424?ref_src=twsrc%5Etfw)
 
-谁来管理银行的信用卡刷卡
-Quién administrará las tarjetas de crédito del banco
 
-就说你有钱
-Si dices que tienes dinero
+*埃隆·马斯克 @elonmusk*
+*FSD Beta 10.2 将于周五午夜向大约 1000 名安全评分为 100/100 的业主推出。*
+*在此之后，发布将持续数天，以查看进展情况。*
+*如果这看起来不错，测试版将逐渐开始推广到 99 分及以下。*
+*2021年10月7日*
+ 
+*JC\_同志 @jc\_comrade*
+*回复 @elonmusk Starlink 测试版将于本月结束，我们会看到更多的南部各州（路易斯安那州、德克萨斯州等）推出吗？*
+*2021年10月7日*
+ 
+*埃隆·马斯克 @elonmusk*
+*回复 @jc\_comrade 月底应该会全国推广。 注意，仍受同一地区用户高峰数量的限制。*
+*随着更多卫星的发射，这种情况将有所改善。*
+*2021年10月7日*
+作为回应，马斯克在推特上写道：“应该在本月底在全国范围内推出。注意，仍受同一区域内用户峰值数量的限制。随着更多卫星的发射，这将有所改善。”
 
-就说你不需要用虚拟货币
-Y no necesitas usar la moneda virtual
+该声明表明，SpaceX正准备向美国各地的用户发送更多的星链终端。然而，如果你居住的地区已经满是现有的星链用户，你仍然需要等待，直到该公司能够将更多卫星发射到轨道上，以创造更多的网络容量。目前为全球超过10万 名用户提供服务。
 
-你要取现的时候怎么取
-Cómo haces para sacar el efectivo
+最大的问题是SpaceX如何定义全国范围。星链已经服务于美国全国大多数州。但速度测试（Speedtest）背后的奥克拉 （Ookla）公司的数据表明，星链的覆盖范围仍然存在很大差距。
 
-再一个, 如果停电了
-Y lo otro, si viene el apagón
+在后续推文中，马斯克补充道：“星链专为中低人口密度地区而设计，这意味着我们可以在某些地区快速达到最大用户数。请提前注册以确保获得一个位置。随着更多卫星的推出，SpaceX将能够提供更多服务。”
 
-电厂谁再干电话儿, 谁在管理银行
-Quién hará la llamada telefónica en la central eléctrica, quién estará a cargo del banco
+感兴趣的用户可以在该公司的官方网站上为星链下99美元一份的预购订单。然而，这项服务已经有超过50万名用户注册试用星链。因此，星链官网在某些情况下会说，这项服务要到2022年甚至2023年才能提供，这取决于不同的地区。
 
-谁再确定你信用卡不被偷走
-Quién confirmará que tu tarjeta de crédito no será robada
+为了吸引更多的客户，SpaceX正准备用一种更易于制造的新版本来提高星链碟形终端的生产。这些新碟形终端预计将在今年晚些时候上市。
 
-你家被抢劫的时候谁来给你报案
-Quién te informará cuándo te atracarán en la casa
+【本文仅代表作者个人观点，与Gnews无关】
 
-那警察
-Y los policías
+原文链接：[https://mashable.com/article/spacex-starlink-nationwide-rollout](https://mashable.com/article/spacex-starlink-nationwide-rollout)
 
-你所有能想像的下一步
-Todo lo que se te puede ocurrir en el siguiente paso
-
-都有可能是脑梗, 心梗, 肛梗, 眼梗, 你怎么办
-Puede ser infarto cerebral, infarto de miocardio, infarto anal e infarto ocular, cómo harás
-
-你现在的货流物流都出问题了
-Si hay problemas con la logística de carga
-
-上哪儿去找超市买东西
-A dónde conseguirás mercado para comprar cosas
-
-你喝(水)上哪, 在城市里边一没水你就傻了
-A dónde obtendrás agua si quieres tomarlo, si en la ciudad no hay ni una gota de agua, te quedarás estupefacto
-
-你能坚持五天吗
-?Puedes resistir cinco días?
-
-你不洗澡可以, 你能活下去吗
-Puedes no ba?arte pero ?puedes sobrevivir?
-
-然后再没电, 没电能有水吗
-Luego viene el apagón, si no hay electricidad, ?habrá agua?
-
-有手机
-Tienes celular
-
-你手机都没电了
-Pero sin batería
-
-你怎么用啊
-Cómo lo utilizarás
-
-它不是开玩笑的啊
-Esto no es una broma
-
-而且这个打疫苗让人更恐惧的是它在极短的时间内
-Además, lo más temeroso de inyectarse la vacuna es que en un tiempo muy corto
-
-给这几十亿人打了疫苗
-Se pudo vacunar miles de millones de personas
-
-那爆发期, 基本在极短的时间内爆发
-El período del brote básicamente estalló en un período de tiempo muy corto
-
-你想过这个问题没有, 兄弟姊妹们
-?Has pensado este problema? Hermanos y hermanas
-
-我不知道哪国政府现在真正研究
-No sé cuál gobierno del país realmente está investigando
-
-我希望是看这直播的各国政府都能意识到
-Yo deseo para el gobierno de los países que están viendo esta transmisión en vivo pueden darse cuenta
-
-如果有并发症的时候
-Cuando haya complicaciones
-
-37亿35亿咱就按万分比
-3.7 mil millones, 3.5 mil millones, tomemos diez mil puntos
-
-一万个(里)
-Dentro de diez mil
-
-有一个37亿是多少个
-?Cuántos son 3.7 mil millones?
-
-你想想它要同时并发, 这个人类不大混乱了吗
-Piensa si al mismo tiempo todos tienen complicaciones, ?no será un gran caos de la humanidad?
-
-你这里边儿, 出来几个王岐山
-Dentro de esto, aparece varios Wang Qishan,
-
-出来几个陈峰, 希特勒
-Chen Feng, Hitler
-
-你这个社会是什么样的
-Cómo será esta sociedad
-
-原视频日期：10/05/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1445262169352773633?s=24
-视频时间段：0:00-2:00
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+翻译：烟波浩淼 |校对：雨山溪桥客 |编辑&发布：黎明的光芒

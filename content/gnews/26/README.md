@@ -2,16 +2,43 @@
 ---
 
 
-## 中共国成品油零售限价或迎年内最大幅度上调
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1580646/)
+## GTV投资人抗议SEC进入第四天
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1580654/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-120.png)[图片来源](https://www.ntdtv.com/gb/2021/09/23/a103225413.html)
-本轮计价周期内，欧美原油价格上涨为主，国内参考的原油变化率正值范围内上行。截止10月7日收盘，国内第九个工作日参考原油变化率为7.15%，预计汽柴油价格上调315元/吨，若上调预期兑现，将刷新年内最大涨幅记录。
+栏目记者/责任编辑：葛朗台太太
 
-信息来源：[http://www.nbd.com.cn/articles/2021-10-08/1936275.html](http://www.nbd.com.cn/articles/2021-10-08/1936275.html)
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+
+
+
+
+
+
+
+10月7日，GTV投资人再次出现在SEC华盛顿总部进行抗议。 未参与抗议的投资人又是如何看待这次抗议活动的呢？ 请看本台记者与一位投资人的连线：
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

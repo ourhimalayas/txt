@@ -2,35 +2,48 @@
 ---
 
 
-## 菲律宾和澳大利亚将扩大海上合作
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1580617/)
+## 终结英特尔收购传闻，格罗方德申请纽交所IPO
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1580621/)
 
 #### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ph-australia.jpg)图片来源：filipinawives.com.au
-**整理报道：**小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/10/打倒-16.png)
+图片来源：Sdx central
 
-在西菲律宾海面临日益严峻的挑战之际，菲律宾和澳大利亚将扩大在海洋领域的合作。
+**编译报道：文泓**
 
-澳大利亚驻菲律宾大使史蒂文·罗宾逊(Steven Robinson AO)表示，他最近将飞往距离西菲律宾海最近的巴拉望省，与该地区的军事和海岸警卫队官员会面，了解他们面临的挑战，以及澳大利亚可以如何支持他们。
+10月7日，格罗方德（GlobalFoundries）正式向美国证券交易委员会(SEC)提交了在纳斯达克进行首次公开募股(IPO)的申请，股票代码为GFS。
 
-“我们可以通过一项新的菲律宾民事-海事安全计划来做到这一点，扩大我们对海上合作的参与，该计划旨在支持菲律宾，加强其民海安全”，罗宾逊周三（10月6日） 在他的马卡蒂市的住所告诉记者。
+据媒体早先的报道，虽然普通股的数量和拟议发行的价格范围都没有公开，但预计IPO将获得约250亿美元。
 
-罗宾逊说，上周他访问菲律宾武装部队总部期间也讨论了这一新的合作。
+目前，格罗方德已获得摩根士丹利、美国银行、摩根大通、花旗集团、瑞士信贷以及其他十几个投资集团的帮助，以支持IPO准备工作。
 
-澳大利亚大使馆将于周四（10月7日）与堪培拉当局讨论上述合作。合作将侧重于海洋治理系统、机构间协调、自然资源管理和环境保护、技术援助、研究和伙伴关系等方面。
+该公告是在有关这家美国半导体制造商命运的数月传言之后发布的。格罗方德首席执行官汤姆·考菲尔德（Tom Caulfield）早在7月份曾否认过IPO，但当月媒体一篇报道暗示，英特尔正在谈判以高达300亿美元的价格收购这家半导体代工制造商。
 
-罗宾逊说，澳大利亚支持国际法，尤其是《联合国海洋法公约》。
+当时，分析师推测格罗方德的收购将启动该供应商新的英特尔代工服务业务部门。
 
-今年年初，自从在朱利安·费利佩（Julian Felipe）牛轭礁（Whitsun reef）发现了200多艘中共国民兵船只后，菲律宾加强了在西菲律宾海的巡逻。
+咨询机构弗雷斯特研究（Forrester Research）副总裁兼基础设施和运营研究总监格伦·奥唐纳（Glenn O’Donnell）表示，这些传言可能是为了提升估值。
 
-尽管菲律宾一再抗议，中共国船只继续随着北京当局在南海积极执行其虚构的九段线侵占西菲律宾海。
+在新冠疫情大流行和供应链短缺之后，整个半导体行业的代工运营商都经历了前所未有的需求，因此格罗方德进行了首次公开募股。
+
+英特尔、台积电(TSMC)、三星电子和 格罗方德都宣布了扩大代工业务的计划，以满足不断增长的客户需求。
+
+英特尔于3月宣布斥资200亿美元在亚利桑那州兴建两家芯片厂，预计年底前还将在欧洲和美国进行额外投资。
+
+与此同时，全球最大的半导体制造商台积电宣布，未来三年的资本支出将超过1000 亿美元。最近，三星表示将花费近两倍的资金来扩大其代工业务。
+
+虽然格罗方德尚未宣布接近这些大规模资本支出，但该运营商正在斥资10 亿美元来提高其纽约马耳他工厂的产能。
+
+今年7月19日，格罗方德宣布了其在纽约北部最先进的制造工厂的扩张计划，将投资10亿美元，在现有芯片厂内每年增产15万片，以帮助解决全球芯片短缺问题。
 
 （文章内容仅代表作者个人观点，与GNEWS无关）
 
-**参考新闻：**[PH, Australia expanding maritime cooperation | Global News (inquirer.net)](https://globalnation.inquirer.net/199446/ph-australia-expanding-maritime-cooperation)
+参考链接：
 
-***编辑：小红帽 /翼族
-发布：小红帽***
+1、[GlobalFoundries Plans to Build New Fab in Upstate New York in Private-Public Partnership to Support U.S. Semiconductor Manufacturing | GLOBALFOUNDRIES (gf.com)](https://gf.com/press-release/globalfoundries-plans-build-new-fab-upstate-new-york-private-public-partnership)
+
+2、[GlobalFoundries Files IPO, Ends Intel Acquisition Rumors – SDxCentral](https://www.sdxcentral.com/articles/news/globalfoundries-files-ipo-ends-intel-acquisition-rumors/2021/10/)
+
+发布：小红帽
 
 **更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

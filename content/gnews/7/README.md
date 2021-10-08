@@ -2,58 +2,56 @@
 ---
 
 
-## 统计数据继续显示COVID-19 疫苗运动与预期相反
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1580834/)
+## 2021/10/07大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1580857/)
 
-- **编译：JennyBall**
+本期嘉宾：Castle
+
+[点击观看GTV直播视频](https://gtv.org/video/id=615eefd6304e992109b0f3a1)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip269.png)
 
-《生活新闻》[(LifeSiteNews](https://www.lifesitenews.com/)) ——上周发布的一段简短视频，使用来自[约翰斯·霍普金斯大学冠状病毒资源中心](https://coronavirus.jhu.edu/)的数据来说明，在引入[实验性](https://www.lifesitenews.com/blogs/10-reasons-why-the-fda-approval-for-pfizer-jab-isnt-about-health-but-about-forcing-people-to-take-the-shot/?utm_source=featured&amp;utm_campaign=usa) COVID 后，全球许多国家的 COVID 死亡人数急剧增加 。
+#### 板块1–国际政治
 
-由[HART 集团](https://www.hartgroup.org/)附属的定量数据分析师乔尔·斯莫利（[Joel Smalley](https://twitter.com/RealJoelSmalley)）作的引人注目的演示文稿，标题为“疫苗接种计划前后的 COVID 死亡人数”，似乎是他[5 月发布的类似视频的续集](https://www.lifesitenews.com/news/video-points-out-unexpected-spikes-in-covid-19-deaths-following-vaccine-uptake/)。
+1. 中共与拜登政府一直在进行勾兑。拜习电话后，可能已达成“默契”。中共利用拜登之口传递信息–不攻打台湾、香港法案并未实施等系列操作，表明拜登政府无心灭共。
+2. 杨洁篪背负“习的任务”在瑞士会见沙利文。瑞士是中共洗钱藏钱关键国家，谈判内容涉及中美国家安全和情报信息、为习掌握中共各大家族的“藏宝图”甚至探讨拿走部分利益。
+3. 国内利用《长津湖》电影和军演进行政治宣传，避而不谈真正的危机–国内采购、对外出口、恒大、影子银行等事件。
 
-在[视频](https://www.youtube.com/watch?v=WR-pqrMWu3E)的[推文](https://twitter.com/RealJoelSmalley/status/1442059898582355969)介绍中，英国人斯莫利挑战了所谓的“疫苗”已显示出足够的效力来维持其紧急使用授权的说法。
 
-他写道：“COVID 疫苗在减少严重疾病和死亡方面的有效率为 50% 至 80%。” “它们必须至少有 50% 效果才能保留紧急使用授权。这种显着的功效在经验性的“真实世界”数据中应该是显而易见的， 应该很少有国家例外。”
+#### 板块2–香港台湾
 
-该[视频](https://www.youtube.com/watch?v=WR-pqrMWu3E)显示了每个国家在实验性疫苗接种活动开始之前（蓝色）和之后（红色）每周的 COVID-19 死亡人数，显示了大约 [40 个不同国家](https://photos.google.com/share/AF1QipN3RNLe6QJrvtlyUquqWTfYEX6FDVME1Xy4KK8FbognSTIEJNDn4YmpMyizuGrk3Q?pli=1&amp;key=VWxnOU5uZGlYY3FHWlE3aUNGY05KVDNRUmgtZ2x3)的疫苗接种率与死亡人数激增之间的显着相关性。
+蔡英文撰文强调“为民主而战”，本质是向国际社会呼吁不要彻底出卖台湾。中共和拜登政府“暧昧举动”可能在部分问题上出卖台湾，美方看重–台湾地理位置（在战略上有重要意义）和核心技术产业（如芯片供应美国）。
 
-例如，以色列、台湾和乌干达的 COVID 死亡人数急剧增加。
+#### 板块3–财经
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip270.png)
+1. 中共国违反禁令进口澳大利亚煤炭，凸显能源短缺。去年澳大利亚要求病毒溯源，中共开始禁止进口澳煤炭、红酒、牛肉等，上月“打脸”高价进口38万吨澳煤炭，预计用于中共有特别要求保障电力的地方，老百姓永远是最直接受害者。
+2. 曾家背景房地产公司“花样年”逾期付款，体现中共国房地产发展出现大问题。恒大爆雷后引发市场恐慌、大众信心丧失、局部踩踏，曾庆红家族也没有砸钱欲望和救市接盘计划。
+3. 索罗斯套现美股，将一些投入加密货币，将引发华尔街资本转向，数字货币和加密货币不可逆。疫苗经济是虚假的，普遍预测在2021底美股到顶，随着工业疲软将开始下行。美国SEC主席表示不会效仿中国禁止加密货币，大众看好数字货币和加密货币前景。
+4. 喜币价值可期。数字货币和加密货币之间的矛盾不可调和，文贵先生创意“双脚走路”–双币挂钩黄金和美元，调节双币间的矛盾；中共实行“单脚走路”–强推数字货币，由于需要掌控货币，废除加密货币。美国最终将迎合“双脚走路”模式。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip271.png)
 
-虽然，相关性并不能证明因果关系，**但从更广泛的相关数据来看，在接种疫苗的人群中可以发现高感染率、高住院率和高死亡率的全球趋势。**
+#### 板块4–中共病毒
 
-7 月份[报道](https://www.lifesitenews.com/news/uk-govt-official-revises-previous-statement-asserts-only-60-of-covid-hospitalizations-are-of-the-unvaccinated)，英国 40% 的 COVID-19 住院患者是“完全接种疫苗”的。 最近，正如威斯康星州公共卫生部的美国共和党参议员罗恩·约翰逊所[强调](https://fb.watch/8qcN_XZQZy/)的那样，英国 63% 的 Delta 变异死亡病例都接种了疫苗。
+武汉和美国科学家（Peter Daszak在2018年向美国国防高级研究设计局提交拨款计划）曾计划制造新型冠状病毒，佐证中共一直是按计划有操作准备生化战。
 
-此外，以色列最近几个月因 COVID 病例和接种疫苗的住院率飙升而成为头条新闻。 截至 8 月初，耶路撒冷赫尔佐格医院院长科比·哈维夫( Kobi Haviv) 博士在以色列第 13 频道指出，以色列“大多数人口”都接种了疫苗，他看到“85-90% 的住院患者”都“完全接种了疫苗”。
+***编辑：【英国伦敦喜庄园编辑部】***
 
-**这种与高疫苗接种率相关的病例上升现象已成为普遍趋势，伴随着疾病（或伴随）死亡率的上升，**如上所示。
+*听写：call me uncle | 校对：乐禧禧 | PAGE：彼岸花*
 
-辉瑞公司在 9 月 17 日提交给美国食品和药物管理局 (FDA) 的一份简报文件中透露了这种相关性，辉瑞公司本身也承认了这种相关性。简报包括制药巨头自己的一项研究报告，表明注射后感染率较高 ，相当于注射接受者变得更容易感染 COVID-19。
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
 
-此外，彼得·麦卡洛 (Peter McCullough) 博士在 8 月的一项预印本研究中报告说，“与未接种疫苗的人相比，已接种疫苗人的鼻孔中携带的 COVID-19 病毒载量是其 251 倍。”
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
 
-“由于感染症状轻微，疫苗使得接种疫苗的人携带异常高的病毒载量，但不会一开始就生病，这有可能使他们转化为症状前的超级传播者，”两本主要[医学期刊](https://www.ajconline.org/)的编辑麦卡洛写道。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-121.png)
 
-他继续[推测](https://www.lifesitenews.com/news/dr-peter-mccullough-tells-rfk-jr-the-vaccines-are-failing/)，这可能是许多地方，即使群体免疫水平很高，并接种疫苗率很高，但却出现大规模“突破性爆发”的原因。
 
-**评论：**
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**人们应该相信科学，真实的科学，而不是被编篡的“科学”。希望这些无声的科学数据震醒还蒙在“伪科学”谎言中的民众！**
 
-（文章仅代表作者观点，与GNEWS无关）
+编辑：【英国伦敦喜庄园编辑部】
 
-**素材链接**：**[lifesitenews.com](https://www.lifesitenews.com/news/brief-video-illustrates-dramatic-spikes-in-covid-19-deaths-following-jabs-in-40-nations/)**
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip190.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
