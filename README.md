@@ -15,121 +15,121 @@
 
 ---
 
-### [秘翻在线：美军已在台湾秘密训练至少一年](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
+### [欧洲议会通过决议，关切台海等中共国议题](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [问题的根本不是习近平，而是共产主义](/content/gnews/2/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [格芯撤离成都之谜：爆料革命背后发力](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [作为一家上市公司，脸书必须不能对其投资者撒谎，甚至隐瞒重要信息](/content/gnews/3/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [疫苗灾难将导致人类大混乱](/content/gnews/4/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [我这个写作菜鸟是如何开始动笔的](/content/gnews/5/README.md)
+### [大英霸权：全球主义](/content/gnews/3/README.md)
  ` 纽约香草山MOS03`
 
-### [一艘美军核潜艇在南中国海国际水域潜航时撞上不明物体](/content/gnews/6/README.md)
+### [秘翻在线：美军已在台湾秘密训练至少一年](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [奥地利绿党质疑：总理在接受腐败、贿赂调查后能否留任](/content/gnews/7/README.md)
+### [问题的根本不是习近平，而是共产主义](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [作为一家上市公司，脸书必须不能对其投资者撒谎，甚至隐瞒重要信息](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [埃隆·马斯克表示星链互联网服务不久将在全国范围内推出](/content/gnews/7/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [疫苗灾难将导致人类大混乱](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [我这个写作菜鸟是如何开始动笔的](/content/gnews/9/README.md)
+ ` 纽约香草山MOS03`
+
+### [一艘美军核潜艇在南中国海国际水域潜航时撞上不明物体](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [奥地利绿党质疑：总理在接受腐败、贿赂调查后能否留任](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [欧企计划撤出香港去他国重组业务](/content/gnews/8/README.md)
+### [欧企计划撤出香港去他国重组业务](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [墙内要闻汇编](/content/gnews/9/README.md)
+### [墙内要闻汇编](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际要闻汇编](/content/gnews/10/README.md)
+### [国际要闻汇编](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [三星预期明年上半年生产首批 3 纳米芯片](/content/gnews/11/README.md)
+### [三星预期明年上半年生产首批 3 纳米芯片](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [传奇摇滚鼓手抨击中共疫苗：救人？还是杀人？](/content/gnews/12/README.md)
+### [传奇摇滚鼓手抨击中共疫苗：救人？还是杀人？](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [辉瑞正式把黑手伸向了你的孩子](/content/gnews/13/README.md)
+### [辉瑞正式把黑手伸向了你的孩子](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国中央情报局新建任务中心应对中共国](/content/gnews/14/README.md)
+### [美国中央情报局新建任务中心应对中共国](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线:美国今年冬天会停电?](/content/gnews/15/README.md)
+### [秘翻在线:美国今年冬天会停电?](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [香港中文大学学生会宣布解散](/content/gnews/16/README.md)
+### [即将下台的NIH院长柯林斯的6宗罪](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [“十一”消费数据：后疫情消费反弹与红色宣传洗脑集中展现](/content/gnews/17/README.md)
+### [中共国 9 月末外汇储备减少 315 亿美元，单月降幅为半年之最](/content/gnews/21/README.md)
+ ` GTV新闻访谈`
+
+### [超过 20 家与虚拟币相关的企业宣布退出中共国市场](/content/gnews/22/README.md)
+ ` GTV新闻访谈`
+
+### [香港中文大学学生会宣布解散](/content/gnews/23/README.md)
+ ` GTV新闻访谈`
+
+### [“十一”消费数据：后疫情消费反弹与红色宣传洗脑集中展现](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声| 白宫国安顾问苏利文会晤杨洁篪](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [东京发生5级以上地震,交通影响仍在再继续](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声| 黑客窃取并公布了亚马逊Twitch源代码等关键数据](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [“真相工程”发布系列视频揭露中共病毒的真相](/content/gnews/21/README.md)
+### [波索比克谈中共挑衅台海：他们想把南海变成中共湖](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [傅政华出来替民营企业护航，简直是天下最大的讽刺！](/content/gnews/22/README.md)
+### [前雇员爆料辉瑞向公众隐瞒其新冠疫苗包含胚胎组织](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [喜迎喜币上市有感](/content/gnews/23/README.md)
+### [9/15郭文贵、纳瓦罗、班农直播](/content/gnews/27/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中国警察揭露维吾尔人在新疆所遭受的监禁和虐待](/content/gnews/28/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [“真相工程”发布系列视频揭露中共病毒的真相](/content/gnews/29/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [傅政华出来替民营企业护航，简直是天下最大的讽刺！](/content/gnews/30/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [喜迎喜币上市有感](/content/gnews/31/README.md)
  ` 纽约香草山MOS03`
 
-### [超过20家虚拟币相关企业退出中共国](/content/gnews/24/README.md)
- ` 纽约香草山MOS01`
-
-### [加拿大即将对12岁以下儿童接种中共病毒疫苗](/content/gnews/25/README.md)
+### [加拿大即将对12岁以下儿童接种中共病毒疫苗](/content/gnews/32/README.md)
  ` 军迷wilson`
 
-### [欧盟通过决议，必须与美国合作遏制中共威胁](/content/gnews/26/README.md)
+### [欧盟通过决议，必须与美国合作遏制中共威胁](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [与英特尔竞争加剧，AMD推出“米兰”芯片](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
-
-### [日本汽油价格已连续5周上涨，达到3年来高位](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [众议员肯·巴克:习主席准备入侵 台湾的事实正在显露](/content/gnews/29/README.md)
- ` 美国政要直译推`
-
-### [维多利亚州新增确诊病例再创纪录](/content/gnews/30/README.md)
- ` 走进澳洲`
-
-### [2021年10月07日澳喜要闻（每日更新）](/content/gnews/31/README.md)
+### [2021年10月07日澳喜要闻（每日更新）](/content/gnews/34/README.md)
  ` 澳喜农场`
 
-### [GlobalFoundries申请美国IPO](/content/gnews/32/README.md)
+### [GlobalFoundries申请美国IPO](/content/gnews/35/README.md)
  ` 象声`
 
-### [世界正在目睹由血栓引起的N-STEMI心脏病大流行](/content/gnews/33/README.md)
+### [世界正在目睹由血栓引起的N-STEMI心脏病大流行](/content/gnews/36/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共全面封杀！超20家涉币企业宣布退出中国市场](/content/gnews/34/README.md)
+### [中共全面封杀！超20家涉币企业宣布退出中国市场](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共停电的目的是打垮美元和美股](/content/gnews/35/README.md)
+### [中共停电的目的是打垮美元和美股](/content/gnews/38/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共外交部的三大重要功能](/content/gnews/36/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [有声|新任首相岸田文雄欢迎台湾 加入CPTPP](/content/gnews/37/README.md)
- ` MOSREC`
-
-### [有声|中共国的“一带一路”倡议面临越来越多参与国的反对](/content/gnews/38/README.md)
- ` MOSREC`
-
-### [有声|索罗斯继续抛售股票 将部分资本投入加密货币](/content/gnews/39/README.md)
+### [有声|新任首相岸田文雄欢迎台湾 加入CPTPP](/content/gnews/39/README.md)
  ` MOSREC`
 
 ### [各大媒体热炒布林肯对恒大的反应](/content/gnews/40/README.md)

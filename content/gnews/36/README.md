@@ -2,226 +2,35 @@
 ---
 
 
-## 中共外交部的三大重要功能
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580016/)
+## 世界正在目睹由血栓引起的N-STEMI心脏病大流行
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580068/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/51-a71ie-wzywl.jpg)
-[https://gtv.org/video/id=615f354dd2e2b817487259a1](https://gtv.org/video/id=615f354dd2e2b817487259a1)
+**据《新闻目标》作者：Lance D. Johnson，2021年10月5日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/atsxf-zwqgf.jpg)图片来源：《新闻目标》
+某种类型的心脏病发作在全世界范围内呈上升趋势。苏格兰的医护人员已经看到一种可能致命的心脏病发作类型急剧上升，称为N-STEMI心脏病发作。这种情况是部分动脉阻塞的结果，切断了对心脏的血液供应。与普通STEMI心脏病发作相比，它的组织损伤较小，但同样可能是致命的。将支架放入患者的动脉可以挽救他们的生命。虽然STEMI发作的案例多年来一直保持稳定，每年约有750例，但最近N-STEMI的案例激增。来自克莱德班克的金禧国家医院的医生们记录了夏季N-STEMI心脏病发作持续上升25%的情况。这家医院通常每月接收240名N-STEMI患者，但在今年5月、6月和7月，N-STEMI心脏病发作患者的数量攀升至每月超过300人。
 
-**郭文贵
-Miles Guo**
+**锁定人口并剥夺他们的生计会造成严重的副作用**
 
-外交部代表共产党
-El Ministerio de Relaciones Exteriores representa al Partido Comunista
+心脏病人从全国卫生服务网的各个地方涌入金禧国家医院，从NHS大格拉斯哥，到克莱德、邓弗里斯和加洛韦，再到艾尔郡和阿兰、福斯谷和高地。在这个夏天，医院不得不将其心脏科的床位数量增加44%，因为一线医护人员要应对心脏病患者的需求增加。
 
-代表任何政府发言
-Enuncia en nombre del cualquier gobierno
+医生们正试图确定为什么N-STEMI患者数量会有如此急剧的上升。在封锁期间，人们获得健康检查的机会较少，如果没有呼吸道症状，他们更可能远离医院。金禧国家医院的首席顾问心脏病专家米切尔·林赛（Mitchell Lindsay）说，他们找不到“任何证据”表明N-STEMI患者数量的上升是“任何延迟护理或错过治疗机会的结果”。
 
-它是个最小的功能
-Es su función más pequeña
+在前两波封锁期间，心脏病发作没有类似的上升。医生们认为，在过去两年的封锁期间，人们变得更加久坐不动，无法应对封锁带来的所有新压力。他们还认为，许多病人在封锁期间忽略了心脏病发作的症状，因为他们不想出现在医院，冒着被感染和与家人分离的风险。林赛说：“可能有五到十个原因，都有联系。”
 
-它是代表官方的立场
-Él representa a la posición oficial
+**炎症性、凝血性的Covid疫苗是导致心脏急症涌现的原因之一**
 
-国家的, 民族的
-La nación
+医生们没有提到covid-19疫苗在这次医疗事故中的作用。这些疫苗正在造成可核实的血凝块，对心血管系统造成炎症。根据研究，SARS-CoV-2尖峰蛋白破坏了人类心脏周围细胞的功能，并通过CD147受体介导的信号传导促进了微血管疾病。 (相关：心脏病专家警告说，这是covid疫苗的虚假和由注射引起的过度炎症免疫反应。)
 
-形象和对国际事件的态度
-La figura y el actitud ante los eventos internacionales
+2021年夏天，随着全国乃至全球的心血管健康状况骤降，重病患者激增。这种心脏病患者的大流行造成了医院床位的短缺，并导致急诊室的长时间延误。据报道，由于所有这些新的、由疫苗引起的公共卫生问题，导致救护车已经被堵在医院门口排队。锁定人群的血液凝固，尖峰蛋白注射，都带来严重的（预期）后果。
 
-它有一套专用的
-Tiene un conjunto especializado
+由于心理压力、生理压力和炎症被强加给人们的生活，该医院不得不在2021年进行创纪录的血管成形术手术。病人来的时候，动脉部分堵塞，需要用支架来撑开血管，以保持血液流向心脏。过去，这些病人中的许多人可以在离家较近的医院康复；然而，现在许多病人不得不留在大医院，因为小医院已经挤满了仍在努力康复的心脏病患者。
 
-这是你看到的, 还有签证
-Esto es lo que tú ves, también está la visa
+**原文连接：**[https://newstarget.com/2021-10-05-world-witnessing-pandemic-of-nstemi-heart-attacks.html](https://newstarget.com/2021-10-05-world-witnessing-pandemic-of-nstemi-heart-attacks.html)
 
-公民保护, 这是最简单的
-Esto es lo más fácil, la protección ciudadana
-
-还有两个最特殊的功能
-También hay dos funciones más especiales
-
-第一个功能
-La primera función
-
-外交部是真正的
-El Ministerio de Relaciones Exteriores es realmente
-
-一个国家对外的
-El departamento de inteligencia legal
-
-合法的情报部
-De un país
-
-你不要说中共国
-No digas el Partido Comunista de China
-
-美国派出的情报人员
-Estados Unidos ha enviado la mayor cantidad de
-
-到大陆是最多的
-Personal de inteligencia a China
-
-一个北京
-Uno a Beijing
-
-一个香港, 加一起将近一万人
-Uno a Hong Kong, sumando todo esto casi son 10 mil de personas
-
-最重要的东西就是情报
-El asunto más importante son las informaciones
-
-合法的情报
-Informaciones legales
-
-所以它有武官呐
-Por eso tiene oficiales militares
-
-参赞呐, 文化参赞呐
-Consejero, Consejero Cultural
-
-都是假的
-Son falsos
-
-全都是情报, 都是情报
-Todo son informaciones
-
-这是明面的
-Esto es lo superficial
-
-更有一个隐形的
-Hay uno que es invisible
-
-它有一个按(体制)
-Tiene un sistema
-
-叫什么武官呐
-Lo que llaman oficiales militares
-
-安全官呐
-Oficial de seguridad
-
-看上去是表面的
-Son superficiales
-
-事实上全部都是绑架
-De hecho, todo son secuestros
-
-抓人, 杀人, 合法的杀手
-Arrestros, matanza y asesinos legales
-
-哪国都有
-En cualquier país lo hay
-
-没有一个国家没有的
-No hay ninguno que no haya
-
-开启者是美国和英国
-El iniciador fue EE. UU y Reino Unido
-
-所以大使馆就是
-Por eso la embajada
-
-代表国在国土
-Representa el país
-
-大使馆的土(地)
-La tierra de la embajada
-
-是跟国家兑换来的
-Es intercambiado por el país
-
-这个国土
-Este país
-
-这个土地上
-En esta tierra
-
-就是我的国家的国土
-Lo que es la tierra de mi país
-
-它就是战争
-Es una guerra
-
-它就是代表国家意志的
-Representa la voluntad del país
-
-第三个大家可能还不知道的
-El tercero, tal vez ustedes no lo saben
-
-所有的黑社会
-Toda la delincuencia organizada
-
-在这个国家的黑社会
-La delincuencia organizada de este país
-
-到别的国家都是白社会
-Al pasar para otros países son delitos de guante blanco
-
-走私、毒品、绑架
-Contrabando, drogas, secuestro
-
-履行外交权力
-Ejercer el poder diplomático
-
-把这个人怎么弄回去
-Cómo hacer para enviar a esta persona
-
-你只要进了大使馆了
-Si tan sólo entras a la embajada
-
-你不能动了
-No podrás moverte
-
-就像那个瞎子
-Así como ese ciego
-
-叫什么陈什么成一样
-Llamado tal Chen o Cheng
-
-它就玩这个游戏嘛
-Él se divierte con este tipo de juego
-
-就是反正到美国是
-De todos modos llegar a EE. UU es
-
-跟那个当年民主民运
-Al igual que el movimiento democrático de aquel momento
-
-我说过林强抓了以后
-Yo dije que Lin qiang luego de ser arrestado
-
-送到机场说再见了林强
-Cuando lo llevamos hasta el aeropuerto y nos despedimos de él
-
-去美国吃牛排啰, 就是
-Vaya a comer bistec en EE. UU
-
-因为美国人把他送走
-Porque si los estadounidenses lo enviaron lejos
-
-你是不能碰他
-No lo puedes tocar
-
-这叫外交包, 外交飞机
-A esto lo llamamos paquete diplomático, avión diplomático
-
-这是合法的
-Esto es legal
-
-黑社会变白社会
-La delincuencia organizada es convertida en delitos de guante blanco
-
-——————————————————
-
-**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1445260353701511171?s=24](https://twitter.com/se1y7cblljselva/status/1445260353701511171?s=24)
-
-西听校: 洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 文霙
-字幕+视频制作: 洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 :洛杉矶盘古农场 – 彩虹Rainbow
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

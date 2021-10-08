@@ -2,39 +2,49 @@
 ---
 
 
-## 奥地利绿党质疑：总理在接受腐败、贿赂调查后能否留任
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1580490/)
+## 埃隆·马斯克表示星链互联网服务不久将在全国范围内推出
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1580542/)
 
-#### 【**雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GettyImages-1234974387-1320x905-1.jpg)
-图片来源：politico.eu
+据《混搭网》迈克尔·坎（Michael Kan）2021 年 10 月 7 日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-2.png)图片来源于网络
+SpaceX首席执行官埃隆·马斯克（Elon Musk）表示，卫星互联网服务星链将于本月晚些时候在全国范围内推出。
 
-整理报道：小红帽
+马斯克是在他之前提到星链将于10月退出测试阶段后发表上述声明的。周四，一位推特用户询问这对美国消费者，特别是南方消费者意味着什么？该用户写道：“星链测试版将于本月结束，如前所述，我们会看到更多的南方州（路易斯安那州、德克萨斯州等）推出吗？”。
 
-在检察官宣布奥地利领导人将接受调查后，奥地利绿党副总理维尔纳·科格勒(Werner Kogler)质疑，总理塞巴斯蒂安·库尔茨（Sebastian Kurz）能否留任。
 
-在周四的一份声明中，科格勒表示，他们无法与由库尔茨领导的联盟伙伴恢复“照常工作”。
 
-科格勒在一份声明中说：“事实必须得到充分证实……在这种情况下，总理的行动能力受到质疑。”他呼吁，与库尔茨涉嫌参与腐败和贿赂有关的问题在回到议程之前必须“完全澄清”。
+> Starlink beta is ending this month as stated, will we see more of the southern states (Louisiana, Texas, etc.) roll outs?
+> — JC\_Comrade (@jc\_comrade) [October 7, 2021](https://twitter.com/jc_comrade/status/1446108729816977424?ref_src=twsrc%5Etfw)
 
-周三，经济和腐败检察官办公室 (WKStA) 宣布，以涉嫌违反信托、贿赂和腐败为由，对库尔茨和其他九人展开调查。
 
-检察官办公室声称，财政部的资金在2016年至2018年期间被一家投票机构用于支付“出于政党政治动机的、有时被操纵的调查”。
+*埃隆·马斯克 @elonmusk*
+*FSD Beta 10.2 将于周五午夜向大约 1000 名安全评分为 100/100 的业主推出。*
+*在此之后，发布将持续数天，以查看进展情况。*
+*如果这看起来不错，测试版将逐渐开始推广到 99 分及以下。*
+*2021年10月7日*
+ 
+*JC\_同志 @jc\_comrade*
+*回复 @elonmusk Starlink 测试版将于本月结束，我们会看到更多的南部各州（路易斯安那州、德克萨斯州等）推出吗？*
+*2021年10月7日*
+ 
+*埃隆·马斯克 @elonmusk*
+*回复 @jc\_comrade 月底应该会全国推广。 注意，仍受同一地区用户高峰数量的限制。*
+*随着更多卫星的发射，这种情况将有所改善。*
+*2021年10月7日*
+作为回应，马斯克在推特上写道：“应该在本月底在全国范围内推出。注意，仍受同一区域内用户峰值数量的限制。随着更多卫星的发射，这将有所改善。”
 
-该机构的调查随后被发表在一家奥地利日报的社论部分和同一媒体集团的其他媒体上。由沃尔夫冈·费尔纳 (Wolfgang Fellner) 拥有的集团驳回了这些指控。
+该声明表明，SpaceX正准备向美国各地的用户发送更多的星链终端。然而，如果你居住的地区已经满是现有的星链用户，你仍然需要等待，直到该公司能够将更多卫星发射到轨道上，以创造更多的网络容量。目前为全球超过10万 名用户提供服务。
 
-这项调查是在突击搜查属于库尔茨保守派人民党 (OVP) 的办公室后宣布的。这次突击检查在预料之中，保守派人民党早就暗示不会发现任何东西。
+最大的问题是SpaceX如何定义全国范围。星链已经服务于美国全国大多数州。但速度测试（Speedtest）背后的奥克拉 （Ookla）公司的数据表明，星链的覆盖范围仍然存在很大差距。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+在后续推文中，马斯克补充道：“星链专为中低人口密度地区而设计，这意味着我们可以在某些地区快速达到最大用户数。请提前注册以确保获得一个位置。随着更多卫星的推出，SpaceX将能够提供更多服务。”
 
-**参考新闻：**[Austrian Greens question chancellor’s ability to remain in office after he is placed under investigation for corruption, bribery — RT World News](https://www.rt.com/news/536829-austria-kurz-corruption-probe-greens/)
+感兴趣的用户可以在该公司的官方网站上为星链下99美元一份的预购订单。然而，这项服务已经有超过50万名用户注册试用星链。因此，星链官网在某些情况下会说，这项服务要到2022年甚至2023年才能提供，这取决于不同的地区。
 
-***编辑：小红帽 /翼族
-发布：小红帽***
+为了吸引更多的客户，SpaceX正准备用一种更易于制造的新版本来提高星链碟形终端的生产。这些新碟形终端预计将在今年晚些时候上市。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+【本文仅代表作者个人观点，与Gnews无关】
+
+原文链接：[https://mashable.com/article/spacex-starlink-nationwide-rollout](https://mashable.com/article/spacex-starlink-nationwide-rollout)
+
+翻译：烟波浩淼 |校对：雨山溪桥客 |编辑&发布：黎明的光芒

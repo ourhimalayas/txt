@@ -2,21 +2,18 @@
 ---
 
 
-## 秘翻在线:美国今年冬天会停电?
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1580433/)
+## 三星预期明年上半年生产首批 3 纳米芯片
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1580459/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16-96625-8.jpg)
-图片:网路
+#### 撰稿：坤霆/萌萌的朋克
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-38.jpg)图片来源：网络截图
+据 gsmarena.com 10月8日报道，在一年一度的三星代工论坛上，三星铸造业务的总裁兼负责人Choi Si-young谈到了三星制造3纳米和2纳米芯片的路线图。
 
-据《零对冲》引述《彭博社》的报导，在亚洲和欧洲蔓延的能源危机可能导致美国电力短缺和停电 。 Xcoal 能源与资源有限责任公司(Xcoal Energy & Resources LLC. )首席执行官厄尼•斯拉舍( Ernie Thrasher) 告诉能源研究公司 IHS Markit，今年秋季/冬季，23% 的公用事业公司被迫从天然气转向燃烧更多煤炭。 “电力公司无法提供充足的燃料满足客户需求，可能不得不在今年冬天实施停电。”
+他预计将在2022年上半年开始为客户生产第一批3纳米芯片。三星3 纳米芯片将采用环绕栅极场效应晶体管（GAA）技术，预计性能将提高30%，且能耗低一半，而占用的空间比5纳米芯片少35%。
 
-**为了绿色能源而放弃石化燃料是一场灾难**
+三星计划在2025年开始大规模生产2纳米芯片。三星和苹果（由三星、高通和台积电制造）的当前一代智能手机是由基于5纳米制程的SoC芯片驱动。
 
-在亚洲和欧洲，绿色能源转型事实上需要几十年而不是几年的时间，为了不可靠的绿色能源转型而放弃石化燃料是一场灾难。天然气、煤炭和石油价格都在飙升，在天气转凉之前，由于两大洲的能源库存量远低于未来的季节性需求，因此都争夺石化燃料的供应。
+该公司透露，2纳米制程的芯片正处于早期开发阶段，将使用GAA和多桥通道FET技术，该技术也在开发中。
 
-美国多年来为了减少碳排放量转向绿色能源而减少矿山的生产。在过去的三年半，矿工数量也逐渐减少，要提高煤炭产量成为一个极具挑战性的任务，以目前美国的煤炭供应量可能无法满足需求。
-
-“整个供应链超出了它的极限，” 斯拉舍说。”对在美国的人来说，这将是一个充满挑战的冬天。”复盖北卡罗来纳州和南卡罗来纳州客户的公用事业公司杜克能源公司(Duke Energy Corp.’s) 的皮埃蒙特(Piedmont)天然气部门警告称，由于天然气价格提高和产量减少，今年冬天的电费势必上涨。
-
-消息来源:[Energy Crisis May Unleash Winter Blackouts Across US, Insider Warns](http://Energy%20Crisis%20May%20Unleash%20Winter%20Blackouts%20Across%20US,%20Insider%20Warns)
+原文链接：[Samsung outlines its chipmaking roadmap, expects first 3nm chips in H1 2022](https://www.gsmarena.com/samsung_outlines_its_chipmaking_roadmap_expects_first_3nm_chips_in_h1_2022-news-51325.php)

@@ -2,31 +2,166 @@
 ---
 
 
-## 有声|中共国的“一带一路”倡议面临越来越多参与国的反对
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1579981/)
+## 中共停电的目的是打垮美元和美股
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580019/)
 
-配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/aii18-iytb4.jpg)
+[https://gtv.org/video/id=615f36a5d2e2b81748725a0d](https://gtv.org/video/id=615f36a5d2e2b81748725a0d)
 
-据[零对冲](https://www.zerohedge.com/geopolitical/chinas-belt-and-road-faces-growing-opposition-participating-countries-debts-mount)10月5日报道，威廉和玛丽全球研究所研究实验室AidData最近的一项研究显示，由于参与国与中共国项目有关的债务不断增加，中共国的“一带一路”倡议正面临着参与国越来越多的反对。根据AidData的报告，42个低收入和中等收入国家对中共国的公共债务风险超过其国内生产总值（GDP）的10%。
+**郭文贵
+Miles Guo**
 
-作为中国共产党全球扩张和债务陷阱外交的工具，“一带一路”向发展中国家提供用于建设基础设施的巨额贷款。参见项目包括开发道路、港口、发电厂、矿山、电信或银行机构。这些往往无法偿还的贷款将迫使这些国家用货物或土地来偿还中共国。
+记住啊
+Recuerden
 
-该研究分析了过去18年来中国在超过165个国家支持的13427个项目，这些项目的总价值达到了8430亿美元。其中，35%的“一带一路”项目涉及执行问题，如腐败丑闻、违反劳工法、环境危害和公众抗议。
+咱是有时间的
+Nosotros tenemos tiempo
 
-近年来，参与国也出现了许多暂停和取消的情况。越来越多的中低收入国家的政策制定者因为项目定价过高、腐败和债务可持续性问题而放弃参与。
+咱不是没时间, 咱有时间的
+No es que no lo tengamos, si tenemos
 
-这些参与国都希望通过这些项目发展经济，但是太多的例证显示，非但没有使国家变得繁荣，反而深陷债务危机，在政治经济上被中共所控制。
+这不会
+Esto no…
 
-文字版原文：[中共国的“一带一路”倡议面临越来越多参与国的反对](https://gnews.org/zh-hans/1577795/)
+如果2025年灭不了共的话
+Si en el 2025 no podemos derribar al Partido Comunista
 
-音频处理：喜山必胜Maverick
+七哥也不会再去灭共了
+Entonces no lo haré más
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+你们也不会再看到七哥, 真的
+Tampoco me verán más, estoy hablando en serio
+
+这个什么事都可能发生
+Puede suceder cualquier cosa
+
+我不会再
+No seguiré
+
+2025年如果是共产党还存在的话
+Si en 2025 el Partido Comunista todavía existe
+
+你们不会再看到七哥
+No me verán más
+
+但是我是不会的
+Pero esto no sucederá
+
+2025年绝对是
+En el año 2025 es definitivamente
+我是2015年
+En el año 2015
+
+我跟刘延平联系, 国内的人跟我联系, 我都说过
+Me contacté con Liu Yanping, la persona que estaba en China se comunicó conmigo y yo dije
+
+我等你们十年, 我都等死你们
+Los esperaré diez años, hasta la muerte los esperaré
+
+不是我今天说的
+No lo dije hoy
+
+我不相信共产党能过2025年
+Yo no creo que el Partido Comunista pueda pasar el año 2025
+
+这个是有时间限制的
+Esto habrá un tiempo limitado
+
+另外一个, 就刚才说这个共产党的停电
+Otra cosa, lo que estaba hablando hace rato sobre el apagón del Partido Comunista
+
+是不是跟世界经济
+Si tiene relación con la economía mundial
+
+为啥我说这个世界经济会跟这个共产党停电有关系
+Por qué digo entre ellos tienen relación
+
+大家没有
+Ustedes
+
+昨天你那个数里边没算
+No contaron los datos de ayer
+
+就你那些都是所谓的官方统计数据
+Los supuesto datos oficiales que tú dices
+
+你绝对要记住
+Debes recordar
+
+七哥从一开始爆料就说
+Yo desde el principio del Movimiento de Denunciantes dije
+
+如果你相信了任何一个共产党对着镜头和对着人
+Si crees en cualquier persona del Partido Comunista que habla frente a la cámara y a las personas
+
+说出的话和公开的表格和数据
+Acerca de los formularios y los datos públicos
+
+那你就是天下最愚蠢的傻子
+Entonces eres el tonto más estúpido del mundo
+
+共产党的那些, 所有的, 现在今天干的事情
+Todas las cosas que ha hecho y que hizo hoy en día el Partido Comunista
+
+他只有两个目标大家没搞明白
+Simplemente tiene dos objetivos que ustedes no lo han entendido todavía
+
+一切都是为了干倒美元, 干倒欧元而干的
+Todo es para destrozar al dólar estadounidense y el euro
+
+共产党所有干的事情就是杀敌一千
+Todo lo que ha hecho el Partido Comunista
+
+自伤一万, 我也得干
+Por matar a mil enemigos pueden sacrificar diez mil de los suyos
+
+我断我九指
+Me corto nueve dedos
+
+我断你一指
+Corto uno del tuyo
+
+我也得干
+Aún así lo tengo que hacer
+
+我都变成九指妖了, 我也认了
+Y si me convierto en Sara Wei, lo asumiré
+
+所有的现在想了美国和中美之间
+Toda la relación entre EE. UU y China
+
+过去5000亿的逆差
+El déficit de los últimos 500 mil millones
+
+5000亿的逆差到最后变成了几百亿的逆差
+El déficit de los 500 mil millones finalmente se convirtió en un déficit de decenas de miles de millones
+
+但几千亿美元的贸易
+Pero cientos de miles de millones de dólares en comercio
+
+他绝对能把美国股票给打垮了
+Él seguramente puede derribar a las acciones de EE. UU
+
+这个不是假的
+Esto no es falso
+
+真能打垮, 今天中共国就这么停电再停六个月
+Realmente puede destrozarlo, hoy, el PCCh si viene otro apagón de seis meses
+
+美国的股票市场经济一蹋糊涂
+La economía del mercado de valores de EE. UU será un desastre
+
+**——————————————————**
+
+**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1445260826655424515?s=24](https://twitter.com/se1y7cblljselva/status/1445260826655424515?s=24)
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 :洛杉矶盘古农场–彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

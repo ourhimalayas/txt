@@ -2,27 +2,28 @@
 ---
 
 
-## 超过20家虚拟币相关企业退出中共国
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1580323/)
+## “十一”消费数据：后疫情消费反弹与红色宣传洗脑集中展现
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1580413/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1083.jpg)[图片来源](http://www.chinanews.com/gn/2021/10-07/9581163.shtml)
+2021年“十一”假期消费数据出炉，国内游达5.15亿人次，全国预计共发送旅客4.03亿人次，北京、长沙等地成为红色旅游热门目的。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/text-SC-6.png)
-文章仅代表作者本人观点，与Gnews无关
+据中共文化和旅游部消息，10月1日至7日，全国国内旅游出游5.15亿人次，按可比口径同比减少1.5%，按可比口径恢复至疫前同期的70.1%。实现国内旅游收入3890.61亿元，同比减少4.7%，恢复至疫前同期的59.9%。
 
-视频参看： 2021.10.07晚GTV新闻访谈
+据中共交通运输部消息，10月1日至7日，全国预计共发送旅客4.03亿人次，日均5750万人次，比2019年同期（7天假期）日均下降33.9%，比2020年同期（中秋“国庆”8天假期）日均下降7.5%。其中，铁路预计发送旅客8307.3万人次，日均1186.8万人次；公路预计发送旅客3.04亿人次，日均4340万人次；水路预计发送旅客631.2万人次，日均90.2万人次；民航预计发送旅客931万人次，日均133万人次。
 
-[https://gtv.org/broadcast/watch/615f907a304e992109b15fa2](https://gtv.org/broadcast/watch/615f907a304e992109b15fa2)
+中共加快对00后年轻人洗脑宣传，看《长津湖》、红色旅游成为今年“十一”旅游市场的新亮点。飞猪平台上，“00后”“十一”红色旅游订单量同比涨超80%。长沙、湘潭、南昌、遵义、延安、嘉兴、井冈山等是红色旅游热门目的地。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+信息来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+[http://www.chinanews.com/gn/2021/10-07/9581163.shtml](http://www.chinanews.com/gn/2021/10-07/9581163.shtml)
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[http://www.chinanews.com/gn/2021/10-07/9581159.shtml](http://www.chinanews.com/gn/2021/10-07/9581159.shtml)
+
+[http://news.enorth.com.cn/system/2021/10/08/051900955.shtml](http://news.enorth.com.cn/system/2021/10/08/051900955.shtml)
+
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

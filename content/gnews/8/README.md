@@ -2,33 +2,139 @@
 ---
 
 
-## 欧企计划撤出香港去他国重组业务
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1580478/)
+## 疫苗灾难将导致人类大混乱
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580517/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片2-8.png)
-（图片来自网络）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-14.jpg)https://gtv.org/video/id=615fc2b2d2e2b81748729010
+这是一个担心, 另外一个让我很担心
+Esto es una preocupación, hay otro que me hace preocupar mucho
 
-据《法国国际广播电台》10月7日报道，香港欧洲商务协会10月6日表示，多家欧洲公司正在考虑撤出香港，去其他国家重组业务。据称，该商会给出的理由是：香港在防疫政策上使用的是中共的“清零”战略，这令许多公司举步维艰。
+就是货币金融
+Es la moneda financiera
 
-代表法国、德国和西班牙等国企业的香港欧洲商会表示，几乎所有的其他国家都已经放弃使用“清零”战略，但是香港仍在沿用这一严格的防疫措施，因此，许多欧洲公司都在讨论从香港撤离员工的问题。
+不管你有多少钱
+No importa cuánto dinero tengas
 
-香港欧洲商务协会主席弗雷德里克‧戈洛布（Frederik Gollob）6日在接受媒体采访时表示，在欧洲和香港的大多数企业的董事会上，撤离香港是一个讨论的主题。戈洛布还表示，即使不是完全撤出香港，许多欧洲企业也正在考虑至少将部分业务重组到其他亚洲国家。
+你拿着, 你上哪取钱去
+En dónde puedes sacar efectivo
 
-今年8月，香港欧洲商会曾罕见地向香港特首林郑月娥发出公开信，警告说，香港严厉的防疫隔离措施已造成香港居民无限期地受困于境内，恐威胁到香港的国际商业中心地位。戈洛布在那封信中指出，“港府最近对入境旅客采取更严格的防疫措施，不仅不合比例，而且是一个重大的退步。”
+谁在银行来运营银行
+Quién estará en el banco para su funcionamiento
 
-然而，林郑月娥日前却公开回应称，香港与中共国大陆的关系比那些帮助巩固香港作为亚洲金融中心地位的国际企业更重要，也比香港同全球旅游业的联系更重要。
+谁来管理银行的信用卡刷卡
+Quién administrará las tarjetas de crédito del banco
 
-在10月6日的年度施政报告中，林郑月娥虽然轻描淡写地提到了国际商界对跨境旅行的担忧，但她几乎没有提出任何针对这种情况的解决方案。
+就说你有钱
+Si dices que tienes dinero
 
-目前，从海外返港的居民，即使已完全接种中共病毒疫苗，也必须在酒店进行21天的隔离。
+就说你不需要用虚拟货币
+Y no necesitas usar la moneda virtual
 
-在今年早些时候，香港美国商会发布的一项调查显示，有超过40%的美国企业正在考虑撤离香港。
+你要取现的时候怎么取
+Cómo haces para sacar el efectivo
 
-虽说对于欧企计划撤出香港一事，香港欧洲商务协会公开给出的理由仅仅只是防疫，但事实恐怕远非如此。自国安恶法颁布后，香港的营商环境已急剧恶化，“一国一制”之下，在港外企面临着多重危机，甚至极有可能日后成为中共的“绑票”。尽快撤离香港是明智的选择，香港已非昨日的“东方明珠”，它已经成了中共极权统治下的大“集中营”。
+再一个, 如果停电了
+Y lo otro, si viene el apagón
 
-值得一提的是，港府现在仍采用与中共保持一致的严苛防疫措施，即便已经完全接种了疫苗也要隔离21天。这也从另一个方面证明，释放中共病毒的邪恶中共心知肚明：疫苗根本没用。
+电厂谁再干电话儿, 谁在管理银行
+Quién hará la llamada telefónica en la central eléctrica, quién estará a cargo del banco
 
-注：本文仅代表作者观点
+谁再确定你信用卡不被偷走
+Quién confirmará que tu tarjeta de crédito no será robada
 
-**新闻链接**：[https://twitter.com/RFI\_Cn/status/1446214521782091792](https://twitter.com/RFI_Cn/status/1446214521782091792)
+你家被抢劫的时候谁来给你报案
+Quién te informará cuándo te atracarán en la casa
+
+那警察
+Y los policías
+
+你所有能想像的下一步
+Todo lo que se te puede ocurrir en el siguiente paso
+
+都有可能是脑梗, 心梗, 肛梗, 眼梗, 你怎么办
+Puede ser infarto cerebral, infarto de miocardio, infarto anal e infarto ocular, cómo harás
+
+你现在的货流物流都出问题了
+Si hay problemas con la logística de carga
+
+上哪儿去找超市买东西
+A dónde conseguirás mercado para comprar cosas
+
+你喝(水)上哪, 在城市里边一没水你就傻了
+A dónde obtendrás agua si quieres tomarlo, si en la ciudad no hay ni una gota de agua, te quedarás estupefacto
+
+你能坚持五天吗
+?Puedes resistir cinco días?
+
+你不洗澡可以, 你能活下去吗
+Puedes no ba?arte pero ?puedes sobrevivir?
+
+然后再没电, 没电能有水吗
+Luego viene el apagón, si no hay electricidad, ?habrá agua?
+
+有手机
+Tienes celular
+
+你手机都没电了
+Pero sin batería
+
+你怎么用啊
+Cómo lo utilizarás
+
+它不是开玩笑的啊
+Esto no es una broma
+
+而且这个打疫苗让人更恐惧的是它在极短的时间内
+Además, lo más temeroso de inyectarse la vacuna es que en un tiempo muy corto
+
+给这几十亿人打了疫苗
+Se pudo vacunar miles de millones de personas
+
+那爆发期, 基本在极短的时间内爆发
+El período del brote básicamente estalló en un período de tiempo muy corto
+
+你想过这个问题没有, 兄弟姊妹们
+?Has pensado este problema? Hermanos y hermanas
+
+我不知道哪国政府现在真正研究
+No sé cuál gobierno del país realmente está investigando
+
+我希望是看这直播的各国政府都能意识到
+Yo deseo para el gobierno de los países que están viendo esta transmisión en vivo pueden darse cuenta
+
+如果有并发症的时候
+Cuando haya complicaciones
+
+37亿35亿咱就按万分比
+3.7 mil millones, 3.5 mil millones, tomemos diez mil puntos
+
+一万个(里)
+Dentro de diez mil
+
+有一个37亿是多少个
+?Cuántos son 3.7 mil millones?
+
+你想想它要同时并发, 这个人类不大混乱了吗
+Piensa si al mismo tiempo todos tienen complicaciones, ?no será un gran caos de la humanidad?
+
+你这里边儿, 出来几个王岐山
+Dentro de esto, aparece varios Wang Qishan,
+
+出来几个陈峰, 希特勒
+Chen Feng, Hitler
+
+你这个社会是什么样的
+Cómo será esta sociedad
+
+原视频日期：10/05/2021
+原视频网址： https://twitter.com/se1y7cblljselva/status/1445262169352773633?s=24
+视频时间段：0:00-2:00
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

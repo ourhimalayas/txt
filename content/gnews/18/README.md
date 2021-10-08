@@ -2,44 +2,20 @@
 ---
 
 
-## 有声| 白宫国安顾问苏利文会晤杨洁篪
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1580412/)
+## 美国中央情报局新建任务中心应对中共国
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1580442/)
 
-配音：香草山美食部-玫瑰园
+#### 翻译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-37.jpg)图片来源：网络截图
+美国合众国际社10月7日报道，中央情报局（CIA)周四宣布建立两个新的任务中心作为部分战略以应对21世纪的威胁，包括气候变化，对美国操作员的威胁并增加与中共国的“对抗”。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+CIA 主任威廉·博恩在一份声明中详述了该任务中心，称北京政府是美国要面对的最重要的地缘威胁。其中一个中心将只聚焦于中共国的威胁，另一个名为跨国技术任务中心，将检测和寻找有助于应对全球变暖的技术并保护CIA全球操作员们能更好地检测到威胁性情报。
 
+美国已经认识到中共国是一个“关键竞争者”，这个公告说两个任务中心来自过去的春季CIA开始进行的一系列战略评估。
 
+在周三CIA人员的评论中，博恩说中共国中心将致力于“加强我们的收集工作”以监测中共国增加的影响力。他提到由于中共国巨大的经济体量和向全球的扩展，北京是一个独特的和不断增加的威胁。
 
+博恩说他将每周与各中心的领导者和其他CIA领导者会面。
 
-
-
-
-10月6日，美国白宫国家安全顾问苏利文，在瑞士苏黎世与中共中央外事工作委员会办公室主任杨洁篪进行了会晤。
-
-苏利文在会谈中向杨洁篪表示，美方有兴趣与中共合作来应对国际间的挑战，及管理美中关系的风险。 同时也表达对中共在人权问题上，在新疆、香港、南海，以及在对台湾的有关行动上的关切。 称美国在加强本身国力、与盟友及合作伙伴密切合作的同时，将继续与中共进行高层接触，以确保双方间保持负责任的竞争。
-
-
-
-**文字版原文：[白宫国安顾问苏利文会晤杨洁篪](https://gnews.org/zh-hans/1579206/)**
-
-
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+新闻来源： [CIA creating mission centers to focus on ‘adversarial’ China and technologies](https://www.upi.com/Top_News/US/2021/10/07/cia-china-climate-mission-centers/4161633609239/)

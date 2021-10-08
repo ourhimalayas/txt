@@ -2,11 +2,9 @@
 ---
 
 
-## 日本汽油价格已连续5周上涨，达到3年来高位
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1580286/)
+## 中国警察揭露维吾尔人在新疆所遭受的监禁和虐待
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1580340/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1081-1-scaled.jpg)
-（文章仅代表作者个人观点，与GNEWS无关）
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 /平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+10/05/2021 一名逃离中国的警察向CNN记者揭露，维吾尔人在新疆受到监禁和虐待；维吾尔族教师，阿卜杜瓦利·阿尤普也向CNN记者详细讲述了他在被逮捕后所遭受的虐待。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
