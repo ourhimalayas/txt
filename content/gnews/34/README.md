@@ -2,36 +2,34 @@
 ---
 
 
-## 美参院再提国债上限， 难逃金融危机寒冬
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1581557/)
+## 银河快讯：日经股指连续下跌；日本政府额外出售10亿股日本邮政股票
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1581667/)
 
-作者：云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国联邦参议院于7日通过议案，暂时为联邦政府已高达28.4兆美元的举债上限，增加4800亿美元的额度，避免在本月发生历史性债务违约的风险，并借此争取缓冲时间，寻求更长期的解决方案。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-22.png)[图片来源](https://www3.nhk.or.jp/)
+**1.****日经指****数****连续第8个交易日下跌**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-7.jpeg)
+[据NHK 10月6日报道，由于对油价上涨引起的企业盈利的担忧，日经股票平均指数与5日相比下跌超过293点，这是自2009年以来近12年来首次出现连续8个交易日的指数下跌。该指数也比上个月14日达到的今年最高水平下跌了8%以上。当日交易量为16.7382亿股。人们还继续担心美国政府可能会出现债务违约，因此出现了强烈的规避风险的行动。](https://www3.nhk.or.jp/news/html/20211006/k10013294191000.html?utm_int=all_side_business-ranking_001)
 
-此前美国财政部长叶伦警告，如果没有解决债务上限问题，财政部的现金和非常规手段很可能会在 10 月 18 日前耗尽，引发一场历史性的金融危机。
+**2.****日本政府将额外出售10亿股日本邮政股票**
 
-此议案经过数周的两党争论，以50票赞成、48票反对的结果，经参议院通过，将送交联邦众议院表决，如众议院通过议案，则会呈送白宫由拜登总统签署执行。
+[据NHK  10月6日报道，日本政府将额外出售10亿股日本邮政的股票，以筹集资金用于东日本大地震后的重建。这将使政府在日本邮政的股份降至邮政私有化法律要求的最低限度的近三分之一，预计这将是最后一次出售股份。政府目前持有日本邮政约60%的流通股，但这次将出售约27%，或约10亿股。出售的价格尚未决定，但预计收益约为9500亿日元，预计出售将在下月初完成。这次出售有望获得东日本大地震后的重建计划的4万亿日元。](https://www3.nhk.or.jp/news/html/20211006/k10013294531000.html?utm_int=news-politics_contents_list-items_012)
 
-众议院议长裴洛西稍早表示，她将把正在休会期的众议员们召集回来表决，但目前无法确定开会日期。
+**3.****日本开发以氨为燃料的发电设备**
 
-该法案如获执行，则美国联邦政府的举债上限总额将达到28.9兆美元，即便如此债台高筑，政府运作预期只能维持到12月3日。疫情对世界经济影响重大，各国政府均超量印钞、艰难维持、危机重重，今年年底，全球经济必将面临巨大考验。
+[据NHK  10月6日报道，经济产业省宣布，它将从国家基金中投资多达700亿日元，以在2030财年之前开发一种仅使用氨作为燃料的发电设施。虽然氨在燃烧时不产生二氧化碳，但它确实会排放有害的氮氧化物，这是一个问题。日本政府将向严重依赖燃煤发电的其他亚洲国家出口该技术，以帮助减少二氧化碳排放。同时，经济产业省正在与电力公司和贸易公司合作，制定作为发电燃料的氨的国际贸易规则，并加强与天然气生产国的合作，建立一个供应网络。](https://www3.nhk.or.jp/news/html/20211006/k10013295381000.html?utm_int=news-business_contents_news-main_001)
 
-(本文仅代表作者观点)
+**4.****汽油零售价格平均为每升160日元**
 
-参考链接：[美國參院允暫拉高債務上限 讓政府運作至12月初](https://www.cna.com.tw/news/firstnews/202110080045.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+[据NHK  10月6日报道，本周普通汽油的零售价格平均为每升160日元，这是连续第五周的价格上涨，比上周上涨1.3日元，是2018年10月以来近三年的最高水平。这主要是由于今年8月底飓风袭击美国南部海岸后，原油期货价格持续上涨。至于未来的前景，石油信息中心表示：“欧佩克和俄罗斯等非成员石油生产国已经决定在下个月保持产量不变，欧洲也有为冬季做准备而增加燃料库存。”](https://www3.nhk.or.jp/news/html/20211006/k10013294231000.html?utm_int=news-business_contents_list-items_010)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**5.****日本最大的劳工机构Rengo的首位女性负责人就职**
 
-新闻访谈终审：FoxRina
-编辑/校正/发稿：谐趣园
+[据共同社 10月6日报道，吉野智子成为日本最大的劳工组织Rengo有史以来第一位女性负责人。55岁的吉野来自一个主要代表日本中小型制造商的工会，她的任期为两年，接替领导日本工会联合会的小津力夫。这是自1989年Rengo成立以来，第一次由女性执掌这个拥有约700万会员的组织。吉野说：“我将通过认真听取我们成员的声音来开展我们的活动，以便我们能够创造一个即使在中共病毒蔓延的情况下人们也能继续工作而不用担心的环境。”](https://english.kyodonews.net/news/2021/10/16842d79d04f-japans-largest-labor-body-rengo-gets-1st-female-chief.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**6.****永旺的中期业绩：最高的销售额和利润**
+
+[据NHK  10月6日报道，世界上最大的零售商之一永旺报告说，截至8月的6个月的销售额超过4.3万亿日元，创下该时期的最高纪录，并高于中共病毒传播之前的水平。 永旺公布了今年3月至8月的集团财务业绩，营业收入为43,449亿日元，比去年同期增长1.7%，创下了该时期的新高。最终利润为45亿日元，与前一年超过500亿日元的亏损相比，扭亏为盈。](https://www3.nhk.or.jp/news/html/20211006/k10013295291000.html?utm_int=news-business_contents_news-main_002)
+
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：Curiosity

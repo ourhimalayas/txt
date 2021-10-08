@@ -2,38 +2,30 @@
 ---
 
 
-## 江泽民当年下令杀令谷,江绵恒和江志成将为此付出代价
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1581895/)
+## 陆军部署铁穹导弹防御系统以应对中共国威胁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1581974/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/cachedImage-3-1536x864_副本.jpg)
-据[2021-10-07 七哥回答战友们的问题：AMD将在纽约上市，背后股东是谁？中共95%肯定要打台湾的；曾家的灾难还没开始，江家一定会付出代价；新加坡的何晶非常聪明；杨洁篪已岌岌可危](https://gtv.org/video/id=615ef95d304e992109b0faaf)时间点1：36：08——
+![](https://assets.gnews.org/wp-content/uploads/2021/10/c1_2190995-13.jpg)网络图片
 
-（念战友留言）——七哥，江家会反击吗？
+陆军正在将其最新的导弹防御系统之一，即美国与以色列联合开发的铁穹系统，转移到西太平洋的关岛，以应对来自中共国的导弹威胁。
 
-哎！可以这么说吧，他反击的机会越来越渺茫了，江——如果他要是江家当年弄死令计划的儿子，弄死令计划的儿子，（对工作人员说，你让他给他联系一下，你让他直接联系他，好吧？）所以说兄弟姐妹们，你知道当年我见过风水先生，我说共产党干掉了令计划的儿子，干掉令谷以后，他们会是带来什么样的代价，他说颠倒乾坤，我说到底是江家干的，还是那个谁家干的，咱就不说吧，他说绝对是江家干的。
+陆军在一份声明中称，这次临时部署是为了响应2019财年国防授权法案中的一项规定，即要求在不晚于2021年底将铁穹系统部署到美国的一个军事行动区。
 
-我说好，我说我从来不相信你们这些风水大师们，从来不信，但是我问因为你能佐证我的正确性与不正确，我说你给我预测预测，其中就有预测一个，他说江家的孙子江志成活不长。我说为什么，他说江家这次动手干掉令谷，下的命令就是老江干的，而且江家儿子江绵恒还有他的孙子江志成都将为此付出代价，他说这就是轮回报应。
+该营队正在关岛为铁穹系统抵达演习做准备。该营是负责印太地区的所有陆军防空装备的陆军第94空中和导弹防御司令部的一部分。
 
-所以江志成这小子只谈恋爱不结婚，而且这小子生活中你见过这个人，叫毛毛，绝对他长不了，所以最后江家如何为此付出代价，就现在他看来他的机会，他越来越没有机会了，江是不行，他是个象征性的，江绵恒、江绵康、江志成在军队的势力是巨大的，但是我觉得越来越渺茫。
+声明称，该系统将在关岛的安德森空军基地进行测试，该基地是西太平洋的一个主要军事枢纽，并且在关岛进行的测试将不涉及实弹射击。
 
-（以下暂略）
+一位陆军发言人说，测试将从10月中旬到11月进行。
 
-撰稿：喜马拉雅的肉夹馍；
+新闻来源：[Army deploys Iron Dome missile defense to counter Chinese threats](https://m.washingtontimes.com/news/2021/oct/7/army-deploying-iron-dome-missile-defense-guam/?utm_source=RSS_Feed&amp;utm_medium=RSS)
 
-审核：喜马拉雅的馍夹肉；
+* * *
 
-校对：Maarago；
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+编辑：【英国伦敦喜庄园编辑部】
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

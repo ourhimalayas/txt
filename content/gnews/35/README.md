@@ -2,22 +2,34 @@
 ---
 
 
-## 学生接种疫苗后死亡！学校强烈否认
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1581504/)
+## 肾衰竭晚期患者因未接种毒针疫苗被拒绝移植手术
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1581659/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1087.png)[图片来源](https://news.yahoo.co.jp/articles/f5825bd3e47f26e22139b2a4c2baf60ca5de8b67/images/000)
-据日本“读卖新闻”10月8日报道，一些小学和高中的学生在社交媒体上发布了“接种疫苗后死亡”的信息，该信息被广泛传播，因此，学校方面接到很多抗议电话，让学校不要隐瞒，学校强烈的否定该信息的真实性。新闻称，最开始是兵库县的一名诊所医生发布相关帖子，学校要求医生修改言论内容，被拒后，该贴遭删除。
+作者：飞虹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月7日，科罗拉多州一位患有5期肾病，即肾功能衰竭最晚期的女性莱拉尼·卢塔利对媒体表示，因为她与捐赠者杰米·福格纳（Jaimee Fougner）都没有接种新冠病毒疫苗，科罗拉多州的医院拒绝为她们进行肾移植。目前，她们正在努力寻找其他医院。
 
-报道最后引用了千叶大学医院的黑川友哉医生的话，称“家长和孩子应该讨论是否接种疫苗，最好是接受之后再做决定。根据可靠的信息做出判断是很重要的，不要被不确定的言论所迷惑。”有趣的是，日本“体育报知”10月8日对该事件也进行了报道，作家乙武洋匡在推特上呼吁，呼吁内容与黑川友哉医生几乎一样。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-3.jpeg)
 
-疫苗的危害终究是掩盖不住，有识之士在说出真相，无为的媒体却在抹杀真相。有些医生是真正医者仁心，可怕的是，有些医生却在诱导孩子接种疫苗。
+卢塔利一直在器官移植等待名单中排队。8月份的时候，她还被告知接种新冠疫苗不是接受移植的先决条件。但9月底，她收到了一封来自州卫生联盟（UCHealth）的信件，告诉她相关规定被修改。卫生联盟设定30天的期限要求两人接种，否则将把她们从肾移植名单中删除。
 
-信息来源：
-1、[乙武洋匡氏、ワクチン接種後に児童死亡の誤情報拡散で訴え「不確かな話に惑わされないでほしい」](https://news.yahoo.co.jp/articles/017f7f85d6ba432dd619a81539fa15a76b62b2bd)
-2、[児童ら「接種後に死亡」と誤情報…開業医の投稿で拡散も、「隠蔽するな」学校に抗議続々](https://news.yahoo.co.jp/articles/f5825bd3e47f26e22139b2a4c2baf60ca5de8b67)
+卢塔利用“太多未知因素”暗指新冠疫苗具有危险性，福格纳因为宗教信仰选择不接种。
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+受控政府和主流媒体仅为背后利益代言，事实不被重视反被掩盖，疫苗接种的逻辑变得越来越荒谬；现代医疗科学在共产主义浸泡下，从治病救人演变为压迫与杀戮。
+
+只有真相，才能解决重重迷雾掩盖下的种种问题，才能将真正的自由还给世界，还给每一个人。
+
+(本文仅代表作者观点)
+
+参考链接：[Unvaccinated Colorado woman who was denied kidney transplant shares story on ‘Fox & Friends First’](https://www.foxnews.com/media/unvaccinated-woman-colorado-denied-kidney-transplant-hospital)
+
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

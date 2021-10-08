@@ -2,34 +2,15 @@
 ---
 
 
-## 银河快讯：岸田与普京首次日俄首脑会谈；疫情经济成为众院选举焦点
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1581696/)
+## 2021年10月8日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1581791/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-23.png)[图片来源](https://china.kyodonews.net/)
-**1.****岸田与普京举行首次日俄首脑电话会谈**
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-[据共同社 10月7日报道，日本首相岸田文雄与俄罗斯总统普京举行了首次电话会谈。两人同意基于迄今的双边共识，致力于包括北方四岛领土问题在内的和平条约缔结谈判。岸田在会谈后向媒体表示，有意优先解决四岛的归属问题，商定以1956年《日苏共同宣言》为基础加速和平条约谈判的2018年首脑共识在内，“确认了将基于迄今的各项双边共识，切实致力于谈判”。](https://tchina.kyodonews.net/news/2021/10/1958d00fe2ad.html)
+Pfizer is tightly arranging new vaccines to fight the next generation of the CCP Virus for the benefit. But Pfizer scientists admitted on camera that vaccines are not as effective as human natural immune system. Although such reports are backed up by science, they are covered up, censored online, and banned by Big Tech as dangerous misinformation, because they contradict the narratives of the media, medical establishments and big pharmaceutical companies about COVID vaccines.
 
-**2.****平息疫情恢复经济成为众院选举焦点**
+为了利益，辉瑞仍在紧凑地安排新型疫苗对抗下一代中共病毒。但辉瑞科学家在镜头上承认，疫苗并不比人天然免疫系统更有效。 尽管这类报道是有科学支撑的，但被科技巨头以危险虚假信息的理由封锁，这是因为报道与媒体、医疗机构和大制药公司对疫苗的说法相矛盾。
 
-[据共同社 10月7日报道，日本下届众院选举中，疫情对策成为最大焦点。菅义伟前政权在加快接种疫苗的同时，被动滞后应对招致疫情蔓延的印象无法消除。加上说明不足，给国民带来了不信任感。“我已向阁僚下达指示，努力做到向国民出示设想各种事态的应对措施全貌。”首相岸田文雄在10月4日就任后的记者会上如此强调。自民党总裁选举中，他主张力争确保病床和医疗人才的“零医疗难民”，以及为支援商家制定数十万亿日元规模的经济对策。](https://tchina.kyodonews.net/news/2021/10/42cebfda1dc0.html)
+[【2021年10月8日】文贵先生盖特原文](https://gettr.com/post/pdhjy5c675)
 
-**3.****东京和埼玉发生地震，五个县有28人受伤**
-
-[据读卖新闻报道，7日晚10点41分左右，千叶县西北部发生地震，震中在东京都足立区、川口市和埼玉县宫城镇，地震强度超过5级。 据日本气象厅称，震中深达75公里，地震的震级（M）估计为5.9级。 这是自2011年3月11日东日本大地震以来，10年来东京23区首次发生强度为5以上的地震。东海道新干线、JR山手线、东京地铁和其他主要线路的铁路服务被暂停。 根据国土交通省的消息，东京都高速公路在市中心被关闭，东名高速公路在厚木交流道和伊势原路口之间被关闭。 根据核监管局（NRA）的说法，任何一家核电站都没有被证实有异常情况。](https://news.yahoo.co.jp/articles/b793780b3789e5296a1e8be2f06228d1a2154396)
-
-**4.澳大利亚前总理：“全面支持台湾加入TPP**”
-
-[据每日新闻  10月7日报道，澳大利亚前总理托尼-阿博特10月7日在台北的总统府会见了台湾总统蔡英文。 澳大利亚一直在与中共国对峙。 台湾也欢迎这次会议，因为这将为台湾在与中共国竞争跨太平洋伙伴关系（TPP）成员资格时加强与澳大利亚的关系。根据总统办公室的说法，阿博特在会谈中说，他希望“所有TPP成员都支持台湾的加入”，并表示全力支持台湾的加入。 蔡英文表示感谢，并强调“在经贸合作方面，澳大利亚是一个非常重要的贸易伙伴”。](https://news.yahoo.co.jp/articles/266c085a8722f882a0b33a2f8fe0efca6841e7c1)
-
-**5.****8月商业环境指数连续第二个月下降**
-
-[据NHK  10月7日报道，内阁办公室宣布，表明经济现状的“一致指数”为91.5，连续第二个月下降，比上个月下降了2.9点，主要是由于东南亚地区的中共病毒疫情导致汽车零部件采购困难，汽车产量下降。由于宣布紧急状态，食品和饮料产品的销售也出现下降， 然而，经济被保持在之前的“显示改善”的水平上，没有变化。内阁办公室说：“虽然日本已经取消了紧急状态的宣布，但预计还需要一段时间才能解决从海外采购零部件的问题，我们将继续监测感染情况。”](https://www3.nhk.or.jp/news/html/20211007/k10013296241000.html?utm_int=news-business_contents_list-items_007)
-
-**6.“****GAFA****”****国际税收规则在谈判中最终确定**
-
-[据NHK  10月8日报道，为确保GAFA所代表的全球企业巨头被适当征税而进行的国际规则谈判正进入最后阶段。包括经济合作与发展组织（OECD）成员在内的一组国家将于8日晚间举行会议，就引入最低税率达成最终协议。新规则的重点是引入最低税率，以停止为吸引公司而降低公司税率的竞赛，并允许公司根据其商业模式对跨境服务征税。134个国家和地区已广泛同意引入至少15%的最低公司税率。](https://www3.nhk.or.jp/news/html/20211008/k10013296951000.html?utm_int=news-business_contents_list-items_001)
-
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：Curiosity
+**喜联盟Gnews编辑部**
