@@ -2,10 +2,10 @@
 ---
 
 
-## 超过 20 家与虚拟币相关的企业宣布退出中共国市场
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1580421/)
+## 中共国 9 月末外汇储备减少 315 亿美元，单月降幅为半年之最
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1580422/)
 
-作者：Andy5/文仁
+作者：文一
 
 
 
@@ -13,19 +13,17 @@
 
 
 
-【证券日报】10 月 7 日消息，9 月 24 日，中共政府金融监管机构公布最新政策，包含中国人民银行在内的十个部门再发新规整治“虚拟币炒作”，随后多家交易平台、挖矿企业、行情网站纷纷对此做出了回应。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-8.jpg)
-截至10月7日，已经有超过 20 家与虚拟币相关的企业，宣布停止为中国境内用户提供相关服务，并全面退出中国市场。继火币之后，KuCoin 近日也发布公告，针对中国大陆地区用户，将在 2021 年底之前逐步完成有序清退。
+【路透社】10 月 7 日讯：中共国央行周四公布，9 月末中共国外汇储备为 3.201 万亿美元，较 8 月末下降 315 亿美元，连续两个月下降，月降幅达 0.97%，单月降幅创 3 月以来最大。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-9.jpg)
+路透测算显示，1 至 9 月中国外汇储备累计减少159亿美元，去年同期则增加约270亿美元。中共央行同时公布，9月末黄金储备为6,264万盎司，为连续25个月保持不变。当月黄金储备对应的美元价值为环比减少45.1亿至1,091.8亿美元。
 
-中共国对虚拟货币加强管制、打压的同时，大力推行人民币数字货币国际化，充分揭示了中共对以美元为主导的金融体系的不满与挑战。
-
-中共在喜币即将上市之际发布“金融新政策”，也表明其对新中国联邦喜马拉雅金融体系的恐惧。
+据分析9月美联储紧缩预期助推美指升至一年高位，汇率折算和资产价格变动继续成为拖累外储规模下滑的主要因素。
 
 （本文仅代表作者观点）
 
 参考链接：
-1. [超过 20 家与虚拟币相关的企业宣布退出中共国市场](https://finance.sina.com.cn/tech/2021-10-07/doc-iktzscyx8346881.shtml)
-2. [超过 20 家与虚拟币相关的企业宣布退出中共国市场](https://www.kucoin.com/news/announcement-on-the-gradual-removal-of-existing-users-in-mainland-china)
+1. [中共国 9 月末外汇储备减少 315 亿美元，单月降幅为半年之最](https://www.reuters.com/article/china-sept-foreign-reserve-1007-idCNKBS2GX0MF)
+2. [中共国 9 月末外汇储备减少 315 亿美元，单月降幅为半年之最](https://www.reuters.com/article/graphic-china-sept-foreign-reserve-1007-idCNKBS2GX0YZ)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-3.jpeg)
 

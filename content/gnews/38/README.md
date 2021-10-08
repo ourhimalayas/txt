@@ -2,50 +2,139 @@
 ---
 
 
-## 中共海外藏钱20万亿，文贵揭开藏宝图一小角，中共剧烈内斗即将开始
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1580501/)
+## 疫苗灾难将导致人类大混乱
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580517/)
 
-作者：纽约香草山健身部 – Jack Li文阳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-文贵先生在10月3日的直播中透露：中共在海外的钱原来主要是由姬家掌管——姬鹏飞、姬胜德。有次军队开会的时候，汪东兴把姬鹏飞找来，告诉他海外哪些钱能动，哪些钱不能动。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-14.jpg)https://gtv.org/video/id=615fc2b2d2e2b81748729010
+这是一个担心, 另外一个让我很担心
+Esto es una preocupación, hay otro que me hace preocupar mucho
 
-文贵先生在直播中揭示了中共外交部与中共藏在海外的20万亿有重大关联。他首次提到了中共驻阿联酋的大使倪坚，此人曾经是驻伊拉克的大使，后来被调到了阿联酋任大使。倪坚曾在新疆待过 ，心黑手辣，罪恶滔天，手上沾满新疆人的鲜血。他在任新疆建设兵团局长期间，屠杀大量的新疆人、疯狂敛财，包括当地的宝石和玉石。中共的外交部不但是卖党部、卖国部、腐败部、性交部、性乱部，它还负责经手中共在海外腐败与藏钱业务。
+就是货币金融
+Es la moneda financiera
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/0-2.jpg)
+不管你有多少钱
+No importa cuánto dinero tengas
 
-另外文贵先生也提到了程国平，他从2009年到2011年任外交部长杨洁篪的部长助理。杨洁篪当时曾代表江家去做一些“重要事情”，部长助理肯定要紧紧跟随，并亲自落实、亲自安排，所以他是杨洁篪当时“主政工作”的重要知情人和参与者。
+你拿着, 你上哪取钱去
+En dónde puedes sacar efectivo
 
-马建副部长掌握共产党几十年的情报，包括中共在海外藏钱。在中共党内，他就像美国的胡佛一样。胡佛一死，当时的美国总统就说：他终于在恰当的时候死了。胡佛“绑架”了几个总统，胡佛的下场众所周知，谁都想把他灭掉。马健副部长也一样，这就是他被抓的根本原因。
+谁在银行来运营银行
+Quién estará en el banco para su funcionamiento
 
-当时文贵先生亲自问过马建副部长：“孟建柱、孙力军、傅政华为啥要搞定你？”他说这帮孙子，就是想要他手里的“料”，咱们叫“料”——但是他们说的是情报。他说：“就把我的东西拿走呗！”这些东西包括中共在海外的钱，2008、2009年的时候就有很多钱了。他说“那怎么得有个几万亿”。当时真是吓了文贵先生一大跳，那时候都几万亿，还不到十八大的时候啊。马健说仅中东，就迪拜这一个地方，就有七十多亿，而且是当时发生的。
+谁来管理银行的信用卡刷卡
+Quién administrará las tarjetas de crédito del banco
 
-马健副部长说：“孟（建柱）每次都敲打我，当时我们去过俄罗斯，包括程国平。 在专机上就警告并敲打我，那次周永康也场，孟就跟马建副部长说：“那些东西到时候你整理整理都给我，让我知道知道。”那时孟建柱正准备当政法委书记，而且做好准备要接收这钱了，并且知道要找马建副部长要。孟建柱要控制住了绝对的海外藏钱和密码，前提是把马建副部长做掉，并把所有执行者全抓起来，然后把钱拿回来。
+就说你有钱
+Si dices que tienes dinero
 
-郭文贵先生**：“**现在这个局势好玩了，中共在中东的钱，外国的钱，习绝对没这个概念。他从来不相信海外存的什么上万亿的钱，他压根就不信。他看过报表，虽然他在某些方面很有特长，但在这些事上，他几乎是个傻白，傻小白，他不懂的。一两个月前就有人给他报告，他问：到底咱们海外的钱，到底……，那人就说了个数：我们大概两万多亿。他深信不疑，这两万多亿够了，就是一万四千亿是党的小私钱，六千多亿是所谓党组织的钱。他觉得自己还有一万多亿的私房钱，他不知道这二十万亿在哪，他根本不信，他也不知道。”
+就说你不需要用虚拟货币
+Y no necesitas usar la moneda virtual
 
-文贵先生抛出程国平和倪坚这两个江家马仔，中共海外藏钱的经手人，明确向中共喊话叫其报告习近平。国安再大胆也不敢不上报。20万亿太大太吸引，习近平再傻，也不会轻易放过不调查。这下就会动到江曾的奶酪，人为财死，鸟为食亡，中共黑帮火拼一触即发。
+你要取现的时候怎么取
+Cómo haces para sacar el efectivo
 
-文贵先生说：共产党的内斗现在是刚刚开始，甚至还没有开始。程国平很快会被抓的，倪坚也会被抓的，一定会被抓的……杨洁篪，王毅都会被抓起来。我第一次说，一定会被抓起来。因为今天我的爆料，大家走着看。
+再一个, 如果停电了
+Y lo otro, si viene el apagón
 
-习大神啊习大神，虽然您很不情愿听从文贵先生的指挥，但为了您自己，尽快行动吧！切实保护好相关人员，必须包括马建副部长。分别调查，核对口供，一定能捞到大量的线索。夜长梦多，不要让这些人跳楼死，游泳死。另外，外交部程倪杨王等人千万保重身体，为黑帮办坏事，总会死得很难看。别看你们昨天闹得欢，习神要拉你们的清单。相信直播后，相关人等会如热锅蚂蚁，左右为难，背叛还是顽抗？都是死路一条。江曾习估计直播没完就已排兵布阵了，虽然明知是文贵先生的反间计，但20万亿面前，也管不了太多了。就像房间内，这几人都拔出枪，不打死对方，必然会被对方击毙，黑帮套路，身不由己。
+电厂谁再干电话儿, 谁在管理银行
+Quién hará la llamada telefónica en la central eléctrica, quién estará a cargo del banco
 
-文贵先生巧施惊天妙计，战友的板凳不够用了。
+谁再确定你信用卡不被偷走
+Quién confirmará que tu tarjeta de crédito no será robada
 
-**本文仅代表作者观点**
+你家被抢劫的时候谁来给你报案
+Quién te informará cuándo te atracarán en la casa
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
+那警察
+Y los policías
 
-**校对/发稿：童谣**
+你所有能想像的下一步
+Todo lo que se te puede ocurrir en el siguiente paso
 
-**更多资讯，更多关注**
+都有可能是脑梗, 心梗, 肛梗, 眼梗, 你怎么办
+Puede ser infarto cerebral, infarto de miocardio, infarto anal e infarto ocular, cómo harás
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+你现在的货流物流都出问题了
+Si hay problemas con la logística de carga
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+上哪儿去找超市买东西
+A dónde conseguirás mercado para comprar cosas
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+你喝(水)上哪, 在城市里边一没水你就傻了
+A dónde obtendrás agua si quieres tomarlo, si en la ciudad no hay ni una gota de agua, te quedarás estupefacto
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+你能坚持五天吗
+?Puedes resistir cinco días?
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+你不洗澡可以, 你能活下去吗
+Puedes no ba?arte pero ?puedes sobrevivir?
+
+然后再没电, 没电能有水吗
+Luego viene el apagón, si no hay electricidad, ?habrá agua?
+
+有手机
+Tienes celular
+
+你手机都没电了
+Pero sin batería
+
+你怎么用啊
+Cómo lo utilizarás
+
+它不是开玩笑的啊
+Esto no es una broma
+
+而且这个打疫苗让人更恐惧的是它在极短的时间内
+Además, lo más temeroso de inyectarse la vacuna es que en un tiempo muy corto
+
+给这几十亿人打了疫苗
+Se pudo vacunar miles de millones de personas
+
+那爆发期, 基本在极短的时间内爆发
+El período del brote básicamente estalló en un período de tiempo muy corto
+
+你想过这个问题没有, 兄弟姊妹们
+?Has pensado este problema? Hermanos y hermanas
+
+我不知道哪国政府现在真正研究
+No sé cuál gobierno del país realmente está investigando
+
+我希望是看这直播的各国政府都能意识到
+Yo deseo para el gobierno de los países que están viendo esta transmisión en vivo pueden darse cuenta
+
+如果有并发症的时候
+Cuando haya complicaciones
+
+37亿35亿咱就按万分比
+3.7 mil millones, 3.5 mil millones, tomemos diez mil puntos
+
+一万个(里)
+Dentro de diez mil
+
+有一个37亿是多少个
+?Cuántos son 3.7 mil millones?
+
+你想想它要同时并发, 这个人类不大混乱了吗
+Piensa si al mismo tiempo todos tienen complicaciones, ?no será un gran caos de la humanidad?
+
+你这里边儿, 出来几个王岐山
+Dentro de esto, aparece varios Wang Qishan,
+
+出来几个陈峰, 希特勒
+Chen Feng, Hitler
+
+你这个社会是什么样的
+Cómo será esta sociedad
+
+原视频日期：10/05/2021
+原视频网址： https://twitter.com/se1y7cblljselva/status/1445262169352773633?s=24
+视频时间段：0:00-2:00
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
