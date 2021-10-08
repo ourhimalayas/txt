@@ -2,21 +2,20 @@
 ---
 
 
-## 秘翻在线:美国今年冬天会停电?
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1580433/)
+## 传奇摇滚鼓手抨击中共疫苗：救人？还是杀人？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1580458/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16-96625-8.jpg)
-图片:网路
+#### 撰稿：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/6-5.jpg)图片来源：网络截图
+据INFOWAR网站10月7日报道，传奇摇滚乐队的鼓手卡明·阿皮斯（Carmine Appice）在周四的采访中提到，中共疫苗还没有经过长期的试验来确定它是否致命。
 
-据《零对冲》引述《彭博社》的报导，在亚洲和欧洲蔓延的能源危机可能导致美国电力短缺和停电 。 Xcoal 能源与资源有限责任公司(Xcoal Energy & Resources LLC. )首席执行官厄尼•斯拉舍( Ernie Thrasher) 告诉能源研究公司 IHS Markit，今年秋季/冬季，23% 的公用事业公司被迫从天然气转向燃烧更多煤炭。 “电力公司无法提供充足的燃料满足客户需求，可能不得不在今年冬天实施停电。”
+在接受油管上与《与果酱人一起摇摆》的采访时，这位香草软糖乐队（Vanilla Fudge）鼓手讨论了中共冠状病毒的封锁和强制疫苗是如何影响他的巡演生涯的，称这是他见过的“最疯狂的事情”。
 
-**为了绿色能源而放弃石化燃料是一场灾难**
+“我曾经每年做60场演出，去年我做了4场。今年我最终可能演奏18场，但不能确定。就像我们做我和我哥哥的演出时，中间有一场演出，因为中共病毒被取消了……大家都在接种疫苗。而且甚至没有人知道这种疫苗是真的疫苗，还是要杀死所有人的东西。”
 
-在亚洲和欧洲，绿色能源转型事实上需要几十年而不是几年的时间，为了不可靠的绿色能源转型而放弃石化燃料是一场灾难。天然气、煤炭和石油价格都在飙升，在天气转凉之前，由于两大洲的能源库存量远低于未来的季节性需求，因此都争夺石化燃料的供应。
+虽然这些评论有些令人震惊，但现实是中共疫苗被迅速开发出来，并在几个月内匆匆通过FDA的监管程序，而大多数疫苗有多年的长期研究的安全数据。
 
-美国多年来为了减少碳排放量转向绿色能源而减少矿山的生产。在过去的三年半，矿工数量也逐渐减少，要提高煤炭产量成为一个极具挑战性的任务，以目前美国的煤炭供应量可能无法满足需求。
+卡明被《滚石》杂志评为有史以来第28位最伟大的鼓手。
 
-“整个供应链超出了它的极限，” 斯拉舍说。”对在美国的人来说，这将是一个充满挑战的冬天。”复盖北卡罗来纳州和南卡罗来纳州客户的公用事业公司杜克能源公司(Duke Energy Corp.’s) 的皮埃蒙特(Piedmont)天然气部门警告称，由于天然气价格提高和产量减少，今年冬天的电费势必上涨。
-
-消息来源:[Energy Crisis May Unleash Winter Blackouts Across US, Insider Warns](http://Energy%20Crisis%20May%20Unleash%20Winter%20Blackouts%20Across%20US,%20Insider%20Warns)
+新闻来源：[Rock Legend Drummer Bashes Covid Vax: ‘Nobody Knows If It’s Really A Vaccine, Or Something To Kill Everybody’](https://www.infowars.com/posts/rock-legend-drummer-bashes-covid-vax-nobody-knows-if-its-really-a-vaccine-or-something-to-kill-everybody/)

@@ -2,138 +2,70 @@
 ---
 
 
-## 疫苗灾难将导致人类大混乱
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580517/)
+## 问题的根本不是习近平，而是共产主义
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580544/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-14.jpg)https://gtv.org/video/id=615fc2b2d2e2b81748729010
-这是一个担心, 另外一个让我很担心
-Esto es una preocupación, hay otro que me hace preocupar mucho
+据《零对冲》泰勒·伍德转大卫·弗林特 (David Flint) 2021年9月26日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-12.jpg)图片来自《零对冲》
+对于共产党人和他们的同类来说，党现在所宣传的路线就是真相——直到它被一条新路线所取代。
 
-就是货币金融
-Es la moneda financiera
+这就是英国著名小说家乔治·奥威尔（George Orwell）的伟大小说《1984》的主题。主人公温斯顿·史密斯（Winston Smith）在真理部工作，不断修改历史记录以符合党的当前路线。尤其是让那些被清算的人被故意遗忘，就好像他们从未存在过一样。
 
-不管你有多少钱
-No importa cuánto dinero tengas
+自1949年以来，正如苏联从诞生到解体一样，在共产主义中国，真相一直被这样包装。因此，当约瑟夫·斯大林的秘密警察局长拉夫连季·帕夫洛维奇·贝利亚被他的继任者处决时，《大苏联百科全书》的编撰者收到指示，用有关贝林海的其他材料替换颂扬贝利亚的页面。贝利亚成了一个被遗忘的人。
 
-你拿着, 你上哪取钱去
-En dónde puedes sacar efectivo
+但事实是，每一个共产主义政权的敌人就是真理本身，包括文明社会的其他价值观和原则，尤其是《独立宣言》的核心主张。这不仅仅是美国人的事儿，根据温斯顿·丘吉尔的说法，继《大宪章》和英国《权利法案》之后，《独立宣言》是第三个伟大的权利契约，西方核心的英语国家人民的自由，就是建立在这一契约之上的。
 
-谁在银行来运营银行
-Quién estará en el banco para su funcionamiento
+《独立宣言》阐明了造物主赋予人某些不可剥夺的权利的这一基本原则，无论谁是最高统治者，这一原则与[共产主义](https://www.epochtimes.com/gb/tag/%25E5%2585%25B1%25E4%25BA%25A7%25E4%25B8%25BB%25E4%25B9%2589.html)不一致。
 
-谁来管理银行的信用卡刷卡
-Quién administrará las tarjetas de crédito del banco
+后者很重要。我们称之为“共产主义中国游说团”，其实是对美国和许多民主国家的一个施加强大压力的集团 ，他们认为中（共）国领导人习近平是目前中共问题的唯一来源。
 
-就说你有钱
-Si dices que tienes dinero
+事实并非如此，这种罪恶的根源是共产主义。举一个令人震惊的例子，早在习近平上台之前，就有价值数十亿美元的用健康人的器官，进行邪恶的器官移植交易。
 
-就说你不需要用虚拟货币
-Y no necesitas usar la moneda virtual
+事实是，共产主义现在和将来都与文明格格不入。我们不能指望共产主义政权来表现得体或体面。我们不能相信他们的话，即使是在最基本的问题上。
 
-你要取现的时候怎么取
-Cómo haces para sacar el efectivo
+以中共应付责任的COVID-19疫情的统计数据为例。我们被告知，在拥有2600万人口的澳大利亚，死于该病毒的人数将很快超过拥有14亿人口的共产中国。
 
-再一个, 如果停电了
-Y lo otro, si viene el apagón
+显然，任何明智的人都不会把中共的统计数据或他们说的话当真。奇怪的是，当主题是减少二氧化碳排放时，这种常识似乎并不适用。
 
-电厂谁再干电话儿, 谁在管理银行
-Quién hará la llamada telefónica en la central eléctrica, quién estará a cargo del banco
+同样，任何明智的人在要求揭露可能让共产党难堪的事情的真相时，都必须预料到会出现敌对反应，就像澳大利亚敢于提议对大流行的起源进行国际调查一样。澳大利亚唯一的错误是让受中共严重影响的世界卫生组织牵头进行调查。
 
-谁再确定你信用卡不被偷走
-Quién confirmará que tu tarjeta de crédito no será robada
+澳大利亚本应向美国前政府提议设立一个特设国际法庭来调查病毒起源、评估责任以及在适当情况下的损害赔偿。
 
-你家被抢劫的时候谁来给你报案
-Quién te informará cuándo te atracarán en la casa
+如果裁定了赔偿金但没有支付，立法可以授权从澳大利亚境内，由有罪国家最终控制的资产中获得补偿，比如达尔文港（Port of Darwin，山东岚桥集团以23亿人民币的租金，向澳大利亚租借达尔文港99年）。
 
-那警察
-Y los policías
+随着澳大利亚因响应其要求进行调查而受到北京越来越多的非法经济处罚，如果我们要扣押这些资产以满足合法的国际判决，中共就无能为力了。至少可以收回一系列优质和战略资产。
 
-你所有能想像的下一步
-Todo lo que se te puede ocurrir en el siguiente paso
+关键是，我们不仅不能依赖这个政权的信息或真相，而且它还控制着一个没有法治、没有人权、没有保护工人权利的领土。
 
-都有可能是脑梗, 心梗, 肛梗, 眼梗, 你怎么办
-Puede ser infarto cerebral, infarto de miocardio, infarto anal e infarto ocular, cómo harás
+这不是习近平带来的；它自1949年以来一直盛行。
 
-你现在的货流物流都出问题了
-Si hay problemas con la logística de carga
+随着柏林墙的倒塌和欧洲共产主义独裁统治的瓦解，中共的永恒目标就是避免类似的命运。
 
-上哪儿去找超市买东西
-A dónde conseguirás mercado para comprar cosas
+当时的最高领导人 邓小平 借鉴了前苏联领导人弗拉基米尔-列宁的新经济政策（NEP），该政策使苏联免于1922年的早期崩溃。
 
-你喝(水)上哪, 在城市里边一没水你就傻了
-A dónde obtendrás agua si quieres tomarlo, si en la ciudad no hay ni una gota de agua, te quedarás estupefacto
+列宁从未打算将“新经济政策”永久化。他的话说明了共产主义者的真实意图：“资本家会卖给我们绞死他们的绳子。”他们做到了，斯大林改变了方向，使经济社会化，迫使阶级敌人实行集体化，包括被迫耕种富农，并残酷地利用饥荒来摧毁他们。
 
-你能坚持五天吗
-?Puedes resistir cinco días?
+与列宁相比，邓小平可以为西方提供更多。这是一个拥有世界五分之一人口的市场，让西方精英们眼花缭乱。
 
-你不洗澡可以, 你能活下去吗
-Puedes no ba?arte pero ?puedes sobrevivir?
+2000年，比尔·克林顿在欢迎中（共）国加入世界贸易组织一事上，赌了一把。他允许中（共）国加入该组织，却没有最基本的保障措施，以确保中共不做以下事情：无视规则、窃取或强行掠夺远比最近赠送给塔利班的850亿美元的现代武器更重要的东西——美国庞大的知识产权。
 
-然后再没电, 没电能有水吗
-Luego viene el apagón, si no hay electricidad, ?habrá agua?
+从欧洲到澳大利亚，西方领导人和大企业都在盲目跟风。
 
-有手机
-Tienes celular
+因此，这些精英们挽救了一个暴政，使其免于重蹈罗纳德·里根（Ronald Reagan）和玛格丽特·撒切尔（Margaret Thatcher）带给苏联的命运。
 
-你手机都没电了
-Pero sin batería
+精英们背叛了美国、澳大利亚和西方的工人，工厂被关闭，产业转移到中（共）国。精英们背叛了中国工人，从压制他们的基本权利中牟取暴利。
 
-你怎么用啊
-Cómo lo utilizarás
+然而，这些精英却经常被共产主义者搭便车，他们动辄欺骗他们，让他们的国家变得依赖中共。只有在前美国政府的领导下，这种趋势才短暂逆转。
 
-它不是开玩笑的啊
-Esto no es una broma
+现在，从美国到欧洲和澳大利亚，同样希望西方工业回到中（共）国的共产主义游说团正拼命地试图恢复这种依赖。他们对此有统一的理由。他们说，这个问题是暂时的。当最高领导人习近平下台后，问题就会过去。
 
-而且这个打疫苗让人更恐惧的是它在极短的时间内
-Además, lo más temeroso de inyectarse la vacuna es que en un tiempo muy corto
+但事实并非如此。问题不在于谁是最高领导人。问题一直是那个邪恶的“瘟疫杆菌”，也就是共产主义。
 
-给这几十亿人打了疫苗
-Se pudo vacunar miles de millones de personas
+原文链接：[https://www.zerohedge.com/geopolitical/problem-not-just-xi-jinping-it-communism](https://www.zerohedge.com/geopolitical/problem-not-just-xi-jinping-it-communism)
 
-那爆发期, 基本在极短的时间内爆发
-El período del brote básicamente estalló en un período de tiempo muy corto
-
-你想过这个问题没有, 兄弟姊妹们
-?Has pensado este problema? Hermanos y hermanas
-
-我不知道哪国政府现在真正研究
-No sé cuál gobierno del país realmente está investigando
-
-我希望是看这直播的各国政府都能意识到
-Yo deseo para el gobierno de los países que están viendo esta transmisión en vivo pueden darse cuenta
-
-如果有并发症的时候
-Cuando haya complicaciones
-
-37亿35亿咱就按万分比
-3.7 mil millones, 3.5 mil millones, tomemos diez mil puntos
-
-一万个(里)
-Dentro de diez mil
-
-有一个37亿是多少个
-?Cuántos son 3.7 mil millones?
-
-你想想它要同时并发, 这个人类不大混乱了吗
-Piensa si al mismo tiempo todos tienen complicaciones, ?no será un gran caos de la humanidad?
-
-你这里边儿, 出来几个王岐山
-Dentro de esto, aparece varios Wang Qishan,
-
-出来几个陈峰, 希特勒
-Chen Feng, Hitler
-
-你这个社会是什么样的
-Cómo será esta sociedad
-
-原视频日期：10/05/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1445262169352773633?s=24
-视频时间段：0:00-2:00
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
+翻译：洛杉矶盘古农场 – 蓝精灵
+校对：洛杉矶盘古农场–Mike Li
+编辑：洛杉矶盘古农场 – 柯镇恶
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

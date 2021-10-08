@@ -2,28 +2,39 @@
 ---
 
 
-## “十一”消费数据：后疫情消费反弹与红色宣传洗脑集中展现
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1580413/)
+## 中共国 9 月末外汇储备减少 315 亿美元，单月降幅为半年之最
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1580422/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1083.jpg)[图片来源](http://www.chinanews.com/gn/2021/10-07/9581163.shtml)
-2021年“十一”假期消费数据出炉，国内游达5.15亿人次，全国预计共发送旅客4.03亿人次，北京、长沙等地成为红色旅游热门目的。
+作者：文一
 
-据中共文化和旅游部消息，10月1日至7日，全国国内旅游出游5.15亿人次，按可比口径同比减少1.5%，按可比口径恢复至疫前同期的70.1%。实现国内旅游收入3890.61亿元，同比减少4.7%，恢复至疫前同期的59.9%。
 
-据中共交通运输部消息，10月1日至7日，全国预计共发送旅客4.03亿人次，日均5750万人次，比2019年同期（7天假期）日均下降33.9%，比2020年同期（中秋“国庆”8天假期）日均下降7.5%。其中，铁路预计发送旅客8307.3万人次，日均1186.8万人次；公路预计发送旅客3.04亿人次，日均4340万人次；水路预计发送旅客631.2万人次，日均90.2万人次；民航预计发送旅客931万人次，日均133万人次。
 
-中共加快对00后年轻人洗脑宣传，看《长津湖》、红色旅游成为今年“十一”旅游市场的新亮点。飞猪平台上，“00后”“十一”红色旅游订单量同比涨超80%。长沙、湘潭、南昌、遵义、延安、嘉兴、井冈山等是红色旅游热门目的地。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-13.png)
 
-信息来源：
 
-[http://www.chinanews.com/gn/2021/10-07/9581163.shtml](http://www.chinanews.com/gn/2021/10-07/9581163.shtml)
 
-[http://www.chinanews.com/gn/2021/10-07/9581159.shtml](http://www.chinanews.com/gn/2021/10-07/9581159.shtml)
+【路透社】10 月 7 日讯：中共国央行周四公布，9 月末中共国外汇储备为 3.201 万亿美元，较 8 月末下降 315 亿美元，连续两个月下降，月降幅达 0.97%，单月降幅创 3 月以来最大。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-9.jpg)
+路透测算显示，1 至 9 月中国外汇储备累计减少159亿美元，去年同期则增加约270亿美元。中共央行同时公布，9月末黄金储备为6,264万盎司，为连续25个月保持不变。当月黄金储备对应的美元价值为环比减少45.1亿至1,091.8亿美元。
 
-[http://news.enorth.com.cn/system/2021/10/08/051900955.shtml](http://news.enorth.com.cn/system/2021/10/08/051900955.shtml)
+据分析9月美联储紧缩预期助推美指升至一年高位，汇率折算和资产价格变动继续成为拖累外储规模下滑的主要因素。
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+（本文仅代表作者观点）
+
+参考链接：
+1. [中共国 9 月末外汇储备减少 315 亿美元，单月降幅为半年之最](https://www.reuters.com/article/china-sept-foreign-reserve-1007-idCNKBS2GX0MF)
+2. [中共国 9 月末外汇储备减少 315 亿美元，单月降幅为半年之最](https://www.reuters.com/article/graphic-china-sept-foreign-reserve-1007-idCNKBS2GX0YZ)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-3.jpeg)
+
+新闻访谈终审：Q大哥
+编辑/校对/审核：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-13.png)

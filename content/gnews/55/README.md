@@ -2,38 +2,34 @@
 ---
 
 
-## 2021/10/05 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1574579/)
+## 纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1534601/)
 
-## 001 中共国的底层穷人
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-CN.jpg)
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-视频注：怎样的绝望和痛苦才会让病人自己选择提前结束生命，而且成为了一种社会常态？中共国的底层穷人从出生的那一刻起他这辈子的命运就已注定。中共垄断了全社会的资源，仅仅供养掌握权力的极少部分的家族。在中共国的底层穷人生病意味着毫无一切希望。亲外甥遭受病痛折磨，贫穷使他康复无望，抚养他长大的舅舅只能选择“送他一程”。
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
 
-## 002 中共国全面脱贫了吗？
-
-视频注：看看这些在中国西部山区的穷孩子。他们不会出现在官方媒体的新闻镜头里。这些孩子处于全球绝对贫困线生活水平以下。中共官员根本不会在乎这些孩子的生活，中共的税收也不会平衡到这些贫困山区。中共官员每天一顿饭的消费将是这些孩子一辈子都花不完的钱。
-
-## 003 中共已无力维持大陆正常运转
-
-视频注：近日，中共以环保和资源紧缺的名义，开始在全国十多个省份实行限电限产措施。中国的东北地区处于北纬40度～50度，冬季温度基本处在零摄氏度以下，冬季漫长而寒冷。由于资源短缺，可预见的今年冬天东北形势可能会相当严峻。中共已无力保持中国大陆社会的正常运转。
-
-## 004 中共的新冠阴谋
-
-视频注：在新冠疫情方面，被中共官方奉为英雄的钟南山近日在公开发言时表示，中共在新冠疫苗方面，只需要五年的时间，中共就将领先世界。全世界肆虐两年之久的新冠疫情，以及现今世界性的强制接种疫苗计划，都是中共十几年前就预谋控制世界的生物超限计划。COVID-19是中共蓄谋已久的阴谋。
-
-## 005 中共人和中国人
-
-视频注：只有归属于中共顶层家族的人，才会有机会享受国家政府如此隆重的包机服务。你何时见过中共高规格的保护过中共国的一个普通公民？而这些行为恰恰说明，中共在华为背后必有巨大的不可告人的秘密和利益。恰恰说明华为不是私人企业，华为拥有中共官方的背景。中共人是中共人，中国人是中国人，是两个完全不同的概念！
-
-## 006 被极度剥削的中国工人
-
-视频注：在中共国血汗工厂打工的打工人，从未被有效安全的保护过。中共国代加工经济的高额利润，都是来自这些千千万万的被极度压榨和剥削的中国普通打工人。他们从没有被当作一个正常的人来对待。他们就是现代的奴隶，活得像牲畜一样。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-001-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-002-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-003-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-004-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-005-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-006-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-007-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-008-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-009-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-010-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-011-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-012-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-013-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-014-scaled.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
++4

@@ -2,151 +2,58 @@
 ---
 
 
-## 作为一家上市公司，脸书必须不能对其投资者撒谎，甚至隐瞒重要信息
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580543/)
+## 大英霸权：全球主义
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1580580/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-15.jpg)https://gtv.org/video/id=615fc368d2e2b81748729059
-Scott Pelley
-斯科特·佩利
+作者：纽约香草山福音部 – Jinglechenge
 
-Last month, Haugen’s lawyers filed at least eight complaints with the Securities and Exchange Commission
-上个月，豪根的律师向在金融市场执法的美国证券交易委员会
 
-which enforces the law in financial markets.
-提交了至少8份投诉
 
-The complaints compare the internal research
-这些投诉将内部研究
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
 
-with the company’s public face often matters CEO Mark Zuckerberg
-与公司的公众形象密切相关首席执行官马克·扎克伯格
 
-here testifying remotely to Congress last March,
-去年三月(他)在这里(视频)远程向国会作证进行比较
 
-Mark Zuckerberg (Facebook CEO)
-马克·扎克伯格（脸书首席执行官）
+突然间，“全球主义”如平地一股妖风刮遍了全世界，资本挥舞着全球主义的大棒，追名逐利，使老百姓在不知不觉中沦为大棒的奴隶。
 
-we’ve removed content that could lead to imminent real world harm.
-我们删除了可能导致迫在眉睫的现实世界伤害的内容
+这到底是怎么回事？这股妖风是从哪里刮来的？为何来得如此迅猛，以至于人们毫无准备、毫无招架之力？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211008_2.jpg)[图片来源](https://cdn-japantimes.com/wp-content/uploads/2016/08/p7-Fukukawa-a-20160803.jpg)
+常话说，无风不起浪，这还得从大英说起。大英号称日不落帝国，“普天之下，莫非王土，率土之滨，莫非王臣”。随着 19 世纪大英势力的扩张，全球统治似乎不可避免，维多利亚时代的帝国菁英们开始为世界制定起一个在大英统治下的世界联邦来。这个世界联邦，就是后来被 1984 的奥威尔称为“英社”的意识形态，就是全世界联合成一个超级国家，臣服在大英的英社之下。
 
-We built an unprecedented third party fact checking program.
-我们构建了前所未有的第三方事实核查程序
+菁英们达成共识之后，吹手打手们就出场了。
 
-The system isn’t perfect, but it’s the best approach that we’ve found,
-这个系统并不完美，但它是我们找到的最好的方法
+首先出场的自然是浪漫的诗人，很像当年吹捧毛腊肉的郭沫若一样。1842 年，即将成为维多利亚女王官方桂冠诗人的 Alfred Tennyson 写下了“洛克斯利大厅”，诗人幻想了一个万邦来朝的盛世景象。
 
-to address misinformation in line with our country’s values,
-以解决符合我们国家价值观的错误信息
+诗人之后是哲学家，其中一位就是 John Ruskin，1870 年他在牛津作了第一场非常鼓动人心的演讲，让大英子民决定是统治世界或被世界统治。他的演讲很快就催生了一种被称为“自由帝国主义”的学说，即“自由”国家应该征服野蛮国家以传播“自由”价值观。其实，称之为“社会帝国主义”更为合适，因为大多数拥护这一概念的人实际上是社会主义者。在他们看来，大英帝国是传播社会主义的完美载体。
 
-Scott Pelley
-斯科特·佩利
+哲学家之后是政客，最忠诚的要数 Cecil Rhodes。作为政治家，Rhodes 积极推动英国的扩张，他的信念是 “我们占领的国家越多，越有利于人类，越能促进人类利益最大化”。Rhodes 为此留下了一大笔财富，以促进“大英在全世界的统治”，将所有英语国家合并为一个联邦，并推动“美国作为大英帝国不可分割的一部分的最终回归”。这就是 1890 年代的大英政治生态，坚信世界和平将通过英国霸权实现。
 
-one of France’s Huggins lawyers is John Tye.
-豪根其中的一个律师是约翰·泰
+美国的亲英人士也都如同久旱逢甘霖，迫不及待地作出热情洋溢的回应。比如 1897 年的《纽约时报》就谄媚说，“我们是大英的一部分，而且是大英的最重要组成部分，大英注定是要主宰这个星球的”。
 
-He’s the founder of a Washington legal group called whistleblower aid.
-他是华盛顿一家名为“吹哨人援助”的法律团体的创始人
+1902 年 Rhodes 去世后，Alfred Milner 接过了这一重任，建了一个“圆桌”秘密群来倡导全球英语国家的世界联邦。第一次世界大战也对将世界推向全球化起了推波助澜的作用。
 
-What is the legal theory behind going to the SEC
-支持去美国证券交易委员会的法律理论是什么？
+1914 年 8 月 14 日——英国宣战仅 10 天后——小说家 Wells 就以“终结战争的战争”为文，并在同年 10 月出版了同名之书，宣扬“如果全世界的自由主义者……坚持在这场冲突结束时召开世界会议……他们可能……建立一个将控制地球的和平联盟”。但这个世界性的联盟并没有如期来临，因为美国是在两年半后的1917年4月才派遣军队，这让大英极其不爽，于是开始了对美国的渗透，迄今都未停止。比如那位家喻户晓的病毒专家 Peter Daszak，便是英国人。我们单位的第一把手也是最近从英国空降来的。以前一直不明白，现在才看到一丝端倪。
 
-what laws are you alleging have been broken
-你指称违反了什么法律 ？
+1919 年一战后的巴黎和会，大英和美国的亲英人士都致力于加速全球主义议程，使美英关系成为“特殊关系”，两国在国际事务上共进退，讲同样的话。这样不但保全了大英不死于美国之手，而且还继续以另一种方式称霸世界。但却遭到美国参议院的直接拒绝，令英国全球主义者们深恶痛绝。直到经历了另一场世界大战，最终以 1945 年的联合国、1949 年的北约和“五眼”的方式，大英才成功地将美国吸引到全球政府中。
 
-John Tye (founder of whistleblower aid)
-约翰·泰（吹哨人援助的创始人）
+这就是大英构想、设计、推行、完成的全球主义，一个以大英为领导核心的全球主义，而不是一个以其他国家或语言为领导核心的全球主义，连美国也不行。凡是违抗的都被他们用颜色革命颠覆了，比如川普政府。
 
-As a publicly traded company, Facebook is required to not lie to its investors,
-作为一家上市公司，脸书必须不能对其投资者撒谎
+“全球主义”是毒药，与它之间的斗争才刚刚开始。
 
-or even withhold material information.
-甚至隐瞒重要信息
+（本文仅代表作者个人观点）
 
-So, the SEC regularly brings enforcement actions,
-因此，美国证券交易委员会定期提起执法诉讼
 
-alleging that companies like Facebook and others
-指控像脸书和其他的这样的公司
 
-are making material misstatements, and emissions that affect investors adversely.
-正在作出重大的错误陈述，以及对投资者产生不利影响的信息推送
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct.jpg)
 
-Scott Pelley
-斯科特·佩利
 
-One of the things that Facebook might alleges that she stole company documents.
-脸书可能声称她窃取了公司档的这件事
 
-John Tye
-约翰·泰
+编辑/校对/发稿：武裝的羔羊
 
-The Dodd-Frank Act passed over 10 years ago at this point,
-在这一点上多德-弗兰克法案已于 10 多年前通过
+**更多资讯，更多关注**
 
-created an office of the whistleblower inside the SEC.
-在美国证券交易委员会内部设立了一个举报人办公室
-
-And one of the provisions of that law says
-而且该法律的一项规定说
-
-that no company can prohibit its employees from, from communicating with the SEC,
-任何公司都不能禁止其员工与美国证券交易委员会沟通
-
-and sharing internal corporate documents with the SEC.
-并与美国证券交易委员共享内部公司档
-
-Frances Haugen
-弗朗西丝·豪根
-
-I have a lot of empathy for Mark, and Mark has never set out to make a hateful platform,
-我对马克有很多同情，马克从来没有打算做一个可恶的平台
-
-but he has allowed choices to be made,
-但他允许做出选择
-
-where the side effects of those choices are the hateful polarizing content gets more distribution more reach
-这些选择的副作用是可恶的两极分化内容得到更多的传播更多的影响
-
-Scott Pelley
-斯科特·佩利
-
-Facebook declined an interview, but in a written statement to 60 minutes it said,
-脸书拒绝接受采访，但在一份给60 分钟的书面声明中表示
-
-“Every day our teams have to balance
-“每天我们的团队都必须平衡
-
-protecting the right of billions of people to express themselves openly
-保护数十亿人公开表达自己的权利
-
-with the need to keep our platform as safe and positive place.
-需要保持我们的平台作为安全和积极的地方
-
-We continue to make significant improvements
-我们继续进行重大改进
-
-to tackle the spread of misinformation and harmful content.
-解决错误信息和有害内容的传播
-
-To suggest we encourage bad content and do nothing is just not true. ”
-如果说我们鼓励不良内容而不采取行动，那是不对的。”
-
-“If any research had identified an exact solution to these complex challenges,
-“如果有任何研究确定了这些复杂挑战的确切解决方案，
-
-the tech industry, governments and society would have solved them a long time ago.”
-科技行业、政府和社会早就解决了这些问题。”
-
-原视频日期：2021/10/03
-原视频链接: https://youtube.com/watch?v=\_Lx5VmAdZSI
-视频时间段 : 9:54-12:33
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

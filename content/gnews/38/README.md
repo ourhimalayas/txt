@@ -2,165 +2,35 @@
 ---
 
 
-## 中共停电的目的是打垮美元和美股
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580019/)
+## 世界正在目睹由血栓引起的N-STEMI心脏病大流行
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580068/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/aii18-iytb4.jpg)
-[https://gtv.org/video/id=615f36a5d2e2b81748725a0d](https://gtv.org/video/id=615f36a5d2e2b81748725a0d)
+**据《新闻目标》作者：Lance D. Johnson，2021年10月5日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/atsxf-zwqgf.jpg)图片来源：《新闻目标》
+某种类型的心脏病发作在全世界范围内呈上升趋势。苏格兰的医护人员已经看到一种可能致命的心脏病发作类型急剧上升，称为N-STEMI心脏病发作。这种情况是部分动脉阻塞的结果，切断了对心脏的血液供应。与普通STEMI心脏病发作相比，它的组织损伤较小，但同样可能是致命的。将支架放入患者的动脉可以挽救他们的生命。虽然STEMI发作的案例多年来一直保持稳定，每年约有750例，但最近N-STEMI的案例激增。来自克莱德班克的金禧国家医院的医生们记录了夏季N-STEMI心脏病发作持续上升25%的情况。这家医院通常每月接收240名N-STEMI患者，但在今年5月、6月和7月，N-STEMI心脏病发作患者的数量攀升至每月超过300人。
 
-**郭文贵
-Miles Guo**
+**锁定人口并剥夺他们的生计会造成严重的副作用**
 
-记住啊
-Recuerden
+心脏病人从全国卫生服务网的各个地方涌入金禧国家医院，从NHS大格拉斯哥，到克莱德、邓弗里斯和加洛韦，再到艾尔郡和阿兰、福斯谷和高地。在这个夏天，医院不得不将其心脏科的床位数量增加44%，因为一线医护人员要应对心脏病患者的需求增加。
 
-咱是有时间的
-Nosotros tenemos tiempo
+医生们正试图确定为什么N-STEMI患者数量会有如此急剧的上升。在封锁期间，人们获得健康检查的机会较少，如果没有呼吸道症状，他们更可能远离医院。金禧国家医院的首席顾问心脏病专家米切尔·林赛（Mitchell Lindsay）说，他们找不到“任何证据”表明N-STEMI患者数量的上升是“任何延迟护理或错过治疗机会的结果”。
 
-咱不是没时间, 咱有时间的
-No es que no lo tengamos, si tenemos
+在前两波封锁期间，心脏病发作没有类似的上升。医生们认为，在过去两年的封锁期间，人们变得更加久坐不动，无法应对封锁带来的所有新压力。他们还认为，许多病人在封锁期间忽略了心脏病发作的症状，因为他们不想出现在医院，冒着被感染和与家人分离的风险。林赛说：“可能有五到十个原因，都有联系。”
 
-这不会
-Esto no…
+**炎症性、凝血性的Covid疫苗是导致心脏急症涌现的原因之一**
 
-如果2025年灭不了共的话
-Si en el 2025 no podemos derribar al Partido Comunista
+医生们没有提到covid-19疫苗在这次医疗事故中的作用。这些疫苗正在造成可核实的血凝块，对心血管系统造成炎症。根据研究，SARS-CoV-2尖峰蛋白破坏了人类心脏周围细胞的功能，并通过CD147受体介导的信号传导促进了微血管疾病。 (相关：心脏病专家警告说，这是covid疫苗的虚假和由注射引起的过度炎症免疫反应。)
 
-七哥也不会再去灭共了
-Entonces no lo haré más
+2021年夏天，随着全国乃至全球的心血管健康状况骤降，重病患者激增。这种心脏病患者的大流行造成了医院床位的短缺，并导致急诊室的长时间延误。据报道，由于所有这些新的、由疫苗引起的公共卫生问题，导致救护车已经被堵在医院门口排队。锁定人群的血液凝固，尖峰蛋白注射，都带来严重的（预期）后果。
 
-你们也不会再看到七哥, 真的
-Tampoco me verán más, estoy hablando en serio
+由于心理压力、生理压力和炎症被强加给人们的生活，该医院不得不在2021年进行创纪录的血管成形术手术。病人来的时候，动脉部分堵塞，需要用支架来撑开血管，以保持血液流向心脏。过去，这些病人中的许多人可以在离家较近的医院康复；然而，现在许多病人不得不留在大医院，因为小医院已经挤满了仍在努力康复的心脏病患者。
 
-这个什么事都可能发生
-Puede suceder cualquier cosa
+**原文连接：**[https://newstarget.com/2021-10-05-world-witnessing-pandemic-of-nstemi-heart-attacks.html](https://newstarget.com/2021-10-05-world-witnessing-pandemic-of-nstemi-heart-attacks.html)
 
-我不会再
-No seguiré
-
-2025年如果是共产党还存在的话
-Si en 2025 el Partido Comunista todavía existe
-
-你们不会再看到七哥
-No me verán más
-
-但是我是不会的
-Pero esto no sucederá
-
-2025年绝对是
-En el año 2025 es definitivamente
-我是2015年
-En el año 2015
-
-我跟刘延平联系, 国内的人跟我联系, 我都说过
-Me contacté con Liu Yanping, la persona que estaba en China se comunicó conmigo y yo dije
-
-我等你们十年, 我都等死你们
-Los esperaré diez años, hasta la muerte los esperaré
-
-不是我今天说的
-No lo dije hoy
-
-我不相信共产党能过2025年
-Yo no creo que el Partido Comunista pueda pasar el año 2025
-
-这个是有时间限制的
-Esto habrá un tiempo limitado
-
-另外一个, 就刚才说这个共产党的停电
-Otra cosa, lo que estaba hablando hace rato sobre el apagón del Partido Comunista
-
-是不是跟世界经济
-Si tiene relación con la economía mundial
-
-为啥我说这个世界经济会跟这个共产党停电有关系
-Por qué digo entre ellos tienen relación
-
-大家没有
-Ustedes
-
-昨天你那个数里边没算
-No contaron los datos de ayer
-
-就你那些都是所谓的官方统计数据
-Los supuesto datos oficiales que tú dices
-
-你绝对要记住
-Debes recordar
-
-七哥从一开始爆料就说
-Yo desde el principio del Movimiento de Denunciantes dije
-
-如果你相信了任何一个共产党对着镜头和对着人
-Si crees en cualquier persona del Partido Comunista que habla frente a la cámara y a las personas
-
-说出的话和公开的表格和数据
-Acerca de los formularios y los datos públicos
-
-那你就是天下最愚蠢的傻子
-Entonces eres el tonto más estúpido del mundo
-
-共产党的那些, 所有的, 现在今天干的事情
-Todas las cosas que ha hecho y que hizo hoy en día el Partido Comunista
-
-他只有两个目标大家没搞明白
-Simplemente tiene dos objetivos que ustedes no lo han entendido todavía
-
-一切都是为了干倒美元, 干倒欧元而干的
-Todo es para destrozar al dólar estadounidense y el euro
-
-共产党所有干的事情就是杀敌一千
-Todo lo que ha hecho el Partido Comunista
-
-自伤一万, 我也得干
-Por matar a mil enemigos pueden sacrificar diez mil de los suyos
-
-我断我九指
-Me corto nueve dedos
-
-我断你一指
-Corto uno del tuyo
-
-我也得干
-Aún así lo tengo que hacer
-
-我都变成九指妖了, 我也认了
-Y si me convierto en Sara Wei, lo asumiré
-
-所有的现在想了美国和中美之间
-Toda la relación entre EE. UU y China
-
-过去5000亿的逆差
-El déficit de los últimos 500 mil millones
-
-5000亿的逆差到最后变成了几百亿的逆差
-El déficit de los 500 mil millones finalmente se convirtió en un déficit de decenas de miles de millones
-
-但几千亿美元的贸易
-Pero cientos de miles de millones de dólares en comercio
-
-他绝对能把美国股票给打垮了
-Él seguramente puede derribar a las acciones de EE. UU
-
-这个不是假的
-Esto no es falso
-
-真能打垮, 今天中共国就这么停电再停六个月
-Realmente puede destrozarlo, hoy, el PCCh si viene otro apagón de seis meses
-
-美国的股票市场经济一蹋糊涂
-La economía del mercado de valores de EE. UU será un desastre
-
-**——————————————————**
-
-**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1445260826655424515?s=24](https://twitter.com/se1y7cblljselva/status/1445260826655424515?s=24)
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 :洛杉矶盘古农场–彩虹Rainbow
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

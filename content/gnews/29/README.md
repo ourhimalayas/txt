@@ -2,9 +2,9 @@
 ---
 
 
-## “真相工程”发布系列视频揭露中共病毒的真相
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1580338/)
+## 前雇员爆料辉瑞向公众隐瞒其新冠疫苗包含胚胎组织
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1580344/)
 
-10/05/2021 疯狗体育电台：真相工程发布系列视频揭露中共病毒的真相，最新一集是关于制造这些疫苗的科学家对该疫苗的真实想法。
+10/06/2021 前雇员爆料辉瑞向公众隐瞒其新冠疫苗包含胚胎组织。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

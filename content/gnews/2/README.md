@@ -2,27 +2,52 @@
 ---
 
 
-## 格芯撤离成都之谜：爆料革命背后发力
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1580595/)
+## 终结英特尔收购传闻，格罗方德申请纽交所IPO
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1580621/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/12-4.jpg)[图片来源](https://hk.xfastest.com/115334/amd-globalfoundries/)
-10月5日，全球第三大半导体代工厂商格芯（格罗方德，GlobalFoundries）正式赴美上市。与此同时，格芯与成都市政府前期的合作纠纷再度引起广泛热议，特别是格芯宣布撤离成都时的突然和坚决，至今令人记忆深刻。
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/打倒-16.png)
+图片来源：Sdx central
 
-10月7日，郭文贵先生在GTV直播中，对爆料革命与中共在格芯的投资和技术方面的角力进行了揭秘——格芯从成都的撤离背后正是爆料革命在发力。
+**编译报道：文泓**
 
-2017年5月，格芯（ Globalfoundries ）宣布与成都市政府签约并投资100亿美元建设大陆最大12寸逻辑器件晶圆厂。该消息一经宣布便在全球引起巨大反响和关注。2018年上半年，业内有传言，格芯将暂停对成都项目出资。2018年6月，格芯成都工厂招聘暂停。2018年10月，格芯宣布与成都签署修正案，资取消成都厂180nm/130nm项目投产。2019年初，格芯成都厂的前员工曝光，成都厂内部设备已清，鼓励员工自行离职。2020年5月，成都格芯接连下发3份通知，宣布公司因经营情况彻底停工停业，遣散了仅剩的74名员工后，占地千亩的厂房也彻底空置。
+10月7日，格罗方德（GlobalFoundries）正式向美国证券交易委员会(SEC)提交了在纳斯达克进行首次公开募股(IPO)的申请，股票代码为GFS。
 
-按照2017年5月格芯当时的规划，成都工厂将成为大陆西南部首条12吋晶圆生产线。成都晶圆厂分为二期建设，一期为成熟制程(180nm/130nm)12吋晶圆的生产线，并转移格芯新加坡厂的技术，预计2018年底投产，二期建设则是22FDX FD-SOI制程，规划导入德国厂所研发的22nm SOI制造工艺，预计2019年第4季投产，产品广泛应用于移动终端、物联网、智能设备、汽车电子等领域。目前这座12吋厂只有进行到第一期工程结束，厂内都是使用从新加坡厂转移过来的技术跟设备，该新加坡厂是2010年收购的特许半导体旗下的晶圆厂，留下的都是一些老旧、甚至已经淘汰的二手设备。受制于这些设备与技术，这座12吋厂事实上只能做到40nm的制程，而且产线人员也才刚送到新加坡进行培训结束── 该晶圆厂根本尚未开始、也无法进行量产。
+据媒体早先的报道，虽然普通股的数量和拟议发行的价格范围都没有公开，但预计IPO将获得约250亿美元。
 
-在10月7日的GTV直播中，郭文贵先生还透露，格芯的7nm芯片和后续与IBM合作的生物芯片，将是支撑未来包括GTV、GETTR、GNEWS和Himalaya Reserve等在内的G系列以及与星链（StarLink）的融合发展的技术法宝。
+目前，格罗方德已获得摩根士丹利、美国银行、摩根大通、花旗集团、瑞士信贷以及其他十几个投资集团的帮助，以支持IPO准备工作。
 
-信息来源：
+该公告是在有关这家美国半导体制造商命运的数月传言之后发布的。格罗方德首席执行官汤姆·考菲尔德（Tom Caulfield）早在7月份曾否认过IPO，但当月媒体一篇报道暗示，英特尔正在谈判以高达300亿美元的价格收购这家半导体代工制造商。
 
-[2021-10-07 七哥回答战友们的问题：AMD将在纽约上市，背后股东是谁？中共95%肯定要打台湾的；曾家的灾难还没开始，江家一定会付出代价；新加坡的何晶非常聪明；杨洁篪已岌岌可危](https://gtv.org/video/id=615ef95d304e992109b0faaf)
+当时，分析师推测格罗方德的收购将启动该供应商新的英特尔代工服务业务部门。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+咨询机构弗雷斯特研究（Forrester Research）副总裁兼基础设施和运营研究总监格伦·奥唐纳（Glenn O’Donnell）表示，这些传言可能是为了提升估值。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+在新冠疫情大流行和供应链短缺之后，整个半导体行业的代工运营商都经历了前所未有的需求，因此格罗方德进行了首次公开募股。
+
+英特尔、台积电(TSMC)、三星电子和 格罗方德都宣布了扩大代工业务的计划，以满足不断增长的客户需求。
+
+英特尔于3月宣布斥资200亿美元在亚利桑那州兴建两家芯片厂，预计年底前还将在欧洲和美国进行额外投资。
+
+与此同时，全球最大的半导体制造商台积电宣布，未来三年的资本支出将超过1000 亿美元。最近，三星表示将花费近两倍的资金来扩大其代工业务。
+
+虽然格罗方德尚未宣布接近这些大规模资本支出，但该运营商正在斥资10 亿美元来提高其纽约马耳他工厂的产能。
+
+今年7月19日，格罗方德宣布了其在纽约北部最先进的制造工厂的扩张计划，将投资10亿美元，在现有芯片厂内每年增产15万片，以帮助解决全球芯片短缺问题。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+参考链接：
+
+1、[GlobalFoundries Plans to Build New Fab in Upstate New York in Private-Public Partnership to Support U.S. Semiconductor Manufacturing | GLOBALFOUNDRIES (gf.com)](https://gf.com/press-release/globalfoundries-plans-build-new-fab-upstate-new-york-private-public-partnership)
+
+2、[GlobalFoundries Files IPO, Ends Intel Acquisition Rumors – SDxCentral](https://www.sdxcentral.com/articles/news/globalfoundries-files-ipo-ends-intel-acquisition-rumors/2021/10/)
+
+发布：小红帽
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

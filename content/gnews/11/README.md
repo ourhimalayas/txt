@@ -2,39 +2,139 @@
 ---
 
 
-## 奥地利绿党质疑：总理在接受腐败、贿赂调查后能否留任
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1580490/)
+## 疫苗灾难将导致人类大混乱
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1580517/)
 
-#### 【**雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GettyImages-1234974387-1320x905-1.jpg)
-图片来源：politico.eu
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-14.jpg)https://gtv.org/video/id=615fc2b2d2e2b81748729010
+这是一个担心, 另外一个让我很担心
+Esto es una preocupación, hay otro que me hace preocupar mucho
 
-整理报道：小红帽
+就是货币金融
+Es la moneda financiera
 
-在检察官宣布奥地利领导人将接受调查后，奥地利绿党副总理维尔纳·科格勒(Werner Kogler)质疑，总理塞巴斯蒂安·库尔茨（Sebastian Kurz）能否留任。
+不管你有多少钱
+No importa cuánto dinero tengas
 
-在周四的一份声明中，科格勒表示，他们无法与由库尔茨领导的联盟伙伴恢复“照常工作”。
+你拿着, 你上哪取钱去
+En dónde puedes sacar efectivo
 
-科格勒在一份声明中说：“事实必须得到充分证实……在这种情况下，总理的行动能力受到质疑。”他呼吁，与库尔茨涉嫌参与腐败和贿赂有关的问题在回到议程之前必须“完全澄清”。
+谁在银行来运营银行
+Quién estará en el banco para su funcionamiento
 
-周三，经济和腐败检察官办公室 (WKStA) 宣布，以涉嫌违反信托、贿赂和腐败为由，对库尔茨和其他九人展开调查。
+谁来管理银行的信用卡刷卡
+Quién administrará las tarjetas de crédito del banco
 
-检察官办公室声称，财政部的资金在2016年至2018年期间被一家投票机构用于支付“出于政党政治动机的、有时被操纵的调查”。
+就说你有钱
+Si dices que tienes dinero
 
-该机构的调查随后被发表在一家奥地利日报的社论部分和同一媒体集团的其他媒体上。由沃尔夫冈·费尔纳 (Wolfgang Fellner) 拥有的集团驳回了这些指控。
+就说你不需要用虚拟货币
+Y no necesitas usar la moneda virtual
 
-这项调查是在突击搜查属于库尔茨保守派人民党 (OVP) 的办公室后宣布的。这次突击检查在预料之中，保守派人民党早就暗示不会发现任何东西。
+你要取现的时候怎么取
+Cómo haces para sacar el efectivo
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+再一个, 如果停电了
+Y lo otro, si viene el apagón
 
-**参考新闻：**[Austrian Greens question chancellor’s ability to remain in office after he is placed under investigation for corruption, bribery — RT World News](https://www.rt.com/news/536829-austria-kurz-corruption-probe-greens/)
+电厂谁再干电话儿, 谁在管理银行
+Quién hará la llamada telefónica en la central eléctrica, quién estará a cargo del banco
 
-***编辑：小红帽 /翼族
-发布：小红帽***
+谁再确定你信用卡不被偷走
+Quién confirmará que tu tarjeta de crédito no será robada
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+你家被抢劫的时候谁来给你报案
+Quién te informará cuándo te atracarán en la casa
+
+那警察
+Y los policías
+
+你所有能想像的下一步
+Todo lo que se te puede ocurrir en el siguiente paso
+
+都有可能是脑梗, 心梗, 肛梗, 眼梗, 你怎么办
+Puede ser infarto cerebral, infarto de miocardio, infarto anal e infarto ocular, cómo harás
+
+你现在的货流物流都出问题了
+Si hay problemas con la logística de carga
+
+上哪儿去找超市买东西
+A dónde conseguirás mercado para comprar cosas
+
+你喝(水)上哪, 在城市里边一没水你就傻了
+A dónde obtendrás agua si quieres tomarlo, si en la ciudad no hay ni una gota de agua, te quedarás estupefacto
+
+你能坚持五天吗
+?Puedes resistir cinco días?
+
+你不洗澡可以, 你能活下去吗
+Puedes no ba?arte pero ?puedes sobrevivir?
+
+然后再没电, 没电能有水吗
+Luego viene el apagón, si no hay electricidad, ?habrá agua?
+
+有手机
+Tienes celular
+
+你手机都没电了
+Pero sin batería
+
+你怎么用啊
+Cómo lo utilizarás
+
+它不是开玩笑的啊
+Esto no es una broma
+
+而且这个打疫苗让人更恐惧的是它在极短的时间内
+Además, lo más temeroso de inyectarse la vacuna es que en un tiempo muy corto
+
+给这几十亿人打了疫苗
+Se pudo vacunar miles de millones de personas
+
+那爆发期, 基本在极短的时间内爆发
+El período del brote básicamente estalló en un período de tiempo muy corto
+
+你想过这个问题没有, 兄弟姊妹们
+?Has pensado este problema? Hermanos y hermanas
+
+我不知道哪国政府现在真正研究
+No sé cuál gobierno del país realmente está investigando
+
+我希望是看这直播的各国政府都能意识到
+Yo deseo para el gobierno de los países que están viendo esta transmisión en vivo pueden darse cuenta
+
+如果有并发症的时候
+Cuando haya complicaciones
+
+37亿35亿咱就按万分比
+3.7 mil millones, 3.5 mil millones, tomemos diez mil puntos
+
+一万个(里)
+Dentro de diez mil
+
+有一个37亿是多少个
+?Cuántos son 3.7 mil millones?
+
+你想想它要同时并发, 这个人类不大混乱了吗
+Piensa si al mismo tiempo todos tienen complicaciones, ?no será un gran caos de la humanidad?
+
+你这里边儿, 出来几个王岐山
+Dentro de esto, aparece varios Wang Qishan,
+
+出来几个陈峰, 希特勒
+Chen Feng, Hitler
+
+你这个社会是什么样的
+Cómo será esta sociedad
+
+原视频日期：10/05/2021
+原视频网址： https://twitter.com/se1y7cblljselva/status/1445262169352773633?s=24
+视频时间段：0:00-2:00
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
