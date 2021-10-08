@@ -2,39 +2,21 @@
 ---
 
 
-## 1008早间《抗议新冠疫苗强制令》简讯集：
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1581404/)
+## 秘翻在线:洛杉矶县警长拒绝执行疫苗授权
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1581507/)
 
-作者：文一
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/epa-5.jpg)
+图片:网路
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据《零对冲》报导，11 月 4 日生效的洛杉矶县的疫苗强制规定成为美国最严格的命令之一，它强制要求任何进入酒吧、餐馆、健身房和其他场所的人，须要出示中共病毒疫苗( COVID-19 )接种证明或阴性测试。它同时也强制要求市政府僱员接种疫苗，导致上个月洛杉矶警察局 12,000 名员工中有 24% 寻求疫苗豁免的宗教或医疗豁免。
 
+警长亚历克斯·维拉纽瓦 (Alex Villanueva) 拒绝执行当地的疫苗强制规定，声称如果这样做，他将面临失去多达 10% 警力的风险。维拉纽瓦表示，在 2020 年 6 月，部分因为“废除警察”的运动，导致警察部门预算被削减了 1.455 亿美元，他已经面临失去数百名警察的困境。而在 2021 年的前六个月凶杀案比去年激增 31% ，强制执行中共疫苗规定将进一步增加警力的负担。
 
+维拉纽瓦说： “这就像两个世界中最糟糕的情况，所以我们必须做出选择，”他补充说，如果他颁布洛杉矶市议会10月六日通过的授权，他将“一夜之间”失去 5-10% 的员工。“我不会强迫任何人，”维拉纽瓦说。“问题已经变得政治化。有一整群员工宁愿被解僱，也不愿接种疫苗。”
 
-**家长抗议加州强制毒针接种规定**
-周三，在斯坦尼斯劳斯县教育局外，数百个家庭抗议加州对学童的新冠疫苗接种规定。抗议活动发生在莫德斯托的H街和11街的拐角处，人们举着标语，按响喇叭表示支持。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1008AM-7、8、10.001.jpeg)
-**纽约市教师坚持抗议强制接种授权令**
-政府强制公立学校教师接种毒针的授权于本月正式生效。周一，抗议者从布鲁克林出发，聚集在纽约市教育局外，他们喊着“让我们去教书” 、“我们不会屈从” 等口号，对拜登政府统治下的强迫做法以示反抗。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1008AM-7、8、10.002.jpeg)
-**爱荷华州居民聚集在州议会前抗议**
-周二上午，当爱荷华州国会立法者准备召开特别会议对接种计划重新规划进行投票时，人们聚集在大厦前抗议，反对该州立法要求私营企业对员施行工强制新冠疫苗接种。
+维拉纽瓦也拒绝执行强制戴口罩的命令，他坚定地认为戴口罩的命令没有“科学支持”，他不会强制执行。
 
-**罗马尼亚1.5万人抗议新冠缓解措施**
-星期六，约1.5万人聚集在罗马尼亚首都，抗议政府最近宣布的旨在疫情限制措施。在布加勒斯特，人们聚集在一起，高喊我们要”自由，无需证书的自由”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1008AM-7、8、10.003.jpeg)
-**选举季法国各地坚持反对新冠疫苗抗议活动**
-法国人民连续12周，不间断的在每周六举行抗议活动。上周六，反对强制新冠疫苗接种授权的支持者再次走上法国的街头。大约5万名抗议者态度明确，坚决反对法国政府在夏季前制定的 “疫苗通行证”。仅在巴黎，就有约1万人参加了游行。
+看来，维拉纽瓦是一个有独立思考能力的警长。对于目前全人类都遭受中共病毒疫苗荼毒之际，唯有坚持独立思考、追求真相，才能真正击败那群正在黑暗角落哆嗦惊恐的邪恶势力。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：暗黑
-编辑/校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+消息来源:[Los Angeles County Sheriff Refuses To Enforce Vaccine Mandate](http://Los%20Angeles%20County%20Sheriff%20Refuses%20To%20Enforce%20Vaccine%20Mandate)

@@ -2,37 +2,21 @@
 ---
 
 
-## 秘翻在线：为避免接种中共病毒疫苗 荷兰世界小姐退出选美决赛
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1581137/)
+## 针下亡魂｜美国 16 岁少年接种疫苗 5 日后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1581220/)
 
-#### 翻译发布：文柯Miles
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 8/10/2021**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/asdf6asd6f46rg4t9080k43oktopko.jpg)荷兰世界小姐迪莱·威廉斯坦
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
 
-为了避免接种中共病毒（COVID-19）疫苗，荷兰世界小姐已主动退出 12 月的选美决赛。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/19-2.jpg)
 
-21岁的迪莱·威廉斯坦（Dilay Willemstein）周二在Instagram上发布了这一惊人的消息，她称将“不再代表荷兰登上世界小姐的大舞台”。
+【美国】德克萨斯州一名 16 岁男孩 Ernesto Ramirez 在接种辉瑞 COVID-19 疫苗的 5 日后死亡。 Ernesto Ramirez 4 月 19 日接受第一针疫苗， 4 月 24 日就心脏扩大而过世，尸检显示，他的心脏是正常大小的两倍 。
 
-“这个决定是由于需要接种疫苗，”她承认说，“就个人而言，我还没有准备好。”
+悲伤的父亲一档节目中对主持人表示，在他允许儿子接种之前，他一直在媒体和医学专家的口中知悉“疫苗对青少年安全”，带着失去儿子的痛苦，他现在决定站出来，警告其他人，在考虑使用 COVID-19 疫苗一定要慎重。
 
-“在我获得加冕之后，我们被告知，如果你想去参加世界小姐比赛，就必须接种疫苗，”她进一步向荷兰报纸《Algemeen Dagblad》解释了为什么退出定于12月16日在波多黎各举行的选美决赛。
+来源｜ [个案019](https://www.infowars.com/posts/father-whose-son-died-from-vaccine-induced-heart-inflammation-censored-by-facebook/)
 
-“所以我仔细考虑了一下，我想我根本没有准备好，我感觉不好。”她告诉该报。
+* * *
 
-“这对我来说简直是最好的选择，”她说。“我想，如果我做了一件我实际上感觉不舒服的事情，我会更加后悔。”
-
-荷兰世界小姐协会首席执行官卡蒂亚·梅斯（Katja Maes）告诉AD报纸，他们“没有询问选手的疫苗接种情况”，因为这是他们私人医疗信息的一部分，而且“事先不知道接种疫苗是否会有问题”。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片.png)
-
-梅斯说，协会首先通过 Instagram 帖子听到了消息。
-
-“但我们仍然爱她，为她感到骄傲，并祝她一切顺利，”她坚持说。
-
-迪莱·威廉斯坦被亚军莉兹·多布（Lizzy Dobbe）取代。
-
-![](https://nypost.com/wp-content/uploads/sites/2/2021/10/miss-world-netherlands-34.jpg?quality=90&amp;strip=all&amp;w=1535)亚军 莉兹·多布（右）
-
-“人们必须做出自己的选择，我们必须接受彼此的选择，”莉兹谈到威廉斯坦反对疫苗的立场时说。
-
-原文链接：**[Miss World Netherlands quits pageant final to avoid getting COVID vaccine](https://nypost.com/2021/10/07/miss-world-netherlands-quits-pageant-final-to-avoid-covid-vaccine/)**
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//
