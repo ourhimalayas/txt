@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/9/2021 3:40 PM (UTC)`
+
+Gettr prohibited these followings:<br/><br/>1. No racial discrimination is allowed<br/>2. There is absolutely no room for political discrimination, and any views of different parties are allowed<br/>3. No cultural discrimination is allowed, and all cultures are accepted<br/>4. No room for terrorism<br/>5. No crime, child abuse, violence, or pornography<br/>6. The Gettr must never be used to spread deceptive information<br/><br/>All Gettr's influencers can do the live streaming within a week.<br/><br/>盖特的六个绝对不允许：<br/>1. 绝对不允许有种族歧视<br/>2. 绝对不允许有政治歧视，允许任何不同党派的观点<br/>3. 绝对不允许文化歧视，包容所有文化<br/>4. 绝对不可以有恐怖主义倾向<br/>5. 绝对不可以有犯罪，虐童，暴力，黄色倾向<br/>6. 绝对不可以利用盖特传播欺骗信息<br/><br/><br/>所有盖特的大V在一周内都可以在上面直播
+![img](https://media.gettr.com/group38/getter/2021/10/09/15/bdcb0cf6-ab9f-3e9f-8c76-1df7fc75e986/047d27d50f17ed3fd29b1fe9b66c306c.jpg)
+
+---
+
 `@miles 10/9/2021 3:21 PM (UTC)`
 
 10月9号：我的天呢，太让我感动了……我们亲爱的战友小酒窝和他巨帅的先生……
@@ -287,13 +294,6 @@ September 20th, 2021 — German Corona Investigative Committee Press Conference 
 
 2021年9月20日 德国新冠调查委员会记者会精选片段 (一)<br/><br/>验尸报告的主要病理学家之一 Burkhardt 博士：<br/>1️⃣含有部分病毒（S蛋白）的疫苗可在心肌及其包膜中引起类似的以淋巴细胞为主的淋巴细胞性心肌炎。如果发生在心脏的传导系统中，会导致立即的心脏死亡。即使在尸检中，这也很难诊断。<br/>2️⃣他观察到所有器官和所有组织中的淋巴细胞"疯狂"异常增生，免疫反应过度，即自我攻击 - 淋巴器官的激活，以及浸润和非淋巴器官中淋巴滤泡的形成。<br/>3️⃣告诉你疫苗引起的心肌炎在年轻人和运动员中的后果。 <br/><br/>记者会完整版链接 (德文原版)：https://gtv.org/video/id=614b401442a8af3151a34afa<br/>记者会完整版链接 (英文字幕)：https://gtv.org/video/id=61598e4c304e992109ae6487<br/>记者会完整版链接 (中文字幕)：https://gtv.org/video/id=61588b8f304e992109ae20b0
 ![img](https://media.gettr.com/group21/origin/2021/10/07/00/02/75e2bed2-0bd1-9b10-5e85-28892debdb99/out.jpg)
-
----
-
-`@miles 10/6/2021 4:17 PM (UTC)`
-
-10.6:太棒了👏
-![img](https://media.gettr.com/group38/getter/2021/10/06/16/17/b223d41d-db47-7354-d0e8-a9489f572031/out.jpg)
 
 ---
 

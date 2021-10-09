@@ -2,24 +2,32 @@
 ---
 
 
-## 有声|美快速攻击潜舰印太海域 撞击不明物体
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1583781/)
+## 英国主媒为毒针冬季死亡潮铺设诱因
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1583898/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-美国海军7日公布，一艘核动力潜舰2日在印太海域水下执行任务时，撞击到不明物体受损，并有10多人轻中度受伤。各方猜测，撞击物可能是沉没船只、货柜等其他物体。
+作者：安吉拉
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+截至本月7日，全球46.3%，即36亿人口已至少接种一剂新冠疫苗。在英国，包括本月开始执行的中学接种令，该比率已突破78.4%。主流媒体和当地政府对疫苗危害多方掩盖，但这不会阻止病毒及毒针导致的次生灾难的爆发。
 
-此次发生事故的是“海狼级”核动力快速攻击潜舰“康乃狄克”（USS Connecticut）号，事故发生时正在印度太平洋地区的国际海域执行任务。 海狼级潜艇是冷战后期的攻击性潜艇，是美国海军最有能力和最敏感的攻击艇，旨在猎杀深蓝水域最复杂的苏联潜艇。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-6.jpeg)
 
-康乃狄克号自事件发生后保持水面航行，正前往关岛靠岸。国防官员证实这次水下打击发生在南中国海，但未透露任何细节。
+本周英国全国性媒体，及地方平台接连发布通稿，警告英国将迎来50年以来最糟糕的冬天，国家医疗服务系统领导人担心，今年流感将造成约6万人死亡；疫情以来，英国大量健康检查和临床手术已经取消或延期。卫生专家表示，医院和卫生系统承受巨大压力，更将无法应对激增的各类呼吸道感染病例。
 
-从周六计算，时隔5天后此事件才被报道，期间中共军方罕见沉默。印太地区目前由于中共的挑衅，正处于紧张的火药库状态，任何的军事事故都有可能造成区域性的紧张态式，需谨慎观察后续发展。
+早些时候，主媒发布英格兰部分地区发生大肠杆菌水污染警告，人均财富高水平的萨利郡和肯特郡大约有6500户居民受到影响。昨日东南水务公司表示调查结果表示受污染的水并未离开处理厂，但当地媒体提醒居民切勿大意。
 
-文字版原文：[美快速攻击潜舰印太海域撞击不明物体](https://gnews.org/zh-hans/1581612/)
+不管是在东南亚、美国还是含欧洲在内的西方国家，新冠疫苗造成的终身病患和死亡病例与日俱增。疫苗毒针是生化战争的辅助武器，控制人类基因，导致广泛的死亡和人道主义灾难。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
+(本文仅代表作者观点)
+
+参考链接：[Health officials fear up to 60,000 flu deaths this winter](https://www.independent.co.uk/news/health/covid-flu-vaccine-latest-deaths-b1934218.html)
+[Coronavirus (COVID-19) Vaccinations](https://ourworldindata.org/covid-vaccinations?country=GBR)
+[Influenza deaths in 2018, 2019 and 2020](https://www.ons.gov.uk/aboutus/transparencyandgovernance/freedomofinformationfoi/influenzadeathsin20182019and2020)
+[E. coli scare: Water company gives update after fears of contaminated supplies to thousands of homes in Surrey and Kent](https://www.getsurrey.co.uk/news/surrey-news/live-surrey-water-e-coli-21798873)
+
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/校正/发稿：谐趣园
+
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
