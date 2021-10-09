@@ -2,34 +2,21 @@
 ---
 
 
-## 罗马反绿色护照游行发生严重骚乱
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1584310/)
+## 一般灾害？中共对陕、晋两省水灾启动Ⅳ级救灾应急响应
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1584394/)
 
-新闻来源：德国法兰克福报网络版
+#### 撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/34534.jpg)（图片来源与信息来源一致）
+10月9日央视新闻网站报道，国家减灾委、应急管理部针对陕西、山西两省近期严重洪涝灾害，启动国家Ⅳ级救灾应急响应，派出工作组赶赴灾区实地查看灾情，指导和协助地方做好受灾群众转移安置和基本生活救助等工作。
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+截止昨天收到最新消息，山西在本次强降雨停产煤矿126座、转移5.5万人，停工在建工程231个，关闭景区74个 。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/demonstranten-und-polizisten.jpg)
+气象灾害预警信号级别依据可能造成的危害程度、紧急程度和发展态势一般划分为四级：Ⅳ级（一般）、Ⅲ级（较重）、Ⅱ级（严重）、Ⅰ级（特别严重）。这次预警评估为Ⅳ级，影响几万人的决堤水灾，在独裁者眼里也就是一般灾害。并且3日发生暴雨，时隔6天后的9日才启动应急响应，这就是中共独裁体制视人命为儿戏的本质。
 
+[信息来源](http://app.cctv.com/special/cportal/detail/arti/index.html?id=ArtiDF2F7kWqet7rR7Ga1mwD211009&amp;fromapp=cctvnews&amp;version=807)
 
-资料来源：FAZ
+(文章仅代表作者本人观点，与GNEWS无关)
 
-反对意大利政府病毒政策的抗议活动导致罗马发生严重骚乱。周六，数千名示威者在首都街头游行，并多次与警方发生冲突。
-
-发生了暴力冲突，警察使用警棍、胡椒喷雾和高压水枪。示威者试图突破障碍，并依次投掷椅子和炸弹。
-
-傍晚，抗议者冲进了意大利最大的工会 CGIL 的总部。他们用棍棒和旗杆攻击保安和警察，然后推门进入大楼。
-
-政客们震惊了。总理马里奥·德拉吉谴责街头暴力，强调工会是民主和工人权利的保障，任何恐吓企图都应受到严厉惩罚。
-
-CGIL 总书记 Maurizio Landini 称这次袭击是“有组织的法西斯暴力行为，是对我们的民主和整个工作世界的袭击。没有人应该相信他们可以将我们的国家推回法西斯时代。”
-
-在意大利，针对冠状病毒大流行的进一步措施将于下周生效。从 10 月 15 日起，私营或公共部门的每位员工都必须持有所谓的“绿色护照”，即必须具有疫苗接种、康复或阴性测试的证明。对这本护照的批评者和疫苗接种的反对者最近引发了反对该措施的情绪。
-
-[https://www.faz.net/aktuell/politik/ausland/schwere-ausschreitungen-bei-corona-demos-in-rom-17577887.html](https://www.faz.net/aktuell/politik/ausland/schwere-ausschreitungen-bei-corona-demos-in-rom-17577887.html)
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-
-校对：旦旦
-
-责任编辑/发布： Shuizhuyu
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

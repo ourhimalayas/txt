@@ -2,21 +2,30 @@
 ---
 
 
-## 秘翻在线：十一节后中共政法高层点名孙力军傅政华，政治余震持续
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1583795/)
+## 北约秘书长表示, 欧洲要联合美国应对中共挑战!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1583840/)
 
-**撰稿：Ping**
+作者：云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月8日, 北约秘书长斯托腾伯格与西班牙总理桑切斯会面, 讨论2022年在西班牙主办北约峰会事宜, 在会面后的记者会上, 斯托腾伯格称 ：”当前国际竞争日益激烈，中共展示其经济及军事力量, 是在恐吓和要挟各国。欧洲、美国必须共同应对这一挑战!”
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-09-233743.jpg)
-据人民法院新闻传媒总社消息，10月8日，中共中央政治局委员、中央政法委书记、全国政法队伍教育整顿领导小组组长郭声琨出席全国第二批政法队伍教育整顿工作推进会并讲话。郭声琨强调，坚决拥护党中央对孙力军严重违纪违法问题的处理决定和对傅政华涉嫌严重违纪违法问题进行纪律审查和监察调查的决定。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-15.jpeg)
 
-除了郭声琨之外，出席会议的还有8位全国政法队伍教育整顿领导小组副组长：
+今年6月，北约布鲁塞尔峰会后的公报中，就曾指出中共的胁迫性政策, 以及近年持续增扩的核武库，都对北约安全构成系统性的挑战。斯托尔滕贝格在6月也示警，俄罗斯与中共结盟, 不仅在联合国互相配合，还交流武器系统及共享网络监控资源,都对多边主义国际秩序造成威胁，使得北约越来越重视应对来自中共的挑战 和企图统治世界的野心。
 
-赵克志（公安部部长）、周强（最高人民法院院长）、张军（最高人民检察院检察长）、喻红秋（中央纪委副书记）、傅兴国（中央组织部副部长）、陈一新（中央政法委秘书长）、陈文清（国家安全部部长）、唐一军（司法部部长）。
+(本文仅代表作者观点)
 
-从与会人员的名单中我们不难看出习派占了上峰，在中共国这个绞肉机的体制下。每一个体制内的共产党员都是砧板上的肉，谁都不知道下一个被剁的是不是你！并且，整顿小组长郭声琨的“正义“讲话，并不能代表郭声琨就是一个伸张正义，为民除害的清官。共产党以贪反贪治国，无论谁沦为阶下囚，都只能是政治斗争的牺牲品，而不是因为犯人本身的罪恶滔天。因为中共国哪一个爬到高位的官员不是踏着别人的尸体发迹的。
+参考链接：[北約秘書長：中國展示經濟和軍事力量恫嚇他國](https://www.cna.com.tw/news/aopl/202110080404.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-同时，十一节日过后，重提孙力军，傅政华的违纪违法的调查决定。是否是双规“政法虎“的余震呢？郭文贵先生爆料，孙力军，傅政华的审查报告中，都没有提及其杀人灭口的相关案件。那么，是否就意味着，此二人的锒铛入狱，还没有把真正的大料深挖出来。今天的重提，是否再震一震那些与孙，傅二人相关的大佬们地基，松一松土，为接下来的党内血雨腥风的政治斗争做一些铺垫？那么到底是王岐山，孟建柱被拿下呢？还是习近平突然暴毙呢？我们拭目以待！
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-**[资料来源](https://news.sina.cn/2021-10-09/detail-iktzscyx8569095.d.html?from=wap)**
+新闻访谈终审：文龍
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
