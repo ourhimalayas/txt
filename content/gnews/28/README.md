@@ -2,20 +2,25 @@
 ---
 
 
-## 136个国家就最低公司税率达成一致 但落地实施难度颇大
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1582764/)
+## 默克的新冠（口服）药片对中度感染者起效甚微？据印度监管当局消息
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1582858/)
 
-#### 翻译：坤霆
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-17.jpg)图片来源：网络截图
-10月8日，据 CNN 报道，全球136个国家已同意一项全球条约，该条约将以最低15%的税率对大型跨国公司征税，并要求公司在其开展业务的国家纳税。签署该国际条约的国家占全球GDP的90%以上。
+**翻译：雨季仰光**
 
-爱尔兰于7月拒绝加入最初的协议，该国公司税率为12.5%——这是说服Facebook，Apple和Google等公司将其欧洲总部设在爱尔兰的主要因素。但其在周四也加入了该协议，原因是删除了协议中“税率至少15%”的规定。
+**校对：卡拉马佐夫姐姐**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211009-默克的新冠（口服）药片对中度感染者起效甚微？据印度监管当局消息.png)
+**图片来源：****https://news.yahoo.com/covid-merck-to-supply-spore-with-antiviral-drug-molnupiravir-044025404.html**
 
-经合组织预计该协议将于2023年开始执行。但即使爱尔兰和其他之前的抵制者现在加入，该协议仍然要求各国通过国内立法。
+据路透社新德里10月8日报道，一个来自印度药物控制中心的消息透露，默克制药（Merck & Co’s）的实验性抗病毒药物莫纳皮拉维（Monupiravir）对于中度的新冠患者并未显示出“显著疗效”。
 
-政治风险咨询公司欧亚集团的分析师在本周的一份说明中写道，与《巴黎气候协议》一样，在坚定的政治支持后结束技术会谈很容易，执行该协议将证明更具挑战性。该条约需要以美国参议院三分之二多数的票批准，鉴于它允许外国对美国公司征税，这不太可能批准。
+周五，监管机构的专家委员会表示，（印度）阿拉宾度制药公司（Aurobindo Pharma Ltd）希望中止对于新冠中度患者的后期实验。
 
-华盛顿推迟实施反过来可能会促使法国等欧洲国家对美国科技公司征收数字税，引发美国和欧洲之间的贸易争端。
+“此药对于新冠中度患者并无明显疗效，而只是对于轻症病例有效，”鉴于讨论的敏感性，消息人士在匿名情况下这样评述。
 
-原文链接：[136 countries agree to minimum corporate tax rate after Ireland drops its opposition](https://edition.cnn.com/2021/10/08/business/ireland-global-tax-deal-oecd/index.html)
+监管部门和卫生部对于请求置评的要求未及时做出回应。
+
+评：
+
+这一不愿具名的内部知情人士或许是在实际临床实验数据支持下才出于良知才向媒体透露这一消息，但是迫于压力和某种担忧才匿名爆料，这仅仅是笔者的猜测。默克作为生产对中共病毒感染有效的伊维菌素的厂家，具体该新药有哪些成分，相信很快会得到其他来源的更多反馈，我们拭目以待！
+
+#### 新闻来源：[Merck drug less effective against moderate COVID -India regulatory source](https://www.reuters.com/business/healthcare-pharmaceuticals/merck-drug-less-effective-against-moderate-covid-india-regulatory-source-2021-10-08/)
