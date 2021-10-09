@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/9/2021 1:49 PM (UTC)`
+
+脸书禁止人们提及众所周知的疫苗伤害<br/><br/>Facebook prohibits people from mentioning the vaccine injuries that we're all aware of<br/>
+![img](https://media.gettr.com/group43/getter/2021/10/09/13/49/9bb504ff-d9a7-52c5-f6d6-58ca652d2b8e/out.jpg)
+
+---
+
+`@miles 10/9/2021 1:45 PM (UTC)`
+
+波索比克谈台海：普京拿下克里米亚，中共将军们想同样方式拿下台湾<br/><br/>Posobiec: CCP generals want to take Taiwan the same way Putin took Crimea<br/>
+![img](https://media.gettr.com/group14/getter/2021/10/09/13/45/b81c4130-117a-622e-24d5-f06d2df7aaad/out.jpg)
+
+---
+
 `@miles 10/9/2021 1:35 PM (UTC)`
 
 Taiwan is in great danger: Xi Jinping addresses the 110 years anniversary of Xinhai Revolution , releases strong signal to unify Taiwan by force<br/><br/>台湾危险了：习近平发表辛亥革命110周年演讲发出强烈信号，坚决要完成武统台湾<br/>
@@ -280,20 +294,6 @@ September 20th, 2021 — German Corona Investigative Committee Press Conference 
 
 A Pfizer scientist ran away when asked by an investigative reporter to publicly repeat what he said in private about natural immunity being better than Covid vaccine.<br/><br/>当调查记者要求他公开重复他在私下所说的关于中共病毒的自然抗体好于疫苗抗体时，辉瑞公司的一名科学家跑掉了
 ![img](https://media.gettr.com/group4/getter/2021/10/06/13/43/5804f82c-b20e-2cca-3bb8-bd29c22d0fa9/out.jpg)
-
----
-
-`@miles 10/6/2021 1:29 PM (UTC)`
-
-大胡子医生：疫苗不是用来对抗病毒的，释放病毒是为了引入疫苗<br/><br/>Dr. Zelenko: Vaccines are not for combatting the virus, but releasing the virus was to introduce the vaccines
-![img](https://media.gettr.com/group19/getter/2021/10/06/13/29/763897d7-3158-89fc-2751-99a98d2e593e/out.jpg)
-
----
-
-`@miles 10/6/2021 1:16 PM (UTC)`
-
-大胡子医生：疫苗可能造成多种致命疾病，引发潜在的种族灭绝事件<br/><br/>Dr. Zelenko: The vaccines may cause various fatal diseases, which could be potentially genocidal
-![img](https://media.gettr.com/group43/getter/2021/10/06/13/16/724195d5-4ff4-43a1-4a3a-704432081377/out.jpg)
 
 ---
 
