@@ -2,35 +2,22 @@
 ---
 
 
-## 罗昌平因质疑长津湖战役被刑事拘留
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1582520/)
+## 民调显示信息误导问题已经引发美国人担忧
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1582691/)
 
-作者：AsG諾雅
+#### 翻译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-18.jpg)图片来源：半岛电视台
+美联社10月7日华盛顿报道，一项抽样调查了1071名成人的民调显示，几乎所有美国人都认为误导信息的广泛传播是个问题。
 
+据皮尔森研究所和负责公共事务研究的国家教育研究院（NORC）进行的一项最新民意调查显示，多数人认为有人利用社交媒体误导大众，因而社交媒体公司在很大程度上应该受到谴责。但也有人认为发信息者自己应该负责任。
 
+95%的美国人认为当他们试图寻找一些重要信息时，信息误导是个问题。半数美国人认为政府负有责任，3/4的美国人认为社交媒体用户和高科技公司负有责任，只有20%的美国人认为发布误导信息者应该负责。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-15.png)
+一位肯塔基州33岁的研究生卡曼·斯贝勒说，当她与家庭人员讨论冠状病毒疫情时，显然大家的意见不一致，她相信疫苗，但她家人不相信，她认为她家人在电视和有问题的新闻媒体看到的信息使得他们不愿意打疫苗。而她的家人认为她疯了——怎么会相信政府关于中共病毒的信息？
 
+有20%的人很担心他们传播了误导信息。61%的共和党人认为美国政府对传播误导信息负有责任，而只有38%的民主党人同意此观点。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture12-1.jpg)
-10月8日，据消息称，微博账号“@罗昌平”于10月6日发布所谓“诋毁英烈”的内容，其账号根据相关规定予以关闭处理。同日，海南三亚市公安局吉阳分局发布警情通报指，10月7日接到相关举报，罗某平以涉嫌所谓”侵害英雄烈士名誉、荣誉罪”被刑事拘留。 据悉，中共的洗脑大片《长津湖》引起了观众的一系列讨论，当中，所有质疑电影制作水平和历史还原度的影评均被官方删除，相关公众号也被封禁。至于罗昌平的被拘，则是因为他在微博上写了一篇关于该电影的短评称：“半个世纪之后国人少有反思这场战争的正义性，就像当年的沙雕连不会怀疑上峰的’英明决策’。” — “沙雕”是愚蠢和无脑的网络用语。 罗昌平曾任《中国商报》首席记者、《新京报》深度报道部主编、《财经》杂志副主编。此次罗昌平的被拘，加之中共这一系列文化领域的言论审查，让人不得不思索，中共的内斗是否已经完全处于白热化阶段。
+而对于社交媒体，如脸书、推特和油管所起到的传播误导信息的作用，这种两党的分歧则不再明显，79%的共和党人和73%的民主党人都认为社交媒体对误导信息的传播负有很大责任。
 
-（本文仅代表作者观点）
-
-参考链接：
-1. [罗昌平因质疑长津湖战役被刑事拘留](https://www.dw.com/zh/%E5%9B%A0%E5%8F%91%E8%A1%A8%E4%BE%AE%E8%BE%B1%E8%8B%B1%E7%83%88%E8%A8%80%E8%AE%BA-%E5%AA%92%E4%BD%93%E4%BA%BA%E7%BD%97%E6%98%8C%E5%B9%B3%E8%A2%AB%E5%88%91%E6%8B%98/a-59450773)
-2. [罗昌平因质疑长津湖战役被刑事拘留](https://3g.163.com/dy/article/GLQMGIJT055040N3.html?spss=news-hotlist-wap-index)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-08-at-10.11.51-PM.png)
-
-新闻访谈终审：Q大哥
-编辑/校对/审核：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-15.png)
+新闻来源：[Americans agree misinformation is a problem, poll shows](https://apnews.com/article/coronavirus-pandemic-technology-business-health-misinformation-fbe9d09024d7b92e1600e411d5f931dd)

@@ -2,23 +2,31 @@
 ---
 
 
-## 秘翻在线：中共若武力攻击台湾 大多数美国人支持出兵干预
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1582771/)
+## 捍卫新闻自由两记者获诺贝尔和平奖 极权中共不敢正面报道
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1582866/)
 
-#### 撰稿：彩虹
+作者：东京樱花团｜文小白
+![](https://lh4.googleusercontent.com/89CFK7JgxSuD6BUFSX_l2jjnrDwKXDaVSXVoCiSsberkIoj4_XM0yy5N7V3XjVd5gNDDEjWG0wtz0YfDF6wonGVQ_U0A_Z1zNMHO0tygpDjSeFfTTeSqZvrEFi-zjRYM7d4LrbYW=s0)[*图片来源*](https://gdb.voanews.com/476F496D-6387-4BF5-A8BC-22BDCC2D3AE8_w1597_n_r1_st.jpg)
+菲律宾和俄罗斯的两名调查报道记者被挪威诺奖委员会评为2021年度诺贝尔和平奖。以奖励他们在坚持言论自由方面所作出的贡献。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-16.jpg)图片来源：Daily Advent
-10月7日，《国会山报》（The Hill）发布文章，报道民意调查结果显示，如果中共武力攻台，大多数美国人支持出兵干预。
+据[美国之音10月8日消息](https://www.voachinese.com/a/Two-Reporters-Win-Nobel-Peace-Prize-20211008/6262962.html)，菲律宾新闻网站Rappler的执行长玛丽亚•雷沙（Maria Ressa）和俄罗斯独立媒体“新报”总编辑德米特里•穆拉托夫 （Dmitry Muratov）获得了2021年度诺贝尔和平奖。诺奖委员会表示，之所以向他们颁发和平奖是因为他们在坚持言论自由方面所作出的贡献。
 
-芝加哥全球事务委员会（The Chicago Council on Global Affairs）成立于1922年，是美国知名非营利性国际事务机构。7月7日至7月26日期间，芝加哥全球事务委员会对2086名成年人进行了民意调查，误差率为正负2.33个百分点。
+- ***延展阅读：***[***诺贝尔和平奖***](https://zh.m.wikipedia.org/wiki/%E8%AF%BA%E8%B4%9D%E5%B0%94%E5%92%8C%E5%B9%B3%E5%A5%96)
+- ***延展阅读：***[***刘晓波获2010年诺贝尔和平奖***](https://www.voachinese.com/a/article-2010-nobel-peace-prize-106584438/845653.html)
 
-民意调查结果显示，自2019年以来，如果北朝鲜攻击韩国、中共武力犯台、以色列受到攻击或俄罗斯攻击北约盟友时，超过50%的美国人支持出兵干预。
 
-根据台湾国防部长的说法，随着台湾和中国大陆之间的紧张局势达到40年来的最高点，如果中共入侵台湾，52%的美国人支持出兵干预。而在2019年，只有41%的人支持。
+穆拉托夫今年59岁，是前苏联领导人戈尔巴乔夫之后首次获得诺贝尔和平奖的俄罗斯人。雷沙今年58岁，是首位获得诺贝尔和平奖的菲律宾人。
 
-其他的调查项显示，如果北朝鲜攻击韩国，63%的美国人支持出兵干预；如果以色列受到攻击，53%的美国人支持出兵干预；如果俄罗斯对北约入侵，则59%的美国人支持出兵干预。
+俄罗斯对穆拉托夫获奖作出了积极的回应，祝贺他因努力保护言论自由而获得和平奖。普京的发言人佩斯科夫对媒体表示，“我们祝贺他，他才华横溢，勇气十足。”
 
-**新闻来源**
+- ***延展阅读：***[***中国被评为新闻和言论自由的最大敌人***](https://www.voachinese.com/a/world-press-freedom-day-China-considered-world-s-worst-enemy-to-journalism-20210503/5874979.html)
 
-[Majority supports American troop intervention if allies targeted: poll](https://thehill.com/policy/defense/575737-majority-supports-american-troop-intervention-if-allies-targeted-poll)
+
+相比之下，中共官方对此极为低调，各家媒体基本上都是转发中国新闻社发出的一句话简讯：“挪威诺贝尔委员会刚刚宣布，将2021年诺贝尔和平奖授予玛丽亚•雷沙和德米特里•穆拉托夫 ，以表彰二人做出的贡献。”这条新闻简单得连两名获奖人做出什么贡献都没有交待。
+
+中共喉舌人民日报旗下的环球时报的国际版也转发了这条新闻，但很快就遭到了屏蔽，点开该网站这条新闻后看到的只有“404”和“Sorry”的字样。
+
+（本文只代表个人观点，与Gnews网站无关）
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

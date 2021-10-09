@@ -2,25 +2,17 @@
 ---
 
 
-## 千亿房企新力传资金链紧张！已出现停工……
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1582811/)
+## 冠状(中共)病毒致拉丁美洲超过150万人死亡
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1582886/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/下载-1-1-e1633758633252.jpg)
-网易新闻10月7日报道，港股上市公司新力控股集团自9月20日开盘后股价一路暴跌，跌幅达到89.09%，市值仅剩14.64亿港元。新力股票随后停牌。惠誉、标普近期都将新力的评级下调为负面。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10092.jpg)
+根据官方数据，拉丁美洲和加勒比地区的冠状(中共)病毒大流行造成的死亡人数已超过 150 万人。 截至到目前，巴西的冠状(中共)病毒死亡人数超过了 60 万，巴西也是全球第二大受疫情影响最严重的国家，仅次于美国。
 
-新力曾是地产界的明星，仅用了10年就从2010年创立到千亿规模。截至今年6月30日，新力控股总负债为918亿元，总负债率近82%。“钱紧”最直观的表现就是项目烂尾。新力被爆在全国多个楼盘停工！
+秘鲁反而是美洲次大陆死亡率最高的国家，每 10 万居民中有 605 人死于新冠病毒。
 
-新闻参考链接：[https://c.m.163.com/news/a/GLMDSKI20552IABV.html?spss=newsapp](https://c.m.163.com/news/a/GLMDSKI20552IABV.html?spss=newsapp)
+免责申明：本文只代表译者观点，与Gnews无关
 
-编辑：胖丁
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/10/09/covid-lamerica-latina-supera-quota-15-milioni-di-morti\_4ac111a5-413a-4853-93da-a6936f206e7f.html](https://www.ansa.it/sito/notizie/topnews/2021/10/09/covid-lamerica-latina-supera-quota-15-milioni-di-morti_4ac111a5-413a-4853-93da-a6936f206e7f.html)
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦

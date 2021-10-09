@@ -2,18 +2,17 @@
 ---
 
 
-## 《欢乐满屋》女星明确表态坚决捍卫医疗自由
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1582692/)
+## 秘翻在线：重磅！接种Covid疫苗后14天死亡率接近1/1000
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1582801/)
 
-#### 编译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-25.jpg)图片来源：网络截图
-据 PageSix报道，曾参演过经典美剧《欢乐满屋》（Full House）的女明星坎迪斯·卡梅隆·布雷（Candace Cameron Bure）在她的Instagram账户上明确表态她对中共病毒疫苗的立场 ，”我不反对疫苗，我只是支持医疗自由和免疫系统。”
+撰稿：小韭菜ａ
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-09-135351.jpg)
+9月25日，一位吹哨人透露，基于医疗保险和医疗补助服务中心的数据（CMS），仅在美国Medicare患者中，就有 48,465 名患者在接种 COVID 疫苗后的14天内死亡。这是由俄亥俄州的医疗自由律师托马斯·伦茨 (Thomas Renz) 宣布的。
 
-这位45岁的明星之前在Instagram Story上表示，“我不能再对疫苗强制规定保持沉默了。虽然我不会向你透露我的疫苗接种情况，但我绝对反对任何地方的疫苗强制规定，我们必须大声疾呼。……我们可以有不同的意见，但应仍然尊重和爱对方。”
+CMS 数据库是美国最大的COVID趋势研究数据库。它包含约5940万医疗保险受益人的数据。5000多万人中有近5万人死亡，而且仅仅是在注射疫苗后的14天内。这一消息令公众震惊。政府当局是否一直在通过让医务人员将许多疫苗引起的死亡归类为与疫苗无关的死亡来操纵COVID数据，这都需要进一步调查。伦茨展示了医疗保险数据服务器原始数据的截图，并补充说，死亡人数仅基于不超过美国人口 20% 的人群。
 
-布雷的反强制立场至少可以追溯到2015年，当时她在脸书上写道，她尊重她孩子的学校，让他们在疫苗问题上有所选择。
+此外，杰西卡·罗斯（Jessica Rose）也是医学博士，她基于VAERS系统对COVID相关数据进行了综合研究和分析后，得出结论：COVID 疫苗可能已经杀死了至少 150,000 名美国人。
 
-其他公开反对中共病毒疫苗的名人包括莱蒂亚.赖特（Letitia Wright）、薇琪.冈沃森（Vicki Gunvalson）、杜岑.克罗斯（Doutzen Kroes）和埃里克.克莱普顿（Eric Clapton）。
+医疗行业一直在操纵和隐瞒事实，压制人们对疫苗真相的了解，同时美国加拿大等政府还在不遗余力地强制疫苗接种，而媒体和大型科技公司也竭尽所能打压封杀民众质疑的声音、甚至杜撰虚假消息。只有爆料革命和新中国联邦自始至终都在不遗余力地传播疫苗真相、拯救人类。这将是未来新中国联邦的一大功绩。
 
-新闻来源：[Candace Cameron Bure: I’m not anti-vax, I’m just pro-medical freedom](https://pagesix.com/2021/10/08/candace-cameron-bure-im-not-anti-vax-im-pro-medical-freedom/?utm_campaign=iphone_p6&amp;utm_source=pasteboard_app)
+新闻来源：[https://greatgameindia.com/50000-vaccine-deaths-14-days/](https://greatgameindia.com/50000-vaccine-deaths-14-days/)
