@@ -2,54 +2,12 @@
 ---
 
 
-## 公开反对维州政府借疫情强制执法的高级警长辞职
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1582247/)
+## 2021年10月08日澳喜要闻（每日更新）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1582319/)
 
-#### 编译报道：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/打倒-17.png)
-图片来源：Exclusive：EthicalPolicing in Victoria
+撰稿：GTV澳喜影像视频组、新闻组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/901-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/902-scaled.jpg)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-10月8日，澳大利亚维多利亚州警界的一名高级成员已经辞职，原因是安德鲁斯政府存在与政治影响有关的道德问题，以及现役警官与普通民众之间的关系不断恶化。
-
-在过去的几个月里，维州警察和反恐部队在公众自由集会上频频袭击抗议者的录像在世界各地广为流传。
-
-周五晚上，代理高级警长克里斯特尔·米切尔（Krystle Mitchell）接受了独立媒体平台的马修·黄（Matthew Wong）的独家采访。
-
-米切尔很早就宣布，由于公开反对维多利亚州警察和州长丹尼尔·安德鲁斯，她将辞去自己的职务。
-
-“我公开站出来的后果是被解雇”，米切尔承认：“我之所以选择辞职，是因为我无法再从灵魂深处弥补我所工作的组织，它对维州警察的声誉和对公众社区造成严重的伤害。”
-
-维州警察不允许发表反对警察部队的言论或表达政治观点。最近对警察业务守则的修改，特别打击了在个人社交媒体账户上发布涉及政治话题的行为。
-
-【备注：维州这些禁止言论的方法应该师从中共国】
-
-“我所有的朋友都是一线工作的警察，每天都在为执行首席卫生官（CHO）的指令而受罪，而绝大多数人——都不相信也不想执行。”
-
-目前还没有对维州警察进行官方调查，以准确衡量对CHO指令的认可程度，米切尔说他们不敢进行调查。她的观点与数百名同行的个人谈话有关。
-
-米切尔指出，自疫情爆发以来，现在的维州警务方式已经发生完全改变。
-
-警方出台的新指令让社区感到害怕，尤其是旨在强制遵守卫生命令的“保证巡逻”。现在警察被疏离了严重刑事案件，而是被派到墨尔本街头监视聚集在抗议现场的人。米切尔说，大多数人在那里，以和平方式表达他们对CHO命令正在对他们的生活产生“严重影响”的担忧。
-
-“我讨厌这种分裂的语言正在被使用”，米切尔补充说：“把抗议称为‘非法’，只是觉得很可笑。抗议是非法的唯一原因是丹尼尔·安德鲁斯让这样做了。”
-
-米切尔感到失望的是，维州警方和安德鲁斯政府没有合作制定计划，以促进安全、和平的抗议，尤其是因为政府已经发布了一系列其他例外的CHO命令。
-
-丹尼尔·安德鲁斯将抗议活动视为非法，他应对警察和抗议者所导致的暴力事件增加负责。在我看来，丹尼尔·安德鲁斯将“抗议”作为非法行为，使（警方）暴力升级。
-
-现在普通民众对警察的态度发生了变化，许多人不愿与警察进行眼神交流。甚至米切尔承认，当她穿着便衣下班时，在警察身边她也感到紧张。
-
-维州警方如此大胆地执行CHO要求相关行动，背后是安德鲁斯的支持。
-
-米切尔和警察工会的数百名反对维州政府的其他成员，打算将他们反对强制性疫苗接种的斗争推向法庭。
-
-新闻链接：[Acting Senior Sergeant QUITS Victoria Police to break her silence on Covid enforcement (rebelnews.com)](https://www.rebelnews.com/acting_senior_sergeant_krystle_mitchell_quits_victoria_police)
-
-编辑/发布：文泓
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

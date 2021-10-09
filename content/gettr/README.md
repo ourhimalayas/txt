@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/9/2021 4:07 AM (UTC)`
+
+10月8号：共产党的以孙灭台，武统台湾，宣讲大会结束，台湾危了！
+![img](https://media.gettr.com/group24/getter/2021/10/09/04/3986a618-99b8-c26d-f559-27819e457db3/3934b041c72fdf325376fcf71a1a0f2e.jpg)
+
+---
+
+`@miles 10/9/2021 4:06 AM (UTC)`
+
+10/08/2021Miles Guo’s GETTR: The West and the Jiang faction are waiting for something to happen to Xi; The fundamental goal of the Sino-US meeting in Switzerland is to fool Xi Jinping so he won’t invade Taiwan and to make the CCP buy the US Treasury securities; Both the CCP and the US are playing with fake politics and economy, while Taiwan and the Lao Baixing will be sacrificed<br/><br/>10/08/2021 文贵盖特：西方和江派都在等着习出事；中美瑞士会谈的根本目的是糊弄习近平不打台湾并让中共买美国国债；中共和美国都在玩假的政治和经济，而被牺牲的却是台湾和老百姓<br/>
+![img](https://media.gettr.com/group8/getter/2021/10/09/04/06/cdb6be07-0a0d-20cf-ce97-2a7bac895ea3/out.jpg)
+
+---
+
 `@miles 10/9/2021 3:42 AM (UTC)`
 
 10/08/2021 Miles Guo’s GETTR: This world is changing so quickly and dramatically, Facebook, WhatsApp & Instagram is experiencing internal management and technical disasters; Mark Zuckerberg’s sins and crimes run deeply, and it’s not too much to call him “Zucktler” (Hitler)<br/><br/>10/08/2021 文贵盖特：世界变化太快了，Facebook、WhatsApp、Instagram正经历内部管理和技术的大崩溃；扎克伯格罪孽深重，称其为“渣特勒”也不为过<br/>
@@ -28,13 +42,6 @@
 
 10/7/2021 Miles Guo: During the so-called 120 days of war preparations, the CCP will resume its worldwide campaign of releasing viruses and building biological labs to crush the global economy and financial markets; their objective is to invade and divide up Taiwan [among the ruling families within the CCP] and destroy Japan and Australia. Will they succeed in their evil plans? 90% of the duration of the meeting between Jake Sullivan and Yang Jiechi was dedicated to the purchase of US Treasury bonds.<br/><br/>10/7/2021 文贵直播：中共企图借所谓的备战120天，继续在全世界放毒、建生化实验室，试图全面打击世界经济、摧毁金融市场，攻占、瓜分台湾、弄死日、澳，共产党会得逞吗？杨洁篪、沙利文会面9成在谈购买国债。<br/>
 ![img](https://media.gettr.com/group13/getter/2021/10/09/03/04/2a26ac6f-613b-ea40-cb67-3055ef0e8bc4/out.jpg)
-
----
-
-`@miles 10/9/2021 3:03 AM (UTC)`
-
-4月8号：共产党的以孙灭台，武统台湾，宣讲大会结束，台湾危了！
-![img](https://media.gettr.com/group18/getter/2021/10/09/03/3e5704e4-fe63-2318-5c93-fcc851a3aa96/8e8f52a7149790716b7b009b9f6c7dac.jpg)
 
 ---
 
@@ -287,13 +294,6 @@ Attorney Thomas Renz: If you get the vaccine, you are more likely to get Covid. 
 
 10/05/2021 Miles Guo’s GETTR: The par value of the CCP’s fake and fraud banknotes is shocking, and by working and colluding with Wall Street, the Chinese people have been slaves for the whole world for 21 years (commencing from CCP joining WTO); the CCP China’s fake finance and market will for sure explode, which will trigger the global bankruptcy & collapse <br/><br/>10/05/2021文贵直播：中共国的假骗金融票据数字惊人，又和美国华尔街搞到了一起，结果就是中国人给全世界当了二十一年奴隶，中共国的虚假金融爆雷不可避免，且必将引爆全球破产崩溃<br/>
 ![img](https://media.gettr.com/group38/getter/2021/10/06/04/30/2c7c4647-18b9-8f2e-503f-57ef097def17/out.jpg)
-
----
-
-`@miles 10/6/2021 12:15 AM (UTC)`
-
-10/5/2021 Miles Guo: Only Russia, North Korea, and Pakistan don’t buy the government bonds issued by the Communist China; The Chinese people will have to pay for the price of the collapse of the world’s economy caused due to the fact that the CCP holds the whole world hostage by using the economy.<br/><br/>10/5/2021 文贵直播：全球只有俄罗斯、北朝鲜和巴基斯坦不买中共国国债；中国人将不得不为中共利用经济绑架全世界而导致的世界经济大崩溃而买单！<br/>
-![img](https://media.gettr.com/group9/getter/2021/10/06/00/91432cc1-dc80-db00-e549-98b08317ae6b/out.jpg)
 
 ---
 

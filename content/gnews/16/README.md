@@ -2,27 +2,44 @@
 ---
 
 
-## 图片新闻：波音公司员工抗议强制接种疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1582374/)
+## 有声| 中国留学生教堂纵火,国人须慎行防排华!
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1582454/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/mmexport1633701721204.jpg)图片来源：现场拍摄
-**整理报道：**晨兮
+配音：香草山香港部-文凯琳
 
-美国当地时间10月7日下午，一些波音公司员工来到公司门前抗议强制接种疫苗的规定。根据联邦政府要求，波音公司正在员工中统计疫苗接种的情况，并将根据政府要求在12月8日后开除所有未接种疫苗的员工。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-图中左一、手举“我的身体我做主”抗议牌的女士，曾经感染中共新冠病毒，并在工作岗位上被救护车带走急救，急救室的医生告诉她“如果打过疫苗，她就死定了”。这位女士出院不久即赶来参加抗议活动。
 
-中间的女士是丹苹战友，她全家都感染了中共病毒。丹苹战友非常激动地参加了此次抗议活动，她在电视台采访时说，疫苗就是中共用来杀人的毒药。
 
-另外，还有一些距离波音公司较远的员工也专程驾车赶来参加本次抗议活动。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
 
-*编辑/发布：翼族*
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+美国阿拉巴马州当地媒体10月5号报道,  第一浸信会教堂是阿拉巴马州蒙哥马利市地标建筑，该教堂9月29日晚遭人纵火, 内部一些设施遭烧毁。当地执法机关依据教堂内部监视器录像追踪涉案人，将来自中国的留学生严晓琴(音译，Xiaoqin Yan)逮捕，嫌犯目前收押在蒙市拘留所，等候接受调查起诉。
+
+法庭文件显示, 嫌犯严晓琴今年27岁，是一名来自中国的留学生，检察官贝利已将其留学生签证取消，并提高了原定3万美金的保释金，以防止嫌犯弃保潜逃,因为该案在当地引起轩然大破, 民众愤怒不已! 但嫌犯纵火焚烧教堂的动机尚未公布。
+
+
+
+**文字版原文：[中国留学生教堂纵火,国人须慎行防排华!](https://gnews.org/zh-hans/1579948/)**
+
+
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

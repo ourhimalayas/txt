@@ -2,105 +2,46 @@
 ---
 
 
-## 中共一切的基础是维持政治和社会稳定
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1582225/)
+## 纽约黑人抗议COVID-19疫苗强制接种，将其与奴隶制相提并论
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1582269/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/a0lrb-goagz.jpg)
-[https://gtv.org/video/id=61605c37d2e2b8174872c208](https://gtv.org/video/id=61605c37d2e2b8174872c208)
+**简评：**
+**疫苗接种从一开始的宣传，劝说和游说，发展到间接的区域限制，到目前的捆绑工作和收入，清晰的让我们看到疫苗接种从一个医学课题演变成为一个复杂的政治手段。这是多么熟悉的套路，我们看到的是中共统治中国老百姓的娴熟的手法。现在西方的政客也开始运用，因为他们看到了中共在一个十几亿人口的大国可以成功的维系他们的政权近百年，惊叹之余会毫不犹豫地承认这种给社会分等级，分化民众的做法，只要采取最低的成本，在媒体上进行宣传，用行政手段加以捆绑，人们会屈服于威胁到自己和家人的生存的压力，从而服从。即使是短暂的服从，也可以继续通过宣传和谎言，加上进一步的限制，鼓励或者是胁迫人们进入他们事先设计的进程中去。**
 
-**郭文贵
-Miles Guo**
+**病毒是引子，引起了人们的恐慌，疫苗才是真正的核弹，它分化民众，让打了疫苗的人群无形中成为政客和阴谋者的帮凶。疫苗分裂了我们的社会，消退了我们人性中的美好，将人性之恶放大并常态话。从以下的文章我们看到，几十年美国社会对于修复与黑人族群所作出的所有努力，正在瞬间崩塌的边缘，这是多么可怕的事情。**
 
-就像问这样的问题一样了，就是这么单纯无知这个问题啊
-It’s just like asking such a question, it’s such a simple and ignorant question
+**世界人民需要觉醒，正如我们新联邦所倡议的，不分种族，不分民族，追求真相，践行正道主义，这才是人类文明所发展的方向，才是世界人类梦寐以求的真正意义上的人类命运共同体。**
 
-这个共产党它整个14亿人口，十几万亿美元的一个东西啊
-This Communist Party is controlling 1.4 billion people, they are worth more than ten trillion US dollars
+**据《theexpose.uk》作者Cassie B.，2021年10月7日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl-1.jpg)
+在乔治-弗洛伊德事件发生后，人们对任何说过或做过任何可能被认为是针对黑人的种族主义者的人都充满了怨恨，但令人震惊的是，对于将他们置于不利地位的COVID-19疫苗强制要求，却没有更大的愤怒。
 
-他整个宏观经济里边，他一切一切，你可以看到
-You can see in its entire macroeconomics and all of everything
+纽约市的疫苗护照被许多黑人视为种族主义，他们正聚集在一起发出自己的声音。上周末，前美国国会议员候选人、民权人士马丁-路德-金的侄女安吉拉-斯坦顿-金在她帮助组织的布鲁克林活动中发言，谴责这些规定。大约有100人参加，其中大多数是黑人，表达了他们的愤怒。
 
-他一切的基础都是维持政治和社会稳定
-its foundation of everything is to maintain political and social stability
+金在对《大纪元时报》的评论中提请注意疫苗被用作人口控制的问题。医疗种族隔离就是人口控制。人口控制有不同的形式：疫苗、堕胎、大规模监禁，以及针对儿童的变态性议程。她说：”人口控制是种族主义的，从子宫到坟墓。”
 
-而且他不关心你民生，也不关心你什么资本金融市场
-and he doesn’t care about your people’s livelihood, nor does he care about your capital and financial markets
+金是川普总统的坚定支持者，但感到愤怒不仅仅是那些具有保守政治倾向的人。
+更为自由的”黑人生活事件”组织也呼吁关注这些有问题的任务。大纽约地区”黑人命脉”组织的一位领导人奇沃纳-纽索姆(Chivona Newsome)就这项任务向市长比尔-德布拉西奥提出了批评，他说，”疫苗接种护照是现代的所谓自由文件，但它限制了黑人的自由意志”。
 
-这是根本两回事儿，
-These are two different things
+该任务在9月13日的那一周开始生效。它命令每个人在进入所有室内场所前出示疫苗接种证明。此外，某些机构的雇员也必须出示疫苗接种证明才能保住工作。这使许多黑人无法在城市餐馆就餐，同时也危及到他们的工作和生计。
+黑人公民占纽约人口的18%，但他们只占那里接种疫苗人数的14%。这与白人的数字形成鲜明对比，白人占该州人口的69.9%，占接种疫苗人数的69%，而纽约亚裔的数字分别为9%和15%。
 
-外国人就是一切以金融市场
-Foreigners focus on everything with the financial market as the core
+**美国黑人对疫苗的不信任因历史原因而加剧**
 
-你看川普总统，你看皮特 纳瓦罗的书里面写
-You look at president Trump, you look at the Peter Navarro’s book
+这么多黑人对接种疫苗犹豫不决一点也不奇怪。美国针对黑人进行医学实验的历史由来已久。尽管塔斯基吉梅毒研究现在可能已经过去几十年了，但美国黑人仍然没有得到与美国白人相同水平的医疗服务，从慢性疼痛的治疗到产妇死亡率，都存在着差异。人们对美国的医疗保健系统以及鼓励人们打预防针的政府机构有着深深的不信任。
 
-川普总统为啥不敢更猛烈的对付中共？
-Why doesn’t President Trump dare to deal with the CCP more vigorous？
+当然，同样的主流媒体、自由派政客和社交媒体上的人们，在支持黑人的名义下，仅仅根据一个警察的行为就迅速攻击每个警察，他们没有说或做任何事情来承认这个也影响到美国黑人的非常真实的问题。他们会抱怨对一个闯红灯的黑人的交通拦截是种族主义，但却不认为建立一个两级制度有什么问题，这个制度在很大程度上给了白人特权，而黑人不会有。事实上，他们不遗余力地羞辱那些不敢接种疫苗的人。
 
-就三个担心
-There are three worries
+那些声称我们没有从历史中学习并想推倒雕像的人，完全无视我们国家对黑人进行医学实验的历史，以及根据统计，以前的疫苗对黑人比其他种族的人更有害的事实。
 
-第一担心和中国开战
-First worry is about going to war with China
+**原文连接：**[https://newstarget.com/2021-10-07-black-new-yorkers-protest-vaccine-mandates.html](https://newstarget.com/2021-10-07-black-new-yorkers-protest-vaccine-mandates.html)
 
-第二担心股票市场
-Second worry is the stock market
+**（本文评论仅代表个人观点）**
 
-第三担心跟中共的那个第三个贸易
-Third worry is the trade with the CCP
-
-你去想想，你看七哥从2017年爆料说到今天
-Think about it, look at QiGe(Miles) who blower the whistle from 2017 to today
-
-我告诉你我说什么都不会发生
-I told you so, I said there will be nothing happen
-
-不要对川普抱有那么大的希望
-Don’t have so much hope for Trump
-
-他会反共，绝对没有心灭共
-He will be anti-communist and he will never destroy the communist party
-
-他也不会有人你想象在他任期内帮我们把共灭了，不可能
-He won’t do that, some people imagine he could help us destroy the Communists Party during his tenure
-
-他这三个担心就是西方的媒体，你看西方的媒体有多可怜
-His three worries are the Western media’s thinking, look at how pitiful the Western media are
-
-所有西方媒体对中共的政治经济没有一件事大事把握事对的
-All the Western media are wrong about the political and economic situation of the Chinese Communist Party
-
-你给我找一个，你找一个在历史上，
-Can you find one for me, can you find one in history?
-
-所有的外国人，西方的媒体真的是王八蛋到了极点
-All foreigners and Western media are really bastards to the extreme
-
-他们完全是用自己的所谓的媒体观点和政治经济观点看中共
-They see the CCP entirely from their own so-called media viewpoint and political and economic viewpoint
-
-就像当年很多全世界的看斯大林一样啊
-Just like many people from all over the world thought Stalin back then
-
-以为他是一个小街混子呢，接不了列宁的班儿，是不是
-they thought he was a gangster and couldn’t take over Lenin’s position, right ?
-
-以为他接了列宁的班，那几个什么这些人都把它灭了
-they thought after he took over Lenin’s position, but those people could killed him
-
-结果他把那五个人全给抓了，全给杀了，全给灭了
-In the end, he arrested all the five people, killed them all, and destroyed them all
-
-**——————————————————**
-
-**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1443159551046393862?s=24](https://twitter.com/se1y7cblljselva/status/1443159551046393862?s=24)
-
-英听校 : 洛杉矶盘古农场 – Layka
-翻译 : 洛杉矶盘古农场 – Layka
-翻译终校 : 洛杉矶盘古农场 – Mike Li
-字幕+视频制作 : 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – 蓝精灵
+评论：洛杉矶盘古农场 – 蓝精灵
+编辑：洛杉矶盘古农场 – 蓝精灵
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

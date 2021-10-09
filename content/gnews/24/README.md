@@ -2,173 +2,45 @@
 ---
 
 
-## 今年起始，是中共百年大计的开始
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1582254/)
+## 前国务卿迈克·蓬佩奥： 我们必须明确表示，美国不会接受习近平的所谓统一 台湾
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1582345/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/154-ax8p9-gk4ic.jpg)
-[https://gtv.org/video/id=6160255ad2e2b8174872aeda](https://gtv.org/video/id=6160255ad2e2b8174872aeda)
+前国务卿迈克·蓬佩奥： 我们必须明确表示，美国不会接受习近平的所谓统一 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click)。 【附福克斯新闻对蓬佩奥的访谈视频】
 
-**郭文贵
-Miles Guo**
 
-今年的5月份列为中共国的百年大计的备战状态
-En mayo de este año, representa como el estado de preparación para el plan del centenario del PCCh
 
-啥叫备战
-En qué consiste la preparación para el plan
+> We need to make clear that the United States is not going to accept what Xi Jinping calls reunifying the Taiwanese. [pic.twitter.com/Jwoo2rlX4b](https://t.co/Jwoo2rlX4b)
+> — Mike Pompeo (@mikepompeo) [October 8, 2021](https://twitter.com/mikepompeo/status/1446542114293223439?ref_src=twsrc%5Etfw)
 
-干倒美国美元, 干倒欧元经济
-Derribar al dólar estadounidense y la economía del euro
 
-今天要再重申一遍啊
-Hoy les quiero repetir de nuevo
 
-病毒是共产党制造的生化病毒
-El virus es un virus bioquímico elaborado por el Partido Comunista
+美白宫： 自 2000 年以来，一半的美国钢铁公司已经关闭。中国现在一个月生产的钢铁比美国一年生产的还多。 两党基础设施​​合约和“重建更好”议程将促进美国的生产并在制造业等行业创造就业机会。
 
-疫苗灾难是再次的生化战争
-El desastre de la vacuna es una vez más la guerra bioquímica
 
-是生化战争的深入化
-Es la profundización de la guerra bioquímica
 
-而且所有有计画地培养出疫苗
-Además, todas las vacunas se cultivaron de manera planificada
+> Since 2000, half of U.S. steel companies have closed. China now produces more steel in a month than America does in a year.
+> 
+> The Bipartisan Infrastructure Deal and Build Back Better Agenda will boost U.S. production and create jobs in industries like manufacturing.
+> — The White House (@WhiteHouse) [October 8, 2021](https://twitter.com/WhiteHouse/status/1446573717392343046?ref_src=twsrc%5Etfw)
 
-高传播率
-Alto porcentaje de transmisión
 
-高致死率
-Alta tasa de letalidad
 
-最后是通过疫苗
-Finalmente, a través de las vacunas
+众议员迈克·沃尔茨： “醒来”的美国公司准备在国内进行抵制，但对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的现代奴隶制却视而不见。 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 正在对美国发动冷战——而我们的资金正在助力中共国的军事建设。如果您的产品上写着“中国制造”，请放下它！ 【附沃尔茨议员在祈祷投票战峰会上的讲话视频】
 
-疫苗经济、疫苗政治、疫苗军事
-Economía de las vacunas, política de las vacunas, ejército de las vacunas
 
-疫苗控制世界
-La vacuna controla al mundo
 
-就是共产党干的
-Todo esto es hecho por el Partido Comunista
+> 'Woke' American corporations are ready to boycott here at home but turn a blind eye to modern day slavery in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw).
+> 
+> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) is waging a cold war with the U.S. — and our money helping fuel China's military build up. If your product says “Made in China” put it down! [pic.twitter.com/EPmx0sUBQY](https://t.co/EPmx0sUBQY)
+> — Rep. Mike Waltz (@michaelgwaltz) [October 8, 2021](https://twitter.com/michaelgwaltz/status/1446554487737384964?ref_src=twsrc%5Etfw)
 
-跟共产党合谋的
-Conspirado con el Partido Comunista
 
-就是美国的华尔街和美国的几个被收买的像CDC的一些官员
-Es el Wall Street y algunos funcionarios en los EE. UU. que fueron sobornados como los Centros para el Control de Enfermedades, Ministerio de Salud y Bienestar (CDC)
 
-像欧洲的一些官员
-Así como los funcionarios de Europa
+骏升科技(钦州)有限公司[@UEI\_IBC](https://twitter.com/UEI_IBC)是奴隶劳动的同谋。承认与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 合作将维吾尔人从 [#新疆](https://twitter.com/hashtag/%E6%96%B0%E7%96%86?src=hashtag_click) 强行运往钦州。 拜登总统必须通过支持我的‘维吾尔强迫劳动预防法’来追究该公司的责任。 【附路透社文章：骏升科技达成运输和雇用维吾尔工人的协议】
 
-包括世界上的黑暗组织, 非法组织
-Incluyendo las organizaciones oscuras e ilegales en el mundo
 
-跟共产党一起干的
-Lo han hecho con el Partido Comunista
 
-王岐山就是这个非法组织的核心代表
-Wang Qishan es el principal representante de esta organización ilegal
-
-这也是最近不能弄死他的根本原因
-Esta es también la razón fundamental por la que no han podido matarlo recientemente
-
-共产党还需要他
-El Partido Comunista todavía lo necesita
-
-任何国家任何好人坏人组织
-Cualquier país, cualquier buena o mala organización
-
-不光需要好人还需要坏人
-No solamente se necesitan buenas personas sino también malas personas
-
-真的
-Es verdad
-
-这就是个游戏规则
-Esta es la regla del juego
-
-你接不接受, 它就是这样
-No importa si aceptas o no, es así
-
-现在他就发生了
-Ahora está sucediendo
-
-那么现在告诉大家的事情
-Entonces déjame decirle una cosa a todos
-
-共产党的停电
-El apagón del Partido Comunista
-
-包括共产党的现在整个恒大的事件的控制
-Incluyendo el control actual del Partido Comunista con Evergrande Group
-
-有序控制
-Un control ordenado
-
-但是记住啊
-Pero recuerden
-
-明确的(说)外债一概不管
-Claramente (digamos) sin tomar en cuenta de las deudas externas
-
-不但不管啊
-No solamente no tomarlo en cuenta
-
-对碧桂园, 对平安集团, 所有海外的外债一概不用管
-Igualmente con el Country Garden, Ping An Group, ignoran todas las deudas externas en el extranjero
-
-大家看出啊
-Todos pueden notar
-
-共产党内部的所有的政策
-Todas las políticas dentro del Partido Comunista
-
-内部
-La parte interna
-
-要摸底, 问话, 控制
-Hay que averiguar, preguntar y controlar
-
-地方部门分区解决
-Ejercer la resolución de la división del sector local
-
-国际上债务一概不管
-Ignorar las deudas internacionales
-
-大家现在看出来想干啥了吧
-Ya todos se dieron cuenta lo que quiere hacer, cierto
-
-我宁可断我九指, 我伤你一指
-Prefiero cortar mis nueve dedos para lastimar un dedo tuyo
-
-我宁可我杀我一万, 我杀你一千
-Prefiero herir diez mil de mis personas para matar mil de las tuyas
-
-习绝对在这方面有这个狠劲
-Xi definitivamente es cruel en esta parte
-
-他对内. 他对江家不敢对, 对曾不敢
-Él no se atreve con la parte interna, la familia Jiang, Zeng
-
-对王岐山不敢, 对孟不敢
-Wang Qishan y Meng
-
-他对他们(欧美)绝对敢
-Pero si se atreve con EE. UU y Europa
-
-**——————————————————**
-
-**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1445306784030212100?s=24](https://twitter.com/se1y7cblljselva/status/1445306784030212100?s=24)
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+> .[@UEI\_IBC](https://twitter.com/UEI_IBC?ref_src=twsrc%5Etfw) is complicit in slave labor. admitted to working with the Chinese Communist Party to forcibly transport Uyghurs from [#Xinjiang](https://twitter.com/hashtag/Xinjiang?src=hash&amp;ref_src=twsrc%5Etfw) to Qinzhou
+>  
+> President Biden must hold the company accountable by supporting my Uyghur Forced Labor Prevention Act [https://t.co/8dbkXvSl0T](https://t.co/8dbkXvSl0T)
+> — Marco Rubio (@marcorubio) [October 7, 2021](https://twitter.com/marcorubio/status/1446247002929500164?ref_src=twsrc%5Etfw)
