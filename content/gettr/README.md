@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/9/2021 4:22 AM (UTC)`
+
+10/08/2021  Miles Guo’s GETTR: The vaccine disaster is changing the world everyday and every moment, the truth will be revealed eventually, all people pushing or enforcing the vaccine mandates will be charged and put to trail in courts; in terms of the world finance and economy after the vaccine disaster, only crypto currency(ies) and digital economy survive and boom, and the new biotechnology and advanced technology will make a change on the damages and harm caused by the Covid vaccines and the CCP virus on humanity<br/><br/>10/08/2021 文贵盖特：疫苗灾难每时每刻都在改变着人类和世界，真相一定会出来，强推疫苗的人都会受到审判；疫苗灾难后的世界金融、经济只有虚拟货币、数字经济，新的生物技术和高科技会改变疫苗和病毒对人类的危害<br/>
+![img](https://media.gettr.com/group26/getter/2021/10/09/04/22/0bfd48a3-b0f1-e678-af30-dce9adeebcef/out.jpg)
+
+---
+
 `@miles 10/9/2021 4:07 AM (UTC)`
 
 10月8号：共产党的以孙灭台，武统台湾，宣讲大会结束，台湾危了！
@@ -287,13 +294,6 @@ A Pfizer scientist ran away when asked by an investigative reporter to publicly 
 
 Attorney Thomas Renz: If you get the vaccine, you are more likely to get Covid. We will see in court!<br/><br/>托马斯·伦茨律师：如果你接种疫苗，你更有可能感染中共病毒。我们法庭见！<br/>
 ![img](https://media.gettr.com/group18/getter/2021/10/06/13/11/98f76fff-ba51-0350-7a99-d39898168574/out.jpg)
-
----
-
-`@miles 10/6/2021 4:30 AM (UTC)`
-
-10/05/2021 Miles Guo’s GETTR: The par value of the CCP’s fake and fraud banknotes is shocking, and by working and colluding with Wall Street, the Chinese people have been slaves for the whole world for 21 years (commencing from CCP joining WTO); the CCP China’s fake finance and market will for sure explode, which will trigger the global bankruptcy & collapse <br/><br/>10/05/2021文贵直播：中共国的假骗金融票据数字惊人，又和美国华尔街搞到了一起，结果就是中国人给全世界当了二十一年奴隶，中共国的虚假金融爆雷不可避免，且必将引爆全球破产崩溃<br/>
-![img](https://media.gettr.com/group38/getter/2021/10/06/04/30/2c7c4647-18b9-8f2e-503f-57ef097def17/out.jpg)
 
 ---
 
