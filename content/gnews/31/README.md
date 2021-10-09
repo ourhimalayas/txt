@@ -2,17 +2,28 @@
 ---
 
 
-## 秘翻在线：中共拟禁止私营报刊，消绝独立媒体
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1583702/)
+## 有声|美快速攻击潜舰印太海域 撞击不明物体
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1583781/)
 
-撰稿：待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/画像1-9.jpg)[图片来源](https://www.163.com/dy/article/FC200O010516Q25Q.html)
-10月9日共同通讯社消息：中共政府公布，9日以后禁止私营公司进入新闻行业的方案。
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+美国海军7日公布，一艘核动力潜舰2日在印太海域水下执行任务时，撞击到不明物体受损，并有10多人轻中度受伤。各方猜测，撞击物可能是沉没船只、货柜等其他物体。
 
-该方案禁止设立和经营新闻机构、报纸和电视台，并规定媒体不得参与政治、经济或军事方面的报道。该禁令旨在消灭那些与中共及其政府保持距离的独立媒体机构，这将不可避免地导致中共对言论的进一步限制。
+此次发生事故的是“海狼级”核动力快速攻击潜舰“康乃狄克”（USS Connecticut）号，事故发生时正在印度太平洋地区的国际海域执行任务。 海狼级潜艇是冷战后期的攻击性潜艇，是美国海军最有能力和最敏感的攻击艇，旨在猎杀深蓝水域最复杂的苏联潜艇。
 
-2010年，中共政府曾发布与实际效果完全相反的通知，鼓励个人私企参与媒体，以发展报纸和出版业。作为对新闻自由受挫的回应，有中共国媒体人在一个会员专用的社交网站（SNS）上发布消息，称诺贝尔和平奖将颁给对抗强权政治的记者。以示无声的抵抗。
+康乃狄克号自事件发生后保持水面航行，正前往关岛靠岸。国防官员证实这次水下打击发生在南中国海，但未透露任何细节。
 
-[信息源](https://news.yahoo.co.jp/articles/ee978761ac8ffa2b1bcc4eb2f921094d193bf087)
+从周六计算，时隔5天后此事件才被报道，期间中共军方罕见沉默。印太地区目前由于中共的挑衅，正处于紧张的火药库状态，任何的军事事故都有可能造成区域性的紧张态式，需谨慎观察后续发展。
 
-（文章仅代表作者个人观点）
+文字版原文：[美快速攻击潜舰印太海域撞击不明物体](https://gnews.org/zh-hans/1581612/)
+
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
