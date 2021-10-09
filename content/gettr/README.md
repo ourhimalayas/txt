@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@ilpresidento 10/9/2021 9:19 PM (UTC)`
+
+
+![img](https://media.gettr.com/group33/origin/2021/10/09/21/46d79117-731a-4035-baa7-99498257e69d/3fafe80d1b5e3121d8326d5de21d3e3c.jpg)
+
+---
+
 `@miles 10/9/2021 4:15 PM (UTC)`
 
 《双龙计划 The Two Cities Project》<br/><br/>
@@ -287,13 +296,6 @@ September 20th, 2021 — German Corona Investigative Committee Press Conference 
 
 10月6号：尊敬的战友们好，由于很多重大的事件要紧急的开会，明天，后天都没有大直播，一切都已经开始。 !!!!!!<br/><br/>https://mobile.twitter.com/thewuhanclan/status/1445940092565065730
 ![img](https://media.gettr.com/group31/getter/2021/10/07/03/11/d4dbd017-66fe-96d9-6f1f-702ef98e7d61/out.jpg)
-
----
-
-`@miles 10/7/2021 2:22 AM (UTC)`
-
-10/06/2021 Miles Guo’s GETTR: PAG (Hong Kong) mainly connected and deceived the Jewish investors, and further manipulated stock markets by deceiving institutional and individual investors in the West, and when all these are revealed one day, something big will happen inside of the Chinese legal community; various of situations inside of CCP China are all in mess<br/><br/>10/06/2021 文贵盖特：香港太盟投资(PAG)以联络欺骗犹太投资圈为主、哄抬股市、欺骗西方机构投资人和小股东，这个雷爆的时候中国律师界要出大事儿；国内各种形势一塌糊涂<br/>
-![img](https://media.gettr.com/group47/getter/2021/10/07/02/22/d2967fa0-9c0e-140e-9547-f19f75631bb9/out.jpg)
 
 ---
 
