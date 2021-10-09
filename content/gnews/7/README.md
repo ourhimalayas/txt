@@ -2,12 +2,21 @@
 ---
 
 
-## 2021年10月08日澳喜要闻（每日更新）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1582319/)
+## 秘翻在线：中共以违反垄断禁止法为名对美团罚款5.27亿美金
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1582445/)
 
-撰稿：GTV澳喜影像视频组、新闻组
-![](https://assets.gnews.org/wp-content/uploads/2021/10/901-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/902-scaled.jpg)
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+撰稿：文字焼
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16337442321.png)[图片来源](https://news.yahoo.co.jp/articles/409d2ae18fde9853af17032af733db9e49ed3273/images/000)
+路透社北京10月8日消息，中共国国家市场监督管理总局，对食品配送大企业美团，以滥用市场的主导作用为由罚款34亿元（5亿2740美金），中共国政府正在强化取缔线上平台。
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+中共国国家市场监督管理总局表示，罚金相当于美团2020年国内销售额的30%。命令美团停止“违法行为”，并要向其公司平台的加盟店归还12亿9000万元。美团表示接受罚金，并执行当局要求的改正措施。
+
+中共国国家市场监督管理总局以怀疑美团强制要求加盟店只能使用他们的平台为由，在4月份就开始了针对美团的反垄断禁止法的调查。曾在8月表示，美团可能会因为违反反垄断禁止法而被课以“高额”罚款。
+
+中共国国家市场监督管理总局在4月份以同样的惯用手法为理由，对电子商务大企业阿里巴巴，课以迄今为止最高的罚7亿5000万美金。罚款相当于阿里巴巴2019年国内销售总额的约4%。
+
+[信息源](https://discord.com/channels/@me/712053994838556673/896015013402263592)
+
+（文章仅代表作者个人观点）
+
+责编：待命（文晓）
