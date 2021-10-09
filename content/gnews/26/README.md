@@ -2,36 +2,55 @@
 ---
 
 
-## 加州15岁少年接种辉瑞疫苗第二针2天后死亡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1583884/)
+## 中共超限战灭港行动（77）七二一·恐袭事件之暴力清场
+` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1583940/)
 
-作者：雪梨
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-根据加州索诺玛县警长办公室上个月的调查报告显示，该县一名15岁的健康少年于6月份，接种辉瑞疫苗第二针2天后死亡。本周，关于这名少年的死亡与疫苗接种的话题引发社会热议。
+#### 搜集/撰文：岁月如歌
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-8.jpeg)
 
-调查报告显示，少年死亡原因被确定为“应激性心肌炎并伴有冠状动脉炎症”。报告并未将死因与接种新冠毒针做直接联系，但强调，死者的心肌炎及冠状动脉炎症，是在最近辉瑞疫苗接种的情况下发生的，除此以外，并没有其他重要致死原因，
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10091-1.jpg)
+警方在西环举起黑棋，警告要发催泪弹，现场示威者立刻用扩音器称没有冲突不该用催泪弹，希望警方可以让示威者慢慢离开。在德信中心外面，示威者与速龙小队对峙，他们之间的距离只有20公尺左右。示威者在冲击警方防线，最终双方发生冲突，示威者投掷杂物，警方多次发射催泪弹，现场枪声不绝，烟雾弥漫，空气中充满刺鼻的瓦斯味道，皮肤像被火烫一样，气氛十分紧张。速龙小队有的警员持AR15来福枪，在上环干诺道中推进。这些在前线的速龙队员均没有按法规佩戴委任证，也没有警员编号。如此公开违反《警察通例》，这不像真正的香港警方的作风。这些人是故意把委任证和编号藏起来了呢？还是因为是冒牌货，真的没有委任证和编号呢？不得而知。根据当时的媒体新闻小道消息，中共往香港派遣了许多大陆军队混进警队，补充香港警方警员严重不足，及替代香港非法执法。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10092-1.jpg)图片来自巴士的报
+晚上10:30，有消息传来称，警方在天桥上向示威者开枪。在现场的BBC记者也证实听到枪声。多家媒体如立场新闻、now新闻等媒体记者发现，速龙小队在没有任何警告下，在中区警署天桥上向桥下的示威者开枪。这是严重违反程序的操作，让人无法接受，人权组织严厉批评此做法。警方推进的速度在加快并发射催泪弹，把示威者逼得一直往后撤。示威者一边后退，一边向警方掷杂物还击。警方第三度发射催泪弹，同时在另一边，据香港01新闻网报导，元朗数百穿白衣人士戴着口罩遮面，在西铁站附近，追打身穿黑衣的人。晚上11:00多白衣人在元朗西铁站无差别殴打市民，立场新闻记者在现场直播时被数人围殴倒地，双手和肩膀受伤流血，后脑勺被棍棒袭击肿起一个大包，头感到昏眩无法继续工作，前往医院验伤。现场有女士晕倒，元朗站一片混乱，白衣人向途人，乘客挥动棍棒殴打，顿时哀嚎四起，乘客四散逃走。混战中立法会议员林卓廷受伤嘴角流血。而在德行中心停车场一代，警方至少射出五发催泪弹以及多发胡椒求枪。有伤者吸入大量催泪烟五感到不适，需要救护车送院救治。而在德信中心停车场一带，警方至少射出五发催泪弹以及多发胡椒球枪。有伤者吸入大量催泪烟物感到不适，需要救护车救治。金钟这一边听到有人大喊“警察到”，大批示威者立刻四散。医管局表示截至12时28分，港口区冲突有九人受伤，其中一人危殆两人病情稳定，六人已出院。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10093-1.jpg)图片来自BBC
+对于警方发射催泪弹和胡椒球枪示威者大为不满，一边与警方周旋一边撤退。他们情绪激动，在敲打物件制造声响，23:10警方在干诺道中举起橙色旗，警告示威者速离，否则开枪。 15分，警方举起黑棋、红旗准备进一步清场，并把警车开进占据车道。 20分，警方发射橡胶子弹或布袋弹。速龙小队急红了眼，黑旗，红旗，橙旗不停举起，子弹也在不停发出……大批警力集结进行全面清场，在上环防暴警察带上头盔列队；在中环防暴警察发射橡胶子弹和布袋弹驱逐示威者，有记者不幸中弹。另一边的元朗西铁站，由于港铁已经报警，车不再停靠元朗站，但是扔有大批白衣人手持长棍在追打市民。
 
-据加州大学研究发现，青少年，即13至19岁群体因接种新冠疫苗引发心脏疾病，导致住院的机率，较病毒感染高出6倍。截至9月，根据疫苗不良事件通报系统VAERS显示，已收到1,590份年轻人心脏炎症的报告，且此前早有研究调查发现，通报系统的漏报率高达41倍。
+一直在现场的立法会议员邝俊宇呼吁示威者赶紧散去多加小心，元朗区那边已经有多名途人被白衣人士追打受伤，希望示威者能够平安回家。还有一直伴随着示威者的社工教牧团也在警方防线前用扩音器和警方代表对话，要求他们放下武器不要再发射催泪弹等。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10094-1.jpg)图片来自now新闻
+晚上23:37民阵发表声明，强烈谴责了元朗暴徒袭击平民：
 
-CDC咨询小组早先曾发出警告，青少年出现心脏炎症，与辉瑞疫苗”可能存在联系”。家长和社会都有责任和义务拒绝毒疫苗，维护青少年健康安全，捍卫孩子们的生存权。
+一）各方证据显示，有白衣暴徒在元朗一带，地铁站、月台等袭击平民，俨如中共城管，令无辜市民受伤，民阵强烈谴责！
 
-(本文仅代表作者观点)
+二）民阵对警察在元朗不执法，纵容暴徒袭击立场，新闻记者、一般市民感到非常愤怒。警方一方面在上环毫无必要的情况对示威者施放催泪弹，另一边在元朗有真正的暴徒，针对记者、议员令他们严重受伤，警方对此总完全破坏法治的暴徒，却从未执法令人愤慨！
 
-参考链接：[15-Year-Old Boy Died Suddenly Just 2 Days After Second Dose of Pfizer Covid-19 Vaccine](https://theexpose.uk/2021/10/08/15-year-old-boy-died-suddenly-just-2-days-after-second-dose-of-pfizer-covid-19-vaccine/)
-[California teenager died of heart condition two days after COVID vaccine, death report says](https://www.lifesitenews.com/news/california-teenager-died-of-heart-condition-two-days-after-covid-vaccine-death-report/?utm_source=top_news&amp;utm_campaign=usa)
-[Sonoma County officials, social media posters spar over boy’s death](https://www.pressdemocrat.com/article/news/county-officials-social-media-posters-spar-over-boys-death/)
+三）自雨伞运动就有强力部门动用黑暗势力，破坏占领者人身安全和打击士气。今次明显是升级版本，香港人要团结，反对制度暴力！
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+四）民阵呼吁市民保障人身安全，请大家守望相助、「来去有水」。
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
+五）民阵严正呼吁，林郑月娥应停止私立社会，火影武大诉求，让香港可以重回正轨！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（未完待续）
+
+
+【本文仅代表作者个人观点】
+
+参考链接：
+[港721大游行 警武力清场 元朗白衣人施暴](https://m.ntdtv.com/gb/mkt_ipad/2019/07/21/a102627082.html)
+
+[「反送中」7.21抗议：黑衣抗议者涂鸦中联办 元朗白衣人暴袭市民记者](https://www.bbc.com/zhongwen/trad/chinese-news-49065855)
+
+[香港中联办大楼遭破坏事件](https://zh.wikipedia.org/zh-hans/%E9%A6%99%E6%B8%AF%E4%B8%AD%E8%81%AF%E8%BE%A6%E5%A4%A7%E6%A8%93%E9%81%AD%E7%A0%B4%E5%A3%9E%E4%BA%8B%E4%BB%B6)
+
+导读：
+中共超限战灭港行动
+[中共超限战灭港行动（七十二）港台发起拒绝「红色渗透」运动](https://gnews.org/zh-hans/1527144/)
+
+[中共超限战灭港行动（七十三）多个团体发起静默游行 促「停止警暴」](https://gnews.org/zh-hans/1534195/)
+
+[中共超限战灭港行动（七十四）中共组织爪牙 争夺「道德光环」话语权](https://gnews.org/zh-hans/1539901/)
+
+[中共超限战灭港行动（七十五）七二一大游行 起因与背景](https://gnews.org/zh-hans/1563774/)
+
+[中共超限战灭港行动（七十六）七二一](https://gnews.org/zh-hans/1573037/)[·恐袭事件之围堵中联办](https://gnews.org/zh-hans/1573037/)
+
+*校对**/**封面合成：文粤**/**发布：天网灰灰*

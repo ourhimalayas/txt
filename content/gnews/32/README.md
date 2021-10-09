@@ -2,21 +2,31 @@
 ---
 
 
-## 秘翻在线：十一节后中共政法高层点名孙力军傅政华，政治余震持续
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1583795/)
+## 法国参议员访台期间，公开称台湾为“国家”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1583817/)
 
-**撰稿：Ping**
+作者：飞虹
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-09-233743.jpg)
-据人民法院新闻传媒总社消息，10月8日，中共中央政治局委员、中央政法委书记、全国政法队伍教育整顿领导小组组长郭声琨出席全国第二批政法队伍教育整顿工作推进会并讲话。郭声琨强调，坚决拥护党中央对孙力军严重违纪违法问题的处理决定和对傅政华涉嫌严重违纪违法问题进行纪律审查和监察调查的决定。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-除了郭声琨之外，出席会议的还有8位全国政法队伍教育整顿领导小组副组长：
 
-赵克志（公安部部长）、周强（最高人民法院院长）、张军（最高人民检察院检察长）、喻红秋（中央纪委副书记）、傅兴国（中央组织部副部长）、陈一新（中央政法委秘书长）、陈文清（国家安全部部长）、唐一军（司法部部长）。
 
-从与会人员的名单中我们不难看出习派占了上峰，在中共国这个绞肉机的体制下。每一个体制内的共产党员都是砧板上的肉，谁都不知道下一个被剁的是不是你！并且，整顿小组长郭声琨的“正义“讲话，并不能代表郭声琨就是一个伸张正义，为民除害的清官。共产党以贪反贪治国，无论谁沦为阶下囚，都只能是政治斗争的牺牲品，而不是因为犯人本身的罪恶滔天。因为中共国哪一个爬到高位的官员不是踏着别人的尸体发迹的。
+法国参议院友台小组主席理察，所率参议院代表团正在台湾进行访问。10月7日蔡英文总统向理察 颁授了“特种大绶/卿云勋章”。在随后的简短发言中，理察特别称赞了台湾派驻巴黎的经济文化代表处，称其“在代表国家方面做得非常好”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.9AM-PICTURES-48图片备用.001-1.jpeg)
+理察作为法国政府官方出访代表，将台湾称为“国家”触及了中共的所谓禁忌和底线。中共外交部发言人赵立坚随即 发表回应，称将台湾称为“国家”是违背国际社会的普遍共识。还不顾外交礼节的指责理察，称理察对国际关系准则缺乏基本的尊重和认识，是基于个人私心绑架国家关系等。但这种战狼外交 显然对理察议员 没有产生任何影响，就在10月8日台北举行的一场记者会上，理察再次表示：“这个岛以及这个国家的名称，就叫做台湾”。
+(本文仅代表作者观点)
 
-同时，十一节日过后，重提孙力军，傅政华的违纪违法的调查决定。是否是双规“政法虎“的余震呢？郭文贵先生爆料，孙力军，傅政华的审查报告中，都没有提及其杀人灭口的相关案件。那么，是否就意味着，此二人的锒铛入狱，还没有把真正的大料深挖出来。今天的重提，是否再震一震那些与孙，傅二人相关的大佬们地基，松一松土，为接下来的党内血雨腥风的政治斗争做一些铺垫？那么到底是王岐山，孟建柱被拿下呢？还是习近平突然暴毙呢？我们拭目以待！
+参考链接：[不甩北京愤怒与抨击 法国参议员坚持认为台湾应被称为“国家”](https://www.voachinese.com/a/call-Taiwan-a-country-French-senator-says-angering-China-20211008/6263058.html)
 
-**[资料来源](https://news.sina.cn/2021-10-09/detail-iktzscyx8569095.d.html?from=wap)**
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
