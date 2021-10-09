@@ -2,47 +2,29 @@
 ---
 
 
-## 一位草根战友的心声
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1584292/)
+## 有声|喜迎喜币上市有感
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1584324/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/地狱-1.jpg)图片源自网络
+配音：香草山美食部 – 玫瑰园
 
-**作者：**般若
+郭公灭共海滔滔，顶天行义日昭昭。
 
-**编辑：**Candy
+我族坎坷千百载，罹遭赤祸鬼哭嚎。
 
+世道不堪人心丧，方孔无束驭颈梁。
 
-```
-当我还在地狱里挣扎时，
-我以为它们口中的“正能量”就是光明;
-当我看到爆料革命的光明时，
-我才发现我竟然身处地狱。
+贪痴化难汪洋肆，喜币吞吐最称骄。
 
-当我鼓足勇气走进光明时，
-我看到地狱已在我身后；
-当我追寻希望时，
-我一刻不敢忘记地狱的模样。
+文字版原文：[喜迎喜币上市有感](https://gnews.org/zh-hans/1580328/)
 
-迈向天堂时，
-我警醒自己为什么要苦苦寻找天堂：
-为了我，为了家人，
-也为了依然身处地狱的他们……
+音频处理：喜山必胜Maverick
 
-他们的今天，就是我的昨天；
-没有了他们，天堂就不复存在。
-人生，三万天，
-永不忘了自己是草根，便无所畏惧……
-
-感恩七哥，那“一灯、一智”🙏
-
-（本文进代表作者个人观点，与Gnews无关。）
-
-发布：Candy
-
-更多资讯，请关注：
-澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
-澳大利亚墨尔本雅典娜农场Gettr：himalayaathena
-澳大利亚墨尔本雅典娜农场YouTube
-澳大利亚墨尔本雅典娜农场Discord
-澳大利亚墨尔本雅典娜农场GTV直播1台
-```
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

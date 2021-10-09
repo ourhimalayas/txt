@@ -2,36 +2,42 @@
 ---
 
 
-## 英国主媒为毒针冬季死亡潮铺设诱因
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1583898/)
+## 盖特CEO：“非死不可”正面临“末日的开始”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1583952/)
 
-作者：安吉拉
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-截至本月7日，全球46.3%，即36亿人口已至少接种一剂新冠疫苗。在英国，包括本月开始执行的中学接种令，该比率已突破78.4%。主流媒体和当地政府对疫苗危害多方掩盖，但这不会阻止病毒及毒针导致的次生灾难的爆发。
+- 编译：Lulumi
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-6.jpeg)
 
-本周英国全国性媒体，及地方平台接连发布通稿，警告英国将迎来50年以来最糟糕的冬天，国家医疗服务系统领导人担心，今年流感将造成约6万人死亡；疫情以来，英国大量健康检查和临床手术已经取消或延期。卫生专家表示，医院和卫生系统承受巨大压力，更将无法应对激增的各类呼吸道感染病例。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-19.png)美国《时代周刊》的插图（来源图片：Getty Images）
 
-早些时候，主媒发布英格兰部分地区发生大肠杆菌水污染警告，人均财富高水平的萨利郡和肯特郡大约有6500户居民受到影响。昨日东南水务公司表示调查结果表示受污染的水并未离开处理厂，但当地媒体提醒居民切勿大意。
+GETTR首席执行官杰森·米勒周五在 “与玛丽亚的早晨”节目中对《时代周刊》最新聚焦于Facebook清算的封面做出反应，称Facebook正面临 “末日的开始”。
 
-不管是在东南亚、美国还是含欧洲在内的西方国家，新冠疫苗造成的终身病患和死亡病例与日俱增。疫苗毒针是生化战争的辅助武器，控制人类基因，导致广泛的死亡和人道主义灾难。
+杰森·米勒：我认为这与哥特人洗劫罗马非常相似，我认为这是Facebook的末日的开始。
 
-(本文仅代表作者观点)
+真的，本周有两条重要的线索，一是有极左派，如举报人，开始对付大科技公司……另外，玛丽亚，我想大多数人没有意识到大科技公司在控制你的数据整合：Facebook拥有Instagram，拥有WhatsApp，当然还有Facebook Messenger。
 
-参考链接：[Health officials fear up to 60,000 flu deaths this winter](https://www.independent.co.uk/news/health/covid-flu-vaccine-latest-deaths-b1934218.html)
-[Coronavirus (COVID-19) Vaccinations](https://ourworldindata.org/covid-vaccinations?country=GBR)
-[Influenza deaths in 2018, 2019 and 2020](https://www.ons.gov.uk/aboutus/transparencyandgovernance/freedomofinformationfoi/influenzadeathsin20182019and2020)
-[E. coli scare: Water company gives update after fears of contaminated supplies to thousands of homes in Surrey and Kent](https://www.getsurrey.co.uk/news/surrey-news/live-surrey-water-e-coli-21798873)
+随着本周的系统瘫痪，人们开始意识到，“等一下，一个简单的服务器升级或全系统升级就导致了这一切，瘫痪了，纳斯达克指数下跌2%？一家公司的一个人影响力就这么大，这真的很令人担忧。”
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**完整采访请观看下面链接：**[video.foxbusiness.com](https://video.foxbusiness.com/v/6276158904001#sp=show-clips)
 
-编辑/校正/发稿：谐趣园
+**评论：**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**如果两年前有人说****Google****，****Facebook****，****Twitter****等美国****科技巨头会打压言论自由，破坏民主制度，掩盖真相助纣为虐，我会说：“怎么可能，那是中共国，美国公司有底限的不至于。”**
+
+**即便那时已经经历了****419****断播，脑子还是没转过弯。如果不是香港反送中，美国大选舞弊，中共病毒追责，疫苗灾难等一系列颠覆认知的事件，绝大多数美国人甚至爆料革命战友，都不会相信这些美国科技巨头是跟中共及黑暗势力狼狈为奸的打手。**
+
+**最重要的是四年来，如果文贵先生不是一层一层，由浅入深地揭露世界的黑暗，而是一下子把所有真实信息都推到普通人面前，反而让人觉得难以置信。所以我现在突然理解了为什么文贵先生会在****2017****年的记者会上烧掉那三份绝密文件。对于真相的接受需要一个长期缓慢的消化理解的过程，所以在跟家人朋友传播爆料革命，疫苗真相的时候，一定要克制住求急，求快，追求立竿见影的心态，我们只要心平气和的传播真相，至于别人能不能听进去，不是我们的目标。**
+
+**看完上面的新闻，脑子里突然冒出习一尊的名言：“东升西降”，不对，是“盖升脸降”，“盖升推降”，“盖升油降”，最终“盖飞脸破”，“盖飞推倒”，“盖飞油灭”，新中国联邦或成为最大的赢家😄😄😄。**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**新闻来源：**[福克斯财经网](https://www.foxbusiness.com/media/facebook-facing-beginning-of-the-end-jason-miller)(FOX Business) | 作者：福克斯财经人员|发布时间：2021年10月8日
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)

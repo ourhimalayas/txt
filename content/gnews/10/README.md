@@ -2,43 +2,64 @@
 ---
 
 
-## 【墙闻观察】连《国际歌》都成准禁歌了，中共CCP在颤抖
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1584325/)
+## 强大的 &#8211; 我将继续为我的医疗自由而战
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1584362/)
 
-温哥华扬帆农场：枫叶正红时
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Untitled_design-1.png)
-不得不说，在郭先生2017横空出世以前，尽管一次次的怀疑过中共CCP的丑陋，但对中共CCP的很多红歌却能信手拈来。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/a0z1j-mxxio.jpg)
+[https://gtv.org/video/id=61618560d2e2b81748732e45](https://gtv.org/video/id=61618560d2e2b81748732e45)
 
-中共国国殇日期间，墙内有人发来的一段视频显示，中共CCP爪牙对普通民众基本谋生手段的迫害，令人发指、罄竹难书。十几个共惨党城管地痞流氓，对一位60多岁的老人拳脚相加，一筐鸡蛋落得满地蛋黄，一群群小商贩，被一帮牲畜追得四散奔逃。
+Spent 4 years in undergraduate school studying health sciences
+在本科学校学习了四年的健康科学
 
-中共国百姓，天天生活在被威胁和恐怖氛围中。一个普通城市，最普通的地铁站的一个入口，除了三个安检，两个二维码审查员，三个拿着狼牙棒的巡逻保安，还有四个手持盾牌、钢叉的地铁公安。CCP在即将灭亡前，通过在手无寸铁的百姓面前，炫耀武力，制造恐怖氛围，去掩盖对即将灭亡的深深恐惧。
+Went to graduate school and endured a rigorous 2 year accelerated masters of science in nursing program
+进入研究生院并接受了严格的两年护理学硕士加速课程
 
-宁波银行的储户们高唱中共国国歌，得到的是一车车特警；恒大金融的投资者撕心裂肺的呐喊，换来的是共惨党一次次的维稳。
+Became an ICU nurse and treated COVID + patients for 19 months
+成为ICU护士并治疗了19个月的COVID患者
 
-我不知道怎么去拯救他们，我想答案或许就在共惨党自己的红歌里！ “从来就没有什么救世主，也不靠神仙皇帝！要创造人类的幸福，全靠我们自己！我们要夺回劳动果实，让思想冲破牢笼！快把那炉火烧得通红，趁热打铁才能成功！”这是《国际歌》中的歌词！
+In 2020, we reused N95 masks and gowns.
+在2020年，我们重复使用了N95口罩和防护服
 
-《国际歌》（法语：L’Internationale）是最著名的国际共产主义运动颂歌。这个名称来源于“第一国际”，原法语歌词由欧仁·鲍狄埃于1871年创作，皮埃尔·狄盖特于1888年谱曲，后被翻译成世界上的许多种语言，传遍全球。它曾经是第一国际和第二国际的会歌，各国共产党的代表大会和重要活动上都会演奏《国际歌》。
+During that time I cared for your grandmother, sister, brother, son, and mother.
+在那段时间里，我照顾你的祖母、姐妹、兄弟、儿子和母亲
 
-然而，中共CCP对老百姓唱这首歌感到担忧甚至充满恐惧。在中共国，《国际歌》早就被带有一种堪称“准禁歌”的性质。
+I’ve sacrificed holidays, weekends, time, sleep and events with my family to be there for yours.
+我牺牲了假期、周末、时间、睡眠和与家人一起的时间来照顾你的家人
 
-2016年，唐朝乐队版本的国际歌就被网易音乐下架。而早在2003年4月，西安交通大学仰恒光等11名学生在部分学生喊罢餐口号时，用电脑放《国际歌》被处分。2008年9月9日，一篇《[质问天涯－－-发《国际歌》歌词的贴子违法吗?](http://bbs.tianya.cn/post-stocks-560589-1.shtml)》中提到，一普通网民在股坛发了首《国际歌》歌词的贴子被管理员删了，而且还封杀了ID几天。一篇题为“[《国际歌》为何成为禁歌?](http://blog.chinaunix.net/uid-24220170-id-2622373.html)”的博文中提到，某地政府为了建设“和谐社会”，防止劳资关系对立，内部下达一条“新纪律”：凡是有劳工、民工参加的企业集会或社会集会，一律不许播放和吟唱《国际歌》，特别严禁传唱《国际歌》歌词，违者以“党纪国法”追究“破坏社会稳定”之罪。
+As of Oct 1, 2021 I was suspended.
+截至 2021 年 10 月 1 日，我被停职了
 
-《国际歌》是全世界无产者的战歌，其高扬的反剥削反压迫之阶级斗争旗帜是极其鲜明的。这种鲜明的战斗品格，“建设更加美好强大的中（共）国”不过是为了几个盗国贼。今天中共国究竟强大了谁？
+On Nov 1, 2021 I will be terminated because I chose not to get the shot.
+2021 年 11 月 1 日，我将被解雇，因为我选择不接种疫苗
 
-中共CCP老杂毛们非常明白，今天这个时代《国际歌》意味着啥，就当下而言，老百姓唱着《国际歌》就是给自己找事。足以说明，中共CCP老杂毛们彻底害怕了，CCP在颤抖！CCP对即将被彻底消灭心知肚明！
+Despite all of this, my faith will endure.
+尽管如此，我的信仰仍将持续下去
 
-CCP老杂毛们，你完蛋了！ Take Down CCP！
+And I will continue to fight for my medical freedom.
+我将继续为我的医疗自由而战
 
-参考资料：
+Please know I WILL be back doing what I love most!
+请知道我会回来做我最喜欢的事情！
 
-[重贴，放国际歌是违法的](https://bbs.focus.cn/bj/22482/7fdba5f1755667b8.html)
+**Singing：**
 
-[质问天涯－－-发《国际歌》歌词的贴子违法吗?](http://bbs.tianya.cn/post-stocks-560589-1.shtml)
+I could be brown I could be blue I could be violet sky
+我可以是棕色的, 我可以是蓝色的, 我可以是紫罗兰色的天空
 
-[《国际歌》为何成为禁歌?](http://blog.chinaunix.net/uid-24220170-id-2622373.html)
+I could be hurtful I could be purple I could be anything you like.
+我可以是伤感的，我可以是紫色的，我可以是任何你喜欢的
 
-[老百姓唱《国际歌》出事了，谁在恐惧颤抖？](http://www.xilu.com/20210622/1000010001178128_1.html)
+…………….
 
-（免责声明：本文只代表作者观点，跟GNEWS平台无关）
+**原视频链接:** [https://twitter.com/anoncitizenuk/status/1445911691506688000?s=24](https://twitter.com/anoncitizenuk/status/1445911691506688000?s=24)
 
-编审：文敏
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,36 +2,21 @@
 ---
 
 
-## 辉瑞正式向FDA提出让5到11岁的儿童接种COVID-19疫苗
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1584242/)
+## 英国800万人无法购买必需品
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1584271/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-2.jpg)
+翻译：神奇四侠
 
-作者：纽约香草山医疗部 圣母院钟声
+英国国家统计局（ONS）的最新数据显示，在过去两周–9月22日至10月3日期间，多达800万英国人无法购买基本食品。
 
-辉瑞及其德国合作伙伴BioNTech于10月7日向美国食品和药物管理局（FDA）递交了申请。大约一周前，他们提交的数据表明，该疫苗在第2，3阶段临床试验中成功引发了5至11岁儿童的抗体反应。但试验的完整结果尚未公布。辉瑞的相同mRNA疫苗先前已经获准用于12至17岁的儿童。他们最近的儿童试验根据FDA的建议，对剂量进行了调整，给儿童一个两次接种的方案，每次10微克，成年人的剂量是30微克。FDA的疫苗顾问团将于10月26日开会审查疫苗对5-11岁儿童的有效性和安全数据。 白宫新冠疫情协调员杰弗里·齐恩茨（Jeffrey Zients）告诉CNN记者， “一旦辉瑞的请求通过CDC和FDA的审核，对5-11岁美国孩子的疫苗接种可以在感恩节前获得批准，我们将为此做好准备。“ 过去数月世界多国的临床科研机构所发表的研究表明，辉瑞疫苗对新冠感染和至重症保护的有效性随着时间的推移而急剧下降。以色列等国在完成全民接种后的高感染率是最好的例证。此外，辉瑞公司的三名科学家最近被暗访记录承认，因感染新冠病毒而获得的自然免疫力远优于疫苗所能提供的保护。
-在欧洲一些国家已经明确不再强制30岁以下年轻人接种疫苗的时候，美国政府还在一意孤行，可见大疫苗商已经买下大多数政策制定者。在为时太晚之前，美国的父母及民众有责任站出来保护他们的未来。
+随着供应危机的持续，英国人开始囤积必需品，英国各地超市出现抢购潮，肉类、水果和冷冻食品被抢购一空。
 
-参考链接：
+在本周的早些时候，英国人已经开始恐慌性地购买火鸡，冷冻禽类的销售量猛增达到以前的4倍。而超市也证明了消息的准确性，并承认顾客在担心食品的供应。
 
-[https://www.theepochtimes.com/mkt\_morningbrief/pfizer-formally-asks-drug-regulators-to-let-kids-as-young-as-5-get-its-covid-19-vaccine\_4036989.html](https://www.theepochtimes.com/mkt_morningbrief/pfizer-formally-asks-drug-regulators-to-let-kids-as-young-as-5-get-its-covid-19-vaccine_4036989.html)
+根据The Grocer的一项调查，有三分之一的英国人已经开始提前购买圣诞食品和饮料，或者计划在10月底前购买完毕。还有三分之二的人担心圣诞期间物资会短缺。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/comp-ap-6469-panic2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+新闻来源:[太阳报](https://www.thesun.co.uk/news/16373968/supermarket-shelves-empty-stockpiling-essentials/)
 
-审稿：圣母院钟声
+图片来源:[太阳报](https://www.thesun.co.uk/news/16373968/supermarket-shelves-empty-stockpiling-essentials/)
 
-编辑：圣母院钟声
-
-发稿：圣母院钟声
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-1-2.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-2.jpg)
+校对发稿：Ada（马德里）
