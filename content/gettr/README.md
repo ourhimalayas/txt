@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/9/2021 4:15 PM (UTC)`
+
+《双龙计划 The Two Cities Project》<br/><br/>
+![img](https://media.gettr.com/group22/getter/2021/10/09/16/8acc783d-9cac-14d9-8fa0-d448a7196f7f/out.jpg)
+
+---
+
 `@miles 10/9/2021 4:02 PM (UTC)`
 
 因为未打疫苗而面临失业的美国飞行员呼吁大家反对强制疫苗，为自由而战！
@@ -287,13 +294,6 @@ September 20th, 2021 — German Corona Investigative Committee Press Conference 
 
 10/06/2021 Miles Guo’s GETTR: PAG (Hong Kong) mainly connected and deceived the Jewish investors, and further manipulated stock markets by deceiving institutional and individual investors in the West, and when all these are revealed one day, something big will happen inside of the Chinese legal community; various of situations inside of CCP China are all in mess<br/><br/>10/06/2021 文贵盖特：香港太盟投资(PAG)以联络欺骗犹太投资圈为主、哄抬股市、欺骗西方机构投资人和小股东，这个雷爆的时候中国律师界要出大事儿；国内各种形势一塌糊涂<br/>
 ![img](https://media.gettr.com/group47/getter/2021/10/07/02/22/d2967fa0-9c0e-140e-9547-f19f75631bb9/out.jpg)
-
----
-
-`@miles 10/7/2021 12:10 AM (UTC)`
-
-September 20th, 2021 — German Corona Investigative Committee Press Conference (1)<br/><br/>Dr. Burkhardt:<br/>1️⃣Vaccines can cause similar lymphocyte predominant lymphocytic carditis in the heart muscle and its capsule. If it happened at the heart's conducting system, it will cause immediate heart death. This is very hard to be diagnosed even in post-mortems. <br/>2️⃣He observed the Lymphocyte Amok (Crazy) in all organs and all tissues, overshooting immune reaction, i.e., self-to-self attack - Activation of the lymphatic organs.<br/>3️⃣He told you the consequences of the vaccine-caused myocarditis in young people and sportsmen. <br/><br/>Full German version: https://gtv.org/video/id=614b401442a8af3151a34afa<br/>Full English version: https://gtv.org/video/id=61598e4c304e992109ae6487
-![img](https://media.gettr.com/group34/origin/2021/10/07/00/10/8d77a93f-45af-df55-43e8-1c8ecc8ffa78/out.jpg)
 
 ---
 
