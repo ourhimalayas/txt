@@ -2,180 +2,50 @@
 ---
 
 
-## 2015年郭文贵先生和傅政华通话录音的真相
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1583184/)
+## 英国法官命令政府证明对儿童接种Covid-19疫苗的合理性
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1583235/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-17.jpg)https://gtv.org/video/id=61607e1cd2e2b8174872d6dc
-整个这说明了七哥是有核弹的
-Todo esto demuestra que yo tengo la bomba nuclear
+据《theexpose.uk》作者： DAILY EXPOSE，2021年10月6日报道：
 
-否则他不会这样来找我
-Sino él no vendría a buscarme
+一位法官已经命令英国政府提交证据，证明为儿童接种Covid-19疫苗的合理性，给他们的最后期限是10月11日。
 
-傅三就是傅卫华
-El tercer hermano de Fu es Fu Weihua
+在我们于9月30日独家披露15岁以上青少年接种Covid-19疫苗后，与2020年同期相比，该年龄组的死亡人数增加了47%，因此杰伊法官阁下的命令是非常受欢迎的。
 
-他的三弟跟我联络
-Su tercer hermano menor se comunicó conmigo
+我们还深入研究了国家统计局的数据，因为我们怀疑这些死亡中的大多数是十几岁的男孩，可能是主要发生在年轻男性身上与辉瑞疫苗相关的心肌炎的结果，以及从英格兰公共卫生局数据中发现的因心脏骤停而要求救护车的紧急呼叫的增加有关。
 
-现在党内所有听我爆料的人
-Ahora las personas que están en China y están escuchando mi Movimiento de Denunciantes
+不幸的是，我们的担心得到了证实，因为我们在10月4日独家披露，自从英国的青少年男孩开始接种Covid-19疫苗以来，他们的死亡人数增加了63%。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2460.png)
+更重要的是，我们随后在10月5日独家披露，克里斯-惠蒂决定推翻“疫苗接种和免疫联合委员会”的决定——建议政府向所有健康的中学生提供Covid-19疫苗。到目前为止，与2020年同期相比，男性未成年人的死亡率增加了400%。
 
-你们记住
-Ustedes recuerden
+然而，人们一直在法庭上争取推翻英格兰首席医疗官的决定，即儿童应该注射实验性的Covid-19疫苗。但不幸的是，到目前为止还没有结果。
 
-5年前你听那个录音的时候
-Hace cinco a?os atrás cuando escuchaste esa grabación
+9月2日，“Covid-19大会”和律师Francis Hoar申请举行紧急听证会，暂停向18岁以下儿童推广Covid-19疫苗，但申请已经被第二次驳回。
 
-你们得到的答案是什么
-Cuál fue la respuesta que obtuvieron
+申请人要求法院仅用半天时间听取口头辩论，以考虑是否暂停向所有12-17岁的健康儿童注射实验性mRNA技术疫苗，该技术产生了越来越多的凝血和其他不良反应（包括死亡）的报告，但仍处于紧急授权状态，且从未给人类注射过。
 
-说这是郭文贵编的虚假录音
-Dijeron que este es una grabación falsa inventada por Guo Wengui
+法院认为，将申请人的申请推迟14天审议，让政府准备答复。虽然实际上不是拒绝，然而，这种拖延的实际效果是拒绝了所寻求的紧急救济，并使国家的全部资源和机器进入运转状态。
 
-根本不是傅政华的
-No fue de Fu Zhenghua
+然后在9月1日，“Covid-19大会”第三次申请法院听取他们的辩论，只需要半天时间，在大规模注射健康儿童的计划开始前。
 
-傅老三也根本不认识郭文贵
-El tercer hermano de Fu no conoce a Guo Wengui
+然而，9月17日，法院拒绝允许申请人在9月28日之前进入法庭。
+随后，Covid-19大会向上诉法院提出申诉，要求推翻法院拒绝“不允许对儿童进行不必要的疫苗注射”进行紧急听证的决定。
 
-结果傅政华是声泪俱下的给解释
-Resulta, Fu Zhenghua explicaba entre lágrimas
+尽管政府做了最后的努力来说服上诉法院反对，但法院还是在9月22日将此案列为临时听证会。不幸的是，上诉被拒绝，此案仍将在9月28日举行。
 
-然后又写了东西
-Y escribió algo
+据Covid-19大会报道，9月28日的听证会结果如下：
+法院已将此案推迟到下一次听证会，以便让政府有更多时间对申请者最近提出的案件作出回应。这是因为JCVI和CMO发表了声明，而国务卿也是在本诉求发布后才做出了实施大规模接种的决定。为了回应这些声明和决定，申请人必然要修改声索要求。
 
-中央
-La central
+政府曾要求撤销该案，但该案仍在法院审理。杰伊法官接受了申请人的大律师Francis Hoar先生已经做了足够的工作来说服他有一个可论证的案件。法官还驳回了政府的论点，即对本案的考虑应限于它如何影响这两个申请人。他认为他们具有代表性，并有权提出对更多人的影响来考虑问题。
 
-最后专案组认为这是郭文贵自己录的
-Finalmente, el grupo de proyecto pensó que fue grabado por el propio Guo Wengui
+然而，法院拒绝下令立即暂停大规模疫苗接种计划。在听取了双方关于如何进行此案的陈述后，政府寻求一个漫长的时间表和延迟，而申请人则寻求快速审理。法院已发出指示，要求政府在10月11日前提交进一步的答复和证据，而申请人则在10月15日前进行答复。然后，法院将迅速重新审议该事项。
 
-假的傅政华的变音录音
-Es la grabación falsa de cambio de voz de Fu Zhenghua
+当今天的诉讼尘埃落定后，我们可能会发布进一步的更新。
 
-傅老三说没跟郭文贵接触
-El tercer hermano de Fu dijo que no se había puesto en contacto con Guo Wengui
+原文连接：[https://theexpose.uk/2021/10/06/uk-judge-orders-government-to-provide-evidence-in-court-that-justifies-covid-19-vaccination-of-children/](https://theexpose.uk/2021/10/06/uk-judge-orders-government-to-provide-evidence-in-court-that-justifies-covid-19-vaccination-of-children/)
 
-跟郭文贵的员工有接触
-Pero si con el empleado de él
-
-仅此而已, 也没拿过钱
-Solamente así, y que tampoco recibió dinero
-
-最后中央认可, 傅没事了
-Finalmente, la central lo aceptó y por eso Fu no tuvo problema
-
-如果当时傅这个谎言被戳穿
-Si en aquel momento la mentira de Fu fue descubierta
-
-他就到不了今天了
-No sobreviviría hasta hoy
-
-我今天告诉你们
-Hoy les digo
-
-傅政华那个真正的录音的变声的鬼诀
-El verdadero truco fantasma de Fu Zhenghua para cambiar la voz
-
-不在乎他恐惧
-No importa su temor
-
-傅政华的假录音是他的司机
-La falsa grabación de Fu Zhenghua es de su conductor
-
-真正讲话的是他司机
-Quien realmente habló fue su conductor
-
-他的私人司机
-Su conductor personal
-
-他跟他前妻离婚了
-él se divorció con su ex esposa
-
-前妻住在北京国际饭店
-Su ex esposa vive en un hotel internacional de Beijing
-
-跟日本一家公司搞娱乐
-Estableció una empresa japonesa de entretenimiento
-
-就是他派去监督他老婆的
-Fue él quien mandó a vigilar a su esposa
-
-这个司机怎么着你知道吗
-Qué pasó con este conductor, ?lo sabes?
-
-已经死了
-Ya está muerto
-
-傅政华不像你想(的那样)
-Fu Zhenghua no es como tú piensas
-
-他太了解共产党了
-él conoce muy bien al Partido Comunista
-
-他让司机在旁边
-él hizo que el conductor estuviera a su lado
-
-他给司机说
-Le dijo a él
-
-司机按照这个回答
-Que respondiera como él lo diga
-
-你查出这录音也不是我
-Si llegas a descubrir de esta grabación tampoco fui yo
-
-最后报告了他
-Al final le informó
-
-这录音不是傅
-Que esta grabación no es de Fu
-
-你只要但凡有一点常识
-Siempre y tengas un poquito de conocimiento
-
-拿软件一查肯定不是傅
-Investigas a través de una aplicación podrás saber que no es de Fu
-
-他的语音
-Su acento
-
-他是北京发音
-Su acento es de Beijing
-
-口音河北腔和北京腔
-El acento Hebei con el de Beijing
-
-不是他
-No es él
-
-但是他所有的话都是安排好的
-Pero todas sus palabras ya lo había planeado
-
-你看小三(傅卫华)这事儿他不接茬
-Mira al tercero (Fu Weihua) él no se ocupa de este asunto
-
-他怕你泄漏信息
-él teme a que tú revelas la información
-
-傅卫华是他的核心
-Fu Weihua es su núcleo
-
-他的三弟和傅政华的孩子在加拿大藏的钱
-El dinero que escondió en Canadá el tercer hermano y el hijo de Fu Zhenghua
-
-绝对富可敌国
-Es de tanta riqueza que puede ser enemigo de un país
-
-原视频日期：10/06/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1445657164916269059?s=24
-视频时间段：0:00-1:54
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
+翻译：洛杉矶盘古农场- TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 柯镇恶
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

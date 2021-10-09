@@ -2,44 +2,34 @@
 ---
 
 
-## 有声| 肾衰竭晚期患者因未接种毒针疫苗被拒绝移植手术
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1583660/)
+## 中共无耻纪念辛亥革命，&#8221;武统&#8221;威胁台湾
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1583759/)
 
-配音：香草山美食部-玫瑰园
+作者：在远方
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
+10月9日上午，中共厚颜无耻的在北京举行“纪念辛亥革命110周年大会”，党魁习近平在讲话中不仅歪曲历史、颠倒黑白，而且对台湾释放强烈的”武统”威胁信号。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.9AM-PICTURES-123567.004.jpeg)
+1911年10月10日武昌起义爆发，辛亥革命最终推翻满清专制，次年建立了亚洲第一个民主共和国中华民国，国体至今仍在台湾蓬勃的发展着。而由共产国际支持的中共军队，在国民政府全面抗日阶段，借西安事变之机养精蓄锐，最终在抗战胜利后发动内战，窃取了辛亥革命和抗战果实，鸠占鹊巢，在中国大陆进行了长达70年的专制独裁统治。
 
+中共成立百年来给中国带来无穷无尽的灾难，饥荒和杀戮不断，同时篡改和编造历史，不断通过暴力和谎言洗脑并维护统治，试图将自己伪装成救世主，直到今天，这个苟延残喘的中共政权，仍然妄图通过”武统”侵略台湾来 转移病毒真相追索，和日日升温的国内外压力和矛盾，此举虽属邪恶无耻，但也将导致中共自取灭亡。
+(本文仅代表作者观点)
 
-10月7日，科罗拉多州一位患有5期肾病，即肾功能衰竭最晚期的女性莱拉尼·卢塔利对媒体表示，因为她与捐赠者杰米·福格纳（Jaimee Fougner）都没有接种新冠病毒疫苗，科罗拉多州的医院拒绝为她们进行肾移植。目前，她们正在努力寻找其他医院。
+参考链接：[独家视频丨习近平：辛亥革命是中华民族伟大复兴征程上的一座里程碑](https://www.163.com/news/article/GLS4HCCP000189FH.html?clickfrom=w_yw)
 
-卢塔利一直在器官移植等待名单中排队。8月份的时候，她还被告知接种新冠疫苗不是接受移植的先决条件。但9月底，她收到了一封来自州卫生联盟（UCHealth）的信件，告诉她相关规定被修改。卫生联盟设定30天的期限要求两人接种，否则将把她们从肾移植名单中删除。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-
-
-**文字版原文：[肾衰竭晚期患者因未接种毒针疫苗被拒绝移植手术](https://gnews.org/zh-hans/1581659/)**
-
-
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
