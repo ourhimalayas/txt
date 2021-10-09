@@ -2,23 +2,45 @@
 ---
 
 
-## 美一民调显示约七成家长反对学生强制接种疫苗
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1582302/)
+## 前国务卿迈克·蓬佩奥： 我们必须明确表示，美国不会接受习近平的所谓统一 台湾
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1582345/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+前国务卿迈克·蓬佩奥： 我们必须明确表示，美国不会接受习近平的所谓统一 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click)。 【附福克斯新闻对蓬佩奥的访谈视频】
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/V-1.jpg)wsj.com
-根据周三（10月6日）公布的昆尼皮亚克大学（Quinnipiac University）民意调查显示， 当被问及K-12中小学生一旦有资格接种中共病毒疫苗，是否应该实施强制接种疫苗政策时，68%有18岁以下孩子的家长受访者表示，他们不同意强制接种疫苗。【1】
 
-但家长的意见与总体人群有很大不同。如果学生们符合疫苗接种条件，总体上52%的受访者认为不应该强制接种疫苗，另外44%的受访者认为必须强制接种疫苗。
 
-对于拜登政府处理中共病毒的方针政策，48%的受访者说他们表示赞成，50%的人说表示反对。对于拜登总统执政满意度调查显示，38% 表示满意，53% 表示不满意。昆尼皮亚克大学民调分析师蒂姆·马洛伊(Tim Malloy)在谈到这些数字时说：”在信任方面拜登总统受到打击，在领导力方面受到怀疑，在整体能力方面受到挑战。（民调显示）他的支持率正持续下滑，达到了川普政府受到严厉审查以来（最差）的一个数字。”
+> We need to make clear that the United States is not going to accept what Xi Jinping calls reunifying the Taiwanese. [pic.twitter.com/Jwoo2rlX4b](https://t.co/Jwoo2rlX4b)
+> — Mike Pompeo (@mikepompeo) [October 8, 2021](https://twitter.com/mikepompeo/status/1446542114293223439?ref_src=twsrc%5Etfw)
 
-随着2022年中期选举的临近， 美国民众对拜登执政能力不满或许会给民主党带来麻烦。此外，最新国会选票普调结果显示，共和党以47比44领先民主党。虽然数字显示共和党并非处于”压倒性”领先优势，但这预示着民主党的潜在危机，多数选民建议不能再让民主党继续控制众议院。
 
-美国参议院候选人JD ·万斯（JD Vance） 谈及此问题时也说到，民主党现在实施的大规模支出法案是 （对糟糕的美国经济） 进行”火上浇油”。这种方法不但无益于解决任何实际问题， 反而使情况愈发恶化。
 
-参考链接：
+美白宫： 自 2000 年以来，一半的美国钢铁公司已经关闭。中国现在一个月生产的钢铁比美国一年生产的还多。 两党基础设施​​合约和“重建更好”议程将促进美国的生产并在制造业等行业创造就业机会。
 
-【1】[Vaccine mandates for students opposed by 7 out of 10 parents, poll finds – Foxnews – 10/08/2021](https://www.foxnews.com/politics/nearly-7-in-10-parents-oppose-vaccine-mandates-for-students-poll-finds)
+
+
+> Since 2000, half of U.S. steel companies have closed. China now produces more steel in a month than America does in a year.
+> 
+> The Bipartisan Infrastructure Deal and Build Back Better Agenda will boost U.S. production and create jobs in industries like manufacturing.
+> — The White House (@WhiteHouse) [October 8, 2021](https://twitter.com/WhiteHouse/status/1446573717392343046?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·沃尔茨： “醒来”的美国公司准备在国内进行抵制，但对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的现代奴隶制却视而不见。 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 正在对美国发动冷战——而我们的资金正在助力中共国的军事建设。如果您的产品上写着“中国制造”，请放下它！ 【附沃尔茨议员在祈祷投票战峰会上的讲话视频】
+
+
+
+> 'Woke' American corporations are ready to boycott here at home but turn a blind eye to modern day slavery in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw).
+> 
+> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) is waging a cold war with the U.S. — and our money helping fuel China's military build up. If your product says “Made in China” put it down! [pic.twitter.com/EPmx0sUBQY](https://t.co/EPmx0sUBQY)
+> — Rep. Mike Waltz (@michaelgwaltz) [October 8, 2021](https://twitter.com/michaelgwaltz/status/1446554487737384964?ref_src=twsrc%5Etfw)
+
+
+
+骏升科技(钦州)有限公司[@UEI\_IBC](https://twitter.com/UEI_IBC)是奴隶劳动的同谋。承认与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 合作将维吾尔人从 [#新疆](https://twitter.com/hashtag/%E6%96%B0%E7%96%86?src=hashtag_click) 强行运往钦州。 拜登总统必须通过支持我的‘维吾尔强迫劳动预防法’来追究该公司的责任。 【附路透社文章：骏升科技达成运输和雇用维吾尔工人的协议】
+
+
+
+> .[@UEI\_IBC](https://twitter.com/UEI_IBC?ref_src=twsrc%5Etfw) is complicit in slave labor. admitted to working with the Chinese Communist Party to forcibly transport Uyghurs from [#Xinjiang](https://twitter.com/hashtag/Xinjiang?src=hash&amp;ref_src=twsrc%5Etfw) to Qinzhou
+>  
+> President Biden must hold the company accountable by supporting my Uyghur Forced Labor Prevention Act [https://t.co/8dbkXvSl0T](https://t.co/8dbkXvSl0T)
+> — Marco Rubio (@marcorubio) [October 7, 2021](https://twitter.com/marcorubio/status/1446247002929500164?ref_src=twsrc%5Etfw)

@@ -2,81 +2,46 @@
 ---
 
 
-## 中共欠世界的钱还不了，也没人还
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1582252/)
+## 纽约黑人抗议COVID-19疫苗强制接种，将其与奴隶制相提并论
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1582269/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/155-a8dbe-mmnjy.jpg)
-[https://gtv.org/video/id=6160268ad2e2b8174872af35](https://gtv.org/video/id=6160268ad2e2b8174872af35)
+**简评：**
+**疫苗接种从一开始的宣传，劝说和游说，发展到间接的区域限制，到目前的捆绑工作和收入，清晰的让我们看到疫苗接种从一个医学课题演变成为一个复杂的政治手段。这是多么熟悉的套路，我们看到的是中共统治中国老百姓的娴熟的手法。现在西方的政客也开始运用，因为他们看到了中共在一个十几亿人口的大国可以成功的维系他们的政权近百年，惊叹之余会毫不犹豫地承认这种给社会分等级，分化民众的做法，只要采取最低的成本，在媒体上进行宣传，用行政手段加以捆绑，人们会屈服于威胁到自己和家人的生存的压力，从而服从。即使是短暂的服从，也可以继续通过宣传和谎言，加上进一步的限制，鼓励或者是胁迫人们进入他们事先设计的进程中去。**
 
-**草根小哥：**
-**Caogen：**
+**病毒是引子，引起了人们的恐慌，疫苗才是真正的核弹，它分化民众，让打了疫苗的人群无形中成为政客和阴谋者的帮凶。疫苗分裂了我们的社会，消退了我们人性中的美好，将人性之恶放大并常态话。从以下的文章我们看到，几十年美国社会对于修复与黑人族群所作出的所有努力，正在瞬间崩塌的边缘，这是多么可怕的事情。**
 
-现在中共这些地方债欠那么多债，欠全世界那么多的钱
-Now the CCP owes so many local debts and so much money to the whole world
+**世界人民需要觉醒，正如我们新联邦所倡议的，不分种族，不分民族，追求真相，践行正道主义，这才是人类文明所发展的方向，才是世界人类梦寐以求的真正意义上的人类命运共同体。**
 
-那最终这笔债谁来还？如果灭了共谁来还？
-Who will pay this debt in the end? Who will pay the debts after CCP is destroyed?
+**据《theexpose.uk》作者Cassie B.，2021年10月7日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl-1.jpg)
+在乔治-弗洛伊德事件发生后，人们对任何说过或做过任何可能被认为是针对黑人的种族主义者的人都充满了怨恨，但令人震惊的是，对于将他们置于不利地位的COVID-19疫苗强制要求，却没有更大的愤怒。
 
-**郭文贵**
-**Miles Guo**
+纽约市的疫苗护照被许多黑人视为种族主义，他们正聚集在一起发出自己的声音。上周末，前美国国会议员候选人、民权人士马丁-路德-金的侄女安吉拉-斯坦顿-金在她帮助组织的布鲁克林活动中发言，谴责这些规定。大约有100人参加，其中大多数是黑人，表达了他们的愤怒。
 
-还不了的，崩塌，你像很多战友说中国没有电了一年怎么活
-Can’t pay it back, collapsing, like many comrades-in-arms asked how do you live a year without electricity in China?
+金在对《大纪元时报》的评论中提请注意疫苗被用作人口控制的问题。医疗种族隔离就是人口控制。人口控制有不同的形式：疫苗、堕胎、大规模监禁，以及针对儿童的变态性议程。她说：”人口控制是种族主义的，从子宫到坟墓。”
 
-太阳能发电呢，找太阳能啊
-Solar power, use solar power
+金是川普总统的坚定支持者，但感到愤怒不仅仅是那些具有保守政治倾向的人。
+更为自由的”黑人生活事件”组织也呼吁关注这些有问题的任务。大纽约地区”黑人命脉”组织的一位领导人奇沃纳-纽索姆(Chivona Newsome)就这项任务向市长比尔-德布拉西奥提出了批评，他说，”疫苗接种护照是现代的所谓自由文件，但它限制了黑人的自由意志”。
 
-还有现在很多这个可以让你暂短使用电的很多科学资料
-There are also a lot of scientific materials that allow you to use electricity for a while
+该任务在9月13日的那一周开始生效。它命令每个人在进入所有室内场所前出示疫苗接种证明。此外，某些机构的雇员也必须出示疫苗接种证明才能保住工作。这使许多黑人无法在城市餐馆就餐，同时也危及到他们的工作和生计。
+黑人公民占纽约人口的18%，但他们只占那里接种疫苗人数的14%。这与白人的数字形成鲜明对比，白人占该州人口的69.9%，占接种疫苗人数的69%，而纽约亚裔的数字分别为9%和15%。
 
-军用的东西要备啊，这是要有一些要装备的
-You need to prepare something for self defense, this is something you need to equip
+**美国黑人对疫苗的不信任因历史原因而加剧**
 
-但不要过度啊，不要听七哥建议，
-But don’t overdo it, don’t listen to me
+这么多黑人对接种疫苗犹豫不决一点也不奇怪。美国针对黑人进行医学实验的历史由来已久。尽管塔斯基吉梅毒研究现在可能已经过去几十年了，但美国黑人仍然没有得到与美国白人相同水平的医疗服务，从慢性疼痛的治疗到产妇死亡率，都存在着差异。人们对美国的医疗保健系统以及鼓励人们打预防针的政府机构有着深深的不信任。
 
-就是债没人还的，一定是崩盘的
-nobody will pay off the debt, it must have collapsed
+当然，同样的主流媒体、自由派政客和社交媒体上的人们，在支持黑人的名义下，仅仅根据一个警察的行为就迅速攻击每个警察，他们没有说或做任何事情来承认这个也影响到美国黑人的非常真实的问题。他们会抱怨对一个闯红灯的黑人的交通拦截是种族主义，但却不认为建立一个两级制度有什么问题，这个制度在很大程度上给了白人特权，而黑人不会有。事实上，他们不遗余力地羞辱那些不敢接种疫苗的人。
 
-没啦，没有人能还，你不用想的，
-Nothing, no one can pay it back, you don’t have to think about it
+那些声称我们没有从历史中学习并想推倒雕像的人，完全无视我们国家对黑人进行医学实验的历史，以及根据统计，以前的疫苗对黑人比其他种族的人更有害的事实。
 
-德国二战赔多少钱知道吗？ 1000多亿马克
-Do you know how much Germany will compensate for the World War II? More than 100 billion marks
+**原文连接：**[https://newstarget.com/2021-10-07-black-new-yorkers-protest-vaccine-mandates.html](https://newstarget.com/2021-10-07-black-new-yorkers-protest-vaccine-mandates.html)
 
-到现在德国还了吗？到现在都没还现在这德国的钱
-Has Germany compensate it up to now? German haven’t pay it compensation yet till now
+**（本文评论仅代表个人观点）**
 
-德国人严格讲到很多国家去就是二战之后
-After the world war II, strictly Germans go to many countries
-
-很多国家可以把德国人扣下来，把德国的钱给扣下来的，你知道吧啊
-that many countries can detain Germans and keep the Germans’ money, you know？
-
-这个是完了，崩盘了，全世界的崩盘了，还不了的
-It’s all over, it’s crashing, the world’s crashing, it can’t be paid
-
-你想想这个光他一家就干那么多钱，你想想
-Think about it, just that one company owes so much money, think about it
-
-你想日本不用多，日本只把日本的保险和养老金就干掉个200到300亿
-You think that Japan doesn’t need to be lost too much, only takes out Japanese in-surance and pensions by 20 to 30 billion
-
-日本就完了，不要说几千亿
-that Japan is over, don’t even think about hundreds of billions
-
-就两三百亿它就结束了，破产了，全球破产了，崩溃
-It’s over for only 20 to 30 billion, it’s bankrupt, the world is bankrupt, it collapses
-
-**——————————————————**
-
-**原视频链接 :**[https://twitter.com/se1y7cblljselva/status/1445679817207123971?s=24](https://twitter.com/se1y7cblljselva/status/1445679817207123971?s=24)
-
-英听校 : 洛杉矶盘古农场 – Layka
-翻译 : 洛杉矶盘古农场 – Layka
-翻译终校 : 洛杉矶盘古农场 – Mike Li
-字幕+视频制作 : 洛杉矶盘古农场 -天涯行
-审片 : 洛杉矶盘古农场 – 银龙
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – 蓝精灵
+评论：洛杉矶盘古农场 – 蓝精灵
+编辑：洛杉矶盘古农场 – 蓝精灵
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

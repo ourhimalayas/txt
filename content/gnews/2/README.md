@@ -2,45 +2,60 @@
 ---
 
 
-## 前国务卿迈克·蓬佩奥： 我们必须明确表示，美国不会接受习近平的所谓统一 台湾
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1582345/)
+## 与中共国的战争5：战争的最终走向——没有胜者
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1582403/)
 
-前国务卿迈克·蓬佩奥： 我们必须明确表示，美国不会接受习近平的所谓统一 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click)。 【附福克斯新闻对蓬佩奥的访谈视频】
+#### 翻译：Lish
 
+#### 编辑/评论：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-1.jpg)
+图片来源：Enterprise World
 
+**编者按：**
 
-> We need to make clear that the United States is not going to accept what Xi Jinping calls reunifying the Taiwanese. [pic.twitter.com/Jwoo2rlX4b](https://t.co/Jwoo2rlX4b)
-> — Mike Pompeo (@mikepompeo) [October 8, 2021](https://twitter.com/mikepompeo/status/1446542114293223439?ref_src=twsrc%5Etfw)
+澳洲媒体九频道访谈节目《60分钟》，有一档主题是“与中共国的战争”，自9月21播出后持续大热，10月9日油管上493万次观看，7.8万个赞。参与嘉宾有军情专家、战略分析师、政治学者和商界精英，代表了西方社会相当一部分主流声音。节目深入探讨分析了战争爆发后可能发生的情况：从常规战争到战术核武器，美国携盟国全面参与，澳大利亚紧随其后的深度介入，最后澳洲成为对抗中共国的主战场，在澳华人陷入排华浪潮。
 
+虽然，节目的观点我们并不完全认同，但仅从点击率和点赞数就可以看出这档节目的巨大影响力。因为它几乎完整地推演了一遍澳大利亚与中共国开战的全过程，视频制作精良，极具参考价值，也体现了西方社会对中共国穷兵黩武的深度担忧。经过四年爆料革命，郭先生揭示的中共数十年苦心孤诣的深耕布局，图谋就是统治全世界。希望借此可以尽早警醒全世界，一起加入灭共的时代大潮。
 
+鉴于文字内容篇幅较大，本篇是第五部分《战争的最终走向——没有胜者》，中共国政府武力夺取台湾的决心已经清楚地表达给全世界，美国和澳大利亚为保卫台湾而出面干预，这次与中共国战争将导致全世界爆发环境危机和经济危机，最终的结果是没有胜者。
 
-美白宫： 自 2000 年以来，一半的美国钢铁公司已经关闭。中国现在一个月生产的钢铁比美国一年生产的还多。 两党基础设施​​合约和“重建更好”议程将促进美国的生产并在制造业等行业创造就业机会。
+**译文：**
 
+过去的20年，美国的主要战争都没有取得胜利，一直在伊拉克苦苦挣扎，并与澳大利亚一起拉开了阿富汗的序幕（现在撤出了）。很多方面中共国即使没有超越美国，但也是处于一个相当优势的地位。
 
+前美国海军陆战队情报主管格兰特·纽瑟姆认为，尚不能确定美国在与中共国的任何决战中会取得胜利，特别是如果在台湾周边水域进行决战。
 
-> Since 2000, half of U.S. steel companies have closed. China now produces more steel in a month than America does in a year.
-> 
-> The Bipartisan Infrastructure Deal and Build Back Better Agenda will boost U.S. production and create jobs in industries like manufacturing.
-> — The White House (@WhiteHouse) [October 8, 2021](https://twitter.com/WhiteHouse/status/1446573717392343046?ref_src=twsrc%5Etfw)
+PLA海军的数量庞大已超过美国，只是为了显示存在感，在南中国海，这类有争议的热点地区，中共可能派出10艘舰船，而一般美国派一艘就可以。
 
+印度-太平洋战略事务专家约翰·李博士认为，在过去几十年里，西方一直在低估中共国。所以，在这次台海的战争中，中共国可能在军事上取得胜利。毕竟中共国已经为台湾的战争准备了30年。
 
+而历史学家大卫·布罗菲博士认为，这个问题几乎没有答案。因为台湾战后的情况不仅对中共国不利，对世界也不利。因为最终全世界可能引发环境危机或经济危机的情况。
 
-众议员迈克·沃尔茨： “醒来”的美国公司准备在国内进行抵制，但对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的现代奴隶制却视而不见。 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 正在对美国发动冷战——而我们的资金正在助力中共国的军事建设。如果您的产品上写着“中国制造”，请放下它！ 【附沃尔茨议员在祈祷投票战峰会上的讲话视频】
+分析师马尔科姆-戴维斯博士认为，美国的底线是不能输，必须守住关键的防线。如果美国选择放弃，摊开双手说，好吧，台湾，你就靠自己吧，那么全世界就进入了中共国的世纪。
 
+主持人提示，西方社会有两个关键问题需要考虑。
 
+我们是否应该准备允许中共国简单地占领台湾，就像它已经宣布的那样，而且可能很快就会这样做？如果是这样，我们是否乐意承受什么都不做的潜在后果？还是有一个更基本的考虑？我们真的准备好面对一场全球战争的前景了吗？
 
-> 'Woke' American corporations are ready to boycott here at home but turn a blind eye to modern day slavery in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw).
-> 
-> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) is waging a cold war with the U.S. — and our money helping fuel China's military build up. If your product says “Made in China” put it down! [pic.twitter.com/EPmx0sUBQY](https://t.co/EPmx0sUBQY)
-> — Rep. Mike Waltz (@michaelgwaltz) [October 8, 2021](https://twitter.com/michaelgwaltz/status/1446554487737384964?ref_src=twsrc%5Etfw)
+华人商界领袖李亚森认为，中共国并不想主宰世界，它只是为了保护自己的利益。认为中共国是一个黑暗的力量，想要接管世界，征服所有人，没有任何可信的证据来证明这一点。进行这种辩论是好的，但我们必须确保我们进行辩论的方式不会引起澳大利亚人民的恐惧、愤怒和焦虑。
 
+大卫·布罗菲博士回应，如果中共国拿下台湾或试图拿下台湾，难道西方社会什么都不做？
 
+西方社会也许确实需要置身事外，我们需要呼吁所有各方停下来，并祈祷他们这样做。我认为为了人类的未来，我们需要摆脱这种观念，即这只是一个动物世界，而解决争端的唯一方法就是通过军事力量。
 
-骏升科技(钦州)有限公司[@UEI\_IBC](https://twitter.com/UEI_IBC)是奴隶劳动的同谋。承认与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 合作将维吾尔人从 [#新疆](https://twitter.com/hashtag/%E6%96%B0%E7%96%86?src=hashtag_click) 强行运往钦州。 拜登总统必须通过支持我的‘维吾尔强迫劳动预防法’来追究该公司的责任。 【附路透社文章：骏升科技达成运输和雇用维吾尔工人的协议】
+约翰·李博士反驳，如果让中共国拿下台湾，它的扩张不会停止。中共国已经告诉西方社会，阻止中共国入侵台湾的唯一事情就是让它知道后果。因此，如果美国和澳大利亚说我们不会参与，那就大大增加了中共国倾向于使用武力来所谓解决这个台湾问题的机会。
 
+马尔科姆·戴维斯博士提示，如果你让美国用一种进入危险的方式来保卫台湾，毕竟台湾是自由民主国家，西方有时会忽视自身（道义）的责任，仅仅袖手旁观，无所作为。所以，我认为，我们当时的政府有责任建议并作出决定，与美国一起干预，保卫台湾。
 
+政治学教授克林顿·费尔南德斯总结，人们应该明白，中共国政府的决心已经表达得很清楚了，我相信这是真的。他们打算通过和平或战争夺取台湾。而问题是，不仅对该地区，而且对澳大利亚社会来说，会发生什么（不可估量）后果？
 
-> .[@UEI\_IBC](https://twitter.com/UEI_IBC?ref_src=twsrc%5Etfw) is complicit in slave labor. admitted to working with the Chinese Communist Party to forcibly transport Uyghurs from [#Xinjiang](https://twitter.com/hashtag/Xinjiang?src=hash&amp;ref_src=twsrc%5Etfw) to Qinzhou
->  
-> President Biden must hold the company accountable by supporting my Uyghur Forced Labor Prevention Act [https://t.co/8dbkXvSl0T](https://t.co/8dbkXvSl0T)
-> — Marco Rubio (@marcorubio) [October 7, 2021](https://twitter.com/marcorubio/status/1446247002929500164?ref_src=twsrc%5Etfw)
+视频链接：[War with China: Are we closer than we think? | Under Investigation – YouTube](https://www.youtube.com/watch?v=kA2KaEKs1LA)
+
+发布：文泓
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,19 +2,29 @@
 ---
 
 
-## 中共在台湾附近军事基地部署新型电子战斗机
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1581975/)
+## 有声|北京冬奥会强行组织会前测试赛
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1582006/)
 
-撰稿：西枫westca
+配音：香草山香港部 – 文凯琳
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/10/0A98778704E8A65A89013CD1C97F4446801E7263_size39_w1080_h720.jpeg)图片来源：mil.ifeng.com
-据马拉西亚星报10月8日报道， 中共已将引入更多电子对抗设备的新型J-16D战斗机部署在台湾附近的一个东部空军基地。据卫星图像显示，在浙江和江西的两个军事基地都有部署J-16D战斗机。这两个空军基地都由负责监督台湾海峡的中共东部战区司令部管理。
+10月4日，北京冬奥会组委会宣布，从10月5日起至12月31日，北京冬奥会将在北京、延庆和张家口三个赛区举办会前测试赛。至于没有接种疫苗的与会人员，包括比赛选手，都必须在抵达北京后进行21天的强制隔离，然后才能进入封闭的赛会园区。
 
-自上周以来，中共有近80架战机进入台湾的防空识别区，包括了轰-6轰炸机，歼-16战斗机、反潜机和空中预警机，促使台湾战机紧急起飞。一位来自中共军方的匿名人士证实，J-6D已经部署在空军基地且基地已经投入使用。他还说，台湾附近的军事活动激增是“战备训练的一部分：这强化了中共最终可能武力攻台的警告。来自国防杂志主编Andrei Chang表示，中共军队的空中入侵升级意味着有更多的台湾战机升空，这增加了碰撞的机会，因为没有任何交战规则。
+据估计，近期将有2000多名境外运动员、随队官员、国际技术官员以及计时和记分的专业人员陆续抵达北京，参加各项为测试冬奥会场馆而举行的国际赛事。对此，中共官员称，疫情防控将成为测试赛的“重中之重”，并表示“防疫压力很大”。
 
-中共军队近期在台海间的频繁的军事行动，反映出中共国越来越不掩饰地发出要吞并台湾的信号。“本是同根生，相煎何太急”，道出了人间最大的悲剧莫过于骨肉相残。推翻中共政权是人类的正义需要。
+此前，中共发出声明表示，本届冬奥会将仅向国内观众售票。事实上，正是由于中共研制并释放了新冠病毒，才导致冬奥会将在如此极端的条件下举办。目前，CCP病毒已经杀害了全世界455万无辜百姓的生命，并造成了约2.19亿人感染。
 
-**新闻来源：**
+而今，共产党一边放毒，一边假装“严格防疫”地举办冬奥会，充分暴露了中共残忍邪恶、阴险狡诈的本质。
 
-[China’s new J-16D fighter jet has been deployed to an eastern airbase near Taiwan | The Star](https://www.thestar.com.my/aseanplus/aseanplus-news/2021/10/08/chinas-new-j-16d-fighter-jet-has-been-deployed-to-an-eastern-airbase-near-taiwan)
+文字版原文：[北京冬奥会强行组织会前测试赛](https://gnews.org/zh-hans/1577940/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

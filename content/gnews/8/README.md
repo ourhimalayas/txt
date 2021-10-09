@@ -2,173 +2,23 @@
 ---
 
 
-## 今年起始，是中共百年大计的开始
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1582254/)
+## 美一民调显示约七成家长反对学生强制接种疫苗
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1582302/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/154-ax8p9-gk4ic.jpg)
-[https://gtv.org/video/id=6160255ad2e2b8174872aeda](https://gtv.org/video/id=6160255ad2e2b8174872aeda)
+俄罗斯莫斯科喀秋莎农场 DongDong
 
-**郭文贵
-Miles Guo**
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/V-1.jpg)wsj.com
+根据周三（10月6日）公布的昆尼皮亚克大学（Quinnipiac University）民意调查显示， 当被问及K-12中小学生一旦有资格接种中共病毒疫苗，是否应该实施强制接种疫苗政策时，68%有18岁以下孩子的家长受访者表示，他们不同意强制接种疫苗。【1】
 
-今年的5月份列为中共国的百年大计的备战状态
-En mayo de este año, representa como el estado de preparación para el plan del centenario del PCCh
+但家长的意见与总体人群有很大不同。如果学生们符合疫苗接种条件，总体上52%的受访者认为不应该强制接种疫苗，另外44%的受访者认为必须强制接种疫苗。
 
-啥叫备战
-En qué consiste la preparación para el plan
+对于拜登政府处理中共病毒的方针政策，48%的受访者说他们表示赞成，50%的人说表示反对。对于拜登总统执政满意度调查显示，38% 表示满意，53% 表示不满意。昆尼皮亚克大学民调分析师蒂姆·马洛伊(Tim Malloy)在谈到这些数字时说：”在信任方面拜登总统受到打击，在领导力方面受到怀疑，在整体能力方面受到挑战。（民调显示）他的支持率正持续下滑，达到了川普政府受到严厉审查以来（最差）的一个数字。”
 
-干倒美国美元, 干倒欧元经济
-Derribar al dólar estadounidense y la economía del euro
+随着2022年中期选举的临近， 美国民众对拜登执政能力不满或许会给民主党带来麻烦。此外，最新国会选票普调结果显示，共和党以47比44领先民主党。虽然数字显示共和党并非处于”压倒性”领先优势，但这预示着民主党的潜在危机，多数选民建议不能再让民主党继续控制众议院。
 
-今天要再重申一遍啊
-Hoy les quiero repetir de nuevo
+美国参议院候选人JD ·万斯（JD Vance） 谈及此问题时也说到，民主党现在实施的大规模支出法案是 （对糟糕的美国经济） 进行”火上浇油”。这种方法不但无益于解决任何实际问题， 反而使情况愈发恶化。
 
-病毒是共产党制造的生化病毒
-El virus es un virus bioquímico elaborado por el Partido Comunista
+参考链接：
 
-疫苗灾难是再次的生化战争
-El desastre de la vacuna es una vez más la guerra bioquímica
-
-是生化战争的深入化
-Es la profundización de la guerra bioquímica
-
-而且所有有计画地培养出疫苗
-Además, todas las vacunas se cultivaron de manera planificada
-
-高传播率
-Alto porcentaje de transmisión
-
-高致死率
-Alta tasa de letalidad
-
-最后是通过疫苗
-Finalmente, a través de las vacunas
-
-疫苗经济、疫苗政治、疫苗军事
-Economía de las vacunas, política de las vacunas, ejército de las vacunas
-
-疫苗控制世界
-La vacuna controla al mundo
-
-就是共产党干的
-Todo esto es hecho por el Partido Comunista
-
-跟共产党合谋的
-Conspirado con el Partido Comunista
-
-就是美国的华尔街和美国的几个被收买的像CDC的一些官员
-Es el Wall Street y algunos funcionarios en los EE. UU. que fueron sobornados como los Centros para el Control de Enfermedades, Ministerio de Salud y Bienestar (CDC)
-
-像欧洲的一些官员
-Así como los funcionarios de Europa
-
-包括世界上的黑暗组织, 非法组织
-Incluyendo las organizaciones oscuras e ilegales en el mundo
-
-跟共产党一起干的
-Lo han hecho con el Partido Comunista
-
-王岐山就是这个非法组织的核心代表
-Wang Qishan es el principal representante de esta organización ilegal
-
-这也是最近不能弄死他的根本原因
-Esta es también la razón fundamental por la que no han podido matarlo recientemente
-
-共产党还需要他
-El Partido Comunista todavía lo necesita
-
-任何国家任何好人坏人组织
-Cualquier país, cualquier buena o mala organización
-
-不光需要好人还需要坏人
-No solamente se necesitan buenas personas sino también malas personas
-
-真的
-Es verdad
-
-这就是个游戏规则
-Esta es la regla del juego
-
-你接不接受, 它就是这样
-No importa si aceptas o no, es así
-
-现在他就发生了
-Ahora está sucediendo
-
-那么现在告诉大家的事情
-Entonces déjame decirle una cosa a todos
-
-共产党的停电
-El apagón del Partido Comunista
-
-包括共产党的现在整个恒大的事件的控制
-Incluyendo el control actual del Partido Comunista con Evergrande Group
-
-有序控制
-Un control ordenado
-
-但是记住啊
-Pero recuerden
-
-明确的(说)外债一概不管
-Claramente (digamos) sin tomar en cuenta de las deudas externas
-
-不但不管啊
-No solamente no tomarlo en cuenta
-
-对碧桂园, 对平安集团, 所有海外的外债一概不用管
-Igualmente con el Country Garden, Ping An Group, ignoran todas las deudas externas en el extranjero
-
-大家看出啊
-Todos pueden notar
-
-共产党内部的所有的政策
-Todas las políticas dentro del Partido Comunista
-
-内部
-La parte interna
-
-要摸底, 问话, 控制
-Hay que averiguar, preguntar y controlar
-
-地方部门分区解决
-Ejercer la resolución de la división del sector local
-
-国际上债务一概不管
-Ignorar las deudas internacionales
-
-大家现在看出来想干啥了吧
-Ya todos se dieron cuenta lo que quiere hacer, cierto
-
-我宁可断我九指, 我伤你一指
-Prefiero cortar mis nueve dedos para lastimar un dedo tuyo
-
-我宁可我杀我一万, 我杀你一千
-Prefiero herir diez mil de mis personas para matar mil de las tuyas
-
-习绝对在这方面有这个狠劲
-Xi definitivamente es cruel en esta parte
-
-他对内. 他对江家不敢对, 对曾不敢
-Él no se atreve con la parte interna, la familia Jiang, Zeng
-
-对王岐山不敢, 对孟不敢
-Wang Qishan y Meng
-
-他对他们(欧美)绝对敢
-Pero si se atreve con EE. UU y Europa
-
-**——————————————————**
-
-**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1445306784030212100?s=24](https://twitter.com/se1y7cblljselva/status/1445306784030212100?s=24)
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+【1】[Vaccine mandates for students opposed by 7 out of 10 parents, poll finds – Foxnews – 10/08/2021](https://www.foxnews.com/politics/nearly-7-in-10-parents-oppose-vaccine-mandates-for-students-poll-finds)
