@@ -2,181 +2,38 @@
 ---
 
 
-## 2015年郭文贵先生和傅政华通话录音的真相
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1583184/)
+## 140,000 多美国儿童的父母或祖父母在大流行期间死亡
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1583187/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-17.jpg)https://gtv.org/video/id=61607e1cd2e2b8174872d6dc
-整个这说明了七哥是有核弹的
-Todo esto demuestra que yo tengo la bomba nuclear
+- 编译：Jenny Ball
 
-否则他不会这样来找我
-Sino él no vendría a buscarme
 
-傅三就是傅卫华
-El tercer hermano de Fu es Fu Weihua
+根据新发表的研究，美国有超过 140,000 多名儿童在 COVID-19 大流行期间失去了父母或祖父母。
 
-他的三弟跟我联络
-Su tercer hermano menor se comunicó conmigo
+研究人员审查了生育数据、死亡率和家庭构成信息。他们估计，在 2020 年 4 月 1 日至 6 月 30 日期间，超过 140,000 名儿童失去了父母、监护祖父母或与他们同住的祖父母。
 
-现在党内所有听我爆料的人
-Ahora las personas que están en China y están escuchando mi Movimiento de Denunciantes
+研究人员在发表于《儿科》(Pediatrics)的研究报告中写道：“这些孩子的生活因他们的母亲、父亲或祖父母的去世而永远改变了，是他们为孩子们提供了家、需求和照顾。”
 
-你们记住
-Ustedes recuerden
+该研究的联合首席研究员、伦敦帝国理工学院的亚历山德拉·布伦金索普（Alexandra Blenkinsop）博士说：“受影响的年轻人的规模令人警醒！提醒我们过去 18 个月的破坏性影响的严重性。”“这些发现，确实突出了那些因大流行而最脆弱的儿童，以及应将额外资源分配到何处。”
 
-5年前你听那个录音的时候
-Hace cinco a?os atrás cuando escuchaste esa grabación
+CDC 与伦敦帝国理工学院、哈佛大学、牛津大学和南非开普敦大学合作开展了这项研究。它由国家药物滥用研究所和伦敦帝国理工学院资助。
 
-你们得到的答案是什么
-Cuál fue la respuesta que obtuvieron
+这项新研究是在另一组研究人员的研究之后大约六个月进行的，他们估计有 37,300 名 17 岁以下儿童因 COVID-19 至 2 月份失去至少一位父母。同一周，新数据显示，2021 年，美国死于 COVID-19 的人数超过 2020 年全年。
 
-说这是郭文贵编的虚假录音
-Dijeron que este es una grabación falsa inventada por Guo Wengui
+**评论：****WHO****最新的数据报道了**“**截至今天，****2021 ****年已报告了**** 2,199,476 ****例**** COVID-19 ****疫苗接种后的不良反应”，即使真实数据至少是****5****倍，也不足以表达灾难的严重性。因为如果死者是一个家庭的经济支柱，如果是孩子们的父母，或是照料他们的祖父母、看护人，那将会改变孩子们的一生！**
 
-根本不是傅政华的
-No fue de Fu Zhenghua
+**CDC****、****伦敦帝国理工学院、哈佛大学、牛津大学和南非开普敦大学，你们在将没有通过第二期动物实验的疫苗推向市场时， 为什么不合作做应该开展的相关研究？**
 
-傅老三也根本不认识郭文贵
-El tercer hermano de Fu no conoce a Guo Wengui
+**你们助推政府强制疫苗，难道看了这些可怜的孩子们失去抚养他们的至亲不痛心疾首吗？你们一定遭报应！你们一定受到最严厉的纽伦堡大审判！**
 
-结果傅政华是声泪俱下的给解释
-Resulta, Fu Zhenghua explicaba entre lágrimas
+（文章仅代表作者观点，与GNEWS无关）
 
-然后又写了东西
-Y escribió algo
+**素材来源：**[大纪元时报](https://www.theepochtimes.com/more-than-140000-us-children-had-parents-grandparents-die-during-pandemic-study_4037386.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-10-08)
 
-中央
-La central
+* * *
 
-最后专案组认为这是郭文贵自己录的
-Finalmente, el grupo de proyecto pensó que fue grabado por el propio Guo Wengui
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
 
-假的傅政华的变音录音
-Es la grabación falsa de cambio de voz de Fu Zhenghua
-
-傅老三说没跟郭文贵接触
-El tercer hermano de Fu dijo que no se había puesto en contacto con Guo Wengui
-
-跟郭文贵的员工有接触
-Pero si con el empleado de él
-
-仅此而已, 也没拿过钱
-Solamente así, y que tampoco recibió dinero
-
-最后中央认可, 傅没事了
-Finalmente, la central lo aceptó y por eso Fu no tuvo problema
-
-如果当时傅这个谎言被戳穿
-Si en aquel momento la mentira de Fu fue descubierta
-
-他就到不了今天了
-No sobreviviría hasta hoy
-
-我今天告诉你们
-Hoy les digo
-
-傅政华那个真正的录音的变声的鬼诀
-El verdadero truco fantasma de Fu Zhenghua para cambiar la voz
-
-不在乎他恐惧
-No importa su temor
-
-傅政华的假录音是他的司机
-La falsa grabación de Fu Zhenghua es de su conductor
-
-真正讲话的是他司机
-Quien realmente habló fue su conductor
-
-他的私人司机
-Su conductor personal
-
-他跟他前妻离婚了
-él se divorció con su ex esposa
-
-前妻住在北京国际饭店
-Su ex esposa vive en un hotel internacional de Beijing
-
-跟日本一家公司搞娱乐
-Estableció una empresa japonesa de entretenimiento
-
-就是他派去监督他老婆的
-Fue él quien mandó a vigilar a su esposa
-
-这个司机怎么着你知道吗
-Qué pasó con este conductor, ?lo sabes?
-
-已经死了
-Ya está muerto
-
-傅政华不像你想(的那样)
-Fu Zhenghua no es como tú piensas
-
-他太了解共产党了
-él conoce muy bien al Partido Comunista
-
-他让司机在旁边
-él hizo que el conductor estuviera a su lado
-
-他给司机说
-Le dijo a él
-
-司机按照这个回答
-Que respondiera como él lo diga
-
-你查出这录音也不是我
-Si llegas a descubrir de esta grabación tampoco fui yo
-
-最后报告了他
-Al final le informó
-
-这录音不是傅
-Que esta grabación no es de Fu
-
-你只要但凡有一点常识
-Siempre y tengas un poquito de conocimiento
-
-拿软件一查肯定不是傅
-Investigas a través de una aplicación podrás saber que no es de Fu
-
-他的语音
-Su acento
-
-他是北京发音
-Su acento es de Beijing
-
-口音河北腔和北京腔
-El acento Hebei con el de Beijing
-
-不是他
-No es él
-
-但是他所有的话都是安排好的
-Pero todas sus palabras ya lo había planeado
-
-你看小三(傅卫华)这事儿他不接茬
-Mira al tercero (Fu Weihua) él no se ocupa de este asunto
-
-他怕你泄漏信息
-él teme a que tú revelas la información
-
-傅卫华是他的核心
-Fu Weihua es su núcleo
-
-他的三弟和傅政华的孩子在加拿大藏的钱
-El dinero que escondió en Canadá el tercer hermano y el hijo de Fu Zhenghua
-
-绝对富可敌国
-Es de tanta riqueza que puede ser enemigo de un país
-
-原视频日期：10/06/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1445657164916269059?s=24
-视频时间段：0:00-1:54
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)

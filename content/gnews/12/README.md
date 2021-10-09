@@ -2,74 +2,181 @@
 ---
 
 
-## 币圈新闻动态：喜交所10月底开市，喜支付年底前上线
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1583153/)
+## 2015年郭文贵先生和傅政华通话录音的真相
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1583184/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-17.jpg)https://gtv.org/video/id=61607e1cd2e2b8174872d6dc
+整个这说明了七哥是有核弹的
+Todo esto demuestra que yo tengo la bomba nuclear
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
+否则他不会这样来找我
+Sino él no vendría a buscarme
 
+傅三就是傅卫华
+El tercer hermano de Fu es Fu Weihua
 
+他的三弟跟我联络
+Su tercer hermano menor se comunicó conmigo
 
-## 每日一问
+现在党内所有听我爆料的人
+Ahora las personas que están en China y están escuchando mi Movimiento de Denunciantes
 
+你们记住
+Ustedes recuerden
 
+5年前你听那个录音的时候
+Hace cinco a?os atrás cuando escuchaste esa grabación
 
+你们得到的答案是什么
+Cuál fue la respuesta que obtuvieron
 
+说这是郭文贵编的虚假录音
+Dijeron que este es una grabación falsa inventada por Guo Wengui
 
-与时间做朋友，币圈的造富运动才刚刚开始？
+根本不是傅政华的
+No fue de Fu Zhenghua
 
+傅老三也根本不认识郭文贵
+El tercer hermano de Fu no conoce a Guo Wengui
 
+结果傅政华是声泪俱下的给解释
+Resulta, Fu Zhenghua explicaba entre lágrimas
 
+然后又写了东西
+Y escribió algo
 
+中央
+La central
 
-## 喜马拉雅交易所要闻
+最后专案组认为这是郭文贵自己录的
+Finalmente, el grupo de proyecto pensó que fue grabado por el propio Guo Wengui
 
+假的傅政华的变音录音
+Es la grabación falsa de cambio de voz de Fu Zhenghua
 
+傅老三说没跟郭文贵接触
+El tercer hermano de Fu dijo que no se había puesto en contacto con Guo Wengui
 
+跟郭文贵的员工有接触
+Pero si con el empleado de él
 
+仅此而已, 也没拿过钱
+Solamente así, y que tampoco recibió dinero
 
-- 喜交所CEO (Mr. Jesse Brown)于美东时间10月8日接受专访时表示，喜交所将于10月底开市，喜支付app将于今年底前上线。另外 他还透露，喜交所使用BitGo冷钱包服务，95%资金储存在冷钱包，分散多地安全保存，交易需多层签名认证。
+最后中央认可, 傅没事了
+Finalmente, la central lo aceptó y por eso Fu no tuvo problema
 
+如果当时傅这个谎言被戳穿
+Si en aquel momento la mentira de Fu fue descubierta
 
+他就到不了今天了
+No sobreviviría hasta hoy
 
+我今天告诉你们
+Hoy les digo
 
+傅政华那个真正的录音的变声的鬼诀
+El verdadero truco fantasma de Fu Zhenghua para cambiar la voz
 
+不在乎他恐惧
+No importa su temor
 
-## 新闻动态
+傅政华的假录音是他的司机
+La falsa grabación de Fu Zhenghua es de su conductor
 
+真正讲话的是他司机
+Quien realmente habló fue su conductor
 
+他的私人司机
+Su conductor personal
 
+他跟他前妻离婚了
+él se divorció con su ex esposa
 
+前妻住在北京国际饭店
+Su ex esposa vive en un hotel internacional de Beijing
 
-1. Businessinsider报道，Capgemini的一份新报告估计，到2023年，大约45%的用户将使用加密货币进行支付。使用解决方案如瑞波币使向其他国家汇款更快、更便宜。尼日利亚、越南、菲律宾和其他国民居住在国外的发展中国家已经在使用加密货币发送汇款回国以避免高额交易费用。加密货币还不是主流的支付方式。再过一两年，它可能成为向海外汇款的标准方法，有可能取代诸如西联汇款,速汇金和World Remit。
-2. Cryptoglobe报道，比特币网络上处于盈利状态的地址数量已达到3,407万个，处于一个月高位，但据历史最高水平还有一段距离，另外处于盈利状态的实体比例已上升至94.3%。根据CryptoCompare的数据，在过去几天中，随着BTC价格从45,000美元升至55,000美元区间，处于盈利状态的实体百分比已经飙升了16.2%。
-3. 10月9日消息，虽然BTC价格近期出现反弹，但根据Glassnode分析数据显示，在所有流通BTC中，仍有86.6%目前处于未实现利润状态。在短期持有者方面，大约15.6%BTC供应量在过去约155天内购买并且处于未实现利润状态；处于盈利状态的长期持有者目前持有73.4%的供应量，剩下11%的BTC次有着处于亏损状态。此外，BTC未实现净利润规模也达到了一个“有趣”的里程碑：在NUPL值0.5的基础上反弹，这表明BTC供应中未实现利润总额相当于比特币市值的50%（整体未实现收益金额约4,500亿美元）。如果NUPL值再次跌破0.5，可能会引发更多BTC持有者卖出，因为他们害怕看到未实现利润进一步减少。
-4. 10月8日消息，根据Research And Markets的报告，2021年全球能源市场中的区块链规模估计为14亿美元，预计到2026年将达到57.8亿美元，复合年增长率为32.8%。推动能源市场区块链增长的主要因素是发电的去中心化。此外，整个行业日益加剧的安全问题以及正在经历屋顶太阳能和智能计量能源消耗等创新的能源行业预计将为该市场提供动力。
-5. 10月8日消息，据Alexa数据显示，OpenSea网站流量已进入全球前500名，现为第424名。在90天前，OpenSea全球排名为1,321名。平均每用户每日浏览约19分钟，访问14.4个页面。美国是其访问量最大来源地，占据了总访问量的44%。
-6. 10月9日消息，据DappRader最新数据显示，以CryptoPunks为灵感的衍生NFT项目PUNKS Comic交易总额已突破5亿美元，创下历史新高，本文撰写时为5.0021亿美元，位列NFT收藏品交易总额排名第六位。
-7. 10月8日消息，在内部人士本周宣布出售股票后，埃隆•马斯克(Elon Musk)的SpaceX的估值超过了1,000亿美元。据知情人士透露，SpaceX与新老投资者达成协议，以每股560美元的价格从公司内部人士手中出售至多7.55亿美元的股票，而在这笔交易中该公司估值达到1,003亿美元，超越金融科技公司Stripe成为世界上第二大市值私营公司，仅次于字节跳动。此前有消息披露，SpaceX正在探索仅支持数字货币的太空广告业务，另外该公司创始人Elon Musk在七月The #B Word峰会上透露SpaceX持有BTC。
-8. 10月8日消息，花旗银行全球外汇主管Itay Tuchman表示，机构投资者对加密的兴趣日益浓厚，在大流行期间转向比特币的机构投资者很快对更广泛的加密行业产生了兴趣。
-9. 10月8日消息，根据周五的公告，总部位于维也纳的数字投资平台Bitpanda已支持SHIB交易。据悉，在3月份完成1.7亿美元的B轮融资后，Bitpanda成为了奥地利第一家金融科技独角兽。
-10. 10月9日消息，元宇宙链游Cradles宣布获得120万美元种子轮投资。新资本的注入将帮助Cradles进一步扩展和发展其旗舰产品元宇宙链游产品《Cradles: Origin of Species》。
-11. Investing报道，去中心化基于订阅的内容共享平台Creaton宣布完成110万美元融资，投资者包括BTSELabs、Tykhe Block Ventures和其他天使投资人。Creaton是一个基于Polygon的Web3.0平台，用于基于订阅的内容共享，创作者将在其中拥有对自己内容的完全所有权和控制权。Creaton创作者可以接受粉丝的付费订阅，并为其内容赚取加密货币奖励。
-12. Cointelegraph报道，具有可互操作的多链集中流动性服务的Uniswap V3流动性挖矿协议Izumi Finance宣布已成功完成60万美元的第一轮融资，多家风投参与投资。Izumi Finance v3 NFT Mining提供带有Uniswapv3NFT的流动性挖矿(LM)协议，使用户能够质押UniswapV3LP代币以获得额外奖励。
-13. 10月8日消息，Pontoon Finance宣布完成320万美元融资，风投公司Black Edge Capital、Morning Star Ventures、Amesten Capital、X21、Draper Dragon Funds、ExNetwork、GenBlock和战略合作伙伴等参投。该项目还宣布打算在10月启动其IDO。据悉，Pontoon是一个旨在跨多个链提供流动性的项目。
-14. Businesswire报道，数字资产交易平台Bakkt今日宣布与Google建立合作伙伴关系，以扩大数字资产的覆盖范围，满足快速变化的消费者需求和偏好。Bakkt用户将能够将他们的虚拟Bakkt Visa借记卡（“Bakkt卡”）添加到Google Pay中，以在线、店内或接受Google Pay的任何地方购买日常商品和服务。比特币等数字资产将转换为法定货币以进行这些支付。
-15. Thepaypers报道，总部位于英国的数字支付平台Wirex已在越南推出其加密平台，将其X-Accounts服务扩展到81个国家/地区。Wirex已在亚太地区以及印度、俄罗斯和乌克兰等国家/地区扩大了产品范围。Wirex允许客户使用国内银行发行的信用卡或借记卡充值，在应用程序内以场外交易价格无缝购买和交换30多种加密货币，并引入“向联系人汇款”功能，链接他们的电话通讯录以发送加密货币。
-16. 10月9日消息，Coinabse宣布上线Jasmy代币JASMY，客户现在可以在大多数Coinbase支持的地区交易、转账及存储JASMY。
-17. 10月9日消息，Bitcoin.com宣布通过Wallet Connect在其钱包中支持基于以太坊的DApp。用户可利用其加密资产赚取利息、使用DEX进行交易、参与NFT市场等等。
-18. 10月8日消息，BlockFi周五向美国证券交易委员会（SEC）申请推出比特币期货交易所交易基金(ETF）。根据监管文件，名为“BlockFi比特币策略ETF”的基金将只投资在CME交易的期货合约，将根据所谓的“40法案”进行注册。这些属性与SEC主席Gary Gensler暗示的最终可能能够获得批准的假定的比特币ETF一致。
-19. CryptoBriefing报道，Divergence Ventures是一家投资Ribbon Finance的风险投资基金，被指控为“内幕交易”，其一名分析师Bridget Waters通过Ribbon Finance的空投赚取了702ETH。该公司已公开道歉，并向Ribbon的DAO发送了702ETH。
-20. TheBlock报道，币安（Binance）正在关闭其在南非的加密交易产品。10月8日，币安发布了一篇博客文章，宣布立即停止南非用户的期货、期权、保证金和杠杆交易。持有未结头寸的用户必须在1月6日之前关闭它们。据悉，币安并未在南非金融部门行为监管局（FSCA）注册为金融服务提供商，似乎也没有申请注册。
-21. Coindesk报道，欧洲中央银行（ECB）执行委员会成员Fabio Panetta表示，科技公司发行的稳定币可能会加大对全球金融系统的风险。Panetta在周五的演讲中说，鉴于大科技公司的庞大足迹，支持这种稳定币的资产将增加到传统银行的资金变得更加稀缺，从而更加昂贵。因此，银行可能会求助于更昂贵的短期资金来源，而大科技公司控制下的存款持有量的增加将使银行的存款基础更加集中。
-22. 10月8日消息，美国民主党参议员MARKEY呼吁解决勒索软件攻击中加密货币（支付的）问题，其称加密货币助长了勒索软件攻击的“爆炸式增长”。
-23. 10月9日消息，以太坊联合创始人V神（Vitalik Buterin）周五在Reddit论坛上发表评论，批评萨尔瓦多强制采用比特币。
-24. 10月9日消息，BitMEX首席执行官Alexander Höptner在最近的一篇博文中回应了比特币批评者，他赞扬了萨尔瓦多的比特币政策决定。
+跟日本一家公司搞娱乐
+Estableció una empresa japonesa de entretenimiento
 
+就是他派去监督他老婆的
+Fue él quien mandó a vigilar a su esposa
 
+这个司机怎么着你知道吗
+Qué pasó con este conductor, ?lo sabes?
 
+已经死了
+Ya está muerto
 
+傅政华不像你想(的那样)
+Fu Zhenghua no es como tú piensas
 
-*编辑：aQ
-发布：文顾*
+他太了解共产党了
+él conoce muy bien al Partido Comunista
+
+他让司机在旁边
+él hizo que el conductor estuviera a su lado
+
+他给司机说
+Le dijo a él
+
+司机按照这个回答
+Que respondiera como él lo diga
+
+你查出这录音也不是我
+Si llegas a descubrir de esta grabación tampoco fui yo
+
+最后报告了他
+Al final le informó
+
+这录音不是傅
+Que esta grabación no es de Fu
+
+你只要但凡有一点常识
+Siempre y tengas un poquito de conocimiento
+
+拿软件一查肯定不是傅
+Investigas a través de una aplicación podrás saber que no es de Fu
+
+他的语音
+Su acento
+
+他是北京发音
+Su acento es de Beijing
+
+口音河北腔和北京腔
+El acento Hebei con el de Beijing
+
+不是他
+No es él
+
+但是他所有的话都是安排好的
+Pero todas sus palabras ya lo había planeado
+
+你看小三(傅卫华)这事儿他不接茬
+Mira al tercero (Fu Weihua) él no se ocupa de este asunto
+
+他怕你泄漏信息
+él teme a que tú revelas la información
+
+傅卫华是他的核心
+Fu Weihua es su núcleo
+
+他的三弟和傅政华的孩子在加拿大藏的钱
+El dinero que escondió en Canadá el tercer hermano y el hijo de Fu Zhenghua
+
+绝对富可敌国
+Es de tanta riqueza que puede ser enemigo de un país
+
+原视频日期：10/06/2021
+原视频网址： https://twitter.com/se1y7cblljselva/status/1445657164916269059?s=24
+视频时间段：0:00-1:54
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
