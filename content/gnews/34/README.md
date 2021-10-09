@@ -2,47 +2,49 @@
 ---
 
 
-## 纳瓦罗称他曾两次敦促川普总统解雇福奇
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1581843/)
+## 洛杉矶县警长拒绝执行疫苗命令
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1581932/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：纽约香草山美食部 – 蓝天大海
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/P-2.jpg)ustreama.com
-有一段时间没有搭理老贼福奇了，刚刚看到咱们新中国联邦的国家代表大使彼得·纳瓦罗（Peter Navarro）先生称福奇是“邪恶的”一篇文章，值得与战友分享一下。
 
-《福克斯新闻》10月7日文章的题目中称，纳瓦罗先生说他曾两次敦促川普总统解雇他，文章副标题补充，福奇在中共病毒疫情期间成为家喻户晓的名字。
 
-全文如下：
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-川普总统的前贸易顾问彼得·纳瓦罗周三（10月6日）称福奇为“邪恶”，因为他在中共病毒爆发前的功能增强研究中发挥了作用。
 
-纳瓦罗是在周三接受西雅图杰森·兰茨秀（the Seattle-based Jason Rantz Show）的采访时作出上述评论的。
 
-这位前白宫贸易顾问正在讨论他的新书《在川普时代》（In Trump Time），该书记录了川普政府执政的最后一年抗击中共病毒疫情的情况。
+据零对冲10月8日报道，洛杉矶县警长亚历克斯-维兰纽瓦（Alex Villanueva）拒绝执行当地政府下达的关于新冠疫苗强制接种的命令。警长表示，如果按照政府的疫苗接种要求，警局可能会失去多达10%的员工。他还提到，该县今年前6个月的凶杀案比去年同期激增了31%；而从去年6月开始，警局的经费已经被削减了1.455亿美元，倘若加上执行政府疫苗任务的额外负担，这将进一步削弱警队。
 
-纳瓦罗淡化了川普政府在中共病毒疫情初期不够积极的观点。
+![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/081021sheriff1.jpg?itok=2rz6Et6w)图片来源：零对冲
 
-兰茨认为，左派媒体在批评川普对疫情的反应时并没有退缩，反而支持福奇，尽管他在问题的态度上有摇摆不定，但川普总统是一个“上帝般”的人物。
+维兰纽瓦警长表示：“我不会强迫任何人接种新冠疫苗，也不会强制他们戴口罩。疫苗问题现在已经变得政治化。再者，有一部分员工已经表示，他们宁愿被解雇或者被辞职，也不会去接种疫苗。”警长强调，疫苗强制接种命令没有科学依据支持，他不会执行。
 
-福奇是国家过敏和传染病研究所所长，在中共病毒疫情期间家喻户晓。
+据悉，洛杉矶县将于11月4日开始执行全国最严历的新冠疫苗接种命令，该地区将强制任何希望进入酒吧、餐馆、健身房或其他场所的民众出示COVID-19疫苗接种证明或阴性测试结果。该命令还强制要求市政府雇员接种疫苗。
 
-纳瓦罗讲述了他和福奇在白宫“战况室”（the situation room）会面的头三分钟内，因为福奇不愿意实施旅行禁令而陷入了一场“叫嚷式争吵”。
+而今，在反对新冠疫苗的声浪中，世界各地的民众正在觉醒，其中也包括了一些官员和警察——这支队伍正在变得越来越壮大。相信结束强制接种新冠疫苗的日子不远了。
 
-纳瓦罗说：“我当时想，‘哇，那个家伙自以为他很聪明，’还有一个更重要的是，‘那个家伙会伤害我们和总统。’”
+（本文仅代表作者观点）
 
-兰茨问纳瓦罗，他是否认为川普没有解雇福奇并允许他获得媒体的关注是一个错误？
+参考阅读：
 
-纳瓦罗说，他至少两次建议川普解雇福奇，但他并没有指责总统没有采纳他的建议。纳瓦罗说：“但这对国家来说是一个错误，因为那个人是邪恶的，不要搞错了，他是邪恶的，因为他在美国官僚机构工作，用纳税人的钱‘追求功能增强实验’”。他指的“功能增强实验”是一项试图通过使病原体更具传染性和致命性以寻找新的方法来对抗疾病的研究。
+[Los Angeles County Sheriff Refuses To Enforce Vaccine Mandate](https://www.zerohedge.com/political/los-angeles-county-sheriff-refuses-enforce-vaccine-mandate)
 
-福奇没有回应《福克斯新闻》的置评请求。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
 
-（原文完）
+***编辑/校对/发稿：Irene木木***
 
-文贵先生建议战友们预定、购买纳瓦罗先生的这本书，的确这是一本值得阅读、了解真相的书。如果说，川普总统在反共灭共问题上因各种原因显得犹豫不决（当然，比拜登强得多），2020年1月对中共国的旅行禁令可谓是其防疫的大亮点，而作出这个决策的过程，则是以新中国联邦提供的信息为依据，纳瓦罗等人排除罪恶势力的代表老贼福奇的影响，（还有其他帮凶，希望纳瓦罗先生书中有透露），使得川普作出了最明智的选择，否则，美国很有可能在一年前就被击溃。
+**更多资讯，更多关注**
 
-期待纳瓦罗先生新书《在川普时代》的发行。
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-原文链接：
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[https://www.foxnews.com/politics/peter-navarro-calls-fauci-evil-says-he-urged-trump-to-fire-him](https://www.foxnews.com/politics/peter-navarro-calls-fauci-evil-says-he-urged-trump-to-fire-him)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
