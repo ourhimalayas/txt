@@ -2,44 +2,17 @@
 ---
 
 
-## 有声| 欧洲议会决议: 与美国合作降低台海紧张局势
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1583681/)
+## 秘翻在线：中共拟禁止私营报刊，消绝独立媒体
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1583702/)
 
-配音：香草山美食部-玫瑰园
+撰稿：待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/画像1-9.jpg)[图片来源](https://www.163.com/dy/article/FC200O010516Q25Q.html)
+10月9日共同通讯社消息：中共政府公布，9日以后禁止私营公司进入新闻行业的方案。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+该方案禁止设立和经营新闻机构、报纸和电视台，并规定媒体不得参与政治、经济或军事方面的报道。该禁令旨在消灭那些与中共及其政府保持距离的独立媒体机构，这将不可避免地导致中共对言论的进一步限制。
 
+2010年，中共政府曾发布与实际效果完全相反的通知，鼓励个人私企参与媒体，以发展报纸和出版业。作为对新闻自由受挫的回应，有中共国媒体人在一个会员专用的社交网站（SNS）上发布消息，称诺贝尔和平奖将颁给对抗强权政治的记者。以示无声的抵抗。
 
+[信息源](https://news.yahoo.co.jp/articles/ee978761ac8ffa2b1bcc4eb2f921094d193bf087)
 
-
-
-
-
-欧洲议会于6日，以550票赞成、83票反对、55票弃权，高票通过“展望欧盟—美国关系决议。
-
-该决议建议，欧盟与美国应就降低台海紧张局势寻求共识及合作。强调欧盟必须与美国就保护中国少数民族人权、降低南海、东海、香港及台湾海峡紧张情势等议题寻求共识及合作的可能；决议同时指出，欧盟正推行的「印太战略」，应强化与日韩、澳洲、以及台湾等美欧共同民主伙伴所扮演的角色。
-
-
-
-**文字版原文：[欧洲议会决议: 与美国合作降低台海紧张局势](https://gnews.org/zh-hans/1581512/)**
-
-
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+（文章仅代表作者个人观点）
