@@ -2,180 +2,43 @@
 ---
 
 
-## 2015年郭文贵先生和傅政华通话录音的真相
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1583184/)
+## 《纽约时报》在夸大了儿童COVID住院人数后发布了大规模的更正
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1583244/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-17.jpg)https://gtv.org/video/id=61607e1cd2e2b8174872d6dc
-整个这说明了七哥是有核弹的
-Todo esto demuestra que yo tengo la bomba nuclear
+【简评】*到底是无意搞错了，还是有目的的故意误导？*
 
-否则他不会这样来找我
-Sino él no vendría a buscarme
+据《福克斯新闻》作者：[Brian Flood](https://www.foxnews.com/person/f/brian-flood)，2021年10月8日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片2-4.jpg)Photo by DON EMMERT/AFP via Getty Images
+《纽约时报》这家自由派报纸严重误报了“美国儿童的COVID住院人数逾80万”之后，周四发布了一项大规模的更正。
 
-傅三就是傅卫华
-El tercer hermano de Fu es Fu Weihua
+科学和健康记者Apoorva Mandavilli撰写的一篇题为“儿童的新疫苗战略：目前只有一剂”的报道，在对该报道进行重大修改之前，就已经充斥了巨大错误数据。《泰晤士报》最初报道说，自大流行开始以来，“近90万名儿童因COVID住院”，而现在更正的版本中的事实数据是：“从2020年8月到2021年10月，超过6.3万名儿童因Covid-19住院”。
 
-他的三弟跟我联络
-Su tercer hermano menor se comunicó conmigo
+该文件还搞错了瑞典和丹麦监管机构采取的行动，甚至搞错了美国食品和药物管理局一次关键会议的时间。
 
-现在党内所有听我爆料的人
-Ahora las personas que están en China y están escuchando mi Movimiento de Denunciantes
+冗长的更正全文指出，“这篇文章的早期版本错误地描述了瑞典和丹麦监管机构采取的行动。（事实是）他们已经停止了Moderna疫苗在儿童中的使用；他们还没有开始提供单剂量的疫苗。这篇文章还错误地描述了美国儿童Covid住院的数量。从2020年8月到2021年10月是6.3万多人，而不是大流行开始以来的90万人。此外，该文章还错误地描述了美国联邦药品管理局关于辉瑞-生物技术公司儿童疫苗授权的会议时间。它是在本月晚些时候，而不是下周。”
 
-你们记住
-Ustedes recuerden
+记者杰里尔-比尔问道：“这么大的错误是怎么发生的@纽约时报？”
 
-5年前你听那个录音的时候
-Hace cinco a?os atrás cuando escuchaste esa grabación
+专栏作家菲尔-柯鹏讽刺说，《纽约时报》的记者在不准确报道方面“达到了她一贯的标准”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片3-3.jpg)
+记者格伦-格林沃尔德也嘲讽了该报。
 
-你们得到的答案是什么
-Cuál fue la respuesta que obtuvieron
+他写道，“纽约时报有一个杰出的、经验丰富的COVID记者，但被解雇了，因为他在付费旅行中被迫招待非常富有的青少年时让他们不高兴”，指的是今年年初被迫下台的小唐纳德-麦克尼尔。
 
-说这是郭文贵编的虚假录音
-Dijeron que este es una grabación falsa inventada por Guo Wengui
+格林沃尔德补充说，“现在我们有一个不称职的人在他的位置上不断地这样出错，或者声称调查COVID的起源是种族主义”，这指的是当曼达维利说冠状病毒“实验室泄漏”理论有“种族主义的根源”。
 
-根本不是傅政华的
-No fue de Fu Zhenghua
+许多观察家还嘲笑该报在更正的正下方印上了曼达维利“是2019年维克多-科恩优秀医学科学报告奖的得主”。
 
-傅老三也根本不认识郭文贵
-El tercer hermano de Fu no conoce a Guo Wengui
+罗格斯大学教授Richard H. Ebright认为该奖项是“颁发给科学速记员蛋糕上最暗淡的蜡烛”。
 
-结果傅政华是声泪俱下的给解释
-Resulta, Fu Zhenghua explicaba entre lágrimas
+他补充说，“基本上，它已经演变成了一个勤奋的群体思维和美德信号的奖项。”
 
-然后又写了东西
-Y escribió algo
+原文连接：[https://www.foxnews.com/media/new-york-times-massive-correction-covid-hospitalizations-children](https://www.foxnews.com/media/new-york-times-massive-correction-covid-hospitalizations-children)
 
-中央
-La central
-
-最后专案组认为这是郭文贵自己录的
-Finalmente, el grupo de proyecto pensó que fue grabado por el propio Guo Wengui
-
-假的傅政华的变音录音
-Es la grabación falsa de cambio de voz de Fu Zhenghua
-
-傅老三说没跟郭文贵接触
-El tercer hermano de Fu dijo que no se había puesto en contacto con Guo Wengui
-
-跟郭文贵的员工有接触
-Pero si con el empleado de él
-
-仅此而已, 也没拿过钱
-Solamente así, y que tampoco recibió dinero
-
-最后中央认可, 傅没事了
-Finalmente, la central lo aceptó y por eso Fu no tuvo problema
-
-如果当时傅这个谎言被戳穿
-Si en aquel momento la mentira de Fu fue descubierta
-
-他就到不了今天了
-No sobreviviría hasta hoy
-
-我今天告诉你们
-Hoy les digo
-
-傅政华那个真正的录音的变声的鬼诀
-El verdadero truco fantasma de Fu Zhenghua para cambiar la voz
-
-不在乎他恐惧
-No importa su temor
-
-傅政华的假录音是他的司机
-La falsa grabación de Fu Zhenghua es de su conductor
-
-真正讲话的是他司机
-Quien realmente habló fue su conductor
-
-他的私人司机
-Su conductor personal
-
-他跟他前妻离婚了
-él se divorció con su ex esposa
-
-前妻住在北京国际饭店
-Su ex esposa vive en un hotel internacional de Beijing
-
-跟日本一家公司搞娱乐
-Estableció una empresa japonesa de entretenimiento
-
-就是他派去监督他老婆的
-Fue él quien mandó a vigilar a su esposa
-
-这个司机怎么着你知道吗
-Qué pasó con este conductor, ?lo sabes?
-
-已经死了
-Ya está muerto
-
-傅政华不像你想(的那样)
-Fu Zhenghua no es como tú piensas
-
-他太了解共产党了
-él conoce muy bien al Partido Comunista
-
-他让司机在旁边
-él hizo que el conductor estuviera a su lado
-
-他给司机说
-Le dijo a él
-
-司机按照这个回答
-Que respondiera como él lo diga
-
-你查出这录音也不是我
-Si llegas a descubrir de esta grabación tampoco fui yo
-
-最后报告了他
-Al final le informó
-
-这录音不是傅
-Que esta grabación no es de Fu
-
-你只要但凡有一点常识
-Siempre y tengas un poquito de conocimiento
-
-拿软件一查肯定不是傅
-Investigas a través de una aplicación podrás saber que no es de Fu
-
-他的语音
-Su acento
-
-他是北京发音
-Su acento es de Beijing
-
-口音河北腔和北京腔
-El acento Hebei con el de Beijing
-
-不是他
-No es él
-
-但是他所有的话都是安排好的
-Pero todas sus palabras ya lo había planeado
-
-你看小三(傅卫华)这事儿他不接茬
-Mira al tercero (Fu Weihua) él no se ocupa de este asunto
-
-他怕你泄漏信息
-él teme a que tú revelas la información
-
-傅卫华是他的核心
-Fu Weihua es su núcleo
-
-他的三弟和傅政华的孩子在加拿大藏的钱
-El dinero que escondió en Canadá el tercer hermano y el hijo de Fu Zhenghua
-
-绝对富可敌国
-Es de tanta riqueza que puede ser enemigo de un país
-
-原视频日期：10/06/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1445657164916269059?s=24
-视频时间段：0:00-1:54
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
+翻译：洛杉矶盘古农场- TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – 柯镇恶
+编辑：洛杉矶盘古农场 – 柯镇恶
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
