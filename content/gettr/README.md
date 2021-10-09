@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/9/2021 3:04 AM (UTC)`
+
+10/7/2021 Miles Guo: During the so-called 120 days of war preparations, the CCP will resume its worldwide campaign of releasing viruses and building biological labs to crush the global economy and financial markets; their objective is to invade and divide up Taiwan [among the ruling families within the CCP] and destroy Japan and Australia. Will they succeed in their evil plans? 90% of the duration of the meeting between Jake Sullivan and Yang Jiechi was dedicated to the purchase of US Treasury bonds.<br/><br/>10/7/2021 文贵直播：中共企图借所谓的备战120天，继续在全世界放毒、建生化实验室，试图全面打击世界经济、摧毁金融市场，攻占、瓜分台湾、弄死日、澳，共产党会得逞吗？杨洁篪、沙利文会面9成在谈购买国债。<br/>
+![img](https://media.gettr.com/group13/getter/2021/10/09/03/04/2a26ac6f-613b-ea40-cb67-3055ef0e8bc4/out.jpg)
+
+---
+
+`@miles 10/9/2021 3:03 AM (UTC)`
+
+4月8号：共产党的以孙灭台，武统台湾，宣讲大会结束，台湾危了！
+![img](https://media.gettr.com/group18/getter/2021/10/09/03/3e5704e4-fe63-2318-5c93-fcc851a3aa96/8e8f52a7149790716b7b009b9f6c7dac.jpg)
+
+---
+
 `@miles 10/9/2021 12:15 AM (UTC)`
 
 ...
@@ -280,22 +294,6 @@ Attorney Thomas Renz: If you get the vaccine, you are more likely to get Covid. 
 
 10/5/2021 Miles Guo: When the CCP’s local government debt and “invisible” debt make the whole world’s pension funds and insurance money vanish, the world will get even with the Chinese people, and the history of anti-Chinese atrocities in Indonesia will repeat itself on a global scale!<br/><br/>10/5/2021 文贵直播：当中共的地方债和隐形债让全世界的养老金和保险金蒸发的时候，世界将找中国人算账，而印尼排华的暴行将在全球重演！<br/>
 ![img](https://media.gettr.com/group2/getter/2021/10/06/00/07/884c9588-1690-63ee-b6b3-7e1107e58a94/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@financegclub 10/5/2021 12:17 PM (UTC)`
-
-【黄卫平：这个地球上凡是靠 #房地产拉动经济 的国家，结局都是崩盘】<br/><br/>1923到1926期间美国佛罗里达的房价以每年超过一倍左右的速度疯狂增长。1926年，佛罗里达房地产泡沫迅速破碎，这场泡沫激化了美国的经济危机，最终导致了世界经济的大危机。<br/><br/>1989年 #日本地价 市值总额相当于整个美国地价总额的4倍，日本房地产最疯狂的时候其 #住房市值 与GDP的比例高达200%以上。1991年后，随着国际资本获利后撤离，日本房地产价格随即暴跌，到1993年，日本房地产产业全面崩溃，遗留下来的坏账高达6000亿美元。<br/><br/>2005年 #美国住房市值 与GDP的比例为172% ，房地产成为了 #08年金融危机 的导火索之一。<br/><br/>2020年 #中共国住房市值 与GDP的比例高达400%之多，大家觉得这么大的泡沫会带来什么样的金融风暴呢？<br/><br/>人类最大的教训就是从不接受教训，战友们，你准备好了么？🌊🌊🌊
-![img](https://media.gettr.com/group10/getter/2021/10/05/12/17/d0035afa-bf13-bd11-5e3d-b80560d43ad1/2d65de967aeb5ecbbb459b97f4b2ab1d.jpg)
-
----
-
-`@miles 10/5/2021 11:27 AM (UTC)`
-
-爆料革命90天 vs. 要飯爛命90天（下）<br/>90 Days of the Whistleblower Movement vs 90 Days Begging for survival （P2-2)<br/><br/>1、要飯爛命 我爹是塞林  大衛被抓了<br/>Begging for survival <br/>Sellin is my “daddy”.<br/>David is said to be arrested.<br/><br/>2、要飯爛命  郭先生和長島哥等人被禁止離境<br/>Begging for survival <br/>Mr. Miles Guo and Brother Long Island and others are prohibited from leaving the country. <br/><br/>3、形式坦蕩，SEC 跟我們（爆料革命）和解<br/>Bold and clear, the SEC has settle with us (the Whistleblower Movement)<br/><br/>4、要飯爛命  抹黑GTV<br/>Begging for survival <br/>Discredit GTV<br/><br/>5、要飯爛命 抹黑G系列 <br/>Begging for survival <br/>Discredit G-series<br/><br/>6、要飯爛命 G-CLUB 卡變成政治獻金 <br/>Begging for survival <br/>Buying a  G- Club membership considered as political donation  <br/><br/>7、爆料革命  美國將承認新中國聯邦<br/>The Whistleblower Movement <br/>The USA will recognize the legitimacy of the New Federal State of China (NFSC)
-![img](https://media.gettr.com/group33/getter/2021/10/05/11/27/6b544913-76e1-1a4d-90d7-47ddeb2c5781/out.jpg)
 
 ---
 
