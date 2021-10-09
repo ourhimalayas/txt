@@ -66,62 +66,62 @@
 ### [逻辑和常识很重要](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [10/08/2021七哥盖特：疫苗灾难每时每刻都在改变着人类和世界](/content/gnews/18/README.md)
+### [解药经济&#8211;加拿大暂搁接种第三剂中共病毒疫苗！](/content/gnews/18/README.md)
+ ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
+
+### [10/08/2021七哥盖特：疫苗灾难每时每刻都在改变着人类和世界](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|欧盟药品管理局建议将深部静脉血栓列入强生疫苗的副作用](/content/gnews/19/README.md)
+### [有声|欧盟药品管理局建议将深部静脉血栓列入强生疫苗的副作用](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [10/8/2021 七哥直播：Facebook、WhatsApp、Instagram正经历内部管理和技术的大崩溃](/content/gnews/20/README.md)
+### [10/8/2021 七哥直播：Facebook、WhatsApp、Instagram正经历内部管理和技术的大崩溃](/content/gnews/21/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|美欧贸易技术会谈决定联手应对中共挑战](/content/gnews/21/README.md)
+### [有声|美欧贸易技术会谈决定联手应对中共挑战](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [作为家长，如何培养未来“新中国”的孩子？](/content/gnews/22/README.md)
+### [作为家长，如何培养未来“新中国”的孩子？](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [特斯拉告别硅谷](/content/gnews/23/README.md)
+### [特斯拉告别硅谷](/content/gnews/24/README.md)
  ` Shuizhuyu`
 
-### [10/7/2021 七哥直播：中共妄想在全球范围内的释放病毒和建立生物实验室以粉碎全球经济和金融市场的运动](/content/gnews/24/README.md)
+### [10/7/2021 七哥直播：中共妄想在全球范围内的释放病毒和建立生物实验室以粉碎全球经济和金融市场的运动](/content/gnews/25/README.md)
  ` 秘密翻译组-北美组`
 
-### [10/7/2021 七哥直播：冠状病毒疫苗一本万利](/content/gnews/25/README.md)
+### [10/7/2021 七哥直播：冠状病毒疫苗一本万利](/content/gnews/26/README.md)
  ` 秘密翻译组-北美组`
 
-### [2021/10/08大卫作战室直播精要](/content/gnews/26/README.md)
+### [2021/10/08大卫作战室直播精要](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|北京冬奥会强行组织会前测试赛](/content/gnews/27/README.md)
+### [有声|北京冬奥会强行组织会前测试赛](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [2021年10月7日 郭文贵先生直播 全文字版](/content/gnews/28/README.md)
+### [2021年10月7日 郭文贵先生直播 全文字版](/content/gnews/29/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [10/3/2021 七哥直播：六周后AMD在纳斯达克即将上市](/content/gnews/29/README.md)
+### [10/3/2021 七哥直播：六周后AMD在纳斯达克即将上市](/content/gnews/30/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共在台湾附近军事基地部署新型电子战斗机](/content/gnews/30/README.md)
+### [中共在台湾附近军事基地部署新型电子战斗机](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [陆军部署铁穹导弹防御系统以应对中共国威胁](/content/gnews/31/README.md)
+### [陆军部署铁穹导弹防御系统以应对中共国威胁](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [特鲁多禁止未接种疫苗的人出国和谋生](/content/gnews/32/README.md)
+### [特鲁多禁止未接种疫苗的人出国和谋生](/content/gnews/33/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [ISIS在阿富汗发动自杀炸弹袭击，目前已经造成50人死亡](/content/gnews/33/README.md)
+### [ISIS在阿富汗发动自杀炸弹袭击，目前已经造成50人死亡](/content/gnews/34/README.md)
  ` 神奇四侠`
 
-### [洛杉矶县警长拒绝执行疫苗命令](/content/gnews/34/README.md)
+### [洛杉矶县警长拒绝执行疫苗命令](/content/gnews/35/README.md)
  ` 纽约香草山MOS02`
 
-### [新冠疫苗成分揭秘](/content/gnews/35/README.md)
+### [新冠疫苗成分揭秘](/content/gnews/36/README.md)
  ` 中共病毒专栏`
-
-### [中国工商银行将限制外汇和大宗商品交易](/content/gnews/36/README.md)
- ` 纽约香草山MOS02`
 
 ### [纳瓦罗称他曾两次敦促川普总统解雇福奇](/content/gnews/37/README.md)
  ` HimalayaRussia`
