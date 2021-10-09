@@ -2,36 +2,42 @@
 ---
 
 
-## 加州15岁少年接种辉瑞疫苗第二针2天后死亡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1583884/)
+## 盖特CEO：“非死不可”正面临“末日的开始”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1583952/)
 
-作者：雪梨
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-根据加州索诺玛县警长办公室上个月的调查报告显示，该县一名15岁的健康少年于6月份，接种辉瑞疫苗第二针2天后死亡。本周，关于这名少年的死亡与疫苗接种的话题引发社会热议。
+- 编译：Lulumi
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-8.jpeg)
 
-调查报告显示，少年死亡原因被确定为“应激性心肌炎并伴有冠状动脉炎症”。报告并未将死因与接种新冠毒针做直接联系，但强调，死者的心肌炎及冠状动脉炎症，是在最近辉瑞疫苗接种的情况下发生的，除此以外，并没有其他重要致死原因，
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-19.png)美国《时代周刊》的插图（来源图片：Getty Images）
 
-据加州大学研究发现，青少年，即13至19岁群体因接种新冠疫苗引发心脏疾病，导致住院的机率，较病毒感染高出6倍。截至9月，根据疫苗不良事件通报系统VAERS显示，已收到1,590份年轻人心脏炎症的报告，且此前早有研究调查发现，通报系统的漏报率高达41倍。
+GETTR首席执行官杰森·米勒周五在 “与玛丽亚的早晨”节目中对《时代周刊》最新聚焦于Facebook清算的封面做出反应，称Facebook正面临 “末日的开始”。
 
-CDC咨询小组早先曾发出警告，青少年出现心脏炎症，与辉瑞疫苗”可能存在联系”。家长和社会都有责任和义务拒绝毒疫苗，维护青少年健康安全，捍卫孩子们的生存权。
+杰森·米勒：我认为这与哥特人洗劫罗马非常相似，我认为这是Facebook的末日的开始。
 
-(本文仅代表作者观点)
+真的，本周有两条重要的线索，一是有极左派，如举报人，开始对付大科技公司……另外，玛丽亚，我想大多数人没有意识到大科技公司在控制你的数据整合：Facebook拥有Instagram，拥有WhatsApp，当然还有Facebook Messenger。
 
-参考链接：[15-Year-Old Boy Died Suddenly Just 2 Days After Second Dose of Pfizer Covid-19 Vaccine](https://theexpose.uk/2021/10/08/15-year-old-boy-died-suddenly-just-2-days-after-second-dose-of-pfizer-covid-19-vaccine/)
-[California teenager died of heart condition two days after COVID vaccine, death report says](https://www.lifesitenews.com/news/california-teenager-died-of-heart-condition-two-days-after-covid-vaccine-death-report/?utm_source=top_news&amp;utm_campaign=usa)
-[Sonoma County officials, social media posters spar over boy’s death](https://www.pressdemocrat.com/article/news/county-officials-social-media-posters-spar-over-boys-death/)
+随着本周的系统瘫痪，人们开始意识到，“等一下，一个简单的服务器升级或全系统升级就导致了这一切，瘫痪了，纳斯达克指数下跌2%？一家公司的一个人影响力就这么大，这真的很令人担忧。”
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**完整采访请观看下面链接：**[video.foxbusiness.com](https://video.foxbusiness.com/v/6276158904001#sp=show-clips)
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
+**评论：**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**如果两年前有人说****Google****，****Facebook****，****Twitter****等美国****科技巨头会打压言论自由，破坏民主制度，掩盖真相助纣为虐，我会说：“怎么可能，那是中共国，美国公司有底限的不至于。”**
+
+**即便那时已经经历了****419****断播，脑子还是没转过弯。如果不是香港反送中，美国大选舞弊，中共病毒追责，疫苗灾难等一系列颠覆认知的事件，绝大多数美国人甚至爆料革命战友，都不会相信这些美国科技巨头是跟中共及黑暗势力狼狈为奸的打手。**
+
+**最重要的是四年来，如果文贵先生不是一层一层，由浅入深地揭露世界的黑暗，而是一下子把所有真实信息都推到普通人面前，反而让人觉得难以置信。所以我现在突然理解了为什么文贵先生会在****2017****年的记者会上烧掉那三份绝密文件。对于真相的接受需要一个长期缓慢的消化理解的过程，所以在跟家人朋友传播爆料革命，疫苗真相的时候，一定要克制住求急，求快，追求立竿见影的心态，我们只要心平气和的传播真相，至于别人能不能听进去，不是我们的目标。**
+
+**看完上面的新闻，脑子里突然冒出习一尊的名言：“东升西降”，不对，是“盖升脸降”，“盖升推降”，“盖升油降”，最终“盖飞脸破”，“盖飞推倒”，“盖飞油灭”，新中国联邦或成为最大的赢家😄😄😄。**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**新闻来源：**[福克斯财经网](https://www.foxbusiness.com/media/facebook-facing-beginning-of-the-end-jason-miller)(FOX Business) | 作者：福克斯财经人员|发布时间：2021年10月8日
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)

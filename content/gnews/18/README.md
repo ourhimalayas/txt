@@ -2,24 +2,30 @@
 ---
 
 
-## 北约秘书长表示, 欧洲要联合美国应对中共挑战!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1583840/)
+## 英国主媒为毒针冬季死亡潮铺设诱因
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1583898/)
 
-作者：云豹
+作者：安吉拉
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月8日, 北约秘书长斯托腾伯格与西班牙总理桑切斯会面, 讨论2022年在西班牙主办北约峰会事宜, 在会面后的记者会上, 斯托腾伯格称 ：”当前国际竞争日益激烈，中共展示其经济及军事力量, 是在恐吓和要挟各国。欧洲、美国必须共同应对这一挑战!”
+截至本月7日，全球46.3%，即36亿人口已至少接种一剂新冠疫苗。在英国，包括本月开始执行的中学接种令，该比率已突破78.4%。主流媒体和当地政府对疫苗危害多方掩盖，但这不会阻止病毒及毒针导致的次生灾难的爆发。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-15.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-6.jpeg)
 
-今年6月，北约布鲁塞尔峰会后的公报中，就曾指出中共的胁迫性政策, 以及近年持续增扩的核武库，都对北约安全构成系统性的挑战。斯托尔滕贝格在6月也示警，俄罗斯与中共结盟, 不仅在联合国互相配合，还交流武器系统及共享网络监控资源,都对多边主义国际秩序造成威胁，使得北约越来越重视应对来自中共的挑战 和企图统治世界的野心。
+本周英国全国性媒体，及地方平台接连发布通稿，警告英国将迎来50年以来最糟糕的冬天，国家医疗服务系统领导人担心，今年流感将造成约6万人死亡；疫情以来，英国大量健康检查和临床手术已经取消或延期。卫生专家表示，医院和卫生系统承受巨大压力，更将无法应对激增的各类呼吸道感染病例。
+
+早些时候，主媒发布英格兰部分地区发生大肠杆菌水污染警告，人均财富高水平的萨利郡和肯特郡大约有6500户居民受到影响。昨日东南水务公司表示调查结果表示受污染的水并未离开处理厂，但当地媒体提醒居民切勿大意。
+
+不管是在东南亚、美国还是含欧洲在内的西方国家，新冠疫苗造成的终身病患和死亡病例与日俱增。疫苗毒针是生化战争的辅助武器，控制人类基因，导致广泛的死亡和人道主义灾难。
 
 (本文仅代表作者观点)
 
-参考链接：[北約秘書長：中國展示經濟和軍事力量恫嚇他國](https://www.cna.com.tw/news/aopl/202110080404.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+参考链接：[Health officials fear up to 60,000 flu deaths this winter](https://www.independent.co.uk/news/health/covid-flu-vaccine-latest-deaths-b1934218.html)
+[Coronavirus (COVID-19) Vaccinations](https://ourworldindata.org/covid-vaccinations?country=GBR)
+[Influenza deaths in 2018, 2019 and 2020](https://www.ons.gov.uk/aboutus/transparencyandgovernance/freedomofinformationfoi/influenzadeathsin20182019and2020)
+[E. coli scare: Water company gives update after fears of contaminated supplies to thousands of homes in Surrey and Kent](https://www.getsurrey.co.uk/news/surrey-news/live-surrey-water-e-coli-21798873)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-新闻访谈终审：文龍
 编辑/校正/发稿：谐趣园
 
 **更多资讯，更多关注**
