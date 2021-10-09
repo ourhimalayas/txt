@@ -15,143 +15,143 @@
 
 ---
 
-### [世卫组织数据库报告了2021年超过200万例潜在的疫苗刺伤，其中绝大多数是女性](/content/gnews/1/README.md)
+### [谈辛亥革命的思考](/content/gnews/1/README.md)
+ ` 澳喜农场`
+
+### [DC大中华时事：人民网谈三次分配](/content/gnews/2/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [秘翻在线：华刚矿业违反与民主刚果签署的60亿美元矿产换基建协议](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [浅谈新中国联邦未来的国家模式](/content/gnews/4/README.md)
+ ` 澳喜农场`
+
+### [每日快报：英格兰80%的Covid-19死亡病例接种过疫苗](/content/gnews/5/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共服软，开始进口澳洲煤矿](/content/gnews/6/README.md)
+ ` 澳喜农场`
+
+### [冰岛：全面暂停了Moderna疫苗](/content/gnews/7/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [国际要闻汇编](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [世卫组织数据库报告了2021年超过200万例潜在的疫苗刺伤，其中绝大多数是女性](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [潜艇撞击事故意外曝光美军将“海狼”部署在中共家门口](/content/gnews/2/README.md)
+### [潜艇撞击事故意外曝光美军将“海狼”部署在中共家门口](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [10/3郭文贵直播：已有77个国家收到我们的疫苗真相信息（粤语配音）](/content/gnews/3/README.md)
+### [10/04郭文贵盖特：中共病毒和疫苗灾难是一场全人类坏人大清洗（粤语配音）](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [10/3郭文贵直播：联合国和欧洲议会等开始研究是否承认新中国联邦（粤语配音）](/content/gnews/4/README.md)
+### [10/3郭文贵直播：已有77个国家收到我们的疫苗真相信息（粤语配音）](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [10/3郭文贵直播：中共460万公检法队伍竟无一人敢挑战傅政华（粤语配音）](/content/gnews/5/README.md)
+### [10/3郭文贵直播：联合国和欧洲议会等开始研究是否承认新中国联邦（粤语配音）](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [10/3郭文贵直播：最大的担心是疫苗造成报复性社会灾难（粤语配音）](/content/gnews/6/README.md)
+### [10/3郭文贵直播：中共460万公检法队伍竟无一人敢挑战傅政华（粤语配音）](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [《零对冲》警报：中共国房地产比烂透了还糟](/content/gnews/7/README.md)
+### [10/3郭文贵直播：最大的担心是疫苗造成报复性社会灾难（粤语配音）](/content/gnews/15/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [《零对冲》警报：中共国房地产比烂透了还糟](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：莫德纳计划在非洲建立mRNA疫苗工厂](/content/gnews/8/README.md)
+### [秘翻在线：莫德纳计划在非洲建立mRNA疫苗工厂](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国核潜艇在南海撞击到某物](/content/gnews/9/README.md)
+### [美国核潜艇在南海撞击到某物](/content/gnews/18/README.md)
  ` Charlie`
 
-### [白宫新指南 获豁免接种疫苗的联邦雇员仍有可能被解雇](/content/gnews/10/README.md)
+### [白宫新指南 获豁免接种疫苗的联邦雇员仍有可能被解雇](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [AI奴隶社会来了！中共公布国家智能社会治理实验基地名单](/content/gnews/11/README.md)
+### [AI奴隶社会来了！中共公布国家智能社会治理实验基地名单](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中美博弈，台湾危在旦夕](/content/gnews/12/README.md)
+### [中美博弈，台湾危在旦夕](/content/gnews/21/README.md)
  ` Charlie`
 
-### [德法院裁定 2020 年严格的 COVID 限制为非法](/content/gnews/13/README.md)
+### [德法院裁定 2020 年严格的 COVID 限制为非法](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [岸田文雄与习近平首次电话会谈 就共同问题进行合作](/content/gnews/14/README.md)
+### [岸田文雄与习近平首次电话会谈 就共同问题进行合作](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [习近平：“台独者”没有好下场；杨洁篪说世界由中共说了算](/content/gnews/15/README.md)
+### [习近平：“台独者”没有好下场；杨洁篪说世界由中共说了算](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [WHO报告 2021 年 200 多万例疫苗伤亡，绝大多数是女性](/content/gnews/16/README.md)
+### [WHO报告 2021 年 200 多万例疫苗伤亡，绝大多数是女性](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“潘多拉文件”：中共利用离岸公司收购海外“涉军企业”](/content/gnews/17/README.md)
+### [“潘多拉文件”：中共利用离岸公司收购海外“涉军企业”](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [佛蒙特州最近 76% COVID 死亡是“完全接种者”](/content/gnews/18/README.md)
+### [佛蒙特州最近 76% COVID 死亡是“完全接种者”](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [针下亡魂｜意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](/content/gnews/19/README.md)
+### [针下亡魂｜意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](/content/gnews/28/README.md)
  ` G&#124;News TAIWAN`
 
-### [巴西总统反对 20 岁以下的疫苗](/content/gnews/20/README.md)
+### [巴西总统反对 20 岁以下的疫苗](/content/gnews/29/README.md)
  ` Charlie`
 
-### [缺件交付！受“缺芯”影响，理想汽车将先交车后补装雷达](/content/gnews/21/README.md)
+### [缺件交付！受“缺芯”影响，理想汽车将先交车后补装雷达](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [冠状(中共)病毒致拉丁美洲超过150万人死亡](/content/gnews/22/README.md)
+### [冠状(中共)病毒致拉丁美洲超过150万人死亡](/content/gnews/31/README.md)
  ` Charlie`
 
-### [习近平:台湾将与中(共)国统一，不受外来干涉](/content/gnews/23/README.md)
- ` Charlie`
-
-### [对区块链的野心暴露！中共完成“星火・链网”主链与以太坊跨链互通](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：中俄唯一天然气管道关停，因俄天然气工厂失火](/content/gnews/25/README.md)
+### [秘翻在线：中俄唯一天然气管道关停，因俄天然气工厂失火](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [捍卫新闻自由两记者获诺贝尔和平奖 极权中共不敢正面报道](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：民主刚果发现一例埃博拉确诊病例](/content/gnews/27/README.md)
+### [默克的新冠（口服）药片对中度感染者起效甚微？据印度监管当局消息](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [默克的新冠（口服）药片对中度感染者起效甚微？据印度监管当局消息](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [郭文贵先生2021年10月5日大直播重点信息整理](/content/gnews/29/README.md)
+### [郭文贵先生2021年10月5日大直播重点信息整理](/content/gnews/34/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [全球逾 200 名医学界人士力荐“维生素 D 可预防 COVID-19 感染、重症及死亡”](/content/gnews/30/README.md)
+### [全球逾 200 名医学界人士力荐“维生素 D 可预防 COVID-19 感染、重症及死亡”](/content/gnews/35/README.md)
  ` G&#124;News TAIWAN`
 
-### [一场史诗级的金融海啸将席卷全球](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
-
-### [台湾危矣！习近平在辛亥革命110周年大会上再放狠话](/content/gnews/32/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [狮城快讯：新加坡Covid疫苗歧视升级！不打疫苗不可进商场　12岁以下明年初开打](/content/gnews/33/README.md)
+### [狮城快讯：新加坡Covid疫苗歧视升级！不打疫苗不可进商场　12岁以下明年初开打](/content/gnews/36/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [2021年10月8日郭文贵先生直播试驾RAM3500](/content/gnews/34/README.md)
+### [2021年10月8日郭文贵先生直播试驾RAM3500](/content/gnews/37/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [2021年10月8日郭先生盖特 — 视频盖特1「9分15秒」](/content/gnews/35/README.md)
+### [2021年10月8日郭先生盖特 — 视频盖特1「9分15秒」](/content/gnews/38/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [脸书旗下平台Instagram、WhatsApp、Facebook Messenger一周内第二次宕机](/content/gnews/36/README.md)
+### [脸书旗下平台Instagram、WhatsApp、Facebook Messenger一周内第二次宕机](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
 
-### [针下亡魂｜韩国 20 岁女学生接种疫苗12日后死亡](/content/gnews/37/README.md)
+### [针下亡魂｜韩国 20 岁女学生接种疫苗12日后死亡](/content/gnews/40/README.md)
  ` G&#124;News TAIWAN`
 
-### [民调显示信息误导问题已经引发美国人担忧](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [10/08/2021七哥盖特：西方和江派都在等着习进平出事](/content/gnews/39/README.md)
+### [10/08/2021七哥盖特：西方和江派都在等着习进平出事](/content/gnews/41/README.md)
  ` 秘密翻译组-北美组`
 
-### [恒大之后，平安将是这个世界最大的核弹](/content/gnews/40/README.md)
+### [恒大之后，平安将是这个世界最大的核弹](/content/gnews/42/README.md)
  ` 银河勇气之星`
 
-### [美一民调显示约七成家长反对学生强制接种疫苗](/content/gnews/41/README.md)
+### [美一民调显示约七成家长反对学生强制接种疫苗](/content/gnews/43/README.md)
  ` HimalayaRussia`
 
-### [新冠疫苗成分揭秘](/content/gnews/42/README.md)
+### [新冠疫苗成分揭秘](/content/gnews/44/README.md)
  ` 中共病毒专栏`
 
-### [纳瓦罗称他曾两次敦促川普总统解雇福奇](/content/gnews/43/README.md)
+### [纳瓦罗称他曾两次敦促川普总统解雇福奇](/content/gnews/45/README.md)
  ` HimalayaRussia`
 
-### [【闲聊澳洲】 江家反习处弱势，中共备战三个月](/content/gnews/44/README.md)
+### [【闲聊澳洲】 江家反习处弱势，中共备战三个月](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
-
-### [爱达荷州副州长趁州长不在时禁止了疫苗护照](/content/gnews/45/README.md)
- ` HimalayaRussia`
-
-### [有声|美参议院两议员致函 蔡英文，承诺支持台湾](/content/gnews/46/README.md)
- ` MOSREC`
 
 ### [10/8/2021国际财经快讯：美联储表示通胀受疫情因素驱动；英国NatWest承认阻止洗钱失败](/content/gnews/47/README.md)
  ` 秘密翻译组金融团队`
