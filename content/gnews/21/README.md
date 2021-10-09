@@ -2,39 +2,57 @@
 ---
 
 
-## 冰岛：因心脏炎症停止对所有人接种莫德纳疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1582606/)
+## 世卫组织数据库报告今年已有超过200万起新冠疫苗伤害
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1582686/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/莫德纳.jpg)
-图片来源：EDUARDO MUNOZ ALVAREZ / POOL/AFP via Getty Images
+作者：AsG諾雅
 
-整理报道：小红帽
 
-由于冰岛首席流行病学家引用其他北欧国家发现的罕见心脏炎症风险，冰岛将不再使用莫德纳（Moderna）的mRN中共病毒（Covid-19）疫苗，。
 
-冰岛卫生当局于周五宣布了这一消息。官员们表示，冰岛在过去两个月里一直在注射莫德纳公司的Spikevax疫苗，作为那些已经接种了两针辉瑞、莫德纳疫苗，或接种一剂强生疫苗的人的加强剂。
 
-大约75%的冰岛人已完全接种疫苗，卫生官员坚持认为，辉瑞的疫苗供应充足，可以在没有莫德纳疫苗的情况下继续推广。辉瑞疫苗已经推荐给冰岛的18岁以下的青少年。
 
-冰岛停止莫德纳疫苗接种的决定是在其他几个北欧国家注意到该疫苗的不良反应后做出的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-“一项涉及芬兰、瑞典、挪威和丹麦的北欧研究发现，接种莫德纳Spikevax疫苗的 30 岁以下男性患心肌炎的风险略高于其他人，”芬兰国家卫生与福利研究所所长米卡·萨米宁（Mika Salminen）周四表示。 .
 
-萨米宁宣布，1991年及之后出生的男性将不再接种Spikevax疫苗。此前一天，丹麦暂停了对18岁以下儿童的接种Spikevax疫苗。挪威则建议30 岁以下的男性改用辉瑞疫苗。
 
-欧洲药品管理局于7月发布了调查结果，敦促在将心肌炎和心包炎添加到辉瑞和莫德纳生产的 mRNA 中共病毒疫苗的潜在罕见副作用清单中。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
 
-**参考新闻：**[Iceland stops use of Moderna’s Covid vaccine for all ages over heart inflammation concerns — RT World News](https://www.rt.com/news/537025-iceland-stops-moderna-vaccine-covid/)
 
-***编辑：小红帽 /翼族
-发布：小红帽***
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+生命新闻（Lifesitenews）10月7日消息，截至当天，世界卫生组织的公开数据库VigiAccess已经记录了2,199,476起接种新冠疫苗后的不良反应，其中866,558起（39%）发生在18-44岁的人身上，1,517,989起（69%）发生在女性身上。
+
+VigiAccess数据库的药品不良反应（ADRS）选项卡没有对疫苗生产商进行区分，但这个令人震惊的伤害数字里面包含了阴道出血、心肌炎、脑瘤（肿瘤）、自然流产、胎儿死亡、死胎、肺栓塞、肾衰竭、胎儿生长受限、深静脉血栓，以及新冠肺炎等100多种疾病。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-17.jpg)
+大量女性接种疫苗后受到伤害，证实了医疗工作者有关疫苗对妇女影响的说法，他们就新冠疫苗对女性生殖器官和生育能力的影响表示关切。
+
+今年3月开始，美国爱达荷州的病理学家瑞安-科尔（Ryan Cole）在州政府的支持下告诉公众，他在接种过疫苗的病人身上，看到各种自身免疫性疾病和大量癌症，子宫内膜癌“增加了20倍”，年轻人患罕见的比较厚的黑色素瘤比率大幅增加。他说，接种疫苗后，免疫系统中的杀手T细胞和CD8细胞都在下降。
+
+新冠毒疫苗的长期副作用有待时间验证，但从已知数据来看，其对人类的危害将是极其严重和前所未有的。呼吁立即停止所有的新冠疫苗接种。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-5.jpg)
+参考链接：
+1. [WHO database reports over 2 million potential COVID jab injuries in 2021, vast majority in women](https://www.lifesitenews.com/news/who-database-reports-over-2-million-potential-covid-jab-injuries-in-2021-vast-majority-in-women/?utm_source=featured&amp;utm_campaign=usa)
+2. [Dr. Ryan Cole on the Vaccine: Stop the Insanity Immediately!](https://www.fulcrum7.com/news/2021/8/19/dr-ryan-cole-discusses-the-vaccine)
+3. [Idaho doctor reports a ‘20 times increase’ of cancer in vaccinated patients](https://www.lifesitenews.com/news/idaho-doctor-reports-a-20-times-increase-of-cancer-in-vaccinated-patients/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

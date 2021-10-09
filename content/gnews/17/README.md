@@ -2,22 +2,37 @@
 ---
 
 
-## 民调显示信息误导问题已经引发美国人担忧
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1582691/)
+## 脸书旗下平台Instagram、WhatsApp、Facebook Messenger一周内第二次宕机
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1582700/)
 
-#### 翻译：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-18.jpg)图片来源：半岛电视台
-美联社10月7日华盛顿报道，一项抽样调查了1071名成人的民调显示，几乎所有美国人都认为误导信息的广泛传播是个问题。
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/facebook-whatsapp-instagram-major-outage_thumb800.jpg)
+图片来源：techadvisor.com
 
-据皮尔森研究所和负责公共事务研究的国家教育研究院（NORC）进行的一项最新民意调查显示，多数人认为有人利用社交媒体误导大众，因而社交媒体公司在很大程度上应该受到谴责。但也有人认为发信息者自己应该负责任。
+整理报道：小红帽
 
-95%的美国人认为当他们试图寻找一些重要信息时，信息误导是个问题。半数美国人认为政府负有责任，3/4的美国人认为社交媒体用户和高科技公司负有责任，只有20%的美国人认为发布误导信息者应该负责。
+社交媒体巨头脸书（Facebook）及其子公司Instagram、Messenger和WhatsApp在不到一周的时间内第二次发生故障，促使竞争对手将其客户从危机中拯救出来。
 
-一位肯塔基州33岁的研究生卡曼·斯贝勒说，当她与家庭人员讨论冠状病毒疫情时，显然大家的意见不一致，她相信疫苗，但她家人不相信，她认为她家人在电视和有问题的新闻媒体看到的信息使得他们不愿意打疫苗。而她的家人认为她疯了——怎么会相信政府关于中共病毒的信息？
+根据网络侦测服务机构DownDetector的说法，Facebook及其子公司在周五对全球用户来说神秘地崩溃了。这是本周社交媒体巨头的第二次重大故障。
 
-有20%的人很担心他们传播了误导信息。61%的共和党人认为美国政府对传播误导信息负有责任，而只有38%的民主党人同意此观点。
+这家价值数万亿美元的公司承认中断影响了其各个平台，并使用与周一的故障完全相同语调来“道歉”。故障持续了六个小时。**那些依赖该平台的用户几乎无法工作或交流，只能去探索其他平台，比如Telegram，就在该故障期间获得了数百万用户。**
 
-而对于社交媒体，如脸书、推特和油管所起到的传播误导信息的作用，这种两党的分歧则不再明显，79%的共和党人和73%的民主党人都认为社交媒体对误导信息的传播负有很大责任。
+由于公司股价暴跌，周一的故障使创始人马克·扎克伯格(Mark Zuckerberg)损失了超过 60亿美元。**据《每日邮报》报道，这次故障被归咎于一次拙劣的“服务器更新”，是DownDetector记录以来最大的一次。**
 
-新闻来源：[Americans agree misinformation is a problem, poll shows](https://apnews.com/article/coronavirus-pandemic-technology-business-health-misinformation-fbe9d09024d7b92e1600e411d5f931dd)
+**Facebook和Instagram的用户开始在推特上思考没有这些平台的未来，在公众眼中，这些平台似乎正在崩溃。**
+
+Facebook最近运气不佳，一名该公司的雇员弗朗西丝·豪根（Frances Haugen）向媒体举报，并出现在华盛顿举行的听证会上，坚称该平台的产品“伤害了儿童，引发了分裂、削弱了我们的民主”，并将利润置于道德责任之上。“
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Not again?! Facebook, Instagram, Facebook Messenger, and WhatsApp offline for second time in a week — RT World News](https://www.rt.com/news/537020-facebook-instagram-down-again-fail/)
+
+***编辑：小红帽 /翼族
+发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,27 +2,49 @@
 ---
 
 
-## 针下亡魂｜韩国 20 岁女学生接种疫苗12日后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1582698/)
+## 瑞士会谈的实质是美国借台湾存亡与中共进行的再次勾兑
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1582736/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 9/10/2021**
+作者：晓仙女
 
-***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20-1.jpg)
 
-【韩国】一名 20 岁的女学生 Lee Yu-Bin 在接种莫德纳 COVID-19 疫苗的四日后昏迷，一周后死亡。
 
-Lee Yu-Bin 于 7 月 26 日打了第一针疫苗，四日后，她因脑血栓突然昏厥，被送往医院进行脑部手术，一周后，即接种疫苗后的第 12 日，Lee Yu-Bin 病重离世。
 
-负责 Lee Yu-Bin 的医务人员，怀疑死因是疫苗引起的血栓造成，要求进一步检查，但检疫部门三度拒绝，坚持与疫苗无关。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-根据美国和欧洲联合进行的一项最新研究显示，莫德纳等 mRNA 疫苗均显示出会增高具称为 aPL “特定脂肪抗体”的人形成血栓的风险。 不过，韩国当局则指 Lee Yu-Bin 没有一种叫做 PF4 的特异性抗体，这是疫苗引起血栓形成的诊断标准。
 
-Lee Yu-Bin 的父亲向媒体表示，自己后来才从网络等渠道了解到有关疫苗的风险，可惜，女儿的遗体已经火化，没法再进行尸检， 而随着韩国接种疫苗的人数增加，副作用引起的不幸事件亦随之增加。他难过的说，“我女儿的遗言……她生命中的最后一句话只说了‘爸爸’。”
 
-来源｜ [个案020](https://news.sbs.co.kr/news/endPage.do?news_id=N1006491486)
 
-* * *
 
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//
+
+
+10月8日，郭文贵先生盖特视频表示：瑞士会谈的实质是美中为了彼此利益的再次勾兑。美国借阻止打台湾之名，对中共软硬兼施，促使中共国继续买美国国债，以缓解美国的经济困境。郭先生说：美中在玩假的经济和假的政治环境，只是一时的缓解，最终是要出问题的，牺牲的还是台湾和老百姓。
+
+一切的虚假只能是海市蜃楼，最终会消失，而践行正道主义的新中国联邦，用行动建立了GTV、GETTR、GNEWS媒体平台，喜联储金融经济体系，必将成为世界新的政治力量。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-24.jpg)
+参考链接：
+[郭先生盖特： 10月8号：尊敬的战友们好……台湾再次成为中美两国之间的政治经济交易的筹码，对台湾没有任何好处，美国等西方国家正在利用中国的内部政治斗争，获取自己的短暂的政治经济的利益，对中国人，对世界没有任何好处，但对我们新中国联邦，却是百利无一害，天助我新中国联邦。](https://gettr.com/post/pdiwza018f)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
