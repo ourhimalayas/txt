@@ -2,116 +2,72 @@
 ---
 
 
-## 新冠疫苗成分揭秘
-` 中共病毒专栏` [轉載自GNews](https://gnews.org/zh-hans/1581916/)
+## 【闲聊澳洲】 江家反习处弱势，中共备战三个月
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1581822/)
 
-加拿大多伦多枫叶农场 – Myway
-![]()
-前言：
-虽然所谓的“安全、有效“的新冠疫苗推行了一年多时间，已经造成了大量无辜受害者健康受损或者死亡，别说各种政府不对疫苗的严重不良反应进行调查，就连疫苗中的成分至今仍然是一个谜。
+**作者：顺其自然**
 
-在这个已经完全扭曲的社会，只有少数有良知的医生，利用自己的设备和检测手段，对疫苗成分和接种过疫苗的人的血液和身体中发现令人震惊的变化检测检查记录，而政府那些高薪的所谓 “专家”，在世界能提供的最好设备的帮助下，在最舒适的环境和内部结构中，只能得出与他们的金主大药厂相同的结论：疫苗是安全和有效的。
-
-除了一些 “阴谋论者”，还有谁会去揭发这些事呢，因为几乎所有作为监督者的媒体也都被收买或控制了。 在这场 “浮士德重现 “的大戏中，我们是孤独的，也是坚强的。你不能把你的灵魂卖给魔鬼。保持强大的内心，起来战斗吧!
-
-自从去年新冠疫苗由辉瑞和莫多纳等公司推出以来，所有的药厂和各国卫生机构对疫苗的成分都讳莫如深，对于网络上流传的各种说法也不进行反驳，而只是通过媒体平台压制言论，这其中利益链之复杂不是简单能说清楚的。
-
-首先，在疫苗的包装说明书内，内容就是一片空白，网上有很多段视频，有人到提供“疫苗”注射的药店，假装要打疫苗，想要看看 疫苗的“说明书”， 结果唯一显示的文字是“Intentionally Blank”(故意空白)！辉瑞、强生都莫多纳等产品说明书也都是如此。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/成分1.jpg)*图片来源：网络*
-那么，在FDA、各国卫生机构以及药厂官方网站对辉瑞和Moderna疫苗成份的描述如下：
-
-**Pfizer-BioNTech 疫苗**：
-
-***成分**：信使核糖核酸 (mRNA)、脂类（ALC-0315、ALC-0159、二硬脂酰磷脂酰胆碱和胆固醇）、氯化钾、磷酸二氢钾、氯化钠、 磷酸氢二钠和蔗糖*
-
-***成分解释**：*
-
-- *脂类：纳米结构脂质，也称为 “微小脂肪分子”，保护 mRNA 并提供有助于 mRNA 滑入细胞的 “油性” 外壳。Pfizer-BioNTech 疫苗中的纳米结构脂质成分包括：ALC-0315、ALC-0159、二硬脂酰磷脂酰胆碱和胆固醇*
+**编辑、校对、发布：Candy**
 
 
-- *盐类：Pfizer-BioNTech 疫苗含有以下盐类，有助于平衡体内的酸度：*
-- *氯化钾、磷酸二氢钾、氯化钠和磷酸氢二钠*
+闲聊澳洲
+在美国时间的**10月7日**，郭先生自己做了个两个多小时的直播。在直播中，郭先生主要讲了一下内容：
 
+1)中美会谈就是威胁美国，就是觉得美国完了，美国时代过去了。平安还得折腾半年、大半年的，因为毕竟平安的块儿很大；还有平安保险骗了投保的那些人的钱，又没人抗议，它可以拆东墙、补西墙，怎么也要折腾100到200天。
 
-- *糖类：Pfizer-BioNTech 疫苗还含有基础的普通糖，也称为 “蔗糖”。这种成分有助于分子在冷冻过程中保持形状*。
+2)三周以后，**纳斯达克AMD芯片公司上市**。AMD的100%的股东，就是阿布达比的MU BA DA LA(音译：穆巴达拉)，世界上低于七纳米的最好的，这个芯片都是AMD产的。AMD芯片是马斯克的星链公司必须用的芯片，它没有别的选择；另外穆巴达拉也是马斯克星链公司大股东啊，250亿美元。共产党想弄这东西，它弄不了，AMD不给共党技术。以后星链也会上市，万一星链公司不允许Facebook 、WhatsApp、Twitter用呢？只让Gettr、GTV用呢？那意味着什么呢？
 
+还有更高级的呢：AMD 和 IBM 研发的生物芯片要是突飞猛进呢？未来对Gettr、对GTV、对Gnews、对人类的所谓社交媒体，那是多大的事！共产党用蓝金黄想拿到AMD，但是没拿到。
 
-*• 不含：鸡蛋、防腐剂、乳胶*
+这个芯片是七纳米以下的，未来的N年，特别是在物理上超越之后的纳米技术和生物技术的结合，该有多牛！天空WiFi，准备在下一代iphone14或者iphone13特别版上应用，还有三星手机，包括你的电脑。
 
-**Moderna 疫苗：**
+3）政事小哥挺好的，只是不能发声。
 
-***成分：**信使核糖核酸 (mRNA)、脂类（SM-102、PEG2000-DMG、胆固醇和二硬脂酰磷脂酰胆碱 [DSPC]）、氨丁三醇、盐酸氨丁三醇、乙酸、乙酸钠和蔗糖。*
+4）郭先生说**澳大利亚的某官员**，他每次给郭先生通电话，他都有重大的改变。他说在六个月以前，郭先生告诉他，他们会花钱游说澳大利亚政府打疫苗。他当时是半信半疑，他不相信澳大利亚政府那么腐败。而且郭先生告诉他，这个对你澳大利亚的游说花几千万美元上亿。这个哥们儿很聪明，这个哥们儿就找澳洲的廉政公署，他说Miles Guo告诉我的。
 
-***成分解释：***
+这个**药厂疫苗**的成本是多少呢？大概在六美分到八美分卖的价。卖的价格在19美元到35美元不等，不同的时期不同的。你想想，他有多大的暴利。
 
-- *mRNA:与 Pfizer BioNTech 疫苗一样，Moderna 的疫苗也使用了mRNA 技术来构建针对 COVID-19 的抗体。*
+那么药厂既然在人类遇到最大危难的时候，发展出了疫苗儿拯救人类，为什么还再花钱说服别人，去救别人呢？全人类不知道病从哪来的，你就生产出疫苗？生产出来疫苗儿，还要花钱说服别人打你的疫苗，要政府强制打。但是打的时候呢，还得你自己承担责任，他药厂不承担责任。这叫啥疫苗？这符合逻辑吗？不打疫苗还不让出去工作，不能出去吃饭！
 
+5）恒大宣布破产了。
 
-- *脂类：纳米结构脂质有助于将 mRNA 运送到疫苗接种者的细胞中。Moderna 疫苗的纳米结构脂质成分包括：（SM-102、PEG2000-DMG、胆固醇和二硬脂酰磷脂酰胆碱 [DSPC]）*
+6）有战友问，江家反击的机会大吗？
 
+郭先生回答：**江家反击的机会越来越渺茫**。当年老江下令弄死那个令计划的儿子，令谷，郭先生曾问一个风水先生，共产党干掉了令计划的儿子，会是什么样代价，风水先生说颠倒乾坤。郭先生说他从来不相信这些风水大师们。但是却让这个风水先生预测预测，这个风水先生说江家的孙子江志城活不长。他说，江家这次动手干掉令谷，江家儿子江绵恒、还有他的孙子江志成都将为此付出代价，这就是轮回抱应，所以江志成只谈恋爱不结婚。江绵恒、江绵康、江志成在军队的实力是巨大的，但是郭先生认为江家与习近平pk的机会越来越渺茫。
 
-- *其余成分包括酸类（乙酸）、酸稳定剂（氨丁三醇和盐酸氨丁三醇）、盐类（乙酸钠）和糖类（蔗糖），它们共同作用，在疫苗生产后维持疫苗的稳定性。*
+7）美国股市指数还在涨，郭先生说：哪一个金融崩塌之前不是这样啊？边印钞边涨啊，因为疯狂印钱。涨着涨着就吧唧下去了，现在是回光反照。
 
+8）日本企业会从大陆撤走，本田车将来国内会没有的。中东UAE的国家主权基金的信誉是全世界最高的，它有1.5万亿现金。
 
-*• 不含：鸡蛋、防腐剂、乳胶*
+9）共产党现在的从上到下的对全世界的疯狂，对爆料革命是好事儿。他越是想跟美国人在这块儿耀武扬威，把自己当真老虎，越好。杨洁篪本人岌岌可危，王毅也岌岌可危，他知道他最终会和孙力军、傅政华，王岐山、孟建柱进秦城监狱。
 
-这看起来似乎很正常，没有任何不妥，但疫苗中除了他们所列出的常规成分外，是否还有其它“不便“说明的成分呢，下面根据不同国家医生和科学家所做的检测进行分析说明。
+10）**中共所谓的备战120天**，（就是）在全世界搞疫苗，搞病毒，再放新病毒。在几个国家建设生化科技武器、半武器实验室，然后对全世界的经济进行全面打击。用贸易，让中国人吃草，吃三年让美国人傻眼，跪下来。把香港的所有的金融市场全毁了，让全世界金融市场全崩溃，欠你们的钱都不还。我让你们全完蛋，然后就打台湾，打完台湾以后把台积电国有化。把台湾的所有的科学家全绑架到大陆去，学美国当年在德国二战以后把德国的科学家全弄到美国那样。台湾有四个核电厂。
 
-Robert Young博士和他的团队使用电子显微镜、相位对比显微镜、暗视野及明视野显微镜等外加核磁共振手段对辉瑞、莫多纳、强生和阿斯利康疫苗进行了分析鉴定，发现的疫苗成分结果列举如下。
+11)中共甚至跟美国商量好，往中共的船上打几发炮弹，再弄几个飞船打打，中共也死上个百、八十个人没问题。给美国人，媒体上面子，给政治上面子。最重要的是，杨洁篪说，**继续买美国国债**。我中共只要买你国债，你美国就别管台湾，买国债占90%。美国的国家国债的上线在这摆着，突破上限，金融市场恐惧。违约不提高上限，债务违约，市场崩盘。美国现在是28.5万亿，将近30万亿，没有选择，他一定提高上限的，他不能违约吧，那谁买？中共买啊，中共有钱吗？反正是纸币，太简单了。
 
-⦁ 还原氧化石墨烯 。 在辉瑞、摩德纳、阿斯利康和杨森 “疫苗 “的未染色的活体血液中看到还原石墨烯氧化物，以及在血细胞和凝血块周围的石墨烯管状物以及结晶
-![](https://assets.gnews.org/wp-content/uploads/2021/10/成分2.jpg)
-⦁ 寄生虫
+12）**张艺谋当年和巩俐**分手的一个原因，就是张艺谋出去，巩俐回来就问，你去干什么去了？张回答，我去看剧本儿去了。又问，看啥剧本儿啦？看多长时间啊，俩小时看多少页儿啊，那一页儿说的啥？然后验证一下。然后再问：这中间打电话了吗？接电话了吗？张回答，没有。再问，到底打没打？让我看手机。哎，我觉得你跟你跟你女儿默默通电话了呢？说实话，通没通电话？然后哇嗷儿的喊上了，张艺谋最后就跟巩俐分手了。未结婚多遗憾，俩人是真爱，就是性格的问题，你看演戏演那么好，人也很漂亮，
 
-在显微镜下观察，除了交联的纤维蛋白单体中表达的寄生虫凸起外，干燥的凝固血细胞或血凝块中的氧化石墨烯的纳米管、微管和团块炸弹表明了系统性的寄生虫感染。另外，在辉瑞疫苗溶液中发现锥虫，锥虫是一种寄生虫，它的几个变种是致命的，是导致获得性免疫缺陷综合征或艾滋病的许多原因之一。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/成分3.jpg)
-⦁ 辉瑞疫苗中含有还原氧化石墨烯的脂质体，脂质体通过与特定的mRNA分子相连，可将脂质体内容物运载到特定的器官、腺体和组织，即卵巢和睾丸、骨髓、心脏和大脑等
-![](https://assets.gnews.org/wp-content/uploads/2021/10/成分4.jpg)
-⦁ 在所有疫苗中发现了包括碳、氧、铬、硫、铝、氯和氮等元素的纳米微粒，在辉瑞疫苗中发现有机碳、氧和氮等元素，而且包括铋、钛、钒、铁、铜、硅和铝等嵌入式纳米粒子的聚集。在阿斯利康疫苗中发现了一种铁、铬和镍的工程聚合体，也被称为不锈钢的微纳米颗粒。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/成分5.jpg)
-⦁ PEG，PEG阿斯利康 “疫苗 “成分数据表中唯一申报的佐剂，但也在辉瑞和Moderna “疫苗 “中被发现也存在此类物质。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/成分6.jpg)
-⦁ 有机-无机聚合体。在强生 “疫苗 “中发现的一种有机-无机聚合体。这些颗粒由不锈钢组成，并与还原氧化石墨烯的 “碳基 “粘在一起。这种聚合体具有高度的磁性。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/成分7.jpg)
-所有以上这些成分，在进入体内后，通过还原石墨烯氧化物和微波辐射、寄生虫等可引起体内产生内源性的 “冠状效应 “和 刺突蛋白效应 “。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/成分8.jpg)
-可编程的磁性 “石墨烯 “纳米机器人被注射到人类或动物身体的血管和间质中，被发现沉积到结缔组织和脂肪组织中，然后进入器官和腺体，可能导致细胞膜的生物转化（冠状化和刺突蛋白化），并可引起基因突变，以及细胞的死亡。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/成分9.jpg)
-根据爆料人Dr. John B 显微镜观察结果，疫苗中含有以大小不同折光颗粒，纤维状结构 以及体积较大的独特折光结构以及其它形状异常的物质：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/成分10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/11-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/12-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/13-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/14-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/15-2.jpg)
-根据显微镜检测结果可以得出结论，辉瑞疫苗中的颗粒和异性物体有复杂的聚集和结晶现象，这些物质（化学性质、元素组成）都是未知的 ，这些物体可能只是疫苗的成分,也可能是污染物。
+听完郭先生的直播，我在这**补充两条信息：**
 
-此外，根据Carrie Madej博士在Stew Peters节目中描述，Dr. Carrie Madej在 400 倍功率显微镜下,在 3 个不同批次的 Moderna 和强生疫苗中,发现了以下可怕的物体：一个活的会动的像虫子一样的东西、石墨烯颗粒、 纤维和各种胶状物和颗粒。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16-1.jpg)
-另一个来自Peters Stew的独家视频揭示了由南非Zandre Botha医生所做的检测，在强生疫苗溶液内发现活体生物和奇怪的圆形生物体。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/17-2.jpg)
-日本也在辉瑞和莫多纳疫苗中发现污染物，其中有白色漂浮物，有黑色磁性物质，但具体是什么成分又被政府匆匆掩盖过去了，而没有进行任何检测。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/18-3.jpg)
-还有一个令人震惊的消息，根据辉瑞爆料者爆出其高管电子邮件：辉瑞内部不想让疫苗中含有流产胎儿细胞的信息流传出去。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/19-3.jpg)
-左派为什么鼓吹流产，因为流产后的胎儿用途多多，可以制造各种产品，人胚肾293细胞，也常称为 293, HEK-293, 293细胞，或更精确地说， HEK细胞特异细胞系是一种特定的细胞系，最初是从女性胚胎的组织培养物中生长的人类胚胎肾细胞衍生而来。它们之所以被称为HEK，是因为它们起源于人类胚胎肾脏培养物中，而293则来自Graham对其实验进行编号的习惯。 HEK 293细胞的更具体用途是在腺病毒载体的繁殖中。病毒提供了将基因进化到细胞中的有效途径，可以将基因传递到细胞中，因此可以作为实验工具大量使用。但是，作为病原体，它们也给实验者带来风险。可以通过使用缺少关键基因的病毒来避免这种危险，这些病毒因此无法进入细胞后复制。当然了如果故意使用不缺少关键基因的病毒以导入危险因素。
+一是在直播中郭先生说澳洲政府收了几千万甚至上亿的游说的钱，强制国民打疫苗。这里肯定包括新洲州长和维州州长。“十一” **新洲州长辞职**，接受调查。三天前，**新洲副州长也辞职**了，估计是这事败露了，虽然新闻说的是新洲州长的接受调查是与她男友有关。
 
-在天主教的教学背景下，这在使用HEK 293和衍生产品（如疫苗）方面存在伦理上的困难。对于有宗教信仰的人来说，在人们不知情的情况下，流产胎儿细胞被注入身体，让被注射的人都有了罪，这对于有宗教信仰的人的冲击是非常大的。
+《时代报》10月6日的报导称：消息人士透露，独立反腐委员会（IBAC）正在调查**安德鲁斯**、一名高级公务员与工会之间的往来；而几名前工党议员、现任工党议员和工作人员已经接受了反腐机构的问话。州反腐败机构正在调查维州州长安德鲁斯（Daniel Andrews），但安德鲁斯拒绝证实这一消息，也拒绝辞职。
 
-以前，人们对疫苗的危害还主要停留在刺突蛋白对身体所造成的伤害，随着真相一步步被揭开，而且这些发现被越来越多的医学工作者验证重复，我认为更恐怖的是可能还有的更多未知成分，如果不是生产商主动透露，我们很难去发现。
+太好了，这两个强制疫苗的州长都接受反腐委员会的调查，看看他们拿了多少好处，这可是谋财害命的钱。
 
-参考链接：
+另一条是关于AMD芯片公司在纳斯达克上市的事。三票先生说，那个**阿不扎比的基金，是郭先生家族基金参与的**，这个芯片是未来马斯克的星链一定要用的。
 
-- [https://portal.ct.gov/-/media/Coronavirus/Community\_Resources/Vaccinations/Print-Materials/Fact-Sheets/Ingredients\_Chinese-Simplified.pdf](https://portal.ct.gov/-/media/Coronavirus/Community_Resources/Vaccinations/Print-Materials/Fact-Sheets/Ingredients_Chinese-Simplified.pdf)
-- [https://www.fda.gov/media/144414/download](https://www.fda.gov/media/144414/download)
-- [https://www.fda.gov/media/144638/download](https://www.fda.gov/media/144638/download)
-- [https://www.drrobertyoung.com/post/transmission-electron-microscopy-reveals-graphene-oxide-in-cov-19-vaccines](https://www.drrobertyoung.com/post/transmission-electron-microscopy-reveals-graphene-oxide-in-cov-19-vaccines)
-- [https://www.drrobertyoung.com/post/transmission-electron-microscopy-reveals-graphene-oxide-in-cov-19-vaccines](https://www.drrobertyoung.com/post/transmission-electron-microscopy-reveals-graphene-oxide-in-cov-19-vaccines)[https://www.drrobertyoung.com/post/transmission-electron-microscopy-reveals-graphene-oxide-in-cov-19-vaccines](https://www.drrobertyoung.com/post/transmission-electron-microscopy-reveals-graphene-oxide-in-cov-19-vaccines)
-- [https://gnews.org/zh-hans/1571734/](https://gnews.org/zh-hans/1571734/)
-- [https://dailyusa24.com/2021/10/07/watch-pfizer-whistleblower-confirms-aborted-fetal-cell-lines-in-mrna-covid-vaccines/](https://dailyusa24.com/2021/10/07/watch-pfizer-whistleblower-confirms-aborted-fetal-cell-lines-in-mrna-covid-vaccines/)
-- [https://coronanews123.wordpress.com/2021/10/07/georgia-doctor-reports-seemingly-alive-parasite-like-object-in-vaccines/](https://coronanews123.wordpress.com/2021/10/07/georgia-doctor-reports-seemingly-alive-parasite-like-object-in-vaccines/)
-- [https://rumble.com/vlunsc-microscopy-expert-vials-contain-graphene-oxide-parasites-stainless-steel.html](https://rumble.com/vlunsc-microscopy-expert-vials-contain-graphene-oxide-parasites-stainless-steel.html)
+参考来源：
 
+[https://www.mubadala.com/en/who-we-are/board-of-directors](https://www.mubadala.com/en/who-we-are/board-of-directors)
 
-注：本文仅代表作者观点，与 Gnews无关
+[https://www.cnbc.com/2021/10/04/abu-dhabi-controlled-globalfoundries-files-for-ipo-amid-chip-shortage.html](https://www.cnbc.com/2021/10/04/abu-dhabi-controlled-globalfoundries-files-for-ipo-amid-chip-shortage.html)
 
-注：本文引用的所有图片均来源于网络
+**YouTube链接**：[闲聊澳洲](https://www.youtube.com/watch?v=1hP4WmePdeI&amp;t=219s)
+**GTV频道：**[墨尔本雅典娜农场AthenaFarm](https://gtv.org/video/id=6153fecc42a8af3151a72e5b)
 
-* * *
-
-校对/编辑/发稿：云起时
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

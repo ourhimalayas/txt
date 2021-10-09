@@ -2,27 +2,28 @@
 ---
 
 
-## 针下亡魂｜韩国 20 岁女学生接种疫苗12日后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1582698/)
+## 有声|台湾危机迫在眉睫 各方势力角逐海上话语权
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1582519/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 9/10/2021**
+配音：香草山香港部-文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
 
-***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20-1.jpg)
+10月6日，美国国家安全顾问奥布莱恩（O’brein）和彭培奥强调台湾局势危机。在昨日答疑环节，两位中美关系专家就台海危机做出回答，直言美国无法承担失去台湾的后果。
 
-【韩国】一名 20 岁的女学生 Lee Yu-Bin 在接种莫德纳 COVID-19 疫苗的四日后昏迷，一周后死亡。
+奥布莱恩重申了台湾的特殊地理位置，和其在全球地缘政治格局中的重要性。在第一岛链中，台湾居于核心战略地位。一旦中共侵略台湾得逞，东南亚国家和澳大利亚的盟友阵线将被拦腰斩断，连同第二岛链拱手送给共产党，直接威胁夏威夷甚至美国西岸。几代台湾人为之付出惊人努力的民主将被屠戮，美国和自由世界人民的信心将被摧毁。
 
-Lee Yu-Bin 于 7 月 26 日打了第一针疫苗，四日后，她因脑血栓突然昏厥，被送往医院进行脑部手术，一周后，即接种疫苗后的第 12 日，Lee Yu-Bin 病重离世。
+南中国海自15世纪以来就是东西方文明和贸易的交融之地，在现代社会，更是能源枢纽和战略要地，聚集了各方势力。美英、欧洲及日本、俄罗斯都在该地区拥有各种形式的军事存在。中共在香港的暴行和大湾区计划已宣布一国两制实为骗局，对台湾的诱骗政策已转为直接军事威胁。
 
-负责 Lee Yu-Bin 的医务人员，怀疑死因是疫苗引起的血栓造成，要求进一步检查，但检疫部门三度拒绝，坚持与疫苗无关。
+文字版原文：[台湾危机迫在眉睫 各方势力角逐海上话语权](https://gnews.org/zh-hans/1579862/)
 
-根据美国和欧洲联合进行的一项最新研究显示，莫德纳等 mRNA 疫苗均显示出会增高具称为 aPL “特定脂肪抗体”的人形成血栓的风险。 不过，韩国当局则指 Lee Yu-Bin 没有一种叫做 PF4 的特异性抗体，这是疫苗引起血栓形成的诊断标准。
-
-Lee Yu-Bin 的父亲向媒体表示，自己后来才从网络等渠道了解到有关疫苗的风险，可惜，女儿的遗体已经火化，没法再进行尸检， 而随着韩国接种疫苗的人数增加，副作用引起的不幸事件亦随之增加。他难过的说，“我女儿的遗言……她生命中的最后一句话只说了‘爸爸’。”
-
-来源｜ [个案020](https://news.sbs.co.kr/news/endPage.do?news_id=N1006491486)
-
-* * *
-
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
