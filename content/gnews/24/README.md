@@ -2,45 +2,44 @@
 ---
 
 
-## 前国务卿迈克·蓬佩奥： 我们必须明确表示，美国不会接受习近平的所谓统一 台湾
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1582345/)
+## 法里德博士在中共病毒国际峰会上向意大利参议院发表的演讲
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1582424/)
 
-前国务卿迈克·蓬佩奥： 我们必须明确表示，美国不会接受习近平的所谓统一 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click)。 【附福克斯新闻对蓬佩奥的访谈视频】
+翻译: 波士顿五月花  文明
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/法里德博士在中共病毒国际峰会上向意大利参议院发表的演讲.jpg)法里德博士
+https://www.thedesertreview.com/news/local/dr-fareed-addresses-italian-senate-at-covid-summit/article\_75ef29c2-16ff-11ec-9560-1b32c7c0d4a0.html
 
+尊敬的参议员，亲爱的同事、朋友、女士、先生们，
 
-> We need to make clear that the United States is not going to accept what Xi Jinping calls reunifying the Taiwanese. [pic.twitter.com/Jwoo2rlX4b](https://t.co/Jwoo2rlX4b)
-> — Mike Pompeo (@mikepompeo) [October 8, 2021](https://twitter.com/mikepompeo/status/1446542114293223439?ref_src=twsrc%5Etfw)
+很荣幸今天在这里发言。我是乔治·法里德博士，在位于加州墨西哥边境附近的名为 Brawley的乡村小镇行医。这个小型社区成为了加州中共病毒案例爆发的中心，我在门诊和病房之间不停地治疗着重症患者，身处“风暴之眼”——一个76 岁的人本不该所处的地方。然而，在生物化学和病毒学方面接受的训练，以及我在哈佛医学院取得的学位，令我为前方的战斗——一场在过去 18 个月中我一直未曾停止的战斗，做好了充分的准备。我和我的同事Tyson 博士正在赢得这场与中共病毒的战斗，原因很简单：我们遵循科学！
 
+中共病毒感染是一种在早期很容易治疗的疾病，但随着病情的发展，疾病会变得非常难以治疗。 正如拉乌尔博士、泽连科博士和麦卡洛博士所告诉我们的，中共病毒感染的第一阶段是病毒复制，会导致患者出现咳嗽、发烧、不适、头痛等流感症状，或许还会失去味觉和嗅觉。若并未给予患者治疗，病情则会进入“细胞因子风暴”阶段，血氧饱和度下降；随后就进入血栓栓塞阶段，出现会致命的血凝块。我对处于这三个阶段的患者都进行过治疗——拖延治疗患有哮喘或糖尿病等并发症的老人或高危患者，几乎是残酷的行为。随着可以预见的病情发展，他们中的许多人会相继死去。中共病毒治疗规范中的“观望”疗法是我在漫长的职业生涯中见过的最大的医疗失败。因为**死亡是可以避免的**——但你必须尽早治疗！
 
+没有人应该在感染中共病毒后无谓地死亡。
 
-美白宫： 自 2000 年以来，一半的美国钢铁公司已经关闭。中国现在一个月生产的钢铁比美国一年生产的还多。 两党基础设施​​合约和“重建更好”议程将促进美国的生产并在制造业等行业创造就业机会。
+18 个月前，即 2020 年 3 月，我与同事Tyson 博士开始对中共病毒早期患者使用组合药物进行治疗，最初主要是羟氯喹、阿奇霉素或者土霉素，以及保健品包括锌、维生素 D 和 C。如麦卡洛博士所解释，羟氯喹等药物充当离子载体，令锌进入细胞以干扰病毒复制。随着时间的推移，我们也在改进治疗方案，添加了伊维菌素、氟伏沙明、单克隆抗体，以及阿司匹林和布地奈德（类固醇）等药物来治疗其他并发症。我们成为了国际医生网络的一部分，其中包括由麦卡洛博士和来自Covexit的凯肯斯博士等领导的美国医师和外科医生协会等团体。所有的团体都致力于一个目标：通过早期治疗挽救生命。
 
+我研发了自己的治疗方案，根据每个患者的临床情况略有调整。成果如何？我们已经治疗了 7,000 多名患者，在出现症状的前 5 至 7 天内接受治疗的患者中没有一人死亡。再强调一遍，无一人死亡。其中包括患有多种并发症的患者，以及 90 多岁的老年患者！作为一个养老院的主任医师，在本地区的其他养老院有大量人员死亡的同时，由于早期治疗，我们的养老院死于中共病毒的人数很少。从这个角度来看，我所在的县大约有 30,000个 中共病毒病例，750 人死亡。我们治疗了超过 20% 的病人，只有几个人死亡，早期治疗的病例，无一人死亡。此外，我们每天都接到来自美国各地迫切寻求早期治疗的患者电话。目前，我们已经帮助了数百名患者。来自患者们的感谢信，令我们倍感欣慰。
 
+有什么证据证明我们的治疗是科学的呢？我们的成果已在世界各地得到复制，现在已有数百篇经同行评议的关于早期治疗的论文发表。我很荣幸参与了其中一些论文的发表，其中包括麦卡洛博士关于早期治疗的开创性论文。
 
-> Since 2000, half of U.S. steel companies have closed. China now produces more steel in a month than America does in a year.
-> 
-> The Bipartisan Infrastructure Deal and Build Back Better Agenda will boost U.S. production and create jobs in industries like manufacturing.
-> — The White House (@WhiteHouse) [October 8, 2021](https://twitter.com/WhiteHouse/status/1446573717392343046?ref_src=twsrc%5Etfw)
+中共病毒患者无法从医生那里得到他们需要的治疗，这是怎么回事？也许主要原因是我们自己的卫生机构，如食品及药品管理局(FDA)和疾病控制中心(CDC)反对使用这些药物，甚至错误地声称这些药物是危险的。首先，基于柳叶刀的虚假研究报告，我们被告知羟氯喹具有心脏毒性，但最终，该研究报告被撤回。现在我们又听到伊维菌素是一种“马药”，该声音无视伊维菌素属于美国疾控中心和世卫组织的推荐药物，并且人类已经服用了数百万剂来治疗寄生虫感染这一事实。反对早期治疗的宣传随后在媒体上得到了响应。
 
+我和其他早期治疗中共病毒的医生受到了当地卫生部门、医院甚至州许可委员会的攻击。随着攻击的频频发生，现在，我的处方在药房被拒绝。尽管越来越清晰的事实表明，疫苗本身并不是解决方案，但患者们却发现，自己越来越难以得到治疗了。
 
+此外，审查制度也导致患者无法从医生那里得到所需的治疗。我在YouTube上关于早期治疗的视频已被删除，并被标记为错误消息。现在的美国，正在发生如《1984》或者《麦卡锡主义》一书中描写的情况。在自由社会中，审查制度从来都不是好事，在医学领域尤其有害。因为当医生们可以相互交换意见时，患者会从中受益。相反，我们却信赖几个甚至从未治疗过中共病毒患者的“专家“。结果正如我们所看到的，后果惨痛！
 
-众议员迈克·沃尔茨： “醒来”的美国公司准备在国内进行抵制，但对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的现代奴隶制却视而不见。 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 正在对美国发动冷战——而我们的资金正在助力中共国的军事建设。如果您的产品上写着“中国制造”，请放下它！ 【附沃尔茨议员在祈祷投票战峰会上的讲话视频】
+当1990 年我在农村社区开始工作时，我从未想过有一天我会在美国参议院，随后在国际会议上发言。但因为我亲眼目睹了中共病毒病例的早期治疗是如何挽救生命的，这一切成为了现实。在伦理道德层面上，我有义务不仅为我的患者们发声和战斗，更要为世界各地许多无谓死去的人们发声和战斗。
 
+这是一个呼唤人类最伟大品质——勇气的时代。在座的每个人都要明白，我们正处于这辈子最伟大的战斗之中——当医生被阻止使用挽救生命的药物治疗他们的病人时，我们就知道，险恶的事情正在发生。感谢大家来到这里，为你们有勇气为自己的患者和全球人民挺身而出而热烈鼓掌。谢谢大家！
 
+（文章仅代表作者本人观点，与GNews 无关）
 
-> 'Woke' American corporations are ready to boycott here at home but turn a blind eye to modern day slavery in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw).
-> 
-> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) is waging a cold war with the U.S. — and our money helping fuel China's military build up. If your product says “Made in China” put it down! [pic.twitter.com/EPmx0sUBQY](https://t.co/EPmx0sUBQY)
-> — Rep. Mike Waltz (@michaelgwaltz) [October 8, 2021](https://twitter.com/michaelgwaltz/status/1446554487737384964?ref_src=twsrc%5Etfw)
+新闻来源: [Dr. Fareed addresses Italian Senate at COVID summit](https://www.thedesertreview.com/news/local/dr-fareed-addresses-italian-senate-at-covid-summit/article_75ef29c2-16ff-11ec-9560-1b32c7c0d4a0.html)
 
+* * *
 
+*素材来源：思澈*
 
-骏升科技(钦州)有限公司[@UEI\_IBC](https://twitter.com/UEI_IBC)是奴隶劳动的同谋。承认与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 合作将维吾尔人从 [#新疆](https://twitter.com/hashtag/%E6%96%B0%E7%96%86?src=hashtag_click) 强行运往钦州。 拜登总统必须通过支持我的‘维吾尔强迫劳动预防法’来追究该公司的责任。 【附路透社文章：骏升科技达成运输和雇用维吾尔工人的协议】
-
-
-
-> .[@UEI\_IBC](https://twitter.com/UEI_IBC?ref_src=twsrc%5Etfw) is complicit in slave labor. admitted to working with the Chinese Communist Party to forcibly transport Uyghurs from [#Xinjiang](https://twitter.com/hashtag/Xinjiang?src=hash&amp;ref_src=twsrc%5Etfw) to Qinzhou
->  
-> President Biden must hold the company accountable by supporting my Uyghur Forced Labor Prevention Act [https://t.co/8dbkXvSl0T](https://t.co/8dbkXvSl0T)
-> — Marco Rubio (@marcorubio) [October 7, 2021](https://twitter.com/marcorubio/status/1446247002929500164?ref_src=twsrc%5Etfw)
+*编辑**& 发布：jamie(文胤)*

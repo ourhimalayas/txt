@@ -2,39 +2,173 @@
 ---
 
 
-## 郭文贵先生2021年10月8日盖特视频（9分15秒）全文字版
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1582205/)
+## 今年起始，是中共百年大计的开始
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1582254/)
 
-#### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Snipaste_2021-10-09_06-07-38.png)
-尊敬的战友们好，10月8号，世界变化太快了,这facebook，instagram，whatsapp现在是灾难重重啊，听说内部现在律师，内部的管理团队几乎大崩溃，快完球蛋了，接下来的技术灾难，全球的讨剿，还有一个他在这个冠状病毒疫苗，还有这些背后的这个非法的操作，想尽一切办法，所谓的媒体正义，媒体法院，媒体引导都在通过技术在诱导一些未成年的孩子，沉溺于这个互联网的危险犯罪和不健康的心理的，这种社交媒体的灾难之中。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/154-ax8p9-gk4ic.jpg)
+[https://gtv.org/video/id=6160255ad2e2b8174872aeda](https://gtv.org/video/id=6160255ad2e2b8174872aeda)
 
-现在全世界都在行动了，不光是美国，走着看。扎克伯格这小子可不是一般的坏，我跟你说，叫他“扎泽东”都便宜他了，我叫他“扎特勒”啊，“扎泽东”，这绝对！这小子太坏太坏太坏太坏了。没想到这小子堕落成这个样子！
+**郭文贵
+Miles Guo**
 
-关于台湾的问题，很多战友给我发信息，台湾的很多战友给我发信息，打台湾咋回事儿？兄弟姐妹们，从昨天到今天我可以告诉大家，所谓的“中美瑞士会谈”，今天可以告诉你们，最根本的话，啥叫瑞士会谈？就是美方很清楚，怎么糊弄让习大神不去打台湾，就这么简单，你别打。因为美方和西方都判定，习身体上撑不过一年，甚至最多撑不过两年。甚至让习任何情况下叫内部的政治斗争把他消耗掉。
+今年的5月份列为中共国的百年大计的备战状态
+En mayo de este año, representa como el estado de preparación para el plan del centenario del PCCh
 
-头两天还记得吗？美国的John Thornton，最关键的时候去了北京，听说是外边三周里边三周quarantine，然后到了北京，你去想想他干啥去了？他知道北京现在的政治形势，据他说很紧张，这绝对是跟贾庆林、王岐山的铁哥们儿，还有跟王岐山最好的金融机构也到北京。这次王岐山没出面，而美方的解读，这些人都不是一个身份，美方也通过这些信息探知中国的内部政治。而这些人跟江志成的人见完面以后，和杰克.马（马云）见完面以后,都发现所有人在等着习大神出事儿。马云现在已经能运动了，能活动了，又出来折腾了。马云到香港，虽然有所谓的“保镖”，但那都是他买通的人。答应中央往回弄资产，这边干着自己的事儿，都是江志成的兵，那和李嘉诚那都是一伙的。
+啥叫备战
+En qué consiste la preparación para el plan
 
-那么，这些人都是，跟美方所有的感觉一样，都等着习出事。所以美方根据国内的政治、经济，二十大，现在就是跟杨洁篪，杨洁篪也是身在习营，心在江派，心在江家。所以说美方也有感觉，怎么糊弄习，你现在别打台湾。然后呢，看上去我有要求你别打，软硬兼施，这是美方的战略，对台湾是不是好事？我可以告诉大家更坏，更坏！这就是我告诉你，这就是江家、江志成和王岐山、孟建柱和曾庆红他们这个玩的段位与他（习）不一样。他们给了美方这种消息，美方想玩这种新消息的时候，大家别忘了，他（习）让江家的势力苟延残喘。甚至当一定的时候，他们会果断的对台湾出手。
+干倒美国美元, 干倒欧元经济
+Derribar al dólar estadounidense y la economía del euro
 
-这就是台湾凶矣啊！走着看吧，这是一个。第二个，就是糊弄中共买美国国债，你买美国国债，现在你别打台湾，你太伟大了，我们支持你，坚决维护你这个体制，不干涉你内政，然后呢给习大神说，我们总统要通话，要见面，要友好，要减关税，别打台湾。给钱啊，拿钱啊，买我们的国债啊，习大神一激动，买买买买买买，小事小事小事，是吧，五千亿，两万亿！美方一看股市先托上去，把美国国债破天花的事解决了，虽然刚批了四千八百亿。
+今天要再重申一遍啊
+Hoy les quiero repetir de nuevo
 
-大家看这个游戏，你觉得能一直这样下去吗？天天像路大脑袋，蛇妖闫，九指妖天天靠骗钱借钱的，卖两块钱一张的“路德访谈”和“简报”，路大脑骗，二十九美金一个的“路大脑袋”的一个袋子，能行吗？最终，他是要饭的，最终他是要负责任的，最终这个经济是要出问题的，买美国债也只能骗一时，说白了两边的政治形势都不看好。互相玩儿，都拿对方玩，壮自己这边的自信，玩假的经济，玩假的政治环境，一切利好，这才是根本目的，牺牲的还是台湾，牺牲的还是老百姓对吧，这还用说吗，兄弟姐妹们。
+病毒是共产党制造的生化病毒
+El virus es un virus bioquímico elaborado por el Partido Comunista
 
-另外一个，兄弟姐妹又看到一个更可怕的问题，社交媒体现在在这个疫苗上，冠状病毒对世界的影响，每分钟每时每刻，都在改变一切。所以昨天我们开会，所有的这计划、那计划完了以后，我说你这计划都特别好，但是我想告诉你，等六个月以后，你说的这些话都不会发生，甚至都跟你想象的不一样，有些话我现在不方便说。他们全都傻眼了，就在这儿。我说你去想一想，这个疫苗灾难改变人类生存的时候，你觉得这事还会发生吗？这个世界，金融只有虚拟货币、数字经济，世界要重写金融秩序，谁都改变不了，那才是叫金融，那是叫经济。第二，新的生命科技，新的技术改变疫苗，改变病毒在对人类的危害，那叫高科技。第三，所有强制打疫苗的、让别人打疫苗的、强迫打疫苗的都将受到审判。最后疫苗灾难改变人类的一切，你能改变得了吗？生存方式，水、电、飞机、汽车、交通、粮食啥都改变了，你能改变的了？
+疫苗灾难是再次的生化战争
+El desastre de la vacuna es una vez más la guerra bioquímica
 
-那么在这种情况下，你觉得你谈那些选举，扯淡的事儿，那正常吗？得多少人受审判，所有的所谓的、你现在看到的政治家，可能都成为罪人了。那么最终，共产党一定要对病毒有个交代，一定要真相出来——病毒哪来的？然后疫苗到底背后，谁行贿，谁害人，谁贪财害命，谁是黑暗势力？最终要说的清楚的！
+是生化战争的深入化
+Es la profundización de la guerra bioquímica
 
-那今天你说那些东西有用吗？一点用都没有！今天他们在说的都是笑话，说实在话，新的势力都会诞生——政治的势力，经济的势力，媒体的势力。那像新中国联邦没有任何历史负担，对人类无任何危害，我们的社交媒体平台都是对人类最好的。你们会看到，记住昨天七哥直播说的，记住未来的几周，这几十天，你会看到什么发生。你们看到一个上市公司，那你太小看新中国联邦，太小看七哥了。大戏在后边，别着急，往回看，过去的一个月，两个月，三个月发生啥事儿，再往后看，每天都精彩。
+而且所有有计画地培养出疫苗
+Además, todas las vacunas se cultivaron de manera planificada
 
-七哥现在穿上这个衣服，是要开上大皮卡，大皮卡，六乘六的皮卡，这超级暴力的皮卡去见人开会，还是给你们挣钱啊，说不定我在车上直播一下子。然后去开会，然后随时向你们汇报啊，兄弟姐妹们，嗯，啥都不说啦。
+高传播率
+Alto porcentaje de transmisión
 
-稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
+高致死率
+Alta tasa de letalidad
 
-[郭文贵先生10月8日盖特](https://gettr.com/post/pdiwza018f)
+最后是通过疫苗
+Finalmente, a través de las vacunas
 
-(文章仅代表作者本人观点，与GNEWS无关)
+疫苗经济、疫苗政治、疫苗军事
+Economía de las vacunas, política de las vacunas, ejército de las vacunas
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+疫苗控制世界
+La vacuna controla al mundo
+
+就是共产党干的
+Todo esto es hecho por el Partido Comunista
+
+跟共产党合谋的
+Conspirado con el Partido Comunista
+
+就是美国的华尔街和美国的几个被收买的像CDC的一些官员
+Es el Wall Street y algunos funcionarios en los EE. UU. que fueron sobornados como los Centros para el Control de Enfermedades, Ministerio de Salud y Bienestar (CDC)
+
+像欧洲的一些官员
+Así como los funcionarios de Europa
+
+包括世界上的黑暗组织, 非法组织
+Incluyendo las organizaciones oscuras e ilegales en el mundo
+
+跟共产党一起干的
+Lo han hecho con el Partido Comunista
+
+王岐山就是这个非法组织的核心代表
+Wang Qishan es el principal representante de esta organización ilegal
+
+这也是最近不能弄死他的根本原因
+Esta es también la razón fundamental por la que no han podido matarlo recientemente
+
+共产党还需要他
+El Partido Comunista todavía lo necesita
+
+任何国家任何好人坏人组织
+Cualquier país, cualquier buena o mala organización
+
+不光需要好人还需要坏人
+No solamente se necesitan buenas personas sino también malas personas
+
+真的
+Es verdad
+
+这就是个游戏规则
+Esta es la regla del juego
+
+你接不接受, 它就是这样
+No importa si aceptas o no, es así
+
+现在他就发生了
+Ahora está sucediendo
+
+那么现在告诉大家的事情
+Entonces déjame decirle una cosa a todos
+
+共产党的停电
+El apagón del Partido Comunista
+
+包括共产党的现在整个恒大的事件的控制
+Incluyendo el control actual del Partido Comunista con Evergrande Group
+
+有序控制
+Un control ordenado
+
+但是记住啊
+Pero recuerden
+
+明确的(说)外债一概不管
+Claramente (digamos) sin tomar en cuenta de las deudas externas
+
+不但不管啊
+No solamente no tomarlo en cuenta
+
+对碧桂园, 对平安集团, 所有海外的外债一概不用管
+Igualmente con el Country Garden, Ping An Group, ignoran todas las deudas externas en el extranjero
+
+大家看出啊
+Todos pueden notar
+
+共产党内部的所有的政策
+Todas las políticas dentro del Partido Comunista
+
+内部
+La parte interna
+
+要摸底, 问话, 控制
+Hay que averiguar, preguntar y controlar
+
+地方部门分区解决
+Ejercer la resolución de la división del sector local
+
+国际上债务一概不管
+Ignorar las deudas internacionales
+
+大家现在看出来想干啥了吧
+Ya todos se dieron cuenta lo que quiere hacer, cierto
+
+我宁可断我九指, 我伤你一指
+Prefiero cortar mis nueve dedos para lastimar un dedo tuyo
+
+我宁可我杀我一万, 我杀你一千
+Prefiero herir diez mil de mis personas para matar mil de las tuyas
+
+习绝对在这方面有这个狠劲
+Xi definitivamente es cruel en esta parte
+
+他对内. 他对江家不敢对, 对曾不敢
+Él no se atreve con la parte interna, la familia Jiang, Zeng
+
+对王岐山不敢, 对孟不敢
+Wang Qishan y Meng
+
+他对他们(欧美)绝对敢
+Pero si se atreve con EE. UU y Europa
+
+**——————————————————**
+
+**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1445306784030212100?s=24](https://twitter.com/se1y7cblljselva/status/1445306784030212100?s=24)
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
