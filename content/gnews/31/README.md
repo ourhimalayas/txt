@@ -2,23 +2,181 @@
 ---
 
 
-## 秘翻在线：华刚矿业违反与民主刚果签署的60亿美元矿产换基建协议
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1583134/)
+## 2015年郭文贵先生和傅政华通话录音的真相
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1583184/)
 
-#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-17.jpg)https://gtv.org/video/id=61607e1cd2e2b8174872d6dc
+整个这说明了七哥是有核弹的
+Todo esto demuestra que yo tengo la bomba nuclear
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-2-3.jpg)图片来源：彭博社
-据《路透社》10月8日报道，总部设在挪威的石油、天然气和矿产行业的国际监督机构“采掘业透明度倡议”（EITI）的一份草拟报告指出，民主刚果与中共投资人最早于2008年签订的60亿美元基础建设换矿产协议不公正，应重新谈判。
+否则他不会这样来找我
+Sino él no vendría a buscarme
 
-EITI追踪石油业和矿业的营收现金流，成员包括民主刚果等50多国。路透社周五看到的这份尚未公布的报告涉及民主刚果前总统卡比拉（Joseph Kabila）的政府在2008年签署的一项协议。该协议说，中共国有企业中国水利水电建设集团（Sinohydro Corporation）和中国中铁（China Railway Group Ltd），同意将刚果的华刚矿业（Sicomine）钴铜开采合资企业的所有利润，用在当地修建道路和医院等基础设施。正是在此基础上，刚果议会同意免除华刚矿业的所有税收。
+傅三就是傅卫华
+El tercer hermano de Fu es Fu Weihua
 
-然而报告指出，不仅承诺建造的基础设施项目只完成了极少数，而且华刚矿业的资金大量流向了中共国。特别是在2017年对该协议进行秘密修订后，华刚矿业大大减少了用于基建设施的利润额。他们的利润只有65%用于投资，其余35%归股东所有，这一变化可能会进一步减缓基础设施的建设步伐。报告说，这项修正案侵犯了民主刚果的国家安全利益，因此呼吁民主刚果政府取消2017年秘密签署的修正版协议。
+他的三弟跟我联络
+Su tercer hermano menor se comunicó conmigo
 
-报告还指责中共获得了华刚矿业68%的股份，而刚果人只拥有32%的股份，尽管他们贡献了所有的矿物资产和32%的企业启动资金。
+现在党内所有听我爆料的人
+Ahora las personas que están en China y están escuchando mi Movimiento de Denunciantes
 
-这份报告虽然没有法律约束力，但其主要结论将帮助民主刚果在和中共投资人重谈采矿合约时争取到更有利条件。民主刚果总统齐塞克迪（Felix Tshisekedi）的政府先前表示，这份合约并不公平。他们目前正在重新审查2008年的协议，以及中共国洛阳栾川钼业集团(China Molybdenum)的腾克丰古鲁姆（Tenke Fungurume）矿场储量。
+你们记住
+Ustedes recuerden
 
-民主刚果总理卢孔德（Sama Lukonde Kyenge）10月7日在一场矿业记者会上表示：“必须要做些调整。”民主刚果是电池所需金属钴的全球最大产国，也是非洲最大的铜矿开采国。刚果政府这一系列作为，是对掌控大部分刚果矿业的中共投资人的罕见反抗。彭博社上周报道说，民主刚果政府已经成立了一个委员会来审查矿产换基础设施交易，并调查其“主要的法律、技术和财务问题”。
+5年前你听那个录音的时候
+Hace cinco a?os atrás cuando escuchaste esa grabación
 
-新闻来源：[Congo’s $6 bln China mining deal ‘unconscionable’, says draft report](https://www.reuters.com/business/congos-6-bln-china-mining-deal-unconscionable-says-draft-report-2021-10-08/)
+你们得到的答案是什么
+Cuál fue la respuesta que obtuvieron
+
+说这是郭文贵编的虚假录音
+Dijeron que este es una grabación falsa inventada por Guo Wengui
+
+根本不是傅政华的
+No fue de Fu Zhenghua
+
+傅老三也根本不认识郭文贵
+El tercer hermano de Fu no conoce a Guo Wengui
+
+结果傅政华是声泪俱下的给解释
+Resulta, Fu Zhenghua explicaba entre lágrimas
+
+然后又写了东西
+Y escribió algo
+
+中央
+La central
+
+最后专案组认为这是郭文贵自己录的
+Finalmente, el grupo de proyecto pensó que fue grabado por el propio Guo Wengui
+
+假的傅政华的变音录音
+Es la grabación falsa de cambio de voz de Fu Zhenghua
+
+傅老三说没跟郭文贵接触
+El tercer hermano de Fu dijo que no se había puesto en contacto con Guo Wengui
+
+跟郭文贵的员工有接触
+Pero si con el empleado de él
+
+仅此而已, 也没拿过钱
+Solamente así, y que tampoco recibió dinero
+
+最后中央认可, 傅没事了
+Finalmente, la central lo aceptó y por eso Fu no tuvo problema
+
+如果当时傅这个谎言被戳穿
+Si en aquel momento la mentira de Fu fue descubierta
+
+他就到不了今天了
+No sobreviviría hasta hoy
+
+我今天告诉你们
+Hoy les digo
+
+傅政华那个真正的录音的变声的鬼诀
+El verdadero truco fantasma de Fu Zhenghua para cambiar la voz
+
+不在乎他恐惧
+No importa su temor
+
+傅政华的假录音是他的司机
+La falsa grabación de Fu Zhenghua es de su conductor
+
+真正讲话的是他司机
+Quien realmente habló fue su conductor
+
+他的私人司机
+Su conductor personal
+
+他跟他前妻离婚了
+él se divorció con su ex esposa
+
+前妻住在北京国际饭店
+Su ex esposa vive en un hotel internacional de Beijing
+
+跟日本一家公司搞娱乐
+Estableció una empresa japonesa de entretenimiento
+
+就是他派去监督他老婆的
+Fue él quien mandó a vigilar a su esposa
+
+这个司机怎么着你知道吗
+Qué pasó con este conductor, ?lo sabes?
+
+已经死了
+Ya está muerto
+
+傅政华不像你想(的那样)
+Fu Zhenghua no es como tú piensas
+
+他太了解共产党了
+él conoce muy bien al Partido Comunista
+
+他让司机在旁边
+él hizo que el conductor estuviera a su lado
+
+他给司机说
+Le dijo a él
+
+司机按照这个回答
+Que respondiera como él lo diga
+
+你查出这录音也不是我
+Si llegas a descubrir de esta grabación tampoco fui yo
+
+最后报告了他
+Al final le informó
+
+这录音不是傅
+Que esta grabación no es de Fu
+
+你只要但凡有一点常识
+Siempre y tengas un poquito de conocimiento
+
+拿软件一查肯定不是傅
+Investigas a través de una aplicación podrás saber que no es de Fu
+
+他的语音
+Su acento
+
+他是北京发音
+Su acento es de Beijing
+
+口音河北腔和北京腔
+El acento Hebei con el de Beijing
+
+不是他
+No es él
+
+但是他所有的话都是安排好的
+Pero todas sus palabras ya lo había planeado
+
+你看小三(傅卫华)这事儿他不接茬
+Mira al tercero (Fu Weihua) él no se ocupa de este asunto
+
+他怕你泄漏信息
+él teme a que tú revelas la información
+
+傅卫华是他的核心
+Fu Weihua es su núcleo
+
+他的三弟和傅政华的孩子在加拿大藏的钱
+El dinero que escondió en Canadá el tercer hermano y el hijo de Fu Zhenghua
+
+绝对富可敌国
+Es de tanta riqueza que puede ser enemigo de un país
+
+原视频日期：10/06/2021
+原视频网址： https://twitter.com/se1y7cblljselva/status/1445657164916269059?s=24
+视频时间段：0:00-1:54
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

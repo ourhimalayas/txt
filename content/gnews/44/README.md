@@ -2,37 +2,27 @@
 ---
 
 
-## 脸书旗下平台Instagram、WhatsApp、Facebook Messenger一周内第二次宕机
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1582700/)
+## 针下亡魂｜韩国 20 岁女学生接种疫苗12日后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1582698/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/facebook-whatsapp-instagram-major-outage_thumb800.jpg)
-图片来源：techadvisor.com
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 9/10/2021**
 
-整理报道：小红帽
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
 
-社交媒体巨头脸书（Facebook）及其子公司Instagram、Messenger和WhatsApp在不到一周的时间内第二次发生故障，促使竞争对手将其客户从危机中拯救出来。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20-1.jpg)
 
-根据网络侦测服务机构DownDetector的说法，Facebook及其子公司在周五对全球用户来说神秘地崩溃了。这是本周社交媒体巨头的第二次重大故障。
+【韩国】一名 20 岁的女学生 Lee Yu-Bin 在接种莫德纳 COVID-19 疫苗的四日后昏迷，一周后死亡。
 
-这家价值数万亿美元的公司承认中断影响了其各个平台，并使用与周一的故障完全相同语调来“道歉”。故障持续了六个小时。**那些依赖该平台的用户几乎无法工作或交流，只能去探索其他平台，比如Telegram，就在该故障期间获得了数百万用户。**
+Lee Yu-Bin 于 7 月 26 日打了第一针疫苗，四日后，她因脑血栓突然昏厥，被送往医院进行脑部手术，一周后，即接种疫苗后的第 12 日，Lee Yu-Bin 病重离世。
 
-由于公司股价暴跌，周一的故障使创始人马克·扎克伯格(Mark Zuckerberg)损失了超过 60亿美元。**据《每日邮报》报道，这次故障被归咎于一次拙劣的“服务器更新”，是DownDetector记录以来最大的一次。**
+负责 Lee Yu-Bin 的医务人员，怀疑死因是疫苗引起的血栓造成，要求进一步检查，但检疫部门三度拒绝，坚持与疫苗无关。
 
-**Facebook和Instagram的用户开始在推特上思考没有这些平台的未来，在公众眼中，这些平台似乎正在崩溃。**
+根据美国和欧洲联合进行的一项最新研究显示，莫德纳等 mRNA 疫苗均显示出会增高具称为 aPL “特定脂肪抗体”的人形成血栓的风险。 不过，韩国当局则指 Lee Yu-Bin 没有一种叫做 PF4 的特异性抗体，这是疫苗引起血栓形成的诊断标准。
 
-Facebook最近运气不佳，一名该公司的雇员弗朗西丝·豪根（Frances Haugen）向媒体举报，并出现在华盛顿举行的听证会上，坚称该平台的产品“伤害了儿童，引发了分裂、削弱了我们的民主”，并将利润置于道德责任之上。“
+Lee Yu-Bin 的父亲向媒体表示，自己后来才从网络等渠道了解到有关疫苗的风险，可惜，女儿的遗体已经火化，没法再进行尸检， 而随着韩国接种疫苗的人数增加，副作用引起的不幸事件亦随之增加。他难过的说，“我女儿的遗言……她生命中的最后一句话只说了‘爸爸’。”
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+来源｜ [个案020](https://news.sbs.co.kr/news/endPage.do?news_id=N1006491486)
 
-**参考新闻：**[Not again?! Facebook, Instagram, Facebook Messenger, and WhatsApp offline for second time in a week — RT World News](https://www.rt.com/news/537020-facebook-instagram-down-again-fail/)
+* * *
 
-***编辑：小红帽 /翼族
-发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//
