@@ -16,6 +16,8 @@
 ---
 ## 頁面 12/36 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [36](/content/README-36.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年3月21日绝不允许维奸再次绑架新疆同胞](/content/2020/03/20200325-7072048714867304434.md)
+
 [文字版：2020年3月20日文贵呼吁绝对不能把CCP病毒和中国人联系到一起](/content/2020/03/20200323-7421159796736318134.md)
 
 [文字版：2020年3月18日文贵直播呼吁不要被CCP大外宣蒙骗](/content/2020/03/20200321-732520138033685407.md)
@@ -63,8 +65,6 @@
 [文字版：2020年2月12日文贵谈一切都听党的走向火葬场](/content/2020/02/20200214-4470688033484197678.md)
 
 [文字版： 2020年2月10日请战友们保存让你上班的证据，大家行动起来！](/content/2020/02/20200212-3562611532085874008.md)
-
-[文字版： 2020年2月8日文贵第二次直播谈美国专家确定武汉病毒来自中共实验室制造](/content/2020/02/20200210-4272958490110900794.md)
 
 
 ## 頁面 12/36 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [36](/content/README-36.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)

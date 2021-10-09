@@ -16,6 +16,8 @@
 ---
 ## 頁面 3/36 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [36](/content/README-36.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
 
+[全文字版2021年8月21日郭先生第二次G-TV直播](/content/2021/08/20210821-1484599.md)
+
 [全文字版2021年8月20日郭文贵先生G-TV直播](/content/2021/08/20210820-1482693.md)
 
 [2021年8月20日郭文贵先生健腹轮健身盖特全文字版](/content/2021/08/20210820-1567965.md)
@@ -63,8 +65,6 @@
 [全文字版2021年7月24日郭文贵先生G-TV直播](/content/2021/07/20210724-1421496.md)
 
 [全文字版2021年7月23日郭文贵先生G-TV直播](/content/2021/07/20210723-1418274.md)
-
-[全文字版2021年7月22日郭文贵先生G-TV直播](/content/2021/07/20210722-1415989.md)
 
 
 ## 頁面 3/36 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [36](/content/README-36.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
