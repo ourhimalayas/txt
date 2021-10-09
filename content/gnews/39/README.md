@@ -2,23 +2,44 @@
 ---
 
 
-## 美一民调显示约七成家长反对学生强制接种疫苗
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1582302/)
+## 有声| 中国留学生教堂纵火,国人须慎行防排华!
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1582454/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+配音：香草山香港部-文凯琳
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/V-1.jpg)wsj.com
-根据周三（10月6日）公布的昆尼皮亚克大学（Quinnipiac University）民意调查显示， 当被问及K-12中小学生一旦有资格接种中共病毒疫苗，是否应该实施强制接种疫苗政策时，68%有18岁以下孩子的家长受访者表示，他们不同意强制接种疫苗。【1】
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-但家长的意见与总体人群有很大不同。如果学生们符合疫苗接种条件，总体上52%的受访者认为不应该强制接种疫苗，另外44%的受访者认为必须强制接种疫苗。
 
-对于拜登政府处理中共病毒的方针政策，48%的受访者说他们表示赞成，50%的人说表示反对。对于拜登总统执政满意度调查显示，38% 表示满意，53% 表示不满意。昆尼皮亚克大学民调分析师蒂姆·马洛伊(Tim Malloy)在谈到这些数字时说：”在信任方面拜登总统受到打击，在领导力方面受到怀疑，在整体能力方面受到挑战。（民调显示）他的支持率正持续下滑，达到了川普政府受到严厉审查以来（最差）的一个数字。”
 
-随着2022年中期选举的临近， 美国民众对拜登执政能力不满或许会给民主党带来麻烦。此外，最新国会选票普调结果显示，共和党以47比44领先民主党。虽然数字显示共和党并非处于”压倒性”领先优势，但这预示着民主党的潜在危机，多数选民建议不能再让民主党继续控制众议院。
 
-美国参议院候选人JD ·万斯（JD Vance） 谈及此问题时也说到，民主党现在实施的大规模支出法案是 （对糟糕的美国经济） 进行”火上浇油”。这种方法不但无益于解决任何实际问题， 反而使情况愈发恶化。
 
-参考链接：
 
-【1】[Vaccine mandates for students opposed by 7 out of 10 parents, poll finds – Foxnews – 10/08/2021](https://www.foxnews.com/politics/nearly-7-in-10-parents-oppose-vaccine-mandates-for-students-poll-finds)
+
+美国阿拉巴马州当地媒体10月5号报道,  第一浸信会教堂是阿拉巴马州蒙哥马利市地标建筑，该教堂9月29日晚遭人纵火, 内部一些设施遭烧毁。当地执法机关依据教堂内部监视器录像追踪涉案人，将来自中国的留学生严晓琴(音译，Xiaoqin Yan)逮捕，嫌犯目前收押在蒙市拘留所，等候接受调查起诉。
+
+法庭文件显示, 嫌犯严晓琴今年27岁，是一名来自中国的留学生，检察官贝利已将其留学生签证取消，并提高了原定3万美金的保释金，以防止嫌犯弃保潜逃,因为该案在当地引起轩然大破, 民众愤怒不已! 但嫌犯纵火焚烧教堂的动机尚未公布。
+
+
+
+**文字版原文：[中国留学生教堂纵火,国人须慎行防排华!](https://gnews.org/zh-hans/1579948/)**
+
+
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

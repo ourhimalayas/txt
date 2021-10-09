@@ -2,18 +2,20 @@
 ---
 
 
-## 《欢乐满屋》女星明确表态坚决捍卫医疗自由
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1582692/)
+## 136个国家就最低公司税率达成一致 但落地实施难度颇大
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1582764/)
 
-#### 编译：花岗岩
+#### 翻译：坤霆
 校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-25.jpg)图片来源：网络截图
-据 PageSix报道，曾参演过经典美剧《欢乐满屋》（Full House）的女明星坎迪斯·卡梅隆·布雷（Candace Cameron Bure）在她的Instagram账户上明确表态她对中共病毒疫苗的立场 ，”我不反对疫苗，我只是支持医疗自由和免疫系统。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-17.jpg)图片来源：网络截图
+10月8日，据 CNN 报道，全球136个国家已同意一项全球条约，该条约将以最低15%的税率对大型跨国公司征税，并要求公司在其开展业务的国家纳税。签署该国际条约的国家占全球GDP的90%以上。
 
-这位45岁的明星之前在Instagram Story上表示，“我不能再对疫苗强制规定保持沉默了。虽然我不会向你透露我的疫苗接种情况，但我绝对反对任何地方的疫苗强制规定，我们必须大声疾呼。……我们可以有不同的意见，但应仍然尊重和爱对方。”
+爱尔兰于7月拒绝加入最初的协议，该国公司税率为12.5%——这是说服Facebook，Apple和Google等公司将其欧洲总部设在爱尔兰的主要因素。但其在周四也加入了该协议，原因是删除了协议中“税率至少15%”的规定。
 
-布雷的反强制立场至少可以追溯到2015年，当时她在脸书上写道，她尊重她孩子的学校，让他们在疫苗问题上有所选择。
+经合组织预计该协议将于2023年开始执行。但即使爱尔兰和其他之前的抵制者现在加入，该协议仍然要求各国通过国内立法。
 
-其他公开反对中共病毒疫苗的名人包括莱蒂亚.赖特（Letitia Wright）、薇琪.冈沃森（Vicki Gunvalson）、杜岑.克罗斯（Doutzen Kroes）和埃里克.克莱普顿（Eric Clapton）。
+政治风险咨询公司欧亚集团的分析师在本周的一份说明中写道，与《巴黎气候协议》一样，在坚定的政治支持后结束技术会谈很容易，执行该协议将证明更具挑战性。该条约需要以美国参议院三分之二多数的票批准，鉴于它允许外国对美国公司征税，这不太可能批准。
 
-新闻来源：[Candace Cameron Bure: I’m not anti-vax, I’m just pro-medical freedom](https://pagesix.com/2021/10/08/candace-cameron-bure-im-not-anti-vax-im-pro-medical-freedom/?utm_campaign=iphone_p6&amp;utm_source=pasteboard_app)
+华盛顿推迟实施反过来可能会促使法国等欧洲国家对美国科技公司征收数字税，引发美国和欧洲之间的贸易争端。
+
+原文链接：[136 countries agree to minimum corporate tax rate after Ireland drops its opposition](https://edition.cnn.com/2021/10/08/business/ireland-global-tax-deal-oecd/index.html)

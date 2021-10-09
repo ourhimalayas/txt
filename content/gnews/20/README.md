@@ -2,23 +2,25 @@
 ---
 
 
-## 伊斯兰国组织因塔利班勾结中共发动自杀式恐怖袭击
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1582788/)
+## 默克的新冠（口服）药片对中度感染者起效甚微？据印度监管当局消息
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1582858/)
 
-#### 翻译：坤霆
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-23-scaled.jpg)图片来源：网络截图
-10月8日美联社报道，周五，在塔利班从叛乱过渡到治理的最新安全挑战时，一名伊斯兰国自杀炸弹手袭击了阿富汗北部一座满是什叶派穆斯林礼拜者的清真寺，造成至少46人死亡，数十人受伤。
+**翻译：雨季仰光**
 
-该地区的IS附属机构声称对此负责，将袭击者确定为一位维吾尔穆斯林，并表示这次袭击针对什叶派和塔利班，因为他们声称愿意驱逐维吾尔人以满足中共国的要求。
+**校对：卡拉马佐夫姐姐**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211009-默克的新冠（口服）药片对中度感染者起效甚微？据印度监管当局消息.png)
+**图片来源：****https://news.yahoo.com/covid-merck-to-supply-spore-with-antiviral-drug-molnupiravir-044025404.html**
 
-周五的目标崇拜者是哈扎拉人，哈扎拉人长期以来一直作为少数民族和什叶派伊斯兰教徒而遭到逊尼派占多数的国家的人民的歧视。
-随着外国军队的撤离，伊斯兰国组织和塔利班控制了该国，他们是战略对手。IS武装分子以塔利班阵地为目标，并试图从他们的队伍中招募成员。
+据路透社新德里10月8日报道，一个来自印度药物控制中心的消息透露，默克制药（Merck & Co’s）的实验性抗病毒药物莫纳皮拉维（Monupiravir）对于中度的新冠患者并未显示出“显著疗效”。
 
-过去，塔利班在美国和阿富汗的空袭的同时，设法遏制了IS的威胁。没有这些，塔利班能否压制IS还不清楚。武装分子曾经被限制在东部，他们以新的袭击渗透到喀布尔首都和其他省份。
+周五，监管机构的专家委员会表示，（印度）阿拉宾度制药公司（Aurobindo Pharma Ltd）希望中止对于新冠中度患者的后期实验。
 
-塔利班打击的新基调，至少在昆都士，与塔利班武装对包括哈扎拉人在内的少数民族犯下一系列暴行的有据可查的历史形成了鲜明对比。塔利班现在感受到了执政的分量，在20年的叛乱期间使用了与IS类似的策略，包括自杀式爆炸和枪击伏击。
+“此药对于新冠中度患者并无明显疗效，而只是对于轻症病例有效，”鉴于讨论的敏感性，消息人士在匿名情况下这样评述。
 
-阿富汗的中亚北部邻国和俄罗斯也对这起事件非常担忧，多年来，俄罗斯一直将塔利班作为反对该地区蔓延的IS的盟友。
+监管部门和卫生部对于请求置评的要求未及时做出回应。
 
-原文链接：[IS bomber kills 46 inside Afghan mosque, challenges Taliban](https://apnews.com/article/afghanistan-prayer-religion-2b9d9863da38661ba6fa186a72ac5352)
+评：
+
+这一不愿具名的内部知情人士或许是在实际临床实验数据支持下才出于良知才向媒体透露这一消息，但是迫于压力和某种担忧才匿名爆料，这仅仅是笔者的猜测。默克作为生产对中共病毒感染有效的伊维菌素的厂家，具体该新药有哪些成分，相信很快会得到其他来源的更多反馈，我们拭目以待！
+
+#### 新闻来源：[Merck drug less effective against moderate COVID -India regulatory source](https://www.reuters.com/business/healthcare-pharmaceuticals/merck-drug-less-effective-against-moderate-covid-india-regulatory-source-2021-10-08/)

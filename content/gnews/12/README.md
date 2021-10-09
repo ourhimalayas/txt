@@ -2,25 +2,17 @@
 ---
 
 
-## 默克的新冠（口服）药片对中度感染者起效甚微？据印度监管当局消息
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1582858/)
+## 巴西总统反对 20 岁以下的疫苗
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1582901/)
 
-**翻译：雨季仰光**
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10093.jpg)
+巴西总统雅伊尔·博尔索纳罗（Jair Bolsonaro）表示，他反对为 20 岁以下的年轻人接种冠状(中共)病毒疫苗。
 
-**校对：卡拉马佐夫姐姐**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20211009-默克的新冠（口服）药片对中度感染者起效甚微？据印度监管当局消息.png)
-**图片来源：****https://news.yahoo.com/covid-merck-to-supply-spore-with-antiviral-drug-molnupiravir-044025404.html**
+这位国家元首昨天在巴西总统府举行的一次活动中说到：“20 岁以下死于冠状(中共)病毒的人数可以忽略不计。这是没有人有勇气谈论这件事情，所有人都认为在政治上谈论它是不好的，因为你失去选票，失去同情，他们会称你为否认者。我们生活在虚伪中，几乎整个世界都生活在虚伪中”。
 
-据路透社新德里10月8日报道，一个来自印度药物控制中心的消息透露，默克制药（Merck & Co’s）的实验性抗病毒药物莫纳皮拉维（Monupiravir）对于中度的新冠患者并未显示出“显著疗效”。
+免责申明：本文只代表译者观点，与Gnews无关
 
-周五，监管机构的专家委员会表示，（印度）阿拉宾度制药公司（Aurobindo Pharma Ltd）希望中止对于新冠中度患者的后期实验。
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/10/08/covid-bolsonaro-contrario-ai-vaccini-per-gli-under-20\_e9c23e51-9218-4275-870e-92b6e5612c11.html](https://www.ansa.it/sito/notizie/topnews/2021/10/08/covid-bolsonaro-contrario-ai-vaccini-per-gli-under-20_e9c23e51-9218-4275-870e-92b6e5612c11.html)
 
-“此药对于新冠中度患者并无明显疗效，而只是对于轻症病例有效，”鉴于讨论的敏感性，消息人士在匿名情况下这样评述。
-
-监管部门和卫生部对于请求置评的要求未及时做出回应。
-
-评：
-
-这一不愿具名的内部知情人士或许是在实际临床实验数据支持下才出于良知才向媒体透露这一消息，但是迫于压力和某种担忧才匿名爆料，这仅仅是笔者的猜测。默克作为生产对中共病毒感染有效的伊维菌素的厂家，具体该新药有哪些成分，相信很快会得到其他来源的更多反馈，我们拭目以待！
-
-#### 新闻来源：[Merck drug less effective against moderate COVID -India regulatory source](https://www.reuters.com/business/healthcare-pharmaceuticals/merck-drug-less-effective-against-moderate-covid-india-regulatory-source-2021-10-08/)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦
