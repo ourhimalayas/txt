@@ -2,30 +2,42 @@
 ---
 
 
-## 世卫组织数据库报告了2021年超过200万例潜在的疫苗刺伤，其中绝大多数是女性
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1583101/)
+## 中共服软，开始进口澳洲煤矿
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1583111/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GettyImages-1343647441-640x426-5.jpg)世界卫生组织总部的世界卫生组织标志-网络图片
+撰稿：金生水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/903-2.png)图片来自网络
+据澳媒《ABC News》近日报道，在近一年的非正式的煤矿进口禁令推行以后，为了缓解眼下的能源危机，中国开始放出保税区的澳洲煤矿。
 
-（生活新闻）— 世界卫生组织公开访问的数据库记录被报告的医药产品的潜在副作用，仅在2021年就有超过200万例新冠疫苗导致的事故，其中69%的病例发生在女性患者中。
+世界最大煤炭消费国中国的能源危机来自于工厂、工业以及家庭的强劲需求，这些因素共同推高了电价并引发了大范围的拉闸限电。澳洲一名贸易主管表示北京政府自从去年10月非正式的禁止进口煤矿以来，至今仍有约100万吨澳洲煤在中国海关的保税区尚未清关。
 
-VigiAccess由世界卫生组织(WHO)于2015年创立，该数据库允许公众访问WHO的数据。
+他还表示“一些仍未开始清关的澳洲煤矿从上个月末开始陆续清关，但还是有一部分煤转运去到了印度市场”。另一名贸易主管表示存储在保税区中的澳洲煤将在本周陆续开始清关。
 
-根据VigiAccess的数据，截至今天，2021年已报告了2,199,476例新冠疫苗接种后的不良反应，其中866,558例（39%）发生在18-44岁的人群中，1,517,989例（69%）发生在女性人群中。
+中共国国家发改委对此事不予置评。
 
-该数据库的药物不良反应 (ADRS) 选项卡允许公众查看已报告伤害的性质，包括血液和淋巴系统疾病、心脏疾病、肌肉骨骼和结缔组织疾病、生殖系统和乳房疾病、呼吸、胸和 纵隔疾病，以及许多其他疾病。
+尽管中国要求主要煤矿增加产出，告诉电力公司以“有序的方式”增加煤炭进口缓解供应短缺，但是他们没有直接恢复从澳洲进口煤炭。在禁令前澳大利亚是仅次于印度尼西亚的中国第二大煤炭供应国。然而100万吨仅是中国一天的煤炭进口量，这对于缓解市场对煤矿的饥渴无疑是杯水车薪。
 
-具体来看一些疾病和疾病，令人震惊的副作用数量包括阴道出血、心肌炎、脑肿瘤（肿瘤）、自然流产、胎儿死亡、死胎、肺栓塞、肾功能衰竭、胎儿生长受限、深静脉血栓形成以及新冠病毒、流感、肺炎和100多种其他疾病的发作。
+一名位于北京的供应商表示：“失去从澳洲进口煤后，供应短缺会持续一段时间，想要依靠国内的煤矿生产力来填补这个空缺需要一些时间，因为节能减排的原因，国内已经遏制煤矿生产已经持续了五年”。他还表示：“我并不乐观，这种短缺的情况至少会持续到今年的第四季度，甚至要到明年的二三月份，那个时候国内的供暖期已经结束了。”
 
-新闻链接：[WHO database reports over 2 million potential COVID jab injuries in 2021, vast majority in women](https://www.lifesitenews.com/news/who-database-reports-over-2-million-potential-covid-jab-injuries-in-2021-vast-majority-in-women/?utm_source=featured&amp;utm_campaign=usa)
+从其他关键进口商例如俄罗斯和蒙古的进口行为收到铁路运输能力不足的限制，而从印度尼西亚的进口又受到暴雨天气的影响。这让诸如浙江能源等电力公司周一首次从哈萨克斯坦进口动力煤，而6月和7月他们首次从美国进口动力煤。
 
-* * *
+中国在2021年的头8个月进口了1亿9769万吨煤炭，同比减少了10%。但是8月份的进口因为国内供应紧张而增加了三分之一。为了缓解供应紧张，中国铁路集团周二表示要分配更多运货确保煤炭存货足够363个通铁路的电力厂的共计14.4天的用量所需。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+位于西澳大利亚州珀斯的Braemar ACM船舶经济公司的干散货货运分析师阿比纳夫·古普塔说他的公司可以确认中国已经开始对澳洲煤放行。“根据我们的货运跟踪系统，我们可以看见2021年7月和8月中国释放了2020年运货的42万吨澳洲煤炭。此外7月份释放了55000吨煤炭是2021年5月装运的。”
 
+但是他说尚不清楚中国是如何使用澳洲煤的，并说中国还在海外寻求多种来源。“不清楚这些煤是送往仓库囤积，还是给了电力厂等最终用户。”“中国在要求其他供应商满足他们的需求。但是有困难，比如印尼的暴雨天气，俄国的煤则更多需要应付欧洲的需求。”
 
-编辑：【英国伦敦喜庄园编辑部】
+《卫报》最近也有报道澳洲不顾环保压力，在短短的一个月内批准了三个煤矿项目，看来是已经准备好大赚特赚中共国一笔。中澳的贸易战也持续一年左右的时间了，到底是谁搬起石头砸自己的脚？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+（文章内容仅代表个人观点）
+
+参考链接：
+
+[https://www.abc.net.au/news/2021-10-06/china-turns-to-stranded-australian-coal-to-combat-power-crun/100518440](https://www.abc.net.au/news/2021-10-06/china-turns-to-stranded-australian-coal-to-combat-power-crun/100518440)
+
+[https://www.theguardian.com/australia-news/2021/oct/05/new-coalmine-mangoola-nsw-muswellbrook-approved-australia-environment-minister-sussan-ley](https://www.theguardian.com/australia-news/2021/oct/05/new-coalmine-mangoola-nsw-muswellbrook-approved-australia-environment-minister-sussan-ley)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

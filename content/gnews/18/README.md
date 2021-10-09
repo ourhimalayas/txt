@@ -2,181 +2,48 @@
 ---
 
 
-## 2015年郭文贵先生和傅政华通话录音的真相
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1583184/)
+## 全世界都在等着习近平的身体撑不下去
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1583191/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-17.jpg)https://gtv.org/video/id=61607e1cd2e2b8174872d6dc
-整个这说明了七哥是有核弹的
-Todo esto demuestra que yo tengo la bomba nuclear
+![](https://assets.gnews.org/wp-content/uploads/2021/10/np_file_109430.jpeg)图片来源：The Japan Times
+**作者：**顺其自然
+**编辑：**翼族
 
-否则他不会这样来找我
-Sino él no vendría a buscarme
+美国时间10月8日，郭文贵先生发了一个盖特小视频，在视频中郭先生主要讲了以下内容：
 
-傅三就是傅卫华
-El tercer hermano de Fu es Fu Weihua
+1) 世界变换太快，现在facebook, instagram, whatsapp灾难重重，内部的律师、管理团队大崩溃，接下来的技术灾难和全球的讨伐，包括在冠状病毒、疫苗及其背后非法的操作，用所谓的媒体正义、媒体法院、媒体引导，用技术引导未成年的孩子沉溺于互联网的危险犯罪和不健康的心理的社交媒体灾难之中，现在全世界都在行动，小扎（扎克伯格）可不是一般的坏。
 
-他的三弟跟我联络
-Su tercer hermano menor se comunicó conmigo
+2）（中美）瑞士会谈，就是美方很清楚地糊弄习大神不去打台湾，因为美方和西方都判定习近平身体上撑不过一年，最多撑不过两年，最好中共内部的政治斗争把习消耗掉。前两天美国John Thornton（约翰·桑顿，美国知名企业家）最关键的时候去了北京，这个人是贾庆林、王岐山的铁哥们。他说现在北京的政治形势很紧张，这次王岐山没出面，他跟江志成、马云见了面，所有的人都在等着习大神出事。马云现在能活动了，又出来折腾了，答应中共往回弄资产，实际上干着自己的事。马云和李嘉诚都是一伙的，都是江家的兵。美方这种操作对台湾来说更坏，这是江家、曾家、王岐山、孟建柱给了美方这种消息，而美方在玩这种消息的时候是让江家势力苟延残喘，在一定的时候中共会果断对台湾出手，台湾凶也！第二点，糊弄中共买美国国债。中共一买美国国债，美国股市就托上去了，这种局面能一直持续下去吗？最终经济一定会出问题的。这种买国债只能骗一时。说白了就是两边的政治形势都不看好，互相玩，玩假的经济，玩假的政治环境，骗老百姓一切利好，牺牲的就是台湾和老百姓。
 
-现在党内所有听我爆料的人
-Ahora las personas que están en China y están escuchando mi Movimiento de Denunciantes
+3）社交媒体在病毒和疫苗上每时每刻都在改变世界。昨天郭先生与某些人开会，现在他们在讨论的计划六个月后都不会发生，因为疫苗灾难改变了人类的生活方式。新的技术、新的生命科技，改变疫苗和病毒对人类的危害，那才叫高科技。所有强制打疫苗的都将受到审判。所有参与的政客都将受到审判。疫苗灾难在改变着人类的一切。最终对于病毒，共产党一定会给个交代，然后疫苗背后到底是谁行贿，谁害人，谁贪财害命，会水落石出！
 
-你们记住
-Ustedes recuerden
+4）新的政治势力、经济势力、媒体势力都会诞生。
 
-5年前你听那个录音的时候
-Hace cinco a?os atrás cuando escuchaste esa grabación
+听完郭先生以上的盖特小视频，我补充一下相关的资料：
 
-你们得到的答案是什么
-Cuál fue la respuesta que obtuvieron
+关于facebook，在10月5日facebook举报人的听证会上，马萨诸塞州民主党参议员埃德·马基（Ed Markey）对扎克伯格说，你侵犯隐私、推广有毒不良信息、掠夺儿童和青少年的时代已经结束，国会将采取行动，你可以与我们合作，也可以不与我们合作，但我们不会再允许你们的公司伤害我们的孩子我们的家庭、我们的民主。最新一期《时代》杂志的封面就是扎克伯格的头像，上面写“删除脸书”（delete facebook？）并给了两个选择，一个是删除（delete），一个是取消（cancel）。看来小扎同志这么多年终于要“作”到头了，中文真是博大精深，把facebook翻译成“非死不可”，早早就预知了小扎将来的结局。
 
-说这是郭文贵编的虚假录音
-Dijeron que este es una grabación falsa inventada por Guo Wengui
+昨天郭先生还提到某些人对澳洲政府进行游说，让政府强制民众打疫苗，今天说这些政客最终都将受到审判。最近《国家脉动》（national pulse）收集了一份仅由辉瑞和莫德纳申报的游说政客名单，该名单包括他们以前的工作或隶属关系。列出的83人中，许多人都有高级别的背景，如白宫、总统候选人、众议院议长办公室和一些国会办公室。
 
-根本不是傅政华的
-No fue de Fu Zhenghua
+我列出其中的以下几个：1）贾斯汀·麦卡锡，2）小布什总统时期负责立法事务的总统特别助理布赖恩·阿瑟·庞珀，3）参议院财政委员会主席马克斯·鲍卡斯的首席国际贸易顾问比尔·莫利，4）参议员阿伦·斯佩克特的总顾问雷米·布里姆，5）参议员伊丽莎白·沃伦的高级卫生政策顾问马克·米奥杜斯基，6）美国众议院拨款委员会的民主党秘书布莱恩·格里芬，7）民主党政策委员会主席拜伦·多根参议员的高级领导顾问和会议政策主任。
 
-傅老三也根本不认识郭文贵
-El tercer hermano de Fu no conoce a Guo Wengui
+为大药厂游说的政客数量之多，令人不禁惊叹钱的魅力。2019年，莫德纳在游说方面花费了4万美元，2020年花费了28万美元，而2021年刚刚过半该公司就已经花费了29万美元。辉瑞公司最近获得了冠状病毒COVID·19疫苗的第三剂加强针的批准，其游说预算大幅增加。2019年，该公司在游说工作上花费了1100万美元，然后又将总额增加到1315万美元——这是2010年以来的最高金额。
 
-结果傅政华是声泪俱下的给解释
-Resulta, Fu Zhenghua explicaba entre lágrimas
+另外，关于台湾的凶险问题，路透社10月6日报道，在台北与北京紧张局势加剧的情况下，拜登政府称双方愿意遵守一个中国原则，这是美方为了应对2022年的中期选举和不断飙升的通胀危险以及严峻的经济形势，而不得不向中共求援，那交换的条件一定是台湾，就像当年德国的希特勒入侵捷克斯洛伐克的苏台德地区，英法绥靖，向捷克施压，把苏台德地区让给德国，以求德国不进攻欧洲的其它地区。当时英国首相张伯伦还拿到了希特勒写的一份保证书，说苏台德地区是德国在欧洲抢夺的最后一块地区，德国绝不再侵略其它地区。张伯伦拿到这张纸之后下了飞机，受到英国民众的热烈欢迎，以为出卖了捷克斯洛伐克，就可以换得英法的和平，谁知这张纸的墨迹未干，德国就紧接着入侵了其它地区，包括后来的法国，以及轰炸伦敦。希特勒的保证有用吗？现在西方政客和当年如出一辙，一味的绥靖，一味的妥协，以为能换来共产党不侵犯美国。当年中国加入世贸时的承诺兑现了多少，每次的中美贸易谈判，中共又实施了多少，西方的政客为了他们自己的利益，以及中共给他们的金钱和美女，假装看不见中共的不讲诚信、不守信诺，自欺欺人。因为他们认为即使美国垮了，他们也照样可以吃香的喝辣的。
 
-然后又写了东西
-Y escribió algo
+整个世界，尤其台湾人以为中共威胁了72年没动手，所以仅仅是狼来了。美印太司令则认为中国2027年才有能力进攻台湾。那我问几个问题：1）美国作为中共国最大逆差国，应轻松打赢贸易战吧？结果现在跪求再挂钩。2）全世界都知道武汉病毒所制毒放毒，结果美国连调查都不了了之。3）香港事件美国叫的比狗都欢，结果如何呢？4）华尔街资本深刻介入中国投资，美国股、债、房的世纪大泡沫时刻受到中共的威胁，而恒大事件发生后布林肯不得不跪求习近平救市。5）蛮狠愣的习大神被一连串民主国家的愚蠢溃败鼓舞，他会等到世界准备好再武统吗？
 
-中央
-La central
+习现在所做的一切都是要砸烂旧世界，建立人类灾难共同体。他认为中国人上世纪五六十年代饿死那么多，中国老百姓不也没反抗吗？现在再吃个几年草也没问题，只要把美国打趴下，他做世界老大就行了，而拿下台湾是他能在中共国做老大连任的必备条件，所以他必打台湾。华尔街及政客为钱丧尽良知，现在还在让各基金往中共国投资，贝莱德（BlackRock）建议投资者将他们的对华投资增加三倍，摩根大通认为可以投资中共国，高盛也说yes，桥水基金达利奥还在歌颂中共，美国共同基金较去年同期投资中共国增长43%，计130亿美元。由此可见，美国华尔街不把全世界拖入灾难决不罢休。
 
-最后专案组认为这是郭文贵自己录的
-Finalmente, el grupo de proyecto pensó que fue grabado por el propio Guo Wengui
+关于习近平的身体，虽然他有全中国甚至是全世界最好的医疗条件和医护，但是由于年轻时受了不少的折磨和伤害，吃了不少苦，身体的底子本身就不太好，从政之后，尤其是进入中南海以后，面对时时刻刻存在的各种明争暗斗，甚至暗杀，连睡觉都要一晚上换好几个地方，你说这身体能好吗？人最怕的就是精神紧张焦虑，睡不好，每天殚精竭虑的对付政敌，还要经常双修，搁谁的身体能受得了啊？！所以他的身体每况愈下也很正常，你看习大神出来的画面，如果不是替身，基本都不太好，所以中美两国的最高领导人在身体上是有的一比了！习近平的身体到底还能撑多久，让我们拭目以待吧！
 
-假的傅政华的变音录音
-Es la grabación falsa de cambio de voz de Fu Zhenghua
+**YouTube链接**：[闲聊澳洲](https://www.youtube.com/channel/UCPxB0vpNpmHN0hORXK4gj2A)
+**GTV频道：**[墨尔本雅典娜农场AthenaFarm](https://gtv.org/video/id=6153fecc42a8af3151a72e5b)
 
-傅老三说没跟郭文贵接触
-El tercer hermano de Fu dijo que no se había puesto en contacto con Guo Wengui
+*发布：翼族*
 
-跟郭文贵的员工有接触
-Pero si con el empleado de él
-
-仅此而已, 也没拿过钱
-Solamente así, y que tampoco recibió dinero
-
-最后中央认可, 傅没事了
-Finalmente, la central lo aceptó y por eso Fu no tuvo problema
-
-如果当时傅这个谎言被戳穿
-Si en aquel momento la mentira de Fu fue descubierta
-
-他就到不了今天了
-No sobreviviría hasta hoy
-
-我今天告诉你们
-Hoy les digo
-
-傅政华那个真正的录音的变声的鬼诀
-El verdadero truco fantasma de Fu Zhenghua para cambiar la voz
-
-不在乎他恐惧
-No importa su temor
-
-傅政华的假录音是他的司机
-La falsa grabación de Fu Zhenghua es de su conductor
-
-真正讲话的是他司机
-Quien realmente habló fue su conductor
-
-他的私人司机
-Su conductor personal
-
-他跟他前妻离婚了
-él se divorció con su ex esposa
-
-前妻住在北京国际饭店
-Su ex esposa vive en un hotel internacional de Beijing
-
-跟日本一家公司搞娱乐
-Estableció una empresa japonesa de entretenimiento
-
-就是他派去监督他老婆的
-Fue él quien mandó a vigilar a su esposa
-
-这个司机怎么着你知道吗
-Qué pasó con este conductor, ?lo sabes?
-
-已经死了
-Ya está muerto
-
-傅政华不像你想(的那样)
-Fu Zhenghua no es como tú piensas
-
-他太了解共产党了
-él conoce muy bien al Partido Comunista
-
-他让司机在旁边
-él hizo que el conductor estuviera a su lado
-
-他给司机说
-Le dijo a él
-
-司机按照这个回答
-Que respondiera como él lo diga
-
-你查出这录音也不是我
-Si llegas a descubrir de esta grabación tampoco fui yo
-
-最后报告了他
-Al final le informó
-
-这录音不是傅
-Que esta grabación no es de Fu
-
-你只要但凡有一点常识
-Siempre y tengas un poquito de conocimiento
-
-拿软件一查肯定不是傅
-Investigas a través de una aplicación podrás saber que no es de Fu
-
-他的语音
-Su acento
-
-他是北京发音
-Su acento es de Beijing
-
-口音河北腔和北京腔
-El acento Hebei con el de Beijing
-
-不是他
-No es él
-
-但是他所有的话都是安排好的
-Pero todas sus palabras ya lo había planeado
-
-你看小三(傅卫华)这事儿他不接茬
-Mira al tercero (Fu Weihua) él no se ocupa de este asunto
-
-他怕你泄漏信息
-él teme a que tú revelas la información
-
-傅卫华是他的核心
-Fu Weihua es su núcleo
-
-他的三弟和傅政华的孩子在加拿大藏的钱
-El dinero que escondió en Canadá el tercer hermano y el hijo de Fu Zhenghua
-
-绝对富可敌国
-Es de tanta riqueza que puede ser enemigo de un país
-
-原视频日期：10/06/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1445657164916269059?s=24
-视频时间段：0:00-1:54
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
