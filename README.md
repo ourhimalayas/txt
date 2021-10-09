@@ -15,140 +15,140 @@
 
 ---
 
-### [英国800万人无法购买必需品](/content/gnews/1/README.md)
+### [有声|中情局成立全新部门，应对中共扩张带来的威胁](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [有声|喜迎喜币上市有感](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [罗马反绿色护照游行发生严重骚乱](/content/gnews/3/README.md)
+ ` Shuizhuyu`
+
+### [有声|AMD芯片公司“格芯”将在纳斯达克上市](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [一位草根战友的心声](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [习近平呼吁统一，台北迅速回应](/content/gnews/6/README.md)
+ ` Shuizhuyu`
+
+### [英国800万人无法购买必需品](/content/gnews/7/README.md)
  ` 神奇四侠`
 
-### [12/24/2019 路大脑骗鼓动战友买黄金，竟称2020年11月份黄金会突破4000美元每盎司；事实严重打脸](/content/gnews/2/README.md)
+### [12/24/2019 路大脑骗鼓动战友买黄金，竟称2020年11月份黄金会突破4000美元每盎司；事实严重打脸](/content/gnews/8/README.md)
  ` 秘密翻译组-北美组`
 
-### [一个普通美国人的疫苗抗争之路](/content/gnews/3/README.md)
+### [一个普通美国人的疫苗抗争之路](/content/gnews/9/README.md)
  ` 纽约香草山MOS03`
 
-### [辉瑞正式向FDA提出让5到11岁的儿童接种COVID-19疫苗](/content/gnews/4/README.md)
+### [辉瑞正式向FDA提出让5到11岁的儿童接种COVID-19疫苗](/content/gnews/10/README.md)
  ` 纽约香草山MOS03`
 
-### [病毒S蛋白对男性及女性生殖系统的伤害 (2021-10-3的直播节目记录总结)](/content/gnews/5/README.md)
+### [病毒S蛋白对男性及女性生殖系统的伤害 (2021-10-3的直播节目记录总结)](/content/gnews/11/README.md)
  ` 纽约香草山MOS03`
 
-### [拒止大陆恫吓 台湾发声](/content/gnews/6/README.md)
+### [拒止大陆恫吓 台湾发声](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
 
-### [【小雨专栏】在路上（034）——小鱼篇](/content/gnews/7/README.md)
+### [【小雨专栏】在路上（034）——小鱼篇](/content/gnews/13/README.md)
  ` 温哥华扬帆农场`
 
-### [川普总统再次起诉Facebook，要求恢复其账户](/content/gnews/8/README.md)
+### [川普总统再次起诉Facebook，要求恢复其账户](/content/gnews/14/README.md)
  ` 日本东京方舟农场`
 
-### [两名挑战权力的记者获诺贝尔和平奖 中俄反应天差地别](/content/gnews/9/README.md)
+### [两名挑战权力的记者获诺贝尔和平奖 中俄反应天差地别](/content/gnews/15/README.md)
  ` 日本东京方舟农场`
 
-### [美国债务上限的困局未能彻底解决](/content/gnews/10/README.md)
+### [美国债务上限的困局未能彻底解决](/content/gnews/16/README.md)
  ` 日本东京方舟农场`
 
-### [拜登的疫苗授权根本不存在，它只是一个新闻发布稿 （2/2）](/content/gnews/11/README.md)
+### [拜登的疫苗授权根本不存在，它只是一个新闻发布稿 （2/2）](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【墙闻观察】共惨党，你为什么这么害怕？](/content/gnews/12/README.md)
+### [【墙闻观察】共惨党，你为什么这么害怕？](/content/gnews/18/README.md)
  ` 温哥华扬帆农场`
 
-### [白宫：某些拥有疫苗豁免的联邦雇员仍可能被解雇](/content/gnews/13/README.md)
+### [白宫：某些拥有疫苗豁免的联邦雇员仍可能被解雇](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年5月2日喜马拉雅农场联盟工作汇报摘要](/content/gnews/14/README.md)
+### [2021年5月2日喜马拉雅农场联盟工作汇报摘要](/content/gnews/20/README.md)
  ` 纽约香草山MOS02`
 
-### [新数据显示，560万名接种了COVID-19疫苗的人的免疫力正在下降](/content/gnews/15/README.md)
+### [新数据显示，560万名接种了COVID-19疫苗的人的免疫力正在下降](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021/10/07 文贵先生直播精要](/content/gnews/16/README.md)
+### [2021/10/07 文贵先生直播精要](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [法国参议院访台代表团不顾北京愤怒 重申台湾是国家](/content/gnews/17/README.md)
+### [法国参议院访台代表团不顾北京愤怒 重申台湾是国家](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拜登的疫苗授权根本不存在，它只是一个新闻稿 （1/2）](/content/gnews/18/README.md)
+### [拜登的疫苗授权根本不存在，它只是一个新闻稿 （1/2）](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [郭文贵直播摘要和音频 2021.10.7](/content/gnews/19/README.md)
+### [郭文贵直播摘要和音频 2021.10.7](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [新加坡的COVID-19感染率飙升](/content/gnews/20/README.md)
+### [新加坡的COVID-19感染率飙升](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2020年12月7日喜马拉雅农场联盟工作汇报摘要](/content/gnews/21/README.md)
+### [2020年12月7日喜马拉雅农场联盟工作汇报摘要](/content/gnews/27/README.md)
  ` 纽约香草山MOS02`
 
-### [阿富汗清真寺爆炸数十人死亡](/content/gnews/22/README.md)
+### [阿富汗清真寺爆炸数十人死亡](/content/gnews/28/README.md)
  ` HimalayaRussia`
 
-### [文贵先生10月3日G-TV大直播摘要](/content/gnews/23/README.md)
+### [文贵先生10月3日G-TV大直播摘要](/content/gnews/29/README.md)
  ` 纽约香草山MOS02`
 
-### [俄海军称目前有百艘舰船在海上执行任务](/content/gnews/24/README.md)
+### [俄海军称目前有百艘舰船在海上执行任务](/content/gnews/30/README.md)
  ` HimalayaRussia`
 
-### [盖特CEO：“非死不可”正面临“末日的开始”](/content/gnews/25/README.md)
+### [盖特CEO：“非死不可”正面临“末日的开始”](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共超限战灭港行动（77）七二一·恐袭事件之暴力清场](/content/gnews/26/README.md)
+### [中共超限战灭港行动（77）七二一·恐袭事件之暴力清场](/content/gnews/32/README.md)
  ` 英喜-粵語組`
 
-### [英国主媒为毒针冬季死亡潮铺设诱因](/content/gnews/27/README.md)
+### [英国主媒为毒针冬季死亡潮铺设诱因](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [加州15岁少年接种辉瑞疫苗第二针2天后死亡](/content/gnews/28/README.md)
+### [加州15岁少年接种辉瑞疫苗第二针2天后死亡](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [辛亥革命110周年 中共以孙中山灭台](/content/gnews/29/README.md)
+### [辛亥革命110周年 中共以孙中山灭台](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
 
-### [北约秘书长表示, 欧洲要联合美国应对中共挑战!](/content/gnews/30/README.md)
+### [北约秘书长表示, 欧洲要联合美国应对中共挑战!](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [七哥说— 第19期](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [法国参议员访台期间，公开称台湾为“国家”](/content/gnews/32/README.md)
+### [法国参议员访台期间，公开称台湾为“国家”](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [中共国把疫情当成了一门“生意”](/content/gnews/33/README.md)
- ` 银河勇气之星`
-
-### [秘翻在线：十一节后中共政法高层点名孙力军傅政华，政治余震持续](/content/gnews/34/README.md)
+### [秘翻在线：十一节后中共政法高层点名孙力军傅政华，政治余震持续](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|美快速攻击潜舰印太海域 撞击不明物体](/content/gnews/35/README.md)
+### [有声|美快速攻击潜舰印太海域 撞击不明物体](/content/gnews/39/README.md)
  ` MOSREC`
 
-### [秘翻在线：中共出方针禁止民间企业参与新闻报道](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共无耻纪念辛亥革命，&#8221;武统&#8221;威胁台湾](/content/gnews/37/README.md)
+### [中共无耻纪念辛亥革命，&#8221;武统&#8221;威胁台湾](/content/gnews/40/README.md)
  ` GTV新闻访谈`
 
-### [有声|美参院再提国债上限， 难逃金融危机寒冬](/content/gnews/38/README.md)
+### [有声|美参院再提国债上限， 难逃金融危机寒冬](/content/gnews/41/README.md)
  ` MOSREC`
 
-### [有声| 欧洲议会决议: 与美国合作降低台海紧张局势](/content/gnews/39/README.md)
- ` MOSREC`
-
-### [有声| 肾衰竭晚期患者因未接种毒针疫苗被拒绝移植手术](/content/gnews/40/README.md)
- ` MOSREC`
-
-### [不要忘却这些孩子](/content/gnews/41/README.md)
+### [不要忘却这些孩子](/content/gnews/42/README.md)
  ` 银河勇气之星`
 
-### [10/9/2021国际财经快讯：美中会谈评估贸易协议执行情况；台积电和索尼考虑联合建立芯片工厂](/content/gnews/42/README.md)
+### [10/9/2021国际财经快讯：美中会谈评估贸易协议执行情况；台积电和索尼考虑联合建立芯片工厂](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [针下亡魂｜意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](/content/gnews/43/README.md)
+### [针下亡魂｜意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](/content/gnews/44/README.md)
  ` G&#124;News TAIWAN`
 
-### [针下亡魂｜韩国 20 岁女学生接种疫苗12日后死亡](/content/gnews/44/README.md)
+### [针下亡魂｜韩国 20 岁女学生接种疫苗12日后死亡](/content/gnews/45/README.md)
  ` G&#124;News TAIWAN`
-
-### [有声|台湾危机迫在眉睫 各方势力角逐海上话语权](/content/gnews/45/README.md)
- ` MOSREC`
 
 ### [【闲聊澳洲】 江家反习处弱势，中共备战三个月](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`

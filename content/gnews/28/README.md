@@ -2,36 +2,25 @@
 ---
 
 
-## 加州15岁少年接种辉瑞疫苗第二针2天后死亡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1583884/)
+## 阿富汗清真寺爆炸数十人死亡
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1584000/)
 
-作者：雪梨
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-根据加州索诺玛县警长办公室上个月的调查报告显示，该县一名15岁的健康少年于6月份，接种辉瑞疫苗第二针2天后死亡。本周，关于这名少年的死亡与疫苗接种的话题引发社会热议。
+俄罗斯莫斯科喀秋莎农场 星河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-8.jpeg)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/A-1.jpg)wikisewa.com
+美东时间10月9日报道，在俄罗斯被禁止的恐怖主义组织塔利班代表和阿富汗新闻部长扎比胡拉∙穆贾希德表示，阿富汗东北部城市昆都士一座清真寺发生自杀式炸弹袭击事件，截至目前已经导致数十人死亡，极端组织“伊斯兰国呼罗珊”宣布对袭击事件负责。
 
-调查报告显示，少年死亡原因被确定为“应激性心肌炎并伴有冠状动脉炎症”。报告并未将死因与接种新冠毒针做直接联系，但强调，死者的心肌炎及冠状动脉炎症，是在最近辉瑞疫苗接种的情况下发生的，除此以外，并没有其他重要致死原因，
+据阿拉伯电视台报道，至少有15人死亡，90多人受伤。《巴基斯坦日报》报道称有50人死亡阿富汗门户网站Amaj News参考目击者报道，受害者人数最多可达100人。
 
-据加州大学研究发现，青少年，即13至19岁群体因接种新冠疫苗引发心脏疾病，导致住院的机率，较病毒感染高出6倍。截至9月，根据疫苗不良事件通报系统VAERS显示，已收到1,590份年轻人心脏炎症的报告，且此前早有研究调查发现，通报系统的漏报率高达41倍。
+阿里亚纳新闻网援引当地政府的话报道，爆炸发生在10月8日下午，当时什叶派穆斯林正在清真寺中做礼拜，现场非常拥挤。
 
-CDC咨询小组早先曾发出警告，青少年出现心脏炎症，与辉瑞疫苗”可能存在联系”。家长和社会都有责任和义务拒绝毒疫苗，维护青少年健康安全，捍卫孩子们的生存权。
+穆贾希德补充说，特种部队已到达现场，目前正在进行调查。
 
-(本文仅代表作者观点)
+10月3日，喀布尔Idgah清真寺的入口处发生了一起爆炸事件。塔利班称至少有五名平民被杀。恐怖组织“伊斯兰国”（在俄罗斯被禁止）的成员被怀疑实施了此次袭击。
 
-参考链接：[15-Year-Old Boy Died Suddenly Just 2 Days After Second Dose of Pfizer Covid-19 Vaccine](https://theexpose.uk/2021/10/08/15-year-old-boy-died-suddenly-just-2-days-after-second-dose-of-pfizer-covid-19-vaccine/)
-[California teenager died of heart condition two days after COVID vaccine, death report says](https://www.lifesitenews.com/news/california-teenager-died-of-heart-condition-two-days-after-covid-vaccine-death-report/?utm_source=top_news&amp;utm_campaign=usa)
-[Sonoma County officials, social media posters spar over boy’s death](https://www.pressdemocrat.com/article/news/county-officials-social-media-posters-spar-over-boys-death/)
+美联社指出，塔利班于8月中旬宣布在阿富汗夺取政权后，IS武装分子加强了对塔利班的攻击。伊斯兰国仍然存在于东部的楠格哈尔省。恐怖分子早些时候曾声称对省会贾拉拉巴德的几起谋杀事件负责。10月初，塔利班在该市处决了几个被指控与IS合作的人。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+参考链接：
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://www.rbc.ru/politics/08/10/2021/6160263e9a794738d6ba0ea4](https://www.rbc.ru/politics/08/10/2021/6160263e9a794738d6ba0ea4)
