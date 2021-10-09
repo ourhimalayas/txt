@@ -2,34 +2,21 @@
 ---
 
 
-## 港大要求移除六四象征“国殇之柱”雕像
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1583658/)
+## 秘翻在线：十一节后中共政法高层点名孙力军傅政华，政治余震持续
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1583795/)
 
-作者：在远方
+**撰稿：Ping**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-09-233743.jpg)
+据人民法院新闻传媒总社消息，10月8日，中共中央政治局委员、中央政法委书记、全国政法队伍教育整顿领导小组组长郭声琨出席全国第二批政法队伍教育整顿工作推进会并讲话。郭声琨强调，坚决拥护党中央对孙力军严重违纪违法问题的处理决定和对傅政华涉嫌严重违纪违法问题进行纪律审查和监察调查的决定。
 
+除了郭声琨之外，出席会议的还有8位全国政法队伍教育整顿领导小组副组长：
 
+赵克志（公安部部长）、周强（最高人民法院院长）、张军（最高人民检察院检察长）、喻红秋（中央纪委副书记）、傅兴国（中央组织部副部长）、陈一新（中央政法委秘书长）、陈文清（国家安全部部长）、唐一军（司法部部长）。
 
-10月8日，香港大学向支联会发出律师函，要求在13日下午5时之前移除六四纪念雕像“国殇之柱”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.9AM-PICTURES-123567.001.jpeg)
-这座铜质雕像高8米，是香港六四烛光晚会的标志，1997年维园集会时首次与公众见面，之后港大学生会投票让该雕像永久矗立于港大校园，至今已经24年。雕像创作者丹麦艺术家高志活闻讯表示震惊，称拆除”国殇之柱”的计划是对8964的亵渎。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.9AM-PICTURES-123567.003.jpeg)
-当前“港版国安法”白色恐怖笼罩香港，香港公民社会饱受中共打压，2021年以来已有接近50个民间组织宣布解散，包括刚刚解散的支联会。虽然中共极力试图让中国人民遗忘六四，由郭文贵先生引领创立的新中国联邦，意义深远的将6月4日作为建国日，不断警醒热爱自由的中国人，要承传六四精神，坚决灭共。
-(本文仅代表作者观点)
+从与会人员的名单中我们不难看出习派占了上峰，在中共国这个绞肉机的体制下。每一个体制内的共产党员都是砧板上的肉，谁都不知道下一个被剁的是不是你！并且，整顿小组长郭声琨的“正义“讲话，并不能代表郭声琨就是一个伸张正义，为民除害的清官。共产党以贪反贪治国，无论谁沦为阶下囚，都只能是政治斗争的牺牲品，而不是因为犯人本身的罪恶滔天。因为中共国哪一个爬到高位的官员不是踏着别人的尸体发迹的。
 
-参考链接：[港大要移除“国殇之柱” 创作者斥为对六四亵渎](https://www.voachinese.com/a/UKU-Demands-Pillar-Of-Shame-Removed-20211008/6263168.html)
+同时，十一节日过后，重提孙力军，傅政华的违纪违法的调查决定。是否是双规“政法虎“的余震呢？郭文贵先生爆料，孙力军，傅政华的审查报告中，都没有提及其杀人灭口的相关案件。那么，是否就意味着，此二人的锒铛入狱，还没有把真正的大料深挖出来。今天的重提，是否再震一震那些与孙，傅二人相关的大佬们地基，松一松土，为接下来的党内血雨腥风的政治斗争做一些铺垫？那么到底是王岐山，孟建柱被拿下呢？还是习近平突然暴毙呢？我们拭目以待！
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**[资料来源](https://news.sina.cn/2021-10-09/detail-iktzscyx8569095.d.html?from=wap)**

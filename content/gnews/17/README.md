@@ -2,17 +2,27 @@
 ---
 
 
-## 秘翻在线：中共拟禁止私营报刊，消绝独立媒体
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1583702/)
+## 辛亥革命110周年 中共以孙中山灭台
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1583874/)
 
-撰稿：待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/画像1-9.jpg)[图片来源](https://www.163.com/dy/article/FC200O010516Q25Q.html)
-10月9日共同通讯社消息：中共政府公布，9日以后禁止私营公司进入新闻行业的方案。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-该方案禁止设立和经营新闻机构、报纸和电视台，并规定媒体不得参与政治、经济或军事方面的报道。该禁令旨在消灭那些与中共及其政府保持距离的独立媒体机构，这将不可避免地导致中共对言论的进一步限制。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-8.png)
+文章仅代表作者本人观点，与Gnews无关
 
-2010年，中共政府曾发布与实际效果完全相反的通知，鼓励个人私企参与媒体，以发展报纸和出版业。作为对新闻自由受挫的回应，有中共国媒体人在一个会员专用的社交网站（SNS）上发布消息，称诺贝尔和平奖将颁给对抗强权政治的记者。以示无声的抵抗。
+视频参看：2021.10.08早GTV新闻访谈
 
-[信息源](https://news.yahoo.co.jp/articles/ee978761ac8ffa2b1bcc4eb2f921094d193bf087)
+[https://gtv.org/video/id=61618b40304e992109b2364d](https://gtv.org/video/id=61618b40304e992109b2364d)
 
-（文章仅代表作者个人观点）
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

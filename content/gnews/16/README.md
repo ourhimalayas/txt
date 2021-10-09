@@ -2,28 +2,31 @@
 ---
 
 
-## 中共无耻纪念辛亥革命，&#8221;武统&#8221;威胁台湾
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1583759/)
+## 加州15岁少年接种辉瑞疫苗第二针2天后死亡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1583884/)
 
-作者：在远方
-
+作者：雪梨
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+根据加州索诺玛县警长办公室上个月的调查报告显示，该县一名15岁的健康少年于6月份，接种辉瑞疫苗第二针2天后死亡。本周，关于这名少年的死亡与疫苗接种的话题引发社会热议。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-8.jpeg)
 
+调查报告显示，少年死亡原因被确定为“应激性心肌炎并伴有冠状动脉炎症”。报告并未将死因与接种新冠毒针做直接联系，但强调，死者的心肌炎及冠状动脉炎症，是在最近辉瑞疫苗接种的情况下发生的，除此以外，并没有其他重要致死原因，
 
-10月9日上午，中共厚颜无耻的在北京举行“纪念辛亥革命110周年大会”，党魁习近平在讲话中不仅歪曲历史、颠倒黑白，而且对台湾释放强烈的”武统”威胁信号。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.9AM-PICTURES-123567.004.jpeg)
-1911年10月10日武昌起义爆发，辛亥革命最终推翻满清专制，次年建立了亚洲第一个民主共和国中华民国，国体至今仍在台湾蓬勃的发展着。而由共产国际支持的中共军队，在国民政府全面抗日阶段，借西安事变之机养精蓄锐，最终在抗战胜利后发动内战，窃取了辛亥革命和抗战果实，鸠占鹊巢，在中国大陆进行了长达70年的专制独裁统治。
+据加州大学研究发现，青少年，即13至19岁群体因接种新冠疫苗引发心脏疾病，导致住院的机率，较病毒感染高出6倍。截至9月，根据疫苗不良事件通报系统VAERS显示，已收到1,590份年轻人心脏炎症的报告，且此前早有研究调查发现，通报系统的漏报率高达41倍。
 
-中共成立百年来给中国带来无穷无尽的灾难，饥荒和杀戮不断，同时篡改和编造历史，不断通过暴力和谎言洗脑并维护统治，试图将自己伪装成救世主，直到今天，这个苟延残喘的中共政权，仍然妄图通过”武统”侵略台湾来 转移病毒真相追索，和日日升温的国内外压力和矛盾，此举虽属邪恶无耻，但也将导致中共自取灭亡。
+CDC咨询小组早先曾发出警告，青少年出现心脏炎症，与辉瑞疫苗”可能存在联系”。家长和社会都有责任和义务拒绝毒疫苗，维护青少年健康安全，捍卫孩子们的生存权。
+
 (本文仅代表作者观点)
 
-参考链接：[独家视频丨习近平：辛亥革命是中华民族伟大复兴征程上的一座里程碑](https://www.163.com/news/article/GLS4HCCP000189FH.html?clickfrom=w_yw)
+参考链接：[15-Year-Old Boy Died Suddenly Just 2 Days After Second Dose of Pfizer Covid-19 Vaccine](https://theexpose.uk/2021/10/08/15-year-old-boy-died-suddenly-just-2-days-after-second-dose-of-pfizer-covid-19-vaccine/)
+[California teenager died of heart condition two days after COVID vaccine, death report says](https://www.lifesitenews.com/news/california-teenager-died-of-heart-condition-two-days-after-covid-vaccine-death-report/?utm_source=top_news&amp;utm_campaign=usa)
+[Sonoma County officials, social media posters spar over boy’s death](https://www.pressdemocrat.com/article/news/county-officials-social-media-posters-spar-over-boys-death/)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,5 +34,4 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

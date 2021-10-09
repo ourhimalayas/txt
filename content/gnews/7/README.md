@@ -2,36 +2,45 @@
 ---
 
 
-## 加州15岁少年接种辉瑞疫苗第二针2天后死亡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1583884/)
+## 郭文贵直播摘要和音频 2021.10.7
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1584030/)
 
-作者：雪梨
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-根据加州索诺玛县警长办公室上个月的调查报告显示，该县一名15岁的健康少年于6月份，接种辉瑞疫苗第二针2天后死亡。本周，关于这名少年的死亡与疫苗接种的话题引发社会热议。
+摘要撰稿人：文俊
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-8.jpeg)
+音频提供者： 左媛
 
-调查报告显示，少年死亡原因被确定为“应激性心肌炎并伴有冠状动脉炎症”。报告并未将死因与接种新冠毒针做直接联系，但强调，死者的心肌炎及冠状动脉炎症，是在最近辉瑞疫苗接种的情况下发生的，除此以外，并没有其他重要致死原因，
 
-据加州大学研究发现，青少年，即13至19岁群体因接种新冠疫苗引发心脏疾病，导致住院的机率，较病毒感染高出6倍。截至9月，根据疫苗不良事件通报系统VAERS显示，已收到1,590份年轻人心脏炎症的报告，且此前早有研究调查发现，通报系统的漏报率高达41倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-09-at-1.06.41-PM.png)
 
-CDC咨询小组早先曾发出警告，青少年出现心脏炎症，与辉瑞疫苗”可能存在联系”。家长和社会都有责任和义务拒绝毒疫苗，维护青少年健康安全，捍卫孩子们的生存权。
 
-(本文仅代表作者观点)
+### 视频：
 
-参考链接：[15-Year-Old Boy Died Suddenly Just 2 Days After Second Dose of Pfizer Covid-19 Vaccine](https://theexpose.uk/2021/10/08/15-year-old-boy-died-suddenly-just-2-days-after-second-dose-of-pfizer-covid-19-vaccine/)
-[California teenager died of heart condition two days after COVID vaccine, death report says](https://www.lifesitenews.com/news/california-teenager-died-of-heart-condition-two-days-after-covid-vaccine-death-report/?utm_source=top_news&amp;utm_campaign=usa)
-[Sonoma County officials, social media posters spar over boy’s death](https://www.pressdemocrat.com/article/news/county-officials-social-media-posters-spar-over-boys-death/)
+[视频链接](https://gtv.org/video/id=615ef95d304e992109b0faaf)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+### 音频：
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
+### 摘要：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1. GIM（即时通讯系统）新西兰研发可靠
+2. 广泛传播爆料革命信息可减少排华
+3. 中美会谈 中国威胁美国
+4. 平安还要折腾大半年
+5. 国内疫苗很快也会停
+6. 三周后AMD（最大股东阿布扎比主权基金）美国上市
+7. AMD芯片星链技术不让 推特 Facebook用，只给我们G系列用会发生什么事？
+8. AMD芯片 7纳米技术世界一流, 也是星链公司的必备芯片. Iphone13特别版之后. 未来对GTV、GNEWS、GETTR, 对喜联储都意义重大. 6周内会看到答案
+9. 昨天10月6日收购一家金融机构未来10%属于GTV投资者
+10. 未来GTV投资者不会超过1元美金拥有金融机构股份，一定是投资G系列回报投资
+11. 我特别担心 不管谁加入爆料革命 它不是你养老的地方 不是你发财的地方 它是实现你灭共 让你有安全 有希望的地方 新中国联邦人最重要的是心态要健康
+12. 战友被路骗和囤粮食 黄金 美金 卫星电话的(要提供证据 登记 告他)
+13. 中共打台湾的概率超过 95%
+14. 白马 百分之百安全部的公司
+15. 曾宝宝会很惨、非常惨
+16. 江家越来越渺茫 江干掉令计划儿子 江志成命不长
+17. 新加坡的何晶 可了不得
+18. 明年战友们还能吃上粗茶淡饭就都有福了
+19. 日本 本田 也会撤出中国!
+20. 日本的岸田文雄一定会反共的
+21. 打台湾 把中共私生子女弄台湾去
+22. 泰国排华会很夸张
+23. 星期天或星期一 在来个大直播吧
