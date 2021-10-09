@@ -2,26 +2,25 @@
 ---
 
 
-## 法国参议员访台期间，公开称台湾为“国家”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1583817/)
+## 北约秘书长表示, 欧洲要联合美国应对中共挑战!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1583840/)
 
-作者：飞虹
-
+作者：云豹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月8日, 北约秘书长斯托腾伯格与西班牙总理桑切斯会面, 讨论2022年在西班牙主办北约峰会事宜, 在会面后的记者会上, 斯托腾伯格称 ：”当前国际竞争日益激烈，中共展示其经济及军事力量, 是在恐吓和要挟各国。欧洲、美国必须共同应对这一挑战!”
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-15.jpeg)
 
+今年6月，北约布鲁塞尔峰会后的公报中，就曾指出中共的胁迫性政策, 以及近年持续增扩的核武库，都对北约安全构成系统性的挑战。斯托尔滕贝格在6月也示警，俄罗斯与中共结盟, 不仅在联合国互相配合，还交流武器系统及共享网络监控资源,都对多边主义国际秩序造成威胁，使得北约越来越重视应对来自中共的挑战 和企图统治世界的野心。
 
-法国参议院友台小组主席理察，所率参议院代表团正在台湾进行访问。10月7日蔡英文总统向理察 颁授了“特种大绶/卿云勋章”。在随后的简短发言中，理察特别称赞了台湾派驻巴黎的经济文化代表处，称其“在代表国家方面做得非常好”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.9AM-PICTURES-48图片备用.001-1.jpeg)
-理察作为法国政府官方出访代表，将台湾称为“国家”触及了中共的所谓禁忌和底线。中共外交部发言人赵立坚随即 发表回应，称将台湾称为“国家”是违背国际社会的普遍共识。还不顾外交礼节的指责理察，称理察对国际关系准则缺乏基本的尊重和认识，是基于个人私心绑架国家关系等。但这种战狼外交 显然对理察议员 没有产生任何影响，就在10月8日台北举行的一场记者会上，理察再次表示：“这个岛以及这个国家的名称，就叫做台湾”。
 (本文仅代表作者观点)
 
-参考链接：[不甩北京愤怒与抨击 法国参议员坚持认为台湾应被称为“国家”](https://www.voachinese.com/a/call-Taiwan-a-country-French-senator-says-angering-China-20211008/6263058.html)
+参考链接：[北約秘書長：中國展示經濟和軍事力量恫嚇他國](https://www.cna.com.tw/news/aopl/202110080404.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
+新闻访谈终审：文龍
+编辑/校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

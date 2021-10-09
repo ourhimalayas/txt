@@ -2,34 +2,23 @@
 ---
 
 
-## 习近平呼吁统一，台北迅速回应
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1584288/)
+## 有声|AMD芯片公司“格芯”将在纳斯达克上市
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1584301/)
 
-新闻来源：德国世界报网络版
+配音：香草山美食部 – 玫瑰园
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+今天，郭文贵先生在直播中透露，三周后，AMD曾经的芯片制造公司格芯（Global Foundries）将在纽约纳斯达克上市，市值250亿美元。该公司将由阿布扎比Mubadala基金100%控股。Mubadala基金是阿联酋的主权基金，与郭文贵先生有多年的合作。格芯公司拥有生产7纳米以下级别芯片最好的技术。中共垂涎格芯的技术多年，使用各种蓝金黄手段，但是，最终都无法得到。格芯生产的芯片是“星链计划”，天空wifi必需的核心元件。Mubadala基金也是“星链计划”的大股东。同时，格芯和IBM联合研发的生物芯片也在突飞猛进的发展。未来，芯片对于GTV，Gnews，Gettr，喜币，以及人类的社交媒体的变革都将有重大的意义。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Xi-Jinping.jpg)
+文字版原文：[AMD芯片公司“格芯”将在纳斯达克上市](https://gnews.org/zh-hans/1580822/)
 
+音频处理：喜山必胜Maverick
 
-资料来源：美联社
-
-首先，中国通过军事飞行增加了对台湾的压力。现在中国国家主席正在跟进。统一台湾“一定会实现”。他警告说，台湾的脱离不会有好结果。
-
-在围绕台湾的紧张局势加剧中，中国国家和党的领导人习近平呼吁“统一”。他在周六在人民大会堂举行的仪式上说，以“和平方式”进行的联合最符合整个中华民族的利益。他警告说，台湾的脱离不会有好结果。
-
-他的讲话正值中国1911年革命110周年，即今天的共产主义人民共和国和当时成立并仍然存在于台湾的中华民国。北京将现在自由的台湾视为中华人民共和国的一部分，并威胁要征服它。
-
-台湾立即以独立和民主为由拒绝了习近平的呼吁。台湾总统蔡英文在台北的发言人说，台湾是一个“主权独立的国家，不是中华人民共和国的一部分”。 “国家的未来掌握在台湾人民的手中。”台湾是民主国家，随着 1911 年的革命，建立了一个“民主共和国，而不是专制独裁政权”。在台湾，这种民主“真正实现了”。他指的是清朝灭亡后建立的中华民国，因为台湾今天仍被正式称为台湾。
-
-台北以香港为例，指责北京违背承诺。中共国已经废除了50年不应该改变的规定。 “一国两制”的原则是行不通的。 2300 万台湾人中的大多数人拒绝接受这种模式。他们捍卫自己民主和自由的生活方式。
-
-习近平此前曾表示，“两岸同胞要站在历史正确的一边，携手实现中华民族的完全统一和复兴。”背叛自己的祖国，企图分裂国家，会落得一个下场。”他说，“台湾问题纯属中国内政” 。最近，中共军机进行了多达 150 次区域飞行。习近平说：“任何人都不应低估中国人民维护国家主权和领土完整的决心、意愿和能力。”
-
-[https://www.welt.de/politik/ausland/article234315626/China-fuer-Wiedervereinigung-mit-Taiwan-Wird-definitiv-verwirklicht.html](https://www.welt.de/politik/ausland/article234315626/China-fuer-Wiedervereinigung-mit-Taiwan-Wird-definitiv-verwirklicht.html)
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-
-校对：旦旦
-
-责任编辑/发布： Shuizhuyu
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

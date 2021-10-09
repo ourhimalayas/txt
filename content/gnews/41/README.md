@@ -2,24 +2,27 @@
 ---
 
 
-## 有声|美快速攻击潜舰印太海域 撞击不明物体
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1583781/)
+## 法国参议员访台期间，公开称台湾为“国家”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1583817/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-美国海军7日公布，一艘核动力潜舰2日在印太海域水下执行任务时，撞击到不明物体受损，并有10多人轻中度受伤。各方猜测，撞击物可能是沉没船只、货柜等其他物体。
+作者：飞虹
 
-此次发生事故的是“海狼级”核动力快速攻击潜舰“康乃狄克”（USS Connecticut）号，事故发生时正在印度太平洋地区的国际海域执行任务。 海狼级潜艇是冷战后期的攻击性潜艇，是美国海军最有能力和最敏感的攻击艇，旨在猎杀深蓝水域最复杂的苏联潜艇。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-康乃狄克号自事件发生后保持水面航行，正前往关岛靠岸。国防官员证实这次水下打击发生在南中国海，但未透露任何细节。
 
-从周六计算，时隔5天后此事件才被报道，期间中共军方罕见沉默。印太地区目前由于中共的挑衅，正处于紧张的火药库状态，任何的军事事故都有可能造成区域性的紧张态式，需谨慎观察后续发展。
 
-文字版原文：[美快速攻击潜舰印太海域撞击不明物体](https://gnews.org/zh-hans/1581612/)
+法国参议院友台小组主席理察，所率参议院代表团正在台湾进行访问。10月7日蔡英文总统向理察 颁授了“特种大绶/卿云勋章”。在随后的简短发言中，理察特别称赞了台湾派驻巴黎的经济文化代表处，称其“在代表国家方面做得非常好”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.9AM-PICTURES-48图片备用.001-1.jpeg)
+理察作为法国政府官方出访代表，将台湾称为“国家”触及了中共的所谓禁忌和底线。中共外交部发言人赵立坚随即 发表回应，称将台湾称为“国家”是违背国际社会的普遍共识。还不顾外交礼节的指责理察，称理察对国际关系准则缺乏基本的尊重和认识，是基于个人私心绑架国家关系等。但这种战狼外交 显然对理察议员 没有产生任何影响，就在10月8日台北举行的一场记者会上，理察再次表示：“这个岛以及这个国家的名称，就叫做台湾”。
+(本文仅代表作者观点)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
+参考链接：[不甩北京愤怒与抨击 法国参议员坚持认为台湾应被称为“国家”](https://www.voachinese.com/a/call-Taiwan-a-country-French-senator-says-angering-China-20211008/6263058.html)
+
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
+
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)

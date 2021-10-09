@@ -2,65 +2,60 @@
 ---
 
 
-## 远离大城市的理由
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1584400/)
+## 喜币之光——恭贺新中国联邦喜币上市
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1584409/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ajo7l-u8jre.jpg)
-[https://gtv.org/video/id=616185ead2e2b81748732e67](https://gtv.org/video/id=616185ead2e2b81748732e67)
+#### 撰稿：东京樱花团/希望
+![](https://assets.gnews.org/wp-content/uploads/2021/10/13-2.jpg)
+噫嘘唏，壮乎威哉！
+喜币之光
+耀于九层天！
+文贵及战友
+开邦何威然！
 
-**郭文贵：
-Miles Guo：**
+尔来四万八天岁
+有谁于此开先河？！
+大道至简，却非等闲！
+救苦拔难,舍尔其谁？！
 
-在一线城市，没电了
-In the first-tier cities, if there is no electricity
+从来泰山挡古道
+未闻老七皱过眉
+天塌地陷共匪灭
+自此正道天梯相钩连
 
-你咋下楼？
-How will you go downstairs?
+东有裕达国贸之地标
+北有盘古龙头之傲骨
+牢狱之灾尚余福
+灭爆狗仔又何妨？！
+百花何艳艳
+历经磨难终有光！
 
-没电了楼梯咋办？
-What to do if the lifts are out of power?
+直播健身传真相
+手足并牵笑长天
+问君灭共几时还？
+直叫苍天泪如帘！
 
-没电就没水，没电没水
-No electricity means no water, no electricity and no water
+但闻七哥祈女神
+又见战友唱音雄
+正道现
+喜币之光
+耀于九层天！
+使人见之露笑颜
+区块安全自由出
+倒挂黄金信为先
+其价说不尽
+一币当关
+万金难求！
 
-你出去交通受管制
-Traffic is controlled when you go out
+辛酸与泪水
+化为贵和富
+朝现红日，夜露皎月。
+普天同庆，自在逍遥。
+天堂虽有乐
+不如喜币香！
 
-而且集中抢劫
-And concentrated on looting
+(文章仅代表作者本人观点，与GNEWS无关)
 
-警察管你
-The police control you
-
-你连吃草的机会都没有
-You won’t even have a chance to eat grass
-
-你从楼上跳下来吗？
-Will you jump down from upstairs?
-
-你能步行在大马路上跑吗？
-Can you run on the main roads?
-
-所有城市的方便, 都成为你的不方便
-The conveniences of all cities will become your inconveniences
-
-所有城市里面能拥有的好东西， 都是对你的伤害
-All the good things you can have in the cities will hurt you
-
-那你呆在城市干什么？
-So what will you do in the cities?
-
-**——————————————————**
-
-**原视频链接**: [https://twitter.com/se1y7cblljselva/status/1446500243864887297?s=24](https://twitter.com/se1y7cblljselva/status/1446500243864887297?s=24)
-
-英听校 : 洛杉矶盘古农场 – Raul
-翻译 : 洛杉矶盘古农场 – Raul
-翻译终校 : 洛杉矶盘古农场 – Mike Li
-字幕+视频制作 : 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

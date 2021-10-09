@@ -2,54 +2,28 @@
 ---
 
 
-## 新加坡的COVID-19感染率飙升
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1584014/)
+## 法国参议院访台代表团不顾北京愤怒 重申台湾是国家
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1584044/)
 
-- 编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2021/10/c1_2190995-16.jpg)法国参议员阿兰·理查德于 2021 年 10 月 8 日在台北市举行的新闻发布会上发表讲话。 理查德率领一群法国参议员访问台湾，正值台湾和中国之间特别紧张的时刻。 AP – Wu Taijing
 
+**编辑摘要：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-1-6.png)图片来源：www.thegatewaypundit.com
+据法国国际广播电台10月9日报道，法国参议院访台代表团一行五人，周四分别受到蔡英文总统和行政院长苏贞昌接见。法国代表团团长、曾任法国国防部长的李察(Alain Richard)对蔡英文表示，台湾在巴黎的代表处“非常称职地代表了您的国家”。同日，中共国外交部发言人赵立坚对李察的再次重申台湾是“国家”反应强烈，称“中方对此表示强烈谴责和坚决反对。”
 
-## 尽管该国是世界上疫苗接种率最高的国家之一，达83%
+同行的代表团成员、法国参议院外交与国防委员会副主席卡迪克(Olivier Cadic)表示支持李察，回到法国后，会提出关于台湾驻法代表处重新命名的相关建议。
 
-新加坡卫生部报告说，尽管新加坡的疫苗接种率在世界排名第五，但COVID-19的突破性感染连续四天大幅增加。全国80%以上的人都接种了COVID-19疫苗。
+在台湾外交部于周五举行的记者会上，李察谈到中国大陆军机频频进入台湾防空识别区时表示，北京这样做是希望透过军事威胁影响台湾，世界强权由此更应对区域和平安全提供警戒。代表团成员卡迪克则直陈台湾面临专制体制挑战，法国代表团来访就是要告诉台湾“你们并不孤立”。
 
-根据最新报告，截至2021年10月7日，83%的人已经接种了两剂COVID-19疫苗，85%的人至少接种了一剂。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-09-at-3.48.10-PM.jpg)
-
-截至2021年10月8日中午12点，新加坡卫生部共记录了3590个COVID-19感染的新病例，比周四的3483个病例有所增加。
-
-**这是自中共病毒疫情开始以来记录的最高病例数，同时该国还记录了6例新的死亡病例。**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-09-at-3.46.10-PM.jpg)
-
-来自卫生部的更多信息：
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-2-4.png)（相关推特链接：[twitter.com](https://twitter.com/sporeMOH/status/1446499031023112193?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1446499031023112193%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2021%2F10%2Fsingapore-sees-covid-19-infection-rate-surge-despite-one-highest-vaccination-rates-world-83%2F)）
-
-一位推特用户说，新加坡终于拉平了曲线，但在错误的轴线上：
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-3-3.png)（相关推特链接：[twitter.com](https://twitter.com/DrEliDavid/status/1446570012966363146?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1446570012966363146%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2021%2F10%2Fsingapore-sees-covid-19-infection-rate-surge-despite-one-highest-vaccination-rates-world-83%2F)）
-
-The Gateway Pundit以前曾报道过一个由政府资助的项目所发布的令人震惊的数据，该数据显示辉瑞和Moderna的mRNA COVID-19疫苗的效果随着时间的推移明显减弱。每过一周，任何完全接种的人的效果都会减弱。
-
-**国防部联合人工智能中心（JAIC）推出的一个名为 “Project Salus “的人工智能项目检查了560万名65岁及以上的医疗保险受益人的数据，发现大多数感染COVID-19的人都完全接种了疫苗。**
-
-**简评：**
-
-**打着科学的幌子全力推广新冠疫苗的各大医药公司，在真实的数据面前失声了。真实的数据正是表明了，它们所推广的疫苗是无效，甚至是有害的。相对于未接种过疫苗的人群，接种过疫苗的人，甚至更加容易被中共病毒感染。**
-
-**强制接种、不许质疑、不负责任，勾兑主流媒体不许报道疫苗的真实危害……究竟是什么力量在推动着辉瑞等大医药公司，通过疫苗吸取着全世界人民的财富？无论是什么惊天的阴谋，那些推动全民注射疫苗的政客们，在这场中共病毒的战争中，都背负了带血的原罪。**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**新闻来源：**[www.thegatewaypundit.com](https://www.thegatewaypundit.com/2021/10/singapore-sees-covid-19-infection-rate-surge-despite-one-highest-vaccination-rates-world-83/)
+阅读新闻原文：[法国参议员访台代表团团长不顾北京愤怒重申台湾是国家](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211009-%E6%B3%95%E5%9B%BD%E5%8F%82%E8%AE%AE%E5%91%98%E8%AE%BF%E5%8F%B0%E4%BB%A3%E8%A1%A8%E5%9B%A2%E5%9B%A2%E9%95%BF%E4%B8%8D%E9%A1%BE%E5%8C%97%E4%BA%AC%E6%84%A4%E6%80%92%E9%87%8D%E7%94%B3%E5%8F%B0%E6%B9%BE%E6%98%AF%E5%9B%BD%E5%AE%B6)
 
 * * *
 
-*审核：蚂蚁兄弟*
-*校对：阿伯塔*
-*发布：信心的选择*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

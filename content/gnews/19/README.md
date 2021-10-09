@@ -2,21 +2,47 @@
 ---
 
 
-## 英国800万人无法购买必需品
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1584271/)
+## 一位草根战友的心声
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1584292/)
 
-翻译：神奇四侠
+![](https://assets.gnews.org/wp-content/uploads/2021/10/地狱-1.jpg)图片源自网络
 
-英国国家统计局（ONS）的最新数据显示，在过去两周–9月22日至10月3日期间，多达800万英国人无法购买基本食品。
+**作者：**般若
 
-随着供应危机的持续，英国人开始囤积必需品，英国各地超市出现抢购潮，肉类、水果和冷冻食品被抢购一空。
+**编辑：**Candy
 
-在本周的早些时候，英国人已经开始恐慌性地购买火鸡，冷冻禽类的销售量猛增达到以前的4倍。而超市也证明了消息的准确性，并承认顾客在担心食品的供应。
 
-根据The Grocer的一项调查，有三分之一的英国人已经开始提前购买圣诞食品和饮料，或者计划在10月底前购买完毕。还有三分之二的人担心圣诞期间物资会短缺。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/comp-ap-6469-panic2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-新闻来源:[太阳报](https://www.thesun.co.uk/news/16373968/supermarket-shelves-empty-stockpiling-essentials/)
+```
+当我还在地狱里挣扎时，
+我以为它们口中的“正能量”就是光明;
+当我看到爆料革命的光明时，
+我才发现我竟然身处地狱。
 
-图片来源:[太阳报](https://www.thesun.co.uk/news/16373968/supermarket-shelves-empty-stockpiling-essentials/)
+当我鼓足勇气走进光明时，
+我看到地狱已在我身后；
+当我追寻希望时，
+我一刻不敢忘记地狱的模样。
 
-校对发稿：Ada（马德里）
+迈向天堂时，
+我警醒自己为什么要苦苦寻找天堂：
+为了我，为了家人，
+也为了依然身处地狱的他们……
+
+他们的今天，就是我的昨天；
+没有了他们，天堂就不复存在。
+人生，三万天，
+永不忘了自己是草根，便无所畏惧……
+
+感恩七哥，那“一灯、一智”🙏
+
+（本文进代表作者个人观点，与Gnews无关。）
+
+发布：Candy
+
+更多资讯，请关注：
+澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
+澳大利亚墨尔本雅典娜农场Gettr：himalayaathena
+澳大利亚墨尔本雅典娜农场YouTube
+澳大利亚墨尔本雅典娜农场Discord
+澳大利亚墨尔本雅典娜农场GTV直播1台
+```

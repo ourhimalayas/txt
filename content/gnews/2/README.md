@@ -2,60 +2,46 @@
 ---
 
 
-## 喜币之光——恭贺新中国联邦喜币上市
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1584409/)
+## 瑞典、丹麦暂停为年轻群体接种莫德纳（Moderna）疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1584418/)
 
-#### 撰稿：东京樱花团/希望
-![](https://assets.gnews.org/wp-content/uploads/2021/10/13-2.jpg)
-噫嘘唏，壮乎威哉！
-喜币之光
-耀于九层天！
-文贵及战友
-开邦何威然！
+**据《路透社》作者：Johan Ahlander, Stine Jacobsen, Gwladys Fouche, Julie Steenhuysen, Michael Erman，2021年10月6日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl-3.jpg)2021年7月23日，在西班牙马德里的Enfermera Isabel Zendal医院，一名护士准备用注射器注射莫德纳（COVID-19）疫苗的剂量。图片来源：路透社/Juan Medina
+《路透社》斯德哥尔摩10月6日 —— 瑞典和丹麦周三表示，在收到可能出现罕见的心血管副作用的报告后，它们将暂停对年轻群体使用莫德纳公司（MRNA.O）的COVID-19疫苗。
 
-尔来四万八天岁
-有谁于此开先河？！
-大道至简，却非等闲！
-救苦拔难,舍尔其谁？！
+瑞典卫生机构称，它将暂停对1991年及以后出生的人使用这种疫苗，因为有数据表明，在接种过疫苗的青年和年轻成年人当中，心肌炎和心包炎的发病率有所上升。这些疾病涉及心脏或其内壁的炎症。
 
-从来泰山挡古道
-未闻老七皱过眉
-天塌地陷共匪灭
-自此正道天梯相钩连
+卫生机构说：“当涉及到莫德纳的疫苗Spikevax时，这种联系尤其明显，尤其是在接种第二针之后。”
 
-东有裕达国贸之地标
-北有盘古龙头之傲骨
-牢狱之灾尚余福
-灭爆狗仔又何妨？！
-百花何艳艳
-历经磨难终有光！
+莫德纳的股票在下午的交易中下跌4.9%($16.08美元)，至$316.11美元。
 
-直播健身传真相
-手足并牵笑长天
-问君灭共几时还？
-直叫苍天泪如帘！
+莫德纳发言人在一封电子邮件中说，该公司知道丹麦和瑞典的监管机构决定暂停在年轻人中使用其疫苗，因为存在心肌炎和/或心包炎的罕见风险。
 
-但闻七哥祈女神
-又见战友唱音雄
-正道现
-喜币之光
-耀于九层天！
-使人见之露笑颜
-区块安全自由出
-倒挂黄金信为先
-其价说不尽
-一币当关
-万金难求！
+“这些通常是轻度病例，个人在接受标准治疗和休息后往往会在短时间内康复。感染中共病毒的人患心肌炎的风险大大增加，接种疫苗是预防这种情况的最佳方法。”
 
-辛酸与泪水
-化为贵和富
-朝现红日，夜露皎月。
-普天同庆，自在逍遥。
-天堂虽有乐
-不如喜币香！
+根据一项尚未经过同行审查的美国研究，20岁以下的年轻男性在感染中共病毒后患心肌炎的可能性是那些已经接种疫苗的人的六倍。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+丹麦卫生局提到了一项尚未公布的北欧研究的数据，这些数据现在将被送到欧洲药品管理局（EMA）作进一步评估，并补充说，最终数据预计将在一个月内公布。
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+瑞典和丹麦表示，他们现在推荐使用辉瑞生物技术公司（PFE.N）的Comirnaty疫苗。
+
+EMA的安全委员会在7月得出结论，在接种Comirnaty或Spikevax疫苗后，会出现心脏炎症，更常见于年轻男性在第二针后。
+
+加拿大卫生官员上周说，数据表明，与辉瑞/BioNTech公司的疫苗相比，莫德纳公司的疫苗接种后，罕见的心脏炎症的报告案例相对较多。
+
+尽管两种疫苗都是基于mRNA技术，但辉瑞公司的疫苗是每剂含有30微克的疫苗，而Moderna的疫苗为每剂含有100微克。
+
+来自美国两个疫苗安全监测数据库之一的数据也表明，莫德纳疫苗在年轻人中可能有更高的心肌炎风险。
+
+在美国，该疫苗未被批准用于18岁以下人群。
+
+**文章来源:**[https://www.reuters.com/business/healthcare-pharmaceuticals/sweden-pauses-use-moderna-covid-vaccine-cites-rare-side-effects-2021-10-06/](https://www.reuters.com/business/healthcare-pharmaceuticals/sweden-pauses-use-moderna-covid-vaccine-cites-rare-side-effects-2021-10-06/)
+
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – Freeearth
+编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
