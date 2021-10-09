@@ -2,45 +2,18 @@
 ---
 
 
-## 中国工商银行将限制外汇和大宗商品交易
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1581904/)
+## ISIS在阿富汗发动自杀炸弹袭击，目前已经造成50人死亡
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1581933/)
 
-作者：纽约香草山农场 – 四季
+翻译：神奇四侠
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Snipaste_2021-10-08_21-01-32.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/Snipaste_2021-10-08_21-04-40.png)
+这次袭击发生在昆都士地区的一座什叶派清真寺，发动袭击时民众正在祈祷。昆都士的文化和信息主任马蒂乌拉-罗哈尼告诉记者，初步证据显示这是一起 “自杀式爆炸袭击”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+ISIS声称对此次屠杀至少50名祈祷者的事件负责。
 
-
-
-
-
-据[ONA](https://www.oann.com/chinas-icbc-to-restrict-some-forex-and-commodities-trading/)网站10月8日报道，中共国最大的银行 – 工商银行（ICBC）周五表示，它将限制涉及外汇和商品交易的某些类型的零售业务。与此同时，中共监管机构还采取了一系列行动，包括抑制商品价格上涨，禁止加密货币交易和限制房地产投机。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1174-1-2021-10-08T102252Z_1_LYNXMPEH970GQ_RTROPTP_0_CHINA-BANKS-RESULTS_1.jpg)2019年4月1日，中国工商银行（ICBC）北京分行门口的工商银行标志。（REUTERS/Florence Lo）
-
-工商银行将从10月17日开始，暂停“外汇业务账户”新账户的开立，并还将在涉及能源、基本金属、农产品和贵金属指数的类似交易业务中停止吸收新客户。从11月14日起，现有客户将被禁止开设新的交易仓位。
-
-而最近几个月，工商银行和其他银行，包括中国银行和招商银行，关闭了允许个人客户押注非人民币货币的外汇交易业务。
-
-从限制煤炭的进口、大面积的停电到银行停止外汇业务，中共外汇短缺的情况可见一斑，经济崩溃一触即发。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
-
-编辑/校对/发稿：小鹿
+- 新闻来源：[太阳报](https://www.thesun.co.uk/news/16368002/jihadi-maniacs-blow-themselves-up-in-friday-prayer-in-afghanistan-killing-100-worshippers/)
+- 图片来源：[太阳报](https://www.thesun.co.uk/news/16368002/jihadi-maniacs-blow-themselves-up-in-friday-prayer-in-afghanistan-killing-100-worshippers/)
 
 
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+校对发布：Ada （马德里）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

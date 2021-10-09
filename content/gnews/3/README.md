@@ -2,27 +2,173 @@
 ---
 
 
-## 恐引发心脏疾病，瑞典和丹麦暂停年轻人接种莫德纳新冠疫苗
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1582227/)
+## 今年起始，是中共百年大计的开始
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1582254/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/100820-1.jpg)
-**编辑摘要：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/154-ax8p9-gk4ic.jpg)
+[https://gtv.org/video/id=6160255ad2e2b8174872aeda](https://gtv.org/video/id=6160255ad2e2b8174872aeda)
 
-据法国国际广播电台10月8日报道，瑞典卫生局6日宣布，暂停为1990年以后出生或30岁以下的年轻人接种莫德纳疫苗。卫生局在声明中表示，有清晰的证据证明接种莫德纳疫苗与出现心肌炎（Myocarditis）和心包炎（pericarditis）之间的关系，特别是在接种第二剂疫苗后，接种者出现心肌炎和心包炎的可能性更高，特别是年轻男子出现心脏问题的几率更大。
+**郭文贵
+Miles Guo**
 
-同为北欧国家的丹麦也于同日宣布，“出于审慎原因”，暂停为18岁以下的年轻人接种莫德纳疫苗。而早在今年6月份，美国疾控中心（CDC）也在相关的声明中表示，年轻男子接种新冠疫苗后出现心肌炎的风险在增加。
+今年的5月份列为中共国的百年大计的备战状态
+En mayo de este año, representa como el estado de preparación para el plan del centenario del PCCh
 
-[新闻原文链接](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20211007-%E5%BF%A7%E5%BC%95%E5%8F%91%E5%BF%83%E8%84%8F%E7%96%BE%E7%97%85%EF%BC%8C%E4%B8%B9%E9%BA%A6%E5%92%8C%E7%91%9E%E5%85%B8%E6%9A%82%E5%81%9C%E5%B9%B4%E8%BD%BB%E4%BA%BA%E6%8E%A5%E7%A7%8D%E8%8E%AB%E5%BE%B7%E7%BA%B3%E7%96%AB%E8%8B%97)
+啥叫备战
+En qué consiste la preparación para el plan
 
-***编辑：【英国伦敦喜庄园编辑部】***
+干倒美国美元, 干倒欧元经济
+Derribar al dólar estadounidense y la economía del euro
 
-*编辑：仙女儿-文善*
+今天要再重申一遍啊
+Hoy les quiero repetir de nuevo
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+病毒是共产党制造的生化病毒
+El virus es un virus bioquímico elaborado por el Partido Comunista
 
+疫苗灾难是再次的生化战争
+El desastre de la vacuna es una vez más la guerra bioquímica
 
-编辑：【英国伦敦喜庄园编辑部】
+是生化战争的深入化
+Es la profundización de la guerra bioquímica
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+而且所有有计画地培养出疫苗
+Además, todas las vacunas se cultivaron de manera planificada
+
+高传播率
+Alto porcentaje de transmisión
+
+高致死率
+Alta tasa de letalidad
+
+最后是通过疫苗
+Finalmente, a través de las vacunas
+
+疫苗经济、疫苗政治、疫苗军事
+Economía de las vacunas, política de las vacunas, ejército de las vacunas
+
+疫苗控制世界
+La vacuna controla al mundo
+
+就是共产党干的
+Todo esto es hecho por el Partido Comunista
+
+跟共产党合谋的
+Conspirado con el Partido Comunista
+
+就是美国的华尔街和美国的几个被收买的像CDC的一些官员
+Es el Wall Street y algunos funcionarios en los EE. UU. que fueron sobornados como los Centros para el Control de Enfermedades, Ministerio de Salud y Bienestar (CDC)
+
+像欧洲的一些官员
+Así como los funcionarios de Europa
+
+包括世界上的黑暗组织, 非法组织
+Incluyendo las organizaciones oscuras e ilegales en el mundo
+
+跟共产党一起干的
+Lo han hecho con el Partido Comunista
+
+王岐山就是这个非法组织的核心代表
+Wang Qishan es el principal representante de esta organización ilegal
+
+这也是最近不能弄死他的根本原因
+Esta es también la razón fundamental por la que no han podido matarlo recientemente
+
+共产党还需要他
+El Partido Comunista todavía lo necesita
+
+任何国家任何好人坏人组织
+Cualquier país, cualquier buena o mala organización
+
+不光需要好人还需要坏人
+No solamente se necesitan buenas personas sino también malas personas
+
+真的
+Es verdad
+
+这就是个游戏规则
+Esta es la regla del juego
+
+你接不接受, 它就是这样
+No importa si aceptas o no, es así
+
+现在他就发生了
+Ahora está sucediendo
+
+那么现在告诉大家的事情
+Entonces déjame decirle una cosa a todos
+
+共产党的停电
+El apagón del Partido Comunista
+
+包括共产党的现在整个恒大的事件的控制
+Incluyendo el control actual del Partido Comunista con Evergrande Group
+
+有序控制
+Un control ordenado
+
+但是记住啊
+Pero recuerden
+
+明确的(说)外债一概不管
+Claramente (digamos) sin tomar en cuenta de las deudas externas
+
+不但不管啊
+No solamente no tomarlo en cuenta
+
+对碧桂园, 对平安集团, 所有海外的外债一概不用管
+Igualmente con el Country Garden, Ping An Group, ignoran todas las deudas externas en el extranjero
+
+大家看出啊
+Todos pueden notar
+
+共产党内部的所有的政策
+Todas las políticas dentro del Partido Comunista
+
+内部
+La parte interna
+
+要摸底, 问话, 控制
+Hay que averiguar, preguntar y controlar
+
+地方部门分区解决
+Ejercer la resolución de la división del sector local
+
+国际上债务一概不管
+Ignorar las deudas internacionales
+
+大家现在看出来想干啥了吧
+Ya todos se dieron cuenta lo que quiere hacer, cierto
+
+我宁可断我九指, 我伤你一指
+Prefiero cortar mis nueve dedos para lastimar un dedo tuyo
+
+我宁可我杀我一万, 我杀你一千
+Prefiero herir diez mil de mis personas para matar mil de las tuyas
+
+习绝对在这方面有这个狠劲
+Xi definitivamente es cruel en esta parte
+
+他对内. 他对江家不敢对, 对曾不敢
+Él no se atreve con la parte interna, la familia Jiang, Zeng
+
+对王岐山不敢, 对孟不敢
+Wang Qishan y Meng
+
+他对他们(欧美)绝对敢
+Pero si se atreve con EE. UU y Europa
+
+**——————————————————**
+
+**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1445306784030212100?s=24](https://twitter.com/se1y7cblljselva/status/1445306784030212100?s=24)
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
