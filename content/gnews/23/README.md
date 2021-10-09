@@ -2,30 +2,23 @@
 ---
 
 
-## 世卫组织数据库报告了2021年超过200万例潜在的疫苗刺伤，其中绝大多数是女性
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1583101/)
+## 秘翻在线：华刚矿业违反与民主刚果签署的60亿美元矿产换基建协议
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1583134/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GettyImages-1343647441-640x426-5.jpg)世界卫生组织总部的世界卫生组织标志-网络图片
+#### 翻译/撰稿：zzballack
 
-（生活新闻）— 世界卫生组织公开访问的数据库记录被报告的医药产品的潜在副作用，仅在2021年就有超过200万例新冠疫苗导致的事故，其中69%的病例发生在女性患者中。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-2-3.jpg)图片来源：彭博社
+据《路透社》10月8日报道，总部设在挪威的石油、天然气和矿产行业的国际监督机构“采掘业透明度倡议”（EITI）的一份草拟报告指出，民主刚果与中共投资人最早于2008年签订的60亿美元基础建设换矿产协议不公正，应重新谈判。
 
-VigiAccess由世界卫生组织(WHO)于2015年创立，该数据库允许公众访问WHO的数据。
+EITI追踪石油业和矿业的营收现金流，成员包括民主刚果等50多国。路透社周五看到的这份尚未公布的报告涉及民主刚果前总统卡比拉（Joseph Kabila）的政府在2008年签署的一项协议。该协议说，中共国有企业中国水利水电建设集团（Sinohydro Corporation）和中国中铁（China Railway Group Ltd），同意将刚果的华刚矿业（Sicomine）钴铜开采合资企业的所有利润，用在当地修建道路和医院等基础设施。正是在此基础上，刚果议会同意免除华刚矿业的所有税收。
 
-根据VigiAccess的数据，截至今天，2021年已报告了2,199,476例新冠疫苗接种后的不良反应，其中866,558例（39%）发生在18-44岁的人群中，1,517,989例（69%）发生在女性人群中。
+然而报告指出，不仅承诺建造的基础设施项目只完成了极少数，而且华刚矿业的资金大量流向了中共国。特别是在2017年对该协议进行秘密修订后，华刚矿业大大减少了用于基建设施的利润额。他们的利润只有65%用于投资，其余35%归股东所有，这一变化可能会进一步减缓基础设施的建设步伐。报告说，这项修正案侵犯了民主刚果的国家安全利益，因此呼吁民主刚果政府取消2017年秘密签署的修正版协议。
 
-该数据库的药物不良反应 (ADRS) 选项卡允许公众查看已报告伤害的性质，包括血液和淋巴系统疾病、心脏疾病、肌肉骨骼和结缔组织疾病、生殖系统和乳房疾病、呼吸、胸和 纵隔疾病，以及许多其他疾病。
+报告还指责中共获得了华刚矿业68%的股份，而刚果人只拥有32%的股份，尽管他们贡献了所有的矿物资产和32%的企业启动资金。
 
-具体来看一些疾病和疾病，令人震惊的副作用数量包括阴道出血、心肌炎、脑肿瘤（肿瘤）、自然流产、胎儿死亡、死胎、肺栓塞、肾功能衰竭、胎儿生长受限、深静脉血栓形成以及新冠病毒、流感、肺炎和100多种其他疾病的发作。
+这份报告虽然没有法律约束力，但其主要结论将帮助民主刚果在和中共投资人重谈采矿合约时争取到更有利条件。民主刚果总统齐塞克迪（Felix Tshisekedi）的政府先前表示，这份合约并不公平。他们目前正在重新审查2008年的协议，以及中共国洛阳栾川钼业集团(China Molybdenum)的腾克丰古鲁姆（Tenke Fungurume）矿场储量。
 
-新闻链接：[WHO database reports over 2 million potential COVID jab injuries in 2021, vast majority in women](https://www.lifesitenews.com/news/who-database-reports-over-2-million-potential-covid-jab-injuries-in-2021-vast-majority-in-women/?utm_source=featured&amp;utm_campaign=usa)
+民主刚果总理卢孔德（Sama Lukonde Kyenge）10月7日在一场矿业记者会上表示：“必须要做些调整。”民主刚果是电池所需金属钴的全球最大产国，也是非洲最大的铜矿开采国。刚果政府这一系列作为，是对掌控大部分刚果矿业的中共投资人的罕见反抗。彭博社上周报道说，民主刚果政府已经成立了一个委员会来审查矿产换基础设施交易，并调查其“主要的法律、技术和财务问题”。
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+新闻来源：[Congo’s $6 bln China mining deal ‘unconscionable’, says draft report](https://www.reuters.com/business/congos-6-bln-china-mining-deal-unconscionable-says-draft-report-2021-10-08/)

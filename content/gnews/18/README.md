@@ -2,23 +2,181 @@
 ---
 
 
-## 浅谈新中国联邦未来的国家模式
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1583128/)
+## 2015年郭文贵先生和傅政华通话录音的真相
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1583184/)
 
-撰稿人：Microkevin
-![](https://assets.gnews.org/wp-content/uploads/2021/10/未来.png)
-图片来自网络
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-17.jpg)https://gtv.org/video/id=61607e1cd2e2b8174872d6dc
+整个这说明了七哥是有核弹的
+Todo esto demuestra que yo tengo la bomba nuclear
 
-七哥近期的几次大直播，其中谈到了喜币，新中国联邦的未来国家模式，以及未来人类的火星，月球等太空计划不禁让我产生了很多的联想。内心激动不已， 对未来充满了想象，新中国联邦未来的国家模式是什么样？她和喜币还有未来的人类太空计划有什么联系呢？
+否则他不会这样来找我
+Sino él no vendría a buscarme
 
-我个人认为新中国联邦一定不是像传统意义上的国家那样以地域为基础，有明显的地理界线。新中国联邦应该是基于对爆料革命的共同信仰和价值观的认同。比如正道主义，唯真不破，求真，求善，求正义的观念的认同而达到彼此互相认同的一群人组成的一个群体。这个群体资源，信息共享，相互帮扶，共同努力实现既定目标，彼此之间也会按照这个共同的信仰和价值观去做人做事。而这个群体不一定非得生活在同一个区域，新中国联邦人也不一定全都是黄皮肤，黑眼睛的中国人，可以是不同肤色，不同民族的人，只要是我们信仰和价值观一致就可以。
+傅三就是傅卫华
+El tercer hermano de Fu es Fu Weihua
 
-我认为，这样的未来新中国联邦人的雏形，我想就是我们现在的各农场的战友们。我们因认同爆料革命的正道主义信仰和唯真不破等价值观，以及坚定的消灭ccp的决心而凝聚在一起，互相帮扶，资源共享，并共同努力朝目标前进，而彼此真诚相待。英喜的大卫兄弟在10月3日大直播中说到：“只要是真战友，都是兄弟姐妹。”最简单扼要的阐明了战友们之间的背靠背的关系。
+他的三弟跟我联络
+Su tercer hermano menor se comunicó conmigo
 
-另外，随着科技的发展，如果人类能够脱出地球，定居月球和火星，迈向星际文明的话，那个时候的货币一定只能是虚拟货币，也就是我们的喜币。干掉ccp只是实现新中国联邦以及让人类走向星际文明这个愿景目标下的一个中间目标。在这期间我们要让全世界更多人人认同我们爆料革命的信仰和价值观。让更多的人愿意加入新中国联邦。所以无论愿景目标还是中间目标的实现都需要我们战友积极传播爆料革命以及病毒，疫苗真相和青蒿素，羟氯喹，伊维菌素等救命的药剂。
+现在党内所有听我爆料的人
+Ahora las personas que están en China y están escuchando mi Movimiento de Denunciantes
 
-战友们传播真相助力消灭ccp以及拯救世人的同时，还能找到认同我们爆料革命信仰和价值观的各国各族人民，他们若认同我们爆料革命的信仰和价值观自然会愿意加入新中国联邦，成为新中国联邦人。我相信这种以正义和善良的共同信仰和价值观而建立的国家一定会比传统意义上的国家更加的牢固，可靠。能给人们带来更多的欢愉和喜悦。
+你们记住
+Ustedes recuerden
 
-战友们，耐心点，扎实做事。不要心急。我们的理想一定会实现。人类一定会走向下一个星际文明的时代。
-本文纯属个人观点。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+5年前你听那个录音的时候
+Hace cinco a?os atrás cuando escuchaste esa grabación
+
+你们得到的答案是什么
+Cuál fue la respuesta que obtuvieron
+
+说这是郭文贵编的虚假录音
+Dijeron que este es una grabación falsa inventada por Guo Wengui
+
+根本不是傅政华的
+No fue de Fu Zhenghua
+
+傅老三也根本不认识郭文贵
+El tercer hermano de Fu no conoce a Guo Wengui
+
+结果傅政华是声泪俱下的给解释
+Resulta, Fu Zhenghua explicaba entre lágrimas
+
+然后又写了东西
+Y escribió algo
+
+中央
+La central
+
+最后专案组认为这是郭文贵自己录的
+Finalmente, el grupo de proyecto pensó que fue grabado por el propio Guo Wengui
+
+假的傅政华的变音录音
+Es la grabación falsa de cambio de voz de Fu Zhenghua
+
+傅老三说没跟郭文贵接触
+El tercer hermano de Fu dijo que no se había puesto en contacto con Guo Wengui
+
+跟郭文贵的员工有接触
+Pero si con el empleado de él
+
+仅此而已, 也没拿过钱
+Solamente así, y que tampoco recibió dinero
+
+最后中央认可, 傅没事了
+Finalmente, la central lo aceptó y por eso Fu no tuvo problema
+
+如果当时傅这个谎言被戳穿
+Si en aquel momento la mentira de Fu fue descubierta
+
+他就到不了今天了
+No sobreviviría hasta hoy
+
+我今天告诉你们
+Hoy les digo
+
+傅政华那个真正的录音的变声的鬼诀
+El verdadero truco fantasma de Fu Zhenghua para cambiar la voz
+
+不在乎他恐惧
+No importa su temor
+
+傅政华的假录音是他的司机
+La falsa grabación de Fu Zhenghua es de su conductor
+
+真正讲话的是他司机
+Quien realmente habló fue su conductor
+
+他的私人司机
+Su conductor personal
+
+他跟他前妻离婚了
+él se divorció con su ex esposa
+
+前妻住在北京国际饭店
+Su ex esposa vive en un hotel internacional de Beijing
+
+跟日本一家公司搞娱乐
+Estableció una empresa japonesa de entretenimiento
+
+就是他派去监督他老婆的
+Fue él quien mandó a vigilar a su esposa
+
+这个司机怎么着你知道吗
+Qué pasó con este conductor, ?lo sabes?
+
+已经死了
+Ya está muerto
+
+傅政华不像你想(的那样)
+Fu Zhenghua no es como tú piensas
+
+他太了解共产党了
+él conoce muy bien al Partido Comunista
+
+他让司机在旁边
+él hizo que el conductor estuviera a su lado
+
+他给司机说
+Le dijo a él
+
+司机按照这个回答
+Que respondiera como él lo diga
+
+你查出这录音也不是我
+Si llegas a descubrir de esta grabación tampoco fui yo
+
+最后报告了他
+Al final le informó
+
+这录音不是傅
+Que esta grabación no es de Fu
+
+你只要但凡有一点常识
+Siempre y tengas un poquito de conocimiento
+
+拿软件一查肯定不是傅
+Investigas a través de una aplicación podrás saber que no es de Fu
+
+他的语音
+Su acento
+
+他是北京发音
+Su acento es de Beijing
+
+口音河北腔和北京腔
+El acento Hebei con el de Beijing
+
+不是他
+No es él
+
+但是他所有的话都是安排好的
+Pero todas sus palabras ya lo había planeado
+
+你看小三(傅卫华)这事儿他不接茬
+Mira al tercero (Fu Weihua) él no se ocupa de este asunto
+
+他怕你泄漏信息
+él teme a que tú revelas la información
+
+傅卫华是他的核心
+Fu Weihua es su núcleo
+
+他的三弟和傅政华的孩子在加拿大藏的钱
+El dinero que escondió en Canadá el tercer hermano y el hijo de Fu Zhenghua
+
+绝对富可敌国
+Es de tanta riqueza que puede ser enemigo de un país
+
+原视频日期：10/06/2021
+原视频网址： https://twitter.com/se1y7cblljselva/status/1445657164916269059?s=24
+视频时间段：0:00-1:54
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

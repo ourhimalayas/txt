@@ -2,37 +2,32 @@
 ---
 
 
-## 脸书旗下平台Instagram、WhatsApp、Facebook Messenger一周内第二次宕机
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1582700/)
+## 全球逾 200 名医学界人士力荐“维生素 D 可预防 COVID-19 感染、重症及死亡”
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1582853/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/facebook-whatsapp-instagram-major-outage_thumb800.jpg)
-图片来源：techadvisor.com
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 9/10/2021 **
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Vintage-Botanical-Youtube-Banner.jpg)
+全球超过 200 名医生和科学家联署向世界发出公开信，呼吁世界各地的所有政府和医疗保健系统**立即向成年人推荐和分发维生素 D 以帮助治疗新冠病毒感染并减少住院、ICU 入院和死亡的发生**。
 
-整理报道：小红帽
+#### **研究显示：补充维生素 D 对防治新冠病毒至关重要**
 
-社交媒体巨头脸书（Facebook）及其子公司Instagram、Messenger和WhatsApp在不到一周的时间内第二次发生故障，促使竞争对手将其客户从危机中拯救出来。
+最近，一项来自都柏林三一学院和爱丁堡大学的最新研究报告显示，维生素 D 水平对 COVID-19 有至关重要的影响。超过 50 万英国人参加了这项研究，研究人员首次将基因预测和 UVB 预测的维生素 D 水平联合，并对每位参与者在 COVID-19 感染之前的环境 UVB 辐射进行了单独评估。
 
-根据网络侦测服务机构DownDetector的说法，Facebook及其子公司在周五对全球用户来说神秘地崩溃了。这是本周社交媒体巨头的第二次重大故障。
+通过比较这两个变量，研究人员发现，与基因预测相比，UVB 预测的维生素 D 水平与环境中测量的维生素 D 浓度的相关性强三倍。同时，研究数据亦表明，感染 COVID-19 之前个人居住地的环境 UVB 辐射与住院和死亡呈负相关。
 
-这家价值数万亿美元的公司承认中断影响了其各个平台，并使用与周一的故障完全相同语调来“道歉”。故障持续了六个小时。**那些依赖该平台的用户几乎无法工作或交流，只能去探索其他平台，比如Telegram，就在该故障期间获得了数百万用户。**
+都柏林三一学院医学院流行病学副教授、该研究的高级研究员 Lina Zgaga 教授表示：“我们的研究进一步证明，维生素 D 可以预防严重的 COVID-19 感染，因此，**补充维生素 D 对防治新冠病毒至关重要**。”
 
-由于公司股价暴跌，周一的故障使创始人马克·扎克伯格(Mark Zuckerberg)损失了超过 60亿美元。**据《每日邮报》报道，这次故障被归咎于一次拙劣的“服务器更新”，是DownDetector记录以来最大的一次。**
+#### **阳光是维生素 D 最纯净、最重要的来源**
 
-**Facebook和Instagram的用户开始在推特上思考没有这些平台的未来，在公众眼中，这些平台似乎正在崩溃。**
+值得一提的是，大多数关于维生素 D 的研究都集中在维生素 D 补充剂及其对 covid-19 结果的影响上。这项研究透过调查每日阳光照射的作用，证明相比维生素 D 补充剂，增加在日常生活接触阳光会具有更强的免疫反应，因为环境中的紫外线 B (UVB) 辐射是皮肤内维生素 D 生成的前提，亦是维生素 D 最纯净、最重要的来源。
 
-Facebook最近运气不佳，一名该公司的雇员弗朗西丝·豪根（Frances Haugen）向媒体举报，并出现在华盛顿举行的听证会上，坚称该平台的产品“伤害了儿童，引发了分裂、削弱了我们的民主”，并将利润置于道德责任之上。“
+对于这一点，Lina Zgaga 教授强调指，“虽然照射阳光是最佳选择，但鉴于维生素 D 补充剂既安全又易得，绝对建议服用补充剂并预防维生素 D 缺乏症，尤其是在即将到来的冬天。”
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+**有评论认为**，过去两年，各国政府的公共卫生机构一再鼓动及强制整个社会的人都待在室内，在封闭、隔绝的环境下生活，更用行政手段强推有 100 多种副作用的新冠疫苗。
 
-**参考新闻：**[Not again?! Facebook, Instagram, Facebook Messenger, and WhatsApp offline for second time in a week — RT World News](https://www.rt.com/news/537020-facebook-instagram-down-again-fail/)
+这种恐怖行为不仅有助削弱人口，增加人皮质醇应激激素，同时抑制身体获得恢复免疫系统所需的维生素 D，促进人们在感染新冠病毒后，疾病往严重、死亡的方向发展。
 
-***编辑：小红帽 /翼族
-发布：小红帽***
+* * *
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源｜[公开信](https://vitamind4all.org/letter.html) /  [Greatgameindia](https://greatgameindia.com/vitamin-d-protects-covid-19/)
+声明｜ 以上观点仅代表作者
