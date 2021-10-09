@@ -2,18 +2,27 @@
 ---
 
 
-## 疫苗經濟
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1582354/)
+## 美团因反垄调查被中共罚款5.3亿美元
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1582483/)
 
-作者：HimaFAFA
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-在各國政府相繼頒佈了多條出行限制令后，接種新冠疫苗慢慢成為一種生活的必需品。如果沒有接種疫苗，你不能出行，不能去銀行，不能在餐館用餐，更有甚者可能被公司辭退。各項政策就是變相强制人們接種新冠疫苗。暫且不談這種新型疫苗是否對人體有潛在傷害，我們且説説他是否真的如政府宣傳的那樣有用？新冠病毒在經歷過近2年的時間，已有至少四種變種，分別是Delta, Alpha, Beta 和Gamma。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/text-SC-7.png)
+文章仅代表作者本人观点，与Gnews无关
 
-根據郭文貴在10月7日直播中談到的，疫苗廠商願意花錢去游説澳大利亞政府推廣疫苗的接種。疫苗的成本約在6-8美分，但定價確實30-40美金不等。設想一下如果在一個國家推廣疫苗或變相强制執行，單接種一劑疫苗廠商的利潤有多少？人們只要接種了第一劑就會接種第二劑。因爲如果在規定的時間内不接種第二劑的話，以接種的第一劑疫苗也會逐漸失效。以此類推，現在政府又開始籌備第三針所謂的加强針的接種了。接種後第一針的人們完全就只能跟著政府和疫苗廠商的步調每隔一段時間持續的接種疫苗。試問這操作能給疫苗廠商帶來多少的穩定的持續性的利潤？如果它們的產品真的是有效的爲什麽還要花錢去推銷自己？爲什麽還要一針接著一針的接種？如果它們的產品真的安全有效又爲什麽政府豁免了疫苗廠商，就接種疫苗后人體產生的問題可以免責？深入思考，人的一切行爲都離不開經濟思維。看似短期内賺的盆滿鍋滿的疫苗公司和受賄的政府官員，他們所謂的疫苗經濟是以全人類的人身安全做賭注。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-**關注我們**
+视频参看： 2021.10.08晚GTV新闻访谈
 
-Discord 賬號
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-Gettr 賬號
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[https://gtv.org/broadcast/watch/6160e226304e992109b1f9ac](https://gtv.org/broadcast/watch/6160e226304e992109b1f9ac)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
