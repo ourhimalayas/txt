@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/9/2021 1:35 PM (UTC)`
+
+Taiwan is in great danger: Xi Jinping addresses the 110 years anniversary of Xinhai Revolution , releases strong signal to unify Taiwan by force<br/><br/>台湾危险了：习近平发表辛亥革命110周年演讲发出强烈信号，坚决要完成武统台湾<br/>
+![img](https://media.gettr.com/group42/getter/2021/10/09/13/35/9cdb516c-cd1f-5ff9-5f88-03e3aeafc62c/out.jpg)
+
+---
+
 `@miles 10/9/2021 4:22 AM (UTC)`
 
 10/08/2021  Miles Guo’s GETTR: The vaccine disaster is changing the world everyday and every moment, the truth will be revealed eventually, all people pushing or enforcing the vaccine mandates will be charged and put to trail in courts; in terms of the world finance and economy after the vaccine disaster, only crypto currency(ies) and digital economy survive and boom, and the new biotechnology and advanced technology will make a change on the damages and harm caused by the Covid vaccines and the CCP virus on humanity<br/><br/>10/08/2021 文贵盖特：疫苗灾难每时每刻都在改变着人类和世界，真相一定会出来，强推疫苗的人都会受到审判；疫苗灾难后的世界金融、经济只有虚拟货币、数字经济，新的生物技术和高科技会改变疫苗和病毒对人类的危害<br/>
@@ -287,13 +294,6 @@ A Pfizer scientist ran away when asked by an investigative reporter to publicly 
 
 大胡子医生：疫苗可能造成多种致命疾病，引发潜在的种族灭绝事件<br/><br/>Dr. Zelenko: The vaccines may cause various fatal diseases, which could be potentially genocidal
 ![img](https://media.gettr.com/group43/getter/2021/10/06/13/16/724195d5-4ff4-43a1-4a3a-704432081377/out.jpg)
-
----
-
-`@miles 10/6/2021 1:11 PM (UTC)`
-
-Attorney Thomas Renz: If you get the vaccine, you are more likely to get Covid. We will see in court!<br/><br/>托马斯·伦茨律师：如果你接种疫苗，你更有可能感染中共病毒。我们法庭见！<br/>
-![img](https://media.gettr.com/group18/getter/2021/10/06/13/11/98f76fff-ba51-0350-7a99-d39898168574/out.jpg)
 
 ---
 
