@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/9/2021 3:42 AM (UTC)`
+
+10/08/2021 Miles Guo’s GETTR: This world is changing so quickly and dramatically, Facebook, WhatsApp & Instagram is experiencing internal management and technical disasters; Mark Zuckerberg’s sins and crimes run deeply, and it’s not too much to call him “Zucktler” (Hitler)<br/><br/>10/08/2021 文贵盖特：世界变化太快了，Facebook、WhatsApp、Instagram正经历内部管理和技术的大崩溃；扎克伯格罪孽深重，称其为“渣特勒”也不为过<br/>
+![img](https://media.gettr.com/group50/getter/2021/10/09/03/42/bf0a9ba7-a233-8c84-6623-0ef8ff397f3c/out.jpg)
+
+---
+
 `@miles 10/9/2021 3:04 AM (UTC)`
 
 10/7/2021 Miles Guo: During the so-called 120 days of war preparations, the CCP will resume its worldwide campaign of releasing viruses and building biological labs to crush the global economy and financial markets; their objective is to invade and divide up Taiwan [among the ruling families within the CCP] and destroy Japan and Australia. Will they succeed in their evil plans? 90% of the duration of the meeting between Jake Sullivan and Yang Jiechi was dedicated to the purchase of US Treasury bonds.<br/><br/>10/7/2021 文贵直播：中共企图借所谓的备战120天，继续在全世界放毒、建生化实验室，试图全面打击世界经济、摧毁金融市场，攻占、瓜分台湾、弄死日、澳，共产党会得逞吗？杨洁篪、沙利文会面9成在谈购买国债。<br/>
@@ -287,13 +294,6 @@ Attorney Thomas Renz: If you get the vaccine, you are more likely to get Covid. 
 
 10/5/2021 Miles Guo: Only Russia, North Korea, and Pakistan don’t buy the government bonds issued by the Communist China; The Chinese people will have to pay for the price of the collapse of the world’s economy caused due to the fact that the CCP holds the whole world hostage by using the economy.<br/><br/>10/5/2021 文贵直播：全球只有俄罗斯、北朝鲜和巴基斯坦不买中共国国债；中国人将不得不为中共利用经济绑架全世界而导致的世界经济大崩溃而买单！<br/>
 ![img](https://media.gettr.com/group9/getter/2021/10/06/00/91432cc1-dc80-db00-e549-98b08317ae6b/out.jpg)
-
----
-
-`@miles 10/6/2021 12:07 AM (UTC)`
-
-10/5/2021 Miles Guo: When the CCP’s local government debt and “invisible” debt make the whole world’s pension funds and insurance money vanish, the world will get even with the Chinese people, and the history of anti-Chinese atrocities in Indonesia will repeat itself on a global scale!<br/><br/>10/5/2021 文贵直播：当中共的地方债和隐形债让全世界的养老金和保险金蒸发的时候，世界将找中国人算账，而印尼排华的暴行将在全球重演！<br/>
-![img](https://media.gettr.com/group2/getter/2021/10/06/00/07/884c9588-1690-63ee-b6b3-7e1107e58a94/out.jpg)
 
 ---
 
