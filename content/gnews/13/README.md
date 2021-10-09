@@ -2,10 +2,10 @@
 ---
 
 
-## 科学家警告默克公司的所谓新冠&#8221;超级药物&#8221;存在严重的健康风险
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1582601/)
+## 世卫组织数据库报告今年已有超过200万起新冠疫苗伤害
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1582686/)
 
-作者：文真
+作者：AsG諾雅
 
 
 
@@ -19,22 +19,26 @@
 
 
 
-10月7日《巴伦周刊》发表一份报告称，默克公司的中共病毒治疗药物“莫努匹拉韦”是一项被缩短的研究项目，目的是将住院人数减少一半。
+生命新闻（Lifesitenews）10月7日消息，截至当天，世界卫生组织的公开数据库VigiAccess已经记录了2,199,476起接种新冠疫苗后的不良反应，其中866,558起（39%）发生在18-44岁的人身上，1,517,989起（69%）发生在女性身上。
 
-莫努匹拉韦的工作原理是将自身融入病毒的遗传物质中，在病毒复制过程中引起大量的突变，从而杀死病毒。在一些实验室测试中，该药物还显示出能够整合到哺乳动物细胞的遗传物质中，在这些细胞复制时引起突变。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-43.jpg)
-一些研究过该药物成分的科学家担心该药物会导致癌症和出生缺陷。科学家警告称，这种抑制病毒的方法有潜在的危险，可能在人体内失去控制。在没有更多数据的情况下，不应该给年轻人，尤其是孕妇，提供这种药物。
+VigiAccess数据库的药品不良反应（ADRS）选项卡没有对疫苗生产商进行区分，但这个令人震惊的伤害数字里面包含了阴道出血、心肌炎、脑瘤（肿瘤）、自然流产、胎儿死亡、死胎、肺栓塞、肾衰竭、胎儿生长受限、深静脉血栓，以及新冠肺炎等100多种疾病。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-17.jpg)
+大量女性接种疫苗后受到伤害，证实了医疗工作者有关疫苗对妇女影响的说法，他们就新冠疫苗对女性生殖器官和生育能力的影响表示关切。
 
-默克公司还没有公布其动物研究的任何数据，但科学家们认为，需要进行长期的研究才能表明这种药物是否安全。
+今年3月开始，美国爱达荷州的病理学家瑞安-科尔（Ryan Cole）在州政府的支持下告诉公众，他在接种过疫苗的病人身上，看到各种自身免疫性疾病和大量癌症，子宫内膜癌“增加了20倍”，年轻人患罕见的比较厚的黑色素瘤比率大幅增加。他说，接种疫苗后，免疫系统中的杀手T细胞和CD8细胞都在下降。
 
+新冠毒疫苗的长期副作用有待时间验证，但从已知数据来看，其对人类的危害将是极其严重和前所未有的。呼吁立即停止所有的新冠疫苗接种。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-5.jpg)
 参考链接：
-[“Proceed With Caution At Your Own Peril” – Merck’s COVID ‘Super Drug’ Poses Serious Health Risks, Scientists Warn](https://www.zerohedge.com/covid-19/proceed-caution-your-own-peril-mercks-covid-super-drug-poses-serious-health-risks)
+1. [WHO database reports over 2 million potential COVID jab injuries in 2021, vast majority in women](https://www.lifesitenews.com/news/who-database-reports-over-2-million-potential-covid-jab-injuries-in-2021-vast-majority-in-women/?utm_source=featured&amp;utm_campaign=usa)
+2. [Dr. Ryan Cole on the Vaccine: Stop the Insanity Immediately!](https://www.fulcrum7.com/news/2021/8/19/dr-ryan-cole-discusses-the-vaccine)
+3. [Idaho doctor reports a ‘20 times increase’ of cancer in vaccinated patients](https://www.lifesitenews.com/news/idaho-doctor-reports-a-20-times-increase-of-cancer-in-vaccinated-patients/)
 
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-新闻访谈终审：Ryan
+新闻访谈终审：鬼五
 编辑/校对/发稿：为真不破20
 
 **更多资讯，更多关注**

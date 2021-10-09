@@ -15,122 +15,122 @@
 
 ---
 
-### [一种新的德尔塔变种病毒已在新南威尔士州出现](/content/gnews/1/README.md)
+### [秘翻在线：中共若武力攻击台湾 大多数美国人支持出兵干预](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [一种新的德尔塔变种病毒已在新南威尔士州出现](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [瑞士会谈的实质是美国借台湾存亡与中共进行的再次勾兑](/content/gnews/2/README.md)
+### [GTV投资人抗议SEC在线上得到更多相应](/content/gnews/3/README.md)
  ` GTV新闻访谈`
 
-### [2021年10月8日郭先生盖特 — 视频盖特1「9分15秒」](/content/gnews/3/README.md)
+### [瑞士会谈的实质是美国借台湾存亡与中共进行的再次勾兑](/content/gnews/4/README.md)
+ ` GTV新闻访谈`
+
+### [2021年10月8日郭先生盖特 — 视频盖特1「9分15秒」](/content/gnews/5/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [“党媒”讲血统！非公有资本禁止参与新闻采编播发业务](/content/gnews/4/README.md)
+### [“党媒”讲血统！非公有资本禁止参与新闻采编播发业务](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共诗——应天长•神剧](/content/gnews/5/README.md)
+### [樱花灭共诗——应天长•神剧](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [脸书旗下平台Instagram、WhatsApp、Facebook Messenger一周内第二次宕机](/content/gnews/6/README.md)
+### [脸书旗下平台Instagram、WhatsApp、Facebook Messenger一周内第二次宕机](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [针下亡魂｜韩国 20 岁女学生接种疫苗12日后死亡](/content/gnews/7/README.md)
+### [针下亡魂｜韩国 20 岁女学生接种疫苗12日后死亡](/content/gnews/9/README.md)
  ` G&#124;News TAIWAN`
 
-### [不及预期！美国9月非农新增19.4万](/content/gnews/8/README.md)
+### [不及预期！美国9月非农新增19.4万](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共媒体封禁民主活动家荣获诺贝尔和平奖的报道](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [世卫组织数据库报告今年已有超过200万起新冠疫苗伤害](/content/gnews/10/README.md)
- ` GTV新闻访谈`
-
-### [习大神发出以孙灭台、武统台湾的强烈信号](/content/gnews/11/README.md)
+### [《欢乐满屋》女星明确表态坚决捍卫医疗自由](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [冰岛：因心脏炎症停止对所有人接种莫德纳疫苗](/content/gnews/12/README.md)
- ` 墨尔本雅典娜农场`
+### [中共媒体封禁民主活动家荣获诺贝尔和平奖的报道](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [科学家警告默克公司的所谓新冠&#8221;超级药物&#8221;存在严重的健康风险](/content/gnews/13/README.md)
+### [世卫组织数据库报告今年已有超过200万起新冠疫苗伤害](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [中共病毒及其疫苗在全球超限战中的典型案例（五）](/content/gnews/14/README.md)
+### [脸书再次宕机 故障原因与上次不同](/content/gnews/14/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [习大神发出以孙灭台、武统台湾的强烈信号](/content/gnews/15/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [冰岛：因心脏炎症停止对所有人接种莫德纳疫苗](/content/gnews/16/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [科学家警告默克公司的所谓新冠&#8221;超级药物&#8221;存在严重的健康风险](/content/gnews/17/README.md)
+ ` GTV新闻访谈`
+
+### [中共病毒及其疫苗在全球超限战中的典型案例（五）](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [郭文贵Gettr直播摘要和音频 2021.10.8](/content/gnews/15/README.md)
+### [郭文贵Gettr直播摘要和音频 2021.10.8](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [恒大集团遭企业和基金清仓抛售](/content/gnews/16/README.md)
+### [恒大集团遭企业和基金清仓抛售](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [郭文贵GTV直播摘要和音频 2021.10.8](/content/gnews/17/README.md)
+### [郭文贵GTV直播摘要和音频 2021.10.8](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [维州政府停止对法院工作人员的强制接种要求](/content/gnews/18/README.md)
+### [维州政府停止对法院工作人员的强制接种要求](/content/gnews/22/README.md)
  ` 走进澳洲`
 
-### [文贵先生教路：如何用常识劝人别打疫苗](/content/gnews/19/README.md)
+### [文贵先生教路：如何用常识劝人别打疫苗](/content/gnews/23/README.md)
  ` 纽约香草山MOS03`
 
-### [盖特推出直播功能](/content/gnews/20/README.md)
+### [盖特推出直播功能](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [习近平与岸田文雄通话涉及历史与台湾等重大敏感问题](/content/gnews/21/README.md)
+### [习近平与岸田文雄通话涉及历史与台湾等重大敏感问题](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [10/08/2021七哥盖特：西方和江派都在等着习进平出事](/content/gnews/22/README.md)
+### [10/08/2021七哥盖特：西方和江派都在等着习进平出事](/content/gnews/26/README.md)
  ` 秘密翻译组-北美组`
 
-### [岸田首相下令制定新的措施，恢复被疫情打击的经济](/content/gnews/23/README.md)
+### [岸田首相下令制定新的措施，恢复被疫情打击的经济](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦是世界新的希望](/content/gnews/24/README.md)
+### [新中国联邦是世界新的希望](/content/gnews/28/README.md)
  ` 纽约香草山MOS03`
 
-### [恒大之后，平安将是这个世界最大的核弹](/content/gnews/25/README.md)
+### [恒大之后，平安将是这个世界最大的核弹](/content/gnews/29/README.md)
  ` 银河勇气之星`
 
-### [千亿房企新力传资金链紧张！已出现停工……](/content/gnews/26/README.md)
+### [千亿房企新力传资金链紧张！已出现停工……](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳洲前总理访台并发表强硬讲话](/content/gnews/27/README.md)
+### [澳洲前总理访台并发表强硬讲话](/content/gnews/31/README.md)
  ` 走进澳洲`
 
-### [美团因反垄调查被中共罚款5.3亿美元](/content/gnews/28/README.md)
- ` 纽约香草山MOS01`
-
-### [有声| 新冠溯源新证据！中共早在2019年5月已大量采购PCR检测](/content/gnews/29/README.md)
+### [有声| 新冠溯源新证据！中共早在2019年5月已大量采购PCR检测](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [有声| 加拿大威胁公务员限制民众 强推毒针注射](/content/gnews/30/README.md)
+### [有声| 加拿大威胁公务员限制民众 强推毒针注射](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [有声| 中国留学生教堂纵火,国人须慎行防排华!](/content/gnews/31/README.md)
+### [有声| 中国留学生教堂纵火,国人须慎行防排华!](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [秘翻在线：中共以违反垄断禁止法为名对美团罚款5.27亿美金](/content/gnews/32/README.md)
+### [秘翻在线：中共以违反垄断禁止法为名对美团罚款5.27亿美金](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [雅典娜时报-第076期](/content/gnews/33/README.md)
+### [雅典娜时报-第076期](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [法里德博士在中共病毒国际峰会上向意大利参议院发表的演讲](/content/gnews/34/README.md)
- ` 波士顿五月花农场`
-
-### [与中共国的战争5：战争的最终走向——没有胜者](/content/gnews/35/README.md)
+### [文·贵天成——文贵先生谈“G币-喜币”（一）](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文·贵天成——文贵先生谈“G币-喜币”（一）](/content/gnews/36/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美一民调显示约七成家长反对学生强制接种疫苗](/content/gnews/37/README.md)
+### [美一民调显示约七成家长反对学生强制接种疫苗](/content/gnews/38/README.md)
  ` HimalayaRussia`
 
-### [郭文贵先生2021年10月8日盖特视频（9分15秒）全文字版](/content/gnews/38/README.md)
+### [郭文贵先生2021年10月8日盖特视频（9分15秒）全文字版](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [特鲁多禁止未接种疫苗的人出国和谋生](/content/gnews/39/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
 ### [新冠疫苗成分揭秘](/content/gnews/40/README.md)
  ` 中共病毒专栏`

@@ -2,33 +2,53 @@
 ---
 
 
-## 郭文贵GTV直播摘要和音频 2021.10.8
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1582557/)
+## 科学家警告默克公司的所谓新冠&#8221;超级药物&#8221;存在严重的健康风险
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1582601/)
 
-摘要撰稿人： 文俊
-
-音频提供者： 左媛
+作者：文真
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-08-at-11.25.09-PM.png)
 
 
-### 视频：
 
-[视频链接 1：](https://gtv.org/video/id=61605b35304e992109b1c971)
-[视频链接 2:](https://gtv.org/video/id=61605e08304e992109b1cdb4)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-### 音频：
 
-### 摘要：
 
-1. 七哥开的道奇公羊3500
-2. 给班农妹妹送药最开始找的“跑得快”最后才是“悟空”
-3. 钟仁说服同学吃伊维菌素
-4. 七哥十岁开始开车
-5. 到了几台摩托车和跑车还有这台车，GCLUBS会员到美国用，还有私人飞机 豪车都是成本价格给GCLUBS会员使用
-6. 最好的车还是劳斯莱斯，之后坐还是奔驰 开还是宝马
-7. 在西方最贵的就是最好的，在中国恰恰相反，最贵的不一定是最好的，在西方没有人敢欺诈
-8. 大直播电价不是4美分，是4毛钱
-9. 国内战友太了不起了，蚂蚁搬家，把咱们的视频通过各种渠道搬回国内
-10. 到地方不能直播了，下午随时直播
+
+
+
+
+10月7日《巴伦周刊》发表一份报告称，默克公司的中共病毒治疗药物“莫努匹拉韦”是一项被缩短的研究项目，目的是将住院人数减少一半。
+
+莫努匹拉韦的工作原理是将自身融入病毒的遗传物质中，在病毒复制过程中引起大量的突变，从而杀死病毒。在一些实验室测试中，该药物还显示出能够整合到哺乳动物细胞的遗传物质中，在这些细胞复制时引起突变。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-43.jpg)
+一些研究过该药物成分的科学家担心该药物会导致癌症和出生缺陷。科学家警告称，这种抑制病毒的方法有潜在的危险，可能在人体内失去控制。在没有更多数据的情况下，不应该给年轻人，尤其是孕妇，提供这种药物。
+
+默克公司还没有公布其动物研究的任何数据，但科学家们认为，需要进行长期的研究才能表明这种药物是否安全。
+
+参考链接：
+[“Proceed With Caution At Your Own Peril” – Merck’s COVID ‘Super Drug’ Poses Serious Health Risks, Scientists Warn](https://www.zerohedge.com/covid-19/proceed-caution-your-own-peril-mercks-covid-super-drug-poses-serious-health-risks)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Ryan
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
