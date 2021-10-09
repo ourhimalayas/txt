@@ -2,34 +2,33 @@
 ---
 
 
-## 肾衰竭晚期患者因未接种毒针疫苗被拒绝移植手术
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1581659/)
+## 爱达荷州副州长趁州长不在时禁止了疫苗护照
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1581753/)
 
-作者：飞虹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月7日，科罗拉多州一位患有5期肾病，即肾功能衰竭最晚期的女性莱拉尼·卢塔利对媒体表示，因为她与捐赠者杰米·福格纳（Jaimee Fougner）都没有接种新冠病毒疫苗，科罗拉多州的医院拒绝为她们进行肾移植。目前，她们正在努力寻找其他医院。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-3.jpeg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/I.jpg)amsnbc.com
+《国会山》（the hill）10月6日报道了一件有趣的事情，爱达荷州副州长贾尼斯·麦盖钦（Lt. Gov. Janice McGeachin）趁州长不在期间，依据法律，发布了禁止在K-12学校和大学进行强制性检测和接种疫苗的命令。
 
-卢塔利一直在器官移植等待名单中排队。8月份的时候，她还被告知接种新冠疫苗不是接受移植的先决条件。但9月底，她收到了一封来自州卫生联盟（UCHealth）的信件，告诉她相关规定被修改。卫生联盟设定30天的期限要求两人接种，否则将把她们从肾移植名单中删除。
+文章说，爱达荷州副州长贾尼斯·麦盖钦（Janice McGeachin）在州长布拉德·利特尔（Brad Little）不在本州期间担任代理州长，周三（10月6日）发布了一项行政命令，禁止在学校使用疫苗护照和强制进行中共（新冠）病毒检测。
 
-卢塔利用“太多未知因素”暗指新冠疫苗具有危险性，福格纳因为宗教信仰选择不接种。
+“今天，作为代理州长，我修正了布拉德·利特尔州长关于‘疫苗护照’的行政命令，以确保K-12中小学和大学不需要接种疫苗或强制检测，我将继续为你们的个人自由而战！”在明年选举中反对利特尔的麦盖钦在推特上写道。
 
-受控政府和主流媒体仅为背后利益代言，事实不被重视反被掩盖，疫苗接种的逻辑变得越来越荒谬；现代医疗科学在共产主义浸泡下，从治病救人演变为压迫与杀戮。
+利特尔此前发布了一项类似的行政命令，在州机构禁止强制要求提供疫苗接种证明，麦盖钦的举措增加了公立K-12中小学校和大学对提供疫苗证明需求的禁令，也禁止了对试图访问州服务机构人员进行强制性中共（新冠）病毒的检测。据NBC新闻报道，利特尔表示，他将在返回该州后撤销麦基钦的任命。
 
-只有真相，才能解决重重迷雾掩盖下的种种问题，才能将真正的自由还给世界，还给每一个人。
+利特尔在一份声明中说：“我在德克萨斯州履行我作为正式当选的爱达荷州州长的职责，我没有授权副州长代表我行事。”
 
-(本文仅代表作者观点)
+但是爱达荷州的宪法规定，当州长不在本州时，由副州长负责。
 
-参考链接：[Unvaccinated Colorado woman who was denied kidney transplant shares story on ‘Fox & Friends First’](https://www.foxnews.com/media/unvaccinated-woman-colorado-denied-kidney-transplant-hospital)
+这不是麦基钦第一次在利特尔缺席时，做出彻底改变的情况，5月，当州长在田纳西州参加共和党会议时，麦基钦发布了一项命令，禁止在学校和政府大楼使用口罩，利特尔没有发布口罩要求，并称麦基钦的行为是“自私自利的政治噱头”。
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
+根据《纽约时报》收集的数据，自疫情爆发以来，爱达荷州已确认263,000多例中共病毒病例，2,994人死亡，该州大约42%的人口已经接种了疫苗。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（原文完）
+
+美国的州长们如果都像麦盖钦副州长这样果断和旗帜鲜明，邪恶集团的疫苗阴谋估计早就破产了。当然，主张普及接种疫苗的人不见得都是邪恶势力中的一员，但是当一些怪象出现的时候，掩盖疫苗副作用的真相、打压禁声对疫苗副作用的质疑、不顾一切地强制接种等等，就需要斟酌那些别有用心人的动机了！所以，新中国联邦人仍需继续努力，继续唤醒，让更多的人清醒。
+
+原文链接：
+
+[https://thehill.com/changing-america/well-being/prevention-cures/575601-idaho-lt-gov-bans-vaccine-passports-in-governors](https://thehill.com/changing-america/well-being/prevention-cures/575601-idaho-lt-gov-bans-vaccine-passports-in-governors)

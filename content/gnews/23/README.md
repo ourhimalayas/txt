@@ -2,107 +2,55 @@
 ---
 
 
-## 中共一切的基础是维持政治和社会稳定
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1582225/)
+## 喜马拉雅货币及喜马拉雅金融生态系统
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1582260/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/a0lrb-goagz.jpg)
-[https://gtv.org/video/id=61605c37d2e2b8174872c208](https://gtv.org/video/id=61605c37d2e2b8174872c208)
+作者：香草山金融部 – ILOVE战神（文凡）
 
-**郭文贵
-Miles Guo**
 
-就像问这样的问题一样了，就是这么单纯无知这个问题啊
-It’s just like asking such a question, it’s such a simple and ignorant question
 
-这个共产党它整个14亿人口，十几万亿美元的一个东西啊
-This Communist Party is controlling 1.4 billion people, they are worth more than ten trillion US dollars
 
-他整个宏观经济里边，他一切一切，你可以看到
-You can see in its entire macroeconomics and all of everything
 
-他一切的基础都是维持政治和社会稳定
-its foundation of everything is to maintain political and social stability
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-15.png)
 
-而且他不关心你民生，也不关心你什么资本金融市场
-and he doesn’t care about your people’s livelihood, nor does he care about your capital and financial markets
 
-这是根本两回事儿，
-These are two different things
 
-外国人就是一切以金融市场
-Foreigners focus on everything with the financial market as the core
 
-你看川普总统，你看皮特 纳瓦罗的书里面写
-You look at president Trump, you look at the Peter Navarro’s book
 
-川普总统为啥不敢更猛烈的对付中共？
-Why doesn’t President Trump dare to deal with the CCP more vigorous？
+喜马拉雅货币将为全球加密货币市场提供最佳的用户体验，令世界上的每个人都能掌握自己的财务自由。
 
-就三个担心
-There are three worries
+加密货币浪潮，正在颠覆传统的金融体系，建立更加高效、透明、平等、包容的金融系统。但目前市场上的加密货币，还有很多不成熟的地方，尤其是安全性问题，不仅交易费用高昂、市场价格波动性大，市场交易流通性、缺乏客户服务以及政府不易监管也严重缺乏。
 
-第一担心和中国开战
-First worry is about going to war with China
+喜马拉雅货币通过喜马拉雅交易所（Himalaya Exchange）、喜马拉雅支付（Himalaya Pay）、喜马拉雅币（Himalaya Coin/HCN）、喜马拉雅美元（Himalaya Dollar/HDO）以及建立相关的一整套生态系统，全方位的解决上述所有的问题，为用户提供经济、安全、高效、便捷的加密货币产品与服务。
 
-第二担心股票市场
-Second worry is the stock market
+喜马拉雅货币，混合了以太坊和Quorum区块链技术，智能合约经过专业审计，具备处理大量交易的能力，交易费用低廉，隐私性强，能够实现无缝快速支付，并可以对抗加密货币市场的波动性，极大的弥补了现有加密货币基础设施的不足。
 
-第三担心跟中共的那个第三个贸易
-Third worry is the trade with the CCP
+喜马拉雅交易所，由已验证会员组成的市场和强大的平台交易规则给与其会员信任和信心，给与全球监管者信心和肯定，并降低交易对手的风险。
 
-你去想想，你看七哥从2017年爆料说到今天
-Think about it, look at QiGe(Miles) who blower the whistle from 2017 to today
+喜马拉雅生态系统，汇聚了众多商家和知名品牌。它联通全球市场，为零售商和投资者创造独立价值，为消费者提供丰富、独家的产品和服务，并因此极大的提高了加密货币的流通性。
 
-我告诉你我说什么都不会发生
-I told you so, I said there will be nothing happen
+喜马拉雅支付，采用军用级网络安全协议，双重交易技术以确保提供准确和可靠的分类账，可以提供高效的数字资产保护，生态系统内的无缝资产恢复，并很好的保护会员的私人数据。
 
-不要对川普抱有那么大的希望
-Don’t have so much hope for Trump
+总之，喜马拉雅币是一种比财富储存更有实用价值的崭新加密货币，它结合喜马拉雅美元稳定币，能够即时和安全的在全球流动，并具有成为新一代数字货币的潜力。其在喜马拉雅生态系统中打开了一个连结了商家和客户的机遇世界，向用户展示了在日常生活中放心地使用加密货币的可能性。
 
-他会反共，绝对没有心灭共
-He will be anti-communist and he will never destroy the communist party
+喜马拉雅货币以打破壁垒、创建一个包容和安全的加密生态系统为愿景，它建立在最先进的区块链技术之上，其目标是要把财富、数据和命运的控制权交还到会员手上。以未来视野设计的喜马拉雅货币如今就在眼前，为加密货币市场提供方便、快捷和安全的解决方案。
 
-他也不会有人你想象在他任期内帮我们把共灭了，不可能
-He won’t do that, some people imagine he could help us destroy the Communists Party during his tenure
+参考链接：
 
-他这三个担心就是西方的媒体，你看西方的媒体有多可怜
-His three worries are the Western media’s thinking, look at how pitiful the Western media are
+喜马拉雅币白皮书 [https://himalaya.exchange/images/hweb/chs/hcn\_whitepaper\_chs.pdf](https://himalaya.exchange/images/hweb/chs/hcn_whitepaper_chs.pdf)
 
-所有西方媒体对中共的政治经济没有一件事大事把握事对的
-All the Western media are wrong about the political and economic situation of the Chinese Communist Party
+***编辑/校对/发稿：正义的小新***
 
-你给我找一个，你找一个在历史上，
-Can you find one for me, can you find one in history?
+**更多资讯，更多关注**
 
-所有的外国人，西方的媒体真的是王八蛋到了极点
-All foreigners and Western media are really bastards to the extreme
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-他们完全是用自己的所谓的媒体观点和政治经济观点看中共
-They see the CCP entirely from their own so-called media viewpoint and political and economic viewpoint
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-就像当年很多全世界的看斯大林一样啊
-Just like many people from all over the world thought Stalin back then
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-以为他是一个小街混子呢，接不了列宁的班儿，是不是
-they thought he was a gangster and couldn’t take over Lenin’s position, right ?
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-以为他接了列宁的班，那几个什么这些人都把它灭了
-they thought after he took over Lenin’s position, but those people could killed him
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-结果他把那五个人全给抓了，全给杀了，全给灭了
-In the end, he arrested all the five people, killed them all, and destroyed them all
-
-**——————————————————**
-
-**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1443159551046393862?s=24](https://twitter.com/se1y7cblljselva/status/1443159551046393862?s=24)
-
-英听校 : 洛杉矶盘古农场 – Layka
-翻译 : 洛杉矶盘古农场 – Layka
-翻译终校 : 洛杉矶盘古农场 – Mike Li
-字幕+视频制作 : 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)

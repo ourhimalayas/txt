@@ -2,17 +2,173 @@
 ---
 
 
-## 新中国联邦是一个超越地球限制 没有国界概念的正义联盟
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1582221/)
+## 今年起始，是中共百年大计的开始
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1582254/)
 
-我们不需要国家，我们有比国家更高的组织。国家你认为是最高的组织吗？我认为国家已经被淘汰了。凡是叫国和家的，我觉得都已经是人类上应该取消了。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/154-ax8p9-gk4ic.jpg)
+[https://gtv.org/video/id=6160255ad2e2b8174872aeda](https://gtv.org/video/id=6160255ad2e2b8174872aeda)
 
-**【郭先生直播摘要】****2021****年****9****月****29****日****新中国联邦是一个超越地球限制 没有国界概念的正义联盟**
+**郭文贵
+Miles Guo**
 
-**郭先生：**
+今年的5月份列为中共国的百年大计的备战状态
+En mayo de este año, representa como el estado de preparación para el plan del centenario del PCCh
 
-这就是新中国联邦用历史和时间，七哥的几十年，凝聚的所有的财富和情报和资源能力，还有上天给我们的最好的机会。全世界都无望没有希望恐惧的时候，只有我们应运而生啊。国家你认为是最高的组织吗？我认为国家已经被淘汰了，凡是叫国和家的，我觉得都已经是人类上应该取消了，因为它要纳税，他限制人的行为，而对信仰有各种要求，而且养活着一帮笨蛋。所有的国家一帮的绝大多数的好人、聪明人养了一群笨蛋骗子。我们不需要国家，我们有比国家更高的组织，我劝你们看一个就是SpaceX发太空的那个纪录片，这四个人一个是残疾腿的女孩，得了癌症的，活下来的孩子，一个是投资家，一个是成功的私人，这四个人啊上太空，这个四个我看着片以后看得我哭了有十几次，我这么忙我也得看，这就是美国的伟大，一个得癌症的孩子，这么坚强，头发掉了，把腿敲开多少块，带着假肢上太空，那种坚强那种意志，爸爸妈妈不抛弃，就是美国这个国家对人性的伟大。
+啥叫备战
+En qué consiste la preparación para el plan
 
-一个普通的一个投资人，身体胖的，然后减肥，咵，上去。另外一个成功企业家上去，另外一个是一个女的黑人，应该还是一个同性恋，人家的梦想，人家玩战斗机私人飞机，啪上山一个小女孩在上这个太空前，九个小时带着假肢爬山，就这个，你们要看这个，你们一定要看这个，就是这个最伟大的美国，和欧洲，它以人为本，以人为本啊，把我看哭的，就那个爸妈不放弃，她爸爸后来也得了那个胸瘤骨瘤死了，然后人家那个夫妻之间的配合和尊重，然后人家有了那样的生活，人家这样的冒险，那种坚强的意志和健身，它超出了国家主义，这个伊隆马斯克讲得最好的一个，人类在地球上看着仰望太空，只能看就不能碰，人类应该要有安危感，人类到外星去活去，我觉得伊隆马斯克是太了不起的企业家，七哥一定会在你们的眼界中会走向太空，甚至会走向月球，我一定，这对我来讲是小事，那不算啥是吧，我们还做更多的贡献，而且我认为我们的正道主义就是一个把国家主义彻底给干掉的啊，我们人类上应该有无种族无肤色不仅仅是地球的一个，完全不需要你奉献的安全，的共同信仰的组织，我们不是国家，国家这个在我们这个层面已经不算鸟啥了是吧，什么国家，我们就看每个人在不同的国家，是因为这些国家我们在一起吗，不是，是因为共同的信仰。
+干倒美国美元, 干倒欧元经济
+Derribar al dólar estadounidense y la economía del euro
 
-视频剪辑：北方信使 |听写：雨山溪桥客 |翻译：Arthur |校对：tonyj|视频制作+字幕：小腾腾说
+今天要再重申一遍啊
+Hoy les quiero repetir de nuevo
+
+病毒是共产党制造的生化病毒
+El virus es un virus bioquímico elaborado por el Partido Comunista
+
+疫苗灾难是再次的生化战争
+El desastre de la vacuna es una vez más la guerra bioquímica
+
+是生化战争的深入化
+Es la profundización de la guerra bioquímica
+
+而且所有有计画地培养出疫苗
+Además, todas las vacunas se cultivaron de manera planificada
+
+高传播率
+Alto porcentaje de transmisión
+
+高致死率
+Alta tasa de letalidad
+
+最后是通过疫苗
+Finalmente, a través de las vacunas
+
+疫苗经济、疫苗政治、疫苗军事
+Economía de las vacunas, política de las vacunas, ejército de las vacunas
+
+疫苗控制世界
+La vacuna controla al mundo
+
+就是共产党干的
+Todo esto es hecho por el Partido Comunista
+
+跟共产党合谋的
+Conspirado con el Partido Comunista
+
+就是美国的华尔街和美国的几个被收买的像CDC的一些官员
+Es el Wall Street y algunos funcionarios en los EE. UU. que fueron sobornados como los Centros para el Control de Enfermedades, Ministerio de Salud y Bienestar (CDC)
+
+像欧洲的一些官员
+Así como los funcionarios de Europa
+
+包括世界上的黑暗组织, 非法组织
+Incluyendo las organizaciones oscuras e ilegales en el mundo
+
+跟共产党一起干的
+Lo han hecho con el Partido Comunista
+
+王岐山就是这个非法组织的核心代表
+Wang Qishan es el principal representante de esta organización ilegal
+
+这也是最近不能弄死他的根本原因
+Esta es también la razón fundamental por la que no han podido matarlo recientemente
+
+共产党还需要他
+El Partido Comunista todavía lo necesita
+
+任何国家任何好人坏人组织
+Cualquier país, cualquier buena o mala organización
+
+不光需要好人还需要坏人
+No solamente se necesitan buenas personas sino también malas personas
+
+真的
+Es verdad
+
+这就是个游戏规则
+Esta es la regla del juego
+
+你接不接受, 它就是这样
+No importa si aceptas o no, es así
+
+现在他就发生了
+Ahora está sucediendo
+
+那么现在告诉大家的事情
+Entonces déjame decirle una cosa a todos
+
+共产党的停电
+El apagón del Partido Comunista
+
+包括共产党的现在整个恒大的事件的控制
+Incluyendo el control actual del Partido Comunista con Evergrande Group
+
+有序控制
+Un control ordenado
+
+但是记住啊
+Pero recuerden
+
+明确的(说)外债一概不管
+Claramente (digamos) sin tomar en cuenta de las deudas externas
+
+不但不管啊
+No solamente no tomarlo en cuenta
+
+对碧桂园, 对平安集团, 所有海外的外债一概不用管
+Igualmente con el Country Garden, Ping An Group, ignoran todas las deudas externas en el extranjero
+
+大家看出啊
+Todos pueden notar
+
+共产党内部的所有的政策
+Todas las políticas dentro del Partido Comunista
+
+内部
+La parte interna
+
+要摸底, 问话, 控制
+Hay que averiguar, preguntar y controlar
+
+地方部门分区解决
+Ejercer la resolución de la división del sector local
+
+国际上债务一概不管
+Ignorar las deudas internacionales
+
+大家现在看出来想干啥了吧
+Ya todos se dieron cuenta lo que quiere hacer, cierto
+
+我宁可断我九指, 我伤你一指
+Prefiero cortar mis nueve dedos para lastimar un dedo tuyo
+
+我宁可我杀我一万, 我杀你一千
+Prefiero herir diez mil de mis personas para matar mil de las tuyas
+
+习绝对在这方面有这个狠劲
+Xi definitivamente es cruel en esta parte
+
+他对内. 他对江家不敢对, 对曾不敢
+Él no se atreve con la parte interna, la familia Jiang, Zeng
+
+对王岐山不敢, 对孟不敢
+Wang Qishan y Meng
+
+他对他们(欧美)绝对敢
+Pero si se atreve con EE. UU y Europa
+
+**——————————————————**
+
+**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1445306784030212100?s=24](https://twitter.com/se1y7cblljselva/status/1445306784030212100?s=24)
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

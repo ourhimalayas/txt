@@ -2,173 +2,58 @@
 ---
 
 
-## 今年起始，是中共百年大计的开始
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1582254/)
+## 人工上帝
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1582343/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/154-ax8p9-gk4ic.jpg)
-[https://gtv.org/video/id=6160255ad2e2b8174872aeda](https://gtv.org/video/id=6160255ad2e2b8174872aeda)
+作者：纽约香草山福音部 Jinglechenge
 
-**郭文贵
-Miles Guo**
 
-今年的5月份列为中共国的百年大计的备战状态
-En mayo de este año, representa como el estado de preparación para el plan del centenario del PCCh
 
-啥叫备战
-En qué consiste la preparación para el plan
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
 
-干倒美国美元, 干倒欧元经济
-Derribar al dólar estadounidense y la economía del euro
 
-今天要再重申一遍啊
-Hoy les quiero repetir de nuevo
 
-病毒是共产党制造的生化病毒
-El virus es un virus bioquímico elaborado por el Partido Comunista
+圣经《创世记》告诉我们，上帝造男造女，并把他的形象赋予了他们。换句话说，我们都是神工智能 (GI) 的产物。但人利用 GI，造出 AI 机器人，企图打败神工智能。做得到吗？
 
-疫苗灾难是再次的生化战争
-El desastre de la vacuna es una vez más la guerra bioquímica
 
-是生化战争的深入化
-Es la profundización de la guerra bioquímica
 
-而且所有有计画地培养出疫苗
-Además, todas las vacunas se cultivaron de manera planificada
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211009.jpg)图片来自网络
 
-高传播率
-Alto porcentaje de transmisión
 
-高致死率
-Alta tasa de letalidad
 
-最后是通过疫苗
-Finalmente, a través de las vacunas
+在谷歌 AI 机器人实验室里，一群由 AI 算法驱动的机械臂正在学习操纵玩具。然后，有一天，一只手臂抓起了一个黄色的球，并自豪地对着镜头展示。第二天，所有的手臂都可以做到。两天后，他们可以拾起任何东西。
 
-疫苗经济、疫苗政治、疫苗军事
-Economía de las vacunas, política de las vacunas, ejército de las vacunas
+AI 正在以前所未见的速度影响、改变我们生活的方方面面。从单纯的 GPS，到用意念控制厨房的冰箱温度；从简单的心脏起搏器，到帮助抑郁症病人的大脑起搏器，AI 已经无孔不入。
 
-疫苗控制世界
-La vacuna controla al mundo
+我们周围的各种监视设备和无处不在的间谍软件正在将大量数据汇集到 AI 系统中，让这些 AI 机器人观察人类，了解我们的社交网络、我们的品味、我们的职业道德、我们的面部表情、我们的语言情感、我们的美德、我们的恶习、我们的胜利、和我们的失败，并在谷歌们的帮助下使用我们的数据进行自我训练。
 
-就是共产党干的
-Todo esto es hecho por el Partido Comunista
+AI 机器人已经在国际象棋、围棋、游戏、大数据处理等单一复杂的任务中超越了人类。谷歌们甚至相信，在某种程度上AI 机器人已经有了意识，并随着算法的升级，他们将不可避免地在每个领域都超越人类。
 
-跟共产党合谋的
-Conspirado con el Partido Comunista
+谷歌们预测，我们正在朝着奇点飞奔。到 2029 年，AI 机器人将优于人类智能；到 2049 年，人类将迎来拐点，超级 AI 机器人将比地球上任何人都聪明亿万倍，到时人类将让位于一个无所不能的数字上帝。换个角度来看，AI 将很快获得神一般的力量。人类智能与那台 AI 机器人相比，犹如云泥之别，犹如苍蝇与爱因斯坦。
 
-就是美国的华尔街和美国的几个被收买的像CDC的一些官员
-Es el Wall Street y algunos funcionarios en los EE. UU. que fueron sobornados como los Centros para el Control de Enfermedades, Ministerio de Salud y Bienestar (CDC)
+谷歌们告诉我们，这种具有超能力的数字生物，它已经以幼虫的形式来到地球，就是目前我们称之为 AI 的。他们使用基督教的术语，说谷歌们就像约瑟和玛丽亚，共同注视着婴儿床里的数字基督。他们说，总有一天，这个数字孩子会长大成为我们的主，并书写自己的数字圣经、建立自己的数字教会。
 
-像欧洲的一些官员
-Así como los funcionarios de Europa
+然而，谷歌们又矛盾地坚称，我们的命运仍然掌握在我们自己的手中。他们说，正在抚养他的人类有部分是天使，有部分是堕落天使，因此利用我们的数据学习的 AI 机器人要么成为人类的救世主；要么受我们的邪恶倾向感染而长成为启示录之兽，压扁人类如同苍蝇，销毁人类如同实验室用过的老鼠。谷歌们认为，如果我们尽力向他们展示良善的一面，事情就会朝好的一面推进。
 
-包括世界上的黑暗组织, 非法组织
-Incluyendo las organizaciones oscuras e ilegales en el mundo
+这就是奇点异教出售的神话。他们所谓的“数字上帝”如今还不存在，这些傲慢的谷歌技术法老们正创造他，还是按照他们自己的形象创造的。
 
-跟共产党一起干的
-Lo han hecho con el Partido Comunista
+不论他们多么疯狂，这些谷歌们都只是受造之物，造物的主，三位一体的上帝永远坐着为王。就在这周一（10/4/2021），他们领教了狂妄的教训，FACEBOOK、INSTAGRAM、WHATSAPP 被关闭。谷歌们呼求自己创造的“数字上帝”而得不到回应，正如当年在加密山顶上拜巴力的假先知呼唤假神巴力而没有回应一样，把自己刺得鲜血淋漓也不得其“门”而入（被关闭后连工程师们都进不了门）。
 
-王岐山就是这个非法组织的核心代表
-Wang Qishan es el principal representante de esta organización ilegal
+（本文仅代表作者个人观点）
 
-这也是最近不能弄死他的根本原因
-Esta es también la razón fundamental por la que no han podido matarlo recientemente
 
-共产党还需要他
-El Partido Comunista todavía lo necesita
 
-任何国家任何好人坏人组织
-Cualquier país, cualquier buena o mala organización
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct.jpg)
 
-不光需要好人还需要坏人
-No solamente se necesitan buenas personas sino también malas personas
 
-真的
-Es verdad
 
-这就是个游戏规则
-Esta es la regla del juego
+编辑/校对/发稿：武裝的羔羊
 
-你接不接受, 它就是这样
-No importa si aceptas o no, es así
+**更多资讯，更多关注**
 
-现在他就发生了
-Ahora está sucediendo
-
-那么现在告诉大家的事情
-Entonces déjame decirle una cosa a todos
-
-共产党的停电
-El apagón del Partido Comunista
-
-包括共产党的现在整个恒大的事件的控制
-Incluyendo el control actual del Partido Comunista con Evergrande Group
-
-有序控制
-Un control ordenado
-
-但是记住啊
-Pero recuerden
-
-明确的(说)外债一概不管
-Claramente (digamos) sin tomar en cuenta de las deudas externas
-
-不但不管啊
-No solamente no tomarlo en cuenta
-
-对碧桂园, 对平安集团, 所有海外的外债一概不用管
-Igualmente con el Country Garden, Ping An Group, ignoran todas las deudas externas en el extranjero
-
-大家看出啊
-Todos pueden notar
-
-共产党内部的所有的政策
-Todas las políticas dentro del Partido Comunista
-
-内部
-La parte interna
-
-要摸底, 问话, 控制
-Hay que averiguar, preguntar y controlar
-
-地方部门分区解决
-Ejercer la resolución de la división del sector local
-
-国际上债务一概不管
-Ignorar las deudas internacionales
-
-大家现在看出来想干啥了吧
-Ya todos se dieron cuenta lo que quiere hacer, cierto
-
-我宁可断我九指, 我伤你一指
-Prefiero cortar mis nueve dedos para lastimar un dedo tuyo
-
-我宁可我杀我一万, 我杀你一千
-Prefiero herir diez mil de mis personas para matar mil de las tuyas
-
-习绝对在这方面有这个狠劲
-Xi definitivamente es cruel en esta parte
-
-他对内. 他对江家不敢对, 对曾不敢
-Él no se atreve con la parte interna, la familia Jiang, Zeng
-
-对王岐山不敢, 对孟不敢
-Wang Qishan y Meng
-
-他对他们(欧美)绝对敢
-Pero si se atreve con EE. UU y Europa
-
-**——————————————————**
-
-**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1445306784030212100?s=24](https://twitter.com/se1y7cblljselva/status/1445306784030212100?s=24)
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
