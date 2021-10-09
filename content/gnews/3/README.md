@@ -2,50 +2,17 @@
 ---
 
 
-## GTV投资人抗议SEC在线上得到更多相应
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1582740/)
+## 秘翻在线：重磅！接种Covid疫苗后14天死亡率接近1/1000
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1582801/)
 
-作者：葛朗台太太
+撰稿：小韭菜ａ
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-09-135351.jpg)
+9月25日，一位吹哨人透露，基于医疗保险和医疗补助服务中心的数据（CMS），仅在美国Medicare患者中，就有 48,465 名患者在接种 COVID 疫苗后的14天内死亡。这是由俄亥俄州的医疗自由律师托马斯·伦茨 (Thomas Renz) 宣布的。
 
+CMS 数据库是美国最大的COVID趋势研究数据库。它包含约5940万医疗保险受益人的数据。5000多万人中有近5万人死亡，而且仅仅是在注射疫苗后的14天内。这一消息令公众震惊。政府当局是否一直在通过让医务人员将许多疫苗引起的死亡归类为与疫苗无关的死亡来操纵COVID数据，这都需要进一步调查。伦茨展示了医疗保险数据服务器原始数据的截图，并补充说，死亡人数仅基于不超过美国人口 20% 的人群。
 
+此外，杰西卡·罗斯（Jessica Rose）也是医学博士，她基于VAERS系统对COVID相关数据进行了综合研究和分析后，得出结论：COVID 疫苗可能已经杀死了至少 150,000 名美国人。
 
+医疗行业一直在操纵和隐瞒事实，压制人们对疫苗真相的了解，同时美国加拿大等政府还在不遗余力地强制疫苗接种，而媒体和大型科技公司也竭尽所能打压封杀民众质疑的声音、甚至杜撰虚假消息。只有爆料革命和新中国联邦自始至终都在不遗余力地传播疫苗真相、拯救人类。这将是未来新中国联邦的一大功绩。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
-
-
-
-
-
-
-
-今天，GTV投资人连续第5天出现在SEC总部门口进行抗议。
-
-他们的抗议活动在线上也得到了更多人的响应，请看本台记者收集到的最真实的声音：
-
-更多SEC抗议视频：
-[2021-10-08 上午，SEC总部抗议第5天，SEC还钱！](https://gtv.org/video/id=61604f53304e992109b1c2f4)
-
-
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+新闻来源：[https://greatgameindia.com/50000-vaccine-deaths-14-days/](https://greatgameindia.com/50000-vaccine-deaths-14-days/)
