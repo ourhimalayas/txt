@@ -2,17 +2,24 @@
 ---
 
 
-## 冠状(中共)病毒致拉丁美洲超过150万人死亡
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1582886/)
+## “潘多拉文件”：中共利用离岸公司收购海外“涉军企业”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1582917/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10092.jpg)
-根据官方数据，拉丁美洲和加勒比地区的冠状(中共)病毒大流行造成的死亡人数已超过 150 万人。 截至到目前，巴西的冠状(中共)病毒死亡人数超过了 60 万，巴西也是全球第二大受疫情影响最严重的国家，仅次于美国。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-146.png)[图片来源](https://xueqiu.com/6882943685/88691281)
+据“看中国网”10月9日消息，“潘多拉文件”（Pandora Papers）最新泄密显示一条线索，中共利用其“代理人或国企”，借助离岸公司秘密收购“海外军事技术企业”。
 
-秘鲁反而是美洲次大陆死亡率最高的国家，每 10 万居民中有 605 人死于新冠病毒。
+“潘多拉文件”是国际调查记者同盟（ICIJ）自2021年10月3日起公布的涉及1190万份泄露的文件，涵盖200多个国家和地区。文件揭露了多国领导人、政治家及名人利用[离岸公司](https://www.secretchina.com/news/gb/tag/%E7%A6%BB%E5%B2%B8%E5%85%AC%E5%8F%B8)隐瞒资产、逃税及回避利益申报制度。
 
-免责申明：本文只代表译者观点，与Gnews无关
+根据“潘多拉文件”披露的记录，中国亿万富翁王靖借助在“离岸金融中心”设立的公司，对乌克兰唯一的一家“专业生产飞机发动机”的国防承包商“马达西奇公司”（Motor Sich）提出要约收购，这与中共想要“获取先进的国外军民两用技术”的努力不谋而合。
 
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/10/09/covid-lamerica-latina-supera-quota-15-milioni-di-morti\_4ac111a5-413a-4853-93da-a6936f206e7f.html](https://www.ansa.it/sito/notizie/topnews/2021/10/09/covid-lamerica-latina-supera-quota-15-milioni-di-morti_4ac111a5-413a-4853-93da-a6936f206e7f.html)
+王靖对马达西奇的并购主要经由他手下的“信威集团”及离岸公司“北京天骄航空”（Skyrizon）运作，但是实际上王靖背后的庞大资金由“中共最大的政策性银行国家开发银行（CDB）”等提供。
 
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
+王靖等来自中国的投资者成立了一系列“并购马达西奇的离岸公司”，包括在“英属维尔京群岛”注册的“北京天骄航空飞机公司”，用于收购马达西奇超过50%的股份，约5亿美元。然后，投资者把所购股份抵押给国开行，以换取贷款。
+
+信息来源：[https://www.secretchina.com/news/gb/2021/10/09/985951.html](https://www.secretchina.com/news/gb/2021/10/09/985951.html)
+
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
