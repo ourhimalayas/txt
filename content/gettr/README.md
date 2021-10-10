@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/10/2021 5:37 PM (UTC)`
+
+10-10日：火山红．灭共又灭毒！
+![img](https://media.gettr.com/group26/getter/2021/10/10/17/36/7f3c090b-5776-1100-a335-9abbd9b5244d/fdd1963a5a6065716cef55cc4551a095.jpg)
+
+---
+
+`@miles 10/10/2021 5:32 PM (UTC)`
+
+10月10号：尊敬的战友们好，我们都应该拥有这样美好的现代的文明的生活，🔥🔥🔥🔥🔥你们说对不对啊？
+![img](https://media.gettr.com/group21/getter/2021/10/10/17/32/82957eb8-89ba-61b1-2042-37d5daf7074e/out.jpg)
+
+---
+
 `@miles 10/10/2021 4:27 PM (UTC)`
 
 不同国家抗议者走上街头抗议COVID限制措施和强制疫苗政策，世界人民正在觉醒中。<br/><br/>Protesters from different countries took to the streets to protest COVID restriction measures and mandatory vaccine policies. People all over the world are awakening.
@@ -280,20 +294,6 @@ Project Veritas releases videos series to expose the truth of the CCP Virus vacc
 
 September 20th, 2021 — German Corona Investigative Committee Press Conference (2)<br/><br/>1️⃣Dr. Elmor Becker told a story to explain what the post vaccination "turbo cancer" is!  <br/>2️⃣Mr. Helga Fischer, Attorney:<br/>Europe should have test protocols and standards using microscope to examine vaccine batches. If these "un-declared" substances in the vaccines cannot be identified in Germany, this is a scandal.<br/>3️⃣Dr. Maria Hubmer- Mogg, MD:<br/>We should request to remove the vaccines off the market and the approval of the Emergency Authorization Use has to be stopped . It is a crime to vaccinate youngsters and babies!<br/><br/>Full German version: https://gtv.org/video/id=614b401442a8af3151a34afa<br/>Full English version: https://gtv.org/video/id=61598e4c304e992109ae6487
 ![img](https://media.gettr.com/group3/origin/2021/10/07/09/29/c851d3c0-8986-d136-3879-159afe643e5b/out.jpg)
-
----
-
-`@miles 10/7/2021 9:21 AM (UTC)`
-
-2021年9月20日 德国新冠调查委员会新闻发布会精选片段 (二)<br/><br/>1️⃣Elmor Becker 医生：<br/>Becker博士通过真实故事来解释什么是疫苗接种后的“加速癌”！<br/>2️⃣新冠调查委员会律师 Helga Fischer 先生：<br/>欧洲应该使用显微镜检查来設定测试协议和标准来審查含有未申报成分的疫苗批次。如果这些疫苗中发现的“未声明”材料却在德国无法查明，这就是丑闻！疫苗制造商是有问题、要负责的！<br/>3️⃣奥地利认证草药师和世界健康论坛 21 的联合创始人 Maria Hubmer-Mogg 医生：<br/>不需要做更多的研究，而是要求将疫苗从市场上撤下，并且必须停止紧急授权使用的批准！为青少年和婴儿接种疫苗是犯罪行为！已经存在有效的早期治疗！请不要为没有感染严重疾病风险的儿童接种疫苗！<br/><br/>记者会完整版链接 (德文原版)：https://gtv.org/video/id=614b401442a8af3151a34afa<br/>记者会完整版链接 (英文字幕)：https://gtv.org/video/id=61598e4c304e992109ae6487<br/>记者会完整版链接 (中文字幕)：https://gtv.org/video/id=61588b8f304e992109ae20b0
-![img](https://media.gettr.com/group34/origin/2021/10/07/09/21/d7d0d99c-d736-0e33-b51f-d6a73dfe4c0c/out.jpg)
-
----
-
-`@miles 10/7/2021 6:50 AM (UTC)`
-
-10/05/2021 Miles Guo: The CCP’s local government debt is as high as $15 trillion (including the SOEs’ debt)! The total GDP of the CCP in the past 20 years is about $100 trillion, whereas the CCP has issued $120 trillion worth of RMB. Such a huge amount of local government debt will inevitably cause the world’s economy to collapse!<br/><br/>10/05/2021 文贵直播：中共的地方债多达15万亿美元(包括央企债务)！中共过去20年总GDP约为100万亿美元，却发行了价值120万亿美元的人民币，这笔巨额地方债将必然导致世界经济的崩溃！<br/>
-![img](https://media.gettr.com/group27/getter/2021/10/07/06/50/8a28dc15-5ffa-8857-1855-fdc60e5652f1/out.jpg)
 
 ---
 
