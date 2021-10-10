@@ -2,25 +2,65 @@
 ---
 
 
-## 有声|中情局成立全新部门，应对中共扩张带来的威胁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1584336/)
+## 远离大城市的理由
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1584400/)
 
-配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ajo7l-u8jre.jpg)
+[https://gtv.org/video/id=616185ead2e2b81748732e67](https://gtv.org/video/id=616185ead2e2b81748732e67)
 
-10月7日，美国中央情报局局长威廉·伯恩斯宣布成立一个全新的部门“中(共)国任务中心”，以确保中情局有能力应对来自中共日益增强的对抗。
+**郭文贵：
+Miles Guo：**
 
-伯恩斯称中共政府是美国21世纪面对的最重要的地缘政治威胁，与中共之间的竞争，尤其是在科技领域方面，将会是美国国家安全的关键。他形容中共政权的扩张既是对抗性的，更是掠夺性的，近年来的变化已经引起美国的警醒。该中心的成立，正是表明美国政府已清楚认识到中共已经超过俄罗斯，成为美国最大的威胁。
+在一线城市，没电了
+In the first-tier cities, if there is no electricity
 
-文字版原文：[中情局成立全新部门，应对中共扩张带来的威胁](https://gnews.org/zh-hans/1581243/)
+你咋下楼？
+How will you go downstairs?
 
-音频处理：喜山必胜Maverick
+没电了楼梯咋办？
+What to do if the lifts are out of power?
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+没电就没水，没电没水
+No electricity means no water, no electricity and no water
+
+你出去交通受管制
+Traffic is controlled when you go out
+
+而且集中抢劫
+And concentrated on looting
+
+警察管你
+The police control you
+
+你连吃草的机会都没有
+You won’t even have a chance to eat grass
+
+你从楼上跳下来吗？
+Will you jump down from upstairs?
+
+你能步行在大马路上跑吗？
+Can you run on the main roads?
+
+所有城市的方便, 都成为你的不方便
+The conveniences of all cities will become your inconveniences
+
+所有城市里面能拥有的好东西， 都是对你的伤害
+All the good things you can have in the cities will hurt you
+
+那你呆在城市干什么？
+So what will you do in the cities?
+
+**——————————————————**
+
+**原视频链接**: [https://twitter.com/se1y7cblljselva/status/1446500243864887297?s=24](https://twitter.com/se1y7cblljselva/status/1446500243864887297?s=24)
+
+英听校 : 洛杉矶盘古农场 – Raul
+翻译 : 洛杉矶盘古农场 – Raul
+翻译终校 : 洛杉矶盘古农场 – Mike Li
+字幕+视频制作 : 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,53 +2,18 @@
 ---
 
 
-## 中共企图套用俄罗斯占领克里米亚的方式攻陷台湾
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1584641/)
+## 纽约医院拒不使用伊维菌素 感染中共病毒的前越战老兵不幸逝世
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1584687/)
 
-作者：文真
+#### 撰稿：zzballack
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-48.jpg)图片来源：福布斯
+据 Flag and Cross 网站10月8日报道，纽约一名男子因为其所在医院拒绝使用伊维菌素对他进行治疗而不幸死亡。该医院甚至拒绝执行法院下达的使用伊维菌素命令。
 
+据电视台WHEC-TV报道，已完全接种中共病毒疫苗的越战老兵杰里米·卡特（Jeremy L. Carter）8月28日在被检测出中共病毒呈阳性后，被送入罗切斯特总医院（Rochester General Hospital）。医生最初给他开了瑞德西韦（Remdesivir）和地塞米松（Dexamethasone）药物进行治疗。但到了9月20日，由于病情恶化，他被转到了重症监护室。
 
+卡特的女儿问她父亲的医生是否可以让父亲开始服用伊维菌素，因为一些医生说伊维菌素对减轻中共病毒症状很有效。医生对此表示同意并写了治疗方案。然而，当把这一方案告诉罗切斯特总医院时，医院却断然拒绝使用该疗法。因此卡特和他的女儿将医院告上法庭。赢得裁决后，他们要求医院采用医生的伊维菌素方案，但是医院仍然拒绝执行。罗切斯特地区卫生局甚至提出上诉，让法院允许他们拒绝使用该疗法。由于医院继续拒绝使用伊维菌素等有效药物治疗患者，卡特在10月2日不幸逝世。
 
+这则新闻让人痛心，一位曾上过战场、为国奋战的老兵就这样不幸逝世。更让人扼腕的是医院的蛮横无理和无视科学甚至法庭，本该救死扶伤的人却成了间接杀手。虽然不知医院为何坚持拒绝使用伊维菌素，是对药物的偏见还是其它更为邪恶的动机，但是它别想逃过日后的追责。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
-
-
-
-
-
-
-
-10月9日，习近平借“辛亥革命”周年纪念发出武统台湾的强烈信号。台湾已经岌岌可危。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-3.jpg)
-郭文贵先生曾在直播中揭露中共攻台计划，第一步不会采取武力攻势，而是发动网络攻击、散布假新闻、利用舆论战等各种超限战手段让台湾陷入混乱；第二步台湾政府内部的亲共势力伺机发起公投，甚至掀起动乱，为中共出兵占领台湾制造时机。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-19.jpg)
-中共是按照俄罗斯在2014年入侵克里米亚的方式，制定夺取台湾的计划。波索比克在接受班农战斗室采访时，完全认同这一观点。
-
-波索比克认为中共军方内部判断，如今美国处理台湾局势的态度会与2014年相似。2014年拜登时任美国副总统一职，而当年美国政府在俄罗斯入侵克里米亚问题上做出了让步。这无疑大大增加了中共攻陷台湾的野心。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-22.jpg)
-参考链接：
-[郭先生10/9/2021盖特：波索比克谈台海：普京拿下克里米亚，中共将军们想同样方式拿下台湾](https://gettr.com/post/pdmt5n2f8d)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：Q大哥
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+新闻来源：[Man Dies from COVID as Hospital Refuses to Treat Him with Ivermectin Despite Court Orders](https://flagandcross.com/man-dies-from-covid-as-hospital-refuses-to-treat-him-with-ivermectin-despite-court-orders/)

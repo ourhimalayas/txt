@@ -2,24 +2,49 @@
 ---
 
 
-## 美西南航空强制疫苗措施遭飞行员工会起诉
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1584582/)
+## 加州实施学童强制疫苗政策 但州长 12 岁女儿并未接种
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1584636/)
 
-#### 翻译：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-46.jpg)图片来源： sinchew.com
-零对冲网10月9日报道，西南航空工会代表飞行员提起诉讼，以阻止强制疫苗措施，直到诉讼被妥善解决，这应该第一起由工会发起的对抗拜登政府强制疫苗命令的诉讼。
+作者：文一
 
-据布隆伯格报告显示，该工会代表西南航空公司飞行员向法院提起暂时性不执行联邦的强制疫苗令，直到该强制疫苗令违反了美国《劳动法》的问题得到解决。
 
-在周五法庭备案中，西南航空公司飞机员协会还要求在达拉斯的联邦法庭开庭前先尽快举行听证会，称公司的单方面行动（即强制疫苗）违反了铁路劳工法，这个法案也包含了航空公司和雇员工会的范畴。质疑“单方面行动”是因为公司企图执行拜登的疫苗强制令以逼迫员工或者打疫苗或者被辞退或无收入离职。
 
-根据拜登的强制疫苗令的指导意见，西南航空公司要求最晚10月4日，雇员们必须根据联邦规定接种疫苗除非有医疗证明或因宗教原因不能打疫苗。
 
-西南航空公司受到这个强制令的影响，因为西南航空与联邦政府有合同。西南航空公司工会代表了9000名飞行员，一次罢工就能很轻易地破坏美国人乘飞机旅行的计划。
 
-该航空公司无论如何不想退让，坚称强制疫苗令符合劳动管理协议，任何人没有适当理由不能拒绝打疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-对于西南航空公司来说，这个疫苗强制令的争议还不是飞行员与公司的唯一矛盾，其他的矛盾包括隔离要求，改善工作环境，规则和工资等，飞行员们还面临独特的问题，即北欧国家限制mRMA疫苗的接种，认为不值得在年轻健康人中施打疫苗。由疫苗引起的副作用可能会导致飞行员执照被吊销的问题。飞行员们还有一个独特的危险，即疫苗的副作用可能影响到他们通过定期医疗检查以维持他们的飞行执照，工会还要求公司明确，如果出现问题，飞行员们是否能得到长期残障保险。
 
-新闻来源：[Southwest Pilots Union Sues To Block Airline’s Vaccination Mandate](https://www.zerohedge.com/political/southwest-pilots-union-sues-block-airlines-vaccination-mandate)
+
+
+
+
+
+【Gateway Pundit】10 月 9 日报道：民主党加州州长加文-纽森在《洛杉矶时报》最近发表的一篇文章中承认，他12岁的女儿尽管符合强制疫苗接种条件，但还没有接受这种注射。
+
+10月1日，这位民主党州长宣布了美国首个 K-12 学童强制疫苗政策。文章强调，州长已经违反了他自己公布的疫苗政策，并指出很多疫情期间的限令只是针对普通民众，制定政策的政客们并未受其约束。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-27.jpg)
+参考链接：
+[Newsom Admits 12-Year-Old Daughter Has Not Yet Been Vaccinated Despite K-12 Vaccine Mandate for Rest of State](https://www.thegatewaypundit.com/2021/10/newsom-admits-12-year-old-daughter-not-yet-vaccinated-despite-k-12-vaccine-mandate-rest-state/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Q大哥
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

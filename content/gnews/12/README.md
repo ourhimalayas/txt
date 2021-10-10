@@ -2,23 +2,47 @@
 ---
 
 
-## 秘翻在线：心肌炎发病率增加令冰岛停止使用莫德纳中共病毒疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1584828/)
+## 有声| 每日读经 ：哥林多前书13:4-8
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1584885/)
 
-#### 撰稿：彩虹    
+配音：香草山福音部-Daxia
 
-#### 责编：胡天    
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-174.png)图片来源：尼日利亚独立报
-10月9日，《国会山报》发布文章，称冰岛于周五停止使用莫德纳（Moderna）中共病毒（COVID-19）疫苗，原因是有报告显示心肌炎病例的异常增多。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-根据《医学快报》（Medical Express）报道，卫生官员在冰岛卫生局网站上公布的信息说，“由于境内辉瑞（Pfizer）疫苗供应充足……首席流行病学家已决定不在冰岛使用莫德纳疫苗。
 
-但是，冰岛首席流行病学家在一份声明中说，冰岛（政府）的决定是由于“接种莫德纳疫苗后（发现）心肌炎和心包炎发病率的增加，以及可以使用辉瑞生物疫苗进行接种。”从该声明可以看出，该名所谓的首席流行病学家将心肌炎和心包炎发病率的增加仅仅归因于莫德纳中共病毒疫苗，而为辉瑞疫苗进行了责任开脱。
 
-文章指，最近几个月，冰岛一直在使用莫德纳中共病毒疫苗作为加强针，为那些接种过强生公司（J&J）单剂量疫苗的居民，以及接种过两次莫德纳疫苗或辉瑞疫苗的老年人和免疫力低下的人进行注射。
 
-根据报道，冰岛全国12岁以上的人口中，已经有88%的人完全接种了中共病毒疫苗，而这个岛国大约共有37万居民。
 
-**新闻来源**
 
-[Iceland Halts Moderna Vaccine Over Cardiac Inflammation Concerns](https://www.newsmax.com/newsfront/iceland-moderna-vaccine-covid/2021/10/09/id/1039810/)
+
+**4**.爱是恒久忍耐，又有恩慈；爱是不嫉妒，爱是不自夸，不张狂；
+
+**5**.不作害羞的事，不求自己的益处，不轻易发怒，不计算人的恶；
+
+**6**.不喜欢不义，只喜欢真理；
+
+**7**.凡事包容，凡事相信，凡事盼望，凡事忍耐。
+
+**8**.爱是永不止息。
+
+
+
+
+
+
+
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

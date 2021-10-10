@@ -2,49 +2,21 @@
 ---
 
 
-## 加州实施学童强制疫苗政策 但州长 12 岁女儿并未接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1584636/)
+## 【农场动态】扬帆正道向前行——温哥华扬帆农场线下庆祝喜币上市及线上圆桌茶叙活动一瞥
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1584658/)
 
-作者：文一
+温哥华扬帆农场 – 文敏
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211009-文敏-扬帆正道向前行——温哥华扬帆农场线下庆祝喜币上市及线上圆桌茶叙活动一瞥1.docx.jpg)
+10月8日，温哥华扬帆农场组织了“枫叶正红，喜币更火——庆祝喜币即将上市！”和“温哥华圆桌茶叙”两场活动。
 
+为庆祝10月下旬喜马拉雅币的上市，文炬、Aegean 、Frank69、海石四位战友组织了温哥华农场“枫叶正红，喜币更火——庆祝喜币即将上市！”庆祝活动。上午11点到下午2点，战友们聚集在温哥华Stanley 公园，穿着战服，戴着战帽，挥舞着新中国联邦的旗帜，用视频、音频和图片的方式表达战友们对喜币上市的期待和祝福。喜币的诞生，受到CCP的重重阻挠，他们倾一国之力，通过各种方式打压喜币的上市，但是在文贵先生运筹帷幄的运作下，喜币即将划破黑暗，冲向光明。相信喜币很快成为世界第一大虚拟货币。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211009-文敏-扬帆正道向前行——温哥华扬帆农场线下庆祝喜币上市及线上圆桌茶叙活动一瞥2.png)
+10月8日晚上，扬帆农场的“扬帆圆桌茶叙”在十里春风和AEGEAN战友的组织下在农场discord正式上线！农场战友来自全球各地，线下聚集非常难，特别是由于病毒和疫苗的影响，即使同在一个城市，见面也很不方便。而“扬帆圆桌茶叙”的上线，方便了战友们跨越空间、时间的沟通交流。
 
+10月8日温哥华时间晚上8点，扬帆圆桌茶叙正式开始，在十里春风和AEGEAN战友的主持下，农场主飞翔的小鸟最先发言，她衷心感谢扬帆农场所有会员的付出，也希望战友们一起建设好扬帆农场，接下来所有战友简单介绍各自参加爆料革命的经历及收获等等。战友们虽然远隔千里万里，但是感觉近在咫尺。毛球战友介绍了农场的组织架构，dayafter 、清平世界及相关战友介绍了GTV、GNEWS及媒体传播部、人力资源委员会、议事委员会、项目委员会等各个部门的功能等等，不知不觉间2个小时过去，战友们不仅明白了农场的架构也增进了互相的了解，整个过程充满了浓浓的战友情。
 
+中共病毒、疫苗在全世界肆虐的时候，扬帆农场的“扬帆圆桌茶叙”让全球战友有了家的感觉。
 
+(本文仅代表作者观点，与GNEWS平台无关)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
-
-
-
-
-
-
-
-【Gateway Pundit】10 月 9 日报道：民主党加州州长加文-纽森在《洛杉矶时报》最近发表的一篇文章中承认，他12岁的女儿尽管符合强制疫苗接种条件，但还没有接受这种注射。
-
-10月1日，这位民主党州长宣布了美国首个 K-12 学童强制疫苗政策。文章强调，州长已经违反了他自己公布的疫苗政策，并指出很多疫情期间的限令只是针对普通民众，制定政策的政客们并未受其约束。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-27.jpg)
-参考链接：
-[Newsom Admits 12-Year-Old Daughter Has Not Yet Been Vaccinated Despite K-12 Vaccine Mandate for Rest of State](https://www.thegatewaypundit.com/2021/10/newsom-admits-12-year-old-daughter-not-yet-vaccinated-despite-k-12-vaccine-mandate-rest-state/)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：Q大哥
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+*编审**/**发稿：**Shuang*
