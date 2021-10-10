@@ -15,125 +15,125 @@
 
 ---
 
-### [快讯！奥地利总理辞职 因涉嫌腐败被调查](/content/gnews/1/README.md)
+### [疫苗灾情｜德国 28 岁女演员接种疫苗后几乎毁容](/content/gnews/1/README.md)
+ ` G&#124;News TAIWAN`
+
+### [疫苗灾情｜澳洲 29 岁知名女星接种疫苗后患上心包炎](/content/gnews/2/README.md)
+ ` G&#124;News TAIWAN`
+
+### [忆香港:我办理往来港澳通行证的一些花絮](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [黎巴嫩国家供电完全崩溃](/content/gnews/4/README.md)
+ ` Shuizhuyu`
+
+### [班农专访1: 谈德国即将形成的内阁和未来](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [拒绝与病毒共存](/content/gnews/6/README.md)
+ ` 澳喜农场`
+
+### [快讯！奥地利总理辞职 因涉嫌腐败被调查](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年6月6日喜马拉雅农场联盟工作汇报摘要](/content/gnews/2/README.md)
+### [墙内要闻汇编](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2021年6月6日喜马拉雅农场联盟工作汇报摘要](/content/gnews/9/README.md)
  ` 纽约香草山MOS02`
 
-### [秘翻在线：宇都宫市的园区仓持呼吸内科医院院长仓持仁的担忧](/content/gnews/3/README.md)
+### [秘翻在线：宇都宫市的园区仓持呼吸内科医院院长仓持仁的担忧](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国资产规模最大的中国工商银行暂停外汇买卖业务](/content/gnews/4/README.md)
+### [中共国资产规模最大的中国工商银行暂停外汇买卖业务](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国用户因中共禁令无法升级微软Windows 11](/content/gnews/5/README.md)
+### [中共国用户因中共禁令无法升级微软Windows 11](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [因使用伊维菌素印尼中共病毒确诊数大幅下降](/content/gnews/6/README.md)
+### [因使用伊维菌素印尼中共病毒确诊数大幅下降](/content/gnews/13/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [DC大中华时事：中共宣称，经济转型将开启新篇章](/content/gnews/7/README.md)
+### [DC大中华时事：中共宣称，经济转型将开启新篇章](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [每日快报：中共国催促美国取消关税](/content/gnews/8/README.md)
+### [每日快报：中共国催促美国取消关税](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [澳大利亚 &#8211; 拒绝疫苗，坚持抗争](/content/gnews/9/README.md)
+### [澳大利亚 &#8211; 拒绝疫苗，坚持抗争](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共黑客为控制塔利班早已入侵阿富汗电信公司](/content/gnews/10/README.md)
+### [中共黑客为控制塔利班早已入侵阿富汗电信公司](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共斗鱼就APP开屏页面上线H&amp;M品牌广告致歉](/content/gnews/11/README.md)
+### [中共斗鱼就APP开屏页面上线H&amp;M品牌广告致歉](/content/gnews/18/README.md)
  ` 儒为`
 
-### [疫苗证书面临法律风险](/content/gnews/12/README.md)
+### [疫苗证书面临法律风险](/content/gnews/19/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [盖特CEO谈脸书宕机事件的影响](/content/gnews/13/README.md)
+### [盖特CEO谈脸书宕机事件的影响](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [神剧记——观《长津湖》有感（2）](/content/gnews/14/README.md)
+### [神剧记——观《长津湖》有感（2）](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [红魔外交夕阳落](/content/gnews/15/README.md)
+### [红魔外交夕阳落](/content/gnews/22/README.md)
  ` 首尔天池农场`
 
-### [秘翻在线：澳智库：统一台湾只不过是习近平推动民族主义的一张牌](/content/gnews/16/README.md)
+### [秘翻在线：澳智库：统一台湾只不过是习近平推动民族主义的一张牌](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [发布反疫苗视频遭舆论围剿，澳洲影星关闭社交媒体账户](/content/gnews/17/README.md)
+### [发布反疫苗视频遭舆论围剿，澳洲影星关闭社交媒体账户](/content/gnews/24/README.md)
  ` 走进澳洲`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/18/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/25/README.md)
  ` wenwu`
 
-### [在安大略镇结婚需要全面接种疫苗](/content/gnews/19/README.md)
+### [在安大略镇结婚需要全面接种疫苗](/content/gnews/26/README.md)
  ` wenwu`
 
-### [秘翻在线：恒大正式违约即将到来 各国债券持有人惊慌失措](/content/gnews/20/README.md)
+### [秘翻在线：恒大正式违约即将到来 各国债券持有人惊慌失措](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声| 每日读经 ：哥林多前书13:4-8](/content/gnews/21/README.md)
+### [有声| 每日读经 ：哥林多前书13:4-8](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [币圈新闻动态：喜联储已购置相应20%的黄金储备](/content/gnews/22/README.md)
+### [币圈新闻动态：喜联储已购置相应20%的黄金储备](/content/gnews/29/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中（共）国2000-2020年数据：GDP、外汇储备、外债和房地产](/content/gnews/23/README.md)
+### [中（共）国2000-2020年数据：GDP、外汇储备、外债和房地产](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：美国必须采取行动以应对俄罗斯和中共日益增强的核力量](/content/gnews/24/README.md)
+### [秘翻在线：美国必须采取行动以应对俄罗斯和中共日益增强的核力量](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：有强大的力量希望一场生物灾难发生](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：心肌炎发病率增加令冰岛停止使用莫德纳中共病毒疫苗](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [传播真相是责任](/content/gnews/27/README.md)
+### [传播真相是责任](/content/gnews/32/README.md)
  ` 纽约香草山MOS03`
 
-### [中共国将迎来没有坏消息的时代](/content/gnews/28/README.md)
- ` 银河勇气之星`
-
-### [秘翻在线：蔡英文双十国庆演讲强硬回应习近平 坚持主权互不隶属](/content/gnews/29/README.md)
+### [蔡英文双十国庆演讲——“绝对不要认为台湾人民会在压力下屈服”](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [未来在各国避税将变得更加困难](/content/gnews/30/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [蔡英文双十国庆演讲——“绝对不要认为台湾人民会在压力下屈服”](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共国奇闻一件](/content/gnews/32/README.md)
+### [中共国奇闻一件](/content/gnews/34/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [西南航空飞行员工会起诉航空公司强制接种疫苗](/content/gnews/33/README.md)
- ` 纽约香草山MOS03`
-
-### [纽约医院拒不使用伊维菌素 感染中共病毒的前越战老兵不幸逝世](/content/gnews/34/README.md)
+### [纽约医院拒不使用伊维菌素 感染中共病毒的前越战老兵不幸逝世](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年5月30日喜马拉雅农场联盟工作汇报摘要](/content/gnews/35/README.md)
+### [2021年5月30日喜马拉雅农场联盟工作汇报摘要](/content/gnews/36/README.md)
  ` 纽约香草山MOS02`
 
-### [文·贵天成——文贵先生谈“G币-喜币”（二）](/content/gnews/36/README.md)
+### [文·贵天成——文贵先生谈“G币-喜币”（二）](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西雅图可能因强制接种疫苗政策解雇40%警员](/content/gnews/37/README.md)
+### [西雅图可能因强制接种疫苗政策解雇40%警员](/content/gnews/38/README.md)
  ` HimalayaRussia`
 
-### [中共企图套用俄罗斯占领克里米亚的方式攻陷台湾](/content/gnews/38/README.md)
+### [中共企图套用俄罗斯占领克里米亚的方式攻陷台湾](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
-### [美西南航空强制疫苗措施遭飞行员工会起诉](/content/gnews/39/README.md)
+### [美西南航空强制疫苗措施遭飞行员工会起诉](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [郭文贵精品视频-新中国联邦人给世界人民带来解毒方案](/content/gnews/40/README.md)
- ` 澳喜农场`
 
 ### [中共媒体突然报“鹦鹉热”致死、人传人](/content/gnews/41/README.md)
  ` 纽约香草山MOS01`
