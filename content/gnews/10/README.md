@@ -2,38 +2,38 @@
 ---
 
 
-## 在安大略镇结婚需要全面接种疫苗
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1584902/)
-
-- **西班牙巴塞罗那喜悦农场—wenwu**
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip283.png)
-
-安大略省的奥克维尔市现在要求提供全面接种疫苗的证明，才能颁发结婚证。
-
-奥克维尔的[疫苗规定](https://www.oakville.ca/townhall/proof-of-vaccination.html)于 9 月 22 日生效。其内容为奥克维尔将要求任何年满 12 岁或以上的人，或者获得“任何新的结婚证和结婚仪式预约的”，需要提供身份证明和完全接种中共（COVID-19）疫苗（或医疗豁免）的证明……值得一提的是，已经预订的结婚证和仪式不需要接种中共疫苗；显而易见的还有，奥克维尔市的疫苗强制令已经超过了安大略省的要求。
-
-《后千禧年》[报道](https://thepostmillennial.com/ontario-town-requires-full-vaccination-to-get-married)说，“进入餐厅、健身房、夜总会、体育赛事、音乐会、赌场、脱衣舞俱乐部等需要全面接种疫苗。” 他们指出，有一些例外情况，包括人们进入某个区域使用洗手间、承包商出于工作目的进入建筑物，以及获得基本服务的人。
+## 盖特CEO谈脸书宕机事件的影响
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1584992/)
 
 **简评：**
 
-**邪恶势力的生物疫苗，可以管天管地，还管生殖器。**
+脸书（Facebook）宕机后，盖特当天有超过2万名用户注册，第二天可能达到3万，甚至4万人。脸书的事情提醒公众，脸书掌握了太大的权力，不仅控制了Instagram和微信，同时还控制了Messenger。所有的权力合并在一家公司，集中在一个人的手里，这很可怕。一个人不能拥有这么大权力。反川普的媒体和左派都不希望川普的支持者继续使用脸书作为工具来彼此沟通和联络，所以脸书会被打击。
 
-**疫苗的灾难在于管控人类的行为。另外，疫苗的出发点绝不是出于保护自己或者他人的社会健康，而是一些利益集团的屠杀手段，以及具有粉饰地欺诈、抢劫行为。**
 
-**另外，一则相关报道。**
 
-**盖特战友[@Myway](https://gettr.com/post/pdmyh6e917)的盖文分享。安大略省教师工会持有阿里巴巴、微软公司和中共疫苗的股票！！！现在明白他们为什么拼命逼学生打疫苗了吧！**
+**视频字幕：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip282.png)
+OAN**主持人：**杰森，Gettr在昨天Facebook事件后表现如何？
 
-（文章仅代表作者观点与GNEWS无关）
+**Jason Miller （盖特CEO）：**我们在做的事是相当惊人的，实际上，昨天是个大日子，盖特有超过2万名注册者。今天我们可能达到3万甚至可能达到4万左右。
 
-**新闻来源：《[门户网](https://www.thegatewaypundit.com/2021/10/full-vaccination-required-get-married-ontario-town/)》｜作者：卡桑德拉·费尔班克斯｜发布时间：2021年10月9日**
+（昨天的事）提醒我们，Facebook掌握的权力有多大。我想很多人昨天才意识到Facebook也控制了Instagram。他们控制了微信，当然他们也控制了Messenger。所有的权力都合并在一家公司。
 
-* * *
+正如你从爆料人哪里听到的，扎克伯格拥有过大的权力，一个人不能拥有这么大的权力。
 
-***发稿：信心满满***
+还有另一个问题，为什么媒体现在才开始介入Facebook？有两个原因。第一，当然某种程度上，Facebook发展得太大了。但另一个问题是，有许多媒体人指责Facebook最初选择了川普总统，因为川普总统在直接与人沟通方面的超能力，绕过传统媒体的过滤。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+我认为媒体和左派的许多人仍然认为扎克伯格在一定程度上要为川普总统当选负责。他们都想确保Facebook不会继续成为让川普支持者动员或沟通的工具。
+
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*字幕：雨中漫步|听写：云岭|翻译：致良知|校对：Roberts| 简评/文字整理/编辑：胖丁*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

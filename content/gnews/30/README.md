@@ -2,53 +2,37 @@
 ---
 
 
-## 中共企图套用俄罗斯占领克里米亚的方式攻陷台湾
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1584641/)
+## 澳洲维多利亚州：继9月地震后再次发生地震
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1584749/)
 
-作者：文真
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/r0_0_800_600_w1200_h678_fmax.jpg)
+图片来源：canberratimes.com.au
 
+**整理报道：**小红帽
 
+10月9日周六凌晨3点47分，澳大利亚维多利亚州发生地震。该州的紧急服务中心收到了100多份来自居民的震感报告。
 
+维多利亚州紧急服务中心表示，在默里维尔（Murrayville）附近发生了4.8级地震，震源深度为2公里。
 
+在地震发生后的几个小时内，人们感受到了几次余震。根据测量，地震分别为3.0、2.8和2.6级。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+就在两周前，该州于9月22日就经历了有记录以来最大的地震。
 
+曼斯菲尔德（ Mansfield）发生的5.8级地震损坏了建筑物，整个墨尔本乃至堪培拉、悉尼和阿德莱德都有震感。大约15分钟后，第二次地震也发生在曼斯菲尔德，震级为4级。
 
+一名男子在进行建筑工作时受了轻伤。地震发生后，收到超过100个求助电话，其中55个来自​​墨尔本市区。大多数造成的是对烟囱、外墙和旧建筑的轻微结构损坏。
 
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
+**新闻来源**：[Victoria hit by ANOTHER earthquake near Murrayville just two weeks after experiencing its worst in history | 7NEWS](https://7news.com.au/weather/natural-disasters/another-earthquake-recorded-in-victoria-c-4189277)
 
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-
-10月9日，习近平借“辛亥革命”周年纪念发出武统台湾的强烈信号。台湾已经岌岌可危。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-3.jpg)
-郭文贵先生曾在直播中揭露中共攻台计划，第一步不会采取武力攻势，而是发动网络攻击、散布假新闻、利用舆论战等各种超限战手段让台湾陷入混乱；第二步台湾政府内部的亲共势力伺机发起公投，甚至掀起动乱，为中共出兵占领台湾制造时机。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-19.jpg)
-中共是按照俄罗斯在2014年入侵克里米亚的方式，制定夺取台湾的计划。波索比克在接受班农战斗室采访时，完全认同这一观点。
-
-波索比克认为中共军方内部判断，如今美国处理台湾局势的态度会与2014年相似。2014年拜登时任美国副总统一职，而当年美国政府在俄罗斯入侵克里米亚问题上做出了让步。这无疑大大增加了中共攻陷台湾的野心。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-22.jpg)
-参考链接：
-[郭先生10/9/2021盖特：波索比克谈台海：普京拿下克里米亚，中共将军们想同样方式拿下台湾](https://gettr.com/post/pdmt5n2f8d)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：Q大哥
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

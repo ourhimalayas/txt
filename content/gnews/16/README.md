@@ -2,23 +2,38 @@
 ---
 
 
-## 秘翻在线：心肌炎发病率增加令冰岛停止使用莫德纳中共病毒疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1584828/)
+## 在安大略镇结婚需要全面接种疫苗
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1584902/)
 
-#### 撰稿：彩虹    
+- **西班牙巴塞罗那喜悦农场—wenwu**
 
-#### 责编：胡天    
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-174.png)图片来源：尼日利亚独立报
-10月9日，《国会山报》发布文章，称冰岛于周五停止使用莫德纳（Moderna）中共病毒（COVID-19）疫苗，原因是有报告显示心肌炎病例的异常增多。
 
-根据《医学快报》（Medical Express）报道，卫生官员在冰岛卫生局网站上公布的信息说，“由于境内辉瑞（Pfizer）疫苗供应充足……首席流行病学家已决定不在冰岛使用莫德纳疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip283.png)
 
-但是，冰岛首席流行病学家在一份声明中说，冰岛（政府）的决定是由于“接种莫德纳疫苗后（发现）心肌炎和心包炎发病率的增加，以及可以使用辉瑞生物疫苗进行接种。”从该声明可以看出，该名所谓的首席流行病学家将心肌炎和心包炎发病率的增加仅仅归因于莫德纳中共病毒疫苗，而为辉瑞疫苗进行了责任开脱。
+安大略省的奥克维尔市现在要求提供全面接种疫苗的证明，才能颁发结婚证。
 
-文章指，最近几个月，冰岛一直在使用莫德纳中共病毒疫苗作为加强针，为那些接种过强生公司（J&J）单剂量疫苗的居民，以及接种过两次莫德纳疫苗或辉瑞疫苗的老年人和免疫力低下的人进行注射。
+奥克维尔的[疫苗规定](https://www.oakville.ca/townhall/proof-of-vaccination.html)于 9 月 22 日生效。其内容为奥克维尔将要求任何年满 12 岁或以上的人，或者获得“任何新的结婚证和结婚仪式预约的”，需要提供身份证明和完全接种中共（COVID-19）疫苗（或医疗豁免）的证明……值得一提的是，已经预订的结婚证和仪式不需要接种中共疫苗；显而易见的还有，奥克维尔市的疫苗强制令已经超过了安大略省的要求。
 
-根据报道，冰岛全国12岁以上的人口中，已经有88%的人完全接种了中共病毒疫苗，而这个岛国大约共有37万居民。
+《后千禧年》[报道](https://thepostmillennial.com/ontario-town-requires-full-vaccination-to-get-married)说，“进入餐厅、健身房、夜总会、体育赛事、音乐会、赌场、脱衣舞俱乐部等需要全面接种疫苗。” 他们指出，有一些例外情况，包括人们进入某个区域使用洗手间、承包商出于工作目的进入建筑物，以及获得基本服务的人。
 
-**新闻来源**
+**简评：**
 
-[Iceland Halts Moderna Vaccine Over Cardiac Inflammation Concerns](https://www.newsmax.com/newsfront/iceland-moderna-vaccine-covid/2021/10/09/id/1039810/)
+**邪恶势力的生物疫苗，可以管天管地，还管生殖器。**
+
+**疫苗的灾难在于管控人类的行为。另外，疫苗的出发点绝不是出于保护自己或者他人的社会健康，而是一些利益集团的屠杀手段，以及具有粉饰地欺诈、抢劫行为。**
+
+**另外，一则相关报道。**
+
+**盖特战友[@Myway](https://gettr.com/post/pdmyh6e917)的盖文分享。安大略省教师工会持有阿里巴巴、微软公司和中共疫苗的股票！！！现在明白他们为什么拼命逼学生打疫苗了吧！**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip282.png)
+
+（文章仅代表作者观点与GNEWS无关）
+
+**新闻来源：《[门户网](https://www.thegatewaypundit.com/2021/10/full-vaccination-required-get-married-ontario-town/)》｜作者：卡桑德拉·费尔班克斯｜发布时间：2021年10月9日**
+
+* * *
+
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)

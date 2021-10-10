@@ -2,37 +2,23 @@
 ---
 
 
-## 澳洲维多利亚州：继9月地震后再次发生地震
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1584749/)
+## 秘翻在线：心肌炎发病率增加令冰岛停止使用莫德纳中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1584828/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/r0_0_800_600_w1200_h678_fmax.jpg)
-图片来源：canberratimes.com.au
+#### 撰稿：彩虹    
 
-**整理报道：**小红帽
+#### 责编：胡天    
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-174.png)图片来源：尼日利亚独立报
+10月9日，《国会山报》发布文章，称冰岛于周五停止使用莫德纳（Moderna）中共病毒（COVID-19）疫苗，原因是有报告显示心肌炎病例的异常增多。
 
-10月9日周六凌晨3点47分，澳大利亚维多利亚州发生地震。该州的紧急服务中心收到了100多份来自居民的震感报告。
+根据《医学快报》（Medical Express）报道，卫生官员在冰岛卫生局网站上公布的信息说，“由于境内辉瑞（Pfizer）疫苗供应充足……首席流行病学家已决定不在冰岛使用莫德纳疫苗。
 
-维多利亚州紧急服务中心表示，在默里维尔（Murrayville）附近发生了4.8级地震，震源深度为2公里。
+但是，冰岛首席流行病学家在一份声明中说，冰岛（政府）的决定是由于“接种莫德纳疫苗后（发现）心肌炎和心包炎发病率的增加，以及可以使用辉瑞生物疫苗进行接种。”从该声明可以看出，该名所谓的首席流行病学家将心肌炎和心包炎发病率的增加仅仅归因于莫德纳中共病毒疫苗，而为辉瑞疫苗进行了责任开脱。
 
-在地震发生后的几个小时内，人们感受到了几次余震。根据测量，地震分别为3.0、2.8和2.6级。
+文章指，最近几个月，冰岛一直在使用莫德纳中共病毒疫苗作为加强针，为那些接种过强生公司（J&J）单剂量疫苗的居民，以及接种过两次莫德纳疫苗或辉瑞疫苗的老年人和免疫力低下的人进行注射。
 
-就在两周前，该州于9月22日就经历了有记录以来最大的地震。
+根据报道，冰岛全国12岁以上的人口中，已经有88%的人完全接种了中共病毒疫苗，而这个岛国大约共有37万居民。
 
-曼斯菲尔德（ Mansfield）发生的5.8级地震损坏了建筑物，整个墨尔本乃至堪培拉、悉尼和阿德莱德都有震感。大约15分钟后，第二次地震也发生在曼斯菲尔德，震级为4级。
+**新闻来源**
 
-一名男子在进行建筑工作时受了轻伤。地震发生后，收到超过100个求助电话，其中55个来自​​墨尔本市区。大多数造成的是对烟囱、外墙和旧建筑的轻微结构损坏。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**新闻来源**：[Victoria hit by ANOTHER earthquake near Murrayville just two weeks after experiencing its worst in history | 7NEWS](https://7news.com.au/weather/natural-disasters/another-earthquake-recorded-in-victoria-c-4189277)
-
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Iceland Halts Moderna Vaccine Over Cardiac Inflammation Concerns](https://www.newsmax.com/newsfront/iceland-moderna-vaccine-covid/2021/10/09/id/1039810/)
