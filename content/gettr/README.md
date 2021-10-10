@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/10/2021 4:27 PM (UTC)`
+
+不同国家抗议者走上街头抗议COVID限制措施和强制疫苗政策，世界人民正在觉醒中。<br/><br/>Protesters from different countries took to the streets to protest COVID restriction measures and mandatory vaccine policies. People all over the world are awakening.
+![img](https://media.gettr.com/group1/origin/2021/10/10/16/27/62df9962-7a15-c7af-5eac-9b17700a8c3a/out.jpg)
+
+---
+
 `@miles 10/10/2021 6:48 AM (UTC)`
 
 10-10日：👉👉👉Gettr prohibited these followings:<br/><br/>1. No racial discrimination is allowed<br/>2. There is absolutely no room for political discrimination, and any views of different parties are allowed<br/>3. No cultural discrimination is allowed, and all cultures are accepted<br/>4. No room for terrorism<br/>5. No crime, child abuse, violence, or pornography<br/>6. The Gettr must never be used to spread deceptive information<br/><br/>All Gettr's influencers can do the live streaming within a week.<br/><br/>盖特的六个绝对不允许：<br/>1. 绝对不允许有种族歧视<br/>2. 绝对不允许有政治歧视，允许任何不同党派的观点<br/>3. 绝对不允许文化歧视，包容所有文化<br/>4. 绝对不可以有恐怖主义倾向<br/>5. 绝对不可以有犯罪，虐童，暴力，黄色倾向<br/>6. 绝对不可以利用盖特传播欺骗信息<br/><br/><br/>所有盖特的大V在一周内都可以在上面直播
@@ -287,13 +294,6 @@ September 20th, 2021 — German Corona Investigative Committee Press Conference 
 
 10/05/2021 Miles Guo: The CCP’s local government debt is as high as $15 trillion (including the SOEs’ debt)! The total GDP of the CCP in the past 20 years is about $100 trillion, whereas the CCP has issued $120 trillion worth of RMB. Such a huge amount of local government debt will inevitably cause the world’s economy to collapse!<br/><br/>10/05/2021 文贵直播：中共的地方债多达15万亿美元(包括央企债务)！中共过去20年总GDP约为100万亿美元，却发行了价值120万亿美元的人民币，这笔巨额地方债将必然导致世界经济的崩溃！<br/>
 ![img](https://media.gettr.com/group27/getter/2021/10/07/06/50/8a28dc15-5ffa-8857-1855-fdc60e5652f1/out.jpg)
-
----
-
-`@miles 10/7/2021 3:30 AM (UTC)`
-
-10/06/2021 Miles Guo Getter：In 2017, Mr. Miles Guo has already said that, the CCP will definitely be destroyed as it rules China by frauds, by deception, by committing corruption, and by using police to suppress people in a mafia style; and now, the lies similar to the propaganda in the Cultural Revolution and the Nazi ideology received the highest level of approval from the leadership inside the Zhongnanhai Pit.<br/><br/>10月6日文贵盖特：2017年文贵就说过共产党一定会死在以假治国，以黑治国，以骗治国，以贪治国，以警治国上；现在类似文革中的谎言，纳粹的思想竟能得到中南坑老杂毛的最高批示<br/>
-![img](https://media.gettr.com/group18/getter/2021/10/07/03/30/096e5735-b73f-20f9-cb81-b22e494cd092/out.jpg)
 
 ---
 
