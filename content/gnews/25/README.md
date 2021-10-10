@@ -2,23 +2,34 @@
 ---
 
 
-## 有声|AMD芯片公司“格芯”将在纳斯达克上市
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1584301/)
+## 罗马反绿色护照游行发生严重骚乱
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1584310/)
 
-配音：香草山美食部 – 玫瑰园
+新闻来源：德国法兰克福报网络版
 
-今天，郭文贵先生在直播中透露，三周后，AMD曾经的芯片制造公司格芯（Global Foundries）将在纽约纳斯达克上市，市值250亿美元。该公司将由阿布扎比Mubadala基金100%控股。Mubadala基金是阿联酋的主权基金，与郭文贵先生有多年的合作。格芯公司拥有生产7纳米以下级别芯片最好的技术。中共垂涎格芯的技术多年，使用各种蓝金黄手段，但是，最终都无法得到。格芯生产的芯片是“星链计划”，天空wifi必需的核心元件。Mubadala基金也是“星链计划”的大股东。同时，格芯和IBM联合研发的生物芯片也在突飞猛进的发展。未来，芯片对于GTV，Gnews，Gettr，喜币，以及人类的社交媒体的变革都将有重大的意义。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-文字版原文：[AMD芯片公司“格芯”将在纳斯达克上市](https://gnews.org/zh-hans/1580822/)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/demonstranten-und-polizisten.jpg)
 
-音频处理：喜山必胜Maverick
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+资料来源：FAZ
+
+反对意大利政府病毒政策的抗议活动导致罗马发生严重骚乱。周六，数千名示威者在首都街头游行，并多次与警方发生冲突。
+
+发生了暴力冲突，警察使用警棍、胡椒喷雾和高压水枪。示威者试图突破障碍，并依次投掷椅子和炸弹。
+
+傍晚，抗议者冲进了意大利最大的工会 CGIL 的总部。他们用棍棒和旗杆攻击保安和警察，然后推门进入大楼。
+
+政客们震惊了。总理马里奥·德拉吉谴责街头暴力，强调工会是民主和工人权利的保障，任何恐吓企图都应受到严厉惩罚。
+
+CGIL 总书记 Maurizio Landini 称这次袭击是“有组织的法西斯暴力行为，是对我们的民主和整个工作世界的袭击。没有人应该相信他们可以将我们的国家推回法西斯时代。”
+
+在意大利，针对冠状病毒大流行的进一步措施将于下周生效。从 10 月 15 日起，私营或公共部门的每位员工都必须持有所谓的“绿色护照”，即必须具有疫苗接种、康复或阴性测试的证明。对这本护照的批评者和疫苗接种的反对者最近引发了反对该措施的情绪。
+
+[https://www.faz.net/aktuell/politik/ausland/schwere-ausschreitungen-bei-corona-demos-in-rom-17577887.html](https://www.faz.net/aktuell/politik/ausland/schwere-ausschreitungen-bei-corona-demos-in-rom-17577887.html)
+
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+
+校对：旦旦
+
+责任编辑/发布： Shuizhuyu

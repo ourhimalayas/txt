@@ -2,28 +2,64 @@
 ---
 
 
-## 奥地利总理辞职
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1584349/)
+## 强大的 &#8211; 我将继续为我的医疗自由而战
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1584362/)
 
-新闻来源：德国法兰克福报网络版
+![](https://assets.gnews.org/wp-content/uploads/2021/10/a0z1j-mxxio.jpg)
+[https://gtv.org/video/id=61618560d2e2b81748732e45](https://gtv.org/video/id=61618560d2e2b81748732e45)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+Spent 4 years in undergraduate school studying health sciences
+在本科学校学习了四年的健康科学
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/sebastian-kurz-am-samstagabend.jpg)
+Went to graduate school and endured a rigorous 2 year accelerated masters of science in nursing program
+进入研究生院并接受了严格的两年护理学硕士加速课程
 
+Became an ICU nurse and treated COVID + patients for 19 months
+成为ICU护士并治疗了19个月的COVID患者
 
-资料来源：FAZ
+In 2020, we reused N95 masks and gowns.
+在2020年，我们重复使用了N95口罩和防护服
 
-周六晚上，奥地利总理塞巴斯蒂安·库尔茨辞去联邦政府总理职务，但希望继续担任 ÖVP 党主席并在议会中领导其派系。库尔兹遵循他的联盟伙伴绿党提出的要求。由于竞选广告中的腐败指控，绿党剥夺了他担任联邦总理的能力，并质疑了他必要的诚信。
+During that time I cared for your grandmother, sister, brother, son, and mother.
+在那段时间里，我照顾你的祖母、姐妹、兄弟、儿子和母亲
 
-库尔兹说，他想“腾出空间”以“解决僵局、防止混乱并继续政府工作”。他提到需要应对大流行的最后阶段并确保经济复苏。为此，需要“稳定和责任”。 “在这种情况下，让国家陷入数月的混乱”，而将其交给“在赫伯特·基克尔 (Herbert Kickl) 下的四党联盟”是不负责任的。库尔兹声称，为了国家利益，他的举动将“个人利益、政党利益”放在一边。这正是联邦总统亚历山大·范德贝伦前一天在电视讲话中所要求的。
+I’ve sacrificed holidays, weekends, time, sleep and events with my family to be there for yours.
+我牺牲了假期、周末、时间、睡眠和与家人一起的时间来照顾你的家人
 
-库尔兹表示，他已提议外交部长亚历山大·沙伦伯格接任联邦总理府。当库尔茨亲自掌管外交部时，沙伦伯格是他的亲密同事，他不属于任何党，是无党派人士。库尔茨表示，沙伦贝格不仅担任外长，而且在2019年临时政府期间发挥了重要作用。
+As of Oct 1, 2021 I was suspended.
+截至 2021 年 10 月 1 日，我被停职了
 
-[https://www.faz.net/aktuell/politik/ausland/schwere-ausschreitungen-bei-corona-demos-in-rom-17577887.html](https://www.faz.net/aktuell/politik/ausland/schwere-ausschreitungen-bei-corona-demos-in-rom-17577887.html)
+On Nov 1, 2021 I will be terminated because I chose not to get the shot.
+2021 年 11 月 1 日，我将被解雇，因为我选择不接种疫苗
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+Despite all of this, my faith will endure.
+尽管如此，我的信仰仍将持续下去
 
-校对：旦旦
+And I will continue to fight for my medical freedom.
+我将继续为我的医疗自由而战
 
-责任编辑/发布： Shuizhuyu
+Please know I WILL be back doing what I love most!
+请知道我会回来做我最喜欢的事情！
+
+**Singing：**
+
+I could be brown I could be blue I could be violet sky
+我可以是棕色的, 我可以是蓝色的, 我可以是紫罗兰色的天空
+
+I could be hurtful I could be purple I could be anything you like.
+我可以是伤感的，我可以是紫色的，我可以是任何你喜欢的
+
+…………….
+
+**原视频链接:** [https://twitter.com/anoncitizenuk/status/1445911691506688000?s=24](https://twitter.com/anoncitizenuk/status/1445911691506688000?s=24)
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

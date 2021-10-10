@@ -2,25 +2,28 @@
 ---
 
 
-## 有声|中情局成立全新部门，应对中共扩张带来的威胁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1584336/)
+## 奥地利总理辞职
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1584349/)
 
-配音：香草山美食部 – 玫瑰园
+新闻来源：德国法兰克福报网络版
 
-10月7日，美国中央情报局局长威廉·伯恩斯宣布成立一个全新的部门“中(共)国任务中心”，以确保中情局有能力应对来自中共日益增强的对抗。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-伯恩斯称中共政府是美国21世纪面对的最重要的地缘政治威胁，与中共之间的竞争，尤其是在科技领域方面，将会是美国国家安全的关键。他形容中共政权的扩张既是对抗性的，更是掠夺性的，近年来的变化已经引起美国的警醒。该中心的成立，正是表明美国政府已清楚认识到中共已经超过俄罗斯，成为美国最大的威胁。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/sebastian-kurz-am-samstagabend.jpg)
 
-文字版原文：[中情局成立全新部门，应对中共扩张带来的威胁](https://gnews.org/zh-hans/1581243/)
 
-音频处理：喜山必胜Maverick
+资料来源：FAZ
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+周六晚上，奥地利总理塞巴斯蒂安·库尔茨辞去联邦政府总理职务，但希望继续担任 ÖVP 党主席并在议会中领导其派系。库尔兹遵循他的联盟伙伴绿党提出的要求。由于竞选广告中的腐败指控，绿党剥夺了他担任联邦总理的能力，并质疑了他必要的诚信。
+
+库尔兹说，他想“腾出空间”以“解决僵局、防止混乱并继续政府工作”。他提到需要应对大流行的最后阶段并确保经济复苏。为此，需要“稳定和责任”。 “在这种情况下，让国家陷入数月的混乱”，而将其交给“在赫伯特·基克尔 (Herbert Kickl) 下的四党联盟”是不负责任的。库尔兹声称，为了国家利益，他的举动将“个人利益、政党利益”放在一边。这正是联邦总统亚历山大·范德贝伦前一天在电视讲话中所要求的。
+
+库尔兹表示，他已提议外交部长亚历山大·沙伦伯格接任联邦总理府。当库尔茨亲自掌管外交部时，沙伦伯格是他的亲密同事，他不属于任何党，是无党派人士。库尔茨表示，沙伦贝格不仅担任外长，而且在2019年临时政府期间发挥了重要作用。
+
+[https://www.faz.net/aktuell/politik/ausland/schwere-ausschreitungen-bei-corona-demos-in-rom-17577887.html](https://www.faz.net/aktuell/politik/ausland/schwere-ausschreitungen-bei-corona-demos-in-rom-17577887.html)
+
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+
+校对：旦旦
+
+责任编辑/发布： Shuizhuyu

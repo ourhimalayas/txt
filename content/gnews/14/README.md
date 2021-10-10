@@ -2,19 +2,65 @@
 ---
 
 
-## 联想集团科创板IPO审核终止
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1584399/)
+## 远离大城市的理由
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1584400/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/50F6B83E469CA66C6D374EF9DC84E5C99A0BE814_size169_w640_h365.png)[图片来源](https://www.tiantian9527.com/news/21315809.html)
-2021年1月12日晚，联想集团向港交所提交公告，宣布董事会已批准可能发行中国存托凭证（CDR）、并向上海证券交易所科创板申请CDR上市及买卖的初步建议。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ajo7l-u8jre.jpg)
+[https://gtv.org/video/id=616185ead2e2b81748732e67](https://gtv.org/video/id=616185ead2e2b81748732e67)
 
-2021年10月8日，CDR筹划科创板上市联想集团科创板IPO审核终止。联想集团创下史上最短（不到9个月）科创板IPO之旅，其高管高薪引发市场热议，尤其是已退休的名誉董事长柳传志年薪超1亿元。联想资产负债率超90%，净资产仅200亿，研发投入不足3%，却要在科创板拟募资100亿。作为低端大型组装厂，联想妄图自己包装成国际化科技集团上市骗钱，不仅是股民的眼睛盯着它，主要还是政治原因吧。
+**郭文贵：
+Miles Guo：**
 
-[信息来源](https://static.sse.com.cn/stock/information/c/202110/bbeca22501184ef289d19680dac74b81.pdf)
+在一线城市，没电了
+In the first-tier cities, if there is no electricity
 
-(文章仅代表作者本人观点，与GNEWS无关)
+你咋下楼？
+How will you go downstairs?
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+没电了楼梯咋办？
+What to do if the lifts are out of power?
+
+没电就没水，没电没水
+No electricity means no water, no electricity and no water
+
+你出去交通受管制
+Traffic is controlled when you go out
+
+而且集中抢劫
+And concentrated on looting
+
+警察管你
+The police control you
+
+你连吃草的机会都没有
+You won’t even have a chance to eat grass
+
+你从楼上跳下来吗？
+Will you jump down from upstairs?
+
+你能步行在大马路上跑吗？
+Can you run on the main roads?
+
+所有城市的方便, 都成为你的不方便
+The conveniences of all cities will become your inconveniences
+
+所有城市里面能拥有的好东西， 都是对你的伤害
+All the good things you can have in the cities will hurt you
+
+那你呆在城市干什么？
+So what will you do in the cities?
+
+**——————————————————**
+
+**原视频链接**: [https://twitter.com/se1y7cblljselva/status/1446500243864887297?s=24](https://twitter.com/se1y7cblljselva/status/1446500243864887297?s=24)
+
+英听校 : 洛杉矶盘古农场 – Raul
+翻译 : 洛杉矶盘古农场 – Raul
+翻译终校 : 洛杉矶盘古农场 – Mike Li
+字幕+视频制作 : 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
