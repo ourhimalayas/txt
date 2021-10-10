@@ -2,32 +2,29 @@
 ---
 
 
-## 台湾总统府发言人称中华民国是主权国家!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585571/)
+## 中国拟禁止非公有资本参与新闻产业
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1585599/)
 
-作者：云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中央社消息, 对于10月9日中共习近平所称:”台湾问题是中国内政”, 台湾总统府发言人张惇涵回应称，“中华民国是主权独立的国家，不是中华人民共和国的一部分；中华民国的未来，掌握在台湾人民的手中!”
+#### 作者：东京樱花团｜文小白
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide2-16.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/禁止xinw.jpg)[图片来源](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E6%8B%9F%E7%A6%81%E6%AD%A2%E9%9D%9E%E5%85%AC%E6%9C%89%E8%B5%84%E6%9C%AC%E5%8F%82%E4%B8%8E%E6%96%B0%E9%97%BB%E4%BA%A7%E4%B8%9A/a-59456318)
 
-10月10日，蔡英文总统蔡英文也在双十国庆演说中提出”四个坚持”, 即 坚持自由民主宪政体制；坚持中华民国与中华人民共和国互不隶属；坚持主权不容侵犯并吞；坚持中华民国台湾的前途，必须遵循全体台湾人民的意志。蔡英文称这四个坚持，是台湾人民的底线。而香港的现况证明中共背弃了自己的承诺，印证所谓的‘一国两制’根本不可行。
+中共人民网消息，中国国家发展改革委员会在10月8日于官网上发布公告，将向社会公开征求对《市场准入负面清单（2021年版）》意见。
 
-(本文仅代表作者观点)
+负面清单（2021 年版）列有禁止准入事项6项，许可准入事项111项，共计117 项。其中，今年新增的禁止准入事项第六项提到，“禁止违规开展新闻传媒相关业务”，对于非公有资本参与新闻采编播发等业务设立限制，不得从事新闻相关产业。
 
-参考链接：[國慶日演說總統談四個堅持、兩岸平等對話 全文一次看](https://www.cna.com.tw/news/firstnews/202110105005.aspx)
-[總統府：中華民國是主權獨立國家 民意拒絕一國兩制](https://www.cna.com.tw/news/firstnews/202110090099.aspx)
-[https://montrealtimes.news/台总统府：中华民国是主权独立国家-民意拒绝一国/](https://montrealtimes.news/台总统府：中华民国是主权独立国家-民意拒绝一国/)
+路透社周六（9日）在报道这条消息时表示，中国政府一直在加紧对公众话语权的控制，指责娱乐界“污染”社会而加以整肃，要求规范互联网和手机浏览器资讯信息传播，停止传播“谣言”、取消使用耸人听闻的标题，禁止发布任何违反“社会主义核心价值”的内容等。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+北京拟议推出的不准非公有资本进入新闻业的新规定被认为将是其相关政策的一项严重倒退，违反现行的中华人民共和宪法。
 
-新闻访谈终审：文龍
-编辑/校正/发稿：谐趣园
+- 延展阅读：[全速倒车，中国拟禁止非公有资本参与新闻产业](https://pincong.rocks/article/id-36178__sort_key-agree_count__sort-DESC)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+负面清单制度2018开始实施，自2019年起中国政府每年更新市场准入负面清单，该清单分为禁止和许可两类事项。对禁止准入事项，市场主体不得进入，行政机关不得办理有关手续。
+
+（本文只代表个人观点，与Gnews网站无关）
+
+[参考连接]：[中国拟禁止非公有资本参与新闻产业](https://m.dw.com/zh/%E4%B8%AD%E5%9B%BD%E6%8B%9F%E7%A6%81%E6%AD%A2%E9%9D%9E%E5%85%AC%E6%9C%89%E8%B5%84%E6%9C%AC%E5%8F%82%E4%B8%8E%E6%96%B0%E9%97%BB%E4%BA%A7%E4%B8%9A/a-59456318)
+
+*校对、发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/樱花团-2.jpg)

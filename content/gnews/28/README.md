@@ -2,35 +2,111 @@
 ---
 
 
-## 秘翻在線 :英國供應鏈融資領頭羊格林希爾資本（Greensill Capital）倒閉
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1585298/)
+## 再谈谈疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1585362/)
 
-撰稿：William
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2478.png)
+[https://gtv.org/video/id=6162e01dd2e2b81748739bca](https://gtv.org/video/id=6162e01dd2e2b81748739bca)
 
-校對：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/p.jpg-2.png)
-圖片來源：fcced
+郭文贵
+Miles Guo
 
-**格林希爾資本破產，全球數萬人恐失業**
+大家记住啊，它的疫苗的成本是多少呢
+Remember, what is the cost of its vaccine?
 
-2021年3月初，供應鏈金融行業中的領頭羊和金融科技新貴，格林希爾資本（Greensill Capital）申請破產保護。格林希爾資本是一家設在英國和澳大利亞的金融服務公司，由前卡梅倫首相時期擔任高級顧問的萊克斯·格林西爾（Lex Greensill）所創建，主要提供供應鏈融資和相關服務。
+大概在6美分到8美分，卖的价格是19美金到35美金和40美金不等
+It is about 6 cents to 8 cents, and the retail price ranges from 19 dollars to 35 dollars and 40 dollars
 
-該公司為客戶提供了供應鏈融資，這是一種短期借貸，使公司可以延長支付賬單的時間。格林希爾將這些貸款打包成證券，稱為票據，然後將其出售給第三方，其中包括瑞士信貸（Credit Suisse）管理的一套100億美元的基金。瑞士警方日前突襲瑞士信貸銀行(Credit Suisse)的辦公室，並沒收與瑞士信貸 100 億美元有關的文件。這次突襲是由蘇黎世州檢察官下令進行的。
+不同的时期不同的地方，你想想它有多大的暴利
+in different places and different periods, think about how profitable it is
 
-根據《零對沖》引用英國《金融時報》的報導，大量位於德國、瑞士和其他地方的市政當局通過瑞士信貸及其“貿易融資”基金和位於巴伐利亞的格林希爾Greensill銀行存款，都投資了格林希爾資本，許多小鎮的散戶都被格林西爾的破產波及。
+那么药厂既然在人类遇到最大危难的时候发展出来疫苗拯救人类，是吧，
+Well, since pharmaceutical companies have developed vaccines to save mankind when mankind is in the greatest danger, right?
 
-破產管理者正大聯合國際會計師事務所（Grant Thornton）指出，陷入困境的英國金融公司格林希爾（Greensill）遭遇連串財務困難後宣佈破產，引發全球數萬人恐失業的憂慮。
+你不应该再花钱去游说别人去救别人
+You should no longer spend money to persuade others and to save others
 
-**英國前首相卡梅倫遭調查**
+这个天下哪有说，我现在能救你在危难之中，
+Nothing in this world like this, I can save you now while you are in danger
 
-英國政府4月12日宣佈，對已破產的金融公司格林希爾資本（Greensill Capital）展開調查，原因是曾在該公司擔任顧問的卡梅倫涉嫌違規遊說。卡梅倫2018年加入該公司。報導指出，卡梅倫在該公司任職期間曾私下聯絡現任財務大臣蘇納克（Rishi Sunak）、衛生大臣漢考克（Matthew Hancock）等，為公司謀取利益。
+我得给你钱，让我救你
+I have to give you money and let me save you
 
-**軟銀孫正義也牽連其中**
+有人掉到水里了，都快死了，说要拉你上来
+like someone fell into the water and was dying, and someone saying that he would pull you up
 
-早在格林希爾倒閉之前，英國《金融時報》就透露，瑞士信貸貿易融資基金實際上可能秘密（或許是非法）支持軟銀願景基金投資。格林希爾破產，使軟銀願景基金的投資化為烏有。格林希爾倒閉也損害了願景基金中的其他公司，最嚴重的是建築業初創公司Katerra。通過格林希爾將客戶資金投資建築業初創公司Katerra的瑞士信貸正準備起訴軟銀。
+但是我再给你准备上100万，这到底是啥事，是你把我推下去的
+but I will prepare another 1 million for you, what the hell is this? did you push me down?
 
-**格林希爾倒閉，全世界的訴訟正開始**
+还是你把我拉上来以后，还有什么事啊？
+or is there anything else after you pull me up?
 
-世界各地的檢察官持續對格林希爾調查，重點在於其公司高層或其推動者所犯下的欺詐或不當行為。英國《金融時報》指出，無論檢察官在這批文件中找到什麼，大家都在屏息等待。
+我就搞不懂了，为啥疫苗公司，
+I just don’t understand why is the vaccine company
 
-新聞來源:[Swiss Police Raid Credit Suisse Offices As Greensill Investigation Heats Up](http://秘翻在線%20:英國供應鏈融資領頭羊格林希爾資本（Greensill%20Capital）倒閉%20%20撰稿：William%20校對：牛小妹%20%20%20圖片來源：fcced%20%20格林希爾資本破產，全球數萬人恐失業%20%202021年3月初，供應鏈金融行業中的領頭羊和金融科技新貴，格林希爾資本（Greensill%20Capital）申請破產保護。格林希爾資本是一家設在英國和澳大利亞的金融服務公司，由前卡梅倫首相時期擔任高級顧問的萊克斯·格林西爾（Lex%20Greensill）所創建，主要提供供應鏈融資和相關服務。%20%20該公司為客戶提供了供應鏈融資，這是一種短期借貸，使公司可以延長支付賬單的時間。格林希爾將這些貸款打包成證券，稱為票據，然後將其出售給第三方，其中包括瑞士信貸（Credit%20Suisse）管理的一套100億美元的基金。瑞士警方日前突襲瑞士信貸銀行%28Credit%20Suisse%29的辦公室，並沒收與瑞士信貸%20100%20億美元有關的文件。這次突襲是由蘇黎世州檢察官下令進行的。%20%20根據《零對沖》引用英國《金融時報》的報導，大量位於德國、瑞士和其他地方的市政當局通過瑞士信貸及其“貿易融資”基金和位於巴伐利亞的格林希爾Greensill銀行存款，都投資了格林希爾資本，許多小鎮的散戶都被格林西爾的破產波及。%20%20破產管理者正大聯合國際會計師事務所（Grant%20Thornton）指出，陷入困境的英國金融公司格林希爾（Greensill）遭遇連串財務困難後宣佈破產。引發全球數萬人恐失業的憂慮。%20%20英國前首相卡梅倫遭調查%20%20英國政府4月12日宣佈，對已破產的金融公司格林希爾資本（Greensill%20Capital）展開調查，原因是曾在該公司擔任顧問的卡梅倫涉嫌違規遊說。卡梅倫2018年加入該公司。報導指出，卡梅倫在該公司任職期間曾私下聯絡現任財務大臣蘇納克（Rishi%20Sunak）、衛生大臣漢考克（Matthew%20Hancock）等，為公司謀取利益。%20%20軟銀孫正義也牽連其中%20%20早在格林希爾倒閉之前，英國《金融時報》就透露，瑞士信貸貿易融資基金實際上可能秘密（或許是非法）支持軟銀願景基金投資。格林希爾破產，使軟銀願景基金的投資化為烏有。格林希爾倒閉也損害了願景基金中的其他公司，最嚴重的是建築業初創公司Katerra。通過格林希爾將客戶資金投資建築業初創公司Katerra的瑞士信貸正準備起訴軟銀。%20%20%20格林希爾倒閉，全世界的訴訟正開始%20%20世界各地的檢察官持續對格林希爾調查，重點在於其公司高層或其推動者所犯下的欺詐或不當行為。英國《金融時報》指出，無論檢察官在這批文件中找到什麼，大家都在屏息等待。%20%20%20新聞來源:Swiss%20Police%20Raid%20Credit%20Suisse%20Offices%20As%20Greensill%20Investigation%20Heats%20Up)
+全人类不知道病毒哪来的，
+The whole mankind doesn’t even know where the virus comes from?
+
+你就生产出疫苗，生产出来疫苗让别人打
+Vaccine company just produce that vaccine right away and provide to people
+
+而且你要拿钱游说，给别人钱打你的疫苗
+and you have to lobby and give others money to let people get vaccinated
+
+然后让政府强制打，你不情愿打
+Then the government mandate the vaccine, people are not willing to do so
+
+但是打的时候还得让你自己承担责任
+also people have to take responsibility when they take the vaccine
+
+它药厂不承担责任，这叫啥疫苗啊？这符合逻辑吗？
+The pharmaceutical company does not take any responsibility. What kind of this vaccine is? Is this logical?
+
+最重要的事情，所有的西方天主教，基督教徒
+The most important thing that all Western Catholics, Christians
+
+一个根本原则，人命天受
+have a fundamental principle that life is granted by God
+
+老天爷给我的命不属于政府，谁也不是
+the life that God give to me does not belong to the government, nor is anyone
+
+连父母也没有权利剥夺，
+even parents have no right to deprive us
+
+是我们每个人都有追求幸福安全，言论自由的美好生活的权利
+each of us has the right to pursue a happy and safe life with freedom of speech
+
+这基本人权吧，是吧
+This is a basic human rights, right?
+
+自我表达，追求幸福各种方式的权利
+Self-expression, the right to pursue the happiness in various ways
+
+那这个药我不打总行嘛，你就剥夺我的工作
+I don’t want to take this vaccine, then you will deprive my job
+
+你就不让我 坐飞机，你就不让我坐车
+You don’t allow me take plane, or take bus
+
+那到底你是救我呢？还是害我呢？
+Are you saving me or hurting me?
+
+————————————————————
+
+Date:10/09/2021
+原视频标题:再谈谈疫苗
+Talk about vaccines again
+原视频日期：2021/10/07
+原视频链接:[https://twitter.com/se1y7cblljselva/status/1446411550441439233?s=24](https://twitter.com/se1y7cblljselva/status/1446411550441439233?s=24)
+任务编号：2478
+视频时间段 : 0:00-2:17
+英听校：洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

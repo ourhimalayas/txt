@@ -2,24 +2,21 @@
 ---
 
 
-## 有声|瑞士会谈的实质是美国借台湾存亡与中共进行的再次勾兑
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1585579/)
+## 荷兰实验室研究中国人的DNA
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1585606/)
 
-配音：香草山教育部-蒙古鸿雁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-10月8日，郭文贵先生盖特视频表示：瑞士会谈的实质是美中为了彼此利益的再次勾兑。美国借阻止打台湾之名，对中共软硬兼施，促使中共国继续买美国国债，以缓解美国的经济困境。郭先生说：美中在玩假的经济和假的政治环境，只是一时的缓解，最终是要出问题的，牺牲的还是台湾和老百姓。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10101-1.jpg)
+近年来，荷兰三大实验室与中(共)国科学家一起合作开发能够预测人的头发、眼睛或皮肤颜色的 DNA 研究技术。鉴于中(共)国当局可能将这些技术用于侵犯人权的目的，例如跟踪和大规模监视维吾尔族和藏族少数民族，这一消息在荷兰引发了批评和担忧。
 
-一切的虚假只能是海市蜃楼，最终会消失，而践行正道主义的新中国联邦，用行动建立了GTV、GETTR、GNEWS媒体平台，喜联储金融经济体系，必将成为世界新的政治力量。
+TV [Rtl Nieuws](https://www.rtlnieuws.nl/nieuws/artikel/5258161/nederland-china-dna-oeigoeren-mensenrechten)和独立网络杂志 Follow the Money的记者的揭露让荷兰的卓越科学研究中心感到尴尬，首先是鹿特丹的 Erasmus 医疗中心。据称，参与这些活动的中（共）国研究人员与中(共)国警方有联系。据荷兰记者透露，其中一些人是由北京警方直接雇用或支付的。
 
-文字版原文：[瑞士会谈的实质是美国借台湾存亡与中共进行的再次勾兑](https://gnews.org/zh-hans/1582736/)
+荷兰研究机构与中(共)国当局之间的关系，让学术界的各界人士感到震惊。他们认为这种合作是“根本错误的”，因为所获得的知识直接落入了中(共)国警方手中，他们利用这些技术镇压和迫害少数民族。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+RTL Nieuws 的中国记者罗兰·斯密德( Roland Smid)还说：”荷兰的所有主要大学都在中(共)国政府和共产党的直接控制之下，这些大学的主要目标是帮助国家朝着政治领导人指示的方向前进”。
+
+免责申明：本文只代表译者观点，与Gnews无关
+
+原文链接：[https://europa.today.it/attualita/ricerca-dna-cina-minoranze-etniche-olandesi.html#\_ga=2.5894970.863444649.1633877988-145009575.1615972944](https://europa.today.it/attualita/ricerca-dna-cina-minoranze-etniche-olandesi.html#_ga=2.5894970.863444649.1633877988-145009575.1615972944)
+
+责任编辑/校对/发布：意大利达芬奇农场   萧亦

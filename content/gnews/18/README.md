@@ -2,107 +2,139 @@
 ---
 
 
-## 七哥一心牵挂战友，共准备6000万个喜币，留给墙内被喝茶及核心战友
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1585451/)
+## 迈克·庞佩奥 &#8211; 我们需要明确，美国不会接受习近平所谓的统一台湾
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1585539/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2476.png)
-[https://gtv.org/video/id=6162e0a2d2e2b81748739be5](https://gtv.org/video/id=6162e0a2d2e2b81748739be5)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2470.png)
+[https://gtv.org/video/id=61624702d2e2b81748736ddc](https://gtv.org/video/id=61624702d2e2b81748736ddc)
 
-**郭文贵：
-Miles Guo：**
+Laura Ingraham (Fox News host)
+劳拉·英格拉汉姆（福克斯新闻主持人）
 
-七哥一心牵挂战友，共准备6000万个喜币，留给墙内被喝茶及核心战友
-Miles sets aside a total of 60 million H coins for core domestic comrades
+Mr. Secretary, very quickly,
+国务卿先生，我们快速回顾
 
-还有我们大连的被关了将近一年多的战友啊
-And our comrades in Dalian who have been detained for more than a year
+the White House response today two more questions about
+白宫今天回应了另外两个关于
 
-是吧
-Right？
+China’s sending more military jets over the skies of Taiwan,
+中共国正在派遣更多军用飞机飞越台湾上空
 
-很辛苦
-Suffered a lot
+this is how it went down the White House briefing room today.
+这就是今天白宫简报室回答的情况
 
-这是为啥我们现在有2000万喜币是通过基金买的
-This is why we now have 20 million H Coins bought through the fund
+Antony Blinken (Secretary of State)
+安东尼·布林肯（国务卿）
 
-都是给人钱，你不给人钱，人家喜币不给你呀
-(We) all give money to the Himalaya Exchange, if you don’t give them money, they don’t give you H Coins
+We strongly urge Beijing to cease its military, diplomatic and economic pressure on toward directly to Taiwan,
+我们强烈敦促北京停止直接向台湾施加军事、外交和经济压力
 
-这2000万喜币
-This 20 million H coins
+Female reporter
+女记者
 
-就是留给国内的那些战友们的
-is reserved for those domestic comrades
+China has ignored that in fact it has dialed up something even more military jets.
+中共国忽视了事实上它已经加强了更多军用飞机
 
-这2000万喜币
-This 20 million H coins
+So what does that say about the credibility of us deterrence on this issue.
+那么这对我们的威慑信誉这个问题上有什么看法呢？
 
-也就给国内的
-are also given to the domestic,
+Jen Psaki (White House Press Secretary)
+珍·普萨基（白宫新闻秘书）
 
-现在已经登记在册的,被喝茶，被侵害的，被伤害，被恐吓的(战友)
-now registered comrades who have been drunk tea, violated, injured and intimidated.
+I think the Secretary of State spoke to this earlier,
+我认为国务卿早些时候已说过
 
-我们已经登记大概在60多万人吧
-We have registered more than 600,000 people
+I don’t think I have anything more to add to what he said.
+我想我没有什么要补充的了
 
-60多万人
-600,000 people
+Laura Ingraham
+劳拉·英格拉汉姆
 
-这2000万币目前是给这60万人之一
-The 20 million H coins are currently given to these 600,000 people
+One line just describe that response.
+一句话就把这个反应描述出来
 
-这些全包含
-These are all inclusive
+Mike Pompeo (Former Secretary of State)
+迈克·庞佩奥 (美前国务卿）
 
-还有比这更多的，还没有被登记的肯定有
-There are more than this, there must be some who have not been registered yet
+Weak tepid and against the backdrop of the disaster
+在阿富汗发生灾难的背景下
 
-另外的一个， 我们还有一个2000万的喜币
-The other one, we also have another a 20 million H Coins
+there was Afghanistan the, the Russian pipeline
+俄罗斯的输油管被允许使用
 
-是专门给直接跟七哥联系的特殊贡献者
-for special contributors who directly contact me
+that was permitted the fact that Iranian missiles flew into the Gaza Strip
+伊朗的导弹飞入加沙地带等
 
-不在这2000万里边
-Not in this 20 million,
+the world views the United States weakened
+世界看到美国在削弱
 
-这是不含的
-This is not included,
+and I think Xi Jinping sees that with respect to Taiwan,
+而且我认为习近平在关于台湾问题上看到了这一点
 
-所以说这个大概一共是6000万个喜币
-So this is probably a total of 60 million H coins
+we need to do an awful lot more than a simple sentence
+我们需要做的很多而不仅仅是一个简单的句子
 
-已经被基金买下来
-that have been bought by the fund.
+or a simple demarche to the Chinese Communist Party,
+或者简单的向中国共产党进军提出抗议
 
-完全是跟G系列没有关系的
-It has nothing to do with the G series.
+we need to make clear that the United States is not going to accept Xi Jinping is desired to
+我们需要明确表示，美国不会接受习近平所希望的
 
-这个是家族基金买的
-This is bought by the family fund
+what he calls reunify the Taiwanese.
+所谓的统一台湾
 
-然后，未来是给战友的
-then, they will be given to comrades in the future
+Laura Ingraham
+劳拉·英格拉汉姆
 
-大家要记住啊
-Everyone should remember that
+you think the silent surrender is happening,
+你认为无声的投降正在发生
+
+the slow surrender is happening Secretary Pompeo,
+缓慢的投降正在发生， 国务卿庞佩奥
+
+is that what it looks like to you
+这就是你看起来的样子吗？
+
+Mike Pompeo
+迈克·庞佩奥
+
+I fear that it is, I pray that it’s not
+我很担心，我祈祷它不是
+
+the United States needs to do a lot to make Taiwan capable
+美国需要做很多事情才能让台湾有能力
+
+there’s a lot of things the United States could do
+美国可以做很多事情
+
+we have partners and friends the Japanese, the South Koreans,
+我们有伙伴和朋友，日本人、韩国人
+
+the Australians, the Japanese, all these countries could do an awful lot more
+澳大利亚人、日本人，所有这些国家可以做的更多
+
+the United States must do this for the people of Taiwan,
+美国必须为台湾人民这样做
+
+Laura Ingraham
+劳拉·英格拉汉姆
+
+Secretary Pompeo, great to see you tonight. Thank you.
+庞佩奥国务卿，很高兴今晚见到你, 谢谢你
 
 —————————————————————————
-
-Date: 10/08/2021
-原视频标题: 七哥一心牵挂战友，共准备6000万个喜币，留给墙内被喝茶及核心战友
-Miles sets aside a total of 60 million H coins for core domestic comrades
+Date:10/08/2021
+原视频标题: Mike Pompeo – We need to make clear that the United States is not going to accept what Xi Jinping calls reunifying the Taiwanese.
+迈克·庞佩奥 – 我们需要明确，美国不会接受习近平所谓的统一台湾
 原视频日期：2021/10/08
-原视频链接 [https://twitter.com/se1y7cblljselva/status/1446500094044295172?s=24](https://twitter.com/se1y7cblljselva/status/1446500094044295172?s=24)
-任务编号：2476
-视频时间段 : 00:00-01:15
-英听校：洛杉矶盘古农场 – Raul
-翻译：洛杉矶盘古农场 – Raul
+原视频链接: [https://twitter.com/mikepompeo/status/1446542114293223439?s=24](https://twitter.com/mikepompeo/status/1446542114293223439?s=24)
+任务编号：KE337（2470）
+视频时间段 : 0:00-1:36
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
 翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场- 银龙
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

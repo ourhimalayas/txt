@@ -2,34 +2,26 @@
 ---
 
 
-## 秘翻在线 :英国供应链融资领头羊格林希尔资本（Greensill Capital）倒闭
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1585320/)
+## 有声|罗昌平因质疑长津湖战役被刑事拘留
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1585372/)
 
-撰稿：William
-校对：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/p.jpg-3.png)
-图片来源：fcced
+音：香草山教育部-蒙古鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月8日，据消息称，微博账号“@罗昌平”于10月6日发布所谓“诋毁英烈”的内容，其账号根据相关规定予以关闭处理。同日，海南三亚市公安局吉阳分局发布警情通报指，10月7日接到相关举报，罗某平以涉嫌所谓”侵害英雄烈士名誉、荣誉罪”被刑事拘留。
 
-**格林希尔资本破产，全球数万人恐失业**
+据悉，中共的洗脑大片《长津湖》引起了观众的一系列讨论，当中，所有质疑电影制作水平和历史还原度的影评均被官方删除，相关公众号也被封禁。至于罗昌平的被拘，则是因为他在微博上写了一篇关于该电影的短评称：“半个世纪之后国人少有反思这场战争的正义性，就像当年的沙雕连不会怀疑上峰的’英明决策’。” — “沙雕”是愚蠢和无脑的网络用语。
 
-2021年3月初，供应链金融行业中的领头羊和金融科技新贵，格林希尔资本（Greensill Capital）申请破产保护。格林希尔资本是一家设在英国和澳大利亚的金融服务公司，由前卡梅伦首相时期担任高级顾问的莱克斯·格林西尔（Lex Greensill）所创建，主要提供供应链融资和相关服务。
+罗昌平曾任《中国商报》首席记者、《新京报》深度报道部主编、《财经》杂志副主编。此次罗昌平的被拘，加之中共这一系列文化领域的言论审查，让人不得不思索，中共的内斗是否已经完全处于白热化阶段。
 
-该公司为客户提供了供应链融资，这是一种短期借贷，使公司可以延长支付账单的时间。格林希尔将这些贷款打包成证券，称为票据，然后将其出售给第三方，其中包括瑞士信贷（Credit Suisse）管理的一套100亿美元的基金。瑞士警方日前突袭瑞士信贷银行(Credit Suisse)的办公室，并没收与瑞士信贷 100 亿美元有关的文件。这次突袭是由苏黎世州检察官下令进行的。
+文字版原文：[罗昌平因质疑长津湖战役被刑事拘留](https://gnews.org/zh-hans/1582520/)
 
-根据《零对冲》引用英国《金融时报》的报导，大量位于德国、瑞士和其他地方的市政当局通过瑞士信贷及其“贸易融资”基金和位于巴伐利亚的格林希尔Greensill银行存款，都投资了格林希尔资本，许多小镇的散户都被格林西尔的破产波及。
-
-破产管理者正大联合国际会计师事务所（Grant Thornton）指出，陷入困境的英国金融公司格林希尔（Greensill）遭遇连串财务困难后宣布破产。引发全球数万人恐失业的忧虑。
-
-**英国前首相卡梅伦遭调查**
-
-英国政府4月12日宣布，对已破产的金融公司格林希尔资本（Greensill Capital）展开调查，原因是曾在该公司担任顾问的卡梅伦涉嫌违规游说。卡梅伦2018年加入该公司。报导指出，卡梅伦在该公司任职期间曾私下联络现任财务大臣苏纳克（Rishi Sunak）、卫生大臣汉考克（Matthew Hancock）等，为公司谋取利益。
-
-**软银孙正义也牵连其中**
-
-早在格林希尔倒闭之前，英国《金融时报》就透露，瑞士信贷贸易融资基金实际上可能秘密（或许是非法）支持软银愿景基金投资。格林希尔破产，使软银愿景基金的投资化为乌有。格林希尔倒闭也损害了愿景基金中的其他公司，最严重的是建筑业初创公司Katerra。通过格林希尔将客户资金投资建筑业初创公司Katerra的瑞士信贷正准备起诉软银。
-
-**格林希尔倒闭，全世界的诉讼正开始**
-
-世界各地的检察官持续对格林希尔调查，重点在于其公司高层或其推动者所犯下的欺诈或不当行为。英国《金融时报》指出，无论检察官在这批文件中找到什么，大家都在屏息等待。
-
-新闻来源:[Swiss Police Raid Credit Suisse Offices As Greensill Investigation Heats Up](http://Swiss%20Police%20Raid%20Credit%20Suisse%20Offices%20As%20Greensill%20Investigation%20Heats%20Up)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

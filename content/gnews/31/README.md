@@ -2,35 +2,28 @@
 ---
 
 
-## “台独”是个伪命题？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1585279/)
+## 坚持个人疫苗接种选择，洛杉矶消防员将起诉政府
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585328/)
 
-撰稿：Julia
-![](https://assets.gnews.org/wp-content/uploads/2021/10/526C7818-C131-4963-9081-1DDA63D78031_w408_n_r1_st1.jpg)
-图片来源：网络
+作者：文龍
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月10号文贵先生在其盖特转发了一则短视频，是来自美国洛杉矶当地媒体的报，视频中当地消防员安德烈称。他和其他871名消防员联名，通过律师提交了起诉洛杉矶市政府的告知文件，原因是政府警告消防员必须在10月20日之前全部接种疫苗，否则将被解雇或停薪留职。消防员坚持自己的选择，并将向法庭提出要求每人200万美元的赔偿，因为自己的选择将导致失业!消防员们称。此举不仅是因为疫苗，而是关系到人权和法律程序。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/p89.002.jpeg)
+文贵先生在他的盖特中对此事件评论道:
 
-近日，中共对台湾在军事上频频进行侵略性威胁，习近平还借辛亥革命110周年之际发表讲话，称中共必将对台实现“和平统一”。不料，习的涉台讲话却遭到了台湾民进党当局的“回呛”。
+“洛杉矶发生的这种将面临没有消防员的情况，会在全球的电力、医院、警察等所有公共领域发生。全球的政府将面对无法计算的诉讼，以及社会公共灾难等巨大的社会问题，这是中共病毒和疫苗带来的灾难，是对人类社会秩序的摧毁性打击。这一结果完全在邪恶势力、和中共的计划之中。只有新中国联邦在2020年一月份就开始警告世界，疫苗才是灾难的真正核心。但愿世界早日醒来，我们新中国联邦人将为此奋斗到底 ” 。
+(本文仅代表作者观点)
 
-据路透社10月9日消息，台湾方面表示，台湾是一个独立的国家，中华民国是它的正式名称，台呼吁中共放弃胁迫，并且重申只有台湾人民才能决定他们的未来。
+参考链接：[郭文贵先生 10月10号的盖特](https://gettr.com/post/pdp5du787c)
 
-中共一直以来皆以“民族统一”大业之名号，指责台湾在国际事务上独立于中共政府的行为是“谋独”行为，斥骂台湾民进党当局者为“台独”分子。中共党总书记习近平与国台办发言人马晓光在近日公开场合的涉台发言中均指出：凡是数典忘祖、背叛祖国、分列国家的人，从来没有好下场，必将遭到人民的唾弃和历史的审判。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-然而，从法理上来说，中华民国成立于1912年，国民政府在与共产党的内战失败后于1949年退守台湾，共产党建立了今天的中华人民共和国，但台湾政权并未公开发表声明——台湾政权隶属于中共政权。
+编辑/校正/发稿：我不在这里
 
-且在上个世纪七十年代以前，台湾政权在国际社会中是以“中华民国”这样的身份参与到国际事务中。这表明，台湾政权和中共政权并没有隶属关系。那么，台湾到底何去何从，应该由台湾人民自己决定，与“台独”没有任何关系。
-
-尽管中共对其政权凌驾于台湾政权之上的法理性避而不谈，却总是打着“一个民族”的旗号要“统一”台湾，但即便从同属“一个民族”的常理性来说，其对台“统一”的主张和行为也有“强奸”民意之嫌。
-
-这就如同：所有的兄弟姐妹都是一胞所生，但不一定就得因为这个原因，所有人就不得离开这个大家庭。若有人感到在这个大家庭里生活得不愉快，甚至没有安全感，那么离开这个大家庭独自生活无可厚非。更何况，这个大家庭的正房被“小三”上位挤走后，正房领着愿意跟随自己的孩子，忍气吞声另立门户，反倒被小三斥责有“二心”。世间有这样的道理可言吗？
-
-台湾政权从未隶属于中共政权，何来“谋独”一说？所谓的“台独”说辞，不过是中共利用海峡的民族情怀，制造对立与仇恨的一个伪命题。
-
-台湾的民众若是一心亲共，为什么他们还要选举出民进党这样的“谋独”者当权，而不选择国民党这个亲共的党派执政呢？民众的投票最能体现他们对台湾走向的意愿。
-
-中共历来习惯绑架“人民”说事。既然如此，为何不尊重一下台湾人民的民意呢？
-
-[https://www.zaobao.com.sg/realtime/china/story20211009-1201629](https://www.zaobao.com.sg/realtime/china/story20211009-1201629)
-
-[https://cn.chinadaily.com.cn/a/202110/09/WS616177f7a3107be4979f1976.html](https://cn.chinadaily.com.cn/a/202110/09/WS616177f7a3107be4979f1976.html)
-
-[https://www.reuters.com/world/china/chinas-xi-says-reunification-with-taiwan-must-will-be-realised-2021-10-09/](https://www.reuters.com/world/china/chinas-xi-says-reunification-with-taiwan-must-will-be-realised-2021-10-09/)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
