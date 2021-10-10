@@ -2,32 +2,25 @@
 ---
 
 
-## 台湾总统府发言人称中华民国是主权国家!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585571/)
+## 川普称俄中正在研究美阿富汗遗弃的直升机
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1585595/)
 
-作者：云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中央社消息, 对于10月9日中共习近平所称:”台湾问题是中国内政”, 台湾总统府发言人张惇涵回应称，“中华民国是主权独立的国家，不是中华人民共和国的一部分；中华民国的未来，掌握在台湾人民的手中!”
+俄罗斯莫斯科喀秋莎农场 星河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide2-16.jpeg)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/T-3.jpg)middleeast.in-24.com
+美东时间10月10日报道，美国前总统川普在爱荷华州的一个支持者集会上表示，来自俄罗斯和中共国的专家已经拆解并正在研究美国在阿富汗遗弃的直升机，用以制造更好的武器。
 
-10月10日，蔡英文总统蔡英文也在双十国庆演说中提出”四个坚持”, 即 坚持自由民主宪政体制；坚持中华民国与中华人民共和国互不隶属；坚持主权不容侵犯并吞；坚持中华民国台湾的前途，必须遵循全体台湾人民的意志。蔡英文称这四个坚持，是台湾人民的底线。而香港的现况证明中共背弃了自己的承诺，印证所谓的‘一国两制’根本不可行。
+川普警告称，“俄罗斯和中共国已经有了我们的直升机样品，他们已经在拆解阿帕奇，研究它们，很快他们就能制造出更好的装备，而且成本更低。”
 
-(本文仅代表作者观点)
+这位前总统早些时候曾说，美国人在阿富汗放弃了价值850亿美元的军事装备。他明确指出，“昂贵的黑鹰直升机有可能落入俄罗斯和中共国手里。我们在那里有最新的坦克和导弹。我们在那里有黑鹰直升机，全新的，价值数十亿美元，现在俄罗斯、中共国将有机会使用它们。”
 
-参考链接：[國慶日演說總統談四個堅持、兩岸平等對話 全文一次看](https://www.cna.com.tw/news/firstnews/202110105005.aspx)
-[總統府：中華民國是主權獨立國家 民意拒絕一國兩制](https://www.cna.com.tw/news/firstnews/202110090099.aspx)
-[https://montrealtimes.news/台总统府：中华民国是主权独立国家-民意拒绝一国/](https://montrealtimes.news/台总统府：中华民国是主权独立国家-民意拒绝一国/)
+根据川普的说法，美国撤军后，俄罗斯将试图弥补前苏联的错误，重新恢复在阿富汗的影响力。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+美军自2001年以来一直在阿富汗。2021年4月，拜登宣布，他们将在911袭击事件周年纪念日之前完全撤出。最后一批美国士兵于8月30日离开了阿富汗。
 
-新闻访谈终审：文龍
-编辑/校正/发稿：谐趣园
+在西方军队的撤退中，该国被塔利班（一个被俄罗斯承认为恐怖分子并被禁止的组织）短暂占领。8月15日，武装分子进入喀布尔的总统府，宣布完全控制阿富汗。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+参考链接：
+
+[https://www.rbc.ru/politics/10/10/2021/61624fc39a7947c0ec3ff175?from=from\_main\_10](https://www.rbc.ru/politics/10/10/2021/61624fc39a7947c0ec3ff175?from=from_main_10)
