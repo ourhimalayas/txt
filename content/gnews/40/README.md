@@ -2,111 +2,91 @@
 ---
 
 
-## 再谈谈疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1585362/)
+## 10/10/21 香港快讯 【双十节】警方屯门红楼戒备 外籍保安设封锁线
+` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1585426/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2478.png)
-[https://gtv.org/video/id=6162e01dd2e2b81748739bca](https://gtv.org/video/id=6162e01dd2e2b81748739bca)
+**搜集****/****整理：卡西欧**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1010fenmian.jpg)
+封面素材：独立媒体
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-10-at-9.39.30-AM.png)
+**1.****【双十节】警方屯门红楼戒备****外籍保安设封锁线**
 
-郭文贵
-Miles Guo
+[据【立场新闻】10月10日讯，屯门中山公园内的青山红楼，是孙中山当年和革命同志开会的地方，每年都会有人在这里庆祝双十节，高举或挂起「青天白日满地红旗」。](https://www.thestandnews.com/politics/雙十節警方屯門紅樓戒備-外籍保安設封鎖線)
 
-大家记住啊，它的疫苗的成本是多少呢
-Remember, what is the cost of its vaccine?
+[今日是双十节，今早现场已有大批警员及警方传媒联络队在公园门外戒备，附近的天桥以及轻铁站亦有警员驻守。公园内的青山红楼附近已拉起封锁线及设置围栏，有大批外籍保安戒备，地上亦摆放了盾牌。另外有保安以手机拍摄封锁线外的传媒，有市民尝试进入中山公园，警员表示红楼是私人地方，不能进入。](https://www.thestandnews.com/politics/雙十節警方屯門紅樓戒備-外籍保安設封鎖線)
 
-大概在6美分到8美分，卖的价格是19美金到35美金和40美金不等
-It is about 6 cents to 8 cents, and the retail price ranges from 19 dollars to 35 dollars and 40 dollars
+[与去年相同，今日红楼门外有保安戒备，并拉上红白封锁线和以围栏围封，地上亦摆放盾牌。有市民早上有身穿青天白日旗上衣男子，带同旗帜尝试进入红楼，在门外被保安阻止进入，其后警员着他离开。](https://www.thestandnews.com/politics/雙十節警方屯門紅樓戒備-外籍保安設封鎖線)
 
-不同的时期不同的地方，你想想它有多大的暴利
-in different places and different periods, think about how profitable it is
+[保安局长邓炳强上月接受《星岛日报》专访，警告市民不要在「双十节」，意图做出将台湾从中共国分裂出来的行为，或者鼓励或煽动他人做出相关行为，指相关行为属严重罪行，当局必然会果断执法。邓炳强又指，如果没有分裂国家的意图，「为何要庆祝（双十）这个日子呢？」](https://www.thestandnews.com/politics/雙十節警方屯門紅樓戒備-外籍保安設封鎖線)
 
-那么药厂既然在人类遇到最大危难的时候发展出来疫苗拯救人类，是吧，
-Well, since pharmaceutical companies have developed vaccines to save mankind when mankind is in the greatest danger, right?
+[台湾中央社亦报道，本港一些亲台侨团原计划今年续办庆祝「双十」活动，为免触犯港区国安法，改以辛亥革命名义庆祝，并已预订餐厅设宴。惟有关餐厅日前突然通知相关团体取消预订合约，声称有关活动可能违反国安法。](https://www.thestandnews.com/politics/雙十節警方屯門紅樓戒備-外籍保安設封鎖線)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-10-at-9.39.41-AM.png)
+**2.****【双十节】被围封中大民主墙****贴满孙中山、钱穆照**
 
-你不应该再花钱去游说别人去救别人
-You should no longer spend money to persuade others and to save others
+[据【独立媒体】10月10日讯，中大学生会上周四（7日）宣布解散，校方同日起于铁马围封位于文化广场「告示板」（学生会民主墙）。今天是双十节，有人突破「铁马阵」在民主墙上贴满孙中山及新亚书院创办人钱穆的照片，不时有人驻足拍照。](https://www.inmediahk.net/node/政經/【雙十節】被圍封中大民主牆-貼滿孫中山、錢穆照)
 
-这个天下哪有说，我现在能救你在危难之中，
-Nothing in this world like this, I can save you now while you are in danger
+[民主墙被围封以来，连日来仍有人于铁马挂上连侬横额抗议。墙上仍见支持学生会内阁「朔夜」的字句，惟遭人以简体字涂鸦「分裂国家罪行严重前途尽毁」。](https://www.inmediahk.net/node/政經/【雙十節】被圍封中大民主牆-貼滿孫中山、錢穆照)
 
-我得给你钱，让我救你
-I have to give you money and let me save you
+[中大学生会于上周四宣布解散，学生会管理的民主墙亦在同日被校方围封，并贴出告示指校方于9月通过「告示板」进行改善工程，直至另行通知。](https://www.inmediahk.net/node/政經/【雙十節】被圍封中大民主牆-貼滿孫中山、錢穆照)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-10-at-9.39.53-AM.png)
+**3.  IKEA****香港网站一度显示今日为「国庆日」****现已移除**
 
-有人掉到水里了，都快死了，说要拉你上来
-like someone fell into the water and was dying, and someone saying that he would pull you up
+[据【大纪元时报】10月10日讯，今日是10月10日「双十节」，保安局局长邓炳强早前曾警告市民，勿于「双十节」意图作出「把台湾从中共国分裂出去」的行为。宜家家居（IKEA）香港网站的「IKEA新生活灵感日历」，在今日一度将日子显示为「国庆日」，不过现时已将相关内容删去。](https://hk.epochtimes.com/news/2021-10-10/84870158)
 
-但是我再给你准备上100万，这到底是啥事，是你把我推下去的
-but I will prepare another 1 million for you, what the hell is this? did you push me down?
+[有网民表示，「这么大胆?!」；有人估计负责日历的员工直接使用了台湾网站的日历，估计涉事员工或被辞退，「又要炒人」。不过亦有人批评政府，「日日一言不合就国家安全，正经事又没看见他们做」](https://hk.epochtimes.com/news/2021-10-10/84870158)
 
-还是你把我拉上来以后，还有什么事啊？
-or is there anything else after you pull me up?
+[保安局长邓炳强早前接受《星岛日报》专访，称如果没有分裂国家的意图，「为何要庆祝（双十）这个日子呢？」](https://hk.epochtimes.com/news/2021-10-10/84870158)
 
-我就搞不懂了，为啥疫苗公司，
-I just don’t understand why is the vaccine company
+[本报正向IKEA查询，至截稿时，未收到回应。](https://hk.epochtimes.com/news/2021-10-10/84870158)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-10-at-9.40.01-AM.png)
+**4. ****萧泽颐：「假新闻」处心积累煽动群众****有人立心不良以文化艺术「播毒」**
 
-全人类不知道病毒哪来的，
-The whole mankind doesn’t even know where the virus comes from?
+[据【立场新闻】10月10日讯，特首林郑月娥在任内最后一份施政报告中表明要打击「假新闻」。警务处处长萧泽颐表示，过去两年出现很多「假新闻」、「假消息」，令年青人对警方、政府、国家的误解非常大。他指，「假新闻」是处心积累，以欺编手段去煽动和误导群众。而自由建基于法律秩序和责任，「你不尊重法律，不尊重法治，那么你就没资格讲自由。」](https://www.thestandnews.com/politics/蕭澤頤假新聞處心積累煽動群眾-有人立心不良以文化藝術播毒)
 
-你就生产出疫苗，生产出来疫苗让别人打
-Vaccine company just produce that vaccine right away and provide to people
+[警务处处长萧泽颐今日在一个电台节目上表示，本港上半年共有 30,871 宗罪案，较去年同期减少 4.6%；有关刑事毁坏、纵火、非法集结等萧形容为与「黑暴」有关的案件，则下跌一成至四成半不等。萧泽颐形容，本港现时治安情况平稳，但要留意暴力事件会否转趋地下化。](https://www.thestandnews.com/politics/蕭澤頤假新聞處心積累煽動群眾-有人立心不良以文化藝術播毒)
 
-而且你要拿钱游说，给别人钱打你的疫苗
-and you have to lobby and give others money to let people get vaccinated
+[他特别指称一些别有用心、立心不良的人仍然蠢蠢欲动，以「软对抗」的方式，透过杂志、短片、文化艺术等方式「播毒」，以图煽动他人，呼吁市民要特别留意。而警方会加强情报搜集工作，扩大情报网，包括警方每日均会在网上留意是否有人作出煽动行为、发出煽动讯息。他又鼓励市民如发现有任何可疑，以至身边的人如有任何「激化」，均要尽快报案。](https://www.thestandnews.com/politics/蕭澤頤假新聞處心積累煽動群眾-有人立心不良以文化藝術播毒)
 
-然后让政府强制打，你不情愿打
-Then the government mandate the vaccine, people are not willing to do so
+[至于市民于明年六四能否合法参与悼念集会，萧泽颐指，警方每次处理就游行、集会申请时，都会进行独立的风险评估，包括国家安全、公共安全和秩序、他人权利和自由。他特别强调「他人权利和自由」，「当你讲自由之余，影响到第三者，这个就系自私；当你犯了法，就是自毁前程。」](https://www.thestandnews.com/politics/蕭澤頤假新聞處心積累煽動群眾-有人立心不良以文化藝術播毒)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-10-at-9.40.13-AM.png)
+**5. ****林郑月娥说通关健康码没能力自动追踪亦不记名**
 
-但是打的时候还得让你自己承担责任
-also people have to take responsibility when they take the vaccine
+[据【香港电台】10月10日讯一名在机场货站工作的男子确诊感染新型肺炎，约50日的本地零确诊断缆。行政长官林郑月娥表示，至目前为止，中央没有因为出现这宗个案而影响商讨通关的步伐。她提到在航空方面，或会走漏一两宗个案，需要管控好。她又说，最新的个案涉及400多人到竹篙湾检疫，反映追踪非常严谨，期望得到中央谅解，特区已尽最大努力去做。](https://news.rthk.hk/rthk/ch/component/k2/1614509-20211010.htm)
 
-它药厂不承担责任，这叫啥疫苗啊？这符合逻辑吗？
-The pharmaceutical company does not take any responsibility. What kind of this vaccine is? Is this logical?
+[林郑月娥强调，最终要商讨的是免检疫通关下的熔断机制，例如像澳门一样，大家可能要同意一有个案就中断通关。](https://news.rthk.hk/rthk/ch/component/k2/1614509-20211010.htm)
 
-最重要的事情，所有的西方天主教，基督教徒
-The most important thing that all Western Catholics, Christians
+[另外，林郑月娥表示，通关用的健康码没有能力做到自动追踪亦不记名，因此需要免检疫返回内地的人士要自愿交齐资料，特区政府会在资讯科技上配合。](https://news.rthk.hk/rthk/ch/component/k2/1614509-20211010.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-10-at-9.40.28-AM.png)
+**6. ****李家超称创造有利通关条件　争取与内地再开会商讨**
 
-一个根本原则，人命天受
-have a fundamental principle that life is granted by God
+[据【香港电台】10月10日讯政务司司长李家超表示，《施政报告》明确说明政府正积极推进通关工作，他已要求各部门全面检视现时工作，创造通关有利条件，争取尽快与内地相关单位举行第二次对接会议。](https://news.rthk.hk/rthk/ch/component/k2/1614483-20211010.htm)
 
-老天爷给我的命不属于政府，谁也不是
-the life that God give to me does not belong to the government, nor is anyone
+[李家超在网志表示，上月率团与内地当局及专家举行会议，双方交换逐步有序恢复通关涉及事宜的意见，以及研究通关后可能产生的风险。相关局长将全力跟进，包括创新及科技局会制定健康码、食物及卫生局会牵头再强化检测、个案追踪、防范社区传播等措施。](https://news.rthk.hk/rthk/ch/component/k2/1614483-20211010.htm)
 
-连父母也没有权利剥夺，
-even parents have no right to deprive us
+[李家超又说，他将全力支持行政长官施政，推展和落实各项措施，包括要求相关政策局定期汇报，领导基本法推广督导委员会加强《宪法》、《基本法》及国家安全教育，推展落实公职人员的宣誓要求等。](https://news.rthk.hk/rthk/ch/component/k2/1614483-20211010.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-10-at-9.40.39-AM.png)
+**7. ****特首促房委会加快建屋　否则或需负责现金津贴计划支出**
 
-是我们每个人都有追求幸福安全，言论自由的美好生活的权利
-each of us has the right to pursue a happy and safe life with freedom of speech
+[据【香港电台】10月10日讯行政长官林郑月娥表示，至今已向5万个轮候公屋超过3年的合资格家庭批出现金津贴，占申请数目的8成。](https://news.rthk.hk/rthk/ch/component/k2/1614504-20211010.htm)
 
-这基本人权吧，是吧
-This is a basic human rights, right?
+[林郑月娥在一个电视节目解释，「轮候公屋3年上楼」是房委会的责任，既然给予房委会工作，就有责任尽快建屋，从而达致上楼目标。目前现金津贴计划的钱是由政府支付，她期望能够令房委会更有动力，加快建屋，否则现金津贴就应该由房委会支付，从而建立问责的责任。](https://news.rthk.hk/rthk/ch/component/k2/1614504-20211010.htm)
 
-自我表达，追求幸福各种方式的权利
-Self-expression, the right to pursue the happiness in various ways
+[被问到是否将责任推予房委会，林郑月娥回应说，近年建屋工作并不限于房委会，她亦已督促房委会使用组装合成，尤其出租公屋应该标准化。不过她认同，规定建屋时间硬指标是不公道，要视乎地基等情况，下一步会与运输及房屋局局长检视建屋流程，了解有无办法压缩。](https://news.rthk.hk/rthk/ch/component/k2/1614504-20211010.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-10-at-9.40.50-AM.png)
+**8. ****独立创作谋出路****台补助艺团用串流不限平台****港电影资助停留「供戏院放映」**
 
-那这个药我不打总行嘛，你就剥夺我的工作
-I don’t want to take this vaccine, then you will deprive my job
+[据【众新闻】10月10日讯，韩剧《鱿鱼游戏》热播，正好说明串流平台进占都市人的生活，疫情加快改变影视作品的放映模式和观影体验。](https://www.hkcnews.com/article/46344/串流平台-netflix-viutv-46344/獨立創作謀出路-台補助藝團用串流不限平台-港電影資助停留「供戲院放映」)
 
-你就不让我 坐飞机，你就不让我坐车
-You don’t allow me take plane, or take bus
+[面对政治审查加剧的香港，社政题材的实体放映愈趋困难，网上串流平台似乎成为独立创作的出路。当目前没有影院播放政治题材电影《十年》、纪录片《黄之锋：热血青年vs超级强权》时，在串流平台上仍可收看。商经局上月表明，现行电检条例不适用串流平台或互联网，但强调不论实体或网上发布，也必须符合国安法及其他本地法例。那么现时香港的串流平台发展情况终究如何？](https://www.hkcnews.com/article/46344/串流平台-netflix-viutv-46344/獨立創作謀出路-台補助藝團用串流不限平台-港電影資助停留「供戲院放映」)
 
-那到底你是救我呢？还是害我呢？
-Are you saving me or hurting me?
+[串流平台简单来说，即是Netflix的播放模式。至今年1月在全球坐拥2亿订户。 2013年，香港电视不获免费电视牌照，及后亦转用OTT形式免费播放港视节目。](https://www.hkcnews.com/article/46344/串流平台-netflix-viutv-46344/獨立創作謀出路-台補助藝團用串流不限平台-港電影資助停留「供戲院放映」)
 
-————————————————————
+[香港两大免费电视台都有开发串流平台（OTT业务），主要都是采用广告及订阅的营运模式。根据电讯盈科（0008）旗下的Viu策略地将优质内容以收费模式播送，令订阅收益跃升62%，增长主要来自大东南亚地区，其中泰国及印尼表现强劲。](https://www.hkcnews.com/article/46344/串流平台-netflix-viutv-46344/獨立創作謀出路-台補助藝團用串流不限平台-港電影資助停留「供戲院放映」)
 
-Date:10/09/2021
-原视频标题:再谈谈疫苗
-Talk about vaccines again
-原视频日期：2021/10/07
-原视频链接:[https://twitter.com/se1y7cblljselva/status/1446411550441439233?s=24](https://twitter.com/se1y7cblljselva/status/1446411550441439233?s=24)
-任务编号：2478
-视频时间段 : 0:00-2:17
-英听校：洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[截至6月底，Viu每月活跃用户为4,940万名，付费订户亦有700万名，即半年间增加170万人付费订阅。](https://www.hkcnews.com/article/46344/串流平台-netflix-viutv-46344/獨立創作謀出路-台補助藝團用串流不限平台-港電影資助停留「供戲院放映」)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[相反，根据电视广播（00511）去年业绩报告指出，myTV SUPER OTT业务，对外客户分部收入下跌7%至4.12亿元，其中广告收入下跌4成至1.05亿元，截至今年6月底，登记用户总数达952万名，付费订户约120万名，即半年间流失10万付费订户。 myTV SUPER的收看量及收视表现，无论在每周平均观看时间、24小时收视率、黄金时段收视率，全部都比去年同期跌两成。](https://www.hkcnews.com/article/46344/串流平台-netflix-viutv-46344/獨立創作謀出路-台補助藝團用串流不限平台-港電影資助停留「供戲院放映」)
+
+【以上观点仅代表笔者本人 并不代表GNEWS立场】
+
+校对 / 封面合成：文粤 / 发布：流光飞舞
