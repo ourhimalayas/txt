@@ -2,37 +2,17 @@
 ---
 
 
-## 澳洲维多利亚州：继9月地震后再次发生地震
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1584749/)
+## 未来在各国避税将变得更加困难
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1584788/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/r0_0_800_600_w1200_h678_fmax.jpg)
-图片来源：canberratimes.com.au
+10月8日，在爱尔兰、爱沙尼亚和匈牙利同意后，占全球经济90%的136个国家达成了一项里程碑式的协议。该协议将全球 #最低企业税率 设定为至少 #15% 的界限，并使 #避税 变得更加困难。美国总统拜登表示，该协议创造了公平的竞争环境。
 
-**整理报道：**小红帽
+#财经G评：美国通过《#海外账户纳税法案》实行对美国公民或绿卡持有人的全球征税， #CRS （#commonreportingstandard 共同申报准则）的概念即来自于美海外账户税收合规法，即各国家（地区）之间相互交换金融账户的涉税信息。
 
-10月9日周六凌晨3点47分，澳大利亚维多利亚州发生地震。该州的紧急服务中心收到了100多份来自居民的震感报告。
+在2017年9月，百慕大、英属维尔京群岛、开曼群岛、卢森堡等“避税天堂”相互就已经进行了第一次信息的交换。已有100多个国家和地区参与到了CRS中，第二批包括中国、中国香港、中国澳门等国家和地区。
 
-维多利亚州紧急服务中心表示，在默里维尔（Murrayville）附近发生了4.8级地震，震源深度为2公里。
+如果你是生活在海外的华人并持有中国护照，那么当地的银行很有可能会要求你填写一个 #CRS表格，以证明你同时也是中国的纳税人。各国政府在全球追税的结果必然会导致资金不断地涌入 #数字货币 的池子里，未来数字货币的潮流将势不可挡！
 
-在地震发生后的几个小时内，人们感受到了几次余震。根据测量，地震分别为3.0、2.8和2.6级。
+参考资料：https://cn.reuters.com/article/global-business-corporate-tax-1009-idCNKBS2GZ014
 
-就在两周前，该州于9月22日就经历了有记录以来最大的地震。
-
-曼斯菲尔德（ Mansfield）发生的5.8级地震损坏了建筑物，整个墨尔本乃至堪培拉、悉尼和阿德莱德都有震感。大约15分钟后，第二次地震也发生在曼斯菲尔德，震级为4级。
-
-一名男子在进行建筑工作时受了轻伤。地震发生后，收到超过100个求助电话，其中55个来自​​墨尔本市区。大多数造成的是对烟囱、外墙和旧建筑的轻微结构损坏。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**新闻来源**：[Victoria hit by ANOTHER earthquake near Murrayville just two weeks after experiencing its worst in history | 7NEWS](https://7news.com.au/weather/natural-disasters/another-earthquake-recorded-in-victoria-c-4189277)
-
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+【财经G乐部- FinanceGCLUB】

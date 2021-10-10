@@ -2,18 +2,43 @@
 ---
 
 
-## 纽约医院拒不使用伊维菌素 感染中共病毒的前越战老兵不幸逝世
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1584687/)
+## 西南航空飞行员工会起诉航空公司强制接种疫苗
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1584714/)
 
-#### 撰稿：zzballack
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-48.jpg)图片来源：福布斯
-据 Flag and Cross 网站10月8日报道，纽约一名男子因为其所在医院拒绝使用伊维菌素对他进行治疗而不幸死亡。该医院甚至拒绝执行法院下达的使用伊维菌素命令。
+**作者**：香草山美食部 蓝天大海
 
-据电视台WHEC-TV报道，已完全接种中共病毒疫苗的越战老兵杰里米·卡特（Jeremy L. Carter）8月28日在被检测出中共病毒呈阳性后，被送入罗切斯特总医院（Rochester General Hospital）。医生最初给他开了瑞德西韦（Remdesivir）和地塞米松（Dexamethasone）药物进行治疗。但到了9月20日，由于病情恶化，他被转到了重症监护室。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2.jpg)
 
-卡特的女儿问她父亲的医生是否可以让父亲开始服用伊维菌素，因为一些医生说伊维菌素对减轻中共病毒症状很有效。医生对此表示同意并写了治疗方案。然而，当把这一方案告诉罗切斯特总医院时，医院却断然拒绝使用该疗法。因此卡特和他的女儿将医院告上法庭。赢得裁决后，他们要求医院采用医生的伊维菌素方案，但是医院仍然拒绝执行。罗切斯特地区卫生局甚至提出上诉，让法院允许他们拒绝使用该疗法。由于医院继续拒绝使用伊维菌素等有效药物治疗患者，卡特在10月2日不幸逝世。
 
-这则新闻让人痛心，一位曾上过战场、为国奋战的老兵就这样不幸逝世。更让人扼腕的是医院的蛮横无理和无视科学甚至法庭，本该救死扶伤的人却成了间接杀手。虽然不知医院为何坚持拒绝使用伊维菌素，是对药物的偏见还是其它更为邪恶的动机，但是它别想逃过日后的追责。
 
-新闻来源：[Man Dies from COVID as Hospital Refuses to Treat Him with Ivermectin Despite Court Orders](https://flagandcross.com/man-dies-from-covid-as-hospital-refuses-to-treat-him-with-ivermectin-despite-court-orders/)
+
+
+据零对冲10月9日报道，代表西南航空公司飞行员的工会正在提起诉讼，以阻止航空公司强制飞行员接种疫苗。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/pilots3.jpg)图片来源：零对冲
+
+这是工会反对拜登政府颁布的新冠疫苗接种要求的首批案例之一。法庭文件显示西南航空公司飞行员工会要求立即在达拉斯联邦法院就该诉讼进行听证。工会认为，新的强制接种疫苗政策，事实上是非法强加了新的就业条件，资方凡是涉及到新冠的政策变化都需要和工会谈判，并声称该航空公司强迫员工要么接种疫苗，要么被解雇或无薪休假，是一种“单方面的行动”，这违反了《铁路劳工法》。该航空公司根据拜登政府最新的强制接种疫苗的政策，要求飞行员必须在2021年12月8日之前完全接种疫苗，否则公司和飞行员的合约将被终止。
+
+飞行员面临着独特的风险，因为疫苗副作用可能会影响他们通过定期的体检，从而使飞行员失去飞行执照。该飞行员工会代表着西南航空公司的九千多名飞行员。
+
+六月底，英国航空公司有四名飞行员接种疫苗后死亡，其他接种疫苗后出现的死亡、残疾等等报道也越来越多。西南航空公司工会希望看到其他工会也有类似的行动，共同反对政府和航空公司强制疫苗接种的政策。有报道称，英国飞行员进行反击后，航空公司对飞行员的限制正在放松。
+
+参考消息：
+
+[https://www.zerohedge.com/political/southwest-pilots-union-sues-block-airlines-vaccination-mandate](https://www.zerohedge.com/political/southwest-pilots-union-sues-block-airlines-vaccination-mandate)
+
+***编辑/校对/发稿：遍地开花***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-2.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)

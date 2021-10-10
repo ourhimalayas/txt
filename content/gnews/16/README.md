@@ -2,38 +2,23 @@
 ---
 
 
-## 在安大略镇结婚需要全面接种疫苗
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1584902/)
+## 秘翻在线：澳智库：统一台湾只不过是习近平推动民族主义的一张牌
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1584943/)
 
-- **西班牙巴塞罗那喜悦农场—wenwu**
+#### 撰稿：彩虹
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片2-7.jpg)图片来源：日经亚洲评论
+10月10日，澳洲战略政策研究所（ASPI）国防战略与安全主任迈克尔·舒布里奇（Michael Shoebridge）参加了澳大利亚《天空新闻台》节目，针对中共国习近平发表了自己的看法。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip283.png)
+他批评习近平“给中国带来的只有斗争”，而台湾的统一是他试图推动民族主义的一张牌。
 
-安大略省的奥克维尔市现在要求提供全面接种疫苗的证明，才能颁发结婚证。
+针对中共国内部的经济和政治问题，他说：“他让金融业和恒大房地产开发公司陷入了一大堆麻烦，将党的权力凌驾于富有企业的领导人之上。不久前，我们在澳大利亚被告知，说企业与企业的联系是回到之前与中共国政府美好关系的路径。但是现在的事实却证明，这些（中共国）商人对他们自己与中共政府的关系感到恐惧，更何况通过我们自己的企业精英们来帮助澳大利亚（重回与中共的关系）。”
 
-奥克维尔的[疫苗规定](https://www.oakville.ca/townhall/proof-of-vaccination.html)于 9 月 22 日生效。其内容为奥克维尔将要求任何年满 12 岁或以上的人，或者获得“任何新的结婚证和结婚仪式预约的”，需要提供身份证明和完全接种中共（COVID-19）疫苗（或医疗豁免）的证明……值得一提的是，已经预订的结婚证和仪式不需要接种中共疫苗；显而易见的还有，奥克维尔市的疫苗强制令已经超过了安大略省的要求。
+对此，他分析道：“中国共产党一直在努力控制中国，而培养起一批不受他们控制的富人，则对共产党的风险太大，因此，习近平正在重新集中权力，使其不受富人的影响。”
 
-《后千禧年》[报道](https://thepostmillennial.com/ontario-town-requires-full-vaccination-to-get-married)说，“进入餐厅、健身房、夜总会、体育赛事、音乐会、赌场、脱衣舞俱乐部等需要全面接种疫苗。” 他们指出，有一些例外情况，包括人们进入某个区域使用洗手间、承包商出于工作目的进入建筑物，以及获得基本服务的人。
+舒布里奇认为，中共内部也出现了类似的情况，比如，习近平正在“清洗”那些“野心家”或“敢于发表不同意见”的（中共）党员。
 
-**简评：**
+**新闻来源**
 
-**邪恶势力的生物疫苗，可以管天管地，还管生殖器。**
-
-**疫苗的灾难在于管控人类的行为。另外，疫苗的出发点绝不是出于保护自己或者他人的社会健康，而是一些利益集团的屠杀手段，以及具有粉饰地欺诈、抢劫行为。**
-
-**另外，一则相关报道。**
-
-**盖特战友[@Myway](https://gettr.com/post/pdmyh6e917)的盖文分享。安大略省教师工会持有阿里巴巴、微软公司和中共疫苗的股票！！！现在明白他们为什么拼命逼学生打疫苗了吧！**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip282.png)
-
-（文章仅代表作者观点与GNEWS无关）
-
-**新闻来源：《[门户网](https://www.thegatewaypundit.com/2021/10/full-vaccination-required-get-married-ontario-town/)》｜作者：卡桑德拉·费尔班克斯｜发布时间：2021年10月9日**
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+[Xi Jinping has ‘brought nothing but struggle to China’](https://www.skynews.com.au/opinion/outsiders/xi-jinping-has-brought-nothing-but-struggle-to-china/video/66ccbe4462e952da4a0aef64a22781d5)
