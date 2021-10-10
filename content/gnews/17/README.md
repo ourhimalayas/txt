@@ -2,50 +2,22 @@
 ---
 
 
-## 加拿大对中共国采取绥靖政策
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1584557/)
+## 国家电网崩溃 黎巴嫩停电数日
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1584584/)
 
-作者：鬼五
+#### 编译：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-21.jpg)图片来源：网络截图
+据《以色列时报》10月10日报道，由于金融危机下的燃料短缺，黎巴嫩两个最大的发电站al-Zahrani和Deir Amar发电厂于周六关闭，全国范围内将面临数日的停电。
 
+据LBCI电视网报道，在这两个发电厂的燃料耗尽后，它们与电网的分离使国家电力生产降低到200兆瓦以下，迫使其倒闭。一位政府官员说：黎巴嫩的电力网络在下周一之前，或者在几天之内，它都不太可能工作。国家电力公司将尝试使用军队的燃料储备来暂时运营这些电厂，但这不太可能很快发生。
 
+这个拥有600万人口的国家正在经历有史以来最严重的金融危机，货币贬值约90%，人们的储蓄被困在银行，合格的劳动力成群结队地移民。它被世界银行描述为19世纪50年代以来世界上最严重的危机之一。
 
+黎巴嫩持续的经济危机根源于统治阶级数十年来的腐败和管理不善，以及依靠赞助和裙带关系蓬勃发展的一个以教派为基础的政治体系。
 
+真主党领导人哈桑·纳斯鲁拉在8月宣布，伊朗正在向黎巴嫩运送燃料，以帮助缓解危机。黎巴嫩总理纳吉布·米卡提说，这些货物侵犯了黎巴嫩的主权，没有得到他的政府的批准。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+埃及、约旦、叙利亚和黎巴嫩的能源部长上个月早些时候同意了一项计划，将埃及的天然气和约旦的电力通过叙利亚输送到黎巴嫩。
 
-
-
-
-
-
-
-据The Blobe and Mail消息 ， 加拿大外交部长马克·加诺上周表示，康明凯和迈克尔·斯帕沃尔被中共释放回加拿大后，加国政府将对中共采取所谓的四重方针：共存、竞争、合作和挑战。这表明加拿大事实上即将陷入中共 “搁置分歧，寻求共同点”的陷阱。
-
-事实上，加国政府可能正在追求五重方法，第五重，即是投降， 加拿大政府或将默许中共以下的恶行：维吾尔族种族灭绝、香港镇压自由、中共在加拿大的广泛的间谍、干扰和骚扰活动、 “一带一路”的债务陷阱外交，以及在南海的霸权行为。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-47.jpg)
-华为5G设施为中共的国家间谍活动提供便利，或者会在未来冲突期间使加拿大的关键基础设施瘫痪。
-
-加拿大目前的软弱政策为该国的主权和安全埋下隐忧。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：Ryan
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+新闻来源：[Lebanon left without power for days after state-run grid collapses](https://www.timesofisrael.com/lebanon-faces-several-days-without-power-after-state-run-grid-collapses/)

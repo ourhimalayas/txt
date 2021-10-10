@@ -2,22 +2,49 @@
 ---
 
 
-## 国家电网崩溃 黎巴嫩停电数日
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1584584/)
+## 加州实施学童强制疫苗政策 但州长 12 岁女儿并未接种
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1584636/)
 
-#### 编译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-21.jpg)图片来源：网络截图
-据《以色列时报》10月10日报道，由于金融危机下的燃料短缺，黎巴嫩两个最大的发电站al-Zahrani和Deir Amar发电厂于周六关闭，全国范围内将面临数日的停电。
+作者：文一
 
-据LBCI电视网报道，在这两个发电厂的燃料耗尽后，它们与电网的分离使国家电力生产降低到200兆瓦以下，迫使其倒闭。一位政府官员说：黎巴嫩的电力网络在下周一之前，或者在几天之内，它都不太可能工作。国家电力公司将尝试使用军队的燃料储备来暂时运营这些电厂，但这不太可能很快发生。
 
-这个拥有600万人口的国家正在经历有史以来最严重的金融危机，货币贬值约90%，人们的储蓄被困在银行，合格的劳动力成群结队地移民。它被世界银行描述为19世纪50年代以来世界上最严重的危机之一。
 
-黎巴嫩持续的经济危机根源于统治阶级数十年来的腐败和管理不善，以及依靠赞助和裙带关系蓬勃发展的一个以教派为基础的政治体系。
 
-真主党领导人哈桑·纳斯鲁拉在8月宣布，伊朗正在向黎巴嫩运送燃料，以帮助缓解危机。黎巴嫩总理纳吉布·米卡提说，这些货物侵犯了黎巴嫩的主权，没有得到他的政府的批准。
 
-埃及、约旦、叙利亚和黎巴嫩的能源部长上个月早些时候同意了一项计划，将埃及的天然气和约旦的电力通过叙利亚输送到黎巴嫩。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-新闻来源：[Lebanon left without power for days after state-run grid collapses](https://www.timesofisrael.com/lebanon-faces-several-days-without-power-after-state-run-grid-collapses/)
+
+
+
+
+
+
+【Gateway Pundit】10 月 9 日报道：民主党加州州长加文-纽森在《洛杉矶时报》最近发表的一篇文章中承认，他12岁的女儿尽管符合强制疫苗接种条件，但还没有接受这种注射。
+
+10月1日，这位民主党州长宣布了美国首个 K-12 学童强制疫苗政策。文章强调，州长已经违反了他自己公布的疫苗政策，并指出很多疫情期间的限令只是针对普通民众，制定政策的政客们并未受其约束。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-27.jpg)
+参考链接：
+[Newsom Admits 12-Year-Old Daughter Has Not Yet Been Vaccinated Despite K-12 Vaccine Mandate for Rest of State](https://www.thegatewaypundit.com/2021/10/newsom-admits-12-year-old-daughter-not-yet-vaccinated-despite-k-12-vaccine-mandate-rest-state/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Q大哥
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

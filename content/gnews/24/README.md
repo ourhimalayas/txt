@@ -2,35 +2,41 @@
 ---
 
 
-## 八名俄外交官因从事间谍活动遭北约驱逐
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1584484/)
+## 加密货币市场难逃恒大崩盘拖累
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1584513/)
 
-作者：文真
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/AlekseyIvanov-Bitcoin-1000x600-1.jpg)
+图片来源：crypto-news-flash.com
 
+**整理报道：**小红帽
 
+加密货币市场继续受到中共国实施加密资产境内交易禁令的严重影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-15.png)
+一个比特币于10月10日的价值略高于[54,499](https://cn.investing.com/crypto/bitcoin)美元，远低于9月初近71,000美元的峰值。另一种主要的加密货币以太坊的价值也在下滑，其中一个以太币于10月10日的价格略高于[3,512](https://www.528btc.com/coin/3007.html)美元。 9月初，以太币的价格上涨了近20%，略低于5,300美元。
 
+交易加密货币交易网eToro的市场分析师和加密专家西蒙·彼得斯（Simon Peters）表示，**中共国的持续发展，包括不断膨胀的恒大危机，正在严重影响加密货币市场。**
 
+**“9月底，有关恒大危机的消息开始出现，危机蔓延到所有市场。随着9月27日广泛的抛售开始，加密资产受到了影响，**”彼得斯先生说。
 
-10月7日，北约30个成员国做出一致决定，驱逐八名俄罗斯代表团成员，并将俄代表团最大人数减至10人。这一决定是在对2014年捷克爆炸案进行调查后作出的。据称，这八名成员是未申报的俄罗斯情报人员。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-10.jpg)
-为了更清楚地了解俄罗斯威胁的程度，北约要求所有盟国提供关于俄罗斯情报机构近年来在其各自国家的可疑秘密活动和行动的信息。北约秘书长斯托滕贝格称，根据情报，俄罗斯在欧洲的恶意活动有所增加，因此必须采取行动。北约认为，必须加强其威慑和防御，以应对俄罗斯的侵略行为。北约和俄罗斯之间的关系正处于冷战结束以来的最低点。
+“恒大拥有超过3000亿美元的巨额债务，且未能按时向债权人付款。对更广泛的加密市场的影响并不直接，但随着债务担忧迫在眉睫，Tether等加密资产可能会受到影响。”
 
-（本文仅代表作者观点）
+彼得斯先生表示，**最有可能受到恒大倒闭影响的加密资产是那些与储备资产挂钩的加密资产，而不一定是比特币和以太坊等大牌。**
 
-参考链接：[八名俄外交官因从事间谍活动遭北约驱逐](https://www.breitbart.com/national-security/2021/10/07/nato-expels-half-of-russias-mission-accusing-them-of-espionage/)
+“像Tether这样的稳定​​币与美元等法定货币挂钩。但为了保持挂钩，他们需要持有与加密资产价值相匹配的资产，”彼得斯先生表示。“**许多人无法持有大量现金，而是使用商业票据（一种短期债务），来计算价值。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+“这里的问题是，随着恒大为债务市场创造了2008年式的传染风险，如果稳定币持有的商业票据贬值，它们可能会陷入困境。不幸的是，由于这种危机是史无前例的，接下来会发生什么还有待观察。”
 
-新闻访谈终审：鬼五
-编辑/校对/审核：Hetangyuese
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**新闻来源**：[Bitcoin crash: The cryptocurrencies most at risk of an Evergrande collapse (9news.com.au)](https://www.9news.com.au/world/cryptocurrency-markets-rocked-by-chinese-economy-as-evergrande-threatens-stablecoins/f11fa133-3ab8-4285-a821-0e8c87f0ce83)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-15.png)
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
