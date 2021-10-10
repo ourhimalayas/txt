@@ -2,54 +2,54 @@
 ---
 
 
-## 新加坡的COVID-19感染率飙升
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1584014/)
+## 拜登的疫苗授权根本不存在，它只是一个新闻发布稿 （2/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1584137/)
 
-- 编译：七叶之芒
+**（第二部分）**
 
+- **编译：JennyBall**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-1-6.png)图片来源：www.thegatewaypundit.com
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip280.png)
+本周早些时候，《华尔街日报》发表了布鲁斯·阿特金森(Bruce Atkinson)的[一封信](https://www.wsj.com/articles/vaccine-mandate-covid-19-biden-osha-rule-legal-11633381896)，对根本不存在的授权提出了一些出色的观察，包括以下内容：
 
-## 尽管该国是世界上疫苗接种率最高的国家之一，达83%
+由于该授权的不存在，这可以使拜登政府免受可能由于限制职业安全与健康管理局权力而面对的法律挑战。**然而，该指令在迫使行业和公司合规方面仍然有效**，因为它为最终针对不合规实体的任何发行留出了空间。这种隐性的打击，对依赖联邦支出或联邦监管机构善意的行业和公司特别有效。不存在的授权，还允许如此倾向的州和地方政府以及公司用来发布似乎与华盛顿同步的自己的授权。
 
-新加坡卫生部报告说，尽管新加坡的疫苗接种率在世界排名第五，但COVID-19的突破性感染连续四天大幅增加。全国80%以上的人都接种了COVID-19疫苗。
+拜登的白宫通过将一项不存在的任务作为一项已完成的交易而达到了绝妙的目的。
 
-根据最新报告，截至2021年10月7日，83%的人已经接种了两剂COVID-19疫苗，85%的人至少接种了一剂。
+现在，让我看看，这一切让你想起了哪一届总统？ 为什么？那正是“笔和电话”先生本人——巴拉克·奥巴马。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-09-at-3.48.10-PM.jpg)
+(奥巴马告诉他的内阁, 他不会等待国会就 2014 年的关键议程项目采取行动。)
 
-截至2021年10月8日中午12点，新加坡卫生部共记录了3590个COVID-19感染的新病例，比周四的3483个病例有所增加。
+“我有一支笔，我有一部电话，”他在2014年的第一次内阁会议上说。 奥巴马在概述该战略时表示，如果国会证明无法或不愿意按照他的优先事项采取行动，**他计划用他的笔签署行政行动，并用他的电话召集外部团体来支持他的议程。(**[https://www.politico.com/story/2014/01/obama-state-of-the-union-2014-strategy-102151](https://www.politico.com/story/2014/01/obama-state-of-the-union-2014-strategy-102151) )
 
-**这是自中共病毒疫情开始以来记录的最高病例数，同时该国还记录了6例新的死亡病例。**
+例如，他的同样严重违宪的儿童入境延期行动，只是一份两页纸的备忘录，但它仍然允许大约 616,000 人无视美国的主要法律，并且随着诉讼在近十年后[继续进行](https://www.cbsnews.com/news/daca-judge-orders-u-s-to-close-program-for-dreamers-calling-it-illegal/)，法院很容易恢复原状。看起来，鉴于多年来民主党人公开的违法行为所带来的这种不受限制的收益，已成为标准操作程序，拜登现在可以随意蔑视宪法，将法律简化为简单的一通电话。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-09-at-3.46.10-PM.jpg)
+这种“媒体治国”的行为，还让印第安纳州州长埃里克•霍尔科姆（Eric Holcomb）这样的共和党人所怨的拜登实施暴政，同时又不用他们选举产生的权力去阻止它。
 
-来自卫生部的更多信息：
+霍尔科姆在整个封锁时期使用了同样的行政法令，没有受到共和党占绝对多数的州立法机构的有效约束，甚至告诉媒体，要求教堂按照他的方式传递基督的教义，同时悄悄将这一部分排除在他的行政命令之外，当然，因为政府规定宗教活动显然是违反宪法的，而且很快就会引发诉讼。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-2-4.png)（相关推特链接：[twitter.com](https://twitter.com/sporeMOH/status/1446499031023112193?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1446499031023112193%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2021%2F10%2Fsingapore-sees-covid-19-infection-rate-surge-despite-one-highest-vaccination-rates-world-83%2F)）
+所有这一切都让软弱的共和党人和邪恶的民主党人在镜头前互相暗箱操作，而普通美国人则在他们退位的领导下受难。等到共和党总检察长终于开始对履行拜登承诺的法律文件提起诉讼时，绝大多数不希望政府强迫他们接受医疗程序的人可能都已经失业，要么被迫接种几乎无从追踪记录的疫苗，要么被迫辍学，要么提供伪造文件，就好像公民是不受 COVID 限制的非法移民，等等。
 
-一位推特用户说，新加坡终于拉平了曲线，但在错误的轴线上：
+这就是软弱的共和党人如何让民主党人继续兴高采烈地剥夺我们的权利，就像他们拥有近 5000 万未出生的美国人一样。哎呀，谢谢了，“公仆们。” 告诉我你们有多么热爱美国的自由和权利法案。只有当我看到你们为之而牺牲一切时，我才会相信。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-3-3.png)（相关推特链接：[twitter.com](https://twitter.com/DrEliDavid/status/1446570012966363146?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1446570012966363146%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2021%2F10%2Fsingapore-sees-covid-19-infection-rate-surge-despite-one-highest-vaccination-rates-world-83%2F)）
+随着共和党人再次下台，民主党人的所作所为在道德和宪法上都令人憎恶。 今天的民主党人甚至不需要用钢笔签署满是胡言乱语的文件。**他们说什么，你就得做什么**。你在这件事上没有权利，没有发言权，连他们强行给你自己和你孩子的身体注射东西也不可能反对。
 
-The Gateway Pundit以前曾报道过一个由政府资助的项目所发布的令人震惊的数据，该数据显示辉瑞和Moderna的mRNA COVID-19疫苗的效果随着时间的推移明显减弱。每过一周，任何完全接种的人的效果都会减弱。
+**這些人相信他們就是皇室成員，太多美國人表現得像是失敗者一样的農奴，而不是那些上帝賦予不可剝奪權利的公民，包括同意权——通过民選代表，而不是非民选的獨裁官僚，来限制我們的權利、日常生活和人類的尊嚴**。
 
-**国防部联合人工智能中心（JAIC）推出的一个名为 “Project Salus “的人工智能项目检查了560万名65岁及以上的医疗保险受益人的数据，发现大多数感染COVID-19的人都完全接种了疫苗。**
+**评论：**
 
-**简评：**
-
-**打着科学的幌子全力推广新冠疫苗的各大医药公司，在真实的数据面前失声了。真实的数据正是表明了，它们所推广的疫苗是无效，甚至是有害的。相对于未接种过疫苗的人群，接种过疫苗的人，甚至更加容易被中共病毒感染。**
-
-**强制接种、不许质疑、不负责任，勾兑主流媒体不许报道疫苗的真实危害……究竟是什么力量在推动着辉瑞等大医药公司，通过疫苗吸取着全世界人民的财富？无论是什么惊天的阴谋，那些推动全民注射疫苗的政客们，在这场中共病毒的战争中，都背负了带血的原罪。**
+**谁说“沉默是金”？对违法和邪恶行为的沉默就是纵容。美国人民对“笔和电话”政府的违宪纵容，导致了今天政府“违法行为不受限制,已成为标准操作程序”；世界对中共几十年违反人类一切规则的纵容，导致了中共肆意制造释放生化武器病毒和疫苗，让我们人类遭受如此万劫不复的灾难！**
 
 （文章仅代表作者观点，与GNEWS无关）
 
-**新闻来源：**[www.thegatewaypundit.com](https://www.thegatewaypundit.com/2021/10/singapore-sees-covid-19-infection-rate-surge-despite-one-highest-vaccination-rates-world-83/)
+**素材链接**：**[thefederalist.com](https://thefederalist.com/2021/10/07/joe-bidens-vaccine-mandate-doesnt-exist-its-just-a-press-release/)**
+
+**相关文章内容链接**：**[拜登的疫苗授权根本不存在，它只是一个新闻稿 （1/2）](https://gnews.org/zh-hans/1584031/)**
 
 * * *
 
-*审核：蚂蚁兄弟*
-*校对：阿伯塔*
-*发布：信心的选择*
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip190.png)

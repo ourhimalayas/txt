@@ -2,36 +2,34 @@
 ---
 
 
-## 辉瑞正式向FDA提出让5到11岁的儿童接种COVID-19疫苗
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1584242/)
+## 习近平呼吁统一，台北迅速回应
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1584288/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-2.jpg)
+新闻来源：德国世界报网络版
 
-作者：纽约香草山医疗部 圣母院钟声
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-辉瑞及其德国合作伙伴BioNTech于10月7日向美国食品和药物管理局（FDA）递交了申请。大约一周前，他们提交的数据表明，该疫苗在第2，3阶段临床试验中成功引发了5至11岁儿童的抗体反应。但试验的完整结果尚未公布。辉瑞的相同mRNA疫苗先前已经获准用于12至17岁的儿童。他们最近的儿童试验根据FDA的建议，对剂量进行了调整，给儿童一个两次接种的方案，每次10微克，成年人的剂量是30微克。FDA的疫苗顾问团将于10月26日开会审查疫苗对5-11岁儿童的有效性和安全数据。 白宫新冠疫情协调员杰弗里·齐恩茨（Jeffrey Zients）告诉CNN记者， “一旦辉瑞的请求通过CDC和FDA的审核，对5-11岁美国孩子的疫苗接种可以在感恩节前获得批准，我们将为此做好准备。“ 过去数月世界多国的临床科研机构所发表的研究表明，辉瑞疫苗对新冠感染和至重症保护的有效性随着时间的推移而急剧下降。以色列等国在完成全民接种后的高感染率是最好的例证。此外，辉瑞公司的三名科学家最近被暗访记录承认，因感染新冠病毒而获得的自然免疫力远优于疫苗所能提供的保护。
-在欧洲一些国家已经明确不再强制30岁以下年轻人接种疫苗的时候，美国政府还在一意孤行，可见大疫苗商已经买下大多数政策制定者。在为时太晚之前，美国的父母及民众有责任站出来保护他们的未来。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Xi-Jinping.jpg)
 
-参考链接：
 
-[https://www.theepochtimes.com/mkt\_morningbrief/pfizer-formally-asks-drug-regulators-to-let-kids-as-young-as-5-get-its-covid-19-vaccine\_4036989.html](https://www.theepochtimes.com/mkt_morningbrief/pfizer-formally-asks-drug-regulators-to-let-kids-as-young-as-5-get-its-covid-19-vaccine_4036989.html)
+资料来源：美联社
 
-审稿：圣母院钟声
+首先，中国通过军事飞行增加了对台湾的压力。现在中国国家主席正在跟进。统一台湾“一定会实现”。他警告说，台湾的脱离不会有好结果。
 
-编辑：圣母院钟声
+在围绕台湾的紧张局势加剧中，中国国家和党的领导人习近平呼吁“统一”。他在周六在人民大会堂举行的仪式上说，以“和平方式”进行的联合最符合整个中华民族的利益。他警告说，台湾的脱离不会有好结果。
 
-发稿：圣母院钟声
+他的讲话正值中国1911年革命110周年，即今天的共产主义人民共和国和当时成立并仍然存在于台湾的中华民国。北京将现在自由的台湾视为中华人民共和国的一部分，并威胁要征服它。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-1-2.jpg)
+台湾立即以独立和民主为由拒绝了习近平的呼吁。台湾总统蔡英文在台北的发言人说，台湾是一个“主权独立的国家，不是中华人民共和国的一部分”。 “国家的未来掌握在台湾人民的手中。”台湾是民主国家，随着 1911 年的革命，建立了一个“民主共和国，而不是专制独裁政权”。在台湾，这种民主“真正实现了”。他指的是清朝灭亡后建立的中华民国，因为台湾今天仍被正式称为台湾。
 
-**更多资讯，更多关注**
+台北以香港为例，指责北京违背承诺。中共国已经废除了50年不应该改变的规定。 “一国两制”的原则是行不通的。 2300 万台湾人中的大多数人拒绝接受这种模式。他们捍卫自己民主和自由的生活方式。
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+习近平此前曾表示，“两岸同胞要站在历史正确的一边，携手实现中华民族的完全统一和复兴。”背叛自己的祖国，企图分裂国家，会落得一个下场。”他说，“台湾问题纯属中国内政” 。最近，中共军机进行了多达 150 次区域飞行。习近平说：“任何人都不应低估中国人民维护国家主权和领土完整的决心、意愿和能力。”
 
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[https://www.welt.de/politik/ausland/article234315626/China-fuer-Wiedervereinigung-mit-Taiwan-Wird-definitiv-verwirklicht.html](https://www.welt.de/politik/ausland/article234315626/China-fuer-Wiedervereinigung-mit-Taiwan-Wird-definitiv-verwirklicht.html)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+校对：旦旦
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-2.jpg)
+责任编辑/发布： Shuizhuyu

@@ -2,29 +2,36 @@
 ---
 
 
-## 川普总统再次起诉Facebook，要求恢复其账户
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1584182/)
+## 辉瑞正式向FDA提出让5到11岁的儿童接种COVID-19疫苗
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1584242/)
 
-**撰稿：日本东京方舟农场 海星**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-2.jpg)
 
-10月7日，美国前总统川普在佛罗里达州南区地方法院再次对Facebook提出诉讼，要求联邦法官命令大型社交媒体平台立即恢复其账户。
+作者：纽约香草山医疗部 圣母院钟声
 
-据《Just the News》报导，川普在2021年1月6日国会大厦骚乱事件发生后，被封锁了大多数重要的社交媒体平台账号。随后，他于7月对推特、YouTube、Facebook及其各自的首席执行官提起了诉讼。
+辉瑞及其德国合作伙伴BioNTech于10月7日向美国食品和药物管理局（FDA）递交了申请。大约一周前，他们提交的数据表明，该疫苗在第2，3阶段临床试验中成功引发了5至11岁儿童的抗体反应。但试验的完整结果尚未公布。辉瑞的相同mRNA疫苗先前已经获准用于12至17岁的儿童。他们最近的儿童试验根据FDA的建议，对剂量进行了调整，给儿童一个两次接种的方案，每次10微克，成年人的剂量是30微克。FDA的疫苗顾问团将于10月26日开会审查疫苗对5-11岁儿童的有效性和安全数据。 白宫新冠疫情协调员杰弗里·齐恩茨（Jeffrey Zients）告诉CNN记者， “一旦辉瑞的请求通过CDC和FDA的审核，对5-11岁美国孩子的疫苗接种可以在感恩节前获得批准，我们将为此做好准备。“ 过去数月世界多国的临床科研机构所发表的研究表明，辉瑞疫苗对新冠感染和至重症保护的有效性随着时间的推移而急剧下降。以色列等国在完成全民接种后的高感染率是最好的例证。此外，辉瑞公司的三名科学家最近被暗访记录承认，因感染新冠病毒而获得的自然免疫力远优于疫苗所能提供的保护。
+在欧洲一些国家已经明确不再强制30岁以下年轻人接种疫苗的时候，美国政府还在一意孤行，可见大疫苗商已经买下大多数政策制定者。在为时太晚之前，美国的父母及民众有责任站出来保护他们的未来。
 
-该报导称，川普的律师在佛罗里达州南区地方法院提交了第二份诉讼文件，申请了对Facebook的初步禁令。该文件中写道，“被告侵害了川普以及数百万Facebook用户的第一修正案权利，即接收信息并相互评论的权力。而且，被告通过取消共和党推选出的领导人和最受欢迎成员的社交媒体平台，切断他们与潜在选民之间最有效直接的沟通渠道，将对共和党在2022年和2024年的选举造成不可挽回的损害。”
+参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1508181428382546.jpg)图片来自于网络
+[https://www.theepochtimes.com/mkt\_morningbrief/pfizer-formally-asks-drug-regulators-to-let-kids-as-young-as-5-get-its-covid-19-vaccine\_4036989.html](https://www.theepochtimes.com/mkt_morningbrief/pfizer-formally-asks-drug-regulators-to-let-kids-as-young-as-5-get-its-covid-19-vaccine_4036989.html)
 
-川普诉讼案的首席律师约翰·库尔（John Coale）表示，Facebook最近面临的所有问题都是大新闻，申请初步禁令的时机似乎很合适。
+审稿：圣母院钟声
 
-川普希望在几个大型社交媒体平台上可以立即取回账号，以便在2022年选举周期全面展开之前能够接触到他的支持者，方便快捷地传达他的观点、政治思想等，这是他在当选前和任期内与他的支持者沟通的一个重要方式。
+编辑：圣母院钟声
 
-*注：本文仅代表作者观点，与 Gnews无关*
+发稿：圣母院钟声
 
-*参考链接：*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-1-2.jpg)
 
-[Trump files second lawsuit against Facebook in effort to reinstate his account immediately](https://justthenews.com/government/courts-law/trump-files-second-lawsuit-against-facebook-effort-reinstate-his-account)
+**更多资讯，更多关注**
 
-* * *
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-2.jpg)
