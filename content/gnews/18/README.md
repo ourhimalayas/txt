@@ -2,30 +2,39 @@
 ---
 
 
-## 加拿大艾伯塔省的医生使用伊维菌素治愈中共病毒患者，却引发 AHS 警告
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1584617/)
+## 中共企图套用俄罗斯占领克里米亚的方式攻陷台湾
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1584641/)
 
-栏目记者：禹水沃土
-责任编辑：晓仙女
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-15.png)
+作者：文真
 
 
 
 
 
-10 月 8 日 CBC 新闻报道，一位加拿大阿尔伯塔省农村医院接诊的医生，用伊维菌素治愈了三名中共病毒患者，却引发了省卫生当局，关于这种药物的所谓“危险性警告”。温哥华的 Daniel Nagase 博士表示：他9 月份给阿尔塔省 Rimbey 医院的患者服用了伊维菌素，让患者在一周内出医院，并且其中两名患者在 18 小时内“几乎完全好转”。可省级卫生官员却拒绝向全省提供挽救生命的药物，反而扣留了整个省的救命药。CBC这篇报道证明：尽管邪恶利益集团一再阻挠人们使用安全廉价的有效药物，但越来越多的治愈案例，已令左媒即使再不情愿，也不得不开始正视。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-33.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-6.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+
+
+
+
+
+
+
+10月9日，习近平借“辛亥革命”周年纪念发出武统台湾的强烈信号。台湾已经岌岌可危。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-3.jpg)
+郭文贵先生曾在直播中揭露中共攻台计划，第一步不会采取武力攻势，而是发动网络攻击、散布假新闻、利用舆论战等各种超限战手段让台湾陷入混乱；第二步台湾政府内部的亲共势力伺机发起公投，甚至掀起动乱，为中共出兵占领台湾制造时机。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-19.jpg)
+中共是按照俄罗斯在2014年入侵克里米亚的方式，制定夺取台湾的计划。波索比克在接受班农战斗室采访时，完全认同这一观点。
+
+波索比克认为中共军方内部判断，如今美国处理台湾局势的态度会与2014年相似。2014年拜登时任美国副总统一职，而当年美国政府在俄罗斯入侵克里米亚问题上做出了让步。这无疑大大增加了中共攻陷台湾的野心。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-22.jpg)
 参考链接：
-[Doctor who says he gave ivermectin to rural Alberta COVID-19 patients prompts warning from health authority](https://www.cbc.ca/news/canada/edmonton/ivermectin-covid-alberta-nagase-1.6205075)
+[郭先生10/9/2021盖特：波索比克谈台海：普京拿下克里米亚，中共将军们想同样方式拿下台湾](https://gettr.com/post/pdmt5n2f8d)
 
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-新闻访谈终审：Ryan
+新闻访谈终审：Q大哥
 编辑/校对/发稿：为真不破20
 
 **更多资讯，更多关注**

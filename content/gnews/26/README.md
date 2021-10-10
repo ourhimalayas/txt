@@ -2,27 +2,30 @@
 ---
 
 
-## 中共媒体突然报“鹦鹉热”致死、人传人
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1584547/)
+## 美国接种中共病毒疫苗最多的州感染人数激增
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1584581/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+#### 撰稿：Grace
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-32.jpg)图片来源：半岛新闻
+据Dreddymd 10月10日报道， 尽管大约88%的佛蒙特州的居民现在已经“完全接种”了中共病毒疫苗，但是在该州可以看到感染了中共病毒的新住院人数在大量地增加。佛蒙特州正迅速成为全美国疫情最严重的州。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/text-SC-8.png)
-文章仅代表作者本人观点，与Gnews无关
+报告显示，自去年冬天的疫情的高峰期以来，该州的感染中共病毒的人数还没有出现过这样的剧烈飙升。
 
-视频参看： 2021.10.09晚GTV新闻访谈
+报道称，共和党人菲尔·斯科特（Phil Scott）州长在6月解除了佛蒙特州的紧急状态，因为当时该州至少有80%的人口接受了至少一剂疫苗。
 
-[https://gtv.org/broadcast/watch/616233a1304e992109b26cc9](https://gtv.org/broadcast/watch/616233a1304e992109b26cc9)
+可是，大约90名的佛蒙特州卫生局（VHD）的员工在8月底签署了一封信，承认中共病毒的新“病例”数量在完全接种疫苗的人中一直在稳步上升。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+现在，佛蒙特州的住院病例数几乎达到了创纪录的水平。该州的记录显示9月份的死亡人数在记录里是排第二的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
+据报道，佛蒙特州几乎每个人都打了福奇推荐给他们的两针，而且许多人还打了拜登的“加强”针。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+另外，几乎全面接种中共病毒疫苗的马萨诸塞州、缅因州、康涅狄格州都出现了类似的住院和死亡人数激增的情况。
+
+康涅狄格州是美国疫苗接种率第二高的州，也同样出现了住院和死亡人数的大规模激增——以至于州立法机构最近延长了州长的紧急权力，以应对这一最新的病毒 “浪潮”。
+
+9月22日，美国接种疫苗最多的第三州缅因州出现了该州的一个大流行高峰。
+
+马萨诸塞州的疫苗接种率在全国排名第五。马萨诸塞州中部最大的卫生系统——UMass Memorial Healt——的负责人最近出来承认，自从该州的疫苗接种率接近完全达标，达到了应有的“群体免疫力”后，感染中共病毒的住院人数已经飙升了20倍。
+
+**新闻来源：[Most vaccinated state in America now seeing massive surge in covid hospitalizations](https://dreddymd.com/2021/10/10/most-vaccinated-state-in-america-now-seeing-massive-surge-in-covid-hospitalizations/)**
