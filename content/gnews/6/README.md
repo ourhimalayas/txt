@@ -2,25 +2,111 @@
 ---
 
 
-## 上半年585人涉刑，金额达496亿元！银行保险职务和业务犯罪严重
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1585286/)
+## 再谈谈疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1585362/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4225.jpg)[图片来源](https://www.sohu.com/a/312415426_120043561)
-据“澎湃新闻”10月9日报道，中共银保监会近日向各机构下发关于2021年上半年银行保险机构涉刑案件情况的通报，并以案例形式介绍了六大案发情况。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2478.png)
+[https://gtv.org/video/id=6162e01dd2e2b81748739bca](https://gtv.org/video/id=6162e01dd2e2b81748739bca)
 
-根据通报，今年上半年，银行保险机构案件继续呈高发态势，共报告案件和案件风险事件1367件，涉及金额495.80亿元。共有585名银行保险机构从业人员被采取强制措施，其中银行金融机构480人，保险机构105人。从查办机关看，公安机关侦办405人，纪检监察机关查办180人。
+郭文贵
+Miles Guo
 
-通报显示，银行保险机构案发呈现的主要风险和问题有六类：一是金融腐败与业务违法违规交织；二是中小银行机构内源性问题突显；三是金融科技应用潜藏风险；四是不良资产处置领域道德风险突出；五是个人住房贷款诈骗手段翻新；六是重大保险案件危害大。
+大家记住啊，它的疫苗的成本是多少呢
+Remember, what is the cost of its vaccine?
 
-中共金融系统历来是犯罪严重的领域，上有权贵家族的“盗国犯罪”，往下又有各级各层次的职务和业务的“普通犯罪”。此次中共银保监会通报的仅仅是“普通犯罪”，就已足以让人触目惊心，这种系统性的腐败就是中共“以贪治国”在金融领域的侧面反映。
+大概在6美分到8美分，卖的价格是19美金到35美金和40美金不等
+It is about 6 cents to 8 cents, and the retail price ranges from 19 dollars to 35 dollars and 40 dollars
 
-信息来源：
+不同的时期不同的地方，你想想它有多大的暴利
+in different places and different periods, think about how profitable it is
 
-[上半年银行保险585人涉刑案被采取强制措施，涉案496亿元\_案件](https://www.sohu.com/a/494133671_260616)
+那么药厂既然在人类遇到最大危难的时候发展出来疫苗拯救人类，是吧，
+Well, since pharmaceutical companies have developed vaccines to save mankind when mankind is in the greatest danger, right?
 
-(文章仅代表作者本人观点，与GNEWS无关)
+你不应该再花钱去游说别人去救别人
+You should no longer spend money to persuade others and to save others
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+这个天下哪有说，我现在能救你在危难之中，
+Nothing in this world like this, I can save you now while you are in danger
+
+我得给你钱，让我救你
+I have to give you money and let me save you
+
+有人掉到水里了，都快死了，说要拉你上来
+like someone fell into the water and was dying, and someone saying that he would pull you up
+
+但是我再给你准备上100万，这到底是啥事，是你把我推下去的
+but I will prepare another 1 million for you, what the hell is this? did you push me down?
+
+还是你把我拉上来以后，还有什么事啊？
+or is there anything else after you pull me up?
+
+我就搞不懂了，为啥疫苗公司，
+I just don’t understand why is the vaccine company
+
+全人类不知道病毒哪来的，
+The whole mankind doesn’t even know where the virus comes from?
+
+你就生产出疫苗，生产出来疫苗让别人打
+Vaccine company just produce that vaccine right away and provide to people
+
+而且你要拿钱游说，给别人钱打你的疫苗
+and you have to lobby and give others money to let people get vaccinated
+
+然后让政府强制打，你不情愿打
+Then the government mandate the vaccine, people are not willing to do so
+
+但是打的时候还得让你自己承担责任
+also people have to take responsibility when they take the vaccine
+
+它药厂不承担责任，这叫啥疫苗啊？这符合逻辑吗？
+The pharmaceutical company does not take any responsibility. What kind of this vaccine is? Is this logical?
+
+最重要的事情，所有的西方天主教，基督教徒
+The most important thing that all Western Catholics, Christians
+
+一个根本原则，人命天受
+have a fundamental principle that life is granted by God
+
+老天爷给我的命不属于政府，谁也不是
+the life that God give to me does not belong to the government, nor is anyone
+
+连父母也没有权利剥夺，
+even parents have no right to deprive us
+
+是我们每个人都有追求幸福安全，言论自由的美好生活的权利
+each of us has the right to pursue a happy and safe life with freedom of speech
+
+这基本人权吧，是吧
+This is a basic human rights, right?
+
+自我表达，追求幸福各种方式的权利
+Self-expression, the right to pursue the happiness in various ways
+
+那这个药我不打总行嘛，你就剥夺我的工作
+I don’t want to take this vaccine, then you will deprive my job
+
+你就不让我 坐飞机，你就不让我坐车
+You don’t allow me take plane, or take bus
+
+那到底你是救我呢？还是害我呢？
+Are you saving me or hurting me?
+
+————————————————————
+
+Date:10/09/2021
+原视频标题:再谈谈疫苗
+Talk about vaccines again
+原视频日期：2021/10/07
+原视频链接:[https://twitter.com/se1y7cblljselva/status/1446411550441439233?s=24](https://twitter.com/se1y7cblljselva/status/1446411550441439233?s=24)
+任务编号：2478
+视频时间段 : 0:00-2:17
+英听校：洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

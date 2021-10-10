@@ -2,31 +2,28 @@
 ---
 
 
-## 50亿收购海外锂盐企业！紫金矿业进入锂矿行业
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1585270/)
+## 坚持个人疫苗接种选择，洛杉矶消防员将起诉政府
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585328/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-23.jpg)[图片来源](https://www.jiemian.com/article/3739662.html)
-受中共对于新能源和新能源汽车发展的强力推动和引导，锂矿投资受到追捧，今年以来不少A股上市公司加大了对锂矿的布局力度。
+作者：文龍
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月10号文贵先生在其盖特转发了一则短视频，是来自美国洛杉矶当地媒体的报，视频中当地消防员安德烈称。他和其他871名消防员联名，通过律师提交了起诉洛杉矶市政府的告知文件，原因是政府警告消防员必须在10月20日之前全部接种疫苗，否则将被解雇或停薪留职。消防员坚持自己的选择，并将向法庭提出要求每人200万美元的赔偿，因为自己的选择将导致失业!消防员们称。此举不仅是因为疫苗，而是关系到人权和法律程序。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/p89.002.jpeg)
+文贵先生在他的盖特中对此事件评论道:
 
-据“证券时报网”10月10日报道，A股巨头紫金矿业拟以总对价约9.6亿加元（注：按当前汇率计算，约合近50亿人民币），收购加拿大Neo Lithium公司所有已发行股份。
+“洛杉矶发生的这种将面临没有消防员的情况，会在全球的电力、医院、警察等所有公共领域发生。全球的政府将面对无法计算的诉讼，以及社会公共灾难等巨大的社会问题，这是中共病毒和疫苗带来的灾难，是对人类社会秩序的摧毁性打击。这一结果完全在邪恶势力、和中共的计划之中。只有新中国联邦在2020年一月份就开始警告世界，疫苗才是灾难的真正核心。但愿世界早日醒来，我们新中国联邦人将为此奋斗到底 ” 。
+(本文仅代表作者观点)
 
-根据加拿大锂盐商Neo Lithium当地时间10月8日披露的公告，紫金矿业已同意以每股6.50加元收购Neo Lithium所有已发行股份，总对价约9.6亿加元（注：按当前汇率计算，约合近50亿人民币），此次交易价格较Neo Lithium 20日均价溢价约36%。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/34.png)[图片来源](https://finance.sina.com.cn/stock/s/2021-10-10/doc-iktzscyx8856747.shtml)
-资料显示，Neo Lithium 公司为锂卤水开发领域的知名企业。据悉，Neo Lithium 3Q锂盐湖项目是世界上同类项目中规模最大、品位最高的项目之一。
+参考链接：[郭文贵先生 10月10号的盖特](https://gettr.com/post/pdp5du787c)
 
-根据Neo Lithium 公司公告，Neo Lithium 公司凭借其高质量的3Q项目和经验丰富的团队，迅速成为锂卤水开发领域的知名企业。Neo Lithium 正在迅速推进其拥有100%权益的3Q项目，这是拉丁美洲“锂三角”中独一无二的高品位锂卤水湖和盐湖综合体。3Q项目位于Catamarca省，该省是阿根廷最大的锂生产区。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-根据紫金矿业2021年半年报，紫金矿业是大型跨国矿业集团，在全球范围内从事金、铜、锌等矿产资源勘查与开发，适度延伸冶炼加工及贸易金融业务等，拥有较为完整的产业链。紫金矿业主要商业模式为，强化矿业核心基础地位，全面提升金、铜等主力矿种运营能力，兼顾锌、银、铁等矿种和新能源新材料矿种潜力。公司位居《福布斯》2021全球上市公司2000强第398位，全球金属企业第9位、全球黄金企业第3位；位居2021《财富》中国500强第67位。
+编辑/校正/发稿：我不在这里
 
-事实上，早在今年8月初，紫金矿业董事长陈景河就曾在公共场合表示，将在国内外寻求开发锂矿机会，未来计划收购一些项目与矿山资产，并打通从锂上游资源到材料的全产业链。
-
-此外，宁德时代(534.000, 8.27, 1.57%)已于今年9月底，已与加拿大锂矿企业Millennial Lithium Corp．签订协议，以3.77亿加元收购该公司100%股权。Millennial成立于 2005年3月7日，为一家加拿大多伦多证券交易所创业板上市公司，证券代码为ML。主要从事收购、勘探及开发锂矿业权， 旗下的主要资产为位于阿根廷Salta省的 Pastos Grandes锂盐湖项目及位于阿根廷 Jujuy省的Cauchari East 锂盐湖项目。
-
-[信息来源](https://www.sohu.com/a/494133671_260616)
-
-(文章仅代表作者本人观点，与GNEWS无关)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

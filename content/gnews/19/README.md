@@ -2,25 +2,36 @@
 ---
 
 
-## 疫苗灾情｜澳洲 29 岁知名女星接种疫苗后患上心包炎
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1585160/)
+## 攻台前奏：中共自嗨抓狂，妄称台湾是背叛者
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1585229/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 10/10/2021**
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh6.googleusercontent.com/WXjcHVJjNkxHKnjTs2rzcteFBI7LY4c4xv9Wpujc_Y-XpYbqyTVyGYg_Tt5j66nXL2iCT9i1y0p4Q09NtWJFlKH5z-507XE8az8rRwsHvxDE8FqJPh4cv0eFizun1oqpo4sbGEz3=s0)[*图片来源*](https://assets.thestandnews.com/media/photos/tenten.png)
+**“辛亥革命”是孙中山先生领导的反清、灭清的反极权运动，就像郭文贵先生所领导的“爆料革命运动”并建立“新中国联邦”最终会导致中共灭亡一样。这就是郭先生一直警戒的袁世凯概念。共产党羞辱了孙中山并最终实现了“张勋复辟”——习近平大帝**
 
-***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
+据中共国新华社10月10日援引胡锡进《[辛亥革命110周年之际，台湾当局展现的全都是背叛](http://www.news.cn/tw/2021-10/10/c_1211398234.htm)》观点文章，竟然把一个独立的主权国家台湾当局说成是彻底背弃了辛亥革命的初衷、背叛了过去“中华民国”、分裂国家等罪行，说台湾人从文化和心理上的“去中国化”是彻头彻尾的割据和分裂势力。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/212_0.jpg)
+胡锡进捧着习近平的羽毛当令箭说：“中国的历史证明，[凡是数典忘祖、背叛祖国、](http://politics.people.com.cn/n1/2021/1009/c1024-32248354.html)[分裂国家的人](https://zh.wikipedia.org/wiki/%E5%9B%BD%E5%AE%B6%E5%88%86%E8%A3%82)，[决没有好下场](https://zh.wikipedia.org/wiki/%E5%AF%B9%E4%B9%A0%E8%BF%91%E5%B9%B3%E7%9A%84%E4%BA%89%E8%AE%AE)。”[**阅读更多**](http://m.cankaoxiaoxi.com/kuaiping/20211010/2456138.shtml)
 
-【澳洲】一名 29 岁的女明星 Monique Morley 在接种疫苗后不久被诊断患上心包炎，她是澳洲最新一位在接种 COVID-19 疫苗后不久住院的公众人物。心包炎是一种围绕在心脏周围的，呈囊状组织的炎症。
+人民日报急发文称：“[祖国完全统一的历史任务一定要实现，也一定能够实现（钟声）](http://opinion.people.com.cn/n1/2021/1010/c1003-32248647.html)”文章认为，美国等西方国家采取的“以台制华“政策是阴谋。[见：文贵论台湾](https://www.gettr.com/post/pdiwza018f)。
 
-Monique 早前在 Instagram 上透露，自己接种完第一剂辉瑞 COVID-19 疫苗后的一周，一直在应对“副作用”。
+习近平公然叫嚣 “顺之则昌，逆之则亡”。认为“解决台湾问题，实现祖国完全统一，是中国共产党矢志不渝的历史任务 。 “[**阅读更多**](https://www.secretchina.com/news/gb/2021/10/10/986110.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Monique-Morley-1.jpeg)
+中共这种采取前所未有的舆论攻势，称“台湾民进党当局错判了时局，也误读了历史”这一说法是本末倒置。误判形势的是习近平领导的共产党，而非台湾。习近平笃定认为拜登政府一定不会从中拦阻，[拜习](https://www.nytimes.com/zh-hans/2021/10/07/world/asia/biden-xi-jinping-virtual-summit.html)[峰会](https://www.voachinese.com/a/experts-on-sullivan-yang-meeting-20211006/6260658.html)未开，习已经飘飘然。连当年的[张伯伦](https://youtu.be/b7BY9-KnrNU)都不如。当然，这里面也有给拜登政府继续施压、试探的动机，终究共产党也看美国的反对的声音。
 
-向来以健康积极的生活方式而闻名的 Monique 表示：“一周后，我经历了多次被救护车送往医院接受治疗，现在我已被心脏病专家确诊为因疫苗引起的心脏问题。”
+事实上，中共一直利用1911年“[辛亥革命](https://en.wikipedia.org/wiki/1911_Revolution)”历史遗产，将中华民国粉碎中国几千年封建帝制的功劳据为己有。但中共歪曲事实，认为辛亥革命是“实现中华民族伟大复兴，“而妄解、偷换孙中山先生的“共和国”概念。认为“国家统一无疑是伟大复兴不可缺少的内容之一。”实际上，辛亥革命绝不是中共新的独裁统一，而是中国人不同政治力量的“共和制”，共和制的存在方式是联邦制，而非所谓地理上的统一，这恰恰解释了它是专制，不是共和。[**阅读更多**](https://www.epochtimes.com/gb/21/10/9/n13292822.htm)
 
-来源｜[个案022](https://www.dailymail.co.uk/tvshowbiz/article-10074747/Bachelor-star-Monique-Morley-hospitalised-following-rare-vaccine-effects.html)
+当然，中华民族这个词是包括整个中国人，但辛亥革命发起人孙中山是中国历史上唯一一位君子作风的革命领袖，孙中山后来的结局在于孙误判袁世凯所致，就像当时中华民国政府一直低估共产党一样。
 
-* * *
+孙中山让位的本意是：“[孙中山致电袁世凯承诺，如果袁世凯同意成立共和国，总统之位就是他的](https://history.state.gov/milestones/1899-1913/chinese-rev)。”而1912 年 2 月，袁世凯基于清政府逐渐难以为继，这时候袁世凯出来，导致“皇帝和王室退位”。
 
-他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//
+事实上，清政府的灭亡是孙中山领导的反清运动所致，就像现在郭文贵先生所领导的“爆料革命”并建立“新中国联邦，”最终会导致中共灭亡一样。这就是郭先生一直提起的袁世凯。当年的袁世凯只是从中骗取了政权而已。共产党当年也是靠袁世凯类似的手段夺取政权，并最终导致共产党做了那个实际意义上的皇帝——习近平。
+
+而现今台湾政府已然独立30多年。台湾国名为《[中华民国](https://zh.wikipedia.org/wiki/%E4%B8%AD%E8%8F%AF%E6%B0%91%E5%9C%8B)》，如今分为大陆时期和台湾时期。台湾自蒋经国后实现两党民主选举制，历任总统都是民选。台湾的民主在国际社会有目共睹。他也是全体中国人形象的代表。台湾人所作出任何选择和决定都和你中共政权没有任何关系，但这绝不包括出卖中国人良心和出卖台湾的卖台贼。
+
+2021年10月10日
+
+（本文只代表个人观点，与Gnews网站无关）
+*校对：东京樱花团 / 文小白*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
