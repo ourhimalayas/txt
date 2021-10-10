@@ -2,23 +2,17 @@
 ---
 
 
-## 川普指责拜登从欧佩克和俄罗斯购买石油
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1585611/)
+## 蔡英文：我们不会向中（共）国低头
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1585617/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10102.jpg)
+台湾总统蔡英文在国庆节称台湾不会屈服于北京的压力，并将捍卫其民主，同时提到了与美国的稳固关系、与日本的蓬勃发展以及与欧盟的日益密切的关系。
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/A-2.jpg)sawamediacenter.com
-美东时间10月10日报道，美国前总统川普在对他的支持者演讲时表示，“由于失去了能源独立性，美国被迫与欧佩克和俄罗斯就石油供应进行谈判。”
+蔡英文在继习近平宣称要完成两岸统一的历史任务以后说到 ：“我们得到的越多，来自中(共)国的压力就越大，但是没有人可以强迫台湾走中(共)国为我们开辟的道路。”
 
-川普称，“我们第一次确保了我们的能源独立。现在他们（拜登政府）请求欧佩克、俄罗斯和其他国家给我们输送一些石油。”
+免责申明：本文只代表译者观点，与Gnews无关
 
-川普强调，到他卸任时美国的石油和天然气比俄罗斯和沙特阿拉伯加一起还要多，而现在我们正在向他们寻求帮助。
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/10/10/taiwan-tsai-non-ci-piegheremo-alla-cina-e-ci-difenderemo\_83556fb8-b547-4ce4-a0cc-4aed411f760a.html](https://www.ansa.it/sito/notizie/topnews/2021/10/10/taiwan-tsai-non-ci-piegheremo-alla-cina-e-ci-difenderemo_83556fb8-b547-4ce4-a0cc-4aed411f760a.html)
 
-9月初，彭博社了解到俄罗斯对美国的石油进口增加。当时，这被归咎于飓风艾达，它破坏了墨西哥湾的石油生产。飓风过后，墨西哥湾77%的生产能力仍然被关闭，石油产量减少了2060万桶。
-
-全球天然气和石油价格继续上涨。9月底，11月布伦特原油期货价格自2018年10月以来首次超过了每桶80美元。彭博社报道称，油价上涨与银行和交易商的“大量看涨预测”有关，他们认为世界各地的石油生产商在开发新油田方面的投资不足，无法在疫情大流行中把供应维持在当前水平。
-
-参考链接：
-
-[https://www.rbc.ru/rbcfreenews/616251fc9a7947c15c4e0727](https://www.rbc.ru/rbcfreenews/616251fc9a7947c15c4e0727)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦
