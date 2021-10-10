@@ -2,61 +2,62 @@
 ---
 
 
-## 强大的 &#8211; 我将继续为我的医疗自由而战
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1584362/)
+## 远离大城市的理由
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1584400/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/a0z1j-mxxio.jpg)
-[https://gtv.org/video/id=61618560d2e2b81748732e45](https://gtv.org/video/id=61618560d2e2b81748732e45)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ajo7l-u8jre.jpg)
+[https://gtv.org/video/id=616185ead2e2b81748732e67](https://gtv.org/video/id=616185ead2e2b81748732e67)
 
-Spent 4 years in undergraduate school studying health sciences
-在本科学校学习了四年的健康科学
+**郭文贵：
+Miles Guo：**
 
-Went to graduate school and endured a rigorous 2 year accelerated masters of science in nursing program
-进入研究生院并接受了严格的两年护理学硕士加速课程
+在一线城市，没电了
+In the first-tier cities, if there is no electricity
 
-Became an ICU nurse and treated COVID + patients for 19 months
-成为ICU护士并治疗了19个月的COVID患者
+你咋下楼？
+How will you go downstairs?
 
-In 2020, we reused N95 masks and gowns.
-在2020年，我们重复使用了N95口罩和防护服
+没电了楼梯咋办？
+What to do if the lifts are out of power?
 
-During that time I cared for your grandmother, sister, brother, son, and mother.
-在那段时间里，我照顾你的祖母、姐妹、兄弟、儿子和母亲
+没电就没水，没电没水
+No electricity means no water, no electricity and no water
 
-I’ve sacrificed holidays, weekends, time, sleep and events with my family to be there for yours.
-我牺牲了假期、周末、时间、睡眠和与家人一起的时间来照顾你的家人
+你出去交通受管制
+Traffic is controlled when you go out
 
-As of Oct 1, 2021 I was suspended.
-截至 2021 年 10 月 1 日，我被停职了
+而且集中抢劫
+And concentrated on looting
 
-On Nov 1, 2021 I will be terminated because I chose not to get the shot.
-2021 年 11 月 1 日，我将被解雇，因为我选择不接种疫苗
+警察管你
+The police control you
 
-Despite all of this, my faith will endure.
-尽管如此，我的信仰仍将持续下去
+你连吃草的机会都没有
+You won’t even have a chance to eat grass
 
-And I will continue to fight for my medical freedom.
-我将继续为我的医疗自由而战
+你从楼上跳下来吗？
+Will you jump down from upstairs?
 
-Please know I WILL be back doing what I love most!
-请知道我会回来做我最喜欢的事情！
+你能步行在大马路上跑吗？
+Can you run on the main roads?
 
-**Singing：**
+所有城市的方便, 都成为你的不方便
+The conveniences of all cities will become your inconveniences
 
-I could be brown I could be blue I could be violet sky
-我可以是棕色的, 我可以是蓝色的, 我可以是紫罗兰色的天空
+所有城市里面能拥有的好东西， 都是对你的伤害
+All the good things you can have in the cities will hurt you
 
-I could be hurtful I could be purple I could be anything you like.
-我可以是伤感的，我可以是紫色的，我可以是任何你喜欢的
+那你呆在城市干什么？
+So what will you do in the cities?
 
-…………….
+**——————————————————**
 
-**原视频链接:** [https://twitter.com/anoncitizenuk/status/1445911691506688000?s=24](https://twitter.com/anoncitizenuk/status/1445911691506688000?s=24)
+**原视频链接**: [https://twitter.com/se1y7cblljselva/status/1446500243864887297?s=24](https://twitter.com/se1y7cblljselva/status/1446500243864887297?s=24)
 
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+英听校 : 洛杉矶盘古农场 – Raul
+翻译 : 洛杉矶盘古农场 – Raul
+翻译终校 : 洛杉矶盘古农场 – Mike Li
+字幕+视频制作 : 洛杉矶盘古农场 – 青梅煮酒
 审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)

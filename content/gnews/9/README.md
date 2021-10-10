@@ -2,35 +2,33 @@
 ---
 
 
-## 中共国工商银行限制部分外汇和大宗商品交易
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1584446/)
+## 微软报告显示过去一年近六成的网络攻击来自俄罗斯
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1584483/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/101002-1.jpg)
-**摘要翻译：  **
-
-上海（路透社）——中共国工商银行周五表示，将限制某些类别的零售业务——涉及外汇和大宗商品交易。中共国最大的银行做出调整的同时，监管机构也推出了一系列举措来控制金融风险，包括抑制大宗商品价格上涨、禁止虚拟货币交易和限制炒房。
-
-中共国工商银行的限制措施出台之际，全球能源价格飙升——回应中共国和世界其它一些地区的电力短缺。
-
-中共国工商银行在一份公告中说，自10月17日起将暂停为“外汇业务账户”开立新账户。自11月14日起，现有客户将被禁止开设新的交易仓位。中共国工商银行在公告中说，自10月17日起还将停止接受能源、基本金属、农产品和贵金属指数等类似交易业务的新客户。
-
-在最近的几个月中，中共国工商银行、中共国银行和中共国招商银行等关闭了允许个人客户押注非人民币货币组合的外汇交易业务。
-
-**简评：**
-
-中共企图用简单粗暴的行政手段消除潜在的金融风险，稳住日渐凋敝的经济局面，当权者从未想过改善老百姓的基本生活，心里只想着手里的权利，假擀面杖子经济撑不了太久了。
-
-[原文链接](https://www.reuters.com/article/china-icbc-forex/update-1-chinas-icbc-to-restrict-some-forex-and-commodities-trading-idUSL1N2R40GY)
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*翻译/简评：乡间小路| 校对：clau*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：文真
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-15.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-10.jpg)
+微软10月7日发表最新一份数字防御报告，涵盖2020年7月至2021年6月的网络攻击研究。报告称，微软在过去一年中观察到的所有网络攻击中，有58%来自俄罗斯。以国家为支持的俄罗斯黑客，攻击的主要首要目标是美国、乌克兰和英国。其成功破坏率从去年的21%升至今年的32%。继俄罗斯之后，其它最大的网络攻击来自朝鲜、伊朗和中共国。 报告指出，在过去一年观察到的网络攻击中，79%针对企业。最经常受攻击的目标是政府、非营利性政府机构和智库机构。勒索软件攻击和国家支持的黑客攻击，以获取经济利益和收集情报为目的，都是对全球互联网安全日益增长的威胁。
+
+（本文仅代表作者观点）
+
+参考链接：[微软报告显示过去一年近六成的网络攻击来自俄罗斯](https://www.breitbart.com/national-security/2021/10/08/microsoft-58-percent-cyberattacks-past-year-came-russia/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+
+新闻访谈终审：鬼五
+编辑/校对/审核：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-15.png)

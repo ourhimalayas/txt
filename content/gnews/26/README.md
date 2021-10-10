@@ -2,25 +2,21 @@
 ---
 
 
-## 有声|中情局成立全新部门，应对中共扩张带来的威胁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1584336/)
+## 一般灾害？中共对陕、晋两省水灾启动Ⅳ级救灾应急响应
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1584394/)
 
-配音：香草山美食部 – 玫瑰园
+#### 撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/34534.jpg)（图片来源与信息来源一致）
+10月9日央视新闻网站报道，国家减灾委、应急管理部针对陕西、山西两省近期严重洪涝灾害，启动国家Ⅳ级救灾应急响应，派出工作组赶赴灾区实地查看灾情，指导和协助地方做好受灾群众转移安置和基本生活救助等工作。
 
-10月7日，美国中央情报局局长威廉·伯恩斯宣布成立一个全新的部门“中(共)国任务中心”，以确保中情局有能力应对来自中共日益增强的对抗。
+截止昨天收到最新消息，山西在本次强降雨停产煤矿126座、转移5.5万人，停工在建工程231个，关闭景区74个 。
 
-伯恩斯称中共政府是美国21世纪面对的最重要的地缘政治威胁，与中共之间的竞争，尤其是在科技领域方面，将会是美国国家安全的关键。他形容中共政权的扩张既是对抗性的，更是掠夺性的，近年来的变化已经引起美国的警醒。该中心的成立，正是表明美国政府已清楚认识到中共已经超过俄罗斯，成为美国最大的威胁。
+气象灾害预警信号级别依据可能造成的危害程度、紧急程度和发展态势一般划分为四级：Ⅳ级（一般）、Ⅲ级（较重）、Ⅱ级（严重）、Ⅰ级（特别严重）。这次预警评估为Ⅳ级，影响几万人的决堤水灾，在独裁者眼里也就是一般灾害。并且3日发生暴雨，时隔6天后的9日才启动应急响应，这就是中共独裁体制视人命为儿戏的本质。
 
-文字版原文：[中情局成立全新部门，应对中共扩张带来的威胁](https://gnews.org/zh-hans/1581243/)
+[信息来源](http://app.cctv.com/special/cportal/detail/arti/index.html?id=ArtiDF2F7kWqet7rR7Ga1mwD211009&amp;fromapp=cctvnews&amp;version=807)
 
-音频处理：喜山必胜Maverick
+(文章仅代表作者本人观点，与GNEWS无关)
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
