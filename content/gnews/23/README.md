@@ -2,41 +2,41 @@
 ---
 
 
-## 北欧限制使用莫德纳疫苗 FDA仍为其站台
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1584465/)
+## 纽约时报评：美国与中共国可能因台湾问题进入危险地带
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1584485/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：文一
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M-2.jpg)theburningplatform.com
-在北欧数个国家限制使用莫德纳（Moderna）中共病毒疫苗后，美国食品和药物管理局（FDA）周五（10月8日）却重申其立场，称莫德纳中共病毒疫苗的好处超过其风险。
 
-《福克斯新闻》发文进行了报道，题目是，“在北欧国家限制使用后，FDA说莫德纳疫苗的益处大于风险”。副标题称，瑞典公共卫生署注意到“心肌炎等副作用的风险增加”。【1】
 
-文章说，由于担心罕见的与心脏相关的副作用，一些北欧国家开始限制其在某些年龄段的使用。但FDA仍坚持其立场：疫苗的好处超过其风险。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-15.png)
 
-芬兰卫生官员周四（10月7日）表示，30岁以下的男性不应接种莫德纳疫苗，因为患心肌炎（一种心脏炎症）的风险稍高。一天前，瑞典表示将暂停30岁以下人群使用莫德纳疫苗，丹麦暂停18岁以下人群使用莫德纳疫苗，挪威建议人们接种辉瑞疫苗。上述情况发生后，FDA作出了回应。
 
-一名FDA官员在一份声明中说：“FDA知道了这些数据，目前，FDA持续观察的结果发现，接种莫德纳中共病毒疫苗的已知和潜在的益处超过了已知和潜在的风险。”
 
-北欧国家的决定基于一项未发表的研究，该研究将由欧洲药品管理局（European Medicines Agency）的不良反应委员会审查。瑞典公共卫生署表示，该研究发现“心肌或心包发炎等副作用的风险增加”，尽管它指出风险“非常小”。
+纽约时报在星期六（10月9日）刊登的一篇报道指出，由于近年来美中两国关系急剧恶化，双方战略竞争日趋激烈，而台湾又夹杂在美中对抗的中心和第一线，因此很多美国两岸问题专家和处理过两岸事务的前政府官员，对两岸大战、甚至美中因台湾而爆发大战忧心忡忡。
 
-莫德纳（公司）说，莫德纳中共病毒疫苗和其他版本已被发现对因中共病毒而住院或死亡的风险是安全和高效的。他们“意识到在使用抗中共病毒的mRNA疫苗后，心肌炎和/或心包炎的发生非常罕见。”
+习近平星期六（10月9日）在北京人民大会堂举行的“纪念辛亥革命110周年大会”上声称，会达成中共所谓的“统一中国”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-5.jpg)
+前白宫国安会主管亚洲事务资深主任麦艾文对此表示，“台湾问题已经不再是一个狭窄的小问题，而是变成美中战略竞争的中心舞台。”
 
-该公司在一份声明中说：“这些病例通常是轻微的，经过标准治疗和休息后，患者往往会在短时间内康复。感染中共病毒的患者患心肌炎的风险大大增加，而接种疫苗是预防这种情况的最佳方法。”
+美国长期以来针对是否协防台湾的问题保持一种“战略模糊”的态度。根据美国空军杂志的报道，随着中共国对台湾军事压力的增大，很多人都开始呼吁拜登政府改变“战略模糊”政策，明确宣示协防台湾。
 
-美国食品和药物管理局于8月批准了辉瑞公司的中共病毒疫苗，莫德纳的全面批准申请仍在等待中。
+郭文贵先生今天发盖文明确警告说：“台湾危险了：习近平发表辛亥革命110周年演讲发出强烈信号，坚决要完成武统台湾”。
 
-（全文完）
+（本文仅代表作者观点）
 
-不难看出，文章充满了对莫德纳的期待，大篇幅引用莫德纳公司自吹自擂的宣传，淡化北欧对疫苗的限制，FDA为莫德纳站台，文章为FDA背书，还继续撒谎称FDA于8月批准了辉瑞公司的中共病毒疫苗，笔者已发文、转载澄清过此事，FDA没有正式批准中共病毒疫苗，他们只延长了辉瑞疫苗在美国的紧急使用授权【2】。
+参考链接：[纽约时报评：美国与中共国可能因台湾问题进入危险地带](https://www.breitbart.com/national-security/2021/10/08/microsoft-58-percent-cyberattacks-past-year-came-russia/)
 
-难怪“左味”如此浓厚，原来是转载《美联社》（The Associated Press）的，替中共、邪恶势力摇旗呐喊的帮凶。看来号称右派媒体的《福克斯》也不乏左翼人士。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-08-at-10.11.51-PM.png)
 
-揭露真相，唤醒世界任重道远，新中国联邦人仍需继续努力！
+新闻访谈终审：Ryan
+编辑/校对/审核：Hetangyuese
 
-有关链接：
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-【1】[https://www.foxnews.com/health/fda-moderna-vaccine-benefits-outweigh-risks-nordic-countries-limit-use](https://www.foxnews.com/health/fda-moderna-vaccine-benefits-outweigh-risks-nordic-countries-limit-use)
-
-【2】[https://gnews.org/zh-hans/1571540/](https://gnews.org/zh-hans/1571540/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-15.png)

@@ -2,65 +2,35 @@
 ---
 
 
-## 远离大城市的理由
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1584400/)
+## 中共国工商银行限制部分外汇和大宗商品交易
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1584446/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ajo7l-u8jre.jpg)
-[https://gtv.org/video/id=616185ead2e2b81748732e67](https://gtv.org/video/id=616185ead2e2b81748732e67)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/101002-1.jpg)
+**摘要翻译：  **
 
-**郭文贵：
-Miles Guo：**
+上海（路透社）——中共国工商银行周五表示，将限制某些类别的零售业务——涉及外汇和大宗商品交易。中共国最大的银行做出调整的同时，监管机构也推出了一系列举措来控制金融风险，包括抑制大宗商品价格上涨、禁止虚拟货币交易和限制炒房。
 
-在一线城市，没电了
-In the first-tier cities, if there is no electricity
+中共国工商银行的限制措施出台之际，全球能源价格飙升——回应中共国和世界其它一些地区的电力短缺。
 
-你咋下楼？
-How will you go downstairs?
+中共国工商银行在一份公告中说，自10月17日起将暂停为“外汇业务账户”开立新账户。自11月14日起，现有客户将被禁止开设新的交易仓位。中共国工商银行在公告中说，自10月17日起还将停止接受能源、基本金属、农产品和贵金属指数等类似交易业务的新客户。
 
-没电了楼梯咋办？
-What to do if the lifts are out of power?
+在最近的几个月中，中共国工商银行、中共国银行和中共国招商银行等关闭了允许个人客户押注非人民币货币组合的外汇交易业务。
 
-没电就没水，没电没水
-No electricity means no water, no electricity and no water
+**简评：**
 
-你出去交通受管制
-Traffic is controlled when you go out
+中共企图用简单粗暴的行政手段消除潜在的金融风险，稳住日渐凋敝的经济局面，当权者从未想过改善老百姓的基本生活，心里只想着手里的权利，假擀面杖子经济撑不了太久了。
 
-而且集中抢劫
-And concentrated on looting
+[原文链接](https://www.reuters.com/article/china-icbc-forex/update-1-chinas-icbc-to-restrict-some-forex-and-commodities-trading-idUSL1N2R40GY)
 
-警察管你
-The police control you
+***编辑：【英国伦敦喜庄园编辑部】***
 
-你连吃草的机会都没有
-You won’t even have a chance to eat grass
+*翻译/简评：乡间小路| 校对：clau*
 
-你从楼上跳下来吗？
-Will you jump down from upstairs?
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-你能步行在大马路上跑吗？
-Can you run on the main roads?
 
-所有城市的方便, 都成为你的不方便
-The conveniences of all cities will become your inconveniences
+编辑：【英国伦敦喜庄园编辑部】
 
-所有城市里面能拥有的好东西， 都是对你的伤害
-All the good things you can have in the cities will hurt you
-
-那你呆在城市干什么？
-So what will you do in the cities?
-
-**——————————————————**
-
-**原视频链接**: [https://twitter.com/se1y7cblljselva/status/1446500243864887297?s=24](https://twitter.com/se1y7cblljselva/status/1446500243864887297?s=24)
-
-英听校 : 洛杉矶盘古农场 – Raul
-翻译 : 洛杉矶盘古农场 – Raul
-翻译终校 : 洛杉矶盘古农场 – Mike Li
-字幕+视频制作 : 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
