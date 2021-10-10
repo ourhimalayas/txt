@@ -2,35 +2,111 @@
 ---
 
 
-## 中东是中共藏钱的要地；联合国欧洲开始研讨新中国联邦
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1585339/)
+## 再谈谈疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1585362/)
 
-栏目作者：焦点20分
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2478.png)
+[https://gtv.org/video/id=6162e01dd2e2b81748739bca](https://gtv.org/video/id=6162e01dd2e2b81748739bca)
 
-1、郭先生提到中共国外交部有三大职能：1，是国家政府的喉舌，同时代表的是国家民族的形象和立场；2，外交部也是国家对外合法的情报部，但是所谓的武官和安全官员等职务，有时候执行的却是台面下绑架，抓捕，杀人的任务，3，外交部甚至还会以履行外交权利的名义执行走私，毒品，绑架等罪行，是合法的黑社会。程国平是对新疆人下手最狠的人，杀人无数，程国平在阿联酋，迪拜，伊朗，阿富汗和巴基斯坦等地押回或者绑架了近千的新疆人回到中共国。另外中共国驻阿联酋大使倪坚也图害了大量的新疆人，并且也大肆收敛财富。这两个人在伊拉克，中东，和新疆大屠杀中都扮演者举足轻重的角色。
+郭文贵
+Miles Guo
 
+大家记住啊，它的疫苗的成本是多少呢
+Remember, what is the cost of its vaccine?
 
+大概在6美分到8美分，卖的价格是19美金到35美金和40美金不等
+It is about 6 cents to 8 cents, and the retail price ranges from 19 dollars to 35 dollars and 40 dollars
 
-2、郭先生还揭露要想洗钱是离不开中东的。安全部的马健副部长曾经经手和负责有关中东的一切事物，他不仅掌握关键信息和情报，还有共产党藏匿在海外万亿资金的钱路。马健落马还有个重要的原因就是政法委，孟建柱等人想要抢夺马健掌握的巨额资金。共产党的钱遵循的是三七分的原则，也就是所有的外汇，70%留在海外 ，30%在国内。三成用于老百姓，七成供他们几个势力和家族的人享受。这海外70%的钱，主要是情报部门和外交部在管理和负责。政法委，安全部，公安部派到外交部的人，是不尊从于外交部的，而是听令于政法委和安全部，所以二部派出的武官只听总参谋长的。
+不同的时期不同的地方，你想想它有多大的暴利
+in different places and different periods, think about how profitable it is
 
-3、王岐山掌权的时候，银监会，证监会，保监会，人民银行和中央银行全是他的势力，共产党在海外的钱如果没有这些机构和银行的配合是处理不了的。王岐山厉害之处就是他紧紧控制着海外的金融情报和金融权利。孟建柱除掉了马健并同时控制住了藏在海外的钱和取钱的密码。所以如果没有外交部，政法委和人民银行等金融机构部门的配合，在海外的钱是动不了，也贪不了的。 程国平和倪坚就是在中东经手和接管这些钱。
+那么药厂既然在人类遇到最大危难的时候发展出来疫苗拯救人类，是吧，
+Well, since pharmaceutical companies have developed vaccines to save mankind when mankind is in the greatest danger, right?
 
+你不应该再花钱去游说别人去救别人
+You should no longer spend money to persuade others and to save others
 
+这个天下哪有说，我现在能救你在危难之中，
+Nothing in this world like this, I can save you now while you are in danger
 
-4、郭先生爆料之前放出的傅振华通话录音，其实真正打电话的人是傅的司机，但是他百分之百传达的是傅的旨意，后来该司机在打这通电话的6个月之后被死亡，傅政华富可敌国的资产，主要是由其三弟傅伟（音）华和傅的子女安排藏匿在了加拿大。海外民运，法轮功，海外企业家商人，受到的最严重的迫害几乎都来自孟建柱，傅振华，孙立军，王岐山，这四人可谓是中国有史以来最严酷的库吏。傅振华最能搞钱，曾利用在新疆的命案，向程国平勒索了大笔钱财和关于孟建柱在海外的秘密情报。倪坚的政坛之路平步青云是因为他是程国平，孟建柱，孙立军，王毅，杨洁篪共同培养的人，如果没有杨洁篪的信任他是去不了阿联酋的。
+我得给你钱，让我救你
+I have to give you money and let me save you
 
-5，阿联酋和中国之间建立关系是由郭文贵先生一手促成的。倪坚曾经向习近平诬陷郭先生，因为郭先生掌握了中共在阿联酋钱的去向和独家情报，同时也是为了阻止郭先生参与中阿关系。中共内部都在争夺和阿联酋的关系，因为中东是中共藏匿财富的高值客户所在地。习近平不相信中共在海外有高达20万亿美金的财富，他认为只有大约1.4-2万亿。所以这场较量真正的目的有三个：1，在20大确定谁会最终成为总书记；2，海外20万亿的控制权；3，情报，外交，政法的控制权
+有人掉到水里了，都快死了，说要拉你上来
+like someone fell into the water and was dying, and someone saying that he would pull you up
 
-6，恒大集团的暴雷是由郭树清和周亮两人负责处理的，他们都是王岐山的人。恒大和其所牵扯到的兴业，上海，民生，中国银行的问题都会被他们掩盖，但也同时埋下了更大的暴雷。只有王岐山，孟建柱，周亮，杨洁篪和王毅被抓，或者是陈希，栗战书，丁薛祥被抓时，才能真正撼动共产党的根基。共产党内部你死我活的较量才刚刚开始，攻台和中美经济金融的崩塌不一定会对灭共会起到决定性作用，但是一旦共产党内部斗争在同一时间升级，共产党必将灭亡。
+但是我再给你准备上100万，这到底是啥事，是你把我推下去的
+but I will prepare another 1 million for you, what the hell is this? did you push me down?
 
-7、 王沪宁，杨洁篪，孟建柱，王岐山现在基本都处于国家监管中，所谓的“在家工作，监督上岗”的加强警卫状态。为的是确保20大能“安全”召开。国内多座省市的停电，跟政治斗争没有任何关系，那是国家行为，也是有组织，有计划，有阴谋的停电。目前已经有32家美国公司和多家日本企业向中国政府申请因停电造成的经济损失，以及合同违约的补偿。中共已经从今年的5月份开启了百年大计的备战状态，共产党的一系列行为就是为了打垮美国金融股市，美元和欧元，同时也在利用这场他们所制造的人类危机，来达到控制世界的野心，和共产党合谋的就是华尔街和已被蓝金黄了的各国官员，媒体，还有某些国际黑暗组织。共产党也已经明确下令对关于恒大，平安，多家大型房地产公司所涉及到的海外外债一概不管。共产党内部的政策是内部要摸底，问话，控制，问题由地方部门分区解决，至于国际上的债务盖不处理。
+还是你把我拉上来以后，还有什么事啊？
+or is there anything else after you pull me up?
 
-8、中共主要藏钱的地方，大头是在中东，然后是新加坡，再就是瑞士，澳大利亚，日本。卡塔尔和海航共同购买德意志银行，本质就是洗钱行为。再就是玩金融票据，并且中共通过卡塔尔投资了世界上最大的奢侈品牌。共产党借这次处理火币，封禁了中国普通百姓购买虚拟货币的途径，并且把购买虚拟货币非法化，内部把多种虚拟币的资金都归于几个货币炒作投资公司，他们将服务高值客户，就是所谓的共产党政治局委员，省部级干部，和他们的家属，以及某些政府部门机构。这对喜币是个极大的利好消息，因为如果中国人无法通过银行合法购买虚拟货币，而喜币愿意接受中国的买家，当资金几乎无处可去，最大的可能就是避险到一个即安全又保值的去处，那就是喜联储，我们G系列投资亦同理。
+我就搞不懂了，为啥疫苗公司，
+I just don’t understand why is the vaccine company
 
-9、世界上最优秀的家族信托基金是在荷兰，然后是瑞士，马尔代夫，塞舌尔，BVI 和巴哈马等地。在中东和塞舌尔藏钱的本质是不同的，在塞舌尔的控股公司被用于控制在其他国家的基金和钱，就像是控制密码的手；共产党家族的大量的黄金，钻石，稀土，稀世的古董珍宝，藏匿处之一就是在中东。所以澳大利亚，新西兰是曾家藏宝的地方，而新加坡，塞舌尔，中东是江家藏宝之处，也是控股公司和部分家族基金的所在地，并且江志成控制着中共在海外资产20万亿的一半。另外中国军队的核心是陆军，真正的军权实际上都在江家和曾家手里，他们才是邓家的衣钵的传承人。
+全人类不知道病毒哪来的，
+The whole mankind doesn’t even know where the virus comes from?
 
-10、联合国，欧洲议会真正地开始研究新中国联邦是否能成为官方承认的，代表中国人的政治力量，并且他们已经开始了真正的官方程序。新中国联邦承诺香港，台湾，新疆和西藏都会成为独立区，并且希望他们能以独立的政体参与新中国联邦，成为我们的一部分。并且新中国联邦将进行真正公平的，在国际监督下的公投。新中国联邦建造的不是国家体制，也不是国家政权，我们会是包含宗教和国家体制的一种全新的人类生存方式。
+你就生产出疫苗，生产出来疫苗让别人打
+Vaccine company just produce that vaccine right away and provide to people
 
-11、在这一次的直播中郭先生再次提到青蒿素和伊维菌素是治病的关键，尤其青蒿素是关键中的关键。屠呦呦女士是改变人类命运的女英雄，她会在人类历史上名垂青史。最后郭先生又再一次提醒大家，目前人类所面临的是史无前例的金融和生存巨大危机。2022年12月份之前战友们尽量减少外出，旅行，开车，乘坐公共交通以及避免患病和手术等。人类在绝望和死亡面前，往往会有更疯狂的极端行为，郭先生透露他最大的担心就是报复性的社会灾难，以及疫情所导致的金融服务，治安维护，食品，饮用水，电力供应的短缺或中断等带来的衍生灾难，所以战友们一定要提前做好规划。
+而且你要拿钱游说，给别人钱打你的疫苗
+and you have to lobby and give others money to let people get vaccinated
 
-上传：零点
+然后让政府强制打，你不情愿打
+Then the government mandate the vaccine, people are not willing to do so
+
+但是打的时候还得让你自己承担责任
+also people have to take responsibility when they take the vaccine
+
+它药厂不承担责任，这叫啥疫苗啊？这符合逻辑吗？
+The pharmaceutical company does not take any responsibility. What kind of this vaccine is? Is this logical?
+
+最重要的事情，所有的西方天主教，基督教徒
+The most important thing that all Western Catholics, Christians
+
+一个根本原则，人命天受
+have a fundamental principle that life is granted by God
+
+老天爷给我的命不属于政府，谁也不是
+the life that God give to me does not belong to the government, nor is anyone
+
+连父母也没有权利剥夺，
+even parents have no right to deprive us
+
+是我们每个人都有追求幸福安全，言论自由的美好生活的权利
+each of us has the right to pursue a happy and safe life with freedom of speech
+
+这基本人权吧，是吧
+This is a basic human rights, right?
+
+自我表达，追求幸福各种方式的权利
+Self-expression, the right to pursue the happiness in various ways
+
+那这个药我不打总行嘛，你就剥夺我的工作
+I don’t want to take this vaccine, then you will deprive my job
+
+你就不让我 坐飞机，你就不让我坐车
+You don’t allow me take plane, or take bus
+
+那到底你是救我呢？还是害我呢？
+Are you saving me or hurting me?
+
+————————————————————
+
+Date:10/09/2021
+原视频标题:再谈谈疫苗
+Talk about vaccines again
+原视频日期：2021/10/07
+原视频链接:[https://twitter.com/se1y7cblljselva/status/1446411550441439233?s=24](https://twitter.com/se1y7cblljselva/status/1446411550441439233?s=24)
+任务编号：2478
+视频时间段 : 0:00-2:17
+英听校：洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
