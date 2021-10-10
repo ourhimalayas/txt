@@ -2,28 +2,111 @@
 ---
 
 
-## 坚持个人疫苗接种选择，洛杉矶消防员将起诉政府
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585328/)
+## 再谈谈疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1585362/)
 
-作者：文龍
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月10号文贵先生在其盖特转发了一则短视频，是来自美国洛杉矶当地媒体的报，视频中当地消防员安德烈称。他和其他871名消防员联名，通过律师提交了起诉洛杉矶市政府的告知文件，原因是政府警告消防员必须在10月20日之前全部接种疫苗，否则将被解雇或停薪留职。消防员坚持自己的选择，并将向法庭提出要求每人200万美元的赔偿，因为自己的选择将导致失业!消防员们称。此举不仅是因为疫苗，而是关系到人权和法律程序。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/p89.002.jpeg)
-文贵先生在他的盖特中对此事件评论道:
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2478.png)
+[https://gtv.org/video/id=6162e01dd2e2b81748739bca](https://gtv.org/video/id=6162e01dd2e2b81748739bca)
 
-“洛杉矶发生的这种将面临没有消防员的情况，会在全球的电力、医院、警察等所有公共领域发生。全球的政府将面对无法计算的诉讼，以及社会公共灾难等巨大的社会问题，这是中共病毒和疫苗带来的灾难，是对人类社会秩序的摧毁性打击。这一结果完全在邪恶势力、和中共的计划之中。只有新中国联邦在2020年一月份就开始警告世界，疫苗才是灾难的真正核心。但愿世界早日醒来，我们新中国联邦人将为此奋斗到底 ” 。
-(本文仅代表作者观点)
+郭文贵
+Miles Guo
 
-参考链接：[郭文贵先生 10月10号的盖特](https://gettr.com/post/pdp5du787c)
+大家记住啊，它的疫苗的成本是多少呢
+Remember, what is the cost of its vaccine?
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+大概在6美分到8美分，卖的价格是19美金到35美金和40美金不等
+It is about 6 cents to 8 cents, and the retail price ranges from 19 dollars to 35 dollars and 40 dollars
 
-编辑/校正/发稿：我不在这里
+不同的时期不同的地方，你想想它有多大的暴利
+in different places and different periods, think about how profitable it is
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+那么药厂既然在人类遇到最大危难的时候发展出来疫苗拯救人类，是吧，
+Well, since pharmaceutical companies have developed vaccines to save mankind when mankind is in the greatest danger, right?
+
+你不应该再花钱去游说别人去救别人
+You should no longer spend money to persuade others and to save others
+
+这个天下哪有说，我现在能救你在危难之中，
+Nothing in this world like this, I can save you now while you are in danger
+
+我得给你钱，让我救你
+I have to give you money and let me save you
+
+有人掉到水里了，都快死了，说要拉你上来
+like someone fell into the water and was dying, and someone saying that he would pull you up
+
+但是我再给你准备上100万，这到底是啥事，是你把我推下去的
+but I will prepare another 1 million for you, what the hell is this? did you push me down?
+
+还是你把我拉上来以后，还有什么事啊？
+or is there anything else after you pull me up?
+
+我就搞不懂了，为啥疫苗公司，
+I just don’t understand why is the vaccine company
+
+全人类不知道病毒哪来的，
+The whole mankind doesn’t even know where the virus comes from?
+
+你就生产出疫苗，生产出来疫苗让别人打
+Vaccine company just produce that vaccine right away and provide to people
+
+而且你要拿钱游说，给别人钱打你的疫苗
+and you have to lobby and give others money to let people get vaccinated
+
+然后让政府强制打，你不情愿打
+Then the government mandate the vaccine, people are not willing to do so
+
+但是打的时候还得让你自己承担责任
+also people have to take responsibility when they take the vaccine
+
+它药厂不承担责任，这叫啥疫苗啊？这符合逻辑吗？
+The pharmaceutical company does not take any responsibility. What kind of this vaccine is? Is this logical?
+
+最重要的事情，所有的西方天主教，基督教徒
+The most important thing that all Western Catholics, Christians
+
+一个根本原则，人命天受
+have a fundamental principle that life is granted by God
+
+老天爷给我的命不属于政府，谁也不是
+the life that God give to me does not belong to the government, nor is anyone
+
+连父母也没有权利剥夺，
+even parents have no right to deprive us
+
+是我们每个人都有追求幸福安全，言论自由的美好生活的权利
+each of us has the right to pursue a happy and safe life with freedom of speech
+
+这基本人权吧，是吧
+This is a basic human rights, right?
+
+自我表达，追求幸福各种方式的权利
+Self-expression, the right to pursue the happiness in various ways
+
+那这个药我不打总行嘛，你就剥夺我的工作
+I don’t want to take this vaccine, then you will deprive my job
+
+你就不让我 坐飞机，你就不让我坐车
+You don’t allow me take plane, or take bus
+
+那到底你是救我呢？还是害我呢？
+Are you saving me or hurting me?
+
+————————————————————
+
+Date:10/09/2021
+原视频标题:再谈谈疫苗
+Talk about vaccines again
+原视频日期：2021/10/07
+原视频链接:[https://twitter.com/se1y7cblljselva/status/1446411550441439233?s=24](https://twitter.com/se1y7cblljselva/status/1446411550441439233?s=24)
+任务编号：2478
+视频时间段 : 0:00-2:17
+英听校：洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

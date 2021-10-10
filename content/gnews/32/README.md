@@ -2,34 +2,108 @@
 ---
 
 
-## 文贵先生公示社区原则，保障盖特良性拓展
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585387/)
+## 七哥一心牵挂战友，共准备6000万个喜币，留给墙内被喝茶及核心战友
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1585451/)
 
-作者：文龍
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-新中国联邦爆料革命自媒体平台盖特, 越来越受到各界关注,用户一直在迅猛增长中，为使盖特获得持续良好的发展。10月10日，郭文贵先生在其盖特发文，列出了盖特的六个绝对不允许原则：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/p89.004.jpeg)
-1. 绝对不允许有种族歧视。
-2. 绝对不允许有政治歧视，允许任何不同党派的政见和观点。
-3. 绝对不允许文化歧视，包容所有文化。
-4. 绝对不可以有恐怖主义倾向及内容。
-5. 绝对不可以有犯罪，虐童，暴力，色情倾向和内容。
-6. 绝对不可以利用盖特传播虚假和欺骗信息。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2476.png)
+[https://gtv.org/video/id=6162e0a2d2e2b81748739be5](https://gtv.org/video/id=6162e0a2d2e2b81748739be5)
 
+**郭文贵：
+Miles Guo：**
 
-同时文贵先生还透露，一周内所有盖特的加V认证用户，将开启在线直播功能。此举将使盖特如虎添翼，成为向世界传播真相的利器，以及热爱自由人群的最热门社交平台!
-(本文仅代表作者观点)
+七哥一心牵挂战友，共准备6000万个喜币，留给墙内被喝茶及核心战友
+Miles sets aside a total of 60 million H coins for core domestic comrades
 
-参考链接：[盖特的六个绝对不允许](https://gettr.com/post/pdpuh8bf0e)
+还有我们大连的被关了将近一年多的战友啊
+And our comrades in Dalian who have been detained for more than a year
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+是吧
+Right？
 
-编辑/校正/发稿：我不在这里
+很辛苦
+Suffered a lot
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这是为啥我们现在有2000万喜币是通过基金买的
+This is why we now have 20 million H Coins bought through the fund
+
+都是给人钱，你不给人钱，人家喜币不给你呀
+(We) all give money to the Himalaya Exchange, if you don’t give them money, they don’t give you H Coins
+
+这2000万喜币
+This 20 million H coins
+
+就是留给国内的那些战友们的
+is reserved for those domestic comrades
+
+这2000万喜币
+This 20 million H coins
+
+也就给国内的
+are also given to the domestic,
+
+现在已经登记在册的,被喝茶，被侵害的，被伤害，被恐吓的(战友)
+now registered comrades who have been drunk tea, violated, injured and intimidated.
+
+我们已经登记大概在60多万人吧
+We have registered more than 600,000 people
+
+60多万人
+600,000 people
+
+这2000万币目前是给这60万人之一
+The 20 million H coins are currently given to these 600,000 people
+
+这些全包含
+These are all inclusive
+
+还有比这更多的，还没有被登记的肯定有
+There are more than this, there must be some who have not been registered yet
+
+另外的一个， 我们还有一个2000万的喜币
+The other one, we also have another a 20 million H Coins
+
+是专门给直接跟七哥联系的特殊贡献者
+for special contributors who directly contact me
+
+不在这2000万里边
+Not in this 20 million,
+
+这是不含的
+This is not included,
+
+所以说这个大概一共是6000万个喜币
+So this is probably a total of 60 million H coins
+
+已经被基金买下来
+that have been bought by the fund.
+
+完全是跟G系列没有关系的
+It has nothing to do with the G series.
+
+这个是家族基金买的
+This is bought by the family fund
+
+然后，未来是给战友的
+then, they will be given to comrades in the future
+
+大家要记住啊
+Everyone should remember that
+
+—————————————————————————
+
+Date: 10/08/2021
+原视频标题: 七哥一心牵挂战友，共准备6000万个喜币，留给墙内被喝茶及核心战友
+Miles sets aside a total of 60 million H coins for core domestic comrades
+原视频日期：2021/10/08
+原视频链接 [https://twitter.com/se1y7cblljselva/status/1446500094044295172?s=24](https://twitter.com/se1y7cblljselva/status/1446500094044295172?s=24)
+任务编号：2476
+视频时间段 : 00:00-01:15
+英听校：洛杉矶盘古农场 – Raul
+翻译：洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场- 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

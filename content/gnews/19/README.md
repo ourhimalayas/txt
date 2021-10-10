@@ -2,24 +2,25 @@
 ---
 
 
-## 有声|瑞士会谈的实质是美国借台湾存亡与中共进行的再次勾兑
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1585579/)
+## 川普称俄中正在研究美阿富汗遗弃的直升机
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1585595/)
 
-配音：香草山教育部-蒙古鸿雁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-10月8日，郭文贵先生盖特视频表示：瑞士会谈的实质是美中为了彼此利益的再次勾兑。美国借阻止打台湾之名，对中共软硬兼施，促使中共国继续买美国国债，以缓解美国的经济困境。郭先生说：美中在玩假的经济和假的政治环境，只是一时的缓解，最终是要出问题的，牺牲的还是台湾和老百姓。
+俄罗斯莫斯科喀秋莎农场 星河
 
-一切的虚假只能是海市蜃楼，最终会消失，而践行正道主义的新中国联邦，用行动建立了GTV、GETTR、GNEWS媒体平台，喜联储金融经济体系，必将成为世界新的政治力量。
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/T-3.jpg)middleeast.in-24.com
+美东时间10月10日报道，美国前总统川普在爱荷华州的一个支持者集会上表示，来自俄罗斯和中共国的专家已经拆解并正在研究美国在阿富汗遗弃的直升机，用以制造更好的武器。
 
-文字版原文：[瑞士会谈的实质是美国借台湾存亡与中共进行的再次勾兑](https://gnews.org/zh-hans/1582736/)
+川普警告称，“俄罗斯和中共国已经有了我们的直升机样品，他们已经在拆解阿帕奇，研究它们，很快他们就能制造出更好的装备，而且成本更低。”
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这位前总统早些时候曾说，美国人在阿富汗放弃了价值850亿美元的军事装备。他明确指出，“昂贵的黑鹰直升机有可能落入俄罗斯和中共国手里。我们在那里有最新的坦克和导弹。我们在那里有黑鹰直升机，全新的，价值数十亿美元，现在俄罗斯、中共国将有机会使用它们。”
+
+根据川普的说法，美国撤军后，俄罗斯将试图弥补前苏联的错误，重新恢复在阿富汗的影响力。
+
+美军自2001年以来一直在阿富汗。2021年4月，拜登宣布，他们将在911袭击事件周年纪念日之前完全撤出。最后一批美国士兵于8月30日离开了阿富汗。
+
+在西方军队的撤退中，该国被塔利班（一个被俄罗斯承认为恐怖分子并被禁止的组织）短暂占领。8月15日，武装分子进入喀布尔的总统府，宣布完全控制阿富汗。
+
+参考链接：
+
+[https://www.rbc.ru/politics/10/10/2021/61624fc39a7947c0ec3ff175?from=from\_main\_10](https://www.rbc.ru/politics/10/10/2021/61624fc39a7947c0ec3ff175?from=from_main_10)

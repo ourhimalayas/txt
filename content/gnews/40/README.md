@@ -2,42 +2,28 @@
 ---
 
 
-## 习近平发誓要统一台湾，警告那些“背叛祖国”的人
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1585290/)
+## 坚持个人疫苗接种选择，洛杉矶消防员将起诉政府
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585328/)
 
-【简评】
+作者：文龍
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月10号文贵先生在其盖特转发了一则短视频，是来自美国洛杉矶当地媒体的报，视频中当地消防员安德烈称。他和其他871名消防员联名，通过律师提交了起诉洛杉矶市政府的告知文件，原因是政府警告消防员必须在10月20日之前全部接种疫苗，否则将被解雇或停薪留职。消防员坚持自己的选择，并将向法庭提出要求每人200万美元的赔偿，因为自己的选择将导致失业!消防员们称。此举不仅是因为疫苗，而是关系到人权和法律程序。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/p89.002.jpeg)
+文贵先生在他的盖特中对此事件评论道:
 
-***两岸关系愈来愈严峻之际，北京10月9日隆重纪念辛亥革命110周年。中共总书记习近平称赞“以孙中山为代表的革命党人发动了震惊世界的辛亥革命”，并称孙中山逝世后，“中国共产党人继承他的遗愿”。但是，海峡对岸的台湾却有声音质疑：习近平打孙中山牌，为何不承认孙中山建立的国家？***
+“洛杉矶发生的这种将面临没有消防员的情况，会在全球的电力、医院、警察等所有公共领域发生。全球的政府将面对无法计算的诉讼，以及社会公共灾难等巨大的社会问题，这是中共病毒和疫苗带来的灾难，是对人类社会秩序的摧毁性打击。这一结果完全在邪恶势力、和中共的计划之中。只有新中国联邦在2020年一月份就开始警告世界，疫苗才是灾难的真正核心。但愿世界早日醒来，我们新中国联邦人将为此奋斗到底 ” 。
+(本文仅代表作者观点)
 
-据《日经新闻》 作者：PAK YIU，2021年9月9日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2481.png)10月9日，中国共产党总书记习近平和其他领导人站在孙中山的巨幅画像下，© 路透社
-香港 — 中国共产党总书记习近平周六宣布，台湾独立运动是“统一的最大障碍”，他发誓要实现统一，并警告那些“背叛祖国”的人。
+参考链接：[郭文贵先生 10月10号的盖特](https://gettr.com/post/pdp5du787c)
 
-在纪念终结清朝的辛亥革命110周年的讲话中，习近平说，分裂主义势力构成了 “民族复兴的严重隐患”。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-“那些忘记自己祖先、背叛祖国或分裂国家的人从来没有好下场。”他在北京人民大会堂说。他说：“他们肯定会受到人民的蔑视，受到历史的审判。”他补充说，不允许任何外部干涉。
+编辑/校正/发稿：我不在这里
 
-1911年10月10日开始的辛亥革命导致中国2000年的君主制结束，并由国民党建立了中华民国——国民党后来在共产党的推动下于1949年逃往台湾。
-
-习近平的讲话是在中华民国“国庆日”，又称“双十节”之前发表的，同时这也是两岸紧张关系加剧的时候。台湾国防部长说，北京有能力在2025年之前进行“全面”入侵，因为本周创纪录的中共军用飞机多次飞过台湾的防空识别区。
-
-自1949年以来，这个民主的岛屿一直独立于中国，但北京坚持“一个中国”的原则，并坚持统一——必要时通过武力统一。
-
-本周早些时候，美国强调其对台湾的“坚如磐石”的承诺。此前美国总统乔-拜登说他已经与习近平交谈，并同意他们将“遵守台湾协议”。
-
-注：自华盛顿在冷战高峰期的1970年代决定放弃台北、承认北京，作为美中建交基础而签署的三个声明《上海公报》、《建交公报》和《八一七公报》，是中美关系的框架。
-
-在台湾，一种长期执守的观点是，《建交公报》催生的美国《台湾关系法》才是美台关系的重要基石。简言之，北京在引经据典谈及中美台关系时最常用的说法是“三个公报”，而台湾的心态更像是“一法三公报”。
-
-一个中国，各自表述简称为“一中各表”，是海峡两岸关系的政治性论述，由中国国民党所提出。 这个论述主张，中华民国与中华人民共和国双方都同意一个中国，但是对一个中国的内涵，双方可以有各自不同的表述方式，这是台湾对九二共识的诠释之一。
-
-文章来源:[https://asia.nikkei.com/Politics/Xi-vows-Taiwan-reunification-warns-those-who-betray-motherland](https://asia.nikkei.com/Politics/Xi-vows-Taiwan-reunification-warns-those-who-betray-motherland)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 柯镇恶
-评论：洛杉矶盘古农场 –Mike Li
-编辑：洛杉矶盘古农场 –柯镇恶
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

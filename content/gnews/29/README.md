@@ -2,108 +2,19 @@
 ---
 
 
-## 七哥一心牵挂战友，共准备6000万个喜币，留给墙内被喝茶及核心战友
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1585451/)
+## 狼子野心昭然若揭——习近平发表“祖国统一”讲话
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1585518/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2476.png)
-[https://gtv.org/video/id=6162e0a2d2e2b81748739be5](https://gtv.org/video/id=6162e0a2d2e2b81748739be5)
+撰稿：Ermat【㊙️翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2ba672847a5f44e4893ebdf91d88af65-1.jpeg)图片来源：sohu.com
+据中共国官网报道，习近平于10月9日发表“纪念辛亥革命110周年讲话”。在讲话中不仅威胁民主台湾，还对其他国家进行恫喝。
 
-**郭文贵：
-Miles Guo：**
+习近平说，孙中山先生说过：“‘统一’是中国全体国民的希望。能够统一，全国人民便享福；不能统一，便要受害。”台湾问题因民族弱乱而产生，必将随着民族复兴而解决。这是中华民族历史演进大势所决定的，更是全体中华儿女的共同意志，正像孙中山先生所说：“世界潮流，浩浩荡荡，顺之则昌，逆之则亡”。
 
-七哥一心牵挂战友，共准备6000万个喜币，留给墙内被喝茶及核心战友
-Miles sets aside a total of 60 million H coins for core domestic comrades
+习近平还威胁说，中华民族具有反对分裂、维护统一的光荣传统。“台独”分裂是祖国统一的最大障碍，是民族复兴的严重隐患。凡是数典忘祖、背叛祖国、分裂国家的人，从来没有好下场，必将遭到人民的唾弃和历史的审判！台湾问题纯属中国内政，不容任何外来干涉。任何人都不要低估中国人民捍卫国家主权和领土完整的坚强决心、坚定意志、强大能力！祖国完全统一的历史任务一定要实现，也一定能够实现！
 
-还有我们大连的被关了将近一年多的战友啊
-And our comrades in Dalian who have been detained for more than a year
+现如今台湾在外：强敌虎视，各国冷眼旁观；在内：弱势总统，奸佞蜂起，“口炮 ”当道。习主席杀气腾腾的讲话——“世界潮流，浩浩荡荡，顺之则昌，逆之则亡。”预示着一场血雨腥风的到来，在病毒和疫苗之战已溃不成军的西方，将迎来又一次挑战。
 
-是吧
-Right？
+参考链接：
 
-很辛苦
-Suffered a lot
-
-这是为啥我们现在有2000万喜币是通过基金买的
-This is why we now have 20 million H Coins bought through the fund
-
-都是给人钱，你不给人钱，人家喜币不给你呀
-(We) all give money to the Himalaya Exchange, if you don’t give them money, they don’t give you H Coins
-
-这2000万喜币
-This 20 million H coins
-
-就是留给国内的那些战友们的
-is reserved for those domestic comrades
-
-这2000万喜币
-This 20 million H coins
-
-也就给国内的
-are also given to the domestic,
-
-现在已经登记在册的,被喝茶，被侵害的，被伤害，被恐吓的(战友)
-now registered comrades who have been drunk tea, violated, injured and intimidated.
-
-我们已经登记大概在60多万人吧
-We have registered more than 600,000 people
-
-60多万人
-600,000 people
-
-这2000万币目前是给这60万人之一
-The 20 million H coins are currently given to these 600,000 people
-
-这些全包含
-These are all inclusive
-
-还有比这更多的，还没有被登记的肯定有
-There are more than this, there must be some who have not been registered yet
-
-另外的一个， 我们还有一个2000万的喜币
-The other one, we also have another a 20 million H Coins
-
-是专门给直接跟七哥联系的特殊贡献者
-for special contributors who directly contact me
-
-不在这2000万里边
-Not in this 20 million,
-
-这是不含的
-This is not included,
-
-所以说这个大概一共是6000万个喜币
-So this is probably a total of 60 million H coins
-
-已经被基金买下来
-that have been bought by the fund.
-
-完全是跟G系列没有关系的
-It has nothing to do with the G series.
-
-这个是家族基金买的
-This is bought by the family fund
-
-然后，未来是给战友的
-then, they will be given to comrades in the future
-
-大家要记住啊
-Everyone should remember that
-
-—————————————————————————
-
-Date: 10/08/2021
-原视频标题: 七哥一心牵挂战友，共准备6000万个喜币，留给墙内被喝茶及核心战友
-Miles sets aside a total of 60 million H coins for core domestic comrades
-原视频日期：2021/10/08
-原视频链接 [https://twitter.com/se1y7cblljselva/status/1446500094044295172?s=24](https://twitter.com/se1y7cblljselva/status/1446500094044295172?s=24)
-任务编号：2476
-视频时间段 : 00:00-01:15
-英听校：洛杉矶盘古农场 – Raul
-翻译：洛杉矶盘古农场 – Raul
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[习近平：在纪念辛亥革命110周年大会上的讲话](http://www.gov.cn/xinwen/2021-10/09/content_5641633.htm)

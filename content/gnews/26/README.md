@@ -2,19 +2,30 @@
 ---
 
 
-## 狼子野心昭然若揭——习近平发表“祖国统一”讲话
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1585518/)
+## 抗议疫苗护照义务化 意大利爆发大规模示威活动
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585551/)
 
-撰稿：Ermat【㊙️翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2ba672847a5f44e4893ebdf91d88af65-1.jpeg)图片来源：sohu.com
-据中共国官网报道，习近平于10月9日发表“纪念辛亥革命110周年讲话”。在讲话中不仅威胁民主台湾，还对其他国家进行恫喝。
+作者：文小白
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+NHK消息, 为抗议从本月15日起新冠疫苗接种证明携带义务化的政令，意大利首都罗马爆发了大规模抗议活动 ，超过万人参加了游行示威活动 , 人们挤满了广场和街道，并高喊“自由！”口号，意大利政府出动了水车等对人游行人群进行驱离。
 
-习近平说，孙中山先生说过：“‘统一’是中国全体国民的希望。能够统一，全国人民便享福；不能统一，便要受害。”台湾问题因民族弱乱而产生，必将随着民族复兴而解决。这是中华民族历史演进大势所决定的，更是全体中华儿女的共同意志，正像孙中山先生所说：“世界潮流，浩浩荡荡，顺之则昌，逆之则亡”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-16.jpeg)
 
-习近平还威胁说，中华民族具有反对分裂、维护统一的光荣传统。“台独”分裂是祖国统一的最大障碍，是民族复兴的严重隐患。凡是数典忘祖、背叛祖国、分裂国家的人，从来没有好下场，必将遭到人民的唾弃和历史的审判！台湾问题纯属中国内政，不容任何外来干涉。任何人都不要低估中国人民捍卫国家主权和领土完整的坚强决心、坚定意志、强大能力！祖国完全统一的历史任务一定要实现，也一定能够实现！
+截至本月9日，意大利全境已经有80%的接种者完成了疫苗接种。因此意大利政府决定出台政令, 所有人都必须携带疫苗接种证明或检测结果阴性证明，违反者将被禁止出入公共场所,不能搭乘公共交通甚至被停职 或被处以罚款。
 
-现如今台湾在外：强敌虎视，各国冷眼旁观；在内：弱势总统，奸佞蜂起，“口炮 ”当道。习主席杀气腾腾的讲话——“世界潮流，浩浩荡荡，顺之则昌，逆之则亡。”预示着一场血雨腥风的到来，在病毒和疫苗之战已溃不成军的西方，将迎来又一次挑战。
+(本文仅代表作者观点)
 
-参考链接：
+参考链接：[イタリア 接種証明の携帯義務化 反対の人たちが大規模抗議デモ](https://www3.nhk.or.jp/news/html/20211010/k10013300611000.html)
 
-[习近平：在纪念辛亥革命110周年大会上的讲话](http://www.gov.cn/xinwen/2021-10/09/content_5641633.htm)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：文龍
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
