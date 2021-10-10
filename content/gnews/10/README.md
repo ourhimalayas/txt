@@ -2,65 +2,61 @@
 ---
 
 
-## 远离大城市的理由
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1584400/)
+## 《我是音雄》第二季第七期第六场初赛 节目预告
+` 我是音雄` [轉載自GNews](https://gnews.org/zh-hans/1584412/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ajo7l-u8jre.jpg)
-[https://gtv.org/video/id=616185ead2e2b81748732e67](https://gtv.org/video/id=616185ead2e2b81748732e67)
+灭共尖峰时刻，音雄再度归来！2021年度《我是音雄》震撼来袭！
 
-**郭文贵：
-Miles Guo：**
+由喜马拉雅农场联盟和G|Music倾心打造的新中国联邦“音乐灭共”节目《我是音雄》第二季第七期，将于美东时间2021年10月9日周六晚10点，即北京时间10月10日周日早10点，在GTV正式开播。
 
-在一线城市，没电了
-In the first-tier cities, if there is no electricity
+请订阅喜马拉雅农场联盟频道：
 
-你咋下楼？
-How will you go downstairs?
+GTV   [https://gtv.org/video/id=613ecf61751e4f2b0e518675](https://gtv.org/video/id=613ecf61751e4f2b0e518675)
 
-没电了楼梯咋办？
-What to do if the lifts are out of power?
+Youtube   [https://youtube.com/channel/UC\_E99PLRQHapCyjREgnFyrg](https://youtube.com/channel/UC_E99PLRQHapCyjREgnFyrg)
 
-没电就没水，没电没水
-No electricity means no water, no electricity and no water
+* * *
 
-你出去交通受管制
-Traffic is controlled when you go out
+**GMUSIC ****–**** ****我是音雄**** ****第二季第****七期**** ****初赛**** ****共有****8****位选手****：**
 
-而且集中抢劫
-And concentrated on looting
+**1****号选手：凤爪**** ****（澳大利亚喜农场）**
 
-警察管你
-The police control you
+在澳洲已经十多年，出国就觉得自己是逃出来的；在国内的时候就已经看过一些资料，知道中共的邪恶，所以当时就有一个念想，无论如何都要把家人带出来。现在世界已经进入最黑暗时刻，人类已经无路可退，只有奋起反击，尽自己所能做的，消灭中共这个恶魔。
 
-你连吃草的机会都没有
-You won’t even have a chance to eat grass
+**2****号选手：****Elon Mask ****（墨尔本雅典娜农场）**
 
-你从楼上跳下来吗？
-Will you jump down from upstairs?
+最喜欢的音乐人是香港Beyond乐队的黄家驹；另外从小喜爱足球，爱队是曼城。2017年开始接触爆料革命，感谢七哥和战友们为香港的付出，也会鼓励自己，和大家同行。
 
-你能步行在大马路上跑吗？
-Can you run on the main roads?
+**3****号选手：文清（美国纽约香草山农场）**
 
-所有城市的方便, 都成为你的不方便
-The conveniences of all cities will become your inconveniences
+2017年夏天通过朋友推荐，开始在YouTube关注郭先生。起初，觉得那些黑暗交易离自己的生活太遥远；但同年冬天红黄蓝事件爆出，惊觉包括我在内，所有同胞的不幸遭遇都跟共产党统治有关。现在，只想跟紧文贵先生和爆料革命，传播真相，早日灭共！
 
-所有城市里面能拥有的好东西， 都是对你的伤害
-All the good things you can have in the cities will hurt you
+**4****号选手：****Happy 2000 ****（澳大利亚喜农场）**
 
-那你呆在城市干什么？
-So what will you do in the cities?
+几年前一个偶然的机会看到七哥爆料海航，却从那一刻起，找到了这世界上唯一的坐标。我确定，七哥是带着乾坤之主赋予究极使命的：率领觉醒的灵魂，完成亘古未有的风暴，将人类历史上究极邪恶力量 ，轰散至灰飞烟灭。
 
-**——————————————————**
+**5****号选手：一朵自由行走的花**** ****（澳大利亚喜农场）**
 
-**原视频链接**: [https://twitter.com/se1y7cblljselva/status/1446500243864887297?s=24](https://twitter.com/se1y7cblljselva/status/1446500243864887297?s=24)
+2017年首次观看郭先生视频，此后经历从沉默、到坚定认可、再到深度参于农场工作。一路走来感恩郭先生、感恩爆料革命，感恩战友们给予我非常多的帮助和鼓励，让我卸下胆怯、拾回自信，自我升华突破局限。拥信仰之心、燃使命之魂。
 
-英听校 : 洛杉矶盘古农场 – Raul
-翻译 : 洛杉矶盘古农场 – Raul
-翻译终校 : 洛杉矶盘古农场 – Mike Li
-字幕+视频制作 : 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+**6****号选手：齐天二圣（秘密翻译组）**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+从 2017 年4 ·19 “断播门”开始和父母一起关注郭先生，成了紧随爆料革命的爆二代。现在全职在秘密翻译组参与字幕制作和GTV News 英文直播节目，我深信一份参与就是一份力量，希望在《我是音雄》上给大家的节目能带给战友们快乐！
+
+**7****号选手：**** ****文泓**** ****（墨尔本雅典娜农场）**
+
+K歌灭共战友先行，平时工作是参与GNews文字编辑和认证环节协助战友。从幕后工作到前台飙歌，受七哥灵魂歌曲激励感召，我期待用歌声展示新中国联邦人不一样的力量。谢谢！
+
+**8****号选手：****7**** R****ays****（英国伦敦喜庄园农场）**
+
+大家好，我是无双柳薇薇，今天同我先生搭档组合。我从小对唱歌和舞蹈就非常感兴趣，但没有参加过专业的训练。成年后的我是标准的麦霸，一个人在KTV连续唱五六个小时都不觉得累。来到国外后又让我对摇滚乐产生了浓厚的兴趣，希望有机会唱我们新中国联邦的摇滚乐歌曲。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-07-at-10.56.10-AM.png)
+
+G|Music创始人郭先生单曲打榜Billboard，向世界展示爆料革命、新中国联邦的实力，将“以歌灭共”推向高潮。音乐就是子弹，歌唱就有力量！《我是音雄》参赛战友将给大家带来什么样的感动呢？让我们拭目以待！
+
+《我是音雄》文宣组： May
+
+编辑/审核：暗黑
+
+校正/发稿：正义的小新

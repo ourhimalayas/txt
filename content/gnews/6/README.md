@@ -2,46 +2,39 @@
 ---
 
 
-## 瑞典、丹麦暂停为年轻群体接种莫德纳（Moderna）疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1584418/)
+## 川普前律师西德尼•鲍威尔起诉五角大楼强制执行疫苗接种
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1584435/)
 
-**据《路透社》作者：Johan Ahlander, Stine Jacobsen, Gwladys Fouche, Julie Steenhuysen, Michael Erman，2021年10月6日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl-3.jpg)2021年7月23日，在西班牙马德里的Enfermera Isabel Zendal医院，一名护士准备用注射器注射莫德纳（COVID-19）疫苗的剂量。图片来源：路透社/Juan Medina
-《路透社》斯德哥尔摩10月6日 —— 瑞典和丹麦周三表示，在收到可能出现罕见的心血管副作用的报告后，它们将暂停对年轻群体使用莫德纳公司（MRNA.O）的COVID-19疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/101001-1.jpg)西德尼·鲍威尔，图片：来自网络
+支持川普的律师西德尼·鲍威尔正在起诉国防部，试图阻止五角大楼执行其强制接种COVID-19疫苗的命令。鲍威尔位于德克萨斯州的团体“捍卫共和国”周三宣布，已代表16名现役军人对国防部长劳埃德·奥斯汀提起诉讼，以“支持他们拒绝”冠状病毒疫苗的权利。
 
-瑞典卫生机构称，它将暂停对1991年及以后出生的人使用这种疫苗，因为有数据表明，在接种过疫苗的青年和年轻成年人当中，心肌炎和心包炎的发病率有所上升。这些疾病涉及心脏或其内壁的炎症。
+该组织在其网站上表示：“通过提起诉讼，我们清楚地表明，这些服务人员（那些光荣地为国家服务的军人）不是美国政府的财产，宪法不允许他们受到这样的对待。”
 
-卫生机构说：“当涉及到莫德纳的疫苗Spikevax时，这种联系尤其明显，尤其是在接种第二针之后。”
+在美国食品和药物管理局(FDA)批准辉瑞(Pfizer)和BioNTech公司生产的疫苗后，五角大楼要求所有军人在8月底立即接种COVID-19疫苗。
 
-莫德纳的股票在下午的交易中下跌4.9%($16.08美元)，至$316.11美元。
+周一，五角大楼表示，其700,000名文职员工必须在11月22日之前完全接种疫苗。五角大楼没有设定所有服役人员必须接种疫苗的最后期限，而是允许每个部门自行决定。陆军要求服役人员在6月30日之前接种疫苗。
 
-莫德纳发言人在一封电子邮件中说，该公司知道丹麦和瑞典的监管机构决定暂停在年轻人中使用其疫苗，因为存在心肌炎和/或心包炎的罕见风险。
+8月30日，海军给现役水兵和海军陆战队员90天的时间接种疫苗，给预备役人员120天的时间。空军要求现役人员在11月2日之前完全接种疫苗，所有空军国民警卫队和预备役人员必须在12月2日之前接种疫苗。
 
-“这些通常是轻度病例，个人在接受标准治疗和休息后往往会在短时间内康复。感染中共病毒的人患心肌炎的风险大大增加，接种疫苗是预防这种情况的最佳方法。”
+根据五角大楼的数据，截至9月30日，已有超过380,000名服役人员接种了部分疫苗，130万人完全接种了疫苗。
 
-根据一项尚未经过同行审查的美国研究，20岁以下的年轻男性在感染中共病毒后患心肌炎的可能性是那些已经接种疫苗的人的六倍。
+在周三提交的诉状的更新版本中，原告认为，该命令强加了“违反宪法的条件，迫使原告在侵犯其宪法权利或面临改变人生的惩罚之间做出选择”。
 
-丹麦卫生局提到了一项尚未公布的北欧研究的数据，这些数据现在将被送到欧洲药品管理局（EMA）作进一步评估，并补充说，最终数据预计将在一个月内公布。
+该申诉还寻求法院裁决，称FDA批准辉瑞的疫苗是违宪的。除了奥斯汀之外，该诉讼还将卫生与公共服务部长Xavier Becerra和FDA代理局长珍妮特·伍德科克列为被告。
 
-瑞典和丹麦表示，他们现在推荐使用辉瑞生物技术公司（PFE.N）的Comirnaty疫苗。
+鲍威尔的诉讼并不是第一个挑战五角大楼疫苗命令的诉讼。上周，两名军人向科罗拉多州联邦法院提起诉讼，试图阻止该机构要求所有部队人员都要接种疫苗。
 
-EMA的安全委员会在7月得出结论，在接种Comirnaty或Spikevax疫苗后，会出现心脏炎症，更常见于年轻男性在第二针后。
+[原文链接](https://thehill.com/policy/defense/575968-ex-trump-lawyer-sidney-powell-sues-over-dod-vaccine-mandate?rl=1)
 
-加拿大卫生官员上周说，数据表明，与辉瑞/BioNTech公司的疫苗相比，莫德纳公司的疫苗接种后，罕见的心脏炎症的报告案例相对较多。
+***编辑：【英国伦敦喜庄园编辑部】***
 
-尽管两种疫苗都是基于mRNA技术，但辉瑞公司的疫苗是每剂含有30微克的疫苗，而Moderna的疫苗为每剂含有100微克。
+*翻译：希望| 校对：Julia Win*
 
-来自美国两个疫苗安全监测数据库之一的数据也表明，莫德纳疫苗在年轻人中可能有更高的心肌炎风险。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-在美国，该疫苗未被批准用于18岁以下人群。
 
-**文章来源:**[https://www.reuters.com/business/healthcare-pharmaceuticals/sweden-pauses-use-moderna-covid-vaccine-cites-rare-side-effects-2021-10-06/](https://www.reuters.com/business/healthcare-pharmaceuticals/sweden-pauses-use-moderna-covid-vaccine-cites-rare-side-effects-2021-10-06/)
+编辑：【英国伦敦喜庄园编辑部】
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – Freeearth
-编辑：洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

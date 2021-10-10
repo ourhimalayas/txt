@@ -2,62 +2,65 @@
 ---
 
 
-## 不会吧！第100代总理竟然是日本历史最短命内阁吗？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1584375/)
+## 远离大城市的理由
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1584400/)
 
-#### 撰稿：东京樱花团/华夏小哥
-![](https://assets.gnews.org/wp-content/uploads/2021/10/342-1.jpg)
-各位看到这个标题，可能认为这是标题党。实则不然。首先我们看日本总理的“代”是如何界定的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ajo7l-u8jre.jpg)
+[https://gtv.org/video/id=616185ead2e2b81748732e67](https://gtv.org/video/id=616185ead2e2b81748732e67)
 
-10月4号，新当选的自民党总裁岸田文雄在国会被选为日本第100代总理大臣。其任职详细日程如下：
+**郭文贵：
+Miles Guo：**
 
-- 下午1时40分，在众议院全体会议上被提名为第100任总理。
-- 下午5点44分抵达皇宫，启奏天皇，举行天皇亲自任命仪式，内阁认证仪式（这就算是一代内阁成立了）。
+在一线城市，没电了
+In the first-tier cities, if there is no electricity
 
+你咋下楼？
+How will you go downstairs?
 
-所以说一代内阁的成立是按众议院的推举和天皇的任命为标志的，同一个人可以被多次任命。
+没电了楼梯咋办？
+What to do if the lifts are out of power?
 
-比如安倍晋三是第90、96、97、98代总理大臣。也就是说被天皇任命了四次。自 1885 年（明治 18 年）任命第一任伊藤博文以来，首相人数已增至 第100 代、第64 位。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-31.jpg)
-目前为止最短的一届内阁是1945年的
+没电就没水，没电没水
+No electricity means no water, no electricity and no water
 
-东久迩宫稔彦王内阁（54天）
+你出去交通受管制
+Traffic is controlled when you go out
 
-\* 1945年（昭和20年）8月17日－同年10月9日
+而且集中抢劫
+And concentrated on looting
 
-现在的众议院议员是2017年10月22日当选的，任期于今年10月21日届满。
+警察管你
+The police control you
 
-公职选举法规定的选举日期如下。
+你连吃草的机会都没有
+You won’t even have a chance to eat grass
 
-● 因任期届满而进行的众议院选举（如未解散）
+你从楼上跳下来吗？
+Will you jump down from upstairs?
 
-・ 在议员任期结束前 30 天内举行选举。
+你能步行在大马路上跑吗？
+Can you run on the main roads?
 
-（《公职选举法》第三十一条第一款）
+所有城市的方便, 都成为你的不方便
+The conveniences of all cities will become your inconveniences
 
-● 众议院因解散而选举
+所有城市里面能拥有的好东西， 都是对你的伤害
+All the good things you can have in the cities will hurt you
 
-・因众议院解散而引起的众议院议员的换届选举将于解散之日起40天内举行。  （《公职选举法》第31条第3款）
+那你呆在城市干什么？
+So what will you do in the cities?
 
-岸田文雄已经宣布预定这个月14日解散议会，然后10月31日举行选举争取国民的信任。获胜的政党应该会在11月上旬马上召开临时国会，推举新首相组阁并且接受天皇的任命。届时诞生第101代总理大臣和内阁。这样算来第100代总理内阁也就30多天。顺理成章变成日本宪政史上最短内阁了。
+**——————————————————**
 
-按照目前日本的社会舆情，自民党取得众议院大多数席位应该没有悬念。到时候日本第64位第101代总理大臣岸田文雄内阁又会诞生。
+**原视频链接**: [https://twitter.com/se1y7cblljselva/status/1446500243864887297?s=24](https://twitter.com/se1y7cblljselva/status/1446500243864887297?s=24)
 
-因此，岸田文雄10年4日宣布的内阁成员名单并没有出现太多惊喜，基本属于打酱油内阁（笑）。除了防卫大臣，外交大臣连任之外，第一次入阁的议员竟然高达13人。也就是大家都知道这次任期非常短，上来混个脸熟也算是大臣经验者，以后就可以告老还乡了。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-20.jpg)
-所以说造成这次第100代内阁变成历史最短内阁的原因并非是谁的恶作剧或者有意而为，而是日本政治制度的一次阴差阳错。
+英听校 : 洛杉矶盘古农场 – Raul
+翻译 : 洛杉矶盘古农场 – Raul
+翻译终校 : 洛杉矶盘古农场 – Mike Li
+字幕+视频制作 : 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-笔者认为，11月份大选以后第101代内阁才是岸田文雄政治方向和政治生命的试金石，能否彻底防控中共疫情，打开长达30年的通缩经济困局，是否敢与直接对抗中共以增强日本的安全防卫，全在一个月之后的再次组阁。
-
-参考资料：
-1.[データとランキングで見る首相100代64人](https://www.nikkei.com/article/DGXZQOCA2986K0Z20C21A9000000/)
-2.[新首相動静（１０月４日）](https://www.jiji.com/amp/article?k=2021100400614&amp;g=pol)
-3.[衆院選は、いつ？ （2021年衆議院議員選挙の日程について）](https://www.honda-akiko.jp/blog/news/10877.html)
-4.[第48回衆議院議員総選挙](https://ja.m.wikipedia.org/wiki/%E7%AC%AC48%E5%9B%9E%E8%A1%86%E8%AD%B0%E9%99%A2%E8%AD%B0%E5%93%A1%E7%B7%8F%E9%81%B8%E6%8C%99)
-5.[東久邇宮内閣](https://ja.m.wikipedia.org/wiki/%E6%9D%B1%E4%B9%85%E9%82%87%E5%AE%AE%E5%86%85%E9%96%A3)
-
-(文章仅代表作者本人观点，与GNEWS无关)
-
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
