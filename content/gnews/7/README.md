@@ -2,10 +2,11 @@
 ---
 
 
-## 纽约时报评：美国与中共国可能因台湾问题进入危险地带
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1584485/)
+## 加拿大艾伯塔省的医生使用伊维菌素治愈中共病毒患者，却引发 AHS 警告
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1584617/)
 
-作者：文一
+栏目记者：禹水沃土
+责任编辑：晓仙女
 
 
 
@@ -13,30 +14,32 @@
 
 
 
-纽约时报在星期六（10月9日）刊登的一篇报道指出，由于近年来美中两国关系急剧恶化，双方战略竞争日趋激烈，而台湾又夹杂在美中对抗的中心和第一线，因此很多美国两岸问题专家和处理过两岸事务的前政府官员，对两岸大战、甚至美中因台湾而爆发大战忧心忡忡。
 
-习近平星期六（10月9日）在北京人民大会堂举行的“纪念辛亥革命110周年大会”上声称，会达成中共所谓的“统一中国”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-5.jpg)
-前白宫国安会主管亚洲事务资深主任麦艾文对此表示，“台湾问题已经不再是一个狭窄的小问题，而是变成美中战略竞争的中心舞台。”
 
-美国长期以来针对是否协防台湾的问题保持一种“战略模糊”的态度。根据美国空军杂志的报道，随着中共国对台湾军事压力的增大，很多人都开始呼吁拜登政府改变“战略模糊”政策，明确宣示协防台湾。
-
-郭文贵先生今天发盖文明确警告说：“台湾危险了：习近平发表辛亥革命110周年演讲发出强烈信号，坚决要完成武统台湾”。
+10 月 8 日 CBC 新闻报道，一位加拿大阿尔伯塔省农村医院接诊的医生，用伊维菌素治愈了三名中共病毒患者，却引发了省卫生当局，关于这种药物的所谓“危险性警告”。温哥华的 Daniel Nagase 博士表示：他9 月份给阿尔塔省 Rimbey 医院的患者服用了伊维菌素，让患者在一周内出医院，并且其中两名患者在 18 小时内“几乎完全好转”。可省级卫生官员却拒绝向全省提供挽救生命的药物，反而扣留了整个省的救命药。CBC这篇报道证明：尽管邪恶利益集团一再阻挠人们使用安全廉价的有效药物，但越来越多的治愈案例，已令左媒即使再不情愿，也不得不开始正视。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-33.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-6.jpg)
+参考链接：
+[Doctor who says he gave ivermectin to rural Alberta COVID-19 patients prompts warning from health authority](https://www.cbc.ca/news/canada/edmonton/ivermectin-covid-alberta-nagase-1.6205075)
 
 （本文仅代表作者观点）
 
-参考链接：[纽约时报评：美国与中共国可能因台湾问题进入危险地带](https://www.breitbart.com/national-security/2021/10/08/microsoft-58-percent-cyberattacks-past-year-came-russia/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-08-at-10.11.51-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
 新闻访谈终审：Ryan
-编辑/校对/审核：Hetangyuese
+编辑/校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-15.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

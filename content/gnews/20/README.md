@@ -2,46 +2,35 @@
 ---
 
 
-## 瑞典、丹麦暂停为年轻群体接种莫德纳（Moderna）疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1584418/)
+## 八名俄外交官因从事间谍活动遭北约驱逐
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1584484/)
 
-**据《路透社》作者：Johan Ahlander, Stine Jacobsen, Gwladys Fouche, Julie Steenhuysen, Michael Erman，2021年10月6日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl-3.jpg)2021年7月23日，在西班牙马德里的Enfermera Isabel Zendal医院，一名护士准备用注射器注射莫德纳（COVID-19）疫苗的剂量。图片来源：路透社/Juan Medina
-《路透社》斯德哥尔摩10月6日 —— 瑞典和丹麦周三表示，在收到可能出现罕见的心血管副作用的报告后，它们将暂停对年轻群体使用莫德纳公司（MRNA.O）的COVID-19疫苗。
+作者：文真
 
-瑞典卫生机构称，它将暂停对1991年及以后出生的人使用这种疫苗，因为有数据表明，在接种过疫苗的青年和年轻成年人当中，心肌炎和心包炎的发病率有所上升。这些疾病涉及心脏或其内壁的炎症。
 
-卫生机构说：“当涉及到莫德纳的疫苗Spikevax时，这种联系尤其明显，尤其是在接种第二针之后。”
 
-莫德纳的股票在下午的交易中下跌4.9%($16.08美元)，至$316.11美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-15.png)
 
-莫德纳发言人在一封电子邮件中说，该公司知道丹麦和瑞典的监管机构决定暂停在年轻人中使用其疫苗，因为存在心肌炎和/或心包炎的罕见风险。
 
-“这些通常是轻度病例，个人在接受标准治疗和休息后往往会在短时间内康复。感染中共病毒的人患心肌炎的风险大大增加，接种疫苗是预防这种情况的最佳方法。”
 
-根据一项尚未经过同行审查的美国研究，20岁以下的年轻男性在感染中共病毒后患心肌炎的可能性是那些已经接种疫苗的人的六倍。
+10月7日，北约30个成员国做出一致决定，驱逐八名俄罗斯代表团成员，并将俄代表团最大人数减至10人。这一决定是在对2014年捷克爆炸案进行调查后作出的。据称，这八名成员是未申报的俄罗斯情报人员。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-10.jpg)
+为了更清楚地了解俄罗斯威胁的程度，北约要求所有盟国提供关于俄罗斯情报机构近年来在其各自国家的可疑秘密活动和行动的信息。北约秘书长斯托滕贝格称，根据情报，俄罗斯在欧洲的恶意活动有所增加，因此必须采取行动。北约认为，必须加强其威慑和防御，以应对俄罗斯的侵略行为。北约和俄罗斯之间的关系正处于冷战结束以来的最低点。
 
-丹麦卫生局提到了一项尚未公布的北欧研究的数据，这些数据现在将被送到欧洲药品管理局（EMA）作进一步评估，并补充说，最终数据预计将在一个月内公布。
+（本文仅代表作者观点）
 
-瑞典和丹麦表示，他们现在推荐使用辉瑞生物技术公司（PFE.N）的Comirnaty疫苗。
+参考链接：[八名俄外交官因从事间谍活动遭北约驱逐](https://www.breitbart.com/national-security/2021/10/07/nato-expels-half-of-russias-mission-accusing-them-of-espionage/)
 
-EMA的安全委员会在7月得出结论，在接种Comirnaty或Spikevax疫苗后，会出现心脏炎症，更常见于年轻男性在第二针后。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
-加拿大卫生官员上周说，数据表明，与辉瑞/BioNTech公司的疫苗相比，莫德纳公司的疫苗接种后，罕见的心脏炎症的报告案例相对较多。
+新闻访谈终审：鬼五
+编辑/校对/审核：Hetangyuese
 
-尽管两种疫苗都是基于mRNA技术，但辉瑞公司的疫苗是每剂含有30微克的疫苗，而Moderna的疫苗为每剂含有100微克。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-来自美国两个疫苗安全监测数据库之一的数据也表明，莫德纳疫苗在年轻人中可能有更高的心肌炎风险。
-
-在美国，该疫苗未被批准用于18岁以下人群。
-
-**文章来源:**[https://www.reuters.com/business/healthcare-pharmaceuticals/sweden-pauses-use-moderna-covid-vaccine-cites-rare-side-effects-2021-10-06/](https://www.reuters.com/business/healthcare-pharmaceuticals/sweden-pauses-use-moderna-covid-vaccine-cites-rare-side-effects-2021-10-06/)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – Freeearth
-编辑：洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-15.png)

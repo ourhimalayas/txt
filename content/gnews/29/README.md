@@ -2,62 +2,44 @@
 ---
 
 
-## 强大的 &#8211; 我将继续为我的医疗自由而战
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1584362/)
+## 瑞典、丹麦暂停为年轻群体接种莫德纳（Moderna）疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1584418/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/a0z1j-mxxio.jpg)
-[https://gtv.org/video/id=61618560d2e2b81748732e45](https://gtv.org/video/id=61618560d2e2b81748732e45)
+**据《路透社》作者：Johan Ahlander, Stine Jacobsen, Gwladys Fouche, Julie Steenhuysen, Michael Erman，2021年10月6日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl-3.jpg)2021年7月23日，在西班牙马德里的Enfermera Isabel Zendal医院，一名护士准备用注射器注射莫德纳（COVID-19）疫苗的剂量。图片来源：路透社/Juan Medina
+《路透社》斯德哥尔摩10月6日 —— 瑞典和丹麦周三表示，在收到可能出现罕见的心血管副作用的报告后，它们将暂停对年轻群体使用莫德纳公司（MRNA.O）的COVID-19疫苗。
 
-Spent 4 years in undergraduate school studying health sciences
-在本科学校学习了四年的健康科学
+瑞典卫生机构称，它将暂停对1991年及以后出生的人使用这种疫苗，因为有数据表明，在接种过疫苗的青年和年轻成年人当中，心肌炎和心包炎的发病率有所上升。这些疾病涉及心脏或其内壁的炎症。
 
-Went to graduate school and endured a rigorous 2 year accelerated masters of science in nursing program
-进入研究生院并接受了严格的两年护理学硕士加速课程
+卫生机构说：“当涉及到莫德纳的疫苗Spikevax时，这种联系尤其明显，尤其是在接种第二针之后。”
 
-Became an ICU nurse and treated COVID + patients for 19 months
-成为ICU护士并治疗了19个月的COVID患者
+莫德纳的股票在下午的交易中下跌4.9%($16.08美元)，至$316.11美元。
 
-In 2020, we reused N95 masks and gowns.
-在2020年，我们重复使用了N95口罩和防护服
+莫德纳发言人在一封电子邮件中说，该公司知道丹麦和瑞典的监管机构决定暂停在年轻人中使用其疫苗，因为存在心肌炎和/或心包炎的罕见风险。
 
-During that time I cared for your grandmother, sister, brother, son, and mother.
-在那段时间里，我照顾你的祖母、姐妹、兄弟、儿子和母亲
+“这些通常是轻度病例，个人在接受标准治疗和休息后往往会在短时间内康复。感染中共病毒的人患心肌炎的风险大大增加，接种疫苗是预防这种情况的最佳方法。”
 
-I’ve sacrificed holidays, weekends, time, sleep and events with my family to be there for yours.
-我牺牲了假期、周末、时间、睡眠和与家人一起的时间来照顾你的家人
+根据一项尚未经过同行审查的美国研究，20岁以下的年轻男性在感染中共病毒后患心肌炎的可能性是那些已经接种疫苗的人的六倍。
 
-As of Oct 1, 2021 I was suspended.
-截至 2021 年 10 月 1 日，我被停职了
+丹麦卫生局提到了一项尚未公布的北欧研究的数据，这些数据现在将被送到欧洲药品管理局（EMA）作进一步评估，并补充说，最终数据预计将在一个月内公布。
 
-On Nov 1, 2021 I will be terminated because I chose not to get the shot.
-2021 年 11 月 1 日，我将被解雇，因为我选择不接种疫苗
+瑞典和丹麦表示，他们现在推荐使用辉瑞生物技术公司（PFE.N）的Comirnaty疫苗。
 
-Despite all of this, my faith will endure.
-尽管如此，我的信仰仍将持续下去
+EMA的安全委员会在7月得出结论，在接种Comirnaty或Spikevax疫苗后，会出现心脏炎症，更常见于年轻男性在第二针后。
 
-And I will continue to fight for my medical freedom.
-我将继续为我的医疗自由而战
+加拿大卫生官员上周说，数据表明，与辉瑞/BioNTech公司的疫苗相比，莫德纳公司的疫苗接种后，罕见的心脏炎症的报告案例相对较多。
 
-Please know I WILL be back doing what I love most!
-请知道我会回来做我最喜欢的事情！
+尽管两种疫苗都是基于mRNA技术，但辉瑞公司的疫苗是每剂含有30微克的疫苗，而Moderna的疫苗为每剂含有100微克。
 
-**Singing：**
+来自美国两个疫苗安全监测数据库之一的数据也表明，莫德纳疫苗在年轻人中可能有更高的心肌炎风险。
 
-I could be brown I could be blue I could be violet sky
-我可以是棕色的, 我可以是蓝色的, 我可以是紫罗兰色的天空
+在美国，该疫苗未被批准用于18岁以下人群。
 
-I could be hurtful I could be purple I could be anything you like.
-我可以是伤感的，我可以是紫色的，我可以是任何你喜欢的
+**文章来源:**[https://www.reuters.com/business/healthcare-pharmaceuticals/sweden-pauses-use-moderna-covid-vaccine-cites-rare-side-effects-2021-10-06/](https://www.reuters.com/business/healthcare-pharmaceuticals/sweden-pauses-use-moderna-covid-vaccine-cites-rare-side-effects-2021-10-06/)
 
-…………….
-
-**原视频链接:** [https://twitter.com/anoncitizenuk/status/1445911691506688000?s=24](https://twitter.com/anoncitizenuk/status/1445911691506688000?s=24)
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – Freeearth
+编辑：洛杉矶盘古农场 – 明子
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

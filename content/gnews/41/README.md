@@ -2,30 +2,42 @@
 ---
 
 
-## 北约秘书长表示, 欧洲要联合美国应对中共挑战!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1583840/)
+## 盖特CEO：“非死不可”正面临“末日的开始”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1583952/)
 
-作者：云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月8日, 北约秘书长斯托腾伯格与西班牙总理桑切斯会面, 讨论2022年在西班牙主办北约峰会事宜, 在会面后的记者会上, 斯托腾伯格称 ：”当前国际竞争日益激烈，中共展示其经济及军事力量, 是在恐吓和要挟各国。欧洲、美国必须共同应对这一挑战!”
+- 编译：Lulumi
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-15.jpeg)
 
-今年6月，北约布鲁塞尔峰会后的公报中，就曾指出中共的胁迫性政策, 以及近年持续增扩的核武库，都对北约安全构成系统性的挑战。斯托尔滕贝格在6月也示警，俄罗斯与中共结盟, 不仅在联合国互相配合，还交流武器系统及共享网络监控资源,都对多边主义国际秩序造成威胁，使得北约越来越重视应对来自中共的挑战 和企图统治世界的野心。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-19.png)美国《时代周刊》的插图（来源图片：Getty Images）
 
-(本文仅代表作者观点)
+GETTR首席执行官杰森·米勒周五在 “与玛丽亚的早晨”节目中对《时代周刊》最新聚焦于Facebook清算的封面做出反应，称Facebook正面临 “末日的开始”。
 
-参考链接：[北約秘書長：中國展示經濟和軍事力量恫嚇他國](https://www.cna.com.tw/news/aopl/202110080404.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+杰森·米勒：我认为这与哥特人洗劫罗马非常相似，我认为这是Facebook的末日的开始。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+真的，本周有两条重要的线索，一是有极左派，如举报人，开始对付大科技公司……另外，玛丽亚，我想大多数人没有意识到大科技公司在控制你的数据整合：Facebook拥有Instagram，拥有WhatsApp，当然还有Facebook Messenger。
 
-新闻访谈终审：文龍
-编辑/校正/发稿：谐趣园
+随着本周的系统瘫痪，人们开始意识到，“等一下，一个简单的服务器升级或全系统升级就导致了这一切，瘫痪了，纳斯达克指数下跌2%？一家公司的一个人影响力就这么大，这真的很令人担忧。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**完整采访请观看下面链接：**[video.foxbusiness.com](https://video.foxbusiness.com/v/6276158904001#sp=show-clips)
+
+**评论：**
+
+**如果两年前有人说****Google****，****Facebook****，****Twitter****等美国****科技巨头会打压言论自由，破坏民主制度，掩盖真相助纣为虐，我会说：“怎么可能，那是中共国，美国公司有底限的不至于。”**
+
+**即便那时已经经历了****419****断播，脑子还是没转过弯。如果不是香港反送中，美国大选舞弊，中共病毒追责，疫苗灾难等一系列颠覆认知的事件，绝大多数美国人甚至爆料革命战友，都不会相信这些美国科技巨头是跟中共及黑暗势力狼狈为奸的打手。**
+
+**最重要的是四年来，如果文贵先生不是一层一层，由浅入深地揭露世界的黑暗，而是一下子把所有真实信息都推到普通人面前，反而让人觉得难以置信。所以我现在突然理解了为什么文贵先生会在****2017****年的记者会上烧掉那三份绝密文件。对于真相的接受需要一个长期缓慢的消化理解的过程，所以在跟家人朋友传播爆料革命，疫苗真相的时候，一定要克制住求急，求快，追求立竿见影的心态，我们只要心平气和的传播真相，至于别人能不能听进去，不是我们的目标。**
+
+**看完上面的新闻，脑子里突然冒出习一尊的名言：“东升西降”，不对，是“盖升脸降”，“盖升推降”，“盖升油降”，最终“盖飞脸破”，“盖飞推倒”，“盖飞油灭”，新中国联邦或成为最大的赢家😄😄😄。**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**新闻来源：**[福克斯财经网](https://www.foxbusiness.com/media/facebook-facing-beginning-of-the-end-jason-miller)(FOX Business) | 作者：福克斯财经人员|发布时间：2021年10月8日
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
