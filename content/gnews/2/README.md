@@ -2,37 +2,27 @@
 ---
 
 
-## DC每日热点1010
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1585440/)
+## 蔡英文国庆演说：“维持现状就是我们的主张”
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1585565/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/10/9057E08D-5B21-432C-8753-F6C56FF406A8-scaled.jpeg)
-道琼斯指数 34746.25 ▼0.03%
-纳斯达克指数 14579.54 ▼0.51%
-WTI纽约原油CFD 79.642 ▲1.71%
-布伦特原油CFD 82.518 ▲0.16%
-标普中概股50指数 3,621.86CNY▼17.66%
-美元兑人民币 1USD=6.442RMB
-美元兑港币 1USD=7.784HKD
-国际黄金 1757.13美元/盎司
-全球CCP病毒感染人数 238,462,531 例
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-1、中共加紧控制公众话语权 全面禁止非公有资本开展新闻传媒业务
-2、奥地利总理因涉嫌腐败被调查辞职
-3、美国上诉法庭暂时恢复德州堕胎禁令
-4、捷克共和国反对党在议会选举中获胜，有望组成新的联合政府
-5、美国会晤塔利班，讨论反恐及人员撤离议题
-6、伊拉克议会大选登场 维安滴水不漏 投票率恐创新低
-7、CDC宣布：接种疫苗的国际旅客11月起可入境美国
-8、俄记者获诺贝尔和平奖 俄政府祝贺打压两不误
-9、印媒：中印第13轮军长级会谈将于周日举行
-10、中共国海关数据显示，中共国和朝鲜之间的海上运输似乎已经重新开放
-11、871名消防员起诉洛杉矶疫苗令
-12、在微信、QQ等APP被爆反复读取用户相册后，中共美团APP再被爆出连续24小时定位用户
-13、捷克和摩拉维亚共产党未达5%的门栏得票率无缘议会众议院席位，是自第二次世界大战结束以来捷克选民首次成功将共产党赶出议会
-14、冰岛停止使用莫德纳疫苗称或引发心脏炎症
-15、澳洲当季棉花售罄 没有中共国市场生意仍火
-16、山西60座煤矿停产 炼焦煤恐进入非常紧缺期
-17、芯片荒下 理想汽车被曝从黑市高价购芯片
-19、全球护照最新排名出炉 日本稳居第一
-20、中共国务院出手干预电价 增浮动范围至20％
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-9.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：2021.10.10早GTV新闻访谈
+
+[https://gtv.org/broadcast/watch/6162dc4e304e992109b2bbdd](https://gtv.org/broadcast/watch/6162dc4e304e992109b2bbdd)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

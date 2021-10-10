@@ -2,36 +2,29 @@
 ---
 
 
-## 总加速师护航：App停用不影响邮储银行坐吞火币退款
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585066/)
+## 疫苗灾情｜德国 28 岁女演员接种疫苗后几乎毁容
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1585176/)
 
-作者：安吉拉
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-大陆债务违约遍地暴雷，中共六大银行集体粉饰利润上行，邮储银行年中报净利润同比增长22.48%，为行业水平两倍。新浪搜狐“马甲”官宣一致推崇，力赞邮储极高成长性，资产质量保持行业领先。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.10AM-PICTURES-235789.001.jpeg)
-作为国家机器之一，中国邮政具有不被民营取代的优势，更垄断特殊机密渠道，享受国家补贴。昨日官网发布公告，称因业务调整，有步骤于年内停止邮储生活App全部服务。从应用上架到服务停止，邮储银行的App早已习惯了被用户吐槽，但这并不影响习近平家族护航下的资产转移大计划。
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 10/10/2021**
 
-中国邮政储蓄银行成立较晚，于2007年3月20日正式挂牌，一跃成为中国第五大银行，网点遍布全国各地包括偏远山区。承载国际结算业务包括进出口贸易、外商投资和本外币资金流。国际战略投资者涉猎甚广，从2015年起就包括：瑞士银行、摩根大通、星展银行、加拿大养老基金、淡马锡和国际金融公司，同时包括中国人寿、中国电信两家大型国企，以及蚂蚁金服和腾讯两家互联网公司。
+***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
 
-根据郭文贵先生爆料，邮储银行的上市是全球最大的蓝金黄案件，未来邮储银行一定会倒闭。火币平台老板和财务等相关人员早已被中共牢牢控制，准备接受火币退款的三家银行中就有邮储银行。邮储银行应用App下架，将对有火币退款项目发生的用户直接造成技术壁垒。
-(本文仅代表作者观点)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/212_1.jpg)
 
-参考链接：
+【德国】法兰克福一名 28 岁的知名女演员兼模特 Felicia Binger 在接种辉瑞 COVID-19 疫苗后面部患上严重皮疹。模特兼演员的 Felicia 于 5 月 4 日接受了第一针疫苗，翌日，她就感到全身麻木了，还有烧灼感，尤其是她的皮肤，充满了灼热的皮疹，面部尤甚，几乎无法触碰，现在，5个月过去了，她严重的皮肤问题依然未有好转。
 
-1. [邮储银行，为什么跑出了净利润“双倍速“？](https://finance.sina.cn/jinrong/2021-09-03/detail-iktzqtyt3911091.d.html?oid=408ab&amp;vt=4&amp;cid=76653&amp;node_id=76653)
-2. [中国邮储银行：因业务调整，将停止邮储生活APP全部服务|APP|邮储相关服务](https://finance.sina.com.cn/tech/2021-10-09/doc-iktzqtyu0430896.shtml)
-3. [中国邮储银行战略引资451亿元对定价满意 IPO规模将视市场情况](https://www.reuters.com/article/cn-postal-bank-idCNKBS0TS0OC20151209)
-4. [9/29/2021 郭先生直播：火币退钱的三大指定银行是上海银行、中国银行和邮储银行](https://gnews.org/zh-hans/1564718/)
+Felicia 在 Instagram 上写了一篇冗长的文章，表达了自己的气愤，对于一名演艺工作者，脸是一切，现在变成这样，她认为应该有人要负责。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-22.png)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+她指出，“我无法触摸我的皮肤，它好像燃烧一样，变成红色，没有人对我的疫苗副作用负责。事实上，我现在每天服用药物来抑制这种皮肤病的症状，我很担心将来会出现更严重的副作用。”
 
-编辑/校正/发稿：我不在这里
+她续指，在过去的 5 个月，她已经看过至少 15 位医生，医生们都对她说，“这是一种新疫苗，我对此一无所知。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+Felicia 在贴文中提出质疑，“**为什么只字不提疫苗的损害？为什么没有人关心我们这些‘个案’ ？人们总是说副作用很少，但它确实在发生，为什么还继续强迫人们接种疫苗？**”
+
+来源｜[个案023](https://www.instagram.com/p/CUAW4bxonzj/)
+
+* * *
+
+他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//

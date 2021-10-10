@@ -2,111 +2,19 @@
 ---
 
 
-## 再谈谈疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1585362/)
+## 狼子野心昭然若揭——习近平发表“祖国统一”讲话
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1585518/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2478.png)
-[https://gtv.org/video/id=6162e01dd2e2b81748739bca](https://gtv.org/video/id=6162e01dd2e2b81748739bca)
+撰稿：Ermat【㊙️翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2ba672847a5f44e4893ebdf91d88af65-1.jpeg)图片来源：sohu.com
+据中共国官网报道，习近平于10月9日发表“纪念辛亥革命110周年讲话”。在讲话中不仅威胁民主台湾，还对其他国家进行恫喝。
 
-郭文贵
-Miles Guo
+习近平说，孙中山先生说过：“‘统一’是中国全体国民的希望。能够统一，全国人民便享福；不能统一，便要受害。”台湾问题因民族弱乱而产生，必将随着民族复兴而解决。这是中华民族历史演进大势所决定的，更是全体中华儿女的共同意志，正像孙中山先生所说：“世界潮流，浩浩荡荡，顺之则昌，逆之则亡”。
 
-大家记住啊，它的疫苗的成本是多少呢
-Remember, what is the cost of its vaccine?
+习近平还威胁说，中华民族具有反对分裂、维护统一的光荣传统。“台独”分裂是祖国统一的最大障碍，是民族复兴的严重隐患。凡是数典忘祖、背叛祖国、分裂国家的人，从来没有好下场，必将遭到人民的唾弃和历史的审判！台湾问题纯属中国内政，不容任何外来干涉。任何人都不要低估中国人民捍卫国家主权和领土完整的坚强决心、坚定意志、强大能力！祖国完全统一的历史任务一定要实现，也一定能够实现！
 
-大概在6美分到8美分，卖的价格是19美金到35美金和40美金不等
-It is about 6 cents to 8 cents, and the retail price ranges from 19 dollars to 35 dollars and 40 dollars
+现如今台湾在外：强敌虎视，各国冷眼旁观；在内：弱势总统，奸佞蜂起，“口炮 ”当道。习主席杀气腾腾的讲话——“世界潮流，浩浩荡荡，顺之则昌，逆之则亡。”预示着一场血雨腥风的到来，在病毒和疫苗之战已溃不成军的西方，将迎来又一次挑战。
 
-不同的时期不同的地方，你想想它有多大的暴利
-in different places and different periods, think about how profitable it is
+参考链接：
 
-那么药厂既然在人类遇到最大危难的时候发展出来疫苗拯救人类，是吧，
-Well, since pharmaceutical companies have developed vaccines to save mankind when mankind is in the greatest danger, right?
-
-你不应该再花钱去游说别人去救别人
-You should no longer spend money to persuade others and to save others
-
-这个天下哪有说，我现在能救你在危难之中，
-Nothing in this world like this, I can save you now while you are in danger
-
-我得给你钱，让我救你
-I have to give you money and let me save you
-
-有人掉到水里了，都快死了，说要拉你上来
-like someone fell into the water and was dying, and someone saying that he would pull you up
-
-但是我再给你准备上100万，这到底是啥事，是你把我推下去的
-but I will prepare another 1 million for you, what the hell is this? did you push me down?
-
-还是你把我拉上来以后，还有什么事啊？
-or is there anything else after you pull me up?
-
-我就搞不懂了，为啥疫苗公司，
-I just don’t understand why is the vaccine company
-
-全人类不知道病毒哪来的，
-The whole mankind doesn’t even know where the virus comes from?
-
-你就生产出疫苗，生产出来疫苗让别人打
-Vaccine company just produce that vaccine right away and provide to people
-
-而且你要拿钱游说，给别人钱打你的疫苗
-and you have to lobby and give others money to let people get vaccinated
-
-然后让政府强制打，你不情愿打
-Then the government mandate the vaccine, people are not willing to do so
-
-但是打的时候还得让你自己承担责任
-also people have to take responsibility when they take the vaccine
-
-它药厂不承担责任，这叫啥疫苗啊？这符合逻辑吗？
-The pharmaceutical company does not take any responsibility. What kind of this vaccine is? Is this logical?
-
-最重要的事情，所有的西方天主教，基督教徒
-The most important thing that all Western Catholics, Christians
-
-一个根本原则，人命天受
-have a fundamental principle that life is granted by God
-
-老天爷给我的命不属于政府，谁也不是
-the life that God give to me does not belong to the government, nor is anyone
-
-连父母也没有权利剥夺，
-even parents have no right to deprive us
-
-是我们每个人都有追求幸福安全，言论自由的美好生活的权利
-each of us has the right to pursue a happy and safe life with freedom of speech
-
-这基本人权吧，是吧
-This is a basic human rights, right?
-
-自我表达，追求幸福各种方式的权利
-Self-expression, the right to pursue the happiness in various ways
-
-那这个药我不打总行嘛，你就剥夺我的工作
-I don’t want to take this vaccine, then you will deprive my job
-
-你就不让我 坐飞机，你就不让我坐车
-You don’t allow me take plane, or take bus
-
-那到底你是救我呢？还是害我呢？
-Are you saving me or hurting me?
-
-————————————————————
-
-Date:10/09/2021
-原视频标题:再谈谈疫苗
-Talk about vaccines again
-原视频日期：2021/10/07
-原视频链接:[https://twitter.com/se1y7cblljselva/status/1446411550441439233?s=24](https://twitter.com/se1y7cblljselva/status/1446411550441439233?s=24)
-任务编号：2478
-视频时间段 : 0:00-2:17
-英听校：洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[习近平：在纪念辛亥革命110周年大会上的讲话](http://www.gov.cn/xinwen/2021-10/09/content_5641633.htm)

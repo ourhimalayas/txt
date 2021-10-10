@@ -2,28 +2,108 @@
 ---
 
 
-## 坚持个人疫苗接种选择，洛杉矶消防员将起诉政府
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585328/)
+## 七哥一心牵挂战友，共准备6000万个喜币，留给墙内被喝茶及核心战友
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1585451/)
 
-作者：文龍
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月10号文贵先生在其盖特转发了一则短视频，是来自美国洛杉矶当地媒体的报，视频中当地消防员安德烈称。他和其他871名消防员联名，通过律师提交了起诉洛杉矶市政府的告知文件，原因是政府警告消防员必须在10月20日之前全部接种疫苗，否则将被解雇或停薪留职。消防员坚持自己的选择，并将向法庭提出要求每人200万美元的赔偿，因为自己的选择将导致失业!消防员们称。此举不仅是因为疫苗，而是关系到人权和法律程序。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/p89.002.jpeg)
-文贵先生在他的盖特中对此事件评论道:
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2476.png)
+[https://gtv.org/video/id=6162e0a2d2e2b81748739be5](https://gtv.org/video/id=6162e0a2d2e2b81748739be5)
 
-“洛杉矶发生的这种将面临没有消防员的情况，会在全球的电力、医院、警察等所有公共领域发生。全球的政府将面对无法计算的诉讼，以及社会公共灾难等巨大的社会问题，这是中共病毒和疫苗带来的灾难，是对人类社会秩序的摧毁性打击。这一结果完全在邪恶势力、和中共的计划之中。只有新中国联邦在2020年一月份就开始警告世界，疫苗才是灾难的真正核心。但愿世界早日醒来，我们新中国联邦人将为此奋斗到底 ” 。
-(本文仅代表作者观点)
+**郭文贵：
+Miles Guo：**
 
-参考链接：[郭文贵先生 10月10号的盖特](https://gettr.com/post/pdp5du787c)
+七哥一心牵挂战友，共准备6000万个喜币，留给墙内被喝茶及核心战友
+Miles sets aside a total of 60 million H coins for core domestic comrades
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+还有我们大连的被关了将近一年多的战友啊
+And our comrades in Dalian who have been detained for more than a year
 
-编辑/校正/发稿：我不在这里
+是吧
+Right？
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+很辛苦
+Suffered a lot
+
+这是为啥我们现在有2000万喜币是通过基金买的
+This is why we now have 20 million H Coins bought through the fund
+
+都是给人钱，你不给人钱，人家喜币不给你呀
+(We) all give money to the Himalaya Exchange, if you don’t give them money, they don’t give you H Coins
+
+这2000万喜币
+This 20 million H coins
+
+就是留给国内的那些战友们的
+is reserved for those domestic comrades
+
+这2000万喜币
+This 20 million H coins
+
+也就给国内的
+are also given to the domestic,
+
+现在已经登记在册的,被喝茶，被侵害的，被伤害，被恐吓的(战友)
+now registered comrades who have been drunk tea, violated, injured and intimidated.
+
+我们已经登记大概在60多万人吧
+We have registered more than 600,000 people
+
+60多万人
+600,000 people
+
+这2000万币目前是给这60万人之一
+The 20 million H coins are currently given to these 600,000 people
+
+这些全包含
+These are all inclusive
+
+还有比这更多的，还没有被登记的肯定有
+There are more than this, there must be some who have not been registered yet
+
+另外的一个， 我们还有一个2000万的喜币
+The other one, we also have another a 20 million H Coins
+
+是专门给直接跟七哥联系的特殊贡献者
+for special contributors who directly contact me
+
+不在这2000万里边
+Not in this 20 million,
+
+这是不含的
+This is not included,
+
+所以说这个大概一共是6000万个喜币
+So this is probably a total of 60 million H coins
+
+已经被基金买下来
+that have been bought by the fund.
+
+完全是跟G系列没有关系的
+It has nothing to do with the G series.
+
+这个是家族基金买的
+This is bought by the family fund
+
+然后，未来是给战友的
+then, they will be given to comrades in the future
+
+大家要记住啊
+Everyone should remember that
+
+—————————————————————————
+
+Date: 10/08/2021
+原视频标题: 七哥一心牵挂战友，共准备6000万个喜币，留给墙内被喝茶及核心战友
+Miles sets aside a total of 60 million H coins for core domestic comrades
+原视频日期：2021/10/08
+原视频链接 [https://twitter.com/se1y7cblljselva/status/1446500094044295172?s=24](https://twitter.com/se1y7cblljselva/status/1446500094044295172?s=24)
+任务编号：2476
+视频时间段 : 00:00-01:15
+英听校：洛杉矶盘古农场 – Raul
+翻译：洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场- 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,32 +2,25 @@
 ---
 
 
-## 习近平称中共继承了孙中山遗愿遭台湾强烈反弹
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585029/)
+## 疫苗灾情｜澳洲 29 岁知名女星接种疫苗后患上心包炎
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1585160/)
 
-作者：：在远方
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 10/10/2021**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/212_0.jpg)
 
+【澳洲】一名 29 岁的女明星 Monique Morley 在接种疫苗后不久被诊断患上心包炎，她是澳洲最新一位在接种 COVID-19 疫苗后不久住院的公众人物。心包炎是一种围绕在心脏周围的，呈囊状组织的炎症。
 
-10月10日，台湾举行庆祝“中华民国110年国庆”的双十节活动，总统蔡英文发表演讲中郑重的表示，“维持现状就是我们的主张，我们也会全力阻止现状被片面改变”。针对中共不断叫嚣的”武统”威胁挑衅，蔡英文提醒全世界，台湾对于主权不会退让。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/p1.001.jpeg)
-就在一天前的9号，中共党魁习近平在其讲话中称 “中共继承了孙中山的遗愿”，该视频段落在网上热传，在台湾更引发强烈反弹。正如郭文贵先生所说，共产党的以孙灭台，武统台湾，宣讲大会结束，台湾危了！
-(本文仅代表作者观点)
+Monique 早前在 Instagram 上透露，自己接种完第一剂辉瑞 COVID-19 疫苗后的一周，一直在应对“副作用”。
 
-参考链接：[习近平称中共继承了孙中山遗愿遭台湾强烈反弹](https://www.rfi.fr/cn/中国/20211009-习近平称中共继承了孙中山遗愿遭台湾强烈反弹)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Monique-Morley-1.jpeg)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+向来以健康积极的生活方式而闻名的 Monique 表示：“一周后，我经历了多次被救护车送往医院接受治疗，现在我已被心脏病专家确诊为因疫苗引起的心脏问题。”
 
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
+来源｜[个案022](https://www.dailymail.co.uk/tvshowbiz/article-10074747/Bachelor-star-Monique-Morley-hospitalised-following-rare-vaccine-effects.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+* * *
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//
