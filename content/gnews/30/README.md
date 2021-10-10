@@ -2,26 +2,19 @@
 ---
 
 
-## 有声|美团因反垄断调查被处以 5.3 亿美元罚款
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1585503/)
+## 狼子野心昭然若揭——习近平发表“祖国统一”讲话
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1585518/)
 
-配音：香草山教育部-蒙古鸿雁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-【华尔街日报】10 月 8 日报道，中共市场监管总局对美团进行反垄断调查，美团被处以约 5.3 亿美元的罚款，原因是美团强制商家签署“排他性”协议，只能使用其一家平台销售商品和服务。
+撰稿：Ermat【㊙️翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2ba672847a5f44e4893ebdf91d88af65-1.jpeg)图片来源：sohu.com
+据中共国官网报道，习近平于10月9日发表“纪念辛亥革命110周年讲话”。在讲话中不仅威胁民主台湾，还对其他国家进行恫喝。
 
-中共政府针对美团的反垄断调查始于今年 4 月。这次对美团的罚款要小于预期，约相当于美团国内总收入的百分之三。此外，中国市场监管部门还命令美团退还商家支付的独家合作保证金，总额约合两亿美元。今年 7 月，美团被责令改善其员工工作条件，并向其配送员支付高于国家最低工资标准的薪资。
+习近平说，孙中山先生说过：“‘统一’是中国全体国民的希望。能够统一，全国人民便享福；不能统一，便要受害。”台湾问题因民族弱乱而产生，必将随着民族复兴而解决。这是中华民族历史演进大势所决定的，更是全体中华儿女的共同意志，正像孙中山先生所说：“世界潮流，浩浩荡荡，顺之则昌，逆之则亡”。
 
-今年以来，中共政府对国内科技巨头采取一系列监管措施，以反垄断调查为借口，频频开出罚单，试图缓解日益严重的金融危机，防止金融体系的崩塌。
+习近平还威胁说，中华民族具有反对分裂、维护统一的光荣传统。“台独”分裂是祖国统一的最大障碍，是民族复兴的严重隐患。凡是数典忘祖、背叛祖国、分裂国家的人，从来没有好下场，必将遭到人民的唾弃和历史的审判！台湾问题纯属中国内政，不容任何外来干涉。任何人都不要低估中国人民捍卫国家主权和领土完整的坚强决心、坚定意志、强大能力！祖国完全统一的历史任务一定要实现，也一定能够实现！
 
-文字版原文：[美团因反垄断调查被处以 5.3 亿美元罚款](https://gnews.org/zh-hans/1582502/)
+现如今台湾在外：强敌虎视，各国冷眼旁观；在内：弱势总统，奸佞蜂起，“口炮 ”当道。习主席杀气腾腾的讲话——“世界潮流，浩浩荡荡，顺之则昌，逆之则亡。”预示着一场血雨腥风的到来，在病毒和疫苗之战已溃不成军的西方，将迎来又一次挑战。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+参考链接：
+
+[习近平：在纪念辛亥革命110周年大会上的讲话](http://www.gov.cn/xinwen/2021-10/09/content_5641633.htm)

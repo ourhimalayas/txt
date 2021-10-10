@@ -2,28 +2,20 @@
 ---
 
 
-## 台湾总统府发言人称中华民国是主权国家!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585571/)
+## 有声|瑞士会谈的实质是美国借台湾存亡与中共进行的再次勾兑
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1585579/)
 
-作者：云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中央社消息, 对于10月9日中共习近平所称:”台湾问题是中国内政”, 台湾总统府发言人张惇涵回应称，“中华民国是主权独立的国家，不是中华人民共和国的一部分；中华民国的未来，掌握在台湾人民的手中!”
+配音：香草山教育部-蒙古鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月8日，郭文贵先生盖特视频表示：瑞士会谈的实质是美中为了彼此利益的再次勾兑。美国借阻止打台湾之名，对中共软硬兼施，促使中共国继续买美国国债，以缓解美国的经济困境。郭先生说：美中在玩假的经济和假的政治环境，只是一时的缓解，最终是要出问题的，牺牲的还是台湾和老百姓。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide2-16.jpeg)
+一切的虚假只能是海市蜃楼，最终会消失，而践行正道主义的新中国联邦，用行动建立了GTV、GETTR、GNEWS媒体平台，喜联储金融经济体系，必将成为世界新的政治力量。
 
-10月10日，蔡英文总统蔡英文也在双十国庆演说中提出”四个坚持”, 即 坚持自由民主宪政体制；坚持中华民国与中华人民共和国互不隶属；坚持主权不容侵犯并吞；坚持中华民国台湾的前途，必须遵循全体台湾人民的意志。蔡英文称这四个坚持，是台湾人民的底线。而香港的现况证明中共背弃了自己的承诺，印证所谓的‘一国两制’根本不可行。
+文字版原文：[瑞士会谈的实质是美国借台湾存亡与中共进行的再次勾兑](https://gnews.org/zh-hans/1582736/)
 
-(本文仅代表作者观点)
-
-参考链接：[國慶日演說總統談四個堅持、兩岸平等對話 全文一次看](https://www.cna.com.tw/news/firstnews/202110105005.aspx)
-[總統府：中華民國是主權獨立國家 民意拒絕一國兩制](https://www.cna.com.tw/news/firstnews/202110090099.aspx)
-[https://montrealtimes.news/台总统府：中华民国是主权独立国家-民意拒绝一国/](https://montrealtimes.news/台总统府：中华民国是主权独立国家-民意拒绝一国/)
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：文龍
-编辑/校正/发稿：谐趣园
-
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
