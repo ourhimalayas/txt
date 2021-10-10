@@ -2,30 +2,43 @@
 ---
 
 
-## 中共国关门了
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1585780/)
+## 中共全面禁止非公有资本开展新闻传媒业务
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1585874/)
 
-新闻来源：德国法兰克福报网络版
+作者：纽约香草山农场 – 四季
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/die-kp-hat-vom-wohnungsbau.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-资料来源：FAZ
 
-最近由于疫情和经济原因， 能够来往于中共国是非常辛苦而艰难的。这里有篇德国的报道， 形容了这一切， 大意翻译如下：
 
-旅行者的隔离，经济的止赎：中华人民共和国正在危及它的崛起。这也对联邦德国也产生了影响。
 
-在法兰克福，你只需要15分钟来通过护照检查和行李领取。而在上海用了四个小时，经过调查、新冠病毒检测，填写四份关于近两年旅行史的问卷，旅客终于坐上了没有护照的公车。然后隔离酒店正在等待。
+据[美国之音](https://www.voachinese.com/a/China-proposes-bannig-non-public-fund-in-news-industry-20211010/6264770.html)10月10日报道，中国国家发展改革委员会10月8日在官网上发布《市场准入负面清单（2021年版）》，征求所谓的社会公众意见。该清单今年增加了涉及6个方面的“禁止”内容，其中包括禁止非公有资本开展新闻传媒相关业务。这意味着，当局将停止所有非公有资本投资或进入与新闻相关的产业。
 
-在接下来的 14 天里，因为寂静和孤独， 任何人在国家指定的隔离室里听到第二大经济体的心脏跳动都可以认为自己很幸运。近两年来，中国每周只允许 200 个航班进入该国，比大流行前减少了 98%。即使是大多数商务旅客也没有获得签证。经济舱座位很快就要花费 5,000 欧元，而且在短时间内几乎不可能买到。任何未能在出发前提供疫苗接种医生的姓名、地址和电话号码或违反任何不断变化的规则的人，即使有票也不会登上飞机。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1180-1.jpg) 图片来源：路透社
 
-[https://www.faz.net/aktuell/finanzen/china-macht-dicht-vor-der-weltwirtschaft-17576403.html](https://www.faz.net/aktuell/finanzen/china-macht-dicht-vor-der-weltwirtschaft-17576403.html)
+中国政府一直在加紧对公众话语权的控制，指责娱乐界“污染”社会而加以整肃，要求规范互联网和手机浏览器资讯信息传播，停止传播“谣言”、取消使用耸人听闻的标题，禁止发布任何违反“社会主义核心价值”的内容等。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+北京拟议推出的不准非公有资本进入新闻业的新规定，显示中共当局在加紧全面控制中国社会，加大对言论控制的力度，这是中共国社会的又一次倒退。
 
-校对：旦旦
+（本文仅代表作者观点）
 
-责任编辑/发布： Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

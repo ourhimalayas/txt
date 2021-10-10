@@ -2,34 +2,30 @@
 ---
 
 
-## 秘翻在线 :英国供应链融资领头羊格林希尔资本（Greensill Capital）倒闭
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1585320/)
+## 抗议疫苗护照义务化 意大利爆发大规模示威活动
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585551/)
 
-撰稿：William
-校对：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/p.jpg-3.png)
-图片来源：fcced
+作者：文小白
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+NHK消息, 为抗议从本月15日起新冠疫苗接种证明携带义务化的政令，意大利首都罗马爆发了大规模抗议活动 ，超过万人参加了游行示威活动 , 人们挤满了广场和街道，并高喊“自由！”口号，意大利政府出动了水车等对人游行人群进行驱离。
 
-**格林希尔资本破产，全球数万人恐失业**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-16.jpeg)
 
-2021年3月初，供应链金融行业中的领头羊和金融科技新贵，格林希尔资本（Greensill Capital）申请破产保护。格林希尔资本是一家设在英国和澳大利亚的金融服务公司，由前卡梅伦首相时期担任高级顾问的莱克斯·格林西尔（Lex Greensill）所创建，主要提供供应链融资和相关服务。
+截至本月9日，意大利全境已经有80%的接种者完成了疫苗接种。因此意大利政府决定出台政令, 所有人都必须携带疫苗接种证明或检测结果阴性证明，违反者将被禁止出入公共场所,不能搭乘公共交通甚至被停职 或被处以罚款。
 
-该公司为客户提供了供应链融资，这是一种短期借贷，使公司可以延长支付账单的时间。格林希尔将这些贷款打包成证券，称为票据，然后将其出售给第三方，其中包括瑞士信贷（Credit Suisse）管理的一套100亿美元的基金。瑞士警方日前突袭瑞士信贷银行(Credit Suisse)的办公室，并没收与瑞士信贷 100 亿美元有关的文件。这次突袭是由苏黎世州检察官下令进行的。
+(本文仅代表作者观点)
 
-根据《零对冲》引用英国《金融时报》的报导，大量位于德国、瑞士和其他地方的市政当局通过瑞士信贷及其“贸易融资”基金和位于巴伐利亚的格林希尔Greensill银行存款，都投资了格林希尔资本，许多小镇的散户都被格林西尔的破产波及。
+参考链接：[イタリア 接種証明の携帯義務化 反対の人たちが大規模抗議デモ](https://www3.nhk.or.jp/news/html/20211010/k10013300611000.html)
 
-破产管理者正大联合国际会计师事务所（Grant Thornton）指出，陷入困境的英国金融公司格林希尔（Greensill）遭遇连串财务困难后宣布破产。引发全球数万人恐失业的忧虑。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-**英国前首相卡梅伦遭调查**
+新闻访谈终审：文龍
+编辑/校正/发稿：谐趣园
 
-英国政府4月12日宣布，对已破产的金融公司格林希尔资本（Greensill Capital）展开调查，原因是曾在该公司担任顾问的卡梅伦涉嫌违规游说。卡梅伦2018年加入该公司。报导指出，卡梅伦在该公司任职期间曾私下联络现任财务大臣苏纳克（Rishi Sunak）、卫生大臣汉考克（Matthew Hancock）等，为公司谋取利益。
-
-**软银孙正义也牵连其中**
-
-早在格林希尔倒闭之前，英国《金融时报》就透露，瑞士信贷贸易融资基金实际上可能秘密（或许是非法）支持软银愿景基金投资。格林希尔破产，使软银愿景基金的投资化为乌有。格林希尔倒闭也损害了愿景基金中的其他公司，最严重的是建筑业初创公司Katerra。通过格林希尔将客户资金投资建筑业初创公司Katerra的瑞士信贷正准备起诉软银。
-
-**格林希尔倒闭，全世界的诉讼正开始**
-
-世界各地的检察官持续对格林希尔调查，重点在于其公司高层或其推动者所犯下的欺诈或不当行为。英国《金融时报》指出，无论检察官在这批文件中找到什么，大家都在屏息等待。
-
-新闻来源:[Swiss Police Raid Credit Suisse Offices As Greensill Investigation Heats Up](http://Swiss%20Police%20Raid%20Credit%20Suisse%20Offices%20As%20Greensill%20Investigation%20Heats%20Up)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
