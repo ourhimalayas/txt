@@ -2,46 +2,39 @@
 ---
 
 
-## 瑞典、丹麦暂停为年轻群体接种莫德纳（Moderna）疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1584418/)
+## 美国大学通过在线举报系统控制排查学生
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1584450/)
 
-**据《路透社》作者：Johan Ahlander, Stine Jacobsen, Gwladys Fouche, Julie Steenhuysen, Michael Erman，2021年10月6日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl-3.jpg)2021年7月23日，在西班牙马德里的Enfermera Isabel Zendal医院，一名护士准备用注射器注射莫德纳（COVID-19）疫苗的剂量。图片来源：路透社/Juan Medina
-《路透社》斯德哥尔摩10月6日 —— 瑞典和丹麦周三表示，在收到可能出现罕见的心血管副作用的报告后，它们将暂停对年轻群体使用莫德纳公司（MRNA.O）的COVID-19疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/101003.jpg)盖蒂图片社/柴纳龙·巴沙泰 （Chainarong Prasertthai）
 
-瑞典卫生机构称，它将暂停对1991年及以后出生的人使用这种疫苗，因为有数据表明，在接种过疫苗的青年和年轻成年人当中，心肌炎和心包炎的发病率有所上升。这些疾病涉及心脏或其内壁的炎症。
 
-卫生机构说：“当涉及到莫德纳的疫苗Spikevax时，这种联系尤其明显，尤其是在接种第二针之后。”
+学生们登录自己所在学院或大学网站时，将发现更多内容，而不仅仅是入学表格和课程选择内容。许多院校的在线门户网站允许学校官员跟踪学生的行为，其中包括对安全空间的威胁以及那些未接种中共病毒疫苗的学生。
 
-莫德纳的股票在下午的交易中下跌4.9%($16.08美元)，至$316.11美元。
+密歇根州立大学的文化包容性学院共享系统，使该大学能够“跟踪和应对那些有助于或有损于该校安全以及支持性环境的行为和情况。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/101004.png)
+《校园改革》报道了密歇根州立大学（MSU）以及其它正在采用类似系统的院校：
 
-莫德纳发言人在一封电子邮件中说，该公司知道丹麦和瑞典的监管机构决定暂停在年轻人中使用其疫苗，因为存在心肌炎和/或心包炎的罕见风险。
+密歇根州立大学的表格告诉学生，某些受保护的言论也需要被举报。任何意在“恐吓、贬低、嘲笑、贬损、边缘化或威胁”学生身份的行为，无论是现实状况还是感知的，都值得通知学校。被举报的行为不一定是以伤害为目的，只要起到“对目标不利、敌对或营造不友好的环境”的作用即可举报。
 
-“这些通常是轻度病例，个人在接受标准治疗和休息后往往会在短时间内康复。感染中共病毒的人患心肌炎的风险大大增加，接种疫苗是预防这种情况的最佳方法。”
+密歇根州立大学的文化包容性学院（CIC）系统，类似于在过去一年中各大学广泛采用的中共病毒举报策略模式，该策略鼓励学生举报不遵守中共病毒相关规定的同龄人。
 
-根据一项尚未经过同行审查的美国研究，20岁以下的年轻男性在感染中共病毒后患心肌炎的可能性是那些已经接种疫苗的人的六倍。
+迈阿密大学于2020年11月宣布，该校聘请了75名学生大使，以影响同龄人遵守校园内健康准则。哈佛医学院的“与偏见有关的事件”报告表，旨在确保每个社区成员都感到“ 他们的经历能反映学校的多元化、公平和包容的价值观，”并允许学生以匿名方式提交报告。
 
-丹麦卫生局提到了一项尚未公布的北欧研究的数据，这些数据现在将被送到欧洲药品管理局（EMA）作进一步评估，并补充说，最终数据预计将在一个月内公布。
+上个月，117名宾夕法尼亚州立大学学生，因不遵守中共病毒测试被要求暂停学业。学生被禁止线下或在线上课。
 
-瑞典和丹麦表示，他们现在推荐使用辉瑞生物技术公司（PFE.N）的Comirnaty疫苗。
+在同一周，普渡大学（Purdue University）的8名学生也遭到停学，将另外18名没有接种疫苗的学生纳入分流计划中，并强迫他们离开学校，因为他们错过了对未接种疫苗的学生所要求的监测测试。
 
-EMA的安全委员会在7月得出结论，在接种Comirnaty或Spikevax疫苗后，会出现心脏炎症，更常见于年轻男性在第二针后。
+[新闻原文链接](https://www.breitbart.com/politics/2021/10/07/u-s-universities-control-students-online-reporting-systems-protecting-identities-doxing-unvaccinated/)
 
-加拿大卫生官员上周说，数据表明，与辉瑞/BioNTech公司的疫苗相比，莫德纳公司的疫苗接种后，罕见的心脏炎症的报告案例相对较多。
+***编辑：【英国伦敦喜庄园编辑部】***
 
-尽管两种疫苗都是基于mRNA技术，但辉瑞公司的疫苗是每剂含有30微克的疫苗，而Moderna的疫苗为每剂含有100微克。
+*翻译：mcjaja  | 校对：Julia Win*
 
-来自美国两个疫苗安全监测数据库之一的数据也表明，莫德纳疫苗在年轻人中可能有更高的心肌炎风险。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-在美国，该疫苗未被批准用于18岁以下人群。
 
-**文章来源:**[https://www.reuters.com/business/healthcare-pharmaceuticals/sweden-pauses-use-moderna-covid-vaccine-cites-rare-side-effects-2021-10-06/](https://www.reuters.com/business/healthcare-pharmaceuticals/sweden-pauses-use-moderna-covid-vaccine-cites-rare-side-effects-2021-10-06/)
+编辑：【英国伦敦喜庄园编辑部】
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – Freeearth
-编辑：洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

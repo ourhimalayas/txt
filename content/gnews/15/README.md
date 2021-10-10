@@ -2,10 +2,10 @@
 ---
 
 
-## 加州实施学童强制疫苗政策 但州长 12 岁女儿并未接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1584636/)
+## 中共企图套用俄罗斯占领克里米亚的方式攻陷台湾
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1584641/)
 
-作者：文一
+作者：文真
 
 
 
@@ -19,12 +19,16 @@
 
 
 
-【Gateway Pundit】10 月 9 日报道：民主党加州州长加文-纽森在《洛杉矶时报》最近发表的一篇文章中承认，他12岁的女儿尽管符合强制疫苗接种条件，但还没有接受这种注射。
+10月9日，习近平借“辛亥革命”周年纪念发出武统台湾的强烈信号。台湾已经岌岌可危。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-3.jpg)
+郭文贵先生曾在直播中揭露中共攻台计划，第一步不会采取武力攻势，而是发动网络攻击、散布假新闻、利用舆论战等各种超限战手段让台湾陷入混乱；第二步台湾政府内部的亲共势力伺机发起公投，甚至掀起动乱，为中共出兵占领台湾制造时机。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-19.jpg)
+中共是按照俄罗斯在2014年入侵克里米亚的方式，制定夺取台湾的计划。波索比克在接受班农战斗室采访时，完全认同这一观点。
 
-10月1日，这位民主党州长宣布了美国首个 K-12 学童强制疫苗政策。文章强调，州长已经违反了他自己公布的疫苗政策，并指出很多疫情期间的限令只是针对普通民众，制定政策的政客们并未受其约束。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-27.jpg)
+波索比克认为中共军方内部判断，如今美国处理台湾局势的态度会与2014年相似。2014年拜登时任美国副总统一职，而当年美国政府在俄罗斯入侵克里米亚问题上做出了让步。这无疑大大增加了中共攻陷台湾的野心。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-22.jpg)
 参考链接：
-[Newsom Admits 12-Year-Old Daughter Has Not Yet Been Vaccinated Despite K-12 Vaccine Mandate for Rest of State](https://www.thegatewaypundit.com/2021/10/newsom-admits-12-year-old-daughter-not-yet-vaccinated-despite-k-12-vaccine-mandate-rest-state/)
+[郭先生10/9/2021盖特：波索比克谈台海：普京拿下克里米亚，中共将军们想同样方式拿下台湾](https://gettr.com/post/pdmt5n2f8d)
 
 （本文仅代表作者观点）
 
