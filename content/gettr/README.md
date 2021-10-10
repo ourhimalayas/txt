@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/10/2021 6:48 AM (UTC)`
+
+10-10日：👉👉👉Gettr prohibited these followings:<br/><br/>1. No racial discrimination is allowed<br/>2. There is absolutely no room for political discrimination, and any views of different parties are allowed<br/>3. No cultural discrimination is allowed, and all cultures are accepted<br/>4. No room for terrorism<br/>5. No crime, child abuse, violence, or pornography<br/>6. The Gettr must never be used to spread deceptive information<br/><br/>All Gettr's influencers can do the live streaming within a week.<br/><br/>盖特的六个绝对不允许：<br/>1. 绝对不允许有种族歧视<br/>2. 绝对不允许有政治歧视，允许任何不同党派的观点<br/>3. 绝对不允许文化歧视，包容所有文化<br/>4. 绝对不可以有恐怖主义倾向<br/>5. 绝对不可以有犯罪，虐童，暴力，黄色倾向<br/>6. 绝对不可以利用盖特传播欺骗信息<br/><br/><br/>所有盖特的大V在一周内都可以在上面直播
+![img](https://media.gettr.com/group2/getter/2021/10/10/06/48/b73653bb-f7bc-f952-b8e8-7457ed328b83/a5d8204e48f5adb65bebbe3de8bb7a9d.jpg)
+
+---
+
+`@miles 10/10/2021 6:45 AM (UTC)`
+
+10月10号：尊敬的战友们好，洛杉矶发生的将没有消防员的这种情况，会在全球的电力医院警察公共设施，所有的领域发生。全球的政府，将面对无法计算的诉讼，和社会公共灾难的巨大社会问题……这就是共产党的病毒，和共产党制造的疫苗灾难，对人类的摧毁。这也是他们最喜欢看到的结果，完全在邪恶的势力和中国共产党的计划之中。只有新中国联邦最早的在2020年一月份就警告世界，“疫苗才是真正的灾难的核心。”但愿世界早日醒来。新中国联邦人……将为此奋斗到底。
+![img](https://media.gettr.com/group41/getter/2021/10/10/06/45/29d3a462-1e92-94af-19ba-747ed33f81d5/out.jpg)
+
+---
+
 `@miles 10/9/2021 4:15 PM (UTC)`
 
 《双龙计划 The Two Cities Project》<br/><br/>
@@ -280,20 +294,6 @@ September 20th, 2021 — German Corona Investigative Committee Press Conference 
 
 10/06/2021 Miles Guo Getter：In 2017, Mr. Miles Guo has already said that, the CCP will definitely be destroyed as it rules China by frauds, by deception, by committing corruption, and by using police to suppress people in a mafia style; and now, the lies similar to the propaganda in the Cultural Revolution and the Nazi ideology received the highest level of approval from the leadership inside the Zhongnanhai Pit.<br/><br/>10月6日文贵盖特：2017年文贵就说过共产党一定会死在以假治国，以黑治国，以骗治国，以贪治国，以警治国上；现在类似文革中的谎言，纳粹的思想竟能得到中南坑老杂毛的最高批示<br/>
 ![img](https://media.gettr.com/group18/getter/2021/10/07/03/30/096e5735-b73f-20f9-cb81-b22e494cd092/out.jpg)
-
----
-
-`@miles 10/7/2021 3:11 AM (UTC)`
-
-10月6号：尊敬的战友们好，由于很多重大的事件要紧急的开会，明天，后天都没有大直播，一切都已经开始。 !!!!!!<br/><br/>https://mobile.twitter.com/thewuhanclan/status/1445940092565065730
-![img](https://media.gettr.com/group31/getter/2021/10/07/03/11/d4dbd017-66fe-96d9-6f1f-702ef98e7d61/out.jpg)
-
----
-
-`@miles 10/7/2021 2:22 AM (UTC)`
-
-10/06/2021 Miles Guo’s GETTR: PAG (Hong Kong) mainly connected and deceived the Jewish investors, and further manipulated stock markets by deceiving institutional and individual investors in the West, and when all these are revealed one day, something big will happen inside of the Chinese legal community; various of situations inside of CCP China are all in mess<br/><br/>10/06/2021 文贵盖特：香港太盟投资(PAG)以联络欺骗犹太投资圈为主、哄抬股市、欺骗西方机构投资人和小股东，这个雷爆的时候中国律师界要出大事儿；国内各种形势一塌糊涂<br/>
-![img](https://media.gettr.com/group47/getter/2021/10/07/02/22/d2967fa0-9c0e-140e-9547-f19f75631bb9/out.jpg)
 
 ---
 
