@@ -2,53 +2,24 @@
 ---
 
 
-## 中共企图套用俄罗斯占领克里米亚的方式攻陷台湾
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1584641/)
+## 美西南航空强制疫苗措施遭飞行员工会起诉
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1584582/)
 
-作者：文真
+#### 翻译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-46.jpg)图片来源： sinchew.com
+零对冲网10月9日报道，西南航空工会代表飞行员提起诉讼，以阻止强制疫苗措施，直到诉讼被妥善解决，这应该第一起由工会发起的对抗拜登政府强制疫苗命令的诉讼。
 
+据布隆伯格报告显示，该工会代表西南航空公司飞行员向法院提起暂时性不执行联邦的强制疫苗令，直到该强制疫苗令违反了美国《劳动法》的问题得到解决。
 
+在周五法庭备案中，西南航空公司飞机员协会还要求在达拉斯的联邦法庭开庭前先尽快举行听证会，称公司的单方面行动（即强制疫苗）违反了铁路劳工法，这个法案也包含了航空公司和雇员工会的范畴。质疑“单方面行动”是因为公司企图执行拜登的疫苗强制令以逼迫员工或者打疫苗或者被辞退或无收入离职。
 
+根据拜登的强制疫苗令的指导意见，西南航空公司要求最晚10月4日，雇员们必须根据联邦规定接种疫苗除非有医疗证明或因宗教原因不能打疫苗。
 
+西南航空公司受到这个强制令的影响，因为西南航空与联邦政府有合同。西南航空公司工会代表了9000名飞行员，一次罢工就能很轻易地破坏美国人乘飞机旅行的计划。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+该航空公司无论如何不想退让，坚称强制疫苗令符合劳动管理协议，任何人没有适当理由不能拒绝打疫苗。
 
+对于西南航空公司来说，这个疫苗强制令的争议还不是飞行员与公司的唯一矛盾，其他的矛盾包括隔离要求，改善工作环境，规则和工资等，飞行员们还面临独特的问题，即北欧国家限制mRMA疫苗的接种，认为不值得在年轻健康人中施打疫苗。由疫苗引起的副作用可能会导致飞行员执照被吊销的问题。飞行员们还有一个独特的危险，即疫苗的副作用可能影响到他们通过定期医疗检查以维持他们的飞行执照，工会还要求公司明确，如果出现问题，飞行员们是否能得到长期残障保险。
 
-
-
-
-
-
-10月9日，习近平借“辛亥革命”周年纪念发出武统台湾的强烈信号。台湾已经岌岌可危。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-3.jpg)
-郭文贵先生曾在直播中揭露中共攻台计划，第一步不会采取武力攻势，而是发动网络攻击、散布假新闻、利用舆论战等各种超限战手段让台湾陷入混乱；第二步台湾政府内部的亲共势力伺机发起公投，甚至掀起动乱，为中共出兵占领台湾制造时机。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-19.jpg)
-中共是按照俄罗斯在2014年入侵克里米亚的方式，制定夺取台湾的计划。波索比克在接受班农战斗室采访时，完全认同这一观点。
-
-波索比克认为中共军方内部判断，如今美国处理台湾局势的态度会与2014年相似。2014年拜登时任美国副总统一职，而当年美国政府在俄罗斯入侵克里米亚问题上做出了让步。这无疑大大增加了中共攻陷台湾的野心。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-22.jpg)
-参考链接：
-[郭先生10/9/2021盖特：波索比克谈台海：普京拿下克里米亚，中共将军们想同样方式拿下台湾](https://gettr.com/post/pdmt5n2f8d)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：Q大哥
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+新闻来源：[Southwest Pilots Union Sues To Block Airline’s Vaccination Mandate](https://www.zerohedge.com/political/southwest-pilots-union-sues-block-airlines-vaccination-mandate)

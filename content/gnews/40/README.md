@@ -2,24 +2,27 @@
 ---
 
 
-## 美西南航空强制疫苗措施遭飞行员工会起诉
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1584582/)
+## 中共媒体突然报“鹦鹉热”致死、人传人
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1584547/)
 
-#### 翻译：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-46.jpg)图片来源： sinchew.com
-零对冲网10月9日报道，西南航空工会代表飞行员提起诉讼，以阻止强制疫苗措施，直到诉讼被妥善解决，这应该第一起由工会发起的对抗拜登政府强制疫苗命令的诉讼。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-据布隆伯格报告显示，该工会代表西南航空公司飞行员向法院提起暂时性不执行联邦的强制疫苗令，直到该强制疫苗令违反了美国《劳动法》的问题得到解决。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/text-SC-8.png)
+文章仅代表作者本人观点，与Gnews无关
 
-在周五法庭备案中，西南航空公司飞机员协会还要求在达拉斯的联邦法庭开庭前先尽快举行听证会，称公司的单方面行动（即强制疫苗）违反了铁路劳工法，这个法案也包含了航空公司和雇员工会的范畴。质疑“单方面行动”是因为公司企图执行拜登的疫苗强制令以逼迫员工或者打疫苗或者被辞退或无收入离职。
+视频参看： 2021.10.09晚GTV新闻访谈
 
-根据拜登的强制疫苗令的指导意见，西南航空公司要求最晚10月4日，雇员们必须根据联邦规定接种疫苗除非有医疗证明或因宗教原因不能打疫苗。
+[https://gtv.org/broadcast/watch/616233a1304e992109b26cc9](https://gtv.org/broadcast/watch/616233a1304e992109b26cc9)
 
-西南航空公司受到这个强制令的影响，因为西南航空与联邦政府有合同。西南航空公司工会代表了9000名飞行员，一次罢工就能很轻易地破坏美国人乘飞机旅行的计划。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-该航空公司无论如何不想退让，坚称强制疫苗令符合劳动管理协议，任何人没有适当理由不能拒绝打疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
 
-对于西南航空公司来说，这个疫苗强制令的争议还不是飞行员与公司的唯一矛盾，其他的矛盾包括隔离要求，改善工作环境，规则和工资等，飞行员们还面临独特的问题，即北欧国家限制mRMA疫苗的接种，认为不值得在年轻健康人中施打疫苗。由疫苗引起的副作用可能会导致飞行员执照被吊销的问题。飞行员们还有一个独特的危险，即疫苗的副作用可能影响到他们通过定期医疗检查以维持他们的飞行执照，工会还要求公司明确，如果出现问题，飞行员们是否能得到长期残障保险。
-
-新闻来源：[Southwest Pilots Union Sues To Block Airline’s Vaccination Mandate](https://www.zerohedge.com/political/southwest-pilots-union-sues-block-airlines-vaccination-mandate)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

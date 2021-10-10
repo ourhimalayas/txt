@@ -2,38 +2,36 @@
 ---
 
 
-## 盖特CEO谈脸书宕机事件的影响
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1584992/)
+## 总加速师护航：App停用不影响邮储银行坐吞火币退款
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585066/)
 
-**简评：**
+作者：安吉拉
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+大陆债务违约遍地暴雷，中共六大银行集体粉饰利润上行，邮储银行年中报净利润同比增长22.48%，为行业水平两倍。新浪搜狐“马甲”官宣一致推崇，力赞邮储极高成长性，资产质量保持行业领先。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.10AM-PICTURES-235789.001.jpeg)
+作为国家机器之一，中国邮政具有不被民营取代的优势，更垄断特殊机密渠道，享受国家补贴。昨日官网发布公告，称因业务调整，有步骤于年内停止邮储生活App全部服务。从应用上架到服务停止，邮储银行的App早已习惯了被用户吐槽，但这并不影响习近平家族护航下的资产转移大计划。
 
-脸书（Facebook）宕机后，盖特当天有超过2万名用户注册，第二天可能达到3万，甚至4万人。脸书的事情提醒公众，脸书掌握了太大的权力，不仅控制了Instagram和微信，同时还控制了Messenger。所有的权力合并在一家公司，集中在一个人的手里，这很可怕。一个人不能拥有这么大权力。反川普的媒体和左派都不希望川普的支持者继续使用脸书作为工具来彼此沟通和联络，所以脸书会被打击。
+中国邮政储蓄银行成立较晚，于2007年3月20日正式挂牌，一跃成为中国第五大银行，网点遍布全国各地包括偏远山区。承载国际结算业务包括进出口贸易、外商投资和本外币资金流。国际战略投资者涉猎甚广，从2015年起就包括：瑞士银行、摩根大通、星展银行、加拿大养老基金、淡马锡和国际金融公司，同时包括中国人寿、中国电信两家大型国企，以及蚂蚁金服和腾讯两家互联网公司。
 
+根据郭文贵先生爆料，邮储银行的上市是全球最大的蓝金黄案件，未来邮储银行一定会倒闭。火币平台老板和财务等相关人员早已被中共牢牢控制，准备接受火币退款的三家银行中就有邮储银行。邮储银行应用App下架，将对有火币退款项目发生的用户直接造成技术壁垒。
+(本文仅代表作者观点)
 
+参考链接：
 
-**视频字幕：**
-
-OAN**主持人：**杰森，Gettr在昨天Facebook事件后表现如何？
-
-**Jason Miller （盖特CEO）：**我们在做的事是相当惊人的，实际上，昨天是个大日子，盖特有超过2万名注册者。今天我们可能达到3万甚至可能达到4万左右。
-
-（昨天的事）提醒我们，Facebook掌握的权力有多大。我想很多人昨天才意识到Facebook也控制了Instagram。他们控制了微信，当然他们也控制了Messenger。所有的权力都合并在一家公司。
-
-正如你从爆料人哪里听到的，扎克伯格拥有过大的权力，一个人不能拥有这么大的权力。
-
-还有另一个问题，为什么媒体现在才开始介入Facebook？有两个原因。第一，当然某种程度上，Facebook发展得太大了。但另一个问题是，有许多媒体人指责Facebook最初选择了川普总统，因为川普总统在直接与人沟通方面的超能力，绕过传统媒体的过滤。
-
-我认为媒体和左派的许多人仍然认为扎克伯格在一定程度上要为川普总统当选负责。他们都想确保Facebook不会继续成为让川普支持者动员或沟通的工具。
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*字幕：雨中漫步|听写：云岭|翻译：致良知|校对：Roberts| 简评/文字整理/编辑：胖丁*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+1. [邮储银行，为什么跑出了净利润“双倍速“？](https://finance.sina.cn/jinrong/2021-09-03/detail-iktzqtyt3911091.d.html?oid=408ab&amp;vt=4&amp;cid=76653&amp;node_id=76653)
+2. [中国邮储银行：因业务调整，将停止邮储生活APP全部服务|APP|邮储相关服务](https://finance.sina.com.cn/tech/2021-10-09/doc-iktzqtyu0430896.shtml)
+3. [中国邮储银行战略引资451亿元对定价满意 IPO规模将视市场情况](https://www.reuters.com/article/cn-postal-bank-idCNKBS0TS0OC20151209)
+4. [9/29/2021 郭先生直播：火币退钱的三大指定银行是上海银行、中国银行和邮储银行](https://gnews.org/zh-hans/1564718/)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+编辑/校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
