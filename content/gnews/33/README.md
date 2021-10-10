@@ -2,41 +2,41 @@
 ---
 
 
-## 今天股市与1929年股灾前“惊人相似”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1584464/)
+## 加密货币市场难逃恒大崩盘拖累
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1584513/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/101008.jpg)大萧条前后的道琼斯工业指数
-目前，随着中共国房地产市场的失败加剧，通胀正以前所未有的速度加速。这导致全球股票市场神经日益紧张，一些专家预测，“中国雷曼危机”可能即将来临。房地产巨头恒大目前处于财务困境，并警告全球公众“前所未有的问题”。
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/AlekseyIvanov-Bitcoin-1000x600-1.jpg)
+图片来源：crypto-news-flash.com
 
-自冠状病毒大流行随之而来，全球市场停滞不前以来，全球金融形势一直黯淡。专家今年的分析显示，与1929年和今天发生的事件有着惊人的相似之处。
+**整理报道：**小红帽
 
-正如克莱因在书中指出的：“眼高手低，代表了一种新品种的赌徒，他们更多地被希望而不是经验吸引到市场，如同赌场的度假者在专业人士的游戏中尝试运气……输家每分钟都在产生。”
+加密货币市场继续受到中共国实施加密资产境内交易禁令的严重影响。
 
-在“黑色星期二”之前的几天里，纽约经纪公司总数超过1600家，是1925年的两倍多。
+一个比特币于10月10日的价值略高于[54,499](https://cn.investing.com/crypto/bitcoin)美元，远低于9月初近71,000美元的峰值。另一种主要的加密货币以太坊的价值也在下滑，其中一个以太币于10月10日的价格略高于[3,512](https://www.528btc.com/coin/3007.html)美元。 9月初，以太币的价格上涨了近20%，略低于5,300美元。
 
-一位刚签约的女交易员在当时的一篇“如何做”的文章中指出了这段时期的精髓：“我们入行原因和大多数其他小猪去的原因一样，那是因为我们想不劳而获的快速赚点钱。”
+交易加密货币交易网eToro的市场分析师和加密专家西蒙·彼得斯（Simon Peters）表示，**中共国的持续发展，包括不断膨胀的恒大危机，正在严重影响加密货币市场。**
 
-2021 年，新的交易平台充斥了应用商店。
+**“9月底，有关恒大危机的消息开始出现，危机蔓延到所有市场。随着9月27日广泛的抛售开始，加密资产受到了影响，**”彼得斯先生说。
 
-作为我们这个时代的经纪公司，Robinhood、E\*trade和Fidelity正以前所未有的速度蓬勃发展。投资和交易的借款水平也创历史新高，2021年，经纪人向交易员发放了创纪录的债务。
+“恒大拥有超过3000亿美元的巨额债务，且未能按时向债权人付款。对更广泛的加密市场的影响并不直接，但随着债务担忧迫在眉睫，Tether等加密资产可能会受到影响。”
 
-世界各地的联邦储备也被迫介入市场，以防止许多机构的崩溃，因为大流行病。
+彼得斯先生表示，**最有可能受到恒大倒闭影响的加密资产是那些与储备资产挂钩的加密资产，而不一定是比特币和以太坊等大牌。**
 
-**简评：**
+“像Tether这样的稳定​​币与美元等法定货币挂钩。但为了保持挂钩，他们需要持有与加密资产价值相匹配的资产，”彼得斯先生表示。“**许多人无法持有大量现金，而是使用商业票据（一种短期债务），来计算价值。**
 
-中共国房地产爆发即将引起的全球金融风暴，全球范围不论是个人还是政府的债务高企对于即将到来的金融风暴毫无防备，全球可能会经历比1929年更严重的经济危机。
+“这里的问题是，随着恒大为债务市场创造了2008年式的传染风险，如果稳定币持有的商业票据贬值，它们可能会陷入困境。不幸的是，由于这种危机是史无前例的，接下来会发生什么还有待观察。”
 
-[原文链接](https://www.express.co.uk/finance/personalfinance/1502112/stock-market-crash-startling-similarities-1929-stocks-money-investment-spt)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-***编辑：【英国伦敦喜庄园编辑部】***
+**新闻来源**：[Bitcoin crash: The cryptocurrencies most at risk of an Evergrande collapse (9news.com.au)](https://www.9news.com.au/world/cryptocurrency-markets-rocked-by-chinese-economy-as-evergrande-threatens-stablecoins/f11fa133-3ab8-4285-a821-0e8c87f0ce83)
 
-*翻译: Johnston2021|简评/校对:  clau*
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

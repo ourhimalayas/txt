@@ -2,20 +2,30 @@
 ---
 
 
-## 雅典娜时报-第077期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1584532/)
+## 美国接种中共病毒疫苗最多的州感染人数激增
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1584581/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+#### 撰稿：Grace
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-32.jpg)图片来源：半岛新闻
+据Dreddymd 10月10日报道， 尽管大约88%的佛蒙特州的居民现在已经“完全接种”了中共病毒疫苗，但是在该州可以看到感染了中共病毒的新住院人数在大量地增加。佛蒙特州正迅速成为全美国疫情最严重的州。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10-10.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/11-6.png)
-（文章内容仅代表作者个人观点，与GNEWS无关）
+报告显示，自去年冬天的疫情的高峰期以来，该州的感染中共病毒的人数还没有出现过这样的剧烈飙升。
 
-***发布：小红帽***
+报道称，共和党人菲尔·斯科特（Phil Scott）州长在6月解除了佛蒙特州的紧急状态，因为当时该州至少有80%的人口接受了至少一剂疫苗。
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+可是，大约90名的佛蒙特州卫生局（VHD）的员工在8月底签署了一封信，承认中共病毒的新“病例”数量在完全接种疫苗的人中一直在稳步上升。
+
+现在，佛蒙特州的住院病例数几乎达到了创纪录的水平。该州的记录显示9月份的死亡人数在记录里是排第二的。
+
+据报道，佛蒙特州几乎每个人都打了福奇推荐给他们的两针，而且许多人还打了拜登的“加强”针。
+
+另外，几乎全面接种中共病毒疫苗的马萨诸塞州、缅因州、康涅狄格州都出现了类似的住院和死亡人数激增的情况。
+
+康涅狄格州是美国疫苗接种率第二高的州，也同样出现了住院和死亡人数的大规模激增——以至于州立法机构最近延长了州长的紧急权力，以应对这一最新的病毒 “浪潮”。
+
+9月22日，美国接种疫苗最多的第三州缅因州出现了该州的一个大流行高峰。
+
+马萨诸塞州的疫苗接种率在全国排名第五。马萨诸塞州中部最大的卫生系统——UMass Memorial Healt——的负责人最近出来承认，自从该州的疫苗接种率接近完全达标，达到了应有的“群体免疫力”后，感染中共病毒的住院人数已经飙升了20倍。
+
+**新闻来源：[Most vaccinated state in America now seeing massive surge in covid hospitalizations](https://dreddymd.com/2021/10/10/most-vaccinated-state-in-america-now-seeing-massive-surge-in-covid-hospitalizations/)**

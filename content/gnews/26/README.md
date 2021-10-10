@@ -2,30 +2,50 @@
 ---
 
 
-## 美国接种中共病毒疫苗最多的州感染人数激增
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1584581/)
+## 稳定币可能用做银行储蓄，同月喜币上市
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1584588/)
 
-#### 撰稿：Grace
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-32.jpg)图片来源：半岛新闻
-据Dreddymd 10月10日报道， 尽管大约88%的佛蒙特州的居民现在已经“完全接种”了中共病毒疫苗，但是在该州可以看到感染了中共病毒的新住院人数在大量地增加。佛蒙特州正迅速成为全美国疫情最严重的州。
+作者：香草山金融部 – 闲聊钱币
 
-报告显示，自去年冬天的疫情的高峰期以来，该州的感染中共病毒的人数还没有出现过这样的剧烈飙升。
 
-报道称，共和党人菲尔·斯科特（Phil Scott）州长在6月解除了佛蒙特州的紧急状态，因为当时该州至少有80%的人口接受了至少一剂疫苗。
 
-可是，大约90名的佛蒙特州卫生局（VHD）的员工在8月底签署了一封信，承认中共病毒的新“病例”数量在完全接种疫苗的人中一直在稳步上升。
 
-现在，佛蒙特州的住院病例数几乎达到了创纪录的水平。该州的记录显示9月份的死亡人数在记录里是排第二的。
 
-据报道，佛蒙特州几乎每个人都打了福奇推荐给他们的两针，而且许多人还打了拜登的“加强”针。
 
-另外，几乎全面接种中共病毒疫苗的马萨诸塞州、缅因州、康涅狄格州都出现了类似的住院和死亡人数激增的情况。
 
-康涅狄格州是美国疫苗接种率第二高的州，也同样出现了住院和死亡人数的大规模激增——以至于州立法机构最近延长了州长的紧急权力，以应对这一最新的病毒 “浪潮”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-9月22日，美国接种疫苗最多的第三州缅因州出现了该州的一个大流行高峰。
 
-马萨诸塞州的疫苗接种率在全国排名第五。马萨诸塞州中部最大的卫生系统——UMass Memorial Healt——的负责人最近出来承认，自从该州的疫苗接种率接近完全达标，达到了应有的“群体免疫力”后，感染中共病毒的住院人数已经飙升了20倍。
 
-**新闻来源：[Most vaccinated state in America now seeing massive surge in covid hospitalizations](https://dreddymd.com/2021/10/10/most-vaccinated-state-in-america-now-seeing-massive-surge-in-covid-hospitalizations/)**
+
+
+
+
+据雅虎金融转载消息，稳定币已经成为美国金融稳定监督委员会(FSOC)的正式议题。该权威监管机构负责金融系统的走向。
+
+根据10月8日，周五公布的议程，FSOC考虑在下一次10月18日的会议上审议加密货币。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture5-1.jpg)
+这将是一次非公开会议。成员们将听取一份由总统特别工作组制定的报告。该报告主要阐述了将稳定币作为一种银行存款形式。工作组的成员还讨论了FSOC是否应该进一步对这种代币作为金融稳定工具的风险进行研究。
+
+财政部长耶伦同时领导这两个部门。特别工作组的成员和金融稳定委员会的成员都是重量极人物，包括美联储、证券交易委员会和其它机构的头面人物。
+
+十月，新中国联邦的喜币也将正式上线。
+
+掌控美国金融命脉的大鳄们在喜币上线之时讨论将稳定币做为银行储蓄，两者之间的关联确实让人浮想联翩。
+
+（本文仅代表作者观点）
+
+参考来源：[https://finance.yahoo.com/news/stablecoins-added-agenda-u-financial-210309494.html?fr=sycsrp\_catchall](https://finance.yahoo.com/news/stablecoins-added-agenda-u-financial-210309494.html?fr=sycsrp_catchall)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)

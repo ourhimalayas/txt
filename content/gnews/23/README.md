@@ -2,18 +2,16 @@
 ---
 
 
-## 稳定币可能用做银行储蓄，同月喜币上市
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1584588/)
+## 加州实施学童强制疫苗政策 但州长 12 岁女儿并未接种
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1584636/)
 
-作者：香草山金融部 – 闲聊钱币
-
-
+作者：文一
 
 
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
 
 
@@ -21,31 +19,32 @@
 
 
 
-据雅虎金融转载消息，稳定币已经成为美国金融稳定监督委员会(FSOC)的正式议题。该权威监管机构负责金融系统的走向。
+【Gateway Pundit】10 月 9 日报道：民主党加州州长加文-纽森在《洛杉矶时报》最近发表的一篇文章中承认，他12岁的女儿尽管符合强制疫苗接种条件，但还没有接受这种注射。
 
-根据10月8日，周五公布的议程，FSOC考虑在下一次10月18日的会议上审议加密货币。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture5-1.jpg)
-这将是一次非公开会议。成员们将听取一份由总统特别工作组制定的报告。该报告主要阐述了将稳定币作为一种银行存款形式。工作组的成员还讨论了FSOC是否应该进一步对这种代币作为金融稳定工具的风险进行研究。
-
-财政部长耶伦同时领导这两个部门。特别工作组的成员和金融稳定委员会的成员都是重量极人物，包括美联储、证券交易委员会和其它机构的头面人物。
-
-十月，新中国联邦的喜币也将正式上线。
-
-掌控美国金融命脉的大鳄们在喜币上线之时讨论将稳定币做为银行储蓄，两者之间的关联确实让人浮想联翩。
+10月1日，这位民主党州长宣布了美国首个 K-12 学童强制疫苗政策。文章强调，州长已经违反了他自己公布的疫苗政策，并指出很多疫情期间的限令只是针对普通民众，制定政策的政客们并未受其约束。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-27.jpg)
+参考链接：
+[Newsom Admits 12-Year-Old Daughter Has Not Yet Been Vaccinated Despite K-12 Vaccine Mandate for Rest of State](https://www.thegatewaypundit.com/2021/10/newsom-admits-12-year-old-daughter-not-yet-vaccinated-despite-k-12-vaccine-mandate-rest-state/)
 
 （本文仅代表作者观点）
 
-参考来源：[https://finance.yahoo.com/news/stablecoins-added-agenda-u-financial-210309494.html?fr=sycsrp\_catchall](https://finance.yahoo.com/news/stablecoins-added-agenda-u-financial-210309494.html?fr=sycsrp_catchall)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-编辑/校对/发稿：Hetangyuese
+新闻访谈终审：Q大哥
+编辑/校对/发稿：为真不破20
 
 **更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

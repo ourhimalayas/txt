@@ -2,22 +2,44 @@
 ---
 
 
-## 国家电网崩溃 黎巴嫩停电数日
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1584584/)
+## 加拿大艾伯塔省的医生使用伊维菌素治愈中共病毒患者，却引发 AHS 警告
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1584617/)
 
-#### 编译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-21.jpg)图片来源：网络截图
-据《以色列时报》10月10日报道，由于金融危机下的燃料短缺，黎巴嫩两个最大的发电站al-Zahrani和Deir Amar发电厂于周六关闭，全国范围内将面临数日的停电。
+栏目记者：禹水沃土
+责任编辑：晓仙女
 
-据LBCI电视网报道，在这两个发电厂的燃料耗尽后，它们与电网的分离使国家电力生产降低到200兆瓦以下，迫使其倒闭。一位政府官员说：黎巴嫩的电力网络在下周一之前，或者在几天之内，它都不太可能工作。国家电力公司将尝试使用军队的燃料储备来暂时运营这些电厂，但这不太可能很快发生。
 
-这个拥有600万人口的国家正在经历有史以来最严重的金融危机，货币贬值约90%，人们的储蓄被困在银行，合格的劳动力成群结队地移民。它被世界银行描述为19世纪50年代以来世界上最严重的危机之一。
 
-黎巴嫩持续的经济危机根源于统治阶级数十年来的腐败和管理不善，以及依靠赞助和裙带关系蓬勃发展的一个以教派为基础的政治体系。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-15.png)
 
-真主党领导人哈桑·纳斯鲁拉在8月宣布，伊朗正在向黎巴嫩运送燃料，以帮助缓解危机。黎巴嫩总理纳吉布·米卡提说，这些货物侵犯了黎巴嫩的主权，没有得到他的政府的批准。
 
-埃及、约旦、叙利亚和黎巴嫩的能源部长上个月早些时候同意了一项计划，将埃及的天然气和约旦的电力通过叙利亚输送到黎巴嫩。
 
-新闻来源：[Lebanon left without power for days after state-run grid collapses](https://www.timesofisrael.com/lebanon-faces-several-days-without-power-after-state-run-grid-collapses/)
+
+
+10 月 8 日 CBC 新闻报道，一位加拿大阿尔伯塔省农村医院接诊的医生，用伊维菌素治愈了三名中共病毒患者，却引发了省卫生当局，关于这种药物的所谓“危险性警告”。温哥华的 Daniel Nagase 博士表示：他9 月份给阿尔塔省 Rimbey 医院的患者服用了伊维菌素，让患者在一周内出医院，并且其中两名患者在 18 小时内“几乎完全好转”。可省级卫生官员却拒绝向全省提供挽救生命的药物，反而扣留了整个省的救命药。CBC这篇报道证明：尽管邪恶利益集团一再阻挠人们使用安全廉价的有效药物，但越来越多的治愈案例，已令左媒即使再不情愿，也不得不开始正视。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-33.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-6.jpg)
+参考链接：
+[Doctor who says he gave ivermectin to rural Alberta COVID-19 patients prompts warning from health authority](https://www.cbc.ca/news/canada/edmonton/ivermectin-covid-alberta-nagase-1.6205075)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Ryan
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
