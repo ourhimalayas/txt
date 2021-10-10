@@ -2,32 +2,21 @@
 ---
 
 
-## 物资断流劳动力短缺 英美预期食品短缺
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585583/)
+## 荷兰实验室研究中国人的DNA
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1585606/)
 
-作者：飞虹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-最近，美国各地的物品短缺状况正在陆续出现。人们感受最直接的首先是食品，在德克萨斯州的一些杂货店，空货架林立，许多人无法一次购买到所需的全部物品。而面临货源短缺问题的，德州并不是唯一。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10101-1.jpg)
+近年来，荷兰三大实验室与中(共)国科学家一起合作开发能够预测人的头发、眼睛或皮肤颜色的 DNA 研究技术。鉴于中(共)国当局可能将这些技术用于侵犯人权的目的，例如跟踪和大规模监视维吾尔族和藏族少数民族，这一消息在荷兰引发了批评和担忧。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-9.jpeg)
+TV [Rtl Nieuws](https://www.rtlnieuws.nl/nieuws/artikel/5258161/nederland-china-dna-oeigoeren-mensenrechten)和独立网络杂志 Follow the Money的记者的揭露让荷兰的卓越科学研究中心感到尴尬，首先是鹿特丹的 Erasmus 医疗中心。据称，参与这些活动的中（共）国研究人员与中(共)国警方有联系。据荷兰记者透露，其中一些人是由北京警方直接雇用或支付的。
 
-中共病毒大流行期间，真正有效的治疗药物的使用被阻止，政府和医疗机构为大药厂站台，强推全民毒针计划，用疫苗健康证明束缚民众生活，严重侵犯自由和生存权。随着疫苗接种率的提升，受新冠疫苗伤害的人员范围越来越大，未接种者被迫离开职位，灾难进一步凸显。
+荷兰研究机构与中(共)国当局之间的关系，让学术界的各界人士感到震惊。他们认为这种合作是“根本错误的”，因为所获得的知识直接落入了中(共)国警方手中，他们利用这些技术镇压和迫害少数民族。
 
-由此造成的人工短缺及物流运作延误，致使供应链正在崩溃。美国各地公司预计，从人造圣诞树、体育用品到感恩节火鸡，各类商品都将出现短缺和价格上涨。集装箱船积压，意味着货物无法从港口运到仓库，通往零售商和消费者的路更是充满不确定性。德克萨斯州的几家餐馆不得不雇佣机器人来解决员工短缺的问题。
+RTL Nieuws 的中国记者罗兰·斯密德( Roland Smid)还说：”荷兰的所有主要大学都在中(共)国政府和共产党的直接控制之下，这些大学的主要目标是帮助国家朝着政治领导人指示的方向前进”。
 
-(本文仅代表作者观点)
+免责申明：本文只代表译者观点，与Gnews无关
 
-参考链接：[Experts Warn Food Shortages Are Coming To Texas](https://original.newsbreak.com/@matt-lillywhite-561024/2392885360162-experts-warn-food-shortages-are-coming-to-texas)
+原文链接：[https://europa.today.it/attualita/ricerca-dna-cina-minoranze-etniche-olandesi.html#\_ga=2.5894970.863444649.1633877988-145009575.1615972944](https://europa.today.it/attualita/ricerca-dna-cina-minoranze-etniche-olandesi.html#_ga=2.5894970.863444649.1633877988-145009575.1615972944)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦

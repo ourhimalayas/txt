@@ -2,22 +2,26 @@
 ---
 
 
-## 有声|美团因反垄断调查被处以 5.3 亿美元罚款
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1585503/)
+## 抗议疫苗护照义务化 意大利爆发大规模示威活动
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585551/)
 
-配音：香草山教育部-蒙古鸿雁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-【华尔街日报】10 月 8 日报道，中共市场监管总局对美团进行反垄断调查，美团被处以约 5.3 亿美元的罚款，原因是美团强制商家签署“排他性”协议，只能使用其一家平台销售商品和服务。
+作者：文小白
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+NHK消息, 为抗议从本月15日起新冠疫苗接种证明携带义务化的政令，意大利首都罗马爆发了大规模抗议活动 ，超过万人参加了游行示威活动 , 人们挤满了广场和街道，并高喊“自由！”口号，意大利政府出动了水车等对人游行人群进行驱离。
 
-中共政府针对美团的反垄断调查始于今年 4 月。这次对美团的罚款要小于预期，约相当于美团国内总收入的百分之三。此外，中国市场监管部门还命令美团退还商家支付的独家合作保证金，总额约合两亿美元。今年 7 月，美团被责令改善其员工工作条件，并向其配送员支付高于国家最低工资标准的薪资。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-16.jpeg)
 
-今年以来，中共政府对国内科技巨头采取一系列监管措施，以反垄断调查为借口，频频开出罚单，试图缓解日益严重的金融危机，防止金融体系的崩塌。
+截至本月9日，意大利全境已经有80%的接种者完成了疫苗接种。因此意大利政府决定出台政令, 所有人都必须携带疫苗接种证明或检测结果阴性证明，违反者将被禁止出入公共场所,不能搭乘公共交通甚至被停职 或被处以罚款。
 
-文字版原文：[美团因反垄断调查被处以 5.3 亿美元罚款](https://gnews.org/zh-hans/1582502/)
+(本文仅代表作者观点)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
+参考链接：[イタリア 接種証明の携帯義務化 反対の人たちが大規模抗議デモ](https://www3.nhk.or.jp/news/html/20211010/k10013300611000.html)
+
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：文龍
+编辑/校正/发稿：谐趣园
+
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)

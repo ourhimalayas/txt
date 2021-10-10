@@ -2,25 +2,28 @@
 ---
 
 
-## 上半年585人涉刑，金额达496亿元！银行保险职务和业务犯罪严重
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1585286/)
+## 坚持个人疫苗接种选择，洛杉矶消防员将起诉政府
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585328/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4225.jpg)[图片来源](https://www.sohu.com/a/312415426_120043561)
-据“澎湃新闻”10月9日报道，中共银保监会近日向各机构下发关于2021年上半年银行保险机构涉刑案件情况的通报，并以案例形式介绍了六大案发情况。
+作者：文龍
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月10号文贵先生在其盖特转发了一则短视频，是来自美国洛杉矶当地媒体的报，视频中当地消防员安德烈称。他和其他871名消防员联名，通过律师提交了起诉洛杉矶市政府的告知文件，原因是政府警告消防员必须在10月20日之前全部接种疫苗，否则将被解雇或停薪留职。消防员坚持自己的选择，并将向法庭提出要求每人200万美元的赔偿，因为自己的选择将导致失业!消防员们称。此举不仅是因为疫苗，而是关系到人权和法律程序。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/p89.002.jpeg)
+文贵先生在他的盖特中对此事件评论道:
 
-根据通报，今年上半年，银行保险机构案件继续呈高发态势，共报告案件和案件风险事件1367件，涉及金额495.80亿元。共有585名银行保险机构从业人员被采取强制措施，其中银行金融机构480人，保险机构105人。从查办机关看，公安机关侦办405人，纪检监察机关查办180人。
+“洛杉矶发生的这种将面临没有消防员的情况，会在全球的电力、医院、警察等所有公共领域发生。全球的政府将面对无法计算的诉讼，以及社会公共灾难等巨大的社会问题，这是中共病毒和疫苗带来的灾难，是对人类社会秩序的摧毁性打击。这一结果完全在邪恶势力、和中共的计划之中。只有新中国联邦在2020年一月份就开始警告世界，疫苗才是灾难的真正核心。但愿世界早日醒来，我们新中国联邦人将为此奋斗到底 ” 。
+(本文仅代表作者观点)
 
-通报显示，银行保险机构案发呈现的主要风险和问题有六类：一是金融腐败与业务违法违规交织；二是中小银行机构内源性问题突显；三是金融科技应用潜藏风险；四是不良资产处置领域道德风险突出；五是个人住房贷款诈骗手段翻新；六是重大保险案件危害大。
+参考链接：[郭文贵先生 10月10号的盖特](https://gettr.com/post/pdp5du787c)
 
-中共金融系统历来是犯罪严重的领域，上有权贵家族的“盗国犯罪”，往下又有各级各层次的职务和业务的“普通犯罪”。此次中共银保监会通报的仅仅是“普通犯罪”，就已足以让人触目惊心，这种系统性的腐败就是中共“以贪治国”在金融领域的侧面反映。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-信息来源：
+编辑/校正/发稿：我不在这里
 
-[上半年银行保险585人涉刑案被采取强制措施，涉案496亿元\_案件](https://www.sohu.com/a/494133671_260616)
-
-(文章仅代表作者本人观点，与GNEWS无关)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
