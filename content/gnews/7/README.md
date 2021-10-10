@@ -2,30 +2,35 @@
 ---
 
 
-## 加拿大艾伯塔省的医生使用伊维菌素治愈中共病毒患者，却引发 AHS 警告
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1584617/)
+## 加州实施学童强制疫苗政策 但州长 12 岁女儿并未接种
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1584636/)
 
-栏目记者：禹水沃土
-责任编辑：晓仙女
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-15.png)
+作者：文一
 
 
 
 
 
-10 月 8 日 CBC 新闻报道，一位加拿大阿尔伯塔省农村医院接诊的医生，用伊维菌素治愈了三名中共病毒患者，却引发了省卫生当局，关于这种药物的所谓“危险性警告”。温哥华的 Daniel Nagase 博士表示：他9 月份给阿尔塔省 Rimbey 医院的患者服用了伊维菌素，让患者在一周内出医院，并且其中两名患者在 18 小时内“几乎完全好转”。可省级卫生官员却拒绝向全省提供挽救生命的药物，反而扣留了整个省的救命药。CBC这篇报道证明：尽管邪恶利益集团一再阻挠人们使用安全廉价的有效药物，但越来越多的治愈案例，已令左媒即使再不情愿，也不得不开始正视。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-33.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-6.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+
+
+
+
+
+
+
+【Gateway Pundit】10 月 9 日报道：民主党加州州长加文-纽森在《洛杉矶时报》最近发表的一篇文章中承认，他12岁的女儿尽管符合强制疫苗接种条件，但还没有接受这种注射。
+
+10月1日，这位民主党州长宣布了美国首个 K-12 学童强制疫苗政策。文章强调，州长已经违反了他自己公布的疫苗政策，并指出很多疫情期间的限令只是针对普通民众，制定政策的政客们并未受其约束。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-27.jpg)
 参考链接：
-[Doctor who says he gave ivermectin to rural Alberta COVID-19 patients prompts warning from health authority](https://www.cbc.ca/news/canada/edmonton/ivermectin-covid-alberta-nagase-1.6205075)
+[Newsom Admits 12-Year-Old Daughter Has Not Yet Been Vaccinated Despite K-12 Vaccine Mandate for Rest of State](https://www.thegatewaypundit.com/2021/10/newsom-admits-12-year-old-daughter-not-yet-vaccinated-despite-k-12-vaccine-mandate-rest-state/)
 
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-新闻访谈终审：Ryan
+新闻访谈终审：Q大哥
 编辑/校对/发稿：为真不破20
 
 **更多资讯，更多关注**

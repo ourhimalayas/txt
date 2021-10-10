@@ -2,22 +2,50 @@
 ---
 
 
-## 国家电网崩溃 黎巴嫩停电数日
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1584584/)
+## 稳定币可能用做银行储蓄，同月喜币上市
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1584588/)
 
-#### 编译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-21.jpg)图片来源：网络截图
-据《以色列时报》10月10日报道，由于金融危机下的燃料短缺，黎巴嫩两个最大的发电站al-Zahrani和Deir Amar发电厂于周六关闭，全国范围内将面临数日的停电。
+作者：香草山金融部 – 闲聊钱币
 
-据LBCI电视网报道，在这两个发电厂的燃料耗尽后，它们与电网的分离使国家电力生产降低到200兆瓦以下，迫使其倒闭。一位政府官员说：黎巴嫩的电力网络在下周一之前，或者在几天之内，它都不太可能工作。国家电力公司将尝试使用军队的燃料储备来暂时运营这些电厂，但这不太可能很快发生。
 
-这个拥有600万人口的国家正在经历有史以来最严重的金融危机，货币贬值约90%，人们的储蓄被困在银行，合格的劳动力成群结队地移民。它被世界银行描述为19世纪50年代以来世界上最严重的危机之一。
 
-黎巴嫩持续的经济危机根源于统治阶级数十年来的腐败和管理不善，以及依靠赞助和裙带关系蓬勃发展的一个以教派为基础的政治体系。
 
-真主党领导人哈桑·纳斯鲁拉在8月宣布，伊朗正在向黎巴嫩运送燃料，以帮助缓解危机。黎巴嫩总理纳吉布·米卡提说，这些货物侵犯了黎巴嫩的主权，没有得到他的政府的批准。
 
-埃及、约旦、叙利亚和黎巴嫩的能源部长上个月早些时候同意了一项计划，将埃及的天然气和约旦的电力通过叙利亚输送到黎巴嫩。
 
-新闻来源：[Lebanon left without power for days after state-run grid collapses](https://www.timesofisrael.com/lebanon-faces-several-days-without-power-after-state-run-grid-collapses/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+
+
+
+
+
+
+
+据雅虎金融转载消息，稳定币已经成为美国金融稳定监督委员会(FSOC)的正式议题。该权威监管机构负责金融系统的走向。
+
+根据10月8日，周五公布的议程，FSOC考虑在下一次10月18日的会议上审议加密货币。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture5-1.jpg)
+这将是一次非公开会议。成员们将听取一份由总统特别工作组制定的报告。该报告主要阐述了将稳定币作为一种银行存款形式。工作组的成员还讨论了FSOC是否应该进一步对这种代币作为金融稳定工具的风险进行研究。
+
+财政部长耶伦同时领导这两个部门。特别工作组的成员和金融稳定委员会的成员都是重量极人物，包括美联储、证券交易委员会和其它机构的头面人物。
+
+十月，新中国联邦的喜币也将正式上线。
+
+掌控美国金融命脉的大鳄们在喜币上线之时讨论将稳定币做为银行储蓄，两者之间的关联确实让人浮想联翩。
+
+（本文仅代表作者观点）
+
+参考来源：[https://finance.yahoo.com/news/stablecoins-added-agenda-u-financial-210309494.html?fr=sycsrp\_catchall](https://finance.yahoo.com/news/stablecoins-added-agenda-u-financial-210309494.html?fr=sycsrp_catchall)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
