@@ -2,18 +2,37 @@
 ---
 
 
-## 纽约医院拒不使用伊维菌素 感染中共病毒的前越战老兵不幸逝世
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1584687/)
+## 澳洲维多利亚州：继9月地震后再次发生地震
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1584749/)
 
-#### 撰稿：zzballack
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-48.jpg)图片来源：福布斯
-据 Flag and Cross 网站10月8日报道，纽约一名男子因为其所在医院拒绝使用伊维菌素对他进行治疗而不幸死亡。该医院甚至拒绝执行法院下达的使用伊维菌素命令。
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/r0_0_800_600_w1200_h678_fmax.jpg)
+图片来源：canberratimes.com.au
 
-据电视台WHEC-TV报道，已完全接种中共病毒疫苗的越战老兵杰里米·卡特（Jeremy L. Carter）8月28日在被检测出中共病毒呈阳性后，被送入罗切斯特总医院（Rochester General Hospital）。医生最初给他开了瑞德西韦（Remdesivir）和地塞米松（Dexamethasone）药物进行治疗。但到了9月20日，由于病情恶化，他被转到了重症监护室。
+**整理报道：**小红帽
 
-卡特的女儿问她父亲的医生是否可以让父亲开始服用伊维菌素，因为一些医生说伊维菌素对减轻中共病毒症状很有效。医生对此表示同意并写了治疗方案。然而，当把这一方案告诉罗切斯特总医院时，医院却断然拒绝使用该疗法。因此卡特和他的女儿将医院告上法庭。赢得裁决后，他们要求医院采用医生的伊维菌素方案，但是医院仍然拒绝执行。罗切斯特地区卫生局甚至提出上诉，让法院允许他们拒绝使用该疗法。由于医院继续拒绝使用伊维菌素等有效药物治疗患者，卡特在10月2日不幸逝世。
+10月9日周六凌晨3点47分，澳大利亚维多利亚州发生地震。该州的紧急服务中心收到了100多份来自居民的震感报告。
 
-这则新闻让人痛心，一位曾上过战场、为国奋战的老兵就这样不幸逝世。更让人扼腕的是医院的蛮横无理和无视科学甚至法庭，本该救死扶伤的人却成了间接杀手。虽然不知医院为何坚持拒绝使用伊维菌素，是对药物的偏见还是其它更为邪恶的动机，但是它别想逃过日后的追责。
+维多利亚州紧急服务中心表示，在默里维尔（Murrayville）附近发生了4.8级地震，震源深度为2公里。
 
-新闻来源：[Man Dies from COVID as Hospital Refuses to Treat Him with Ivermectin Despite Court Orders](https://flagandcross.com/man-dies-from-covid-as-hospital-refuses-to-treat-him-with-ivermectin-despite-court-orders/)
+在地震发生后的几个小时内，人们感受到了几次余震。根据测量，地震分别为3.0、2.8和2.6级。
+
+就在两周前，该州于9月22日就经历了有记录以来最大的地震。
+
+曼斯菲尔德（ Mansfield）发生的5.8级地震损坏了建筑物，整个墨尔本乃至堪培拉、悉尼和阿德莱德都有震感。大约15分钟后，第二次地震也发生在曼斯菲尔德，震级为4级。
+
+一名男子在进行建筑工作时受了轻伤。地震发生后，收到超过100个求助电话，其中55个来自​​墨尔本市区。大多数造成的是对烟囱、外墙和旧建筑的轻微结构损坏。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**新闻来源**：[Victoria hit by ANOTHER earthquake near Murrayville just two weeks after experiencing its worst in history | 7NEWS](https://7news.com.au/weather/natural-disasters/another-earthquake-recorded-in-victoria-c-4189277)
+
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
