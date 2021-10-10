@@ -2,38 +2,32 @@
 ---
 
 
-## 在安大略镇结婚需要全面接种疫苗
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1584902/)
+## 习近平称中共继承了孙中山遗愿遭台湾强烈反弹
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585029/)
 
-- **西班牙巴塞罗那喜悦农场—wenwu**
+作者：：在远方
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip283.png)
 
-安大略省的奥克维尔市现在要求提供全面接种疫苗的证明，才能颁发结婚证。
+10月10日，台湾举行庆祝“中华民国110年国庆”的双十节活动，总统蔡英文发表演讲中郑重的表示，“维持现状就是我们的主张，我们也会全力阻止现状被片面改变”。针对中共不断叫嚣的”武统”威胁挑衅，蔡英文提醒全世界，台湾对于主权不会退让。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/p1.001.jpeg)
+就在一天前的9号，中共党魁习近平在其讲话中称 “中共继承了孙中山的遗愿”，该视频段落在网上热传，在台湾更引发强烈反弹。正如郭文贵先生所说，共产党的以孙灭台，武统台湾，宣讲大会结束，台湾危了！
+(本文仅代表作者观点)
 
-奥克维尔的[疫苗规定](https://www.oakville.ca/townhall/proof-of-vaccination.html)于 9 月 22 日生效。其内容为奥克维尔将要求任何年满 12 岁或以上的人，或者获得“任何新的结婚证和结婚仪式预约的”，需要提供身份证明和完全接种中共（COVID-19）疫苗（或医疗豁免）的证明……值得一提的是，已经预订的结婚证和仪式不需要接种中共疫苗；显而易见的还有，奥克维尔市的疫苗强制令已经超过了安大略省的要求。
+参考链接：[习近平称中共继承了孙中山遗愿遭台湾强烈反弹](https://www.rfi.fr/cn/中国/20211009-习近平称中共继承了孙中山遗愿遭台湾强烈反弹)
 
-《后千禧年》[报道](https://thepostmillennial.com/ontario-town-requires-full-vaccination-to-get-married)说，“进入餐厅、健身房、夜总会、体育赛事、音乐会、赌场、脱衣舞俱乐部等需要全面接种疫苗。” 他们指出，有一些例外情况，包括人们进入某个区域使用洗手间、承包商出于工作目的进入建筑物，以及获得基本服务的人。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-**简评：**
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
 
-**邪恶势力的生物疫苗，可以管天管地，还管生殖器。**
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**疫苗的灾难在于管控人类的行为。另外，疫苗的出发点绝不是出于保护自己或者他人的社会健康，而是一些利益集团的屠杀手段，以及具有粉饰地欺诈、抢劫行为。**
-
-**另外，一则相关报道。**
-
-**盖特战友[@Myway](https://gettr.com/post/pdmyh6e917)的盖文分享。安大略省教师工会持有阿里巴巴、微软公司和中共疫苗的股票！！！现在明白他们为什么拼命逼学生打疫苗了吧！**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip282.png)
-
-（文章仅代表作者观点与GNEWS无关）
-
-**新闻来源：《[门户网](https://www.thegatewaypundit.com/2021/10/full-vaccination-required-get-married-ontario-town/)》｜作者：卡桑德拉·费尔班克斯｜发布时间：2021年10月9日**
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

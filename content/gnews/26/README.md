@@ -2,32 +2,17 @@
 ---
 
 
-## 习近平称中共继承了孙中山遗愿遭台湾强烈反弹
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585029/)
+## 秘翻在线：宇都宫市的园区仓持呼吸内科医院院长仓持仁的担忧
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1585073/)
 
-作者：：在远方
+撰稿：待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/画像1-6.png)（图片源自本文链接）
+10月9日，中日体育报道了一位日本医院院长对当前医疗环境的担忧。能把这种担忧发到推特上的医生越多，对人类越有利，不是吗？
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+位于宇都宫市的园区仓持呼吸内科医院院长仓持仁通过电视和自己的YouTube频道，用医疗现场的实例发出自己的声音。9日，他不断地更新自己的Twitter，例举实例，表达对中共病毒灾难后医疗系统的恶化之担忧。
 
+仓持仁院长举例说：因为觉得不舒服，走不动，所以叫了救护车。但是，他们只是给做了最简单的生命体征检查（血压、心率、呼吸数、体温），说了声不要紧，就拒绝了拉患者去医院。就这例恶化，80多岁的人，被认为没有大碍，拒绝送去医院的要求。我真的被惊呆了！这就是我们想要的吗？我觉得，对于被认为不符合条件的人来说，获得医疗服务越来越困难。这对自助医疗以及家庭护理的影响是巨大的。无论中共病毒来不来，我都对即将到来的冬天感到非常可怕！如果我晚一天，我前面说过那个人（第一条推文中介绍的）就会死。自中共病毒灾难以来，医疗环境已经发生了变化。
 
+[信息源](https://news.yahoo.co.jp/articles/88284eb34d98f6aced5d446ef4f20ede58c7e1c4)
 
-10月10日，台湾举行庆祝“中华民国110年国庆”的双十节活动，总统蔡英文发表演讲中郑重的表示，“维持现状就是我们的主张，我们也会全力阻止现状被片面改变”。针对中共不断叫嚣的”武统”威胁挑衅，蔡英文提醒全世界，台湾对于主权不会退让。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/p1.001.jpeg)
-就在一天前的9号，中共党魁习近平在其讲话中称 “中共继承了孙中山的遗愿”，该视频段落在网上热传，在台湾更引发强烈反弹。正如郭文贵先生所说，共产党的以孙灭台，武统台湾，宣讲大会结束，台湾危了！
-(本文仅代表作者观点)
-
-参考链接：[习近平称中共继承了孙中山遗愿遭台湾强烈反弹](https://www.rfi.fr/cn/中国/20211009-习近平称中共继承了孙中山遗愿遭台湾强烈反弹)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（文章仅代表作者个人观点）

@@ -2,44 +2,36 @@
 ---
 
 
-## 澳大利亚 &#8211; 拒绝疫苗，坚持抗争
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1585011/)
+## 总加速师护航：App停用不影响邮储银行坐吞火币退款
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585066/)
 
-**简评：**
+作者：安吉拉
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+大陆债务违约遍地暴雷，中共六大银行集体粉饰利润上行，邮储银行年中报净利润同比增长22.48%，为行业水平两倍。新浪搜狐“马甲”官宣一致推崇，力赞邮储极高成长性，资产质量保持行业领先。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.10AM-PICTURES-235789.001.jpeg)
+作为国家机器之一，中国邮政具有不被民营取代的优势，更垄断特殊机密渠道，享受国家补贴。昨日官网发布公告，称因业务调整，有步骤于年内停止邮储生活App全部服务。从应用上架到服务停止，邮储银行的App早已习惯了被用户吐槽，但这并不影响习近平家族护航下的资产转移大计划。
 
-曾在Qantas Airways航空公司服役32年的Graham Hood机长表示澳大利亚已经失去了国家精神，呼吁澳大利亚人起来抗争，反对疫苗护照。很多拒绝疫苗、不签署授权书的人正在失去工作，严酷的立法剥夺了很多澳大利亚人为国家服务的权利。这样的事情必须停止。是时候说“不”了，继承祖先的精神，一定要坚持。你并不孤单，很多人与你同在。
+中国邮政储蓄银行成立较晚，于2007年3月20日正式挂牌，一跃成为中国第五大银行，网点遍布全国各地包括偏远山区。承载国际结算业务包括进出口贸易、外商投资和本外币资金流。国际战略投资者涉猎甚广，从2015年起就包括：瑞士银行、摩根大通、星展银行、加拿大养老基金、淡马锡和国际金融公司，同时包括中国人寿、中国电信两家大型国企，以及蚂蚁金服和腾讯两家互联网公司。
 
-[GTV视频链接](https://gtv.org/video/id=61616af7d2e2b8174873269f)
+根据郭文贵先生爆料，邮储银行的上市是全球最大的蓝金黄案件，未来邮储银行一定会倒闭。火币平台老板和财务等相关人员早已被中共牢牢控制，准备接受火币退款的三家银行中就有邮储银行。邮储银行应用App下架，将对有火币退款项目发生的用户直接造成技术壁垒。
+(本文仅代表作者观点)
 
+参考链接：
 
-
-**视频字幕:**
-
-**Graham Hood 机长**：我是Graham Hood机长，曾在Qantas Airways 航空公司有32年的指挥经验。
-
-我一个月前做的视频传遍世界各地，成千上万的人给我发信息。我现在每天收到至少5000个信息，所以不能一一回复。
-
-但是我看到的信息讲的都是同一个故事，我们已经失去了澳大利亚精神。我们正在失去我们的国家，我们需要为此做些什么。
-
-但是让我最伤心的是，很多拒绝疫苗的人正在失去工作。他们是普普通通的澳大利亚人，他们也是具有很好教育的澳大利亚人。我指的是成千上万名护士、数百名医生，还有急救人员、飞行员和警察。他们都在说，“我们不签署授权书”。他们不是傻瓜，许多人拥有多个学位，他们一直在学习。他们有很高的职业热情，并且强烈希望继续自己的事业；但是他们不能，因为严酷的立法剥夺了他们继续服务这个国家人民的权利。
-
-这样的事情必须停止。我很高兴看到目前一些法律诉讼正在进行，有人提出真正的问题。不是所有的法官都同意（政府的做法），其中一些提出不同看法。
-
-所以此时此刻我要对你们说的是，那些认为自己将要失去工作的人，因为他们从海外招募填补你们的职位。澳大利亚人不能为自己的国家工作，我们会出问题的。
-
-你们一定要坚持、一定要坚强，做真实的自己、守住阵脚，因为我们不可能什么都不说就让这件事这样下去。是我们说“不”的时候了，这正是我们现在做的。
-
-我们正在说“不”，继承我们祖先的精神。所以一定要坚持。我们以你们为傲，你们并不孤单，很多人与你们一起。
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*字幕/听写：云岭|翻译：Roberts|PR：Wade| 简评/文字整理/编辑：胖丁| Page：小六月*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+1. [邮储银行，为什么跑出了净利润“双倍速“？](https://finance.sina.cn/jinrong/2021-09-03/detail-iktzqtyt3911091.d.html?oid=408ab&amp;vt=4&amp;cid=76653&amp;node_id=76653)
+2. [中国邮储银行：因业务调整，将停止邮储生活APP全部服务|APP|邮储相关服务](https://finance.sina.com.cn/tech/2021-10-09/doc-iktzqtyu0430896.shtml)
+3. [中国邮储银行战略引资451亿元对定价满意 IPO规模将视市场情况](https://www.reuters.com/article/cn-postal-bank-idCNKBS0TS0OC20151209)
+4. [9/29/2021 郭先生直播：火币退钱的三大指定银行是上海银行、中国银行和邮储银行](https://gnews.org/zh-hans/1564718/)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+编辑/校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
