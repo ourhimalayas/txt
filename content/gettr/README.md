@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/10/2021 11:23 PM (UTC)`
+
+10/10/2021 Miles Guo: Taiwan is in DANGER! Biden signed pro-CCP promises in writing; Three fundamental conditions for the US to sell out Taiwan: 1) The CCP continues buying the US Treasury securities; 2) The CCP and the US won’t stop military exchanges and won’t have military conflicts in the South China Sea and Taiwan; 3) The US firmly adheres to the “One-China policy” and opposes Taiwan independence, without emphasizing “neither side of the Taiwan Strait can change the status quo”; So, the CCP is essentially given the legitimacy to invade Taiwan in the name of Sun Yat-sen and eliminating Taiwan independence<br/><br/>10/10/2021 文贵直播: 台湾危矣！拜登签署了亲共的文字性承诺；美国卖台的三大根本条件：1) 中共继续买美国国债；2)保持中美军事交流，在南海和台湾不发生军事冲突；3) 美方坚决支持一中并反对台独，不强调”两岸任何一方不改变现状”；这等同于给了中共以孙中山和灭台独的名义拿下台湾的合法性<br/>
+![img](https://media.gettr.com/group44/getter/2021/10/10/23/23/588712d3-49f7-dd18-7513-845eef6c832d/out.jpg)
+
+---
+
 `@miles 10/10/2021 5:37 PM (UTC)`
 
 10-10日：火山红．灭共又灭毒！
@@ -287,13 +294,6 @@ Project Veritas releases videos series to expose the truth of the CCP Virus vacc
 
 10月7号：我那个老天爷来……
 > `@anping2016 10/7/2021 12:04 PM (UTC)`<br/>越离真相多么近<br/>越知战友多么勇<br/>🙏🙏🙏🙏🙏🙏
-
----
-
-`@miles 10/7/2021 9:29 AM (UTC)`
-
-September 20th, 2021 — German Corona Investigative Committee Press Conference (2)<br/><br/>1️⃣Dr. Elmor Becker told a story to explain what the post vaccination "turbo cancer" is!  <br/>2️⃣Mr. Helga Fischer, Attorney:<br/>Europe should have test protocols and standards using microscope to examine vaccine batches. If these "un-declared" substances in the vaccines cannot be identified in Germany, this is a scandal.<br/>3️⃣Dr. Maria Hubmer- Mogg, MD:<br/>We should request to remove the vaccines off the market and the approval of the Emergency Authorization Use has to be stopped . It is a crime to vaccinate youngsters and babies!<br/><br/>Full German version: https://gtv.org/video/id=614b401442a8af3151a34afa<br/>Full English version: https://gtv.org/video/id=61598e4c304e992109ae6487
-![img](https://media.gettr.com/group3/origin/2021/10/07/09/29/c851d3c0-8986-d136-3879-159afe643e5b/out.jpg)
 
 ---
 
