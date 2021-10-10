@@ -15,119 +15,119 @@
 
 ---
 
-### [“5G消息”10月试商用 中共加速数字人民币应用落地](/content/gnews/1/README.md)
+### [西南飞行员工会起诉航空公司，阻止疫苗强制接种](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [“5G消息”10月试商用 中共加速数字人民币应用落地](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本首相现场视察新冠口服药临床试验](/content/gnews/2/README.md)
+### [日本首相现场视察新冠口服药临床试验](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [辉瑞爆料人被解雇](/content/gnews/3/README.md)
+### [辉瑞爆料人被解雇](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纳瓦罗新书直击福奇](/content/gnews/4/README.md)
+### [纳瓦罗新书直击福奇](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [1/4洛杉矶市消防员发起针对强制接种中共病毒疫苗的法律诉讼](/content/gnews/5/README.md)
+### [1/4洛杉矶市消防员发起针对强制接种中共病毒疫苗的法律诉讼](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [不惧中共胁迫，蔡总统发誓捍卫台湾民主](/content/gnews/6/README.md)
+### [不惧中共胁迫，蔡总统发誓捍卫台湾民主](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [医生说他给阿尔伯塔省农村中共病毒患者服用伊维菌素，卫生当局发出警告](/content/gnews/7/README.md)
+### [医生说他给阿尔伯塔省农村中共病毒患者服用伊维菌素，卫生当局发出警告](/content/gnews/8/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/8/README.md)
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/9/README.md)
  ` wenwu`
 
-### [普京拿下克里米亚，中共将军们想同样方式拿下台湾](/content/gnews/9/README.md)
+### [普京拿下克里米亚，中共将军们想同样方式拿下台湾](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [脸书禁止人们提及众所周知的疫苗伤害](/content/gnews/10/README.md)
+### [脸书禁止人们提及众所周知的疫苗伤害](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [习近平辛亥革命110周年演讲发出强烈信号，坚决完成武统台湾](/content/gnews/11/README.md)
+### [习近平辛亥革命110周年演讲发出强烈信号，坚决完成武统台湾](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [以科学破除中共病毒疫苗的迷思](/content/gnews/12/README.md)
+### [以科学破除中共病毒疫苗的迷思](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共全面禁止非公有资本开展新闻传媒业务](/content/gnews/13/README.md)
+### [中共全面禁止非公有资本开展新闻传媒业务](/content/gnews/14/README.md)
  ` 纽约香草山MOS02`
 
-### [2021年10月10日 文贵大直播：烂账烂房坏美国，中美勾兑压台湾音频](/content/gnews/14/README.md)
+### [2021年10月10日 文贵大直播：烂账烂房坏美国，中美勾兑压台湾音频](/content/gnews/15/README.md)
  ` 神奇四侠`
 
-### [从恒大事件看中共国的“房事”](/content/gnews/15/README.md)
+### [从恒大事件看中共国的“房事”](/content/gnews/16/README.md)
  ` HimalayaRussia`
 
-### [有声|新中国联邦是世界新的希望](/content/gnews/16/README.md)
+### [有声|新中国联邦是世界新的希望](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [有声|喜马拉雅货币及喜马拉雅金融生态系统](/content/gnews/17/README.md)
+### [有声|喜马拉雅货币及喜马拉雅金融生态系统](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [有声|白宫支持对科技平台的 “危害 “进行监管](/content/gnews/18/README.md)
+### [有声|白宫支持对科技平台的 “危害 “进行监管](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声|FaceBook（非死不可）正面临末日的开始](/content/gnews/19/README.md)
+### [有声|FaceBook（非死不可）正面临末日的开始](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [“国家审计”证明拜登赢得了选举是“大谎言”](/content/gnews/20/README.md)
+### [“国家审计”证明拜登赢得了选举是“大谎言”](/content/gnews/21/README.md)
  ` HimalayaRussia`
 
-### [中共国关门了](/content/gnews/21/README.md)
+### [中共国关门了](/content/gnews/22/README.md)
  ` Shuizhuyu`
 
-### [习近平：祖国完全统一，要实现，也能实现](/content/gnews/22/README.md)
+### [习近平：祖国完全统一，要实现，也能实现](/content/gnews/23/README.md)
  ` 纽约香草山MOS01`
 
-### [蔡英文发表讲话- 我们坚决反对统一](/content/gnews/23/README.md)
+### [蔡英文发表讲话- 我们坚决反对统一](/content/gnews/24/README.md)
  ` Shuizhuyu`
 
-### [洛杉矶市的871名消防员就COVID-19疫苗强制接种提出诉讼意向](/content/gnews/24/README.md)
+### [洛杉矶市的871名消防员就COVID-19疫苗强制接种提出诉讼意向](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [习近平在昨天已经吹响了武统台湾的号角](/content/gnews/25/README.md)
+### [习近平在昨天已经吹响了武统台湾的号角](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [台湾总统表示国家不会向中国的压力低头](/content/gnews/26/README.md)
+### [台湾总统表示国家不会向中国的压力低头](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [拜登总统白纸黑字彻底卖掉台湾、放弃南海,台湾凶矣！](/content/gnews/27/README.md)
+### [拜登总统白纸黑字彻底卖掉台湾、放弃南海,台湾凶矣！](/content/gnews/28/README.md)
  ` NewFOC`
 
-### [蓬佩奥福克斯访谈：﻿美国不应该如此软弱不堪](/content/gnews/28/README.md)
+### [蓬佩奥福克斯访谈：﻿美国不应该如此软弱不堪](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [银河快讯：日本向生物多样性基金追加拨款；岸田与莫迪确认加强合作](/content/gnews/29/README.md)
+### [银河快讯：日本向生物多样性基金追加拨款；岸田与莫迪确认加强合作](/content/gnews/30/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [10/10/21国内经济财经周报：中共重罚美团34亿；中共希望中美经济“再挂钩”](/content/gnews/30/README.md)
+### [10/10/21国内经济财经周报：中共重罚美团34亿；中共希望中美经济“再挂钩”](/content/gnews/31/README.md)
  ` 秘密翻译组金融团队`
 
-### [AMD将在斯达克上市；GTV发展最新重大利好消息](/content/gnews/31/README.md)
+### [AMD将在斯达克上市；GTV发展最新重大利好消息](/content/gnews/32/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中国地方债15万亿美元；虚拟币是最安全保值的货币](/content/gnews/32/README.md)
+### [中国地方债15万亿美元；虚拟币是最安全保值的货币](/content/gnews/33/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [律师为被捕者辩护：在罗马我没有看到暴力袭击](/content/gnews/33/README.md)
+### [律师为被捕者辩护：在罗马我没有看到暴力袭击](/content/gnews/34/README.md)
  ` Charlie`
 
-### [2021年10月10日郭先生直播速记](/content/gnews/34/README.md)
+### [2021年10月10日郭先生直播速记](/content/gnews/35/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [蔡英文：我们不会向中（共）国低头](/content/gnews/35/README.md)
+### [蔡英文：我们不会向中（共）国低头](/content/gnews/36/README.md)
  ` Charlie`
 
-### [政治制度研究系列之二：英国的国体和政体—君主立宪制的开山鼻祖](/content/gnews/36/README.md)
+### [政治制度研究系列之二：英国的国体和政体—君主立宪制的开山鼻祖](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [川普指责拜登从欧佩克和俄罗斯购买石油](/content/gnews/37/README.md)
+### [川普指责拜登从欧佩克和俄罗斯购买石油](/content/gnews/38/README.md)
  ` HimalayaRussia`
-
-### [中国拟禁止非公有资本参与新闻产业](/content/gnews/38/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [川普称俄中正在研究美阿富汗遗弃的直升机](/content/gnews/39/README.md)
  ` HimalayaRussia`

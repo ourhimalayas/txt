@@ -2,25 +2,21 @@
 ---
 
 
-## 有声|新中国联邦是世界新的希望
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1585831/)
+## 从恒大事件看中共国的“房事”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1585868/)
 
-配音：香草山美食部 – 玫瑰园
+俄罗斯莫斯科喀秋莎农场 娜洁仕达
 
-加州大学洛杉矶分校麻醉师克里斯·瑞克医生由于坚决反对强制接种中共病毒疫苗，10月4日被人带出加州大学洛杉矶分校的医疗广场。他还因拒绝接种疫苗或申请接种豁免而不得不回家休无薪行政假。他在视频中说： “我愿意失去一切……甚至是我的生命。” 在美国，不计其数的像克里斯·瑞克博士这样的医务工作者，教授，以及其他热爱自己工作的人由于疫苗强制令而不得不在“疫苗或工作”里二者选一。
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/E-1.jpg)
+俄罗斯莫斯科喀秋莎农场10月9日GTV的直播节目，从近期中共国闹得沸沸扬扬并引起全球关注的“恒大事件”的时间线谈起，为观众详细梳理了恒大事件的脉络。
 
-自由灯塔的美国正在沦陷。这一残酷的现实令对惯于享受自由人权的传统和正直的美国人来说，可谓是灭顶之灾！而对我们新中国联邦人来说既有对美国的失望，惋惜和痛心，更有对由七哥创建的新中国联邦将给我们带来美好未来的憧憬和自豪！新中国联邦是世界新的希望！
+从许家印如何发家，如何代替万科成为地产老大谈起，谈到了2012年许家印在“两会”期间风头正旺时的傲娇表现，最后谈到了从2020年起的财务危机直到2021年10月股票突然停牌，受到全世界关注，更是对此次“恒大事件”目前中共国出台的处理意见发表了栏目组的看法。
 
-文字版原文：[新中国联邦是世界新的希望](https://gnews.org/zh-hans/1582522/)
+节目还详细讲述了中共国房地产自1980年“改开”以来的发展历程，与全世界房价以及物价和收入对比，栏目组三人结合自身的经历就此展开了讨论。通过解读爆料革命文贵先生的多次爆料等，阐述了栏目组对恒大事件、对于中共国房地产的过去现在和将来、以及对中共国经济乃至世界经济带来的后果的一些见解。
 
-音频处理：喜山必胜Maverick
+直播的最后，栏目组对此次中共国是否会出手“救”恒大做出了猜测。虽然观点不一，但是栏目组一致认为恒大带给中国乃至世界经济的灾难才刚刚开始。恒大必将是中共国的雷曼兄弟！
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+更多精彩内容请关注俄罗斯莫斯科喀秋莎农场GTV频道
+
+[https://gtv.org/video/id=61585ed9304e992109ae042b](https://gtv.org/video/id=61585ed9304e992109ae042b)
