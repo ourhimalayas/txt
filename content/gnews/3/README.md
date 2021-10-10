@@ -2,30 +2,21 @@
 ---
 
 
-## 抗议疫苗护照义务化 意大利爆发大规模示威活动
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585551/)
+## 荷兰实验室研究中国人的DNA
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1585606/)
 
-作者：文小白
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-NHK消息, 为抗议从本月15日起新冠疫苗接种证明携带义务化的政令，意大利首都罗马爆发了大规模抗议活动 ，超过万人参加了游行示威活动 , 人们挤满了广场和街道，并高喊“自由！”口号，意大利政府出动了水车等对人游行人群进行驱离。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10101-1.jpg)
+近年来，荷兰三大实验室与中(共)国科学家一起合作开发能够预测人的头发、眼睛或皮肤颜色的 DNA 研究技术。鉴于中(共)国当局可能将这些技术用于侵犯人权的目的，例如跟踪和大规模监视维吾尔族和藏族少数民族，这一消息在荷兰引发了批评和担忧。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-16.jpeg)
+TV [Rtl Nieuws](https://www.rtlnieuws.nl/nieuws/artikel/5258161/nederland-china-dna-oeigoeren-mensenrechten)和独立网络杂志 Follow the Money的记者的揭露让荷兰的卓越科学研究中心感到尴尬，首先是鹿特丹的 Erasmus 医疗中心。据称，参与这些活动的中（共）国研究人员与中(共)国警方有联系。据荷兰记者透露，其中一些人是由北京警方直接雇用或支付的。
 
-截至本月9日，意大利全境已经有80%的接种者完成了疫苗接种。因此意大利政府决定出台政令, 所有人都必须携带疫苗接种证明或检测结果阴性证明，违反者将被禁止出入公共场所,不能搭乘公共交通甚至被停职 或被处以罚款。
+荷兰研究机构与中(共)国当局之间的关系，让学术界的各界人士感到震惊。他们认为这种合作是“根本错误的”，因为所获得的知识直接落入了中(共)国警方手中，他们利用这些技术镇压和迫害少数民族。
 
-(本文仅代表作者观点)
+RTL Nieuws 的中国记者罗兰·斯密德( Roland Smid)还说：”荷兰的所有主要大学都在中(共)国政府和共产党的直接控制之下，这些大学的主要目标是帮助国家朝着政治领导人指示的方向前进”。
 
-参考链接：[イタリア 接種証明の携帯義務化 反対の人たちが大規模抗議デモ](https://www3.nhk.or.jp/news/html/20211010/k10013300611000.html)
+免责申明：本文只代表译者观点，与Gnews无关
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+原文链接：[https://europa.today.it/attualita/ricerca-dna-cina-minoranze-etniche-olandesi.html#\_ga=2.5894970.863444649.1633877988-145009575.1615972944](https://europa.today.it/attualita/ricerca-dna-cina-minoranze-etniche-olandesi.html#_ga=2.5894970.863444649.1633877988-145009575.1615972944)
 
-新闻访谈终审：文龍
-编辑/校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦

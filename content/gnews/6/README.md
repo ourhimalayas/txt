@@ -2,19 +2,32 @@
 ---
 
 
-## 狼子野心昭然若揭——习近平发表“祖国统一”讲话
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1585518/)
+## 不屈服接种令，西雅图近四成警察直面解雇威胁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585591/)
 
-撰稿：Ermat【㊙️翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2ba672847a5f44e4893ebdf91d88af65-1.jpeg)图片来源：sohu.com
-据中共国官网报道，习近平于10月9日发表“纪念辛亥革命110周年讲话”。在讲话中不仅威胁民主台湾，还对其他国家进行恫喝。
+作者：雪梨
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+西雅图市政府规定，所有警察必须在10月18日之前接种疫苗，否则将被解雇。截至周五，该市共有292名警察没有提交疫苗接种证明，另外111名警察正在等待豁免批准，共计403人。如果他们因此而被全部解雇，西雅图将失去37%的警察。
 
-习近平说，孙中山先生说过：“‘统一’是中国全体国民的希望。能够统一，全国人民便享福；不能统一，便要受害。”台湾问题因民族弱乱而产生，必将随着民族复兴而解决。这是中华民族历史演进大势所决定的，更是全体中华儿女的共同意志，正像孙中山先生所说：“世界潮流，浩浩荡荡，顺之则昌，逆之则亡”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-23.jpg)
 
-习近平还威胁说，中华民族具有反对分裂、维护统一的光荣传统。“台独”分裂是祖国统一的最大障碍，是民族复兴的严重隐患。凡是数典忘祖、背叛祖国、分裂国家的人，从来没有好下场，必将遭到人民的唾弃和历史的审判！台湾问题纯属中国内政，不容任何外来干涉。任何人都不要低估中国人民捍卫国家主权和领土完整的坚强决心、坚定意志、强大能力！祖国完全统一的历史任务一定要实现，也一定能够实现！
+目前尚不清楚市政府是否将于18日执行解雇命令，为确保巡逻安全人员的合理配置，警察局长阿德里安·迪亚兹（Adrian Diaz）已经做出指示，从10月13日起过渡到”第三阶段动员”，即剩余警力处于随时待命状态，以应对911电话。
 
-现如今台湾在外：强敌虎视，各国冷眼旁观；在内：弱势总统，奸佞蜂起，“口炮 ”当道。习主席杀气腾腾的讲话——“世界潮流，浩浩荡荡，顺之则昌，逆之则亡。”预示着一场血雨腥风的到来，在病毒和疫苗之战已溃不成军的西方，将迎来又一次挑战。
+面对政府恶劣行径，美国多地警员在社交媒体发布视频，重申加入警局的誓言：保护人民，而不是镇压真相的声音，同时也团结起来，使用法律回击接种强制令维护应有的权力。自2020年开始，已有280名警察辞职，使得该市警察部门的人员配置，处于1980年代以来最低水平。今年以来，西雅图的暴力犯罪激增，按目前的发展态势，城市治安将面临更加严峻的挑战。
 
-参考链接：
+(本文仅代表作者观点)
 
-[习近平：在纪念辛亥革命110周年大会上的讲话](http://www.gov.cn/xinwen/2021-10/09/content_5641633.htm)
+参考链接：[Seattle police department prepares to fire up to 40% of its cops if they fail to get vaccinated in line with mayor’s strict mandate by October 18 – despite already suffering staffing lows not seen since the 1980s](https://www.dailymail.co.uk/news/article-10075409/Seattle-prepares-fire-400-cops-October-18-fail-vaccinated.html)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,25 +2,34 @@
 ---
 
 
-## 上半年585人涉刑，金额达496亿元！银行保险职务和业务犯罪严重
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1585286/)
+## 文贵先生公示社区原则，保障盖特良性拓展
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585387/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4225.jpg)[图片来源](https://www.sohu.com/a/312415426_120043561)
-据“澎湃新闻”10月9日报道，中共银保监会近日向各机构下发关于2021年上半年银行保险机构涉刑案件情况的通报，并以案例形式介绍了六大案发情况。
+作者：文龍
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新中国联邦爆料革命自媒体平台盖特, 越来越受到各界关注,用户一直在迅猛增长中，为使盖特获得持续良好的发展。10月10日，郭文贵先生在其盖特发文，列出了盖特的六个绝对不允许原则：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/p89.004.jpeg)
+1. 绝对不允许有种族歧视。
+2. 绝对不允许有政治歧视，允许任何不同党派的政见和观点。
+3. 绝对不允许文化歧视，包容所有文化。
+4. 绝对不可以有恐怖主义倾向及内容。
+5. 绝对不可以有犯罪，虐童，暴力，色情倾向和内容。
+6. 绝对不可以利用盖特传播虚假和欺骗信息。
 
-根据通报，今年上半年，银行保险机构案件继续呈高发态势，共报告案件和案件风险事件1367件，涉及金额495.80亿元。共有585名银行保险机构从业人员被采取强制措施，其中银行金融机构480人，保险机构105人。从查办机关看，公安机关侦办405人，纪检监察机关查办180人。
 
-通报显示，银行保险机构案发呈现的主要风险和问题有六类：一是金融腐败与业务违法违规交织；二是中小银行机构内源性问题突显；三是金融科技应用潜藏风险；四是不良资产处置领域道德风险突出；五是个人住房贷款诈骗手段翻新；六是重大保险案件危害大。
+同时文贵先生还透露，一周内所有盖特的加V认证用户，将开启在线直播功能。此举将使盖特如虎添翼，成为向世界传播真相的利器，以及热爱自由人群的最热门社交平台!
+(本文仅代表作者观点)
 
-中共金融系统历来是犯罪严重的领域，上有权贵家族的“盗国犯罪”，往下又有各级各层次的职务和业务的“普通犯罪”。此次中共银保监会通报的仅仅是“普通犯罪”，就已足以让人触目惊心，这种系统性的腐败就是中共“以贪治国”在金融领域的侧面反映。
+参考链接：[盖特的六个绝对不允许](https://gettr.com/post/pdpuh8bf0e)
 
-信息来源：
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-[上半年银行保险585人涉刑案被采取强制措施，涉案496亿元\_案件](https://www.sohu.com/a/494133671_260616)
+编辑/校正/发稿：我不在这里
 
-(文章仅代表作者本人观点，与GNEWS无关)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

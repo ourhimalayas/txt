@@ -2,32 +2,17 @@
 ---
 
 
-## 台湾总统府发言人称中华民国是主权国家!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585571/)
+## 蔡英文：我们不会向中（共）国低头
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1585617/)
 
-作者：云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中央社消息, 对于10月9日中共习近平所称:”台湾问题是中国内政”, 台湾总统府发言人张惇涵回应称，“中华民国是主权独立的国家，不是中华人民共和国的一部分；中华民国的未来，掌握在台湾人民的手中!”
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10102.jpg)
+台湾总统蔡英文在国庆节称台湾不会屈服于北京的压力，并将捍卫其民主，同时提到了与美国的稳固关系、与日本的蓬勃发展以及与欧盟的日益密切的关系。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide2-16.jpeg)
+蔡英文在继习近平宣称要完成两岸统一的历史任务以后说到 ：“我们得到的越多，来自中(共)国的压力就越大，但是没有人可以强迫台湾走中(共)国为我们开辟的道路。”
 
-10月10日，蔡英文总统蔡英文也在双十国庆演说中提出”四个坚持”, 即 坚持自由民主宪政体制；坚持中华民国与中华人民共和国互不隶属；坚持主权不容侵犯并吞；坚持中华民国台湾的前途，必须遵循全体台湾人民的意志。蔡英文称这四个坚持，是台湾人民的底线。而香港的现况证明中共背弃了自己的承诺，印证所谓的‘一国两制’根本不可行。
+免责申明：本文只代表译者观点，与Gnews无关
 
-(本文仅代表作者观点)
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/10/10/taiwan-tsai-non-ci-piegheremo-alla-cina-e-ci-difenderemo\_83556fb8-b547-4ce4-a0cc-4aed411f760a.html](https://www.ansa.it/sito/notizie/topnews/2021/10/10/taiwan-tsai-non-ci-piegheremo-alla-cina-e-ci-difenderemo_83556fb8-b547-4ce4-a0cc-4aed411f760a.html)
 
-参考链接：[國慶日演說總統談四個堅持、兩岸平等對話 全文一次看](https://www.cna.com.tw/news/firstnews/202110105005.aspx)
-[總統府：中華民國是主權獨立國家 民意拒絕一國兩制](https://www.cna.com.tw/news/firstnews/202110090099.aspx)
-[https://montrealtimes.news/台总统府：中华民国是主权独立国家-民意拒绝一国/](https://montrealtimes.news/台总统府：中华民国是主权独立国家-民意拒绝一国/)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：文龍
-编辑/校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦

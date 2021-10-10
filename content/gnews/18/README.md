@@ -2,34 +2,108 @@
 ---
 
 
-## 秘翻在线 :英国供应链融资领头羊格林希尔资本（Greensill Capital）倒闭
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1585320/)
+## 七哥一心牵挂战友，共准备6000万个喜币，留给墙内被喝茶及核心战友
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1585451/)
 
-撰稿：William
-校对：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/p.jpg-3.png)
-图片来源：fcced
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2476.png)
+[https://gtv.org/video/id=6162e0a2d2e2b81748739be5](https://gtv.org/video/id=6162e0a2d2e2b81748739be5)
 
-**格林希尔资本破产，全球数万人恐失业**
+**郭文贵：
+Miles Guo：**
 
-2021年3月初，供应链金融行业中的领头羊和金融科技新贵，格林希尔资本（Greensill Capital）申请破产保护。格林希尔资本是一家设在英国和澳大利亚的金融服务公司，由前卡梅伦首相时期担任高级顾问的莱克斯·格林西尔（Lex Greensill）所创建，主要提供供应链融资和相关服务。
+七哥一心牵挂战友，共准备6000万个喜币，留给墙内被喝茶及核心战友
+Miles sets aside a total of 60 million H coins for core domestic comrades
 
-该公司为客户提供了供应链融资，这是一种短期借贷，使公司可以延长支付账单的时间。格林希尔将这些贷款打包成证券，称为票据，然后将其出售给第三方，其中包括瑞士信贷（Credit Suisse）管理的一套100亿美元的基金。瑞士警方日前突袭瑞士信贷银行(Credit Suisse)的办公室，并没收与瑞士信贷 100 亿美元有关的文件。这次突袭是由苏黎世州检察官下令进行的。
+还有我们大连的被关了将近一年多的战友啊
+And our comrades in Dalian who have been detained for more than a year
 
-根据《零对冲》引用英国《金融时报》的报导，大量位于德国、瑞士和其他地方的市政当局通过瑞士信贷及其“贸易融资”基金和位于巴伐利亚的格林希尔Greensill银行存款，都投资了格林希尔资本，许多小镇的散户都被格林西尔的破产波及。
+是吧
+Right？
 
-破产管理者正大联合国际会计师事务所（Grant Thornton）指出，陷入困境的英国金融公司格林希尔（Greensill）遭遇连串财务困难后宣布破产。引发全球数万人恐失业的忧虑。
+很辛苦
+Suffered a lot
 
-**英国前首相卡梅伦遭调查**
+这是为啥我们现在有2000万喜币是通过基金买的
+This is why we now have 20 million H Coins bought through the fund
 
-英国政府4月12日宣布，对已破产的金融公司格林希尔资本（Greensill Capital）展开调查，原因是曾在该公司担任顾问的卡梅伦涉嫌违规游说。卡梅伦2018年加入该公司。报导指出，卡梅伦在该公司任职期间曾私下联络现任财务大臣苏纳克（Rishi Sunak）、卫生大臣汉考克（Matthew Hancock）等，为公司谋取利益。
+都是给人钱，你不给人钱，人家喜币不给你呀
+(We) all give money to the Himalaya Exchange, if you don’t give them money, they don’t give you H Coins
 
-**软银孙正义也牵连其中**
+这2000万喜币
+This 20 million H coins
 
-早在格林希尔倒闭之前，英国《金融时报》就透露，瑞士信贷贸易融资基金实际上可能秘密（或许是非法）支持软银愿景基金投资。格林希尔破产，使软银愿景基金的投资化为乌有。格林希尔倒闭也损害了愿景基金中的其他公司，最严重的是建筑业初创公司Katerra。通过格林希尔将客户资金投资建筑业初创公司Katerra的瑞士信贷正准备起诉软银。
+就是留给国内的那些战友们的
+is reserved for those domestic comrades
 
-**格林希尔倒闭，全世界的诉讼正开始**
+这2000万喜币
+This 20 million H coins
 
-世界各地的检察官持续对格林希尔调查，重点在于其公司高层或其推动者所犯下的欺诈或不当行为。英国《金融时报》指出，无论检察官在这批文件中找到什么，大家都在屏息等待。
+也就给国内的
+are also given to the domestic,
 
-新闻来源:[Swiss Police Raid Credit Suisse Offices As Greensill Investigation Heats Up](http://Swiss%20Police%20Raid%20Credit%20Suisse%20Offices%20As%20Greensill%20Investigation%20Heats%20Up)
+现在已经登记在册的,被喝茶，被侵害的，被伤害，被恐吓的(战友)
+now registered comrades who have been drunk tea, violated, injured and intimidated.
+
+我们已经登记大概在60多万人吧
+We have registered more than 600,000 people
+
+60多万人
+600,000 people
+
+这2000万币目前是给这60万人之一
+The 20 million H coins are currently given to these 600,000 people
+
+这些全包含
+These are all inclusive
+
+还有比这更多的，还没有被登记的肯定有
+There are more than this, there must be some who have not been registered yet
+
+另外的一个， 我们还有一个2000万的喜币
+The other one, we also have another a 20 million H Coins
+
+是专门给直接跟七哥联系的特殊贡献者
+for special contributors who directly contact me
+
+不在这2000万里边
+Not in this 20 million,
+
+这是不含的
+This is not included,
+
+所以说这个大概一共是6000万个喜币
+So this is probably a total of 60 million H coins
+
+已经被基金买下来
+that have been bought by the fund.
+
+完全是跟G系列没有关系的
+It has nothing to do with the G series.
+
+这个是家族基金买的
+This is bought by the family fund
+
+然后，未来是给战友的
+then, they will be given to comrades in the future
+
+大家要记住啊
+Everyone should remember that
+
+—————————————————————————
+
+Date: 10/08/2021
+原视频标题: 七哥一心牵挂战友，共准备6000万个喜币，留给墙内被喝茶及核心战友
+Miles sets aside a total of 60 million H coins for core domestic comrades
+原视频日期：2021/10/08
+原视频链接 [https://twitter.com/se1y7cblljselva/status/1446500094044295172?s=24](https://twitter.com/se1y7cblljselva/status/1446500094044295172?s=24)
+任务编号：2476
+视频时间段 : 00:00-01:15
+英听校：洛杉矶盘古农场 – Raul
+翻译：洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场- 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

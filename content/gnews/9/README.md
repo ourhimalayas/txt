@@ -2,108 +2,32 @@
 ---
 
 
-## 七哥一心牵挂战友，共准备6000万个喜币，留给墙内被喝茶及核心战友
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1585451/)
+## 台湾总统府发言人称中华民国是主权国家!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585571/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2476.png)
-[https://gtv.org/video/id=6162e0a2d2e2b81748739be5](https://gtv.org/video/id=6162e0a2d2e2b81748739be5)
+作者：云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中央社消息, 对于10月9日中共习近平所称:”台湾问题是中国内政”, 台湾总统府发言人张惇涵回应称，“中华民国是主权独立的国家，不是中华人民共和国的一部分；中华民国的未来，掌握在台湾人民的手中!”
 
-**郭文贵：
-Miles Guo：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide2-16.jpeg)
 
-七哥一心牵挂战友，共准备6000万个喜币，留给墙内被喝茶及核心战友
-Miles sets aside a total of 60 million H coins for core domestic comrades
+10月10日，蔡英文总统蔡英文也在双十国庆演说中提出”四个坚持”, 即 坚持自由民主宪政体制；坚持中华民国与中华人民共和国互不隶属；坚持主权不容侵犯并吞；坚持中华民国台湾的前途，必须遵循全体台湾人民的意志。蔡英文称这四个坚持，是台湾人民的底线。而香港的现况证明中共背弃了自己的承诺，印证所谓的‘一国两制’根本不可行。
 
-还有我们大连的被关了将近一年多的战友啊
-And our comrades in Dalian who have been detained for more than a year
+(本文仅代表作者观点)
 
-是吧
-Right？
+参考链接：[國慶日演說總統談四個堅持、兩岸平等對話 全文一次看](https://www.cna.com.tw/news/firstnews/202110105005.aspx)
+[總統府：中華民國是主權獨立國家 民意拒絕一國兩制](https://www.cna.com.tw/news/firstnews/202110090099.aspx)
+[https://montrealtimes.news/台总统府：中华民国是主权独立国家-民意拒绝一国/](https://montrealtimes.news/台总统府：中华民国是主权独立国家-民意拒绝一国/)
 
-很辛苦
-Suffered a lot
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-这是为啥我们现在有2000万喜币是通过基金买的
-This is why we now have 20 million H Coins bought through the fund
+新闻访谈终审：文龍
+编辑/校正/发稿：谐趣园
 
-都是给人钱，你不给人钱，人家喜币不给你呀
-(We) all give money to the Himalaya Exchange, if you don’t give them money, they don’t give you H Coins
-
-这2000万喜币
-This 20 million H coins
-
-就是留给国内的那些战友们的
-is reserved for those domestic comrades
-
-这2000万喜币
-This 20 million H coins
-
-也就给国内的
-are also given to the domestic,
-
-现在已经登记在册的,被喝茶，被侵害的，被伤害，被恐吓的(战友)
-now registered comrades who have been drunk tea, violated, injured and intimidated.
-
-我们已经登记大概在60多万人吧
-We have registered more than 600,000 people
-
-60多万人
-600,000 people
-
-这2000万币目前是给这60万人之一
-The 20 million H coins are currently given to these 600,000 people
-
-这些全包含
-These are all inclusive
-
-还有比这更多的，还没有被登记的肯定有
-There are more than this, there must be some who have not been registered yet
-
-另外的一个， 我们还有一个2000万的喜币
-The other one, we also have another a 20 million H Coins
-
-是专门给直接跟七哥联系的特殊贡献者
-for special contributors who directly contact me
-
-不在这2000万里边
-Not in this 20 million,
-
-这是不含的
-This is not included,
-
-所以说这个大概一共是6000万个喜币
-So this is probably a total of 60 million H coins
-
-已经被基金买下来
-that have been bought by the fund.
-
-完全是跟G系列没有关系的
-It has nothing to do with the G series.
-
-这个是家族基金买的
-This is bought by the family fund
-
-然后，未来是给战友的
-then, they will be given to comrades in the future
-
-大家要记住啊
-Everyone should remember that
-
-—————————————————————————
-
-Date: 10/08/2021
-原视频标题: 七哥一心牵挂战友，共准备6000万个喜币，留给墙内被喝茶及核心战友
-Miles sets aside a total of 60 million H coins for core domestic comrades
-原视频日期：2021/10/08
-原视频链接 [https://twitter.com/se1y7cblljselva/status/1446500094044295172?s=24](https://twitter.com/se1y7cblljselva/status/1446500094044295172?s=24)
-任务编号：2476
-视频时间段 : 00:00-01:15
-英听校：洛杉矶盘古农场 – Raul
-翻译：洛杉矶盘古农场 – Raul
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,38 +2,34 @@
 ---
 
 
-## Facebook被前员工揭发内幕
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1581059/)
+## 纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1534601/)
 
-**By:秘翻新视野**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-CN.jpg)
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-***2021-10-8***
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/IMAGE-2021-10-08-111407.jpg)](https://gtv.org/video/id=615fb4d3304e992109b176e3)*点击图片可看完整视频*
-**Facebook**前产品经理接受主流媒体采访爆料，公开内部文件证明Facebook一再将公司的商业利益置于公众安全之前。
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
 
-• 脸书针对特定目标投放广告，决定哪些人看到哪些广告、看不到哪些广告，带有性别主义偏见。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-001-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-002-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-003-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-004-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-005-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-006-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-007-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-008-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-009-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-010-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-011-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-012-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-013-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-014-scaled.jpg)
 
-• Facebook对名人政要采取不同的待遇，和不同的管理政策，导致人们相信脸书而受到政治上和商业领域的影响。
 
-• 脸书因利益分配不公，一度封锁澳洲政府网站链接，可见获取利益是任何一家媒体的永恒第一目标。
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-• 在美国竞选期间，脸书曾开启减少假消息的安全系统。在公众利益和脸书利益之间有冲突时，彻底背叛美国的民主信念。
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
 
-• Instagram社交平台对年轻人心理健康有害，社交平台的审美标准固定化，而轻易操控人的情感和左右事物的准则，从而潜移默化的影响青少年对社会和自我的认知。
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-• 脸书，WhatsApp，instagram等三大应用宕机，这是一秒钟即可消失的脆弱系统，而唯有盖特正常运转。
-
-• Facebook, Whatsapp的用户信息被打包低价出售，根据客户信息，把人群分类，再进行AI智能分析，人就这样轻易的被大数据控制了。
-
-• 文贵先生：Facebook宕机是俄罗斯干的，接下来还有大事发生，宕机会成为常态。
-
-请移步**GTV**观看**[【秘翻新视野】](https://gtv.org/video/id=615fb4d3304e992109b176e3)**的详细阐述
-
-**GTV链接:**[https://gtv.org/video/id=615fb4d3304e992109b176e3](https://gtv.org/video/id=615fb4d3304e992109b176e3)
-
-*发布:星星*
-
-* * *
-
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/IMAGE-2021-08-12-195949.jpg)
++4

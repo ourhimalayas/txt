@@ -2,35 +2,26 @@
 ---
 
 
-## “台独”是个伪命题？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1585279/)
+## 有声|罗昌平因质疑长津湖战役被刑事拘留
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1585372/)
 
-撰稿：Julia
-![](https://assets.gnews.org/wp-content/uploads/2021/10/526C7818-C131-4963-9081-1DDA63D78031_w408_n_r1_st1.jpg)
-图片来源：网络
+音：香草山教育部-蒙古鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月8日，据消息称，微博账号“@罗昌平”于10月6日发布所谓“诋毁英烈”的内容，其账号根据相关规定予以关闭处理。同日，海南三亚市公安局吉阳分局发布警情通报指，10月7日接到相关举报，罗某平以涉嫌所谓”侵害英雄烈士名誉、荣誉罪”被刑事拘留。
 
-近日，中共对台湾在军事上频频进行侵略性威胁，习近平还借辛亥革命110周年之际发表讲话，称中共必将对台实现“和平统一”。不料，习的涉台讲话却遭到了台湾民进党当局的“回呛”。
+据悉，中共的洗脑大片《长津湖》引起了观众的一系列讨论，当中，所有质疑电影制作水平和历史还原度的影评均被官方删除，相关公众号也被封禁。至于罗昌平的被拘，则是因为他在微博上写了一篇关于该电影的短评称：“半个世纪之后国人少有反思这场战争的正义性，就像当年的沙雕连不会怀疑上峰的’英明决策’。” — “沙雕”是愚蠢和无脑的网络用语。
 
-据路透社10月9日消息，台湾方面表示，台湾是一个独立的国家，中华民国是它的正式名称，台呼吁中共放弃胁迫，并且重申只有台湾人民才能决定他们的未来。
+罗昌平曾任《中国商报》首席记者、《新京报》深度报道部主编、《财经》杂志副主编。此次罗昌平的被拘，加之中共这一系列文化领域的言论审查，让人不得不思索，中共的内斗是否已经完全处于白热化阶段。
 
-中共一直以来皆以“民族统一”大业之名号，指责台湾在国际事务上独立于中共政府的行为是“谋独”行为，斥骂台湾民进党当局者为“台独”分子。中共党总书记习近平与国台办发言人马晓光在近日公开场合的涉台发言中均指出：凡是数典忘祖、背叛祖国、分列国家的人，从来没有好下场，必将遭到人民的唾弃和历史的审判。
+文字版原文：[罗昌平因质疑长津湖战役被刑事拘留](https://gnews.org/zh-hans/1582520/)
 
-然而，从法理上来说，中华民国成立于1912年，国民政府在与共产党的内战失败后于1949年退守台湾，共产党建立了今天的中华人民共和国，但台湾政权并未公开发表声明——台湾政权隶属于中共政权。
-
-且在上个世纪七十年代以前，台湾政权在国际社会中是以“中华民国”这样的身份参与到国际事务中。这表明，台湾政权和中共政权并没有隶属关系。那么，台湾到底何去何从，应该由台湾人民自己决定，与“台独”没有任何关系。
-
-尽管中共对其政权凌驾于台湾政权之上的法理性避而不谈，却总是打着“一个民族”的旗号要“统一”台湾，但即便从同属“一个民族”的常理性来说，其对台“统一”的主张和行为也有“强奸”民意之嫌。
-
-这就如同：所有的兄弟姐妹都是一胞所生，但不一定就得因为这个原因，所有人就不得离开这个大家庭。若有人感到在这个大家庭里生活得不愉快，甚至没有安全感，那么离开这个大家庭独自生活无可厚非。更何况，这个大家庭的正房被“小三”上位挤走后，正房领着愿意跟随自己的孩子，忍气吞声另立门户，反倒被小三斥责有“二心”。世间有这样的道理可言吗？
-
-台湾政权从未隶属于中共政权，何来“谋独”一说？所谓的“台独”说辞，不过是中共利用海峡的民族情怀，制造对立与仇恨的一个伪命题。
-
-台湾的民众若是一心亲共，为什么他们还要选举出民进党这样的“谋独”者当权，而不选择国民党这个亲共的党派执政呢？民众的投票最能体现他们对台湾走向的意愿。
-
-中共历来习惯绑架“人民”说事。既然如此，为何不尊重一下台湾人民的民意呢？
-
-[https://www.zaobao.com.sg/realtime/china/story20211009-1201629](https://www.zaobao.com.sg/realtime/china/story20211009-1201629)
-
-[https://cn.chinadaily.com.cn/a/202110/09/WS616177f7a3107be4979f1976.html](https://cn.chinadaily.com.cn/a/202110/09/WS616177f7a3107be4979f1976.html)
-
-[https://www.reuters.com/world/china/chinas-xi-says-reunification-with-taiwan-must-will-be-realised-2021-10-09/](https://www.reuters.com/world/china/chinas-xi-says-reunification-with-taiwan-must-will-be-realised-2021-10-09/)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

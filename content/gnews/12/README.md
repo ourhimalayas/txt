@@ -2,29 +2,25 @@
 ---
 
 
-## 文贵先生公示社区原则，保障盖特良性拓展
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585387/)
+## 抗议疫苗护照义务化 意大利爆发大规模示威活动
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585551/)
 
-作者：文龍
+作者：文小白
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-新中国联邦爆料革命自媒体平台盖特, 越来越受到各界关注,用户一直在迅猛增长中，为使盖特获得持续良好的发展。10月10日，郭文贵先生在其盖特发文，列出了盖特的六个绝对不允许原则：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/p89.004.jpeg)
-1. 绝对不允许有种族歧视。
-2. 绝对不允许有政治歧视，允许任何不同党派的政见和观点。
-3. 绝对不允许文化歧视，包容所有文化。
-4. 绝对不可以有恐怖主义倾向及内容。
-5. 绝对不可以有犯罪，虐童，暴力，色情倾向和内容。
-6. 绝对不可以利用盖特传播虚假和欺骗信息。
+NHK消息, 为抗议从本月15日起新冠疫苗接种证明携带义务化的政令，意大利首都罗马爆发了大规模抗议活动 ，超过万人参加了游行示威活动 , 人们挤满了广场和街道，并高喊“自由！”口号，意大利政府出动了水车等对人游行人群进行驱离。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-16.jpeg)
 
-同时文贵先生还透露，一周内所有盖特的加V认证用户，将开启在线直播功能。此举将使盖特如虎添翼，成为向世界传播真相的利器，以及热爱自由人群的最热门社交平台!
+截至本月9日，意大利全境已经有80%的接种者完成了疫苗接种。因此意大利政府决定出台政令, 所有人都必须携带疫苗接种证明或检测结果阴性证明，违反者将被禁止出入公共场所,不能搭乘公共交通甚至被停职 或被处以罚款。
+
 (本文仅代表作者观点)
 
-参考链接：[盖特的六个绝对不允许](https://gettr.com/post/pdpuh8bf0e)
+参考链接：[イタリア 接種証明の携帯義務化 反対の人たちが大規模抗議デモ](https://www3.nhk.or.jp/news/html/20211010/k10013300611000.html)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-编辑/校正/发稿：我不在这里
+新闻访谈终审：文龍
+编辑/校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

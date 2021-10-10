@@ -2,22 +2,28 @@
 ---
 
 
-## 有声|美团因反垄断调查被处以 5.3 亿美元罚款
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1585503/)
+## 物资断流劳动力短缺 英美预期食品短缺
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585583/)
 
-配音：香草山教育部-蒙古鸿雁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-【华尔街日报】10 月 8 日报道，中共市场监管总局对美团进行反垄断调查，美团被处以约 5.3 亿美元的罚款，原因是美团强制商家签署“排他性”协议，只能使用其一家平台销售商品和服务。
+作者：飞虹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+最近，美国各地的物品短缺状况正在陆续出现。人们感受最直接的首先是食品，在德克萨斯州的一些杂货店，空货架林立，许多人无法一次购买到所需的全部物品。而面临货源短缺问题的，德州并不是唯一。
 
-中共政府针对美团的反垄断调查始于今年 4 月。这次对美团的罚款要小于预期，约相当于美团国内总收入的百分之三。此外，中国市场监管部门还命令美团退还商家支付的独家合作保证金，总额约合两亿美元。今年 7 月，美团被责令改善其员工工作条件，并向其配送员支付高于国家最低工资标准的薪资。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-9.jpeg)
 
-今年以来，中共政府对国内科技巨头采取一系列监管措施，以反垄断调查为借口，频频开出罚单，试图缓解日益严重的金融危机，防止金融体系的崩塌。
+中共病毒大流行期间，真正有效的治疗药物的使用被阻止，政府和医疗机构为大药厂站台，强推全民毒针计划，用疫苗健康证明束缚民众生活，严重侵犯自由和生存权。随着疫苗接种率的提升，受新冠疫苗伤害的人员范围越来越大，未接种者被迫离开职位，灾难进一步凸显。
 
-文字版原文：[美团因反垄断调查被处以 5.3 亿美元罚款](https://gnews.org/zh-hans/1582502/)
+由此造成的人工短缺及物流运作延误，致使供应链正在崩溃。美国各地公司预计，从人造圣诞树、体育用品到感恩节火鸡，各类商品都将出现短缺和价格上涨。集装箱船积压，意味着货物无法从港口运到仓库，通往零售商和消费者的路更是充满不确定性。德克萨斯州的几家餐馆不得不雇佣机器人来解决员工短缺的问题。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
+(本文仅代表作者观点)
+
+参考链接：[Experts Warn Food Shortages Are Coming To Texas](https://original.newsbreak.com/@matt-lillywhite-561024/2392885360162-experts-warn-food-shortages-are-coming-to-texas)
+
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
+
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
