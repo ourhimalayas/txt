@@ -2,58 +2,53 @@
 ---
 
 
-## 英格兰 30,305 人在接种疫苗后的 21 天死亡
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1586059/)
+## 中共国控制着世界上关键的矿产供应链
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1586073/)
 
-作者：sherryok (水云间)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-1-2.jpg)
-英国曝光网站报道，国家统计部门官方数据不经意揭露，在 2021 年的前 6 个月内，英格兰有 30,305 人在接受中共病毒疫苗后的 21天内死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GettyImages-105983996-700x420-1.jpg)中共国连云港，图片：STR/AFP，盖蒂图片社
+**摘要翻译：**
 
-几个月以来，数十个开放[信息的请求](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.whatdotheyknow.com/request/deaths_for_any_reason_within_28_34)发送到英国公共卫生部门（PHE Public Health England），要求知道有多少人在接种Covid-19疫苗后28天内死亡，但每次PHE都回复他们并未“拥有所要求的信息”。
+中共国对原材料加工的垄断正在限制全球原材料的供应，对化学加工的封锁加剧了全球供应链的中断。
 
-在他们的苏格兰同行发布了 Covid-19疫苗接种28天内的死亡数据后，英格兰卫生部门手头没有这些信息显得非常奇怪。
+似乎早在几十年前，中国共产党就已经认识到控制原材料的重要性。除了开采和提炼之外，中共国在全球原材料市场上占据主导地位的努力，还包括控制加工和冶炼。这种以加工为基础的战略，再加上政府垄断和宽松的环境法规，使中共国成为世界上最大的关键原材料生产国。
 
-苏格兰[公共卫生](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://beta.publichealthscotland.scot/media/8183/21-06-23-covid19-publication_report.pdf)部门（PHS）最后[的更新的数](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://beta.publichealthscotland.scot/media/8183/21-06-23-covid19-publication_report.pdf)据是 2021 年 6 月 23 日在其[“Covid-19 统计报告”](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://beta.publichealthscotland.scot/media/8183/21-06-23-covid19-publication_report.pdf)中，他们发现苏格兰 2020 年 12 月 8 日和2021 年 6 月 11 日之间，有5522人在接受 Covid -19疫苗后的28内死亡。
+中共国在矿产领域占据主导地位的一个很好的例子是，世界上只有三个铯矿，而中共国控制了所有的铯矿。另一个例子是砷，电子产品制造需要砷，美国91%的砷从中给国进口。
 
-(在[此处](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://publichealthscotland.scot/publications/covid-19-statistical-report/covid-19-statistical-report-23-june-2021/)发布的[电子表格中](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://publichealthscotland.scot/publications/covid-19-statistical-report/covid-19-statistical-report-23-june-2021/)显示各疫苗品牌的数量和发生日期。1,877 人在接受辉瑞 mRNA 注射后 28 天内死亡，3,643 人在接受阿斯利康病毒载体注射后 28内死亡，2 人在接受 莫德纳mRNA 疫苗注射后 28 天内死亡)。
+通过主导原材料加工，并通过国有银行的软贷款，中共国能够削弱其竞争对手。中共国以外的10大供应商合计生产了全球35%的原材料；而仅中共国就生产了45%。相比之下，美国仅生产了7%。
 
-之所以统计 Covid-19疫苗28天内的死亡人数，原因是这一直是大流行期间用于计算 Covid-19 死亡人数的测量参数。
+中共国通过控制制造电池所需的化学品，以及作为锂离子电池核心构件的阴极和阳极的制造，控制着全球电动汽车的制造。中共通过主导金属精炼以及电池级化学品的生产来限制全球供应链，这限制了世界生产电动汽车(EV)的能力。
 
-如果死亡发生在中共病毒阳性结果后的 28 天，则将其计入中共病毒死亡人数；但是，刚开始的时候，他们曾将发生在病毒测试阳性后 60 天内的死亡都计为 中共病毒死亡人数。
+沿着全球供应链走一走，都可以看到中共在各个层面的足迹。在上游供应链中，锂、钴、镍、石墨和锰是从地下开采的。中游供应链包括中共国主导的两个领域：电池级化学品的精炼和生产，以及正极和负极的生产。下游供应链包括锂离子电池的生产，这是中共国作为世界上最大的生产国的另一个领域。
 
-要感谢利用“技术问题”的借口，英格兰卫生部门得以逃避回答接种疫苗后死亡人数的问题。该技术性的障碍只是提问的“天数”不同而已，因为我们发现他们确实保存了注射疫苗后死亡人数的数据。
+80%的电池级化学品是在中共国生产的。他们还拥有世界阴极和阳极产量的66%。全球136家锂离子电池工厂中，有101家在中共国。
 
-但是这不是在 28内的死亡人数，而是接受疫苗注射后21 天内的死亡人数，而这些数字被国家统计机构不经意公布出来。
+中共对人权和民主的漠视使其在从冲突地区获取原材料方面具有优势，在冲突地区，矿产付款大部分都落在独裁者手中，他们用这些钱购买武器来压迫民众。
 
-英国[国家统计局](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.ons.gov.uk/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/articles/deathsinvolvingcovid19byvaccinationstatusengland/deathsoccurringbetween2januaryand2july2021)(ONS Office for National Statistics)于2021年9月13日[发布的](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.ons.gov.uk/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/articles/deathsinvolvingcovid19byvaccinationstatusengland/deathsoccurringbetween2januaryand2july2021)一份[报告](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.ons.gov.uk/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/articles/deathsinvolvingcovid19byvaccinationstatusengland/deathsoccurringbetween2januaryand2july2021),明显试图欺骗公众，让他们相信大多数Covid-19死亡发生在未接种疫苗的人群中。但他们报告中使用的日期是2021年1月第二波疫情爆发期间，当时发生了大量死亡事件，那时几乎没有人接种疫苗。
+这些国家通常缺乏独立的法院，并且对环境保护和人权相关的法律执行不严。刚果民主共和国就是一个很好的例子。2007年，中共国向刚果政府提供了60亿美元的基础设施交易，以换取矿产资源。
 
-截止点也是 2021 年 7 月 2 日，预示着我们目前经历的夏季第三波病毒爆发发生的死亡数字不包括在内。
+自2012年以来，据估计，中共国对刚果矿业的投资已增至100亿美元。目前该地区40家矿业公司中有30家由中共政府管理。然而，该国9000万人中有73%的人每天的生活费仍低于1.90美元。
 
-来自[政府](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://coronavirus.data.gov.uk/details/deaths)图表显示，使用的死亡数据中，是第二波疫情期间，当时刚刚开始接种疫苗，所以高数值当然来自未接种疫苗的人群。
+从人权和民主程度较低的国家进口的原材料被称为“冲突矿产”。企业社会责任、国际法和公众舆论使西方民主国家更难获得这些矿物。
 
-但是，如果 ONS 决定调查我们经历的第三波疫情数据，那么您会看到 75% 的中共病毒死亡者实际上已经打了疫苗，只有 25% 的死者没有打疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-2-1.jpg)
-英国公共卫生“警报监测报告”的表 5，在 2021 年 8 月 9 日至 9 月 5 日期间，未接种疫苗的有 600 人死亡，部分接种疫苗的大约有 97 人死亡，完全接种疫苗的有 1,659 人死亡。
+中共不受公众舆论或国际公约的干扰，继续从冲突地区进口。过去20个月的全球供应链中断，很大程度上是中共国对原材料流动的控制，以及中共有权决定哪些生产商可以获得哪些原材料和获得的数量。
 
-因此，正如您所看到的，在第三波中共病毒疫情中，绝大多数死亡发生在接种疫苗的人群，但ONS当然不想让您知道这一点，因此他们将其排除在外。但我们敢打赌，他们肯定也不愿意公布手头所有的，注射疫苗后 21天内死亡的人数。
+**简评：**
 
-ONS报告的表1试图展示Covid-19疫苗在预防死亡方面的效果。但不要忘记，他们只涵盖了一年中的前6个月，当时大多数人口没有接种疫苗，死亡就发生了。
+中共国的原材料工业是国民经济的基础和支柱产业，化工工业在全球化工市场中也占有绝对的主导地位。由此引发的结果是中共国的空气、土地和水资源环境在这些年的发展过程中，受到了难以修复的污染。2020年统计，中共国癌症新发、死亡数全球第一。共产党就是这样，以失去中国人未来的发展模式，与全球各国利益集团共同享用着这种毁灭式发展带来的利益。中共的邪恶冠绝全球，但这份邪恶却离不开全世界黑暗力量的助纣为虐。
 
-但是为了让大众相信 Covid-19 疫苗可以预防死亡，英国国家统计局公布，在 2021 年 1 月 2 日至  7 月 2 日期间，英格兰有 30，305 人在接受Covid-19 疫苗后的 21 天内死亡。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-3-1.jpg)
-如上所示，在接种第一剂疫苗后 21天内有 14,265 人死亡，有 4,388 人在接种第一剂疫苗后 21 天内，感染中共病毒死亡。
+新闻来源：[China Controls the World’s Critical Minerals Supply Chains](https://m.theepochtimes.com/china-controls-the-worlds-critical-minerals-supply-chains_4038684.html)
 
-另有11，470人在接受第二剂疫苗后21天内死亡，182人在第二剂疫苗后21天内感染中共病毒死亡。
+翻译/简评：Harvey (叶知秋)
 
-因此，2021 年前 6 个月，英格兰共有 30，305 人在接受疫苗后的 21天内死亡。
+校对：Julia Win
 
-值得注意的是，在接受疫苗超过21 天后的时间里，又有 123，79 人死亡，我们还想知道还有多少人是在 28 天，或者 60 天后死亡。因为他们仍然用这些参数来计算中共病毒的死亡人数。
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-但是现在，我们将不得不满足于只有 2021 年前 6 个月内的这个数据，接受疫苗后，英格兰死亡的官方数字是30,305，而且我们怀疑这只是政府同意让我们看到的数据。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[新闻链接](https://theexpose.uk/2021/09/15/30k-people-died-within-21-days-of-having-a-covid-19-vaccine-in-england/)
 
-【文章仅限作者个人观点 不代表GNEWS平台】
+编辑：【英国伦敦喜庄园编辑部】
 
-审核校对：Barry Jack
-上传排版：F
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

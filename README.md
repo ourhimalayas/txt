@@ -15,122 +15,122 @@
 
 ---
 
-### [日本国防部正考虑建造太空巡逻艇，并公开了图像](/content/gnews/1/README.md)
+### [郭文贵：美国已和中共达成出卖台湾的交易](/content/gnews/1/README.md)
+ ` 纽约香草山MOS01`
+
+### [习近誓言统一台湾，蔡英文回应“绝不屈服”](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [雅典娜时报-第078期](/content/gnews/2/README.md)
+### [日本国防部正考虑建造太空巡逻艇，并公开了图像](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [雅典娜时报-第078期](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【文炬拾字】感恩节里说感恩](/content/gnews/3/README.md)
+### [【文炬拾字】感恩节里说感恩](/content/gnews/5/README.md)
  ` 温哥华扬帆农场`
 
-### [10/10/2021 七哥直播: 文贵有足以把吴征、马云和江志成永远送进监狱的大料儿](/content/gnews/4/README.md)
+### [10/10/2021 七哥直播: 文贵有足以把吴征、马云和江志成永远送进监狱的大料儿](/content/gnews/6/README.md)
  ` 秘密翻译组-北美组`
 
-### [G时评：二桃为何能杀三士？](/content/gnews/5/README.md)
+### [G时评：二桃为何能杀三士？](/content/gnews/7/README.md)
  ` GISELLE`
 
-### [郭文贵直播摘要和音频 2021.10.10](/content/gnews/6/README.md)
+### [郭文贵直播摘要和音频 2021.10.10](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [洛杉矶县警长拒绝执行强制疫苗接种任务](/content/gnews/7/README.md)
+### [洛杉矶县警长拒绝执行强制疫苗接种任务](/content/gnews/9/README.md)
  ` HimalayaRussia`
 
-### [中共国再这么停电6个月美国股市将一塌糊涂](/content/gnews/8/README.md)
+### [中共国再这么停电6个月美国股市将一塌糊涂](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [北欧多国停止或暂停使用莫德那疫苗](/content/gnews/9/README.md)
+### [北欧多国停止或暂停使用莫德那疫苗](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [冠状疫苗接种之年是“突然和意外”的死亡之年](/content/gnews/10/README.md)
+### [冠状疫苗接种之年是“突然和意外”的死亡之年](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [习所干的一切都是为干倒美元干倒欧元](/content/gnews/11/README.md)
+### [习所干的一切都是为干倒美元干倒欧元](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [台北市长喊话蔡英文，声称要克服意识形态之争](/content/gnews/12/README.md)
+### [台北市长喊话蔡英文，声称要克服意识形态之争](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [香港国安法下 “双十节”庆祝近乎绝迹](/content/gnews/13/README.md)
+### [香港国安法下 “双十节”庆祝近乎绝迹](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [中共国控制着世界上关键的矿产供应链](/content/gnews/14/README.md)
+### [中共国控制着世界上关键的矿产供应链](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加州中小学生强制接种疫苗 州长女儿除外](/content/gnews/15/README.md)
+### [加州中小学生强制接种疫苗 州长女儿除外](/content/gnews/17/README.md)
  ` HimalayaRussia`
 
-### [英格兰 30,305 人在接种疫苗后的 21 天死亡](/content/gnews/16/README.md)
+### [英格兰 30,305 人在接种疫苗后的 21 天死亡](/content/gnews/18/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美国撤军，中共国黑客入侵阿富汗电信公司](/content/gnews/17/README.md)
+### [美国撤军，中共国黑客入侵阿富汗电信公司](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [维州工党腐败调查，安德鲁斯公开听证会接受审查](/content/gnews/18/README.md)
+### [维州工党腐败调查，安德鲁斯公开听证会接受审查](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [Facebook及其应用程序再次中断](/content/gnews/19/README.md)
+### [Facebook及其应用程序再次中断](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [10/10/2021 七哥直播: 台湾危矣！拜登签署了亲共的文字性承诺](/content/gnews/20/README.md)
+### [10/10/2021 七哥直播: 台湾危矣！拜登签署了亲共的文字性承诺](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [西南飞行员工会起诉航空公司，阻止疫苗强制接种](/content/gnews/21/README.md)
+### [西南飞行员工会起诉航空公司，阻止疫苗强制接种](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [绝地反击&#8211;加拿大反疫苗护照示威者将封桥堵路以抗暴政！](/content/gnews/22/README.md)
+### [绝地反击&#8211;加拿大反疫苗护照示威者将封桥堵路以抗暴政！](/content/gnews/24/README.md)
  ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
 
-### [“5G消息”10月试商用 中共加速数字人民币应用落地](/content/gnews/23/README.md)
+### [“5G消息”10月试商用 中共加速数字人民币应用落地](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本首相现场视察新冠口服药临床试验](/content/gnews/24/README.md)
+### [日本首相现场视察新冠口服药临床试验](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [辉瑞爆料人被解雇](/content/gnews/25/README.md)
+### [辉瑞爆料人被解雇](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纳瓦罗新书直击福奇](/content/gnews/26/README.md)
+### [纳瓦罗新书直击福奇](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [1/4洛杉矶市消防员发起针对强制接种中共病毒疫苗的法律诉讼](/content/gnews/27/README.md)
+### [1/4洛杉矶市消防员发起针对强制接种中共病毒疫苗的法律诉讼](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [不惧中共胁迫，蔡总统发誓捍卫台湾民主](/content/gnews/28/README.md)
+### [不惧中共胁迫，蔡总统发誓捍卫台湾民主](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [医生说他给阿尔伯塔省农村中共病毒患者服用伊维菌素，卫生当局发出警告](/content/gnews/29/README.md)
+### [医生说他给阿尔伯塔省农村中共病毒患者服用伊维菌素，卫生当局发出警告](/content/gnews/31/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/30/README.md)
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/32/README.md)
  ` wenwu`
 
-### [普京拿下克里米亚，中共将军们想同样方式拿下台湾](/content/gnews/31/README.md)
+### [普京拿下克里米亚，中共将军们想同样方式拿下台湾](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [脸书禁止人们提及众所周知的疫苗伤害](/content/gnews/32/README.md)
+### [习近平辛亥革命110周年演讲发出强烈信号，坚决完成武统台湾](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [习近平辛亥革命110周年演讲发出强烈信号，坚决完成武统台湾](/content/gnews/33/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [以科学破除中共病毒疫苗的迷思](/content/gnews/34/README.md)
+### [以科学破除中共病毒疫苗的迷思](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共全面禁止非公有资本开展新闻传媒业务](/content/gnews/35/README.md)
+### [中共全面禁止非公有资本开展新闻传媒业务](/content/gnews/36/README.md)
  ` 纽约香草山MOS02`
 
-### [2021年10月10日 文贵大直播：烂账烂房坏美国，中美勾兑压台湾音频](/content/gnews/36/README.md)
+### [2021年10月10日 文贵大直播：烂账烂房坏美国，中美勾兑压台湾音频](/content/gnews/37/README.md)
  ` 神奇四侠`
 
-### [“国家审计”证明拜登赢得了选举是“大谎言”](/content/gnews/37/README.md)
+### [“国家审计”证明拜登赢得了选举是“大谎言”](/content/gnews/38/README.md)
  ` HimalayaRussia`
 
-### [中共国关门了](/content/gnews/38/README.md)
+### [中共国关门了](/content/gnews/39/README.md)
  ` Shuizhuyu`
-
-### [习近平：祖国完全统一，要实现，也能实现](/content/gnews/39/README.md)
- ` 纽约香草山MOS01`
 
 ### [蔡英文发表讲话- 我们坚决反对统一](/content/gnews/40/README.md)
  ` Shuizhuyu`

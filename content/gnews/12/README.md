@@ -2,30 +2,28 @@
 ---
 
 
-## 台北市长喊话蔡英文，声称要克服意识形态之争
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1586091/)
+## 冠状疫苗接种之年是“突然和意外”的死亡之年
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1586093/)
 
-作者：文一
+作者：晓仙女
 
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-11.jpg)
-据联合新闻网报道，今天双十节，台北市长柯文哲以关心台湾民众的安危为幌子向执政的民进党喊话，全然以一副为中共说话的嘴脸指责民进党，大肆宣扬要改善两岸关系，还扬言要民进党“远离意气之争”。
 
-郭文贵先生刚在直播中揭露台湾政府内部的亲共势力伺机发起公投，甚至掀起动乱，为中共出兵占领台湾制造时机的话音未落，台北市长就出来喊话搅时局扰民心了。
+德国REPOPT24新闻网报道，数千例“突然和意外”死亡现像，与接种疫苗有关，德国统计显示：从2021年的死亡人数与前一年相比，“突然和意外”的死亡案例剧增，死亡率比前一年高出很多，事实表明，“突然和意外”死亡的流行与接种毒疫苗密切相关。然而在社交媒体平台上，由于Instagram根据Facebook的所谓审查惯例，自动删除了所有关于疫苗接种伤害的评论，只保留了对其它死亡原因的假设。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-11.jpg)
+在各大媒体掩盖真相和虚假报导的舆论环境下，异军突起的社交媒体平台GETTR，正因为传播真相，而快速被各领域大V和民众接受，让更多人了解疫苗是共产党与国际邪恶利益集团制造的生化武器，进而阻止因接种毒疫苗导致的伤害继续蔓延。
 
 （本文仅代表作者观点）
 
-参考链接：
-1. [台北市长喊话蔡英文，声称要克服意识形态之争](https://www.zaobao.com.sg/realtime/china/story20211010-1201952)
-2. [台北市长喊话蔡英文，声称要克服意识形态之争](https://gnews.org/zh-hans/1584641/)
+参考链接：[冠状疫苗接种之年是“突然和意外”的死亡之年](https://gettr.com/post/pdpbqcaff7)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-08-at-10.11.51-PM.png)
 
-新闻访谈终审：鬼五
+新闻访谈终审：Ryan
 编辑/校对/审核：Hetangyuese
 
 **更多资讯，更多关注**
