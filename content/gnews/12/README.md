@@ -2,27 +2,17 @@
 ---
 
 
-## 独家！康涅狄格号南海遭撞击系中共潜艇所为
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1587628/)
+## 狮城快讯：一个独立记者眼中的《反外国干涉法案》
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1587747/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+**翻译：小坡**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-11-235615.jpg)
+10月11日，独立记者Kristen Han在英国《卫报》发表一篇文章谈到他对近期新加坡议会刚刚通过的一项有争议法案的看法。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-10.png)
-文章仅代表作者本人观点，与Gnews无关
+他在文章指出，新加坡的《反外国干涉法案》在9 月 13 日一读后仅三周就通过了，但活动人士、记者、学者和法律从业者在该法案通过之前的担忧依然存在。 政府认为保护新加坡的政治主权是迫切需要的，该法案授予政府权力可以从删除或阻止对在线内容的访问，到强制发布政府通知，甚至禁止某些应用程序（被怀疑有可能有外国干涉）下载等。政府还可以将某个人或实体指定为“具有重要政治意义”，一旦被指定，他们将被要求提交与外国捐赠有关的定期报告。
 
-视频参看：2021.10.11早GTV新闻访谈
+政府认为新加坡人对此没有什么可担心的。只要他们不是外国代理人，他们就不会感受到该法案的影响。但是，这很难让人放心，因为在法律的宽泛定义和缺乏司法监督的支持下，政府可以自己确定你是否是当地代理人。 曾经为推迟该法案通过而进行的努力如今都化为泡影，因为在新加坡注定是这样的结果。
 
-[https://gtv.org/broadcast/watch/61642ebc304e992109b387e8](https://gtv.org/broadcast/watch/61642ebc304e992109b387e8)
+现在，活动家和独立记者只能在一个不可能的难题中挣扎：弄清楚如何平衡影响，同时保持“政治上的无足轻重”，以逃避政府在该法案授权下的各种刁难。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**[新闻来源](https://www.theguardian.com/world/2021/oct/11/singapores-new-foreign-interference-law-leaves-journalists-like-me-with-an-impossible-puzzle)**

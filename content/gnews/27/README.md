@@ -2,33 +2,35 @@
 ---
 
 
-## 马英九质疑蔡英文欲改国号是在为中共武统台湾铺路吗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1587471/)
+## 限期临近，超十万军人仍拒绝接种毒针疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1587521/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-34.png)
-（图片来自网络）
+作者：雪梨
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+根据五角大楼关于新冠疫苗接种的规定，除极少数军人将被批准豁免以外，有2百多万军人被强制要求接种，否则，将受到惩罚。随着最后期限的临近，仍有数十万军人不放弃自己的权力，拒绝接种。
 
-据《法国国际广播电台》10月11日报道，台湾前总统马英九昨日批评现任总统蔡英文让“中华民国”消失。理由是最近蔡英文在投稿给美国外交事务双月刊时，署名是“台湾总统”（President of Taiwan），而非“中华民国”（R.O.C.）总统。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-18.jpeg)
 
-马英九质问蔡英文当的是哪一国的总统？庆祝的是哪一国的国庆？批评蔡英文欲改国号。然而，马英九的这一举动也被一些分析人士认为，马是在故意制造“台独”借口，配合习近平近日充满威胁的讲话，为中共武统台湾铺路。
+美国各军种有不同的疫苗接种截止日期。海军和海军陆战队的截止日期都是11月28日，空军是11月2日，陆军是12月15日。已经接种至少一剂的现役军人比例超过92%，令人十分担忧，约有10.3万名军人选择不接种。
 
-马英九昨天参加国民党举办的国庆节升旗典礼致词时说，一个国家元首在国际著名期刊说错国名，全世界都看到，这是很严重的事。他表示，前总统李登辉任内也曾投书这份刊物，署名是“中华民国总统”；而他自己担任总统8年，4次投书美国媒体，一律都署名“中华民国总统”。他质疑为什么李登辉跟他都做得到，蔡英文却做不到？蔡英文是想改变国号吗？
+其中海军完全接种比例最高，达90%，海军陆战队的这一比例是72%，陆军警卫队和后备队约占美军的四分之一，而不到40%的陆军完成了疫苗接种。新冠毒针已完成了对美军人员大范围的侵入。
 
-马英九进一步指出，蔡政府的这种态度其实有迹可循。外交部长吴钊燮最近在美国演讲时，提到政府正在推动“正名”时说过，希望台湾能“使用真正的名字”；驻美代表萧美琴也早已把自己的官衔改为“台湾驻美大使”（Taiwan Ambassador to the US）；此外，驻德大使谢志伟在国庆节当天举着印有“台湾独立”四个大字的旗帜，拍照片贴在脸书上。马英九质问，他们这样做是蔡英文指示办理的吗？
+此前，美军士兵和军官已就疫苗强制令，起诉国防部，称该指令违法。而在疫苗造成至少15万美国人死亡，和无数不良反应的事实面前，美国国防部仍持续推行疫苗强制令，这不仅置军人的健康于巨大的风险之中，并将严重威胁美国国家安全。
 
-马英九还指出，蔡政府执政5年多来，每逢国庆，身为主角的“中华民国”就好像变成了配角，只剩下“台湾”、公元纪年与双十图腾，而不见“中华民国”。今年的国庆logo，甚至只剩下“台湾国庆节”。他质问蔡英文，如果这么讨厌中华民国，为什么不辞职下台呢？
+(本文仅代表作者观点)
 
-对于蔡英文在国庆演讲中提到“中华民国与中华人民共和国互不隶属”，以马英九为代表的台湾投降派，质疑这种说法形同“两国论”，容易引起北京（中共）往非善意方向解读。
+参考链接: [Hundreds of thousands of U.S. troops have not yet complied with vaccine mandate as deadlines near](https://www.ctpost.com/news/article/Hundreds-of-thousands-of-U-S-troops-have-not-yet-16522715.php)
+[Hundreds of Thousands of US Troops Still Not Fully Vaccinated Against Covid as Deadlines Loom](https://www.thegatewaypundit.com/2021/10/hundreds-thousands-us-troops-still-not-fully-vaccinated-covid-deadlines-loom/)
 
-马英九基金会执行长萧旭岑认为，蔡政府内阁的一系列举动，以及蔡英文昨天国庆演讲时清楚地说出 “两国论”框架，这一连串作为绝不是即兴之作，等同于打破了蔡政府过去所说的“不冒进、不挑衅”，“维持现状”的说法，显示蔡英文在剩下的任期内，并没有打算跟对岸对话的善意，这将让两岸关系更复杂凶险。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-与蔡英文在国庆演讲时强硬回应习近平前一天的威胁讲话相比，台湾“卖台贼”屈膝投降、跪舔中共的丑恶嘴脸暴露无遗。
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
 
-多年来一直为台湾所处的危险境地奔走呼吁的郭文贵先生，在其10月10日的直播中明确指出，中美双方已在苏黎世会谈中完成勾兑，美国出卖了台湾利益，等于默许了中共借“反台独“之名强统台湾；而台湾的“卖台贼”将作为内应配合中共，在台湾制造“台独”势头，以使中共借机武力攻打台湾。
-
-马英九这个“卖台贼”的代表果然不出所料，火速开始行动，迫不及待地为中共武统台湾铺路。台湾已处在极其危险之境地，而美国和国际社会真的就袖手旁观吗？！
-
-注：本文仅代表作者观点
-
-新闻链接：[https://twitter.com/RFI\_Cn/status/1447472803603640323](https://twitter.com/RFI_Cn/status/1447472803603640323)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

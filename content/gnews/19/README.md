@@ -2,21 +2,27 @@
 ---
 
 
-## 山雨欲来风满楼——美中卖台协议出炉
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1587532/)
+## 独家！康涅狄格号南海遭撞击系中共潜艇所为
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1587628/)
 
-撰稿：Ermat【㊙️翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/merlin_178926243_dce400c2-f273-46a3-af72-85650ef85742-master1050.jpg)图片来源：cn.nytimes.com
-郭文贵先生在10月10日的直播中，讲述了近来台海局势的一系列变化，尤其是中美秘密签署的三条卖台协议。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-第一条，美方承诺，不改变中共体制，经济要挂钩，中共继续买美国国债，这是根本。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-10.png)
+文章仅代表作者本人观点，与Gnews无关
 
-第二条，任何情况下中美军事交流在这一届政府都不会停下来，而且承诺在台湾、在南海不会有任何军事行动。基本上放弃了所有的南海主张。
+视频参看：2021.10.11早GTV新闻访谈
 
-第三条，在香港、新疆、台湾等所有的问题上双方叫竞争关系，确立为竞争关系，就是没有军事冲突，不推翻这个体制。
+[https://gtv.org/broadcast/watch/61642ebc304e992109b387e8](https://gtv.org/broadcast/watch/61642ebc304e992109b387e8)
 
-山雨欲来风满楼，不详的征兆接踵而来：携带核弹的战机，习的”祖国统一“讲话，美国卖台协议。而世界的”观望、妥协、沦陷“，让二战时的张伯伦时代再现，这是一个美奸、欧奸、台奸辈出的时代，这是一个混沌、麻木的年代。风雨飘摇中的台湾，让人们思念当年的铁血宰相丘吉尔和曾经的川普总统。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
 
-[2021年10月10日 文贵大直播](https://gtv.org/video/id=6162dd0f304e992109b2bc89)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
