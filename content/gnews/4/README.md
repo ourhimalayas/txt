@@ -2,58 +2,19 @@
 ---
 
 
-## 英格兰 30,305 人在接种疫苗后的 21 天死亡
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1586059/)
+## 习所干的一切都是为干倒美元干倒欧元
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1586092/)
 
-作者：sherryok (水云间)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-1-2.jpg)
-英国曝光网站报道，国家统计部门官方数据不经意揭露，在 2021 年的前 6 个月内，英格兰有 30,305 人在接受中共病毒疫苗后的 21天内死亡。
+**【郭先生直播摘要】****2021.10.3 ****习所干的一切都是为干倒美元干倒欧元而干的**
 
-几个月以来，数十个开放[信息的请求](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.whatdotheyknow.com/request/deaths_for_any_reason_within_28_34)发送到英国公共卫生部门（PHE Public Health England），要求知道有多少人在接种Covid-19疫苗后28天内死亡，但每次PHE都回复他们并未“拥有所要求的信息”。
+**郭先生：**
 
-在他们的苏格兰同行发布了 Covid-19疫苗接种28天内的死亡数据后，英格兰卫生部门手头没有这些信息显得非常奇怪。
+为啥我说这个世界经济会跟这个共产党停电有关系，大家没有昨天你那个书里面没算，就你那些都是所谓的官方统计数据，你绝对要记住七哥从一开始爆料说的，如果你相信了任何一个共产党对着镜头和对着人，说出的话和公开的表格和数据那你就是天下最愚蠢的傻子，而且他这些人的谎言哪他很容易揭穿，就像大卫刚刚说的人民警察为人民，咱都信了一辈子了，好几辈子了，人民警察会为你人民吗，都是害你，人民警察害人民，人民警察警人民，是吧，共产党，是吧，人民日报，它永远是骗人民的日报，他什么时候为人民日报过，这个基本的就是所有都反过来说
 
-苏格兰[公共卫生](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://beta.publichealthscotland.scot/media/8183/21-06-23-covid19-publication_report.pdf)部门（PHS）最后[的更新的数](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://beta.publichealthscotland.scot/media/8183/21-06-23-covid19-publication_report.pdf)据是 2021 年 6 月 23 日在其[“Covid-19 统计报告”](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://beta.publichealthscotland.scot/media/8183/21-06-23-covid19-publication_report.pdf)中，他们发现苏格兰 2020 年 12 月 8 日和2021 年 6 月 11 日之间，有5522人在接受 Covid -19疫苗后的28内死亡。
+共产党的那些所有的在今年干的事情，它只有两个目标。
 
-(在[此处](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://publichealthscotland.scot/publications/covid-19-statistical-report/covid-19-statistical-report-23-june-2021/)发布的[电子表格中](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://publichealthscotland.scot/publications/covid-19-statistical-report/covid-19-statistical-report-23-june-2021/)显示各疫苗品牌的数量和发生日期。1,877 人在接受辉瑞 mRNA 注射后 28 天内死亡，3,643 人在接受阿斯利康病毒载体注射后 28内死亡，2 人在接受 莫德纳mRNA 疫苗注射后 28 天内死亡)。
+大家没搞明白，所有今天共产党想一门清，现在就是把习一神已经捧到天上去了。习一神绝对认为自己是神了，他不是假的，他甚至连一点都不怀疑，否则他不可能让中国人民喊他习大大，习妈妈，啊，是彭妈妈。他不可能把他这个相片摄像到处都是，让各宗教啊都要把习近平相跟佛祖默罕默德耶稣挂在一起去，你知道他真的觉得自己就是神了，这个是这个对咱爆料革命是好事，
 
-之所以统计 Covid-19疫苗28天内的死亡人数，原因是这一直是大流行期间用于计算 Covid-19 死亡人数的测量参数。
+但同时他也认为他真的能统治世界，他真的认为他自己就是来，让中国所谓再强大1000年，回到唐朝盛世。统治人类世界，他绝对是这样子，他现在越来越看不起美国人，是越来越看不起欧洲人越来越看不起日本人，唯一觉得俄罗斯还不错，他算尊敬俄罗斯，有普京在，俄罗斯人的，这种风格，没人看得起，那么这种情况下你就看到他想干啥，一切都是干倒美元干倒欧元而干的。
 
-如果死亡发生在中共病毒阳性结果后的 28 天，则将其计入中共病毒死亡人数；但是，刚开始的时候，他们曾将发生在病毒测试阳性后 60 天内的死亡都计为 中共病毒死亡人数。
-
-要感谢利用“技术问题”的借口，英格兰卫生部门得以逃避回答接种疫苗后死亡人数的问题。该技术性的障碍只是提问的“天数”不同而已，因为我们发现他们确实保存了注射疫苗后死亡人数的数据。
-
-但是这不是在 28内的死亡人数，而是接受疫苗注射后21 天内的死亡人数，而这些数字被国家统计机构不经意公布出来。
-
-英国[国家统计局](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.ons.gov.uk/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/articles/deathsinvolvingcovid19byvaccinationstatusengland/deathsoccurringbetween2januaryand2july2021)(ONS Office for National Statistics)于2021年9月13日[发布的](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.ons.gov.uk/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/articles/deathsinvolvingcovid19byvaccinationstatusengland/deathsoccurringbetween2januaryand2july2021)一份[报告](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.ons.gov.uk/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/articles/deathsinvolvingcovid19byvaccinationstatusengland/deathsoccurringbetween2januaryand2july2021),明显试图欺骗公众，让他们相信大多数Covid-19死亡发生在未接种疫苗的人群中。但他们报告中使用的日期是2021年1月第二波疫情爆发期间，当时发生了大量死亡事件，那时几乎没有人接种疫苗。
-
-截止点也是 2021 年 7 月 2 日，预示着我们目前经历的夏季第三波病毒爆发发生的死亡数字不包括在内。
-
-来自[政府](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://coronavirus.data.gov.uk/details/deaths)图表显示，使用的死亡数据中，是第二波疫情期间，当时刚刚开始接种疫苗，所以高数值当然来自未接种疫苗的人群。
-
-但是，如果 ONS 决定调查我们经历的第三波疫情数据，那么您会看到 75% 的中共病毒死亡者实际上已经打了疫苗，只有 25% 的死者没有打疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-2-1.jpg)
-英国公共卫生“警报监测报告”的表 5，在 2021 年 8 月 9 日至 9 月 5 日期间，未接种疫苗的有 600 人死亡，部分接种疫苗的大约有 97 人死亡，完全接种疫苗的有 1,659 人死亡。
-
-因此，正如您所看到的，在第三波中共病毒疫情中，绝大多数死亡发生在接种疫苗的人群，但ONS当然不想让您知道这一点，因此他们将其排除在外。但我们敢打赌，他们肯定也不愿意公布手头所有的，注射疫苗后 21天内死亡的人数。
-
-ONS报告的表1试图展示Covid-19疫苗在预防死亡方面的效果。但不要忘记，他们只涵盖了一年中的前6个月，当时大多数人口没有接种疫苗，死亡就发生了。
-
-但是为了让大众相信 Covid-19 疫苗可以预防死亡，英国国家统计局公布，在 2021 年 1 月 2 日至  7 月 2 日期间，英格兰有 30，305 人在接受Covid-19 疫苗后的 21 天内死亡。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-3-1.jpg)
-如上所示，在接种第一剂疫苗后 21天内有 14,265 人死亡，有 4,388 人在接种第一剂疫苗后 21 天内，感染中共病毒死亡。
-
-另有11，470人在接受第二剂疫苗后21天内死亡，182人在第二剂疫苗后21天内感染中共病毒死亡。
-
-因此，2021 年前 6 个月，英格兰共有 30，305 人在接受疫苗后的 21天内死亡。
-
-值得注意的是，在接受疫苗超过21 天后的时间里，又有 123，79 人死亡，我们还想知道还有多少人是在 28 天，或者 60 天后死亡。因为他们仍然用这些参数来计算中共病毒的死亡人数。
-
-但是现在，我们将不得不满足于只有 2021 年前 6 个月内的这个数据，接受疫苗后，英格兰死亡的官方数字是30,305，而且我们怀疑这只是政府同意让我们看到的数据。
-
-[新闻链接](https://theexpose.uk/2021/09/15/30k-people-died-within-21-days-of-having-a-covid-19-vaccine-in-england/)
-
-【文章仅限作者个人观点 不代表GNEWS平台】
-
-审核校对：Barry Jack
-上传排版：F
+视频剪辑：北方信使 |听写：雨山溪桥客：|翻译：Arthur |校对：San Fen字幕+视频制作：CG.

@@ -2,25 +2,34 @@
 ---
 
 
-## 绝地反击&#8211;加拿大反疫苗护照示威者将封桥堵路以抗暴政！
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1585993/)
+## Facebook及其应用程序再次中断
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1586032/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-188-edited.png)图片来源：JOURNALQUEBEC
+**据《纽约时报》作者：迈克·艾萨克，2021年10月8日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/a958e-g14dp.jpg)图片来源：互联网
+周五下午，Facebook及其系列应用程序大约有两个小时无法访问，这是该社交网络平台一周内第二次出现广泛的服务故障。
 
+网站DownDetector.com是一项依赖用户报告来确定网站是否存在问题的服务，网站显示Facebook的所有主要产品包括Instagram、WhatsApp、Messenger和Facebook的“蓝色大应用”都在美国东部时间下午3点左右出现宕机。
 
-据加拿大魁省法语主媒《魁北克日报》10月10日刊登新闻指出，蒙特利尔和魁北克市的反COVID19疫苗护照的示威者们，正计划于10月15日封锁该地区及周边的主要交通道路和桥梁，以抗议魁省当局目前执行的强制接种该疫苗的措施。
+在东部时间下午5点刚过，Facebook表示已经解决了这个问题，这次网络中断影响了世界各地的人们。该社交网络平台公司表示，中断是由“配置”更改引起的，这通常是指公司基础设施底层技术的调整，但该公司没有提供更多细节。
 
-尽管当地警方也正在密切关注这些计划在下周封锁全省公路和桥梁以反对COVID19疫苗护照的抗议者，但数百人已经在Facebook上确认了他们将参加下周五的名为 “卡车司机堵塞魁省道路和桥梁”活动。
+该公司表示：“向过去几个小时内无法访问我们产品的所有人表示诚挚的歉意。”
 
-据悉，在蒙特利尔市，Jacques-Cartier桥和Samuel-De Champlain桥正成为抗议者们拥堵的行动目标。而在省会，魁北克市的主要道路和Pierre-Laporte桥，届时将极有可能会被人群和车龙瘫痪。
+Facebook 表示，周五的停电与周一出现的问题无关。在周一的时候，其应用程序在全球范围内停机超过五个小时。
 
-这次大型示威活动的主要组织人，22岁的马蒂厄-加尼翁对媒体表示，抗议者将在魁省各地的高速公路上以60公里/小时（魁省高速公路的汽车行驶下限速度）自由行驶，以此导致大量的交通拥堵。示威活动将一直进行到阿比迪比地区，甚至渥太华最终也可能会加入其中。为此，该组织者强调：“这样做是为了抗议省政府强推的疫苗护照，并让省长弗朗索瓦（François Legault）听到我们反抗的声音。”
+周一的停电清楚地提醒人们，世界上有多少人依赖Facebook的一个或多个应用程序。全世界有超过35亿人经常使用它们。企业家和企业主表示，在停电期间，他们无法在Instagram或Facebook平台上的网络店面进行销售，这在某些情况下意味着损失了数千美元。
 
-此外，这位承认自己没有接种过COVID19疫苗的年轻组织者还表示，他们将在志同道合的卡车司机的帮助下封锁该省的各主要公路和桥梁，直到当局改变对现行疫苗护照的政策，或就强制该疫苗接种的措施举行公开辩论。抗议者们已经为这次活动筹备了几个星期。其中一些人还在魁北克市组织了相应的扩大会议。
+在美国以外，严重依赖WhatsApp的国家（巴西、印度和菲律宾等）的人们无法与朋友、家人、同事或客户交流。 WhatsApp全球有超过 10亿人使用。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-189-edited.png)图片来源：JOURNALQUEBEC
+周一停电后，随着应用程序再次缓慢上线，该公司警告称，其服务需要时间才能稳定下来。
 
+**原文链接：**[https://www.nytimes.com/2021/10/08/technology/facebook-whatsapp-instagram-down.html](https://www.nytimes.com/2021/10/08/technology/facebook-whatsapp-instagram-down.html)
 
-(以上内容仅代表原文信息和作者个人观点)
+翻译：洛杉矶盘古农场 – 蓝精灵
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[原文链接：](https://www.journaldequebec.com/2021/10/10/ils-veulent-encore-bloquer-des-ponts)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

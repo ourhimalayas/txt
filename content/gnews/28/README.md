@@ -2,27 +2,21 @@
 ---
 
 
-## 有声|白宫支持对科技平台的 “危害 “进行监管
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1585817/)
+## 从恒大事件看中共国的“房事”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1585868/)
 
-配音：香草山美食部 – 玫瑰园
+俄罗斯莫斯科喀秋莎农场 娜洁仕达
 
-10月6日，白宫表态支持对社交媒体技术平台的进一步监管，以回应脸书吹哨人在国会的听证。
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/E-1.jpg)
+俄罗斯莫斯科喀秋莎农场10月9日GTV的直播节目，从近期中共国闹得沸沸扬扬并引起全球关注的“恒大事件”的时间线谈起，为观众详细梳理了恒大事件的脉络。
 
-前脸书产品经理豪根，在给国会的证词中，警告了脸书对心理健康和政治分裂的影响。她说，脸书一贯以有利其自身利益的方式去解决冲突，结果却导致更多的分裂、谎言和斗争。
+从许家印如何发家，如何代替万科成为地产老大谈起，谈到了2012年许家印在“两会”期间风头正旺时的傲娇表现，最后谈到了从2020年起的财务危机直到2021年10月股票突然停牌，受到全世界关注，更是对此次“恒大事件”目前中共国出台的处理意见发表了栏目组的看法。
 
-白宫新闻秘书菩萨基在白宫每日新闻发布会中回应称，“科技平台必须对它们造成的伤害负责”。拜登政府是改革科技平台的 “坚定支持者”，并将把“230条款”改革、隐私改革、透明度和反垄断法 “摆上台面”，以便采取行动。
+节目还详细讲述了中共国房地产自1980年“改开”以来的发展历程，与全世界房价以及物价和收入对比，栏目组三人结合自身的经历就此展开了讨论。通过解读爆料革命文贵先生的多次爆料等，阐述了栏目组对恒大事件、对于中共国房地产的过去现在和将来、以及对中共国经济乃至世界经济带来的后果的一些见解。
 
-文字版原文：[白宫支持对科技平台的 “危害 “进行监管](https://gnews.org/zh-hans/1582504/)
+直播的最后，栏目组对此次中共国是否会出手“救”恒大做出了猜测。虽然观点不一，但是栏目组一致认为恒大带给中国乃至世界经济的灾难才刚刚开始。恒大必将是中共国的雷曼兄弟！
 
-音频处理：喜山必胜Maverick
+更多精彩内容请关注俄罗斯莫斯科喀秋莎农场GTV频道
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://gtv.org/video/id=61585ed9304e992109ae042b](https://gtv.org/video/id=61585ed9304e992109ae042b)
