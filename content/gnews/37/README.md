@@ -2,33 +2,24 @@
 ---
 
 
-## 中共新冠疫苗埃及推展不顺再遭丢弃
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1587194/)
+## 随遇而安 转化生命
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1587287/)
 
-作者：修文
+作者：东京樱花团｜阿恩
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/随遇而安-转化生命-.jpg)
 
-埃及明亚省贝尼迈扎尔一处污水沟，发现近日被人倾倒的，大量中共国药集团新冠疫苗，当局展开调查后发现卫生局仓库内另有4988盒疫苗不翼而飞。后锁定埃及生物制品和疫苗控股公司3人将其逮捕。这三人分别为药剂师、仓管人员、运货司机。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-206.png)
-据《今日埃及》报导，水沟旁一共有1万3412盒国药疫苗遭到丢弃，已无法使用，这批疫苗的价格在502万3200埃及镑，约人民币207万左右。埃及5日才刚在开罗机场接收国药送来的100万剂疫苗，以及可生产460万剂疫苗的原材料。
+国安恶法下的香港主流媒体已经成为中共的喉舌，在囚民主人士现状的消息很难出现在公众眼前，感恩仍有少数的独立媒体坚持关注香港的民主现状，在黑暗的中共极权下如同角落中若隐若现的烛光。香港泛民派系的领军人物大部分已身陷囹圄，许多人被羁押待审的时间超过一年，有已判囚的更被罪上加罪，刑期了无止境。他们中的许多人曾经期望寄司法程序取得保释的机会重回社区，可惜这条路一早被中共安插的法官堵死。监狱对于无罪的人是最大的折磨，好在高墙外的亲人、朋友和市民从未停止送上安慰，因为每位在囚人士一周只有一次机会见客，许多有心的人就将心意化作家书辗转进入囚室。
 
-埃及政府表面配合，但实际各种拖延，并不买中共和世界卫生组织的账。此前新冠疫苗接种计划在当地推行并不顺利。这次在中共国药抵达后，发生了这种极为巧合的意外，说明埃及民众对中共毒疫苗的不信任感已经形成共识，为了民众的安全，疫苗公司工作人员才会自发站出来销毁毒疫苗，也是对当局推广疫苗计划的正面抗争。
+监狱中每位囚友都是社会问题的代表，他们不幸的经历和怨恨并不能随着监禁岁月的流逝得到化解。而政治犯所背负的罪名随时可能在监仓中度过余生，他们有着更大的冤屈和恨。如今这些民主斗士已褪去昔日锐利的锋芒安心于此，囚友见证他们从挣扎到忍耐的蜕变，见证他们积极地面对每日的光景，规律的生活始终如一，健身、阅读从不间断。往日衣着光鲜穿梭上流社会思考民间疾苦，今日终于降卑于一众被社会抛弃、被遗忘的人。他们的到来是囚室中清新的生机，加上都是博览群书的知识分子，对民主自由又有不懈的追求，反而在囚室中更受尊重，吸引囚友与他们接触，彼此敞开心胸诉说忧愁、怨恨和憧憬，共同讨论社会现状和问题，不知不觉将自由民主的火种埋在囚友的心中，许多囚友在他们的帮助下挥散了心霾，改变了人生的态度。监狱成为在囚民主人士新的工场，所有的囚友都是他们关爱的对象。
 
-参考链接：
-
-1. [不想用？埃及大量中國國藥武肺疫苗遭丟棄 當局逮捕3人](https://news.ltn.com.tw/news/world/breakingnews/3700054)
-2. [Egypt: Haphazard and flawed Covid-19 vaccine rollout fails to prioritize most at-risk](https://www.amnesty.org/en/latest/press-release/2021/06/egypt-haphazard-and-flawed-covid-19-vaccine-rollout-fails-to-prioritize-most-at-risk/)
+- ***延展阅读：***[***林卓廷狱中书：儿女更成熟懂事***](https://www.inmediahk.net/node/%E7%A4%BE%E9%81%8B/%E6%9E%97%E5%8D%93%E5%BB%B7%E7%8D%84%E4%B8%AD%E6%9B%B8%EF%BC%9A%E5%85%92%E5%A5%B3%E6%9B%B4%E6%88%90%E7%86%9F%E6%87%82%E4%BA%8B-%E3%80%8C%E5%AD%A9%E5%AD%90%E5%B7%B2%E4%B8%8D%E5%86%8D%E5%AD%A9%E5%AD%90%E3%80%8D)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+我们并不知道这些改变在未来的岁月中会如何影响囚友们的人生，但我们现在知道，在囚民主人士正在努力转化这些最需要关心的人。
 
-新闻访谈终审: 暗黑
-编辑/校正/发稿：浪迹天涯
+（本文只代表个人观点，与Gnews网站无关）
 
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)

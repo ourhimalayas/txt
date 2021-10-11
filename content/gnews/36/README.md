@@ -2,35 +2,55 @@
 ---
 
 
-## 州长候选人和妻子患新冠 强烈反对新冠疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1587209/)
+## 维多利亚州高级警官辞职，声称多数警察不相信 COVID规则
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1587298/)
 
-作者：飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
-10月10日，德克萨斯州共和党州长候选人，艾伦·韦斯特（Allen West）发布一系列推文，他分享了自己和妻子感染新冠病毒，和在达拉斯医院接受治疗的经历，并称现在，他将更坚决的反对疫苗强制接种令。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-207.png)
-现年60岁的韦斯特曾担任德克萨斯州共和党主席。6月卸任后，正在备选明年州长选举。他在推特中表示，他反对新冠疫苗强制接种，并且自己也没有接种。韦斯特的妻子接种了疫苗，但上周五10月8日被检查出新冠阳性，接受治疗后第二天回家。当天，韦斯特自己也出现轻微症状，进入医院治疗后，血氧饱和度从85回升至94至96区间。
+【简评：】***澳大利亚的维多利亚州政府以防疫为借口实行强权统治，对人民实施疫苗强制接种令和对社区进行封锁，令警民关系从原来的帮助人民、保护人民走向了暴力镇压人民。COVID 大流行既检验了统治者的管理能力，也把当权者的虚伪无能暴露得一览无遗。***
 
-在系列推中，韦斯特感谢医护人员没有强迫他接受有害的方案，自然抗体最好。他表示更加致力反对相关的强制令，不能让垄断大药厂和腐败的官僚借此敛财，绝不接受把危险的针头对准美国人民。作为德州官员，将坚持强烈打击任何在这里强制要求接种新冠疫苗的人。韦斯特以自己道德家庭现状强调个人选择权的重要性，韦斯特说：“我们的身体是我们最后的自由和自由的避难所，我将为每个人捍卫这一点”。
+据《天空新闻网》作者：Brianna McKee，2021年10月9日报道：
 
+代理高级警长克里斯特·米切尔（Krystle Mitchell）因该州严格的COVID-19指令而退出警队，正面临维多利亚州警方专业标准指挥部的调查。
 
+这名女警在周五晚上出现在一个独立媒体节目《清晰的采访》后，毅然辞去了维多利亚州警察的职务。
 
-参考链接：
+她告诉节目组，维多利亚州警察不再独立于安德鲁斯政府，要求警察执行严苛的新指令让她感到非常“困扰”。
 
-1. [Texan vying for governor slams COVID vaccine mandates from hospital](https://www.newsbreak.com/news/2398730984074/texan-vying-for-governor-slams-covid-vaccine-mandates-from-hospital)
-2. [Allen West’s Twitt](https://twitter.com/AllenWest/status/1447195966684205059)
+米切尔警长说，她目前在性别平等和包容指挥部工作，她将其描述为“我所拥有的最好的工作”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2480.png)代理警长克里斯特·米切尔（Krystle Mitchell）通过《清晰的采访》参加了一次采访。图片来源：天空新闻网
+她说：“关于我想做什么，以及我看到我的组织在这场大流行病中如何被使用，我内心有一个很大的思考过程和道德与诚信的斗争，这让我非常困扰。”
 
+“但这背后是我所有的朋友，他们都是在前线工作的警察，每天都在为执行CHO指令而受苦，当然，绝大多数人都不相信也不想执行。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+米切尔警长在星期五早上，在她当晚的采访上线之前从维多利亚州警察局辞职。她说，向公众坦诚相告的后果将导致她被解雇。
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：浪迹天涯
+“我之所以选择辞职，是因为我无法再从灵魂深处补救我热爱的组织被使用的方式，以及它对维多利亚州警察的声誉造成的损害和对社区造成的损害。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2481-1.png)代理警长Krystle Mitchell在从维多利亚州警察局辞职后参加了一次采访。图片来源：天空新闻网
+她说，维多利亚州警察对整个墨尔本的反疫苗和反封锁抗议活动的反应特别具有破坏性。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+该组织在周六发布的一份声明中与她的言论保持距离，该声明写道：“这次采访中的评论绝不反映维多利亚州警察的观点。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+维多利亚州警方周六说，“我们的雇员按照政府最新的授权接种疫苗是至关重要的，这可以确保他们的同事和社区不会受到警察传播病毒的威胁。”
+
+“虽然雇员个人有重要的人权，但在这一公共卫生紧急情况下，必须权衡这些权利与社区的利益。”
+
+警方对上个月墨尔本暴力抗议活动的反应进行了审查，发现存在战术缺陷和对培训不足的担忧。
+
+9月18日，基尤市的抗议活动演变成了暴力事件，导致10名警员受伤。
+
+该审查由警察协会负责，并建议紧急改变警察处理未来示威活动的方式。
+
+审查发现警队成员对维多利亚警方感到失望，认为警队未能保护他们。
+
+至少有1000名警员对这一事件表示愤怒，并表示他们装备简陋，没有能力处理暴力事件。
+
+原文连接：[https://www.skynews.com.au/australia-news/politics/senior-victoria-police-officer-krystle-mitchell-resigns-claims-most-cops-dont-believe-in-covid-rules/news-story/69cc750c6e64aa65d5044f38e62128b4](https://www.skynews.com.au/australia-news/politics/senior-victoria-police-officer-krystle-mitchell-resigns-claims-most-cops-dont-believe-in-covid-rules/news-story/69cc750c6e64aa65d5044f38e62128b4)
+
+(本文评论仅代表个人观点）
+
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+评论/编辑：洛杉矶盘古农场 – 明子
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

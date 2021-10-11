@@ -2,68 +2,28 @@
 ---
 
 
-## 2名儿童意外接种了 Covid 疫苗而不是流感疫苗，现在都患有心脏问题
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1587568/)
+## 有声|西南航空飞行员工会起诉航空公司强制接种疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1587679/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2489-1.png)
-[https://gtv.org/video/id=61643409d2e2b81748741007](https://gtv.org/video/id=61643409d2e2b81748741007)
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+据零对冲10月9日报道，代表西南航空公司飞行员的工会正在提起诉讼，以阻止航空公司强制飞行员接种疫苗。
 
-An Evansville family with children, four and five years old, 
-一个有四和五岁孩子的埃文斯维尔家庭
- 
-Say they are accidentally given full adult doses of the Pfizer Coronavirus vaccine, instead of flu shots. 
-说他们意外接种了成人剂量的辉瑞冠状病毒疫苗，而不是流感疫苗。
- 
-They say it happened on October 4 at the Walgreens of St Joseph Avenue, 
-他们说这件事发生在 10 月 4 日在圣约瑟夫大道的沃尔格林（药房）
- 
-the family of four includes two adults and two young children, 
-四口之家包括两个大人和两个小孩
- 
-both too young for the Pfizer or any other COVID vaccine. 
-对于辉瑞或任何其他 COVID 疫苗来说他们都太年轻了
- 
-While the family’s attorney Daniel Tuley shared with us what he says, 
-那个家庭的律师丹尼尔·图利与我们分享了他所说的话
- 
-our vaccination cards given to the family by Walgreens, 
-我们的疫苗接种卡是由 沃尔格林发给那个家庭的
- 
-they show children born in 2016 and 2017 
-他们展示了孩子是在 2016 年和 2017 年出生的
- 
-were given a Pfizer Coronavirus vaccine. 
-被注射了辉瑞冠状病毒疫苗
- 
-The family says they left the pharmacy thinking they had gotten their flu shots, 
-这家人说当他们离开了药房时， 他们以为打了流感疫苗
- 
-but a Walgreens employee later called them and said they had made a mistake. 
-但后来沃尔格林的一名员工打电话给他们而说他们搞错了
- 
-Tuley says the children had been taken to a pediatric cardiologist, 
-图利说孩子们被带到儿科心脏病专家处
- 
-and the family was told both are showing signs of heart issues. 
-而且家人被告知两孩子都有心脏问题的迹象
- 
-We reached out to Walgreens several times but have not yet heard back
-我们多次联系沃尔格林，但还没有得到回复
- 
- —————————————————————————
- Date:10/10/2021
-原视频标题: 2 children were accidentally given the Covid vaccine instead of flu shots and are now both suffering from heart issues
-2 名儿童意外接种了 Covid 疫苗而不是流感疫苗，现在都患有心脏问题
-原视频日期：2021/10/09
-原视频链接: [https://twitter.com/jsdfposjpqyuee1/status/1447014409243488261?s=21](https://twitter.com/jsdfposjpqyuee1/status/1447014409243488261?s=21)
-任务编号：KE338（2489）
-视频时间段 : 0:00-0:53
-英听校：洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – 郭友(文苏)
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+这是工会反对拜登政府颁布的新冠疫苗接种要求的首批案例之一。法庭文件显示西南航空公司飞行员工会要求立即在达拉斯联邦法院就该诉讼进行听证。工会认为，新的强制接种疫苗政策，事实上是非法强加了新的就业条件，资方凡是涉及到新冠的政策变化都需要和工会谈判，并声称该航空公司强迫员工要么接种疫苗，要么被解雇或无薪休假，是一种“单方面的行动”，这违反了《铁路劳工法》。该航空公司根据拜登政府最新的强制接种疫苗的政策，要求飞行员必须在2021年12月8日之前完全接种疫苗，否则公司和飞行员的合约将被终止。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+飞行员面临着独特的风险，因为疫苗副作用可能会影响他们通过定期的体检，从而使飞行员失去飞行执照。该飞行员工会代表着西南航空公司的九千多名飞行员。
+
+六月底，英国航空公司有四名飞行员接种疫苗后死亡，其他接种疫苗后出现的死亡、残疾等等报道也越来越多。西南航空公司工会希望看到其他工会也有类似的行动，共同反对政府和航空公司强制疫苗接种的政策。有报道称，英国飞行员进行反击后，航空公司对飞行员的限制正在放松。
+
+文字版原文：[西南航空飞行员工会起诉航空公司强制接种疫苗](https://gnews.org/zh-hans/1584714/)
+
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

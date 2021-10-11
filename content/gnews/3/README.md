@@ -2,27 +2,19 @@
 ---
 
 
-## 独家！康涅狄格号南海遭撞击系中共潜艇所为
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1587628/)
+## 俄罗斯窃取了阿斯利康疫苗的秘密
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1587722/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10111-1.jpg)
+俄罗斯窃取了牛津-阿斯利康疫苗的秘密，这是来自太阳报的说法，该报可以访问英国情报部门的一些通讯录。根据报纸上的消息来源，去年莫斯科曾设法窃取英国疫苗的“配方”，不仅是通过黑客攻击，并且通过一名秘密特工偷走了决定性的文件，然后在俄罗斯生产他们自己的疫苗“人造卫星”。它基于与 Oxford-Astrazeneca 相同的技术，即腺病毒。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-10.png)
-文章仅代表作者本人观点，与Gnews无关
+莫斯科暂时还没有评论。反对俄罗斯和中(共)国等敌对势力中最顽固的保守派议员鲍勃·西利说：“我们必须尽快采取措施阻止这些，无论是窃取疫苗信息还是关于能源信息的敲诈勒索”。
 
-视频参看：2021.10.11早GTV新闻访谈
+值得一提的是，在去年，英国一再报告黑客攻击英国医疗保健服务器，这通常来自俄罗斯和中(共)国，甚至伊朗和朝鲜。
 
-[https://gtv.org/broadcast/watch/61642ebc304e992109b387e8](https://gtv.org/broadcast/watch/61642ebc304e992109b387e8)
+免责申明：本文只代表译者观点，与Gnews无关
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+原文链接：[https://www.repubblica.it/esteri/2021/10/11/news/astrazeneca-321773902/?ref=RHTP-VS-I270681069-P16-S4-F](https://www.repubblica.it/esteri/2021/10/11/news/astrazeneca-321773902/?ref=RHTP-VS-I270681069-P16-S4-F)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦

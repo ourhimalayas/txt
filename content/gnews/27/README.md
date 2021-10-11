@@ -2,40 +2,132 @@
 ---
 
 
-## 墙国限电，三峡谎言不攻自破
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1587355/)
+## 断网的原因是俄罗斯
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1587443/)
 
-作者：波士顿五月花 2020灭共必胜
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20211011-1.jpg)
-最近，中共国大部分地区都开始了限制用电，其中东北地区限制最为严重，居民用电也被断了，老百姓则过上了点蜡烛的原始人生活。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2448.png)
+[https://gtv.org/video/id=61639a8ad2e2b8174873db58](https://gtv.org/video/id=61639a8ad2e2b8174873db58)
 
-这不禁让人唏嘘，都2021年了，天天吹嘘自己“厉害了，我的国”的中共，连老百姓居民用电都保障不了。不过，但凡知道中共是说一套做一套和只承诺不兑现的本性后，也就释然了。毕竟人不要脸天下无敌，更何况一个不要脸的恶党！
+**郭文贵：
+Miles Guo：**
+ 
+你像昨天Facebook，一看就俄罗斯出手嘛
+Facebook went down yesterday, I know that Russia was behind it.
+ 
+那还用说嘛？
+Isn’t it obvious?
+ 
+俄罗斯是告诉你，别跟我玩儿，你差远着呢
+Russia was telling Facebook, don’t mess with me, you’re not even close
+ 
+老子一个屁都崩死你Facebook
+“Facebook, I will kill you in a minute”
+ 
+普京真的是拔根汗毛都能把Facebook弄死一万回
+Putin can make Facebook die 10,000 times by moving his little finger
+ 
+他敢出手的，习不敢出手，共产党不敢出手
+Putin dares to strike, Xi dares not to strike, the Communist Party dares not to strike
+ 
+昨天就是俄罗斯干的
+It was Russia yesterday.
+ 
+跟中国半毛钱（关系没有）
+It has nothing to do with China
+ 
+记住昨天凡是在社交媒体上谈到昨天的事，跟中国有关系的
+Remember that anyone who said on social media that yesterday’s event has something to do with China
+ 
+他绝对是骗子，他不懂基本常识
+is an absolute liar and he doesn’t understand basic common sense
+ 
+爆这个普京
+Expose Putin’s secrets
+ 
+你想想爆董建华、爆梁振英
+Let’s expose Tung Chee-hwa, Leung Chun-ying’s secrets
+ 
+梁振英和董建华，上海帮（是）100%江家人
+Leung Chun-ying and Tung Chee-hwa, they are 100% with Jiang’s family in Shanghai
 
-在笔者印象中，三峡大坝开建的时候，对全国人民有以下几项承诺：
+见了江志成跟见亲爹一样
+They saw Alvin Jiang like his own father
+ 
+把自己老婆女儿都送过去
+They can even give their wives and daughters to Alvin Jiang
+ 
+你想想江家要爆习，怎么会爆董建华、梁振英呢？
+Jiang family wants to expose Xi’s secrets, how will they expose Tung Chee-hwa and Leung Chun-ying? Think about that
+ 
+这是第一个，第二个习
+This is the first, the second, Xi
+ 
+如果习在背后操纵，怎么可能爆普京呢？
+If Xi was in control behind the scenes, how could he have exposed Putin?
+ 
+那普京跟他绝对是生死关系，就像咱们之间这种关系
+Putin and Xi definitely have a life-and-death relationship, just like the one between us
+ 
+他怎么可能？
+How could he?
+ 
+我去爆草根小哥，我希望人爆Rachel、爆政清、爆小福利
+Just like if I expose the secrets of Caogen, I hope that people expose Rachel, Zhengqing, Xiao Fuli
+ 
+不可能的事情，那不作死吗？
+That’s impossible. Isn’t that hurting yourself?
+ 
+它跟中国半毛钱关系都没有，只有俄罗斯，呱，一巴掌就过去了
+It has nothing to do with China, but only Russia, quack, a slap on the face
+ 
+还跑我这儿来混饭吃了，你想骗我呢？直接一巴掌就过去了
+And come to me to mess around, you want to cheat me? A direct slap on the face
+ 
+拔你的电源，消掉你的IP
+Unplug your power and eliminate your IP
+ 
+直接把你的所有的几个中心全部给你关掉
+Simply shut down all your centers
+ 
+这只是刚刚开始
+And that’s just the beginning
+ 
+我在2017年直播的时候，我亲自看过展示
+When I was broadcasting live in 2017, I personally saw it revealed
+ 
+就这一个开关按下去，以色列和俄罗斯的网络武器一下按下去
+ Just press this switch, the cyber weapons of Israel and Russia are pressed down.
 
-- 三峡电站建成后，可以提供全国2/3的用电。
-- 居民用电电价降到8分钱一度。
-- 可以抵御万年一遇的洪水。
+你任何一个地方的电网咔嚓就给你关掉，终身让你回不来
+All your local grid will be shut down for life, and there is no return
+ 
+像阿里巴巴，像亚马逊的网站，按下去IP终生就没了
+Like Alibaba, like Amazon’s website, just one click, the IP will be gone forever
+ 
+消失了，永远回不来
+Disappeared and never return
+ 
+有的有备份，它甚至把你的备份
+Some have backups, and it even break your backups
+ 
+（备份）出现的时候，自动找到备份，再给你灭掉
+When (backup) appears, the backup is automatically found and then destroyed
+ 
+ 
+ —————————————————————
+ 
+ Date:10/7/2021
+原视频标题:让Facebook, WhatsApp和Instagram断网的原因是俄罗斯
+The reason Facebook, WhatsApp and Instagram are off the grid is Russia
+原视频日期：2021/10/05
+原视频链接:[https://twitter.com/se1y7cblljselva/status/1445743022172373001?](https://twitter.com/se1y7cblljselva/status/1445743022172373001?)s=24任务编号：KC160（2448）
+视频时间段 : 0:00-1:50
+英听校：洛杉矶盘古农场 – Mike Li
+翻译：洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – 郭友(文苏)
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-那么三峡工程做到了吗？非也！
-
-1. 根据“满发状态下”三峡年理想发电量可以达到1971亿度，但是在中共国年8万多亿度用电量中，仅占2%，只够1400多万个家庭使用。离全国2/3的用电相差十万八千里。
-2. 居民用电在三峡电站建成后，不仅没有降到8分钱一度，反而涨到了如今平均1元钱一度电，老百姓苦不堪言。甚至很多家庭装了空调却不敢开，出现了有些老人为了省电舍不得开空调而热晕的现象。8分钱一度电成了空中楼阁。
-3. 三峡大坝建成后，每年上下游都会在雨季出现洪水，然而三峡大坝丝毫起不到抗洪作用，上下游地区该淹还是被淹。中共媒体则不断改口：只能抵御千年一遇、百年一遇、抗洪不能全部指望三峡大坝等等。让人不禁怀疑是不是花了个爷爷的钱只造了个孙子。中共的权贵们却在三峡工程的建设中赚的盆满钵满。
-4. 更加可怕的是，三峡大坝已经发生严重变形，随时有溃坝的危险。一旦溃坝，长江中下游一片汪洋，3亿人面临死亡的威胁。三峡工程成了悬在中华民族头上的达摩克里斯之剑，是彻底的祸国殃民工程。
-
-
-通过以上几点可以看出，在1994年开建，投入2500亿巨资造就的三峡大坝就是个彻头彻尾的谎言，它只不过是中共特权家族捞金的工具而已。三峡工程不仅是个谎言，更是一个榨取老百姓血汗钱的吸血鬼。从1992年起，老百姓每买一度电都至少被迫向三峡工程建设基金贡献3厘钱。1994年，中共将征收标准由3厘涨至4厘。更令人吃惊的操作是：在2009年三峡工程完工时，这笔建设基金的征收表面上结束，但实际换了个“马甲”，以新设立的国家重大水利工程建设基金的名义继续征收。
-
-通过三峡工程，我们可以看出中共的以假治国、以骗治国、以黑治国。中共对老百姓则是苛捐杂税，巧取豪夺，打着“为人民服务”的幌子压榨人民，搜刮民脂民膏。如此无耻的恶党，上天和爆料革命必灭之，还公道于民、还清白于世。
-
-（文章仅代表作者本人观点，与GNews 无关）
-
-* * *
-
-*编辑：跟随战神*
-
-*封面：霹雳鼠年*
-
-*发布：吐纳*
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,31 +2,27 @@
 ---
 
 
-## 意料之中！岸田文雄表示“暂时不碰”金融所得税
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1587499/)
+## 文贵先生惊天爆料: 美国政府已背弃台湾!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1587549/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+作者：文龍
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月10日的爆料革命战友连线直播中,文贵先生再爆惊天大料! 称他获得绝密情报, 在杨洁篪前往瑞士会晤苏利文之前，美国政府已与中共就台湾问题达成勾兑，台湾随时面临灭顶之灾!
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-35.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-10.jpeg)
 
-[图片来源](https://gbcode.rthk.hk/TuniS/news.rthk.hk/rthk/ch/component/k2/1613929-20211007.htm)
+在中美双方的这次勾兑中,台湾沦为谈判的筹码，美国现任政府为了保障国内经济稳定,最终顺利完成中期选举，决定背弃和出卖2300万台湾人民的利益，承诺中共：美军在台湾和南海不会有任何军事行动，在香港/新疆和台湾问题上，中美之间为非敌对竞争关系 , 承诺不试图推翻中共现行体制 等，拜登总统在该文件上签字后, 才有了双方在瑞士的会晤，而且美方明确坚持一中政策,反对台独,不再有”各自解释”的模糊界限 。文贵先生揭露的这一消息必然在海内外引发轩然大波!
 
-日本首相岸田文雄在10月10日富士电视台的节目中表示，暂时不对股票分红和交易产生的金融所得加强征税。他解释说：“暂不考虑碰触这个问题。社会上广泛存在一个误解，认为正因为受关注我可能会立即去做”。
+文贵先生在直播中称,  ”  中共联合华尔街三千经理人和黑暗势力, 共同掏空了全世界包括美国的养老基金, 为了经济稳定假象和中期选举，2300万台湾人就这样被出卖! ” 文贵先生认为，美国政府这样做是愚蠢短视的，因为即使如此，疫苗灾难和次生灾难也无法避免，全世界包括美国的经济危机也无法解决!
 
-岸田在10月4日就职时的记者会上曾透露考虑把金融所得税作为“选项之一”。有意见担心这一政策不利于日本国民把储蓄用于投资，会造成股价下降。岸田此次的表态被认为是顾及了市场的反应。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-日本内阁官房长官松野博一在10月11日的记者会上表示，“按照首相的想法，首先将着手强化提高工资的税制和转包对策等”。当被问及是否在修改2022年度税制时讨论对金融所得加强征税，松野表示“现在正在讨论（提高工资等）之后的推进方案”。
+编辑/校正/发稿：谐趣园
 
-作为追求“增长与分配良性循环”的经济政策的一环，岸田在自民党总裁选举的施政演说中加入了调整金融所得征税。按照岸田的意向，提出了把现在20％的税率一律提高的方案和加重高收入者负担的渐进式征税方案。
-
-由于股票的金融所得税，涉及面广，且动及切实的经济利益，作为上任伊始的岸田首相，稳住阵脚是其内阁的第一要务，因此，此番表态也在情理之中。
-
-信息来源：
-
-[岸田文雄表示“暂时不碰”金融所得征税日经中文网](https://cn.nikkei.com/politicsaeconomy/politicsasociety/46303-2021-10-11-15-24-32.html)
-
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
