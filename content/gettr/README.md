@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/11/2021 1:51 AM (UTC)`
+
+10/10/2021 Miles Guo: Some Americans would rather let the CCP invade Taiwan in order to <br/>prevent the collapse of economy and obtain short-term political interests; Someone even privately promised the CCP to have the funds to extend the repayment of the maturing debts such that the CCP is allowed to borrow new loans to pay old debts; I have a bombshell that is big enough to send Bruno Wu, Jack Ma, ana Alvin Jiang to prison forever <br/><br/>10/10/2021 文贵直播: 有些美国人为了避免经济崩溃和获取短期政治利益，宁可让中共打台湾；有人竟私下向中共承诺，说可以让基金给到期的债务延期并允许其借新还旧；文贵有足以把吴征、马云和江志成永远送进监狱的大料儿<br/>
+![img](https://media.gettr.com/group28/getter/2021/10/11/01/d55b7685-da1d-22a0-aa83-58aeba70dc21/out.jpg)
+
+---
+
 `@miles 10/10/2021 11:23 PM (UTC)`
 
 10/10/2021 Miles Guo: Taiwan is in DANGER! Biden signed pro-CCP promises in writing; Three fundamental conditions for the US to sell out Taiwan: 1) The CCP continues buying the US Treasury securities; 2) The CCP and the US won’t stop military exchanges and won’t have military conflicts in the South China Sea and Taiwan; 3) The US firmly adheres to the “One-China policy” and opposes Taiwan independence, without emphasizing “neither side of the Taiwan Strait can change the status quo”; So, the CCP is essentially given the legitimacy to invade Taiwan in the name of Sun Yat-sen and eliminating Taiwan independence<br/><br/>10/10/2021 文贵直播: 台湾危矣！拜登签署了亲共的文字性承诺；美国卖台的三大根本条件：1) 中共继续买美国国债；2)保持中美军事交流，在南海和台湾不发生军事冲突；3) 美方坚决支持一中并反对台独，不强调”两岸任何一方不改变现状”；这等同于给了中共以孙中山和灭台独的名义拿下台湾的合法性<br/>
@@ -287,13 +294,6 @@ Project Veritas releases videos series to expose the truth of the CCP Virus vacc
 
 10月7号：平安银行还需要，大半年时间，才能真正的倒下，因为它涉及的政治太深了，但他最终会倒得，很惨，很惨，很惨！【七哥！平安也开始爆雷啦！ 宁波杭州湾新区的平安银行，刚刚发生的，宁波东部新城的平安银行】
 ![img](https://media.gettr.com/group18/getter/2021/10/07/12/42/aecb7aea-81f5-5688-5695-cec8398d927e/out.jpg)
-
----
-
-`@miles 10/7/2021 12:17 PM (UTC)`
-
-10月7号：我那个老天爷来……
-> `@anping2016 10/7/2021 12:04 PM (UTC)`<br/>越离真相多么近<br/>越知战友多么勇<br/>🙏🙏🙏🙏🙏🙏
 
 ---
 
