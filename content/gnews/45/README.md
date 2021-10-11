@@ -2,55 +2,46 @@
 ---
 
 
-## 维多利亚州高级警官辞职，声称多数警察不相信 COVID规则
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1587298/)
+## 被村霸欺压的欧金中被逼提刀重演杨佳和张扣扣的复仇路
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1587453/)
 
-【简评：】***澳大利亚的维多利亚州政府以防疫为借口实行强权统治，对人民实施疫苗强制接种令和对社区进行封锁，令警民关系从原来的帮助人民、保护人民走向了暴力镇压人民。COVID 大流行既检验了统治者的管理能力，也把当权者的虚伪无能暴露得一览无遗。***
+![](https://assets.gnews.org/wp-content/uploads/2021/10/捕获_副本-8.png)
+据[**新京报我们视频**](https://weibo.com/6124642021?refer_flag=1001030103_) [2021年10月11日10:00](https://weibo.com/6124642021/KCcHAjG6k?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-据《天空新闻网》作者：Brianna McKee，2021年10月9日报道：
+【[#福建莆田重大刑案已致2死3伤#](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E8%8E%86%E7%94%B0%E9%87%8D%E5%A4%A7%E5%88%91%E6%A1%88%E5%B7%B2%E8%87%B42%E6%AD%BB3%E4%BC%A4%23) [#莆田悬赏5万元征集重大刑案线索#](https://s.weibo.com/weibo?q=%23%E8%8E%86%E7%94%B0%E6%82%AC%E8%B5%8F5%E4%B8%87%E5%85%83%E5%BE%81%E9%9B%86%E9%87%8D%E5%A4%A7%E5%88%91%E6%A1%88%E7%BA%BF%E7%B4%A2%23)】10月10日，福建省莆田市公安局秀屿分局发布协查通报，当日13时许，秀屿区平海镇上林村发生一起重大刑事案件，村民欧某中有重大作案嫌疑。[@新京报我们视频](https://weibo.com/n/%E6%96%B0%E4%BA%AC%E6%8A%A5%E6%88%91%E4%BB%AC%E8%A7%86%E9%A2%91) 11日从上林村村干部处获悉，案件目前造成2人死亡3人受伤。平海镇政府发布悬赏通告，对提供有价值线索者将奖励5万元。[#福建莆田发生重大刑案#](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E8%8E%86%E7%94%B0%E5%8F%91%E7%94%9F%E9%87%8D%E5%A4%A7%E5%88%91%E6%A1%88%23)[#蓝V视界#](https://s.weibo.com/weibo?q=%23%E8%93%9DV%E8%A7%86%E7%95%8C%23) [L新京报我们视频的微博视频](http://t.cn/A6MoFH1z) （记者：张榕晋 制作：李东旭 运营：马冉）
 
-代理高级警长克里斯特·米切尔（Krystle Mitchell）因该州严格的COVID-19指令而退出警队，正面临维多利亚州警方专业标准指挥部的调查。
+关于这个欧某中杀人的原委据[**一博胖迪都是我的**](https://weibo.com/5983225886?refer_flag=1001030103_)[2021年10月11日19:47](https://weibo.com/5983225886/KCgxYcNN9?refer_flag=1001030103_) 来自 [HUAWEI Mate 30 5G](https://app.weibo.com/t/feed/1EuKP9)
 
-这名女警在周五晚上出现在一个独立媒体节目《清晰的采访》后，毅然辞去了维多利亚州警察的职务。
+[#用户736182#](https://s.weibo.com/weibo?q=%23%E7%94%A8%E6%88%B7736182%23) 不明白为什么账号不见了，虽然他做错了，但是还是希望更多人知道这件事情的原委 ​
 
-她告诉节目组，维多利亚州警察不再独立于安德鲁斯政府，要求警察执行严苛的新指令让她感到非常“困扰”。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/001-9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/002-5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/003-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/004-1.jpg)
 
-米切尔警长说，她目前在性别平等和包容指挥部工作，她将其描述为“我所拥有的最好的工作”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2480.png)代理警长克里斯特·米切尔（Krystle Mitchell）通过《清晰的采访》参加了一次采访。图片来源：天空新闻网
-她说：“关于我想做什么，以及我看到我的组织在这场大流行病中如何被使用，我内心有一个很大的思考过程和道德与诚信的斗争，这让我非常困扰。”
 
-“但这背后是我所有的朋友，他们都是在前线工作的警察，每天都在为执行CHO指令而受苦，当然，绝大多数人都不相信也不想执行。”
+欧金中杀人肯定是不对的，但是每每看到这样被逼无奈之下的绝杀，在内心深处却总也忍不住长舒一口恶气，终于让这些作恶的村干部、村霸们付出了生命的代价。因为欧金中的遭遇每个草根都会感同身受，区别仅在于无助以及被威胁恐吓的程度轻重而已，区别仅在于每个受到强权挤压的草根是在绝望中忍辱偷生还是忍无可忍，终于无需再忍。
 
-米切尔警长在星期五早上，在她当晚的采访上线之前从维多利亚州警察局辞职。她说，向公众坦诚相告的后果将导致她被解雇。
+因为这个社会已经彻底失去了让草根得到公平和正义的机会，所以在忍无可忍之下会出现手刃警察的杨佳，会有隐忍十年而终于手刃杀母仇人的张扣扣，所有这一切归结起来就是一句话——你不给我一个说法，我就要给你一个说法。但是在我要给你一个说法背后那些血淋淋的现实，却总是让我们在长舒一口恶气之后无法释怀，因为让复仇者与作恶者同归于尽，这永远不是我们想要看到的结果。
 
-“我之所以选择辞职，是因为我无法再从灵魂深处补救我热爱的组织被使用的方式，以及它对维多利亚州警察的声誉造成的损害和对社区造成的损害。”
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2481-1.png)代理警长Krystle Mitchell在从维多利亚州警察局辞职后参加了一次采访。图片来源：天空新闻网
-她说，维多利亚州警察对整个墨尔本的反疫苗和反封锁抗议活动的反应特别具有破坏性。
+撰稿：喜马拉雅的肉夹馍
 
-该组织在周六发布的一份声明中与她的言论保持距离，该声明写道：“这次采访中的评论绝不反映维多利亚州警察的观点。”
+审核：喜马拉雅的馍夹肉
 
-维多利亚州警方周六说，“我们的雇员按照政府最新的授权接种疫苗是至关重要的，这可以确保他们的同事和社区不会受到警察传播病毒的威胁。”
+校对：Maarago
 
-“虽然雇员个人有重要的人权，但在这一公共卫生紧急情况下，必须权衡这些权利与社区的利益。”
+（文章内容仅代表作者个人观点）
 
-警方对上个月墨尔本暴力抗议活动的反应进行了审查，发现存在战术缺陷和对培训不足的担忧。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-9月18日，基尤市的抗议活动演变成了暴力事件，导致10名警员受伤。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-该审查由警察协会负责，并建议紧急改变警察处理未来示威活动的方式。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-审查发现警队成员对维多利亚警方感到失望，认为警队未能保护他们。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-至少有1000名警员对这一事件表示愤怒，并表示他们装备简陋，没有能力处理暴力事件。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-原文连接：[https://www.skynews.com.au/australia-news/politics/senior-victoria-police-officer-krystle-mitchell-resigns-claims-most-cops-dont-believe-in-covid-rules/news-story/69cc750c6e64aa65d5044f38e62128b4](https://www.skynews.com.au/australia-news/politics/senior-victoria-police-officer-krystle-mitchell-resigns-claims-most-cops-dont-believe-in-covid-rules/news-story/69cc750c6e64aa65d5044f38e62128b4)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-(本文评论仅代表个人观点）
-
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-评论/编辑：洛杉矶盘古农场 – 明子
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

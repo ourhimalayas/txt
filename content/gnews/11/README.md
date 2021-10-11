@@ -2,34 +2,27 @@
 ---
 
 
-## 也门40万儿童面临饥饿威胁生命
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1588000/)
+## 有声|不屈服接种令，西雅图近四成警察直面解雇威胁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1588039/)
 
-新闻来源：德国法兰克福报网络版
+配音：香草山美食部 – 玫瑰园
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+西雅图市政府规定，所有警察必须在10月18日之前接种疫苗，否则将被解雇。截至周五，该市共有292名警察没有提交疫苗接种证明，另外111名警察正在等待豁免批准，共计403人。如果他们因此而被全部解雇，西雅图将失去37%的警察。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/jemen-taizz-ein-maedchen-haelt.jpg)
+目前尚不清楚市政府是否将于18日执行解雇命令，为确保巡逻安全人员的合理配置，警察局长阿德里安·迪亚兹（Adrian Diaz）已经做出指示，从10月13日起过渡到”第三阶段动员”，即剩余警力处于随时待命状态，以应对911电话。
 
+面对政府恶劣行径，美国多地警员在社交媒体发布视频，重申加入警局的誓言：保护人民，而不是镇压真相的声音，同时也团结起来，使用法律回击接种强制令维护应有的权力。自2020年开始，已有280名警察辞职，使得该市警察部门的人员配置，处于1980年代以来最低水平。今年以来，西雅图的暴力犯罪激增，按目前的发展态势，城市治安将面临更加严峻的挑战。
 
-资料来源：FAZ
+文字版原文：[不屈服接种令，西雅图近四成警察直面解雇威胁](https://gnews.org/zh-hans/1585591/)
 
-也门约有三分之二的人口依赖人道主义援助。一位联合国代表说，南部不断蔓延的战斗正在恶化也门的局势。
+音频处理：喜山必胜Maverick
 
-据联合国称，在内战国家也门有近 40 万儿童面临饥饿。联合国也门协调员戴维·格雷斯利周一在日内瓦表示，在七年的冲突之后，有 2000 万人需要帮助，占总人口的三分之二。战斗的扩大使无数人的情况变得更糟，特别是在该国南部。格雷斯利说，世界上最严重的人道主义危机正在阿拉伯半岛上肆虐。
-
-胡塞叛军正在争取独立，自 2014 年以来已经占领了该国大部分地区。自 2015 年以来，沙特阿拉伯一直与其他国家站在国际公认的政府一边，对胡塞武装进行军事行动。逊尼派王国将他们视为什叶派大敌伊朗的盟友。
-
-格雷斯利 赞扬了德国慷慨的财政支持。尽管如此，在 3 月份计算的大约 38 亿美元用于对民众的人道主义支持中，仅收到了大约 21 亿美元（18 亿欧元）。
-
-格雷斯利 说，为寻求政治解决冲突而作出的认真努力正在取得进展。但人们不能等待停火重建。世界绝不能让整整一代人长大后只知道冲突。
-
-格雷斯利说，人们需要工作来维持生计。渔业必须振兴，港口和机场必须开放。必须开始学校运作。官员们将不得不再次获得足够的报酬，以免他们也变得贫困。为此，也必须刺激经济以寻找支付资源。周日晚上，空中监视区又增加了三个航班。像往常一样，台湾空军升空了自己的战斗机作为回应。与此同时，台湾正在考虑将空中监视区划分为监视预警区，并在不同阶段做出相应反应。这也是降低意外事件的风险的考虑。
-
-[https://www.faz.net/aktuell/politik/ausland/un-400-000-kindern-im-jemen-droht-der-hungertod-17580612.html](https://www.faz.net/aktuell/politik/ausland/un-400-000-kindern-im-jemen-droht-der-hungertod-17580612.html)
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-
-校对：旦旦
-
-责任编辑/发布： Shuizhuyu
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

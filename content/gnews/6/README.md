@@ -2,27 +2,27 @@
 ---
 
 
-## 有声|不屈服接种令，西雅图近四成警察直面解雇威胁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1588039/)
+## 半导体短缺令日本汽车在华销量大降
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1588141/)
 
-配音：香草山美食部 – 玫瑰园
+俄罗斯莫斯科喀秋莎农场  银河
 
-西雅图市政府规定，所有警察必须在10月18日之前接种疫苗，否则将被解雇。截至周五，该市共有292名警察没有提交疫苗接种证明，另外111名警察正在等待豁免批准，共计403人。如果他们因此而被全部解雇，西雅图将失去37%的警察。
+编辑上传   水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/A-3.jpg)dailycarblog.com
+日经新闻报道，日本丰田汽车公司（Toyota Motor Corp.）10月11日公布，该公司9月份在华新车销量大幅下滑，凸显出在半导体短缺的背景下，该公司在华业务已变得疲软。
 
-目前尚不清楚市政府是否将于18日执行解雇命令，为确保巡逻安全人员的合理配置，警察局长阿德里安·迪亚兹（Adrian Diaz）已经做出指示，从10月13日起过渡到”第三阶段动员”，即剩余警力处于随时待命状态，以应对911电话。
+日本最大的汽车制造商丰田上个月在中共国的销量为11.5万辆，比去年同期下降了35.9%，8月份下降了11.9%。本田汽车公司9月份在中共国的新车销量下降了28.1%，而其电动汽车业务则停滞不前。日产汽车公司上个月在华销量也暴跌26.2%。一些经济学家表示，由于中共病毒带来的世界经济及供应链的影响，在中共国运营的日本汽车制造商将继续遭受严重的半导体短缺。日产汽车公司表示，半导体短缺的负面影响预计至少会持续到今年年底。
 
-面对政府恶劣行径，美国多地警员在社交媒体发布视频，重申加入警局的誓言：保护人民，而不是镇压真相的声音，同时也团结起来，使用法律回击接种强制令维护应有的权力。自2020年开始，已有280名警察辞职，使得该市警察部门的人员配置，处于1980年代以来最低水平。今年以来，西雅图的暴力犯罪激增，按目前的发展态势，城市治安将面临更加严峻的挑战。
+早在2020年4月，日本安倍首相内阁会议提出《紧急经济对策方案》，支持日本企业将中共国等海外投资的生产据点回归本国，或者转移到东南亚国家。随后日本政府推出对撤出中共国的企业给与补偿，至2020年7月底，近1700家企业提出申请。时至2021年，大量外资企业撤离中共，4月日本松下宣布将在明年关闭位于上海的干电池工厂。德国零售巨头麦德龙已经出售给了中企物美，法国超市巨头家乐福也已经卖给了中企苏宁，据爆料革命和新中国联邦创始人郭文贵先生爆料，日本丰田汽车和本田汽车也将撤离中共国。
 
-文字版原文：[不屈服接种令，西雅图近四成警察直面解雇威胁](https://gnews.org/zh-hans/1585591/)
+中共经济暴雷，恒大风暴或将席卷全球。中共通过蓝金黄渗透世界，华尔街、伦敦金融城、跨国公司与中共勾兑，同时骗取各国大量养老基金投资中共，中共经济崩塌在即将引发世界恐慌。美国拜登为维持中期选举，拖延经济危机，不惜出卖台湾与中共勾兑。然而全球货币超发，通货膨胀，在中共病毒的影响下供应链短缺带来的危机已经近在眼前，疫苗灾难带来的人道危机及世界各国局势动荡也不可能逆转，各主权货币贬值，世界经济崩溃的恶果不会因为无德政客的勾兑而消除。
 
-音频处理：喜山必胜Maverick
+外资撤离中共，中共国经济暴雷只是一个开始，中共的全面崩塌将引发世界格局的重新洗牌已经是一个必然的结果。
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（文章仅代表作者个人观点）
+
+参考链接：
+
+[https://english.kyodonews.net/news/2021/10/ae19c76c04c7-toyota-car-sales-plunge-in-china-in-sept-on-semiconductor-shortages.html](https://english.kyodonews.net/news/2021/10/ae19c76c04c7-toyota-car-sales-plunge-in-china-in-sept-on-semiconductor-shortages.html)
+
+[https://www.rfa.org/mandarin/yataibaodao/jingmao/ql2-09142020062444.html](https://www.rfa.org/mandarin/yataibaodao/jingmao/ql2-09142020062444.html)
