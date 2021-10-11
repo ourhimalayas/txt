@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/11/2021 5:15 AM (UTC)`
+
+10/10/2021 Miles Guo: 90% of the audience at Xi Jinping’s speech marking the 1911 Revolution was fake; Xi declined to meet Biden and hasn’t met anyone for over a year due to his worsening health conditions. Whereas the worse his health conditions get, the more he wants to invade Taiwan!<br/><br/>10/10/2021 文贵直播: 习近平辛亥革命演讲的九成观众是假的；习拒绝见拜登和他一年多不见人是因为他身体不行了，而他身体越不行，越要打台湾！<br/>
+![img](https://media.gettr.com/group16/getter/2021/10/11/05/15/d84081e1-2ac1-e2c3-fec3-9a5739fe53a4/out.jpg)
+
+---
+
 `@miles 10/11/2021 1:51 AM (UTC)`
 
 10/10/2021 Miles Guo: Some Americans would rather let the CCP invade Taiwan in order to <br/>prevent the collapse of economy and obtain short-term political interests; Someone even privately promised the CCP to have the funds to extend the repayment of the maturing debts such that the CCP is allowed to borrow new loans to pay old debts; I have a bombshell that is big enough to send Bruno Wu, Jack Ma, ana Alvin Jiang to prison forever <br/><br/>10/10/2021 文贵直播: 有些美国人为了避免经济崩溃和获取短期政治利益，宁可让中共打台湾；有人竟私下向中共承诺，说可以让基金给到期的债务延期并允许其借新还旧；文贵有足以把吴征、马云和江志成永远送进监狱的大料儿<br/>
@@ -287,13 +294,6 @@ Project Veritas releases videos series to expose the truth of the CCP Virus vacc
 
 一名中国警察首次接受CNN采访揭露维吾尔人在新疆所遭受的监禁和虐待<br/>A Chinese policeman who interviewed by CNN first time exposes imprisonment and torture of Uyghurs in Xinjiang<br/>
 ![img](https://media.gettr.com/group12/getter/2021/10/07/13/9dc7fa3d-6075-294f-64dc-a32e33d4ff5e/out.jpg)
-
----
-
-`@miles 10/7/2021 12:42 PM (UTC)`
-
-10月7号：平安银行还需要，大半年时间，才能真正的倒下，因为它涉及的政治太深了，但他最终会倒得，很惨，很惨，很惨！【七哥！平安也开始爆雷啦！ 宁波杭州湾新区的平安银行，刚刚发生的，宁波东部新城的平安银行】
-![img](https://media.gettr.com/group18/getter/2021/10/07/12/42/aecb7aea-81f5-5688-5695-cec8398d927e/out.jpg)
 
 ---
 
