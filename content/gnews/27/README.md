@@ -2,31 +2,43 @@
 ---
 
 
-## 潘多拉文件：美国律师行协助刘特佐避税
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1587874/)
+## 海关官员在芝加哥查获救命的伊维菌素和羟氯喹
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1587911/)
 
-**撰稿：日本东京方舟农场 海星**
+作者：纽约香草山农场 – 四季
 
-据《立场新闻》10月11日报道，国际调查记者同盟（ICIJ）公布的“潘朵拉文件“披露了美国大型跨国律师行贝克‧麦坚时律师行（Baker McKenize）为马来西亚商人刘特佐提供税务及离岸公司咨询服务，从而回避政府的税务或监管。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-据报道， ICIJ于10月3日公布的潘多拉文件显示，贝克‧麦坚时律师行从2004年开始就协助刘特佐及其合伙人在马来西亚和香港建立空壳公司网络，收购美国纽约及比华利山等地的豪华酒店等物业。其中有3家空壳公司是刘特佐通过该行在香港的分公司B. & Mck. Nominees Ltd.设立的。
 
-该报道指出，在马来西亚前首相纳吉布2009年上任后，刘特佐的空壳公司网络将部份资金转移给了纳吉布。随后，他自己成为了本来属于马来西亚财政部“一马基金”的实际操盘人。ICIJ还提到，“一马基金”与一家沙特阿拉伯石油公司，都是在一家与贝克‧麦坚时有关联的律师行代表下，签署了总值10亿美元的交易，计划发展能源及基建項目。但根据马来西亚和美国当局的资料，最终有超过45亿美元流入刘特佐及其合伙人的空壳公司网络，成为史上最大贪污案件之一。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/pan-26.png)图片来自于网络
 
-此外，一名贝克‧麦坚时律师行的职员于2021 年在马来西亚法庭上，承认自己为刘特佐的公司工作，但最后却成为了“一马基金”的秘书，并出席多场重要会议。
 
-潘多拉文件还披露了贝克‧麦坚时律师行在成为全球最大型商业事务所的过程中，曾为苹果公司、Nike 及 Facebook 等超过 440 间跨国公司处理离岸公司业务。该行在 1974 年，在香港先后设立了两家分公司B. & Mck. Nominees Ltd. 及 B. &. McK. Custodians Ltd.，分別提供代名董事、代名股东及秘书服务，协助客戶成立和管理香港或海外公司。
+[网关专家](https://www.thegatewaypundit.com/2021/10/custom-officials-seize-small-packages-lifesaving-ivermectin-hydroxychloroquine-chicago-record-amounts-ivermectin-continue-flow-across-southern-border/)10月10日报道，根据海关和边境保护局（CBP）的一份新闻稿，含有伊维菌素和羟氯喹的货物10月4日在芝加哥被海关官员查获。
 
-*注：本文仅代表作者观点，与 Gnews无关*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1184.jpeg)**图片：Soumyabrata NURPHOTO VIA GETTY IMAGES**
 
-*参考链接：*
+芝加哥奥黑尔机场海关缴获了两个小包裹，其中一个内含100粒伊维菌素，另一个内含32粒伊维菌素和40粒羟氯喹。
 
-[【潘朵拉文件】跨國律師行被指為劉特佐、Nike 開離岸公司避稅　客戶盛智文：為保私隱](https://www.thestandnews.com/international/%E6%BD%98%E6%9C%B5%E6%8B%89%E6%96%87%E4%BB%B6%E8%B7%A8%E5%9C%8B%E5%BE%8B%E5%B8%AB%E8%A1%8C%E8%A2%AB%E6%8C%87%E7%82%BA%E5%8A%89%E7%89%B9%E4%BD%90nike-%E9%96%8B%E9%9B%A2%E5%B2%B8%E5%85%AC%E5%8F%B8%E9%81%BF%E7%A8%85-%E5%AE%A2%E6%88%B6%E7%9B%9B%E6%99%BA%E6%96%87%E7%82%BA%E4%BF%9D%E7%A7%81%E9%9A%B1)
+羟氯喹以前曾获得美国食品和药物管理局的紧急使用授权，用于治疗COVID-19，但在6月，该机构废除了其授权，并警告不要在医院以外的地方使用它。伊维菌素甚至在医院也被禁止。显然，这些安全，廉价和有效的药物被政治化了。
 
-[潘多拉文件](https://zh.wikipedia.org/wiki/%E6%BD%98%E6%9C%B5%E6%8B%89%E6%96%87%E4%BB%B6)
+（本文仅代表作者观点）
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
