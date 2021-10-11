@@ -2,13 +2,27 @@
 ---
 
 
-## 2021年10月11日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1587838/)
+## Moderna疫苗引发心脏炎症 冰岛宣布停止使用
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1587885/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+**撰稿：日本东京方舟农场 Kevin wang**
 
-10-11日：新中国联邦人救人，无数。有种的别信……疫苗灭共将彻底的建立新中国人在世界的新形象和崇高的地位。 【草根小哥你好：战友送过来的药我老公一直拒绝吃，他说他医生的药不能跟我们的药一起吃，怕起反效果，等他吃完他医生的药身体还是没有好就吃我们的药，所以我一直等他的药结束，一直没有告诉你他的病情怎么样，后来他医生的药一直没有改善他的病情，所以才改吃我们的药，吃上我们的药身体马上恢复过来，太神奇，所以现在才告诉你晚一些，太感谢你的帮助谢谢**🙏** 我在GTV做直播了，讲一下我先生吃药的过程，让更多的战友知道爆料革命的药是救命的药。**🙏**】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/289ad47725f817b45cd3235f50d9058d.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/237544d12f8d8cbf57140852f252028f.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/cd94e8a70f221975a4c95870852de626.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/675639c0bbf1f2c3c94f4d896779564b.jpg)
-[【2021年10月11日】文贵先生盖特原文](https://gettr.com/post/pdtp6o2a35)
+10月8日，冰岛宣布停止使用Moderna疫苗，因为该国卫生部的一份报告显示，Moderna疫苗使心肌炎的“发病率增加”。
 
-**喜联盟Gnews编辑部**
+冰岛卫生部发布的声明称，“在接种Moderna疫苗后，心肌炎（myocarditis）和心包炎（pericarditis）的发病率增加。”冰岛将完全停止使用该疫苗。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1408091042271758-600x400-1.jpg)图片来自于网络
+
+日前，因同样担心Moderna疫苗的副作用，瑞典、芬兰、丹麦和挪威已经限制了对Moderna疫苗的使用。
+
+瑞典卫生机构表示，来自瑞典和其它北欧国家的新数据表明，“Moderna的疫苗与接种后出现的副作用之间的联系特别清楚，尤其是在第二剂接种注射之后。
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[冰岛停止使用Moderna疫苗 称或引发心脏炎症](https://www.epochtimes.com/gb/21/10/9/n13293389.htm)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

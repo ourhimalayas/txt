@@ -2,43 +2,34 @@
 ---
 
 
-## 海关官员在芝加哥查获救命的伊维菌素和羟氯喹
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1587911/)
+## 也门40万儿童面临饥饿威胁生命
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1588000/)
 
-作者：纽约香草山农场 – 四季
+新闻来源：德国法兰克福报网络版
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-
-
-
-
-[网关专家](https://www.thegatewaypundit.com/2021/10/custom-officials-seize-small-packages-lifesaving-ivermectin-hydroxychloroquine-chicago-record-amounts-ivermectin-continue-flow-across-southern-border/)10月10日报道，根据海关和边境保护局（CBP）的一份新闻稿，含有伊维菌素和羟氯喹的货物10月4日在芝加哥被海关官员查获。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1184.jpeg)**图片：Soumyabrata NURPHOTO VIA GETTY IMAGES**
-
-芝加哥奥黑尔机场海关缴获了两个小包裹，其中一个内含100粒伊维菌素，另一个内含32粒伊维菌素和40粒羟氯喹。
-
-羟氯喹以前曾获得美国食品和药物管理局的紧急使用授权，用于治疗COVID-19，但在6月，该机构废除了其授权，并警告不要在医院以外的地方使用它。伊维菌素甚至在医院也被禁止。显然，这些安全，廉价和有效的药物被政治化了。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
-
-编辑/校对/发稿：小鹿
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/jemen-taizz-ein-maedchen-haelt.jpg)
 
 
+资料来源：FAZ
 
-**更多资讯，更多关注**
+也门约有三分之二的人口依赖人道主义援助。一位联合国代表说，南部不断蔓延的战斗正在恶化也门的局势。
 
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+据联合国称，在内战国家也门有近 40 万儿童面临饥饿。联合国也门协调员戴维·格雷斯利周一在日内瓦表示，在七年的冲突之后，有 2000 万人需要帮助，占总人口的三分之二。战斗的扩大使无数人的情况变得更糟，特别是在该国南部。格雷斯利说，世界上最严重的人道主义危机正在阿拉伯半岛上肆虐。
 
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+胡塞叛军正在争取独立，自 2014 年以来已经占领了该国大部分地区。自 2015 年以来，沙特阿拉伯一直与其他国家站在国际公认的政府一边，对胡塞武装进行军事行动。逊尼派王国将他们视为什叶派大敌伊朗的盟友。
 
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+格雷斯利 赞扬了德国慷慨的财政支持。尽管如此，在 3 月份计算的大约 38 亿美元用于对民众的人道主义支持中，仅收到了大约 21 亿美元（18 亿欧元）。
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+格雷斯利 说，为寻求政治解决冲突而作出的认真努力正在取得进展。但人们不能等待停火重建。世界绝不能让整整一代人长大后只知道冲突。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+格雷斯利说，人们需要工作来维持生计。渔业必须振兴，港口和机场必须开放。必须开始学校运作。官员们将不得不再次获得足够的报酬，以免他们也变得贫困。为此，也必须刺激经济以寻找支付资源。周日晚上，空中监视区又增加了三个航班。像往常一样，台湾空军升空了自己的战斗机作为回应。与此同时，台湾正在考虑将空中监视区划分为监视预警区，并在不同阶段做出相应反应。这也是降低意外事件的风险的考虑。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+[https://www.faz.net/aktuell/politik/ausland/un-400-000-kindern-im-jemen-droht-der-hungertod-17580612.html](https://www.faz.net/aktuell/politik/ausland/un-400-000-kindern-im-jemen-droht-der-hungertod-17580612.html)
+
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+
+校对：旦旦
+
+责任编辑/发布： Shuizhuyu

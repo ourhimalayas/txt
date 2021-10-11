@@ -2,54 +2,131 @@
 ---
 
 
-## 维多利亚州高级警官辞职，声称多数警察不相信 COVID规则
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1587298/)
+## 断网的原因是俄罗斯
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1587443/)
 
-【简评：】***澳大利亚的维多利亚州政府以防疫为借口实行强权统治，对人民实施疫苗强制接种令和对社区进行封锁，令警民关系从原来的帮助人民、保护人民走向了暴力镇压人民。COVID 大流行既检验了统治者的管理能力，也把当权者的虚伪无能暴露得一览无遗。***
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2448.png)
+[https://gtv.org/video/id=61639a8ad2e2b8174873db58](https://gtv.org/video/id=61639a8ad2e2b8174873db58)
 
-据《天空新闻网》作者：Brianna McKee，2021年10月9日报道：
+**郭文贵：
+Miles Guo：**
+ 
+你像昨天Facebook，一看就俄罗斯出手嘛
+Facebook went down yesterday, I know that Russia was behind it.
+ 
+那还用说嘛？
+Isn’t it obvious?
+ 
+俄罗斯是告诉你，别跟我玩儿，你差远着呢
+Russia was telling Facebook, don’t mess with me, you’re not even close
+ 
+老子一个屁都崩死你Facebook
+“Facebook, I will kill you in a minute”
+ 
+普京真的是拔根汗毛都能把Facebook弄死一万回
+Putin can make Facebook die 10,000 times by moving his little finger
+ 
+他敢出手的，习不敢出手，共产党不敢出手
+Putin dares to strike, Xi dares not to strike, the Communist Party dares not to strike
+ 
+昨天就是俄罗斯干的
+It was Russia yesterday.
+ 
+跟中国半毛钱（关系没有）
+It has nothing to do with China
+ 
+记住昨天凡是在社交媒体上谈到昨天的事，跟中国有关系的
+Remember that anyone who said on social media that yesterday’s event has something to do with China
+ 
+他绝对是骗子，他不懂基本常识
+is an absolute liar and he doesn’t understand basic common sense
+ 
+爆这个普京
+Expose Putin’s secrets
+ 
+你想想爆董建华、爆梁振英
+Let’s expose Tung Chee-hwa, Leung Chun-ying’s secrets
+ 
+梁振英和董建华，上海帮（是）100%江家人
+Leung Chun-ying and Tung Chee-hwa, they are 100% with Jiang’s family in Shanghai
 
-代理高级警长克里斯特·米切尔（Krystle Mitchell）因该州严格的COVID-19指令而退出警队，正面临维多利亚州警方专业标准指挥部的调查。
+见了江志成跟见亲爹一样
+They saw Alvin Jiang like his own father
+ 
+把自己老婆女儿都送过去
+They can even give their wives and daughters to Alvin Jiang
+ 
+你想想江家要爆习，怎么会爆董建华、梁振英呢？
+Jiang family wants to expose Xi’s secrets, how will they expose Tung Chee-hwa and Leung Chun-ying? Think about that
+ 
+这是第一个，第二个习
+This is the first, the second, Xi
+ 
+如果习在背后操纵，怎么可能爆普京呢？
+If Xi was in control behind the scenes, how could he have exposed Putin?
+ 
+那普京跟他绝对是生死关系，就像咱们之间这种关系
+Putin and Xi definitely have a life-and-death relationship, just like the one between us
+ 
+他怎么可能？
+How could he?
+ 
+我去爆草根小哥，我希望人爆Rachel、爆政清、爆小福利
+Just like if I expose the secrets of Caogen, I hope that people expose Rachel, Zhengqing, Xiao Fuli
+ 
+不可能的事情，那不作死吗？
+That’s impossible. Isn’t that hurting yourself?
+ 
+它跟中国半毛钱关系都没有，只有俄罗斯，呱，一巴掌就过去了
+It has nothing to do with China, but only Russia, quack, a slap on the face
+ 
+还跑我这儿来混饭吃了，你想骗我呢？直接一巴掌就过去了
+And come to me to mess around, you want to cheat me? A direct slap on the face
+ 
+拔你的电源，消掉你的IP
+Unplug your power and eliminate your IP
+ 
+直接把你的所有的几个中心全部给你关掉
+Simply shut down all your centers
+ 
+这只是刚刚开始
+And that’s just the beginning
+ 
+我在2017年直播的时候，我亲自看过展示
+When I was broadcasting live in 2017, I personally saw it revealed
+ 
+就这一个开关按下去，以色列和俄罗斯的网络武器一下按下去
+ Just press this switch, the cyber weapons of Israel and Russia are pressed down.
 
-这名女警在周五晚上出现在一个独立媒体节目《清晰的采访》后，毅然辞去了维多利亚州警察的职务。
-
-她告诉节目组，维多利亚州警察不再独立于安德鲁斯政府，要求警察执行严苛的新指令让她感到非常“困扰”。
-
-米切尔警长说，她目前在性别平等和包容指挥部工作，她将其描述为“我所拥有的最好的工作”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2480.png)代理警长克里斯特·米切尔（Krystle Mitchell）通过《清晰的采访》参加了一次采访。图片来源：天空新闻网
-她说：“关于我想做什么，以及我看到我的组织在这场大流行病中如何被使用，我内心有一个很大的思考过程和道德与诚信的斗争，这让我非常困扰。”
-
-“但这背后是我所有的朋友，他们都是在前线工作的警察，每天都在为执行CHO指令而受苦，当然，绝大多数人都不相信也不想执行。”
-
-米切尔警长在星期五早上，在她当晚的采访上线之前从维多利亚州警察局辞职。她说，向公众坦诚相告的后果将导致她被解雇。
-
-“我之所以选择辞职，是因为我无法再从灵魂深处补救我热爱的组织被使用的方式，以及它对维多利亚州警察的声誉造成的损害和对社区造成的损害。”
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2481-1.png)代理警长Krystle Mitchell在从维多利亚州警察局辞职后参加了一次采访。图片来源：天空新闻网
-她说，维多利亚州警察对整个墨尔本的反疫苗和反封锁抗议活动的反应特别具有破坏性。
-
-该组织在周六发布的一份声明中与她的言论保持距离，该声明写道：“这次采访中的评论绝不反映维多利亚州警察的观点。”
-
-维多利亚州警方周六说，“我们的雇员按照政府最新的授权接种疫苗是至关重要的，这可以确保他们的同事和社区不会受到警察传播病毒的威胁。”
-
-“虽然雇员个人有重要的人权，但在这一公共卫生紧急情况下，必须权衡这些权利与社区的利益。”
-
-警方对上个月墨尔本暴力抗议活动的反应进行了审查，发现存在战术缺陷和对培训不足的担忧。
-
-9月18日，基尤市的抗议活动演变成了暴力事件，导致10名警员受伤。
-
-该审查由警察协会负责，并建议紧急改变警察处理未来示威活动的方式。
-
-审查发现警队成员对维多利亚警方感到失望，认为警队未能保护他们。
-
-至少有1000名警员对这一事件表示愤怒，并表示他们装备简陋，没有能力处理暴力事件。
-
-原文连接：[https://www.skynews.com.au/australia-news/politics/senior-victoria-police-officer-krystle-mitchell-resigns-claims-most-cops-dont-believe-in-covid-rules/news-story/69cc750c6e64aa65d5044f38e62128b4](https://www.skynews.com.au/australia-news/politics/senior-victoria-police-officer-krystle-mitchell-resigns-claims-most-cops-dont-believe-in-covid-rules/news-story/69cc750c6e64aa65d5044f38e62128b4)
-
-(本文评论仅代表个人观点）
-
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-评论/编辑：洛杉矶盘古农场 – 明子
+你任何一个地方的电网咔嚓就给你关掉，终身让你回不来
+All your local grid will be shut down for life, and there is no return
+ 
+像阿里巴巴，像亚马逊的网站，按下去IP终生就没了
+Like Alibaba, like Amazon’s website, just one click, the IP will be gone forever
+ 
+消失了，永远回不来
+Disappeared and never return
+ 
+有的有备份，它甚至把你的备份
+Some have backups, and it even break your backups
+ 
+（备份）出现的时候，自动找到备份，再给你灭掉
+When (backup) appears, the backup is automatically found and then destroyed
+ 
+ 
+ —————————————————————
+ 
+ Date:10/7/2021
+原视频标题:让Facebook, WhatsApp和Instagram断网的原因是俄罗斯
+The reason Facebook, WhatsApp and Instagram are off the grid is Russia
+原视频日期：2021/10/05
+原视频链接:[https://twitter.com/se1y7cblljselva/status/1445743022172373001?](https://twitter.com/se1y7cblljselva/status/1445743022172373001?)s=24任务编号：KC160（2448）
+视频时间段 : 0:00-1:50
+英听校：洛杉矶盘古农场 – Mike Li
+翻译：洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – 郭友(文苏)
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

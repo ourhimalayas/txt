@@ -2,25 +2,68 @@
 ---
 
 
-## 秘翻在线：默克制药请求FDA为抗中共病毒新药做紧急批准
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1587519/)
+## 2名儿童意外接种了 Covid 疫苗而不是流感疫苗，现在都患有心脏问题
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1587568/)
 
-**翻译：雨季仰光**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2489-1.png)
+[https://gtv.org/video/id=61643409d2e2b81748741007](https://gtv.org/video/id=61643409d2e2b81748741007)
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/11-7.png)[图片来源](https://www.youtube.com/watch?app=desktop&amp;v=dMhtirG9Szw)
-据零对冲（Zerohedge）10月11日报道，尽管有不少科学家们警告默克制药生产的抗中共病毒新药存在诸如致癌及（婴儿）先天性畸形的有tu害副作用，默克制药公司依然正式提交了其研发的名为莫纳皮拉韦（Molnupiravir）药品申请，希望FDA给与批准。一旦获得批准，它将是首款用于治疗中共病毒的药品。
+An Evansville family with children, four and five years old, 
+一个有四和五岁孩子的埃文斯维尔家庭
+ 
+Say they are accidentally given full adult doses of the Pfizer Coronavirus vaccine, instead of flu shots. 
+说他们意外接种了成人剂量的辉瑞冠状病毒疫苗，而不是流感疫苗。
+ 
+They say it happened on October 4 at the Walgreens of St Joseph Avenue, 
+他们说这件事发生在 10 月 4 日在圣约瑟夫大道的沃尔格林（药房）
+ 
+the family of four includes two adults and two young children, 
+四口之家包括两个大人和两个小孩
+ 
+both too young for the Pfizer or any other COVID vaccine. 
+对于辉瑞或任何其他 COVID 疫苗来说他们都太年轻了
+ 
+While the family’s attorney Daniel Tuley shared with us what he says, 
+那个家庭的律师丹尼尔·图利与我们分享了他所说的话
+ 
+our vaccination cards given to the family by Walgreens, 
+我们的疫苗接种卡是由 沃尔格林发给那个家庭的
+ 
+they show children born in 2016 and 2017 
+他们展示了孩子是在 2016 年和 2017 年出生的
+ 
+were given a Pfizer Coronavirus vaccine. 
+被注射了辉瑞冠状病毒疫苗
+ 
+The family says they left the pharmacy thinking they had gotten their flu shots, 
+这家人说当他们离开了药房时， 他们以为打了流感疫苗
+ 
+but a Walgreens employee later called them and said they had made a mistake. 
+但后来沃尔格林的一名员工打电话给他们而说他们搞错了
+ 
+Tuley says the children had been taken to a pediatric cardiologist, 
+图利说孩子们被带到儿科心脏病专家处
+ 
+and the family was told both are showing signs of heart issues. 
+而且家人被告知两孩子都有心脏问题的迹象
+ 
+We reached out to Walgreens several times but have not yet heard back
+我们多次联系沃尔格林，但还没有得到回复
+ 
+ —————————————————————————
+ Date:10/10/2021
+原视频标题: 2 children were accidentally given the Covid vaccine instead of flu shots and are now both suffering from heart issues
+2 名儿童意外接种了 Covid 疫苗而不是流感疫苗，现在都患有心脏问题
+原视频日期：2021/10/09
+原视频链接: [https://twitter.com/jsdfposjpqyuee1/status/1447014409243488261?s=21](https://twitter.com/jsdfposjpqyuee1/status/1447014409243488261?s=21)
+任务编号：KE338（2489）
+视频时间段 : 0:00-0:53
+英听校：洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – 郭友(文苏)
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-根据《纽约时报》（New York Times）报道，鉴于它能以相对不太昂贵的代价治疗许多高风险中共病毒患者，此药将会彻底改变其治疗方式，尤其是针对那些尚未接种的人群（此药也仅仅测试了未接种人群）。然而，这个药品仍将是默克的摇钱树，因为默克计划收取制药成本的40倍费用来销售。
-
-尽管价格不菲，在药品获批之前，很多国家和政府都争相排队希望获得默克的订单。默克已经与美国，南韩，新加坡，马来西亚，澳大利亚及其他等政府达成交易。
-
-价值 700美元的药物疗程是4粒一次，每日两次，服用五天为一疗程。据默克公布的实验数据—也是备受医生及科学家们恭维的—它使住院和死亡数据减半（尽管实验被监督委员会缩短了时间因为他们宣称获得的数据是如此正面，而不需更多安慰剂组对照实验）。据息，FDA批准将在数周内获得。一旦批准，高达一千万美国人将合法使用此药，但最初的供应量将不会太充裕，美国已订一百七十万疗程药品。
-
-与此同时其他制药公司也即将公布他们自己的抗病毒药片的实验数据。下个月，由辉瑞（Pfizer）以及阿提制药（Atea Pharmaceuticals）联合罗氏(Roche)制药的抗中共病毒药片将宣布他们的研究结果。
-
-FDA除了批准或否决之外还有很多决定需要做。它还必须决定是否药品对于孕妇或其他一些风险人是否能合格使用。最初，默克仅寻求为高风险成人获得使用授权，包括诸如超过60岁，有肥胖症，糖料病或心脏病的人士。
-
-为什么FDA如此双标，对待一个尚存风险，短期仓促上马生产，实验人数和时间都被缩减的所谓新药如此偏向性支持，而对几十年成熟安全药品，大量实验数据证明有效的如硫酸羟氯喹，伊维菌素和青蒿素等真正廉价药品的使用避而不谈，视而不见？高于生产成本40倍的药品还号称“相对不昂贵”，这个世界是真的集体疯狂还是被某些黑暗势力所愚弄到如此可悲的境地呢？这种状况还会持续多久呢？我们拭目以待。
-
-新闻来源：[Merck Asks FDA For Emergency Approval Of New COVID Drug Despite Safety Concerns](https://www.zerohedge.com/covid-19/merck-asks-fda-emergency-approval-new-covid-drug-despite-safety-concerns)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
