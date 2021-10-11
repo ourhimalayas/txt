@@ -2,68 +2,27 @@
 ---
 
 
-## 2名儿童意外接种了 Covid 疫苗而不是流感疫苗，现在都患有心脏问题
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1587568/)
+## 彭博社称俄罗斯已成最具吸引力的投资市场
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1587570/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2489-1.png)
-[https://gtv.org/video/id=61643409d2e2b81748741007](https://gtv.org/video/id=61643409d2e2b81748741007)
+俄罗斯莫斯科喀秋莎农场 星河
 
-An Evansville family with children, four and five years old, 
-一个有四和五岁孩子的埃文斯维尔家庭
- 
-Say they are accidentally given full adult doses of the Pfizer Coronavirus vaccine, instead of flu shots. 
-说他们意外接种了成人剂量的辉瑞冠状病毒疫苗，而不是流感疫苗。
- 
-They say it happened on October 4 at the Walgreens of St Joseph Avenue, 
-他们说这件事发生在 10 月 4 日在圣约瑟夫大道的沃尔格林（药房）
- 
-the family of four includes two adults and two young children, 
-四口之家包括两个大人和两个小孩
- 
-both too young for the Pfizer or any other COVID vaccine. 
-对于辉瑞或任何其他 COVID 疫苗来说他们都太年轻了
- 
-While the family’s attorney Daniel Tuley shared with us what he says, 
-那个家庭的律师丹尼尔·图利与我们分享了他所说的话
- 
-our vaccination cards given to the family by Walgreens, 
-我们的疫苗接种卡是由 沃尔格林发给那个家庭的
- 
-they show children born in 2016 and 2017 
-他们展示了孩子是在 2016 年和 2017 年出生的
- 
-were given a Pfizer Coronavirus vaccine. 
-被注射了辉瑞冠状病毒疫苗
- 
-The family says they left the pharmacy thinking they had gotten their flu shots, 
-这家人说当他们离开了药房时， 他们以为打了流感疫苗
- 
-but a Walgreens employee later called them and said they had made a mistake. 
-但后来沃尔格林的一名员工打电话给他们而说他们搞错了
- 
-Tuley says the children had been taken to a pediatric cardiologist, 
-图利说孩子们被带到儿科心脏病专家处
- 
-and the family was told both are showing signs of heart issues. 
-而且家人被告知两孩子都有心脏问题的迹象
- 
-We reached out to Walgreens several times but have not yet heard back
-我们多次联系沃尔格林，但还没有得到回复
- 
- —————————————————————————
- Date:10/10/2021
-原视频标题: 2 children were accidentally given the Covid vaccine instead of flu shots and are now both suffering from heart issues
-2 名儿童意外接种了 Covid 疫苗而不是流感疫苗，现在都患有心脏问题
-原视频日期：2021/10/09
-原视频链接: [https://twitter.com/jsdfposjpqyuee1/status/1447014409243488261?s=21](https://twitter.com/jsdfposjpqyuee1/status/1447014409243488261?s=21)
-任务编号：KE338（2489）
-视频时间段 : 0:00-0:53
-英听校：洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – 郭友(文苏)
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/B-2.jpg)today.in-24.com
+美东时间10月11日报道，彭博社称，能源价格的强劲增长增加了发展中国家出口公司的收入，增加了它们在股票市场上的吸引力。与此同时，俄罗斯已成为投资最受欢迎的地方。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+总部设在伦敦的对冲基金Carrhae Capital的首席投资官Ali Akay表示，“能源价格将维持在高位，商品出口国的公司将从全球对此类资产的短缺中获益。由于此种原因，专家将继续评估能源和材料出口商的估值。
+
+吸引投资者进入新兴市场股票的是其价值被低估——迄今为止，市场一直在绕过这些市场的股票、债券和货币。彭博社称，结果是新兴市场的能源公司的股票尽管最近股价有所上涨，但这仍然只是它们的实际价值的三分之一（与广泛的指数相比），这为新的反弹创造了机会。
+
+俄罗斯的石油和天然气超级大国地位和健康的财政状况也对俄罗斯有利。这个世界上最大的能源出口国拥有超过6000亿美元的储备，其债务负担是“令人羡慕的低”。此外，彭博社在文章中指出，该国目前正在提高利率以遏制通货膨胀。
+
+自今年下半年开始，俄罗斯公司对未来一年的盈利预测上升了14%，而沙特阿拉伯的类似预测上升了6.7%，亚洲几乎没有变化，拉丁美洲则有所下降。
+
+在第三季度，许多投资公司的投资组合经理部分退出了中共国的科技资产，转而进入俄罗斯能源公司。押注俄罗斯的包括总部设在伦敦的对冲基金Carrhae Capital、美国金融公司Wells Fargo Asset Management和JPMorgan。
+
+摩根大通策略师David Silverstini称，“油价上涨将导致占俄罗斯RDX指数59%的能源股的利润和红利增加，以及卢布走强。”
+
+参考链接：
+
+[https://quote.rbc.ru/news/article/6163c8459a7947112cbe14c1?from=from\_main\_6](https://quote.rbc.ru/news/article/6163c8459a7947112cbe14c1?from=from_main_6)

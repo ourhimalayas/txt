@@ -2,24 +2,25 @@
 ---
 
 
-## 有声|抗议疫苗护照义务化 意大利爆发大规模示威活动
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1587500/)
+## 秘翻在线：默克制药请求FDA为抗中共病毒新药做紧急批准
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1587519/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-NHK消息, 为抗议从本月15日起新冠疫苗接种证明携带义务化的政令，意大利首都罗马爆发了大规模抗议活动 ，超过万人参加了游行示威活动 , 人们挤满了广场和街道，并高喊“自由！”口号，意大利政府出动了水车等对人游行人群进行驱离。
+**翻译：雨季仰光**
 
-截至本月9日，意大利全境已经有80%的接种者完成了疫苗接种。因此意大利政府决定出台政令, 所有人都必须携带疫苗接种证明或检测结果阴性证明，违反者将被禁止出入公共场所,不能搭乘公共交通甚至被停职 或被处以罚款。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/11-7.png)[图片来源](https://www.youtube.com/watch?app=desktop&amp;v=dMhtirG9Szw)
+据零对冲（Zerohedge）10月11日报道，尽管有不少科学家们警告默克制药生产的抗中共病毒新药存在诸如致癌及（婴儿）先天性畸形的有tu害副作用，默克制药公司依然正式提交了其研发的名为莫纳皮拉韦（Molnupiravir）药品申请，希望FDA给与批准。一旦获得批准，它将是首款用于治疗中共病毒的药品。
 
-文字版原文：[抗议疫苗护照义务化 意大利爆发大规模示威活动](https://gnews.org/zh-hans/1585551/)
+根据《纽约时报》（New York Times）报道，鉴于它能以相对不太昂贵的代价治疗许多高风险中共病毒患者，此药将会彻底改变其治疗方式，尤其是针对那些尚未接种的人群（此药也仅仅测试了未接种人群）。然而，这个药品仍将是默克的摇钱树，因为默克计划收取制药成本的40倍费用来销售。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+尽管价格不菲，在药品获批之前，很多国家和政府都争相排队希望获得默克的订单。默克已经与美国，南韩，新加坡，马来西亚，澳大利亚及其他等政府达成交易。
+
+价值 700美元的药物疗程是4粒一次，每日两次，服用五天为一疗程。据默克公布的实验数据—也是备受医生及科学家们恭维的—它使住院和死亡数据减半（尽管实验被监督委员会缩短了时间因为他们宣称获得的数据是如此正面，而不需更多安慰剂组对照实验）。据息，FDA批准将在数周内获得。一旦批准，高达一千万美国人将合法使用此药，但最初的供应量将不会太充裕，美国已订一百七十万疗程药品。
+
+与此同时其他制药公司也即将公布他们自己的抗病毒药片的实验数据。下个月，由辉瑞（Pfizer）以及阿提制药（Atea Pharmaceuticals）联合罗氏(Roche)制药的抗中共病毒药片将宣布他们的研究结果。
+
+FDA除了批准或否决之外还有很多决定需要做。它还必须决定是否药品对于孕妇或其他一些风险人是否能合格使用。最初，默克仅寻求为高风险成人获得使用授权，包括诸如超过60岁，有肥胖症，糖料病或心脏病的人士。
+
+为什么FDA如此双标，对待一个尚存风险，短期仓促上马生产，实验人数和时间都被缩减的所谓新药如此偏向性支持，而对几十年成熟安全药品，大量实验数据证明有效的如硫酸羟氯喹，伊维菌素和青蒿素等真正廉价药品的使用避而不谈，视而不见？高于生产成本40倍的药品还号称“相对不昂贵”，这个世界是真的集体疯狂还是被某些黑暗势力所愚弄到如此可悲的境地呢？这种状况还会持续多久呢？我们拭目以待。
+
+新闻来源：[Merck Asks FDA For Emergency Approval Of New COVID Drug Despite Safety Concerns](https://www.zerohedge.com/covid-19/merck-asks-fda-emergency-approval-new-covid-drug-despite-safety-concerns)
