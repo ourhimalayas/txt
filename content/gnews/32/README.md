@@ -2,31 +2,33 @@
 ---
 
 
-## 图片故事：波音抗议活动背后的故事
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1587088/)
+## 中共新冠疫苗埃及推展不顺再遭丢弃
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1587194/)
 
-**【看图说话】，说出图片背后的故事**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Skype_Picture_2021_10_11T10_57_25_488Z.jpeg)图片来源：现场拍摄
-**作者：**晨兮
-**编辑：**澄道/翼族
+作者：修文
 
-*“儿子们，把子弹上膛，我们要开始妈妈保卫战了！”
-——Mark*
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-美国当地时间10月7日下午，[丹苹战友参加了波音公司员工抗议强制接种疫苗的活动](https://gnews.org/zh-hans/1582374/)，经其本人同意，本文介绍发生在波音抗议活动背后的故事。
+埃及明亚省贝尼迈扎尔一处污水沟，发现近日被人倾倒的，大量中共国药集团新冠疫苗，当局展开调查后发现卫生局仓库内另有4988盒疫苗不翼而飞。后锁定埃及生物制品和疫苗控股公司3人将其逮捕。这三人分别为药剂师、仓管人员、运货司机。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-206.png)
+据《今日埃及》报导，水沟旁一共有1万3412盒国药疫苗遭到丢弃，已无法使用，这批疫苗的价格在502万3200埃及镑，约人民币207万左右。埃及5日才刚在开罗机场接收国药送来的100万剂疫苗，以及可生产460万剂疫苗的原材料。
 
-抗议活动后，丹苹跟家人说了接受电视台采访的事情，家人认为共产党会上门杀了她，丈夫跟两个儿子说了以上的话：“儿子们，把子弹上膛，我们要开始妈妈保卫战了”，这是美国华人战友对中共可能造成的威胁和伤害的回答。
+埃及政府表面配合，但实际各种拖延，并不买中共和世界卫生组织的账。此前新冠疫苗接种计划在当地推行并不顺利。这次在中共国药抵达后，发生了这种极为巧合的意外，说明埃及民众对中共毒疫苗的不信任感已经形成共识，为了民众的安全，疫苗公司工作人员才会自发站出来销毁毒疫苗，也是对当局推广疫苗计划的正面抗争。
 
-如果是在中共国，当一个人的人身安全有危险，家人肯定会无比地担心害怕，还会责怪其为啥不小心点、注意安全；有些家人会给予精神安慰，但是面对强权只能是束手无措；更有经过强权洗脑教育后的儿子出卖母亲并要求处死母亲这种违反人伦的惨剧。
+参考链接：
 
-自由是要争取、抗争和捍卫的，自由从来不是从天而降的！中国人受奴役时间太久太久，是时候为自由而战了，战友们，把子弹上膛吧！
+1. [不想用？埃及大量中國國藥武肺疫苗遭丟棄 當局逮捕3人](https://news.ltn.com.tw/news/world/breakingnews/3700054)
+2. [Egypt: Haphazard and flawed Covid-19 vaccine rollout fails to prioritize most at-risk](https://www.amnesty.org/en/latest/press-release/2021/06/egypt-haphazard-and-flawed-covid-19-vaccine-rollout-fails-to-prioritize-most-at-risk/)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
 
-*发布：翼族*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻访谈终审: 暗黑
+编辑/校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

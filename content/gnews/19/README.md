@@ -2,33 +2,27 @@
 ---
 
 
-## 中共新冠疫苗埃及推展不顺再遭丢弃
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1587194/)
+## 秘翻在线：联想返回A股梦想破灭 背后原因引发猜想
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1587321/)
 
-作者：修文
+**撰稿：小韭菜a**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-11-212921.jpg)图片来源：搜狐
+根据2021年10月11日新浪新闻报道，曾一度有望返回A股市场的联想梦想破灭。10月8日，上交所官网显示，因发行人撤回发行上市申请或者保荐人撤销保荐，联想集团科创板IPO审核状态变更为“终止”。
 
-埃及明亚省贝尼迈扎尔一处污水沟，发现近日被人倾倒的，大量中共国药集团新冠疫苗，当局展开调查后发现卫生局仓库内另有4988盒疫苗不翼而飞。后锁定埃及生物制品和疫苗控股公司3人将其逮捕。这三人分别为药剂师、仓管人员、运货司机。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-206.png)
-据《今日埃及》报导，水沟旁一共有1万3412盒国药疫苗遭到丢弃，已无法使用，这批疫苗的价格在502万3200埃及镑，约人民币207万左右。埃及5日才刚在开罗机场接收国药送来的100万剂疫苗，以及可生产460万剂疫苗的原材料。
+联想的解释是考虑到公司业务规模及复杂程度而且决定撤回上市申请，然而外界猜测，科技含金量不够高或许是联想终止科创板上市的原因。此次事件已经导致联想集团港股跌幅超14%。
 
-埃及政府表面配合，但实际各种拖延，并不买中共和世界卫生组织的账。此前新冠疫苗接种计划在当地推行并不顺利。这次在中共国药抵达后，发生了这种极为巧合的意外，说明埃及民众对中共毒疫苗的不信任感已经形成共识，为了民众的安全，疫苗公司工作人员才会自发站出来销毁毒疫苗，也是对当局推广疫苗计划的正面抗争。
+10月5日G-news曾经报道过“联想有望返回A股市场”的消息，才短短一周的时间就出现大反转。郭先生直播提到“马明哲、柳传志是中国改革开放以来最需要了解的人物。” 联想上市计划破灭，可以反映出中共内部的斗争相当激烈。
 
-参考链接：
-
-1. [不想用？埃及大量中國國藥武肺疫苗遭丟棄 當局逮捕3人](https://news.ltn.com.tw/news/world/breakingnews/3700054)
-2. [Egypt: Haphazard and flawed Covid-19 vaccine rollout fails to prioritize most at-risk](https://www.amnesty.org/en/latest/press-release/2021/06/egypt-haphazard-and-flawed-covid-19-vaccine-rollout-fails-to-prioritize-most-at-risk/)
+**[新闻来源](https://finance.sina.cn/2021-10-11/detail-iktzscyx9020388.d.html?from=wap)**
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
-新闻访谈终审: 暗黑
-编辑/校正/发稿：浪迹天涯
+> [秘翻在线：联想有望返回A股市场](https://gnews.org/zh-hans/1574975/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
+关键词：联想股价暴跌，联想撤回上市申请
+
+**摘要：**曾一度有望返回A股市场的联想梦想破灭，10月8日，上交所官网显示，因发行人撤回发行上市申请或者保荐人撤销保荐，联想集团科创板IPO审核状态变更为“终止”。

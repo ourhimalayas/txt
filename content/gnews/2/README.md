@@ -2,38 +2,35 @@
 ---
 
 
-## 强制疫苗令严重阻碍美航空业正常运营
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1587369/)
+## 限期临近，超十万军人仍拒绝接种毒针疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1587521/)
 
-撰稿：东京樱花团/知了知了
+作者：雪梨
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+根据五角大楼关于新冠疫苗接种的规定，除极少数军人将被批准豁免以外，有2百多万军人被强制要求接种，否则，将受到惩罚。随着最后期限的临近，仍有数十万军人不放弃自己的权力，拒绝接种。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/强制疫苗令严重阻碍美航空业正常运营.jpg)[图片来源](https://www.zerohedge.com/political/southwest-airlines-cancels-1000-more-flights-disruptions-increase)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-18.jpeg)
 
-当地时间10月11日凌晨，“零对冲”特约报道称，西南航空公司在周六和周日之间取消了近 2,000 趟航班，并归咎于空中交通管制和天气，然而这些问题并未影响其他航空公司。
+美国各军种有不同的疫苗接种截止日期。海军和海军陆战队的截止日期都是11月28日，空军是11月2日，陆军是12月15日。已经接种至少一剂的现役军人比例超过92%，令人十分担忧，约有10.3万名军人选择不接种。
 
-另据10月11日大纪元报道，在美国西南航空公司宣布对员工实行强制接种中共病毒疫苗令后，其飞行员[工会](https://www.epochtimes.com/gb/tag/%E5%B7%A5%E4%BC%9A.html)对该公司提起了诉讼。原因是，飞行员工会认为，疫苗给飞行员带来了特别的风险，因为对该疫苗的任何不良反应都可能影响个人满足飞行所需的医疗要求的能力。
+其中海军完全接种比例最高，达90%，海军陆战队的这一比例是72%，陆军警卫队和后备队约占美军的四分之一，而不到40%的陆军完成了疫苗接种。新冠毒针已完成了对美军人员大范围的侵入。
 
-“强制疫苗令”的报道来自台北中央广播电台10月2日，白宮要求作为联邦承包商的各航空公司，在12月8日前强制员工接种中共病毒疫苗，涉及美国航空、达美航空和西南航空等三家航空公司。
+此前，美军士兵和军官已就疫苗强制令，起诉国防部，称该指令违法。而在疫苗造成至少15万美国人死亡，和无数不良反应的事实面前，美国国防部仍持续推行疫苗强制令，这不仅置军人的健康于巨大的风险之中，并将严重威胁美国国家安全。
 
-三份报道综合起来，大致可判定，强制疫苗令引起了飞行员公会与西南航空之间的诉讼及飞行员停飞，导致西南航空周末两日不得不取消2000架次航班。
+(本文仅代表作者观点)
 
-而本次强制疫苗令的另两位主角，达美航空和美国航空预计也会出现工会诉讼航空公司的情况，并导致航班取消。上述三家航空公司均为位列美国前五的航空公司，共实现全行业超过40%的营业额，若三家航空公司均出现大量航班取消，那美国航空运输基本就处于半瘫痪状态。
+参考链接: [Hundreds of thousands of U.S. troops have not yet complied with vaccine mandate as deadlines near](https://www.ctpost.com/news/article/Hundreds-of-thousands-of-U-S-troops-have-not-yet-16522715.php)
+[Hundreds of Thousands of US Troops Still Not Fully Vaccinated Against Covid as Deadlines Loom](https://www.thegatewaypundit.com/2021/10/hundreds-thousands-us-troops-still-not-fully-vaccinated-covid-deadlines-loom/)
 
-航空运输业仅仅才暴露出人员短缺的问题，随后，“继中共病毒肆虐全球后，航空业将面临大规模疫苗灾难带来的航空安全、人员短缺、乘客意外等因素的致命威胁，航空业已处于崩溃的边缘。”当然，世界的供应链也是。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-消息来源
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
 
-[请病假？随着中断的增加，西南航空公司取消了 1,000 多趟航班](https://www.zerohedge.com/political/southwest-airlines-cancels-1000-more-flights-disruptions-increase)
-
-[美西南航空实施强制疫苗令 遭飞行员工会起诉](https://www.epochtimes.com/gb/21/10/11/n13296456.htm)
-
-[白宮施壓 要求航空公司12/8前強制員工打疫苗](https://www.rti.org.tw/news/view/id/2112904)
-
-[疫苗灾难笼罩下的航空业即将崩溃](https://gnews.org/zh-hans/1564007/)
-
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/老黑*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
