@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/11/2021 2:50 PM (UTC)`
+
+变成共产主义的8个步骤！<br/><br/>【这么漂亮，还不打喵喵的，以后前途无量啊！】
+![img](https://media.gettr.com/group40/getter/2021/10/11/14/50/0d244bf4-be17-dec4-4765-d9b6a8251eb4/out.jpg)
+
+---
+
 `@miles 10/11/2021 5:15 AM (UTC)`
 
 10/10/2021 Miles Guo: 90% of the audience at Xi Jinping’s speech marking the 1911 Revolution was fake; Xi declined to meet Biden and hasn’t met anyone for over a year due to his worsening health conditions. Whereas the worse his health conditions get, the more he wants to invade Taiwan!<br/><br/>10/10/2021 文贵直播: 习近平辛亥革命演讲的九成观众是假的；习拒绝见拜登和他一年多不见人是因为他身体不行了，而他身体越不行，越要打台湾！<br/>
@@ -287,13 +294,6 @@ Project Veritas releases videos series to expose the truth of the CCP Virus vacc
 
 10月7号：尊敬的战友们好……太多战友给我发信息，要求直播啦，受不了啦，马上开始乱聊直播。
 ![img](https://media.gettr.com/group19/getter/2021/10/07/13/38/b17841ec-f35a-8d06-74a1-69955d9a7e91/2ed728637a1e9667ffdd6d99fa94bcd2.jpg)
-
----
-
-`@miles 10/7/2021 1:38 PM (UTC)`
-
-一名中国警察首次接受CNN采访揭露维吾尔人在新疆所遭受的监禁和虐待<br/>A Chinese policeman who interviewed by CNN first time exposes imprisonment and torture of Uyghurs in Xinjiang<br/>
-![img](https://media.gettr.com/group12/getter/2021/10/07/13/9dc7fa3d-6075-294f-64dc-a32e33d4ff5e/out.jpg)
 
 ---
 
