@@ -2,31 +2,24 @@
 ---
 
 
-## 意料之中！岸田文雄表示“暂时不碰”金融所得税
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1587499/)
+## 有声|台湾总统府发言人称中华民国是主权国家!
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1587595/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+中央社消息, 对于10月9日中共习近平所称:”台湾问题是中国内政”, 台湾总统府发言人张惇涵回应称，“中华民国是主权独立的国家，不是中华人民共和国的一部分；中华民国的未来，掌握在台湾人民的手中!”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-35.png)
+10月10日，蔡英文总统蔡英文也在双十国庆演说中提出”四个坚持”, 即 坚持自由民主宪政体制；坚持中华民国与中华人民共和国互不隶属；坚持主权不容侵犯并吞；坚持中华民国台湾的前途，必须遵循全体台湾人民的意志。蔡英文称这四个坚持，是台湾人民的底线。而香港的现况证明中共背弃了自己的承诺，印证所谓的‘一国两制’根本不可行。
 
-[图片来源](https://gbcode.rthk.hk/TuniS/news.rthk.hk/rthk/ch/component/k2/1613929-20211007.htm)
+文字版原文：[台湾总统府发言人称中华民国是主权国家!](https://gnews.org/zh-hans/1585571/)
 
-日本首相岸田文雄在10月10日富士电视台的节目中表示，暂时不对股票分红和交易产生的金融所得加强征税。他解释说：“暂不考虑碰触这个问题。社会上广泛存在一个误解，认为正因为受关注我可能会立即去做”。
-
-岸田在10月4日就职时的记者会上曾透露考虑把金融所得税作为“选项之一”。有意见担心这一政策不利于日本国民把储蓄用于投资，会造成股价下降。岸田此次的表态被认为是顾及了市场的反应。
-
-日本内阁官房长官松野博一在10月11日的记者会上表示，“按照首相的想法，首先将着手强化提高工资的税制和转包对策等”。当被问及是否在修改2022年度税制时讨论对金融所得加强征税，松野表示“现在正在讨论（提高工资等）之后的推进方案”。
-
-作为追求“增长与分配良性循环”的经济政策的一环，岸田在自民党总裁选举的施政演说中加入了调整金融所得征税。按照岸田的意向，提出了把现在20％的税率一律提高的方案和加重高收入者负担的渐进式征税方案。
-
-由于股票的金融所得税，涉及面广，且动及切实的经济利益，作为上任伊始的岸田首相，稳住阵脚是其内阁的第一要务，因此，此番表态也在情理之中。
-
-信息来源：
-
-[岸田文雄表示“暂时不碰”金融所得征税日经中文网](https://cn.nikkei.com/politicsaeconomy/politicsasociety/46303-2021-10-11-15-24-32.html)
-
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

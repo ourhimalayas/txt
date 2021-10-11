@@ -2,31 +2,24 @@
 ---
 
 
-## 限期临近，超十万军人仍拒绝接种毒针疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1587521/)
+## 有声|西南航空飞行员工会起诉航空公司强制接种疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1587679/)
 
-作者：雪梨
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-根据五角大楼关于新冠疫苗接种的规定，除极少数军人将被批准豁免以外，有2百多万军人被强制要求接种，否则，将受到惩罚。随着最后期限的临近，仍有数十万军人不放弃自己的权力，拒绝接种。
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+据零对冲10月9日报道，代表西南航空公司飞行员的工会正在提起诉讼，以阻止航空公司强制飞行员接种疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-18.jpeg)
+这是工会反对拜登政府颁布的新冠疫苗接种要求的首批案例之一。法庭文件显示西南航空公司飞行员工会要求立即在达拉斯联邦法院就该诉讼进行听证。工会认为，新的强制接种疫苗政策，事实上是非法强加了新的就业条件，资方凡是涉及到新冠的政策变化都需要和工会谈判，并声称该航空公司强迫员工要么接种疫苗，要么被解雇或无薪休假，是一种“单方面的行动”，这违反了《铁路劳工法》。该航空公司根据拜登政府最新的强制接种疫苗的政策，要求飞行员必须在2021年12月8日之前完全接种疫苗，否则公司和飞行员的合约将被终止。
 
-美国各军种有不同的疫苗接种截止日期。海军和海军陆战队的截止日期都是11月28日，空军是11月2日，陆军是12月15日。已经接种至少一剂的现役军人比例超过92%，令人十分担忧，约有10.3万名军人选择不接种。
+飞行员面临着独特的风险，因为疫苗副作用可能会影响他们通过定期的体检，从而使飞行员失去飞行执照。该飞行员工会代表着西南航空公司的九千多名飞行员。
 
-其中海军完全接种比例最高，达90%，海军陆战队的这一比例是72%，陆军警卫队和后备队约占美军的四分之一，而不到40%的陆军完成了疫苗接种。新冠毒针已完成了对美军人员大范围的侵入。
+六月底，英国航空公司有四名飞行员接种疫苗后死亡，其他接种疫苗后出现的死亡、残疾等等报道也越来越多。西南航空公司工会希望看到其他工会也有类似的行动，共同反对政府和航空公司强制疫苗接种的政策。有报道称，英国飞行员进行反击后，航空公司对飞行员的限制正在放松。
 
-此前，美军士兵和军官已就疫苗强制令，起诉国防部，称该指令违法。而在疫苗造成至少15万美国人死亡，和无数不良反应的事实面前，美国国防部仍持续推行疫苗强制令，这不仅置军人的健康于巨大的风险之中，并将严重威胁美国国家安全。
+文字版原文：[西南航空飞行员工会起诉航空公司强制接种疫苗](https://gnews.org/zh-hans/1584714/)
 
-(本文仅代表作者观点)
-
-参考链接: [Hundreds of thousands of U.S. troops have not yet complied with vaccine mandate as deadlines near](https://www.ctpost.com/news/article/Hundreds-of-thousands-of-U-S-troops-have-not-yet-16522715.php)
-[Hundreds of Thousands of US Troops Still Not Fully Vaccinated Against Covid as Deadlines Loom](https://www.thegatewaypundit.com/2021/10/hundreds-thousands-us-troops-still-not-fully-vaccinated-covid-deadlines-loom/)
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
-
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
