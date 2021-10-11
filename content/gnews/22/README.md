@@ -2,10 +2,10 @@
 ---
 
 
-## 日本国防部正考虑建造太空巡逻艇，并公开了图像
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1586240/)
+## 习近誓言统一台湾，蔡英文回应“绝不屈服”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1586253/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10111-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10112-scaled.jpg)
 （文章仅代表作者个人观点，与GNEWS无关）
 *编辑：东京樱花团/简报小组*
 *发布：东京樱花团 /平安卿卿*
