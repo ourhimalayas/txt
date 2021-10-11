@@ -2,27 +2,24 @@
 ---
 
 
-## 彭博社称俄罗斯已成最具吸引力的投资市场
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1587570/)
+## 有声|台湾总统府发言人称中华民国是主权国家!
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1587595/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+中央社消息, 对于10月9日中共习近平所称:”台湾问题是中国内政”, 台湾总统府发言人张惇涵回应称，“中华民国是主权独立的国家，不是中华人民共和国的一部分；中华民国的未来，掌握在台湾人民的手中!”
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/B-2.jpg)today.in-24.com
-美东时间10月11日报道，彭博社称，能源价格的强劲增长增加了发展中国家出口公司的收入，增加了它们在股票市场上的吸引力。与此同时，俄罗斯已成为投资最受欢迎的地方。
+10月10日，蔡英文总统蔡英文也在双十国庆演说中提出”四个坚持”, 即 坚持自由民主宪政体制；坚持中华民国与中华人民共和国互不隶属；坚持主权不容侵犯并吞；坚持中华民国台湾的前途，必须遵循全体台湾人民的意志。蔡英文称这四个坚持，是台湾人民的底线。而香港的现况证明中共背弃了自己的承诺，印证所谓的‘一国两制’根本不可行。
 
-总部设在伦敦的对冲基金Carrhae Capital的首席投资官Ali Akay表示，“能源价格将维持在高位，商品出口国的公司将从全球对此类资产的短缺中获益。由于此种原因，专家将继续评估能源和材料出口商的估值。
+文字版原文：[台湾总统府发言人称中华民国是主权国家!](https://gnews.org/zh-hans/1585571/)
 
-吸引投资者进入新兴市场股票的是其价值被低估——迄今为止，市场一直在绕过这些市场的股票、债券和货币。彭博社称，结果是新兴市场的能源公司的股票尽管最近股价有所上涨，但这仍然只是它们的实际价值的三分之一（与广泛的指数相比），这为新的反弹创造了机会。
-
-俄罗斯的石油和天然气超级大国地位和健康的财政状况也对俄罗斯有利。这个世界上最大的能源出口国拥有超过6000亿美元的储备，其债务负担是“令人羡慕的低”。此外，彭博社在文章中指出，该国目前正在提高利率以遏制通货膨胀。
-
-自今年下半年开始，俄罗斯公司对未来一年的盈利预测上升了14%，而沙特阿拉伯的类似预测上升了6.7%，亚洲几乎没有变化，拉丁美洲则有所下降。
-
-在第三季度，许多投资公司的投资组合经理部分退出了中共国的科技资产，转而进入俄罗斯能源公司。押注俄罗斯的包括总部设在伦敦的对冲基金Carrhae Capital、美国金融公司Wells Fargo Asset Management和JPMorgan。
-
-摩根大通策略师David Silverstini称，“油价上涨将导致占俄罗斯RDX指数59%的能源股的利润和红利增加，以及卢布走强。”
-
-参考链接：
-
-[https://quote.rbc.ru/news/article/6163c8459a7947112cbe14c1?from=from\_main\_6](https://quote.rbc.ru/news/article/6163c8459a7947112cbe14c1?from=from_main_6)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

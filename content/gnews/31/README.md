@@ -2,34 +2,68 @@
 ---
 
 
-## 供不应求！日本半导体材料厂商相继启动增产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1587533/)
+## 2名儿童意外接种了 Covid 疫苗而不是流感疫苗，现在都患有心脏问题
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1587568/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/供不应求！日本半导体材料厂商相继启动增产1.png)[图片来源](https://www.eet-china.com/news/202105311037.html)
-日经中文网10月9日报道，针对供不应求的市场局面，日本半导体材料厂商将相继开始增强产能。日本在半导体原材料产业方面一直保持着优势，在全球半导体短缺加剧的背景下，日本半导体材料厂商希望通过积极的设备投资进一步提高竞争力。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2489-1.png)
+[https://gtv.org/video/id=61643409d2e2b81748741007](https://gtv.org/video/id=61643409d2e2b81748741007)
 
-硅晶圆厂商SUMCO在9月30日宣布投资2287亿日元，增产最先进的直径300毫米晶圆。除了建设新工厂外，还将增强子公司的生产设备。SUMCO的会长桥本真幸在9月30日的在线记者会上针对目前的晶圆需求表示，“仅凭现有的生产设备，处于供不应求的局面”。SUMCO还宣布通过公募增资等方式筹集约1300亿日元，用于设备投资。关于公募增资，将在国内外新发行最多6000万股。相当于现在已发行股票数（2.9017亿股）的2成。
+An Evansville family with children, four and five years old, 
+一个有四和五岁孩子的埃文斯维尔家庭
+ 
+Say they are accidentally given full adult doses of the Pfizer Coronavirus vaccine, instead of flu shots. 
+说他们意外接种了成人剂量的辉瑞冠状病毒疫苗，而不是流感疫苗。
+ 
+They say it happened on October 4 at the Walgreens of St Joseph Avenue, 
+他们说这件事发生在 10 月 4 日在圣约瑟夫大道的沃尔格林（药房）
+ 
+the family of four includes two adults and two young children, 
+四口之家包括两个大人和两个小孩
+ 
+both too young for the Pfizer or any other COVID vaccine. 
+对于辉瑞或任何其他 COVID 疫苗来说他们都太年轻了
+ 
+While the family’s attorney Daniel Tuley shared with us what he says, 
+那个家庭的律师丹尼尔·图利与我们分享了他所说的话
+ 
+our vaccination cards given to the family by Walgreens, 
+我们的疫苗接种卡是由 沃尔格林发给那个家庭的
+ 
+they show children born in 2016 and 2017 
+他们展示了孩子是在 2016 年和 2017 年出生的
+ 
+were given a Pfizer Coronavirus vaccine. 
+被注射了辉瑞冠状病毒疫苗
+ 
+The family says they left the pharmacy thinking they had gotten their flu shots, 
+这家人说当他们离开了药房时， 他们以为打了流感疫苗
+ 
+but a Walgreens employee later called them and said they had made a mistake. 
+但后来沃尔格林的一名员工打电话给他们而说他们搞错了
+ 
+Tuley says the children had been taken to a pediatric cardiologist, 
+图利说孩子们被带到儿科心脏病专家处
+ 
+and the family was told both are showing signs of heart issues. 
+而且家人被告知两孩子都有心脏问题的迹象
+ 
+We reached out to Walgreens several times but have not yet heard back
+我们多次联系沃尔格林，但还没有得到回复
+ 
+ —————————————————————————
+ Date:10/10/2021
+原视频标题: 2 children were accidentally given the Covid vaccine instead of flu shots and are now both suffering from heart issues
+2 名儿童意外接种了 Covid 疫苗而不是流感疫苗，现在都患有心脏问题
+原视频日期：2021/10/09
+原视频链接: [https://twitter.com/jsdfposjpqyuee1/status/1447014409243488261?s=21](https://twitter.com/jsdfposjpqyuee1/status/1447014409243488261?s=21)
+任务编号：KE338（2489）
+视频时间段 : 0:00-0:53
+英听校：洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – 郭友(文苏)
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/供不应求！日本半导体材料厂商相继启动增产2.png)[图片来源](https://cn.nikkei.com/industry/manufacturing/46249-2021-10-09-05-00-09.html)
-
-新工厂将投入2015亿日元，建在左贺县伊万里市的现有工厂的相邻地点。2022年开始建设厂房和设置生产线，2023年下半年分阶段投入运行。预定2025年实现满负荷生产。还将投入合计272亿日元，增强国内子公司的生产设备。增产规模因合同原因而未公开，但桥本会长表示“是与客户的5年合约，价格和数量都已敲定”。针对台湾等海外的生产设备表示，“正在讨论根据市场增长分阶段增产”。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/供不应求！日本半导体材料厂商相继启动增产3.png)[图片来源](https://cn.nikkei.com/industry/manufacturing/46249-2021-10-09-05-00-09.html)
-
-硅晶圆是半导体器件的基板材料，目前供求紧张。除了来自汽车领域的需求复苏之外，来自智能手机和数据中心等的洽购也很积极。最大厂商信越化学工业也维持满负荷生产状态。
-
-此外，其他半导体材料厂商也相继启动增产。富士胶片控股（HD）将在到2023财年（截至2024年3月）的3年里，向半导体材料业务投资700亿日元。核心是在硅晶圆上转印电路图案的光刻设备使用的光刻胶（感光材料）。将向静冈县工厂投入45亿日元，提高最尖端的EUV（极紫外）光刻胶的产能。
-
-住友电木将对中国子公司苏州住友电木有限公司投入25亿日元，建设新生产线。针对排在全球份额首位的半导体封装材料，把产能增至1.5倍。
-
-信息来源：
-
-[日本半导体材料厂商相继启动增产日经中文网](https://cn.nikkei.com/industry/manufacturing/46249-2021-10-09-05-00-09.html)
-
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
