@@ -2,38 +2,20 @@
 ---
 
 
-## 什么是稳定币？ 与黄金挂钩还是与美元挂钩？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1586204/)
+## 871 名消防员欲对洛杉矶疫苗强制令发起诉讼
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1586399/)
 
-作者：香草山金融部 – 闲聊钱币
+#### 撰稿：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-27.jpg)图片来源：Epochtime
+零对冲网10月10日报道，由于洛杉矶政府强制要求政府工作人员打疫苗，约1/4的洛杉矶消防局消防员想要起诉该市政府。10月7日，871名消防员联合发表声明，欲通过法律诉讼寻求每位250万的损害赔偿。
 
+洛杉矶市委员会于8月份发出一项条例，要求所有市政府雇员都要打二剂中共病毒疫苗，或到10月5日至少要打过一剂疫苗，除非有医学或宗教原因可以例外，即使例外，也要常规测试中共病毒。
 
+为消防员们打官司的原告律师凯文·麦克布来德说：“这个申诉将依据加州民事诉讼中的无限公民案例发至上诉法庭”。麦克布来德律师说这个诉讼意向是源于洛杉机消防局要求每位消防员除非例外，均必须在10月20日达到完全接种，不然将会被赶回家5天没有收入，如果他们5天后还不愿打疫苗，就将被解雇。律师写道该疫苗强制令是“公然地错误执行”，理由是干涉了雇用权利，引起情绪上的疾患，违背了《宪法》规定的私人权力，违反了医学试验法中的人权保护。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+原告们是洛杉机联合消防员工会的成员，该工会于10月4日的公告中已申明其立场，“市政府不能强制任何有关10月5日打疫苗到期日的后果，市政府的条例不能有任何后果，任何条例必须先与工会协商。”
 
+但洛杉矶市政府律师麦克·弗优尔说：“美国高院和全国法院都支持疫苗强制令，我很自信我们会赢。”
 
-
-根据Investopedia网站的定义，为了提供一定的稳定性，任何与储备资产挂钩的数字代币都属于稳定币的范畴。
-
-在虚拟代币的持续变化的发展史中，人们很难预测它们的波动性。有些，比如比特币可以在一天内浮动几千美元；而另一些则早早退出了历史舞台，比如OneCoin, BitConnect等。因此人们寻求将虚拟代币和储备资产挂钩从而获得一定的稳定性。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-12.jpg)
-黄金是各国央行的储备资产，美元是世界的储备货币。因此将虚拟代币和黄金美元挂钩成为必然。
-
-单独与黄金挂钩的虚拟代币或者单独与美元挂钩的虚拟代币都已经出现。然而，新中国联邦的H-Dollar和H-Coin开虚拟币的先河，同时和黄金美元挂钩，这是其它币种望尘莫及的。同时伴随着G生态圈的全面发展，喜币必然会被越来越多的人喜爱接受。
-
-（本文仅代表作者观点）
-
-参考来源：[https://www.investopedia.com/terms/s/stablecoin.asp](https://www.investopedia.com/terms/s/stablecoin.asp)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+新闻来源： [871 Firefighters File Intent To Sue Over LA’s COVID-19 Vaccine Mandate](https://www.zerohedge.com/political/871-firefighters-file-intent-sue-over-las-covid-19-vaccine-mandate)
