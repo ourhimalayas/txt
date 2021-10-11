@@ -2,13 +2,9 @@
 ---
 
 
-## 2021年10月10日 文贵先生盖特 8
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1587080/)
+## 福奇在2019之前就要利用大疫情控制人们的生活
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1587109/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+10/8/2021 在中共病毒爆发之前，安东尼·福奇和里克·布莱特已经勾勒出利用大流行作为刺激实体的阴谋，以彻底摆脱现有的疫苗批准流程，并对人们的日常生活实施全面的极权控制。
 
-10/10/2021 Miles Guo: 90% of the audience at Xi Jinping’s speech marking the 1911 Revolution was fake; Xi declined to meet Biden and hasn’t met anyone for over a year due to his worsening health conditions. Whereas the worse his health conditions get, the more he wants to invade Taiwan! 10/10/2021 文贵直播: 习近平辛亥革命演讲的九成观众是假的；习拒绝见拜登和他一年多不见人是因为他身体不行了，而他身体越不行，越要打台湾！
-
-[【2021年10月10日】文贵先生盖特原文](https://gettr.com/post/pdrkqj703a)
-
-**喜联盟Gnews编辑部**
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

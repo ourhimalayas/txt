@@ -2,22 +2,29 @@
 ---
 
 
-## 中共全面禁止非公有资本进入和开展新闻传媒业务
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1587152/)
+## 州长候选人和妻子患新冠 强烈反对新冠疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1587209/)
 
 作者：飞虹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月8日，中共发改委在其官网发布了”2021年度市场准入负面清单”，对非公有资本进入新闻行业列出全面而详细的限制，如不得从事新闻采编播发业务，不得投资设立和经营新闻机构，不得经营新闻机构的版面、频道、栏目、微信公众账号等。这意味着，在“一切听党话”、所有新闻已经受到严格审查的今天，当局将停止所有非公有资本投资或进入任何与新闻相关的产业。 墙内民众将彻底失去发声的所有平台。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1011-AM-（1-3）.003.jpeg)
-一直以来，中共不仅对大众公共媒体进行严格审查，对自媒体、社交通信也严格监督，一旦发现所谓”不和谐”声音，便采取各种惩罚措施，因获罪者不可胜数。即使如此高压管控模式中共仍不满意，试图从源头上堵住异见的产生和传播。
-(本文仅代表作者观点)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+10月10日，德克萨斯州共和党州长候选人，艾伦·韦斯特（Allen West）发布一系列推文，他分享了自己和妻子感染新冠病毒，和在达拉斯医院接受治疗的经历，并称现在，他将更坚决的反对疫苗强制接种令。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-207.png)
+现年60岁的韦斯特曾担任德克萨斯州共和党主席。6月卸任后，正在备选明年州长选举。他在推特中表示，他反对新冠疫苗强制接种，并且自己也没有接种。韦斯特的妻子接种了疫苗，但上周五10月8日被检查出新冠阳性，接受治疗后第二天回家。当天，韦斯特自己也出现轻微症状，进入医院治疗后，血氧饱和度从85回升至94至96区间。
 
-参考链接：[中共加紧控制公众话语权 全面禁止非公有资本开展新闻传媒业务](https://www.voachinese.com/a/China-proposes-bannig-non-public-fund-in-news-industry-20211010/6264770.html)
+在系列推中，韦斯特感谢医护人员没有强迫他接受有害的方案，自然抗体最好。他表示更加致力反对相关的强制令，不能让垄断大药厂和腐败的官僚借此敛财，绝不接受把危险的针头对准美国人民。作为德州官员，将坚持强烈打击任何在这里强制要求接种新冠疫苗的人。韦斯特以自己道德家庭现状强调个人选择权的重要性，韦斯特说：“我们的身体是我们最后的自由和自由的避难所，我将为每个人捍卫这一点”。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
+
+参考链接：
+
+1. [Texan vying for governor slams COVID vaccine mandates from hospital](https://www.newsbreak.com/news/2398730984074/texan-vying-for-governor-slams-covid-vaccine-mandates-from-hospital)
+2. [Allen West’s Twitt](https://twitter.com/AllenWest/status/1447195966684205059)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+
+新闻访谈终审：暗黑
+编辑/校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -26,4 +33,4 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

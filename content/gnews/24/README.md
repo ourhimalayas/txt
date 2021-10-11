@@ -2,15 +2,39 @@
 ---
 
 
-## 2021年10月10日 文贵先生盖特 6
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1587069/)
+## 独家！康涅狄格号南海遭撞击，系中共潜艇所为！
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1587100/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+作者：文龙
 
-10/10/2021 Miles Guo: Taiwan is in DANGER! Biden signed pro-CCP promises in writing; Three fundamental conditions for the US to sell out Taiwan: 1) The CCP continues buying the US Treasury securities; 2) The CCP and the US won’t stop military exchanges and won’t have military conflicts in the South China Sea and Taiwan; 3) The US firmly adheres to the “One-China policy” and opposes Taiwan independence, without emphasizing “neither side of the Taiwan Strait can change the status quo”; So, the CCP is essentially given the legitimacy to invade Taiwan in the name of Sun Yat-sen and eliminating Taiwan independence
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-10/10/2021 文贵直播: 台湾危矣！拜登签署了亲共的文字性承诺；美国卖台的三大根本条件：1) 中共继续买美国国债；2)保持中美军事交流，在南海和台湾不发生军事冲突；3) 美方坚决支持一中并反对台独，不强调”两岸任何一方不改变现状”；这等同于给了中共以孙中山和灭台独的名义拿下台湾的合法性
 
-[【2021年10月10日】文贵先生盖特原文](https://gettr.com/post/pdrwt3d7e9)
 
-**喜联盟Gnews编辑部**
+两日来一则消息同时在墙内和世界传播，一周前的10月2日，美军核潜艇康涅狄格号在南海水域遭遇不明撞击，现已返回关岛基地。此次撞击据称造成康涅迪格号艇身损坏，十几名船员受轻伤。事件曝光后墙内一片欢腾，中共官媒则贼喊捉贼，称美军核潜艇隐瞒真相，必须说明撞击原因和地点，以及是否有核泄漏给当地水域造成污染云云。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1011-AM-（1-3）.006.jpeg)
+美军“海狼”级核潜艇只建造了三艘, 康涅狄格号是其中之一，而中共也具有先进的潜艇技术 。果然在昨天的直播中。文贵先生爆料揭示。 康涅狄格号的就是遭到中共潜艇的撞击。具体细节未知。但美军的确没有还手攻击。文贵先生在爆料中称，在南海的各国舰艇均已撤离。而美国现政府为保自身当下利益，已与中共达成勾兑，放弃了保卫台湾的承诺。
+(本文仅代表作者观点)
+
+参考链接：
+
+1. [康涅狄格号核动力潜艇](https://zh.wikipedia.org/wiki/康涅狄格号核动力潜艇)
+2. [南海：美国核潜艇撞上“不明物体”导致十余名官兵受伤](https://www.bbc.com/zhongwen/simp/world-58839364)
+3. [美国核潜艇撞上“不明物体”中方：美方故意隐瞒](https://www.dw.com/zh/美国核潜艇撞上不明物体中方美方故意隐瞒/a-59445464)
+4. [俄前海军上将给出美国核潜艇事件的可能原因](https://sputniknews.cn/military/202110081034616441/)
+5. [UPDATED: Attack Submarine USS Connecticut Suffers Underwater Collision in South China Sea](https://news.usni.org/2021/10/07/breaking-attack-submarine-uss-connecticut-suffers-underwater-in-pacific)
+6. [A U.S. Navy submarine collides with an underwater object in the South China Sea](https://www.npr.org/2021/10/08/1044371468/us-navy-submarine-collision-south-china-sea-uss-connecticut)
+
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

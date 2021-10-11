@@ -2,33 +2,39 @@
 ---
 
 
-## 中共新冠疫苗埃及推展不顺再遭丢弃
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1587194/)
+## 微信、QQ、淘宝被曝频繁读取用户相册数据
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1587243/)
 
-作者：修文
+**撰稿：日本东京方舟农场 子辰**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据大纪元10月9日报道，新浪微博一位数码博主爆料，称微信（WeChat）、QQ、淘宝等多款中国产App在用户未主动激活的情况下，在后台数次读取用户相册，窃取用户隐私。
 
-埃及明亚省贝尼迈扎尔一处污水沟，发现近日被人倾倒的，大量中共国药集团新冠疫苗，当局展开调查后发现卫生局仓库内另有4988盒疫苗不翼而飞。后锁定埃及生物制品和疫苗控股公司3人将其逮捕。这三人分别为药剂师、仓管人员、运货司机。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-206.png)
-据《今日埃及》报导，水沟旁一共有1万3412盒国药疫苗遭到丢弃，已无法使用，这批疫苗的价格在502万3200埃及镑，约人民币207万左右。埃及5日才刚在开罗机场接收国药送来的100万剂疫苗，以及可生产460万剂疫苗的原材料。
+这位新浪博主发文说，他电报群的一个朋友开启了iOS 15的隐私新特性“记录App活动”对所有App的隐私读取行为进行7天的监控，并使用App Privacy Insights对记录进行读取。
 
-埃及政府表面配合，但实际各种拖延，并不买中共和世界卫生组织的账。此前新冠疫苗接种计划在当地推行并不顺利。这次在中共国药抵达后，发生了这种极为巧合的意外，说明埃及民众对中共毒疫苗的不信任感已经形成共识，为了民众的安全，疫苗公司工作人员才会自发站出来销毁毒疫苗，也是对当局推广疫苗计划的正面抗争。
+结果监控发现，微信、QQ、淘宝在用户未主动激活App的情况下，均存在后台频繁读取用户相册的行为，每次读取时间长达40秒至1分钟不等。
 
-参考链接：
+随后微信方面做出回应称只是相册发生内容更新时会通知到App，而App的该准备行为被记录成读取系统相册而已。
 
-1. [不想用？埃及大量中國國藥武肺疫苗遭丟棄 當局逮捕3人](https://news.ltn.com.tw/news/world/breakingnews/3700054)
-2. [Egypt: Haphazard and flawed Covid-19 vaccine rollout fails to prioritize most at-risk](https://www.amnesty.org/en/latest/press-release/2021/06/egypt-haphazard-and-flawed-covid-19-vaccine-rollout-fails-to-prioritize-most-at-risk/)
+微信的上述解释遭到了大量网民的炮轰。
 
+网友认为照片是用户隐私，每次调取用户隐私时用户并不知情。这种扫描是否添加了新图片的过度请求行为大量占用系统内存、严重消耗了电池续航及降低了用户体验。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211011145029.png)图片来自于网络
 
-新闻访谈终审: 暗黑
-编辑/校正/发稿：浪迹天涯
+此前《华尔街日报》曾发表文章称，“微信已成为中国无处不在的监控利器”。文章表示，中共政府正在越来越多地利用腾讯旗下的这款应用收集资讯，作为逮捕和给予警告时的证据。
 
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+近日，大纪元获得中共官方大量的内部文件。这些文件泄露中共还通过控制海外华人媒体，并使用微信和其它社交媒体来审查、监视和控制话语权，为间谍活动以及窃取海外科技提供便利。
+
+此外，隶属法国国防部下属的军事学院战略研究所（IRSEM）公布了题为“中国（中共）影响力行动”的报告。该报告大篇幅披露中共利用国营和私营公司，从全球收集大量数据的黑幕。
+
+报告提到，中共用来收集数据的方法包括微信、微博和TikTok（抖音）等数字平台，还有北斗和华为等公司，以及一些数据库，它们用来为海外影响力行动提供资讯和准备工作。
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[微信QQ淘宝被曝：后台频繁读取用户相册](https://www.epochtimes.com/gb/21/10/8/n13291513.htm)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

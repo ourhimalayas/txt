@@ -2,26 +2,35 @@
 ---
 
 
-## 底层的互踩互害
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1587195/)
+## 上交所终止联想科创版上市申请
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1587252/)
 
-撰稿：东京樱花团/盐和光
+**撰稿：日本东京方舟农场 海星**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/无标题-1.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fp1.ssl.cdn.btime.com%2Ft01782efb9c68108d88.jpg&amp;imgrefurl=https%3A%2F%2Fwantubizhi.com%2Fpic%2F%25E4%25BA%2592%25E5%25AE%25B3%2F&amp;tbnid=_POalwofy-WmnM&amp;vet=12ahUKEwjzyOShpcLzAhUIBd4KHa3QB9oQMygNegUIARCbAQ..i&amp;docid=ttrikJkhtTh5UM&amp;w=640&amp;h=416&amp;q=%E4%BA%92%E5%AE%B3&amp;ved=2ahUKEwjzyOShpcLzAhUIBd4KHa3QB9oQMygNegUIARCbAQ)
+10月8日，中共上交所发布公告，决定终止联想集团有限公司在科创版上市的申请。
 
-极目新闻报道 ，10月10日下午1时30分许，莆田秀屿区平海镇上林村发生一起刑事案，现场发现2名死者、3名伤者，均为上林村上欧人，死者与伤者均为一家人，伤者包括一名10岁儿童。
+据新浪科技报道，全球最大个人电脑生产商联想集团于9月30日向中共上海证券交易所提出申请并获受理。随后，联想于10月4日对外宣布，计划向存托人发行不超过13.38亿股普通股股票，作为转换为存托凭证(CDR)的基础股票，还将募集资金100.14亿元人民币。
 
-该通报还写道，初查犯罪嫌疑人为欧某中，男，于当日下午13时30分许，自带砍柴刀前往欧春九家中作案，后逃离现场。市、区两级机关在增派警力现场处置的同时，全警开展抓捕。目前，犯罪嫌疑人欧某中仍在全力追捕中。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5987501de0de962f5db1d54ce170681b.jpg)图片来自于网络
 
-报道中还有一名10岁儿童，无辜的小生命就这样被邻里纠纷剥夺，总有一身戾气，他们祸害不了阶层高的人，因为彼此不在一个圈层，于是，弱者挥刀向弱者，残害同样处在社会底层的其他人，这种底层之间的互害，往往更加直白、赤裸、不加掩饰，从倾轧同类中得到一点稀薄的存在感。随着环境恶化，在中共独裁国互踩互害，会频频爆发，唯有消灭中共及其制度才能走出这死循环互害模式。
+但未料仅仅经历8天联想就撤回上市申请。网友戏称，联想创下了史上最短科创板IPO之旅。
 
-消息来源：
+此外，联想集团的招股书申报稿显示，发行的保荐机构为中金公司，主承销商为高盛证券和中信证券。
 
-[福建莆田发生2死3伤重大刑事案，警方通缉嫌疑人](https://mr.mbd.baidu.com/r/uw0VVUwFrO?f=cp&amp;rs=3440300292&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=78d02ee8c84de00d)
+联想集团于1984年成立，由倪光南和柳传志开创，曾多次收购美国IBM科技公司的业务。柳传志虽于2019年12月31日卸任公司董事，但他仍与联想签订了顾问协议，成为了其资深顾问。
 
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
+*注：本文仅代表作者观点，与 Gnews无关*
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
+*参考链接：*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+[联想集团科创板IPO审核终止 因发行人撤回发行上市申请](https://finance.sina.com.cn/tech/2021-10-08/doc-iktzscyx8571097.shtml)
+
+[联想集团拟上海科创板上市发行不超约13.38亿股CDR 为百亿元投资项目募资](https://cn.reuters.com/article/lenovo-shh-cdr-1004-idCNKBS2GU07G)
+
+[2分钟读财报 | 联想申请科创板上市遭质疑，创下史上最短科创板IPO之旅](https://finance.sina.com.cn/stock/s/2021-10-09/doc-iktzqtyu0482228.shtml)
+
+[柳传志](https://zh.wikipedia.org/wiki/%E6%9F%B3%E4%BC%A0%E5%BF%97)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

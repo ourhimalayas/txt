@@ -2,55 +2,64 @@
 ---
 
 
-## 法官：英国政府必须证明儿童中共疫苗是合理的
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1586681/)
+## 西喜时事新闻简报 — 中共病毒时事篇
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1586705/)
 
-- **西班牙巴塞罗那喜悦农场—wenwu**
+- **编译：西班牙喜悦农场–wenwu**
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip293.png)
+您若想了解全文报导内容，请点击标题链接
 
-一名法官已命令英国政府提交证据，证明为儿童接种中共病毒（Covid-19）疫苗是合理的，并规定他们的截止日期为 10 月 11 日（星期一）。
+（爱惜生命 远离疫苗）
 
-The Hon. Mr Justice Jay（杰伊法官）的这个命令非常受欢迎。我们于 9 月 30 日（星期四）独家透露，自从 15 岁以上的青少年接种 Covid-19 疫苗以来[**，该年龄组的死亡人数与** 2020 **年同期相比增加了** 47%](https://theexpose.uk/2021/09/30/deaths-among-teenagers-have-increased-by-47-percent-since-covid-vaccination-began/)（见[这里](https://theexpose.uk/2021/09/30/deaths-among-teenagers-have-increased-by-47-percent-since-covid-vaccination-began/))
+1.[**Covid-19 种族灭绝的证据**](https://theexpose.uk/2021/10/10/uk-gov-made-it-impossible-for-retired-doctors-to-return-during-the-pandemic/)
 
-我们还深入研究了国家统计局的数据，因为我们怀疑我们会发现这些死亡中的大多数是十几岁的男孩，这是因为与辉瑞疫苗有关的心肌炎的风险，主要发生在年轻男性身上，以及与英格兰公共卫生局数据中发现的，因心脏骤停而发生求救护车的紧急呼叫的增幅有关。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip295.png)
 
-不幸的是，我们的担忧得到了证实，因为我们在 10 月 4 日（星期一）独家透露，[**自从他们开始接种** Covid-19 **疫苗以来，英国青少年男孩的死亡人数增加了** 63%](https://theexpose.uk/2021/10/04/teen-boy-deaths-increased-by-63-percent-since-they-had-covid-vaccine/)。
+据《吹哨人》2021年10月10日电，英国政府和 NHS 只想招募一些外国医生（其中许多不会说英语，并且那些外国医生将获得巨额报酬）；退休的有经验的本地医生将继续退休和不被需要（大约1.5万名），这只是掩盖中共病毒（covid-19)是种族灭绝计划的另一个证据。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip294.png)
+首先，行医就像骑自行车。用不了多久就回到了最佳状态。大多数被问到的医生都会很高兴地服从——帮助将 NHS 从自己制造的混乱中，拯救出来。
+其次，也许英国政府意识到年长、更有经验的医生，不受 NHS 合同的约束，无需支付抵押贷款，也无需担心未来的职业生涯，可能更有概率质疑整个中共病毒骗局。值得注意的是，反对疫苗欺诈的少数医生中，大多数都是年长且更有经验的医生。
 
-值得一提的是，我们随后再周二（5日）透露，克里斯·惠蒂（Chris Whitty）决定否决联合委员会（JCVI）的疫苗建议，并建议政府向所有健康中学生提供 Covid-19 疫苗。至今为止，[与 2020 年同期相比，男性儿童的死亡人数增加了 400%。](https://theexpose.uk/2021/10/05/ons-data-shows-400-percent-increase-male-children-deaths-since-they-had-covid-vaccine/)（参见[此处](https://theexpose.uk/2021/10/05/ons-data-shows-400-percent-increase-male-children-deaths-since-they-had-covid-vaccine/)）
+如果社会上出现有数千名经验丰富的医生，政府和 NHS 就很难在养老院、疗养院和医院谋杀数千名老人了。
 
-然而，人们一直在法庭上争取推翻英格兰首席医疗官惠蒂关于，儿童应该接受实验性 Covid-19 注射的决定，但不幸的是，到目前为止都无济于事。
+**2. [最后期限临近，数十万美军仍未接种疫苗](https://www.axios.com/military-coronavirus-vaccine-mandate-98a5bb7f-5b01-419a-bc05-14d232dc3b50.html)**
 
-“Covid-19 大会”和律师弗朗西斯·霍尔 (Francis Hoar) 申请举行紧急听证会，以暂停向 18 岁以下儿童推出 Covid-19 疫苗，但该申请在 9 月 2 日再次被拒绝。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip297.png)
 
-申请人要求法院仅用半天时间听取口头辩论，以考虑是否暂停向所有12-17岁的健康儿童注射实验性 mRNA 疫苗技术，该基因技术产生了越来越多的凝血和其他不良反应（包括死亡）的报告，但仍处于紧急授权状态，且在此之后等于把人类当成实验室的小白鼠。
+据《AXIOS》2021年10月10日电，[在](https://www.washingtonpost.com/national-security/2021/10/10/military-vaccine-mandate/)美军各个服务部门设定的即将到来的截止日期之前，数十万美军服务人员仍未接种疫苗；所有76.3万名国防部文职雇员必须在11 月 22 日之前完全接种疫苗。
 
-法院的观点是，将申请人的申请推迟 14 天审议以允许政府准备答复，实际上并不是拒绝。然而，这种延迟的实际效果是拒绝了所寻求的紧急救济，并使国家的全部资源和机器依然进入疫苗运转状态。
+**3. [五岁女孩在被迫接受 Covid-19 PCR 检测返回学校后，眼部流血](https://theexpose.uk/2021/10/09/five-year-old-girl-left-bleeding-from-the-eye-after-being-forced-to-take-covid-19-pcr-test-to-return-to-school-hospital-says-this-is-normal/)**
 
-在 9 月 1 日，“Covid-19 大会”第三次申请法院听取他们的辩论。然而仅过半天时间，大规模健康儿童疫苗授权的计划就开始实施；在 9 月 17 日，法院拒绝让申请人在 9 月 28 日之前，进入法庭；“Covid-19 大会”随后向上诉法院提出申请，以要求推翻法院拒绝对儿童进行不必要的疫苗授权进行紧急听证的决定，可在[此处](https://drive.google.com/file/d/17ymh5z1A7D4ebhFgTBDuhIY2UQOG37LP/view?usp=sharing)阅读。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip299.png)
 
-尽管政府最后试图说服上诉法院反对，但法院于 9 月 22 日（星期三）将案件列入临时听证会，不幸的是上诉被拒绝，此案件仍将在 9 月 28 日开庭审理。
+据《吹哨人》2021年10月9日电，一名 5 岁女孩被迫接受 Covid-19 PCR 检测后眼部流血，其中包括将鼻拭子插入她的鼻子以便返回学校，然后医院告诉她的母亲“流血是正常的”。
 
-根据“Covid-19 大会”报道，9 月 28 日的听证会结果如下：
+**4. [根据 NHS 疫苗护照指南，疫苗护照肯定会在 2021 年 12 月中旬之前进入英国](https://theexpose.uk/2021/10/10/vaccine-passports-are-definitely-coming-to-the-uk-by-mid-december-2021/)**
 
-法院已将此事押后至下一次听证会，以便政府有更多时间对申请人最近提出的案件，作出回应。这是因为*JCVI*和*CMO*发布了声明，而国务卿仅在此声明发布后才决定实施大规模疫苗接种。为响应这些声明和该决定，申请人必须修改上诉。
+据《吹哨人》2021年10月10日电，可以在[此处](https://www.nhsx.nhs.uk/covid-19-response/using-the-nhs-covid-pass/)查看的官方 NHS 疫苗指南似乎确认，将于 2021 年 12 月中旬实施；企业和组织活动者在此日期后，不在乎允许申报疫苗豁免，只有通过 NHS 疫苗护照（完全接种疫苗）才可以接受豁免；这只能意味着英国政府的[“B 计划](https://www.gov.uk/government/publications/covid-19-response-autumn-and-winter-plan-2021/covid-19-response-autumn-and-winter-plan-2021)”将在今年冬天来到您附近的小镇……
 
-英国政府曾要求撤销该案，但此案仍然是在法院审理。***Jay***法官承认，申请人的大律师***Francis Hoar***先生已经做了足够的工作，来说服他存在一个有争议的案件。另外，法官还驳回了政府的论点，即对案件的审议应仅限于对两名申请人的影响。  他承认他们具有代表性，有权提出问题以供考虑对更广泛人群的影响。
+在 2020 年，我们和许多其他人告诉您疫苗护照即将问世，您将其标记为阴谋论。然而，到 2021 年，它们已在世界范围内实施，法国目前制定了最严格的疫苗护照法，紧随其后的是以色列；以色列最近取消了很大一部分人口的通行证，因为不再认为公民完全接种了疫苗（两针），除非他们已经接种了三剂 Covid-19 疫苗。
 
-然而，法院拒绝下令立即暂停大规模疫苗接种计划。在听取了双方就案件应如何进行陈述后，英国政府寻求法庭给予漫长的时间表和延迟，而在申请人寻求快速审理后，法院已指示英国政府在***10***月***11***日之前提交进一步的答复和证据，然后申请人必须在 *10*月*15*日对新证据进行答复。法院随后将立即重新审议儿童疫苗授权。
+**5. [伊恩·斯图尔特（Iain Stewart）辞去加拿大公共卫生署署长一职](https://emeatribune.com/iain-stewart-to-step-down-as-head-of-public-health-agency-of-canada/)**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip300.png)
+据《EMEA TRIBUNE》援引《加广网》2021年10月9日电，伊恩·斯图尔特 (Iain Stewart) 将出任加拿大公共卫生署署长，由现任卫生部助理副部长 Harpreet S. Kochhar 博士接替。
 
-当今天的程序尘埃落定时，我们可能会发布进一步的更新。
+**6. [芝加哥海关查获小包装伊维菌素和羟氯喹](https://www.thegatewaypundit.com/2021/10/custom-officials-seize-small-packages-lifesaving-ivermectin-hydroxychloroquine-chicago-record-amounts-ivermectin-continue-flow-across-southern-border/)**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip301-1.png)
+据《门户网》2021年10月10日电，海关和边境官员最近在芝加哥奥黑尔机场抓获了两小包伊维菌素和羟氯喹。在 COVID 大流行之前，这两种药物不会引起人们的注意。但由于民主党和媒体将完全安全、廉价和有效的药物政治化（打压），海关人员正在寻找这些廉价药物。
 
-再次感谢您的支持。请继续分享并鼓励其他人也承诺提供支持。
+芝加哥奥黑尔国际机场内，特工于10月4日扣押了（来自中国、墨西哥）100粒伊维菌素的包裹、32粒伊维菌素的包裹，以及40粒羟氯喹的包裹；与此同时，墨西哥卡特尔今年继续向美国[走私创纪录数量的芬太尼](https://www.visiontimes.com/2021/03/19/mexican-cartels-smuggle-record-amounts-of-fentanyl-into-the-us-under-bidens-leadership.html)。
 
-[在法院决定暂停向 18 岁以下推出 Covid-19 疫苗之前，还有多少儿童和青少年需要死亡？](https://theexpose.uk/2021/10/05/ons-data-shows-400-percent-increase-male-children-deaths-since-they-had-covid-vaccine/)
+**7. [杰克逊维尔的空中交通管制员周五晚上也外出抗议强制接种 COVID 疫苗](https://www.thegatewaypundit.com/2021/10/media-blackout-not-just-southwest-airlines-air-traffic-controllers-jacksonville-walked-friday-night-protesting-mandatory-covid-vaccinations/)**
 
-（文章仅代表作者观点与GNEWS无关）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip302.png)
 
-**新闻来源：《[吹哨人](https://theexpose.uk/2021/10/06/uk-judge-orders-government-to-provide-evidence-in-court-that-justifies-covid-19-vaccination-of-children/)》｜发布时间：2021年10月6日｜**
+据《门户网》2021年10月10日电，（继西南航空公司飞行员罢工后）周五（8日）晚上，Big Media（主流媒体）屏蔽了一条消息，即数百架从佛罗里达州的杰克逊维尔起飞的航班因疫苗强制要求，飞行员出现罢工（航空公司表示1个辞职10个求工作）。
+
+不因如此，据一位消息人士称，佛罗里达的空中交通管制员在杰克逊维尔举行了一次罢工，以应对强加给他们的疫苗强制令；美国人受够了激进的左派（共产主义者）采取疯狂行动剥夺我们的自由。
+
+（文章仅代表作者本人观点，与Gnews无关）
 
 * * *
 
