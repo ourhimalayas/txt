@@ -2,34 +2,52 @@
 ---
 
 
-## 美国撤军，中共国黑客入侵阿富汗电信公司
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1586639/)
+## 从宋庆龄傅作义到今天的卖台贼都会被共产党羞辱和打压
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1586805/)
 
-- **西班牙巴塞罗那喜悦农场—wenwu**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/042_13047698815ed142ea4ae82_副本.jpg)
+据[2021年10月10日 文贵大直播：文贵在双十节给台湾同胞说的话：台湾凶也，中共与美方对台湾问题早有文字性承诺勾兑;习以孙灭台，与国民党卖台贼呼应；国内经济房地产的万亿债务危机，华平基金的腐败会把西方掏空，中美勾兑国债；中共通过对西方律师事务所的合作…](https://gtv.org/video/id=6162dd0f304e992109b2bc89)时间点44：59——
 
+**郭文贵先生：**当时的反美、当时的所谓反洋务运动，当时的最后的武昌起义的根本——保铁路，还有辛亥革命的本质，可以说是八方所谓各种匪和真正的知识分子和精英们汇聚在一起，最终结局是什么？孙中山先生，所有孙中山是有很多很善良的一面、天真的一面，所以说外号共产党起名孙二炮嘛。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip291.png)
+我跟共产党的所有的高官接触当中，都谈到孙中山国民党，我从没见一个共产党员尊重过孙中山，我也没有见过任何人说后来他的宋庆龄故居，还有在宋庆龄的整个历史上跟那么多所谓男人睡觉、要跟司机、保镖结婚、被毛泽东周恩来控制，他们觉得她受尊重——从来没觉得。
 
-在美国8月中旬从阿富汗撤军时，中共国黑客入侵了阿富汗一家大型电信公司，这是北京试图在阿富汗获得立足点的早期迹象。
+我也和中国的历史学家、教兽，教兽——那些专门教你们当兽的那种人，我从来没见过他们尊重过辛亥革命孙中山，而且我们知道在文化大革命前后那所有孙中山的人都啥下场啊？——都打成反革命了。武昌起义辛亥革命的后人有多少得好下场，梁启超咋死的，梁启超的儿子梁思成啥结果？都回去又爱国又爱党去了。
 
-根据网络安全研究公司 Insikt Group 的一份今年早期报告，至少有两个中共国支持的黑客[入侵](https://www.recordedfuture.com/chinese-apt-groups-target-afghan-telecommunications-firm/)了阿富汗电信巨头 Roshan。随着美军开始撤离阿富汗，中共黑客组织在 8 月和 9 月加大了攻击力度。研究人员表示，这一漏洞可能使中共国获得有关网络本身和使用网络的“极其宝贵”的高价值个人信息。
+所以今天你去想一想，当10月10号共产党说要继承辛亥革命的衣钵，找了两个傻瓜在那儿代表什么多党派在那讲话的时候，要拿下台湾的时候，大家没看到秘诀在哪，咱们爆料革命最早说的，共产党拿台湾的时候一定是台湾的内鬼卖台贼对台湾的伤害比大陆人还要严重。
 
-阿富汗是中共国试图扩大影响的最新国家。在美国，中共国成功地迫使耐克、苹果和 NBA 在中共国侵犯人权的行为上，[保持沉默](https://freebeacon.com/media/china-hong-kong-journalists/)。立陶宛政府官员上个月[警告](https://freebeacon.com/national-security/lithuania-tells-users-to-ditch-chinese-phones-over-censorship-fears/)公民不要购买中共国手机，因为它们被发现包含审查工具。在亚洲，中共国采用了“债务陷阱外交”（一带一路），以毁灭性的利率向小国贷款，并在这些债务未偿还时必须扣押资产。
+对待国民党过去的最早赶离出台湾消灭的共产党，就是共产党（注：疑似郭先生口误，此处应指国民党）内部被腐败了，被蓝金黄了，连蒋介石的机要秘书都被蓝金黄了，傅作义的女儿都是共产党员，是吧，那么今天你再看台湾用的同样的招儿，用同样的招儿，当时傅作义之前是要打的，他女儿告诉他说你要打的话，我就要拿枪顶着你脑袋了，傅作义的弟弟已经收了人家钱了，——咱收人家钱了，哥！你再打的话我也完了，傅作义交出几十万大军。
 
-中共国[每年](https://www.silkroadbriefing.com/news/2020/11/25/china-belt-and-road-projects-value-now-exceeds-us4-trillion/)在“一带一路”倡议上花费[500 亿至 1000 亿美元](https://www.silkroadbriefing.com/news/2020/11/25/china-belt-and-road-projects-value-now-exceeds-us4-trillion/)，中共国的一带一路利用基础设施项目在于扩大其在发展中国家的影响力。但鉴于阿富汗地处偏远、贫困和不稳定，它不太可能成为“一带一路”项目的目标。根据美国战略与国际研究中心高级研究员乔纳森·希尔曼（Jonathan Hillman）的说法，中共国可能将数字攻击视为在阿富汗获得立足点的更有效途径。
+傅作义你知道很夸张的，到后来还有点想梗梗的时候，毛泽东周恩来说你还有机会吗？不行咱再来一仗？我再给你两倍的大兵，我让你再打回来，再玩儿一把。傅作义被羞辱到最后他自己到那个程度，今天的你看看，很夸张。
 
-“中共国政府可能将阿富汗的主要电信供应商视为，收集情报和监控政治和安全风险的重要途径，”希尔曼告诉《华盛顿自由灯塔》。
+大家，从过去再说未来，哪有这个路大脑骗说站在未来说历史，这孙子就不要脸，咱就站在过去咱说未来，你想想100年前的世界信息的当那种情况下，中国有了这所谓的政治运动，今天你能做到吗？
 
-此类行动可以帮助中共国监测阿富汗与新疆地区边界附近的活动。值得一提的是，中共国在新疆地区为维吾尔族维持着一个纳粹集中营网络。塔利班恐怖分子已将阿富汗边境的维吾尔族民兵[撤走](https://www.rferl.org/a/afghanistan-taliban-uyghurs-china/31494226.html)，显然是一个符合中共国政府的利益或要求。阿富汗维吾尔人[担心](https://www.bbc.com/news/world-asia-58342790)随着塔利班恐怖分子巩固其控制权，他们可能会被驱逐到中共国。
+今天的武昌起义，辛亥革命在中国什么变化？你敢露露头都弄死你了，叫做背宗啊！——背宗弃族啊！还有一个就今天你敢有点外国味儿，你马上是，是不是，像我们爆料革命一样，属于叛国主义、人民的公敌。你能存在吗？
 
-研究人员指出，中共国的情报机构如此庞大，黑客组织很可能没有相互协调，这表明黑客攻击可能存在多个情报目标。其中一位中共国黑客团体与3月份[黑客](https://www.welivesecurity.com/2021/03/10/exchange-servers-under-siege-10-apt-groups/)Microsoft Exchange 的事件有牵连，此黑客事件访问了成千上万的美国人的电子邮件。
+**小福利：**属于境外反华势力。
 
-（文章仅代表作者观点与GNEWS无关）
+**郭文贵先生：**对了，境外反华的，不是反共势力的，反华势力，还有一个大家再想一想，辛亥革命武昌起义，他说了这么多人，有一个好下场的吗？我们从这一切现象再看今天台湾人民的内部，老百姓真的有多少人想保台湾，有几个人有种有能力保台湾，不是你有勇气就行的。
 
-**新闻来源：《[华盛顿自由灯塔](https://freebeacon.com/national-security/chinese-hackers-breached-afghan-telecom-company-as-us-withdrew/)》｜作者：桑蒂·鲁伊斯｜发布时间：2021年10月9日**
+而且台湾生死不在台湾，是吧？是在台湾和美国的关系，关键还在美国，今天我先说第一句台湾凶啦！不是危啦，台湾凶也！你的交易已经被做完了，我先告诉你，怎么做的，我一会说的时候，你们一个字儿一个字儿地记住，因为今天我们讲的就是将未来历史最重大的、没有任何人知道的，这是两国之间有关台湾的最大的交易的密码，我一会儿告诉你们。
 
-* * *
+（以下暂略）
 
-***发稿：信心满满***
+撰稿：喜马拉雅的肉夹馍；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

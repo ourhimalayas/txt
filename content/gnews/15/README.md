@@ -2,9 +2,9 @@
 ---
 
 
-## 中共利用《长津湖》电影对国民进行爱党反美洗脑
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1586653/)
+## 疫苗可能造成多种致命疾病，引发潜在的种族灭绝事件（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1586811/)
 
-中共利用朝鲜战争杀死百万国民党降兵，却用《长津湖》这种电影对国民进行爱党反美洗脑。
+9/29/2021 泽连科医生：疫苗可能造成多种致命疾病，引发潜在的种族灭绝事件。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

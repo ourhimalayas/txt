@@ -2,28 +2,57 @@
 ---
 
 
-## 最低15%！跨国企业(MNEs)税率改革取得突破
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1586410/)
+## 西南航空试图掩盖本周末被迫取消近 2000 次航班的背后真相
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1586584/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/091611.png)
-据“证券时报网”10月11日报道，当地时间10月8日，经济合作与发展组织宣布全球公司税率改革取得重大突破。从2023年起，跨国企业(MNEs)的税率最低将定为15%。
+作者：文一
 
-这项具有里程碑意义的交易由136个国家和司法管辖区达成，占全球GDP的90%以上。该协议还会把世界上大约100家规模最大、利润最高的跨国企业中超过1250亿美元的利润，重新分配给世界各国，确保这些公司的经营所在地和利润发生地公平分享税收。
 
-随着爱沙尼亚、匈牙利和爱尔兰加入该协议，该项交易现在得到了所有经合组织和G20国家的支持。四个国家——肯尼亚、尼日利亚、巴基斯坦和斯里兰卡——尚未加入该协议。
 
-涉及该协议的“两大支柱解决方案”将提交给10月13日在华盛顿举行的G20财长会议，然后提交给本月底在罗马举行的G20领导人峰会。
 
-全球最低税收协定并不寻求消除税收竞争，而是对其施加多边商定的限制，各国每年将获得约1500亿美元的新收入。具体而言，全球销售额超过200亿欧元、盈利能力超过10%的跨国企业将被新规则覆盖。
 
-在第一支柱下，每年超过1250亿美元的利润的征税权预计将重新分配给市场管辖区。预计发展中国家的收入收益占现有收入的比例将高于更发达的经济体。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-第二支柱引入了15%的全球最低公司税率。新的最低税率将适用于收入超过7.5亿欧元的公司，预计每年会产生约1500亿美元的额外全球税收。
 
-各国的目标是在2022年签署一项多边公约，并在2023年得到有效实施。该公约已经在制定中，经合组织将制定示范规则，以便在2022年期间将第二支柱纳入国内立法，并于2023年生效。
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+
+
+
+【BPR】10 月 10 日报道，美国西南航空公司仅在本周末就取消了近 2000 个航班，其原因是由于公司内部出现大规模的反抗强制接种疫苗的抗议活动。
+
+NBC证实，西南航空公司周日取消了1000多个航班，占其时间表的 27%，周六有 808 个航班被取消。该公司在宣布航班取消时，试图掩盖航班取消的背后真相，将其归咎于空乘人员请病假、空中交通管制和恶劣天气。
+
+而该公司飞行员协会对强制接种疫苗提出诉讼，正好是从本周六开始的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-41.jpg)
+据彭博社报道，该诉讼，要求法院“暂时阻止该公司进行联邦规定的冠状病毒疫苗接种，直到现有的关于涉嫌违反美国劳动法的诉讼得到解决”。
+
+该协会还要求达拉斯的一家联邦法院立即对该请求进行听证，声称该航空公司继续采取违反《劳工法》条款的单边行动，包括威胁解雇任何在2021年12月8日前没有完全接种疫苗的飞行员。
+
+各行各业的民众都在觉醒，并拿起法律武器对抗违宪的疫苗强制政策，保护自己的权利、健康和生命。
+
+参考链接：
+[Southwest Airlines tried to cover up mass ‘sickout’ over vaccine mandate that impacted well over 1000 flights: report](https://www.bizpacreview.com/2021/10/10/southwest-airlines-tried-to-cover-up-mass-sickout-over-vaccine-mandate-that-impacted-well-over-1000-flights-report-1146902/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Q大哥
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

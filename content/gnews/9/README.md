@@ -2,20 +2,15 @@
 ---
 
 
-## 肃清孙力军流毒成“重中之重”！公安系统再掀血雨腥风
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1586713/)
+## 2021年10月9日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1586894/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-196.png)[图片来源](http://news.11fa.com/china/2021/1011/909635.shtml)
-据中共公安部官网10月11消息，公安部党委书记、部长赵克志10月9日主持召开公安部党委（扩大）会暨全国公安队伍教育整顿领导小组第三次会议，重点对肃清孙力军流毒工作进行了部署。
+编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
-赵克志在讲话时指出，当前，第二批公安队伍教育整顿查纠整改环节进入了攻坚克难的关键阶段。要在前期工作的基础上，**紧紧围绕肃清孙力军等人流毒影响这个重中之重**，掌握更加科学有效的工作方法，采取更加坚决有力的措施，勇于刀刃向内，敢于动真碰硬。要坚持领导班子、领导干部带头。肃清流毒影响，领导带头是关键。**对涉及孙力军等人的问题仍躲闪遮掩的，要采取有力措施，推动深挖彻查，做到见人见事见线索见案子。要通过彻底肃清流毒影响进一步营造良好政治生态，切实做到坚定纯洁、让党放心**。
+10/08/2021 Miles Guo’s GETTR: This world is changing so quickly and dramatically, Facebook, WhatsApp & Instagram is experiencing internal management and technical disasters; Mark Zuckerberg’s sins and crimes run deeply, and it’s not too much to call him “Zucktler” (Hitler)
 
-郭文贵先生近期多次爆料，习近平目前仍未完全掌控政法系统。当前，中共围绕“二十大”内斗已经全面展开，近期中共官宣查办傅政华的同时，又对孙力军违纪犯罪“事实”进行补充通报，毋庸置疑，公安系统甚至整个政法系统新一轮的大整肃大清洗已经开始。
+10/08/2021 文贵盖特：世界变化太快了，Facebook、WhatsApp、Instagram正经历内部管理和技术的大崩溃；扎克伯格罪孽深重，称其为“渣特勒”也不为过
 
-信息来源：[https://www.163.com/dy/article/GM11CHTJ0530M570.html](https://www.163.com/dy/article/GM11CHTJ0530M570.html)
+[【2021年10月9日】文贵先生盖特原文](https://gettr.com/post/pdkytq7753)
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/上善若水
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**喜联盟Gnews编辑部**

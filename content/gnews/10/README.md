@@ -2,24 +2,15 @@
 ---
 
 
-## 计划募资250亿克朗！吉利力推沃尔沃年内瑞典IPO，以缓解杠杆压力
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1586706/)
+## 2021年10月9日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1586880/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-195.png)[图片来源](https://www.topitinfo.com/1346290.html)
-据“二十一世纪经济报道”10月9日消息，沃尔沃汽车充满波折的IPO之路，终于迈出了实质性的一步。
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-10月4日，沃尔沃汽车在英文官网发布公告：计划在纳斯达克斯德哥尔摩交易所IPO，筹资250亿瑞典克朗（约合人民币184亿元）。募集来的资金将主要用于沃尔沃汽车的全面电动化和直营行业模式转型。据了解，纳斯达克斯德哥尔摩交易所上市委员会评估后认为沃尔沃汽车符合上市要求，沃尔沃汽车预计将在2021年年内正式完成上市并开始交易。
+10/7/2021 Miles Guo: During the so-called 120 days of war preparations, the CCP will resume its worldwide campaign of releasing viruses and building biological labs to crush the global economy and financial markets; their objective is to invade and divide up Taiwan [among the ruling families within the CCP] and destroy Japan and Australia. Will they succeed in their evil plans? 90% of the duration of the meeting between Jake Sullivan and Yang Jiechi was dedicated to the purchase of US Treasury bonds.
 
-沃尔沃汽车方面并未透露上市的估值，不过外媒给出的预计估值约为200亿美元-250亿美元，约为欧洲豪华汽车制造商戴姆勒及宝马集团市值的三分之一，也远低于中国高端电动汽车制造商蔚来目前565亿美元的市值。
+10/7/2021 文贵直播：中共企图借所谓的备战120天，继续在全世界放毒、建生化实验室，试图全面打击世界经济、摧毁金融市场，攻占、瓜分台湾、弄死日、澳，共产党会得逞吗？杨洁篪、沙利文会面9成在谈购买国债。
 
-沃尔沃汽车也暂未公布公司的股权构成，暂不清楚其控股母公司浙江吉利控股集团在IPO之后会占据多少股权。不过，吉利方面有关人士对记者表示，吉利仍将是沃尔沃汽车的第一大股东。
+[【2021年10月9日】文贵先生盖特原文](https://gettr.com/post/pdkyaic96e)
 
-据悉，在吉利汽车终止科创板上市之后，沃尔沃汽车的IPO，有望缓和吉利控股的杠杆压力。
-
-信息来源：[沃尔沃汽车年内将于瑞典IPO：吉利控股杠杆压力有望缓解](https://finance.sina.com.cn/tech/2021-10-09/doc-iktzqtyu0510975.shtml)
-
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/上善若水
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**喜联盟Gnews编辑部**

@@ -15,161 +15,161 @@
 
 ---
 
-### [前美国空军首席软件官认为美国在AI上输给了中共](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [瓦坎达的苏睿公主依然坚持她的反疫苗立场](/content/gnews/2/README.md)
- ` G-NEWS TAIWAN`
-
-### [纳瓦罗谈台湾：地缘政治上，中共利用病毒大幅加速推进力量](/content/gnews/3/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [人们没有理由感染中共病毒而死亡，因为我们有治疗措施](/content/gnews/4/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国海军工程师夫妇，出售核潜艇机密被捕](/content/gnews/5/README.md)
- ` 墨尔本雅典娜农场`
-
-### [装点门面或是偷渡价值，面对歌功颂德时的不同选择](/content/gnews/6/README.md)
- ` G-NEWS TAIWAN`
-
-### [加州州长强推儿童疫苗却不让女儿打](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [从辛亥革命到六四中国人从没提过立宪、民主和法治](/content/gnews/8/README.md)
+### [习近平双十训话90%听众滥竽充数,京西宾馆服务员都去了](/content/gnews/1/README.md)
  ` NewFOC`
 
-### [肃清孙力军流毒成“重中之重”！公安系统再掀血雨腥风](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [2021年10月9日 文贵先生盖特 5](/content/gnews/2/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [计划募资250亿克朗！吉利力推沃尔沃年内瑞典IPO，以缓解杠杆压力](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [注册资本增至350亿增幅约47%!蚂蚁科技疑似股东洗牌？](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [共产党的钳制和洗脑远超大清却妄谈辛亥革命武昌起义](/content/gnews/12/README.md)
- ` NewFOC`
-
-### [法官：英国政府必须证明儿童中共疫苗是合理的](/content/gnews/13/README.md)
- ` wenwu`
-
-### [平台停摆及极左爆料者攻击大科技公司标志着脸书的末日](/content/gnews/14/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共利用《长津湖》电影对国民进行爱党反美洗脑](/content/gnews/15/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国正处于严重的来自内部的国家安全危机之中](/content/gnews/16/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [Claire Edwards:中共病毒如何加速实现 5G 议程](/content/gnews/17/README.md)
- ` wenwu`
-
-### [美国撤军，中共国黑客入侵阿富汗电信公司](/content/gnews/18/README.md)
- ` wenwu`
-
-### [一网民的父亲在注射第一针中共病毒Moderna疫苗后去世](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [一网民表姐妹注射强生中共病毒疫苗后引发肺部血栓去世](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [郭先生大直播再谈台湾危矣](/content/gnews/21/README.md)
- ` GTV新闻访谈`
-
-### [台湾总统蔡英文：台湾前途必须遵循全体台湾人民的意志](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [台湾总统蔡英文：两岸必须通过平等对话解决分歧](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [西南航空试图掩盖本周末被迫取消近 2000 次航班的背后真相](/content/gnews/24/README.md)
- ` GTV新闻访谈`
-
-### [美国航空限期员工接种新冠疫苗](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [瑞士伯恩防暴警察的行为和共产党在香港镇压一样](/content/gnews/26/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [抵抗强制疫苗，飞行员呼吁为自由而战](/content/gnews/27/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美企与中共新疆当局合作秘密将维族人运往外地强迫劳动](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [245年来，美国面临严重的国家安全危机](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
-
-### [驳斥中共伪中国主权政府对台湾的妄图，以及强权政治阴影下的台湾](/content/gnews/30/README.md)
- ` 墨尔本雅典娜农场`
-
-### [墙内要闻汇编](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [多地全面开打第三针！中共继续推进疫苗杀人计划](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [9月份英国中共病毒死亡病例几乎全都完全接种疫苗](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [国际要闻汇编](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [火灾导致的停电迫使东京地区火车线停摆 二十多万人受影响](/content/gnews/35/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（三）](/content/gnews/36/README.md)
- ` 墨尔本雅典娜农场`
-
-### [科技巨头在澳洲成立“错误信息”评审小组 此举被批“可笑”](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [最低15%！跨国企业(MNEs)税率改革取得突破](/content/gnews/38/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [为阻止强制疫苗 西南航空公司飞行员工会对该公司提起诉讼](/content/gnews/39/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [什么是稳定币？ 与黄金挂钩还是与美元挂钩？](/content/gnews/40/README.md)
- ` 纽约香草山MOS01`
-
-### [洛杉矶县警长拒绝执行强制疫苗接种任务](/content/gnews/41/README.md)
- ` HimalayaRussia`
-
-### [普京拿下克里米亚，中共将军们想同样方式拿下台湾](/content/gnews/42/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [习近平辛亥革命110周年演讲发出强烈信号，坚决完成武统台湾](/content/gnews/43/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [习近平在昨天已经吹响了武统台湾的号角](/content/gnews/44/README.md)
- ` 墨尔本雅典娜农场`
-
-### [10/10/21国内经济财经周报：中共重罚美团34亿；中共希望中美经济“再挂钩”](/content/gnews/45/README.md)
- ` 秘密翻译组金融团队`
-
-### [疫苗灾情｜德国 28 岁女演员接种疫苗后几乎毁容](/content/gnews/46/README.md)
- ` G&#124;News TAIWAN`
-
-### [疫苗灾情｜澳洲 29 岁知名女星接种疫苗后患上心包炎](/content/gnews/47/README.md)
- ` G&#124;News TAIWAN`
-
-### [传播真相是责任](/content/gnews/48/README.md)
- ` 纽约香草山MOS03`
-
-### [凯尔巴斯挑战桥水](/content/gnews/49/README.md)
+### [DC大中华时事：中共国台办评民进党当局领导人讲话](/content/gnews/3/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [12/24/2019 路大脑骗鼓动战友买黄金，竟称2020年11月份黄金会突破4000美元每盎司；事实严重打脸](/content/gnews/50/README.md)
- ` 秘密翻译组-北美组`
+### [2021年10月9日 文贵先生盖特 4](/content/gnews/4/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [盖特CEO：“非死不可”正面临“末日的开始”](/content/gnews/51/README.md)
+### [台积电在日设厂！有望削减中共半导体产业链威胁](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线:佛州的空中交管员罢工导致数百航班被取消 主流媒体却对此噤声](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [平安寿险“新银保模式”业务创新，还是概念包装？](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [台湾一有事，大陆就洪水](/content/gnews/8/README.md)
+ ` 骄子`
+
+### [2021年10月9日 文贵先生盖特 3](/content/gnews/9/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月9日 文贵先生盖特 2](/content/gnews/10/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [维州IBAC听证会：首位证人证实工党腐败“完全失去控制”](/content/gnews/11/README.md)
+ ` 走进澳洲`
+
+### [2021年10月9日 文贵先生盖特 1](/content/gnews/12/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月8日 文贵先生盖特 9](/content/gnews/13/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [泽连科医生：疫苗不是用来对抗病毒，释放病毒是为引入疫苗（粤语配音）](/content/gnews/14/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [疫苗可能造成多种致命疾病，引发潜在的种族灭绝事件（粤语配音）](/content/gnews/15/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [10/05郭文贵直播：中共国假骗金融票据惊人必将引爆全球破产崩溃（粤语配音）](/content/gnews/16/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [视觉展示mRNA疫苗对身体细胞做了什么以及如何引起血栓（粤语配音）](/content/gnews/17/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [从宋庆龄傅作义到今天的卖台贼都会被共产党羞辱和打压](/content/gnews/18/README.md)
+ ` NewFOC`
+
+### [前美国空军首席软件官认为美国在AI上输给了中共](/content/gnews/19/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [瓦坎达的苏睿公主依然坚持她的反疫苗立场](/content/gnews/20/README.md)
+ ` G-NEWS TAIWAN`
+
+### [纳瓦罗谈台湾：地缘政治上，中共利用病毒大幅加速推进力量](/content/gnews/21/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [人们没有理由感染中共病毒而死亡，因为我们有治疗措施](/content/gnews/22/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国海军工程师夫妇，出售核潜艇机密被捕](/content/gnews/23/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [装点门面或是偷渡价值，面对歌功颂德时的不同选择](/content/gnews/24/README.md)
+ ` G-NEWS TAIWAN`
+
+### [加州州长强推儿童疫苗却不让女儿打](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [不要忘却这些孩子](/content/gnews/52/README.md)
- ` 银河勇气之星`
+### [高盛三个月第3次调低美国今年经济增长预期](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [从辛亥革命到六四中国人从没提过立宪、民主和法治](/content/gnews/27/README.md)
+ ` NewFOC`
+
+### [肃清孙力军流毒成“重中之重”！公安系统再掀血雨腥风](/content/gnews/28/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [计划募资250亿克朗！吉利力推沃尔沃年内瑞典IPO，以缓解杠杆压力](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/30/README.md)
+ ` wenwu`
+
+### [注册资本增至350亿增幅约47%!蚂蚁科技疑似股东洗牌？](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [法官：英国政府必须证明儿童中共疫苗是合理的](/content/gnews/32/README.md)
+ ` wenwu`
+
+### [平台停摆及极左爆料者攻击大科技公司标志着脸书的末日](/content/gnews/33/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共利用《长津湖》电影对国民进行爱党反美洗脑](/content/gnews/34/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [Claire Edwards:中共病毒如何加速实现 5G 议程](/content/gnews/35/README.md)
+ ` wenwu`
+
+### [美国撤军，中共国黑客入侵阿富汗电信公司](/content/gnews/36/README.md)
+ ` wenwu`
+
+### [郭先生大直播再谈台湾危矣](/content/gnews/37/README.md)
+ ` GTV新闻访谈`
+
+### [西南航空试图掩盖本周末被迫取消近 2000 次航班的背后真相](/content/gnews/38/README.md)
+ ` GTV新闻访谈`
+
+### [美国航空限期员工接种新冠疫苗](/content/gnews/39/README.md)
+ ` GTV新闻访谈`
+
+### [美企与中共新疆当局合作秘密将维族人运往外地强迫劳动](/content/gnews/40/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [驳斥中共伪中国主权政府对台湾的妄图，以及强权政治阴影下的台湾](/content/gnews/41/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [9月份英国中共病毒死亡病例几乎全都完全接种疫苗](/content/gnews/42/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [普京拿下克里米亚，中共将军们想同样方式拿下台湾](/content/gnews/43/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [习近平辛亥革命110周年演讲发出强烈信号，坚决完成武统台湾](/content/gnews/44/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [习近平在昨天已经吹响了武统台湾的号角](/content/gnews/45/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [10/10/21国内经济财经周报：中共重罚美团34亿；中共希望中美经济“再挂钩”](/content/gnews/46/README.md)
+ ` 秘密翻译组金融团队`
+
+### [疫苗灾情｜德国 28 岁女演员接种疫苗后几乎毁容](/content/gnews/47/README.md)
+ ` G&#124;News TAIWAN`
+
+### [疫苗灾情｜澳洲 29 岁知名女星接种疫苗后患上心包炎](/content/gnews/48/README.md)
+ ` G&#124;News TAIWAN`
+
+### [传播真相是责任](/content/gnews/49/README.md)
+ ` 纽约香草山MOS03`
+
+### [凯尔巴斯挑战桥水](/content/gnews/50/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [12/24/2019 路大脑骗鼓动战友买黄金，竟称2020年11月份黄金会突破4000美元每盎司；事实严重打脸](/content/gnews/51/README.md)
+ ` 秘密翻译组-北美组`
+
+### [盖特CEO：“非死不可”正面临“末日的开始”](/content/gnews/52/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [10/9/2021国际财经快讯：美中会谈评估贸易协议执行情况；台积电和索尼考虑联合建立芯片工厂](/content/gnews/53/README.md)
  ` 秘密翻译组金融团队`
