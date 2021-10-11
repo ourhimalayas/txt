@@ -2,58 +2,29 @@
 ---
 
 
-## 英格兰 30,305 人在接种疫苗后的 21 天死亡
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1586059/)
+## 中共国再这么停电6个月美国股市将一塌糊涂
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1586109/)
 
-作者：sherryok (水云间)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-1-2.jpg)
-英国曝光网站报道，国家统计部门官方数据不经意揭露，在 2021 年的前 6 个月内，英格兰有 30,305 人在接受中共病毒疫苗后的 21天内死亡。
+**【郭先生直播摘要】****2021.10.3 ****中共国再这么停电****6****个月美国股市将一塌糊涂**
 
-几个月以来，数十个开放[信息的请求](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.whatdotheyknow.com/request/deaths_for_any_reason_within_28_34)发送到英国公共卫生部门（PHE Public Health England），要求知道有多少人在接种Covid-19疫苗后28天内死亡，但每次PHE都回复他们并未“拥有所要求的信息”。
+**郭先生：**
 
-在他们的苏格兰同行发布了 Covid-19疫苗接种28天内的死亡数据后，英格兰卫生部门手头没有这些信息显得非常奇怪。
+共产党所有干的事情，都是杀敌一千自伤一万。我也得干，我断你九指，我断我断我九指我断你一指我也得干。我都变成九指妖了我也认了，啊它现在所有的思路，打台湾所有的就是说把台湾西半岛富裕的东西全国有化，东半岛全变成军事基地，然后艾米拉全变成我们解放军的叫随军军属，也就是性奴，啊，长那么漂亮是不是，鼻子那么大，心脏那肯定好，生了孩子都生儿子这种女人是吧。马上，这个取卵子多生几个，那绝对就把台湾，毫不避讳的，台湾回来直接到大西洋去了是不，直接都到太平洋大西洋连接在一起了，那日本的就是我的屁股底下的一个砖了，我想怎么坐怎么坐，啊，这个一点都不夸张，而且经济这块国内现在停电停水停啥，所有的现在想了，美国，啊中美之间 过去5000亿的逆差，5000亿的逆差。到最后变成了几百亿的逆差带几千亿美元的贸易。它绝对能把美国股票给打垮了。
 
-苏格兰[公共卫生](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://beta.publichealthscotland.scot/media/8183/21-06-23-covid19-publication_report.pdf)部门（PHS）最后[的更新的数](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://beta.publichealthscotland.scot/media/8183/21-06-23-covid19-publication_report.pdf)据是 2021 年 6 月 23 日在其[“Covid-19 统计报告”](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://beta.publichealthscotland.scot/media/8183/21-06-23-covid19-publication_report.pdf)中，他们发现苏格兰 2020 年 12 月 8 日和2021 年 6 月 11 日之间，有5522人在接受 Covid -19疫苗后的28内死亡。
+这个不是假的，真能打垮，今天中共国就这么停电再停6个月，美国的股票市场经济一塌糊涂，
 
-(在[此处](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://publichealthscotland.scot/publications/covid-19-statistical-report/covid-19-statistical-report-23-june-2021/)发布的[电子表格中](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://publichealthscotland.scot/publications/covid-19-statistical-report/covid-19-statistical-report-23-june-2021/)显示各疫苗品牌的数量和发生日期。1,877 人在接受辉瑞 mRNA 注射后 28 天内死亡，3,643 人在接受阿斯利康病毒载体注射后 28内死亡，2 人在接受 莫德纳mRNA 疫苗注射后 28 天内死亡)。
+所有这些美国现在已经有32家向中共国申请，因为你停电给我造成损失了，你们都不知道这事啊七哥今天这是一个料，三十几家已经去申请去了你你给我签了合同你要赔我钱，中国政府说赔你个屁。爱怎么告，爱哪去哪完去，就像中国的信访到中央告状一样，先把你抓了再说，滚一边，是不是啊，喂你点老鼠药，现在已经去了，日本已经告了，日本7，8家，去找政府去了，
 
-之所以统计 Covid-19疫苗28天内的死亡人数，原因是这一直是大流行期间用于计算 Covid-19 死亡人数的测量参数。
+结果中国政府非常热情的接待，然后呢哄着嗷嗷就就回去了，啊对不对，这些你去看啊，各省之间的停电所以你看到台湾这个媒体有多low啊，它什么什么都政治内斗，他胡扯八蛋的事。习近平放个屁，要抓你那个什么省长省委书记都被抓了，放个屁都把你抓了，就给你弄了，所有这些人所谓的现在中共已经从。
 
-如果死亡发生在中共病毒阳性结果后的 28 天，则将其计入中共病毒死亡人数；但是，刚开始的时候，他们曾将发生在病毒测试阳性后 60 天内的死亡都计为 中共病毒死亡人数。
+今年的5月份列为中共国的百年大计的备战状态。啥叫备战，干倒美国美元，干倒欧元经济
 
-要感谢利用“技术问题”的借口，英格兰卫生部门得以逃避回答接种疫苗后死亡人数的问题。该技术性的障碍只是提问的“天数”不同而已，因为我们发现他们确实保存了注射疫苗后死亡人数的数据。
+所有共产党记住我今天再重申一遍啊，病毒是共产党制造的生化病毒，疫苗是共产党制造的，
 
-但是这不是在 28内的死亡人数，而是接受疫苗注射后21 天内的死亡人数，而这些数字被国家统计机构不经意公布出来。
+疫苗灾难是再次的生化战争，是生化战争的生化，而且所有有计划的培养出疫苗高传播率，
 
-英国[国家统计局](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.ons.gov.uk/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/articles/deathsinvolvingcovid19byvaccinationstatusengland/deathsoccurringbetween2januaryand2july2021)(ONS Office for National Statistics)于2021年9月13日[发布的](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.ons.gov.uk/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/articles/deathsinvolvingcovid19byvaccinationstatusengland/deathsoccurringbetween2januaryand2july2021)一份[报告](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.ons.gov.uk/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/articles/deathsinvolvingcovid19byvaccinationstatusengland/deathsoccurringbetween2januaryand2july2021),明显试图欺骗公众，让他们相信大多数Covid-19死亡发生在未接种疫苗的人群中。但他们报告中使用的日期是2021年1月第二波疫情爆发期间，当时发生了大量死亡事件，那时几乎没有人接种疫苗。
+高致死率，最后是通过疫苗经济，疫苗政治，疫苗军事，疫苗控制世界，就是共产党干的，跟共产党合谋的就是美国的华尔街和美国的几个被收买的，像CDC的一些官员，像欧洲的一些官员，包括世界上的黑暗组织，非法组织跟共产党一起干的，啊王岐山就是个非法组织的核心代表，这也是最近不能弄死他的根本原因，共产党还需要他。
 
-截止点也是 2021 年 7 月 2 日，预示着我们目前经历的夏季第三波病毒爆发发生的死亡数字不包括在内。
+任何国家任何好人坏人组织，不光需要好人还需要坏人，真的，这就是个游戏规则，你接不接受它就是这样，它就发生了现在，那么现在告诉大家的事情共产党的停电。包括共产党的现在整个恒大的事件的控制有序控制但是记住啊，明确的外债一概不管，不但不管，对碧桂园，对平安集团。所有海外的外债一概不容管，大家看住啊，共产党内部的所有的政策，内部要摸底问话，控制，地方部门分区解决，国际上债务一概不管，大家看出想干啥了吗。我宁可断我九指我伤你一指，我宁可我杀我10000我杀你一千，习绝对在这方面有这个狠劲。
 
-来自[政府](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://coronavirus.data.gov.uk/details/deaths)图表显示，使用的死亡数据中，是第二波疫情期间，当时刚刚开始接种疫苗，所以高数值当然来自未接种疫苗的人群。
-
-但是，如果 ONS 决定调查我们经历的第三波疫情数据，那么您会看到 75% 的中共病毒死亡者实际上已经打了疫苗，只有 25% 的死者没有打疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-2-1.jpg)
-英国公共卫生“警报监测报告”的表 5，在 2021 年 8 月 9 日至 9 月 5 日期间，未接种疫苗的有 600 人死亡，部分接种疫苗的大约有 97 人死亡，完全接种疫苗的有 1,659 人死亡。
-
-因此，正如您所看到的，在第三波中共病毒疫情中，绝大多数死亡发生在接种疫苗的人群，但ONS当然不想让您知道这一点，因此他们将其排除在外。但我们敢打赌，他们肯定也不愿意公布手头所有的，注射疫苗后 21天内死亡的人数。
-
-ONS报告的表1试图展示Covid-19疫苗在预防死亡方面的效果。但不要忘记，他们只涵盖了一年中的前6个月，当时大多数人口没有接种疫苗，死亡就发生了。
-
-但是为了让大众相信 Covid-19 疫苗可以预防死亡，英国国家统计局公布，在 2021 年 1 月 2 日至  7 月 2 日期间，英格兰有 30，305 人在接受Covid-19 疫苗后的 21 天内死亡。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-3-1.jpg)
-如上所示，在接种第一剂疫苗后 21天内有 14,265 人死亡，有 4,388 人在接种第一剂疫苗后 21 天内，感染中共病毒死亡。
-
-另有11，470人在接受第二剂疫苗后21天内死亡，182人在第二剂疫苗后21天内感染中共病毒死亡。
-
-因此，2021 年前 6 个月，英格兰共有 30，305 人在接受疫苗后的 21天内死亡。
-
-值得注意的是，在接受疫苗超过21 天后的时间里，又有 123，79 人死亡，我们还想知道还有多少人是在 28 天，或者 60 天后死亡。因为他们仍然用这些参数来计算中共病毒的死亡人数。
-
-但是现在，我们将不得不满足于只有 2021 年前 6 个月内的这个数据，接受疫苗后，英格兰死亡的官方数字是30,305，而且我们怀疑这只是政府同意让我们看到的数据。
-
-[新闻链接](https://theexpose.uk/2021/09/15/30k-people-died-within-21-days-of-having-a-covid-19-vaccine-in-england/)
-
-【文章仅限作者个人观点 不代表GNEWS平台】
-
-审核校对：Barry Jack
-上传排版：F
+视频剪辑：北方信使 |听写：雨山溪桥客|翻译：Arthur |校对：三分|字幕+视频制作：小腾腾说

@@ -2,20 +2,20 @@
 ---
 
 
-## 雅典娜时报-第078期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1586210/)
+## 871 名消防员欲对洛杉矶疫苗强制令发起诉讼
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1586399/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+#### 撰稿：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-27.jpg)图片来源：Epochtime
+零对冲网10月10日报道，由于洛杉矶政府强制要求政府工作人员打疫苗，约1/4的洛杉矶消防局消防员想要起诉该市政府。10月7日，871名消防员联合发表声明，欲通过法律诉讼寻求每位250万的损害赔偿。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/10/12-4.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/13-1.png)
-（文章内容仅代表作者个人观点，与GNEWS无关）
+洛杉矶市委员会于8月份发出一项条例，要求所有市政府雇员都要打二剂中共病毒疫苗，或到10月5日至少要打过一剂疫苗，除非有医学或宗教原因可以例外，即使例外，也要常规测试中共病毒。
 
-***发布：小红帽***
+为消防员们打官司的原告律师凯文·麦克布来德说：“这个申诉将依据加州民事诉讼中的无限公民案例发至上诉法庭”。麦克布来德律师说这个诉讼意向是源于洛杉机消防局要求每位消防员除非例外，均必须在10月20日达到完全接种，不然将会被赶回家5天没有收入，如果他们5天后还不愿打疫苗，就将被解雇。律师写道该疫苗强制令是“公然地错误执行”，理由是干涉了雇用权利，引起情绪上的疾患，违背了《宪法》规定的私人权力，违反了医学试验法中的人权保护。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原告们是洛杉机联合消防员工会的成员，该工会于10月4日的公告中已申明其立场，“市政府不能强制任何有关10月5日打疫苗到期日的后果，市政府的条例不能有任何后果，任何条例必须先与工会协商。”
+
+但洛杉矶市政府律师麦克·弗优尔说：“美国高院和全国法院都支持疫苗强制令，我很自信我们会赢。”
+
+新闻来源： [871 Firefighters File Intent To Sue Over LA’s COVID-19 Vaccine Mandate](https://www.zerohedge.com/political/871-firefighters-file-intent-sue-over-las-covid-19-vaccine-mandate)
