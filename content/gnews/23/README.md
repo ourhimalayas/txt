@@ -2,68 +2,24 @@
 ---
 
 
-## 2名儿童意外接种了 Covid 疫苗而不是流感疫苗，现在都患有心脏问题
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1587568/)
+## 有声|台湾总统府发言人称中华民国是主权国家!
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1587595/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2489-1.png)
-[https://gtv.org/video/id=61643409d2e2b81748741007](https://gtv.org/video/id=61643409d2e2b81748741007)
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+中央社消息, 对于10月9日中共习近平所称:”台湾问题是中国内政”, 台湾总统府发言人张惇涵回应称，“中华民国是主权独立的国家，不是中华人民共和国的一部分；中华民国的未来，掌握在台湾人民的手中!”
 
-An Evansville family with children, four and five years old, 
-一个有四和五岁孩子的埃文斯维尔家庭
- 
-Say they are accidentally given full adult doses of the Pfizer Coronavirus vaccine, instead of flu shots. 
-说他们意外接种了成人剂量的辉瑞冠状病毒疫苗，而不是流感疫苗。
- 
-They say it happened on October 4 at the Walgreens of St Joseph Avenue, 
-他们说这件事发生在 10 月 4 日在圣约瑟夫大道的沃尔格林（药房）
- 
-the family of four includes two adults and two young children, 
-四口之家包括两个大人和两个小孩
- 
-both too young for the Pfizer or any other COVID vaccine. 
-对于辉瑞或任何其他 COVID 疫苗来说他们都太年轻了
- 
-While the family’s attorney Daniel Tuley shared with us what he says, 
-那个家庭的律师丹尼尔·图利与我们分享了他所说的话
- 
-our vaccination cards given to the family by Walgreens, 
-我们的疫苗接种卡是由 沃尔格林发给那个家庭的
- 
-they show children born in 2016 and 2017 
-他们展示了孩子是在 2016 年和 2017 年出生的
- 
-were given a Pfizer Coronavirus vaccine. 
-被注射了辉瑞冠状病毒疫苗
- 
-The family says they left the pharmacy thinking they had gotten their flu shots, 
-这家人说当他们离开了药房时， 他们以为打了流感疫苗
- 
-but a Walgreens employee later called them and said they had made a mistake. 
-但后来沃尔格林的一名员工打电话给他们而说他们搞错了
- 
-Tuley says the children had been taken to a pediatric cardiologist, 
-图利说孩子们被带到儿科心脏病专家处
- 
-and the family was told both are showing signs of heart issues. 
-而且家人被告知两孩子都有心脏问题的迹象
- 
-We reached out to Walgreens several times but have not yet heard back
-我们多次联系沃尔格林，但还没有得到回复
- 
- —————————————————————————
- Date:10/10/2021
-原视频标题: 2 children were accidentally given the Covid vaccine instead of flu shots and are now both suffering from heart issues
-2 名儿童意外接种了 Covid 疫苗而不是流感疫苗，现在都患有心脏问题
-原视频日期：2021/10/09
-原视频链接: [https://twitter.com/jsdfposjpqyuee1/status/1447014409243488261?s=21](https://twitter.com/jsdfposjpqyuee1/status/1447014409243488261?s=21)
-任务编号：KE338（2489）
-视频时间段 : 0:00-0:53
-英听校：洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – 郭友(文苏)
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+10月10日，蔡英文总统蔡英文也在双十国庆演说中提出”四个坚持”, 即 坚持自由民主宪政体制；坚持中华民国与中华人民共和国互不隶属；坚持主权不容侵犯并吞；坚持中华民国台湾的前途，必须遵循全体台湾人民的意志。蔡英文称这四个坚持，是台湾人民的底线。而香港的现况证明中共背弃了自己的承诺，印证所谓的‘一国两制’根本不可行。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+文字版原文：[台湾总统府发言人称中华民国是主权国家!](https://gnews.org/zh-hans/1585571/)
+
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

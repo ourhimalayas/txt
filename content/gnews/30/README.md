@@ -2,31 +2,35 @@
 ---
 
 
-## 意料之中！岸田文雄表示“暂时不碰”金融所得税
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1587499/)
+## 限期临近，超十万军人仍拒绝接种毒针疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1587521/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+作者：雪梨
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+根据五角大楼关于新冠疫苗接种的规定，除极少数军人将被批准豁免以外，有2百多万军人被强制要求接种，否则，将受到惩罚。随着最后期限的临近，仍有数十万军人不放弃自己的权力，拒绝接种。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-35.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-18.jpeg)
 
-[图片来源](https://gbcode.rthk.hk/TuniS/news.rthk.hk/rthk/ch/component/k2/1613929-20211007.htm)
+美国各军种有不同的疫苗接种截止日期。海军和海军陆战队的截止日期都是11月28日，空军是11月2日，陆军是12月15日。已经接种至少一剂的现役军人比例超过92%，令人十分担忧，约有10.3万名军人选择不接种。
 
-日本首相岸田文雄在10月10日富士电视台的节目中表示，暂时不对股票分红和交易产生的金融所得加强征税。他解释说：“暂不考虑碰触这个问题。社会上广泛存在一个误解，认为正因为受关注我可能会立即去做”。
+其中海军完全接种比例最高，达90%，海军陆战队的这一比例是72%，陆军警卫队和后备队约占美军的四分之一，而不到40%的陆军完成了疫苗接种。新冠毒针已完成了对美军人员大范围的侵入。
 
-岸田在10月4日就职时的记者会上曾透露考虑把金融所得税作为“选项之一”。有意见担心这一政策不利于日本国民把储蓄用于投资，会造成股价下降。岸田此次的表态被认为是顾及了市场的反应。
+此前，美军士兵和军官已就疫苗强制令，起诉国防部，称该指令违法。而在疫苗造成至少15万美国人死亡，和无数不良反应的事实面前，美国国防部仍持续推行疫苗强制令，这不仅置军人的健康于巨大的风险之中，并将严重威胁美国国家安全。
 
-日本内阁官房长官松野博一在10月11日的记者会上表示，“按照首相的想法，首先将着手强化提高工资的税制和转包对策等”。当被问及是否在修改2022年度税制时讨论对金融所得加强征税，松野表示“现在正在讨论（提高工资等）之后的推进方案”。
+(本文仅代表作者观点)
 
-作为追求“增长与分配良性循环”的经济政策的一环，岸田在自民党总裁选举的施政演说中加入了调整金融所得征税。按照岸田的意向，提出了把现在20％的税率一律提高的方案和加重高收入者负担的渐进式征税方案。
+参考链接: [Hundreds of thousands of U.S. troops have not yet complied with vaccine mandate as deadlines near](https://www.ctpost.com/news/article/Hundreds-of-thousands-of-U-S-troops-have-not-yet-16522715.php)
+[Hundreds of Thousands of US Troops Still Not Fully Vaccinated Against Covid as Deadlines Loom](https://www.thegatewaypundit.com/2021/10/hundreds-thousands-us-troops-still-not-fully-vaccinated-covid-deadlines-loom/)
 
-由于股票的金融所得税，涉及面广，且动及切实的经济利益，作为上任伊始的岸田首相，稳住阵脚是其内阁的第一要务，因此，此番表态也在情理之中。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-信息来源：
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
 
-[岸田文雄表示“暂时不碰”金融所得征税日经中文网](https://cn.nikkei.com/politicsaeconomy/politicsasociety/46303-2021-10-11-15-24-32.html)
-
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
