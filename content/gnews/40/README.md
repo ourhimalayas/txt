@@ -2,41 +2,43 @@
 ---
 
 
-## 蔡英文发表讲话- 我们坚决反对统一
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1585745/)
+## 中共全面禁止非公有资本开展新闻传媒业务
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1585874/)
 
-新闻来源：德国法兰克福报网络版
+作者：纽约香草山农场 – 四季
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/tsai-ing-wen-praesidentin-von.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-资料来源：FAZ
-
-在最近的中共军方的飞行演习之后，台湾担心空中发生意外事件的风险。蔡英文总统在国庆节明确表示：我们不会屈服于来自中共国的的压力。
-
-台湾总统蔡英文利用国庆节讲话向北京发出明确信息。 “我们决心反对吞并，”她周日在台北总统府前说。 “我们将继续扩大我们的国防，以便没有人能够强迫我们走中共国为我们准备的道路。”
-
-中共国国家元首和党的领导人习近平周六在人民大会堂概述了这条道路的样子。 “和平统一国家符合整个中华民族的利益，包括我们台湾同胞的利益。”他没有点名蔡英文，而是给总统准备了一个信息：“忘本，背叛祖国，如果你想分裂国家，不会有好下场，”习近平在热烈的掌声中说。他们将“被人民鄙视，被历史谴责”。
-
-蔡英文和习近平在同一个周末发表讲话并非偶然。这个场合是一段共同的历史。辛亥革命始于110年前的武汉，推翻了中华帝国，建立了中华民国。革命的精神之父孙中山在中国和台湾受到崇敬。然而，不到四年后，中华民国政府在反共内战中败北，逃往台湾，台湾仍被正式称为中华民国。
-
-许多年轻的台湾人不再认同这个故事，这也是蔡英文几乎没有涉足的原因。相反，她回顾了该岛最近的历史：从军事独裁到鲜活民主的转变，以及从贫穷的腹地崛起成为世界上第 21 大经济体。蔡并没有忘记提到全球最有价值的芯片制造商台积电，台湾将其视为安全的人寿保险单，不仅仅是因为最近的芯片短缺。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/infografik-karte-taiwan.jpg)
 
 
-图片来源： FAZ
 
-与中共国的军事紧张局势日益加剧，给国庆假期蒙上了阴影。几天前，大约150架中国军机分几波飞入台湾空中监视区（见图），但没有离开国际领空。专家表示，中共国的目标之一是转移台湾的注意力，并引发习惯效应。台湾有人担心，在某个时候，中共国可能会将突然袭击伪装成例行任务。
+据[美国之音](https://www.voachinese.com/a/China-proposes-bannig-non-public-fund-in-news-industry-20211010/6264770.html)10月10日报道，中国国家发展改革委员会10月8日在官网上发布《市场准入负面清单（2021年版）》，征求所谓的社会公众意见。该清单今年增加了涉及6个方面的“禁止”内容，其中包括禁止非公有资本开展新闻传媒相关业务。这意味着，当局将停止所有非公有资本投资或进入与新闻相关的产业。
 
-周日晚上，空中监视区又增加了三个航班。像往常一样，台湾空军升空了自己的战斗机作为回应。与此同时，台湾正在考虑将空中监视区划分为监视预警区，并在不同阶段做出相应反应。这也是降低意外事件的风险的考虑。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1180-1.jpg) 图片来源：路透社
 
-[https://www.faz.net/aktuell/politik/ausland/taiwan-straeubt-sich-gegen-eine-vereinigung-mit-china-17578793.html](https://www.faz.net/aktuell/politik/ausland/taiwan-straeubt-sich-gegen-eine-vereinigung-mit-china-17578793.html)
+中国政府一直在加紧对公众话语权的控制，指责娱乐界“污染”社会而加以整肃，要求规范互联网和手机浏览器资讯信息传播，停止传播“谣言”、取消使用耸人听闻的标题，禁止发布任何违反“社会主义核心价值”的内容等。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+北京拟议推出的不准非公有资本进入新闻业的新规定，显示中共当局在加紧全面控制中国社会，加大对言论控制的力度，这是中共国社会的又一次倒退。
 
-校对：旦旦
+（本文仅代表作者观点）
 
-责任编辑/发布： Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
