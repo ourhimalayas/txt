@@ -2,43 +2,19 @@
 ---
 
 
-## 美国海军工程师夫妇，出售核潜艇机密被捕
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1586754/)
+## 秘翻在线:佛州的空中交管员罢工导致数百航班被取消 主流媒体却对此噤声
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1586905/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/indian_navys_tropex-2014_6_1.jpg)
-图片来源：nationalinterest.org
+#### 翻译/撰稿：zzballack
 
-整理报道：小红帽
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-2-5.jpg)图片来源：Business Insider
+据《网关专家》（Gateway Pundit）10月10日报道，佛罗里达州杰克逊维尔市（Jacksonville）的空中交通管制员10月9日举行了罢工，以抗议疫苗强制令。所有进出佛罗里达州的航班都因此而被取消，但主流媒体却对此事不闻不报。
 
-一名美国海军工程师和他的妻子因试图将核潜艇的设计出售给外国势力而被捕，被捕时，该夫妇把其记忆卡(SD card)藏在花生酱三明治中。
+甚至连激进人士汤姆·索尔(Tom Sauer)也在推特上报道了此事。他说：“佛州空中交管员罢工事件的消息是不是被媒体封锁了？数百个航班被取消。”据可靠消息源透露，“有650架班次被取消，飞行员还未准备好起飞。罢工潮就开始了。”
 
-美国司法部指控乔纳森（Jonathan）和戴安娜·托比（Diana Toebbe）将有关美国核动力战舰设计的信息出售给他们认为是外国势力代表的人。
+同样在上周末，西南航空公司也取消了1000多架次航班，据透露是因为员工大罢工反对疫苗强制令所致。
 
-该部门的一份声明称，此人实际上是一名联邦调查局特工卧底。
+黑暗势力害怕罢工事件激起人们的反抗浪潮，其控制的主流媒体竭力对此屏蔽，就像当年欧洲各国的专制统治者害怕其百姓知道法国大革命后也奋力反抗一样。全世界的各国百姓正在觉醒，知道在生死存亡面前不反抗就只能被奴役至死，只是时间早晚的问题。
 
-海军核工程师托比先生持有有效的国家安全许可，允许他访问受限制的数据。在2020 年加入海军预备役之前，他曾是美国海军的一名中尉。
-
-投诉宣誓书称，2020年4月，托比先生向外国政府寄了一个包裹，其中包含数据样本和建立秘密关系以购买更多数据的说明。
-
-宣誓书还称，此后，托比先生开始通过加密的电子邮件与一个他认为是外国政府代表的人通信。“该人实际上是一名联邦调查局特工卧底，”美国司法部的声明说。
-
-官员称，2021年6月，该代理人以加密货币形式转了1万美元（13,700澳元）作为“诚意金”付款。不久之后，托比夫妇前往一个地方交换信息。
-
-“在那里，在戴安娜·托比的监视下，乔纳森·托比将一张记忆卡藏在半个花生酱三明治里，放在事先安排好的’死角’位置。”美国司法部说。
-
-据称，对该卡的审查显示它包含与潜艇核反应堆有关的信息。据称，在 8 月，托比先生又制造了一张记忆卡，那次是将卡藏在口香糖包装中。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Nuclear submarine secrets ‘hidden in peanut butter sandwich’ (thenewdaily.com.au)](https://thenewdaily.com.au/news/world/2021/10/11/nuclear-sub-secrets-hidden-sandwich/)
-
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Media Blackout: It’s Not Just Southwest Airlines – Air Traffic Controllers in Jacksonville Reportedly Walked Out Friday Night Protesting Mandatory COVID Vaccinations Too](https://www.thegatewaypundit.com/2021/10/media-blackout-not-just-southwest-airlines-air-traffic-controllers-jacksonville-walked-friday-night-protesting-mandatory-covid-vaccinations/)

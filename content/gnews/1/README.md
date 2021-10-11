@@ -2,32 +2,19 @@
 ---
 
 
-## 中共国洪灾：山西省近200万人流离失所
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1587096/)
+## 2009年 Jane Burgermeister &#8220;疫苗接种恐怖主义 &#8220;的演讲 （三）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1587153/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/121017661_gettyimages-1235777767-1.jpg)GETTY IMAGES
+- 制作：葛大饼
 
-据当地媒体报道，中共国北部山西省有超过176万人受到严重洪水的影响。上周的暴雨导致该省70多个区县和城市的房屋倒塌并引发山体滑坡。官员说，暴雨正在阻碍救援工作。
 
-中共国气象局还对当地媒体表示，持续的强降雨和暴风雨阻碍了救援工作。当局告诉《新华社》，山西全省有超过12万人被紧急转移安置，1.7万所房屋倒塌。他还补充说，山西的洪水可能比今年早些时候河南的洪水还要严重。
+简-布尔格梅斯特Jane Burgermeister是一名奥地利-爱尔兰籍的前记者。她于2009年10月31日在圣加仑出席了反审查联盟（AZK）的一次宣传会议，发表了题为 “疫苗接种恐怖主义 “的演讲。
+该演讲中Jane描述了一场由小团体策划的，通过操控的主流媒体和收买的官员，通过病毒和疫苗来攻击全球数十亿平民，一场生化武器战争悄然进行中，这场生化战争的目的是实现全球单一政府—-集权大政府的新世界秩序建立。她在演讲中呼吁大家要独立思考，去核实新闻的真实性，每个人都要参与到政治决策中，这关乎每个人的生死。
 
-山西省会太原上周的平均降雨量约为185.6毫米，而1981年至2010年间10月的平均降雨量为25毫米。山西是一个主要的煤炭生产省，中国共政府因下雨而被迫停止矿山和化工厂的运营。
-
-当地政府表示，它已对暂停全省60座煤矿、372座非煤矿山和14座家危险化工厂停的生产。其他27个煤矿已于10月4日停止运营。
-
-山西也是许多古迹的所在地，这些古迹面临强降雨的重大风险。
-
-新闻链接：[China floods: Nearly 2 million displaced in Shanxi province](https://www.bbc.com/news/world-asia-china-58866854)
+**请观看上一个视频：**[2009年 Jane Burgermeister “疫苗接种恐怖主义 “的演讲 （二）](https://gnews.org/zh-hans/1587105/)
 
 * * *
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+*发稿：信心的选择*
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)

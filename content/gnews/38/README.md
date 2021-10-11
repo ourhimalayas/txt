@@ -2,55 +2,67 @@
 ---
 
 
-## 郭先生大直播再谈台湾危矣
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1586607/)
+## 西喜时事新闻简报 — 中共病毒时事篇
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1586705/)
 
-作者：AsG諾雅
-
-
+- **编译：西班牙喜悦农场–wenwu**
 
 
+您若想了解全文报导内容，请点击标题链接
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+（爱惜生命 远离疫苗）
 
+1.[**Covid-19 种族灭绝的证据**](https://theexpose.uk/2021/10/10/uk-gov-made-it-impossible-for-retired-doctors-to-return-during-the-pandemic/)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip295.png)
 
+据《吹哨人》2021年10月10日电，英国政府和 NHS 只想招募一些外国医生（其中许多不会说英语，并且那些外国医生将获得巨额报酬）；退休的有经验的本地医生将继续退休和不被需要（大约1.5万名），这只是掩盖中共病毒（covid-19)是种族灭绝计划的另一个证据。
 
+首先，行医就像骑自行车。用不了多久就回到了最佳状态。大多数被问到的医生都会很高兴地服从——帮助将 NHS 从自己制造的混乱中，拯救出来。
+其次，也许英国政府意识到年长、更有经验的医生，不受 NHS 合同的约束，无需支付抵押贷款，也无需担心未来的职业生涯，可能更有概率质疑整个中共病毒骗局。值得注意的是，反对疫苗欺诈的少数医生中，大多数都是年长且更有经验的医生。
 
+如果社会上出现有数千名经验丰富的医生，政府和 NHS 就很难在养老院、疗养院和医院谋杀数千名老人了。
 
+**2. [最后期限临近，数十万美军仍未接种疫苗](https://www.axios.com/military-coronavirus-vaccine-mandate-98a5bb7f-5b01-419a-bc05-14d232dc3b50.html)**
 
-10月10日，郭先生在大直播中再次对世界发出预警：台湾危矣。由于美国政客们的政治短视、冷血，华尔街资本的贪婪和黑暗势力的控制，美国现政府再次出卖台湾，已经和中共达成了出卖台湾的交易。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip297.png)
 
-郭先生揭示，习近平在周六进行辛亥革命纪念日讲话时，宣称要继承辛亥革命的遗志，以孙中山继承人自居，继续欺骗民众。他说“台湾一切的问题在于台独，台独一定要遭受大审判”，就是要以台独为借口，通过国民党等卖台贼从内部运作，进而拿下台湾。由于习近平身体状况不佳，加速攻台也是他要在有生之年夺回台湾，企图实现其所谓的“统一大业”野心的原因之一。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-32.jpg)
-剧本的一部分，中共及美国现政府以各自的军人作为筹码，上演了中美之间的潜水艇较量的勾兑闹剧。全美应对俄国的三艘海狼级核潜艇之一，最近撞上了中共的潜艇，导致中共损失几十人，毁坏了美国一艘海狼级潜水艇，逼退了西方各国的联合军事演习，配合中美的外交勾兑。
+据《AXIOS》2021年10月10日电，[在](https://www.washingtonpost.com/national-security/2021/10/10/military-vaccine-mandate/)美军各个服务部门设定的即将到来的截止日期之前，数十万美军服务人员仍未接种疫苗；所有76.3万名国防部文职雇员必须在11 月 22 日之前完全接种疫苗。
 
-杨洁篪和沙利文在瑞士的会见，是在美国总统拜登亲笔签名信函承诺条件的前提下进行的。 其中美方作出了三个保证：1）绝不改变中共制度，2）经济恢复挂钩，继续买美国国债，3）恢复中美间各层次全面对话，包括军事高层对话的正常化。
-![This image has an empty alt attribute; its file name is 3-31.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/3-31.jpg)
-在瑞士，美国代表沙利文在促成中方答应所有购买美债等交易后，才进入台湾议题。美方第一次在没有限定条件下，表态坚持一中政策，明确反对台独。并称美方反对“不经美方同意情况下武力攻打台湾”。这无疑已经为中共武力攻台开放了绿灯。 现在，中共攻台随时可能发生，对台湾非常不利。但是，中共一旦对台湾开战，也就是它末日的到来。台湾民众要做好准备应对最坏的局面。
+**3. [五岁女孩在被迫接受 Covid-19 PCR 检测返回学校后，眼部流血](https://theexpose.uk/2021/10/09/five-year-old-girl-left-bleeding-from-the-eye-after-being-forced-to-take-covid-19-pcr-test-to-return-to-school-hospital-says-this-is-normal/)**
 
-参考链接：
-[2021年10月10日 文贵大直播：文贵在双十节给台湾同胞说的话：台湾凶也，中共与美方对台湾问题早有文字性承诺勾兑;习以孙灭台，与国民党卖台贼呼应；国内经济房地产的万亿债务危机，华平基金的腐败会把西方掏空，中美勾兑国债；中共通过对西方律师事务所的合作…](https://gtv.org/video/id=6162dd0f304e992109b2bc89)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip299.png)
 
-（本文仅代表作者观点）
+据《吹哨人》2021年10月9日电，一名 5 岁女孩被迫接受 Covid-19 PCR 检测后眼部流血，其中包括将鼻拭子插入她的鼻子以便返回学校，然后医院告诉她的母亲“流血是正常的”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+**4. [根据 NHS 疫苗护照指南，疫苗护照肯定会在 2021 年 12 月中旬之前进入英国](https://theexpose.uk/2021/10/10/vaccine-passports-are-definitely-coming-to-the-uk-by-mid-december-2021/)**
 
-新闻访谈终审：Q大哥
-编辑/校对/发稿：为真不破20
+据《吹哨人》2021年10月10日电，可以在[此处](https://www.nhsx.nhs.uk/covid-19-response/using-the-nhs-covid-pass/)查看的官方 NHS 疫苗指南似乎确认，将于 2021 年 12 月中旬实施；企业和组织活动者在此日期后，不在乎允许申报疫苗豁免，只有通过 NHS 疫苗护照（完全接种疫苗）才可以接受豁免；这只能意味着英国政府的[“B 计划](https://www.gov.uk/government/publications/covid-19-response-autumn-and-winter-plan-2021/covid-19-response-autumn-and-winter-plan-2021)”将在今年冬天来到您附近的小镇……
 
-**更多资讯，更多关注**
+在 2020 年，我们和许多其他人告诉您疫苗护照即将问世，您将其标记为阴谋论。然而，到 2021 年，它们已在世界范围内实施，法国目前制定了最严格的疫苗护照法，紧随其后的是以色列；以色列最近取消了很大一部分人口的通行证，因为不再认为公民完全接种了疫苗（两针），除非他们已经接种了三剂 Covid-19 疫苗。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**5. [伊恩·斯图尔特（Iain Stewart）辞去加拿大公共卫生署署长一职](https://emeatribune.com/iain-stewart-to-step-down-as-head-of-public-health-agency-of-canada/)**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip300.png)
+据《EMEA TRIBUNE》援引《加广网》2021年10月9日电，伊恩·斯图尔特 (Iain Stewart) 将出任加拿大公共卫生署署长，由现任卫生部助理副部长 Harpreet S. Kochhar 博士接替。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+**6. [芝加哥海关查获小包装伊维菌素和羟氯喹](https://www.thegatewaypundit.com/2021/10/custom-officials-seize-small-packages-lifesaving-ivermectin-hydroxychloroquine-chicago-record-amounts-ivermectin-continue-flow-across-southern-border/)**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip301-1.png)
+据《门户网》2021年10月10日电，海关和边境官员最近在芝加哥奥黑尔机场抓获了两小包伊维菌素和羟氯喹。在 COVID 大流行之前，这两种药物不会引起人们的注意。但由于民主党和媒体将完全安全、廉价和有效的药物政治化（打压），海关人员正在寻找这些廉价药物。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+芝加哥奥黑尔国际机场内，特工于10月4日扣押了（来自中国、墨西哥）100粒伊维菌素的包裹、32粒伊维菌素的包裹，以及40粒羟氯喹的包裹；与此同时，墨西哥卡特尔今年继续向美国[走私创纪录数量的芬太尼](https://www.visiontimes.com/2021/03/19/mexican-cartels-smuggle-record-amounts-of-fentanyl-into-the-us-under-bidens-leadership.html)。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**7. [杰克逊维尔的空中交通管制员周五晚上也外出抗议强制接种 COVID 疫苗](https://www.thegatewaypundit.com/2021/10/media-blackout-not-just-southwest-airlines-air-traffic-controllers-jacksonville-walked-friday-night-protesting-mandatory-covid-vaccinations/)**
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip302.png)
 
+据《门户网》2021年10月10日电，（继西南航空公司飞行员罢工后）周五（8日）晚上，Big Media（主流媒体）屏蔽了一条消息，即数百架从佛罗里达州的杰克逊维尔起飞的航班因疫苗强制要求，飞行员出现罢工（航空公司表示1个辞职10个求工作）。
 
+不因如此，据一位消息人士称，佛罗里达的空中交通管制员在杰克逊维尔举行了一次罢工，以应对强加给他们的疫苗强制令；美国人受够了激进的左派（共产主义者）采取疯狂行动剥夺我们的自由。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+（文章仅代表作者本人观点，与Gnews无关）
+
+* * *
+
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)

@@ -2,9 +2,13 @@
 ---
 
 
-## 泽连科医生：疫苗不是用来对抗病毒，释放病毒是为引入疫苗（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1586815/)
+## 2021年10月9日 文贵先生盖特 13
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1586983/)
 
-9/29/2021 泽连科医生：疫苗不是用来对抗病毒的，释放病毒是为了引入疫苗。
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+因为未打疫苗而面临失业的美国飞行员呼吁大家反对强制疫苗，为自由而战！
+
+[【2021年10月9日】文贵先生盖特原文](https://gettr.com/post/pdmvkf558e)
+
+**喜联盟Gnews编辑部**

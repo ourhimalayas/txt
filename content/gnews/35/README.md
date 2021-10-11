@@ -2,67 +2,43 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1586705/)
+## 美国海军工程师夫妇，出售核潜艇机密被捕
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1586754/)
 
-- **编译：西班牙喜悦农场–wenwu**
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/indian_navys_tropex-2014_6_1.jpg)
+图片来源：nationalinterest.org
 
+整理报道：小红帽
 
-您若想了解全文报导内容，请点击标题链接
+一名美国海军工程师和他的妻子因试图将核潜艇的设计出售给外国势力而被捕，被捕时，该夫妇把其记忆卡(SD card)藏在花生酱三明治中。
 
-（爱惜生命 远离疫苗）
+美国司法部指控乔纳森（Jonathan）和戴安娜·托比（Diana Toebbe）将有关美国核动力战舰设计的信息出售给他们认为是外国势力代表的人。
 
-1.[**Covid-19 种族灭绝的证据**](https://theexpose.uk/2021/10/10/uk-gov-made-it-impossible-for-retired-doctors-to-return-during-the-pandemic/)
+该部门的一份声明称，此人实际上是一名联邦调查局特工卧底。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip295.png)
+海军核工程师托比先生持有有效的国家安全许可，允许他访问受限制的数据。在2020 年加入海军预备役之前，他曾是美国海军的一名中尉。
 
-据《吹哨人》2021年10月10日电，英国政府和 NHS 只想招募一些外国医生（其中许多不会说英语，并且那些外国医生将获得巨额报酬）；退休的有经验的本地医生将继续退休和不被需要（大约1.5万名），这只是掩盖中共病毒（covid-19)是种族灭绝计划的另一个证据。
+投诉宣誓书称，2020年4月，托比先生向外国政府寄了一个包裹，其中包含数据样本和建立秘密关系以购买更多数据的说明。
 
-首先，行医就像骑自行车。用不了多久就回到了最佳状态。大多数被问到的医生都会很高兴地服从——帮助将 NHS 从自己制造的混乱中，拯救出来。
-其次，也许英国政府意识到年长、更有经验的医生，不受 NHS 合同的约束，无需支付抵押贷款，也无需担心未来的职业生涯，可能更有概率质疑整个中共病毒骗局。值得注意的是，反对疫苗欺诈的少数医生中，大多数都是年长且更有经验的医生。
+宣誓书还称，此后，托比先生开始通过加密的电子邮件与一个他认为是外国政府代表的人通信。“该人实际上是一名联邦调查局特工卧底，”美国司法部的声明说。
 
-如果社会上出现有数千名经验丰富的医生，政府和 NHS 就很难在养老院、疗养院和医院谋杀数千名老人了。
+官员称，2021年6月，该代理人以加密货币形式转了1万美元（13,700澳元）作为“诚意金”付款。不久之后，托比夫妇前往一个地方交换信息。
 
-**2. [最后期限临近，数十万美军仍未接种疫苗](https://www.axios.com/military-coronavirus-vaccine-mandate-98a5bb7f-5b01-419a-bc05-14d232dc3b50.html)**
+“在那里，在戴安娜·托比的监视下，乔纳森·托比将一张记忆卡藏在半个花生酱三明治里，放在事先安排好的’死角’位置。”美国司法部说。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip297.png)
+据称，对该卡的审查显示它包含与潜艇核反应堆有关的信息。据称，在 8 月，托比先生又制造了一张记忆卡，那次是将卡藏在口香糖包装中。
 
-据《AXIOS》2021年10月10日电，[在](https://www.washingtonpost.com/national-security/2021/10/10/military-vaccine-mandate/)美军各个服务部门设定的即将到来的截止日期之前，数十万美军服务人员仍未接种疫苗；所有76.3万名国防部文职雇员必须在11 月 22 日之前完全接种疫苗。
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-**3. [五岁女孩在被迫接受 Covid-19 PCR 检测返回学校后，眼部流血](https://theexpose.uk/2021/10/09/five-year-old-girl-left-bleeding-from-the-eye-after-being-forced-to-take-covid-19-pcr-test-to-return-to-school-hospital-says-this-is-normal/)**
+**参考新闻：**[Nuclear submarine secrets ‘hidden in peanut butter sandwich’ (thenewdaily.com.au)](https://thenewdaily.com.au/news/world/2021/10/11/nuclear-sub-secrets-hidden-sandwich/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip299.png)
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-据《吹哨人》2021年10月9日电，一名 5 岁女孩被迫接受 Covid-19 PCR 检测后眼部流血，其中包括将鼻拭子插入她的鼻子以便返回学校，然后医院告诉她的母亲“流血是正常的”。
-
-**4. [根据 NHS 疫苗护照指南，疫苗护照肯定会在 2021 年 12 月中旬之前进入英国](https://theexpose.uk/2021/10/10/vaccine-passports-are-definitely-coming-to-the-uk-by-mid-december-2021/)**
-
-据《吹哨人》2021年10月10日电，可以在[此处](https://www.nhsx.nhs.uk/covid-19-response/using-the-nhs-covid-pass/)查看的官方 NHS 疫苗指南似乎确认，将于 2021 年 12 月中旬实施；企业和组织活动者在此日期后，不在乎允许申报疫苗豁免，只有通过 NHS 疫苗护照（完全接种疫苗）才可以接受豁免；这只能意味着英国政府的[“B 计划](https://www.gov.uk/government/publications/covid-19-response-autumn-and-winter-plan-2021/covid-19-response-autumn-and-winter-plan-2021)”将在今年冬天来到您附近的小镇……
-
-在 2020 年，我们和许多其他人告诉您疫苗护照即将问世，您将其标记为阴谋论。然而，到 2021 年，它们已在世界范围内实施，法国目前制定了最严格的疫苗护照法，紧随其后的是以色列；以色列最近取消了很大一部分人口的通行证，因为不再认为公民完全接种了疫苗（两针），除非他们已经接种了三剂 Covid-19 疫苗。
-
-**5. [伊恩·斯图尔特（Iain Stewart）辞去加拿大公共卫生署署长一职](https://emeatribune.com/iain-stewart-to-step-down-as-head-of-public-health-agency-of-canada/)**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip300.png)
-据《EMEA TRIBUNE》援引《加广网》2021年10月9日电，伊恩·斯图尔特 (Iain Stewart) 将出任加拿大公共卫生署署长，由现任卫生部助理副部长 Harpreet S. Kochhar 博士接替。
-
-**6. [芝加哥海关查获小包装伊维菌素和羟氯喹](https://www.thegatewaypundit.com/2021/10/custom-officials-seize-small-packages-lifesaving-ivermectin-hydroxychloroquine-chicago-record-amounts-ivermectin-continue-flow-across-southern-border/)**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip301-1.png)
-据《门户网》2021年10月10日电，海关和边境官员最近在芝加哥奥黑尔机场抓获了两小包伊维菌素和羟氯喹。在 COVID 大流行之前，这两种药物不会引起人们的注意。但由于民主党和媒体将完全安全、廉价和有效的药物政治化（打压），海关人员正在寻找这些廉价药物。
-
-芝加哥奥黑尔国际机场内，特工于10月4日扣押了（来自中国、墨西哥）100粒伊维菌素的包裹、32粒伊维菌素的包裹，以及40粒羟氯喹的包裹；与此同时，墨西哥卡特尔今年继续向美国[走私创纪录数量的芬太尼](https://www.visiontimes.com/2021/03/19/mexican-cartels-smuggle-record-amounts-of-fentanyl-into-the-us-under-bidens-leadership.html)。
-
-**7. [杰克逊维尔的空中交通管制员周五晚上也外出抗议强制接种 COVID 疫苗](https://www.thegatewaypundit.com/2021/10/media-blackout-not-just-southwest-airlines-air-traffic-controllers-jacksonville-walked-friday-night-protesting-mandatory-covid-vaccinations/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip302.png)
-
-据《门户网》2021年10月10日电，（继西南航空公司飞行员罢工后）周五（8日）晚上，Big Media（主流媒体）屏蔽了一条消息，即数百架从佛罗里达州的杰克逊维尔起飞的航班因疫苗强制要求，飞行员出现罢工（航空公司表示1个辞职10个求工作）。
-
-不因如此，据一位消息人士称，佛罗里达的空中交通管制员在杰克逊维尔举行了一次罢工，以应对强加给他们的疫苗强制令；美国人受够了激进的左派（共产主义者）采取疯狂行动剥夺我们的自由。
-
-（文章仅代表作者本人观点，与Gnews无关）
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
