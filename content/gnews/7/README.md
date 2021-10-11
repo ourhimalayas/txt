@@ -2,23 +2,34 @@
 ---
 
 
-## “5G消息”10月试商用 中共加速数字人民币应用落地
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1585982/)
+## Facebook及其应用程序再次中断
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1586032/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-26.jpg)[图片来源](https://www.youtube.com/watch?v=o8SCXZ11xa4)
-据“通信信息报”10月9日报道，在最近的中国国际信息通信展览会5G消息高层论坛上，包括中国联通、中国电信在内的多家运营商普遍表态， 5G消息将有望于今年10月中下旬进行全国试商用。
+**据《纽约时报》作者：迈克·艾萨克，2021年10月8日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/a958e-g14dp.jpg)图片来源：互联网
+周五下午，Facebook及其系列应用程序大约有两个小时无法访问，这是该社交网络平台一周内第二次出现广泛的服务故障。
 
-5G消息被运营商们视为5G商用最快落地的5G应用，其融合了语音、消息、状态栏、位置等通信服务，将极大改善用户之间的沟通效率和体验。据专家预测，5G消息将成为未来智能终端场景服务主入口。
+网站DownDetector.com是一项依赖用户报告来确定网站是否存在问题的服务，网站显示Facebook的所有主要产品包括Instagram、WhatsApp、Messenger和Facebook的“蓝色大应用”都在美国东部时间下午3点左右出现宕机。
 
-前期，数字人民币已加入5G消息入口。9月30日，中国移动联合工商银行共同发布了基于5G消息的数字人民币钱包，用户无需安装APP，即可通过chatbot智能化服务，以对话的形式，在消息窗口完成查余额、查明细、转账等数字人民币功能，为以5G消息为载体构建数字人民币应用生态奠定基础。
+在东部时间下午5点刚过，Facebook表示已经解决了这个问题，这次网络中断影响了世界各地的人们。该社交网络平台公司表示，中断是由“配置”更改引起的，这通常是指公司基础设施底层技术的调整，但该公司没有提供更多细节。
 
-可以预计，随着5G应用的不断落地，中共对数字人民币的应用正在加速。
+该公司表示：“向过去几个小时内无法访问我们产品的所有人表示诚挚的歉意。”
 
-信息来源：[5G消息有望本月实现试商用千亿元级市场呼之欲出\_服务](https://www.sohu.com/a/494076271_482239)
+Facebook 表示，周五的停电与周一出现的问题无关。在周一的时候，其应用程序在全球范围内停机超过五个小时。
 
-（文章仅代表作者个人观点，与GNEWS无关）
+周一的停电清楚地提醒人们，世界上有多少人依赖Facebook的一个或多个应用程序。全世界有超过35亿人经常使用它们。企业家和企业主表示，在停电期间，他们无法在Instagram或Facebook平台上的网络店面进行销售，这在某些情况下意味着损失了数千美元。
 
-*校对：东京樱花团 / 上善若水*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+在美国以外，严重依赖WhatsApp的国家（巴西、印度和菲律宾等）的人们无法与朋友、家人、同事或客户交流。 WhatsApp全球有超过 10亿人使用。
+
+周一停电后，随着应用程序再次缓慢上线，该公司警告称，其服务需要时间才能稳定下来。
+
+**原文链接：**[https://www.nytimes.com/2021/10/08/technology/facebook-whatsapp-instagram-down.html](https://www.nytimes.com/2021/10/08/technology/facebook-whatsapp-instagram-down.html)
+
+翻译：洛杉矶盘古农场 – 蓝精灵
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

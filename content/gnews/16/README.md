@@ -2,9 +2,9 @@
 ---
 
 
-## 脸书禁止人们提及众所周知的疫苗伤害
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1585887/)
+## 不惧中共胁迫，蔡总统发誓捍卫台湾民主
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1585941/)
 
-10/06/2021 威斯康星州参议员罗恩·约翰逊：脸书关闭了疫苗受害者的群组，以达到禁止人们提及众所周知的疫苗伤害的目的。
+10/10/2021 习近平最近发誓“和平统一台湾”，蔡英文总统拒绝北京的胁迫，并誓言捍卫台湾的民主和主权。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

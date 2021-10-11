@@ -2,27 +2,21 @@
 ---
 
 
-## 有声|FaceBook（非死不可）正面临末日的开始
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1585810/)
+## 从恒大事件看中共国的“房事”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1585868/)
 
-配音：香草山美食部 – 玫瑰园
+俄罗斯莫斯科喀秋莎农场 娜洁仕达
 
-盖特首席执行官杰森-米勒 10 月 8 日（周五）接受福克斯新闻台早间节目采访称，“非死不可”正面临 ”末日的开始”。就“非死不可”内部爆料和宕机事件的影响，杰森-米勒认为国会因此加速推进大科技公司监管立法的可能性不大。
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/E-1.jpg)
+俄罗斯莫斯科喀秋莎农场10月9日GTV的直播节目，从近期中共国闹得沸沸扬扬并引起全球关注的“恒大事件”的时间线谈起，为观众详细梳理了恒大事件的脉络。
 
-杰森-米勒同时指出目前大型社交媒体公司对网络的控制非常令人担忧的。他认为这与哥特人洗劫罗马非常相似，预示“非死不可”末日的开始。
+从许家印如何发家，如何代替万科成为地产老大谈起，谈到了2012年许家印在“两会”期间风头正旺时的傲娇表现，最后谈到了从2020年起的财务危机直到2021年10月股票突然停牌，受到全世界关注，更是对此次“恒大事件”目前中共国出台的处理意见发表了栏目组的看法。
 
-郭文贵先生今天盖特视频也特别提到“非死不可”内部团队已经乱做一团，马上面临崩溃。
+节目还详细讲述了中共国房地产自1980年“改开”以来的发展历程，与全世界房价以及物价和收入对比，栏目组三人结合自身的经历就此展开了讨论。通过解读爆料革命文贵先生的多次爆料等，阐述了栏目组对恒大事件、对于中共国房地产的过去现在和将来、以及对中共国经济乃至世界经济带来的后果的一些见解。
 
-文字版原文：[FaceBook（非死不可）正面临末日的开始](https://gnews.org/zh-hans/1582503/)
+直播的最后，栏目组对此次中共国是否会出手“救”恒大做出了猜测。虽然观点不一，但是栏目组一致认为恒大带给中国乃至世界经济的灾难才刚刚开始。恒大必将是中共国的雷曼兄弟！
 
-音频处理：喜山必胜Maverick
+更多精彩内容请关注俄罗斯莫斯科喀秋莎农场GTV频道
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://gtv.org/video/id=61585ed9304e992109ae042b](https://gtv.org/video/id=61585ed9304e992109ae042b)
