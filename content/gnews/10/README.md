@@ -2,34 +2,35 @@
 ---
 
 
-## Facebook及其应用程序再次中断
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1586032/)
+## 冠状疫苗接种之年是“突然和意外”的死亡之年
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1586093/)
 
-**据《纽约时报》作者：迈克·艾萨克，2021年10月8日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/a958e-g14dp.jpg)图片来源：互联网
-周五下午，Facebook及其系列应用程序大约有两个小时无法访问，这是该社交网络平台一周内第二次出现广泛的服务故障。
+作者：晓仙女
 
-网站DownDetector.com是一项依赖用户报告来确定网站是否存在问题的服务，网站显示Facebook的所有主要产品包括Instagram、WhatsApp、Messenger和Facebook的“蓝色大应用”都在美国东部时间下午3点左右出现宕机。
 
-在东部时间下午5点刚过，Facebook表示已经解决了这个问题，这次网络中断影响了世界各地的人们。该社交网络平台公司表示，中断是由“配置”更改引起的，这通常是指公司基础设施底层技术的调整，但该公司没有提供更多细节。
 
-该公司表示：“向过去几个小时内无法访问我们产品的所有人表示诚挚的歉意。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
 
-Facebook 表示，周五的停电与周一出现的问题无关。在周一的时候，其应用程序在全球范围内停机超过五个小时。
 
-周一的停电清楚地提醒人们，世界上有多少人依赖Facebook的一个或多个应用程序。全世界有超过35亿人经常使用它们。企业家和企业主表示，在停电期间，他们无法在Instagram或Facebook平台上的网络店面进行销售，这在某些情况下意味着损失了数千美元。
 
-在美国以外，严重依赖WhatsApp的国家（巴西、印度和菲律宾等）的人们无法与朋友、家人、同事或客户交流。 WhatsApp全球有超过 10亿人使用。
+德国REPOPT24新闻网报道，数千例“突然和意外”死亡现像，与接种疫苗有关，德国统计显示：从2021年的死亡人数与前一年相比，“突然和意外”的死亡案例剧增，死亡率比前一年高出很多，事实表明，“突然和意外”死亡的流行与接种毒疫苗密切相关。然而在社交媒体平台上，由于Instagram根据Facebook的所谓审查惯例，自动删除了所有关于疫苗接种伤害的评论，只保留了对其它死亡原因的假设。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-11.jpg)
+在各大媒体掩盖真相和虚假报导的舆论环境下，异军突起的社交媒体平台GETTR，正因为传播真相，而快速被各领域大V和民众接受，让更多人了解疫苗是共产党与国际邪恶利益集团制造的生化武器，进而阻止因接种毒疫苗导致的伤害继续蔓延。
 
-周一停电后，随着应用程序再次缓慢上线，该公司警告称，其服务需要时间才能稳定下来。
+（本文仅代表作者观点）
 
-**原文链接：**[https://www.nytimes.com/2021/10/08/technology/facebook-whatsapp-instagram-down.html](https://www.nytimes.com/2021/10/08/technology/facebook-whatsapp-instagram-down.html)
+参考链接：[冠状疫苗接种之年是“突然和意外”的死亡之年](https://gettr.com/post/pdpbqcaff7)
 
-翻译：洛杉矶盘古农场 – 蓝精灵
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-08-at-10.11.51-PM.png)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻访谈终审：Ryan
+编辑/校对/审核：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

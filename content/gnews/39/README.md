@@ -2,23 +2,23 @@
 ---
 
 
-## 川普指责拜登从欧佩克和俄罗斯购买石油
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1585611/)
+## 习近平：祖国完全统一，要实现，也能实现
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1585756/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/A-2.jpg)sawamediacenter.com
-美东时间10月10日报道，美国前总统川普在对他的支持者演讲时表示，“由于失去了能源独立性，美国被迫与欧佩克和俄罗斯就石油供应进行谈判。”
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/0001-scaled.jpg)
+文章仅代表作者本人观点，与Gnews无关
 
-川普称，“我们第一次确保了我们的能源独立。现在他们（拜登政府）请求欧佩克、俄罗斯和其他国家给我们输送一些石油。”
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-川普强调，到他卸任时美国的石油和天然气比俄罗斯和沙特阿拉伯加一起还要多，而现在我们正在向他们寻求帮助。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
 
-9月初，彭博社了解到俄罗斯对美国的石油进口增加。当时，这被归咎于飓风艾达，它破坏了墨西哥湾的石油生产。飓风过后，墨西哥湾77%的生产能力仍然被关闭，石油产量减少了2060万桶。
-
-全球天然气和石油价格继续上涨。9月底，11月布伦特原油期货价格自2018年10月以来首次超过了每桶80美元。彭博社报道称，油价上涨与银行和交易商的“大量看涨预测”有关，他们认为世界各地的石油生产商在开发新油田方面的投资不足，无法在疫情大流行中把供应维持在当前水平。
-
-参考链接：
-
-[https://www.rbc.ru/rbcfreenews/616251fc9a7947c15c4e0727](https://www.rbc.ru/rbcfreenews/616251fc9a7947c15c4e0727)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

@@ -2,32 +2,50 @@
 ---
 
 
-## 不屈服接种令，西雅图近四成警察直面解雇威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585591/)
+## 洛杉矶市的871名消防员就COVID-19疫苗强制接种提出诉讼意向
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1585742/)
 
-作者：雪梨
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-西雅图市政府规定，所有警察必须在10月18日之前接种疫苗，否则将被解雇。截至周五，该市共有292名警察没有提交疫苗接种证明，另外111名警察正在等待豁免批准，共计403人。如果他们因此而被全部解雇，西雅图将失去37%的警察。
+- 编译：七叶之芒
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-23.jpg)
 
-目前尚不清楚市政府是否将于18日执行解雇命令，为确保巡逻安全人员的合理配置，警察局长阿德里安·迪亚兹（Adrian Diaz）已经做出指示，从10月13日起过渡到”第三阶段动员”，即剩余警力处于随时待命状态，以应对911电话。
+洛杉矶的数百名消防员已经提交了一份意向通知，就该市的公共雇员疫苗任务起诉该市。
 
-面对政府恶劣行径，美国多地警员在社交媒体发布视频，重申加入警局的誓言：保护人民，而不是镇压真相的声音，同时也团结起来，使用法律回击接种强制令维护应有的权力。自2020年开始，已有280名警察辞职，使得该市警察部门的人员配置，处于1980年代以来最低水平。今年以来，西雅图的暴力犯罪激增，按目前的发展态势，城市治安将面临更加严峻的挑战。
+10月7日提交的通知中说，871名消防员正在寻求每人250万美元的赔偿。
 
-(本文仅代表作者观点)
+消防员的律师凯文-麦克布莱德（Kevin McBride）在通知中写道：“根据《加州民事诉讼法》，这些索赔将作为一个无限制的民事案件提交给高级法院。”
 
-参考链接：[Seattle police department prepares to fire up to 40% of its cops if they fail to get vaccinated in line with mayor’s strict mandate by October 18 – despite already suffering staffing lows not seen since the 1980s](https://www.dailymail.co.uk/news/article-10075409/Seattle-prepares-fire-400-cops-October-18-fail-vaccinated.html)
+洛杉矶市议会在8月颁布了一项法令，要求所有城市雇员在10月5日之前接种第二针双剂量COVID-19疫苗，或一针单剂量COVID-19疫苗，除非他们有医疗或宗教豁免。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+“城市的目标是拥有一支接种疫苗的员工队伍。因此，员工将不能选择’退出’接种疫苗，而成为每周测试的对象”，该条例写道。市长办公室宣布，未接种疫苗的豁免员工仍将被要求定期进行COVID-19的检测。
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
+麦克布莱德在意向通知中援引洛杉矶消防局（LAFD）给消防员的命令说，那些在10月20日的“硬性期限”前没有豁免或完全接种疫苗的人将被无薪送回家五天，如果再过五天他们仍然决定不接种疫苗，他们将被终止雇用。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+律师写道，该疫苗接种令是“公然的错误行为”，并列举了几个理由，包括：干涉就业权利；造成精神痛苦；违反宪法规定的隐私权；以及违反医学实验法中对人类主体的保护。
+
+原告是洛杉矶联合消防员（UFLAC）的成员。工会在10月4日的公告中表明了自己的立场：“市政府不能施加与10月5日最后期限有关的任何后果”，以接种COVID-19疫苗，并补充说，市政府的条例“没有规定任何后果，任何打算的纪律必须首先与UFLAC进行谈判”。
+
+“此外，该市没有向UFLAC提供任何通知，说明它打算对没有达到10月5日最后期限的雇员进行惩戒”，公告中补充说。
+
+据《纽约时报》报道，市政府有45天时间来评估这份文件，之后将立即提起诉讼。
+
+洛杉矶市检察官迈克-费尔在给KTLA的一份声明中说：“美国最高法院和全国各地的法院都支持疫苗授权……我相信我们会获胜。”
+
+那些打算起诉该市的人包括该市大约四分之一的消防员。根据洛杉矶消防局（LAFD）的网站，它有3435名消防人员。
+
+**简评：**
+
+**强制接种中共病毒疫苗的做法，已经在越来越多的行业内引起了人们的抗议。这些人纷纷用法律的武器来保护自己应有的权益及健康。虽然，疫苗的危害已经显现，但是大规模的疫苗灾难还没有爆发。**
+
+**越来越多的人，看清了疫苗的本质，越来越多的人在和世界各国的强权政治（强制疫苗接种）进行着斗争。觉醒，是一个过程。当人们彻底觉醒之后，我们相信如郭先生所说，世界的一切都即将改变。**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**新闻来源：**[大纪元时报](https://www.theepochtimes.com/871-firefighters-file-intent-to-sue-over-la-citys-covid-19-vaccine-mandate_4040939.html?welcomeuser=1)**｜**封面图来源：theepochtimes.com
+
+* * *
+
+*审核：蚂蚁兄弟*
+*校对：阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)

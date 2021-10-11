@@ -2,23 +2,9 @@
 ---
 
 
-## 习近平：祖国完全统一，要实现，也能实现
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1585756/)
+## 习近平辛亥革命110周年演讲发出强烈信号，坚决完成武统台湾
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1585885/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+10/08/2021 中共中央委员会总书记习近平发表纪念辛亥革命110周年演讲，强调台湾统一符合两岸人民的共同利益，台独分裂是祖国统一的最大障碍，是民族复兴的严重隐患，并且凡是数典忘祖，背叛祖国，分裂国家的人从来没有好下场，以及台湾问题属于中共国内政，不容外来干涉。郭文贵先生在宣讲后在盖特上贴文指出，这次共产党的宣讲大会结束后中共将以孙灭台，武统台湾。因此台湾危了！
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/0001-scaled.jpg)
-文章仅代表作者本人观点，与Gnews无关
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

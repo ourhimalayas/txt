@@ -2,25 +2,39 @@
 ---
 
 
-## 绝地反击&#8211;加拿大反疫苗护照示威者将封桥堵路以抗暴政！
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1585993/)
+## 香港国安法下 “双十节”庆祝近乎绝迹
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1586090/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-188-edited.png)图片来源：JOURNALQUEBEC
-
-
-据加拿大魁省法语主媒《魁北克日报》10月10日刊登新闻指出，蒙特利尔和魁北克市的反COVID19疫苗护照的示威者们，正计划于10月15日封锁该地区及周边的主要交通道路和桥梁，以抗议魁省当局目前执行的强制接种该疫苗的措施。
-
-尽管当地警方也正在密切关注这些计划在下周封锁全省公路和桥梁以反对COVID19疫苗护照的抗议者，但数百人已经在Facebook上确认了他们将参加下周五的名为 “卡车司机堵塞魁省道路和桥梁”活动。
-
-据悉，在蒙特利尔市，Jacques-Cartier桥和Samuel-De Champlain桥正成为抗议者们拥堵的行动目标。而在省会，魁北克市的主要道路和Pierre-Laporte桥，届时将极有可能会被人群和车龙瘫痪。
-
-这次大型示威活动的主要组织人，22岁的马蒂厄-加尼翁对媒体表示，抗议者将在魁省各地的高速公路上以60公里/小时（魁省高速公路的汽车行驶下限速度）自由行驶，以此导致大量的交通拥堵。示威活动将一直进行到阿比迪比地区，甚至渥太华最终也可能会加入其中。为此，该组织者强调：“这样做是为了抗议省政府强推的疫苗护照，并让省长弗朗索瓦（François Legault）听到我们反抗的声音。”
-
-此外，这位承认自己没有接种过COVID19疫苗的年轻组织者还表示，他们将在志同道合的卡车司机的帮助下封锁该省的各主要公路和桥梁，直到当局改变对现行疫苗护照的政策，或就强制该疫苗接种的措施举行公开辩论。抗议者们已经为这次活动筹备了几个星期。其中一些人还在魁北克市组织了相应的扩大会议。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-189-edited.png)图片来源：JOURNALQUEBEC
+作者：文一
 
 
-(以上内容仅代表原文信息和作者个人观点)
 
-[原文链接：](https://www.journaldequebec.com/2021/10/10/ils-veulent-encore-bloquer-des-ponts)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+
+
+
+以往每年辛亥革命及中华民国国庆的“双十节”，香港都有亲台团体和人士举行庆祝活动。但在“港版国安法”阴影，而全港的庆祝活动几乎绝迹。
+
+今年是2020年6月底中共强推“港版国安法”后的第2个“双十节”。因强力镇压2019年6月起爆发的“反送中”全民抗争的民主运动而被提升为香港保安局局长的邓炳强，9月底就警告港人，不要在“双十节”意图作出把台湾从中国分裂的行为，高举或挂起“青天白日旗”、呼喊相关口号有此意图就违法，当局会找到证据并加以处理。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-11.jpg)
+1997年香港主权归还中国后，香港庆祝“双十节”的规模锐减。一直有的升旗礼，也因业主纠纷等原因在2017年停止了。在中山公园的升旗礼被迫停止。
+
+每年双十节都会有人到屯门红楼纪念。相传孙中山用作策划反清革命之地的屯门红楼，每年双十节都有人来纪念。现在也被围封禁止入内。
+
+（本文仅代表作者观点）
+
+参考链接：[香港国安法下 “双十节”庆祝近乎绝迹](https://www.voachinese.com/a/Hong-Kong-fear-of-arrest-over-Taiwan-national-day-celebration-20211010/6264855.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+
+新闻访谈终审：鬼五
+编辑/校对/审核：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

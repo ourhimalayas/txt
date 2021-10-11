@@ -2,56 +2,37 @@
 ---
 
 
-## 维州工党腐败调查，安德鲁斯公开听证会接受审查
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1586037/)
+## 北欧多国停止或暂停使用莫德那疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1586094/)
 
-#### 翻译：月映万川
+作者：文真
 
-#### 编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1111-1.png)
-图片来源：Australia Security
 
-澳大利亚维多利亚州州长丹尼尔·安德鲁斯(Daniel Andrews)的工党政府将在周一开始的IBAC公开听证会上接受审查，对可能的滥用公共资金进行调查。
 
-10月10日，独立广泛的反腐败委员会（IBAC）正在调查澳大利亚维州国会议员或其工作人员是否滥用公共资金，因为当前指控工党不当招募的腐败报告堆积如山。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-15.png)
 
-“瓦茨行动”正在探究政府公共资金是否用于资助政治运作，即有利于（执政的）工党的工作，或者更具体地说，有利于工党的特定派别，而不是纳税人。
 
-它正在调查选民或部长办公室的公共财政资助的工作人员是否从事任何所谓的政治运作（而不是为议员或部长从事有益于选民的工作）。
 
-同时，调查的另一部分也会着重于，**维多利亚州政府给社区性质的协会组织的拨款是否被不当的用于政治活动或者其它不当目地**，一旦发现这种情况，就要调查那些负责拨款的人员是否知情或者不当操作。
+10月10日，冰岛停止了莫德那疫苗的使用。冰岛首席流行病学家在一份声明中说，该决定是由于”接种莫德那疫苗后，心肌炎和心包炎的发病率增加“。
 
-更广泛地说，它将调查是否有任何公职人员（包括国会议员及其工作人员在内的团体）或其家人或其它利益相关人从公共财政资助的工作人员或赠款中受益，以及**“****现有系统和控制措施****”****和****“****组织文化****”****是否助长了这种行为或可以及时阻止这种不当行为**。
+同样因心肌和心包的炎症风险，瑞典和芬兰在10月9日，针对30岁以下的人，暂停使用莫德那疫苗。与此同时，丹麦和挪威已正式建议不要对18岁以下人群使用莫德那疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-6.jpg)
+芬兰、瑞典和丹麦等斯堪的纳维亚国家表示，在瑞典公共卫生局进行的一项未公布的研究中，莫德那疫苗显示心脏炎症的风险，因此他们做出了停止或暂停该疫苗的决定。来自该研究的信息已被送往欧洲医药局的不良反应委员会，该委员会将对其进行审查。
 
-**不当招募是指，在某一特定种族背景中招募大批党员，继而在预选或者其它政治投票中，结成小团体去支持特定的参选人。**需要说明的是，这一行为既不违法，也不是需要反腐委员会调查。而真正委员会想要调查的是，**能够支持不当招募的金融和政治框架。**
+（本文仅代表作者观点）
 
-譬如，如果某一个社区领袖被赋予了选举官员的角色，从而在本党党员招募时，换取这些领袖加入本派系。相似的，如果政府拨款提供给了某一个多元文化组织，并且使该组织明白这一拨款主要是因为工党内部某一派系的大方，继而该组织帮助他们招募党员，并因此涉嫌不当招募。
+参考链接：[北欧多国停止或暂停使用莫德那疫苗](https://www.newsmax.com/newsfront/iceland-moderna-vaccine-covid/2021/10/09/id/1039810/)
 
-IBAC正在调查工党派系如何招募成员并将这些成员保留在一边，而不是简单地调查这些成员是否涉嫌不当招募。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
-委员会没有提供证人名单，那些被传唤出庭的人经常被阻止曝光。目前还不清楚调查将进行多长时间，这使得预测谁会被问询变得更加困难。但很可能会召集现任和前任国会议员、党内资深幕僚、著名社区领袖和派系重量级人物。鉴于联邦议员安东尼·伯恩 (Anthony Byrne)的办公室查获了有关涉嫌不当招募的秘密视频和录音，因此联邦工党成员也可能被召集。
+新闻访谈终审：Ryan
+编辑/校对/审核：Hetangyuese
 
-IBAC举行公开听证会的频率远低于新南威尔士州廉政公署。而后者更加拥有实权。公开听证会通常用于向证人提供在调查过程中获得的证据，而这通常使用秘密手段，例如电话拦截。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-不当招募的指控与工党本身有关，而不是与州政府有关。考虑到安德鲁斯自2014年以来一直是州长，且在2010年以来一直是维州工党的领导人，他可能会有一些反击。
-
-然而，IBAC正在调查的最后一点可能是安德鲁斯最关心的问题之一：**“到位的系统和控制”以及“组织文化和实践”是否足够多？**安德鲁斯主持的政党和政府是否允许这种情况发生？他应该知道它正在发生吗？而且，如果他知道这正在发生，他做了什么来阻止它？
-
-预计调查的一个重点是为什么罗宾·斯科特在2018年维州大选后被理查德·韦恩取代为多元文化事务部长。斯科特后来在涉及他所属的温和派的**不当招募丑闻**被时代报揭露后，辞去了部长职位。
-
-即使安德鲁斯逃脱了个人审查，**这次调查将仔细审查前部长，甚至可能是现任部长的行为事实，将再次引发有关维州政府的相关问题**，而这是一个单独的IBAC调查的主题，并且取决于其他调查。
-
-参考链接：
-
-1、[Victoria Labor corruption inquiry: what the Ibac hearings will mean for Daniel Andrews’ government | Victorian politics | The Guardian](https://www.theguardian.com/australia-news/2021/oct/10/victoria-labor-corruption-inquiry-what-the-ibac-hearings-will-mean-for-daniel-andrews-government)
-
-2、[https://www.abc.net.au/chinese/2020-06-16/explainer-branch-stacking/12361404](https://www.abc.net.au/chinese/2020-06-16/explainer-branch-stacking/12361404)
-
-**发布：**
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
