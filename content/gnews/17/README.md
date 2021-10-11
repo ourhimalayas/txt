@@ -2,27 +2,22 @@
 ---
 
 
-## 郭文贵：美国已和中共达成出卖台湾的交易
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1586258/)
+## 危机前兆？日本东北地区米价异常
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1586383/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-190.png)（图片源自本文链接）
+10月11日日本“河北新报”报道：日本东北全农协各县向农协总部提交的2021年大米作物的支付额估算结果显示，主要品牌大幅下降。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/text-SC-9.png)
-文章仅代表作者本人观点，与Gnews无关
+尽管种植业进行了大规模种植种类调整，减少了大米产量，但中共病毒导致需求下滑，特别是商业用途的需求下降，致使大米过剩情况看不到尽头。在东北地区，中共病毒的冲击正在蔓延。
 
-视频参看： 2021.10.10晚GTV新闻访谈
+然而，与生产者对大米价格下跌的沮丧相比，零售商店里却挤满了寻找新米的购物者。例如, 9月底，仙台市宫城野区的宫城合作社商店开始销售2021年宫城县本地产的“一见钟情”，5公斤的价格为1780日元（不含税），比去年同期低100日元。 这是连续第二年降低售价。
 
-[https://gtv.org/broadcast/watch/616384e2304e992109b3376c](https://gtv.org/broadcast/watch/616384e2304e992109b3376c)
+[信息源](https://news.yahoo.co.jp/articles/4ca80cd48c59c3a52ac1bb1220b3893ad318b621)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+笔者在日本经营过稻米相关公司，以自己的拙见，这很可能导致稻农纷纷降低2022年的稻米种植计划。从目前日本的蔬菜类作物价格暴涨上看，明年很可能出现大米供应不足，米价暴涨的主食短缺危机。日本国民以大米为主食，日本是非常重视稻米文化的岛国，每年会在全国各县巡回进行国际稻米大赛。一旦大米出现供不应求、价格暴涨情况，会引起怎样的恐慌，令人担忧！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（文章仅代表作者个人观点，与GNEWS无关）
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

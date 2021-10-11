@@ -2,37 +2,29 @@
 ---
 
 
-## 北欧多国停止或暂停使用莫德那疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1586094/)
+## 洛杉矶县警长拒绝执行强制疫苗接种任务
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1586124/)
 
-作者：文真
+俄罗斯莫斯科喀秋莎农场   DongDong
 
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/L.jpg)politics69.com
+据美联社报道，洛杉矶县（Los Angeles County）警长亚历克斯·维拉纽瓦(Alex Villanueva)在周四（10 月 8日）的脸书（Facebook）直播活动中说，他不会执行该县强制疫苗接种任务。根据 8 月份拜登政府颁布的行政命令，洛杉矶县全体警员必于10月1日前全面接种疫苗，除非有“真诚宗教信仰”或相关医学证明的警员才能豁免接种疫苗。
 
+警长维拉纽瓦说，警员们宁愿被解雇，也不愿接受疫苗接种。在谈及此事时，警长说道：“我不想因为一项疫苗任务而在一夜之间失去5%或10%的警力。”由于“警察经费削减”，他已经在竭力解决警力配置和人员调配问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-15.png)
+洛杉矶县是美国人口最多的县，大约有 1000 万常住人口。其中 78%公民至少接种了一剂疫苗，68%接种了两剂疫苗。负责公共卫生安全的政府职员表示，尽管自8月下旬以来，死亡和住院人数骤减约50%，但该县每天仍平均有14例因感染中共病毒的死亡报告。
 
+迄今为止，洛杉矶县已有26000多人死于中共病毒。
 
+洛杉矶市于10月6日批准了新的疫苗强制令，要求任何12岁及以上的人在进入室内场所，如室内餐厅、健身房、电影院、沙龙、室内政府设施、购物中心等，甚至是观看湖人队的比赛时都必须提供疫苗接种证明。
 
-10月10日，冰岛停止了莫德那疫苗的使用。冰岛首席流行病学家在一份声明中说，该决定是由于”接种莫德那疫苗后，心肌炎和心包炎的发病率增加“。
+对于是否执行此项行政令，洛市议会曾在10月6日进行了投票。但遗憾的是，最终结果是11比2，只有议员约翰·李（John Lee）和乔布斯·卡诺（Joe Buscaino）投票反对这项强制令。
 
-同样因心肌和心包的炎症风险，瑞典和芬兰在10月9日，针对30岁以下的人，暂停使用莫德那疫苗。与此同时，丹麦和挪威已正式建议不要对18岁以下人群使用莫德那疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-6.jpg)
-芬兰、瑞典和丹麦等斯堪的纳维亚国家表示，在瑞典公共卫生局进行的一项未公布的研究中，莫德那疫苗显示心脏炎症的风险，因此他们做出了停止或暂停该疫苗的决定。来自该研究的信息已被送往欧洲医药局的不良反应委员会，该委员会将对其进行审查。
+除了洛杉矶市之外，在纽约市、新奥尔良、旧金山和西好莱坞也实施了类似的强制令。欧洲的一些国家同样在实施各种强制措施和疫苗护照系统。
 
-（本文仅代表作者观点）
+这些地区、城市和国家实施的强制疫苗接种和疫苗护照系统已导致民怨四起，美国的纽约、洛杉矶等地，意大利、德国和澳大利亚均爆发了大规模反对“强制疫苗接种”的游行示威活动。这些民众自发的抗议游行，给当地政府带来了巨大压力的同时，迫使某些政府使用暴力机构对游行人群进行驱散，这更加剧了疫情期间政府与公民之间的矛盾。
 
-参考链接：[北欧多国停止或暂停使用莫德那疫苗](https://www.newsmax.com/newsfront/iceland-moderna-vaccine-covid/2021/10/09/id/1039810/)
+参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
-
-新闻访谈终审：Ryan
-编辑/校对/审核：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+[Los Angeles County Sheriff Won’t Enforce Vaccine Mandate – bloomberg – 10/09/2021](https://www.bloomberg.com/news/articles/2021-10-08/los-angeles-county-sheriff-won-t-enforce-vaccine-mandate?utm_source=facebook&amp;utm_medium=news_tab&amp;utm_content=algorithm)
