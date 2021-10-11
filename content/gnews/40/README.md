@@ -2,32 +2,25 @@
 ---
 
 
-## 不屈服接种令，西雅图近四成警察直面解雇威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585591/)
+## 川普称俄中正在研究美阿富汗遗弃的直升机
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1585595/)
 
-作者：雪梨
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-西雅图市政府规定，所有警察必须在10月18日之前接种疫苗，否则将被解雇。截至周五，该市共有292名警察没有提交疫苗接种证明，另外111名警察正在等待豁免批准，共计403人。如果他们因此而被全部解雇，西雅图将失去37%的警察。
+俄罗斯莫斯科喀秋莎农场 星河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-23.jpg)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/T-3.jpg)middleeast.in-24.com
+美东时间10月10日报道，美国前总统川普在爱荷华州的一个支持者集会上表示，来自俄罗斯和中共国的专家已经拆解并正在研究美国在阿富汗遗弃的直升机，用以制造更好的武器。
 
-目前尚不清楚市政府是否将于18日执行解雇命令，为确保巡逻安全人员的合理配置，警察局长阿德里安·迪亚兹（Adrian Diaz）已经做出指示，从10月13日起过渡到”第三阶段动员”，即剩余警力处于随时待命状态，以应对911电话。
+川普警告称，“俄罗斯和中共国已经有了我们的直升机样品，他们已经在拆解阿帕奇，研究它们，很快他们就能制造出更好的装备，而且成本更低。”
 
-面对政府恶劣行径，美国多地警员在社交媒体发布视频，重申加入警局的誓言：保护人民，而不是镇压真相的声音，同时也团结起来，使用法律回击接种强制令维护应有的权力。自2020年开始，已有280名警察辞职，使得该市警察部门的人员配置，处于1980年代以来最低水平。今年以来，西雅图的暴力犯罪激增，按目前的发展态势，城市治安将面临更加严峻的挑战。
+这位前总统早些时候曾说，美国人在阿富汗放弃了价值850亿美元的军事装备。他明确指出，“昂贵的黑鹰直升机有可能落入俄罗斯和中共国手里。我们在那里有最新的坦克和导弹。我们在那里有黑鹰直升机，全新的，价值数十亿美元，现在俄罗斯、中共国将有机会使用它们。”
 
-(本文仅代表作者观点)
+根据川普的说法，美国撤军后，俄罗斯将试图弥补前苏联的错误，重新恢复在阿富汗的影响力。
 
-参考链接：[Seattle police department prepares to fire up to 40% of its cops if they fail to get vaccinated in line with mayor’s strict mandate by October 18 – despite already suffering staffing lows not seen since the 1980s](https://www.dailymail.co.uk/news/article-10075409/Seattle-prepares-fire-400-cops-October-18-fail-vaccinated.html)
+美军自2001年以来一直在阿富汗。2021年4月，拜登宣布，他们将在911袭击事件周年纪念日之前完全撤出。最后一批美国士兵于8月30日离开了阿富汗。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+在西方军队的撤退中，该国被塔利班（一个被俄罗斯承认为恐怖分子并被禁止的组织）短暂占领。8月15日，武装分子进入喀布尔的总统府，宣布完全控制阿富汗。
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
+参考链接：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://www.rbc.ru/politics/10/10/2021/61624fc39a7947c0ec3ff175?from=from\_main\_10](https://www.rbc.ru/politics/10/10/2021/61624fc39a7947c0ec3ff175?from=from_main_10)

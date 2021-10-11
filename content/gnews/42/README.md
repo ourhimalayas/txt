@@ -2,26 +2,26 @@
 ---
 
 
-## 台湾总统府发言人称中华民国是主权国家!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585571/)
+## 物资断流劳动力短缺 英美预期食品短缺
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1585583/)
 
-作者：云豹
+作者：飞虹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中央社消息, 对于10月9日中共习近平所称:”台湾问题是中国内政”, 台湾总统府发言人张惇涵回应称，“中华民国是主权独立的国家，不是中华人民共和国的一部分；中华民国的未来，掌握在台湾人民的手中!”
+最近，美国各地的物品短缺状况正在陆续出现。人们感受最直接的首先是食品，在德克萨斯州的一些杂货店，空货架林立，许多人无法一次购买到所需的全部物品。而面临货源短缺问题的，德州并不是唯一。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide2-16.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-9.jpeg)
 
-10月10日，蔡英文总统蔡英文也在双十国庆演说中提出”四个坚持”, 即 坚持自由民主宪政体制；坚持中华民国与中华人民共和国互不隶属；坚持主权不容侵犯并吞；坚持中华民国台湾的前途，必须遵循全体台湾人民的意志。蔡英文称这四个坚持，是台湾人民的底线。而香港的现况证明中共背弃了自己的承诺，印证所谓的‘一国两制’根本不可行。
+中共病毒大流行期间，真正有效的治疗药物的使用被阻止，政府和医疗机构为大药厂站台，强推全民毒针计划，用疫苗健康证明束缚民众生活，严重侵犯自由和生存权。随着疫苗接种率的提升，受新冠疫苗伤害的人员范围越来越大，未接种者被迫离开职位，灾难进一步凸显。
+
+由此造成的人工短缺及物流运作延误，致使供应链正在崩溃。美国各地公司预计，从人造圣诞树、体育用品到感恩节火鸡，各类商品都将出现短缺和价格上涨。集装箱船积压，意味着货物无法从港口运到仓库，通往零售商和消费者的路更是充满不确定性。德克萨斯州的几家餐馆不得不雇佣机器人来解决员工短缺的问题。
 
 (本文仅代表作者观点)
 
-参考链接：[國慶日演說總統談四個堅持、兩岸平等對話 全文一次看](https://www.cna.com.tw/news/firstnews/202110105005.aspx)
-[總統府：中華民國是主權獨立國家 民意拒絕一國兩制](https://www.cna.com.tw/news/firstnews/202110090099.aspx)
-[https://montrealtimes.news/台总统府：中华民国是主权独立国家-民意拒绝一国/](https://montrealtimes.news/台总统府：中华民国是主权独立国家-民意拒绝一国/)
+参考链接：[Experts Warn Food Shortages Are Coming To Texas](https://original.newsbreak.com/@matt-lillywhite-561024/2392885360162-experts-warn-food-shortages-are-coming-to-texas)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-新闻访谈终审：文龍
+新闻访谈终审：暗黑
 编辑/校正/发稿：谐趣园
 
 **更多资讯，更多关注**
