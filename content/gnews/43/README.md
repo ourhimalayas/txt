@@ -2,132 +2,46 @@
 ---
 
 
-## 断网的原因是俄罗斯
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1587443/)
+## 被村霸欺压的欧金中被逼提刀重演杨佳和张扣扣的复仇路
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1587453/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2448.png)
-[https://gtv.org/video/id=61639a8ad2e2b8174873db58](https://gtv.org/video/id=61639a8ad2e2b8174873db58)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/捕获_副本-8.png)
+据[**新京报我们视频**](https://weibo.com/6124642021?refer_flag=1001030103_) [2021年10月11日10:00](https://weibo.com/6124642021/KCcHAjG6k?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-**郭文贵：
-Miles Guo：**
- 
-你像昨天Facebook，一看就俄罗斯出手嘛
-Facebook went down yesterday, I know that Russia was behind it.
- 
-那还用说嘛？
-Isn’t it obvious?
- 
-俄罗斯是告诉你，别跟我玩儿，你差远着呢
-Russia was telling Facebook, don’t mess with me, you’re not even close
- 
-老子一个屁都崩死你Facebook
-“Facebook, I will kill you in a minute”
- 
-普京真的是拔根汗毛都能把Facebook弄死一万回
-Putin can make Facebook die 10,000 times by moving his little finger
- 
-他敢出手的，习不敢出手，共产党不敢出手
-Putin dares to strike, Xi dares not to strike, the Communist Party dares not to strike
- 
-昨天就是俄罗斯干的
-It was Russia yesterday.
- 
-跟中国半毛钱（关系没有）
-It has nothing to do with China
- 
-记住昨天凡是在社交媒体上谈到昨天的事，跟中国有关系的
-Remember that anyone who said on social media that yesterday’s event has something to do with China
- 
-他绝对是骗子，他不懂基本常识
-is an absolute liar and he doesn’t understand basic common sense
- 
-爆这个普京
-Expose Putin’s secrets
- 
-你想想爆董建华、爆梁振英
-Let’s expose Tung Chee-hwa, Leung Chun-ying’s secrets
- 
-梁振英和董建华，上海帮（是）100%江家人
-Leung Chun-ying and Tung Chee-hwa, they are 100% with Jiang’s family in Shanghai
+【[#福建莆田重大刑案已致2死3伤#](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E8%8E%86%E7%94%B0%E9%87%8D%E5%A4%A7%E5%88%91%E6%A1%88%E5%B7%B2%E8%87%B42%E6%AD%BB3%E4%BC%A4%23) [#莆田悬赏5万元征集重大刑案线索#](https://s.weibo.com/weibo?q=%23%E8%8E%86%E7%94%B0%E6%82%AC%E8%B5%8F5%E4%B8%87%E5%85%83%E5%BE%81%E9%9B%86%E9%87%8D%E5%A4%A7%E5%88%91%E6%A1%88%E7%BA%BF%E7%B4%A2%23)】10月10日，福建省莆田市公安局秀屿分局发布协查通报，当日13时许，秀屿区平海镇上林村发生一起重大刑事案件，村民欧某中有重大作案嫌疑。[@新京报我们视频](https://weibo.com/n/%E6%96%B0%E4%BA%AC%E6%8A%A5%E6%88%91%E4%BB%AC%E8%A7%86%E9%A2%91) 11日从上林村村干部处获悉，案件目前造成2人死亡3人受伤。平海镇政府发布悬赏通告，对提供有价值线索者将奖励5万元。[#福建莆田发生重大刑案#](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E8%8E%86%E7%94%B0%E5%8F%91%E7%94%9F%E9%87%8D%E5%A4%A7%E5%88%91%E6%A1%88%23)[#蓝V视界#](https://s.weibo.com/weibo?q=%23%E8%93%9DV%E8%A7%86%E7%95%8C%23) [L新京报我们视频的微博视频](http://t.cn/A6MoFH1z) （记者：张榕晋 制作：李东旭 运营：马冉）
 
-见了江志成跟见亲爹一样
-They saw Alvin Jiang like his own father
- 
-把自己老婆女儿都送过去
-They can even give their wives and daughters to Alvin Jiang
- 
-你想想江家要爆习，怎么会爆董建华、梁振英呢？
-Jiang family wants to expose Xi’s secrets, how will they expose Tung Chee-hwa and Leung Chun-ying? Think about that
- 
-这是第一个，第二个习
-This is the first, the second, Xi
- 
-如果习在背后操纵，怎么可能爆普京呢？
-If Xi was in control behind the scenes, how could he have exposed Putin?
- 
-那普京跟他绝对是生死关系，就像咱们之间这种关系
-Putin and Xi definitely have a life-and-death relationship, just like the one between us
- 
-他怎么可能？
-How could he?
- 
-我去爆草根小哥，我希望人爆Rachel、爆政清、爆小福利
-Just like if I expose the secrets of Caogen, I hope that people expose Rachel, Zhengqing, Xiao Fuli
- 
-不可能的事情，那不作死吗？
-That’s impossible. Isn’t that hurting yourself?
- 
-它跟中国半毛钱关系都没有，只有俄罗斯，呱，一巴掌就过去了
-It has nothing to do with China, but only Russia, quack, a slap on the face
- 
-还跑我这儿来混饭吃了，你想骗我呢？直接一巴掌就过去了
-And come to me to mess around, you want to cheat me? A direct slap on the face
- 
-拔你的电源，消掉你的IP
-Unplug your power and eliminate your IP
- 
-直接把你的所有的几个中心全部给你关掉
-Simply shut down all your centers
- 
-这只是刚刚开始
-And that’s just the beginning
- 
-我在2017年直播的时候，我亲自看过展示
-When I was broadcasting live in 2017, I personally saw it revealed
- 
-就这一个开关按下去，以色列和俄罗斯的网络武器一下按下去
- Just press this switch, the cyber weapons of Israel and Russia are pressed down.
+关于这个欧某中杀人的原委据[**一博胖迪都是我的**](https://weibo.com/5983225886?refer_flag=1001030103_)[2021年10月11日19:47](https://weibo.com/5983225886/KCgxYcNN9?refer_flag=1001030103_) 来自 [HUAWEI Mate 30 5G](https://app.weibo.com/t/feed/1EuKP9)
 
-你任何一个地方的电网咔嚓就给你关掉，终身让你回不来
-All your local grid will be shut down for life, and there is no return
- 
-像阿里巴巴，像亚马逊的网站，按下去IP终生就没了
-Like Alibaba, like Amazon’s website, just one click, the IP will be gone forever
- 
-消失了，永远回不来
-Disappeared and never return
- 
-有的有备份，它甚至把你的备份
-Some have backups, and it even break your backups
- 
-（备份）出现的时候，自动找到备份，再给你灭掉
-When (backup) appears, the backup is automatically found and then destroyed
- 
- 
- —————————————————————
- 
- Date:10/7/2021
-原视频标题:让Facebook, WhatsApp和Instagram断网的原因是俄罗斯
-The reason Facebook, WhatsApp and Instagram are off the grid is Russia
-原视频日期：2021/10/05
-原视频链接:[https://twitter.com/se1y7cblljselva/status/1445743022172373001?](https://twitter.com/se1y7cblljselva/status/1445743022172373001?)s=24任务编号：KC160（2448）
-视频时间段 : 0:00-1:50
-英听校：洛杉矶盘古农场 – Mike Li
-翻译：洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – 郭友(文苏)
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[#用户736182#](https://s.weibo.com/weibo?q=%23%E7%94%A8%E6%88%B7736182%23) 不明白为什么账号不见了，虽然他做错了，但是还是希望更多人知道这件事情的原委 ​
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/001-9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/002-5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/003-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/004-1.jpg)
+
+
+欧金中杀人肯定是不对的，但是每每看到这样被逼无奈之下的绝杀，在内心深处却总也忍不住长舒一口恶气，终于让这些作恶的村干部、村霸们付出了生命的代价。因为欧金中的遭遇每个草根都会感同身受，区别仅在于无助以及被威胁恐吓的程度轻重而已，区别仅在于每个受到强权挤压的草根是在绝望中忍辱偷生还是忍无可忍，终于无需再忍。
+
+因为这个社会已经彻底失去了让草根得到公平和正义的机会，所以在忍无可忍之下会出现手刃警察的杨佳，会有隐忍十年而终于手刃杀母仇人的张扣扣，所有这一切归结起来就是一句话——你不给我一个说法，我就要给你一个说法。但是在我要给你一个说法背后那些血淋淋的现实，却总是让我们在长舒一口恶气之后无法释怀，因为让复仇者与作恶者同归于尽，这永远不是我们想要看到的结果。
+
+撰稿：喜马拉雅的肉夹馍
+
+审核：喜马拉雅的馍夹肉
+
+校对：Maarago
+
+（文章内容仅代表作者个人观点）
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

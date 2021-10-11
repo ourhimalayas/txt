@@ -2,46 +2,25 @@
 ---
 
 
-## 被村霸欺压的欧金中被逼提刀重演杨佳和张扣扣的复仇路
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1587453/)
+## 秘翻在线：默克制药请求FDA为抗中共病毒新药做紧急批准
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1587519/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/捕获_副本-8.png)
-据[**新京报我们视频**](https://weibo.com/6124642021?refer_flag=1001030103_) [2021年10月11日10:00](https://weibo.com/6124642021/KCcHAjG6k?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+**翻译：雨季仰光**
 
-【[#福建莆田重大刑案已致2死3伤#](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E8%8E%86%E7%94%B0%E9%87%8D%E5%A4%A7%E5%88%91%E6%A1%88%E5%B7%B2%E8%87%B42%E6%AD%BB3%E4%BC%A4%23) [#莆田悬赏5万元征集重大刑案线索#](https://s.weibo.com/weibo?q=%23%E8%8E%86%E7%94%B0%E6%82%AC%E8%B5%8F5%E4%B8%87%E5%85%83%E5%BE%81%E9%9B%86%E9%87%8D%E5%A4%A7%E5%88%91%E6%A1%88%E7%BA%BF%E7%B4%A2%23)】10月10日，福建省莆田市公安局秀屿分局发布协查通报，当日13时许，秀屿区平海镇上林村发生一起重大刑事案件，村民欧某中有重大作案嫌疑。[@新京报我们视频](https://weibo.com/n/%E6%96%B0%E4%BA%AC%E6%8A%A5%E6%88%91%E4%BB%AC%E8%A7%86%E9%A2%91) 11日从上林村村干部处获悉，案件目前造成2人死亡3人受伤。平海镇政府发布悬赏通告，对提供有价值线索者将奖励5万元。[#福建莆田发生重大刑案#](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E8%8E%86%E7%94%B0%E5%8F%91%E7%94%9F%E9%87%8D%E5%A4%A7%E5%88%91%E6%A1%88%23)[#蓝V视界#](https://s.weibo.com/weibo?q=%23%E8%93%9DV%E8%A7%86%E7%95%8C%23) [L新京报我们视频的微博视频](http://t.cn/A6MoFH1z) （记者：张榕晋 制作：李东旭 运营：马冉）
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/11-7.png)[图片来源](https://www.youtube.com/watch?app=desktop&amp;v=dMhtirG9Szw)
+据零对冲（Zerohedge）10月11日报道，尽管有不少科学家们警告默克制药生产的抗中共病毒新药存在诸如致癌及（婴儿）先天性畸形的有tu害副作用，默克制药公司依然正式提交了其研发的名为莫纳皮拉韦（Molnupiravir）药品申请，希望FDA给与批准。一旦获得批准，它将是首款用于治疗中共病毒的药品。
 
-关于这个欧某中杀人的原委据[**一博胖迪都是我的**](https://weibo.com/5983225886?refer_flag=1001030103_)[2021年10月11日19:47](https://weibo.com/5983225886/KCgxYcNN9?refer_flag=1001030103_) 来自 [HUAWEI Mate 30 5G](https://app.weibo.com/t/feed/1EuKP9)
+根据《纽约时报》（New York Times）报道，鉴于它能以相对不太昂贵的代价治疗许多高风险中共病毒患者，此药将会彻底改变其治疗方式，尤其是针对那些尚未接种的人群（此药也仅仅测试了未接种人群）。然而，这个药品仍将是默克的摇钱树，因为默克计划收取制药成本的40倍费用来销售。
 
-[#用户736182#](https://s.weibo.com/weibo?q=%23%E7%94%A8%E6%88%B7736182%23) 不明白为什么账号不见了，虽然他做错了，但是还是希望更多人知道这件事情的原委 ​
+尽管价格不菲，在药品获批之前，很多国家和政府都争相排队希望获得默克的订单。默克已经与美国，南韩，新加坡，马来西亚，澳大利亚及其他等政府达成交易。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/001-9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/002-5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/003-2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/004-1.jpg)
+价值 700美元的药物疗程是4粒一次，每日两次，服用五天为一疗程。据默克公布的实验数据—也是备受医生及科学家们恭维的—它使住院和死亡数据减半（尽管实验被监督委员会缩短了时间因为他们宣称获得的数据是如此正面，而不需更多安慰剂组对照实验）。据息，FDA批准将在数周内获得。一旦批准，高达一千万美国人将合法使用此药，但最初的供应量将不会太充裕，美国已订一百七十万疗程药品。
 
+与此同时其他制药公司也即将公布他们自己的抗病毒药片的实验数据。下个月，由辉瑞（Pfizer）以及阿提制药（Atea Pharmaceuticals）联合罗氏(Roche)制药的抗中共病毒药片将宣布他们的研究结果。
 
-欧金中杀人肯定是不对的，但是每每看到这样被逼无奈之下的绝杀，在内心深处却总也忍不住长舒一口恶气，终于让这些作恶的村干部、村霸们付出了生命的代价。因为欧金中的遭遇每个草根都会感同身受，区别仅在于无助以及被威胁恐吓的程度轻重而已，区别仅在于每个受到强权挤压的草根是在绝望中忍辱偷生还是忍无可忍，终于无需再忍。
+FDA除了批准或否决之外还有很多决定需要做。它还必须决定是否药品对于孕妇或其他一些风险人是否能合格使用。最初，默克仅寻求为高风险成人获得使用授权，包括诸如超过60岁，有肥胖症，糖料病或心脏病的人士。
 
-因为这个社会已经彻底失去了让草根得到公平和正义的机会，所以在忍无可忍之下会出现手刃警察的杨佳，会有隐忍十年而终于手刃杀母仇人的张扣扣，所有这一切归结起来就是一句话——你不给我一个说法，我就要给你一个说法。但是在我要给你一个说法背后那些血淋淋的现实，却总是让我们在长舒一口恶气之后无法释怀，因为让复仇者与作恶者同归于尽，这永远不是我们想要看到的结果。
+为什么FDA如此双标，对待一个尚存风险，短期仓促上马生产，实验人数和时间都被缩减的所谓新药如此偏向性支持，而对几十年成熟安全药品，大量实验数据证明有效的如硫酸羟氯喹，伊维菌素和青蒿素等真正廉价药品的使用避而不谈，视而不见？高于生产成本40倍的药品还号称“相对不昂贵”，这个世界是真的集体疯狂还是被某些黑暗势力所愚弄到如此可悲的境地呢？这种状况还会持续多久呢？我们拭目以待。
 
-撰稿：喜马拉雅的肉夹馍
-
-审核：喜马拉雅的馍夹肉
-
-校对：Maarago
-
-（文章内容仅代表作者个人观点）
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+新闻来源：[Merck Asks FDA For Emergency Approval Of New COVID Drug Despite Safety Concerns](https://www.zerohedge.com/covid-19/merck-asks-fda-emergency-approval-new-covid-drug-despite-safety-concerns)

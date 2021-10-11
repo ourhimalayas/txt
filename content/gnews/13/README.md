@@ -2,27 +2,43 @@
 ---
 
 
-## Moderna疫苗引发心脏炎症 冰岛宣布停止使用
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1587885/)
+## 尽管存在安全问题，默克公司要求FDA紧急批准COVID新药
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1587918/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+作者：纽约香草山农场 – 四季
 
-10月8日，冰岛宣布停止使用Moderna疫苗，因为该国卫生部的一份报告显示，Moderna疫苗使心肌炎的“发病率增加”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-冰岛卫生部发布的声明称，“在接种Moderna疫苗后，心肌炎（myocarditis）和心包炎（pericarditis）的发病率增加。”冰岛将完全停止使用该疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1408091042271758-600x400-1.jpg)图片来自于网络
 
-日前，因同样担心Moderna疫苗的副作用，瑞典、芬兰、丹麦和挪威已经限制了对Moderna疫苗的使用。
 
-瑞典卫生机构表示，来自瑞典和其它北欧国家的新数据表明，“Moderna的疫苗与接种后出现的副作用之间的联系特别清楚，尤其是在第二剂接种注射之后。
 
-*注：本文仅代表作者观点，与 Gnews无关*
+据[零对冲](https://www.zerohedge.com/covid-19/merck-asks-fda-emergency-approval-new-covid-drug-despite-safety-concerns)10月11日报道，尽管科学家们警告默克公司，该公司的新COVID药物可能有严重的有害副作用，如导致癌症和出生缺陷，默克公司还是正式向FDA提交了该药物-莫努匹拉韦（Molnupiravir），等待批准。如果它被批准，这将是第一个治疗冠状病毒的抗病毒药物。
 
-*参考链接：*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1184-1-merck30.jpg)图片来源：零对冲
 
-[冰岛停止使用Moderna疫苗 称或引发心脏炎症](https://www.epochtimes.com/gb/21/10/9/n13293389.htm)
+《纽约时报》表示，该药物将彻底改变COVID的治疗方法，因为它能够以相对低廉的价格治疗更多罹患COVID的高危患者，但默克公司正计划向客户收取高达40倍的制造成本。
 
-* * *
+尽管价格不菲，但各国甚至在该药物获得批准之前就已经开始排队与默克公司进行交易。目前，默克公司已经与美国政府以及韩国、新加坡、马来西亚、澳大利亚和其他国家达成了协议。据《纽约时报》报道，批准可能会在几周内到来。这样看来，廉价，安全和有效的伊维菌素和羟氯喹是不可能被批准使用了。
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

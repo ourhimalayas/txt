@@ -2,27 +2,43 @@
 ---
 
 
-## 独家！康涅狄格号南海遭撞击系中共潜艇所为
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1587628/)
+## 你能相信莫德纳疫苗吗？—冰岛加入瑞典和丹麦的行列并说“不！”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1587691/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+评论：***当媒体被收买，医疗被垄断，政府被邪恶的力量控制时，善良的人民将被默默谋杀。新中国联邦揭露毒疫苗害人的真相已经在世界范围广泛传播，希望各国民众都能尽快迅速醒来，拒绝接种疫苗！***
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-10.png)
-文章仅代表作者本人观点，与Gnews无关
+据《thegatewaypundit》作者：Larry Johnson，2021年10月9日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2486.png)图片来源：www.thegatewaypundit.com
+我的妻子和我，完全过于相信疫苗，在莫德纳疫苗问世的时候就接种了它。我们在医学上并非一无所知。我妻子实际上是一个全国知名的重症监护室的护士长。你现在可以嘲笑我们“信任”政府专家。但我妻子现在已经明确表示—不再打针了。
 
-视频参看：2021.10.11早GTV新闻访谈
+第二次疫苗接种后的几个星期，我出现了一些心脏反应。心房颤动和心悸。幸运的是，这些症状是暂时的，在一天之内就消散了。
 
-[https://gtv.org/broadcast/watch/61642ebc304e992109b387e8](https://gtv.org/broadcast/watch/61642ebc304e992109b387e8)
+那么你看到冰岛做了什么吗？他们宣布将不再使用莫德纳疫苗。不仅仅是对青少年或30岁以下的人。对所有人都是如此。因为根据他们的卫生当局，心脏问题的风险太高。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+冰岛加入了瑞典和丹麦的行列，在其国内停止了莫德纳疫苗接种。
+冰岛百分之七十四的人都接种了疫苗。如果该疫苗像广告中所说的那样起作用，冰岛就不应该再与不断上升的Covid感染作斗争。但这并没有发生，病例正在上升。事实上，冰岛政府今天发布了新的法令，以应对不断上升的病例数量。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
+社交聚会限制在10人以内。
+宗教活动最多可以容纳30人。
+游泳池和健身房关闭，接触性运动、剧院、酒馆、视频老虎机厅和电影院也关闭。
+餐馆最多只能容纳20人，并且必须在22:00关闭。
+商店最多可以容纳50人，小型商店要更少一些。
+发廊和美容院可以继续经营。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+此外，据宣布，阿斯利康公司的疫苗也将恢复。将有足够的疫苗供应量来覆盖70岁以上的人和医护人员。
+近几周来，疫苗接种的速度加快了。目前，有19,887人已经完全接种两针疫苗，并在之后完成了至少两周的宽限期。38,142人已经接受了第一针，58,029人已经接受了两针，18,255人的疫苗接种已经开始。
+
+如果疫苗是有效的—即保护接种者并阻止新的病例—冰岛就不必施加新的限制。随着时间的推移，情况变得越来越清楚—疫苗不起作用。接种疫苗，风险自负。至于我和我的家人再也不会再注射疫苗了。
+
+原文连接：[https://www.thegatewaypundit.com/2021/10/can-trust-moderna-vaccine-iceland-joins-sweden-denmark-says-no/](https://www.thegatewaypundit.com/2021/10/can-trust-moderna-vaccine-iceland-joins-sweden-denmark-says-no/)
+
+文章评论仅代表个人观点
+
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – Wendy
+编辑：洛杉矶盘古农场 – Wendy
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

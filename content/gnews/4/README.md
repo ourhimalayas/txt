@@ -2,34 +2,61 @@
 ---
 
 
-## 也门40万儿童面临饥饿威胁生命
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1588000/)
+## 13岁圭亚那男孩接种第二剂辉瑞疫苗两小时后死亡，调查已展开
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1588034/)
 
-新闻来源：德国法兰克福报网络版
+译评：香草山商业部 – 文锤
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/jemen-taizz-ein-maedchen-haelt.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-资料来源：FAZ
 
-也门约有三分之二的人口依赖人道主义援助。一位联合国代表说，南部不断蔓延的战斗正在恶化也门的局势。
 
-据联合国称，在内战国家也门有近 40 万儿童面临饥饿。联合国也门协调员戴维·格雷斯利周一在日内瓦表示，在七年的冲突之后，有 2000 万人需要帮助，占总人口的三分之二。战斗的扩大使无数人的情况变得更糟，特别是在该国南部。格雷斯利说，世界上最严重的人道主义危机正在阿拉伯半岛上肆虐。
 
-胡塞叛军正在争取独立，自 2014 年以来已经占领了该国大部分地区。自 2015 年以来，沙特阿拉伯一直与其他国家站在国际公认的政府一边，对胡塞武装进行军事行动。逊尼派王国将他们视为什叶派大敌伊朗的盟友。
 
-格雷斯利 赞扬了德国慷慨的财政支持。尽管如此，在 3 月份计算的大约 38 亿美元用于对民众的人道主义支持中，仅收到了大约 21 亿美元（18 亿欧元）。
 
-格雷斯利 说，为寻求政治解决冲突而作出的认真努力正在取得进展。但人们不能等待停火重建。世界绝不能让整整一代人长大后只知道冲突。
+### **针对这名少年的死亡所进行的全面调查已被启动，同时对其尸体的尸检已进行。**
 
-格雷斯利说，人们需要工作来维持生计。渔业必须振兴，港口和机场必须开放。必须开始学校运作。官员们将不得不再次获得足够的报酬，以免他们也变得贫困。为此，也必须刺激经济以寻找支付资源。周日晚上，空中监视区又增加了三个航班。像往常一样，台湾空军升空了自己的战斗机作为回应。与此同时，台湾正在考虑将空中监视区划分为监视预警区，并在不同阶段做出相应反应。这也是降低意外事件的风险的考虑。
+![13岁地区一名男孩在第二剂辉瑞疫苗两小时后死亡;已展开调查](https://newssourcegy.com/wp-content/themes/main/timthumb.php?src=https%3A%2F%2Fnewssourcegy.com%2Fwp-content%2Fuploads%2F2021%2F08%2F210622-pfizer-covid-vaccine-ew-118p.jpeg&amp;q=90&amp;w=795&amp;zc=1)[图片来源](https://newssourcegy.com/news/13-year-old-region-one-boy-dies-two-hours-after-2nd-dose-pfizer-vaccine-investigation-launched/)
 
-[https://www.faz.net/aktuell/politik/ausland/un-400-000-kindern-im-jemen-droht-der-hungertod-17580612.html](https://www.faz.net/aktuell/politik/ausland/un-400-000-kindern-im-jemen-droht-der-hungertod-17580612.html)
+卫生部证实，一名 13 岁的 Moruca 男孩在接种辉瑞公司的第二剂疫苗两小时后死亡，该疫苗为被用于为儿童接种的 COVID-19 疫苗。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+针对这名少年的死亡所进行的全面调查已被启动，同时对其尸体的尸检已进行。
 
-校对：旦旦
+据卫生部称，三周前，这名小男孩接种了第一剂辉瑞疫苗。
 
-责任编辑/发布： Shuizhuyu
+他于今天下午 2:00 接种了第二剂疫苗。他在接种疫苗后被观察了 20 分钟，没有任何不适。他被允许回家。
+
+回到家两个小时后，小男孩倒地不起，被紧急送往库马卡医院，抵达时被宣布死亡。
+
+“我们敦促市民不要沉迷于猜测，并等待验尸和其他调查的结果。
+
+卫生部向小男孩的家人表示慰问。
+
+圭亚那在近一个月前开始为儿童接种辉瑞疫苗。有人投诉儿童在接受第一剂后生病，但副作用并不致命。
+
+译者评论：还要失去多少年轻生命来证明疫苗是杀人而不是救人？还要用多少悲痛和苦难唤醒全球的人类：CCP是人类的公敌！
+
+**原文阅读：**
+
+[13-year-old Region One boy dies two hours after 2nd dose Pfizer vaccine; Investigation launched – News Source Guyana (newssourcegy.com)](https://newssourcegy.com/news/13-year-old-region-one-boy-dies-two-hours-after-2nd-dose-pfizer-vaccine-investigation-launched/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

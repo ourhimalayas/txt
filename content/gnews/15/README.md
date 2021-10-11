@@ -2,54 +2,43 @@
 ---
 
 
-## 最后期限临近 数十万美军仍未接种
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1587872/)
+## 海关官员在芝加哥查获救命的伊维菌素和羟氯喹
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1587911/)
 
-- **编译：Lulumi**
+作者：纽约香草山农场 – 四季
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip305.png)
 
-据《华盛顿邮报》报道，现役军人的最后接种疫苗的期限，很快就到了。虽然军队的整体疫苗接种率有所提高，但仍未达到完全合规。
 
-五角大楼在8月宣布，它将要求所有军人接种病毒疫苗，但允许各军种设定单独的疫苗接种期限。
 
-现役陆军士兵在12月15日之前，而预备役和国民警卫队单位在2022年6月30日之前。
+[网关专家](https://www.thegatewaypundit.com/2021/10/custom-officials-seize-small-packages-lifesaving-ivermectin-hydroxychloroquine-chicago-record-amounts-ivermectin-continue-flow-across-southern-border/)10月10日报道，根据海关和边境保护局（CBP）的一份新闻稿，含有伊维菌素和羟氯喹的货物10月4日在芝加哥被海关官员查获。
 
-现役空军和太空部队守护者在11月2日之前，而空军预备役人员和警卫部队在12月2日之前。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1184.jpeg)**图片：Soumyabrata NURPHOTO VIA GETTY IMAGES**
 
-现役水兵和海军陆战队员在11月28日前，预备役人员在12月28日前。
+芝加哥奥黑尔机场海关缴获了两个小包裹，其中一个内含100粒伊维菌素，另一个内含32粒伊维菌素和40粒羟氯喹。
 
-全面接种的要求意味着最后的疫苗（或强生公司的一针）必须在截止日期前至少两个星期进行接种。
+羟氯喹以前曾获得美国食品和药物管理局的紧急使用授权，用于治疗COVID-19，但在6月，该机构废除了其授权，并警告不要在医院以外的地方使用它。伊维菌素甚至在医院也被禁止。显然，这些安全，廉价和有效的药物被政治化了。
 
-从数字上看，《华盛顿邮报》获得的数据表明，军方为其员工全面接种疫苗的努力，在一定程度上分散在各个部门。
+（本文仅代表作者观点）
 
-数据显示，大约90%的现役海军对中共病毒进行了全面免疫（疫苗接种）。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
 
-相比之下，面临着与海军相同的11月28日的最后期限的现役海军陆战队，接种率只达到72%。
+编辑/校对/发稿：小鹿
 
-军事政策专家凯瑟琳·库兹明斯基(Katherine Kuzminski)告诉《华邮》：”陆军的政策是鼓励不采取行动，直到最晚的可能日期”。
 
-根据《华邮》，陆军发言人特伦斯·凯利（Terence Kelley）中校说：”我们希望所有未接种疫苗的士兵能够尽快接受疫苗。个别士兵需要在有疫苗时接种疫苗。”
 
-值得注意的是：所有76.3万名国防部文职雇员必须在11月22日之前完全接种疫苗。
+**更多资讯，更多关注**
 
-**评论：**
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**美国陆军以拖待变的策略比较明智，说明陆军决策的人很清楚疫苗的危害。**
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**文贵先生一直在大声疾呼疫苗危害，疫苗灾难，不仅仅在救中国人，救新中国联邦人，也在拯救全世界有慧根打破惯性思维的人。**
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**突破惯性认知屏障不需要多高的智商，多高的学历，只需要遵从内心相信真和善，就会有识破虚假与邪恶的大智慧。**
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-（文章仅代表作者观点，与GNEWS无关）
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**来源：[Axios新闻网](https://www.axios.com/military-coronavirus-vaccine-mandate-98a5bb7f-5b01-419a-bc05-14d232dc3b50.html)  | 作者：Yacob Reyes 发布时间：2021年10月10日 | 素材：Wenwu **
-
-* * *
-
-***审核：文乐
-校对：信心满满
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
