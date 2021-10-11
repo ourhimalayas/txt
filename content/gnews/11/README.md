@@ -2,16 +2,22 @@
 ---
 
 
-## 科技巨头在澳洲成立“错误信息”评审小组 此举被批“可笑”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1586434/)
+## 9月份英国中共病毒死亡病例几乎全都完全接种疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1586477/)
 
-#### 撰稿：坤霆
+#### 撰稿：花岗岩
 校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-20.jpg)图片来源：the Hustle
-据路透社10月11日报道，周一，在Facebook、谷歌和推特的澳大利亚子公司的支持下，一家科技机构（The Digital Industry Group Inc）表示，它成立了一个行业小组来裁决对错误信息的投诉，一天前，政府正在考虑采取措施，让社交媒体公司承担更多责任，包括强迫该平台对平台上发布的内容承担法律责任。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-31.jpg)图片来源：网络截图
+据自然新闻10月10日报道，根据英国国家统计局（ONS）发布的最新数据，在9月份因中共病毒死亡的所有人中，有81%是按照政府指南完全接种疫苗的。
 
-DIGI董事总经理苏尼塔.博世（Sunita Bose）在一份声明中表示，科技巨头已经同意了一项针对错误信息的行为守则，“我们希望通过专家的独立监督和公共问责制进一步加强该守则。”
+英国国家统计局无意间透露，英国在9月约有30,305人在注射中共病毒疫苗后的21天内死亡。此前曾说他们不掌握这些信息。事实证明，他们确实掌握了这些信息，但不想公开，因为它破坏了政府和医疗系统中关于福奇“中共病毒疫苗安全有效”的主流说法。
 
-专注于技术对民主影响的倡导团体Reset Australia表示，评审小组很“可笑”，因为它不涉及处罚，行为守则是可选的。其在一份声明中表示，鉴于最近几周Facebook的负面公关，DIGI的规范只不过是一个公关噱头。
+国家统计局的报告被用来欺骗公众，让他们相信只有1%的完全接种疫苗的人死于中共病毒，但并不包括在这次极其奇怪的第三波中共病毒死亡事件中已经和正在发生的死亡事件，《人类自由》报道说。
 
-新闻来源：[Facebook-backed group launches misinformation adjudication panel in Australia](https://www.reuters.com/technology/facebook-backed-group-launches-misinformation-adjudication-panel-australia-2021-10-11/)
+这些疫苗显然不是95%的有效，除非他们所说的“有效”是指这些接种正在伤害和杀死大多数接种疫苗的人，也许这才是大流行病的真正目的。在这种情况下，世界人口确实正在以光速被“拉平”，而数百万人对此一无所知，因为他们故意无知和盲目相信系统会以某种方式将他们的最佳利益放在心上。
+
+任何声称支持 “科学”的人，如果在谈到普遍遵守中共国病毒疫苗接种的“新常态”时，他们继续相信福奇和CNN 之类的观点，那都是在自欺欺人。
+
+数据清楚地表明，注射疫苗并不能防止感染或传播，即使在夏季和初秋，它们也在增加住院和死亡的风险，而此时疾病和死亡应该是最低的。我们现在面临的问题是冬天就快到了。
+
+新闻链接：[Nearly all “covid” deaths in September occurred in the fully vaccinated](https://www.naturalnews.com/2021-10-10-nearly-all-covid-deaths-september-fully-vaccinated.html)

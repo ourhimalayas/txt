@@ -2,22 +2,16 @@
 ---
 
 
-## 危机前兆？日本东北地区米价异常
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1586383/)
+## 科技巨头在澳洲成立“错误信息”评审小组 此举被批“可笑”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1586434/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-190.png)（图片源自本文链接）
-10月11日日本“河北新报”报道：日本东北全农协各县向农协总部提交的2021年大米作物的支付额估算结果显示，主要品牌大幅下降。
+#### 撰稿：坤霆
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-20.jpg)图片来源：the Hustle
+据路透社10月11日报道，周一，在Facebook、谷歌和推特的澳大利亚子公司的支持下，一家科技机构（The Digital Industry Group Inc）表示，它成立了一个行业小组来裁决对错误信息的投诉，一天前，政府正在考虑采取措施，让社交媒体公司承担更多责任，包括强迫该平台对平台上发布的内容承担法律责任。
 
-尽管种植业进行了大规模种植种类调整，减少了大米产量，但中共病毒导致需求下滑，特别是商业用途的需求下降，致使大米过剩情况看不到尽头。在东北地区，中共病毒的冲击正在蔓延。
+DIGI董事总经理苏尼塔.博世（Sunita Bose）在一份声明中表示，科技巨头已经同意了一项针对错误信息的行为守则，“我们希望通过专家的独立监督和公共问责制进一步加强该守则。”
 
-然而，与生产者对大米价格下跌的沮丧相比，零售商店里却挤满了寻找新米的购物者。例如, 9月底，仙台市宫城野区的宫城合作社商店开始销售2021年宫城县本地产的“一见钟情”，5公斤的价格为1780日元（不含税），比去年同期低100日元。 这是连续第二年降低售价。
+专注于技术对民主影响的倡导团体Reset Australia表示，评审小组很“可笑”，因为它不涉及处罚，行为守则是可选的。其在一份声明中表示，鉴于最近几周Facebook的负面公关，DIGI的规范只不过是一个公关噱头。
 
-[信息源](https://news.yahoo.co.jp/articles/4ca80cd48c59c3a52ac1bb1220b3893ad318b621)
-
-笔者在日本经营过稻米相关公司，以自己的拙见，这很可能导致稻农纷纷降低2022年的稻米种植计划。从目前日本的蔬菜类作物价格暴涨上看，明年很可能出现大米供应不足，米价暴涨的主食短缺危机。日本国民以大米为主食，日本是非常重视稻米文化的岛国，每年会在全国各县巡回进行国际稻米大赛。一旦大米出现供不应求、价格暴涨情况，会引起怎样的恐慌，令人担忧！
-
-（文章仅代表作者个人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+新闻来源：[Facebook-backed group launches misinformation adjudication panel in Australia](https://www.reuters.com/technology/facebook-backed-group-launches-misinformation-adjudication-panel-australia-2021-10-11/)

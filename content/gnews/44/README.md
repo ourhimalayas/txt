@@ -2,23 +2,9 @@
 ---
 
 
-## 以科学破除中共病毒疫苗的迷思
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1585884/)
+## 习近平辛亥革命110周年演讲发出强烈信号，坚决完成武统台湾
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1585885/)
 
-#### 翻译：Lish
-校对： 枳实
-字幕/剪辑：蛮吉
+10/08/2021 中共中央委员会总书记习近平发表纪念辛亥革命110周年演讲，强调台湾统一符合两岸人民的共同利益，台独分裂是祖国统一的最大障碍，是民族复兴的严重隐患，并且凡是数典忘祖，背叛祖国，分裂国家的人从来没有好下场，以及台湾问题属于中共国内政，不容外来干涉。郭文贵先生在宣讲后在盖特上贴文指出，这次共产党的宣讲大会结束后中共将以孙灭台，武统台湾。因此台湾危了！
 
-这位医生在听证会上用不足6分钟戳穿了关于中共病毒疫苗的种种谎言，并指出了防疫策略的根本性错误。
-
-
-
-发布：枳实
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

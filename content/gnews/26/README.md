@@ -2,38 +2,37 @@
 ---
 
 
-## 什么是稳定币？ 与黄金挂钩还是与美元挂钩？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1586204/)
+## 默克在大流行牟取暴利：Covid-19药丸成本17 美元卖712美元
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1586316/)
 
-作者：香草山金融部 – 闲聊钱币
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/eight_col_molnu-capsule5.jpg)
+图片来源：rnz.co.nz
 
+整理报道：小红帽
 
+默克公司（Merck）推出中共病毒（ Covid-19 ）五天疗程的新药，其生产成本为17.74美元，但该制药公司将向美国收取712美元。这意味着美国纳税人将支付这 40 倍的加价费用。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+美国政府向默克公司提供了约2900万美元用于开发莫匹拉韦（molnupiravir,），该公司称该药物在中共病毒患者的临床试验中“将住院或死亡的风险降低了约50%”。尽管有这笔慷慨的资金，默克公司仍将向美国政府收取大约712美元的费用，用于为期五天疗程药费。
 
+“**从大流行中牟取暴利是制药公司需要避免的事情**，”无国界医生（（MSF/Doctors Without Borders）全球准入运动的莉娜·孟加尼（Leena Menghaney）告诉，《今日俄罗斯》（ RT）。
 
+**莫匹拉韦等药物的仿制药生产是孟加尼对价格问题的解决方案。**但是，该药物是默克的知识产权，其他公司不能合法复制。同样，辉瑞即将推出的中共病毒药丸也是它自己的财产。辉瑞的产品起到“蛋白酶抑制剂”的作用，可以阻止中共病毒在体内繁殖。另一种蛋白酶抑制剂是低成本的通用药物-伊维菌素，一些研究表明它对中共病毒有类似作用。
 
-根据Investopedia网站的定义，为了提供一定的稳定性，任何与储备资产挂钩的数字代币都属于稳定币的范畴。
+**该药物已经在印度进行仿制药生产和测试，孟加尼表示，一个疗程的成本在15到20美元之间。**然而，这种仿制药解决方案仍在等待批准。这些更便宜的药丸在知识产权法执行力度大的国家/地区将无法获得。
 
-在虚拟代币的持续变化的发展史中，人们很难预测它们的波动性。有些，比如比特币可以在一天内浮动几千美元；而另一些则早早退出了历史舞台，比如OneCoin, BitConnect等。因此人们寻求将虚拟代币和储备资产挂钩从而获得一定的稳定性。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-12.jpg)
-黄金是各国央行的储备资产，美元是世界的储备货币。因此将虚拟代币和黄金美元挂钩成为必然。
+孟加尼认为，**在大流行期间，应该简单地违反知识产权法。 “像俄罗斯和巴西这样有能力生产药物的国家应该不顾专利壁垒而继续生产这些药物，”**
 
-单独与黄金挂钩的虚拟代币或者单独与美元挂钩的虚拟代币都已经出现。然而，新中国联邦的H-Dollar和H-Coin开虚拟币的先河，同时和黄金美元挂钩，这是其它币种望尘莫及的。同时伴随着G生态圈的全面发展，喜币必然会被越来越多的人喜爱接受。
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-（本文仅代表作者观点）
+**参考新闻：**[With Merck charging US government an ‘outrageous’ $700 for $17 Covid pills, MSF official tells RT that world needs cheap generics — RT World News](https://www.rt.com/news/537116-merck-expensive-covid-pill-generic-drugs/)
 
-参考来源：[https://www.investopedia.com/terms/s/stablecoin.asp](https://www.investopedia.com/terms/s/stablecoin.asp)
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

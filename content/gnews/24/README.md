@@ -2,20 +2,18 @@
 ---
 
 
-## 雅典娜时报-第078期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1586210/)
+## 美海军工程师和妻子被指控向外国出售核潜艇机密
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1586393/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+#### 撰稿：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-54.jpg)图片来源：网络截图
+据合众国际社10月10日报道，美国司法部周日表示，来自马里兰州安纳波利的42岁的美国海军核工程师乔纳森·托贝和他45岁的妻子戴安娜·托贝，因向外国政府提供军事机密于周六在西弗吉尼亚州被联邦调查局和海军刑事调查局逮捕。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/10/12-4.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/13-1.png)
-（文章内容仅代表作者个人观点，与GNEWS无关）
+他们被控向一名冒充外国代表的联邦调查局特工出售了有关一艘核动力军舰设计的内部资料，时间超过了一年。托比曾是一名海军核工程师，拥有有效的国家安全许可，可以获取内部资料。两人都被指控违反了《原子能法》。
 
-***发布：小红帽***
+根据指控，他在2020年4月1日向一个外国政府发送一个寄件地址是匹兹堡的包裹，其中包含一个内部资料的样本，在该国的一名联邦调查局官员获得了这个包裹，并开始与托比进行沟通。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+2021年6月8日，这名卧底向托布发送了1万美元的加密货币作为回报。托布和他的妻子开始前往西弗吉尼亚州和宾夕法尼亚州的一些地方，在那里他们将存有内部资料的SD卡，伪装在包括花生酱三明治和口香糖包装的物品中。
+
+新闻来源：[U.S. Navy engineer, wife accused of selling secrets to foreign nation](https://www.upi.com/Top_News/US/2021/10/10/Navy-engineer-wife-arrested-selling-secrets-foreign-nation/9291633894218/)
