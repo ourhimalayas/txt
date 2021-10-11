@@ -2,11 +2,18 @@
 ---
 
 
-## 习近誓言统一台湾，蔡英文回应“绝不屈服”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1586253/)
+## 美海军工程师和妻子被指控向外国出售核潜艇机密
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1586393/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10112-scaled.jpg)
-（文章仅代表作者个人观点，与GNEWS无关）
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 /平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+#### 撰稿：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-54.jpg)图片来源：网络截图
+据合众国际社10月10日报道，美国司法部周日表示，来自马里兰州安纳波利的42岁的美国海军核工程师乔纳森·托贝和他45岁的妻子戴安娜·托贝，因向外国政府提供军事机密于周六在西弗吉尼亚州被联邦调查局和海军刑事调查局逮捕。
+
+他们被控向一名冒充外国代表的联邦调查局特工出售了有关一艘核动力军舰设计的内部资料，时间超过了一年。托比曾是一名海军核工程师，拥有有效的国家安全许可，可以获取内部资料。两人都被指控违反了《原子能法》。
+
+根据指控，他在2020年4月1日向一个外国政府发送一个寄件地址是匹兹堡的包裹，其中包含一个内部资料的样本，在该国的一名联邦调查局官员获得了这个包裹，并开始与托比进行沟通。
+
+2021年6月8日，这名卧底向托布发送了1万美元的加密货币作为回报。托布和他的妻子开始前往西弗吉尼亚州和宾夕法尼亚州的一些地方，在那里他们将存有内部资料的SD卡，伪装在包括花生酱三明治和口香糖包装的物品中。
+
+新闻来源：[U.S. Navy engineer, wife accused of selling secrets to foreign nation](https://www.upi.com/Top_News/US/2021/10/10/Navy-engineer-wife-arrested-selling-secrets-foreign-nation/9291633894218/)

@@ -2,24 +2,57 @@
 ---
 
 
-## 245年来，美国面临严重的国家安全危机
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1586539/)
+## 西南航空试图掩盖本周末被迫取消近 2000 次航班的背后真相
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1586584/)
 
-**翻译/剪辑：**冠军他姨
-**编辑：**翼族
+作者：文一
 
-黑暗正在笼罩美利坚共和国——新闻媒体集体噤声，社交媒体删除和审查言论，而事实上，美国军队和国土安全部人员多达一半的人被迫离开他们的工作，因为他们拒绝接种中共病毒（COVID-19）疫苗。
 
-建国245年来，没有一个敌人能够像中共这样，利用病毒和疫苗破坏美国的军队和美国的国防，美国正处于一个严重的国家安全危机中，而这也是由美国内部产生的危机。美国人必须站起来并肩作战，因为不可想象的事情会接踵而来，否则中共很快就会完全控制美国。
 
-一切都已经开始！
 
-（视频文字仅代表作者个人观点，与GNEWS无关）
 
-*发布：翼族*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+
+
+
+
+【BPR】10 月 10 日报道，美国西南航空公司仅在本周末就取消了近 2000 个航班，其原因是由于公司内部出现大规模的反抗强制接种疫苗的抗议活动。
+
+NBC证实，西南航空公司周日取消了1000多个航班，占其时间表的 27%，周六有 808 个航班被取消。该公司在宣布航班取消时，试图掩盖航班取消的背后真相，将其归咎于空乘人员请病假、空中交通管制和恶劣天气。
+
+而该公司飞行员协会对强制接种疫苗提出诉讼，正好是从本周六开始的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-41.jpg)
+据彭博社报道，该诉讼，要求法院“暂时阻止该公司进行联邦规定的冠状病毒疫苗接种，直到现有的关于涉嫌违反美国劳动法的诉讼得到解决”。
+
+该协会还要求达拉斯的一家联邦法院立即对该请求进行听证，声称该航空公司继续采取违反《劳工法》条款的单边行动，包括威胁解雇任何在2021年12月8日前没有完全接种疫苗的飞行员。
+
+各行各业的民众都在觉醒，并拿起法律武器对抗违宪的疫苗强制政策，保护自己的权利、健康和生命。
+
+参考链接：
+[Southwest Airlines tried to cover up mass ‘sickout’ over vaccine mandate that impacted well over 1000 flights: report](https://www.bizpacreview.com/2021/10/10/southwest-airlines-tried-to-cover-up-mass-sickout-over-vaccine-mandate-that-impacted-well-over-1000-flights-report-1146902/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Q大哥
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

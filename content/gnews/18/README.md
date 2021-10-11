@@ -2,16 +2,18 @@
 ---
 
 
-## 科技巨头在澳洲成立“错误信息”评审小组 此举被批“可笑”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1586434/)
+## 火灾导致的停电迫使东京地区火车线停摆 二十多万人受影响
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1586449/)
 
-#### 撰稿：坤霆
+#### 撰稿：沙子最怕你不理它
 校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-20.jpg)图片来源：the Hustle
-据路透社10月11日报道，周一，在Facebook、谷歌和推特的澳大利亚子公司的支持下，一家科技机构（The Digital Industry Group Inc）表示，它成立了一个行业小组来裁决对错误信息的投诉，一天前，政府正在考虑采取措施，让社交媒体公司承担更多责任，包括强迫该平台对平台上发布的内容承担法律责任。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-29.jpg)图片来源：网络截图
+据东京共同社10月10日报道，东日本旅客铁道株式会社（简称JR东日本）在东京附近运营的一个主要变电站失火，因此导致停电，迫使东京地区多条火车线路整条或部分暂时停运，约236,000人受到影响。
 
-DIGI董事总经理苏尼塔.博世（Sunita Bose）在一份声明中表示，科技巨头已经同意了一项针对错误信息的行为守则，“我们希望通过专家的独立监督和公共问责制进一步加强该守则。”
+埼玉县消防局在下午12:55左右接到电话，报告该市变电站设施发生火灾。三个半小时后，火灾得到控制，站内一个放置变压器的房间被烧毁，但无人员伤亡。火灾原因仍在调查中。
 
-专注于技术对民主影响的倡导团体Reset Australia表示，评审小组很“可笑”，因为它不涉及处罚，行为守则是可选的。其在一份声明中表示，鉴于最近几周Facebook的负面公关，DIGI的规范只不过是一个公关噱头。
+JR东日本因此暂停了包括（Yamanote）、京滨东北线 （Keihin-Tohoku）和常磐线（Joban）在内的多条线路。
 
-新闻来源：[Facebook-backed group launches misinformation adjudication panel in Australia](https://www.reuters.com/technology/facebook-backed-group-launches-misinformation-adjudication-panel-australia-2021-10-11/)
+事故后，山手线在内的大多数受影响线路已经恢复运营，但连接东京北部贡马省和东木县以及首都以南神奈川县的湘南新宿线（Shonanan-Shinjuku）的一部分线路当天剩余时间继续停运。此次事故给乘客带来了不便，部分站点附近的地面交通排起了百人长队。
+
+新闻来源：[Fire-caused power outage hits trains in Tokyo area, 236,000 affected](https://english.kyodonews.net/news/2021/10/44b40774fe01-breaking-news-extensive-power-outage-hits-jr-trains-in-tokyo-area.html)

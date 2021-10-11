@@ -2,20 +2,16 @@
 ---
 
 
-## 871 名消防员欲对洛杉矶疫苗强制令发起诉讼
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1586399/)
+## 科技巨头在澳洲成立“错误信息”评审小组 此举被批“可笑”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1586434/)
 
-#### 撰稿：Evalu
+#### 撰稿：坤霆
 校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-27.jpg)图片来源：Epochtime
-零对冲网10月10日报道，由于洛杉矶政府强制要求政府工作人员打疫苗，约1/4的洛杉矶消防局消防员想要起诉该市政府。10月7日，871名消防员联合发表声明，欲通过法律诉讼寻求每位250万的损害赔偿。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-20.jpg)图片来源：the Hustle
+据路透社10月11日报道，周一，在Facebook、谷歌和推特的澳大利亚子公司的支持下，一家科技机构（The Digital Industry Group Inc）表示，它成立了一个行业小组来裁决对错误信息的投诉，一天前，政府正在考虑采取措施，让社交媒体公司承担更多责任，包括强迫该平台对平台上发布的内容承担法律责任。
 
-洛杉矶市委员会于8月份发出一项条例，要求所有市政府雇员都要打二剂中共病毒疫苗，或到10月5日至少要打过一剂疫苗，除非有医学或宗教原因可以例外，即使例外，也要常规测试中共病毒。
+DIGI董事总经理苏尼塔.博世（Sunita Bose）在一份声明中表示，科技巨头已经同意了一项针对错误信息的行为守则，“我们希望通过专家的独立监督和公共问责制进一步加强该守则。”
 
-为消防员们打官司的原告律师凯文·麦克布来德说：“这个申诉将依据加州民事诉讼中的无限公民案例发至上诉法庭”。麦克布来德律师说这个诉讼意向是源于洛杉机消防局要求每位消防员除非例外，均必须在10月20日达到完全接种，不然将会被赶回家5天没有收入，如果他们5天后还不愿打疫苗，就将被解雇。律师写道该疫苗强制令是“公然地错误执行”，理由是干涉了雇用权利，引起情绪上的疾患，违背了《宪法》规定的私人权力，违反了医学试验法中的人权保护。
+专注于技术对民主影响的倡导团体Reset Australia表示，评审小组很“可笑”，因为它不涉及处罚，行为守则是可选的。其在一份声明中表示，鉴于最近几周Facebook的负面公关，DIGI的规范只不过是一个公关噱头。
 
-原告们是洛杉机联合消防员工会的成员，该工会于10月4日的公告中已申明其立场，“市政府不能强制任何有关10月5日打疫苗到期日的后果，市政府的条例不能有任何后果，任何条例必须先与工会协商。”
-
-但洛杉矶市政府律师麦克·弗优尔说：“美国高院和全国法院都支持疫苗强制令，我很自信我们会赢。”
-
-新闻来源： [871 Firefighters File Intent To Sue Over LA’s COVID-19 Vaccine Mandate](https://www.zerohedge.com/political/871-firefighters-file-intent-sue-over-las-covid-19-vaccine-mandate)
+新闻来源：[Facebook-backed group launches misinformation adjudication panel in Australia](https://www.reuters.com/technology/facebook-backed-group-launches-misinformation-adjudication-panel-australia-2021-10-11/)
