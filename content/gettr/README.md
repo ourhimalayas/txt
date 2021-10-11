@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/11/2021 3:26 PM (UTC)`
+
+10月11号：尊敬的战友们好！七哥来啦，来啦……来啦！
+![img](https://media.gettr.com/group8/getter/2021/10/11/15/26/2cdcd1ee-c772-c5b6-f23e-00c375042027/out.jpg)
+
+---
+
 `@miles 10/11/2021 2:50 PM (UTC)`
 
 变成共产主义的8个步骤！<br/><br/>【这么漂亮，还不打喵喵的，以后前途无量啊！】
@@ -287,13 +294,6 @@ Sep 7th,2017, Miles Guo revealed that even though Fu Zhenghua was under protecti
 
 Project Veritas releases videos series to expose the truth of the CCP Virus vaccine<br/><br/>“真理项目”发布系列视频揭露中共病毒的真相<br/>
 ![img](https://media.gettr.com/group10/getter/2021/10/07/13/47/22e3bd4b-6184-1a7e-5383-f738a19801e0/out.jpg)
-
----
-
-`@miles 10/7/2021 1:38 PM (UTC)`
-
-10月7号：尊敬的战友们好……太多战友给我发信息，要求直播啦，受不了啦，马上开始乱聊直播。
-![img](https://media.gettr.com/group19/getter/2021/10/07/13/38/b17841ec-f35a-8d06-74a1-69955d9a7e91/2ed728637a1e9667ffdd6d99fa94bcd2.jpg)
 
 ---
 
