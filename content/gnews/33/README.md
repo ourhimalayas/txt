@@ -2,50 +2,36 @@
 ---
 
 
-## 2021/10/11 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1587017/)
+## 蒙眼封嘴，中共持续高筑网络墙
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1587085/)
 
-## 恶法吞噬人性
+作者：在远方
 
-视频注：老人摔倒后要首先声明不会讹人，他人想扶起老人，要事先录制自证清白的视频。这是缘于中共法院曾判决好心人“如果没撞倒人为什么要去扶”。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-## 疫苗杀人的超限手段
+10日中共新华社发文称，为维护公民信息安全，对APP 收集使用个人信息进行了专项治理，严打网络黑客、电信诈骗等行为，并对数千人采取了刑事强制措施。其实中共就是窃取公民信息的黑手和幕后指使，以警治国恶政之下，无处不在的摄像头和智能手机流氓软件，随时随地监控着百姓的言论和行动，老百姓得不到真实有效的信息，而且连说真话的权力也被封杀剥夺，稍有不满不慎便会被公安国保约谈喝茶，轻则治安拘留，重则会被刑事逮捕甚至判刑法办。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1011-AM-（1-3）.001.jpeg)
+互联网信息高度发达的，很多国人想要追寻真相，各类翻墙软件应运而生。中共唯有不断加高网络防火墙，权力打造与世隔绝的“楚门世界”般的愚弄洗脑。只有彻底推倒或者穿透中共的网络高墙，才能真正唤醒和拯救大多数国人，而这正是爆料革命正在努力促进的灭共进程之一 。
+(本文仅代表作者观点)
 
-视频注：全球因为接种疫苗死亡的人数无法被统计。为什么在大规模接种疫苗后，会频繁出现突然倒地？这值得人们的警觉。未来我们不希望看到这样的灾难在全球频繁发生，但恐怕我们也不得不面对那样的现实！请关注郭文贵先生关于疫苗对世界的警告！
+参考链接：
 
-## 放风式度假
-
-视频注：中共国庆旅游乱象，是中共人为制造的拥堵，十亿人同时在一个时间段开始假期。中国大陆普通人在其它时间，并没有选择度假的自由。老百姓的休假、休闲时间少得可怜，只有在中共批准的时间段，才可以像监狱中的犯人一样得到放风时间。
-
-## 反人性的红色宣传
-
-视频注：中共所谓解放全中国大陆人民的历史，都来自于谎言的编造。并且他们特别擅长进行反人性的宣传，以号召大家为了“全体人民”牺牲个体。“把手伸进腹部伤口扯断肠子牺牲”？原始出处描述也只有来自中共的党史文件。
-
-## 无法被监督的执法权力
-
-视频注：城管执法车辆无牌可以随性开？中共执法者的权力只是被自己象征性地虚假监督。所谓”赋予政府权力的人民“却从来没有这个监督执法的权力。行使监督中共权力的个人和团体在大陆会”被消失”。
-
-## 跪舔中共的台湾媒体
-
-视频注：视频中赖岳谦号称是台湾国际政治学者，是中华民国陆军上校。这样的舔共舆论宣传充斥着台湾电视各大平台。媒体社交平台是中共渗透世界制造舆论宣传的利器，台湾新闻媒体早已被中共渗透拿下。
-
-## 中共国人口负增长已不可逆
-
-视频注：中共政权对于出生人口下降的恐惧，缘于其需要更多机会压榨百姓：医疗、教育、劳动力、房地产等等。而中共曾经用“计划生育”对老百姓非人道地残害，以及中共国内经济恶化、民不聊生的现状，即使现在使出浑身解数却已无法逆转出生人口断崖式下跌。
-
-## 虚假的繁荣和真实的剥削
-
-视频注：中共国超高的经济总量和看似发达的城市景象，都是来自对每一个普通中国人的剥削。中共将资源垄断在城市，让人们无奈只能抛下老人和孩子，背井离乡的在虚假繁荣城市中寻求生机。
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+1. [共筑网络安全防线——我国网络安全工作取得积极进展](http://www.chinanews.com/gn/2021/10-10/9583015.shtml)
+2. [防火长城](https://zh.wikipedia.org/wiki/防火长城)
+3. [In China, the ‘Great Firewall’ Is Changing a Generation](https://www.politico.com/news/magazine/2020/09/01/china-great-firewall-generation-405385)
+4. [Exhaustive study puts China’s infamous Great Firewall under the microscope](https://portswigger.net/daily-swig/exhaustive-study-puts-chinas-infamous-great-firewall-under-the-microscope)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

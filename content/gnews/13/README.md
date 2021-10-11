@@ -2,33 +2,36 @@
 ---
 
 
-## 中共新冠疫苗埃及推展不顺再遭丢弃
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1587194/)
+## 共产党已瓜分台湾用台科技奴吞掉高科技在台建军事基地
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1587233/)
 
-作者：修文
+![](https://assets.gnews.org/wp-content/uploads/2021/10/jJjp-hqnkypr6570885_副本.jpg)
+据[2021年10月10日 文贵大直播：文贵在双十节给台湾同胞说的话：台湾凶也，中共与美方对台湾问题早有文字性承诺勾兑;习以孙灭台，与国民党卖台贼呼应；国内经济房地产的万亿债务危机，华平基金的腐败会把西方掏空，中美勾兑国债；中共通过对西方律师事务所的合作…](https://gtv.org/video/id=6162dd0f304e992109b2bc89)时间点1：06：51——
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台湾，我今天因为在纽约，我这跟美国他们见面的时候，我给他们画了这个图，每个都是用手机拍下来，说能不能拍下来，我说可以拍下来，我给他们画了画台湾整个岛的情况，我说整个台湾东岛半拉岛和西岛，多少人、怎么去驻这些芯片厂、科技厂、军事基地在哪。
 
-埃及明亚省贝尼迈扎尔一处污水沟，发现近日被人倾倒的，大量中共国药集团新冠疫苗，当局展开调查后发现卫生局仓库内另有4988盒疫苗不翼而飞。后锁定埃及生物制品和疫苗控股公司3人将其逮捕。这三人分别为药剂师、仓管人员、运货司机。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-206.png)
-据《今日埃及》报导，水沟旁一共有1万3412盒国药疫苗遭到丢弃，已无法使用，这批疫苗的价格在502万3200埃及镑，约人民币207万左右。埃及5日才刚在开罗机场接收国药送来的100万剂疫苗，以及可生产460万剂疫苗的原材料。
+我说最后共产党弄完以后把西边的人都移到福建、深圳，高科技人士是吧？1000多万人移到大陆去，绑架也就是，当奴隶去——科技奴工，包括双修性奴都可以，然后从大陆移4000万人到台湾西岛，东岛变成七大基地，南海舰队、东海舰队移到台湾，导弹基地。
 
-埃及政府表面配合，但实际各种拖延，并不买中共和世界卫生组织的账。此前新冠疫苗接种计划在当地推行并不顺利。这次在中共国药抵达后，发生了这种极为巧合的意外，说明埃及民众对中共毒疫苗的不信任感已经形成共识，为了民众的安全，疫苗公司工作人员才会自发站出来销毁毒疫苗，也是对当局推广疫苗计划的正面抗争。
+然后把东岛的所有的高级的粮食、水果全运到北京去，运到上海去，对吧？然后在整个台湾，除了那几个离岛，再建几个导弹基地、军事基地。然后就日本、美国彻底被淹杀在整个的所谓中国东海之外，那日本的冲绳就废了是吧？那什么样的潜水艇都不可能了。
 
-参考链接：
+（以下暂略）
 
-1. [不想用？埃及大量中國國藥武肺疫苗遭丟棄 當局逮捕3人](https://news.ltn.com.tw/news/world/breakingnews/3700054)
-2. [Egypt: Haphazard and flawed Covid-19 vaccine rollout fails to prioritize most at-risk](https://www.amnesty.org/en/latest/press-release/2021/06/egypt-haphazard-and-flawed-covid-19-vaccine-rollout-fails-to-prioritize-most-at-risk/)
+撰稿：喜马拉雅的肉夹馍；
 
+审核：喜马拉雅的馍夹肉；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+校对：Maarago
 
-新闻访谈终审: 暗黑
-编辑/校正/发稿：浪迹天涯
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

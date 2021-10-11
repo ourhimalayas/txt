@@ -2,37 +2,23 @@
 ---
 
 
-## 印度燃煤电力短缺，能源危机或将蔓延全球
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1587177/)
+## 210万越南工人加入返乡队伍，全球供应链危机加剧
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1587226/)
 
-作者：飞虹
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/45.jpg)[图片来源](https://news.un.org/zh/story/2021/01/1075302)
+越南是全球最大的制造中心之一，苹果、三星、耐克、阿迪达斯等企业都在该国斥巨资建厂。越南南部工业区是该国经济和制造业的主要区域，也是中共病毒疫情重灾区，数以万计的工人已经离开这地方。政府还预计，多达210万工人希望离开城市，加入返乡队伍。越南制造业的一些高层警告，工人加速离开工业区的风险将让人手短缺问题进一步加剧。此前，越南政府在施行严厉的封锁期间，工厂被要求在厂内为工人准备住所或暂时关闭，许多人选择返回家乡。而政府在10月1日放宽出行限制后，大量工人更是趁此机会返乡。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+亚洲是芯片、原材料和消费品(像运动鞋、玩具和汽车等)主要生产地，越南更是在制造业中扮演重要的角色。这些年来，由于生产成本较低以及政府的扶持，外资不断加大对越南的投资建厂，该国多年来一直是美国第二大服装和鞋类供应商。然而，疫情迫使亚洲各地的工厂和港口关闭，越南的供应链问题更是受全球瞩目。越南纺织服装协会主席VuDuc Giang表示，今年剩下的时间里，越南服装业工人可能会减少高达37%。越南皮革鞋类和手袋协会副主席PhanThi Thanh Xuan说，约有40%的制鞋业工人会返乡，但不清楚会有多少人回来。
 
-10月10日印度政府发布声明称印度煤炭储备充足，希望缓和国民对首都和其他大城市大规模停电的忧虑，但现实情况是，印度各大火电厂已经面临无煤可用的窘境，平均都仅剩4天的煤炭库存。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-205.png)
-印度是全球第2大煤炭消费国，燃煤发电占印度总电量的近70%，而所需煤炭约1/4要靠从国外进口。但在”病毒/疫苗组合拳”打击之下, 全球劳动力短缺、供应链压力不断加剧，国际市场煤炭价格持续上涨，部分地区同比上涨高达255%， 导致世界范围内煤炭供应在短期内难以弥补缺口。病毒、疫苗、供应链断裂、能源危机、金融崩塌、政府信任危机、即将出现的人道及次生灾难，郭文贵先生和爆料革命的预警,正在逐一验证并为现实。
+耐克CFOMatthewFriend上个月表示，公司在越南的工厂失去了10周的产能，并下调下一季度的业绩预期。越南新闻网站NDH表示，耐克已将一些订单转移到其他国家。疫情和封锁对越南的经济持续造成压力，据越南统计局预测，该国今年经济将增长2.5%，远低于6.5%的目标。在越南，德尔塔变种肆虐，疫苗接种率也是亚洲最低水平。
 
-(本文仅代表作者观点)
+新闻来源：
 
+[210万越南工人加速逃离工厂！ 全球供应链危机再加剧](http://stock.10jqka.com.cn/20211011/c633211961.shtml)
 
+(文章仅代表作者本人观点，与GNEWS无关)
 
-参考链接：
-
-1. [https://finance.sina.com.cn/money/forex/forexinfo/2021-10-11/doc-iktzscyx8976916.shtml](https://finance.sina.com.cn/money/forex/forexinfo/2021-10-11/doc-iktzscyx8976916.shtml)
-2. [能源危机-印度政府称电厂煤炭供应充足](https://www.rfi.fr/cn/中国/20211010-能源危机-印度政府称电厂煤炭供应充足)
-3. [能源危机：黎巴嫩因燃料短缺导致发电站停运，周六发生大规模停电](https://oil.in-en.com/html/oil-2929504.shtml)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
-
-新闻访谈终审: 文龙
-编辑/校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
