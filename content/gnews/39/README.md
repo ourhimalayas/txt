@@ -2,38 +2,30 @@
 ---
 
 
-## 什么是稳定币？ 与黄金挂钩还是与美元挂钩？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1586204/)
+## 为阻止强制疫苗 西南航空公司飞行员工会对该公司提起诉讼
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1586400/)
 
-作者：香草山金融部 – 闲聊钱币
+#### 撰稿：Grace
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-37.jpg)图片来源：网络截图
+乔·拜登于9月9日宣布联邦工作人员和联邦的合同者必须接种中共病毒疫苗，除非他们获得宗教或医疗豁免后，在10月初，**西南航空公司表示，根据联邦规定，其五万六千名工人，包括飞行员，必须在****12****月8****日前接种中共病毒疫苗**，因为该公司是联邦承包商，为政府的雇员和货物提供飞行以及其他服务。
 
+位于达拉斯的航空公司的首席执行官加里·凯利（Gary Kelly）上周告诉其员工：“西南航空公司是联邦承包商，我们没有可行的选择，只能遵守美国政府关于雇员接种疫苗的规定，而且像其他航空公司一样，我们正在采取措施遵守规定”。
 
+据《熊证中心》（Bear Witness Central）10 月11日报道，**在西南航空公司宣布了强制性中共病毒疫苗接种要求后，一个代表数千名西南航空公司飞行员的工会对该公司提起了诉讼。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+在最近的一份法庭文件中，西南航空公司飞行员协会（SWAPA）要求法官颁发临时禁令，反对强制接种疫苗的要求，同时还要求达拉斯的一个联邦法院立即对其要求进行听证。工会声称，这家位于德克萨斯州的航空公司的强制疫苗接种违反了《铁路劳工法》的条款。
 
+新的强制疫苗接种任务非法地强加了新的就业条件，新政策威胁要解雇任何在2021年12月8日之前没有完全接种疫苗的飞行员，”西南航空公司飞行员协会的律师在其法律文件中写道。“西南航空公司对双方集体谈判协议的额外新的和单方面的修改，明显违反了《铁路劳工法》”。
 
+该工会以及其他飞行员工会认为，中共病毒疫苗给飞行员带来了独特的风险，因为对该疫苗的任何不良反应都可能影响个人通过飞行所需的医疗要求的能力。
 
-根据Investopedia网站的定义，为了提供一定的稳定性，任何与储备资产挂钩的数字代币都属于稳定币的范畴。
+工会在诉讼中进一步辩称，根据《铁路劳动法》，联邦法院 “有权强制执行维持现状的责任”。
 
-在虚拟代币的持续变化的发展史中，人们很难预测它们的波动性。有些，比如比特币可以在一天内浮动几千美元；而另一些则早早退出了历史舞台，比如OneCoin, BitConnect等。因此人们寻求将虚拟代币和储备资产挂钩从而获得一定的稳定性。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-12.jpg)
-黄金是各国央行的储备资产，美元是世界的储备货币。因此将虚拟代币和黄金美元挂钩成为必然。
+在该工会网站上的一份声明中，其领导层说：“我们要非常清楚地说明：西南航空公司飞行员协会并不反对接种疫苗，但我们确实认为，在任何情况下，我们都有责任是代表我们的飞行员的健康和安全，并向公司提出他们的关注”。
 
-单独与黄金挂钩的虚拟代币或者单独与美元挂钩的虚拟代币都已经出现。然而，新中国联邦的H-Dollar和H-Coin开虚拟币的先河，同时和黄金美元挂钩，这是其它币种望尘莫及的。同时伴随着G生态圈的全面发展，喜币必然会被越来越多的人喜爱接受。
+然而，西南航空公司在给彭博新闻社的一份声明中说，该公司不需要与西南航空工会就中强制中共病毒疫苗进行谈判。
 
-（本文仅代表作者观点）
+西南航空公司表示该公司“不同意对于在过去几个月里任何与中共病毒有关的变化都需要谈判的这种西南航空工会的说法。”，西南航空公司还补充说将会与工会合作，因为他们要“继续应对持续的疫情所带来的挑战”。
 
-参考来源：[https://www.investopedia.com/terms/s/stablecoin.asp](https://www.investopedia.com/terms/s/stablecoin.asp)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+**新闻来源：**[**SOUTHWEST AIRLINES PILOTS UNION SUES TO BLOCK COVID-19 VACCINATION MANDATE**](https://bwcentral.org/2021/10/southwest-airlines-pilots-union-sues-to-block-covid-19-vaccination-mandate/)

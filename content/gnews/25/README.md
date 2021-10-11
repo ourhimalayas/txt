@@ -2,18 +2,55 @@
 ---
 
 
-## 多地全面开打第三针！中共继续推进疫苗杀人计划
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1586484/)
+## 美国航空限期员工接种新冠疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1586580/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1087-2.png)
-10月10日起，福建省厦门、晋江，安徽合肥市，广西桂林市等多地全面开展第三针中共病毒疫苗接种。
+作者：文真
 
-据中共通知要求，加强针必须选择同类别疫苗进行接种，优先优先在感染高风险人群、保障社会基本运行的关键岗位人员、60岁以上老年人等重点人群中加强免疫。
 
-中共一贯是正话反说，掩耳盗铃！当前，爆料革命揭露的中共病毒疫苗真相已为越来越多人了解，反疫苗运动也在全球不断兴起。疫苗真相一定会出来，强推疫苗的人也终将受到审判；希望中共在灭亡之前，尽量少带走一些无知的人，期盼善良的中国人尽快醒来，不要成为中共所利用的工具，被无辜牺牲。
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+
+
+
+
+
+
+
+据《夏洛特观察家报》报道，美国航空公司于10月6日，通过电子邮件通知所有在美员工，必须在11月24日之前完成新冠疫苗接种，否则将被解雇。该公司表示，此决定是响应拜登的总统令，即要求联邦承包商在12月8日前为员工接种新冠疫苗。
+
+据统计显示，受该决定影响，将有至少12.5万名美国航空的员工被强制要求接种新冠疫苗。
+
+据《达拉斯晨报》报道，10月7日，有数百名员工聚集在美国航空总部外，开始抗议这项强制要求。航空公司工人工会警告说，解雇未接种疫苗的员工会加剧工人的短缺和员工的倦怠，目前这两种情况已在恶化。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-57.jpg)
+此前，美国联合航空公司是美国第一家强制要求员工接种新冠疫苗的航空公司。西南航空、捷蓝航空和阿拉斯加航空也公布了强制接种要求。达美航空是目前唯一没有强制其员工接种新冠疫苗的航空公司。
+
+然而航空公司越来越强的施压，势必招来员工的不满与反弹，唤起更多的人以罢工游行等不合作方式展开回击。
+
+参考链接：
+[American Airlines to Employees: Get Vaccinated or Face Firing](https://www.breitbart.com/politics/2021/10/08/american-airlines-employees-get-vaccinated-fired/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Ryan
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
