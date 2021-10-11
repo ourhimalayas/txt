@@ -2,19 +2,15 @@
 ---
 
 
-## 秘翻在线：美国怀俄明州16岁女高中生因拒绝戴口罩被学校停课和逮捕
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1587018/)
+## 2021年10月10日 文贵先生盖特 6
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1587069/)
 
-#### 翻译/撰稿：zzballack
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-25.jpg)图片来源：Team Tucker Carlson
-据《网关专家》10月10日报道，美国怀俄明州拉勒米（Laramie）的一位16岁高中女生格蕾丝·史密斯（Grace Smith）之前因为拒绝遵从校董事会颁布的口罩强制令，没在课堂上佩戴口罩而被学校停课两次。
+10/10/2021 Miles Guo: Taiwan is in DANGER! Biden signed pro-CCP promises in writing; Three fundamental conditions for the US to sell out Taiwan: 1) The CCP continues buying the US Treasury securities; 2) The CCP and the US won’t stop military exchanges and won’t have military conflicts in the South China Sea and Taiwan; 3) The US firmly adheres to the “One-China policy” and opposes Taiwan independence, without emphasizing “neither side of the Taiwan Strait can change the status quo”; So, the CCP is essentially given the legitimacy to invade Taiwan in the name of Sun Yat-sen and eliminating Taiwan independence
 
-但当这位勇敢的学生再次试图不戴口罩去上课时，却被警察开了一张500美元的罚单。当被告知离开学校时，拒绝离开的她却被带上了手铐并被逮捕。
+10/10/2021 文贵直播: 台湾危矣！拜登签署了亲共的文字性承诺；美国卖台的三大根本条件：1) 中共继续买美国国债；2)保持中美军事交流，在南海和台湾不发生军事冲突；3) 美方坚决支持一中并反对台独，不强调”两岸任何一方不改变现状”；这等同于给了中共以孙中山和灭台独的名义拿下台湾的合法性
 
-据媒体报道，如果格蕾丝继续收到停课通知，她将被学校开除。但这位高中生并不打算退缩。她告诉当地媒体《拉勒米回旋镖》（Laramie Boomerang）说：“我所在的国家是一个保护上帝赋予人们的权利的国家，我被上帝赋予的权利应该受到保护，但这些权利却被剥夺了。我认为每个人都有戴口罩的自由，也有不戴口罩的权利，这视个人选择而定。”
+[【2021年10月10日】文贵先生盖特原文](https://gettr.com/post/pdrwt3d7e9)
 
-格蕾丝史密斯的家人已经聘请了一名律师进行反击。基督徒众筹网站GiveSendGo已为他们的法律行动筹集了1万8千多美元，募捐页面解释说：“格蕾丝是一名善良、有爱心、有同情心的高中生，她热爱舞蹈和戏剧，是个好学生。格蕾丝选择行使她的权利，不戴口罩上学。但校方以违反校董事会的口罩强制令为由让她停课甚至将其逮捕，格蕾丝还因此被同龄人和学校工作人员敌视。我们认为口罩强制令是非法的，违法了怀俄明州的宪法。我们呼吁大家为格蕾丝筹集资金，以声援格蕾丝捍卫她的公民自由以及怀俄明州其他正在遭受类似非法待遇的学生的公民自由的法律行动。让我们一起为公民的个人权利而战！”
-
-新闻来源：[WATCH: 16-Year-Old Wyoming Student Arrested for Not Wearing Mask, Entire School Placed on Lockdown](https://www.thegatewaypundit.com/2021/10/watch-16-year-old-wyoming-student-arrested-not-wearing-mask-entire-school-placed-lockdown/)
+**喜联盟Gnews编辑部**

@@ -15,110 +15,110 @@
 
 ---
 
-### [2021年10月10日 文贵先生盖特 5](/content/gnews/1/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月10日 文贵先生盖特 4](/content/gnews/2/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月10日 文贵先生盖特 3](/content/gnews/3/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月10日 文贵先生盖特 2](/content/gnews/4/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [秘翻在线：美国怀俄明州16岁女高中生因拒绝戴口罩被学校停课和逮捕](/content/gnews/5/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2021/10/11 墙内世界](/content/gnews/6/README.md)
+### [中共国洪灾：山西省近200万人流离失所](/content/gnews/1/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年10月10日 文贵先生盖特 1](/content/gnews/7/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月9日 文贵先生盖特 14](/content/gnews/8/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月9日 文贵先生盖特 13](/content/gnews/9/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [中共习近平阐释振兴中华奥义有无耻“六论”](/content/gnews/10/README.md)
- ` 儒为`
-
-### [2021年10月9日 文贵先生盖特 12](/content/gnews/11/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月9日 文贵先生盖特 11](/content/gnews/12/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月9日 文贵先生盖特 10](/content/gnews/13/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月9日 文贵先生盖特 9](/content/gnews/14/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月9日 文贵先生盖特 8](/content/gnews/15/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月9日 文贵先生盖特 7](/content/gnews/16/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [币圈新闻动态：尽量多买些HDO以便参与HCN上市盛宴](/content/gnews/17/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [DC大中华时事：中共国台办评民进党当局领导人讲话](/content/gnews/18/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [秘翻在线:佛州的空中交管员罢工导致数百航班被取消 主流媒体却对此噤声](/content/gnews/19/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [平安寿险“新银保模式”业务创新，还是概念包装？](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [台湾一有事，大陆就洪水](/content/gnews/21/README.md)
- ` 骄子`
-
-### [泽连科医生：疫苗不是用来对抗病毒，释放病毒是为引入疫苗（粤语配音）](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [疫苗可能造成多种致命疾病，引发潜在的种族灭绝事件（粤语配音）](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [10/05郭文贵直播：中共国假骗金融票据惊人必将引爆全球破产崩溃（粤语配音）](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [视觉展示mRNA疫苗对身体细胞做了什么以及如何引起血栓（粤语配音）](/content/gnews/25/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [前美国空军首席软件官认为美国在AI上输给了中共](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [纳瓦罗谈台湾：地缘政治上，中共利用病毒大幅加速推进力量](/content/gnews/27/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [人们没有理由感染中共病毒而死亡，因为我们有治疗措施](/content/gnews/28/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国海军工程师夫妇，出售核潜艇机密被捕](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
-
-### [加州州长强推儿童疫苗却不让女儿打](/content/gnews/30/README.md)
+### [2009年 Jane Burgermeister &#8220;疫苗接种恐怖主义 &#8220;的演讲 （一）](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [高盛三个月第3次调低美国今年经济增长预期](/content/gnews/31/README.md)
+### [2021年10月10日 文贵先生盖特 8](/content/gnews/3/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月10日 文贵先生盖特 7](/content/gnews/4/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月10日 文贵先生盖特 6](/content/gnews/5/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月10日 文贵先生盖特 5](/content/gnews/6/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月10日 文贵先生盖特 4](/content/gnews/7/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月10日 文贵先生盖特 3](/content/gnews/8/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月10日 文贵先生盖特 2](/content/gnews/9/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [秘翻在线：美国怀俄明州16岁女高中生因拒绝戴口罩被学校停课和逮捕](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2021/10/11 墙内世界](/content/gnews/11/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2021年10月10日 文贵先生盖特 1](/content/gnews/12/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月9日 文贵先生盖特 14](/content/gnews/13/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月9日 文贵先生盖特 13](/content/gnews/14/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [中共习近平阐释振兴中华奥义有无耻“六论”](/content/gnews/15/README.md)
+ ` 儒为`
+
+### [2021年10月9日 文贵先生盖特 12](/content/gnews/16/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月9日 文贵先生盖特 11](/content/gnews/17/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月9日 文贵先生盖特 10](/content/gnews/18/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [币圈新闻动态：尽量多买些HDO以便参与HCN上市盛宴](/content/gnews/19/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [DC大中华时事：中共国台办评民进党当局领导人讲话](/content/gnews/20/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [秘翻在线:佛州的空中交管员罢工导致数百航班被取消 主流媒体却对此噤声](/content/gnews/21/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [平安寿险“新银保模式”业务创新，还是概念包装？](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [肃清孙力军流毒成“重中之重”！公安系统再掀血雨腥风](/content/gnews/32/README.md)
+### [台湾一有事，大陆就洪水](/content/gnews/23/README.md)
+ ` 骄子`
+
+### [泽连科医生：疫苗不是用来对抗病毒，释放病毒是为引入疫苗（粤语配音）](/content/gnews/24/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [疫苗可能造成多种致命疾病，引发潜在的种族灭绝事件（粤语配音）](/content/gnews/25/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [10/05郭文贵直播：中共国假骗金融票据惊人必将引爆全球破产崩溃（粤语配音）](/content/gnews/26/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [视觉展示mRNA疫苗对身体细胞做了什么以及如何引起血栓（粤语配音）](/content/gnews/27/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [前美国空军首席软件官认为美国在AI上输给了中共](/content/gnews/28/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [纳瓦罗谈台湾：地缘政治上，中共利用病毒大幅加速推进力量](/content/gnews/29/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国海军工程师夫妇，出售核潜艇机密被捕](/content/gnews/30/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [加州州长强推儿童疫苗却不让女儿打](/content/gnews/31/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [高盛三个月第3次调低美国今年经济增长预期](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [计划募资250亿克朗！吉利力推沃尔沃年内瑞典IPO，以缓解杠杆压力](/content/gnews/33/README.md)
+### [肃清孙力军流毒成“重中之重”！公安系统再掀血雨腥风](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/34/README.md)
+### [计划募资250亿克朗！吉利力推沃尔沃年内瑞典IPO，以缓解杠杆压力](/content/gnews/34/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/35/README.md)
  ` wenwu`
-
-### [注册资本增至350亿增幅约47%!蚂蚁科技疑似股东洗牌？](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [法官：英国政府必须证明儿童中共疫苗是合理的](/content/gnews/36/README.md)
  ` wenwu`
