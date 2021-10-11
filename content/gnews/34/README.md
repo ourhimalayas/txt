@@ -2,27 +2,28 @@
 ---
 
 
-## 秘翻在线：联想返回A股梦想破灭 背后原因引发猜想
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1587321/)
+## 有声|中共全面禁止非公有资本开展新闻传媒业务
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1587419/)
 
-**撰稿：小韭菜a**
-
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-11-212921.jpg)图片来源：搜狐
-根据2021年10月11日新浪新闻报道，曾一度有望返回A股市场的联想梦想破灭。10月8日，上交所官网显示，因发行人撤回发行上市申请或者保荐人撤销保荐，联想集团科创板IPO审核状态变更为“终止”。
-
-联想的解释是考虑到公司业务规模及复杂程度而且决定撤回上市申请，然而外界猜测，科技含金量不够高或许是联想终止科创板上市的原因。此次事件已经导致联想集团港股跌幅超14%。
-
-10月5日G-news曾经报道过“联想有望返回A股市场”的消息，才短短一周的时间就出现大反转。郭先生直播提到“马明哲、柳传志是中国改革开放以来最需要了解的人物。” 联想上市计划破灭，可以反映出中共内部的斗争相当激烈。
-
-**[新闻来源](https://finance.sina.cn/2021-10-11/detail-iktzscyx9020388.d.html?from=wap)**
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
 
 
+据[美国之音](https://www.voachinese.com/a/China-proposes-bannig-non-public-fund-in-news-industry-20211010/6264770.html)10月10日报道，中国国家发展改革委员会10月8日在官网上发布《市场准入负面清单（2021年版）》，征求所谓的社会公众意见。该清单今年增加了涉及6个方面的“禁止”内容，其中包括禁止非公有资本开展新闻传媒相关业务。这意味着，当局将停止所有非公有资本投资或进入与新闻相关的产业。
 
-> [秘翻在线：联想有望返回A股市场](https://gnews.org/zh-hans/1574975/)
+中国政府一直在加紧对公众话语权的控制，指责娱乐界“污染”社会而加以整肃，要求规范互联网和手机浏览器资讯信息传播，停止传播“谣言”、取消使用耸人听闻的标题，禁止发布任何违反“社会主义核心价值”的内容等。
 
+北京拟议推出的不准非公有资本进入新闻业的新规定，显示中共当局在加紧全面控制中国社会，加大对言论控制的力度，这是中共国社会的又一次倒退。
 
+文字版原文：[中共全面禁止非公有资本开展新闻传媒业务](https://gnews.org/zh-hans/1585874/)
 
-关键词：联想股价暴跌，联想撤回上市申请
-
-**摘要：**曾一度有望返回A股市场的联想梦想破灭，10月8日，上交所官网显示，因发行人撤回发行上市申请或者保荐人撤销保荐，联想集团科创板IPO审核状态变更为“终止”。
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,25 +2,27 @@
 ---
 
 
-## 秘翻在线：默克制药请求FDA为抗中共病毒新药做紧急批准
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1587519/)
+## 文贵先生惊天爆料: 美国政府已背弃台湾!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1587549/)
 
-**翻译：雨季仰光**
+作者：文龍
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月10日的爆料革命战友连线直播中,文贵先生再爆惊天大料! 称他获得绝密情报, 在杨洁篪前往瑞士会晤苏利文之前，美国政府已与中共就台湾问题达成勾兑，台湾随时面临灭顶之灾!
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/11-7.png)[图片来源](https://www.youtube.com/watch?app=desktop&amp;v=dMhtirG9Szw)
-据零对冲（Zerohedge）10月11日报道，尽管有不少科学家们警告默克制药生产的抗中共病毒新药存在诸如致癌及（婴儿）先天性畸形的有tu害副作用，默克制药公司依然正式提交了其研发的名为莫纳皮拉韦（Molnupiravir）药品申请，希望FDA给与批准。一旦获得批准，它将是首款用于治疗中共病毒的药品。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-10.jpeg)
 
-根据《纽约时报》（New York Times）报道，鉴于它能以相对不太昂贵的代价治疗许多高风险中共病毒患者，此药将会彻底改变其治疗方式，尤其是针对那些尚未接种的人群（此药也仅仅测试了未接种人群）。然而，这个药品仍将是默克的摇钱树，因为默克计划收取制药成本的40倍费用来销售。
+在中美双方的这次勾兑中,台湾沦为谈判的筹码，美国现任政府为了保障国内经济稳定,最终顺利完成中期选举，决定背弃和出卖2300万台湾人民的利益，承诺中共：美军在台湾和南海不会有任何军事行动，在香港/新疆和台湾问题上，中美之间为非敌对竞争关系 , 承诺不试图推翻中共现行体制 等，拜登总统在该文件上签字后, 才有了双方在瑞士的会晤，而且美方明确坚持一中政策,反对台独,不再有”各自解释”的模糊界限 。文贵先生揭露的这一消息必然在海内外引发轩然大波!
 
-尽管价格不菲，在药品获批之前，很多国家和政府都争相排队希望获得默克的订单。默克已经与美国，南韩，新加坡，马来西亚，澳大利亚及其他等政府达成交易。
+文贵先生在直播中称,  ”  中共联合华尔街三千经理人和黑暗势力, 共同掏空了全世界包括美国的养老基金, 为了经济稳定假象和中期选举，2300万台湾人就这样被出卖! ” 文贵先生认为，美国政府这样做是愚蠢短视的，因为即使如此，疫苗灾难和次生灾难也无法避免，全世界包括美国的经济危机也无法解决!
 
-价值 700美元的药物疗程是4粒一次，每日两次，服用五天为一疗程。据默克公布的实验数据—也是备受医生及科学家们恭维的—它使住院和死亡数据减半（尽管实验被监督委员会缩短了时间因为他们宣称获得的数据是如此正面，而不需更多安慰剂组对照实验）。据息，FDA批准将在数周内获得。一旦批准，高达一千万美国人将合法使用此药，但最初的供应量将不会太充裕，美国已订一百七十万疗程药品。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-与此同时其他制药公司也即将公布他们自己的抗病毒药片的实验数据。下个月，由辉瑞（Pfizer）以及阿提制药（Atea Pharmaceuticals）联合罗氏(Roche)制药的抗中共病毒药片将宣布他们的研究结果。
+编辑/校正/发稿：谐趣园
 
-FDA除了批准或否决之外还有很多决定需要做。它还必须决定是否药品对于孕妇或其他一些风险人是否能合格使用。最初，默克仅寻求为高风险成人获得使用授权，包括诸如超过60岁，有肥胖症，糖料病或心脏病的人士。
-
-为什么FDA如此双标，对待一个尚存风险，短期仓促上马生产，实验人数和时间都被缩减的所谓新药如此偏向性支持，而对几十年成熟安全药品，大量实验数据证明有效的如硫酸羟氯喹，伊维菌素和青蒿素等真正廉价药品的使用避而不谈，视而不见？高于生产成本40倍的药品还号称“相对不昂贵”，这个世界是真的集体疯狂还是被某些黑暗势力所愚弄到如此可悲的境地呢？这种状况还会持续多久呢？我们拭目以待。
-
-新闻来源：[Merck Asks FDA For Emergency Approval Of New COVID Drug Despite Safety Concerns](https://www.zerohedge.com/covid-19/merck-asks-fda-emergency-approval-new-covid-drug-despite-safety-concerns)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

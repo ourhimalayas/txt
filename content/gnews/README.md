@@ -15,134 +15,134 @@
 
 ---
 
-### [狮城快讯：一个独立记者眼中的《反外国干涉法案》](/content/gnews/1/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [东南亚一周新闻回顾（2021年10月1日-10日）](/content/gnews/2/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [俄罗斯窃取了阿斯利康疫苗的秘密](/content/gnews/3/README.md)
- ` Charlie`
-
-### [你能相信莫德纳疫苗吗？—冰岛加入瑞典和丹麦的行列并说“不！”](/content/gnews/4/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [10/10/2021 七哥直播: 我们最早说出疫苗灾难和疫苗政治来自中共生化战](/content/gnews/5/README.md)
- ` 秘密翻译组-北美组`
-
-### [有声|西南航空飞行员工会起诉航空公司强制接种疫苗](/content/gnews/6/README.md)
- ` MOSREC`
-
-### [10/11/21 香港快讯 民主党内部报名参选截止 无人报名](/content/gnews/7/README.md)
- ` 英喜-粵語組`
-
-### [独家！康涅狄格号南海遭撞击系中共潜艇所为](/content/gnews/8/README.md)
- ` 纽约香草山MOS01`
-
-### [有声|台湾总统府发言人称中华民国是主权国家!](/content/gnews/9/README.md)
- ` MOSREC`
-
-### [10/11/2021国际财经快讯：美9月新增就业机会不足；全球能源紧缺导致原油跳涨](/content/gnews/10/README.md)
- ` 秘密翻译组金融团队`
-
-### [彭博社称俄罗斯已成最具吸引力的投资市场](/content/gnews/11/README.md)
+### [俄勒冈议员寻求大陪审团调查中共病毒数据操纵](/content/gnews/1/README.md)
  ` HimalayaRussia`
 
-### [2名儿童意外接种了 Covid 疫苗而不是流感疫苗，现在都患有心脏问题](/content/gnews/12/README.md)
+### [银河快讯：岸田没有改变金融所得税计划；承诺为中共病毒患者加强医疗系统](/content/gnews/2/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [围封＂民主墙＂，半个世纪的香港中文大学学会陨落](/content/gnews/3/README.md)
+ ` 聖城−香港`
+
+### [联盟工作汇报文字版摘要2021.10.10](/content/gnews/4/README.md)
+ ` 纽约香草山MOS02`
+
+### [狮城快讯：一个独立记者眼中的《反外国干涉法案》](/content/gnews/5/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [东南亚一周新闻回顾（2021年10月1日-10日）](/content/gnews/6/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [俄罗斯窃取了阿斯利康疫苗的秘密](/content/gnews/7/README.md)
+ ` Charlie`
+
+### [你能相信莫德纳疫苗吗？—冰岛加入瑞典和丹麦的行列并说“不！”](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文贵先生惊天爆料: 美国政府已背弃台湾!](/content/gnews/13/README.md)
- ` GTV新闻访谈`
-
-### [供不应求！日本半导体材料厂商相继启动增产](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [山雨欲来风满楼——美中卖台协议出炉](/content/gnews/15/README.md)
- ` 秘密翻译组-原创组`
-
-### [限期临近，超十万军人仍拒绝接种毒针疫苗](/content/gnews/16/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：默克制药请求FDA为抗中共病毒新药做紧急批准](/content/gnews/17/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声|抗议疫苗护照义务化 意大利爆发大规模示威活动](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [意料之中！岸田文雄表示“暂时不碰”金融所得税](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [西媒头条 — 第84期](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [数十万美军违抗命令 拒绝接种中共病毒疫苗](/content/gnews/21/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [停止疫苗接种——可能的马尔堡RiVax疫苗最终“解决”方案](/content/gnews/22/README.md)
- ` 波士顿五月花农场`
-
-### [马英九质疑蔡英文欲改国号是在为中共武统台湾铺路吗](/content/gnews/23/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [习近平纪念辛亥革命讲话，现场听众滥竽充数](/content/gnews/24/README.md)
- ` 波士顿五月花农场`
-
-### [被村霸欺压的欧金中被逼提刀重演杨佳和张扣扣的复仇路](/content/gnews/25/README.md)
- ` NewFOC`
-
-### [要闻：拜登总统与中共签署“秘密卖台协议” 废除“九二共识” 曝光](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [断网的原因是俄罗斯](/content/gnews/27/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [自传体小说连载之二十四：《我的忏悔录》](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [灵丹妙药不救坏人](/content/gnews/29/README.md)
- ` 银河勇气之星`
-
-### [有声|中共全面禁止非公有资本开展新闻传媒业务](/content/gnews/30/README.md)
- ` MOSREC`
-
-### [杨洁篪同沙利文举行会晤目的何在？](/content/gnews/31/README.md)
- ` 波士顿五月花农场`
-
-### [强制疫苗令严重阻碍美航空业正常运营](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [墙国限电，三峡谎言不攻自破](/content/gnews/33/README.md)
- ` 波士顿五月花农场`
-
-### [秘翻在线：联想返回A股梦想破灭 背后原因引发猜想](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [10/10/2021 七哥直播: 习近平辛亥革命演讲的九成观众是假的](/content/gnews/35/README.md)
+### [10/10/2021 七哥直播: 我们最早说出疫苗灾难和疫苗政治来自中共生化战](/content/gnews/9/README.md)
  ` 秘密翻译组-北美组`
 
-### [维多利亚州高级警官辞职，声称多数警察不相信 COVID规则](/content/gnews/36/README.md)
+### [有声|西南航空飞行员工会起诉航空公司强制接种疫苗](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [10/11/21 香港快讯 民主党内部报名参选截止 无人报名](/content/gnews/11/README.md)
+ ` 英喜-粵語組`
+
+### [独家！康涅狄格号南海遭撞击系中共潜艇所为](/content/gnews/12/README.md)
+ ` 纽约香草山MOS01`
+
+### [有声|台湾总统府发言人称中华民国是主权国家!](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [10/11/2021国际财经快讯：美9月新增就业机会不足；全球能源紧缺导致原油跳涨](/content/gnews/14/README.md)
+ ` 秘密翻译组金融团队`
+
+### [彭博社称俄罗斯已成最具吸引力的投资市场](/content/gnews/15/README.md)
+ ` HimalayaRussia`
+
+### [2名儿童意外接种了 Covid 疫苗而不是流感疫苗，现在都患有心脏问题](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [随遇而安 转化生命](/content/gnews/37/README.md)
+### [文贵先生惊天爆料: 美国政府已背弃台湾!](/content/gnews/17/README.md)
+ ` GTV新闻访谈`
+
+### [供不应求！日本半导体材料厂商相继启动增产](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共产党损失几十人干掉整个一艘潜艇以驱离美国于台湾外](/content/gnews/38/README.md)
- ` NewFOC`
+### [山雨欲来风满楼——美中卖台协议出炉](/content/gnews/19/README.md)
+ ` 秘密翻译组-原创组`
 
-### [天朝没有坏消息，是国人最后的坏消息](/content/gnews/39/README.md)
- ` 银河勇气之星`
+### [限期临近，超十万军人仍拒绝接种毒针疫苗](/content/gnews/20/README.md)
+ ` GTV新闻访谈`
 
-### [上交所终止联想科创版上市申请](/content/gnews/40/README.md)
- ` 日本东京方舟农场`
-
-### [秘翻在线:默克药厂葫芦里卖甚么药?](/content/gnews/41/README.md)
+### [秘翻在线：默克制药请求FDA为抗中共病毒新药做紧急批准](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [州长候选人和妻子患新冠 强烈反对新冠疫苗强制令](/content/gnews/42/README.md)
- ` GTV新闻访谈`
+### [有声|抗议疫苗护照义务化 意大利爆发大规模示威活动](/content/gnews/22/README.md)
+ ` MOSREC`
 
-### [中共新冠疫苗埃及推展不顺再遭丢弃](/content/gnews/43/README.md)
- ` GTV新闻访谈`
+### [意料之中！岸田文雄表示“暂时不碰”金融所得税](/content/gnews/23/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [西媒头条 — 第84期](/content/gnews/24/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [数十万美军违抗命令 拒绝接种中共病毒疫苗](/content/gnews/25/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [停止疫苗接种——可能的马尔堡RiVax疫苗最终“解决”方案](/content/gnews/26/README.md)
+ ` 波士顿五月花农场`
+
+### [马英九质疑蔡英文欲改国号是在为中共武统台湾铺路吗](/content/gnews/27/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [习近平纪念辛亥革命讲话，现场听众滥竽充数](/content/gnews/28/README.md)
+ ` 波士顿五月花农场`
+
+### [被村霸欺压的欧金中被逼提刀重演杨佳和张扣扣的复仇路](/content/gnews/29/README.md)
+ ` NewFOC`
+
+### [要闻：拜登总统与中共签署“秘密卖台协议” 废除“九二共识” 曝光](/content/gnews/30/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [断网的原因是俄罗斯](/content/gnews/31/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [自传体小说连载之二十四：《我的忏悔录》](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [灵丹妙药不救坏人](/content/gnews/33/README.md)
+ ` 银河勇气之星`
+
+### [有声|中共全面禁止非公有资本开展新闻传媒业务](/content/gnews/34/README.md)
+ ` MOSREC`
+
+### [杨洁篪同沙利文举行会晤目的何在？](/content/gnews/35/README.md)
+ ` 波士顿五月花农场`
+
+### [强制疫苗令严重阻碍美航空业正常运营](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [墙国限电，三峡谎言不攻自破](/content/gnews/37/README.md)
+ ` 波士顿五月花农场`
+
+### [秘翻在线：联想返回A股梦想破灭 背后原因引发猜想](/content/gnews/38/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [10/10/2021 七哥直播: 习近平辛亥革命演讲的九成观众是假的](/content/gnews/39/README.md)
+ ` 秘密翻译组-北美组`
+
+### [维多利亚州高级警官辞职，声称多数警察不相信 COVID规则](/content/gnews/40/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [随遇而安 转化生命](/content/gnews/41/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [共产党损失几十人干掉整个一艘潜艇以驱离美国于台湾外](/content/gnews/42/README.md)
+ ` NewFOC`
+
+### [秘翻在线:默克药厂葫芦里卖甚么药?](/content/gnews/43/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [美国正在透支国家信用](/content/gnews/44/README.md)
  ` 日本东京方舟农场`

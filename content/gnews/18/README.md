@@ -2,24 +2,34 @@
 ---
 
 
-## 有声|抗议疫苗护照义务化 意大利爆发大规模示威活动
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1587500/)
+## 供不应求！日本半导体材料厂商相继启动增产
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1587533/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-NHK消息, 为抗议从本月15日起新冠疫苗接种证明携带义务化的政令，意大利首都罗马爆发了大规模抗议活动 ，超过万人参加了游行示威活动 , 人们挤满了广场和街道，并高喊“自由！”口号，意大利政府出动了水车等对人游行人群进行驱离。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/供不应求！日本半导体材料厂商相继启动增产1.png)[图片来源](https://www.eet-china.com/news/202105311037.html)
+日经中文网10月9日报道，针对供不应求的市场局面，日本半导体材料厂商将相继开始增强产能。日本在半导体原材料产业方面一直保持着优势，在全球半导体短缺加剧的背景下，日本半导体材料厂商希望通过积极的设备投资进一步提高竞争力。
 
-截至本月9日，意大利全境已经有80%的接种者完成了疫苗接种。因此意大利政府决定出台政令, 所有人都必须携带疫苗接种证明或检测结果阴性证明，违反者将被禁止出入公共场所,不能搭乘公共交通甚至被停职 或被处以罚款。
+硅晶圆厂商SUMCO在9月30日宣布投资2287亿日元，增产最先进的直径300毫米晶圆。除了建设新工厂外，还将增强子公司的生产设备。SUMCO的会长桥本真幸在9月30日的在线记者会上针对目前的晶圆需求表示，“仅凭现有的生产设备，处于供不应求的局面”。SUMCO还宣布通过公募增资等方式筹集约1300亿日元，用于设备投资。关于公募增资，将在国内外新发行最多6000万股。相当于现在已发行股票数（2.9017亿股）的2成。
 
-文字版原文：[抗议疫苗护照义务化 意大利爆发大规模示威活动](https://gnews.org/zh-hans/1585551/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/供不应求！日本半导体材料厂商相继启动增产2.png)[图片来源](https://cn.nikkei.com/industry/manufacturing/46249-2021-10-09-05-00-09.html)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新工厂将投入2015亿日元，建在左贺县伊万里市的现有工厂的相邻地点。2022年开始建设厂房和设置生产线，2023年下半年分阶段投入运行。预定2025年实现满负荷生产。还将投入合计272亿日元，增强国内子公司的生产设备。增产规模因合同原因而未公开，但桥本会长表示“是与客户的5年合约，价格和数量都已敲定”。针对台湾等海外的生产设备表示，“正在讨论根据市场增长分阶段增产”。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/供不应求！日本半导体材料厂商相继启动增产3.png)[图片来源](https://cn.nikkei.com/industry/manufacturing/46249-2021-10-09-05-00-09.html)
+
+硅晶圆是半导体器件的基板材料，目前供求紧张。除了来自汽车领域的需求复苏之外，来自智能手机和数据中心等的洽购也很积极。最大厂商信越化学工业也维持满负荷生产状态。
+
+此外，其他半导体材料厂商也相继启动增产。富士胶片控股（HD）将在到2023财年（截至2024年3月）的3年里，向半导体材料业务投资700亿日元。核心是在硅晶圆上转印电路图案的光刻设备使用的光刻胶（感光材料）。将向静冈县工厂投入45亿日元，提高最尖端的EUV（极紫外）光刻胶的产能。
+
+住友电木将对中国子公司苏州住友电木有限公司投入25亿日元，建设新生产线。针对排在全球份额首位的半导体封装材料，把产能增至1.5倍。
+
+信息来源：
+
+[日本半导体材料厂商相继启动增产日经中文网](https://cn.nikkei.com/industry/manufacturing/46249-2021-10-09-05-00-09.html)
+
+（免责声明：文章仅代表作者本人观点，与GNEWS无关）
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)

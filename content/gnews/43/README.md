@@ -2,33 +2,31 @@
 ---
 
 
-## 中共新冠疫苗埃及推展不顺再遭丢弃
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1587194/)
+## 秘翻在线:默克药厂葫芦里卖甚么药?
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1587231/)
 
-作者：修文
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/p-1.jpg)
+图：AFP
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据《零对冲》报导，尽管科学家警告说，默克药厂推出新的中共病毒口服药物Molnupiravir可能导致癌症和先天缺陷等严重的副作用，默克仍然正式向 FDA 提交Molnupiravir 的报告等待批准。市场预料它即将成为第一种治疗中共病毒的口服药，默克股价因而上升。
 
-埃及明亚省贝尼迈扎尔一处污水沟，发现近日被人倾倒的，大量中共国药集团新冠疫苗，当局展开调查后发现卫生局仓库内另有4988盒疫苗不翼而飞。后锁定埃及生物制品和疫苗控股公司3人将其逮捕。这三人分别为药剂师、仓管人员、运货司机。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-206.png)
-据《今日埃及》报导，水沟旁一共有1万3412盒国药疫苗遭到丢弃，已无法使用，这批疫苗的价格在502万3200埃及镑，约人民币207万左右。埃及5日才刚在开罗机场接收国药送来的100万剂疫苗，以及可生产460万剂疫苗的原材料。
+**除了毒疫苗，昂贵的口服药正摩拳擦掌**
 
-埃及政府表面配合，但实际各种拖延，并不买中共和世界卫生组织的账。此前新冠疫苗接种计划在当地推行并不顺利。这次在中共国药抵达后，发生了这种极为巧合的意外，说明埃及民众对中共毒疫苗的不信任感已经形成共识，为了民众的安全，疫苗公司工作人员才会自发站出来销毁毒疫苗，也是对当局推广疫苗计划的正面抗争。
+据《纽约时报》报导，该药物将彻底改变中共病毒的治疗方式，尤其是那些尚未接种疫苗的患者（该药物仅在未接种疫苗的患者身上进行了测试）。每天两次服用四粒胶囊，连续五天，总共 40 粒，700 美元的药丸疗程令人咋舌。
 
-参考链接：
+尽管价格昂贵，各国政府在该药物尚未获得批准之前，就与默克公司达成交易。政商关系良好的默克早已与美国政府以及韩国、新加坡、马来西亚、澳大利亚甚至台湾达成某种协议。
 
-1. [不想用？埃及大量中國國藥武肺疫苗遭丟棄 當局逮捕3人](https://news.ltn.com.tw/news/world/breakingnews/3700054)
-2. [Egypt: Haphazard and flawed Covid-19 vaccine rollout fails to prioritize most at-risk](https://www.amnesty.org/en/latest/press-release/2021/06/egypt-haphazard-and-flawed-covid-19-vaccine-rollout-fails-to-prioritize-most-at-risk/)
+**各大药厂轮流打头阵,毒害人类**
 
+默克公司发布的试验数据令人质疑，它声称可使住院和死亡人数减少了一半。美国政府早已订购170万疗程所需的用药，一旦药物获得批准，多达一千万的美国人将适用该药物。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+根据大药厂之间轮流作庄的协议(譬如上次辉瑞先提出中共病毒疫苗)，这次轮到默克首先提出抗中共病毒口服用药，其他的大药厂也跟着粉墨登场，准备发布他们自己的抗病毒口服药丸实验的数据。辉瑞正在开发的一种抗病毒药丸， Atea 制药公司与罗氏公司合作开发的一种新型抗病毒药丸也将在未来几个月内报告研究结果。
 
-新闻访谈终审: 暗黑
-编辑/校正/发稿：浪迹天涯
+**FDA 是帮凶?**
 
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+起初默克公司只要求FDA授权将药丸用于高危险的成年人身上，包括60 岁以上、患有肥胖症、糖尿病或心脏病的人。然而FDA 还须确认其他的条件，譬如是否适用孕妇或者任何其他高危险人群?
+
+答案或许并不来自FDA，而是根据大药厂与FDA背后的交易，因为FDA早已不是为人民健康把关的组织，而是与大药厂沆瀣一气的邪恶力量。
+
+消息来源:[Merck Asks FDA For Emergency Approval Of New COVID Drug Despite Safety Concerns](http://Merck%20Asks%20FDA%20For%20Emergency%20Approval%20Of%20New%20COVID%20Drug%20Despite%20Safety%20Concerns)
