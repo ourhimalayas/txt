@@ -2,68 +2,53 @@
 ---
 
 
-## 2名儿童意外接种了 Covid 疫苗而不是流感疫苗，现在都患有心脏问题
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1587568/)
+## 10/11/2021国际财经快讯：美9月新增就业机会不足；全球能源紧缺导致原油跳涨
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1587591/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2489-1.png)
-[https://gtv.org/video/id=61643409d2e2b81748741007](https://gtv.org/video/id=61643409d2e2b81748741007)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-36.png)[图片来源](https://nypost.com)
+**1****.** **美****9****月新增就业机会不足**
 
-An Evansville family with children, four and five years old, 
-一个有四和五岁孩子的埃文斯维尔家庭
- 
-Say they are accidentally given full adult doses of the Pfizer Coronavirus vaccine, instead of flu shots. 
-说他们意外接种了成人剂量的辉瑞冠状病毒疫苗，而不是流感疫苗。
- 
-They say it happened on October 4 at the Walgreens of St Joseph Avenue, 
-他们说这件事发生在 10 月 4 日在圣约瑟夫大道的沃尔格林（药房）
- 
-the family of four includes two adults and two young children, 
-四口之家包括两个大人和两个小孩
- 
-both too young for the Pfizer or any other COVID vaccine. 
-对于辉瑞或任何其他 COVID 疫苗来说他们都太年轻了
- 
-While the family’s attorney Daniel Tuley shared with us what he says, 
-那个家庭的律师丹尼尔·图利与我们分享了他所说的话
- 
-our vaccination cards given to the family by Walgreens, 
-我们的疫苗接种卡是由 沃尔格林发给那个家庭的
- 
-they show children born in 2016 and 2017 
-他们展示了孩子是在 2016 年和 2017 年出生的
- 
-were given a Pfizer Coronavirus vaccine. 
-被注射了辉瑞冠状病毒疫苗
- 
-The family says they left the pharmacy thinking they had gotten their flu shots, 
-这家人说当他们离开了药房时， 他们以为打了流感疫苗
- 
-but a Walgreens employee later called them and said they had made a mistake. 
-但后来沃尔格林的一名员工打电话给他们而说他们搞错了
- 
-Tuley says the children had been taken to a pediatric cardiologist, 
-图利说孩子们被带到儿科心脏病专家处
- 
-and the family was told both are showing signs of heart issues. 
-而且家人被告知两孩子都有心脏问题的迹象
- 
-We reached out to Walgreens several times but have not yet heard back
-我们多次联系沃尔格林，但还没有得到回复
- 
- —————————————————————————
- Date:10/10/2021
-原视频标题: 2 children were accidentally given the Covid vaccine instead of flu shots and are now both suffering from heart issues
-2 名儿童意外接种了 Covid 疫苗而不是流感疫苗，现在都患有心脏问题
-原视频日期：2021/10/09
-原视频链接: [https://twitter.com/jsdfposjpqyuee1/status/1447014409243488261?s=21](https://twitter.com/jsdfposjpqyuee1/status/1447014409243488261?s=21)
-任务编号：KE338（2489）
-视频时间段 : 0:00-0:53
-英听校：洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – 郭友(文苏)
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[美国经济在9月份创造就业机会的速度远低于预期，尽管总量被政府就业的急剧下降所拖累，但这任然是一个关于经济状况的悲观信号。劳工部周五报告说，当月非农就业人数仅增加了19.4万人，而道琼斯估计为50万人。失业率降至4.8%，好于预期的5.1%，为2020年2月以来最低。头条数字受到了政府薪资减少12.3万的影响，而私人薪资增加了31.7万。失业率的下降是由于劳动力参与率的降低，这意味着更多在中共病毒疫情期间被排除在外的人已经回到了工作岗位。包括所谓的沮丧的工人和因经济原因从事兼职工作的人在内的一个更全面的数字下降到8.5%，也是疫情期间的低点。](https://www.cnbc.com/2021/10/08/september-jobs-report.html)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[然而，市场对这一消息的反应不大，道指期货周五上午大约持平，政府债券收益率有涨有跌，因为投资者正在消化这份好坏参半的报告。](https://www.cnbc.com/2021/10/08/september-jobs-report.html)
+
+**2.** **全球能源紧缺导致原油跳涨，美油创****7****年新高**
+
+[东京，10月11日（路透社）–油价周一再次飙升，延续了多周以来的涨势，因为在主要生产商限制供应的情况下，困扰主要经济体的能源危机没有缓解的迹象。截至0414GMT，布伦特原油上涨1.20美分，或1.5%，报每桶83.59美元，上周上涨了近4%。美油上涨1.51美元，或1.9%，报每桶80.86美元，为2014年底以来最高。截至周五，美国原油上涨了4.6%。](https://www.reuters.com/business/energy/oil-gains-energy-demand-rises-wti-tops-80-2021-10-11/)
+
+[随着更多接种疫苗的人口被带出禁闭区，支持经济活动的复苏，价格已经上涨，布伦特原油连续五周上涨，美国原油连续七周上涨。随着经济复苏，煤炭和天然气价格也在飙升，使石油作为发电燃料更具吸引力，推动了原油市场走高。随着取暖需求的增加，席卷全球的能源危机正在提高未来艰难的冬季的前景。商品期货交易委员会周五表示，在截至10月5日的一周内，基金经理增加了美国原油期货和期权的净多头头寸。](https://www.reuters.com/business/energy/oil-gains-energy-demand-rises-wti-tops-80-2021-10-11/)
+
+**3. ****耶伦称美国不应该在延长债务限额问题上援引第****14****修正案**
+
+[在周日的采访中，财政部长珍妮特-耶伦说，美国永远不应该考虑撤销第十四修正案以避免债务限额。白宫干预债务事务将是一个 “灾难性的局面”。已有专家们讨论了拜登白宫利用该修正案平息国会关于延长债务上限的斗争的可能性。他们引用了第十四修正案第四节，称美国的公共债务不得受到质疑。耶伦继续强调，国会有责任将债务之争搞定。她说， “因为国会要有决心支付政府积累的账单，这是他们的责任。我们不应该考虑第十四修正案是否适用。” 同时，耶伦仍然相信双方的立法者能够在12月3日提高债务上限的投票截止日期前达成妥协。](https://www.oann.com/yellen-the-u-s-should-never-be-in-the-position-to-invoke-14th-amendment-on-extending-debt-limit/)
+
+**4****.****美元兑日元接近****3****年高点，市场押注美联储缩表**
+
+[东京/香港，10月11日（路透社）–周一，美元兑日元升至近三年来的最高点，原因是尽管美国就业数据疲软，但投资者仍然相信美国联邦储备委员会将在下个月宣布缩减其大规模购债计划。上周五公布的这一就业数据推高了美国公债收益率，因此众所周知对收益率差最敏感的日元周一在亚洲时段下滑至每美元112.725日元–这一水平上次出现是在2018年12月。](https://www.reuters.com/business/dollar-nears-3-year-high-against-yen-markets-retain-bets-fed-taper-2021-10-11/)
+
+[由于英镑和澳元都对绿盘小幅上涨，日本货币也受到了向高风险货币的轻微倾斜，使得美元指数在94.154点时变化不大，离本月初触及的一年高点94.504点不远。美国货币和固定收益市场周一因假期休市，但是即使在数据显示美国经济在9月份创造了9个月来最少的就业机会，大大低于经济学家的预测，基准10年期国债收益率周五还是触及1.617%的四个月高点，](https://www.reuters.com/business/dollar-nears-3-year-high-against-yen-markets-retain-bets-fed-taper-2021-10-11/)
+
+**5****.** **煤炭短缺迫在眉睫，印度政府争夺所有资源以避免电力危机，**
+
+[由于能源价格的飙升，使用进口煤发电的印度电厂要么减少了运营，要么关闭了。为了确保发电厂有足够的原料来发电，印度中央政府在周日动用了其掌握的所有资源。此举是在从德里到安得拉邦的各州都发出警告，称由于煤炭短缺，电力危机正在发展。 联邦电力部长R-K-辛格审查了所有火力发电厂的煤炭库存。他还监督了向国家首都的配电公司供电的单位的情况。](https://www.wionews.com/india-news/to-avert-power-crisis-indian-govt-scrambles-all-resources-as-coal-shortage-looms-419725)
+
+[煤炭部说：”国内有充足的煤炭来满足需求，任何对电力供应中断的担心都是完全错误的。”  尽管该国今年的煤炭产量创下新高，但在煤炭生产地区的持续降雨影响了煤炭从矿区到发电站的运输。这对拉贾斯坦邦、德里、旁遮普和安得拉邦等许多州的发电单位产生了不利影响。](https://www.wionews.com/india-news/to-avert-power-crisis-indian-govt-scrambles-all-resources-as-coal-shortage-looms-419725)
+
+**6****.****美国最大的零售商租用私人货船绕过港口延误的问题**
+
+[全球供应链的延误如此严重，以至于一些美国最大的零售商采取了一种极端且昂贵的策略，试图在这个假日季节为货架备货。他们正在租用自己的货船来进口货物。港口延误、新冠疫情和工人短缺已经阻碍了亚洲和北美之间的产品流动，威胁到从节日装饰品和玩具到电器和家具的供应。零售业和航运业高管说，将货物运过太平洋大约需要80天，或比疫情前多一倍的时间。](https://www.wsj.com/articles/biggest-u-s-retailers-charter-private-cargo-ships-to-sail-around-port-delays-11633858380?mod=business_lead_pos1)
+
+[Walmart Inc，Home Depot Inc., Costco，Wholesale Corp. 和 Target Corp. –这些按营业额计算的美国最大的零售商–都是为自己的包船买单的公司，作为减轻干扰的广泛计划的一部分，这对大多数公司来说是一个昂贵的、不可实现的选择。一些连锁店正通过提高购物者的价格来转移这些额外的成本。](https://www.wsj.com/articles/biggest-u-s-retailers-charter-private-cargo-ships-to-sail-around-port-delays-11633858380?mod=business_lead_pos1)
+
+**7****．****加密货币巨富山姆****–****班克曼****–****弗里德买了数十亿的泰达币**
+
+[据《彭博商业周刊》关于稳定币的专题报道，FTX首席执行官山姆-班克曼-弗里德最近透露，他已经购买了数十亿的系绳，以帮助其他加密货币的交易。班克曼-弗里德6月在迈阿密举行的一次售罄的比特币会议上接受采访时说，与美元挂钩的最大的稳定币tether进行交易，比使用美元有一个关键优势。” 他说：”如果你是一家加密货币公司，银行会紧张地与你合作。](https://markets.businessinsider.com/news/currencies/sam-bankman-fried-tether-crypto-ftx-bitcoin-stablecoin-miami-fraud-2021-10)
+
+[正如Bankman-Fried所暗示的那样，泰达币对于加密货币交易所来说最大的优势是其使用的便利性。与其将加密货币兑换成美元–这可能会引起担心为洗钱提供便利的银行的不满–不如持有像tether泰达币这样的稳定币，原则上可以保留相同的价值，同时使其更容易深入到加密货币中。其他接受彭博社采访的加密货币交易员将使用泰达币作为中介货币描述为有效的行业标准，尽管他们对稳定币是否真的有美元支持持强烈的保留意见。其中一些泰达币用户甚至怀有阴谋论：它是中情局的黑钱后方通道，或者是政府追踪罪犯的计划。](https://markets.businessinsider.com/news/currencies/sam-bankman-fried-tether-crypto-ftx-bitcoin-stablecoin-miami-fraud-2021-10)
+
+**8.** **联邦学生援助署的科德雷详解加强对学生贷款的监督**
+
+[教育部（ED）的联邦学生援助办公室（FSA）负责监督政府庞大的学生贷款组合，上周启动了一个新的执法办公室，以全面改革对参与联邦学生贷款计划的高中后院校的监督。FSA首席运营官理查德-科德雷(Richard Cordray)是俄亥俄州的前总检察长，曾在奥巴马总统时期担任消费者金融保护局(CFPB)局长，并撰写了《看门狗：保护消费者如何拯救我们的家庭、经济和民主》，他在10月8日接受雅虎财经的独家采访时详细说明了为什么这项举措是他领导下的FSA的优先事项。在回答，“在学生贷款监督方面，拜登政府的优先事项是什么？”这问题时，他说，“我在那里的第一份工作是弄清楚如何在CFPB建立并设立和管理执法办公室，我在头六个月做了这个工作，然后被总统提名为CFPB的主任。但我的根基是在执法方面，可以追溯到作为一名总检察长。”](https://finance.yahoo.com/news/student-loans-richard-cordray-interview-171759340.html)
+
+By【秘密翻译组-金融组】
+作者：Opal
