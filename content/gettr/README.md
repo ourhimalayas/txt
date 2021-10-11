@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/11/2021 4:59 PM (UTC)`
+
+10月11号：尊敬的战友们好！这是川普总统办公室的官方帐号，希望大家分享这里的有关信息，和加上他的关注。🔥🔥🔥
+> `@45statements 10/11/2021 4:56 PM (UTC)`<br/>ICYMI: "AZ State Rep. Mark Finchem Speaks At Trump Rally In Des Moines: “34,000 Or 35,000 Fictitious Voters–We Believe We Found Them.”"<br/><br/>https://www.thegatewaypundit.com/2021/10/az-state-rep-mark-finchem-speaks-trump-rally-des-moines-34000-35000-fictitious-voters-believe-found/
+
+---
+
 `@miles 10/11/2021 4:54 PM (UTC)`
 
 10月11号：刚才的视频大家的反应有卡顿，我再重发一次。
@@ -28,13 +35,6 @@
 
 10-11日：新中国联邦人救人，无数。有种的别信……疫苗灭共将彻底的建立新中国人在世界的新形象和崇高的地位。<br/><br/>【草根小哥你好：战友送过来的药我老公一直拒绝吃，他说他医生的药不能跟我们的药一起吃，怕起反效果，等他吃完他医生的药身体还是没有好就吃我们的药，所以我一直等他的药结束，一直没有告诉你他的病情怎么样，后来他医生的药一直没有改善他的病情，所以才改吃我们的药，吃上我们的药身体马上恢复过来，太神奇，所以现在才告诉你晚一些，太感谢你的帮助谢谢🙏 我在GTV做直播了，讲一下我先生吃药的过程，让更多的战友知道爆料革命的药是救命的药。🙏】
 ![img](https://media.gettr.com/group19/getter/2021/10/11/16/27/41995b2e-36a8-722a-a756-8c03ca249d63/675639c0bbf1f2c3c94f4d896779564b.jpg)
-
----
-
-`@miles 10/11/2021 3:26 PM (UTC)`
-
-10月11号：尊敬的战友们好！七哥来啦，来啦……来啦！
-![img](https://media.gettr.com/group8/getter/2021/10/11/15/26/2cdcd1ee-c772-c5b6-f23e-00c375042027/out.jpg)
 
 ---
 
