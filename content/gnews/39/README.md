@@ -2,10 +2,10 @@
 ---
 
 
-## 美国航空限期员工接种新冠疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1586580/)
+## 西南航空试图掩盖本周末被迫取消近 2000 次航班的背后真相
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1586584/)
 
-作者：文真
+作者：文一
 
 
 
@@ -19,24 +19,26 @@
 
 
 
-据《夏洛特观察家报》报道，美国航空公司于10月6日，通过电子邮件通知所有在美员工，必须在11月24日之前完成新冠疫苗接种，否则将被解雇。该公司表示，此决定是响应拜登的总统令，即要求联邦承包商在12月8日前为员工接种新冠疫苗。
+【BPR】10 月 10 日报道，美国西南航空公司仅在本周末就取消了近 2000 个航班，其原因是由于公司内部出现大规模的反抗强制接种疫苗的抗议活动。
 
-据统计显示，受该决定影响，将有至少12.5万名美国航空的员工被强制要求接种新冠疫苗。
+NBC证实，西南航空公司周日取消了1000多个航班，占其时间表的 27%，周六有 808 个航班被取消。该公司在宣布航班取消时，试图掩盖航班取消的背后真相，将其归咎于空乘人员请病假、空中交通管制和恶劣天气。
 
-据《达拉斯晨报》报道，10月7日，有数百名员工聚集在美国航空总部外，开始抗议这项强制要求。航空公司工人工会警告说，解雇未接种疫苗的员工会加剧工人的短缺和员工的倦怠，目前这两种情况已在恶化。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-57.jpg)
-此前，美国联合航空公司是美国第一家强制要求员工接种新冠疫苗的航空公司。西南航空、捷蓝航空和阿拉斯加航空也公布了强制接种要求。达美航空是目前唯一没有强制其员工接种新冠疫苗的航空公司。
+而该公司飞行员协会对强制接种疫苗提出诉讼，正好是从本周六开始的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-41.jpg)
+据彭博社报道，该诉讼，要求法院“暂时阻止该公司进行联邦规定的冠状病毒疫苗接种，直到现有的关于涉嫌违反美国劳动法的诉讼得到解决”。
 
-然而航空公司越来越强的施压，势必招来员工的不满与反弹，唤起更多的人以罢工游行等不合作方式展开回击。
+该协会还要求达拉斯的一家联邦法院立即对该请求进行听证，声称该航空公司继续采取违反《劳工法》条款的单边行动，包括威胁解雇任何在2021年12月8日前没有完全接种疫苗的飞行员。
+
+各行各业的民众都在觉醒，并拿起法律武器对抗违宪的疫苗强制政策，保护自己的权利、健康和生命。
 
 参考链接：
-[American Airlines to Employees: Get Vaccinated or Face Firing](https://www.breitbart.com/politics/2021/10/08/american-airlines-employees-get-vaccinated-fired/)
+[Southwest Airlines tried to cover up mass ‘sickout’ over vaccine mandate that impacted well over 1000 flights: report](https://www.bizpacreview.com/2021/10/10/southwest-airlines-tried-to-cover-up-mass-sickout-over-vaccine-mandate-that-impacted-well-over-1000-flights-report-1146902/)
 
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-新闻访谈终审：Ryan
+新闻访谈终审：Q大哥
 编辑/校对/发稿：为真不破20
 
 **更多资讯，更多关注**

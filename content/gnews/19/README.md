@@ -2,48 +2,19 @@
 ---
 
 
-## 维州IBAC听证会：首位证人证实工党腐败“完全失去控制”
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1586879/)
+## 秘翻在线:佛州的空中交管员罢工导致数百航班被取消 主流媒体却对此噤声
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1586905/)
 
-#### 翻译：Lish
+#### 翻译/撰稿：zzballack
 
-#### 校对/编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1111-2.png)
-图片来源：New Daily & IBAC
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-2-5.jpg)图片来源：Business Insider
+据《网关专家》（Gateway Pundit）10月10日报道，佛罗里达州杰克逊维尔市（Jacksonville）的空中交通管制员10月9日举行了罢工，以抗议疫苗强制令。所有进出佛罗里达州的航班都因此而被取消，但主流媒体却对此事不闻不报。
 
-**导读：**
+甚至连激进人士汤姆·索尔(Tom Sauer)也在推特上报道了此事。他说：“佛州空中交管员罢工事件的消息是不是被媒体封锁了？数百个航班被取消。”据可靠消息源透露，“有650架班次被取消，飞行员还未准备好起飞。罢工潮就开始了。”
 
-澳大利亚维多利亚州近期掀起了一轮反腐风暴，由维州独立反腐委员会（IBAC）针对维州工党政府多起历史涉嫌腐败不作为行为提起审查，近期针对的主题是维州工党的“不当招聘”。“不当招聘”就是围绕基层选举，维州执政的工党利用公共资源，为很多新招聘的党员支付党费，这些新党员便给指定的选举人投票；或者将政府定向给某些行业提供支持，换取其对政府惟命是从。最终就是将纳税人的钱化在其政党利益上，并没有用作社会公益。
+同样在上周末，西南航空公司也取消了1000多架次航班，据透露是因为员工大罢工反对疫苗强制令所致。
 
-编译的这篇新闻，是今天听证会上受审查的联邦工党议员安东尼·伯恩，他承认自己参与了政党不当招聘，而且他认为维州工党领域不当招聘已经泛滥成灾、无法控制，执政的工党正在有预谋和系统地滥用纳税人资源。希望维州的这场反腐风暴能够将跪舔中共的州长安德鲁斯赶下台。
+黑暗势力害怕罢工事件激起人们的反抗浪潮，其控制的主流媒体竭力对此屏蔽，就像当年欧洲各国的专制统治者害怕其百姓知道法国大革命后也奋力反抗一样。全世界的各国百姓正在觉醒，知道在生死存亡面前不反抗就只能被奴役至死，只是时间早晚的问题。
 
-译文：
-
-在第一天上午IBAC的爆炸性反腐败听证会上，联邦工党议员安东尼·伯恩（Anthony Byrne）承认自己参与了不当招聘——用资金支付党员费用。
-
-周一，当协助委员会的律师克里斯托弗·卡尔（Chris Carr SC）询问伯恩先生时，伯恩承认参与了不当招聘工作。
-
-伯恩先生说，他为一些工党的党员资格支付了费用，某些年份的花费可能高达2000澳元。他还知道阿德姆·索米尤里克（Adem Somyurek）和现任内阁部长卢克·唐纳兰（Luke Donnellan）也在支付党费（为某些成员）。
-
-【备注：阿德姆·索米尤里克是维州议员，曾担任维州部长等职务】
-
-澳独立反腐委员会（IBAC）一直在追查（伯恩议员所在的）霍尔特市议会关于民选官员中普遍存在的不当招聘问题。
-
-伯恩先生说，作为IBAC和维州监察专员德博拉·格拉斯(Deborah Glass)对前安德鲁斯政府（前部长）索米雷克先生的不当招聘指控进行的16个月联合调查的一部分，他是第一个IBAC的调查证人，**目前工党内滥用纳税人资金的情况“完全失控”。**
-
-伯恩先生在听证会上说：“**我认为这个党派完全失去了控制**。我从来没有想到我看到的和听到的会发生在当代的工党中。我听过也在90年代见到过，但从未想过我会再次见到这种腐败。我指的是不当招聘，我指的是胁迫工作人员，被逼着做他们不想做的事情。我指的是一个基本被一个人接管的政党，这个人的唯一关注的是权力。”当被要求说出这个人的名字时，他回答说：“阿德姆·索米雷克”。
-
-在听证会上，卡尔先生提到了红衫军事件（2018年工党贿选丑闻）和为政治目的滥用选民资源的问题。他说，IBAC在2020年初收到的证据表明，仍然存在“**有预谋和系统地滥用纳税人资源**”的情况。
-
-（本文仅代表作者个人观点，与Gnews平台无关）
-
-原文链接：[https://twitter.com/theheraldsun/status/1447377665694961665?s=20](https://twitter.com/theheraldsun/status/1447377665694961665?s=20)
-
-**发布：文泓**
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Media Blackout: It’s Not Just Southwest Airlines – Air Traffic Controllers in Jacksonville Reportedly Walked Out Friday Night Protesting Mandatory COVID Vaccinations Too](https://www.thegatewaypundit.com/2021/10/media-blackout-not-just-southwest-airlines-air-traffic-controllers-jacksonville-walked-friday-night-protesting-mandatory-covid-vaccinations/)
