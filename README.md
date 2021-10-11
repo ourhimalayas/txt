@@ -15,137 +15,137 @@
 
 ---
 
-### [有声|坚持个人疫苗接种选择，洛杉矶消防员将起诉政府](/content/gnews/1/README.md)
- ` MOSREC`
-
-### [有声|加州实施学童强制疫苗政策 但州长 12 岁女儿并未接种](/content/gnews/2/README.md)
- ` MOSREC`
-
-### [有声|不屈服接种令，西雅图近四成警察直面解雇威胁](/content/gnews/3/README.md)
- ` MOSREC`
-
-### [13岁圭亚那男孩接种第二剂辉瑞疫苗两小时后死亡，调查已展开](/content/gnews/4/README.md)
- ` 纽约香草山MOS02`
-
-### [逃不脱的命运与责任](/content/gnews/5/README.md)
- ` 澳喜农场`
-
-### [福建加急文件泄露 中共准备大规模防疫隔离间](/content/gnews/6/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [俄勒冈议员称臭名昭著的“塔斯基吉研究”又上演](/content/gnews/7/README.md)
+### [半导体短缺令日本汽车在华销量大降](/content/gnews/1/README.md)
  ` HimalayaRussia`
 
-### [也门40万儿童面临饥饿威胁生命](/content/gnews/8/README.md)
- ` Shuizhuyu`
-
-### [葡萄牙12岁以上所有人完全接种率已经接近100%](/content/gnews/9/README.md)
- ` 澳喜农场`
-
-### [法国遗传学家亚历山德拉∙亨里昂-考德：我们不知道他们（接种疫苗者）是否能够生孩子](/content/gnews/10/README.md)
- ` MG 澳喜农场多语组`
-
-### [DC每日热点1011](/content/gnews/11/README.md)
+### [每日快报：埃隆马斯克的 SpaceX 已达1000 亿美元估值](/content/gnews/2/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共病毒及其疫苗在全球超限战中的典型案例（六）](/content/gnews/12/README.md)
- ` 纽约香草山MOS02`
-
-### [尽管存在安全问题，默克公司要求FDA紧急批准COVID新药](/content/gnews/13/README.md)
- ` 纽约香草山MOS02`
-
-### [闲聊澳洲——四次脊椎手术后的习近平，健康状况可想而知](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [海关官员在芝加哥查获救命的伊维菌素和羟氯喹](/content/gnews/15/README.md)
- ` 纽约香草山MOS02`
-
-### [西南航空公司在飞行员反对强制疫苗接种后以“恶劣天气”为由取消了1,800班次航班](/content/gnews/16/README.md)
+### [蔡英文提出“中华民国与中华人民共和国互不隶属” 北京怒不可遏](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [Moderna疫苗引发心脏炎症 冰岛宣布停止使用](/content/gnews/17/README.md)
- ` 日本东京方舟农场`
+### [有声|坚持个人疫苗接种选择，洛杉矶消防员将起诉政府](/content/gnews/4/README.md)
+ ` MOSREC`
 
-### [潘多拉文件：美国律师行协助刘特佐避税](/content/gnews/18/README.md)
- ` 日本东京方舟农场`
+### [有声|加州实施学童强制疫苗政策 但州长 12 岁女儿并未接种](/content/gnews/5/README.md)
+ ` MOSREC`
 
-### [最后期限临近 数十万美军仍未接种](/content/gnews/19/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [有声|不屈服接种令，西雅图近四成警察直面解雇威胁](/content/gnews/6/README.md)
+ ` MOSREC`
 
-### [2021年10月11日 文贵先生盖特 3](/content/gnews/20/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [微软推出Windows 11操作系统 中共国用户无缘使用](/content/gnews/21/README.md)
- ` 日本东京方舟农场`
-
-### [食品价格已升至十年来的最高水平](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中美外交关系出现重大转折，台湾上交易桌](/content/gnews/23/README.md)
- ` 日本东京方舟农场`
-
-### [2021年10月11日 文贵先生盖特 2](/content/gnews/24/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月11日 文贵先生盖特 1](/content/gnews/25/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [家庭反洗脑序列:第29篇 我想念没有病毒和疫苗的街](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [俄勒冈议员寻求大陪审团调查中共病毒数据操纵](/content/gnews/27/README.md)
- ` HimalayaRussia`
-
-### [银河快讯：岸田没有改变金融所得税计划；承诺为中共病毒患者加强医疗系统](/content/gnews/28/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [围封＂民主墙＂，半个世纪的香港中文大学学会陨落](/content/gnews/29/README.md)
- ` 聖城−香港`
-
-### [联盟工作汇报文字版摘要2021.10.10](/content/gnews/30/README.md)
+### [13岁圭亚那男孩接种第二剂辉瑞疫苗两小时后死亡，调查已展开](/content/gnews/7/README.md)
  ` 纽约香草山MOS02`
 
-### [狮城快讯：一个独立记者眼中的《反外国干涉法案》](/content/gnews/31/README.md)
+### [逃不脱的命运与责任](/content/gnews/8/README.md)
+ ` 澳喜农场`
+
+### [福建加急文件泄露 中共准备大规模防疫隔离间](/content/gnews/9/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [俄勒冈议员称臭名昭著的“塔斯基吉研究”又上演](/content/gnews/10/README.md)
+ ` HimalayaRussia`
+
+### [也门40万儿童面临饥饿威胁生命](/content/gnews/11/README.md)
+ ` Shuizhuyu`
+
+### [葡萄牙12岁以上所有人完全接种率已经接近100%](/content/gnews/12/README.md)
+ ` 澳喜农场`
+
+### [新冠疫苗的断子绝孙针到底有多毒](/content/gnews/13/README.md)
+ ` 中共病毒专栏`
+
+### [法国遗传学家亚历山德拉∙亨里昂-考德：我们不知道他们（接种疫苗者）是否能够生孩子](/content/gnews/14/README.md)
+ ` MG 澳喜农场多语组`
+
+### [DC每日热点1011](/content/gnews/15/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共病毒及其疫苗在全球超限战中的典型案例（六）](/content/gnews/16/README.md)
+ ` 纽约香草山MOS02`
+
+### [尽管存在安全问题，默克公司要求FDA紧急批准COVID新药](/content/gnews/17/README.md)
+ ` 纽约香草山MOS02`
+
+### [闲聊澳洲——四次脊椎手术后的习近平，健康状况可想而知](/content/gnews/18/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [海关官员在芝加哥查获救命的伊维菌素和羟氯喹](/content/gnews/19/README.md)
+ ` 纽约香草山MOS02`
+
+### [西南航空公司在飞行员反对强制疫苗接种后以“恶劣天气”为由取消了1,800班次航班](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [Moderna疫苗引发心脏炎症 冰岛宣布停止使用](/content/gnews/21/README.md)
+ ` 日本东京方舟农场`
+
+### [潘多拉文件：美国律师行协助刘特佐避税](/content/gnews/22/README.md)
+ ` 日本东京方舟农场`
+
+### [最后期限临近 数十万美军仍未接种](/content/gnews/23/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021年10月11日 文贵先生盖特 3](/content/gnews/24/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [微软推出Windows 11操作系统 中共国用户无缘使用](/content/gnews/25/README.md)
+ ` 日本东京方舟农场`
+
+### [食品价格已升至十年来的最高水平](/content/gnews/26/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中美外交关系出现重大转折，台湾上交易桌](/content/gnews/27/README.md)
+ ` 日本东京方舟农场`
+
+### [2021年10月11日 文贵先生盖特 2](/content/gnews/28/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月11日 文贵先生盖特 1](/content/gnews/29/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [家庭反洗脑序列:第29篇 我想念没有病毒和疫苗的街](/content/gnews/30/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [俄勒冈议员寻求大陪审团调查中共病毒数据操纵](/content/gnews/31/README.md)
+ ` HimalayaRussia`
+
+### [联盟工作汇报文字版摘要2021.10.10](/content/gnews/32/README.md)
+ ` 纽约香草山MOS02`
+
+### [狮城快讯：一个独立记者眼中的《反外国干涉法案》](/content/gnews/33/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [东南亚一周新闻回顾（2021年10月1日-10日）](/content/gnews/32/README.md)
+### [东南亚一周新闻回顾（2021年10月1日-10日）](/content/gnews/34/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [你能相信莫德纳疫苗吗？—冰岛加入瑞典和丹麦的行列并说“不！”](/content/gnews/33/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [10/10/2021 七哥直播: 我们最早说出疫苗灾难和疫苗政治来自中共生化战](/content/gnews/34/README.md)
+### [10/10/2021 七哥直播: 我们最早说出疫苗灾难和疫苗政治来自中共生化战](/content/gnews/35/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|西南航空飞行员工会起诉航空公司强制接种疫苗](/content/gnews/35/README.md)
+### [有声|西南航空飞行员工会起诉航空公司强制接种疫苗](/content/gnews/36/README.md)
  ` MOSREC`
 
-### [独家！康涅狄格号南海遭撞击系中共潜艇所为](/content/gnews/36/README.md)
+### [独家！康涅狄格号南海遭撞击系中共潜艇所为](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|台湾总统府发言人称中华民国是主权国家!](/content/gnews/37/README.md)
+### [有声|台湾总统府发言人称中华民国是主权国家!](/content/gnews/38/README.md)
  ` MOSREC`
 
-### [10/11/2021国际财经快讯：美9月新增就业机会不足；全球能源紧缺导致原油跳涨](/content/gnews/38/README.md)
+### [10/11/2021国际财经快讯：美9月新增就业机会不足；全球能源紧缺导致原油跳涨](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
 
-### [文贵先生惊天爆料: 美国政府已背弃台湾!](/content/gnews/39/README.md)
+### [文贵先生惊天爆料: 美国政府已背弃台湾!](/content/gnews/40/README.md)
  ` GTV新闻访谈`
 
-### [供不应求！日本半导体材料厂商相继启动增产](/content/gnews/40/README.md)
+### [供不应求！日本半导体材料厂商相继启动增产](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [山雨欲来风满楼——美中卖台协议出炉](/content/gnews/41/README.md)
+### [山雨欲来风满楼——美中卖台协议出炉](/content/gnews/42/README.md)
  ` 秘密翻译组-原创组`
 
-### [秘翻在线：默克制药请求FDA为抗中共病毒新药做紧急批准](/content/gnews/42/README.md)
+### [秘翻在线：默克制药请求FDA为抗中共病毒新药做紧急批准](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [被村霸欺压的欧金中被逼提刀重演杨佳和张扣扣的复仇路](/content/gnews/43/README.md)
+### [被村霸欺压的欧金中被逼提刀重演杨佳和张扣扣的复仇路](/content/gnews/44/README.md)
  ` NewFOC`
-
-### [杨洁篪同沙利文举行会晤目的何在？](/content/gnews/44/README.md)
- ` 波士顿五月花农场`
 
 ### [维多利亚州高级警官辞职，声称多数警察不相信 COVID规则](/content/gnews/45/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`

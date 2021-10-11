@@ -2,19 +2,25 @@
 ---
 
 
-## 逃不脱的命运与责任
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1588029/)
+## 有声|加州实施学童强制疫苗政策 但州长 12 岁女儿并未接种
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1588046/)
 
-撰稿：文雨
-![](https://assets.gnews.org/wp-content/uploads/2021/10/F1CFB782-BC86-414C-A394-8936DF9C4948.jpeg)图片来自：https://strengthsschool.com/strengthsfinder-blog/responsibility-talent-theme
+配音：香草山美食部 – 玫瑰园
 
-不知道我们生活在这个时代是幸运还是不幸运，但是我们已经在这个时代了。几年前郭先生在直播中一直在强调，灭共一定要靠中国人自己；2020年初，病毒刚从武汉爆发的时候，郭先生就警告过，2019以前是最好的日子，接下去的日子再也不可能回到2019年以前了。到如今，对这些的感受是真真切切的。
+【Gateway Pundit】10 月 9 日报道：民主党加州州长加文-纽森在《洛杉矶时报》最近发表的一篇文章中承认，他12岁的女儿尽管符合强制疫苗接种条件，但还没有接受这种注射。
 
-昨天郭先生的直播把＂台湾凶矣＂的原因揭示剖析得彻彻底底，从中山先生的辛亥革命讲到如今的台湾内部的卖台贼，从过去的日本侵略谈到今天美国与中共的瑞士会谈，爆的料是惊人的，也很让人无语。相信很多人已经能体会到郭先生一直谈的以共灭共的深义，以美灭共是借力，灭共一定要靠中国人自己！民主不是别人为你争取，也不是施舍，一定要中国人有发自内心的要求民主，而非披着羊皮的狼的民主。
+10月1日，这位民主党州长宣布了美国首个 K-12 学童强制疫苗政策。文章强调，州长已经违反了他自己公布的疫苗政策，并指出很多疫情期间的限令只是针对普通民众，制定政策的政客们并未受其约束。
 
-直播从台湾又拉到了经济问题，从美国的债务到股市的起起伏伏，从房地产到养老基金到美元，从而引出西方律师，司法界的腐败，又回到疫苗和科学界种种隐藏的黑暗势力，郭先生话语间向我们警示了最黑暗的时刻即将到来，二，三年前也曾经提到过黑暗时期，但从没象现在那样来的如此的近，如此真切，如此的理由充足。中国人面临的危机是前所未有的。从停电到排华，不知道会严重到什么程度，好在有郭先生的预警，农场也已经着手准备，以应对这危难时刻。
+文字版原文：[加州实施学童强制疫苗政策 但州长 12 岁女儿并未接种](https://gnews.org/zh-hans/1584636/)
 
-我们生不逢时，遭遇这劫难的时刻，是我们逃不脱的命。但我们也是生逢此时，承担了这一逃不脱的责任，将跟随郭先生，经历凤凰涅槃，争取民主法治，缔造一个新中国联邦！
+音频处理：喜山必胜Maverick
 
-文章内容仅代表作者观点
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

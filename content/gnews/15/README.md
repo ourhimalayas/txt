@@ -2,43 +2,35 @@
 ---
 
 
-## 海关官员在芝加哥查获救命的伊维菌素和羟氯喹
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1587911/)
+## DC每日热点1011
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1587971/)
 
-作者：纽约香草山农场 – 四季
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/10/B10F018F-5E28-44C6-8609-884777074AAE-scaled.jpeg)
+道琼斯指数 34773.70 ▲0.08%
+纳斯达克指数 14537.69 ▼0.29%
+WTI纽约原油CFD 81.163 ▲2.28%
+布伦特原油CFD 83.925 ▲1.86%
+标普中概股50指数 3,621.86CNY▼17.66%
+美元兑人民币 1USD=6.449RMB
+美元兑港币 1USD=7.780HKD
+国际黄金 1754.88美元/盎司
+全球CCP病毒感染人数 238,757,668 例
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
-
-
-
-
-
-[网关专家](https://www.thegatewaypundit.com/2021/10/custom-officials-seize-small-packages-lifesaving-ivermectin-hydroxychloroquine-chicago-record-amounts-ivermectin-continue-flow-across-southern-border/)10月10日报道，根据海关和边境保护局（CBP）的一份新闻稿，含有伊维菌素和羟氯喹的货物10月4日在芝加哥被海关官员查获。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1184.jpeg)**图片：Soumyabrata NURPHOTO VIA GETTY IMAGES**
-
-芝加哥奥黑尔机场海关缴获了两个小包裹，其中一个内含100粒伊维菌素，另一个内含32粒伊维菌素和40粒羟氯喹。
-
-羟氯喹以前曾获得美国食品和药物管理局的紧急使用授权，用于治疗COVID-19，但在6月，该机构废除了其授权，并警告不要在医院以外的地方使用它。伊维菌素甚至在医院也被禁止。显然，这些安全，廉价和有效的药物被政治化了。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+1、中印两军相互指责对方对谈判破裂负责
+2、塔利班表示：美国在“坦率”的会谈中同意向阿富汗提供救济援助
+3、台湾总统蔡英文星期天在双十节庆典活动上呼吁两岸保持现状，坚决反对中共国的军事胁迫
+4、美军一艘海狼级核动力攻击潜舰在印太区域潜航时撞上不明物体
+5、捷克总统米洛斯·泽曼周日被紧急送往医院可能影响组建新政府，一天前该国举行了议会选举
+6、中共国企紫金布局锂资源 9.6亿加元收购加拿大新锂公司 两月内第二宗
+7、印度政府称电厂煤炭供应充足
+8、奥地利外长沙伦贝格接替库尔茨今天就任总理
+9、英外相据报拟效仿三边协议方式重启外交和贸易政策
+10、美空军前技术官员：美国已经在AI方面输给了中共国
+11、美日印澳将举行第二阶段马拉巴尔2021军演
+12、美西南航空强制疫苗令遭飞行员工会起诉
+13、脸书声称将推出几项新功能，以提高儿童使用其平台的安全性，但批评者质疑新举措的有效性
+14、截止期临近 数十万美军仍未接种疫苗
+15、巴基斯坦核弹头号人物去世 曾非法售核技术
+16、意大利首都罗马上万人游行示威抗议疫苗令
+17、中共获为意大利特种部队和北大西洋公约组织提供军用高科技的无人机公司阿尔卑飞机制造公司的控制权

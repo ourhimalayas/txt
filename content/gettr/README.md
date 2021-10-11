@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/11/2021 9:59 PM (UTC)`
+
+MILES GUO Live Stream 2021/10/11
+![img](https://media.gettr.com/group22/origin/2021/10/11/21/7c71012f-b64e-3475-cb21-0ac0c494ad42/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 10/11/2021 4:59 PM (UTC)`
 
 10月11号：尊敬的战友们好！这是川普总统办公室的官方帐号，希望大家分享这里的有关信息，和加上他的关注。🔥🔥🔥
@@ -287,13 +294,6 @@ Sept.10, 2017, Fu Zhenghua used the task force and law enforcement under his con
 
 10/12/2018, Miles Guo was accused of the so-called "crime of forced trading", which is 100% false, completely following the orders of Fu Zhenghua, Meng Jianzhu, Sun Lijun and Wang Qishan<br/><br/>10/12/2018 文贵被指控所谓的​​“强迫交易罪”，这百分之百都是假的，完全是执行傅政华，孟建柱，孙力军，王岐山的命令
 ![img](https://media.gettr.com/group40/getter/2021/10/07/14/25/2418d678-3fac-bb58-4648-5c4698832fd5/out.jpg)
-
----
-
-`@miles 10/7/2021 2:21 PM (UTC)`
-
-Sep 7th,2017, Miles Guo revealed that even though Fu Zhenghua was under protection of Xi Jinping, he will be killed sooner or later as he knew too much hidden dirt of Wang Qishan, Meng Jianzhu and Sun Lijun<br/><br/>2017年9月7日文贵爆料恶人傅政华虽然有习的保护，但是早晚都会被弄死，因为他知道的王孟孙的黑材料太多了
-![img](https://media.gettr.com/group6/getter/2021/10/07/14/21/014e2aba-746b-b213-e5b0-396f7fc7ba99/out.jpg)
 
 ---
 
