@@ -2,13 +2,13 @@
 ---
 
 
-## 2021年10月10日 文贵先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1587002/)
+## 2021年10月10日 文贵先生盖特 8
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1587080/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
-10月10号：尊敬的战友们好，洛杉矶发生的将没有消防员的这种情况，会在全球的电力医院警察公共设施，所有的领域发生。全球的政府，将面对无法计算的诉讼，和社会公共灾难的巨大社会问题……这就是共产党的病毒，和共产党制造的疫苗灾难，对人类的摧毁。这也是他们最喜欢看到的结果，完全在邪恶的势力和中国共产党的计划之中。只有新中国联邦最早的在2020年一月份就警告世界，“疫苗才是真正的灾难的核心。”但愿世界早日醒来。新中国联邦人……将为此奋斗到底。
+10/10/2021 Miles Guo: 90% of the audience at Xi Jinping’s speech marking the 1911 Revolution was fake; Xi declined to meet Biden and hasn’t met anyone for over a year due to his worsening health conditions. Whereas the worse his health conditions get, the more he wants to invade Taiwan! 10/10/2021 文贵直播: 习近平辛亥革命演讲的九成观众是假的；习拒绝见拜登和他一年多不见人是因为他身体不行了，而他身体越不行，越要打台湾！
 
-[【2021年10月10日】文贵先生盖特原文](https://gettr.com/post/pdp5du787c)
+[【2021年10月10日】文贵先生盖特原文](https://gettr.com/post/pdrkqj703a)
 
 **喜联盟Gnews编辑部**

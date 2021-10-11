@@ -2,19 +2,31 @@
 ---
 
 
-## 秘翻在线：美国怀俄明州16岁女高中生因拒绝戴口罩被学校停课和逮捕
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1587018/)
+## 图片故事：波音抗议活动背后的故事
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1587088/)
 
-#### 翻译/撰稿：zzballack
+**【看图说话】，说出图片背后的故事**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Skype_Picture_2021_10_11T10_57_25_488Z.jpeg)图片来源：现场拍摄
+**作者：**晨兮
+**编辑：**澄道/翼族
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-25.jpg)图片来源：Team Tucker Carlson
-据《网关专家》10月10日报道，美国怀俄明州拉勒米（Laramie）的一位16岁高中女生格蕾丝·史密斯（Grace Smith）之前因为拒绝遵从校董事会颁布的口罩强制令，没在课堂上佩戴口罩而被学校停课两次。
+*“儿子们，把子弹上膛，我们要开始妈妈保卫战了！”
+——Mark*
 
-但当这位勇敢的学生再次试图不戴口罩去上课时，却被警察开了一张500美元的罚单。当被告知离开学校时，拒绝离开的她却被带上了手铐并被逮捕。
+美国当地时间10月7日下午，[丹苹战友参加了波音公司员工抗议强制接种疫苗的活动](https://gnews.org/zh-hans/1582374/)，经其本人同意，本文介绍发生在波音抗议活动背后的故事。
 
-据媒体报道，如果格蕾丝继续收到停课通知，她将被学校开除。但这位高中生并不打算退缩。她告诉当地媒体《拉勒米回旋镖》（Laramie Boomerang）说：“我所在的国家是一个保护上帝赋予人们的权利的国家，我被上帝赋予的权利应该受到保护，但这些权利却被剥夺了。我认为每个人都有戴口罩的自由，也有不戴口罩的权利，这视个人选择而定。”
+抗议活动后，丹苹跟家人说了接受电视台采访的事情，家人认为共产党会上门杀了她，丈夫跟两个儿子说了以上的话：“儿子们，把子弹上膛，我们要开始妈妈保卫战了”，这是美国华人战友对中共可能造成的威胁和伤害的回答。
 
-格蕾丝史密斯的家人已经聘请了一名律师进行反击。基督徒众筹网站GiveSendGo已为他们的法律行动筹集了1万8千多美元，募捐页面解释说：“格蕾丝是一名善良、有爱心、有同情心的高中生，她热爱舞蹈和戏剧，是个好学生。格蕾丝选择行使她的权利，不戴口罩上学。但校方以违反校董事会的口罩强制令为由让她停课甚至将其逮捕，格蕾丝还因此被同龄人和学校工作人员敌视。我们认为口罩强制令是非法的，违法了怀俄明州的宪法。我们呼吁大家为格蕾丝筹集资金，以声援格蕾丝捍卫她的公民自由以及怀俄明州其他正在遭受类似非法待遇的学生的公民自由的法律行动。让我们一起为公民的个人权利而战！”
+如果是在中共国，当一个人的人身安全有危险，家人肯定会无比地担心害怕，还会责怪其为啥不小心点、注意安全；有些家人会给予精神安慰，但是面对强权只能是束手无措；更有经过强权洗脑教育后的儿子出卖母亲并要求处死母亲这种违反人伦的惨剧。
 
-新闻来源：[WATCH: 16-Year-Old Wyoming Student Arrested for Not Wearing Mask, Entire School Placed on Lockdown](https://www.thegatewaypundit.com/2021/10/watch-16-year-old-wyoming-student-arrested-not-wearing-mask-entire-school-placed-lockdown/)
+自由是要争取、抗争和捍卫的，自由从来不是从天而降的！中国人受奴役时间太久太久，是时候为自由而战了，战友们，把子弹上膛吧！
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
