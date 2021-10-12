@@ -2,24 +2,35 @@
 ---
 
 
-## 五角大楼网络安全官员：美国 AI 远不及中共
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1588870/)
+## 推行央行数字货币是为了减少人民的金钱所有权和自由度
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1588944/)
 
-#### 编译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-33.jpg)图片来源：网络截图
-据澳大利亚《商业内幕》杂志10月11日报道，五角大楼的一名高级网络安全官员尼古拉·查兰愤然辞职，原因是他认为美国在未来的15到20年里不可能在人工智能方面与中共国竞争。
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/0409-14-3-L-reuters.jpg)图片来源：REUTERS
+#### 整理报道：小红帽
 
-查兰于2018年8月加入美国空军，担任其首位首席软件官，并致力于为美空军和五角大楼配备最安全、最先进的软件。但是，查兰于9月2日辞职，他在离职的领英留言 中提到五角大楼不愿意将网络安全和人工智能作为优先事项，这使他很沮丧。
+近日，前中央情报局分包商雇员爱德华·斯诺登（Edward Snowden ）指出，**中央银行数字货币（**CBDC）**很危险，因为它们可能会赋予政府巨大的权力，并限制它们本要服务的人民****​​****的自由。**
 
-沙朗在离开后首次接受《金融时报》采访表示，一些政府部门的人工智能能力和网络防御能力处于幼儿园水平，导致近年来美国的一些部门受到了黑客企图和勒索软件的攻击。
+这位前计算机程序员认为，**中央银行数字货币的潜在用途与政府利益密切相关。**
 
-查兰还告诉《金融时报》，由于谷歌拒绝与五角大楼在人工智能方面合作，美国的国家安全正在受到危害。
+斯诺登在他那篇名为《你的钱和你的生活》的文章中声称，**中央银行数字货币不是数字美元的代表，而是“公众的新威胁”。推出金融工具将使政府成为“每笔交易的中心”，这意味着普通民众对金钱的所有权减少，因此自由度也会减少。**
 
-查兰说，在中共国，私营网络和人工智能公司听从北京的召唤，即使美国的国防开支是中共国的三倍，这并不重要，因为它被分配到了错误的领域。
+斯诺登断言，中央银行数字货币的倡导者认为，**这些严格中心化的货币是“大胆的新标准（不是金本位、银本位，区块链标准），**而是类似于电子表格标准”的实现。
 
-中共国的目标是到2030年成为领先的人工智能超级大国，而国家人工智能安全委员会3月份的一份报告警告说，美国还没有准备好在即将到来的人工智能（AI）时代保卫美国。
+斯诺登称，中央银行发行的每一美元都由中央银行管理的账户持有，记录在一个庞大的国家分类账中，可以**不断审查和永远修改**。
 
-查兰告诉《金融时报》，他计划就中共国带来的威胁向国会作证。
+斯诺登提到了中共国，全面禁止与加密货币相关的一切事物。他认为：”中共国对比特币的新禁令，以及数字人民币的发行，显然是为了增加国家 “介入 “的能力–把自己强行介入到每一笔交易中，”。
 
-新闻来源：[A Pentagon official said he resigned because US cybersecurity is no match for China, calling it ‘kindergarten level’](https://www.businessinsider.com.au/pentagon-official-quit-saying-us-cybersecurity-no-match-china-2021-10)
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Whistleblower Edward Snowden brands CBDCs as ‘crypto-fascist currency’ (yahoo.com)](https://finance.yahoo.com/news/whistleblower-edward-snowden-brands-cbdcs-145220659.html)
+
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

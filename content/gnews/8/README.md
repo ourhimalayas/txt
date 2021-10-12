@@ -2,18 +2,21 @@
 ---
 
 
-## 2名儿童被“意外”注射中共病毒疫苗后出现心脏病迹象
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1588848/)
+## GETTR现场直击：全球首例新冠疫苗国家诉讼案在日本开庭
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1588887/)
 
-#### 编译：沙子最怕你不理它
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-50.jpg)图片来源：网络截图
-据 Red Voice Media 10月10日报道，印第安纳州埃文斯维尔的2名儿童原计划在Walgrees药房注射流感疫苗，却被“意外”注射了中共病毒疫苗，随后他们的心脏出现了问题。虽然所有疫苗上都有标签，但这不是Walgreens第一次“犯错”。
+记者：无色有香、NANA、小林
+作者：文顺
 
-10月4日，埃文斯维尔的一家四口——两位成年人和两名儿童——前往约瑟夫大道上的Walgreens药房准备注射流感疫苗。但他们被“意外”注射了全剂量的辉瑞中共病毒疫苗，而不是流感疫苗。
+10月12日，全球首例新冠疫苗受害者国家诉讼案今晨在东京地方裁判所民事部开庭，新中国联邦日本方舟农场GETTR团队现场追踪。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/WhatsApp-Image-2021-10-12-at-1.20.25-PM-1.jpeg)
+该案件对日本国会内阁总理菅义伟、内阁官房长官加藤勝信，以及厚生劳动省大臣、新冠病毒防治担当大臣和疫苗接种大臣等众官员提起国家诉讼，要求被告取消根据《传染病预防及传染病患者医疗法》（下称“传染法”）将中共病毒作为指定传染病的政令，取消根据传染病法将中共病毒传染病定义为“新型流感传染病”的决定措施， 并要求被告不可以将中共病毒传染病作为传染病防治。
 
-两名儿童的年龄太小，并不适合注射辉瑞或任何其他中共病毒疫苗。Walgreens给出的疫苗接种卡显示，2016年和2017年出生的儿童接种了辉瑞中共病毒疫苗。
+该案件还要求被告取消对辉瑞疫苗、阿斯利康疫苗和武田制药疫苗的特批，确认原告等对这些疫苗没有预防接种的义务。
 
-这家人说，他们离开药房时以为自己打了流感疫苗，但药房的一名员工后来打电话给他们，说他们犯了一个错误。此后，这家人被儿科心脏病学家告知两名儿童都有心脏病的迹象。Walgreens并未对此事做出解释。
+除此之外，案件要求被告不可使用PCR检查来判定是否感染中共病毒，不可发行疫苗护照和中共病毒阴性证明，并向原告各支付30万日元。
 
-新闻来源：[2 Young Kids Given COVID Vax Instead Of Flu Shots ‘Accidentally’ At Walgreens Now Suffering Heart Issues](https://www.redvoicemedia.com/2021/10/2-young-kids-given-covid-vax-instead-of-flu-shots-accidentally-at-walgreens-now-suffering-heart-issues/)
+该案件由日本反疫苗诉讼支援会代表疫苗受害者出庭。开庭前夕，该会会长鵜川和久在接受GETTR采访时表示，他们协会为全日本疫苗受害者提供义务法律支持。他说：“日本的疫苗受害者现在处于无处发声，孤独无助的状态。”
+
+这件全球首例新冠疫苗受害者国家诉讼案，牵动着世界人民的心，日本当地民众也是强烈关注。据方舟农场GETTR团队前线记者传来的信息，现场人满为患，采取抽签的方式入场，更多的民众则冒雨撑伞等待着开庭结果。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/WhatsApp-Image-2021-10-12-at-1.20.39-PM-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/10/WhatsApp-Image-2021-10-12-at-1.21.02-PM-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/10/WhatsApp-Image-2021-10-12-at-1.20.57-PM-1.jpeg)

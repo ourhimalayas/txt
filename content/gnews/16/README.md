@@ -2,37 +2,53 @@
 ---
 
 
-## 加拿大卑诗省坎贝尔河男子接种新冠疫苗后突发癫痫
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1588774/)
+## 中共不计成本欲毁掉G系列，新中国联邦开展法律反击
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588838/)
 
-温哥华扬帆农场 – 翻译： LuLu1312
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20211011-LuLu13121-加拿大卑诗省坎贝尔河男子接种新冠疫苗后突发癫痫.jpg)
-加拿大卑诗省坎贝尔河一名男子突发癫痫导致他在医院使用了五天的基础生命维持机器。他希望医生能找到他突发癫痫的病因。
+作者：Zion文恩
 
-Nelson的妻子因为没有收到他早上通常发的短信，于是决定午休下班回家看看他。妻子发现他躺在沙发上“抱怨整个早上感觉身体不适，家里的狗一直在向我叫，我感觉不舒服。”
 
-“……我开始含糊其词，然后在沙发上开始抽搐，” Nelson说。他记得的下一件事却是四天后在维多利亚的重症监护室醒来。
 
-“我不记得去医院，只是一切都模糊了。我什么都不记得了……”Nelson说。
 
-在医院，他被置于诱导昏迷的状态。在此期间，每次医生试图对他解除镇静时，他都开始抽搐。
 
-他接受了一系列测试——脑电图、核磁共振、脊髓液、新冠病毒——一切都正常。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-Nelson在 7 月 26 日接种了第一剂 Moderna 疫苗，就在他突发癫痫的前几天。
 
-Nelson成功从昏迷中苏醒后，他的手臂血管破裂（来自疫苗区域的血块）。他几乎无法行走，右眼下垂，身体疼痛，神经受到髋关节挤压，还有肺炎和呼吸管引起的肺部感染和膀胱感染。
 
-“我选择接种我的第一个疫苗，因为我希望生活再次尝试并尽可能正常，”Nelson说。 “我只是想为社区尽自己的一份力量，阻止病毒的传播。”
 
-Nelson说自己是一名健康的 26 岁男性，每天和他的狗一起跑 4 到 5 公里，吃得健康，不抽烟不喝酒。他不是反疫苗者，但是他觉得和大家共享他打了疫苗的简历很重要。
 
-他的家庭医生告诉他，他们对注射的情况了解得不够多。维多利亚综合医院的神经科医生 “强烈建议我不要接种第二种疫苗。”
 
-原文链接：
 
-[https://www.campbellrivermirror.com/news/medical-professionals-spend-four-days-trying-to-stop-campbell-river-mans-seizures-after-receviving-covid-19-vaccine/](https://www.campbellrivermirror.com/news/medical-professionals-spend-four-days-trying-to-stop-campbell-river-mans-seizures-after-receviving-covid-19-vaccine/)
+当地时间10月11日，郭文贵先生在盖特视频中，揭露了中共当局正在不计一切成本，展开对G系列超限战的事实。
 
-*编审：**abbs*
+郭先生说，过去两周以来，中共内部的战友们多次反映，中共灭爆小组已下达明确指示，要在近期不惜一切代价，阻止喜币的上市，同时要展开对G-TV、Gnews 、盖特和G-CLUBS的司法超限战。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-34.jpg)
+自2020年原G-TV私募伊始，中共便启用了大量海外的统战、情报力量，对G系列极尽造谣、诋毁之能事，并向各美国法院提交对G系列的虚假诉讼；以致1300名早期投资者的款项至今被冻结。
 
-*发布：**shuang*
+经过一年多的准备，爆料革命和新中国联邦已开展对中共及其幕后邪恶势力的法律回击。在过去因投资G系列而遭受银行账户冻结、拒绝服务的广大战友们，请保存好各种文字、语音证据，并向所在喜马拉雅农场取得联系，加入这场维护华人利益的法律反击战。
+
+参考链接: 
+[郭先生盖文： 10月11号：刚才的视频大家的反应有卡顿，我再重发一次。](https://gettr.com/post/pdttfc3253)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Ryan
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

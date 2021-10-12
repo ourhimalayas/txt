@@ -2,57 +2,24 @@
 ---
 
 
-## 系列事实打脸福奇疫苗安全有效说
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588826/)
+## 西雅图强势执行疫苗强制令 或损失 40% 警力
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1588871/)
 
-作者：文一
+#### 编译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/7-7.jpg)图片来源：kqes.net
+零对冲网10月11日报道，在全国各地疫苗強制令到期之际，大量的美国劳动力，服务人员和运动员等将因拒绝注射中共病毒疫苗而面临终止工作合约或纪律处分。
 
+在洛杉矶市，有近1000名消防员将起诉市政府的强制疫苗令，西南航空公司飞行员工会上周起诉该公司，因人员不足在过去的周末已导致超过二千架次航班取消，同时全国各地的医生和护士们也已经在起诉他们的雇主。
 
+很有趣的是，在洛杉矶市警察局的很多警察起诉这个疫苗强制令后，该局警长阿列克斯·维兰诺瓦宣布他将不强制任何人打疫苗。
 
+但西雅图就不一样，如果到10月18日还没有打疫苗，该警察局约1000人的编制将减少40%。一名匿名警官对福克斯13台说：“整个环境已经很糟糕和负面，不只是从疫苗强制令开始，但以前还过得去，我不知道是否要在这长期工作下去，这对我精神不利，我的压力已经非常大了。”
 
+截至10月6日，有292名警员能提供疫苗证明，到本周二，将达到354名，还有111名警员正在等待获取例外证明，这就意味着将有403名可能会被辞退。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+西雅图市长杰尼·德肯在给警员们的电子邮件中说：“我们敬佩你们每一个人，不想失去你们，但人们都在看着你们，需要你们去打疫苗。”
 
+另一名匿名警官对福克斯13台说：“每天都会损失50-75名警官，城市的应答时间明显延长，如果宗教例外不被批准的话，我将继续工作直到他们把我辞退。”
 
-
-
-
-
-
-针对福奇鼓吹疫苗安全有效的说法，Gateway Pundit新闻网今日罗列系列事实予以抨击，力证完全接种疫苗的人比未接种疫苗的人更容易感染中共病毒。
-
-英国的最新数据显示，30岁以上的每个年龄组中，接种疫苗者感染率都超过未接种疫苗者。
-
-新加坡的疫苗接种率在世界排名第五，接种率超过80%，但病毒突破性感染连续四天大幅增加。至2021年10月8日，共记录了3590个新感染病例，是目前该国最高的新增病例记录。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-33.jpg)
-另外数据显示，65岁及以上的疫苗接种率高达80%，但71%的新冠病例为完全接种者。
-
-对此疾控中心主任和左派喉舌罗谢尔-瓦伦斯基博士也承认，疫苗不能防止病毒的传播。
-
-Gateway Pundit 新闻网由此尖锐指出坚决不能相信福奇所说的任何一个字。
-
-参考链接：
-[Factcheck: Dr. Fauci’s Claim that the “Highly Effective and Safe Vaccine” Prevents Individual from Getting Infected with COVID-19 is FALSE (VIDEO)](https://www.thegatewaypundit.com/2021/10/factcheck-dr-faucis-claim-highly-effective-safe-vaccine-prevents-individual-getting-infected-covid-19-false-video/)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：Ryan
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+新闻来源： [Seattle PD May Lose 40% Of Officers Over Covid-19 Vaccine Mandate](https://www.zerohedge.com/covid-19/seattle-pd-may-lose-40-officers-over-covid-19-vaccine-mandate)

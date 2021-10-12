@@ -2,53 +2,24 @@
 ---
 
 
-## 中共不计成本欲毁掉G系列，新中国联邦开展法律反击
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588838/)
+## 已达13年最高值！高油价致日本9月企业物价上涨6.3%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1588886/)
 
-作者：Zion文恩
+撰稿：东京樱花团/黑猫
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-214.png)[图片来源](https://www.nikkei.com/article/DGXZQOUB120QD0S1A011C2000000/)
+企业之间交易的材料价格正在加速上升。 据日本央行10月2日发表的9月份企业物价指数比上年同期增长了6.3%， 该增长率是自2008年9月以来（上升6.9%），近13年来上升率最高的。
 
+由于原油价格飙升，石油和煤炭产品大幅上涨。 包括钢铁和木材在内的各种材料价格也在上涨，日本国内企业正在把上升的原材料成本转嫁到产品中。
 
+企业物价指数显示了企业间买卖商品的价格趋势。 在公布的744个项目中，与去年同月相比，425个上升，229个下降。
 
+进口价格的同比增长达到31.3%，是自1981年1月可比的最高值。 直到今年2月，价格同比为负值，但自春季以来，价格的上涨一直在加速。 按产品来看，除了能源之外，木材和金属等 “上游 “产品的价格上涨也很明显。
 
+国际商品市场上的石油价格继续上涨，日元最近迅速走弱。 进口商品的价格可能会进一步上升。 如果企业物价急剧上升的时间延长，将导致企业成本增加，也可能蔓延到个人消费商品和服务的价格上涨。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+信息来源：[企業物価13年ぶり高い伸び　9月6.3%上昇、原油高で: 日本経済新聞 (nikkei.com)](https://www.nikkei.com/article/DGXZQOUB120QD0S1A011C2000000/)
 
-
-
-
-
-
-
-当地时间10月11日，郭文贵先生在盖特视频中，揭露了中共当局正在不计一切成本，展开对G系列超限战的事实。
-
-郭先生说，过去两周以来，中共内部的战友们多次反映，中共灭爆小组已下达明确指示，要在近期不惜一切代价，阻止喜币的上市，同时要展开对G-TV、Gnews 、盖特和G-CLUBS的司法超限战。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-34.jpg)
-自2020年原G-TV私募伊始，中共便启用了大量海外的统战、情报力量，对G系列极尽造谣、诋毁之能事，并向各美国法院提交对G系列的虚假诉讼；以致1300名早期投资者的款项至今被冻结。
-
-经过一年多的准备，爆料革命和新中国联邦已开展对中共及其幕后邪恶势力的法律回击。在过去因投资G系列而遭受银行账户冻结、拒绝服务的广大战友们，请保存好各种文字、语音证据，并向所在喜马拉雅农场取得联系，加入这场维护华人利益的法律反击战。
-
-参考链接: 
-[郭先生盖文： 10月11号：刚才的视频大家的反应有卡顿，我再重发一次。](https://gettr.com/post/pdttfc3253)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：Ryan
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)

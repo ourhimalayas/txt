@@ -2,33 +2,50 @@
 ---
 
 
-## 沃尔玛突宣：全球供应商业务部从中共国搬到印度
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1588574/)
+## 灾难性的一天 &#8211; 中共国债券市场全面崩溃
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588685/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/下载-3.jpg)
-据中国零售信息2021年10月11日报道，10月9日沃尔玛突然宣布，将其全球供应商业务总部从中共国搬到印度。
-
-沃尔玛1996年在中共国深圳开设了第一家沃尔玛门店。沃尔玛目前在全国100多个城市设有400多家商场、20多家家配送中心。但从2016年到2020年，沃尔玛在国内关闭了80家门店；2021年以来，其关店数量已经达到两位数。
-
-沃尔玛此次搬迁，正是中共国本土超市崛起，外资商超没落的结果。沃尔玛数次被曝销售过期食品，使得消费者对其产生了信任危机。2018年，沃尔玛尝试过社区店，相当于“开在居民家门口的沃尔玛”。但同时各社区团购、生鲜电商企业的竞争，也抬高了社区店的成本。“沃尔玛社区店”微信公众号，自2020年10月30日起再没更新过任何内容。
-
-但与此形成反差的是，山姆会员店仍在扩张。今年8月，山姆会员店号称“亚洲最大的旗舰店”在上海开业。山姆会员店25年在中共国总共开出30多家门店。但直到2021年，沃尔玛才开始从官方层面表示要加速扩张。
-
-沃尔玛入华25个年头，官方评价说消费者已经感受不到新鲜感，中共国不缺“新物种”。但这也是全球脱钩、外资撤离中共国的一个信号。无独有偶，类似家乐福、麦德龙也正在退出中共国市场。
-
-新闻参考链接：[https://c.m.163.com/news/a/GM05S4GT05445BQZ.html?spss=newsapp](https://c.m.163.com/news/a/GM05S4GT05445BQZ.html?spss=newsapp)
-
-编辑：胖丁
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：文一
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+
+
+
+
+
+
+
+【零对冲】10月11日报道，周一中共国“垃圾债券市场”乘北美市场假日停市的机会出现大量抛售，在经历有史以来最快的下跌之后，再次崩溃。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture11-4.jpg)
+据报道，恒大错过了 9 月 23 日和 9 月 29 日到期的离岸美元债券的付款，总价值 1.31 亿美元，并预计在几周内将错过其第三轮支付，据路透社报道恒大的离岸债券持有人在亚洲时间周一的最后期限前仍未收到利息付款。
+
+花样年、现代置业、鑫苑置业、奥园集团、凯撒集团等中共抢钱洗钱企业，今年也都陷入了相同财务危机。
+
+根据彭博汇编的数据显示，现代置业和鑫苑置业分别有 13.5 亿美元和 7.6 亿美元的到期美元债券未按时偿还，而恒大的逾期美元债券高达 192 亿美元。
+
+中国 10 年期国债期货跌至三个月低点，因为央行最新的流动性放水削弱了对新货币政策放松的预期。10 年期国债期货合约下跌 0.4% 至 99.14，为 7 月 12 日以来的最低水平。10年期主权债券收益率上涨5个基点，为两个月来最大涨幅，至2.96%。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture22-2.jpg)
+分析称，这真是灾难性的一天，可能预示着雷曼时刻的到来。”恒大的传染风险现在正在向其他发行人和部门蔓延”，数以亿计的中国居民投资的股票市场也即将面临崩溃。
+
+（本文仅代表作者观点）
+
+参考链接：[灾难性的一天 – 中共国债券市场全面崩溃](https://www.zerohedge.com/markets/its-disastrous-day-all-hell-breaks-loose-chinas-bond-markets)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+
+新闻访谈终审：Q大哥
+编辑/校对/审核：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

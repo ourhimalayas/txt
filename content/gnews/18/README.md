@@ -2,21 +2,57 @@
 ---
 
 
-## 秘翻在线：美国众多议员及工作人员和家人服用伊维菌素治愈中共病毒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1588766/)
+## 系列事实打脸福奇疫苗安全有效说
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588826/)
 
-#### 撰稿：彩虹
+作者：文一
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-26.jpg)图片来源：国会山报
-10月11日，《新闻极限》(Newsmax)引用《国会山报》的文章，报道正在竞选德克萨斯州的前共和党佛罗里达州议员艾伦·韦斯特（Allen West）周末说，他和她的妻子安吉拉·韦斯特（Angela West）因为患有中共病毒而住院，目前正在接受治疗。
 
-韦斯特是一名退休的美国陆军中校，曾担任佛罗里达州第22国会区的议员，并在2020年至2021年期间担任德克萨斯州共和党主席。
 
-文章说，韦斯特没有接种过中共病毒疫苗，其妻子接种了中共病毒疫苗。但是，韦斯特在推特（TWITTER）上说，他正在服用伊维菌素和羟氯喹作为治疗的一部分。
 
-报道披露，埃尔·科里（Pierre Kory）是一名医学博士，努力推广中共病毒的替代疗法，他说：“有趣的事实是，在过去15个月里，有100-200名美国国会议员（加上他们的许多工作人员和家庭成员）被一位同事用伊维菌素和I-MASK方案进行治疗，没有一例严重到住院。”
 
-**新闻来源**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-[Allen West Taking Ivermectin for COVID-19 Treatment](https://www.newsmax.com/newsfront/ivermectin-allenwest-texas-governor/2021/10/11/id/1040074/)
+
+
+
+
+
+
+针对福奇鼓吹疫苗安全有效的说法，Gateway Pundit新闻网今日罗列系列事实予以抨击，力证完全接种疫苗的人比未接种疫苗的人更容易感染中共病毒。
+
+英国的最新数据显示，30岁以上的每个年龄组中，接种疫苗者感染率都超过未接种疫苗者。
+
+新加坡的疫苗接种率在世界排名第五，接种率超过80%，但病毒突破性感染连续四天大幅增加。至2021年10月8日，共记录了3590个新感染病例，是目前该国最高的新增病例记录。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-33.jpg)
+另外数据显示，65岁及以上的疫苗接种率高达80%，但71%的新冠病例为完全接种者。
+
+对此疾控中心主任和左派喉舌罗谢尔-瓦伦斯基博士也承认，疫苗不能防止病毒的传播。
+
+Gateway Pundit 新闻网由此尖锐指出坚决不能相信福奇所说的任何一个字。
+
+参考链接：
+[Factcheck: Dr. Fauci’s Claim that the “Highly Effective and Safe Vaccine” Prevents Individual from Getting Infected with COVID-19 is FALSE (VIDEO)](https://www.thegatewaypundit.com/2021/10/factcheck-dr-faucis-claim-highly-effective-safe-vaccine-prevents-individual-getting-infected-covid-19-false-video/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Ryan
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

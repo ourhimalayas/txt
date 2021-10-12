@@ -2,39 +2,37 @@
 ---
 
 
-## 美国情报官员称：美国无法“保卫台湾”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588687/)
+## 加拿大卑诗省坎贝尔河男子接种新冠疫苗后突发癫痫
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1588774/)
 
-作者：Andy5/文仁
+温哥华扬帆农场 – 翻译： LuLu1312
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211011-LuLu13121-加拿大卑诗省坎贝尔河男子接种新冠疫苗后突发癫痫.jpg)
+加拿大卑诗省坎贝尔河一名男子突发癫痫导致他在医院使用了五天的基础生命维持机器。他希望医生能找到他突发癫痫的病因。
 
+Nelson的妻子因为没有收到他早上通常发的短信，于是决定午休下班回家看看他。妻子发现他躺在沙发上“抱怨整个早上感觉身体不适，家里的狗一直在向我叫，我感觉不舒服。”
 
+“……我开始含糊其词，然后在沙发上开始抽搐，” Nelson说。他记得的下一件事却是四天后在维多利亚的重症监护室醒来。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+“我不记得去医院，只是一切都模糊了。我什么都不记得了……”Nelson说。
 
+在医院，他被置于诱导昏迷的状态。在此期间，每次医生试图对他解除镇静时，他都开始抽搐。
 
+他接受了一系列测试——脑电图、核磁共振、脊髓液、新冠病毒——一切都正常。
 
-10 月 10 日，在美国海军发布的新战略指南中，美方提及了中共的海军军力。对此，美国海军部长德尔托罗强调，将保持美国海军力量的优势，强化美军战备。同时，美国将把中共国、军队文化、气候变换与新冠疫情列为美国海军面对的四大挑战。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture44-1.jpg)
-就在10月9日，中共借助纪念辛亥革命110周年活动向台湾发出了咄咄逼人的战争恐吓，随后中共的媒体更是频频发出类似附和声调的文章。可见，中共的武装攻台是预谋已久，并且已经走到了战争的边缘。
+Nelson在 7 月 26 日接种了第一剂 Moderna 疫苗，就在他突发癫痫的前几天。
 
-此前，郭先生在10月10日的爆料直播中透露出，中美在瑞士的会谈已经勾兑完毕，台湾作为一只待宰的羔羊被双方进行了交易。因此，深切希望台湾人民能尽早做好防御与自救的准备。
+Nelson成功从昏迷中苏醒后，他的手臂血管破裂（来自疫苗区域的血块）。他几乎无法行走，右眼下垂，身体疼痛，神经受到髋关节挤压，还有肺炎和呼吸管引起的肺部感染和膀胱感染。
 
-（本文仅代表作者观点）
+“我选择接种我的第一个疫苗，因为我希望生活再次尝试并尽可能正常，”Nelson说。 “我只是想为社区尽自己的一份力量，阻止病毒的传播。”
 
-参考链接：
-1. [美国情报官员称：美国无法“保卫台湾”](https://finance.sina.com.cn/jjxw/2021-10-11/doc-iktzscyx9033603.shtml)
-2. [美国情报官员称：美国无法“保卫台湾”](https://finance.sina.com.cn/tech/2021-10-11/doc-iktzscyx8950493.shtml)
-3. [美国情报官员称：美国无法“保卫台湾”](https://www.zaobao.com.sg/news/world/story20211010-1201849)
+Nelson说自己是一名健康的 26 岁男性，每天和他的狗一起跑 4 到 5 公里，吃得健康，不抽烟不喝酒。他不是反疫苗者，但是他觉得和大家共享他打了疫苗的简历很重要。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+他的家庭医生告诉他，他们对注射的情况了解得不够多。维多利亚综合医院的神经科医生 “强烈建议我不要接种第二种疫苗。”
 
-新闻访谈终审：Q大哥
-编辑/校对/审核：Hetangyuese
+原文链接：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+[https://www.campbellrivermirror.com/news/medical-professionals-spend-four-days-trying-to-stop-campbell-river-mans-seizures-after-receviving-covid-19-vaccine/](https://www.campbellrivermirror.com/news/medical-professionals-spend-four-days-trying-to-stop-campbell-river-mans-seizures-after-receviving-covid-19-vaccine/)
+
+*编审：**abbs*
+
+*发布：**shuang*

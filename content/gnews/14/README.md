@@ -2,57 +2,22 @@
 ---
 
 
-## 破除科学界的“权威”迷信，越来越多医务人员挺身而出揭露真相
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588794/)
+## 美医学协会前主席：中共病毒疫苗是人类历史上带来最大生物灾难的医药产品
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1588849/)
 
-作者：晓仙女
+#### 编译：坤霆
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-21.jpg)图片来源：网络截图
+10月11日，据 Red Voice Media 网站报道，被医药巨头、媒体巨头和科技巨头联手压制和审查的对象之一，美国医学协会前主席博士皮特·麦卡洛（Peter McCullough）公开表示，中共病毒疫苗是人类历史上带来最大生物灾难的医药产品。
 
+他在一次演讲中讲到，“我们让美国人在接种疫苗后死亡，这是显而易见的。这是一个明显的数据信号，所有专家都赞同。现在，截至9月24日，已有多达15,937名美国人死亡。疫苗接种后，超过250,000名美国人住院，接受了紧急护理或访问门诊。”
 
+“可悲的是，疾控中心告诉我们，有超过20,000名美国人接种疫苗后导致终身残疾。这比一些主要癌症群体都要大。我们将看到这些疫苗造成的残疾将作为令人难以置信的暴行载入史册。”
 
+“我们手头这种医药产品造成人类历史上最大的生物灾难，两个党派同时相信了它，所有的立法都接受了它，整个医学机构和整个媒体相信了它，没有人知道如何阻止它。没有人知道如何阻止这一切，我们现在都是见证人。”
 
+不容置疑的科学根本不是科学，而是宣传。实际的科学和数据非常清楚地表明，被收买的新闻媒体成了政府的吹鼓手，他们制造的舆论是有问题的——定期重复“未接种疫苗大流行”、“关注科学”和“信任专家”等洗脑词汇，却很少报道越来越多的科学家、专家、医生、医护人员呈现的证据和数据。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+收买媒体的大型制药公司只在乎他们的巨额利润。
 
-
-
-
-
-
-
-近日，美国印第安纳州学校董事会，一位功能性家庭医学医生的演讲表示：他认为国家卫生局疾病控制中心提出的理论，跟科学规则是相违背的。
-
-他提出两个重要观点：
-
-一、中共病毒和其它呼吸道病毒一样，一年四季都会存在，并不会消失。
-
-二、SARS爆发时，所有疫苗的动物实验都失败了，实际上呼吸道病毒无法研究出疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-48.jpg)
-这位医生还说：他用补充维生素D、伊维菌素和锌，治疗了15名新冠患者，死亡风险可以下降到目前美国水平的四分之一。
-
-越来越多的事实证明，新冠疫苗无效且有毒，而爆料革命一直传播的羟氯喹、伊维菌素、青蒿素等药物，才能在人类生死存亡阶段，真正起到扭转乾坤的作用！
-
-参考链接:
-[@MilesGuoLive盖特：#1010文贵大直播 精品小視頻 以科學方法破除新冠疫苗的迷思 #疫苗真相 澳洲墨尔本澳洲雅典娜農場（#澳雅农场）出品](https://gettr.com/post/pdtcblb724)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：Ryan
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+原文链接：[COVID ‘Vaccine’ Is Biggest Biological Catastrophe With Medicinal Product In Human History – Dr. McCullough](https://www.redvoicemedia.com/2021/10/covid-vaccine-is-biggest-biological-catastrophe-with-medicinal-product-in-human-history-dr-mccullough/)
