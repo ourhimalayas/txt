@@ -2,70 +2,58 @@
 ---
 
 
-## 独家：脸书吹哨人似乎是公认的马克思主义者
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1588147/)
+## 台湾总统表示，台湾不会被迫向中共国低头
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1588266/)
 
-- 编译：西班牙喜悦农场–wenwu
+**据《路透社》作者：Ben Blanchard和Yimou Lee，2021年10月10日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl-5.jpg)图片来源：路透社视频
+《路透社》台北10月10日 —— 针对北京的谴责，周日，台湾总统蔡英文回击。总统表示台湾将继续加强防御，以确保没有人能够强迫他们接受中共国制定的既不自由也不民主的道路。
 
+台湾被中共国宣称为自己的领土，并要求接受北京的统治。台湾受到越来越大的军事压力和政治压力，其中包括中共国空军多次在台湾防空识别区执行任务，这引起国际社会的关注。
 
-根据《国家脉动》独家透露，这家社交企业媒体 Facebook 的“吹哨人”在 Twitter 上发表了一些带有种族歧视色彩的评论，并声称为儿童购买了卡尔·马克思 (Karl Marx) 的书籍。
+中国共产党总书记习近平星期六誓言要实现与台湾的 “和平统一”，并没有直接提到使用武力。但他还是得到了台北愤怒反应，台北表示只有台湾人民才能决定台湾的未来。
 
-弗朗西斯·豪根（Frances Haugen）在几天内从无人问津到在国会山作证——一直要求对社交媒体进行[大规模](https://www.cbsnews.com/news/facebook-whistleblower-frances-haugen-misinformation-public-60-minutes-2021-10-03/)[审查](https://www.cbsnews.com/news/facebook-whistleblower-frances-haugen-misinformation-public-60-minutes-2021-10-03/)，尤其是针对那些不同意她的世界观的人。
+蔡英文在国庆节集会上发表讲话时说，她希望台湾海峡的紧张局势能得到缓和，并重申台湾不会“贸然行动”。
 
-但她自己在社交媒体上的行为，可能会破坏她在这个问题上的道德权威；一个与 Haugen 相关的私人资料出现在她为 2015 年女孩极客晚宴（2015 Girl Geek Dinner）等[活动](https://girlgeek.io/speaker/frances-haugen-2/)所做的传记中，揭示了这位前 Facebook 员工更诡异的一面。它还包含详细介绍她以前的雇主（例如[Google](https://web.archive.org/web/20160312054254/https:/twitter.com/frizy)）的工作，以及她在哈佛商学院就读的[时间线](https://www.dailymail.co.uk/news/article-10061835/Facebook-whistleblower-Harvard-grad-raised-worked-Silicon-Valleys-biggest-names.html)。
+她在位于台北市中心的总统府外演讲中提到：“但绝不要幻想台湾人民会向压力低头。”
 
-虽然这个账户——“@Frizy”——[目前](https://twitter.com/frizy?lang=en)被隐藏起来，但从 2008 年和 2009 年的[资料中](https://web.archive.org/web/*/https:/twitter.com/frizy)显示了， Haugen 发布的奇怪的公开推文；其中，Haugen 讲述了一个笑话，显现其对[“棕色人种”](https://web.archive.org/web/20090923155832/https:/twitter.com/frizy)和数学抱有成见（如下图），同时还讲述了她在空中调情的尝试：
+蔡英文说：“我们将继续加强台湾国防，展示我们保卫台湾的决心，以确保没有人能够强迫台湾走中共国为我们制定的道路。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-7-4.png)
+“这是因为中共国制定的道路既没有为台湾提供自由和民主的生活方式，也没有为我们2300万人民提供主权。”
 
-在另一篇推文中，Haugen 在推特上发布了一张“令人敬畏的多样性晚宴”，其中有一个“印度人、红头发人、金发女郎、非裔美国人和亚洲人”。 “在波士顿从来没有见过这样的人类物种，”她补充道（如下图）。
+中共国向台湾提供了“一国两制”的自治模式，就像它对香港使用的模式一样。但所有主要的台湾政党都拒绝了，特别是在中共国对香港这个前英国殖民地进行武力镇压之后。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-8-4.png)
+蔡英文再次提出要在平等基础上与中共国进行对话，但北京在她发表演讲约九小时后作出回应并表示谴责，称国家必须“统一”，寻求独立关闭了对话的大门。
 
-实际上，波士顿是美国排名前 25 的“多种族化”的地区之一。 在2009年2月的一个揭露性的推文中，Haugen 在推特上说为她的”小表妹”购买了漫画书（如下图）。
+中国国台办表示：“该言论鼓吹台独，煽动对抗，截断历史，歪曲事实。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-9-2.png)
+针对蔡的执政党，中国国台办补充道：“民进党当局的独立挑衅是两岸关系紧张动荡的根源，是对台海和平稳定的最大威胁。”
 
-这些书包括卡尔·[马克思](https://web.archive.org/web/20090218124903/https:/twitter.com/frizy)以及共产主义哲学家和恋童癖辩护者米歇尔·福柯的作品。在 1978 年的[一次采访中](http://www.uib.no/sites/w3.uib.no/files/attachments/foucaultdangerchildsexuality_0.pdf)，福柯（Foucault）表示，假设“一个孩子无法解释发生的事情，并且也不能给予他的选择权，这是两种不能被容忍和接受的虐待行为。”
+**“复杂”的局势**
 
-1977 年，Foucault 签署了一份请愿书，呼吁将恋童癖在法国有效合法化。 《国家脉动》出土的其他推文显示， Haugen 指示推特追随者“思考 [原文如此] 如果女性的收入和男性一样[独立，](https://web.archive.org/web/20090630145718/https:/twitter.com/frizy)世界将会如何的不同”，并承认她是“有史以来最糟糕的同桌”，
+北京拒绝与蔡英文打交道，称她是分裂分子，拒绝承认台湾是“一个中国”，也不承认台湾政府。
 
-因为她有“咳嗽/流鼻涕”、“渗出的伤口”，并且两天没洗澡了（如下图）：
+她提到，台湾是一个独立的国家，台湾的正式名称是中华民国，她不会在捍卫台湾主权或自由方面做出妥协。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-10-2.png)
+她表示，台湾的善意不会改变，它将竭力防止与中共国的现状被单方面改变。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-11-2.png)
+蔡英文警告说，台湾局势“比过去72年的任何时候都要复杂多变”，中共国在台湾防空区的常规军事存在已经严重影响了台湾的国家安全和航空安全。
 
-《国家脉动》联系了 Haugen 以征求其对以上推文的意见，但没有得到回应。
+她正在见证一项军事现代化计划，以加强台湾的防御和威慑力，包括建造台湾自己的潜艇和可以深入中国内陆的远程导弹。
 
-《国家脉动》此前曾[曝光](https://thenationalpulse.com/news/facebook-whistleblower-donated-36-times-to-democrats-including-to-anti-primary-extremists-and-aoc/) Haugen 多次向极左、受马克思主义启发的团体和政治候选人（如亚历山大·奥卡西奥·科尔特斯）捐款。
+武装部队是蔡英文国庆阅兵的主要部分，战斗机在总统府上空轰鸣，卡车上的导弹发射器和其他武器装备在她坐的舞台前经过。
 
-**简评：**
+蔡英文补充说，台湾站在捍卫民主的前线。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-12-2.png)
+“我们取得的成就越多，我们面临的来自中共国的压力就越大。所以我想提醒我所有的同胞，我们没有放松警惕的特权。”
 
-**一则相关[报道](https://www.newsmax.com/finance/companies/haugen-facebook-oversight-board/2021/10/11/id/1040026/)。**
+**新闻来源：**[https://www.reuters.com/world/asia-pacific/taiwan-wont-be-forced-bow-china-president-says-2021-10-10/](https://www.reuters.com/world/asia-pacific/taiwan-wont-be-forced-bow-china-president-says-2021-10-10/)
 
-**在一份[声明中](https://oversightboard.com/news/1232363373906301-oversight-board-to-meet-with-frances-haugen/)，监督委员会表示，鉴于前 Facebook 员工弗朗西斯·豪根 (Frances Haugen) 关于 Facebook “内容审核”的严重指控，董事会邀请这位数据科学家向委员会发言。**
+翻译：洛杉矶盘古农场 – KY
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**在周一的一条[推文中](https://twitter.com/FrancesHaugen/status/1447617378402160642)，Haugen 说她已经接受了邀请——同时又投掷了一枚燃烧弹，声称“Facebook 一再向董事会撒谎，我期待与他们分享真相。”**
-
-**“董事会成员很高兴有机会讨论 Haugen 女士的经历以及收集信息，并通过我们的案件决定和建议去帮助推动 Facebook 提高透明度和问责制，”董事会声明说。**
-
-**声明补充说：“作为董事会，我们将继续向 Facebook 提出棘手的问题，并推动公司致力于提高透明度、问责制和公平性；最终，只有这样才能让 Facebook 用户相信他们得到了公平对待。”**
-
-**该声明宣称，社交媒体平台做出的选择“对全世界数十亿人的言论自由和人权产生了现实的影响”。**
-
-**“在这种情况下，社交媒体规则的透明度至关重要，”董事会表示。**
-
-**有一种董事会通过暗示 Haugen 冒头，将借助她向小扎“捅刀子”的感觉…**
-
-（文章仅代表作者观点与GNEWS无关）
-
-**新闻来源：**《[国家脉动](https://thenationalpulse.com/exclusive/unearthed-tweets-from-fb-whistleblower/)》｜作者：娜塔丽·温特斯&拉姆·卡萨布｜发布时间：2021年10月11日
-
-* * *
-
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

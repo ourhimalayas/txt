@@ -2,61 +2,27 @@
 ---
 
 
-## 13岁圭亚那男孩接种第二剂辉瑞疫苗两小时后死亡，调查已展开
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1588034/)
+## 半导体短缺令日本汽车在华销量大降
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1588141/)
 
-译评：香草山商业部 – 文锤
+俄罗斯莫斯科喀秋莎农场  银河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+编辑上传   水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/A-3.jpg)dailycarblog.com
+日经新闻报道，日本丰田汽车公司（Toyota Motor Corp.）10月11日公布，该公司9月份在华新车销量大幅下滑，凸显出在半导体短缺的背景下，该公司在华业务已变得疲软。
 
+日本最大的汽车制造商丰田上个月在中共国的销量为11.5万辆，比去年同期下降了35.9%，8月份下降了11.9%。本田汽车公司9月份在中共国的新车销量下降了28.1%，而其电动汽车业务则停滞不前。日产汽车公司上个月在华销量也暴跌26.2%。一些经济学家表示，由于中共病毒带来的世界经济及供应链的影响，在中共国运营的日本汽车制造商将继续遭受严重的半导体短缺。日产汽车公司表示，半导体短缺的负面影响预计至少会持续到今年年底。
 
+早在2020年4月，日本安倍首相内阁会议提出《紧急经济对策方案》，支持日本企业将中共国等海外投资的生产据点回归本国，或者转移到东南亚国家。随后日本政府推出对撤出中共国的企业给与补偿，至2020年7月底，近1700家企业提出申请。时至2021年，大量外资企业撤离中共，4月日本松下宣布将在明年关闭位于上海的干电池工厂。德国零售巨头麦德龙已经出售给了中企物美，法国超市巨头家乐福也已经卖给了中企苏宁，据爆料革命和新中国联邦创始人郭文贵先生爆料，日本丰田汽车和本田汽车也将撤离中共国。
 
+中共经济暴雷，恒大风暴或将席卷全球。中共通过蓝金黄渗透世界，华尔街、伦敦金融城、跨国公司与中共勾兑，同时骗取各国大量养老基金投资中共，中共经济崩塌在即将引发世界恐慌。美国拜登为维持中期选举，拖延经济危机，不惜出卖台湾与中共勾兑。然而全球货币超发，通货膨胀，在中共病毒的影响下供应链短缺带来的危机已经近在眼前，疫苗灾难带来的人道危机及世界各国局势动荡也不可能逆转，各主权货币贬值，世界经济崩溃的恶果不会因为无德政客的勾兑而消除。
 
+外资撤离中共，中共国经济暴雷只是一个开始，中共的全面崩塌将引发世界格局的重新洗牌已经是一个必然的结果。
 
+（文章仅代表作者个人观点）
 
+参考链接：
 
-### **针对这名少年的死亡所进行的全面调查已被启动，同时对其尸体的尸检已进行。**
+[https://english.kyodonews.net/news/2021/10/ae19c76c04c7-toyota-car-sales-plunge-in-china-in-sept-on-semiconductor-shortages.html](https://english.kyodonews.net/news/2021/10/ae19c76c04c7-toyota-car-sales-plunge-in-china-in-sept-on-semiconductor-shortages.html)
 
-![13岁地区一名男孩在第二剂辉瑞疫苗两小时后死亡;已展开调查](https://newssourcegy.com/wp-content/themes/main/timthumb.php?src=https%3A%2F%2Fnewssourcegy.com%2Fwp-content%2Fuploads%2F2021%2F08%2F210622-pfizer-covid-vaccine-ew-118p.jpeg&amp;q=90&amp;w=795&amp;zc=1)[图片来源](https://newssourcegy.com/news/13-year-old-region-one-boy-dies-two-hours-after-2nd-dose-pfizer-vaccine-investigation-launched/)
-
-卫生部证实，一名 13 岁的 Moruca 男孩在接种辉瑞公司的第二剂疫苗两小时后死亡，该疫苗为被用于为儿童接种的 COVID-19 疫苗。
-
-针对这名少年的死亡所进行的全面调查已被启动，同时对其尸体的尸检已进行。
-
-据卫生部称，三周前，这名小男孩接种了第一剂辉瑞疫苗。
-
-他于今天下午 2:00 接种了第二剂疫苗。他在接种疫苗后被观察了 20 分钟，没有任何不适。他被允许回家。
-
-回到家两个小时后，小男孩倒地不起，被紧急送往库马卡医院，抵达时被宣布死亡。
-
-“我们敦促市民不要沉迷于猜测，并等待验尸和其他调查的结果。
-
-卫生部向小男孩的家人表示慰问。
-
-圭亚那在近一个月前开始为儿童接种辉瑞疫苗。有人投诉儿童在接受第一剂后生病，但副作用并不致命。
-
-译者评论：还要失去多少年轻生命来证明疫苗是杀人而不是救人？还要用多少悲痛和苦难唤醒全球的人类：CCP是人类的公敌！
-
-**原文阅读：**
-
-[13-year-old Region One boy dies two hours after 2nd dose Pfizer vaccine; Investigation launched – News Source Guyana (newssourcegy.com)](https://newssourcegy.com/news/13-year-old-region-one-boy-dies-two-hours-after-2nd-dose-pfizer-vaccine-investigation-launched/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+[https://www.rfa.org/mandarin/yataibaodao/jingmao/ql2-09142020062444.html](https://www.rfa.org/mandarin/yataibaodao/jingmao/ql2-09142020062444.html)

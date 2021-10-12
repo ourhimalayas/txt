@@ -2,27 +2,40 @@
 ---
 
 
-## 半导体短缺令日本汽车在华销量大降
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1588141/)
+## 印尼政府批准用伊维菌素治疗COVID-19后，病例急剧下降
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1588214/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+**据《网关专家》作者：Jim Hoft，2021年10月9日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/a3pbr-n5ovj.jpg)图片来源：《网关专家》
+2021年7月，印度尼西亚食品和药品监督局（BPOM）最终批准了伊维菌素作为治疗药物的紧急使用授权，以治疗Covid-19。
 
-编辑上传   水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/A-3.jpg)dailycarblog.com
-日经新闻报道，日本丰田汽车公司（Toyota Motor Corp.）10月11日公布，该公司9月份在华新车销量大幅下滑，凸显出在半导体短缺的背景下，该公司在华业务已变得疲软。
+据官员称，这是由于当时该国的“最糟糕”的流行病。
 
-日本最大的汽车制造商丰田上个月在中共国的销量为11.5万辆，比去年同期下降了35.9%，8月份下降了11.9%。本田汽车公司9月份在中共国的新车销量下降了28.1%，而其电动汽车业务则停滞不前。日产汽车公司上个月在华销量也暴跌26.2%。一些经济学家表示，由于中共病毒带来的世界经济及供应链的影响，在中共国运营的日本汽车制造商将继续遭受严重的半导体短缺。日产汽车公司表示，半导体短缺的负面影响预计至少会持续到今年年底。
+印度尼西亚在7月经历了COVID-19感染和死亡的高峰。由于人口众多，它正在努力减缓病毒的传播。印度尼西亚被列为世界第四大人口大国。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/gjujhj.jpg)图片来源：《网关专家》
+政府实施了一些紧急措施以减缓病毒的传播，其措施之一是授权使用伊维菌素作为COVID-19的治疗手段。
 
-早在2020年4月，日本安倍首相内阁会议提出《紧急经济对策方案》，支持日本企业将中共国等海外投资的生产据点回归本国，或者转移到东南亚国家。随后日本政府推出对撤出中共国的企业给与补偿，至2020年7月底，近1700家企业提出申请。时至2021年，大量外资企业撤离中共，4月日本松下宣布将在明年关闭位于上海的干电池工厂。德国零售巨头麦德龙已经出售给了中企物美，法国超市巨头家乐福也已经卖给了中企苏宁，据爆料革命和新中国联邦创始人郭文贵先生爆料，日本丰田汽车和本田汽车也将撤离中共国。
+《海峡时报》报道，印度尼西亚政府周四（7月15日）开始向高危地区自我隔离的Covid-19患者免费发放药品和维生素，因为具有高度传播性的德尔塔（Delta）冠状病毒变体持续在该国肆虐，清空了药店的货架。
 
-中共经济暴雷，恒大风暴或将席卷全球。中共通过蓝金黄渗透世界，华尔街、伦敦金融城、跨国公司与中共勾兑，同时骗取各国大量养老基金投资中共，中共经济崩塌在即将引发世界恐慌。美国拜登为维持中期选举，拖延经济危机，不惜出卖台湾与中共勾兑。然而全球货币超发，通货膨胀，在中共病毒的影响下供应链短缺带来的危机已经近在眼前，疫苗灾难带来的人道危机及世界各国局势动荡也不可能逆转，各主权货币贬值，世界经济崩溃的恶果不会因为无德政客的勾兑而消除。
+每个包裹里有用量七天的治疗性Covid-19药物和维生素，并提供给无症状的病人以及那些有轻度至中度症状包括发烧和干咳的病人。后一类人的药物需要咨询医生并要有处方。
 
-外资撤离中共，中共国经济暴雷只是一个开始，中共的全面崩塌将引发世界格局的重新洗牌已经是一个必然的结果。
+医疗设施捉襟见肘，对氧气和药物的需求也激增。由于数十人在家中自我隔离和自我治疗，药店和网上的药品价格已经飙升。此后，卫生部已采取行动，对诸如法匹拉韦、瑞德西韦和伊维菌素等药物的价格设定上限。
 
-（文章仅代表作者个人观点）
+路透社报道，印度尼西亚的食品和药物管理机构已经授权伊维菌素紧急用于防治Covid-19，尽管世界卫生组织以及欧洲和美国的监管机构不建议将其用于Covid-19患者。
 
-参考链接：
+在政府授权对COVID-19患者使用伊维菌素后，自7月以来，病例数量明显骤减。
 
-[https://english.kyodonews.net/news/2021/10/ae19c76c04c7-toyota-car-sales-plunge-in-china-in-sept-on-semiconductor-shortages.html](https://english.kyodonews.net/news/2021/10/ae19c76c04c7-toyota-car-sales-plunge-in-china-in-sept-on-semiconductor-shortages.html)
+下面的数据证明，尽管疫苗接种率很低，但伊维菌素对COVID-19病例的急剧下降起到了作用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/6yh.jpg)图片来源：《网关专家》
+截至10月8日，只有20.5%的人完全接种了疫苗，35.9%的人接种了第一针。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-45.jpg)图片来源：《网关专家》
+**原文连接：**[https://www.thegatewaypundit.com/2021/10/amazing-covid-19-cases-indonesia-plunge-government-authorizes-ivermectin-treatment/](https://www.thegatewaypundit.com/2021/10/amazing-covid-19-cases-indonesia-plunge-government-authorizes-ivermectin-treatment/)
 
-[https://www.rfa.org/mandarin/yataibaodao/jingmao/ql2-09142020062444.html](https://www.rfa.org/mandarin/yataibaodao/jingmao/ql2-09142020062444.html)
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

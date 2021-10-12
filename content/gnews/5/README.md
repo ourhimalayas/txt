@@ -2,9 +2,11 @@
 ---
 
 
-## 人类胚胎肾脏细胞用于疫苗实验室测试事实被广泛审查
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1588457/)
+## 中共解放军在福建进行抢滩登陆实战演练剑指台湾
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1588552/)
 
-10/6/2021 梅丽莎·斯特里克勒：一个或多个来源可追述到人类胎儿组织的细胞株已被用于与疫苗项目相关的实验室测试中，辉瑞高管一直在努力不分享这些信息，这个问题已经过广泛审查，他们还把生产车间的窗户遮住，因为食品药物管理局的人要来了。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10122-scaled.jpg)
+（文章仅代表作者个人观点，与GNEWS无关）
+*编辑：东京樱花团/简报小组*
+*发布：东京樱花团 /平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

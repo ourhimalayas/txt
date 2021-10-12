@@ -2,37 +2,49 @@
 ---
 
 
-## 辉瑞疫苗中使用流产胎儿细胞证据
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1588521/)
+## 加拿大“新冠集中营”与“纠察队”在萨斯喀彻温省即将正式上线
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1588561/)
 
-据《国家脉动》特约撰稿人2021年10 月6日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-3.png)图片来源于网络
-辉瑞内部人士梅丽莎·斯特里克勒 ( Melissa Strickler ) 向《真理计划》（Project Veritas）透露了内部电子邮件，其中透露公司高管指示员工对在中共病毒疫苗的实验室测试中使用人类胎儿组织的情况保密。
+作者：纽约香草山美食部 – 文百合
 
-辉瑞首席科学官菲利普·多米策 (Philip Dormitzer) 承认，公司的疫苗计划中使用了流产的胎儿组织，但员工应该坚持辉瑞的公开说法，不得提及任何流产胎儿组织，以避免产生任何公众问题。
 
-多米策说：“用于 IVE 检测的 HEK293T（人胚胎肾细胞）最终来自流产的胎儿。” 另一方面，梵蒂冈教义委员会已经确认，他们认为支持生命的信徒接受免疫接种是可以接受的。辉瑞的官方声明很好地回答了这个问题，也是回应外部询问时应该提供的。”
 
-辉瑞全球研究高级总监凡妮莎·格尔曼（Vanessa Gelman）提醒员工在公司疫苗计划中谈论人类胎儿细胞时要小心。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-格尔曼指示道：“从公司事务的角度来看，我们希望避免有关胎儿细胞的信息外流”。
 
-她说：“现在传播此信息的风险超过了可见的任何潜在好处，特别是公众可能获取此信息并以我们不希望的方式传播。过去几周我们没有收到政策制定者或媒体就此问题提出的任何问题，因此我们希望尽可能避免这个问题”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture2-5.png)泄露的辉瑞电子邮件
-在另一封电子邮件中，格尔曼再次强调要对这些信息保密。
 
-她说：“我们一直在尽量不提及胎儿细胞系，一个或多个起源可追溯到人类胎儿组织的细胞系已用于与疫苗计划相关的实验室测试”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture3.png)泄漏的电子邮件
-给《真理计划》分享这些电子邮件的举报人是辉瑞的生产质量审核员梅丽莎·斯特里克勒 ( Melissa Strickler )，她说她不确定流产的胎儿组织是否最终存在于中共病毒疫苗成品中。
+10月8日，据CBC报道，加拿大萨斯喀彻温省将反聘大量退休警察，使其与在职的警察联合行动，组成“新冠疫苗政策强制执行队”。该行动队旨在逮捕在公开场合违反加拿大新冠疫情规定的反口罩和反强制疫苗护照人士。
 
-她说：“他们在电子邮件中如此虚假，几乎就像在最后的疫苗中（存在胎儿组织）一样。这令我不敢相信它”。
+![Image](https://media.discordapp.net/attachments/879117708753514526/897170156176932874/image0.jpg)图源网络
 
-斯特里克勒说，《真理计划》是她唯一可以讲述自己故事的地方。
+此前，萨斯喀彻温省已在该省的北巴特爾福德市秘密建造了大量的隔离集中营。目前，这些集中营已投入使用——被逮捕的反新冠疫苗政策人士，以及新冠阳性患者都将会被关押在这些集中营内进行隔离。另外，该政策并未对何时释放关押人员做出任何解释。
 
-她说：“当我自己的公司对我不诚实时，我没有其他人可以相信。立法者、律师告诉我，要做的是信任“真理项目”并和你们这些人站在一起”。
+据悉，萨斯喀彻温省政府还向公众推荐了该省的匿名举报系统，即无论个人或商户，倘若有人发现未戴口罩或未接种新冠疫苗者，可经相关网站进行匿名举报。随后，“新冠政策强制执行队”会对被举报人进行抓捕和关押。
 
-【本文仅代表作者个人观点，与Gnews无关】
+而今，赤裸裸的红色恐怖已经在加拿大蔓延开来。
 
-原文链接：[https://thenationalpulse.com/news/pfizer-whistleblower-emails-imply-aborted-baby-cells-in-vaccine/](https://thenationalpulse.com/news/pfizer-whistleblower-emails-imply-aborted-baby-cells-in-vaccine/)
+（本文仅代表作者观点）
 
-翻译：Nick |校对：JS709 |编辑&发布：黎明的光芒
+参考阅读：
+
+[Ex-police will enforce COVID-19 rules, ‘secure isolation site’ planned, Sask. doctors told](https://www.cbc.ca/news/canada/saskatoon/saskatchewan-covid-19-1.6205235)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
