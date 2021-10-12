@@ -2,32 +2,45 @@
 ---
 
 
-## 英国在病毒大流行中的错误
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1589885/)
+## FDA对北欧国家暂停使用Moderna 冠状病毒疫苗做出回应
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1589912/)
 
-新闻来源：德国法兰克福报网络版
+作者：纽约香草山农场 – 四季
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/lange-nahm-boris-johnson.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-资料来源：FAZ
 
-在欧盟大多数国家继续依赖强制口罩和疫苗接种证书的情况下，英国自 7 月以来宣布进入大流行后阶段——尽管感染人数众多并且很多抗疫措施的反对者不断增加。 英国已经开始对冠状病毒大流行进行政治重新评估。应对病毒大流行中政府在其中的作用的大型独立调查要到春天才能开始，但周二下议院成员已经预尝了可能的结果。
 
-经过数月的研究和超过 50 名证人的询问，一个由两党议员组成的小组向政府提供了喜忧参半的证词。 “英国的反应结合了巨大的成就和巨大的错误，”健康与科学委员会的联合声明发表的声明这样形容。
 
-国会议员的主要批评是在大流行的早期阶段反应迟缓。相对较晚于 2020 年 3 月 23 日实施第一次封锁主要归因于政府的“群体思维”。政府听从了官方科学顾问的建议，但没有充分质疑他们“错误”的假设和建议。只有当国家卫生服务 NHS 明显超负荷时， 才采取封锁措施。
+据[零对冲](https://www.zerohedge.com/markets/fda-responds-nordic-countries-suspending-moderna-covid-vaccine-usage)10月11日报道，美国食品和药物管理局（FDA）对上周北欧国家限制使用Moderna的COVID-19疫苗做出了回应，称该疫苗的好处大于风险。
 
-结果，英国不得不记录“最初更高的死亡率”。因此，欧洲议会议员谈到英国有史以来“公共卫生政策中最大的失败之一”。也有人批评英国“赌”了其他国家的优势，例如在数据分析方面的领先地位和病毒测试方面的发展。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1191-1-MADERNA-VACC_JF_1_03092021-700x420-1.jpg)图片来源：零对冲
 
-测试制度起步缓慢，尤其对老年人产生了影响。从医院（返回）转移到老人院的患者直到四月中旬才接受检测。到那时，已有超过 40,000 名老年人死于冠状病毒 – 几乎占英国迄今为止登记的所有冠状病毒 死亡人数的四分之一。
+FDA的一位官员在周末对新闻媒体发表的一份声明中说，FDA知道这些数据。目前，FDA仍然认为接种Moderna COVID-19疫苗的已知和潜在好处超过了已知和潜在风险。
 
-就绝对数字而言，英国是欧洲新冠死亡人数最多的国家：超过 137,000 人。  目前每天登记的新感染病例约有 40,000 例。 在过去的 7 天里，有 780 名在死于冠状病毒。
+同时，Moderna在这些国家做出决定后的一份声明中认为，这些通常是轻微的病例，个人在接受标准治疗和休息后往往会在短时间内恢复。然而，生命诚可贵，目前对那些注射疫苗而罹患心脏疾病的青年人产生的长期影响不得而知。
 
-[https://www.faz.net/aktuell/politik/ausland/grossbritanniens-politische-aufarbeitung-der-corona-pandemie-17581492.html](https://www.faz.net/aktuell/politik/ausland/grossbritanniens-politische-aufarbeitung-der-corona-pandemie-17581492.html)
+因为有包括心肌炎在内的副作用风险，芬兰、挪威、瑞典和冰岛的卫生官员都已宣布暂停对年轻人使用Moderna疫苗。而FDA无视这些已知的副作用风险，仍然坚持推行疫苗，是将人们的生命健康置于长期未知的风险之中。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+（本文仅代表作者观点）
 
-责任编辑/发布： Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

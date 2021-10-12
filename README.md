@@ -15,107 +15,107 @@
 
 ---
 
-### [民意调查：大多数未接种疫苗的人表示他们不会接种](/content/gnews/1/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [在路上——035漫画篇](/content/gnews/2/README.md)
- ` 温哥华扬帆农场`
-
-### [自疫苗开始推广以来，青少年的死亡人数上升了56%](/content/gnews/3/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [蔡英文以“四个坚持”应对习近平“顺之则昌，逆之则亡”](/content/gnews/4/README.md)
- ` 秘密翻译组-原创组`
-
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/5/README.md)
- ` wenwu`
-
-### [台湾成为中美私下勾兑的牺牲品](/content/gnews/6/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [Arooj Imtiaz Lughmani接种辉瑞疫苗副作用自述](/content/gnews/7/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [以色列卫生部删除大量新冠疫苗副作用证词](/content/gnews/8/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [如果我们再不反抗政客，媒体会把全人类当成奴隶](/content/gnews/9/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [10/11/2021 七哥盖特:中共利用巨大的潜在市场和投资的诱惑在全球招摇撞骗](/content/gnews/10/README.md)
- ` 秘密翻译组-北美组`
-
-### [10/11/2021 七哥盖特:无论是谈孙中山和台独，还是收买台湾内部的一些政治家，共产党都是在给对台动武找理由](/content/gnews/11/README.md)
- ` 秘密翻译组-北美组`
-
-### [喜交所的开户行是G系列的控股](/content/gnews/12/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [《蓝枫法律》第二十八期 财富管理及家族建设&#8211;加拿大和海外信托的税务问题](/content/gnews/13/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [DC每日热点1012](/content/gnews/14/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [FDA对北欧国家暂停使用Moderna 冠状病毒疫苗做出回应](/content/gnews/15/README.md)
- ` 纽约香草山MOS02`
-
-### [为防范中共海上霸权，美日印澳展开联合军演](/content/gnews/16/README.md)
- ` 纽约香草山MOS02`
-
-### [得克萨斯州宣布强制接种新冠疫苗无效](/content/gnews/17/README.md)
- ` Shuizhuyu`
-
-### [一位意大利医疗总监的讲话震惊了记者](/content/gnews/18/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [英国在病毒大流行中的错误](/content/gnews/19/README.md)
- ` Shuizhuyu`
-
-### [产煤大省晋陕遭遇罕见暴雨，或提前引爆全球经济危机](/content/gnews/20/README.md)
- ` 军迷wilson`
-
-### [【战友观点】强制疫苗和大重启的关系](/content/gnews/21/README.md)
- ` 温哥华扬帆农场`
-
-### [10/11/2021 七哥盖特:那些相信中共报的假案而关闭了战友账户的银行，将因涉及种族歧视而面临各种诉讼及调查](/content/gnews/22/README.md)
- ` 秘密翻译组-北美组`
-
-### [LifeLabs 的“人员配备挑战”导致预约取消，大维多利亚地区的多个设施突然关闭](/content/gnews/23/README.md)
- ` MG FARM`
-
-### [这个冬天会很惨 煤电粮荒同席卷](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
-
-### [意大利司法部副部长：疫苗受害者](/content/gnews/25/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [川普总统：在我的政府治下中共不敢威胁台湾](/content/gnews/26/README.md)
- ` HimalayaRussia`
-
-### [2021/10/11文贵先生盖特精要](/content/gnews/27/README.md)
+### [安公子选谈：全球性的“新人道生态”将应运而生？](/content/gnews/1/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [逾四分之三的加拿大人拒绝华为涉足5G建设](/content/gnews/28/README.md)
+### [真没想到，美国竟然衰到如此地步](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [上交所暂停先正达科创板上市申请](/content/gnews/3/README.md)
+ ` 日本东京方舟农场`
+
+### [民意调查：大多数未接种疫苗的人表示他们不会接种](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [在路上——035漫画篇](/content/gnews/5/README.md)
+ ` 温哥华扬帆农场`
+
+### [自疫苗开始推广以来，青少年的死亡人数上升了56%](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [蔡英文以“四个坚持”应对习近平“顺之则昌，逆之则亡”](/content/gnews/7/README.md)
+ ` 秘密翻译组-原创组`
+
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/8/README.md)
+ ` wenwu`
+
+### [台湾成为中美私下勾兑的牺牲品](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [Arooj Imtiaz Lughmani接种辉瑞疫苗副作用自述](/content/gnews/10/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [以色列卫生部删除大量新冠疫苗副作用证词](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [英国官方&#8211;完全接种中共病毒疫苗者之免疫力将恶化殆尽！](/content/gnews/12/README.md)
+ ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
+
+### [如果我们再不反抗政客，媒体会把全人类当成奴隶](/content/gnews/13/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [10/11/2021 七哥盖特:中共利用巨大的潜在市场和投资的诱惑在全球招摇撞骗](/content/gnews/14/README.md)
+ ` 秘密翻译组-北美组`
+
+### [10/11/2021 七哥盖特:无论是谈孙中山和台独，还是收买台湾内部的一些政治家，共产党都是在给对台动武找理由](/content/gnews/15/README.md)
+ ` 秘密翻译组-北美组`
+
+### [喜交所的开户行是G系列的控股](/content/gnews/16/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [《蓝枫法律》第二十八期 财富管理及家族建设&#8211;加拿大和海外信托的税务问题](/content/gnews/17/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [卡洛·玛丽亚·维加诺主教阁下的非凡和勇敢的话语](/content/gnews/29/README.md)
+### [DC每日热点1012](/content/gnews/18/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [FDA对北欧国家暂停使用Moderna 冠状病毒疫苗做出回应](/content/gnews/19/README.md)
+ ` 纽约香草山MOS02`
+
+### [为防范中共海上霸权，美日印澳展开联合军演](/content/gnews/20/README.md)
+ ` 纽约香草山MOS02`
+
+### [得克萨斯州宣布强制接种新冠疫苗无效](/content/gnews/21/README.md)
+ ` Shuizhuyu`
+
+### [一位意大利医疗总监的讲话震惊了记者](/content/gnews/22/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [有声|州长候选人和妻子患新冠 强烈反对新冠疫苗强制令](/content/gnews/30/README.md)
- ` MOSREC`
+### [英国在病毒大流行中的错误](/content/gnews/23/README.md)
+ ` Shuizhuyu`
 
-### [有声|限期临近，超十万军人仍拒绝接种毒针疫苗](/content/gnews/31/README.md)
- ` MOSREC`
+### [产煤大省晋陕遭遇罕见暴雨，或提前引爆全球经济危机](/content/gnews/24/README.md)
+ ` 军迷wilson`
 
-### [有声|文贵先生惊天爆料: 美国政府已背弃台湾!](/content/gnews/32/README.md)
- ` MOSREC`
+### [【战友观点】强制疫苗和大重启的关系](/content/gnews/25/README.md)
+ ` 温哥华扬帆农场`
 
-### [有声|海关官员在芝加哥查获救命的伊维菌素和羟氯喹](/content/gnews/33/README.md)
- ` MOSREC`
+### [10/11/2021 七哥盖特:那些相信中共报的假案而关闭了战友账户的银行，将因涉及种族歧视而面临各种诉讼及调查](/content/gnews/26/README.md)
+ ` 秘密翻译组-北美组`
 
-### [意大利省议会宫殿里举行的反疫苗介绍](/content/gnews/34/README.md)
+### [LifeLabs 的“人员配备挑战”导致预约取消，大维多利亚地区的多个设施突然关闭](/content/gnews/27/README.md)
+ ` MG FARM`
+
+### [这个冬天会很惨 煤电粮荒同席卷](/content/gnews/28/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [意大利司法部副部长：疫苗受害者](/content/gnews/29/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [川普总统：在我的政府治下中共不敢威胁台湾](/content/gnews/30/README.md)
+ ` HimalayaRussia`
+
+### [2021/10/11文贵先生盖特精要](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [卡洛·玛丽亚·维加诺主教阁下的非凡和勇敢的话语](/content/gnews/32/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [有声|州长候选人和妻子患新冠 强烈反对新冠疫苗强制令](/content/gnews/33/README.md)
+ ` MOSREC`
+
+### [有声|限期临近，超十万军人仍拒绝接种毒针疫苗](/content/gnews/34/README.md)
+ ` MOSREC`
 
 ### [佐治亚州两工作人员因销毁选举文件被解雇](/content/gnews/35/README.md)
  ` HimalayaRussia`

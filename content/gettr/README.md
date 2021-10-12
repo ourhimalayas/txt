@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/12/2021 11:41 PM (UTC)`
+
+10月12号：尊敬的战友们好，明天上午9点．10月13号．七哥和我们帅哥，美女战友们继续我们的大直播！
+![img](https://media.gettr.com/group20/getter/2021/10/12/23/41/2ad3284a-3617-4a4c-f4be-9d3bf55261b7/e5f6f5534b0c580020cb9b32cd17a52d.jpg)
+
+---
+
 `@miles 10/12/2021 10:43 PM (UTC)`
 
 10月12号：这个世界最终会被正义唤醒．并会共同的铲除邪恶！【Sir Christopher Chope MP： Covid-19 vaccines has done a lot more damage than any other vaccine program in history; There is causation between vaccinations and damage caused by the vaccine克里斯托弗·乔普爵士议员：新冠疫苗给人们带来的伤害远超历史上任何一种疫苗，接种疫苗和因疫苗造成的伤害之间存在因果关系】
@@ -284,13 +291,6 @@ Taiwan is in great danger: Xi Jinping addresses the 110 years anniversary of Xin
 ---
 
 `@miles 10/9/2021 12:15 AM (UTC)`
-
-...
-![img](https://media.gettr.com/group46/origin/2021/10/08/22/dcea9bcd-e61b-16aa-9d9a-c49e9010eb27/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 10/8/2021 11:17 PM (UTC)`
 
 ...
 ![img](https://media.gettr.com/group46/origin/2021/10/08/22/dcea9bcd-e61b-16aa-9d9a-c49e9010eb27/6383d6c383a688bc0ce747d8282e44b3.jpeg)

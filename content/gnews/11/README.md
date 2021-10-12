@@ -2,7 +2,12 @@
 ---
 
 
-## 10/11/2021 七哥盖特:无论是谈孙中山和台独，还是收买台湾内部的一些政治家，共产党都是在给对台动武找理由
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1589985/)
+## 以色列卫生部删除大量新冠疫苗副作用证词
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1590024/)
 
-秘密翻译组-北美组
+- 制作：JIHO
+
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
