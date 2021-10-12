@@ -2,27 +2,27 @@
 ---
 
 
-## 有声|不屈服接种令，西雅图近四成警察直面解雇威胁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1588039/)
+## G7财长拟定中央银行数字货币的首个原则草案
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1588167/)
 
-配音：香草山美食部 – 玫瑰园
+俄罗斯莫斯科喀秋莎农场   银河
 
-西雅图市政府规定，所有警察必须在10月18日之前接种疫苗，否则将被解雇。截至周五，该市共有292名警察没有提交疫苗接种证明，另外111名警察正在等待豁免批准，共计403人。如果他们因此而被全部解雇，西雅图将失去37%的警察。
+编辑上传   水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/c.png)elevenews.com
+日本共同社10月11日报道，日美欧七国集团（G7）财长和央行行长已拟定中央银行数字货币（CBDC）相关的首个共同原则草案。该指南草案主要侧重于透明度和隐私， 预计将于13日于华盛顿举行的“财务负责人”会议上获得批准。
 
-目前尚不清楚市政府是否将于18日执行解雇命令，为确保巡逻安全人员的合理配置，警察局长阿德里安·迪亚兹（Adrian Diaz）已经做出指示，从10月13日起过渡到”第三阶段动员”，即剩余警力处于随时待命状态，以应对911电话。
+据截稿时间为止，G7 集团尚未发布 CBDC具体细则。
 
-面对政府恶劣行径，美国多地警员在社交媒体发布视频，重申加入警局的誓言：保护人民，而不是镇压真相的声音，同时也团结起来，使用法律回击接种强制令维护应有的权力。自2020年开始，已有280名警察辞职，使得该市警察部门的人员配置，处于1980年代以来最低水平。今年以来，西雅图的暴力犯罪激增，按目前的发展态势，城市治安将面临更加严峻的挑战。
+七国集团成员——英国、加拿大、法国、德国、意大利、日本和美国以及欧盟——都还没有决定实施CBDC。根据该文件草案，七国集团成员将承认，数字支付使用的迅速增加正在改变个人和企业的交易方式，而中共病毒疫情“进一步加速了”这一趋势，这提高了对货币非接触交易功能的需求。在被认为对任何CBDC都“至关重要”的问题中，该文件引用了适用于新支付系统的国家监管和监督框架，以及保护用户数据的隐私和问责的“严格”标准，以及如何保护和使用信息的透明度。
 
-文字版原文：[不屈服接种令，西雅图近四成警察直面解雇威胁](https://gnews.org/zh-hans/1585591/)
+该文件还指出了对外国居民大量使用任何CBDC的担忧，这可能导致发行国和外国的货币替代和货币主权丧失。虽然指出发行这类数字货币是一个“主权问题”，共同社获得的文件称，“通过制定一套共同的原则，并强调透明度、法治和健全的经济治理等共同价值观的根本重要性，这些原则可以指导七国集团及其他国家对零售CBDC的探索。”
 
-音频处理：喜山必胜Maverick
+与此同时，中共国被认为是迄今为止最接近于启动CBDC的主要经济体，发展数字人民币的试点项目已经在进行中。强调透明度似乎反映了批评人士的担忧，即CBDC的推出将通过收集私人金融交易的大数据，此举将赋予中共国政府权力。
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+华盛顿智库新美国安全中心(Center for a New American Security)在一份有关中共国数字货币的报告中表示，CBDC系统“可能会使中国共产党在国内加强其数字威权主义，并向国外输出其影响力和标准设定”。今年1月发布的这份报告警告称，中共国的这一项目“对自由社会长期坚持的金融隐私标准构成了重大风险”。
+
+根据国际货币基金组织（IMF）的数据，110个国家已经达到了研究CBDC的“某个阶段”。巴哈马是第一个正式启动CBDC的国家。美联储主席鲍威尔上个月表示，美联储正在评估是否要发行CBDC，并打算“很快发布一份讨论文件”，以征求议员和公众的反馈意见。与此同时，日本央行(Bank of Japan)今年早些时候开始了一项试验，以检查CBDC的基本功能。
+
+参考链接：
+
+[https://english.kyodonews.net/news/2021/10/6e9b63fdd05e-g-7-highlights-transparency-among-digital-currency-principles-draft.html](https://english.kyodonews.net/news/2021/10/6e9b63fdd05e-g-7-highlights-transparency-among-digital-currency-principles-draft.html)

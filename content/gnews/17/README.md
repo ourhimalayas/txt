@@ -2,27 +2,59 @@
 ---
 
 
-## 有声|坚持个人疫苗接种选择，洛杉矶消防员将起诉政府
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1588060/)
+## 2021/10/11大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1588183/)
 
-配音：香草山美食部 – 玫瑰园
+**主播**：大卫｜**嘉宾**：草根小哥
 
-10月10号文贵先生在其盖特转发了一则短视频，是来自美国洛杉矶当地媒体的报，视频中当地消防员安德烈称。他和其他871名消防员联名，通过律师提交了起诉洛杉矶市政府的告知文件，原因是政府警告消防员必须在10月20日之前全部接种疫苗，否则将被解雇或停薪留职。消防员坚持自己的选择，并将向法庭提出要求每人200万美元的赔偿，因为自己的选择将导致失业!消防员们称。此举不仅是因为疫苗，而是关系到人权和法律程序。
+[GTV视频链接](https://gtv.org/video/id=61642759304e992109b38468)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/101201.jpg)
+**板块1–中共病毒**
 
-文贵先生在他的盖特中对此事件评论道:
+1. 中共喂料给《太阳日报》，“甩锅”给蝙蝠暗示病毒源于自然界。美国顶级医生称：2012年有六名云南墨江矿工出现类似Covid-19症状，并谈及“实验室泄露论”。
 
-“洛杉矶发生的这种将面临没有消防员的情况，会在全球的电力、医院、警察等所有公共领域发生。全球的政府将面对无法计算的诉讼，以及社会公共灾难等巨大的社会问题，这是中共病毒和疫苗带来的灾难，是对人类社会秩序的摧毁性打击。这一结果完全在邪恶势力、和中共的计划之中。只有新中国联邦在2020年一月份就开始警告世界，疫苗才是灾难的真正核心。但愿世界早日醒来，我们新中国联邦人将为此奋斗到底 ” 。
+2. 疫苗真相逐渐公开，全球抵制疫苗强制令持续发酵，佐证爆料革命传播病毒和疫苗的真伪。日本取消紧急令，定义新冠为普通感冒；美墨边境海关查获走私伊维菌素和羟氯喹应急包。
 
-文字版原文：[坚持个人疫苗接种选择，洛杉矶消防员将起诉政府](https://gnews.org/zh-hans/1585328/)
+3. 中共利用芬太尼形成利益产业链，进行有组织犯罪在美南部边境倾销入境美国，制造美国混乱。
 
-音频处理：喜山必胜Maverick
+**板块2–国际财经**
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1. 中美勾兑已完成，为经济挂钩做铺垫，习保证“二十大”稳定，拜登保证美国经济稳定。中共国违背禁令购买澳大利亚棉花和铜，积极复工复产保证对美的出口，满足美国供应链稳定，刺激美国经济；秦刚呼吁中美经济重新“挂钩”。
+
+2. 华尔街媒体强调美股要想保持增长必须与中共国合作。多达四分之一美国股票ETF收入来自中共国。
+
+**板块3-军事**
+
+1. 中共核潜艇“碰瓷”美“海狼级”核潜艇，中共国向世界秀军事力量，美国吃“哑巴亏”，凸显拜登政府在军事和情报口的失败领导。媒体曝光中共升级“座头鲸”核潜艇具备更佳隐蔽性；美海军核潜艇工程师被控泄露机密。
+
+2. 中共国成功获取美军撤离阿富汗之前刻意未删除的信息，中美近期较量中共国占得先机，将刺激美国反对拜登派的力量。中共国骇客阿富汗一家主要的电信公司。
+
+**板块4–国内新闻**
+
+中共无应对紧急危机的应对措施，治理国家能力欠缺。山西洪灾将导致200万人流离失所；国内行政审批费用涨价。
+
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+
+[![](https://spark.adobe.com/page/bIWpY0ShPBwUR/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://spark.adobe.com/page/bIWpY0ShPBwUR/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*听写：call me uncle*
+
+*校对：乐禧禧*
+
+*Page：我是球大哥*
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
