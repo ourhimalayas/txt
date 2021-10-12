@@ -2,29 +2,31 @@
 ---
 
 
-## 台湾男子接种辉瑞疫苗9天后死亡
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1589483/)
+## &#8220;世界上三种权力最重要，我们要有话语权&#8221;!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589555/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+作者：文龍
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+今天文贵先生在盖特转发了他的一个视频片断，其中文贵先生称:
 
-据苹果新闻网10月12日报道，台中一男子接种第一针辉瑞疫苗九天后，在家中倒地死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-7.jpeg)
 
-报道称，台中市卫生局表示，这名男子今年62岁，在上月30日注射辉瑞疫苗第一针，9天后的10月9日突然在家中倒地，送医后不治身亡。
+“在欧洲意大利/法国，以及英国的工会，包括新加坡都在上街游行，美国也在罢工，但所有的媒体都不说这是因为疫苗引起的！这世界有三种权力，第一是货币发行权，掌握这个权力就控制了正义和邪恶的界定！第二是媒体话语权，可以颠倒黑白！最后就是第三种权力：枪杆子军队！全世界百姓都知道疫苗有副作用, 会死人，但不允许说，只是让你打疫苗。邪恶的势力远远超出了想象！拜金主义导致，钱似乎什么都能买，甚至要代表上帝!”
 
-台湾卫生福利部疾病管制署副署长庄人祥表示，目前全国统计，辉瑞疫苗接种后死亡有三例。在10月8日至11日期间，台湾共新增251例疫苗接种后疑似不良反应个案，当中有109例非严重不良反应、13例死亡，129例疑似严重不良反应。
+文贵先生最后讲到最近习近平关于辛亥革命的讲话,  “世界一半在沉默，另一半的解读，不是喂料就是带风向，完全视2300万台湾人民的生命安全于不顾…..因此媒体话语权对我们来说太重要了!” —  而这正是爆料革命要拥有和建设我们自己的媒体平台: GTV/Gnews和盖特的原因。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/d60de9e5c6.jpg)图片来自于网络
+(本文仅代表作者观点)
 
-13例死亡当中，有5例AZ，是在接种后当天到87天发生；有2例莫德纳疫苗，接种后当天到接种后4天发生；有4例高端疫苗，在接种后第5天到43天发生；有2例辉瑞，在接种后3天到5天发生。
+参考链接：[https://gettr.com/post/pdvw3820a4](https://gettr.com/post/pdvw3820a4)
 
-另有媒体提问，新庄一名42岁民众在台北医院死亡，先前接种过第一剂辉瑞疫苗，家人表示该民众生前健康状况良好，至于是否掌握相关消息或通报不良反应，庄人祥回应称，这个要查一下。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-*注：本文仅代表作者观点，与 Gnews无关*
+编辑/校正/发稿：谐趣园
 
-*参考链接：*
-
-[全台打BNT後3例死！台中62歲男9天後倒地不治　莊人祥曝死因](https://tw.appledaily.com/life/20211012/23PWBPQGMNHNPFLJAYLHXT267I/)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

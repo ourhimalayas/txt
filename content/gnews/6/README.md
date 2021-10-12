@@ -2,25 +2,27 @@
 ---
 
 
-## 俄外长称俄窃取阿斯利康配方的指控毫无根据
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1589566/)
+## 有声|海关官员在芝加哥查获救命的伊维菌素和羟氯喹
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1589718/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+配音：香草山美食部 – 玫瑰园
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/A-4.jpg)archyde.com
-俄外长表示，“我记得在很多情况下阿斯利康会产生副作用——造成血栓等等。俄罗斯的卫星五号从来没有发生过这样的情况。”
+[网关专家](https://www.thegatewaypundit.com/2021/10/custom-officials-seize-small-packages-lifesaving-ivermectin-hydroxychloroquine-chicago-record-amounts-ivermectin-continue-flow-across-southern-border/)10月10日报道，根据海关和边境保护局（CBP）的一份新闻稿，含有伊维菌素和羟氯喹的货物10月4日在芝加哥被海关官员查获。
 
-美东时间10月12日报道， 俄罗斯外交部长谢尔盖∙拉夫罗夫在访问哈萨克斯坦后的新闻发布会上表示，“关于俄罗斯从阿斯利康公司窃取冠状病毒疫苗配方以制造俄罗斯卫星5号疫苗的指控是毫无根据的。”
+芝加哥奥黑尔机场海关缴获了两个小包裹，其中一个内含100粒伊维菌素，另一个内含32粒伊维菌素和40粒羟氯喹。
 
-拉夫罗夫称，“至于我们的英国和大多数西方伙伴，我认为没有人会认真对待这些毫无根据的指责。已经有很多毫无根据的指责，没有听说阿斯利康疫苗的制造商指责俄罗斯窃取疫苗配方。”
+羟氯喹以前曾获得美国食品和药物管理局的紧急使用授权，用于治疗COVID-19，但在6月，该机构废除了其授权，并警告不要在医院以外的地方使用它。伊维菌素甚至在医院也被禁止。显然，这些安全，廉价和有效的药物被政治化了。
 
-外长补充说，“我记得在很多情况下阿斯利康会产生副作用——造成血栓等等。俄罗斯的卫星五号从来没有发生过这样的情况。”
+文字版原文：[海关官员在芝加哥查获救命的伊维菌素和羟氯喹](https://gnews.org/zh-hans/1587911/)
 
-英国《太阳报》报道，阿斯利康的疫苗配方于10月11日被盗。该报援引美国情报机构的话说，俄罗斯从阿斯利康公司复制了这项技术，并将其用于制造俄罗斯卫星五号疫苗。
+音频处理：喜山必胜Maverick
 
-俄罗斯总统发言人德米特里∙佩斯科夫称《太阳报》“极不科学”。俄罗斯直接投资基金称，英国出版物的报道是 “基于匿名来源的无耻谎言”。
-
-参考链接：
-
-[https://www.rbc.ru/rbcfreenews/61654fa69a7947107550f1ca](https://www.rbc.ru/rbcfreenews/61654fa69a7947107550f1ca)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

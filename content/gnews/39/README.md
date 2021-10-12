@@ -2,37 +2,36 @@
 ---
 
 
-## 台湾双十节，习近平誓言台湾统一
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1589166/)
+## 北京上海两派相争 冥诞登城楼者有去无回
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589213/)
 
-[![](https://spark.adobe.com/page/S7weQ2SesVHs1/images/09BED651-ADB5-4B48-A6B8-780BAF81CCE8.jpg?asset_id=1CACEBD1-D244-4D71-8D78-4544471712E0&amp;size=2560)](https://spark.adobe.com/page/S7weQ2SesVHs1/images/09BED651-ADB5-4B48-A6B8-780BAF81CCE8.jpg?asset_id=1CACEBD1-D244-4D71-8D78-4544471712E0&amp;size=750)
+作者：安吉拉
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月7日宁波平安银行挤兑事件后，泰国首富谢国民，及家人加入中国籍的新闻又被炒上平台。中共百年冥诞登城楼者和台下广场嘉宾，如今所剩无几，外界猜测，“登城观礼”为虚，“当地扣押”为实，这些企业家和富豪此行之后已被软禁或边控。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1012-AM-（1-3）.005.jpeg)
+谢国民是曾经泰国首富，其父亲谢易初创立了正大集团。正大集团是改开后第一家在内地投资的外资企业，取得深圳市“0001号”营业执照。
 
-#### 简评：
+旗下综艺节目《正大综艺》，特为中共间谍杨澜开拓国际市场而创立。谢国民侄女谢其润是新冠疫苗生产商之一，中国生物制药有限公司，董事会主席。2013年，正大出资全面收购汇丰股份，成为平安集团最大股东。今年上半年，中信证券担任保荐机构，正大集团提交主板IPO给上海交易所受理，农牧和制药两大板块同时准备进入A股，即人民币交易股票市场。
 
-台湾双十节前，中共党魁习近平发表讲话，誓言要实现台湾统一。中共一直派遣军机飞临台湾防空区，累计达150架次之多。台湾当局表示自1949年脱离大陆，台湾岛已经拥有自己的民选政府，拒绝北京的主权要求。习近平2019年就威胁要武力夺取台湾，随着大陆内部压力剧增，习近平攻台意图明显，台湾危在旦夕。
+中共百年冥诞登城楼者，有 恒大许家印，小米创始人雷军。美团CEO王兴，水滴创始人沈鹏也受邀嘉宾席，如今逐一暴雷。面对习派的几波进攻，江派在是否回击方面颇为犹豫。
+(本文仅代表作者观点)
 
-GTV视频链接：[习欲武力收台](https://gtv.org/user/5e862370de21f24fe9135579)
+参考链接：
+
+1. [庆祝中国共产党成立100周年大会在天安门广场隆重举行 习近平发表重要讲话](http://www.xinhuanet.com/politics/leaders/2021-07/01/c_1127615310.htm)
+2. [马云任正非都不在，这两位外籍富豪却受邀上城楼，他们是谁？](https://www.sohu.com/a/475478528_100120495)
+3. [泰国首富加入中国籍 成平安最大股东 坐拥近2000亿](https://www.tiaotiaowen.com/articles/kmfjgc)
+4. [泰国首富谢家四兄弟冲A！生猪概念股正大股份IPO获受理](https://news.stcn.com/sd/202106/t20210601_3297121.html)
 
 
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-#### 视频字幕：
+编辑/校正/发稿：我不在这里
 
-**习近平：**我们国家的完全统一必须且能够实现。
-
-**画外音：**中共国国家主席习近平星期六誓言要实现台湾统一。习近平在北京人民大会堂讲话时说，中国人民有反对分裂主义的光荣传统。习近平的讲话是在一周的紧张局势后发表的。在此期间，北京派遣了约150架中共国军机进入台湾防空区。虽然他没有提到使用武力，但习近平的意思很清楚。
-
-**习近平：**台湾独立是国家统一的最大障碍，是民族复兴的严重隐患。那些忘记祖宗、背叛故国并试图分裂国家的人，不会有好下场，他们将被人民唾弃、被历史谴责。
-
-**画外音：**他的讲话在台湾没有得到好评。作为回应，台北当局呼吁北京放弃其胁迫行为，并表示台湾的未来掌握在台湾人民手中。从1949年就脱离了大陆的台湾岛，拒绝北京的主权要求，并拥有自己的民选政府。习近平上一次关于台湾的重要讲话是在七月，他(当时)发誓，”粉碎任何正式形式的台独企图”。在2019年，他直接威胁要使用武力，将台湾置于北京的控制之下。
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*字幕：云岭 | 听写：势不可挡 | 翻译：致良知 | 校对：Dasy | 简评/文字整理/编辑：胖丁 | PAGE：彼岸花*
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-[![](https://spark.adobe.com/page/S7weQ2SesVHs1/images/6752D94C-BCC2-43FB-B5D0-CDF983944B0E.jpg?asset_id=CD9B05AE-4D6E-4DE8-9825-225BEA8730F9&amp;size=1024)](https://spark.adobe.com/page/S7weQ2SesVHs1/images/6752D94C-BCC2-43FB-B5D0-CDF983944B0E.jpg?asset_id=CD9B05AE-4D6E-4DE8-9825-225BEA8730F9&amp;size=1024)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
