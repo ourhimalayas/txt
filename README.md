@@ -15,112 +15,112 @@
 
 ---
 
-### [挑衅升级，中共军方在台湾附近举行两栖作战演习](/content/gnews/1/README.md)
+### [立陶宛VS中共国：弹丸小国对抗新兴超级大国](/content/gnews/1/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国辽宁省再次发布严重缺电II级橙色预警](/content/gnews/2/README.md)
+### [全民负债，所谓的共同富裕呢？](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共国洪水泛滥：因煤矿关闭导致煤炭价格创下新高](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [GETTR现场直击：面对反疫苗诉讼 日本媒体选择集体失声](/content/gnews/4/README.md)
+ ` 日本东京方舟农场`
+
+### [靓男孙中山](/content/gnews/5/README.md)
+ ` 骄子`
+
+### [挑衅升级，中共军方在台湾附近举行两栖作战演习](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共国辽宁省再次发布严重缺电II级橙色预警](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [英青少年男孩死亡人数自接种中共病毒后剧增](/content/gnews/3/README.md)
+### [英青少年男孩死亡人数自接种中共病毒后剧增](/content/gnews/8/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中印边境会谈破裂，军事对峙局势紧张](/content/gnews/4/README.md)
+### [中印边境会谈破裂，军事对峙局势紧张](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [世界人民疫苗统一战线](/content/gnews/5/README.md)
+### [北京上海两派相争 冥诞登城楼者有去无回](/content/gnews/10/README.md)
+ ` GTV新闻访谈`
+
+### [世界人民疫苗统一战线](/content/gnews/11/README.md)
  ` 银河勇气之星`
 
-### [北京就滴滴在美国上市涉及的国家安全风险进行调查](/content/gnews/6/README.md)
+### [北京就滴滴在美国上市涉及的国家安全风险进行调查](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【樱花宅急便】热带风暴下警示做人的尊严](/content/gnews/7/README.md)
+### [【樱花宅急便】热带风暴下警示做人的尊严](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西媒头条 — 第85期](/content/gnews/8/README.md)
+### [中共官媒吹“习近平生态文明思想”成笑谈！](/content/gnews/14/README.md)
+ ` GTV新闻访谈`
+
+### [西媒头条 — 第85期](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美参议员：英格兰Delta死亡病例，仅28%未接种疫苗](/content/gnews/9/README.md)
+### [一箭双雕！ 习近平开始整肃墙内金融业](/content/gnews/16/README.md)
+ ` GTV新闻访谈`
+
+### [美参议员：英格兰Delta死亡病例，仅28%未接种疫苗](/content/gnews/17/README.md)
  ` G-NEWS TAIWAN`
 
-### [台湾双十节，习近平誓言台湾统一](/content/gnews/10/README.md)
+### [台湾双十节，习近平誓言台湾统一](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [国际要闻汇编](/content/gnews/11/README.md)
+### [国际要闻汇编](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021/10/10 文贵先生直播精要](/content/gnews/12/README.md)
+### [2021/10/10 文贵先生直播精要](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [GETTR现场直击：日本新冠疫苗国家诉讼原告律师被强制退庭](/content/gnews/13/README.md)
+### [GETTR现场直击：日本新冠疫苗国家诉讼原告律师被强制退庭](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [共产党统治国民的手段之：熬鹰](/content/gnews/14/README.md)
+### [共产党统治国民的手段之：熬鹰](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [秘翻在线：医院拒绝向未接种疫苗的患者进行器官移植手术](/content/gnews/15/README.md)
+### [秘翻在线：医院拒绝向未接种疫苗的患者进行器官移植手术](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [6元芯片5000元黑市买？传理想汽车高价收购芯片](/content/gnews/16/README.md)
+### [6元芯片5000元黑市买？传理想汽车高价收购芯片](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：年轻的海军陆战队队员宁死也不接种中共病毒疫苗](/content/gnews/17/README.md)
+### [秘翻在线：年轻的海军陆战队队员宁死也不接种中共病毒疫苗](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [DC大中华时事：大灾之际，中共仅向山西陕西预拨8000万元救灾](/content/gnews/18/README.md)
+### [DC大中华时事：大灾之际，中共仅向山西陕西预拨8000万元救灾](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共外交部赵立坚就核潜艇事故无耻三问美方](/content/gnews/19/README.md)
+### [中共外交部赵立坚就核潜艇事故无耻三问美方](/content/gnews/27/README.md)
  ` 儒为`
 
-### [币圈新闻动态：Facebook数字货币项目两名顶级工程师离职](/content/gnews/20/README.md)
+### [币圈新闻动态：Facebook数字货币项目两名顶级工程师离职](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [G时评：科技那么发达，为何还有贫穷与饥荒？](/content/gnews/21/README.md)
- ` GISELLE`
-
-### [基尼基数靠前，厉害国又厉害了！](/content/gnews/22/README.md)
+### [基尼基数靠前，厉害国又厉害了！](/content/gnews/29/README.md)
  ` 首尔天池农场`
 
-### [病毒共存风险中的纤维肌痛](/content/gnews/23/README.md)
- ` Charlie`
-
-### [意大利地方当局230亿欧元的缺口](/content/gnews/24/README.md)
- ` Charlie`
-
-### [秘翻在线：大量中共国药的疫苗被埃及人倾倒](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共病毒疫苗是人类历史上最大的医药产品生物灾难](/content/gnews/26/README.md)
+### [中共病毒疫苗是人类历史上最大的医药产品生物灾难](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线：大外宣称赞泰国首富谢氏家族入中共国国籍为哪般？](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [凯尔巴斯：原油近期看到100美金/桶](/content/gnews/28/README.md)
+### [凯尔巴斯：原油近期看到100美金/桶](/content/gnews/31/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [澳洲16年警龄女警辞职并抨击了严厉的封城执法](/content/gnews/29/README.md)
+### [澳洲16年警龄女警辞职并抨击了严厉的封城执法](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [在执行中共病毒强制措施时，要思考而不是简单听从命令](/content/gnews/30/README.md)
+### [在执行中共病毒强制措施时，要思考而不是简单听从命令](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文·贵天成——文贵先生谈“G币-喜币”（四）](/content/gnews/31/README.md)
+### [文·贵天成——文贵先生谈“G币-喜币”（四）](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [GETTR现场直击：全球首例新冠疫苗国家诉讼案在日本开庭](/content/gnews/32/README.md)
+### [GETTR现场直击：全球首例新冠疫苗国家诉讼案在日本开庭](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
 
-### [西雅图强势执行疫苗强制令 或损失 40% 警力](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [五角大楼网络安全官员：美国 AI 远不及中共](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [自英国开始接种中共病毒疫苗后 青少年男孩的死亡人数剧增](/content/gnews/35/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美医学协会前主席：中共病毒疫苗是人类历史上带来最大生物灾难的医药产品](/content/gnews/36/README.md)
+### [西雅图强势执行疫苗强制令 或损失 40% 警力](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [2021年10月11日郭先生盖特 — 视频盖特1「9分49秒」](/content/gnews/37/README.md)

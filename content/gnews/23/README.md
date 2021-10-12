@@ -2,19 +2,21 @@
 ---
 
 
-## 病毒共存风险中的纤维肌痛
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1589042/)
+## 秘翻在线：医院拒绝向未接种疫苗的患者进行器官移植手术
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1589097/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10122-1.jpg)
-博洛尼亚 Rizzoli 骨科研究所协调的一项研究得出的结论：在冠状( 中共)病毒共存的风险和并发症中，或由冠状(中共)病毒引起的综合症后遗症中还有一种叫纤维肌痛，这是一种以广泛的肌肉骨骼疼痛为特征的风湿病综合症，以及其他一些症状，如慢性疲劳、睡眠障碍、胃肠道或认知改变。特别是男性肥胖患者的风险会更大。
+#### 翻译/撰稿：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/cleveland-clinic-logo.png)图片来源：food-management
+根据每日邮报 (Daily Mail)10月12日的报道，奥罗拉的科罗拉多大学健康中心(UCHealth)此前因一位妇女拒绝接种中共病毒疫苗，将其肾脏移植机会剥夺后，这件事情成为当时的头条。如今克利夫兰诊所（Cleveland Clinic）要效仿前者，表示将不再向未接种中共病毒疫苗的患者提供器官移植。
 
-该研究最近发表在汇集了来自欧洲各地的风湿病学家的科学学会杂志上（Rmd Open：风湿病和肌肉骨骼疾病）。风湿病学副教授 Francesco Ursini 解释说：”我们在世界上首次观察到，即使在急性感染愈合 6 个月或更长时间后，仍有约 30% 的患者表现出与纤维肌痛诊断相符的症状，我们已经定义它为纤维肌痛（ FibroCovid）”。
+克利夫兰诊所解释称，改变政策的原因是患者在接受新器官移植后，必须要服用抑制免疫力的药物，以防止身体产生排斥。另外未接种中共病毒疫苗的人也不能成为活体器官的捐赠者，因为担心中共病毒可能会在进行手术的过程中传播。
 
-意大利重要的风湿病学中心、拉奎拉大学、罗马大学生物医学校区、都灵大学为这项研究做出了贡献。
+诊所的声明中详细解释到，器官移植对捐赠者并不是没有危险，在手术过程中和恢复期间预防感染中共病毒是至关重要的。而且卫生专家已经发现，中共病毒可以通过器官移植传染给接受者。在接受器官后接受者通常服用抑制免疫力的药物，这个阶段短则6个月，长则终生服用。这些药物削弱了接受者的免疫系统，导致他们很难对抗中共病毒。
 
-免责申明：本文只代表译者观点，与Gnews无关
+声明中也表示，由于服用抑制免疫力的药物，即便是接种了中共病毒疫苗，也可能使疫苗不起作用。约翰霍普金斯大学(Johns Hopkins University)的一项研究发现，近期接受肾脏移植的人在接种中共病毒疫苗后没有产生病毒抗体，研究结论是每五个接受肾脏移植并接种中共病毒疫苗的人，仅有不到一人的概率会对疫苗起反应，产生病毒抗体。但最新研究发现，器官接受者在接种中共病毒疫苗加强剂后出现了病毒抗体，这就是克利夫兰诊所决定禁止未接种疫苗的人接受器官移植的原因。
 
-原文链接：[https://www.ansa.it/emiliaromagna/notizie/2021/10/11/salute-la-fibromialgia-tra-i-rischi-del-long-covid\_972a7e41-9132-4de4-8b7f-34cc2adf6580.html](https://www.ansa.it/emiliaromagna/notizie/2021/10/11/salute-la-fibromialgia-tra-i-rischi-del-long-covid_972a7e41-9132-4de4-8b7f-34cc2adf6580.html)
+克利夫兰诊所表示，病人的健康和安全是我们的首要任务，所以我们制定了活体器官移植的安全协议，只有接种中共病毒疫苗后才能成为器官移植的候选人或器官的捐赠者。目前已经在等待移植名单里的患者必须在11月1日之前完成中共病毒疫苗的接种，否则他们将被从等待名单中删除。
 
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
+在文章开始提到的科罗拉多大学的案例中，莱拉妮·卢塔利（Leilani Lutali）是一名基督信徒，由于她不同意接种中共病毒疫苗，所以医院不批准给她进行肾脏移植手术。卢塔利表示：“胎儿的细胞被用作开发疫苗，这违背了她的基督教信仰。” 胎儿细胞系是上世纪70年代和80年代收集的流产胎儿细胞为基础的实验室培养的细胞，许多流行的药物以及针剂都是由此研发的。卢塔利告诉美联社：“作为一个基督徒，我不能支持任何与堕胎有关的事情，生命的神圣性对我来说很宝贵。”
+
+新闻来源：[Cleveland Clinic joins Colorado Hospital and says it will stop performing organ transplants for unvaccinated people due to fears of recipients being vulnerable to Covid](https://www.dailymail.co.uk/health/article-10081605/Cleveland-Clinic-stop-performing-organ-transplants-unvaccinated-people.html)
