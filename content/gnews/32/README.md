@@ -2,32 +2,30 @@
 ---
 
 
-## 一箭双雕！ 习近平开始整肃墙内金融业
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589180/)
+## 中共国洪水泛滥：因煤矿关闭导致煤炭价格创下新高
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1589258/)
 
-作者：云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2018-08-27T131501Z_3_LYNXNPEE7Q02R_RTROPTP_4_CHINA-DIDI-700x420-4.jpg)中国山西省最近几天遭受洪水袭击 GETTY IMAGES
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**摘要翻译：**中共国发电厂使用的煤炭价格飙升至历史新高，因为该国另一个主要矿区遭受洪水袭击。继7月创纪录的洪水袭击了河南矿区之后，最近几天大雨袭击了中共国最大的煤炭生产省山西。郑州商品交易所动力煤周二上涨超过了10%。
+
+洪水使中共国为缓解日益加深的能源危机而增加燃料供应的努力进一步复杂化。甚至在洪水之前，中共国就已经面临能源短缺并导致全国大部分地区停电。
+
+据报道，上周五北京下令中共国的煤矿提高产量。动力煤价格的最新上涨是在周一已经上涨 12% 的基础上进行的。随着全球经济开始从大流行中复苏，全球能源价格一直在上涨。周一，布伦特原油的成本创下了2018年10月以来的最高水平，而美国交易的石油价格也达到了七年来的新高。
+
+**简评：**文章中也描述到在山西的大雨受灾前中共国已经出现停电及限电的现象，而产煤大省山西因大雨导致的煤矿关闭也只是加速了全国缺煤缺电的步伐。在中共国出现种种现象：十年前就开始搞西电东送和南水北调了，但是最近几年基本上销声匿迹，效果怎么样大众无从得知。为了环保在中共国限煤限了好几年，现在又紧急增产，朝令夕改。受中美协议及疫情影响，中共国里倒闭的加上搬走了的厂这么多，今年中共国的电反而不够用？国内财经界预计今年年底前煤炭缺口至少为2000万吨，对比往年从澳洲进口的4000万吨煤炭，如何看待煤炭这么大的差异？从现象看本质：一党独裁的中共国因为缺乏监管，什么都不透明，决策也是拍脑袋，朝令夕改，受灾受害的只是老百姓需要承受的电力涨价及相应电力涨价带来的物价上涨。
+
+新闻链接：[China floods: Coal price hits fresh high as mines shut](https://www.bbc.com/news/business-58879481)
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-华尔街日报11日报导，迹象显示习近平正在将整肃目标转向金融业。在9月26日的中纪委会议上，中共常委、中央巡视小组组长赵乐际，要求对建设银行、农业银行、中信集团、光大集团等25家金融机构进行检查。包括贷款文件、投资和监管纪录等，并要求说明与私营公司间的交易决策的细节。 如有涉嫌参与不当交易者，将面临正式调查，甚至检控；行为不当的机构则将被处罚。 此外巡视小组特别指示，这次巡视将深入挖掘25家受检金融单位中的党委组织及其成员，在履行党内所交付职责上是否存在”政治偏差”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1012-AM-（1-3）.001.jpeg)
-显而易见，习近平此次大规模金融行业的”核查”，表面上是要整顿所谓”脱序的金融秩序”，背后的真实目的则是继续打击并接管政治对手的金融版图和势力。 而中共的专制独裁和集权体制无任何改变，依然没有法治只有人治，永远不会有”健康安全”的金融体制。
-(本文仅代表作者观点)
-
-参考链接：[美媒：習近平整頓民企 風暴掃向中國金融業](https://www.cna.com.tw/news/aopl/202110120013.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

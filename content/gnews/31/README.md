@@ -2,34 +2,30 @@
 ---
 
 
-## 中共官媒吹“习近平生态文明思想”成笑谈！
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589186/)
+## 全民负债，所谓的共同富裕呢？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1589302/)
 
-作者：在远方
+撰稿：东京樱花团/盐和光
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-39.png)[图片来源](https://new.qq.com/rain/a/20210317A0D9VU00)
 
-12日，中共喉舌新华社赶在”生物多样性公约 ” 第十五次缔约，方领导人峰会之前发文鼓吹“习近平生态文明思想造福中国光耀世界”，称在“在习近平生态文明思想的指引下，中国坚决维护多边主义、建设性参与全球环境治理，以促进实现全球的可持续发展”等等，对习进行子虚乌有的肉麻吹捧，贻笑大方。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1012-AM-（1-3）.002.jpeg)
-事实上2006年世卫组织的报告称，世界上污染最严重的20城市中有16个是在中共国境内。2014年，中共环保部门自己也承认，在中国中部和东部地区出现的灰霾面积已高达143万平方公里！同年世卫组织的世界癌症报告显示，中共国新增癌症病例达到307万，占全球总数的21.8%（307万），癌症死亡人数220万，是世界总数的26.9% 。这皆因中共篡权70多年来，已经把中国大陆的空气、土壤、地下水和山川河流几乎全部污染殆尽，空气二氧化碳化、土地沙漠化、地下水重金属化日趋严重。这一切又再影响到地表的所有种植的食用作物，最终导致中国人的癌症罹患率和死亡率都高居首位 。尽管中共一再无耻声称，他们是如何致力于改善国内生态环境，但改变不了这一严峻的事实。所谓“习近平生态文明思想”，不过只是又添一则国际笑话罢了！
-(本文仅代表作者观点)
+10月12日中国新闻周刊报道，从国庆数据看消费为何不振？数据显示，今年国庆旅游和消费并没有市场认为的那么乐观，与春节、清明节等前几个主要节假日相比，消费继续走弱，主要呈现以下特点：
 
-参考链接：
+在散发疫情和部分地区“就地过节”的倡议下，今年旅客发送量、国内旅游出行人数，与2019年同期比均减少了近1/3；
 
-1. [习近平生态文明思想造福中国光耀世界-新华网](http://www.news.cn/politics/leaders/2021-10/11/c_1127946662.htm)
-2. [人與自然生命共同體](https://zh.wikipedia.org/wiki/人與自然生命共同體)
+国内餐饮继续恢复，但由于其占社会消费品零售总额（下称“社零总额”）的比重低，餐饮恢复对社零增速难有大的提振；
 
+国庆长假的零售表现弱于劳动节，在8月社零当月同比增速从上个月的8.5％大降到2.5％的基础上，消费很难在短期内出现大的好转。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+2020年中共国家庭部门的偿债负担为137.9％，变成纯负债大国，14亿国人天天起早贪黑，加班奋斗几十年，每个国人负债7万元额度何来消费，国人如蝼蚁一般日夜劳作，勤劳了一生，换来的是疾病缠身，负债累累，不禁要问钱去哪里了？所谓的共同富裕呢？
 
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
+消息来源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[从国庆数据看消费为何不振？](https://mo.mbd.baidu.com/r/uB9yPuqbSg?f=cp&amp;rs=3158161310&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=42180451800b7343)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（免责声明：文章仅代表作者本人观点，与GNEWS无关）
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)

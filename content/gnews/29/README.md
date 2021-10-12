@@ -2,38 +2,37 @@
 ---
 
 
-## 英青少年男孩死亡人数自接种中共病毒后剧增
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1589227/)
+## 美官员呼吁警惕中共人工智能领域发展威胁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589314/)
 
-**By:秘翻新闻**
+作者：在远方
 
-***2021-10-12***
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/1012-2.jpg)](https://gtv.org/broadcast/watch/61654e35304e992109b3e1a5)点击图片观看视频
-**新闻摘要:**
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-1.习近平严查中国金融机构与私企关系
 
-2.中共拒绝世卫组织进入蝙蝠洞寻找病毒起源
 
-3.中国河北通勤班车坠河13死 疑与水库泄洪有关
+前五角大楼首席软件官夏兰表示，美国如果不能认清形势并迎头赶上，15年后将在人工智能和网络领域输给中共国。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/P4.002.jpeg)
+夏兰认为中共目前在人工智能、合成生物学和遗传基因领域等方面的进步，正在超越美国。他批评美国一些政府部门的网络防御措施太低，像谷歌一类的大科技公司也没有意愿与国防部在人工智能领域合作。相反由于极权统治的体制，中国科技公司无条件在与中共合作，受其操控。 而中共在人工智能领域进行国家级大量投资，从不考虑相关的伦理道德问题。
 
-4.中国山西暴雨 中共国煤炭期货价飙至新高
+中共之所以投入海量资金进行上述方面的科技研发，是因为在未来AI 智能网络技术和生物科技将控制主导人类的命运和走向，如何应对中共的这一趋势，是全球文明国家都亟需面对的紧迫现实。
+(本文仅代表作者观点)
 
-5.限电降薪 江苏精元厂工人维权
+参考链接：
 
-6.郭先生：习近平身体糟糕打台湾 中共合作联姻吞西方司法系统
+1. [前五角大楼首席软件官：中国在人工智能领域正走向全球主导地位](https://www.voachinese.com/a/US-has-lost-AI-battle-to-China-pentagon-s-ex-software-chief-says-20211011/6265882.html)
+2. [五角大楼前首席软件官：中国已在人工智能领域取胜](https://www.rfi.fr/cn/中国/20211011-五角大楼前首席软件官-中国已在人工智能领域取胜)
 
-7.与亨特拜登有关联的中石化公司产量创下纪录
 
-8.英青少年男孩死亡人数自接种中共病毒后剧增
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-9.默克公司要求美国FDA批准有前途的抗中共病毒药片
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
 
-**GTV链接：**[https://gtv.org/broadcast/watch/61654e35304e992109b3e1a5](https://gtv.org/broadcast/watch/61654e35304e992109b3e1a5)
-
-发布: 文橙
-
-* * *
-
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

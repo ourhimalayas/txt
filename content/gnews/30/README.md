@@ -2,36 +2,29 @@
 ---
 
 
-## 北京上海两派相争 冥诞登城楼者有去无回
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589213/)
+## 立陶宛VS中共国：弹丸小国对抗新兴超级大国
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1589310/)
 
-作者：安吉拉
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月7日宁波平安银行挤兑事件后，泰国首富谢国民，及家人加入中国籍的新闻又被炒上平台。中共百年冥诞登城楼者和台下广场嘉宾，如今所剩无几，外界猜测，“登城观礼”为虚，“当地扣押”为实，这些企业家和富豪此行之后已被软禁或边控。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1012-AM-（1-3）.005.jpeg)
-谢国民是曾经泰国首富，其父亲谢易初创立了正大集团。正大集团是改开后第一家在内地投资的外资企业，取得深圳市“0001号”营业执照。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/28china-lithuania3-master1050.jpg)立陶宛VS中共国：弹丸小国对抗新兴超级大国 网络图片
+据纽约时报中文版10月11日报道，立陶宛官员发现在该国销售的一款中共国手机存在一个隐藏但处于休眠状态的功能：一个中共禁止的449个敏感词的审查词库。该词库可以自动更新，在出口到欧洲的手机中处于休眠状态。但中共国只需打开一个开关，就可以激活这个审查工具。
 
-旗下综艺节目《正大综艺》，特为中共间谍杨澜开拓国际市场而创立。谢国民侄女谢其润是新冠疫苗生产商之一，中国生物制药有限公司，董事会主席。2013年，正大出资全面收购汇丰股份，成为平安集团最大股东。今年上半年，中信证券担任保荐机构，正大集团提交主板IPO给上海交易所受理，农牧和制药两大板块同时准备进入A股，即人民币交易股票市场。
+立陶宛政府建议使用该款手机的官员弃用它们，这激怒了中共国。北京召回了大使，并敦促立陶宛驻北京大使回国，停止了一列开往立陶宛的定期货运列车，但允许其他装满中共国货物的列车从立陶宛过境并运往德国。
 
-中共百年冥诞登城楼者，有 恒大许家印，小米创始人雷军。美团CEO王兴，水滴创始人沈鹏也受邀嘉宾席，如今逐一暴雷。面对习派的几波进攻，江派在是否回击方面颇为犹豫。
-(本文仅代表作者观点)
+两国之间早有裂痕，因立陶宛支持台湾，以及去年立陶宛选举使新的联合政府上台。今年5月，立陶宛退出了一个由中共国、东欧和中欧17个国家组成的、耗资数十亿美元、旨在推动习近平“一带一路”倡议的外交论坛。
 
-参考链接：
+中共国没有宣布任何制裁，但增加了繁琐的手续，以阻止立陶宛出口商在中共国的销售。在地缘政治的战场上，一个不足300万人口的波罗的海小国对抗一个拥有14亿人口的新兴超级大国，双方体量相差悬殊。立陶宛军队没有坦克和战斗机，经济规模只有中共国的1/270。但立陶宛已经证明，即使是小国也会让中共国这样的超级大国头疼。
 
-1. [庆祝中国共产党成立100周年大会在天安门广场隆重举行 习近平发表重要讲话](http://www.xinhuanet.com/politics/leaders/2021-07/01/c_1127615310.htm)
-2. [马云任正非都不在，这两位外籍富豪却受邀上城楼，他们是谁？](https://www.sohu.com/a/475478528_100120495)
-3. [泰国首富加入中国籍 成平安最大股东 坐拥近2000亿](https://www.tiaotiaowen.com/articles/kmfjgc)
-4. [泰国首富谢家四兄弟冲A！生猪概念股正大股份IPO获受理](https://news.stcn.com/sd/202106/t20210601_3297121.html)
+蚂蚁虽小，也能搬山。中共国体积虽庞大，但内部早已朽烂不堪。立陶宛之后，相信欧洲和其他国家都会陆续觉醒并跟进，形成一股浪潮最终湮灭中共，建立新的秩序，恢复世界和平。
+
+新闻参考链接：[https://nyti.ms/3uZwD52](https://nyti.ms/3uZwD52)
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+编辑：【英国伦敦喜庄园编辑部】
 
-编辑/校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

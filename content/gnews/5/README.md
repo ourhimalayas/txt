@@ -2,35 +2,40 @@
 ---
 
 
-## 德克萨斯州长全面禁止疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589534/)
+## 西喜时事新闻简报——美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1589571/)
 
-作者：在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-德州州长格雷格·阿博特（Greg Abbott）11日发布行政命令，全面禁止疫苗强制接种令，包括近期拜登政府对企业及员工下达的疫苗行政令。
+- **编译：土饭团(文团)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-7.jpeg)
 
-该命令标志着重大的转折，阿博特呼吁州议会将类似禁令纳入法条中，扩大对新冠疫苗强制性规定的打击面。阿博特称，人们享有自由选择权、宗教豁免和医疗自主权，私营企业决不接受被政府代表和强迫。目前德州立法机关正在进行第三次特别会议，该会议将于10月19日结束。
+您若想了解全文报导内容，请点击标题链接
 
-德州官员和人民一直在反抗霸凌政策的前线作战。8月25日，在FDA全面批准辉瑞毒针的第二天，阿博特就宣布行政令，禁止政府在德州强制推行新冠疫苗；并于9月初颁布《堕胎法案》努力阻止由大制药厂主导的暴力堕胎产业链，违反法规的诊所和医师将被起诉。辉瑞疫苗生产或检测过程中使用的肾细胞已是多年的事实，而HEK293细胞来自健康人类胚胎。
+**[1.Trey Gowdy警告美国港口拥堵, 假期供应链危机](http://%28https://www.foxnews.com/media/trey-gowdy-warns-us-port-congestion-supply-chain-crisis)**
 
-当前全世界处于深层超限战当中，爆料革命不间断的揭露病毒和疫苗真相，许多政府和组织开始严肃对待疫苗所带来的伤害和死亡问题。
+福克斯新闻10月10日电，福克斯新闻主持人Trey Gowdy与乔治亚州港务局局长Griff Lynch就美国人在未来几个月可能面临的潜在供应链危机进行了交谈。Gowdy提供了交通部长Pete Buttigieg的一段视频，部长警告说这些问题可能会持续数年。Lynch指出问题更多是由于缺乏工人而不是缺乏资源。
 
-(本文仅代表作者观点)
+**[2.Biden政府加大力度保护美国基础设施免受俄罗斯和中国的网络攻击](http://%28https://www.cnn.com/2021/10/10/politics/biden-secure-infrastructure-cyberattacks/index.html%29)**
 
-参考链接：[下令禁止企業強制接種疫苗 美德州州長：必須自願接種](https://news.ltn.com.tw/news/world/breakingnews/3700894)
-[Texas Gov. Greg Abbott bans any COVID-19 vaccine mandates — including for private employers](https://www.texastribune.org/2021/10/11/texas-greg-abbott-covid-19-vaccine-mandate/)
+CNN 10月10日电，官员们宣布了对铁路和航空业的新网络安全任务，以及对未能报告违规行为的联邦承包商的罚款。这是继今年早些时候发布的美国管道运营商网络安全法规和政府承包商加强其网络的单独授权之后的第二套强制措施。一位高级国防官员说，保护美国人以及美国军队所依赖的交通和能源基础设施是当务之急。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**[3.五角大楼前官员称中国赢得了人工智能之战](http://%28https://thehill.com/policy/cybersecurity/576213-former-pentagon-official-says-china-has-won-artificial-intelligence%29)**
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
+The Hill 10月11日电，五角大楼前软件主管Chaillan上个月宣布辞职，以抗议美国科技发展缓慢。美国未能积极追求人工智能能力，使国家处于危险之中。Chaillan还将这一迟缓的步伐归因于谷歌等公司对与政府在人工智能方面的合作犹豫不决，以及美国正在进行的关于人工智能道德的辩论，而中国则在不考虑潜在道德后果的情况下推动了这一进程。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**[4.Trump斥责Biden提议的税改提案，称美国政府鼓励人们前往中国](http://%28https://www.aninews.in/news/world/us/trump-chides-bidens-proposed-tax-changes-says-us-administration-incentivising-people-to-go-to-china20211010081452/%29)**
+
+ANI 10月10日电，美国前总统Donald Trump抨击Biden政府对前政府减税计划的倒退，称新的税收政策只会使中国受益。“我们正在鼓励人们去中国，”Trump说，他强调，与Biden相反，他“想建造美国。”
+
+**[5.中国向美国施压取消关税以测试双边接触](http://%28https://www.reuters.com/business/us-trade-chief-talks-chinese-counterpart-test-bilateral-engagement-2021-10-09/%29)**
+
+路透社10月10日电，在两国高级贸易官员之间的谈判中，中国向美国施压，要求取消关税，华盛顿认为这是对世界最大经济体双边接触的考验。美国贸易代表办公室的一名高级官员说：“我们认识到，北京越来越明确地表示，它正在加倍强调其以国家为中心的威权做法，并拒绝解决我们的结构性问题。”这位官员表示，Tai不会寻求第二阶段谈判。
+
+（文章仅代表作者观点）
+
+* * *
+
+***审核：蚂蚁兄弟
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
