@@ -2,27 +2,36 @@
 ---
 
 
-## G7财长拟定中央银行数字货币的首个原则草案
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1588167/)
+## IBAC审查不当招聘丑闻，安德鲁斯失去第四位部长
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1588315/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+#### 编译报导：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1111-3.png)
+图片来源：News.com.au & medianet.
 
-编辑上传   水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/c.png)elevenews.com
-日本共同社10月11日报道，日美欧七国集团（G7）财长和央行行长已拟定中央银行数字货币（CBDC）相关的首个共同原则草案。该指南草案主要侧重于透明度和隐私， 预计将于13日于华盛顿举行的“财务负责人”会议上获得批准。
+在澳大利亚维多利亚州工党腐败调查的第一天，因不当招聘丑闻，维州安德鲁斯政府失去了第四位部长。
 
-据截稿时间为止，G7 集团尚未发布 CBDC具体细则。
+广泛独立的反腐败委员会（IBAC）公开听证会于周一开始，针对维州政府“有预谋的系统性掠夺纳税人资源”的指控进行调查。联邦工党议员安东尼·伯恩周一在IBAC作证，承认其参与了不当招聘行为，代表他人支付党费，是前部长阿德姆·索米雷克领导的不当招聘行动的一部分。
 
-七国集团成员——英国、加拿大、法国、德国、意大利、日本和美国以及欧盟——都还没有决定实施CBDC。根据该文件草案，七国集团成员将承认，数字支付使用的迅速增加正在改变个人和企业的交易方式，而中共病毒疫情“进一步加速了”这一趋势，这提高了对货币非接触交易功能的需求。在被认为对任何CBDC都“至关重要”的问题中，该文件引用了适用于新支付系统的国家监管和监督框架，以及保护用户数据的隐私和问责的“严格”标准，以及如何保护和使用信息的透明度。
+不当招聘是指政治家、候选人和派系成员通过支付成员的会员费（党费）来巩固其党内影响力的做法，这些成员随后按照派系路线投票，以支持预选中的首选候选人。不当招聘虽然并不违法，但它违反了工党的规定。IBAC正在调查纳税人资金可能用于不当招聘的问题。
 
-该文件还指出了对外国居民大量使用任何CBDC的担忧，这可能导致发行国和外国的货币替代和货币主权丧失。虽然指出发行这类数字货币是一个“主权问题”，共同社获得的文件称，“通过制定一套共同的原则，并强调透明度、法治和健全的经济治理等共同价值观的根本重要性，这些原则可以指导七国集团及其他国家对零售CBDC的探索。”
+在公开听证会开始约4小时后，卢克·唐纳兰（Luke Donnellan）辞去了维州劳工部部长职务。此前伯恩议员在腐败调查中表示，维州多名议员结成了派系联盟，并捐出了一个基金，用于支付（招募新人）党费，通过不当招聘在议会中为工党联盟争取职位。
 
-与此同时，中共国被认为是迄今为止最接近于启动CBDC的主要经济体，发展数字人民币的试点项目已经在进行中。强调透明度似乎反映了批评人士的担忧，即CBDC的推出将通过收集私人金融交易的大数据，此举将赋予中共国政府权力。
+唐纳兰先生成为第四位因此事而离职的部长。索米雷克先生和其盟友马琳·凯鲁兹和罗宾·斯科特三位部长，均在2020年媒体揭露了不当招聘丑闻后被迫辞职。
 
-华盛顿智库新美国安全中心(Center for a New American Security)在一份有关中共国数字货币的报告中表示，CBDC系统“可能会使中国共产党在国内加强其数字威权主义，并向国外输出其影响力和标准设定”。今年1月发布的这份报告警告称，中共国的这一项目“对自由社会长期坚持的金融隐私标准构成了重大风险”。
+唐纳兰将继续保留工党后座议员席位，他在一份声明中说，他已致电州长丹尼尔·安德鲁斯，告诉他，他将辞去部长一职，他承认，以前在担任部长期间“违反了党规”。
 
-根据国际货币基金组织（IMF）的数据，110个国家已经达到了研究CBDC的“某个阶段”。巴哈马是第一个正式启动CBDC的国家。美联储主席鲍威尔上个月表示，美联储正在评估是否要发行CBDC，并打算“很快发布一份讨论文件”，以征求议员和公众的反馈意见。与此同时，日本央行(Bank of Japan)今年早些时候开始了一项试验，以检查CBDC的基本功能。
+IBAC听证会在星期二继续进行。
 
-参考链接：
+（本文仅代表作者个人观点，与Gnews平台无关）
 
-[https://english.kyodonews.net/news/2021/10/6e9b63fdd05e-g-7-highlights-transparency-among-digital-currency-principles-draft.html](https://english.kyodonews.net/news/2021/10/6e9b63fdd05e-g-7-highlights-transparency-among-digital-currency-principles-draft.html)
+新闻链接：[IBAC Labor inquiry: Andrews loses fourth minister to branch stacking scandal (smh.com.au)](https://www.smh.com.au/politics/victoria/andrews-loses-fourth-minister-to-branch-stacking-scandal-20211011-p58z31.html)
+
+**发布：文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

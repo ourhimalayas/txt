@@ -2,70 +2,42 @@
 ---
 
 
-## 独家：脸书吹哨人似乎是公认的马克思主义者
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1588147/)
+## [热点推荐]中共布局大功率移动电源产业为即将到来的大停电做准备
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1588267/)
 
-- 编译：西班牙喜悦农场–wenwu
+温哥华扬帆农场 – Jamie-Luffy
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211011-Jamie-Luffy-中共布局大功率移动电源产业为即将到来的大停电做准备.jpg)图片来源：
+https://thenextweb.com/news/this-portable-battery-station-and-solar-panel-are-the-power-backup-every-homeowner-needs-at-almost-500-off
+郭先生在近期的多次直播中提到了病毒和疫苗导致的次生灾难下最坏的时刻还未到来，全球可能在将来不久的一段时间内处于停电停水的状态，人类的基本生活需求受到极大的挑战。
+
+普通人在面对blackout大停电时，只能使用家中的备用电源。能源短缺情况下，估计是很难买到汽油或者柴油来使用燃油发电机。那么唯一的选择就是太阳能。目前大部分的家用太阳能发电设备使用的是LifePO4 (lithium iron phosphate) 磷酸铁锂电池，太阳能电板和电池之间需要专业的线路连接，固定安装在房屋内。很多住在高层公寓的人，受到空间的限制没有条件安装太阳能电板。而还有另一个选择就是目前非常火爆的移动电源portable power station。
+
+和传统的太阳能发电机不同，portable power station 是内置锂离子电池，自身可储备电能的便携电源，可以理解为一个“大号的充电宝”。移动电源可以在任何有太阳光照的地方使用移动太阳能板进行充电，同时也可以使用汽车电源或者传统的室内交流电进行充电。近几年推出的大功率移动电源，输出功率达到2000W，甚至3000W以上，基本上满足了市面上所有家电和工具的功率需求，如电磁炉，切割机等。大容量大功率的移动电源可以随时随地充电，不受任何空间限制，越来越多的消费者选择其作为停电时的备用电源。
+
+当前中国的锂离子电池产能已经居世界首位，占全球总产量近七成。全球市场上移动电源占有率最高的几个品牌，如Jackery，Ecoflow，Anker，pocron全部都是中国企业。Jackery是国内知名移动电源电小二的海外品牌，母公司是深圳市华宝新能源股份有限公司。2015年Jackery发布了世界上首款锂电池移动电源，其后成为欧美市场最知名的户外移动电源品牌。而另一个品牌Ecoflow正浩，2017年成立于深圳。创始人王雷，曾就职于中共控制的DJI大疆，是电池研发部创始人。今年6月，Ecoflow完成了新的B轮超一亿美元融资，由红杉中国领投，高瓴创投和中金公司联合跟投。此外还有朱镕基家的中金公司。上个月，Ecoflow已与朱镕基家族控制的中金公司签署上市辅导协议，拟在中国境内交易所挂牌上市。
+
+郭先生爆料过红杉资本的创始人老板沈南鹏是中共重要的白手套，是2020年八月干掉张首晟的关键人物，跟沼泽地的黑暗力量关系密切。高瓴创投（GL Ventures）是高瓴资本2020年刚刚成立的独立VC品牌，短短一年时间就完成了美元和人民币合计规模超过100亿元的独立募资。其募资投资人构成包括大学捐赠基金、养老基金、主权基金、母基金以家族办公室等主流机构投资者。高瓴创投一年内疯狂投资了200多个项目主要包含半导体芯片、生物医疗（涉及新冠疫苗和治疗）、量子科技。这些都是郭先生多次提及的中共和黑暗势力布局控制的尖端产业。而其背后的老板高瓴资本目前管理超过6000亿人民币资金，是亚洲最大的私募股权投资机构之一，也是盗国贼家族的白手套。高瓴资本是抖音的最大投资者，同时持股腾讯，阿里巴巴， Zoom，Facebook，亚马逊等多家公司。
+
+美国的十所常青藤大学中，有包括普林斯顿、麻省理工和斯坦福在内的六所学校的部分校产交由高瓴管理。高瓴资本美元基金的资金主要来自于全球性机构投资人，包括全球顶尖大学的捐赠基金、主权财富基金、养老基金及家族基金等。此外，高瓴资本还为加拿大退休金计划投资委员会、旧金山雇员退休系统、耶鲁大学和梅约诊所等有限合伙人管理资产。在2020年疫情最严重的情况下，高瓴还吸引了来自捐赠基金和养老基金的180亿美元资金。清科数据显示，2021年第一季度高瓴共募得2238.24亿元人民币，同比上升6.3%。新募集的投资包括853支人民币基金和20支外币基金，而在这20支外币基金中，包括19支美元基金和1支欧元基金。可见，中共盗国贼家族和华尔街的勾兑没有丝毫的收敛，反而是愈加疯狂，越来越多美国人的养老基金被套取，通过红杉高瓴等投资机构给了中共，进入了他们控制的产业，特别是基因医疗科技。
+
+根据美国证券交易委员会(SEC)公布了2020年四季度末的美股持仓情况显示，高瓴在美股市场持有95家公司的股票，总市值为125亿美元。其中，医药医疗领域的企业超过了一半，四季度新进与增持的28家企业中，15家都是生物制药领域的企业。从疫情爆发以来的资金流向可以看出，郭先生爆料病毒和疫苗是中共和黑暗势力一手策划，是完全正确的。
+
+从背后的资本可以看出，几个盗国贼家族和华尔街已经控制了目前市场上最大的几家移动电源公司。他们利用病毒和疫苗，准备在即将到来的大灾难中大发横财。黑暗势力的邪恶布局，连人类最后的生存保障都不放过。
 
 
-根据《国家脉动》独家透露，这家社交企业媒体 Facebook 的“吹哨人”在 Twitter 上发表了一些带有种族歧视色彩的评论，并声称为儿童购买了卡尔·马克思 (Karl Marx) 的书籍。
 
-弗朗西斯·豪根（Frances Haugen）在几天内从无人问津到在国会山作证——一直要求对社交媒体进行[大规模](https://www.cbsnews.com/news/facebook-whistleblower-frances-haugen-misinformation-public-60-minutes-2021-10-03/)[审查](https://www.cbsnews.com/news/facebook-whistleblower-frances-haugen-misinformation-public-60-minutes-2021-10-03/)，尤其是针对那些不同意她的世界观的人。
+参考资料：
 
-但她自己在社交媒体上的行为，可能会破坏她在这个问题上的道德权威；一个与 Haugen 相关的私人资料出现在她为 2015 年女孩极客晚宴（2015 Girl Geek Dinner）等[活动](https://girlgeek.io/speaker/frances-haugen-2/)所做的传记中，揭示了这位前 Facebook 员工更诡异的一面。它还包含详细介绍她以前的雇主（例如[Google](https://web.archive.org/web/20160312054254/https:/twitter.com/frizy)）的工作，以及她在哈佛商学院就读的[时间线](https://www.dailymail.co.uk/news/article-10061835/Facebook-whistleblower-Harvard-grad-raised-worked-Silicon-Valleys-biggest-names.html)。
+[https://news.stcn.com/sd/202105/t20210508\_3205386.html](https://news.stcn.com/sd/202105/t20210508_3205386.html)
 
-虽然这个账户——“@Frizy”——[目前](https://twitter.com/frizy?lang=en)被隐藏起来，但从 2008 年和 2009 年的[资料中](https://web.archive.org/web/*/https:/twitter.com/frizy)显示了， Haugen 发布的奇怪的公开推文；其中，Haugen 讲述了一个笑话，显现其对[“棕色人种”](https://web.archive.org/web/20090923155832/https:/twitter.com/frizy)和数学抱有成见（如下图），同时还讲述了她在空中调情的尝试：
+[https://news.stcn.com/sd/202102/t20210225\_2855444.html](https://news.stcn.com/sd/202102/t20210225_2855444.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-7-4.png)
+[https://thenationalpulse.com/news/tiktok-ccp-investor](https://thenationalpulse.com/news/tiktok-ccp-investor)
 
-在另一篇推文中，Haugen 在推特上发布了一张“令人敬畏的多样性晚宴”，其中有一个“印度人、红头发人、金发女郎、非裔美国人和亚洲人”。 “在波士顿从来没有见过这样的人类物种，”她补充道（如下图）。
+(本文仅代表作者观点，与GNEWS平台无关）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-8-4.png)
 
-实际上，波士顿是美国排名前 25 的“多种族化”的地区之一。 在2009年2月的一个揭露性的推文中，Haugen 在推特上说为她的”小表妹”购买了漫画书（如下图）。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-9-2.png)
+*编审：文敏*
 
-这些书包括卡尔·[马克思](https://web.archive.org/web/20090218124903/https:/twitter.com/frizy)以及共产主义哲学家和恋童癖辩护者米歇尔·福柯的作品。在 1978 年的[一次采访中](http://www.uib.no/sites/w3.uib.no/files/attachments/foucaultdangerchildsexuality_0.pdf)，福柯（Foucault）表示，假设“一个孩子无法解释发生的事情，并且也不能给予他的选择权，这是两种不能被容忍和接受的虐待行为。”
-
-1977 年，Foucault 签署了一份请愿书，呼吁将恋童癖在法国有效合法化。 《国家脉动》出土的其他推文显示， Haugen 指示推特追随者“思考 [原文如此] 如果女性的收入和男性一样[独立，](https://web.archive.org/web/20090630145718/https:/twitter.com/frizy)世界将会如何的不同”，并承认她是“有史以来最糟糕的同桌”，
-
-因为她有“咳嗽/流鼻涕”、“渗出的伤口”，并且两天没洗澡了（如下图）：
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-10-2.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-11-2.png)
-
-《国家脉动》联系了 Haugen 以征求其对以上推文的意见，但没有得到回应。
-
-《国家脉动》此前曾[曝光](https://thenationalpulse.com/news/facebook-whistleblower-donated-36-times-to-democrats-including-to-anti-primary-extremists-and-aoc/) Haugen 多次向极左、受马克思主义启发的团体和政治候选人（如亚历山大·奥卡西奥·科尔特斯）捐款。
-
-**简评：**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-12-2.png)
-
-**一则相关[报道](https://www.newsmax.com/finance/companies/haugen-facebook-oversight-board/2021/10/11/id/1040026/)。**
-
-**在一份[声明中](https://oversightboard.com/news/1232363373906301-oversight-board-to-meet-with-frances-haugen/)，监督委员会表示，鉴于前 Facebook 员工弗朗西斯·豪根 (Frances Haugen) 关于 Facebook “内容审核”的严重指控，董事会邀请这位数据科学家向委员会发言。**
-
-**在周一的一条[推文中](https://twitter.com/FrancesHaugen/status/1447617378402160642)，Haugen 说她已经接受了邀请——同时又投掷了一枚燃烧弹，声称“Facebook 一再向董事会撒谎，我期待与他们分享真相。”**
-
-**“董事会成员很高兴有机会讨论 Haugen 女士的经历以及收集信息，并通过我们的案件决定和建议去帮助推动 Facebook 提高透明度和问责制，”董事会声明说。**
-
-**声明补充说：“作为董事会，我们将继续向 Facebook 提出棘手的问题，并推动公司致力于提高透明度、问责制和公平性；最终，只有这样才能让 Facebook 用户相信他们得到了公平对待。”**
-
-**该声明宣称，社交媒体平台做出的选择“对全世界数十亿人的言论自由和人权产生了现实的影响”。**
-
-**“在这种情况下，社交媒体规则的透明度至关重要，”董事会表示。**
-
-**有一种董事会通过暗示 Haugen 冒头，将借助她向小扎“捅刀子”的感觉…**
-
-（文章仅代表作者观点与GNEWS无关）
-
-**新闻来源：**《[国家脉动](https://thenationalpulse.com/exclusive/unearthed-tweets-from-fb-whistleblower/)》｜作者：娜塔丽·温特斯&拉姆·卡萨布｜发布时间：2021年10月11日
-
-* * *
-
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+*发布：**shuang*

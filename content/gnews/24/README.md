@@ -2,18 +2,31 @@
 ---
 
 
-## 德州州长政命令：禁止任何实体强制接种疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1588415/)
+## 多家信托踩雷宝能，涉90亿元，姚振华被强制执行
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1588517/)
 
-#### 撰稿：雨季仰光
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-61.jpg)图片来源：Politico
-据德克萨斯州州长格雷格.阿博特（Greg Abbott）的官方网站在今天（美国时间10月11日）发布的消息，行政命令表示在德克萨斯州不得有任何实体对任何个人包括雇员和消费者采取强制疫苗接种的要求，不论其拒绝接受的原因是基于个人良知，还是出于宗教信仰，抑或是医疗方面的因素，也包括那些之前感染病毒后康复的患者。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/下载-2-e1634003033162.jpg)
+据科技金融在线10月11日报道，中铁信托10月8日发布公告，宝能在多家信托公司的违约金额已经超过了90亿元，保证人姚振华先生、深圳市宝能投资集团有限公司存在被法院强制执行情况。
 
-州长阿博特同时也给参众两院首席部长（秘书）发了消息将此项作为第三次特别会议的议程的专项议题。此行政命令将在此项被立法通过后被取消（之后将按两院通过的立法实施）。
+中铁信托宝能项目产品规模为28亿 ，期限18个月，用于向宝能汽车发放信托贷款。2017年-2019年间，宝能汽车在广州、贵阳、昆明、昆山、西安共拿下13宗地。 从卫星地图显示来看，仅有不到10%的工业用地建成投产。
 
-“新冠疫苗是安全有效的，是我们对付病毒的最好防护措施，但必须保证自愿和绝不强制的原则，” 州长阿博特说。
+除中铁信托外，重庆信托24亿元，本期应付本息金额为21.86亿元，现已违约！ 云南信托宝能项目成立于2018年12月31日，签约方中国华融将50亿资金交付云南信托向钜盛华发放信托贷款。到了2021年6月15日，钜盛华逾期支付利息8968.57万元。有关剩余借款本金42亿元，钜盛华正与中国华融协调解决。山东信托设立于2020年11月-2021年4月。9月22日，山东信托宝能集团未按期支付利息6746万元，已构成实质违约。
 
-虽然德克萨斯州州长领先于其他州宣布了不得强制疫苗接种的行政命令，这也是了不起的一个举措，但是对疫苗的真相认识上可能还有待加深。
+连环雷接连被踩响，中共国信托行业硝烟弥漫。
 
-##### 新闻来源：[Governor Abbott Issues Executive Order Prohibiting Vaccine Mandates By Any Entity, Adds Issue To Special Session Agenda](https://gov.texas.gov/news/post/governor-abbott-issues-executive-order-prohibiting-vaccine-mandates-by-any-entity-adds-issue-to-special-session-agenda)
+新闻参考链接：[https://c.m.163.com/news/a/GM2643900519RAAQ.html?spss=newsapp](https://c.m.163.com/news/a/GM2643900519RAAQ.html?spss=newsapp)
+
+编辑：胖丁
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
