@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/12/2021 4:01 AM (UTC)`
+
+2021年10月11日 法治基金,法治社会每周捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>11 Oct 2021, Rule of Law Foundation and Society donors messages collection.Rule of Law Foundation and Society appreciate all of our supporters and donors!
+![img](https://media.gettr.com/group10/getter/2021/10/12/03/05b12172-bad0-d661-5c6b-aa29c09a61c7/out.jpg)
+
+---
+
 `@miles 10/12/2021 3:02 AM (UTC)`
 
 10/10/2021 Miles Guo: We are the first to say that the COVID vaccine disaster and the vaccine politics are from the CCP’s biochemical warfare; The Jews may be the biggest victims of the COVID vaccine disaster; No one can stop our momentum to take down the CCP with the truth about the COVID vaccines. The COVID vaccine mandate will soon stop, but humanity will pay a huge price! Regardless of whether the CCP is going to invade Taiwan or not, the price of body bags will skyrocket, and the world’s economy will collapse!<br/><br/>10/10/2021 文贵直播: 我们最早说出疫苗灾难和疫苗政治来自中共生化战；犹太人可能成为疫苗灾难的最大受害者；以苗灭共无人可档，强制打疫苗亦将很快停止，但人类将付出巨大代价！不论中共是否攻台，装尸袋的价格将暴涨、世界经济会崩溃！<br/>
@@ -287,13 +294,6 @@ Pfizer is tightly arranging new vaccines to fight the next generation of the CCP
 
 CCP Virus Covid-19 Treatment & Prophylaxis Protocol<br/>& Covid-19 Vaccinated People<br/>Detox Protocol<br/> <br/>Recommended by <br/>the New Federal State of China Whistleblowers Movement
 ![img](https://media.gettr.com/group17/getter/2021/10/07/22/8beb0159-e5a9-57da-3fce-800a28de7770/b0a2030f06b1c426204fe2067d04ff58.jpg)
-
----
-
-`@miles 10/7/2021 10:22 PM (UTC)`
-
-中共病毒预防与治疗方案和疫苗排毒方案<br/> <br/>新中国联邦 爆料革命 推荐
-![img](https://media.gettr.com/group8/getter/2021/10/07/22/bcbfa061-aee5-59dc-db4f-f60848246be2/0fdf94a38f1c9d4ff0b140ea690df674.jpg)
 
 ---
 
