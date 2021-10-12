@@ -2,27 +2,27 @@
 ---
 
 
-## 有声|坚持个人疫苗接种选择，洛杉矶消防员将起诉政府
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1588060/)
+## 半导体短缺令日本汽车在华销量大降
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1588141/)
 
-配音：香草山美食部 – 玫瑰园
+俄罗斯莫斯科喀秋莎农场  银河
 
-10月10号文贵先生在其盖特转发了一则短视频，是来自美国洛杉矶当地媒体的报，视频中当地消防员安德烈称。他和其他871名消防员联名，通过律师提交了起诉洛杉矶市政府的告知文件，原因是政府警告消防员必须在10月20日之前全部接种疫苗，否则将被解雇或停薪留职。消防员坚持自己的选择，并将向法庭提出要求每人200万美元的赔偿，因为自己的选择将导致失业!消防员们称。此举不仅是因为疫苗，而是关系到人权和法律程序。
+编辑上传   水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/A-3.jpg)dailycarblog.com
+日经新闻报道，日本丰田汽车公司（Toyota Motor Corp.）10月11日公布，该公司9月份在华新车销量大幅下滑，凸显出在半导体短缺的背景下，该公司在华业务已变得疲软。
 
-文贵先生在他的盖特中对此事件评论道:
+日本最大的汽车制造商丰田上个月在中共国的销量为11.5万辆，比去年同期下降了35.9%，8月份下降了11.9%。本田汽车公司9月份在中共国的新车销量下降了28.1%，而其电动汽车业务则停滞不前。日产汽车公司上个月在华销量也暴跌26.2%。一些经济学家表示，由于中共病毒带来的世界经济及供应链的影响，在中共国运营的日本汽车制造商将继续遭受严重的半导体短缺。日产汽车公司表示，半导体短缺的负面影响预计至少会持续到今年年底。
 
-“洛杉矶发生的这种将面临没有消防员的情况，会在全球的电力、医院、警察等所有公共领域发生。全球的政府将面对无法计算的诉讼，以及社会公共灾难等巨大的社会问题，这是中共病毒和疫苗带来的灾难，是对人类社会秩序的摧毁性打击。这一结果完全在邪恶势力、和中共的计划之中。只有新中国联邦在2020年一月份就开始警告世界，疫苗才是灾难的真正核心。但愿世界早日醒来，我们新中国联邦人将为此奋斗到底 ” 。
+早在2020年4月，日本安倍首相内阁会议提出《紧急经济对策方案》，支持日本企业将中共国等海外投资的生产据点回归本国，或者转移到东南亚国家。随后日本政府推出对撤出中共国的企业给与补偿，至2020年7月底，近1700家企业提出申请。时至2021年，大量外资企业撤离中共，4月日本松下宣布将在明年关闭位于上海的干电池工厂。德国零售巨头麦德龙已经出售给了中企物美，法国超市巨头家乐福也已经卖给了中企苏宁，据爆料革命和新中国联邦创始人郭文贵先生爆料，日本丰田汽车和本田汽车也将撤离中共国。
 
-文字版原文：[坚持个人疫苗接种选择，洛杉矶消防员将起诉政府](https://gnews.org/zh-hans/1585328/)
+中共经济暴雷，恒大风暴或将席卷全球。中共通过蓝金黄渗透世界，华尔街、伦敦金融城、跨国公司与中共勾兑，同时骗取各国大量养老基金投资中共，中共经济崩塌在即将引发世界恐慌。美国拜登为维持中期选举，拖延经济危机，不惜出卖台湾与中共勾兑。然而全球货币超发，通货膨胀，在中共病毒的影响下供应链短缺带来的危机已经近在眼前，疫苗灾难带来的人道危机及世界各国局势动荡也不可能逆转，各主权货币贬值，世界经济崩溃的恶果不会因为无德政客的勾兑而消除。
 
-音频处理：喜山必胜Maverick
+外资撤离中共，中共国经济暴雷只是一个开始，中共的全面崩塌将引发世界格局的重新洗牌已经是一个必然的结果。
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（文章仅代表作者个人观点）
+
+参考链接：
+
+[https://english.kyodonews.net/news/2021/10/ae19c76c04c7-toyota-car-sales-plunge-in-china-in-sept-on-semiconductor-shortages.html](https://english.kyodonews.net/news/2021/10/ae19c76c04c7-toyota-car-sales-plunge-in-china-in-sept-on-semiconductor-shortages.html)
+
+[https://www.rfa.org/mandarin/yataibaodao/jingmao/ql2-09142020062444.html](https://www.rfa.org/mandarin/yataibaodao/jingmao/ql2-09142020062444.html)

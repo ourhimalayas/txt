@@ -2,27 +2,40 @@
 ---
 
 
-## G7财长拟定中央银行数字货币的首个原则草案
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1588167/)
+## 印尼政府批准用伊维菌素治疗COVID-19后，病例急剧下降
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1588214/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+**据《网关专家》作者：Jim Hoft，2021年10月9日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/a3pbr-n5ovj.jpg)图片来源：《网关专家》
+2021年7月，印度尼西亚食品和药品监督局（BPOM）最终批准了伊维菌素作为治疗药物的紧急使用授权，以治疗Covid-19。
 
-编辑上传   水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/c.png)elevenews.com
-日本共同社10月11日报道，日美欧七国集团（G7）财长和央行行长已拟定中央银行数字货币（CBDC）相关的首个共同原则草案。该指南草案主要侧重于透明度和隐私， 预计将于13日于华盛顿举行的“财务负责人”会议上获得批准。
+据官员称，这是由于当时该国的“最糟糕”的流行病。
 
-据截稿时间为止，G7 集团尚未发布 CBDC具体细则。
+印度尼西亚在7月经历了COVID-19感染和死亡的高峰。由于人口众多，它正在努力减缓病毒的传播。印度尼西亚被列为世界第四大人口大国。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/gjujhj.jpg)图片来源：《网关专家》
+政府实施了一些紧急措施以减缓病毒的传播，其措施之一是授权使用伊维菌素作为COVID-19的治疗手段。
 
-七国集团成员——英国、加拿大、法国、德国、意大利、日本和美国以及欧盟——都还没有决定实施CBDC。根据该文件草案，七国集团成员将承认，数字支付使用的迅速增加正在改变个人和企业的交易方式，而中共病毒疫情“进一步加速了”这一趋势，这提高了对货币非接触交易功能的需求。在被认为对任何CBDC都“至关重要”的问题中，该文件引用了适用于新支付系统的国家监管和监督框架，以及保护用户数据的隐私和问责的“严格”标准，以及如何保护和使用信息的透明度。
+《海峡时报》报道，印度尼西亚政府周四（7月15日）开始向高危地区自我隔离的Covid-19患者免费发放药品和维生素，因为具有高度传播性的德尔塔（Delta）冠状病毒变体持续在该国肆虐，清空了药店的货架。
 
-该文件还指出了对外国居民大量使用任何CBDC的担忧，这可能导致发行国和外国的货币替代和货币主权丧失。虽然指出发行这类数字货币是一个“主权问题”，共同社获得的文件称，“通过制定一套共同的原则，并强调透明度、法治和健全的经济治理等共同价值观的根本重要性，这些原则可以指导七国集团及其他国家对零售CBDC的探索。”
+每个包裹里有用量七天的治疗性Covid-19药物和维生素，并提供给无症状的病人以及那些有轻度至中度症状包括发烧和干咳的病人。后一类人的药物需要咨询医生并要有处方。
 
-与此同时，中共国被认为是迄今为止最接近于启动CBDC的主要经济体，发展数字人民币的试点项目已经在进行中。强调透明度似乎反映了批评人士的担忧，即CBDC的推出将通过收集私人金融交易的大数据，此举将赋予中共国政府权力。
+医疗设施捉襟见肘，对氧气和药物的需求也激增。由于数十人在家中自我隔离和自我治疗，药店和网上的药品价格已经飙升。此后，卫生部已采取行动，对诸如法匹拉韦、瑞德西韦和伊维菌素等药物的价格设定上限。
 
-华盛顿智库新美国安全中心(Center for a New American Security)在一份有关中共国数字货币的报告中表示，CBDC系统“可能会使中国共产党在国内加强其数字威权主义，并向国外输出其影响力和标准设定”。今年1月发布的这份报告警告称，中共国的这一项目“对自由社会长期坚持的金融隐私标准构成了重大风险”。
+路透社报道，印度尼西亚的食品和药物管理机构已经授权伊维菌素紧急用于防治Covid-19，尽管世界卫生组织以及欧洲和美国的监管机构不建议将其用于Covid-19患者。
 
-根据国际货币基金组织（IMF）的数据，110个国家已经达到了研究CBDC的“某个阶段”。巴哈马是第一个正式启动CBDC的国家。美联储主席鲍威尔上个月表示，美联储正在评估是否要发行CBDC，并打算“很快发布一份讨论文件”，以征求议员和公众的反馈意见。与此同时，日本央行(Bank of Japan)今年早些时候开始了一项试验，以检查CBDC的基本功能。
+在政府授权对COVID-19患者使用伊维菌素后，自7月以来，病例数量明显骤减。
 
-参考链接：
+下面的数据证明，尽管疫苗接种率很低，但伊维菌素对COVID-19病例的急剧下降起到了作用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/6yh.jpg)图片来源：《网关专家》
+截至10月8日，只有20.5%的人完全接种了疫苗，35.9%的人接种了第一针。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-45.jpg)图片来源：《网关专家》
+**原文连接：**[https://www.thegatewaypundit.com/2021/10/amazing-covid-19-cases-indonesia-plunge-government-authorizes-ivermectin-treatment/](https://www.thegatewaypundit.com/2021/10/amazing-covid-19-cases-indonesia-plunge-government-authorizes-ivermectin-treatment/)
 
-[https://english.kyodonews.net/news/2021/10/6e9b63fdd05e-g-7-highlights-transparency-among-digital-currency-principles-draft.html](https://english.kyodonews.net/news/2021/10/6e9b63fdd05e-g-7-highlights-transparency-among-digital-currency-principles-draft.html)
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
