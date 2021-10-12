@@ -2,18 +2,24 @@
 ---
 
 
-## 2名儿童被“意外”注射中共病毒疫苗后出现心脏病迹象
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1588848/)
+## 西雅图强势执行疫苗强制令 或损失 40% 警力
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1588871/)
 
-#### 编译：沙子最怕你不理它
+#### 编译：Evalu
 校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-50.jpg)图片来源：网络截图
-据 Red Voice Media 10月10日报道，印第安纳州埃文斯维尔的2名儿童原计划在Walgrees药房注射流感疫苗，却被“意外”注射了中共病毒疫苗，随后他们的心脏出现了问题。虽然所有疫苗上都有标签，但这不是Walgreens第一次“犯错”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/7-7.jpg)图片来源：kqes.net
+零对冲网10月11日报道，在全国各地疫苗強制令到期之际，大量的美国劳动力，服务人员和运动员等将因拒绝注射中共病毒疫苗而面临终止工作合约或纪律处分。
 
-10月4日，埃文斯维尔的一家四口——两位成年人和两名儿童——前往约瑟夫大道上的Walgreens药房准备注射流感疫苗。但他们被“意外”注射了全剂量的辉瑞中共病毒疫苗，而不是流感疫苗。
+在洛杉矶市，有近1000名消防员将起诉市政府的强制疫苗令，西南航空公司飞行员工会上周起诉该公司，因人员不足在过去的周末已导致超过二千架次航班取消，同时全国各地的医生和护士们也已经在起诉他们的雇主。
 
-两名儿童的年龄太小，并不适合注射辉瑞或任何其他中共病毒疫苗。Walgreens给出的疫苗接种卡显示，2016年和2017年出生的儿童接种了辉瑞中共病毒疫苗。
+很有趣的是，在洛杉矶市警察局的很多警察起诉这个疫苗强制令后，该局警长阿列克斯·维兰诺瓦宣布他将不强制任何人打疫苗。
 
-这家人说，他们离开药房时以为自己打了流感疫苗，但药房的一名员工后来打电话给他们，说他们犯了一个错误。此后，这家人被儿科心脏病学家告知两名儿童都有心脏病的迹象。Walgreens并未对此事做出解释。
+但西雅图就不一样，如果到10月18日还没有打疫苗，该警察局约1000人的编制将减少40%。一名匿名警官对福克斯13台说：“整个环境已经很糟糕和负面，不只是从疫苗强制令开始，但以前还过得去，我不知道是否要在这长期工作下去，这对我精神不利，我的压力已经非常大了。”
 
-新闻来源：[2 Young Kids Given COVID Vax Instead Of Flu Shots ‘Accidentally’ At Walgreens Now Suffering Heart Issues](https://www.redvoicemedia.com/2021/10/2-young-kids-given-covid-vax-instead-of-flu-shots-accidentally-at-walgreens-now-suffering-heart-issues/)
+截至10月6日，有292名警员能提供疫苗证明，到本周二，将达到354名，还有111名警员正在等待获取例外证明，这就意味着将有403名可能会被辞退。
+
+西雅图市长杰尼·德肯在给警员们的电子邮件中说：“我们敬佩你们每一个人，不想失去你们，但人们都在看着你们，需要你们去打疫苗。”
+
+另一名匿名警官对福克斯13台说：“每天都会损失50-75名警官，城市的应答时间明显延长，如果宗教例外不被批准的话，我将继续工作直到他们把我辞退。”
+
+新闻来源： [Seattle PD May Lose 40% Of Officers Over Covid-19 Vaccine Mandate](https://www.zerohedge.com/covid-19/seattle-pd-may-lose-40-officers-over-covid-19-vaccine-mandate)

@@ -15,110 +15,110 @@
 
 ---
 
-### [病毒共存风险中的纤维肌痛](/content/gnews/1/README.md)
- ` Charlie`
-
-### [意大利地方当局230亿欧元的缺口](/content/gnews/2/README.md)
- ` Charlie`
-
-### [秘翻在线：大量中共国药的疫苗被埃及人倾倒](/content/gnews/3/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共病毒疫苗是人类历史上最大的医药产品生物灾难](/content/gnews/4/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [秘翻在线：大外宣称赞泰国首富谢氏家族入中共国国籍为哪般？](/content/gnews/5/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [凯尔巴斯：原油近期看到100美金/桶](/content/gnews/6/README.md)
+### [DC大中华时事：大灾之际，中共仅向山西陕西预拨8000万元救灾](/content/gnews/1/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：华为跨界再成立四军团，欲占领运输外贸大数据等重要领域](/content/gnews/7/README.md)
+### [中共外交部赵立坚就核潜艇事故无耻三问美方](/content/gnews/2/README.md)
+ ` 儒为`
+
+### [币圈新闻动态：Facebook数字货币项目两名顶级工程师离职](/content/gnews/3/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [G时评：科技那么发达，为何还有贫穷与饥荒？](/content/gnews/4/README.md)
+ ` GISELLE`
+
+### [病毒共存风险中的纤维肌痛](/content/gnews/5/README.md)
+ ` Charlie`
+
+### [意大利地方当局230亿欧元的缺口](/content/gnews/6/README.md)
+ ` Charlie`
+
+### [秘翻在线：大量中共国药的疫苗被埃及人倾倒](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [大阪大学公布对抗未知病毒感染症的研究新成果！](/content/gnews/8/README.md)
+### [中共病毒疫苗是人类历史上最大的医药产品生物灾难](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [秘翻在线：大外宣称赞泰国首富谢氏家族入中共国国籍为哪般？](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [凯尔巴斯：原油近期看到100美金/桶](/content/gnews/10/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [秘翻在线：华为跨界再成立四军团，欲占领运输外贸大数据等重要领域](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [大阪大学公布对抗未知病毒感染症的研究新成果！](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：川普：我们很可能最终与中共国开战](/content/gnews/9/README.md)
+### [秘翻在线：川普：我们很可能最终与中共国开战](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳洲16年警龄女警辞职并抨击了严厉的封城执法](/content/gnews/10/README.md)
+### [澳洲16年警龄女警辞职并抨击了严厉的封城执法](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [推行央行数字货币是为了减少人民的金钱所有权和自由度](/content/gnews/11/README.md)
+### [推行央行数字货币是为了减少人民的金钱所有权和自由度](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [在执行中共病毒强制措施时，要思考而不是简单听从命令](/content/gnews/12/README.md)
+### [在执行中共病毒强制措施时，要思考而不是简单听从命令](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/13/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/17/README.md)
  ` wenwu`
 
-### [GETTR现场直击：全球首例新冠疫苗国家诉讼案在日本开庭](/content/gnews/14/README.md)
+### [GETTR现场直击：全球首例新冠疫苗国家诉讼案在日本开庭](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [已达13年最高值！高油价致日本9月企业物价上涨6.3%](/content/gnews/15/README.md)
+### [已达13年最高值！高油价致日本9月企业物价上涨6.3%](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾有望加入TPP，强化日台联盟抵消中共国的影响力](/content/gnews/16/README.md)
+### [台湾有望加入TPP，强化日台联盟抵消中共国的影响力](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西雅图强势执行疫苗强制令 或损失 40% 警力](/content/gnews/17/README.md)
+### [西雅图强势执行疫苗强制令 或损失 40% 警力](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [五角大楼网络安全官员：美国 AI 远不及中共](/content/gnews/18/README.md)
+### [五角大楼网络安全官员：美国 AI 远不及中共](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [自英国开始接种中共病毒疫苗后 青少年男孩的死亡人数剧增](/content/gnews/19/README.md)
+### [自英国开始接种中共病毒疫苗后 青少年男孩的死亡人数剧增](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美医学协会前主席：中共病毒疫苗是人类历史上带来最大生物灾难的医药产品](/content/gnews/20/README.md)
+### [美医学协会前主席：中共病毒疫苗是人类历史上带来最大生物灾难的医药产品](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2名儿童被“意外”注射中共病毒疫苗后出现心脏病迹象](/content/gnews/21/README.md)
+### [2名儿童被“意外”注射中共病毒疫苗后出现心脏病迹象](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共不计成本欲毁掉G系列，新中国联邦开展法律反击](/content/gnews/22/README.md)
+### [中共不计成本欲毁掉G系列，新中国联邦开展法律反击](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [【 #G时新闻 】美军核潜艇在南海水域遭遇不明撞击](/content/gnews/23/README.md)
+### [【 #G时新闻 】美军核潜艇在南海水域遭遇不明撞击](/content/gnews/27/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [系列事实打脸福奇疫苗安全有效说](/content/gnews/24/README.md)
+### [系列事实打脸福奇疫苗安全有效说](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [狱中札记（一）：梦·书与妻](/content/gnews/25/README.md)
+### [狱中札记（一）：梦·书与妻](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【#G时新闻】美与中共达成勾兑，台湾随时面临灭顶之灾!](/content/gnews/26/README.md)
+### [【#G时新闻】美与中共达成勾兑，台湾随时面临灭顶之灾!](/content/gnews/30/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [破除科学界的“权威”迷信，越来越多医务人员挺身而出揭露真相](/content/gnews/27/README.md)
+### [破除科学界的“权威”迷信，越来越多医务人员挺身而出揭露真相](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [北约前秘书长称欧洲不能在美中制度竞争中当旁观者](/content/gnews/28/README.md)
+### [北约前秘书长称欧洲不能在美中制度竞争中当旁观者](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [加拿大卑诗省坎贝尔河男子接种新冠疫苗后突发癫痫](/content/gnews/29/README.md)
+### [加拿大卑诗省坎贝尔河男子接种新冠疫苗后突发癫痫](/content/gnews/33/README.md)
  ` 温哥华扬帆农场`
 
-### [秘翻在线：台湾拥有核武器？](/content/gnews/30/README.md)
+### [秘翻在线：美国众多议员及工作人员和家人服用伊维菌素治愈中共病毒](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：美国众多议员及工作人员和家人服用伊维菌素治愈中共病毒](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2021年10月11日郭先生盖特 — 视频盖特1「9分49秒」](/content/gnews/32/README.md)
+### [2021年10月11日郭先生盖特 — 视频盖特1「9分49秒」](/content/gnews/35/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [接种率最高的马塞诸塞州，“突破性感染”病例持续高位](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
-
-### [卢比奥力赞台湾人民国际精神 谴责中共入侵](/content/gnews/34/README.md)
- ` GTV新闻访谈`
-
-### [美国情报官员称：美国无法“保卫台湾”](/content/gnews/35/README.md)
- ` GTV新闻访谈`
 
 ### [Bakkt Inks与谷歌签订协议&#8211;将使用加密货币进行实时交易](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`

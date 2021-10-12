@@ -2,21 +2,57 @@
 ---
 
 
-## 秘翻在线：美国众多议员及工作人员和家人服用伊维菌素治愈中共病毒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1588766/)
+## 破除科学界的“权威”迷信，越来越多医务人员挺身而出揭露真相
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588794/)
 
-#### 撰稿：彩虹
+作者：晓仙女
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-26.jpg)图片来源：国会山报
-10月11日，《新闻极限》(Newsmax)引用《国会山报》的文章，报道正在竞选德克萨斯州的前共和党佛罗里达州议员艾伦·韦斯特（Allen West）周末说，他和她的妻子安吉拉·韦斯特（Angela West）因为患有中共病毒而住院，目前正在接受治疗。
 
-韦斯特是一名退休的美国陆军中校，曾担任佛罗里达州第22国会区的议员，并在2020年至2021年期间担任德克萨斯州共和党主席。
 
-文章说，韦斯特没有接种过中共病毒疫苗，其妻子接种了中共病毒疫苗。但是，韦斯特在推特（TWITTER）上说，他正在服用伊维菌素和羟氯喹作为治疗的一部分。
 
-报道披露，埃尔·科里（Pierre Kory）是一名医学博士，努力推广中共病毒的替代疗法，他说：“有趣的事实是，在过去15个月里，有100-200名美国国会议员（加上他们的许多工作人员和家庭成员）被一位同事用伊维菌素和I-MASK方案进行治疗，没有一例严重到住院。”
 
-**新闻来源**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-[Allen West Taking Ivermectin for COVID-19 Treatment](https://www.newsmax.com/newsfront/ivermectin-allenwest-texas-governor/2021/10/11/id/1040074/)
+
+
+
+
+
+
+近日，美国印第安纳州学校董事会，一位功能性家庭医学医生的演讲表示：他认为国家卫生局疾病控制中心提出的理论，跟科学规则是相违背的。
+
+他提出两个重要观点：
+
+一、中共病毒和其它呼吸道病毒一样，一年四季都会存在，并不会消失。
+
+二、SARS爆发时，所有疫苗的动物实验都失败了，实际上呼吸道病毒无法研究出疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-48.jpg)
+这位医生还说：他用补充维生素D、伊维菌素和锌，治疗了15名新冠患者，死亡风险可以下降到目前美国水平的四分之一。
+
+越来越多的事实证明，新冠疫苗无效且有毒，而爆料革命一直传播的羟氯喹、伊维菌素、青蒿素等药物，才能在人类生死存亡阶段，真正起到扭转乾坤的作用！
+
+参考链接:
+[@MilesGuoLive盖特：#1010文贵大直播 精品小視頻 以科學方法破除新冠疫苗的迷思 #疫苗真相 澳洲墨尔本澳洲雅典娜農場（#澳雅农场）出品](https://gettr.com/post/pdtcblb724)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Ryan
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
