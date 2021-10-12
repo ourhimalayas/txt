@@ -2,27 +2,29 @@
 ---
 
 
-## 暗批中共，英国寻求联合G20反对不公平贸易，改革WTO
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589508/)
+## 德克萨斯州长全面禁止疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589534/)
 
-作者：七哩香
+作者：在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月11日，英国贸易大臣特里维廉，在即将于意大利举行的G20贸易部长会议召开之前发表了一份声明，表示她将敦促G20成员国停止扭曲市场的做法，并支持世界贸易组织的改革。
+德州州长格雷格·阿博特（Greg Abbott）11日发布行政命令，全面禁止疫苗强制接种令，包括近期拜登政府对企业及员工下达的疫苗行政令。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-19.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-7.jpeg)
 
-声明称：“我们不能，而且也不会允许遵守规则的英国企业，受到其他国家扭曲市场做法的损害和削弱。”特里维廉将抨击“有害和扭曲”的产业补贴，她的部门曾用这种批评指责中共国。中国是G20成员，作为极具经济实力的大国，显然过度受益于将其视为“发展中经济体”的世贸组织规则。
+该命令标志着重大的转折，阿博特呼吁州议会将类似禁令纳入法条中，扩大对新冠疫苗强制性规定的打击面。阿博特称，人们享有自由选择权、宗教豁免和医疗自主权，私营企业决不接受被政府代表和强迫。目前德州立法机关正在进行第三次特别会议，该会议将于10月19日结束。
 
-意大利总理上周五也表示，他相信10月底举行的G20领导人会议将达成改革世贸组织的强有力承诺。
+德州官员和人民一直在反抗霸凌政策的前线作战。8月25日，在FDA全面批准辉瑞毒针的第二天，阿博特就宣布行政令，禁止政府在德州强制推行新冠疫苗；并于9月初颁布《堕胎法案》努力阻止由大制药厂主导的暴力堕胎产业链，违反法规的诊所和医师将被起诉。辉瑞疫苗生产或检测过程中使用的肾细胞已是多年的事实，而HEK293细胞来自健康人类胚胎。
+
+当前全世界处于深层超限战当中，爆料革命不间断的揭露病毒和疫苗真相，许多政府和组织开始严肃对待疫苗所带来的伤害和死亡问题。
 
 (本文仅代表作者观点)
 
-参考链接:[英国寻求召集20国集团反对不公平贸易做法并支持WTO改革](https://cn.reuters.com/article/g20-summit-trade-britain-idCNL6S2R707L)
-[英国寻求联合20国集团反对不公平贸易做法](https://www.voachinese.com/a/UK-trade-practices-G20-20211011/6266571.html)
+参考链接：[下令禁止企業強制接種疫苗 美德州州長：必須自願接種](https://news.ltn.com.tw/news/world/breakingnews/3700894)
+[Texas Gov. Greg Abbott bans any COVID-19 vaccine mandates — including for private employers](https://www.texastribune.org/2021/10/11/texas-greg-abbott-covid-19-vaccine-mandate/)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-新闻访谈终审：FoxRina
+新闻访谈终审：暗黑
 编辑/校正/发稿：谐趣园
 
 **更多资讯，更多关注**

@@ -2,27 +2,25 @@
 ---
 
 
-## 郭文贵：世界上有三种权力 媒体话语权很重要
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1589548/)
+## 俄外长称俄窃取阿斯利康配方的指控毫无根据
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1589566/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+俄罗斯莫斯科喀秋莎农场 星河
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-11.png)
-文章仅代表作者本人观点，与Gnews无关
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/A-4.jpg)archyde.com
+俄外长表示，“我记得在很多情况下阿斯利康会产生副作用——造成血栓等等。俄罗斯的卫星五号从来没有发生过这样的情况。”
 
-视频参看：2021.10.12早GTV新闻访谈
+美东时间10月12日报道， 俄罗斯外交部长谢尔盖∙拉夫罗夫在访问哈萨克斯坦后的新闻发布会上表示，“关于俄罗斯从阿斯利康公司窃取冠状病毒疫苗配方以制造俄罗斯卫星5号疫苗的指控是毫无根据的。”
 
-[https://gtv.org/broadcast/watch/61657f3d304e992109b3f33a](https://gtv.org/broadcast/watch/61657f3d304e992109b3f33a)
+拉夫罗夫称，“至于我们的英国和大多数西方伙伴，我认为没有人会认真对待这些毫无根据的指责。已经有很多毫无根据的指责，没有听说阿斯利康疫苗的制造商指责俄罗斯窃取疫苗配方。”
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+外长补充说，“我记得在很多情况下阿斯利康会产生副作用——造成血栓等等。俄罗斯的卫星五号从来没有发生过这样的情况。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
+英国《太阳报》报道，阿斯利康的疫苗配方于10月11日被盗。该报援引美国情报机构的话说，俄罗斯从阿斯利康公司复制了这项技术，并将其用于制造俄罗斯卫星五号疫苗。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+俄罗斯总统发言人德米特里∙佩斯科夫称《太阳报》“极不科学”。俄罗斯直接投资基金称，英国出版物的报道是 “基于匿名来源的无耻谎言”。
+
+参考链接：
+
+[https://www.rbc.ru/rbcfreenews/61654fa69a7947107550f1ca](https://www.rbc.ru/rbcfreenews/61654fa69a7947107550f1ca)

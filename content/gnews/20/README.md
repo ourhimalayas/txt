@@ -2,27 +2,30 @@
 ---
 
 
-## 有声|州长候选人和妻子患新冠 强烈反对新冠疫苗强制令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1589752/)
+## 逾四分之三的加拿大人拒绝华为涉足5G建设
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1589762/)
 
-配音：香草山美食部 – 玫瑰园
+蒙特利尔皇家山 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/10/http-com.ft_.imagepublish.upp-prod-us.s3.amazonaws.com-505344da-6a9c-11e9-80c7-60ee53e6681d.jpg)图片来源： Financial Times
+根据《彭博社》(Bloomberg) 10月11日报道，一项新的民调显示，超过75%的加拿大人表示，总理贾斯汀-特鲁多的政府应该禁止中国的华为技术有限公司参与第五代电信网络的建设。
 
-10月10日，德克萨斯州共和党州长候选人，艾伦·韦斯特（Allen West）发布一系列推文，他分享了自己和妻子感染新冠病毒，和在达拉斯医院接受治疗的经历，并称现在，他将更坚决的反对疫苗强制接种令。
+Nanos Research为《环球邮报》周一发布的民意调查，反对华为参与5G的比例从2019年的53%上升。特鲁多没有排除将华为纳入其中的可能性，预计很快会做出决定。
 
-现年60岁的韦斯特曾担任德克萨斯州共和党主席。6月卸任后，正在备选明年州长选举。他在推特中表示，他反对新冠疫苗强制接种，并且自己也没有接种。韦斯特的妻子接种了疫苗，但上周五10月8日被检查出新冠阳性，接受治疗后第二天回家。当天，韦斯特自己也出现轻微症状，进入医院治疗后，血氧饱和度从85回升至94至96区间。
+对华为的不赞成率激增，反映了自2018年12月以来酝酿的公众愤怒，当时中国在加拿大根据美国的引渡请求逮捕华为首席财务官孟晚舟后的几天内监禁了加拿大企业高管迈克尔-斯帕沃和迈克尔-科夫里奇。众所周知，这两位迈克尔被关押了1000多天，条件十分恶劣。
 
-在系列推中，韦斯特感谢医护人员没有强迫他接受有害的方案，自然抗体最好。他表示更加致力反对相关的强制令，不能让垄断大药厂和腐败的官僚借此敛财，绝不接受把危险的针头对准美国人民。作为德州官员，将坚持强烈打击任何在这里强制要求接种新冠疫苗的人。韦斯特以自己道德家庭现状强调个人选择权的重要性，韦斯特说：“我们的身体是我们最后的自由和自由的避难所，我将为每个人捍卫这一点”。
+上个月，在孟晚舟与美国达成协议，解决对她的刑事指控后，孟晚舟登上了回中国的飞机，两人随即被释放。加拿大及其西方盟友指责中国政府的 “人质外交”，而中国则坚持认为这些案件没有关系。
 
-文字版原文：[州长候选人和妻子患新冠 强烈反对新冠疫苗强制令](https://gnews.org/zh-hans/1587209/)
+如果特鲁多禁止华为，这可能会进一步激化两国的关系。由于两个迈克尔的命运悬而未决，加拿大已经推迟了近三年。该国最亲密的盟友，包括美国、英国和澳大利亚，已经下令直接禁止该公司。
 
-音频处理：喜山必胜Maverick
+中国外交部发言人赵立坚周二在北京举行的例行新闻发布会上说，“加拿大应该为中国公司提供一个公平、公正、公开和非歧视性的环境。华为的5G产品以其尖端技术和安全性得到了世界上绝大多数运营商的认可。加拿大应该遵守客观公正的态度，独立做出符合自身利益的决定”。
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+Nanos Research为彭博新闻社进行的另一项调查显示，36%的加拿大人认为与中共国的关系因其监禁高管而受到永久损害。这项调查是在9月30日至10月3日期间通过电话和网络进行的，误差率为3.1个百分点。
+
+越来越多的加拿大人看清了中共“人质外交”的实质和华为公司对网络安全的威胁，明确表示应该同美国，英国等国家一样，禁止华为公司参与加拿大网络建设。
+
+原文链接：
+[https://www.bloomberg.com/news/articles/2021-10-11/public-opposition-to-huawei-surges-in-canada-before-5g-decision](https://www.bloomberg.com/news/articles/2021-10-11/public-opposition-to-huawei-surges-in-canada-before-5g-decision)
+
+* * *
+
+发稿 Spirit

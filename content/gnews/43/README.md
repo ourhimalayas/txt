@@ -2,27 +2,37 @@
 ---
 
 
-## GETTR现场直击：面对反疫苗诉讼 日本媒体选择集体失声
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1589257/)
+## 美官员呼吁警惕中共人工智能领域发展威胁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589314/)
 
-**撰稿：日本东京方舟农场 文拓**
+作者：在远方
 
-东京时间2021年10月12日13时，日本反对新冠疫苗诉讼第一次公开庭审在东京地方裁判所（法院）703法庭开庭。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-这次庭审受到海内外广泛关注，尽管当天阴雨绵绵，但一早就有很多记者和民众冒雨排队，等候抽签。只允许21人旁听的庭审现场，却有数百人赶到，而原定于中午12点的抽签在早上10点便提前结束。尽管如此，不仅赶来的人没有散去，陆续到场的人也越聚越多，他们停留在法院周围，冒雨等候庭审消息。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-26.png)图片来自于网络
 
-尽管人群中不乏当地知名媒体的新闻记者，但均对反疫苗诉讼这一案件讳莫如深。对于今天的庭审，日本共同社第一时间进行了报道，却避开反疫苗的政府诉讼，仅称“东京地方法院聚集了数百名不戴口罩的群众”，日本产经新闻和东京新闻等诸多媒体也进行了转载。
+前五角大楼首席软件官夏兰表示，美国如果不能认清形势并迎头赶上，15年后将在人工智能和网络领域输给中共国。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/P4.002.jpeg)
+夏兰认为中共目前在人工智能、合成生物学和遗传基因领域等方面的进步，正在超越美国。他批评美国一些政府部门的网络防御措施太低，像谷歌一类的大科技公司也没有意愿与国防部在人工智能领域合作。相反由于极权统治的体制，中国科技公司无条件在与中共合作，受其操控。 而中共在人工智能领域进行国家级大量投资，从不考虑相关的伦理道德问题。
 
-据了解，抵制新冠疫苗相关的信息是当地媒体的禁忌，尤其是在《太阳体育报》报社负责人因报道高桥德医生主办的反疫苗记者招待会后被撤职，各个媒体对相关题材报道更是异常谨慎。
+中共之所以投入海量资金进行上述方面的科技研发，是因为在未来AI 智能网络技术和生物科技将控制主导人类的命运和走向，如何应对中共的这一趋势，是全球文明国家都亟需面对的紧迫现实。
+(本文仅代表作者观点)
 
-与之形成鲜明对比的是，GETTR和Gnews均对这次具有历史意义的诉讼案庭审展开追踪报道。
+参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-14.png)图片来自于网络
+1. [前五角大楼首席软件官：中国在人工智能领域正走向全球主导地位](https://www.voachinese.com/a/US-has-lost-AI-battle-to-China-pentagon-s-ex-software-chief-says-20211011/6265882.html)
+2. [五角大楼前首席软件官：中国已在人工智能领域取胜](https://www.rfi.fr/cn/中国/20211011-五角大楼前首席软件官-中国已在人工智能领域取胜)
 
-*注：本文仅代表作者观点，与 Gnews无关*
 
-* * *
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

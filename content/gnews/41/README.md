@@ -2,19 +2,37 @@
 ---
 
 
-## 最后通牒&#8211;加拿大魁省将强停所有未接种疫苗护士的工作！
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1589403/)
+## 摩根大通：比特币“一文不值” ，政府很快进行监管
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1589408/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/dube-nurses-quebec-edited.jpg)魁省卫生部长：杜贝和反疫苗护照的医护人员
-图片来源：thepostmillennial
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/AlekseyIvanov-Bitcoin-1000x600-1.jpg)图片来源：crypto-news-flash.com
+#### 整理报道：小红帽
 
+摩根大通（ JPMorgan）首席执行官杰米·戴蒙（Jamie Dimon）周一表示，比特币“一文不值”，政府将很快对数字货币进行监管。
 
-加拿大自媒体《千禧年报》10月11日刊文称，魁北克护士协会主席马蒂厄当日宣布，尽管必须接种首剂加拿大卫生部批准的COVID19疫苗之最后期限为10月15日，但他仍将提前吊销所有那些尚未完全接种该疫苗护士的从业执照。
+这是他对有争议性的数字货币的最新攻击。他之前曾登上无数头条新闻，称这项新技术为“欺诈”和“傻瓜的黄金”。
 
-据悉，在魁省护士协会的80,500名护士中，至今仍有4,338人没有充分接种该疫苗，其中有2807名护士则完全没有接种。省长杜贝日前表示，虽然该省面临约4300名全职护士的大量短缺，以及因此而导致的对公共卫生系统的严重影响，但当局仍然决定对约15000名尚未接种该疫苗的医护人员停薪留职，直至他们证明已完全接种了为止。
+戴蒙周一在国际金融研究所主办的一次活动上发表了该讲话。
 
-与此同时，代表未接种医护人员的律师马诺尔则表示，已向高等法院提出申诉，要求魁省卫生部立即停止将于10月15日强制执行的该停职措施。此外，拒绝接种的医护人员称，大量已接种该疫苗的人仍被COVID19感染，以及接种后所导致的严重副作用是他们拒绝接种的主要原因。并强调，宪法规定每个人都有权对自己的身体健康做出决定。
+尽管戴蒙批评比特币，摩根大通已开始为客户提供六种加密货币产品。
 
-（以上内容仅代表原文信息和作者个人观点）
+包括高盛（ Goldman Sachs）和花旗集团（Citigroup）在内的其他老牌机构也寻求扩大其在该领域的足迹。高盛允许某些客户通过衍生产品交易加密货币，而花旗集团正在寻求通过基金开始交易加密货币。
 
-[原文链接：](https://thepostmillennial.com/quebec-faces-nursing-shortage)
+**摩根士丹利是第一家允许客户交易加密货币的银行，现在它甚至将自己的资金投入到投机性币中。**
+
+但是戴蒙加入了抨击数字货币的商界和政界领袖的行列。前总统唐纳德·特朗普（Donald Trump）在8月份猛烈抨击加密货币。**对冲基金经理约翰·保尔森（John Paulson）也是如此，他预测加密货币将“归零”。**
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[JPMorgan chief Jamie Dimon says bitcoin is ‘worthless’ (nypost.com)](https://nypost.com/2021/10/11/jpmorgan-chief-jamie-dimon-says-bitcoin-is-worthless/)
+
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
