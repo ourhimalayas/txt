@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/12/2021 2:04 PM (UTC)`
+
+10月12号：吃饭饭喽……
+![img](https://media.gettr.com/group39/getter/2021/10/12/14/04/5ed862d4-72f1-6b06-344e-5a6f83cb152d/out.jpg)
+
+---
+
+`@miles 10/12/2021 2:00 PM (UTC)`
+
+10月22号：尊敬的战友们好……共产党的经济超限战……正危害全球的所有的金融市场和国家的经济安全！
+![img](https://media.gettr.com/group10/getter/2021/10/12/14/00/469d22e5-5cea-6070-c9ce-ccd31133c0c9/out.jpg)
+
+---
+
 `@miles 10/12/2021 10:19 AM (UTC)`
 
 Henry Reitzug博士强烈建议所有人都不要接种疫苗，而是寻求其他治疗方案，主流媒体或政治家说“遵循科学”的意思是“遵照我的意思”，这通常是有政治动机的，他们从一开始的口号就是“没有治疗手段，我们需要疫苗”，这违背了医学界的普遍方法，这是虚假且不合理的，新冠病毒没有治疗方法的说法也是绝对不正确的。（评：新冠溯源都未确定，不探究方法，而新冠疫苗这么快就问世了，这太荒唐了！）<br/><br/>Dr. Henry Reitzug strongly advises anyone not to get vaccinated, but to seek alternative treatments for the coronavirus. Mainstream media or politicians say "follow the science" means "follow my way ", which is usually politically motivated. Their initial mantra was "there is no treatment, we need a vaccine." This violates the approach generally in medicine, is false and unreasonable, and the claim that there is no treatment is absolutely not true. (Comment: The COVID-19 origin tracing has not been determined, while the COVID-19 vaccines came out so soon, which is ridiculous.)
@@ -280,20 +294,6 @@ Taiwan is in great danger: Xi Jinping addresses the 110 years anniversary of Xin
 
 10月8号：尊敬的战友们好……七哥说的都在发生中……我们将是最干净最纯洁……对社会最有益处的👉新人类的，👈新社交，金融融合的媒体平台。
 ![img](https://media.gettr.com/group6/getter/2021/10/08/13/17/4d90c5a0-5147-9f48-387c-c819fd71aa4e/out.jpg)
-
----
-
-`@miles 10/8/2021 2:34 AM (UTC)`
-
-辉瑞前雇员爆料：辉瑞向公众隐瞒其新冠疫苗含有胎儿组织<br/><br/>Former employee exposes Pfizer’s deception regarding the fetal tissue within its COVID vaccine 
-![img](https://media.gettr.com/group21/getter/2021/10/08/02/34/0a5bda83-54df-c571-852a-8e1225fac780/out.jpg)
-
----
-
-`@miles 10/7/2021 11:41 PM (UTC)`
-
-Pfizer is tightly arranging new vaccines to fight the next generation of the CCP Virus for the benefit. But Pfizer scientists admitted on camera that vaccines are not as effective as human natural immune system. <br/>Although such reports are backed up by science, they are covered up, censored online, and banned by Big Tech as dangerous misinformation, because they contradict the narratives of the media, medical establishments and big pharmaceutical companies about COVID vaccines.<br/><br/>为了利益，辉瑞仍在紧凑地安排新型疫苗对抗下一代中共病毒。但辉瑞科学家在镜头上承认，疫苗并不比人天然免疫系统更有效。<br/>尽管这类报道是有科学支撑的，但被科技巨头以危险虚假信息的理由封锁，这是因为报道与媒体、医疗机构和大制药公司对疫苗的说法相矛盾。
-![img](https://media.gettr.com/group48/origin/2021/10/07/23/41/94ec055b-2361-d8f4-d3ac-70fdf900e669/out.jpg)
 
 ---
 
