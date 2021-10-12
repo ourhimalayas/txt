@@ -2,27 +2,25 @@
 ---
 
 
-## 暗批中共，英国寻求联合G20反对不公平贸易，改革WTO
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589508/)
+## &#8220;世界上三种权力最重要，我们要有话语权&#8221;!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589555/)
 
-作者：七哩香
+作者：文龍
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月11日，英国贸易大臣特里维廉，在即将于意大利举行的G20贸易部长会议召开之前发表了一份声明，表示她将敦促G20成员国停止扭曲市场的做法，并支持世界贸易组织的改革。
+今天文贵先生在盖特转发了他的一个视频片断，其中文贵先生称:
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-19.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-7.jpeg)
 
-声明称：“我们不能，而且也不会允许遵守规则的英国企业，受到其他国家扭曲市场做法的损害和削弱。”特里维廉将抨击“有害和扭曲”的产业补贴，她的部门曾用这种批评指责中共国。中国是G20成员，作为极具经济实力的大国，显然过度受益于将其视为“发展中经济体”的世贸组织规则。
+“在欧洲意大利/法国，以及英国的工会，包括新加坡都在上街游行，美国也在罢工，但所有的媒体都不说这是因为疫苗引起的！这世界有三种权力，第一是货币发行权，掌握这个权力就控制了正义和邪恶的界定！第二是媒体话语权，可以颠倒黑白！最后就是第三种权力：枪杆子军队！全世界百姓都知道疫苗有副作用, 会死人，但不允许说，只是让你打疫苗。邪恶的势力远远超出了想象！拜金主义导致，钱似乎什么都能买，甚至要代表上帝!”
 
-意大利总理上周五也表示，他相信10月底举行的G20领导人会议将达成改革世贸组织的强有力承诺。
+文贵先生最后讲到最近习近平关于辛亥革命的讲话,  “世界一半在沉默，另一半的解读，不是喂料就是带风向，完全视2300万台湾人民的生命安全于不顾…..因此媒体话语权对我们来说太重要了!” —  而这正是爆料革命要拥有和建设我们自己的媒体平台: GTV/Gnews和盖特的原因。
 
 (本文仅代表作者观点)
 
-参考链接:[英国寻求召集20国集团反对不公平贸易做法并支持WTO改革](https://cn.reuters.com/article/g20-summit-trade-britain-idCNL6S2R707L)
-[英国寻求联合20国集团反对不公平贸易做法](https://www.voachinese.com/a/UK-trade-practices-G20-20211011/6266571.html)
+参考链接：[https://gettr.com/post/pdvw3820a4](https://gettr.com/post/pdvw3820a4)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-新闻访谈终审：FoxRina
 编辑/校正/发稿：谐趣园
 
 **更多资讯，更多关注**

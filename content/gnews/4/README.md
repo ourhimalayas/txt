@@ -2,110 +2,63 @@
 ---
 
 
-## 喜交所的开户行是G系列的控股
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1589958/)
+## Arooj Imtiaz Lughmani接种辉瑞疫苗副作用自述
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1590028/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl-6.jpg)
-[https://gtv.org/video/id=61656f99d2e2b817487463d8](https://gtv.org/video/id=61656f99d2e2b817487463d8)
+关键字：辉瑞疫苗 疫苗副作用  爱尔兰 焦虑症 抽搐 癫痫
 
-**郭文贵**
-**Miles Guo**
+Arooj Imtiaz Lughmani -辉瑞疫苗2021年9月10日
 
-昨天也就是10月6号咱们签署了一家金融机构
-it was October 6th yesterday, we signed the contract with a fi-nancial institution
+Arooj Imtiaz Lughmani – Pfizer 10th September 2021
 
-10%（股权）归我们GTV的投资者所有
-that 10% equity is owned by our GTV investors
+严重不良反应（副作用）:辉瑞疫苗接种后10分钟开始-强直性阵挛发作，发出滴答声，震颤和言语含糊
 
-记住这话，七哥承担责任的，我不告诉你这个机构是什么
-Remember, QiGe(Miles) is responsible for it, I won’t tell you what this organization is
+Severe Adverse Reaction: Started 10 Minutes after Pfizer Vaccine – Tonic Clonic Seizures, Ticks, Tremors and Slurred Speech
 
-昨天是个大日子，我昨天就在这里问，那个金融机构的其中一个股东
-Yesterday it was a big day, I asked the question here yesterday that one of the shareholders of that financial institution
+[原文链接：](https://nomoresilence.world/pfizer-biontech/arooj-imtiaz-lughmani-pfizer-severe-adverse-reaction/)
 
-他就非要当大股东，我说必须得让我们G系列当大股东
-He wanted to be the major shareholder, I said we must let our G series be the major shareholder
+Arooj Imtiaz Lughmani的自述：
 
-当时我就说，我是一分股权也没有
-I said at that time, I don’t have any single share of equity
+Arooj Writes:
 
-你可以不欢迎我们这些人，还是那句话
-You may not welcome people like us, again
+我是一名五年级的医科学生，我本来非常健康，但因为辉瑞疫苗，我失去了协调能力，无法行走。
 
-我们这些都是穷兄弟，对吧
-All of us are the poor brothers, right?
+I’m a 5th year medical student and I was perfectly fine, but I’ve suffered an allergic reaction to the Pfizer Vaccine which has left me with no coordination and inability to walk.
 
-你这个国家一共多少人，你告诉（我）你国家多少人，是不是
-What’s the population in your country, you tell me what’s the population for your country, right?
+我的神经科医生一直说发生这种情况是因为我曾经历过巨大的创伤，这些创伤都留在了我脑子里，所以我成了这样。但即使他说的是对的，为什么我没有得到针对性的治疗？什么时候痛苦成了我康复计划的一部分了？
 
-你才1000万人，千百万人嘛，对吧
-your country is about only 10 million people, it’s only several millions of people, right?
+I am constantly gaslighted and manipulated by my neurologist who says this is happening because I have been through a huge trauma and it is all in my head. EVEN IF IT IS, WHY AM I NOT GETTING SYMPTOMATIC RELIEF TREATMENT?! When has suffering become part of a recovery plan in the HSE?
 
-另外你这个国家多少人，几十万人，虽然你是世界最有钱的国家，最牛的
-In addition, how many people are in your country, hundreds of thousands, although you are the richest country in the world, super rich
+自从我开始服用氯硝西泮后，我的癫痫、抽搐、震颤和言语不清都停止了。 但昨天一天我都在痛苦中度过，早上的一次发作，护士竭尽所能地控制住了，但接着是一整天的抽搐和震颤，最后变成了强直–阵挛性癫痫。尽管我被注射了镇静剂和肌肉松弛剂，但还是发生了这种情况，真不开心。真不知道自己身体发生了什么。我还是觉得很痛，还是不能走路，还是呼吸不到新鲜空气。 真希望有奇迹发生。
 
-但我请问你，作为朋友，如果我们中国人
-But I ask you, as a friend, if we Chinese people
+Ever since I started Clonazepam, my Seizures, Ticks, Tremors and Slurred Speech stopped – but yesterday I spent in agony, an episode in the morning that the nurses controlled with whatever they could give me, followed by a day of ticks and tremors that eventually became a Tonic Clonic Seizure. I’m not happy that this happened despite being sedated and on muscle relaxants. I don’t know what is going on anymore. Still in pain still can’t walk, still haven’t breathed fresh air, still hoping for a miracle.
 
-有200万到500万高质客户投了你这个国家，结果是什么
-there are 2 million to 5 million high-quality customers have in-vested in your country, what is that result?
+我觉得我快要死了。 真不想让别人也经历我正在经历的这些。我一直想成为一名医生，成为一名能帮助人的医者。我不知道这种生活还能持续多久，但我尽力想让人们意识到疫苗的副作用是真的。
 
-他说，那太大了，然后我说你要想跟G系列合作
-He said that’s great, and then I said if you want to cooperate with the G series
+I feel like I’m going to die and I don’t want anyone else to go through what I am going through. I always wanted to be a doctor, to be a healer, to help people. I don’t know how much longer of this life I have left, but I’m doing my best to make people aware that the side effects are REAL.
 
-我作为一个顾问我建议你，你必须让我们控股
-I, as a consultant, my suggestion to you is that you must let us be the holding shareholders
+我一直很疲惫，我的腿感觉就像有人在用刀子扎它们，就是这样痛。
 
-而且必须接受(GTV投资者), 他原来是不接受GTV然后椅子
-and must accept our investors, he did not accept GTV original shareholders at first
+I’m constantly exhausted, my legs feel like someone is sticking knives into them, that’s how bad it is.
 
-就是散户他不接受，
-He doesn’t accept retail investors
+对于所有给我发信息和评论说我在演戏的人，我真希望我在演戏。我比以往更需要人们为我祈祷。家人因此而处于巨大的痛苦之中，我已经一个多星期没有见到妈妈了，因为想向她隐瞒我的病情，她患有严重的焦虑症。
 
-第二，这些人未来要加一起成为这个金融机构10%的股东
-Second, these people will become 10% shareholders of this finan-cial institution together in the future
+For all the people who have been sending me messages and comments stating ‘it’s acting’, I honestly wish it was. I need your prayers more than ever. My family is in immense pain I haven’t seen my mom in over a week because we are trying to hide the severity from her, as she has severe anxiety.
 
-他说那是不是按照市值，到时候收购完以后的估值的市值
-He said that is it based on the market value, the market value after the acquisition is completed
+爱尔兰卫生局真让人失望。我父亲，一个在一线工作了30多年的人，不得不看着他的女儿死去，因为没人在乎疫苗是否有后遗症。
 
-市值，市场价值来买股，我说不可以
-Market value, the future market value when we make transac-tions, I said no
+The Irish Health Service has failed us. My father, a frontline worker for over 30 years, has to watch his daughter die because nobody cares.
 
-不管你定价多少钱，我们这些股东，未来要加入进去的
-No matter how much you price it, our shareholders who will join in in the future
+我一直对接种疫苗感到无比兴奋。 即使在我身上发生了这么多事，我也并不反对接种疫苗，我担心的是缺乏与新冠疫苗有关的此类症状的记载，在医学上这几乎是比80年代艾滋病更糟糕的耻辱。我的疫苗副作用是在第一次接种后差不多10分钟开始的，当时我在专门的疫苗接种后的观察室里填写调查表，然后感到手臂的痉挛。医生们却不愿意承认这些是疫苗造成的。
 
-我带的人未来绝对不能超过1美金（一股）
-The person I bring in the future must not exceed $1 per share
+I was incredibly excited to get my vaccination – I’m not against the vaccine, even after all that is happening to me. But my concern is, the lack of documentation of such symptoms related to Covid Vaccines – almost a stigma worse than AIDS in the 80’s. The doctors do not want to admit that the Vaccine caused this when my reactions started almost 10 minutes after my first vaccination, while I was in the post-vax waiting room, filling out a survey and felt my arm’s spasm.
 
-就是你们看到的，我们最好的那个兄弟，不能说名字
-It’s what you see, our best brother, I can’t say his name
+各位，还有英国和爱尔兰，请以我为鉴吧。
 
-昨天说，大哥，拿下了，51控股
-He said yesterday to me, “big brother, done, we got 51% share holdings”
+Please educate yourselves, the UK & Ireland.
 
-未来GTV老椅子，记住今天说的话，GTV老椅子
-The old GTV shareholders in the future, remember what I said today, the old GTV shareholders
+* * *
 
-GTV 老椅子，包括后来借项目所有的投资者，新GTV的股权拥有者
-the old GTV shareholders, Including all investors who were in the borrow project later and the equity owners of the new GTV
+翻译，校对：【Chloe蔻依】 剪辑，字幕：【   36CIA  】
 
-不会超过一块钱，拥有这家金融机构的股份
-that will own shares of this financial institution with price of no more than one dollar per share
-
-—————————————————————
-原视频日期：2021/10/07
-任务编号：KC161（2489）
-视频时间段 : 0:00-2:14
-
-**原视频接:**[https://twitter.com/se1y7cblljselva/status/1446411073133764611?s=24](https://twitter.com/se1y7cblljselva/status/1446411073133764611?s=24)
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*发布：Theodosia*

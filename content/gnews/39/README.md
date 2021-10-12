@@ -2,25 +2,38 @@
 ---
 
 
-## 疫苗灾情｜美国 47 岁教育学硕士接种疫苗后双腿截肢
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1589436/)
+## GETTR现场直击：全球首例新冠疫苗国家诉讼案在日本开庭
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589522/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 12/10/2021**
+作者：文顺
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+全球首例新冠疫苗受害者国家诉讼案，今晨在东京地方裁判所民事部开庭，新中国联邦日本方舟农场GETTR团队现场追踪。
 
-***彷佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
-![](https://assets.gnews.org/wp-content/uploads/2021/10/22-3.jpg)
-【美国】明尼苏达州一名 47 岁的尼日利亚籍女硕士 Jummai Nache 在接种完第二剂辉瑞 COVID-19 疫苗之后诱发严重的动脉血栓、缺血和心肌炎，为了保命，她被截断双脚，最遗憾的是，她的双手都可能难以保全。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-11.jpeg)
 
-Jummai 于 2 月 1 日接受了第二针疫苗之后，就立即感到胸痛，她的丈夫 Philip Nache 陪同一起到医院诊治后，医生表示，她没任何心脏问题，不过确诊 COVID-19 阳性，这一结果，令他们十分震惊。
+该案件对日本国会内阁总理菅义伟、内阁官房长官加藤勝信，以及厚生劳动省大臣、新冠病毒防治担当大臣和疫苗接种大臣等众官员，提起国家诉讼，要求被告取消根据《传染病预防及传染病患者医疗法》将新冠病毒作为指定传染病的政令，取消根据传染病法将新冠病毒传染病定义为“新型流感传染病”的决定措施， 并要求被告不可以将新冠病毒传染病作为传染病防治。
 
-但由于 Jummai 未有表现出任何感染新冠病毒的症状，因此医院未对她进行任何治疗，直至 2 月 13 日，她的病情突然恶化 ，才被转移到明尼苏达大学医学中心进一步观察，医生发现她的氧气含量和血压都低到致命的程度，心脏亦严重受损。
+该案件还要求被告取消对辉瑞疫苗、阿斯利康疫苗和武田制药疫苗的特批，确认原告等对这些疫苗没有预防接种的义务。
 
-医生对她的丈夫表示， Jummai 随时可能离世，她正在与动脉血栓、缺血和心肌炎作斗争，最后，为了挽救她的生命，医生对她进行了[双侧](https://www.choosept.com/symptomsconditionsdetail/physical-therapy-guide-to-belowknee-amputation-2#:~:text=Below%2DKnee%20Amputation%3F-,Transtibial%20amputation%2C%20or%20below%2Dknee%20amputation%2C%20is%20a%20surgical,circulation%20in%20the%20lower%20limb.)胫骨截肢术，即切除双腿膝盖以下部分。最令人痛心的是，她的双手亦因缺血而严重坏死，预计等到腿部伤口痊愈后，她的双手都会被切除。
+除此之外，案件要求被告不可使用PCR检查来判定是否感染新冠病毒，不可发行疫苗护照和病毒阴性证明，并向原告各支付30万日元。
 
-明尼苏达大学的医生对他们表示，无法证实是辉瑞疫苗造成了她的悲剧，他们唯一肯定的是，确实有很多人因 COVID-19 引发成人多发性炎症综合征（MIS-A）。**Jummai 的丈夫质疑，“我和我的妻子日日生活在一起，为什么我是阴性，而且我还未打疫苗？”“如果疫苗不能打败病毒，那么疫苗究竟在人的体内扮演什么角色？”**
+该案件由日本反疫苗诉讼支援会代表疫苗受害者出庭。开庭前夕，该会会长鵜（tí）川和久在接受GETTR采访时表示，他们协会为全日本疫苗受害者提供义务法律支持。他说：“日本的疫苗受害者现在处于无处发声，孤独无助的状态。”
 
-来源｜[个案024](https://www.gofundme.com/f/22h9pf-fundraiser-for-jummai-naches-medical-expenses)
+该国家诉讼案为全球首例，或将开启全世界新冠疫苗受害者 通过法律途径捍卫自身利益、揭露疫苗真相的浪潮。日本当地民众对该事件强烈关注，据方舟农场前线记者传来的信息，现场人满为患，只得采取抽签方式入场，更多的民众则冒雨撑伞等待着开庭结果。
 
-* * *
+(本文仅代表作者观点)
 
-他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//
+参考链接：[GETTR现场直击：全球首例新冠疫苗国家诉讼案在日本开庭](https://gnews.org/zh-hans/1588887/)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：FoxRina
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

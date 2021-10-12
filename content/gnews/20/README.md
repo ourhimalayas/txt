@@ -2,30 +2,56 @@
 ---
 
 
-## 逾四分之三的加拿大人拒绝华为涉足5G建设
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1589762/)
+## LifeLabs 的“人员配备挑战”导致预约取消，大维多利亚地区的多个设施突然关闭
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1589812/)
 
-蒙特利尔皇家山 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/10/http-com.ft_.imagepublish.upp-prod-us.s3.amazonaws.com-505344da-6a9c-11e9-80c7-60ee53e6681d.jpg)图片来源： Financial Times
-根据《彭博社》(Bloomberg) 10月11日报道，一项新的民调显示，超过75%的加拿大人表示，总理贾斯汀-特鲁多的政府应该禁止中国的华为技术有限公司参与第五代电信网络的建设。
+新聞來源：Cheknews
 
-Nanos Research为《环球邮报》周一发布的民意调查，反对华为参与5G的比例从2019年的53%上升。特鲁多没有排除将华为纳入其中的可能性，预计很快会做出决定。
+**关注：持续的劳动力短缺的又一个受害者，因为这家受欢迎的医学实验室检测公司正努力跟上需求。Kevin Charach 有更多信息关于突然关闭和取消预约給大维多利亚地区居民的影响。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Lifelab-Picture.png)
+Noren Essa 计划于周五早上在 Saanich 的 Cedar Hill Cross Road 的 LifeLabs 移除心脏监测器。
 
-对华为的不赞成率激增，反映了自2018年12月以来酝酿的公众愤怒，当时中国在加拿大根据美国的引渡请求逮捕华为首席财务官孟晚舟后的几天内监禁了加拿大企业高管迈克尔-斯帕沃和迈克尔-科夫里奇。众所周知，这两位迈克尔被关押了1000多天，条件十分恶劣。
+Essa 的约会原定于上午 11 点，但当她到达时，她惊讶地发现它没有开放。
 
-上个月，在孟晚舟与美国达成协议，解决对她的刑事指控后，孟晚舟登上了回中国的飞机，两人随即被释放。加拿大及其西方盟友指责中国政府的 “人质外交”，而中国则坚持认为这些案件没有关系。
+“我应该在 11 点左右到达那里，让他们移除我下去的设备，而 LifeLabs 实际上已经关闭，”她说。
 
-如果特鲁多禁止华为，这可能会进一步激化两国的关系。由于两个迈克尔的命运悬而未决，加拿大已经推迟了近三年。该国最亲密的盟友，包括美国、英国和澳大利亚，已经下令直接禁止该公司。
+Essa 说她的心脏监护仪是在周四插入的，她得到了具体的指示，让她在第二天返回 LifeLabs 将其移除。她说她仔细查看了 LifeLabs 的营业时间，但从未接到任何有关突然关闭的电话或消息。
 
-中国外交部发言人赵立坚周二在北京举行的例行新闻发布会上说，“加拿大应该为中国公司提供一个公平、公正、公开和非歧视性的环境。华为的5G产品以其尖端技术和安全性得到了世界上绝大多数运营商的认可。加拿大应该遵守客观公正的态度，独立做出符合自身利益的决定”。
+“我肯定担心我现在该怎么办，” Essa说。 “他们非常明确地规定不超过 24 小时。”
 
-Nanos Research为彭博新闻社进行的另一项调查显示，36%的加拿大人认为与中共国的关系因其监禁高管而受到永久损害。这项调查是在9月30日至10月3日期间通过电话和网络进行的，误差率为3.1个百分点。
+LifeLabs 是一家私营公司，是受欢迎的医学检测服务机构，在温哥华岛南部拥有十多个地点。许多居民依靠 LifeLabs 获得各种服务，包括心脏监测和一般血液检查。
 
-越来越多的加拿大人看清了中共“人质外交”的实质和华为公司对网络安全的威胁，明确表示应该同美国，英国等国家一样，禁止华为公司参与加拿大网络建设。
+Essa 说，当其他人在星期五到达约会时，一个队伍已经形成，许多其他人和她一样困惑。她说她决定给 LifeLabs 打电话，但被放置了将近一个小时。
 
-原文链接：
-[https://www.bloomberg.com/news/articles/2021-10-11/public-opposition-to-huawei-surges-in-canada-before-5g-decision](https://www.bloomberg.com/news/articles/2021-10-11/public-opposition-to-huawei-surges-in-canada-before-5g-decision)
+因此，在等待期间，Essa 决定将她的故事发布到网上，看看该地区的其他人是否可以对这个问题有所了解。她很快就知道她并不唯一遇到這事的人。
 
-* * *
+“它立即开始引起人们的评论，”Essa说。“很多人说他们也遇到过类似的情况。”
 
-发稿 Spirit
+事实证明，LifeLabs 与温哥华岛的许多其他企业一样，正面临劳动力短缺的问题，这导致大维多利亚地区的一些地点意外关闭。
+
+“由于 COVID-19 的影响，我们正在经历更高的退休率和更大的离职率。这造成了短缺，对当地 LifeLabs 团队产生了重大影响，并导致维多利亚地区最近计划外的关闭，”LifeLabs 在一份声明中告诉 CHEK News。
+
+劳动力短缺对 LifeLabs 造成了沉重打击，以至于该公司表示下周他们将暂时关闭大维多利亚地区的两个地点——位于 2945 Jacklin Rd 的 Westshore Town Centre在兰福德和他们在1990 Fort St Oak Bay的位置。
+
+“LifeLabs 做出了艰难的决定，从下周开始暂时关闭维多利亚的两个地点。这些地点的员工将被重新部署，以确保为我们的客户提供一致和可靠的服务，” 该公司在给 CHEK News 的声明中表示。
+
+LifeLabs 希望在 2022 年初重新开放这些地点，并表示他们正在积极招聘医学实验室助理。
+
+Essa 说她在周六收到了 LifeLabs 的道歉，并且能够在不同的地点移除她的心脏监护仪。
+
+替代 LifeLabs 的另一种选择是通过 Island Health。
+
+Reference: [https://www.cheknews.ca/lifelabs-staffing-challenges-leads-to-cancelled-appointments-sudden-closure-of-multiple-facilities-in-greater-victoria-897615/?amp%20](https://www.cheknews.ca/lifelabs-staffing-challenges-leads-to-cancelled-appointments-sudden-closure-of-multiple-facilities-in-greater-victoria-897615/?amp%20)
+
+（文章僅代表作者個人觀點）
+
+**免責聲明**：儘管作者努力揭示真相並保持信息準確性，但我們對網站，文章中引用的信息或相關圖形的完整性，準確性和可靠性不做任何形式的明示或暗示的保證。“觀點”部分中表達的所有觀點均屬於作者，并不代表任何組織或其他個人。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+
+**關注我們**
+
+Discord 賬號
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+Gettr 賬號
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

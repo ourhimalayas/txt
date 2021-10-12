@@ -2,79 +2,23 @@
 ---
 
 
-## 如果我们再不反抗政客，媒体会把全人类当成奴隶
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1590011/)
+## 蔡英文以“四个坚持”应对习近平“顺之则昌，逆之则亡”
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1590058/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/axqp9-5f9t4.jpg)
-[https://gtv.org/video/id=61656fe4d2e2b817487463ec](https://gtv.org/video/id=61656fe4d2e2b817487463ec)
+撰稿：Ermat【㊙️翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/v2-291b3e1750a48c5bd156e7d541fd1739_1440w.jpg)图片来源：zhuanlan.zhihu.com
+据自由时报10月10日报道，对于习近平于在10月9日“纪念辛亥革命110周年讲话”中对民主台湾的威胁和恫喝，蔡英文总统在10月10日的台湾国庆日上，发表了“四个坚持”予以强力回应。
 
-**郭文贵**
-**Miles Guo**
+蔡英文说：“我们必须彼此约定，永远要坚持自由民主的宪政体制，坚持中华民国与中华人民共和国互不隶属，坚持主权不容侵犯并吞，坚持中华民国台湾的前途，必须遵循全体台湾人民的意志。这四个坚持，是台湾人民给我们的底线，也是我们的最大公约数，站在公约数的共同基础之上，我们有责任累积更多的共识，以团结的姿态，来面对未来的挑战。”
 
-这个疫苗灾难，将对经济造成多大的危害
-How much harm will this vaccine disaster do to the economy？
+为凝聚人心，她还提到了奥运比赛：”在奥运比赛的过程里，台湾人民再次确立了不分彼此的共同体意识。我知道有人自认看球每看必输，于是只要台湾选手出赛，他们就不敢看转播，只能在心里默默加油。我也知道，有人在看射箭比赛的时候，紧张到心跳得比选手还快。这就是共同体。它是一条无形的线，把我们每个人牵在一起，喜怒哀乐、荣辱与共。羽球男双金牌战，当电视银幕上出现in的画面时，我相信，不少人都跟着尖叫呐喊，甚至流下了眼泪。”
 
-美国政府它现在还搞什么烂帐，什么债务，还跟共产党勾兑
-The U.S. government is still doing bad debts, debts problem, and collusion with with the Communist Party
+她还向各政党喊话：“这样的坚持，从来都不是一党一派的坚持。今天，国民党的朱立伦主席、民众党的柯文哲主席、时代力量的陈椒华主席，都在现场。各位的出席，是台湾民主美丽的风景。政党政治必定有竞争，但只要议题牵涉到国家的尊严，以及人民的未来时，我们就要团结起来，为世世代代的台湾人，守住主权，守住民主自由的生活方式。”
 
-还要挺股市，你觉得能吗？
-Do you think it still can support the stock market?
+同时，她还表达了对台湾军队坚定的信心：“我们的军队，会保护我们的家园，有灾难的时候会来救灾，当主权领土和民主自由受到威胁，也会用生命来保家卫国。”
 
-纽约派去1500个国民部队接管医院
-New York sends 1,500 national guards to take over the hospital
+最坚实盟友的背弃，周边的百万陈兵，足以将它从地球抹去的导弹，让台湾如一叶孤舟，在暴风雨中迎着雷鸣闪电独自前行。在孤独、痛苦和愤怒中，蔡总统依然发出了台湾民众的声音，如母亲一样呵护着台湾，“女子本弱，为母则刚”。尽管执政中有很多不尽如人意之处，但此时她是台湾的“脊梁”。
 
-你觉得1500人能把纽约疫苗问题解决吗？
-Do you think 1,500 people can solve the New York vaccination problem?
+参考链接：
 
-澳大利亚那个流氓政府要把所谓的联合国部队派进去
-The rogue Australia government wants to send in the so-called UN troops
-
-你能把澳大利亚人都按在地上打针吗？
-Can you put all Australians on the ground for injections
-
-你从这一系列的疯狂的行动能看出来
-You can see from this series of crazy actions
-
-就是这个世界不把共产党灭了，人类就完了
-If this world does not destroy the Communist Party, mankind will be over
-
-还有一个人类也必须付出代价，
-Another one is human beings must pay the price for this
-
-人类不付出代价, 新闻自由没了，法律独立性没了，
-Human beings don’t pay the price, the freedom of the press has gone, the independence of the law has gone
-
-政客这帮流氓，把整个全世界人民全当奴隶了
-The gang of politicians have taken the entire people of the world as slaves
-
-如果人类再不去反抗，那就是这个结局了
-If human beings don’t resist and that’s the end
-
-你觉得现在以(疫)苗灭共，七哥(说得)有道理吗？
-Do you think it makes sense to use the COVID vaccine to elimi-nate the communist party now?
-
-以苗灭共有力量吧，谁能停止这个
-It is powerful for using vaccine to eliminate the communist party, right? Who can stop it?
-
-如果不以苗灭共，你说这个人类将走向何方
-If we can’t use vaccine to eliminate the communist party, then where is humanity heading?
-
-————————————————————
-
-**原视频接:**[https://twitter.com/se1y7cblljselva/status/1447535948602896389?s=24](https://twitter.com/se1y7cblljselva/status/1447535948602896389?s=24)
-
-原视频日期：2021/10/10
-任务编号：KC162（2504）
-视频时间段 : 0:00-1:16
-Date:10/11/2021
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[國慶大會演說 蔡英文提「四個堅持」：堅持主權不容侵犯併吞](https://news.ltn.com.tw/news/politics/breakingnews/3699350)
