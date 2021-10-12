@@ -2,37 +2,57 @@
 ---
 
 
-## 加拿大卑诗省坎贝尔河男子接种新冠疫苗后突发癫痫
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1588774/)
+## 系列事实打脸福奇疫苗安全有效说
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588826/)
 
-温哥华扬帆农场 – 翻译： LuLu1312
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20211011-LuLu13121-加拿大卑诗省坎贝尔河男子接种新冠疫苗后突发癫痫.jpg)
-加拿大卑诗省坎贝尔河一名男子突发癫痫导致他在医院使用了五天的基础生命维持机器。他希望医生能找到他突发癫痫的病因。
+作者：文一
 
-Nelson的妻子因为没有收到他早上通常发的短信，于是决定午休下班回家看看他。妻子发现他躺在沙发上“抱怨整个早上感觉身体不适，家里的狗一直在向我叫，我感觉不舒服。”
 
-“……我开始含糊其词，然后在沙发上开始抽搐，” Nelson说。他记得的下一件事却是四天后在维多利亚的重症监护室醒来。
 
-“我不记得去医院，只是一切都模糊了。我什么都不记得了……”Nelson说。
 
-在医院，他被置于诱导昏迷的状态。在此期间，每次医生试图对他解除镇静时，他都开始抽搐。
 
-他接受了一系列测试——脑电图、核磁共振、脊髓液、新冠病毒——一切都正常。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-Nelson在 7 月 26 日接种了第一剂 Moderna 疫苗，就在他突发癫痫的前几天。
 
-Nelson成功从昏迷中苏醒后，他的手臂血管破裂（来自疫苗区域的血块）。他几乎无法行走，右眼下垂，身体疼痛，神经受到髋关节挤压，还有肺炎和呼吸管引起的肺部感染和膀胱感染。
 
-“我选择接种我的第一个疫苗，因为我希望生活再次尝试并尽可能正常，”Nelson说。 “我只是想为社区尽自己的一份力量，阻止病毒的传播。”
 
-Nelson说自己是一名健康的 26 岁男性，每天和他的狗一起跑 4 到 5 公里，吃得健康，不抽烟不喝酒。他不是反疫苗者，但是他觉得和大家共享他打了疫苗的简历很重要。
 
-他的家庭医生告诉他，他们对注射的情况了解得不够多。维多利亚综合医院的神经科医生 “强烈建议我不要接种第二种疫苗。”
 
-原文链接：
 
-[https://www.campbellrivermirror.com/news/medical-professionals-spend-four-days-trying-to-stop-campbell-river-mans-seizures-after-receviving-covid-19-vaccine/](https://www.campbellrivermirror.com/news/medical-professionals-spend-four-days-trying-to-stop-campbell-river-mans-seizures-after-receviving-covid-19-vaccine/)
+针对福奇鼓吹疫苗安全有效的说法，Gateway Pundit新闻网今日罗列系列事实予以抨击，力证完全接种疫苗的人比未接种疫苗的人更容易感染中共病毒。
 
-*编审：**abbs*
+英国的最新数据显示，30岁以上的每个年龄组中，接种疫苗者感染率都超过未接种疫苗者。
 
-*发布：**shuang*
+新加坡的疫苗接种率在世界排名第五，接种率超过80%，但病毒突破性感染连续四天大幅增加。至2021年10月8日，共记录了3590个新感染病例，是目前该国最高的新增病例记录。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-33.jpg)
+另外数据显示，65岁及以上的疫苗接种率高达80%，但71%的新冠病例为完全接种者。
+
+对此疾控中心主任和左派喉舌罗谢尔-瓦伦斯基博士也承认，疫苗不能防止病毒的传播。
+
+Gateway Pundit 新闻网由此尖锐指出坚决不能相信福奇所说的任何一个字。
+
+参考链接：
+[Factcheck: Dr. Fauci’s Claim that the “Highly Effective and Safe Vaccine” Prevents Individual from Getting Infected with COVID-19 is FALSE (VIDEO)](https://www.thegatewaypundit.com/2021/10/factcheck-dr-faucis-claim-highly-effective-safe-vaccine-prevents-individual-getting-infected-covid-19-false-video/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Ryan
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

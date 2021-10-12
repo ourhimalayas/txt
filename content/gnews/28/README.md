@@ -2,9 +2,11 @@
 ---
 
 
-## 律师和立法者告诉我先通过“真相工程”来曝光辉瑞
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1588462/)
+## 日元下跌至2018年底以来低位，债券市场火热
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1588543/)
 
-10/6/2021 梅丽莎·斯特里克勒：律师和立法者告诉我要相信“真相工程”并先爆料，因为如果我走律师这条路，时间不够，鉴于他们正试图尽快让孩子们接种该疫苗，我们只希望你们瑞辉能对我们透明和诚实，做正确的事。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10121-scaled.jpg)
+（文章仅代表作者个人观点，与GNEWS无关）
+*编辑：东京樱花团/简报小组*
+*发布：东京樱花团 /平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

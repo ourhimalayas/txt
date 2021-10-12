@@ -2,31 +2,27 @@
 ---
 
 
-## 郭文贵Gettr直播摘要和音频 2021.10.11
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1588557/)
+## 中共国垃圾债券市场出现大量抛售
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1588588/)
 
-摘要撰稿人：文俊
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-音频提供者：左媛
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/text-SC-10.png)
+文章仅代表作者本人观点，与Gnews无关
 
+视频参看： 2021.10.11晚GTV新闻访谈
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-11-at-10.05.43-PM.png)
+[https://gtv.org/broadcast/watch/6164d6af304e992109b3b26c](https://gtv.org/broadcast/watch/6164d6af304e992109b3b26c)
 
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-### 视频：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
 
-[视频链接](https://gettr.com/streaming/pduj7df2ed)
-
-### 音频：
-
-### 摘要：
-
-1. 95%打台湾，一定是冠冕堂皇的理由
-2. 关于台湾人到哪去，每个人情况都不同，根据自己情况而定，能离开，离开最好
-3. 手机直播大概还需要两周时间
-4. 这几天增加投资太多了，有农场请找农场，农场帮助战友，真战友一个都不要拉下
-5. 山西水灾很严重，疫苗第三针很严重，银行烂帐很严重，房地产很严重
-6. 郭树清消烂帐，不是消老百姓烂帐，消海航王岐山的烂帐，那是他哥们
-7. 德州州长是下个总统的热门人选啊
-8. 未来认证的大V在盖特都可以直播
-9. 今天试直播就到这里，很多大事搂住，大直播再说
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

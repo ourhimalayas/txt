@@ -2,40 +2,23 @@
 ---
 
 
-## 印尼政府批准用伊维菌素治疗COVID-19后，病例急剧下降
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1588214/)
+## 加拿大疫情趋缓但经济正在恶化
+` 军迷wilson` [轉載自GNews](https://gnews.org/zh-hans/1588292/)
 
-**据《网关专家》作者：Jim Hoft，2021年10月9日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/a3pbr-n5ovj.jpg)图片来源：《网关专家》
-2021年7月，印度尼西亚食品和药品监督局（BPOM）最终批准了伊维菌素作为治疗药物的紧急使用授权，以治疗Covid-19。
+#### 加拿大多伦多枫叶农场 军迷Wilson
+![](https://assets.gnews.org/wp-content/uploads/2021/10/加拿大-济-67758658-1.jpeg)图片来源于网络
+即使中共病毒疫情在去年夏天就已经开始趋缓，但加拿大的经济复苏之路却越走越艰难。据加拿大统计局8月 31日的报告，2021 年第二季度加拿大GDP呈下降趋势，仅在 4 月至 6 月的三个月内就萎缩了 0.3%，和2020 年 2 月疫情爆发前相比仍然低约 1.5%。
 
-据官员称，这是由于当时该国的“最糟糕”的流行病。
+造成这种现象的主要原因，一是中共病毒疫情破坏了全球供应链，比如汽车整车和零部件生产是加拿大的支柱产业之一，今年第二季度加拿大出口的汽车比疫情最为严重的去年同期下降 18.9%，到8月份时下降至38%，要知道去年加拿大的年化GDP是负5.4%。全球性的芯片短缺是汽车厂家被迫减产的首要原因，和汽车制造业相关的众多上下游产业将因此备受打击，导致更多的产业工人失业。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/截屏2021-10-11-下午7.49.54.png)图片来源于维基百科
+二是加拿大的通胀率已经创20年来新高，通胀会稀释居民手中的购买力，再加上失业增加和政府停止疫情补贴，民众更加悲观，钱包就会被捂得更紧，其后果是社会总体消费水平大幅下降，制造业陷入破产潮，国家税源萎缩，政府只能加大印钞力度维持政权运转，货币超发又推高通胀和打击实业，整个国家就会陷入恶性循环的怪圈，最后很难逃脱经济大崩盘的结局。这就是当前加拿大乃至世界各国面临的巨大挑战，而这一切灾难的罪魁祸首就是中国共产党。
 
-印度尼西亚在7月经历了COVID-19感染和死亡的高峰。由于人口众多，它正在努力减缓病毒的传播。印度尼西亚被列为世界第四大人口大国。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/gjujhj.jpg)图片来源：《网关专家》
-政府实施了一些紧急措施以减缓病毒的传播，其措施之一是授权使用伊维菌素作为COVID-19的治疗手段。
+参考来源：
 
-《海峡时报》报道，印度尼西亚政府周四（7月15日）开始向高危地区自我隔离的Covid-19患者免费发放药品和维生素，因为具有高度传播性的德尔塔（Delta）冠状病毒变体持续在该国肆虐，清空了药店的货架。
+[Why Canadian auto production is getting hit especially hard](https://www.theglobeandmail.com/business/article-vehicle-production-is-plunging-worldwide-its-especially-severe-in/)
 
-每个包裹里有用量七天的治疗性Covid-19药物和维生素，并提供给无症状的病人以及那些有轻度至中度症状包括发烧和干咳的病人。后一类人的药物需要咨询医生并要有处方。
+[加拿大第二季度国内生产总值萎缩 0.3%](https://ici.radio-canada.ca/rci/zh-hans/%E6%96%B0%E9%97%BB/1820588/%E5%8A%A0%E6%8B%BF%E5%A4%A7%E7%AC%AC%E4%BA%8C%E5%AD%A3%E5%BA%A6%E5%9B%BD%E5%86%85%E7%94%9F%E4%BA%A7%E6%80%BB%E5%80%BC%E8%90%8E%E7%BC%A9-0-3-)
 
-医疗设施捉襟见肘，对氧气和药物的需求也激增。由于数十人在家中自我隔离和自我治疗，药店和网上的药品价格已经飙升。此后，卫生部已采取行动，对诸如法匹拉韦、瑞德西韦和伊维菌素等药物的价格设定上限。
+[8 月通货膨胀率飙升至 4.1%，为 2003 年以来最高水平](https://ici.radio-canada.ca/rci/zh-hans/%E6%96%B0%E9%97%BB/1824382/8-%E6%9C%88%E9%80%9A%E8%B4%A7%E8%86%A8%E8%83%80%E7%8E%87%E9%A3%99%E5%8D%87%E8%87%B3-4-1-%E4%B8%BA-2003-%E5%B9%B4%E4%BB%A5%E6%9D%A5%E6%9C%80%E9%AB%98%E6%B0%B4%E5%B9%B3)
 
-路透社报道，印度尼西亚的食品和药物管理机构已经授权伊维菌素紧急用于防治Covid-19，尽管世界卫生组织以及欧洲和美国的监管机构不建议将其用于Covid-19患者。
-
-在政府授权对COVID-19患者使用伊维菌素后，自7月以来，病例数量明显骤减。
-
-下面的数据证明，尽管疫苗接种率很低，但伊维菌素对COVID-19病例的急剧下降起到了作用。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/6yh.jpg)图片来源：《网关专家》
-截至10月8日，只有20.5%的人完全接种了疫苗，35.9%的人接种了第一针。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-45.jpg)图片来源：《网关专家》
-**原文连接：**[https://www.thegatewaypundit.com/2021/10/amazing-covid-19-cases-indonesia-plunge-government-authorizes-ivermectin-treatment/](https://www.thegatewaypundit.com/2021/10/amazing-covid-19-cases-indonesia-plunge-government-authorizes-ivermectin-treatment/)
-
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+（文章仅代表作者观点，与GNEWS无关）

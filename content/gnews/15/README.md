@@ -2,23 +2,46 @@
 ---
 
 
-## 摩根大通CEO直言比特币“毫无价值”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1588631/)
+## 英国媒体转向：接种两剂疫苗的人实际上感染的是Covid-19
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1588671/)
 
-俄罗斯莫斯科喀秋莎农场   DongDong
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/D.jpg)marketscreener.com
-据路透社报道，周一（10 月 11 日）摩根大通 CEO 杰米·戴蒙 (Jamie Dimon) 在某个会议上公开表示，他认为“比特币毫无价值，并且必须被政府监管”。比特币大量用于暗网洗钱和黑市非法交易，给各国政府打击非法犯罪活动带来了巨大困难。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Alarming-gap-in-global-response-to-COVID-19.jpg)
 
-戴蒙在国际金融协会（Institute of International Finance）的例行会议上表示，“不论人们如何看待比特币，政府都会对它进行监管。政府会出于反洗钱、银行保密法和税收目的对比特币的交易进行监管。”
 
-戴蒙周一的言论并未影响到周二比特币的市值（如图 1 所示）。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/B.png)图1 周二（10 月 12日）Coinbase 实时显示比特币的价格已达到 57,000美元
-截止亚洲时间周二（10 月 12 日），比特币已经达到57000美元，而且有继续上涨的趋势，接近历史高点约 60,000 美元。事实上，比特币是世界上最受欢迎的加密货币，目前市值超过 1 万亿美元。与其他一些加密货币不同，最终流通的比特币数量是有上限的。
+图片来源：iru.org
 
-尽管大多数人都认为比特币的价值正是它“只有 2100 万个的稀缺性”，但戴蒙表示：“我要挑战另一件事，你怎么知道最后是2100万枚？你们都看过算法了吗？你们都相信吗？我不知道，我一直对这类事情持怀疑态度。”
+整理报道：小红帽
 
-参考链接：
+**近日英国媒体转向，引起了公众混乱。媒体现在声称，遭受严重感冒并 “已接种两剂疫苗 “的英国人实际上是感染了中共病毒（COVID-19）。**
 
-[JPMorgan’s Dimon blasts bitcoin as ‘worthless’, due for regulation – Reuters – 10/12/2021](https://www.reuters.com/business/jpmorgans-dimon-blasts-bitcoin-worthless-due-regulation-2021-10-11/)
+英国最大的报纸之一《每日镜报》报道说：“患有严重感冒的英国人可能会在不知不觉的情况下感染了中共病毒，这可能使病毒继续传播。”
+
+显然，那些报告遭受“有史以来最严重感冒”的人并不是因为社交距离和戴口罩导致免疫力降低，而是因为他们实际上感染了中共病毒。
+
+**这份报告令人困惑，因为它把普通感冒的症状与中共病毒等同起来。当****“****阴谋论者****”****说**** ****中共病毒只是流感时，他们受到诋毁，但显然媒体和政府专家做这种事是可以的。**
+
+其次，如果情况属实，该报告再次强调，**那些被****“****注射两剂中共病毒疫苗****”****的人仍感染**** ****中共病毒，并患有使人虚弱的疾病，这证明中共病毒疫苗几乎毫无作用。**
+
+然而，这个故事背后最可能的解释是，英国当局正在准备再次封锁，将普通感冒和流感病例标记为中共病毒，这样他们就可以在进入冬天时增加感染人数并制造更多歇斯底里。
+
+正如我们之前强调的那样，英国卫生当局在2月份荒谬地断言，到目前为止，2021 年没有记录到一例流感病例。
+
+然后利用这一点，认为口罩是流感完全消失的原因，并认为应该重新引入对口罩的强制要求。
+
+实际上，正如顶级流行病学家克努特·维特考斯基（Knut Wittkowski）所断言的那样，流感病例的大幅下降可能是由于许多人被错误地算作中共病毒病例。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Media Now Claims That “Double Jabbed” Brits Who Have Bad Colds Are Actually Suffering From COVID – Summit News](https://summit.news/2021/10/11/media-now-claims-that-double-jabbed-brits-who-have-bad-colds-are-actually-suffering-from-covid/)
+
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

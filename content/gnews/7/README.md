@@ -2,40 +2,21 @@
 ---
 
 
-## 卢比奥力赞台湾人民国际精神 谴责中共入侵
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588688/)
+## 秘翻在线：美国众多议员及工作人员和家人服用伊维菌素治愈中共病毒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1588766/)
 
-作者：禹水沃土/晓仙女
+#### 撰稿：彩虹
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-26.jpg)图片来源：国会山报
+10月11日，《新闻极限》(Newsmax)引用《国会山报》的文章，报道正在竞选德克萨斯州的前共和党佛罗里达州议员艾伦·韦斯特（Allen West）周末说，他和她的妻子安吉拉·韦斯特（Angela West）因为患有中共病毒而住院，目前正在接受治疗。
 
+韦斯特是一名退休的美国陆军中校，曾担任佛罗里达州第22国会区的议员，并在2020年至2021年期间担任德克萨斯州共和党主席。
 
+文章说，韦斯特没有接种过中共病毒疫苗，其妻子接种了中共病毒疫苗。但是，韦斯特在推特（TWITTER）上说，他正在服用伊维菌素和羟氯喹作为治疗的一部分。
 
+报道披露，埃尔·科里（Pierre Kory）是一名医学博士，努力推广中共病毒的替代疗法，他说：“有趣的事实是，在过去15个月里，有100-200名美国国会议员（加上他们的许多工作人员和家庭成员）被一位同事用伊维菌素和I-MASK方案进行治疗，没有一例严重到住院。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+**新闻来源**
 
-
-
-
-
-台湾成立110周年之际，美国资深参议员 马可·卢比奥，谴责北京入侵台湾领空，并就两国关系发表了声明，对台湾多加赞赏。卢比奥称，即使在最困难的地缘政治环境下，台湾保持充满活力的民主，为世界经济提供动力，并表示对持久友谊和进一步加强两国关系的期望。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture55.jpg)
-去年疫情爆发后，中共在各地买断并囤积防护用品，导致个人防护品严重缺乏，而台湾鼎力援助，对国际社会慷慨捐赠，让美国更加意识到台湾参与国际事务的重要性。 虽然中共持续压缩台湾的国际空间，8月6日，美 国会参议院以“一致同意”的方式，通过 力挺台湾参与世界卫生组织的法案。
-
-虽然瑞士会谈，拜登对台湾问题跟中共国达成了利益勾兑，而此时卢比奥的声明，显得尤为可贵。在台湾生死存亡之际，每一个正义的呼声都很重要，希望更多的力量能够凝聚起来，守护台湾的民主和国家主权。
-
-（本文仅代表作者观点）
-
-参考链接：[卢比奥力赞台湾人民国际精神 谴责中共入侵](https://www.rubio.senate.gov/public/index.cfm/2021/10/rubio-commemorates-anniversary-of-taiwan-s-national-day)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
-
-新闻访谈终审：暗黑
-编辑/校对/审核：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+[Allen West Taking Ivermectin for COVID-19 Treatment](https://www.newsmax.com/newsfront/ivermectin-allenwest-texas-governor/2021/10/11/id/1040074/)

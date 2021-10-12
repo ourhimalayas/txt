@@ -2,30 +2,30 @@
 ---
 
 
-## 日本“贫穷”的现状
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1588662/)
+## 中共国军方发布抢滩登陆实战演练视频
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588686/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-212.png)[图片来源](https://news.yahoo.co.jp/byline/nakaokanozomu/20210222-00223854)
-日本周刊现代称，“如果你从‘普通’大学毕业，找了一份‘普通’的工作，结婚并有了两个孩子，买了房子，这样也能生活到老”，这在过去日本是理所当然的。
+作者：文一
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+【路透社】10 月 11 日消息，中共军方周一表示，在与台湾隔海相望的省份进行了抢滩登陆和突击演习。中共方视频消息声称，演习是 “最近几天 “在福建省南部地区进行的，视频中士兵演习内容包括乘坐小船冲进海滩，投掷烟雾弹，冲破铁丝网，在沙地上挖掘战壕等。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture33-2.jpg)
+此前，中共国经常在其沿海地区和有争议的南中国海进行军事演习。 台湾谴责中共政府对其采取的胁迫性策略，并表示如果受到攻击，将进行自卫反击。
 
-然而近几年情况变了，根据厚生劳动省的”国民生活基础调查”，日本的平均年收为552.3万日元，中位数为437万日元。此外，低于平均年收的家庭占61.1%。年收入437万日元，养活四口之家是相当困难。对于20至30岁的年轻人来说，月收入（除非是大公司）为24万日元（税后不到20万日元），奖金约为2个月，年收入约为320万日元。许多人不能独自生活，选择住在父母家。午餐基本上是500日元左右，衣服是优衣库，有时甚至觉得很贵。
+（本文仅代表作者观点）
 
-近两年受中共病毒的影响，这样的情况还在恶化，截至2021年10月11日16时，日本全国已确认受中共病毒影响的破产案件2179起，1亿日元以下的小规模破产案件占1266起（占总数的58.1%），而负债100亿日元以上的大型破产案件占5起（占0.2%），经济受到了重创。在这两千多起破产案件中，2021年就占了61.3%，且并未出现好转，预计随着病毒和疫苗灾难的持续，破产会进一步加剧。
+参考链接：
+1. [中共国军方发布抢滩登陆实战演练视频](https://www.dw.com/zh/%E5%8F%B0%E6%B5%B7%E5%B1%80%E5%8A%BF%E4%B8%AD%E5%9B%BD%E5%86%9B%E6%96%B9%E5%8F%91%E5%B8%83%E6%8A%A2%E6%BB%A9%E7%99%BB%E9%99%86%E5%AE%9E%E6%88%98%E6%BC%94%E7%BB%83%E8%A7%86%E9%A2%91/a-59472142)
+2. [中共国军方发布抢滩登陆实战演练视频](https://www.reuters.com/world/asia-pacific/china-says-it-carried-out-beach-landing-drills-province-opposite-taiwan-2021-10-11/)
 
-作为弱势群体的女性和未成年人的情况也不乐观，新闻报道，由于中共病毒的影响，日本“单身女性每3人就有1人”，“50%的单身妈妈”，“未满18岁每7人就有1人”处于贫困状态。（这里指相对贫困，两人的家庭，年收入低于122万日元，四口之家低于250万日元）近年来，女大学生的情况尤其严重，为了生活，很多女大学生从事风俗行业。
+![This image has an empty alt attribute; its file name is M10-4.png](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
-郭先生提到，严重的老龄化的日本，养老金被掏空，更可怕的是，中共的地方债隐形债务也将掏空日本金融系统40%的钱。
+新闻访谈终审：Q大哥
+编辑/校对/审核：Hetangyuese
 
-信息来源：
-
-[“貧困大国”日本の現実　子供が大学生になった瞬間にカラダを売る国](https://news.yahoo.co.jp/articles/4c2068145535ef40b3c1de833ee677321609c68e)
-
-[2021年の件数が全体の6割を占める～新型コロナ関連倒産は2179件～](https://news.yahoo.co.jp/articles/6f0702368c20e374f6e8eacf7e002bd7b46f69a5)
-
-[「普通」の正社員でも貧困？年収320万のリアルなお財布事情](https://news.yahoo.co.jp/articles/15d3d1cd0a4ae2f2911a0eccf44f9fbeeafd0a3a?page=1)
-
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

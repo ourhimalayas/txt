@@ -2,30 +2,45 @@
 ---
 
 
-## 中共国军方发布抢滩登陆实战演练视频
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588686/)
+## 接种率最高的马塞诸塞州，“突破性感染”病例持续高位
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1588703/)
 
-作者：文一
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
-【路透社】10 月 11 日消息，中共军方周一表示，在与台湾隔海相望的省份进行了抢滩登陆和突击演习。中共方视频消息声称，演习是 “最近几天 “在福建省南部地区进行的，视频中士兵演习内容包括乘坐小船冲进海滩，投掷烟雾弹，冲破铁丝网，在沙地上挖掘战壕等。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture33-2.jpg)
-此前，中共国经常在其沿海地区和有争议的南中国海进行军事演习。 台湾谴责中共政府对其采取的胁迫性策略，并表示如果受到攻击，将进行自卫反击。
+#### **翻译：月映万川**
 
-（本文仅代表作者观点）
+#### **编辑：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/麻州.jpg)
+图片来源：墨尔本雅典娜农场设计组（姐夫说说）
+**译评：**
+在疫苗危机不断爆发的当下，美国疫苗接种率最高的马塞诸塞州（68.5%），自八月以来持续出现“突破性病例”，对此，主流媒体一如既往地歪曲报道。基于目前新闻给出的数据，疫苗完全接种者依然能够感染病毒，并且也会出现重症或者死亡，而且这样的数字还在不断增加。在这样的铁的证据面前，这则新闻居然用错乱的逻辑得出结论：出现接种者感染病例是因为未接种者感染病毒后传染给接种者照成的。
+主流媒体引用的一些专业人士的评述，一概笼统地认为，导致“突破性感染”是因为未接种者感染了接种者，并没有触及接种者依然会感染病毒并死亡的深层因素。我们可以推理，由于目前观测样本的时间过短，尚不能完全呈现出疫苗危机的全貌。如果在疫苗高接种率的国家和地区，在一段时间内依旧有“突破性”感染，那可能是偶然性问题，因为理论上‘疫苗’的保护不是100%。那么，如果再有6个月的时间，“突破性”感染的案例依然高居不下，这些主流媒体们是否承认，人类正面临着生死存亡的“疫苗危机”？
 
+**译文：**
+根据最新的10月5日的“突破性”感染案例的数据，马塞诸塞州目前有40000多例完全接种疫苗感染者，而其中有300例死亡病例。
+公共卫生部目前已经追踪到有40464例完全接种疫苗后的感染病例。
+“突破性”感染病例目前只占4百八十万完全接种者的0.87%，而死亡病例甚至于占比更小，仅为0.006%。
+在上周，全州共发现有3741例“突破性”感染病例。卫生部官员宣称，这其中的125例病例在住院治疗。总体来看，仅有0.03%的接种疫苗者会被送到医院治疗。
+自7月31日卫生部宣布有7737例“突破性”感染病例以来，新增“突破性”病例每周都在攀升，仅上周的数据比在其前一周的案例有所下降。以下的数据快速总结了过去两个月来“突破性”案例的分布情况（数据日期为当周的截止日与对应数据）。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1111-4.png)
+图片来源：根据马塞诸塞州卫生部通报数据绘制
+每周的数据都在恶化，波士顿地区的医生们仍未没有失去对疫苗有效性的信心。
+“在未接种人群中不断扩散的德尔塔和其它变种病毒是对接种人群最大的挑战”，布瑞汉姆女子医院的传染病科的首席医生丹尼尔·库茨克解释道：“是他们造成了大规模感染，也是这些‘突破性’案例的所在。”
+根据周二的公共卫生部的数据，自大流行以来，全州累计病例有763859，死亡病例为18293。
+无论是在马塞诸塞州还是全国来看，由于新的变种病毒像德尔塔具有高传染性，这导致总体感染病例都在不断升高，而增加数字也存在于千万接种者群体。但是，本地健康专家还是不断强调，如果“罕见的突破性”感染发生的话，疫苗可以降低死亡和重症率。
+库茨克说，他们已经预见到了一些发生在本州的“突破性”感染案例，但是，重点是这些数字还是比较低的。
+“如果全州大多数人已经完全接种疫苗后，如果仍有感染发生，那么肯定会有完全接种者感染，而这些案例仅仅是巨大接种人口的很小一部分，因为大多数人还是得到高度保护的。上述这种情况是可以预见到的。”他说。
+塔夫茨医疗中心的希瑞·道伦医生也说：“我们要专注于消除错误信息，真的需要把疫苗送到那些想要疫苗却得不到的人手中，因为这将会是下一个变种病毒出现的地方。”
+（本文仅代表作者个人观点，与Gnews平台无关）
 参考链接：
-1. [中共国军方发布抢滩登陆实战演练视频](https://www.dw.com/zh/%E5%8F%B0%E6%B5%B7%E5%B1%80%E5%8A%BF%E4%B8%AD%E5%9B%BD%E5%86%9B%E6%96%B9%E5%8F%91%E5%B8%83%E6%8A%A2%E6%BB%A9%E7%99%BB%E9%99%86%E5%AE%9E%E6%88%98%E6%BC%94%E7%BB%83%E8%A7%86%E9%A2%91/a-59472142)
-2. [中共国军方发布抢滩登陆实战演练视频](https://www.reuters.com/world/asia-pacific/china-says-it-carried-out-beach-landing-drills-province-opposite-taiwan-2021-10-11/)
 
-![This image has an empty alt attribute; its file name is M10-4.png](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+1、[Breakthrough COVID Cases in Massachusetts Top 40,000 – NBC Boston](https://www.nbcboston.com/news/local/heres-how-many-breakthrough-covid-cases-have-been-reported-in-mass-each-week-since-august/2509586/)
 
-新闻访谈终审：Q大哥
-编辑/校对/审核：Hetangyuese
+**2****、**[Coronavirus (COVID-19) Vaccinations – Statistics and Research – Our World in Data](https://ourworldindata.org/covid-vaccinations?country=USA)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+**发布：文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
