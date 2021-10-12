@@ -2,57 +2,18 @@
 ---
 
 
-## 系列事实打脸福奇疫苗安全有效说
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588826/)
+## 2名儿童被“意外”注射中共病毒疫苗后出现心脏病迹象
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1588848/)
 
-作者：文一
+#### 编译：沙子最怕你不理它
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-50.jpg)图片来源：网络截图
+据 Red Voice Media 10月10日报道，印第安纳州埃文斯维尔的2名儿童原计划在Walgrees药房注射流感疫苗，却被“意外”注射了中共病毒疫苗，随后他们的心脏出现了问题。虽然所有疫苗上都有标签，但这不是Walgreens第一次“犯错”。
 
+10月4日，埃文斯维尔的一家四口——两位成年人和两名儿童——前往约瑟夫大道上的Walgreens药房准备注射流感疫苗。但他们被“意外”注射了全剂量的辉瑞中共病毒疫苗，而不是流感疫苗。
 
+两名儿童的年龄太小，并不适合注射辉瑞或任何其他中共病毒疫苗。Walgreens给出的疫苗接种卡显示，2016年和2017年出生的儿童接种了辉瑞中共病毒疫苗。
 
+这家人说，他们离开药房时以为自己打了流感疫苗，但药房的一名员工后来打电话给他们，说他们犯了一个错误。此后，这家人被儿科心脏病学家告知两名儿童都有心脏病的迹象。Walgreens并未对此事做出解释。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
-
-
-
-
-
-
-
-针对福奇鼓吹疫苗安全有效的说法，Gateway Pundit新闻网今日罗列系列事实予以抨击，力证完全接种疫苗的人比未接种疫苗的人更容易感染中共病毒。
-
-英国的最新数据显示，30岁以上的每个年龄组中，接种疫苗者感染率都超过未接种疫苗者。
-
-新加坡的疫苗接种率在世界排名第五，接种率超过80%，但病毒突破性感染连续四天大幅增加。至2021年10月8日，共记录了3590个新感染病例，是目前该国最高的新增病例记录。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-33.jpg)
-另外数据显示，65岁及以上的疫苗接种率高达80%，但71%的新冠病例为完全接种者。
-
-对此疾控中心主任和左派喉舌罗谢尔-瓦伦斯基博士也承认，疫苗不能防止病毒的传播。
-
-Gateway Pundit 新闻网由此尖锐指出坚决不能相信福奇所说的任何一个字。
-
-参考链接：
-[Factcheck: Dr. Fauci’s Claim that the “Highly Effective and Safe Vaccine” Prevents Individual from Getting Infected with COVID-19 is FALSE (VIDEO)](https://www.thegatewaypundit.com/2021/10/factcheck-dr-faucis-claim-highly-effective-safe-vaccine-prevents-individual-getting-infected-covid-19-false-video/)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：Ryan
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+新闻来源：[2 Young Kids Given COVID Vax Instead Of Flu Shots ‘Accidentally’ At Walgreens Now Suffering Heart Issues](https://www.redvoicemedia.com/2021/10/2-young-kids-given-covid-vax-instead-of-flu-shots-accidentally-at-walgreens-now-suffering-heart-issues/)

@@ -2,10 +2,10 @@
 ---
 
 
-## 破除科学界的“权威”迷信，越来越多医务人员挺身而出揭露真相
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588794/)
+## 系列事实打脸福奇疫苗安全有效说
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588826/)
 
-作者：晓仙女
+作者：文一
 
 
 
@@ -19,20 +19,20 @@
 
 
 
-近日，美国印第安纳州学校董事会，一位功能性家庭医学医生的演讲表示：他认为国家卫生局疾病控制中心提出的理论，跟科学规则是相违背的。
+针对福奇鼓吹疫苗安全有效的说法，Gateway Pundit新闻网今日罗列系列事实予以抨击，力证完全接种疫苗的人比未接种疫苗的人更容易感染中共病毒。
 
-他提出两个重要观点：
+英国的最新数据显示，30岁以上的每个年龄组中，接种疫苗者感染率都超过未接种疫苗者。
 
-一、中共病毒和其它呼吸道病毒一样，一年四季都会存在，并不会消失。
+新加坡的疫苗接种率在世界排名第五，接种率超过80%，但病毒突破性感染连续四天大幅增加。至2021年10月8日，共记录了3590个新感染病例，是目前该国最高的新增病例记录。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-33.jpg)
+另外数据显示，65岁及以上的疫苗接种率高达80%，但71%的新冠病例为完全接种者。
 
-二、SARS爆发时，所有疫苗的动物实验都失败了，实际上呼吸道病毒无法研究出疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-48.jpg)
-这位医生还说：他用补充维生素D、伊维菌素和锌，治疗了15名新冠患者，死亡风险可以下降到目前美国水平的四分之一。
+对此疾控中心主任和左派喉舌罗谢尔-瓦伦斯基博士也承认，疫苗不能防止病毒的传播。
 
-越来越多的事实证明，新冠疫苗无效且有毒，而爆料革命一直传播的羟氯喹、伊维菌素、青蒿素等药物，才能在人类生死存亡阶段，真正起到扭转乾坤的作用！
+Gateway Pundit 新闻网由此尖锐指出坚决不能相信福奇所说的任何一个字。
 
-参考链接:
-[@MilesGuoLive盖特：#1010文贵大直播 精品小視頻 以科學方法破除新冠疫苗的迷思 #疫苗真相 澳洲墨尔本澳洲雅典娜農場（#澳雅农场）出品](https://gettr.com/post/pdtcblb724)
+参考链接：
+[Factcheck: Dr. Fauci’s Claim that the “Highly Effective and Safe Vaccine” Prevents Individual from Getting Infected with COVID-19 is FALSE (VIDEO)](https://www.thegatewaypundit.com/2021/10/factcheck-dr-faucis-claim-highly-effective-safe-vaccine-prevents-individual-getting-infected-covid-19-false-video/)
 
 （本文仅代表作者观点）
 

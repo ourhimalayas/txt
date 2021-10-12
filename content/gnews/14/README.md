@@ -2,23 +2,57 @@
 ---
 
 
-## 秘翻在线：台湾拥有核武器？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1588770/)
+## 破除科学界的“权威”迷信，越来越多医务人员挺身而出揭露真相
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588794/)
 
-#### 撰稿：彩虹
+作者：晓仙女
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-2-6.jpg)图片来源：红板报
-10月11日，《新闻极限》(Newsmax)记者玛丽莎·赫尔曼（Marisa Herman）发布文章，围绕中共是否对台湾入侵的相关问题做了梳理，其中提到说台湾早已拥有了核武器装置。
 
-文章报道，对于中共会不会入侵台湾。中国问题专家章家敦（Gordon Chang）说：“如果你告诉我第三次世界大战下周开始，我不会惊讶。如果你告诉我什么也不会发生，我也不会惊讶。中共发誓要统一台湾的言论并不是空洞的威胁，但目前还不清楚中共是否会通过一场灾难性的军事行动来达成这个目的。”
 
-而传统基金会（Heritage Foundation）高级研究员、美国空军老兵约翰·维纳布尔（John Venable）指出，中共国在10月4日派出创纪录的65架战机，“基本上具备了对一个地区或区域进行全面攻击所需的一切。”
 
-文章特别报道，虽然台湾早已经实行了几项发展大规模杀伤性武器的计划，但从来没有公开承认自己拥有这种（核）装置。据报道，在中共国于1964年进行第一次核试验后，台湾开始致力于制造核武器。尽管报道说台湾在20世纪70年代为该计划生产了钚，但官方的说法是，美国最终迫使台北在1976年正式停止了这项研究。而其他报告显示，（台湾）核研究一直秘密进行到1980年代。
 
-尽管如此，许多人认为台湾已经悄悄地建立了战术核弹头的储备，如果使用，将使中共国遭受重击，并能有助击退中共人民解放军的海路入侵。已故的中子弹之父萨姆·科恩（Samuel T. Cohen）告诉记者，台湾有这种武器的储备，他曾亲自向台湾军事人员介绍过这些武器的使用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-**新闻来源**
 
-[China’s Big Problem: Taiwan Likely Has Nuclear Weapons](https://www.newsmax.com/newsfront/china-taiwan-nuclear-weapons/2021/10/11/id/1040003/)
+
+
+
+
+
+近日，美国印第安纳州学校董事会，一位功能性家庭医学医生的演讲表示：他认为国家卫生局疾病控制中心提出的理论，跟科学规则是相违背的。
+
+他提出两个重要观点：
+
+一、中共病毒和其它呼吸道病毒一样，一年四季都会存在，并不会消失。
+
+二、SARS爆发时，所有疫苗的动物实验都失败了，实际上呼吸道病毒无法研究出疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-48.jpg)
+这位医生还说：他用补充维生素D、伊维菌素和锌，治疗了15名新冠患者，死亡风险可以下降到目前美国水平的四分之一。
+
+越来越多的事实证明，新冠疫苗无效且有毒，而爆料革命一直传播的羟氯喹、伊维菌素、青蒿素等药物，才能在人类生死存亡阶段，真正起到扭转乾坤的作用！
+
+参考链接:
+[@MilesGuoLive盖特：#1010文贵大直播 精品小視頻 以科學方法破除新冠疫苗的迷思 #疫苗真相 澳洲墨尔本澳洲雅典娜農場（#澳雅农场）出品](https://gettr.com/post/pdtcblb724)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Ryan
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

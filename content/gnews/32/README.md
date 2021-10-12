@@ -2,19 +2,33 @@
 ---
 
 
-## 中共病毒疫苗破坏了免疫系统防卫病毒和肿瘤侵袭的功能
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1588564/)
+## 沃尔玛突宣：全球供应商业务部从中共国搬到印度
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1588574/)
 
-#### 翻译：奮鬥
-校对：枳实
+![](https://assets.gnews.org/wp-content/uploads/2021/10/下载-3.jpg)
+据中国零售信息2021年10月11日报道，10月9日沃尔玛突然宣布，将其全球供应商业务总部从中共国搬到印度。
 
-Nathan Thompson博士分析比较了疫苗接种者接种前，接种第一次和第二次的验血结果，包括基本的白细胞计数和免疫细胞组套检查，提示疫苗接种造成了严重的自身免疫，并大幅度削弱了机体免疫系统对抗病毒感染和清除肿瘤细胞的能力。
+沃尔玛1996年在中共国深圳开设了第一家沃尔玛门店。沃尔玛目前在全国100多个城市设有400多家商场、20多家家配送中心。但从2016年到2020年，沃尔玛在国内关闭了80家门店；2021年以来，其关店数量已经达到两位数。
 
-原视频链接：[My Jaw DROPPED when I Tested Someone’s Immune System After the 2nd Jab](https://www.bitchute.com/video/hvAmgMyA11kO/)
+沃尔玛此次搬迁，正是中共国本土超市崛起，外资商超没落的结果。沃尔玛数次被曝销售过期食品，使得消费者对其产生了信任危机。2018年，沃尔玛尝试过社区店，相当于“开在居民家门口的沃尔玛”。但同时各社区团购、生鲜电商企业的竞争，也抬高了社区店的成本。“沃尔玛社区店”微信公众号，自2020年10月30日起再没更新过任何内容。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+但与此形成反差的是，山姆会员店仍在扩张。今年8月，山姆会员店号称“亚洲最大的旗舰店”在上海开业。山姆会员店25年在中共国总共开出30多家门店。但直到2021年，沃尔玛才开始从官方层面表示要加速扩张。
+
+沃尔玛入华25个年头，官方评价说消费者已经感受不到新鲜感，中共国不缺“新物种”。但这也是全球脱钩、外资撤离中共国的一个信号。无独有偶，类似家乐福、麦德龙也正在退出中共国市场。
+
+新闻参考链接：[https://c.m.163.com/news/a/GM05S4GT05445BQZ.html?spss=newsapp](https://c.m.163.com/news/a/GM05S4GT05445BQZ.html?spss=newsapp)
+
+编辑：胖丁
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
