@@ -2,44 +2,43 @@
 ---
 
 
-## 西南航空公司在飞行员反对强制疫苗接种后以“恶劣天气”为由取消了1,800班次航班
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1587898/)
+## 尽管存在安全问题，默克公司要求FDA紧急批准COVID新药
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1587918/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/c1_2190995-19.jpg)斯科特-奥尔森/盖蒂图片社
+作者：纽约香草山农场 – 四季
 
-**摘要翻译：**
-
-就在西南飞行员工会要求联邦法官阻止该公司强制疫苗接种的两天后，该航空公司本周末以恶劣天气为由取消了1,800班次航班。
-
-丹佛的气象学家克里斯·比安奇 (Chris Bianchi) 告诉 CNBC，他没有看到会导致大规模航班延误的那种恶劣天气。“根据我所看到的，昨天或今天似乎没有任何会严重影响西南航空运营的恶劣天气，”他说。
-
-据彭博社报道，周五西南航空公司飞行员协会 (SWAPA) 提起诉讼，要求联邦法官“在有关涉嫌违反美国劳动法的现有诉讼得到解决之前，暂时阻止该公司进行联邦政府规定的新冠病毒疫苗接种”。
-
-法律文件称：“新的疫苗授权非法强加了新的就业条件，新政策威胁要终止在 2021年 12月8日之前未完全接种疫苗的飞行员（的合同）。” “西南航空公司对双方集体谈判协议的新增单方面修改明显违反了铁路劳工法（RLA）。”
-
-西南航空公司表示，它不同意西南航空公司飞行员协会的“声称过去几个月与新冠病毒相关的任何变化都需要谈判”，并补充说，该公司将继续与工会合作，并不断“应对持续的大流行带来的挑战”。
-
-西南航空公司飞行员协会代表近10,000名飞行员。
-
-尽管取消的时机很特殊，但西南航空公司飞行员协会的领导人告诉CNBC，飞行员没有参加大规模罢工，并指责该航空公司的“计划不周”。
-
-工会补充说：“我们的飞行员将继续克服西南航空公司管理层糟糕的计划以及任何外部运营挑战，并保持世界上最高效的飞行员的地位。”
-
-无论飞行员是否进行了大规模抗议，推特上的人们对他们反对公司强制疫苗接种的抗争表示支持。
-
-**简评：**本周末西南航空公司取消了超过1800个航班。取消理由不管是糟糕的天气还是航空管制又或许是人员短缺调度造成，但取消的事件发生在西南航空飞行员工会要求联邦法官阻止该公司强制接种疫苗的两天后，这就很耐人寻味。引用推特上的一段话：当残暴的政策到位时，当人们的健康被无意识的命令破坏时，当政府完全是为了医疗而种族隔离时，政策的实施肯定会遇到阻力。目前我们看到的“阻力”就是以西南航空公司飞行员协会代表近10,000名飞行员与航空公司双方的博弈。这种因为强制打疫苗而导致的博弈将在各个行业和各个国家以不同方式演绎，直到取消强制打疫苗。而我们就需要把反对强制打疫苗和反对疫苗的种种运动和声音放大并传播出去。
-
-新闻链接：[Southwest Cancels 1,800 Flights Days After Pilots Fight Vaccine Mandates; Airline Claims ‘Bad Weather’](https://www.breitbart.com/politics/2021/10/10/southwest-cancels-1800-flights-days-pilots-fight-vaccine-mandates/)
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+据[零对冲](https://www.zerohedge.com/covid-19/merck-asks-fda-emergency-approval-new-covid-drug-despite-safety-concerns)10月11日报道，尽管科学家们警告默克公司，该公司的新COVID药物可能有严重的有害副作用，如导致癌症和出生缺陷，默克公司还是正式向FDA提交了该药物-莫努匹拉韦（Molnupiravir），等待批准。如果它被批准，这将是第一个治疗冠状病毒的抗病毒药物。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1184-1-merck30.jpg)图片来源：零对冲
+
+《纽约时报》表示，该药物将彻底改变COVID的治疗方法，因为它能够以相对低廉的价格治疗更多罹患COVID的高危患者，但默克公司正计划向客户收取高达40倍的制造成本。
+
+尽管价格不菲，但各国甚至在该药物获得批准之前就已经开始排队与默克公司进行交易。目前，默克公司已经与美国政府以及韩国、新加坡、马来西亚、澳大利亚和其他国家达成了协议。据《纽约时报》报道，批准可能会在几周内到来。这样看来，廉价，安全和有效的伊维菌素和羟氯喹是不可能被批准使用了。
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
