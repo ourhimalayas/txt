@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/12/2021 2:43 AM (UTC)`
+
+10/11/2021 Miles Guo’s GETTR: Global strike actions against the COVID vaccine mandate；three types of powers are the most important: issuing currency, the media, and the military.  Regarding God Emperor Xi’s speech commemorating the Xinhai Revolution, they world either help the CCP sway public opinions or stay silent<br/><br/>10/11/2021 文贵盖特：全球大罢工反对强制打疫苗；世上三样权力最重要：货币权、媒体和军队；对于习纪念辛亥革命讲话，整个世界不是故意喂料、带风向、就是保持沉默
+![img](https://media.gettr.com/group26/getter/2021/10/12/02/43/45d68eaa-a395-7d21-21e0-df3993fcc142/out.jpg)
+
+---
+
 `@miles 10/11/2021 11:24 PM (UTC)`
 
 MILES GUO Live Stream 2021/10/11
@@ -287,13 +294,6 @@ CCP Virus Covid-19 Treatment & Prophylaxis Protocol<br/>& Covid-19 Vaccinated Pe
 
 Sept.10, 2017, Fu Zhenghua used the task force and law enforcement under his control for extortion & money laundering, the extent was outrageous!<br/><br/>2017年9月10号傅政华控制的专案组和公检法，敲诈勒索，向海外洗钱，巨额财富，已经黑暗到天怒人怨！
 ![img](https://media.gettr.com/group28/getter/2021/10/07/14/37/f4609250-0a25-dce1-70b5-60931a7f868a/out.jpg)
-
----
-
-`@miles 10/7/2021 2:25 PM (UTC)`
-
-10/12/2018, Miles Guo was accused of the so-called "crime of forced trading", which is 100% false, completely following the orders of Fu Zhenghua, Meng Jianzhu, Sun Lijun and Wang Qishan<br/><br/>10/12/2018 文贵被指控所谓的​​“强迫交易罪”，这百分之百都是假的，完全是执行傅政华，孟建柱，孙力军，王岐山的命令
-![img](https://media.gettr.com/group40/getter/2021/10/07/14/25/2418d678-3fac-bb58-4648-5c4698832fd5/out.jpg)
 
 ---
 
