@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/12/2021 3:02 AM (UTC)`
+
+10/10/2021 Miles Guo: We are the first to say that the COVID vaccine disaster and the vaccine politics are from the CCP’s biochemical warfare; The Jews may be the biggest victims of the COVID vaccine disaster; No one can stop our momentum to take down the CCP with the truth about the COVID vaccines. The COVID vaccine mandate will soon stop, but humanity will pay a huge price! Regardless of whether the CCP is going to invade Taiwan or not, the price of body bags will skyrocket, and the world’s economy will collapse!<br/><br/>10/10/2021 文贵直播: 我们最早说出疫苗灾难和疫苗政治来自中共生化战；犹太人可能成为疫苗灾难的最大受害者；以苗灭共无人可档，强制打疫苗亦将很快停止，但人类将付出巨大代价！不论中共是否攻台，装尸袋的价格将暴涨、世界经济会崩溃！<br/>
+![img](https://media.gettr.com/group45/getter/2021/10/12/03/02/4ad12bf6-9426-4ae9-88e2-cdfa10d3318f/out.jpg)
+
+---
+
 `@miles 10/12/2021 2:43 AM (UTC)`
 
 10/11/2021 Miles Guo’s GETTR: Global strike actions against the COVID vaccine mandate；three types of powers are the most important: issuing currency, the media, and the military.  Regarding God Emperor Xi’s speech commemorating the Xinhai Revolution, they world either help the CCP sway public opinions or stay silent<br/><br/>10/11/2021 文贵盖特：全球大罢工反对强制打疫苗；世上三样权力最重要：货币权、媒体和军队；对于习纪念辛亥革命讲话，整个世界不是故意喂料、带风向、就是保持沉默
@@ -287,13 +294,6 @@ CCP Virus Covid-19 Treatment & Prophylaxis Protocol<br/>& Covid-19 Vaccinated Pe
 
 中共病毒预防与治疗方案和疫苗排毒方案<br/> <br/>新中国联邦 爆料革命 推荐
 ![img](https://media.gettr.com/group8/getter/2021/10/07/22/bcbfa061-aee5-59dc-db4f-f60848246be2/0fdf94a38f1c9d4ff0b140ea690df674.jpg)
-
----
-
-`@miles 10/7/2021 2:37 PM (UTC)`
-
-Sept.10, 2017, Fu Zhenghua used the task force and law enforcement under his control for extortion & money laundering, the extent was outrageous!<br/><br/>2017年9月10号傅政华控制的专案组和公检法，敲诈勒索，向海外洗钱，巨额财富，已经黑暗到天怒人怨！
-![img](https://media.gettr.com/group28/getter/2021/10/07/14/37/f4609250-0a25-dce1-70b5-60931a7f868a/out.jpg)
 
 ---
 

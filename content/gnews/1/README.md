@@ -2,27 +2,22 @@
 ---
 
 
-## 中共国垃圾债券市场出现大量抛售
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1588588/)
+## 前调查记者罗昌平因批评《长津湖》遭刑拘
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1588612/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-211.png)[图片来源](https://www.ntdtv.com/gb/2021/10/10/a103239119.html)
+原《中国商报》首席记者、《新京报》深度报导部主编、《财经》杂志副主编罗昌平，在社交媒体上发表评论，对抗美援朝的正义性提出质疑，他将片中的冰雕连称为“沙雕连”，之后被控涉嫌“侵害英雄烈士名誉、荣誉罪”。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/text-SC-10.png)
-文章仅代表作者本人观点，与Gnews无关
+侵害英雄烈士名誉、荣誉罪”是一项今年生效的新罪名，最高可被判处三年监禁。“网络空间不是法外之地，”通报写道。罗昌平的微博帐户已被封，涉案帖文也已被删除。
 
-视频参看： 2021.10.11晚GTV新闻访谈
+报导指，罗昌平周二在他的微博转发一则贴文，文中指翻查了资料，推断长津湖战役期间最低气温可达零下35度。罗昌平转发微博贴文时附文称，“半个世纪之后很少中国人反思这场战争的正义性”，又说“就像当年的沙雕连不会怀疑上峰的“英明决策”。
 
-[https://gtv.org/broadcast/watch/6164d6af304e992109b3b26c](https://gtv.org/broadcast/watch/6164d6af304e992109b3b26c)
+据来自中国国家电影局的数据显示，电影《长津湖》目前票房已超34.8亿元，打破过10项影史纪录。 通告称，“经审查，罗昌平对其通过微博发表侮辱抗美援朝志愿军英烈言论的违法行为供认不讳。目前，三亚市公安局吉阳分局已经以涉嫌‘侵害英雄烈士名誉、荣誉罪’对罗某平刑事拘留，案件正在进一步办理中。” 中共试图通过逮捕罗昌平来杀鸡儆猴，对任何敢于挑战官方版本历史叙事的人发出警告。罗昌平此前曾是一位知名调查记者，2014年被迫转行。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+消息来源：中共国海南省公安厅官微
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

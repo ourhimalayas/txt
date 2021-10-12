@@ -2,20 +2,31 @@
 ---
 
 
-## 雅典娜时报-第079期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1588536/)
+## 郭文贵Gettr直播摘要和音频 2021.10.11
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1588557/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+摘要撰稿人：文俊
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/15.png)
-（文章内容仅代表作者个人观点，与GNEWS无关）
+音频提供者：左媛
 
-***发布：小红帽***
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-11-at-10.05.43-PM.png)
+
+
+### 视频：
+
+[视频链接](https://gettr.com/streaming/pduj7df2ed)
+
+### 音频：
+
+### 摘要：
+
+1. 95%打台湾，一定是冠冕堂皇的理由
+2. 关于台湾人到哪去，每个人情况都不同，根据自己情况而定，能离开，离开最好
+3. 手机直播大概还需要两周时间
+4. 这几天增加投资太多了，有农场请找农场，农场帮助战友，真战友一个都不要拉下
+5. 山西水灾很严重，疫苗第三针很严重，银行烂帐很严重，房地产很严重
+6. 郭树清消烂帐，不是消老百姓烂帐，消海航王岐山的烂帐，那是他哥们
+7. 德州州长是下个总统的热门人选啊
+8. 未来认证的大V在盖特都可以直播
+9. 今天试直播就到这里，很多大事搂住，大直播再说
