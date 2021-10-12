@@ -2,30 +2,33 @@
 ---
 
 
-## 国际油价一路走高，高盛花旗喊出90美元目标
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1589477/)
+## 暗批中共，英国寻求联合G20反对不公平贸易，改革WTO
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589508/)
 
-撰稿：东京樱花团/上善若水
+作者：七哩香
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月11日，英国贸易大臣特里维廉，在即将于意大利举行的G20贸易部长会议召开之前发表了一份声明，表示她将敦促G20成员国停止扭曲市场的做法，并支持世界贸易组织的改革。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/国际油价一路走高，高盛花旗喊出90美元目标.png)[图片来源](https://parstoday.com/zh/news/world-i34420)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-19.jpeg)
 
-继天然气之后，大宗商品之王原油近期持续走高。高盛、花旗相继喊出90美元的目标价，如今距离这一目标已越来越近。
+声明称：“我们不能，而且也不会允许遵守规则的英国企业，受到其他国家扭曲市场做法的损害和削弱。”特里维廉将抨击“有害和扭曲”的产业补贴，她的部门曾用这种批评指责中共国。中国是G20成员，作为极具经济实力的大国，显然过度受益于将其视为“发展中经济体”的世贸组织规则。
 
-在OPEC+宣布维持原定增产计划的背景下，多数业内人士认为油价短期内易涨难跌。还有部分机构提醒投资者要警惕“滞胀”。高盛、花旗看涨油价至90美元。
+意大利总理上周五也表示，他相信10月底举行的G20领导人会议将达成改革世贸组织的强有力承诺。
 
-据最新媒体报道，花旗预计，布伦特原油今年冬天可能会达到90美元/桶。这与此前高盛的预测不谋而合。高盛大宗商品全球主管Jeff Currie日前在接受彭博采访时表示，今年冬天石油每桶价格可能飙升至90美元。
+(本文仅代表作者观点)
 
-高盛在研报中提出，飓风“艾达”抵消了自7月份以来的OPEC+增产，而目前页岩油产量依然维持较低状态。随着北半球进入冬季，全球天然气的严重短缺将推高燃油发电的需求。高盛同时表示，疫情期间积累的原油库存正以450万桶/天的创纪录速度快速消耗。全球原油库存或在年底前降至2013年以来的最低水平。不过高盛也警告，假如美伊最终达成协议，国际油价在2022上半年可能面临短线下跌风险。新的变体病毒的出现也会增加全球经济复苏的不确定性。
+参考链接:[英国寻求召集20国集团反对不公平贸易做法并支持WTO改革](https://cn.reuters.com/article/g20-summit-trade-britain-idCNL6S2R707L)
+[英国寻求联合20国集团反对不公平贸易做法](https://www.voachinese.com/a/UK-trade-practices-G20-20211011/6266571.html)
 
-值得一提的是，在本月4日举行的OPEC+第21次部长级会议上，与会各国决定维持逐步增产方案。欧佩克官方声明称，将11月的月度总产量上调日均40万桶。 　　北京时间10月12日，国际原油期货在亚洲交易时段呈现震荡走势，布伦特原油主力12月合约报价在83.5美元/桶附近，WTI原油主力合约报价在80.2美元/桶附近。两大国际原油期货今年来累计涨幅都超过了60%。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-消息来源：
+新闻访谈终审：FoxRina
+编辑/校正/发稿：谐趣园
 
-[能源危机真的来了？国际油价一路走高，高盛、花旗喊出90美元目标，机构：警惕”滞胀”](https://news.stcn.com/sd/202110/t20211012_3751343.html)
-
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

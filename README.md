@@ -15,92 +15,92 @@
 
 ---
 
-### [郭文贵：世界上有三种权力 媒体话语权很重要](/content/gnews/1/README.md)
+### [西喜时事新闻简报——美国时事篇](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [俄外长称俄窃取阿斯利康配方的指控毫无根据](/content/gnews/2/README.md)
+ ` HimalayaRussia`
+
+### [&#8220;世界上三种权力最重要，我们要有话语权&#8221;!](/content/gnews/3/README.md)
+ ` GTV新闻访谈`
+
+### [郭文贵：世界上有三种权力 媒体话语权很重要](/content/gnews/4/README.md)
  ` 纽约香草山MOS01`
 
-### [德克萨斯州长全面禁止疫苗强制令](/content/gnews/2/README.md)
+### [德克萨斯州长全面禁止疫苗强制令](/content/gnews/5/README.md)
  ` GTV新闻访谈`
 
-### [GETTR现场直击：全球首例新冠疫苗国家诉讼案在日本开庭](/content/gnews/3/README.md)
+### [GETTR现场直击：全球首例新冠疫苗国家诉讼案在日本开庭](/content/gnews/6/README.md)
  ` GTV新闻访谈`
 
-### [暗批中共，英国寻求联合G20反对不公平贸易，改革WTO](/content/gnews/4/README.md)
+### [暗批中共，英国寻求联合G20反对不公平贸易，改革WTO](/content/gnews/7/README.md)
  ` GTV新闻访谈`
 
-### [针下亡魂｜法国 24 岁男医科生接种疫苗 10 日后死亡](/content/gnews/5/README.md)
+### [针下亡魂｜法国 24 岁男医科生接种疫苗 10 日后死亡](/content/gnews/8/README.md)
  ` G&#124;News TAIWAN`
 
-### [台湾男子接种辉瑞疫苗9天后死亡](/content/gnews/6/README.md)
+### [台湾男子接种辉瑞疫苗9天后死亡](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [国际油价一路走高，高盛花旗喊出90美元目标](/content/gnews/7/README.md)
+### [国际油价一路走高，高盛花旗喊出90美元目标](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [10/12/21 香港快讯 民研：林郑最新民望38.3分 三成人评零分](/content/gnews/8/README.md)
+### [10/12/21 香港快讯 民研：林郑最新民望38.3分 三成人评零分](/content/gnews/11/README.md)
  ` 英喜-粵語組`
 
-### [疫苗灾情｜美国 47 岁教育学硕士接种疫苗后双腿截肢](/content/gnews/9/README.md)
+### [疫苗灾情｜美国 47 岁教育学硕士接种疫苗后双腿截肢](/content/gnews/12/README.md)
  ` G&#124;News TAIWAN`
 
-### [智梗无解](/content/gnews/10/README.md)
+### [智梗无解](/content/gnews/13/README.md)
  ` 纽约香草山MOS03`
 
-### [墙内要闻汇编](/content/gnews/11/README.md)
+### [墙内要闻汇编](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [摩根大通：比特币“一文不值” ，政府很快进行监管](/content/gnews/12/README.md)
+### [摩根大通：比特币“一文不值” ，政府很快进行监管](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年10月6-8日郭先生直播 重点内容整理](/content/gnews/13/README.md)
+### [2021年10月6-8日郭先生直播 重点内容整理](/content/gnews/16/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [中共发改委：有序放开全部燃煤发电上网电价](/content/gnews/14/README.md)
+### [最后通牒&#8211;加拿大魁省将强停所有未接种疫苗护士的工作！](/content/gnews/17/README.md)
+ ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
+
+### [中共发改委：有序放开全部燃煤发电上网电价](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [因虚假商品评介 亚马逊取缔中共国5万卖家](/content/gnews/15/README.md)
+### [因虚假商品评介 亚马逊取缔中共国5万卖家](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美日澳印展开联合军演 旨在防范中共国恶意扩张](/content/gnews/16/README.md)
+### [美日澳印展开联合军演 旨在防范中共国恶意扩张](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [樱花灭共诗——苏幕遮•双十国庆](/content/gnews/17/README.md)
+### [樱花灭共诗——苏幕遮•双十国庆](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [房交巨头贝壳挥刀自宫，房地产市场完求蛋](/content/gnews/18/README.md)
+### [房交巨头贝壳挥刀自宫，房地产市场完求蛋](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：继开除党籍公职后，“政法虎”王立科被正式批捕](/content/gnews/19/README.md)
+### [秘翻在线：继开除党籍公职后，“政法虎”王立科被正式批捕](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美官员呼吁警惕中共人工智能领域发展威胁](/content/gnews/20/README.md)
+### [美官员呼吁警惕中共人工智能领域发展威胁](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [立陶宛VS中共国：弹丸小国对抗新兴超级大国](/content/gnews/21/README.md)
+### [立陶宛VS中共国：弹丸小国对抗新兴超级大国](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [全民负债，所谓的共同富裕呢？](/content/gnews/22/README.md)
+### [全民负债，所谓的共同富裕呢？](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国洪水泛滥：因煤矿关闭导致煤炭价格创下新高](/content/gnews/23/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [GETTR现场直击：面对反疫苗诉讼 日本媒体选择集体失声](/content/gnews/24/README.md)
+### [GETTR现场直击：面对反疫苗诉讼 日本媒体选择集体失声](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [靓男孙中山](/content/gnews/25/README.md)
+### [靓男孙中山](/content/gnews/28/README.md)
  ` 骄子`
 
-### [挑衅升级，中共军方在台湾附近举行两栖作战演习](/content/gnews/26/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共国辽宁省再次发布严重缺电II级橙色预警](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [英青少年男孩死亡人数自接种中共病毒后剧增](/content/gnews/28/README.md)
+### [英青少年男孩死亡人数自接种中共病毒后剧增](/content/gnews/29/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [中印边境会谈破裂，军事对峙局势紧张](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [北京上海两派相争 冥诞登城楼者有去无回](/content/gnews/30/README.md)
  ` GTV新闻访谈`
