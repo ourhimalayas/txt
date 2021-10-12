@@ -2,25 +2,41 @@
 ---
 
 
-## 俄外长称俄窃取阿斯利康配方的指控毫无根据
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1589566/)
+## 有声|13岁圭亚那男孩接种第二剂辉瑞疫苗两小时后死亡，调查已展开
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1589702/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+配音：香草山美食部 – 玫瑰园
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/A-4.jpg)archyde.com
-俄外长表示，“我记得在很多情况下阿斯利康会产生副作用——造成血栓等等。俄罗斯的卫星五号从来没有发生过这样的情况。”
+针对这名少年的死亡所进行的全面调查已被启动，同时对其尸体的尸检已进行。
 
-美东时间10月12日报道， 俄罗斯外交部长谢尔盖∙拉夫罗夫在访问哈萨克斯坦后的新闻发布会上表示，“关于俄罗斯从阿斯利康公司窃取冠状病毒疫苗配方以制造俄罗斯卫星5号疫苗的指控是毫无根据的。”
+圭亚那卫生部证实，一名 13 岁的 Moruca 男孩在接种辉瑞公司的第二剂疫苗两小时后死亡，该疫苗为被用于为儿童接种的 COVID-19 疫苗。
 
-拉夫罗夫称，“至于我们的英国和大多数西方伙伴，我认为没有人会认真对待这些毫无根据的指责。已经有很多毫无根据的指责，没有听说阿斯利康疫苗的制造商指责俄罗斯窃取疫苗配方。”
+针对这名少年的死亡所进行的全面调查已被启动，同时对其尸体的尸检已进行。
 
-外长补充说，“我记得在很多情况下阿斯利康会产生副作用——造成血栓等等。俄罗斯的卫星五号从来没有发生过这样的情况。”
+据圭亚那卫生部称，三周前，这名小男孩接种了第一剂辉瑞疫苗。
 
-英国《太阳报》报道，阿斯利康的疫苗配方于10月11日被盗。该报援引美国情报机构的话说，俄罗斯从阿斯利康公司复制了这项技术，并将其用于制造俄罗斯卫星五号疫苗。
+他于今天下午 2:00 接种了第二剂疫苗。他在接种疫苗后被观察了 20 分钟，没有任何不适。他被允许回家。
 
-俄罗斯总统发言人德米特里∙佩斯科夫称《太阳报》“极不科学”。俄罗斯直接投资基金称，英国出版物的报道是 “基于匿名来源的无耻谎言”。
+回到家两个小时后，小男孩倒地不起，被紧急送往库马卡医院，抵达时被宣布死亡。
 
-参考链接：
+“我们敦促市民不要沉迷于猜测，并等待验尸和其他调查的结果。
 
-[https://www.rbc.ru/rbcfreenews/61654fa69a7947107550f1ca](https://www.rbc.ru/rbcfreenews/61654fa69a7947107550f1ca)
+卫生部向小男孩的家人表示慰问。
+
+圭亚那在近一个月前开始为儿童接种辉瑞疫苗。有人投诉儿童在接受第一剂后生病，但副作用并不致命。
+
+译者评论：还要失去多少年轻生命来证明疫苗是杀人而不是救人？还要用多少悲痛和苦难唤醒全球的人类：CCP是人类的公敌！
+
+文字版原文：[13岁圭亚那男孩接种第二剂辉瑞疫苗两小时后死亡，调查已展开](https://gnews.org/zh-hans/1588034/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
