@@ -2,30 +2,37 @@
 ---
 
 
-## 全民负债，所谓的共同富裕呢？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1589302/)
+## 美官员呼吁警惕中共人工智能领域发展威胁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589314/)
 
-撰稿：东京樱花团/盐和光
+作者：在远方
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-39.png)[图片来源](https://new.qq.com/rain/a/20210317A0D9VU00)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-10月12日中国新闻周刊报道，从国庆数据看消费为何不振？数据显示，今年国庆旅游和消费并没有市场认为的那么乐观，与春节、清明节等前几个主要节假日相比，消费继续走弱，主要呈现以下特点：
 
-在散发疫情和部分地区“就地过节”的倡议下，今年旅客发送量、国内旅游出行人数，与2019年同期比均减少了近1/3；
 
-国内餐饮继续恢复，但由于其占社会消费品零售总额（下称“社零总额”）的比重低，餐饮恢复对社零增速难有大的提振；
+前五角大楼首席软件官夏兰表示，美国如果不能认清形势并迎头赶上，15年后将在人工智能和网络领域输给中共国。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/P4.002.jpeg)
+夏兰认为中共目前在人工智能、合成生物学和遗传基因领域等方面的进步，正在超越美国。他批评美国一些政府部门的网络防御措施太低，像谷歌一类的大科技公司也没有意愿与国防部在人工智能领域合作。相反由于极权统治的体制，中国科技公司无条件在与中共合作，受其操控。 而中共在人工智能领域进行国家级大量投资，从不考虑相关的伦理道德问题。
 
-国庆长假的零售表现弱于劳动节，在8月社零当月同比增速从上个月的8.5％大降到2.5％的基础上，消费很难在短期内出现大的好转。
+中共之所以投入海量资金进行上述方面的科技研发，是因为在未来AI 智能网络技术和生物科技将控制主导人类的命运和走向，如何应对中共的这一趋势，是全球文明国家都亟需面对的紧迫现实。
+(本文仅代表作者观点)
 
-2020年中共国家庭部门的偿债负担为137.9％，变成纯负债大国，14亿国人天天起早贪黑，加班奋斗几十年，每个国人负债7万元额度何来消费，国人如蝼蚁一般日夜劳作，勤劳了一生，换来的是疾病缠身，负债累累，不禁要问钱去哪里了？所谓的共同富裕呢？
+参考链接：
 
-消息来源：
+1. [前五角大楼首席软件官：中国在人工智能领域正走向全球主导地位](https://www.voachinese.com/a/US-has-lost-AI-battle-to-China-pentagon-s-ex-software-chief-says-20211011/6265882.html)
+2. [五角大楼前首席软件官：中国已在人工智能领域取胜](https://www.rfi.fr/cn/中国/20211011-五角大楼前首席软件官-中国已在人工智能领域取胜)
 
-[从国庆数据看消费为何不振？](https://mo.mbd.baidu.com/r/uB9yPuqbSg?f=cp&amp;rs=3158161310&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=42180451800b7343)
 
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

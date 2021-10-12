@@ -2,29 +2,33 @@
 ---
 
 
-## 台湾男子接种辉瑞疫苗9天后死亡
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1589483/)
+## 暗批中共，英国寻求联合G20反对不公平贸易，改革WTO
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589508/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+作者：七哩香
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月11日，英国贸易大臣特里维廉，在即将于意大利举行的G20贸易部长会议召开之前发表了一份声明，表示她将敦促G20成员国停止扭曲市场的做法，并支持世界贸易组织的改革。
 
-据苹果新闻网10月12日报道，台中一男子接种第一针辉瑞疫苗九天后，在家中倒地死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-19.jpeg)
 
-报道称，台中市卫生局表示，这名男子今年62岁，在上月30日注射辉瑞疫苗第一针，9天后的10月9日突然在家中倒地，送医后不治身亡。
+声明称：“我们不能，而且也不会允许遵守规则的英国企业，受到其他国家扭曲市场做法的损害和削弱。”特里维廉将抨击“有害和扭曲”的产业补贴，她的部门曾用这种批评指责中共国。中国是G20成员，作为极具经济实力的大国，显然过度受益于将其视为“发展中经济体”的世贸组织规则。
 
-台湾卫生福利部疾病管制署副署长庄人祥表示，目前全国统计，辉瑞疫苗接种后死亡有三例。在10月8日至11日期间，台湾共新增251例疫苗接种后疑似不良反应个案，当中有109例非严重不良反应、13例死亡，129例疑似严重不良反应。
+意大利总理上周五也表示，他相信10月底举行的G20领导人会议将达成改革世贸组织的强有力承诺。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/d60de9e5c6.jpg)图片来自于网络
+(本文仅代表作者观点)
 
-13例死亡当中，有5例AZ，是在接种后当天到87天发生；有2例莫德纳疫苗，接种后当天到接种后4天发生；有4例高端疫苗，在接种后第5天到43天发生；有2例辉瑞，在接种后3天到5天发生。
+参考链接:[英国寻求召集20国集团反对不公平贸易做法并支持WTO改革](https://cn.reuters.com/article/g20-summit-trade-britain-idCNL6S2R707L)
+[英国寻求联合20国集团反对不公平贸易做法](https://www.voachinese.com/a/UK-trade-practices-G20-20211011/6266571.html)
 
-另有媒体提问，新庄一名42岁民众在台北医院死亡，先前接种过第一剂辉瑞疫苗，家人表示该民众生前健康状况良好，至于是否掌握相关消息或通报不良反应，庄人祥回应称，这个要查一下。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-*注：本文仅代表作者观点，与 Gnews无关*
+新闻访谈终审：FoxRina
+编辑/校正/发稿：谐趣园
 
-*参考链接：*
-
-[全台打BNT後3例死！台中62歲男9天後倒地不治　莊人祥曝死因](https://tw.appledaily.com/life/20211012/23PWBPQGMNHNPFLJAYLHXT267I/)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

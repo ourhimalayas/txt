@@ -2,37 +2,34 @@
 ---
 
 
-## 美官员呼吁警惕中共人工智能领域发展威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589314/)
+## 房交巨头贝壳挥刀自宫，房地产市场完求蛋
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1589330/)
 
-作者：在远方
+撰稿：东京樱花团/知了知了
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片2-16.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=hw6IqGCvJetL4M)
 
+10月11日晚间，有媒体报道称，贝壳找房(BEKE.NYSE，以下简称“贝壳”)上海研发团队全员被优化，裁员补偿为“N+3”。今日，相关负责人表示，只是裁撤部分研发业务，主要涉及是金融业务。
 
+贝壳起源于2001年成立的链家地产， 2018年4月，贝壳正式上线，主攻包括二手房买卖、新房销售、租房等业务在内的“大居住领域”。2020年8月，贝壳找房在纽交所正式挂牌上市。
 
-前五角大楼首席软件官夏兰表示，美国如果不能认清形势并迎头赶上，15年后将在人工智能和网络领域输给中共国。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/P4.002.jpeg)
-夏兰认为中共目前在人工智能、合成生物学和遗传基因领域等方面的进步，正在超越美国。他批评美国一些政府部门的网络防御措施太低，像谷歌一类的大科技公司也没有意愿与国防部在人工智能领域合作。相反由于极权统治的体制，中国科技公司无条件在与中共合作，受其操控。 而中共在人工智能领域进行国家级大量投资，从不考虑相关的伦理道德问题。
+2021年上半年财报显示，贝壳新房业务交易额达8417亿元；二手房业务交易额达1.33万亿元，总交易额达2.17万亿元。2020年，中共国全年新房和二手房交易总额约为22万亿元。如此推算，贝壳房产交易金额约为总成交金额的20%，贝壳房产交易业务在中共国房地产市场占有无可撼动的地位。
 
-中共之所以投入海量资金进行上述方面的科技研发，是因为在未来AI 智能网络技术和生物科技将控制主导人类的命运和走向，如何应对中共的这一趋势，是全球文明国家都亟需面对的紧迫现实。
-(本文仅代表作者观点)
+现在，贝壳也裁员了，而且第一刀居然砍向研发部门的金融业务。该部分业务主要是指，通过线上或者线下的交易中心，为客户提供完整的从签约到完成交易支付和金融服务的过程。这些服务具体包括安全支付、托管、抵押贷款服务、产权清算和担保、过桥贷款和各种情况下的其他金融解决方案。
 
-参考链接：
+一个以交易为生的企业，把自己成熟的金融服务体系砍掉，这跟挥刀自宫没什么两样，等于宣告天下，交易玩不下去，房地产市场完求蛋了。叠加，近期恒大暴雷，新立跳崖，花样年违约，众多房地产开发头部企业商票贴现率飙升至30%以上，房交巨头此时自宫对于市场信心绝对是一记重拳，房地产系统性崩盘越来越近了。
 
-1. [前五角大楼首席软件官：中国在人工智能领域正走向全球主导地位](https://www.voachinese.com/a/US-has-lost-AI-battle-to-China-pentagon-s-ex-software-chief-says-20211011/6265882.html)
-2. [五角大楼前首席软件官：中国已在人工智能领域取胜](https://www.rfi.fr/cn/中国/20211011-五角大楼前首席软件官-中国已在人工智能领域取胜)
+消息来源
 
+[“断腕”上海金融业务后，贝壳找房“趟水”家装新赛道](https://www.sohu.com/a/494640367_115479)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+[贝壳找房坚持“难而正确”之路 夯实品质服务与周期共舞](http://finance.eastmoney.com/a/202109132096635050.html)
 
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
+[2020年中国商品房销售面积、销售额均创新高](http://www.ce.cn/cysc/fdc/fc/202101/18/t20210118_36234860.shtml)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（免责声明：文章仅代表作者本人观点，与GNEWS无关）
+
+*校对：东京樱花团/ 喜马拉雅的微尘
+发布：东京樱花团/老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)

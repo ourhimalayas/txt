@@ -2,21 +2,18 @@
 ---
 
 
-## 美日澳印展开联合军演 旨在防范中共国恶意扩张
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1589345/)
+## 中共发改委：有序放开全部燃煤发电上网电价
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1589374/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/C5C1540B-808C-4D99-B200-ADF9C72729E3_w1080_h608.jpg)美日澳印展开联合军演 旨在防范中共国恶意扩张 网络图片
-据美国之音报道，美国、日本、澳大利亚和印度10月12日开始在孟加拉湾展开2021年马拉巴尔（Malabar) 年度军演的第二阶段演习。马拉巴尔年度军演越来越被人们视为四方安全对话机制Quad的联合军演，目的是遏制中共国的恶意扩张，四国联手以保护自己及其盟友不受中共国的“剥削、腐蚀和胁迫”。
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片5-1.png)[图片来源](https://www.aocai.com.au/wordpress/aocaiPost/tag/%E7%94%B5%E4%BB%B7)
+中共发改委发布关于进一步深化燃煤发电上网电价市场化改革的通知。通知提出，有序放开全部燃煤发电电量上网电价。燃煤发电电量原则上全部进入电力市场，通过市场交易在“基准价+上下浮动”范围内形成上网电价，现行燃煤发电基准价继续作为新能源发电等价格形成的挂钩基准。扩大市场交易电价价格浮动范围.将燃煤发电市场交易价格浮动范围由现在上浮不超过10%，下浮原则上不超过15%，扩大为上下浮动原则上不超过20%，高耗能企业市场交易电价不受上浮20%限制。电力现货价格不受上述幅度限制。
 
-新闻参考链接：[https://www.voachinese.com/a/quad-naval-exercise-20211012/6267058.html](https://www.voachinese.com/a/quad-naval-exercise-20211012/6267058.html)
+消息来源：中共发改委网站
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+（免责声明：文章仅代表作者本人观点，与GNEWS无关）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/老黑*
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
