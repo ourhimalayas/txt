@@ -2,30 +2,21 @@
 ---
 
 
-## 全民负债，所谓的共同富裕呢？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1589302/)
+## 美日澳印展开联合军演 旨在防范中共国恶意扩张
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1589345/)
 
-撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/C5C1540B-808C-4D99-B200-ADF9C72729E3_w1080_h608.jpg)美日澳印展开联合军演 旨在防范中共国恶意扩张 网络图片
+据美国之音报道，美国、日本、澳大利亚和印度10月12日开始在孟加拉湾展开2021年马拉巴尔（Malabar) 年度军演的第二阶段演习。马拉巴尔年度军演越来越被人们视为四方安全对话机制Quad的联合军演，目的是遏制中共国的恶意扩张，四国联手以保护自己及其盟友不受中共国的“剥削、腐蚀和胁迫”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-39.png)[图片来源](https://new.qq.com/rain/a/20210317A0D9VU00)
+新闻参考链接：[https://www.voachinese.com/a/quad-naval-exercise-20211012/6267058.html](https://www.voachinese.com/a/quad-naval-exercise-20211012/6267058.html)
 
-10月12日中国新闻周刊报道，从国庆数据看消费为何不振？数据显示，今年国庆旅游和消费并没有市场认为的那么乐观，与春节、清明节等前几个主要节假日相比，消费继续走弱，主要呈现以下特点：
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-在散发疫情和部分地区“就地过节”的倡议下，今年旅客发送量、国内旅游出行人数，与2019年同期比均减少了近1/3；
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-国内餐饮继续恢复，但由于其占社会消费品零售总额（下称“社零总额”）的比重低，餐饮恢复对社零增速难有大的提振；
 
-国庆长假的零售表现弱于劳动节，在8月社零当月同比增速从上个月的8.5％大降到2.5％的基础上，消费很难在短期内出现大的好转。
+编辑：【英国伦敦喜庄园编辑部】
 
-2020年中共国家庭部门的偿债负担为137.9％，变成纯负债大国，14亿国人天天起早贪黑，加班奋斗几十年，每个国人负债7万元额度何来消费，国人如蝼蚁一般日夜劳作，勤劳了一生，换来的是疾病缠身，负债累累，不禁要问钱去哪里了？所谓的共同富裕呢？
-
-消息来源：
-
-[从国庆数据看消费为何不振？](https://mo.mbd.baidu.com/r/uB9yPuqbSg?f=cp&amp;rs=3158161310&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=42180451800b7343)
-
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

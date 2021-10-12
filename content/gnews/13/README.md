@@ -2,40 +2,37 @@
 ---
 
 
-## 挑衅升级，中共军方在台湾附近举行两栖作战演习
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1589247/)
+## 美官员呼吁警惕中共人工智能领域发展威胁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589314/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2018-08-27T131501Z_3_LYNXNPEE7Q02R_RTROPTP_4_CHINA-DIDI-700x420-3.jpg)2017年1月3日，中国宁夏回族自治区银川，陆军官兵在演习中。 （盖蒂图片社）
+作者：在远方
 
-**摘要翻译：**来自《大纪元时报》的报道，中共国军方于10月11日表示，他们在位于台湾以西，台湾海峡对面的福建省进行了模拟抢滩登陆和袭击的军事演习。
-
-中共官方军事报纸《解放军报》在微博上的一篇博客文章中披露了此次演习，称“近日”，数量不明的突击队、工兵、操舟能手模拟进行了多次抢滩登陆演习。
-
-该微博还包括一段视频，视频中第73集团军的中共士兵乘坐单引擎小艇冲上海滩，切断并穿过带刺铁丝网，挖掘战壕。
-
-第73集团军是一个军级单位，主要是机动步兵，拥有装甲、炮兵、防空、导弹和工兵部队。该部队全年都在进行类似的演习，被认为是中共国与台湾战争计划中的主要入侵部队。
-
-周末，中共领导人习近平也重申了台湾将与大陆“统一”的誓言，并指责继续坚持台湾独立是实现其所谓的“民族复兴”计划的主要威胁，观察人士认为“民族复兴”的目标表明了习近平渴望在本世纪中叶将中共政权转变为世界上唯一的超级大国。
-
-这些挑衅迫使台湾总统蔡英文承诺，台湾将“不惜一切代价”捍卫其一直以来的独立和民主生活方式，使其免受中共极权主义的侵害。
-
-解放军并没有公开将其在福建的演习与台湾地区不断升级的的紧张局势联系起来。然而，该省可能会在解放军入侵台湾的若干行动中发挥核心作用，因为它在地理位置上靠近台湾，它是大南京军区的一部分，该军区拥有三个现役集团军，总兵力在10万至30万之间。
-
-**简评：**中共政权就是个流氓集团，它不讲人权与人道，不遵守国际准则。多少年来，它利用极权统治手段，榨取中共国14亿老百姓的财富，并利用这些财富在世界上大搞金钱外交，腐蚀、收买政界、商界人士，包括台湾，已经取得了相当明显的效果。台湾国民党和一些商人与中共明目张胆的勾兑就是一个现实的例子。
-
-腐败的中共军队也许没有真正的战斗力，但是它拥有核武器，拥有相对先进的导弹部队，它还懂得使用惨无人道的人海战术，所以如果得不到国际社会的支持，台湾很难在中共发起的对台战争中取胜。蔡英文总统所宣称的将“不惜一切代价”捍卫台湾的独立和民主，听起来很震撼，但是要做到这一点，首先需要凝聚民心，解决台湾国内的政治纷争，同时要利用自己的优势争取国际社会的支持。如果内部不团结，外部无援助，台湾的未来值得忧虑。
-
-新闻链接: [https://m.theepochtimes.com/chinese-military-launches-amphibious-drills-near-taiwan-amid-rising-provocations\_4043017.html](https://m.theepochtimes.com/chinese-military-launches-amphibious-drills-near-taiwan-amid-rising-provocations_4043017.html)
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+前五角大楼首席软件官夏兰表示，美国如果不能认清形势并迎头赶上，15年后将在人工智能和网络领域输给中共国。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/P4.002.jpeg)
+夏兰认为中共目前在人工智能、合成生物学和遗传基因领域等方面的进步，正在超越美国。他批评美国一些政府部门的网络防御措施太低，像谷歌一类的大科技公司也没有意愿与国防部在人工智能领域合作。相反由于极权统治的体制，中国科技公司无条件在与中共合作，受其操控。 而中共在人工智能领域进行国家级大量投资，从不考虑相关的伦理道德问题。
+
+中共之所以投入海量资金进行上述方面的科技研发，是因为在未来AI 智能网络技术和生物科技将控制主导人类的命运和走向，如何应对中共的这一趋势，是全球文明国家都亟需面对的紧迫现实。
+(本文仅代表作者观点)
+
+参考链接：
+
+1. [前五角大楼首席软件官：中国在人工智能领域正走向全球主导地位](https://www.voachinese.com/a/US-has-lost-AI-battle-to-China-pentagon-s-ex-software-chief-says-20211011/6265882.html)
+2. [五角大楼前首席软件官：中国已在人工智能领域取胜](https://www.rfi.fr/cn/中国/20211011-五角大楼前首席软件官-中国已在人工智能领域取胜)
+
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
