@@ -2,62 +2,70 @@
 ---
 
 
-## 食品价格已升至十年来的最高水平
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1587858/)
+## 独家：脸书吹哨人似乎是公认的马克思主义者
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1588147/)
 
-- **编译：JennyBall**
+- 编译：西班牙喜悦农场–wenwu
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip304.png)
+根据《国家脉动》独家透露，这家社交企业媒体 Facebook 的“吹哨人”在 Twitter 上发表了一些带有种族歧视色彩的评论，并声称为儿童购买了卡尔·马克思 (Karl Marx) 的书籍。
 
-根据联合国粮食及农业组织 (FAO) 的数据，在供应状况趋紧和需求强劲的背景下，全球粮食价格已升至十年来的最高水平。
+弗朗西斯·豪根（Frances Haugen）在几天内从无人问津到在国会山作证——一直要求对社交媒体进行[大规模](https://www.cbsnews.com/news/facebook-whistleblower-frances-haugen-misinformation-public-60-minutes-2021-10-03/)[审查](https://www.cbsnews.com/news/facebook-whistleblower-frances-haugen-misinformation-public-60-minutes-2021-10-03/)，尤其是针对那些不同意她的世界观的人。
 
-截至 9 月的 12 个月内，衡量世界粮食商品价格的粮农组织[食品价格指数](http://www.fao.org/worldfoodsituation/foodpricesindex/en/)飙升了 32.8%，达到 130 点，这是自 2011 年以来的最高水平，该指数上涨了 1.2%。
+但她自己在社交媒体上的行为，可能会破坏她在这个问题上的道德权威；一个与 Haugen 相关的私人资料出现在她为 2015 年女孩极客晚宴（2015 Girl Geek Dinner）等[活动](https://girlgeek.io/speaker/frances-haugen-2/)所做的传记中，揭示了这位前 Facebook 员工更诡异的一面。它还包含详细介绍她以前的雇主（例如[Google](https://web.archive.org/web/20160312054254/https:/twitter.com/frizy)）的工作，以及她在哈佛商学院就读的[时间线](https://www.dailymail.co.uk/news/article-10061835/Facebook-whistleblower-Harvard-grad-raised-worked-Silicon-Valleys-biggest-names.html)。
 
-大多数谷物和植物油的价格上涨是该指数上涨的主要原因。
+虽然这个账户——“@Frizy”——[目前](https://twitter.com/frizy?lang=en)被隐藏起来，但从 2008 年和 2009 年的[资料中](https://web.archive.org/web/*/https:/twitter.com/frizy)显示了， Haugen 发布的奇怪的公开推文；其中，Haugen 讲述了一个笑话，显现其对[“棕色人种”](https://web.archive.org/web/20090923155832/https:/twitter.com/frizy)和数学抱有成见（如下图），同时还讲述了她在空中调情的尝试：
 
-粮农组织植物油价格指数 9 月份同比上涨 60%，比 8 月份上涨 1.7%。 上个月谷物价格指标同比上涨 27.3%，比 8 月上涨 2%。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-7-4.png)
 
-9 月份乳制品和食糖价格也分别同比上涨 15.2% 和 53.5%，而肉类价格指数比去年同期上涨 26.3%。
+在另一篇推文中，Haugen 在推特上发布了一张“令人敬畏的多样性晚宴”，其中有一个“印度人、红头发人、金发女郎、非裔美国人和亚洲人”。 “在波士顿从来没有见过这样的人类物种，”她补充道（如下图）。
 
-虽然大部分通胀都集中在能源成本飙升和受半导体芯片短缺影响的二手车等产品上，但食品成本上升的信号越来越多。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-8-4.png)
 
-随着美国经济反弹，包装食品公司正在努力应对通货膨胀，康尼格拉品牌公司（Conagra Brands Inc. ）于 10 月 7 日表示将再次提高其冷冻食品和零食的价格。
+实际上，波士顿是美国排名前 25 的“多种族化”的地区之一。 在2009年2月的一个揭露性的推文中，Haugen 在推特上说为她的”小表妹”购买了漫画书（如下图）。
 
-康尼格拉表示，它正面临食用油、蛋白质和谷物等成分成本上涨的问题，迫使其将冷冻食品价格提高 3.5%，将主食价格提高 3.3%。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-9-2.png)
 
-食品制造商通用磨坊（ General Mills）、金宝汤（Campbell Soup） 和斯穆克（ J.M. Smucker ）也提高了批发价格，以应对不断上涨的原料和运费成本。
+这些书包括卡尔·[马克思](https://web.archive.org/web/20090218124903/https:/twitter.com/frizy)以及共产主义哲学家和恋童癖辩护者米歇尔·福柯的作品。在 1978 年的[一次采访中](http://www.uib.no/sites/w3.uib.no/files/attachments/foucaultdangerchildsexuality_0.pdf)，福柯（Foucault）表示，假设“一个孩子无法解释发生的事情，并且也不能给予他的选择权，这是两种不能被容忍和接受的虐待行为。”
 
-猪肉和牛肉价格在过去几个月飙升，而劳工部 8 月的通胀报告显示，肉类、家禽、鱼和鸡蛋在过去一年中上涨了 [8%](https://www.bls.gov/news.release/archives/cpi_09142021.htm)，比大流行前的 2019 年 8 月价格上涨了 [15.7%](https://www.bls.gov/news.release/archives/cpi_09112020.htm)。牛肉价格在过去一年上涨了 [12.2%](https://www.bls.gov/news.release/archives/cpi_09142021.htm)，同期培根价格上涨了 17%。
+1977 年，Foucault 签署了一份请愿书，呼吁将恋童癖在法国有效合法化。 《国家脉动》出土的其他推文显示， Haugen 指示推特追随者“思考 [原文如此] 如果女性的收入和男性一样[独立，](https://web.archive.org/web/20090630145718/https:/twitter.com/frizy)世界将会如何的不同”，并承认她是“有史以来最糟糕的同桌”，
 
-专家表示，全球能源成本的增加可能会加剧这一问题。
+因为她有“咳嗽/流鼻涕”、“渗出的伤口”，并且两天没洗澡了（如下图）：
 
-FAO高级经济学家阿卜杜勒雷扎·阿巴西安（Abdolreza Abbassian）在最近的一次采访中告诉彭博社：“正是这些事情的一起发生才开始非常令人担忧。”“这不仅仅是孤立的食品价格数字，而是所有数字。我认为两三个月前没有人预料到能源价格会变得如此强劲。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-10-2.png)
 
-食品价格通胀也推高了消费者对未来价格上涨的预期。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-11-2.png)
 
-纽约联储 8 月消费者预期[调查显示](https://www.newyorkfed.org/newsevents/news/research/2021/20210913)，美国人预计食品价格将在一年内上涨 7.9%，高于 5.2% 的总体通胀预期。
+《国家脉动》联系了 Haugen 以征求其对以上推文的意见，但没有得到回应。
 
-美联储官员一再将当前的通胀描述为“暂时的”，尽管他们越来越担心通胀预期解除锚定的风险。这就是对“暂时性”叙述的信心下降的地方，人们开始相信，并表现得好像通货膨胀将比以前认为的要严重得多，影响工资和价格设定行为，甚至可能引发1970 年代困扰工资价格的上涨螺旋的经济。
+《国家脉动》此前曾[曝光](https://thenationalpulse.com/news/facebook-whistleblower-donated-36-times-to-democrats-including-to-anti-primary-extremists-and-aoc/) Haugen 多次向极左、受马克思主义启发的团体和政治候选人（如亚历山大·奥卡西奥·科尔特斯）捐款。
 
-**评论： **
+**简评：**
 
-**美联储官员自欺欺人，还一再将当前的通胀描述为“暂时的”,甚至跪求中共将中共支柱房地产的泡沫继续维持。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-12-2.png)
 
-**美联储继续大量印钞已造成通货膨胀的经济，将造成全球经济的彻底崩溃。**
+**一则相关[报道](https://www.newsmax.com/finance/companies/haugen-facebook-oversight-board/2021/10/11/id/1040026/)。**
 
-**文贵先生预计，我们面临的绝不仅仅是“未来价格上涨”，很快我们将面临没水没电的至暗时刻！**
+**在一份[声明中](https://oversightboard.com/news/1232363373906301-oversight-board-to-meet-with-frances-haugen/)，监督委员会表示，鉴于前 Facebook 员工弗朗西斯·豪根 (Frances Haugen) 关于 Facebook “内容审核”的严重指控，董事会邀请这位数据科学家向委员会发言。**
 
-**中共是我们面临灾难的根源，如果华尔街和美国政客继续与中共勾兑下去，那一刻到来时就更具灾难性！**
+**在周一的一条[推文中](https://twitter.com/FrancesHaugen/status/1447617378402160642)，Haugen 说她已经接受了邀请——同时又投掷了一枚燃烧弹，声称“Facebook 一再向董事会撒谎，我期待与他们分享真相。”**
 
-（文章仅代表作者观点，与GNEWS无关）
+**“董事会成员很高兴有机会讨论 Haugen 女士的经历以及收集信息，并通过我们的案件决定和建议去帮助推动 Facebook 提高透明度和问责制，”董事会声明说。**
 
-**素材链接**：**[theepochtimes.com](https://www.theepochtimes.com/mkt_morningbrief/food-prices-hit-highest-level-in-a-decade_4040361.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-10-11&amp;mktids=f0856272e47cafb38ce64e1cd0b6fc8e&amp;est=kV3%2FUv26AQUsM4h19T8AChUZ9%2FtTdbfs4%2Fz%2B5Ljq3DjzG2yV%2B%2BRDAbbgo8Z5Hym6MPpo0A%3D%3D)**
+**声明补充说：“作为董事会，我们将继续向 Facebook 提出棘手的问题，并推动公司致力于提高透明度、问责制和公平性；最终，只有这样才能让 Facebook 用户相信他们得到了公平对待。”**
+
+**该声明宣称，社交媒体平台做出的选择“对全世界数十亿人的言论自由和人权产生了现实的影响”。**
+
+**“在这种情况下，社交媒体规则的透明度至关重要，”董事会表示。**
+
+**有一种董事会通过暗示 Haugen 冒头，将借助她向小扎“捅刀子”的感觉…**
+
+（文章仅代表作者观点与GNEWS无关）
+
+**新闻来源：**《[国家脉动](https://thenationalpulse.com/exclusive/unearthed-tweets-from-fb-whistleblower/)》｜作者：娜塔丽·温特斯&拉姆·卡萨布｜发布时间：2021年10月11日
 
 * * *
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+*发稿：信心的选择*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)

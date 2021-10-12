@@ -2,34 +2,39 @@
 ---
 
 
-## Bakkt Inks与谷歌签订协议&#8211;将使用加密货币进行实时交易
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1588642/)
+## 英国媒体转向：接种两剂疫苗的人实际上感染的是Covid-19
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1588671/)
 
 #### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Bakkt-holds-a-Series-B-funding-round-raises-over-300m.jpg)
-图片来源：invezz.com
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Alarming-gap-in-global-response-to-COVID-19.jpg)
+
+
+图片来源：iru.org
 
 整理报道：小红帽
 
-谷歌和总部位于美国的加密货币市场Bakkt建立了新的合作伙伴关系。两家公司于10月10日星期日宣布了这项交易。
+**近日英国媒体转向，引起了公众混乱。媒体现在声称，遭受严重感冒并 “已接种两剂疫苗 “的英国人实际上是感染了中共病毒（COVID-19）。**
 
-作为该协议的一部分，近1000万Bakkt用户将能够将他们的虚拟Visa借记卡与谷歌支付（Google Pay）关联起来，并使用比特币等加密货币在线购买商品和服务。
+英国最大的报纸之一《每日镜报》报道说：“患有严重感冒的英国人可能会在不知不觉的情况下感染了中共病毒，这可能使病毒继续传播。”
 
-一旦Bakkt卡与谷歌的支付服务相关联，加密货币将在付款时无缝转换为政府支持的法定货币。
+显然，那些报告遭受“有史以来最严重感冒”的人并不是因为社交距离和戴口罩导致免疫力降低，而是因为他们实际上感染了中共病毒。
 
-今年初，Bakkt发布了自己的Visa借记卡，为其用户提供基于加密货币的交易。通过该卡与谷歌支付的集成，当Bakkt用户通过加密货币支付所购买的东西时，与商品或服务相关的货币价值将转换为交易的法定货币。
+**这份报告令人困惑，因为它把普通感冒的症状与中共病毒等同起来。当****“****阴谋论者****”****说**** ****中共病毒只是流感时，他们受到诋毁，但显然媒体和政府专家做这种事是可以的。**
 
-根据Bakkt首席执行官加文·迈克尔（Gavin Michael）的说法，与谷歌支付的合作将使人们“以实时、安全、可靠的方式享受他们的数字资产”。
+其次，如果情况属实，该报告再次强调，**那些被****“****注射两剂中共病毒疫苗****”****的人仍感染**** ****中共病毒，并患有使人虚弱的疾病，这证明中共病毒疫苗几乎毫无作用。**
 
-作为合作伙伴关系的一部分，Bakkt 还将使用谷歌云（Google Cloud）作为其服务提供商，将其服务连接到美国各地的与加密货币相关的零售商和商家。
+然而，这个故事背后最可能的解释是，英国当局正在准备再次封锁，将普通感冒和流感病例标记为中共病毒，这样他们就可以在进入冬天时增加感染人数并制造更多歇斯底里。
 
-上周初，总部位于美国的连锁剧院AMC将狗狗币（Dogecoin）添加到加密货币列表中，与比特币和以太币一起作为支付方式。
+正如我们之前强调的那样，英国卫生当局在2月份荒谬地断言，到目前为止，2021 年没有记录到一例流感病例。
 
-在最近的一份报告中，美国银行 (BofA) 表示，支持和基于加密货币的行业见证了全球的大发展，使得这个空间“大到无法忽视”。
+然后利用这一点，认为口罩是流感完全消失的原因，并认为应该重新引入对口罩的强制要求。
+
+实际上，正如顶级流行病学家克努特·维特考斯基（Knut Wittkowski）所断言的那样，流感病例的大幅下降可能是由于许多人被错误地算作中共病毒病例。
 
 （文章内容仅代表作者个人观点，与GNEWS无关）
 
-**参考新闻：**[Bakkt Inks Deal with Google Use Cryptocurrency for Real Time Transactions | Technology News (ndtv.com)](https://gadgets.ndtv.com/cryptocurrency/news/bakkt-google-partnership-cryptocurrency-fiat-payments-2571287)
+**参考新闻：**[Media Now Claims That “Double Jabbed” Brits Who Have Bad Colds Are Actually Suffering From COVID – Summit News](https://summit.news/2021/10/11/media-now-claims-that-double-jabbed-brits-who-have-bad-colds-are-actually-suffering-from-covid/)
 
 ***编辑：小红帽******/******翼族*****
 *****发布：小红帽***
