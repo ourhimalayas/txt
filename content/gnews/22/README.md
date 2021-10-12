@@ -2,25 +2,27 @@
 ---
 
 
-## 俄外长称俄窃取阿斯利康配方的指控毫无根据
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1589566/)
+## 有声|尽管存在安全问题，默克公司要求FDA紧急批准COVID新药
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1589662/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+配音：香草山美食部 – 玫瑰园
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/A-4.jpg)archyde.com
-俄外长表示，“我记得在很多情况下阿斯利康会产生副作用——造成血栓等等。俄罗斯的卫星五号从来没有发生过这样的情况。”
+据[零对冲](https://www.zerohedge.com/covid-19/merck-asks-fda-emergency-approval-new-covid-drug-despite-safety-concerns)10月11日报道，尽管科学家们警告默克公司，该公司的新COVID药物可能有严重的有害副作用，如导致癌症和出生缺陷，默克公司还是正式向FDA提交了该药物-莫努匹拉韦（Molnupiravir），等待批准。如果它被批准，这将是第一个治疗冠状病毒的抗病毒药物。
 
-美东时间10月12日报道， 俄罗斯外交部长谢尔盖∙拉夫罗夫在访问哈萨克斯坦后的新闻发布会上表示，“关于俄罗斯从阿斯利康公司窃取冠状病毒疫苗配方以制造俄罗斯卫星5号疫苗的指控是毫无根据的。”
+《纽约时报》表示，该药物将彻底改变COVID的治疗方法，因为它能够以相对低廉的价格治疗更多罹患COVID的高危患者，但默克公司正计划向客户收取高达40倍的制造成本。
 
-拉夫罗夫称，“至于我们的英国和大多数西方伙伴，我认为没有人会认真对待这些毫无根据的指责。已经有很多毫无根据的指责，没有听说阿斯利康疫苗的制造商指责俄罗斯窃取疫苗配方。”
+尽管价格不菲，但各国甚至在该药物获得批准之前就已经开始排队与默克公司进行交易。目前，默克公司已经与美国政府以及韩国、新加坡、马来西亚、澳大利亚和其他国家达成了协议。据《纽约时报》报道，批准可能会在几周内到来。这样看来，廉价，安全和有效的伊维菌素和羟氯喹是不可能被批准使用了。
 
-外长补充说，“我记得在很多情况下阿斯利康会产生副作用——造成血栓等等。俄罗斯的卫星五号从来没有发生过这样的情况。”
+文字版原文：[尽管存在安全问题，默克公司要求FDA紧急批准COVID新药](https://gnews.org/zh-hans/1587918/)
 
-英国《太阳报》报道，阿斯利康的疫苗配方于10月11日被盗。该报援引美国情报机构的话说，俄罗斯从阿斯利康公司复制了这项技术，并将其用于制造俄罗斯卫星五号疫苗。
+音频处理：喜山必胜Maverick
 
-俄罗斯总统发言人德米特里∙佩斯科夫称《太阳报》“极不科学”。俄罗斯直接投资基金称，英国出版物的报道是 “基于匿名来源的无耻谎言”。
-
-参考链接：
-
-[https://www.rbc.ru/rbcfreenews/61654fa69a7947107550f1ca](https://www.rbc.ru/rbcfreenews/61654fa69a7947107550f1ca)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
