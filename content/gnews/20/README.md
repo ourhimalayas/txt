@@ -2,35 +2,45 @@
 ---
 
 
-## 德克萨斯州长全面禁止疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589534/)
+## 佐治亚州两工作人员因销毁选举文件被解雇
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1589652/)
 
-作者：在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-德州州长格雷格·阿博特（Greg Abbott）11日发布行政命令，全面禁止疫苗强制接种令，包括近期拜登政府对企业及员工下达的疫苗行政令。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-7.jpeg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/G-3.jpg)worldnewsera.com
+笔者一直担心，在大选审计呼声越来越高的形势下，舞弊欺诈实施者抵挡不住时，会继续铤而走险，销毁证据，演绎中共的套路。果不其然，佐治亚州在刚刚进行的市政选举中上演了这一幕，很少报道选举舞弊行为的福克斯对这一事件进行了跟踪。
 
-该命令标志着重大的转折，阿博特呼吁州议会将类似禁令纳入法条中，扩大对新冠疫苗强制性规定的打击面。阿博特称，人们享有自由选择权、宗教豁免和医疗自主权，私营企业决不接受被政府代表和强迫。目前德州立法机关正在进行第三次特别会议，该会议将于10月19日结束。
+《福克斯新闻》发表文章，“两名佐治亚州工作人员被指控粉碎投票申请文件后被解雇”，副标题称，这些指控发生在富尔顿（Fulton）郡居民准备在市政选举中投票的三周前。
 
-德州官员和人民一直在反抗霸凌政策的前线作战。8月25日，在FDA全面批准辉瑞毒针的第二天，阿博特就宣布行政令，禁止政府在德州强制推行新冠疫苗；并于9月初颁布《堕胎法案》努力阻止由大制药厂主导的暴力堕胎产业链，违反法规的诊所和医师将被起诉。辉瑞疫苗生产或检测过程中使用的肾细胞已是多年的事实，而HEK293细胞来自健康人类胚胎。
+全文如下：
 
-当前全世界处于深层超限战当中，爆料革命不间断的揭露病毒和疫苗真相，许多政府和组织开始严肃对待疫苗所带来的伤害和死亡问题。
+佐治亚州富尔顿郡的两名工作人员因被指控粉碎了数百份选民登记申请表而被解雇，促使佐治亚州州务卿布拉德·拉芬斯佩格（Brad Raffensperger）要求美国司法部进行调查。
 
-(本文仅代表作者观点)
+拉芬斯佩格在周一（10月11日）的新闻发布会上说：“在富尔顿郡的选举中经历了20年有据可查的失败之后，佐治亚人已经厌倦了等待，看看下一个令人尴尬的启示会是什么。司法部需要长期关注富尔顿郡正在做什么，以及他们的领导层如何通过无能和渎职而剥夺富尔顿选民的选举权，佐治亚州的选民对富尔顿郡的失败感到厌倦。”
 
-参考链接：[下令禁止企業強制接種疫苗 美德州州長：必須自願接種](https://news.ltn.com.tw/news/world/breakingnews/3700894)
-[Texas Gov. Greg Abbott bans any COVID-19 vaccine mandates — including for private employers](https://www.texastribune.org/2021/10/11/texas-greg-abbott-covid-19-vaccine-mandate/)
+根据富尔顿郡登记和选举主任理查德·巴伦（Richard Barron）发布的消息，这两名身份不明的雇员被指控粉碎了该郡收到的一批申请表而不是妥善处理这些申请。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+这些指控发生在富尔顿郡居民准备在市政选举中投票的三周前，所有被粉碎的申请表都是在过去两周内收到的。
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
+这两名工作人员周五（10月8日）被同事报告，并于当天晚些时候被解雇。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“选举是我们政府最重要的职能。” 富尔顿郡委员会主席罗布·皮特（Robb Pitts）在新闻稿中说，“我们致力于透明度和诚信。”
+
+除了要求联邦调查外，拉芬斯佩格说，州务卿办公室也已经对这起事件展开了调查。州务卿补充说，根据佐治亚州新的选举廉正法，这项审查“可能导致富尔顿郡选举的领导人被替换”。
+
+在调查试图确定哪些选民受到影响期间，那些认为自己的登记可能受到事件影响并且在选举日没有登记的人，将被允许进行临时投票。
+
+（全文完）
+
+大选欺诈舞弊还在揭露过程中，尝到舞弊甜头的富尔顿郡选举管理部门，在操控了2020年11月的大选、2020年末的参议员选举后，企图继续操控，而且发生在全国性的揭露大选舞弊的风口浪尖上，他们是何等的猖狂？
+
+疑似通共分子州务卿拉芬斯佩格是在表演，一来是想玩丢卒保车游戏，二来想分散对2020大选审计的注意力，为自己树立“廉洁公正”的形象。若想证明你是清白的只有一条路，按照“国家审计”方式，进行透明、经得起质疑和验证的审计，否则你拉芬斯佩格就是中共的一条狗！
+
+佐治亚州选举竟然出现销毁选举文件的“罪恶”，亚利桑那州也出现了删除大选数据的现象。可见美国的堕落，美国中共化的趋势。会不会继续堕落，出现当事人被消失的情况？令人担忧！
+
+（文章仅代表作者个人观点）
+
+原文链接：
+
+[https://www.foxnews.com/politics/two-georgia-workers-fired-after-being-accused-of-shredding-voting-applications](https://www.foxnews.com/politics/two-georgia-workers-fired-after-being-accused-of-shredding-voting-applications)

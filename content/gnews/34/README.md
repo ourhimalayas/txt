@@ -2,18 +2,87 @@
 ---
 
 
-## 中共发改委：有序放开全部燃煤发电上网电价
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1589374/)
+## 智梗无解
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1589431/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片5-1.png)[图片来源](https://www.aocai.com.au/wordpress/aocaiPost/tag/%E7%94%B5%E4%BB%B7)
-中共发改委发布关于进一步深化燃煤发电上网电价市场化改革的通知。通知提出，有序放开全部燃煤发电电量上网电价。燃煤发电电量原则上全部进入电力市场，通过市场交易在“基准价+上下浮动”范围内形成上网电价，现行燃煤发电基准价继续作为新能源发电等价格形成的挂钩基准。扩大市场交易电价价格浮动范围.将燃煤发电市场交易价格浮动范围由现在上浮不超过10%，下浮原则上不超过15%，扩大为上下浮动原则上不超过20%，高耗能企业市场交易电价不受上浮20%限制。电力现货价格不受上述幅度限制。
+**作者: 纽约香草山农场-新世界的一员**
 
-消息来源：中共发改委网站
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-5.jpg)
 
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/15-1.png)
+脑痛、腰痛、牙痛
+痛痛痛
+良药就在面前
+可是被拒绝
+被忽视
+被疑虑
+
+疫苗的毒可解
+人心的毒无解
+心梗、脑梗、肛梗
+有药可医
+智梗无解
+
+红旗飘飘杀人如麻
+蓝旗威力救人无数
+世人瞩目
+心明眼亮
+歼灭邪恶
+世人共鸣
+为何依然如此艰难？
+都只为短视人的短期目光
+
+蝇头之利的驱使
+罔顾天下之公德
+为短期不是利益的利益
+冒天下之大不韪
+勾兑毒酒者
+淡也是死
+浓也是死
+
+共产幽灵没有契约精神
+亲吻毒蛇者
+你信也是死
+不信也是死
+与魔鬼共舞者
+你爱也是死
+不爱也是死
+撑过了今天撑不过明天
+与虎谋皮
+等同于自寻死路
+
+魔兽出笼狂梦成真
+助长者万世遗臭
+不如来个鱼死网破
+临危不惧
+扬名于世
+智者见智
+仁者见仁
+
+指路明灯
+唯爆料革命
+不为钱财而心动
+不为名利而激动
+只为救人而行动！
+
+校对/编辑/发稿: Amanda艾曼达
+终审：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-4.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-5.jpg)

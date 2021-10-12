@@ -2,23 +2,31 @@
 ---
 
 
-## 针下亡魂｜法国 24 岁男医科生接种疫苗 10 日后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1589503/)
+## &#8220;世界上三种权力最重要，我们要有话语权&#8221;!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589555/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 12/10/2021**
+作者：文龍
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+今天文贵先生在盖特转发了他的一个视频片断，其中文贵先生称:
 
-***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
-![](https://assets.gnews.org/wp-content/uploads/2021/10/24-2.jpg)
-【法国】南特一名 24 岁的男医科学生 Anthony Rio 在接种完阿斯利康 COVID-19 疫苗的 10 日后突然死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-7.jpeg)
 
-Anthony 在接种疫苗后的几天内杳无音讯，他家人和朋友多次尝试联系，都未有回应，无奈之下，联系消防员帮忙，才发现 Anthony 已经死在他公寓的床上，相信是在睡梦中死去。
+“在欧洲意大利/法国，以及英国的工会，包括新加坡都在上街游行，美国也在罢工，但所有的媒体都不说这是因为疫苗引起的！这世界有三种权力，第一是货币发行权，掌握这个权力就控制了正义和邪恶的界定！第二是媒体话语权，可以颠倒黑白！最后就是第三种权力：枪杆子军队！全世界百姓都知道疫苗有副作用, 会死人，但不允许说，只是让你打疫苗。邪恶的势力远远超出了想象！拜金主义导致，钱似乎什么都能买，甚至要代表上帝!”
 
-经过尸检，他的死因是“血块引起的内出血”但尸检结果同时证实， Anthony 未患任何细菌、肿瘤或血管疾病，**医学专家的结论是“疫苗与该年轻人的死亡存在因果关系。”**
+文贵先生最后讲到最近习近平关于辛亥革命的讲话,  “世界一半在沉默，另一半的解读，不是喂料就是带风向，完全视2300万台湾人民的生命安全于不顾…..因此媒体话语权对我们来说太重要了!” —  而这正是爆料革命要拥有和建设我们自己的媒体平台: GTV/Gnews和盖特的原因。
 
-Anthony 的哥哥表示，“ Anthony 是一个非常聪明的人，平时非常注重健康饮食，喜欢运动，最重要的是，他没有病史，身体健康。”
+(本文仅代表作者观点)
 
-来源｜ [个案025](https://www.connexionfrance.com/French-news/Inquiry-into-death-of-student-who-had-Covid-jab-in-Nantes)
+参考链接：[https://gettr.com/post/pdvw3820a4](https://gettr.com/post/pdvw3820a4)
 
-* * *
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

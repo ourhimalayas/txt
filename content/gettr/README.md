@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/12/2021 7:42 PM (UTC)`
+
+10月12号：王岐山，和孟建柱．江志成……有关中国国有银行和金融机构的腐败……能查清楚1%，中国人的财政部，的国库，马上就会增加几倍以上净现金。不信咱们走着瞧……中南城的老杂毛……看文贵的视频后．现在冷静多了长大了。【美国《华尔街日报》引述知情人士称，中共总书记习近平向中纪委下指令，审查至少25家国有银行及其他金融机构，要求这些金融机构厘清与大型私营企业的关系。报道又指，金融业是国家副主席王岐山的势力范围，很多金融业高管都跟王岐山有密切关系；王岐山曾任行长的中国建设银行对海航的贷款，预计将成为新一轮审查的一部分。近几个月来，王岐山的政治影响力有所下降。他的一名长期助手在8月被指控受贿7100多万美元。据了解该计划的人士称，王岐山与一些现在面临审查的金融公司有联系。】
+![img](https://media.gettr.com/group46/getter/2021/10/12/19/2a1658f7-8856-e964-68bb-f404728861ec/4b1c9c412cc8d590718f7ed7f5136caa.jpg)
+
+---
+
 `@miles 10/12/2021 3:54 PM (UTC)`
 
 10月12号：在任何国家邪恶势力，面对大于他们力量的反抗的时候，他们一定会放弃，因为他们比谁都怕死，他们比谁都怕失败，这就是中国人民被共产党奴役了七十年根本的原因，因为中国人民从来不懂得反抗，当然永远不会被人们尊重，也不可能有自由和民主。【西南航空CEO说他从来不支持强制疫苗，是白等的行政令造成的。抗议是有效的👍】
@@ -287,13 +294,6 @@ Taiwan is in great danger: Xi Jinping addresses the 110 years anniversary of Xin
 
 20-8日：这帮孙子【七哥您好！华尔街几十分钟内的推，开始吹抗毒神药了。争抢疫情蛋糕的黑手们利益开始分割，等这个药正式批准后，所有投资者和相关利益者将变成最坚决的反疫苗成员。看这红线划的用词，牛吹得无边了，内核估计还是青蒿素：“早期数据显示这种神药是自从有疫苗以来“抗新冠最大的科学成就”。这篇发在个人观点栏目的正文就更厉害，第一句：随着FDA批准的钢笔抖一抖，今天将会拯钱数千性命。很少见华尔街日报上发表这么煽情的文字，即使在个人观点栏目也很少见。🙏🙏🙏🙏】
 ![img](https://media.gettr.com/group25/getter/2021/10/08/20/57/c58cc682-5d79-152f-ad9b-e2e959586eac/b8feab11528ecbf5014fc112779e5834.jpg)
-
----
-
-`@miles 10/8/2021 4:43 PM (UTC)`
-
-10/7/2021 Miles Guo: I persuaded a country’s leader to buy medicines like artemisinin for its citizens; The COVID vaccines are extremely profitable; Although big pharma companies claim to save people, they are paying people to get the jab through lobbying and also have the governments push vaccine mandate; Any decisions made by the CDC cannot deprive the people of their right to survival.<br/><br/>10/7/2021 文贵直播：七哥劝某国领导人给他们国家的公民买青蒿素等药物；冠状病毒疫苗一本万利；大药厂美其名曰救人，但却通过游说、给他人钱去打疫苗并让政府强制接种疫苗；美国疾控中心的任何决定都不能剥夺人们生存的权利！<br/>
-![img](https://media.gettr.com/group27/getter/2021/10/08/16/43/59901e57-bfb2-e0a4-0beb-a6e06f446291/out.jpg)
 
 ---
 

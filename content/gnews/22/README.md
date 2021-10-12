@@ -2,33 +2,25 @@
 ---
 
 
-## 暗批中共，英国寻求联合G20反对不公平贸易，改革WTO
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589508/)
+## 俄外长称俄窃取阿斯利康配方的指控毫无根据
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1589566/)
 
-作者：七哩香
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月11日，英国贸易大臣特里维廉，在即将于意大利举行的G20贸易部长会议召开之前发表了一份声明，表示她将敦促G20成员国停止扭曲市场的做法，并支持世界贸易组织的改革。
+俄罗斯莫斯科喀秋莎农场 星河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-19.jpeg)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/A-4.jpg)archyde.com
+俄外长表示，“我记得在很多情况下阿斯利康会产生副作用——造成血栓等等。俄罗斯的卫星五号从来没有发生过这样的情况。”
 
-声明称：“我们不能，而且也不会允许遵守规则的英国企业，受到其他国家扭曲市场做法的损害和削弱。”特里维廉将抨击“有害和扭曲”的产业补贴，她的部门曾用这种批评指责中共国。中国是G20成员，作为极具经济实力的大国，显然过度受益于将其视为“发展中经济体”的世贸组织规则。
+美东时间10月12日报道， 俄罗斯外交部长谢尔盖∙拉夫罗夫在访问哈萨克斯坦后的新闻发布会上表示，“关于俄罗斯从阿斯利康公司窃取冠状病毒疫苗配方以制造俄罗斯卫星5号疫苗的指控是毫无根据的。”
 
-意大利总理上周五也表示，他相信10月底举行的G20领导人会议将达成改革世贸组织的强有力承诺。
+拉夫罗夫称，“至于我们的英国和大多数西方伙伴，我认为没有人会认真对待这些毫无根据的指责。已经有很多毫无根据的指责，没有听说阿斯利康疫苗的制造商指责俄罗斯窃取疫苗配方。”
 
-(本文仅代表作者观点)
+外长补充说，“我记得在很多情况下阿斯利康会产生副作用——造成血栓等等。俄罗斯的卫星五号从来没有发生过这样的情况。”
 
-参考链接:[英国寻求召集20国集团反对不公平贸易做法并支持WTO改革](https://cn.reuters.com/article/g20-summit-trade-britain-idCNL6S2R707L)
-[英国寻求联合20国集团反对不公平贸易做法](https://www.voachinese.com/a/UK-trade-practices-G20-20211011/6266571.html)
+英国《太阳报》报道，阿斯利康的疫苗配方于10月11日被盗。该报援引美国情报机构的话说，俄罗斯从阿斯利康公司复制了这项技术，并将其用于制造俄罗斯卫星五号疫苗。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+俄罗斯总统发言人德米特里∙佩斯科夫称《太阳报》“极不科学”。俄罗斯直接投资基金称，英国出版物的报道是 “基于匿名来源的无耻谎言”。
 
-新闻访谈终审：FoxRina
-编辑/校正/发稿：谐趣园
+参考链接：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://www.rbc.ru/rbcfreenews/61654fa69a7947107550f1ca](https://www.rbc.ru/rbcfreenews/61654fa69a7947107550f1ca)
