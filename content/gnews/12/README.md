@@ -2,39 +2,51 @@
 ---
 
 
-## 美国情报官员称：美国无法“保卫台湾”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588687/)
+## 北约前秘书长称欧洲不能在美中制度竞争中当旁观者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588788/)
 
-作者：Andy5/文仁
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+作者：AsG諾雅
 
 
 
-10 月 10 日，在美国海军发布的新战略指南中，美方提及了中共的海军军力。对此，美国海军部长德尔托罗强调，将保持美国海军力量的优势，强化美军战备。同时，美国将把中共国、军队文化、气候变换与新冠疫情列为美国海军面对的四大挑战。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture44-1.jpg)
-就在10月9日，中共借助纪念辛亥革命110周年活动向台湾发出了咄咄逼人的战争恐吓，随后中共的媒体更是频频发出类似附和声调的文章。可见，中共的武装攻台是预谋已久，并且已经走到了战争的边缘。
 
-此前，郭先生在10月10日的爆料直播中透露出，中美在瑞士的会谈已经勾兑完毕，台湾作为一只待宰的羔羊被双方进行了交易。因此，深切希望台湾人民能尽早做好防御与自救的准备。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+
+
+
+
+
+
+
+10月10日，曾任北约秘书长和丹麦首相的安诺斯·福格·拉斯穆森在《华尔街日报》撰文表示，面临中共国军事、贸易、技术等各方面的挑战，自由世界必须团结起来，欧洲不能在这场自由与威权主义的斗争中做旁观者。欧洲人必须面对现实，美国打击北京的霸权运动是正确的，如果美国失去其在印太地区的主导地位，必将引发全球力量平衡的冲击波，也将吞噬欧洲。因此，美欧在印太地区应该合作，而不是竞争。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-64.jpg)
+他批评欧洲对中共国长期采取的重商主义政策，导致欧洲在经济上依赖中共国，让其得以运用经济胁迫来影响欧洲，使德法在美中激烈竞争时，仍急于在2020年底与中共国签署投资协定，然后被迫于几周后因被中共制裁而搁置该协议。以立陶宛今年夏天退出中共国17+1倡议，并坚定与民主台湾发展关系为例，鼓励其他欧洲国家采取类似举动。
+
+这场战争关系到子孙后代在民主世界还是共产主义世界中成长，欧洲不能再含糊其辞，应团结盟友直面来自中共国的挑战。
+
+信息链接：
+[北约前秘书长：欧洲的自满情绪加剧了中国挑战](https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20211011-%E5%8C%97%E7%BA%A6%E5%89%8D%E7%A7%98%E4%B9%A6%E9%95%BF-%E6%AC%A7%E6%B4%B2%E7%9A%84%E8%87%AA%E6%BB%A1%E6%83%85%E7%BB%AA%E5%8A%A0%E5%89%A7%E4%BA%86%E4%B8%AD%E5%9B%BD%E6%8C%91%E6%88%98)
 
 （本文仅代表作者观点）
 
-参考链接：
-1. [美国情报官员称：美国无法“保卫台湾”](https://finance.sina.com.cn/jjxw/2021-10-11/doc-iktzscyx9033603.shtml)
-2. [美国情报官员称：美国无法“保卫台湾”](https://finance.sina.com.cn/tech/2021-10-11/doc-iktzscyx8950493.shtml)
-3. [美国情报官员称：美国无法“保卫台湾”](https://www.zaobao.com.sg/news/world/story20211010-1201849)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
-
-新闻访谈终审：Q大哥
-编辑/校对/审核：Hetangyuese
+新闻访谈终审：Ryan
+编辑/校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

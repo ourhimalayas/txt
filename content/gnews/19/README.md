@@ -2,23 +2,40 @@
 ---
 
 
-## 摩根大通CEO直言比特币“毫无价值”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1588631/)
+## 卢比奥力赞台湾人民国际精神 谴责中共入侵
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588688/)
 
-俄罗斯莫斯科喀秋莎农场   DongDong
+作者：禹水沃土/晓仙女
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/D.jpg)marketscreener.com
-据路透社报道，周一（10 月 11 日）摩根大通 CEO 杰米·戴蒙 (Jamie Dimon) 在某个会议上公开表示，他认为“比特币毫无价值，并且必须被政府监管”。比特币大量用于暗网洗钱和黑市非法交易，给各国政府打击非法犯罪活动带来了巨大困难。
 
-戴蒙在国际金融协会（Institute of International Finance）的例行会议上表示，“不论人们如何看待比特币，政府都会对它进行监管。政府会出于反洗钱、银行保密法和税收目的对比特币的交易进行监管。”
 
-戴蒙周一的言论并未影响到周二比特币的市值（如图 1 所示）。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/B.png)图1 周二（10 月 12日）Coinbase 实时显示比特币的价格已达到 57,000美元
-截止亚洲时间周二（10 月 12 日），比特币已经达到57000美元，而且有继续上涨的趋势，接近历史高点约 60,000 美元。事实上，比特币是世界上最受欢迎的加密货币，目前市值超过 1 万亿美元。与其他一些加密货币不同，最终流通的比特币数量是有上限的。
 
-尽管大多数人都认为比特币的价值正是它“只有 2100 万个的稀缺性”，但戴蒙表示：“我要挑战另一件事，你怎么知道最后是2100万枚？你们都看过算法了吗？你们都相信吗？我不知道，我一直对这类事情持怀疑态度。”
 
-参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
 
-[JPMorgan’s Dimon blasts bitcoin as ‘worthless’, due for regulation – Reuters – 10/12/2021](https://www.reuters.com/business/jpmorgans-dimon-blasts-bitcoin-worthless-due-regulation-2021-10-11/)
+
+
+
+
+台湾成立110周年之际，美国资深参议员 马可·卢比奥，谴责北京入侵台湾领空，并就两国关系发表了声明，对台湾多加赞赏。卢比奥称，即使在最困难的地缘政治环境下，台湾保持充满活力的民主，为世界经济提供动力，并表示对持久友谊和进一步加强两国关系的期望。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture55.jpg)
+去年疫情爆发后，中共在各地买断并囤积防护用品，导致个人防护品严重缺乏，而台湾鼎力援助，对国际社会慷慨捐赠，让美国更加意识到台湾参与国际事务的重要性。 虽然中共持续压缩台湾的国际空间，8月6日，美 国会参议院以“一致同意”的方式，通过 力挺台湾参与世界卫生组织的法案。
+
+虽然瑞士会谈，拜登对台湾问题跟中共国达成了利益勾兑，而此时卢比奥的声明，显得尤为可贵。在台湾生死存亡之际，每一个正义的呼声都很重要，希望更多的力量能够凝聚起来，守护台湾的民主和国家主权。
+
+（本文仅代表作者观点）
+
+参考链接：[卢比奥力赞台湾人民国际精神 谴责中共入侵](https://www.rubio.senate.gov/public/index.cfm/2021/10/rubio-commemorates-anniversary-of-taiwan-s-national-day)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+
+新闻访谈终审：暗黑
+编辑/校对/审核：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

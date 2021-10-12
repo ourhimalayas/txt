@@ -2,33 +2,46 @@
 ---
 
 
-## 沃尔玛突宣：全球供应商业务部从中共国搬到印度
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1588574/)
+## 英国媒体转向：接种两剂疫苗的人实际上感染的是Covid-19
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1588671/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/下载-3.jpg)
-据中国零售信息2021年10月11日报道，10月9日沃尔玛突然宣布，将其全球供应商业务总部从中共国搬到印度。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-沃尔玛1996年在中共国深圳开设了第一家沃尔玛门店。沃尔玛目前在全国100多个城市设有400多家商场、20多家家配送中心。但从2016年到2020年，沃尔玛在国内关闭了80家门店；2021年以来，其关店数量已经达到两位数。
-
-沃尔玛此次搬迁，正是中共国本土超市崛起，外资商超没落的结果。沃尔玛数次被曝销售过期食品，使得消费者对其产生了信任危机。2018年，沃尔玛尝试过社区店，相当于“开在居民家门口的沃尔玛”。但同时各社区团购、生鲜电商企业的竞争，也抬高了社区店的成本。“沃尔玛社区店”微信公众号，自2020年10月30日起再没更新过任何内容。
-
-但与此形成反差的是，山姆会员店仍在扩张。今年8月，山姆会员店号称“亚洲最大的旗舰店”在上海开业。山姆会员店25年在中共国总共开出30多家门店。但直到2021年，沃尔玛才开始从官方层面表示要加速扩张。
-
-沃尔玛入华25个年头，官方评价说消费者已经感受不到新鲜感，中共国不缺“新物种”。但这也是全球脱钩、外资撤离中共国的一个信号。无独有偶，类似家乐福、麦德龙也正在退出中共国市场。
-
-新闻参考链接：[https://c.m.163.com/news/a/GM05S4GT05445BQZ.html?spss=newsapp](https://c.m.163.com/news/a/GM05S4GT05445BQZ.html?spss=newsapp)
-
-编辑：胖丁
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Alarming-gap-in-global-response-to-COVID-19.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+图片来源：iru.org
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+整理报道：小红帽
+
+**近日英国媒体转向，引起了公众混乱。媒体现在声称，遭受严重感冒并 “已接种两剂疫苗 “的英国人实际上是感染了中共病毒（COVID-19）。**
+
+英国最大的报纸之一《每日镜报》报道说：“患有严重感冒的英国人可能会在不知不觉的情况下感染了中共病毒，这可能使病毒继续传播。”
+
+显然，那些报告遭受“有史以来最严重感冒”的人并不是因为社交距离和戴口罩导致免疫力降低，而是因为他们实际上感染了中共病毒。
+
+**这份报告令人困惑，因为它把普通感冒的症状与中共病毒等同起来。当****“****阴谋论者****”****说**** ****中共病毒只是流感时，他们受到诋毁，但显然媒体和政府专家做这种事是可以的。**
+
+其次，如果情况属实，该报告再次强调，**那些被****“****注射两剂中共病毒疫苗****”****的人仍感染**** ****中共病毒，并患有使人虚弱的疾病，这证明中共病毒疫苗几乎毫无作用。**
+
+然而，这个故事背后最可能的解释是，英国当局正在准备再次封锁，将普通感冒和流感病例标记为中共病毒，这样他们就可以在进入冬天时增加感染人数并制造更多歇斯底里。
+
+正如我们之前强调的那样，英国卫生当局在2月份荒谬地断言，到目前为止，2021 年没有记录到一例流感病例。
+
+然后利用这一点，认为口罩是流感完全消失的原因，并认为应该重新引入对口罩的强制要求。
+
+实际上，正如顶级流行病学家克努特·维特考斯基（Knut Wittkowski）所断言的那样，流感病例的大幅下降可能是由于许多人被错误地算作中共病毒病例。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Media Now Claims That “Double Jabbed” Brits Who Have Bad Colds Are Actually Suffering From COVID – Summit News](https://summit.news/2021/10/11/media-now-claims-that-double-jabbed-brits-who-have-bad-colds-are-actually-suffering-from-covid/)
+
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

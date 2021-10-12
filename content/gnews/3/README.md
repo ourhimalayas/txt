@@ -2,57 +2,27 @@
 ---
 
 
-## 破除科学界的“权威”迷信，越来越多医务人员挺身而出揭露真相
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588794/)
+## 自英国开始接种中共病毒疫苗后 青少年男孩的死亡人数剧增
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1588869/)
 
-作者：晓仙女
+#### 编译：Grace
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-34.jpg)图片来源：Marhaba
+据 The Expose 网站10 月4日报道, 英格兰和威尔士国家统计局ONS的官方调查数据显示，**自英格兰和威尔士向青少年提供并注射中共病毒疫苗以来，这些地区的青少年男孩的死亡人数上升了****63%****，其中有一周的死亡人数的增幅高达****700%****。**
 
+数据记录显示，截至2021年6月27日，在英格兰和威尔士，超过147,000名18岁以下的人接受了至少一剂中共病毒疫苗。
 
+据报道，相比较2020年和2021年的 “英格兰和威尔士每周死亡登记”发现，**2021****年****5****月****7****日至****2021****年****9****月****17****日期间，****15****岁及以上青少年的死亡人数比****2020****年的同时间段的该年龄组的死亡人数高出****46%**，而死亡人数的增加的时间段恰恰是与青少年开始接种中共病毒疫苗的的时间段是一致的。
 
+报道指出，自从年轻人和青少年开始接受中共病毒疫苗注射以来，英格兰公共卫生局公布的关于因心脏骤停而拨打急救电话999的数据与预期的平均数相比急剧上升，**英格兰和威尔士的国家统计局的数据宣示，英格兰青少年男孩的死亡人数占青少年的死亡人数的大部分。**
 
+**男性青少年死亡的最大增幅出现在截至****2021****年****9****月****3****日的一周，男性青少年死亡人数增加了****700%****，但女性青少年死亡人数仅增加了****17%****。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+报道称，**目前英格兰和威尔士约有****300****万****12****岁以上的青少年被接种了中共病毒疫苗。自从英格兰和威尔士开始接种中共病毒疫苗以来，男性青少年的死亡人数增加了****63%**。
 
+在2021年7月份，英国的医药和保健品管理局公开承认，他们怀疑特别是在年轻男性中，心肌炎和心包炎是辉瑞和莫得纳疫苗的潜在副作用。而且**英国医药监管机构在中共病毒疫苗的安全标签上正式增加关于心肌炎和心包炎的警告**。
 
+**新闻来源：**
 
-
-
-
-
-近日，美国印第安纳州学校董事会，一位功能性家庭医学医生的演讲表示：他认为国家卫生局疾病控制中心提出的理论，跟科学规则是相违背的。
-
-他提出两个重要观点：
-
-一、中共病毒和其它呼吸道病毒一样，一年四季都会存在，并不会消失。
-
-二、SARS爆发时，所有疫苗的动物实验都失败了，实际上呼吸道病毒无法研究出疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-48.jpg)
-这位医生还说：他用补充维生素D、伊维菌素和锌，治疗了15名新冠患者，死亡风险可以下降到目前美国水平的四分之一。
-
-越来越多的事实证明，新冠疫苗无效且有毒，而爆料革命一直传播的羟氯喹、伊维菌素、青蒿素等药物，才能在人类生死存亡阶段，真正起到扭转乾坤的作用！
-
-参考链接:
-[@MilesGuoLive盖特：#1010文贵大直播 精品小視頻 以科學方法破除新冠疫苗的迷思 #疫苗真相 澳洲墨尔本澳洲雅典娜農場（#澳雅农场）出品](https://gettr.com/post/pdtcblb724)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：Ryan
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+1. [**Investigation: Deaths among Teenage Boys have increased by 63% in the UK since they started getting the Covid-19 Vaccine according to ONS data**](https://theexpose.uk/2021/10/04/teen-boy-deaths-increased-by-63-percent-since-they-had-covid-vaccine/)
+2. [COVID-19 vaccines: updates for July 2021](https://www.gov.uk/drug-safety-update/covid-19-vaccines-updates-for-july-2021#further-information-on-reports-of-myocarditis-and-pericarditis)

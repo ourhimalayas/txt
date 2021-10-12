@@ -2,23 +2,53 @@
 ---
 
 
-## 秘翻在线：台湾拥有核武器？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1588770/)
+## 中共不计成本欲毁掉G系列，新中国联邦开展法律反击
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588838/)
 
-#### 撰稿：彩虹
+作者：Zion文恩
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-2-6.jpg)图片来源：红板报
-10月11日，《新闻极限》(Newsmax)记者玛丽莎·赫尔曼（Marisa Herman）发布文章，围绕中共是否对台湾入侵的相关问题做了梳理，其中提到说台湾早已拥有了核武器装置。
 
-文章报道，对于中共会不会入侵台湾。中国问题专家章家敦（Gordon Chang）说：“如果你告诉我第三次世界大战下周开始，我不会惊讶。如果你告诉我什么也不会发生，我也不会惊讶。中共发誓要统一台湾的言论并不是空洞的威胁，但目前还不清楚中共是否会通过一场灾难性的军事行动来达成这个目的。”
 
-而传统基金会（Heritage Foundation）高级研究员、美国空军老兵约翰·维纳布尔（John Venable）指出，中共国在10月4日派出创纪录的65架战机，“基本上具备了对一个地区或区域进行全面攻击所需的一切。”
 
-文章特别报道，虽然台湾早已经实行了几项发展大规模杀伤性武器的计划，但从来没有公开承认自己拥有这种（核）装置。据报道，在中共国于1964年进行第一次核试验后，台湾开始致力于制造核武器。尽管报道说台湾在20世纪70年代为该计划生产了钚，但官方的说法是，美国最终迫使台北在1976年正式停止了这项研究。而其他报告显示，（台湾）核研究一直秘密进行到1980年代。
 
-尽管如此，许多人认为台湾已经悄悄地建立了战术核弹头的储备，如果使用，将使中共国遭受重击，并能有助击退中共人民解放军的海路入侵。已故的中子弹之父萨姆·科恩（Samuel T. Cohen）告诉记者，台湾有这种武器的储备，他曾亲自向台湾军事人员介绍过这些武器的使用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-**新闻来源**
 
-[China’s Big Problem: Taiwan Likely Has Nuclear Weapons](https://www.newsmax.com/newsfront/china-taiwan-nuclear-weapons/2021/10/11/id/1040003/)
+
+
+
+
+
+当地时间10月11日，郭文贵先生在盖特视频中，揭露了中共当局正在不计一切成本，展开对G系列超限战的事实。
+
+郭先生说，过去两周以来，中共内部的战友们多次反映，中共灭爆小组已下达明确指示，要在近期不惜一切代价，阻止喜币的上市，同时要展开对G-TV、Gnews 、盖特和G-CLUBS的司法超限战。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-34.jpg)
+自2020年原G-TV私募伊始，中共便启用了大量海外的统战、情报力量，对G系列极尽造谣、诋毁之能事，并向各美国法院提交对G系列的虚假诉讼；以致1300名早期投资者的款项至今被冻结。
+
+经过一年多的准备，爆料革命和新中国联邦已开展对中共及其幕后邪恶势力的法律回击。在过去因投资G系列而遭受银行账户冻结、拒绝服务的广大战友们，请保存好各种文字、语音证据，并向所在喜马拉雅农场取得联系，加入这场维护华人利益的法律反击战。
+
+参考链接: 
+[郭先生盖文： 10月11号：刚才的视频大家的反应有卡顿，我再重发一次。](https://gettr.com/post/pdttfc3253)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Ryan
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

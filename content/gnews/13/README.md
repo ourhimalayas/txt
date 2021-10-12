@@ -2,30 +2,37 @@
 ---
 
 
-## 中共国军方发布抢滩登陆实战演练视频
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588686/)
+## 加拿大卑诗省坎贝尔河男子接种新冠疫苗后突发癫痫
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1588774/)
 
-作者：文一
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
-【路透社】10 月 11 日消息，中共军方周一表示，在与台湾隔海相望的省份进行了抢滩登陆和突击演习。中共方视频消息声称，演习是 “最近几天 “在福建省南部地区进行的，视频中士兵演习内容包括乘坐小船冲进海滩，投掷烟雾弹，冲破铁丝网，在沙地上挖掘战壕等。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture33-2.jpg)
-此前，中共国经常在其沿海地区和有争议的南中国海进行军事演习。 台湾谴责中共政府对其采取的胁迫性策略，并表示如果受到攻击，将进行自卫反击。
+温哥华扬帆农场 – 翻译： LuLu1312
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211011-LuLu13121-加拿大卑诗省坎贝尔河男子接种新冠疫苗后突发癫痫.jpg)
+加拿大卑诗省坎贝尔河一名男子突发癫痫导致他在医院使用了五天的基础生命维持机器。他希望医生能找到他突发癫痫的病因。
 
-（本文仅代表作者观点）
+Nelson的妻子因为没有收到他早上通常发的短信，于是决定午休下班回家看看他。妻子发现他躺在沙发上“抱怨整个早上感觉身体不适，家里的狗一直在向我叫，我感觉不舒服。”
 
-参考链接：
-1. [中共国军方发布抢滩登陆实战演练视频](https://www.dw.com/zh/%E5%8F%B0%E6%B5%B7%E5%B1%80%E5%8A%BF%E4%B8%AD%E5%9B%BD%E5%86%9B%E6%96%B9%E5%8F%91%E5%B8%83%E6%8A%A2%E6%BB%A9%E7%99%BB%E9%99%86%E5%AE%9E%E6%88%98%E6%BC%94%E7%BB%83%E8%A7%86%E9%A2%91/a-59472142)
-2. [中共国军方发布抢滩登陆实战演练视频](https://www.reuters.com/world/asia-pacific/china-says-it-carried-out-beach-landing-drills-province-opposite-taiwan-2021-10-11/)
+“……我开始含糊其词，然后在沙发上开始抽搐，” Nelson说。他记得的下一件事却是四天后在维多利亚的重症监护室醒来。
 
-![This image has an empty alt attribute; its file name is M10-4.png](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+“我不记得去医院，只是一切都模糊了。我什么都不记得了……”Nelson说。
 
-新闻访谈终审：Q大哥
-编辑/校对/审核：Hetangyuese
+在医院，他被置于诱导昏迷的状态。在此期间，每次医生试图对他解除镇静时，他都开始抽搐。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+他接受了一系列测试——脑电图、核磁共振、脊髓液、新冠病毒——一切都正常。
+
+Nelson在 7 月 26 日接种了第一剂 Moderna 疫苗，就在他突发癫痫的前几天。
+
+Nelson成功从昏迷中苏醒后，他的手臂血管破裂（来自疫苗区域的血块）。他几乎无法行走，右眼下垂，身体疼痛，神经受到髋关节挤压，还有肺炎和呼吸管引起的肺部感染和膀胱感染。
+
+“我选择接种我的第一个疫苗，因为我希望生活再次尝试并尽可能正常，”Nelson说。 “我只是想为社区尽自己的一份力量，阻止病毒的传播。”
+
+Nelson说自己是一名健康的 26 岁男性，每天和他的狗一起跑 4 到 5 公里，吃得健康，不抽烟不喝酒。他不是反疫苗者，但是他觉得和大家共享他打了疫苗的简历很重要。
+
+他的家庭医生告诉他，他们对注射的情况了解得不够多。维多利亚综合医院的神经科医生 “强烈建议我不要接种第二种疫苗。”
+
+原文链接：
+
+[https://www.campbellrivermirror.com/news/medical-professionals-spend-four-days-trying-to-stop-campbell-river-mans-seizures-after-receviving-covid-19-vaccine/](https://www.campbellrivermirror.com/news/medical-professionals-spend-four-days-trying-to-stop-campbell-river-mans-seizures-after-receviving-covid-19-vaccine/)
+
+*编审：**abbs*
+
+*发布：**shuang*

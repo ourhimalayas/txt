@@ -2,40 +2,57 @@
 ---
 
 
-## 卢比奥力赞台湾人民国际精神 谴责中共入侵
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588688/)
+## 破除科学界的“权威”迷信，越来越多医务人员挺身而出揭露真相
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588794/)
 
-作者：禹水沃土/晓仙女
-
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+作者：晓仙女
 
 
 
 
 
-台湾成立110周年之际，美国资深参议员 马可·卢比奥，谴责北京入侵台湾领空，并就两国关系发表了声明，对台湾多加赞赏。卢比奥称，即使在最困难的地缘政治环境下，台湾保持充满活力的民主，为世界经济提供动力，并表示对持久友谊和进一步加强两国关系的期望。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture55.jpg)
-去年疫情爆发后，中共在各地买断并囤积防护用品，导致个人防护品严重缺乏，而台湾鼎力援助，对国际社会慷慨捐赠，让美国更加意识到台湾参与国际事务的重要性。 虽然中共持续压缩台湾的国际空间，8月6日，美 国会参议院以“一致同意”的方式，通过 力挺台湾参与世界卫生组织的法案。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-虽然瑞士会谈，拜登对台湾问题跟中共国达成了利益勾兑，而此时卢比奥的声明，显得尤为可贵。在台湾生死存亡之际，每一个正义的呼声都很重要，希望更多的力量能够凝聚起来，守护台湾的民主和国家主权。
+
+
+
+
+
+
+近日，美国印第安纳州学校董事会，一位功能性家庭医学医生的演讲表示：他认为国家卫生局疾病控制中心提出的理论，跟科学规则是相违背的。
+
+他提出两个重要观点：
+
+一、中共病毒和其它呼吸道病毒一样，一年四季都会存在，并不会消失。
+
+二、SARS爆发时，所有疫苗的动物实验都失败了，实际上呼吸道病毒无法研究出疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-48.jpg)
+这位医生还说：他用补充维生素D、伊维菌素和锌，治疗了15名新冠患者，死亡风险可以下降到目前美国水平的四分之一。
+
+越来越多的事实证明，新冠疫苗无效且有毒，而爆料革命一直传播的羟氯喹、伊维菌素、青蒿素等药物，才能在人类生死存亡阶段，真正起到扭转乾坤的作用！
+
+参考链接:
+[@MilesGuoLive盖特：#1010文贵大直播 精品小視頻 以科學方法破除新冠疫苗的迷思 #疫苗真相 澳洲墨尔本澳洲雅典娜農場（#澳雅农场）出品](https://gettr.com/post/pdtcblb724)
 
 （本文仅代表作者观点）
 
-参考链接：[卢比奥力赞台湾人民国际精神 谴责中共入侵](https://www.rubio.senate.gov/public/index.cfm/2021/10/rubio-commemorates-anniversary-of-taiwan-s-national-day)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
-
-新闻访谈终审：暗黑
-编辑/校对/审核：Hetangyuese
+新闻访谈终审：Ryan
+编辑/校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

@@ -2,57 +2,33 @@
 ---
 
 
-## 系列事实打脸福奇疫苗安全有效说
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588826/)
+## 台湾有望加入TPP，强化日台联盟抵消中共国的影响力
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1588877/)
 
-作者：文一
+东京樱花团｜作者：捆绑CCP一千年
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/台湾有望加入TPP.png)[*图片来源*](https://s.newtalk.tw/album/news/641/614c1ca1e795d.jpg)
 
+据[日本雅虎新闻网12日消息](https://news.yahoo.co.jp/articles/3173a855ad7b8bd2bbc6f2df75b46b9d51549e2a)称：台北市日本工商会8日发布2021年白皮书。其中刊载对台湾政府的强烈要求，即努力加入跨太平洋伙伴关系（TPP）和其他经济伙伴协议，并取消对日本食品的进口限制。
 
+在台日本工商会表示，“由于日本是2009年 TPP 的主席国，希望台湾积极推进谈判，不要错过这次机会。”
 
+日本方面表示，日台有一个共同点，即能源资源稀缺，日本在新能源、节能、脱碳等方面的专业知识可双方共享。要求台湾政府为日本新能源发电厂在台湾的发展提供许可证和执照等行政程序支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+另据日本经济产业大臣萩田浩一12日在[内阁新闻发布会上表示，在日本建立半导体制造基地是“极其重要的国策”](https://news.yahoo.co.jp/articles/eff1a3eb421a554899ff545f8b2b9cae82f120cf)。日本经济产业大臣萩田表示，半导体是支撑日本制造的“核心”部分。
 
+对于全球最大的半导体生产承包商台积电（TSMC）与索尼集团开始考虑在熊本县共同建设新的半导体工厂的报道。“萩田认为：“这是个别公司的情况，”并重申在日本拥有先进半导体制造基地“极其重要”。“我们正在考虑政府内部的各种选择。”
 
+日本经济产业大臣萩田上述表述显然有担心台积电的加入削弱日本制造半导体的努力，并且台积电会很容易被中共所控制。但台积电目前是全球第一代代工半导体生产工厂，而[台积电在日本索尼的而支持下，“正在考虑在熊本县建设半导体工厂的计划](https://news.yahoo.co.jp/articles/27f3c97fc5cfd652dcb087cbf3e991726b4731ce)，”这将加强日本与台湾之间的合作。
 
+不过，台积电将在熊本建立代工工厂后，该工厂的目标是在 2024 年开始量产。该生产线目前将只生产 20 纳米单位内的芯片，（1 纳米 = 十亿分之一米的范围）。这一考虑受制于台积电和三星电子最先进的10纳米芯片的合作。“
 
+日本经济新闻解释说熊本工厂的生产线将采用老一代的技术。”计划“[总投资约8000亿日元，但预计日本政府最多会支持其中的一半](https://news.yahoo.co.jp/articles/27f3c97fc5cfd652dcb087cbf3e991726b4731ce)。”
 
+2021年10月12日
 
+（本文只代表个人观点，与Gnews网站无关）
 
-针对福奇鼓吹疫苗安全有效的说法，Gateway Pundit新闻网今日罗列系列事实予以抨击，力证完全接种疫苗的人比未接种疫苗的人更容易感染中共病毒。
-
-英国的最新数据显示，30岁以上的每个年龄组中，接种疫苗者感染率都超过未接种疫苗者。
-
-新加坡的疫苗接种率在世界排名第五，接种率超过80%，但病毒突破性感染连续四天大幅增加。至2021年10月8日，共记录了3590个新感染病例，是目前该国最高的新增病例记录。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-33.jpg)
-另外数据显示，65岁及以上的疫苗接种率高达80%，但71%的新冠病例为完全接种者。
-
-对此疾控中心主任和左派喉舌罗谢尔-瓦伦斯基博士也承认，疫苗不能防止病毒的传播。
-
-Gateway Pundit 新闻网由此尖锐指出坚决不能相信福奇所说的任何一个字。
-
-参考链接：
-[Factcheck: Dr. Fauci’s Claim that the “Highly Effective and Safe Vaccine” Prevents Individual from Getting Infected with COVID-19 is FALSE (VIDEO)](https://www.thegatewaypundit.com/2021/10/factcheck-dr-faucis-claim-highly-effective-safe-vaccine-prevents-individual-getting-infected-covid-19-false-video/)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：Ryan
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+*校对：东京樱花团 / 文小白*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
