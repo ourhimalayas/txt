@@ -2,23 +2,17 @@
 ---
 
 
-## 秘翻在线：川普：我们很可能最终与中共国开战
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1588986/)
+## 意大利地方当局230亿欧元的缺口
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1589034/)
 
-#### 撰稿：彩虹
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10121-1.jpg)
+欧盟地区委员会发出了警报称大流行给意大利地方当局的金库留下了 228 亿欧元的缺口。2020年大流行给意大利地方政府带来的打击是沉重的：在应对紧急情况的主要支出费用和因危机造成的收入损失之间被挤压，从记录的损失的绝对值来看仅次于德国。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-27.jpg)图片来源：CNN
-10月11日，《新闻极限》（newsmax）发布报道，指前总统川普称，如果他还在白宫，就不会发生中共威胁台湾的事情。
+委员会主席 Apostolos Tzitzikostas 警告说，所有这些可能导致公共服务削减，除非欧盟和国家基金紧急提供更多资源来支持当地项目和计划。如果意大利政府的金库有 230 亿欧元的缺口，这相当于损失了约 9% 的收入。
 
-在川普总统周六晚上参加爱荷华州的集会上台前，《新闻极限》记者约翰·巴赫曼（John Bachman）就中共国习近平叫嚣“统一台湾”一事采访了他。
+免责申明：本文只代表译者观点，与Gnews无关
 
-川普说：“我非常了解他（习近平），在我当政的四年里，他从来没有谈过‘占领台湾’。我可以告诉你，如果我们现在仍然在白宫当政，他也不会那样说。通过阿富汗灾难，由于政府的无能造成十三名年轻战士失去了宝贵的生命，他（习近平）清清楚楚地看到了我们（政府）的巨大无能和软弱。首先将军人撤出，然后丢弃掉世界上最好的价值8500万美元的军事装备，这是一个耻辱。中国和俄罗斯已经开始对我们遗弃在阿富汗的军事装备进行反向工程，从而自己建造相关军事装备。”
+原文链接：[https://www.ansa.it/sito/notizie/mondo/2021/10/12/covid-regioni-ue-allarme-buco-di-23-miliardi-per-gli-enti-locali-in-italia-\_a39dac53-3deb-4dbe-b37d-97fa398f3884.html](https://www.ansa.it/sito/notizie/mondo/2021/10/12/covid-regioni-ue-allarme-buco-di-23-miliardi-per-gli-enti-locali-in-italia-_a39dac53-3deb-4dbe-b37d-97fa398f3884.html)
 
-川普指出，中共并不是唯一一个从乔·拜登（Joe Biden）自阿富汗撤出军队事件中看到（美国政府）无能的国外力量。“无论是习近平还是俄罗斯总统普京，还是其他任何看到这个事件的人，都会彻底失去对我们国家的尊重。”
-
-川普称：“我们很可能最终与不尊重美国的中共国开战。”
-
-**新闻来源**
-
-[Trump: China Wouldn’t Threaten Taiwan Under My Administration](https://www.newsmax.com/newsfront/trump-china-taiwan-xi-jinping/2021/10/11/id/1040001/)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦

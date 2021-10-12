@@ -2,17 +2,19 @@
 ---
 
 
-## 意大利地方当局230亿欧元的缺口
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1589034/)
+## 秘翻在线：年轻的海军陆战队队员宁死也不接种中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1589089/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10121-1.jpg)
-欧盟地区委员会发出了警报称大流行给意大利地方当局的金库留下了 228 亿欧元的缺口。2020年大流行给意大利地方政府带来的打击是沉重的：在应对紧急情况的主要支出费用和因危机造成的收入损失之间被挤压，从记录的损失的绝对值来看仅次于德国。
+#### 翻译/撰稿：zzballack
 
-委员会主席 Apostolos Tzitzikostas 警告说，所有这些可能导致公共服务削减，除非欧盟和国家基金紧急提供更多资源来支持当地项目和计划。如果意大利政府的金库有 230 亿欧元的缺口，这相当于损失了约 9% 的收入。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-3-2.jpg)图片来源：Military Times
+据《网关专家》（Gateway Pundit）10月11日报道，一位自称是海军陆战队士兵的匿名年轻人在网络上发布了一段视频，他在视频中概述了如果军人不遵从乔·拜登的独裁和反科学的疫苗强制令，会受到哪些潜在惩罚。
 
-免责申明：本文只代表译者观点，与Gnews无关
+这位年轻人首先阅读了疫苗强制令的最新信息，这些信息可以在海军陆战队的官网上找到。然后他说：“你可以申请两种疫苗豁免，分别是医疗豁免和宗教豁免。但问题是，如果你的豁免没有得到批准，将被再次要求接种中共病毒疫苗。如果继续拒绝接种疫苗，那么所受的待遇跟其他拒绝打疫苗的人一样。每个拒绝接受这种治疗的人都将受到普通军事法庭（General Court-Martial）的传唤，他们将决定你的命运。普通军事法庭可以执行最高级别的军事司法，他们有权对任何案子被提交到普通军事法庭的人判刑，最高甚至可判死刑。”
 
-原文链接：[https://www.ansa.it/sito/notizie/mondo/2021/10/12/covid-regioni-ue-allarme-buco-di-23-miliardi-per-gli-enti-locali-in-italia-\_a39dac53-3deb-4dbe-b37d-97fa398f3884.html](https://www.ansa.it/sito/notizie/mondo/2021/10/12/covid-regioni-ue-allarme-buco-di-23-miliardi-per-gli-enti-locali-in-italia-_a39dac53-3deb-4dbe-b37d-97fa398f3884.html)
+视频最后，这位勇敢的海军陆战队队员直视镜头，向他将在军事法庭上面对的人警告说：“无论谁最终负责我的案子，我要说的是，我拒绝接受这种疗法是因为它是错的。你要知道，相较于把这种东西注入我的身体，我更乐意死去。”
 
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
+相较于马克·米利 (Mark Milley)那个美国的耻辱和叛徒，这位年轻人是一个真正的英雄，展现了我们军人应该捍卫的东西：自由和解放!
+
+新闻来源：[SHOCKING VIDEO: Marine Exposes Possible Punishment For Refusing To Follow Biden’s Mandate!](https://www.thegatewaypundit.com/2021/10/shocking-video-marine-exposes-possible-punishment-refusing-follow-bidens-mandate/)

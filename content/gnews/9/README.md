@@ -2,21 +2,40 @@
 ---
 
 
-## 秘翻在线：医院拒绝向未接种疫苗的患者进行器官移植手术
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1589097/)
+## 美参议员：英格兰Delta死亡病例，仅28%未接种疫苗
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1589179/)
 
-#### 翻译/撰稿：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/cleveland-clinic-logo.png)图片来源：food-management
-根据每日邮报 (Daily Mail)10月12日的报道，奥罗拉的科罗拉多大学健康中心(UCHealth)此前因一位妇女拒绝接种中共病毒疫苗，将其肾脏移植机会剥夺后，这件事情成为当时的头条。如今克利夫兰诊所（Cleveland Clinic）要效仿前者，表示将不再向未接种中共病毒疫苗的患者提供器官移植。
+台湾宝岛农场 zhong
+翻译、字幕/台湾宝岛农场
+[Senator Ron Johnson](https://www.ronjohnson.senate.gov/2021/9/sen-johnson-for-the-washington-times-mandates-are-exacerbating-social-divisions-and-will-only-increase-pandemic-harms)于佛州议院：
 
-克利夫兰诊所解释称，改变政策的原因是患者在接受新器官移植后，必须要服用抑制免疫力的药物，以防止身体产生排斥。另外未接种中共病毒疫苗的人也不能成为活体器官的捐赠者，因为担心中共病毒可能会在进行手术的过程中传播。
+这报告包括英格兰的新增病例，从2月至9月12日。这些数据显示，英国再七个半月中，新增约75万名新冠确诊病例，其中约有60万是Delta变种病毒（占新增感染总数八成）。
 
-诊所的声明中详细解释到，器官移植对捐赠者并不是没有危险，在手术过程中和恢复期间预防感染中共病毒是至关重要的。而且卫生专家已经发现，中共病毒可以通过器官移植传染给接受者。在接受器官后接受者通常服用抑制免疫力的药物，这个阶段短则6个月，长则终生服用。这些药物削弱了接受者的免疫系统，导致他们很难对抗中共病毒。
+Delta变种病毒中死亡人数是2542人，得出死亡率0.4%。Delta变种病毒死亡率高于其他新冠病毒。但其实以许多种感染案例从未被纪录过。
 
-声明中也表示，由于服用抑制免疫力的药物，即便是接种了中共病毒疫苗，也可能使疫苗不起作用。约翰霍普金斯大学(Johns Hopkins University)的一项研究发现，近期接受肾脏移植的人在接种中共病毒疫苗后没有产生病毒抗体，研究结论是每五个接受肾脏移植并接种中共病毒疫苗的人，仅有不到一人的概率会对疫苗起反应，产生病毒抗体。但最新研究发现，器官接受者在接种中共病毒疫苗加强剂后出现了病毒抗体，这就是克利夫兰诊所决定禁止未接种疫苗的人接受器官移植的原因。
+在流感最严重的季节，流感死亡率为0.2%。是新冠病毒Delta变种的一半。然而，拜登总统等政府都被新闻、媒体戏弄了，说我们正在面临“未接种疫苗的人所引起的瘟疫大流行”。而这些新闻媒体并没有提出任何数据佐证。
 
-克利夫兰诊所表示，病人的健康和安全是我们的首要任务，所以我们制定了活体器官移植的安全协议，只有接种中共病毒疫苗后才能成为器官移植的候选人或器官的捐赠者。目前已经在等待移植名单里的患者必须在11月1日之前完成中共病毒疫苗的接种，否则他们将被从等待名单中删除。
+新闻、媒体在没有科学性数据的前提，宣称现在99%感染是尚未接种新冠疫苗者造成的。但是我们有来自英格兰的数据，在60万Delta变种病毒感染者，有27%是完全接种者，另外30%包括接种过一剂与无法确定者。
 
-在文章开始提到的科罗拉多大学的案例中，莱拉妮·卢塔利（Leilani Lutali）是一名基督信徒，由于她不同意接种中共病毒疫苗，所以医院不批准给她进行肾脏移植手术。卢塔利表示：“胎儿的细胞被用作开发疫苗，这违背了她的基督教信仰。” 胎儿细胞系是上世纪70年代和80年代收集的流产胎儿细胞为基础的实验室培养的细胞，许多流行的药物以及针剂都是由此研发的。卢塔利告诉美联社：“作为一个基督徒，我不能支持任何与堕胎有关的事情，生命的神圣性对我来说很宝贵。”
+引述拜登总统言论：如果你接种了疫苗，你就不会住院、不会去加护病房、不会死、不会感染新冠病毒。
 
-新闻来源：[Cleveland Clinic joins Colorado Hospital and says it will stop performing organ transplants for unvaccinated people due to fears of recipients being vulnerable to Covid](https://www.dailymail.co.uk/health/article-10081605/Cleveland-Clinic-stop-performing-organ-transplants-unvaccinated-people.html)
+拜登总统对于接种新冠疫苗具有防疫效用的说法，以英格兰的调查数据，并不可信。在60万Delta变种病毒感染者，超过2500人死亡，死亡总数的63%（1613人）已经完全接种了疫苗。仅有28%的死亡病例，没有接种疫苗。
+
+现在这个信息可能是美国人民，从未听说的。（指英格兰有非常高比例的疫苗接种者仍感染、死亡）
+
+因为，只要把疫苗不具有预防新冠病毒效用，更不会预防重症、死亡结果发生，就会被攻击、被诽谤、被审查、被压制。至于我来到佛州议院的原因就是为了将英格兰的统计数据，让美国人民知道。
+
+
+
+> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) says this is a pandemic of the unvaxxed. 
+> 
+> Data from England show 63% of Delta deaths in last 7.5 months were fully vaxxed. 
+> 
+> Why won’t [@CDCgov](https://twitter.com/CDCgov?ref_src=twsrc%5Etfw) share US data with the American people? 
+> 
+> What is the justification of mandates and refusal to recognize natural immunity? [pic.twitter.com/p3hA1eTiWZ](https://t.co/p3hA1eTiWZ)
+> — Senator Ron Johnson (@SenRonJohnson) [October 1, 2021](https://twitter.com/SenRonJohnson/status/1443777704994672644?ref_src=twsrc%5Etfw)
+
+
+
+* * *
