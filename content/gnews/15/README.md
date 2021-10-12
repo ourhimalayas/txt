@@ -2,35 +2,25 @@
 ---
 
 
-## 德克萨斯州长全面禁止疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589534/)
+## 俄外长称俄窃取阿斯利康配方的指控毫无根据
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1589566/)
 
-作者：在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-德州州长格雷格·阿博特（Greg Abbott）11日发布行政命令，全面禁止疫苗强制接种令，包括近期拜登政府对企业及员工下达的疫苗行政令。
+俄罗斯莫斯科喀秋莎农场 星河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-7.jpeg)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/A-4.jpg)archyde.com
+俄外长表示，“我记得在很多情况下阿斯利康会产生副作用——造成血栓等等。俄罗斯的卫星五号从来没有发生过这样的情况。”
 
-该命令标志着重大的转折，阿博特呼吁州议会将类似禁令纳入法条中，扩大对新冠疫苗强制性规定的打击面。阿博特称，人们享有自由选择权、宗教豁免和医疗自主权，私营企业决不接受被政府代表和强迫。目前德州立法机关正在进行第三次特别会议，该会议将于10月19日结束。
+美东时间10月12日报道， 俄罗斯外交部长谢尔盖∙拉夫罗夫在访问哈萨克斯坦后的新闻发布会上表示，“关于俄罗斯从阿斯利康公司窃取冠状病毒疫苗配方以制造俄罗斯卫星5号疫苗的指控是毫无根据的。”
 
-德州官员和人民一直在反抗霸凌政策的前线作战。8月25日，在FDA全面批准辉瑞毒针的第二天，阿博特就宣布行政令，禁止政府在德州强制推行新冠疫苗；并于9月初颁布《堕胎法案》努力阻止由大制药厂主导的暴力堕胎产业链，违反法规的诊所和医师将被起诉。辉瑞疫苗生产或检测过程中使用的肾细胞已是多年的事实，而HEK293细胞来自健康人类胚胎。
+拉夫罗夫称，“至于我们的英国和大多数西方伙伴，我认为没有人会认真对待这些毫无根据的指责。已经有很多毫无根据的指责，没有听说阿斯利康疫苗的制造商指责俄罗斯窃取疫苗配方。”
 
-当前全世界处于深层超限战当中，爆料革命不间断的揭露病毒和疫苗真相，许多政府和组织开始严肃对待疫苗所带来的伤害和死亡问题。
+外长补充说，“我记得在很多情况下阿斯利康会产生副作用——造成血栓等等。俄罗斯的卫星五号从来没有发生过这样的情况。”
 
-(本文仅代表作者观点)
+英国《太阳报》报道，阿斯利康的疫苗配方于10月11日被盗。该报援引美国情报机构的话说，俄罗斯从阿斯利康公司复制了这项技术，并将其用于制造俄罗斯卫星五号疫苗。
 
-参考链接：[下令禁止企業強制接種疫苗 美德州州長：必須自願接種](https://news.ltn.com.tw/news/world/breakingnews/3700894)
-[Texas Gov. Greg Abbott bans any COVID-19 vaccine mandates — including for private employers](https://www.texastribune.org/2021/10/11/texas-greg-abbott-covid-19-vaccine-mandate/)
+俄罗斯总统发言人德米特里∙佩斯科夫称《太阳报》“极不科学”。俄罗斯直接投资基金称，英国出版物的报道是 “基于匿名来源的无耻谎言”。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+参考链接：
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://www.rbc.ru/rbcfreenews/61654fa69a7947107550f1ca](https://www.rbc.ru/rbcfreenews/61654fa69a7947107550f1ca)

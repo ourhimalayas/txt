@@ -2,31 +2,45 @@
 ---
 
 
-## &#8220;世界上三种权力最重要，我们要有话语权&#8221;!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589555/)
+## 佐治亚州两工作人员因销毁选举文件被解雇
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1589652/)
 
-作者：文龍
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-今天文贵先生在盖特转发了他的一个视频片断，其中文贵先生称:
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-7.jpeg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/G-3.jpg)worldnewsera.com
+笔者一直担心，在大选审计呼声越来越高的形势下，舞弊欺诈实施者抵挡不住时，会继续铤而走险，销毁证据，演绎中共的套路。果不其然，佐治亚州在刚刚进行的市政选举中上演了这一幕，很少报道选举舞弊行为的福克斯对这一事件进行了跟踪。
 
-“在欧洲意大利/法国，以及英国的工会，包括新加坡都在上街游行，美国也在罢工，但所有的媒体都不说这是因为疫苗引起的！这世界有三种权力，第一是货币发行权，掌握这个权力就控制了正义和邪恶的界定！第二是媒体话语权，可以颠倒黑白！最后就是第三种权力：枪杆子军队！全世界百姓都知道疫苗有副作用, 会死人，但不允许说，只是让你打疫苗。邪恶的势力远远超出了想象！拜金主义导致，钱似乎什么都能买，甚至要代表上帝!”
+《福克斯新闻》发表文章，“两名佐治亚州工作人员被指控粉碎投票申请文件后被解雇”，副标题称，这些指控发生在富尔顿（Fulton）郡居民准备在市政选举中投票的三周前。
 
-文贵先生最后讲到最近习近平关于辛亥革命的讲话,  “世界一半在沉默，另一半的解读，不是喂料就是带风向，完全视2300万台湾人民的生命安全于不顾…..因此媒体话语权对我们来说太重要了!” —  而这正是爆料革命要拥有和建设我们自己的媒体平台: GTV/Gnews和盖特的原因。
+全文如下：
 
-(本文仅代表作者观点)
+佐治亚州富尔顿郡的两名工作人员因被指控粉碎了数百份选民登记申请表而被解雇，促使佐治亚州州务卿布拉德·拉芬斯佩格（Brad Raffensperger）要求美国司法部进行调查。
 
-参考链接：[https://gettr.com/post/pdvw3820a4](https://gettr.com/post/pdvw3820a4)
+拉芬斯佩格在周一（10月11日）的新闻发布会上说：“在富尔顿郡的选举中经历了20年有据可查的失败之后，佐治亚人已经厌倦了等待，看看下一个令人尴尬的启示会是什么。司法部需要长期关注富尔顿郡正在做什么，以及他们的领导层如何通过无能和渎职而剥夺富尔顿选民的选举权，佐治亚州的选民对富尔顿郡的失败感到厌倦。”
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+根据富尔顿郡登记和选举主任理查德·巴伦（Richard Barron）发布的消息，这两名身份不明的雇员被指控粉碎了该郡收到的一批申请表而不是妥善处理这些申请。
 
-编辑/校正/发稿：谐趣园
+这些指控发生在富尔顿郡居民准备在市政选举中投票的三周前，所有被粉碎的申请表都是在过去两周内收到的。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这两名工作人员周五（10月8日）被同事报告，并于当天晚些时候被解雇。
+
+“选举是我们政府最重要的职能。” 富尔顿郡委员会主席罗布·皮特（Robb Pitts）在新闻稿中说，“我们致力于透明度和诚信。”
+
+除了要求联邦调查外，拉芬斯佩格说，州务卿办公室也已经对这起事件展开了调查。州务卿补充说，根据佐治亚州新的选举廉正法，这项审查“可能导致富尔顿郡选举的领导人被替换”。
+
+在调查试图确定哪些选民受到影响期间，那些认为自己的登记可能受到事件影响并且在选举日没有登记的人，将被允许进行临时投票。
+
+（全文完）
+
+大选欺诈舞弊还在揭露过程中，尝到舞弊甜头的富尔顿郡选举管理部门，在操控了2020年11月的大选、2020年末的参议员选举后，企图继续操控，而且发生在全国性的揭露大选舞弊的风口浪尖上，他们是何等的猖狂？
+
+疑似通共分子州务卿拉芬斯佩格是在表演，一来是想玩丢卒保车游戏，二来想分散对2020大选审计的注意力，为自己树立“廉洁公正”的形象。若想证明你是清白的只有一条路，按照“国家审计”方式，进行透明、经得起质疑和验证的审计，否则你拉芬斯佩格就是中共的一条狗！
+
+佐治亚州选举竟然出现销毁选举文件的“罪恶”，亚利桑那州也出现了删除大选数据的现象。可见美国的堕落，美国中共化的趋势。会不会继续堕落，出现当事人被消失的情况？令人担忧！
+
+（文章仅代表作者个人观点）
+
+原文链接：
+
+[https://www.foxnews.com/politics/two-georgia-workers-fired-after-being-accused-of-shredding-voting-applications](https://www.foxnews.com/politics/two-georgia-workers-fired-after-being-accused-of-shredding-voting-applications)

@@ -2,21 +2,19 @@
 ---
 
 
-## 美日澳印展开联合军演 旨在防范中共国恶意扩张
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1589345/)
+## 最后通牒&#8211;加拿大魁省将强停所有未接种疫苗护士的工作！
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1589403/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/C5C1540B-808C-4D99-B200-ADF9C72729E3_w1080_h608.jpg)美日澳印展开联合军演 旨在防范中共国恶意扩张 网络图片
-据美国之音报道，美国、日本、澳大利亚和印度10月12日开始在孟加拉湾展开2021年马拉巴尔（Malabar) 年度军演的第二阶段演习。马拉巴尔年度军演越来越被人们视为四方安全对话机制Quad的联合军演，目的是遏制中共国的恶意扩张，四国联手以保护自己及其盟友不受中共国的“剥削、腐蚀和胁迫”。
-
-新闻参考链接：[https://www.voachinese.com/a/quad-naval-exercise-20211012/6267058.html](https://www.voachinese.com/a/quad-naval-exercise-20211012/6267058.html)
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/dube-nurses-quebec-edited.jpg)魁省卫生部长：杜贝和反疫苗护照的医护人员
+图片来源：thepostmillennial
 
 
-编辑：【英国伦敦喜庄园编辑部】
+加拿大自媒体《千禧年报》10月11日刊文称，魁北克护士协会主席马蒂厄当日宣布，尽管必须接种首剂加拿大卫生部批准的COVID19疫苗之最后期限为10月15日，但他仍将提前吊销所有那些尚未完全接种该疫苗护士的从业执照。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+据悉，在魁省护士协会的80,500名护士中，至今仍有4,338人没有充分接种该疫苗，其中有2807名护士则完全没有接种。省长杜贝日前表示，虽然该省面临约4300名全职护士的大量短缺，以及因此而导致的对公共卫生系统的严重影响，但当局仍然决定对约15000名尚未接种该疫苗的医护人员停薪留职，直至他们证明已完全接种了为止。
+
+与此同时，代表未接种医护人员的律师马诺尔则表示，已向高等法院提出申诉，要求魁省卫生部立即停止将于10月15日强制执行的该停职措施。此外，拒绝接种的医护人员称，大量已接种该疫苗的人仍被COVID19感染，以及接种后所导致的严重副作用是他们拒绝接种的主要原因。并强调，宪法规定每个人都有权对自己的身体健康做出决定。
+
+（以上内容仅代表原文信息和作者个人观点）
+
+[原文链接：](https://thepostmillennial.com/quebec-faces-nursing-shortage)
