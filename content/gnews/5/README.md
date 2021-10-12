@@ -2,37 +2,23 @@
 ---
 
 
-## 摩根大通：比特币“一文不值” ，政府很快进行监管
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1589408/)
+## 针下亡魂｜法国 24 岁男医科生接种疫苗 10 日后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1589503/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/AlekseyIvanov-Bitcoin-1000x600-1.jpg)图片来源：crypto-news-flash.com
-#### 整理报道：小红帽
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 12/10/2021**
 
-摩根大通（ JPMorgan）首席执行官杰米·戴蒙（Jamie Dimon）周一表示，比特币“一文不值”，政府将很快对数字货币进行监管。
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
+![](https://assets.gnews.org/wp-content/uploads/2021/10/24-2.jpg)
+【法国】南特一名 24 岁的男医科学生 Anthony Rio 在接种完阿斯利康 COVID-19 疫苗的 10 日后突然死亡。
 
-这是他对有争议性的数字货币的最新攻击。他之前曾登上无数头条新闻，称这项新技术为“欺诈”和“傻瓜的黄金”。
+Anthony 在接种疫苗后的几天内杳无音讯，他家人和朋友多次尝试联系，都未有回应，无奈之下，联系消防员帮忙，才发现 Anthony 已经死在他公寓的床上，相信是在睡梦中死去。
 
-戴蒙周一在国际金融研究所主办的一次活动上发表了该讲话。
+经过尸检，他的死因是“血块引起的内出血”但尸检结果同时证实， Anthony 未患任何细菌、肿瘤或血管疾病，**医学专家的结论是“疫苗与该年轻人的死亡存在因果关系。”**
 
-尽管戴蒙批评比特币，摩根大通已开始为客户提供六种加密货币产品。
+Anthony 的哥哥表示，“ Anthony 是一个非常聪明的人，平时非常注重健康饮食，喜欢运动，最重要的是，他没有病史，身体健康。”
 
-包括高盛（ Goldman Sachs）和花旗集团（Citigroup）在内的其他老牌机构也寻求扩大其在该领域的足迹。高盛允许某些客户通过衍生产品交易加密货币，而花旗集团正在寻求通过基金开始交易加密货币。
+来源｜ [个案025](https://www.connexionfrance.com/French-news/Inquiry-into-death-of-student-who-had-Covid-jab-in-Nantes)
 
-**摩根士丹利是第一家允许客户交易加密货币的银行，现在它甚至将自己的资金投入到投机性币中。**
+* * *
 
-但是戴蒙加入了抨击数字货币的商界和政界领袖的行列。前总统唐纳德·特朗普（Donald Trump）在8月份猛烈抨击加密货币。**对冲基金经理约翰·保尔森（John Paulson）也是如此，他预测加密货币将“归零”。**
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[JPMorgan chief Jamie Dimon says bitcoin is ‘worthless’ (nypost.com)](https://nypost.com/2021/10/11/jpmorgan-chief-jamie-dimon-says-bitcoin-is-worthless/)
-
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//

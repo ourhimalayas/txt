@@ -2,16 +2,32 @@
 ---
 
 
-## GETTR现场直击：日本新冠疫苗国家诉讼原告律师被强制退庭
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1589115/)
+## 一箭双雕！ 习近平开始整肃墙内金融业
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589180/)
 
-记者：文拓
-作者：文顺
+作者：云豹
 
-日本方舟农场GETTR团队前线记者传来信息，当地时间10月12日17时许，日本新冠疫苗受害者国家诉讼案两位原告律师之一的木原功仁哉先生被强制退庭。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-“我在陈述中说到选举问题，法官认为与疫苗诉讼无关。”木原先生向记者陈述事情经过：“由于我不接受，继续说选举，所以法官命令我退庭，我没有退庭，所以被拖出了法庭。”
 
-木原先生表示，之所以坚持说选举，是因为“这次疫苗的本质上就是政治选举问题”。目前，诉讼还在继续进行，但木原先生对结果并不乐观，他说：“单纯靠诉讼是无法停止疫苗注射的！”
 
-[lilyLEE 小李在大阪 on GETTR](https://gettr.com/post/pdvuqr1107)
+华尔街日报11日报导，迹象显示习近平正在将整肃目标转向金融业。在9月26日的中纪委会议上，中共常委、中央巡视小组组长赵乐际，要求对建设银行、农业银行、中信集团、光大集团等25家金融机构进行检查。包括贷款文件、投资和监管纪录等，并要求说明与私营公司间的交易决策的细节。 如有涉嫌参与不当交易者，将面临正式调查，甚至检控；行为不当的机构则将被处罚。 此外巡视小组特别指示，这次巡视将深入挖掘25家受检金融单位中的党委组织及其成员，在履行党内所交付职责上是否存在”政治偏差”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1012-AM-（1-3）.001.jpeg)
+显而易见，习近平此次大规模金融行业的”核查”，表面上是要整顿所谓”脱序的金融秩序”，背后的真实目的则是继续打击并接管政治对手的金融版图和势力。 而中共的专制独裁和集权体制无任何改变，依然没有法治只有人治，永远不会有”健康安全”的金融体制。
+(本文仅代表作者观点)
+
+参考链接：[美媒：習近平整頓民企 風暴掃向中國金融業](https://www.cna.com.tw/news/aopl/202110120013.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

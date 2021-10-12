@@ -2,30 +2,35 @@
 ---
 
 
-## 国际油价一路走高，高盛花旗喊出90美元目标
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1589477/)
+## 德克萨斯州长全面禁止疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589534/)
 
-撰稿：东京樱花团/上善若水
+作者：在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+德州州长格雷格·阿博特（Greg Abbott）11日发布行政命令，全面禁止疫苗强制接种令，包括近期拜登政府对企业及员工下达的疫苗行政令。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/国际油价一路走高，高盛花旗喊出90美元目标.png)[图片来源](https://parstoday.com/zh/news/world-i34420)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-7.jpeg)
 
-继天然气之后，大宗商品之王原油近期持续走高。高盛、花旗相继喊出90美元的目标价，如今距离这一目标已越来越近。
+该命令标志着重大的转折，阿博特呼吁州议会将类似禁令纳入法条中，扩大对新冠疫苗强制性规定的打击面。阿博特称，人们享有自由选择权、宗教豁免和医疗自主权，私营企业决不接受被政府代表和强迫。目前德州立法机关正在进行第三次特别会议，该会议将于10月19日结束。
 
-在OPEC+宣布维持原定增产计划的背景下，多数业内人士认为油价短期内易涨难跌。还有部分机构提醒投资者要警惕“滞胀”。高盛、花旗看涨油价至90美元。
+德州官员和人民一直在反抗霸凌政策的前线作战。8月25日，在FDA全面批准辉瑞毒针的第二天，阿博特就宣布行政令，禁止政府在德州强制推行新冠疫苗；并于9月初颁布《堕胎法案》努力阻止由大制药厂主导的暴力堕胎产业链，违反法规的诊所和医师将被起诉。辉瑞疫苗生产或检测过程中使用的肾细胞已是多年的事实，而HEK293细胞来自健康人类胚胎。
 
-据最新媒体报道，花旗预计，布伦特原油今年冬天可能会达到90美元/桶。这与此前高盛的预测不谋而合。高盛大宗商品全球主管Jeff Currie日前在接受彭博采访时表示，今年冬天石油每桶价格可能飙升至90美元。
+当前全世界处于深层超限战当中，爆料革命不间断的揭露病毒和疫苗真相，许多政府和组织开始严肃对待疫苗所带来的伤害和死亡问题。
 
-高盛在研报中提出，飓风“艾达”抵消了自7月份以来的OPEC+增产，而目前页岩油产量依然维持较低状态。随着北半球进入冬季，全球天然气的严重短缺将推高燃油发电的需求。高盛同时表示，疫情期间积累的原油库存正以450万桶/天的创纪录速度快速消耗。全球原油库存或在年底前降至2013年以来的最低水平。不过高盛也警告，假如美伊最终达成协议，国际油价在2022上半年可能面临短线下跌风险。新的变体病毒的出现也会增加全球经济复苏的不确定性。
+(本文仅代表作者观点)
 
-值得一提的是，在本月4日举行的OPEC+第21次部长级会议上，与会各国决定维持逐步增产方案。欧佩克官方声明称，将11月的月度总产量上调日均40万桶。 　　北京时间10月12日，国际原油期货在亚洲交易时段呈现震荡走势，布伦特原油主力12月合约报价在83.5美元/桶附近，WTI原油主力合约报价在80.2美元/桶附近。两大国际原油期货今年来累计涨幅都超过了60%。
+参考链接：[下令禁止企業強制接種疫苗 美德州州長：必須自願接種](https://news.ltn.com.tw/news/world/breakingnews/3700894)
+[Texas Gov. Greg Abbott bans any COVID-19 vaccine mandates — including for private employers](https://www.texastribune.org/2021/10/11/texas-greg-abbott-covid-19-vaccine-mandate/)
 
-消息来源：
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-[能源危机真的来了？国际油价一路走高，高盛、花旗喊出90美元目标，机构：警惕”滞胀”](https://news.stcn.com/sd/202110/t20211012_3751343.html)
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
 
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

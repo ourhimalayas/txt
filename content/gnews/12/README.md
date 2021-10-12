@@ -2,29 +2,37 @@
 ---
 
 
-## 秘翻在线：继开除党籍公职后，“政法虎”王立科被正式批捕
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1589319/)
+## 摩根大通：比特币“一文不值” ，政府很快进行监管
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1589408/)
 
-**撰稿：葛大饼**
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/AlekseyIvanov-Bitcoin-1000x600-1.jpg)图片来源：crypto-news-flash.com
+#### 整理报道：小红帽
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-12-210725.jpg)
-根据2021年10月12日新浪报道，最高人民检察院今日依法以涉嫌受贿罪、行贿罪对王立科作出逮捕决定。
+摩根大通（ JPMorgan）首席执行官杰米·戴蒙（Jamie Dimon）周一表示，比特币“一文不值”，政府将很快对数字货币进行监管。
 
-王立科曾任江苏省委原常委、政法委原书记，他任职历经辽宁省、江苏省两地，且长期在公安系统任职。根据最高检披露王立科涉嫌的罪名包括：受贿罪、行贿罪，特权思想严重，篡改、伪造个人档案，卖官鬻爵，严重破坏任职地区政法系统公安系统的政治生态；在党内搞“团团伙伙”，从未对党忠诚老实；纵容、默许亲属利用其职权谋取私利，腐化堕落，大搞钱色交易；长期为黑恶势力充当“保护伞”，还曾经想停播电视剧《人民的名义》等。
+这是他对有争议性的数字货币的最新攻击。他之前曾登上无数头条新闻，称这项新技术为“欺诈”和“傻瓜的黄金”。
 
-江苏省委书记娄勤俭对此表示，要时刻牢记自己的第一身份是共产党员，始终相信组织、依靠组织、服从组织，自觉接受组织的监督管理和纪律约束。
+戴蒙周一在国际金融研究所主办的一次活动上发表了该讲话。
 
-G-news曾经报道王立科是孟建柱的马仔，甚至敢刺杀习，他的主动投案并未被从轻处理。从去年投案到现在才做出逮捕决定，历经一年时间，王立科不知道供出了多少内幕和“团团伙伙”。习开始收拾上海帮和江苏帮了！
+尽管戴蒙批评比特币，摩根大通已开始为客户提供六种加密货币产品。
 
-**[新闻来源](https://news.sina.cn/gn/2021-10-12/detail-iktzqtyu0942243.d.html?from=wap)**
+包括高盛（ Goldman Sachs）和花旗集团（Citigroup）在内的其他老牌机构也寻求扩大其在该领域的足迹。高盛允许某些客户通过衍生产品交易加密货币，而花旗集团正在寻求通过基金开始交易加密货币。
 
+**摩根士丹利是第一家允许客户交易加密货币的银行，现在它甚至将自己的资金投入到投机性币中。**
 
+但是戴蒙加入了抨击数字货币的商界和政界领袖的行列。前总统唐纳德·特朗普（Donald Trump）在8月份猛烈抨击加密货币。**对冲基金经理约翰·保尔森（John Paulson）也是如此，他预测加密货币将“归零”。**
 
-> [秘翻在线：主动投案的王立科“问题”不寻常](https://gnews.org/zh-hans/1551984/)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
+**参考新闻：**[JPMorgan chief Jamie Dimon says bitcoin is ‘worthless’ (nypost.com)](https://nypost.com/2021/10/11/jpmorgan-chief-jamie-dimon-says-bitcoin-is-worthless/)
 
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-关键词： 王立科被逮捕，上海帮，江苏帮
-
-**摘要：**最高人民检察院依法以涉嫌受贿罪、行贿罪对王立科作出逮捕决定。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
