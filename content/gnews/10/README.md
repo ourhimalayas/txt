@@ -2,36 +2,30 @@
 ---
 
 
-## 北京上海两派相争 冥诞登城楼者有去无回
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589213/)
+## 中共国洪水泛滥：因煤矿关闭导致煤炭价格创下新高
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1589258/)
 
-作者：安吉拉
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月7日宁波平安银行挤兑事件后，泰国首富谢国民，及家人加入中国籍的新闻又被炒上平台。中共百年冥诞登城楼者和台下广场嘉宾，如今所剩无几，外界猜测，“登城观礼”为虚，“当地扣押”为实，这些企业家和富豪此行之后已被软禁或边控。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1012-AM-（1-3）.005.jpeg)
-谢国民是曾经泰国首富，其父亲谢易初创立了正大集团。正大集团是改开后第一家在内地投资的外资企业，取得深圳市“0001号”营业执照。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2018-08-27T131501Z_3_LYNXNPEE7Q02R_RTROPTP_4_CHINA-DIDI-700x420-4.jpg)中国山西省最近几天遭受洪水袭击 GETTY IMAGES
 
-旗下综艺节目《正大综艺》，特为中共间谍杨澜开拓国际市场而创立。谢国民侄女谢其润是新冠疫苗生产商之一，中国生物制药有限公司，董事会主席。2013年，正大出资全面收购汇丰股份，成为平安集团最大股东。今年上半年，中信证券担任保荐机构，正大集团提交主板IPO给上海交易所受理，农牧和制药两大板块同时准备进入A股，即人民币交易股票市场。
+**摘要翻译：**中共国发电厂使用的煤炭价格飙升至历史新高，因为该国另一个主要矿区遭受洪水袭击。继7月创纪录的洪水袭击了河南矿区之后，最近几天大雨袭击了中共国最大的煤炭生产省山西。郑州商品交易所动力煤周二上涨超过了10%。
 
-中共百年冥诞登城楼者，有 恒大许家印，小米创始人雷军。美团CEO王兴，水滴创始人沈鹏也受邀嘉宾席，如今逐一暴雷。面对习派的几波进攻，江派在是否回击方面颇为犹豫。
-(本文仅代表作者观点)
+洪水使中共国为缓解日益加深的能源危机而增加燃料供应的努力进一步复杂化。甚至在洪水之前，中共国就已经面临能源短缺并导致全国大部分地区停电。
 
-参考链接：
+据报道，上周五北京下令中共国的煤矿提高产量。动力煤价格的最新上涨是在周一已经上涨 12% 的基础上进行的。随着全球经济开始从大流行中复苏，全球能源价格一直在上涨。周一，布伦特原油的成本创下了2018年10月以来的最高水平，而美国交易的石油价格也达到了七年来的新高。
 
-1. [庆祝中国共产党成立100周年大会在天安门广场隆重举行 习近平发表重要讲话](http://www.xinhuanet.com/politics/leaders/2021-07/01/c_1127615310.htm)
-2. [马云任正非都不在，这两位外籍富豪却受邀上城楼，他们是谁？](https://www.sohu.com/a/475478528_100120495)
-3. [泰国首富加入中国籍 成平安最大股东 坐拥近2000亿](https://www.tiaotiaowen.com/articles/kmfjgc)
-4. [泰国首富谢家四兄弟冲A！生猪概念股正大股份IPO获受理](https://news.stcn.com/sd/202106/t20210601_3297121.html)
+**简评：**文章中也描述到在山西的大雨受灾前中共国已经出现停电及限电的现象，而产煤大省山西因大雨导致的煤矿关闭也只是加速了全国缺煤缺电的步伐。在中共国出现种种现象：十年前就开始搞西电东送和南水北调了，但是最近几年基本上销声匿迹，效果怎么样大众无从得知。为了环保在中共国限煤限了好几年，现在又紧急增产，朝令夕改。受中美协议及疫情影响，中共国里倒闭的加上搬走了的厂这么多，今年中共国的电反而不够用？国内财经界预计今年年底前煤炭缺口至少为2000万吨，对比往年从澳洲进口的4000万吨煤炭，如何看待煤炭这么大的差异？从现象看本质：一党独裁的中共国因为缺乏监管，什么都不透明，决策也是拍脑袋，朝令夕改，受灾受害的只是老百姓需要承受的电力涨价及相应电力涨价带来的物价上涨。
+
+新闻链接：[China floods: Coal price hits fresh high as mines shut](https://www.bbc.com/news/business-58879481)
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+编辑：【英国伦敦喜庄园编辑部】
 
-编辑/校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

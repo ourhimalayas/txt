@@ -2,19 +2,37 @@
 ---
 
 
-## 秘翻在线：年轻的海军陆战队队员宁死也不接种中共病毒疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1589089/)
+## 台湾双十节，习近平誓言台湾统一
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1589166/)
 
-#### 翻译/撰稿：zzballack
+[![](https://spark.adobe.com/page/S7weQ2SesVHs1/images/09BED651-ADB5-4B48-A6B8-780BAF81CCE8.jpg?asset_id=1CACEBD1-D244-4D71-8D78-4544471712E0&amp;size=2560)](https://spark.adobe.com/page/S7weQ2SesVHs1/images/09BED651-ADB5-4B48-A6B8-780BAF81CCE8.jpg?asset_id=1CACEBD1-D244-4D71-8D78-4544471712E0&amp;size=750)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-3-2.jpg)图片来源：Military Times
-据《网关专家》（Gateway Pundit）10月11日报道，一位自称是海军陆战队士兵的匿名年轻人在网络上发布了一段视频，他在视频中概述了如果军人不遵从乔·拜登的独裁和反科学的疫苗强制令，会受到哪些潜在惩罚。
+#### 简评：
 
-这位年轻人首先阅读了疫苗强制令的最新信息，这些信息可以在海军陆战队的官网上找到。然后他说：“你可以申请两种疫苗豁免，分别是医疗豁免和宗教豁免。但问题是，如果你的豁免没有得到批准，将被再次要求接种中共病毒疫苗。如果继续拒绝接种疫苗，那么所受的待遇跟其他拒绝打疫苗的人一样。每个拒绝接受这种治疗的人都将受到普通军事法庭（General Court-Martial）的传唤，他们将决定你的命运。普通军事法庭可以执行最高级别的军事司法，他们有权对任何案子被提交到普通军事法庭的人判刑，最高甚至可判死刑。”
+台湾双十节前，中共党魁习近平发表讲话，誓言要实现台湾统一。中共一直派遣军机飞临台湾防空区，累计达150架次之多。台湾当局表示自1949年脱离大陆，台湾岛已经拥有自己的民选政府，拒绝北京的主权要求。习近平2019年就威胁要武力夺取台湾，随着大陆内部压力剧增，习近平攻台意图明显，台湾危在旦夕。
 
-视频最后，这位勇敢的海军陆战队队员直视镜头，向他将在军事法庭上面对的人警告说：“无论谁最终负责我的案子，我要说的是，我拒绝接受这种疗法是因为它是错的。你要知道，相较于把这种东西注入我的身体，我更乐意死去。”
+GTV视频链接：[习欲武力收台](https://gtv.org/user/5e862370de21f24fe9135579)
 
-相较于马克·米利 (Mark Milley)那个美国的耻辱和叛徒，这位年轻人是一个真正的英雄，展现了我们军人应该捍卫的东西：自由和解放!
 
-新闻来源：[SHOCKING VIDEO: Marine Exposes Possible Punishment For Refusing To Follow Biden’s Mandate!](https://www.thegatewaypundit.com/2021/10/shocking-video-marine-exposes-possible-punishment-refusing-follow-bidens-mandate/)
+
+#### 视频字幕：
+
+**习近平：**我们国家的完全统一必须且能够实现。
+
+**画外音：**中共国国家主席习近平星期六誓言要实现台湾统一。习近平在北京人民大会堂讲话时说，中国人民有反对分裂主义的光荣传统。习近平的讲话是在一周的紧张局势后发表的。在此期间，北京派遣了约150架中共国军机进入台湾防空区。虽然他没有提到使用武力，但习近平的意思很清楚。
+
+**习近平：**台湾独立是国家统一的最大障碍，是民族复兴的严重隐患。那些忘记祖宗、背叛故国并试图分裂国家的人，不会有好下场，他们将被人民唾弃、被历史谴责。
+
+**画外音：**他的讲话在台湾没有得到好评。作为回应，台北当局呼吁北京放弃其胁迫行为，并表示台湾的未来掌握在台湾人民手中。从1949年就脱离了大陆的台湾岛，拒绝北京的主权要求，并拥有自己的民选政府。习近平上一次关于台湾的重要讲话是在七月，他(当时)发誓，”粉碎任何正式形式的台独企图”。在2019年，他直接威胁要使用武力，将台湾置于北京的控制之下。
+
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*字幕：云岭 | 听写：势不可挡 | 翻译：致良知 | 校对：Dasy | 简评/文字整理/编辑：胖丁 | PAGE：彼岸花*
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+[![](https://spark.adobe.com/page/S7weQ2SesVHs1/images/6752D94C-BCC2-43FB-B5D0-CDF983944B0E.jpg?asset_id=CD9B05AE-4D6E-4DE8-9825-225BEA8730F9&amp;size=1024)](https://spark.adobe.com/page/S7weQ2SesVHs1/images/6752D94C-BCC2-43FB-B5D0-CDF983944B0E.jpg?asset_id=CD9B05AE-4D6E-4DE8-9825-225BEA8730F9&amp;size=1024)
