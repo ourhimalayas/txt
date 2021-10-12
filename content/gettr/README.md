@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/12/2021 10:13 PM (UTC)`
+
+10/12/2021 Miles Guo’s GETTR: The CCP has been deceiving the whole world using the lures of a large potential market and huge investments; By controlling the American lawyers and law firms with threats and temptations, the CCP has infiltrated the judicial system, shaking the foundation of the US.<br/><br/>10/12/2021 文贵盖特：中共利用巨大的潜在市场和投资的诱惑在全球招摇撞骗；中共用威胁和利透拿下了美国的律师和律师事务所，从而渗透了司法系统并动摇了美国的根基<br/>
+![img](https://media.gettr.com/group31/getter/2021/10/12/22/13/0e3c10e0-7af3-51c5-14f3-041e9ef89494/out.jpg)
+
+---
+
 `@miles 10/12/2021 7:42 PM (UTC)`
 
 10月12号：王岐山，和孟建柱．江志成……有关中国国有银行和金融机构的腐败……能查清楚1%，中国人的财政部，的国库，马上就会增加几倍以上净现金。不信咱们走着瞧……中南城的老杂毛……看文贵的视频后．现在冷静多了长大了。【美国《华尔街日报》引述知情人士称，中共总书记习近平向中纪委下指令，审查至少25家国有银行及其他金融机构，要求这些金融机构厘清与大型私营企业的关系。报道又指，金融业是国家副主席王岐山的势力范围，很多金融业高管都跟王岐山有密切关系；王岐山曾任行长的中国建设银行对海航的贷款，预计将成为新一轮审查的一部分。近几个月来，王岐山的政治影响力有所下降。他的一名长期助手在8月被指控受贿7100多万美元。据了解该计划的人士称，王岐山与一些现在面临审查的金融公司有联系。】
@@ -287,13 +294,6 @@ Taiwan is in great danger: Xi Jinping addresses the 110 years anniversary of Xin
 
 《把他们都抓起来 Arrest Them All》（ENG）
 ![img](https://media.gettr.com/group33/origin/2021/10/08/22/06/53e568c9-72e4-6f27-8dfb-c79190bd5b15/out.jpg)
-
----
-
-`@miles 10/8/2021 8:57 PM (UTC)`
-
-20-8日：这帮孙子【七哥您好！华尔街几十分钟内的推，开始吹抗毒神药了。争抢疫情蛋糕的黑手们利益开始分割，等这个药正式批准后，所有投资者和相关利益者将变成最坚决的反疫苗成员。看这红线划的用词，牛吹得无边了，内核估计还是青蒿素：“早期数据显示这种神药是自从有疫苗以来“抗新冠最大的科学成就”。这篇发在个人观点栏目的正文就更厉害，第一句：随着FDA批准的钢笔抖一抖，今天将会拯钱数千性命。很少见华尔街日报上发表这么煽情的文字，即使在个人观点栏目也很少见。🙏🙏🙏🙏】
-![img](https://media.gettr.com/group25/getter/2021/10/08/20/57/c58cc682-5d79-152f-ad9b-e2e959586eac/b8feab11528ecbf5014fc112779e5834.jpg)
 
 ---
 
