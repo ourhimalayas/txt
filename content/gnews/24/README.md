@@ -2,23 +2,57 @@
 ---
 
 
-## 秘翻在线：台湾拥有核武器？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1588770/)
+## 系列事实打脸福奇疫苗安全有效说
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1588826/)
 
-#### 撰稿：彩虹
+作者：文一
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-2-6.jpg)图片来源：红板报
-10月11日，《新闻极限》(Newsmax)记者玛丽莎·赫尔曼（Marisa Herman）发布文章，围绕中共是否对台湾入侵的相关问题做了梳理，其中提到说台湾早已拥有了核武器装置。
 
-文章报道，对于中共会不会入侵台湾。中国问题专家章家敦（Gordon Chang）说：“如果你告诉我第三次世界大战下周开始，我不会惊讶。如果你告诉我什么也不会发生，我也不会惊讶。中共发誓要统一台湾的言论并不是空洞的威胁，但目前还不清楚中共是否会通过一场灾难性的军事行动来达成这个目的。”
 
-而传统基金会（Heritage Foundation）高级研究员、美国空军老兵约翰·维纳布尔（John Venable）指出，中共国在10月4日派出创纪录的65架战机，“基本上具备了对一个地区或区域进行全面攻击所需的一切。”
 
-文章特别报道，虽然台湾早已经实行了几项发展大规模杀伤性武器的计划，但从来没有公开承认自己拥有这种（核）装置。据报道，在中共国于1964年进行第一次核试验后，台湾开始致力于制造核武器。尽管报道说台湾在20世纪70年代为该计划生产了钚，但官方的说法是，美国最终迫使台北在1976年正式停止了这项研究。而其他报告显示，（台湾）核研究一直秘密进行到1980年代。
 
-尽管如此，许多人认为台湾已经悄悄地建立了战术核弹头的储备，如果使用，将使中共国遭受重击，并能有助击退中共人民解放军的海路入侵。已故的中子弹之父萨姆·科恩（Samuel T. Cohen）告诉记者，台湾有这种武器的储备，他曾亲自向台湾军事人员介绍过这些武器的使用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-**新闻来源**
 
-[China’s Big Problem: Taiwan Likely Has Nuclear Weapons](https://www.newsmax.com/newsfront/china-taiwan-nuclear-weapons/2021/10/11/id/1040003/)
+
+
+
+
+
+针对福奇鼓吹疫苗安全有效的说法，Gateway Pundit新闻网今日罗列系列事实予以抨击，力证完全接种疫苗的人比未接种疫苗的人更容易感染中共病毒。
+
+英国的最新数据显示，30岁以上的每个年龄组中，接种疫苗者感染率都超过未接种疫苗者。
+
+新加坡的疫苗接种率在世界排名第五，接种率超过80%，但病毒突破性感染连续四天大幅增加。至2021年10月8日，共记录了3590个新感染病例，是目前该国最高的新增病例记录。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-33.jpg)
+另外数据显示，65岁及以上的疫苗接种率高达80%，但71%的新冠病例为完全接种者。
+
+对此疾控中心主任和左派喉舌罗谢尔-瓦伦斯基博士也承认，疫苗不能防止病毒的传播。
+
+Gateway Pundit 新闻网由此尖锐指出坚决不能相信福奇所说的任何一个字。
+
+参考链接：
+[Factcheck: Dr. Fauci’s Claim that the “Highly Effective and Safe Vaccine” Prevents Individual from Getting Infected with COVID-19 is FALSE (VIDEO)](https://www.thegatewaypundit.com/2021/10/factcheck-dr-faucis-claim-highly-effective-safe-vaccine-prevents-individual-getting-infected-covid-19-false-video/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Ryan
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

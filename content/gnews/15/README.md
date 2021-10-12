@@ -2,18 +2,24 @@
 ---
 
 
-## 2名儿童被“意外”注射中共病毒疫苗后出现心脏病迹象
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1588848/)
+## 已达13年最高值！高油价致日本9月企业物价上涨6.3%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1588886/)
 
-#### 编译：沙子最怕你不理它
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-50.jpg)图片来源：网络截图
-据 Red Voice Media 10月10日报道，印第安纳州埃文斯维尔的2名儿童原计划在Walgrees药房注射流感疫苗，却被“意外”注射了中共病毒疫苗，随后他们的心脏出现了问题。虽然所有疫苗上都有标签，但这不是Walgreens第一次“犯错”。
+撰稿：东京樱花团/黑猫
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-214.png)[图片来源](https://www.nikkei.com/article/DGXZQOUB120QD0S1A011C2000000/)
+企业之间交易的材料价格正在加速上升。 据日本央行10月2日发表的9月份企业物价指数比上年同期增长了6.3%， 该增长率是自2008年9月以来（上升6.9%），近13年来上升率最高的。
 
-10月4日，埃文斯维尔的一家四口——两位成年人和两名儿童——前往约瑟夫大道上的Walgreens药房准备注射流感疫苗。但他们被“意外”注射了全剂量的辉瑞中共病毒疫苗，而不是流感疫苗。
+由于原油价格飙升，石油和煤炭产品大幅上涨。 包括钢铁和木材在内的各种材料价格也在上涨，日本国内企业正在把上升的原材料成本转嫁到产品中。
 
-两名儿童的年龄太小，并不适合注射辉瑞或任何其他中共病毒疫苗。Walgreens给出的疫苗接种卡显示，2016年和2017年出生的儿童接种了辉瑞中共病毒疫苗。
+企业物价指数显示了企业间买卖商品的价格趋势。 在公布的744个项目中，与去年同月相比，425个上升，229个下降。
 
-这家人说，他们离开药房时以为自己打了流感疫苗，但药房的一名员工后来打电话给他们，说他们犯了一个错误。此后，这家人被儿科心脏病学家告知两名儿童都有心脏病的迹象。Walgreens并未对此事做出解释。
+进口价格的同比增长达到31.3%，是自1981年1月可比的最高值。 直到今年2月，价格同比为负值，但自春季以来，价格的上涨一直在加速。 按产品来看，除了能源之外，木材和金属等 “上游 “产品的价格上涨也很明显。
 
-新闻来源：[2 Young Kids Given COVID Vax Instead Of Flu Shots ‘Accidentally’ At Walgreens Now Suffering Heart Issues](https://www.redvoicemedia.com/2021/10/2-young-kids-given-covid-vax-instead-of-flu-shots-accidentally-at-walgreens-now-suffering-heart-issues/)
+国际商品市场上的石油价格继续上涨，日元最近迅速走弱。 进口商品的价格可能会进一步上升。 如果企业物价急剧上升的时间延长，将导致企业成本增加，也可能蔓延到个人消费商品和服务的价格上涨。
+
+信息来源：[企業物価13年ぶり高い伸び　9月6.3%上昇、原油高で: 日本経済新聞 (nikkei.com)](https://www.nikkei.com/article/DGXZQOUB120QD0S1A011C2000000/)
+
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
