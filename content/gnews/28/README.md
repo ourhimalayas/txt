@@ -2,29 +2,30 @@
 ---
 
 
-## 有声|限期临近，超十万军人仍拒绝接种毒针疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1589741/)
+## 逾四分之三的加拿大人拒绝华为涉足5G建设
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1589762/)
 
-配音：香草山美食部 – 玫瑰园
+蒙特利尔皇家山 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/10/http-com.ft_.imagepublish.upp-prod-us.s3.amazonaws.com-505344da-6a9c-11e9-80c7-60ee53e6681d.jpg)图片来源： Financial Times
+根据《彭博社》(Bloomberg) 10月11日报道，一项新的民调显示，超过75%的加拿大人表示，总理贾斯汀-特鲁多的政府应该禁止中国的华为技术有限公司参与第五代电信网络的建设。
 
-根据五角大楼关于新冠疫苗接种的规定，除极少数军人将被批准豁免以外，有2百多万军人被强制要求接种，否则，将受到惩罚。随着最后期限的临近，仍有数十万军人不放弃自己的权力，拒绝接种。
+Nanos Research为《环球邮报》周一发布的民意调查，反对华为参与5G的比例从2019年的53%上升。特鲁多没有排除将华为纳入其中的可能性，预计很快会做出决定。
 
-美国各军种有不同的疫苗接种截止日期。海军和海军陆战队的截止日期都是11月28日，空军是11月2日，陆军是12月15日。已经接种至少一剂的现役军人比例超过92%，令人十分担忧，约有10.3万名军人选择不接种。
+对华为的不赞成率激增，反映了自2018年12月以来酝酿的公众愤怒，当时中国在加拿大根据美国的引渡请求逮捕华为首席财务官孟晚舟后的几天内监禁了加拿大企业高管迈克尔-斯帕沃和迈克尔-科夫里奇。众所周知，这两位迈克尔被关押了1000多天，条件十分恶劣。
 
-其中海军完全接种比例最高，达90%，海军陆战队的这一比例是72%，陆军警卫队和后备队约占美军的四分之一，而不到40%的陆军完成了疫苗接种。新冠毒针已完成了对美军人员大范围的侵入。
+上个月，在孟晚舟与美国达成协议，解决对她的刑事指控后，孟晚舟登上了回中国的飞机，两人随即被释放。加拿大及其西方盟友指责中国政府的 “人质外交”，而中国则坚持认为这些案件没有关系。
 
-此前，美军士兵和军官已就疫苗强制令，起诉国防部，称该指令违法。而在疫苗造成至少15万美国人死亡，和无数不良反应的事实面前，美国国防部仍持续推行疫苗强制令，这不仅置军人的健康于巨大的风险之中，并将严重威胁美国国家安全。
+如果特鲁多禁止华为，这可能会进一步激化两国的关系。由于两个迈克尔的命运悬而未决，加拿大已经推迟了近三年。该国最亲密的盟友，包括美国、英国和澳大利亚，已经下令直接禁止该公司。
 
-文字版原文：[限期临近，超十万军人仍拒绝接种毒针疫苗](https://gnews.org/zh-hans/1587521/)
+中国外交部发言人赵立坚周二在北京举行的例行新闻发布会上说，“加拿大应该为中国公司提供一个公平、公正、公开和非歧视性的环境。华为的5G产品以其尖端技术和安全性得到了世界上绝大多数运营商的认可。加拿大应该遵守客观公正的态度，独立做出符合自身利益的决定”。
 
-音频处理：喜山必胜Maverick
+Nanos Research为彭博新闻社进行的另一项调查显示，36%的加拿大人认为与中共国的关系因其监禁高管而受到永久损害。这项调查是在9月30日至10月3日期间通过电话和网络进行的，误差率为3.1个百分点。
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+越来越多的加拿大人看清了中共“人质外交”的实质和华为公司对网络安全的威胁，明确表示应该同美国，英国等国家一样，禁止华为公司参与加拿大网络建设。
+
+原文链接：
+[https://www.bloomberg.com/news/articles/2021-10-11/public-opposition-to-huawei-surges-in-canada-before-5g-decision](https://www.bloomberg.com/news/articles/2021-10-11/public-opposition-to-huawei-surges-in-canada-before-5g-decision)
+
+* * *
+
+发稿 Spirit

@@ -2,27 +2,37 @@
 ---
 
 
-## GETTR现场直击：面对反疫苗诉讼 日本媒体选择集体失声
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1589257/)
+## 摩根大通：比特币“一文不值” ，政府很快进行监管
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1589408/)
 
-**撰稿：日本东京方舟农场 文拓**
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/AlekseyIvanov-Bitcoin-1000x600-1.jpg)图片来源：crypto-news-flash.com
+#### 整理报道：小红帽
 
-东京时间2021年10月12日13时，日本反对新冠疫苗诉讼第一次公开庭审在东京地方裁判所（法院）703法庭开庭。
+摩根大通（ JPMorgan）首席执行官杰米·戴蒙（Jamie Dimon）周一表示，比特币“一文不值”，政府将很快对数字货币进行监管。
 
-这次庭审受到海内外广泛关注，尽管当天阴雨绵绵，但一早就有很多记者和民众冒雨排队，等候抽签。只允许21人旁听的庭审现场，却有数百人赶到，而原定于中午12点的抽签在早上10点便提前结束。尽管如此，不仅赶来的人没有散去，陆续到场的人也越聚越多，他们停留在法院周围，冒雨等候庭审消息。
+这是他对有争议性的数字货币的最新攻击。他之前曾登上无数头条新闻，称这项新技术为“欺诈”和“傻瓜的黄金”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-26.png)图片来自于网络
+戴蒙周一在国际金融研究所主办的一次活动上发表了该讲话。
 
-尽管人群中不乏当地知名媒体的新闻记者，但均对反疫苗诉讼这一案件讳莫如深。对于今天的庭审，日本共同社第一时间进行了报道，却避开反疫苗的政府诉讼，仅称“东京地方法院聚集了数百名不戴口罩的群众”，日本产经新闻和东京新闻等诸多媒体也进行了转载。
+尽管戴蒙批评比特币，摩根大通已开始为客户提供六种加密货币产品。
 
-据了解，抵制新冠疫苗相关的信息是当地媒体的禁忌，尤其是在《太阳体育报》报社负责人因报道高桥德医生主办的反疫苗记者招待会后被撤职，各个媒体对相关题材报道更是异常谨慎。
+包括高盛（ Goldman Sachs）和花旗集团（Citigroup）在内的其他老牌机构也寻求扩大其在该领域的足迹。高盛允许某些客户通过衍生产品交易加密货币，而花旗集团正在寻求通过基金开始交易加密货币。
 
-与之形成鲜明对比的是，GETTR和Gnews均对这次具有历史意义的诉讼案庭审展开追踪报道。
+**摩根士丹利是第一家允许客户交易加密货币的银行，现在它甚至将自己的资金投入到投机性币中。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-14.png)图片来自于网络
+但是戴蒙加入了抨击数字货币的商界和政界领袖的行列。前总统唐纳德·特朗普（Donald Trump）在8月份猛烈抨击加密货币。**对冲基金经理约翰·保尔森（John Paulson）也是如此，他预测加密货币将“归零”。**
 
-*注：本文仅代表作者观点，与 Gnews无关*
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-* * *
+**参考新闻：**[JPMorgan chief Jamie Dimon says bitcoin is ‘worthless’ (nypost.com)](https://nypost.com/2021/10/11/jpmorgan-chief-jamie-dimon-says-bitcoin-is-worthless/)
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,32 +2,45 @@
 ---
 
 
-## 英国在病毒大流行中的错误
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1589885/)
+## 为防范中共海上霸权，美日印澳展开联合军演
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1589908/)
 
-新闻来源：德国法兰克福报网络版
+作者：纽约香草山农场 – 四季
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/lange-nahm-boris-johnson.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-资料来源：FAZ
 
-在欧盟大多数国家继续依赖强制口罩和疫苗接种证书的情况下，英国自 7 月以来宣布进入大流行后阶段——尽管感染人数众多并且很多抗疫措施的反对者不断增加。 英国已经开始对冠状病毒大流行进行政治重新评估。应对病毒大流行中政府在其中的作用的大型独立调查要到春天才能开始，但周二下议院成员已经预尝了可能的结果。
 
-经过数月的研究和超过 50 名证人的询问，一个由两党议员组成的小组向政府提供了喜忧参半的证词。 “英国的反应结合了巨大的成就和巨大的错误，”健康与科学委员会的联合声明发表的声明这样形容。
 
-国会议员的主要批评是在大流行的早期阶段反应迟缓。相对较晚于 2020 年 3 月 23 日实施第一次封锁主要归因于政府的“群体思维”。政府听从了官方科学顾问的建议，但没有充分质疑他们“错误”的假设和建议。只有当国家卫生服务 NHS 明显超负荷时， 才采取封锁措施。
+据[美国之音](https://www.voachinese.com/a/quad-naval-exercise-20211012/6267058.html)10月12日报道，美国、日本、澳大利亚和印度周二开始在孟加拉湾展开2021年度马拉巴尔（Malabar) 年度军演的第二阶段演习，以谋求在第一阶段的基础上进一步提升四国海军的协同作战能力，并聚焦先进的水面舰和反潜作战演练。
 
-结果，英国不得不记录“最初更高的死亡率”。因此，欧洲议会议员谈到英国有史以来“公共卫生政策中最大的失败之一”。也有人批评英国“赌”了其他国家的优势，例如在数据分析方面的领先地位和病毒测试方面的发展。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1190.jpg)美日澳印2020年马拉巴尔联合军演(美国海军照片）
 
-测试制度起步缓慢，尤其对老年人产生了影响。从医院（返回）转移到老人院的患者直到四月中旬才接受检测。到那时，已有超过 40,000 名老年人死于冠状病毒 – 几乎占英国迄今为止登记的所有冠状病毒 死亡人数的四分之一。
+马拉巴尔年度军演被视为四方安全对话机制Quad的联合军演，目的是遏制中共国的恶意扩张。四国海军今年8月在美国关岛附近实施了第一阶段的演习。
 
-就绝对数字而言，英国是欧洲新冠死亡人数最多的国家：超过 137,000 人。  目前每天登记的新感染病例约有 40,000 例。 在过去的 7 天里，有 780 名在死于冠状病毒。
+四国的官员们表示，中共国在该地区行事日益强硬，使得四国需要联手保护自己及其盟友不受中共的“剥削、腐蚀和胁迫”。
 
-[https://www.faz.net/aktuell/politik/ausland/grossbritanniens-politische-aufarbeitung-der-corona-pandemie-17581492.html](https://www.faz.net/aktuell/politik/ausland/grossbritanniens-politische-aufarbeitung-der-corona-pandemie-17581492.html)
+中共近日威胁要孤注一掷攻打台湾，台海局势日益严峻，只有国际社会联合起来，才能遏制中共的野心。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+（本文仅代表作者观点）
 
-责任编辑/发布： Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
