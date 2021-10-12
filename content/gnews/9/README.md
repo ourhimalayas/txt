@@ -2,49 +2,33 @@
 ---
 
 
-## 加拿大“新冠集中营”与“纠察队”在萨斯喀彻温省即将正式上线
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1588561/)
+## 沃尔玛突宣：全球供应商业务部从中共国搬到印度
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1588574/)
 
-作者：纽约香草山美食部 – 文百合
+![](https://assets.gnews.org/wp-content/uploads/2021/10/下载-3.jpg)
+据中国零售信息2021年10月11日报道，10月9日沃尔玛突然宣布，将其全球供应商业务总部从中共国搬到印度。
 
+沃尔玛1996年在中共国深圳开设了第一家沃尔玛门店。沃尔玛目前在全国100多个城市设有400多家商场、20多家家配送中心。但从2016年到2020年，沃尔玛在国内关闭了80家门店；2021年以来，其关店数量已经达到两位数。
 
+沃尔玛此次搬迁，正是中共国本土超市崛起，外资商超没落的结果。沃尔玛数次被曝销售过期食品，使得消费者对其产生了信任危机。2018年，沃尔玛尝试过社区店，相当于“开在居民家门口的沃尔玛”。但同时各社区团购、生鲜电商企业的竞争，也抬高了社区店的成本。“沃尔玛社区店”微信公众号，自2020年10月30日起再没更新过任何内容。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
+但与此形成反差的是，山姆会员店仍在扩张。今年8月，山姆会员店号称“亚洲最大的旗舰店”在上海开业。山姆会员店25年在中共国总共开出30多家门店。但直到2021年，沃尔玛才开始从官方层面表示要加速扩张。
 
+沃尔玛入华25个年头，官方评价说消费者已经感受不到新鲜感，中共国不缺“新物种”。但这也是全球脱钩、外资撤离中共国的一个信号。无独有偶，类似家乐福、麦德龙也正在退出中共国市场。
 
+新闻参考链接：[https://c.m.163.com/news/a/GM05S4GT05445BQZ.html?spss=newsapp](https://c.m.163.com/news/a/GM05S4GT05445BQZ.html?spss=newsapp)
 
-10月8日，据CBC报道，加拿大萨斯喀彻温省将反聘大量退休警察，使其与在职的警察联合行动，组成“新冠疫苗政策强制执行队”。该行动队旨在逮捕在公开场合违反加拿大新冠疫情规定的反口罩和反强制疫苗护照人士。
+编辑：胖丁
 
-![Image](https://media.discordapp.net/attachments/879117708753514526/897170156176932874/image0.jpg)图源网络
+* * *
 
-此前，萨斯喀彻温省已在该省的北巴特爾福德市秘密建造了大量的隔离集中营。目前，这些集中营已投入使用——被逮捕的反新冠疫苗政策人士，以及新冠阳性患者都将会被关押在这些集中营内进行隔离。另外，该政策并未对何时释放关押人员做出任何解释。
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-据悉，萨斯喀彻温省政府还向公众推荐了该省的匿名举报系统，即无论个人或商户，倘若有人发现未戴口罩或未接种新冠疫苗者，可经相关网站进行匿名举报。随后，“新冠政策强制执行队”会对被举报人进行抓捕和关押。
-
-而今，赤裸裸的红色恐怖已经在加拿大蔓延开来。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-[Ex-police will enforce COVID-19 rules, ‘secure isolation site’ planned, Sask. doctors told](https://www.cbc.ca/news/canada/saskatoon/saskatchewan-covid-19-1.6205235)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

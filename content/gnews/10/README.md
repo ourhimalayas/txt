@@ -2,31 +2,19 @@
 ---
 
 
-## 郭文贵Gettr直播摘要和音频 2021.10.11
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1588557/)
+## 中共病毒疫苗破坏了免疫系统防卫病毒和肿瘤侵袭的功能
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1588564/)
 
-摘要撰稿人：文俊
+#### 翻译：奮鬥
+校对：枳实
 
-音频提供者：左媛
+Nathan Thompson博士分析比较了疫苗接种者接种前，接种第一次和第二次的验血结果，包括基本的白细胞计数和免疫细胞组套检查，提示疫苗接种造成了严重的自身免疫，并大幅度削弱了机体免疫系统对抗病毒感染和清除肿瘤细胞的能力。
 
+原视频链接：[My Jaw DROPPED when I Tested Someone’s Immune System After the 2nd Jab](https://www.bitchute.com/video/hvAmgMyA11kO/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-11-at-10.05.43-PM.png)
-
-
-### 视频：
-
-[视频链接](https://gettr.com/streaming/pduj7df2ed)
-
-### 音频：
-
-### 摘要：
-
-1. 95%打台湾，一定是冠冕堂皇的理由
-2. 关于台湾人到哪去，每个人情况都不同，根据自己情况而定，能离开，离开最好
-3. 手机直播大概还需要两周时间
-4. 这几天增加投资太多了，有农场请找农场，农场帮助战友，真战友一个都不要拉下
-5. 山西水灾很严重，疫苗第三针很严重，银行烂帐很严重，房地产很严重
-6. 郭树清消烂帐，不是消老百姓烂帐，消海航王岐山的烂帐，那是他哥们
-7. 德州州长是下个总统的热门人选啊
-8. 未来认证的大V在盖特都可以直播
-9. 今天试直播就到这里，很多大事搂住，大直播再说
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
