@@ -2,25 +2,32 @@
 ---
 
 
-## 有声|加州实施学童强制疫苗政策 但州长 12 岁女儿并未接种
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1588046/)
+## 蔡英文提出“中华民国与中华人民共和国互不隶属” 北京怒不可遏
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1588112/)
 
-配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/c1_2190995-22.jpg)2021 年 10 月 10 日，中华民国成立 110 周年国庆阅兵仪式在台北举行。 REUTERS – ANN WANG
 
-【Gateway Pundit】10 月 9 日报道：民主党加州州长加文-纽森在《洛杉矶时报》最近发表的一篇文章中承认，他12岁的女儿尽管符合强制疫苗接种条件，但还没有接受这种注射。
+**编辑摘要：**据法国国际广播电台10月11日报道，蔡英文在中华民国110周年国庆大会上提出“四个坚持”：盼台湾朝野永远“坚持自由民主的宪政体制；坚持中华民国与中华人民共和国互不隶属；坚持主权不容侵犯并吞；坚持中华民国台湾的前途，必须遵循全体台湾人民的意志”。 此言激起北京激烈反应，中共党媒《环球时报》怒称蔡英文双十节讲话“态度嚣张”。
 
-10月1日，这位民主党州长宣布了美国首个 K-12 学童强制疫苗政策。文章强调，州长已经违反了他自己公布的疫苗政策，并指出很多疫情期间的限令只是针对普通民众，制定政策的政客们并未受其约束。
+观察人士多指蔡英文的表述可谓“清晰、坚定、寸步不让”。蔡英文的表述与早一日中共国国家主席习近平在庆祝辛亥革命110周年大会上强调的统一台湾、重申“九二共识”、抨击“台独势力是祖国统一的最大障碍”之言论，可谓是“针尖对锋芒”。
 
-文字版原文：[加州实施学童强制疫苗政策 但州长 12 岁女儿并未接种](https://gnews.org/zh-hans/1584636/)
+执政党民进党党团书记蔡适应认为，“四个坚持”主张中华民国与中华人民共和国互不隶属，清楚说明台湾人民的共识，但蔡总统称互不隶属，不等同主张台湾独立，而是要交由台湾人民决定。
 
-音频处理：喜山必胜Maverick
+而台湾淡江大学中共国大陆研究所荣誉教授赵春山则认为，“中华民国跟中华人民共和国互不隶属”，这在大陆解读将是“两国论”。因此，赵春山认为，接下来的两岸关系不会更好，只会更坏。
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这不禁让人联想到中共近期大规模派遣军机侵入台湾防空识别区，两岸紧张情势急剧升高。蔡英文强调“我们期待两岸关系和缓，我们不会冒进，但绝对不要认为台湾人民会在压力下屈服”。
+
+阅读新闻原文：[蔡英文：中华民国与中华人民共和国互不隶属 北京怒不可遏](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211010-%E8%94%A1%E8%8B%B1%E6%96%87-%E4%B8%AD%E5%8D%8E%E6%B0%91%E5%9B%BD%E4%B8%8E%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD%E4%BA%92%E4%B8%8D%E9%9A%B6%E5%B1%9E-%E5%8C%97%E4%BA%AC%E6%80%92%E4%B8%8D%E5%8F%AF%E9%81%8F)
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
