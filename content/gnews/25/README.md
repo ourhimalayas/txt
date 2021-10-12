@@ -2,18 +2,24 @@
 ---
 
 
-## 2名儿童被“意外”注射中共病毒疫苗后出现心脏病迹象
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1588848/)
+## 五角大楼网络安全官员：美国 AI 远不及中共
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1588870/)
 
-#### 编译：沙子最怕你不理它
+#### 编译：花岗岩
 校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-50.jpg)图片来源：网络截图
-据 Red Voice Media 10月10日报道，印第安纳州埃文斯维尔的2名儿童原计划在Walgrees药房注射流感疫苗，却被“意外”注射了中共病毒疫苗，随后他们的心脏出现了问题。虽然所有疫苗上都有标签，但这不是Walgreens第一次“犯错”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-33.jpg)图片来源：网络截图
+据澳大利亚《商业内幕》杂志10月11日报道，五角大楼的一名高级网络安全官员尼古拉·查兰愤然辞职，原因是他认为美国在未来的15到20年里不可能在人工智能方面与中共国竞争。
 
-10月4日，埃文斯维尔的一家四口——两位成年人和两名儿童——前往约瑟夫大道上的Walgreens药房准备注射流感疫苗。但他们被“意外”注射了全剂量的辉瑞中共病毒疫苗，而不是流感疫苗。
+查兰于2018年8月加入美国空军，担任其首位首席软件官，并致力于为美空军和五角大楼配备最安全、最先进的软件。但是，查兰于9月2日辞职，他在离职的领英留言 中提到五角大楼不愿意将网络安全和人工智能作为优先事项，这使他很沮丧。
 
-两名儿童的年龄太小，并不适合注射辉瑞或任何其他中共病毒疫苗。Walgreens给出的疫苗接种卡显示，2016年和2017年出生的儿童接种了辉瑞中共病毒疫苗。
+沙朗在离开后首次接受《金融时报》采访表示，一些政府部门的人工智能能力和网络防御能力处于幼儿园水平，导致近年来美国的一些部门受到了黑客企图和勒索软件的攻击。
 
-这家人说，他们离开药房时以为自己打了流感疫苗，但药房的一名员工后来打电话给他们，说他们犯了一个错误。此后，这家人被儿科心脏病学家告知两名儿童都有心脏病的迹象。Walgreens并未对此事做出解释。
+查兰还告诉《金融时报》，由于谷歌拒绝与五角大楼在人工智能方面合作，美国的国家安全正在受到危害。
 
-新闻来源：[2 Young Kids Given COVID Vax Instead Of Flu Shots ‘Accidentally’ At Walgreens Now Suffering Heart Issues](https://www.redvoicemedia.com/2021/10/2-young-kids-given-covid-vax-instead-of-flu-shots-accidentally-at-walgreens-now-suffering-heart-issues/)
+查兰说，在中共国，私营网络和人工智能公司听从北京的召唤，即使美国的国防开支是中共国的三倍，这并不重要，因为它被分配到了错误的领域。
+
+中共国的目标是到2030年成为领先的人工智能超级大国，而国家人工智能安全委员会3月份的一份报告警告说，美国还没有准备好在即将到来的人工智能（AI）时代保卫美国。
+
+查兰告诉《金融时报》，他计划就中共国带来的威胁向国会作证。
+
+新闻来源：[A Pentagon official said he resigned because US cybersecurity is no match for China, calling it ‘kindergarten level’](https://www.businessinsider.com.au/pentagon-official-quit-saying-us-cybersecurity-no-match-china-2021-10)
