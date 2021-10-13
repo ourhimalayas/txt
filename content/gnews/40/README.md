@@ -2,38 +2,51 @@
 ---
 
 
-## 多方位详解：台湾凶矣！
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1591568/)
+## 瑞典：最近 10 例新冠病毒死亡病例中有 7 例完全接种了疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591585/)
 
-**By:秘翻新视野**
+作者：AsG諾雅
 
-***2021-10-13***
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/Unknown-4.jpeg)](https://gtv.org/video/id=61664d2a304e992109b42f93)*点击图片可看完整视频*
-**1.**文贵先生这些年有关于台湾的爆料，每一件事情都被说准了。不是靠预测,是靠情报，很多战友冒着生命的危险，传递的情报，提前给大家预警，这就是为什么叫“爆料革命”，有根有据有真相有资料有情报的一场革命。
 
-**2.** 台湾是更早的被其他国家认可的合法政府，有联合国的合法席位，而且从来没有被共产党统治过，继承了中华文化的遗产，亚洲第一个民主共和国，110周年传承了辛亥革命的正统。
 
-**3. **中共打着孙中山的旗号，武昌起义，辛亥革命的旗号谋求所谓的国家统一，而事实上共产党从未尊重过孙中山，武昌起义，辛亥革命的后人鲜有善终。
 
-**4.** 共产党拿台湾时，卖台贼对台湾的伤害比大陆人还要严重。台湾退役高级将领曾说：今后不要再分什么国军，共军，我们都是中国军队。台湾共谍案接连曝光，各个领域被严重渗透，据说在台有5000个中共间谍，实际应该有更多。
 
-**5.** 习的身体不行了，越是身体不行了他越是要打台湾。这是出于一种什么心理？所谓的“一统大业”为什么对习那么重要？为什么对中共也很重要？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-**6.** 所谓辛亥革命110周年讲话那天，大会堂里坐着的里边，90%都是滥竽充数的。小粉红是被洗了脑的，知道真相之后还是可以转变的，而吃了“人食丸”的是没有自己的脑子的，知道了真相也没有能力进行判断，根本没有自己的主张。
 
-**7. **中共跟美方已经完成勾兑，书面保证的第一点就是绝不改变中共的制度。独裁统治就是中共的立国之本，一党专政，自我美化伟光正，从第一天开始一切都是谎言欺骗，所以绝不能对民众揭示一点点真相，不能有一点点的民主，否则人民直接就推翻了它。
 
-**8.** 中美从过去的脱钩到现在要挂钩，逐渐恢复，各个层次和领域的全面对话，这个拜登的书面保证意味着什么，口头的保证习神难道信不过吗？的确是信不过，因为中共自己的承诺都没有兑现过，所以也不可能相信别人的承诺。
 
-**9. **台湾一切问题在“台独”，口口声声的“台独”，其实就是中共找的借口，一个可以堂而皇之开战的理由，根本就不存在所谓的“台独”。给中共在台湾内部做呼应的就是国民党。当初中日开战之前，日本人说的话，——中国人需要日本人来拯救啊！现在如出一辙。
 
-**10. **阿富汗塔利班的胜利，给了美国一个下马威。邪恶是试探着来，不断施压。妥协和绥靖只会助长残暴的程度。香港和台湾的今天就是未来的美国，欧洲将要面临的危机，如果还不能认清，将来都会成为共产主义的奴隶。你若想图中共的好处，中共会要了你的命，这就是与恶魔为伍的最终代价。
 
-**请移步GTV观看完整节目:**[https://gtv.org/video/id=61664d2a304e992109b42f93](https://gtv.org/video/id=61664d2a304e992109b42f93)
 
-*发布:星星*
+《消息战网》10 月 12 日消息，瑞典公共卫生局报告说，在 9 月 1 日至 24 日期间，10 个与新冠肺炎（中共病毒）有关的死亡病例中就有 7 个是完全接种疫苗者。
 
-* * *
+尽管疫苗专家尝试从各种角度解释所谓“突破性感染”激增的原因，事实是，老人护理中的感染病例最近增加到了2月份以来的最高水平，而且老年人在感染者中的比例也上升到了大规模检测开始以来的一些最高水平。自大流行开始以来，瑞典这个拥有1000多万人口的国家已经出现了116万个病例，有近15000人死亡。近65%的瑞典人口已完全接种疫苗。 毒疫苗对人类的伤害开始显现，并不断通过各国医疗系统的统计数据得到验证。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-39.jpg)
+参考链接：
+[Researchers See Fading Vaccine Effect as 7 in 10 Recent COVID-19 Deaths in Sweden Fully Vaxxed](https://www.infowars.com/posts/researchers-see-fading-vaccine-effect-as-7-in-10-recent-covid-19-deaths-in-sweden-fully-vaxxed/)
+[WorldOMeters Sweden covid cases](https://www.worldometers.info/coronavirus/country/sweden/)
+[Sweden Coronavirus Full Vaccination Rate](https://ycharts.com/indicators/sweden_coronavirus_full_vaccination_rate)
 
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/IMAGE-2021-08-12-195949.jpg)
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Q大哥
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

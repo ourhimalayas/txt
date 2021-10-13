@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/13/2021 10:01 PM (UTC)`
+
+Henry Reitzug博士：在注射带有被改造氨基酸的新冠mRNA疫苗进入人体后，人体变成一个生产刺突蛋白的工厂，而刺突蛋白对人体是致命的。接种新冠mRNA疫苗的人改变了自身先天免疫系统，表现在癌症发病率的增加，已经缓解的癌症被重新激活，复发率越来越高。<br/><br/>Dr. Henry Reitzug: After injecting the COVID mRNA vaccines with modified amino acids into the human body, the body becomes a factory for producing spike protein that is lethal to the human body. People who have had the mRNA injected have changed their innate immune system, which leads to the increasing incidence of cancer. The remission of cancer is reactivated, and the recurrence rate is getting higher and higher.
+![img](https://media.gettr.com/group12/origin/2021/10/13/22/01/ae18413d-b885-1684-9793-5c92e53ee097/out.jpg)
+> `@miles 10/12/2021 10:19 AM (UTC)`<br/>Henry Reitzug博士强烈建议所有人都不要接种疫苗，而是寻求其他治疗方案，主流媒体或政治家说“遵循科学”的意思是“遵照我的意思”，这通常是有政治动机的，他们从一开始的口号就是“没有治疗手段，我们需要疫苗”，这违背了医学界的普遍方法，这是虚假且不合理的，新冠病毒没有治疗方法的说法也是绝对不正确的。（评：新冠溯源都未确定，不探究方法，而新冠疫苗这么快就问世了，这太荒唐了！）<br/><br/>Dr. Henry Reitzug strongly advises anyone not to get vaccinated, but to seek alternative treatments for the coronavirus. Mainstream media or politicians say "follow the science" means "follow my way ", which is usually politically motivated. Their initial mantra was "there is no treatment, we need a vaccine." This violates the approach generally in medicine, is false and unreasonable, and the claim that there is no treatment is absolutely not true. (Comment: The COVID-19 origin tracing has not been determined, while the COVID-19 vaccines came out so soon, which is ridiculous.)
+![img](https://media.gettr.com/group34/origin/2021/10/12/10/19/809240c7-ead9-b0dd-0a76-302ca7c91623/out.jpg)
+
+---
+
 `@miles 10/13/2021 6:34 PM (UTC)`
 
 皮特·纳瓦罗向机械师协会、NFL 和NBA的运动员协会呼吁：现在是时候为你们所代表的群体站出来抵制强制疫苗了，不要做那些将NBA、NFL和航空公司的利益置于球员和飞行员之上的老板们的奴隶了。<br/><br/>Peter Navarro appealed to the Associations of the Machinist, the NFL and the NBA: It’s time to stand up for the people you represent to resist mandatory vaccines. Don't be the peons and peasants of the Masters in the corporations that put players and pilots behind profits in the NBA, the NFL and these airline industries.
@@ -290,13 +299,6 @@ Gettr prohibited these followings:<br/><br/>1. No racial discrimination is allow
 
 脸书禁止人们提及众所周知的疫苗伤害<br/><br/>Facebook prohibits people from mentioning the vaccine injuries that we're all aware of<br/>
 ![img](https://media.gettr.com/group43/getter/2021/10/09/13/49/9bb504ff-d9a7-52c5-f6d6-58ca652d2b8e/out.jpg)
-
----
-
-`@miles 10/9/2021 1:45 PM (UTC)`
-
-波索比克谈台海：普京拿下克里米亚，中共将军们想同样方式拿下台湾<br/><br/>Posobiec: CCP generals want to take Taiwan the same way Putin took Crimea<br/>
-![img](https://media.gettr.com/group14/getter/2021/10/09/13/45/b81c4130-117a-622e-24d5-f06d2df7aaad/out.jpg)
 
 ---
 

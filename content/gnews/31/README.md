@@ -2,29 +2,40 @@
 ---
 
 
-## 有声|为防范中共海上霸权，美日印澳展开联合军演
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1591688/)
+## 中共病毒疫苗致血栓 结束NBA球星职涯
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1591753/)
 
-配音：香草山美食部 – 玫瑰园
+**By:秘翻新闻**
 
-据[美国之音](https://www.voachinese.com/a/quad-naval-exercise-20211012/6267058.html)10月12日报道，美国、日本、澳大利亚和印度周二开始在孟加拉湾展开2021年度马拉巴尔（Malabar) 年度军演的第二阶段演习，以谋求在第一阶段的基础上进一步提升四国海军的协同作战能力，并聚焦先进的水面舰和反潜作战演练。
+***2021-10-13***
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/1013-2.jpg)](https://gtv.org/broadcast/watch/61669f00304e992109b44a83)点击图片观看视频
+**新闻摘要:**
 
-马拉巴尔年度军演被视为四方安全对话机制Quad的联合军演，目的是遏制中共国的恶意扩张。四国海军今年8月在美国关岛附近实施了第一阶段的演习。
+1.中共经济超限战正危害全球金融市场
 
-四国的官员们表示，中共国在该地区行事日益强硬，使得四国需要联手保护自己及其盟友不受中共的“剥削、腐蚀和胁迫”。
+2.暴雨引发洪水 中国山西逾175万人受灾
 
-中共近日威胁要孤注一掷攻打台湾，台海局势日益严峻，只有国际社会联合起来，才能遏制中共的野心。
+3.中国女星郑爽怒骂中共腐败 称不再沉默
 
-文字版原文：[为防范中共海上霸权，美日印澳展开联合军演](https://gnews.org/zh-hans/1589908/)
+4.白宫警告：美国圣诞节期间面临物资短缺
 
-音频处理：喜山必胜Maverick
+5.英媒：重感冒患者可能是感染了中共病毒
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+6.美俄勒冈参议员呼吁调查中共病毒数据操纵
+
+7.美马萨诸塞州州长启动国民警卫队对学生进行中共病毒测试
+
+8.中共病毒疫苗致血栓 结束NBA球星职涯
+
+9.NBA球星凯里·欧文因为拒绝接种疫苗被球队禁赛
+
+10.厄瓜多尔最大银行受网络攻击至停业
+
+**GTV链接：**[https://gtv.org/broadcast/watch/61669f00304e992109b44a83](https://gtv.org/broadcast/watch/61669f00304e992109b44a83)
+
+发布: 文橙
+
+* * *
+
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)

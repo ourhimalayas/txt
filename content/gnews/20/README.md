@@ -2,169 +2,27 @@
 ---
 
 
-## 彼得-麦卡洛博士：中共病毒疫苗是人类历史上最大的生物医药悲剧
-` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1591896/)
+## 台湾危矣，中美勾兑已完成。青蒿素是重大药物发明
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1591978/)
 
-What happened?
+栏目作者：焦点20分
 
-发生了什么呢?
+1，早在武昌起义，辛亥革命期间，中共就从国际共产主义学到了如何利用媒体控制和洗脑百姓。如今100多年过去，共产党对老百姓的洗脑更胜从前百倍。中共从来想的都只有如何巩固和维护自己的政权，没有真的想实现民主、法制、自由。
 
-We now know that this early safety warning
+2，台湾的生死不在台湾，关键在于美国，以目前的情报看，台湾凶，因为共产党和美国的交易已经完成。习近平已经很久没有真正露面了，甚至连拜登总统多次要求见面通话，习都不肯答应。特别是习最近对台的讲话，就改了几个关键的字，那几个字就说明了问题。郭先生直播中告诉大家，这次中共跟美方的勾兑，美方书面承诺包括3个保证：1，美方绝不改变中共的制度；2，中美之间要逐渐恢复挂钩；3，恢复中美各层次的全面对话，包括中美之间的军事高层对话正常化。这意味着无论中共打不打台湾，中美间的经济、政治、军事，都不会脱钩。 习的身体是真的不行了，他要加速完成“现代秦始皇”的历史责任，所以台湾凶矣。
 
-我们知道杰西卡在同行评议中
 
-in this peer review publication from Jessica Rose clearly failed
 
-所提供的早期安全提醒已经彻底失败了
+3，习最狠的话是“一切台湾问题在台独，所有台独分子要被大审判”。中共要把自己塑造成救世主，拯救台湾人民，同时还会和国民党为主的卖台贼里应外合，攻台的同时，重点打击主张台湾独立的人。共产党要把台湾西边的人绑架到福建，同时把大陆四五千万人移到台湾本岛。东岛将会变成共军的军事基地、导弹基地。台湾的几个离岛也会建几个军事基地。这样日本和美国的军事力量就被隔绝在东海之外。
 
-Look how high those mortality the numbers were by April
+4，近日美国的战狼级核潜艇撞在了共匪的潜艇上，此类事件之前已发生多起。这是中美之间的军事较量，事关台湾人民的命运。此次事件中共可谓是用几十条人命，让台湾、美国和西方国家看到中共在台湾问题上”宁可自损一千，也要杀敌一百“的决心。
 
-我们来看看今年四月份时的死亡人数
+5，美国和中共之间的交易，跟中共国的经济，特别是房地产，有很大的关系。美国最关心的是钱，比如要让中共继续买美国的国债，再有就是在中共国房地产崩塌前，不要把美国的经济拖垮。从来没有外国人想过要给中国人民主和自由，到今天，中国人还是被内外夹击地奴役着。中共官方最新数据是中国房地产的平均价格是中国人工资的60倍左右，也就是大约57年的个人收入，但事实上中国老百姓要打工120年，不吃不喝，才能买得起一套房。郭先生还提到，孙强控制的华平基金通过做假账，给曾宝宝的花样年华最起码60-70亿的贷款。花样年华套取的美国，加拿大的养老基金，非常巨额，并且兑现时间都是在未来的4-12个月之间。华平基金的腐败，几乎能把西方掏空。所以中共国房地产、基金、中概股所涉及的万亿外债，是无人可救的，同时也是中共丢向世界的经济核弹。现在美国人就为了经济不倒，继续和中共勾兑，台湾也被交易掉了。甚至为了短期的政治、金钱利益，某些人私下里允许这些基金兑现延期，或者可以借新还旧，这就是西方在经济方面的疯狂。
 
-It clearly failed
+6，中共通过美国的大型律师事务所和香港，大陆的律师事务所的合作，获取了海量级别的美国律所客户的信息。 美国检察官，法官，SEC，几乎所有的司法相关人员都来自律师事务所，通过这种方式中共几乎拿下了美国的司法系统。蓝金黄美国司法系统和房地产债务有什么关系？ 想要延期房地产债务，第一关是律师对文件的审核，第二是评估公司，第三有些法律官司涉及到法院。美国前一百大律所，很多人的儿子、女儿是和中共家族联姻的。共产党的野心是要统治全世界，控制西方的司法。投资、联姻和合作就是中共的手段。
 
-这很显然是失败的
+7，郭先生直播中再次谈到台湾危机，拜登总统亲自签字了这些书面承诺后，基本达成4点：1，不改变中共体制，中美间经济重新挂钩，中共国继续买美国国债。2，中美间的军事交流在这届政府不会停止，并且在台湾、南海不会有任何军事行动。这等于美方基本放弃了在该地区的所有军事主张。3，在香港、新疆、台湾所有问题上，双方是竞争关系；4，对中共领导人保持绝对的尊重。卖掉台湾最根本的一步，是绝对尊重一中政策，反对台湾独立。在这个问题上，美国不会再有模糊的界限，这次第一次清晰地表达双方都要承认一个中国。这给了共产党拿下台湾的合法性。 这次中共也强硬并清晰的表达了，一切台湾问题取决于台方的态度和立场，只要有台独，只要卖台贼欢迎，只要台湾有外国势力干预，共军就会攻台。
 
-We had Americans dying.
+8，青蒿素是继青霉素、先锋系列之后，对人类健康最大贡献的药物发明。艾滋病、糖尿病、癌症，新冠，这些病的共性就是导致基因突变和炎症。而未来治疗炎症最核心的药物之一就是青蒿素。青蒿素三大核心技术，第一是种植，肯塔基州产的青蒿素原材料作物是全世界最好的；第二是提取技术；第三是合成。青蒿素是全能型的保健药品，几乎没有任何副作用，正确使用青蒿素的人，不容易得癌症，因为它把基因突变的机率控制在一个很低的水平。
 
-我们导致了美国人的死亡
-
-That’s after vaccination
-
-这是接种疫苗所导致的
-
-It was obvious!
-
-这很明显！
-
-This is an obvious data signal!
-
-这是非常明显的数据!
-
-This is obvious! all experts agree is obvious!
-
-太明显了! 所有的专家都一致认同!
-
-Now as of September 24th
-
-今天是9月24日了
-
-It’s raced up to 15,937 Americans has died
-
-全国死亡数字到达了一万五千九百三十七人
-
-Over two hundred fifty thousand Americans
-
-超过二十五万美国人
-
-After the vaccine has been hospitalized, gone to the Urgent Care or office visit
-
-在注射疫苗后住院、急救或寻求诊断
-
-You can see the temporal relationship on the bottom bar graph
-
-大家可以看看下面的柱状图趋势
-
-You can see that sharp Spike upwards
-
-你可以看到趋势明显的上扬
-
-Sadly we have over 20,000 Americans
-
-令人悲伤的是，疾控中心已经确认有超过
-
-The CDC tells us are permanently disabled after the vaccine
-
-两万美国人在注射疫苗后彻底失去行动能力
-
-That’s bigger than some major cancer group
-
-疫苗危害这远远超过了一些主要的癌症
-
-The disability that we are going to see
-
-我们看到的这种因注射疫苗
-
-due to these vaccines
-
-而造成的行动能力的丧失
-
-will go down in history
-
-会被写入历史
-
-as an unbelievable tragedy
-
-这是令人难以置信的悲剧
-
-I made a presentation to the Heritage Foundation in Washington
-
-我在华盛顿为遗产基金会做了演讲
-
-provides a lot of oversights to the House in the senate
-
-向国会议员们展示了很多有关的疏忽、过失
-
-as well as the agencies
-
-当然也包括他们的代理人
-
-And I made this presentation
-
-当我结束演讲时
-
-you could hear a pin drop when I was done
-
-全场鸦雀无声
-
-Finally, one of the former presidents of American Medical Association
-
-最终，一位美国医师协会前主席
-
-Doctor McCullough
-
-麦凯罗医生说到
-
-We have the biggest biological catastrophe
-
-我们正在经历人类历史上
-
-on our hands in human history
-
-最大的生物学灾难
-
-With the medicinal product, we’ve had two administrations buy into it
-
-是与医药产品有关的 我们已经有两届政府涉入其中
-
-We’ve had too all the houses of legislation buy into it
-
-我们所有的立法机构也参与其中
-
-We have the entire medical establishment buy into it
-
-所有的医疗卫生机构也是如此
-
-And the whole media
-
-还有全部媒体
-
-And no one knows how to stop it
-
-没人知道如何阻止它
-
-No one knows how to stop this freight train
-
-没人知道如何组织这列货车(疫苗注射危机)
-
-And we’re all witnessing it right now
-
-我们都在目睹它的发生!
-
-文字听写翻译：维京商人
-
-视频字幕：Kent
-
-编辑/发稿：Kent
-
-*免责声明：本文仅代表作者个人观点，与G-NEWS网站无关*
+上传：零点
