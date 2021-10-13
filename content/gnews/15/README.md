@@ -2,48 +2,19 @@
 ---
 
 
-## 喜币在虚拟币世界里能存在，发展，壮大的三个主要原因
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1590736/)
+## 狮城快讯：东南亚各国“隐性债务”危机四伏
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1590752/)
 
-作者：香草山金融部 – 闲聊钱币
+**撰稿：小坡**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-13-131013.jpg)图片来源：AP
+10月12日郭文贵先生在盖特上曾提到近期整个世界经济越发让人不安，特别是亚洲各国，除了台湾，新加坡和韩国的经济勉强说得过去，其他国家由于过度以来中共国的经济，自身金融体系都存在着巨大的危机。
 
+以新加坡邻国印尼为例，最近的一项研究发现，印度尼西亚欠中共国 172.8 亿美元的“隐藏债务”，是其报告的 39 亿美元主权债务的四倍多，这表明该国对中共国的债务严重低报。
 
+这项由位于美国威廉玛丽学院的国际发展研究实验室 AidData 进行的研究指出，这些隐性债务不是与中央政府签订合同或由中央政府正式担保，而是发放给了所谓的国有企业。这些国有企业，主要为“一带一路”倡议 (BRI) 下的项目提供资金。 AidData 警告说，这些债务不会出现在政府的资产负债表上，但如果借款公司违约或破产，政府可能会面临救助它们的压力。
 
+一带一路项下的所谓各亚洲国家与中共国合作各种大型基建项目，耗资巨大，其中大多借贷资金都是用来收买腐蚀当地官员和通过所谓“国有企业”这样的白手套方式替政客洗钱。因此各种贷款造成的烂账坏账无法偿还债务是必然的，这也加大了中共国的回笼海外投资资金的难度，最终成为中共国和一带一路所有国家的共同债务并将以不可挽回的暴雷方式出现。
 
+金融危机就是通过这样的骨牌效应而出现的，世界的经济真的就在崩溃的边缘！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
-
-
-
-
-网站Coinopsy 追踪并归纳了所有已经死掉的虚拟币及致死原因。在2,300个短命的虚拟币中，1542个是被遗弃的或是没有交易量的，占67%。位居第二的是欺诈，有482个，占21%。第三类就是初始发行不利，有239个。
-
-虚拟币从诞生到现在不过十几年的时间，参差不齐的开发者，投资者，赌徒等都想在这个新兴产业中分一杯羹。那么什么样的虚拟币能胜出呢？网站theconversation.com的一篇文章给出了很好的答案。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture7-2.jpg)
-首先是资金雄厚。资本的大小决定了开发团队的实力。新中国联邦的喜币在郭先生和大基金的运作下，在研发，推广，上市等各个方面都会是胜人一筹。
-
-其次是稳定性。文章说虚拟币要想成功的两个原因是人们相信它并且愿意用它。喜币固定的总发行量，与黄金挂钩的可靠性，以及G生态圈的实用性都标志着随着时间的推移，越来越多的人们会相信，接受并使用喜币。
-
-文章最后提到虚拟币也要“为真不破”。币虽然是虚的，但确真真正正是为了普通百姓的自由服务，对抗强权。喜币正是在爆料革命灭共的前提下应运而生。它是亿万普通草根的金融诺亚方舟。
-
-喜币，既不是第一个也不会是最后一个虚拟币，但它一定是最棒，最灿烂的那个。
-
-（本文仅代表作者观点）
-
-参考来源：
-1. [https://www.coinopsy.com/dead-coins/](https://www.coinopsy.com/dead-coins/)
-2. [https://theconversation.com/more-than-1-000-cryptocurrencies-have-already-failed-heres-what-will-affect-successes-in-future-127463](https://theconversation.com/more-than-1-000-cryptocurrencies-have-already-failed-heres-what-will-affect-successes-in-future-127463)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+**[新闻来源](https://www.thejakartapost.com/academia/2021/08/29/sharing-deltas-costs.html)**

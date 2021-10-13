@@ -2,18 +2,26 @@
 ---
 
 
-## FDA：莫德纳加强针不达标
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1590568/)
+## 有声|“世界上三种权力最重要，我们要有话语权”!
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1590577/)
 
-#### 翻译：坤霆
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-22.jpg)图片来源：网络截图
-10月12日，据路透社报道，美国食品药品监督管理局（FDA）周二表示，莫德纳（Moderna）没有达到该机构支持使用其中共病毒疫苗加强针的所有标准。
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+今天文贵先生在盖特转发了他的一个视频片断，其中文贵先生称:
 
-该公司已要求监管机构批准65岁及以上成年人以及高风险个人的第三轮注射，类似于竞争对手辉瑞 的 mRNA 疫苗获得的授权。
+“在欧洲意大利/法国，以及英国的工会，包括新加坡都在上街游行，美国也在罢工，但所有的媒体都不说这是因为疫苗引起的！这世界有三种权力，第一是货币发行权，掌握这个权力就控制了正义和邪恶的界定！第二是媒体话语权，可以颠倒黑白！最后就是第三种权力：枪杆子军队！全世界百姓都知道疫苗有副作用, 会死人，但不允许说，只是让你打疫苗。邪恶的势力远远超出了想象！拜金主义导致，钱似乎什么都能买，甚至要代表上帝!”
 
-关于加强针所需要的数据主要来自以色列，以色列给大多数人口注射了辉瑞加强针，并向美国顾问提供了第三针的有效性的详细信息。莫德纳或强生疫苗没有类似的现实人群注射后的详细数据。
+文贵先生最后讲到最近习近平关于辛亥革命的讲话,  “世界一半在沉默，另一半的解读，不是喂料就是带风向，完全视2300万台湾人民的生命安全于不顾…..因此媒体话语权对我们来说太重要了!” —  而这正是爆料革命要拥有和建设我们自己的媒体平台: GTV/Gnews和盖特的原因。
 
-美国食品药品监督管理局的顾问还将在周五考虑强生单剂量疫苗的加强针。其尚未发布关于这个计划的简报文件。强生公司要求美国食品药品监督管理局授权，人们在首次注射至少两个月后使用加强针。强生公司表示，数据显示高风险成年人应该更早使用加强针，但低风险个人可以从第二次注射中受益。
+文字版原文：[“世界上三种权力最重要，我们要有话语权”!](https://gnews.org/zh-hans/1589555/)
 
-原文链接：[U.S. FDA staff says Moderna did not meet all criteria for COVID-19 boosters](https://www.reuters.com/business/healthcare-pharmaceuticals/moderna-seeks-covid-19-vaccine-booster-clearance-older-adults-high-risk-2021-10-12/)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

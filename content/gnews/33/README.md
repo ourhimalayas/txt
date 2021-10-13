@@ -2,80 +2,49 @@
 ---
 
 
-## 币圈新闻动态：G|CLUBS在喜交所已有账号
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1590539/)
+## 911系统因缺少人手处于危险之中
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1590540/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
+**作者**：香草山美食部-蓝天大海
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
-
-
-
-## 每日一问
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-2.jpg)
 
 
 
 
 
-比特币价格近日振幅不大就撩拨得众多战友心意荡漾，如何应对喜币可能的巨幅震荡？
+据零对冲10月12日报道，美国救护车协会 (AAA) 警告联邦众议院和参议院的议员们，“美国的EMS（Emergency Medical Service ）系统正面临着严重的劳动力短缺问题。这原本是一个已经存在了十多年的长期问题，目前由于拜登政府发布了新的强制接种疫苗的政策，这一问题变得更加严重。这可能破坏我们的紧急情况救助系统。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-56.jpg)图片来源：pixabay
 
+缅因州沃尔多伯勒镇经理朱莉凯泽告诉缅因州新闻中心：“强制疫苗政策导致了急救人员流失。”他们原以为员工会因为害怕失去工作而服从政府，但他们没有想到，急救人员的工资并不高，他们完全可以找到其他有更高薪酬的工作。
 
+反对疫苗强制执行的不仅是急救人员，洛杉矶的数百名消防员也在近日提交了一份通知，准备就强制接种疫苗的命令起诉该市政府。洛杉矶消防队员的律师写道，疫苗接种令是“明显的错误行为”，理由包括干扰就业权利；造成情绪困扰；侵犯宪法隐私权；违反医学实验法中对人体受试者的保护。
 
+而洛杉矶县警长亚历克斯·维拉纽瓦 (Alex Villanueva)则明确表示，他将拒绝执行有关强制疫苗的规定。他说如果这样做，警局将面临失去多达10%警员的风险。
 
-## 喜马拉雅交易所要闻
+越来越多的急救人员、消防员和警察不接受政府强制疫苗接种的命令，导致离职潮，这毫无疑问会破坏本已脆弱的911系统的有效运行。
 
+参阅链接：
 
+[https://www.zerohedge.com/political/911-system-jeopardy-first-responders-are-not-down-mandated-jab](https://www.zerohedge.com/political/911-system-jeopardy-first-responders-are-not-down-mandated-jab)
 
+***编辑/校对/发稿：遍地开花***
 
+***终审：飞虹***
 
-- 联盟10月11日答疑消息，1).G|CLUBS在喜交所已有账号，2).新G|TV在喜交所还未有账号
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-3.jpg)
 
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-## 新闻动态
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-
-
-
-1. IPR daily报道，全球知识产权综合信息服务提供商IPR daily与incoPat创新指数研究中心联合发布“2021年全球高相关度区块链授权发明专利排行（TOP 100）”，截止2021年8月31日，全球区块链有效发明专利授权数量共8,957件，主要分布在中国、美国、韩国、日本、欧洲专利局（EPO）、法国、德国、俄罗斯、立陶宛9个国家组织或地区。从授权趋势来看，这项技术年专利授权量自2019年开始持续显著增长。前三名持有人分别是蚂蚁集团1,252件专利、腾讯科技391件专利、IBM 297件专利。
-2. TheBlock报道，市商B2C2的数据显示，比特币近期一直在上涨，但看起来散户交易员并没有推动这一走势。该公司在向客户分发的每周报告中表示，总体而言，市场最近“适度偏向买方”，尽管如此，并非所有人都在看涨。报告指出，市场上行可能主要是由机构资金推动的，而零售业务则处于次要地位。根据其数据，拥有数百万散户用户的加密交易所在10月3日至10月10日期间向卖方倾斜了57.4%，而OTC向买家倾斜了54.8%。
-3. 10月13日消息，根据花旗的一份新报告，包括迪士尼、视频游戏发行商艺电（Electronic Arts）和Robinhood Markets在内的公司预计将从NFT中受益。花旗分析师Thomas Singlehurst在题为“颠覆性创新”的报告中写道，NFT的出现将可能对任何/所有涉及IP、许可和商品相关收入的行业造成重大破坏，并指出关键是其去中心化和民主化模式允许内容所有者在分发和货币化方面消除传统看门人的中介。
-4. 10月13日消息，在过去四年中，在运营同类钱包的公司中，Coinbase的数字钱包收到的投诉数量排名第三。根据马萨诸塞州学生公共利益研究小组（MASSPIRG）的数据，从2017年到2021年4月，Coinbase收到了755起投诉。在美国顶级加密平台中，Coinbase收到的投诉最多，从2020年5月开始的一年中总共收到1,060起投诉，其中包括有关其数字钱包以及国内和国际汇款的投诉。
-5. 10月13日消息，在全球拥有2.1亿用户的以色列网络开发服务公司Wix已与加密货币支付处理器BitPay合作。其电子商务平台添加了大量加密货币作为新的支付选项，包括狗狗币。新功能将分阶段推出，最初将在美国、加拿大、英国、德国和巴西接受加密货币。今年2月，Wix一度成为以色列最大的公司，市值突破200亿美元。
-6. 10月13日消息，由加密货币支持的社交媒体平台Yup在由Distributed Global领投的一轮融资中筹集了350万美元，并得到了DapperLabs和众多知名天使投资者的支持。该平台的工作方式类似Pinterest，让用户可以从各种不同的社交网站中挑选内容。
-7. TheBlock报道，总部位于法国的合规加密货币大宗经纪商Sheeld Market完成1,000万美元A轮融资，Atomico领投。作为交易的一部分，Atomico的合作伙伴Siraj Khaliq加入了Sheeld Market的董事会。据悉，Sheeld Market计划利用新融资扩大其平台，提供衍生品交易和Aave Arc等获得许可的DeFi协议。
-8. 10月13日消息，Bitstamp和ZEBEDEE宣布建立合作伙伴关系，允许用户立即充值游戏内ZBD钱包，并使用其作为闪电钱包。Bitstamp的闪电网络集成将允许客户无缝地将比特币转移到ZEBEDEE游戏生态系统，用户现在可以在虚拟游戏环境中使用比特币。
-9. 10月13日消息，面向DeFi和NFT用户的多链加密钱包XDEFI Wallet在Chrome商店推出了公共版本。与被广泛使用的浏览器扩展钱包MetaMask类似，XDEFI钱包支持跨多个区块链的DeFi应用程序。根据声明，XDEFI Wallet支持以太坊网络和其他EVM兼容链，目前支持THOR chain和Terra，未来还计划支持Avalanche、Solana和Arbitrum。
-10. 10月13日消息，Coinbase周二宣布将推出NFT市场“Coinbase NFT”，目前已发布等候列表。这项由Coinbase产品副总裁SanchanSaxena牵头的新产品将允许用户铸造、购买和展示NFT。最初将支持基于以太坊的NFT，但计划在推出后扩展到其他链。
-11. 10月13日消息，区块链公司Constellation收购了零售数据初创公司Dor，目的是将客流量信息添加到其他相关数据集中。收购条款未披露，但Constellation发言人称，金额为“八位数”，介于1,000万美元至9,900万美元之间。
-12. 10月13日消息，下一代GameFi协议KawaiiIslands将在Polkastarter上启动其IDO。根据官方公告，KawaiiIslands将于UTC时间10月12日13:00在Polkastarter平台上提供其KWT代币。
-13. CryptoPotato报道，分片公链Elrond Network已经同意收购Capital Financial Services S.A，目前该笔交易尚在等待监管部门批准。据悉，Capital Financial Services S.A获准在欧元区经营电子货币机构（EMI），同时还是Visa和万事达卡的主要成员，这使得该公司能够为300多家商户提供支付处理服务，其中包括罗马尼亚最大的航空公司Blue Air。
-14. 10月13日消息，ConsenSys宣布收购供应链平台Treum团队及其NFT音乐和艺术项目Euler Beats。ConsenSys的NFT业务将由ConsenSys的Johnna Powell和Treum联合创始人Tyler Mulvihill共同领导，并由Treum联合创始人Kishore Atreya提供建议。
-15. 10月13日消息，去中心化交易协议Curve宣布上线Harmony，将其稳定币兑换解决方案扩展到Harmony，目前支持DAI-USDC-USDT三池。另外，Harmony将提供价值200万美元的ONE代币激励。
-16. 10月13日消息，美国说唱歌手Jay-Z创立的风投机构Marcy Venture Partners已将基于元宇宙和区块链的技术孵化器sLABS添加到其加密投资清单中。据悉，sLABS由24岁的企业家Iddris Sandu创立，明年将推出其首款产品“LNQ”，即一个支持区块链的硬件平台，可帮助年轻创作者加入元宇宙。
-17. 10月13日消息，以太坊Layer 2网络zkEVM发文宣布已完成带有额外的Layer 2特定功能的Web 3 API的开发，并已在Uniswap V2上展示了智能合约和前端端口。据官方介绍，这是首个EVM全兼容的zkRollup。用户现在通过uni.zksync.io页面链接钱包，领取部分测试token。UniSync是由Matter Labs推出的UniswapV2的一个端口的代码和前端，并不是隶属于Uniswap Labs。
-18. Decrypt报道，比特币矿企Clean Spark已购买4,500台S19蚂蚁矿机，部分资金来自出售该公司持有的比特币，矿机将从下个月开始交付，计划在2022年7月前完成。此外预计这批矿机完全投入运营后，其可持续的比特币挖矿能力将增加450PH/s，相当于当前算力的近45%，目前该公司共运营着超过1万台矿机，预计未来12个月待交付的矿机为24,580台。
-19. 10月13日消息，在美国证券交易委员会（SEC）的一次活动中，专员Caroline Crenshaw反对其同事Hester Peirce有关建立代币安全港的提议。Crenshaw称：“我希望我们可以建立一座桥梁，而不是一个港口。”
-20. 10月13日消息，美国迈阿密市长仍然希望能用比特币支付员工工资。
-21. 10月13日消息，俄罗斯财政部副部长阿列克谢•莫伊谢耶夫（Alexei Moiseev）周二表示，政府没有计划对加密货币交易实施禁令。根据Moiseev的说法，公民将能够购买数字资产并在外汇交易中使用加密钱包。但是，他还强调，对加密货币支付的禁令将继续存在。
-22. 10月13日消息，以太坊联合创始人V神（Vitalik Buterin）最近在接受采访时被问及是否能看到以太坊不仅在价格价值上，而且可以作为一种价值存储资产超过比特币，他简单地回答了“它可以”。
-23. U.today报道，彭博首席ETF分析师Eric Balchunas在推特上重申，美国SEC可能会在10月底或11月初批准比特币ETF申请。这意味着，如果一切顺利，最先提交比特币ETF申请的公司ProShares或将很快推出该ETF。到10月18日，距离其向SEC提出申请已经过去了75天。
-24. 10月12日消息，CoinTrendz发推称，日前ShibaInu（SHIB）在推特上被提及次数一度超过了比特币、以太坊、狗狗币、ADA和其他山寨币，包括排名前十的主流币。
-25. 10月12日消息，以太坊基金会研究员Protolambda发推称，Amphora测试网成功启动后，发现由于一些配置问题，Amphora测试网承受了大约3倍于主网的工作量，可扩展性不如主网预设（mainnet preset）。
-26. 10月13日消息，在停止支持比特币3年后，美国支付巨头Stripe正在开始组建一个加密工程团队，以规划其在数字资产方面的未来。领英帖子和职位列表中描述的团队将由Stripe的前银行和金融产品工程负责人Guillaume Poncin运营，他希望雇用至少四名员工来帮助制定Stripe的加密策略。
-27. Coindesk报道，SBF将不再担任Alameda CEO，全职投入FTX的工作之中，Alameda将由Caroline Ellison和Sam Trabucco出任联席CEO。
-28. 10月13日消息，土耳其最大的加密货币平台之一Coinzo将终止其数字资产交易服务。该平台表示，其网站将在未来六个月内保持在线状态，以允许用户提取其持有的加密货币和土耳其法定货币。据悉，该加密平台的日交易量接近5亿里拉（超过5,500万美元）。
-29. 10月12日消息，国际人道主义组织无国界医生（MSF）已收到价值350万美元的ETH作为捐赠。这笔捐款已转换为澳元，将帮助无国界医生继续在世界各地提供医疗帮助。
-30. 10月12日消息，美国最大的非营利组织之一，儿童发展领域的世界领导者国际慈悲组织Compassion今天宣布与领先的加密货币捐赠平台Engiven合作，为支持者提供一个帮助贫困儿童的新选择。
-
-
-
-
-
-*编辑：aQ
-发布：文顾*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-2.jpg)
