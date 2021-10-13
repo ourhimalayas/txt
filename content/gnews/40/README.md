@@ -2,28 +2,29 @@
 ---
 
 
-## 有声|中共不计成本欲毁掉G系列，新中国联邦开展法律反击
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1590631/)
+## 多家SPAC投资基金为规避风险与中企脱钩
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1590774/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间10月11日，郭文贵先生在盖特视频中，揭露了中共当局正在不计一切成本，展开对G系列超限战的事实。
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-42.png)
+图片来自网络
 
-郭先生说，过去两周以来，中共内部的战友们多次反映，中共灭爆小组已下达明确指示，要在近期不惜一切代价，阻止喜币的上市，同时要展开对G-TV、Gnews 、盖特和G-CLUBS的司法超限战。
+据《希望之声》2021年10月13日报道，最近几个月以来，已有至少四家特殊目的收购公司（SPAC）修改了它们的上市申请，将中共国企业从其感兴趣的投资领域中剔除，以规避风险。
 
-自2020年原G-TV私募伊始，中共便启用了大量海外的统战、情报力量，对G系列极尽造谣、诋毁之能事，并向各美国法院提交对G系列的虚假诉讼；以致1300名早期投资者的款项至今被冻结。
+此前，美国证券监管机构要求行业对与中企相关业务的投资风险进行大量披露；而与此同时，中共当局也正在加大对企业的全面监管，导致行业的压力成倍增加。
 
-经过一年多的准备，爆料革命和新中国联邦已开展对中共及其幕后邪恶势力的法律回击。在过去因投资G系列而遭受银行账户冻结、拒绝服务的广大战友们，请保存好各种文字、语音证据，并向所在喜马拉雅农场取得联系，加入这场维护华人利益的法律反击战。
+正是由于上述两方面因素，许多SPAC公司借此机会宣布，他们将不再涉足与中企有关的业务，以规避风险。
 
-文字版原文：[中共不计成本欲毁掉G系列，新中国联邦开展法律反击](https://gnews.org/zh-hans/1588838/)
+特殊目的收购公司是一种投资基金，允许公共股票市场投资者投资私募股权交易，以执行杠杆收购。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在今年早些时候，许多该类公司在上市申请中，宣布自己专注于投资中共国的企业。其中的热门行业包括：新能源、生物技术和教育公司等。但在几个月之前，中共政府对科技行业与教育界发起了空前严格的监管，一度导致滴滴公司强制停止美股的IPO活动，引发行业恐慌。
+
+正因为如此，许多SPAC公司为了避险，不得不修改招标书，宣布他们将会到中共国以外的任何地方进行交易。这样做，不仅能降低投资者对其投资风险的担忧，同时也能规避美股对与中企业务相关的上市审查。
+
+行业知情者指出，有计划在纽约上市的 SPAC 团队，决定将投资重点从中共国转移到印度，以更快地获得美国证券交易委员会的批准。许多公司公开声明，他们选择与中企脱钩，今后将专注于北美和亚太地区，但不包括中共国市场。
+
+可以说，许多SPAC公司的这一最新决定虽是被迫做出的，但却是十分明智的。与中共和中企捆绑在一起，下场将极为惨淡。全球与中共的全方面脱钩都在进行中，这对于中共和中企来说，无疑是致命打击。
+
+注：本文仅代表作者观点
+
+**新闻链接：**[https://twitter.com/SoundofHopeSOH/status/1448096322272337929](https://twitter.com/SoundofHopeSOH/status/1448096322272337929)

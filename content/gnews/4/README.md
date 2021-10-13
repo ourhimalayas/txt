@@ -2,34 +2,159 @@
 ---
 
 
-## 秘翻在线:战争贩子会是台海危机的导火索?
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1591185/)
+## 中国的金融票据破坏力巨大，中国人将付出无法想象的代价
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1591286/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/epa-7.jpg)
-图片:中新社
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2471.png)
+[https://gtv.org/video/id=61664356d2e2b81748749757](https://gtv.org/video/id=61664356d2e2b81748749757)
 
-**中共频频挑衅台湾**
+还有一个今天我们要谈到的
+Hay otra cosa que hoy vamos a conversar
 
-根据《CNN》的报导，中共国10月11日表示，“最近几天”解放军在福建省南部演习，进行海滩登陆和突击演习。当天天气晴朗，海面平静，透露演习并不是在热带风暴影响的10月11日进行。
+特别是金融票据
+Especialmente sobre las facturas financieras
 
-中共国国家主席习近平重申“统一”台湾，台湾总统蔡英文则强硬回应台湾将“不惜一切代价捍卫其自由和民主的生活方式”，并抱怨中共空军大规模入侵台湾的防空识别区。
+啥叫金融票据啊
+Qué son las facturas financieras
 
-**战争贩子借由媒体渲染成为台海危机的推手?**
+啥叫金融票啊
+Qué son los boletos financieros
 
-根据《Moon of Alabama》报导，战争贩子通过向媒体公开美国军队在台湾训练军队，进一步激化了台海战争的可能性。主流媒体大量报导蔡英文总统对中共的强硬态度，澳大利亚前总理托尼·阿博特(Tony Abbott)刚刚访问台北 ，极力倡导“民主并肩”，与台湾对抗中共国。
+就是一张纸
+Es simplemente una hoja
 
-最近的一项民意调查显示，超过一半的美国人支持美军保卫台湾免受大陆入侵，这是激进的宣传活动。澳大利亚媒体正制作令人难以置信的疯狂 60 分钟剧集，荒谬地推测中共国可能攻击澳大利亚以及澳大利亚人应该为保护台湾而开战的想法。网民也强烈支持美国及其盟友因台湾独立而与中共国开战的想法。”这显然是疯了，任何接受这种想法的人都是被媒体洗脑的傻瓜。” 独立记者凯特琳·约翰斯通 (Caitlin Johnstone)说。
+谁来登记了
+Donde alguien se registra
 
-**台湾独立是一个假议题**
+就我们一个泰山兄弟亲身经历了800亿
+Uno de nuestros hermanos Taishan ha experimentado personalmente los 80 mil millones
 
-在10月9日举行的纪念辛亥革命110周年大会上，习近平称，「台独」分裂是祖国统一的最大障碍，是民族复兴的严重隐患。
+你让他自己跟我说那800亿是谁的票据, 他都说不出来
+Si le pides que me diga de quién es la cuenta de esos 80 mil millones, no logra decirlo
 
-然而台湾独立并不是议题，而是早就存在的一个事实。为了”台湾独立”这个假议题，发动一场导致数百万人死亡的世界大战，是一件不可思议的穷兵黩武。如果事情发展成核战争，更可能导致数十亿人死亡，这对每个人来说都会是惨烈的梦魇。
+你让他翻箱倒柜都查不出来
+Ni siquiera hacerle cabar el gabinete puede conseguirlos
 
-然而铺天盖地的媒体宣传使得许多人相信台海战争的必要性，甚至忽略战争的真正恐怖面貌。如果人们真正理解这意味着什么，没有任何理智的人会支持这种规模的战争，除了战争贩子及邪恶势力。
+共产党的地方债
+Las deudas locales del Partido Comunista
 
-消息来源:
-[Johnstone: Anyone Who’d Support Going To War Over Taiwan Is A Crazy Idiot
-China says it held beach landing drills in province opposite Taiwan](Anyone%20Who'd%20Support%20Going%20To%20War%20Over%20Taiwan%20Is%20A%20Crazy%20Idiot
-China%20says%20it%20held%20beach%20landing%20drills%20in%20province%20opposite%20Taiwan)
+所谓的隐形债务
+El supuesto deuda invisible
+
+共产党的所谓影子银行, 影子金融
+El llamado banco de sombra y sombra financiera del Partido Comunista
+
+我可以告诉大家
+Les puedo decir
+
+上帝都不知道发生了多少
+Ni Dios sabe cuántos han ocurrido
+
+中国积累的假, 骗, 金融票据
+Las mentiras, falsas facturas financieras acumuladas por China
+
+这个爆发的时候
+Cuando esto se estalle
+
+你不知道能把什么东西都给你轰掉了
+No sabes qué cosa puede bombadearte
+
+而且最关键的问题
+Y el problema más crucial
+
+这些低级骗子们跟华尔街掺和在一起
+Estos estafadores de bajo nivel se mezclaron con Wall Street
+
+但是对他(们)来讲
+Pero para ellos
+
+赚钱我拿20%
+Si hay ganancia, yo tomo el 20%
+
+赚不赚, 我收你5%
+No importa si hay ganancia o no, te cobro el 5%
+
+他给像我这样的人2.5%
+Le da un 2.5% a personas como yo
+
+你想想七哥经历这些事情
+Piensa todas estas cosas que he experimentado
+
+这个世界有多恐怖
+Lo temeroso que es este mundo
+
+所以老百姓们根本不不懂
+Por eso los ciudadanos ni siquiera entienden
+
+告诉我, 14亿中国人
+Dime, 1.4 billones de chinos
+
+啥叫基金
+Qué es el fondo
+
+啥叫对冲基金
+Qué es fondo de cobertura
+
+啥叫封闭基金
+Qué es un fondo cerrado
+
+啥叫开放基金
+Qué es un fondo abierto
+
+啥叫赎回基金
+Qué es fondo de redención
+
+啥叫不赎回基金
+Qué es fondo no reembolsado
+
+他都不知道
+Él no sabe
+
+我们今天说的本质
+La esencia original que hoy hablamos
+
+所有的所谓地方债
+Todas las supuestas deudas locales
+
+所有影子银行, 所有的金融产品
+Todos los bancos de sombra y productos financieros
+
+就一句话
+Con sólo una palabra
+
+就是奴役中国人的
+Es para esclavizar a los chinos
+
+就中国人这21年加入WTO以后
+Con decir luego que los chinos se unieron a la Organización Mundial del Comercio (OMC) durante estos 21 años
+
+成了全人类的奴隶
+Se convirtió en el esclavo de toda la humanidad
+
+而且中国人顶住了全人类最大的一个金融的雷
+Y los chinos han resistido el mayor trueno financiero
+
+别说别的雷, 雷多了去了
+No digamos los otros truenos porque son muchos
+
+而且中国人即将为此付出代价
+Además, los chinos pagarán el precio por esto
+
+* * *
+
+日期：10/11/2021
+原视频标题：中国的金融票据破坏力巨大，中国人将付出无法想象的代价
+Las facturas financieras de China son tan destructivas que los chinos pagarán un precio inimaginable
+原视频日期：10/05/2021
+原视频网址[https://twitter.com/se1y7cblljselva/status/1446020234536624128?s=24](https://twitter.com/se1y7cblljselva/status/1446020234536624128?s=24)
+任务编号：KC165（2471）
+视频时间段：0:00-1:40
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场-小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

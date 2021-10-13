@@ -2,62 +2,108 @@
 ---
 
 
-## 紧急迫降：达美航空飞行员在飞行中死亡
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1591120/)
+## 江志成绝对想当太上皇
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1591219/)
 
-- **编译：Lulumi**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2446.png)
+[https://gtv.org/video/id=61664218d2e2b817487496e8](https://gtv.org/video/id=61664218d2e2b817487496e8)
 
+江志成绝对是想当太上皇的
+Jiang Zhicheng definitivamente quiere ser el emperador
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip321.png)
+你们千万别忘了啊
+No se les vaya a olvidar
 
-在接受Stew Peters采访时，简·鲁比博士(Jane Ruby)提供了经多方证实的爆炸性信息，即在过去两周内，达美航空的一名打过疫苗的飞行员在飞行中死亡，被迫紧急降落，而该公司正在掩盖此事！这是一个灾难性的周末。
+王力科、裴文正
+Wang Like, Pei Wenzheng
 
-Stew Peters：这对西南航空公司来说是一个灾难性的周末。在整个周六和周日，他们取消了2100多个航班，约占其总数的四分之一。现在，事情变得有趣了。极为明显的是，有人在取消航班原因方面撒了谎。在一份声明中，西南航空公司指责恶劣的天气和空中交通管制问题。但联邦航空管理局说，不，自上周五以来，没有任何空中交通管制问题。而且，如果说 “恶劣天气”迫使航班取消，那也是一种特殊的天气，因为只影响到西南航空公司和它的飞机。其他航空公司没有出现大规模取消航班。佛罗里达州有一些雨和雷暴，但没有飓风。没有什么需要大规模停航的情况。
+包括这个现在的博政华
+Incluyendo este Fu Zhenghua
 
-不，有人在这说了谎。而且可能是来自西南航空公司和联邦航空局。有报道称，在佛罗里达州的杰克逊维尔，空中交通管制员罢工，以抗议强制疫苗接种。但这可能还不是全部。西南航空上周宣布对所有人员进行疫苗强制接种，有报道称飞行员也加入了抵抗行动。但西南航空公司的飞行员工会声称没有进行这种抗议行动；他们说西南航空公司管理层的”计划不周”导致了航班取消。所以，也许工会也在撒谎或毫无头绪。
+傅政华跟着习
+Fu Zhenghua le sigue a Xi
 
-为了解开这一切，邀请简·鲁比博士加入节目讨论这背后是否有人在掩盖真相。
+但是绝对骨子里边是相信江家
+Pero dentro de él cree en la familia Jiang
 
-简·鲁比：这里肯定有掩盖，但是在讨论西南航空之前，我想先跟你分享一个爆炸新闻，我刚从三个跟达美航空直接相关的爆料人获得消息：在过去10天之内，一个飞行员在飞行中死亡，副机长告诉一位空姐，机长前一刻还在正常说话，然后说了几句奇怪的话，然后就死了。
+代言人是江志成
+El portavoz es Jiang Zhicheng
 
-作为3名举报人之一的空姐还分享了一件事，死亡的机长告诉这位副机长，他在几天前刚刚完成了第二剂疫苗接种。
+然后孙力军、孟建柱、王岐山
+Luego Sun Lijun, Meng Jianzhu, Wang Qishan
 
-所以我们想让人们知道，Stew，我必须告诉你，三位举报人之一首先与我分享了一些信息，这事比人们想象的要大得多，这正是你我从一开始就一直怀疑的，我们知道这些数字比媒体报道或不报道的要大得多。
+像康典、像周亮
+Como Kang Dian, Zhou Liang
 
-听听这个：这就是现在天上发生的事情，天上有很多事在发生。航班因飞行员胸痛而改道，最近的航班因一名30岁的男性乘客胸痛无法呼吸而改道，所以这不仅仅是你的机长会生病，也许飞机有问题，感谢上帝，他们有副驾驶可以紧急降落，并让机长脱离危险。
+曾庆红、曾伟全家100%是认可江志成
+Zeng Qinghong, toda la familia de Zeng Wei cree y aceptan a Jiang Zhicheng al 100%
 
-西雅图的飞行员被发现死于家中，原因是栓塞。除了你所描述的一切之外，飞行员和空乘人员现在成群结队，在打完针后都没有回到现役岗位。
+是祖传，是扶持江志成的
+Es ancestral, es el apoyo de Jiang Zhicheng
 
-两名亚特兰大的空姐在第二次注射后几天被发现死在家里。
+江志成绝对是江（泽民）还有曾和王岐山都认可
+Jiang Zhicheng definitivamente es reconocido por Jiang (Zemin), Zeng y Wang Qishan
 
-七名亚特兰大的空姐出现了突破性感染，这对我们来说并不奇怪。
+习只能干五年（就）滚蛋
+Xi sólo puede trabajar 5 años y se va
 
-一名亚特兰大的飞行员在打了两针疫苗后出现了突破性感染，在服用瑞德西韦后死于肾衰竭。
+然后下一个人是他来选的
+Y la próxima persona será escogido por él
 
-在德州南湖市的一个机场，一名兼职消防员在打完第二针3天后在睡梦中死去。
+下一个就是他选的
+El próximo lo escoge él
 
-另一个，也是与此相关的另一个南湖空乘基地的经理在打完第二针强生疫苗后死亡。他是一些空乘人员的个人主管，今年47岁。
+这绝对是他想的
+Esto definitivamente es lo que él piensa
 
-所以，伙计们，天空中发生了很多事情，现在有很多风险，这些航空公司最好抓紧时间，三思而后行，因为他们中的很多人正在为这些国防部的合同做准备。
+要不然你想想
+O sino piensa tu
 
-**评论：**
+中国你给我说吧
+Háblame de China
 
-**文贵先生再次对疫苗灾难做出准确预测，已经在发生的灾难跟文贵先生警告世界的丝毫不差。**
+所有最争钱的微信、腾讯
+Dentro de todos los que tiene más ganancia como WeChat, Tencent
 
-**这么多飞行员和空乘的死亡事件被航空公司和媒体掩盖。**
+滴滴打车、蚂蚁金服、平安
+DiDi Dache, Ant Group, Ping An Insurance
 
-**但真相是掩盖不住的。随着飞行员的不断减少，不久的将来人类真的会被困在原地哪里也去不了。**
+上海银行、上海久事、兴业银行
+Banco de Shanghai, Shanghai Sharks, Banco Industrial
 
-**只有新中国联邦是唯一的希望，不断揭露疫苗真相，唤醒更多的人，形成比邪恶势力更强大的正义力量，才能在这次正邪大战中获胜**。
+几大地产商哪个不是江志成控股
+¿Cuál de los principales desarrolladores inmobiliarios no son administrados por Jiang Zhicheng?
 
-（文章仅代表作者观点，与GNEWS无关）
+你给我找一个出来
+Búscame uno
 
-**来源：[Red Voice Media](https://www.redvoicemedia.com/2021/10/sources-vaxxed-delta-pilot-dies-in-flight-emergency-landing-required/)  | 作者：The Stew Peters Show** **发布时间：2021年10月11日**
+所以说习的最大敌人是谁
+Por eso cuál es el enemigo más grande de Xi
+
+是王岐山、是江志成
+Es Wang Qishan, es Jiang Zhicheng
+
+是曾庆红
+Es Zeng Qinghong
+
+孟建柱和孙力军是在这儿要弄死习
+Meng Jianzhu y Sun Lijun quieren matar a Xi
 
 * * *
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+日期：10/11/2021
+原视频标题：江志成绝对想当太上皇
+Jiang Zhicheng definitivamente quiere ser el emperador
+原视频日期：10/06/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1445639678980280321?s=24](https://twitter.com/se1y7cblljselva/status/1445639678980280321?s=24)
+任务编号：KC163（2446）
+视频时间段：0:00-1:14
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
