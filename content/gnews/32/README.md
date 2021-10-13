@@ -2,32 +2,24 @@
 ---
 
 
-## 自民党竞选纲领有气无力，岸田文雄支持率走低
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591410/)
+## 接种率超过98%了
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1591435/)
 
-作者：在远方
+撰稿：文雨
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture2-2.jpg)
+图片来自：网络
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+村里今天第一针的疫苗接种率已经超过98%了，完全接种也已经达到72%，虽然在每天的简报会上官员们仍在说着疫苗接种所取得的成果巨大，但从他们说话的语气中，已能感受到些许的担忧和不自信。
 
+州长说，放松政策会不断进行评估，我们不想看到病例2，4，8，16…1000，1500，2000这样速度的增长…如遇特殊情况，会召开甚至一天二次的内部紧急会议，讨论应对措施。卫生部长也坦承了本周五开放后，病例会有所上升，说下一阶段关注重点将从感染病例数上有所转移，因为人们打了疫苗重症和死亡率会下降……真的吗？接下去医疗系统的压力真会下降吗？
 
+再来看看新加坡的报道，该国83%的完全接种率，目前非但没有开放，而且反其道而行之，从9月份开始，随着病例每八到10天翻一番，政府恢复了对聚会的限制；美国建议公民重新考虑前往该国的旅行；几家医院的急诊科开始排起长队。现在该国的居民备受打击，人们再次被告知应该居家办公。在限制措施实施两周后，将在周一再次进行复核，并根据社区情况进行调整。有官员甚至认为戴口罩、限制旅行和保持社交距离的措施有可能持续到2024年。上个月，官员们又匆忙建起了配备氧气罐的社区治疗设施，要求轻症或无症状者在家康复。许多新加坡人表示，他们不知道该做什么，政府似乎准备不足。
 
-10月12日路透社消息，日本自民党公布了谋取众议院席位的竞选纲领声明，强调要终结新冠疫情，承诺重建中产阶级并抵御日益强硬的中共。声明称未来将以果断的行动终结疫情。而在国土安全议题中，对于中共在台海附近，以及中日争议岛屿扩大军事活动的威胁，自民党称将重新考虑予以回应，并要提高国防预算，以期达到甚至超过GDP的2%。近几十年来，日本的国防开支一直维持在1%左右。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1013-AM-（3）.001.jpeg)
-自民党的这一竞选纲领表明，当前日本政府清楚的意识到，来自中共的威胁将是日本当今所要面对的主要问题。但以当前利益为前提之下，知行毕竟难以合一，无论谁执政，日本政府始终仍然难以完全摆脱中共的影响和掣肘。而来自NHK的一项民意调查显示，自民党新任首相岸田文雄的支持率仅为49%，明显低于前任首相们上任初期的支持率。
-(本文仅代表作者观点)
+对于未曾出现大规模暴发又想要重新开放的城市来说，新加坡的经验已经成为发人深省的案例。我也似乎已经看到了村里的未来，那些认为疫苗接种率达到一定水平后，就可以重新开放，
 
-参考链接：[日本自民党公布竞选宣言 重点是终结疫情并对抗中国](https://cn.reuters.com/article/japan-ldp-parliament-election-1012-idCNKBS2H20NN)
+看来村长们现在都在河里摸着石头，这石头将把他们引向河的深处，而不是对岸！
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+(文章内容仅代表作者观点与GNEWS无关）
 
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：信心满满*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

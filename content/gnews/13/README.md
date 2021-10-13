@@ -2,45 +2,29 @@
 ---
 
 
-## 《华盛顿邮报》：中共阻挠不可接受，我们必须找到病毒来源
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1591639/)
+## 有声|FDA对北欧国家暂停使用Moderna 冠状病毒疫苗做出回应
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1591659/)
 
-作者：纽约香草山农场 – 四季
+配音：香草山美食部 – 玫瑰园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+据[零对冲](https://www.zerohedge.com/markets/fda-responds-nordic-countries-suspending-moderna-covid-vaccine-usage)10月11日报道，美国食品和药物管理局（FDA）对上周北欧国家限制使用Moderna的COVID-19疫苗做出了回应，称该疫苗的好处大于风险。
 
+FDA的一位官员在周末对新闻媒体发表的一份声明中说，FDA知道这些数据。目前，FDA仍然认为接种Moderna COVID-19疫苗的已知和潜在好处超过了已知和潜在风险。
 
+同时，Moderna在这些国家做出决定后的一份声明中认为，这些通常是轻微的病例，个人在接受标准治疗和休息后往往会在短时间内恢复。然而，生命诚可贵，目前对那些注射疫苗而罹患心脏疾病的青年人产生的长期影响不得而知。
 
+因为有包括心肌炎在内的副作用风险，芬兰、挪威、瑞典和冰岛的卫生官员都已宣布暂停对年轻人使用Moderna疫苗。而FDA无视这些已知的副作用风险，仍然坚持推行疫苗，是将人们的生命健康置于长期未知的风险之中。
 
+文字版原文：[FDA对北欧国家暂停使用Moderna 冠状病毒疫苗做出回应](https://gnews.org/zh-hans/1589912/)
 
-[《华盛顿邮报》](https://www.washingtonpost.com/opinions/2021/10/11/covid-origin-wuhan-china-stonewalling-must-stop/)在10月11日发表的编辑部社论中表示，病毒的来源尚不清楚，需要进行可靠的调查。而为了防止下一次大流行病的发生，为了了解真相，我们必须找到病毒的来源，中共阻挠调查是不可接受的。
+音频处理：喜山必胜Maverick
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1202-1.png)*10月7日，居民骑车穿过中国武汉。(Getty Images)*
-
-文章回顾并列举了两年来围绕病毒及其起源所发生的事件。文中指出，中共阻止世卫组织联合调查组的调查，否认[武汉病毒研究所](https://www.aboluowang.com/tag/%E6%AD%A6%E6%B1%89%E7%97%85%E6%AF%92%E7%A0%94%E7%A9%B6%E6%89%80-1.html)有过感染病例，并声称没有发现任何问题。
-
-文章揭露了生态健康联盟主席、动物学家和寄生虫学家彼得·达萨克（Peter Daszak）与武汉病毒研究所的蝙蝠冠状病毒学家[石正丽](https://www.aboluowang.com/tag/%E7%9F%B3%E6%AD%A3%E4%B8%BD-1.html)的密切合作。并指出，达萨克一直是人畜共患病溢出假说的大力倡导者，并批评那些提出实验室泄漏可能性的人。
-
-中共病毒肆虐全球至今，如不能找到病毒来源，所有解决病毒的努力都会成为无源之水，无本之木。沉默令人振聋发聩。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 **更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,24 +2,33 @@
 ---
 
 
-## 接种率超过98%了
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1591435/)
+## 受中共影响，金正恩继续对美核讹诈
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591437/)
 
-撰稿：文雨
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture2-2.jpg)
-图片来自：网络
+作者：文龙
 
-村里今天第一针的疫苗接种率已经超过98%了，完全接种也已经达到72%，虽然在每天的简报会上官员们仍在说着疫苗接种所取得的成果巨大，但从他们说话的语气中，已能感受到些许的担忧和不自信。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-州长说，放松政策会不断进行评估，我们不想看到病例2，4，8，16…1000，1500，2000这样速度的增长…如遇特殊情况，会召开甚至一天二次的内部紧急会议，讨论应对措施。卫生部长也坦承了本周五开放后，病例会有所上升，说下一阶段关注重点将从感染病例数上有所转移，因为人们打了疫苗重症和死亡率会下降……真的吗？接下去医疗系统的压力真会下降吗？
 
-再来看看新加坡的报道，该国83%的完全接种率，目前非但没有开放，而且反其道而行之，从9月份开始，随着病例每八到10天翻一番，政府恢复了对聚会的限制；美国建议公民重新考虑前往该国的旅行；几家医院的急诊科开始排起长队。现在该国的居民备受打击，人们再次被告知应该居家办公。在限制措施实施两周后，将在周一再次进行复核，并根据社区情况进行调整。有官员甚至认为戴口罩、限制旅行和保持社交距离的措施有可能持续到2024年。上个月，官员们又匆忙建起了配备氧气罐的社区治疗设施，要求轻症或无症状者在家康复。许多新加坡人表示，他们不知道该做什么，政府似乎准备不足。
 
-对于未曾出现大规模暴发又想要重新开放的城市来说，新加坡的经验已经成为发人深省的案例。我也似乎已经看到了村里的未来，那些认为疫苗接种率达到一定水平后，就可以重新开放，
+本周一朝鲜独裁者金正恩，出席朝鲜国防发展博览会并讲话，金正恩称朝鲜正在建设一支“无敌”军队，且有能力对美国本土发动核打击！ 因为“美国仍然在继续以其错误判断、和行动制造紧张局势。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1013-AM-（2、4）视频备用.002.jpeg)
+此前朝鲜曾在一个月内试射了4枚防空导弹，且在中共的偕助下，正在扩建其铀浓缩基地，并重启了一座核反应炉。在此次的国防博览会上，金正恩站在堆满洲际弹道导弹的展厅里，称这些武器不是为了发动战争，而是为了保护朝鲜。
 
-看来村长们现在都在河里摸着石头，这石头将把他们引向河的深处，而不是对岸！
+川普总统任期内曾于金正恩举行多次会晤，试图实现半岛无核化，但谈判最终因金正恩要求美国先行放弃制裁而未果。而在拜登总统任职后，白宫表示美国希望与金正恩继续进行会谈，但朝鲜必须先行给出相关具体承诺。金正恩则明确回应称: “ 我不会给他们想要的！“。但由近期中共在阿富汗的收获，以及以台湾为筹码的中美勾兑，显然影响和鼓励了金正恩。朝鲜试图再次利用核讹诈捞取自身利益，毕竟在中美两个大国之间，不断制造麻烦和威胁以获得安抚施舍，一直是朝鲜得以生存的唯一方式.
+(本文仅代表作者观点)
 
-(文章内容仅代表作者观点与GNEWS无关）
+参考链接：[Kim Jong Un displays missile arsenal, claims US causing instability](https://nypost.com/2021/10/12/kim-jong-un-shows-off-north-koreas-missile-arsenal/?utm_campaign=SocialFlow&amp;utm_source=NYPTwitter&amp;utm_medium=SocialFlow)
 
-*编辑：信心满满*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

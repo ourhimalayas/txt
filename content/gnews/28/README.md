@@ -2,28 +2,47 @@
 ---
 
 
-## 联邦法官禁止联合航空公司霸王接种令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591528/)
+## 1013 《疫苗毒针》简讯集
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591533/)
 
-作者：飞虹
+作者：流浪的阳光
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-德克萨斯州一名联邦法官，对美国联合航空公司的新冠疫苗政策下达限制令。此前该航空公司以无薪休假，要挟员工进行毒针接种。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1013AM（1、5）視頻備用.002.jpeg)
-两周前，联合航空员工在德州联邦法院，就雇主推行强制疫苗接种令提起诉讼。律师称：联合航空公司的疫苗强制令，违反了美国1964年的民权法案。雇员们反映，公司违背诺言，对享有宗教或医疗豁免的员工再次欺骗。
+**中共在十余省强推第三针 **
 
-新冠疫苗强制令颁行过程中，将美国多个公共部门推向服务濒临瘫痪的边缘。疫苗本身造成的医疗和人道伤害，在后续爆发中，将极度恶化当前的困境。
+中共继续新冠毒针人体实验。截至目前，明确启动加强针接种地区涉及：安徽、福建、河南、黑龙江、湖北、山西、广州、贵州等10余省份。 其中安徽芜湖、福建厦门将12岁以上儿童也囊入秋冬季人口清理范围。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-21.jpeg)
+
+**新加坡颁行公众场所限制令**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide2-21.jpeg)
+
+新加坡从今天10月13日起，将限制未接种新冠疫苗的民众在公众场所的活动，如饭店就餐、进入商场与景点游览。通过此项规定的颁行，政府用“疫苗歧视”再一次践踏了人权。
+
+**马来西亚放宽****“集中营”SOP**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-13.jpeg)
+
+大马首相拿督宣布，从11日起，只有完成两剂毒针疫苗接种的人，才可以跨州和出国旅行。此前人们出行需要向警方申请批准。马来西亚作为辉瑞、阿斯利康和科兴的势力控制区域，用疫苗接种情况完成了人口区块化管理。
+
+**新西兰步澳洲后尘推进群体接种强制令**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-12.jpeg)
+
+新西兰总理阿德恩周一（11日）下达规定，将对教师和卫生部，及残疾部门的员工，全面强制接种新冠病毒疫苗。
+
+自疫情爆发至今，各国的无良政客已经疯狂，在这至暗时刻，希望各国的战友互相帮助，共同渡过这艰难时期。
+
 (本文仅代表作者观点)
 
-参考链接：
-
-1. [U.S. judge restrains United from placing employees receiving COVID-19 vaccine exemption on unpaid leave](https://www.newsbreak.com/news/2401053046740/u-s-judge-restrains-united-from-placing-employees-receiving-covid-19-vaccine-exemption-on-unpaid-leave)
-2. [Federal Judge Restrains United Airlines From Enforcing Covid Vaccine Mandate on Employees Seeking Religious Exemption](https://www.thegatewaypundit.com/2021/10/federal-judge-halts-united-airlines-enforcing-covid-vaccine-mandate-employees-seeking-religious-exemption/)
-
+参考链接：[狮城快讯：新加坡Covid疫苗歧视升级！不打疫苗不可进商场　12岁以下明年初开打](https://gnews.org/zh-hans/1582814/)
+[未接种公众不能在小贩中心和咖啡店堂食 也不能进入商场和景点](https://www.zaobao.com.sg/realtime/singapore/story20211009-1201644)
+[多地启动新冠疫苗加强针，涉及安徽福建湖北黑龙江海南等地](https://news.sina.com.cn/c/2021-10-09/doc-iktzqtyu0510206.shtml)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

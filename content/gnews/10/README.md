@@ -2,27 +2,27 @@
 ---
 
 
-## 爆料革命影响下 疫苗接种无法再大幅推进
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1591673/)
+## 俄美将举行新一轮会谈
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1591675/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+俄罗斯莫斯科喀秋莎农场 星河
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-12.png)
-文章仅代表作者本人观点，与Gnews无关
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/R-1.jpg)eurasiareview.com
+美东时间10月13日报道，美国国务院发言人内德∙普莱斯（Ned Price）表示，俄罗斯和美国将举行新一轮会谈。
 
-视频参看：2021.10.13早GTV新闻访谈
+关于下一次会议的决定是在美国副国务卿维多利亚∙努兰德和俄罗斯外交部副部长谢尔盖∙里亚布科夫的会谈后作出的。
 
-[https://gtv.org/broadcast/watch/6166d0c5304e992109b45e10](https://gtv.org/broadcast/watch/6166d0c5304e992109b45e10)
+普莱斯补充说，“讨论是建设性的，对俄美双方都有益。”
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+普莱斯强调，“莫斯科和华盛顿计划讨论大使馆的数量和运作，美国在其外交使团的人员配置问题上的立场依然坚定。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
+白宫表示，努兰德在莫斯科与她的俄罗斯同行进行了富有成效的会晤。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+美国总统发言人詹∙普萨基称，“我相信她正在那里进行相当有建设性和富有成效的会晤。”
+
+努兰德于10月11日抵达莫斯科。10月12日，副国务卿会见了俄罗斯外交部副部长谢尔盖∙里亚布科夫。她形容与他的会谈是“建设性的”。努兰德计划与俄罗斯总统助理尤里∙乌沙科夫和俄罗斯总统办公厅副主任德米特里∙科扎克会面。
+
+参考链接：
+
+[https://www.rbc.ru/rbcfreenews/6165ed769a79474e78f33863](https://www.rbc.ru/rbcfreenews/6165ed769a79474e78f33863)

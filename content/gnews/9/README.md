@@ -2,27 +2,29 @@
 ---
 
 
-## 俄美将举行新一轮会谈
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1591675/)
+## 有声|为防范中共海上霸权，美日印澳展开联合军演
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1591688/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+配音：香草山美食部 – 玫瑰园
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/R-1.jpg)eurasiareview.com
-美东时间10月13日报道，美国国务院发言人内德∙普莱斯（Ned Price）表示，俄罗斯和美国将举行新一轮会谈。
+据[美国之音](https://www.voachinese.com/a/quad-naval-exercise-20211012/6267058.html)10月12日报道，美国、日本、澳大利亚和印度周二开始在孟加拉湾展开2021年度马拉巴尔（Malabar) 年度军演的第二阶段演习，以谋求在第一阶段的基础上进一步提升四国海军的协同作战能力，并聚焦先进的水面舰和反潜作战演练。
 
-关于下一次会议的决定是在美国副国务卿维多利亚∙努兰德和俄罗斯外交部副部长谢尔盖∙里亚布科夫的会谈后作出的。
+马拉巴尔年度军演被视为四方安全对话机制Quad的联合军演，目的是遏制中共国的恶意扩张。四国海军今年8月在美国关岛附近实施了第一阶段的演习。
 
-普莱斯补充说，“讨论是建设性的，对俄美双方都有益。”
+四国的官员们表示，中共国在该地区行事日益强硬，使得四国需要联手保护自己及其盟友不受中共的“剥削、腐蚀和胁迫”。
 
-普莱斯强调，“莫斯科和华盛顿计划讨论大使馆的数量和运作，美国在其外交使团的人员配置问题上的立场依然坚定。”
+中共近日威胁要孤注一掷攻打台湾，台海局势日益严峻，只有国际社会联合起来，才能遏制中共的野心。
 
-白宫表示，努兰德在莫斯科与她的俄罗斯同行进行了富有成效的会晤。
+文字版原文：[为防范中共海上霸权，美日印澳展开联合军演](https://gnews.org/zh-hans/1589908/)
 
-美国总统发言人詹∙普萨基称，“我相信她正在那里进行相当有建设性和富有成效的会晤。”
+音频处理：喜山必胜Maverick
 
-努兰德于10月11日抵达莫斯科。10月12日，副国务卿会见了俄罗斯外交部副部长谢尔盖∙里亚布科夫。她形容与他的会谈是“建设性的”。努兰德计划与俄罗斯总统助理尤里∙乌沙科夫和俄罗斯总统办公厅副主任德米特里∙科扎克会面。
-
-参考链接：
-
-[https://www.rbc.ru/rbcfreenews/6165ed769a79474e78f33863](https://www.rbc.ru/rbcfreenews/6165ed769a79474e78f33863)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
