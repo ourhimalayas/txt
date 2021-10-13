@@ -2,27 +2,56 @@
 ---
 
 
-## 有声|州长候选人和妻子患新冠 强烈反对新冠疫苗强制令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1589752/)
+## LifeLabs 的“人员配备挑战”导致预约取消，大维多利亚地区的多个设施突然关闭
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1589812/)
 
-配音：香草山美食部 – 玫瑰园
+新聞來源：Cheknews
 
-10月10日，德克萨斯州共和党州长候选人，艾伦·韦斯特（Allen West）发布一系列推文，他分享了自己和妻子感染新冠病毒，和在达拉斯医院接受治疗的经历，并称现在，他将更坚决的反对疫苗强制接种令。
+**关注：持续的劳动力短缺的又一个受害者，因为这家受欢迎的医学实验室检测公司正努力跟上需求。Kevin Charach 有更多信息关于突然关闭和取消预约給大维多利亚地区居民的影响。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Lifelab-Picture.png)
+Noren Essa 计划于周五早上在 Saanich 的 Cedar Hill Cross Road 的 LifeLabs 移除心脏监测器。
 
-现年60岁的韦斯特曾担任德克萨斯州共和党主席。6月卸任后，正在备选明年州长选举。他在推特中表示，他反对新冠疫苗强制接种，并且自己也没有接种。韦斯特的妻子接种了疫苗，但上周五10月8日被检查出新冠阳性，接受治疗后第二天回家。当天，韦斯特自己也出现轻微症状，进入医院治疗后，血氧饱和度从85回升至94至96区间。
+Essa 的约会原定于上午 11 点，但当她到达时，她惊讶地发现它没有开放。
 
-在系列推中，韦斯特感谢医护人员没有强迫他接受有害的方案，自然抗体最好。他表示更加致力反对相关的强制令，不能让垄断大药厂和腐败的官僚借此敛财，绝不接受把危险的针头对准美国人民。作为德州官员，将坚持强烈打击任何在这里强制要求接种新冠疫苗的人。韦斯特以自己道德家庭现状强调个人选择权的重要性，韦斯特说：“我们的身体是我们最后的自由和自由的避难所，我将为每个人捍卫这一点”。
+“我应该在 11 点左右到达那里，让他们移除我下去的设备，而 LifeLabs 实际上已经关闭，”她说。
 
-文字版原文：[州长候选人和妻子患新冠 强烈反对新冠疫苗强制令](https://gnews.org/zh-hans/1587209/)
+Essa 说她的心脏监护仪是在周四插入的，她得到了具体的指示，让她在第二天返回 LifeLabs 将其移除。她说她仔细查看了 LifeLabs 的营业时间，但从未接到任何有关突然关闭的电话或消息。
 
-音频处理：喜山必胜Maverick
+“我肯定担心我现在该怎么办，” Essa说。 “他们非常明确地规定不超过 24 小时。”
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+LifeLabs 是一家私营公司，是受欢迎的医学检测服务机构，在温哥华岛南部拥有十多个地点。许多居民依靠 LifeLabs 获得各种服务，包括心脏监测和一般血液检查。
+
+Essa 说，当其他人在星期五到达约会时，一个队伍已经形成，许多其他人和她一样困惑。她说她决定给 LifeLabs 打电话，但被放置了将近一个小时。
+
+因此，在等待期间，Essa 决定将她的故事发布到网上，看看该地区的其他人是否可以对这个问题有所了解。她很快就知道她并不唯一遇到這事的人。
+
+“它立即开始引起人们的评论，”Essa说。“很多人说他们也遇到过类似的情况。”
+
+事实证明，LifeLabs 与温哥华岛的许多其他企业一样，正面临劳动力短缺的问题，这导致大维多利亚地区的一些地点意外关闭。
+
+“由于 COVID-19 的影响，我们正在经历更高的退休率和更大的离职率。这造成了短缺，对当地 LifeLabs 团队产生了重大影响，并导致维多利亚地区最近计划外的关闭，”LifeLabs 在一份声明中告诉 CHEK News。
+
+劳动力短缺对 LifeLabs 造成了沉重打击，以至于该公司表示下周他们将暂时关闭大维多利亚地区的两个地点——位于 2945 Jacklin Rd 的 Westshore Town Centre在兰福德和他们在1990 Fort St Oak Bay的位置。
+
+“LifeLabs 做出了艰难的决定，从下周开始暂时关闭维多利亚的两个地点。这些地点的员工将被重新部署，以确保为我们的客户提供一致和可靠的服务，” 该公司在给 CHEK News 的声明中表示。
+
+LifeLabs 希望在 2022 年初重新开放这些地点，并表示他们正在积极招聘医学实验室助理。
+
+Essa 说她在周六收到了 LifeLabs 的道歉，并且能够在不同的地点移除她的心脏监护仪。
+
+替代 LifeLabs 的另一种选择是通过 Island Health。
+
+Reference: [https://www.cheknews.ca/lifelabs-staffing-challenges-leads-to-cancelled-appointments-sudden-closure-of-multiple-facilities-in-greater-victoria-897615/?amp%20](https://www.cheknews.ca/lifelabs-staffing-challenges-leads-to-cancelled-appointments-sudden-closure-of-multiple-facilities-in-greater-victoria-897615/?amp%20)
+
+（文章僅代表作者個人觀點）
+
+**免責聲明**：儘管作者努力揭示真相並保持信息準確性，但我們對網站，文章中引用的信息或相關圖形的完整性，準確性和可靠性不做任何形式的明示或暗示的保證。“觀點”部分中表達的所有觀點均屬於作者，并不代表任何組織或其他個人。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+
+**關注我們**
+
+Discord 賬號
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+Gettr 賬號
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

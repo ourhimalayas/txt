@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/13/2021 12:55 AM (UTC)`
+
+10/12/2021 Miles Guo’s GETTR: The world’s religions, politics, and economy shall all be reformed; The COVID vaccine disaster and the CCP’s invasion of Taiwan will destabilize the world’s economy, undermine the confidence of Europe and the US, and result in lots of uncertainty; The CCP fears that the New Federal Stare of China can make our fellow fighters rich and strong, and have good judgment<br/><br/>10/12/2021 文贵盖特：世界宗教、政治、经济都要改革；疫苗灾难和中共攻台将打破世界经济平稳运行，打击欧美的信心，并造成大量不确定性；中共惧怕新中国联邦能让战友们有钱、腰杆硬和有判断力<br/>
+![img](https://media.gettr.com/group33/getter/2021/10/13/00/55/b7bf2fa7-152c-1e9d-1565-6fe910456be3/out.jpg)
+
+---
+
 `@miles 10/12/2021 11:41 PM (UTC)`
 
 10月12号：尊敬的战友们好，明天上午9点．10月13号．七哥和我们帅哥，美女战友们继续我们的大直播！
@@ -182,13 +189,6 @@ MILES GUO Live Stream 2021/10/11
 
 不同国家抗议者走上街头抗议COVID限制措施和强制疫苗政策，世界人民正在觉醒中。<br/><br/>Protesters from different countries took to the streets to protest COVID restriction measures and mandatory vaccine policies. People all over the world are awakening.
 ![img](https://media.gettr.com/group1/origin/2021/10/10/16/27/62df9962-7a15-c7af-5eac-9b17700a8c3a/out.jpg)
-
----
-
-`@miles 10/10/2021 6:48 AM (UTC)`
-
-10-10日：👉👉👉Gettr prohibited these followings:<br/><br/>1. No racial discrimination is allowed<br/>2. There is absolutely no room for political discrimination, and any views of different parties are allowed<br/>3. No cultural discrimination is allowed, and all cultures are accepted<br/>4. No room for terrorism<br/>5. No crime, child abuse, violence, or pornography<br/>6. The Gettr must never be used to spread deceptive information<br/><br/>All Gettr's influencers can do the live streaming within a week.<br/><br/>盖特的六个绝对不允许：<br/>1. 绝对不允许有种族歧视<br/>2. 绝对不允许有政治歧视，允许任何不同党派的观点<br/>3. 绝对不允许文化歧视，包容所有文化<br/>4. 绝对不可以有恐怖主义倾向<br/>5. 绝对不可以有犯罪，虐童，暴力，黄色倾向<br/>6. 绝对不可以利用盖特传播欺骗信息<br/><br/><br/>所有盖特的大V在一周内都可以在上面直播
-![img](https://media.gettr.com/group2/getter/2021/10/10/06/48/b73653bb-f7bc-f952-b8e8-7457ed328b83/a5d8204e48f5adb65bebbe3de8bb7a9d.jpg)
 
 ---
 
