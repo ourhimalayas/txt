@@ -2,37 +2,38 @@
 ---
 
 
-## 自疫苗开始推广以来，青少年的死亡人数上升了56%
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1590098/)
+## 路透社解读美国债务上限提高对债券市场意味着什么？
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1590122/)
 
-**评论**：**心肌炎是一种导致心肌炎症并可能导致心脏骤停的疾病，它已被正式添加到辉瑞和 Moderna Covid-19 疫苗的安全标签中，并且已知在男性中更常见，不难弄清楚毒疫苗在身体里发生了什么。**
+作者：文一
 
-**据《dailysceptic.org》作者 Will Jones，2021年10月1日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/amd7o-r5x05.jpg)图片来源：dailysceptic网站
-周四，《每日曝光》上的一篇文章显示，国家统计局（ONS）的统计数据表明，夏季青少年的死亡人数比前一年大幅增加，这与疫苗的推广相吻合。
 
-我对数据进行了深入研究，我不得不说，我同意这看起来令人担忧。我在上面绘制了2020年和2021年按周划分的15-19岁人群的死亡人数。 （不幸的是，前几年的同等数据不可用，因为在2020年之前，细分数据为1-14岁和15-44岁的人。)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
 
-如下图所示，第23周左右的明显分化与该年龄组的疫苗接种计划正在加紧进行的时间大体一致。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/gghj.jpg)
-2021年第23周至37周期间，英格兰和威尔士15至19岁的青少年中有252人死亡。与2020年同期的162人相比，增加了90人或56%。这是一个很大的数字，应该有某种解释。
 
-重要的是，如下图所示，在1-14岁的儿童中没有类似的增长。有趣的是，2020年是这个年龄组死亡率较低的一年，可能是由于道路事故和类似事件造成的死亡较少。 2021年的死亡率再次降低，说明COVID-19对儿童的威胁是多么小。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/pic2.png)
-不能把2021年夏季15-19岁儿童死亡人数的突然上升归咎于Covid，因为国家统计局的数据显示，在此期间，该年龄组只有9人因Covid死亡。
+据10月12日路透社纽约报道– 美国参议院批准债务上限法案，增加4,800亿美元至28.9万亿美元。该法案将于周二提交众议院进行表决，通过后总统乔-拜登才能将其签署为法律。这预计将涵盖12月初的债务融资需求，但长期的解决方案被推迟了。在新的12月最后期限之前，投资者仍在关注违约风险。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-12.jpg)
+美国财政部预计将很快花掉4,800亿美元新借款授权中的大约三分之二。货币市场研究公司 Wrightson Capital分析，根据法律规定，财政部必须先补足在 “暂停债务发行期”（DISP）中被取消投资的信托基金余额。截至10月6日，政府信托基金被拖欠3010亿美元的非市场化证券，也就是说财政部可支配常规金额不足2000亿美元，预计在11月的第一周即将用完而不得不宣布新的“暂停债务发行期”。
 
-那么，是什么原因使15-19岁儿童的死亡率自6月以来突然上升，而低龄儿童的死亡率却没有上升？它与疫苗的推出相吻合，众所周知，疫苗会在年轻人中引起罕见但严重的副作用，特别是心肌炎（心脏炎）。这是现实世界的证据，在夏天，疫苗杀死的15-19岁的人是Covid的9倍—81人对9人？如果不是，其他可能的解释是什么，它们之间存在联系的可能性有多大？
+美国银行证券公司则预测新资金可能可以涵盖12月至2月的债务需求，并预估在其签署成法律后，国库券将增发3000亿美元以上。
 
-我建议医疗当局在向年轻人推广任何更多的疫苗之前，紧急优先调查6月以来青少年死亡人数突然上升的原因。
+目前来看，作为延期的结果，短期债务违约的风险已经得到缓解，上周五的交易价格为14.9个基点，而之前曾飙升至28基点。
 
-**原文连接：**[https://dailysceptic.org/2021/10/01/deaths-among-teenagers-up-56-since-vaccine-rollout-began/](https://dailysceptic.org/2021/10/01/deaths-among-teenagers-up-56-since-vaccine-rollout-began/)
+10月下旬到期的美国债券的收益率也有所下降。然而，压力将转至12月初到期的债券。
 
-翻译：洛杉矶盘古农场- TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – Wendy
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+（本文仅代表作者观点）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+参考链接：
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+
+新闻访谈终审：鬼五
+编辑/校对/审核：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

@@ -15,128 +15,128 @@
 
 ---
 
-### [智梗无解](/content/gnews/1/README.md)
+### [特斯拉赢了！涉事车主被判赔5万，道歉90天](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共“志在必得”汽车芯片和操作系统](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [20国首脑会议金援阿富汗 岸田拟提供2亿美金](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|中共官媒吹“习近平生态文明思想”成笑谈！](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [有声|“世界上三种权力最重要，我们要有话语权”!](/content/gnews/2/README.md)
+### [墙内要闻汇编](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|中共不计成本欲毁掉G系列，新中国联邦开展法律反击](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [加密货币行业地震：拜登政府加强该行业的监管审查](/content/gnews/3/README.md)
+### [智梗无解](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [法国报告记录了中共政权在加拿大广泛的影响力行动（上）](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（五）](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|暗批中共，英国寻求联合G20反对不公平贸易，改革WTO](/content/gnews/4/README.md)
+### [有声|“世界上三种权力最重要，我们要有话语权”!](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [币圈新闻动态：G|CLUBS在喜交所已有账号](/content/gnews/5/README.md)
+### [加密货币行业地震：拜登政府加强该行业的监管审查](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声|暗批中共，英国寻求联合G20反对不公平贸易，改革WTO](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [币圈新闻动态：G|CLUBS在喜交所已有账号](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [恒大连续三次未能支付美债票息 中共国房企接连违约潮](/content/gnews/6/README.md)
+### [恒大连续三次未能支付美债票息 中共国房企接连违约潮](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [10/12/2021 文贵盖特：全世界的热钱都去了暗网，能源和大宗商品的价格将先涨后跌](/content/gnews/7/README.md)
+### [10/12/2021 文贵盖特：全世界的热钱都去了暗网，能源和大宗商品的价格将先涨后跌](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [国际要闻汇编](/content/gnews/8/README.md)
+### [国际要闻汇编](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [短视频：觊觎外汇和芯片产业，中共国必入侵台湾](/content/gnews/9/README.md)
+### [短视频：觊觎外汇和芯片产业，中共国必入侵台湾](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [山西10月水灾受灾范围比7月河南洪灾更大](/content/gnews/10/README.md)
+### [山西10月水灾受灾范围比7月河南洪灾更大](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国北方洪灾 煤矿被迫关闭 煤价飙升](/content/gnews/11/README.md)
+### [中共国北方洪灾 煤矿被迫关闭 煤价飙升](/content/gnews/19/README.md)
  ` 纽约香草山MOS01`
 
-### [日本一架机动滑翔机在北海道坠毁，机上2人死亡](/content/gnews/12/README.md)
+### [日本一架机动滑翔机在北海道坠毁，机上2人死亡](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [马云上周现身香港 与商业合作伙伴会面](/content/gnews/13/README.md)
+### [数名 NBA球星或被中共病毒疫苗毁掉职业生涯](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [打锦鲤旗即为汉奸，共匪之忧不在美日而在萧墙之内也](/content/gnews/14/README.md)
+### [马云上周现身香港 与商业合作伙伴会面](/content/gnews/22/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [打锦鲤旗即为汉奸，共匪之忧不在美日而在萧墙之内也](/content/gnews/23/README.md)
  ` NewFOC`
 
-### [众议员布莱恩·马斯特:在台湾 庆祝国庆之际,中共试图威胁他们,美国必须支持我们的盟友](/content/gnews/15/README.md)
+### [联邦法官裁定纽约州医护人员获得疫苗强制令的宗教豁免](/content/gnews/24/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [众议员布莱恩·马斯特:在台湾 庆祝国庆之际,中共试图威胁他们,美国必须支持我们的盟友](/content/gnews/25/README.md)
  ` 美国政要直译推`
 
-### [有声|冠状疫苗接种之年是“突然和意外”的死亡之年](/content/gnews/16/README.md)
+### [有声|冠状疫苗接种之年是“突然和意外”的死亡之年](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [10/12/2021 文贵盖特：日本、德国、英国和台湾明知中共造假，却仍向中共国投入了大量资金](/content/gnews/17/README.md)
+### [10/12/2021 文贵盖特：日本、德国、英国和台湾明知中共造假，却仍向中共国投入了大量资金](/content/gnews/27/README.md)
  ` 秘密翻译组-北美组`
 
-### [习近平：共建“地球生命共同体”实现“鱼类种族灭绝”](/content/gnews/18/README.md)
+### [习近平：共建“地球生命共同体”实现“鱼类种族灭绝”](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [马萨诸塞州州长启动国民警卫队对学生进行中共病毒测试](/content/gnews/19/README.md)
+### [马萨诸塞州州长启动国民警卫队对学生进行中共病毒测试](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [接种过疫苗的达美航空飞行员飞行时猝死 飞机紧急迫降](/content/gnews/20/README.md)
+### [接种过疫苗的达美航空飞行员飞行时猝死 飞机紧急迫降](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [10/12/2021 文贵盖特：世界宗教、政治、经济都要改革](/content/gnews/21/README.md)
+### [10/12/2021 文贵盖特：世界宗教、政治、经济都要改革](/content/gnews/31/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|香港国安法下 “双十节”庆祝近乎绝迹](/content/gnews/22/README.md)
+### [有声|香港国安法下 “双十节”庆祝近乎绝迹](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [有声|台北市长喊话蔡英文，声称要克服意识形态之争](/content/gnews/23/README.md)
+### [有声|台北市长喊话蔡英文，声称要克服意识形态之争](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [雅典娜时报-第080期](/content/gnews/24/README.md)
+### [雅典娜时报-第080期](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|郭文贵：美国已和中共达成出卖台湾的交易](/content/gnews/25/README.md)
+### [有声|郭文贵：美国已和中共达成出卖台湾的交易](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [加拿大奥克维尔镇禁止未接种疫苗者结婚](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
-
-### [太疯狂！澳大利亚NSW新州长希望接种率超过90%](/content/gnews/27/README.md)
+### [太疯狂！澳大利亚NSW新州长希望接种率超过90%](/content/gnews/36/README.md)
  ` 澳喜农场`
 
-### [有声|北欧多国停止或暂停使用莫德那疫苗](/content/gnews/28/README.md)
- ` MOSREC`
-
-### [20211012—002 文贵先生盖特精要](/content/gnews/29/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021/10/12-001文贵先生盖特精要](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [安公子选谈：全球性的“新人道生态”将应运而生？](/content/gnews/31/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [真没想到，美国竟然衰到如此地步](/content/gnews/32/README.md)
- ` 墨尔本雅典娜农场`
-
-### [上交所暂停先正达科创板上市申请](/content/gnews/33/README.md)
- ` 日本东京方舟农场`
-
-### [中国9月汽车销售大跌 电力和芯片短缺构成主要障碍](/content/gnews/34/README.md)
+### [美飞行员反对疫苗强制的视频点击量超过200 万](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [中共国洪灾，煤矿被迫关闭，加重全球能源飙价](/content/gnews/35/README.md)
+### [路透社解读美国债务上限提高对债券市场意味着什么？](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [民意调查：大多数未接种疫苗的人表示他们不会接种](/content/gnews/36/README.md)
+### [中国9月汽车销售大跌 电力和芯片短缺构成主要障碍](/content/gnews/39/README.md)
+ ` GTV新闻访谈`
+
+### [中共国洪灾，煤矿被迫关闭，加重全球能源飙价](/content/gnews/40/README.md)
+ ` GTV新闻访谈`
+
+### [民意调查：大多数未接种疫苗的人表示他们不会接种](/content/gnews/41/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [在路上——035漫画篇](/content/gnews/37/README.md)
- ` 温哥华扬帆农场`
-
-### [自疫苗开始推广以来，青少年的死亡人数上升了56%](/content/gnews/38/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [台湾成为中美私下勾兑的牺牲品](/content/gnews/39/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [Arooj Imtiaz Lughmani接种辉瑞疫苗副作用自述](/content/gnews/40/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [英国官方&#8211;完全接种中共病毒疫苗者之免疫力将恶化殆尽！](/content/gnews/41/README.md)
- ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
 
 ### [产煤大省晋陕遭遇罕见暴雨，或提前引爆全球经济危机](/content/gnews/42/README.md)
  ` 军迷wilson`
