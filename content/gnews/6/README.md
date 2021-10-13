@@ -2,28 +2,36 @@
 ---
 
 
-## 疫苗教授当庭承认疫苗的安全性和有效性存疑
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1591038/)
+## 英国政府报告证明Covid-19疫苗-66%负面效果
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1591084/)
 
-#### 翻译：Lish
-校对：枳实
+撰稿：Runaway
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Vaccine.jpg)网络图片
+据英国媒体《THE EXPOSE》报道，新命名的英国健康安全局UKHSA（前公众健康部）发布的首批报告之一表明，Covid-19疫苗不但不起作用，其负面效果甚至可低至-66%。
 
-新南威尔士州最高法院关于强制接种新冠疫苗的案件中的法庭文件表明，经手大笔疫苗研究拨款的Kristine Macartney 教授当庭承认疫苗的安全性和有效性存疑。
+辉瑞声称其Covid-19疫苗有效性为95%，实验过程及数据来源如下：
 
-视频背景介绍参考：
+在所进行的临床试验中，43,661名受试者被平均分配到安慰剂组和疫苗组，每组约21,830名受试者。在安慰剂组（未接疫苗组）中，有162人感染了冠状病毒并出现症状，而在疫苗组(接种疫苗组）中只有8人感染。
 
-推动澳大利亚所有政府政策的主要疫苗研究人员在 2020-2023 年期间获得了 65,330,038 美元的政府赠款。如此规模的赠款是前所未有的。
+安慰剂组感染率为0.74%(162/21830)，而疫苗接种组感染率为0.04%(8/21830)，因而该疫苗的有效率是（0.74%–0.04%）/0.74% = 95%。由此，辉瑞声称他们的Covid-19mRNA疫苗有效率为95%。
 
-两周前克莱夫·帕尔默 (Clive Palmer) 在新闻发布会上说格拉迪斯·贝雷吉克利安 (Gladys Berejiklian) 被悉尼的一名说客支付了数千万美元。
+公众被告知辉瑞Covid-19疫苗的有效率为95%就是根据上述计算，并且基于相同的计算，阿斯利康声称其疫苗功效为70%，而Moderna的疫苗功效为98%。
 
-请注意，每个赠款旁边都出现了名称“K Macartney”。这是指 Kristine Macartney 教授，她是悉尼大学专门研究传染病和疫苗学的儿科医生。她还是国家免疫研究与监测中心 (NCIRS) 的主任。最引人注目的是，她还是治疗用品管理局 (TGA) 疫苗咨询委员会 (ACV) 的成员。是的，同样的 TGA 禁止将利维菌素作为治疗 COVlD 的早期治疗选择，尽管它在其他国家/地区具有很高的疗效。 Kristine Macartney 教授还担任了令人惊讶的世界卫生组织 (WHO) 的专家顾问。
+我们暂不深究这种计算方式极大的误导性，以及仅衡量相对有效性而不是绝对有效性这一事实，也暂不考虑辉瑞所进行的试验选择忽略了数千种其它疑似感染，而不进行PCR 测试来确认感染，因为它会使疗效低于获得监管批准所需的最低50%。（更不用说各种副作用及长期安全性未知）
 
-原视频链接：**[AUS COURT-COVID VAX IS UNVERIFIED](https://www.bitchute.com/video/t4rPTBOTEF58/)**
+多亏了新成立的英国健康安全局发布的大量数据，我们能够使用以上相同的方法来计算辉瑞疫苗在现实世界中的有效性。2021年9月30日英国健康安全局发布的疫苗监测报告中表2显示了2021年第35周和第38周之间按疫苗接种状态记录的感染人数，它还显示了每10万人中完全接种疫苗者和未接种疫苗者的确诊病例率。为了计算疫苗在真实世界的有效性，我们所要做的就是使用英国健康安全局所提供的确诊病例率进行相同的计算，如下所示：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-234.png)
+由此可见，所有可用疫苗的总有效率在40-49岁年龄组中低至–65.72%，在80岁以上年龄组中最高也就是–7.8%。这表明Covid-19疫苗使人们更容易感染，而不是预防率高达95%。通过综合40岁以上所有年龄组的数字，我们已经能够计算出平均疫苗有效率为–50.58%，我们肯定可以在具有疫苗接种状态的确认病例数中看到这一点。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)
+在2021年的第35周至第38周之间，40岁以上未接种疫苗的确诊病例为21,667例，40岁以上接种部分疫苗的确诊病例为7,106例，而完全接种疫苗的40岁以上的确诊病例为202,343例。
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新成立的英国卫生安全局毫无疑问地证明Covid-19疫苗不起作用，实际上使接种者变得更糟。
+
+（文章仅代表作者观点，与Gnews无关）
+
+发布：Runaway
+
+[原文：](https://theexpose.uk/2021/10/01/uk-health-security-agency-report-proves-covid-vaccines-dont-work/)[New UK Health Security Agency report proves without a shadow of a doubt that the Covid-19 Vaccines do not work and have negative effectiveness as low as MINUS 66%](https://theexpose.uk/2021/10/01/uk-health-security-agency-report-proves-covid-vaccines-dont-work/)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
