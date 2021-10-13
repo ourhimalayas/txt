@@ -2,27 +2,19 @@
 ---
 
 
-## 爆料革命影响下 疫苗接种无法再大幅推进
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1591673/)
+## 秘翻在线：合生创展有意接盘恒大？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1591770/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+**撰稿：葛大饼**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-12.png)
-文章仅代表作者本人观点，与Gnews无关
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-13-231847.jpg)图片来源： 搜狐
+根据2021年10月12日国内网站报道， 合生创展计划以400多亿港元接手恒大物业51%的股份，成为恒大物业的接盘侠。
 
-视频参看：2021.10.13早GTV新闻访谈
+新闻称物业，是存量房时代最稳定的收入来源。房地产行业高频的“大鱼吃濒死大鱼”式吞并模式正在发生，今年九月碧桂园分别出资逾100亿元收购蓝光嘉宝物业和富力物业，绿地全资子公司绿闵物业100%股权转让给花样年旗下的深圳富昌商业，作价12.6亿元， 两个月后，花样年华又将旗下的核心物业资产转卖。觊觎恒大物业的人不少，但最后被地产界“隐型航母”合生创展给买下。
 
-[https://gtv.org/broadcast/watch/6166d0c5304e992109b45e10](https://gtv.org/broadcast/watch/6166d0c5304e992109b45e10)
+新闻提到合生创展的创始人朱孟依的传奇创业经历，朱孟依，朱拉伊，朱庆伊三兄弟在商场风生水起，保险、能源、教育、金融、新能源汽车等领域，都有合生创展的影子。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+郭先生最近直播提到“恒大3万亿 、平安 、碧桂园、 融创 、合生创展对世界经济摧残还没有开始，朱孟依玩的这个票据就大了去了，朱孟依的外债和证券绝不止三千亿美元。” 套用郭先生的话：“他出来还救恒大呢？扯王八犊子的事。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**[新闻来源](https://info.51.ca/news/china/2021-10/1037275.html)**

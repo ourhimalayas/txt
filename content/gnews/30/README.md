@@ -2,29 +2,33 @@
 ---
 
 
-## 中共国青少年第一“杀手”——抑郁症
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1591269/)
+## 受中共影响，金正恩继续对美核讹诈
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591437/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-59.jpg)
-10月13日人民日报报道，国家卫生健康委主办、国家心理健康和精神卫生防治中心承办的2021年世界精神卫生日现场宣传活动在中国儿童中心举行。据了解，今年10月10日世界精神卫生日的主题为“青春之心灵 青春之少年——关爱儿童青少年心理健康”。
+作者：文龙
 
-报道中称，我国青少年抑郁检出率24.6%。抑郁症不是简单的“坏心情”，而是一种疾病。我国青少年抑郁检出率随年级增长呈上升趋势，于儿童青少年还处于大脑和身体的快速发展期，情绪也处于快速发展期，所以他们的抑郁障碍可能存在很多不典型性，表现为一种不稳定性。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-根据世界卫生组织统计，全球抑郁症患者高达3.5亿人，每年因抑郁症自杀的人数高达百万，而中共国儿童青少年抑郁检出率24.6%，约为3000万，大部分农村还有偏远地区的人不可能有机会接受检测，保守估值应该不低于百分之四十。
 
-一、中共国的基本家庭节后已经被毁坏了，主流的孤儿式教育，父母都缺席，以工作的名义把孩子甩给老人的留守儿童。
 
-二、青少年抑郁的源头在父母，父母的高期待，控制，恐惧，情绪，孩子无一例外都感受到并承接，孩子是家庭的镜子，最容易受影响并反映出来。
+本周一朝鲜独裁者金正恩，出席朝鲜国防发展博览会并讲话，金正恩称朝鲜正在建设一支“无敌”军队，且有能力对美国本土发动核打击！ 因为“美国仍然在继续以其错误判断、和行动制造紧张局势。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1013-AM-（2、4）视频备用.002.jpeg)
+此前朝鲜曾在一个月内试射了4枚防空导弹，且在中共的偕助下，正在扩建其铀浓缩基地，并重启了一座核反应炉。在此次的国防博览会上，金正恩站在堆满洲际弹道导弹的展厅里，称这些武器不是为了发动战争，而是为了保护朝鲜。
 
-诸多原因，不外乎是由于中共独裁国压迫国人生存空间，让国人在温饱线上挣扎奔波，无心考虑作为一个人内心深处的需求，几十年洗脑教育的要求是赞美颂歌，和各种潜在非人性的宣传，各种无形的压力，让青少年本能地产生了排斥与抵制，就开始寻找理由否定自己，逃避应有的面对，青少年人群第一杀手就是抑郁症。
+川普总统任期内曾于金正恩举行多次会晤，试图实现半岛无核化，但谈判最终因金正恩要求美国先行放弃制裁而未果。而在拜登总统任职后，白宫表示美国希望与金正恩继续进行会谈，但朝鲜必须先行给出相关具体承诺。金正恩则明确回应称: “ 我不会给他们想要的！“。但由近期中共在阿富汗的收获，以及以台湾为筹码的中美勾兑，显然影响和鼓励了金正恩。朝鲜试图再次利用核讹诈捞取自身利益，毕竟在中美两个大国之间，不断制造麻烦和威胁以获得安抚施舍，一直是朝鲜得以生存的唯一方式.
+(本文仅代表作者观点)
 
-消息来源：
+参考链接：[Kim Jong Un displays missile arsenal, claims US causing instability](https://nypost.com/2021/10/12/kim-jong-un-shows-off-north-koreas-missile-arsenal/?utm_campaign=SocialFlow&amp;utm_source=NYPTwitter&amp;utm_medium=SocialFlow)
 
-[我国青少年抑郁检出率24.6%](https://me.mbd.baidu.com/r/uxBq2N4uEE?f=cp&amp;rs=1993048397&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=b70791167a309ee0)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-(文章仅代表作者本人观点，与GNEWS无关)
+编辑/校正/发稿：我不在这里
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

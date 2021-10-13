@@ -2,45 +2,61 @@
 ---
 
 
-## 佛罗里达州机场周五因“天气和人员短缺”而出现延误和取消情况
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1591051/)
+## 重磅：澳州长被大制药商贿赂勒索 要求强推新冠疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1591075/)
 
-评论： ***由于当前美国拜登政府强制联邦所有雇员必须接种疫苗，在航空领域的工作人员因拒绝接种疫苗而消极怠工，导致航班停飞与延误,航空公司为了避免影响自己的信益与盈利， 而将航班停飞与延误的原因 归于“天气异常”所致。 这种因拒绝接种疫苗而消极怠工情况将会持续下去，归根结底的原因是新冠疫苗的利益集团与中共黑暗势力的勾结，用PGY 行贿各国政府在全球强行推广新冠疫苗以达到他们的目标：因到期的债权违约风险导致他们无法反还众人的财富，必需用生化武器–新冠疫苗消灭这类及 老弱残群体！达到这些邪恶集团想要控制的人口数目！***
+- 编译：Jenny Ball
 
-据《wionews》作者：WION Web Team，2021年10月10日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2502.png)(tonefotografia/Getty Images/iStockphoto)
-2021年10月8日8:04 EDTBy Briana Ross-Williams, Action News Jax
-佛罗里达州杰克逊维尔市 – 更新日期：10/10/2021。贾克斯行动新闻的Ben Becker获得了一封杰克逊维尔航空管理局首席运营官Tony Cugno写给董事会的信，信中驳斥了关于管制员就疫苗接种任务进行有组织罢工的传言。
-阅读下面的信。
 
-![https://cmg-cmg-tv-10050-prod.cdn.arcpublishing.com/resizer/MQ1Vs2NIo_7A_b12B3-b9PMXyQg=/1440x0/filters:format(jpg):quality(70)/cloudfront-us-east-1.images.arcpublishing.com/cmg/EUN7KQBAINBHXH2RP7E3QX5O3I.jfif](https://lh3.googleusercontent.com/ynYaerChYgEBM4tz3eNukCxzjCKQjdHvfhTgLTl6oqON-sVEvHCS1Y--PBlAjolsszH0kLjZvvuy7USsuuYpaE0vMVsnR2f3uBSEJFLZPfvKGiHChkb60_TvKE3OWdeTNolMxMqtQGZEdq2e1A=s0)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nurse-Injection-Syringe-Vaccine.jpg)图片来源：newstarget.com
 
-JAA给董事会的信。信中驳斥了关于管制员就疫苗接种任务有组织的罢工的“谣言”。
-10/9/2021更新。由于恶劣的天气和在某些情况下的人员短缺，佛罗里达州的不同机场在周五出现了航班延误和取消的情况。
+冠状病毒 (Covid-19) 仍然是两党腐败的政治精英及其背后操纵者的摇钱树。好消息是，其中一些无耻的奸商，包括澳大利亚新南威尔士州 (NSW) 的格拉迪斯·贝瑞吉克莲（Gladys Berejiklian），终于因其危害人类罪而[被曝光](https://thenewamerican.com/shocking-allegation-disgraced-politician-was-blackmailed-by-big-pharma-interests-to-impose-vaccine-mandate/)。
 
-根据联邦航空中心的说法，杰克逊维尔的一个设施需要额外的工作人员来管理空中交通，直到星期五晚上10点才恢复正常运作。
-联邦航空局周六就航班延误和取消发布了以下声明。
+据报道，[最近辞去职务的贝瑞吉克莲](https://www.naturalnews.com/2021-10-06-big-pharma-scandal-australia-berejiklian-covid-scam.html)被大型制药公司勒索，以强迫澳大利亚人接种“疫苗”，否则制药业贩毒集团将在腐败调查中指控她。
 
-“由于恶劣的天气，空域内活跃的军事训练，以及杰克逊维尔处理高空、途中交通的设施意外的人员有限，联邦航空局在10月8日晚采取了措施安全管理空中交通。大约在晚上10点恢复了正常运营”。
+为了避免惹怒毒枭，贝瑞吉克莲遵守了他们的要求，但最终还是被开除了。现在，这位女士发现自己与福奇 (Tony Fauci) 和弗朗西斯·柯林斯 (Francis Collins) 等其他叛国罪犯一起成为全球关注的焦点。
 
-其他机场，如坦帕国际机场，因恶劣天气而出现延误和取消。
-TPA发布了一份旅行警告，内容如下。
-“由于联邦航空局为应对北方的恶劣天气而实施的空中交通管理计划，TPA此时正继续遭遇航班延误。这个问题正在影响佛罗里达州的所有机场。像以往一样，请向您的航空公司查询航班的最新情况。”
+臭名昭著的贝瑞吉克莲在她辞职前告诉悉尼的居民，“如果他们不接受新冠疫苗，他们将在 12 月居家令结束后无限期地面临完全的社会孤立。”
 
-《贾克斯行动新闻》联系了杰克逊维尔国际机场，得知几个航班也因恶劣天气而被取消。
-Action News Jax首席气象学家Mike Buresh说，在报告延误之前，该地区的天气早已放晴。
+几周前，澳大利亚前议员、澳大利亚联合党现任领导人克莱夫·帕尔默 (Clive Palmer) 站出来第一个揭穿贝瑞吉克莲的犯罪行为。实际上贝瑞吉克莲因一项无关的腐败调查而耻辱地被迫辞职后，帕尔默的言论才引起了新的关注。
 
-至于人员短缺的问题，贾克斯行动新闻也联系了联邦航空局，希望得到更多的信息，目前正在等待答复。
+“帕尔默的爆料像投下的重磅炸弹，那时一名喋喋不休的记者极力鼓吹新南威尔士州政府的谎言，说有大约 1600 个“感染病例”并且确实死于 COVID-19， 而新南威尔士州被封锁的小企业的唯一出路是，让大多数人都去打两针疫苗，”凯恩斯新闻报道。
 
-原文连接：[https://www.actionnewsjax.com/news/local/florida-airports-experience-delays-due-weather/C3RKLFW7ERB7REXOOL6DD3XL5U/](https://www.actionnewsjax.com/news/local/florida-airports-experience-delays-due-weather/C3RKLFW7ERB7REXOOL6DD3XL5U/)
+**仅**** ****1,421 ****名澳大利亚人在新冠病毒检测呈****“****阳性****”****后死亡**
 
-文章点评仅代表个人观点
+一位记者告诉他，悉尼的企业主被告知，除非他们接受贝瑞吉克莲规定的两针疫苗，否则他们无法重新开店营业，但帕尔默回击说，告诉这个人“州长在向他们撒谎”。
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – 滴水穿石
-编辑：洛杉矶盘古农场 – 滴水穿石
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+“并说她还会接受廉政公署的调查，但是一个特别说客控制着悉尼的自由党，说客告诉她，她摆脱调查的唯一方法就是推行双针疫苗，而客户是阿斯利康和辉瑞，” 帕尔默补充道。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+被编程的记者第二次尝试了二手声明，帕尔默再次澄清说，贝瑞吉克莲的疫苗任务没有任何意义，唯一的目的就是作为“摧毁”小企业的“借口”，“他们知道这一点。”
+
+请记住，福奇流感在澳大利亚几乎不存在。事实上，它从未真正意义出现在澳大利亚，因为中共病毒检测呈“阳性”的人中只有 1,421 人死亡。
+
+重申一下，这些测试本质上是欺诈性的，大多数死于新冠肺炎的人，都有其他严重的健康状况，无论是年老、肥胖还是已有的慢性病。
+
+即便如此，该国某些地区最近仍处于医疗戒严状态，就像去年在大流行的早期“高峰”期一样。
+
+究其原因，当然与健康无关，而与以牺牲劳工为代价，进一步丰富精英阶层有关。而这一切的罪魁祸首似乎大多来自美国，对于从大流行中诞生的全球医疗警察国家来说，美国是诞生地。
+
+“……**很明显，大多数推动**** COVID ****疫苗的伪精英都有别有用心的动机**，**无论是权力还是金钱，或者两者兼而有之**，”塞尔温·杜克（Selwyn Duke）的《新美国人》写道。
+
+**评论： **
+
+**有钱能使鬼推磨！人们被要求去充当大药商疫苗开发的实验用白老鼠，就是因为政客的腐败，大药商抓住了他们腐败的小辫子，以此要挟他们对无辜的人民实施疫苗政策！这就是政府不顾一切科学常识，不顾百姓死活强迫人们接种疫苗的动机：“为了避免惹怒毒枭。“所以， 强制疫苗根本与保护人民健康无关，更是与科学没有半毛钱关系！无耻的政客们，难道你们以为人民就不会愤怒吗？**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**素材链接及文字内容来源：**
+
+- [TheNewAmerican.com](https://thenewamerican.com/shocking-allegation-disgraced-politician-was-blackmailed-by-big-pharma-interests-to-impose-vaccine-mandate/)
+- [NaturalNews.com](https://www.naturalnews.com/2021-10-06-big-pharma-scandal-australia-berejiklian-covid-scam.html)
+- [www.newstarget.com](https://www.newstarget.com/2021-10-12-gladys-berejiklian-bribed-blackmailed-big-pharma-vaccine.html)
+
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)

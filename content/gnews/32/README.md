@@ -2,38 +2,32 @@
 ---
 
 
-## 中共国通过检查银行业监管机构在金融领域开展反腐运动
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1591238/)
+## 自民党竞选纲领有气无力，岸田文雄支持率走低
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591410/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021-10-12t072700z_1_lynxmpeh9b09d_rtroptp_3_china-politics-corruption-1.jpg)中共中央纪律检查委员会总部。（资料图片：REUTERS/Jason Lee）
+作者：在远方
 
-**摘要翻译：**据《亚洲新闻台》援引《路透社》的报道称，中共国最高反腐监督机构已开始对中共国的银行和保险监管机构进行大约两个月的检查，这是在金融领域清除腐败共产党官员的更广泛运动的一部分。
-
-中央纪律检查委员会(CCDI)正在向中央银行、证券交易所、银行和资产管理公司等25家金融机构派遣工作小组，下令重点检查这些金融机构的党委。
-
-中国银行保险监督管理委员会是第一个接受审查的机构，它在周一（10 月 11 日）晚间发表声明称，监察员将调查任何违反政治纪律的行为——这是党对腐败的委婉说法。
-
-“巡视是政治监督，是从严治党的有力而全面的手段。” 声明中援引中纪委负责检查的官员杨国忠的话说。
-
-9月下旬，中共国最高反腐官员赵乐际呼吁深入检查以发现党组织的政治偏差，以及影响金融业发展的问题。
-
-《华尔街日报》周一援引知情人士的话报道称，中共国家主席习近平正在审查国有银行和其他金融机构与大型私营公司的关系。
-
-**简评：**中共政府从上到下，无官不贪，这已经是连中共国老百姓都了解的社会现实。习近平掌权以来，一直用反腐败的名义清除异己，反腐运动已经成为中共内部政治斗争升级的风向标。
-
-此次习近平当局在金融领域进一步开展反腐运动，毫无疑问又是一轮新的清洗运动的开始。郭文贵先生爆料称，如今的中共国，习近平虽然掌握着国家权力，但是，党政军内，江泽民派系仍然有着深厚的根基，尤其是在金融领域，江家的势力更是不容小觑。在全球性的金融危机即将大面积爆发的情况下，中共国的经济也是岌岌可危，由恒大地产引发出来的房地产危机有愈演愈烈的趋势，习近平作为掌权者，一方面要稳定经济，另一方面还得保证对权力的绝对把握。此次所谓的在金融领域开展反腐运动意味着习要进一步加强对金融领域的控制，此举势必会挤压江泽民派系的生存空间，又一次激烈的党派斗争不可避免。随着党内斗争的加剧，随着中共脆弱的经济走向崩溃，中国共产党走向灭亡的脚步正在加速。
-
-新闻链接：[China launches anti-graft campaign in finance sector by inspecting banking regulator](https://www.channelnewsasia.com/business/china-anti-corruption-finance-sector-bank-regulator-2238066)
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+10月12日路透社消息，日本自民党公布了谋取众议院席位的竞选纲领声明，强调要终结新冠疫情，承诺重建中产阶级并抵御日益强硬的中共。声明称未来将以果断的行动终结疫情。而在国土安全议题中，对于中共在台海附近，以及中日争议岛屿扩大军事活动的威胁，自民党称将重新考虑予以回应，并要提高国防预算，以期达到甚至超过GDP的2%。近几十年来，日本的国防开支一直维持在1%左右。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1013-AM-（3）.001.jpeg)
+自民党的这一竞选纲领表明，当前日本政府清楚的意识到，来自中共的威胁将是日本当今所要面对的主要问题。但以当前利益为前提之下，知行毕竟难以合一，无论谁执政，日本政府始终仍然难以完全摆脱中共的影响和掣肘。而来自NHK的一项民意调查显示，自民党新任首相岸田文雄的支持率仅为49%，明显低于前任首相们上任初期的支持率。
+(本文仅代表作者观点)
+
+参考链接：[日本自民党公布竞选宣言 重点是终结疫情并对抗中国](https://cn.reuters.com/article/japan-ldp-parliament-election-1012-idCNKBS2H20NN)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

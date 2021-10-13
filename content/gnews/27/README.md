@@ -2,53 +2,52 @@
 ---
 
 
-## 九月新冠死者几乎均完全接种疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1591335/)
+## 1013 《疫苗毒针》简讯集
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591533/)
 
-【简评】***由于COVID-19疫苗包含纤突蛋白和其它未知毒素，人体免疫系统会因此遭到不同程度的破坏。疫苗出现前后的感染病例数据对比表明，疫苗并不能避免新冠病毒的感染或传播，而且疫苗在今年夏天和初秋还增加了接种人群住院和死亡的风险。寒冬将至，情况愈发不容乐观。我们呼吁民众深入了解和积极传播疫苗真相。***
+作者：流浪的阳光
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**中共在十余省强推第三针 **
 
-据《新闻目标》作者：Ethan Huff 2021年10月10日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2496.png)图片来源：《新闻目标》
-英国国家统计局 （The Office for National Statistics (ONS)）发布的一组数据显示，在9月份检测新冠病毒(Covid-19)呈阳性后死亡的人群里，81%有按照政府的指导方针完全接种疫苗。
+中共继续新冠毒针人体实验。截至目前，明确启动加强针接种地区涉及：安徽、福建、河南、黑龙江、湖北、山西、广州、贵州等10余省份。 其中安徽芜湖、福建厦门将12岁以上儿童也囊入秋冬季人口清理范围。
 
-仅在英国，9月份就有大约30,305人在接种了新冠疫苗后的21日内死亡。这是英国国家统计局无意中承认的，而它此前曾告诉好奇的人“他们不掌握这些信息”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-21.jpeg)
 
-事实证明，他们其实有掌握这些信息但不愿意公开，因为它破坏了政府和医疗系统之间的所谓“‘福奇流感’（Fauci Flu）疫苗是‘安全有效’”的主流说法。
+**新加坡颁行公众场所限制令**
 
-自由人类（Humans Are Free） 网站报道，“英国国家统计局曾经愚弄公众，让他们相信只有1%完全接种疫苗的人死于新冠，而不包括已经和正在发生在这极其奇怪的第三波新冠疫情死亡病例”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide2-21.jpeg)
 
-“说它奇怪，是因为新冠死亡人数相比去年同期仍然高出了很多倍，尽管夏天的天气对我们有利，而且据称疫苗有效率为95%。”
+新加坡从今天10月13日起，将限制未接种新冠疫苗的民众在公众场所的活动，如饭店就餐、进入商场与景点游览。通过此项规定的颁行，政府用“疫苗歧视”再一次践踏了人权。
 
-一年前，在疫苗被投放到市场之前，与新冠病毒相关的死亡人数几乎呈平线状态。
+**马来西亚放宽****“集中营”SOP**
 
-然而今年，世界范围的新冠病毒的新“病例”激增。 数字如此之高，以至于自由人类（Humans Are Free）网站报道说，这是“在疫苗有效率为95%情况下，你会在今年冬季中期看到的情况。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-13.jpeg)
 
-寒冬将至：完全接种疫苗的人会发生什么呢？
+大马首相拿督宣布，从11日起，只有完成两剂毒针疫苗接种的人，才可以跨州和出国旅行。此前人们出行需要向警方申请批准。马来西亚作为辉瑞、阿斯利康和科兴的势力控制区域，用疫苗接种情况完成了人口区块化管理。
 
-疫苗的有效率很明显并不是95%，除非“有效”意味着有效伤害和杀死大多数注射疫苗的人。也许这就是这场“有预谋的病毒大流行”（plandemic）（注：英文把“计划”一词嵌入“病毒大流行”词中）的真正目标，它显然从来都不是关于“拉平确诊人数曲线”的“拯救生命”——当然，除非人类是“曲线”（他们想把人类的数量削减）。
+**新西兰步澳洲后尘推进群体接种强制令**
 
-在这种情况下，世界人口（曲线）确实正在以极快的速度被夷为平地，而数百万人却还是不明白发生了什么事，因为他们的刻意无知，以及盲目相信政府会在某种程度上代表他们的最大利益。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-12.jpeg)
 
-不仅新冠死亡病例绝大多数发生在完全接种疫苗的人中，而且绝大部分的新增感染病例也是如此。换句话说，现在唯一仍受新冠病毒问题困扰的人，几乎就是那些接种了疫苗的人。
+新西兰总理阿德恩周一（11日）下达规定，将对教师和卫生部，及残疾部门的员工，全面强制接种新冠病毒疫苗。
 
-周复一周，医院里挤满了成批正在生病或即将死亡的已完全接种疫苗的人，因为他们的免疫系统被疫苗里的纤突蛋白和其它神秘毒素毁坏了。
+自疫情爆发至今，各国的无良政客已经疯狂，在这至暗时刻，希望各国的战友互相帮助，共同渡过这艰难时期。
 
-这是任何人都可以查看的数据。任何声称支持“科学”的人，如果他们在谈到普遍遵守新冠病毒疫苗接种的“新常态”（反常的现实正逐步变为常态）时，继续相信福奇（Tony Fauci）和 CNN 之类的观点，那都是在自欺欺人。
+(本文仅代表作者观点)
 
-“数据清楚表明，接种疫苗不能预防感染或传播，而且即使在夏季和初秋，疫苗也在增加住院和死亡的风险，而不是降低风险。”自由人类（Humans Are Free）网站报道，并指出这一切都发生在夏天，而夏天的疾病和死亡人数应该是最少的。
+参考链接：[狮城快讯：新加坡Covid疫苗歧视升级！不打疫苗不可进商场　12岁以下明年初开打](https://gnews.org/zh-hans/1582814/)
+[未接种公众不能在小贩中心和咖啡店堂食 也不能进入商场和景点](https://www.zaobao.com.sg/realtime/singapore/story20211009-1201644)
+[多地启动新冠疫苗加强针，涉及安徽福建湖北黑龙江海南等地](https://news.sina.com.cn/c/2021-10-09/doc-iktzqtyu0510206.shtml)
 
-“我们现在面临的问题是什么呢？冬天就在眼前了。”
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-欲查询最新的因新冠疫苗而伤亡的人数，请至ChemicalViolence.com
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
 
-文章来源：[https://newstarget.com/2021-10-10-nearly-all-covid-deaths-september-fully-vaccinated.html](https://newstarget.com/2021-10-10-nearly-all-covid-deaths-september-fully-vaccinated.html)
-
-文章点评仅代表个人观点
-
-翻译/评论：洛杉矶盘古农场 – maru
-校对：洛杉矶盘古农场 – 柯镇恶
-编辑：洛杉矶盘古农场 – 柯镇恶
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

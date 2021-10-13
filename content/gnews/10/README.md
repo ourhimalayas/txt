@@ -2,43 +2,27 @@
 ---
 
 
-## 华裔女数据科学家成为揭露Facebook恶行的又一吹哨人
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1591588/)
+## 爆料革命影响下 疫苗接种无法再大幅推进
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1591673/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-43.png)
-图片来自网络
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-美国社交媒体巨头Facebook近日麻烦缠身，其中一个麻烦是先后被前雇员揭露其违法行为。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-12.png)
+文章仅代表作者本人观点，与Gnews无关
 
-据《大纪元》10月13日报道，脸书（Facebook）前雇员、华裔女数据科学家张学菲（Sophie Zhang）周日（10月10日）告诉CNN，她已将其前雇主Facebook所作所为的相关文件传给了美国一个执法机构，“调查仍在进行中”。她还表示，她愿意去国会就她前雇主的所作所为作证。
+视频参看：2021.10.13早GTV新闻访谈
 
-此前已有脸书前员工披露， Facebook知道自己的某些运作对公众有害，但为了追求利润，不惜暗箱操作。
+[https://gtv.org/broadcast/watch/6166d0c5304e992109b45e10](https://gtv.org/broadcast/watch/6166d0c5304e992109b45e10)
 
-张学菲曾在Facebook担任数据科学家近三年。去年（2020年），她被脸书辞退，公司称，她被解雇的理由是因业绩问题。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-由于不满公司对某些国家利用该社媒平台散布假信息操纵舆论的行为袖手旁观，张学菲于她在脸书上班的最后一日，在公司内部论坛上发布了长达七千字的备忘录，陈列了她所发现的种种不妥之处。然而这个备忘录却石沉大海。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
 
-BuzzFeed新闻网去年首次报道了这份备忘录。据张学菲介绍，在离职前，她是在Site Integrity fake engagement team工作。她表示，在脸书平台，即便是像她一样专门从事数据科学等领域的初级员工，也可以行使巨大的权力，控制着如世界领导人这样的重量级用户的活动。
-
-周日，张学菲在湾区的家中接受CNN（美国有线电视新闻网）采访时说，脸书的另一个举报人、该公司前数据科学家弗朗西斯·豪根（Frances Haugen）上周在向参议院小组委员会作证后，两党似乎都支持采取相关行动，保护在线儿童，她对此深感鼓舞。
-
-豪根上周二（10月5日）在美国参议院消费者保护、产品安全和数据安全小组委员会（Senate Subcommittee on Consumer Protection, Product Safety and Data Security）作证时表示，社交媒体巨头脸书知道自己的某些运作对公众有害，这些运作“伤害儿童，煽动分裂，削弱我们的民主”。但脸书为了追求利润，不惜进行暗箱操作。
-
-张学菲称，她现在已将脸书相关信息提交给当局。她周日在推特上表示：“我向美国一个执法机构提供了有关（脸书）潜在刑事违法行为的详细文件。我的理解是，调查仍在进行。”
-
-当CNN询问提供了哪些信息，以及向哪个机构提供了信息时，张学菲拒绝透露。
-
-联邦调查局（FBI）发言人周一（10月11日）拒绝就此事发表评论，并补充称：“联邦调查局一般不会以确认、否认或其它方式评论我们可能从公众那里收到的信息或线索。”
-
-张学菲对脸书的指控核心是：脸书没有做足够的工作来解决美国以外的国家滥用该平台。根据脸书最近的季度文件显示，大约90%的脸书月度活跃用户在美国和加拿大之外的国家或地区。
-
-欧洲议会周一发表声明，邀请豪根出席将于11月8日举行的听证会。据悉，张学菲也计划本月下旬赴英国议会作证。
-
-脸书配合邪恶势力作恶多端，肆意地封号删帖，严重损害西方民主自由价值观。脸书不仅深度影响美国大选，在病毒和疫苗问题上故意误导公众，还默许中共等邪恶组织在其平台上开展宣传战，但它却永久封禁了美国前总统川普的帐号。
-
-Facebook该到“非死不可”的时候了。
-
-注：本文仅代表作者观点
-
-**新闻链接：**[https://twitter.com/dajiyuan/status/1447993023883841542](https://twitter.com/dajiyuan/status/1447993023883841542)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

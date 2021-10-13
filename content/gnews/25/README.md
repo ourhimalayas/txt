@@ -2,22 +2,50 @@
 ---
 
 
-## 秘翻在线 : 中共为何在福建设立大规模的集中营?
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1591347/)
+## 世界卫生组织开展三种药物治疗COVID-19的临床试验
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591544/)
 
-撰稿：William
-校对：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/epa-9.jpg)
-图片来源：网路
+栏目记者：禹水沃土
+责任编辑：晓仙女
 
-根据《零对冲》(Zero Hedge)引述大纪元报导的内部泄露文件，中共国当局通知地方政府为大规模爆发的中共病毒做好准备。9月30日，来自中共国国务院，由福建省政府转发地方当局的一份题为《进一步加强防疫工作的通知》的文件。另一份则是由国务院10月1日下达命令,由福建省委派发给地方的《国庆防疫通知》。
 
-两份文件都标有“特别紧急”的字样，并提出两项标准：一是建设集中隔离点，要求地方在10月底前建成每万人不少于20间的隔离中心和房间。第二是每个隔离点的规模必须超过100个房间。
 
-公开数据显示，2020年福建省人口为4154万人。截至9月19日，福建全省已在296个中心点设置隔离室35691个。按照防疫通知中的标准，福建省到10月底至少需要建设完成8.3万个隔离间，也就是要在短短不到一个月的时间再建造完成4.7万个左右。
 
-美国陆军研究所前病毒学研究员肖恩·林博士(Dr. Sean Lin)告诉大纪元时报，中共最主要目的就是加强管控，中共的所有防疫措施都和政治运动一样。例如，人民可以随时被隔离并放入隔离站点，隔离点也是政治迫害的地方。不管是谁，只要中共说核酸检测呈阳性，就是阳性。接着就会剥夺人民所有一切权利。中共的隔离点实际上就是另一种形式的集中营。
 
-就在中共信誓旦旦要攻打台湾之际，为什么要在福建建立大量的集中营?是否是预先设立集中营，以绑架被攻打的台湾人民?
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-新闻来源：China Prepares For Possible Large-Scale COVID-19 Outbreak: Leaked CCP Documents
+
+
+
+
+
+
+10 月 11 日 Inquirer.net 报道，世界卫生组织 (WHO) 的医生最终批准了三种药物——青蒿琥酯、伊马替尼和英夫利昔单抗，用于中共病毒患者的临床试验。
+
+这三种药物具有高度的抗炎性能，青蒿琥酯用于治疗疟疾，伊马替尼用于某些类型的恶性肿瘤，英夫利昔单抗可以改善免疫系统。事实上，爆料革命之前推出各种有效治疗中共病毒的用药方案，其中就包含被誉为解药的“青蒿素”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-68.jpg)
+参考链接：
+[Three new drugs for COVID-19](https://opinion.inquirer.net/145182/three-new-drugs-for-covid-19)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Ryan
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

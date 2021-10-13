@@ -2,29 +2,19 @@
 ---
 
 
-## 有声|加拿大“新冠集中营”与“纠察队”在萨斯喀彻温省即将正式上线
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1591558/)
+## 大直播10/13傅政华被抓将引爆中西大律师事务所的腐败炸弹
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1591635/)
 
-配音：香草山教育部 – 蒙古鸿雁
+新闻采稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-13-at-10.28.46-AM.png)图片来源：GTV
+爆料革命发起人郭文贵先生在10月13日大直播伊始，就惊爆：随着中共国前司法部长傅政华的被调查，中共国国内各大律师事务所和许多合资合作背景的国外大律师事务所都将发生巨大的变局。
 
-10月8日，据CBC报道，加拿大萨斯喀彻温省将反聘大量退休警察，使其与在职的警察联合行动，组成“新冠疫苗政策强制执行队”。该行动队旨在逮捕在公开场合违反加拿大新冠疫情规定的反口罩和反强制疫苗护照人士。
+郭先生爆出几位中共国的高官被查现场的拙劣表现，并指出随着他们的失势甚至被调查，会产生一连串的变局。傅政华原是直接负责国内律师和海外合作律师业务的最高官，内部的高度腐败体制和对外的蓝金黄使得内外大律师事务所必然会爆出更多丑闻和案件。
 
-此前，萨斯喀彻温省已在该省的北巴特爾福德市秘密建造了大量的隔离集中营。目前，这些集中营已投入使用——被逮捕的反新冠疫苗政策人士，以及新冠阳性患者都将会被关押在这些集中营内进行隔离。另外，该政策并未对何时释放关押人员做出任何解释。
+郭先生深刻地点出以法治为根基和立国之本的美、欧、加等国，因为大律师事务所和法官、检察官千丝万缕的体制机制联系，使得这种一连串巨变甚至会使得西方司法系统都会产生大的震荡。
 
-据悉，萨斯喀彻温省政府还向公众推荐了该省的匿名举报系统，即无论个人或商户，倘若有人发现未戴口罩或未接种新冠疫苗者，可经相关网站进行匿名举报。随后，“新冠政策强制执行队”会对被举报人进行抓捕和关押。
+基于巨大的司法利益链条， 无论是在中共国内的律师事务所还是与中共国官方合作的海外律师事务所， 无疑会随着傅政华案的调查深入，会爆出更多的猛料，让我们拭目以待。
 
-而今，赤裸裸的红色恐怖已经在加拿大蔓延开来。
+发布：Shifter
 
-文字版原文：[加拿大“新冠集中营”与“纠察队”在萨斯喀彻温省即将正式上线](https://gnews.org/zh-hans/1588561/)
-
-音频处理：喜山必胜Maverick
-
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+【原文链接】https://gtv.org/broadcast/watch/6166d150304e992109b45e70

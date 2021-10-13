@@ -2,29 +2,40 @@
 ---
 
 
-## 有声|FDA对北欧国家暂停使用Moderna 冠状病毒疫苗做出回应
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1591659/)
+## 中共病毒疫苗致血栓 结束NBA球星职涯
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1591753/)
 
-配音：香草山美食部 – 玫瑰园
+**By:秘翻新闻**
 
-据[零对冲](https://www.zerohedge.com/markets/fda-responds-nordic-countries-suspending-moderna-covid-vaccine-usage)10月11日报道，美国食品和药物管理局（FDA）对上周北欧国家限制使用Moderna的COVID-19疫苗做出了回应，称该疫苗的好处大于风险。
+***2021-10-13***
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/1013-2.jpg)](https://gtv.org/broadcast/watch/61669f00304e992109b44a83)点击图片观看视频
+**新闻摘要:**
 
-FDA的一位官员在周末对新闻媒体发表的一份声明中说，FDA知道这些数据。目前，FDA仍然认为接种Moderna COVID-19疫苗的已知和潜在好处超过了已知和潜在风险。
+1.中共经济超限战正危害全球金融市场
 
-同时，Moderna在这些国家做出决定后的一份声明中认为，这些通常是轻微的病例，个人在接受标准治疗和休息后往往会在短时间内恢复。然而，生命诚可贵，目前对那些注射疫苗而罹患心脏疾病的青年人产生的长期影响不得而知。
+2.暴雨引发洪水 中国山西逾175万人受灾
 
-因为有包括心肌炎在内的副作用风险，芬兰、挪威、瑞典和冰岛的卫生官员都已宣布暂停对年轻人使用Moderna疫苗。而FDA无视这些已知的副作用风险，仍然坚持推行疫苗，是将人们的生命健康置于长期未知的风险之中。
+3.中国女星郑爽怒骂中共腐败 称不再沉默
 
-文字版原文：[FDA对北欧国家暂停使用Moderna 冠状病毒疫苗做出回应](https://gnews.org/zh-hans/1589912/)
+4.白宫警告：美国圣诞节期间面临物资短缺
 
-音频处理：喜山必胜Maverick
+5.英媒：重感冒患者可能是感染了中共病毒
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+6.美俄勒冈参议员呼吁调查中共病毒数据操纵
+
+7.美马萨诸塞州州长启动国民警卫队对学生进行中共病毒测试
+
+8.中共病毒疫苗致血栓 结束NBA球星职涯
+
+9.NBA球星凯里·欧文因为拒绝接种疫苗被球队禁赛
+
+10.厄瓜多尔最大银行受网络攻击至停业
+
+**GTV链接：**[https://gtv.org/broadcast/watch/61669f00304e992109b44a83](https://gtv.org/broadcast/watch/61669f00304e992109b44a83)
+
+发布: 文橙
+
+* * *
+
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
