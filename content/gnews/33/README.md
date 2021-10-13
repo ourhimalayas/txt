@@ -2,8 +2,8 @@
 ---
 
 
-## 辉瑞公司声称疫苗 95% 有效的测试存在“明显欺诈证据”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591569/)
+## 瑞典：最近 10 例新冠病毒死亡病例中有 7 例完全接种了疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591585/)
 
 作者：AsG諾雅
 
@@ -19,15 +19,14 @@
 
 
 
-《生命新闻网》10 月 12 日消息，美国前线医生首席科学官、辉瑞公司前副总裁迈克尔-耶尔登博士针对《柳叶刀》上一篇有关新冠疫苗有效性的文章和一部审查辉瑞疫苗疗效研究的纪录片发表了看法，他认为辉瑞公司的研究中有“明显的欺诈证据”。
+《消息战网》10 月 12 日消息，瑞典公共卫生局报告说，在 9 月 1 日至 24 日期间，10 个与新冠肺炎（中共病毒）有关的死亡病例中就有 7 个是完全接种疫苗者。
 
-耶尔登博士表示，相信他们（辉瑞）的行为是蓄意的大规模谋杀，其目标就是让人们尽可能地恐惧并接受疫苗接种，他对政府、媒体和科技巨头掩盖真相的做法表示愤慨。
-
-当世界各国民众知道新冠肺炎有效治疗药物被各级“医疗权威”禁止，各国政府强推的所谓疫苗实际上是“杀人生化武器”的真相时，所有参与这一大屠杀计划的机构和个人都将收到法律的审判。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-60.jpg)
+尽管疫苗专家尝试从各种角度解释所谓“突破性感染”激增的原因，事实是，老人护理中的感染病例最近增加到了2月份以来的最高水平，而且老年人在感染者中的比例也上升到了大规模检测开始以来的一些最高水平。自大流行开始以来，瑞典这个拥有1000多万人口的国家已经出现了116万个病例，有近15000人死亡。近65%的瑞典人口已完全接种疫苗。 毒疫苗对人类的伤害开始显现，并不断通过各国医疗系统的统计数据得到验证。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-39.jpg)
 参考链接：
-[Former Pfizer VP: ‘Clear evidence of fraud’ in Pfizer study claiming 95% jab efficacy](https://www.lifesitenews.com/news/former-pfizer-vp-clear-evidence-of-fraud-in-pfizer-study-claiming-95-jab-efficacy/?utm_source=featured&amp;utm_campaign=usa)
-[COVID-19 vaccine efficacy and effectiveness—the elephant (not) in the room](https://www.thelancet.com/journals/lanmic/article/PIIS2666-5247%2821%2900069-0/fulltext)
+[Researchers See Fading Vaccine Effect as 7 in 10 Recent COVID-19 Deaths in Sweden Fully Vaxxed](https://www.infowars.com/posts/researchers-see-fading-vaccine-effect-as-7-in-10-recent-covid-19-deaths-in-sweden-fully-vaxxed/)
+[WorldOMeters Sweden covid cases](https://www.worldometers.info/coronavirus/country/sweden/)
+[Sweden Coronavirus Full Vaccination Rate](https://ycharts.com/indicators/sweden_coronavirus_full_vaccination_rate)
 
 （本文仅代表作者观点）
 

@@ -17,6 +17,21 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/13/2021 6:03 PM (UTC)`
+
+🙏🙏🙏🔥🔥🔥
+> `@tomfitton 10/13/2021 12:28 PM (UTC)`<br/>HUGE: Judicial Watch goes to FEDERAL court on Biden's COVID-China cover up and Afghanistan surrender! Plus Trump headlines Judicial Watch event AND Whistleblower Exposes CRT-Marxist Training Document for TEACHERS! I have another MASSIVE Judicial Watch Update for you! https://www.youtube.com/watch?v=6h-p3Gv83DA
+![img](https://media.gettr.com/group28/origin/2021/10/13/12/2425b8be-7ea1-f3c7-3c17-5a1d3da52565/ff234547c02980076d9b4a6c1c55a714.png)
+
+---
+
+`@miles 10/13/2021 6:01 PM (UTC)`
+
+1013号：晚了……太晚了<br/>盗囯贼……盗国贼．盗国贼……<br/>【一行三会+四大行+沪深二大交易所……<br/>这是要干嘛的呢？😎】
+![img](https://media.gettr.com/group47/getter/2021/10/13/18/01/ca6cb0f2-670d-6a6c-0f0f-ea18994e0802/5de9cde263324a6ad12cbe9d39524627.jpg)
+
+---
+
 `@miles 10/13/2021 4:48 PM (UTC)`
 
 10月13号：我们中国人连这个老狮子的待遇都混不上……如果你老在中国……想自己挖个坑把自己埋了，永远不可能。中国人太可怜了，太可悲了。
@@ -280,20 +295,6 @@ Gettr prohibited these followings:<br/><br/>1. No racial discrimination is allow
 
 Taiwan is in great danger: Xi Jinping addresses the 110 years anniversary of Xinhai Revolution , releases strong signal to unify Taiwan by force<br/><br/>台湾危险了：习近平发表辛亥革命110周年演讲发出强烈信号，坚决要完成武统台湾<br/>
 ![img](https://media.gettr.com/group42/getter/2021/10/09/13/35/9cdb516c-cd1f-5ff9-5f88-03e3aeafc62c/out.jpg)
-
----
-
-`@miles 10/9/2021 4:22 AM (UTC)`
-
-10/08/2021  Miles Guo’s GETTR: The vaccine disaster is changing the world everyday and every moment, the truth will be revealed eventually, all people pushing or enforcing the vaccine mandates will be charged and put to trail in courts; in terms of the world finance and economy after the vaccine disaster, only crypto currency(ies) and digital economy survive and boom, and the new biotechnology and advanced technology will make a change on the damages and harm caused by the Covid vaccines and the CCP virus on humanity<br/><br/>10/08/2021 文贵盖特：疫苗灾难每时每刻都在改变着人类和世界，真相一定会出来，强推疫苗的人都会受到审判；疫苗灾难后的世界金融、经济只有虚拟货币、数字经济，新的生物技术和高科技会改变疫苗和病毒对人类的危害<br/>
-![img](https://media.gettr.com/group26/getter/2021/10/09/04/22/0bfd48a3-b0f1-e678-af30-dce9adeebcef/out.jpg)
-
----
-
-`@miles 10/9/2021 4:07 AM (UTC)`
-
-10月8号：共产党的以孙灭台，武统台湾，宣讲大会结束，台湾危了！
-![img](https://media.gettr.com/group24/getter/2021/10/09/04/3986a618-99b8-c26d-f559-27819e457db3/3934b041c72fdf325376fcf71a1a0f2e.jpg)
 
 ---
 

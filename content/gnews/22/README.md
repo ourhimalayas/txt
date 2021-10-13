@@ -2,29 +2,27 @@
 ---
 
 
-## 有声|FDA对北欧国家暂停使用Moderna 冠状病毒疫苗做出回应
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1591659/)
+## 俄美将举行新一轮会谈
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1591675/)
 
-配音：香草山美食部 – 玫瑰园
+俄罗斯莫斯科喀秋莎农场 星河
 
-据[零对冲](https://www.zerohedge.com/markets/fda-responds-nordic-countries-suspending-moderna-covid-vaccine-usage)10月11日报道，美国食品和药物管理局（FDA）对上周北欧国家限制使用Moderna的COVID-19疫苗做出了回应，称该疫苗的好处大于风险。
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/R-1.jpg)eurasiareview.com
+美东时间10月13日报道，美国国务院发言人内德∙普莱斯（Ned Price）表示，俄罗斯和美国将举行新一轮会谈。
 
-FDA的一位官员在周末对新闻媒体发表的一份声明中说，FDA知道这些数据。目前，FDA仍然认为接种Moderna COVID-19疫苗的已知和潜在好处超过了已知和潜在风险。
+关于下一次会议的决定是在美国副国务卿维多利亚∙努兰德和俄罗斯外交部副部长谢尔盖∙里亚布科夫的会谈后作出的。
 
-同时，Moderna在这些国家做出决定后的一份声明中认为，这些通常是轻微的病例，个人在接受标准治疗和休息后往往会在短时间内恢复。然而，生命诚可贵，目前对那些注射疫苗而罹患心脏疾病的青年人产生的长期影响不得而知。
+普莱斯补充说，“讨论是建设性的，对俄美双方都有益。”
 
-因为有包括心肌炎在内的副作用风险，芬兰、挪威、瑞典和冰岛的卫生官员都已宣布暂停对年轻人使用Moderna疫苗。而FDA无视这些已知的副作用风险，仍然坚持推行疫苗，是将人们的生命健康置于长期未知的风险之中。
+普莱斯强调，“莫斯科和华盛顿计划讨论大使馆的数量和运作，美国在其外交使团的人员配置问题上的立场依然坚定。”
 
-文字版原文：[FDA对北欧国家暂停使用Moderna 冠状病毒疫苗做出回应](https://gnews.org/zh-hans/1589912/)
+白宫表示，努兰德在莫斯科与她的俄罗斯同行进行了富有成效的会晤。
 
-音频处理：喜山必胜Maverick
+美国总统发言人詹∙普萨基称，“我相信她正在那里进行相当有建设性和富有成效的会晤。”
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+努兰德于10月11日抵达莫斯科。10月12日，副国务卿会见了俄罗斯外交部副部长谢尔盖∙里亚布科夫。她形容与他的会谈是“建设性的”。努兰德计划与俄罗斯总统助理尤里∙乌沙科夫和俄罗斯总统办公厅副主任德米特里∙科扎克会面。
+
+参考链接：
+
+[https://www.rbc.ru/rbcfreenews/6165ed769a79474e78f33863](https://www.rbc.ru/rbcfreenews/6165ed769a79474e78f33863)
