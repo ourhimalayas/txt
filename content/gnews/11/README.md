@@ -2,39 +2,38 @@
 ---
 
 
-## 加密货币行业地震：拜登政府加强该行业的监管审查
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1590573/)
+## 墙内要闻汇编
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1590635/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/shutterstock_1434643079.jpg)图片来源：[eamesBot/Shutterstock.com](https://www.shutterstock.com/image-photo/crypto-currency-background-various-shiny-silver-1434643079)
-#### 整理报道：小红帽
+素材：东京樱花团GNEWS组
+![](https://lh5.googleusercontent.com/clK4RAowqaFxw7ZRSQaxKvkekIycHIB4J7Lyqe3OrG2kzTMv2LomBAIhoFIXkNnA9rWcI78IBrAptsyDkgiVEmTcHZ_nZ-IRa1snWLrtrOpleJZcmDMHS14zmnCjLv0DzaBF9qlF=s0)[图片来源](https://www.voachinese.com/a/China-Sept-car-sales-drop-due-to-power-and-chip-shortage-20211012/6267655.html)
+10月13日汇编
 
-一位白宫高级官员表示，拜登政府开始加强对加密货币的监管审查。
+1、[中国9月汽车销售大跌 电力和芯片短缺是主要原因](https://www.voachinese.com/a/China-Sept-car-sales-drop-due-to-power-and-chip-shortage-20211012/6267655.html)
 
-美国国家安全委员会国际经济和竞争力高级主管彼得·哈雷尔（Peter Harrell）表示，政府将采取行动应对新兴行业的一系列风险，同时寻求将美国定位为数字资产创新的领导者。
+随着全球芯片持续短缺以及中国拉闸断电的影响，中国9月份的汽车销售较一年前暴跌了19.6%，并已经连续第5个月下降。中国汽车销售的中国汽车工业协会(China Association of Automobile Manufacturers，CAAM)周二(12日)发布的数据显示，9月份，中国的汽车销售量为207万辆(各类汽车)，年比跌幅近20%。该协会称，汽车销售下降的原因是，由于煤炭紧张造成的发电量不足而出现的电力短缺，再加上已经持续很长一段时间的全球芯片供应紧张，迫使许多主要车厂停工或减产。
 
-哈雷尔先生周二在《华尔街日报》风险与合规论坛上说：“你真的看到政府开始了我们所期望的持续和积极的努力，以确保我们了解并解决我们在加密货币领域看到的一系列风险。”
+但是，美国电动汽车制造商特斯拉在汽车销售普遍走软之际，异军突起，独领风骚。特斯拉在上海生产的3型轿车和Y型运动-工具多用途车(SUV)9月份销售了5.6万多辆，创出特斯拉两年来的最高记录，比8月份的4.4264万辆上猛增了27%。
 
-**拜登政府正在采取措施监管所谓的稳定币****——****一种由国债等安全资产支持的数字货币。监管机构担心，如果大量投资者突然急于赎回这些稳定币，可能会出现相当于银行挤兑的情况。**
+2、[恒大未能支付美债票息 中国房企大规模违约风险加重](https://www.voachinese.com/a/Evergrande-misses-third-round-of-bond-coupon-payments-20211012/6267297.html)
 
-与此同时，**美国证券交易委员会主席加里****·****金斯勒****(Gary Gensler)****在演讲中将矛头对准了私人形式的货币，称这些货币****“****没有长期可行性****”****，并承诺其机构将加强监管。**
+据路透社报道，恒大集团今年9月已错过两笔美元债的利息支付，而30天的宽限期业将于10月底到期。10月12日中国房地产业巨头企业恒大集团再次发生债务到期不能偿还的情况。恒大三个美元债券合计1.48亿美元的票息11日到期，但目前仍然没有恒大付息的消息。同时，由恒大担保的2.6亿美元债也在8日过了宽限期，但市场并未传出偿付消息。
 
-尽管有人担心过于激进的监管制度可能会将虚拟货币市场转移到海外，并导致美国失去关键情报和金融杠杆，但哈雷尔先生周二的讲话似乎仍对加密货币采取了强硬的立场。
+路透社报道说，据统计，总共将有由中国房地产开发商发行的价值923亿美元的债券的债务将在明年到期。另据野村控股(Nomura Holdings Inc.)经济学家称，中国的房地产开发商在形势好的时候共举债逾5万亿美元。这一债务规模比2016年年底时几乎增长了一倍，目前比全球第三大经济体日本去年的整体经济产值还要高。报道表示，全球市场都在面临可能来临的违约潮。约40%的中国开发商从国际债券投资人手中借出的债务出现了警告信号。10月9日，除了当代置业，绿地、阳光城、融信、佳兆业、路劲、绿城、中骏、合生创展等房企发行的13笔美元债跌幅也达到3%到10%。
 
-“我们确实认为加密货币行业有一些潜在的好处，”哈雷尔先生表示，并用金融包容性举例， “但显然加密货币行业存在一系列的风险。”
+3、[调查：中国出口增长9月份可能放缓](https://www.voachinese.com/a/china-exports-slowed-in-sept-20211012/6267889.html)
 
-他补充道：“我认为你真的看到政府采取了多种不同的工作方式，以确保我们拥有一个智能有效的加密货币监管系统。”
+据路透社消息，最近对30位经济学家所做调查的中间值显示，受中国国内限电以及国际消费者对中国产品需求降低等因素的影响，中国出口增长幅度从8月份的25.6%下降到9月份的21%；中国的进口9月份与一年前相比可能增加20%，但大大低于8月份33.1%的增幅。调查显示，中国向清洁能源过渡，产业需求暴增以及商品的高价位造成中国电力短缺的不断扩大，导致很多工厂停产，包括向苹果和特斯拉等全球知名品牌供货的工厂在内。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+4、[“毁灭性”打击 中国制造业电费涨幅不设上限](https://www.aboluowang.com/2021/1012/1658565.html)
 
-**参考新闻：**[Biden Administration Embarking on ‘Aggressive’ Tack for Cryptocurrency, White House Official Says – WSJ](https://www.wsj.com/articles/biden-administration-embarking-on-aggressive-tack-for-cryptocurrency-white-house-official-says-11634077058)
+中国发改委周二（12日）发布《进一步深化燃煤发电上网电价市场化改革的通知》，将有序放开全部燃煤发电电量上网电价，通过市场交易在“基准价+上下浮动”范围内形成上网电价，扩大交易电价上下浮动范围，由现行的上浮不超过10%、下浮原则上不超过15%，扩大为上下浮动原则上均不超过20%。高耗能企业市场交易电价则不受限。有中国媒体引述财经人士分析表示，在目前中国整个电力消费中，工业用电比例接近70%，而居民电力消费仅占14%左右。这次电价改革不对高耗能企业交易电价不设限，金融学者司令指出，“对制造业打击将是毁灭性的。”
 
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
+5、[供应链危机影响浮现 海天味业月底涨价](https://www.aboluowang.com/2021/1013/1658610.html)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+大陆企业海天味业公布，对酱油、蚝油、酱料等部分产品的出厂价格进行调整，主要产品调整幅度为3至7%不等，新价格执行于10月25日开始实施。公司表示，鉴于各主要原材料、运输、能源等成本持续大幅上涨，为了更好地向消费者提供优质产品和服务，将对部分产品价格进行调整。
+
+（本文只代表个人观点，与Gnews网站无关）
+*编辑：东京樱花团 / 文小白*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)

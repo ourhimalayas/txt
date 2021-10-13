@@ -2,35 +2,22 @@
 ---
 
 
-## 打锦鲤旗即为汉奸，共匪之忧不在美日而在萧墙之内也
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1590368/)
+## 险酿大祸&#8211;刚接种疫苗的航空机师在其飞行任务途中猝死于驾驶舱内！
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1590465/)
 
-据[**沸点视频**](https://weibo.com/u/5145725878?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年10月13日8：26](https://weibo.com/5145725878/KCuWiE9Vx?ref=home&amp;rid=10_0_8_4806865679011788365_6_0_0) 来自 [Android](https://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
+视频原文采编：苦尽甜来（文来） 编译撰稿：硫酸羟氯喹64
 
-【[#男子带团举鲤鱼旗游客提醒反被驳#](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E5%B8%A6%E5%9B%A2%E4%B8%BE%E9%B2%A4%E9%B1%BC%E6%97%97%E6%B8%B8%E5%AE%A2%E6%8F%90%E9%86%92%E5%8F%8D%E8%A2%AB%E9%A9%B3%23&amp;from=default)：中国传到日本去的】10月12日，网友爆料一[#男子举鲤鱼旗带学生参观中山陵#](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E4%B8%BE%E9%B2%A4%E9%B1%BC%E6%97%97%E5%B8%A6%E5%AD%A6%E7%94%9F%E5%8F%82%E8%A7%82%E4%B8%AD%E5%B1%B1%E9%99%B5%23&amp;from=default)。一名女子上前提醒让其不要使用此旗被男子反驳。男子称这是锦鲤旗，是中国传到日本去的。随后被旁边游客拉开。鲤鱼旗，在日本为庆祝五月五日男孩节，家有男孩的，家家挂鲤鱼旗。此风俗始于江户时代，原是农历端午节的风俗。[#蓝v视界#](https://s.weibo.com/weibo?q=%23%E8%93%9Dv%E8%A7%86%E7%95%8C%23&amp;from=default)[2南京](https://weibo.com/p/1001018008632010000000000) [L沸点视频的微博视频](http://t.cn/A6MCPQST)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/thumbnail_IMG_3423-edited.png)图片来源：RUMBLE
 
-子曾经曰过——“故远人不服，则修文德以来之。既来之，则安之。今由与求也，相夫子，远人不服、而不能来也；邦分崩离析、而不能守也：而谋动干戈于邦内。吾恐季孙之忧，不在颛臾，而在萧墙之内也。”大意是——“原来的远方的人不归服，就发扬文治教化来使他归服；使他来了之后，就要使他安定下来。如今由与求两人辅佐季孙，远方的人不归服，却不能使他们来；国家四分五裂而不能保持它的稳定统一；反而在境内策划兴起干戈。我恐怕季孙氏的忧虑，不在颛臾，而是在鲁国内部。”
 
-想当年远人不服而能修文德以来之，现如今爱国大妈们赤膊上阵，数典忘祖下，不仅把祖宗原创的锦鲤旗的卖给日本，而且不把举锦鲤旗的同胞打成汉奸卖国贼不算完，由是观之，“邦分崩离析、而不能守也：而谋动干戈于邦内。”吾亦恐共匪之忧不在美日，而在萧墙之内也！
+加拿大知名视频分享网媒《RUMBLE》的著名直播主持人斯图-彼得，于10月11日在其与简-鲁比博士的访谈节目中向外界爆料指出，美国达美（Delta）航空公司的一位飞机驾驶员在执行飞行任务途中突然死亡，而导致该航班需要紧急迫降以避免造成更严重的灾难。
 
-撰稿：喜马拉雅的肉夹馍
+简博士在该节目中告诉主持人，达美航空公司内部数名与其关系甚密的知情人士日前向她吐露说，就在大约10天前，一名正在执行任务的驾驶员机长在飞行途中猝死。该航班的副驾驶事后告诉一位空姐，机长死前一刻还与其正常交谈，但在讲了几句奇怪的话之后突然不省人事而亡。这位不得不紧急进行安全迫降的副驾驶还表示，该已故机长在数日前曾接种了第二剂的COVID19疫苗。
 
-审核：喜马拉雅的馍夹肉
+此外，该爆料人还透露了达美航空最近发生的大量和接种COVID19疫苗相关的意外事件，包括：在西雅图，一位已接种该疫苗的飞行员被发现因栓塞死在家里的地板上。还有其他众多飞行员和空乘人员在接种该疫苗后，都出现了各种不明原因的疾病反应，且至今尚未回到工作岗位；两名奥兰多的空姐在接种第二剂后被发现死于家中；七名亚特兰大已接种的空乘人员出现了COVID19感染症状，而另一名飞行员则在接种完两剂后，不久死于肾衰竭；一位盐湖城的停机坪工作人员和一位兼职消防员以及一位地勤主管也在接种完第二剂的三天后相继死亡。
 
-校对：Maarago
+面对这些令人震惊但仍不被外界所知的内幕消息，主持人彼得认为：达美航空极有可能对媒体隐瞒了以上所发生的这些可怕事件。或者各主流媒体试图极力掩盖和完全洗白整件事故。为此，该主持人激愤道：“如果你是事发航班的副驾驶或空姐，知道该航班上发生了什么，作为一个美国人，你有义务现在就站出来，打破沉默并与我们进行有关信息的分享合作。要知道， 每天都有数百万人乘坐飞机旅行，这事关包括妇孺在内无数人的生命。”
 
-（文章内容仅代表作者个人观点）
+（以上内容仅代表媒体信息和作者个人观点）
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[视频链接：](https://rumble.com/vnlwi9-sources-vaxxed-delta-pilot-dies-in-flight-emergency-landing-required.html?mref=ap9pb&amp;mc=ekls8)

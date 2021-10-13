@@ -2,46 +2,50 @@
 ---
 
 
-## 被村霸欺压的欧金中被逼提刀重演杨佳和张扣扣的复仇路
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1587453/)
+## 2021/10/11 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1587017/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/捕获_副本-8.png)
-据[**新京报我们视频**](https://weibo.com/6124642021?refer_flag=1001030103_) [2021年10月11日10:00](https://weibo.com/6124642021/KCcHAjG6k?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+## 恶法吞噬人性
 
-【[#福建莆田重大刑案已致2死3伤#](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E8%8E%86%E7%94%B0%E9%87%8D%E5%A4%A7%E5%88%91%E6%A1%88%E5%B7%B2%E8%87%B42%E6%AD%BB3%E4%BC%A4%23) [#莆田悬赏5万元征集重大刑案线索#](https://s.weibo.com/weibo?q=%23%E8%8E%86%E7%94%B0%E6%82%AC%E8%B5%8F5%E4%B8%87%E5%85%83%E5%BE%81%E9%9B%86%E9%87%8D%E5%A4%A7%E5%88%91%E6%A1%88%E7%BA%BF%E7%B4%A2%23)】10月10日，福建省莆田市公安局秀屿分局发布协查通报，当日13时许，秀屿区平海镇上林村发生一起重大刑事案件，村民欧某中有重大作案嫌疑。[@新京报我们视频](https://weibo.com/n/%E6%96%B0%E4%BA%AC%E6%8A%A5%E6%88%91%E4%BB%AC%E8%A7%86%E9%A2%91) 11日从上林村村干部处获悉，案件目前造成2人死亡3人受伤。平海镇政府发布悬赏通告，对提供有价值线索者将奖励5万元。[#福建莆田发生重大刑案#](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E8%8E%86%E7%94%B0%E5%8F%91%E7%94%9F%E9%87%8D%E5%A4%A7%E5%88%91%E6%A1%88%23)[#蓝V视界#](https://s.weibo.com/weibo?q=%23%E8%93%9DV%E8%A7%86%E7%95%8C%23) [L新京报我们视频的微博视频](http://t.cn/A6MoFH1z) （记者：张榕晋 制作：李东旭 运营：马冉）
+视频注：老人摔倒后要首先声明不会讹人，他人想扶起老人，要事先录制自证清白的视频。这是缘于中共法院曾判决好心人“如果没撞倒人为什么要去扶”。
 
-关于这个欧某中杀人的原委据[**一博胖迪都是我的**](https://weibo.com/5983225886?refer_flag=1001030103_)[2021年10月11日19:47](https://weibo.com/5983225886/KCgxYcNN9?refer_flag=1001030103_) 来自 [HUAWEI Mate 30 5G](https://app.weibo.com/t/feed/1EuKP9)
+## 疫苗杀人的超限手段
 
-[#用户736182#](https://s.weibo.com/weibo?q=%23%E7%94%A8%E6%88%B7736182%23) 不明白为什么账号不见了，虽然他做错了，但是还是希望更多人知道这件事情的原委 ​
+视频注：全球因为接种疫苗死亡的人数无法被统计。为什么在大规模接种疫苗后，会频繁出现突然倒地？这值得人们的警觉。未来我们不希望看到这样的灾难在全球频繁发生，但恐怕我们也不得不面对那样的现实！请关注郭文贵先生关于疫苗对世界的警告！
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/001-9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/002-5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/003-2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/004-1.jpg)
+## 放风式度假
+
+视频注：中共国庆旅游乱象，是中共人为制造的拥堵，十亿人同时在一个时间段开始假期。中国大陆普通人在其它时间，并没有选择度假的自由。老百姓的休假、休闲时间少得可怜，只有在中共批准的时间段，才可以像监狱中的犯人一样得到放风时间。
+
+## 反人性的红色宣传
+
+视频注：中共所谓解放全中国大陆人民的历史，都来自于谎言的编造。并且他们特别擅长进行反人性的宣传，以号召大家为了“全体人民”牺牲个体。“把手伸进腹部伤口扯断肠子牺牲”？原始出处描述也只有来自中共的党史文件。
+
+## 无法被监督的执法权力
+
+视频注：城管执法车辆无牌可以随性开？中共执法者的权力只是被自己象征性地虚假监督。所谓”赋予政府权力的人民“却从来没有这个监督执法的权力。行使监督中共权力的个人和团体在大陆会”被消失”。
+
+## 跪舔中共的台湾媒体
+
+视频注：视频中赖岳谦号称是台湾国际政治学者，是中华民国陆军上校。这样的舔共舆论宣传充斥着台湾电视各大平台。媒体社交平台是中共渗透世界制造舆论宣传的利器，台湾新闻媒体早已被中共渗透拿下。
+
+## 中共国人口负增长已不可逆
+
+视频注：中共政权对于出生人口下降的恐惧，缘于其需要更多机会压榨百姓：医疗、教育、劳动力、房地产等等。而中共曾经用“计划生育”对老百姓非人道地残害，以及中共国内经济恶化、民不聊生的现状，即使现在使出浑身解数却已无法逆转出生人口断崖式下跌。
+
+## 虚假的繁荣和真实的剥削
+
+视频注：中共国超高的经济总量和看似发达的城市景象，都是来自对每一个普通中国人的剥削。中共将资源垄断在城市，让人们无奈只能抛下老人和孩子，背井离乡的在虚假繁荣城市中寻求生机。
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-欧金中杀人肯定是不对的，但是每每看到这样被逼无奈之下的绝杀，在内心深处却总也忍不住长舒一口恶气，终于让这些作恶的村干部、村霸们付出了生命的代价。因为欧金中的遭遇每个草根都会感同身受，区别仅在于无助以及被威胁恐吓的程度轻重而已，区别仅在于每个受到强权挤压的草根是在绝望中忍辱偷生还是忍无可忍，终于无需再忍。
+编辑：【英国伦敦喜庄园编辑部】
 
-因为这个社会已经彻底失去了让草根得到公平和正义的机会，所以在忍无可忍之下会出现手刃警察的杨佳，会有隐忍十年而终于手刃杀母仇人的张扣扣，所有这一切归结起来就是一句话——你不给我一个说法，我就要给你一个说法。但是在我要给你一个说法背后那些血淋淋的现实，却总是让我们在长舒一口恶气之后无法释怀，因为让复仇者与作恶者同归于尽，这永远不是我们想要看到的结果。
-
-撰稿：喜马拉雅的肉夹馍
-
-审核：喜马拉雅的馍夹肉
-
-校对：Maarago
-
-（文章内容仅代表作者个人观点）
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

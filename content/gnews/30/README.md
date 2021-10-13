@@ -2,16 +2,16 @@
 ---
 
 
-## 接种过疫苗的达美航空飞行员飞行时猝死 飞机紧急迫降
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1590310/)
+## 马云上周现身香港 与商业合作伙伴会面
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1590371/)
 
-#### 翻译：Evalu
+#### 翻译：坤霆
 校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-54.jpg)图片来源：bcbay
-美国红声传媒（Red Voice Media）10月11日报道，在主持人斯图·彼得斯（Stew Peters）访谈节目中，简·鲁比（Jane Ruby）博士提供了惊人的消息，并经与多方证实，一位已经接种过疫苗的达美航空公司飞行员在过去二周内的某天，于飞行时突然死亡，迫使飞机紧急迫降，而达美公司一直掩盖这个事实。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-56.jpg)图片来源：网络截图
+据路透社10月12日报道，自去年年底中共开始“监管改革”其商业帝国以来，马云基本消失在了公众视野之内。两位消息人士透露，马云上周在香港以吃饭的形式会见了“一些”商业伙伴。
 
-这个周末对于西南航空公司来说也是灾难性的，从周六到周日，他们取消了2100次航班，占该公司总航班的1/4，这就很有意思了：很显然有人在撒谎为什么会发生，在一份声明中，西南航空埋怨天气和空中交通管制问题，但是联邦航空局（FAA）说不是，从上周五至今没有任何空中交通管制，而且如果是因“坏天气”造成航班取消，为什么只影响到西南航空，而其他航空公司没有发生大规模取消现象。在佛罗里达有些雷阵雨，但不是台风，没必要大规模取消航班。
+马云的消息通常来自阿里巴巴，但由于保密限制，消息来源拒绝被透露。
 
-据报告，在佛罗里达杰克森威尔市的空中交通控制中心有人离职以抗议强制疫苗措施，但可能还不止这些。西南航空上周宣布所有人员都必须打疫苗，已有报道有些飞行员正在加入到抵抗强制疫苗的反抗中。
+9月1日，马云参观阿里巴巴及其金融科技子公司蚂蚁金服所在浙江省东部几个农业温室的照片在中国社交媒体上走红。第二天，阿里巴巴表示，到2025年，它将投资1000亿元（155亿美元）来支持“共同富裕”，成为最新一家承诺支持习近平推动的财富分享倡议的互联网巨头。
 
-##### 新闻来源： [Sources: VAXXED Delta Pilot DIES IN-FLIGHT, Emergency Landing Required](https://www.redvoicemedia.com/2021/10/sources-vaxxed-delta-pilot-dies-in-flight-emergency-landing-required/)
+新闻来源：[Billionaire Alibaba founder Jack Ma reappears in Hong Kong – sources](https://www.reuters.com/world/china/billionaire-alibaba-founder-jack-ma-reappears-hong-kong-sources-2021-10-12/)

@@ -2,26 +2,40 @@
 ---
 
 
-## 太疯狂！澳大利亚NSW新州长希望接种率超过90%
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1590223/)
+## 美飞行员反对疫苗强制的视频点击量超过200 万
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1590123/)
 
-翻译：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_1576.jpg)图片：Jenny
-据《Sky News》10月13日报道，新南威尔士州新上任的州长多米尼克-佩罗特（Dominic Perrottet）最新表态，如果该州本周实现了80%的双倍剂量目标，他的内阁将考虑提前放宽一些限制，但他相信12月1日未接种疫苗者的 “自由日 “不会提前。由此可见他将延续前任州长的既定疫苗政策。根据周一的数据，新南威尔士州州16岁以上人口中超过75.2%的人已经完全接种疫苗，90.8%的人至少接种了一剂。
+作者：文一
 
-如果新南威尔士州继续以这种速度推出疫苗，该州应在周日前达到80%的双剂量大关。佩罗特先生说：“内阁将在周四下午举行会议，评估整个州的疫苗接种率，特别是新南威尔士州的地区，以考虑放宽更多限制是否合适。”
 
-总理被问及他是否会考虑将未接种疫苗的“自由日”，12月1日的期限提前，他回答说。他回答说：”不，我们还没有到那个地步”。”我们已经确定了这个日期，我认为这是目标，因为我们显然希望继续推动本州的疫苗接种率，”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
 
-“我们这里领先于全国，也可以说是领先于世界，因为我们州的疫苗接种率和接种速度都很高，但我们想尽一切努力使疫苗接种率超过90%。”
 
-超过90%？这是非常疯狂的数字！
+最近因西南航空公司飞行员抗议疫苗强制政策，导致航班的大规模取消和中断事件引发热议，而一名飞行员描述他为什么反对对航空公司员工进行疫苗强制政策的片段被广泛流传，点击已超过200万次。
 
-新州长的上任一度为NSW州拒绝接种疫苗的人群带来一丝希望，但以上言论令我们不禁担忧，佩罗特先生是否会采用维多利亚州那样激进的手段，通过立法强推疫苗并动用警察大肆镇压反抗者。
+这位名叫肖恩-安德鲁-沃克(Shawn Andrew Walker)沃克飞行员在视频中描述了他如何因为疫苗强制政策，而陷入生计和自由两难选择的境地。他说道：
 
-（本文纯属个人观点，与Gnews无关）
+“这种情形远远超出了健康的范畴。我们身为美国人民，为自由奋斗了257年，并到世界各地传播自由和民主的理念，帮助其他国家和人民争取自由，而我们自己的自由却被剥夺了，”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-7.jpg)
+“你可能认为被强迫戴口罩或接种疫苗不是什么大事。但当你一次次被强制，被剥夺自由时，这就变得极其重要了。”
 
-[原文链接：](https://www.skynews.com.au/australia-news/coronavirus/dominic-perrottet-says-further-restrictions-could-ease-on-monday-but-regional-travel-likely-off-the-cards/news-story/3e923ae555578abf83f9cc5ede28dcb6)
+著名人士坎迪斯-欧文斯（Candace Owens）等也分享了沃克的视频，以证明飞行员对疫苗强制政策的不满并为此抗争。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+著名学者尼-约翰逊更是评论-“这是我多年来看到的最勇敢的一件事。上帝保佑这些飞行员，我们现在需要的英雄，”。
+
+（本文仅代表作者观点）
+
+参考链接：
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+
+新闻访谈终审：Ryan
+编辑/校对/审核：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

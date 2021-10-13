@@ -2,47 +2,39 @@
 ---
 
 
-## 短视频：觊觎外汇和芯片产业，中共国必入侵台湾
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1590450/)
+## 加密货币行业地震：拜登政府加强该行业的监管审查
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1590573/)
 
-#### 翻译：Lish
-听写核对：月映万川
-编辑：文泓
-剪辑字幕：七彩光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/台湾.gif)
-图片来源：Sky news视频截屏
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/shutterstock_1434643079.jpg)图片来源：[eamesBot/Shutterstock.com](https://www.shutterstock.com/image-photo/crypto-currency-background-various-shiny-silver-1434643079)
+#### 整理报道：小红帽
 
-（拿下台湾）不仅会让中共国的军事足迹深入太平洋，也会给它带来巨额的财富。台湾是世界上第六大外汇储备地区。
+一位白宫高级官员表示，拜登政府开始加强对加密货币的监管审查。
 
-屏幕字幕：
+美国国家安全委员会国际经济和竞争力高级主管彼得·哈雷尔（Peter Harrell）表示，政府将采取行动应对新兴行业的一系列风险，同时寻求将美国定位为数字资产创新的领导者。
 
-台湾现金储备：5430亿美元，并为全球提供60%的半导体芯片。
+哈雷尔先生周二在《华尔街日报》风险与合规论坛上说：“你真的看到政府开始了我们所期望的持续和积极的努力，以确保我们了解并解决我们在加密货币领域看到的一系列风险。”
 
-这个岛国提供了世界上大部分的半导体计算机芯片，从洗衣机到尖端武器，半导体计算机芯片对大多数现代制造业产品至关重要，由于美国的背书，台湾才能脱离中共国的魔掌。为什么中共国如此想要拿下台湾呢？
+**拜登政府正在采取措施监管所谓的稳定币****——****一种由国债等安全资产支持的数字货币。监管机构担心，如果大量投资者突然急于赎回这些稳定币，可能会出现相当于银行挤兑的情况。**
 
-台湾是名副其实的“不沉的航空母舰”，中共国可以从这里将军事力量投射到太平洋中部。另外，台湾也向世界展示了，中国人一样可以拥有繁荣和民主。
+与此同时，**美国证券交易委员会主席加里****·****金斯勒****(Gary Gensler)****在演讲中将矛头对准了私人形式的货币，称这些货币****“****没有长期可行性****”****，并承诺其机构将加强监管。**
 
-台湾绝对是一个（上天的）礼物。我的意思是，首先，这是对中共国一党（专制独裁）身份的挑战和意识形态的挑战。但同时，这也有深层次的情感纠葛不断刺激着中南海。
+尽管有人担心过于激进的监管制度可能会将虚拟货币市场转移到海外，并导致美国失去关键情报和金融杠杆，但哈雷尔先生周二的讲话似乎仍对加密货币采取了强硬的立场。
 
-自1949年国共内战以来，台湾从未正式宣布脱离中共国而独立。根据我们专家的观点，如果台湾官方宣布独立，那么这就会马上导致台海战争。如果台湾真的说它想独立，会发生什么呢？
+“我们确实认为加密货币行业有一些潜在的好处，”哈雷尔先生表示，并用金融包容性举例， “但显然加密货币行业存在一系列的风险。”
 
-中共国会入侵（台湾），就这么简单！
+他补充道：“我认为你真的看到政府采取了多种不同的工作方式，以确保我们拥有一个智能有效的加密货币监管系统。”
 
-是的。
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-那些警示中共国对台湾意图的人举出了香港的例子……
+**参考新闻：**[Biden Administration Embarking on ‘Aggressive’ Tack for Cryptocurrency, White House Official Says – WSJ](https://www.wsj.com/articles/biden-administration-embarking-on-aggressive-tack-for-cryptocurrency-white-house-official-says-11634077058)
 
-对于一直警告中共国想要对台湾意图不轨的人来说，香港就是一个实例。在（港共政府）粉碎了香港的民主示威之后，香港现在就等同于被中国共产党接管了。
-
-（文中仅代表作者个人观点，与Gnews平台无关）
-
-视频链接：[War with China: Are we closer than we think? | Under Investigation – YouTube](https://www.youtube.com/watch?v=kA2KaEKs1LA)
-
-**发布：文泓**
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
 **更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

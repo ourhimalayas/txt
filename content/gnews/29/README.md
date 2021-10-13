@@ -2,23 +2,26 @@
 ---
 
 
-## 马萨诸塞州州长启动国民警卫队对学生进行中共病毒测试
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1590311/)
+## 数名 NBA球星或被中共病毒疫苗毁掉职业生涯
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1590372/)
 
-#### 翻译：Grace
+#### 翻译：花岗岩
 校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-66.jpg)图片来源：Bizwyre
-据The Gateway Pundit 网站10月12日报道，美国的马萨诸塞州州长查理·贝克（Charlie Baker）周二宣布，他已经启动国民警卫队来“帮助”学生进行中共病毒测试。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-36.jpg)
+据RedVoiceMedia 网站和《纽约邮报》10月12日报道，中共病毒疫苗可能会毁掉许多NBA球星的职业生涯。
 
-马萨诸塞州州长办公室说，贝克已经启动了该州国民警卫队的450名成员来执行两项任务。一项任务是200名警卫队会“帮助”从幼儿园到12年级的学生进行中共病毒的测试，另一项任务是多达250名的警卫队将被用于弥补惩教署（DOC）的人员短缺。
+亚特兰大老鹰队的前控球后卫布兰登·古德温（Brandon Goodwin） 在接受中共病毒疫苗后不久就出现了血栓，他的赛季在出现血栓后提前结束并被老鹰队解雇，此后一直没有与其他NBA球队签约，很有可能他的职业生涯已经结束。
 
-在与公共安全官员的密切协调下，马萨诸塞州的惩教署继续为可能因不遵守第595号行政命令出现惩教署人员减少做准备，该命令要求所有行政部门的雇员在10月17日前出示中共病毒的疫苗接种证明。
+古德温确信这些血栓是注射中共病毒疫苗的结果，在接受疫苗之前，他的健康状况一直很好，这都是在一个月内发生的。人们试图告诉你，这不是疫苗的问题，你怎么知道呢？你不知道。是中共病毒疫苗结束了我的赛季。百分之一千，古德温说。
 
-贝克在该截止日期前启动警卫队，是为了让警卫队人员可以立即开始具体的工作培训，以及可以在惩教署人员减少的情况下发挥弥补作用。上个月，在校车司机大量短缺的情况下，贝克州长启动了国民警卫队送孩子上学。9月中旬，多达250名警卫队士兵被调去填补人员短缺。由于贝克州长强制执行中共病毒疫苗政策，几十名州警已经辞职。
+另一位布鲁克林网队的球星凯里·欧文（Kyrie Irving）因拒绝注射中共病毒疫苗被其球队拒之门外，不允许其参加球队比赛或训练，直到他接种疫苗。从本质上讲，要么接种疫苗，要么离开。
 
-马萨诸塞州的疫苗接种率在全国排名第五。马萨诸塞州中部最大的卫生系统——UMass Memorial Health的负责人最近出来承认，自从该州的疫苗接种率接近完全达标，达到了应有的 “群体免疫力”后，感染中共病毒的住院人数已经飙升了20倍。
+欧文拒绝遵守纽约市最近的疫苗规定，意味着他不能在巴克莱中心打主场比赛，甚至不能在跨河的对手尼克斯队打主场。如果欧文被限制在纽约以外的比赛中，他可能会错过超过一半的赛季。
 
-**新闻来源****：**
+由于中共病毒疫苗，古德温很有可能结束他的职业生涯，而欧文也会错过大半个赛季。而政府继续告诉我们，疫苗是安全的，但我们却不断听到有人因疫苗而生病的故事，而各俱乐部确试图隐瞒疫苗真相。最近，由于心脏发炎，莫德纳的中共病毒疫苗在美多个县市被停止用于年轻人。
 
-1. [**Massachusetts Governor Activates National Guard to Test School Children For Covid**](https://www.thegatewaypundit.com/2021/10/massachusetts-governor-activates-national-guard-test-school-children-covid/)
-2. [美国接种中共病毒疫苗最多的州感染人数激增](https://gnews.org/zh-hans/1584581/)
+新闻来源：
+
+1.[NBA Star Gets Blood Clots, Says From Jab, Ends His Season, Possibly His Career](https://www.redvoicemedia.com/2021/10/nba-star-gets-blood-clots-says-from-jab-ends-his-season-possibly-his-career/)
+
+2. [Nets still figuring out how to ‘make this work’ with Kyrie Irving](https://nypost.com/2021/10/12/nets-still-figuring-out-how-to-make-this-work-with-kyrie-irving/)
