@@ -2,49 +2,18 @@
 ---
 
 
-## 911系统因缺少人手处于危险之中
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1590540/)
+## FDA：莫德纳加强针不达标
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1590568/)
 
-**作者**：香草山美食部-蓝天大海
+#### 翻译：坤霆
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-22.jpg)图片来源：网络截图
+10月12日，据路透社报道，美国食品药品监督管理局（FDA）周二表示，莫德纳（Moderna）没有达到该机构支持使用其中共病毒疫苗加强针的所有标准。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-2.jpg)
+该公司已要求监管机构批准65岁及以上成年人以及高风险个人的第三轮注射，类似于竞争对手辉瑞 的 mRNA 疫苗获得的授权。
 
+关于加强针所需要的数据主要来自以色列，以色列给大多数人口注射了辉瑞加强针，并向美国顾问提供了第三针的有效性的详细信息。莫德纳或强生疫苗没有类似的现实人群注射后的详细数据。
 
+美国食品药品监督管理局的顾问还将在周五考虑强生单剂量疫苗的加强针。其尚未发布关于这个计划的简报文件。强生公司要求美国食品药品监督管理局授权，人们在首次注射至少两个月后使用加强针。强生公司表示，数据显示高风险成年人应该更早使用加强针，但低风险个人可以从第二次注射中受益。
 
-
-
-据零对冲10月12日报道，美国救护车协会 (AAA) 警告联邦众议院和参议院的议员们，“美国的EMS（Emergency Medical Service ）系统正面临着严重的劳动力短缺问题。这原本是一个已经存在了十多年的长期问题，目前由于拜登政府发布了新的强制接种疫苗的政策，这一问题变得更加严重。这可能破坏我们的紧急情况救助系统。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-56.jpg)图片来源：pixabay
-
-缅因州沃尔多伯勒镇经理朱莉凯泽告诉缅因州新闻中心：“强制疫苗政策导致了急救人员流失。”他们原以为员工会因为害怕失去工作而服从政府，但他们没有想到，急救人员的工资并不高，他们完全可以找到其他有更高薪酬的工作。
-
-反对疫苗强制执行的不仅是急救人员，洛杉矶的数百名消防员也在近日提交了一份通知，准备就强制接种疫苗的命令起诉该市政府。洛杉矶消防队员的律师写道，疫苗接种令是“明显的错误行为”，理由包括干扰就业权利；造成情绪困扰；侵犯宪法隐私权；违反医学实验法中对人体受试者的保护。
-
-而洛杉矶县警长亚历克斯·维拉纽瓦 (Alex Villanueva)则明确表示，他将拒绝执行有关强制疫苗的规定。他说如果这样做，警局将面临失去多达10%警员的风险。
-
-越来越多的急救人员、消防员和警察不接受政府强制疫苗接种的命令，导致离职潮，这毫无疑问会破坏本已脆弱的911系统的有效运行。
-
-参阅链接：
-
-[https://www.zerohedge.com/political/911-system-jeopardy-first-responders-are-not-down-mandated-jab](https://www.zerohedge.com/political/911-system-jeopardy-first-responders-are-not-down-mandated-jab)
-
-***编辑/校对/发稿：遍地开花***
-
-***终审：飞虹***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-3.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-2.jpg)
+原文链接：[U.S. FDA staff says Moderna did not meet all criteria for COVID-19 boosters](https://www.reuters.com/business/healthcare-pharmaceuticals/moderna-seeks-covid-19-vaccine-booster-clearance-older-adults-high-risk-2021-10-12/)

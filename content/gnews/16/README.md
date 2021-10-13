@@ -2,39 +2,81 @@
 ---
 
 
-## 短视频：澳洲成为前线，GTS摧毁让整个社会瘫痪
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1590764/)
+## 樱花灭共段子之我爱发明、来龙去脉、绕口令与逻辑、处处是商机
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1590785/)
 
-#### 翻译：Lish
-听写核对：月映万川
-编辑：文泓
-剪辑字幕：七彩光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/前线.jpg)
-图片来源：Sky news 视频截屏
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-226.png)
+【我爱发明——合成青蒿素】
 
-事实是，澳洲政府对（本土）美军基地发生的事情几乎没有控制权，或者当美国面临战争（中共国袭击）时，也不知道这些美军基地可能会做出什么样的防御决定。
+作者:  灭共段子组战友
 
-屏幕字幕：从理论上讲，松树沟基地是澳大利亚和美国的联合共管设施。事实上，该基地的负责人是美国人，只有1/10的人员是澳大利亚人。基地里有一个秘密房间，澳大利亚人不允许进入。
+一段直播:  有的战友把青蒿粉配成药去救人，这是救人还是害人…青蒿素的合成就好比太空穿针引线…
 
-就是因为美国的资产在澳大利亚的土地上，这是真的，不是吗？那么（美军）可以做出开火的命令？而我们却不知道？
+某聊天室:
 
-绝对的。我们把这些东西称为联合共管设施。但事实是，美国国会议员员比澳大利亚议会议员对这些设施的情况有更多的监管和了解，我们必须认识到我们所处的境地，对于任何社会都可能面临的最重要的问题，即是否参战的问题，很可能最终是（美国）为我们做这个决定。
+跟着郭叔学漂移:  我爱发明，要是这么容易合成青蒿素，屠呦呦女士都该失业了
 
-无论是哪种形式的战争，被认可的未来作战计划就是澳大利亚将会是前线阵地，而这也将是历史上独一无二的。但是，有可能澳大利亚还没来及抵抗就已经国家瘫痪了。
+snow比雪白三分:  一定要好好研究直播内容，这不害人害己
 
-几乎可以肯定的是，在美国和中共国之间的重大冲突中，首先会发生的一件事就是打掉全球贸易服务系统（GTS），这样的目的是使很多依赖该系统的美国军事系统瘫痪，**一旦发生这种情况，你就无法在澳大利亚进行刷卡交易，你就无法在加油站给你的汽车加油。**因为所有这些都依赖于全球贸易服务系统，澳大利亚的经济将在最初几分钟内受到非常严重的影响。在几个星期内，我们很难获得足够的燃料和石油。而我们没有办法避免这一点。
+跟着郭叔学漂移:  青蒿素药物和保健品可不一样，切不可乱用药
 
-因此，确实我们可能会认为这场战争与我们无关并忽略它，但是，事实是，我们根本做不到。你可能对战争不感兴趣，但却一直被战争阴影所笼罩，这就是一个不争的事实。并且我们没有任何办法回避这个问题。
+snow比雪白三分:  据说青蒿素还有其他神奇作用，这是来自上天的礼物！
 
-（文中仅代表作者个人观点，与Gnews平台无关）
+跟着郭叔学漂移:  为屠呦呦女士祈福
 
-视频链接：[War with China: Are we closer than we think? | Under Investigation – YouTube](https://www.youtube.com/watch?v=kA2KaEKs1LA)
+盖特链接: [https://www.gettr.com/post/pd9a13d081](https://www.gettr.com/post/pd9a13d081)
 
-**发布：文泓**
+【来龙去脉 】
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+作者：灭共段子组战友
+
+樱团子：恒大那些投资者因为听信35%收益结果本金都拿不回来，太惨了，打一成语。
+
+樱花君：血本无归？
+
+樱团子：是来龙去脉，投资前是一条龙，走的时候被坑的只剩根筋了。
+
+樱花君：纳尼？！？！我还哪吒闹海呢
+
+盖特链接: [https://www.gettr.com/post/pdedmr1796](https://www.gettr.com/post/pdedmr1796)
+
+【绕口令与逻辑】
+
+作者：灭共段子组战友
+
+樱花君:来段绕口令，能懂不？
+
+樱团子：来
+
+樱花君：why do the protected need to be protected from unprotected by forcing the unprotected to use the protection that didn’t protect the  protected in the first place？
+
+樱团子：说汉语
+
+樱花君：为什么受保护的人需要保护不受保护的人，强迫不受保护的人使用一开始就不保护受保护的人的保护措施呢？
+
+樱团子：什么玩意？！？
+
+樱花君：你打了屁用不管的疫苗，然后逼我也打那不管屁用的疫苗，来保护你？你谁呀？脸咋那么大呢？还要点脸不？
+
+樱团子：早这么整不就完了吗，扯那犊子玩意干哈！
+
+盖特链接: [https://www.gettr.com/post/pdflsw8f7f](https://www.gettr.com/post/pdflsw8f7f)
+
+【处处是商机】
+
+作者：灭共段子组战友
+
+樱花君：如果帅可以当饭吃，我一定富得流油
+
+樱团子：鞋拔子脸就算了吧，你以为你是草根小哥啊，郭叔说女战友墙上都挂的草根小哥
+
+樱花君：他要出一套裸的写真那得赚多少钱啊，我要当个代理商
+
+樱团子：你太有才了，我有小哥whatsapp，咱联系一下…
+
+盖特链接: [https://www.gettr.com/post/pdjpki4e96](https://www.gettr.com/post/pdjpki4e96)
+
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
