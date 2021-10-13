@@ -2,110 +2,74 @@
 ---
 
 
-## 喜交所的开户行是G系列的控股
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1589958/)
+## 西喜时事新闻简报 — 中共国时事篇
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1590056/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl-6.jpg)
-[https://gtv.org/video/id=61656f99d2e2b817487463d8](https://gtv.org/video/id=61656f99d2e2b817487463d8)
+- 编译：西班牙喜悦农场–wenwu
 
-**郭文贵**
-**Miles Guo**
 
-昨天也就是10月6号咱们签署了一家金融机构
-it was October 6th yesterday, we signed the contract with a fi-nancial institution
+您若想了解全文报导内容，请点击标题链接
 
-10%（股权）归我们GTV的投资者所有
-that 10% equity is owned by our GTV investors
+（爱惜生命 远离疫苗）
 
-记住这话，七哥承担责任的，我不告诉你这个机构是什么
-Remember, QiGe(Miles) is responsible for it, I won’t tell you what this organization is
+**1.[中共国发改委通知 这个产业将遭遇“毁灭性”打击](https://news.creaders.net/china/2021/10/12/2407693.html)**
 
-昨天是个大日子，我昨天就在这里问，那个金融机构的其中一个股东
-Yesterday it was a big day, I asked the question here yesterday that one of the shareholders of that financial institution
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-21.png)
 
-他就非要当大股东，我说必须得让我们G系列当大股东
-He wanted to be the major shareholder, I said we must let our G series be the major shareholder
+据《万维网》2021年10月12日电，中共国发改委周二(12日)下发布《进一步深化燃煤发电上网电价市场化改革的通知》，将有序放开电价限制（涨价），高耗能企业市场电价加幅更不设上限；发改委又指，各地要有序推动工商业用户全部进入电力市场，取消工商业目录销售电价；同时亦要优先将低价电源用于保障居民、农业用电，保持居民、农业用电价格稳定；发改委又要求加强煤电市场监管，会同相关部门及时查处市场主体价格串通、哄抬价格、实施垄断协议、滥用市场支配地位等行为。
 
-当时我就说，我是一分股权也没有
-I said at that time, I don’t have any single share of equity
+发改委价格司副司长彭绍宗周二指出：“此次改革，特别强调要保持居民、农业用电价格的稳定，对居民消费价格指数没有直接影响。如果市场交易电价上浮，会在一定程度推高企业特别是上游生产企业用电成本，对工业生产者价格指数有一定推升作用，但改革措施有利保障企业用电需求，促进（企业）平稳生产、增加市场供给，从总体上有利于物价稳定。”
 
-你可以不欢迎我们这些人，还是那句话
-You may not welcome people like us, again
+金融学者司令周二（12）对本台分析：“其实现在她（中共国）希望市场在电供应当中能够起到作用（推卸责任）。如果市场对电的需求量大了，电价会上浮，这个时候煤炭企业、发电企业的利润空间会变大，（在中国持续不放宽西方国家煤炭进口禁令下）可能自己会想一些门路、中共国政府一些想不到的地方，来得到煤炭的来源。”
 
-我们这些都是穷兄弟，对吧
-All of us are the poor brothers, right?
+**2. [将全球供应链迁出中共国？沃尔玛这样说](https://news.creaders.net/china/2021/10/12/2407745.html)**
 
-你这个国家一共多少人，你告诉（我）你国家多少人，是不是
-What’s the population in your country, you tell me what’s the population for your country, right?
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211012_16340651609769.png)
 
-你才1000万人，千百万人嘛，对吧
-your country is about only 10 million people, it’s only several millions of people, right?
+据《万维网》2021年10月12日电，美国零售巨头沃尔玛将供应商务部从中共国迁往印度的消息引起外界广泛关注，并认为这是沃尔玛将全球供应链迁出中共国的兆头；沃尔玛中共国方面在答复媒体询问中指出，这是一种误读。
 
-另外你这个国家多少人，几十万人，虽然你是世界最有钱的国家，最牛的
-In addition, how many people are in your country, hundreds of thousands, although you are the richest country in the world, super rich
+值得一提的是，中共国的沃尔玛供应商务部隶属于沃尔玛总公司，独立于沃尔玛中国，中共国的沃尔玛供应商是无需向沃尔玛中国汇报工作；在另一方面，沃尔玛自1996年进入中共国以来在100多个城市开设400多家超市，但连年亏损，从2016年至今已经关闭近百家门面，还多次传出易主的消息。
 
-但我请问你，作为朋友，如果我们中国人
-But I ask you, as a friend, if we Chinese people
+**3. [美媒：习近平着手审查中国金融机构与私企的关系](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211012-%E7%BE%8E%E5%AA%92-%E4%B9%A0%E8%BF%91%E5%B9%B3%E7%9D%80%E6%89%8B%E5%AE%A1%E6%9F%A5%E4%B8%AD%E5%9B%BD%E9%87%91%E8%9E%8D%E6%9C%BA%E6%9E%84%E4%B8%8E%E7%A7%81%E4%BC%81%E7%9A%84%E5%85%B3%E7%B3%BB)**
 
-有200万到500万高质客户投了你这个国家，结果是什么
-there are 2 million to 5 million high-quality customers have in-vested in your country, what is that result?
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-1-8.png)
 
-他说，那太大了，然后我说你要想跟G系列合作
-He said that’s great, and then I said if you want to cooperate with the G series
+据《法广网》援引《华尔街日报》2021年10月12日电，中央纪委国家监自周一（11日）晚起接连上传了20篇要闻，指已委派巡视组，巡视四大国营资产管理公司、深圳证券交易所、国家外汇管理局、中证监、两家政策银行、中信集团、中投、人民银行、四大国有银行、两大国营保险公司等，并召开巡视党委工作动员会；知情人士表示，习近平正在对金融机构展开新一轮的全面核查，重点是国有银行、投资基金和金融监管机构是否与民营企业之间变得过于亲密，特别是最近几个月受到北京批评的企业，包括负债累累的中共国恒大集团、打车巨头滴滴全球公司和备受瞩目的金融科技公司蚂蚁集团。
 
-我作为一个顾问我建议你，你必须让我们控股
-I, as a consultant, my suggestion to you is that you must let us be the holding shareholders
+在9月26日的巡视工作动员部署会上，中央巡视工作领导小组组长赵乐际称，负责巡视这25家金融机构的人员将深入查找存在的政治偏差；从本月开始，中央纪委国家监人员将在这25家国有金融机构展开巡视，审查其贷款、投资和监管记录，并要求回答与私营企业有关的某些交易或决定是如何做出的；关于牵涉不当交易的个人可能受到中共的正式调查，之后可能会受到指控，同时被发现违规的实体都将受到处罚；财政部（大型国有金融机构的出资人） 的一些官员已经在推动大幅削减25家国有金融巨头的高管薪酬。
 
-而且必须接受(GTV投资者), 他原来是不接受GTV然后椅子
-and must accept our investors, he did not accept GTV original shareholders at first
+建设银行对海航集团的贷款预计将成为新一轮审查的内容之一，如今这家在3000多亿美元的负债中苦苦挣扎的公司正面临中国有史以来规模最大的违约事件之一，而且陈峰等人不久前因涉嫌刑事犯罪被羁押；中共国恒大的主要贷款人之一是金融集团中信集团，该集团目前正在受到审视（上世纪70年代后期，中国最有名的“红色资本家”荣毅仁创立了中信集团，目的是进行资本主义试验）；审查人员还将调查一些国有基金对现在成为习近平科技整顿行动主要目标的民营企业的投资情况，包括主权财富基金中国投资有限责任公司以及大型银行和保险公司运营的基金，并甄别这些投资属于国家利益还是少数人的利益。
 
-就是散户他不接受，
-He doesn’t accept retail investors
+**4. [负债累累的一家中共国房地产公司——花样年的两名董事辞职](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211012-%E8%B4%9F%E5%80%BA%E7%B4%AF%E7%B4%AF%E7%9A%84%E4%B8%80%E5%AE%B6%E4%B8%AD%E5%9B%BD%E6%88%BF%E5%9C%B0%E4%BA%A7%E5%85%AC%E5%8F%B8-%E8%8A%B1%E6%A0%B7%E5%B9%B4%E7%9A%84%E4%B8%A4%E5%90%8D%E8%91%A3%E4%BA%8B%E8%BE%9E%E8%81%8C)**
 
-第二，这些人未来要加一起成为这个金融机构10%的股东
-Second, these people will become 10% shareholders of this finan-cial institution together in the future
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-2-6.png)
 
-他说那是不是按照市值，到时候收购完以后的估值的市值
-He said that is it based on the market value, the market value after the acquisition is completed
+据《法广网》2021年10月12日电，10月初，花样年无法向债权人支付到期的约2.057亿美元（1.77亿欧元）票据；本周一（11日），花样年华集团公司宣布董事会的两名非执行董事辞职；九月底香港股市已经暂停了花样年公司股票的交易，当时正值恒大集团陷入困境后，房地产行业受到蔓延的威胁。
 
-市值，市场价值来买股，我说不可以
-Market value, the future market value when we make transac-tions, I said no
+据财经新闻社彭博社的报道，中共国恒大集团周一未能向债权人偿还约1.27亿欧元的债券。这是三周内恒大的第三次违约，但在宣布违约之前，它有30天的宽限期。第一个宽限期将在10月23日到期。另一方面，花样年华公司原董事之一何敏（Ho Man)表示， 这次的辞职离开，使花样年集团只剩下一名董事。 根据香港证券交易所的规则，任何在港上市的公司必须至少有三名董事。
 
-不管你定价多少钱，我们这些股东，未来要加入进去的
-No matter how much you price it, our shareholders who will join in in the future
+**5. [消息：马云现身香港 蚂蚁集团已卖出持有财新传媒全部股份](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211012-%E6%B6%88%E6%81%AF-%E9%A9%AC%E4%BA%91%E7%8E%B0%E8%BA%AB%E9%A6%99%E6%B8%AF-%E8%9A%82%E8%9A%81%E9%9B%86%E5%9B%A2%E5%B7%B2%E5%8D%96%E5%87%BA%E6%8C%81%E6%9C%89%E8%B4%A2%E6%96%B0%E4%BC%A0%E5%AA%92%E5%85%A8%E9%83%A8%E8%82%A1%E4%BB%BD)**
 
-我带的人未来绝对不能超过1美金（一股）
-The person I bring in the future must not exceed $1 per share
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-3-5.png)
 
-就是你们看到的，我们最好的那个兄弟，不能说名字
-It’s what you see, our best brother, I can’t say his name
+据《法广网》援引《路透社》2021年10月12日电，阿里巴巴集团创始人马云目前正在香港，最近几天曾与商业伙伴会面；在2016年，财新传媒获得来自蚂蚁几图的数千万元D轮投资，如今蚂蚁集团已经从财新股东名单上消失。
 
-昨天说，大哥，拿下了，51控股
-He said yesterday to me, “big brother, done, we got 51% share holdings”
+10月8日，中国国家发改委就《市场准入负面清单（2021年版）》向社会公开征求意见。其内容为，非公有资本不得投资设立和经营新闻机构，包括但不限于通讯社、报刊出版单位、广播电视播出机构、广播电视站以及互联网新闻信息采编发布服务机构等；非公有资本不得经营新闻机构的版面、频率、频道、栏目、公众账号等；非公有资本不得从事涉及政治、经济、军事、外交，重大社会、文化、科技、卫生、教育、体育以及其他关系政治方向、舆论导向和价值取向等活动、事件的实况直播业务；非公有资本不得引进境外主体发布的新闻；非公有资本不得举办新闻舆论领域论坛峰会和评奖评选活动；要坚持国有独资或国有文化企业控股下的国有多元（绝对要“共同富裕”）。
 
-未来GTV老椅子，记住今天说的话，GTV老椅子
-The old GTV shareholders in the future, remember what I said today, the old GTV shareholders
+**6. [香港移民潮缩水；恒大海外债权人的担忧；中共国足球热潮走向消退](https://www.nytimes.com/zh-hans/2021/10/11/world/asia/hong-kong-population-drop.html?_ga=2.255520968.173771731.1634065047-2046083521.1634065047)**
 
-GTV 老椅子，包括后来借项目所有的投资者，新GTV的股权拥有者
-the old GTV shareholders, Including all investors who were in the borrow project later and the equity owners of the new GTV
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-4-5.png)
 
-不会超过一块钱，拥有这家金融机构的股份
-that will own shares of this financial institution with price of no more than one dollar per share
+据《纽约时报》2021年10月11日电，[香港学校生源缩水](https://www.nytimes.com/2021/10/11/world/asia/hong-kong-population-drop.html)，移民潮后果显现。在疫情和政治镇压的双重夹击下，一些居民认定，香港不再是他们希望孩子长大的地方。香港人口去年下降了1.2%，是有记录以来的最大降幅。这一变化也在教育领域迅速显现。官方数据显示，香港小学今年的一年级开班数将比去年减少64个；另有调查发现，有90%的幼儿园存在学生流失的情况。
 
-—————————————————————
-原视频日期：2021/10/07
-任务编号：KC161（2489）
-视频时间段 : 0:00-2:14
+恒大再有三笔款项到期，[海外债权人忧虑重重](https://www.nytimes.com/2021/10/11/business/evergrande-bond-payments.html)。随着更多还款期限临近，恒大海外债权人开始担心，在任何可能的重组中，中共国都会优先考虑国内债权人。他们表示，来自中共国的信息缺乏，包括恒大可能会出售旗下子公司股份的细节。这些债权人正从管理恒大海外债券的开曼法律中，寻求追索权。
 
-**原视频接:**[https://twitter.com/se1y7cblljselva/status/1446411073133764611?s=24](https://twitter.com/se1y7cblljselva/status/1446411073133764611?s=24)
+[中共国足球热潮走向消退](https://www.nytimes.com/2021/10/11/sports/soccer/china-soccer-evergrande.html)？习近平曾誓言要把中共国打造成[“足球超级大国”](https://cn.nytimes.com/china/20170105/china-soccer/)，但这个国家的顶级足球联赛正在面临生存危机。一个无节制支出的时代宣告结束，由房地产公司投资的足球俱乐部财务状况堪忧，数名知名南美球员被欠薪。分析认为，中超联赛的前景并不明朗。
 
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+（文章仅代表作者观点，与**GNEWS**无关）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+* * *
+
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)

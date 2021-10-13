@@ -2,79 +2,20 @@
 ---
 
 
-## 如果我们再不反抗政客，媒体会把全人类当成奴隶
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1590011/)
+## 在路上——035漫画篇
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1590105/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/axqp9-5f9t4.jpg)
-[https://gtv.org/video/id=61656fe4d2e2b817487463ec](https://gtv.org/video/id=61656fe4d2e2b817487463ec)
+![](https://assets.gnews.org/wp-content/uploads/2021/06/专栏图.jpg)
+**第一次接触到漫画影视应该是八十年代初期迪士尼出品的《米老鼠和唐老鸭》，也是第一次知道原来动画片还可以这样夸张、诙谐幽默和异想天开，把生活中的点滴通过简单线条勾勒的小动物表达的淋漓尽致，让人捧腹大笑、忍俊不禁。记得在每晚的****6:30****到****7:00****之间播放，然后紧接着就是枯燥的新闻联播。可能是前后对比太明显了，以至于很多年后都还记得此事。这半个小时可是我每天最最快乐的时光了，常常是随着剧中情节夸张地手舞足蹈，快乐原来就是这么简单。以至于在很长一段时间，我都夸张的认为在现实中有动画片里面一样的动物和世界，他们就是那样生活的。**
 
-**郭文贵**
-**Miles Guo**
+**后来再遇到的漫画好像都没有原来那种兴奋地酣畅淋漓，也可能对第一次遇到的事物印象最为深刻吧。由于喜欢画画，尤其是喜欢色彩和优美线条的和谐之美，因此对好的漫画作品也爱不释手。只要自己有空闲，基本上泡书店，首先找的当然是漫画书，学生时代那是真泡啊，恨不得把整部书印到脑子，都是在老板多次催促下恨恨离开；参加工作后，能买的起书了，反而很少再像以前那样泡书店了，都是网购成套的以前想买而买不起的漫画，然后就没有后来了。看着成套的书籍摆在角落里布满灰尘，有时候在想还是回到以前如饥似渴的年代好，可是我内心又是那么畏惧有一天我回到那个年代，人总是在努力变成自己痛恨的样子，当然这一切想法都是自作多情的庸人自扰。**
 
-这个疫苗灾难，将对经济造成多大的危害
-How much harm will this vaccine disaster do to the economy？
+**由喜欢漫画，所有涉及的动画、影视，爱屋及乌好像都喜欢，即使现在人到中年了，还是乐此不疲，比如迪士尼出品的动画片、很多法语动画片和蔡志忠漫画等等。最幸福的事情就是和孩子一起看动画片，觉得自己也成了孩子，好像也回到了以前，也会和他们一起夸张地手舞足蹈。以前小孩学语言，把能想到的办法都用上了，还是差强人意。结果有一次一起看了一部动画片，他超级喜欢，平时作业写完的时候，他都要再次观看以作为奖励，一来二去，不到几周时间他居然能把整部电影基本背了下来。当然语言的学习一下子有了突飞猛进地质变，同时也找到了适合自己的学习方法。想想说是意外之喜也是情理之中，专注在真心喜欢的事物上，这可能是成功的捷径吧。**
 
-美国政府它现在还搞什么烂帐，什么债务，还跟共产党勾兑
-The U.S. government is still doing bad debts, debts problem, and collusion with with the Communist Party
+**一定要说为什么喜欢漫画，我想漫画很多时候是对生活的淬链，通过简单的几笔勾勒的场景，让我们迷途知返，不被妄念牵引而迷失自我；又让我们举重若轻，一下就找到主要矛盾。**
 
-还要挺股市，你觉得能吗？
-Do you think it still can support the stock market?
+**本来就是一场戏，认真角色，不认假成真，越相信因果就越好运、轻松自在，当下就越精彩，哈，看戏的原来就是演戏的。这样说来人生就是一部漫画。**
 
-纽约派去1500个国民部队接管医院
-New York sends 1,500 national guards to take over the hospital
+**七哥一路上嬉笑怒骂，苦口婆心，一切如沐春风，又浑然天成；每天念念不忘，必有回响，真心直心，你心我心，心心相印新中国联邦！**
 
-你觉得1500人能把纽约疫苗问题解决吗？
-Do you think 1,500 people can solve the New York vaccination problem?
-
-澳大利亚那个流氓政府要把所谓的联合国部队派进去
-The rogue Australia government wants to send in the so-called UN troops
-
-你能把澳大利亚人都按在地上打针吗？
-Can you put all Australians on the ground for injections
-
-你从这一系列的疯狂的行动能看出来
-You can see from this series of crazy actions
-
-就是这个世界不把共产党灭了，人类就完了
-If this world does not destroy the Communist Party, mankind will be over
-
-还有一个人类也必须付出代价，
-Another one is human beings must pay the price for this
-
-人类不付出代价, 新闻自由没了，法律独立性没了，
-Human beings don’t pay the price, the freedom of the press has gone, the independence of the law has gone
-
-政客这帮流氓，把整个全世界人民全当奴隶了
-The gang of politicians have taken the entire people of the world as slaves
-
-如果人类再不去反抗，那就是这个结局了
-If human beings don’t resist and that’s the end
-
-你觉得现在以(疫)苗灭共，七哥(说得)有道理吗？
-Do you think it makes sense to use the COVID vaccine to elimi-nate the communist party now?
-
-以苗灭共有力量吧，谁能停止这个
-It is powerful for using vaccine to eliminate the communist party, right? Who can stop it?
-
-如果不以苗灭共，你说这个人类将走向何方
-If we can’t use vaccine to eliminate the communist party, then where is humanity heading?
-
-————————————————————
-
-**原视频接:**[https://twitter.com/se1y7cblljselva/status/1447535948602896389?s=24](https://twitter.com/se1y7cblljselva/status/1447535948602896389?s=24)
-
-原视频日期：2021/10/10
-任务编号：KC162（2504）
-视频时间段 : 0:00-1:16
-Date:10/11/2021
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**编审：文敏**

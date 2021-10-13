@@ -2,45 +2,18 @@
 ---
 
 
-## 为防范中共海上霸权，美日印澳展开联合军演
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1589908/)
+## 英国官方&#8211;完全接种中共病毒疫苗者之免疫力将恶化殆尽！
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1590021/)
 
-作者：纽约香草山农场 – 四季
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/AID-2.jpg)图片来源：theexpose
 
 
+英国知名自由媒体《每日揭秘》（THE EXPOSE）10月12日刊文称，根据英国公共卫生部有关COVID19感染病例数据及该病毒疫苗接种效果的监测统计结果表明，与未接种者相比，完全接种该疫苗的个体正产生“获得性免疫缺陷综合症”。
 
+该政府官方报告的数据显示，目前40-70岁的双剂量COVID19疫苗接种者已经失去了约40%的人体正常免疫系统能力，而且该能力正以每周5%左右的速度递减并恶化。如果按此比例推算，那么预计到今年底，30-50岁的该疫苗接种者的免疫力将退化殆尽，并对所有病毒和癌症的抵抗力为零。而所有30岁以上的完全接种者，也将在明年3月前丧失其免疫系统能力。
 
+该报告最后指出，尽管辉瑞公司声称其COVID19疫苗的有效率为95%，但以上各项统计数据表明，该疫苗的有效率不仅会随时间的推移下降至零，更严重的是，它将逐渐损害接种者的免疫系统直至其彻底崩溃。可以肯定，30岁以上的接种者处于比其接种该疫苗前更危殆的状态。
 
-据[美国之音](https://www.voachinese.com/a/quad-naval-exercise-20211012/6267058.html)10月12日报道，美国、日本、澳大利亚和印度周二开始在孟加拉湾展开2021年度马拉巴尔（Malabar) 年度军演的第二阶段演习，以谋求在第一阶段的基础上进一步提升四国海军的协同作战能力，并聚焦先进的水面舰和反潜作战演练。
+（以上内容仅代表原文信息和作者个人观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1190.jpg)美日澳印2020年马拉巴尔联合军演(美国海军照片）
-
-马拉巴尔年度军演被视为四方安全对话机制Quad的联合军演，目的是遏制中共国的恶意扩张。四国海军今年8月在美国关岛附近实施了第一阶段的演习。
-
-四国的官员们表示，中共国在该地区行事日益强硬，使得四国需要联手保护自己及其盟友不受中共的“剥削、腐蚀和胁迫”。
-
-中共近日威胁要孤注一掷攻打台湾，台海局势日益严峻，只有国际社会联合起来，才能遏制中共的野心。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+[原文链接：](https://theexpose.uk/2021/10/10/comparison-reports-proves-vaccinated-developing-ade/)

@@ -2,35 +2,51 @@
 ---
 
 
-## 德克萨斯州长全面禁止疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1589534/)
+## 川普总统：在我的政府治下中共不敢威胁台湾
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1589769/)
 
-作者：在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-德州州长格雷格·阿博特（Greg Abbott）11日发布行政命令，全面禁止疫苗强制接种令，包括近期拜登政府对企业及员工下达的疫苗行政令。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-7.jpeg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/T-4.jpg)salten.cz
+听完文贵先生爆料拜登给中共写保证书，眼见无能老儿拜登对邪共无度的委曲求全，恨由心生，怒从肝起，也不由得恋念当初不争气的川普总统。看到《新闻纵横》（news max）10月11日的一篇文章，“川普说，在我的政府治下，中共不敢威胁台湾”，这个我真信！
 
-该命令标志着重大的转折，阿博特呼吁州议会将类似禁令纳入法条中，扩大对新冠疫苗强制性规定的打击面。阿博特称，人们享有自由选择权、宗教豁免和医疗自主权，私营企业决不接受被政府代表和强迫。目前德州立法机关正在进行第三次特别会议，该会议将于10月19日结束。
+全文如下：
 
-德州官员和人民一直在反抗霸凌政策的前线作战。8月25日，在FDA全面批准辉瑞毒针的第二天，阿博特就宣布行政令，禁止政府在德州强制推行新冠疫苗；并于9月初颁布《堕胎法案》努力阻止由大制药厂主导的暴力堕胎产业链，违反法规的诊所和医师将被起诉。辉瑞疫苗生产或检测过程中使用的肾细胞已是多年的事实，而HEK293细胞来自健康人类胚胎。
+川普总统表示，如果他还在白宫，中共不会威胁台湾。
 
-当前全世界处于深层超限战当中，爆料革命不间断的揭露病毒和疫苗真相，许多政府和组织开始严肃对待疫苗所带来的伤害和死亡问题。
+星期六（10月9日）晚上在爱荷华集会上台之前，川普被《新闻纵横》的约翰·巴赫曼（John Bachman）问到中共习近平主席誓言要实现台湾“统一”（的问题）。
 
-(本文仅代表作者观点)
+川普总统对巴赫曼说：“我非常了解他，我可以告诉你，在我的四年里，他从未谈论过（接管台湾）。如果我们现在白宫，他就不会谈论这件事了。”
 
-参考链接：[下令禁止企業強制接種疫苗 美德州州長：必須自願接種](https://news.ltn.com.tw/news/world/breakingnews/3700894)
-[Texas Gov. Greg Abbott bans any COVID-19 vaccine mandates — including for private employers](https://www.texastribune.org/2021/10/11/texas-greg-abbott-covid-19-vaccine-mandate/)
+“他看到了拜登的弱点，他看到了阿富汗灾难，他看到了那里发生的一切，甚至是不可想象的，13名难以置信的年轻战士，他们的生命因为政府无能而丧生，他们的无能非常严重。先撤军再撤民和放弃价值850亿美元的装备——世界上最好的装备——这是一种耻辱。”
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+川普补充说，中共并不是唯一目睹拜登总统搞砸了美军从阿富汗撤军的外国势力。
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
+川普说，“当习主席和俄罗斯总统弗拉迪米尔·普京和其他人都在看这件事时，他们完全失去了对我们国家的尊重。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+周六（10月9日）晚上，这位前总统在得梅因（Des Moines）的爱荷华州集市广场（the Iowa State Fairgrounds）上发表了创纪录的讲话。
+
+川普总统上周发表声明说，“我们很可能最终与不再尊重美国的中共国开战。”
+
+川普总统周三（10月6日）在一份声明中说：“中共和俄罗斯已经在对（留在阿富汗的）军事装备进行了逆向工程以便他们能够自己制造。”
+
+“正在摧毁我们国家的激进左翼民主党人唯一擅长的就是操纵选举和犯罪活动，同时总是通过腐败的检察官和起诉来指责另一方，我们的国家陷入了大麻烦，我们最好快点行动！”
+
+台湾总统蔡英文周日（10月10日）表示，台湾不会“屈服于中共的压力”，中共在几天内派出约150架次战斗机飞越了台湾领空。
+
+“我们对两岸关系的立场不变：我们的善意和承诺都不会改变。”蔡英文在台湾庆祝国庆节时说。
+
+（全文完）
+
+川普总统这是接受了文贵先生的忠告，发出了这样的声明，“我们很可能最终与不再尊重美国的中共国开战。”更重要的是通过文贵先生和自己的亲身经历发出了呼吁，“我们的国家陷入了大麻烦，我们最好快点行动！”
+
+感觉川普总统这两天都在看文贵先生的直播，意识到了中共对台湾要有动作，美国司法腐败很严重！
+
+川普总统终于有点开悟了，知道谁是最邪恶的了，那就是中共！不将其铲除，当下都难保，美国永远没有未来。
+
+（文章仅代表作者个人观点）
+
+原文链接：
+
+[https://www.newsmax.com/politics/trump-china-taiwan-xi-jinping/2021/10/11/id/1040001/](https://www.newsmax.com/politics/trump-china-taiwan-xi-jinping/2021/10/11/id/1040001/)

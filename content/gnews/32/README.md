@@ -2,29 +2,110 @@
 ---
 
 
-## 产煤大省晋陕遭遇罕见暴雨，或提前引爆全球经济危机
-` 军迷wilson` [轉載自GNews](https://gnews.org/zh-hans/1589881/)
+## 喜交所的开户行是G系列的控股
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1589958/)
 
-#### 加拿大多伦多枫叶农场 军迷Wilson
-![20180715中國；陝西；甘肅；四川；豪雨；水災– 水利災害應變學習中心](https://llc.wcdr.ntu.edu.tw/wp-content/uploads/2019/12/a21c.jpg)图片来源于网络
-综合媒体报道， 中共国庆放假期间的10月1日至7日，山西省和陕西省连降暴雨，其中山西的降水量是往年的3倍多。而两省被雨水严重浸泡的地区刚好是中共国的主要产煤区，2020年两省原煤产量占到全国总产量的45.36%，因此，中共国的电荒将因此迅速恶化。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl-6.jpg)
+[https://gtv.org/video/id=61656f99d2e2b817487463d8](https://gtv.org/video/id=61656f99d2e2b817487463d8)
 
-这一次暴雨晋陕两省人民蒙受了重大损失，还将使国内限产限电在一段时间内成为常态化，这将导致工商业大面积倒闭和失业人数大幅增加，囯内矛盾趋于激化，对国际市场也将造成巨大的冲击。
+**郭文贵**
+**Miles Guo**
 
-短评：气象学家认为，最近频发的极端气候现象，是因为大洋环流这个地球空调因地球变暖而动力下降、功能异常所致，这种极端天气现象以后将更加频繁和严重。清华大学社会学系主任孙立平感叹，几亿年甚至几十亿年才形成的这一点化石能源，人类在不到100年内就几乎挖尽烧尽，很难说气候危机不是冥冥注定中的一种报应。
+昨天也就是10月6号咱们签署了一家金融机构
+it was October 6th yesterday, we signed the contract with a fi-nancial institution
 
-石油天燃气、芯片、煤炭、粮食是当前中共国高度依赖进口的几种大宗商品，每年需要近一万亿美元的外汇。由于中共病毒疫情破坏了以上商品的全球供应链，加上冬季临近，国际能源价格飚升将带动以上几种大宗商品价格快速上扬，会极大稀释中共国持有外汇的国际购买力，从而对国内制造业再次形成致命打击。
+10%（股权）归我们GTV的投资者所有
+that 10% equity is owned by our GTV investors
 
-如果中共的制造业崩溃了，房地产也会马上崩溃，中共国的房地产商的美元债有大约一万亿美元，房地产崩盘后这些美元债就不用还了。
-![大战将至，美国大萧条和1929-1933年世界经济危机——美国简史- 资讯咖](https://p2.pstatp.com/origin/pgc-image/0b8653d897e84758a07fb0c3688709dd.jpeg)图片来源于网络
-几十年来的全球化，全世界和中共囯在经济、金融领域已经高度融合。中共国的一般商品出口占到全球总出口量的50%，而全国60%以上用电依靠煤炭发电，当煤炭短缺导致电荒加剧时，制造业将大面积休克停产，全世界特别是发达国家就会出现商品供应短缺引起的激烈通胀，大宗商品市场就会出现严重的供需失衡，全球性的金融泡沫破灭和经济危机极有可能被提前引爆。
+记住这话，七哥承担责任的，我不告诉你这个机构是什么
+Remember, QiGe(Miles) is responsible for it, I won’t tell you what this organization is
 
-当国内全面危机临近火山喷发状态时，中共肯定将内部危机转移、外溢到台湾、印度和西方身上，这是台海、中美必有一战的底层逻辑之一，不管拜登政府如何跪拜习大神，都不能改变这个宿命，而晋陕两省的暴雨只不过将“终极之战”往前推进了一大步而已。
+昨天是个大日子，我昨天就在这里问，那个金融机构的其中一个股东
+Yesterday it was a big day, I asked the question here yesterday that one of the shareholders of that financial institution
 
-参考来源：
+他就非要当大股东，我说必须得让我们G系列当大股东
+He wanted to be the major shareholder, I said we must let our G series be the major shareholder
 
-[时寒冰：关注山西和陕西的灾情真的很重要](https://mp.weixin.qq.com/s/zy-3O5Xk4WsudTxKIKuS9Q)
+当时我就说，我是一分股权也没有
+I said at that time, I don’t have any single share of equity
 
-[媒体聚焦山西暴雨洪灾：“心疼一下山西人吧”](https://news.sina.com.cn/c/2021-10-11/doc-iktzqtyu0708374.shtml)
+你可以不欢迎我们这些人，还是那句话
+You may not welcome people like us, again
 
-（文章仅代表作者观点，与GNEWS无关）
+我们这些都是穷兄弟，对吧
+All of us are the poor brothers, right?
+
+你这个国家一共多少人，你告诉（我）你国家多少人，是不是
+What’s the population in your country, you tell me what’s the population for your country, right?
+
+你才1000万人，千百万人嘛，对吧
+your country is about only 10 million people, it’s only several millions of people, right?
+
+另外你这个国家多少人，几十万人，虽然你是世界最有钱的国家，最牛的
+In addition, how many people are in your country, hundreds of thousands, although you are the richest country in the world, super rich
+
+但我请问你，作为朋友，如果我们中国人
+But I ask you, as a friend, if we Chinese people
+
+有200万到500万高质客户投了你这个国家，结果是什么
+there are 2 million to 5 million high-quality customers have in-vested in your country, what is that result?
+
+他说，那太大了，然后我说你要想跟G系列合作
+He said that’s great, and then I said if you want to cooperate with the G series
+
+我作为一个顾问我建议你，你必须让我们控股
+I, as a consultant, my suggestion to you is that you must let us be the holding shareholders
+
+而且必须接受(GTV投资者), 他原来是不接受GTV然后椅子
+and must accept our investors, he did not accept GTV original shareholders at first
+
+就是散户他不接受，
+He doesn’t accept retail investors
+
+第二，这些人未来要加一起成为这个金融机构10%的股东
+Second, these people will become 10% shareholders of this finan-cial institution together in the future
+
+他说那是不是按照市值，到时候收购完以后的估值的市值
+He said that is it based on the market value, the market value after the acquisition is completed
+
+市值，市场价值来买股，我说不可以
+Market value, the future market value when we make transac-tions, I said no
+
+不管你定价多少钱，我们这些股东，未来要加入进去的
+No matter how much you price it, our shareholders who will join in in the future
+
+我带的人未来绝对不能超过1美金（一股）
+The person I bring in the future must not exceed $1 per share
+
+就是你们看到的，我们最好的那个兄弟，不能说名字
+It’s what you see, our best brother, I can’t say his name
+
+昨天说，大哥，拿下了，51控股
+He said yesterday to me, “big brother, done, we got 51% share holdings”
+
+未来GTV老椅子，记住今天说的话，GTV老椅子
+The old GTV shareholders in the future, remember what I said today, the old GTV shareholders
+
+GTV 老椅子，包括后来借项目所有的投资者，新GTV的股权拥有者
+the old GTV shareholders, Including all investors who were in the borrow project later and the equity owners of the new GTV
+
+不会超过一块钱，拥有这家金融机构的股份
+that will own shares of this financial institution with price of no more than one dollar per share
+
+—————————————————————
+原视频日期：2021/10/07
+任务编号：KC161（2489）
+视频时间段 : 0:00-2:14
+
+**原视频接:**[https://twitter.com/se1y7cblljselva/status/1446411073133764611?s=24](https://twitter.com/se1y7cblljselva/status/1446411073133764611?s=24)
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

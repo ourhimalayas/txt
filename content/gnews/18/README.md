@@ -2,63 +2,41 @@
 ---
 
 
-## Arooj Imtiaz Lughmani接种辉瑞疫苗副作用自述
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1590028/)
+## 真没想到，美国竟然衰到如此地步
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1590129/)
 
-关键字：辉瑞疫苗 疫苗副作用  爱尔兰 焦虑症 抽搐 癫痫
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Lily2.jpg)图片来源：NY Times
+**作者：**顺其自然
+**编辑/导读：**守望黎明
 
-Arooj Imtiaz Lughmani -辉瑞疫苗2021年9月10日
+【**导读：**根据文贵先生的爆料，拜登政府卑躬屈膝，不惜出卖长期的盟友台湾，只求获得习近平的继续购买美国国债并稳住中共国房市的承诺。引领人类前行大半个世纪的美国，其领导人竟然堕落成如此卑劣无耻、鼠目寸光，让人惊诧不已！但是，中美首脑无论如何勾兑交易，都挡不住两国经济的双双垮塌，两国社会也会历劫重生，铲除弊端和邪恶，扬弃旧有的社会体系，获得新生。】
 
-Arooj Imtiaz Lughmani – Pfizer 10th September 2021
+郭文贵先生10月10日的直播中讲到，为了在中期选举前获得中共国的援手、保住美国经济不崩塌，拜登低三下四写信向习近平承诺尊重一中政策，为中共打台湾放水。不由心中生出一种强烈的感觉——没想到美国竟然衰败到了如此程度。
 
-严重不良反应（副作用）:辉瑞疫苗接种后10分钟开始-强直性阵挛发作，发出滴答声，震颤和言语含糊
+美国政治的腐化和国力的下降，人们这些年都有感觉。但是没想到竟然堕落到如此地步，毫无尊严地跪求中共。就为了求中共国继续购买美国国债，为了让中共别把房产泡沫捅破拖累到美国股市，拜登不仅摇尾乞怜，还把台湾这个多年的盟友廉价出卖了。
 
-Severe Adverse Reaction: Started 10 Minutes after Pfizer Vaccine – Tonic Clonic Seizures, Ticks, Tremors and Slurred Speech
+美国之所以能成为人类有史以来最伟大的国家，第一个原因是“美国没有受到欧洲旧制度的毒害”。就在于它借鉴并发展了英国的光荣革命后，限制君权的君主立宪体制，在独立战争结束了殖民统治后，建立起了以“个人自由和权利”为根本价值的三权分立的伟大共和制度。从欧洲逃过来的革新派新教徒们，白手起家创建一个全新国度。没有政教合一的教会权威；没有王公贵族；没有盘根错节的利益集团；没有认定“富人进天堂比骆驼穿针眼还难”的仇富倾向；没有“根深蒂固的对商业活动的厌恶”，使美国从立国之初就是个气象一新的国家。还有一点是建国先贤用《独立宣言》确立了美国的基本精神和价值，那就是国家以保护个人权利和自由为根本，而不是强化政府的权力。这种以民为本的国策奠定了美国社会的根基。
 
-[原文链接：](https://nomoresilence.world/pfizer-biontech/arooj-imtiaz-lughmani-pfizer-severe-adverse-reaction/)
+我认为还有一点就是美国抓住了一战、二战的机遇，极大地提升了国力，这一点不可否认。再有就是美国大量接受全世界的移民，各路精英纷至沓来不断为美国补充新鲜血液，带来了科学、技术、文化的进步，也带来了开拓、进取的精神。美国很多大名鼎鼎的人物都是外来移民，远的有来自欧洲的爱因斯坦、特斯拉，近的有鼎鼎大名的来自南非的马斯克。
 
-Arooj Imtiaz Lughmani的自述：
+然而，从奥巴马执政时代，美国的社会主义味道越来越浓，热衷大政府、高税收、高福利、高预算的政策。政府高税收打击富人投资生产的积极性，花钱养懒人造就了一大批吃政府福利的阶层。还有中共这么多年来的对美国的蓝金黄侵蚀，也是一个非常重要的原因。中共和美国华尔街和各方大佬的勾结，成功地加速了美国制造业外移，加速了美国的衰落和腐败。应该说是美国内部的利益集团和中共合谋掏空了美国。
 
-Arooj Writes:
+上世纪四五十年代制造业发达的时候，美国的工程师是最吃香的。你看看这些年，所有的西方国家优秀的人都抢着争着去做律师和医生，就说明制造业已经衰落的不行了。再有就是去做大学老师。如此一来，美国的利益集团就不只是上边儿那一小撮控制世界政治经济的大佬了，政府雇佣的各种文职人员、各种公务员、大学老师，他们坐在自己的位置上，是现行政策的受益者，自然喜欢大政府，高税收，高福利的，也是民主党的大票仓。
 
-我是一名五年级的医科学生，我本来非常健康，但因为辉瑞疫苗，我失去了协调能力，无法行走。
+再说一下西方国家的各种基金大量投资中国的问题。当然他们是为自己谋取利益，一方面为了那5%的管理佣金；另一方面也为了升值获利。目前美国可以投资的实业越来越少，除了那几个顶尖的互联网高科技企业和军工企业之外，大部分的劳动密集型的制造业企业都已经搬离美国了。然而，天真的西方基金管理人们不会想到，中共统治下整个社会从上到下都玩假骗偷的把戏，他们的投资项目各个报表光鲜亮丽，实际上都是靠假账支撑的纸面上的财富。连海航、恒大这样最顶级企业都是早已掏空的花架子，还会有哪家企业是货真价实的优质企业呐？
 
-I’m a 5th year medical student and I was perfectly fine, but I’ve suffered an allergic reaction to the Pfizer Vaccine which has left me with no coordination and inability to walk.
+现在美国包括养老基金、退休退伍基金，教师工会等基金全部被拖入到中共国的投资当中了，一旦中共国这些企业爆雷，这些基金也就全玩儿完了，连带着把美国整个金融系统拖垮，这是美国现政府无论如何不愿看到的局面。
 
-我的神经科医生一直说发生这种情况是因为我曾经历过巨大的创伤，这些创伤都留在了我脑子里，所以我成了这样。但即使他说的是对的，为什么我没有得到针对性的治疗？什么时候痛苦成了我康复计划的一部分了？
+面对危局，拜登政府的卑躬屈膝只是想着稳住中共，配合他一同演戏，为摇摇欲坠的经济注射强心针。但老年痴呆的他不会想到，中共经济本身已经千疮百孔，随时可能倒下。习近平拿什么继续购买美国国债，又有什么办法维系住窟窿天大的中共国房地产行业？中美经济双双崩盘已经是板上钉钉的事情，只是时间问题。史诗般的巨大经济危机必定导致中美两国乃至整个世界的政治危机，从而引发人类政治经济体系的解体重构，凤凰涅槃。人类一定有能力痛定思痛、兴利除弊，实现社会的大重启。中共那一类专制邪恶的政权，也将统统被送入历史垃圾堆。
 
-I am constantly gaslighted and manipulated by my neurologist who says this is happening because I have been through a huge trauma and it is all in my head. EVEN IF IT IS, WHY AM I NOT GETTING SYMPTOMATIC RELIEF TREATMENT?! When has suffering become part of a recovery plan in the HSE?
+**YOUTUBE频道链接：**[闲聊澳洲](https://www.youtube.com/watch?v=rg1k9m2mi7I)
 
-自从我开始服用氯硝西泮后，我的癫痫、抽搐、震颤和言语不清都停止了。 但昨天一天我都在痛苦中度过，早上的一次发作，护士竭尽所能地控制住了，但接着是一整天的抽搐和震颤，最后变成了强直–阵挛性癫痫。尽管我被注射了镇静剂和肌肉松弛剂，但还是发生了这种情况，真不开心。真不知道自己身体发生了什么。我还是觉得很痛，还是不能走路，还是呼吸不到新鲜空气。 真希望有奇迹发生。
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-Ever since I started Clonazepam, my Seizures, Ticks, Tremors and Slurred Speech stopped – but yesterday I spent in agony, an episode in the morning that the nurses controlled with whatever they could give me, followed by a day of ticks and tremors that eventually became a Tonic Clonic Seizure. I’m not happy that this happened despite being sedated and on muscle relaxants. I don’t know what is going on anymore. Still in pain still can’t walk, still haven’t breathed fresh air, still hoping for a miracle.
+*发布：翼族*
 
-我觉得我快要死了。 真不想让别人也经历我正在经历的这些。我一直想成为一名医生，成为一名能帮助人的医者。我不知道这种生活还能持续多久，但我尽力想让人们意识到疫苗的副作用是真的。
-
-I feel like I’m going to die and I don’t want anyone else to go through what I am going through. I always wanted to be a doctor, to be a healer, to help people. I don’t know how much longer of this life I have left, but I’m doing my best to make people aware that the side effects are REAL.
-
-我一直很疲惫，我的腿感觉就像有人在用刀子扎它们，就是这样痛。
-
-I’m constantly exhausted, my legs feel like someone is sticking knives into them, that’s how bad it is.
-
-对于所有给我发信息和评论说我在演戏的人，我真希望我在演戏。我比以往更需要人们为我祈祷。家人因此而处于巨大的痛苦之中，我已经一个多星期没有见到妈妈了，因为想向她隐瞒我的病情，她患有严重的焦虑症。
-
-For all the people who have been sending me messages and comments stating ‘it’s acting’, I honestly wish it was. I need your prayers more than ever. My family is in immense pain I haven’t seen my mom in over a week because we are trying to hide the severity from her, as she has severe anxiety.
-
-爱尔兰卫生局真让人失望。我父亲，一个在一线工作了30多年的人，不得不看着他的女儿死去，因为没人在乎疫苗是否有后遗症。
-
-The Irish Health Service has failed us. My father, a frontline worker for over 30 years, has to watch his daughter die because nobody cares.
-
-我一直对接种疫苗感到无比兴奋。 即使在我身上发生了这么多事，我也并不反对接种疫苗，我担心的是缺乏与新冠疫苗有关的此类症状的记载，在医学上这几乎是比80年代艾滋病更糟糕的耻辱。我的疫苗副作用是在第一次接种后差不多10分钟开始的，当时我在专门的疫苗接种后的观察室里填写调查表，然后感到手臂的痉挛。医生们却不愿意承认这些是疫苗造成的。
-
-I was incredibly excited to get my vaccination – I’m not against the vaccine, even after all that is happening to me. But my concern is, the lack of documentation of such symptoms related to Covid Vaccines – almost a stigma worse than AIDS in the 80’s. The doctors do not want to admit that the Vaccine caused this when my reactions started almost 10 minutes after my first vaccination, while I was in the post-vax waiting room, filling out a survey and felt my arm’s spasm.
-
-各位，还有英国和爱尔兰，请以我为鉴吧。
-
-Please educate yourselves, the UK & Ireland.
-
-* * *
-
-翻译，校对：【Chloe蔻依】 剪辑，字幕：【   36CIA  】
-
-*发布：Theodosia*
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
