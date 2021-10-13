@@ -2,26 +2,49 @@
 ---
 
 
-## 数名 NBA球星或被中共病毒疫苗毁掉职业生涯
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1590372/)
+## 911系统因缺少人手处于危险之中
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1590540/)
 
-#### 翻译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-36.jpg)
-据RedVoiceMedia 网站和《纽约邮报》10月12日报道，中共病毒疫苗可能会毁掉许多NBA球星的职业生涯。
+**作者**：香草山美食部-蓝天大海
 
-亚特兰大老鹰队的前控球后卫布兰登·古德温（Brandon Goodwin） 在接受中共病毒疫苗后不久就出现了血栓，他的赛季在出现血栓后提前结束并被老鹰队解雇，此后一直没有与其他NBA球队签约，很有可能他的职业生涯已经结束。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-2.jpg)
 
-古德温确信这些血栓是注射中共病毒疫苗的结果，在接受疫苗之前，他的健康状况一直很好，这都是在一个月内发生的。人们试图告诉你，这不是疫苗的问题，你怎么知道呢？你不知道。是中共病毒疫苗结束了我的赛季。百分之一千，古德温说。
 
-另一位布鲁克林网队的球星凯里·欧文（Kyrie Irving）因拒绝注射中共病毒疫苗被其球队拒之门外，不允许其参加球队比赛或训练，直到他接种疫苗。从本质上讲，要么接种疫苗，要么离开。
 
-欧文拒绝遵守纽约市最近的疫苗规定，意味着他不能在巴克莱中心打主场比赛，甚至不能在跨河的对手尼克斯队打主场。如果欧文被限制在纽约以外的比赛中，他可能会错过超过一半的赛季。
 
-由于中共病毒疫苗，古德温很有可能结束他的职业生涯，而欧文也会错过大半个赛季。而政府继续告诉我们，疫苗是安全的，但我们却不断听到有人因疫苗而生病的故事，而各俱乐部确试图隐瞒疫苗真相。最近，由于心脏发炎，莫德纳的中共病毒疫苗在美多个县市被停止用于年轻人。
 
-新闻来源：
+据零对冲10月12日报道，美国救护车协会 (AAA) 警告联邦众议院和参议院的议员们，“美国的EMS（Emergency Medical Service ）系统正面临着严重的劳动力短缺问题。这原本是一个已经存在了十多年的长期问题，目前由于拜登政府发布了新的强制接种疫苗的政策，这一问题变得更加严重。这可能破坏我们的紧急情况救助系统。
 
-1.[NBA Star Gets Blood Clots, Says From Jab, Ends His Season, Possibly His Career](https://www.redvoicemedia.com/2021/10/nba-star-gets-blood-clots-says-from-jab-ends-his-season-possibly-his-career/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-56.jpg)图片来源：pixabay
 
-2. [Nets still figuring out how to ‘make this work’ with Kyrie Irving](https://nypost.com/2021/10/12/nets-still-figuring-out-how-to-make-this-work-with-kyrie-irving/)
+缅因州沃尔多伯勒镇经理朱莉凯泽告诉缅因州新闻中心：“强制疫苗政策导致了急救人员流失。”他们原以为员工会因为害怕失去工作而服从政府，但他们没有想到，急救人员的工资并不高，他们完全可以找到其他有更高薪酬的工作。
+
+反对疫苗强制执行的不仅是急救人员，洛杉矶的数百名消防员也在近日提交了一份通知，准备就强制接种疫苗的命令起诉该市政府。洛杉矶消防队员的律师写道，疫苗接种令是“明显的错误行为”，理由包括干扰就业权利；造成情绪困扰；侵犯宪法隐私权；违反医学实验法中对人体受试者的保护。
+
+而洛杉矶县警长亚历克斯·维拉纽瓦 (Alex Villanueva)则明确表示，他将拒绝执行有关强制疫苗的规定。他说如果这样做，警局将面临失去多达10%警员的风险。
+
+越来越多的急救人员、消防员和警察不接受政府强制疫苗接种的命令，导致离职潮，这毫无疑问会破坏本已脆弱的911系统的有效运行。
+
+参阅链接：
+
+[https://www.zerohedge.com/political/911-system-jeopardy-first-responders-are-not-down-mandated-jab](https://www.zerohedge.com/political/911-system-jeopardy-first-responders-are-not-down-mandated-jab)
+
+***编辑/校对/发稿：遍地开花***
+
+***终审：飞虹***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-3.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-2.jpg)

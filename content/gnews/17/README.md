@@ -2,48 +2,28 @@
 ---
 
 
-## 喜币在虚拟币世界里能存在，发展，壮大的三个主要原因
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1590736/)
+## 日本NTT总裁的话给予这个世界的警示！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1590753/)
 
-作者：香草山金融部 – 闲聊钱币
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-223.png)（图片源自本文链接）
+日本朝日新闻数字版10月12日报到称：NTT总裁接受采访时表示，NTT将在四年内实现不再有企业内异地岗位调动。
 
+9月12日，NTT总裁泽田纯接受了《朝日新闻》的独家采访，表示他希望在四五年内实现他在9月底宣布的 “无异地岗位调动的工作方式”，将2025年作为目标，在集团大部分地区建立远程工作体系。他还透露了其在全国范围内向其它公司开放空置空间作为远程工作中心的计划。
 
+9月，泽田本人宣布了一种基于远程体系的新工作方式，并称这种工作方式为“改变昭和时代的风格”。他还说，从2022财务年度起，公司将取消员工的异地调动，或者单独一个人去异地工作（在日本被称为单身赴任），这是他第一次表明新的工作方式将在何时实施。
 
+在10月12日的在线采访中，泽田解释说，NTT集团在日本的大约18万名员工中，有近一半已经在远程工作，公司计划每年将远程工作的范围扩大到2万名员工。在过去难以实现远程办公的维修部门，NTT集团将通过推广使用摄像头等数字设备监控设施，逐步扩大远程办公的范围。
 
+他还说：以前，我们都认可以东京为中心的的层次结构。可环境正在发生变化，我强烈地感觉到我们应该改变这种结构，我将推动把集中在东京地区的总部职能分散到地方去。异地工作调动问题 “不是零或一”的问题，应尊重员工在被调动职时，是否愿意被调动去异地工作。我们将创造一个环境，让异地调动有困难的员工也能继续工作。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+除了公司宣布的到2022财年为居家工作有困难的员工设立260多个办公地点的计划外，公司所有的，包括电话站在内的大约2000个设施，都可以用来创建卫星办公地点，供其它公司使用。
 
+[信息源](https://news.yahoo.co.jp/articles/15b2e9dae3df4aa37c33104b24214dc7729d1e09)
 
+不仅仅是日本，这应该是整个世界的发展趋势。这是否会造成原有的办公楼，随之被大量空置，原来的高档办公区不再往日的白领簇拥。对房地产行业来说，是否意味着雪上加霜啊？
 
-
-
-网站Coinopsy 追踪并归纳了所有已经死掉的虚拟币及致死原因。在2,300个短命的虚拟币中，1542个是被遗弃的或是没有交易量的，占67%。位居第二的是欺诈，有482个，占21%。第三类就是初始发行不利，有239个。
-
-虚拟币从诞生到现在不过十几年的时间，参差不齐的开发者，投资者，赌徒等都想在这个新兴产业中分一杯羹。那么什么样的虚拟币能胜出呢？网站theconversation.com的一篇文章给出了很好的答案。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture7-2.jpg)
-首先是资金雄厚。资本的大小决定了开发团队的实力。新中国联邦的喜币在郭先生和大基金的运作下，在研发，推广，上市等各个方面都会是胜人一筹。
-
-其次是稳定性。文章说虚拟币要想成功的两个原因是人们相信它并且愿意用它。喜币固定的总发行量，与黄金挂钩的可靠性，以及G生态圈的实用性都标志着随着时间的推移，越来越多的人们会相信，接受并使用喜币。
-
-文章最后提到虚拟币也要“为真不破”。币虽然是虚的，但确真真正正是为了普通百姓的自由服务，对抗强权。喜币正是在爆料革命灭共的前提下应运而生。它是亿万普通草根的金融诺亚方舟。
-
-喜币，既不是第一个也不会是最后一个虚拟币，但它一定是最棒，最灿烂的那个。
-
-（本文仅代表作者观点）
-
-参考来源：
-1. [https://www.coinopsy.com/dead-coins/](https://www.coinopsy.com/dead-coins/)
-2. [https://theconversation.com/more-than-1-000-cryptocurrencies-have-already-failed-heres-what-will-affect-successes-in-future-127463](https://theconversation.com/more-than-1-000-cryptocurrencies-have-already-failed-heres-what-will-affect-successes-in-future-127463)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+(文章仅代表作者本人观点，与GNEWS无关)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)

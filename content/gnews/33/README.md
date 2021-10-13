@@ -2,49 +2,26 @@
 ---
 
 
-## 911系统因缺少人手处于危险之中
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1590540/)
+## 有声|“世界上三种权力最重要，我们要有话语权”!
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1590577/)
 
-**作者**：香草山美食部-蓝天大海
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+今天文贵先生在盖特转发了他的一个视频片断，其中文贵先生称:
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-2.jpg)
+“在欧洲意大利/法国，以及英国的工会，包括新加坡都在上街游行，美国也在罢工，但所有的媒体都不说这是因为疫苗引起的！这世界有三种权力，第一是货币发行权，掌握这个权力就控制了正义和邪恶的界定！第二是媒体话语权，可以颠倒黑白！最后就是第三种权力：枪杆子军队！全世界百姓都知道疫苗有副作用, 会死人，但不允许说，只是让你打疫苗。邪恶的势力远远超出了想象！拜金主义导致，钱似乎什么都能买，甚至要代表上帝!”
 
+文贵先生最后讲到最近习近平关于辛亥革命的讲话,  “世界一半在沉默，另一半的解读，不是喂料就是带风向，完全视2300万台湾人民的生命安全于不顾…..因此媒体话语权对我们来说太重要了!” —  而这正是爆料革命要拥有和建设我们自己的媒体平台: GTV/Gnews和盖特的原因。
 
+文字版原文：[“世界上三种权力最重要，我们要有话语权”!](https://gnews.org/zh-hans/1589555/)
 
-
-
-据零对冲10月12日报道，美国救护车协会 (AAA) 警告联邦众议院和参议院的议员们，“美国的EMS（Emergency Medical Service ）系统正面临着严重的劳动力短缺问题。这原本是一个已经存在了十多年的长期问题，目前由于拜登政府发布了新的强制接种疫苗的政策，这一问题变得更加严重。这可能破坏我们的紧急情况救助系统。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-56.jpg)图片来源：pixabay
-
-缅因州沃尔多伯勒镇经理朱莉凯泽告诉缅因州新闻中心：“强制疫苗政策导致了急救人员流失。”他们原以为员工会因为害怕失去工作而服从政府，但他们没有想到，急救人员的工资并不高，他们完全可以找到其他有更高薪酬的工作。
-
-反对疫苗强制执行的不仅是急救人员，洛杉矶的数百名消防员也在近日提交了一份通知，准备就强制接种疫苗的命令起诉该市政府。洛杉矶消防队员的律师写道，疫苗接种令是“明显的错误行为”，理由包括干扰就业权利；造成情绪困扰；侵犯宪法隐私权；违反医学实验法中对人体受试者的保护。
-
-而洛杉矶县警长亚历克斯·维拉纽瓦 (Alex Villanueva)则明确表示，他将拒绝执行有关强制疫苗的规定。他说如果这样做，警局将面临失去多达10%警员的风险。
-
-越来越多的急救人员、消防员和警察不接受政府强制疫苗接种的命令，导致离职潮，这毫无疑问会破坏本已脆弱的911系统的有效运行。
-
-参阅链接：
-
-[https://www.zerohedge.com/political/911-system-jeopardy-first-responders-are-not-down-mandated-jab](https://www.zerohedge.com/political/911-system-jeopardy-first-responders-are-not-down-mandated-jab)
-
-***编辑/校对/发稿：遍地开花***
-
-***终审：飞虹***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-3.jpg)
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-2.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -15,128 +15,128 @@
 
 ---
 
-### [2021年10月10日郭先生大直播 重点内容整理](/content/gnews/1/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [爆料革命——历史的今天10月10日](/content/gnews/2/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [秘翻在线：日本冲绳地区选举被指责违法](/content/gnews/3/README.md)
+### [秘翻在线：辉瑞极力促进为美国儿童注射中共病毒 而古巴则将黑手伸向幼儿](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [法国报告记录了中共政权在加拿大广泛的影响力行动（下）](/content/gnews/4/README.md)
+### [全家被误打COVID 疫苗 两孩子出现心脏问题](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [完全接种疫苗的人正在丧失其自身免疫力](/content/gnews/3/README.md)
+ ` wenwu`
+
+### [2021年10月10日郭先生大直播 重点内容整理](/content/gnews/4/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [爆料革命——历史的今天10月10日](/content/gnews/5/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [秘翻在线：日本冲绳地区选举被指责违法](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [法国报告记录了中共政权在加拿大广泛的影响力行动（下）](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [樱花灭共段子之《长津湖》观后感、相信“政府”、反驳催打疫苗](/content/gnews/5/README.md)
+### [樱花灭共段子之《长津湖》观后感、相信“政府”、反驳催打疫苗](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子之以共灭共、醒来的农民工、看清共匪](/content/gnews/6/README.md)
+### [樱花灭共段子之以共灭共、醒来的农民工、看清共匪](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子之老摸、三个字 Gim、你在哪一幕、白手套的生意经、冰马俑、你对ccp怎么看](/content/gnews/7/README.md)
+### [樱花灭共段子之老摸、三个字 Gim、你在哪一幕、白手套的生意经、冰马俑、你对ccp怎么看](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子之大家在看流星雨、房地产限跌令、旁门左道](/content/gnews/8/README.md)
+### [樱花灭共段子之大家在看流星雨、房地产限跌令、旁门左道](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子之我爱发明、来龙去脉、绕口令与逻辑、处处是商机](/content/gnews/9/README.md)
+### [樱花灭共段子之我爱发明、来龙去脉、绕口令与逻辑、处处是商机](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄军舰大秀肌肉 暗示普京对日发出三战警告](/content/gnews/10/README.md)
+### [俄军舰大秀肌肉 暗示普京对日发出三战警告](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共发布《关于推动现代职业教育高质量发展的意见》](/content/gnews/11/README.md)
+### [中共发布《关于推动现代职业教育高质量发展的意见》](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [多家SPAC投资基金为规避风险与中企脱钩](/content/gnews/12/README.md)
+### [多家SPAC投资基金为规避风险与中企脱钩](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [短视频：澳洲成为前线，GTS摧毁让整个社会瘫痪](/content/gnews/13/README.md)
+### [短视频：澳洲成为前线，GTS摧毁让整个社会瘫痪](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本NTT总裁的话给予这个世界的警示！](/content/gnews/14/README.md)
+### [日本NTT总裁的话给予这个世界的警示！](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [狮城快讯：东南亚各国“隐性债务”危机四伏](/content/gnews/15/README.md)
+### [狮城快讯：东南亚各国“隐性债务”危机四伏](/content/gnews/18/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [郭文贵先生2021年10月12日盖特视频（下）（9分57秒）全文字版](/content/gnews/16/README.md)
+### [郭文贵先生2021年10月12日盖特视频（下）（9分57秒）全文字版](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [喜币在虚拟币世界里能存在，发展，壮大的三个主要原因](/content/gnews/17/README.md)
+### [喜币在虚拟币世界里能存在，发展，壮大的三个主要原因](/content/gnews/20/README.md)
  ` 纽约香草山MOS01`
 
-### [中共暴政下 妄议“长津湖”，抓！敢说“蛋炒饭”，抓！](/content/gnews/18/README.md)
+### [中共暴政下 妄议“长津湖”，抓！敢说“蛋炒饭”，抓！](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年10月12日郭先生盖特 — 视频盖特1「9分59秒」](/content/gnews/19/README.md)
+### [2021年10月12日郭先生盖特 — 视频盖特1「9分59秒」](/content/gnews/22/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [郭文贵先生2021年10月12日盖特视频（上）（9分59秒）全文字版](/content/gnews/20/README.md)
+### [郭文贵先生2021年10月12日盖特视频（上）（9分59秒）全文字版](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [特斯拉赢了！涉事车主被判赔5万，道歉90天](/content/gnews/21/README.md)
+### [特斯拉赢了！涉事车主被判赔5万，道歉90天](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共“志在必得”汽车芯片和操作系统](/content/gnews/22/README.md)
+### [中共“志在必得”汽车芯片和操作系统](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：一名军人母亲美国关于非法强制部队接种中共病毒疫苗的公开信](/content/gnews/23/README.md)
+### [秘翻在线：一名军人母亲美国关于非法强制部队接种中共病毒疫苗的公开信](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|中共官媒吹“习近平生态文明思想”成笑谈！](/content/gnews/24/README.md)
+### [有声|中共官媒吹“习近平生态文明思想”成笑谈！](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [有声|中共不计成本欲毁掉G系列，新中国联邦开展法律反击](/content/gnews/25/README.md)
+### [有声|中共不计成本欲毁掉G系列，新中国联邦开展法律反击](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [波音公司强制其驻美国员打疫苗](/content/gnews/26/README.md)
+### [波音公司强制其驻美国员打疫苗](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [智梗无解](/content/gnews/27/README.md)
+### [智梗无解](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [法国报告记录了中共政权在加拿大广泛的影响力行动（上）](/content/gnews/28/README.md)
+### [法国报告记录了中共政权在加拿大广泛的影响力行动（上）](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（五）](/content/gnews/29/README.md)
+### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（五）](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|“世界上三种权力最重要，我们要有话语权”!](/content/gnews/30/README.md)
+### [有声|“世界上三种权力最重要，我们要有话语权”!](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [FDA：莫德纳加强针不达标](/content/gnews/31/README.md)
+### [FDA：莫德纳加强针不达标](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|暗批中共，英国寻求联合G20反对不公平贸易，改革WTO](/content/gnews/32/README.md)
+### [有声|暗批中共，英国寻求联合G20反对不公平贸易，改革WTO](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [911系统因缺少人手处于危险之中](/content/gnews/33/README.md)
+### [911系统因缺少人手处于危险之中](/content/gnews/36/README.md)
  ` 纽约香草山MOS03`
 
-### [币圈新闻动态：G|CLUBS在喜交所已有账号](/content/gnews/34/README.md)
+### [币圈新闻动态：G|CLUBS在喜交所已有账号](/content/gnews/37/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [险酿大祸&#8211;刚接种疫苗的航空机师在其飞行任务途中猝死于驾驶舱内！](/content/gnews/35/README.md)
+### [险酿大祸&#8211;刚接种疫苗的航空机师在其飞行任务途中猝死于驾驶舱内！](/content/gnews/38/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [数名 NBA球星或被中共病毒疫苗毁掉职业生涯](/content/gnews/36/README.md)
+### [数名 NBA球星或被中共病毒疫苗毁掉职业生涯](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [打锦鲤旗即为汉奸，共匪之忧不在美日而在萧墙之内也](/content/gnews/37/README.md)
+### [打锦鲤旗即为汉奸，共匪之忧不在美日而在萧墙之内也](/content/gnews/40/README.md)
  ` NewFOC`
 
-### [众议员布莱恩·马斯特:在台湾 庆祝国庆之际,中共试图威胁他们,美国必须支持我们的盟友](/content/gnews/38/README.md)
- ` 美国政要直译推`
-
-### [太疯狂！澳大利亚NSW新州长希望接种率超过90%](/content/gnews/39/README.md)
- ` 澳喜农场`
-
-### [美飞行员反对疫苗强制的视频点击量超过200 万](/content/gnews/40/README.md)
+### [美飞行员反对疫苗强制的视频点击量超过200 万](/content/gnews/41/README.md)
  ` GTV新闻访谈`
-
-### [民意调查：大多数未接种疫苗的人表示他们不会接种](/content/gnews/41/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [产煤大省晋陕遭遇罕见暴雨，或提前引爆全球经济危机](/content/gnews/42/README.md)
  ` 军迷wilson`
