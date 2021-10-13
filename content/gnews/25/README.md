@@ -2,22 +2,30 @@
 ---
 
 
-## 郭文贵先生在13日的大直播中以“今天是个好日子”开场
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1591620/)
+## 爆料革命影响之下,疫苗接种无法再推进!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591631/)
 
-撰稿：东京樱花团/待命（文晓）
+作者：文龍
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月12日郭文贵先生在盖特账号发布了简短视频，称现阶段共产党对全世界的贸易战和经济绑架，以及西方国家的堕落都超出想象。而全球的各大互联网科技公司，只要参与限制公众讨论疫苗死亡及灾难的，最终都要承担后果。但无论黑暗势力再怎样努力欺骗，想要把疫苗接种比例继续推进10%已经不可能了，这就是我们爆料革命/新中国联邦的力量 !
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-44.png)（图片源自GTV）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-8.jpeg)
 
-北京时间10月13日晚，新中国联邦通过GTV再做以郭文贵先生为主的大直播。
+文贵先生称，大家可以看到每时每刻全球政治和经济的变化，最终全人类的政治格局和制度都将大改良，所谓的共产主义和资本主义都已经不能满足人类的需要和地球文明的进步!包括目前的宗教和媒体, 竟然与邪恶势力在一起威胁到全人类的健康和安全，也都将面临变革!
 
-郭文贵先生以“今天是个好日子”作为开场白，并请提醒参加直播的嘉宾记住这个日子。郭先生解释说：由于法律相关原因，现在只能告诉大家是个好日子，具体发生了什么好事，2022年的1月份公布。
+(本文仅代表作者观点)
 
-从郭文贵先生非常开心的笑容里，可以看出，这个好事儿应该不小！虽然我们现在还不能知道到底是什么好事儿，但是，跟随爆料革命的老战友们都知道，对他来说，好事儿就是有益于战友们的事儿；好事儿，就是有利于灭共的事儿。
+参考链接: [https://gettr.com/post/pdy3yq0473](https://gettr.com/post/pdy3yq0473)
 
-（文章仅代表作者个人观点，与GNEWS无关）
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/老黑*
+新闻访谈终审：文龍
+编辑/校正/发稿：谐趣园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

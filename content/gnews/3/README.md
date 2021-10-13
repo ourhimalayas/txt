@@ -2,19 +2,169 @@
 ---
 
 
-## 文贵视角：认中共为爹的中外大律师事务所堕落为阳光下的邪恶
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1591880/)
+## 彼得-麦卡洛博士：中共病毒疫苗是人类历史上最大的生物医药悲剧
+` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1591896/)
 
-撰稿：Skagen【㊙️翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1013-3.jpg)
-2021年10月13日郭文贵先生大直播中，揭露了中共如何动摇西方民主社会的根基——司法。他说，在各国投中共国15万亿美元过程中，大量与中共合资的律师和会计事务所，刻意提供客户秘密信息给中共，如这些律师或会计事务所代理的外国人和外国机构、外国政府的绝密信息。
+What happened?
 
-郭先生有亲身经历过，当时2018年他的律师事务所（就在白宫傍边）的五百多台电脑被黑掉，被恐吓说只有和郭文贵解除合作，电脑才能重启。该律师事务所还代理了美国国防部承包商五千多家公司，这是有意还是无意呢？郭先生问：多少信息秘密被拿走了？而这个王八蛋竟然不报警也不报FBI，把我给fire掉。
+发生了什么呢?
 
-可想而知，那些在中国工作的律师事务所，如位于国贸、银泰、金茂、香港的国外律师事务所的电脑能安全吗？有多少美国澳洲的信息可能通过这种方式被泄露。这是有意还是无意？有没有跟黑客做交易出卖客户的事情？
+We now know that this early safety warning
 
-另一个例子，土耳其两家的事务所去中国谈了几次合作，结果代理的新疆籍政治庇护的所有人被消失了。因为到中国一去，他们的电脑就被黑了。
+我们知道杰西卡在同行评议中
 
-这就是阳光下的邪恶，邪恶已经走到了桌面上来了，对我们每个人都是威胁，当每个人需要法律保护的时候，个人信息和隐私可能瞬间就到达了中共的情报部门的警察桌子上，随时把你干掉，因为你在会计师、在律师面前是没有任何隐私。
+in this peer review publication from Jessica Rose clearly failed
 
-大直播的链接地址  https://gtv.org/broadcast/watch/6166d150304e992109b45e70
+所提供的早期安全提醒已经彻底失败了
+
+Look how high those mortality the numbers were by April
+
+我们来看看今年四月份时的死亡人数
+
+It clearly failed
+
+这很显然是失败的
+
+We had Americans dying.
+
+我们导致了美国人的死亡
+
+That’s after vaccination
+
+这是接种疫苗所导致的
+
+It was obvious!
+
+这很明显！
+
+This is an obvious data signal!
+
+这是非常明显的数据!
+
+This is obvious! all experts agree is obvious!
+
+太明显了! 所有的专家都一致认同!
+
+Now as of September 24th
+
+今天是9月24日了
+
+It’s raced up to 15,937 Americans has died
+
+全国死亡数字到达了一万五千九百三十七人
+
+Over two hundred fifty thousand Americans
+
+超过二十五万美国人
+
+After the vaccine has been hospitalized, gone to the Urgent Care or office visit
+
+在注射疫苗后住院、急救或寻求诊断
+
+You can see the temporal relationship on the bottom bar graph
+
+大家可以看看下面的柱状图趋势
+
+You can see that sharp Spike upwards
+
+你可以看到趋势明显的上扬
+
+Sadly we have over 20,000 Americans
+
+令人悲伤的是，疾控中心已经确认有超过
+
+The CDC tells us are permanently disabled after the vaccine
+
+两万美国人在注射疫苗后彻底失去行动能力
+
+That’s bigger than some major cancer group
+
+疫苗危害这远远超过了一些主要的癌症
+
+The disability that we are going to see
+
+我们看到的这种因注射疫苗
+
+due to these vaccines
+
+而造成的行动能力的丧失
+
+will go down in history
+
+会被写入历史
+
+as an unbelievable tragedy
+
+这是令人难以置信的悲剧
+
+I made a presentation to the Heritage Foundation in Washington
+
+我在华盛顿为遗产基金会做了演讲
+
+provides a lot of oversights to the House in the senate
+
+向国会议员们展示了很多有关的疏忽、过失
+
+as well as the agencies
+
+当然也包括他们的代理人
+
+And I made this presentation
+
+当我结束演讲时
+
+you could hear a pin drop when I was done
+
+全场鸦雀无声
+
+Finally, one of the former presidents of American Medical Association
+
+最终，一位美国医师协会前主席
+
+Doctor McCullough
+
+麦凯罗医生说到
+
+We have the biggest biological catastrophe
+
+我们正在经历人类历史上
+
+on our hands in human history
+
+最大的生物学灾难
+
+With the medicinal product, we’ve had two administrations buy into it
+
+是与医药产品有关的 我们已经有两届政府涉入其中
+
+We’ve had too all the houses of legislation buy into it
+
+我们所有的立法机构也参与其中
+
+We have the entire medical establishment buy into it
+
+所有的医疗卫生机构也是如此
+
+And the whole media
+
+还有全部媒体
+
+And no one knows how to stop it
+
+没人知道如何阻止它
+
+No one knows how to stop this freight train
+
+没人知道如何组织这列货车(疫苗注射危机)
+
+And we’re all witnessing it right now
+
+我们都在目睹它的发生!
+
+文字听写翻译：维京商人
+
+视频字幕：Kent
+
+编辑/发稿：Kent
+
+*免责声明：本文仅代表作者个人观点，与G-NEWS网站无关*

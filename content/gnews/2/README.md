@@ -2,169 +2,32 @@
 ---
 
 
-## 彼得-麦卡洛博士：中共病毒疫苗是人类历史上最大的生物医药悲剧
-` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1591896/)
+## 在中共国，杀人犯是怎样炼成的
+` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1591912/)
 
-What happened?
+By：银河勇气星｜天雷滚滚
 
-发生了什么呢?
+又是一桩灭门案，又是一边倒的同情案犯。看了整个事情的真相，让人心头堵得慌。一个五十岁的莆田男子欧金中，拆了自家400平米的危房，准备在原地重建150米的新房，所有建房手续都已经齐备，但是，却屡受村霸欺压，多次打砸，不许他重建。一家几口，住在临时搭建的简易窝棚里，一住就是五年，其中上有年届九旬的老母，还有一个年已三十岁尚未娶妻的儿子。
 
-We now know that this early safety warning
+![](https://assets.gnews.org/wp-content/uploads/2021/10/8-10.png)图片来源：网路
 
-我们知道杰西卡在同行评议中
+这五年里，他多次上访，讨要说法。从网上流出来的资料来看，欧金中走遍了他在中共国能走的所有的渠道。找过村干部，当过上访户，向政府向警察甚至向媒体都求助过，在他那猪窝都不如的家里，媒体找到了他写在烟盒上密密麻麻的记满媒体、官方求助通道的信息。可以这样说，为了建房，欧金中用尽了全力，只希望九旬老母不被风吹雨打，只希望有朝一日跟自己的孙子承欢膝下，只希望一家几代人口有一个安身立命的场所。但是，很遗憾的是，五年过去了，直到台风把他家的棚顶碎片吹到那个村霸家的菜地里，夫妻两人去捡回抢修屋顶时，还被村霸媳妇无情辱骂。于是，积聚了他五年的屈辱和仇恨，终于在这一刻如火山一样爆发出来了。你不给我个说法，我就给你个说法。于是，拔刀相向，大家同归于尽。你让我无家可归，我让你有家无命。真是匹夫一怒，血溅五步，悲剧发生了……
 
-in this peer review publication from Jessica Rose clearly failed
+![](https://assets.gnews.org/wp-content/uploads/2021/10/9-11.png)图片来源：网路
 
-所提供的早期安全提醒已经彻底失败了
+中共国的这个制度悲剧，欧金中不是第一个，也不是最后一个。这让我想起了退伍特种兵张扣扣替母报仇案。1996年。这一年，张扣扣年仅13岁。汪秀萍，张扣扣的母亲，被王正军用木棒打死。母亲被打后，倒在了张扣扣的怀里，母亲的鼻子、口里都是血，鲜血在喉咙里面“咕咕咕咕”地作响，然后在他怀里慢慢地断气。这起命案，最后王家的三儿子被判七年，四年后出狱。王家也始终没有给他们家一句道歉，没有给过他们一分的经济赔偿。这一个既没赔钱又没偿命的被轻判的命案，让同样求告远门的张扣扣内心种下了复仇的种子。22年后，张扣扣于2018年2月15日（大年三十）中午，持刀将邻居王自新（男，71岁）及其长子王校军（47岁）、三儿子王正军（39岁）杀死，报了杀母之仇。
 
-Look how high those mortality the numbers were by April
+网络舆论也是一边倒地支持张扣扣，可是，张扣扣还是被判了死刑。不知道欧金中最后会是怎样结局，他们的悲剧是中共国的制度悲剧。网上流传着一个这样的事迹。一个小孩被被海浪卷进深海，一群人去营救都失败了，欧金中看到后，不顾自己的性命，冲进海里救出了不省人事的小孩。为此，他还生了一场大病，连续输液一个多月，也退回了小孩父母多次送去的营养费和营养品。他跟张扣扣一样，都是中国社会非常善良的人，他们没有因为自己面对的不公，而把刀挥向弱小幼儿园的小朋友，也没有驾着车撞向路边无辜的民众。他们不过只要一个正当的权利：只要那个姓王的向张扣扣说一句道歉的话，张扣扣心理的仇恨有了一个宣泄之处而得到一点点平衡，他就不会20多年后去找王家算账；如果，那个村霸媳妇不要如此辱骂在凄风苦雨中正无处安身的欧金中，可能，欧金中还继续在这个风雨飘摇的家中，等着青天大老爷的出现。可是，一切都没有发生，一切也都发生了。
 
-我们来看看今年四月份时的死亡人数
+《福尔摩斯探案集》有这样一句话：“亲爱的雷斯垂德，我认为，当法律无法给当事人带来正义时，私人报复从这一刻开始就是正当甚至高尚的。所以说，这次，我决定不受理这个案件。”
 
-It clearly failed
+小说毕竟是小说，我们生活在这个比小说描述的人间地狱还悲惨的共产主义主制度里，欧金中他们是逃脱不了所谓的“正义”的惩罚。并且在这样的邪恶的制度里，欧金中这样的悲剧依然全国在不时发生。无论他们为善还是作恶，他们都可能是悲剧的制造者，也是悲剧的承受者。所有的人都可能随时会死去，天灾可以让其死，盗贼可以让其死，躲猫猫可以让其死，贪官污吏欺压百姓可以让其死，我们处在这样一个没有是非的国度时，无时无地不可以死。我们与其眼睁睁地看着同胞死，也时刻不知道自己什么时候被共匪迫害而死，不如大家醒来，消灭这个吃人的逼良为盗共产主义制度，消灭这个制度的维护者——中国共产党！
 
-这很显然是失败的
+（文章内容仅代表作者观点）
 
-We had Americans dying.
+作者：天雷滚滚
+审核：兵嫂、骄子
+发布：骄子
 
-我们导致了美国人的死亡
-
-That’s after vaccination
-
-这是接种疫苗所导致的
-
-It was obvious!
-
-这很明显！
-
-This is an obvious data signal!
-
-这是非常明显的数据!
-
-This is obvious! all experts agree is obvious!
-
-太明显了! 所有的专家都一致认同!
-
-Now as of September 24th
-
-今天是9月24日了
-
-It’s raced up to 15,937 Americans has died
-
-全国死亡数字到达了一万五千九百三十七人
-
-Over two hundred fifty thousand Americans
-
-超过二十五万美国人
-
-After the vaccine has been hospitalized, gone to the Urgent Care or office visit
-
-在注射疫苗后住院、急救或寻求诊断
-
-You can see the temporal relationship on the bottom bar graph
-
-大家可以看看下面的柱状图趋势
-
-You can see that sharp Spike upwards
-
-你可以看到趋势明显的上扬
-
-Sadly we have over 20,000 Americans
-
-令人悲伤的是，疾控中心已经确认有超过
-
-The CDC tells us are permanently disabled after the vaccine
-
-两万美国人在注射疫苗后彻底失去行动能力
-
-That’s bigger than some major cancer group
-
-疫苗危害这远远超过了一些主要的癌症
-
-The disability that we are going to see
-
-我们看到的这种因注射疫苗
-
-due to these vaccines
-
-而造成的行动能力的丧失
-
-will go down in history
-
-会被写入历史
-
-as an unbelievable tragedy
-
-这是令人难以置信的悲剧
-
-I made a presentation to the Heritage Foundation in Washington
-
-我在华盛顿为遗产基金会做了演讲
-
-provides a lot of oversights to the House in the senate
-
-向国会议员们展示了很多有关的疏忽、过失
-
-as well as the agencies
-
-当然也包括他们的代理人
-
-And I made this presentation
-
-当我结束演讲时
-
-you could hear a pin drop when I was done
-
-全场鸦雀无声
-
-Finally, one of the former presidents of American Medical Association
-
-最终，一位美国医师协会前主席
-
-Doctor McCullough
-
-麦凯罗医生说到
-
-We have the biggest biological catastrophe
-
-我们正在经历人类历史上
-
-on our hands in human history
-
-最大的生物学灾难
-
-With the medicinal product, we’ve had two administrations buy into it
-
-是与医药产品有关的 我们已经有两届政府涉入其中
-
-We’ve had too all the houses of legislation buy into it
-
-我们所有的立法机构也参与其中
-
-We have the entire medical establishment buy into it
-
-所有的医疗卫生机构也是如此
-
-And the whole media
-
-还有全部媒体
-
-And no one knows how to stop it
-
-没人知道如何阻止它
-
-No one knows how to stop this freight train
-
-没人知道如何组织这列货车(疫苗注射危机)
-
-And we’re all witnessing it right now
-
-我们都在目睹它的发生!
-
-文字听写翻译：维京商人
-
-视频字幕：Kent
-
-编辑/发稿：Kent
-
-*免责声明：本文仅代表作者个人观点，与G-NEWS网站无关*
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家-1.jpeg)

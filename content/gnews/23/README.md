@@ -2,19 +2,45 @@
 ---
 
 
-## 大直播10/13傅政华被抓将引爆中西大律师事务所的腐败炸弹
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1591635/)
+## 《华盛顿邮报》：中共阻挠不可接受，我们必须找到病毒来源
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1591639/)
 
-新闻采稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-13-at-10.28.46-AM.png)图片来源：GTV
-爆料革命发起人郭文贵先生在10月13日大直播伊始，就惊爆：随着中共国前司法部长傅政华的被调查，中共国国内各大律师事务所和许多合资合作背景的国外大律师事务所都将发生巨大的变局。
+作者：纽约香草山农场 – 四季
 
-郭先生爆出几位中共国的高官被查现场的拙劣表现，并指出随着他们的失势甚至被调查，会产生一连串的变局。傅政华原是直接负责国内律师和海外合作律师业务的最高官，内部的高度腐败体制和对外的蓝金黄使得内外大律师事务所必然会爆出更多丑闻和案件。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-郭先生深刻地点出以法治为根基和立国之本的美、欧、加等国，因为大律师事务所和法官、检察官千丝万缕的体制机制联系，使得这种一连串巨变甚至会使得西方司法系统都会产生大的震荡。
 
-基于巨大的司法利益链条， 无论是在中共国内的律师事务所还是与中共国官方合作的海外律师事务所， 无疑会随着傅政华案的调查深入，会爆出更多的猛料，让我们拭目以待。
 
-发布：Shifter
 
-【原文链接】https://gtv.org/broadcast/watch/6166d150304e992109b45e70
+
+[《华盛顿邮报》](https://www.washingtonpost.com/opinions/2021/10/11/covid-origin-wuhan-china-stonewalling-must-stop/)在10月11日发表的编辑部社论中表示，病毒的来源尚不清楚，需要进行可靠的调查。而为了防止下一次大流行病的发生，为了了解真相，我们必须找到病毒的来源，中共阻挠调查是不可接受的。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1202-1.png)*10月7日，居民骑车穿过中国武汉。(Getty Images)*
+
+文章回顾并列举了两年来围绕病毒及其起源所发生的事件。文中指出，中共阻止世卫组织联合调查组的调查，否认[武汉病毒研究所](https://www.aboluowang.com/tag/%E6%AD%A6%E6%B1%89%E7%97%85%E6%AF%92%E7%A0%94%E7%A9%B6%E6%89%80-1.html)有过感染病例，并声称没有发现任何问题。
+
+文章揭露了生态健康联盟主席、动物学家和寄生虫学家彼得·达萨克（Peter Daszak）与武汉病毒研究所的蝙蝠冠状病毒学家[石正丽](https://www.aboluowang.com/tag/%E7%9F%B3%E6%AD%A3%E4%B8%BD-1.html)的密切合作。并指出，达萨克一直是人畜共患病溢出假说的大力倡导者，并批评那些提出实验室泄漏可能性的人。
+
+中共病毒肆虐全球至今，如不能找到病毒来源，所有解决病毒的努力都会成为无源之水，无本之木。沉默令人振聋发聩。
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
