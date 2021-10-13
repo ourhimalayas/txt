@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/13/2021 6:34 PM (UTC)`
+
+皮特·纳瓦罗向机械师协会、NFL 和NBA的运动员协会呼吁：现在是时候为你们所代表的群体站出来抵制强制疫苗了，不要做那些将NBA、NFL和航空公司的利益置于球员和飞行员之上的老板们的奴隶了。<br/><br/>Peter Navarro appealed to the Associations of the Machinist, the NFL and the NBA: It’s time to stand up for the people you represent to resist mandatory vaccines. Don't be the peons and peasants of the Masters in the corporations that put players and pilots behind profits in the NBA, the NFL and these airline industries.
+![img](https://media.gettr.com/group23/origin/2021/10/13/18/34/392aaae7-0d9a-b715-24a2-7b9cd2e88e8b/out.jpg)
+> `@globalhimalaya 10/13/2021 12:48 AM (UTC)`<br/>Sources: VAXXED Delta Pilot DIES IN-FLIGHT, Emergency Landing Required<br/>达美航空（Delta Airlines）一名接种过新冠疫苗的机长在飞行途中死亡！该航班由副驾驶员紧急迫降，达美航空掩盖了这一事件。Jane Ruby博士提供了该爆炸性消息，并得到多个来源的证实
+![img](https://media.gettr.com/group24/origin/2021/10/13/00/48/e5589120-697e-923d-a053-c658cbc7a64f/out.jpg)
+
+---
+
 `@miles 10/13/2021 6:03 PM (UTC)`
 
 🙏🙏🙏🔥🔥🔥
@@ -288,13 +297,6 @@ Gettr prohibited these followings:<br/><br/>1. No racial discrimination is allow
 
 波索比克谈台海：普京拿下克里米亚，中共将军们想同样方式拿下台湾<br/><br/>Posobiec: CCP generals want to take Taiwan the same way Putin took Crimea<br/>
 ![img](https://media.gettr.com/group14/getter/2021/10/09/13/45/b81c4130-117a-622e-24d5-f06d2df7aaad/out.jpg)
-
----
-
-`@miles 10/9/2021 1:35 PM (UTC)`
-
-Taiwan is in great danger: Xi Jinping addresses the 110 years anniversary of Xinhai Revolution , releases strong signal to unify Taiwan by force<br/><br/>台湾危险了：习近平发表辛亥革命110周年演讲发出强烈信号，坚决要完成武统台湾<br/>
-![img](https://media.gettr.com/group42/getter/2021/10/09/13/35/9cdb516c-cd1f-5ff9-5f88-03e3aeafc62c/out.jpg)
 
 ---
 
