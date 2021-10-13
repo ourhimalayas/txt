@@ -2,39 +2,19 @@
 ---
 
 
-## 短视频：澳中进入战争状态，排华浪潮可以预见
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1590943/)
+## 秘翻在线：佛州莱昂县因违反该州疫苗护照禁令被罚款350万美元
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1590989/)
 
-#### 翻译：Lish
-听写核对：月映万川
-编辑：文泓
-剪辑字幕：七彩光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/拘留营.png)
-图片来源：9 News 60 Minutes Australia
+#### 翻译/撰稿：zzballack
 
-我们的专家的另一个重点关注的方向是，与中共国的战争将对近150万澳大利亚华人产生的影响。毕竟，在第二次世界大战期间，日裔澳大利亚人尽管在这里生活了50多年，却一样被围捕和监禁。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-31.jpg)图片来源：wtxl.com
+据《Real America’s Voice》10月13日报道，佛罗里达州的莱昂县（Leon County）10月12日被佛州卫生局罚款350万美元，因为该县政府开始要求其雇员提供中共病毒疫苗的接种证明，这违反了佛州的疫苗护照禁令。
 
-屏幕字幕：一些澳大利亚日裔被拘留者已经在澳大利亚生活了50多年。
+佛州卫生局称该县政府的行为公然违反了佛州禁止使用疫苗护照的法律，这项法律禁止企业要求客户以及员工提供疫苗接种证明。卫生部门表示，莱昂县县府违反了该法律714次，因为他们要求700多名雇员提供疫苗接种记录，并解雇了14名拒绝接种疫苗的员工。
 
-二战期间，共有4301名日本平民被囚禁在澳大利亚的拘留营中。
+佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）在声明中谴责莱昂县让700多人披露疫苗状况等个人信息。“莱昂县违反了佛罗里达州的法律，侵犯了现任和前任雇员的医疗隐私，并因为他们的个人医疗决定而解雇了一些非常忠诚的员工，这是不可接受的。佛州卫生部门将继续执行该法律，我们将继续为佛罗里达人的权利、工作、生计和自由而战！”德桑蒂斯接着说，他和他的政府将继续保护佛州人免受联邦政府制定的疫苗强制令影响。
 
-澳大利亚华人后裔，或者与华人外表相似的其他人种可能会被极右翼分子当街骚扰，并且把华裔投入到拘留营继而边缘化他们，所有以上这些社会逻辑结果都还没有考虑进去。
+但是莱昂县官员对该处罚提出异议，他们认为疫苗强制令在法律上是合理的，他们只是遵循联邦政府的规则。根据佛州法律，莱昂县可以在罚款后的30天内向法院提出申诉。
 
-而你是否担心你们这些澳大利亚华人会被视为内部的敌人？
-
-绝对的，我的意思是，澳大利亚华人社区和所有看起来有点像中国人的人，如果，一旦与中共国发生战争，克林顿所说的这种拘留营的概念，你知道，是一个非常现实的预测。你知道，约翰，我们在那里见。
-
-在澳大利亚与中共国全面对抗之时，本国的外交和军事政策必然会激起反华种族主义，这就是未来我们面临的现实。
-
-（本中仅代表作者个人观点，与Gnews平台无关）
-
-视频链接：[War with China: Are we closer than we think? | Under Investigation – YouTube](https://www.youtube.com/watch?v=kA2KaEKs1LA)
-
-**发布：文泓**
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Florida issues $3.5 million fine to county for violating vaccine passport law](https://americasvoice.news/justthenews/florida-issues-35-million-fine-leon-county-violating-vaccine-passport/)

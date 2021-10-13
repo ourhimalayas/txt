@@ -2,14 +2,39 @@
 ---
 
 
-## 波音公司强制其驻美国员打疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1590617/)
+## 短视频：澳洲成为前线，GTS摧毁让整个社会瘫痪
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1590764/)
 
-#### 翻译：沙子最怕你不理它
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/7-8.jpg)图片来源：网络截图
-据路透社10月13日报道，波音公司于10月12日表示，波音要求其驻美国员工出示中共病毒疫苗接种证明，或在12月8日之前获得批准的医疗或宗教豁免，以遵守拜登总统对联邦承包商的命令。
+#### 翻译：Lish
+听写核对：月映万川
+编辑：文泓
+剪辑字幕：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/前线.jpg)
+图片来源：Sky news 视频截屏
 
-拜登总统上周表示，更多美国企业应该要求工人接种中共病毒疫苗，称此举对结束疫情和维持经济至关重要。继势必锐航空系统公司（Spirit AeroSystems）之后，波音也宣布了将遵守该行政命令。
+事实是，澳洲政府对（本土）美军基地发生的事情几乎没有控制权，或者当美国面临战争（中共国袭击）时，也不知道这些美军基地可能会做出什么样的防御决定。
 
-新闻来源：[Boeing mandates COVID-19 vaccination for U.S. employees](https://www.reuters.com/business/aerospace-defense/boeing-mandates-covid-19-vaccination-us-employees-2021-10-12/)
+屏幕字幕：从理论上讲，松树沟基地是澳大利亚和美国的联合共管设施。事实上，该基地的负责人是美国人，只有1/10的人员是澳大利亚人。基地里有一个秘密房间，澳大利亚人不允许进入。
+
+就是因为美国的资产在澳大利亚的土地上，这是真的，不是吗？那么（美军）可以做出开火的命令？而我们却不知道？
+
+绝对的。我们把这些东西称为联合共管设施。但事实是，美国国会议员员比澳大利亚议会议员对这些设施的情况有更多的监管和了解，我们必须认识到我们所处的境地，对于任何社会都可能面临的最重要的问题，即是否参战的问题，很可能最终是（美国）为我们做这个决定。
+
+无论是哪种形式的战争，被认可的未来作战计划就是澳大利亚将会是前线阵地，而这也将是历史上独一无二的。但是，有可能澳大利亚还没来及抵抗就已经国家瘫痪了。
+
+几乎可以肯定的是，在美国和中共国之间的重大冲突中，首先会发生的一件事就是打掉全球贸易服务系统（GTS），这样的目的是使很多依赖该系统的美国军事系统瘫痪，**一旦发生这种情况，你就无法在澳大利亚进行刷卡交易，你就无法在加油站给你的汽车加油。**因为所有这些都依赖于全球贸易服务系统，澳大利亚的经济将在最初几分钟内受到非常严重的影响。在几个星期内，我们很难获得足够的燃料和石油。而我们没有办法避免这一点。
+
+因此，确实我们可能会认为这场战争与我们无关并忽略它，但是，事实是，我们根本做不到。你可能对战争不感兴趣，但却一直被战争阴影所笼罩，这就是一个不争的事实。并且我们没有任何办法回避这个问题。
+
+（文中仅代表作者个人观点，与Gnews平台无关）
+
+视频链接：[War with China: Are we closer than we think? | Under Investigation – YouTube](https://www.youtube.com/watch?v=kA2KaEKs1LA)
+
+**发布：文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

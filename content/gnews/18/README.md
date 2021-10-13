@@ -2,19 +2,28 @@
 ---
 
 
-## 秘翻在线：佛州莱昂县因违反该州疫苗护照禁令被罚款350万美元
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1590989/)
+## 疫苗教授当庭承认疫苗的安全性和有效性存疑
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1591038/)
 
-#### 翻译/撰稿：zzballack
+#### 翻译：Lish
+校对：枳实
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-31.jpg)图片来源：wtxl.com
-据《Real America’s Voice》10月13日报道，佛罗里达州的莱昂县（Leon County）10月12日被佛州卫生局罚款350万美元，因为该县政府开始要求其雇员提供中共病毒疫苗的接种证明，这违反了佛州的疫苗护照禁令。
+新南威尔士州最高法院关于强制接种新冠疫苗的案件中的法庭文件表明，经手大笔疫苗研究拨款的Kristine Macartney 教授当庭承认疫苗的安全性和有效性存疑。
 
-佛州卫生局称该县政府的行为公然违反了佛州禁止使用疫苗护照的法律，这项法律禁止企业要求客户以及员工提供疫苗接种证明。卫生部门表示，莱昂县县府违反了该法律714次，因为他们要求700多名雇员提供疫苗接种记录，并解雇了14名拒绝接种疫苗的员工。
+视频背景介绍参考：
 
-佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）在声明中谴责莱昂县让700多人披露疫苗状况等个人信息。“莱昂县违反了佛罗里达州的法律，侵犯了现任和前任雇员的医疗隐私，并因为他们的个人医疗决定而解雇了一些非常忠诚的员工，这是不可接受的。佛州卫生部门将继续执行该法律，我们将继续为佛罗里达人的权利、工作、生计和自由而战！”德桑蒂斯接着说，他和他的政府将继续保护佛州人免受联邦政府制定的疫苗强制令影响。
+推动澳大利亚所有政府政策的主要疫苗研究人员在 2020-2023 年期间获得了 65,330,038 美元的政府赠款。如此规模的赠款是前所未有的。
 
-但是莱昂县官员对该处罚提出异议，他们认为疫苗强制令在法律上是合理的，他们只是遵循联邦政府的规则。根据佛州法律，莱昂县可以在罚款后的30天内向法院提出申诉。
+两周前克莱夫·帕尔默 (Clive Palmer) 在新闻发布会上说格拉迪斯·贝雷吉克利安 (Gladys Berejiklian) 被悉尼的一名说客支付了数千万美元。
 
-新闻来源：[Florida issues $3.5 million fine to county for violating vaccine passport law](https://americasvoice.news/justthenews/florida-issues-35-million-fine-leon-county-violating-vaccine-passport/)
+请注意，每个赠款旁边都出现了名称“K Macartney”。这是指 Kristine Macartney 教授，她是悉尼大学专门研究传染病和疫苗学的儿科医生。她还是国家免疫研究与监测中心 (NCIRS) 的主任。最引人注目的是，她还是治疗用品管理局 (TGA) 疫苗咨询委员会 (ACV) 的成员。是的，同样的 TGA 禁止将利维菌素作为治疗 COVlD 的早期治疗选择，尽管它在其他国家/地区具有很高的疗效。 Kristine Macartney 教授还担任了令人惊讶的世界卫生组织 (WHO) 的专家顾问。
+
+原视频链接：**[AUS COURT-COVID VAX IS UNVERIFIED](https://www.bitchute.com/video/t4rPTBOTEF58/)**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)
+
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

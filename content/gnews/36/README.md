@@ -2,24 +2,18 @@
 ---
 
 
-## 有声|中共官媒吹“习近平生态文明思想”成笑谈！
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1590658/)
+## 俄军舰大秀肌肉 暗示普京对日发出三战警告
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1590784/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-12日，中共喉舌新华社赶在”生物多样性公约 ” 第十五次缔约，方领导人峰会之前发文鼓吹“习近平生态文明思想造福中国光耀世界”，称在“在习近平生态文明思想的指引下，中国坚决维护多边主义、建设性参与全球环境治理，以促进实现全球的可持续发展”等等，对习进行子虚乌有的肉麻吹捧，贻笑大方。
+#### 翻译：沙子最怕你不理它
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-37.jpg)图片来源：网络截图
+据《英国太阳报》（The Sun）10月12日报道，在东京声称对有争议的千岛群岛拥有主权后，俄罗斯在日本附近的军舰发射导弹来展示力量。第二次世界大战结束时，斯大林占领了千岛群岛——但日本据绝接受莫斯科管辖权，两国至今未能就此问题达成共识。
 
-事实上2006年世卫组织的报告称，世界上污染最严重的20城市中有16个是在中共国境内。2014年，中共环保部门自己也承认，在中国中部和东部地区出现的灰霾面积已高达143万平方公里！同年世卫组织的世界癌症报告显示，中共国新增癌症病例达到307万，占全球总数的21.8%（307万），癌症死亡人数220万，是世界总数的26.9% 。这皆因中共篡权70多年来，已经把中国大陆的空气、土壤、地下水和山川河流几乎全部污染殆尽，空气二氧化碳化、土地沙漠化、地下水重金属化日趋严重。这一切又再影响到地表的所有种植的食用作物，最终导致中国人的癌症罹患率和死亡率都高居首位 。尽管中共一再无耻声称，他们是如何致力于改善国内生态环境，但改变不了这一严峻的事实。所谓“习近平生态文明思想”，不过只是又添一则国际笑话罢了！
+俄罗斯在此次军演中使用黄蜂和匕首导弹系统从炮台向高速空中目标发射了导弹。十几艘军舰和支援舰参与了演习，共发出十枚导弹。俄罗斯表示，由舰队旗舰瓦良格导弹巡洋舰和反潜式无畏级驱逐舰特里巴特斯海军上将号参与的战争游戏是“计划之中的”。
 
-文字版原文：[中共官媒吹“习近平生态文明思想”成笑谈！](https://gnews.org/zh-hans/1589186/)
+与此同时，俄罗斯正在开发一种每小时4,000英里的高超音速导弹，能够在几分钟内将地球上任何地方的城市夷为灰烬。该核武器将由第五代战斗机Su-57发射，旅行速度是声音的五倍——几乎不可能被击落。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+由于领土争端，日本和俄罗斯尚未正式签署结束第二次世界大战的和平条约，此前俄罗斯的最近一次演习是6月份在伊图鲁普岛以及萨哈林岛进行的。
+
+新闻来源：[PUTIN ON A SHOW Russian warships fire missiles in massive show of strength as Putin sends chilling warning to Japan amid WW3 fears](https://www.thesun.co.uk/news/16393142/russian-warships-missiles-japan-disputed-islands/)
