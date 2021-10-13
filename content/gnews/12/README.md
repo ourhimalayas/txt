@@ -2,46 +2,169 @@
 ---
 
 
-## 台湾，放弃幻想，准备战斗
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1591867/)
+## 彼得-麦卡洛博士：中共病毒疫苗是人类历史上最大的生物医药悲剧
+` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1591896/)
 
-By：银河勇气星｜天雷滚滚
+What happened?
 
-10月8日习大神在辛亥革命110周年发表讲话，表示要实现祖国完全统一后，10月10日蔡英文总统在国庆讲话中予以回应，表示中华民国台湾不隶属中共，不认同一国两制，不怕中共武力犯台。两人的讲话迅速燃爆各大媒体。郭先生在习大神讲话完毕，第一时间发出了盖文，“共产党的以孙灭台，武统台湾，宣讲大会结束，台湾危了！”表达了他对台湾局势的担忧之情。反观世界各大媒体和自媒体也都认为共产党会武统台湾，但他们都认为美国会出面干涉。尤其是在油管上收看人数最多的台湾本土自媒体《年代向钱看》，其中就有一个嘉宾就认为，基于台湾的战略地位，会让美国不会放弃台湾。这种天真的看法，真是会带偏台湾民众对这次台海紧张局势的认知，把台湾和台湾人民置于万劫不复的境地。
+发生了什么呢?
 
-文贵先生早就讲过共产党的双龙计划，香港被中共实际控制之后 ，习神对台湾一直是蠢蠢欲动，特别是西方国家已经被病毒和疫苗搞得疲惫不堪，加上自己在这个世界上已时日无多，所以，一心想青史留名，实现其千古一帝的野心的他更加迫不及待地要对台湾大开杀戒。
+We now know that this early safety warning
 
-事实也是按照这个剧本来发展的。在10月10日的GTV大直播中，郭文贵先生用沉重的语调批露；经多方情报证实，拜登政府同中共达成桌子底下的交易，已经将台湾完完全全地出卖给了中共，以此换取中共购买美国国债，来解其燃眉之急。根据郭文贵先生的描述，中美达成的桌子底下的带有拜登亲笔签名的交易一共有三方面的内容：
+我们知道杰西卡在同行评议中
 
-第一，拜登政府向中共做了文字性承诺，不改变中共体制、中美经济重新挂钩、买美国国债。
+in this peer review publication from Jessica Rose clearly failed
 
-第二，拜登任期內，中美军事交流绝不会停滞，并保证任何情况下，都绝不会就台湾问题、南海问题对中共发起军事行动。
+所提供的早期安全提醒已经彻底失败了
 
-第三，绝对不推翻、不改变中共体制，在香港、台湾、新疆等所有具有争议的问题上，中美双方仅止于竞争关系，不会升级为军事冲突，拜登政府对中共领导人保持绝对的尊重。
+Look how high those mortality the numbers were by April
 
-郭先生说台湾已经到了最危急的时刻，台湾人民请勿继续迷信美国会救台湾，当中共武力犯台时，美国只会动口不会动手。
+我们来看看今年四月份时的死亡人数
 
-看来最爱台湾的人，除了台湾本地人之外，真的只有文贵先生和他引领的爆料革命了。台海和南海联合军演的军事力量都已经悄悄撤走，美军在南中国海的核潜艇被共匪自杀式袭击也没要毛个说法，川普对抗中共时期设的关税也已全部取消，竟然还有人说拜登政府不会弃台湾于不顾，真是居心叵测。也说明有人确实心存幻想，这里我想说的是：
+It clearly failed
 
-台湾同胞们，请放弃幻想，准备战斗。
+这很显然是失败的
 
-放弃对拜登政府的幻想。经过去年大选，这个没有膝盖骨的拜登几乎是全裸地站在了世界人民面前。一个在华盛顿做了四十多年的政客，在做奥巴马总统期间，就为了一点中共的狗粮，出卖美国利益，跟中共眉来眼去。他没这个心保护台湾的安全；登上总统大位后，更是昏招不断，先在阿富汗问题上让美国颜面尽失，再接着公然侵犯宪法，强制推行疫苗，又滥发货币，搞得民怨沸腾，美国老百姓在社交媒体上F他，在集会场所画着他的人像F他。他没这个能力去保护台湾的安全；明年的中期选举，民主党眼看要失去天下，又想故技重施，反败为胜，需要跪求习大神助其一臂之力，因此两者是一丘之貉，他不会帮忙。今年2月份中国过年期间拜登对习大神请安问候俯首称臣，现在其国内经济危机金融危机又将一触即发，他根本不敢帮忙，甚至可能助纣为虐。如果现在还有人幻想台湾因为其对美国重要的战略地位让拜登来保护，简直是让他自请辞去总统一样的不可能，所有的重要都赶不上他的总统大权。
+We had Americans dying.
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-8.png)图片来源：网路
+我们导致了美国人的死亡
 
-放弃周边其他民主国家的幻想。英法日等国，跟第二次世界大战之前欧洲诸国跟德国的何其相似，这些国家的政客，要么被共产党蓝金黄，勾兑之深，早就狼狈为奸；或者是慑于中共的文攻武吓，不得已早向邪恶低头，向暴力屈膝，换来屈辱的和平。你看看给人类带来前所未有恐惧和死亡的中共瘟疫，至今，没有一个国家向中共追责问罪。他们就跟张伯伦对希特勒一样，对中共和习近平懦弱得仰其鼻息而活，一旦台湾有事，他们最多发几个严正声明谴责声讨，无关痛痒地制裁一下，又开始新一轮的勾兑，根本不能发生制裁侵略与维护正义的作用。
+That’s after vaccination
 
-卖台贼们，请放弃幻想。现在这些台奸，像朱立伦、洪秀柱之流，舔了共腚，舔习腚，卖了自身，卖灵魂，恬不知耻，毫无底线，这些跳梁小丑，才是数典忘祖之辈。不过也别得瑟。请多多看看中共的历史，中共窃国不到一年的1950年2月就开始“镇压反革命“运动，到1953年初，242名民国高级将领惨遭中共杀害，其中包括3位同盟会元老的宋鹤庚上将、夏之时上将、何海清上将和辛亥革命元老邓玉麟中将，其余有中将77名、少将161名，其中大部分参加过抗战。还有赫赫有名的为共产党窃取政权立下汗马功劳的傅作义，是如何被共产党羞辱致死的，不仅如此，共产党还不放过他的家人，傅作义留美博士的弟弟是如何被共产党流放到夹边沟被活活饿死的。共产党的忘恩负义过河拆桥，当台湾城岛陷之日，小心你们这些人被株连九族，殷鉴不远哦！
+这是接种疫苗所导致的
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/6-4.png)图片来源：网路
+It was obvious!
 
-现在，中共随时准备武统台湾，台湾同胞们，我们要顶住，只要二千多万的台湾同胞万众一心，拿起武器，积极应对，共匪最多以武犯台，但占领不了台湾。更何况，现在我们已经有了新中国联邦，文贵先生说以台灭共，相信，经过这么长时间的运筹帷幄，新中国联邦肯定有积极的应对策略，把台湾变成共产党的坟场。
+这很明显！
 
-（文章内容仅代表作者观点）
+This is an obvious data signal!
 
-作者：天雷滚滚
-审核：兵嫂、骄子
-发布：骄子
+这是非常明显的数据!
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家-1.jpeg)
+This is obvious! all experts agree is obvious!
+
+太明显了! 所有的专家都一致认同!
+
+Now as of September 24th
+
+今天是9月24日了
+
+It’s raced up to 15,937 Americans has died
+
+全国死亡数字到达了一万五千九百三十七人
+
+Over two hundred fifty thousand Americans
+
+超过二十五万美国人
+
+After the vaccine has been hospitalized, gone to the Urgent Care or office visit
+
+在注射疫苗后住院、急救或寻求诊断
+
+You can see the temporal relationship on the bottom bar graph
+
+大家可以看看下面的柱状图趋势
+
+You can see that sharp Spike upwards
+
+你可以看到趋势明显的上扬
+
+Sadly we have over 20,000 Americans
+
+令人悲伤的是，疾控中心已经确认有超过
+
+The CDC tells us are permanently disabled after the vaccine
+
+两万美国人在注射疫苗后彻底失去行动能力
+
+That’s bigger than some major cancer group
+
+疫苗危害这远远超过了一些主要的癌症
+
+The disability that we are going to see
+
+我们看到的这种因注射疫苗
+
+due to these vaccines
+
+而造成的行动能力的丧失
+
+will go down in history
+
+会被写入历史
+
+as an unbelievable tragedy
+
+这是令人难以置信的悲剧
+
+I made a presentation to the Heritage Foundation in Washington
+
+我在华盛顿为遗产基金会做了演讲
+
+provides a lot of oversights to the House in the senate
+
+向国会议员们展示了很多有关的疏忽、过失
+
+as well as the agencies
+
+当然也包括他们的代理人
+
+And I made this presentation
+
+当我结束演讲时
+
+you could hear a pin drop when I was done
+
+全场鸦雀无声
+
+Finally, one of the former presidents of American Medical Association
+
+最终，一位美国医师协会前主席
+
+Doctor McCullough
+
+麦凯罗医生说到
+
+We have the biggest biological catastrophe
+
+我们正在经历人类历史上
+
+on our hands in human history
+
+最大的生物学灾难
+
+With the medicinal product, we’ve had two administrations buy into it
+
+是与医药产品有关的 我们已经有两届政府涉入其中
+
+We’ve had too all the houses of legislation buy into it
+
+我们所有的立法机构也参与其中
+
+We have the entire medical establishment buy into it
+
+所有的医疗卫生机构也是如此
+
+And the whole media
+
+还有全部媒体
+
+And no one knows how to stop it
+
+没人知道如何阻止它
+
+No one knows how to stop this freight train
+
+没人知道如何组织这列货车(疫苗注射危机)
+
+And we’re all witnessing it right now
+
+我们都在目睹它的发生!
+
+文字听写翻译：维京商人
+
+视频字幕：Kent
+
+编辑/发稿：Kent
+
+*免责声明：本文仅代表作者个人观点，与G-NEWS网站无关*

@@ -2,169 +2,59 @@
 ---
 
 
-## 彼得-麦卡洛博士：中共病毒疫苗是人类历史上最大的生物医药悲剧
-` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1591896/)
+## 美网络安全官警告：网络战我们没有竞争机会
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1591955/)
 
-What happened?
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-发生了什么呢?
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/P-4.jpg)crystalclearnews.com
+《塔克·卡尔森团队》（team tuckercarlson）发表文章，题目“美国网络安全官员辞职是因为‘我们没有与中共国竞争的机会’”。
 
-We now know that this early safety warning
+全文如下：
 
-我们知道杰西卡在同行评议中
+一名前国防部高级信息技术官员说，他辞职是因为美国几乎输掉了即将到来的对中共的网络战。
 
-in this peer review publication from Jessica Rose clearly failed
+尼古拉斯·查兰（Nicolas Chaillan）在周日（10月10日）英国《金融时报》（the Financial Times）公开的一次采访中表示：“15到20年内，我们没有机会与中共国展开竞争。现在，这已经是一笔完成的交易，在我看来，它已经结束了。”
 
-所提供的早期安全提醒已经彻底失败了
+查兰上个月辞职，称五角大楼让“懒散者”负责他们不具备专业知识的网络项目。
 
-Look how high those mortality the numbers were by April
+他在辞职信中说：“我们正在建立关键的基础设施，以防失败。”
 
-我们来看看今年四月份时的死亡人数
+查兰写道：“如果没有广泛的飞行训练，我们不会让飞行员进入驾驶舱。为什么我们会期望没有IT经验的人能取得成功？……当我们在官僚主义中浪费时间时，我们的对手却走得更远。”
 
-It clearly failed
+他说，他的大部分时间都花在“修复基本的云设备和笔记本电脑”上，而不是帮助美国跟上其网络竞争对手的步伐。
 
-这很显然是失败的
+在随后的“领英”（LinkedIn）周日（10月10日）发布的帖子中，查兰说他的话是为了警告。
 
-We had Americans dying.
+他写道：“对于那些看到这篇文章的人，我想澄清一件事，我从来没有说过我们输了，我说的是现在的情况，如果我们现在还不醒来，我们就没有机会在15年内战胜中共。”
 
-我们导致了美国人的死亡
+“我还说，他们现在在人工智能和网络领域处于领先地位，不像英国广播公司的一些报告所提到的那样，10年后就不会了。当然，政府资助的报告总是告诉我们，我们有比现在更多的时间，因此没有人会为错过已经过期的目标负责，这些只是常识性的事实。” 查兰说。
 
-That’s after vaccination
+他写道：“我们在这里与15亿人竞争，要么我们更聪明、更敏锐，要么我们就输了。”
 
-这是接种疫苗所导致的
+（文章链接了查兰的贴文）
 
-It was obvious!
+37岁的查兰于2018年作为美国空军的第一位首席软件官来到五角大楼，他指责一些联邦部门的网络保护处于“幼儿园级别”。
 
-这很明显！
+他说，美国在错误的地方花费了大量资金，在F-35战斗机等项目上投资了数十亿美元，而不是网络安全。
 
-This is an obvious data signal!
+他还指出，中共国可以利用其资源的所有力量，而在美国，谷歌等大型科技公司与联邦政府保持距离。
 
-这是非常明显的数据!
+退休空军将军罗伯特·斯伯丁（Robert Spalding）说，查兰的抱怨是“正当”的，在处理了“过时”的系统后，他转到了私营部门。
 
-This is obvious! all experts agree is obvious!
+美国国家安全委员会（National Security Commission on Artificial Intelligence）3月份的一份报告警告称，美国政府“不准备在即将到来的人工智能（AI）时代保卫美国”。
 
-太明显了! 所有的专家都一致认同!
+据《商业内幕》（Business Insider）报道，查兰在离职的“领英”（LinkedIn）帖子中表示，他对五角大楼不愿将网络战和保护作为一个关键问题感到失望。
 
-Now as of September 24th
+他写道：“我只是厌倦了不断地寻求支持和资金来完成我的工作，我的办公室今年和明年仍然没有场地，也没有资金。”
 
-今天是9月24日了
+（原文完）
 
-It’s raced up to 15,937 Americans has died
+美国立法者动辄就几万亿资金投入，债务上限又有新的突破，据称国防预算也很多，也有专门的应对中共的专项资金，特别是高科技领域，《2021战略竞争法案》论述的很清楚。快到年底了，美国联邦部门的网络保护仍处于“幼儿园级别”，堂堂的空军网络高官到明年还没有办公场地，没有资金，不得已辞掉了这份工作。资金哪去了？给大公司了？被亲共、通过力量截留、克扣了？现实情况就是专家没有工作场地、没有资金，辞职。开脑洞想吧！
 
-全国死亡数字到达了一万五千九百三十七人
+（文章仅代表作者个人观点）
 
-Over two hundred fifty thousand Americans
+原文链接：
 
-超过二十五万美国人
-
-After the vaccine has been hospitalized, gone to the Urgent Care or office visit
-
-在注射疫苗后住院、急救或寻求诊断
-
-You can see the temporal relationship on the bottom bar graph
-
-大家可以看看下面的柱状图趋势
-
-You can see that sharp Spike upwards
-
-你可以看到趋势明显的上扬
-
-Sadly we have over 20,000 Americans
-
-令人悲伤的是，疾控中心已经确认有超过
-
-The CDC tells us are permanently disabled after the vaccine
-
-两万美国人在注射疫苗后彻底失去行动能力
-
-That’s bigger than some major cancer group
-
-疫苗危害这远远超过了一些主要的癌症
-
-The disability that we are going to see
-
-我们看到的这种因注射疫苗
-
-due to these vaccines
-
-而造成的行动能力的丧失
-
-will go down in history
-
-会被写入历史
-
-as an unbelievable tragedy
-
-这是令人难以置信的悲剧
-
-I made a presentation to the Heritage Foundation in Washington
-
-我在华盛顿为遗产基金会做了演讲
-
-provides a lot of oversights to the House in the senate
-
-向国会议员们展示了很多有关的疏忽、过失
-
-as well as the agencies
-
-当然也包括他们的代理人
-
-And I made this presentation
-
-当我结束演讲时
-
-you could hear a pin drop when I was done
-
-全场鸦雀无声
-
-Finally, one of the former presidents of American Medical Association
-
-最终，一位美国医师协会前主席
-
-Doctor McCullough
-
-麦凯罗医生说到
-
-We have the biggest biological catastrophe
-
-我们正在经历人类历史上
-
-on our hands in human history
-
-最大的生物学灾难
-
-With the medicinal product, we’ve had two administrations buy into it
-
-是与医药产品有关的 我们已经有两届政府涉入其中
-
-We’ve had too all the houses of legislation buy into it
-
-我们所有的立法机构也参与其中
-
-We have the entire medical establishment buy into it
-
-所有的医疗卫生机构也是如此
-
-And the whole media
-
-还有全部媒体
-
-And no one knows how to stop it
-
-没人知道如何阻止它
-
-No one knows how to stop this freight train
-
-没人知道如何组织这列货车(疫苗注射危机)
-
-And we’re all witnessing it right now
-
-我们都在目睹它的发生!
-
-文字听写翻译：维京商人
-
-视频字幕：Kent
-
-编辑/发稿：Kent
-
-*免责声明：本文仅代表作者个人观点，与G-NEWS网站无关*
+[https://teamtuckercarlson.com/news/us-cybersecurity-official-resigns-because-we-have-no-competing-fighting-chance-against-china/](https://teamtuckercarlson.com/news/us-cybersecurity-official-resigns-because-we-have-no-competing-fighting-chance-against-china/)
