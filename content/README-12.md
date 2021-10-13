@@ -16,6 +16,10 @@
 ---
 ## 頁面 12/36 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [36](/content/README-36.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年3月27日一切美好再也回不到今天了](/content/2020/03/20200331-6998457737623230780.md)
+
+[文字版：2020年3月25日警示九千万党员不要成为皇帝死前的陪葬](/content/2020/03/20200328-980133680998762013.md)
+
 [文字版：2020年3月23日文贵警示好好活着，一年后再想着上班赚钱](/content/2020/03/20200325-1518205290434863780.md)
 
 [文字版：2020年3月21日绝不允许维奸再次绑架新疆同胞](/content/2020/03/20200325-7072048714867304434.md)
@@ -61,10 +65,6 @@
 [文字版：2020年2月18日郭文贵先生直播警醒同胞2月29日是武汉疫情的分水岭，别上班，躲深山!](/content/2020/02/20200220-6957915304895832685.md)
 
 [文字版:2020年2月15日文贵告诉战友们一定要耐心在家健身健心，会有解药的！CCP灭了车贷房贷不用还了！](/content/2020/02/20200218-4076658468529416877.md)
-
-[文字版：2020年2月14日文贵试直播谈GTV的武汉疫情视频免费用，战友不树敌只为灭共](/content/2020/02/20200216-8326399150836754935.md)
-
-[文字版：2020年2月12日文贵谈一切都听党的走向火葬场](/content/2020/02/20200214-4470688033484197678.md)
 
 
 ## 頁面 12/36 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [36](/content/README-36.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)

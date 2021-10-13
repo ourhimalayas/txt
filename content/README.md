@@ -16,6 +16,10 @@
 ---
 ## 頁面 1/36 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [36](/content/README-36.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
 
+[郭文贵先生2021年10月12日盖特视频（下）（9分57秒）全文字版](/content/2021/10/20211012-1590737.md)
+
+[郭文贵先生2021年10月12日盖特视频（上）（9分59秒）全文字版](/content/2021/10/20211012-1590712.md)
+
 [2021年10月10日郭文贵先生直播全文字版](/content/2021/10/20211010-1588173.md)
 
 [2021年10月7日 郭文贵先生直播 全文字版](/content/2021/10/20211007-1582001.md)
@@ -61,10 +65,6 @@
 [2021年9月13日郭文贵先生送小郑州雪茄盖特全文字版](/content/2021/09/20210913-1561743.md)
 
 [2021年9月13日郭文贵先生做健腹轮盖特全文字版](/content/2021/09/20210913-1561708.md)
-
-[2021年9月12日郭文贵先生直播全文字版](/content/2021/09/20210912-1530781.md)
-
-[2021年9月12日郭文贵先生签名送小郑州雪茄盒子全文字版](/content/2021/09/20210912-1563739.md)
 
 
 ## 頁面 1/36 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [36](/content/README-36.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)

@@ -16,6 +16,10 @@
 ---
 ## 頁面 33/36 [**<**](/content/README-32.md) [1](/content/README.md) ... [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) **33** [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [**>**](/content/README-34.md) [查看全部](/content/README-all.md)
 
+[路透社：美国国会催促要求中国记者注册为特工](/content/2018/04/20180418-1850311727870023205.md)
+
+[自由灯塔：美国之音因为一个有争议的采访解雇了三名员工](/content/2018/04/20180418-4898378291964960909.md)
+
 [国际新闻工作者协会盯上了VOA断播并解雇三位员工事件](/content/2018/04/20180418-6885559451730743203.md)
 
 [（文字稿）郭宝胜访谈曹长青：永不放弃——如何看待郭文贵的现状与未来](/content/2018/04/20180418-197797650669402457.md)
@@ -61,10 +65,6 @@
 [文字版 郭先生10月27报平安](/content/2018/04/20180418-1204915936908036259.md)
 
 [2017年10月26日郭文贵直播十九大后爆料计划](/content/2018/04/20180418-5280457825220252571.md)
-
-[翻译：自由灯塔：美国社交媒体堵嘴中国异议人士](/content/2018/04/20180418-8757739535920514791.md)
-
-[翻译：《华盛顿时报》塞申斯威胁要因中国异议人士而辞职](/content/2018/04/20180418-7145054021115241529.md)
 
 
 ## 頁面 33/36 [**<**](/content/README-32.md) [1](/content/README.md) ... [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) **33** [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [**>**](/content/README-34.md) [查看全部](/content/README-all.md)

@@ -16,6 +16,10 @@
 ---
 ## 頁面 13/36 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [36](/content/README-36.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年2月14日文贵试直播谈GTV的武汉疫情视频免费用，战友不树敌只为灭共](/content/2020/02/20200216-8326399150836754935.md)
+
+[文字版：2020年2月12日文贵谈一切都听党的走向火葬场](/content/2020/02/20200214-4470688033484197678.md)
+
 [文字版： 2020年2月10日请战友们保存让你上班的证据，大家行动起来！](/content/2020/02/20200212-3562611532085874008.md)
 
 [文字版： 2020年2月8日文贵第二次直播谈美国专家确定武汉病毒来自中共实验室制造](/content/2020/02/20200210-4272958490110900794.md)
@@ -61,10 +65,6 @@
 [文字版：2020年1月19日文贵爆惊天新闻——中美协议是卖港交易](/content/2020/01/20200121-9098198645527028408.md)
 
 [文字版：2020年1月18日文贵谈刘鹤招待会取消预示着什么，爆料革命击中了中共的所有要害](/content/2020/01/20200120-5512396279941051665.md)
-
-[文字版：2020年1月17日文贵谈中美贸易战内幕：中美贸易协议为何一定是滑稽的结局](/content/2020/01/20200119-3958906328707892329.md)
-
-[文字版：2020年1月15日郭先生第二次直播:谈中共在白宫签署2020庚子协议，不让中国人知道的秘密](/content/2020/01/20200117-3671117697820424397.md)
 
 
 ## 頁面 13/36 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [36](/content/README-36.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)
