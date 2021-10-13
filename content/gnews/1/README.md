@@ -2,139 +2,37 @@
 ---
 
 
-## 中国统计局完全是按中共的指示来统计的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1592250/)
+## 前情报官员质疑拜登对中台敌对行动毫无准备
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1592310/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/77-a71ie-wzywl.jpg)
-[https://gtv.org/video/id=6166fd50d2e2b8174874be81](https://gtv.org/video/id=6166fd50d2e2b8174874be81)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**郭文贵**
-**Miles Guo**
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/A-5.jpg)yoninetanyahu.com
+《新闻纵横》发表文章，“里克·格雷内尔（Ric Grenell）：政府对中共等其它问题毫无准备”。
 
-你比如说我现在告诉你
-Por ejemplo, ahora te puedo decir
+全文如下：
 
-就是中国最重要的两个数据　
-Los dos datos más importantes de China
+拜登政府还没有准备好应对世界各地正在发生的事情，更不用说如果中共和台湾之间的敌对行动升级会发生什么，前大使兼国家情报局代理副局长里克·格雷内尔（Ric Grenell）周二（10月12日）在《新闻纵横》上说。
 
-所有统计局
-Todas las Oficinas de Estadística
+格雷内尔与前国防部长副助理安珀·史密斯（Amber Smith）一起出现在了《新闻纵横》的《约翰·巴赫曼现在》（John Bachman Now）节目中，他评论说：“在乌克兰，我们看到10万俄军驻扎在边境上，他们没有为也门发生的事情做好准备，他们没有为叙利亚发生的事情做好准备，因为俄罗斯接管并试图操纵整个地区。”
 
-你记住统计局里边的关键人
-Recuerda las personas cruciales de estas oficinas
+他继续说，如果再加上中共和台湾，外交手段可能不足以避免危险。
 
-现在极大部份都是七哥的人
-Ahora la mayoría son gente mías
+格雷内尔说：“你知道，我在国务院工作了11年，我是一名外交官，我将尽我所能解决这些问题，
 
-还以河南人为主
-Y básicamente son personas de Henan
+我非常欣赏五角大楼的一件事是，他们谈论军事行动威胁与可信的军事行动威胁之间的区别。美利坚合众国需要可信的军事行动作后盾，当我们在谈判时，这将有助于坐在谈判桌旁的外交官，我们就能做到不战以屈人之兵。”
 
-统计局里面　
-Dentro de la Oficina de Estadística
+格雷内尔还呼吁国务院进行改革，有些外交官“运用’秀肌肉’的外交手段。”
 
-统计数据主要两个
-Principalmente, en los datos de la estadística son dos
+与此同时，史密斯说，美国对中共国的依赖到了“完全失控”的地步。她说：“任何与我们国家安全有关的事情都应该禁止进入中共国，不幸的是，就我们的供应链而言，这现在几乎是不可能的，但它只是向你展示了我们与中共国的联盟有多深，有这么多东西，这完全失控了，我们需要意识到，我们对中共国的依赖正在损害我们自己的国家安全。”
 
-人民银行还有一个海关
-El Banco Popular de China y la Aduana
+（原文完）
 
-因为海关涉外, 你造不了假
-Porque la aduana tiene relación con el exterior y por eso no puedes falsificar
+文章虽然不长，的确反映了美国高层一部分人对中共的了解，对美国现状的担忧，以及对拜登无能的质疑a。如果对邪共的认知再提高一些，或许就能理解拜登政府的所作所为，就能清楚参谋长联席会议主席为何瞒着总司令与中共进行“通敌电话”，就能解释情报机构出台的病毒溯源报告为何撇清了与中共的关系，还有文贵先生近来多次强调的司法黑幕等。这就是美国乃至西方，甚至整个世界的现状，邪魔中共的渗透无所不在，要员、要害部门都是重灾区。所以灭共的重要环节就是觉他，让西方、世界彻底认清中共对本国的渗透，文贵先生已经启蒙世界近5年了，大大地阻击了邪恶，并引领世界向反击、消灭中共等罪恶势力的方向发展。战友们紧跟文贵先生，加油！
 
-造假你只能30%, 50%
-Si lo haces, es solamente el 30% a 50%
+（文章仅代表作者个人观点）
 
-超过100%是很难的
-Es difícil superar los 100%
+原文链接：
 
-超过一倍
-Superando el doble
-
-再一个人民银行
-Luego es el Banco Popular de China
-
-它有一些外汇
-Él tiene algunas divisas
-
-特别是印钞票
-Especialmente, la impresión de los billetes
-
-特别是中国的货币是双轨制
-Y la moneda de China es un sistema de doble vía
-
-海外一块儿, 国内一块
-Una parte es el extranjero y la otra es dentro del paìs
-
-它是有数据可以参考的
-Tiene datos de referencia
-
-它造假超过几倍是不可能的
-Es imposible falsificar muchas veces
-
-所以统计局改的
-Por eso lo que cambia de la Oficina de Estadística
-
-中国的统计局是领导让你多少就多少
-Es que debes poner los datos que te diga el líder
-
-不用任何问的
-No necesitas preguntar
-
-你们无法想像
-No se imaginan
-
-就统计局最后到一个叫审计局里边的一个叫审计专员
-En cuanto a la Oficina de Estadísticas, la última se llama comisionado de auditoría
-
-专员就是里边的一个实际的局级干部
-El Comisionado es el cuadro real a nivel de oficina
-
-局级干部是每天接收到
-El cuadro a nivel de oficina recibe todos los días
-
-到时候中央领导给你个数
-Cuando llegue el momento, la dirección central te dice un número
-
-你就按这个填去
-Entonces lo llenas de acuerdo a eso
-
-另外一个最核心就是海关
-Y el otro núcleo es la aduana
-
-它就是接收海关人民银行的(数据)
-Él recibe los datos del Banco Popular de Aduanas
-
-它叫政治数据
-Se llama datos políticos
-
-它不可能有任何时候
-Este en ningún momento
-
-全向外国一样(把)公开的信息
-Anucia las informaciones al público como los otros países
-
-在全省各部门(的数据)弄上
-Subir (datos) en todos los departamentos de la provincia
-
-不可能的
-Es imposible
-
-————————————————————
-
-**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1446019519353274369?s=24](https://twitter.com/se1y7cblljselva/status/1446019519353274369?s=24)
-
-日期：10/11/2021
-原视频日期：10/07/2021
-任务编号：KC166（2472）
-视频时间段：0:00-1:27
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[https://www.newsmax.com/newsmax-tv/ric-grenell-amber-smith-china-biden/2021/10/12/id/1040195/](https://www.newsmax.com/newsmax-tv/ric-grenell-amber-smith-china-biden/2021/10/12/id/1040195/)
