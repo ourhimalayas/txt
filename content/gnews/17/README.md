@@ -2,46 +2,198 @@
 ---
 
 
-## 爆料革命也是医疗革命
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1591159/)
+## 习被玩得团团转，被做掉的可能性大于一切
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1591251/)
 
-撰稿：电流声
-![](https://assets.gnews.org/wp-content/uploads/2021/10/131-2.png)图片来自网络截图
-爆料革命是在七哥带领下改变全人类的革命！“革命”二字，真正意思是顺天意，以多数人利益为本。但是后来，不要脸的媒体把这个词弄得血腥暴力。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2447.png)
+[https://gtv.org/video/id=616642bdd2e2b81748749723](https://gtv.org/video/id=616642bdd2e2b81748749723)
 
-我们已经知道七哥带领的爆料革命是在金融、人的认知、思想及人类社会合理组建上的革命。
+许家印现在能把习给玩死
+Ahora Xu Jiayin puede jugar a Xi hasta la muerte
 
-不过，我今天想讲一下，爆料革命同时也是医疗上的革命。
+你想许家印能让共产党现在跪下来帮他擦屁股
+Piensa que Xu Jiayin puede hacer que el PCCh se arrodille delante de él para que le limpie el trasero
 
-全球医疗行业市值到 2022 年将达到 119,089 亿美元，接近12万亿美元。
+你觉得共产党真的伟大吗
+¿Crees de verdad que el PCCh es grandioso?
 
-“12万亿”以一年为单位，它是什么概念？超过美国一半的GDP，这里面的一大块儿蛋糕是哪些家族吃了呢？为什么世界都被华尔街控制（华尔街的老大是医药公司）？为什么可以说只手遮天？
+就美国这个国家的腐败
+Con sólo la corrupción de Estados Unidos
 
-2019年美国政府用了GDP17.7%，用在了医疗领域；2020年到了18%（20.94万亿美元的18%=3.76万亿美元一年）。这只是美国，还有全球。他们只要游说政客，各国税收都可以随便买药和买与医疗相关的东西。 “12万亿”以一年为单位是多少个国家加起来的GDP！然而，就掌握在几个家族手里。
+让华尔街给驾驭
+Es controlado por el Wall Street
 
-难到这么多的钱，真的“用”得其所吗？
+就被一个小鳖三儿强奸
+Violado por una pequeña tortuga
 
-我们来看一下，本来几毛钱一粒的伊维菌素和羟氯喹就可以治疗好的新冠病毒，却硬要推疫苗。一个疫苗约$0.6-$0.8，却卖$25-38美元。打完疫苗之后引起的心脏病、癌症、通血管、皮肤等各种病的医疗开支，可能带出数十万美元的生意，而初始投入仅几毛钱。但不可思议的是他们赚的钱，是在消耗健康人的生命和财产，不只是他个人的，还有很多纳税人的血汗钱；还有死亡、丧葬等费用。也就是说，几个大家族利用所谓文明现代的国家管理制度，偷窃所有人的钱并拿了这些人的命作为媒介，达到他们致富的目的，疫苗的原理也是一样。以你的身体作为中介，消耗、卖疫苗、卖心脏药、卖癌症药赚钱。
+这边屁股上打着吗啡
+Inyectando morfina en una nalga
 
-以癌症举例来说：
+强奸着美国年轻力壮女
+Violando las muchachas jóvenes y fuertes
 
-2021年，全球肿瘤领域支出预计将达到1870亿美元左右。到 2025 年，该市场的支出预计将增加到约 2730 亿美元。但这些钱可不是治好病用的，他们希望你永远不好，永远吃药，这才是他们的生财之道。太多例子了，癌症只是其中一个。还有艾滋病，糖尿病，血管病等等。
+然后美国人还说他伟大
+Luego los estadounidenses dicen que ellos son grandiosos
 
-为什么说屠呦呦女士是未来很伟大的人？以上的各种疾病，一种青蒿素就搞定了，如果有了青蒿素的应用和推广，人类的寿命会大大延长。不妨设想一下，到时候只会用到治疗癌症费用的千分之一？还是万分之一？！我们人类医疗费用及质量会是怎么样的飞跃啊！多余的钱可以做太多科技及医疗干细胞的研究了。
+扭头一看
+Cuando volteas a ver te das cuenta
 
-为什么干细胞研究进展缓慢？说白了，就是动了大医药公司的奶酪。这是数以万亿全球的生意？！然而，爆料革命就是打破这一闷局的，其中最重要的力量之一。虽然要打爆这些力量是非常难的，因为根很深。但是，如果不把华尔街摧毁，不把恒大，假房地产，假银行，假借贷摧毁，我们是没有未来的。革命就是打破固有陈旧的规则，所以我们也是金融革命。我们可以改变思维，可以把这些巨大的力量变得和我们同一个方向，为人类造福，而不是和以前一样拿75亿人的身体来赚取利润。
+就是一个打着吗啡的一个混蛋玩意儿
+Que es sólo un idiota con morfina inyectada
 
-如果把全球医疗这“12万亿”的70-80%钱释放出来，把人类的健康释放出来，再把这些钱分到其他领域，人类会是一个怎样的发展？！人类的文明科技进步和人的健康和寿命是分不开的，试想一下，如果75岁人逝去，经验及学识长埋土里了，只能由新一代重新开始；如果寿命可以到130岁，这些宝贵的经验就可达到几何级增长的应用及裂变。何况，现在又有生物芯片记忆，人类将会真正进入下一个新纪元。
+共产党是个假老虎、纸老虎流氓下三滥
+El PCCh es un tigre falso, de papel y malandro despreciable
 
-不过我们应该认识到，人类的跨时代的跳跃需要的东西太多了。首先，要改变这世界不合理的医疗规则，腐败贪婪的政府结构，毒害全球人心的共产主义，一直靠骗的金融系统，以及胡扯的宗教制度……回归到人与自然、与上天，和谐浑然天成的美好状态。
+什么恒大
+Qué Evergrande Group
 
-所以，爆料革命是医疗革命，是思想革命，是金融革命，是科技革命，是生物科学革命，是人类管理学革命，是航空革命……是人类物种进化到新世界革命。
+什么8.5万亿的地方债务
+Qué deuda local de 8,5 billones
 
-（本文仅代表个人观点，与GNEWS无关）
+他们根本没搞清楚地方债务
+Ellos no comprenden sobre la deuda local
 
-*编辑&发稿：MG1*
+你看所有的报导（关于）地方债务
+Todos los reportajes (referentes) a la deuda local
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+七哥最早2017说地方债务
+Yo en el 2017 ya decía sobre la deuda local
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+我告诉你
+Yo te digo
+
+地方债务恰恰不是共产党的软肋
+La deuda local justamente no es la debilidad del PCCh
+
+共产党的软肋就是房地产和金融
+La debilidad de ellos es la inmobiliaria y la finanza
+
+他（华尔街这帮人）根本没搞明白
+Él (esa gente del Wall Street) no han entendido
+
+被共产党给吓成这个德性
+Y son asustados por el PCCh
+
+帮助他们（CCP）奴役我们中国人民
+Ayudando a ellos (PCCh) a ser esclavos del pueblo chino
+
+但凡你了解中国共产党这帮流氓嘴脸
+Los que saben de la pinta de malandros que tiene el PCCh
+
+你就不会被他忽悠
+No serás jugado por él
+
+所以说兄弟
+Por eso hermano
+
+今天你看到这些资产在海外的时候
+Todos los activos que ves hoy en día en el extranjero
+
+我们要追回的资产
+Nosotros lo vamos a perseguir de vuelta
+
+就是要找到这些国家控制
+Hay que encontrar el control de estos países
+
+这些江志成的最终持股结构的最终公司
+Estas empresas de estructura accionaria final de Jiang Zhicheng
+
+证明他的非法性
+Hay que comprobar su ilegalidad
+
+把这些东西归还给人民
+Y regresar esas cosas al pueblo
+
+还有把它这些控股持有的资产
+Y todas las acciones y capitales
+
+变现或者控制（权）还给中国人民
+Cambiarlo a efectivo o devolver el dominio al pueblo chino
+
+还有海外一些
+Y algunos del extranjero
+
+像王岐山抓周永康
+Como el arresto de Wang Qishan a Zhou Yongkang
+
+这个所有的案子，就是石油细节
+Todos estos casos son detalles del petróleo
+
+在瑞士银行一个帐号都几十亿美元
+En un banco de Suiza puede haber billones de dólares en una cuenta
+
+王岐山直接（把帐户名字）改成孙瑶了
+Wang Qishan cambia directamente (el nombre de la cuenta) a Sun Yao
+
+这小子胆太大了
+Este chino sí que es atrevido
+
+直接改成孙瑶了
+Directamente lo cambió a nombre de Sun Yao
+
+而且这个事听说习亲自批示啊
+Además, dicen que este asunto es bajo las instrucciones de Xi
+
+到瑞士银行都挨个谈
+Han preguntado uno por uno en el banco de Suiza
+
+银行说没有（这回事）
+El banco dice que no existe (este asunto)
+
+你知道为啥呀
+Sabes por qué
+
+这就是习可怜的地方
+Esto es lo lamentable de Xi
+
+江志成牛的地方
+Y lo grandioso de Jiang Zhicheng
+
+孙瑶用的是多层结构
+Sun Yao usó la estructura multicapa
+
+他当然不用孙瑶持股了
+Él obviamente no dejaría que Sun Yao obtuviera acciones
+
+就这个共产党习近平搞不定
+Con sólo este partido comunista Xi no lo logra resolver
+
+你觉他能怎么着
+Cómo crees que será su resultado
+
+他就是吓唬美国
+Él lo que hace es asustar a Estados Unidos
+
+吓唬台湾有本事
+Tiene habilidades asustando a Taiwán
+
+他别的没本事
+Del resto no sabe nada
+
+所以说这个现在鹿死谁手真不一定
+Por eso se dice que aún no se sabe en manos de quién se muere el ciervo
+
+真不一定
+De verdad no se sabe
+
+现在很有可能，我觉得习被做掉的可能性大于一切
+Ahora es muy probable, siento que la posibilidad de que Xi sea asesinado es más grande que cualquier cosa
+
+* * *
+
+日期：10/11/2021
+原视频标题：习被玩得团团转，被做掉的可能性大于一切
+Xi ha sido un idiota engañado, la probabilidad de ser asesinado es más grande que cualquier cosa
+原视频日期：10/06/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1445708238041673729?s=24](https://twitter.com/se1y7cblljselva/status/1445708238041673729?s=24)
+任务编号：KC164（2447）
+视频时间段：0:00-2:01
+西听校：洛杉矶盘古农场-小文萱
+翻译：洛杉矶盘古农场-霙霙（文霙）
+翻译终校：洛杉矶盘古农场-小文萱
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

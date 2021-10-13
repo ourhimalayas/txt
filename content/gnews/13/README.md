@@ -2,43 +2,53 @@
 ---
 
 
-## 网络封锁山西水灾呼救声难出省
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591233/)
+## 九月新冠死者几乎均完全接种疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1591335/)
 
-作者：安吉拉
+【简评】***由于COVID-19疫苗包含纤突蛋白和其它未知毒素，人体免疫系统会因此遭到不同程度的破坏。疫苗出现前后的感染病例数据对比表明，疫苗并不能避免新冠病毒的感染或传播，而且疫苗在今年夏天和初秋还增加了接种人群住院和死亡的风险。寒冬将至，情况愈发不容乐观。我们呼吁民众深入了解和积极传播疫苗真相。***
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据《新闻目标》作者：Ethan Huff 2021年10月10日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2496.png)图片来源：《新闻目标》
+英国国家统计局 （The Office for National Statistics (ONS)）发布的一组数据显示，在9月份检测新冠病毒(Covid-19)呈阳性后死亡的人群里，81%有按照政府的指导方针完全接种疫苗。
 
+仅在英国，9月份就有大约30,305人在接种了新冠疫苗后的21日内死亡。这是英国国家统计局无意中承认的，而它此前曾告诉好奇的人“他们不掌握这些信息”。
 
+事实证明，他们其实有掌握这些信息但不愿意公开，因为它破坏了政府和医疗系统之间的所谓“‘福奇流感’（Fauci Flu）疫苗是‘安全有效’”的主流说法。
 
-山西多地连日强降雨，民众靠有限援助和自救生存作战。中共式“长反射弧”防汛慰问姗姗来迟，只谈防汛和灾区重建。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1013AM（1、5）視頻備用.001-1.jpeg)
-河南人祸水灾尚不足百日，山西省近日强降雨引致山体滑坡、道路中断，列车停运。数个村庄整体进水无人报道，人员伤亡范围比河南事件更大，近日又遇寒流预警，部分地区地面温度下降至0 ℃以下，救灾困难加重。
+自由人类（Humans Are Free） 网站报道，“英国国家统计局曾经愚弄公众，让他们相信只有1%完全接种疫苗的人死于新冠，而不包括已经和正在发生在这极其奇怪的第三波新冠疫情死亡病例”。
 
-中共统治下，面对责任党派推搡，各级政府采用掩盖方式，并启动网络控制，导致受灾地区民众发出的现场影像和灾情进展无法跨出地方局域网，阻断民间跨省援助。直至11日，中央财政部才向山西、陕西两省拨款救灾资金8千万元，即使真正可以下放到受灾家庭，每户所得也将寥寥无几。
+“说它奇怪，是因为新冠死亡人数相比去年同期仍然高出了很多倍，尽管夏天的天气对我们有利，而且据称疫苗有效率为95%。”
 
-回想起三年大饥荒，和今年中共官宣伪造的所谓“极端天气”，山西此次“罕见秋汛”是又一桩人祸，中共统治下的经济和建设及管理漏洞再次暴露无遗。
-(本文仅代表作者观点)
+一年前，在疫苗被投放到市场之前，与新冠病毒相关的死亡人数几乎呈平线状态。
 
-参考链接：
+然而今年，世界范围的新冠病毒的新“病例”激增。 数字如此之高，以至于自由人类（Humans Are Free）网站报道说，这是“在疫苗有效率为95%情况下，你会在今年冬季中期看到的情况。”
 
-1. [山西省**➕** 人祸水灾**😰😰**](https://gettr.com/post/pdvvhh3793)
-2. [山西省延安市**➕** 人祸水灾**😰😰**](https://gettr.com/post/pdu1p574c1)
-3. [中共疯狂要打台湾之际，中共龙兴之地延安最近持续特大水灾人祸](https://gettr.com/post/pdtc8611c1)
-4. [中共在山西的人祸传出来真实的信息的比几个月前河南人祸时期要少。](https://gettr.com/post/pdu3vr1aed)
-5. [山西省委书记部署，省长赴一线检查指导防汛救灾](http://news.stnn.cc/china/2021/1011/909851.shtml)
-6. [山西通报：洪灾造成至少十五人死亡和重大经济损失](https://www.voachinese.com/a/floods-cause-15-deaths-in-Shanxi-northern-China-20211012/6267421.html)
+寒冬将至：完全接种疫苗的人会发生什么呢？
 
+疫苗的有效率很明显并不是95%，除非“有效”意味着有效伤害和杀死大多数注射疫苗的人。也许这就是这场“有预谋的病毒大流行”（plandemic）（注：英文把“计划”一词嵌入“病毒大流行”词中）的真正目标，它显然从来都不是关于“拉平确诊人数曲线”的“拯救生命”——当然，除非人类是“曲线”（他们想把人类的数量削减）。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+在这种情况下，世界人口（曲线）确实正在以极快的速度被夷为平地，而数百万人却还是不明白发生了什么事，因为他们的刻意无知，以及盲目相信政府会在某种程度上代表他们的最大利益。
 
-编辑/校正/发稿：我不在这里
+不仅新冠死亡病例绝大多数发生在完全接种疫苗的人中，而且绝大部分的新增感染病例也是如此。换句话说，现在唯一仍受新冠病毒问题困扰的人，几乎就是那些接种了疫苗的人。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+周复一周，医院里挤满了成批正在生病或即将死亡的已完全接种疫苗的人，因为他们的免疫系统被疫苗里的纤突蛋白和其它神秘毒素毁坏了。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这是任何人都可以查看的数据。任何声称支持“科学”的人，如果他们在谈到普遍遵守新冠病毒疫苗接种的“新常态”（反常的现实正逐步变为常态）时，继续相信福奇（Tony Fauci）和 CNN 之类的观点，那都是在自欺欺人。
+
+“数据清楚表明，接种疫苗不能预防感染或传播，而且即使在夏季和初秋，疫苗也在增加住院和死亡的风险，而不是降低风险。”自由人类（Humans Are Free）网站报道，并指出这一切都发生在夏天，而夏天的疾病和死亡人数应该是最少的。
+
+“我们现在面临的问题是什么呢？冬天就在眼前了。”
+
+欲查询最新的因新冠疫苗而伤亡的人数，请至ChemicalViolence.com
+
+文章来源：[https://newstarget.com/2021-10-10-nearly-all-covid-deaths-september-fully-vaccinated.html](https://newstarget.com/2021-10-10-nearly-all-covid-deaths-september-fully-vaccinated.html)
+
+文章点评仅代表个人观点
+
+翻译/评论：洛杉矶盘古农场 – maru
+校对：洛杉矶盘古农场 – 柯镇恶
+编辑：洛杉矶盘古农场 – 柯镇恶
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,43 +2,108 @@
 ---
 
 
-## 打了疫苗后医生建议做哪些检查？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1591137/)
+## 江志成绝对想当太上皇
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1591219/)
 
-撰稿：Skagen【㊙️翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/WhatsApp-Image-2021-10-10-at-2.22.54-PM-1.jpeg)
-图片来源：圣母院钟声 Eglise Bell
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2446.png)
+[https://gtv.org/video/id=61664218d2e2b817487496e8](https://gtv.org/video/id=61664218d2e2b817487496e8)
 
-打了疫苗后，人们都比较迷茫，到底身体有了那些变化？风险在哪里？香草山农场《医疗卫生》组医生战友们建议做以下三项医学检查：
+江志成绝对是想当太上皇的
+Jiang Zhicheng definitivamente quiere ser el emperador
 
-🚩​凝血五项检验​：​包含D-二聚体和其他凝血功能指标​， 排除血栓​的风险。​
+你们千万别忘了啊
+No se les vaya a olvidar
 
-🚩 心肌酶谱​（ 心酵素​） 的检查：排除心肌炎/心包炎的风险。
+王力科、裴文正
+Wang Like, Pei Wenzheng
 
-🚩免疫系统细胞功能检查：​CD淋巴细胞（CD4+T、CD8+T）、自然杀伤细胞（natural killer cell，NK）、中性粒细胞​，检测免疫系统损害问题。
+包括这个现在的博政华
+Incluyendo este Fu Zhenghua
 
-衷心感谢美国香草山医疗部战友们和香草山《医学视角》节目的嘉宾们，欢迎战友们去订阅他们的节目《MOS TALK香草山访谈》，关注《医学视角》每周日的节目。
+傅政华跟着习
+Fu Zhenghua le sigue a Xi
 
-我们有专业的医生无私的帮助，我们有联盟的《病毒防护方案》和关键的《疫苗排毒方案》，以及病后的《治疗方案》，还有郭先生组织全球农场早早备好的药品，有世界最顶级科学家的强大支持，还有G系列保驾护航。在全球一片乱象中，我们稳稳坐在了文贵先生打造的安全舒服的诺亚方舟上，我们是全世界最幸福的人，无法用语言表达感恩激动的心情，借用狄更斯在《双城记》的名言：
+但是绝对骨子里边是相信江家
+Pero dentro de él cree en la familia Jiang
 
-这是最好的时代，这是最坏的时代；
+代言人是江志成
+El portavoz es Jiang Zhicheng
 
-这是智慧的时代，这是愚蠢的时代；
+然后孙力军、孟建柱、王岐山
+Luego Sun Lijun, Meng Jianzhu, Wang Qishan
 
-这是信仰的时期，这是怀疑的时期；
+像康典、像周亮
+Como Kang Dian, Zhou Liang
 
-这是光明的季节，这是黑暗的季节；
+曾庆红、曾伟全家100%是认可江志成
+Zeng Qinghong, toda la familia de Zeng Wei cree y aceptan a Jiang Zhicheng al 100%
 
-这是希望之春，这是失望之冬；
+是祖传，是扶持江志成的
+Es ancestral, es el apoyo de Jiang Zhicheng
 
-人们面前有着各样事物，人们面前一无所有；
+江志成绝对是江（泽民）还有曾和王岐山都认可
+Jiang Zhicheng definitivamente es reconocido por Jiang (Zemin), Zeng y Wang Qishan
 
-人们正在直登天堂，人们正在直下地狱。
+习只能干五年（就）滚蛋
+Xi sólo puede trabajar 5 años y se va
 
-（本文仅代表撰稿者个人观点）
+然后下一个人是他来选的
+Y la próxima persona será escogido por él
 
-参考链接：
+下一个就是他选的
+El próximo lo escoge él
 
-香草山《医学视角》节目链接如下：
+这绝对是他想的
+Esto definitivamente es lo que él piensa
 
-[https://gtv.org/video/id=61631739304e992109b31ef6](https://gtv.org/video/id=61631739304e992109b31ef6)
+要不然你想想
+O sino piensa tu
+
+中国你给我说吧
+Háblame de China
+
+所有最争钱的微信、腾讯
+Dentro de todos los que tiene más ganancia como WeChat, Tencent
+
+滴滴打车、蚂蚁金服、平安
+DiDi Dache, Ant Group, Ping An Insurance
+
+上海银行、上海久事、兴业银行
+Banco de Shanghai, Shanghai Sharks, Banco Industrial
+
+几大地产商哪个不是江志成控股
+¿Cuál de los principales desarrolladores inmobiliarios no son administrados por Jiang Zhicheng?
+
+你给我找一个出来
+Búscame uno
+
+所以说习的最大敌人是谁
+Por eso cuál es el enemigo más grande de Xi
+
+是王岐山、是江志成
+Es Wang Qishan, es Jiang Zhicheng
+
+是曾庆红
+Es Zeng Qinghong
+
+孟建柱和孙力军是在这儿要弄死习
+Meng Jianzhu y Sun Lijun quieren matar a Xi
+
+* * *
+
+日期：10/11/2021
+原视频标题：江志成绝对想当太上皇
+Jiang Zhicheng definitivamente quiere ser el emperador
+原视频日期：10/06/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1445639678980280321?s=24](https://twitter.com/se1y7cblljselva/status/1445639678980280321?s=24)
+任务编号：KC163（2446）
+视频时间段：0:00-1:14
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

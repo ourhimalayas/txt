@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/13/2021 2:07 PM (UTC)`
+
+西方外汇入中知多少、再谈疫苗台湾房地产
+![img](https://media.gettr.com/group16/origin/2021/10/13/13/c7bb1497-4dd4-3010-0e30-363a3ff374fc/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 10/13/2021 2:25 AM (UTC)`
 
 10/12/2021 Miles Guo’s GETTR: The “hot money” in the world all went to the Darknet, and energy and commodity prices will rise first and then fall. The accomplices of the COVID vaccine disaster will pay their price. With more and more people waking up, COVID vaccination cannot be pushed anymore. This shows the power of the Whistleblowers' Movement and the New Federal State of China!<br/><br/>10/12/2021 文贵盖特：全世界的热钱都去了暗网，能源和大宗商品的价格将先涨后跌；疫苗灾难的帮凶都将付出代价，而越发多的人在觉醒，打疫苗也无法再推行下去，这就是爆料革命、新中国联邦的力量！
@@ -287,13 +294,6 @@ Taiwan is in great danger: Xi Jinping addresses the 110 years anniversary of Xin
 
 10/08/2021Miles Guo’s GETTR: The West and the Jiang faction are waiting for something to happen to Xi; The fundamental goal of the Sino-US meeting in Switzerland is to fool Xi Jinping so he won’t invade Taiwan and to make the CCP buy the US Treasury securities; Both the CCP and the US are playing with fake politics and economy, while Taiwan and the Lao Baixing will be sacrificed<br/><br/>10/08/2021 文贵盖特：西方和江派都在等着习出事；中美瑞士会谈的根本目的是糊弄习近平不打台湾并让中共买美国国债；中共和美国都在玩假的政治和经济，而被牺牲的却是台湾和老百姓<br/>
 ![img](https://media.gettr.com/group8/getter/2021/10/09/04/06/cdb6be07-0a0d-20cf-ce97-2a7bac895ea3/out.jpg)
-
----
-
-`@miles 10/9/2021 3:42 AM (UTC)`
-
-10/08/2021 Miles Guo’s GETTR: This world is changing so quickly and dramatically, Facebook, WhatsApp & Instagram is experiencing internal management and technical disasters; Mark Zuckerberg’s sins and crimes run deeply, and it’s not too much to call him “Zucktler” (Hitler)<br/><br/>10/08/2021 文贵盖特：世界变化太快了，Facebook、WhatsApp、Instagram正经历内部管理和技术的大崩溃；扎克伯格罪孽深重，称其为“渣特勒”也不为过<br/>
-![img](https://media.gettr.com/group50/getter/2021/10/09/03/42/bf0a9ba7-a233-8c84-6623-0ef8ff397f3c/out.jpg)
 
 ---
 

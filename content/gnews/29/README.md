@@ -2,45 +2,36 @@
 ---
 
 
-## 佛罗里达州机场周五因“天气和人员短缺”而出现延误和取消情况
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1591051/)
+## 英国政府报告证明Covid-19疫苗-66%负面效果
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1591084/)
 
-评论： ***由于当前美国拜登政府强制联邦所有雇员必须接种疫苗，在航空领域的工作人员因拒绝接种疫苗而消极怠工，导致航班停飞与延误,航空公司为了避免影响自己的信益与盈利， 而将航班停飞与延误的原因 归于“天气异常”所致。 这种因拒绝接种疫苗而消极怠工情况将会持续下去，归根结底的原因是新冠疫苗的利益集团与中共黑暗势力的勾结，用PGY 行贿各国政府在全球强行推广新冠疫苗以达到他们的目标：因到期的债权违约风险导致他们无法反还众人的财富，必需用生化武器–新冠疫苗消灭这类及 老弱残群体！达到这些邪恶集团想要控制的人口数目！***
+撰稿：Runaway
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Vaccine.jpg)网络图片
+据英国媒体《THE EXPOSE》报道，新命名的英国健康安全局UKHSA（前公众健康部）发布的首批报告之一表明，Covid-19疫苗不但不起作用，其负面效果甚至可低至-66%。
 
-据《wionews》作者：WION Web Team，2021年10月10日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2502.png)(tonefotografia/Getty Images/iStockphoto)
-2021年10月8日8:04 EDTBy Briana Ross-Williams, Action News Jax
-佛罗里达州杰克逊维尔市 – 更新日期：10/10/2021。贾克斯行动新闻的Ben Becker获得了一封杰克逊维尔航空管理局首席运营官Tony Cugno写给董事会的信，信中驳斥了关于管制员就疫苗接种任务进行有组织罢工的传言。
-阅读下面的信。
+辉瑞声称其Covid-19疫苗有效性为95%，实验过程及数据来源如下：
 
-![https://cmg-cmg-tv-10050-prod.cdn.arcpublishing.com/resizer/MQ1Vs2NIo_7A_b12B3-b9PMXyQg=/1440x0/filters:format(jpg):quality(70)/cloudfront-us-east-1.images.arcpublishing.com/cmg/EUN7KQBAINBHXH2RP7E3QX5O3I.jfif](https://lh3.googleusercontent.com/ynYaerChYgEBM4tz3eNukCxzjCKQjdHvfhTgLTl6oqON-sVEvHCS1Y--PBlAjolsszH0kLjZvvuy7USsuuYpaE0vMVsnR2f3uBSEJFLZPfvKGiHChkb60_TvKE3OWdeTNolMxMqtQGZEdq2e1A=s0)
+在所进行的临床试验中，43,661名受试者被平均分配到安慰剂组和疫苗组，每组约21,830名受试者。在安慰剂组（未接疫苗组）中，有162人感染了冠状病毒并出现症状，而在疫苗组(接种疫苗组）中只有8人感染。
 
-JAA给董事会的信。信中驳斥了关于管制员就疫苗接种任务有组织的罢工的“谣言”。
-10/9/2021更新。由于恶劣的天气和在某些情况下的人员短缺，佛罗里达州的不同机场在周五出现了航班延误和取消的情况。
+安慰剂组感染率为0.74%(162/21830)，而疫苗接种组感染率为0.04%(8/21830)，因而该疫苗的有效率是（0.74%–0.04%）/0.74% = 95%。由此，辉瑞声称他们的Covid-19mRNA疫苗有效率为95%。
 
-根据联邦航空中心的说法，杰克逊维尔的一个设施需要额外的工作人员来管理空中交通，直到星期五晚上10点才恢复正常运作。
-联邦航空局周六就航班延误和取消发布了以下声明。
+公众被告知辉瑞Covid-19疫苗的有效率为95%就是根据上述计算，并且基于相同的计算，阿斯利康声称其疫苗功效为70%，而Moderna的疫苗功效为98%。
 
-“由于恶劣的天气，空域内活跃的军事训练，以及杰克逊维尔处理高空、途中交通的设施意外的人员有限，联邦航空局在10月8日晚采取了措施安全管理空中交通。大约在晚上10点恢复了正常运营”。
+我们暂不深究这种计算方式极大的误导性，以及仅衡量相对有效性而不是绝对有效性这一事实，也暂不考虑辉瑞所进行的试验选择忽略了数千种其它疑似感染，而不进行PCR 测试来确认感染，因为它会使疗效低于获得监管批准所需的最低50%。（更不用说各种副作用及长期安全性未知）
 
-其他机场，如坦帕国际机场，因恶劣天气而出现延误和取消。
-TPA发布了一份旅行警告，内容如下。
-“由于联邦航空局为应对北方的恶劣天气而实施的空中交通管理计划，TPA此时正继续遭遇航班延误。这个问题正在影响佛罗里达州的所有机场。像以往一样，请向您的航空公司查询航班的最新情况。”
+多亏了新成立的英国健康安全局发布的大量数据，我们能够使用以上相同的方法来计算辉瑞疫苗在现实世界中的有效性。2021年9月30日英国健康安全局发布的疫苗监测报告中表2显示了2021年第35周和第38周之间按疫苗接种状态记录的感染人数，它还显示了每10万人中完全接种疫苗者和未接种疫苗者的确诊病例率。为了计算疫苗在真实世界的有效性，我们所要做的就是使用英国健康安全局所提供的确诊病例率进行相同的计算，如下所示：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-234.png)
+由此可见，所有可用疫苗的总有效率在40-49岁年龄组中低至–65.72%，在80岁以上年龄组中最高也就是–7.8%。这表明Covid-19疫苗使人们更容易感染，而不是预防率高达95%。通过综合40岁以上所有年龄组的数字，我们已经能够计算出平均疫苗有效率为–50.58%，我们肯定可以在具有疫苗接种状态的确认病例数中看到这一点。
 
-《贾克斯行动新闻》联系了杰克逊维尔国际机场，得知几个航班也因恶劣天气而被取消。
-Action News Jax首席气象学家Mike Buresh说，在报告延误之前，该地区的天气早已放晴。
+在2021年的第35周至第38周之间，40岁以上未接种疫苗的确诊病例为21,667例，40岁以上接种部分疫苗的确诊病例为7,106例，而完全接种疫苗的40岁以上的确诊病例为202,343例。
 
-至于人员短缺的问题，贾克斯行动新闻也联系了联邦航空局，希望得到更多的信息，目前正在等待答复。
+新成立的英国卫生安全局毫无疑问地证明Covid-19疫苗不起作用，实际上使接种者变得更糟。
 
-原文连接：[https://www.actionnewsjax.com/news/local/florida-airports-experience-delays-due-weather/C3RKLFW7ERB7REXOOL6DD3XL5U/](https://www.actionnewsjax.com/news/local/florida-airports-experience-delays-due-weather/C3RKLFW7ERB7REXOOL6DD3XL5U/)
+（文章仅代表作者观点，与Gnews无关）
 
-文章点评仅代表个人观点
+发布：Runaway
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – 滴水穿石
-编辑：洛杉矶盘古农场 – 滴水穿石
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[原文：](https://theexpose.uk/2021/10/01/uk-health-security-agency-report-proves-covid-vaccines-dont-work/)[New UK Health Security Agency report proves without a shadow of a doubt that the Covid-19 Vaccines do not work and have negative effectiveness as low as MINUS 66%](https://theexpose.uk/2021/10/01/uk-health-security-agency-report-proves-covid-vaccines-dont-work/)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)

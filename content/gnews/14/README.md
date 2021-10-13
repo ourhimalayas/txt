@@ -2,105 +2,156 @@
 ---
 
 
-## 江志成绝对想当太上皇
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1591219/)
+## 中国的金融票据破坏力巨大，中国人将付出无法想象的代价
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1591286/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2446.png)
-[https://gtv.org/video/id=61664218d2e2b817487496e8](https://gtv.org/video/id=61664218d2e2b817487496e8)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2471.png)
+[https://gtv.org/video/id=61664356d2e2b81748749757](https://gtv.org/video/id=61664356d2e2b81748749757)
 
-江志成绝对是想当太上皇的
-Jiang Zhicheng definitivamente quiere ser el emperador
+还有一个今天我们要谈到的
+Hay otra cosa que hoy vamos a conversar
 
-你们千万别忘了啊
-No se les vaya a olvidar
+特别是金融票据
+Especialmente sobre las facturas financieras
 
-王力科、裴文正
-Wang Like, Pei Wenzheng
+啥叫金融票据啊
+Qué son las facturas financieras
 
-包括这个现在的博政华
-Incluyendo este Fu Zhenghua
+啥叫金融票啊
+Qué son los boletos financieros
 
-傅政华跟着习
-Fu Zhenghua le sigue a Xi
+就是一张纸
+Es simplemente una hoja
 
-但是绝对骨子里边是相信江家
-Pero dentro de él cree en la familia Jiang
+谁来登记了
+Donde alguien se registra
 
-代言人是江志成
-El portavoz es Jiang Zhicheng
+就我们一个泰山兄弟亲身经历了800亿
+Uno de nuestros hermanos Taishan ha experimentado personalmente los 80 mil millones
 
-然后孙力军、孟建柱、王岐山
-Luego Sun Lijun, Meng Jianzhu, Wang Qishan
+你让他自己跟我说那800亿是谁的票据, 他都说不出来
+Si le pides que me diga de quién es la cuenta de esos 80 mil millones, no logra decirlo
 
-像康典、像周亮
-Como Kang Dian, Zhou Liang
+你让他翻箱倒柜都查不出来
+Ni siquiera hacerle cabar el gabinete puede conseguirlos
 
-曾庆红、曾伟全家100%是认可江志成
-Zeng Qinghong, toda la familia de Zeng Wei cree y aceptan a Jiang Zhicheng al 100%
+共产党的地方债
+Las deudas locales del Partido Comunista
 
-是祖传，是扶持江志成的
-Es ancestral, es el apoyo de Jiang Zhicheng
+所谓的隐形债务
+El supuesto deuda invisible
 
-江志成绝对是江（泽民）还有曾和王岐山都认可
-Jiang Zhicheng definitivamente es reconocido por Jiang (Zemin), Zeng y Wang Qishan
+共产党的所谓影子银行, 影子金融
+El llamado banco de sombra y sombra financiera del Partido Comunista
 
-习只能干五年（就）滚蛋
-Xi sólo puede trabajar 5 años y se va
+我可以告诉大家
+Les puedo decir
 
-然后下一个人是他来选的
-Y la próxima persona será escogido por él
+上帝都不知道发生了多少
+Ni Dios sabe cuántos han ocurrido
 
-下一个就是他选的
-El próximo lo escoge él
+中国积累的假, 骗, 金融票据
+Las mentiras, falsas facturas financieras acumuladas por China
 
-这绝对是他想的
-Esto definitivamente es lo que él piensa
+这个爆发的时候
+Cuando esto se estalle
 
-要不然你想想
-O sino piensa tu
+你不知道能把什么东西都给你轰掉了
+No sabes qué cosa puede bombadearte
 
-中国你给我说吧
-Háblame de China
+而且最关键的问题
+Y el problema más crucial
 
-所有最争钱的微信、腾讯
-Dentro de todos los que tiene más ganancia como WeChat, Tencent
+这些低级骗子们跟华尔街掺和在一起
+Estos estafadores de bajo nivel se mezclaron con Wall Street
 
-滴滴打车、蚂蚁金服、平安
-DiDi Dache, Ant Group, Ping An Insurance
+但是对他(们)来讲
+Pero para ellos
 
-上海银行、上海久事、兴业银行
-Banco de Shanghai, Shanghai Sharks, Banco Industrial
+赚钱我拿20%
+Si hay ganancia, yo tomo el 20%
 
-几大地产商哪个不是江志成控股
-¿Cuál de los principales desarrolladores inmobiliarios no son administrados por Jiang Zhicheng?
+赚不赚, 我收你5%
+No importa si hay ganancia o no, te cobro el 5%
 
-你给我找一个出来
-Búscame uno
+他给像我这样的人2.5%
+Le da un 2.5% a personas como yo
 
-所以说习的最大敌人是谁
-Por eso cuál es el enemigo más grande de Xi
+你想想七哥经历这些事情
+Piensa todas estas cosas que he experimentado
 
-是王岐山、是江志成
-Es Wang Qishan, es Jiang Zhicheng
+这个世界有多恐怖
+Lo temeroso que es este mundo
 
-是曾庆红
-Es Zeng Qinghong
+所以老百姓们根本不不懂
+Por eso los ciudadanos ni siquiera entienden
 
-孟建柱和孙力军是在这儿要弄死习
-Meng Jianzhu y Sun Lijun quieren matar a Xi
+告诉我, 14亿中国人
+Dime, 1.4 billones de chinos
+
+啥叫基金
+Qué es el fondo
+
+啥叫对冲基金
+Qué es fondo de cobertura
+
+啥叫封闭基金
+Qué es un fondo cerrado
+
+啥叫开放基金
+Qué es un fondo abierto
+
+啥叫赎回基金
+Qué es fondo de redención
+
+啥叫不赎回基金
+Qué es fondo no reembolsado
+
+他都不知道
+Él no sabe
+
+我们今天说的本质
+La esencia original que hoy hablamos
+
+所有的所谓地方债
+Todas las supuestas deudas locales
+
+所有影子银行, 所有的金融产品
+Todos los bancos de sombra y productos financieros
+
+就一句话
+Con sólo una palabra
+
+就是奴役中国人的
+Es para esclavizar a los chinos
+
+就中国人这21年加入WTO以后
+Con decir luego que los chinos se unieron a la Organización Mundial del Comercio (OMC) durante estos 21 años
+
+成了全人类的奴隶
+Se convirtió en el esclavo de toda la humanidad
+
+而且中国人顶住了全人类最大的一个金融的雷
+Y los chinos han resistido el mayor trueno financiero
+
+别说别的雷, 雷多了去了
+No digamos los otros truenos porque son muchos
+
+而且中国人即将为此付出代价
+Además, los chinos pagarán el precio por esto
 
 * * *
 
 日期：10/11/2021
-原视频标题：江志成绝对想当太上皇
-Jiang Zhicheng definitivamente quiere ser el emperador
-原视频日期：10/06/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1445639678980280321?s=24](https://twitter.com/se1y7cblljselva/status/1445639678980280321?s=24)
-任务编号：KC163（2446）
-视频时间段：0:00-1:14
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
+原视频标题：中国的金融票据破坏力巨大，中国人将付出无法想象的代价
+Las facturas financieras de China son tan destructivas que los chinos pagarán un precio inimaginable
+原视频日期：10/05/2021
+原视频网址[https://twitter.com/se1y7cblljselva/status/1446020234536624128?s=24](https://twitter.com/se1y7cblljselva/status/1446020234536624128?s=24)
+任务编号：KC165（2471）
+视频时间段：0:00-1:40
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场-小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
 字幕+视频制作：洛杉矶盘古农场-天涯行
 审片：洛杉矶盘古农场-银龙
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
