@@ -2,47 +2,49 @@
 ---
 
 
-## 短视频：觊觎外汇和芯片产业，中共国必入侵台湾
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1590450/)
+## 911系统因缺少人手处于危险之中
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1590540/)
 
-#### 翻译：Lish
-听写核对：月映万川
-编辑：文泓
-剪辑字幕：七彩光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/台湾.gif)
-图片来源：Sky news视频截屏
+**作者**：香草山美食部-蓝天大海
 
-（拿下台湾）不仅会让中共国的军事足迹深入太平洋，也会给它带来巨额的财富。台湾是世界上第六大外汇储备地区。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-2.jpg)
 
-屏幕字幕：
 
-台湾现金储备：5430亿美元，并为全球提供60%的半导体芯片。
 
-这个岛国提供了世界上大部分的半导体计算机芯片，从洗衣机到尖端武器，半导体计算机芯片对大多数现代制造业产品至关重要，由于美国的背书，台湾才能脱离中共国的魔掌。为什么中共国如此想要拿下台湾呢？
 
-台湾是名副其实的“不沉的航空母舰”，中共国可以从这里将军事力量投射到太平洋中部。另外，台湾也向世界展示了，中国人一样可以拥有繁荣和民主。
 
-台湾绝对是一个（上天的）礼物。我的意思是，首先，这是对中共国一党（专制独裁）身份的挑战和意识形态的挑战。但同时，这也有深层次的情感纠葛不断刺激着中南海。
+据零对冲10月12日报道，美国救护车协会 (AAA) 警告联邦众议院和参议院的议员们，“美国的EMS（Emergency Medical Service ）系统正面临着严重的劳动力短缺问题。这原本是一个已经存在了十多年的长期问题，目前由于拜登政府发布了新的强制接种疫苗的政策，这一问题变得更加严重。这可能破坏我们的紧急情况救助系统。
 
-自1949年国共内战以来，台湾从未正式宣布脱离中共国而独立。根据我们专家的观点，如果台湾官方宣布独立，那么这就会马上导致台海战争。如果台湾真的说它想独立，会发生什么呢？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-56.jpg)图片来源：pixabay
 
-中共国会入侵（台湾），就这么简单！
+缅因州沃尔多伯勒镇经理朱莉凯泽告诉缅因州新闻中心：“强制疫苗政策导致了急救人员流失。”他们原以为员工会因为害怕失去工作而服从政府，但他们没有想到，急救人员的工资并不高，他们完全可以找到其他有更高薪酬的工作。
 
-是的。
+反对疫苗强制执行的不仅是急救人员，洛杉矶的数百名消防员也在近日提交了一份通知，准备就强制接种疫苗的命令起诉该市政府。洛杉矶消防队员的律师写道，疫苗接种令是“明显的错误行为”，理由包括干扰就业权利；造成情绪困扰；侵犯宪法隐私权；违反医学实验法中对人体受试者的保护。
 
-那些警示中共国对台湾意图的人举出了香港的例子……
+而洛杉矶县警长亚历克斯·维拉纽瓦 (Alex Villanueva)则明确表示，他将拒绝执行有关强制疫苗的规定。他说如果这样做，警局将面临失去多达10%警员的风险。
 
-对于一直警告中共国想要对台湾意图不轨的人来说，香港就是一个实例。在（港共政府）粉碎了香港的民主示威之后，香港现在就等同于被中国共产党接管了。
+越来越多的急救人员、消防员和警察不接受政府强制疫苗接种的命令，导致离职潮，这毫无疑问会破坏本已脆弱的911系统的有效运行。
 
-（文中仅代表作者个人观点，与Gnews平台无关）
+参阅链接：
 
-视频链接：[War with China: Are we closer than we think? | Under Investigation – YouTube](https://www.youtube.com/watch?v=kA2KaEKs1LA)
+[https://www.zerohedge.com/political/911-system-jeopardy-first-responders-are-not-down-mandated-jab](https://www.zerohedge.com/political/911-system-jeopardy-first-responders-are-not-down-mandated-jab)
 
-**发布：文泓**
+***编辑/校对/发稿：遍地开花***
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+***终审：飞虹***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-3.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-2.jpg)

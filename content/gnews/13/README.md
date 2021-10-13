@@ -2,75 +2,30 @@
 ---
 
 
-## 智梗无解
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1590607/)
+## 20国首脑会议金援阿富汗 岸田拟提供2亿美金
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1590659/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-脑痛、腰痛、牙痛
-痛痛痛
-良药就在面前
-可是被拒绝
-被忽视
-被疑虑
+作者：东京樱花团｜定于二尊
+![](https://lh4.googleusercontent.com/dXbAjAGuQE06JyrxsVv-Q4FvqFv_nUPgyNah1FEd_Jgpp78dKRZSBaLpRQpqXInh_M4spOQ9LyhGPCB5kvl_ezjmeWwCUWypRo9FAfgJcvs_0OkrkZk4TrZrxH8CndDqEfVSmdTO=s0)[图片来源](https://www.joicfp.or.jp/jpn/2021/10/01/49291/)
+据日本朝日新闻10月12日22:00报道，G20主要国家首脑会议于12日召开网上临时会议，讨论阿富汗局势问题。各国强调了尽快对阿实施人道支援的重要性。就任后首次参加国际会议的日本岸田文雄首相，表明将在年内对阿富汗实施220亿日元（约2亿美金）的经济支援。
 
-疫苗的毒可解
-人心的毒无解
-心梗、脑梗、肛梗
-有药可医
-智梗无解
+据报道称，8月塔利班掌握政权以来，阿富汗的人道危机却变得日益严重。根据联合国世界粮食计划（WFP）的发表，阿富汗目前有1400万人处于严重缺粮的状态，大约320万的孩子们有可能陷入了严重的营养失调。
 
-红旗飘飘杀人如麻
-蓝旗威力救人无数
-世人瞩目
-心明眼亮
-歼灭邪恶
-世人共鸣
-为何依然如此艰难？
-都只为短视人的短期目光
+另一方面，由于对塔利班实施的经济制裁导致了阿富汗国内经济处于财政困难的状态。联合国秘书长古特雷斯为了持续对阿的人道援助，呼吁“无论如何都需要防备阿富汗经济的崩溃。”对于联合国秘书长的吁请，各国意见相异，因此，此届G20首脑会议如何能取得对阿富汗人道援助的共识是会议的焦点。
 
-蝇头之利的驱使
-罔顾天下之公德
-为短期不是利益的利益
-冒天下之大不韪
-勾兑毒酒者
-淡也是死
-浓也是死
+- ***延展阅读:***[***阿富汗的人道灾难***](https://www.joicfp.or.jp/jpn/2021/10/01/49291/)
 
-共产幽灵没有契约精神
-亲吻毒蛇者
-你信也是死
-不信也是死
-与魔鬼共舞者
-你爱也是死
-不爱也是死
-撑过了今天撑不过明天
-与虎谋皮
-等同于自寻死路
 
-魔兽出笼狂梦成真
-助长者万世遗臭
-不如来个鱼死网破
-临危不惧
-扬名于世
-智者见智
-仁者见仁
+美国希望通过联合国等国际组织促进对阿富汗的人道援助，并促使各国关注阿富汗女性和儿童的基本人权问题。但美国既已指定塔利班是恐怖组织，理应不会早早解除对阿富汗塔利班的经济制裁，且会利用于此对塔利班政权施压，逼其改善妇女和小孩的人权地位。
 
-指路明灯
-唯爆料革命
-不为钱财而心动
-不为名利而激动
-只为救人而行动！
+此届20国峰会上，不见中共国的习近平和俄罗斯的普京的身影，由于他们的不参加，G20上各国联手对应阿富汗的人道危机完全成为泡影。
 
-文字版原文：[智梗无解](https://gnews.org/zh-hans/1589431/)
+据日本外务省称，岸田首相为了对应阿富汗的人道危机，决定拿出包括新增6500万美金（约71亿日元）的财政拨款，于年内实施总额为2亿美金规模（约220亿日元）的对阿援助计划。同时，岸田首相强调塔利班彻底断绝与恐怖组织的关系是不可缺少的条件。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- ***要闻来源：***[***G20领导人讨论阿富汗局势 总理宣布年底前支持220亿日元***](https://news.yahoo.co.jp/articles/3069a48736dcd36e8ebcedb89e139a81b1935b73)
+
+
+（本文只代表个人观点，与Gnews网站无关）
+*编辑：东京樱花团 / 文小白*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
