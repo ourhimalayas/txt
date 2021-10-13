@@ -2,19 +2,39 @@
 ---
 
 
-## 秘翻在线：辉瑞极力促进为美国儿童注射中共病毒 而古巴则将黑手伸向幼儿
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1590888/)
+## 短视频：澳中进入战争状态，排华浪潮可以预见
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1590943/)
 
-#### 撰稿：彩虹
+#### 翻译：Lish
+听写核对：月映万川
+编辑：文泓
+剪辑字幕：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/拘留营.png)
+图片来源：9 News 60 Minutes Australia
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-29.jpg)图片来源：CNN
-10月12日，《新闻极限》（Newsmax）发布文章，援引《新闻周刊》的报道，指一位不愿意透露姓名的食品和药物管理局（FDA）官员证实，辉瑞公司（Pfizer）已经向FDA提交了一份申请，要求修改辉瑞生物技术公司的中共病毒疫苗的紧急使用授权（EUA），从而可以为5-11岁的美国儿童强制注射中共病毒疫苗。
+我们的专家的另一个重点关注的方向是，与中共国的战争将对近150万澳大利亚华人产生的影响。毕竟，在第二次世界大战期间，日裔澳大利亚人尽管在这里生活了50多年，却一样被围捕和监禁。
 
-该官员补充说，FDA“将于10月26日召开其疫苗和相关生物制品咨询委员会会议，征求其独立的科学和公共卫生专家对申请中的数据和信息的意见”。但是他透露，在专家评估之前，FDA可能会在本月底做出决定。
+屏幕字幕：一些澳大利亚日裔被拘留者已经在澳大利亚生活了50多年。
 
-文章指，上个月，在古巴开始了一项运动，为全国1130万人口强制接种中共病毒疫苗，包括年仅2岁的幼儿。古巴外交部美国事务总干事卡洛斯·费尔南德斯·德·科西奥（Carlos Fernández de Cossío）称，“我们的疫苗接种计划从两岁开始实施，我们已经在对两岁以下的儿童进行测试了。”他称古巴正在努力将中共病毒疫苗列入到古巴幼儿接种计划清单中。
+二战期间，共有4301名日本平民被囚禁在澳大利亚的拘留营中。
 
-**新闻来源**
+澳大利亚华人后裔，或者与华人外表相似的其他人种可能会被极右翼分子当街骚扰，并且把华裔投入到拘留营继而边缘化他们，所有以上这些社会逻辑结果都还没有考虑进去。
 
-[US Weighs First COVID Vax for 5-Year-Olds; Cuba Seeks Vax for 2-Year-Olds](https://www.newsmax.com/newsfront/children-kids-vaccine-covid19/2021/10/12/id/1040242/)
+而你是否担心你们这些澳大利亚华人会被视为内部的敌人？
+
+绝对的，我的意思是，澳大利亚华人社区和所有看起来有点像中国人的人，如果，一旦与中共国发生战争，克林顿所说的这种拘留营的概念，你知道，是一个非常现实的预测。你知道，约翰，我们在那里见。
+
+在澳大利亚与中共国全面对抗之时，本国的外交和军事政策必然会激起反华种族主义，这就是未来我们面临的现实。
+
+（本中仅代表作者个人观点，与Gnews平台无关）
+
+视频链接：[War with China: Are we closer than we think? | Under Investigation – YouTube](https://www.youtube.com/watch?v=kA2KaEKs1LA)
+
+**发布：文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

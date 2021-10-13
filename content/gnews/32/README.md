@@ -2,28 +2,39 @@
 ---
 
 
-## 有声|中共不计成本欲毁掉G系列，新中国联邦开展法律反击
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1590631/)
+## 短视频：澳洲成为前线，GTS摧毁让整个社会瘫痪
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1590764/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间10月11日，郭文贵先生在盖特视频中，揭露了中共当局正在不计一切成本，展开对G系列超限战的事实。
+#### 翻译：Lish
+听写核对：月映万川
+编辑：文泓
+剪辑字幕：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/前线.jpg)
+图片来源：Sky news 视频截屏
 
-郭先生说，过去两周以来，中共内部的战友们多次反映，中共灭爆小组已下达明确指示，要在近期不惜一切代价，阻止喜币的上市，同时要展开对G-TV、Gnews 、盖特和G-CLUBS的司法超限战。
+事实是，澳洲政府对（本土）美军基地发生的事情几乎没有控制权，或者当美国面临战争（中共国袭击）时，也不知道这些美军基地可能会做出什么样的防御决定。
 
-自2020年原G-TV私募伊始，中共便启用了大量海外的统战、情报力量，对G系列极尽造谣、诋毁之能事，并向各美国法院提交对G系列的虚假诉讼；以致1300名早期投资者的款项至今被冻结。
+屏幕字幕：从理论上讲，松树沟基地是澳大利亚和美国的联合共管设施。事实上，该基地的负责人是美国人，只有1/10的人员是澳大利亚人。基地里有一个秘密房间，澳大利亚人不允许进入。
 
-经过一年多的准备，爆料革命和新中国联邦已开展对中共及其幕后邪恶势力的法律回击。在过去因投资G系列而遭受银行账户冻结、拒绝服务的广大战友们，请保存好各种文字、语音证据，并向所在喜马拉雅农场取得联系，加入这场维护华人利益的法律反击战。
+就是因为美国的资产在澳大利亚的土地上，这是真的，不是吗？那么（美军）可以做出开火的命令？而我们却不知道？
 
-文字版原文：[中共不计成本欲毁掉G系列，新中国联邦开展法律反击](https://gnews.org/zh-hans/1588838/)
+绝对的。我们把这些东西称为联合共管设施。但事实是，美国国会议员员比澳大利亚议会议员对这些设施的情况有更多的监管和了解，我们必须认识到我们所处的境地，对于任何社会都可能面临的最重要的问题，即是否参战的问题，很可能最终是（美国）为我们做这个决定。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+无论是哪种形式的战争，被认可的未来作战计划就是澳大利亚将会是前线阵地，而这也将是历史上独一无二的。但是，有可能澳大利亚还没来及抵抗就已经国家瘫痪了。
+
+几乎可以肯定的是，在美国和中共国之间的重大冲突中，首先会发生的一件事就是打掉全球贸易服务系统（GTS），这样的目的是使很多依赖该系统的美国军事系统瘫痪，**一旦发生这种情况，你就无法在澳大利亚进行刷卡交易，你就无法在加油站给你的汽车加油。**因为所有这些都依赖于全球贸易服务系统，澳大利亚的经济将在最初几分钟内受到非常严重的影响。在几个星期内，我们很难获得足够的燃料和石油。而我们没有办法避免这一点。
+
+因此，确实我们可能会认为这场战争与我们无关并忽略它，但是，事实是，我们根本做不到。你可能对战争不感兴趣，但却一直被战争阴影所笼罩，这就是一个不争的事实。并且我们没有任何办法回避这个问题。
+
+（文中仅代表作者个人观点，与Gnews平台无关）
+
+视频链接：[War with China: Are we closer than we think? | Under Investigation – YouTube](https://www.youtube.com/watch?v=kA2KaEKs1LA)
+
+**发布：文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
