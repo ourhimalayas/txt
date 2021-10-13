@@ -2,107 +2,76 @@
 ---
 
 
-## 喜交所的开户行是G系列的控股
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1589958/)
+## 如果我们再不反抗政客，媒体会把全人类当成奴隶
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1590011/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl-6.jpg)
-[https://gtv.org/video/id=61656f99d2e2b817487463d8](https://gtv.org/video/id=61656f99d2e2b817487463d8)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/axqp9-5f9t4.jpg)
+[https://gtv.org/video/id=61656fe4d2e2b817487463ec](https://gtv.org/video/id=61656fe4d2e2b817487463ec)
 
 **郭文贵**
 **Miles Guo**
 
-昨天也就是10月6号咱们签署了一家金融机构
-it was October 6th yesterday, we signed the contract with a fi-nancial institution
+这个疫苗灾难，将对经济造成多大的危害
+How much harm will this vaccine disaster do to the economy？
 
-10%（股权）归我们GTV的投资者所有
-that 10% equity is owned by our GTV investors
+美国政府它现在还搞什么烂帐，什么债务，还跟共产党勾兑
+The U.S. government is still doing bad debts, debts problem, and collusion with with the Communist Party
 
-记住这话，七哥承担责任的，我不告诉你这个机构是什么
-Remember, QiGe(Miles) is responsible for it, I won’t tell you what this organization is
+还要挺股市，你觉得能吗？
+Do you think it still can support the stock market?
 
-昨天是个大日子，我昨天就在这里问，那个金融机构的其中一个股东
-Yesterday it was a big day, I asked the question here yesterday that one of the shareholders of that financial institution
+纽约派去1500个国民部队接管医院
+New York sends 1,500 national guards to take over the hospital
 
-他就非要当大股东，我说必须得让我们G系列当大股东
-He wanted to be the major shareholder, I said we must let our G series be the major shareholder
+你觉得1500人能把纽约疫苗问题解决吗？
+Do you think 1,500 people can solve the New York vaccination problem?
 
-当时我就说，我是一分股权也没有
-I said at that time, I don’t have any single share of equity
+澳大利亚那个流氓政府要把所谓的联合国部队派进去
+The rogue Australia government wants to send in the so-called UN troops
 
-你可以不欢迎我们这些人，还是那句话
-You may not welcome people like us, again
+你能把澳大利亚人都按在地上打针吗？
+Can you put all Australians on the ground for injections
 
-我们这些都是穷兄弟，对吧
-All of us are the poor brothers, right?
+你从这一系列的疯狂的行动能看出来
+You can see from this series of crazy actions
 
-你这个国家一共多少人，你告诉（我）你国家多少人，是不是
-What’s the population in your country, you tell me what’s the population for your country, right?
+就是这个世界不把共产党灭了，人类就完了
+If this world does not destroy the Communist Party, mankind will be over
 
-你才1000万人，千百万人嘛，对吧
-your country is about only 10 million people, it’s only several millions of people, right?
+还有一个人类也必须付出代价，
+Another one is human beings must pay the price for this
 
-另外你这个国家多少人，几十万人，虽然你是世界最有钱的国家，最牛的
-In addition, how many people are in your country, hundreds of thousands, although you are the richest country in the world, super rich
+人类不付出代价, 新闻自由没了，法律独立性没了，
+Human beings don’t pay the price, the freedom of the press has gone, the independence of the law has gone
 
-但我请问你，作为朋友，如果我们中国人
-But I ask you, as a friend, if we Chinese people
+政客这帮流氓，把整个全世界人民全当奴隶了
+The gang of politicians have taken the entire people of the world as slaves
 
-有200万到500万高质客户投了你这个国家，结果是什么
-there are 2 million to 5 million high-quality customers have in-vested in your country, what is that result?
+如果人类再不去反抗，那就是这个结局了
+If human beings don’t resist and that’s the end
 
-他说，那太大了，然后我说你要想跟G系列合作
-He said that’s great, and then I said if you want to cooperate with the G series
+你觉得现在以(疫)苗灭共，七哥(说得)有道理吗？
+Do you think it makes sense to use the COVID vaccine to elimi-nate the communist party now?
 
-我作为一个顾问我建议你，你必须让我们控股
-I, as a consultant, my suggestion to you is that you must let us be the holding shareholders
+以苗灭共有力量吧，谁能停止这个
+It is powerful for using vaccine to eliminate the communist party, right? Who can stop it?
 
-而且必须接受(GTV投资者), 他原来是不接受GTV然后椅子
-and must accept our investors, he did not accept GTV original shareholders at first
+如果不以苗灭共，你说这个人类将走向何方
+If we can’t use vaccine to eliminate the communist party, then where is humanity heading?
 
-就是散户他不接受，
-He doesn’t accept retail investors
+————————————————————
 
-第二，这些人未来要加一起成为这个金融机构10%的股东
-Second, these people will become 10% shareholders of this finan-cial institution together in the future
+**原视频接:**[https://twitter.com/se1y7cblljselva/status/1447535948602896389?s=24](https://twitter.com/se1y7cblljselva/status/1447535948602896389?s=24)
 
-他说那是不是按照市值，到时候收购完以后的估值的市值
-He said that is it based on the market value, the market value after the acquisition is completed
-
-市值，市场价值来买股，我说不可以
-Market value, the future market value when we make transac-tions, I said no
-
-不管你定价多少钱，我们这些股东，未来要加入进去的
-No matter how much you price it, our shareholders who will join in in the future
-
-我带的人未来绝对不能超过1美金（一股）
-The person I bring in the future must not exceed $1 per share
-
-就是你们看到的，我们最好的那个兄弟，不能说名字
-It’s what you see, our best brother, I can’t say his name
-
-昨天说，大哥，拿下了，51控股
-He said yesterday to me, “big brother, done, we got 51% share holdings”
-
-未来GTV老椅子，记住今天说的话，GTV老椅子
-The old GTV shareholders in the future, remember what I said today, the old GTV shareholders
-
-GTV 老椅子，包括后来借项目所有的投资者，新GTV的股权拥有者
-the old GTV shareholders, Including all investors who were in the borrow project later and the equity owners of the new GTV
-
-不会超过一块钱，拥有这家金融机构的股份
-that will own shares of this financial institution with price of no more than one dollar per share
-
-—————————————————————
-原视频日期：2021/10/07
-任务编号：KC161（2489）
-视频时间段 : 0:00-2:14
-
-**原视频接:**[https://twitter.com/se1y7cblljselva/status/1446411073133764611?s=24](https://twitter.com/se1y7cblljselva/status/1446411073133764611?s=24)
+原视频日期：2021/10/10
+任务编号：KC162（2504）
+视频时间段 : 0:00-1:16
+Date:10/11/2021
 
 英听校: 洛杉矶盘古农场 – Layka
 翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
