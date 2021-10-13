@@ -2,22 +2,51 @@
 ---
 
 
-## 秘翻在线 : 中共为何在福建设立大规模的集中营?
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1591347/)
+## 瑞典：最近 10 例新冠病毒死亡病例中有 7 例完全接种了疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591585/)
 
-撰稿：William
-校对：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/epa-9.jpg)
-图片来源：网路
+作者：AsG諾雅
 
-根据《零对冲》(Zero Hedge)引述大纪元报导的内部泄露文件，中共国当局通知地方政府为大规模爆发的中共病毒做好准备。9月30日，来自中共国国务院，由福建省政府转发地方当局的一份题为《进一步加强防疫工作的通知》的文件。另一份则是由国务院10月1日下达命令,由福建省委派发给地方的《国庆防疫通知》。
 
-两份文件都标有“特别紧急”的字样，并提出两项标准：一是建设集中隔离点，要求地方在10月底前建成每万人不少于20间的隔离中心和房间。第二是每个隔离点的规模必须超过100个房间。
 
-公开数据显示，2020年福建省人口为4154万人。截至9月19日，福建全省已在296个中心点设置隔离室35691个。按照防疫通知中的标准，福建省到10月底至少需要建设完成8.3万个隔离间，也就是要在短短不到一个月的时间再建造完成4.7万个左右。
 
-美国陆军研究所前病毒学研究员肖恩·林博士(Dr. Sean Lin)告诉大纪元时报，中共最主要目的就是加强管控，中共的所有防疫措施都和政治运动一样。例如，人民可以随时被隔离并放入隔离站点，隔离点也是政治迫害的地方。不管是谁，只要中共说核酸检测呈阳性，就是阳性。接着就会剥夺人民所有一切权利。中共的隔离点实际上就是另一种形式的集中营。
 
-就在中共信誓旦旦要攻打台湾之际，为什么要在福建建立大量的集中营?是否是预先设立集中营，以绑架被攻打的台湾人民?
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-新闻来源：China Prepares For Possible Large-Scale COVID-19 Outbreak: Leaked CCP Documents
+
+
+
+
+
+
+《消息战网》10 月 12 日消息，瑞典公共卫生局报告说，在 9 月 1 日至 24 日期间，10 个与新冠肺炎（中共病毒）有关的死亡病例中就有 7 个是完全接种疫苗者。
+
+尽管疫苗专家尝试从各种角度解释所谓“突破性感染”激增的原因，事实是，老人护理中的感染病例最近增加到了2月份以来的最高水平，而且老年人在感染者中的比例也上升到了大规模检测开始以来的一些最高水平。自大流行开始以来，瑞典这个拥有1000多万人口的国家已经出现了116万个病例，有近15000人死亡。近65%的瑞典人口已完全接种疫苗。 毒疫苗对人类的伤害开始显现，并不断通过各国医疗系统的统计数据得到验证。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-39.jpg)
+参考链接：
+[Researchers See Fading Vaccine Effect as 7 in 10 Recent COVID-19 Deaths in Sweden Fully Vaxxed](https://www.infowars.com/posts/researchers-see-fading-vaccine-effect-as-7-in-10-recent-covid-19-deaths-in-sweden-fully-vaxxed/)
+[WorldOMeters Sweden covid cases](https://www.worldometers.info/coronavirus/country/sweden/)
+[Sweden Coronavirus Full Vaccination Rate](https://ycharts.com/indicators/sweden_coronavirus_full_vaccination_rate)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Q大哥
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

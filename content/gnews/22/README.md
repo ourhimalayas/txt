@@ -2,34 +2,32 @@
 ---
 
 
-## 秘翻在线:战争贩子会是台海危机的导火索?
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1591185/)
+## 自民党竞选纲领有气无力，岸田文雄支持率走低
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591410/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/epa-7.jpg)
-图片:中新社
+作者：在远方
 
-**中共频频挑衅台湾**
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-根据《CNN》的报导，中共国10月11日表示，“最近几天”解放军在福建省南部演习，进行海滩登陆和突击演习。当天天气晴朗，海面平静，透露演习并不是在热带风暴影响的10月11日进行。
 
-中共国国家主席习近平重申“统一”台湾，台湾总统蔡英文则强硬回应台湾将“不惜一切代价捍卫其自由和民主的生活方式”，并抱怨中共空军大规模入侵台湾的防空识别区。
 
-**战争贩子借由媒体渲染成为台海危机的推手?**
+10月12日路透社消息，日本自民党公布了谋取众议院席位的竞选纲领声明，强调要终结新冠疫情，承诺重建中产阶级并抵御日益强硬的中共。声明称未来将以果断的行动终结疫情。而在国土安全议题中，对于中共在台海附近，以及中日争议岛屿扩大军事活动的威胁，自民党称将重新考虑予以回应，并要提高国防预算，以期达到甚至超过GDP的2%。近几十年来，日本的国防开支一直维持在1%左右。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1013-AM-（3）.001.jpeg)
+自民党的这一竞选纲领表明，当前日本政府清楚的意识到，来自中共的威胁将是日本当今所要面对的主要问题。但以当前利益为前提之下，知行毕竟难以合一，无论谁执政，日本政府始终仍然难以完全摆脱中共的影响和掣肘。而来自NHK的一项民意调查显示，自民党新任首相岸田文雄的支持率仅为49%，明显低于前任首相们上任初期的支持率。
+(本文仅代表作者观点)
 
-根据《Moon of Alabama》报导，战争贩子通过向媒体公开美国军队在台湾训练军队，进一步激化了台海战争的可能性。主流媒体大量报导蔡英文总统对中共的强硬态度，澳大利亚前总理托尼·阿博特(Tony Abbott)刚刚访问台北 ，极力倡导“民主并肩”，与台湾对抗中共国。
+参考链接：[日本自民党公布竞选宣言 重点是终结疫情并对抗中国](https://cn.reuters.com/article/japan-ldp-parliament-election-1012-idCNKBS2H20NN)
 
-最近的一项民意调查显示，超过一半的美国人支持美军保卫台湾免受大陆入侵，这是激进的宣传活动。澳大利亚媒体正制作令人难以置信的疯狂 60 分钟剧集，荒谬地推测中共国可能攻击澳大利亚以及澳大利亚人应该为保护台湾而开战的想法。网民也强烈支持美国及其盟友因台湾独立而与中共国开战的想法。”这显然是疯了，任何接受这种想法的人都是被媒体洗脑的傻瓜。” 独立记者凯特琳·约翰斯通 (Caitlin Johnstone)说。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-**台湾独立是一个假议题**
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
 
-在10月9日举行的纪念辛亥革命110周年大会上，习近平称，「台独」分裂是祖国统一的最大障碍，是民族复兴的严重隐患。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-然而台湾独立并不是议题，而是早就存在的一个事实。为了”台湾独立”这个假议题，发动一场导致数百万人死亡的世界大战，是一件不可思议的穷兵黩武。如果事情发展成核战争，更可能导致数十亿人死亡，这对每个人来说都会是惨烈的梦魇。
-
-然而铺天盖地的媒体宣传使得许多人相信台海战争的必要性，甚至忽略战争的真正恐怖面貌。如果人们真正理解这意味着什么，没有任何理智的人会支持这种规模的战争，除了战争贩子及邪恶势力。
-
-消息来源:
-[Johnstone: Anyone Who’d Support Going To War Over Taiwan Is A Crazy Idiot
-China says it held beach landing drills in province opposite Taiwan](Anyone%20Who'd%20Support%20Going%20To%20War%20Over%20Taiwan%20Is%20A%20Crazy%20Idiot
-China%20says%20it%20held%20beach%20landing%20drills%20in%20province%20opposite%20Taiwan)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

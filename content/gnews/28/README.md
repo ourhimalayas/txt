@@ -2,52 +2,159 @@
 ---
 
 
-## 给年轻人大规模接种是迫在眉睫的道德和公共卫生灾难
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1591104/)
+## 中国的金融票据破坏力巨大，中国人将付出无法想象的代价
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1591286/)
 
-- 编译：Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2471.png)
+[https://gtv.org/video/id=61664356d2e2b81748749757](https://gtv.org/video/id=61664356d2e2b81748749757)
 
+还有一个今天我们要谈到的
+Hay otra cosa que hoy vamos a conversar
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Child_vaccine-810x500-810x500-1.jpeg)图片来源：lifesitenews.com
+特别是金融票据
+Especialmente sobre las facturas financieras
 
-**需要科学证据得出结论，即大规模的青年疫苗接种运动对儿童的伤害远远大于益。**
+啥叫金融票据啊
+Qué son las facturas financieras
 
-《生活新闻》([LifeSiteNews](https://www.lifesitenews.com/)) 报道——自从要求田纳西州诺克斯维尔的主教理查德·斯蒂卡 ([asking Bishop Richard Stika](https://www.lifesitenews.com/opinion/dozens-of-catholics-ask-bishop-to-revoke-vaccination-recommendation-for-minors/) ) 撤销他对未成年人接种疫苗的建议后，我们听到的最常见的反对意见是：“那数百名死于 COVID 的儿童呢？ 我们不应该给每个人接种疫苗来保护这些脆弱的孩子吗？” 匹兹堡儿科医生安德鲁·诺沃克 (Andrew Nowalk) 在最近一次庆祝辉瑞疫苗紧急使用授权给 5 岁儿童的[采访](https://triblive.com/local/regional/pittsburgh-pediatrician-hopes-a-lot-of-kids-vaccinated-by-halloween/)中提出了这一论点，他说：“希望我们能在万圣节前为很多孩子接种疫苗。”
+啥叫金融票啊
+Qué son los boletos financieros
 
-在解释为什么这些疫苗对我们的年轻人有害之前，我必须首先指出一个对照组：“看，数百人死亡！因此，我们都必须服用我的宠物药MyPetMedicine来预防/治愈杀死他们的疾病！” 这种毫无逻辑的思维是蛇油推销员的思路，而不是医生的。我重申：**在任何同行评审的科学期刊上发表的双盲研究，均未显示接种**** COVID ****疫苗的未成年人与未接种疫苗的未成年人相比具有更好的健康结果。**
+就是一张纸
+Es simplemente una hoja
 
-截至 10 月 1 日，[CDC 报告](https://www.cdc.gov/nchs/nvss/vsrr/covid_weekly/index.htm#SexAndAge)，共有 478 名“涉及 COVID”的未成年人（0-17 岁）死亡。在一年的时间里（2020 年 8 月至 2021 年 7 月），CDC 报告了 285 例 COVID 的未成年人死亡。首先必须指出的是，“涉及 COVID”并不意味着“完全由 COVID 引起”，而是 COVID 可能是导致其他合并症死亡的一个原因。即使 COVID 是这 285 例病例中的每一例的主要原因，我们也会将这一年死亡率排在流感/肺炎之后。总共约有 740 万未成年人的 SARS-CoV-2 病毒检测呈阳性，这使得儿童因 COVID死亡的原始几率不到 15,000 分之一。此外，大多数死亡的儿童都有严重的合并症； 一个原本健康的孩子死于 COVID 的几率[几乎为零](https://www.wsj.com/articles/cdc-covid-19-coronavirus-vaccine-side-effects-hospitalization-kids-11626706868)。
+谁来登记了
+Donde alguien se registra
 
-**我阐明这些数字是为了定义问题，而不是将其最小化**。每一个数字背后都有一个悲伤的家庭，但没有证据表明年轻人大规模接种疫苗可以防止这些死亡。相反，科学证据要求得出这样的结论：大规模青年接种疫苗运动对儿童的伤害远远超过其帮助。
+就我们一个泰山兄弟亲身经历了800亿
+Uno de nuestros hermanos Taishan ha experimentado personalmente los 80 mil millones
 
-最近，公共卫生专家罗纳德·科斯托夫（ Ronald Kostoff ）博士组建了一个令人印象深刻的研究团队，在同行评审的毒理学报告杂志上共同撰写了一篇题为“我们为什么要为儿童接种 COVID-19 疫苗？”的论文。该团队包括罗马尼亚克拉约瓦医学和药学大学临床药学系主任丹妮拉·卡琳娜（Daniela Calina）博士；帕纳约蒂斯·弗拉乔扬诺普洛斯（Panayiotis Vlachoyiannopoulos）博士，雅典大学医学院病理生理学教授安德烈·斯维斯托诺夫（Andrey Svistunov）博士，第一莫斯科国立医科大学药理学教授谢切诺夫（I.M. Sechenov）； 和克里特大学毒理学教授 阿里斯蒂德·察萨基斯（Aristides Tsatsakis）博士。
+你让他自己跟我说那800亿是谁的票据, 他都说不出来
+Si le pides que me diga de quién es la cuenta de esos 80 mil millones, no logra decirlo
 
-通过对联邦数据库 VAERS 报告的美国 COVID 病例、临床试验结果和疫苗相关不良事件的荟萃分析，他们得出结论：**“****对于儿童来说，****COVID-19 ****死亡的几率可以忽略不计，但在他们一生中，因有毒害的接种而造成的严重损害却是不可忽视的。**”他们进一步认为，临床试验都存在根本性缺陷，因为他们没有追踪参与者体内的任何生物标志物，这些生物标志物，可以提供疫苗导致的最终健康问题的早期迹象，例如“d-dimers作为凝血/凝血增强证据的证据” ; CRP 用于炎症增强的证据； 肌钙蛋白作为心脏损伤的证据”等等。
+你让他翻箱倒柜都查不出来
+Ni siquiera hacerle cabar el gabinete puede conseguirlos
 
-（我讽刺地补充说，临床试验设计者对生物标志物的概念并不陌生，因为他们追踪了两个对他们的事业最有利的生物标志物。他们测试了针对脚本化刺突蛋白的抗体，并测试了 SAR 的遗传内容 -CoV-2 病毒作为感染证据。）
+共产党的地方债
+Las deudas locales del Partido Comunista
 
-尽管自行发表，免疫学家巴特·克拉森（J. Bart Classen） 的分析更有说服力，因为他依赖于发表在《新英格兰医学杂志》上的[临床试验数据](https://www.scivisionpub.com/pdfs/us-covid19-vaccines-proven-to-cause-more-harm-than-good-based-on-pivotal-clinical-trial-data-analyzed-using-the-proper-scientific--1811.pdf)，VAERS没有对 COVID 的过度诊断或报告不足做出任何假设。在评估新药时使用既定方法，巴特克拉森博士批判性地重新分析了“全因发病率”的所有临床试验数据。
+所谓的隐形债务
+El supuesto deuda invisible
 
-以下是解释巴特·克拉森博士方法论的一个例子：假设一项临床试验涉及 10,000 名接受 X 药物以减轻疾病 X 的参与者和 10,000 名接受安慰剂的参与者。在安慰剂组中，有 100 人因各种原因发生严重健康事件——车祸、用药过量、癌症、心脏病、中风和其他原因，包括疾病 X。在药物治疗组中，200 人因相同的“全部原因”发生严重健康事件。那么，我们应该得出结论，即使药物 X 减轻了疾病 X，在某种程度上，它也会对健康产生负面影响。乍一看，在药物评估中包括车祸所造成的伤害似乎很奇怪，但意外的副作用非常难以辨别，正是因为它们出人意料。例如，假设一个人“Joe”接受了 X 药物，并且导致他全身出现轻微的凝块。当乔开车时，一个凝块脱落并卡在他的大脑中，导致他中风并撞毁了他的汽车。几乎不可能将 Joe 受伤的真正根本原因追溯到 X 药。但如果 Joe 是大型临床试验的一部分，那么 X 药的这些晦涩的影响就会在试验参与者中累积起来，并在试验中表现出来。由于“全部原因”导致的累积严重健康事件。
+共产党的所谓影子银行, 影子金融
+El llamado banco de sombra y sombra financiera del Partido Comunista
 
-巴特·克拉森博士使用短语“全因发病率”来表示所有严重的健康事件，仅从已发布的临床试验数据中发现，对于所有可用的 COVID 疫苗接种，在三种可用疫苗中，接种组的全因发病率显着高于对照组，辉瑞公司的疫苗效果最好，接种组发生了 262 起严重健康事件（21,720 名参与者），而对照组发生了 172 起严重健康事件（21,728 名参与者）。（接种组有 2 人死亡，对照组有 4 人死亡，但从原始数据中不清楚这些人在死亡时是否患有 COVID。）
+我可以告诉大家
+Les puedo decir
 
-**评论：在这次世界重点公共卫生事件中， 不是用科学应对，而是无人能够质疑的“科学教皇”信口雌黄左右一切。许多接种疫苗的人都说：我们相信科学。科学不是以解答疑问而创新发展的吗？你们疫苗的科学依据在哪里？而全世界都知道：所有疫苗都是实验性用于紧急状况的。**
+上帝都不知道发生了多少
+Ni Dios sabe cuántos han ocurrido
 
-**至少我们应该明白实验应在小范围内进行，不对吗？实验的人必须自愿，不是吗？**
+中国积累的假, 骗, 金融票据
+Las mentiras, falsas facturas financieras acumuladas por China
 
-**用于紧急状况的条件是没有治疗方法和药物，但为什么不让使用便宜有效的羟氯喹、伊维菌素治愈的大夫们发声？为什么要禁止这些药物？是谁在做诊断，政府官员还是前线医生护士？**
+这个爆发的时候
+Cuando esto se estalle
 
-**这些最基本的科学常识都没有遵守，怎么就说打疫苗，是相信科学呢？**
+你不知道能把什么东西都给你轰掉了
+No sabes qué cosa puede bombadearte
 
-（文章仅代表作者观点，与GNEWS无关）
+而且最关键的问题
+Y el problema más crucial
 
-素材来源：[www.lifesitenews.com](https://www.lifesitenews.com/opinion/mass-covid-vaccination-of-our-youth-is-a-looming-moral-and-public-health-catastrophe/)
+这些低级骗子们跟华尔街掺和在一起
+Estos estafadores de bajo nivel se mezclaron con Wall Street
+
+但是对他(们)来讲
+Pero para ellos
+
+赚钱我拿20%
+Si hay ganancia, yo tomo el 20%
+
+赚不赚, 我收你5%
+No importa si hay ganancia o no, te cobro el 5%
+
+他给像我这样的人2.5%
+Le da un 2.5% a personas como yo
+
+你想想七哥经历这些事情
+Piensa todas estas cosas que he experimentado
+
+这个世界有多恐怖
+Lo temeroso que es este mundo
+
+所以老百姓们根本不不懂
+Por eso los ciudadanos ni siquiera entienden
+
+告诉我, 14亿中国人
+Dime, 1.4 billones de chinos
+
+啥叫基金
+Qué es el fondo
+
+啥叫对冲基金
+Qué es fondo de cobertura
+
+啥叫封闭基金
+Qué es un fondo cerrado
+
+啥叫开放基金
+Qué es un fondo abierto
+
+啥叫赎回基金
+Qué es fondo de redención
+
+啥叫不赎回基金
+Qué es fondo no reembolsado
+
+他都不知道
+Él no sabe
+
+我们今天说的本质
+La esencia original que hoy hablamos
+
+所有的所谓地方债
+Todas las supuestas deudas locales
+
+所有影子银行, 所有的金融产品
+Todos los bancos de sombra y productos financieros
+
+就一句话
+Con sólo una palabra
+
+就是奴役中国人的
+Es para esclavizar a los chinos
+
+就中国人这21年加入WTO以后
+Con decir luego que los chinos se unieron a la Organización Mundial del Comercio (OMC) durante estos 21 años
+
+成了全人类的奴隶
+Se convirtió en el esclavo de toda la humanidad
+
+而且中国人顶住了全人类最大的一个金融的雷
+Y los chinos han resistido el mayor trueno financiero
+
+别说别的雷, 雷多了去了
+No digamos los otros truenos porque son muchos
+
+而且中国人即将为此付出代价
+Además, los chinos pagarán el precio por esto
 
 * * *
 
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
+日期：10/11/2021
+原视频标题：中国的金融票据破坏力巨大，中国人将付出无法想象的代价
+Las facturas financieras de China son tan destructivas que los chinos pagarán un precio inimaginable
+原视频日期：10/05/2021
+原视频网址[https://twitter.com/se1y7cblljselva/status/1446020234536624128?s=24](https://twitter.com/se1y7cblljselva/status/1446020234536624128?s=24)
+任务编号：KC165（2471）
+视频时间段：0:00-1:40
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场-小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

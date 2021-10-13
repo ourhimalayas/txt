@@ -2,32 +2,51 @@
 ---
 
 
-## 自民党竞选纲领有气无力，岸田文雄支持率走低
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591410/)
+## “烂账烂房”的背后 &#8211; 中共司法超限战一瞥
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591615/)
 
-作者：在远方
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+作者：Zion文恩
 
 
 
-10月12日路透社消息，日本自民党公布了谋取众议院席位的竞选纲领声明，强调要终结新冠疫情，承诺重建中产阶级并抵御日益强硬的中共。声明称未来将以果断的行动终结疫情。而在国土安全议题中，对于中共在台海附近，以及中日争议岛屿扩大军事活动的威胁，自民党称将重新考虑予以回应，并要提高国防预算，以期达到甚至超过GDP的2%。近几十年来，日本的国防开支一直维持在1%左右。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1013-AM-（3）.001.jpeg)
-自民党的这一竞选纲领表明，当前日本政府清楚的意识到，来自中共的威胁将是日本当今所要面对的主要问题。但以当前利益为前提之下，知行毕竟难以合一，无论谁执政，日本政府始终仍然难以完全摆脱中共的影响和掣肘。而来自NHK的一项民意调查显示，自民党新任首相岸田文雄的支持率仅为49%，明显低于前任首相们上任初期的支持率。
-(本文仅代表作者观点)
 
-参考链接：[日本自民党公布竞选宣言 重点是终结疫情并对抗中国](https://cn.reuters.com/article/japan-ldp-parliament-election-1012-idCNKBS2H20NN)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
+
+
+
+
+
+
+9 月以来，中共的金融庞氏骗局之一，恒大债务违约，已引发一系列国际金融市场的动荡。然而，中共习近平当局对恒大事件至今引而不发，各国政客和利益集团继续与中共勾兑，以求避免这一全球性金融灾难。
+
+10月10日，郭文贵先生在直播中，揭露了中共的司法超限战在维系其金融骗局中所发挥的作用。中共通过中国大陆或香港的律师事务所，与美国超过一百所著名律师事务所取得合作关系。这些律师事务所都在中共治下的北京、上海、香港等地开设分支机构，与中共控制的金融、司法和情报机构深度勾兑合作。而这些律师事务所很多被“蓝金黄”的律师，逐渐进入美国的司法部担任要职后，继续与中共勾兑合作，从而使美国司法体系也变成了中共控制的“后花园”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-38.jpg)
+这些被中共以合作为名全面渗透的律师事物所，帮助中共的恒大、平安等一批金融诈骗机构，制造虚假评估文件、进行虚假律师审核，并在一系列诉讼中为其充当司法辩护。这使得中共的金融庞氏骗局不断续命、加码，进而酿成几十万亿美元的金融核弹。中共的这一“合作加联姻”的司法渗透模式，已彻底摧毁了美国的立国根基 – 司法独立。
+
+参考链接：
+[2021年10月10日 文贵大直播：文贵在双十节给台湾同胞说的话：台湾凶也，中共与美方对台湾问题早有文字性承诺勾兑;习以孙灭台，与国民党卖台贼呼应；国内经济房地产的万亿债务危机，华平基金的腐败会把西方掏空，中美勾兑国债；中共通过对西方律师事务所的合作…](https://gtv.org/video/id=6162dd0f304e992109b2bc89)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Q大哥
+编辑/校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

@@ -2,159 +2,29 @@
 ---
 
 
-## 中国的金融票据破坏力巨大，中国人将付出无法想象的代价
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1591286/)
+## 有声|加拿大“新冠集中营”与“纠察队”在萨斯喀彻温省即将正式上线
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1591558/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2471.png)
-[https://gtv.org/video/id=61664356d2e2b81748749757](https://gtv.org/video/id=61664356d2e2b81748749757)
+配音：香草山教育部 – 蒙古鸿雁
 
-还有一个今天我们要谈到的
-Hay otra cosa que hoy vamos a conversar
+10月8日，据CBC报道，加拿大萨斯喀彻温省将反聘大量退休警察，使其与在职的警察联合行动，组成“新冠疫苗政策强制执行队”。该行动队旨在逮捕在公开场合违反加拿大新冠疫情规定的反口罩和反强制疫苗护照人士。
 
-特别是金融票据
-Especialmente sobre las facturas financieras
+此前，萨斯喀彻温省已在该省的北巴特爾福德市秘密建造了大量的隔离集中营。目前，这些集中营已投入使用——被逮捕的反新冠疫苗政策人士，以及新冠阳性患者都将会被关押在这些集中营内进行隔离。另外，该政策并未对何时释放关押人员做出任何解释。
 
-啥叫金融票据啊
-Qué son las facturas financieras
+据悉，萨斯喀彻温省政府还向公众推荐了该省的匿名举报系统，即无论个人或商户，倘若有人发现未戴口罩或未接种新冠疫苗者，可经相关网站进行匿名举报。随后，“新冠政策强制执行队”会对被举报人进行抓捕和关押。
 
-啥叫金融票啊
-Qué son los boletos financieros
+而今，赤裸裸的红色恐怖已经在加拿大蔓延开来。
 
-就是一张纸
-Es simplemente una hoja
+文字版原文：[加拿大“新冠集中营”与“纠察队”在萨斯喀彻温省即将正式上线](https://gnews.org/zh-hans/1588561/)
 
-谁来登记了
-Donde alguien se registra
+音频处理：喜山必胜Maverick
 
-就我们一个泰山兄弟亲身经历了800亿
-Uno de nuestros hermanos Taishan ha experimentado personalmente los 80 mil millones
-
-你让他自己跟我说那800亿是谁的票据, 他都说不出来
-Si le pides que me diga de quién es la cuenta de esos 80 mil millones, no logra decirlo
-
-你让他翻箱倒柜都查不出来
-Ni siquiera hacerle cabar el gabinete puede conseguirlos
-
-共产党的地方债
-Las deudas locales del Partido Comunista
-
-所谓的隐形债务
-El supuesto deuda invisible
-
-共产党的所谓影子银行, 影子金融
-El llamado banco de sombra y sombra financiera del Partido Comunista
-
-我可以告诉大家
-Les puedo decir
-
-上帝都不知道发生了多少
-Ni Dios sabe cuántos han ocurrido
-
-中国积累的假, 骗, 金融票据
-Las mentiras, falsas facturas financieras acumuladas por China
-
-这个爆发的时候
-Cuando esto se estalle
-
-你不知道能把什么东西都给你轰掉了
-No sabes qué cosa puede bombadearte
-
-而且最关键的问题
-Y el problema más crucial
-
-这些低级骗子们跟华尔街掺和在一起
-Estos estafadores de bajo nivel se mezclaron con Wall Street
-
-但是对他(们)来讲
-Pero para ellos
-
-赚钱我拿20%
-Si hay ganancia, yo tomo el 20%
-
-赚不赚, 我收你5%
-No importa si hay ganancia o no, te cobro el 5%
-
-他给像我这样的人2.5%
-Le da un 2.5% a personas como yo
-
-你想想七哥经历这些事情
-Piensa todas estas cosas que he experimentado
-
-这个世界有多恐怖
-Lo temeroso que es este mundo
-
-所以老百姓们根本不不懂
-Por eso los ciudadanos ni siquiera entienden
-
-告诉我, 14亿中国人
-Dime, 1.4 billones de chinos
-
-啥叫基金
-Qué es el fondo
-
-啥叫对冲基金
-Qué es fondo de cobertura
-
-啥叫封闭基金
-Qué es un fondo cerrado
-
-啥叫开放基金
-Qué es un fondo abierto
-
-啥叫赎回基金
-Qué es fondo de redención
-
-啥叫不赎回基金
-Qué es fondo no reembolsado
-
-他都不知道
-Él no sabe
-
-我们今天说的本质
-La esencia original que hoy hablamos
-
-所有的所谓地方债
-Todas las supuestas deudas locales
-
-所有影子银行, 所有的金融产品
-Todos los bancos de sombra y productos financieros
-
-就一句话
-Con sólo una palabra
-
-就是奴役中国人的
-Es para esclavizar a los chinos
-
-就中国人这21年加入WTO以后
-Con decir luego que los chinos se unieron a la Organización Mundial del Comercio (OMC) durante estos 21 años
-
-成了全人类的奴隶
-Se convirtió en el esclavo de toda la humanidad
-
-而且中国人顶住了全人类最大的一个金融的雷
-Y los chinos han resistido el mayor trueno financiero
-
-别说别的雷, 雷多了去了
-No digamos los otros truenos porque son muchos
-
-而且中国人即将为此付出代价
-Además, los chinos pagarán el precio por esto
-
-* * *
-
-日期：10/11/2021
-原视频标题：中国的金融票据破坏力巨大，中国人将付出无法想象的代价
-Las facturas financieras de China son tan destructivas que los chinos pagarán un precio inimaginable
-原视频日期：10/05/2021
-原视频网址[https://twitter.com/se1y7cblljselva/status/1446020234536624128?s=24](https://twitter.com/se1y7cblljselva/status/1446020234536624128?s=24)
-任务编号：KC165（2471）
-视频时间段：0:00-1:40
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场-小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,53 +2,52 @@
 ---
 
 
-## 九月新冠死者几乎均完全接种疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1591335/)
+## 辉瑞公司声称疫苗 95% 有效的测试存在“明显欺诈证据”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591569/)
 
-【简评】***由于COVID-19疫苗包含纤突蛋白和其它未知毒素，人体免疫系统会因此遭到不同程度的破坏。疫苗出现前后的感染病例数据对比表明，疫苗并不能避免新冠病毒的感染或传播，而且疫苗在今年夏天和初秋还增加了接种人群住院和死亡的风险。寒冬将至，情况愈发不容乐观。我们呼吁民众深入了解和积极传播疫苗真相。***
+作者：AsG諾雅
 
-据《新闻目标》作者：Ethan Huff 2021年10月10日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2496.png)图片来源：《新闻目标》
-英国国家统计局 （The Office for National Statistics (ONS)）发布的一组数据显示，在9月份检测新冠病毒(Covid-19)呈阳性后死亡的人群里，81%有按照政府的指导方针完全接种疫苗。
 
-仅在英国，9月份就有大约30,305人在接种了新冠疫苗后的21日内死亡。这是英国国家统计局无意中承认的，而它此前曾告诉好奇的人“他们不掌握这些信息”。
 
-事实证明，他们其实有掌握这些信息但不愿意公开，因为它破坏了政府和医疗系统之间的所谓“‘福奇流感’（Fauci Flu）疫苗是‘安全有效’”的主流说法。
 
-自由人类（Humans Are Free） 网站报道，“英国国家统计局曾经愚弄公众，让他们相信只有1%完全接种疫苗的人死于新冠，而不包括已经和正在发生在这极其奇怪的第三波新冠疫情死亡病例”。
 
-“说它奇怪，是因为新冠死亡人数相比去年同期仍然高出了很多倍，尽管夏天的天气对我们有利，而且据称疫苗有效率为95%。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-一年前，在疫苗被投放到市场之前，与新冠病毒相关的死亡人数几乎呈平线状态。
 
-然而今年，世界范围的新冠病毒的新“病例”激增。 数字如此之高，以至于自由人类（Humans Are Free）网站报道说，这是“在疫苗有效率为95%情况下，你会在今年冬季中期看到的情况。”
 
-寒冬将至：完全接种疫苗的人会发生什么呢？
 
-疫苗的有效率很明显并不是95%，除非“有效”意味着有效伤害和杀死大多数注射疫苗的人。也许这就是这场“有预谋的病毒大流行”（plandemic）（注：英文把“计划”一词嵌入“病毒大流行”词中）的真正目标，它显然从来都不是关于“拉平确诊人数曲线”的“拯救生命”——当然，除非人类是“曲线”（他们想把人类的数量削减）。
 
-在这种情况下，世界人口（曲线）确实正在以极快的速度被夷为平地，而数百万人却还是不明白发生了什么事，因为他们的刻意无知，以及盲目相信政府会在某种程度上代表他们的最大利益。
 
-不仅新冠死亡病例绝大多数发生在完全接种疫苗的人中，而且绝大部分的新增感染病例也是如此。换句话说，现在唯一仍受新冠病毒问题困扰的人，几乎就是那些接种了疫苗的人。
 
-周复一周，医院里挤满了成批正在生病或即将死亡的已完全接种疫苗的人，因为他们的免疫系统被疫苗里的纤突蛋白和其它神秘毒素毁坏了。
+《生命新闻网》10 月 12 日消息，美国前线医生首席科学官、辉瑞公司前副总裁迈克尔-耶尔登博士针对《柳叶刀》上一篇有关新冠疫苗有效性的文章和一部审查辉瑞疫苗疗效研究的纪录片发表了看法，他认为辉瑞公司的研究中有“明显的欺诈证据”。
 
-这是任何人都可以查看的数据。任何声称支持“科学”的人，如果他们在谈到普遍遵守新冠病毒疫苗接种的“新常态”（反常的现实正逐步变为常态）时，继续相信福奇（Tony Fauci）和 CNN 之类的观点，那都是在自欺欺人。
+耶尔登博士表示，相信他们（辉瑞）的行为是蓄意的大规模谋杀，其目标就是让人们尽可能地恐惧并接受疫苗接种，他对政府、媒体和科技巨头掩盖真相的做法表示愤慨。
 
-“数据清楚表明，接种疫苗不能预防感染或传播，而且即使在夏季和初秋，疫苗也在增加住院和死亡的风险，而不是降低风险。”自由人类（Humans Are Free）网站报道，并指出这一切都发生在夏天，而夏天的疾病和死亡人数应该是最少的。
+当世界各国民众知道新冠肺炎有效治疗药物被各级“医疗权威”禁止，各国政府强推的所谓疫苗实际上是“杀人生化武器”的真相时，所有参与这一大屠杀计划的机构和个人都将收到法律的审判。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-60.jpg)
+参考链接：
+[Former Pfizer VP: ‘Clear evidence of fraud’ in Pfizer study claiming 95% jab efficacy](https://www.lifesitenews.com/news/former-pfizer-vp-clear-evidence-of-fraud-in-pfizer-study-claiming-95-jab-efficacy/?utm_source=featured&amp;utm_campaign=usa)
+[COVID-19 vaccine efficacy and effectiveness—the elephant (not) in the room](https://www.thelancet.com/journals/lanmic/article/PIIS2666-5247%2821%2900069-0/fulltext)
 
-“我们现在面临的问题是什么呢？冬天就在眼前了。”
+（本文仅代表作者观点）
 
-欲查询最新的因新冠疫苗而伤亡的人数，请至ChemicalViolence.com
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-文章来源：[https://newstarget.com/2021-10-10-nearly-all-covid-deaths-september-fully-vaccinated.html](https://newstarget.com/2021-10-10-nearly-all-covid-deaths-september-fully-vaccinated.html)
+新闻访谈终审：Q大哥
+编辑/校对/发稿：为真不破20
 
-文章点评仅代表个人观点
+**更多资讯，更多关注**
 
-翻译/评论：洛杉矶盘古农场 – maru
-校对：洛杉矶盘古农场 – 柯镇恶
-编辑：洛杉矶盘古农场 – 柯镇恶
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
