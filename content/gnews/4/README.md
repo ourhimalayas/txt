@@ -2,35 +2,34 @@
 ---
 
 
-## 打锦鲤旗即为汉奸，共匪之忧不在美日而在萧墙之内也
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1590368/)
+## 国际要闻汇编
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1590455/)
 
-据[**沸点视频**](https://weibo.com/u/5145725878?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年10月13日8：26](https://weibo.com/5145725878/KCuWiE9Vx?ref=home&amp;rid=10_0_8_4806865679011788365_6_0_0) 来自 [Android](https://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
+素材：东京樱花团GNEWS组
+![](https://lh5.googleusercontent.com/JCuOgMxc7M2h--f2tTlVCPbRhrFbjt40s5vWtu2ete_B2pd3aQ9TH-gsjUivc9G0Xap_VUuOj08PeKrpt4H7q6ZVC9f_zsg-UpkQHV1-fZGoS96dvQI8DvL2PVQIu4BatADRdkB9=s0)[图片来源](https://www.voachinese.com/a/jpmorgan-alipay-partnership-20211012/6268100.html)
+10月13日汇编
 
-【[#男子带团举鲤鱼旗游客提醒反被驳#](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E5%B8%A6%E5%9B%A2%E4%B8%BE%E9%B2%A4%E9%B1%BC%E6%97%97%E6%B8%B8%E5%AE%A2%E6%8F%90%E9%86%92%E5%8F%8D%E8%A2%AB%E9%A9%B3%23&amp;from=default)：中国传到日本去的】10月12日，网友爆料一[#男子举鲤鱼旗带学生参观中山陵#](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E4%B8%BE%E9%B2%A4%E9%B1%BC%E6%97%97%E5%B8%A6%E5%AD%A6%E7%94%9F%E5%8F%82%E8%A7%82%E4%B8%AD%E5%B1%B1%E9%99%B5%23&amp;from=default)。一名女子上前提醒让其不要使用此旗被男子反驳。男子称这是锦鲤旗，是中国传到日本去的。随后被旁边游客拉开。鲤鱼旗，在日本为庆祝五月五日男孩节，家有男孩的，家家挂鲤鱼旗。此风俗始于江户时代，原是农历端午节的风俗。[#蓝v视界#](https://s.weibo.com/weibo?q=%23%E8%93%9Dv%E8%A7%86%E7%95%8C%23&amp;from=default)[2南京](https://weibo.com/p/1001018008632010000000000) [L沸点视频的微博视频](http://t.cn/A6MCPQST)
+1、[摩根大通联手支付宝 观察人士警告中共非法手段收集数据](https://www.voachinese.com/a/jpmorgan-alipay-partnership-20211012/6268100.html)
 
-子曾经曰过——“故远人不服，则修文德以来之。既来之，则安之。今由与求也，相夫子，远人不服、而不能来也；邦分崩离析、而不能守也：而谋动干戈于邦内。吾恐季孙之忧，不在颛臾，而在萧墙之内也。”大意是——“原来的远方的人不归服，就发扬文治教化来使他归服；使他来了之后，就要使他安定下来。如今由与求两人辅佐季孙，远方的人不归服，却不能使他们来；国家四分五裂而不能保持它的稳定统一；反而在境内策划兴起干戈。我恐怕季孙氏的忧虑，不在颛臾，而是在鲁国内部。”
+美国摩根大通银行(JPMorgan)最近宣布与支付宝合作，为阿里巴巴网站提供美国信用卡支付服务。这一合作引起了西方观察者的担忧，意味着美国消费者在阿里巴巴网站上购物将经过支付宝。 虽然许多人认为这给无现金支付创造另一种选择，但部分观察人士对这一合作提出了质疑，他们担心，这样的合作会给中国军方取得美国用户信息的机会。《外交政策》周二（12日）发表的一篇评论文章说，摩根大通与支付宝的合作可能让中国解放军进到用户的口袋。文章指出，由于中国公司有义务协助中国政府，北京可以不诉诸非法手段就能收集数据。 这远远超出了用户隐私范畴。 事实上，政府访问他国公民的数据会构成国家安全风险。
 
-想当年远人不服而能修文德以来之，现如今爱国大妈们赤膊上阵，数典忘祖下，不仅把祖宗原创的锦鲤旗的卖给日本，而且不把举锦鲤旗的同胞打成汉奸卖国贼不算完，由是观之，“邦分崩离析、而不能守也：而谋动干戈于邦内。”吾亦恐共匪之忧不在美日，而在萧墙之内也！
+2、[哈佛暑期中文进修计划由北京迁往台北](https://www.voachinese.com/a/Harvard-University-moves-Mandarin-summer-program-from-China-to-Taiwan-20211012/6267721.html)
 
-撰稿：喜马拉雅的肉夹馍
+根据哈佛大学校刊《哈佛红报》以及多家台湾媒体报道，持续已经16年之久的“哈佛北京书院”暑期中文进修计划已经决定撤离北京，迁往台北，并以“哈佛台北书院”的名称继续这项颇受学生欢迎的实境语言培训计划。台湾外交部发言人欧江安周二（12日）证实，哈佛大学决定自去年起终止与北京语言大学合办的“哈佛北京书院”计划，转而与台湾国立台湾大学合作成立“哈佛台北书院”，并从2022年起，每年暑期选送学生到台湾进修中文。
 
-审核：喜马拉雅的馍夹肉
+3、[四分之一新冠感染者半年后疑似仍有后遗症](https://www3.nhk.or.jp/nhkworld/zh/news/327040/)
 
-校对：Maarago
+由日本的国立国际医疗研究中心等机构组成的研究小组开展的一项关于新冠感染后遗症的调查显示，有四分之一的感染者在出现感染症状半年后仍有类似后遗症的症状。调查对象为去年2月之后从新冠感染中恢复的457人，年龄分布在20岁至79岁之间。调查询问了受访者恢复后的症状，有26.3%的受访者称在出现感染症状半年后症状仍未完全消失，在出现感染症状一年后症状仍未完全消失的受访者比例达8.8%。从性别来看，女性出现嗅觉异常的几率是男性的约1.9倍，感到身体倦怠的几率是男性的约2倍，出现脱发的几率是男性的约3倍。调查还显示，越是年轻、身体越是瘦小的人越容易出现味觉和嗅觉异常，而且他们即使是轻症患者，也容易出现类似后遗症的症状难以彻底消失的情况。
 
-（文章内容仅代表作者个人观点）
+4、[欧盟拟收紧药物供应规定 避免依赖中国等独裁国家](https://www.aboluowang.com/2021/1013/1658729.html)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+路透社报导，去年爆发COVID-19疫情大流行时，欧盟为从中国及印度取得各种药物及其成分曾长期面临诸多问题，因为在实行封锁及出口限制情况下，药品供应紧张。在斯洛文尼亚举行的欧盟卫生部长会议上，欧盟计划改变规定，也意在减少依赖外国生产的药物成分，欧盟执委会估计，全球2/3药物供应集中在印度及中国。与会者认为，在制药产品方面，欧盟过度依赖中国及其他第三国，在疫苗上，欧盟过分的依赖中国或俄罗斯等独裁国家。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+5、[欧盟宣布10亿欧元援助阿富汗人民 避免社经崩溃](https://www.aboluowang.com/2021/1013/1658706.html)
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+阿富汗塔利班周二（12日）在多哈首次会见了美国-欧盟联合代表团；与此同时，欧盟宣布10亿欧元援助阿富汗方案，表示将竭尽全力避免阿富汗发生重大人道灾难和社会经济崩溃。法新社消息，周二（12日）在意大利举行的G20线上峰会上，欧盟承诺向阿富汗提供10亿欧元的人道主义援助。欧盟委员会主席冯德莱尔周二（12日）宣布10亿欧元的一系列阿富汗人民援助方案，表示必须竭尽全力避免阿富汗发生重大的人道主义和社会经济崩溃，当前需要尽快完成工作。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+（本文只代表个人观点，与Gnews网站无关）
+*编辑：东京樱花团 / 文小白*
+*发布：东京樱花团 /*平安卿卿
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
