@@ -2,108 +2,68 @@
 ---
 
 
-## 喜交所的开户行是G系列的控股
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1589958/)
+## 台湾成为中美私下勾兑的牺牲品
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1590041/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl-6.jpg)
-[https://gtv.org/video/id=61656f99d2e2b817487463d8](https://gtv.org/video/id=61656f99d2e2b817487463d8)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl-7.jpg)
+2021年10月10日是中华民国建国110周年，也是中共纪念辛亥革命110周年的日子。对于这个日子，中共和台湾有不一样的定义。同一天，郭文贵先生通过**直播爆出**：关于台湾问题，中共已和美国私下勾兑好。
 
-**郭文贵**
-**Miles Guo**
+一、**勾兑背景：**
 
-昨天也就是10月6号咱们签署了一家金融机构
-it was October 6th yesterday, we signed the contract with a fi-nancial institution
+关于台湾，美国现任政府已经将三个保证（附有拜登总统亲笔签字）通过书面形式传达给中共驻美大使秦刚，而秦刚是习近平的女婿。这个保证书也促成了美国白宫国家安全顾问沙利文和中共政治局委员杨洁篪10月7日在瑞士的会谈。会谈的目的是为了让中共帮助美国走出经济困境，作为回报，美方牺牲台湾利益。中共随时都有可能攻台！
 
-10%（股权）归我们GTV的投资者所有
-that 10% equity is owned by our GTV investors
+**二、勾兑内容：**
 
-记住这话，七哥承担责任的，我不告诉你这个机构是什么
-Remember, QiGe(Miles) is responsible for it, I won’t tell you what this organization is
+**官方信息：**中共外交部网站公布了“瑞士会谈”的内容，持续近6个小时的会谈，公布的信息却是非常模糊。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/zxdswe.png)
+（**图片链接：**[https://www.fmprc.gov.cn/web/zyxw/t1912668.shtml](https://www.fmprc.gov.cn/web/zyxw/t1912668.shtml)）
 
-昨天是个大日子，我昨天就在这里问，那个金融机构的其中一个股东
-Yesterday it was a big day, I asked the question here yesterday that one of the shareholders of that financial institution
+**三、爆料革命情报：**
 
-他就非要当大股东，我说必须得让我们G系列当大股东
-He wanted to be the major shareholder, I said we must let our G series be the major shareholder
+美方对中方的书面承诺：
+1、不改变中共的共产党体制；
+2、中美军事交流继续，在台湾南海不会有任何军事活动；
+3、在香港、新疆、台湾问题上双方竞争关系，可以不同，但在1、2条框架下，不丑化领导人，坚持一个中国政策，不支持台独。
+4、美方反对不经通知美方情况下攻打台湾，中方反馈美方最终由台方决定，美方台湾问题直接与秦刚对接！
 
-当时我就说，我是一分股权也没有
-I said at that time, I don’t have any single share of equity
+**美方对中方的要求**
 
-你可以不欢迎我们这些人，还是那句话
-You may not welcome people like us, again
+1. 中美经济重新挂钩。
+2. 中方继续购买美国国债。
+3. 中方管理好恒大地产的财务危机，避免引起美国股市崩盘。
 
-我们这些都是穷兄弟，对吧
-All of us are the poor brothers, right?
 
-你这个国家一共多少人，你告诉（我）你国家多少人，是不是
-What’s the population in your country, you tell me what’s the population for your country, right?
+对比官方公布的信息，“美方表示坚持一个中国政策”和郭文贵先生获得的情报是一致的。而此前，美方对此的表述是：在任何一方不改变现状的前提下，坚持“一个中国”。这也给中共留下了单方面改变现状的空间，即攻台。
 
-你才1000万人，千百万人嘛，对吧
-your country is about only 10 million people, it’s only several millions of people, right?
+不改变中共体制，也就是继续承认共产党在中国的统治。对于中共在香港、台湾和新疆实施的犯罪行为上，前任特朗普政府分别签署了《香港人权与民主法》, 2020年台湾保证法
+宣布中共国在新疆对维吾尔人犯下了种族灭族和反人类罪。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/cvc.png)
+（**相关链接：**[https://www.voachinese.com/a/trump-administration-declares-chinas-repression-of-uighurs-genocide-20210119/5743710.html](https://www.voachinese.com/a/trump-administration-declares-chinas-repression-of-uighurs-genocide-20210119/5743710.html)）
 
-另外你这个国家多少人，几十万人，虽然你是世界最有钱的国家，最牛的
-In addition, how many people are in your country, hundreds of thousands, although you are the richest country in the world, super rich
+**四、关于武力功台**
 
-但我请问你，作为朋友，如果我们中国人
-But I ask you, as a friend, if we Chinese people
+关于中共是否武力攻台的问题上，杨洁篪说取决于台湾内部。也就是说如果台湾有内鬼主动邀请或者内鬼和中共里应外合，中共可以随时发起攻击。
 
-有200万到500万高质客户投了你这个国家，结果是什么
-there are 2 million to 5 million high-quality customers have in-vested in your country, what is that result?
+关于美国对待台湾的问题上，美国历届政府都出台了一系列政策来保护台湾，免受中共的压迫和胁迫。
+· 《与台湾关系法》
+· 《台湾旅行法》
+· 《台湾保证法》
+· 《台湾安全加强法 》
+· 《2018年亚洲再保证倡议法 》
+· 《台湾友邦国际保护及加强倡议法》
+· 六项保证
+· 《国防授权法》
 
-他说，那太大了，然后我说你要想跟G系列合作
-He said that’s great, and then I said if you want to cooperate with the G series
+而如今，美国现任拜登政府仍然没有对中共释放新冠病毒上追责。美国经济和股市也因为新冠疫情随时面临崩溃窘境。为了解决经济问题，拜登政府不惜牺牲台湾的利益和放任中共攻台来和中共私下勾兑。
 
-我作为一个顾问我建议你，你必须让我们控股
-I, as a consultant, my suggestion to you is that you must let us be the holding shareholders
+**郭文贵先生警报**
 
-而且必须接受(GTV投资者), 他原来是不接受GTV然后椅子
-and must accept our investors, he did not accept GTV original shareholders at first
+郭文贵先生说：每分每秒中共都有可能迅速攻击台湾。台湾情况非常危险！中美现任政府之间的私下勾兑就是一份卖台协议。香港已被中共蹂躏，台湾是中国人最后一片民主自由之地。台湾，危在旦夕！
 
-就是散户他不接受，
-He doesn’t accept retail investors
+**【文章观点仅代表作者个人，与gnews平台无关】**
 
-第二，这些人未来要加一起成为这个金融机构10%的股东
-Second, these people will become 10% shareholders of this finan-cial institution together in the future
-
-他说那是不是按照市值，到时候收购完以后的估值的市值
-He said that is it based on the market value, the market value after the acquisition is completed
-
-市值，市场价值来买股，我说不可以
-Market value, the future market value when we make transac-tions, I said no
-
-不管你定价多少钱，我们这些股东，未来要加入进去的
-No matter how much you price it, our shareholders who will join in in the future
-
-我带的人未来绝对不能超过1美金（一股）
-The person I bring in the future must not exceed $1 per share
-
-就是你们看到的，我们最好的那个兄弟，不能说名字
-It’s what you see, our best brother, I can’t say his name
-
-昨天说，大哥，拿下了，51控股
-He said yesterday to me, “big brother, done, we got 51% share holdings”
-
-未来GTV老椅子，记住今天说的话，GTV老椅子
-The old GTV shareholders in the future, remember what I said today, the old GTV shareholders
-
-GTV 老椅子，包括后来借项目所有的投资者，新GTV的股权拥有者
-the old GTV shareholders, Including all investors who were in the borrow project later and the equity owners of the new GTV
-
-不会超过一块钱，拥有这家金融机构的股份
-that will own shares of this financial institution with price of no more than one dollar per share
-
-—————————————————————
-原视频日期：2021/10/07
-任务编号：KC161（2489）
-视频时间段 : 0:00-2:14
-
-**原视频接:**[https://twitter.com/se1y7cblljselva/status/1446411073133764611?s=24](https://twitter.com/se1y7cblljselva/status/1446411073133764611?s=24)
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
+作者：洛杉矶盘古农场 — 文如
+编审：洛杉矶盘古农场 — 心照
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

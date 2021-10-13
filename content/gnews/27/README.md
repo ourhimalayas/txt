@@ -2,35 +2,26 @@
 ---
 
 
-## 上交所暂停先正达科创板上市申请
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1590128/)
+## 太疯狂！澳大利亚NSW新州长希望接种率超过90%
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1590223/)
 
-**撰稿：日本东京方舟农场 海星**
+翻译：Jenny
+![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_1576.jpg)图片：Jenny
+据《Sky News》10月13日报道，新南威尔士州新上任的州长多米尼克-佩罗特（Dominic Perrottet）最新表态，如果该州本周实现了80%的双倍剂量目标，他的内阁将考虑提前放宽一些限制，但他相信12月1日未接种疫苗者的 “自由日 “不会提前。由此可见他将延续前任州长的既定疫苗政策。根据周一的数据，新南威尔士州州16岁以上人口中超过75.2%的人已经完全接种疫苗，90.8%的人至少接种了一剂。
 
-10月11日，中共上交所最新披露文件称，暂停先正达集团在科创版上市的申请，要求其更新财务信息。
+如果新南威尔士州继续以这种速度推出疫苗，该州应在周日前达到80%的双剂量大关。佩罗特先生说：“内阁将在周四下午举行会议，评估整个州的疫苗接种率，特别是新南威尔士州的地区，以考虑放宽更多限制是否合适。”
 
-据《路透社》报道，今年7月初，全球最大农药生产商先正达集团向上海证券交易所提出申请并获受理。该公司表示此次上市计划筹资金额为650亿元人民币，可能成为今年全球最大IPO，并计划发行27.9亿股新股，相当于公司股本20%。
+总理被问及他是否会考虑将未接种疫苗的“自由日”，12月1日的期限提前，他回答说。他回答说：”不，我们还没有到那个地步”。”我们已经确定了这个日期，我认为这是目标，因为我们显然希望继续推动本州的疫苗接种率，”。
 
-9月30日，上海证券交易所在官网上发布了有关暂时中止上市的通知，但没有详细说明先正达集团上市申请审查的恢复时间。
+“我们这里领先于全国，也可以说是领先于世界，因为我们州的疫苗接种率和接种速度都很高，但我们想尽一切努力使疫苗接种率超过90%。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/w700h350z1l10t107b0.jpg)图片来自于网络
+超过90%？这是非常疯狂的数字！
 
-一位熟知内情的消息人士透露，先正达已按要求向上交所提交财务资料，将于本周公布更新后的IPO时间表。
+新州长的上任一度为NSW州拒绝接种疫苗的人群带来一丝希望，但以上言论令我们不禁担忧，佩罗特先生是否会采用维多利亚州那样激进的手段，通过立法强推疫苗并动用警察大肆镇压反抗者。
 
-先正达集团总部位于瑞士，目前是全球最大的农药生产商，并对转基因生物有深入研究。中国化工集团在2017年以430亿美元收购了先正达，并于去年将这家瑞士公司与以色列农化公司ADAMA以及中化集团的化肥和种子业务合并。
+（本文纯属个人观点，与Gnews无关）
 
-*注：本文仅代表作者观点，与 Gnews无关*
+[原文链接：](https://www.skynews.com.au/australia-news/coronavirus/dominic-perrottet-says-further-restrictions-could-ease-on-monday-but-regional-travel-likely-off-the-cards/news-story/3e923ae555578abf83f9cc5ede28dcb6)
 
-*参考链接：*
-
-[上交所中止先正达集团发行上市审核 因财务资料已过有效期需补充提交](https://www.reuters.com/article/shh-exchange-syngenta-ipo-1011-idCNKBS2H10G2?edition-redirect=uk)
-
-[先正達中國IPO申請受阻，上交所要求更新財報訊息](https://tw.stock.yahoo.com/news/%E5%85%88%E6%AD%A3%E9%81%94%E4%B8%AD%E5%9C%8Bipo%E7%94%B3%E8%AB%8B%E5%8F%97%E9%98%BB-%E4%B8%8A%E4%BA%A4%E6%89%80%E8%A6%81%E6%B1%82%E6%9B%B4%E6%96%B0%E8%B2%A1%E5%A0%B1%E8%A8%8A%E6%81%AF-011221375.html)
-
-[独家：中国化工寻求先正达IPO筹资100亿美元 或成今年全球最大上市案](https://cn.reuters.com/article/chemchina-syngentaipo-exclusive-0630-idCNKCS2E72Y9)
-
-[先正达](https://zh.wikipedia.org/wiki/%E5%85%88%E6%AD%A3%E9%81%94)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

@@ -2,35 +2,26 @@
 ---
 
 
-## 民意调查：大多数未接种疫苗的人表示他们不会接种
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1590107/)
+## 有声|北欧多国停止或暂停使用莫德那疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1590216/)
 
-**评论：有人称媒体为除了行政、立法、司法以外的“第四权”，就是因为它的力量非常的大，大到可以左右和培养整个国家人民的思想，可以引导你做出错误的决定。例如，人民被误导接种疫苗，受到极大伤害，却不自知。媒体如果被恶人所操控，这个世界将进入慢慢长夜。**
+配音：香草山教育部-蒙古鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月10日，冰岛停止了莫德那疫苗的使用。冰岛首席流行病学家在一份声明中说，该决定是由于”接种莫德那疫苗后，心肌炎和心包炎的发病率增加“。
 
-**据《Breitbart》记者：HANNAH BLEAU 2021年10月09日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/aggyg-aue4e.jpg)图片来源：布赖特巴特新闻网
-Yahoo本周发布的新闻YouGov调查发现，四分之一的美国人表示他们要么没有接种针对中共国冠状病毒的疫苗，要么不确定，而大多数未接种疫苗的人表示他们不会接种疫苗。
+同样因心肌和心包的炎症风险，瑞典和芬兰在10月9日，针对30岁以下的人，暂停使用莫德那疫苗。与此同时，丹麦和挪威已正式建议不要对18岁以下人群使用莫德那疫苗。
 
-调查结果显示，采取 2021年10月1-4日，其中1,640名美国成年人，要求受访者描述他们关于冠状病毒疫苗的“个人情况”。
+芬兰、瑞典和丹麦等斯堪的纳维亚国家表示，在瑞典公共卫生局进行的一项未公布的研究中，莫德那疫苗显示心脏炎症的风险，因此他们做出了停止或暂停该疫苗的决定。来自该研究的信息已被送往欧洲医药局的不良反应委员会，该委员会将对其进行审查。
 
-大多数人（64%）表示他们已完全接种疫苗，而 6% 的人表示他们正在接种疫苗，5% 的人表示他们计划接种疫苗。然而，至少有四分之一的美国人表示犹豫。其中，15% 的人表示他们不会接种疫苗，另外 10% 的人表示他们“不确定”是否接种了疫苗。
+文字版原文：[北欧多国停止或暂停使用莫德那疫苗](https://gnews.org/zh-hans/1586094/)
 
-该调查还特别询问了未接种疫苗的人是否打算接种疫苗。 60%的人说“不”，他们不打算这样做，四分之一的人说他们“不确定”。只有15%的人说“是的”，他们计划接种。
-
-该调查还要求未接种疫苗的受访者说出未接种疫苗的“最重要原因”。 40%的多数人表示，他们“不相信 COVID-19 疫苗”。另有10%的人表示他们已经感染了病毒，因此不担心感染。 8%的人提到了接种疫苗的突破性病例，同样比例的人表示他们不担心感染病毒。 5%表示不容易获得疫苗接种。
-
-调查显示，尽管政府进行了疫苗闪电战，但几个月来，拒绝接种疫苗的美国人的百分比总体保持不变。
-
-一个经济学家/ YouGov的8月公布的调查显示是未接种疫苗的美国人不会轻易被说服接种疫苗—不会被由选举产生的官员的强制令或恳求所左右。
-
-**文章来源：**[https://www.breitbart.com/politics/2021/10/09/poll-majority-of-the-unvaccinated-say-they-will-not-get-the-jab/](https://www.breitbart.com/politics/2021/10/09/poll-majority-of-the-unvaccinated-say-they-will-not-get-the-jab/)
-
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – Wendy
-编辑：洛杉矶盘古农场 – Wendy
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
