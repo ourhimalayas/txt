@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/13/2021 2:18 AM (UTC)`
+
+10/12/2021 Miles Guo’s GETTR: Although Japan, Germany, Britain, and Taiwan know that the CCP is fraudulent, they are still investing lots of money in the Communist China; The CCP’s economic unrestricted warfare will have enormous and serious consequences for the entire world!<br/><br/>10/12/2021 文贵盖特：日本、德国、英国和台湾，明知中共造假，却仍向中共国投入了大量资金，中共经济超限战将对全世界造成巨大的严重后果！<br/>
+![img](https://media.gettr.com/group7/getter/2021/10/13/02/18/6ea9a92a-6f7e-8c8e-ff03-29d6cba77357/out.jpg)
+
+---
+
 `@miles 10/13/2021 12:55 AM (UTC)`
 
 10/12/2021 Miles Guo’s GETTR: The world’s religions, politics, and economy shall all be reformed; The COVID vaccine disaster and the CCP’s invasion of Taiwan will destabilize the world’s economy, undermine the confidence of Europe and the US, and result in lots of uncertainty; The CCP fears that the New Federal Stare of China can make our fellow fighters rich and strong, and have good judgment<br/><br/>10/12/2021 文贵盖特：世界宗教、政治、经济都要改革；疫苗灾难和中共攻台将打破世界经济平稳运行，打击欧美的信心，并造成大量不确定性；中共惧怕新中国联邦能让战友们有钱、腰杆硬和有判断力<br/>
@@ -287,13 +294,6 @@ Taiwan is in great danger: Xi Jinping addresses the 110 years anniversary of Xin
 
 10/7/2021 Miles Guo: During the so-called 120 days of war preparations, the CCP will resume its worldwide campaign of releasing viruses and building biological labs to crush the global economy and financial markets; their objective is to invade and divide up Taiwan [among the ruling families within the CCP] and destroy Japan and Australia. Will they succeed in their evil plans? 90% of the duration of the meeting between Jake Sullivan and Yang Jiechi was dedicated to the purchase of US Treasury bonds.<br/><br/>10/7/2021 文贵直播：中共企图借所谓的备战120天，继续在全世界放毒、建生化实验室，试图全面打击世界经济、摧毁金融市场，攻占、瓜分台湾、弄死日、澳，共产党会得逞吗？杨洁篪、沙利文会面9成在谈购买国债。<br/>
 ![img](https://media.gettr.com/group13/getter/2021/10/09/03/04/2a26ac6f-613b-ea40-cb67-3055ef0e8bc4/out.jpg)
-
----
-
-`@miles 10/9/2021 12:15 AM (UTC)`
-
-...
-![img](https://media.gettr.com/group46/origin/2021/10/08/22/dcea9bcd-e61b-16aa-9d9a-c49e9010eb27/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
