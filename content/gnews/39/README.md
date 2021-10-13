@@ -2,38 +2,26 @@
 ---
 
 
-## 路透社解读美国债务上限提高对债券市场意味着什么？
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1590122/)
+## 太疯狂！澳大利亚NSW新州长希望接种率超过90%
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1590223/)
 
-作者：文一
+翻译：Jenny
+![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_1576.jpg)图片：Jenny
+据《Sky News》10月13日报道，新南威尔士州新上任的州长多米尼克-佩罗特（Dominic Perrottet）最新表态，如果该州本周实现了80%的双倍剂量目标，他的内阁将考虑提前放宽一些限制，但他相信12月1日未接种疫苗者的 “自由日 “不会提前。由此可见他将延续前任州长的既定疫苗政策。根据周一的数据，新南威尔士州州16岁以上人口中超过75.2%的人已经完全接种疫苗，90.8%的人至少接种了一剂。
 
+如果新南威尔士州继续以这种速度推出疫苗，该州应在周日前达到80%的双剂量大关。佩罗特先生说：“内阁将在周四下午举行会议，评估整个州的疫苗接种率，特别是新南威尔士州的地区，以考虑放宽更多限制是否合适。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+总理被问及他是否会考虑将未接种疫苗的“自由日”，12月1日的期限提前，他回答说。他回答说：”不，我们还没有到那个地步”。”我们已经确定了这个日期，我认为这是目标，因为我们显然希望继续推动本州的疫苗接种率，”。
 
+“我们这里领先于全国，也可以说是领先于世界，因为我们州的疫苗接种率和接种速度都很高，但我们想尽一切努力使疫苗接种率超过90%。”
 
-据10月12日路透社纽约报道– 美国参议院批准债务上限法案，增加4,800亿美元至28.9万亿美元。该法案将于周二提交众议院进行表决，通过后总统乔-拜登才能将其签署为法律。这预计将涵盖12月初的债务融资需求，但长期的解决方案被推迟了。在新的12月最后期限之前，投资者仍在关注违约风险。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-12.jpg)
-美国财政部预计将很快花掉4,800亿美元新借款授权中的大约三分之二。货币市场研究公司 Wrightson Capital分析，根据法律规定，财政部必须先补足在 “暂停债务发行期”（DISP）中被取消投资的信托基金余额。截至10月6日，政府信托基金被拖欠3010亿美元的非市场化证券，也就是说财政部可支配常规金额不足2000亿美元，预计在11月的第一周即将用完而不得不宣布新的“暂停债务发行期”。
+超过90%？这是非常疯狂的数字！
 
-美国银行证券公司则预测新资金可能可以涵盖12月至2月的债务需求，并预估在其签署成法律后，国库券将增发3000亿美元以上。
+新州长的上任一度为NSW州拒绝接种疫苗的人群带来一丝希望，但以上言论令我们不禁担忧，佩罗特先生是否会采用维多利亚州那样激进的手段，通过立法强推疫苗并动用警察大肆镇压反抗者。
 
-目前来看，作为延期的结果，短期债务违约的风险已经得到缓解，上周五的交易价格为14.9个基点，而之前曾飙升至28基点。
+（本文纯属个人观点，与Gnews无关）
 
-10月下旬到期的美国债券的收益率也有所下降。然而，压力将转至12月初到期的债券。
+[原文链接：](https://www.skynews.com.au/australia-news/coronavirus/dominic-perrottet-says-further-restrictions-could-ease-on-monday-but-regional-travel-likely-off-the-cards/news-story/3e923ae555578abf83f9cc5ede28dcb6)
 
-（本文仅代表作者观点）
-
-参考链接：
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
-
-新闻访谈终审：鬼五
-编辑/校对/审核：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

@@ -2,22 +2,26 @@
 ---
 
 
-## 险酿大祸&#8211;刚接种疫苗的航空机师在其飞行任务途中猝死于驾驶舱内！
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1590465/)
+## 有声|暗批中共，英国寻求联合G20反对不公平贸易，改革WTO
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1590548/)
 
-视频原文采编：苦尽甜来（文来） 编译撰稿：硫酸羟氯喹64
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月11日，英国贸易大臣特里维廉，在即将于意大利举行的G20贸易部长会议召开之前发表了一份声明，表示她将敦促G20成员国停止扭曲市场的做法，并支持世界贸易组织的改革。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/thumbnail_IMG_3423-edited.png)图片来源：RUMBLE
+声明称：“我们不能，而且也不会允许遵守规则的英国企业，受到其他国家扭曲市场做法的损害和削弱。”特里维廉将抨击“有害和扭曲”的产业补贴，她的部门曾用这种批评指责中共国。中国是G20成员，作为极具经济实力的大国，显然过度受益于将其视为“发展中经济体”的世贸组织规则。
 
+意大利总理上周五也表示，他相信10月底举行的G20领导人会议将达成改革世贸组织的强有力承诺。
 
-加拿大知名视频分享网媒《RUMBLE》的著名直播主持人斯图-彼得，于10月11日在其与简-鲁比博士的访谈节目中向外界爆料指出，美国达美（Delta）航空公司的一位飞机驾驶员在执行飞行任务途中突然死亡，而导致该航班需要紧急迫降以避免造成更严重的灾难。
+文字版原文：[暗批中共，英国寻求联合G20反对不公平贸易，改革WTO](https://gnews.org/zh-hans/1589508/)
 
-简博士在该节目中告诉主持人，达美航空公司内部数名与其关系甚密的知情人士日前向她吐露说，就在大约10天前，一名正在执行任务的驾驶员机长在飞行途中猝死。该航班的副驾驶事后告诉一位空姐，机长死前一刻还与其正常交谈，但在讲了几句奇怪的话之后突然不省人事而亡。这位不得不紧急进行安全迫降的副驾驶还表示，该已故机长在数日前曾接种了第二剂的COVID19疫苗。
-
-此外，该爆料人还透露了达美航空最近发生的大量和接种COVID19疫苗相关的意外事件，包括：在西雅图，一位已接种该疫苗的飞行员被发现因栓塞死在家里的地板上。还有其他众多飞行员和空乘人员在接种该疫苗后，都出现了各种不明原因的疾病反应，且至今尚未回到工作岗位；两名奥兰多的空姐在接种第二剂后被发现死于家中；七名亚特兰大已接种的空乘人员出现了COVID19感染症状，而另一名飞行员则在接种完两剂后，不久死于肾衰竭；一位盐湖城的停机坪工作人员和一位兼职消防员以及一位地勤主管也在接种完第二剂的三天后相继死亡。
-
-面对这些令人震惊但仍不被外界所知的内幕消息，主持人彼得认为：达美航空极有可能对媒体隐瞒了以上所发生的这些可怕事件。或者各主流媒体试图极力掩盖和完全洗白整件事故。为此，该主持人激愤道：“如果你是事发航班的副驾驶或空姐，知道该航班上发生了什么，作为一个美国人，你有义务现在就站出来，打破沉默并与我们进行有关信息的分享合作。要知道， 每天都有数百万人乘坐飞机旅行，这事关包括妇孺在内无数人的生命。”
-
-（以上内容仅代表媒体信息和作者个人观点）
-
-[视频链接：](https://rumble.com/vnlwi9-sources-vaxxed-delta-pilot-dies-in-flight-emergency-landing-required.html?mref=ap9pb&amp;mc=ekls8)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
