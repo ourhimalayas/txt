@@ -2,21 +2,22 @@
 ---
 
 
-## 有声|中共国垃圾债券市场出现大量抛售
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1591610/)
+## 郭文贵先生在13日的大直播中以“今天是个好日子”开场
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1591620/)
 
-配音：香草山教育部 – 蒙古鸿雁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/text-SC-10-1187x1536-1.png)
-文字版原文：[中共国垃圾债券市场出现大量抛售](https://gnews.org/zh-hans/1588588/)
+撰稿：东京樱花团/待命（文晓）
 
-音频处理：喜山必胜Maverick
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-44.png)（图片源自GTV）
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+北京时间10月13日晚，新中国联邦通过GTV再做以郭文贵先生为主的大直播。
+
+郭文贵先生以“今天是个好日子”作为开场白，并请提醒参加直播的嘉宾记住这个日子。郭先生解释说：由于法律相关原因，现在只能告诉大家是个好日子，具体发生了什么好事，2022年的1月份公布。
+
+从郭文贵先生非常开心的笑容里，可以看出，这个好事儿应该不小！虽然我们现在还不能知道到底是什么好事儿，但是，跟随爆料革命的老战友们都知道，对他来说，好事儿就是有益于战友们的事儿；好事儿，就是有利于灭共的事儿。
+
+（文章仅代表作者个人观点，与GNEWS无关）
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
