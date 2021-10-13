@@ -2,24 +2,48 @@
 ---
 
 
-## 中共“志在必得”汽车芯片和操作系统
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1590692/)
+## 喜币在虚拟币世界里能存在，发展，壮大的三个主要原因
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1590736/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-219.png)[图片来源](https://zhuanlan.zhihu.com/p/268761253)
-据“21世纪经济报道”10月12日报道，“缺芯少魂一直是制造之痛，操作系统是汽车企业实现数字化转型的关键，也成为各企业必争的战略要地。”10月11日，中共政协经济委员会副主任苗圩在2021全球新能源与智能汽车供应链创新大会表示，“目前车用的操作系统普遍采用的底层内核主要有Android、Linux、QNX，三种操作系统各自有它们的优势，也有各自的不足。面对国际三大系统，国内企业也应该志在必得，国内车用操作系统，像AliOS、斑马、鸿蒙等正在开始起步。”
+作者：香草山金融部 – 闲聊钱币
 
-芯片一直是掣肘中共汽车产业发展的关键因素，车规级芯片按照功能划分，可以划分为功能型芯片、功率半导体和传感器芯片三大类。2020年全球车规级芯片销售额达到460亿美元，同比降低1.1%，中共国的车规级芯片使用量占全球车规级芯片的30%左右，但自给率不足10%。今年，比亚迪、长城，及电子信息企业如华为、安世半导体等，已经开始投资车规级芯片。AI芯片方面，地平线、黑芝麻、四维图新等均有产品在车企应用。
 
-近年来，中共大力倡导新能源和新能源汽车的发展，还积极布局下一代的智能网联汽车。
 
-针对智能网联汽车的发展，苗圩提出，坚持纯电驱动的战略取向不变，坚持单车智能+网联赋能，在“十四五”时期，特别要加大对车规级芯片、车用操作系统、新型的电子电气架构等关键核心技术和产品的技术攻关，向世界汽车行业提出中国的方案。
 
-由于汽车使用高可靠性和安全性的要求，车规级芯片和操作系统的标准要求远高于普通消费电子级的标准要求。数十年来，中共以举国之力投入天量资金连普通级别的都不能解决，更遑论汽车芯片和操作系统了。
 
-信息来源：[https://finance.sina.com.cn/chanjing/cyxw/2021-10-12/doc-iktzqtyu0918488.shtml](https://finance.sina.com.cn/chanjing/cyxw/2021-10-12/doc-iktzqtyu0918488.shtml)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+
+
+
+
+网站Coinopsy 追踪并归纳了所有已经死掉的虚拟币及致死原因。在2,300个短命的虚拟币中，1542个是被遗弃的或是没有交易量的，占67%。位居第二的是欺诈，有482个，占21%。第三类就是初始发行不利，有239个。
+
+虚拟币从诞生到现在不过十几年的时间，参差不齐的开发者，投资者，赌徒等都想在这个新兴产业中分一杯羹。那么什么样的虚拟币能胜出呢？网站theconversation.com的一篇文章给出了很好的答案。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture7-2.jpg)
+首先是资金雄厚。资本的大小决定了开发团队的实力。新中国联邦的喜币在郭先生和大基金的运作下，在研发，推广，上市等各个方面都会是胜人一筹。
+
+其次是稳定性。文章说虚拟币要想成功的两个原因是人们相信它并且愿意用它。喜币固定的总发行量，与黄金挂钩的可靠性，以及G生态圈的实用性都标志着随着时间的推移，越来越多的人们会相信，接受并使用喜币。
+
+文章最后提到虚拟币也要“为真不破”。币虽然是虚的，但确真真正正是为了普通百姓的自由服务，对抗强权。喜币正是在爆料革命灭共的前提下应运而生。它是亿万普通草根的金融诺亚方舟。
+
+喜币，既不是第一个也不会是最后一个虚拟币，但它一定是最棒，最灿烂的那个。
+
+（本文仅代表作者观点）
+
+参考来源：
+1. [https://www.coinopsy.com/dead-coins/](https://www.coinopsy.com/dead-coins/)
+2. [https://theconversation.com/more-than-1-000-cryptocurrencies-have-already-failed-heres-what-will-affect-successes-in-future-127463](https://theconversation.com/more-than-1-000-cryptocurrencies-have-already-failed-heres-what-will-affect-successes-in-future-127463)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)

@@ -2,28 +2,24 @@
 ---
 
 
-## 有声|中共不计成本欲毁掉G系列，新中国联邦开展法律反击
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1590631/)
+## 中共“志在必得”汽车芯片和操作系统
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1590692/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间10月11日，郭文贵先生在盖特视频中，揭露了中共当局正在不计一切成本，展开对G系列超限战的事实。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-219.png)[图片来源](https://zhuanlan.zhihu.com/p/268761253)
+据“21世纪经济报道”10月12日报道，“缺芯少魂一直是制造之痛，操作系统是汽车企业实现数字化转型的关键，也成为各企业必争的战略要地。”10月11日，中共政协经济委员会副主任苗圩在2021全球新能源与智能汽车供应链创新大会表示，“目前车用的操作系统普遍采用的底层内核主要有Android、Linux、QNX，三种操作系统各自有它们的优势，也有各自的不足。面对国际三大系统，国内企业也应该志在必得，国内车用操作系统，像AliOS、斑马、鸿蒙等正在开始起步。”
 
-郭先生说，过去两周以来，中共内部的战友们多次反映，中共灭爆小组已下达明确指示，要在近期不惜一切代价，阻止喜币的上市，同时要展开对G-TV、Gnews 、盖特和G-CLUBS的司法超限战。
+芯片一直是掣肘中共汽车产业发展的关键因素，车规级芯片按照功能划分，可以划分为功能型芯片、功率半导体和传感器芯片三大类。2020年全球车规级芯片销售额达到460亿美元，同比降低1.1%，中共国的车规级芯片使用量占全球车规级芯片的30%左右，但自给率不足10%。今年，比亚迪、长城，及电子信息企业如华为、安世半导体等，已经开始投资车规级芯片。AI芯片方面，地平线、黑芝麻、四维图新等均有产品在车企应用。
 
-自2020年原G-TV私募伊始，中共便启用了大量海外的统战、情报力量，对G系列极尽造谣、诋毁之能事，并向各美国法院提交对G系列的虚假诉讼；以致1300名早期投资者的款项至今被冻结。
+近年来，中共大力倡导新能源和新能源汽车的发展，还积极布局下一代的智能网联汽车。
 
-经过一年多的准备，爆料革命和新中国联邦已开展对中共及其幕后邪恶势力的法律回击。在过去因投资G系列而遭受银行账户冻结、拒绝服务的广大战友们，请保存好各种文字、语音证据，并向所在喜马拉雅农场取得联系，加入这场维护华人利益的法律反击战。
+针对智能网联汽车的发展，苗圩提出，坚持纯电驱动的战略取向不变，坚持单车智能+网联赋能，在“十四五”时期，特别要加大对车规级芯片、车用操作系统、新型的电子电气架构等关键核心技术和产品的技术攻关，向世界汽车行业提出中国的方案。
 
-文字版原文：[中共不计成本欲毁掉G系列，新中国联邦开展法律反击](https://gnews.org/zh-hans/1588838/)
+由于汽车使用高可靠性和安全性的要求，车规级芯片和操作系统的标准要求远高于普通消费电子级的标准要求。数十年来，中共以举国之力投入天量资金连普通级别的都不能解决，更遑论汽车芯片和操作系统了。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+信息来源：[https://finance.sina.com.cn/chanjing/cyxw/2021-10-12/doc-iktzqtyu0918488.shtml](https://finance.sina.com.cn/chanjing/cyxw/2021-10-12/doc-iktzqtyu0918488.shtml)
+
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)

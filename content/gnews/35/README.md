@@ -2,23 +2,24 @@
 ---
 
 
-## 马萨诸塞州州长启动国民警卫队对学生进行中共病毒测试
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1590311/)
+## 联邦法官裁定纽约州医护人员获得疫苗强制令的宗教豁免
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1590349/)
 
 #### 翻译：Grace
 校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-66.jpg)图片来源：Bizwyre
-据The Gateway Pundit 网站10月12日报道，美国的马萨诸塞州州长查理·贝克（Charlie Baker）周二宣布，他已经启动国民警卫队来“帮助”学生进行中共病毒测试。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-35.jpg)图片来源：Western Journal
+**据USSA News 10月12日报道，纽约的一名联邦法官周二裁定，尽管该州有全面的强制中共病毒疫苗政策，但必须维护医护人员的宗教豁免。**
 
-马萨诸塞州州长办公室说，贝克已经启动了该州国民警卫队的450名成员来执行两项任务。一项任务是200名警卫队会“帮助”从幼儿园到12年级的学生进行中共病毒的测试，另一项任务是多达250名的警卫队将被用于弥补惩教署（DOC）的人员短缺。
+在8月, 当时的纽约民主党州长安德鲁·科莫（Andrew Cuomo）宣布了该州的强制中共病毒疫苗政策。
 
-在与公共安全官员的密切协调下，马萨诸塞州的惩教署继续为可能因不遵守第595号行政命令出现惩教署人员减少做准备，该命令要求所有行政部门的雇员在10月17日前出示中共病毒的疫苗接种证明。
+州长办公室在8月16日说：“纽约州的所有医护人员，包括在医院和长期护理设施的工作人员……已经在养老院、成人护理和其他集中护理场所的医护人员，将被要求在9月27日星期一之前接种中共病毒疫苗。”
 
-贝克在该截止日期前启动警卫队，是为了让警卫队人员可以立即开始具体的工作培训，以及可以在惩教署人员减少的情况下发挥弥补作用。上个月，在校车司机大量短缺的情况下，贝克州长启动了国民警卫队送孩子上学。9月中旬，多达250名警卫队士兵被调去填补人员短缺。由于贝克州长强制执行中共病毒疫苗政策，几十名州警已经辞职。
+**据Spectrum News报道，纽约州的医疗工作者就科莫的强制疫苗政策提起了诉讼，最后在本周二的裁决中获得了宗教豁免。**
 
-马萨诸塞州的疫苗接种率在全国排名第五。马萨诸塞州中部最大的卫生系统——UMass Memorial Health的负责人最近出来承认，自从该州的疫苗接种率接近完全达标，达到了应有的 “群体免疫力”后，感染中共病毒的住院人数已经飙升了20倍。
+纽约北区的美国地区法官大卫·赫尔德（David Hurd）在一份27页的裁决中，禁止州卫生官员对因宗教原因而不愿接受中共病毒疫苗接种的医护人员进行任何报复。
 
-**新闻来源****：**
+**赫尔德在他的裁决中说：“卫生部被禁止对任何原告的执照、证书、居留权、接纳特权或其他专业地位或资格采取任何纪律或其他行动，原因是他们寻求或已获得COVID-19（中共病毒）强制疫苗接种的宗教豁免。”**
 
-1. [**Massachusetts Governor Activates National Guard to Test School Children For Covid**](https://www.thegatewaypundit.com/2021/10/massachusetts-governor-activates-national-guard-test-school-children-covid/)
-2. [美国接种中共病毒疫苗最多的州感染人数激增](https://gnews.org/zh-hans/1584581/)
+**该裁决还保护公司不会因为雇用未接种中共病毒疫苗的医护人员而受到州政府的任何处罚，因为这些医护人员确实获得了豁免。**
+
+新闻来源：[**Federal judge rules religious exemptions to vaccine mandates must be allowed**](https://ussanews.com/News1/2021/10/12/federal-judge-rules-religious-exemptions-to-vaccine-mandates-must-be-allowed/)

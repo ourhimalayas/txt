@@ -2,48 +2,20 @@
 ---
 
 
-## 喜币在虚拟币世界里能存在，发展，壮大的三个主要原因
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1590736/)
+## 中共发布《关于推动现代职业教育高质量发展的意见》
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1590778/)
 
-作者：香草山金融部 – 闲聊钱币
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-225.png)[图片来源](https://www.nishinippon.co.jp/category/kyushu/education/)
+10月12日，中共中央办公厅、国务院办公厅印发《关于推动现代职业教育高质量发展的意见》。
 
+《意见》提出的目标有：到2025年，职业教育类型特色更加鲜明，现代职业教育体系基本建成，技能型社会建设全面推进。办学格局更加优化，办学条件大幅改善，职业本科教育招生规模不低于高等职业教育招生规模的10%，职业教育吸引力和培养质量显著提高。
 
+7月24日，义务教育“双减”文件正式出炉。政策中的“限制培训机构数量、限制培训时间、价格监管、禁止资本化运作、学科类培训机构需登记为非营利性”等条款力度远超预期，对上市公司而言也是“当头棒喝”。据统计，目前A股共有19家公司与教育行业相关，自“双减”文件公布以来，共有16家公司股价下跌，平均跌幅约为14%，“双减”政策重压下，未来K12（指学前教育至高中教育，普遍代指基础教育）学科类培训原有商业模式和资本化之路或已不再成立，两个多月来市面上更有不少教培机构面临歇业或转型的取舍，未来该何去何从？ 《意见》表示，鼓励上市公司、行业龙头企业举办职业教育，鼓励各类企业依法参与举办职业教育。鼓励职业学校与社会资本合作共建职业教育基础设施、实训基地，共建共享公共实训基地。
 
+信息来源：[重大转机？中办、国办重磅发布，教育股迎大利好！中概股先涨后跌，所为何因？](http://wap.stcn.com/zqsbapp/tj/202110/t20211013_3753782.html)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
-
-
-
-
-网站Coinopsy 追踪并归纳了所有已经死掉的虚拟币及致死原因。在2,300个短命的虚拟币中，1542个是被遗弃的或是没有交易量的，占67%。位居第二的是欺诈，有482个，占21%。第三类就是初始发行不利，有239个。
-
-虚拟币从诞生到现在不过十几年的时间，参差不齐的开发者，投资者，赌徒等都想在这个新兴产业中分一杯羹。那么什么样的虚拟币能胜出呢？网站theconversation.com的一篇文章给出了很好的答案。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture7-2.jpg)
-首先是资金雄厚。资本的大小决定了开发团队的实力。新中国联邦的喜币在郭先生和大基金的运作下，在研发，推广，上市等各个方面都会是胜人一筹。
-
-其次是稳定性。文章说虚拟币要想成功的两个原因是人们相信它并且愿意用它。喜币固定的总发行量，与黄金挂钩的可靠性，以及G生态圈的实用性都标志着随着时间的推移，越来越多的人们会相信，接受并使用喜币。
-
-文章最后提到虚拟币也要“为真不破”。币虽然是虚的，但确真真正正是为了普通百姓的自由服务，对抗强权。喜币正是在爆料革命灭共的前提下应运而生。它是亿万普通草根的金融诺亚方舟。
-
-喜币，既不是第一个也不会是最后一个虚拟币，但它一定是最棒，最灿烂的那个。
-
-（本文仅代表作者观点）
-
-参考来源：
-1. [https://www.coinopsy.com/dead-coins/](https://www.coinopsy.com/dead-coins/)
-2. [https://theconversation.com/more-than-1-000-cryptocurrencies-have-already-failed-heres-what-will-affect-successes-in-future-127463](https://theconversation.com/more-than-1-000-cryptocurrencies-have-already-failed-heres-what-will-affect-successes-in-future-127463)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)

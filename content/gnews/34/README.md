@@ -2,72 +2,35 @@
 ---
 
 
-## 众议员布莱恩·马斯特:在台湾 庆祝国庆之际,中共试图威胁他们,美国必须支持我们的盟友
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1590338/)
+## 打锦鲤旗即为汉奸，共匪之忧不在美日而在萧墙之内也
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1590368/)
 
-众议员布莱恩·马斯特： 在 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 庆祝国庆之际，[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 试图恐吓和威胁他们。美国必须支持我们的盟友，并在全球范围内捍卫民主。 【转CNN报道：中共国称其在台湾对面的省份举行了抢滩登陆演习】
+据[**沸点视频**](https://weibo.com/u/5145725878?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年10月13日8：26](https://weibo.com/5145725878/KCuWiE9Vx?ref=home&amp;rid=10_0_8_4806865679011788365_6_0_0) 来自 [Android](https://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
 
+【[#男子带团举鲤鱼旗游客提醒反被驳#](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E5%B8%A6%E5%9B%A2%E4%B8%BE%E9%B2%A4%E9%B1%BC%E6%97%97%E6%B8%B8%E5%AE%A2%E6%8F%90%E9%86%92%E5%8F%8D%E8%A2%AB%E9%A9%B3%23&amp;from=default)：中国传到日本去的】10月12日，网友爆料一[#男子举鲤鱼旗带学生参观中山陵#](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E4%B8%BE%E9%B2%A4%E9%B1%BC%E6%97%97%E5%B8%A6%E5%AD%A6%E7%94%9F%E5%8F%82%E8%A7%82%E4%B8%AD%E5%B1%B1%E9%99%B5%23&amp;from=default)。一名女子上前提醒让其不要使用此旗被男子反驳。男子称这是锦鲤旗，是中国传到日本去的。随后被旁边游客拉开。鲤鱼旗，在日本为庆祝五月五日男孩节，家有男孩的，家家挂鲤鱼旗。此风俗始于江户时代，原是农历端午节的风俗。[#蓝v视界#](https://s.weibo.com/weibo?q=%23%E8%93%9Dv%E8%A7%86%E7%95%8C%23&amp;from=default)[2南京](https://weibo.com/p/1001018008632010000000000) [L沸点视频的微博视频](http://t.cn/A6MCPQST)
 
+子曾经曰过——“故远人不服，则修文德以来之。既来之，则安之。今由与求也，相夫子，远人不服、而不能来也；邦分崩离析、而不能守也：而谋动干戈于邦内。吾恐季孙之忧，不在颛臾，而在萧墙之内也。”大意是——“原来的远方的人不归服，就发扬文治教化来使他归服；使他来了之后，就要使他安定下来。如今由与求两人辅佐季孙，远方的人不归服，却不能使他们来；国家四分五裂而不能保持它的稳定统一；反而在境内策划兴起干戈。我恐怕季孙氏的忧虑，不在颛臾，而是在鲁国内部。”
 
-> As Taiwan celebrated its National Day, Communist China tried to intimidate and threaten them. The U.S. must support our allies and stand up for democracy around the globe. [https://t.co/GMo0qiReoi](https://t.co/GMo0qiReoi)
-> — Rep. Brian Mast (@RepBrianMast) [October 12, 2021](https://twitter.com/RepBrianMast/status/1447990198076260353?ref_src=twsrc%5Etfw)
+想当年远人不服而能修文德以来之，现如今爱国大妈们赤膊上阵，数典忘祖下，不仅把祖宗原创的锦鲤旗的卖给日本，而且不把举锦鲤旗的同胞打成汉奸卖国贼不算完，由是观之，“邦分崩离析、而不能守也：而谋动干戈于邦内。”吾亦恐共匪之忧不在美日，而在萧墙之内也！
 
+撰稿：喜马拉雅的肉夹馍
 
+审核：喜马拉雅的馍夹肉
 
-众议员玛乔丽·泰勒·格林： 请参考： 有很多关于强制 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 疫苗接种过程中，导致了损伤和死亡的报道。 任何人和任何组织强制推行接种可能导致死亡或损害人民健康的疫苗，都会面临诉讼风险/责任和/或法律后果。 [#NoMandates](https://twitter.com/hashtag/NoMandates?src=hashtag_click)
+校对：Maarago
 
+（文章内容仅代表作者个人观点）
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-> FYI: 
-> There are many vaccine injuries and deaths being reported with the covid vaccines.
-> Anyone and any organization mandating vaccines that may be causing death or damage to people’s health put themselves at risk/liability of lawsuits and/or legal consequences.[#NoMandates](https://twitter.com/hashtag/NoMandates?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Marjorie Taylor Greene 🇺🇸 (@mtgreenee) [October 12, 2021](https://twitter.com/mtgreenee/status/1448073173489094656?ref_src=twsrc%5Etfw)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-前副国务卿基思·卡拉奇： 我毫不怀疑我们可以打败中共国的公司。这需要与我们的盟友团结起来，利用我们的私营部门，利用对我们有利的我们的信任原则/民主价值观，而不是让中共国利用它们来对付我们。没有人相信中共。 （附卡拉奇在“外交政策”发表的文章）[http://Foreignpolicy.com/2021/10/04/bel](https://t.co/mtD5ZDbFK7?amp=1)… | @对外政策
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-
-> I have no doubt we can defeat China Inc. It takes unity with our allies, leveraging our private sector, and using our trust principles/democratic values to our advantage vs letting China use it to our disadvantage. No one trusts the CCP. [https://t.co/amYMDvOVZV](https://t.co/amYMDvOVZV) | [@ForeignPolicy](https://twitter.com/ForeignPolicy?ref_src=twsrc%5Etfw) [pic.twitter.com/qVyE0arIiw](https://t.co/qVyE0arIiw)
-> — Keith J. Krach (@KeithJKrach) [October 12, 2021](https://twitter.com/KeithJKrach/status/1448015103765458948?ref_src=twsrc%5Etfw)
-
-
-
-众议员加拉格尔新闻办公室： 加拉格尔众议员就关于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 拒绝世卫组织进入武汉附近蝙蝠洞的报道评论说：“这整件事都是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 的大规模掩盖。但拜登政府的愤怒在哪里？在当今世界面临的最重要的问题上，他们正在向 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 让步。” 【附福克斯访谈视频：中共国再次阻止对新冠病毒起源进行调查】
-
-
-
-> Rep. Gallagher on reports that China denied the WHO access to bat caves near Wuhan: "This entire thing is a massive cover-up from the CCP. But where's the outrage from the Biden Administration? They're conceding to the CCP on the most important question facing the world today." [pic.twitter.com/Bc6adnhNjV](https://t.co/Bc6adnhNjV)
-> — Rep. Gallagher Press Office (@RepGallagher) [October 12, 2021](https://twitter.com/RepGallagher/status/1447969234563252227?ref_src=twsrc%5Etfw)
-
-
-
-第780军事情报旅（网络）： 中共国黑客利用微软视窗-零日漏洞攻击防御，IT公司 【附bleeping [http://computer.com](https://t.co/cj15JGYs0j?amp=1)的新闻报道】
-
-
-
-> Chinese hackers use Windows zero-day to attack defense, IT firms [https://t.co/CCUiLxTdYm](https://t.co/CCUiLxTdYm) via [@BleepinComputer](https://twitter.com/BleepinComputer?ref_src=twsrc%5Etfw)
-> — 780th Military Intelligence Brigade (Cyber) (@780thC) [October 12, 2021](https://twitter.com/780thC/status/1448011400828305417?ref_src=twsrc%5Etfw)
-
-
-
-参议员泰德·克鲁兹： Avik Roy [@Avik](https://twitter.com/Avik) 非常重要的文章 央行数字货币将是激进且极其危险的。 它将消除隐私并让政府完全不受限制地控制您的个人财务。 很明显 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 为什么想要一个。 但乔·拜登为什么也想要呢？【转Avik Roy 推文：“CBDC”对大多数人来说可能是一个晦涩的首字母缩写词——它代表“中央银行数字货币”——但它是美国政府认真考虑的对美国人个人和经济自由的最大威胁。我在国家审查[@NRO](https://twitter.com/NRO) 上的最新信息：拜登的北京式单一付款人银行计划】
-
-
-
-> Really important article by [@Avik](https://twitter.com/Avik?ref_src=twsrc%5Etfw)
-> 
-> A central bank digital currency would be radical & profoundly dangerous. It would eliminate privacy & give govt total, unchecked control over your personal finances.
-> 
-> It’s obvious why communist China wants one. But why does Joe Biden?[#Bitcoin](https://twitter.com/hashtag/Bitcoin?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/NRIvngYfLP](https://t.co/NRIvngYfLP)
-> — Ted Cruz (@tedcruz) [October 12, 2021](https://twitter.com/tedcruz/status/1447959611009650694?ref_src=twsrc%5Etfw)
-
-
-
-参议员罗杰·马歇尔医生： （美联社）批评我指出新冠可以自然免疫的事实，是一种新闻不当行为。丰富的证据表明，那些通过自然感染获得免疫力的人，得到不再感染的高度保护。必须要停止拜登的疫苗强制。【转breitbart，参议员指出人们对新冠有自然免疫力，而AP美联社对此加以批评，是一种新闻不当行为】
-
-
-
-> Criticizing me for highlighting the reality of natural immunity to COVID is journalistic malpractice. Copious evidence shows those who achieved immunity through natural infection are highly protected against reinfection. Must stop Biden’s vaccine mandate [https://t.co/pXn45UD9Rf](https://t.co/pXn45UD9Rf)
-> — Dr. Roger Marshall (@RogerMarshallMD) [October 12, 2021](https://twitter.com/RogerMarshallMD/status/1447926756510478336?ref_src=twsrc%5Etfw)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

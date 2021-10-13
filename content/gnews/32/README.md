@@ -2,35 +2,47 @@
 ---
 
 
-## 打锦鲤旗即为汉奸，共匪之忧不在美日而在萧墙之内也
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1590368/)
+## 短视频：觊觎外汇和芯片产业，中共国必入侵台湾
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1590450/)
 
-据[**沸点视频**](https://weibo.com/u/5145725878?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年10月13日8：26](https://weibo.com/5145725878/KCuWiE9Vx?ref=home&amp;rid=10_0_8_4806865679011788365_6_0_0) 来自 [Android](https://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
+#### 翻译：Lish
+听写核对：月映万川
+编辑：文泓
+剪辑字幕：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/台湾.gif)
+图片来源：Sky news视频截屏
 
-【[#男子带团举鲤鱼旗游客提醒反被驳#](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E5%B8%A6%E5%9B%A2%E4%B8%BE%E9%B2%A4%E9%B1%BC%E6%97%97%E6%B8%B8%E5%AE%A2%E6%8F%90%E9%86%92%E5%8F%8D%E8%A2%AB%E9%A9%B3%23&amp;from=default)：中国传到日本去的】10月12日，网友爆料一[#男子举鲤鱼旗带学生参观中山陵#](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E4%B8%BE%E9%B2%A4%E9%B1%BC%E6%97%97%E5%B8%A6%E5%AD%A6%E7%94%9F%E5%8F%82%E8%A7%82%E4%B8%AD%E5%B1%B1%E9%99%B5%23&amp;from=default)。一名女子上前提醒让其不要使用此旗被男子反驳。男子称这是锦鲤旗，是中国传到日本去的。随后被旁边游客拉开。鲤鱼旗，在日本为庆祝五月五日男孩节，家有男孩的，家家挂鲤鱼旗。此风俗始于江户时代，原是农历端午节的风俗。[#蓝v视界#](https://s.weibo.com/weibo?q=%23%E8%93%9Dv%E8%A7%86%E7%95%8C%23&amp;from=default)[2南京](https://weibo.com/p/1001018008632010000000000) [L沸点视频的微博视频](http://t.cn/A6MCPQST)
+（拿下台湾）不仅会让中共国的军事足迹深入太平洋，也会给它带来巨额的财富。台湾是世界上第六大外汇储备地区。
 
-子曾经曰过——“故远人不服，则修文德以来之。既来之，则安之。今由与求也，相夫子，远人不服、而不能来也；邦分崩离析、而不能守也：而谋动干戈于邦内。吾恐季孙之忧，不在颛臾，而在萧墙之内也。”大意是——“原来的远方的人不归服，就发扬文治教化来使他归服；使他来了之后，就要使他安定下来。如今由与求两人辅佐季孙，远方的人不归服，却不能使他们来；国家四分五裂而不能保持它的稳定统一；反而在境内策划兴起干戈。我恐怕季孙氏的忧虑，不在颛臾，而是在鲁国内部。”
+屏幕字幕：
 
-想当年远人不服而能修文德以来之，现如今爱国大妈们赤膊上阵，数典忘祖下，不仅把祖宗原创的锦鲤旗的卖给日本，而且不把举锦鲤旗的同胞打成汉奸卖国贼不算完，由是观之，“邦分崩离析、而不能守也：而谋动干戈于邦内。”吾亦恐共匪之忧不在美日，而在萧墙之内也！
+台湾现金储备：5430亿美元，并为全球提供60%的半导体芯片。
 
-撰稿：喜马拉雅的肉夹馍
+这个岛国提供了世界上大部分的半导体计算机芯片，从洗衣机到尖端武器，半导体计算机芯片对大多数现代制造业产品至关重要，由于美国的背书，台湾才能脱离中共国的魔掌。为什么中共国如此想要拿下台湾呢？
 
-审核：喜马拉雅的馍夹肉
+台湾是名副其实的“不沉的航空母舰”，中共国可以从这里将军事力量投射到太平洋中部。另外，台湾也向世界展示了，中国人一样可以拥有繁荣和民主。
 
-校对：Maarago
+台湾绝对是一个（上天的）礼物。我的意思是，首先，这是对中共国一党（专制独裁）身份的挑战和意识形态的挑战。但同时，这也有深层次的情感纠葛不断刺激着中南海。
 
-（文章内容仅代表作者个人观点）
+自1949年国共内战以来，台湾从未正式宣布脱离中共国而独立。根据我们专家的观点，如果台湾官方宣布独立，那么这就会马上导致台海战争。如果台湾真的说它想独立，会发生什么呢？
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+中共国会入侵（台湾），就这么简单！
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+是的。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+那些警示中共国对台湾意图的人举出了香港的例子……
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+对于一直警告中共国想要对台湾意图不轨的人来说，香港就是一个实例。在（港共政府）粉碎了香港的民主示威之后，香港现在就等同于被中国共产党接管了。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+（文中仅代表作者个人观点，与Gnews平台无关）
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+视频链接：[War with China: Are we closer than we think? | Under Investigation – YouTube](https://www.youtube.com/watch?v=kA2KaEKs1LA)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**发布：文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
