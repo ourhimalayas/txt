@@ -2,67 +2,72 @@
 ---
 
 
-## 习近平：共建“地球生命共同体”实现“鱼类种族灭绝”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1590321/)
+## 众议员布莱恩·马斯特:在台湾 庆祝国庆之际,中共试图威胁他们,美国必须支持我们的盟友
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1590338/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh6.googleusercontent.com/7DLjSWxz3PKKkoZukeJ4YlPr3CNR2hw_OmF1TErwN_GuDt03zw78rD8XJLZrQafBQriiLOhWxqBDVQCG849hcnuUs8kUAYp99jLPHhtnzQ9qOFxc8t9AIGQK9HrRyTXiNDfPI59S=s0)[*图片来源*](https://ichef.bbci.co.uk/news/800/cpsprodpb/716C/production/_115563092_tv009840848.jpg)
-**习近平借云南生物多样性峰会高呼共建“地球生命共同体” 和 “山水林田湖草生命共同体”。习近平的全球治理野心昭然若揭。人们不禁要问，习近平要做万物之神吗？**
-
-据[中共国新华社12日消息](http://www.news.cn/world/2021-10/12/c_1127947068.htm)称：联合国《生物多样性公约》秘书处执行秘书伊丽莎白·穆雷玛，不远万里来到昆明，参加该公约第十五次缔约方——中方大会。上一次东道国是埃及。
-
-穆雷玛说：“[通往昆明的道路充满了挑战，且比任何人预想的都要长](http://www.news.cn/world/2021-10/12/c_1127947068.htm)。”穆雷玛在致辞时说，感谢东道主的不懈努力，终于让这次会议得以成功召开。
-
-穆雷玛赞赏中国在保护生物多样性方面的行动。“中国在过去几十年的努力堪称楷模！”她说，“不论是污染防治、退耕还林还是解决贫困问题，中国行动都值得钦佩。”
-
-- ***延展阅读：[COVID-19 对当前和未来的全球气候影响](https://www.nature.com/articles/s41558-020-0883-0)***
+众议员布莱恩·马斯特： 在 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 庆祝国庆之际，[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 试图恐吓和威胁他们。美国必须支持我们的盟友，并在全球范围内捍卫民主。 【转CNN报道：中共国称其在台湾对面的省份举行了抢滩登陆演习】
 
 
-好吧，人们不防屏住呼吸看看[习近平](http://www.news.cn/world/2021-10/12/c_1127947068.htm)的一些官话承诺里有哪些玄机：
 
-*新冠肺炎疫情对全球经济社会发展造成全面冲击，我们要着眼长远，保持定力，坚持绿色、包容、可持续发展。*
-
-习这是告诉世界三点：首先习不承认是他下令打响的全球生物基因战；其次，也是重要的一点，他在继续威胁世界——COVID19“生物持久战”；再者就是，你别反抗，要包容、不然会继续向世界放毒，知道世界臣服在中共国座前。
-
-习近平眼里的生态文明就是全球治理，而非人类生存环境，他们旨在一再放宽碳排放指标而已：
-
-[共建地球生命共同体](http://www.qstheory.cn/qshyjx/2021-10/12/c_1127948186.htm)（即2022年昆明大会的主题）
-
-[山水林田湖草生命共同体](http://theory.people.com.cn/n1/2020/0813/c40531-31820517.html)。即“人类命运共同体”理念的延伸。
-
-二氧化碳排放将于2030年前达到峰值。
-
-努力争取2060年前实现《巴黎协定》确定的[碳中和](https://www.lambeth.gov.uk/carbon-neutral-council-2030)的目标。
-
-- ***延展阅读：***[***碳中和：人口减少是解决气候变化的答案吗？***](https://www.cbc.ca/news/science/population-climate-change-1.5331133)
+> As Taiwan celebrated its National Day, Communist China tried to intimidate and threaten them. The U.S. must support our allies and stand up for democracy around the globe. [https://t.co/GMo0qiReoi](https://t.co/GMo0qiReoi)
+> — Rep. Brian Mast (@RepBrianMast) [October 12, 2021](https://twitter.com/RepBrianMast/status/1447990198076260353?ref_src=twsrc%5Etfw)
 
 
-中共执政以来，生态健康平衡遭到严重破坏，习近平逆势而为，从高呼共建“人类命运共同体”、“地球生命共同体” 到 “山水林田湖草生命共同体。” 习近平的全球治理野心昭然若揭。人们不禁要问，习近平是万物之神吗？那“宇宙命运共同体”的提出是不是指日可待？
 
-回到现实，人们可以看看真实的生态环境遭到破坏的元凶：
-
-日本虽然声称退出国际捕鲸协会，但日本在捕鲸上的破坏远没有中共国的破坏力度。据《[华盛顿](https://www.washingtonexaminer.com/opinion/why-chinas-fishing-habits-are-a-much-bigger-problem-than-japans)消息》观点文章认为：
-
-*“在捕捞濒危或有风险的海洋野生动物方面，中国是主要问题。日本至少在狩猎规模和活动区域方面限制了其活动。中国在自己的渔业上是贪婪的。中国对鱼翅的巨大需求导致每年有超过 6000 万的这种动物被杀死。”*
-
-文章惊讶地指出，目前只有很小的厄瓜多尔等一些小的国家大胆对抗中共国渔船队，但其他国家对北京的活动视而不见。
-
-- ***延展阅读：***[***比尔盖茨-值得注意的不是由于大流行会减少多少排放，而是减少排放量的多少***](https://www.gatesnotes.com/Energy/Climate-and-COVID-19)
+众议员玛乔丽·泰勒·格林： 请参考： 有很多关于强制 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 疫苗接种过程中，导致了损伤和死亡的报道。 任何人和任何组织强制推行接种可能导致死亡或损害人民健康的疫苗，都会面临诉讼风险/责任和/或法律后果。 [#NoMandates](https://twitter.com/hashtag/NoMandates?src=hashtag_click)
 
 
-事实上，其他国家通过提供中共国捕鱼权以换取投资，这实际上推动了中[**共正在积极实施的鱼类种族灭绝**](https://www.washingtonexaminer.com/opinion/why-chinas-fishing-habits-are-a-much-bigger-problem-than-japans)。”
 
-该文继续指出，“[中国系统性地无视国际规则”，包括其猖獗的塑料污染，“美国应该领导国际努力，制裁那些损害世界海洋的、为中国服务的渔业实体](https://www.washingtonexaminer.com/opinion/why-chinas-fishing-habits-are-a-much-bigger-problem-than-japans)。”
+> FYI: 
+> There are many vaccine injuries and deaths being reported with the covid vaccines.
+> Anyone and any organization mandating vaccines that may be causing death or damage to people’s health put themselves at risk/liability of lawsuits and/or legal consequences.[#NoMandates](https://twitter.com/hashtag/NoMandates?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Marjorie Taylor Greene 🇺🇸 (@mtgreenee) [October 12, 2021](https://twitter.com/mtgreenee/status/1448073173489094656?ref_src=twsrc%5Etfw)
 
-经专家研究，鲸鱼是地球上最好的减少人类活动造成碳排放带来污染的生物。“[鲸鱼通过吸入体内的二氧化碳得以长寿。在死亡后沉入海底，体内仍然保持吸收的二氧化碳气体。](https://www.marketwatch.com/story/every-whale-is-worth-2-million-why-its-time-to-add-the-value-of-nature-to-gdp-11632852074)”人们发现，几个世纪以来，最终只有鲸鱼这种哺乳动物平均“从大气中可吸入 33 吨吸热二氧化碳”。这对鲸鱼减缓气候变化的经济价值估计是多少？“每头鲸鱼 200 万美元”。
 
-该文进一步指出，鲸鱼不仅能大量吸收二氧化碳且能长寿。“那些雄伟的鲸鱼和它们几乎深不可测的价值”一直受到忽视。而这可不是习近平考虑的范围。
 
-“一些研究人员表示，在全球范围内保护和恢复[鲸鱼种群将从大气中去除热量吸收的碳，其数量与 20 亿棵树所能吸收的碳一样多](https://www.marketwatch.com/story/every-whale-is-worth-2-million-why-its-time-to-add-the-value-of-nature-to-gdp-11632852074)。但如果海洋温度上升导致数量减少，鲸鱼就不会做出那么多贡献。”
+前副国务卿基思·卡拉奇： 我毫不怀疑我们可以打败中共国的公司。这需要与我们的盟友团结起来，利用我们的私营部门，利用对我们有利的我们的信任原则/民主价值观，而不是让中共国利用它们来对付我们。没有人相信中共。 （附卡拉奇在“外交政策”发表的文章）[http://Foreignpolicy.com/2021/10/04/bel](https://t.co/mtD5ZDbFK7?amp=1)… | @对外政策
 
-2021年10月12日
 
-（本文只代表个人观点，与Gnews网站无关）
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+> I have no doubt we can defeat China Inc. It takes unity with our allies, leveraging our private sector, and using our trust principles/democratic values to our advantage vs letting China use it to our disadvantage. No one trusts the CCP. [https://t.co/amYMDvOVZV](https://t.co/amYMDvOVZV) | [@ForeignPolicy](https://twitter.com/ForeignPolicy?ref_src=twsrc%5Etfw) [pic.twitter.com/qVyE0arIiw](https://t.co/qVyE0arIiw)
+> — Keith J. Krach (@KeithJKrach) [October 12, 2021](https://twitter.com/KeithJKrach/status/1448015103765458948?ref_src=twsrc%5Etfw)
+
+
+
+众议员加拉格尔新闻办公室： 加拉格尔众议员就关于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 拒绝世卫组织进入武汉附近蝙蝠洞的报道评论说：“这整件事都是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 的大规模掩盖。但拜登政府的愤怒在哪里？在当今世界面临的最重要的问题上，他们正在向 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 让步。” 【附福克斯访谈视频：中共国再次阻止对新冠病毒起源进行调查】
+
+
+
+> Rep. Gallagher on reports that China denied the WHO access to bat caves near Wuhan: "This entire thing is a massive cover-up from the CCP. But where's the outrage from the Biden Administration? They're conceding to the CCP on the most important question facing the world today." [pic.twitter.com/Bc6adnhNjV](https://t.co/Bc6adnhNjV)
+> — Rep. Gallagher Press Office (@RepGallagher) [October 12, 2021](https://twitter.com/RepGallagher/status/1447969234563252227?ref_src=twsrc%5Etfw)
+
+
+
+第780军事情报旅（网络）： 中共国黑客利用微软视窗-零日漏洞攻击防御，IT公司 【附bleeping [http://computer.com](https://t.co/cj15JGYs0j?amp=1)的新闻报道】
+
+
+
+> Chinese hackers use Windows zero-day to attack defense, IT firms [https://t.co/CCUiLxTdYm](https://t.co/CCUiLxTdYm) via [@BleepinComputer](https://twitter.com/BleepinComputer?ref_src=twsrc%5Etfw)
+> — 780th Military Intelligence Brigade (Cyber) (@780thC) [October 12, 2021](https://twitter.com/780thC/status/1448011400828305417?ref_src=twsrc%5Etfw)
+
+
+
+参议员泰德·克鲁兹： Avik Roy [@Avik](https://twitter.com/Avik) 非常重要的文章 央行数字货币将是激进且极其危险的。 它将消除隐私并让政府完全不受限制地控制您的个人财务。 很明显 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 为什么想要一个。 但乔·拜登为什么也想要呢？【转Avik Roy 推文：“CBDC”对大多数人来说可能是一个晦涩的首字母缩写词——它代表“中央银行数字货币”——但它是美国政府认真考虑的对美国人个人和经济自由的最大威胁。我在国家审查[@NRO](https://twitter.com/NRO) 上的最新信息：拜登的北京式单一付款人银行计划】
+
+
+
+> Really important article by [@Avik](https://twitter.com/Avik?ref_src=twsrc%5Etfw)
+> 
+> A central bank digital currency would be radical & profoundly dangerous. It would eliminate privacy & give govt total, unchecked control over your personal finances.
+> 
+> It’s obvious why communist China wants one. But why does Joe Biden?[#Bitcoin](https://twitter.com/hashtag/Bitcoin?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/NRIvngYfLP](https://t.co/NRIvngYfLP)
+> — Ted Cruz (@tedcruz) [October 12, 2021](https://twitter.com/tedcruz/status/1447959611009650694?ref_src=twsrc%5Etfw)
+
+
+
+参议员罗杰·马歇尔医生： （美联社）批评我指出新冠可以自然免疫的事实，是一种新闻不当行为。丰富的证据表明，那些通过自然感染获得免疫力的人，得到不再感染的高度保护。必须要停止拜登的疫苗强制。【转breitbart，参议员指出人们对新冠有自然免疫力，而AP美联社对此加以批评，是一种新闻不当行为】
+
+
+
+> Criticizing me for highlighting the reality of natural immunity to COVID is journalistic malpractice. Copious evidence shows those who achieved immunity through natural infection are highly protected against reinfection. Must stop Biden’s vaccine mandate [https://t.co/pXn45UD9Rf](https://t.co/pXn45UD9Rf)
+> — Dr. Roger Marshall (@RogerMarshallMD) [October 12, 2021](https://twitter.com/RogerMarshallMD/status/1447926756510478336?ref_src=twsrc%5Etfw)

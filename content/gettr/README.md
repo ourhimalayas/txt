@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/13/2021 2:25 AM (UTC)`
+
+10/12/2021 Miles Guo’s GETTR: The “hot money” in the world all went to the Darknet, and energy and commodity prices will rise first and then fall. The accomplices of the COVID vaccine disaster will pay their price. With more and more people waking up, COVID vaccination cannot be pushed anymore. This shows the power of the Whistleblowers' Movement and the New Federal State of China!<br/><br/>10/12/2021 文贵盖特：全世界的热钱都去了暗网，能源和大宗商品的价格将先涨后跌；疫苗灾难的帮凶都将付出代价，而越发多的人在觉醒，打疫苗也无法再推行下去，这就是爆料革命、新中国联邦的力量！
+![img](https://media.gettr.com/group14/getter/2021/10/13/02/25/fff23e8f-2772-ef20-e375-ac28c73065c2/out.jpg)
+
+---
+
 `@miles 10/13/2021 2:18 AM (UTC)`
 
 10/12/2021 Miles Guo’s GETTR: Although Japan, Germany, Britain, and Taiwan know that the CCP is fraudulent, they are still investing lots of money in the Communist China; The CCP’s economic unrestricted warfare will have enormous and serious consequences for the entire world!<br/><br/>10/12/2021 文贵盖特：日本、德国、英国和台湾，明知中共造假，却仍向中共国投入了大量资金，中共经济超限战将对全世界造成巨大的严重后果！<br/>
@@ -287,13 +294,6 @@ Taiwan is in great danger: Xi Jinping addresses the 110 years anniversary of Xin
 
 10/08/2021 Miles Guo’s GETTR: This world is changing so quickly and dramatically, Facebook, WhatsApp & Instagram is experiencing internal management and technical disasters; Mark Zuckerberg’s sins and crimes run deeply, and it’s not too much to call him “Zucktler” (Hitler)<br/><br/>10/08/2021 文贵盖特：世界变化太快了，Facebook、WhatsApp、Instagram正经历内部管理和技术的大崩溃；扎克伯格罪孽深重，称其为“渣特勒”也不为过<br/>
 ![img](https://media.gettr.com/group50/getter/2021/10/09/03/42/bf0a9ba7-a233-8c84-6623-0ef8ff397f3c/out.jpg)
-
----
-
-`@miles 10/9/2021 3:04 AM (UTC)`
-
-10/7/2021 Miles Guo: During the so-called 120 days of war preparations, the CCP will resume its worldwide campaign of releasing viruses and building biological labs to crush the global economy and financial markets; their objective is to invade and divide up Taiwan [among the ruling families within the CCP] and destroy Japan and Australia. Will they succeed in their evil plans? 90% of the duration of the meeting between Jake Sullivan and Yang Jiechi was dedicated to the purchase of US Treasury bonds.<br/><br/>10/7/2021 文贵直播：中共企图借所谓的备战120天，继续在全世界放毒、建生化实验室，试图全面打击世界经济、摧毁金融市场，攻占、瓜分台湾、弄死日、澳，共产党会得逞吗？杨洁篪、沙利文会面9成在谈购买国债。<br/>
-![img](https://media.gettr.com/group13/getter/2021/10/09/03/04/2a26ac6f-613b-ea40-cb67-3055ef0e8bc4/out.jpg)
 
 ---
 

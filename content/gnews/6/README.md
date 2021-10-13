@@ -2,16 +2,24 @@
 ---
 
 
-## 接种过疫苗的达美航空飞行员飞行时猝死 飞机紧急迫降
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1590310/)
+## 有声|冠状疫苗接种之年是“突然和意外”的死亡之年
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1590332/)
 
-#### 翻译：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-54.jpg)图片来源：bcbay
-美国红声传媒（Red Voice Media）10月11日报道，在主持人斯图·彼得斯（Stew Peters）访谈节目中，简·鲁比（Jane Ruby）博士提供了惊人的消息，并经与多方证实，一位已经接种过疫苗的达美航空公司飞行员在过去二周内的某天，于飞行时突然死亡，迫使飞机紧急迫降，而达美公司一直掩盖这个事实。
+配音：香草山教育部-蒙古鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+德国REPOPT24新闻网报道，数千例“突然和意外”死亡现像，与接种疫苗有关，德国统计显示：从2021年的死亡人数与前一年相比，“突然和意外”的死亡案例剧增，死亡率比前一年高出很多，事实表明，“突然和意外”死亡的流行与接种毒疫苗密切相关。然而在社交媒体平台上，由于Instagram根据Facebook的所谓审查惯例，自动删除了所有关于疫苗接种伤害的评论，只保留了对其它死亡原因的假设。
 
-这个周末对于西南航空公司来说也是灾难性的，从周六到周日，他们取消了2100次航班，占该公司总航班的1/4，这就很有意思了：很显然有人在撒谎为什么会发生，在一份声明中，西南航空埋怨天气和空中交通管制问题，但是联邦航空局（FAA）说不是，从上周五至今没有任何空中交通管制，而且如果是因“坏天气”造成航班取消，为什么只影响到西南航空，而其他航空公司没有发生大规模取消现象。在佛罗里达有些雷阵雨，但不是台风，没必要大规模取消航班。
+在各大媒体掩盖真相和虚假报导的舆论环境下，异军突起的社交媒体平台GETTR，正因为传播真相，而快速被各领域大V和民众接受，让更多人了解疫苗是共产党与国际邪恶利益集团制造的生化武器，进而阻止因接种毒疫苗导致的伤害继续蔓延。
 
-据报告，在佛罗里达杰克森威尔市的空中交通控制中心有人离职以抗议强制疫苗措施，但可能还不止这些。西南航空上周宣布所有人员都必须打疫苗，已有报道有些飞行员正在加入到抵抗强制疫苗的反抗中。
+文字版原文：[冠状疫苗接种之年是“突然和意外”的死亡之年](https://gnews.org/zh-hans/1586093/)
 
-##### 新闻来源： [Sources: VAXXED Delta Pilot DIES IN-FLIGHT, Emergency Landing Required](https://www.redvoicemedia.com/2021/10/sources-vaxxed-delta-pilot-dies-in-flight-emergency-landing-required/)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
