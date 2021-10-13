@@ -2,29 +2,27 @@
 ---
 
 
-## 有声|FDA对北欧国家暂停使用Moderna 冠状病毒疫苗做出回应
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1591659/)
+## 爆料革命影响下 疫苗接种无法再大幅推进
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1591673/)
 
-配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-据[零对冲](https://www.zerohedge.com/markets/fda-responds-nordic-countries-suspending-moderna-covid-vaccine-usage)10月11日报道，美国食品和药物管理局（FDA）对上周北欧国家限制使用Moderna的COVID-19疫苗做出了回应，称该疫苗的好处大于风险。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-12.png)
+文章仅代表作者本人观点，与Gnews无关
 
-FDA的一位官员在周末对新闻媒体发表的一份声明中说，FDA知道这些数据。目前，FDA仍然认为接种Moderna COVID-19疫苗的已知和潜在好处超过了已知和潜在风险。
+视频参看：2021.10.13早GTV新闻访谈
 
-同时，Moderna在这些国家做出决定后的一份声明中认为，这些通常是轻微的病例，个人在接受标准治疗和休息后往往会在短时间内恢复。然而，生命诚可贵，目前对那些注射疫苗而罹患心脏疾病的青年人产生的长期影响不得而知。
+[https://gtv.org/broadcast/watch/6166d0c5304e992109b45e10](https://gtv.org/broadcast/watch/6166d0c5304e992109b45e10)
 
-因为有包括心肌炎在内的副作用风险，芬兰、挪威、瑞典和冰岛的卫生官员都已宣布暂停对年轻人使用Moderna疫苗。而FDA无视这些已知的副作用风险，仍然坚持推行疫苗，是将人们的生命健康置于长期未知的风险之中。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-文字版原文：[FDA对北欧国家暂停使用Moderna 冠状病毒疫苗做出回应](https://gnews.org/zh-hans/1589912/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
 
-音频处理：喜山必胜Maverick
-
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

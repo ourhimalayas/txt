@@ -2,60 +2,59 @@
 ---
 
 
-## FDA：或授权默克存在安全问题的 Covid-19 抗病毒药物
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1591846/)
+## 美网络安全官警告：网络战我们没有竞争机会
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1591955/)
 
-- 编译：西班牙喜悦农场–wenwu
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/P-4.jpg)crystalclearnews.com
+《塔克·卡尔森团队》（team tuckercarlson）发表文章，题目“美国网络安全官员辞职是因为‘我们没有与中共国竞争的机会’”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-11-3.png)
+全文如下：
 
-[默克](https://www.barrons.com/market-data/stocks/mrk)公司宣布其抗病毒药物莫努匹拉韦（molnupiravir）已将[高危 Covid-19 患者的住院](https://www.barrons.com/articles/merck-covid-pill-51633091297?mod=article_inline)率[减半后，](https://www.barrons.com/articles/merck-covid-pill-51633091297?mod=article_inline)一些科学家警告说，该药物的安全问题可能会[严重限制该药物的效性](https://www.barrons.com/articles/merck-covid-pill-risks-51633398722?mod=article_inline)。
+一名前国防部高级信息技术官员说，他辞职是因为美国几乎输掉了即将到来的对中共的网络战。
 
-但在周三（13日）早些时候发布的一份报告中，花旗研究公司的分析师表示，他们已经调查了这些担忧，并认为 FDA 不会阻止该药物在食品和药物管理局获得批准。
+尼古拉斯·查兰（Nicolas Chaillan）在周日（10月10日）英国《金融时报》（the Financial Times）公开的一次采访中表示：“15到20年内，我们没有机会与中共国展开竞争。现在，这已经是一笔完成的交易，在我看来，它已经结束了。”
 
-花旗分析师安德鲁·鲍姆 (Andrew Baum) 在他的报告中写道，在与 FDA 的前顾问交谈后，[默克 (Merck)](https://www.barrons.com/market-data/stocks/mrk)（股票代码：MRK）的莫努匹拉韦在哺乳动物和细菌细胞培养物中曾发生过引起突变的实验室测试，但仍不会阻止食品和药物管理局批准该药物进入市场。
+查兰上个月辞职，称五角大楼让“懒散者”负责他们不具备专业知识的网络项目。
 
-花旗银行的安德鲁·鲍姆 (Andrew Baum) 在周三的报告中写道：“我们最近与遗传毒性方面的一位领先专家进行的讨论，并为我们提供了实质性的保证，即这两种阳性体外检测不太可能排除监管机构的批准。”或者说对于 FDA 而言，默克公司在活体动物测试中没有发现任何突变的事实将超过细胞培养中的实验室发现。
+他在辞职信中说：“我们正在建立关键的基础设施，以防失败。”
 
-尽管如此，鲍姆写道，他不期望 FDA 允许莫奈拉韦用于孕妇，并且希望打算造人的男性和女性在服用该药物时，应避免性交或使用避孕措施。
+查兰写道：“如果没有广泛的飞行训练，我们不会让飞行员进入驾驶舱。为什么我们会期望没有IT经验的人能取得成功？……当我们在官僚主义中浪费时间时，我们的对手却走得更远。”
 
-鲍姆说，对突变风险的担忧意味着默克公司可能会失去正在开发的 Covid-19 抗病毒药物的市场份额，并且会被[辉瑞公司](https://www.barrons.com/market-data/stocks/pfe) (PFE) 和[罗氏控股](https://www.barrons.com/market-data/stocks/rog?countryCode=ch)(RHHBY)所替代，后者与[Atea Pharmaceuticals](https://www.barrons.com/market-data/stocks/avir)合作 (AVIR)，如果他们的抗病毒药中的任何一种表现出与莫诺匹韦相似的功效。
+他说，他的大部分时间都花在“修复基本的云设备和笔记本电脑”上，而不是帮助美国跟上其网络竞争对手的步伐。
 
-“尽管默克公司对潜在致癌风险有所保证，但如果罗氏或辉瑞公司的抗病毒药物在其正在进行的 III 期试验中表现出相似或优越的疗效，我们确实认为当前的莫奈拉韦市场预期存在一些下行风险，”鲍姆写道。
+在随后的“领英”（LinkedIn）周日（10月10日）发布的帖子中，查兰说他的话是为了警告。
 
-默克公司股价在 10 月 1 日上涨了 8.4%，当天默克公司表示已根据独立数据监测委员会的建议已停止招募患者参与莫奈拉韦试验，因为中期结果非常积极。这一消息还引发了中共病毒（Covid-19）疫苗和治疗剂制造商股票的抛售。
+他写道：“对于那些看到这篇文章的人，我想澄清一件事，我从来没有说过我们输了，我说的是现在的情况，如果我们现在还不醒来，我们就没有机会在15年内战胜中共。”
 
-自那以后，该股小幅下跌，自试验消息传出以来，默克的股价现在上涨了 6%。该股今年迄今已上涨 2.1%。
+“我还说，他们现在在人工智能和网络领域处于领先地位，不像英国广播公司的一些报告所提到的那样，10年后就不会了。当然，政府资助的报告总是告诉我们，我们有比现在更多的时间，因此没有人会为错过已经过期的目标负责，这些只是常识性的事实。” 查兰说。
 
-10 月 8 日，《巴伦周刊》[报道](https://www.barrons.com/articles/merck-covid-pill-risks-51633398722?mod=article_inline)了一组研究 NHC 的科学家提出的[担忧](https://www.barrons.com/articles/merck-covid-pill-risks-51633398722?mod=article_inline)，NHC 是莫努匹拉韦在摄入后在体内产生的化合物。在 5 月份发表在《传染病杂志》上的一篇论文中，他们报告说，NHC 在旨在检测此类突变的实验室测试中导致动物细胞培养物中发生突变。
+他写道：“我们在这里与15亿人竞争，要么我们更聪明、更敏锐，要么我们就输了。”
 
-“有人担心这会导致长期的突变效应，甚至癌症，”该论文的作者之一，北卡罗来纳大学斯万斯特罗姆实验室的科学家 Shuntai Zhou 博士当时告诉《巴伦周刊》。
+（文章链接了查兰的贴文）
 
-Molnupiravir 的工作原理是将自身整合到病毒的遗传物质中，然后在病毒复制时引起大量突变，从而有效地杀死它。在 Zhou 和其他人的实验室测试中，该药物显示出这种能力还可以整合到哺乳动物细胞的遗传物质中，在这些细胞复制时引起突变。
+37岁的查兰于2018年作为美国空军的第一位首席软件官来到五角大楼，他指责一些联邦部门的网络保护处于“幼儿园级别”。
 
-如果这种情况发生在接受药物治疗的患者的细胞中，理论上可能会导致癌症或先天缺陷。默克表示，对动物进行的广泛测试表明这不是问题。
+他说，美国在错误的地方花费了大量资金，在F-35战斗机等项目上投资了数十亿美元，而不是网络安全。
 
-“来自这些研究的全部数据表明，molnupiravir 在体内哺乳动物系统中没有致突变性或基因毒性，”默克公司的一位发言人在 10 月初告诉《巴伦周刊》。
+他还指出，中共国可以利用其资源的所有力量，而在美国，谷歌等大型科技公司与联邦政府保持距离。
 
-在周三的报告中，鲍姆引用了默克公司“作为抗病毒药物开发商的传奇血统”，让他相信默克公司的动物试验已经足够彻底，足以消除这些担忧。
+退休空军将军罗伯特·斯伯丁（Robert Spalding）说，查兰的抱怨是“正当”的，在处理了“过时”的系统后，他转到了私营部门。
 
-默克公司[周一表示，它已向](https://www.barrons.com/articles/merck-stock-price-covid-pill-51633949366?mod=article_inline)FDA[提交了莫奈拉韦的紧急使用授权](https://www.barrons.com/articles/merck-stock-price-covid-pill-51633949366?mod=article_inline)。鲍姆预计 FDA 将就默克、 [辉瑞](https://www.barrons.com/market-data/stocks/pfe)、 12 月或 1 月使用 Atea 抗病毒药物举行咨询委员会听证会。
+美国国家安全委员会（National Security Commission on Artificial Intelligence）3月份的一份报告警告称，美国政府“不准备在即将到来的人工智能（AI）时代保卫美国”。
 
-**简评：**
+据《商业内幕》（Business Insider）报道，查兰在离职的“领英”（LinkedIn）帖子中表示，他对五角大楼不愿将网络战和保护作为一个关键问题感到失望。
 
-**全球只有我们新中国联邦在推荐青蒿素药品（Artequick)，还有中共疫苗等毒针的真相。郭文贵现在于10月7日在[盖特](https://gettr.com/post/pdgntbf168)上分享了爆料革命所推荐的中共病毒（Covid-19)治疗和预防方案。**
+他写道：“我只是厌倦了不断地寻求支持和资金来完成我的工作，我的办公室今年和明年仍然没有场地，也没有资金。”
 
-**感谢所有分享这个好消息的战友们，信不信就不需要管了，反正我们不像华尔街制药厂一样用美国老百姓的钱谋杀他们，还外加赚钱。**
+（原文完）
 
-**值得一提的是，七哥也在弄自己的药厂，让人们都用得上青蒿素药品、伊维菌素、羟氯喹。（本人顺便把新中国联邦的七哥治疗方案分享给了美国公司的老板们）**
+美国立法者动辄就几万亿资金投入，债务上限又有新的突破，据称国防预算也很多，也有专门的应对中共的专项资金，特别是高科技领域，《2021战略竞争法案》论述的很清楚。快到年底了，美国联邦部门的网络保护仍处于“幼儿园级别”，堂堂的空军网络高官到明年还没有办公场地，没有资金，不得已辞掉了这份工作。资金哪去了？给大公司了？被亲共、通过力量截留、克扣了？现实情况就是专家没有工作场地、没有资金，辞职。开脑洞想吧！
 
-（文章仅代表作者观点与GNEWS无关）
+（文章仅代表作者个人观点）
 
-**新闻来源：**《[巴伦周刊](https://www.barrons.com/articles/merck-stock-covid-19-antiviral-fda-51634130494?mod=hp_DAY_Theme_1_1)》｜作者：乔什·内森·卡齐斯｜发布时间：2021年10月13日
+原文链接：
 
-* * *
-
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-2.jpeg)
+[https://teamtuckercarlson.com/news/us-cybersecurity-official-resigns-because-we-have-no-competing-fighting-chance-against-china/](https://teamtuckercarlson.com/news/us-cybersecurity-official-resigns-because-we-have-no-competing-fighting-chance-against-china/)

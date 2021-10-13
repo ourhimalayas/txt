@@ -15,119 +15,119 @@
 
 ---
 
-### [盖特的愿景](/content/gnews/1/README.md)
+### [10/13/2021 七哥直播：中美之间必有一战，其根本原因在于中共的经济](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [美日澳印展开第二阶段联合军演](/content/gnews/2/README.md)
+ ` 日本东京方舟农场`
+
+### [中俄网络勒索猖獗 美国协调30国会议共同应对](/content/gnews/3/README.md)
+ ` 日本东京方舟农场`
+
+### [重磅报告：国会议员、家庭、工作人员获得伊维菌素、预防性 COVID 护理 — 从未公开！](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [盖特的愿景](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [对疫苗研究多年的脊骨神经科医生：辉瑞公司有美国历史上最大的欺诈记录](/content/gnews/2/README.md)
+### [对疫苗研究多年的脊骨神经科医生：辉瑞公司有美国历史上最大的欺诈记录](/content/gnews/6/README.md)
  ` 加拿大多伦多枫叶农场视频组`
 
-### [节节攀高&#8211;台湾因接种中共病毒疫苗致死人数急速增加！](/content/gnews/3/README.md)
+### [日本三井住友银行系统发生故障， 91笔外汇延迟交易](/content/gnews/7/README.md)
+ ` 日本东京方舟农场`
+
+### [节节攀高&#8211;台湾因接种中共病毒疫苗致死人数急速增加！](/content/gnews/8/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [德国天然气价格上涨和供应链安全令人担忧](/content/gnews/4/README.md)
+### [德国天然气价格上涨和供应链安全令人担忧](/content/gnews/9/README.md)
  ` Shuizhuyu`
 
-### [德国财政部长前往华盛顿](/content/gnews/5/README.md)
+### [德国财政部长前往华盛顿](/content/gnews/10/README.md)
  ` Shuizhuyu`
 
-### [DC每日熱點1013](/content/gnews/6/README.md)
+### [DC每日熱點1013](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [西南航空CEO终于说出了所有人的想法，抨击拜登的疫苗任务](/content/gnews/7/README.md)
+### [西南航空CEO终于说出了所有人的想法，抨击拜登的疫苗任务](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [丹佛警察被胁迫注射COVID疫苗 现因中风症状住院治疗](/content/gnews/8/README.md)
+### [丹佛警察被胁迫注射COVID疫苗 现因中风症状住院治疗](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西雅图40%的警察可能被解雇，因为有数百人没有遵守疫苗的规定](/content/gnews/9/README.md)
+### [西雅图40%的警察可能被解雇，因为有数百人没有遵守疫苗的规定](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [民意难逆&#8211;多数加拿大人拒绝中共华为的科技侵略 ！](/content/gnews/10/README.md)
+### [民意难逆&#8211;多数加拿大人拒绝中共华为的科技侵略 ！](/content/gnews/15/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [台湾危矣，中美勾兑已完成。青蒿素是重大药物发明](/content/gnews/11/README.md)
+### [台湾危矣，中美勾兑已完成。青蒿素是重大药物发明](/content/gnews/16/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [别无选择&#8211;加拿大保守党议员呼吁加强与台湾的战略合作 ！](/content/gnews/12/README.md)
+### [别无选择&#8211;加拿大保守党议员呼吁加强与台湾的战略合作 ！](/content/gnews/17/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [美网络安全官警告：网络战我们没有竞争机会](/content/gnews/13/README.md)
+### [美网络安全官警告：网络战我们没有竞争机会](/content/gnews/18/README.md)
  ` HimalayaRussia`
 
-### [在中共国，杀人犯是怎样炼成的](/content/gnews/14/README.md)
+### [在中共国，杀人犯是怎样炼成的](/content/gnews/19/README.md)
  ` 银河勇气之星`
 
-### [彼得-麦卡洛博士：中共病毒疫苗是人类历史上最大的生物医药悲剧](/content/gnews/15/README.md)
+### [彼得-麦卡洛博士：中共病毒疫苗是人类历史上最大的生物医药悲剧](/content/gnews/20/README.md)
  ` 加拿大多伦多枫叶农场视频组`
 
-### [文贵视角：认中共为爹的中外大律师事务所堕落为阳光下的邪恶](/content/gnews/16/README.md)
+### [文贵视角：认中共为爹的中外大律师事务所堕落为阳光下的邪恶](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [台湾，放弃幻想，准备战斗](/content/gnews/17/README.md)
+### [台湾，放弃幻想，准备战斗](/content/gnews/22/README.md)
  ` 银河勇气之星`
 
-### [FDA：或授权默克存在安全问题的 Covid-19 抗病毒药物](/content/gnews/18/README.md)
+### [FDA：或授权默克存在安全问题的 Covid-19 抗病毒药物](/content/gnews/23/README.md)
  ` wenwu`
 
-### [七哥说— 第20期](/content/gnews/19/README.md)
+### [七哥说— 第20期](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [普京评估俄美关系将会改善](/content/gnews/20/README.md)
+### [普京评估俄美关系将会改善](/content/gnews/25/README.md)
  ` HimalayaRussia`
 
-### [2021/10/12大卫作战室直播精要](/content/gnews/21/README.md)
+### [2021/10/12大卫作战室直播精要](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [勿为中共制毒工场的牺牲品](/content/gnews/22/README.md)
+### [勿为中共制毒工场的牺牲品](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：合生创展有意接盘恒大？](/content/gnews/23/README.md)
+### [秘翻在线：合生创展有意接盘恒大？](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [预算174亿日元！群马县力推“疫苗手账”政策](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共病毒疫苗致血栓 结束NBA球星职涯](/content/gnews/25/README.md)
+### [中共病毒疫苗致血栓 结束NBA球星职涯](/content/gnews/29/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [习下令审查经融领域剑指江王派，疫苗灾难撼动世界权力](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [10/13/2021 国际财经快讯：债务上限危机可能动摇美国国债的避险地位；中美9月贸易顺差为420亿美元](/content/gnews/27/README.md)
+### [10/13/2021 国际财经快讯：债务上限危机可能动摇美国国债的避险地位；中美9月贸易顺差为420亿美元](/content/gnews/30/README.md)
  ` 秘密翻译组金融团队`
 
-### [日本要闻汇编](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：海南系“首虎”王富玉退休三年后仍落马，王岐山危矣！](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声|为防范中共海上霸权，美日印澳展开联合军演](/content/gnews/30/README.md)
+### [有声|为防范中共海上霸权，美日印澳展开联合军演](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [爆料革命影响下 疫苗接种无法再大幅推进](/content/gnews/31/README.md)
+### [爆料革命影响下 疫苗接种无法再大幅推进](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|FDA对北欧国家暂停使用Moderna 冠状病毒疫苗做出回应](/content/gnews/32/README.md)
+### [有声|FDA对北欧国家暂停使用Moderna 冠状病毒疫苗做出回应](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [大直播10/13傅政华被抓将引爆中西大律师事务所的腐败炸弹](/content/gnews/33/README.md)
+### [大直播10/13傅政华被抓将引爆中西大律师事务所的腐败炸弹](/content/gnews/34/README.md)
  ` 秘密翻译组-原创组`
 
-### [爆料革命影响之下,疫苗接种无法再推进!](/content/gnews/34/README.md)
+### [爆料革命影响之下,疫苗接种无法再推进!](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [“烂账烂房”的背后 &#8211; 中共司法超限战一瞥](/content/gnews/35/README.md)
+### [“烂账烂房”的背后 &#8211; 中共司法超限战一瞥](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [有声|中共国垃圾债券市场出现大量抛售](/content/gnews/36/README.md)
+### [有声|中共国垃圾债券市场出现大量抛售](/content/gnews/37/README.md)
  ` MOSREC`
 
-### [瑞典：最近 10 例新冠病毒死亡病例中有 7 例完全接种了疫苗](/content/gnews/37/README.md)
+### [瑞典：最近 10 例新冠病毒死亡病例中有 7 例完全接种了疫苗](/content/gnews/38/README.md)
  ` GTV新闻访谈`
-
-### [有声|灾难性的一天 – 中共国债券市场全面崩溃](/content/gnews/38/README.md)
- ` MOSREC`
 
 ### [2021年10月13日郭先生直播速记](/content/gnews/39/README.md)
  ` Mr. Miles Guo's News Briefing`

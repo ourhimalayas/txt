@@ -2,23 +2,169 @@
 ---
 
 
-## 普京评估俄美关系将会改善
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1591838/)
+## 彼得-麦卡洛博士：中共病毒疫苗是人类历史上最大的生物医药悲剧
+` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1591896/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+What happened?
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/P-3.jpg)quora.com
-美东时间10月13日报道，俄罗斯总统弗拉基米尔∙普京在俄罗斯能源周的一次全体会议上表示，俄罗斯当局与美国现任政府的关系是“相当有建设性的”。外界评估普京与美国总统拜登的关系“相当稳定”。
+发生了什么呢?
 
-俄罗斯总统认为，“在未来，两国之间的关系将会改善。共同的利益无疑将导致这样一个事实，我们的关系将以某种方式得到改善，美国的政治机构将停止对俄美关系的投机行为，因为这样会损害其自身的利益，并损害其自身的竞选活动。”
+We now know that this early safety warning
 
-另一个关于华盛顿-莫斯科关系的问题是由会议主持人、美国CNBC记者Hedley Gamble向普京提出的，该问题涉及川普在下一次选举中可能连任美国总统的话题。普京表示，“这不是我们关心的问题。我不想做这些评估。我以前说过–在美国大选之前，在川普当选之前，以及在上次选举之后和之前，我们将与美国的领导人合作，他将由美国选民，由美国人民选择。我们不做任何评估。”
+我们知道杰西卡在同行评议中
 
-6月，在与美国总统拜登的首次会晤前夕，普京称，俄罗斯和美国之间的关系已经降到了“近年来的最低点”。在美国和俄罗斯总统的峰会之后，俄罗斯大使阿纳托利∙安东诺夫表示，“俄罗斯没有看到与华盛顿的关系有任何戏剧性的变化，但是两国有稳定的关系基础。”
+in this peer review publication from Jessica Rose clearly failed
 
-在一些外交政策问题上的矛盾中，华盛顿和莫斯科的关系中存在一些争议，其中包括对外交官工作的相互限制、裁军谈判进程的困难和制裁问题。美国与捷克一起正式列入政府对俄罗斯“不友好”的国家名单。
+所提供的早期安全提醒已经彻底失败了
 
-参考链接：
+Look how high those mortality the numbers were by April
 
-[https://www.rbc.ru/politics/13/10/2021/6166dc129a79479ac34806a7?from=from\_main\_10](https://www.rbc.ru/politics/13/10/2021/6166dc129a79479ac34806a7?from=from_main_10)
+我们来看看今年四月份时的死亡人数
+
+It clearly failed
+
+这很显然是失败的
+
+We had Americans dying.
+
+我们导致了美国人的死亡
+
+That’s after vaccination
+
+这是接种疫苗所导致的
+
+It was obvious!
+
+这很明显！
+
+This is an obvious data signal!
+
+这是非常明显的数据!
+
+This is obvious! all experts agree is obvious!
+
+太明显了! 所有的专家都一致认同!
+
+Now as of September 24th
+
+今天是9月24日了
+
+It’s raced up to 15,937 Americans has died
+
+全国死亡数字到达了一万五千九百三十七人
+
+Over two hundred fifty thousand Americans
+
+超过二十五万美国人
+
+After the vaccine has been hospitalized, gone to the Urgent Care or office visit
+
+在注射疫苗后住院、急救或寻求诊断
+
+You can see the temporal relationship on the bottom bar graph
+
+大家可以看看下面的柱状图趋势
+
+You can see that sharp Spike upwards
+
+你可以看到趋势明显的上扬
+
+Sadly we have over 20,000 Americans
+
+令人悲伤的是，疾控中心已经确认有超过
+
+The CDC tells us are permanently disabled after the vaccine
+
+两万美国人在注射疫苗后彻底失去行动能力
+
+That’s bigger than some major cancer group
+
+疫苗危害这远远超过了一些主要的癌症
+
+The disability that we are going to see
+
+我们看到的这种因注射疫苗
+
+due to these vaccines
+
+而造成的行动能力的丧失
+
+will go down in history
+
+会被写入历史
+
+as an unbelievable tragedy
+
+这是令人难以置信的悲剧
+
+I made a presentation to the Heritage Foundation in Washington
+
+我在华盛顿为遗产基金会做了演讲
+
+provides a lot of oversights to the House in the senate
+
+向国会议员们展示了很多有关的疏忽、过失
+
+as well as the agencies
+
+当然也包括他们的代理人
+
+And I made this presentation
+
+当我结束演讲时
+
+you could hear a pin drop when I was done
+
+全场鸦雀无声
+
+Finally, one of the former presidents of American Medical Association
+
+最终，一位美国医师协会前主席
+
+Doctor McCullough
+
+麦凯罗医生说到
+
+We have the biggest biological catastrophe
+
+我们正在经历人类历史上
+
+on our hands in human history
+
+最大的生物学灾难
+
+With the medicinal product, we’ve had two administrations buy into it
+
+是与医药产品有关的 我们已经有两届政府涉入其中
+
+We’ve had too all the houses of legislation buy into it
+
+我们所有的立法机构也参与其中
+
+We have the entire medical establishment buy into it
+
+所有的医疗卫生机构也是如此
+
+And the whole media
+
+还有全部媒体
+
+And no one knows how to stop it
+
+没人知道如何阻止它
+
+No one knows how to stop this freight train
+
+没人知道如何组织这列货车(疫苗注射危机)
+
+And we’re all witnessing it right now
+
+我们都在目睹它的发生!
+
+文字听写翻译：维京商人
+
+视频字幕：Kent
+
+编辑/发稿：Kent
+
+*免责声明：本文仅代表作者个人观点，与G-NEWS网站无关*
