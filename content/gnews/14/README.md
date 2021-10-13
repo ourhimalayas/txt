@@ -2,34 +2,108 @@
 ---
 
 
-## 医生失去的何止是这些
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1591139/)
+## 江志成绝对想当太上皇
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1591219/)
 
-By：银河勇气星｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2446.png)
+[https://gtv.org/video/id=61664218d2e2b817487496e8](https://gtv.org/video/id=61664218d2e2b817487496e8)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/6799d99f35544fbda62464b5274685e7.jpeg)图：古代巫医 图片来源：网路
+江志成绝对是想当太上皇的
+Jiang Zhicheng definitivamente quiere ser el emperador
 
-医生在古老的年代，是一种神圣的职业。古代对人体的了解不是那么充分，人一旦生病，不管是小到感冒咳嗽还是病到长期的部位疼痛，小病大病都不能掉以轻心，因为一不小心，人就会死去。举个简单例子，家里的宠物，3-4个月翻肠子，不注意照顾的话，小狗很可能就死了，（所以养宠物一般都要提前打疫苗预防这个，翻肠子就是病毒感染）。在远古时期的人类，命运就是脆弱到如此程度，一场瘟疫，可以让整个村子全都死去。那个时候的医生，是像神一样的存在，人们觉得医生医病是一种巫术。在古代，巫医不分。医生的“医”字，从甲骨文的拓片上来看，长得很像“巫”字。见下图：
+你们千万别忘了啊
+No se les vaya a olvidar
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/060828381f30e924e06c1ec840086e061c95f77b.jpeg)图片来源：网路
+王力科、裴文正
+Wang Like, Pei Wenzheng
 
-就不用说古代，现代社会中，医生也是非常重要的社会职能。一个村子里的医生，那是会受到整个村子的尊敬的。小到头疼闹热，大到孕妇接生，村子里有个常驻的本村医生，整个村子都会得救。再说大地方的医生，尤其上点岁数，医病无数的，救治的岂能只是一条命呢，那是整个家庭都得救了。所以协和医院的各种专家号是需要常年排队的，某宝上面有数不清的黄牛来贩卖这些专家号。人们对生的希望，和对健康的渴求，让医生的角色愈发重要。西方的发达国家，条件好点的人家都有专门的私人医生。无论穷富，生病总是让人烦恼。
+包括这个现在的博政华
+Incluyendo este Fu Zhenghua
 
-共产党在2020年释放的生物武器病毒，看似是医生要给病人治病这么个事情。染上病毒了，首先要去求救医生，高传播性，一染就是一家人，医疗系统的崩溃几乎是注定的。但这根本就不是生病啊，这是武器，武器就是用来攻击人的。生病是生出来的病，从体内而来的，这样你看医生是有用的，十有八九能医好。而这个CCP冠状生物武器是外来的，施加给人的攻击，你去看医生，医生也没办法，保不齐命不济，人就死在医院了。睡在太平间，冷冻。共产党怕人家揭穿他这个是生物武器，就把这个病当成是普通病，到处放些烟雾弹来混淆视听。调动了大量的医疗资源，又是对医护一通宣传，白衣天使防护服一穿，医护累到厕所都上不了，孕妇都值班，好嘛这一通操作，赚走了多少眼泪。在国际上，买通了医疗业的话事人，福奇，谭书记，天天上电视上来表演，朋友们，乡亲们，隔离呀，乃们可得好好隔离呀，自由民主会让你染病死掉的呀，学学共产主义一刀切，都呆家里吧。快点上网看看我还说了什么话能把你们吓半死吧。
+傅政华跟着习
+Fu Zhenghua le sigue a Xi
 
-可以说，从这个节点开始，医生的看病权和开药方的权利，在逐渐丧失。因为你作为医生你看不了病啊，患者如何相信你的话？患者现在就只相信社交媒体上的宣传，我应该隔离，我应该打疫苗。是的，更可怕的，从打疫苗开始，医生对这个社会举足轻重的作用，消失殆尽。我们看到太多太多，医院逼着那些医护人员签保密协议，你要敢说出去不能打疫苗，那你就丢工作，你就饿肚子。如果说疫情期间医生看不了病，对医生的社会价值是一个打击，那么，打疫苗这个事情，彻底让医生从看不了病，变成，整个社会的罪人。而原本属于医生的看病权和开处方权，全部转移到了社交媒体上来了。弄死一个医生那不叫本事，弄死一群医生那也不是啥值得说的事情，把属于医生的权利全部拿走，没人认可他医生的价值，这才是对医生和整个医疗系统的破坏。为什么要这样做，因为养老金的很大一部分，都是用在医疗上的，执行人都是医生。
+但是绝对骨子里边是相信江家
+Pero dentro de él cree en la familia Jiang
 
-共产党和邪恶组织，把生物武器说成是简单的自然来源生病染病，把打疫苗害命说成是救你的命，这烟雾弹放得，堪称完美。算盘打得真好。但是，生物武器就是杀人，打疫苗就是害命，什么就是什么，是什么就应该用什么方法来解决。所以冠状病毒是生物武器，是郭先生说出来的，不是哪个医生说出来的；打疫苗会死人，吃青蒿素可以解毒，这样治病救人的话，也是郭先生说出来的，不是哪个医生不是哪个搞医学的专家说出来的
+代言人是江志成
+El portavoz es Jiang Zhicheng
 
-这个时候的这个世界需要的不是医生，这场大病，包括疫苗的大病，也不是医生就能医好的。同样的符合的对策来解决对应的同等性质的问题，一向是人类引以为傲的灵长。让医生来医治生物武器，让本是救命的疫苗用来害命，一切颠倒众生，是挂碍，是恐怖，是无所得。照不见五蕴皆空，渡不了任何苦厄
+然后孙力军、孟建柱、王岐山
+Luego Sun Lijun, Meng Jianzhu, Wang Qishan
 
-共产党和邪恶组织总是有些莫名其妙的自信，不知道从哪儿来的。可恨又恶心。这大概就是赢了又赢的伟哥，肿胀难堪，找不到洞来钻，天天拿出来现眼，恶心，恶心呐
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-38.jpg)图片来源：网路
-（文章内容仅代表作者观点）
+像康典、像周亮
+Como Kang Dian, Zhou Liang
 
-作者：骄子
-审核：兵嫂、天雷滚滚
-发布：骄子
+曾庆红、曾伟全家100%是认可江志成
+Zeng Qinghong, toda la familia de Zeng Wei cree y aceptan a Jiang Zhicheng al 100%
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家-1.jpeg)
+是祖传，是扶持江志成的
+Es ancestral, es el apoyo de Jiang Zhicheng
+
+江志成绝对是江（泽民）还有曾和王岐山都认可
+Jiang Zhicheng definitivamente es reconocido por Jiang (Zemin), Zeng y Wang Qishan
+
+习只能干五年（就）滚蛋
+Xi sólo puede trabajar 5 años y se va
+
+然后下一个人是他来选的
+Y la próxima persona será escogido por él
+
+下一个就是他选的
+El próximo lo escoge él
+
+这绝对是他想的
+Esto definitivamente es lo que él piensa
+
+要不然你想想
+O sino piensa tu
+
+中国你给我说吧
+Háblame de China
+
+所有最争钱的微信、腾讯
+Dentro de todos los que tiene más ganancia como WeChat, Tencent
+
+滴滴打车、蚂蚁金服、平安
+DiDi Dache, Ant Group, Ping An Insurance
+
+上海银行、上海久事、兴业银行
+Banco de Shanghai, Shanghai Sharks, Banco Industrial
+
+几大地产商哪个不是江志成控股
+¿Cuál de los principales desarrolladores inmobiliarios no son administrados por Jiang Zhicheng?
+
+你给我找一个出来
+Búscame uno
+
+所以说习的最大敌人是谁
+Por eso cuál es el enemigo más grande de Xi
+
+是王岐山、是江志成
+Es Wang Qishan, es Jiang Zhicheng
+
+是曾庆红
+Es Zeng Qinghong
+
+孟建柱和孙力军是在这儿要弄死习
+Meng Jianzhu y Sun Lijun quieren matar a Xi
+
+* * *
+
+日期：10/11/2021
+原视频标题：江志成绝对想当太上皇
+Jiang Zhicheng definitivamente quiere ser el emperador
+原视频日期：10/06/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1445639678980280321?s=24](https://twitter.com/se1y7cblljselva/status/1445639678980280321?s=24)
+任务编号：KC163（2446）
+视频时间段：0:00-1:14
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

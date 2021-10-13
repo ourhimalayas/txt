@@ -2,197 +2,52 @@
 ---
 
 
-## 习被玩得团团转，被做掉的可能性大于一切
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1591251/)
+## 九月新冠死者几乎均完全接种疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1591335/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2447.png)
-[https://gtv.org/video/id=616642bdd2e2b81748749723](https://gtv.org/video/id=616642bdd2e2b81748749723)
+【简评】***由于COVID-19疫苗包含纤突蛋白和其它未知毒素，人体免疫系统会因此遭到不同程度的破坏。疫苗出现前后的感染病例数据对比表明，疫苗并不能避免新冠病毒的感染或传播，而且疫苗在今年夏天和初秋还增加了接种人群住院和死亡的风险。寒冬将至，情况愈发不容乐观。我们呼吁民众深入了解和积极传播疫苗真相。***
 
-许家印现在能把习给玩死
-Ahora Xu Jiayin puede jugar a Xi hasta la muerte
+据《新闻目标》作者：Ethan Huff 2021年10月10日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2496.png)图片来源：《新闻目标》
+英国国家统计局 （The Office for National Statistics (ONS)）发布的一组数据显示，在9月份检测新冠病毒(Covid-19)呈阳性后死亡的人群里，81%有按照政府的指导方针完全接种疫苗。
 
-你想许家印能让共产党现在跪下来帮他擦屁股
-Piensa que Xu Jiayin puede hacer que el PCCh se arrodille delante de él para que le limpie el trasero
+仅在英国，9月份就有大约30,305人在接种了新冠疫苗后的21日内死亡。这是英国国家统计局无意中承认的，而它此前曾告诉好奇的人“他们不掌握这些信息”。
 
-你觉得共产党真的伟大吗
-¿Crees de verdad que el PCCh es grandioso?
+事实证明，他们其实有掌握这些信息但不愿意公开，因为它破坏了政府和医疗系统之间的所谓“‘福奇流感’（Fauci Flu）疫苗是‘安全有效’”的主流说法。
 
-就美国这个国家的腐败
-Con sólo la corrupción de Estados Unidos
+自由人类（Humans Are Free） 网站报道，“英国国家统计局曾经愚弄公众，让他们相信只有1%完全接种疫苗的人死于新冠，而不包括已经和正在发生在这极其奇怪的第三波新冠疫情死亡病例”。
 
-让华尔街给驾驭
-Es controlado por el Wall Street
+“说它奇怪，是因为新冠死亡人数相比去年同期仍然高出了很多倍，尽管夏天的天气对我们有利，而且据称疫苗有效率为95%。”
 
-就被一个小鳖三儿强奸
-Violado por una pequeña tortuga
+一年前，在疫苗被投放到市场之前，与新冠病毒相关的死亡人数几乎呈平线状态。
 
-这边屁股上打着吗啡
-Inyectando morfina en una nalga
+然而今年，世界范围的新冠病毒的新“病例”激增。 数字如此之高，以至于自由人类（Humans Are Free）网站报道说，这是“在疫苗有效率为95%情况下，你会在今年冬季中期看到的情况。”
 
-强奸着美国年轻力壮女
-Violando las muchachas jóvenes y fuertes
+寒冬将至：完全接种疫苗的人会发生什么呢？
 
-然后美国人还说他伟大
-Luego los estadounidenses dicen que ellos son grandiosos
+疫苗的有效率很明显并不是95%，除非“有效”意味着有效伤害和杀死大多数注射疫苗的人。也许这就是这场“有预谋的病毒大流行”（plandemic）（注：英文把“计划”一词嵌入“病毒大流行”词中）的真正目标，它显然从来都不是关于“拉平确诊人数曲线”的“拯救生命”——当然，除非人类是“曲线”（他们想把人类的数量削减）。
 
-扭头一看
-Cuando volteas a ver te das cuenta
+在这种情况下，世界人口（曲线）确实正在以极快的速度被夷为平地，而数百万人却还是不明白发生了什么事，因为他们的刻意无知，以及盲目相信政府会在某种程度上代表他们的最大利益。
 
-就是一个打着吗啡的一个混蛋玩意儿
-Que es sólo un idiota con morfina inyectada
+不仅新冠死亡病例绝大多数发生在完全接种疫苗的人中，而且绝大部分的新增感染病例也是如此。换句话说，现在唯一仍受新冠病毒问题困扰的人，几乎就是那些接种了疫苗的人。
 
-共产党是个假老虎、纸老虎流氓下三滥
-El PCCh es un tigre falso, de papel y malandro despreciable
+周复一周，医院里挤满了成批正在生病或即将死亡的已完全接种疫苗的人，因为他们的免疫系统被疫苗里的纤突蛋白和其它神秘毒素毁坏了。
 
-什么恒大
-Qué Evergrande Group
+这是任何人都可以查看的数据。任何声称支持“科学”的人，如果他们在谈到普遍遵守新冠病毒疫苗接种的“新常态”（反常的现实正逐步变为常态）时，继续相信福奇（Tony Fauci）和 CNN 之类的观点，那都是在自欺欺人。
 
-什么8.5万亿的地方债务
-Qué deuda local de 8,5 billones
+“数据清楚表明，接种疫苗不能预防感染或传播，而且即使在夏季和初秋，疫苗也在增加住院和死亡的风险，而不是降低风险。”自由人类（Humans Are Free）网站报道，并指出这一切都发生在夏天，而夏天的疾病和死亡人数应该是最少的。
 
-他们根本没搞清楚地方债务
-Ellos no comprenden sobre la deuda local
+“我们现在面临的问题是什么呢？冬天就在眼前了。”
 
-你看所有的报导（关于）地方债务
-Todos los reportajes (referentes) a la deuda local
+欲查询最新的因新冠疫苗而伤亡的人数，请至ChemicalViolence.com
 
-七哥最早2017说地方债务
-Yo en el 2017 ya decía sobre la deuda local
+文章来源：[https://newstarget.com/2021-10-10-nearly-all-covid-deaths-september-fully-vaccinated.html](https://newstarget.com/2021-10-10-nearly-all-covid-deaths-september-fully-vaccinated.html)
 
-我告诉你
-Yo te digo
+文章点评仅代表个人观点
 
-地方债务恰恰不是共产党的软肋
-La deuda local justamente no es la debilidad del PCCh
-
-共产党的软肋就是房地产和金融
-La debilidad de ellos es la inmobiliaria y la finanza
-
-他（华尔街这帮人）根本没搞明白
-Él (esa gente del Wall Street) no han entendido
-
-被共产党给吓成这个德性
-Y son asustados por el PCCh
-
-帮助他们（CCP）奴役我们中国人民
-Ayudando a ellos (PCCh) a ser esclavos del pueblo chino
-
-但凡你了解中国共产党这帮流氓嘴脸
-Los que saben de la pinta de malandros que tiene el PCCh
-
-你就不会被他忽悠
-No serás jugado por él
-
-所以说兄弟
-Por eso hermano
-
-今天你看到这些资产在海外的时候
-Todos los activos que ves hoy en día en el extranjero
-
-我们要追回的资产
-Nosotros lo vamos a perseguir de vuelta
-
-就是要找到这些国家控制
-Hay que encontrar el control de estos países
-
-这些江志成的最终持股结构的最终公司
-Estas empresas de estructura accionaria final de Jiang Zhicheng
-
-证明他的非法性
-Hay que comprobar su ilegalidad
-
-把这些东西归还给人民
-Y regresar esas cosas al pueblo
-
-还有把它这些控股持有的资产
-Y todas las acciones y capitales
-
-变现或者控制（权）还给中国人民
-Cambiarlo a efectivo o devolver el dominio al pueblo chino
-
-还有海外一些
-Y algunos del extranjero
-
-像王岐山抓周永康
-Como el arresto de Wang Qishan a Zhou Yongkang
-
-这个所有的案子，就是石油细节
-Todos estos casos son detalles del petróleo
-
-在瑞士银行一个帐号都几十亿美元
-En un banco de Suiza puede haber billones de dólares en una cuenta
-
-王岐山直接（把帐户名字）改成孙瑶了
-Wang Qishan cambia directamente (el nombre de la cuenta) a Sun Yao
-
-这小子胆太大了
-Este chino sí que es atrevido
-
-直接改成孙瑶了
-Directamente lo cambió a nombre de Sun Yao
-
-而且这个事听说习亲自批示啊
-Además, dicen que este asunto es bajo las instrucciones de Xi
-
-到瑞士银行都挨个谈
-Han preguntado uno por uno en el banco de Suiza
-
-银行说没有（这回事）
-El banco dice que no existe (este asunto)
-
-你知道为啥呀
-Sabes por qué
-
-这就是习可怜的地方
-Esto es lo lamentable de Xi
-
-江志成牛的地方
-Y lo grandioso de Jiang Zhicheng
-
-孙瑶用的是多层结构
-Sun Yao usó la estructura multicapa
-
-他当然不用孙瑶持股了
-Él obviamente no dejaría que Sun Yao obtuviera acciones
-
-就这个共产党习近平搞不定
-Con sólo este partido comunista Xi no lo logra resolver
-
-你觉他能怎么着
-Cómo crees que será su resultado
-
-他就是吓唬美国
-Él lo que hace es asustar a Estados Unidos
-
-吓唬台湾有本事
-Tiene habilidades asustando a Taiwán
-
-他别的没本事
-Del resto no sabe nada
-
-所以说这个现在鹿死谁手真不一定
-Por eso se dice que aún no se sabe en manos de quién se muere el ciervo
-
-真不一定
-De verdad no se sabe
-
-现在很有可能，我觉得习被做掉的可能性大于一切
-Ahora es muy probable, siento que la posibilidad de que Xi sea asesinado es más grande que cualquier cosa
-
-* * *
-
-日期：10/11/2021
-原视频标题：习被玩得团团转，被做掉的可能性大于一切
-Xi ha sido un idiota engañado, la probabilidad de ser asesinado es más grande que cualquier cosa
-原视频日期：10/06/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1445708238041673729?s=24](https://twitter.com/se1y7cblljselva/status/1445708238041673729?s=24)
-任务编号：KC164（2447）
-视频时间段：0:00-2:01
-西听校：洛杉矶盘古农场-小文萱
-翻译：洛杉矶盘古农场-霙霙（文霙）
-翻译终校：洛杉矶盘古农场-小文萱
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
+翻译/评论：洛杉矶盘古农场 – maru
+校对：洛杉矶盘古农场 – 柯镇恶
+编辑：洛杉矶盘古农场 – 柯镇恶
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

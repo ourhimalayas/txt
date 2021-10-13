@@ -2,39 +2,19 @@
 ---
 
 
-## 短视频：澳中进入战争状态，排华浪潮可以预见
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1590943/)
+## 武汉病毒起源的血液样本检测
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1591016/)
 
-#### 翻译：Lish
-听写核对：月映万川
-编辑：文泓
-剪辑字幕：七彩光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/拘留营.png)
-图片来源：9 News 60 Minutes Australia
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10133-1.jpg)
+据一名中(共)国官员称，北京正准备测试来自武汉市的数万份血液样本，作为对冠状( 中共)病毒起源调查的一部分。[CNN](https://edition.cnn.com/2021/10/12/asia/china-wuhan-blood-samples-covid-19-probe-intl-cmd/index.html)说，该档案包含多达 200,000 个样本，其中包括 2019 年最后几个月的样本。今年 2 月，世界卫生组织的研究人员团队将其确定为关键信息的重要可能来源，因为这可能会对确定病毒首次传入人类的时间和地点有所帮助。
 
-我们的专家的另一个重点关注的方向是，与中共国的战争将对近150万澳大利亚华人产生的影响。毕竟，在第二次世界大战期间，日裔澳大利亚人尽管在这里生活了50多年，却一样被围捕和监禁。
+这些样本储存在武汉血液中心，被认为涵盖了 2019 年10 月和 11 月这两个关键月份，大多数专家认为该病毒可能首先在中(共)国大都市感染了人类，同时他们认为这些测试可以提供来自中(共)国城市的大量人口的实时组织样本。
 
-屏幕字幕：一些澳大利亚日裔被拘留者已经在澳大利亚生活了50多年。
+样本如果保存得当，可能包含第一个针对该疾病的人造抗体的重要迹象，负责世卫组织调查的中(共)国团队负责人梁万年在 7 月的新闻发布会上首次表示，中(共)国将对样本进行检测，一旦中(共)国专家“有结果”，他们就会交付给国外，但尚不清楚何时以及如何发生。
 
-二战期间，共有4301名日本平民被囚禁在澳大利亚的拘留营中。
+免责申明：本文只代表译者观点，与Gnews无关
 
-澳大利亚华人后裔，或者与华人外表相似的其他人种可能会被极右翼分子当街骚扰，并且把华裔投入到拘留营继而边缘化他们，所有以上这些社会逻辑结果都还没有考虑进去。
+原文链接：[https://www.today.it/mondo/origine-covid-wuhan.html](https://www.today.it/mondo/origine-covid-wuhan.html)
 
-而你是否担心你们这些澳大利亚华人会被视为内部的敌人？
-
-绝对的，我的意思是，澳大利亚华人社区和所有看起来有点像中国人的人，如果，一旦与中共国发生战争，克林顿所说的这种拘留营的概念，你知道，是一个非常现实的预测。你知道，约翰，我们在那里见。
-
-在澳大利亚与中共国全面对抗之时，本国的外交和军事政策必然会激起反华种族主义，这就是未来我们面临的现实。
-
-（本中仅代表作者个人观点，与Gnews平台无关）
-
-视频链接：[War with China: Are we closer than we think? | Under Investigation – YouTube](https://www.youtube.com/watch?v=kA2KaEKs1LA)
-
-**发布：文泓**
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦

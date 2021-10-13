@@ -2,38 +2,159 @@
 ---
 
 
-## 中共国通过检查银行业监管机构在金融领域开展反腐运动
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1591238/)
+## 中国的金融票据破坏力巨大，中国人将付出无法想象的代价
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1591286/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021-10-12t072700z_1_lynxmpeh9b09d_rtroptp_3_china-politics-corruption-1.jpg)中共中央纪律检查委员会总部。（资料图片：REUTERS/Jason Lee）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2471.png)
+[https://gtv.org/video/id=61664356d2e2b81748749757](https://gtv.org/video/id=61664356d2e2b81748749757)
 
-**摘要翻译：**据《亚洲新闻台》援引《路透社》的报道称，中共国最高反腐监督机构已开始对中共国的银行和保险监管机构进行大约两个月的检查，这是在金融领域清除腐败共产党官员的更广泛运动的一部分。
+还有一个今天我们要谈到的
+Hay otra cosa que hoy vamos a conversar
 
-中央纪律检查委员会(CCDI)正在向中央银行、证券交易所、银行和资产管理公司等25家金融机构派遣工作小组，下令重点检查这些金融机构的党委。
+特别是金融票据
+Especialmente sobre las facturas financieras
 
-中国银行保险监督管理委员会是第一个接受审查的机构，它在周一（10 月 11 日）晚间发表声明称，监察员将调查任何违反政治纪律的行为——这是党对腐败的委婉说法。
+啥叫金融票据啊
+Qué son las facturas financieras
 
-“巡视是政治监督，是从严治党的有力而全面的手段。” 声明中援引中纪委负责检查的官员杨国忠的话说。
+啥叫金融票啊
+Qué son los boletos financieros
 
-9月下旬，中共国最高反腐官员赵乐际呼吁深入检查以发现党组织的政治偏差，以及影响金融业发展的问题。
+就是一张纸
+Es simplemente una hoja
 
-《华尔街日报》周一援引知情人士的话报道称，中共国家主席习近平正在审查国有银行和其他金融机构与大型私营公司的关系。
+谁来登记了
+Donde alguien se registra
 
-**简评：**中共政府从上到下，无官不贪，这已经是连中共国老百姓都了解的社会现实。习近平掌权以来，一直用反腐败的名义清除异己，反腐运动已经成为中共内部政治斗争升级的风向标。
+就我们一个泰山兄弟亲身经历了800亿
+Uno de nuestros hermanos Taishan ha experimentado personalmente los 80 mil millones
 
-此次习近平当局在金融领域进一步开展反腐运动，毫无疑问又是一轮新的清洗运动的开始。郭文贵先生爆料称，如今的中共国，习近平虽然掌握着国家权力，但是，党政军内，江泽民派系仍然有着深厚的根基，尤其是在金融领域，江家的势力更是不容小觑。在全球性的金融危机即将大面积爆发的情况下，中共国的经济也是岌岌可危，由恒大地产引发出来的房地产危机有愈演愈烈的趋势，习近平作为掌权者，一方面要稳定经济，另一方面还得保证对权力的绝对把握。此次所谓的在金融领域开展反腐运动意味着习要进一步加强对金融领域的控制，此举势必会挤压江泽民派系的生存空间，又一次激烈的党派斗争不可避免。随着党内斗争的加剧，随着中共脆弱的经济走向崩溃，中国共产党走向灭亡的脚步正在加速。
+你让他自己跟我说那800亿是谁的票据, 他都说不出来
+Si le pides que me diga de quién es la cuenta de esos 80 mil millones, no logra decirlo
 
-新闻链接：[China launches anti-graft campaign in finance sector by inspecting banking regulator](https://www.channelnewsasia.com/business/china-anti-corruption-finance-sector-bank-regulator-2238066)
+你让他翻箱倒柜都查不出来
+Ni siquiera hacerle cabar el gabinete puede conseguirlos
+
+共产党的地方债
+Las deudas locales del Partido Comunista
+
+所谓的隐形债务
+El supuesto deuda invisible
+
+共产党的所谓影子银行, 影子金融
+El llamado banco de sombra y sombra financiera del Partido Comunista
+
+我可以告诉大家
+Les puedo decir
+
+上帝都不知道发生了多少
+Ni Dios sabe cuántos han ocurrido
+
+中国积累的假, 骗, 金融票据
+Las mentiras, falsas facturas financieras acumuladas por China
+
+这个爆发的时候
+Cuando esto se estalle
+
+你不知道能把什么东西都给你轰掉了
+No sabes qué cosa puede bombadearte
+
+而且最关键的问题
+Y el problema más crucial
+
+这些低级骗子们跟华尔街掺和在一起
+Estos estafadores de bajo nivel se mezclaron con Wall Street
+
+但是对他(们)来讲
+Pero para ellos
+
+赚钱我拿20%
+Si hay ganancia, yo tomo el 20%
+
+赚不赚, 我收你5%
+No importa si hay ganancia o no, te cobro el 5%
+
+他给像我这样的人2.5%
+Le da un 2.5% a personas como yo
+
+你想想七哥经历这些事情
+Piensa todas estas cosas que he experimentado
+
+这个世界有多恐怖
+Lo temeroso que es este mundo
+
+所以老百姓们根本不不懂
+Por eso los ciudadanos ni siquiera entienden
+
+告诉我, 14亿中国人
+Dime, 1.4 billones de chinos
+
+啥叫基金
+Qué es el fondo
+
+啥叫对冲基金
+Qué es fondo de cobertura
+
+啥叫封闭基金
+Qué es un fondo cerrado
+
+啥叫开放基金
+Qué es un fondo abierto
+
+啥叫赎回基金
+Qué es fondo de redención
+
+啥叫不赎回基金
+Qué es fondo no reembolsado
+
+他都不知道
+Él no sabe
+
+我们今天说的本质
+La esencia original que hoy hablamos
+
+所有的所谓地方债
+Todas las supuestas deudas locales
+
+所有影子银行, 所有的金融产品
+Todos los bancos de sombra y productos financieros
+
+就一句话
+Con sólo una palabra
+
+就是奴役中国人的
+Es para esclavizar a los chinos
+
+就中国人这21年加入WTO以后
+Con decir luego que los chinos se unieron a la Organización Mundial del Comercio (OMC) durante estos 21 años
+
+成了全人类的奴隶
+Se convirtió en el esclavo de toda la humanidad
+
+而且中国人顶住了全人类最大的一个金融的雷
+Y los chinos han resistido el mayor trueno financiero
+
+别说别的雷, 雷多了去了
+No digamos los otros truenos porque son muchos
+
+而且中国人即将为此付出代价
+Además, los chinos pagarán el precio por esto
 
 * * *
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+日期：10/11/2021
+原视频标题：中国的金融票据破坏力巨大，中国人将付出无法想象的代价
+Las facturas financieras de China son tan destructivas que los chinos pagarán un precio inimaginable
+原视频日期：10/05/2021
+原视频网址[https://twitter.com/se1y7cblljselva/status/1446020234536624128?s=24](https://twitter.com/se1y7cblljselva/status/1446020234536624128?s=24)
+任务编号：KC165（2471）
+视频时间段：0:00-1:40
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场-小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
