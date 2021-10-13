@@ -2,19 +2,169 @@
 ---
 
 
-## 秘翻在线：合生创展有意接盘恒大？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1591770/)
+## 彼得-麦卡洛博士：中共病毒疫苗是人类历史上最大的生物医药悲剧
+` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1591896/)
 
-**撰稿：葛大饼**
+What happened?
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-13-231847.jpg)图片来源： 搜狐
-根据2021年10月12日国内网站报道， 合生创展计划以400多亿港元接手恒大物业51%的股份，成为恒大物业的接盘侠。
+发生了什么呢?
 
-新闻称物业，是存量房时代最稳定的收入来源。房地产行业高频的“大鱼吃濒死大鱼”式吞并模式正在发生，今年九月碧桂园分别出资逾100亿元收购蓝光嘉宝物业和富力物业，绿地全资子公司绿闵物业100%股权转让给花样年旗下的深圳富昌商业，作价12.6亿元， 两个月后，花样年华又将旗下的核心物业资产转卖。觊觎恒大物业的人不少，但最后被地产界“隐型航母”合生创展给买下。
+We now know that this early safety warning
 
-新闻提到合生创展的创始人朱孟依的传奇创业经历，朱孟依，朱拉伊，朱庆伊三兄弟在商场风生水起，保险、能源、教育、金融、新能源汽车等领域，都有合生创展的影子。
+我们知道杰西卡在同行评议中
 
-郭先生最近直播提到“恒大3万亿 、平安 、碧桂园、 融创 、合生创展对世界经济摧残还没有开始，朱孟依玩的这个票据就大了去了，朱孟依的外债和证券绝不止三千亿美元。” 套用郭先生的话：“他出来还救恒大呢？扯王八犊子的事。”
+in this peer review publication from Jessica Rose clearly failed
 
-**[新闻来源](https://info.51.ca/news/china/2021-10/1037275.html)**
+所提供的早期安全提醒已经彻底失败了
+
+Look how high those mortality the numbers were by April
+
+我们来看看今年四月份时的死亡人数
+
+It clearly failed
+
+这很显然是失败的
+
+We had Americans dying.
+
+我们导致了美国人的死亡
+
+That’s after vaccination
+
+这是接种疫苗所导致的
+
+It was obvious!
+
+这很明显！
+
+This is an obvious data signal!
+
+这是非常明显的数据!
+
+This is obvious! all experts agree is obvious!
+
+太明显了! 所有的专家都一致认同!
+
+Now as of September 24th
+
+今天是9月24日了
+
+It’s raced up to 15,937 Americans has died
+
+全国死亡数字到达了一万五千九百三十七人
+
+Over two hundred fifty thousand Americans
+
+超过二十五万美国人
+
+After the vaccine has been hospitalized, gone to the Urgent Care or office visit
+
+在注射疫苗后住院、急救或寻求诊断
+
+You can see the temporal relationship on the bottom bar graph
+
+大家可以看看下面的柱状图趋势
+
+You can see that sharp Spike upwards
+
+你可以看到趋势明显的上扬
+
+Sadly we have over 20,000 Americans
+
+令人悲伤的是，疾控中心已经确认有超过
+
+The CDC tells us are permanently disabled after the vaccine
+
+两万美国人在注射疫苗后彻底失去行动能力
+
+That’s bigger than some major cancer group
+
+疫苗危害这远远超过了一些主要的癌症
+
+The disability that we are going to see
+
+我们看到的这种因注射疫苗
+
+due to these vaccines
+
+而造成的行动能力的丧失
+
+will go down in history
+
+会被写入历史
+
+as an unbelievable tragedy
+
+这是令人难以置信的悲剧
+
+I made a presentation to the Heritage Foundation in Washington
+
+我在华盛顿为遗产基金会做了演讲
+
+provides a lot of oversights to the House in the senate
+
+向国会议员们展示了很多有关的疏忽、过失
+
+as well as the agencies
+
+当然也包括他们的代理人
+
+And I made this presentation
+
+当我结束演讲时
+
+you could hear a pin drop when I was done
+
+全场鸦雀无声
+
+Finally, one of the former presidents of American Medical Association
+
+最终，一位美国医师协会前主席
+
+Doctor McCullough
+
+麦凯罗医生说到
+
+We have the biggest biological catastrophe
+
+我们正在经历人类历史上
+
+on our hands in human history
+
+最大的生物学灾难
+
+With the medicinal product, we’ve had two administrations buy into it
+
+是与医药产品有关的 我们已经有两届政府涉入其中
+
+We’ve had too all the houses of legislation buy into it
+
+我们所有的立法机构也参与其中
+
+We have the entire medical establishment buy into it
+
+所有的医疗卫生机构也是如此
+
+And the whole media
+
+还有全部媒体
+
+And no one knows how to stop it
+
+没人知道如何阻止它
+
+No one knows how to stop this freight train
+
+没人知道如何组织这列货车(疫苗注射危机)
+
+And we’re all witnessing it right now
+
+我们都在目睹它的发生!
+
+文字听写翻译：维京商人
+
+视频字幕：Kent
+
+编辑/发稿：Kent
+
+*免责声明：本文仅代表作者个人观点，与G-NEWS网站无关*

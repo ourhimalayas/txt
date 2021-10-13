@@ -2,52 +2,43 @@
 ---
 
 
-## 1013 《疫苗毒针》简讯集
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591533/)
+## 华裔女数据科学家成为揭露Facebook恶行的又一吹哨人
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1591588/)
 
-作者：流浪的阳光
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-**中共在十余省强推第三针 **
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-43.png)
+图片来自网络
 
-中共继续新冠毒针人体实验。截至目前，明确启动加强针接种地区涉及：安徽、福建、河南、黑龙江、湖北、山西、广州、贵州等10余省份。 其中安徽芜湖、福建厦门将12岁以上儿童也囊入秋冬季人口清理范围。
+美国社交媒体巨头Facebook近日麻烦缠身，其中一个麻烦是先后被前雇员揭露其违法行为。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-21.jpeg)
+据《大纪元》10月13日报道，脸书（Facebook）前雇员、华裔女数据科学家张学菲（Sophie Zhang）周日（10月10日）告诉CNN，她已将其前雇主Facebook所作所为的相关文件传给了美国一个执法机构，“调查仍在进行中”。她还表示，她愿意去国会就她前雇主的所作所为作证。
 
-**新加坡颁行公众场所限制令**
+此前已有脸书前员工披露， Facebook知道自己的某些运作对公众有害，但为了追求利润，不惜暗箱操作。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide2-21.jpeg)
+张学菲曾在Facebook担任数据科学家近三年。去年（2020年），她被脸书辞退，公司称，她被解雇的理由是因业绩问题。
 
-新加坡从今天10月13日起，将限制未接种新冠疫苗的民众在公众场所的活动，如饭店就餐、进入商场与景点游览。通过此项规定的颁行，政府用“疫苗歧视”再一次践踏了人权。
+由于不满公司对某些国家利用该社媒平台散布假信息操纵舆论的行为袖手旁观，张学菲于她在脸书上班的最后一日，在公司内部论坛上发布了长达七千字的备忘录，陈列了她所发现的种种不妥之处。然而这个备忘录却石沉大海。
 
-**马来西亚放宽****“集中营”SOP**
+BuzzFeed新闻网去年首次报道了这份备忘录。据张学菲介绍，在离职前，她是在Site Integrity fake engagement team工作。她表示，在脸书平台，即便是像她一样专门从事数据科学等领域的初级员工，也可以行使巨大的权力，控制着如世界领导人这样的重量级用户的活动。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-13.jpeg)
+周日，张学菲在湾区的家中接受CNN（美国有线电视新闻网）采访时说，脸书的另一个举报人、该公司前数据科学家弗朗西斯·豪根（Frances Haugen）上周在向参议院小组委员会作证后，两党似乎都支持采取相关行动，保护在线儿童，她对此深感鼓舞。
 
-大马首相拿督宣布，从11日起，只有完成两剂毒针疫苗接种的人，才可以跨州和出国旅行。此前人们出行需要向警方申请批准。马来西亚作为辉瑞、阿斯利康和科兴的势力控制区域，用疫苗接种情况完成了人口区块化管理。
+豪根上周二（10月5日）在美国参议院消费者保护、产品安全和数据安全小组委员会（Senate Subcommittee on Consumer Protection, Product Safety and Data Security）作证时表示，社交媒体巨头脸书知道自己的某些运作对公众有害，这些运作“伤害儿童，煽动分裂，削弱我们的民主”。但脸书为了追求利润，不惜进行暗箱操作。
 
-**新西兰步澳洲后尘推进群体接种强制令**
+张学菲称，她现在已将脸书相关信息提交给当局。她周日在推特上表示：“我向美国一个执法机构提供了有关（脸书）潜在刑事违法行为的详细文件。我的理解是，调查仍在进行。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-12.jpeg)
+当CNN询问提供了哪些信息，以及向哪个机构提供了信息时，张学菲拒绝透露。
 
-新西兰总理阿德恩周一（11日）下达规定，将对教师和卫生部，及残疾部门的员工，全面强制接种新冠病毒疫苗。
+联邦调查局（FBI）发言人周一（10月11日）拒绝就此事发表评论，并补充称：“联邦调查局一般不会以确认、否认或其它方式评论我们可能从公众那里收到的信息或线索。”
 
-自疫情爆发至今，各国的无良政客已经疯狂，在这至暗时刻，希望各国的战友互相帮助，共同渡过这艰难时期。
+张学菲对脸书的指控核心是：脸书没有做足够的工作来解决美国以外的国家滥用该平台。根据脸书最近的季度文件显示，大约90%的脸书月度活跃用户在美国和加拿大之外的国家或地区。
 
-(本文仅代表作者观点)
+欧洲议会周一发表声明，邀请豪根出席将于11月8日举行的听证会。据悉，张学菲也计划本月下旬赴英国议会作证。
 
-参考链接：[狮城快讯：新加坡Covid疫苗歧视升级！不打疫苗不可进商场　12岁以下明年初开打](https://gnews.org/zh-hans/1582814/)
-[未接种公众不能在小贩中心和咖啡店堂食 也不能进入商场和景点](https://www.zaobao.com.sg/realtime/singapore/story20211009-1201644)
-[多地启动新冠疫苗加强针，涉及安徽福建湖北黑龙江海南等地](https://news.sina.com.cn/c/2021-10-09/doc-iktzqtyu0510206.shtml)
+脸书配合邪恶势力作恶多端，肆意地封号删帖，严重损害西方民主自由价值观。脸书不仅深度影响美国大选，在病毒和疫苗问题上故意误导公众，还默许中共等邪恶组织在其平台上开展宣传战，但它却永久封禁了美国前总统川普的帐号。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+Facebook该到“非死不可”的时候了。
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
+注：本文仅代表作者观点
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**新闻链接：**[https://twitter.com/dajiyuan/status/1447993023883841542](https://twitter.com/dajiyuan/status/1447993023883841542)

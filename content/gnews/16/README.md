@@ -2,30 +2,23 @@
 ---
 
 
-## 爆料革命影响之下,疫苗接种无法再推进!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591631/)
+## 秘翻在线：海南系“首虎”王富玉退休三年后仍落马，王岐山危矣！
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1591708/)
 
-作者：文龍
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月12日郭文贵先生在盖特账号发布了简短视频，称现阶段共产党对全世界的贸易战和经济绑架，以及西方国家的堕落都超出想象。而全球的各大互联网科技公司，只要参与限制公众讨论疫苗死亡及灾难的，最终都要承担后果。但无论黑暗势力再怎样努力欺骗，想要把疫苗接种比例继续推进10%已经不可能了，这就是我们爆料革命/新中国联邦的力量 !
+**撰稿：Ping**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-8.jpeg)
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-13-230811.jpg)
+中共媒体于今天（10月13日）报道，检察机关正式起诉王富玉，指控称牛年“首虎”王富玉利用担任海南省琼山市委书记、市长，海南省委常委、三亚市委书记，海南省委副书记、海口市委书记，贵州省委副书记，贵州省政协副主席、主席，贵州省正部级领导干部等职务上的便利，以及本人职权、地位形成的便利条件，为他人谋取利益，非法收受他人巨额财物。
 
-文贵先生称，大家可以看到每时每刻全球政治和经济的变化，最终全人类的政治格局和制度都将大改良，所谓的共产主义和资本主义都已经不能满足人类的需要和地球文明的进步!包括目前的宗教和媒体, 竟然与邪恶势力在一起威胁到全人类的健康和安全，也都将面临变革!
+经过四年郭文贵先生的爆料，对于海航大家都不再陌生。海南是王岐山的老巢，属于王的势力范围。王富玉是王岐山的马仔，曾对习近平是不屑一顾的，2014年新年之际回海南当日，在北京盘古郭先生办公室对习近平和彭丽媛是破口大骂，言语间全然的痛恨和厌恶。如今落马，已然很明了习王的斗争完全到了白刀子进红刀子出的程度。王岐山危矣！
 
-(本文仅代表作者观点)
+同时报道还提及，包括王富玉在内，三亚市已有三任市委书记落马，另外两人分别是张琦、童道驰。
 
-参考链接: [https://gettr.com/post/pdy3yq0473](https://gettr.com/post/pdy3yq0473)
+张琦在2014年10月至2016年11月担任三亚市委书记，之后转任海口市委书记。2019年9月，张琦被查。2020年12月，张琦因受贿数额过亿被判了无期徒刑，他敛财的首站，在三亚。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+中共体制是以黑治国，拉帮结派。每一次换届，就是一次政治大清洗。到了习近平时代，中共国的整个势力已经被上海帮江派牢牢把控，习近平想成为世界的习大帝，那就必须把不属于自己的势力清除。如今中共国无论是政治还是经济或是军事习大开杀戒，这势必是一场你死我活的大厮杀。目前种种迹象表明，习派似乎在主动出击。在经济领域，习使用杀敌一千，自损一万的方式，让美国为首的西方国家跪倒在习大帝膝下。在政治领域，进行大清洗，再走一遍文化大革命，把党内的对立派彻底除掉。怎样的腥风血雨，需要体制内的老虎们战战兢兢的体味吧！
 
-新闻访谈终审：文龍
-编辑/校正/发稿：谐趣园
+总之，无论谁落马，谁双规都是中共体制的必然的衍生物。新中国联邦笑看风云，待双方精疲力竭，尸横遍野之时，抖擞精神打扫战场方可！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**[新闻来源](https://news.sina.com.cn/c/2021-10-13/doc-iktzscyx9372701.shtml)**

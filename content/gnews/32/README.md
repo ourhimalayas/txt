@@ -2,24 +2,52 @@
 ---
 
 
-## 接种率超过98%了
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1591435/)
+## 辉瑞公司声称疫苗 95% 有效的测试存在“明显欺诈证据”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591569/)
 
-撰稿：文雨
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture2-2.jpg)
-图片来自：网络
+作者：AsG諾雅
 
-村里今天第一针的疫苗接种率已经超过98%了，完全接种也已经达到72%，虽然在每天的简报会上官员们仍在说着疫苗接种所取得的成果巨大，但从他们说话的语气中，已能感受到些许的担忧和不自信。
 
-州长说，放松政策会不断进行评估，我们不想看到病例2，4，8，16…1000，1500，2000这样速度的增长…如遇特殊情况，会召开甚至一天二次的内部紧急会议，讨论应对措施。卫生部长也坦承了本周五开放后，病例会有所上升，说下一阶段关注重点将从感染病例数上有所转移，因为人们打了疫苗重症和死亡率会下降……真的吗？接下去医疗系统的压力真会下降吗？
 
-再来看看新加坡的报道，该国83%的完全接种率，目前非但没有开放，而且反其道而行之，从9月份开始，随着病例每八到10天翻一番，政府恢复了对聚会的限制；美国建议公民重新考虑前往该国的旅行；几家医院的急诊科开始排起长队。现在该国的居民备受打击，人们再次被告知应该居家办公。在限制措施实施两周后，将在周一再次进行复核，并根据社区情况进行调整。有官员甚至认为戴口罩、限制旅行和保持社交距离的措施有可能持续到2024年。上个月，官员们又匆忙建起了配备氧气罐的社区治疗设施，要求轻症或无症状者在家康复。许多新加坡人表示，他们不知道该做什么，政府似乎准备不足。
 
-对于未曾出现大规模暴发又想要重新开放的城市来说，新加坡的经验已经成为发人深省的案例。我也似乎已经看到了村里的未来，那些认为疫苗接种率达到一定水平后，就可以重新开放，
 
-看来村长们现在都在河里摸着石头，这石头将把他们引向河的深处，而不是对岸！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-(文章内容仅代表作者观点与GNEWS无关）
 
-*编辑：信心满满*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+
+
+
+
+
+《生命新闻网》10 月 12 日消息，美国前线医生首席科学官、辉瑞公司前副总裁迈克尔-耶尔登博士针对《柳叶刀》上一篇有关新冠疫苗有效性的文章和一部审查辉瑞疫苗疗效研究的纪录片发表了看法，他认为辉瑞公司的研究中有“明显的欺诈证据”。
+
+耶尔登博士表示，相信他们（辉瑞）的行为是蓄意的大规模谋杀，其目标就是让人们尽可能地恐惧并接受疫苗接种，他对政府、媒体和科技巨头掩盖真相的做法表示愤慨。
+
+当世界各国民众知道新冠肺炎有效治疗药物被各级“医疗权威”禁止，各国政府强推的所谓疫苗实际上是“杀人生化武器”的真相时，所有参与这一大屠杀计划的机构和个人都将收到法律的审判。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-60.jpg)
+参考链接：
+[Former Pfizer VP: ‘Clear evidence of fraud’ in Pfizer study claiming 95% jab efficacy](https://www.lifesitenews.com/news/former-pfizer-vp-clear-evidence-of-fraud-in-pfizer-study-claiming-95-jab-efficacy/?utm_source=featured&amp;utm_campaign=usa)
+[COVID-19 vaccine efficacy and effectiveness—the elephant (not) in the room](https://www.thelancet.com/journals/lanmic/article/PIIS2666-5247%2821%2900069-0/fulltext)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Q大哥
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

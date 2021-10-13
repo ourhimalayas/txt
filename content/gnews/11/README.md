@@ -2,27 +2,26 @@
 ---
 
 
-## 爆料革命影响下 疫苗接种无法再大幅推进
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1591673/)
+## 预算174亿日元！群马县力推“疫苗手账”政策
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1591765/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+撰稿：东京樱花团/鲤鱼打挺
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-12.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2021/10/0ef5ea3f-e69a-8497-2f34-e1add4722295_800.jpg)
 
-视频参看：2021.10.13早GTV新闻访谈
+据朝日新闻报道，群马县12日宣布，将从13日起实施”群马疫苗手账”，该手册将证明本人接种了新冠疫苗，并于15日起，使用该手账能够享受折扣等优惠。该项目涉及近174亿日元，在12日的县议会全体会议上，以多数票通过了一般会计补充草案。
 
-[https://gtv.org/broadcast/watch/6166d0c5304e992109b45e10](https://gtv.org/broadcast/watch/6166d0c5304e992109b45e10)
+县议会上，各派纷纷表示，他们担心对不能接种疫苗或不想接种疫苗的人造成歧视，也增加了未接种疫苗的人的福利，具体不清楚，名称从“群马县版疫苗通行证”改为“群马疫苗手账”。疫苗接种者，住宿每晚可享受5000日元的折扣等优惠外，还可享受比普通”Go To Eat”餐券高5%折扣的”群马 Go To Eat疫苗高级版”。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+本月3日，日本共同社报道，石川、长野、岐阜、三重、和歌山、鸟取、德岛和高知，8个县颁布条例“禁止歧视未接种疫苗者”，群马县不在8县内，此次推出的“群马疫苗手账”，对于未接种者将拒绝提供相关服务，这表明政府主导歧视的开始，疫苗手账是否会成为疫苗护照的前身呢？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
+信息来源：
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[“群馬県独自の「ワクチン手帳」、宿泊や飲食で割引　未接種者にも特典](https://news.yahoo.co.jp/articles/0b9081a71696f4ec408ee0d46204269d9d299f0e)
+
+（免责声明：文章仅代表作者本人观点，与GNEWS无关）
+
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)

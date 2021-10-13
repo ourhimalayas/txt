@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/13/2021 4:48 PM (UTC)`
+
+10月13号：我们中国人连这个老狮子的待遇都混不上……如果你老在中国……想自己挖个坑把自己埋了，永远不可能。中国人太可怜了，太可悲了。
+> `@shangjinge 10/13/2021 4:42 PM (UTC)`<br/>有尊嚴的老去！🙏🏻🙏🏻🙏🏻
+
+---
+
 `@miles 10/13/2021 2:07 PM (UTC)`
 
 西方外汇入中知多少、再谈疫苗台湾房地产
@@ -287,13 +294,6 @@ Taiwan is in great danger: Xi Jinping addresses the 110 years anniversary of Xin
 
 10月8号：共产党的以孙灭台，武统台湾，宣讲大会结束，台湾危了！
 ![img](https://media.gettr.com/group24/getter/2021/10/09/04/3986a618-99b8-c26d-f559-27819e457db3/3934b041c72fdf325376fcf71a1a0f2e.jpg)
-
----
-
-`@miles 10/9/2021 4:06 AM (UTC)`
-
-10/08/2021Miles Guo’s GETTR: The West and the Jiang faction are waiting for something to happen to Xi; The fundamental goal of the Sino-US meeting in Switzerland is to fool Xi Jinping so he won’t invade Taiwan and to make the CCP buy the US Treasury securities; Both the CCP and the US are playing with fake politics and economy, while Taiwan and the Lao Baixing will be sacrificed<br/><br/>10/08/2021 文贵盖特：西方和江派都在等着习出事；中美瑞士会谈的根本目的是糊弄习近平不打台湾并让中共买美国国债；中共和美国都在玩假的政治和经济，而被牺牲的却是台湾和老百姓<br/>
-![img](https://media.gettr.com/group8/getter/2021/10/09/04/06/cdb6be07-0a0d-20cf-ce97-2a7bac895ea3/out.jpg)
 
 ---
 

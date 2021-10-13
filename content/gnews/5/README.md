@@ -2,57 +2,60 @@
 ---
 
 
-## 习下令审查经融领域剑指江王派，疫苗灾难撼动世界权力
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1591745/)
+## FDA：或授权默克存在安全问题的 Covid-19 抗病毒药物
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1591846/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2021/10/习下令审查经融领域剑指江王派，疫苗灾难撼动世界权力.png)[图片来源](https://qz.com/851218/wang-qishan-chinas-second-most-powerful-man-warns-of-dissent-and-systematic-corruption-inside-the-communist-party/)
-**习近平下令审查经融领域，涉及25个部门。江王派系与习的斗争进入白热化。郭文贵先生警告，疫苗灾难将会严重震断社会、能源供应链。大宗商品将先涨后跌，而那些疫苗推动者将会受到审判。**
-
-据[雅虎日本10月13日消息](https://news.yahoo.co.jp/articles/beca02bef3ac83445baf7a4a218af367b20ff278)：中共国习近平首当其冲的监管现正转向金融。该消息援引《[华尔街](https://www.wsj.com/articles/xi-jinping-scrutinizes-chinese-financial-institutions-ties-with-private-firms-11633972484)
-
-[日报](https://www.wsj.com/articles/xi-jinping-scrutinizes-chinese-financial-institutions-ties-with-private-firms-11633972484)》11日报道：“习主席已指示中国共产党审查金融部门与私营企业的关系。对金融业的调查将由中共中央纪律检查委员会牵头。”
-
-- *延展阅读：*[*“听党话、跟党走”：中共想要怎样的私营企业*](https://cn.nytimes.com/technology/20210719/what-china-expects-from-businesses-total-surrender/)*？*
+- 编译：西班牙喜悦农场–wenwu
 
 
-据[该消息](https://news.yahoo.co.jp/articles/beca02bef3ac83445baf7a4a218af367b20ff278)称，中共习近平的亲信赵乐际上月26日宣布严查后，“此次调查对象为中国人民银行、央行、银保监会、国有银行、主权财富基金等25家机构和金融公司。纪委检查被调查的贷款、投资记录、规范性文件等。尤其要[**重点调查私营企业是否受到过度优惠待遇**](https://news.yahoo.co.jp/articles/beca02bef3ac83445baf7a4a218af367b20ff278)。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-11-3.png)
 
-该消息经华尔街日报发布后，引发全网关注。这意味着中共国经融、经济界全面腐败的程度令人震惊。
+[默克](https://www.barrons.com/market-data/stocks/mrk)公司宣布其抗病毒药物莫努匹拉韦（molnupiravir）已将[高危 Covid-19 患者的住院](https://www.barrons.com/articles/merck-covid-pill-51633091297?mod=article_inline)率[减半后，](https://www.barrons.com/articles/merck-covid-pill-51633091297?mod=article_inline)一些科学家警告说，该药物的安全问题可能会[严重限制该药物的效性](https://www.barrons.com/articles/merck-covid-pill-risks-51633398722?mod=article_inline)。
 
-（10月12号）新中国联邦创始人郭文贵先生第一时间在盖特对此消息发表评论直击要害：
+但在周三（13日）早些时候发布的一份报告中，花旗研究公司的分析师表示，他们已经调查了这些担忧，并认为 FDA 不会阻止该药物在食品和药物管理局获得批准。
 
-[***王岐山，和孟建柱．江志成（等人）有关中国国有银行和金融机构的腐败，若能查清楚1%，中共国的财政部的国库马上就会增加几倍以上净现金***](https://www.gettr.com/post/pdxkxt70ff)*。*
+花旗分析师安德鲁·鲍姆 (Andrew Baum) 在他的报告中写道，在与 FDA 的前顾问交谈后，[默克 (Merck)](https://www.barrons.com/market-data/stocks/mrk)（股票代码：MRK）的莫努匹拉韦在哺乳动物和细菌细胞培养物中曾发生过引起突变的实验室测试，但仍不会阻止食品和药物管理局批准该药物进入市场。
 
-“中南坑的老杂毛们看文贵的视频后．现在冷静多了长大了。” 有关《华尔街日报》郭先生接着引述如下：
+花旗银行的安德鲁·鲍姆 (Andrew Baum) 在周三的报告中写道：“我们最近与遗传毒性方面的一位领先专家进行的讨论，并为我们提供了实质性的保证，即这两种阳性体外检测不太可能排除监管机构的批准。”或者说对于 FDA 而言，默克公司在活体动物测试中没有发现任何突变的事实将超过细胞培养中的实验室发现。
 
-[***知情人士称***](https://www.gettr.com/post/pdxkxt70ff)***，中共总书记习近平向中纪委下指令，审查至少25家国有银行及其他金融机构，要求这些金融机构厘清与大型私营企业的关系。报道又指，金融业是国家副主席王岐山的势力范围，很多金融业高管都跟王岐山有密切关系；王岐山曾任行长的中国建设银行对海航的贷款，预计将成为新一轮审查的一部分。近几个月来，王岐山的政治影响力有所下降。他的一名长期助手在8月被指控受贿7100多万美元。据了解该计划的人士称，王岐山与一些现在面临审查的金融公司有联系。***
+尽管如此，鲍姆写道，他不期望 FDA 允许莫奈拉韦用于孕妇，并且希望打算造人的男性和女性在服用该药物时，应避免性交或使用避孕措施。
 
-上述消息证实郭先生一直以来对中共国经融体系黑幕爆料的真实性。而王岐山几乎是中共国所有问题的关键核心。纽约前市长布隆伯格曾经评价王是“[世界上最有权力的人](https://www.lowyinstitute.org/the-interpreter/wang-qishan-and-china-charm-offensive-against-us-trade-war)”。
+鲍姆说，对突变风险的担忧意味着默克公司可能会失去正在开发的 Covid-19 抗病毒药物的市场份额，并且会被[辉瑞公司](https://www.barrons.com/market-data/stocks/pfe) (PFE) 和[罗氏控股](https://www.barrons.com/market-data/stocks/rog?countryCode=ch)(RHHBY)所替代，后者与[Atea Pharmaceuticals](https://www.barrons.com/market-data/stocks/avir)合作 (AVIR)，如果他们的抗病毒药中的任何一种表现出与莫诺匹韦相似的功效。
 
-- *延展阅读：*[*“党进民退”铁拳出击 中国私企风雨沉浮*](http://cn.secretchina.com/news/gb/2021/08/03/979980.html)*。*
+“尽管默克公司对潜在致癌风险有所保证，但如果罗氏或辉瑞公司的抗病毒药物在其正在进行的 III 期试验中表现出相似或优越的疗效，我们确实认为当前的莫奈拉韦市场预期存在一些下行风险，”鲍姆写道。
 
+默克公司股价在 10 月 1 日上涨了 8.4%，当天默克公司表示已根据独立数据监测委员会的建议已停止招募患者参与莫奈拉韦试验，因为中期结果非常积极。这一消息还引发了中共病毒（Covid-19）疫苗和治疗剂制造商股票的抛售。
 
-雅虎日本消息继续指出：恒大集团破产后，“根据监管警告，中信银行在过去几年中向恒大集团提供了超过 100 亿美元的贷款；中国四大商业银行中的中国农业银行和光大银行也向恒大集团提供了巨额贷款；中国主权财富基金、中国投资有限责任公司（CIC）和中国人寿因投资蚂蚁集团和滴滴而受到纪律处分。”
+自那以后，该股小幅下跌，自试验消息传出以来，默克的股价现在上涨了 6%。该股今年迄今已上涨 2.1%。
 
-一位中国监管机构在接受雅虎日本记者采访时表示，“[共产党正试图完全控制房地产行业。](https://news.yahoo.co.jp/articles/beca02bef3ac83445baf7a4a218af367b20ff278)”该报称。根据美国投资银行摩根士丹利的数据，中国房地产业的债务为人民币 18.4 万亿元（约合 322 万亿日元）。这是中国名义上国内生产总值 (GDP) 的 18%。实际上要比公开数据严重很多。
+10 月 8 日，《巴伦周刊》[报道](https://www.barrons.com/articles/merck-covid-pill-risks-51633398722?mod=article_inline)了一组研究 NHC 的科学家提出的[担忧](https://www.barrons.com/articles/merck-covid-pill-risks-51633398722?mod=article_inline)，NHC 是莫努匹拉韦在摄入后在体内产生的化合物。在 5 月份发表在《传染病杂志》上的一篇论文中，他们报告说，NHC 在旨在检测此类突变的实验室测试中导致动物细胞培养物中发生突变。
 
-一些人认为，在金融领域收紧监管可能会给中国经济复苏泼冷水。中国金融公司近期受到当局施压，已冻结或撤回对私营公司的贷款。北京大学金融学教授迈克尔佩蒂斯说：“私营部门经济活动放缓将是中国政府头疼的问题。这将取决于浮动措施。”
+“有人担心这会导致长期的突变效应，甚至癌症，”该论文的作者之一，北卡罗来纳大学斯万斯特罗姆实验室的科学家 Shuntai Zhou 博士当时告诉《巴伦周刊》。
 
-- *延展阅读：*[*中共国这4家中国房地产开发商已经陷入一系列无序违约的困境*](https://www.cnn.com/2021/10/12/investing/chinese-real-estate-debt-crisis/index.html)*。*
+Molnupiravir 的工作原理是将自身整合到病毒的遗传物质中，然后在病毒复制时引起大量突变，从而有效地杀死它。在 Zhou 和其他人的实验室测试中，该药物显示出这种能力还可以整合到哺乳动物细胞的遗传物质中，在这些细胞复制时引起突变。
 
+如果这种情况发生在接受药物治疗的患者的细胞中，理论上可能会导致癌症或先天缺陷。默克表示，对动物进行的广泛测试表明这不是问题。
 
-事实上，共产党每一次对政治、经济、金融领域调查运动远不止“泼冷水‘’
+“来自这些研究的全部数据表明，molnupiravir 在体内哺乳动物系统中没有致突变性或基因毒性，”默克公司的一位发言人在 10 月初告诉《巴伦周刊》。
 
-那么简单，问题是，查处的资金是否真的进入所谓的国库？那只是一个公开的秘密而已。根据郭先生进一步的透露，“[共产党经济超限战绑架了世界经济，超出人们想象，西方国家的堕落也超出人们想象](https://www.gettr.com/post/pe0fah495d)。”
+在周三的报告中，鲍姆引用了默克公司“作为抗病毒药物开发商的传奇血统”，让他相信默克公司的动物试验已经足够彻底，足以消除这些担忧。
 
-对此，郭先生提出问题：[全世界的热钱去哪儿了？这些热钱除了都去暗网，还去哪儿？能源和大宗商品的价格将先涨后跌](https://www.gettr.com/post/pe0fah495d)。疫苗灾难将会严重影响[社会、能源供给，整个世界供应链的断裂的情况下，你（大宗商品）还有这些价格吗？最后都会让那些疫苗推动者付出代价。](https://www.gettr.com/post/pe0fah495d)
+默克公司[周一表示，它已向](https://www.barrons.com/articles/merck-stock-price-covid-pill-51633949366?mod=article_inline)FDA[提交了莫奈拉韦的紧急使用授权](https://www.barrons.com/articles/merck-stock-price-covid-pill-51633949366?mod=article_inline)。鲍姆预计 FDA 将就默克、 [辉瑞](https://www.barrons.com/market-data/stocks/pfe)、 12 月或 1 月使用 Atea 抗病毒药物举行咨询委员会听证会。
 
-2021年10月13日
+**简评：**
 
-（本文只代表个人观点，与Gnews网站无关）
+**全球只有我们新中国联邦在推荐青蒿素药品（Artequick)，还有中共疫苗等毒针的真相。郭文贵现在于10月7日在[盖特](https://gettr.com/post/pdgntbf168)上分享了爆料革命所推荐的中共病毒（Covid-19)治疗和预防方案。**
 
-*编辑：东京樱花团 /文小白*
-*发布：东京樱花团 /老黑*
+**感谢所有分享这个好消息的战友们，信不信就不需要管了，反正我们不像华尔街制药厂一样用美国老百姓的钱谋杀他们，还外加赚钱。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+**值得一提的是，七哥也在弄自己的药厂，让人们都用得上青蒿素药品、伊维菌素、羟氯喹。（本人顺便把新中国联邦的七哥治疗方案分享给了美国公司的老板们）**
+
+（文章仅代表作者观点与GNEWS无关）
+
+**新闻来源：**《[巴伦周刊](https://www.barrons.com/articles/merck-stock-covid-19-antiviral-fda-51634130494?mod=hp_DAY_Theme_1_1)》｜作者：乔什·内森·卡齐斯｜发布时间：2021年10月13日
+
+* * *
+
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-2.jpeg)

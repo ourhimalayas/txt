@@ -2,33 +2,45 @@
 ---
 
 
-## 有声|灾难性的一天 – 中共国债券市场全面崩溃
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1591583/)
+## 《华盛顿邮报》：中共阻挠不可接受，我们必须找到病毒来源
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1591639/)
 
-配音：香草山教育部 – 蒙古鸿雁
+作者：纽约香草山农场 – 四季
 
-【零对冲】10月11日报道，周一中共国“垃圾债券市场”乘北美市场假日停市的机会出现大量抛售，在经历有史以来最快的下跌之后，再次崩溃。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-据报道，恒大错过了 9 月 23 日和 9 月 29 日到期的离岸美元债券的付款，总价值 1.31 亿美元，并预计在几周内将错过其第三轮支付，据路透社报道恒大的离岸债券持有人在亚洲时间周一的最后期限前仍未收到利息付款。
 
-花样年、现代置业、鑫苑置业、奥园集团、凯撒集团等中共抢钱洗钱企业，今年也都陷入了相同财务危机。
 
-根据彭博汇编的数据显示，现代置业和鑫苑置业分别有 13.5 亿美元和 7.6 亿美元的到期美元债券未按时偿还，而恒大的逾期美元债券高达 192 亿美元。
 
-中国 10 年期国债期货跌至三个月低点，因为央行最新的流动性放水削弱了对新货币政策放松的预期。10 年期国债期货合约下跌 0.4% 至 99.14，为 7 月 12 日以来的最低水平。10年期主权债券收益率上涨5个基点，为两个月来最大涨幅，至2.96%。
 
-分析称，这真是灾难性的一天，可能预示着雷曼时刻的到来。”恒大的传染风险现在正在向其他发行人和部门蔓延”，数以亿计的中国居民投资的股票市场也即将面临崩溃。
+[《华盛顿邮报》](https://www.washingtonpost.com/opinions/2021/10/11/covid-origin-wuhan-china-stonewalling-must-stop/)在10月11日发表的编辑部社论中表示，病毒的来源尚不清楚，需要进行可靠的调查。而为了防止下一次大流行病的发生，为了了解真相，我们必须找到病毒的来源，中共阻挠调查是不可接受的。
 
-文字版原文：[灾难性的一天 – 中共国债券市场全面崩溃](https://gnews.org/zh-hans/1588685/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1202-1.png)*10月7日，居民骑车穿过中国武汉。(Getty Images)*
 
-音频处理：喜山必胜Maverick
+文章回顾并列举了两年来围绕病毒及其起源所发生的事件。文中指出，中共阻止世卫组织联合调查组的调查，否认[武汉病毒研究所](https://www.aboluowang.com/tag/%E6%AD%A6%E6%B1%89%E7%97%85%E6%AF%92%E7%A0%94%E7%A9%B6%E6%89%80-1.html)有过感染病例，并声称没有发现任何问题。
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+文章揭露了生态健康联盟主席、动物学家和寄生虫学家彼得·达萨克（Peter Daszak）与武汉病毒研究所的蝙蝠冠状病毒学家[石正丽](https://www.aboluowang.com/tag/%E7%9F%B3%E6%AD%A3%E4%B8%BD-1.html)的密切合作。并指出，达萨克一直是人畜共患病溢出假说的大力倡导者，并批评那些提出实验室泄漏可能性的人。
+
+中共病毒肆虐全球至今，如不能找到病毒来源，所有解决病毒的努力都会成为无源之水，无本之木。沉默令人振聋发聩。
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

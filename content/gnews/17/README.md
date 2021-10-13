@@ -2,22 +2,29 @@
 ---
 
 
-## 郭文贵先生在13日的大直播中以“今天是个好日子”开场
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1591620/)
+## 有声|为防范中共海上霸权，美日印澳展开联合军演
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1591688/)
 
-撰稿：东京樱花团/待命（文晓）
+配音：香草山美食部 – 玫瑰园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-44.png)（图片源自GTV）
+据[美国之音](https://www.voachinese.com/a/quad-naval-exercise-20211012/6267058.html)10月12日报道，美国、日本、澳大利亚和印度周二开始在孟加拉湾展开2021年度马拉巴尔（Malabar) 年度军演的第二阶段演习，以谋求在第一阶段的基础上进一步提升四国海军的协同作战能力，并聚焦先进的水面舰和反潜作战演练。
 
-北京时间10月13日晚，新中国联邦通过GTV再做以郭文贵先生为主的大直播。
+马拉巴尔年度军演被视为四方安全对话机制Quad的联合军演，目的是遏制中共国的恶意扩张。四国海军今年8月在美国关岛附近实施了第一阶段的演习。
 
-郭文贵先生以“今天是个好日子”作为开场白，并请提醒参加直播的嘉宾记住这个日子。郭先生解释说：由于法律相关原因，现在只能告诉大家是个好日子，具体发生了什么好事，2022年的1月份公布。
+四国的官员们表示，中共国在该地区行事日益强硬，使得四国需要联手保护自己及其盟友不受中共的“剥削、腐蚀和胁迫”。
 
-从郭文贵先生非常开心的笑容里，可以看出，这个好事儿应该不小！虽然我们现在还不能知道到底是什么好事儿，但是，跟随爆料革命的老战友们都知道，对他来说，好事儿就是有益于战友们的事儿；好事儿，就是有利于灭共的事儿。
+中共近日威胁要孤注一掷攻打台湾，台海局势日益严峻，只有国际社会联合起来，才能遏制中共的野心。
 
-（文章仅代表作者个人观点，与GNEWS无关）
+文字版原文：[为防范中共海上霸权，美日印澳展开联合军演](https://gnews.org/zh-hans/1589908/)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/老黑*
+音频处理：喜山必胜Maverick
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
