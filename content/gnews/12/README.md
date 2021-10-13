@@ -2,71 +2,72 @@
 ---
 
 
-## 樱花灭共段子之《长津湖》观后感、相信“政府”、反驳催打疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1590819/)
+## 完全接种疫苗的人正在丧失其自身免疫力
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1590862/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-231.png)
-《长津湖》观后感
+- **编译：西班牙喜悦农场–wenwu**
 
-作者：kuki
 
-十一了，在这个ccp党国重要的庆祝之日。肯定少不了一部热血的爱国主义题材电影。是的，还是熟悉的“配方”，还是熟悉的“味道”，它来了《长津湖》— —它如同一粒伟哥在这个特殊时期让小粉红们又“高潮”了一把。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip314.png)
 
-人A：当时朱亚文开着一辆车对着旁边的运兵车和坦克扔手雷，最后还能跳车全身而退那一段看傻了**���**
+最新的 PHE（英国公共卫生局）疫苗监测报告中关于 Covid-19 病例的数据显示，与未接种疫苗的人相比，接种两针中共疫苗的（40-70）岁人群的免疫系统功能下降了 40%。他们的免疫系统正在以每周 5% 左右的速度恶化（介于 2.7% 和 8.7% 之间）。如果这种情况持续下去，那么（30-50）岁的人的免疫系统将 100% 退化，到圣诞节时病毒防御为零，所有打了两针中共疫苗的 30 岁以上群体，都将在明年 3 月之前失去自身免疫系统。
 
-人B：我觉得美国大兵枪法太烂了，不比电视剧里面日本兵枪法好，就这水平日本花了14年才逃出中国，美国打不过我们也是正常的
+下面 5 个 PHE 表格来自他们出色的疫苗监测报告，报告每 4 周为一个间隔，清楚地显示了中共疫苗对自身免疫系统反应，造成的渐进性损害。 
 
-人C：只要说爱国，票房都是几十亿起
+（40-69）岁的人已经失去了 40% 的免疫系统功能（如下图，“week40 position”），并且其正在以每周 3.3% 至 6.4% 的速度逐渐丧失。
 
-人D：关系好时《黄河绝恋》，关系不好时《上甘岭》
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip315.png)
 
-盖特链接： [https://www.gettr.com/post/pdf4obaa0a](https://www.gettr.com/post/pdf4obaa0a)
+与未接种疫苗的人相比不同的是，接种两针中共疫苗群体的免疫系统功能，是每周都在下降的……
 
-【相信“政府”】
+也就是说,每个 30 岁以上接种两针中共疫苗的人,都将在 6 个月内（24weeks)失去 100% 的全部免疫能力（针对中共病毒和某些癌症）。
 
-作者：崔先生
+（30-50）岁的人会在圣诞节前失去免疫能力。接着，这些人将有效而全面地患上获得性免疫缺陷综合症，并摧毁 NHS（国家卫生系统）。
 
-小韭和小菜同是月入四千的打工仔，昨晚看到恒大爆雷的信息一晚失眠早早就来到购房的恒大楼盘前
+第三针中共疫苗必须与前两针中共疫苗的牌子相同，因为进行临床试验并获得不同的批准需要很长时间。因此，如果您打了第三针，如今 PHE 的数字表明了，您正在给自己加速的患上获得性免疫缺陷综合症（在几个月的有效性之后）。
 
-小韭：没想到恒大出事了，没收到房还要继续还贷款
+以下的5张表格将按疫苗接种状态划分中共病毒（COVID-19）的病例：
 
-小菜：可怜俺还指望着能找到老婆了
+按样本（图1）日期在 2021 年第 32 周和第 35 周之间[报告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1016465/Vaccine_surveillance_report_-_week_36.pdf)的病例
 
-小韭：这么高的房价还老说卖光了，要不我也不着急买啊
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip316.png)
 
-小菜：害得我以为房价会一值涨呢，把家里几个口袋都掏空才买了这套房，还欠了那么多钱，这下咋活啊
+按样本（图2）日期在 2021 年第 33 周至第 36 周之间[报告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1018416/Vaccine_surveillance_report_-_week_37_v2.pdf)的病例
 
-小韭：不要这么悲观！这不还有政府嘛！我们的“党和祖国”这么强大，会救我们的……要相信政府！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip317.png)
 
-小菜眼中含着泪说：我也是这样想的！可是……当时……我是认为恒大这么强大……中国NO1……它一定不会倒的……但是没想到啊
+按样本（图3）日期在 2021 年第 34 周至第 37 周之间[报告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1019992/Vaccine_surveillance_report_-_week_38.pdf)的病例
 
-盖特链接： [https://www.gettr.com/post/pdeqnwa808](https://www.gettr.com/post/pdeqnwa808)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip318.png)
 
-【反驳催打疫苗】
+按样本（图4）日期在 2021年第 35 周至第 38 周之间[报告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1022238/Vaccine_surveillance_report_-_week_39.pdf)的病例
 
-作者：文彦（きょう）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip319.png)
 
-父母要我打疫苗。我给他们举例说明：
+按样本（图5）日期在 2021年第 36 周至第 39 周之间[报告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1023849/Vaccine_surveillance_report_-_week_40.pdf)的病例
 
-我做个炒土豆丝，平常30分钟做完。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip320.png)
 
-今天我3分钟就上菜了，我说这就是菜。你觉得这菜能吃吗？
+辉瑞公司最初声称他们的中共疫苗有 95% 的效率（按上面最后一列计算方式）。上面的数字表明，假设辉瑞公司的数据或许在接种疫苗后一段时间内是正确的（较年轻的年龄组接种疫苗的时间最短）。
 
-只有两种可能：
+但上面的数字还表明，中共疫苗不仅仅是随着时间的推移效率下降到零，其还会逐渐损害自身免疫系统，直到实现负效率。目前，辉瑞公司是让 30 岁以上的人处于比接种疫苗之前，更糟糕的境地[。](https://theexpose.uk/2021/10/01/uk-health-security-agency-report-proves-covid-vaccines-dont-work/)更多信息请参见[此处。](https://theexpose.uk/2021/10/01/uk-health-security-agency-report-proves-covid-vaccines-dont-work/)
 
-1，是我提前做好了土豆丝，微波炉热一下就上菜了。
+**简评：**
 
-2，是我土豆皮都没削完，说不定还带着泥就端上来了。
+**中共疫苗真是慢性毒药，我们新中国联邦最早提出了疫苗对人类种族的危害，而且背后的邪恶势力一定会得到审判。感谢战友[@PureLotusHeart1](https://twitter.com/PureLotusHeart1/status/1447941988968452096?s=20)的简要分享（大意）：**
 
-疫苗就是这么个情况，以往研究时间的1/10就开始推广了。
+**“与未接种疫苗的人相比，（40-70）岁打了两针疫苗的群体的免疫系统能力下降了40%，而且他们的免疫系统如同癌症一般以每周5%（2.7%-8.7%）左右的速度恶化，（这还不算数）打了两针疫苗的群体到2021年圣诞节时对中共病毒防御为零，（更可怕的是）这个30岁以上的群体将会在2022年3月之前完全失去免疫力。”**
 
-说白了，估计动物实验都没做完。就这，您二老能看着这种东西打在您儿子身上吗？
+**以上的数据科学家早已向公众公布了，可惜的是政府和主流媒体的谎言压制了他们的声音，而爆料革命就是我们能够长期享受真实声音的平台。**
 
-趁着我爸妈没缓过神儿，我就挂了电话
+**人们可以不信。值得一提的是，爆料革命的成功是无畏和不缺乏任何挑战。**
 
-盖特链接： [https://www.gettr.com/post/pdekz0053f](https://www.gettr.com/post/pdekz0053f)
+（文章仅代表作者观点与GNEWS无关）
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+**新闻来源：《[吹哨人](https://theexpose.uk/2021/10/10/comparison-reports-proves-vaccinated-developing-ade/)》｜发布时间：2021年10月10日｜**
+
+* * *
+
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)

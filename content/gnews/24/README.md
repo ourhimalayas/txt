@@ -2,48 +2,29 @@
 ---
 
 
-## 喜币在虚拟币世界里能存在，发展，壮大的三个主要原因
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1590736/)
+## 多家SPAC投资基金为规避风险与中企脱钩
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1590774/)
 
-作者：香草山金融部 – 闲聊钱币
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-42.png)
+图片来自网络
 
+据《希望之声》2021年10月13日报道，最近几个月以来，已有至少四家特殊目的收购公司（SPAC）修改了它们的上市申请，将中共国企业从其感兴趣的投资领域中剔除，以规避风险。
 
+此前，美国证券监管机构要求行业对与中企相关业务的投资风险进行大量披露；而与此同时，中共当局也正在加大对企业的全面监管，导致行业的压力成倍增加。
 
+正是由于上述两方面因素，许多SPAC公司借此机会宣布，他们将不再涉足与中企有关的业务，以规避风险。
 
+特殊目的收购公司是一种投资基金，允许公共股票市场投资者投资私募股权交易，以执行杠杆收购。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+在今年早些时候，许多该类公司在上市申请中，宣布自己专注于投资中共国的企业。其中的热门行业包括：新能源、生物技术和教育公司等。但在几个月之前，中共政府对科技行业与教育界发起了空前严格的监管，一度导致滴滴公司强制停止美股的IPO活动，引发行业恐慌。
 
+正因为如此，许多SPAC公司为了避险，不得不修改招标书，宣布他们将会到中共国以外的任何地方进行交易。这样做，不仅能降低投资者对其投资风险的担忧，同时也能规避美股对与中企业务相关的上市审查。
 
+行业知情者指出，有计划在纽约上市的 SPAC 团队，决定将投资重点从中共国转移到印度，以更快地获得美国证券交易委员会的批准。许多公司公开声明，他们选择与中企脱钩，今后将专注于北美和亚太地区，但不包括中共国市场。
 
+可以说，许多SPAC公司的这一最新决定虽是被迫做出的，但却是十分明智的。与中共和中企捆绑在一起，下场将极为惨淡。全球与中共的全方面脱钩都在进行中，这对于中共和中企来说，无疑是致命打击。
 
+注：本文仅代表作者观点
 
-网站Coinopsy 追踪并归纳了所有已经死掉的虚拟币及致死原因。在2,300个短命的虚拟币中，1542个是被遗弃的或是没有交易量的，占67%。位居第二的是欺诈，有482个，占21%。第三类就是初始发行不利，有239个。
-
-虚拟币从诞生到现在不过十几年的时间，参差不齐的开发者，投资者，赌徒等都想在这个新兴产业中分一杯羹。那么什么样的虚拟币能胜出呢？网站theconversation.com的一篇文章给出了很好的答案。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture7-2.jpg)
-首先是资金雄厚。资本的大小决定了开发团队的实力。新中国联邦的喜币在郭先生和大基金的运作下，在研发，推广，上市等各个方面都会是胜人一筹。
-
-其次是稳定性。文章说虚拟币要想成功的两个原因是人们相信它并且愿意用它。喜币固定的总发行量，与黄金挂钩的可靠性，以及G生态圈的实用性都标志着随着时间的推移，越来越多的人们会相信，接受并使用喜币。
-
-文章最后提到虚拟币也要“为真不破”。币虽然是虚的，但确真真正正是为了普通百姓的自由服务，对抗强权。喜币正是在爆料革命灭共的前提下应运而生。它是亿万普通草根的金融诺亚方舟。
-
-喜币，既不是第一个也不会是最后一个虚拟币，但它一定是最棒，最灿烂的那个。
-
-（本文仅代表作者观点）
-
-参考来源：
-1. [https://www.coinopsy.com/dead-coins/](https://www.coinopsy.com/dead-coins/)
-2. [https://theconversation.com/more-than-1-000-cryptocurrencies-have-already-failed-heres-what-will-affect-successes-in-future-127463](https://theconversation.com/more-than-1-000-cryptocurrencies-have-already-failed-heres-what-will-affect-successes-in-future-127463)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+**新闻链接：**[https://twitter.com/SoundofHopeSOH/status/1448096322272337929](https://twitter.com/SoundofHopeSOH/status/1448096322272337929)
