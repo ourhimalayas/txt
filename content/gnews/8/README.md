@@ -2,61 +2,128 @@
 ---
 
 
-## 默克研发中共病毒治疗药物待FDA批准
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1593540/)
+## 希望不同肤色的人收到正确的信息并得到拯救
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1593616/)
 
-- **编译：聖地香港**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2473.png)
+[https://gtv.org/video/id=61671480d2e2b8174874c4da](https://gtv.org/video/id=61671480d2e2b8174874c4da)
 
+今天我们再说回到疫苗的时候
+Hoy cuando tocamos de nuevo con el tema de las vacunas
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip329.png)
+你能想到
+Puedes pensar
 
-美国默克药厂表示已经开发出可以治疗轻度至中度中共病毒病例的药丸，正在向联邦监管机构申请使用许可。
+所有人都想着自己活下去
+Todas las personas piensan en seguir viviendo
 
-该公司网站上的一份声明表示，已于周一向FDA提交了一份紧急使用授权请求，该药名为莫努匹拉韦(Molnupiravir)，是一种“口服抗病毒药物，可在确诊为中共病毒后在家尽早服用”。
+自己得了病, 然后没事
+No pasa nada a pesar que estoy enfermo
 
-声明称，该药物与 Ridgeback Biotherapeutics 合作开发，旨在治疗“有重症风险和/或住院的中共病毒成年患者”
+有多少人真心想过
+Cuántas personas han pensado de corazón
 
-未经独立研究机构证实，该公司表示，“Molnupiravir 将住院或死亡的风险降低了约 50%.”
+让中国人甚至全世界人
+Que los chinos, incluso todas las personas del mundo
 
-即使尚未获 FDA 批准，该药已经炙手可热。据《纽约时报》报道，联邦政府以每人约 700 美元的价格订购了170 万人份的药剂。
+不要让疫苗给害死
+No sean asesinados por la vacuna
 
-该药预计将在FDA审查公司提交的数据后数周内获得批准。
+多少人醒来丈夫死在床上
+Cuántas personas han despertado con su esposo muerto en la cama
 
-据《泰晤士报》报道，高级政府官员表示，分配药丸的过程可能会类似中共病毒疫苗的分配过程，各州可以酌情自行分配。
+多少人醒来孩子死在床上
+Cuántas personas han despertado con su hijo muerto en la cama
 
-该药是第一个号称可以治疗中共病毒的药物（译者注：然而并不是，许多老药都可以治疗，例如土霉素、地塞米松、青蒿素等等，只是被主流媒体压制了声音）。默克公司预计今年销售的药丸足以治疗 1000 万人，并在明年继续拓展业务。澳大利亚、马来西亚、新加坡和韩国已经与默克公司就该药物达成了协议。
+多少人醒来老婆死在床上, 家人死在床上
+Cuántas personas han despertado con su esposa muerta en la cama
 
-其他药厂也在研发相应治疗药物。辉瑞和 Atea Pharmaceuticals-Roche （阿泰与罗氏合作）的药物目前正在试验阶段。
+多少人突然间倒地
+Cuántas personas se han desmayado de repente
 
-默克的药丸并非一剂，而是每天四粒为期五天的疗程。该药物在病毒的基因序列中插入错误信息，这意味着可能不建议任何怀孕或备孕的人服用。
+你看有多少人
+Mire cuántas personas
 
-默克公司目前正在为高危成年人寻求紧急使用授权，在其试验中，高危人群通常是 60 岁以上的人，或者年龄较小的肥胖、糖尿病或心脏病患者。
+有多少人内心为别人想的
+Cuántas personas piensan por los demás
+我可以毫不惭愧地说
+Puedo decirles sin vergüenza
 
-参与试验的人都未接种过疫苗，因此目前尚不清楚接种过疫苗是否可以服用。
+兄弟姊妹们
+Hermanos y hermanas
 
-一些人质疑药物的成本。罗伯特·肯尼迪(Robert F. Kennedy Jr)发推称， “药厂巨头默克可能面临价格欺骗指控，因其成本仅为17.74美元，却以700美元以上售出。” 罗伯特·莱克(Robert Reich)发推称，“默克用政府资金开发药物。药物成本不足18美元，却向政府收费712美元，溢价40倍。该公司今年年底将营收70亿美元。令人愤慨。”
+我真的希望没有种族没有肤色的
+Realmente espero que no importa la raza o el color de la piel
 
-该公司声称副作用最小，但没有详细数据。
+收到我们的信息, 正确地拯救
+Puedan recibir nuestros mensajes y que sean correctamente rescatados
 
-该公司声称，“任何不良反应的发生率在 Molnupiravir 和安慰剂组中相当（分别为 35% 和 40%）。与药物相关的不良反应的发生率也相当（分别为 12% 和 11%），与安慰剂组相比， Molnupiravir 组中因不良反应而停止治疗的受试者较少（分别为 1.3% 和 3.4%） ”。
+全世界少一点人被疫苗给弄死
+Menos personas de este mundo sean muertos por la vacuna
 
-**评论：**
+太惨了
+Esto es horrible
 
-**没有疫苗！ 有解药！——在文贵先生告诉世界：老药青蒿素、地塞米松、土霉素等等都可以治疗中共病毒之后，全世界善良清醒的人在行动，抗议强制打疫苗，抗议疫苗护照。**
+我可以告诉大家
+Les puedo decir a todos
 
-**而“以苗灭共”的成果也是显而易见的，之前拼命推疫苗的药厂也要纷纷放出治疗的药物，越来越感到脊背发凉。想到自己生活的世界竟然原本是这样的，左手造个病毒杀人控人，右手造个疫苗号称防毒，防毒的谎言被戳穿之后立马又造出解药，你们还真是无所不能的药厂。**
+我知道的多少信息
+Todas las informaciones que tengo
 
-**而这一切如果没有接触爆料革命和新中国联邦，我们这一辈子都不可能知道真相。借用老友记里的一句台词：欢迎来到现实世界，它烂透了，但是你会爱上它。（Welcome to the real world. It sucks. You’re gonna love it.）**
+很多人打成忧郁症
+A muchas personas les ha dado depresión después de vacunarse
 
-（文章仅代表作者观点，与GNEWS无关）
+说我这是等着死呢
+Lo que hacen es esperar la muerte
 
-**素材链接**：**[westernjournal.com](https://www.westernjournal.com/merck-submits-covid-treatment-pill-fda-approval-study-yields-promising-data/?utm_source=Email&amp;utm_medium=newsletter-CT&amp;utm_campaign=dailypm&amp;utm_content=conservative-tribune&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)**
+现在像国内的很多朋友, 原来对咱半信半疑的
+Muchos amigos de China sospechaban de nosotros
+
+现在说七哥
+Y ahora me dicen
+
+我们怎么能把这弄掉
+Cómo hacemos para desquitarnos de esto
+
+我都睡不好觉了
+Ya no puedo dormir bien
+
+啥时候死都不知道
+No sé en qué momento voy a morir
+
+他说我都准备好遗书了
+Él dice que ya tengo preparado la nota de suicidio
+
+我真的跟他们建议
+Y yo realmente les sugerí
+
+如果你真打了三针以上
+Si te vacunaste más de tres dosis
+
+你就准备好遗书
+Entonces prepare la nota de suicidio
+
+你最起码有50%的机率
+Al menos tienes el 50% de probabilidad
+
+未来三五年内会嗝屁
+De que te mueras en los próximos tres a cinco años
 
 * * *
 
-***审核：文乐***
-***素材提供：Jenny Ball
-校对：阿伯塔
-发布：信心满满***
+日期：10/13/2021
+原视频标题：希望不同肤色的人收到正确的信息并得到拯救
+Espero que las personas de diferentes colores de piel reciban la información correcta y sean rescatadas
+原视频日期：10/07/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1446018877662531588?s=24](https://twitter.com/se1y7cblljselva/status/1446018877662531588?s=24)
+任务编号：KC170（2473）
+视频时间段：0:00-1:14
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

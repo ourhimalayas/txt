@@ -2,53 +2,21 @@
 ---
 
 
-## 青蒿素是中共病毒“解药”的秘密
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593411/)
+## 秘翻在线：中共国比特币挖矿能力几乎降至为零
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1593470/)
 
-作者：晓仙女
+#### 撰稿：彩虹
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-34.jpg)图片来源：Crypto Chronicle
+10月14日，《悉尼先驱晨报》（The Sydney Morning Herald）发表文章，剑桥大学贾奇商学院的剑桥替代金融中心(Cambridge Centre for Alternative Finance)是一个专注于加密货币的研究机构，根据其周三发表的研究报告，截至8月底，美国占全球比特币挖矿能力哈希率（Hash Rate）的比率为35.4%，位居世界第一。
 
+作者分析认为，正是由于中共国打击虚拟货币的举动，推动了美国挖矿能力份额的激增。剑桥大学的研究人员发现，中共国在比特币的挖矿能力份额实际上已经达到零。根据剑桥大学的数据，2019年9月时，中共国的份额是75%，今年四月是46%。
 
+文章认为，这不代表中共国不存在比特币挖矿的行为，很有可能是通过虚拟专用网络（VPN）在另一个国家运作。根据剑桥大学的研究，比如最近爱尔兰和德国的哈希率上升，可能就是使用VPN或代理服务器的结果。
 
+根据报道，排在第二和第三位的是哈萨克斯坦和俄罗斯，哈希率份额分别是18.1%和11%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+**新闻来源**
 
-
-
-
-
-
-
-郭文贵先生不久前揭秘青蒿素是中共病毒的“解药”，有如黑暗中的一束亮光，照亮了全人类。
-
-文贵先生在10月10日的大直播中透露 ，透露青蒿素是中共病毒的“解药”这一秘密的，是一位多年被共产党控制自由的人，冒着生命危险告诉我们的。事实上，共产党高官及家人，现在都在吃青蒿系列保健药品，而几位老常委，早就常年吃了，所以朱镕基、江泽民都活一百岁了。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-41.jpg)
-文贵先生说：“青蒿素，保健、保命、消炎、通血，没有任何副作用，是拯救人类的新药，可以治疗癌症、美容、乳腺、妇科、男性的一些疾病；正确使用青蒿素系列保健药的人，是不可能有癌症的，它几乎把基因性的突变控制到零。”
-
-迄今，已有众多中共病毒患者，通过爆料革命得到青蒿素、伊维菌素、地塞米松等治疗方案，许多珍贵的生命得到了挽救。 在人类面临生死存亡的关键时刻，爆料革命践行正道主义，传递真相，正引导人类社会进入新的文明时代。
-
-参考链接：
-[#1010文贵大直播 文贵先生：有一天要跟你说谁告诉你 #青蒿素 的秘密，你一定会跌破眼镜的。他多年不自由，冒着生命危险告诉我们这个事。共产党官员的家人，现在都吃青蒿系列保健。](https://gettr.com/post/pdrv3h6415)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：鬼五
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+[China’s Bitcoin mining hits zero as crypto ban pays off](https://www.smh.com.au/business/markets/china-s-bitcoin-mining-hits-zero-as-crypto-ban-pays-off-20211013-p58zsu.html)

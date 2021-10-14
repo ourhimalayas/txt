@@ -2,9 +2,16 @@
 ---
 
 
-## 澳洲当局强制医护接种疫苗并隐瞒真实的疫苗伤亡数据
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1593430/)
+## 西媒头条 — 第87期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1593516/)
 
-10/12/2021 澳洲护士揭露当局强制医护人员接种疫苗并隐瞒疫苗造成的真实伤害及死亡数据。
+- **制作：蚂蚁兄弟**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1014.001.jpeg)
+
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)

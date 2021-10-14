@@ -2,24 +2,52 @@
 ---
 
 
-## 涨价就算了？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1593341/)
+## 英国数据显示，完全接种疫苗者比未接种者感染中共病毒的比例更高
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593390/)
 
-撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-246.png)[图片来源](https://www.goodchos.com.tw/article/49)
-一段时间以来，我们被涨价冲昏了头，无论是欢喜也好，忧愁也罢，涨价已成为生活的必需品。近日，海天味业宣布主要产品涨价3%～7%；龙佰集团宣布年内的第10次提价；东鹏集团所有产品和服务普涨5%。大宗商品更是热闹，反映国际市场大宗商品价格的路透CRB指数相比去年的最低点暴涨超过130%，动力煤、天然气翻了一倍多，铜、钢、铝、银涨幅均在50—100%。更为令人沮丧的是，看不到任何消退的迹象。
+作者：AsG諾雅
 
-通常，我们对涨很有感情，涨就是变多，只要多就是向好。对猪更是印象深刻，好像所有的通胀都是被猪拱起来的。过多的钱追逐过少的猪，就会产生通胀。难道仅仅只是通胀？通胀的尽头是什么？猪能永远坚强？
 
-通货膨胀永远而且无处不在是一种货币现象。目前为止，涨价主要还是由各大经济体无节操地发行货币造成的，即便疫情带来的供应不足为通胀添了一把火。中共国货币供应量已达800万亿人民币，是GDP的8倍；美国更是印钞抗疫，尚有3.6万亿美元美国国债等待发行；日本货币发行量也是GDP的两倍。这简直就是一场流动性盛宴，“有史以来最大的投机泡沫”，只是绝大多数人都收获了满满的账单和债务。持续下去，将会逐步出现一种政治现象——恶性通胀，它永远而且无处不在是一种政治现象。据说，这就是全球八大投资专家近期集体呼唤的“史诗级大崩盘”，他们总是认为多喊喊就崩盘了，做空总是那么激动人心。
 
-不过这次好像出了点纰漏，这次是真空，一切皆因疫苗灾难。文贵先生在数次直播中强调，随着疫苗灾难的显现，失业大潮会席卷全球，全球供应链某些领域会高到吓死人，依靠外运、海运的领域会彻底断掉。而人们的这梗那梗，门不敢出，那工业化生产力会崩溃，供应链断裂，产品极度短缺。人类社会回到吃饭值钱、水值钱、劳动力值钱的时代，直接坠回农耕、游牧文明，或许还是物物交易比较实在。
 
-按照佛家的说，当万物皆悲的时候，就是世界秩序重建的时候 ——文贵先生
 
-消息来源：[A股涨价潮来了？5000亿”酱油茅”宣布涨价 还有这些公司…](https://finance.sina.com.cn/stock/zqgd/2021-10-13/doc-iktzqtyu1117782.shtml)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+
+
+
+
+
+
+信息战网10月13日报道，根据英国卫生安全局第40周的新冠疫苗监测报告数据，可以发现一个清晰的病例数分界线：从30岁以上年龄组开始，完全接种疫苗者感染中共病毒的人数多于未接种疫苗者。其中40-49岁年龄组的每10万人口中，已完全接种疫苗者的感染病例为1281.8例，是未接种疫苗者690例的1.85倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-7.jpg)
+前《纽约时报》科学记者历克斯-贝伦森在其节目中，展示了以上数据，并指出英国9月份死于中共病毒的1500人中，有70%即1270人是完全接种过疫苗的。贝伦森因为发推指出，以色列的研究表明自然免疫力比新冠疫苗要有效13倍，而遭到推特永久停止其账号。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-2.jpg)
+官方数据已经一再验证疫苗有害，随着时间推移，疫苗灾难会愈加严重，爆料革命将继续宣传解药和真相，尽最大努力挽救人类。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-4.jpg)
+参考链接：
+1. [Alarming: Double-Vaxxed Contracted Covid at Higher Rates than Unvaccinated, UK Data Shows](https://www.infowars.com/posts/alarming-double-vaxxed-contracted-covid-at-higher-rates-than-unvaccinated-uk-data-shows/)
+2. [Twitter Permanently Bans Alex Berenson After Viral COVID Tweets](https://www.zerohedge.com/covid-19/twitter-permanently-bans-alex-berenson-after-viral-tweets)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Ryan
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
