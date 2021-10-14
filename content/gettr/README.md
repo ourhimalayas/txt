@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@zemmoureric 10/11/2021 9:31 PM (UTC)`
+
+Économie, écologie, instruction, merci au @CercleHebe pour ces échanges !  
+![img](https://media.gettr.com/group31/tw/2021/10/12/00/a5abd86b-8366-5804-7c44-d203d57e41f3/d28ba18d93253219c3a340080b79d7fb.jpg)
+
+---
+
 `@miles 10/14/2021 11:05 PM (UTC)`
 
 10/14/2021 Miles Guo’s GETTR: The Whistleblowers’ Movement and the New Federal State of China have saved numerous people and let the world distinguish between the Chinese people and the CCP via our efforts to take down the CCP with the truth about the COVID vaccines and the antidote to the coronavirus. Behind our powerful force are countless fellow fighters who have been spreading the truth!<br/><br/>10/14/2021 文贵盖特：新中国联邦、爆料革命通过以(疫)苗灭共和解药灭共，拯救了无数人，使全世界把中国人和中共分开，我们强大的力量背后是无数战友们在传播真相！<br/>
@@ -291,13 +300,6 @@ MILES GUO Live Stream 2021/10/11
 
 变成共产主义的8个步骤！<br/><br/>【这么漂亮，还不打喵喵的，以后前途无量啊！】
 ![img](https://media.gettr.com/group40/getter/2021/10/11/14/50/0d244bf4-be17-dec4-4765-d9b6a8251eb4/out.jpg)
-
----
-
-`@miles 10/11/2021 5:15 AM (UTC)`
-
-10/10/2021 Miles Guo: 90% of the audience at Xi Jinping’s speech marking the 1911 Revolution was fake; Xi declined to meet Biden and hasn’t met anyone for over a year due to his worsening health conditions. Whereas the worse his health conditions get, the more he wants to invade Taiwan!<br/><br/>10/10/2021 文贵直播: 习近平辛亥革命演讲的九成观众是假的；习拒绝见拜登和他一年多不见人是因为他身体不行了，而他身体越不行，越要打台湾！<br/>
-![img](https://media.gettr.com/group16/getter/2021/10/11/05/15/d84081e1-2ac1-e2c3-fec3-9a5739fe53a4/out.jpg)
 
 ---
 
