@@ -2,40 +2,31 @@
 ---
 
 
-## 中美必有一战、房地产倒塌使中共更快打台湾
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1593634/)
+## 澳洲女博士签发600份“医疗豁免”证书
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1593682/)
 
-**By:秘翻新闻**
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/09View-illo-superJumbo.jpg)图片来源：NY Times
+**整理报道：**翼族
 
-***2021-10-14***
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/1014-2.jpg)](https://gtv.org/broadcast/watch/6167f0bc304e992109b504f7)点击图片观看视频
-**新闻摘要:**
+澳大利亚昆士兰警方称，一名假扮医生的妇女签发了600份中共病毒（COVID-19）“医疗豁免”的证书。
 
-1.中美必有一战、房地产倒塌使中共更快打台湾
+周三，这名来自图文巴地区达令高地的45岁女子在她黄金海岸的一处住宅被捕，警方根据《国家保健从业者法》指控其五项罪名。
 
-2.惊悚！中国湖北报复上访纵火案逾20人死伤 消息遭封锁
+代理督察达米安·鲍威尔（Damien Powell）称，该名女子没有医学博士学位，也没有在澳大利亚注册为健康从业者。但警方表示，该女子拥有“研究博士学位”。
 
-3.中共警察维权 爆中共司法黑暗
+代理督察鲍威尔说，警方正在努力追查购买证书的人，“到目前为止，我们能够确定的是，购买者来自澳大利亚各地。”
 
-4.台风“圆规”登陆海南 海水倒灌
+警方表示，该女子“不相信自己做错了什么”，并“有权”签发这些证书。
 
-5.中国大陆动力煤价格涨至新高 煤炭电力大跌
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-6.普京：中共国统一台湾不需靠武力
+*编辑/发布：翼族*
 
-7.中共国及俄罗斯无缘全球反勒索软件峰会
+**参考链接：**[Woman who allegedly pretended to be a doctor and issued fake COVID exemptions ‘doesn’t believe she’s done anything wrong’](https://www.abc.net.au/news/2021-10-14/fake-doctor-alleged-false-covid-exemptions/100539676)
 
-8.加拿大安省多家医院 对访客要求疫苗接种证明
-
-9.Facebook更改平台规则加强言论审查
-
-10.脸书因个人数据处理面临3600万欧元罚款
-
-**GTV链接：**[https://gtv.org/broadcast/watch/6167f0bc304e992109b504f7](https://gtv.org/broadcast/watch/6167f0bc304e992109b504f7)
-
-发布: 文橙
-
-* * *
-
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,35 +2,41 @@
 ---
 
 
-## 台湾高雄发生大型火灾46死41伤 不排除人为因素
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1593715/)
+## 美国陆军部长称中共威胁全球第一
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593759/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片3-8.png)
-图片来自网络
+作者：在远方
 
-台湾高雄盐埕区“城中城”大楼10月14日凌晨近3时发生大型火灾。根据消防局下午4时公布的最新死伤数据，火灾目前已造成46人死亡、41人受伤。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-据《大纪元》2021年10月14日报道，高雄市盐埕区府北路“城中城”大楼深夜发生大火，上百住户受困。高雄市消防局经过一夜的扑救，于上午7时17分将大火扑灭。
 
-消防局表示，消防人员赶至现场时发现，一楼骑楼杂物堆放处火势猛烈，于是立刻布下水线由火场正面射水；云梯车也同时升梯射水；消防人员进入大楼抢救受困民众。但由于现场火势极为猛烈，多楼层严重烧毁。同时因建筑物老旧，室内杂物堆放众多，令救援行动困难。
 
-消防局于下午4时宣布，搜救工作已暂时告一段落。总共送医55人，其中有14人因伤势严重，随后被医院宣布死亡；另外32人救出时已明显死亡，直接送往市立殡仪馆。最终的统计是：这次火灾共造成46人死亡、41人受伤。
+在美国陆军协会11日年会上，陆军部长克里斯汀·沃穆思表示，当前美国面临一系列来自独裁国家和恐怖组织的挑战，例如俄罗斯、朝鲜、伊朗和伊斯兰国，但最为突出的第一威胁是中共。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1014-AM-（3-5）.003.jpeg)
+随着美国中东反恐战告一段落，和在阿富汗的全面撤军，面对中共亚太地区军事扩张，及国内疫情真相追责和大选干涉调查，美军已经把全球防务战略重点转向遏制和威慑中共。
 
-内政部长徐国勇赶赴高雄现场，与高雄市长陈其迈等人一同视察灾情。陈其迈表示，事故不排除有人为因素，详细情况还有待深入调查。
+沃穆思称中共一直在学习过去美国的战斗经验，同时具备了先进的太空、网络和信息战能力。在这些高端战场上，美军尚未充分考虑到所有的挑战，守旧的想法已成为阻碍进展的强大障碍。
 
-高雄市警察局长黄明昭表示，警方正在厘清及调查事故原因。至于是否人为纵火，还要经过调查。目前警察局、盐埕分局正在调阅监控画面及寻找目击证人，结合消防局火灾调查及相关证据，已有请包含报案者、目击者等在内的4人到分局说明情况。
+全球安全格局挑战着现代美国和西方国家，这些威胁包括网络、极端暴力主义和共产主义数十年的渗透。俄罗斯和中共的联合，增加了邪恶势力对民主的破坏性，中共已上升为世界头号威胁。沃穆思警告说，美国需要准备应对中共与俄罗斯对美国本土的直接攻击。
+(本文仅代表作者观点)
 
-对于传闻事发前有情侣吵架，黄明昭表示，目前还正在地毯式查访中，不排除任何可能，但也还不能说已有嫌犯，还需要继续搜查证据。
+参考链接：
 
-对于高雄大火造成严重伤亡事件，高雄市议会议长曾丽燕表示十分震惊。她要求市府除了做好灾害抢救和伤患照料工作外，更应针对危老建筑安全展开全面检测，确保市民生命财产安全。
+1. [美陆军部长：中国是美国第一威胁 陆军年会展示最新武器装备](https://www.voachinese.com/a/us-army-weapons-show-20211013/6270103.html)
+2. [Christine Wormuth](https://chinaus-icas.org/biden-administration-international-affairs-personnel-tracker/biden-personnel-tracker-defense-and-security/christine-wormuth-secretary-of-the-army/)
+3. [AUSA NEWS: Wormuth Insists Army Has Role to Play in Indo-Pacific](https://www.nationaldefensemagazine.org/articles/2021/10/11/wormuth-defends-army-modernization-costs)
 
-台湾总统蔡英文当日一早便跟高雄市长陈其迈通了电话，了解救灾及伤亡状况。蔡英文表示，除了关心高雄市府的抢救情况之外，她也请行政院相关部会给予高雄市政府最大支援。
 
-蔡英文还表示，不论是对受困民众的抢救、居民的安置工作，还是对于伤者和罹难者家属所需要的协助，中央和地方都会全力以赴。她同时就这起严重事故向罹难者致上最深的哀悼，并希望伤者早日康复。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-台湾行政院院长苏贞昌下午也临时更改行程，南下高雄探视伤患。他要求相关单位尽快让伤害减到最低，抚慰伤患，并向救灾人员致敬。他同时还请相关部会协助高雄市政府善后。
+新闻访谈终审：暗黑
+编辑/校正/发稿：我不在这里
 
-注：本文仅代表作者观点
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**新闻链接：**[https://twitter.com/dajiyuan/status/1448596983393005571](https://twitter.com/dajiyuan/status/1448596983393005571)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,31 +2,36 @@
 ---
 
 
-## 世界聚焦台海的同时中共国另一边界会否先失控
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1593668/)
+## 中共干预神户日台交流峰会，议员表示：绝不屈服
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593745/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片2-18.png)
-（图片来自网络）
+作者：云豹
 
-《希望之声》2021年10月13日引述美国媒体CNN的报道称，尽管全世界各界目前关注的重点在台海，但中印边界领土争端升温，看起来更有可能率先失控。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-在日前传出中共士兵被印度方面短暂拘留的消息后，中共与印度的第13次军事会谈也宣告破裂。
 
-印度国防部10月11日发表声明，指控中共不愿合作。声明称：“实际控制线局势是因中方单方面企图改变现状，违反双边协议造成的。印方因此就解决剩余地区问题给出建设性建议，但中方不同意，也无法提供任何前瞻性提议。”
 
-中共军方则反控印度坚持不合理、不切实际的要求。中共官媒《环球时报》更宣称，中方专家做出警告称，中共不仅要在谈判桌上拒绝让步，也要准备好抵御印度新的军事侵略。
+神户市议员 上畠(tián)宽弘 13日在推特中发文表示，在神户市议会69位议员，无异议通过“支持台湾以观察员身分参与10月下旬在神户举行的「WHO西太平洋地区委员会」”后，神户市接到中共总领事馆政治部主任的电话抗议，甚至要求停办预定11月12日在神户市举办的第7届日台交流高峰会。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1014-AM-（3-5）.001.jpeg)
+身为提案人和本届日台交流高峰会执行委员会秘书长的神户市议员上畠愤慨表示：「日台情谊不灭，绝不向中共屈服！」
 
-CNN的报道还提到，中方还将谈判破裂归咎于美国，指责拜登上任以来频繁与印方互动，给了印度应对中共的底气。
+神户市议会在10月7日通过意见书，建议日本政府采取措施让台湾以观察员身分参与「WHO西太平洋地区委员会」。 主要理由是台湾是航路、金融、观光枢纽，从台湾入出境或过境的旅客高达6900万人，若台湾无法参与WHO等国际组织，势必会产生地理上的空白，对日本、台湾，甚至全世界民众的健康恐构成威胁。
 
-此次谈判破裂意味着中印双方的10万大军将持续对峙。
+本月25日至29日，WHO预计在日本兵库县姬路市举行其第72届西太平洋地区委员会，共有37个西太平洋国家和地区参加，日本为本次大会主办国。
+(本文仅代表作者观点)
 
-据《今日印度》报道，在一场秘密会议上，印度陆军将领纳拉万将军对中共军队在实际控制线建设基础设施感到担忧。他说：”如果中国人留下来，我们也留下来。”
+参考链接：[中國干預神戶市辦日台交流峰會 日議員：絕不屈服](https://www.cna.com.tw/news/firstnews/202110140003.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-该报的报道指出，中共沿拉达克（Ladakh）东部的实际控制线，建造了几十栋防风雨建筑，还设置新的直升机停机坪；拓宽跑道；建立新的地对空导弹与雷达阵地等。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-如果用一句话来形容中共目前的各种挑衅行为，那就是“拿着打火机满世界找汽油”，而最终将被炸得粉身碎骨的就是中共自己。
+新闻访谈终审：FoxRina
+编辑/校正/发稿：我不在这里
 
-注：本文仅代表作者观点
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**新闻链接**：[https://twitter.com/SoundofHopeSOH/status/1448539556274442241](https://twitter.com/SoundofHopeSOH/status/1448539556274442241)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

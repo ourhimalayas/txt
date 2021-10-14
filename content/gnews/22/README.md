@@ -2,30 +2,25 @@
 ---
 
 
-## 拒做政治花瓶，民主党不参选香港立法会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593717/)
+## 中国移动SIM卡“硬钱包”推出！中共力推数字人民币全面应用
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1593767/)
 
-作者：七哩香
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/12-6.jpg)[图片来源](https://www.sohu.com/a/494896918_100302690)
+10月13日，中国移动联手工商银行在苏州发布“基于超级SIM卡的数字人民币支付产品SIM PAY”，手机SIM卡可以成为用户高频小额移动支付场景里的硬钱包。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中国移动金融科技有限公司副总经理孙健介绍，SIM PAY具有四大特性，一是支持双离线支付，交易双方在没有网络覆盖的情况下亦可完成支付；二是使用便捷，不需要打开手机APP，“碰一碰”即可完成支付；三是号码即账号，通过手机号码可快速开通SIM PAY钱包，实现移动用户无门槛开立钱包；四是支付即结算，资金实时到账。
 
-10月12日，作为香港民主派最大政党的民主党公布，立法会选举的党内甄选提名期截止，没有党员报名参选。此举意味着民主党不会参加12月19日举行的香港立法会选举，这是民主党首次不参选立法会。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1014AM（1、2、6、7）視頻備用.001.jpeg)
-继2020年实施港区国安法后，中共大幅修改选举制度，取消民主派议员资格，解散公民组织，逮捕民主派人士，已完全操控了香港的政治。民主派和香港民众已看清中共的邪恶意图，不惧中共以“触犯国安法”威胁、不配合中共搞选秀、不当中共的政治花瓶。
-(本文仅代表作者观点)
+孙健表示，未来中国[工商银行](http://quote.eastmoney.com/unify/r/1.601398)500余万线下商户、中国移动数十万移动营业厅的受理终端，均将支持数字人民币SIM PAY，促进数字人民币规模发展。
 
-参考链接：[香港民主党新选制下不参选立法会 民调指53%民主派支持者反对参选](https://www.voachinese.com/a/hk-reactions-to-democratic-party-won-t-contest-upcoming-legco-elections-20211013/6269251.html)
+中共三大运营商均积极参与数字人民币研发和试点，以SIM卡为载体的硬钱包是三大运营商普遍采用的方式。据中国电信官微披露，[中国电信](http://quote.eastmoney.com/unify/r/1.601728)与[中国银行](http://quote.eastmoney.com/unify/r/1.601988)联合研发的“数字人民币”钱包近日正式上线，10月底后还将试点推出电信SIM卡硬钱包功能，支持“离线”收付款；中国联通与[中国银行](http://quote.eastmoney.com/unify/r/1.601988)合作推出了中国联通沃钱包APP数字人民币钱包，用户可在APP内开立数字人民币钱包，双方还共同研发了物联网数字人民币模组，通过加载联通物联网SIM卡，实现在线、离线多种支付模式，并采用标准化接口，方便嵌入各类物联网设备，目前已在美团共享单车、友宝自助售货机、冬奥特许商品售卖机、智能充电桩、自助咖啡机、滑雪机等场景落地。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+当前，中共房地产和金融核弹随时将爆，中共加速推进数字人民币的全面落地应用，目的是对内重洗财富抑制危机，对外阻击美元称霸世界。
 
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
+[信息来源](https://finance.sina.com.cn/blockchain/roll/2021-10-14/doc-iktzscyx9473489.shtml)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+(文章仅代表作者本人观点，与GNEWS无关)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

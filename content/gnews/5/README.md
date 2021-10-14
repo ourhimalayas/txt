@@ -2,39 +2,27 @@
 ---
 
 
-## [ 聚焦港澳 ] 澳洲龙虾经香港走私中共国
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1593926/)
+## 没有新中国联邦，哪里都没有真正的安全
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1594014/)
 
-撰稿：云彩
-视频来自网络
-自2020年11月澳洲龙虾至今仍禁止进口中国。但其在中国市场仍受欢迎。民间通过走私或由香港进口澳洲龙虾，再转运中国。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-过去半年，香港西部水域，经常出现一群群的高速走私快艇，香港水警的快艇速度较慢，很多时只能目送走私船到大陆。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-13.png)
+文章仅代表作者本人观点，与Gnews无关
 
-根据香港水警截获走私货物的记录，5月22日走私龙虾；6月29日牛肉及龙虾；7月29日龙虾和香烟；9月3日高级手机ˎ名牌手袋ˎ化妆品；9月18日龙虾；9月25日急冻鲍鱼ˎ干鱼翅和龙虾
+视频参看：2021.10.14早GTV新闻访谈
 
-与此同时，香港政府统计处数据显示自去年11月起，进口香港的澳洲龙虾数字大幅上升。对比同月份，去年8月，进口香港的澳洲龙虾有1,316公斤，今年8月为121,690公斤，相差近92倍。
+[https://gtv.org/broadcast/watch/61682233304e992109b512cc](https://gtv.org/broadcast/watch/61682233304e992109b512cc)
 
-点评：
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-1. 澳洲龙虾走私如此猖狂，可以看出香港水警ˎ地头蛇和大陆边防串通一气，联合作案，彼此之间睁一只眼和闭一只眼。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
 
-2. 今年8月的澳洲龙虾进口竟然比去年增加92倍。是香港人吃的龙虾增加92倍吗？错，经香港进口的龙虾大部分都转运到大陆了。
-
-3. 走私的都是高价货物如澳洲龙虾，这些都与我们普通老百姓无关。这些走私货物的买家都是大陆有权有势的人。
-
-4.习一神一方面要教训澳洲，但是底下的人大肆走私澳洲货物，对关税贸易战，打了习一大巴掌。
-
-（本文中观点只代表个人观点，与GNEWS 无关）
-
-参考资料：
-
-香港入口澳洲龙虾急增92倍，大部分走私到中国去？
-
-[https://www.huaglad.com/aunews/20210930/447860.html](https://www.huaglad.com/aunews/20210930/447860.html)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

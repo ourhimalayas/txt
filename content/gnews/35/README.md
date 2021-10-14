@@ -2,128 +2,64 @@
 ---
 
 
-## 希望不同肤色的人收到正确的信息并得到拯救
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1593616/)
+## 世卫重启中共病毒溯源调查 新专家团队能让人信服吗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1593648/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2473.png)
-[https://gtv.org/video/id=61671480d2e2b8174874c4da](https://gtv.org/video/id=61671480d2e2b8174874c4da)
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-46.png)
+图片来自网络
 
-今天我们再说回到疫苗的时候
-Hoy cuando tocamos de nuevo con el tema de las vacunas
+世界卫生组织（WHO）10月13日公布了之前提议成立的新专家小组名单，重启陷入停滞的中共病毒疫情溯源调查。世卫表示，这可能是确定病毒起源的最后机会，敦促中共国合作。
 
-你能想到
-Puedes pensar
+《法国国际广播电台》10月13日援引《法新社》的报道称，这个专家团队由26名专家组成，将负责制定一个新全球框架，用以研究新地方流行病和全球大流行病病原体起源的可能性，包括导致新冠（中共病毒）的SARS-CoV-2病毒。
 
-所有人都想着自己活下去
-Todas las personas piensan en seguir viviendo
+该团队名为“新病原起源科学咨询小组”（Scientific Advisory Group for Origins of Novel Pathogens，SAGO），小组成员中包括荷兰鹿特丹伊拉斯姆斯医学中心病毒学主任库普曼斯 （Marion Koopmans）、丹麦北西兰医院临床研究中心主任费舍尔（Thea Fisher）以及越南生物学家洪阮 （Hung Nguyen）等人。
 
-自己得了病, 然后没事
-No pasa nada a pesar que estoy enfermo
+值得注意的是，上述几人曾在今年初前往中共国武汉市针对疫情起源进行过调查，最终那次的专家小组给出了一份饱受诟病的结论报告。更加令人质疑的是，本次调查团队成员还包括中国科学院北京基因组研究所的杨运桂。
 
-有多少人真心想过
-Cuántas personas han pensado de corazón
+世卫新冠（中共病毒）项目技术负责人范克霍夫（Maria van Kerkhove）表示，希望有更多由世卫牵头的国际考察团前往中（共）国与北京合作。她说，溯源工作仍必须经过“30多项建议的研究”，以确定该病毒如何从动物传给人类。她还提到，中（共）国2019年对武汉居民进行的抗体测试对了解病毒起源 “至关重要”。
 
-让中国人甚至全世界人
-Que los chinos, incluso todas las personas del mundo
+新专家小组此次能否顺利参与范克霍夫所说的“至关重要”的研究令人生疑，因为无法幻想能让释放中共病毒的幕后黑手真正配合调查。而范克霍夫提到的“与北京合作”。以及“以确定该病毒如何从动物传给人类”这句话，似乎已“未审先判”地将病毒定性为自然来源说。这更让人无法对此次溯源调查抱有希望。
 
-不要让疫苗给害死
-No sean asesinados por la vacuna
+世卫在《科学》杂志的一篇社论中称，科学家仍然需要对2019年12月之前中共国最早的已知和疑似病例进行详细调查，包括分析2019年武汉的储存血样，以及对早期病例的医院和死亡数据进行回顾性搜索。
 
-多少人醒来丈夫死在床上
-Cuántas personas han despertado con su esposo muerto en la cama
+该文章还提到，武汉出现首批人类感染报告的病毒实验室必须是调查的一个重点，因为排除事故泄漏可能需要足够的证据。
 
-多少人醒来孩子死在床上
-Cuántas personas han despertado con su hijo muerto en la cama
+然而，根据《路透社》的报道，中共国驻联合国日内瓦办事处大使陈旭在另一个记者会上表示，联合研究的结论“相当明确”，国际团队已经两次被派往中国，“现在是时候向其他地方派团队了”。显然，中共国不仅不会全力配合调查，而且还会转移调查视线。
 
-多少人醒来老婆死在床上, 家人死在床上
-Cuántas personas han despertado con su esposa muerta en la cama
+美国有线电视新闻网（CNN）近日报道称，中共国国家卫健委的一名官员透露，中共国准备对武汉市血液中心储放的20万个血液样本进行测试，看是否能够从中发现对病毒溯源有益的证据。
 
-多少人突然间倒地
-Cuántas personas se han desmayado de repente
+专家表示，这些血液样本中有些是在2019年最后几个月收集到的，可以帮助确定病毒首次传染给人类的时间和地点。世卫专家组在上次的调查中曾经向中共当局申请对这些样本进行分析，但遭到了拒绝。
 
-你看有多少人
-Mire cuántas personas
+CNN的报道指出，专家们要求中共国允许外界专家参加或观察有关检测工作，因为如果没有外界参与，中共国方面单独的研究成果将会缺少必要的公信力。但该报道并未提及中共国是否答应了专家们的要求。
 
-有多少人内心为别人想的
-Cuántas personas piensan por los demás
-我可以毫不惭愧地说
-Puedo decirles sin vergüenza
+美国前副国家安全顾问博明（Matthew Pottinger）近日在2021年全球安全论坛的座谈会上，发表讲话指出，COVID-19（中共病毒）从武汉实验室泄漏的证据越来越多，但关键线索多是由普通公民和互联网侦探发现的，而非情报界。他还表示，目前虽无法排除自然起源论，但从证据上看，实验室泄漏变得更有可能。
 
-兄弟姊妹们
-Hermanos y hermanas
+对于世卫重启病毒溯源调查，博明并不看好，他认为联合国机构可能无法胜任这项任务，因为它们不是主权政府，而是与世界上每个国家——包括中共国，都有利益关系的机构。
 
-我真的希望没有种族没有肤色的
-Realmente espero que no importa la raza o el color de la piel
+综上所述，无论是新专家团队的成员组成，还是世卫中共病毒项目技术负责人的态度和言论，抑或是新一轮调查可能将面临的受到中共阻挠的困境，都无法让人对这次重启中共病毒溯源调查抱有太大希望。
 
-收到我们的信息, 正确地拯救
-Puedan recibir nuestros mensajes y que sean correctamente rescatados
+注：本文仅代表作者观点
 
-全世界少一点人被疫苗给弄死
-Menos personas de este mundo sean muertos por la vacuna
+**新闻链接：**
 
-太惨了
-Esto es horrible
 
-我可以告诉大家
-Les puedo decir a todos
 
-我知道的多少信息
-Todas las informaciones que tengo
+> 世卫公布新26名专家小组人选 任务重启疫情溯源调查 [https://t.co/mPY2HF71SH](https://t.co/mPY2HF71SH) [pic.twitter.com/44wc7poBFq](https://t.co/44wc7poBFq)
+> — RFI 华语 – 法国国际广播电台 (@RFI\_Cn) [October 13, 2021](https://twitter.com/RFI_Cn/status/1448407980970446850?ref_src=twsrc%5Etfw)
 
-很多人打成忧郁症
-A muchas personas les ha dado depresión después de vacunarse
 
-说我这是等着死呢
-Lo que hacen es esperar la muerte
 
-现在像国内的很多朋友, 原来对咱半信半疑的
-Muchos amigos de China sospechaban de nosotros
 
-现在说七哥
-Y ahora me dicen
 
-我们怎么能把这弄掉
-Cómo hacemos para desquitarnos de esto
+> Last Chance!北京会否配合？[https://t.co/DA1LSCqwlt](https://t.co/DA1LSCqwlt)
+> — DW 中文- 德国之声 (@dw\_chinese) [October 14, 2021](https://twitter.com/dw_chinese/status/1448499058717429763?ref_src=twsrc%5Etfw)
 
-我都睡不好觉了
-Ya no puedo dormir bien
 
-啥时候死都不知道
-No sé en qué momento voy a morir
 
-他说我都准备好遗书了
-Él dice que ya tengo preparado la nota de suicidio
 
-我真的跟他们建议
-Y yo realmente les sugerí
 
-如果你真打了三针以上
-Si te vacunaste más de tres dosis
-
-你就准备好遗书
-Entonces prepare la nota de suicidio
-
-你最起码有50%的机率
-Al menos tienes el 50% de probabilidad
-
-未来三五年内会嗝屁
-De que te mueras en los próximos tres a cinco años
-
-* * *
-
-日期：10/13/2021
-原视频标题：希望不同肤色的人收到正确的信息并得到拯救
-Espero que las personas de diferentes colores de piel reciban la información correcta y sean rescatadas
-原视频日期：10/07/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1446018877662531588?s=24](https://twitter.com/se1y7cblljselva/status/1446018877662531588?s=24)
-任务编号：KC170（2473）
-视频时间段：0:00-1:14
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+> 博明：从实验室泄漏病毒的证据越来越多
+> 
+> 世界卫生组织（WHO）周三（10月13日）提名26名专家组成“新型病原体起源科学咨询小组”。世卫表示，该小组可能是确定病毒起源的最后机会，并敦促北京合作。[#博明](https://twitter.com/hashtag/%E5%8D%9A%E6%98%8E?src=hash&amp;ref_src=twsrc%5Etfw) 却认为，联合国机构可能无法胜任这项任务。[https://t.co/IKWZbI6Lk8](https://t.co/IKWZbI6Lk8)
+> — 大纪元新闻网 (@dajiyuan) [October 14, 2021](https://twitter.com/dajiyuan/status/1448551689213161476?ref_src=twsrc%5Etfw)

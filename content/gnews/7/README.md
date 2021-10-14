@@ -2,25 +2,33 @@
 ---
 
 
-## 苹果大健康布局曝光：Airpods有望成为体温计、助听器
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1593876/)
+## 世卫与中共为新冠溯源再度联手表演依旧拙劣
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1594008/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/21-8.jpg)[图片来源](https://www.google.com/search?q=%E8%8B%B9%E6%9E%9C%E5%A4%A7%E5%81%A5%E5%BA%B7%E5%B8%83%E5%B1%80%E6%9B%9D%E5%85%89%EF%BC%9AAirpods%E6%9C%89%E6%9C%9B%E6%88%90%E4%B8%BA%E4%BD%93%E6%B8%A9%E8%AE%A1%E3%80%81%E5%8A%A9%E5%90%AC%E5%99%A8&amp;rlz=1C1YKST_enUS900US901&amp;hl=en&amp;sxsrf=AOaemvLspjbP-p-g4QxHwH_mNDlUskBwWQ:1634217169914&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwjdxpev_cnzAhXTKaYKHSk2AMMQ_AUoAnoECAIQBA&amp;biw=1366&amp;bih=625&amp;dpr=1#imgrc=lv0W8hoBPOqn5M)
-今年iPhone13系列对于很多果粉而言，苹果在创新方面缺少了一些诚意，但在其他产品线上，苹果倒没闲着。
+作者：在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+世卫组织13日宣布成立一个26名专家组成的团队，重启所谓新冠病毒溯源调查，以及包括研究新病原体，防止未来爆发的全球疫情大流行。总干事谭德赛故作姿态地表示，希望中共和其他国家能够进行合作，以便于第二阶段的调查尽快开始。同一时间，中共宣称，对武汉血液中心储放的20万个血液样本，将进行测试，争取发现病毒溯源证据。
 
-据华尔街日报援引知情人士透露，苹果公司正在研究如何在小小的Airpods上面加入读取体温、增强听力以及监测人体姿势等新功能，将健康检测功能从Apple Watch扩展至Airpods上面。不过，这些功能预计不会在明年推出。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-14.jpeg)
 
-此前就有报道称，苹果正在与加州大学洛杉矶分校(UCLA)和百健合作，借助iPhone研究面部表情、打字指标等敏感数据来检测用户的抑郁症、认知能力下降等精神健康问题。
+新冠病毒疫情爆发近两年来，郭文贵先生与其领导的爆料革命，早已经向全世界清晰彻底的揭露了中共研制，并释放新冠病毒的罪行真相，却受到全世界黑暗势力及其控制机构和媒体的封杀打压。8月1日，美国众议院外交事务委员会发布病毒调查报告，定性中共进行了有史以来最大的掩盖。报告包含充分证据，证明了武毒所与福奇等勾结，利用了美国的资金，进行了冠状病毒功能性研究和基因编辑，增强了病毒适应性，使其刺突蛋白优化至可通过人体自身转换酶与人类细胞结合，破坏免疫系统。
 
-配合Apple Watch、iPhone，苹果希望提供更全面的健康监测服务。
+郭先生还透露，拜登政府内存在一股势力，试图将中共病毒与中共撇清关系。此次中共世卫组织，就所谓病毒二次溯源所进行的双簧表演，试图再次愚弄和误导世界。
 
-信息来源：
+(本文仅代表作者观点)
 
-[苹果的大健康布局：研究Airpods的助听器、体温读取等用途](https://new.qq.com/omn/20211014/20211014A00KOW00.html)
+参考链接：[疫情溯源调查：世卫公布提议成立的新科学家团队](https://www.rfi.fr/cn/专栏检索/要闻分析/20211013-疫情溯源调查-世卫公布提议成立的新科学家团队)
+[美国众议院中共病毒溯源报告（1）](https://gnews.org/zh-hans/1442603/)
 
-(文章仅代表作者本人观点，与GNEWS无关)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

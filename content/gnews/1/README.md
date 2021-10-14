@@ -2,36 +2,27 @@
 ---
 
 
-## 六四纪念雕塑将遭移除 ,丹麦雕塑家对峙港大
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593974/)
+## 秘翻在线:普京认为加密货币是威胁美元的”武器”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1594069/)
 
-作者：FoxRina
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-丹麦雕塑家高志活纪念八九·六四天安门大屠杀的雕塑作品「国殇之柱」将遭到香港大学的移除，高已聘请了律师和外交官处理此事，并表示如果他高达8 米的六四大屠杀遇难者雕像遭到破坏，他将起诉香港大学。
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/images.jpg)
+图／pixabay
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-22.jpeg)
+俄罗斯总统弗拉基米尔·普京Vladimir Putin暗示，虽然他认为加密货币“粗暴且不发达”，但“有朝一日”将可以取代美元进行交易，这样的看法着实激怒了美国金融官员。
 
-高志活是这位关注中国人权的丹麦雕塑家的中文名字，和他的丹麦姓名发音相近。高志活是中国大陆人权的关注者，国际人权组织橙色运动发起人之一，并因其人权艺术活动在2009年访港时遭到中共拒绝入境。
+**普京紧盯着加密货币**
 
-雕塑“国殇之柱”1997年由以组织天安门广场大屠杀遇难者年度追悼会而闻名的香港市民支援爱过民主运动联合会向其雕塑者无限期借用，并安置在香港大学，是中国境内纪念六四的唯一雕塑。高大的雕塑上布满了扭曲的面孔，震撼地描绘了天安门广场大屠杀的受害者，强烈引发观者的深思与悲愤。
+当被问及是否可以使用比特币或加密货币代替美元时，俄罗斯总统普京告诉美国全国广播公司商业频道( CNBC ):“我相信加密货币是有价值的，但我不相信它可以用于石油贸易。”根据克里姆林宫官网的采访，普京表示:”私人加密货币可以适用于将资金从一个地方转移到另一个地方，但非常不稳定。”当提及是否可以用于石油合约? 普京说:“在交易方面，尤其是能源资源方面，在我看来还为时过早。”普京表示，俄罗斯政府一直在密切关注加密货币市场。
 
-由于国安法暴政和香港民主的全面沦陷，支援会于上个月被迫解散，部分成员被捕或被拘留中。港大高层要求支援会于本周三下午5点之前对雕塑完成拆除，否则将被视为放弃。
+普京认为，加密货币还没有“任何东西”的支持理论。但当被问及他是否认为特斯拉首席执行官埃隆马斯克持有的加密货币“毫无价值”时，普京否认，并解释说他打算探索加密作为能源市场记账单位的可行性。
 
-然而该雕塑仍为其创作者所拥有，估价约为1200 多万瑞典克朗。高志活现已在香港聘请律师处理此案，并寻求丹麦官员的外交帮助，以保护这座雕塑，或至少确保该雕塑可以毫无损坏地从香港大学移走。
+**美元计价的主导地位受到挑战**
 
-(本文仅代表作者观点)
+普京批评美元的主导地位，并认为华盛顿无异于是挥舞着“经济武器”，至今依然热衷于美元计价的支付。“我认为美国在使用美元作为制裁工具方面犯了一个巨大的错误，”他说。“我们是被迫的。我们别无选择，只能转向其他货币的交易。”
 
-参考链接：[Dansk staty om massakern vid Himmelska fridens torg skapar storbråk i Hongkong](https://kinamedia.se/2021/10/14/dansk-staty-om-massakern-vid-himmelska-fridens-torg-skapar-storbrak-i-hongkong/)
+这位世界领导人补充说：“美元是一种竞争优势。它是一种通用储备货币，今天的美国用它来达到政治目标，结果损害了他们自己的战略和经济利益，无异于自作自受。”“我们对完全切断美元支付不感兴趣，到目前为止，我们对以美元支付能源资源，主要是石油支付感到满意，”他说。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+最后，与一直致力于压制大陆加密货币挖矿和交易的中共国截然不同，普京认为一切都在改变之中，加密货币有其存在的理由。
 
-新闻访谈终审：FoxRina
-编辑/校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+消息来源:[Putin Praises Crypto As Possible ‘Weaponized’ Dollar Replacement](http://Putin%20Praises%20Crypto%20As%20Possible%20'Weaponized'%20Dollar%20Replacement)
