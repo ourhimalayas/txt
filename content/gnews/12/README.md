@@ -2,15 +2,35 @@
 ---
 
 
-## 2021年10月11日 文贵先生盖特 6
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1594412/)
+## DC每日热点1014
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1594429/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1D142FBE-1A10-4150-8573-ED11446267B4-scaled.jpeg)
+道琼斯指数 34758.60 ▲1.11%
+纳斯达克指数 14776.56 ▲1.41%
+WTI纽约原油CFD 80.797 ▲0.42%
+布伦特原油CFD 83.693 ▲0.62%
+标普中概股50指数 3,683.59CNY▼17.40%
+美元兑人民币 1USD=6.440RMB
+美元兑港币 1USD=7.778HKD
+国际黄金 1798.96美元/盎司
+全球CCP病毒感染人数 240,089,277 例
 
-10/10/2021 Miles Guo: We are the first to say that the COVID vaccine disaster and the vaccine politics are from the CCP’s biochemical warfare; The Jews may be the biggest victims of the COVID vaccine disaster; No one can stop our momentum to take down the CCP with the truth about the COVID vaccines. The COVID vaccine mandate will soon stop, but humanity will pay a huge price! Regardless of whether the CCP is going to invade Taiwan or not, the price of body bags will skyrocket, and the world’s economy will collapse!
-
-10/10/2021 文贵直播: 我们最早说出疫苗灾难和疫苗政治来自中共生化战；犹太人可能成为疫苗灾难的最大受害者；以苗灭共无人可档，强制打疫苗亦将很快停止，但人类将付出巨大代价！不论中共是否攻台，装尸袋的价格将暴涨、世界经济会崩溃！
-
-[【2021年10月11日】文贵先生盖特原文](https://gettr.com/post/pdwigc1d9a)
-
-**喜联盟Gnews编辑部**
+1、普京：中共统一台湾无需动武，依靠其经济实力就能实现统一台湾的目标
+2、日本首相岸田文雄解散众议院谋求扩大政治版图 将力推提升国防预算
+3、美国即将重返有争议的联合国人权理事会
+4、美国高级官员：让德黑兰重返伊朗核协议的希望变得渺茫，美及其盟友考虑采取非外交手段来遏制伊朗带来的威胁
+5、美国政府宣布将在下月重新开放美加美墨边境
+6、应对解放军军机侵扰 台湾将采取“愈接近本岛反制力愈强”战略
+7、世卫公布新26名专家小组人选 任务重启疫情溯源调查
+8、俄罗斯或再建新管道 加大向中共国输送天然气
+9、瑞士与96国交换税务数据
+10、美亚太助卿在国务院会见台驻美代表萧美琴 中共国使馆提“严正交涉”
+11、美超越中共国成为全球最大比特币挖矿中心
+12、强调司法独立的香港 各大学在法律学科排名跌15至46位
+13、哈佛大学“北京书院”将改名“台北书院”明年由北京迁去台北
+14、阿肯色州长：打疫苗不需强制规定
+15、美物价反弹 年通膨率达2008年以来峰值
+16、香港大学将拆除校园内纪念天安门事件死难者的「国殇之柱」
+17、中共国预报神舟十三号将升空 首位女宇航员进空间站

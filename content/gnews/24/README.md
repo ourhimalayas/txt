@@ -2,32 +2,23 @@
 ---
 
 
-## 法官命令联合航空公司，不要让寻求疫苗强制令豁免的工人休假
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1594239/)
+## 美日韩下周或就朝鲜问题举行会晤
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1594305/)
 
-**摘要翻译：**一名联邦法官周二命令联合航空公司不要让寻求公司的中共病毒疫苗强制令豁免的工人休无薪假。
+俄罗斯莫斯科喀秋莎农场   银河
 
-临时裁决是由美国地区法官马克.皮特曼 (Mark Pittman) 发布的，因此·皮特慢听取该案的口头辩论之前，申请豁免的工人不会受到不应有的伤害。
+编辑上传   水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/N-5.jpg)wilsoncenter.org
+日本共同社10月14日报道，据外交消息人士透露，日本、美国和韩国正在考虑下周在华盛顿举行日本首相换届后的首次朝核问题高级官员会谈。
 
-六名美联航员工上个月起诉该公司计划让任何要求宗教或医疗豁免的员工休假。该诉讼称，这些员工实际上被告知，如果他们寻求豁免，他们将被解雇，并声称该公司违反了 1964 年《民权法案》第七章和《美国残疾人法案》(ADA)。
+上周，日本议会选举岸田文雄(Fumio Kishida)为日本首相，成为菅义伟(Yoshihide Sugi)的继任者。由于政府应对中共病毒的措施受到越来越多的批评，菅义伟在执政约一年后辞职。
 
-诉讼称：“美联航的行动让原告无法做出选择，要么以牺牲他们的宗教信仰和健康为代价接种中共病毒疫苗，要么失去生计。在这样做的过程中，美联航未能参与互动过程并提供合理的调节方案，并且对从事受保护活动的员工进行报复，从而违反了第七章和《美国残疾人法案》。
+朝鲜最近接连试射短程弹道导弹，并声称是新开发的高超音速导弹，在这种情况下引发了地区紧张局势，预计此次会谈将展示三方合作的成果。三国首脑将在华盛顿举行会谈，就朝鲜核导弹开发问题交换意见，并确认无核化的必要性。
 
-他补充道： “如果双方的规定在没有临时禁令救济的情况下过期，则没有什么可以阻止数百名工人表面上：（1）被迫违反其宗教信仰或医疗限制接种疫苗，或（2）被美联航无限期无薪休假。”
+美国国务卿布林肯说，朝鲜无视联合国安理会决议进行导弹发射，应该“非常严肃地”对待，因为这些发射造成了“更大的不稳定和不安全前景”。日本方面已经就朝鲜的武器试验向朝鲜提出抗议。韩国外交通商部长官郑义溶本月早些时候表示，考虑放宽对朝鲜制裁的时机已经成熟，可以以此吸引朝鲜参加谈判。
 
-**简评：**现在各国执行的这疫苗护照：把天赋人权，自己的身体都不能做主 完全打破。美联航资方也是采取无薪假期来给不愿打疫苗的员工压力，目前员工面临的是无薪或被迫失业带来的生存压力与打疫苗的妥协之间的博弈。而民众面对的是打疫苗获取疫苗护照的现状，这不正是 没有阶级制造阶级，没有矛盾制造矛盾吗？政府和媒体在鼓动仇恨，正在分裂我们这个社会。只有政府批准才能在社会上存在，记录所有人的活动，这无关健康，而是控制和权利。疫苗护照这种新型的专制工具只会让政府禁止人民多的自由来扩大它们的权利。不管打或不打疫苗的民众我们需要站出来反对疫苗护照，因为我们是平等的。
+美国总统拜登(Joe Biden)领导的政府一直在重申愿意与朝鲜就无核化进行接触，但到目前为止没有任何进展。
 
-新闻链接：[Judge Orders United Airlines Not to Put Workers Seeking Vaccine Mandate Exception on Leave](https://www.theepochtimes.com/mkt_breakingnews/judge-orders-united-airlines-not-to-put-workers-seeking-vaccine-mandate-exception-on-leave_4046538.html?utm_source=newsnoe&amp;utm_medium=email2&amp;utm_campaign=breaking-2021-10-13-1&amp;mktids=e2d4220d8e51d9b28931afb0d7672657&amp;est=uMv0u716v1mrT5z26B3MXsGXKz03EI7CjMWQUGG%2FhmY3%2BCZy3aHHhZdDyPJjDB0%3D)
+参考链接：
 
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[https://english.kyodonews.net/news/2021/10/572cbd6298e1-us-japan-s-korea-diplomats-may-meet-next-week-over-n-korea.html](https://english.kyodonews.net/news/2021/10/572cbd6298e1-us-japan-s-korea-diplomats-may-meet-next-week-over-n-korea.html)

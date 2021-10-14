@@ -2,45 +2,47 @@
 ---
 
 
-## Google和Youtube平台的新政策限制人们收看相关气候内容
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1594313/)
+## 英国将为政府服务引入面部识别应用程序
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1594382/)
 
-作者：Sheila Gunn Reid
+作者：纽约香草山农场 – 四季
 
-Google 和 YouTube 最近宣布的一项新政策旨在限制你可能在其平台上看到的相关气候内容。
-
-科技巨头现在正在阻止广告中出现质疑人类活动对气候变化影响内容，从而阻止怀疑论者和气候现实主义者创造相关视频内容。软审查也有另一种方式。新政策还防止组织或个人购买广告来宣扬对气候变化的怀疑。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
 
-Google推出的政策内容如下：
 
-近年来，我们直接从越来越多的广告商和发布商那里听到了，他们对相关气候变化的不准确声明或宣传广告表示担忧。广告商只是不希望他们的广告出现在此内容旁边。发布商和创作者也不希望宣传这些声明和广告出现在他们的网页或视频上。
 
-这就是为什么今天，我们宣布了一项针对Google 广告商、发布商和YouTube 创作者的新货币化政策，该政策将禁止相关有悖于科学公认与共识的气候变化产生原因的广告投放，并通过这些内容获利。这包括将气候变化称为骗局，否认全球正在变暖的长期趋势申明，以及否认温室气体排放或人类活动导致变化的申明。
+据[布赖特巴特新闻网](https://www.breitbart.com/europe/2021/10/14/definitely-not-authoritarian-uk-to-use-facial-recognition-for-govt-services/)10月14日报道，英国政府在已引入冠状病毒疫苗护照应用软件后，还将为想要获得一系列公共服务的公民引入一款面部识别应用。
 
-科学之友是一个气候现实主义的非营利组织，其立场非常合理，即太阳 – 天空中燃烧的巨大气体球 – 在气候变化中的作用比你的 SUV 更大。科学之友有一个强大的 Youtube 频道，其中一些视频的观看次数接近 750,000。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1220-1-GettyImages-913641954-640x480-1.png)图片来源：[metamorworks/Getty Images](https://www.gettyimages.co.uk/detail/photo/biometrics-concept-facial-recognition-system-iris-royalty-free-image/913641954?adppopup=true)
 
-他们的 youtube 频道从未被货币化，但是，如果他们想购买广告来宣传他们与实际科学家一起举办的众多教育活动，那么他们现在至少在 Google 上是被禁止的。
+这款名为gov.uk的全新应用程序预计将在明年年底推出，将使公民能够通过智能手机访问300多个政府服务。该应用程序将使用面部识别或指纹扫描来验证用户。
 
-在此之前，Facebook 进行了类似的审查，Facebook 过去曾屏蔽了来自科学之友的广告。但据 FofS 通讯经理米歇尔斯特林称，无论硅谷如何强加给创作者的反科学立场，非营利组织都不会被压制的。
+一个新的小组，即数字咨询委员会，预计也将被宣布，以监督政府不断扩大的虚拟设备。来自银行业的商业领袖，包括劳埃德银行集团（Lloyds Banking Group）和汇丰银行，以及欧洲公用事业公司（E.ON）也已经计划加入该委员会。
 
-Reference: [https://www.rebelnews.com/new\_policy\_from\_google\_and\_youtube\_limits\_the\_kinds\_of\_climate\_content\_seen\_on\_their\_platforms](https://www.rebelnews.com/new_policy_from_google_and_youtube_limits_the_kinds_of_climate_content_seen_on_their_platforms)
+然而，人们对该系统提出了隐私方面的担忧，英国国民保健署（NHS）承认他们将在刑事调查中与警方分享此类信息，这导致人们对所谓的匿名应用程序的隐私感到担忧。
 
-（文章仅代表作者个人观点）
+公民自由运动组织 “老大哥观察 “的负责人西尔克-卡罗星期二在上议院司法和内政委员会作证时说，在没有任何议会参与和几乎完全没有监管制度的情况下，数千万英国人已经在不知情的情况下受到了面部识别扫描。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人
+（本文仅代表作者观点）
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+编辑/校对/发稿：小鹿
 
-**关注我们**
 
-Discord 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+**更多资讯，更多关注**
 
-Gettr 账号
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
