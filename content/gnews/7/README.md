@@ -2,21 +2,26 @@
 ---
 
 
-## 美国NBA全明星凯里·欧文因拒绝接受 COVID 疫苗被暂停比赛
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1594495/)
+## 德国经济增长急剧下滑
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1594514/)
 
-新闻采编：风云小哥    编译撰写，编辑：苦尽甜来 (文来)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Kyrie-Irving.jpg)
-[圖片來源](https://deadline.com/2021/10/kyrie-irving-benched-nba-brooklyn-nets-covid-vaccine-1234854605/)
+新闻来源：德国世界报网络版
 
-据反叛新闻（REBELNEWS ）10月12日报道，篮球明星凯里·欧文（Kyrie Irving）因拒绝接种 COVID-19 疫苗而被布鲁克林篮网队禁赛。在周二的意外公告中，球队宣布这位 29 岁的球员在接种疫苗之前不得参加任何比赛。即使比赛是在纽约以外的的客场进行，欧文也不被允许训练或比赛。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-根据纽约市的限制，每个球员都必须提供疫苗接种证明才能进入城市范围内的室内体育馆。如果欧文拒绝接种疫苗，他将不被允许参加主场比赛或在网队的设施中训练。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/DWO-WI-Teaser-Wachstumsprognose-pd-jpg.jpg)
 
-球队的声明中写道：“考虑到局势不断变化的性质，经过深思熟虑，我们决定凯里欧文在他有资格成为正式参与者之前不会与球队一起比赛或训练。” “凯里做出了个人选择，我们尊重他个人的选择权。目前，该选择限制了他成为团队全职成员的能力，我们将不允许我们团队的任何成员以兼职的方式参与。
 
-欧文是违背纽约市 COVID-19 疫苗规定和拒绝接种疫苗或的几名球员之一。禁赛发生在球队对阵密尔沃基雄鹿队的常规赛开始前一周。欧文七次入选全明星，是球队赢得即将到来的赛季战略的关键因素。目前尚不清楚在他缺席的情况下，球队计划如何进行。
+资料来源：图片联盟
 
-评：随着疫苗造成的大量死亡和副作用的曝光，越来越多的人们开始抵制杀人的毒疫苗。像欧文这样的有勇气的名人站出来，会有更多的人被唤醒。相信疫苗强制接种会很快停止。
+主要经济学家已大幅下调德国经济增长预期——从 3.7% 降至 2.4%。根据主要经济机构的说法，德国经济增长将低于预期。如果您仔细查看经济研究人员的报告，未来的经济增长已经出现危机。
 
-[原文鏈接](https://www.rebelnews.com/brooklyn_nets_suspend_all_star_kyrie_irving_for_refusing_covid_vaccine)
+德国目前正被银行、研究所或政府组织的经济学家进行评估。 10 月 12 日，国际货币基金组织 (IMF) 将今年的经济预期下调了半个百分点至 3.1%。 两天后，领先的经济研究人员将 2021 年的增长预期从 3.7% 下调至 2.4% ， 下调了1.3 个百分点。
+
+如果你仔细看看经济研究人员的秋季报告，你会发现危险的转变，这种转变的延续可能成为未来增长的巨大阻力。
+
+[https://www.welt.de/wirtschaft/plus234419144/Wirtschaftsinstitute-Deutschland-wird-nach-unten-durchgereicht.html](https://www.welt.de/wirtschaft/plus234419144/Wirtschaftsinstitute-Deutschland-wird-nach-unten-durchgereicht.html)
+
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+
+责任编辑/发布： Shuizhuyu

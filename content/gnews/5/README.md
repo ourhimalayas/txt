@@ -2,25 +2,27 @@
 ---
 
 
-## 德国经济增长急剧下滑
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1594514/)
+## 德国能源成本上升显著
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1594605/)
 
-新闻来源：德国世界报网络版
+新闻来源：德国法兰克福报网络版
 
 翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/DWO-WI-Teaser-Wachstumsprognose-pd-jpg.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/messstelle-im-einfamilienhaus.jpg)
 
 
-资料来源：图片联盟
+资料来源：FAZ
 
-主要经济学家已大幅下调德国经济增长预期——从 3.7% 降至 2.4%。根据主要经济机构的说法，德国经济增长将低于预期。如果您仔细查看经济研究人员的报告，未来的经济增长已经出现危机。
+高昂的天然气价格正在到达德国。导致一家供应商申请破产，其他供应商不再接受新客户并终止合同。
 
-德国目前正被银行、研究所或政府组织的经济学家进行评估。 10 月 12 日，国际货币基金组织 (IMF) 将今年的经济预期下调了半个百分点至 3.1%。 两天后，领先的经济研究人员将 2021 年的增长预期从 3.7% 下调至 2.4% ， 下调了1.3 个百分点。
+越来越多的德国消费者感受到能源成本的增加。勃兰登堡公司 Otima Energie 因开支增加而破产，并已停止供应电力和天然气。该公司要求其客户向他们提供仪表读数。 “同时，我们建议您尽快寻找新的供应商，以尽量减少对您或您的公司的损害，”位于柏林附近诺伊恩哈根的公司网站说。除了批发价格翻了两番之外，Otima Energie 还表示，此举的原因是预付款和保证金的显着增加。
 
-如果你仔细看看经济研究人员的秋季报告，你会发现危险的转变，这种转变的延续可能成为未来增长的巨大阻力。
+鉴于天然气和电力的价格上涨，这是已知的第一个公用事业破产案。其他能源公司也暂时正在转变业务。位于埃森的 E.ON 集团拥有超过 1400 万客户，现在不再接受新客户的新天然气合同。其他供应商暂时限制了他们的广告。位于下萨克森州萨尔茨卑尔根的 Deutsche Energiepool 宣布已终止许多客户的天然气合同。
 
-[https://www.welt.de/wirtschaft/plus234419144/Wirtschaftsinstitute-Deutschland-wird-nach-unten-durchgereicht.html](https://www.welt.de/wirtschaft/plus234419144/Wirtschaftsinstitute-Deutschland-wird-nach-unten-durchgereicht.html)
+简评： 寒冬即将来临， 而太燃气的价格如此上升， 让能源供应公司也始料不及， 导致了一个公司居然宣布破产。 而其他能源供应商也已经不接受新的客户。 这是多么可怕的现状。 有些家庭可能面临的不仅仅是价格上涨， 而找不到新的供应商的话， 那是有钱也要受冻的境况。
+
+[https://www.faz.net/aktuell/wirtschaft/klima-nachhaltigkeit/steigende-strompreise-in-deutschland-worauf-kunden-achten-muessen-17585163.html](https://www.faz.net/aktuell/wirtschaft/klima-nachhaltigkeit/steigende-strompreise-in-deutschland-worauf-kunden-achten-muessen-17585163.html)
 
 免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 

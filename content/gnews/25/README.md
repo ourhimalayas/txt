@@ -2,24 +2,45 @@
 ---
 
 
-## 疫苗口罩，买吗？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1594248/)
+## Google和Youtube平台的新政策限制人们收看相关气候内容
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1594313/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3663592_1_1.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.ltn.com.tw%2FUpload%2Fnews%2F600%2F2021%2F09%2F07%2F3663592_1_1.jpg&amp;imgrefurl=https%3A%2F%2Fnews.ltn.com.tw%2Fnews%2Flife%2Fbreakingnews%2F3663592&amp;tbnid=pEYXs6MopqG3fM&amp;vet=12ahUKEwiAqpKFnsrzAhWJAaYKHQXSCuAQMygMegUIARCSAQ..i&amp;docid=_rS0H5Ifpv9_SM&amp;w=800&amp;h=563&amp;q=%E7%96%AB%E8%8B%97%E5%8F%A3%E7%BD%A9&amp;ved=2ahUKEwiAqpKFnsrzAhWJAaYKHQXSCuAQMygMegUIARCSAQ)
+作者：Sheila Gunn Reid
 
-日本广播协会10月14日报道，山形县的一家缝制公司开始销售与新冠疫苗接种相关的口罩，口罩上印有“打过了”的文字，或者两支注射器的图案，戴上该口罩，向周围人传达的信息是“已经接种过两次新冠疫苗”。
+Google 和 YouTube 最近宣布的一项新政策旨在限制你可能在其平台上看到的相关气候内容。
 
-到目前为止，关东地区已经售出了约1000个。有购买者表示”当你乘坐满员的电车或去医院时，你会给周围的人一种安全感”。该公司的社长后藤忠志说：在这个仍然有很多不安的世界里，如果这种呼吁能够随便进行，我们就能相互放心地交往。接种疫苗的人一定要尝试一下。
+科技巨头现在正在阻止广告中出现质疑人类活动对气候变化影响内容，从而阻止怀疑论者和气候现实主义者创造相关视频内容。软审查也有另一种方式。新政策还防止组织或个人购买广告来宣扬对气候变化的怀疑。
 
-10月14日，日本2针疫苗接种率为65.8%，65岁以上的接种率为89.9%，12月份开始，日本境内将考虑推行第三针接种，接种的人数越来越多，社会正在从方方面面向未接种者施压，请问，疫苗口罩的购买，需要接种证明吗？
 
-信息来源：
 
-[接種済みを周囲に示す「ワクチン打ちましたマスク」販売 山形](https://www3.nhk.or.jp/news/html/20211014/k10013307121000.html)
+Google推出的政策内容如下：
 
-免责声明：文章仅代表作者本人观点，与GNEWS无关
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-8.png)
+近年来，我们直接从越来越多的广告商和发布商那里听到了，他们对相关气候变化的不准确声明或宣传广告表示担忧。广告商只是不希望他们的广告出现在此内容旁边。发布商和创作者也不希望宣传这些声明和广告出现在他们的网页或视频上。
+
+这就是为什么今天，我们宣布了一项针对Google 广告商、发布商和YouTube 创作者的新货币化政策，该政策将禁止相关有悖于科学公认与共识的气候变化产生原因的广告投放，并通过这些内容获利。这包括将气候变化称为骗局，否认全球正在变暖的长期趋势申明，以及否认温室气体排放或人类活动导致变化的申明。
+
+科学之友是一个气候现实主义的非营利组织，其立场非常合理，即太阳 – 天空中燃烧的巨大气体球 – 在气候变化中的作用比你的 SUV 更大。科学之友有一个强大的 Youtube 频道，其中一些视频的观看次数接近 750,000。
+
+他们的 youtube 频道从未被货币化，但是，如果他们想购买广告来宣传他们与实际科学家一起举办的众多教育活动，那么他们现在至少在 Google 上是被禁止的。
+
+在此之前，Facebook 进行了类似的审查，Facebook 过去曾屏蔽了来自科学之友的广告。但据 FofS 通讯经理米歇尔斯特林称，无论硅谷如何强加给创作者的反科学立场，非营利组织都不会被压制的。
+
+Reference: [https://www.rebelnews.com/new\_policy\_from\_google\_and\_youtube\_limits\_the\_kinds\_of\_climate\_content\_seen\_on\_their\_platforms](https://www.rebelnews.com/new_policy_from_google_and_youtube_limits_the_kinds_of_climate_content_seen_on_their_platforms)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

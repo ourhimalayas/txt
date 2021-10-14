@@ -15,92 +15,92 @@
 
 ---
 
-### [麦卡洛博士等顶级医生就辉瑞疫苗数据起诉 FDA](/content/gnews/1/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [前法国总统顾问贾克-阿达利——在未来，需要解决的问题是人口过剩](/content/gnews/2/README.md)
- ` 加拿大多伦多枫叶农场视频组`
-
-### [德国能源成本上升显著](/content/gnews/3/README.md)
+### [微软关闭在中国的Linkedin](/content/gnews/1/README.md)
  ` Shuizhuyu`
 
-### [10/13/2021七哥直播：中共对西方等国家的律所、法院和媒体发动的超限战已引起西方的高度重视](/content/gnews/4/README.md)
- ` 秘密翻译组-北美组`
-
-### [德国经济增长急剧下滑](/content/gnews/5/README.md)
- ` Shuizhuyu`
-
-### [2021年10月13日郭文贵先生直播全文字版](/content/gnews/6/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [美国NBA全明星凯里·欧文因拒绝接受 COVID 疫苗被暂停比赛](/content/gnews/7/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [2021年10月12日 文贵先生盖特 4](/content/gnews/8/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月12日 文贵先生盖特 3](/content/gnews/9/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月12日 文贵先生盖特 2](/content/gnews/10/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月12日 文贵先生盖特 1](/content/gnews/11/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [DC每日热点1014](/content/gnews/12/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [2021年10月11日 文贵先生盖特 8](/content/gnews/13/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月11日 文贵先生盖特 7](/content/gnews/14/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月11日 文贵先生盖特 6](/content/gnews/15/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [独家：辉瑞对 COVID 疫苗起源大为紧张的原因](/content/gnews/16/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [2021年10月11日 文贵先生盖特 5](/content/gnews/17/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月11日 文贵先生盖特 4](/content/gnews/18/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [纳瓦罗称中国共产党控制了乔·拜登](/content/gnews/19/README.md)
- ` HimalayaRussia`
-
-### [英国将为政府服务引入面部识别应用程序](/content/gnews/20/README.md)
- ` 纽约香草山MOS02`
-
-### [军方大主教支持宗教人士豁免接种疫苗](/content/gnews/21/README.md)
- ` 纽约香草山MOS02`
-
-### [文革幸存母亲目睹美国滑向深渊](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [Google和Youtube平台的新政策限制人们收看相关气候内容](/content/gnews/23/README.md)
- ` MG FARM`
-
-### [美日韩下周或就朝鲜问题举行会晤](/content/gnews/24/README.md)
- ` HimalayaRussia`
-
-### [疫苗口罩，买吗？](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [普京赞赏伊隆∙马斯克对加密货币结算的影响](/content/gnews/26/README.md)
- ` HimalayaRussia`
-
-### [法官命令联合航空公司，不要让寻求疫苗强制令豁免的工人休假](/content/gnews/27/README.md)
+### [2021/10/14 文贵先生盖特精要](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共多部门召开联合会议力推氢能产业发展](/content/gnews/28/README.md)
+### [麦卡洛博士等顶级医生就辉瑞疫苗数据起诉 FDA](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [前法国总统顾问贾克-阿达利——在未来，需要解决的问题是人口过剩](/content/gnews/4/README.md)
+ ` 加拿大多伦多枫叶农场视频组`
+
+### [德国能源成本上升显著](/content/gnews/5/README.md)
+ ` Shuizhuyu`
+
+### [10/13/2021七哥直播：中共对西方等国家的律所、法院和媒体发动的超限战已引起西方的高度重视](/content/gnews/6/README.md)
+ ` 秘密翻译组-北美组`
+
+### [德国经济增长急剧下滑](/content/gnews/7/README.md)
+ ` Shuizhuyu`
+
+### [2021年10月13日郭文贵先生直播全文字版](/content/gnews/8/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [美国NBA全明星凯里·欧文因拒绝接受 COVID 疫苗被暂停比赛](/content/gnews/9/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [2021年10月12日 文贵先生盖特 4](/content/gnews/10/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月12日 文贵先生盖特 3](/content/gnews/11/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月12日 文贵先生盖特 2](/content/gnews/12/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月12日 文贵先生盖特 1](/content/gnews/13/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [DC每日热点1014](/content/gnews/14/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [2021年10月11日 文贵先生盖特 8](/content/gnews/15/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月11日 文贵先生盖特 7](/content/gnews/16/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月11日 文贵先生盖特 6](/content/gnews/17/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [独家：辉瑞对 COVID 疫苗起源大为紧张的原因](/content/gnews/18/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021年10月11日 文贵先生盖特 5](/content/gnews/19/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月11日 文贵先生盖特 4](/content/gnews/20/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [纳瓦罗称中国共产党控制了乔·拜登](/content/gnews/21/README.md)
+ ` HimalayaRussia`
+
+### [英国将为政府服务引入面部识别应用程序](/content/gnews/22/README.md)
+ ` 纽约香草山MOS02`
+
+### [军方大主教支持宗教人士豁免接种疫苗](/content/gnews/23/README.md)
+ ` 纽约香草山MOS02`
+
+### [文革幸存母亲目睹美国滑向深渊](/content/gnews/24/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [Google和Youtube平台的新政策限制人们收看相关气候内容](/content/gnews/25/README.md)
+ ` MG FARM`
+
+### [美日韩下周或就朝鲜问题举行会晤](/content/gnews/26/README.md)
+ ` HimalayaRussia`
+
+### [疫苗口罩，买吗？](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄中开始在日本海举行联合军事演习](/content/gnews/29/README.md)
+### [普京赞赏伊隆∙马斯克对加密货币结算的影响](/content/gnews/28/README.md)
  ` HimalayaRussia`
+
+### [法官命令联合航空公司，不要让寻求疫苗强制令豁免的工人休假](/content/gnews/29/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [10/13/2021 七哥直播：傅政华、孙力军、孟建柱、王岐山一旦被抓，他们便清一色栽地倒在地，这就是中共的真面目](/content/gnews/30/README.md)
  ` 秘密翻译组-北美组`

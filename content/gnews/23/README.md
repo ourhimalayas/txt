@@ -2,45 +2,47 @@
 ---
 
 
-## Google和Youtube平台的新政策限制人们收看相关气候内容
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1594313/)
+## 军方大主教支持宗教人士豁免接种疫苗
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1594370/)
 
-作者：Sheila Gunn Reid
+作者：纽约香草山农场 – 四季
 
-Google 和 YouTube 最近宣布的一项新政策旨在限制你可能在其平台上看到的相关气候内容。
-
-科技巨头现在正在阻止广告中出现质疑人类活动对气候变化影响内容，从而阻止怀疑论者和气候现实主义者创造相关视频内容。软审查也有另一种方式。新政策还防止组织或个人购买广告来宣扬对气候变化的怀疑。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
 
-Google推出的政策内容如下：
 
-近年来，我们直接从越来越多的广告商和发布商那里听到了，他们对相关气候变化的不准确声明或宣传广告表示担忧。广告商只是不希望他们的广告出现在此内容旁边。发布商和创作者也不希望宣传这些声明和广告出现在他们的网页或视频上。
 
-这就是为什么今天，我们宣布了一项针对Google 广告商、发布商和YouTube 创作者的新货币化政策，该政策将禁止相关有悖于科学公认与共识的气候变化产生原因的广告投放，并通过这些内容获利。这包括将气候变化称为骗局，否认全球正在变暖的长期趋势申明，以及否认温室气体排放或人类活动导致变化的申明。
+据[布莱特巴特新闻网](https://www.breitbart.com/faith/2021/10/14/military-archbishop-supports-religious-exemptions-from-vaccine-mandates/)10月14日报道，美国军方天主教大主教蒂莫西-布罗格里奥本周表示，天主教军事人员可以以宗教理由拒绝接种强制的冠状病毒疫苗。
 
-科学之友是一个气候现实主义的非营利组织，其立场非常合理，即太阳 – 天空中燃烧的巨大气体球 – 在气候变化中的作用比你的 SUV 更大。科学之友有一个强大的 Youtube 频道，其中一些视频的观看次数接近 750,000。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1217-1-Vaccine-1-640x480-1.jpeg)图片：Jon Cherry/Getty Images
 
-他们的 youtube 频道从未被货币化，但是，如果他们想购买广告来宣传他们与实际科学家一起举办的众多教育活动，那么他们现在至少在 Google 上是被禁止的。
+他在一份声明中说：如果接种COVID-19疫苗会违反他或她神圣的良知，那么任何人都不应该被迫接种，并引用圣保罗六世的话，“公民有权不受阻碍地按照自己的良心生活”。
 
-在此之前，Facebook 进行了类似的审查，Facebook 过去曾屏蔽了来自科学之友的广告。但据 FofS 通讯经理米歇尔斯特林称，无论硅谷如何强加给创作者的反科学立场，非营利组织都不会被压制的。
+布罗格里奥大主教指出，美国最高法院已经裁定，宗教信仰不需要被他人接受、不需要符合逻辑、一致或者被他人理解，即可得到第一修正案的保护。
 
-Reference: [https://www.rebelnews.com/new\_policy\_from\_google\_and\_youtube\_limits\_the\_kinds\_of\_climate\_content\_seen\_on\_their\_platforms](https://www.rebelnews.com/new_policy_from_google_and_youtube_limits_the_kinds_of_climate_content_seen_on_their_platforms)
+他补充说，拒绝提供宗教便利，或对那些提出真诚的、基于良心的反对意见的人采取惩罚性或不利的人事行动，将违反联邦法律，在道德上应受到谴责。
 
-（文章仅代表作者个人观点）
+近期披露的消息指证，疫苗是用来自堕胎的细胞系开发、测试和生产的，这些都涉及到了道德范畴。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人
+（本文仅代表作者观点）
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+编辑/校对/发稿：小鹿
 
-**关注我们**
 
-Discord 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+**更多资讯，更多关注**
 
-Gettr 账号
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
