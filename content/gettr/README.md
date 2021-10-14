@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/14/2021 12:38 AM (UTC)`
+
+10月13号：这些所谓的传统媒体都是一帮骗子，犯罪集团的共犯……十一月份看七哥对平安保险打响第一炮以后的情况吧！让平安保险的罪恶展示给这个世界那么一点点，都会震撼整个世界的金融领域．莘县阳谷县搭县咱们走着看。
+![img](https://media.gettr.com/group29/getter/2021/10/14/00/463530ad-6a06-9dd0-dfff-4241bebd30ee/add90938f39ce84f0a0291fb664bf13e.jpg)
+
+---
+
+`@miles 10/14/2021 12:37 AM (UTC)`
+
+10/13/2021 Miles Guo: Hu Shuli and Jack Ma were appointed at the South Putuo Meeting as the de facto head of the CCP’s Publicity Department and Finance minister, respectively. Hu Shuli is in control of the narrative on the global stage, while Jack Ma has forged a “financial sharp weapon”; It’s too late for Xi to start investigating the state-owned banks now.<br/><br/>10/13/2021 文贵直播：胡舒立和马云分别是南普陀会议指定的中共事实上的“宣传部长“和”财政部长”，胡舒立掌握着国际话语权，马云打造了“财务利器“；习到现在才开始调查国有银行，为时已晚！<br/>
+![img](https://media.gettr.com/group35/getter/2021/10/14/00/37/40e99eca-922d-6f74-b52b-b351d6f8b78a/out.jpg)
+
+---
+
+`@miles 10/14/2021 12:28 AM (UTC)`
+
+10/13/2021 Miles Guo: The war between the Communist China and the US is inevitable, with the fundamental reason being the CCP’s economy - the real estate industry will completely collapse, and the CCP will stop buying US Treasury securities and will default on the debt to the West; Once the war broke out between the CCP and the US, the anti-Chinese movement will surely escalate!<br/><br/>10/13/2021 文贵直播：中美之间必有一战，其根本原因在于中共的经济 - 房地产将彻底崩溃、中共将停止购买美债并无法偿还欠西方的债务；中美一旦开战，排华必将升级！<br/><br/>
+![img](https://media.gettr.com/group25/getter/2021/10/14/00/28/942f8583-54a8-81ba-ec89-85e5e6bcf45b/out.jpg)
+
+---
+
 `@miles 10/14/2021 12:03 AM (UTC)`
 
 10月13号：【经过战友同意，分享一位战友的经历。<br/>推文内容战友自己编写、她没有推。<br/>       <br/>  我十几年的炎症已好了90%'，早上吃药后一直在散结。<br/>注意，不可喝酒。】
@@ -277,27 +298,6 @@ MILES GUO Live Stream 2021/10/11
 
 《双龙计划 The Two Cities Project》<br/><br/>
 ![img](https://media.gettr.com/group22/getter/2021/10/09/16/8acc783d-9cac-14d9-8fa0-d448a7196f7f/out.jpg)
-
----
-
-`@miles 10/9/2021 4:02 PM (UTC)`
-
-因为未打疫苗而面临失业的美国飞行员呼吁大家反对强制疫苗，为自由而战！
-![img](https://media.gettr.com/group45/getter/2021/10/09/16/02/a2416340-b8e9-ab6d-0b6f-6eceb87d8742/out.jpg)
-
----
-
-`@miles 10/9/2021 3:40 PM (UTC)`
-
-Gettr prohibited these followings:<br/><br/>1. No racial discrimination is allowed<br/>2. There is absolutely no room for political discrimination, and any views of different parties are allowed<br/>3. No cultural discrimination is allowed, and all cultures are accepted<br/>4. No room for terrorism<br/>5. No crime, child abuse, violence, or pornography<br/>6. The Gettr must never be used to spread deceptive information<br/><br/>All Gettr's influencers can do the live streaming within a week.<br/><br/>盖特的六个绝对不允许：<br/>1. 绝对不允许有种族歧视<br/>2. 绝对不允许有政治歧视，允许任何不同党派的观点<br/>3. 绝对不允许文化歧视，包容所有文化<br/>4. 绝对不可以有恐怖主义倾向<br/>5. 绝对不可以有犯罪，虐童，暴力，黄色倾向<br/>6. 绝对不可以利用盖特传播欺骗信息<br/><br/><br/>所有盖特的大V在一周内都可以在上面直播
-![img](https://media.gettr.com/group38/getter/2021/10/09/15/bdcb0cf6-ab9f-3e9f-8c76-1df7fc75e986/047d27d50f17ed3fd29b1fe9b66c306c.jpg)
-
----
-
-`@miles 10/9/2021 3:21 PM (UTC)`
-
-10月9号：我的天呢，太让我感动了……我们亲爱的战友小酒窝和他巨帅的先生……
-![img](https://media.gettr.com/group14/getter/2021/10/09/15/21/d0c8ff46-6cfb-85ae-c9ff-95b866e2b829/out.jpg)
 
 ---
 
