@@ -2,9 +2,9 @@
 ---
 
 
-## 医护人员揭露疫苗危害，继续沉默将成为帮凶
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1592564/)
+## 医护人员揭露疫苗伤害，呼吁接种者立即进行血液测试
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1592739/)
 
-10/11/2021 医护人员揭露疫苗危害：不能让立法强制规定死亡，人们在遭受痛苦，若继续缄默将成为帮凶。
+10/12/2021 医护人员揭露疫苗导致人们血液数据紊乱，并呼吁接种者立即进行血液测试。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

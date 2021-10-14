@@ -2,55 +2,109 @@
 ---
 
 
-## 拜登总统可能卷入FBI对亨特的财务调查
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1592224/)
+## 前所未有的金融大变局即将到来
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1592308/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/100-aa06i-ko6rc.jpg)
+[https://gtv.org/video/id=61671338d2e2b8174874c477](https://gtv.org/video/id=61671338d2e2b8174874c477)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/H.jpg)e-today.us
-拜登窃位入主白宫以来一直表现出恐共、亲共的姿态，在病毒溯源、阿富汗乱局、释放孟晚舟、解除多项出口限制、贸易谈判等方面积极配合了中共，几天前文贵先生的大直播中再次揭露，无能老儿拜登竟然给中共写保证书，要出卖台湾，淋漓尽致地扮演了中共走卒的角色。
+**郭文贵：**
+**Miles Guo：**
 
-拜登一系列的亲共举措绝非偶然，战友们不会忘记“奋战13天”的经历，拜登在担任副总统期间，其家族就与中共有经济往来。只要你沾上了中共，就会有数不清的把柄被中共掌握，拜登目前的表现符合受中共操控的逻辑，没想到的是，上台不到10个月，就有这样露骨、疯狂、大动作的表现。还好，除了爆料革命，美国公众也在关注。
+我觉得，你知道吗？ Rachel
+I think, you know what, Rachel?
 
-《福克斯新闻》发表文章，题目“报告称，乔·拜登可能会卷入联邦调查局对其儿子亨特的调查”，副标题，亨特正面临联邦调查局对其财务状况的调查。
+这些都是媒体曝出来的，实际上很多都是有意识的放料
+These are all exposed by the media, in fact, many of them are conscious of releasing
 
-全文如下：
+都是放气球，你知道吗？
+It’s all ballooning, you know?
 
-周二（10月12日）公布的一份报告称，由于共同银行账户和支付对方账单，乔·拜登可能会卷入联邦调查局（FBI）正在进行的对其儿子亨特·拜登财务状况的调查。
+美国研究这个要不要美元做数字货币
+Whether the U.S. lunch digital currency or not?
 
-《每日邮报》（Daily Mail）从亨特·拜登遗弃的笔记本电脑上获得的电子邮件显示，他的商业伙伴埃里克·施沃林（Eric Schwerin）在乔·拜登处理报税时，讨论了父子俩互相付账的问题。
+实际上很简单
+It’s actually quite simple
 
-此外，此外，电子邮件显示，施韦林为当时担任副总统的乔·拜登处理了图书交易的请求，还管理了拜登捐赠给特拉华大学的参议院文件。
+美国要了数字货币，就把美联储给废了
+If the U.S. uses digital currency, it will abolish the Federal Reserve
 
-亨特·拜登声称，他和父亲共用一个银行账户，并承认去年他因税收问题接受过联邦的调查。
+就那几个沼泽地就没了
+That means those “swamps” are gone
 
-电子邮件显示，2010年4月9日，施沃林写信给亨特：“我整个下午都在处理JRB的税收（JRB’s taxes）问题（但解决了一个大问题——所以一切都是值得的）。”
+然后呢，这个，美国人民摆脱美联储以后，美国人们才叫自由了，真的叫自由了
+After the American people get rid of the Federal Reserve, the American people will be free, truly freedom
 
-同年6月10日，施沃林写道：“你父亲的特拉华州退税支票今天就来了，我将把钱存入他的账户，并开一张该金额的支票给你，因为他欠你的。我想我不需要让他知道，但如果你想的话就去吧。如果不，我明天就会存入。”
+美国不摆脱美联储，美国是不会自由的，没有自由的
+The United States will not be free until it gets rid of the Federal Reserve, there is no freedom
 
-目前还不清楚乔·拜登究竟欠亨特多少钱。
+所以说美国在斗争当中，这是一个人类上可能前所未有的
+So the U.S. is struggling with what is probably most unprecedented for mankind
 
-一位洗钱和刑事税法专家告诉《每日邮报》，这些纠葛可能会将现任总统拖入FBI的调查。
+也是金融大变局
+financial change
 
-这位不愿透露姓名的前联邦检察官专家告诉《每日邮报》：“无论你在做什么交易，如果与家人或朋友有关联，肯定会有答案（他们将接受调查）。显然，如果你说的是美国总统，你最好有一个非常好的理由和他说话。”
+世界不会只有流行美元，一定是虚拟货币
+The world will not only have dollar in circulation, it must also have virtual currencies
 
-据报道，联邦调查局和国税局也在调查亨特·拜登的商业关系以及是否有可能被指控洗钱。
+而且美元最可怕的就是这个美联储和沼泽地和全美国人的斗争
+And the most frightening thing about the dollar is the fight between the Federal Reserve and the “swamp” and all Americans
 
-另一位专家，前美国情报官员和财政部特别探员约翰·卡萨拉（John Cassara）告诉《每日邮报》，如果不是因为拜登是总统的事实，他早已成为众矢之的了。
+一定会有虚拟美元的
+There will definitely be virtual dollars
 
-“公开获得的信息非常令人担忧，特别是在腐败领域。” 卡萨拉说，“他们可以从所有不同的渠道进行，追踪腐败线索，然后指控洗钱。”
+最后就是世界的所有的未来的货币，绝对不是国家主权
+The future currency in the world is definitely not a national sovereign currency
 
-卡萨拉补充道：“腐败是洗钱的一种上游犯罪，除了腐败之外，就是对腐败的看法，这种事情不应该发生，它破坏了对美国政府的充分信任，它破坏了诚信和我们的国际声誉。这是一件尴尬的事情。”
+你完全是垄断的，是不可能的
+No more the sovereign state monopoly
 
-白宫没有立即回应《福克斯新闻》的置评请求。
+所以人类到了一个真正的时代
+So mankind has come to a new era
 
-（原文完）
+包括未来，我飞到月球上去安家
+In the future, I will make my home on the moon
 
-对亨特·拜登、施沃林这些名字，战友们再熟悉不过了，没准《每日邮报》的信息来源首先来自于爆料革命的GNEWS等。对拜登家族的所作所为我们已经了解，关键是一年后的今天，美国对这些问题的反应进展到了何种程度？对中共的认知达到了怎样的水平？基本可以定论，美国政府要员、要害部门工作人员的亲属朋友与中共国有生意往来的，没有一个是干净的，只怕美国没有揭盖子的勇气。如果调查不出拜登家族的问题，只能说明美国的三权系统都出了问题，而所有问题都可以追溯到邪共。
+我跟马斯克，到火星上上安家去，你告诉我，你怎么限制我货币？
+I’m with Musk, go up to Mars to settle down, you tell me, how do you limit my currency?
 
-（文章仅代表作者个人观点）
+你限制不了我货币
+You can’t
 
-原文链接：
+因为它是一个两星球之间的币，过去是两国之间——一个星球上的币，完全两回事儿
+Because it’s currency between two planets, it used to be between two countries – a currency on a planet, totally different thing
 
-[https://www.foxnews.com/politics/joe-biden-could-get-drawn-into-the-fbi-probe-into-his-son-hunter-report](https://www.foxnews.com/politics/joe-biden-could-get-drawn-into-the-fbi-probe-into-his-son-hunter-report)
+这是两星球，未来可能多个星球，多星球的货币怎么可能一样
+This is just two planets, maybe multiple planets in the future , how can the currency of multiple planets be the same one
+
+所以说，这就是我们新中国联邦的厉害
+This is what makes our New Federal State of China so great
+
+你们绝对不知道新中国联邦有多厉害
+You have absolutely no idea how powerful the New Federal State of China is
+
+你们绝对不知道我们有什么规划
+You absolutely have no idea about what we have planned
+
+你们绝对不知道我们有什么武器
+You absolutely have no idea about what weapons we have
+
+————————————————————
+
+**原视频链接:** [https://twitter.com/se1y7cblljselva/status/1445680480041328656?s=24](https://twitter.com/se1y7cblljselva/status/1445680480041328656?s=24)
+
+Date:10/8/2021
+原视频日期：2021/10/05
+任务编号：KC167（2450）
+视频时间段 : 0:00-1:30
+
+英听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校: 洛杉矶盘古农场 – Raul
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

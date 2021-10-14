@@ -2,47 +2,35 @@
 ---
 
 
-## 郭文贵直播摘要和音频 2021.10.13
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1592317/)
+## 辉瑞正式向FDA提出让5到11岁的孩子接种COVID-19疫苗
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1592375/)
 
-摘要撰稿人：文俊
-
-音频提供者： 左媛
+作者：香草山医疗部 – 圣母院钟声
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-13-at-7.39.19-PM.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
 
-### 视频：
 
-[视频链接](https://gtv.org/video/id=6166d150304e992109b45e6f)
+辉瑞及其德国合作伙伴BioNTech于10月7日向美国食品和药物管理局（FDA）递交了申请。大约一周前，他们提交的数据表明，该疫苗在第2，3阶段临床试验中成功引发了5至11岁儿童的抗体反应。但试验的完整结果尚未公布。辉瑞的相同mRNA疫苗先前已经获准用于12至17岁的儿童。他们最近的儿童试验根据FDA的建议，对剂量进行了调整，给儿童一个两次接种的方案，每次10微克，成年人的剂量是30微克。FDA的疫苗顾问团将于10月26日开会审查疫苗对5-11岁儿童的有效性和安全数据。
 
-### 音频：
+白宫新冠疫情协调员杰弗里·齐恩茨（Jeffrey Zients）告诉CNN记者， “一旦辉瑞的请求通过CDC和FDA的审核，对5-11岁美国孩子的疫苗接种可以在感恩节前获得批准，我们将为此做好准备。“ 过去数月世界多国的临床科研机构所发表的研究表明，辉瑞疫苗对新冠感染和至重症保护的有效性随着时间的推移而急剧下降。以色列等国在完成全民接种后的高感染率是最好的例证。此外，辉瑞公司的三名科学家最近被暗访记录承认，因感染新冠病毒而获得的自然免疫力远优于疫苗所能提供的保护。
 
-### 摘要：
+在欧洲一些国家已经明确不再强制30岁以下年轻人接种疫苗的时候，美国政府还在一意孤行，可见大疫苗商已经买下大多数政策制定者。在为时太晚之前，美国的父母及民众有责任站出来保护他们的未来。
 
-1. 今天10月13号是一个大日子 1月10号解密
-2. 傅政华被抓时倒地上扶不起来、尿裤子，监狱路上喊着要交代
-3. 全世界司法界 律师界 将大地震
-4. 北京上海香港2000个律师，代理共产党资产4万到5万亿美元 每年律师费500亿美元
-5. 律师最大的问题是“代理人冲突”
-6. 2000个律师 他们吃住在一起 他们代理的是一个老板（共产党）能没关系吗？
-7. 所有合资律师事务所都有中国美女律师 同性恋律师
-8. 俞敏洪骂中国现在都是中国女人的错
-9. 咱爆料革命到现在5、6年了，习现在才明白，才查国有银行 你来得及吗 你身体都不行了
-10. 王岐山说啥啦 南普陀会议王岐山 孟建柱是监国 胡舒立是宣传部长 他们如果干成了，会比习近平坏10000倍 ，他们最终服务的是国际共济会，光明会。
-11. 马云也是共济会和光明会的重要成员。
-12. 王岐山女朋友高燕燕左脚华尔街 右脚白宫 屁股下坐着半个美国
-13. 沃尔玛离开导致1000万失业
-14. 三星说50年内不回中国
-15. 中国房地产倒塌会导致中共更快打台湾
-16. 打台湾目的是通过战争重新发行货币 重新洗劫 从头在来
-17. 中美之间必有一战 不是因为政治 是因为经济 中美一旦有战时 排华必会群起
-18. 灭共后 所有银行贷款和房贷都不用还
-19. 对既没房没车也没贷款的就将公共资源进行按比例分配
-20. 房地产倒塌最早是今年年底，最迟20大召开后
-21. 欧洲、南美和美国我们有好几个地方做安全基地急救站
-22. 战友们不安全，七哥不会逃避去更安全的地方生活
-23. G翻身马上出香水“玉米地的香水”
-24. 热钱主要流向：暗网、虚拟货币、黄金、银、铜、稀土、铝、锌，大量囤积稀有金属
-25. 星期五，在直播
+参考链接：
+
+[https://www.theepochtimes.com/mkt\_morningbrief/pfizer-formally-asks-drug-regulators-to-let-kids-as-young-as-5-get-its-covid-19-vaccine\_4036989.html](https://www.theepochtimes.com/mkt_morningbrief/pfizer-formally-asks-drug-regulators-to-let-kids-as-young-as-5-get-its-covid-19-vaccine_4036989.html)
+
+编辑/审核/发稿：正义的小新
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

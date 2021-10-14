@@ -2,47 +2,37 @@
 ---
 
 
-## 采访：政治评论员亚伦·古恩宣布竞选 BC 自由党领导层
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1592333/)
+## 中共对美施压，要求取消关税和制裁
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1592408/)
 
-作者：Drea Humphrey
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Aaron-Gunn-Interview.png)
-不列颠哥伦比亚省维多利亚市的亚伦·古恩 (Aaron Gunn) 已正式在不列颠哥伦比亚省自由党领袖的竞选中脱帽致敬——而新民主党对此并不高兴。
+作者：香草山写作组 – 文真
 
-几个月来，这位前加拿大武装部队成员转为保守派评论员一直在公开考虑竞选 BC 自由党的领导职位。
 
-上周六，古恩正式宣布了这一消息。
 
-“我厌倦了看着这个省，以及这个国家，继续朝着错误的方向前进，” 古恩在宣布他候选资格的演讲中说道。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-古恩表示，他将确保该党用常识处理涉及BC 纳税人的问题。
 
-捍卫言论自由、负担不起的住房、管道封锁等问题——以及取消该省ICBC的保险垄断——是古恩承诺带来众多变革中的一部分。
 
-与大约 80 人听到古恩的宣布感到兴奋不同的是，不列颠哥伦比亚省新民主党似乎急于压制对古恩的支持。
+10月9日，美国贸易代表戴琪和中共政府副总理刘鹤举行视频会议。
 
-该党在预定宣布的前一天在其网站上发布了一份声明，指责古恩表达了“有害观点”，并且他将在 BC 自由党中“为反双重精神、女同性恋、男同性恋、双性恋和跨性别 （2SLGBTQ+ ）的观点腾出空间”。
+美方试图通过双边对话，磋商美中经贸协议第一阶段执行情况。中方强调，中美经贸关系对两国和世界非常重要，应加强双边经贸往来与合作。中方就取消关税和制裁进行谈判，并澄清对中共国经济发展模式和产业政策的立场。
 
-我采访了亚伦·古恩 (Aaron Gunn) 和他的一些支持者，讨论了这些主张以及他们对该省政治未来的希望。
+戴琪在本周一的演讲中强调捍卫美国利益，与中方对话的目标是不要激化与中共国贸易紧张关系，持久的共存需要对行动的巨大后果负责和尊重。
 
-Reference:
+某美国官员说，中共政府明目张胆的行为，表明它正在加倍推行以国家为中心的独裁主义，并抵制解决美方的结构性关切。美国最新贸易战略将引起对中共国”非市场“经济行为的关注。华盛顿将侧重于提高美国的竞争力，使市场多样化，并 “限制北京有害做法的影响”。
 
-[https://www-rebelnews-com.translate.goog/interview\_political\_commentator\_aaron\_gunn\_announces\_bid\_for\_b\_c\_liberal\_party\_leadership?\_x\_tr\_sl=en&\_x\_tr\_tl=zh-CN&\_x\_tr\_hl=en-GB&\_x\_tr\_pto=nui,op](https://www-rebelnews-com.translate.goog/interview_political_commentator_aaron_gunn_announces_bid_for_b_c_liberal_party_leadership?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui,op)
+参考链接：[https://www.newsmax.com/us/tariffs-trade-talks-phase-1/2021/10/09/id/1039813/](https://www.newsmax.com/us/tariffs-trade-talks-phase-1/2021/10/09/id/1039813/)
 
-（文章仅代表作者个人观点）
+[http://www.gov.cn/guowuyuan/2021-10/09/content\_5641529.htm](http://www.gov.cn/guowuyuan/2021-10/09/content_5641529.htm)
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+编辑/审核/发稿：正义的小新
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

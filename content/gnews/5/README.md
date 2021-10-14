@@ -2,31 +2,39 @@
 ---
 
 
-## 恒大危机持续，150万中国人恐将房财两空
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1592524/)
+## 刺突蛋白综合症：WebMD 留言板中充斥着中共病毒疫苗副作用的可怕描述
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1592731/)
 
-作者：香草山写作组 – 文一
+翻译: 波士顿五月花  xxmy
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Covid-19-Coronavirus-Shot-Vaccine-Syringe.jpg)https://www.naturalnews.com/2021-09-16-webmd-covid-vaccine-complaint-board-horrific-critical-injuries.html#
 
+几乎每个自然健康倡导者都知道，不要在美国互联网医疗服务商(WebMD) 上寻找与健康相关问题的答案。然而，偶尔他们的“终生客户”的所谓口号会搬起石头砸自己的脚，正如客户对毒且致命的辉瑞或拜恩泰科mRNA 中共病毒疫苗所发表的评论那样。 WebMD 永远认为出自实验室的东西是“安全有效的”，从不发表任何关于自然健康、自然疗法或自然免疫的正面报道，因为这根本不会让他们赚钱。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+随着刺突蛋白综合症席卷全国，听一听随大流注射疫苗的人们惊恐的发声吧。恐怖的、持久的（对某些人来说可能是永远的）副作用来自数十亿在血管中流动的有毒刺突蛋白，这些刺突蛋白正在污染着人们的心脏、肺、大脑和重要的清洁器官。附着在血管内壁上的刺突蛋白正在导致心脏过度劳累（导致心肌炎病例），中枢神经系统向全身发出警告（导致神经疼痛和坐骨神经痛）。
 
+正是模拟病毒的刺突蛋白导致了严重的慢性炎症，使任何现有的疾病恶化，包括癌症、糖尿病、关节炎和痴呆症。 所谓的中共病毒疫苗不提供免疫，不能防御病毒的传播，对于上亿的已经打了疫苗的人而言，只能有限度的降低染病后症状的严重程度。数十亿个有毒刺突蛋白堵塞了人们的血液，且永远无法恢复。
 
+**目前，两亿美国人在不同程度上遭受中共病毒疫苗有毒刺突蛋白的影响，被堵塞了血液和重要器官。**
 
-根据路透社的消息，周一（10月11日），恒大第三次错过向海外债权人支付1.48亿美元的款项。彭博社指出，本周恒大将有1.5亿美元的美元债券的票面付款到期。《时代》杂志在12月报道，恒大有150万个家庭向他们提供了尚未建成公寓的押金。 这些家庭很可能会失去他们的押金。
+无论注射的是mRNA 疫苗还是单一蛋白质有效载荷疫苗，当您阅读本文时，数十亿个有毒刺突蛋白正在堵塞人们的血液和重要器官。 毒疫苗不歧视任何人，也不分年龄、种族或健康水平。 您可以是一名体格健壮的士兵，也可以是疗养院里某人的祖母。致命的冠状刺突会给人体带来噩梦，包括破坏血管和免疫系统。
 
-中共国过度建设房产，每个人都在这个过程中发了财。 现在，这些房产处于半空或空置状态，没有人偿还房产的债务。恒大首当其冲，其3000亿美元的债务高居世界首位。看来，中共国房地产和偿债危机比媒体报道的要大得多。
+最近刚刚发布的一小部分投诉中提到了噩梦般的副作用和正在发生的不良反应，有些是在打了疫苗后几周或几个月内发生的，而接种疫苗仅仅是为了避免遭受中共病毒“流感”的严重病例（尚未证明接种疫苗有效）。
 
-参考链接：[https://www.thegatewaypundit.com/2021/10/update-evergrande-crisis-continues-1-5-million-chinese-worry-deposits-apartments-not-yet-built/](https://www.thegatewaypundit.com/2021/10/update-evergrande-crisis-continues-1-5-million-chinese-worry-deposits-apartments-not-yet-built/)
+**由接种疫苗而直接引发的所有健康问题，WebMD归咎于除了疫苗以外的其他任何因素。**
 
-编辑/审核/发稿：正义的小新
+几乎没有比来自 WebMD 更糟糕的健康建议了。作为互联网医生，WebMD篡改所有的信息以迎合制药公司的利益，让人们处于生病状态，将病人推向医生和牙医去使用更多实验室制作的混合物。 这不是治愈疾病的合理方法，而只是将症状抑制到可以忍受的水平，同时加深产生疾病的根源。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+现在，即便是在主流媒体上也很容易找到疫苗的受害者。 这提供了很多信息，意味着人们受到了普遍的损害，您看到的只是冰山一角。 最可能的情况是，抱怨将被从网站上删除。但目前而言，抱怨在众目睽睽之下被全世界看到，描述着受害者有多么希望苦痛能够消失。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+WebMD 一贯有着将在线寻求医疗建议的人们引向错误方向的历史。尽管整个行业都知道汞对大脑和中枢神经系统的危害有多大，他们多年来还是在推动使用汞牙科填充物。 也许这些对中共病毒疫苗的抱怨会带来一些好处，因为他们的网站上到处都是关于毒疫苗对健康造成的可怕危害。寻求自然免疫力，切勿服用实验性实验室制作的混合物。
+
+（文章仅代表作者本人观点，与GNews 无关）
+
+新闻来源: [SPIKE PROTEIN SYNDROME: WebMD Covid vaccine complaint board plastered with horrific descriptions of sustained critical injuries from toxic clot shots](https://www.naturalnews.com/2021-09-16-webmd-covid-vaccine-complaint-board-horrific-critical-injuries.html#)
+
+* * *
+
+*素材来源：思澈*
+
+*编辑**& 发布：jamie(文胤)*
