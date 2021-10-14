@@ -2,72 +2,29 @@
 ---
 
 
-## 完全接种疫苗的人正在丧失其自身免疫力
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1590862/)
+## 产煤大省晋陕遭遇罕见暴雨，或提前引爆全球经济危机
+` 军迷wilson` [轉載自GNews](https://gnews.org/zh-hans/1589881/)
 
-- **编译：西班牙喜悦农场–wenwu**
+#### 加拿大多伦多枫叶农场 军迷Wilson
+![20180715中國；陝西；甘肅；四川；豪雨；水災– 水利災害應變學習中心](https://llc.wcdr.ntu.edu.tw/wp-content/uploads/2019/12/a21c.jpg)图片来源于网络
+综合媒体报道， 中共国庆放假期间的10月1日至7日，山西省和陕西省连降暴雨，其中山西的降水量是往年的3倍多。而两省被雨水严重浸泡的地区刚好是中共国的主要产煤区，2020年两省原煤产量占到全国总产量的45.36%，因此，中共国的电荒将因此迅速恶化。
 
+这一次暴雨晋陕两省人民蒙受了重大损失，还将使国内限产限电在一段时间内成为常态化，这将导致工商业大面积倒闭和失业人数大幅增加，囯内矛盾趋于激化，对国际市场也将造成巨大的冲击。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip314.png)
+短评：气象学家认为，最近频发的极端气候现象，是因为大洋环流这个地球空调因地球变暖而动力下降、功能异常所致，这种极端天气现象以后将更加频繁和严重。清华大学社会学系主任孙立平感叹，几亿年甚至几十亿年才形成的这一点化石能源，人类在不到100年内就几乎挖尽烧尽，很难说气候危机不是冥冥注定中的一种报应。
 
-最新的 PHE（英国公共卫生局）疫苗监测报告中关于 Covid-19 病例的数据显示，与未接种疫苗的人相比，接种两针中共疫苗的（40-70）岁人群的免疫系统功能下降了 40%。他们的免疫系统正在以每周 5% 左右的速度恶化（介于 2.7% 和 8.7% 之间）。如果这种情况持续下去，那么（30-50）岁的人的免疫系统将 100% 退化，到圣诞节时病毒防御为零，所有打了两针中共疫苗的 30 岁以上群体，都将在明年 3 月之前失去自身免疫系统。
+石油天燃气、芯片、煤炭、粮食是当前中共国高度依赖进口的几种大宗商品，每年需要近一万亿美元的外汇。由于中共病毒疫情破坏了以上商品的全球供应链，加上冬季临近，国际能源价格飚升将带动以上几种大宗商品价格快速上扬，会极大稀释中共国持有外汇的国际购买力，从而对国内制造业再次形成致命打击。
 
-下面 5 个 PHE 表格来自他们出色的疫苗监测报告，报告每 4 周为一个间隔，清楚地显示了中共疫苗对自身免疫系统反应，造成的渐进性损害。 
+如果中共的制造业崩溃了，房地产也会马上崩溃，中共国的房地产商的美元债有大约一万亿美元，房地产崩盘后这些美元债就不用还了。
+![大战将至，美国大萧条和1929-1933年世界经济危机——美国简史- 资讯咖](https://p2.pstatp.com/origin/pgc-image/0b8653d897e84758a07fb0c3688709dd.jpeg)图片来源于网络
+几十年来的全球化，全世界和中共囯在经济、金融领域已经高度融合。中共国的一般商品出口占到全球总出口量的50%，而全国60%以上用电依靠煤炭发电，当煤炭短缺导致电荒加剧时，制造业将大面积休克停产，全世界特别是发达国家就会出现商品供应短缺引起的激烈通胀，大宗商品市场就会出现严重的供需失衡，全球性的金融泡沫破灭和经济危机极有可能被提前引爆。
 
-（40-69）岁的人已经失去了 40% 的免疫系统功能（如下图，“week40 position”），并且其正在以每周 3.3% 至 6.4% 的速度逐渐丧失。
+当国内全面危机临近火山喷发状态时，中共肯定将内部危机转移、外溢到台湾、印度和西方身上，这是台海、中美必有一战的底层逻辑之一，不管拜登政府如何跪拜习大神，都不能改变这个宿命，而晋陕两省的暴雨只不过将“终极之战”往前推进了一大步而已。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip315.png)
+参考来源：
 
-与未接种疫苗的人相比不同的是，接种两针中共疫苗群体的免疫系统功能，是每周都在下降的……
+[时寒冰：关注山西和陕西的灾情真的很重要](https://mp.weixin.qq.com/s/zy-3O5Xk4WsudTxKIKuS9Q)
 
-也就是说,每个 30 岁以上接种两针中共疫苗的人,都将在 6 个月内（24weeks)失去 100% 的全部免疫能力（针对中共病毒和某些癌症）。
+[媒体聚焦山西暴雨洪灾：“心疼一下山西人吧”](https://news.sina.com.cn/c/2021-10-11/doc-iktzqtyu0708374.shtml)
 
-（30-50）岁的人会在圣诞节前失去免疫能力。接着，这些人将有效而全面地患上获得性免疫缺陷综合症，并摧毁 NHS（国家卫生系统）。
-
-第三针中共疫苗必须与前两针中共疫苗的牌子相同，因为进行临床试验并获得不同的批准需要很长时间。因此，如果您打了第三针，如今 PHE 的数字表明了，您正在给自己加速的患上获得性免疫缺陷综合症（在几个月的有效性之后）。
-
-以下的5张表格将按疫苗接种状态划分中共病毒（COVID-19）的病例：
-
-按样本（图1）日期在 2021 年第 32 周和第 35 周之间[报告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1016465/Vaccine_surveillance_report_-_week_36.pdf)的病例
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip316.png)
-
-按样本（图2）日期在 2021 年第 33 周至第 36 周之间[报告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1018416/Vaccine_surveillance_report_-_week_37_v2.pdf)的病例
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip317.png)
-
-按样本（图3）日期在 2021 年第 34 周至第 37 周之间[报告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1019992/Vaccine_surveillance_report_-_week_38.pdf)的病例
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip318.png)
-
-按样本（图4）日期在 2021年第 35 周至第 38 周之间[报告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1022238/Vaccine_surveillance_report_-_week_39.pdf)的病例
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip319.png)
-
-按样本（图5）日期在 2021年第 36 周至第 39 周之间[报告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1023849/Vaccine_surveillance_report_-_week_40.pdf)的病例
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip320.png)
-
-辉瑞公司最初声称他们的中共疫苗有 95% 的效率（按上面最后一列计算方式）。上面的数字表明，假设辉瑞公司的数据或许在接种疫苗后一段时间内是正确的（较年轻的年龄组接种疫苗的时间最短）。
-
-但上面的数字还表明，中共疫苗不仅仅是随着时间的推移效率下降到零，其还会逐渐损害自身免疫系统，直到实现负效率。目前，辉瑞公司是让 30 岁以上的人处于比接种疫苗之前，更糟糕的境地[。](https://theexpose.uk/2021/10/01/uk-health-security-agency-report-proves-covid-vaccines-dont-work/)更多信息请参见[此处。](https://theexpose.uk/2021/10/01/uk-health-security-agency-report-proves-covid-vaccines-dont-work/)
-
-**简评：**
-
-**中共疫苗真是慢性毒药，我们新中国联邦最早提出了疫苗对人类种族的危害，而且背后的邪恶势力一定会得到审判。感谢战友[@PureLotusHeart1](https://twitter.com/PureLotusHeart1/status/1447941988968452096?s=20)的简要分享（大意）：**
-
-**“与未接种疫苗的人相比，（40-70）岁打了两针疫苗的群体的免疫系统能力下降了40%，而且他们的免疫系统如同癌症一般以每周5%（2.7%-8.7%）左右的速度恶化，（这还不算数）打了两针疫苗的群体到2021年圣诞节时对中共病毒防御为零，（更可怕的是）这个30岁以上的群体将会在2022年3月之前完全失去免疫力。”**
-
-**以上的数据科学家早已向公众公布了，可惜的是政府和主流媒体的谎言压制了他们的声音，而爆料革命就是我们能够长期享受真实声音的平台。**
-
-**人们可以不信。值得一提的是，爆料革命的成功是无畏和不缺乏任何挑战。**
-
-（文章仅代表作者观点与GNEWS无关）
-
-**新闻来源：《[吹哨人](https://theexpose.uk/2021/10/10/comparison-reports-proves-vaccinated-developing-ade/)》｜发布时间：2021年10月10日｜**
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+（文章仅代表作者观点，与GNEWS无关）

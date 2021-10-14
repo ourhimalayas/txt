@@ -2,70 +2,139 @@
 ---
 
 
-## 立法者：CDC可能在操纵COVID数据，将疫苗的副作用少报了5倍
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1592219/)
+## 中国统计局完全是按中共的指示来统计的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1592250/)
 
-- 编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2021/10/77-a71ie-wzywl.jpg)
+[https://gtv.org/video/id=6166fd50d2e2b8174874be81](https://gtv.org/video/id=6166fd50d2e2b8174874be81)
 
+**郭文贵**
+**Miles Guo**
 
-长期以来，所谓的卫生 “专家 “在冠状病毒问题上显然有一个政治议程。
+你比如说我现在告诉你
+Por ejemplo, ahora te puedo decir
 
-两名共和党州参议员现在指控两个政府卫生机构操纵统计数字。
+就是中国最重要的两个数据　
+Los dos datos más importantes de China
 
-据《大纪元时报》报道，俄勒冈州的参议员Kim Thatcher和Dennis Linthth。Kim Thatcher和Dennis Linthicum于8月16日致函美国代理检察官Scott E. Asphaug，要求他对美国疾病控制和预防中心和美国食品和药物管理局的冠状病毒统计报告进行大陪审团调查。
+所有统计局
+Todas las Oficinas de Estadística
 
-虽然这封信已经过去了一个多月，但请愿书背后的组织 “站在健康自由的立场 “说，它是故意在9月16日才发布的。
+你记住统计局里边的关键人
+Recuerda las personas cruciales de estas oficinas
 
-“我不确定是否曾有过如此规模的政府不法行为的指控”，”站在健康自由的立场 “的贝利-库伊肯多尔告诉《正义报》。她说，在公开这封信之前，该组织希望确保”准确性和安全性”。
+现在极大部份都是七哥的人
+Ahora la mayoría son gente mías
 
-在信中，议员们说，一位举报人在宣誓后的证词中称，CDC的疫苗不良事件报告系统中记录的死亡和伤害”可能少报了五倍”。
+还以河南人为主
+Y básicamente son personas de Henan
 
-此外，参议员们说，CDC和FDA使用的COVID-19测试可能会产生大量的假阳性结果。特别是，他们说测试中的一个参数被称为周期阈值，可能会导致”COVID病例、住院和死亡人数的膨胀”。
+统计局里面　
+Dentro de la Oficina de Estadística
 
-《大纪元时报》报道：”哈佛大学流行病学家迈克尔-米纳博士在2020年8月告诉《纽约时报》，阈值过高的测试不仅可能检测到活病毒，而且还可能检测到基因片段。
+统计数据主要两个
+Principalmente, en los datos de la estadística son dos
 
-米纳说，阈值最多应该是30个周期。参议员们在信中说，CDC目前将接种疫苗者的周期阈值设定为28。
+人民银行还有一个海关
+El Banco Popular de China y la Aduana
 
-然而，他们说，美国食品和药物管理局将未接种疫苗者的阈值定为40。不同的标准导致未接种疫苗的人中出现更多的假阳性，而接种疫苗的人中报告的”突破性”病例则更少。
+因为海关涉外, 你造不了假
+Porque la aduana tiene relación con el exterior y por eso no puedes falsificar
 
-参议员们说：”这些事实使公众几乎不可能相信他们所得到的数据和基于这些数据的公共卫生政策。”
+造假你只能30%, 50%
+Si lo haces, es solamente el 30% a 50%
 
-关于COVID-19的治疗问题，参议员们说，他们”深为关切的是，科学文献继续提供经验性证据，表明存在针对COVID感染的安全和有效的治疗和管理策略，但没有提供给最需要的美国人”。
+超过100%是很难的
+Es difícil superar los 100%
 
-参议员们说，虽然疫苗通常是”有帮助的”，但不断增加的突破性病例表明，它们并不是每个美国人的万能药。出于这个原因，他们说CDC和FDA应该提供其他的治疗方案来代替或补充疫苗。
+超过一倍
+Superando el doble
 
-据《正义报》报道，立法者指出维生素D和伊维菌素是被这些机构扣留的治疗方法。他们说，尽管这些治疗方法已被证明是安全的，但开处方的医生可能被罚款或吊销执照。
+再一个人民银行
+Luego es el Banco Popular de China
 
-参议员们提出的另一个问题是，即使人们已经从病毒中恢复过来，这些测试也有可能将他们鉴定为COVID阳性。
+它有一些外汇
+Él tiene algunas divisas
 
-信中说：”明确诊断谁具有传染性并将他们与非传染性的人区分开来的能力，对于评估情况和确保急需治疗的人得到他们应得的熟练护理是最重要的。”
+特别是印钞票
+Especialmente, la impresión de los billetes
 
-“感染性传播管理的这一重要方面陷入了混乱。当我们提供给他们的PCR测试既不准确又无法区分谁是传染病人和谁可能曾经被感染但已经康复时，我们勇敢的一线医疗工作者实际上被紧紧的锁住了。”
+特别是中国的货币是双轨制
+Y la moneda de China es un sistema de doble vía
 
-最后，参议员们重申了我们国家的创始文件在最艰难时期的重要性。
+海外一块儿, 国内一块
+Una parte es el extranjero y la otra es dentro del paìs
 
-他们说：”一场危机并不妨碍我们国家或州的宪法。”他们说：”危机使宪法更加适用，如果真诚地遵守，就会产生公众信任。”
+它是有数据可以参考的
+Tiene datos de referencia
 
-《大纪元时报》说，有1718名俄勒冈人和53032名美国人签署了这封信。大陪审团的调查尚未针对该请愿书展开。
+它造假超过几倍是不可能的
+Es imposible falsificar muchas veces
 
-*《西方日报》发表这篇文章，是为了揭示有关**COVID-19**疫苗的故事，这些故事基本上没有被官方媒体报道过。本着同样的精神，根据**CDC**疫苗不良反应报告系统的最新统计数据，接受疫苗的人中有**7439**人死亡，即每**100**万人中有**20**人。相比之下，疾病预防控制中心已经报告了**652480**例因**COVID-19**引起的死亡，或每**100**万人中有**16101**人。此外，必须指出的是，**VAERS**报告可以由任何人提交，并且未经**CDC**核实。因此，正如该机构所指出的，**“**接种疫苗后向**VAERS**报告的不良事件，包括死亡，并不一定意味着疫苗导致了健康问题**“**。接受**COVID-19**疫苗的决定是个人的决定，在做这个决定时考虑背景是很重要的。**–**编者注*
+所以统计局改的
+Por eso lo que cambia de la Oficina de Estadística
 
-**简评：**
+中国的统计局是领导让你多少就多少
+Es que debes poner los datos que te diga el líder
 
-**巨大的利益使美国的医疗系统专家与大医药公司及贪婪的政客们沆瀣一气，在专业领域对大众未知的数据进行操纵，有意缩小了COVID疫苗的副作用。巨大的政治利益和经济利用，让这些无耻的专业人士们置普通百姓的生命健康而不顾。这是一个让人难以想象的巨大阴谋。**
+不用任何问的
+No necesitas preguntar
 
-**掩盖了疫苗的危害，致使人类陷入疫苗的灾难。而对能够治愈中共病毒的伊维菌素、青蒿素等有效药物弃之不顾。这是人类历史上最大的阴谋和最肮脏的勾当。**
+你们无法想像
+No se imaginan
 
-**郭先生早已提醒全世界疫苗即将带来的灾难，并且中共病毒的解药也早已向全世界公布。卑鄙无耻的政客和大医药公司们，还在躲躲闪闪的蒙骗着人们。他们一切的罪恶，即将遭到审判。**
+就统计局最后到一个叫审计局里边的一个叫审计专员
+En cuanto a la Oficina de Estadísticas, la última se llama comisionado de auditoría
 
-（文章仅代表作者观点，与GNEWS无关）
+专员就是里边的一个实际的局级干部
+El Comisionado es el cuadro real a nivel de oficina
 
-**新闻来源：**[www.westernjournal.com](https://www.westernjournal.com/lawmakers-cdc-may-manipulating-covid-data-underreporting-vaccine-side-effects-factor-5/)
+局级干部是每天接收到
+El cuadro a nivel de oficina recibe todos los días
 
-* * *
+到时候中央领导给你个数
+Cuando llegue el momento, la dirección central te dice un número
 
-*审核：蚂蚁兄弟*
-*校对：信心满满*
-*发布：信心的选择*
+你就按这个填去
+Entonces lo llenas de acuerdo a eso
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
+另外一个最核心就是海关
+Y el otro núcleo es la aduana
+
+它就是接收海关人民银行的(数据)
+Él recibe los datos del Banco Popular de Aduanas
+
+它叫政治数据
+Se llama datos políticos
+
+它不可能有任何时候
+Este en ningún momento
+
+全向外国一样(把)公开的信息
+Anucia las informaciones al público como los otros países
+
+在全省各部门(的数据)弄上
+Subir (datos) en todos los departamentos de la provincia
+
+不可能的
+Es imposible
+
+————————————————————
+
+**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1446019519353274369?s=24](https://twitter.com/se1y7cblljselva/status/1446019519353274369?s=24)
+
+日期：10/11/2021
+原视频日期：10/07/2021
+任务编号：KC166（2472）
+视频时间段：0:00-1:27
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

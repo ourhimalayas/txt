@@ -2,25 +2,46 @@
 ---
 
 
-## 疫苗灾情｜美国 47 岁教育学硕士接种疫苗后双腿截肢
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1589436/)
+## 被村霸欺压的欧金中被逼提刀重演杨佳和张扣扣的复仇路
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1587453/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 12/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/捕获_副本-8.png)
+据[**新京报我们视频**](https://weibo.com/6124642021?refer_flag=1001030103_) [2021年10月11日10:00](https://weibo.com/6124642021/KCcHAjG6k?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-***彷佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
-![](https://assets.gnews.org/wp-content/uploads/2021/10/22-3.jpg)
-【美国】明尼苏达州一名 47 岁的尼日利亚籍女硕士 Jummai Nache 在接种完第二剂辉瑞 COVID-19 疫苗之后诱发严重的动脉血栓、缺血和心肌炎，为了保命，她被截断双脚，最遗憾的是，她的双手都可能难以保全。
+【[#福建莆田重大刑案已致2死3伤#](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E8%8E%86%E7%94%B0%E9%87%8D%E5%A4%A7%E5%88%91%E6%A1%88%E5%B7%B2%E8%87%B42%E6%AD%BB3%E4%BC%A4%23) [#莆田悬赏5万元征集重大刑案线索#](https://s.weibo.com/weibo?q=%23%E8%8E%86%E7%94%B0%E6%82%AC%E8%B5%8F5%E4%B8%87%E5%85%83%E5%BE%81%E9%9B%86%E9%87%8D%E5%A4%A7%E5%88%91%E6%A1%88%E7%BA%BF%E7%B4%A2%23)】10月10日，福建省莆田市公安局秀屿分局发布协查通报，当日13时许，秀屿区平海镇上林村发生一起重大刑事案件，村民欧某中有重大作案嫌疑。[@新京报我们视频](https://weibo.com/n/%E6%96%B0%E4%BA%AC%E6%8A%A5%E6%88%91%E4%BB%AC%E8%A7%86%E9%A2%91) 11日从上林村村干部处获悉，案件目前造成2人死亡3人受伤。平海镇政府发布悬赏通告，对提供有价值线索者将奖励5万元。[#福建莆田发生重大刑案#](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E8%8E%86%E7%94%B0%E5%8F%91%E7%94%9F%E9%87%8D%E5%A4%A7%E5%88%91%E6%A1%88%23)[#蓝V视界#](https://s.weibo.com/weibo?q=%23%E8%93%9DV%E8%A7%86%E7%95%8C%23) [L新京报我们视频的微博视频](http://t.cn/A6MoFH1z) （记者：张榕晋 制作：李东旭 运营：马冉）
 
-Jummai 于 2 月 1 日接受了第二针疫苗之后，就立即感到胸痛，她的丈夫 Philip Nache 陪同一起到医院诊治后，医生表示，她没任何心脏问题，不过确诊 COVID-19 阳性，这一结果，令他们十分震惊。
+关于这个欧某中杀人的原委据[**一博胖迪都是我的**](https://weibo.com/5983225886?refer_flag=1001030103_)[2021年10月11日19:47](https://weibo.com/5983225886/KCgxYcNN9?refer_flag=1001030103_) 来自 [HUAWEI Mate 30 5G](https://app.weibo.com/t/feed/1EuKP9)
 
-但由于 Jummai 未有表现出任何感染新冠病毒的症状，因此医院未对她进行任何治疗，直至 2 月 13 日，她的病情突然恶化 ，才被转移到明尼苏达大学医学中心进一步观察，医生发现她的氧气含量和血压都低到致命的程度，心脏亦严重受损。
+[#用户736182#](https://s.weibo.com/weibo?q=%23%E7%94%A8%E6%88%B7736182%23) 不明白为什么账号不见了，虽然他做错了，但是还是希望更多人知道这件事情的原委 ​
 
-医生对她的丈夫表示， Jummai 随时可能离世，她正在与动脉血栓、缺血和心肌炎作斗争，最后，为了挽救她的生命，医生对她进行了[双侧](https://www.choosept.com/symptomsconditionsdetail/physical-therapy-guide-to-belowknee-amputation-2#:~:text=Below%2DKnee%20Amputation%3F-,Transtibial%20amputation%2C%20or%20below%2Dknee%20amputation%2C%20is%20a%20surgical,circulation%20in%20the%20lower%20limb.)胫骨截肢术，即切除双腿膝盖以下部分。最令人痛心的是，她的双手亦因缺血而严重坏死，预计等到腿部伤口痊愈后，她的双手都会被切除。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/001-9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/002-5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/003-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/004-1.jpg)
 
-明尼苏达大学的医生对他们表示，无法证实是辉瑞疫苗造成了她的悲剧，他们唯一肯定的是，确实有很多人因 COVID-19 引发成人多发性炎症综合征（MIS-A）。**Jummai 的丈夫质疑，“我和我的妻子日日生活在一起，为什么我是阴性，而且我还未打疫苗？”“如果疫苗不能打败病毒，那么疫苗究竟在人的体内扮演什么角色？”**
 
-来源｜[个案024](https://www.gofundme.com/f/22h9pf-fundraiser-for-jummai-naches-medical-expenses)
+欧金中杀人肯定是不对的，但是每每看到这样被逼无奈之下的绝杀，在内心深处却总也忍不住长舒一口恶气，终于让这些作恶的村干部、村霸们付出了生命的代价。因为欧金中的遭遇每个草根都会感同身受，区别仅在于无助以及被威胁恐吓的程度轻重而已，区别仅在于每个受到强权挤压的草根是在绝望中忍辱偷生还是忍无可忍，终于无需再忍。
 
-* * *
+因为这个社会已经彻底失去了让草根得到公平和正义的机会，所以在忍无可忍之下会出现手刃警察的杨佳，会有隐忍十年而终于手刃杀母仇人的张扣扣，所有这一切归结起来就是一句话——你不给我一个说法，我就要给你一个说法。但是在我要给你一个说法背后那些血淋淋的现实，却总是让我们在长舒一口恶气之后无法释怀，因为让复仇者与作恶者同归于尽，这永远不是我们想要看到的结果。
 
-他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//
+撰稿：喜马拉雅的肉夹馍
+
+审核：喜马拉雅的馍夹肉
+
+校对：Maarago
+
+（文章内容仅代表作者个人观点）
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

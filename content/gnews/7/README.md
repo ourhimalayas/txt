@@ -2,75 +2,109 @@
 ---
 
 
-## 众议院批准提高债务限额，并将法案送交拜登
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1592233/)
+## 前所未有的金融大变局即将到来
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1592308/)
 
-- 编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2021/10/100-aa06i-ko6rc.jpg)
+[https://gtv.org/video/id=61671338d2e2b8174874c477](https://gtv.org/video/id=61671338d2e2b8174874c477)
 
+**郭文贵：**
+**Miles Guo：**
 
-- *众议院周二批准了一项提高美国债务限额的法案，这是避免首次出现国家违约的最后一个立法障碍。*
-- *该法案现在被送至总统乔-拜登的办公桌，供其签署和颁布。它将允许财政部在12月初之前支付国家的账单。*
-- *这项立法是国会民主党人和共和党领袖米奇-麦康奈尔之间达成协议的结果，将把债务上限提高4800亿美元。*
+我觉得，你知道吗？ Rachel
+I think, you know what, Rachel?
 
+这些都是媒体曝出来的，实际上很多都是有意识的放料
+These are all exposed by the media, in fact, many of them are conscious of releasing
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/106946456-1632413649968-nancy.jpg)2021年9月23日，美国众议院议长南希·佩洛西（Nancy Pelosi）在华盛顿国会山的每周新闻发布会上对记者说。
+都是放气球，你知道吗？
+It’s all ballooning, you know?
 
-众议院周二批准了提高美国债务限额的立法，这是避免有史以来第一次国家违约的最后一个立法障碍，否则国家违约预计将在下周发生。
+美国研究这个要不要美元做数字货币
+Whether the U.S. lunch digital currency or not?
 
-参议院上周通过的该法案现在被送到总统乔·拜登的办公桌上，供他签署和颁布。预计他将在本周晚些时候，很可能在周三签署该法案。
+实际上很简单
+It’s actually quite simple
 
-这项立法以219-206的党派投票结果通过了众议院，是国会民主党人和参议院少数党领袖米奇·麦康奈尔（Mitch McConnell, R-Ky. ）之间达成协议的结果，将把债务上限提高4800亿美元。
+美国要了数字货币，就把美联储给废了
+If the U.S. uses digital currency, it will abolish the Federal Reserve
 
-目前的国债为28.4万亿美元，将被允许上升至约28.8万亿美元。
+就那几个沼泽地就没了
+That means those “swamps” are gone
 
-财政部长珍妮特·耶伦(Janet Yellen)警告说，虽然人们普遍预计总统会签署该法案，但如果不这样做，到10月18日就会导致经济灾难。
+然后呢，这个，美国人民摆脱美联储以后，美国人们才叫自由了，真的叫自由了
+After the American people get rid of the Federal Reserve, the American people will be free, truly freedom
 
-总统的最高经济顾问在10月早些时候告诉CNBC，如果政府没有办法偿还账单并引发前所未有的违约，她将”完全预期”美国会出现衰退。
+美国不摆脱美联储，美国是不会自由的，没有自由的
+The United States will not be free until it gets rid of the Federal Reserve, there is no freedom
 
-暂停或提高债务上限并不授权新的政府支出，但允许财政部为国会已经批准的拨款付款。
+所以说美国在斗争当中，这是一个人类上可能前所未有的
+So the U.S. is struggling with what is probably most unprecedented for mankind
 
-众议院议长南希·佩洛西（Nancy Pelosi）在周二上午的新闻发布会上说，债务限额的提高预计将使政府至少在12月3日之前能够支付其费用。最近的一些报道显示，4,800亿美元的增长可能使国会进一步持续到12月。
+也是金融大变局
+financial change
 
-雷蒙德·詹姆斯(Raymond James)政策分析师埃德·米尔斯(Ed Mills)说，即使所谓的死亡日期是在12月晚些时候，对立法者来说也没有什么意义。
+世界不会只有流行美元，一定是虚拟货币
+The world will not only have dollar in circulation, it must also have virtual currencies
 
-米尔斯周二上午解释说，麦康奈尔设计了4800亿美元的计划，以迫使国会在立法机构休假前再次解决债务限额问题。
+而且美元最可怕的就是这个美联储和沼泽地和全美国人的斗争
+And the most frightening thing about the dollar is the fight between the Federal Reserve and the “swamp” and all Americans
 
-米尔斯在接受电话采访时说：”这个计划的结构是，债务限额需要在12月最大程度上得到处理。”
+一定会有虚拟美元的
+There will definitely be virtual dollars
 
-“是在12月晚些时候？是一月初吗？在这一点上，这是语义学问题”，他继续说。”当国会在12月完成工作时，他们会想回家，而不是回来面对一个定时炸弹的问题。”
+最后就是世界的所有的未来的货币，绝对不是国家主权
+The future currency in the world is definitely not a national sovereign currency
 
-麦康奈尔和参议院多数党领袖查克·舒默（Chuck Schumer）经过数周的谈判，达成了债务限额协议，成为一项突破。
+你完全是垄断的，是不可能的
+No more the sovereign state monopoly
 
-共和党人希望民主党人通过预算和解的方式通过一个更持久的借款限额增长。调解将使民主党人能够以简单的多数票通过提高债务限额，并规避共和党的拉锯战。
+所以人类到了一个真正的时代
+So mankind has come to a new era
 
-对民主党人的不利之处在于，和解将迫使他们为债务上限指定一个美元数字，并使他们在2022年中期选举前对国债的过高部分负责。
+包括未来，我飞到月球上去安家
+In the future, I will make my home on the moon
 
-共和党还认为，延长上限的苦差事应该由民主党人承担，因为拜登政府正试图利用同样的程序来通过数万亿的气候和扶贫支出。
+我跟马斯克，到火星上上安家去，你告诉我，你怎么限制我货币？
+I’m with Musk, go up to Mars to settle down, you tell me, how do you limit my currency?
 
-如果麦康奈尔坚持他的威胁，不接受共和党的支持，那么民主党人除了和解之外就没有什么选择了，因为参议院是50%：50%。
+你限制不了我货币
+You can’t
 
-由于受到 “拉锯战 “的威胁，参议院的大多数法案至少需要60票。尽管如此，关于借款上限的妥协可能会让双方都松一口气。
+因为它是一个两星球之间的币，过去是两国之间——一个星球上的币，完全两回事儿
+Because it’s currency between two planets, it used to be between two countries – a currency on a planet, totally different thing
 
-民主党人为自己争取了几个月的时间，以理清他们在数百万美元的健康、教育和气候方案上的党内分歧，并在众议院通过一个平行的基础设施法案。
+这是两星球，未来可能多个星球，多星球的货币怎么可能一样
+This is just two planets, maybe multiple planets in the future , how can the currency of multiple planets be the same one
 
-共和党人认为，短期上限协议将约束民主党人在12月提高债务上限。
+所以说，这就是我们新中国联邦的厉害
+This is what makes our New Federal State of China so great
 
-麦康奈尔上周在向民主党人扩展其妥协方案时声称，到12月，拜登、舒默和众议院议长南希·佩洛西（Nancy Pelosi）（加州）将无法声称他们缺乏足够的时间来管理债务限额和他们的政策议程。
+你们绝对不知道新中国联邦有多厉害
+You have absolutely no idea how powerful the New Federal State of China is
 
-**简评：**
+你们绝对不知道我们有什么规划
+You absolutely have no idea about what we have planned
 
-**美国经济的崩塌、世界经济的崩溃，在今天看来这些即将发生的事情已经避免不了了。中共潜心多年，已经完全绑架了美国的经济。面对中共国内已经发生的地产“暴雷”，中共国经济的全面崩塌是在所难免的事情。已经被中共国深度绑架的美国，现在提高债务上限的做法，无疑是在“拆东墙、补西墙”，任何做法都无济于事。因为中共那些贪婪的盗国贼们，早已经把中共国掏空；邪恶的黑暗力量，早已把世界掏空。与此同时，美国投入中共国的那些基金，也会“竹篮打水一场空”。**
+你们绝对不知道我们有什么武器
+You absolutely have no idea about what weapons we have
 
-**暂时的提高债务上限，也只是在崩塌前的苟延残喘。也许美国乃至全世界都应该好好想一想，现在发生的这一切，到底是因为什么？如果现在依旧相信中共的任何谎言和承诺，那么接下来所迎接的，只能是彻底的“死亡”。**
+————————————————————
 
-（文章仅代表作者观点，与GNEWS无关）
+**原视频链接:** [https://twitter.com/se1y7cblljselva/status/1445680480041328656?s=24](https://twitter.com/se1y7cblljselva/status/1445680480041328656?s=24)
 
-**新闻来源：**[www.cnbc.com](https://www.cnbc.com/2021/10/12/house-passes-debt-limit-hike-to-avoid-default.html)
+Date:10/8/2021
+原视频日期：2021/10/05
+任务编号：KC167（2450）
+视频时间段 : 0:00-1:30
 
-* * *
+英听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校: 洛杉矶盘古农场 – Raul
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-*审核：蚂蚁兄弟*
-*校对：阿伯塔*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

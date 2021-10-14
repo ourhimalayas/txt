@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/14/2021 12:03 AM (UTC)`
+
+10月13号：【经过战友同意，分享一位战友的经历。<br/>推文内容战友自己编写、她没有推。<br/>       <br/>  我十几年的炎症已好了90%'，早上吃药后一直在散结。<br/>注意，不可喝酒。】
+![img](https://media.gettr.com/group39/getter/2021/10/14/00/03/e999607f-ee9d-9d4c-3827-f1c3ed5d44b4/d855f558bf95ff33dca364ef837a2897.jpg)
+
+---
+
+`@miles 10/13/2021 11:58 PM (UTC)`
+
+10月13日：杀戮还在继续，只是刚刚开始。【661 people died within 28 days of having the vaccine in Maine USA, However, the Maine CDC Director, Dr. Nirav Shah refused to be drawn on those deaths <br/>缅因州661人在接种完疫苗28天死亡。然而缅因州的CDC主任 Dr.Nirav Shah 拒绝对这些死亡展开调查】
+![img](https://media.gettr.com/group25/getter/2021/10/13/23/58/ee03c549-10d6-caef-82e7-5467b264d188/out.jpg)
+
+---
+
 `@miles 10/13/2021 10:01 PM (UTC)`
 
 Henry Reitzug博士：在注射带有被改造氨基酸的新冠mRNA疫苗进入人体后，人体变成一个生产刺突蛋白的工厂，而刺突蛋白对人体是致命的。接种新冠mRNA疫苗的人改变了自身先天免疫系统，表现在癌症发病率的增加，已经缓解的癌症被重新激活，复发率越来越高。<br/><br/>Dr. Henry Reitzug: After injecting the COVID mRNA vaccines with modified amino acids into the human body, the body becomes a factory for producing spike protein that is lethal to the human body. People who have had the mRNA injected have changed their innate immune system, which leads to the increasing incidence of cancer. The remission of cancer is reactivated, and the recurrence rate is getting higher and higher.
@@ -53,7 +67,6 @@ Henry Reitzug博士：在注射带有被改造氨基酸的新冠mRNA疫苗进入
 `@miles 10/13/2021 4:48 PM (UTC)`
 
 10月13号：我们中国人连这个老狮子的待遇都混不上……如果你老在中国……想自己挖个坑把自己埋了，永远不可能。中国人太可怜了，太可悲了。
-> `@shangjinge 10/13/2021 4:42 PM (UTC)`<br/>有尊嚴的老去！🙏🏻🙏🏻🙏🏻
 
 ---
 
@@ -285,20 +298,6 @@ Gettr prohibited these followings:<br/><br/>1. No racial discrimination is allow
 
 10月9号：我的天呢，太让我感动了……我们亲爱的战友小酒窝和他巨帅的先生……
 ![img](https://media.gettr.com/group14/getter/2021/10/09/15/21/d0c8ff46-6cfb-85ae-c9ff-95b866e2b829/out.jpg)
-
----
-
-`@miles 10/9/2021 3:19 PM (UTC)`
-
-10月9号：尊敬的战友们好，你们健身了吗？传播疫苗．C C P病毒的解药和真相了吗？今天七哥不录盖特视频了……正在看真人真事的节目，明天我们一起继续大直播……一切都已经开始。
-![img](https://media.gettr.com/group1/getter/2021/10/09/15/19/e13ec833-5a82-0798-dac9-b09473743ba6/out.jpg)
-
----
-
-`@miles 10/9/2021 1:49 PM (UTC)`
-
-脸书禁止人们提及众所周知的疫苗伤害<br/><br/>Facebook prohibits people from mentioning the vaccine injuries that we're all aware of<br/>
-![img](https://media.gettr.com/group43/getter/2021/10/09/13/49/9bb504ff-d9a7-52c5-f6d6-58ca652d2b8e/out.jpg)
 
 ---
 
