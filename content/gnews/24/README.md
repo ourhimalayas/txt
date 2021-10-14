@@ -2,10 +2,10 @@
 ---
 
 
-## 辉瑞正式向FDA提出让5到11岁的孩子接种COVID-19疫苗
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1592375/)
+## 联邦法官准许纽约医护人员对疫苗强制政策申请宗教豁免
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1592514/)
 
-作者：香草山医疗部 – 圣母院钟声
+作者：香草山写作组 – 文一
 
 
 
@@ -13,15 +13,13 @@
 
 
 
-辉瑞及其德国合作伙伴BioNTech于10月7日向美国食品和药物管理局（FDA）递交了申请。大约一周前，他们提交的数据表明，该疫苗在第2，3阶段临床试验中成功引发了5至11岁儿童的抗体反应。但试验的完整结果尚未公布。辉瑞的相同mRNA疫苗先前已经获准用于12至17岁的儿童。他们最近的儿童试验根据FDA的建议，对剂量进行了调整，给儿童一个两次接种的方案，每次10微克，成年人的剂量是30微克。FDA的疫苗顾问团将于10月26日开会审查疫苗对5-11岁儿童的有效性和安全数据。
+10月12号，一名联邦法官暂时允许纽约的医护人员对该州的新冠疫苗强制政策申请宗教豁免。上个月，17名医护人员，许多匿名提起诉讼，反对纽约州卫生部的疫苗强制政策及不允许宗教豁免。美国地区法官大卫-赫德周二作出裁决，批准了一项初步禁令，允许医护人员申请其雇主考虑的宗教豁免。赫德还禁止卫生部对那些寻求或获得宗教豁免的医护人员的执照、证书、居住权或其他专业身份采取纪律处分或其他行动。
 
-白宫新冠疫情协调员杰弗里·齐恩茨（Jeffrey Zients）告诉CNN记者， “一旦辉瑞的请求通过CDC和FDA的审核，对5-11岁美国孩子的疫苗接种可以在感恩节前获得批准，我们将为此做好准备。“ 过去数月世界多国的临床科研机构所发表的研究表明，辉瑞疫苗对新冠感染和至重症保护的有效性随着时间的推移而急剧下降。以色列等国在完成全民接种后的高感染率是最好的例证。此外，辉瑞公司的三名科学家最近被暗访记录承认，因感染新冠病毒而获得的自然免疫力远优于疫苗所能提供的保护。
+本案原告的首席律师赞扬了法官的裁决。称”通过这项裁决，法院正确地认识到，昔日抗疫的’前线英雄’突然被当作携带病毒的恶棍，被州卫生局一纸命令踢到路边。抗议疫苗任务的医护人员这样做是因为他们反对被迫接种使用 “堕胎 “的 “胎儿细胞系 “的疫苗。
 
-在欧洲一些国家已经明确不再强制30岁以下年轻人接种疫苗的时候，美国政府还在一意孤行，可见大疫苗商已经买下大多数政策制定者。在为时太晚之前，美国的父母及民众有责任站出来保护他们的未来。
+纸终将包不住火，主流媒体也开始慢慢转变风向。
 
-参考链接：
-
-[https://www.theepochtimes.com/mkt\_morningbrief/pfizer-formally-asks-drug-regulators-to-let-kids-as-young-as-5-get-its-covid-19-vaccine\_4036989.html](https://www.theepochtimes.com/mkt_morningbrief/pfizer-formally-asks-drug-regulators-to-let-kids-as-young-as-5-get-its-covid-19-vaccine_4036989.html)
+参考链接：[https://www.msn.com/en-us/news/us/federal-judge-allows-health-care-workers-in-new-york-to-apply-for-religious-exemptions-to-covid-19-vaccine-mandate/ar-AAPqyzN](https://www.msn.com/en-us/news/us/federal-judge-allows-health-care-workers-in-new-york-to-apply-for-religious-exemptions-to-covid-19-vaccine-mandate/ar-AAPqyzN)
 
 编辑/审核/发稿：正义的小新
 

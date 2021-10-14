@@ -2,45 +2,35 @@
 ---
 
 
-## 中共国计划禁止私营企业参与媒体、出版和网络平台
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1592595/)
+## 英格兰银行：制定加密货币规则是一个 &#8220;紧迫的问题
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1592742/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-239.png)2019年5月15日，中共国国家主席习近平在北京发表讲话时出现在电视摄像机屏幕上。
-执政的中国共产党(CCP)已制定了禁止私人投资媒体的计划，这是一项目前正在实施的监管改革计划，其目的是加强国家对私营企业的控制。
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/cryptocurrencies.jpg)图片来源：moneycontrol.com
+#### 整理报道：小红帽
 
-根据10月8日国家发展和改革委员会 (SDRC)在其官网上发布的拟议规则修改建议中说，它正在征求公众意见，将私营企业对媒体机构的投资列入禁止投资清单。
+英格兰银行副行长乔恩·康利夫（Jon Cunliffe）周三表示，鉴于加密货币行业的快速增长以及商定新标准所需的时间，监管机构需要迅速制定一套针对加密货币的规则。
 
-该清单旨在全国适用，不因地方而异，要求“没有公共部门投资的组织不得从事新闻采编、广播业务。”
+“国际和许多司法管辖区的监管机构已经开始这项工作。这需要作为紧急事项来解决，”康利夫在 SIBOS 会议上的演讲中说。【注：**SIBOS**(SWIFT International Banker’s Operation Seminar)是SWIF组织召开的金融服务行业的标志性年度国际会议，在金融服务领域具有重要的国际影响力。】
 
-声明称，被禁止的组织将包括新闻机构、报业出版集团、电台或电视广播公司，以及在线新闻、编辑服务或出版商的供应商。
+上周，全球监管机构提议，他们适用于系统性清算所和支付系统的保障措施也应适用于稳定币。**稳定币是一种通常由资产或法定货币支持的加密货币。**
 
-该建议书由国家广播电影电视总局、新闻出版总署、网信办签署。
+帮助领导保护措施工作的康利夫表示，**起草这项措施花了两年时间，在此期间，稳定币增长了16倍。**
 
-私人投资者也被禁止投资政治、经济、军事或外交组织，以及“主要社会、文化、技术、卫生、教育、体育和其它服务”。禁止投资的拟议清单说，特别是不得有私营部门参与“政治和公众舆论引导或价值导向”的投资。
+康利夫说，目前加密技术应用对金融稳定的风险有限，但有许多“非常好的理由”认为这种情况可能不会持续很长时间。
 
-以前，国家新闻出版总局（GAPP）的任务只是“指导和监管”私营部门参与新闻和出版物。
+“事实上，将加密货币世界有效地纳入监管范围内，将有助于确保将这项技术应用于金融的潜在巨大收益并以一种可持续的方式蓬勃发展，”康利夫补充道。
 
-山西大学一位罗姓退休讲师说，中央政府不再相信私营部门向公众提供意识形态指导。
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-“政府正在确保控制自己的信息，不会将笔交给其他任何人，”罗说。“它想要一个支配一切的声音来统治一切。”
+**参考新闻：**[Cryptocurrency rules a ‘matter of urgency’, Bank of England’s Cunliffe says | WTVB | 1590 AM · 95.5 FM | The Voice of Branch County (wtvbam.com)](https://wtvbam.com/2021/10/13/cryptocurrency-rules-a-matter-of-urgency-bank-of-englands-cunliffe-says/)
 
-简评：自习近平2012年上台以来，中共不断加强对公开言论和媒体的控制。这种洗脑意味着你不能批评或与之争论。如果你这样做，你将被所有中共的小粉红包围，国家可以通过执法系统来抓捕你。他们在1949年使用军事力量和宣传手段夺到了权力。而新闻媒体，笔杆子的力量一直是CCP巩固该政权的一个非常重要的支柱。
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-原文链接: [https://www.rfa.org/english/news/china/media-private-10112021130926.html](https://www.rfa.org/english/news/china/media-private-10112021130926.html)
-
-翻译/简评：希望
-
-PR：Julia Win
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

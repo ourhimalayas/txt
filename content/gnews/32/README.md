@@ -2,37 +2,33 @@
 ---
 
 
-## 前情报官员质疑拜登对中台敌对行动毫无准备
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1592310/)
+## 邪恶阴谋集团制造了新冠病毒并促使“它”大流行
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1592361/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：香草山写作组 – 晓仙女
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/A-5.jpg)yoninetanyahu.com
-《新闻纵横》发表文章，“里克·格雷内尔（Ric Grenell）：政府对中共等其它问题毫无准备”。
 
-全文如下：
 
-拜登政府还没有准备好应对世界各地正在发生的事情，更不用说如果中共和台湾之间的敌对行动升级会发生什么，前大使兼国家情报局代理副局长里克·格雷内尔（Ric Grenell）周二（10月12日）在《新闻纵横》上说。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-格雷内尔与前国防部长副助理安珀·史密斯（Amber Smith）一起出现在了《新闻纵横》的《约翰·巴赫曼现在》（John Bachman Now）节目中，他评论说：“在乌克兰，我们看到10万俄军驻扎在边境上，他们没有为也门发生的事情做好准备，他们没有为叙利亚发生的事情做好准备，因为俄罗斯接管并试图操纵整个地区。”
 
-他继续说，如果再加上中共和台湾，外交手段可能不足以避免危险。
 
-格雷内尔说：“你知道，我在国务院工作了11年，我是一名外交官，我将尽我所能解决这些问题，
+10 月 6 日《美国伟大》报道：一位世界著名的精神病学家Breggin表示：包括福奇、比尔盖茨和世界经济论坛创始人施瓦布在内的精英，组成的邪恶阴谋集团创造了新冠病毒大流行，并将毒疫苗推向公众。
 
-我非常欣赏五角大楼的一件事是，他们谈论军事行动威胁与可信的军事行动威胁之间的区别。美利坚合众国需要可信的军事行动作后盾，当我们在谈判时，这将有助于坐在谈判桌旁的外交官，我们就能做到不战以屈人之兵。”
+Breggin指出，两种已被证明有助于抗击新冠病毒的治疗方法——伊维菌素和羟氯喹，既便宜又安全，可阴谋集团阻止这种治疗，并与中国共产党合作，以增加对世界的巨大剥削。Breggin的书中详细解释了盖茨于2010年成立了“疫苗十年”项目，组建了一个“全球主义者”委员会，以实施一项全球疫苗行动计划。
 
-格雷内尔还呼吁国务院进行改革，有些外交官“运用’秀肌肉’的外交手段。”
+在新冠病毒起源未清楚的情况下，冠状疫苗的问世显然缺乏科研的严谨性，而各国政府诱导人们进行实验注射，甚至通过就业、征收更高的医疗保险费率、拒绝提供医疗保健、疫苗护照等手段，迫使不情愿接种疫苗的人们注射疫苗。正如郭文贵先生所说：新冠病毒是共产党制造的生化武器，预谋投放于世界，新冠病毒的大流行也是阴谋集团促成的结果。
 
-与此同时，史密斯说，美国对中共国的依赖到了“完全失控”的地步。她说：“任何与我们国家安全有关的事情都应该禁止进入中共国，不幸的是，就我们的供应链而言，这现在几乎是不可能的，但它只是向你展示了我们与中共国的联盟有多深，有这么多东西，这完全失控了，我们需要意识到，我们对中共国的依赖正在损害我们自己的国家安全。”
+参考链接 [https://amgreatness.com/2021/10/06/world-renowned-psychiatrist-global-predators-fauci-gates-and-schwab-behind-the-covid-reign-of-terror](https://amgreatness.com/2021/10/06/world-renowned-psychiatrist-global-predators-fauci-gates-and-schwab-behind-the-covid-reign-of-terror/)
 
-（原文完）
+编辑/审核/发稿：正义的小新
 
-文章虽然不长，的确反映了美国高层一部分人对中共的了解，对美国现状的担忧，以及对拜登无能的质疑a。如果对邪共的认知再提高一些，或许就能理解拜登政府的所作所为，就能清楚参谋长联席会议主席为何瞒着总司令与中共进行“通敌电话”，就能解释情报机构出台的病毒溯源报告为何撇清了与中共的关系，还有文贵先生近来多次强调的司法黑幕等。这就是美国乃至西方，甚至整个世界的现状，邪魔中共的渗透无所不在，要员、要害部门都是重灾区。所以灭共的重要环节就是觉他，让西方、世界彻底认清中共对本国的渗透，文贵先生已经启蒙世界近5年了，大大地阻击了邪恶，并引领世界向反击、消灭中共等罪恶势力的方向发展。战友们紧跟文贵先生，加油！
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-（文章仅代表作者个人观点）
-
-原文链接：
-
-[https://www.newsmax.com/newsmax-tv/ric-grenell-amber-smith-china-biden/2021/10/12/id/1040195/](https://www.newsmax.com/newsmax-tv/ric-grenell-amber-smith-china-biden/2021/10/12/id/1040195/)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

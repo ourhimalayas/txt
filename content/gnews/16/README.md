@@ -2,33 +2,57 @@
 ---
 
 
-## 联邦法官准许纽约医护人员对疫苗强制政策申请宗教豁免
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1592514/)
+## 美国军方大主教表示军队可以对 COVID 疫苗使用宗教豁免
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1592643/)
 
-作者：香草山写作组 – 文一
+作者：Ian Miles Cheong
+![](https://assets.gnews.org/wp-content/uploads/2021/10/大主教.png)
+天主教军事服务大主教已经裁定，如果乔·拜登总统要求所有武装部队成员接受疫苗天主教军队希望他们将使用联邦授权的宗教豁免，他们可以拒绝接种 COVID-19 疫苗。
 
+大主教蒂莫西·P·布罗里奥 (Timothy P. Broglio) 在周二的一份声明中说：“除非有人违反了他或她神圣的良心，否则任何人都不应该被迫接受 COVID-19 疫苗。”
 
+根据该法令，无论是否在疫苗开发中使用了与堕胎相关的组织，都应允许部队仅出于良心而拒绝接种疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+DefenseOne报道称，布罗里奥此前曾支持乔拜登的强制接种令，引用教会的指导方针，允许天主教徒在没有其他疫苗可用的情况下接受可能来自胎儿组织的疫苗。
 
+在天主教新闻社援引Broglio表达了他在8月份疫苗任务的支持，并指出，天主教会，包括Pope Francis，“已经认识到疫苗的道德问题。”
 
+大主教补充说，虽然个人有权根据良心反对强制接种疫苗，但教会的教义也应该告知这一点。
 
-10月12号，一名联邦法官暂时允许纽约的医护人员对该州的新冠疫苗强制政策申请宗教豁免。上个月，17名医护人员，许多匿名提起诉讼，反对纽约州卫生部的疫苗强制政策及不允许宗教豁免。美国地区法官大卫-赫德周二作出裁决，批准了一项初步禁令，允许医护人员申请其雇主考虑的宗教豁免。赫德还禁止卫生部对那些寻求或获得宗教豁免的医护人员的执照、证书、居住权或其他专业身份采取纪律处分或其他行动。
+Broglio 周二的信正式确定了对天主教军队的豁免，解释了辉瑞和 莫德纳疫苗如何使用“堕胎衍生细胞系”进行测试，但未使用该材料开发或生产，因此不被视为违反天主教教义，因为它是“与邪恶的远程物质合作。” 相比之下，问题较多的强生疫苗是用人工流产细胞系开发、测试和生产的。
 
-本案原告的首席律师赞扬了法官的裁决。称”通过这项裁决，法院正确地认识到，昔日抗疫的’前线英雄’突然被当作携带病毒的恶棍，被州卫生局一纸命令踢到路边。抗议疫苗任务的医护人员这样做是因为他们反对被迫接种使用 “堕胎 “的 “胎儿细胞系 “的疫苗。
+“如果它是唯一可用的疫苗，那在道德上是允许的，但忠实的天主教徒应该表明他或她对更道德上可接受治疗的偏好，”布罗里奥写道。
 
-纸终将包不住火，主流媒体也开始慢慢转变风向。
+“信仰教义会审查了这些道德问题，并判断接受这些疫苗’不构成直接堕胎细胞的使用’，因此没有罪，”布罗里奥解释说。
 
-参考链接：[https://www.msn.com/en-us/news/us/federal-judge-allows-health-care-workers-in-new-york-to-apply-for-religious-exemptions-to-covid-19-vaccine-mandate/ar-AAPqyzN](https://www.msn.com/en-us/news/us/federal-judge-allows-health-care-workers-in-new-york-to-apply-for-religious-exemptions-to-covid-19-vaccine-mandate/ar-AAPqyzN)
+尽管允许天主教军队免于接种疫苗，但布罗里奥表示，教会珍视他关于良心神圣的教导。当一些军队质疑教会允许接种疫苗是否超过了他们自己的反对意见时，布罗里奥回答说“没有”。
 
-编辑/审核/发稿：正义的小新
+总教区解释说：
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+尽管这些疫苗在道德上是允许的，但教会珍视他关于良心神圣的教导。“良心是一个人最隐秘的核心的避难所。在那里，他与上帝独处，他的声音在他的深处回荡。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+圣保禄六世写道：在他的所有活动中，一个人必须遵循他的良心，以便他可以来到上帝面前，达到生命的目的。因此，不得强迫他以违背良心的方式行事。另一方面，也不应该限制他按照自己的良心行事，尤其是在宗教事务上。
+
+因此，任何人都不应被迫接受 COVID-19 疫苗，如果这违反了他或她的良心的神圣性。
+
+军事服务大主教管区由天主教会于 1985 年创建，管理着 220 个军事基地的 180 万军人及其家人。布罗里奥于 2007 年被教皇本笃十六世任命为该职位。
+
+Reference: https://www.rebelnews.com/archbishop\_for\_us\_military\_says\_troops\_can\_use\_religious\_exemption\_for\_covid\_vaccine
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
