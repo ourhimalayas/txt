@@ -2,42 +2,25 @@
 ---
 
 
-## 洛杉矶港口将24小时运作以解决航运严重堵塞问题
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1593017/)
+## 疫苗灾情｜NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1593082/)
 
-翻译： 纽约香草山健身部 – Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国最大的港口之一洛杉矶港口，将开始每天24小时运作，以试图尽快处理滞留在外面的货船长龙。这是为了缓解可能导致今年圣诞节货物短缺的全球供应问题。
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 14/10/2021**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/0-4.jpg)
+***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
 
-在附近的长滩港采取类似举措后，加州洛杉矶港将24小时运作，以便在夜间处理更多货物。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/26-2.jpg)
 
-随着经济的解锁和消费者需求的回升，全球供应链已经被打乱。美国零售商急于补充库存，但是，亚洲主要港口和工厂的大规模停工，导致问题更加严重。加州港口积压的货船创下纪录。美国的主要海运门户，洛杉矶和长滩港受到了严重打击。8月份，洛杉矶不得不比平时处理多了30%的集装箱，而长滩则多了23%。9月的一天，创纪录的73艘船被迫在外面排队等候泊位。在Covid之前，每天有超过一艘船需要等待的情况并不常见。
+【美国】亚特兰大老鹰队一名 26 岁的 NBA 球员 Brandon Goodwin 在接种 COVID-19 疫苗后不久出现血栓。 Brandon 是老鹰队的前控球后卫，由于 COVID-19 疫苗导致血栓，他目前已经离开老鹰队，而且未同任何其他球队签约。
 
-今年早些时候，拜登政府成立了一个供应链工作组，并任命了一名港口特使，以寻找解决问题的办法。洛杉矶港和长滩港现在都将提供更多夜班和周末时间，以便他们能够更快地卸货。周三，沃尔玛、UPS、联邦快递、三星、家得宝和塔吉特同意加强他们在港口的夜间作业，这应该有助于每周多清理3500个集装箱。
+Brandon 回忆指自己在接种疫苗后的一个月内，觉得背痛剧烈，经诊治后发现，他的身体有血液凝块。他 在 Twitch 直播中表示，“我生病了，我一直没有完全康复，我总是背痛，我觉得我不能再在球场上跑来跑去了。”
 
-拜登政府希望该计划也能释放供应链其他部分的能力，包括美国的高速公路、铁路和仓库。美国总统拜登周三会见了零售业老板和工会负责人，他说他计划对美国的港口进行历史上最大的投资，作为尚未通过参议院的10万亿美元（7.3亿英镑）基础设施法案的一部分。
+Brandon 透露，老鹰队告诉他，不要对外界说任何关于疫苗的事，但是，Brandon 质疑道，“人们总在试图说，这不是疫苗造成的，但是，你们是怎么知道的？在我接种疫苗之前我身体很好，我百分百确定是疫苗结束了我的赛季。”
 
-他对记者说：“我们的目标不仅是度过眼前的瓶颈，而且要解决这场大流行病所暴露的我们运输供应链中长期存在的缺陷。希望让美国公司更容易在本土制造产品。”拜登说：“我们再也不应该过分依赖世界上的一家公司或一个国家或一个人，特别是不认同我们价值观的国家。”
+这位前老鹰队球员惋惜的表示，自本赛季起，自己很有可能不会在 NBA 打球了，COVID-19 疫苗导致他的血液凝块之后，他的 NBA 职业生涯就结束了。
+Brandon 在 Twitch 直播中透露了这一消息
+来源｜ [个案026](https://www.msn.com/en-us/sports/more-sports/former-atlanta-hawks-guard-brandon-goodwin-claims-covid-19-vaccine-ended-his-season/ar-AAP5ADP)
 
-参考链接：[LA port to open round the clock to tackle shipping queues](https://www.bbc.com/news/business-58901777)
+* * *
 
-**本文代表作者观点**
-
-![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
-
-**校对/发稿：童谣**
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//
