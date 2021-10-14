@@ -2,127 +2,50 @@
 ---
 
 
-## 希望不同肤色的人收到正确的信息并得到拯救
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1593616/)
+## 日本强调加强网络安全
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1593642/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2473.png)
-[https://gtv.org/video/id=61671480d2e2b8174874c4da](https://gtv.org/video/id=61671480d2e2b8174874c4da)
+据《亚洲时报》记者：ADITYA PAREEK，2021年10月11日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2514.png)2014 年 12 月 3 日，搭载隼鸟 2 号小行星探测器的 H-2A 火箭从日本鹿儿岛县种子岛航天中心发射升空。据信日本宇宙航空研究开发机构 (JAXA) 已成为网络攻击的目标。照片来源：法新社/读卖新闻
+网络安全一直是日本国家安全机构非常关注的问题，政府已发誓要对此采取行动。
 
-今天我们再说回到疫苗的时候
-Hoy cuando tocamos de nuevo con el tema de las vacunas
+5 月，日本媒体报道称，2017年至2019年间，日本宇宙航空研究开发机构 (JAXA) 成为重大网络攻击的目标，网络攻击也影响了其他日本实体。
 
-你能想到
-Puedes pensar
+据称，这次攻击是由中共国军方的战略支援部队 (SSF) 协调的，涉及一名来自中共国的信息技术专业人员和臭名昭著的黑客组织“Tick”，据称该组织与中共国政府有联系。
 
-所有人都想着自己活下去
-Todas las personas piensan en seguir viviendo
+另一个重大的运营和信息安全问题在 6 月曝光，当时日本国民Kazuo Miyasaka因将高科技军事机密（包括与美国 X-37B 太空飞机有关的文件）传递给据称是俄罗斯情报人员而被捕。据称，Miyasaka 是通过（大概是数字）查询数据库访问了这些信息。
 
-自己得了病, 然后没事
-No pasa nada a pesar que estoy enfermo
+9 月 27 日，日本政府对其网络安全战略草案进行了修订，该草案将继续作为未来三年日本社会各部门网络政策制定和管理的指导文件。文件为实现网络安全目标提出了熟悉的“整个政府”和“整个生态系统”的论点。
 
-有多少人真心想过
-Cuántas personas han pensado de corazón
+该战略最显着的看点是毫不犹豫地将中共国、俄罗斯和北朝鲜列为网络威胁。
 
-让中国人甚至全世界人
-Que los chinos, incluso todas las personas del mundo
+该战略文件称，中共国发动网络攻击的动机是希望“从与军事有关的公司和拥有先进技术的公司窃取信息”，这是对中共国政府在全球范围内实施的知识产权盗窃行为的明确的确认。
 
-不要让疫苗给害死
-No sean asesinados por la vacuna
+对俄罗斯而言，给出的原因是该国试图通过网络攻击“施加影响以实现军事或政治目标”，这可能暗指俄罗斯在日本境内外的所谓“灰色地带”活动。俄罗斯虽然不是日本的直接对手，但俄罗斯不喜欢日本与美国的密切关系，认为破坏日本与美国的相互信任和高科技军事机密分享是一个可行的发展方向。
 
-多少人醒来丈夫死在床上
-Cuántas personas han despertado con su esposo muerto en la cama
+与平壤在其他地方的作案手法一致，朝鲜民主主义人民共和国发动网络攻击的原因被强调为“施加影响以实现军事或政治目的，或获取外汇”。
 
-多少人醒来孩子死在床上
-Cuántas personas han despertado con su hijo muerto en la cama
+例如，网络攻击造成了孟加拉国中央银行将近 810 亿美元被盗，以及针对索尼的网络攻击“是报复电影《采访》，这是一部描述朝鲜领导人被暗杀的滑稽喜剧。”
 
-多少人醒来老婆死在床上, 家人死在床上
-Cuántas personas han despertado con su esposa muerta en la cama
+值得注意的是，该文件还关注了网络安全中一个经常被忽视的方面，即供应链风险，这可能会严重限制了一个国家获得现代数字通信技术优势的潜力。一些学者认为，“网络封锁”的维度也可能部分是物理的，通过影响数字通信基础设施达到目的。
 
-多少人突然间倒地
-Cuántas personas se han desmayado de repente
+在大流行后，世界半导体短缺持续影响所有行业的各个方面，这种担忧是及时的，并且很可能会出现在世界其他地方的类似战略出版物中。
 
-你看有多少人
-Mire cuántas personas
+被称为“四国”安全对话的印太战略集团（日本是其中的成员），就高科技合作主题进行了重要审议。半导体供应链和网络安全合作，在“四国”领导人首次面对面会议后发布的最新情况说明书中占据重要位置。
 
-有多少人内心为别人想的
-Cuántas personas piensan por los demás
-我可以毫不惭愧地说
-Puedo decirles sin vergüenza
+还值得注意的是日本与他的“四国”合作伙伴印度的双边接触，这可能会导致单独的网络安全协议。
 
-兄弟姊妹们
-Hermanos y hermanas
+日本在网络安全和高科技合作方面的这些综合举措，无论是在单边、双边，还是在“四国”等多边论坛上，都令人印象深刻。
 
-我真的希望没有种族没有肤色的
-Realmente espero que no importa la raza o el color de la piel
+近年来，日本也更愿意让自卫队 (SDF) 参与网络安全等领域，这些领域代表着民用和军用空间之间的灰色地带。文件断言，“自卫队将努力从根本上加强网络防御能力，例如，加强网络相关部门的规范。”
 
-收到我们的信息, 正确地拯救
-Puedan recibir nuestros mensajes y que sean correctamente rescatados
+总之，该文件还暗示日本希望发展和部署“探测、追查和分析网络攻击的能力，以便日本能够识别攻击者并追究他们的责任”，从而将这种状态从单纯的防御性提升到积极的强制执行。
 
-全世界少一点人被疫苗给弄死
-Menos personas de este mundo sean muertos por la vacuna
+文章来源：[https://asiatimes.com/2021/10/japan-aims-to-toughen-up-its-cybersecurity/](https://asiatimes.com/2021/10/japan-aims-to-toughen-up-its-cybersecurity/)
 
-太惨了
-Esto es horrible
-
-我可以告诉大家
-Les puedo decir a todos
-
-我知道的多少信息
-Todas las informaciones que tengo
-
-很多人打成忧郁症
-A muchas personas les ha dado depresión después de vacunarse
-
-说我这是等着死呢
-Lo que hacen es esperar la muerte
-
-现在像国内的很多朋友, 原来对咱半信半疑的
-Muchos amigos de China sospechaban de nosotros
-
-现在说七哥
-Y ahora me dicen
-
-我们怎么能把这弄掉
-Cómo hacemos para desquitarnos de esto
-
-我都睡不好觉了
-Ya no puedo dormir bien
-
-啥时候死都不知道
-No sé en qué momento voy a morir
-
-他说我都准备好遗书了
-Él dice que ya tengo preparado la nota de suicidio
-
-我真的跟他们建议
-Y yo realmente les sugerí
-
-如果你真打了三针以上
-Si te vacunaste más de tres dosis
-
-你就准备好遗书
-Entonces prepare la nota de suicidio
-
-你最起码有50%的机率
-Al menos tienes el 50% de probabilidad
-
-未来三五年内会嗝屁
-De que te mueras en los próximos tres a cinco años
-
-* * *
-
-日期：10/13/2021
-原视频标题：希望不同肤色的人收到正确的信息并得到拯救
-Espero que las personas de diferentes colores de piel reciban la información correcta y sean rescatadas
-原视频日期：10/07/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1446018877662531588?s=24](https://twitter.com/se1y7cblljselva/status/1446018877662531588?s=24)
-任务编号：KC170（2473）
-视频时间段：0:00-1:14
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
