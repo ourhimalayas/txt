@@ -2,20 +2,22 @@
 ---
 
 
-## 雅典娜时报-第081期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1592610/)
+## 莆田一案被官方隐藏的细节
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1592778/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+撰稿：东京樱花团/ThreeColors
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-242.png)[图片来源](https://www.ey.com/en_ie/assurance/unethical-behavior-among-the-biggest-risks-facing-irish-business)
+根据中国新闻网报道，10月10日13时许，莆田秀屿区平海镇发生了一起重大的刑事案件。嫌疑人是一个55岁的欧姓男子。嫌犯入室杀人，致2死3伤，3名伤者中还包括一个10岁的儿童。此事件彻底的引爆了网络。让人奇怪的是，网民们一边倒的同情和支持嫌犯欧某。这是为什么呢？事件的起因又是什么呢？
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/10/30.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/31.png)
-（文章内容仅代表作者个人观点，与GNEWS无关）
+原来欧某5月28日曾在微博上公开求助。上面说他400多平米的房子，于2017年被判为危房要拆除之后，欧某获得了官方拆危房建新房的批准。但是遭到了黑势力的阻止至今没有开建。村霸持续阻止他建房，他向上级部门还有当地政府求助终无果。此外，根据莆田当地一个了解欧某的网友说，欧某在30年前曾救过一个落水的6岁男童。后来欧某因为挽救孩子而还生了一场大病。不仅如此，欧某还曾因为救过一头海豚而被当地报纸报道过。这样的一个人，被迫和他80多岁的母亲在临时搭建的铁皮雨棚里居住了5年。在这漫长的5年里，持续维权的欧某没有等来任何公正的处理。
 
-***发布：小红帽***
+到底是什么导致欧某5年的时间里都不能建自己的房子？村霸为何可以持续阻挡和霸凌欧某呢？为何欧某上访无果？到底是什么造成了当地政府的不作为？被霸凌的欧某最终选择了悲剧的结果吗？怀着这些个疑问再来看当地警方是如何悬赏欧姓嫌犯的。悬赏细节是：发现活着的欧某会被奖励2万，而发现死了的欧某则会被奖励5万。发现死了的会多得3万的悬赏金？！这样的悬赏很容易鼓励人们找到已经死了的嫌犯欧某。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+莆田当地还以破案为理由，封锁了一些公共设施，目的是限制记者在当地对事件的起因细节的探究。欧某在经历了5年的努力无果之下，不再相信中共政府而选择了自己了结。良民往往就是这样被逼上绝路的。
+
+消息来源：[福建莆田发生重大刑案致2死3伤 知情人称嫌疑人“曾跳海救小孩”](https://news.ifeng.com/c/8AJNmTlw43K)
+
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)

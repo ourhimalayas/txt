@@ -2,32 +2,40 @@
 ---
 
 
-## 有声|喜币在虚拟币世界里能存在，发展，壮大的三个主要原因
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1592896/)
+## 德州州长发布行政命令，禁止任何实体实施强制疫苗令
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1592976/)
 
-配音：香草山教育部-蒙古鸿雁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-网站Coinopsy 追踪并归纳了所有已经死掉的虚拟币及致死原因。在2,300个短命的虚拟币中，1542个是被遗弃的或是没有交易量的，占67%。位居第二的是欺诈，有482个，占21%。第三类就是初始发行不利，有239个。
+**据《dfw.cbslocal.com》 2021年10月11日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/azkwc-eydcd.jpg)
+德州奥斯汀（CBSDFW.COM）——州长格雷格-艾博特于10月11日星期一发布了一项行政命令，指出德州的任何实体都不能强迫任何个人接受COVID-19疫苗接种。
 
-虚拟币从诞生到现在不过十几年的时间，参差不齐的开发者，投资者，赌徒等都想在这个新兴产业中分一杯羹。那么什么样的虚拟币能胜出呢？网站theconversation.com的一篇文章给出了很好的答案。
+根据该行政命令，这包括，任何出于个人良知、基于宗教信仰或医疗原因，包括之前从COVID-19中恢复并自然免疫等原因而反对接种这种疫苗的雇员或消费者。
 
-首先是资金雄厚。资本的大小决定了开发团队的实力。新中国联邦的喜币在郭先生和大基金的运作下，在研发，推广，上市等各个方面都会是胜人一筹。
+艾博特州长还向众议院首席秘书和参议院秘书发出信息，将此问题作为一个项目加入第三届特别会议议程。
 
-其次是稳定性。文章说虚拟币要想成功的两个原因是人们相信它并且愿意用它。喜币固定的总发行量，与黄金挂钩的可靠性，以及G生态圈的实用性都标志着随着时间的推移，越来越多的人们会相信，接受并使用喜币。
+**该行政命令将在类似立法通过后被撤销。**
 
-文章最后提到虚拟币也要“为真不破”。币虽然是虚的，但确真真正正是为了普通百姓的自由服务，对抗强权。喜币正是在爆料革命灭共的前提下应运而生。它是亿万普通草根的金融诺亚方舟。
+艾博特州长在一份声明中说：“COVID-19疫苗作为应对病毒的防御手段，但应该保持自愿性，绝不能强迫。”
 
-喜币，既不是第一个也不会是最后一个虚拟币，但它一定是最棒，最灿烂的那个。
+德克萨斯州的多个学区不顾州长格雷格-艾博特（Greg Abbott）早先的禁令，强制要求戴口罩以防止COVID-19的传播。
+该州已对这些地区提起诉讼。
 
-文字版原文：[喜币在虚拟币世界里能存在，发展，壮大的三个主要原因](https://gnews.org/zh-hans/1590736/)
+副州长丹-帕特里克在推特上表示，他赞同艾博特州长的新行政命令。
+他说：“我一直公开表示自己正在接种疫苗。但我一直说接种COVID疫苗是个人决定，不应该由国家或私人雇主强迫任何人。现在已经开始了，参议院将迅速采取行动，处理这个问题。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/cvc-1.png)
+行政命令宣布后不久，艾博特州长的2022年选举共和党初选中，唐-赫芬斯宣布胜利，“迫使格雷格-艾博特扭转（他）对疫苗授权的立场”。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+德克萨斯州最近看到新的COVID-19病例和住院人数有所减少。
+
+但是，最近由Delta变体引起的死亡人数激增，使该州自2020年大流行开始以来的总死亡人数迅速接近67000人。
+
+**原文连接：**[https://dfw.cbslocal.com/2021/10/11/gov-greg-abbott-executive-order-banning-vaccine-mandates-entity/](https://dfw.cbslocal.com/2021/10/11/gov-greg-abbott-executive-order-banning-vaccine-mandates-entity/)
+
+翻译：洛杉矶盘古农场- TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 柯镇恶
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

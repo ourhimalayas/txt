@@ -2,35 +2,16 @@
 ---
 
 
-## 英格兰银行：制定加密货币规则是一个 &#8220;紧迫的问题
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1592742/)
+## 美国联邦政府道德办公室前主任抨击政府回避总统之子高价卖画问题
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1592842/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/cryptocurrencies.jpg)图片来源：moneycontrol.com
-#### 整理报道：小红帽
+#### 翻译：致敬香港！
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/7-9.jpg)图片来源： nationalreview
+据福克斯新闻（Fox News）10月13日报道，关于亨特·拜登高价出售自己艺术作品一事，美国联邦政府道德事务办公室前主任肖布（Walter Shaub）批评拜登政府回避记者提问。
 
-英格兰银行副行长乔恩·康利夫（Jon Cunliffe）周三表示，鉴于加密货币行业的快速增长以及商定新标准所需的时间，监管机构需要迅速制定一套针对加密货币的规则。
+关于亨特的艺术事业，白宫新闻秘书普萨基（Jen Psaki）早在 7 月就宣布政府“已经建立了一个系统”，保障这个事情不违反政府的道德规范，其中的措施之一就是买家会匿名。而《纽约邮报》（New York Post）上周五报道，亨特以每幅 75,000 美元的价格售出了五幅自己的作品，一个律师团队正在审查即将参与该纽约展览的潜在买家。该报记者纳尔逊 (Steven Nelson) 就此事向普萨基询问，此举似乎背离了“购买者须是匿名”这条白宫与中介间的约定。普萨基回答，“我知道这是你最喜欢的话题。但是我们不知道、也不会知道谁购买了画作。总统仍然为他的儿子感到自豪。”
 
-“国际和许多司法管辖区的监管机构已经开始这项工作。这需要作为紧急事项来解决，”康利夫在 SIBOS 会议上的演讲中说。【注：**SIBOS**(SWIFT International Banker’s Operation Seminar)是SWIF组织召开的金融服务行业的标志性年度国际会议，在金融服务领域具有重要的国际影响力。】
+政府道德办公室前主任肖布就此事发推，批评普萨基未正面回答公众的合理问题，她传递的令人遗憾的信息是，白宫认为公众无权询问道德问题。对于拜登政府允许亨特以高价出售其作品，肖布6月曾对福克斯新闻表示，“总统的儿子利用特殊身份、以明显的高价出售艺术品，而公众对于谁在向他汇钱一无所知，这是卑鄙可耻的。”
 
-上周，全球监管机构提议，他们适用于系统性清算所和支付系统的保障措施也应适用于稳定币。**稳定币是一种通常由资产或法定货币支持的加密货币。**
-
-帮助领导保护措施工作的康利夫表示，**起草这项措施花了两年时间，在此期间，稳定币增长了16倍。**
-
-康利夫说，目前加密技术应用对金融稳定的风险有限，但有许多“非常好的理由”认为这种情况可能不会持续很长时间。
-
-“事实上，将加密货币世界有效地纳入监管范围内，将有助于确保将这项技术应用于金融的潜在巨大收益并以一种可持续的方式蓬勃发展，”康利夫补充道。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Cryptocurrency rules a ‘matter of urgency’, Bank of England’s Cunliffe says | WTVB | 1590 AM · 95.5 FM | The Voice of Branch County (wtvbam.com)](https://wtvbam.com/2021/10/13/cryptocurrency-rules-a-matter-of-urgency-bank-of-englands-cunliffe-says/)
-
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**新闻来源：**[Former Obama ethics official slams Biden White House for avoiding questions on Hunter Biden’s artwork](https://www.foxnews.com/media/former-obama-ethics-official-slams-biden-white-house-avoiding-questions-hunter-bidens-artwork)

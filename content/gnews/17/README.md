@@ -2,32 +2,41 @@
 ---
 
 
-## 有声|GETTR现场直击：全球首例新冠疫苗国家诉讼案在日本开庭
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1592806/)
+## 摩根大通CEO抨击比特币“一文不值”，需要受到监管
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1592882/)
 
-配音：香草山教育部-蒙古鸿雁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-全球首例新冠疫苗受害者国家诉讼案，今晨在东京地方裁判所民事部开庭，新中国联邦日本方舟农场GETTR团队现场追踪。
+【简评：】*在萨尔瓦多、洪都拉斯等众多国家和地区欢迎比特币的同时，摩根大通CEO却坚持认为没有政府监管的比特币毫无价值。这一观点也与文贵先生不谋而合，即比特币终将归零。然而比特币代表不了所有虚拟货币，从BTC的涨势丝毫没受到戴蒙观点的影响来看，未来虚拟货币必将是一种趋势，而Himalaya Coin和Himalaya Dollar的出现必将变革整个金融货币体系，带领人们走向更美好的未来。*
 
-该案件对日本国会内阁总理菅义伟、内阁官房长官加藤勝信，以及厚生劳动省大臣、新冠病毒防治担当大臣和疫苗接种大臣等众官员，提起国家诉讼，要求被告取消根据《传染病预防及传染病患者医疗法》将新冠病毒作为指定传染病的政令，取消根据传染病法将新冠病毒传染病定义为“新型流感传染病”的决定措施， 并要求被告不可以将新冠病毒传染病作为传染病防治。
+据《路透社》记者：Elizabeth Dilts Marshall、David Henry，2021年10月11日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-240-e1634180047375.png)2021 年 6 月 7 日拍摄的这张图片中展示了虚拟加密货币的代表比特币。图片来源：路透社/Edgar Su
+《路透社》纽约10月11日 —— 摩根大通首席执行官杰米•戴蒙（Jamie Dimon）在周一的会议上表示，**加密货币将受到政府的监管**，他个人**认为比特币“一文不值”。**
 
-该案件还要求被告取消对辉瑞疫苗、阿斯利康疫苗和武田制药疫苗的特批，确认原告等对这些疫苗没有预防接种的义务。
+“无论任何人怎么想，**政府都会对比特币进行监管，将出于（反洗钱）目的、出于（银行保密法）目的或出于税收目的，对其进行监管**。”戴蒙说， 他在国际金融协会(IIF,Institute of International Finance)举行的一次视讯谈话中提到了银行监管。
 
-除此之外，案件要求被告不可使用PCR检查来判定是否感染新冠病毒，不可发行疫苗护照和病毒阴性证明，并向原告各支付30万日元。
+作为美国最大银行的CEO，**戴蒙一直是数字货币的直言不讳的批评者，他曾称比特币是一种欺诈行为**，后来又表示他对这一说法感到后悔。
 
-该案件由日本反疫苗诉讼支援会代表疫苗受害者出庭。开庭前夕，该会会长鵜（tí）川和久在接受GETTR采访时表示，他们协会为全日本疫苗受害者提供义务法律支持。他说：“日本的疫苗受害者现在处于无处发声，孤独无助的状态。”
+今年夏天，摩根大通允许其财富管理的客户买卖加密货币基金，这意味着该银行的财务顾问可以接受客户对五种加密货币产品的买卖指令。
 
-该国家诉讼案为全球首例，或将开启全世界新冠疫苗受害者 通过法律途径捍卫自身利益、揭露疫苗真相的浪潮。日本当地民众对该事件强烈关注，据方舟农场前线记者传来的信息，现场人满为患，只得采取抽签方式入场，更多的民众则冒雨撑伞等待着开庭结果。
+戴蒙表示，他的观点与摩根大通其他人及其董事会的观点不同，他仍然对加密货币持怀疑态度。
 
-文字版原文：[GETTR现场直击：全球首例新冠疫苗国家诉讼案在日本开庭](https://gnews.org/zh-hans/1589522/)
+**“我个人认为，比特币毫无价值。”戴蒙说**，“我也认为人们也不应该抽烟。”  “我们的客户都是成年人。他们不同意（比特币毫无价值的观点）。如果他们想要购买或出售比特币，我们不能监管，但我们可以给他们提供合法的、尽可能干净的交易权限。”
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+比特币交易没有立即对戴蒙的评论做出反应。该加密货币当天上涨 5% 至 57,304 美元。
+
+原文连接：[https://www.reuters.com/business/jpmorgans-dimon-blasts-bitcoin-worthless-due-regulation-2021-10-11/](https://www.reuters.com/business/jpmorgans-dimon-blasts-bitcoin-worthless-due-regulation-2021-10-11/)
+
+
+
+（本文评论仅代表个人观点）
+
+翻译/评论：洛杉矶盘古农场 – 钢蛋儿
+
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – 明子
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,20 +2,32 @@
 ---
 
 
-## 美国土安全部将在纽约测试防御生物武器攻击应急能力
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1592833/)
+## 有声|喜币在虚拟币世界里能存在，发展，壮大的三个主要原因
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1592896/)
 
-#### 翻译：billwilliam
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-24.jpg)图片来源：hubpages.com
-零对冲援引NBC纽约电视4台报道称，美国国土安全部本月将在纽约市的120处地点测试防范生物武器攻击的应急能力，测试点包括地铁系统。
+配音：香草山教育部-蒙古鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+网站Coinopsy 追踪并归纳了所有已经死掉的虚拟币及致死原因。在2,300个短命的虚拟币中，1542个是被遗弃的或是没有交易量的，占67%。位居第二的是欺诈，有482个，占21%。第三类就是初始发行不利，有239个。
 
-据报道，纽约大都会交通局（MTA）、国土安全部、以及其它研究人员将释放一种无害的气体来模拟生物或化学武器攻击。测试将于10月18日至29日在纽约市120处地点进行。届时如果市民闻到异样气味，政府建议大家请勿惊慌，因为测试气体无毒。大部分测试地点位于地面，比如公园等处，但有一些测试将在地铁站进行，具体地下测试数字并未公布。
+虚拟币从诞生到现在不过十几年的时间，参差不齐的开发者，投资者，赌徒等都想在这个新兴产业中分一杯羹。那么什么样的虚拟币能胜出呢？网站theconversation.com的一篇文章给出了很好的答案。
 
-据称，此次测试的目的是为了模拟“在人口稠密的城市环境下，生物制剂的气溶胶投放”。纽约大都会交通局称，此项测试将追踪无害气体的扩散，并研究路面和地下环境中气流的关系。换句话说，就是如果出现生物制剂攻击，气溶胶会飘到哪里。
+首先是资金雄厚。资本的大小决定了开发团队的实力。新中国联邦的喜币在郭先生和大基金的运作下，在研发，推广，上市等各个方面都会是胜人一筹。
 
-此项研究属于联邦政府一个名为“城市威胁扩散”的秘密项目。纽约上次进行这种测试是2016年，其它如华盛顿特区和波士顿等城市也进行过类似测试。
+其次是稳定性。文章说虚拟币要想成功的两个原因是人们相信它并且愿意用它。喜币固定的总发行量，与黄金挂钩的可靠性，以及G生态圈的实用性都标志着随着时间的推移，越来越多的人们会相信，接受并使用喜币。
 
-如果在平常时期，这或许只是一次例行的安全测试。然而，在中共投放病毒生物武器的背景下，此次测试显得尤为重要。测试中积累的宝贵数据未来可以帮助救援纽约市民，如果出现大规模生物武器攻击。
+文章最后提到虚拟币也要“为真不破”。币虽然是虚的，但确真真正正是为了普通百姓的自由服务，对抗强权。喜币正是在爆料革命灭共的前提下应运而生。它是亿万普通草根的金融诺亚方舟。
 
-信息来源：[Feds Deploy Non-Toxic Gas On Subway In Test Of Biological Attack Preparedness](https://www.zerohedge.com/political/feds-deploy-non-toxic-gas-subway-test-biological-attack-preparedness)
+喜币，既不是第一个也不会是最后一个虚拟币，但它一定是最棒，最灿烂的那个。
+
+文字版原文：[喜币在虚拟币世界里能存在，发展，壮大的三个主要原因](https://gnews.org/zh-hans/1590736/)
+
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
