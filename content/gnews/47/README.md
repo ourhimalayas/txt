@@ -2,25 +2,38 @@
 ---
 
 
-## 疫苗灾情｜NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1593082/)
+## 大流行供应链危机：消费者不能指望像以前那样购物
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1593062/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 14/10/2021**
+【**简评】美国尚且食品供应短缺，中共国内恐怕情况会更糟。大家应当未雨绸缪，做好周全的准备。**
 
-***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
+**据《布雷巴特新闻网》作者：PENNY STARR，2021年10月12日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl-11.jpg)**图片源自《布雷巴特新闻网》**
+乔-拜登总统和他的商务部、劳工部和运输部未能解决导致美国港口和跨国运输的供应备份的供应链危机，因为左翼媒体把责任完全推给了冠状病毒。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/26-2.jpg)
+美国有线电视新闻网（CNN）的一份报告说，消费者不能指望像在“以前”那样购物，并强调制造商警告说食品供应有限。
 
-【美国】亚特兰大老鹰队一名 26 岁的 NBA 球员 Brandon Goodwin 在接种 COVID-19 疫苗后不久出现血栓。 Brandon 是老鹰队的前控球后卫，由于 COVID-19 疫苗导致血栓，他目前已经离开老鹰队，而且未同任何其他球队签约。
+如果你希望今年秋天和冬天的零售店会像“以前”那样，在零食、饮料、糖果和冷冻食品货架上有无限的选择，请准备好接受一些令人失望的消息。
 
-Brandon 回忆指自己在接种疫苗后的一个月内，觉得背痛剧烈，经诊治后发现，他的身体有血液凝块。他 在 Twitch 直播中表示，“我生病了，我一直没有完全康复，我总是背痛，我觉得我不能再在球场上跑来跑去了。”
+根据CNN查看的电子邮件和对食品商的采访，许多美国最大的食品制造商表示，由于劳动力、商品和运输方面的限制，他们将限量供应一些产品，包括Rice Krispies Treats、Sour Patch Kids、Ben & Jerry的一些冰淇淋口味、McCormick美食香料和Marie Callender的锅饼。一些供应商还告诉零售商，将取消这些商品的促销活动，以及在假期中的更多促销活动，这样产品就不会很快从商店货架上断货。
 
-Brandon 透露，老鹰队告诉他，不要对外界说任何关于疫苗的事，但是，Brandon 质疑道，“人们总在试图说，这不是疫苗造成的，但是，你们是怎么知道的？在我接种疫苗之前我身体很好，我百分百确定是疫苗结束了我的赛季。”
+纽约地区连锁店的销售总监史蒂夫-施瓦茨（Steve Schwartz）说，制造商的采购限制在大流行之前是很少见的，而且正在为莫顿-威廉姆斯店的顾客创造“非全品类选择”的体验。莫顿-威廉姆斯公司正在尝试在其食品和家庭必需品的主要供应商无法完成补货订单时，启用二级供应商。
 
-这位前老鹰队球员惋惜的表示，自本赛季起，自己很有可能不会在 NBA 打球了，COVID-19 疫苗导致他的血液凝块之后，他的 NBA 职业生涯就结束了。
-Brandon 在 Twitch 直播中透露了这一消息
-来源｜ [个案026](https://www.msn.com/en-us/sports/more-sports/former-atlanta-hawks-guard-brandon-goodwin-claims-covid-19-vaccine-ended-his-season/ar-AAP5ADP)
+施瓦茨说：“这不是理想状况。”，[顾客]“只是想知道为什么他们不能得到他们的物品”。
 
-* * *
+CNN报道说，好市多和山姆俱乐部以及其他零售店将再次限制顾客的购买。
+而一家供应跟踪公司的数据显示，根据IRI的数据，在截至10月3日的一周内，18%的饮料、15%的冷冻食品、16%的零食、15%的糖果和18%的烘焙食品在商店里缺货。
 
-他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//
+**原文连接**：[https://www.breitbart.com/politics/2021/10/12/cnn-on-supply-chain-crisis-consumers-cant-expect-to-shop-like-pre-pandemic-before-times](https://www.breitbart.com/politics/2021/10/12/cnn-on-supply-chain-crisis-consumers-cant-expect-to-shop-like-pre-pandemic-before-times)/
+
+**文章点评仅代表个人观点**
+
+翻译：洛杉矶盘古农场- TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – 柯镇恶
+编辑：洛杉矶盘古农场 – 柯镇恶
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

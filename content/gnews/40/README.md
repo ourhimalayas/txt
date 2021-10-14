@@ -2,27 +2,128 @@
 ---
 
 
-## 秘翻在线：美国前线医生组织就疫苗强制令起诉凯泽永久集团
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1593632/)
+## 希望不同肤色的人收到正确的信息并得到拯救
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1593616/)
 
-#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2473.png)
+[https://gtv.org/video/id=61671480d2e2b8174874c4da](https://gtv.org/video/id=61671480d2e2b8174874c4da)
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-249.png)
-图片来源：The Mercury News
+今天我们再说回到疫苗的时候
+Hoy cuando tocamos de nuevo con el tema de las vacunas
 
-据《美国前线医生》网站报道，在美国前线医生（AFLDS）组织的支持下，约翰·霍华德（John Howard）律师和戴维利耶律师事务所（Davillier Law Group）10月7日向美国加利福尼亚州北区的地方法院递交了诉讼书，指控美国最大的医疗保健机构之一凯泽永久 (Kaiser Permanente)集团。该集团强制要求其所有21万7000名员工在2021年9月30日之前接种中共病毒疫苗，否则将被安排休无薪假，起诉书对此提出质疑。另外，如果员工直到2021年12月1日还未接种疫苗，他们将被解雇。超过4000名员工已为此向美国前线医生组织寻求民事援助。
+你能想到
+Puedes pensar
 
-AFLDS一直在直言不讳地指出，疫苗强制令在法律上是非法的，在科学上是不安全的。这些疫苗并不能阻止德尔塔变种病毒的传播，它只能作为个人的医疗选择。它们是不安全的，因为它们导致接种者成为病毒载量极高的超级传播者，而且接种者比未接种者的病情更加严重，住院率和死亡率也更高。此外，世界其它地方已在使用更有效和更安全的方法来防范疫情。例如，拥有2.4亿人口的印度北方邦已经宣布 “新冠病例清零”。北方邦的疫苗接种率非常低，但伊维菌素的使用率非常高。
+所有人都想着自己活下去
+Todas las personas piensan en seguir viviendo
 
-AFLDS的诉讼部主任迈克·汉密尔顿（Mike Hamilton）对这起上诉表示赞赏，他说：“现在是时候了，医护人员和所有员工都可以对自己的身体做出选择。“AFLDS的医学副主任理查德·阿莫灵（Richard Amerling）博士也再次重申了这一点，他说：“疫苗并不能阻止病毒的传播，全世界已经证明有安全和有效的替代疗法。”
+自己得了病, 然后没事
+No pasa nada a pesar que estoy enfermo
 
-凯泽永久集团声称，它只是遵守美国疾控中心（CDC）的指导方针。CDC无权强制要求所有个人接种疫苗，这为凯泽永久这样的许多机构提供了借口，威胁员工说“不打疫苗就不能工作”。但是，作为全国最大的医疗保健企业，凯泽永久集团拥有巨大的权力。事实证明，该集团与本应独立行事的决策者之间存在着一种乱伦关系。诉讼书透露，CDC、美国食品药品监督管理局（FDA）与凯泽集团步调一致，都强制要求接种疫苗。本案的首席律师乔治·温茨（George Wentz）律师说：“凯泽公司不能说他们是在遵守CDC的决策 ，因为他们实际上为CDC做了大部分决策。”申诉书显示，凯泽公司控制了向CDC提供建议的疫苗安全数据链（VSD）和向FDA提供建议的免疫接种咨询委员会（ACIP）。因此，凯泽公司是在为国家并代表国家行事，并受宪法和法规的约束。
+有多少人真心想过
+Cuántas personas han pensado de corazón
 
-凯泽公司的疫苗强制令违反了宪法和加州法律。他们违反了宪法第14修正案的正当程序条款和平等保护条款、加州宪法、侵犯隐私、公开披露私人事实、破坏个人的计算机化信息的安全、以及故意造成人们精神痛苦。申诉书称，该强制令侵犯了多种固有的宪法权利，包括许多被最高法院确认为是最基本的权利，即“生命权”、“财产权”、“自由权”、“身体完整权 (Bodily integrity) ”和与隐私有关的权利。
+让中国人甚至全世界人
+Que los chinos, incluso todas las personas del mundo
 
-霍华德律师和温茨律师就利用雅各布森诉马萨诸塞州案（Jacobson v. Massachusetts）的宪法论点进行了探讨，他们从两个方面对雅各布森案进行了区分。首先，雅各布森案适用的是一次性小额经济处罚，而不是失业或无法就业这样的严重处罚。其次，中共病毒的死亡率仅为0.1%（德尔塔变种流行后甚至更低），这与1905年天花爆发时33%的死亡率相差甚远。
+不要让疫苗给害死
+No sean asesinados por la vacuna
 
-民权组织美国前线医生的创始人西蒙尼·戈尔德 (Simone Gold)博士说：“凯泽案是我们的阿拉莫之战。如果我们允许强大的利益集团践踏人权，强迫人们注射一种大多数人已经免疫的病毒，而且工作年龄段的美国人对这种病毒有99.98%以上的存活率，那么他们将继续侵犯人们的自由。此外，凯泽集团的行为也是非常可耻的。他们的恶行远远超过了用失业来威胁员工。他们与联邦以及州政府配合，通过完全和永久的行业失业来胁迫员工。”
+多少人醒来丈夫死在床上
+Cuántas personas han despertado con su esposo muerto en la cama
 
-新闻来源：[AFLDS FILED A COMPLAINT AGAINST KAISER PERMANENTE](https://americasfrontlinedoctors.org/2/press_releases/aflds-filed-a-complaint-against-kaiser-permanente/)
+多少人醒来孩子死在床上
+Cuántas personas han despertado con su hijo muerto en la cama
+
+多少人醒来老婆死在床上, 家人死在床上
+Cuántas personas han despertado con su esposa muerta en la cama
+
+多少人突然间倒地
+Cuántas personas se han desmayado de repente
+
+你看有多少人
+Mire cuántas personas
+
+有多少人内心为别人想的
+Cuántas personas piensan por los demás
+我可以毫不惭愧地说
+Puedo decirles sin vergüenza
+
+兄弟姊妹们
+Hermanos y hermanas
+
+我真的希望没有种族没有肤色的
+Realmente espero que no importa la raza o el color de la piel
+
+收到我们的信息, 正确地拯救
+Puedan recibir nuestros mensajes y que sean correctamente rescatados
+
+全世界少一点人被疫苗给弄死
+Menos personas de este mundo sean muertos por la vacuna
+
+太惨了
+Esto es horrible
+
+我可以告诉大家
+Les puedo decir a todos
+
+我知道的多少信息
+Todas las informaciones que tengo
+
+很多人打成忧郁症
+A muchas personas les ha dado depresión después de vacunarse
+
+说我这是等着死呢
+Lo que hacen es esperar la muerte
+
+现在像国内的很多朋友, 原来对咱半信半疑的
+Muchos amigos de China sospechaban de nosotros
+
+现在说七哥
+Y ahora me dicen
+
+我们怎么能把这弄掉
+Cómo hacemos para desquitarnos de esto
+
+我都睡不好觉了
+Ya no puedo dormir bien
+
+啥时候死都不知道
+No sé en qué momento voy a morir
+
+他说我都准备好遗书了
+Él dice que ya tengo preparado la nota de suicidio
+
+我真的跟他们建议
+Y yo realmente les sugerí
+
+如果你真打了三针以上
+Si te vacunaste más de tres dosis
+
+你就准备好遗书
+Entonces prepare la nota de suicidio
+
+你最起码有50%的机率
+Al menos tienes el 50% de probabilidad
+
+未来三五年内会嗝屁
+De que te mueras en los próximos tres a cinco años
+
+* * *
+
+日期：10/13/2021
+原视频标题：希望不同肤色的人收到正确的信息并得到拯救
+Espero que las personas de diferentes colores de piel reciban la información correcta y sean rescatadas
+原视频日期：10/07/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1446018877662531588?s=24](https://twitter.com/se1y7cblljselva/status/1446018877662531588?s=24)
+任务编号：KC170（2473）
+视频时间段：0:00-1:14
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,23 +2,34 @@
 ---
 
 
-## 拒做政治花瓶，民主党不参选香港立法会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593717/)
+## 美国陆军部长称中共威胁全球第一
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593759/)
 
-作者：七哩香
+作者：在远方
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-10月12日，作为香港民主派最大政党的民主党公布，立法会选举的党内甄选提名期截止，没有党员报名参选。此举意味着民主党不会参加12月19日举行的香港立法会选举，这是民主党首次不参选立法会。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1014AM（1、2、6、7）視頻備用.001.jpeg)
-继2020年实施港区国安法后，中共大幅修改选举制度，取消民主派议员资格，解散公民组织，逮捕民主派人士，已完全操控了香港的政治。民主派和香港民众已看清中共的邪恶意图，不惧中共以“触犯国安法”威胁、不配合中共搞选秀、不当中共的政治花瓶。
+
+
+在美国陆军协会11日年会上，陆军部长克里斯汀·沃穆思表示，当前美国面临一系列来自独裁国家和恐怖组织的挑战，例如俄罗斯、朝鲜、伊朗和伊斯兰国，但最为突出的第一威胁是中共。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1014-AM-（3-5）.003.jpeg)
+随着美国中东反恐战告一段落，和在阿富汗的全面撤军，面对中共亚太地区军事扩张，及国内疫情真相追责和大选干涉调查，美军已经把全球防务战略重点转向遏制和威慑中共。
+
+沃穆思称中共一直在学习过去美国的战斗经验，同时具备了先进的太空、网络和信息战能力。在这些高端战场上，美军尚未充分考虑到所有的挑战，守旧的想法已成为阻碍进展的强大障碍。
+
+全球安全格局挑战着现代美国和西方国家，这些威胁包括网络、极端暴力主义和共产主义数十年的渗透。俄罗斯和中共的联合，增加了邪恶势力对民主的破坏性，中共已上升为世界头号威胁。沃穆思警告说，美国需要准备应对中共与俄罗斯对美国本土的直接攻击。
 (本文仅代表作者观点)
 
-参考链接：[香港民主党新选制下不参选立法会 民调指53%民主派支持者反对参选](https://www.voachinese.com/a/hk-reactions-to-democratic-party-won-t-contest-upcoming-legco-elections-20211013/6269251.html)
+参考链接：
+
+1. [美陆军部长：中国是美国第一威胁 陆军年会展示最新武器装备](https://www.voachinese.com/a/us-army-weapons-show-20211013/6270103.html)
+2. [Christine Wormuth](https://chinaus-icas.org/biden-administration-international-affairs-personnel-tracker/biden-personnel-tracker-defense-and-security/christine-wormuth-secretary-of-the-army/)
+3. [AUSA NEWS: Wormuth Insists Army Has Role to Play in Indo-Pacific](https://www.nationaldefensemagazine.org/articles/2021/10/11/wormuth-defends-army-modernization-costs)
+
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-新闻访谈终审：文龙
+新闻访谈终审：暗黑
 编辑/校正/发稿：我不在这里
 
 **更多资讯，更多关注**

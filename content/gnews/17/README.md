@@ -2,25 +2,36 @@
 ---
 
 
-## 苹果大健康布局曝光：Airpods有望成为体温计、助听器
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1593876/)
+## 六四纪念雕塑将遭移除 ,丹麦雕塑家对峙港大
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593974/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/21-8.jpg)[图片来源](https://www.google.com/search?q=%E8%8B%B9%E6%9E%9C%E5%A4%A7%E5%81%A5%E5%BA%B7%E5%B8%83%E5%B1%80%E6%9B%9D%E5%85%89%EF%BC%9AAirpods%E6%9C%89%E6%9C%9B%E6%88%90%E4%B8%BA%E4%BD%93%E6%B8%A9%E8%AE%A1%E3%80%81%E5%8A%A9%E5%90%AC%E5%99%A8&amp;rlz=1C1YKST_enUS900US901&amp;hl=en&amp;sxsrf=AOaemvLspjbP-p-g4QxHwH_mNDlUskBwWQ:1634217169914&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwjdxpev_cnzAhXTKaYKHSk2AMMQ_AUoAnoECAIQBA&amp;biw=1366&amp;bih=625&amp;dpr=1#imgrc=lv0W8hoBPOqn5M)
-今年iPhone13系列对于很多果粉而言，苹果在创新方面缺少了一些诚意，但在其他产品线上，苹果倒没闲着。
+作者：FoxRina
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+丹麦雕塑家高志活纪念八九·六四天安门大屠杀的雕塑作品「国殇之柱」将遭到香港大学的移除，高已聘请了律师和外交官处理此事，并表示如果他高达8 米的六四大屠杀遇难者雕像遭到破坏，他将起诉香港大学。
 
-据华尔街日报援引知情人士透露，苹果公司正在研究如何在小小的Airpods上面加入读取体温、增强听力以及监测人体姿势等新功能，将健康检测功能从Apple Watch扩展至Airpods上面。不过，这些功能预计不会在明年推出。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-22.jpeg)
 
-此前就有报道称，苹果正在与加州大学洛杉矶分校(UCLA)和百健合作，借助iPhone研究面部表情、打字指标等敏感数据来检测用户的抑郁症、认知能力下降等精神健康问题。
+高志活是这位关注中国人权的丹麦雕塑家的中文名字，和他的丹麦姓名发音相近。高志活是中国大陆人权的关注者，国际人权组织橙色运动发起人之一，并因其人权艺术活动在2009年访港时遭到中共拒绝入境。
 
-配合Apple Watch、iPhone，苹果希望提供更全面的健康监测服务。
+雕塑“国殇之柱”1997年由以组织天安门广场大屠杀遇难者年度追悼会而闻名的香港市民支援爱过民主运动联合会向其雕塑者无限期借用，并安置在香港大学，是中国境内纪念六四的唯一雕塑。高大的雕塑上布满了扭曲的面孔，震撼地描绘了天安门广场大屠杀的受害者，强烈引发观者的深思与悲愤。
 
-信息来源：
+由于国安法暴政和香港民主的全面沦陷，支援会于上个月被迫解散，部分成员被捕或被拘留中。港大高层要求支援会于本周三下午5点之前对雕塑完成拆除，否则将被视为放弃。
 
-[苹果的大健康布局：研究Airpods的助听器、体温读取等用途](https://new.qq.com/omn/20211014/20211014A00KOW00.html)
+然而该雕塑仍为其创作者所拥有，估价约为1200 多万瑞典克朗。高志活现已在香港聘请律师处理此案，并寻求丹麦官员的外交帮助，以保护这座雕塑，或至少确保该雕塑可以毫无损坏地从香港大学移走。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+(本文仅代表作者观点)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+参考链接：[Dansk staty om massakern vid Himmelska fridens torg skapar storbråk i Hongkong](https://kinamedia.se/2021/10/14/dansk-staty-om-massakern-vid-himmelska-fridens-torg-skapar-storbrak-i-hongkong/)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：FoxRina
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
