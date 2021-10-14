@@ -2,36 +2,128 @@
 ---
 
 
-## 台湾半导体产业对全世界有多重要？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1593527/)
+## 希望不同肤色的人收到正确的信息并得到拯救
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1593616/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2473.png)
+[https://gtv.org/video/id=61671480d2e2b8174874c4da](https://gtv.org/video/id=61671480d2e2b8174874c4da)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/台湾半导体产业对全世界有多重要1.jpg)[图片来源](https://www.inside.com.tw/article/22660-taiwan-semiconductor-industry-2020)
+今天我们再说回到疫苗的时候
+Hoy cuando tocamos de nuevo con el tema de las vacunas
 
-集微网消息，知名半导体分析机构IC Insights将于本月晚些时候发布《2021-2025年全球晶圆产能报告》，报告内容涵盖半导体产业对台湾自身以及世界的重要性。
+你能想到
+Puedes pensar
 
-在 IC Insights 看来，未来全球经济增长越来越依赖于先进电子系统的持续发展。这些系统中的关键组件是集成电路，没有它就无法拓展先进的电子系统。
+所有人都想着自己活下去
+Todas las personas piensan en seguir viviendo
 
-台湾人口有2400万，半导体产业对其有多重要？
+自己得了病, 然后没事
+No pasa nada a pesar que estoy enfermo
 
-数据显示，截至 2020年12月，台湾在全球任何国家或地区半导体产能占比中是最高的。此外，中国大陆和台湾半导体产能份额相加，将占全球总产能的37%左右，约为北美的3倍。
+有多少人真心想过
+Cuántas personas han pensado de corazón
 
-以台积电为首，台湾在全球领先（即&lt;10nm）的芯片产能中占有最大份额（63%，如下图），以三星为代表的韩国持有剩余的 37%。
+让中国人甚至全世界人
+Que los chinos, incluso todas las personas del mundo
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/台湾半导体产业对全世界有多重要2.png)（图片：全球各区域在芯片不同工艺节点上的占比）
+不要让疫苗给害死
+No sean asesinados por la vacuna
 
-台湾本土公司占岛内总产能的近90%。岛内少数的非本土晶圆厂有美国Diodes，拥有的一个小型6英寸晶圆厂，以及美光拥有的两个先进的12英寸DRAM 晶圆厂（分别是桃园的Fab 11晶圆厂，每月产能为10万零8000片，和台中Fab 16 晶圆厂，产能为月产能 10万片）。
+多少人醒来丈夫死在床上
+Cuántas personas han despertado con su esposo muerto en la cama
 
-台湾拥有全球22%的12英寸晶圆产能，紧随韩国的25%。相比之下，北美仅占11%。
+多少人醒来孩子死在床上
+Cuántas personas han despertado con su hijo muerto en la cama
 
-台湾半导体总产能约80%来自代工生产。预计到 2021 年，台湾的纯代工厂（即台积电、联电、力积电等）将占全球纯代工市场总量的近 80%。目前，全球没有比台湾更重要的半导体生产基地。
+多少人醒来老婆死在床上, 家人死在床上
+Cuántas personas han despertado con su esposa muerta en la cama
 
-[信息来源](https://laoyaoba.com/n/794983)
+多少人突然间倒地
+Cuántas personas se han desmayado de repente
 
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
+你看有多少人
+Mire cuántas personas
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
+有多少人内心为别人想的
+Cuántas personas piensan por los demás
+我可以毫不惭愧地说
+Puedo decirles sin vergüenza
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+兄弟姊妹们
+Hermanos y hermanas
+
+我真的希望没有种族没有肤色的
+Realmente espero que no importa la raza o el color de la piel
+
+收到我们的信息, 正确地拯救
+Puedan recibir nuestros mensajes y que sean correctamente rescatados
+
+全世界少一点人被疫苗给弄死
+Menos personas de este mundo sean muertos por la vacuna
+
+太惨了
+Esto es horrible
+
+我可以告诉大家
+Les puedo decir a todos
+
+我知道的多少信息
+Todas las informaciones que tengo
+
+很多人打成忧郁症
+A muchas personas les ha dado depresión después de vacunarse
+
+说我这是等着死呢
+Lo que hacen es esperar la muerte
+
+现在像国内的很多朋友, 原来对咱半信半疑的
+Muchos amigos de China sospechaban de nosotros
+
+现在说七哥
+Y ahora me dicen
+
+我们怎么能把这弄掉
+Cómo hacemos para desquitarnos de esto
+
+我都睡不好觉了
+Ya no puedo dormir bien
+
+啥时候死都不知道
+No sé en qué momento voy a morir
+
+他说我都准备好遗书了
+Él dice que ya tengo preparado la nota de suicidio
+
+我真的跟他们建议
+Y yo realmente les sugerí
+
+如果你真打了三针以上
+Si te vacunaste más de tres dosis
+
+你就准备好遗书
+Entonces prepare la nota de suicidio
+
+你最起码有50%的机率
+Al menos tienes el 50% de probabilidad
+
+未来三五年内会嗝屁
+De que te mueras en los próximos tres a cinco años
+
+* * *
+
+日期：10/13/2021
+原视频标题：希望不同肤色的人收到正确的信息并得到拯救
+Espero que las personas de diferentes colores de piel reciban la información correcta y sean rescatadas
+原视频日期：10/07/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1446018877662531588?s=24](https://twitter.com/se1y7cblljselva/status/1446018877662531588?s=24)
+任务编号：KC170（2473）
+视频时间段：0:00-1:14
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

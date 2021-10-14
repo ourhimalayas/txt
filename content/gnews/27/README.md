@@ -2,38 +2,27 @@
 ---
 
 
-## 由于魁北克医护人员短缺，强制疫苗延期一个月
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1593944/)
+## 没有新中国联邦，哪里都没有真正的安全
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1594014/)
 
-蒙特利尔皇家山战友团 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-2.jpg)图片来源： CTV Montreal News
-根据《CBC新闻》10月13日报道，魁北克卫生部长杜贝周三宣布，原来医护人员强制接种的最后期限是10月15日本周五，由于人员短缺的风险太高，延期至至11月15日。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-在坚持魁北克省将继续对医护人员实施疫苗接种任务并对不遵守规定的人停薪留职数周后，该省的卫生部长克杜贝出尔反尔，现在延期一个月来进行充分的疫苗接种。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-13.png)
+文章仅代表作者本人观点，与Gnews无关
 
-目前，93%的魁北克医护人员已充分接种疫苗，但仍有近2.2万名医护人员面临停职，因为他们只接种了一针或未接种疫苗。杜贝说，卫生系统将无法处理失去这么多工作人员的问题。
+视频参看：2021.10.14早GTV新闻访谈
 
-他说，推迟医护人员接种疫苗的最后期限的决定是 “困难的”，但是必要的。 杜贝在星期三的新闻发布会上说：”我有责任保护魁北克人的医疗保健网络。现在的风险太高了，用魁北克人的健康做赌注是不负责任的。”
+[https://gtv.org/broadcast/watch/61682233304e992109b512cc](https://gtv.org/broadcast/watch/61682233304e992109b512cc)
 
-同时，从周一开始，没有充分接种疫苗的工作人员将不得不每周接受至少三次COVID-19筛查测试。这项措施已经在公共网络中生效，但也将适用于私人设施。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-在11月15日之前没有充分接种疫苗的护士将没有资格获得高达18,000元的财政奖金，这是魁北克省吸引和留住护理人员以解决医疗网络人员危机的计划的一部分。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
 
-如果维持星期五的最后期限，魁北克省的医疗服务将 “大大减少”。该省470间手术室中的35间和该省约600张病床将不得不关闭。目前，由于人员短缺，已经有80间手术室被关闭。一些长期护理院（CHSLDs）也将被迫关闭床位。
-
-魁北克省在人员严重短缺的情况下在公共部门招聘1000多名全职护士。
-
-一些代表医疗工作者的专业组织，包括该省的护士组织、呼吸治疗师组织、药剂师组织、执业护士组织和医师协会，都表示他们将暂停那些在周五之前没有充分接种COVID-19疫苗的成员的执照。杜贝周三表示，这些最后期限也将被延长，以使工人在被吊销执照之前有更多的时间来接种疫苗。
-
-工会对这一决定表示赞赏。
-
-魁北克省最大的护士工会，魁北克医疗行业联合会（FIQ）表示对推迟接种疫苗感到高兴，但表示仍有问题需要解决。呼吸治疗师、代表76000名护士的FIQ副主席Isabelle Groulx说。”我们在短期内避免了混乱，但我们还没有走出困境“。
-
-延期一个月应该不能使这2.2万名医护人员改变主意去接种疫苗。
-
-原文链接：
-[https://www.cbc.ca/news/canada/montreal/dube-update-health-services-plan-1.6208975](https://www.cbc.ca/news/canada/montreal/dube-update-health-services-plan-1.6208975)
-
-* * *
-
-发稿 Spirit
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

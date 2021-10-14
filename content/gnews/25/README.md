@@ -2,32 +2,25 @@
 ---
 
 
-## 六四纪念雕塑将遭移除 ,丹麦雕塑家对峙港大
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593974/)
+## 有声|中共渗透美国无止境，摩根大通联手支付宝
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1594026/)
 
-作者：FoxRina
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-丹麦雕塑家高志活纪念八九·六四天安门大屠杀的雕塑作品「国殇之柱」将遭到香港大学的移除，高已聘请了律师和外交官处理此事，并表示如果他高达8 米的六四大屠杀遇难者雕像遭到破坏，他将起诉香港大学。
+配音：香草山美食部 – 玫瑰园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-22.jpeg)
+据[美国之音](https://www.voachinese.com/a/jpmorgan-alipay-partnership-20211012/6268100.html)10月13日报道，美国摩根大通银行(JP Morgan)最近宣布与支付宝合作，为阿里巴巴网站提供美国信用卡支付服务。至此，摩根成为唯一一家能够管理市场支付周期的全球银行，而蚂蚁集团则有机会进入美国的数字支付领域及涉及美国的中小型企业。
 
-高志活是这位关注中国人权的丹麦雕塑家的中文名字，和他的丹麦姓名发音相近。高志活是中国大陆人权的关注者，国际人权组织橙色运动发起人之一，并因其人权艺术活动在2009年访港时遭到中共拒绝入境。
+这样的合作意味着美国消费者在阿里巴巴网站上购物将经过支付宝。然而，上个月有消息称，中国政府计划拆分支付宝的母公司蚂蚁集团，并迫使蚂蚁集团将用户数据移交给中共国政府部分拥有的公司。马云的蚂蚁金服已经被中共所掌控。
 
-雕塑“国殇之柱”1997年由以组织天安门广场大屠杀遇难者年度追悼会而闻名的香港市民支援爱过民主运动联合会向其雕塑者无限期借用，并安置在香港大学，是中国境内纪念六四的唯一雕塑。高大的雕塑上布满了扭曲的面孔，震撼地描绘了天安门广场大屠杀的受害者，强烈引发观者的深思与悲愤。
+这引起了西方观察者的担忧，他们担心，这一合作会给中共国军方取得美国用户信息的机会，政府访问他国公民的数据会构成国家安全风险。
 
-由于国安法暴政和香港民主的全面沦陷，支援会于上个月被迫解散，部分成员被捕或被拘留中。港大高层要求支援会于本周三下午5点之前对雕塑完成拆除，否则将被视为放弃。
+中共对全球的渗透无孔不入，对其他国家金融服务的染指和控制更是对其构成安全威胁。然而不幸的是，西方很少有人注意到这种生存威胁的存在。
 
-然而该雕塑仍为其创作者所拥有，估价约为1200 多万瑞典克朗。高志活现已在香港聘请律师处理此案，并寻求丹麦官员的外交帮助，以保护这座雕塑，或至少确保该雕塑可以毫无损坏地从香港大学移走。
+文字版原文：[中共渗透美国无止境，摩根大通联手支付宝](https://gnews.org/zh-hans/1591668/)
 
-(本文仅代表作者观点)
+音频处理：喜山必胜Maverick
 
-参考链接：[Dansk staty om massakern vid Himmelska fridens torg skapar storbråk i Hongkong](https://kinamedia.se/2021/10/14/dansk-staty-om-massakern-vid-himmelska-fridens-torg-skapar-storbrak-i-hongkong/)
-
+发稿：Tom Li
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：FoxRina
-编辑/校正/发稿：谐趣园
-
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)

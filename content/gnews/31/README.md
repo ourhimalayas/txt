@@ -2,24 +2,36 @@
 ---
 
 
-## 同胞当同心抵御邪恶中共
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1593885/)
+## 六四纪念雕塑将遭移除 ,丹麦雕塑家对峙港大
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593974/)
 
-#### 作者：东京樱花团｜阿恩
-![](https://assets.gnews.org/wp-content/uploads/2021/10/KTUJjeWM40UJTq53NgXKIL5mihX6LEjNNYFcQDWBXE.jpg)[*图片来源*](https://cdn.hk01.com/di/media/images/dw/20211012/524607865659330560687423.jpeg/KTUJjeWM40UJTq53NgXKIL5mihX6LEjNNYFcQDWBXEA?v=w1920)
-曾荫权政府时期，内地经济开始向好，人民收入颇丰，生育子女的意愿也更强烈，为避免触犯中共的一胎政策，许多内地同胞选择就近到香港生育，当时的香港政府也因经济利益未加以限制。当时相关医疗产业赚得盆满钵满，私立医院高薪抢产科医生，公立医院人力资源流失导致医疗压力爆增，许多本地产妇被迫催产缩短生产和住院时间，有的还要睡在走廊，产妇们不仅得不到适当的照顾，更无私隐可言；暴增的双非儿童还严重分薄了香港有限的教育资源，家长们要相互争夺幼稚园和小学名额，统一派位结果公布的现场常常能看到家长们声泪俱下地控诉教育资源的短缺；自由行的全面开放导致了香港人山人海，香港表面上经济形势畅旺，实际上已经民怨沸腾。之后香港爆发多次的反自由行，反双非的冲突，为中港两地同胞埋下仇恨的导火索。
+作者：FoxRina
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+丹麦雕塑家高志活纪念八九·六四天安门大屠杀的雕塑作品「国殇之柱」将遭到香港大学的移除，高已聘请了律师和外交官处理此事，并表示如果他高达8 米的六四大屠杀遇难者雕像遭到破坏，他将起诉香港大学。
 
-香港反逃犯条例（反送中）运动期间，中共喉舌将和平游行的港人魔化成暴徒在内地同胞中广传，激起许多爱国粉红对港人的仇恨，但曾经被港人唾弃的自由行却在这次运动中成为内地同胞输送民主自由火种的渠道，很多内地同胞通过自由行见证了香港这场声势浩大而惨烈的民主运动，有的人更无惧前途尽毁的危险参与其中与港人同行，中港两地同胞的血脉重新相连。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-22.jpeg)
 
-中共散播病毒生物武器毒害全球人类，又与黑暗势力联手发起毒疫苗清理和控制人类，内地同胞首当其冲被中共毒害，各种毒疫苗的反应层出不穷。疫情锁港也连累许多双非孩子的家长滞留在香港陪读，这些持双程证的家长们要支付昂贵的租金，不能工作，也不能享受医疗和社会福利，更可悲的是他们中的许多人都在香港注射了毒疫苗。今日报章报道的相关个案只是冰山一角，两针毒疫苗已经摧毁了单亲双程证母亲的人生，她的诉求不被公立医院医生认可，只能自费长期接受私家医生的治疗，目前身体状况正在好转，但这位母亲已经捉襟见肘。这些生活在夹缝中的双非家长被中共裹挟了粉红的外衣，不被本港家长待见，也享受不到中共港府的任何福利，境遇比中共铁拳下的港人更为不堪。每当建制走狗需要进行宣传的时候，这些家长常常会为五斗米而折腰，成为中共布景板日晒雨淋地在街头摆站。中共十分警惕中港同胞的血浓于水的亲情，总是用各种诡计在港人和内地同胞中划下伤痕，离间同胞引起争斗消耗人民的意志。
+高志活是这位关注中国人权的丹麦雕塑家的中文名字，和他的丹麦姓名发音相近。高志活是中国大陆人权的关注者，国际人权组织橙色运动发起人之一，并因其人权艺术活动在2009年访港时遭到中共拒绝入境。
 
-- ***延展阅读：***[***双程证妈妈在港打疫苗后痛症难熬难返内地就医陷财困***](https://www.hk01.com/%E4%B8%AD%E5%9C%8B%E8%A7%80%E5%AF%9F/685391/%E9%9B%99%E7%A8%8B%E8%AD%89%E5%AA%BD%E5%AA%BD%E6%BB%AF%E6%B8%AF-%E4%B8%89-%E5%9C%A8%E6%B8%AF%E6%89%93%E7%96%AB%E8%8B%97%E5%BE%8C%E7%97%9B%E7%97%87%E9%9B%A3%E7%86%AC-%E9%9B%A3%E8%BF%94%E5%85%A7%E5%9C%B0%E5%B0%B1%E9%86%AB%E9%99%B7%E8%B2%A1%E5%9B%B0)
+雕塑“国殇之柱”1997年由以组织天安门广场大屠杀遇难者年度追悼会而闻名的香港市民支援爱过民主运动联合会向其雕塑者无限期借用，并安置在香港大学，是中国境内纪念六四的唯一雕塑。高大的雕塑上布满了扭曲的面孔，震撼地描绘了天安门广场大屠杀的受害者，强烈引发观者的深思与悲愤。
 
+由于国安法暴政和香港民主的全面沦陷，支援会于上个月被迫解散，部分成员被捕或被拘留中。港大高层要求支援会于本周三下午5点之前对雕塑完成拆除，否则将被视为放弃。
 
-感恩新中国联邦重新将同胞们联系起来，在这里可以抛下成见与仇恨，可以卸下伪善与包袱，可以作为人有自己的尊严和信仰，共同抵御世界的丑恶，揭示黑暗势力的邪恶，同心建设我们的美好家园。
+然而该雕塑仍为其创作者所拥有，估价约为1200 多万瑞典克朗。高志活现已在香港聘请律师处理此案，并寻求丹麦官员的外交帮助，以保护这座雕塑，或至少确保该雕塑可以毫无损坏地从香港大学移走。
 
-（ 本文只代表个人观点，与Gnews网站无关）
+(本文仅代表作者观点)
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+参考链接：[Dansk staty om massakern vid Himmelska fridens torg skapar storbråk i Hongkong](https://kinamedia.se/2021/10/14/dansk-staty-om-massakern-vid-himmelska-fridens-torg-skapar-storbrak-i-hongkong/)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：FoxRina
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
