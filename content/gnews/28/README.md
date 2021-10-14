@@ -2,41 +2,48 @@
 ---
 
 
-## 支付巨头Stripe将重新进入加密货币市场
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1593007/)
+## 重磅：澳大利亚政客被药企勒索，要求强制实施疫苗任务
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1593047/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/shutterstock_1937460505-1000x600-1.jpg)图片来源：pymnts.com
-#### 整理报道：小红帽
+**《News Target》记者Ethan Huff 2021 年 10 月 12 日报道**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl-10.jpg)
+武汉冠状病毒 (Covid-19) 仍然是腐败的政治精英及其处理者的摇钱树。好消息是，其中一些无耻的奸商，包括澳大利亚新南威尔士州 (NSW) 的 Gladys Berejiklian，终于因其危害人类罪而被曝光。
 
-根据周二在推特（Twitter）上的发表的公开声明，支付公司Stripe宣布正在组建一个新的加密货币团队，以帮助构建“Web3支付的未来”。Stripe在几年前离开加密货币市场之前，曾是最早支持比特币支付的公司之一。它一直在关注重新进入该市场的合适时机。
+据报道，最近辞去职务的Berejiklian被大型制药公司勒索，（要求她）迫使澳大利亚人接种“疫苗”，否则制药业贩毒集团将在腐败调查中指控她。
 
-Stripe拒绝透露任何关于其战略的其它解释或细节，仅提到其新的公开声明，以及之前博客的文章。
+为了避免毒枭的愤怒，Berejiklian 服从了他们的要求，但最终还是被开除了。现在，这位女士发现自己与托尼·福奇 (Tony Fauci) 和弗朗西斯·柯林斯 (Francis Collins) 等其他叛国罪犯一起成为全球关注的焦点。
 
-2018年1月，Stripe宣布将在当年4月终止对比特币支付的支持，称由于各种原因，加密货币对支付方面的用处越来越小。
+臭名昭著的 Berejiklian 在她辞职前告诉悉尼的居民，“如果他们不接受新冠疫苗，他们将在 12 月居家令结束后，无限期地面临完全的社会隔离。”
 
-该公司当时指出，交易确认时间增加，导致失败率增加，费用也大幅增加。然而，**Stripe当时表示，它仍然对加密货币整体感到“非常乐观”，**尤其是像Lightning和其它可以实现更快支付的项目。它还引用了OmiseGO等其他开发项目，并表示还有许多基于以太坊的高潜力项目正在开发中。【注： *OmiseGO*是专门用于去中心化数字资产交易的PoS区块链。】
+几周前，澳大利亚前议员、澳大利亚联合党现任领导人克莱夫·帕尔默 (Clive Palmer) 是第一个揭发 Berejiklian 犯罪行为的人。在 Berejiklian 基本上因一项无关的腐败调查而耻辱地被迫辞职后，帕尔默的言论引起了新的关注。
 
-现在，在多年来一直处于观望状态后，Stripe正在重新进入加密货币领域。
+**凯恩斯新闻报道，“当一名喋喋不休的记者试图宣扬NWS [新南威尔士州] 政府关于大约 1600 个‘病例’的谎言——即人们确实死于 COVID-19，而新南威尔士州被封锁的小企业的唯一出路就是大多数的人群需要打两针疫苗——时，帕尔默投下了炸弹。”**
 
-虽然一家市值950亿美元的公司再次涉足加密货币并没有什么坏处，但目前尚不清楚这一宣布对Stripe更广泛的企业战略有多大意义。
+**仅 1,421 名澳大利亚人在新冠病毒检测呈“阳性”后死亡**
 
-也就是说，自 Stripe于2018年退出以来，加密支付市场已经升温。 **除了众多加密货币支付初创公司进入该领域，以及大型品牌和零售商的接受度提高之外，支付巨头PayPal最近几个月也采取了重大措施来拥抱加密货币。**
+一位记者告诉他，悉尼企业主被告知，除非他们接受 Berejiklian强制的两针疫苗，否则他们无法重新开设商店，但帕尔默回击称，“总理在向他们撒谎”。
 
-2020年11月，PayPal宣布现在所有美国用户都可以在其平台上购买、持有和出售加密货币。
+“而且我会说她正在接受廉政公署的调查，但悉尼的一个特定说客控制着悉尼的自由党，并告诉她，她摆脱调查的唯一方法就是推行两针疫苗，而他的客户是阿斯利康和辉瑞。”帕默补充道。
 
-在其他地方，加密货币交易所Binance已与电子商务巨头Shopify合作进行加密支付，而Coinbase一直在通过与PayPal、Apple Pay和Google Pay的整合。随着消费者采用率越来越高，使购买和使用加密货币变得更加容易。
+安排好的记者第二次尝试了预先录制的声明，帕尔默再次澄清说，Berejiklian 的任务没有任何意义，其唯一目的是作为“摧毁”小型企业的“借口”，“他们知道这一点。”
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+请记住，福奇流感在澳大利亚几乎不存在。事实上，它从未真正出现在澳大利亚，因为中共病毒检测呈“阳性”的人中只有 1,421 人死亡。
 
-**参考新闻：**[Payments giant Stripe says its reentering the crypto market | TechCrunch](https://techcrunch.com/2021/10/13/payments-giant-stripe-says-its-re-entering-the-crypto-market/)
+重申一下，这些检测本质上是欺诈性的，大多数死于新冠病毒的人都有其他严重的健康状况，无论是年老、肥胖还是已有的慢性病。
 
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
+即便如此，该国某些地区最近几天仍处于医疗戒严状态，就像去年在大流行的早期“浪潮”中一样。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+究其原因，当然与健康无关，而与以牺牲苦工为代价进一步丰富精英阶层有关。而这一切的罪魁祸首似乎大多来自美国，对于从大流行中诞生的全球医疗警察国家来说，美国是灾难中心。
+
+“……很明显，大多数推动 COVID 仪式的伪精英都有别有用心的动机，无论是权力还是金钱，或者两者兼而有之。”塞尔温杜克为《新美国人》写道。
+
+**文章来源**：[https://newstarget.com/2021-10-12-gladys-berejiklian-bribed-blackmailed-big-pharma-vaccine.html](https://newstarget.com/2021-10-12-gladys-berejiklian-bribed-blackmailed-big-pharma-vaccine.html)
+
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – 柯镇恶
+编辑：洛杉矶盘古农场 – 柯镇恶
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
