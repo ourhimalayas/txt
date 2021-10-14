@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/14/2021 4:18 PM (UTC)`
+
+10月14号：大好消息来了……
+![img](https://media.gettr.com/group24/getter/2021/10/14/16/72f266b6-9898-eaf3-1371-ccb2fe6dbf9f/out.jpg)
+
+---
+
 `@miles 10/14/2021 6:24 AM (UTC)`
 
 10/13/2021 Miles Guo: The motives for Xi to invade Taiwan derive from: 1) Xi wants to be the modern “Emperor Qin Shihuang”; 2) The internal political struggles in the CCP; 3) To cover up the economic disaster brought by the collapse of real estate and to bring down the world's economy; 4) Xi is only informed of good news instead of bad news, leading to his complacency; 5) The weakening of the US<br/><br/>10/13/2021 文贵直播：习想打台湾的动机来自：1. 想做当代秦始皇；2. 党内政治斗争；3. 掩盖房地产崩溃带来的经济灾难，并拖垮世界经济；4.  手下的人报喜不报忧导致其自以为是; 5. 美国的衰弱<br/>
@@ -291,13 +298,6 @@ MILES GUO Live Stream 2021/10/11
 
 10/10/2021 Miles Guo: Some Americans would rather let the CCP invade Taiwan in order to <br/>prevent the collapse of economy and obtain short-term political interests; Someone even privately promised the CCP to have the funds to extend the repayment of the maturing debts such that the CCP is allowed to borrow new loans to pay old debts; I have a bombshell that is big enough to send Bruno Wu, Jack Ma, ana Alvin Jiang to prison forever <br/><br/>10/10/2021 文贵直播: 有些美国人为了避免经济崩溃和获取短期政治利益，宁可让中共打台湾；有人竟私下向中共承诺，说可以让基金给到期的债务延期并允许其借新还旧；文贵有足以把吴征、马云和江志成永远送进监狱的大料儿<br/>
 ![img](https://media.gettr.com/group28/getter/2021/10/11/01/d55b7685-da1d-22a0-aa83-58aeba70dc21/out.jpg)
-
----
-
-`@miles 10/10/2021 11:23 PM (UTC)`
-
-10/10/2021 Miles Guo: Taiwan is in DANGER! Biden signed pro-CCP promises in writing; Three fundamental conditions for the US to sell out Taiwan: 1) The CCP continues buying the US Treasury securities; 2) The CCP and the US won’t stop military exchanges and won’t have military conflicts in the South China Sea and Taiwan; 3) The US firmly adheres to the “One-China policy” and opposes Taiwan independence, without emphasizing “neither side of the Taiwan Strait can change the status quo”; So, the CCP is essentially given the legitimacy to invade Taiwan in the name of Sun Yat-sen and eliminating Taiwan independence<br/><br/>10/10/2021 文贵直播: 台湾危矣！拜登签署了亲共的文字性承诺；美国卖台的三大根本条件：1) 中共继续买美国国债；2)保持中美军事交流，在南海和台湾不发生军事冲突；3) 美方坚决支持一中并反对台独，不强调”两岸任何一方不改变现状”；这等同于给了中共以孙中山和灭台独的名义拿下台湾的合法性<br/>
-![img](https://media.gettr.com/group44/getter/2021/10/10/23/23/588712d3-49f7-dd18-7513-845eef6c832d/out.jpg)
 
 ---
 
