@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/14/2021 6:24 AM (UTC)`
+
+10/13/2021 Miles Guo: The motives for Xi to invade Taiwan derive from: 1) Xi wants to be the modern “Emperor Qin Shihuang”; 2) The internal political struggles in the CCP; 3) To cover up the economic disaster brought by the collapse of real estate and to bring down the world's economy; 4) Xi is only informed of good news instead of bad news, leading to his complacency; 5) The weakening of the US<br/><br/>10/13/2021 文贵直播：习想打台湾的动机来自：1. 想做当代秦始皇；2. 党内政治斗争；3. 掩盖房地产崩溃带来的经济灾难，并拖垮世界经济；4.  手下的人报喜不报忧导致其自以为是; 5. 美国的衰弱<br/>
+![img](https://media.gettr.com/group17/getter/2021/10/14/06/24/63fa1862-0f74-e4de-17d3-a15056f4f7a5/out.jpg)
+
+---
+
+`@miles 10/14/2021 6:17 AM (UTC)`
+
+10/13/2021 Miles Guo: The Whistleblowers’ Movement will conduct a comprehensive disclosure of the judiciary system in the West, and this will be the fundamental condition for changing the West and can also protect our overseas Chinese. The threats caused by the CCP’s real estate is part of its economic unrestricted warfare and will become one of the most key motives for the CCP to invade Taiwan. No one can stop the collapse of the CCP’s real estate and financial sector！<br/><br/>10/13/2021 文贵直播：爆料革命将对西方的公检法大起底，这将是改变西方的根本基础并且能保护海外华人；中共房地产带来的威胁是其经济超限战的一种手段，且将成为中共攻台的最大动机之一；无人能阻止中共房地产和金融界的崩溃！<br/>
+![img](https://media.gettr.com/group44/getter/2021/10/14/06/17/6f4c61b7-6e02-8153-28d5-abd841ede519/out.jpg)
+
+---
+
 `@miles 10/14/2021 2:05 AM (UTC)`
 
 10月13号：这是真的么？但我相信真正的较量的背后老板：还是江志成！【七哥您好! 这是香港阿里巴巴的一个月走势图。大概从马云去香港溜达开始，从最低的130元十天左右拉升了30%。<br/><br/>通过这么一出资本戏，似乎是传递一个信号，就是习就是个纸老虎，配合胡舒立的猪头，还有吃螃蟹。营造出一种：你搞不死老子，我胡汉三又回来啦，市场还是认我马云的还乡团气氛。】
@@ -284,20 +298,6 @@ MILES GUO Live Stream 2021/10/11
 
 10/10/2021 Miles Guo: Taiwan is in DANGER! Biden signed pro-CCP promises in writing; Three fundamental conditions for the US to sell out Taiwan: 1) The CCP continues buying the US Treasury securities; 2) The CCP and the US won’t stop military exchanges and won’t have military conflicts in the South China Sea and Taiwan; 3) The US firmly adheres to the “One-China policy” and opposes Taiwan independence, without emphasizing “neither side of the Taiwan Strait can change the status quo”; So, the CCP is essentially given the legitimacy to invade Taiwan in the name of Sun Yat-sen and eliminating Taiwan independence<br/><br/>10/10/2021 文贵直播: 台湾危矣！拜登签署了亲共的文字性承诺；美国卖台的三大根本条件：1) 中共继续买美国国债；2)保持中美军事交流，在南海和台湾不发生军事冲突；3) 美方坚决支持一中并反对台独，不强调”两岸任何一方不改变现状”；这等同于给了中共以孙中山和灭台独的名义拿下台湾的合法性<br/>
 ![img](https://media.gettr.com/group44/getter/2021/10/10/23/23/588712d3-49f7-dd18-7513-845eef6c832d/out.jpg)
-
----
-
-`@miles 10/10/2021 5:37 PM (UTC)`
-
-10-10日：火山红．灭共又灭毒！
-![img](https://media.gettr.com/group26/getter/2021/10/10/17/36/7f3c090b-5776-1100-a335-9abbd9b5244d/fdd1963a5a6065716cef55cc4551a095.jpg)
-
----
-
-`@miles 10/10/2021 5:32 PM (UTC)`
-
-10月10号：尊敬的战友们好，我们都应该拥有这样美好的现代的文明的生活，🔥🔥🔥🔥🔥你们说对不对啊？
-![img](https://media.gettr.com/group21/getter/2021/10/10/17/32/82957eb8-89ba-61b1-2042-37d5daf7074e/out.jpg)
 
 ---
 
