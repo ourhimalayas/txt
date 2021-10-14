@@ -2,60 +2,20 @@
 ---
 
 
-## 众议员马乔里泰勒格林：那些在伊维菌素上撒谎的人手上沾满了鲜血
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1592717/)
+## 美国土安全部将在纽约测试防御生物武器攻击应急能力
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1592833/)
 
-众议员马乔里泰勒格林： 所有的民主党人，不只是乔拜登，都对 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 的新冠生物武器释放到全世界后，美国现在糟糕的应对负有责任。 新冠永远不会离去。 那些在伊维菌素上撒谎的人手上沾满了鲜血。 拯救人命，这与金钱无关。
+#### 翻译：billwilliam
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-24.jpg)图片来源：hubpages.com
+零对冲援引NBC纽约电视4台报道称，美国国土安全部本月将在纽约市的120处地点测试防范生物武器攻击的应急能力，测试点包括地铁系统。
 
+据报道，纽约大都会交通局（MTA）、国土安全部、以及其它研究人员将释放一种无害的气体来模拟生物或化学武器攻击。测试将于10月18日至29日在纽约市120处地点进行。届时如果市民闻到异样气味，政府建议大家请勿惊慌，因为测试气体无毒。大部分测试地点位于地面，比如公园等处，但有一些测试将在地铁站进行，具体地下测试数字并未公布。
 
+据称，此次测试的目的是为了模拟“在人口稠密的城市环境下，生物制剂的气溶胶投放”。纽约大都会交通局称，此项测试将追踪无害气体的扩散，并研究路面和地下环境中气流的关系。换句话说，就是如果出现生物制剂攻击，气溶胶会飘到哪里。
 
-> It’s all Democrats, not just Biden, that are responsible for how bad America is doing right now after the CCP bio weapon Covid-19 was released on the world.
-> 
-> Covid is never leaving.
-> 
-> The people lying about Ivermectin have blood on their hands.
-> 
-> Save lives, it’s not about money.
-> — Marjorie Taylor Greene 🇺🇸 (@mtgreenee) [October 13, 2021](https://twitter.com/mtgreenee/status/1448274095653756936?ref_src=twsrc%5Etfw)
+此项研究属于联邦政府一个名为“城市威胁扩散”的秘密项目。纽约上次进行这种测试是2016年，其它如华盛顿特区和波士顿等城市也进行过类似测试。
 
+如果在平常时期，这或许只是一次例行的安全测试。然而，在中共投放病毒生物武器的背景下，此次测试显得尤为重要。测试中积累的宝贵数据未来可以帮助救援纽约市民，如果出现大规模生物武器攻击。
 
-
-参议员泰德·克鲁兹： 太棒了。 联邦法院（至少暂时）保护联合（航空）工人免受拜登滥用疫苗强制令的影响。 【附美联社新闻报道：一联邦法官延长禁止令,禁止联合航空公司要求寻求强制疫苗豁免的员工无薪离职】
-
-
-
-> Bravo. 
-> 
-> Federal court (at least temporarily) protects United workers from Biden’s abusive vaccine mandate.[#ThanksJoe](https://twitter.com/hashtag/ThanksJoe?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/0yxadNE0QH](https://t.co/0yxadNE0QH)
-> — Ted Cruz (@tedcruz) [October 13, 2021](https://twitter.com/tedcruz/status/1448386015064993796?ref_src=twsrc%5Etfw)
-
-
-
-美国联邦调查局FBI： 中国政府如何威胁美国企业和公民？ 它黑客进公司网络，窃取商业机密，并在社交媒体平台上招募间谍。 在 [#InsideTheFBI](https://twitter.com/hashtag/InsideTheFBI?src=hashtag_click) (联邦调查局内部) 的新一集中了解有关此威胁的更多信息。（附网页链接）
-
-
-
-> How does the Chinese government threaten U.S. businesses and citizens? It hacks into companies' networks, steals trade secrets, and recruits spies on social media platforms. Learn more about the threat on a new episode of [#InsideTheFBI](https://twitter.com/hashtag/InsideTheFBI?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/VFw4Ao9lfR](https://t.co/VFw4Ao9lfR) [pic.twitter.com/7sOZa449Cf](https://t.co/7sOZa449Cf)
-> — FBI (@FBI) [October 13, 2021](https://twitter.com/FBI/status/1448363058569617414?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特:拜登和民主党不会停止推行 [#社会主义](https://twitter.com/hashtag/%E7%A4%BE%E4%BC%9A%E4%B8%BB%E4%B9%89?src=hashtag_click)、激进政策和 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 式的监控理念，直到政府控制了你的生活。 监视美国人的银行账户是一种严重的越界、侵犯隐私和政治权力攫取。我们不能让它发生。 【转国会山报报道：佩洛西为美国国税局 IRS 银行报告提案进行辩护】
-
-
-
-> 🚨Biden & Democrats won’t stop pushing socialist, radical policies & Communist China-style surveillance ideas until government controls YOUR life. 
-> 
-> It's gross overreach, invasion of privacy & a political power grab to spy on Americans’ bank accounts. We can’t let it happen. [https://t.co/WZOyMbmCVj](https://t.co/WZOyMbmCVj)
-> — Rick Scott (@SenRickScott) [October 13, 2021](https://twitter.com/SenRickScott/status/1448352922828431368?ref_src=twsrc%5Etfw)
-
-
-
-众议员加拉格尔新闻办公室：
-众议员加拉格尔：“#中共 想要吞并台湾……，他们正在阻挠对这场颠覆我们所有人生活的大流行病起源的调查。有迹象表明，拜登政府正在重回(与中共)更加合作的途径。我对此根本不能理解。”
-【附福克斯新闻对加拉格尔议员的采访视频】
-
-
-
-> Rep. Gallagher: "The CCP wants to annex Taiwan…they're stonewalling this inquiry into the origin of a pandemic that's upended all of our lives. And there are indications the Biden Admin is going back to a more cooperative approach. I just fundamentally don't understand it." [pic.twitter.com/Bwl1O0MTEg](https://t.co/Bwl1O0MTEg)
-> — Rep. Gallagher Press Office (@RepGallagher) [October 13, 2021](https://twitter.com/RepGallagher/status/1448345146106552333?ref_src=twsrc%5Etfw)
+信息来源：[Feds Deploy Non-Toxic Gas On Subway In Test Of Biological Attack Preparedness](https://www.zerohedge.com/political/feds-deploy-non-toxic-gas-subway-test-biological-attack-preparedness)

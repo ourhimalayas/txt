@@ -2,27 +2,22 @@
 ---
 
 
-## 币安将关闭人民币交易虚拟货币的功能
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1592718/)
+## 波士顿812名雇员因未注射中共病毒疫苗被停职
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1592841/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+#### 翻译：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-63.jpg)图片来源：视频截图
+据合众国际社（UPI）10月13日报道，波士顿市在周三实施了应急计划，因为该市812名雇员因未遵守中共病毒疫苗的规定而被无薪停职。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/text-SC-12.png)
-文章仅代表作者本人观点，与Gnews无关
+这次停职使该市在周三失去了超过4%的劳动力。市政府官员向其雇员发出了1400多封信件，通知他们上周没有遵守规定。在过去的一周里，约只有600人达到了规定要求。
 
-视频参看： 2021.10.13晚GTV新闻访谈
+据《波士顿先驱报》报道，我们现在正在实施应急计划，以应对因未经核实的疫苗接种或测试的员工休假而受到影响的公车运送和其他学校业务，代理市长金·詹尼说。
 
-[https://gtv.org/broadcast/watch/616779a1304e992109b4cfaa](https://gtv.org/broadcast/watch/616779a1304e992109b4cfaa)
+“我们继续与我们不同的员工以及我们的工会伙伴密切合作，以确保员工有机会获得疫苗接种、测试和验证系统，以遵守这一命令。”
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+该市计划让员工可以选择接种中共病毒疫苗或每周进行中共病毒测试，医疗和宗教豁免也被考虑在内。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
+该计划是与波士顿公立学校、波士顿青年和家庭中心以及波士顿公共图书馆协调一致的。截至周五，波士顿公立学校表示，其92%的员工都遵守了规定。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+新闻来源：[Boston suspends 812 workers because of COVID-19 mandate](https://www.upi.com/Top_News/US/2021/10/13/Boston-workers-suspended-vaccine-mandate-coronavirus/6131634146385/)

@@ -2,33 +2,45 @@
 ---
 
 
-## 邪恶阴谋集团制造了新冠病毒并促使“它”大流行
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1592361/)
+## 中共国计划禁止私营企业参与媒体、出版和网络平台
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1592595/)
 
-作者：香草山写作组 – 晓仙女
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-239.png)2019年5月15日，中共国国家主席习近平在北京发表讲话时出现在电视摄像机屏幕上。
+执政的中国共产党(CCP)已制定了禁止私人投资媒体的计划，这是一项目前正在实施的监管改革计划，其目的是加强国家对私营企业的控制。
+
+根据10月8日国家发展和改革委员会 (SDRC)在其官网上发布的拟议规则修改建议中说，它正在征求公众意见，将私营企业对媒体机构的投资列入禁止投资清单。
+
+该清单旨在全国适用，不因地方而异，要求“没有公共部门投资的组织不得从事新闻采编、广播业务。”
+
+声明称，被禁止的组织将包括新闻机构、报业出版集团、电台或电视广播公司，以及在线新闻、编辑服务或出版商的供应商。
+
+该建议书由国家广播电影电视总局、新闻出版总署、网信办签署。
+
+私人投资者也被禁止投资政治、经济、军事或外交组织，以及“主要社会、文化、技术、卫生、教育、体育和其它服务”。禁止投资的拟议清单说，特别是不得有私营部门参与“政治和公众舆论引导或价值导向”的投资。
+
+以前，国家新闻出版总局（GAPP）的任务只是“指导和监管”私营部门参与新闻和出版物。
+
+山西大学一位罗姓退休讲师说，中央政府不再相信私营部门向公众提供意识形态指导。
+
+“政府正在确保控制自己的信息，不会将笔交给其他任何人，”罗说。“它想要一个支配一切的声音来统治一切。”
+
+简评：自习近平2012年上台以来，中共不断加强对公开言论和媒体的控制。这种洗脑意味着你不能批评或与之争论。如果你这样做，你将被所有中共的小粉红包围，国家可以通过执法系统来抓捕你。他们在1949年使用军事力量和宣传手段夺到了权力。而新闻媒体，笔杆子的力量一直是CCP巩固该政权的一个非常重要的支柱。
+
+原文链接: [https://www.rfa.org/english/news/china/media-private-10112021130926.html](https://www.rfa.org/english/news/china/media-private-10112021130926.html)
+
+翻译/简评：希望
+
+PR：Julia Win
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
-
-
-
-10 月 6 日《美国伟大》报道：一位世界著名的精神病学家Breggin表示：包括福奇、比尔盖茨和世界经济论坛创始人施瓦布在内的精英，组成的邪恶阴谋集团创造了新冠病毒大流行，并将毒疫苗推向公众。
-
-Breggin指出，两种已被证明有助于抗击新冠病毒的治疗方法——伊维菌素和羟氯喹，既便宜又安全，可阴谋集团阻止这种治疗，并与中国共产党合作，以增加对世界的巨大剥削。Breggin的书中详细解释了盖茨于2010年成立了“疫苗十年”项目，组建了一个“全球主义者”委员会，以实施一项全球疫苗行动计划。
-
-在新冠病毒起源未清楚的情况下，冠状疫苗的问世显然缺乏科研的严谨性，而各国政府诱导人们进行实验注射，甚至通过就业、征收更高的医疗保险费率、拒绝提供医疗保健、疫苗护照等手段，迫使不情愿接种疫苗的人们注射疫苗。正如郭文贵先生所说：新冠病毒是共产党制造的生化武器，预谋投放于世界，新冠病毒的大流行也是阴谋集团促成的结果。
-
-参考链接 [https://amgreatness.com/2021/10/06/world-renowned-psychiatrist-global-predators-fauci-gates-and-schwab-behind-the-covid-reign-of-terror](https://amgreatness.com/2021/10/06/world-renowned-psychiatrist-global-predators-fauci-gates-and-schwab-behind-the-covid-reign-of-terror/)
-
-编辑/审核/发稿：正义的小新
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

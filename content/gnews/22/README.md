@@ -2,31 +2,22 @@
 ---
 
 
-## 恒大危机持续，150万中国人恐将房财两空
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1592524/)
+## 拜登急欲调动各方运输营运能力以应对供应链危机！
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1592758/)
 
-作者：香草山写作组 – 文一
+作者：我是1，小一. 编辑发稿：硫酸羟氯喹64
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/bd-edited.jpg)图片来源：GNEWS
 
 
+10月13日，美国总统拜登与加州长滩和洛杉矶港口的运营商、港口工人及卡车司机协会，以及沃尔玛、UPS、联邦快递等全美大型货物承运商和零售商在线开会，讨论如何解决威胁到物价上涨和经济复苏的供应链瓶颈问题。
 
-根据路透社的消息，周一（10月11日），恒大第三次错过向海外债权人支付1.48亿美元的款项。彭博社指出，本周恒大将有1.5亿美元的美元债券的票面付款到期。《时代》杂志在12月报道，恒大有150万个家庭向他们提供了尚未建成公寓的押金。 这些家庭很可能会失去他们的押金。
+美国政府打算与上述企业合作完成“90天冲刺”任务。由于目前疫情再度恶化所导致的海外工厂和港口停工或封闭，港口货物积压、以及严重缺少仓储工人和长途卡车司机等困境，美加地区的物价上涨已非常明显。
 
-中共国过度建设房产，每个人都在这个过程中发了财。 现在，这些房产处于半空或空置状态，没有人偿还房产的债务。恒大首当其冲，其3000亿美元的债务高居世界首位。看来，中共国房地产和偿债危机比媒体报道的要大得多。
+长滩和洛杉矶这两个占了美国40%以上进口集装箱量的港口，目前已开始了全天不间断运作模式。沃尔玛、UPS和联邦快递也将逐渐全天候经营。圣诞节期间商品价格上涨和供应不足几乎已成定局。而这一切将使拜登面临巨大的社会民意压力和政治风险。
 
-参考链接：[https://www.thegatewaypundit.com/2021/10/update-evergrande-crisis-continues-1-5-million-chinese-worry-deposits-apartments-not-yet-built/](https://www.thegatewaypundit.com/2021/10/update-evergrande-crisis-continues-1-5-million-chinese-worry-deposits-apartments-not-yet-built/)
+（以上内容仅代表原文信息和作者个人观点）
 
-编辑/审核/发稿：正义的小新
+* * *
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[原文链接：](https://wallstreetcn.com/articles/3642266)

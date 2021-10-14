@@ -2,35 +2,32 @@
 ---
 
 
-## 英格兰银行：制定加密货币规则是一个 &#8220;紧迫的问题
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1592742/)
+## 有声|美飞行员反对疫苗强制的视频点击量超过200 万
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1592872/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/cryptocurrencies.jpg)图片来源：moneycontrol.com
-#### 整理报道：小红帽
+配音：香草山教育部-蒙古鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+最近因西南航空公司飞行员抗议疫苗强制政策，导致航班的大规模取消和中断事件引发热议，而一名飞行员描述他为什么反对对航空公司员工进行疫苗强制政策的片段被广泛流传，点击已超过200万次。
 
-英格兰银行副行长乔恩·康利夫（Jon Cunliffe）周三表示，鉴于加密货币行业的快速增长以及商定新标准所需的时间，监管机构需要迅速制定一套针对加密货币的规则。
+这位名叫肖恩-安德鲁-沃克(Shawn Andrew Walker)沃克飞行员在视频中描述了他如何因为疫苗强制政策，而陷入生计和自由两难选择的境地。他说道：
 
-“国际和许多司法管辖区的监管机构已经开始这项工作。这需要作为紧急事项来解决，”康利夫在 SIBOS 会议上的演讲中说。【注：**SIBOS**(SWIFT International Banker’s Operation Seminar)是SWIF组织召开的金融服务行业的标志性年度国际会议，在金融服务领域具有重要的国际影响力。】
+“这种情形远远超出了健康的范畴。我们身为美国人民，为自由奋斗了257年，并到世界各地传播自由和民主的理念，帮助其他国家和人民争取自由，而我们自己的自由却被剥夺了，”。
 
-上周，全球监管机构提议，他们适用于系统性清算所和支付系统的保障措施也应适用于稳定币。**稳定币是一种通常由资产或法定货币支持的加密货币。**
+“你可能认为被强迫戴口罩或接种疫苗不是什么大事。但当你一次次被强制，被剥夺自由时，这就变得极其重要了。”
 
-帮助领导保护措施工作的康利夫表示，**起草这项措施花了两年时间，在此期间，稳定币增长了16倍。**
+著名人士坎迪斯-欧文斯（Candace Owens）等也分享了沃克的视频，以证明飞行员对疫苗强制政策的不满并为此抗争。
 
-康利夫说，目前加密技术应用对金融稳定的风险有限，但有许多“非常好的理由”认为这种情况可能不会持续很长时间。
+著名学者尼-约翰逊更是评论-“这是我多年来看到的最勇敢的一件事。上帝保佑这些飞行员，我们现在需要的英雄，”。
 
-“事实上，将加密货币世界有效地纳入监管范围内，将有助于确保将这项技术应用于金融的潜在巨大收益并以一种可持续的方式蓬勃发展，”康利夫补充道。
+文字版原文：[美飞行员反对疫苗强制的视频点击量超过200 万](https://gnews.org/zh-hans/1590123/)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Cryptocurrency rules a ‘matter of urgency’, Bank of England’s Cunliffe says | WTVB | 1590 AM · 95.5 FM | The Voice of Branch County (wtvbam.com)](https://wtvbam.com/2021/10/13/cryptocurrency-rules-a-matter-of-urgency-bank-of-englands-cunliffe-says/)
-
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
