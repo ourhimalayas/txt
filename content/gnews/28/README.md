@@ -2,25 +2,47 @@
 ---
 
 
-## 普京赞赏伊隆∙马斯克对加密货币结算的影响
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1594240/)
+## 军方大主教支持宗教人士豁免接种疫苗
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1594370/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+作者：纽约香草山农场 – 四季
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/E-2.jpg)oreanda.ru
-美东时间10月14日报道，“像美国企业家伊隆∙马斯克（Elon Musk）这样的人对加密货币结算的发展至关重要。”俄罗斯总统弗拉基米尔∙普京在接受CNBC采访时同意这样的说法。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-在回答记者赫德利·甘博（Hedley Gamble）提出的关于在购买石油的结算中使用加密货币的建议时，普京称，“这种货币还不能成为结算货币，因为它非常不稳定。如果将资金从一个地方转移到另一个地方——是的，但涉及到贸易，特别是能源贸易，在我看来，还为时过早。”
 
-此外，当甘博问及伊隆∙马斯克对加密货币的投资对其未来结算的意义时，普京回答道，“这是值得的”。
 
-今年2月，马斯克的公司特斯拉汽车公司向比特币投资15亿美元，3月并宣布特斯拉接受该加密货币支付。紧接着，比特币刷新了历史最高价，突破了4.4万美元的大关。 4月特斯拉公司对其加密资产的估值接近25亿美元。
 
-伊隆∙马斯克在社交媒体上发表声明后，比特币多次出现大幅波动。例如，在6月，他发布了一条推文，其中他在比特币这个词的标签后面加上了一个描绘破碎的心的表情符号。这位特斯拉创始人在帖子中附上了一张分手备忘录的图片。在这之后，该加密货币下跌了6%以上，至3.58万美元。
 
-黑客组织“匿名者”（Anonymous）指责马斯克炒作加密货币市场，并说在他们的面前，他找到了一个值得信赖的对手。黑客们说，由于马斯克在社交媒体上不分青红皂白地发布关于加密货币的帖子，他实际上是忽视了普通人的投资。黑客组织称，“你本周的推文清楚地表明，你是如何忽视普通劳动人民并继续欺负他们的。你认为你是最聪明的。但现在你已经找到了一个值得信赖的对手。”
+据[布莱特巴特新闻网](https://www.breitbart.com/faith/2021/10/14/military-archbishop-supports-religious-exemptions-from-vaccine-mandates/)10月14日报道，美国军方天主教大主教蒂莫西-布罗格里奥本周表示，天主教军事人员可以以宗教理由拒绝接种强制的冠状病毒疫苗。
 
-参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1217-1-Vaccine-1-640x480-1.jpeg)图片：Jon Cherry/Getty Images
 
-[https://www.rbc.ru/rbcfreenews/61677a3a9a7947c7b35d0cb5](https://www.rbc.ru/rbcfreenews/61677a3a9a7947c7b35d0cb5)
+他在一份声明中说：如果接种COVID-19疫苗会违反他或她神圣的良知，那么任何人都不应该被迫接种，并引用圣保罗六世的话，“公民有权不受阻碍地按照自己的良心生活”。
+
+布罗格里奥大主教指出，美国最高法院已经裁定，宗教信仰不需要被他人接受、不需要符合逻辑、一致或者被他人理解，即可得到第一修正案的保护。
+
+他补充说，拒绝提供宗教便利，或对那些提出真诚的、基于良心的反对意见的人采取惩罚性或不利的人事行动，将违反联邦法律，在道德上应受到谴责。
+
+近期披露的消息指证，疫苗是用来自堕胎的细胞系开发、测试和生产的，这些都涉及到了道德范畴。
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

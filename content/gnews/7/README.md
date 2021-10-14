@@ -2,26 +2,25 @@
 ---
 
 
-## 德国经济增长急剧下滑
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1594514/)
+## 樱花灭共段子之强子的决心
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1594758/)
 
-新闻来源：德国世界报网络版
+#### 作者：灭共段子组战友
+![](https://assets.gnews.org/wp-content/uploads/2021/10/324.jpg)
+【强子的决心】
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+今天强子终于降落在了火星，这里早已成为了新的人类桃源，尽管有了心理准备，摘下氧气面罩，呼吸着纯净的空气还是让他呛的有点难受。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/DWO-WI-Teaser-Wachstumsprognose-pd-jpg.jpg)
+看着远方没见过的人群围着火光欢呼跳舞，他也不知觉跟着笑了……
 
+他踉跄着向前挪步，呼吸着纯净但有些难受不适应的空气，想起以往种种就再也不想回去那个肮脏的地球了，他打定决心留在这过几天人的生活。
 
-资料来源：图片联盟
+这样想着，他便加快脚步向远方的那道光走去…
 
-主要经济学家已大幅下调德国经济增长预期——从 3.7% 降至 2.4%。根据主要经济机构的说法，德国经济增长将低于预期。如果您仔细查看经济研究人员的报告，未来的经济增长已经出现危机。
+[盖特链接](https://www.gettr.com/post/pdu0zf98be)
 
-德国目前正被银行、研究所或政府组织的经济学家进行评估。 10 月 12 日，国际货币基金组织 (IMF) 将今年的经济预期下调了半个百分点至 3.1%。 两天后，领先的经济研究人员将 2021 年的增长预期从 3.7% 下调至 2.4% ， 下调了1.3 个百分点。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-如果你仔细看看经济研究人员的秋季报告，你会发现危险的转变，这种转变的延续可能成为未来增长的巨大阻力。
-
-[https://www.welt.de/wirtschaft/plus234419144/Wirtschaftsinstitute-Deutschland-wird-nach-unten-durchgereicht.html](https://www.welt.de/wirtschaft/plus234419144/Wirtschaftsinstitute-Deutschland-wird-nach-unten-durchgereicht.html)
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-
-责任编辑/发布： Shuizhuyu
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

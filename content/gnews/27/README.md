@@ -2,24 +2,47 @@
 ---
 
 
-## 疫苗口罩，买吗？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1594248/)
+## 英国将为政府服务引入面部识别应用程序
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1594382/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3663592_1_1.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.ltn.com.tw%2FUpload%2Fnews%2F600%2F2021%2F09%2F07%2F3663592_1_1.jpg&amp;imgrefurl=https%3A%2F%2Fnews.ltn.com.tw%2Fnews%2Flife%2Fbreakingnews%2F3663592&amp;tbnid=pEYXs6MopqG3fM&amp;vet=12ahUKEwiAqpKFnsrzAhWJAaYKHQXSCuAQMygMegUIARCSAQ..i&amp;docid=_rS0H5Ifpv9_SM&amp;w=800&amp;h=563&amp;q=%E7%96%AB%E8%8B%97%E5%8F%A3%E7%BD%A9&amp;ved=2ahUKEwiAqpKFnsrzAhWJAaYKHQXSCuAQMygMegUIARCSAQ)
+作者：纽约香草山农场 – 四季
 
-日本广播协会10月14日报道，山形县的一家缝制公司开始销售与新冠疫苗接种相关的口罩，口罩上印有“打过了”的文字，或者两支注射器的图案，戴上该口罩，向周围人传达的信息是“已经接种过两次新冠疫苗”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-到目前为止，关东地区已经售出了约1000个。有购买者表示”当你乘坐满员的电车或去医院时，你会给周围的人一种安全感”。该公司的社长后藤忠志说：在这个仍然有很多不安的世界里，如果这种呼吁能够随便进行，我们就能相互放心地交往。接种疫苗的人一定要尝试一下。
 
-10月14日，日本2针疫苗接种率为65.8%，65岁以上的接种率为89.9%，12月份开始，日本境内将考虑推行第三针接种，接种的人数越来越多，社会正在从方方面面向未接种者施压，请问，疫苗口罩的购买，需要接种证明吗？
 
-信息来源：
 
-[接種済みを周囲に示す「ワクチン打ちましたマスク」販売 山形](https://www3.nhk.or.jp/news/html/20211014/k10013307121000.html)
 
-免责声明：文章仅代表作者本人观点，与GNEWS无关
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-8.png)
+据[布赖特巴特新闻网](https://www.breitbart.com/europe/2021/10/14/definitely-not-authoritarian-uk-to-use-facial-recognition-for-govt-services/)10月14日报道，英国政府在已引入冠状病毒疫苗护照应用软件后，还将为想要获得一系列公共服务的公民引入一款面部识别应用。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1220-1-GettyImages-913641954-640x480-1.png)图片来源：[metamorworks/Getty Images](https://www.gettyimages.co.uk/detail/photo/biometrics-concept-facial-recognition-system-iris-royalty-free-image/913641954?adppopup=true)
+
+这款名为gov.uk的全新应用程序预计将在明年年底推出，将使公民能够通过智能手机访问300多个政府服务。该应用程序将使用面部识别或指纹扫描来验证用户。
+
+一个新的小组，即数字咨询委员会，预计也将被宣布，以监督政府不断扩大的虚拟设备。来自银行业的商业领袖，包括劳埃德银行集团（Lloyds Banking Group）和汇丰银行，以及欧洲公用事业公司（E.ON）也已经计划加入该委员会。
+
+然而，人们对该系统提出了隐私方面的担忧，英国国民保健署（NHS）承认他们将在刑事调查中与警方分享此类信息，这导致人们对所谓的匿名应用程序的隐私感到担忧。
+
+公民自由运动组织 “老大哥观察 “的负责人西尔克-卡罗星期二在上议院司法和内政委员会作证时说，在没有任何议会参与和几乎完全没有监管制度的情况下，数千万英国人已经在不知情的情况下受到了面部识别扫描。
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
