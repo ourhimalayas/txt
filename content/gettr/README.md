@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/14/2021 11:26 PM (UTC)`
+
+10月14号：新中国联邦的旗帜在我们帅气，健康的战友的手中，第一次在马拉松比赛中，走向了胜利。https://www.telegram.com/picture-gallery/sports/2021/10/11/boston-marathon-2021-runners-framingham-natick-ashland-pictures/6082058001/
+![img](https://media.gettr.com/group19/getter/2021/10/14/23/26/2ff943ba-8f83-46bc-ce6f-3ff7918b8225/ba28685d08056f54cc0ac24194688745.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@zemmoureric 10/11/2021 9:31 PM (UTC)`
@@ -293,13 +300,6 @@ MILES GUO Live Stream 2021/10/11
 
 10-11日：新中国联邦人救人，无数。有种的别信……疫苗灭共将彻底的建立新中国人在世界的新形象和崇高的地位。<br/><br/>【草根小哥你好：战友送过来的药我老公一直拒绝吃，他说他医生的药不能跟我们的药一起吃，怕起反效果，等他吃完他医生的药身体还是没有好就吃我们的药，所以我一直等他的药结束，一直没有告诉你他的病情怎么样，后来他医生的药一直没有改善他的病情，所以才改吃我们的药，吃上我们的药身体马上恢复过来，太神奇，所以现在才告诉你晚一些，太感谢你的帮助谢谢🙏 我在GTV做直播了，讲一下我先生吃药的过程，让更多的战友知道爆料革命的药是救命的药。🙏】
 ![img](https://media.gettr.com/group19/getter/2021/10/11/16/27/41995b2e-36a8-722a-a756-8c03ca249d63/675639c0bbf1f2c3c94f4d896779564b.jpg)
-
----
-
-`@miles 10/11/2021 2:50 PM (UTC)`
-
-变成共产主义的8个步骤！<br/><br/>【这么漂亮，还不打喵喵的，以后前途无量啊！】
-![img](https://media.gettr.com/group40/getter/2021/10/11/14/50/0d244bf4-be17-dec4-4765-d9b6a8251eb4/out.jpg)
 
 ---
 
