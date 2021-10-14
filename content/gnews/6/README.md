@@ -2,31 +2,25 @@
 ---
 
 
-## 澳洲女博士签发600份“医疗豁免”证书
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1593682/)
+## 中国移动SIM卡“硬钱包”推出！中共力推数字人民币全面应用
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1593767/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/09View-illo-superJumbo.jpg)图片来源：NY Times
-**整理报道：**翼族
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/12-6.jpg)[图片来源](https://www.sohu.com/a/494896918_100302690)
+10月13日，中国移动联手工商银行在苏州发布“基于超级SIM卡的数字人民币支付产品SIM PAY”，手机SIM卡可以成为用户高频小额移动支付场景里的硬钱包。
 
-澳大利亚昆士兰警方称，一名假扮医生的妇女签发了600份中共病毒（COVID-19）“医疗豁免”的证书。
+中国移动金融科技有限公司副总经理孙健介绍，SIM PAY具有四大特性，一是支持双离线支付，交易双方在没有网络覆盖的情况下亦可完成支付；二是使用便捷，不需要打开手机APP，“碰一碰”即可完成支付；三是号码即账号，通过手机号码可快速开通SIM PAY钱包，实现移动用户无门槛开立钱包；四是支付即结算，资金实时到账。
 
-周三，这名来自图文巴地区达令高地的45岁女子在她黄金海岸的一处住宅被捕，警方根据《国家保健从业者法》指控其五项罪名。
+孙健表示，未来中国[工商银行](http://quote.eastmoney.com/unify/r/1.601398)500余万线下商户、中国移动数十万移动营业厅的受理终端，均将支持数字人民币SIM PAY，促进数字人民币规模发展。
 
-代理督察达米安·鲍威尔（Damien Powell）称，该名女子没有医学博士学位，也没有在澳大利亚注册为健康从业者。但警方表示，该女子拥有“研究博士学位”。
+中共三大运营商均积极参与数字人民币研发和试点，以SIM卡为载体的硬钱包是三大运营商普遍采用的方式。据中国电信官微披露，[中国电信](http://quote.eastmoney.com/unify/r/1.601728)与[中国银行](http://quote.eastmoney.com/unify/r/1.601988)联合研发的“数字人民币”钱包近日正式上线，10月底后还将试点推出电信SIM卡硬钱包功能，支持“离线”收付款；中国联通与[中国银行](http://quote.eastmoney.com/unify/r/1.601988)合作推出了中国联通沃钱包APP数字人民币钱包，用户可在APP内开立数字人民币钱包，双方还共同研发了物联网数字人民币模组，通过加载联通物联网SIM卡，实现在线、离线多种支付模式，并采用标准化接口，方便嵌入各类物联网设备，目前已在美团共享单车、友宝自助售货机、冬奥特许商品售卖机、智能充电桩、自助咖啡机、滑雪机等场景落地。
 
-代理督察鲍威尔说，警方正在努力追查购买证书的人，“到目前为止，我们能够确定的是，购买者来自澳大利亚各地。”
+当前，中共房地产和金融核弹随时将爆，中共加速推进数字人民币的全面落地应用，目的是对内重洗财富抑制危机，对外阻击美元称霸世界。
 
-警方表示，该女子“不相信自己做错了什么”，并“有权”签发这些证书。
+[信息来源](https://finance.sina.com.cn/blockchain/roll/2021-10-14/doc-iktzscyx9473489.shtml)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+(文章仅代表作者本人观点，与GNEWS无关)
 
-*编辑/发布：翼族*
-
-**参考链接：**[Woman who allegedly pretended to be a doctor and issued fake COVID exemptions ‘doesn’t believe she’s done anything wrong’](https://www.abc.net.au/news/2021-10-14/fake-doctor-alleged-false-covid-exemptions/100539676)
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
