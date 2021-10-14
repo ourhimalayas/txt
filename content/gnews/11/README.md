@@ -2,109 +2,52 @@
 ---
 
 
-## 前所未有的金融大变局即将到来
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1592308/)
+## 10月13号是个大日子到明年1月10号前后七哥才能讲
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1592325/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/100-aa06i-ko6rc.jpg)
-[https://gtv.org/video/id=61671338d2e2b8174874c477](https://gtv.org/video/id=61671338d2e2b8174874c477)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/WhatsApp-Image-2021-05-02-at-6.14.57-PM-1536x864_副本.jpg)
+据[2021年10月13日文贵直播：记住今天这个大日子；傅政华的被抓，全世界的律师事务所，司法界大颠覆，大唤醒；马云是光明会成员；目前世界的危局，经济大崩溃，世界的黑暗势力和中共的黑暗势力因为病毒疫苗受到扭曲；房地产的倒塌会导致中共更加要打台湾，全面拖垮世界经济；中美之间必有一战](https://www.youtube.com/watch?v=MUiGP6HYC9Y)时间点21：58——
 
-**郭文贵：**
-**Miles Guo：**
+尊敬的战友们好，尊敬的战友们好，尊敬的战友们好，美国小李、Nick、娜娜酱、Rachel，大家好，想你们啦，想你们啦，今天又是一个大日子，又是一个大日子。今天首先七哥给你们说一下，今天又是一个大日子，首先尊敬的战友们好，今天是10月13号，10月13号你们要记住今天，到1月10号以后再直播，你们Rachel帮我记住啊，你们到时候说七哥记得当初你说过是个大日子，什么大日子、什么事儿，因为现在法律的问题我不能讲。
 
-我觉得，你知道吗？ Rachel
-I think, you know what, Rachel?
+大概得到一月初吧，大概啊，不能确定，我才能讲这个事儿，首先一点我可以告诉大家一个很清晰的事情，就是我们大直播每次播的题目有没有影响到世界，不要听我们说，看看世界的反应，继我们过去三期和战友们的大直播还有我们的爱米粒脱播之后那一期，在全世界我们讲的共产党在全世界的法律超限战、对美国和欧洲的律师事务所进行的超限战，继而控制西方的法院、媒体。
 
-这些都是媒体曝出来的，实际上很多都是有意识的放料
-These are all exposed by the media, in fact, many of them are conscious of releasing
+我前边盖特马上要直播，我在看着这个，这个有点问题，（对旁边工作人员说话）你要在这儿看看，平衡平衡。
 
-都是放气球，你知道吗？
-It’s all ballooning, you know?
+中共的对西方的法律特别是律师事务所的超限战，这件事情引起了西方高度、高度地重视，那么关于我们的案子我们曾经有六十几个案子，现在西方包括美国我相信通过司法部的Higginbotham的案子，吴征这个孙子还有马云这些人试图把七哥遣返以及行贿这些案子，咱们说过，在西方整个领域司法界内部都在思考，说Miles Guo说的事情，他不是无中生有，那么我们应该了解通过Higginbotham的事情。
 
-美国研究这个要不要美元做数字货币
-Whether the U.S. lunch digital currency or not?
+昨天晚上，你看，昨天晚上我跟一个人关于马云的事情，两张纸，挺有意思，给我发过来以后，说七哥我们俩的对话应该做一个历史性的记录，我说，好啊，我就留下来，刚才我把它打印出来。
 
-实际上很简单
-It’s actually quite simple
+兄弟姐妹们，就是这个直播当中的每一段话都被欧洲和美国将近四十多个国家的司法部门和律师事务所和法官翻译成语言作为法院内部开庭会，大家知道法院，西方法院虽然法官都是律师出身，但是他们内部有一个监审机制，这个监审庭包括选法官上案子，这个委员会我们跟很多人递交了有关这些案子。
 
-美国要了数字货币，就把美联储给废了
-If the U.S. uses digital currency, it will abolish the Federal Reserve
+包括像太平联盟伪造七哥的签名，还有伪造所有的合同，而且让共产党像吴征、孙力军、孟建柱把所有的当事人全部给抓起来，不准提供任何证词，包括在香港的，香港曾经有关案子的律师不允许跟美国法官有任何联系，你想想这有多可怕。
 
-就那几个沼泽地就没了
-That means those “swamps” are gone
+然后他们想要的证据，他想怎么编就怎么编，然后拿着枪指着大陆的相关人，拿着枪顶着脑袋让你怎么写你怎么写，那咱官司怎么打呀？打一个输一个呀。但是最终的结局，美国和欧洲它不都是死人，它也不都是坏人，它最终在西方它这种法治系统里边，它还是有人能发出声音的，它是能说话的。
 
-然后呢，这个，美国人民摆脱美联储以后，美国人们才叫自由了，真的叫自由了
-After the American people get rid of the Federal Reserve, the American people will be free, truly freedom
+所以说，根据以上我们的直播包括我们过去的一两年的行动，对欧洲、对西方整个司法部门一个大唤醒，这个事情导致我们有一系列事情将是彻底地改变。
 
-美国不摆脱美联储，美国是不会自由的，没有自由的
-The United States will not be free until it gets rid of the Federal Reserve, there is no freedom
+有些外国律师都在香港执业，你看着，我再说一遍，美国、欧洲的前100大律师事务所几乎都在香港和大陆执业，都在大陆有合作事务所，而这些律师全归傅政华管，傅政华被抓了，傅政华利用这些律师事务所的敲诈、转钱、洗钱很多律师都会被抓，律师事务所会被揭发出来，包括审我们案子的人，这些律师事务所又出去了很多法官，还有很多到了司法部。
 
-所以说美国在斗争当中，这是一个人类上可能前所未有的
-So the U.S. is struggling with what is probably most unprecedented for mankind
+你们听懂了吗？小李呀，Nick你听懂我意思了吗？傅政华是中国司法部管律师执照管和外国律师合作的，傅政华都被抓了，那些听傅政华的律师事务所和给傅政华行贿的外国律师还有帮傅政华到海外办黑案的人出大事儿了！也会把很多美国、香港、欧洲的法官、海外的这些法官能弄出来，中国的律师事务所也将大颠覆，这是多大的事儿啊！你们想到了没有？
 
-也是金融大变局
-financial change
+（以下暂略）
 
-世界不会只有流行美元，一定是虚拟货币
-The world will not only have dollar in circulation, it must also have virtual currencies
+撰稿：喜马拉雅的肉夹馍
 
-而且美元最可怕的就是这个美联储和沼泽地和全美国人的斗争
-And the most frightening thing about the dollar is the fight between the Federal Reserve and the “swamp” and all Americans
+审核：喜马拉雅的馍夹肉
 
-一定会有虚拟美元的
-There will definitely be virtual dollars
+校对：Maarago
 
-最后就是世界的所有的未来的货币，绝对不是国家主权
-The future currency in the world is definitely not a national sovereign currency
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-你完全是垄断的，是不可能的
-No more the sovereign state monopoly
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-所以人类到了一个真正的时代
-So mankind has come to a new era
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-包括未来，我飞到月球上去安家
-In the future, I will make my home on the moon
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-我跟马斯克，到火星上上安家去，你告诉我，你怎么限制我货币？
-I’m with Musk, go up to Mars to settle down, you tell me, how do you limit my currency?
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-你限制不了我货币
-You can’t
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-因为它是一个两星球之间的币，过去是两国之间——一个星球上的币，完全两回事儿
-Because it’s currency between two planets, it used to be between two countries – a currency on a planet, totally different thing
-
-这是两星球，未来可能多个星球，多星球的货币怎么可能一样
-This is just two planets, maybe multiple planets in the future , how can the currency of multiple planets be the same one
-
-所以说，这就是我们新中国联邦的厉害
-This is what makes our New Federal State of China so great
-
-你们绝对不知道新中国联邦有多厉害
-You have absolutely no idea how powerful the New Federal State of China is
-
-你们绝对不知道我们有什么规划
-You absolutely have no idea about what we have planned
-
-你们绝对不知道我们有什么武器
-You absolutely have no idea about what weapons we have
-
-————————————————————
-
-**原视频链接:** [https://twitter.com/se1y7cblljselva/status/1445680480041328656?s=24](https://twitter.com/se1y7cblljselva/status/1445680480041328656?s=24)
-
-Date:10/8/2021
-原视频日期：2021/10/05
-任务编号：KC167（2450）
-视频时间段 : 0:00-1:30
-
-英听校: 洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校: 洛杉矶盘古农场 – Raul
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片: 洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

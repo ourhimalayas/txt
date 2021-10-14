@@ -2,79 +2,33 @@
 ---
 
 
-## 战友们做好过山车的准备
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1592331/)
+## 聚焦：成为比特币挖矿中心，美国将再次成为创新和制造业强国
+` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1592354/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/500-a71ie-wzywl.jpg)
-[https://gtv.org/video/id=616713e6d2e2b8174874c4aa](https://gtv.org/video/id=616713e6d2e2b8174874c4aa)
+#### 加拿大多伦多枫叶农场 丁过
+![](https://assets.gnews.org/wp-content/uploads/2021/10/70A1AD2D-64EB-41FB-9015-B1CA270367B7.jpeg)图片来自网络
+据《金融时报》13日报道，在中共国禁止加密货币交易和挖矿开采后短短的3个月内，美国在全球的哈希率（hashrate）即开采新比特币所需的算力中的份额，快速上升至8月份的35%，而哈萨克斯坦在同期上升至18%，中共国则从逾44%降至0，在2019年中共国一度占据全球算力的四分之三。
 
-**郭文贵：
-Miles Guo：**
+资本不仅是逐利的，无国界的，而且是聪明的。哈萨克斯坦是中亚最重要的能源出口国，这是吸引挖矿机的主要原因。
 
-咱们10月3号是七哥说的90天，是整整90天，今天是92天
-October 3 is what I said the 90 days, is the 90th day, today is the 92nd day
+川普就任美国总统后，立即将发展传统能源产业作为“将产业和工作带回家”和整固美国财政的战略支点，鼓励华尔街资本参与油气勘探和开采，因此美国能源迅速实现自给，能源价格也相应大幅下降。
 
-记住啊，它晚来2天，它还会来的
-Remember, it came 2 days late, but it came at last
+和比特币挖矿机大量耗电一样，中低端制造业也需要消耗大量能源。美国的制造业在上世纪九十年代开启的经济全球化中陆续迁移到中共囯等新兴国家，和当时美国能源短缺有极大关系。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/008F252B-7F97-4925-AD30-A9762CD6CCBD.jpeg)图片来自网络
+美国长期购买带有中共国奴隶劳工血汗的廉价商品，导致在对中共囯的双边贸易中长年保持每年约四千亿美元的逆差。也就是说，美国长期印钞作为资本输出，迎合中共国的不正当竞争行为，不仅掏空了美国的实业和财政，也掏空了美元和美国的信用。
 
-还有更大的事儿还会发生
-There are bigger things to come
+川普决心改变这一切，能源自足自然就成为重中之重。但拜登上台后第一天就以环境和气候安全为由打击传统能源产业，暂停在公共土地进行石油、天然气钻探的许可批准。同时取消了加拿大阿省到得克萨斯州和伊利诺伊州的数千公里Keystone 管道施工，要知道该管道已经建设10年并进行到最后的第四期。
 
-再过一个月，如果你还觉得Facebook这事儿
-In another month, if you still think Facebook
+该管道沿线起码有5个州反对并起诉拜登此举违法，加拿大也向拜登政府提出强烈抗议，另外巿场预期明年的中期选举民主党将大败，传统能源产业将重新回到正轨，比特币挖矿机大举进入美国，这是市场对美国能够长期提供廉价能源抱有信心的表现。
 
-你觉得是大事儿的话，你就是low了，再过一个月30天
-is a big deal, you are low, in another 30 days
+可以预见，在这一次全球产业链大重组过程中，体量庞大的一般商品制造业，将向有廉价能源和法律保障的国家比如美国集中转移，逢勃发展的实业将推动大规模的基础设施建设，美国将由些步入一个全新的繁荣周期。
 
-再记住从今天数，你就觉得这不是什么大事了
-Remember to count from today, and you’ll know it’s not a big deal yesterday
+还有一个更重要的因素是，美国议会和SEC、税务局等部门对加密货币存在的洗钱等问题、加密货币是证券还是商品或货币、如何对加密货币征税以及由谁监管等方面存在严重分歧，但维护加密货币的创新环境却是几乎所有人的共识。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5C04A323-0E34-450E-AB91-16E64BBA21E9.jpeg)图片来自喜美元白皮书
+因为这些统治精英对过去锚定黄金的货币和现在随便印的主权信用货币的弊端了如指掌，如果不进行彻底的货币改革，后果不堪设想。他们也知道，历史上当货币允许私人铸造发行时，肯定是良币驱逐劣币及货币信用最稳定的时期，而货币信用恒定是经济繁荣和政局稳定的主要前提。令人充满期待的是，即将于本月底发行的喜币，就是造福人类社会的头号良币。
 
-看一看俄罗斯的黄金，“唰”起来了，美元“唰”下来了，人民币“唰”起来了
-Look at the Russian gold, “swoosh” up, the dollar “swoosh” down, the yuan “swoosh” up
+参考来源：
 
-然后呢，你再看看现在俄罗斯在做什么
-Then again, you look at what Russia is doing now
+[美国超过中国成为全球最大比特币挖矿中心](http://www.ftchinese.com/story/001094210?full=y)
 
-你看这欧洲那些老同志，是不是，欧洲太老了，历史太悠久了
-You see those old European friends, don’t you, Europe is too old with long history
-
-你会看着那些傻德国，还有英国、法国
-See those German, and England, and France
-
-你会让人家给玩的简直啥都不是
-You will let the Communists get the best of you
-
-日本这个国家就更不用提了
-oh, not to mention Japan
-
-岸田这个人要不兑现承诺，对老共开战
-If Kishida doesn’t keep his promise, if he doesn’t fight against the Communist Party
-
-他会很快就滚蛋，没他的位置
-he will soon be out of the picture and there will be no place for him in Japanese politics
-
-你们记住，做好过山车的准备
-Remember, be prepared for a roller coaster ride
-
-人类前所未有的所有的变革事，都让我们碰上了
-All the transformative things that mankind has never seen before have come to us
-
-————————————————————
-
-**原视频链接:** [https://twitter.com/se1y7cblljselva/status/1445708771129380878?s=24](https://twitter.com/se1y7cblljselva/status/1445708771129380878?s=24)
-
-Date:10/7/2021
-原视频日期：2021/10/05
-任务编号：KC168（2449）
-视频时间段 : 0:00-0:59
-
-英听校: 洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 –Raul
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**（文章仅代表作者观点，与**GNEWS**无关）**

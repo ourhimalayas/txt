@@ -2,37 +2,79 @@
 ---
 
 
-## 前情报官员质疑拜登对中台敌对行动毫无准备
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1592310/)
+## 战友们做好过山车的准备
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1592331/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/500-a71ie-wzywl.jpg)
+[https://gtv.org/video/id=616713e6d2e2b8174874c4aa](https://gtv.org/video/id=616713e6d2e2b8174874c4aa)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/A-5.jpg)yoninetanyahu.com
-《新闻纵横》发表文章，“里克·格雷内尔（Ric Grenell）：政府对中共等其它问题毫无准备”。
+**郭文贵：
+Miles Guo：**
 
-全文如下：
+咱们10月3号是七哥说的90天，是整整90天，今天是92天
+October 3 is what I said the 90 days, is the 90th day, today is the 92nd day
 
-拜登政府还没有准备好应对世界各地正在发生的事情，更不用说如果中共和台湾之间的敌对行动升级会发生什么，前大使兼国家情报局代理副局长里克·格雷内尔（Ric Grenell）周二（10月12日）在《新闻纵横》上说。
+记住啊，它晚来2天，它还会来的
+Remember, it came 2 days late, but it came at last
 
-格雷内尔与前国防部长副助理安珀·史密斯（Amber Smith）一起出现在了《新闻纵横》的《约翰·巴赫曼现在》（John Bachman Now）节目中，他评论说：“在乌克兰，我们看到10万俄军驻扎在边境上，他们没有为也门发生的事情做好准备，他们没有为叙利亚发生的事情做好准备，因为俄罗斯接管并试图操纵整个地区。”
+还有更大的事儿还会发生
+There are bigger things to come
 
-他继续说，如果再加上中共和台湾，外交手段可能不足以避免危险。
+再过一个月，如果你还觉得Facebook这事儿
+In another month, if you still think Facebook
 
-格雷内尔说：“你知道，我在国务院工作了11年，我是一名外交官，我将尽我所能解决这些问题，
+你觉得是大事儿的话，你就是low了，再过一个月30天
+is a big deal, you are low, in another 30 days
 
-我非常欣赏五角大楼的一件事是，他们谈论军事行动威胁与可信的军事行动威胁之间的区别。美利坚合众国需要可信的军事行动作后盾，当我们在谈判时，这将有助于坐在谈判桌旁的外交官，我们就能做到不战以屈人之兵。”
+再记住从今天数，你就觉得这不是什么大事了
+Remember to count from today, and you’ll know it’s not a big deal yesterday
 
-格雷内尔还呼吁国务院进行改革，有些外交官“运用’秀肌肉’的外交手段。”
+看一看俄罗斯的黄金，“唰”起来了，美元“唰”下来了，人民币“唰”起来了
+Look at the Russian gold, “swoosh” up, the dollar “swoosh” down, the yuan “swoosh” up
 
-与此同时，史密斯说，美国对中共国的依赖到了“完全失控”的地步。她说：“任何与我们国家安全有关的事情都应该禁止进入中共国，不幸的是，就我们的供应链而言，这现在几乎是不可能的，但它只是向你展示了我们与中共国的联盟有多深，有这么多东西，这完全失控了，我们需要意识到，我们对中共国的依赖正在损害我们自己的国家安全。”
+然后呢，你再看看现在俄罗斯在做什么
+Then again, you look at what Russia is doing now
 
-（原文完）
+你看这欧洲那些老同志，是不是，欧洲太老了，历史太悠久了
+You see those old European friends, don’t you, Europe is too old with long history
 
-文章虽然不长，的确反映了美国高层一部分人对中共的了解，对美国现状的担忧，以及对拜登无能的质疑a。如果对邪共的认知再提高一些，或许就能理解拜登政府的所作所为，就能清楚参谋长联席会议主席为何瞒着总司令与中共进行“通敌电话”，就能解释情报机构出台的病毒溯源报告为何撇清了与中共的关系，还有文贵先生近来多次强调的司法黑幕等。这就是美国乃至西方，甚至整个世界的现状，邪魔中共的渗透无所不在，要员、要害部门都是重灾区。所以灭共的重要环节就是觉他，让西方、世界彻底认清中共对本国的渗透，文贵先生已经启蒙世界近5年了，大大地阻击了邪恶，并引领世界向反击、消灭中共等罪恶势力的方向发展。战友们紧跟文贵先生，加油！
+你会看着那些傻德国，还有英国、法国
+See those German, and England, and France
 
-（文章仅代表作者个人观点）
+你会让人家给玩的简直啥都不是
+You will let the Communists get the best of you
 
-原文链接：
+日本这个国家就更不用提了
+oh, not to mention Japan
 
-[https://www.newsmax.com/newsmax-tv/ric-grenell-amber-smith-china-biden/2021/10/12/id/1040195/](https://www.newsmax.com/newsmax-tv/ric-grenell-amber-smith-china-biden/2021/10/12/id/1040195/)
+岸田这个人要不兑现承诺，对老共开战
+If Kishida doesn’t keep his promise, if he doesn’t fight against the Communist Party
+
+他会很快就滚蛋，没他的位置
+he will soon be out of the picture and there will be no place for him in Japanese politics
+
+你们记住，做好过山车的准备
+Remember, be prepared for a roller coaster ride
+
+人类前所未有的所有的变革事，都让我们碰上了
+All the transformative things that mankind has never seen before have come to us
+
+————————————————————
+
+**原视频链接:** [https://twitter.com/se1y7cblljselva/status/1445708771129380878?s=24](https://twitter.com/se1y7cblljselva/status/1445708771129380878?s=24)
+
+Date:10/7/2021
+原视频日期：2021/10/05
+任务编号：KC168（2449）
+视频时间段 : 0:00-0:59
+
+英听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 –Raul
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

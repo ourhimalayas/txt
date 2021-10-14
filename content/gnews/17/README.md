@@ -2,55 +2,139 @@
 ---
 
 
-## 令人震惊的指控：澳大利亚的 Gladys Berejiklian 被大型制药公司勒索以实施 Covid-19 疫苗授权
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1592236/)
+## 中国统计局完全是按中共的指示来统计的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1592250/)
 
-作者：Captaindaretofly
+![](https://assets.gnews.org/wp-content/uploads/2021/10/77-a71ie-wzywl.jpg)
+[https://gtv.org/video/id=6166fd50d2e2b8174874be81](https://gtv.org/video/id=6166fd50d2e2b8174874be81)
 
+**郭文贵**
+**Miles Guo**
 
+你比如说我现在告诉你
+Por ejemplo, ahora te puedo decir
 
-Covid-19“大流行”人们不能免受病毒侵害——政府本着“健康”的精神施加专横的限制，以控制和操纵群众。腐败的政客和大型制药公司正在从公民的痛苦中获利，迫使他们强制接种疫苗，并采取无效措施让他们生病和恐惧。
+就是中国最重要的两个数据　
+Los dos datos más importantes de China
 
-然而，其中一些无耻的奸商，包括澳大利亚新南威尔士州 (NSW) 的 Gladys Berejiklian，也终于因他们的罪行而曝光。
+所有统计局
+Todas las Oficinas de Estadística
 
-据报道，最近辞去职务的Berejiklian被大型制药公司勒索，以迫使澳大利亚人接种疫苗，否则，制药公司将在腐败调查中指控她。
+你记住统计局里边的关键人
+Recuerda las personas cruciales de estas oficinas
 
-为了挽救自己和她的事业，Berejiklian 遵守了他们的要求，但最终还是被踢出局。现在，这位政治家发现自己与托尼·福奇 (Tony Fauci) 等其他叛国罪犯一起成为全球关注的焦点。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Berejiklian.png)
-在宣布辞职之前，臭名昭著的Berejiklian告诉悉尼居民，“如果他们不接受新冠肺炎，他们将在 12 月居家令结束后无限期地面临完全的社会隔离。”
+现在极大部份都是七哥的人
+Ahora la mayoría son gente mías
 
-几周前，澳大利亚前议员、澳大利亚联合党现任领导人克莱夫·帕尔默 (Clive Palmer) 是第一个对 Berejiklian 的犯罪行为进行抨击的人。在 Berejiklian 因一项无关的腐败调查而耻辱地被迫辞职后，他的评论现在引起了新的关注。
+还以河南人为主
+Y básicamente son personas de Henan
 
-Cairns News报道： “当一名记者试图让新南威尔士州政府撒谎关于1600 个‘病例’时，Palmer投下了炸弹，人們真的正在死于COVID-19 。关闭小型企业是唯一的出路。但对大多数新南威尔士州的人来说是双重打击。”
+统计局里面　
+Dentro de la Oficina de Estadística
 
-一位记者告诉他，悉尼企业主被告知，除非他们服用 Berejiklian 规定的一种疫苗，否则他们无法重新开设商店，但Palmer回击告诉记者，“总理在向他们撒谎。”
+统计数据主要两个
+Principalmente, en los datos de la estadística son dos
 
-“而且我会说她正在接受廉政公署的调查，但悉尼的一个特定说客控制着悉尼的自由党，并告诉她，她摆脱调查的唯一方法就是推疫苗，而他的客户是阿斯利康他的客户是辉瑞，” Palmer说。
+人民银行还有一个海关
+El Banco Popular de China y la Aduana
 
-编辑的记者第二次尝试就Palmer的信息发表声明，Berejiklian 的疫苗授权没有任何意义，其唯一理由是用“摧毁”小企业为“借口”，“他们知道这一点。”
+因为海关涉外, 你造不了假
+Porque la aduana tiene relación con el exterior y por eso no puedes falsificar
 
-据报道，在澳大利亚，病毒检测呈“阳性”的人中只有1,461 人死亡。然而，值得注意的是，这些测试本质上是欺诈性的，大多数死于新冠病毒的人通常都有潜在的健康问题。
+造假你只能30%, 50%
+Si lo haces, es solamente el 30% a 50%
 
-尽管如此，澳大利亚境内的某些州已被迫封锁并受到疫苗规定的影响，这遭到了公民的强烈反对。
+超过100%是很难的
+Es difícil superar los 100%
 
-当然，采取这些严格措施的原因与健康无关，而是为了推进统治精英的议程。无论是为了金钱、权力，还是两者兼而有之，受害的只是人民。
+超过一倍
+Superando el doble
 
-Reference: [https://theexpose.uk/2021/10/12/shocking-allegation-australias-gladys-berejiklian-was-blackmailed-by-big-pharma-to-impose-covid-19-vaccine-mandate/](https://theexpose.uk/2021/10/12/shocking-allegation-australias-gladys-berejiklian-was-blackmailed-by-big-pharma-to-impose-covid-19-vaccine-mandate/)
+再一个人民银行
+Luego es el Banco Popular de China
 
-（文章仅代表作者个人观点）
+它有一些外汇
+Él tiene algunas divisas
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人
+特别是印钞票
+Especialmente, la impresión de los billetes
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+特别是中国的货币是双轨制
+Y la moneda de China es un sistema de doble vía
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+海外一块儿, 国内一块
+Una parte es el extranjero y la otra es dentro del paìs
 
-**关注我们**
+它是有数据可以参考的
+Tiene datos de referencia
 
-Discord 账号
+它造假超过几倍是不可能的
+Es imposible falsificar muchas veces
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+所以统计局改的
+Por eso lo que cambia de la Oficina de Estadística
 
-Gettr 账号
+中国的统计局是领导让你多少就多少
+Es que debes poner los datos que te diga el líder
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+不用任何问的
+No necesitas preguntar
+
+你们无法想像
+No se imaginan
+
+就统计局最后到一个叫审计局里边的一个叫审计专员
+En cuanto a la Oficina de Estadísticas, la última se llama comisionado de auditoría
+
+专员就是里边的一个实际的局级干部
+El Comisionado es el cuadro real a nivel de oficina
+
+局级干部是每天接收到
+El cuadro a nivel de oficina recibe todos los días
+
+到时候中央领导给你个数
+Cuando llegue el momento, la dirección central te dice un número
+
+你就按这个填去
+Entonces lo llenas de acuerdo a eso
+
+另外一个最核心就是海关
+Y el otro núcleo es la aduana
+
+它就是接收海关人民银行的(数据)
+Él recibe los datos del Banco Popular de Aduanas
+
+它叫政治数据
+Se llama datos políticos
+
+它不可能有任何时候
+Este en ningún momento
+
+全向外国一样(把)公开的信息
+Anucia las informaciones al público como los otros países
+
+在全省各部门(的数据)弄上
+Subir (datos) en todos los departamentos de la provincia
+
+不可能的
+Es imposible
+
+————————————————————
+
+**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1446019519353274369?s=24](https://twitter.com/se1y7cblljselva/status/1446019519353274369?s=24)
+
+日期：10/11/2021
+原视频日期：10/07/2021
+任务编号：KC166（2472）
+视频时间段：0:00-1:27
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

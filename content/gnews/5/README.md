@@ -2,54 +2,46 @@
 ---
 
 
-## 疫苗接种率节节攀升，维州新增病例屡破新高
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1592334/)
+## 傅政华尿裤子孙力军装死孟建柱瘫倒王岐山堆地上的时刻
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1592409/)
 
-#### **编译报道：文泓**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-副本1.jpg)
-**图片来源：****The Guardian**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/下载-1_副本.jpg)
+据[2021年10月13日文贵直播：记住今天这个大日子；傅政华的被抓，全世界的律师事务所，司法界大颠覆，大唤醒；马云是光明会成员；目前世界的危局，经济大崩溃，世界的黑暗势力和中共的黑暗势力因为病毒疫苗受到扭曲；房地产的倒塌会导致中共更加要打台湾，全面拖垮世界经济；中美之间必有一战](https://www.youtube.com/watch?v=MUiGP6HYC9Y)时间点27：28——
 
-**新闻导读：**
+据说傅政华这孙子一样，你知道多恐怖啊！周永康被抓，倒在地上撒泼，我要给习近平打电话，又哭又抓又挠的，我有病！你们不能这么对我，我这贡献。
 
-澳大利亚墨尔本已是全世界名副其实的第一封锁城市。自今年7月16日发现6例新增病例起，连续封锁了三个月。当前疫苗接种率达到61.5%，然而，今天维州单日新增病例超过2000例。无论维州政府和主流媒体再如何推诿和歪楼，封锁期间，政府严格执行五公里交通限制，市民出入都有通行证，警察不抓刑事犯罪，专门围追堵截抓捕违反卫生规定的市民，再撒“未接种疫苗者感染给接种者”这种谎言，真的是厚颜无耻到家了。
+你想想孙力军，当场说孙力军整个是呆在那儿了，被抓的时候，然后咵~摁在那儿打他的时候，孙力军整个人不动了，装休克装死。
 
-爆料革命揭露，西方各国政府（包括澳洲）都接受大型制药公司的利益输送，为毒疫苗大开方便之门。预警病毒真相、揭露疫苗危机新中国联邦战友们义不容辞、坚持不懈。
+傅政华是更夸张，傅政华叫到会场的时候，一进去，他一看那个场面，就他成天双关人的那个所，就要通知他开会，四合院，一去，一看那场面，他说这一天终于来了。
 
-**译文：**
+说现在代表中纪委专案组宣布，整个人就咵~就倒在地上了，这就是傅政华，这就是共产党！这就是中国的好男儿，倒在地上了，拽都拽不起来，然后就尿裤子了，这我七哥一点不夸张，真的就尿裤子！然后这些人说，你TM有点脸吧，老傅，都到这一步了，你还不知道吗？
 
-**10月14日，**澳大利亚维多利亚州当天记录了2297例新增本地感染病例和11例死亡病例。
+站起来！——站不起来，然后就在车上，在运往关到北边那个昌平的一个所，路上就哼着“我要交待！”、“我被利用！”、“不是我的错！”，哇塞，“我全交待！”、“我对不起党！”，就来了！
 
-维州卫生部门于上午9点确认了新数据，这是一项新的全国记录，也是澳大利亚一个州首次打破每日2000例病例。
+你这孙子，你说这，你说我每次听这消息我都觉得作为一个中国男人，我说实话，我真想到洗手间拿个剪子把我代表男人的生殖器我剪了去，真的！我只要一剪没，我不当中国男人了，我当个狗都比当中国男人，这怎么到这份儿了你说这帮孙子！你当个坏人你也当个坏人的样子嘛！
 
-数据分析网站疫情统计（CovidBase AU）报道，维州的7天平均病例数在本周早些时候一直在下降，但现在已经飙升至1806例。
+所以我觉得中国女人不要嫁给中国人男人，我真的我觉得，娜娜酱、Rachel你都嫁人了，不要嫁给中国男人，我觉得真窝囊，就连孙力军、孟建柱，你知道当孟建柱宣布他说你现在领导让你在家加强警卫，然后在家待着，当时说孟建柱立马就倒了，就倒地上了，整个人就是这样。然后说扶我一下，我不舒服，然后扶我到沙发上去，扶几下扶不起来，在上海，这就是孟建柱！
 
-维州的冠状病毒编号数字——一个携带新冠病毒的人平均会感染多少其他人——仍呈下降趋势，当前为1.02，这是爆发以来的最低点。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1111-6.png)
-图片来源：News.com.au（维多利亚州新增感染病例）
+说王岐山说让他在他的南池子的家，南池子的北边朱镕基家，南边就是王岐山家，宣布让他在家待着的时候，王岐山整个人就咵~就堆在那儿了。
 
-维州这次爆发期间的死亡人数达到125人，大流行病造成的累计死亡人数达到945人。目前至少有705名新冠阳性患者住院，其中146人在重症监护室（ICU），其中92人需要呼吸机。
+（以下暂略）
 
-与此同时，维州比预期提前几天达到70%接种率的重新开放目标。现在至少61.5%的16岁及以上的维州人已全面接种疫苗。
+撰稿：喜马拉雅的肉夹馍
 
-维州政府最初预测墨尔本的封锁将于10月26日结束，一旦70%的16岁及以上人口完全接种疫苗，但新冠疫情的最新数据表明，该目标可能会在10月22日实现。
+审核：喜马拉雅的馍夹肉
 
-首席卫生官布雷特·萨顿(Brett Sutton)本周表示，如果提前实现目标，政府可能会更早结束封锁。
+校对：Maarago
 
-但卫生部长马丁·佛利（Martin Foley）没有承诺在周三重新开放该州。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-与此同时，州政府从周三开始在郊区的当地咖啡馆、健身房、俱乐部和购物街开设了临时疫苗接种诊所，以便于民众。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-当前，维多利亚州有20,505例活跃的冠状病毒病例。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-（本中仅代表作者个人观点，与Gnews平台无关）
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-** 新闻链接：**[Covid-19 Victoria: New local virus cases, 61.5 per cent fully vaccinated | news.com.au — Australia’s leading news site](https://www.news.com.au/national/victoria/news/victoria-records-2297-new-local-covid19-cases-new-national-record-as-vaccination-rate-climbs/news-story/9f67c8f29d4e1e7b3e97ef04494b1569)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-**发布：文泓**
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
