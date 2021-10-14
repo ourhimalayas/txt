@@ -2,19 +2,25 @@
 ---
 
 
-## 澳大利亚北领地将对拒绝接种疫苗者施以重罚
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1592978/)
+## 2021/10/13 英国投资非洲抗衡中共国和俄国
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1593025/)
 
-编译撰稿：文明 校对编辑：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FBm8orRUcAEU8M_.jpg)英国投资非洲抗衡中共国和俄国 网络图片
+英国外交大臣特拉斯12日表示，英国政府将在非洲投资数亿英镑，在埃及、塞内加尔和从事港口建设，以增强对非洲的经济影响力、抗衡中国和俄罗斯等“恶意行为者”。相关计划可望提升索马里兰的战略重要性。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/AD-edited.jpg)图为北领地首席部长：迈克尔.冈纳
-图片来源：天空新闻
+计划总金额超过12亿英镑。英国外交部持有的“大英国协发展集团”（CDC Group）将提供约5亿1500万英镑，阿拉伯联合大公国国有企业“杜拜环球港务集团”（DP World）将投资7亿1000万英镑，透过对各港口建设内陆物流网，解决全球贸易不平衡，且可望创造分别为13万8000及500万个的直接及间接就业机会。
+
+非洲是中共国推行“一带一路”的重点地区，也让许多发展中国家陷入债务陷阱。相关计划将为发展中国家提供“可靠而诚实”的投资。美国总统拜登3月与英国首相约翰逊共同提出并发展为七大工业国集团（G7）6月峰会发布的“重建美好未來世界”（简称B3W）倡议，以对抗“一带一路”。中共国“一带一路”政策拖垮了沿途很多国家的经济，也最终会把中共自己拖进死亡的沼泽。
+
+新闻参考链接：[https://amp.rfi.fr/tw/欧洲/20211013-英国投资非洲抗衡中国和俄国](https://amp.rfi.fr/tw/欧洲/20211013-英国投资非洲抗衡中国和俄国)
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-据《天空新闻网》（skynews.com）10月13日刊文报道，澳大利亚北领地首席部长迈克尔.冈纳在当天的新闻发布会上宣称：为实施重新开放该地区边境计划，所有面向公众和医疗前线的工作人员都必须在11月12日之前接种至少一剂COVID19疫苗，并在12月24日之前接种第二剂。
+编辑：【英国伦敦喜庄园编辑部】
 
-所有不遵守以上规定的人将被禁止进入其原来的工作场所，并将可能被当局处以高至5000澳元的罚款。
-
-（以上内容仅代表原文信息和作者个人观点）
-
-[原文链接：](https://www.skynews.com.au/australia-news/coronavirus/northern-territory-sets-strict-vaccine-mandate-for-workers-5000-fines-for-those-who-dont-comply/news-story/916dba4ba9a13fbb205f6923c24ace9c)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

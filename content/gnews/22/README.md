@@ -2,32 +2,25 @@
 ---
 
 
-## 大主教宣称天主教军队可以拒打新冠疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1592877/)
+## 山雨欲来&#8211;全球股票市场和房地产行业将面临大规模崩塌！
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1592904/)
 
-作者：文一
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
-据Defense One 新闻网报道 – 美国天主教军队的大主教蒂莫西·布罗格里奥（Timothy Broglio）周二宣布，应当允许天主教军队拒打新冠疫苗，支持那些寻求宗教豁免的军人。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture14-2.jpg)
-声明中说：”如果接种新冠疫苗违反了他或她良心的神圣性，那么任何人都不应该被强迫接受这种疫苗。”
+原文采编：UCool 优酷  编译撰稿：文所未闻
 
-布罗格里奥主教于2007年被教皇本笃十六世任命，现主持1985年设立的军事大主教区，对220个教会的180万军人及其家属负责。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/hd.jpg)图为已破产的恒大地产
+图片来源：YH
 
-疫苗无效且有毒，宗教界也在觉醒，发声呼吁拯救更多世人。
 
-（本文仅代表作者观点）
+据雅虎财经网站10月12日报道，国际货币基金组织在其当天发布的《上半年度金融报告》中指出：随着美联储和各国央行收紧信贷，此前全球超宽松的货币政策和畸形融资杠杆所导致的市场虚假繁荣将使全球股价和房价面临暴跌的风险。
 
-参考链接：[大主教宣称天主教军队可以拒打新冠疫苗](https://www.defenseone.com/policy/2021/10/catholic-troops-can-refuse-covid-vaccine-archbishop-declares/186056/)
+在股票市场方面，由于过去18个月以来，股票价格的普遍上扬导致了全球经济严重偏离了其基本发展轨道，因此股价指数可能随时在经济前景预期的改变，或主要经济各国政策突变的情况下大幅下跌。而在房地产方面，房价暴跌的风险将会很大。预计未来3年房价的平均跌幅，发达经济体可能达到14%，而新兴市场可能高达22%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+同时，全球加密货币市场规模目前早已超过了2万亿美元。虽然尚未对世界金融体系的稳定构成实质性威胁，但是为降低其未来潜在的金融风险，对加密货币市场的监管就显得迫在眉睫。
 
-新闻访谈终审：Ryan
-编辑/校对/审核：Hetangyuese
+（以上内容仅代表原文信息和作者个人观点）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+* * *
+
+校对发稿：硫酸羟氯喹64
+
+[原文链接：](https://finance.yahoo.com/news/imf-sees-risk-sizable-selloffs-143000604.html)

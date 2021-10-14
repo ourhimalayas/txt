@@ -2,29 +2,38 @@
 ---
 
 
-## 2021年全球公共债务仍处于创纪录的高水平
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1592861/)
+## 亚马逊购买二手货机以解决美港口供应链瓶颈问题
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1592876/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+作者：文一
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+据彭博社报道，亚马逊希望购买二手远程货运飞机，以将货物从亚洲运到美国，避免在美港口出现数周延误，导致货物误期交付，库存物流的积压。一个月前，可口可乐公司宣布租用散装货船，更早前，塔吉特和好市多就已经开始租用集装箱船，以避开运输延误等问题。
 
-编辑上传   水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/G-4.jpg)thecrytoassociate.com
-日本共同社10月13日报道，国际货币基金组织(IMF)评估称,受到中共病毒的影响，全球公共债务预计将在2021年达到世界GDP的97.8%，对比前一年降低了0.8%，但仍在创纪录的高水平。
+其他公司如家得宝、Lululemon和Peloton，也开始更多地依赖空运。虽然空运比海运要贵得多。195美元的海运货物，空运费用可达1000美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture12-2.jpg)
+计算机芯片短缺，史无前例的港口堵塞，以及卡车司机的严重缺乏。全球供应链正处于极端的压力之下。
 
-日本的财政状况在主要工业化经济体中已到最差水平，预计其政府债务与GDP之比今年将达到256.9%，较上年同期上升2.8个百分点，随后将在2026年降至251.9%。 美国的这一比率预计将在2021年下降0.6个百分点，至133.3%，到2026年将达到133.5%。
+不幸的是，穆迪分析公司警告说，供应链的中断 “将变得更糟糕”。
 
-国际货币基金组织（IMF）表示，全球公共债务目前达到88万亿美元，预计2021年和2022年会每年减少约全球GDP的1个百分点，之后将稳定在占约97%的GDP。IMF在其半年度财政监测报告中表示：“全球公共债务与GDP的比率在2020年因危机而大幅上升，到2021年已平稳。”“在这一次性跃升之后，预计未来几年的债务将持续高于疫情前的预测水平——在发达经济体，预计到2026年，债务水平将高出近20个百分点。”该组织补充说。
+事实上，国际货币基金组织(IMF)周二将其2021年美国经济增长预测下调了一个百分点，是G7经济体中下调最多的。IMF提到了供应链中断和消费疲软，这本身就是由供应链瓶颈效应导致的。
 
-IMF还表示，初步评估显示，2020年，政府、非金融企业和家庭发行的全球债务达到226万亿美元，比2019年增加了27万亿美元，是有记录以来的最大增幅。其中发达经济体和中共国占全球债务累积的90%以上，而其余新兴市场和低收入发展中国家仅占7%左右。
+中共病毒大流行对全球供应链造成了严重破坏。导致和加剧产品短缺、运输延误和价格上涨一系列问题。
 
-援引自法新社的报道，在中共病毒疫情爆发前的最近25年，全球各国政府每年均处于赤字状态。2021年，公共借贷将再次急剧增加，债务比率已至顶点。
-
-作为现代经济最重要的债券市场面临着巨大的危机。债券市场作为判断国家信誉和经济表现的重要标准，会影响到从房屋到股票市场、从养老金到保险行业，再到银行系统中的抵押贷款利率和储蓄账户利率等每一项与民生息息相关的资产价值。中共国作为全球债务大国，经济暴雷引发的骨牌效应，带来席卷全球的经济大危机已经势不可挡，真实数据出来的时候，比目前看到的肯定要惊人得多。
-
-（文章仅代表作者个人观点）
+（本文仅代表作者观点）
 
 参考链接：
+1. [亚马逊购买二手货机以解决美港口供应链瓶颈问题](https://www.msn.com/en-us/money/companies/amazon-is-reportedly-shopping-for-used-cargo-jets-that-can-fly-from-china-an-effort-that-would-help-the-company-side-step-major-port-delays/ar-AAPtUkq)2. [亚马逊购买二手货机以解决美港口供应链瓶颈问题](https://www.cnn.com/business/live-news/supply-chain-issues-biden-10-13-21/index.html)
+3. [亚马逊购买二手货机以解决美港口供应链瓶颈问题](https://www.msn.com/en-us/money/markets/the-global-supply-chain-nightmare-is-about-to-get-worse/ar-AAPqPA5)
 
-[https://english.kyodonews.net/news/2021/10/6882caef5811-global-public-debt-remains-at-record-high-levels-in-2021-imf.html](https://english.kyodonews.net/news/2021/10/6882caef5811-global-public-debt-remains-at-record-high-levels-in-2021-imf.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
-[全球政府债务创历史新高 – 今日经济 (rfi.fr)](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E4%BB%8A%E6%97%A5%E7%BB%8F%E6%B5%8E/20210420-%E5%85%A8%E7%90%83%E6%94%BF%E5%BA%9C%E5%80%BA%E5%8A%A1%E5%88%9B%E5%8E%86%E5%8F%B2%E6%96%B0%E9%AB%98)
+新闻访谈终审：Ryan
+编辑/校对/审核：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

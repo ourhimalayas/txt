@@ -2,38 +2,32 @@
 ---
 
 
-## 亚马逊购买二手货机以解决美港口供应链瓶颈问题
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1592876/)
+## 有声|喜币在虚拟币世界里能存在，发展，壮大的三个主要原因
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1592896/)
 
-作者：文一
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
-据彭博社报道，亚马逊希望购买二手远程货运飞机，以将货物从亚洲运到美国，避免在美港口出现数周延误，导致货物误期交付，库存物流的积压。一个月前，可口可乐公司宣布租用散装货船，更早前，塔吉特和好市多就已经开始租用集装箱船，以避开运输延误等问题。
+配音：香草山教育部-蒙古鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+网站Coinopsy 追踪并归纳了所有已经死掉的虚拟币及致死原因。在2,300个短命的虚拟币中，1542个是被遗弃的或是没有交易量的，占67%。位居第二的是欺诈，有482个，占21%。第三类就是初始发行不利，有239个。
 
-其他公司如家得宝、Lululemon和Peloton，也开始更多地依赖空运。虽然空运比海运要贵得多。195美元的海运货物，空运费用可达1000美元。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture12-2.jpg)
-计算机芯片短缺，史无前例的港口堵塞，以及卡车司机的严重缺乏。全球供应链正处于极端的压力之下。
+虚拟币从诞生到现在不过十几年的时间，参差不齐的开发者，投资者，赌徒等都想在这个新兴产业中分一杯羹。那么什么样的虚拟币能胜出呢？网站theconversation.com的一篇文章给出了很好的答案。
 
-不幸的是，穆迪分析公司警告说，供应链的中断 “将变得更糟糕”。
+首先是资金雄厚。资本的大小决定了开发团队的实力。新中国联邦的喜币在郭先生和大基金的运作下，在研发，推广，上市等各个方面都会是胜人一筹。
 
-事实上，国际货币基金组织(IMF)周二将其2021年美国经济增长预测下调了一个百分点，是G7经济体中下调最多的。IMF提到了供应链中断和消费疲软，这本身就是由供应链瓶颈效应导致的。
+其次是稳定性。文章说虚拟币要想成功的两个原因是人们相信它并且愿意用它。喜币固定的总发行量，与黄金挂钩的可靠性，以及G生态圈的实用性都标志着随着时间的推移，越来越多的人们会相信，接受并使用喜币。
 
-中共病毒大流行对全球供应链造成了严重破坏。导致和加剧产品短缺、运输延误和价格上涨一系列问题。
+文章最后提到虚拟币也要“为真不破”。币虽然是虚的，但确真真正正是为了普通百姓的自由服务，对抗强权。喜币正是在爆料革命灭共的前提下应运而生。它是亿万普通草根的金融诺亚方舟。
 
-（本文仅代表作者观点）
+喜币，既不是第一个也不会是最后一个虚拟币，但它一定是最棒，最灿烂的那个。
 
-参考链接：
-1. [亚马逊购买二手货机以解决美港口供应链瓶颈问题](https://www.msn.com/en-us/money/companies/amazon-is-reportedly-shopping-for-used-cargo-jets-that-can-fly-from-china-an-effort-that-would-help-the-company-side-step-major-port-delays/ar-AAPtUkq)2. [亚马逊购买二手货机以解决美港口供应链瓶颈问题](https://www.cnn.com/business/live-news/supply-chain-issues-biden-10-13-21/index.html)
-3. [亚马逊购买二手货机以解决美港口供应链瓶颈问题](https://www.msn.com/en-us/money/markets/the-global-supply-chain-nightmare-is-about-to-get-worse/ar-AAPqPA5)
+文字版原文：[喜币在虚拟币世界里能存在，发展，壮大的三个主要原因](https://gnews.org/zh-hans/1590736/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
-
-新闻访谈终审：Ryan
-编辑/校对/审核：Hetangyuese
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

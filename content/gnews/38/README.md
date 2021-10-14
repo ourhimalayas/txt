@@ -2,22 +2,30 @@
 ---
 
 
-## 拜登急欲调动各方运输营运能力以应对供应链危机！
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1592758/)
+## 有声|911系统因缺少人手处于危险之中
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1592777/)
 
-作者：我是1，小一. 编辑发稿：硫酸羟氯喹64
+配音：香草山教育部-蒙古鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+据零对冲10月12日报道，美国救护车协会 (AAA) 警告联邦众议院和参议院的议员们，“美国的EMS（Emergency Medical Service ）系统正面临着严重的劳动力短缺问题。这原本是一个已经存在了十多年的长期问题，目前由于拜登政府发布了新的强制接种疫苗的政策，这一问题变得更加严重。这可能破坏我们的紧急情况救助系统。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/bd-edited.jpg)图片来源：GNEWS
+缅因州沃尔多伯勒镇经理朱莉凯泽告诉缅因州新闻中心：“强制疫苗政策导致了急救人员流失。”他们原以为员工会因为害怕失去工作而服从政府，但他们没有想到，急救人员的工资并不高，他们完全可以找到其他有更高薪酬的工作。
 
+反对疫苗强制执行的不仅是急救人员，洛杉矶的数百名消防员也在近日提交了一份通知，准备就强制接种疫苗的命令起诉该市政府。洛杉矶消防队员的律师写道，疫苗接种令是“明显的错误行为”，理由包括干扰就业权利；造成情绪困扰；侵犯宪法隐私权；违反医学实验法中对人体受试者的保护。
 
-10月13日，美国总统拜登与加州长滩和洛杉矶港口的运营商、港口工人及卡车司机协会，以及沃尔玛、UPS、联邦快递等全美大型货物承运商和零售商在线开会，讨论如何解决威胁到物价上涨和经济复苏的供应链瓶颈问题。
+而洛杉矶县警长亚历克斯·维拉纽瓦 (Alex Villanueva)则明确表示，他将拒绝执行有关强制疫苗的规定。他说如果这样做，警局将面临失去多达10%警员的风险。
 
-美国政府打算与上述企业合作完成“90天冲刺”任务。由于目前疫情再度恶化所导致的海外工厂和港口停工或封闭，港口货物积压、以及严重缺少仓储工人和长途卡车司机等困境，美加地区的物价上涨已非常明显。
+越来越多的急救人员、消防员和警察不接受政府强制疫苗接种的命令，导致离职潮，这毫无疑问会破坏本已脆弱的911系统的有效运行。
 
-长滩和洛杉矶这两个占了美国40%以上进口集装箱量的港口，目前已开始了全天不间断运作模式。沃尔玛、UPS和联邦快递也将逐渐全天候经营。圣诞节期间商品价格上涨和供应不足几乎已成定局。而这一切将使拜登面临巨大的社会民意压力和政治风险。
+文字版原文：[911系统因缺少人手处于危险之中](https://gnews.org/zh-hans/1590540/)
 
-（以上内容仅代表原文信息和作者个人观点）
-
-* * *
-
-[原文链接：](https://wallstreetcn.com/articles/3642266)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
