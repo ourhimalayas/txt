@@ -2,139 +2,33 @@
 ---
 
 
-## 中国统计局完全是按中共的指示来统计的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1592250/)
+## 郭文贵先生摘要“德国新冠调查委员会新闻发布会”的精选片段
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1592367/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/77-a71ie-wzywl.jpg)
-[https://gtv.org/video/id=6166fd50d2e2b8174874be81](https://gtv.org/video/id=6166fd50d2e2b8174874be81)
+作者：香草山写作组 – 晓仙女
 
-**郭文贵**
-**Miles Guo**
 
-你比如说我现在告诉你
-Por ejemplo, ahora te puedo decir
 
-就是中国最重要的两个数据　
-Los dos datos más importantes de China
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-所有统计局
-Todas las Oficinas de Estadística
 
-你记住统计局里边的关键人
-Recuerda las personas cruciales de estas oficinas
 
-现在极大部份都是七哥的人
-Ahora la mayoría son gente mías
+10月6日，郭文贵先生盖特发布了“关于9月20日德国新冠调查委员会新闻发布会的几段精选”片段。盖文中指出，验尸报告的主要病理学家之一 Burkhardt 博士表示：
 
-还以河南人为主
-Y básicamente son personas de Henan
+1.含有部分病毒（S蛋白）的疫苗，可在心肌及其包膜中，引起类似的以淋巴细胞为主的淋巴细胞性心肌炎，如果发生在心脏的传导系统中，会导致立即的心脏死亡。 2.博士观察到所有器官和所有组织中的淋巴细胞”疯狂”异常增生，免疫反应过度，即自我攻击，引起自身免疫性疾病，免疫能力降低对癌症生长的影响。 3.内源性弥漫性肺泡损伤和胸膜损伤，肯定是疫苗副作用。
 
-统计局里面　
-Dentro de la Oficina de Estadística
+另外新冠调查委员会律师 Helga Fischer 先生表示：欧洲应该使用显微镜检查，设定测试协议和标准来审查含有未申报成分的疫苗批次。如果这些疫苗中发现“未声明”材料却在德国无法查明，这就是丑闻，疫苗制造商是有问题、要负责的！ 最后奥地利认证草药师和世界健康论坛 21 的联合创始人 Maria Hubmer-Mogg 医生说：“不需要做更多的研究，而是要求将疫苗从市场上撤下，并且必须停止紧急授权使用的批准，为青少年和婴儿接种疫苗是犯罪行为！” 郭文贵先生摘录的新闻发布会要点，用专业的角度证明了爆料革命一直以来传播的疫苗真相，再次提醒人们：千万不要打疫苗！
 
-统计数据主要两个
-Principalmente, en los datos de la estadística son dos
+参考链接 [https://gettr.com/post/pdej5p192a](https://gettr.com/post/pdej5p192a)
 
-人民银行还有一个海关
-El Banco Popular de China y la Aduana
+编辑/审核/发稿：正义的小新
 
-因为海关涉外, 你造不了假
-Porque la aduana tiene relación con el exterior y por eso no puedes falsificar
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-造假你只能30%, 50%
-Si lo haces, es solamente el 30% a 50%
-
-超过100%是很难的
-Es difícil superar los 100%
-
-超过一倍
-Superando el doble
-
-再一个人民银行
-Luego es el Banco Popular de China
-
-它有一些外汇
-Él tiene algunas divisas
-
-特别是印钞票
-Especialmente, la impresión de los billetes
-
-特别是中国的货币是双轨制
-Y la moneda de China es un sistema de doble vía
-
-海外一块儿, 国内一块
-Una parte es el extranjero y la otra es dentro del paìs
-
-它是有数据可以参考的
-Tiene datos de referencia
-
-它造假超过几倍是不可能的
-Es imposible falsificar muchas veces
-
-所以统计局改的
-Por eso lo que cambia de la Oficina de Estadística
-
-中国的统计局是领导让你多少就多少
-Es que debes poner los datos que te diga el líder
-
-不用任何问的
-No necesitas preguntar
-
-你们无法想像
-No se imaginan
-
-就统计局最后到一个叫审计局里边的一个叫审计专员
-En cuanto a la Oficina de Estadísticas, la última se llama comisionado de auditoría
-
-专员就是里边的一个实际的局级干部
-El Comisionado es el cuadro real a nivel de oficina
-
-局级干部是每天接收到
-El cuadro a nivel de oficina recibe todos los días
-
-到时候中央领导给你个数
-Cuando llegue el momento, la dirección central te dice un número
-
-你就按这个填去
-Entonces lo llenas de acuerdo a eso
-
-另外一个最核心就是海关
-Y el otro núcleo es la aduana
-
-它就是接收海关人民银行的(数据)
-Él recibe los datos del Banco Popular de Aduanas
-
-它叫政治数据
-Se llama datos políticos
-
-它不可能有任何时候
-Este en ningún momento
-
-全向外国一样(把)公开的信息
-Anucia las informaciones al público como los otros países
-
-在全省各部门(的数据)弄上
-Subir (datos) en todos los departamentos de la provincia
-
-不可能的
-Es imposible
-
-————————————————————
-
-**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1446019519353274369?s=24](https://twitter.com/se1y7cblljselva/status/1446019519353274369?s=24)
-
-日期：10/11/2021
-原视频日期：10/07/2021
-任务编号：KC166（2472）
-视频时间段：0:00-1:27
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

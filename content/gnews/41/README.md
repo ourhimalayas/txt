@@ -2,30 +2,19 @@
 ---
 
 
-## 爆料革命影响之下,疫苗接种无法再推进!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591631/)
+## 大直播10/13傅政华被抓将引爆中西大律师事务所的腐败炸弹
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1591635/)
 
-作者：文龍
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月12日郭文贵先生在盖特账号发布了简短视频，称现阶段共产党对全世界的贸易战和经济绑架，以及西方国家的堕落都超出想象。而全球的各大互联网科技公司，只要参与限制公众讨论疫苗死亡及灾难的，最终都要承担后果。但无论黑暗势力再怎样努力欺骗，想要把疫苗接种比例继续推进10%已经不可能了，这就是我们爆料革命/新中国联邦的力量 !
+新闻采稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-13-at-10.28.46-AM.png)图片来源：GTV
+爆料革命发起人郭文贵先生在10月13日大直播伊始，就惊爆：随着中共国前司法部长傅政华的被调查，中共国国内各大律师事务所和许多合资合作背景的国外大律师事务所都将发生巨大的变局。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-8.jpeg)
+郭先生爆出几位中共国的高官被查现场的拙劣表现，并指出随着他们的失势甚至被调查，会产生一连串的变局。傅政华原是直接负责国内律师和海外合作律师业务的最高官，内部的高度腐败体制和对外的蓝金黄使得内外大律师事务所必然会爆出更多丑闻和案件。
 
-文贵先生称，大家可以看到每时每刻全球政治和经济的变化，最终全人类的政治格局和制度都将大改良，所谓的共产主义和资本主义都已经不能满足人类的需要和地球文明的进步!包括目前的宗教和媒体, 竟然与邪恶势力在一起威胁到全人类的健康和安全，也都将面临变革!
+郭先生深刻地点出以法治为根基和立国之本的美、欧、加等国，因为大律师事务所和法官、检察官千丝万缕的体制机制联系，使得这种一连串巨变甚至会使得西方司法系统都会产生大的震荡。
 
-(本文仅代表作者观点)
+基于巨大的司法利益链条， 无论是在中共国内的律师事务所还是与中共国官方合作的海外律师事务所， 无疑会随着傅政华案的调查深入，会爆出更多的猛料，让我们拭目以待。
 
-参考链接: [https://gettr.com/post/pdy3yq0473](https://gettr.com/post/pdy3yq0473)
+发布：Shifter
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：文龍
-编辑/校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+【原文链接】https://gtv.org/broadcast/watch/6166d150304e992109b45e70

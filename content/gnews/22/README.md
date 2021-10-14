@@ -2,55 +2,79 @@
 ---
 
 
-## 拜登总统可能卷入FBI对亨特的财务调查
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1592224/)
+## 战友们做好过山车的准备
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1592331/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/500-a71ie-wzywl.jpg)
+[https://gtv.org/video/id=616713e6d2e2b8174874c4aa](https://gtv.org/video/id=616713e6d2e2b8174874c4aa)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/H.jpg)e-today.us
-拜登窃位入主白宫以来一直表现出恐共、亲共的姿态，在病毒溯源、阿富汗乱局、释放孟晚舟、解除多项出口限制、贸易谈判等方面积极配合了中共，几天前文贵先生的大直播中再次揭露，无能老儿拜登竟然给中共写保证书，要出卖台湾，淋漓尽致地扮演了中共走卒的角色。
+**郭文贵：
+Miles Guo：**
 
-拜登一系列的亲共举措绝非偶然，战友们不会忘记“奋战13天”的经历，拜登在担任副总统期间，其家族就与中共有经济往来。只要你沾上了中共，就会有数不清的把柄被中共掌握，拜登目前的表现符合受中共操控的逻辑，没想到的是，上台不到10个月，就有这样露骨、疯狂、大动作的表现。还好，除了爆料革命，美国公众也在关注。
+咱们10月3号是七哥说的90天，是整整90天，今天是92天
+October 3 is what I said the 90 days, is the 90th day, today is the 92nd day
 
-《福克斯新闻》发表文章，题目“报告称，乔·拜登可能会卷入联邦调查局对其儿子亨特的调查”，副标题，亨特正面临联邦调查局对其财务状况的调查。
+记住啊，它晚来2天，它还会来的
+Remember, it came 2 days late, but it came at last
 
-全文如下：
+还有更大的事儿还会发生
+There are bigger things to come
 
-周二（10月12日）公布的一份报告称，由于共同银行账户和支付对方账单，乔·拜登可能会卷入联邦调查局（FBI）正在进行的对其儿子亨特·拜登财务状况的调查。
+再过一个月，如果你还觉得Facebook这事儿
+In another month, if you still think Facebook
 
-《每日邮报》（Daily Mail）从亨特·拜登遗弃的笔记本电脑上获得的电子邮件显示，他的商业伙伴埃里克·施沃林（Eric Schwerin）在乔·拜登处理报税时，讨论了父子俩互相付账的问题。
+你觉得是大事儿的话，你就是low了，再过一个月30天
+is a big deal, you are low, in another 30 days
 
-此外，此外，电子邮件显示，施韦林为当时担任副总统的乔·拜登处理了图书交易的请求，还管理了拜登捐赠给特拉华大学的参议院文件。
+再记住从今天数，你就觉得这不是什么大事了
+Remember to count from today, and you’ll know it’s not a big deal yesterday
 
-亨特·拜登声称，他和父亲共用一个银行账户，并承认去年他因税收问题接受过联邦的调查。
+看一看俄罗斯的黄金，“唰”起来了，美元“唰”下来了，人民币“唰”起来了
+Look at the Russian gold, “swoosh” up, the dollar “swoosh” down, the yuan “swoosh” up
 
-电子邮件显示，2010年4月9日，施沃林写信给亨特：“我整个下午都在处理JRB的税收（JRB’s taxes）问题（但解决了一个大问题——所以一切都是值得的）。”
+然后呢，你再看看现在俄罗斯在做什么
+Then again, you look at what Russia is doing now
 
-同年6月10日，施沃林写道：“你父亲的特拉华州退税支票今天就来了，我将把钱存入他的账户，并开一张该金额的支票给你，因为他欠你的。我想我不需要让他知道，但如果你想的话就去吧。如果不，我明天就会存入。”
+你看这欧洲那些老同志，是不是，欧洲太老了，历史太悠久了
+You see those old European friends, don’t you, Europe is too old with long history
 
-目前还不清楚乔·拜登究竟欠亨特多少钱。
+你会看着那些傻德国，还有英国、法国
+See those German, and England, and France
 
-一位洗钱和刑事税法专家告诉《每日邮报》，这些纠葛可能会将现任总统拖入FBI的调查。
+你会让人家给玩的简直啥都不是
+You will let the Communists get the best of you
 
-这位不愿透露姓名的前联邦检察官专家告诉《每日邮报》：“无论你在做什么交易，如果与家人或朋友有关联，肯定会有答案（他们将接受调查）。显然，如果你说的是美国总统，你最好有一个非常好的理由和他说话。”
+日本这个国家就更不用提了
+oh, not to mention Japan
 
-据报道，联邦调查局和国税局也在调查亨特·拜登的商业关系以及是否有可能被指控洗钱。
+岸田这个人要不兑现承诺，对老共开战
+If Kishida doesn’t keep his promise, if he doesn’t fight against the Communist Party
 
-另一位专家，前美国情报官员和财政部特别探员约翰·卡萨拉（John Cassara）告诉《每日邮报》，如果不是因为拜登是总统的事实，他早已成为众矢之的了。
+他会很快就滚蛋，没他的位置
+he will soon be out of the picture and there will be no place for him in Japanese politics
 
-“公开获得的信息非常令人担忧，特别是在腐败领域。” 卡萨拉说，“他们可以从所有不同的渠道进行，追踪腐败线索，然后指控洗钱。”
+你们记住，做好过山车的准备
+Remember, be prepared for a roller coaster ride
 
-卡萨拉补充道：“腐败是洗钱的一种上游犯罪，除了腐败之外，就是对腐败的看法，这种事情不应该发生，它破坏了对美国政府的充分信任，它破坏了诚信和我们的国际声誉。这是一件尴尬的事情。”
+人类前所未有的所有的变革事，都让我们碰上了
+All the transformative things that mankind has never seen before have come to us
 
-白宫没有立即回应《福克斯新闻》的置评请求。
+————————————————————
 
-（原文完）
+**原视频链接:** [https://twitter.com/se1y7cblljselva/status/1445708771129380878?s=24](https://twitter.com/se1y7cblljselva/status/1445708771129380878?s=24)
 
-对亨特·拜登、施沃林这些名字，战友们再熟悉不过了，没准《每日邮报》的信息来源首先来自于爆料革命的GNEWS等。对拜登家族的所作所为我们已经了解，关键是一年后的今天，美国对这些问题的反应进展到了何种程度？对中共的认知达到了怎样的水平？基本可以定论，美国政府要员、要害部门工作人员的亲属朋友与中共国有生意往来的，没有一个是干净的，只怕美国没有揭盖子的勇气。如果调查不出拜登家族的问题，只能说明美国的三权系统都出了问题，而所有问题都可以追溯到邪共。
+Date:10/7/2021
+原视频日期：2021/10/05
+任务编号：KC168（2449）
+视频时间段 : 0:00-0:59
 
-（文章仅代表作者个人观点）
+英听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 –Raul
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-原文链接：
-
-[https://www.foxnews.com/politics/joe-biden-could-get-drawn-into-the-fbi-probe-into-his-son-hunter-report](https://www.foxnews.com/politics/joe-biden-could-get-drawn-into-the-fbi-probe-into-his-son-hunter-report)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

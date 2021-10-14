@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/14/2021 2:05 AM (UTC)`
+
+10月13号：这是真的么？但我相信真正的较量的背后老板：还是江志成！【七哥您好! 这是香港阿里巴巴的一个月走势图。大概从马云去香港溜达开始，从最低的130元十天左右拉升了30%。<br/><br/>通过这么一出资本戏，似乎是传递一个信号，就是习就是个纸老虎，配合胡舒立的猪头，还有吃螃蟹。营造出一种：你搞不死老子，我胡汉三又回来啦，市场还是认我马云的还乡团气氛。】
+![img](https://media.gettr.com/group22/getter/2021/10/14/02/93c9c0a1-ede7-ba04-3d44-55b50724e1f3/5a4344014ad55cb816bfea51d9b0533f.jpg)
+
+---
+
+`@miles 10/14/2021 1:58 AM (UTC)`
+
+美国很多航空公司雇员宁愿失业也不愿打疫苗<br/><br/>Many US airline employees are choosing to lose their jobs instead of being vaccinated
+![img](https://media.gettr.com/group21/getter/2021/10/14/01/58/a713befa-acc9-a4bd-0292-276797f38faa/out.jpg)
+
+---
+
 `@miles 10/14/2021 1:37 AM (UTC)`
 
 10月13号：感谢战友的精美的制作。这个视频当中的每一个镜头，都是用生命和血汗换来的……我一生中最对不起的，就是我的家人，还有盘古，裕达……方正．海通．民族证券，以及多个合作基金的同事们，还有合作的基金的相关人员，还有受迫害的我那些合伙人，这一辈子是无法偿还我欠下他们的债……但我一定会为他们所遭受的痛苦，讨回公道……一定会铲除共产党，为他们报仇雪恨。归还他们被抢走了所有的财富。😡😡😡😡😡😡🥵🥵🥵
@@ -284,20 +298,6 @@ MILES GUO Live Stream 2021/10/11
 
 10月10号：尊敬的战友们好，我们都应该拥有这样美好的现代的文明的生活，🔥🔥🔥🔥🔥你们说对不对啊？
 ![img](https://media.gettr.com/group21/getter/2021/10/10/17/32/82957eb8-89ba-61b1-2042-37d5daf7074e/out.jpg)
-
----
-
-`@miles 10/10/2021 4:27 PM (UTC)`
-
-不同国家抗议者走上街头抗议COVID限制措施和强制疫苗政策，世界人民正在觉醒中。<br/><br/>Protesters from different countries took to the streets to protest COVID restriction measures and mandatory vaccine policies. People all over the world are awakening.
-![img](https://media.gettr.com/group1/origin/2021/10/10/16/27/62df9962-7a15-c7af-5eac-9b17700a8c3a/out.jpg)
-
----
-
-`@miles 10/10/2021 6:45 AM (UTC)`
-
-10月10号：尊敬的战友们好，洛杉矶发生的将没有消防员的这种情况，会在全球的电力医院警察公共设施，所有的领域发生。全球的政府，将面对无法计算的诉讼，和社会公共灾难的巨大社会问题……这就是共产党的病毒，和共产党制造的疫苗灾难，对人类的摧毁。这也是他们最喜欢看到的结果，完全在邪恶的势力和中国共产党的计划之中。只有新中国联邦最早的在2020年一月份就警告世界，“疫苗才是真正的灾难的核心。”但愿世界早日醒来。新中国联邦人……将为此奋斗到底。
-![img](https://media.gettr.com/group41/getter/2021/10/10/06/45/29d3a462-1e92-94af-19ba-747ed33f81d5/out.jpg)
 
 ---
 

@@ -2,79 +2,30 @@
 ---
 
 
-## 战友们做好过山车的准备
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1592331/)
+## 光明会马云信心满满入港全面布局，助王岐山颠覆习政权
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1592422/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/500-a71ie-wzywl.jpg)
-[https://gtv.org/video/id=616713e6d2e2b8174874c4aa](https://gtv.org/video/id=616713e6d2e2b8174874c4aa)
+**作者：新西兰伊甸农场 亚伦**
 
-**郭文贵：
-Miles Guo：**
 
-咱们10月3号是七哥说的90天，是整整90天，今天是92天
-October 3 is what I said the 90 days, is the 90th day, today is the 92nd day
 
-记住啊，它晚来2天，它还会来的
-Remember, it came 2 days late, but it came at last
 
-还有更大的事儿还会发生
-There are bigger things to come
 
-再过一个月，如果你还觉得Facebook这事儿
-In another month, if you still think Facebook
 
-你觉得是大事儿的话，你就是low了，再过一个月30天
-is a big deal, you are low, in another 30 days
 
-再记住从今天数，你就觉得这不是什么大事了
-Remember to count from today, and you’ll know it’s not a big deal yesterday
+**据郭文贵先生****10****月****13****日大直播中解释道，爆料革命几年前就报道金融机构暗藏的危机，习到现在才明白、才开始调查给马云输送钱的****25****家所谓国有银行、金融机构。可是，控制人民银行的范一飞、周亮，周小川、郭树清都是人家王岐山的人。况且，给予身体健康出问题的习的时间所剩无多。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ezgif.com-gif-maker-3.jpg)图片来源法广
+**想当初的南普陀会议，江、曾、朱指定王岐山、孟建柱做监国的。吴征的原话对郭文贵先生说，“老郭，你知道孟监国、王监国，马云就是事实上的中国财政部长，王岐山上去以后胡舒立就是事实上的中国宣传部长。”**
 
-看一看俄罗斯的黄金，“唰”起来了，美元“唰”下来了，人民币“唰”起来了
-Look at the Russian gold, “swoosh” up, the dollar “swoosh” down, the yuan “swoosh” up
+**很多人不知道的是，阿里巴巴创始人马云是共济会、光明会最重要成员之一，和王岐山是一会之友。马云近日去香港，参与的一切香港活动证明全是为了争取权力，告诉胡舒立要出手，觉得王岐山一定会出手颠覆习近平，建立江家、王岐山家、朱镕基家、马云的政府。**
 
-然后呢，你再看看现在俄罗斯在做什么
-Then again, you look at what Russia is doing now
+**如果专制独裁的习被干掉了，他们这些人上位了中国能走上民主法制的道路吗？从孟建柱、孙力军、傅政华、马云怎么对待中国的警察和百姓，大家就知道如果他们上位会比习近平坏一万倍。**
 
-你看这欧洲那些老同志，是不是，欧洲太老了，历史太悠久了
-You see those old European friends, don’t you, Europe is too old with long history
+**巧合的是，昨天国内司法部门透露有一位姚姓人士（不是姚依林家族的）被抓了，这位人士很重要。**
 
-你会看着那些傻德国，还有英国、法国
-See those German, and England, and France
+**这位姚姓人士是孙力军极力想弄死的人，因为他掌握了当年江志诚在海外的财富密码。正是姚之前告诉郭先生，马云不会有救，并告知马云跟江家的密切关系。最重要的，他还透露马云在外面弄习家的事情（搞习家的黑材料）。姚说习家有人在英国，也有外国洋女婿。马云布局已经不是那么简单，最近找的人都是跟这小子在接触，这位洋女婿也亲口承认正在和马云尝试做基金等项目。这位洋女婿拥有的好几辆跑车，全是马云找人给提供的。所以，习家将来一定出大事，而且还不知道背后的原因。**
 
-你会让人家给玩的简直啥都不是
-You will let the Communists get the best of you
+**当年江家、孟建柱就是盯住了令计划儿子令谷，促使西藏女孩跟他交往，关键时刻下毒出黑手。如今，习家好几人已经被马云、吴征、江家人盯住了。最让习恐惧的就是他的家人，对待令计划的手段也会一样地对待他，这是中共历来以黑治国的传统。**
 
-日本这个国家就更不用提了
-oh, not to mention Japan
-
-岸田这个人要不兑现承诺，对老共开战
-If Kishida doesn’t keep his promise, if he doesn’t fight against the Communist Party
-
-他会很快就滚蛋，没他的位置
-he will soon be out of the picture and there will be no place for him in Japanese politics
-
-你们记住，做好过山车的准备
-Remember, be prepared for a roller coaster ride
-
-人类前所未有的所有的变革事，都让我们碰上了
-All the transformative things that mankind has never seen before have come to us
-
-————————————————————
-
-**原视频链接:** [https://twitter.com/se1y7cblljselva/status/1445708771129380878?s=24](https://twitter.com/se1y7cblljselva/status/1445708771129380878?s=24)
-
-Date:10/7/2021
-原视频日期：2021/10/05
-任务编号：KC168（2449）
-视频时间段 : 0:00-0:59
-
-英听校: 洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 –Raul
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**最后，由新华社北京****10****月****13****日电，十九届中央第八轮巡视的****15****个巡视组完成对****25****家金融单位的巡视进驻工作。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1212.jpg)**截图来源中央纪委国家监委网站**

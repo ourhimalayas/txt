@@ -2,31 +2,109 @@
 ---
 
 
-## 中俄网络勒索猖獗 美国协调30国会议共同应对
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1592194/)
+## 前所未有的金融大变局即将到来
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1592308/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/100-aa06i-ko6rc.jpg)
+[https://gtv.org/video/id=61671338d2e2b8174874c477](https://gtv.org/video/id=61671338d2e2b8174874c477)
 
-据美国之音10月13日报道，美国白宫宣布，在国家安全委员会的牵头和协调下，近30个国家和国际组织的部长级和其他高级官员在13日和14日举行视讯会议，共同对付中俄网络勒索行为。
+**郭文贵：**
+**Miles Guo：**
 
-据报道，拜登政府一位高级官员12日在背景介绍会上表示，过去几个月来，美国与盟友和伙伴国一起，追究那些从事恶意网络行为的国家的责任，并在最广泛的国际支持下查明了俄罗斯和中共国实施恶意网络行动；接下来，美国将与30个国家和欧盟的高级官员们一道讨论如何加快合作打击网络勒索行为。
+我觉得，你知道吗？ Rachel
+I think, you know what, Rachel?
 
-在背景介绍会上，美国资深官员也强调，这次对付网络勒索行为的国际视讯会议并非由美国主持，美国只是扮演牵头和协调角色，在两天的会议中，日本、澳大利亚、德国和美国将分别主持不同主题的讨论。
+这些都是媒体曝出来的，实际上很多都是有意识的放料
+These are all exposed by the media, in fact, many of them are conscious of releasing
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211013225810.png)图片来自于网络
+都是放气球，你知道吗？
+It’s all ballooning, you know?
 
-这位官员还说，自从拜登总统与俄罗斯总统普京今年早些时候就网络勒索问题通话后，莫斯科方面采取了一些积极行动对付网络勒索行为，但没有提到中共是否做出了任何努力。
+美国研究这个要不要美元做数字货币
+Whether the U.S. lunch digital currency or not?
 
-这一国际联合行动为美国对中共国的有关指责增加了可信度和力度。拜登政府表示，多国共同指责中共政府的恶意网络行为，显示中共的网络行为不仅损害了美国的安全和利益，也威胁到世界多个国家的经济与国家安全。
+实际上很简单
+It’s actually quite simple
 
-今年早些时候，美国一些企业遭受网络袭击和网络勒索，对美国部分地区能源和食品供应造成了影响。之后，美国及其欧洲和亚太地区盟友在今年7月19日以前所未有的方式发表共同声明，揭露他们所说的中共国家安全部针对美国和多个盟国实施的恶意网络攻击行为，包括国安部人员雇用犯罪分子对私营企业实施网络勒索，并从中获得私利。
+美国要了数字货币，就把美联储给废了
+If the U.S. uses digital currency, it will abolish the Federal Reserve
 
-*注：本文仅代表作者观点，与 Gnews无关*
+就那几个沼泽地就没了
+That means those “swamps” are gone
 
-*参考链接：*
+然后呢，这个，美国人民摆脱美联储以后，美国人们才叫自由了，真的叫自由了
+After the American people get rid of the Federal Reserve, the American people will be free, truly freedom
 
-[美国协调30国会议 谋求共同对付中俄网络勒索](https://www.voachinese.com/a/us-international-conference-countering-ransomware-20211013/6268664.html)
+美国不摆脱美联储，美国是不会自由的，没有自由的
+The United States will not be free until it gets rid of the Federal Reserve, there is no freedom
 
-* * *
+所以说美国在斗争当中，这是一个人类上可能前所未有的
+So the U.S. is struggling with what is probably most unprecedented for mankind
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+也是金融大变局
+financial change
+
+世界不会只有流行美元，一定是虚拟货币
+The world will not only have dollar in circulation, it must also have virtual currencies
+
+而且美元最可怕的就是这个美联储和沼泽地和全美国人的斗争
+And the most frightening thing about the dollar is the fight between the Federal Reserve and the “swamp” and all Americans
+
+一定会有虚拟美元的
+There will definitely be virtual dollars
+
+最后就是世界的所有的未来的货币，绝对不是国家主权
+The future currency in the world is definitely not a national sovereign currency
+
+你完全是垄断的，是不可能的
+No more the sovereign state monopoly
+
+所以人类到了一个真正的时代
+So mankind has come to a new era
+
+包括未来，我飞到月球上去安家
+In the future, I will make my home on the moon
+
+我跟马斯克，到火星上上安家去，你告诉我，你怎么限制我货币？
+I’m with Musk, go up to Mars to settle down, you tell me, how do you limit my currency?
+
+你限制不了我货币
+You can’t
+
+因为它是一个两星球之间的币，过去是两国之间——一个星球上的币，完全两回事儿
+Because it’s currency between two planets, it used to be between two countries – a currency on a planet, totally different thing
+
+这是两星球，未来可能多个星球，多星球的货币怎么可能一样
+This is just two planets, maybe multiple planets in the future , how can the currency of multiple planets be the same one
+
+所以说，这就是我们新中国联邦的厉害
+This is what makes our New Federal State of China so great
+
+你们绝对不知道新中国联邦有多厉害
+You have absolutely no idea how powerful the New Federal State of China is
+
+你们绝对不知道我们有什么规划
+You absolutely have no idea about what we have planned
+
+你们绝对不知道我们有什么武器
+You absolutely have no idea about what weapons we have
+
+————————————————————
+
+**原视频链接:** [https://twitter.com/se1y7cblljselva/status/1445680480041328656?s=24](https://twitter.com/se1y7cblljselva/status/1445680480041328656?s=24)
+
+Date:10/8/2021
+原视频日期：2021/10/05
+任务编号：KC167（2450）
+视频时间段 : 0:00-1:30
+
+英听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校: 洛杉矶盘古农场 – Raul
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

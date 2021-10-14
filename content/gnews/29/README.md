@@ -2,99 +2,139 @@
 ---
 
 
-## 对疫苗研究多年的脊骨神经科医生：辉瑞公司有美国历史上最大的欺诈记录
-` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1592135/)
+## 中国统计局完全是按中共的指示来统计的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1592250/)
 
-请告诉大家您的你的名字
-我叫本-塔佩尔，塔-佩-尔
-我是来自内布拉斯加州奥马哈市的
-一名脊骨神经科医生
-我今天请了一天假来这里
-因为这些问题，对我来说非常重要
-我研究疫苗相关的(口述或笔录)
-已经有十多年了
-我父亲已经研究了四十多年
-我继承了他的衣钵
-我目睹了疫苗伤害
-它是真实的，并不罕见
-虽然你被引导去相信
-或被告知（的与我所见相反）
-我见过许多因疫苗而失去孩子的家庭
-在我的办公室里
-我也亲眼看到了许多的疫苗伤害
-看到这些（疫苗伤害）时
-真的很令人悲痛
-这是令人心碎的
-现在，本-汉森参议员实施的这项疫苗法案
-我认为非常重要
-我们需要在紧急危机中
-保护我们的权利和自由
-2019年，ACIP（免疫接种实践咨询委员会）
-表示他们不能强迫接种
-但是，他们可以强迫（你）遵守
-世界卫生组织也表示
-那些拒绝接种疫苗的人
-是对我们健康的最大威胁
-我认为这是非常可怕的
-如果你了解辉瑞公司的历史
-（你会发现）辉瑞和Moderna推出的
-这种疫苗也是非常可怕的
-我要把15分钟（口误）的研究，15年的研究
-在这里用三分钟说清楚
-但辉瑞公司
-他们有着美国历史上最大的欺诈记录
-因为误导公众，（用）数十亿美元贿赂医生
-还有敲诈欺诈
-他们支付了美国历史上最大的一笔罚款
-23亿美元的认罪协议
-因为违反了纽伦堡法典，他们被罚款
-因为他们在未经父母同意的情况下
-利用尼日利亚儿童，把这些儿童作为小白鼠
-疫苗公司，有一个疫苗法庭（案例）
-因疫苗伤害曾赔付40亿美元
-但有一点非常重要，我们必须明白
-疫苗也含有非常有害的成分
-可能违背我们的精神和宗教信仰
-比如流产的胎儿细胞系
-或碎片，或DNA，或蛋白质
-而很多人说
-“那个细胞系只是来自60年代的两个细胞株”
-这是不正确的
-你可能会在网上读到一篇博客，但流产的婴儿
-每天都在被用来创造新的细胞系
-用于更多的疫苗
-举个例子，WI-38和MRC-5细胞株
-目前被用于生产麻腮风三联(MMR)疫苗
-水痘、甲肝、带状疱疹、狂犬病
-和脊髓灰质炎疫苗
-因此，无论他们告诉我们什么
-这些疫苗中存在流产的胎儿细胞
-包装上的说明也会这样写
-我很愿意将这些资料提交给你们
-如果你们想了解更多相关信息
-我很乐意提供给你们
-但（根据）我对神经系统、神经系统各种问题
-神经系统疾病的研究
-这些疫苗是非常具有侵入性的
-特别是在婴儿出生时
-神经系统正在快速发育
-这些疫苗绝对是侵入性的
-有一个更好的方法
-你不需要害怕这种疾病或一般的疾病
-你的身体有一个免疫系统
-完全有能力克服像冠状病毒这类疾病
-而且它远比政府或疾病控制中心
-以及这些医生告诉我们的要强大
-你可以（活的）很好
-我们不能生活在对病菌的恐惧中
-不能像责怪飞沫那样将细菌归咎于疾病
-就像不能把苍蝇归咎于垃圾
-谢谢你的证词。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/77-a71ie-wzywl.jpg)
+[https://gtv.org/video/id=6166fd50d2e2b8174874be81](https://gtv.org/video/id=6166fd50d2e2b8174874be81)
 
-文字听写翻译：小白咖啡馆
+**郭文贵**
+**Miles Guo**
 
-视频字幕：Kent
+你比如说我现在告诉你
+Por ejemplo, ahora te puedo decir
 
-编辑/发稿：Kent
+就是中国最重要的两个数据　
+Los dos datos más importantes de China
 
-*免责声明：本文仅代表作者个人观点，与G-NEWS网站无关*
+所有统计局
+Todas las Oficinas de Estadística
+
+你记住统计局里边的关键人
+Recuerda las personas cruciales de estas oficinas
+
+现在极大部份都是七哥的人
+Ahora la mayoría son gente mías
+
+还以河南人为主
+Y básicamente son personas de Henan
+
+统计局里面　
+Dentro de la Oficina de Estadística
+
+统计数据主要两个
+Principalmente, en los datos de la estadística son dos
+
+人民银行还有一个海关
+El Banco Popular de China y la Aduana
+
+因为海关涉外, 你造不了假
+Porque la aduana tiene relación con el exterior y por eso no puedes falsificar
+
+造假你只能30%, 50%
+Si lo haces, es solamente el 30% a 50%
+
+超过100%是很难的
+Es difícil superar los 100%
+
+超过一倍
+Superando el doble
+
+再一个人民银行
+Luego es el Banco Popular de China
+
+它有一些外汇
+Él tiene algunas divisas
+
+特别是印钞票
+Especialmente, la impresión de los billetes
+
+特别是中国的货币是双轨制
+Y la moneda de China es un sistema de doble vía
+
+海外一块儿, 国内一块
+Una parte es el extranjero y la otra es dentro del paìs
+
+它是有数据可以参考的
+Tiene datos de referencia
+
+它造假超过几倍是不可能的
+Es imposible falsificar muchas veces
+
+所以统计局改的
+Por eso lo que cambia de la Oficina de Estadística
+
+中国的统计局是领导让你多少就多少
+Es que debes poner los datos que te diga el líder
+
+不用任何问的
+No necesitas preguntar
+
+你们无法想像
+No se imaginan
+
+就统计局最后到一个叫审计局里边的一个叫审计专员
+En cuanto a la Oficina de Estadísticas, la última se llama comisionado de auditoría
+
+专员就是里边的一个实际的局级干部
+El Comisionado es el cuadro real a nivel de oficina
+
+局级干部是每天接收到
+El cuadro a nivel de oficina recibe todos los días
+
+到时候中央领导给你个数
+Cuando llegue el momento, la dirección central te dice un número
+
+你就按这个填去
+Entonces lo llenas de acuerdo a eso
+
+另外一个最核心就是海关
+Y el otro núcleo es la aduana
+
+它就是接收海关人民银行的(数据)
+Él recibe los datos del Banco Popular de Aduanas
+
+它叫政治数据
+Se llama datos políticos
+
+它不可能有任何时候
+Este en ningún momento
+
+全向外国一样(把)公开的信息
+Anucia las informaciones al público como los otros países
+
+在全省各部门(的数据)弄上
+Subir (datos) en todos los departamentos de la provincia
+
+不可能的
+Es imposible
+
+————————————————————
+
+**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1446019519353274369?s=24](https://twitter.com/se1y7cblljselva/status/1446019519353274369?s=24)
+
+日期：10/11/2021
+原视频日期：10/07/2021
+任务编号：KC166（2472）
+视频时间段：0:00-1:27
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

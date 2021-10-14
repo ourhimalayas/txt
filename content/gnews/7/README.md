@@ -2,33 +2,33 @@
 ---
 
 
-## 聚焦：成为比特币挖矿中心，美国将再次成为创新和制造业强国
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1592354/)
+## 联邦法官准许纽约医护人员对疫苗强制政策申请宗教豁免
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1592514/)
 
-#### 加拿大多伦多枫叶农场 丁过
-![](https://assets.gnews.org/wp-content/uploads/2021/10/70A1AD2D-64EB-41FB-9015-B1CA270367B7.jpeg)图片来自网络
-据《金融时报》13日报道，在中共国禁止加密货币交易和挖矿开采后短短的3个月内，美国在全球的哈希率（hashrate）即开采新比特币所需的算力中的份额，快速上升至8月份的35%，而哈萨克斯坦在同期上升至18%，中共国则从逾44%降至0，在2019年中共国一度占据全球算力的四分之三。
+作者：香草山写作组 – 文一
 
-资本不仅是逐利的，无国界的，而且是聪明的。哈萨克斯坦是中亚最重要的能源出口国，这是吸引挖矿机的主要原因。
 
-川普就任美国总统后，立即将发展传统能源产业作为“将产业和工作带回家”和整固美国财政的战略支点，鼓励华尔街资本参与油气勘探和开采，因此美国能源迅速实现自给，能源价格也相应大幅下降。
 
-和比特币挖矿机大量耗电一样，中低端制造业也需要消耗大量能源。美国的制造业在上世纪九十年代开启的经济全球化中陆续迁移到中共囯等新兴国家，和当时美国能源短缺有极大关系。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/008F252B-7F97-4925-AD30-A9762CD6CCBD.jpeg)图片来自网络
-美国长期购买带有中共国奴隶劳工血汗的廉价商品，导致在对中共囯的双边贸易中长年保持每年约四千亿美元的逆差。也就是说，美国长期印钞作为资本输出，迎合中共国的不正当竞争行为，不仅掏空了美国的实业和财政，也掏空了美元和美国的信用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-川普决心改变这一切，能源自足自然就成为重中之重。但拜登上台后第一天就以环境和气候安全为由打击传统能源产业，暂停在公共土地进行石油、天然气钻探的许可批准。同时取消了加拿大阿省到得克萨斯州和伊利诺伊州的数千公里Keystone 管道施工，要知道该管道已经建设10年并进行到最后的第四期。
 
-该管道沿线起码有5个州反对并起诉拜登此举违法，加拿大也向拜登政府提出强烈抗议，另外巿场预期明年的中期选举民主党将大败，传统能源产业将重新回到正轨，比特币挖矿机大举进入美国，这是市场对美国能够长期提供廉价能源抱有信心的表现。
 
-可以预见，在这一次全球产业链大重组过程中，体量庞大的一般商品制造业，将向有廉价能源和法律保障的国家比如美国集中转移，逢勃发展的实业将推动大规模的基础设施建设，美国将由些步入一个全新的繁荣周期。
+10月12号，一名联邦法官暂时允许纽约的医护人员对该州的新冠疫苗强制政策申请宗教豁免。上个月，17名医护人员，许多匿名提起诉讼，反对纽约州卫生部的疫苗强制政策及不允许宗教豁免。美国地区法官大卫-赫德周二作出裁决，批准了一项初步禁令，允许医护人员申请其雇主考虑的宗教豁免。赫德还禁止卫生部对那些寻求或获得宗教豁免的医护人员的执照、证书、居住权或其他专业身份采取纪律处分或其他行动。
 
-还有一个更重要的因素是，美国议会和SEC、税务局等部门对加密货币存在的洗钱等问题、加密货币是证券还是商品或货币、如何对加密货币征税以及由谁监管等方面存在严重分歧，但维护加密货币的创新环境却是几乎所有人的共识。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5C04A323-0E34-450E-AB91-16E64BBA21E9.jpeg)图片来自喜美元白皮书
-因为这些统治精英对过去锚定黄金的货币和现在随便印的主权信用货币的弊端了如指掌，如果不进行彻底的货币改革，后果不堪设想。他们也知道，历史上当货币允许私人铸造发行时，肯定是良币驱逐劣币及货币信用最稳定的时期，而货币信用恒定是经济繁荣和政局稳定的主要前提。令人充满期待的是，即将于本月底发行的喜币，就是造福人类社会的头号良币。
+本案原告的首席律师赞扬了法官的裁决。称”通过这项裁决，法院正确地认识到，昔日抗疫的’前线英雄’突然被当作携带病毒的恶棍，被州卫生局一纸命令踢到路边。抗议疫苗任务的医护人员这样做是因为他们反对被迫接种使用 “堕胎 “的 “胎儿细胞系 “的疫苗。
 
-参考来源：
+纸终将包不住火，主流媒体也开始慢慢转变风向。
 
-[美国超过中国成为全球最大比特币挖矿中心](http://www.ftchinese.com/story/001094210?full=y)
+参考链接：[https://www.msn.com/en-us/news/us/federal-judge-allows-health-care-workers-in-new-york-to-apply-for-religious-exemptions-to-covid-19-vaccine-mandate/ar-AAPqyzN](https://www.msn.com/en-us/news/us/federal-judge-allows-health-care-workers-in-new-york-to-apply-for-religious-exemptions-to-covid-19-vaccine-mandate/ar-AAPqyzN)
 
-**（文章仅代表作者观点，与**GNEWS**无关）**
+编辑/审核/发稿：正义的小新
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

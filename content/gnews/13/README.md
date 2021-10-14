@@ -2,37 +2,35 @@
 ---
 
 
-## 前情报官员质疑拜登对中台敌对行动毫无准备
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1592310/)
+## 一个普通美国人的疫苗抗争之路
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1592406/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：香草山医疗部 – 圣母院钟声
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/A-5.jpg)yoninetanyahu.com
-《新闻纵横》发表文章，“里克·格雷内尔（Ric Grenell）：政府对中共等其它问题毫无准备”。
 
-全文如下：
 
-拜登政府还没有准备好应对世界各地正在发生的事情，更不用说如果中共和台湾之间的敌对行动升级会发生什么，前大使兼国家情报局代理副局长里克·格雷内尔（Ric Grenell）周二（10月12日）在《新闻纵横》上说。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-格雷内尔与前国防部长副助理安珀·史密斯（Amber Smith）一起出现在了《新闻纵横》的《约翰·巴赫曼现在》（John Bachman Now）节目中，他评论说：“在乌克兰，我们看到10万俄军驻扎在边境上，他们没有为也门发生的事情做好准备，他们没有为叙利亚发生的事情做好准备，因为俄罗斯接管并试图操纵整个地区。”
 
-他继续说，如果再加上中共和台湾，外交手段可能不足以避免危险。
 
-格雷内尔说：“你知道，我在国务院工作了11年，我是一名外交官，我将尽我所能解决这些问题，
+凯伦.斯考(Karen Skau), 一位住在美国东北部深蓝州-佛蒙特州(Vermont)的有两个成年孩子的单身母亲,经历多年才摆脱暴力婚姻，终于在一年前有了一份她热爱的生产厨房设备及装饰品公司的工作。因出色工作表现一直受到上司的褒奖，并予以晋升。但自从公司强制疫苗接种以来，凯伦受到来自下至同僚、上到公司老板的各种压力，迫使其接种疫苗。终于有一天她收到一封来自工厂管理层的一封通知，告知“您是公司仅有的两位尚未接种疫苗的人士之一，整个公司的群体免疫计划的实现，因为您而受到阻碍…… 如果您已经接种了疫苗，请尽快到xx人那里报备。”
 
-我非常欣赏五角大楼的一件事是，他们谈论军事行动威胁与可信的军事行动威胁之间的区别。美利坚合众国需要可信的军事行动作后盾，当我们在谈判时，这将有助于坐在谈判桌旁的外交官，我们就能做到不战以屈人之兵。”
+但是，凯伦有自己对新冠疫苗的认知和想法，尽管她每天都能感受到可能失去她喜爱并非常需要的工作的威胁，可她坚信自己的基本权利，即，没有人能够迫使她接受她认为不安全的生物制剂注入体内。终于在5月18日，公司以其对口罩佩戴政策不合作为由辞退了她，只字不提她拒绝接受疫苗接种的事。在领取3个月的失业补助金后，又被当地失业救济金管理部门以违反疫苗接种政策而不再给予补助。凯伦决定搬离气候和人心都寒冷的佛蒙特州,到了佛罗里达开始新的生活。
 
-格雷内尔还呼吁国务院进行改革，有些外交官“运用’秀肌肉’的外交手段。”
+这是普通美国人不为五斗米折腰的精神：是为自由理念牺牲物质生活，也要捍卫基本人权的精神。这些强大的精神汇合在一起，是被暗势力操控政府所惧怕的。世上没有什么力量能够摧毁上帝赋予人类的坚强意志，而我们新中国联邦人是这群优秀人类的代表。
 
-与此同时，史密斯说，美国对中共国的依赖到了“完全失控”的地步。她说：“任何与我们国家安全有关的事情都应该禁止进入中共国，不幸的是，就我们的供应链而言，这现在几乎是不可能的，但它只是向你展示了我们与中共国的联盟有多深，有这么多东西，这完全失控了，我们需要意识到，我们对中共国的依赖正在损害我们自己的国家安全。”
+参考链接:
 
-（原文完）
+[https://www.theepochtimes.com/mkt\_breakingnews/vermont-woman-fired-denied-unemployment-for-refusing-vaccine-becomes-homeless-and-flees-to-florida\_4030883.html](https://www.theepochtimes.com/mkt_breakingnews/vermont-woman-fired-denied-unemployment-for-refusing-vaccine-becomes-homeless-and-flees-to-florida_4030883.html)
 
-文章虽然不长，的确反映了美国高层一部分人对中共的了解，对美国现状的担忧，以及对拜登无能的质疑a。如果对邪共的认知再提高一些，或许就能理解拜登政府的所作所为，就能清楚参谋长联席会议主席为何瞒着总司令与中共进行“通敌电话”，就能解释情报机构出台的病毒溯源报告为何撇清了与中共的关系，还有文贵先生近来多次强调的司法黑幕等。这就是美国乃至西方，甚至整个世界的现状，邪魔中共的渗透无所不在，要员、要害部门都是重灾区。所以灭共的重要环节就是觉他，让西方、世界彻底认清中共对本国的渗透，文贵先生已经启蒙世界近5年了，大大地阻击了邪恶，并引领世界向反击、消灭中共等罪恶势力的方向发展。战友们紧跟文贵先生，加油！
+编辑/审核/发稿：正义的小新
 
-（文章仅代表作者个人观点）
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-原文链接：
-
-[https://www.newsmax.com/newsmax-tv/ric-grenell-amber-smith-china-biden/2021/10/12/id/1040195/](https://www.newsmax.com/newsmax-tv/ric-grenell-amber-smith-china-biden/2021/10/12/id/1040195/)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
