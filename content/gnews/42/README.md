@@ -2,52 +2,51 @@
 ---
 
 
-## 1013 《疫苗毒针》简讯集
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591533/)
+## “烂账烂房”的背后 &#8211; 中共司法超限战一瞥
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591615/)
 
-作者：流浪的阳光
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-**中共在十余省强推第三针 **
+作者：Zion文恩
 
-中共继续新冠毒针人体实验。截至目前，明确启动加强针接种地区涉及：安徽、福建、河南、黑龙江、湖北、山西、广州、贵州等10余省份。 其中安徽芜湖、福建厦门将12岁以上儿童也囊入秋冬季人口清理范围。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-21.jpeg)
 
-**新加坡颁行公众场所限制令**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide2-21.jpeg)
 
-新加坡从今天10月13日起，将限制未接种新冠疫苗的民众在公众场所的活动，如饭店就餐、进入商场与景点游览。通过此项规定的颁行，政府用“疫苗歧视”再一次践踏了人权。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-**马来西亚放宽****“集中营”SOP**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-13.jpeg)
 
-大马首相拿督宣布，从11日起，只有完成两剂毒针疫苗接种的人，才可以跨州和出国旅行。此前人们出行需要向警方申请批准。马来西亚作为辉瑞、阿斯利康和科兴的势力控制区域，用疫苗接种情况完成了人口区块化管理。
 
-**新西兰步澳洲后尘推进群体接种强制令**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-12.jpeg)
 
-新西兰总理阿德恩周一（11日）下达规定，将对教师和卫生部，及残疾部门的员工，全面强制接种新冠病毒疫苗。
 
-自疫情爆发至今，各国的无良政客已经疯狂，在这至暗时刻，希望各国的战友互相帮助，共同渡过这艰难时期。
+9 月以来，中共的金融庞氏骗局之一，恒大债务违约，已引发一系列国际金融市场的动荡。然而，中共习近平当局对恒大事件至今引而不发，各国政客和利益集团继续与中共勾兑，以求避免这一全球性金融灾难。
 
-(本文仅代表作者观点)
+10月10日，郭文贵先生在直播中，揭露了中共的司法超限战在维系其金融骗局中所发挥的作用。中共通过中国大陆或香港的律师事务所，与美国超过一百所著名律师事务所取得合作关系。这些律师事务所都在中共治下的北京、上海、香港等地开设分支机构，与中共控制的金融、司法和情报机构深度勾兑合作。而这些律师事务所很多被“蓝金黄”的律师，逐渐进入美国的司法部担任要职后，继续与中共勾兑合作，从而使美国司法体系也变成了中共控制的“后花园”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-38.jpg)
+这些被中共以合作为名全面渗透的律师事物所，帮助中共的恒大、平安等一批金融诈骗机构，制造虚假评估文件、进行虚假律师审核，并在一系列诉讼中为其充当司法辩护。这使得中共的金融庞氏骗局不断续命、加码，进而酿成几十万亿美元的金融核弹。中共的这一“合作加联姻”的司法渗透模式，已彻底摧毁了美国的立国根基 – 司法独立。
 
-参考链接：[狮城快讯：新加坡Covid疫苗歧视升级！不打疫苗不可进商场　12岁以下明年初开打](https://gnews.org/zh-hans/1582814/)
-[未接种公众不能在小贩中心和咖啡店堂食 也不能进入商场和景点](https://www.zaobao.com.sg/realtime/singapore/story20211009-1201644)
-[多地启动新冠疫苗加强针，涉及安徽福建湖北黑龙江海南等地](https://news.sina.com.cn/c/2021-10-09/doc-iktzqtyu0510206.shtml)
+参考链接：
+[2021年10月10日 文贵大直播：文贵在双十节给台湾同胞说的话：台湾凶也，中共与美方对台湾问题早有文字性承诺勾兑;习以孙灭台，与国民党卖台贼呼应；国内经济房地产的万亿债务危机，华平基金的腐败会把西方掏空，中美勾兑国债；中共通过对西方律师事务所的合作…](https://gtv.org/video/id=6162dd0f304e992109b2bc89)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+（本文仅代表作者观点）
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Q大哥
+编辑/校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

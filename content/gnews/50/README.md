@@ -2,25 +2,23 @@
 ---
 
 
-## 疫苗灾情｜美国 47 岁教育学硕士接种疫苗后双腿截肢
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1589436/)
+## 针下亡魂｜法国 24 岁男医科生接种疫苗 10 日后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1589503/)
 
 **撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 12/10/2021**
 
-***彷佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
-![](https://assets.gnews.org/wp-content/uploads/2021/10/22-3.jpg)
-【美国】明尼苏达州一名 47 岁的尼日利亚籍女硕士 Jummai Nache 在接种完第二剂辉瑞 COVID-19 疫苗之后诱发严重的动脉血栓、缺血和心肌炎，为了保命，她被截断双脚，最遗憾的是，她的双手都可能难以保全。
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
+![](https://assets.gnews.org/wp-content/uploads/2021/10/24-2.jpg)
+【法国】南特一名 24 岁的男医科学生 Anthony Rio 在接种完阿斯利康 COVID-19 疫苗的 10 日后突然死亡。
 
-Jummai 于 2 月 1 日接受了第二针疫苗之后，就立即感到胸痛，她的丈夫 Philip Nache 陪同一起到医院诊治后，医生表示，她没任何心脏问题，不过确诊 COVID-19 阳性，这一结果，令他们十分震惊。
+Anthony 在接种疫苗后的几天内杳无音讯，他家人和朋友多次尝试联系，都未有回应，无奈之下，联系消防员帮忙，才发现 Anthony 已经死在他公寓的床上，相信是在睡梦中死去。
 
-但由于 Jummai 未有表现出任何感染新冠病毒的症状，因此医院未对她进行任何治疗，直至 2 月 13 日，她的病情突然恶化 ，才被转移到明尼苏达大学医学中心进一步观察，医生发现她的氧气含量和血压都低到致命的程度，心脏亦严重受损。
+经过尸检，他的死因是“血块引起的内出血”但尸检结果同时证实， Anthony 未患任何细菌、肿瘤或血管疾病，**医学专家的结论是“疫苗与该年轻人的死亡存在因果关系。”**
 
-医生对她的丈夫表示， Jummai 随时可能离世，她正在与动脉血栓、缺血和心肌炎作斗争，最后，为了挽救她的生命，医生对她进行了[双侧](https://www.choosept.com/symptomsconditionsdetail/physical-therapy-guide-to-belowknee-amputation-2#:~:text=Below%2DKnee%20Amputation%3F-,Transtibial%20amputation%2C%20or%20below%2Dknee%20amputation%2C%20is%20a%20surgical,circulation%20in%20the%20lower%20limb.)胫骨截肢术，即切除双腿膝盖以下部分。最令人痛心的是，她的双手亦因缺血而严重坏死，预计等到腿部伤口痊愈后，她的双手都会被切除。
+Anthony 的哥哥表示，“ Anthony 是一个非常聪明的人，平时非常注重健康饮食，喜欢运动，最重要的是，他没有病史，身体健康。”
 
-明尼苏达大学的医生对他们表示，无法证实是辉瑞疫苗造成了她的悲剧，他们唯一肯定的是，确实有很多人因 COVID-19 引发成人多发性炎症综合征（MIS-A）。**Jummai 的丈夫质疑，“我和我的妻子日日生活在一起，为什么我是阴性，而且我还未打疫苗？”“如果疫苗不能打败病毒，那么疫苗究竟在人的体内扮演什么角色？”**
-
-来源｜[个案024](https://www.gofundme.com/f/22h9pf-fundraiser-for-jummai-naches-medical-expenses)
+来源｜ [个案025](https://www.connexionfrance.com/French-news/Inquiry-into-death-of-student-who-had-Covid-jab-in-Nantes)
 
 * * *
 
-他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//

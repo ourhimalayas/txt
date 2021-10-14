@@ -2,23 +2,109 @@
 ---
 
 
-## 再度改口！中共疫苗接种目标变为防疾病危害
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1592241/)
+## 前所未有的金融大变局即将到来
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1592308/)
 
-#### 撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/93945c5f9d3e12dcd710eb77df8f22f6.jpg)[图片来源](https://www.yicai.com/news/101196609.html)
-10月13日，据中共官媒“第一财经”报道，目前疫苗接种的目标定位已经发生了转变。疫苗接种无法完全阻挡疾病的传播，目标主要是把疾病的危害性降到最低的水平，同时，也要依靠全国的防疫体系、药物体系赢得抗疫胜利。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/100-aa06i-ko6rc.jpg)
+[https://gtv.org/video/id=61671338d2e2b8174874c477](https://gtv.org/video/id=61671338d2e2b8174874c477)
 
-报道称，虽然高接种率的美国在疫苗接种后突破性感染比例上升到了36%，接种率达到80%以上的新加坡，在逐步开放后发病率进一步上升，但是疫苗接种使得感染后病死率下降到相当低的水平，人们要么通过疫苗接种疫苗获得免疫，要么通过感染获得免疫。江苏省疾控中心副主任朱凤才目前正在积极推动不同抗原疫苗接种的设计，以提高疫苗保护效果。
+**郭文贵：**
+**Miles Guo：**
 
-对疫苗接种的目标定位，中共不断改口，从最初的防感染，到防重症，现在直接是将危害性降到最低。中共一步步引导舆论风向，需要甩锅时，就引用他国数据，降低大众预期，提高心理耐受力，是否只有等真正疫苗危害大爆发，才能认清中共的邪恶呢？
+我觉得，你知道吗？ Rachel
+I think, you know what, Rachel?
 
-信息来源：
+这些都是媒体曝出来的，实际上很多都是有意识的放料
+These are all exposed by the media, in fact, many of them are conscious of releasing
 
-[张文宏：疫苗接种目标定位发生转变 病毒基因变异对疫苗接种提出新挑战](https://www.yicai.com/news/101196609.html)
+都是放气球，你知道吗？
+It’s all ballooning, you know?
 
-(文章仅代表作者本人观点，与GNEWS无关)
+美国研究这个要不要美元做数字货币
+Whether the U.S. lunch digital currency or not?
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+实际上很简单
+It’s actually quite simple
+
+美国要了数字货币，就把美联储给废了
+If the U.S. uses digital currency, it will abolish the Federal Reserve
+
+就那几个沼泽地就没了
+That means those “swamps” are gone
+
+然后呢，这个，美国人民摆脱美联储以后，美国人们才叫自由了，真的叫自由了
+After the American people get rid of the Federal Reserve, the American people will be free, truly freedom
+
+美国不摆脱美联储，美国是不会自由的，没有自由的
+The United States will not be free until it gets rid of the Federal Reserve, there is no freedom
+
+所以说美国在斗争当中，这是一个人类上可能前所未有的
+So the U.S. is struggling with what is probably most unprecedented for mankind
+
+也是金融大变局
+financial change
+
+世界不会只有流行美元，一定是虚拟货币
+The world will not only have dollar in circulation, it must also have virtual currencies
+
+而且美元最可怕的就是这个美联储和沼泽地和全美国人的斗争
+And the most frightening thing about the dollar is the fight between the Federal Reserve and the “swamp” and all Americans
+
+一定会有虚拟美元的
+There will definitely be virtual dollars
+
+最后就是世界的所有的未来的货币，绝对不是国家主权
+The future currency in the world is definitely not a national sovereign currency
+
+你完全是垄断的，是不可能的
+No more the sovereign state monopoly
+
+所以人类到了一个真正的时代
+So mankind has come to a new era
+
+包括未来，我飞到月球上去安家
+In the future, I will make my home on the moon
+
+我跟马斯克，到火星上上安家去，你告诉我，你怎么限制我货币？
+I’m with Musk, go up to Mars to settle down, you tell me, how do you limit my currency?
+
+你限制不了我货币
+You can’t
+
+因为它是一个两星球之间的币，过去是两国之间——一个星球上的币，完全两回事儿
+Because it’s currency between two planets, it used to be between two countries – a currency on a planet, totally different thing
+
+这是两星球，未来可能多个星球，多星球的货币怎么可能一样
+This is just two planets, maybe multiple planets in the future , how can the currency of multiple planets be the same one
+
+所以说，这就是我们新中国联邦的厉害
+This is what makes our New Federal State of China so great
+
+你们绝对不知道新中国联邦有多厉害
+You have absolutely no idea how powerful the New Federal State of China is
+
+你们绝对不知道我们有什么规划
+You absolutely have no idea about what we have planned
+
+你们绝对不知道我们有什么武器
+You absolutely have no idea about what weapons we have
+
+————————————————————
+
+**原视频链接:** [https://twitter.com/se1y7cblljselva/status/1445680480041328656?s=24](https://twitter.com/se1y7cblljselva/status/1445680480041328656?s=24)
+
+Date:10/8/2021
+原视频日期：2021/10/05
+任务编号：KC167（2450）
+视频时间段 : 0:00-1:30
+
+英听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校: 洛杉矶盘古农场 – Raul
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

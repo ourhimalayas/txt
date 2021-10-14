@@ -2,27 +2,40 @@
 ---
 
 
-## 爆料革命影响下 疫苗接种无法再大幅推进
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1591673/)
+## 中共病毒疫苗致血栓 结束NBA球星职涯
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1591753/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+**By:秘翻新闻**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-12.png)
-文章仅代表作者本人观点，与Gnews无关
+***2021-10-13***
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/1013-2.jpg)](https://gtv.org/broadcast/watch/61669f00304e992109b44a83)点击图片观看视频
+**新闻摘要:**
 
-视频参看：2021.10.13早GTV新闻访谈
+1.中共经济超限战正危害全球金融市场
 
-[https://gtv.org/broadcast/watch/6166d0c5304e992109b45e10](https://gtv.org/broadcast/watch/6166d0c5304e992109b45e10)
+2.暴雨引发洪水 中国山西逾175万人受灾
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+3.中国女星郑爽怒骂中共腐败 称不再沉默
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
+4.白宫警告：美国圣诞节期间面临物资短缺
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+5.英媒：重感冒患者可能是感染了中共病毒
+
+6.美俄勒冈参议员呼吁调查中共病毒数据操纵
+
+7.美马萨诸塞州州长启动国民警卫队对学生进行中共病毒测试
+
+8.中共病毒疫苗致血栓 结束NBA球星职涯
+
+9.NBA球星凯里·欧文因为拒绝接种疫苗被球队禁赛
+
+10.厄瓜多尔最大银行受网络攻击至停业
+
+**GTV链接：**[https://gtv.org/broadcast/watch/61669f00304e992109b44a83](https://gtv.org/broadcast/watch/61669f00304e992109b44a83)
+
+发布: 文橙
+
+* * *
+
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)

@@ -2,34 +2,52 @@
 ---
 
 
-## 秘翻在线:战争贩子会是台海危机的导火索?
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1591185/)
+## 1013 《疫苗毒针》简讯集
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1591533/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/epa-7.jpg)
-图片:中新社
+作者：流浪的阳光
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**中共在十余省强推第三针 **
 
-**中共频频挑衅台湾**
+中共继续新冠毒针人体实验。截至目前，明确启动加强针接种地区涉及：安徽、福建、河南、黑龙江、湖北、山西、广州、贵州等10余省份。 其中安徽芜湖、福建厦门将12岁以上儿童也囊入秋冬季人口清理范围。
 
-根据《CNN》的报导，中共国10月11日表示，“最近几天”解放军在福建省南部演习，进行海滩登陆和突击演习。当天天气晴朗，海面平静，透露演习并不是在热带风暴影响的10月11日进行。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-21.jpeg)
 
-中共国国家主席习近平重申“统一”台湾，台湾总统蔡英文则强硬回应台湾将“不惜一切代价捍卫其自由和民主的生活方式”，并抱怨中共空军大规模入侵台湾的防空识别区。
+**新加坡颁行公众场所限制令**
 
-**战争贩子借由媒体渲染成为台海危机的推手?**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide2-21.jpeg)
 
-根据《Moon of Alabama》报导，战争贩子通过向媒体公开美国军队在台湾训练军队，进一步激化了台海战争的可能性。主流媒体大量报导蔡英文总统对中共的强硬态度，澳大利亚前总理托尼·阿博特(Tony Abbott)刚刚访问台北 ，极力倡导“民主并肩”，与台湾对抗中共国。
+新加坡从今天10月13日起，将限制未接种新冠疫苗的民众在公众场所的活动，如饭店就餐、进入商场与景点游览。通过此项规定的颁行，政府用“疫苗歧视”再一次践踏了人权。
 
-最近的一项民意调查显示，超过一半的美国人支持美军保卫台湾免受大陆入侵，这是激进的宣传活动。澳大利亚媒体正制作令人难以置信的疯狂 60 分钟剧集，荒谬地推测中共国可能攻击澳大利亚以及澳大利亚人应该为保护台湾而开战的想法。网民也强烈支持美国及其盟友因台湾独立而与中共国开战的想法。”这显然是疯了，任何接受这种想法的人都是被媒体洗脑的傻瓜。” 独立记者凯特琳·约翰斯通 (Caitlin Johnstone)说。
+**马来西亚放宽****“集中营”SOP**
 
-**台湾独立是一个假议题**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-13.jpeg)
 
-在10月9日举行的纪念辛亥革命110周年大会上，习近平称，「台独」分裂是祖国统一的最大障碍，是民族复兴的严重隐患。
+大马首相拿督宣布，从11日起，只有完成两剂毒针疫苗接种的人，才可以跨州和出国旅行。此前人们出行需要向警方申请批准。马来西亚作为辉瑞、阿斯利康和科兴的势力控制区域，用疫苗接种情况完成了人口区块化管理。
 
-然而台湾独立并不是议题，而是早就存在的一个事实。为了”台湾独立”这个假议题，发动一场导致数百万人死亡的世界大战，是一件不可思议的穷兵黩武。如果事情发展成核战争，更可能导致数十亿人死亡，这对每个人来说都会是惨烈的梦魇。
+**新西兰步澳洲后尘推进群体接种强制令**
 
-然而铺天盖地的媒体宣传使得许多人相信台海战争的必要性，甚至忽略战争的真正恐怖面貌。如果人们真正理解这意味着什么，没有任何理智的人会支持这种规模的战争，除了战争贩子及邪恶势力。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-12.jpeg)
 
-消息来源:
-[Johnstone: Anyone Who’d Support Going To War Over Taiwan Is A Crazy Idiot
-China says it held beach landing drills in province opposite Taiwan](Anyone%20Who'd%20Support%20Going%20To%20War%20Over%20Taiwan%20Is%20A%20Crazy%20Idiot
-China%20says%20it%20held%20beach%20landing%20drills%20in%20province%20opposite%20Taiwan)
+新西兰总理阿德恩周一（11日）下达规定，将对教师和卫生部，及残疾部门的员工，全面强制接种新冠病毒疫苗。
+
+自疫情爆发至今，各国的无良政客已经疯狂，在这至暗时刻，希望各国的战友互相帮助，共同渡过这艰难时期。
+
+(本文仅代表作者观点)
+
+参考链接：[狮城快讯：新加坡Covid疫苗歧视升级！不打疫苗不可进商场　12岁以下明年初开打](https://gnews.org/zh-hans/1582814/)
+[未接种公众不能在小贩中心和咖啡店堂食 也不能进入商场和景点](https://www.zaobao.com.sg/realtime/singapore/story20211009-1201644)
+[多地启动新冠疫苗加强针，涉及安徽福建湖北黑龙江海南等地](https://news.sina.com.cn/c/2021-10-09/doc-iktzqtyu0510206.shtml)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,37 +2,47 @@
 ---
 
 
-## 前情报官员质疑拜登对中台敌对行动毫无准备
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1592310/)
+## 采访：政治评论员亚伦·古恩宣布竞选 BC 自由党领导层
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1592333/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：Drea Humphrey
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Aaron-Gunn-Interview.png)
+不列颠哥伦比亚省维多利亚市的亚伦·古恩 (Aaron Gunn) 已正式在不列颠哥伦比亚省自由党领袖的竞选中脱帽致敬——而新民主党对此并不高兴。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/A-5.jpg)yoninetanyahu.com
-《新闻纵横》发表文章，“里克·格雷内尔（Ric Grenell）：政府对中共等其它问题毫无准备”。
+几个月来，这位前加拿大武装部队成员转为保守派评论员一直在公开考虑竞选 BC 自由党的领导职位。
 
-全文如下：
+上周六，古恩正式宣布了这一消息。
 
-拜登政府还没有准备好应对世界各地正在发生的事情，更不用说如果中共和台湾之间的敌对行动升级会发生什么，前大使兼国家情报局代理副局长里克·格雷内尔（Ric Grenell）周二（10月12日）在《新闻纵横》上说。
+“我厌倦了看着这个省，以及这个国家，继续朝着错误的方向前进，” 古恩在宣布他候选资格的演讲中说道。
 
-格雷内尔与前国防部长副助理安珀·史密斯（Amber Smith）一起出现在了《新闻纵横》的《约翰·巴赫曼现在》（John Bachman Now）节目中，他评论说：“在乌克兰，我们看到10万俄军驻扎在边境上，他们没有为也门发生的事情做好准备，他们没有为叙利亚发生的事情做好准备，因为俄罗斯接管并试图操纵整个地区。”
+古恩表示，他将确保该党用常识处理涉及BC 纳税人的问题。
 
-他继续说，如果再加上中共和台湾，外交手段可能不足以避免危险。
+捍卫言论自由、负担不起的住房、管道封锁等问题——以及取消该省ICBC的保险垄断——是古恩承诺带来众多变革中的一部分。
 
-格雷内尔说：“你知道，我在国务院工作了11年，我是一名外交官，我将尽我所能解决这些问题，
+与大约 80 人听到古恩的宣布感到兴奋不同的是，不列颠哥伦比亚省新民主党似乎急于压制对古恩的支持。
 
-我非常欣赏五角大楼的一件事是，他们谈论军事行动威胁与可信的军事行动威胁之间的区别。美利坚合众国需要可信的军事行动作后盾，当我们在谈判时，这将有助于坐在谈判桌旁的外交官，我们就能做到不战以屈人之兵。”
+该党在预定宣布的前一天在其网站上发布了一份声明，指责古恩表达了“有害观点”，并且他将在 BC 自由党中“为反双重精神、女同性恋、男同性恋、双性恋和跨性别 （2SLGBTQ+ ）的观点腾出空间”。
 
-格雷内尔还呼吁国务院进行改革，有些外交官“运用’秀肌肉’的外交手段。”
+我采访了亚伦·古恩 (Aaron Gunn) 和他的一些支持者，讨论了这些主张以及他们对该省政治未来的希望。
 
-与此同时，史密斯说，美国对中共国的依赖到了“完全失控”的地步。她说：“任何与我们国家安全有关的事情都应该禁止进入中共国，不幸的是，就我们的供应链而言，这现在几乎是不可能的，但它只是向你展示了我们与中共国的联盟有多深，有这么多东西，这完全失控了，我们需要意识到，我们对中共国的依赖正在损害我们自己的国家安全。”
+Reference:
 
-（原文完）
-
-文章虽然不长，的确反映了美国高层一部分人对中共的了解，对美国现状的担忧，以及对拜登无能的质疑a。如果对邪共的认知再提高一些，或许就能理解拜登政府的所作所为，就能清楚参谋长联席会议主席为何瞒着总司令与中共进行“通敌电话”，就能解释情报机构出台的病毒溯源报告为何撇清了与中共的关系，还有文贵先生近来多次强调的司法黑幕等。这就是美国乃至西方，甚至整个世界的现状，邪魔中共的渗透无所不在，要员、要害部门都是重灾区。所以灭共的重要环节就是觉他，让西方、世界彻底认清中共对本国的渗透，文贵先生已经启蒙世界近5年了，大大地阻击了邪恶，并引领世界向反击、消灭中共等罪恶势力的方向发展。战友们紧跟文贵先生，加油！
+[https://www-rebelnews-com.translate.goog/interview\_political\_commentator\_aaron\_gunn\_announces\_bid\_for\_b\_c\_liberal\_party\_leadership?\_x\_tr\_sl=en&\_x\_tr\_tl=zh-CN&\_x\_tr\_hl=en-GB&\_x\_tr\_pto=nui,op](https://www-rebelnews-com.translate.goog/interview_political_commentator_aaron_gunn_announces_bid_for_b_c_liberal_party_leadership?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui,op)
 
 （文章仅代表作者个人观点）
 
-原文链接：
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-[https://www.newsmax.com/newsmax-tv/ric-grenell-amber-smith-china-biden/2021/10/12/id/1040195/](https://www.newsmax.com/newsmax-tv/ric-grenell-amber-smith-china-biden/2021/10/12/id/1040195/)
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

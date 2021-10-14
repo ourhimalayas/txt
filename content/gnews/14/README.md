@@ -2,55 +2,139 @@
 ---
 
 
-## 拜登总统可能卷入FBI对亨特的财务调查
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1592224/)
+## 中国统计局完全是按中共的指示来统计的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1592250/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/77-a71ie-wzywl.jpg)
+[https://gtv.org/video/id=6166fd50d2e2b8174874be81](https://gtv.org/video/id=6166fd50d2e2b8174874be81)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/H.jpg)e-today.us
-拜登窃位入主白宫以来一直表现出恐共、亲共的姿态，在病毒溯源、阿富汗乱局、释放孟晚舟、解除多项出口限制、贸易谈判等方面积极配合了中共，几天前文贵先生的大直播中再次揭露，无能老儿拜登竟然给中共写保证书，要出卖台湾，淋漓尽致地扮演了中共走卒的角色。
+**郭文贵**
+**Miles Guo**
 
-拜登一系列的亲共举措绝非偶然，战友们不会忘记“奋战13天”的经历，拜登在担任副总统期间，其家族就与中共有经济往来。只要你沾上了中共，就会有数不清的把柄被中共掌握，拜登目前的表现符合受中共操控的逻辑，没想到的是，上台不到10个月，就有这样露骨、疯狂、大动作的表现。还好，除了爆料革命，美国公众也在关注。
+你比如说我现在告诉你
+Por ejemplo, ahora te puedo decir
 
-《福克斯新闻》发表文章，题目“报告称，乔·拜登可能会卷入联邦调查局对其儿子亨特的调查”，副标题，亨特正面临联邦调查局对其财务状况的调查。
+就是中国最重要的两个数据　
+Los dos datos más importantes de China
 
-全文如下：
+所有统计局
+Todas las Oficinas de Estadística
 
-周二（10月12日）公布的一份报告称，由于共同银行账户和支付对方账单，乔·拜登可能会卷入联邦调查局（FBI）正在进行的对其儿子亨特·拜登财务状况的调查。
+你记住统计局里边的关键人
+Recuerda las personas cruciales de estas oficinas
 
-《每日邮报》（Daily Mail）从亨特·拜登遗弃的笔记本电脑上获得的电子邮件显示，他的商业伙伴埃里克·施沃林（Eric Schwerin）在乔·拜登处理报税时，讨论了父子俩互相付账的问题。
+现在极大部份都是七哥的人
+Ahora la mayoría son gente mías
 
-此外，此外，电子邮件显示，施韦林为当时担任副总统的乔·拜登处理了图书交易的请求，还管理了拜登捐赠给特拉华大学的参议院文件。
+还以河南人为主
+Y básicamente son personas de Henan
 
-亨特·拜登声称，他和父亲共用一个银行账户，并承认去年他因税收问题接受过联邦的调查。
+统计局里面　
+Dentro de la Oficina de Estadística
 
-电子邮件显示，2010年4月9日，施沃林写信给亨特：“我整个下午都在处理JRB的税收（JRB’s taxes）问题（但解决了一个大问题——所以一切都是值得的）。”
+统计数据主要两个
+Principalmente, en los datos de la estadística son dos
 
-同年6月10日，施沃林写道：“你父亲的特拉华州退税支票今天就来了，我将把钱存入他的账户，并开一张该金额的支票给你，因为他欠你的。我想我不需要让他知道，但如果你想的话就去吧。如果不，我明天就会存入。”
+人民银行还有一个海关
+El Banco Popular de China y la Aduana
 
-目前还不清楚乔·拜登究竟欠亨特多少钱。
+因为海关涉外, 你造不了假
+Porque la aduana tiene relación con el exterior y por eso no puedes falsificar
 
-一位洗钱和刑事税法专家告诉《每日邮报》，这些纠葛可能会将现任总统拖入FBI的调查。
+造假你只能30%, 50%
+Si lo haces, es solamente el 30% a 50%
 
-这位不愿透露姓名的前联邦检察官专家告诉《每日邮报》：“无论你在做什么交易，如果与家人或朋友有关联，肯定会有答案（他们将接受调查）。显然，如果你说的是美国总统，你最好有一个非常好的理由和他说话。”
+超过100%是很难的
+Es difícil superar los 100%
 
-据报道，联邦调查局和国税局也在调查亨特·拜登的商业关系以及是否有可能被指控洗钱。
+超过一倍
+Superando el doble
 
-另一位专家，前美国情报官员和财政部特别探员约翰·卡萨拉（John Cassara）告诉《每日邮报》，如果不是因为拜登是总统的事实，他早已成为众矢之的了。
+再一个人民银行
+Luego es el Banco Popular de China
 
-“公开获得的信息非常令人担忧，特别是在腐败领域。” 卡萨拉说，“他们可以从所有不同的渠道进行，追踪腐败线索，然后指控洗钱。”
+它有一些外汇
+Él tiene algunas divisas
 
-卡萨拉补充道：“腐败是洗钱的一种上游犯罪，除了腐败之外，就是对腐败的看法，这种事情不应该发生，它破坏了对美国政府的充分信任，它破坏了诚信和我们的国际声誉。这是一件尴尬的事情。”
+特别是印钞票
+Especialmente, la impresión de los billetes
 
-白宫没有立即回应《福克斯新闻》的置评请求。
+特别是中国的货币是双轨制
+Y la moneda de China es un sistema de doble vía
 
-（原文完）
+海外一块儿, 国内一块
+Una parte es el extranjero y la otra es dentro del paìs
 
-对亨特·拜登、施沃林这些名字，战友们再熟悉不过了，没准《每日邮报》的信息来源首先来自于爆料革命的GNEWS等。对拜登家族的所作所为我们已经了解，关键是一年后的今天，美国对这些问题的反应进展到了何种程度？对中共的认知达到了怎样的水平？基本可以定论，美国政府要员、要害部门工作人员的亲属朋友与中共国有生意往来的，没有一个是干净的，只怕美国没有揭盖子的勇气。如果调查不出拜登家族的问题，只能说明美国的三权系统都出了问题，而所有问题都可以追溯到邪共。
+它是有数据可以参考的
+Tiene datos de referencia
 
-（文章仅代表作者个人观点）
+它造假超过几倍是不可能的
+Es imposible falsificar muchas veces
 
-原文链接：
+所以统计局改的
+Por eso lo que cambia de la Oficina de Estadística
 
-[https://www.foxnews.com/politics/joe-biden-could-get-drawn-into-the-fbi-probe-into-his-son-hunter-report](https://www.foxnews.com/politics/joe-biden-could-get-drawn-into-the-fbi-probe-into-his-son-hunter-report)
+中国的统计局是领导让你多少就多少
+Es que debes poner los datos que te diga el líder
+
+不用任何问的
+No necesitas preguntar
+
+你们无法想像
+No se imaginan
+
+就统计局最后到一个叫审计局里边的一个叫审计专员
+En cuanto a la Oficina de Estadísticas, la última se llama comisionado de auditoría
+
+专员就是里边的一个实际的局级干部
+El Comisionado es el cuadro real a nivel de oficina
+
+局级干部是每天接收到
+El cuadro a nivel de oficina recibe todos los días
+
+到时候中央领导给你个数
+Cuando llegue el momento, la dirección central te dice un número
+
+你就按这个填去
+Entonces lo llenas de acuerdo a eso
+
+另外一个最核心就是海关
+Y el otro núcleo es la aduana
+
+它就是接收海关人民银行的(数据)
+Él recibe los datos del Banco Popular de Aduanas
+
+它叫政治数据
+Se llama datos políticos
+
+它不可能有任何时候
+Este en ningún momento
+
+全向外国一样(把)公开的信息
+Anucia las informaciones al público como los otros países
+
+在全省各部门(的数据)弄上
+Subir (datos) en todos los departamentos de la provincia
+
+不可能的
+Es imposible
+
+————————————————————
+
+**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1446019519353274369?s=24](https://twitter.com/se1y7cblljselva/status/1446019519353274369?s=24)
+
+日期：10/11/2021
+原视频日期：10/07/2021
+任务编号：KC166（2472）
+视频时间段：0:00-1:27
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
