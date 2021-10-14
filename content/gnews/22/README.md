@@ -2,29 +2,32 @@
 ---
 
 
-## 2021年全球公共债务仍处于创纪录的高水平
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1592861/)
+## 大主教宣称天主教军队可以拒打新冠疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1592877/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+作者：文一
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+据Defense One 新闻网报道 – 美国天主教军队的大主教蒂莫西·布罗格里奥（Timothy Broglio）周二宣布，应当允许天主教军队拒打新冠疫苗，支持那些寻求宗教豁免的军人。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture14-2.jpg)
+声明中说：”如果接种新冠疫苗违反了他或她良心的神圣性，那么任何人都不应该被强迫接受这种疫苗。”
 
-编辑上传   水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/G-4.jpg)thecrytoassociate.com
-日本共同社10月13日报道，国际货币基金组织(IMF)评估称,受到中共病毒的影响，全球公共债务预计将在2021年达到世界GDP的97.8%，对比前一年降低了0.8%，但仍在创纪录的高水平。
+布罗格里奥主教于2007年被教皇本笃十六世任命，现主持1985年设立的军事大主教区，对220个教会的180万军人及其家属负责。
 
-日本的财政状况在主要工业化经济体中已到最差水平，预计其政府债务与GDP之比今年将达到256.9%，较上年同期上升2.8个百分点，随后将在2026年降至251.9%。 美国的这一比率预计将在2021年下降0.6个百分点，至133.3%，到2026年将达到133.5%。
+疫苗无效且有毒，宗教界也在觉醒，发声呼吁拯救更多世人。
 
-国际货币基金组织（IMF）表示，全球公共债务目前达到88万亿美元，预计2021年和2022年会每年减少约全球GDP的1个百分点，之后将稳定在占约97%的GDP。IMF在其半年度财政监测报告中表示：“全球公共债务与GDP的比率在2020年因危机而大幅上升，到2021年已平稳。”“在这一次性跃升之后，预计未来几年的债务将持续高于疫情前的预测水平——在发达经济体，预计到2026年，债务水平将高出近20个百分点。”该组织补充说。
+（本文仅代表作者观点）
 
-IMF还表示，初步评估显示，2020年，政府、非金融企业和家庭发行的全球债务达到226万亿美元，比2019年增加了27万亿美元，是有记录以来的最大增幅。其中发达经济体和中共国占全球债务累积的90%以上，而其余新兴市场和低收入发展中国家仅占7%左右。
+参考链接：[大主教宣称天主教军队可以拒打新冠疫苗](https://www.defenseone.com/policy/2021/10/catholic-troops-can-refuse-covid-vaccine-archbishop-declares/186056/)
 
-援引自法新社的报道，在中共病毒疫情爆发前的最近25年，全球各国政府每年均处于赤字状态。2021年，公共借贷将再次急剧增加，债务比率已至顶点。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
-作为现代经济最重要的债券市场面临着巨大的危机。债券市场作为判断国家信誉和经济表现的重要标准，会影响到从房屋到股票市场、从养老金到保险行业，再到银行系统中的抵押贷款利率和储蓄账户利率等每一项与民生息息相关的资产价值。中共国作为全球债务大国，经济暴雷引发的骨牌效应，带来席卷全球的经济大危机已经势不可挡，真实数据出来的时候，比目前看到的肯定要惊人得多。
+新闻访谈终审：Ryan
+编辑/校对/审核：Hetangyuese
 
-（文章仅代表作者个人观点）
-
-参考链接：
-
-[https://english.kyodonews.net/news/2021/10/6882caef5811-global-public-debt-remains-at-record-high-levels-in-2021-imf.html](https://english.kyodonews.net/news/2021/10/6882caef5811-global-public-debt-remains-at-record-high-levels-in-2021-imf.html)
-
-[全球政府债务创历史新高 – 今日经济 (rfi.fr)](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E4%BB%8A%E6%97%A5%E7%BB%8F%E6%B5%8E/20210420-%E5%85%A8%E7%90%83%E6%94%BF%E5%BA%9C%E5%80%BA%E5%8A%A1%E5%88%9B%E5%8E%86%E5%8F%B2%E6%96%B0%E9%AB%98)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

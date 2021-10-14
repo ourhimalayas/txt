@@ -2,24 +2,38 @@
 ---
 
 
-## 良知未泯&#8211;加拿大邮政局将允许未接种疫苗员工继续工作！
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1592860/)
+## 亚马逊购买二手货机以解决美港口供应链瓶颈问题
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1592876/)
 
-*原文采编：文莱* *编译撰稿：文永*
+作者：文一
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+据彭博社报道，亚马逊希望购买二手远程货运飞机，以将货物从亚洲运到美国，避免在美港口出现数周延误，导致货物误期交付，库存物流的积压。一个月前，可口可乐公司宣布租用散装货船，更早前，塔吉特和好市多就已经开始租用集装箱船，以避开运输延误等问题。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada-Post.jpg)图片来源：thepostmillennial
+其他公司如家得宝、Lululemon和Peloton，也开始更多地依赖空运。虽然空运比海运要贵得多。195美元的海运货物，空运费用可达1000美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture12-2.jpg)
+计算机芯片短缺，史无前例的港口堵塞，以及卡车司机的严重缺乏。全球供应链正处于极端的压力之下。
 
+不幸的是，穆迪分析公司警告说，供应链的中断 “将变得更糟糕”。
 
-据加拿大自媒体《千禧年报》10月13日报道，加拿大邮政局已与其工会和联邦雇员达成协议，将允许未接种COVID疫苗的员工继续正常工作，以确保该国宪章中所规定的“公民有保护自己选择的权力”。
+事实上，国际货币基金组织(IMF)周二将其2021年美国经济增长预测下调了一个百分点，是G7经济体中下调最多的。IMF提到了供应链中断和消费疲软，这本身就是由供应链瓶颈效应导致的。
 
-该涵盖加拿大邮政局所有约5.4万名员工的协议内容主要包括：员工可在10月30日之前致电管理部门，申报已接种了该疫苗，或者要求COVID快速测试；在10月30日到11月15日期间，加拿大邮政局将给选择了快速测试的员工发放测试试剂；而针对未接种该疫苗的员工，上班期间则必须进行每周两次的病毒测试，并申报测试结果。
+中共病毒大流行对全球供应链造成了严重破坏。导致和加剧产品短缺、运输延误和价格上涨一系列问题。
 
-加拿大财政部长此前曾宣布，所有联邦雇员都必须在10月29日前申报COVID疫苗接种情况，否则将会面临停薪留职的处置。但当天还同时公布了豁免规定，允许包括国会、邮政局等多个部门自行制定该疫苗接种政策，而整个豁免规定将涉及约21万名联邦雇员。
+（本文仅代表作者观点）
 
-（以上内容仅代表原文信息和作者个人观点）
+参考链接：
+1. [亚马逊购买二手货机以解决美港口供应链瓶颈问题](https://www.msn.com/en-us/money/companies/amazon-is-reportedly-shopping-for-used-cargo-jets-that-can-fly-from-china-an-effort-that-would-help-the-company-side-step-major-port-delays/ar-AAPtUkq)2. [亚马逊购买二手货机以解决美港口供应链瓶颈问题](https://www.cnn.com/business/live-news/supply-chain-issues-biden-10-13-21/index.html)
+3. [亚马逊购买二手货机以解决美港口供应链瓶颈问题](https://www.msn.com/en-us/money/markets/the-global-supply-chain-nightmare-is-about-to-get-worse/ar-AAPqPA5)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
-校对发稿：硫酸羟氯喹64
+新闻访谈终审：Ryan
+编辑/校对/审核：Hetangyuese
 
-[原文链接](https://thepostmillennial.com/canada-post-unvaccinated-employees)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
