@@ -2,25 +2,21 @@
 ---
 
 
-## 2021/10/13 英国投资非洲抗衡中共国和俄国
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1593025/)
+## 秘翻在线：川普禁止苹果应用2nd1st侵犯其肖像权
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1593093/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FBm8orRUcAEU8M_.jpg)英国投资非洲抗衡中共国和俄国 网络图片
-英国外交大臣特拉斯12日表示，英国政府将在非洲投资数亿英镑，在埃及、塞内加尔和从事港口建设，以增强对非洲的经济影响力、抗衡中国和俄罗斯等“恶意行为者”。相关计划可望提升索马里兰的战略重要性。
+#### 撰稿：彩虹
 
-计划总金额超过12亿英镑。英国外交部持有的“大英国协发展集团”（CDC Group）将提供约5亿1500万英镑，阿拉伯联合大公国国有企业“杜拜环球港务集团”（DP World）将投资7亿1000万英镑，透过对各港口建设内陆物流网，解决全球贸易不平衡，且可望创造分别为13万8000及500万个的直接及间接就业机会。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-32.jpg)图片来源：纽约邮报
+10月13日，《新闻极限》（Newsmax）引述《纽约邮报》（New York Post）的报道，指川普的律师于9月30日向苹果公司发出了停止令(Cease and desist)，因为苹果商店中的应用程序2nd1st侵犯了川普的肖像权、形象以及使用虚假陈述获取新用户。
 
-非洲是中共国推行“一带一路”的重点地区，也让许多发展中国家陷入债务陷阱。相关计划将为发展中国家提供“可靠而诚实”的投资。美国总统拜登3月与英国首相约翰逊共同提出并发展为七大工业国集团（G7）6月峰会发布的“重建美好未來世界”（简称B3W）倡议，以对抗“一带一路”。中共国“一带一路”政策拖垮了沿途很多国家的经济，也最终会把中共自己拖进死亡的沼泽。
+根据《纽约邮报》的报道，该应用程序利用川普的身份，试图吸引人们每周支付约5美元来使用这个所谓的“言论自由”社交网络应用程序。
 
-新闻参考链接：[https://amp.rfi.fr/tw/欧洲/20211013-英国投资非洲抗衡中国和俄国](https://amp.rfi.fr/tw/欧洲/20211013-英国投资非洲抗衡中国和俄国)
+信中披露，该应用程序的开发者是一家名为Howly Inc.的公司。另据公开信息显示，该公司的地址在堪萨斯州，首席执行官是夏亚姆·萨旺（Shyam Sawant），经营了两年，但却只有一名员工。
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+另据《纽约邮报》报道，该应用程序的网站上还有冒充参议员兰德·保罗（Rand Paul）、玛莎·布莱克本（Marsha Blackburn）等人的账户。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+**新闻来源**
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[Trump’s Lawyers Send Cease-and-Desist Letter to Apple App Over Use of Image](https://www.newsmax.com/newsfront/trump-social-media-twitter/2021/10/13/id/1040390/)

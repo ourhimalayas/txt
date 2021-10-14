@@ -2,38 +2,52 @@
 ---
 
 
-## 亚马逊购买二手货机以解决美港口供应链瓶颈问题
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1592876/)
+## 打倒共产党以后要把土地还给人民,房贷车贷一律不用还
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1592918/)
 
-作者：文一
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
-据彭博社报道，亚马逊希望购买二手远程货运飞机，以将货物从亚洲运到美国，避免在美港口出现数周延误，导致货物误期交付，库存物流的积压。一个月前，可口可乐公司宣布租用散装货船，更早前，塔吉特和好市多就已经开始租用集装箱船，以避开运输延误等问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/maxresdefault_副本.jpg)
+据[2021年10月13日文贵直播：记住今天这个大日子；傅政华的被抓，全世界的律师事务所，司法界大颠覆，大唤醒；马云是光明会成员；目前世界的危局，经济大崩溃，世界的黑暗势力和中共的黑暗势力因为病毒疫苗受到扭曲；房地产的倒塌会导致中共更加要打台湾，全面拖垮世界经济；中美之间必有一战](https://www.youtube.com/watch?v=MUiGP6HYC9Y)时间点2：27：15——
 
-其他公司如家得宝、Lululemon和Peloton，也开始更多地依赖空运。虽然空运比海运要贵得多。195美元的海运货物，空运费用可达1000美元。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture12-2.jpg)
-计算机芯片短缺，史无前例的港口堵塞，以及卡车司机的严重缺乏。全球供应链正处于极端的压力之下。
+我们有三样东西，新中国联邦说过，大家一定要小心去看去，第一个没有共产党第一件事情把土地必须还给人民，很多国内的人在问我这个问题，欸，你怎么还？我说你如果你不懂的话，看看西方工业革命怎么把土地给人民，而且是永久产权。必须把土地给老百姓，这一条；
 
-不幸的是，穆迪分析公司警告说，供应链的中断 “将变得更糟糕”。
+第二条所有银行欠的钱，包括房贷一概不用还，他说那社会不就乱了吗？我说你没有学过经济学，好好学学凯恩斯还有大小史密斯讲的经济学理论，财富是谁的？财富最终都是社会的，我们人类存在这个世界上所有的房产、所有的金钱、所有的物质，你只是在你生存期间你拥有了保管权，或者短暂的占有权，你死了以后都跟你没关系。
 
-事实上，国际货币基金组织(IMF)周二将其2021年美国经济增长预测下调了一个百分点，是G7经济体中下调最多的。IMF提到了供应链中断和消费疲软，这本身就是由供应链瓶颈效应导致的。
+社会财富最好的分配就是继承权利和继承的法律，我说我们解决了这一段的所有的占有权和把未来的继承权解决好，所有这些账是不用还的。因为中国人民活着的人，他们应该有资格、有能力继承他们几代人创造的财富，和他生在这个土地上应有的人权，和这个土地上所有权的归属权——就应该是他们的。一切归零，重新开始。
 
-中共病毒大流行对全球供应链造成了严重破坏。导致和加剧产品短缺、运输延误和价格上涨一系列问题。
+不用还，什么房卡、信用卡、银行贷款，那对不起那到时候有没有………，他说那有10套房子，还有没房子的，那对不起了，到那个时候它就不会是绝对公平的，它只能叫做司法资源管理资源历史性的冻结分配状态，就在资本论里面都说得非常清楚，生产资料、生产价值，那就是到那个时候就是属于老百姓的，就是属于大家的。
 
-（本文仅代表作者观点）
+有没有其他的公平分配方式？有！比如说有人既没房又没房贷又没车贷，那给他什么？要把现在拥有的属于公共资源要经过等比，就是大家平均完以后一个均值让他应该所有的，他不能吃亏。
 
-参考链接：
-1. [亚马逊购买二手货机以解决美港口供应链瓶颈问题](https://www.msn.com/en-us/money/companies/amazon-is-reportedly-shopping-for-used-cargo-jets-that-can-fly-from-china-an-effort-that-would-help-the-company-side-step-major-port-delays/ar-AAPtUkq)2. [亚马逊购买二手货机以解决美港口供应链瓶颈问题](https://www.cnn.com/business/live-news/supply-chain-issues-biden-10-13-21/index.html)
-3. [亚马逊购买二手货机以解决美港口供应链瓶颈问题](https://www.msn.com/en-us/money/markets/the-global-supply-chain-nightmare-is-about-to-get-worse/ar-AAPqPA5)
+这就是爆料革命、新中国联邦干掉共产党以后要做的，只有做到了现在的资源和财富的分配合理化，被绝大多数人接受，中国人才能放下负担走向未来。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+另外一个你要得到这个东西，它最核心是啥？
 
-新闻访谈终审：Ryan
-编辑/校对/审核：Hetangyuese
+鼓掌，鼓掌，鼓掌，Nick你别这样鼓行不行？你看你这样小孩，你属于在床上被动的那种男孩，你可以问问你太太去，我就给你算命了，你就这样鼓掌，真是太不好意思了，那你是属于被动型，鼓掌你就大胆地鼓呗，咔咔咔的，是吧，你这就太被动了，鼓掌还这样的，你得像人家娜娜酱一样直接放在这儿是不是啊？还是这样，这是主动型的，你是被动型的。我没猜错吧？娜娜酱，你绝对是！一看你就是，高高的鼻梁是吧？长长黑黑的头发，绝对是主动型，七哥会算命，所以说想拿下谁就拿下谁。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+我接着说兄弟姐妹们，所以说这时候大家记住，唯一你得到分配，你要有一个东西，就是中国的老百姓一定要记住，你必须尊重人，你必须要尊重天和地，你必须要尊重你生活的环境。那就是中国人不能过上所谓美国人每人都有一个小别墅，每人家都有个泳池，这种能源消耗，消耗掉人类60%，那不行。
+
+就是中国要成为一个新人类的民族，在天地之间我们要还这些年共产党这个造下的孽、这些债，把中国的土地、资源、空气都恢复，我们要过上非常正常的人的生活，你不需要你十几个卧室空着八个，你只用两个，你不需要所有开着空调，五六个房子你不去住，像美国人有钱十几套房子，不到15套房子不算billionaire是吧？然后那十几个房子养着工人，天天开着空调，这实在是过分，实在是过分，中国不需要这样。
+
+然后中国人要过得更健康啊，这就是我认为万佛万神未来我们要创造我们新的人类生存方式，这个不能透露太多，透露多你们现在全都睡不着了，任何方法包括生孩子包括生存环境都要改变。
+
+（以下暂略）
+
+撰稿：喜马拉雅的肉夹馍
+
+审核：喜马拉雅的馍夹肉
+
+校对：Maarago
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

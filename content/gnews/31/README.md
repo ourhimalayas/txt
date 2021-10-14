@@ -2,32 +2,27 @@
 ---
 
 
-## 有声|美飞行员反对疫苗强制的视频点击量超过200 万
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1592872/)
+## 中共国煤炭进口激增，国内煤价创新高
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1592890/)
 
-配音：香草山教育部-蒙古鸿雁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-最近因西南航空公司飞行员抗议疫苗强制政策，导致航班的大规模取消和中断事件引发热议，而一名飞行员描述他为什么反对对航空公司员工进行疫苗强制政策的片段被广泛流传，点击已超过200万次。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Unknown-3.jpg)中共国煤炭进口激增，国内煤价创新高 网络图片
+据美国之音10月14日报道，中共国能源短缺导致煤炭进口激增，9月份煤炭进口达到3288万吨，比一年前暴增76%。郑州动力煤期货13日触及每吨1640元（254.44美元）的历史高点，今年已上涨近三倍。
 
-这位名叫肖恩-安德鲁-沃克(Shawn Andrew Walker)沃克飞行员在视频中描述了他如何因为疫苗强制政策，而陷入生计和自由两难选择的境地。他说道：
+中共国是世界上最大的煤炭消费国，但从俄罗斯、蒙古和印度尼西亚进口煤炭面临许多现实障碍。中共国已经从保税仓储中释放澳大利亚的进口煤炭，但没有解除延续将近一年的澳大利亚煤炭进口禁令。
 
-“这种情形远远超出了健康的范畴。我们身为美国人民，为自由奋斗了257年，并到世界各地传播自由和民主的理念，帮助其他国家和人民争取自由，而我们自己的自由却被剥夺了，”。
+中共国产煤大省山西和内蒙古的200座矿井已经提高产量，但暴雨导致山西省60座煤矿被洪水淹没。中共国煤炭生产已经达到1120万吨，全国火力发电厂的煤炭储备可以支持大约15天。预计中共国的能源危机将会持续到冬天，地方政府优先顾及居民用电的政策将导致第四季度的工业用电下降12%。
 
-“你可能认为被强迫戴口罩或接种疫苗不是什么大事。但当你一次次被强制，被剥夺自由时，这就变得极其重要了。”
+能源价格的暴涨会冲击其他产业，最终导致各行各业价格疯涨。这个冬天会很冷，老百姓饥寒交迫，但中南坑的炉子还是烧得热热的。期盼一场大火烧掉中南坑，老百姓以后不再挨冻受饿。
 
-著名人士坎迪斯-欧文斯（Candace Owens）等也分享了沃克的视频，以证明飞行员对疫苗强制政策的不满并为此抗争。
+新闻参考链接：[https://www.voachinese.com/a/china-coal-imports-surge-20211013/6269419.html](https://www.voachinese.com/a/china-coal-imports-surge-20211013/6269419.html)
 
-著名学者尼-约翰逊更是评论-“这是我多年来看到的最勇敢的一件事。上帝保佑这些飞行员，我们现在需要的英雄，”。
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-文字版原文：[美飞行员反对疫苗强制的视频点击量超过200 万](https://gnews.org/zh-hans/1590123/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

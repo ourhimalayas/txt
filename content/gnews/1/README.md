@@ -2,25 +2,23 @@
 ---
 
 
-## 针下亡魂｜巴西 13 岁男孩接种疫苗 6 周后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1593122/)
+## 秘翻在线：国际奥委会在人权问题上包庇中共
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1593277/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 14/10/2021**
+#### 翻译/撰稿：zzballack
 
-***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-33.jpg)图片来源：日经新闻
+据《布雷特巴特新闻网》（Breitbart News）10月13日报道，国际奥委会（IOC）周三宣布，它不会就2022年冬奥会主办国–中共国的人权记录提出质疑，声称该管理机构的职责范围只限于体育，而不是对主权国家发号施令。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/27-2.jpg)
+当被问及中共国的维吾尔穆斯林被中共镇压时，国际奥委会副主席约翰·科茨（John Coates）回答说，IOC根本无权对此采取行动。“我们不是一个世界政府。我们必须尊重奥运会举办国的主权。”科茨反对全球日益高涨的抵制北京冬奥会的呼声。
 
-【巴西】朗多尼亚淡水河谷一名 13 岁男孩 Weverton Silva 在接种辉瑞 COVID-19 疫苗的 6 周后死亡。
+国际奥委会曾在2018年12月表示，从2024年巴黎奥运会开始，主办城市的合同中将包括人权标准。但它却没有为北京纳入这些准则–《联合国工商企业与人权指导原则》（United Nations Guiding Principles on Business and Human Rights）。IOC主席托马斯·巴赫（Thomas Bach）当时就中共在新疆地区建立大规模再教育营一事回答说，国际奥委会没有这样的授权和权力解决人权问题，那是“政治”问题。
 
-Weverton 于 8 月 25 日打了第二针，不久之后，他开始陆续出现多种症状，10 月 8 日他在当地的一间诊所内倒下，一段影片显示，医生和旁观者试图让他做了急救，但他再也没有任何回应，据初步估计，Weverton 的死因是心脏骤停。
+科茨说，国际奥委会确实非常重视人权，我知道人权问题是奥林匹克主义基本原则的一个非常重要的部分，是奥林匹克宪章中规定的基本原则。但是IOC的职责仅限于确保国家奥林匹克委员会（national Olympic committees）或奥林匹克运动（Olympic movement）内部在举办奥运会方面不存在人权侵犯的情况。
 
-目前，他的尸体已被送往阿里克梅斯进行检查，当局表示，检查人员希望确定他的突然死亡与他接种的辉瑞 COVID-19 疫苗之间有何直接因果关系。
+北京冬奥会将于明年2月举行，有人呼吁赞助商和其他各方抵制冬奥会，或找到一种方式来抗议中共国的人权状况。美国国会已经质问了Visa和Airbnb等五个主要赞助商，指控他们支持中共对新疆维吾尔人的种族灭绝行为。而前国务卿蓬佩奥则亲自敦促美国人抵制北京冬奥会。
 
-***警告：该影片恐令人不安，建议酌情点开观看***
+作为回应，中共政府指责美国政客将体育“政治化”，诽谤中共国，而且威胁要对任何拒绝参赛的国家实施经济制裁。批评者担心，成功举办冬奥会将让中共更加肆无忌惮，在处理少数民族和宗教少数群体问题上更加强硬。
 
-来源｜[个案027](https://thecovidworld.com/weverton-silva-13-year-old-boy-dies-44-days-after-receiving-the-pfizer-covid-19-vaccine-investigation-started/)
-
-* * *
-
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//
+新闻来源：[Olympics VP Gives China Free Pass: No Human Rights Challenge Ahead of Beijing Winter Games](https://www.breitbart.com/politics/2021/10/13/olympics-vp-gives-china-free-pass-no-human-rights-challenge-ahead-of-beijing-winter-games/)

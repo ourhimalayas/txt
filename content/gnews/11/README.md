@@ -2,42 +2,33 @@
 ---
 
 
-## 洛杉矶港口将24小时运作以解决航运严重堵塞问题
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1593017/)
+## 国家情报局代理副局长：现政府在应对中共方面毫无准备
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1593091/)
 
-翻译： 纽约香草山健身部 – Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国最大的港口之一洛杉矶港口，将开始每天24小时运作，以试图尽快处理滞留在外面的货船长龙。这是为了缓解可能导致今年圣诞节货物短缺的全球供应问题。
+**据《NEWSMAX》作者：Sandy Fitzgerald ,2021 年 10 月 12 日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ahn9m-0qo61.jpg)
+前大使兼国家情报局代理副局长理查德·格雷内尔（Ric Grenell），周二在 Newsmax 上表示，拜登政府还没有为世界上许多地方发生的事情做好准备，更不用说应对如果中共和台湾之间的敌对行动升级后将会发生的事件。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/0-4.jpg)
+“在乌克兰，我们有 100,000 名俄罗斯军队驻扎在边境。”与前国防部副助理安珀·史密斯一起出现在Newsmax的《ohn Bachman Now》节目中的格雷内尔评论了乔·拜登总统的准备情况。 “他们没有为也门发生的事情做好准备。他们也没有为叙利亚正在发生的事情做好准备，俄罗斯人接管并试图操纵整个地区。”
 
-在附近的长滩港采取类似举措后，加州洛杉矶港将24小时运作，以便在夜间处理更多货物。
+当你加上中共和台湾时，他继续说，外交可能不足以避免这些危险。
 
-随着经济的解锁和消费者需求的回升，全球供应链已经被打乱。美国零售商急于补充库存，但是，亚洲主要港口和工厂的大规模停工，导致问题更加严重。加州港口积压的货船创下纪录。美国的主要海运门户，洛杉矶和长滩港受到了严重打击。8月份，洛杉矶不得不比平时处理多了30%的集装箱，而长滩则多了23%。9月的一天，创纪录的73艘船被迫在外面排队等候泊位。在Covid之前，每天有超过一艘船需要等待的情况并不常见。
+“如你所知，我在国务院工作了11年，”格雷内尔说。 “我是一名外交官，我将尽我所能去尝试解决这些问题。我非常欣赏五角大楼的一件事是，他们谈论‘军事行动威胁’与‘可信的军事行动威胁’之间的区别。当我们与外交官在桌面上交流时，试图不通过战争来决其中一些问题时，美利坚合众国需要‘可信的军事行动威胁’。”
 
-今年早些时候，拜登政府成立了一个供应链工作组，并任命了一名港口特使，以寻找解决问题的办法。洛杉矶港和长滩港现在都将提供更多夜班和周末时间，以便他们能够更快地卸货。周三，沃尔玛、UPS、联邦快递、三星、家得宝和塔吉特同意加强他们在港口的夜间作业，这应该有助于每周多清理3500个集装箱。
+格雷内尔还呼吁国务院进行改革，让外交官能够“不仅仅是掩盖问题，而是试图成为解决问题的先锋”，从而实现这样的“肌肉式外交”。
 
-拜登政府希望该计划也能释放供应链其他部分的能力，包括美国的高速公路、铁路和仓库。美国总统拜登周三会见了零售业老板和工会负责人，他说他计划对美国的港口进行历史上最大的投资，作为尚未通过参议院的10万亿美元（7.3亿英镑）基础设施法案的一部分。
+与此同时，美国对中共的依赖“完全失控”，史密斯说。
 
-他对记者说：“我们的目标不仅是度过眼前的瓶颈，而且要解决这场大流行病所暴露的我们运输供应链中长期存在的缺陷。希望让美国公司更容易在本土制造产品。”拜登说：“我们再也不应该过分依赖世界上的一家公司或一个国家或一个人，特别是不认同我们价值观的国家。”
+她说：“当涉及到中共时，任何与我们国家安全有关的事情都应该被禁止。不幸的是，我们的供应链现在几乎是不可能完全脱离，但这只是向你展示出我们与中共之间的联系，（我们）在其他很多方面都过于深入。这完全失控了，我们需要意识到通过依赖中共的‘供应链’来保障国家安全，这种方法是自讨苦吃。”
 
-参考链接：[LA port to open round the clock to tackle shipping queues](https://www.bbc.com/news/business-58901777)
+**原文链接：**
+[https://www.newsmax.com/newsmax-tv/ric-grenell-amber-smith-china-biden/2021/10/12/id/1040195/](https://www.newsmax.com/newsmax-tv/ric-grenell-amber-smith-china-biden/2021/10/12/id/1040195/)
 
-**本文代表作者观点**
+翻译：洛杉矶盘古农场 – 轰炸机
+校对：洛杉矶盘古农场 – 柯镇恶
+编辑：洛杉矶盘古农场 – 柯镇恶
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
-
-**校对/发稿：童谣**
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

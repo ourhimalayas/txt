@@ -2,24 +2,32 @@
 ---
 
 
-## 良知未泯&#8211;加拿大邮政局将允许未接种疫苗员工继续工作！
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1592860/)
+## 大主教宣称天主教军队可以拒打新冠疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1592877/)
 
-*原文采编：文莱* *编译撰稿：文永*
+作者：文一
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+据Defense One 新闻网报道 – 美国天主教军队的大主教蒂莫西·布罗格里奥（Timothy Broglio）周二宣布，应当允许天主教军队拒打新冠疫苗，支持那些寻求宗教豁免的军人。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture14-2.jpg)
+声明中说：”如果接种新冠疫苗违反了他或她良心的神圣性，那么任何人都不应该被强迫接受这种疫苗。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada-Post.jpg)图片来源：thepostmillennial
+布罗格里奥主教于2007年被教皇本笃十六世任命，现主持1985年设立的军事大主教区，对220个教会的180万军人及其家属负责。
 
+疫苗无效且有毒，宗教界也在觉醒，发声呼吁拯救更多世人。
 
-据加拿大自媒体《千禧年报》10月13日报道，加拿大邮政局已与其工会和联邦雇员达成协议，将允许未接种COVID疫苗的员工继续正常工作，以确保该国宪章中所规定的“公民有保护自己选择的权力”。
+（本文仅代表作者观点）
 
-该涵盖加拿大邮政局所有约5.4万名员工的协议内容主要包括：员工可在10月30日之前致电管理部门，申报已接种了该疫苗，或者要求COVID快速测试；在10月30日到11月15日期间，加拿大邮政局将给选择了快速测试的员工发放测试试剂；而针对未接种该疫苗的员工，上班期间则必须进行每周两次的病毒测试，并申报测试结果。
+参考链接：[大主教宣称天主教军队可以拒打新冠疫苗](https://www.defenseone.com/policy/2021/10/catholic-troops-can-refuse-covid-vaccine-archbishop-declares/186056/)
 
-加拿大财政部长此前曾宣布，所有联邦雇员都必须在10月29日前申报COVID疫苗接种情况，否则将会面临停薪留职的处置。但当天还同时公布了豁免规定，允许包括国会、邮政局等多个部门自行制定该疫苗接种政策，而整个豁免规定将涉及约21万名联邦雇员。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
-（以上内容仅代表原文信息和作者个人观点）
+新闻访谈终审：Ryan
+编辑/校对/审核：Hetangyuese
 
-* * *
-
-校对发稿：硫酸羟氯喹64
-
-[原文链接](https://thepostmillennial.com/canada-post-unvaccinated-employees)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

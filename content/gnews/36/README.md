@@ -2,20 +2,35 @@
 ---
 
 
-## 美国土安全部将在纽约测试防御生物武器攻击应急能力
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1592833/)
+## 币安将关闭人民币虚拟货币交易
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1592874/)
 
-#### 翻译：billwilliam
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-24.jpg)图片来源：hubpages.com
-零对冲援引NBC纽约电视4台报道称，美国国土安全部本月将在纽约市的120处地点测试防范生物武器攻击的应急能力，测试点包括地铁系统。
+作者：文一
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+【路透社】10 月 13 日消息：中共国监管最新一轮针对虚拟货币的打击影响继续扩大，中共国最大虚拟货币交易所—币安（Binance）周三宣布将于 2021 年 12 月 31 日下架 CNY 交易区，将不再允许在其 C2C 平台上以人民币进行交易，并取消在 P2P 交易中以人民币买卖加密货币的选项。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture10.jpg)
+币安将对平台用户进行清查，平台若发现中国大陆地区用户，则其对应账户将切换至“只允许提现”模式，用户将只能进行提现、撤单、赎回、平仓操作。
 
-据报道，纽约大都会交通局（MTA）、国土安全部、以及其它研究人员将释放一种无害的气体来模拟生物或化学武器攻击。测试将于10月18日至29日在纽约市120处地点进行。届时如果市民闻到异样气味，政府建议大家请勿惊慌，因为测试气体无毒。大部分测试地点位于地面，比如公园等处，但有一些测试将在地铁站进行，具体地下测试数字并未公布。
+币安成立于2017年，总部最初就设在中共国，如今却被禁止交易。
 
-据称，此次测试的目的是为了模拟“在人口稠密的城市环境下，生物制剂的气溶胶投放”。纽约大都会交通局称，此项测试将追踪无害气体的扩散，并研究路面和地下环境中气流的关系。换句话说，就是如果出现生物制剂攻击，气溶胶会飘到哪里。
+如此看来，与稳定币挂钩，且有20%黄金锚定的喜币将是中国民众避险货币的不二首选。
 
-此项研究属于联邦政府一个名为“城市威胁扩散”的秘密项目。纽约上次进行这种测试是2016年，其它如华盛顿特区和波士顿等城市也进行过类似测试。
+（本文仅代表作者观点）
 
-如果在平常时期，这或许只是一次例行的安全测试。然而，在中共投放病毒生物武器的背景下，此次测试显得尤为重要。测试中积累的宝贵数据未来可以帮助救援纽约市民，如果出现大规模生物武器攻击。
+参考链接：
+1.[币安将关闭人民币虚拟货币交易](https://www.reuters.com/article/%E4%B8%AD%E5%9B%BD%E8%99%9A%E6%8B%9F%E8%B4%A7%E5%B8%81%E4%BA%A4%E6%98%93%E6%89%80%E5%B8%81%E5%AE%89%E5%AE%A3%E5%B8%83%E6%B8%85%E9%80%80%E5%A4%A7%E9%99%86%E7%94%A8%E6%88%B7%EF%BC%8C%E5%B0%86%E5%88%87%E6%8D%A2%E8%87%B3%E2%80%9C%E5%8F%AA%E5%85%81%E8%AE%B8%E6%8F%90%E7%8E%B0%E2%80%9D%E6%A8%A1%E5%BC%8F-idCNL4S2R91OE)
+2. [币安将关闭人民币虚拟货币交易](https://gnews.org/zh-hans/1584865/)
+3.[币安将关闭人民币虚拟货币交易](https://cn.wsj.com/articles/%E5%B8%81%E5%AE%89%E5%B0%86%E5%85%B3%E9%97%AD%E4%BA%BA%E6%B0%91%E5%B8%81%E8%99%9A%E6%8B%9F%E8%B4%A7%E5%B8%81%E4%BA%A4%E6%98%93-11634124011)
 
-信息来源：[Feds Deploy Non-Toxic Gas On Subway In Test Of Biological Attack Preparedness](https://www.zerohedge.com/political/feds-deploy-non-toxic-gas-subway-test-biological-attack-preparedness)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+
+新闻访谈终审：Q大哥
+编辑/校对/审核：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
