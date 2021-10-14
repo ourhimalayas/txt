@@ -2,32 +2,45 @@
 ---
 
 
-## 法官命令联合航空公司，不要让寻求疫苗强制令豁免的工人休假
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1594239/)
+## Google和Youtube平台的新政策限制人们收看相关气候内容
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1594313/)
 
-**摘要翻译：**一名联邦法官周二命令联合航空公司不要让寻求公司的中共病毒疫苗强制令豁免的工人休无薪假。
+作者：Sheila Gunn Reid
 
-临时裁决是由美国地区法官马克.皮特曼 (Mark Pittman) 发布的，因此·皮特慢听取该案的口头辩论之前，申请豁免的工人不会受到不应有的伤害。
+Google 和 YouTube 最近宣布的一项新政策旨在限制你可能在其平台上看到的相关气候内容。
 
-六名美联航员工上个月起诉该公司计划让任何要求宗教或医疗豁免的员工休假。该诉讼称，这些员工实际上被告知，如果他们寻求豁免，他们将被解雇，并声称该公司违反了 1964 年《民权法案》第七章和《美国残疾人法案》(ADA)。
-
-诉讼称：“美联航的行动让原告无法做出选择，要么以牺牲他们的宗教信仰和健康为代价接种中共病毒疫苗，要么失去生计。在这样做的过程中，美联航未能参与互动过程并提供合理的调节方案，并且对从事受保护活动的员工进行报复，从而违反了第七章和《美国残疾人法案》。
-
-他补充道： “如果双方的规定在没有临时禁令救济的情况下过期，则没有什么可以阻止数百名工人表面上：（1）被迫违反其宗教信仰或医疗限制接种疫苗，或（2）被美联航无限期无薪休假。”
-
-**简评：**现在各国执行的这疫苗护照：把天赋人权，自己的身体都不能做主 完全打破。美联航资方也是采取无薪假期来给不愿打疫苗的员工压力，目前员工面临的是无薪或被迫失业带来的生存压力与打疫苗的妥协之间的博弈。而民众面对的是打疫苗获取疫苗护照的现状，这不正是 没有阶级制造阶级，没有矛盾制造矛盾吗？政府和媒体在鼓动仇恨，正在分裂我们这个社会。只有政府批准才能在社会上存在，记录所有人的活动，这无关健康，而是控制和权利。疫苗护照这种新型的专制工具只会让政府禁止人民多的自由来扩大它们的权利。不管打或不打疫苗的民众我们需要站出来反对疫苗护照，因为我们是平等的。
-
-新闻链接：[Judge Orders United Airlines Not to Put Workers Seeking Vaccine Mandate Exception on Leave](https://www.theepochtimes.com/mkt_breakingnews/judge-orders-united-airlines-not-to-put-workers-seeking-vaccine-mandate-exception-on-leave_4046538.html?utm_source=newsnoe&amp;utm_medium=email2&amp;utm_campaign=breaking-2021-10-13-1&amp;mktids=e2d4220d8e51d9b28931afb0d7672657&amp;est=uMv0u716v1mrT5z26B3MXsGXKz03EI7CjMWQUGG%2FhmY3%2BCZy3aHHhZdDyPJjDB0%3D)
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+科技巨头现在正在阻止广告中出现质疑人类活动对气候变化影响内容，从而阻止怀疑论者和气候现实主义者创造相关视频内容。软审查也有另一种方式。新政策还防止组织或个人购买广告来宣扬对气候变化的怀疑。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+Google推出的政策内容如下：
+
+近年来，我们直接从越来越多的广告商和发布商那里听到了，他们对相关气候变化的不准确声明或宣传广告表示担忧。广告商只是不希望他们的广告出现在此内容旁边。发布商和创作者也不希望宣传这些声明和广告出现在他们的网页或视频上。
+
+这就是为什么今天，我们宣布了一项针对Google 广告商、发布商和YouTube 创作者的新货币化政策，该政策将禁止相关有悖于科学公认与共识的气候变化产生原因的广告投放，并通过这些内容获利。这包括将气候变化称为骗局，否认全球正在变暖的长期趋势申明，以及否认温室气体排放或人类活动导致变化的申明。
+
+科学之友是一个气候现实主义的非营利组织，其立场非常合理，即太阳 – 天空中燃烧的巨大气体球 – 在气候变化中的作用比你的 SUV 更大。科学之友有一个强大的 Youtube 频道，其中一些视频的观看次数接近 750,000。
+
+他们的 youtube 频道从未被货币化，但是，如果他们想购买广告来宣传他们与实际科学家一起举办的众多教育活动，那么他们现在至少在 Google 上是被禁止的。
+
+在此之前，Facebook 进行了类似的审查，Facebook 过去曾屏蔽了来自科学之友的广告。但据 FofS 通讯经理米歇尔斯特林称，无论硅谷如何强加给创作者的反科学立场，非营利组织都不会被压制的。
+
+Reference: [https://www.rebelnews.com/new\_policy\_from\_google\_and\_youtube\_limits\_the\_kinds\_of\_climate\_content\_seen\_on\_their\_platforms](https://www.rebelnews.com/new_policy_from_google_and_youtube_limits_the_kinds_of_climate_content_seen_on_their_platforms)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

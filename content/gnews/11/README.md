@@ -2,13 +2,15 @@
 ---
 
 
-## 2021年10月11日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1594392/)
+## 2021年10月11日 文贵先生盖特 7
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1594420/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-10月11号：尊敬的战友们好！这是川普总统办公室的官方帐号，希望大家分享这里的有关信息，和加上他的关注。**🔥🔥🔥**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.gif)
-[【2021年10月11日】文贵先生盖特原文](https://gettr.com/post/pdtw249452)
+2021年10月11日 法治基金,法治社会每周捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！
+
+11 Oct 2021, Rule of Law Foundation and Society donors messages collection.Rule of Law Foundation and Society appreciate all of our supporters and donors!
+
+[【2021年10月11日】文贵先生盖特原文](https://gettr.com/post/pdwaz55438)
 
 **喜联盟Gnews编辑部**

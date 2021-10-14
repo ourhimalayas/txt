@@ -2,24 +2,47 @@
 ---
 
 
-## 疫苗口罩，买吗？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1594248/)
+## 军方大主教支持宗教人士豁免接种疫苗
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1594370/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3663592_1_1.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.ltn.com.tw%2FUpload%2Fnews%2F600%2F2021%2F09%2F07%2F3663592_1_1.jpg&amp;imgrefurl=https%3A%2F%2Fnews.ltn.com.tw%2Fnews%2Flife%2Fbreakingnews%2F3663592&amp;tbnid=pEYXs6MopqG3fM&amp;vet=12ahUKEwiAqpKFnsrzAhWJAaYKHQXSCuAQMygMegUIARCSAQ..i&amp;docid=_rS0H5Ifpv9_SM&amp;w=800&amp;h=563&amp;q=%E7%96%AB%E8%8B%97%E5%8F%A3%E7%BD%A9&amp;ved=2ahUKEwiAqpKFnsrzAhWJAaYKHQXSCuAQMygMegUIARCSAQ)
+作者：纽约香草山农场 – 四季
 
-日本广播协会10月14日报道，山形县的一家缝制公司开始销售与新冠疫苗接种相关的口罩，口罩上印有“打过了”的文字，或者两支注射器的图案，戴上该口罩，向周围人传达的信息是“已经接种过两次新冠疫苗”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-到目前为止，关东地区已经售出了约1000个。有购买者表示”当你乘坐满员的电车或去医院时，你会给周围的人一种安全感”。该公司的社长后藤忠志说：在这个仍然有很多不安的世界里，如果这种呼吁能够随便进行，我们就能相互放心地交往。接种疫苗的人一定要尝试一下。
 
-10月14日，日本2针疫苗接种率为65.8%，65岁以上的接种率为89.9%，12月份开始，日本境内将考虑推行第三针接种，接种的人数越来越多，社会正在从方方面面向未接种者施压，请问，疫苗口罩的购买，需要接种证明吗？
 
-信息来源：
 
-[接種済みを周囲に示す「ワクチン打ちましたマスク」販売 山形](https://www3.nhk.or.jp/news/html/20211014/k10013307121000.html)
 
-免责声明：文章仅代表作者本人观点，与GNEWS无关
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-8.png)
+据[布莱特巴特新闻网](https://www.breitbart.com/faith/2021/10/14/military-archbishop-supports-religious-exemptions-from-vaccine-mandates/)10月14日报道，美国军方天主教大主教蒂莫西-布罗格里奥本周表示，天主教军事人员可以以宗教理由拒绝接种强制的冠状病毒疫苗。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1217-1-Vaccine-1-640x480-1.jpeg)图片：Jon Cherry/Getty Images
+
+他在一份声明中说：如果接种COVID-19疫苗会违反他或她神圣的良知，那么任何人都不应该被迫接种，并引用圣保罗六世的话，“公民有权不受阻碍地按照自己的良心生活”。
+
+布罗格里奥大主教指出，美国最高法院已经裁定，宗教信仰不需要被他人接受、不需要符合逻辑、一致或者被他人理解，即可得到第一修正案的保护。
+
+他补充说，拒绝提供宗教便利，或对那些提出真诚的、基于良心的反对意见的人采取惩罚性或不利的人事行动，将违反联邦法律，在道德上应受到谴责。
+
+近期披露的消息指证，疫苗是用来自堕胎的细胞系开发、测试和生产的，这些都涉及到了道德范畴。
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
