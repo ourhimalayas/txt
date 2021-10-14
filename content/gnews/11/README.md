@@ -2,38 +2,36 @@
 ---
 
 
-## 由于魁北克医护人员短缺，强制疫苗延期一个月
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1593944/)
+## 六四纪念雕塑将遭移除 ,丹麦雕塑家对峙港大
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593974/)
 
-蒙特利尔皇家山战友团 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-2.jpg)图片来源： CTV Montreal News
-根据《CBC新闻》10月13日报道，魁北克卫生部长杜贝周三宣布，原来医护人员强制接种的最后期限是10月15日本周五，由于人员短缺的风险太高，延期至至11月15日。
+作者：FoxRina
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+丹麦雕塑家高志活纪念八九·六四天安门大屠杀的雕塑作品「国殇之柱」将遭到香港大学的移除，高已聘请了律师和外交官处理此事，并表示如果他高达8 米的六四大屠杀遇难者雕像遭到破坏，他将起诉香港大学。
 
-在坚持魁北克省将继续对医护人员实施疫苗接种任务并对不遵守规定的人停薪留职数周后，该省的卫生部长克杜贝出尔反尔，现在延期一个月来进行充分的疫苗接种。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-22.jpeg)
 
-目前，93%的魁北克医护人员已充分接种疫苗，但仍有近2.2万名医护人员面临停职，因为他们只接种了一针或未接种疫苗。杜贝说，卫生系统将无法处理失去这么多工作人员的问题。
+高志活是这位关注中国人权的丹麦雕塑家的中文名字，和他的丹麦姓名发音相近。高志活是中国大陆人权的关注者，国际人权组织橙色运动发起人之一，并因其人权艺术活动在2009年访港时遭到中共拒绝入境。
 
-他说，推迟医护人员接种疫苗的最后期限的决定是 “困难的”，但是必要的。 杜贝在星期三的新闻发布会上说：”我有责任保护魁北克人的医疗保健网络。现在的风险太高了，用魁北克人的健康做赌注是不负责任的。”
+雕塑“国殇之柱”1997年由以组织天安门广场大屠杀遇难者年度追悼会而闻名的香港市民支援爱过民主运动联合会向其雕塑者无限期借用，并安置在香港大学，是中国境内纪念六四的唯一雕塑。高大的雕塑上布满了扭曲的面孔，震撼地描绘了天安门广场大屠杀的受害者，强烈引发观者的深思与悲愤。
 
-同时，从周一开始，没有充分接种疫苗的工作人员将不得不每周接受至少三次COVID-19筛查测试。这项措施已经在公共网络中生效，但也将适用于私人设施。
+由于国安法暴政和香港民主的全面沦陷，支援会于上个月被迫解散，部分成员被捕或被拘留中。港大高层要求支援会于本周三下午5点之前对雕塑完成拆除，否则将被视为放弃。
 
-在11月15日之前没有充分接种疫苗的护士将没有资格获得高达18,000元的财政奖金，这是魁北克省吸引和留住护理人员以解决医疗网络人员危机的计划的一部分。
+然而该雕塑仍为其创作者所拥有，估价约为1200 多万瑞典克朗。高志活现已在香港聘请律师处理此案，并寻求丹麦官员的外交帮助，以保护这座雕塑，或至少确保该雕塑可以毫无损坏地从香港大学移走。
 
-如果维持星期五的最后期限，魁北克省的医疗服务将 “大大减少”。该省470间手术室中的35间和该省约600张病床将不得不关闭。目前，由于人员短缺，已经有80间手术室被关闭。一些长期护理院（CHSLDs）也将被迫关闭床位。
+(本文仅代表作者观点)
 
-魁北克省在人员严重短缺的情况下在公共部门招聘1000多名全职护士。
+参考链接：[Dansk staty om massakern vid Himmelska fridens torg skapar storbråk i Hongkong](https://kinamedia.se/2021/10/14/dansk-staty-om-massakern-vid-himmelska-fridens-torg-skapar-storbrak-i-hongkong/)
 
-一些代表医疗工作者的专业组织，包括该省的护士组织、呼吸治疗师组织、药剂师组织、执业护士组织和医师协会，都表示他们将暂停那些在周五之前没有充分接种COVID-19疫苗的成员的执照。杜贝周三表示，这些最后期限也将被延长，以使工人在被吊销执照之前有更多的时间来接种疫苗。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-工会对这一决定表示赞赏。
+新闻访谈终审：FoxRina
+编辑/校正/发稿：谐趣园
 
-魁北克省最大的护士工会，魁北克医疗行业联合会（FIQ）表示对推迟接种疫苗感到高兴，但表示仍有问题需要解决。呼吸治疗师、代表76000名护士的FIQ副主席Isabelle Groulx说。”我们在短期内避免了混乱，但我们还没有走出困境“。
-
-延期一个月应该不能使这2.2万名医护人员改变主意去接种疫苗。
-
-原文链接：
-[https://www.cbc.ca/news/canada/montreal/dube-update-health-services-plan-1.6208975](https://www.cbc.ca/news/canada/montreal/dube-update-health-services-plan-1.6208975)
-
-* * *
-
-发稿 Spirit
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

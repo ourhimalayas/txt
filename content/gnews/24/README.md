@@ -2,18 +2,22 @@
 ---
 
 
-## 中共国储备煤炭可用15天，然后呢？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1593758/)
+## 中国移动SIM卡“硬钱包”推出！中共力推数字人民币全面应用
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1593767/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-67.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2021%252F1011%252F215de3daj00r0scah001ac000hs00a0c.jpg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FGM0TFEHP053722D4.html&amp;tbnid=ycSc91dmJFEnBM&amp;vet=12ahUKEwjs6fq58cnzAhWTfHAKHQW-ByEQMygDegQIARAX..i&amp;docid=c3t2yvuYvM5D5M&amp;w=640&amp;h=360&amp;q=%E7%87%83%E7%85%A4%E7%B4%A7%E7%BC%BA&amp;ved=2ahUKEwjs6fq58cnzAhWTfHAKHQW-ByEQMygDegQIARAX)
-10月14日北京日报报道，国家能源局副局长余兵介绍，今冬明春确实面临比较大的电力、热力保供压力。我们坚决贯彻党中央、国务院的决策部署，经过前一阶段的工作，在各方努力下，10月份以来，全国电力供需紧张形势已经有所缓解。10月11日，全国日发电量207亿千瓦时，当月累计发电量2285亿千瓦时，同比增长10.8%。截至目前，年累计发电量已经达到62749亿千瓦时，同比增长13.1%。应该说，这个增长量还是比较大的。全国统调电煤库存8199万吨，目前可用天数是15天。10月11日全国合计有序用电电力4842万千瓦，有序用电量已经比9月份最高峰有所下降。
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/12-6.jpg)[图片来源](https://www.sohu.com/a/494896918_100302690)
+10月13日，中国移动联手工商银行在苏州发布“基于超级SIM卡的数字人民币支付产品SIM PAY”，手机SIM卡可以成为用户高频小额移动支付场景里的硬钱包。
 
-2020年2月份，国家能源局给出的信息，全国统调电厂煤炭库存1.19亿吨全国可用27天，如今北方正值入冬季节，而库存8199万吨，可用天数是15天，在产煤大省山西水灾和国际进口煤炭紧缺的情况下，用完了储备煤炭15天以后怎么办呢？中共国政府部门没有给答案，在没有新的能源解决当前需求，民生和工业将回归原始。
+中国移动金融科技有限公司副总经理孙健介绍，SIM PAY具有四大特性，一是支持双离线支付，交易双方在没有网络覆盖的情况下亦可完成支付；二是使用便捷，不需要打开手机APP，“碰一碰”即可完成支付；三是号码即账号，通过手机号码可快速开通SIM PAY钱包，实现移动用户无门槛开立钱包；四是支付即结算，资金实时到账。
 
-消息来源：
+孙健表示，未来中国[工商银行](http://quote.eastmoney.com/unify/r/1.601398)500余万线下商户、中国移动数十万移动营业厅的受理终端，均将支持数字人民币SIM PAY，促进数字人民币规模发展。
 
-[国家能源局：全国统调电煤库存8199万吨，可用15天](https://mr.mbd.baidu.com/r/uHmLSfSo5G?f=cp&amp;rs=1744892720&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=a4d512ff598b8162)
+中共三大运营商均积极参与数字人民币研发和试点，以SIM卡为载体的硬钱包是三大运营商普遍采用的方式。据中国电信官微披露，[中国电信](http://quote.eastmoney.com/unify/r/1.601728)与[中国银行](http://quote.eastmoney.com/unify/r/1.601988)联合研发的“数字人民币”钱包近日正式上线，10月底后还将试点推出电信SIM卡硬钱包功能，支持“离线”收付款；中国联通与[中国银行](http://quote.eastmoney.com/unify/r/1.601988)合作推出了中国联通沃钱包APP数字人民币钱包，用户可在APP内开立数字人民币钱包，双方还共同研发了物联网数字人民币模组，通过加载联通物联网SIM卡，实现在线、离线多种支付模式，并采用标准化接口，方便嵌入各类物联网设备，目前已在美团共享单车、友宝自助售货机、冬奥特许商品售卖机、智能充电桩、自助咖啡机、滑雪机等场景落地。
+
+当前，中共房地产和金融核弹随时将爆，中共加速推进数字人民币的全面落地应用，目的是对内重洗财富抑制危机，对外阻击美元称霸世界。
+
+[信息来源](https://finance.sina.com.cn/blockchain/roll/2021-10-14/doc-iktzscyx9473489.shtml)
 
 (文章仅代表作者本人观点，与GNEWS无关)
 

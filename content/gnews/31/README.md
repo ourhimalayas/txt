@@ -2,26 +2,30 @@
 ---
 
 
-## 疫苗接种人群的免疫能力正在以每周5%的速度退化，将摧毁整个医疗系统
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1593685/)
+## 拒做政治花瓶，民主党不参选香港立法会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593717/)
 
-撰稿：Runaway
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4dbf3c9c-0528-4ba6-91e4-29fbec0523a8-AP21034697420609-scaled.jpg)网络图片
-最新的英国公共健康部COVID疫苗监测报告显示，与未接种疫苗的人相比，接种两针疫苗人群的免疫能力正在以每周5%左右的速度退化（介于2.7%和8.7%之间）。如果这种情况持续下去，那么30-50岁人群的免疫能力将在圣诞节前100%退化，届时病毒防御能力将为零。而所有30岁以上的人都将在明年3月之前失去免疫能力。
+作者：七哩香
 
-以下连续4周的监测数据清楚地显示了疫苗对免疫系统反应造成的渐进性损害，与未接种疫苗的人相比，两针疫苗接种者的免疫能力每周下降程度如下：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-76-1.png)THEEXPOSE
-每个30岁以上的接种者都将在6个月内失去全部免疫能力（针对病毒和某些癌症），随之而来的是，这些完全失去免疫能力的人群将摧毁整个国家的医疗系统。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-以上数据表明，疫苗不仅会随着时间的推移失去有效率，它们甚至还会逐渐损害免疫系统，直到实现负效率。他们目前让30岁以上的人处于比接种疫苗之前更糟糕的境地。
+10月12日，作为香港民主派最大政党的民主党公布，立法会选举的党内甄选提名期截止，没有党员报名参选。此举意味着民主党不会参加12月19日举行的香港立法会选举，这是民主党首次不参选立法会。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1014AM（1、2、6、7）視頻備用.001.jpeg)
+继2020年实施港区国安法后，中共大幅修改选举制度，取消民主派议员资格，解散公民组织，逮捕民主派人士，已完全操控了香港的政治。民主派和香港民众已看清中共的邪恶意图，不惧中共以“触犯国安法”威胁、不配合中共搞选秀、不当中共的政治花瓶。
+(本文仅代表作者观点)
 
-更多信息请参见[英国政府报告证明Covid-19疫苗有效率为-66%](https://gnews.org/zh-hans/1591084/)
+参考链接：[香港民主党新选制下不参选立法会 民调指53%民主派支持者反对参选](https://www.voachinese.com/a/hk-reactions-to-democratic-party-won-t-contest-upcoming-legco-elections-20211013/6269251.html)
 
-（文章仅代表作者观点，与Gnews无关）
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-发布：Runaway
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
 
-参考链接：[A comparison of official Government reports suggest the Fully Vaccinated are developing Acquired Immunodeficiency Syndrome](https://theexpose.uk/2021/10/10/comparison-reports-proves-vaccinated-developing-ade/)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
