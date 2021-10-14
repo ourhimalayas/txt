@@ -2,26 +2,21 @@
 ---
 
 
-## 疫苗接种人群的免疫能力正在以每周5%的速度退化，将摧毁整个医疗系统
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1593685/)
+## 中共国储备煤炭可用15天，然后呢？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1593758/)
 
-撰稿：Runaway
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4dbf3c9c-0528-4ba6-91e4-29fbec0523a8-AP21034697420609-scaled.jpg)网络图片
-最新的英国公共健康部COVID疫苗监测报告显示，与未接种疫苗的人相比，接种两针疫苗人群的免疫能力正在以每周5%左右的速度退化（介于2.7%和8.7%之间）。如果这种情况持续下去，那么30-50岁人群的免疫能力将在圣诞节前100%退化，届时病毒防御能力将为零。而所有30岁以上的人都将在明年3月之前失去免疫能力。
+#### 撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-67.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2021%252F1011%252F215de3daj00r0scah001ac000hs00a0c.jpg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FGM0TFEHP053722D4.html&amp;tbnid=ycSc91dmJFEnBM&amp;vet=12ahUKEwjs6fq58cnzAhWTfHAKHQW-ByEQMygDegQIARAX..i&amp;docid=c3t2yvuYvM5D5M&amp;w=640&amp;h=360&amp;q=%E7%87%83%E7%85%A4%E7%B4%A7%E7%BC%BA&amp;ved=2ahUKEwjs6fq58cnzAhWTfHAKHQW-ByEQMygDegQIARAX)
+10月14日北京日报报道，国家能源局副局长余兵介绍，今冬明春确实面临比较大的电力、热力保供压力。我们坚决贯彻党中央、国务院的决策部署，经过前一阶段的工作，在各方努力下，10月份以来，全国电力供需紧张形势已经有所缓解。10月11日，全国日发电量207亿千瓦时，当月累计发电量2285亿千瓦时，同比增长10.8%。截至目前，年累计发电量已经达到62749亿千瓦时，同比增长13.1%。应该说，这个增长量还是比较大的。全国统调电煤库存8199万吨，目前可用天数是15天。10月11日全国合计有序用电电力4842万千瓦，有序用电量已经比9月份最高峰有所下降。
 
-以下连续4周的监测数据清楚地显示了疫苗对免疫系统反应造成的渐进性损害，与未接种疫苗的人相比，两针疫苗接种者的免疫能力每周下降程度如下：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-76-1.png)THEEXPOSE
-每个30岁以上的接种者都将在6个月内失去全部免疫能力（针对病毒和某些癌症），随之而来的是，这些完全失去免疫能力的人群将摧毁整个国家的医疗系统。
+2020年2月份，国家能源局给出的信息，全国统调电厂煤炭库存1.19亿吨全国可用27天，如今北方正值入冬季节，而库存8199万吨，可用天数是15天，在产煤大省山西水灾和国际进口煤炭紧缺的情况下，用完了储备煤炭15天以后怎么办呢？中共国政府部门没有给答案，在没有新的能源解决当前需求，民生和工业将回归原始。
 
-以上数据表明，疫苗不仅会随着时间的推移失去有效率，它们甚至还会逐渐损害免疫系统，直到实现负效率。他们目前让30岁以上的人处于比接种疫苗之前更糟糕的境地。
+消息来源：
 
-更多信息请参见[英国政府报告证明Covid-19疫苗有效率为-66%](https://gnews.org/zh-hans/1591084/)
+[国家能源局：全国统调电煤库存8199万吨，可用15天](https://mr.mbd.baidu.com/r/uHmLSfSo5G?f=cp&amp;rs=1744892720&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=a4d512ff598b8162)
 
-（文章仅代表作者观点，与Gnews无关）
+(文章仅代表作者本人观点，与GNEWS无关)
 
-发布：Runaway
-
-参考链接：[A comparison of official Government reports suggest the Fully Vaccinated are developing Acquired Immunodeficiency Syndrome](https://theexpose.uk/2021/10/10/comparison-reports-proves-vaccinated-developing-ade/)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

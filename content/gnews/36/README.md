@@ -2,21 +2,49 @@
 ---
 
 
-## 秘翻在线:大流行期间 日本儿童的自杀率创下历史新高
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1593349/)
+## 疫苗强制接种政策正使美国人以创纪录的速度辞职
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593379/)
 
-#### 翻译/撰稿：zzballack
+作者：圣母院钟声
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-2-8.jpg)图片来源：U.S.News
-据印度媒体《Wion》10月14日报道，日本教育部调查发现，在2020年，由于中共病毒大流行病导致学校停课并扰乱了教学活动，有415名中小学生自杀，这个数字比去年增加了近100人，是1974年开始记录以来的最高数字。
 
-自杀在日本有着悠久的历史，它被认为是一种逃避羞耻或耻辱的方式，其自杀率长期以来一直是G7集团中最高的。但在过去15年中，全国性的努力使自杀人数减少了大约40%。从2009年开始，自杀人数连续十年下降。
 
-在这场大流行中，自杀人数在经过十年的下降后于2020年有所增加。在大流行造成的情感和经济压力下，女性自杀人数激增，不过自杀的男性人数较少。
 
-教育部表示，超过19万6127名学童缺席课堂30天或以上，创下历史新高。这项结果表明，大流行造成的学校和家庭环境的变化对儿童的行为产生了巨大影响。由于疫情，孩子之间必须保持物理有效距离，上课、学校活动、社团活动都受到限制，相互间的交流也减少。
 
-中共病毒是超限生物武器，不仅破坏卫生医疗系统，还对社会的经济、政治、教育等各个方面产生深远影响。人类要想彻底摆脱这场大流行，必须找出病毒的来源，否则无法解决这场危机。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-新闻来源：[Suicides among children in Japan at record high during pandemic: Report](https://www.wionews.com/world/suicides-among-children-in-japan-at-record-high-during-pandemic-report-420561)
+
+
+
+
+
+
+美国劳工部于10月12日公布的数据显示，8月份，在酒吧和餐馆以及零售业的带领下，美国工人自愿辞职的人数创历史新高。美国劳工部的月度职位空缺和劳动力流动调查报告显示，有430万人失业，失业率下降了0.4%，降至4.8%，然而辞职率却上升至2.9%，比前一个月增加了24.2万人，是2000年12月以来最高的数值。资本市场经济学家詹妮弗·李分析说：“新数据突显了企业正在应对的巨大问题。没有足够的人，没有足够的设备或零件。同时，客户正在等待订单，或等待下订单。整个供应链，供需关系自相矛盾，十分反常。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-78.jpg)
+分析师们只敢猜测人们对变异中共病毒的担心，只字不提导致人们辞职的真正原因：政府的新冠疫苗强制接种政策，和被医疗当局及媒体刻意压制的严重疫苗副反应报道。目前正有更多行业的从业人员，如教师，警察，医护，职业军人等社会中坚力量在陆续辞职，他们中的很多人不仅为了个人生命安危，同时也为了捍卫这个世界最大民主国家的宪法赋予人们的基本人权。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-65.jpg)
+参考链接：
+[Americans Are Quitting Jobs at Record Rates: Labor Department](https://www.theepochtimes.com/mkt_morningbrief/americans-are-quitting-jobs-at-record-rates-labor-department_4045744.html)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Ryan
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

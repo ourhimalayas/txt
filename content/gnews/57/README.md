@@ -2,36 +2,61 @@
 ---
 
 
-## 美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1531510/)
+## 美国军人就强制疫苗对国防部提起诉讼
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1568869/)
 
-根据《1933 年证券法》第8A 条启动停终程序行政令、作出结论及实施停终令
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/1-4.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/2-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/3-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/4-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/5-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/6-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/7-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/8-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/9-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/10.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/11-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/12.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/13.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/14.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/15.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/16.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/17.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/18.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/19.jpeg)
+- **编译：Lulumi**
 
 
-[中文PDF版：](https://assets.gnews.org/wp-content/uploads/2021/09/SEC-order_20210913_中文翻译-V2.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/SEC-order_20210913_中文翻译-V2.pdf)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip200.png)
+2021年2月26日，在韩国首尔的Dobong保健中心，一名护士将阿斯利康Covid-19疫苗注入注射器。(Jung Yeon-Je-Pool/Getty Images)
 
-[原版英文PDF：](https://assets.gnews.org/wp-content/uploads/2021/09/33-10979-1-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/33-10979-1-1.pdf)
+**据新唐人报道，北卡罗来纳州布拉格堡的陆军上士丹·罗伯特(**Dan Robert**)****和北卡罗来纳州海军陆战队新河航空站的空中交通管制员霍利·马尔维希尔(**Hollie Mulvihill**)****于8月17日向美国科罗拉多地区法院提起诉讼。**
 
+**该文件将奥斯汀与卫生和公共服务部长泽维尔·贝塞拉(**Xavier Becerra**)****以及食品和药物管理局（FDA）代理专员珍妮特·伍德科克(**Janet Woodcock**)****列为被告。**
 
+**两名军人代表他们自己和其他现役军人——包括那些在中共病毒COVID-19中幸存的军人——提起诉讼，他们被强制要求接种疫苗。**
 
-+21
+**根据诉讼，罗伯特和马尔维希尔声称，奥斯汀曾通过一份备忘录公开通知他们要立即接种疫苗，国防部（DoD）“已经在公开违反其法律义务和联邦法律及宪法规定的军人权利的情况下为军人接种疫苗”。**
+
+**罗伯茨和马尔维希尔还以辉瑞生物技术公司的疫苗以前的紧急使用授权为依据，指出“联邦法规禁止在没有知情同意的情况下对军人使用任何未经许可的疫苗”。**
+
+**原告正在寻求宣告性和禁令性救济，因为国防部正在“使用紧急使用授权的中共病毒COVID-19疫苗”。**
+
+**辉瑞-生物技术公司在8月23日获得了美国食品和药物管理局的全面批准，也就是在提起诉讼的几天后。**
+
+**这些军人还希望根据通过血清测试、记录的感染或类似情况提交的证据，为那些以前感染过中共病毒并因具有“自然免疫力”而幸存下来的人设立医疗豁免。**
+
+**这些军人在法庭文件中写道：“总统、国防部长、卫生和公共服务部部长、食品和药物管理局部长都没有遵守这些联邦法律的要求”。**
+
+**“****因此，对原告的任何非自愿疫苗接种都直接违反了联邦法律、相关法规和美国宪法，剥夺了原告在第14修正案下的平等保护法，因为他们对具有自然免疫力的原告与军队中类似情况的同龄人的待遇不同，他们只有模拟的免疫力，并且用实验性疫苗侵犯了他们的身体。”**
+
+**本月早些时候，五角大楼表示，它有“一系列工具”来迫使军人接种中共病毒COVID-19疫苗，但同时指出，那些拒绝接种疫苗的人不一定会面临不光彩的退役。**
+
+**五角大楼新闻秘书约翰·柯比(**John F. Kirby**)****在一次新闻发布会上告诉记者，重要的是，如果军人选择不接种疫苗，“他们要了解决定的后果”。**
+
+**柯比说：“当一个人拒绝接种强制性疫苗时，他们将有机会与医疗服务提供者以及他们自己的指挥系统交谈，以便他们能够充分理解他们正在做出的决定”。**
+
+**他补充说：“而我要说的另一件事是，我们的指挥官有一系列可用的工具，除了使用《军事司法统一法典》之外，还可以再次尝试让该部门的男人和女人在这里做出正确的决定。”**
+
+**评论：**
+
+**难道美国军方高级官员真的对疫苗的危害一无所知？如果是这样，这种情报水平美国早都完蛋N次了。他们在明知疫苗危害还强制给军人接种，这种无视美国宪法摧毁自己军人的行为是严重的叛国行为，这背后恐怕只有光明会的邪恶力量才能做到。**
+
+**唯一有实力对抗这股邪恶力量的只有我们新中国联邦。**
+
+**千千万万的战友们，我们正在做一件最酷的事情，美国好莱坞在大银幕上编织正义的幻觉，而我们新中国联邦在郭先生的带领下，用每个人的实际行动书写现实世界的正义者联盟。**
+
+**等我们灭完共，我想我儿子一定会把美国队长、蜘蛛侠、钢铁侠玩具全部丢到垃圾桶里，因为在我们新中国联邦面前，他们就只是个弟弟而已。**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**新闻来源：[新唐人](https://www.ntd.com/us-service-members-file-lawsuit-against-department-of-defense-over-vaccine-requirement_683381.html)(NTD) | 作者：Katabella Roberts发布时间：2021年10月1日 **
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip190.png)

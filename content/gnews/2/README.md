@@ -2,31 +2,19 @@
 ---
 
 
-## 澳洲女博士签发600份“医疗豁免”证书
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1593682/)
+## 提速数字支付！美国支付巨头Stripe招聘加密团队
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1593746/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/09View-illo-superJumbo.jpg)图片来源：NY Times
-**整理报道：**翼族
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-79.jpg)[图片来源](https://www.sohu.com/a/230329120_99950936)
+“零壹财经”10月13日消息，在停止支持比特币3年后，美国支付巨头Stripe正在组建一个加密工程团队，以规划其在数字资产方面的未来。领英帖子和职位列表中描述的团队将由Stripe的前银行和金融产品工程负责人Guillaume Poncin运营，他希望雇用至少四名员工来帮助制定Stripe的加密策略。
 
-澳大利亚昆士兰警方称，一名假扮医生的妇女签发了600份中共病毒（COVID-19）“医疗豁免”的证书。
+据悉，作为一家API支持数百万数字店面的支付巨头，Stripe在2014年支持比特币时成为头条新闻，为行业首创。但Stripe四年后放弃了这项服务。一位消息人士透露，Stripe从未离开加密。该公司持续关注数字资产领域的发展，权衡是否以及如何再次参与。消息人士称，该公司考虑的一件事是需要避免挑选出最受欢迎的产品，Stripe希望在加密货币方面保持技术中立。
 
-周三，这名来自图文巴地区达令高地的45岁女子在她黄金海岸的一处住宅被捕，警方根据《国家保健从业者法》指控其五项罪名。
+[信息来源](https://www.01caijing.com/article/285439.htm)
 
-代理督察达米安·鲍威尔（Damien Powell）称，该名女子没有医学博士学位，也没有在澳大利亚注册为健康从业者。但警方表示，该女子拥有“研究博士学位”。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-代理督察鲍威尔说，警方正在努力追查购买证书的人，“到目前为止，我们能够确定的是，购买者来自澳大利亚各地。”
-
-警方表示，该女子“不相信自己做错了什么”，并“有权”签发这些证书。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-*编辑/发布：翼族*
-
-**参考链接：**[Woman who allegedly pretended to be a doctor and issued fake COVID exemptions ‘doesn’t believe she’s done anything wrong’](https://www.abc.net.au/news/2021-10-14/fake-doctor-alleged-false-covid-exemptions/100539676)
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
