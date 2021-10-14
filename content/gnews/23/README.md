@@ -2,41 +2,38 @@
 ---
 
 
-## 支付巨头Stripe将重新进入加密货币市场
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1593007/)
+## 大流行供应链危机：消费者不能指望像以前那样购物
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1593062/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/shutterstock_1937460505-1000x600-1.jpg)图片来源：pymnts.com
-#### 整理报道：小红帽
+【**简评】美国尚且食品供应短缺，中共国内恐怕情况会更糟。大家应当未雨绸缪，做好周全的准备。**
 
-根据周二在推特（Twitter）上的发表的公开声明，支付公司Stripe宣布正在组建一个新的加密货币团队，以帮助构建“Web3支付的未来”。Stripe在几年前离开加密货币市场之前，曾是最早支持比特币支付的公司之一。它一直在关注重新进入该市场的合适时机。
+**据《布雷巴特新闻网》作者：PENNY STARR，2021年10月12日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl-11.jpg)**图片源自《布雷巴特新闻网》**
+乔-拜登总统和他的商务部、劳工部和运输部未能解决导致美国港口和跨国运输的供应备份的供应链危机，因为左翼媒体把责任完全推给了冠状病毒。
 
-Stripe拒绝透露任何关于其战略的其它解释或细节，仅提到其新的公开声明，以及之前博客的文章。
+美国有线电视新闻网（CNN）的一份报告说，消费者不能指望像在“以前”那样购物，并强调制造商警告说食品供应有限。
 
-2018年1月，Stripe宣布将在当年4月终止对比特币支付的支持，称由于各种原因，加密货币对支付方面的用处越来越小。
+如果你希望今年秋天和冬天的零售店会像“以前”那样，在零食、饮料、糖果和冷冻食品货架上有无限的选择，请准备好接受一些令人失望的消息。
 
-该公司当时指出，交易确认时间增加，导致失败率增加，费用也大幅增加。然而，**Stripe当时表示，它仍然对加密货币整体感到“非常乐观”，**尤其是像Lightning和其它可以实现更快支付的项目。它还引用了OmiseGO等其他开发项目，并表示还有许多基于以太坊的高潜力项目正在开发中。【注： *OmiseGO*是专门用于去中心化数字资产交易的PoS区块链。】
+根据CNN查看的电子邮件和对食品商的采访，许多美国最大的食品制造商表示，由于劳动力、商品和运输方面的限制，他们将限量供应一些产品，包括Rice Krispies Treats、Sour Patch Kids、Ben & Jerry的一些冰淇淋口味、McCormick美食香料和Marie Callender的锅饼。一些供应商还告诉零售商，将取消这些商品的促销活动，以及在假期中的更多促销活动，这样产品就不会很快从商店货架上断货。
 
-现在，在多年来一直处于观望状态后，Stripe正在重新进入加密货币领域。
+纽约地区连锁店的销售总监史蒂夫-施瓦茨（Steve Schwartz）说，制造商的采购限制在大流行之前是很少见的，而且正在为莫顿-威廉姆斯店的顾客创造“非全品类选择”的体验。莫顿-威廉姆斯公司正在尝试在其食品和家庭必需品的主要供应商无法完成补货订单时，启用二级供应商。
 
-虽然一家市值950亿美元的公司再次涉足加密货币并没有什么坏处，但目前尚不清楚这一宣布对Stripe更广泛的企业战略有多大意义。
+施瓦茨说：“这不是理想状况。”，[顾客]“只是想知道为什么他们不能得到他们的物品”。
 
-也就是说，自 Stripe于2018年退出以来，加密支付市场已经升温。 **除了众多加密货币支付初创公司进入该领域，以及大型品牌和零售商的接受度提高之外，支付巨头PayPal最近几个月也采取了重大措施来拥抱加密货币。**
+CNN报道说，好市多和山姆俱乐部以及其他零售店将再次限制顾客的购买。
+而一家供应跟踪公司的数据显示，根据IRI的数据，在截至10月3日的一周内，18%的饮料、15%的冷冻食品、16%的零食、15%的糖果和18%的烘焙食品在商店里缺货。
 
-2020年11月，PayPal宣布现在所有美国用户都可以在其平台上购买、持有和出售加密货币。
+**原文连接**：[https://www.breitbart.com/politics/2021/10/12/cnn-on-supply-chain-crisis-consumers-cant-expect-to-shop-like-pre-pandemic-before-times](https://www.breitbart.com/politics/2021/10/12/cnn-on-supply-chain-crisis-consumers-cant-expect-to-shop-like-pre-pandemic-before-times)/
 
-在其他地方，加密货币交易所Binance已与电子商务巨头Shopify合作进行加密支付，而Coinbase一直在通过与PayPal、Apple Pay和Google Pay的整合。随着消费者采用率越来越高，使购买和使用加密货币变得更加容易。
+**文章点评仅代表个人观点**
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+翻译：洛杉矶盘古农场- TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – 柯镇恶
+编辑：洛杉矶盘古农场 – 柯镇恶
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**参考新闻：**[Payments giant Stripe says its reentering the crypto market | TechCrunch](https://techcrunch.com/2021/10/13/payments-giant-stripe-says-its-re-entering-the-crypto-market/)
-
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

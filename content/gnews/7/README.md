@@ -2,9 +2,9 @@
 ---
 
 
-## 真相工程暗访辉瑞承包商：所有中共病毒疫苗数据根本不可信
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1593181/)
+## 首位菲律宾诺贝尔奖得主Maria Ressa：脸书已成为行为修正系统
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1593303/)
 
-10/12/2021 真相工程暗访辉瑞承包商-西佛罗里达临床研究所总裁Aydin Keskiner，他认为所有的中共病毒疫苗数据都根本不可信。
+10/9/2021 Rappler创始人兼首席执行官玛丽亚·雷萨：脸书已成为一个行为修正系统，其遏制错误信息的尝试是失败的；她还警告说，若无事实真相，就无法拥有诚信的选举。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

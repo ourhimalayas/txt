@@ -2,24 +2,32 @@
 ---
 
 
-## 《长津湖》余波：中共刑事拘留发布影评的网民
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1592875/)
+## 亚马逊购买二手货机以解决美港口供应链瓶颈问题
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1592876/)
 
-作者：AsG諾雅
+作者：文一
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
-【法广】10 月 13 日报导：一位普通网民于 10 月 7 日在微博留言发布《长津湖》影评，因为提及“蛋炒饭”，次日被南昌市公安局以所谓“侮辱英烈”罪拘留 10 天。其影评原文是：“寒战最大成果就是蛋炒饭，感谢蛋炒饭，没有蛋炒饭，我们就跟曹县一样没区别。当然，可悲的是现在也区别不大”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture11-5.jpg)
-“蛋炒饭”的敏感性来自毛泽东之子毛岸英死于朝鲜战争的原因。民间一直流传，朝鲜战争时，毛岸英在所谓“志愿军”总部彭德怀司令身边工作，他利用美军轰炸间歇，到防空洞外面做蛋炒饭，被美军发现烟火后飞过来投掷的一颗燃烧弹炸死。该说法被中共纳入了禁令中。
+据彭博社报道，亚马逊希望购买二手远程货运飞机，以将货物从亚洲运到美国，避免在美港口出现数周延误，导致货物误期交付，库存物流的积压。一个月前，可口可乐公司宣布租用散装货船，更早前，塔吉特和好市多就已经开始租用集装箱船，以避开运输延误等问题。
 
-朝鲜战争由金日成发动对南韩的侵略而开始，中共国出兵帮助朝鲜没有正当性，联合国出兵阻挡侵略在联合国的决议文有明文记载。中共想借《长津湖》洗脑，却引起部分民众觉醒，互联网时代，想完全愚民教育几乎不可能。
+其他公司如家得宝、Lululemon和Peloton，也开始更多地依赖空运。虽然空运比海运要贵得多。195美元的海运货物，空运费用可达1000美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture12-2.jpg)
+计算机芯片短缺，史无前例的港口堵塞，以及卡车司机的严重缺乏。全球供应链正处于极端的压力之下。
+
+不幸的是，穆迪分析公司警告说，供应链的中断 “将变得更糟糕”。
+
+事实上，国际货币基金组织(IMF)周二将其2021年美国经济增长预测下调了一个百分点，是G7经济体中下调最多的。IMF提到了供应链中断和消费疲软，这本身就是由供应链瓶颈效应导致的。
+
+中共病毒大流行对全球供应链造成了严重破坏。导致和加剧产品短缺、运输延误和价格上涨一系列问题。
 
 （本文仅代表作者观点）
 
-参考链接：[**《长津湖》余波：中共刑事拘留发布影评的网民**](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211013-%E9%95%BF%E6%B4%A5%E6%B9%96%E7%81%AB%E4%BA%86-%E5%8F%88%E6%8A%93%E4%B8%80%E4%B8%AA%E6%95%A2%E8%AF%B4%E8%9B%8B%E7%82%92%E9%A5%AD%E7%9A%84)
+参考链接：
+1. [亚马逊购买二手货机以解决美港口供应链瓶颈问题](https://www.msn.com/en-us/money/companies/amazon-is-reportedly-shopping-for-used-cargo-jets-that-can-fly-from-china-an-effort-that-would-help-the-company-side-step-major-port-delays/ar-AAPtUkq)2. [亚马逊购买二手货机以解决美港口供应链瓶颈问题](https://www.cnn.com/business/live-news/supply-chain-issues-biden-10-13-21/index.html)
+3. [亚马逊购买二手货机以解决美港口供应链瓶颈问题](https://www.msn.com/en-us/money/markets/the-global-supply-chain-nightmare-is-about-to-get-worse/ar-AAPqPA5)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
-新闻访谈终审：Q大哥
+新闻访谈终审：Ryan
 编辑/校对/审核：Hetangyuese
 
 **更多资讯，更多关注**
