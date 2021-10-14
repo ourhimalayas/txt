@@ -2,19 +2,25 @@
 ---
 
 
-## 拒做政治花瓶，民主党不参选香港立法会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593717/)
+## 持BNO护照港人移民英国重启新生
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593740/)
 
-作者：七哩香
+作者：在远方
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-10月12日，作为香港民主派最大政党的民主党公布，立法会选举的党内甄选提名期截止，没有党员报名参选。此举意味着民主党不会参加12月19日举行的香港立法会选举，这是民主党首次不参选立法会。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1014AM（1、2、6、7）視頻備用.001.jpeg)
-继2020年实施港区国安法后，中共大幅修改选举制度，取消民主派议员资格，解散公民组织，逮捕民主派人士，已完全操控了香港的政治。民主派和香港民众已看清中共的邪恶意图，不惧中共以“触犯国安法”威胁、不配合中共搞选秀、不当中共的政治花瓶。
+今年1月底，英国政府开放海外护照（BNO）签证申请，为持有BNO的港人提供移民及入籍英国途径，上半年已经接到近六万五千份申请。英国港侨协会调查显示，这些新移民中有近七成具有大学或以上高学历，目前有三分之一受访者移居英国后，已经找到了收入稳定的工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1014AM（1、2、6、7）視頻備用.002.jpeg)
+香港抗争运动两年多来，中共对港人进行了残酷镇压，被中共杀害和强迫失踪的港人多达两万多人，白色恐怖高压下的港人纷纷想方设法举家逃离香港。2020年7月1日，英国政府认定中共国政府实施《港区国安法》严重违反《中英联合声明》，宣布自2021年1月起，符合申请BNO的香港人及家属，将可在英国居住、读书或工作5年，之后可申请无限期居留，再居住12个月后即可登记成为英国公民。
+
+尽管港共政府一再拒绝承认出现移民潮并对移民港人冷嘲热讽，却仍然改变不了追求自由民主的香港人用脚投票的事实。
 (本文仅代表作者观点)
 
-参考链接：[香港民主党新选制下不参选立法会 民调指53%民主派支持者反对参选](https://www.voachinese.com/a/hk-reactions-to-democratic-party-won-t-contest-upcoming-legco-elections-20211013/6269251.html)
+参考链接：
+
+1. [新移英港人调查：普遍学历高、经济稳定 逾三成已就业](https://www.rfa.org/mandarin/yataibaodao/gangtai/al-10122021092343.html)
+2. [英國國民（海外）護照](https://zh.wikipedia.org/wiki/英國國民（海外）護照)
+
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 

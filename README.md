@@ -15,113 +15,113 @@
 
 ---
 
-### [评级展望为“负面”！绿地“融资渠道不畅”被标普下调评级](/content/gnews/1/README.md)
+### [疫苗口罩，买吗？](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄中开始在日本海举行联合军事演习](/content/gnews/2/README.md)
+### [普京赞赏伊隆∙马斯克对加密货币结算的影响](/content/gnews/2/README.md)
  ` HimalayaRussia`
 
-### [1783处受灾受损！山西古建遭老天“雨劫”，更遭中共人祸](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [好人好难](/content/gnews/4/README.md)
- ` 首尔天池农场`
-
-### [10/13/2021 七哥直播：傅政华、孙力军、孟建柱、王岐山一旦被抓，他们便清一色栽地倒在地，这就是中共的真面目](/content/gnews/5/README.md)
- ` 秘密翻译组-北美组`
-
-### [欧洲伦理委员会主席：恳请反对强制接种疫苗](/content/gnews/6/README.md)
- ` MG 澳喜农场多语组`
-
-### [银河快讯：日本消费税“暂时维持”10%；对台关系维持并深化合作](/content/gnews/7/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [秘翻在线:普京认为加密货币是威胁美元的”武器”](/content/gnews/8/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中国秘密社会史中的土地主张](/content/gnews/9/README.md)
- ` 骄子`
-
-### [新罕布什尔州行政委员会以党派投票方式拒绝了联邦疫苗接种资金](/content/gnews/10/README.md)
- ` 纽约香草山MOS02`
-
-### [有声|中共渗透美国无止境，摩根大通联手支付宝](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [&#8220;没有新中国联邦，哪里都没有真正的安全&#8221;!](/content/gnews/12/README.md)
- ` GTV新闻访谈`
-
-### [没有新中国联邦，哪里都没有真正的安全](/content/gnews/13/README.md)
- ` 纽约香草山MOS01`
-
-### [有声|爆料革命影响之下,疫苗接种无法再推进!](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [世卫与中共为新冠溯源再度联手表演依旧拙劣](/content/gnews/15/README.md)
- ` GTV新闻访谈`
-
-### [10/14/21 香港快讯 世界大学排名榜 本地大学法律系名次「插水」 中大首跌出百大 创五年新低](/content/gnews/16/README.md)
- ` 英喜-粵語組`
-
-### [六四纪念雕塑将遭移除 ,丹麦雕塑家对峙港大](/content/gnews/17/README.md)
- ` GTV新闻访谈`
-
-### [2021/10/13 大卫作战室直播精要](/content/gnews/18/README.md)
+### [法官命令联合航空公司，不要让寻求疫苗强制令豁免的工人休假](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [由于魁北克医护人员短缺，强制疫苗延期一个月](/content/gnews/19/README.md)
+### [中共多部门召开联合会议力推氢能产业发展](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [评级展望为“负面”！绿地“融资渠道不畅”被标普下调评级](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [俄中开始在日本海举行联合军事演习](/content/gnews/6/README.md)
+ ` HimalayaRussia`
+
+### [1783处受灾受损！山西古建遭老天“雨劫”，更遭中共人祸](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [联合国专员敦促香港当局审查香港安全法；声称，拘捕“违反”人权和国际法](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [好人好难](/content/gnews/9/README.md)
+ ` 首尔天池农场`
+
+### [10/13/2021 七哥直播：傅政华、孙力军、孟建柱、王岐山一旦被抓，他们便清一色栽地倒在地，这就是中共的真面目](/content/gnews/10/README.md)
+ ` 秘密翻译组-北美组`
+
+### [欧洲伦理委员会主席：恳请反对强制接种疫苗](/content/gnews/11/README.md)
+ ` MG 澳喜农场多语组`
+
+### [银河快讯：日本消费税“暂时维持”10%；对台关系维持并深化合作](/content/gnews/12/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [秘翻在线:普京认为加密货币是威胁美元的”武器”](/content/gnews/13/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中国秘密社会史中的土地主张](/content/gnews/14/README.md)
+ ` 骄子`
+
+### [新罕布什尔州行政委员会以党派投票方式拒绝了联邦疫苗接种资金](/content/gnews/15/README.md)
+ ` 纽约香草山MOS02`
+
+### [有声|中共渗透美国无止境，摩根大通联手支付宝](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [&#8220;没有新中国联邦，哪里都没有真正的安全&#8221;!](/content/gnews/17/README.md)
+ ` GTV新闻访谈`
+
+### [没有新中国联邦，哪里都没有真正的安全](/content/gnews/18/README.md)
+ ` 纽约香草山MOS01`
+
+### [有声|爆料革命影响之下,疫苗接种无法再推进!](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [世卫与中共为新冠溯源再度联手表演依旧拙劣](/content/gnews/20/README.md)
+ ` GTV新闻访谈`
+
+### [10/14/21 香港快讯 世界大学排名榜 本地大学法律系名次「插水」 中大首跌出百大 创五年新低](/content/gnews/21/README.md)
+ ` 英喜-粵語組`
+
+### [六四纪念雕塑将遭移除 ,丹麦雕塑家对峙港大](/content/gnews/22/README.md)
+ ` GTV新闻访谈`
+
+### [2021/10/13 大卫作战室直播精要](/content/gnews/23/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [由于魁北克医护人员短缺，强制疫苗延期一个月](/content/gnews/24/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [习神牌“冰箱”能装得进“大象”吗](/content/gnews/20/README.md)
+### [习神牌“冰箱”能装得进“大象”吗](/content/gnews/25/README.md)
  ` 银河勇气之星`
 
-### [[ 聚焦港澳 ] 澳洲龙虾经香港走私中共国](/content/gnews/21/README.md)
+### [[ 聚焦港澳 ] 澳洲龙虾经香港走私中共国](/content/gnews/26/README.md)
  ` 澳喜农场`
 
-### [同胞当同心抵御邪恶中共](/content/gnews/22/README.md)
+### [莆田杀人事件](/content/gnews/27/README.md)
+ ` 纽约香草山MOS03`
+
+### [同胞当同心抵御邪恶中共](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [苹果大健康布局曝光：Airpods有望成为体温计、助听器](/content/gnews/23/README.md)
+### [苹果大健康布局曝光：Airpods有望成为体温计、助听器](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（八）](/content/gnews/24/README.md)
+### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（八）](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [DC大中华时事：台湾民进党民调显示支持率高达84%](/content/gnews/25/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [10/13/2021 七哥直播：习想打台湾的动机，想做当代秦始皇](/content/gnews/26/README.md)
+### [10/13/2021 七哥直播：习想打台湾的动机，想做当代秦始皇](/content/gnews/31/README.md)
  ` 秘密翻译组-北美组`
 
-### [墙内要闻汇编](/content/gnews/27/README.md)
+### [独家：干了十天总理就宣布解散议会，岸田文雄为何如此饥不择食？](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [独家：干了十天总理就宣布解散议会，岸田文雄为何如此饥不择食？](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [这次在以法灭共的同时要以法灭掉共产党在全世界的共贼](/content/gnews/29/README.md)
+### [这次在以法灭共的同时要以法灭掉共产党在全世界的共贼](/content/gnews/33/README.md)
  ` NewFOC`
 
-### [中国移动SIM卡“硬钱包”推出！中共力推数字人民币全面应用](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国陆军部长称中共威胁全球第一](/content/gnews/31/README.md)
- ` GTV新闻访谈`
-
-### [10/13/2021 七哥直播：爆料革命将对西方的公检法大起底，这将是改变西方的根本基础并且能保护海外华人](/content/gnews/32/README.md)
+### [10/13/2021 七哥直播：爆料革命将对西方的公检法大起底，这将是改变西方的根本基础并且能保护海外华人](/content/gnews/34/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共干预神户日台交流峰会，议员表示：绝不屈服](/content/gnews/33/README.md)
+### [持BNO护照港人移民英国重启新生](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [持BNO护照港人移民英国重启新生](/content/gnews/34/README.md)
+### [拒做政治花瓶，民主党不参选香港立法会](/content/gnews/36/README.md)
  ` GTV新闻访谈`
-
-### [拒做政治花瓶，民主党不参选香港立法会](/content/gnews/35/README.md)
- ` GTV新闻访谈`
-
-### [疫苗接种人群的免疫能力正在以每周5%的速度退化，将摧毁整个医疗系统](/content/gnews/36/README.md)
- ` 澳喜农场`
 
 ### [10/14/2021 国际财经快讯：欧佩克下调2021年全球石油供应预期, 供应链中断迫使白宫推动沃尔玛、UPS、联邦快递24小时运营](/content/gnews/37/README.md)
  ` 秘密翻译组金融团队`
