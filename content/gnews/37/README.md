@@ -2,38 +2,41 @@
 ---
 
 
-## 亚马逊购买二手货机以解决美港口供应链瓶颈问题
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1592876/)
+## 支付巨头Stripe将重新进入加密货币市场
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1593007/)
 
-作者：文一
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
-据彭博社报道，亚马逊希望购买二手远程货运飞机，以将货物从亚洲运到美国，避免在美港口出现数周延误，导致货物误期交付，库存物流的积压。一个月前，可口可乐公司宣布租用散装货船，更早前，塔吉特和好市多就已经开始租用集装箱船，以避开运输延误等问题。
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/shutterstock_1937460505-1000x600-1.jpg)图片来源：pymnts.com
+#### 整理报道：小红帽
 
-其他公司如家得宝、Lululemon和Peloton，也开始更多地依赖空运。虽然空运比海运要贵得多。195美元的海运货物，空运费用可达1000美元。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture12-2.jpg)
-计算机芯片短缺，史无前例的港口堵塞，以及卡车司机的严重缺乏。全球供应链正处于极端的压力之下。
+根据周二在推特（Twitter）上的发表的公开声明，支付公司Stripe宣布正在组建一个新的加密货币团队，以帮助构建“Web3支付的未来”。Stripe在几年前离开加密货币市场之前，曾是最早支持比特币支付的公司之一。它一直在关注重新进入该市场的合适时机。
 
-不幸的是，穆迪分析公司警告说，供应链的中断 “将变得更糟糕”。
+Stripe拒绝透露任何关于其战略的其它解释或细节，仅提到其新的公开声明，以及之前博客的文章。
 
-事实上，国际货币基金组织(IMF)周二将其2021年美国经济增长预测下调了一个百分点，是G7经济体中下调最多的。IMF提到了供应链中断和消费疲软，这本身就是由供应链瓶颈效应导致的。
+2018年1月，Stripe宣布将在当年4月终止对比特币支付的支持，称由于各种原因，加密货币对支付方面的用处越来越小。
 
-中共病毒大流行对全球供应链造成了严重破坏。导致和加剧产品短缺、运输延误和价格上涨一系列问题。
+该公司当时指出，交易确认时间增加，导致失败率增加，费用也大幅增加。然而，**Stripe当时表示，它仍然对加密货币整体感到“非常乐观”，**尤其是像Lightning和其它可以实现更快支付的项目。它还引用了OmiseGO等其他开发项目，并表示还有许多基于以太坊的高潜力项目正在开发中。【注： *OmiseGO*是专门用于去中心化数字资产交易的PoS区块链。】
 
-（本文仅代表作者观点）
+现在，在多年来一直处于观望状态后，Stripe正在重新进入加密货币领域。
 
-参考链接：
-1. [亚马逊购买二手货机以解决美港口供应链瓶颈问题](https://www.msn.com/en-us/money/companies/amazon-is-reportedly-shopping-for-used-cargo-jets-that-can-fly-from-china-an-effort-that-would-help-the-company-side-step-major-port-delays/ar-AAPtUkq)2. [亚马逊购买二手货机以解决美港口供应链瓶颈问题](https://www.cnn.com/business/live-news/supply-chain-issues-biden-10-13-21/index.html)
-3. [亚马逊购买二手货机以解决美港口供应链瓶颈问题](https://www.msn.com/en-us/money/markets/the-global-supply-chain-nightmare-is-about-to-get-worse/ar-AAPqPA5)
+虽然一家市值950亿美元的公司再次涉足加密货币并没有什么坏处，但目前尚不清楚这一宣布对Stripe更广泛的企业战略有多大意义。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+也就是说，自 Stripe于2018年退出以来，加密支付市场已经升温。 **除了众多加密货币支付初创公司进入该领域，以及大型品牌和零售商的接受度提高之外，支付巨头PayPal最近几个月也采取了重大措施来拥抱加密货币。**
 
-新闻访谈终审：Ryan
-编辑/校对/审核：Hetangyuese
+2020年11月，PayPal宣布现在所有美国用户都可以在其平台上购买、持有和出售加密货币。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+在其他地方，加密货币交易所Binance已与电子商务巨头Shopify合作进行加密支付，而Coinbase一直在通过与PayPal、Apple Pay和Google Pay的整合。随着消费者采用率越来越高，使购买和使用加密货币变得更加容易。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Payments giant Stripe says its reentering the crypto market | TechCrunch](https://techcrunch.com/2021/10/13/payments-giant-stripe-says-its-re-entering-the-crypto-market/)
+
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
