@@ -2,9 +2,16 @@
 ---
 
 
-## 航空公司飞行员呼吁大众联合起来夺回医疗自由权
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1593428/)
+## 西媒头条 — 第87期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1593516/)
 
-10/12/2021 之前上传了反对疫苗强制令视频的飞行员肖恩·沃克接受了福克斯新闻的采访，他说自己宁愿失业也要维护自己的医疗自由，他呼吁医疗自由被剥夺的人们联合起来反击，因为航空业以外的所有行业都会被影响，没有人能逃过疫苗独裁。
+- **制作：蚂蚁兄弟**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1014.001.jpeg)
+
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
