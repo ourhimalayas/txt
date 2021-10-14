@@ -2,30 +2,128 @@
 ---
 
 
-## 中共神药骗局走向世界 连花清瘟新冠疗效又登科学杂志
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1593545/)
+## 希望不同肤色的人收到正确的信息并得到拯救
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1593616/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2473.png)
+[https://gtv.org/video/id=61671480d2e2b8174874c4da](https://gtv.org/video/id=61671480d2e2b8174874c4da)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/中共神药骗局走向世界1.jpg)[图片来源](http://news.cctv.com/special/jujiao/2016/543/index.shtml)
+今天我们再说回到疫苗的时候
+Hoy cuando tocamos de nuevo con el tema de las vacunas
 
-据“金融界”10月12日报道，中共国内20余家医院共同参与的“中药连花清瘟胶囊治疗新型冠状病毒肺炎前瞻性、随机、对照、多中心临床研究”结果发表于国际植物医学领域有影响的杂志《植物医学》（《Phytomedicine》，影响因子4.18）。该论文的发表在欧洲引起了广泛关注。
+你能想到
+Puedes pensar
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/中共神药骗局走向世界2.jpg)
+所有人都想着自己活下去
+Todas las personas piensan en seguir viviendo
 
-报道称，该研究采用前瞻性、非盲法、随机对照、多中心研究方法，评价在常规治疗基础上，加用连花清瘟胶囊是否能使患者获得更佳的临床疗效。本研究试验数据经过专业第三方统计分析，结果显示连花清瘟治疗组治疗14天后，明显提高主要临床症状（发热、乏力、咳嗽）消失率，治疗7天达到57.7%，治疗10天达到80.3%，治疗14天达到91.5%。发热、乏力、咳嗽单项症状持续的时间也明显缩短，同时连花清瘟治疗组明显改善肺部CT影像学特征，提高临床治愈率。
+自己得了病, 然后没事
+No pasa nada a pesar que estoy enfermo
 
-报道还称，自新冠疫情发生以来，连花清瘟治疗新冠肺炎的相关研究证据与案例频繁刊登于各国主流媒体和社交网站，受到了国际各界人士的高度评价。发表于《植物医学》的这一研究是全球范围内针对中医药治疗新冠肺炎的首个随机对照临床研究，被认为是该研究领域的里程碑，引起欧洲医学界的广泛关注，为国内外应用连花清瘟治疗新冠肺炎提供了可靠临床依据。
+有多少人真心想过
+Cuántas personas han pensado de corazón
 
-众所周知，连花清瘟治疗中共病毒就是中共制造的一个彻头彻尾的骗局。中共通过花钱或者各种形式的利益输送来获取连花清瘟亮相国际科学杂志，本质上还是中共大外宣“挟洋自重”的那一套，靠洋人来证明其有效性，最终目的还是忽悠墙内的普通老百姓。
+让中国人甚至全世界人
+Que los chinos, incluso todas las personas del mundo
 
-信息来源：
+不要让疫苗给害死
+No sean asesinados por la vacuna
 
-[连花清瘟治疗新冠肺炎的有效性在欧洲引发关注-手机金融界](http://stock.jrj.com.cn/2021/10/12173233680029.shtml)
+多少人醒来丈夫死在床上
+Cuántas personas han despertado con su esposo muerto en la cama
 
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
+多少人醒来孩子死在床上
+Cuántas personas han despertado con su hijo muerto en la cama
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
+多少人醒来老婆死在床上, 家人死在床上
+Cuántas personas han despertado con su esposa muerta en la cama
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+多少人突然间倒地
+Cuántas personas se han desmayado de repente
+
+你看有多少人
+Mire cuántas personas
+
+有多少人内心为别人想的
+Cuántas personas piensan por los demás
+我可以毫不惭愧地说
+Puedo decirles sin vergüenza
+
+兄弟姊妹们
+Hermanos y hermanas
+
+我真的希望没有种族没有肤色的
+Realmente espero que no importa la raza o el color de la piel
+
+收到我们的信息, 正确地拯救
+Puedan recibir nuestros mensajes y que sean correctamente rescatados
+
+全世界少一点人被疫苗给弄死
+Menos personas de este mundo sean muertos por la vacuna
+
+太惨了
+Esto es horrible
+
+我可以告诉大家
+Les puedo decir a todos
+
+我知道的多少信息
+Todas las informaciones que tengo
+
+很多人打成忧郁症
+A muchas personas les ha dado depresión después de vacunarse
+
+说我这是等着死呢
+Lo que hacen es esperar la muerte
+
+现在像国内的很多朋友, 原来对咱半信半疑的
+Muchos amigos de China sospechaban de nosotros
+
+现在说七哥
+Y ahora me dicen
+
+我们怎么能把这弄掉
+Cómo hacemos para desquitarnos de esto
+
+我都睡不好觉了
+Ya no puedo dormir bien
+
+啥时候死都不知道
+No sé en qué momento voy a morir
+
+他说我都准备好遗书了
+Él dice que ya tengo preparado la nota de suicidio
+
+我真的跟他们建议
+Y yo realmente les sugerí
+
+如果你真打了三针以上
+Si te vacunaste más de tres dosis
+
+你就准备好遗书
+Entonces prepare la nota de suicidio
+
+你最起码有50%的机率
+Al menos tienes el 50% de probabilidad
+
+未来三五年内会嗝屁
+De que te mueras en los próximos tres a cinco años
+
+* * *
+
+日期：10/13/2021
+原视频标题：希望不同肤色的人收到正确的信息并得到拯救
+Espero que las personas de diferentes colores de piel reciban la información correcta y sean rescatadas
+原视频日期：10/07/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1446018877662531588?s=24](https://twitter.com/se1y7cblljselva/status/1446018877662531588?s=24)
+任务编号：KC170（2473）
+视频时间段：0:00-1:14
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

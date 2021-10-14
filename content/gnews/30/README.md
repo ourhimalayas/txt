@@ -2,127 +2,41 @@
 ---
 
 
-## 希望不同肤色的人收到正确的信息并得到拯救
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1593616/)
+## 报告指出：供应链危机对美国经济的损害将持续到2023年
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1593647/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2473.png)
-[https://gtv.org/video/id=61671480d2e2b8174874c4da](https://gtv.org/video/id=61671480d2e2b8174874c4da)
+据《布雷巴特新闻网》作者：WENDELL HUSEBØ，2021年10月12日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-247.png)图片来源：《布雷巴特新闻网》
+市场研究机构Coresight Research创始人兼首席执行官黛博拉·温斯维格(Deborah Weinswig)周二告诉雅虎财经直播，供应链危机将持续到整个2022年和2023年。
 
-今天我们再说回到疫苗的时候
-Hoy cuando tocamos de nuevo con el tema de las vacunas
+“让我们来看看数学题。一个集装箱从亚太地区运到美国需要14天，运回来需要40天。”温斯维格说，“而我们现在有一个完整的集装箱错位。因此，在我们看来，这就是80天 —— 我们可能要在2023年第一季度才能看到所有这些集装箱回来并重新对齐。”
 
-你能想到
-Puedes pensar
+东海岸和西海岸的港口的航运集装箱已经积压了几个月了。在萨凡纳港，有8000个航运集装箱滞留在港口 —— 比正常情况下整整多了50%。英国广播公司（BBC）在9月报道，有65艘货船在洛杉矶港等待停靠。然而，洛杉矶港已经堆满了集装箱，它们正在等待卡车司机来接货。
 
-所有人都想着自己活下去
-Todas las personas piensan en seguir viviendo
+温斯维格告诉雅虎新闻，即使卡车司机可以在港口腾出集装箱空间，仓库也不一定有空间接收这些集装箱。
 
-自己得了病, 然后没事
-No pasa nada a pesar que estoy enfermo
+她说：“配送中心和仓库的周转率约为400%，我们有一些……真正的担忧。”她谈到了物品在供应链中的运输时间。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2525.png)2021年5月12日，在佛罗里达州彭布罗克松的一家家得宝商店，一名顾客在家电部。图片来源：盖蒂/Joe Raedle
+根据物流经理人指数（Logistics Managers’ Index）和高纬环球（Cushman & Wakefield）的数据，仓库也非常饱满，可用空间稀少。这两家公司告诉《金融时报》，如果有空闲的地方，空间的价格往往是溢价的。
 
-有多少人真心想过
-Cuántas personas han pensado de corazón
+“这不仅仅是一个假期的挑战 —— 它很严重，可能是我见过的最糟糕的挑战。”温斯维格说，“我认为这种情况会持续下去。而这正是我们将看到创新和创造新的就业机会的地方，但我们现在仍然非常短缺。”
 
-让中国人甚至全世界人
-Que los chinos, incluso todas las personas del mundo
+劳动力非常宝贵。据说Old Dominion货运公司将雇用任何有或没有经验的司机。Old Dominion公司的迈克尔·德宁（Michael Deneen）告诉KHQ，由于卡车司机可能从民主党控制的州收到失业支票，这种大流行病使得雇用卡车司机更加困难。
 
-不要让疫苗给害死
-No sean asesinados por la vacuna
+“圣诞节将至，今年将受到很大的影响，不仅是卡车运输，整个物流网络都会受到影响。”德宁解释说，“所以早点买，我们努力摆脱影响，但现在要经历几年这样的新常态。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-248.png)2021年9月28日，在加利福尼亚州洛杉矶，人们看到堆积如山的集装箱在洛杉矶港。图片来源：法新社/Frederic J. Brown
+这场危机也抬高了消费者的消费价格。
 
-多少人醒来丈夫死在床上
-Cuántas personas han despertado con su esposo muerto en la cama
+穆迪公司的一位经济学家周五告诉《纽约邮报》，通货膨胀正在使美国工人和家庭每月多花175美元。《纽约邮报》报道了马克·赞迪的调查结果：“对于年收入约为7万美元的美国中位数家庭来说，目前的通货膨胀率迫使他们每月在食品、燃料和住房方面再多花费175美元。”
 
-多少人醒来孩子死在床上
-Cuántas personas han despertado con su hijo muerto en la cama
+但是，价格上涨也在伤害着小企业。NFIB首席经济学家比尔·邓克尔伯格解释说，“小企业主正在尽力满足客户的需求，但无法雇佣工人或收到所需的供应品和存货。”根据全国独立企业联合会的乐观指数，大约35%的小企业主透露，供应链中断对他们的企业产生了很大的负面影响。
 
-多少人醒来老婆死在床上, 家人死在床上
-Cuántas personas han despertado con su esposa muerta en la cama
+另有32%的人认为供应链中断对他们的企业产生了适度的影响，只有21%的人认为他们受到了轻微的影响，10%的小企业主表示完全没有影响。
 
-多少人突然间倒地
-Cuántas personas se han desmayado de repente
+原文连接：[https://www.breitbart.com/economy/2021/10/12/report-supply-chain-crisis-will-damage-u-s-economy-until-2023/](https://www.breitbart.com/economy/2021/10/12/report-supply-chain-crisis-will-damage-u-s-economy-until-2023/)
 
-你看有多少人
-Mire cuántas personas
-
-有多少人内心为别人想的
-Cuántas personas piensan por los demás
-我可以毫不惭愧地说
-Puedo decirles sin vergüenza
-
-兄弟姊妹们
-Hermanos y hermanas
-
-我真的希望没有种族没有肤色的
-Realmente espero que no importa la raza o el color de la piel
-
-收到我们的信息, 正确地拯救
-Puedan recibir nuestros mensajes y que sean correctamente rescatados
-
-全世界少一点人被疫苗给弄死
-Menos personas de este mundo sean muertos por la vacuna
-
-太惨了
-Esto es horrible
-
-我可以告诉大家
-Les puedo decir a todos
-
-我知道的多少信息
-Todas las informaciones que tengo
-
-很多人打成忧郁症
-A muchas personas les ha dado depresión después de vacunarse
-
-说我这是等着死呢
-Lo que hacen es esperar la muerte
-
-现在像国内的很多朋友, 原来对咱半信半疑的
-Muchos amigos de China sospechaban de nosotros
-
-现在说七哥
-Y ahora me dicen
-
-我们怎么能把这弄掉
-Cómo hacemos para desquitarnos de esto
-
-我都睡不好觉了
-Ya no puedo dormir bien
-
-啥时候死都不知道
-No sé en qué momento voy a morir
-
-他说我都准备好遗书了
-Él dice que ya tengo preparado la nota de suicidio
-
-我真的跟他们建议
-Y yo realmente les sugerí
-
-如果你真打了三针以上
-Si te vacunaste más de tres dosis
-
-你就准备好遗书
-Entonces prepare la nota de suicidio
-
-你最起码有50%的机率
-Al menos tienes el 50% de probabilidad
-
-未来三五年内会嗝屁
-De que te mueras en los próximos tres a cinco años
-
-* * *
-
-日期：10/13/2021
-原视频标题：希望不同肤色的人收到正确的信息并得到拯救
-Espero que las personas de diferentes colores de piel reciban la información correcta y sean rescatadas
-原视频日期：10/07/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1446018877662531588?s=24](https://twitter.com/se1y7cblljselva/status/1446018877662531588?s=24)
-任务编号：KC170（2473）
-视频时间段：0:00-1:14
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
+翻译：洛杉矶盘古农场 – TrueSky
+校对/编辑：洛杉矶盘古农场 – 明子
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

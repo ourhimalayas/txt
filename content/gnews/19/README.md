@@ -2,26 +2,36 @@
 ---
 
 
-## 疫苗接种人群的免疫能力正在以每周5%的速度退化，将摧毁整个医疗系统
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1593685/)
+## 中共干预神户日台交流峰会，议员表示：绝不屈服
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593745/)
 
-撰稿：Runaway
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4dbf3c9c-0528-4ba6-91e4-29fbec0523a8-AP21034697420609-scaled.jpg)网络图片
-最新的英国公共健康部COVID疫苗监测报告显示，与未接种疫苗的人相比，接种两针疫苗人群的免疫能力正在以每周5%左右的速度退化（介于2.7%和8.7%之间）。如果这种情况持续下去，那么30-50岁人群的免疫能力将在圣诞节前100%退化，届时病毒防御能力将为零。而所有30岁以上的人都将在明年3月之前失去免疫能力。
+作者：云豹
 
-以下连续4周的监测数据清楚地显示了疫苗对免疫系统反应造成的渐进性损害，与未接种疫苗的人相比，两针疫苗接种者的免疫能力每周下降程度如下：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-76-1.png)THEEXPOSE
-每个30岁以上的接种者都将在6个月内失去全部免疫能力（针对病毒和某些癌症），随之而来的是，这些完全失去免疫能力的人群将摧毁整个国家的医疗系统。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-以上数据表明，疫苗不仅会随着时间的推移失去有效率，它们甚至还会逐渐损害免疫系统，直到实现负效率。他们目前让30岁以上的人处于比接种疫苗之前更糟糕的境地。
 
-更多信息请参见[英国政府报告证明Covid-19疫苗有效率为-66%](https://gnews.org/zh-hans/1591084/)
 
-（文章仅代表作者观点，与Gnews无关）
+神户市议员 上畠(tián)宽弘 13日在推特中发文表示，在神户市议会69位议员，无异议通过“支持台湾以观察员身分参与10月下旬在神户举行的「WHO西太平洋地区委员会」”后，神户市接到中共总领事馆政治部主任的电话抗议，甚至要求停办预定11月12日在神户市举办的第7届日台交流高峰会。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1014-AM-（3-5）.001.jpeg)
+身为提案人和本届日台交流高峰会执行委员会秘书长的神户市议员上畠愤慨表示：「日台情谊不灭，绝不向中共屈服！」
 
-发布：Runaway
+神户市议会在10月7日通过意见书，建议日本政府采取措施让台湾以观察员身分参与「WHO西太平洋地区委员会」。 主要理由是台湾是航路、金融、观光枢纽，从台湾入出境或过境的旅客高达6900万人，若台湾无法参与WHO等国际组织，势必会产生地理上的空白，对日本、台湾，甚至全世界民众的健康恐构成威胁。
 
-参考链接：[A comparison of official Government reports suggest the Fully Vaccinated are developing Acquired Immunodeficiency Syndrome](https://theexpose.uk/2021/10/10/comparison-reports-proves-vaccinated-developing-ade/)
+本月25日至29日，WHO预计在日本兵库县姬路市举行其第72届西太平洋地区委员会，共有37个西太平洋国家和地区参加，日本为本次大会主办国。
+(本文仅代表作者观点)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+参考链接：[中國干預神戶市辦日台交流峰會 日議員：絕不屈服](https://www.cna.com.tw/news/firstnews/202110140003.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：FoxRina
+编辑/校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

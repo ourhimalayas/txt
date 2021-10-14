@@ -2,29 +2,34 @@
 ---
 
 
-## 持BNO护照港人移民英国重启新生
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593740/)
+## 美国陆军部长称中共威胁全球第一
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593759/)
 
 作者：在远方
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-今年1月底，英国政府开放海外护照（BNO）签证申请，为持有BNO的港人提供移民及入籍英国途径，上半年已经接到近六万五千份申请。英国港侨协会调查显示，这些新移民中有近七成具有大学或以上高学历，目前有三分之一受访者移居英国后，已经找到了收入稳定的工作。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1014AM（1、2、6、7）視頻備用.002.jpeg)
-香港抗争运动两年多来，中共对港人进行了残酷镇压，被中共杀害和强迫失踪的港人多达两万多人，白色恐怖高压下的港人纷纷想方设法举家逃离香港。2020年7月1日，英国政府认定中共国政府实施《港区国安法》严重违反《中英联合声明》，宣布自2021年1月起，符合申请BNO的香港人及家属，将可在英国居住、读书或工作5年，之后可申请无限期居留，再居住12个月后即可登记成为英国公民。
 
-尽管港共政府一再拒绝承认出现移民潮并对移民港人冷嘲热讽，却仍然改变不了追求自由民主的香港人用脚投票的事实。
+
+在美国陆军协会11日年会上，陆军部长克里斯汀·沃穆思表示，当前美国面临一系列来自独裁国家和恐怖组织的挑战，例如俄罗斯、朝鲜、伊朗和伊斯兰国，但最为突出的第一威胁是中共。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1014-AM-（3-5）.003.jpeg)
+随着美国中东反恐战告一段落，和在阿富汗的全面撤军，面对中共亚太地区军事扩张，及国内疫情真相追责和大选干涉调查，美军已经把全球防务战略重点转向遏制和威慑中共。
+
+沃穆思称中共一直在学习过去美国的战斗经验，同时具备了先进的太空、网络和信息战能力。在这些高端战场上，美军尚未充分考虑到所有的挑战，守旧的想法已成为阻碍进展的强大障碍。
+
+全球安全格局挑战着现代美国和西方国家，这些威胁包括网络、极端暴力主义和共产主义数十年的渗透。俄罗斯和中共的联合，增加了邪恶势力对民主的破坏性，中共已上升为世界头号威胁。沃穆思警告说，美国需要准备应对中共与俄罗斯对美国本土的直接攻击。
 (本文仅代表作者观点)
 
 参考链接：
 
-1. [新移英港人调查：普遍学历高、经济稳定 逾三成已就业](https://www.rfa.org/mandarin/yataibaodao/gangtai/al-10122021092343.html)
-2. [英國國民（海外）護照](https://zh.wikipedia.org/wiki/英國國民（海外）護照)
+1. [美陆军部长：中国是美国第一威胁 陆军年会展示最新武器装备](https://www.voachinese.com/a/us-army-weapons-show-20211013/6270103.html)
+2. [Christine Wormuth](https://chinaus-icas.org/biden-administration-international-affairs-personnel-tracker/biden-personnel-tracker-defense-and-security/christine-wormuth-secretary-of-the-army/)
+3. [AUSA NEWS: Wormuth Insists Army Has Role to Play in Indo-Pacific](https://www.nationaldefensemagazine.org/articles/2021/10/11/wormuth-defends-army-modernization-costs)
 
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-新闻访谈终审：文龙
+新闻访谈终审：暗黑
 编辑/校正/发稿：我不在这里
 
 **更多资讯，更多关注**

@@ -2,42 +2,31 @@
 ---
 
 
-## 报告指出：供应链危机对美国经济的损害将持续到2023年
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1593647/)
+## 澳洲女博士签发600份“医疗豁免”证书
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1593682/)
 
-据《布雷巴特新闻网》作者：WENDELL HUSEBØ，2021年10月12日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-247.png)图片来源：《布雷巴特新闻网》
-市场研究机构Coresight Research创始人兼首席执行官黛博拉·温斯维格(Deborah Weinswig)周二告诉雅虎财经直播，供应链危机将持续到整个2022年和2023年。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/09View-illo-superJumbo.jpg)图片来源：NY Times
+**整理报道：**翼族
 
-“让我们来看看数学题。一个集装箱从亚太地区运到美国需要14天，运回来需要40天。”温斯维格说，“而我们现在有一个完整的集装箱错位。因此，在我们看来，这就是80天 —— 我们可能要在2023年第一季度才能看到所有这些集装箱回来并重新对齐。”
+澳大利亚昆士兰警方称，一名假扮医生的妇女签发了600份中共病毒（COVID-19）“医疗豁免”的证书。
 
-东海岸和西海岸的港口的航运集装箱已经积压了几个月了。在萨凡纳港，有8000个航运集装箱滞留在港口 —— 比正常情况下整整多了50%。英国广播公司（BBC）在9月报道，有65艘货船在洛杉矶港等待停靠。然而，洛杉矶港已经堆满了集装箱，它们正在等待卡车司机来接货。
+周三，这名来自图文巴地区达令高地的45岁女子在她黄金海岸的一处住宅被捕，警方根据《国家保健从业者法》指控其五项罪名。
 
-温斯维格告诉雅虎新闻，即使卡车司机可以在港口腾出集装箱空间，仓库也不一定有空间接收这些集装箱。
+代理督察达米安·鲍威尔（Damien Powell）称，该名女子没有医学博士学位，也没有在澳大利亚注册为健康从业者。但警方表示，该女子拥有“研究博士学位”。
 
-她说：“配送中心和仓库的周转率约为400%，我们有一些……真正的担忧。”她谈到了物品在供应链中的运输时间。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2525.png)2021年5月12日，在佛罗里达州彭布罗克松的一家家得宝商店，一名顾客在家电部。图片来源：盖蒂/Joe Raedle
-根据物流经理人指数（Logistics Managers’ Index）和高纬环球（Cushman & Wakefield）的数据，仓库也非常饱满，可用空间稀少。这两家公司告诉《金融时报》，如果有空闲的地方，空间的价格往往是溢价的。
+代理督察鲍威尔说，警方正在努力追查购买证书的人，“到目前为止，我们能够确定的是，购买者来自澳大利亚各地。”
 
-“这不仅仅是一个假期的挑战 —— 它很严重，可能是我见过的最糟糕的挑战。”温斯维格说，“我认为这种情况会持续下去。而这正是我们将看到创新和创造新的就业机会的地方，但我们现在仍然非常短缺。”
+警方表示，该女子“不相信自己做错了什么”，并“有权”签发这些证书。
 
-劳动力非常宝贵。据说Old Dominion货运公司将雇用任何有或没有经验的司机。Old Dominion公司的迈克尔·德宁（Michael Deneen）告诉KHQ，由于卡车司机可能从民主党控制的州收到失业支票，这种大流行病使得雇用卡车司机更加困难。
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-“圣诞节将至，今年将受到很大的影响，不仅是卡车运输，整个物流网络都会受到影响。”德宁解释说，“所以早点买，我们努力摆脱影响，但现在要经历几年这样的新常态。”
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-248.png)2021年9月28日，在加利福尼亚州洛杉矶，人们看到堆积如山的集装箱在洛杉矶港。图片来源：法新社/Frederic J. Brown
-这场危机也抬高了消费者的消费价格。
+*编辑/发布：翼族*
 
-穆迪公司的一位经济学家周五告诉《纽约邮报》，通货膨胀正在使美国工人和家庭每月多花175美元。《纽约邮报》报道了马克·赞迪的调查结果：“对于年收入约为7万美元的美国中位数家庭来说，目前的通货膨胀率迫使他们每月在食品、燃料和住房方面再多花费175美元。”
+**参考链接：**[Woman who allegedly pretended to be a doctor and issued fake COVID exemptions ‘doesn’t believe she’s done anything wrong’](https://www.abc.net.au/news/2021-10-14/fake-doctor-alleged-false-covid-exemptions/100539676)
 
-但是，价格上涨也在伤害着小企业。NFIB首席经济学家比尔·邓克尔伯格解释说，“小企业主正在尽力满足客户的需求，但无法雇佣工人或收到所需的供应品和存货。”根据全国独立企业联合会的乐观指数，大约35%的小企业主透露，供应链中断对他们的企业产生了很大的负面影响。
-
-另有32%的人认为供应链中断对他们的企业产生了适度的影响，只有21%的人认为他们受到了轻微的影响，10%的小企业主表示完全没有影响。
-
-原文连接：[https://www.breitbart.com/economy/2021/10/12/report-supply-chain-crisis-will-damage-u-s-economy-until-2023/](https://www.breitbart.com/economy/2021/10/12/report-supply-chain-crisis-will-damage-u-s-economy-until-2023/)
-
-翻译：洛杉矶盘古农场 – TrueSky
-校对/编辑：洛杉矶盘古农场 – 明子
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

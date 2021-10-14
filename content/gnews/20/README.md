@@ -2,31 +2,36 @@
 ---
 
 
-## 澳洲女博士签发600份“医疗豁免”证书
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1593682/)
+## 持BNO护照港人移民英国重启新生
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593740/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/09View-illo-superJumbo.jpg)图片来源：NY Times
-**整理报道：**翼族
+作者：在远方
 
-澳大利亚昆士兰警方称，一名假扮医生的妇女签发了600份中共病毒（COVID-19）“医疗豁免”的证书。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-周三，这名来自图文巴地区达令高地的45岁女子在她黄金海岸的一处住宅被捕，警方根据《国家保健从业者法》指控其五项罪名。
+今年1月底，英国政府开放海外护照（BNO）签证申请，为持有BNO的港人提供移民及入籍英国途径，上半年已经接到近六万五千份申请。英国港侨协会调查显示，这些新移民中有近七成具有大学或以上高学历，目前有三分之一受访者移居英国后，已经找到了收入稳定的工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1014AM（1、2、6、7）視頻備用.002.jpeg)
+香港抗争运动两年多来，中共对港人进行了残酷镇压，被中共杀害和强迫失踪的港人多达两万多人，白色恐怖高压下的港人纷纷想方设法举家逃离香港。2020年7月1日，英国政府认定中共国政府实施《港区国安法》严重违反《中英联合声明》，宣布自2021年1月起，符合申请BNO的香港人及家属，将可在英国居住、读书或工作5年，之后可申请无限期居留，再居住12个月后即可登记成为英国公民。
 
-代理督察达米安·鲍威尔（Damien Powell）称，该名女子没有医学博士学位，也没有在澳大利亚注册为健康从业者。但警方表示，该女子拥有“研究博士学位”。
+尽管港共政府一再拒绝承认出现移民潮并对移民港人冷嘲热讽，却仍然改变不了追求自由民主的香港人用脚投票的事实。
+(本文仅代表作者观点)
 
-代理督察鲍威尔说，警方正在努力追查购买证书的人，“到目前为止，我们能够确定的是，购买者来自澳大利亚各地。”
+参考链接：
 
-警方表示，该女子“不相信自己做错了什么”，并“有权”签发这些证书。
+1. [新移英港人调查：普遍学历高、经济稳定 逾三成已就业](https://www.rfa.org/mandarin/yataibaodao/gangtai/al-10122021092343.html)
+2. [英國國民（海外）護照](https://zh.wikipedia.org/wiki/英國國民（海外）護照)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
 
-*编辑/发布：翼族*
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-**参考链接：**[Woman who allegedly pretended to be a doctor and issued fake COVID exemptions ‘doesn’t believe she’s done anything wrong’](https://www.abc.net.au/news/2021-10-14/fake-doctor-alleged-false-covid-exemptions/100539676)
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
