@@ -2,9 +2,9 @@
 ---
 
 
-## 真相工程暗访辉瑞承包商：所有中共病毒疫苗数据根本不可信
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1593181/)
+## 飞行员罢工导致西南航空在丹佛国际机场取消大量航班
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1593301/)
 
-10/12/2021 真相工程暗访辉瑞承包商-西佛罗里达临床研究所总裁Aydin Keskiner，他认为所有的中共病毒疫苗数据都根本不可信。
+10/11/2021 一名女子在视频中表示西南航空在丹佛国际机场取消了大量航班，并声称他们试图利用天气原因掩盖飞行员罢工的真相，但她对飞行员表示支持。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

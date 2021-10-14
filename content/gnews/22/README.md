@@ -2,40 +2,42 @@
 ---
 
 
-## 德州州长发布行政命令，禁止任何实体实施强制疫苗令
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1592976/)
+## 洛杉矶港口将24小时运作以解决航运严重堵塞问题
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1593017/)
 
-**据《dfw.cbslocal.com》 2021年10月11日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/azkwc-eydcd.jpg)
-德州奥斯汀（CBSDFW.COM）——州长格雷格-艾博特于10月11日星期一发布了一项行政命令，指出德州的任何实体都不能强迫任何个人接受COVID-19疫苗接种。
+翻译： 纽约香草山健身部 – Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国最大的港口之一洛杉矶港口，将开始每天24小时运作，以试图尽快处理滞留在外面的货船长龙。这是为了缓解可能导致今年圣诞节货物短缺的全球供应问题。
 
-根据该行政命令，这包括，任何出于个人良知、基于宗教信仰或医疗原因，包括之前从COVID-19中恢复并自然免疫等原因而反对接种这种疫苗的雇员或消费者。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/0-4.jpg)
 
-艾博特州长还向众议院首席秘书和参议院秘书发出信息，将此问题作为一个项目加入第三届特别会议议程。
+在附近的长滩港采取类似举措后，加州洛杉矶港将24小时运作，以便在夜间处理更多货物。
 
-**该行政命令将在类似立法通过后被撤销。**
+随着经济的解锁和消费者需求的回升，全球供应链已经被打乱。美国零售商急于补充库存，但是，亚洲主要港口和工厂的大规模停工，导致问题更加严重。加州港口积压的货船创下纪录。美国的主要海运门户，洛杉矶和长滩港受到了严重打击。8月份，洛杉矶不得不比平时处理多了30%的集装箱，而长滩则多了23%。9月的一天，创纪录的73艘船被迫在外面排队等候泊位。在Covid之前，每天有超过一艘船需要等待的情况并不常见。
 
-艾博特州长在一份声明中说：“COVID-19疫苗作为应对病毒的防御手段，但应该保持自愿性，绝不能强迫。”
+今年早些时候，拜登政府成立了一个供应链工作组，并任命了一名港口特使，以寻找解决问题的办法。洛杉矶港和长滩港现在都将提供更多夜班和周末时间，以便他们能够更快地卸货。周三，沃尔玛、UPS、联邦快递、三星、家得宝和塔吉特同意加强他们在港口的夜间作业，这应该有助于每周多清理3500个集装箱。
 
-德克萨斯州的多个学区不顾州长格雷格-艾博特（Greg Abbott）早先的禁令，强制要求戴口罩以防止COVID-19的传播。
-该州已对这些地区提起诉讼。
+拜登政府希望该计划也能释放供应链其他部分的能力，包括美国的高速公路、铁路和仓库。美国总统拜登周三会见了零售业老板和工会负责人，他说他计划对美国的港口进行历史上最大的投资，作为尚未通过参议院的10万亿美元（7.3亿英镑）基础设施法案的一部分。
 
-副州长丹-帕特里克在推特上表示，他赞同艾博特州长的新行政命令。
-他说：“我一直公开表示自己正在接种疫苗。但我一直说接种COVID疫苗是个人决定，不应该由国家或私人雇主强迫任何人。现在已经开始了，参议院将迅速采取行动，处理这个问题。”
-![](https://assets.gnews.org/wp-content/uploads/2021/10/cvc-1.png)
-行政命令宣布后不久，艾博特州长的2022年选举共和党初选中，唐-赫芬斯宣布胜利，“迫使格雷格-艾博特扭转（他）对疫苗授权的立场”。
+他对记者说：“我们的目标不仅是度过眼前的瓶颈，而且要解决这场大流行病所暴露的我们运输供应链中长期存在的缺陷。希望让美国公司更容易在本土制造产品。”拜登说：“我们再也不应该过分依赖世界上的一家公司或一个国家或一个人，特别是不认同我们价值观的国家。”
 
-德克萨斯州最近看到新的COVID-19病例和住院人数有所减少。
+参考链接：[LA port to open round the clock to tackle shipping queues](https://www.bbc.com/news/business-58901777)
 
-但是，最近由Delta变体引起的死亡人数激增，使该州自2020年大流行开始以来的总死亡人数迅速接近67000人。
+**本文代表作者观点**
 
-**原文连接：**[https://dfw.cbslocal.com/2021/10/11/gov-greg-abbott-executive-order-banning-vaccine-mandates-entity/](https://dfw.cbslocal.com/2021/10/11/gov-greg-abbott-executive-order-banning-vaccine-mandates-entity/)
+![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
 
-翻译：洛杉矶盘古农场- TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 柯镇恶
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+**校对/发稿：童谣**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
