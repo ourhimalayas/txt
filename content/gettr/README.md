@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/14/2021 11:05 PM (UTC)`
+
+10/14/2021 Miles Guo’s GETTR: The Whistleblowers’ Movement and the New Federal State of China have saved numerous people and let the world distinguish between the Chinese people and the CCP via our efforts to take down the CCP with the truth about the COVID vaccines and the antidote to the coronavirus. Behind our powerful force are countless fellow fighters who have been spreading the truth!<br/><br/>10/14/2021 文贵盖特：新中国联邦、爆料革命通过以(疫)苗灭共和解药灭共，拯救了无数人，使全世界把中国人和中共分开，我们强大的力量背后是无数战友们在传播真相！<br/>
+![img](https://media.gettr.com/group29/getter/2021/10/14/23/05/e8893ec8-d7e0-f77b-a7be-61cbddc4e96c/out.jpg)
+
+---
+
 `@miles 10/14/2021 4:18 PM (UTC)`
 
 10月14号：大好消息来了……
@@ -291,13 +298,6 @@ MILES GUO Live Stream 2021/10/11
 
 10/10/2021 Miles Guo: 90% of the audience at Xi Jinping’s speech marking the 1911 Revolution was fake; Xi declined to meet Biden and hasn’t met anyone for over a year due to his worsening health conditions. Whereas the worse his health conditions get, the more he wants to invade Taiwan!<br/><br/>10/10/2021 文贵直播: 习近平辛亥革命演讲的九成观众是假的；习拒绝见拜登和他一年多不见人是因为他身体不行了，而他身体越不行，越要打台湾！<br/>
 ![img](https://media.gettr.com/group16/getter/2021/10/11/05/15/d84081e1-2ac1-e2c3-fec3-9a5739fe53a4/out.jpg)
-
----
-
-`@miles 10/11/2021 1:51 AM (UTC)`
-
-10/10/2021 Miles Guo: Some Americans would rather let the CCP invade Taiwan in order to <br/>prevent the collapse of economy and obtain short-term political interests; Someone even privately promised the CCP to have the funds to extend the repayment of the maturing debts such that the CCP is allowed to borrow new loans to pay old debts; I have a bombshell that is big enough to send Bruno Wu, Jack Ma, ana Alvin Jiang to prison forever <br/><br/>10/10/2021 文贵直播: 有些美国人为了避免经济崩溃和获取短期政治利益，宁可让中共打台湾；有人竟私下向中共承诺，说可以让基金给到期的债务延期并允许其借新还旧；文贵有足以把吴征、马云和江志成永远送进监狱的大料儿<br/>
-![img](https://media.gettr.com/group28/getter/2021/10/11/01/d55b7685-da1d-22a0-aa83-58aeba70dc21/out.jpg)
 
 ---
 

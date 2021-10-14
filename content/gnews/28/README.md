@@ -2,8 +2,8 @@
 ---
 
 
-## 军方大主教支持宗教人士豁免接种疫苗
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1594370/)
+## 英国将为政府服务引入面部识别应用程序
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1594382/)
 
 作者：纽约香草山农场 – 四季
 
@@ -13,17 +13,17 @@
 
 
 
-据[布莱特巴特新闻网](https://www.breitbart.com/faith/2021/10/14/military-archbishop-supports-religious-exemptions-from-vaccine-mandates/)10月14日报道，美国军方天主教大主教蒂莫西-布罗格里奥本周表示，天主教军事人员可以以宗教理由拒绝接种强制的冠状病毒疫苗。
+据[布赖特巴特新闻网](https://www.breitbart.com/europe/2021/10/14/definitely-not-authoritarian-uk-to-use-facial-recognition-for-govt-services/)10月14日报道，英国政府在已引入冠状病毒疫苗护照应用软件后，还将为想要获得一系列公共服务的公民引入一款面部识别应用。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1217-1-Vaccine-1-640x480-1.jpeg)图片：Jon Cherry/Getty Images
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1220-1-GettyImages-913641954-640x480-1.png)图片来源：[metamorworks/Getty Images](https://www.gettyimages.co.uk/detail/photo/biometrics-concept-facial-recognition-system-iris-royalty-free-image/913641954?adppopup=true)
 
-他在一份声明中说：如果接种COVID-19疫苗会违反他或她神圣的良知，那么任何人都不应该被迫接种，并引用圣保罗六世的话，“公民有权不受阻碍地按照自己的良心生活”。
+这款名为gov.uk的全新应用程序预计将在明年年底推出，将使公民能够通过智能手机访问300多个政府服务。该应用程序将使用面部识别或指纹扫描来验证用户。
 
-布罗格里奥大主教指出，美国最高法院已经裁定，宗教信仰不需要被他人接受、不需要符合逻辑、一致或者被他人理解，即可得到第一修正案的保护。
+一个新的小组，即数字咨询委员会，预计也将被宣布，以监督政府不断扩大的虚拟设备。来自银行业的商业领袖，包括劳埃德银行集团（Lloyds Banking Group）和汇丰银行，以及欧洲公用事业公司（E.ON）也已经计划加入该委员会。
 
-他补充说，拒绝提供宗教便利，或对那些提出真诚的、基于良心的反对意见的人采取惩罚性或不利的人事行动，将违反联邦法律，在道德上应受到谴责。
+然而，人们对该系统提出了隐私方面的担忧，英国国民保健署（NHS）承认他们将在刑事调查中与警方分享此类信息，这导致人们对所谓的匿名应用程序的隐私感到担忧。
 
-近期披露的消息指证，疫苗是用来自堕胎的细胞系开发、测试和生产的，这些都涉及到了道德范畴。
+公民自由运动组织 “老大哥观察 “的负责人西尔克-卡罗星期二在上议院司法和内政委员会作证时说，在没有任何议会参与和几乎完全没有监管制度的情况下，数千万英国人已经在不知情的情况下受到了面部识别扫描。
 
 （本文仅代表作者观点）
 
