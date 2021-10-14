@@ -2,31 +2,30 @@
 ---
 
 
-## 澳洲女博士签发600份“医疗豁免”证书
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1593682/)
+## 拒做政治花瓶，民主党不参选香港立法会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593717/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/09View-illo-superJumbo.jpg)图片来源：NY Times
-**整理报道：**翼族
+作者：七哩香
 
-澳大利亚昆士兰警方称，一名假扮医生的妇女签发了600份中共病毒（COVID-19）“医疗豁免”的证书。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-周三，这名来自图文巴地区达令高地的45岁女子在她黄金海岸的一处住宅被捕，警方根据《国家保健从业者法》指控其五项罪名。
+10月12日，作为香港民主派最大政党的民主党公布，立法会选举的党内甄选提名期截止，没有党员报名参选。此举意味着民主党不会参加12月19日举行的香港立法会选举，这是民主党首次不参选立法会。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1014AM（1、2、6、7）視頻備用.001.jpeg)
+继2020年实施港区国安法后，中共大幅修改选举制度，取消民主派议员资格，解散公民组织，逮捕民主派人士，已完全操控了香港的政治。民主派和香港民众已看清中共的邪恶意图，不惧中共以“触犯国安法”威胁、不配合中共搞选秀、不当中共的政治花瓶。
+(本文仅代表作者观点)
 
-代理督察达米安·鲍威尔（Damien Powell）称，该名女子没有医学博士学位，也没有在澳大利亚注册为健康从业者。但警方表示，该女子拥有“研究博士学位”。
+参考链接：[香港民主党新选制下不参选立法会 民调指53%民主派支持者反对参选](https://www.voachinese.com/a/hk-reactions-to-democratic-party-won-t-contest-upcoming-legco-elections-20211013/6269251.html)
 
-代理督察鲍威尔说，警方正在努力追查购买证书的人，“到目前为止，我们能够确定的是，购买者来自澳大利亚各地。”
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-警方表示，该女子“不相信自己做错了什么”，并“有权”签发这些证书。
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-*编辑/发布：翼族*
-
-**参考链接：**[Woman who allegedly pretended to be a doctor and issued fake COVID exemptions ‘doesn’t believe she’s done anything wrong’](https://www.abc.net.au/news/2021-10-14/fake-doctor-alleged-false-covid-exemptions/100539676)
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

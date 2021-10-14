@@ -2,41 +2,61 @@
 ---
 
 
-## 美国陆军部长称中共威胁全球第一
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593759/)
+## 独家：干了十天总理就宣布解散议会，岸田文雄为何如此饥不择食？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1593783/)
 
-作者：在远方
+#### 撰稿：东京樱花团/华夏小哥
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-80.jpg)（图片来源于本文）
+10月14日日本当地时间下午1点，众议院议长大岛理森在国会大厅接过加盖了天皇玉玺和首相签名的解散诏书，宣布：“根据日本国宪法第七条，解散众议院。”
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+靴子终于落下来了，今天开始日本的政客们就开始17天的大选之路，政党的重要人物将会进行电视辩论，街头演讲以寻求尽可能多的选民支持。
 
+这次解散议会创造了二战后日本宪政史上的三个“最”。
 
+第一个“最”是新首相上任10天就宣布解散议会，是日本二战后最短的时间。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-45.jpg)
+第二个“最”是日本议会宣布解散议会到开票日的时间最短，只有17天。这虽然满足公职选举法所规定的众议院的最短选举准备期间（12天）。但是跟其他人相比还是相差甚多。据记载上一次的最短准备期间是1983年的中曾根康弘内阁的20天。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-44.jpg)
+第三个“最”是这次开票日（10月31日）竟然是“最”不吉祥的“佛灭”日。
 
-在美国陆军协会11日年会上，陆军部长克里斯汀·沃穆思表示，当前美国面临一系列来自独裁国家和恐怖组织的挑战，例如俄罗斯、朝鲜、伊朗和伊斯兰国，但最为突出的第一威胁是中共。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1014-AM-（3-5）.003.jpeg)
-随着美国中东反恐战告一段落，和在阿富汗的全面撤军，面对中共亚太地区军事扩张，及国内疫情真相追责和大选干涉调查，美军已经把全球防务战略重点转向遏制和威慑中共。
+日本是一个非常讲究的国家，众议院总选举是一个政权最重要的事件，不管怎样也要选一个好日子，好缘起才好。
 
-沃穆思称中共一直在学习过去美国的战斗经验，同时具备了先进的太空、网络和信息战能力。在这些高端战场上，美军尚未充分考虑到所有的挑战，守旧的想法已成为阻碍进展的强大障碍。
+- 日本的日历也有黄道吉日，简单的说最好的是“大安”，最不吉利的就是“佛灭”。
 
-全球安全格局挑战着现代美国和西方国家，这些威胁包括网络、极端暴力主义和共产主义数十年的渗透。俄罗斯和中共的联合，增加了邪恶势力对民主的破坏性，中共已上升为世界头号威胁。沃穆思警告说，美国需要准备应对中共与俄罗斯对美国本土的直接攻击。
-(本文仅代表作者观点)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-7.png)
+那么为何岸田如此猴急，如此饥不择食呢？
 
-参考链接：
+表面上岸田说是为了防止第6波新冠病毒疫情的再来，趁现在疫情稍微有些控制，抓紧时间举行选举，选举以后新内阁尽快在通过预算，对中小企业的补助法案等，挽救岌岌可危的经济。
 
-1. [美陆军部长：中国是美国第一威胁 陆军年会展示最新武器装备](https://www.voachinese.com/a/us-army-weapons-show-20211013/6270103.html)
-2. [Christine Wormuth](https://chinaus-icas.org/biden-administration-international-affairs-personnel-tracker/biden-personnel-tracker-defense-and-security/christine-wormuth-secretary-of-the-army/)
-3. [AUSA NEWS: Wormuth Insists Army Has Role to Play in Indo-Pacific](https://www.nationaldefensemagazine.org/articles/2021/10/11/wormuth-defends-army-modernization-costs)
+笔者认为这个说法当然站不住脚，真要通过预算的话，可以延长现在的临时国会的期限，最起码可以延长四周，足够通过预算，可以马上对国民以及中小企业进行补助。
 
+所以笔者认为真实原因如下：
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+1、刚刚上台的岸田的支持率是最近几位总理上台以来的最低支持率，所谓夜长梦多，目前的政局瞬息万变，岸田怕时间拖得越久自己的老底就暴露的越多，趁着很多负面信息还没有出来之前，赶紧选举，为自己也为自民党续命4年。
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：我不在这里
+2、在野党已经磨刀霍霍，10月13日最大在野党立宪民主党以及社民党宣布了竞选策略，在竞选期间各党派之间大家一定要进行3次以上的辩论，时间越长论战的破绽越多，故意压缩时间，规避风险。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+3、东京市长小池百合子已经成立了新的国家政党，并且在举办国奥运会以后，她自己作为东京市长的政治遗产已经完结，小池想要成为日本首位女性首相的野心促使她随时准备发起进攻。小池百合子是当今日本政坛的选举天才，4年一度的众议院大选她怎么舍得错过。（详情请参考笔者前几天发表的文章）
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+选举对于政治家来说就是战争，想要获胜当然就要出奇兵、出快兵。在这方面前总理安倍晋三可以说是艺术大师。他在14年和17年的两次突然解散议会选举、确保了自民党持续至今的长达8年的政权。
+
+另外，笔者也独家渠道获悉，早在去年年底的时候安倍晋三就建议菅义伟在2020年12月份左右解散议会举行大选，但由于菅义伟的优柔寡断错失了良机。2021年的国际国内形势瞬息万变，已经没有主动解散议会进行布局的机会了，也迫使菅义伟在上个月不得已退出了自民党总裁的角逐。
+
+前车之鉴不得不防，看来岸田文雄也不想重蹈覆辙，这次采用速战速决的方式据说就有安倍晋三的背后影响。也可以说是饥不择食，政客嘛只要能够抓住权力也就顾不得什么脸面不脸面了。
+
+从今天开始可以说、岸田文雄真正的考验才刚刚开始，至于选举结果让我们拭目以待。
+
+参考资料：
+
+1、 [选举的基础知识](http://yamamototaku.jp/article/senkyo_kiso/)
+2、 [日本日历的黄道吉日](https://www.sgcalendar.co.jp/calendar/calendar04/)
+3、[衆議院選挙2021](https://www.nhk.or.jp/senkyo/database/shugiin/2021/)
+4、[独家：日本政局新增变数！东京市长成立新党欲参选总理](https://gnews.org/zh-hans/1569039/)
+5、 [衆議院議員総選挙一覧表](https://www.shugiin.go.jp/internet/itdb_annai.nsf/html/statics/shiryo/senkyolist.htm)
+6、[最短解散、こだわった「鮮度」＝安倍氏側近進言か【２１衆院選】](https://www.jiji.com/amp/article?k=2021101400807&amp;g=pol)
+
+(文章仅代表作者本人观点，与GNEWS无关)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

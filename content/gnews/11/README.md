@@ -2,36 +2,21 @@
 ---
 
 
-## 中共干预神户日台交流峰会，议员表示：绝不屈服
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593745/)
+## 中共国储备煤炭可用15天，然后呢？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1593758/)
 
-作者：云豹
+#### 撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-67.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2021%252F1011%252F215de3daj00r0scah001ac000hs00a0c.jpg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FGM0TFEHP053722D4.html&amp;tbnid=ycSc91dmJFEnBM&amp;vet=12ahUKEwjs6fq58cnzAhWTfHAKHQW-ByEQMygDegQIARAX..i&amp;docid=c3t2yvuYvM5D5M&amp;w=640&amp;h=360&amp;q=%E7%87%83%E7%85%A4%E7%B4%A7%E7%BC%BA&amp;ved=2ahUKEwjs6fq58cnzAhWTfHAKHQW-ByEQMygDegQIARAX)
+10月14日北京日报报道，国家能源局副局长余兵介绍，今冬明春确实面临比较大的电力、热力保供压力。我们坚决贯彻党中央、国务院的决策部署，经过前一阶段的工作，在各方努力下，10月份以来，全国电力供需紧张形势已经有所缓解。10月11日，全国日发电量207亿千瓦时，当月累计发电量2285亿千瓦时，同比增长10.8%。截至目前，年累计发电量已经达到62749亿千瓦时，同比增长13.1%。应该说，这个增长量还是比较大的。全国统调电煤库存8199万吨，目前可用天数是15天。10月11日全国合计有序用电电力4842万千瓦，有序用电量已经比9月份最高峰有所下降。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2020年2月份，国家能源局给出的信息，全国统调电厂煤炭库存1.19亿吨全国可用27天，如今北方正值入冬季节，而库存8199万吨，可用天数是15天，在产煤大省山西水灾和国际进口煤炭紧缺的情况下，用完了储备煤炭15天以后怎么办呢？中共国政府部门没有给答案，在没有新的能源解决当前需求，民生和工业将回归原始。
 
+消息来源：
 
+[国家能源局：全国统调电煤库存8199万吨，可用15天](https://mr.mbd.baidu.com/r/uHmLSfSo5G?f=cp&amp;rs=1744892720&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=a4d512ff598b8162)
 
-神户市议员 上畠(tián)宽弘 13日在推特中发文表示，在神户市议会69位议员，无异议通过“支持台湾以观察员身分参与10月下旬在神户举行的「WHO西太平洋地区委员会」”后，神户市接到中共总领事馆政治部主任的电话抗议，甚至要求停办预定11月12日在神户市举办的第7届日台交流高峰会。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1014-AM-（3-5）.001.jpeg)
-身为提案人和本届日台交流高峰会执行委员会秘书长的神户市议员上畠愤慨表示：「日台情谊不灭，绝不向中共屈服！」
+(文章仅代表作者本人观点，与GNEWS无关)
 
-神户市议会在10月7日通过意见书，建议日本政府采取措施让台湾以观察员身分参与「WHO西太平洋地区委员会」。 主要理由是台湾是航路、金融、观光枢纽，从台湾入出境或过境的旅客高达6900万人，若台湾无法参与WHO等国际组织，势必会产生地理上的空白，对日本、台湾，甚至全世界民众的健康恐构成威胁。
-
-本月25日至29日，WHO预计在日本兵库县姬路市举行其第72届西太平洋地区委员会，共有37个西太平洋国家和地区参加，日本为本次大会主办国。
-(本文仅代表作者观点)
-
-参考链接：[中國干預神戶市辦日台交流峰會 日議員：絕不屈服](https://www.cna.com.tw/news/firstnews/202110140003.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：FoxRina
-编辑/校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
