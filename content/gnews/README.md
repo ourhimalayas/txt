@@ -15,59 +15,59 @@
 
 ---
 
-### [中共国动力煤价格涨至新高 煤炭电力股大跌](/content/gnews/1/README.md)
+### [加拿大安大略省的疫苗接种证明要求可能成为企业的自愿行为，不再强制](/content/gnews/1/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [中共国动力煤价格涨至新高 煤炭电力股大跌](/content/gnews/2/README.md)
  ` 日本东京方舟农场`
 
-### [日本制铁公司起诉中共宝钢侵权](/content/gnews/2/README.md)
+### [日本制铁公司起诉中共宝钢侵权](/content/gnews/3/README.md)
  ` 日本东京方舟农场`
 
-### [新冠疫苗破坏了免疫系统，造成突破性感染](/content/gnews/3/README.md)
+### [新冠疫苗破坏了免疫系统，造成突破性感染](/content/gnews/4/README.md)
  ` 日本东京方舟农场`
 
-### [日本自民党竞选宣言：终结疫情、对抗中共](/content/gnews/4/README.md)
+### [日本自民党竞选宣言：终结疫情、对抗中共](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [樱花灭共段子之长津湖冰雕连之思、逻辑课堂之蛋生和怪胎](/content/gnews/5/README.md)
+### [樱花灭共段子之长津湖冰雕连之思、逻辑课堂之蛋生和怪胎](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [哈佛大学弃“共”择“台”，“北京书院”更名“台北书院”](/content/gnews/6/README.md)
+### [哈佛大学弃“共”择“台”，“北京书院”更名“台北书院”](/content/gnews/7/README.md)
  ` 日本东京方舟农场`
 
-### [樱花灭共段子之共匪作孽之证、醒脑汤之共匪的邪恶](/content/gnews/7/README.md)
+### [樱花灭共段子之共匪作孽之证、醒脑汤之共匪的邪恶](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [G20峰会不承认塔利班政权 普京习近平缺席](/content/gnews/8/README.md)
+### [G20峰会不承认塔利班政权 普京习近平缺席](/content/gnews/9/README.md)
  ` HimalayaRussia`
 
-### [樱花灭共段子之迫在眉睫— —华人之危之一起因、之二行动（时势思考）](/content/gnews/9/README.md)
+### [樱花灭共段子之迫在眉睫— —华人之危之一起因、之二行动（时势思考）](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子之“一个中国”原则](/content/gnews/10/README.md)
+### [樱花灭共段子之“一个中国”原则](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子之强子的决心](/content/gnews/11/README.md)
+### [樱花灭共段子之强子的决心](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西南航空CEO说没有人会因为强制疫苗接种而被解雇](/content/gnews/12/README.md)
+### [西南航空CEO说没有人会因为强制疫苗接种而被解雇](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [樱花灭共段子之阴阳两面、解决问题、感谢啊！我的党生活篇 之一](/content/gnews/13/README.md)
+### [樱花灭共段子之阴阳两面、解决问题、感谢啊！我的党生活篇 之一](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [病毒疫苗的本质是种族大屠杀](/content/gnews/14/README.md)
+### [病毒疫苗的本质是种族大屠杀](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [樱花灭共段子之洪（红）流、盖特直播送段子、逻辑课堂之正义、你对ccp怎么看二](/content/gnews/15/README.md)
+### [樱花灭共段子之洪（红）流、盖特直播送段子、逻辑课堂之正义、你对ccp怎么看二](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [微软关闭在中国的Linkedin](/content/gnews/16/README.md)
+### [微软关闭在中国的Linkedin](/content/gnews/17/README.md)
  ` Shuizhuyu`
 
-### [2021/10/14 文贵先生盖特精要](/content/gnews/17/README.md)
+### [2021/10/14 文贵先生盖特精要](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [麦卡洛博士等顶级医生就辉瑞疫苗数据起诉 FDA](/content/gnews/18/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [前法国总统顾问贾克-阿达利——在未来，需要解决的问题是人口过剩](/content/gnews/19/README.md)
  ` 加拿大多伦多枫叶农场视频组`
@@ -129,60 +129,54 @@
 ### [六四纪念雕塑将遭移除 ,丹麦雕塑家对峙港大](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [持BNO护照港人移民英国重启新生](/content/gnews/39/README.md)
+### [中共干预神户日台交流峰会，议员表示：绝不屈服](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
-### [拒做政治花瓶，民主党不参选香港立法会](/content/gnews/40/README.md)
+### [持BNO护照港人移民英国重启新生](/content/gnews/40/README.md)
  ` GTV新闻访谈`
 
-### [10/14/2021 国际财经快讯：欧佩克下调2021年全球石油供应预期, 供应链中断迫使白宫推动沃尔玛、UPS、联邦快递24小时运营](/content/gnews/41/README.md)
+### [拒做政治花瓶，民主党不参选香港立法会](/content/gnews/41/README.md)
+ ` GTV新闻访谈`
+
+### [10/14/2021 国际财经快讯：欧佩克下调2021年全球石油供应预期, 供应链中断迫使白宫推动沃尔玛、UPS、联邦快递24小时运营](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [报告指出：供应链危机对美国经济的损害将持续到2023年](/content/gnews/42/README.md)
+### [报告指出：供应链危机对美国经济的损害将持续到2023年](/content/gnews/43/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [日本强调加强网络安全](/content/gnews/43/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [希望不同肤色的人收到正确的信息并得到拯救](/content/gnews/44/README.md)
+### [日本强调加强网络安全](/content/gnews/44/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [活人赏两万尸体赏五万,莫非政府要用悬赏杀死欧金中](/content/gnews/45/README.md)
  ` NewFOC`
 
-### [针下亡魂｜巴西 13 岁男孩接种疫苗 6 周后死亡](/content/gnews/46/README.md)
- ` G&#124;News TAIWAN`
+### [喜币思考系列-1：喜马拉雅货币体系超越哈耶克的货币理想](/content/gnews/46/README.md)
+ ` 纽约香草山MOS01`
 
-### [国家情报局代理副局长：现政府在应对中共方面毫无准备](/content/gnews/47/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [针下亡魂｜巴西 13 岁男孩接种疫苗 6 周后死亡](/content/gnews/47/README.md)
+ ` G&#124;News TAIWAN`
 
 ### [疫苗灾情｜NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](/content/gnews/48/README.md)
  ` G&#124;News TAIWAN`
 
-### [大流行供应链危机：消费者不能指望像以前那样购物](/content/gnews/49/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [聚焦：成为比特币挖矿中心，美国将再次成为创新和制造业强国](/content/gnews/50/README.md)
+### [聚焦：成为比特币挖矿中心，美国将再次成为创新和制造业强国](/content/gnews/49/README.md)
  ` 丁过`
 
-### [10/13/2021 国际财经快讯：债务上限危机可能动摇美国国债的避险地位；中美9月贸易顺差为420亿美元](/content/gnews/51/README.md)
+### [10/13/2021 国际财经快讯：债务上限危机可能动摇美国国债的避险地位；中美9月贸易顺差为420亿美元](/content/gnews/50/README.md)
  ` 秘密翻译组金融团队`
 
-### [多方位详解：台湾凶矣！](/content/gnews/52/README.md)
+### [多方位详解：台湾凶矣！](/content/gnews/51/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [水淹多地玉米绝收或难收，接下来的粮食危机该如何应对](/content/gnews/53/README.md)
+### [水淹多地玉米绝收或难收，接下来的粮食危机该如何应对](/content/gnews/52/README.md)
  ` NewFOC`
 
-### [产煤大省晋陕遭遇罕见暴雨，或提前引爆全球经济危机](/content/gnews/54/README.md)
- ` 军迷wilson`
-
-### [针下亡魂｜法国 24 岁男医科生接种疫苗 10 日后死亡](/content/gnews/55/README.md)
+### [针下亡魂｜法国 24 岁男医科生接种疫苗 10 日后死亡](/content/gnews/53/README.md)
  ` G&#124;News TAIWAN`
 
-### [美国军人就强制疫苗对国防部提起诉讼](/content/gnews/56/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/57/README.md)
+### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/54/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/55/README.md)
+ ` 秘密翻译组-北美组`
 
