@@ -2,24 +2,23 @@
 ---
 
 
-## 疫苗口罩，买吗？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1594248/)
+## 美日韩下周或就朝鲜问题举行会晤
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1594305/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3663592_1_1.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.ltn.com.tw%2FUpload%2Fnews%2F600%2F2021%2F09%2F07%2F3663592_1_1.jpg&amp;imgrefurl=https%3A%2F%2Fnews.ltn.com.tw%2Fnews%2Flife%2Fbreakingnews%2F3663592&amp;tbnid=pEYXs6MopqG3fM&amp;vet=12ahUKEwiAqpKFnsrzAhWJAaYKHQXSCuAQMygMegUIARCSAQ..i&amp;docid=_rS0H5Ifpv9_SM&amp;w=800&amp;h=563&amp;q=%E7%96%AB%E8%8B%97%E5%8F%A3%E7%BD%A9&amp;ved=2ahUKEwiAqpKFnsrzAhWJAaYKHQXSCuAQMygMegUIARCSAQ)
+俄罗斯莫斯科喀秋莎农场   银河
 
-日本广播协会10月14日报道，山形县的一家缝制公司开始销售与新冠疫苗接种相关的口罩，口罩上印有“打过了”的文字，或者两支注射器的图案，戴上该口罩，向周围人传达的信息是“已经接种过两次新冠疫苗”。
+编辑上传   水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/N-5.jpg)wilsoncenter.org
+日本共同社10月14日报道，据外交消息人士透露，日本、美国和韩国正在考虑下周在华盛顿举行日本首相换届后的首次朝核问题高级官员会谈。
 
-到目前为止，关东地区已经售出了约1000个。有购买者表示”当你乘坐满员的电车或去医院时，你会给周围的人一种安全感”。该公司的社长后藤忠志说：在这个仍然有很多不安的世界里，如果这种呼吁能够随便进行，我们就能相互放心地交往。接种疫苗的人一定要尝试一下。
+上周，日本议会选举岸田文雄(Fumio Kishida)为日本首相，成为菅义伟(Yoshihide Sugi)的继任者。由于政府应对中共病毒的措施受到越来越多的批评，菅义伟在执政约一年后辞职。
 
-10月14日，日本2针疫苗接种率为65.8%，65岁以上的接种率为89.9%，12月份开始，日本境内将考虑推行第三针接种，接种的人数越来越多，社会正在从方方面面向未接种者施压，请问，疫苗口罩的购买，需要接种证明吗？
+朝鲜最近接连试射短程弹道导弹，并声称是新开发的高超音速导弹，在这种情况下引发了地区紧张局势，预计此次会谈将展示三方合作的成果。三国首脑将在华盛顿举行会谈，就朝鲜核导弹开发问题交换意见，并确认无核化的必要性。
 
-信息来源：
+美国国务卿布林肯说，朝鲜无视联合国安理会决议进行导弹发射，应该“非常严肃地”对待，因为这些发射造成了“更大的不稳定和不安全前景”。日本方面已经就朝鲜的武器试验向朝鲜提出抗议。韩国外交通商部长官郑义溶本月早些时候表示，考虑放宽对朝鲜制裁的时机已经成熟，可以以此吸引朝鲜参加谈判。
 
-[接種済みを周囲に示す「ワクチン打ちましたマスク」販売 山形](https://www3.nhk.or.jp/news/html/20211014/k10013307121000.html)
+美国总统拜登(Joe Biden)领导的政府一直在重申愿意与朝鲜就无核化进行接触，但到目前为止没有任何进展。
 
-免责声明：文章仅代表作者本人观点，与GNEWS无关
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-8.png)
+参考链接：
+
+[https://english.kyodonews.net/news/2021/10/572cbd6298e1-us-japan-s-korea-diplomats-may-meet-next-week-over-n-korea.html](https://english.kyodonews.net/news/2021/10/572cbd6298e1-us-japan-s-korea-diplomats-may-meet-next-week-over-n-korea.html)

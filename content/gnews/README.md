@@ -15,86 +15,86 @@
 
 ---
 
-### [2021年10月12日 文贵先生盖特 3](/content/gnews/1/README.md)
+### [2021年10月12日 文贵先生盖特 4](/content/gnews/1/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年10月12日 文贵先生盖特 2](/content/gnews/2/README.md)
+### [2021年10月12日 文贵先生盖特 3](/content/gnews/2/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年10月12日 文贵先生盖特 1](/content/gnews/3/README.md)
+### [2021年10月12日 文贵先生盖特 2](/content/gnews/3/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [DC每日热点1014](/content/gnews/4/README.md)
+### [2021年10月12日 文贵先生盖特 1](/content/gnews/4/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [DC每日热点1014](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2021年10月11日 文贵先生盖特 8](/content/gnews/5/README.md)
+### [2021年10月11日 文贵先生盖特 8](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年10月11日 文贵先生盖特 7](/content/gnews/6/README.md)
+### [2021年10月11日 文贵先生盖特 7](/content/gnews/7/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年10月11日 文贵先生盖特 6](/content/gnews/7/README.md)
+### [2021年10月11日 文贵先生盖特 6](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [独家：辉瑞对 COVID 疫苗起源大为紧张的原因](/content/gnews/8/README.md)
+### [独家：辉瑞对 COVID 疫苗起源大为紧张的原因](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年10月11日 文贵先生盖特 5](/content/gnews/9/README.md)
+### [2021年10月11日 文贵先生盖特 5](/content/gnews/10/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年10月11日 文贵先生盖特 4](/content/gnews/10/README.md)
+### [2021年10月11日 文贵先生盖特 4](/content/gnews/11/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [纳瓦罗称中国共产党控制了乔·拜登](/content/gnews/11/README.md)
+### [纳瓦罗称中国共产党控制了乔·拜登](/content/gnews/12/README.md)
  ` HimalayaRussia`
 
-### [英国将为政府服务引入面部识别应用程序](/content/gnews/12/README.md)
+### [英国将为政府服务引入面部识别应用程序](/content/gnews/13/README.md)
  ` 纽约香草山MOS02`
 
-### [军方大主教支持宗教人士豁免接种疫苗](/content/gnews/13/README.md)
+### [军方大主教支持宗教人士豁免接种疫苗](/content/gnews/14/README.md)
  ` 纽约香草山MOS02`
 
-### [文革幸存母亲目睹美国滑向深渊](/content/gnews/14/README.md)
+### [文革幸存母亲目睹美国滑向深渊](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [Google和Youtube平台的新政策限制人们收看相关气候内容](/content/gnews/15/README.md)
+### [Google和Youtube平台的新政策限制人们收看相关气候内容](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [美日韩下周或就朝鲜问题举行会晤](/content/gnews/16/README.md)
+### [美日韩下周或就朝鲜问题举行会晤](/content/gnews/17/README.md)
  ` HimalayaRussia`
 
-### [疫苗口罩，买吗？](/content/gnews/17/README.md)
+### [疫苗口罩，买吗？](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [普京赞赏伊隆∙马斯克对加密货币结算的影响](/content/gnews/18/README.md)
+### [普京赞赏伊隆∙马斯克对加密货币结算的影响](/content/gnews/19/README.md)
  ` HimalayaRussia`
 
-### [法官命令联合航空公司，不要让寻求疫苗强制令豁免的工人休假](/content/gnews/19/README.md)
+### [法官命令联合航空公司，不要让寻求疫苗强制令豁免的工人休假](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共多部门召开联合会议力推氢能产业发展](/content/gnews/20/README.md)
+### [中共多部门召开联合会议力推氢能产业发展](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [评级展望为“负面”！绿地“融资渠道不畅”被标普下调评级](/content/gnews/21/README.md)
+### [评级展望为“负面”！绿地“融资渠道不畅”被标普下调评级](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄中开始在日本海举行联合军事演习](/content/gnews/22/README.md)
+### [俄中开始在日本海举行联合军事演习](/content/gnews/23/README.md)
  ` HimalayaRussia`
 
-### [1783处受灾受损！山西古建遭老天“雨劫”，更遭中共人祸](/content/gnews/23/README.md)
+### [1783处受灾受损！山西古建遭老天“雨劫”，更遭中共人祸](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [联合国专员敦促香港当局审查香港安全法；声称，拘捕“违反”人权和国际法](/content/gnews/24/README.md)
+### [联合国专员敦促香港当局审查香港安全法；声称，拘捕“违反”人权和国际法](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [好人好难](/content/gnews/25/README.md)
+### [好人好难](/content/gnews/26/README.md)
  ` 首尔天池农场`
 
-### [10/13/2021 七哥直播：傅政华、孙力军、孟建柱、王岐山一旦被抓，他们便清一色栽地倒在地，这就是中共的真面目](/content/gnews/26/README.md)
+### [10/13/2021 七哥直播：傅政华、孙力军、孟建柱、王岐山一旦被抓，他们便清一色栽地倒在地，这就是中共的真面目](/content/gnews/27/README.md)
  ` 秘密翻译组-北美组`
-
-### [银河快讯：日本消费税“暂时维持”10%；对台关系维持并深化合作](/content/gnews/27/README.md)
- ` 日本银河系农场-阿尔法星球`
 
 ### [中国秘密社会史中的土地主张](/content/gnews/28/README.md)
  ` 骄子`
