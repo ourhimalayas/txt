@@ -2,35 +2,128 @@
 ---
 
 
-## “字节跳动创始人”身家达445亿美元！“未老先退”的张一鸣仍旧引入关注
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1593562/)
+## 希望不同肤色的人收到正确的信息并得到拯救
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1593616/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2473.png)
+[https://gtv.org/video/id=61671480d2e2b8174874c4da](https://gtv.org/video/id=61671480d2e2b8174874c4da)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/字节跳动创始人身家达445亿美元！未老先退的张一鸣仍旧引入关注.jpg)[图片来源](http://www.ftchinese.com/story/001092602?full=y&amp;archive)
+今天我们再说回到疫苗的时候
+Hoy cuando tocamos de nuevo con el tema de las vacunas
 
-近日，彭博亿万富翁指数公布，字节跳动创始人张一鸣身家达445亿美元，超过443亿美元的阿里巴巴创始人马云，成为仅次于马化腾和钟睒睒的第三大内地富豪。
+你能想到
+Puedes pensar
 
-从2021年初至今，张一鸣的身家增长达195亿美元，为中国身家增长最快的富豪。在张一鸣身后，身家增长较快的还有现香港首富曾毓群，其身家于2021年初至今增长166亿美元，目前身家476亿美元。长城汽车董事长魏建军身家增长88亿美元，目前身家216亿美元。
+所有人都想着自己活下去
+Todas las personas piensan en seguir viviendo
 
-从全球身家增长排行来看，张一鸣195亿美元身家增长额位列全球第十，比肩脸书创始人扎克伯格，位居第一的是特斯拉CEO马斯克，其身家于2021年初至今增长524亿美元。
+自己得了病, 然后没事
+No pasa nada a pesar que estoy enfermo
 
-公开资料显示，2011年，张一鸣辞去九九房CEO职位，于2012年创建字节跳动，同年8月，字节跳动推出新闻推荐应用今日头条。2016年9月，字节跳动推出抖音。2021年5月20日，张一鸣宣布卸任字节跳动CEO，梁汝波接任。
+有多少人真心想过
+Cuántas personas han pensado de corazón
 
-近几年，国内的几家大型互联网企业，“一把手”都纷纷“隐退”。2019年9月，马云卸任阿里巴巴董事局主席，开启了互联网大佬退休先河。2020年7月1日，拼多多创始人黄峥宣布将卸任拼多多CEO。后续，又宣布辞任拼多多董事长，由拼多多联合创始人陈磊接任。2020年4月，刘强东卸任了京东主体运营公司北京京东世纪贸易有限公司的法定代表人、执行董事、总经理等职务。
+让中国人甚至全世界人
+Que los chinos, incluso todas las personas del mundo
 
-统计发现，马云正式退休时55岁，张一鸣卸任字节跳动CEO时年仅38岁，黄峥卸任拼多多CEO也不过才41岁，刘强东卸任北京京东世纪贸易有限公司高管职务时47岁。而我国的法定退休年龄是男性年满六十周岁，女性年满五十周岁。
+不要让疫苗给害死
+No sean asesinados por la vacuna
 
-互联网行业是中共权贵严重把控和垄断的领域，在权力和资本的推动下制造了众多所谓的“明星企业”，企业养大了，台前的人物就该谢幕了，这也是众多互联网企业创始人近年来“未老先退”的根本原因。
+多少人醒来丈夫死在床上
+Cuántas personas han despertado con su esposo muerto en la cama
 
-郭文贵先生曾评价张一鸣是“中国为数不多的聪明人，是既懂技术又懂政治的企业家”。
+多少人醒来孩子死在床上
+Cuántas personas han despertado con su hijo muerto en la cama
 
-信息来源：
+多少人醒来老婆死在床上, 家人死在床上
+Cuántas personas han despertado con su esposa muerta en la cama
 
-[张一鸣身家达445亿美元超马云，直追马化腾，年内财富增195亿美元](https://www.163.com/dy/article/GM2CCB2E0519D3BI.html)
+多少人突然间倒地
+Cuántas personas se han desmayado de repente
 
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
+你看有多少人
+Mire cuántas personas
 
-*校对：东京樱花团/知了知了 
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+有多少人内心为别人想的
+Cuántas personas piensan por los demás
+我可以毫不惭愧地说
+Puedo decirles sin vergüenza
+
+兄弟姊妹们
+Hermanos y hermanas
+
+我真的希望没有种族没有肤色的
+Realmente espero que no importa la raza o el color de la piel
+
+收到我们的信息, 正确地拯救
+Puedan recibir nuestros mensajes y que sean correctamente rescatados
+
+全世界少一点人被疫苗给弄死
+Menos personas de este mundo sean muertos por la vacuna
+
+太惨了
+Esto es horrible
+
+我可以告诉大家
+Les puedo decir a todos
+
+我知道的多少信息
+Todas las informaciones que tengo
+
+很多人打成忧郁症
+A muchas personas les ha dado depresión después de vacunarse
+
+说我这是等着死呢
+Lo que hacen es esperar la muerte
+
+现在像国内的很多朋友, 原来对咱半信半疑的
+Muchos amigos de China sospechaban de nosotros
+
+现在说七哥
+Y ahora me dicen
+
+我们怎么能把这弄掉
+Cómo hacemos para desquitarnos de esto
+
+我都睡不好觉了
+Ya no puedo dormir bien
+
+啥时候死都不知道
+No sé en qué momento voy a morir
+
+他说我都准备好遗书了
+Él dice que ya tengo preparado la nota de suicidio
+
+我真的跟他们建议
+Y yo realmente les sugerí
+
+如果你真打了三针以上
+Si te vacunaste más de tres dosis
+
+你就准备好遗书
+Entonces prepare la nota de suicidio
+
+你最起码有50%的机率
+Al menos tienes el 50% de probabilidad
+
+未来三五年内会嗝屁
+De que te mueras en los próximos tres a cinco años
+
+* * *
+
+日期：10/13/2021
+原视频标题：希望不同肤色的人收到正确的信息并得到拯救
+Espero que las personas de diferentes colores de piel reciban la información correcta y sean rescatadas
+原视频日期：10/07/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1446018877662531588?s=24](https://twitter.com/se1y7cblljselva/status/1446018877662531588?s=24)
+任务编号：KC170（2473）
+视频时间段：0:00-1:14
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
