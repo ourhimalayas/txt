@@ -2,10 +2,10 @@
 ---
 
 
-## 芝加哥市长退让，表示不会解雇未接种疫苗的教师
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1595494/)
+## 一组抵抗疫苗强制简讯
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1595581/)
 
-作者：AsG諾雅
+作者：文一
 
 
 
@@ -19,12 +19,22 @@
 
 
 
-生命新闻10月14日消息，在威胁要解雇本周五之前未接种疫苗的公立学校教师之后，芝加哥民主党执政的市政府做出了让步，表示只要他们同意每周接受测试，将允许拒绝接种毒疫苗的人继续工作。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-84.jpg)
-周三，芝加哥教师工会（CTU）和代表学区支助人员的两个服务雇员国际联盟（SEIU）团体一起，写信给市长莱特福特，声称近90%的CTU普通会员和数以千计的SEIU 73区会员已经接种了疫苗，未接种疫苗的雇员多是黑人和拉美裔妇女，如果政府坚持执行对未接种疫苗者的惩罚性政策，期限之后，学校将面临比平常更严重的人员短缺问题，特别是卫生工作者、清洁工、代课教师和校车助理关键的一线工作人员，将威胁到学校的安全。 芝加哥市长对教师工会的退让，表明只要人们坚持不打新冠疫苗的立场，团结一致，政府是无法继续推行强制政策的。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-3.jpg)
+一、曾将疫苗强制与纳粹德国相提并论的芝加哥警察工会主席卡坦扎拉呼吁警员们反抗该市强制接种疫苗政策。 芝加哥要求政府雇员在周五之前提交疫苗接种记录，否则将面临每半周的检测。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-8.jpg)
+二、加州两大学区——洛杉矶和圣地亚哥学校系统因强制疫苗接种政策被指控歧视和剥夺未接种疫苗儿童接受公共教育的平等权利。 两个学区都早于州政府要求学生接种疫苗并实施比州政府还要严格的标准，接种要求扩展到 12 至 15 岁的人群，并不准宗教豁免。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-3.jpg)
+三、阿肯色州州长哈钦森在雇员可以选择不参加拜登总统的疫苗强制政策上，不赞成也不表示反对，称 “将允许该政策在没有我签字的情况下成为法律。” 在阿肯色州，如果州长没有在五天内否决，法案就会成为法律。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.3-2.jpg)
+四、一名加州法官部分阻止了一项本周生效的命令，该命令要求州监狱雇员接种中共病毒疫苗。 加州克恩县的一名法官发布了一项临时限制令，阻止州监狱雇员接受接种中共病毒疫苗。 该疫苗强制令定于周五生效，适用于所有拥有医疗保健设施的监狱员工。 加州惩教人员协会表示反对该疫苗政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.4.jpg)
+以法灭苗的火焰在美已成燎原之势，人们开始展开以法律做武器捍卫自己最基本的权利-生存权。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-72.jpg)
 参考链接：
-[Chicago mayor backs down on COVID threat, won’t fire unvaccinated teachers](https://www.lifesitenews.com/news/chicago-mayor-backs-down-on-covid-threat-wont-fire-unvaccinated-teachers/?utm_source=featured&amp;utm_campaign=usa%20https://www.ctulocal1.org/posts/ctu-seiu-local-73-seiu-local-1-to-lightfoot-time-to-partner-on-vax-for-all/)
+1. [Chicago police union chief who once compared vaccine mandates to Nazi Germany tells officers to defy the city’s requirement](https://news.yahoo.com/chicago-police-union-chief-once-131136323.html)
+2. [U.S. pastors, advocacy groups mobilize against COVID-19 vaccine mandates](https://www.reuters.com/world/us/us-pastors-advocacy-groups-mobilize-against-covid-19-vaccine-mandates-2021-10-14/)
+3. [L.A., San Diego school districts are sued over student vaccination mandate](http://L.A.,%20San%20Diego%20school%20districts%20are%20sued%20over%20student%20vaccination%20mandate)
+4. [Arkansas governor allows vaccine mandate opt-out bills to become law](https://www.upi.com/Top_News/US/2021/10/14/Arkansas-vaccine-mandate-opt-out/1551634198205/)
+5. [The Latest: Vaccine mandate for Calif. prison guards blocked](https://www.sfgate.com/news/article/The-Latest-US-to-drop-19-month-ban-on-16529088.php#photo-21578615)
 
 （本文仅代表作者观点）
 

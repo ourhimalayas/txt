@@ -2,56 +2,66 @@
 ---
 
 
-## 护士吹哨：医院从未不堪重负
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1595724/)
+## VAERS：可能至少有 16万美国人死于新冠病毒疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1595742/)
 
-- 编译：Jenny Ball
+- **编译：Jenny Ball**
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-22.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip332.png)
 
-据报道，一名前护士由于 COVID-19 疫苗要求的宗教豁免被拒绝而被解雇，他对那些歇斯底里的说法提出了相当严厉的指责，即 ICU 床位因所有未接种疫苗的病人而满负荷运转。
+如果根据目前我们了解的漏报情况进行推断，来自 VAERS（疫苗不良事件报告系统）的最新数据[表明](https://vaersanalysis.info/2021/10/08/vaers-summary-for-covid-19-vaccines-through-10-1-2021/)，到目前为止，可能有超过 160,000 名美国人死于武汉冠状病毒（**Covid-19****）****“****疫苗****”**。
 
-在接受《生活新闻》[LifeSiteNews](https://www.lifesitenews.com/news/exclusive-nurse-fired-for-refusing-covid-jab-reveals-truth/)采访时，曾在弗吉尼亚州温彻斯特（Valley Health）担任急诊室护士的布拉德·麦克道威尔（ Brad McDowell） 解释说，“满负荷”状态与未接种疫苗的患者关系不大，而更多是由于未接种疫苗的工作人员[抗拒](https://www.westernjournal.com/alabama-hospital-defies-biden-administration-ends-covid-vaccine-requirement-staff/?ff_source=Email&amp;ff_medium=conservative-brief-CT&amp;ff_campaign=dailyam&amp;ff_content=conservative-tribune)医院、州和联邦的命令。
+自去年 12 月注射剂作为“极速行动”(Operation Warp Speed)的一部分首次发布以来，VAERS官方已经报告的 16,310 人死于中共病毒疫苗。由于只有 1% 的疫苗伤害被报告给 VAERS，因此，美国的真实死亡人数可能高达 163.1 万。
 
-“他们无法开放是因为他们没有护士和技术人员，”他在周末发布的视频采访中解释说，采访者吉姆·黑尔问到，[医疗保健人员的短缺](https://www.westernjournal.com/new-york-health-care-workers-get-massive-win-court-covid-vaccine-mandate/?ff_source=Email&amp;ff_medium=conservative-brief-CT&amp;ff_campaign=dailyam&amp;ff_content=conservative-tribune) 是否由大流行引起的，但实际上是许多卫生保健专业人员拒绝遵守严格的疫苗规定的结果。
+更保守的估计可能使用 10 的系数，这意味着美国约有 163,100 人死亡。无论哪个数字是正确的，我们至少知道，死于注射中共病毒疫苗的人数比政府公布的要多得多，人们需要了解这一点，以便明智地决定是否加入统计。
 
-“我可以告诉你，[Valley Health]没有开放所有床位，我确实知道这一点，”麦克道尔在谈到他以前的工作地点时说道。
+正如[我们所报道的那样](https://www.naturalnews.com/2021-10-11-phd-150000-americans-died-covid-vaccines.html)，其他人也同意新冠病毒疫苗导致的死亡人数被严重低估， 其中就有计算生物学家、分子生物学家和免疫学家杰西卡·罗斯（Jessica Rose, PhD）博士，他估计美国约有 150,000 人死于新冠病毒疫苗。
 
-他解释说：“有些床位关着，他们说是……满员了，但这不是因为床位不够。”
+有多种方法可以用来计算出比政府声称的更真实（即更准确）的粗略估计值。 **政府轻描淡写伤害和死亡数据，而夸大“感染病例”，显然是为了符合大型制药公司的最佳利益**，这正是我们在这场大流行的过去几个月中看到的情况。
 
-“这不是因为病人过多，这是因为劳动力不够，”他说。
+**Covid ****疫苗可能杀死的人，比在越南战争中杀死的美国士兵还要多。**
 
-**换句话说，未接种疫苗的患者并没有让医院不堪重负； 医院解雇了许多拒绝遵守疫苗规定的工人，结果现在人手不足。**
+主流媒体几乎没有人关注 VAERS，即使它是跟踪所有疫苗伤害和死亡的官方数据来源，而且，它被大大低估了，但至少可以让我们了解当前的伤亡人数。
 
-当您考虑到在整个大流行期间，医护人员不仅对 COVID-19 病毒最为熟悉，而且他们最有可能大声疾呼疫苗。
+**即使按照VAERS报告的数字，武汉流感疫苗也是几十年来投放市场的最致命的“疫苗”。 事实上，它们似乎比所有其他疫苗组合起来更危险——这还只是基于 VAERS 报告的内容**。
 
-首先，与消防员、EMT 和警察等一线工作人员的情况一样，大多数护士和医生都曾接触过冠状病毒，许多人都感染并幸存下来。
+使用乘数推断，Covid 疫苗是一场全面的药物大屠杀，**可能比整个越南战争对美国士兵造成的死亡还多**。
 
-尽管这对制造和强制接种疫苗的人来说非常不方便，但事实仍然是，有充分的证据表明，**天然免疫至少可以像疫苗本身一样抵御病毒**。
+**中共病毒疫苗肯定比 9/11 恐怖袭击更致命至少五倍**。换句话说，仅根据迄今为止向 VAERS 报告的内容，相当于 9/11 袭击了五次，“极速行动”夺走了更多的生命。
 
-“你仔细想想就知道，是那些政治精英、媒体精英、疾控中心最高级别的人、制药业，他们在运行，他们在掌控着整个故事话语权，”麦克道尔解释说。
+使用来自 VAERS的数据乘以10，也是很保守的，到目前为止，就美国军事伤亡人数而言，由 Covid 疫苗造成的死亡人数就像三场越南战争。
 
-“**他们是推动疫苗的人，他们是从每个接种疫苗人身上受益最大的人**，”他说。
+换句话说，我们在谈论天量级数字，而媒体却继续对所有这些保持沉默。相反，他们不断告诉我们大家卷起袖子，鼓励我们所爱的人也一样做，以“挽救生命”并停止连累老人家。
 
-与此同时，医院的病人和辛勤工作的前线工作人员因这些命令而受害。
+“**媒体不报道这些重要信息应该是犯罪！**” 一位在 VAERS 博客上写的评论说。
 
-一年前，护士和医生是这场大流行的著名英雄——现在他们因拒绝接种疫苗而被过河拆桥。
+“所有主流媒体，甚至包括 Fox News 和 Newsmax，都拒绝谈论‘疫苗’（实验性基因疗法）的明显危险，”另一位写道。“**他们是同谋和腐败者**。”
 
-在大流行开始时，他们被视为全人类的救世主。他们的困境，经常被用来说服我们其他人闭嘴，排队，无视对我们公民自由前所未有的侵犯和关注。
+有关中共流感疫苗造成的伤亡的最新消息，请访问[ChemicalViolence.com](https://chemicalviolence.com/).
 
-突然之间，既然如此多的人对这种疫苗产生了怀疑，并且愿意并准备好与 COVID-19 患者一起工作，而无需自己接种疫苗，他们突然就没有影响力了吗？
+**评论：**
 
-卫生保健系统、各州和拜登政府的广泛任务，正在造成卫生保健工作者短缺，而他们继续告诉我们，这是一种可怕的致命流行病，而这种流行病是由那些拒绝接种疫苗的人造成的。 然而，显然，根据麦克道尔的说法，**情况远非如此**。**我们还要忍受这种人为制造的流行病多久**——**在这个过程中，我们国家重要的医疗保健基础设施将受到多大的破坏？**
+**如果5次911袭击唤不醒人们，如果3次越战痛不醒人们，那么我们只有走向地狱。**
+
+**文贵先生说到：所有推动强制打“疫苗”的人，无论是政府高官、科学大咖、精英大鳄、媒体，都将受到应有的审判！**
+
+**我们不断传播真相， 通过法律行动，说“不”，就能让审判的时刻更早到来！**
+
+**文章内容来源：**
+
+[**VaersAnalysis.info**](https://vaersanalysis.info/2021/10/08/vaers-summary-for-covid-19-vaccines-through-10-1-2021/)
+
+[**NaturalNews.com**](https://www.naturalnews.com/2021-10-11-phd-150000-americans-died-covid-vaccines.html)
 
 （文章仅代表作者观点，与GNEWS无关）
 
-**素材来源：**[www.westernjournal.com](https://www.westernjournal.com/nurse-whistleblower-debunks-leftist-lie-hospitals-beds-unvaccinated-patients/?utm_source=Email&amp;utm_medium=conservative-brief-CT&amp;utm_campaign=dailyam&amp;utm_content=conservative-tribune&amp;ats_es=%5B-MD5-%5D)
+**素材链接**：**[newstarget.com](https://www.newstarget.com/2021-10-13-vaers-160000-americans-have-died-covid-vaccines.html)**
 
 * * *
 
-*审核：文乐
+***审核：文乐
 校对：阿伯塔
-发布：信心的选择*
+发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
