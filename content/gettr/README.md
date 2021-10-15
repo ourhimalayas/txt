@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/15/2021 11:23 PM (UTC)`
+
+11月15号：刚接了一个战友的电话把我笑晕了……天助新中国联邦。
+![img](https://media.gettr.com/group6/getter/2021/10/15/23/23/eeeeca4b-c9e2-9873-ccd2-17e837c56e80/3aa8e27b9c9c4bebe2fa86e7755bc8eb.GIF)
+
+---
+
 `@miles 10/15/2021 8:43 PM (UTC)`
 
 10/15/2021 Miles Guo’s GETTR: The most crucial thing for the New Federal State of China and the Whistleblowers’ Movement is not to forget about any fellow fighters. I will always strive to make sure the fellow fighters’ contributions get the respect and rewards they deserve, and let them live a better life. The New Federal State of China has given everyone a hope that can be fulfilled within a certain period of time instead of the CCP’s lies such as the so-called “China dream”<br/><br/>10/15/2021 文贵盖特：新中国联邦和爆料革命最重要的是不忘记任何一个战友，文贵会永远努力让战友们的付出得到应有的尊重和回报，让他们过上更好的生活；新中国联邦带给大家能兑现的希望，而非中共所谓“中国梦”的欺骗<br/>
@@ -293,13 +300,6 @@ Henry Reitzug博士强烈建议所有人都不要接种疫苗，而是寻求其�
 
 10/11/2021 Miles Guo’s GETTR: Global strike actions against the COVID vaccine mandate；three types of powers are the most important: issuing currency, the media, and the military.  Regarding God Emperor Xi’s speech commemorating the Xinhai Revolution, they world either help the CCP sway public opinions or stay silent<br/><br/>10/11/2021 文贵盖特：全球大罢工反对强制打疫苗；世上三样权力最重要：货币权、媒体和军队；对于习纪念辛亥革命讲话，整个世界不是故意喂料、带风向、就是保持沉默
 ![img](https://media.gettr.com/group26/getter/2021/10/12/02/43/45d68eaa-a395-7d21-21e0-df3993fcc142/out.jpg)
-
----
-
-`@miles 10/11/2021 11:24 PM (UTC)`
-
-MILES GUO Live Stream 2021/10/11
-![img](https://media.gettr.com/group22/origin/2021/10/11/21/7c71012f-b64e-3475-cb21-0ac0c494ad42/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

@@ -2,23 +2,37 @@
 ---
 
 
-## 促生育！中共全面清理涉计划生育法规
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596241/)
+## 台湾接种新冠疫苗死亡人数超过病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596302/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/erw.jpg)[图片来源](https://read01.com/xm60dA5.html#.YWmJRxpBw2w)
-据“澎湃新闻”报道，目前中共全国人大常委会正在开展涉及计划生育法规规章、规范性文件的专项清理工作。
+作者：飞虹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新冠肺炎爆发初期，台湾因对新冠肺炎的有效管理，和对世界个人防护用品的支援受到广泛赞誉。
 
-据悉，此次专项清理工作，主要依据中共新修订的《中华人民共和国人口与计划生育法》，重点围绕三孩生育政策、取消社会抚养费、废止相关处罚、处分规定以及将入学入户入职等与个人生育情况挂钩的规定，开展涉及计划生育法规规章、规范性文件的专项清理工作。目前，清理工作仍在进行中。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-14.jpeg)
 
-近年来，随着中共经济形势的急转直下，加之“房医学”新三座大山对老百姓的极端压榨，导致中共国生育率不断走低。可以说，中共及其盗国贼治国模式才是老百姓生不起、不愿生的根源，清理法规这种“头疼医头脚疼医脚”的做法，无助于破解人口困局。中共不灭，中国的人口灾难还将持续恶化。
+尽管成功控制了疫情，但台湾政府对“政治疫苗”来者不拒。一方面上演与中共上海复兴医药的采购大戏，另一方面向国民推打资产高端疫苗，同时，欣然接纳来自日本、斯洛伐克、波兰和捷克赠送的新冠疫苗。获赠品牌包括牛津阿斯利康、莫德纳和辉瑞毒针疫苗，这些针剂多为捐赠国过剩库存。
 
-信息来源：
+自2021年3月22日开始，台湾执行第一波疫苗接种，截至10月11日，超过人口60%的1370万人至少接种了一剂，其中448万人已完全接种疫苗。
 
-[全国人大常委会：已部署开展涉计生法规规章专项清理工作](https://news.sina.com.cn/c/2021-10-14/doc-iktzqtyu1428500.shtml)
+疫苗接种计划实施之前，全国死于新冠病毒的人数不足12人，而自疫苗接种计划开始以来，据官方数据新冠病毒死亡人数猛增，已达到846人。在疫苗的安全有效性的相关报告中，国家中央疫情指挥中心表示，有850例死亡报告属于接种疫苗后的不良事件导致。这一总数超过了病毒本身造成的死亡人数。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+接种疫苗后感染和死亡人数大幅度上升，证明了疫苗无效；接种不良反应致死人数多于病毒死亡人数，更进一步揭示了疫苗有毒。而可悲的的是，掌权者对此熟视无睹，竭力掩盖，并一再通过各种胁迫、强制手段努力提高疫苗接种率，这些人触犯了“灭绝人类罪”，终将面临纽伦堡审判台。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+(本文仅代表作者观点)
+
+参考链接：[Deaths Following Vaccination Reported in Taiwan Exceed Nation’s COVID Death Total](https://www.zerohedge.com/news/2021-10-14/deaths-following-vaccination-reported-taiwan-exceed-nations-covid-deaths)
+[https://www.cdc.gov.tw/File/Get/yHTBfZNApPb\_6f1-fPLNFg](https://www.cdc.gov.tw/File/Get/yHTBfZNApPb_6f1-fPLNFg)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

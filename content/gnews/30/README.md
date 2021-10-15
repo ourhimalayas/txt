@@ -2,35 +2,39 @@
 ---
 
 
-## 拉脱维亚总统完整接种疫苗 仍感染中共病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596318/)
+## 俄总统府预测煤炭高价格将持续到明年3月
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1596370/)
 
-作者：七哩香
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-拉脱维亚总统的幕僚长10月14日表示，总统李维兹（Egils Levits）完整接种新冠疫苗后，仍然染疫。
+俄罗斯莫斯科喀秋莎农场 星河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-4.jpeg)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/C.png)energyandcapital.com
+美东时间10月15日报道，俄罗斯负责燃料和能源的总统办公厅主任助理阿纳托利∙亚诺夫斯基预测，在2022年3月之前，煤炭将会一直保持在高价格区间和高需求。
 
-李维兹结束丹麦与瑞典访问行程返国后，接受PCR筛检，结果呈阳性。芬兰总统尼尼斯托（Sauli Niinisto）前一天曾与李维兹共进午餐，这项消息迫使尼尼斯托也得隔离。
+亚诺夫斯基在俄罗斯能源周论坛上表示，“我认为对煤炭的需求将持续到2022年3月——直到冬季结束。人们未必能够从心理上准备好长期接受这样的价格。”
 
-人口190万的拉脱维亚，当天通报2408起新冠病例，创下单日新高纪录。为因应病例激增，拉国11日已宣布为期三个月的紧急状态。
+亚诺夫斯基预测，俄罗斯今年将出口2.25亿吨煤炭。“出货量的增长是由于欧洲、中共国和印度。我们现在有大宗货物从塔曼港运往印度，这在去年是没有的。”这位官员解释道。
 
-病例增加趋势同前几个月的疫苗接种曲线存在相关性。推行毒针计划的疾控中心CDC，对拉脱维亚停滞不前接种率十分不满。政府随即于8月份开始在各行各业推行接种强制令，遭到了人们的强烈反抗，导致疫苗库存继续堆积。
+根据能源部的数据，2020年俄罗斯的煤炭出口量为2.122亿吨，包括2910万吨焦煤。因此，俄罗斯今年的媒体出口量可能增加6%。去年，俄罗斯在世界最大的煤炭出口国排名中保持第三位（在澳大利亚和印度尼西亚之后），份额为16%。
 
-(本文仅代表作者观点)
+为什么俄罗斯不能出口更多的煤炭？
 
-参考链接：[拉脱维亚总统完整接种疫苗 仍确诊COVID-19](https://www.rfi.fr/cn/拉脱维亚总统完整接种疫苗-仍确诊covid-19)
-[Latvia’s plans for mandatory vaccination spark huge protests](https://www.euronews.com/2021/08/19/latvia-s-plans-for-mandatory-vaccination-sparks-huge-protests)
+彭博社在9月底报道称，欧洲能源公司在天然气价格屡创新高的情况下被迫要求俄罗斯增加煤炭供应。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+克麦罗沃州（俄罗斯60%的煤炭产自该州）州长谢尔盖利∙茨维列夫向俄罗斯广播公司证实，该州的煤炭供应商甚至在收到预付款的情况下也会收到煤炭出口的请求。据他说，目前在库兹巴斯有1600万吨已经生产的煤炭。他指出，以货币计算，这大约是35-40亿美元。
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
+茨维列夫表示，“但增加煤炭出口的机会受到俄罗斯铁路公司能力的限制。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+煤炭是如何涨价的？
+
+根据国际定价机构Argus的数据，到10月中旬，波罗的海港口的俄罗斯动力煤价格上升到创纪录的每吨200美元，而今年1月时每吨仅略高于63美元。煤炭出口商一直在努力增加通过西北港口的运输，但自6月中旬以来，他们越来越多地面临着铁路车皮的短缺。
+
+10月份从库兹巴斯向亚洲国家交付的俄罗斯动力煤的成本达到每吨226美元，而今年年初为77美元。参与Argus调查的市场参与者预计，未来几个月的煤炭价格将保持高位，因为到今年年底，大部分媒体已经售罄，而中共国和印度在冬季之前面临煤炭严重短缺。据该机构称，一些公司通过塔曼的码头向亚洲供应煤炭，但是，考虑到运费增加，价格对消费者来说没有吸引力。
+
+在中共国，由于更严格的国家环境标准和减少进口，包括因严格的检疫措施而减少了海关边境点的运力，煤炭价格已经上涨。在欧洲，传统发电厂对燃料的高需求的因素之一是无风的天气导致风力发电的下降。
+
+外界认为，对于由此导致的主要消费地区的煤炭短缺，没有快速的解决办法。同时，煤炭的价格受到天然气市场的强烈影响。如果欧洲冬季气候温和，或允许使用北溪-2号管道的全部容量（每年550亿立方米），欧洲的天然气价格可能恢复到每1000立方米350-500美元的正常水平。专家认为，在这种情况下，煤炭可能在明年3月前变得更便宜。
+
+参考链接：
+
+[https://www.rbc.ru/business/15/10/2021/61683a539a794715db8c32d7?from=from\_main\_1](https://www.rbc.ru/business/15/10/2021/61683a539a794715db8c32d7?from=from_main_1)

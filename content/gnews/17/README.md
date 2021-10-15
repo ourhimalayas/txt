@@ -2,43 +2,37 @@
 ---
 
 
-## 努内斯议员揭媒体操控迫使美国走向社会主义
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1596466/)
+## 加拿大BC省市议员公开反对疫苗护照
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1596587/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：Drea Humphrey
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/C-5.jpg)breitbart.com
-站在揭露中共病毒第一线的众议院情报委员会副主席德文·努内斯（Devin Nunes）【1】，对当下美国主流媒体压制言论，选择性地屏蔽那些质疑，却煽动极端情绪等行径深恶痛绝，他认为这是美国迈向社会主义的开始，为此努内斯议员专门著书《进入社会主义倒计时》（Countdown to Socialism），揭露了主流媒体操控民意的现状。
+加拿大的疫苗护照要求对加拿大人进行了歧视和隔离，但几乎我们选举的每一位政治家都在这个问题上保持沉默。我们的民主怎么了？
 
-9月上市的新书概要如下：【2】
 
-民主党已经变得面目全非，它曾经是肯尼迪总统领导下的反共和减税党，现在由一场风起云涌的社会主义运动主导，由一位发誓要“改造”美国的总统候选人领导。
 
-民主党人几乎每天都在发布将医药、工业和高等教育社会化的激进提案。那么，当民主党人的议程与美国人民的左翼相距甚远时，他们如何能赢得选举？
+值得庆幸的是，卑诗省皮特梅多斯市议员安妮娜辛普森勇敢打破政治的沉默。辛普森在 9 月 28 日的一次例行理事会会议上说：“有些弱势群体被这种疫苗护照制度边缘化。”辛普森选择不透露涉及她疫苗接种状况的个人健康信息，並实际上参加了政府的工作会议。她说，她选择与因各种原因受到护照伤害的边缘化选民站在一起，比如 22 岁的Tenley Csolle，她在第一次接种摩德纳疫苗后就无法走路，或者免疫功能低下两个孩子的妈妈Leigh Eliason因医疗原因无法接种任何 COVID-19 疫苗。
 
-这很容易，因为公开辩论的手段被操纵了。
+观看这份报告，了解我对辛普森的完整采访，了解她为何勇敢地为这些加拿大人挺身而出。
 
-在《进入社会主义倒计时》中，国会议员德文·努内斯揭露了民主党、主流媒体和社交媒体公司之间的关系。这三个实体合作，在压制和审查保守观点的同时，大肆渲染民主党的信息，淡化他们的极端主义。
+根据*Rebel News*他们已经聘请了一个律师团队，并且已经提起了多项法律诉讼，包括寻求停止 BC 护照的禁令。
 
-数以千万计的美国人只看到了公开辩论的一面，他们从报纸和社交媒体获得的信息不是“新闻”——而是人为设计的内容，旨在帮助一个政党并惩罚其对手。
-
-在我们一生中最重要的选举即将到来之际，阅读本书，了解你的信息是如何被扭曲和监管，以迫使美国走上社会主义道路的。
-
-（摘要完）
-
-努内斯议员看到了问题的要害：“他们如何才能赢得选举呢？这很容易，因为公开辩论的手段正在被操纵……数以千万计的美国人只看到了公开辩论的一面，他们从报纸和社交媒体获得的信息不是“新闻”——而是人为设计的内容，旨在帮助一个政党并惩罚其对手。”民意被操控，质疑被禁声，导致了中共病毒疫苗阴谋的揭露进展缓慢，大选欺诈舞弊罪恶的曝光步履维艰。
-
-在佐治亚州法官再次驳回质疑大选舞弊的诉讼后，川普总统似乎有些无奈地进行呐喊，“不解决2020的大选舞弊，共和党不可能赢得2022以及2024”【3】。所以，问题的根源在于，美国正在走向中共治下的社会主义化，集权化，专制化，这一切的开始就是对舆论的操控，对民意的误导。
-
-比努内斯议员更有前瞻性的是文贵先生早在几年前就作了布局，创建了各种唯真不破的媒体平台，完成了对极左共产主义思潮的强势阻击，继而进入反攻阶段。邪共，你完了！
+Reference: [https://www.rebelnews.com/b\_c\_city\_councillor\_speaks\_out\_against\_vaccine\_passport](https://www.rebelnews.com/b_c_city_councillor_speaks_out_against_vaccine_passport)/
 
 （文章仅代表作者个人观点）
 
-有关链接：
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-【1】[https://gnews.org/zh-hans/1255601/](https://gnews.org/zh-hans/1255601/)
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
 
-【2】[https://play.google.com/store/books/details/Countdown\_to\_Socialism?id=AxvxDwAAQBAJ&hl=en&gl=US](https://play.google.com/store/books/details/Countdown_to_Socialism?id=AxvxDwAAQBAJ&amp;hl=en&amp;gl=US)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-【3】[https://www.donaldjtrump.com/news/news-q79xan5ntu868](https://www.donaldjtrump.com/news/news-q79xan5ntu868)
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

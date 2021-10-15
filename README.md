@@ -15,134 +15,134 @@
 
 ---
 
-### [傅政华被抓很可能会极大地推动美国灭共的进程](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
-
-### [辉瑞专利：利用电子设备和石墨烯追踪所有疫苗接种者](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [郭文贵先生2021年10月15日盖特视频（9分40秒）全文字版](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共国产新型导弹垂直发射系统列装055万吨驱逐舰](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [设“隔离墙”，防“连环雷”！中共全面加严对银行保险机构大股东监管](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [10/15/2021 文贵盖特：新中国联邦带给大家能兑现的希望，而非中共所谓“中国梦”的欺骗](/content/gnews/6/README.md)
- ` 秘密翻译组-北美组`
-
-### [美国运输雇员工会宣布反对强迫性疫苗接种](/content/gnews/7/README.md)
- ` 纽约香草山MOS02`
-
-### [芝加哥警察工会负责人呼吁成员抵制疫苗强制接种令](/content/gnews/8/README.md)
+### [世界卫生组织宣布成立新团队，调查新冠病毒起源](/content/gnews/1/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [科顿警告美允许中共吞台将是场历史性的灾难](/content/gnews/9/README.md)
+### [桑杰·古普塔在播客上承认CNN对伊维菌素撒了谎](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [加拿大“民主”大选后的抓捕](/content/gnews/3/README.md)
+ ` 纽约香草山MOS02`
+
+### [北京陷入困境：中国生产成本以26年来最快速度飙升](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [傅政华被抓很可能会极大地推动美国灭共的进程](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [辉瑞专利：利用电子设备和石墨烯追踪所有疫苗接种者](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美前国务卿赖斯: 北京遥控“亲中势力”暗中颠覆台湾政权](/content/gnews/7/README.md)
+ ` 纽约香草山MOS02`
+
+### [郭文贵先生2021年10月15日盖特视频（9分40秒）全文字版](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共国产新型导弹垂直发射系统列装055万吨驱逐舰](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [设“隔离墙”，防“连环雷”！中共全面加严对银行保险机构大股东监管](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [10/15/2021 文贵盖特：新中国联邦带给大家能兑现的希望，而非中共所谓“中国梦”的欺骗](/content/gnews/11/README.md)
+ ` 秘密翻译组-北美组`
+
+### [美国运输雇员工会宣布反对强迫性疫苗接种](/content/gnews/12/README.md)
+ ` 纽约香草山MOS02`
+
+### [芝加哥警察工会负责人呼吁成员抵制疫苗强制接种令](/content/gnews/13/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [科顿警告美允许中共吞台将是场历史性的灾难](/content/gnews/14/README.md)
  ` HimalayaRussia`
 
-### [2009年辉瑞认罪和解并支付23亿美元，美国司法部称其为史上最大的医疗欺诈案](/content/gnews/10/README.md)
+### [2009年辉瑞认罪和解并支付23亿美元，美国司法部称其为史上最大的医疗欺诈案](/content/gnews/15/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [DC每日热点1015](/content/gnews/11/README.md)
+### [DC每日热点1015](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [加拿大BC省市议员公开反对疫苗护照](/content/gnews/12/README.md)
+### [加拿大BC省市议员公开反对疫苗护照](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [Coinbase拒绝SEC监督，要求成立新监管机构](/content/gnews/13/README.md)
+### [Coinbase拒绝SEC监督，要求成立新监管机构](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [美议员呼吁将华为前子公司荣耀列为黑名单](/content/gnews/14/README.md)
+### [美议员呼吁将华为前子公司荣耀列为黑名单](/content/gnews/19/README.md)
  ` 日本东京方舟农场`
 
-### [香港审计监管部门调查恒大账目及其会计师事务所的审计](/content/gnews/15/README.md)
+### [香港审计监管部门调查恒大账目及其会计师事务所的审计](/content/gnews/20/README.md)
  ` 日本东京方舟农场`
 
-### [美国动口不动手 台湾凶也](/content/gnews/16/README.md)
+### [美国动口不动手 台湾凶也](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [努内斯议员揭媒体操控迫使美国走向社会主义](/content/gnews/17/README.md)
+### [努内斯议员揭媒体操控迫使美国走向社会主义](/content/gnews/22/README.md)
  ` HimalayaRussia`
 
-### [墙内战友和同胞防灾攻略](/content/gnews/18/README.md)
+### [墙内战友和同胞防灾攻略](/content/gnews/23/README.md)
  ` 波士顿五月花农场`
 
-### [文贵视角：疫苗正在毁掉北欧优秀的人种，其对各人种的伤害表现不同](/content/gnews/19/README.md)
+### [文贵视角：疫苗正在毁掉北欧优秀的人种，其对各人种的伤害表现不同](/content/gnews/24/README.md)
  ` 秘密翻译组-原创组`
 
-### [用数据说明疫苗的致死率远远大于其救命概率（9-45倍）](/content/gnews/20/README.md)
+### [用数据说明疫苗的致死率远远大于其救命概率（9-45倍）](/content/gnews/25/README.md)
  ` 加拿大多伦多枫叶农场视频组`
 
-### [SMART联盟宣布强烈反对强制接种疫苗](/content/gnews/21/README.md)
+### [SMART联盟宣布强烈反对强制接种疫苗](/content/gnews/26/README.md)
  ` HimalayaRussia`
 
-### [中共国全面禁止非共产党资助的自媒体发布新闻，进一步打压言论自由](/content/gnews/22/README.md)
+### [中共国全面禁止非共产党资助的自媒体发布新闻，进一步打压言论自由](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [做一个正常的死人](/content/gnews/23/README.md)
+### [做一个正常的死人](/content/gnews/28/README.md)
  ` 骄子`
 
-### [领英向中共叩头，拆分公司以扼杀言论](/content/gnews/24/README.md)
+### [领英向中共叩头，拆分公司以扼杀言论](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [俄总统府预测煤炭高价格将持续到明年3月](/content/gnews/25/README.md)
+### [俄总统府预测煤炭高价格将持续到明年3月](/content/gnews/30/README.md)
  ` HimalayaRussia`
 
-### [中俄海上联合军演对比美日澳印四国远洋联训](/content/gnews/26/README.md)
+### [中俄海上联合军演对比美日澳印四国远洋联训](/content/gnews/31/README.md)
  ` G-NEWS TAIWAN`
 
-### [报告显示苏格兰接种中共病毒疫苗后死亡的情况在恶化](/content/gnews/27/README.md)
+### [报告显示苏格兰接种中共病毒疫苗后死亡的情况在恶化](/content/gnews/32/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [文贵先生分析中共试图&#8221;武统&#8221;台湾的内因和外因](/content/gnews/28/README.md)
+### [文贵先生分析中共试图&#8221;武统&#8221;台湾的内因和外因](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [墙内要闻汇编](/content/gnews/29/README.md)
+### [墙内要闻汇编](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拉脱维亚总统完整接种疫苗 仍感染中共病毒](/content/gnews/30/README.md)
+### [拉脱维亚总统完整接种疫苗 仍感染中共病毒](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [台湾接种新冠疫苗死亡人数超过病毒](/content/gnews/31/README.md)
+### [台湾接种新冠疫苗死亡人数超过病毒](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [气候融资目标提高到1000亿美元！亚开行行长力推“让燃煤电厂退役](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [10/15/21 香港快讯 【贤学思政案】仅朱慧盈获批保释 不可于社交平台发表言论](/content/gnews/33/README.md)
+### [10/15/21 香港快讯 【贤学思政案】仅朱慧盈获批保释 不可于社交平台发表言论](/content/gnews/37/README.md)
  ` 英喜-粵語組`
 
-### [10/15/2021国际财经快讯：花旗借华尔街并购热潮抵消贷款疲软；摩根士丹利盈利超过预期](/content/gnews/34/README.md)
+### [10/15/2021国际财经快讯：花旗借华尔街并购热潮抵消贷款疲软；摩根士丹利盈利超过预期](/content/gnews/38/README.md)
  ` 秘密翻译组金融团队`
 
-### [完全疫苗接种加州大学生因病毒并发症去世](/content/gnews/35/README.md)
+### [完全疫苗接种加州大学生因病毒并发症去世](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
-### [促生育！中共全面清理涉计划生育法规](/content/gnews/36/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [“天空WiFi”带热激光通信！索尼成功演示“星地通联”系统](/content/gnews/37/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [针下亡魂｜美国 21 岁医科生接种疫苗1日后死亡](/content/gnews/38/README.md)
+### [针下亡魂｜美国 21 岁医科生接种疫苗1日后死亡](/content/gnews/40/README.md)
  ` G&#124;News TAIWAN`
 
-### [鲁比奥等参议员呼吁 从华为剥离的荣耀必须列入黑名单](/content/gnews/39/README.md)
+### [鲁比奥等参议员呼吁 从华为剥离的荣耀必须列入黑名单](/content/gnews/41/README.md)
  ` GTV新闻访谈`
 
-### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（十一）](/content/gnews/40/README.md)
+### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（十一）](/content/gnews/42/README.md)
  ` 墨尔本雅典娜农场`
 
-### [随着能源危机加剧和工厂停工，中共国接纳澳洲的煤炭](/content/gnews/41/README.md)
- ` 墨尔本雅典娜农场`
-
-### [西方知名的病毒专家重磅演讲戳穿疫苗谎言](/content/gnews/42/README.md)
+### [西方知名的病毒专家重磅演讲戳穿疫苗谎言](/content/gnews/43/README.md)
  ` 澳喜农场`
-
-### [圣诞老人因为没接种中共病毒疫苗而失业](/content/gnews/43/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [揭穿中共“为人类和平发展进步作出新的重要贡献”的大骗局](/content/gnews/44/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`

@@ -2,27 +2,25 @@
 ---
 
 
-## 完全疫苗接种加州大学生因病毒并发症去世
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596254/)
+## 拉脱维亚总统完整接种疫苗 仍感染中共病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596318/)
 
-作者：雪梨
+作者：七哩香
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-21岁的美国加州佐治亚大学的肖恩·库恩（Shawn Kuhn），在完全接种新冠疫苗后，死于近期突然感染的新冠病毒，他在去世之前与病魔战斗了大约6个星期。
+拉脱维亚总统的幕僚长10月14日表示，总统李维兹（Egils Levits）完整接种新冠疫苗后，仍然染疫。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-25.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-4.jpeg)
 
-库恩是运动和体育专业的大四学生，身体健康，在竞技项目中获奖，在校园兼职私人教练。
+李维兹结束丹麦与瑞典访问行程返国后，接受PCR筛检，结果呈阳性。芬兰总统尼尼斯托（Sauli Niinisto）前一天曾与李维兹共进午餐，这项消息迫使尼尼斯托也得隔离。
 
-尽管新冠病毒对30岁以下人群危险性极低，但在学校和工作场所的胁迫下，年轻人正在大规模的接种，库恩和许多比他更年轻的人在这种环境下，被迫接种了含胚胎细胞的毒针。
+人口190万的拉脱维亚，当天通报2408起新冠病例，创下单日新高纪录。为因应病例激增，拉国11日已宣布为期三个月的紧急状态。
 
-前辉瑞公司的员工凯伦·金斯敦此前揭露，较未接种时，人体感染病毒的机率增加了3倍，而当接种第二剂后，随着时间的推移，人体免疫力逐渐减弱，感染率将持续升高。
-
-今年6月，加州15岁少年接种辉瑞疫苗第二针2天后，死于“应激性心肌炎并伴有冠状动脉炎症”。此前，美国疾病控制和预防中心（CDC）也承认，接种mRNA疫苗的年轻男性有罹患心肌炎和心包炎的风险。如果美国政府仍强制推行疫苗接种令，随着在校学生大面积接种疫苗，越来越多的年轻人将因此受到伤害，甚至死亡。
+病例增加趋势同前几个月的疫苗接种曲线存在相关性。推行毒针计划的疾控中心CDC，对拉脱维亚停滞不前接种率十分不满。政府随即于8月份开始在各行各业推行接种强制令，遭到了人们的强烈反抗，导致疫苗库存继续堆积。
 
 (本文仅代表作者观点)
 
-参考链接：[‘Fully vaccinated’ 21-year-old personal trainer dies from COVID complications](https://www.lifesitenews.com/news/fully-vaccinated-21-year-old-personal-trainer-dies-from-covid-complications/?utm_source=top_news&amp;utm_campaign=usa)
-[https://www.watsonhunt.com/obituaries/Shawn-Kuhn/#!/Obituary](https://www.watsonhunt.com/obituaries/Shawn-Kuhn/#!/Obituary)
+参考链接：[拉脱维亚总统完整接种疫苗 仍确诊COVID-19](https://www.rfi.fr/cn/拉脱维亚总统完整接种疫苗-仍确诊covid-19)
+[Latvia’s plans for mandatory vaccination spark huge protests](https://www.euronews.com/2021/08/19/latvia-s-plans-for-mandatory-vaccination-sparks-huge-protests)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
