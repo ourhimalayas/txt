@@ -2,23 +2,28 @@
 ---
 
 
-## 继火币、币安之后，OKEx宣布保持&#8221;退出中共国大陆市场&#8221;政策
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1595094/)
+## 有声|中共对美施压，要求取消关税和制裁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1595135/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-83.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.financemagnates.com%2Fwp-content%2Fuploads%2F2020%2F10%2FOKEX.jpg&amp;imgrefurl=https%3A%2F%2Fwww.financemagnates.com%2Fcryptocurrency%2Fnews%2Fokex-to-resume-p2p-services-with-3-fiats%2F&amp;tbnid=kUpVqGmjS8nniM&amp;vet=12ahUKEwjEm_XNtsvzAhWpxIsBHVjgA3EQMygIegUIARDSAQ..i&amp;docid=lssEIq2jRJt60M&amp;w=880&amp;h=400&amp;q=okex&amp;ved=2ahUKEwjEm_XNtsvzAhWpxIsBHVjgA3EQMygIegUIARDSAQ)
-10月13日，在币安发布清退中国大陆用户的公告之后，OKEx随后也发布了一篇《关于中国大陆地区监管政策的通知》。
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月9日，美国贸易代表戴琪和中共政府副总理刘鹤举行视频会议。
 
-公告称，欧易OKEx自2017年9月开始就把业务重心转到国际市场，不针对中国大陆市场进行推广和服务，okex.com网站在中国大陆无法访问，APP也下架了所有的中国大陆地区的应用市场。欧易OKEx方面强调，将继续在国际市场稳步发展，不断提升自己的产品和服务，继续保持”退出中国大陆市场”的政策，不在中国大陆地区设立办公室和团队。该公司目前在全球多个主要国家建立了办公室，拥有1000名以上的海外员工。
+美方试图通过双边对话，磋商美中经贸协议第一阶段执行情况。中方强调，中美经贸关系对两国和世界非常重要，应加强双边经贸往来与合作。中方就取消关税和制裁进行谈判，并澄清对中共国经济发展模式和产业政策的立场。
 
-在2017年后，国内的“币圈”曾将火币、币安、OKEx并称为“三大”，因这三家加密货币交易平台彼时交易量极大，在全球份额占比极高。但截止到2021年10月13日，这三家交易所已全部宣布退出中国大陆市场。
+戴琪在本周一的演讲中强调捍卫美国利益，与中方对话的目标是不要激化与中共国贸易紧张关系，持久的共存需要对行动的巨大后果负责和尊重。
 
-信息来源：
+某美国官员说，中共政府明目张胆的行为，表明它正在加倍推行以国家为中心的独裁主义，并抵制解决美方的结构性关切。美国最新贸易战略将引起对中共国”非市场“经济行为的关注。华盛顿将侧重于提高美国的竞争力，使市场多样化，并 “限制北京有害做法的影响”。
 
-[OKEx：继续保持退出中国大陆市场的政策](https://www.chainnews.com/news/990439259781.htm)
+文字版原文：[中共对美施压，要求取消关税和制裁](https://gnews.org/zh-hans/1592408/)
 
-(文章仅代表作者本人观点，与GNEWS无关)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

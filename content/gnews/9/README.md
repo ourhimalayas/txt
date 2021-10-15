@@ -2,34 +2,21 @@
 ---
 
 
-## 国际要闻汇编
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1595070/)
+## 美联储最快11月中旬开启缩表
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1595113/)
 
-素材：东京樱花团｜GNEWS组
-![](https://lh4.googleusercontent.com/1DjR_PL_Fa492EzR4vKpMQSwbtZfb28LqBETeNSnPZsZga4rvywAEzj2DaUmI3VqRgYVUXonKfI2GEFqv9Gz4yhd1QRsh5q_eqSOcRQ3j_sxIGz6rgg9TB45obXMINDDQiEUiyK4=s0)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1015/20211015073614904.jpg)
-10月15日汇编
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-70.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg2.jiemian.com%2F101%2Foriginal%2F20170508%2F149421273866851300_a700x398.jpg&amp;imgrefurl=https%3A%2F%2Fwww.jiemian.com%2Farticle%2F1303465.html&amp;tbnid=N6n6sDiJz-o7eM&amp;vet=12ahUKEwjozfPLuMvzAhXsg3IEHdBABiUQMygwegUIARD8AQ..i&amp;docid=CrRE2B0agePTlM&amp;w=700&amp;h=398&amp;itg=1&amp;q=%E7%BE%8E%E8%81%94%E5%82%A8%E7%BC%A9%E8%A1%A8&amp;hl=en&amp;ved=2ahUKEwjozfPLuMvzAhXsg3IEHdBABiUQMygwegUIARD8AQ)
+随着美国就业市场取得进展，同时通胀居高不下，美联储官员在上个月普遍支持11月或12月中旬开始缩表。这代表美联储将着手收紧市场过多的流动性，避免经济有走向过热的风险。据本周三公布的9月美联储会议纪要，美联储官员表示，只要经济整体继续正常复苏，到明年年中左右结束资产购买可能是合适的。他们称，如果美联储在下次会议上决定开始缩表，那可以从11月或12月中旬开始减少每个月的资产购买计划。
 
-1、[**三年半后美国重返联合国人权理事会**](https://www.aboluowang.com/2021/1015/1659557.html)
+这与上个月鲍威尔在新闻发布会上所说的一致。鲍威尔曾表示，缩表可能最快于11月开始，并可能在2022年中期左右结束。通胀上行的风险比美联储预计的大的多，美联储官员们谈论了如何缩表的一种可能性，即每个月减少100亿美元美债和50亿美元抵押支持债券的购买。目前，美联储每月购买800亿美元的美债和400亿美元的抵押支持债券，给市场提供充足的流动性。在就业和通胀问题上，美联储讨论就业市场是否会回到疫情前的水平，同时坚持认为，随着时间的推移，商品和劳动力市场的供给逐渐释放，高通胀将消退。今年缩表的决定也是为了避免对通胀有误读的风险。
 
-综合国际媒体14日消息，美国在3年半前退出联合国人权理事会（UNHRC），中共则在美国缺席期间，趁机扩大影响力。联合国人权理事会14日选出美国等18个新成员，成员每届任期3年，新一届任期自明年1月1日开始，标志着美国重返人权理事会。
+信息来源：
 
-2、[**澳表示仍欢迎中国投资 国安和关键基础设施仍为审批关键**](https://www.aboluowang.com/2021/1015/1659586.html)
+[美联储或将在11月中旬开始逐步缩减购债](http://finance.eastmoney.com/a/202110142138642932.html)
 
-据路透社报道，澳大利亚外国投资审查委员会（FIRB）主席欧文周四（14日）在悉尼一场投资会议上表示，澳大利亚并没有对来自中国的投资关上大门，但是国家安全考量和关键基础设施的保护已成为该委员会审批外资的重点。今年7月，澳大利亚对中国的出口暴增到创纪录的194亿澳元（约合144亿美元）单月新高。但是双方的外交与政治关系却跌入低谷，北京以各种借口，对澳大利亚煤炭、葡萄酒和大麦等产品的进口实施限制。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-3、[**中俄海上联演，中共官媒称“实战”色彩浓厚**](https://www.voachinese.com/a/Russia-China-Joint-Drills-Off-Sea-Of-Japan-20211014/6270738.html)
-
-据西方和中国媒体报道，中国和俄罗斯10月14日在俄罗斯彼得大帝湾开始举行代号为“海上联合-2021”的军事演习。演习预计进行4天，周日结束。中国专家称此次演习更具实战色彩。在美国等西方国家强化军事政治联盟应对中共国威胁的情况下，中共也在积极寻求与俄罗斯、朝鲜和伊朗发展关系，一个由这4个国家组成的准联盟（邪恶轴心）已经初步形成。
-
-4、[**微软担心内容检查，将关闭中国的领英服务**](https://www.voachinese.com/a/linkedin-to-close-in-china-20211014/6270974.html)
-
-路透社报道说，微软周四（14日）宣布，将在今年晚些时候关闭领英（LinkedIn）在中国的服务。微软在博客中说，2014年在中国开始运营的专业交流网站领英目前在中国面临“显著增加的挑战的运营环境和更大的遵从要求。”领英也并不是完全退出中国市场。领英是依然向中国用户开放的唯一的美国社交网络网站。微软2016年收购了领英，目前领英的用户高达7亿7400万。
-
-5、[**国际奥委会明确拒绝抵制北京冬奥会的呼声**](https://www.voachinese.com/a/IOC-Refutes-Calls-Of-Boycotting-Beijing-Winter-Games-29211914/6270548.html)
-
-随着北京冬奥会的临近，国际社会批评中国人权记录和抵制这次体育盛会的呼声日益高涨。人权团体和美国不少议员要求国际奥委会推迟这次冬奥会，或者迁往其它地点举办，除非北京政府停止对新疆维吾尔和其它少数民族穆斯林的迫害。国际奥林匹克委员会副主席科茨（John Coates）周三（13日）明确拒绝了有关方面要求该组织在2022年北京冬奥会上批评中国的人权问题。北京冬奥会计划在明年2月4日至20日举行。残奥会定于3月4日至13日举行。
-
-（本文只代表个人观点，与Gnews网站无关）
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

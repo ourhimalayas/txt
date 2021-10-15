@@ -2,79 +2,31 @@
 ---
 
 
-## 病毒疫苗的本质是种族大屠杀
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1594718/)
+## 日本制铁公司起诉中共宝钢侵权
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1594804/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/111-a9tt5-a2nj0.jpg)
-[https://gtv.org/video/id=61681731d2e2b81748751d1c](https://gtv.org/video/id=61681731d2e2b81748751d1c)
+**撰稿：日本东京方舟农场 海星**
 
-**郭文贵
-Miles Guo**
+10月14日，日本制铁公司宣布，已在东京地方法院对中共宝山钢铁公司提出专利权侵害诉讼，被同时起诉的还有丰田汽车公司。
 
-烂账、烂房把西方经济绑架，疫苗病毒，把西方全部Lockdown
-Bad debts and bad mortgages have kidnapped the western economy, and the vac-cine and the virus have locked down all of the West
+据《共同社》报道，日本制铁称，在日本销售的丰田电动车马达使用的电磁钢板侵害了该公司的专利权，而这种电磁钢板是由宝钢供应的，因此日本制铁在东京地方法院对这两家公司提起诉讼，要求分别赔偿约200亿日元（人民币11亿元）。
 
-司法界、媒体、社交媒体全部控制
-The judiciary, the media, and social media are all controlled by them
+![](https://assets.gnews.org/wp-content/uploads/2021/10/phpkyEZB0.jpg)图片来自于网络
 
-对犹太人、对世界上的种族，中东人进行一种完全的种族大屠杀
-A complete genocide against Jews, races in the world, and Middle Easterners
+此外，日本制铁针对丰田汽车特别申请了临时禁令，要求其禁止在日本生产和销售使用了上述电磁钢板的电动车。
 
-你觉得未来6个月到12个月你的日子还像今天坐在这儿（直播），是不是
-Do you think your life in the next 6 to 12 months will be the same, like sitting here today and live broadcast, right?
+宝钢公司早在1977年还未建成前便与日本企业来往密切，通过日本新日铁公司提供的设备和技术支持，于1985年9月15日建成。目前，宝钢公司是中共国钢铁大厂中国宝武钢铁集团的子公司。
 
-你们能这么过吗？澳大利亚也会这么过吗？新西兰你会这么过吗？
-Can you still live like this? Will Australia live like this? Will New Zealand live like this ?
+*注：本文仅代表作者观点，与 Gnews无关*
 
-而且现在你会发现所有的推广疫苗的政府官员全部被lobby了
-And now you will find that all government officials who promote vaccines have been lobbied by the Pharmaceutical companies
+*参考链接：*
 
-全被又游说的，全是为了钱
-All have been lobbied and all for the money
+[简讯：日本制铁状告丰田和中国宝钢侵权](https://china.kyodonews.net/news/2021/10/c22c1e74b8fd.html)
 
-现在疫苗你看新加坡、澳大利亚病例增长情况，几乎是打疫苗最高（的国家）Looking at the increase in the number of vaccination cases in Singapore and Australia, it’s almost the country with the highest number of vaccinations
+[求償200億日圓！日本製鐵告Toyota和中國寶鋼侵權](https://ec.ltn.com.tw/article/breakingnews/3703956)
 
-接种率85%，接种率50%，你看看这是什么概念
-The vaccination rate are 85% and 50%, look at this concept
+[中国宝武钢铁集团](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%9B%BD%E5%AE%9D%E6%AD%A6%E9%92%A2%E9%93%81%E9%9B%86%E5%9B%A2)
 
-这是大屠杀吧，兄弟姐妹们，
-This is a massacre, brothers and sisters
+* * *
 
-我的老天爷，澳大利亚天呐，天呐，新加坡，
-Oh my god, Australia, my god, Singapore,
-
-你看看这有多可怕，这是刚刚发生的事情，
-Look at how terrible this is, this is what just happened
-
-所以兄弟姐妹们，疫苗推广你看看，在那个洛杉矶
-So brothers and sisters, look at the vaccine promotion in Los Angeles
-
-洛杉矶可能最重要的就是消防员了
-Perhaps the most important thing in Los Angeles is the firefighters
-
-因为洛杉矶着火，你们没有来过洛杉矶
-because of the fire in Los Angeles, you haven’t been to Los Angeles, so you don’t understand
-
-你想消防员都哭了，说，这帮人要弄死我们，我受不了了
-Look, the firefighters are crying and saying, this group of people is going to kill us and I can’t stand it anymore
-
-————————————————————
-
-**原视频接:**[https://twitter.com/se1y7cblljselva/status/1447502355054743564?s=24](https://twitter.com/se1y7cblljselva/status/1447502355054743564?s=24)
-
-Date:10/13/2021
-The essence of COVID vaccine is massacre
-原视频日期：2021/10/10
-任务编号：KC171（2507）
-视频时间段 : 0:00-1:34
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*编辑：文顺 校对：Ranting 发布：Ranting*
