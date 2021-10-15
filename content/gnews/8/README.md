@@ -2,38 +2,89 @@
 ---
 
 
-## 台防长称若遭中共侵略国军将应战
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596028/)
+## G时评：原创时政小段子（强迫症）
+` GISELLE` [轉載自GNews](https://gnews.org/zh-hans/1596062/)
 
-作者：在远方
+**作者/图片设计：Giselle**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/段子2.png)
+1，**中共为何在扯蛋的事情上做得那么专业？比如那些在人民大会堂端茶倒水的服务员，拿着尺子丈量茶杯之间的距离……**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+——以下是中共病例本
+
+【患者姓名】中共
+
+【诊断】强迫症
+
+【症状】
+
+1，过度追求完美，特别在意别人的评价；
+
+2，胆小、自卑、不自信；
+
+3，安全感匮乏、缺失。
+
+【病因】以犯罪起家，特别害怕老底被揭穿，整天惶惶不可终日，随时担心见光死。
+
+【处方】白绫三尺，绳子一根，毒酒一杯，恶犬三只
 
 
 
-台湾防长邱国正14日表示，面对中共不断升级的武力挑衅，国军谨守不发动”第一击”的原则，不给中共出兵借口。但国军会对中共更多兵力集结等后续动作进行及时掌握研判，一旦共军有实际犯台战争行为，国军将会奋起应战。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1015AM（1-5）視頻備用.001.jpeg)
-去年8月台湾前总统马英九称，如果大陆攻台，其战略将是“首战即终战”，这一言论引发岛内巨大争议。民调显示，大多数台湾人反对马英九的这种说法。蔡英文政府发言人第一时间驳斥了马英九的言论，称马英九不应与北京一起威胁打压台湾。
+2，**爆料革命《行酒令》**
 
-郭文贵先生爆料目前中共已经跟美国完成勾兑，拜登政府为了保障国内经济稳定和中期选举，决定背弃和出卖2300万台湾人民的利益，台湾随时面临灭顶之灾。台湾防长的声明代表了大多数台湾人的心声，自救者天救。当面对中共的武力侵犯时，台湾只有奋起反击，才有可能换来一线生机。
-(本文仅代表作者观点)
+地产崩，地产崩，地产崩了银行崩，
 
-参考链接：
+银行崩，银行崩，银行崩了保险崩，
 
-1. [台湾防长强调绝不启动战端 但遭遇侵略将应战](https://www.voachinese.com/a/Taiwan-will-not-start-a-war-with-China-defense-minister-says-20211014/6270618.html)
-2. [中共对台“首战即终战”？ 五成八台湾人不认同](https://www.rfa.org/mandarin/yataibaodao/gangtai/hx1-08242020091817.html)
+保险崩，保险崩，保险崩了基金崩，
+
+基金崩，基金崩，基金崩了养老崩，
+
+养老崩，养老崩，养老崩了欧美崩，
+
+欧美崩，欧美崩，欧美崩了世界崩。
+
+黑暗秩序被摧毁，
+
+凤凰涅槃获新生。
+
+否极泰来万众起，
+
+阴阳有序正气昇。
+
+魑魅魍魉无处遁，
+
+爆料革命定乾坤。
 
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
+3，**狼要吃羊。**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+羊问：你为什么要吃我？
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+狼：你弄脏了我的水。
+
+羊：我在下游，你在上游，我怎么可能会弄脏你的水？
+
+中共，台湾是中国的。
+
+台湾：中华民国1912年就建国了，中共1949年才建国，请问要怎么“隶属”呢？按时间关系、历史渊源，究竟谁隶属谁？
+
+【中共词典】“隶”，奴隶的隶。隶属：像奴隶一样从属。
+
+
+
+4，“**美军特战队”驻台湾超1年的消息接连爆出猛料，五角大楼消息，有23名陆战队员、2名海军和5名空军“永久派驻”台湾。**
+
+剧情是这样的：
+
+米国：0044
+
+习：44944
+
+米国：你先44
+
+习：你0044……
+
+台湾：都成年人了，别闹了行不行？
+
+（**文章内容仅代表作者个人笑点）**

@@ -2,33 +2,20 @@
 ---
 
 
-## 中共管制趋严 领英Linkedin退出中共国
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596066/)
+## 疫苗接种者，乘坐专属列车，享受定制旅游
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596123/)
 
-作者：云豹
+撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-280.png)[示意图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg1.jiemian.com%2F101%2Foriginal%2F20210325%2F161666736868514200_a700xH.png&amp;imgrefurl=https%3A%2F%2Fwww.jiemian.com%2Farticle%2F5862147.html&amp;tbnid=X7vQS3gGPwvJ_M&amp;vet=12ahUKEwiRtP-lv8zzAhUagXIEHeE9CqkQMygAegUIARCYAQ..i&amp;docid=cblEZvUvrtlvKM&amp;w=700&amp;h=525&amp;itg=1&amp;q=%E4%B8%93%E5%88%97&amp;ved=2ahUKEwiRtP-lv8zzAhUagXIEHeE9CqkQMygAegUIARCYAQ)
+读卖新闻报道，JR东日本公司15日宣布，将从明年年初，开始运营新型冠状病毒疫苗接种完成者专用的新干线，将临时列车座位出售给旅行社，旅行社将组织仅限接种者参加的旅游。运行数量等详细规划今后将完善。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+参加该旅游活动者，必须出示两次接种证明，如果因为疾病等无法接种疫苗者，PCR检查结果为阴性或许有机会参加。从15日开始，子公司的旅行社开始推出只针对疫苗接种完成者地旅游活动。整个集团旗下地如酒店、电车等服务也将提供疫苗接种者折扣及礼品。
 
+近期，日本中共病毒新增感染人数急剧下降，社会各界迫不及待恢复生产活动，并通过各种优惠活动及特定服务，呼吁接种新冠疫苗，然而日本官方也并不能肯定感染人数急剧下降具体原因，并预估第6波感染还会再来。
 
+信息来源：[ワクチン接種者専用の新幹線、来年から運行…ツアーにＰＣＲ検査陰性でも参加可能](https://www.yomiuri.co.jp/economy/20211015-OYT1T50161/)
 
-知名职场社交平台领英在14日宣布，由于中共的监管要求越趋严格，该公司将关闭在中共国的服务网站。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1015AM（1-5）視頻備用.003.jpeg)
-领英发表声明时仅含蓄表示，该决定是由于大陆营运环境已更具挑战性，而中方当局要求遵守的规定也更多。 据熟悉内情人士透露，中共的网路监管机构曾告诉领英的负责人，必须加强规范网页的内容，并限令30天做到。 近日有许多积极关注中国人权情势的活跃人士、学者、和记者，他们在领英平台上的个人档案已遭中共封锁。
-
-在领英宣布退出中国后，最后一个可在中国大陆公开连线的美国社群网站也将走入历史。
-(本文仅代表作者观点)
-
-参考链接：[中共當局監管趨嚴 領英將關閉中國網站](https://www.cna.com.tw/news/firstnews/202110140401.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：FoxRina
-编辑/校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

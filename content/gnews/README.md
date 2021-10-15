@@ -15,128 +15,128 @@
 
 ---
 
-### [鲁比奥等参议员呼吁 从华为剥离的荣耀必须列入黑名单](/content/gnews/1/README.md)
+### [针下亡魂｜美国 21 岁医科生接种疫苗1日后死亡](/content/gnews/1/README.md)
+ ` G&#124;News TAIWAN`
+
+### [台湾24岁男子注射阿斯利康疫苗18天后死亡](/content/gnews/2/README.md)
+ ` 日本东京方舟农场`
+
+### [疫苗接种者，乘坐专属列车，享受定制旅游](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [鲁比奥等参议员呼吁 从华为剥离的荣耀必须列入黑名单](/content/gnews/4/README.md)
  ` GTV新闻访谈`
 
-### [美国重返联合国人权理事会 或与中共正面对决](/content/gnews/2/README.md)
+### [中共国限制医疗器械进口，自给自足？](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国重返联合国人权理事会 或与中共正面对决](/content/gnews/6/README.md)
  ` GTV新闻访谈`
 
-### [中共管制趋严 领英Linkedin退出中共国](/content/gnews/3/README.md)
+### [中共管制趋严 领英Linkedin退出中共国](/content/gnews/7/README.md)
  ` GTV新闻访谈`
 
-### [G时评：原创时政小段子（强迫症）](/content/gnews/4/README.md)
+### [G时评：原创时政小段子（强迫症）](/content/gnews/8/README.md)
  ` GISELLE`
 
-### [中共欲给14岁以下女孩接种宫颈癌疫苗](/content/gnews/5/README.md)
+### [中共欲给14岁以下女孩接种宫颈癌疫苗](/content/gnews/9/README.md)
  ` GTV新闻访谈`
 
-### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（十一）](/content/gnews/6/README.md)
+### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（十一）](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [随着能源危机加剧和工厂停工，中共国接纳澳洲的煤炭](/content/gnews/7/README.md)
+### [随着能源危机加剧和工厂停工，中共国接纳澳洲的煤炭](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [台防长称若遭中共侵略国军将应战](/content/gnews/8/README.md)
+### [台防长称若遭中共侵略国军将应战](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [西方知名的病毒专家重磅演讲戳穿疫苗谎言](/content/gnews/9/README.md)
+### [西方知名的病毒专家重磅演讲戳穿疫苗谎言](/content/gnews/13/README.md)
  ` 澳喜农场`
 
-### [【樱花宅急便】冰冷数字后消失的长者](/content/gnews/10/README.md)
+### [【樱花宅急便】冰冷数字后消失的长者](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（十）](/content/gnews/11/README.md)
+### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（十）](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共在演练一场会引发大规模全球冲突的战争](/content/gnews/12/README.md)
+### [中共在演练一场会引发大规模全球冲突的战争](/content/gnews/16/README.md)
  ` 澳喜农场`
 
-### [为什么说中美之间必有一战？](/content/gnews/13/README.md)
+### [为什么说中美之间必有一战？](/content/gnews/17/README.md)
  ` 波士顿五月花农场`
 
-### [圣诞老人因为没接种中共病毒疫苗而失业](/content/gnews/14/README.md)
+### [圣诞老人因为没接种中共病毒疫苗而失业](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [疫苗中的核糖核酸 (RNA)信使将与人体所有的酶和蛋白质相互作用，它可以将RNA转换成DNA，从而将病毒蛋白整合到人体的基因组](/content/gnews/15/README.md)
+### [疫苗中的核糖核酸 (RNA)信使将与人体所有的酶和蛋白质相互作用，它可以将RNA转换成DNA，从而将病毒蛋白整合到人体的基因组](/content/gnews/19/README.md)
  ` MG 澳喜农场多语组`
 
-### [习近平对王岐山金融领域大清洗，马云在香港进行反击](/content/gnews/16/README.md)
+### [习近平对王岐山金融领域大清洗，马云在香港进行反击](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：前美国卫生部门官员呼吁川普站出来停止疫苗接种](/content/gnews/17/README.md)
+### [秘翻在线：前美国卫生部门官员呼吁川普站出来停止疫苗接种](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中国共产党对全球民主国家的非军事作战](/content/gnews/18/README.md)
+### [中国共产党对全球民主国家的非军事作战](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [虚伪表演：台湾是中国的台湾，轮不到美国说三道四](/content/gnews/19/README.md)
+### [虚伪表演：台湾是中国的台湾，轮不到美国说三道四](/content/gnews/23/README.md)
  ` 儒为`
 
-### [秘翻在线：意大利强推绿色通行证并未提高疫苗接种率](/content/gnews/20/README.md)
+### [秘翻在线：意大利强推绿色通行证并未提高疫苗接种率](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [解读美国海狼级核潜艇南海撞击事件](/content/gnews/21/README.md)
+### [解读美国海狼级核潜艇南海撞击事件](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共病毒制造者、疫苗推广者和疫苗生产者之间的惊人联系](/content/gnews/22/README.md)
+### [中共病毒制造者、疫苗推广者和疫苗生产者之间的惊人联系](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线：新世卫病毒溯源小组吸纳了更多被中共勾兑的“科学家”](/content/gnews/23/README.md)
+### [秘翻在线：新世卫病毒溯源小组吸纳了更多被中共勾兑的“科学家”](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [业务焦虑！华为入局医疗器械行业](/content/gnews/24/README.md)
+### [业务焦虑！华为入局医疗器械行业](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [揭穿中共“为人类和平发展进步作出新的重要贡献”的大骗局](/content/gnews/25/README.md)
+### [揭穿中共“为人类和平发展进步作出新的重要贡献”的大骗局](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [疫苗强制令引起的停工潮迅速蔓延至21家航空公司](/content/gnews/26/README.md)
+### [疫苗强制令引起的停工潮迅速蔓延至21家航空公司](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [应对“中共的海洋活动”！日本最强潜艇下水](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共“翼龙”无人机挂“新弹”现身埃及空军建军纪念日](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：世卫组织已成为中共宣传的一部分](/content/gnews/29/README.md)
+### [秘翻在线：世卫组织已成为中共宣传的一部分](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [航空从业者大面积拒绝强制疫苗接种将导致航空公司关门](/content/gnews/30/README.md)
+### [航空从业者大面积拒绝强制疫苗接种将导致航空公司关门](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [歌曲：把酒倒满](/content/gnews/31/README.md)
+### [歌曲：把酒倒满](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [DC大中华时事：中共认为美国已经失去向台湾承诺的资本](/content/gnews/32/README.md)
+### [DC大中华时事：中共认为美国已经失去向台湾承诺的资本](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [初中生未戴口罩被戴手铐示众 家长提诉讼](/content/gnews/33/README.md)
+### [初中生未戴口罩被戴手铐示众 家长提诉讼](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [疫苗强制令导致的人员短缺日益严重，使社区处于危险境地](/content/gnews/34/README.md)
+### [疫苗强制令导致的人员短缺日益严重，使社区处于危险境地](/content/gnews/36/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [VAERS：可能至少有 16万美国人死于新冠病毒疫苗](/content/gnews/35/README.md)
+### [VAERS：可能至少有 16万美国人死于新冠病毒疫苗](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：美国前总统克林顿住进重症监护室 住院原因众说纷纭](/content/gnews/36/README.md)
+### [秘翻在线：美国前总统克林顿住进重症监护室 住院原因众说纷纭](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [政治经济梗：日本新首相岸田宣布议会解散诏书](/content/gnews/37/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [护士吹哨：医院从未不堪重负](/content/gnews/38/README.md)
+### [护士吹哨：医院从未不堪重负](/content/gnews/39/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：拜登气候特使克里向中共国公司投资了一百多万美元](/content/gnews/39/README.md)
+### [秘翻在线：拜登气候特使克里向中共国公司投资了一百多万美元](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [10/6郭文贵盖特：共产党一定死于以假治国、以黑治国、以警治国（粤语配音）](/content/gnews/40/README.md)
+### [10/6郭文贵盖特：共产党一定死于以假治国、以黑治国、以警治国（粤语配音）](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共国是美国第一威胁 陆军年会展示最新武器装备](/content/gnews/41/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [每日快报：世界上最大的房地产市场正在崩溃](/content/gnews/42/README.md)
  ` 喜马拉雅-华盛顿DC农场`

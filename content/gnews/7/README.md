@@ -2,42 +2,33 @@
 ---
 
 
-## 随着能源危机加剧和工厂停工，中共国接纳澳洲的煤炭
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1596036/)
+## 中共管制趋严 领英Linkedin退出中共国
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596066/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GettyImages-1231937500-e1634097009429.jpg)图片来源：fortune.com
-#### 编译：小红帽
+作者：云豹
 
-在面临停电和工厂停工的情况下，能源匮乏的中共国对澳大利亚煤炭的禁令已被非正式地取消。这是一种耻辱性的损失。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-Braemar ACM船舶经纪公司的货运分析师尼克·里斯蒂奇（Nick Ristic）表示，在中共国港口外等候的少数澳大利亚货物获准靠泊和卸货。
 
-里斯蒂奇先生告诉《纽约数字新闻》（New York Digital News），他认为有45万吨煤炭被卸下。
 
-其他分析师引用了较低的数字，但所有人都同意，中共国关于惩罚澳大利亚的强硬言论未能经受住即将到来的第一个冬天的寒流和相关经济影响。
+知名职场社交平台领英在14日宣布，由于中共的监管要求越趋严格，该公司将关闭在中共国的服务网站。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1015AM（1-5）視頻備用.003.jpeg)
+领英发表声明时仅含蓄表示，该决定是由于大陆营运环境已更具挑战性，而中方当局要求遵守的规定也更多。 据熟悉内情人士透露，中共的网路监管机构曾告诉领英的负责人，必须加强规范网页的内容，并限令30天做到。 近日有许多积极关注中国人权情势的活跃人士、学者、和记者，他们在领英平台上的个人档案已遭中共封锁。
 
-随着寒冷天气席卷中共国大部分地区，发电厂争相囤积煤炭，燃料价格创历史新高，中共国的能源危机已经加深。
+在领英宣布退出中国后，最后一个可在中国大陆公开连线的美国社群网站也将走入历史。
+(本文仅代表作者观点)
 
-由于季节性天气模式带来从中共国北方吹来的寒风，预计家庭和办公室的供暖电力需求将猛增。
+参考链接：[中共當局監管趨嚴 領英將關閉中國網站](https://www.cna.com.tw/news/firstnews/202110140401.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-预报员预测，在接下来的2-3天内，一些中部和东部地区的平均气温可能会下降多达16摄氏度。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-煤炭短缺、燃料价格高企和大流行后工业需求的蓬勃发展，引发了这个世界第二大经济体的普遍电力短缺。
+新闻访谈终审：FoxRina
+编辑/校正/发稿：我不在这里
 
-自9月以来，中共国30多个地区中至少17个地区已经实施电力配给，迫使一些工厂停产，扰乱了供应链。
-
-吉林、黑龙江和辽宁这三个东北省份是上个月受电力短缺的重灾区，包括内蒙古和甘肃在内的华北几个地区已经开始以煤炭为燃料的冬季供暖，以应对比正常天气更冷的的情况。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[China admits Australian coal as energy crisis grows (thenewdaily.com.au)](https://thenewdaily.com.au/news/world/asia-news/2021/10/15/china-unloads-australian-coal/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

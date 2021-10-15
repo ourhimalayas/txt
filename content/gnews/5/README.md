@@ -2,28 +2,18 @@
 ---
 
 
-## 中共欲给14岁以下女孩接种宫颈癌疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596054/)
+## 中共国限制医疗器械进口，自给自足？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596086/)
 
-作者：在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月14日，文贵先生盖特发文称，全世界人民饱受CCP病毒和毒疫苗戕害的同时，中共山东济南市率先启动为未成年幼女接种HPV宫颈癌疫苗的计划，该计划预计11月份正式开始执行。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1015AM（1-5）視頻備用.002.jpeg)
-HPV疫苗用于预防病毒感染引起的宫颈癌，于2014年在美国获批上市。2018年4月28日，HPV疫苗在中国上市，其接种适应年龄范围应该是16岁至26岁的女性。而此次中共继在鄂尔多斯和厦门之后，再次将济南等15个城市作为试点城市,   给9至14岁 幼女施打 HPV疫苗，却对宫颈癌高发年龄的35～64岁女性仅仅进行“筛查”，这一反常的举措在人民福利为零的中共国，在全世界“疫苗战争”的关键时间点，都说明了其中蕴含着阴谋。目前广东省也正在推进适龄幼女HPV疫苗的接种，并称 “争取成为第一个全面接种HPV疫苗的省份”。
-(本文仅代表作者观点)
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-279.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnews.gbimonthly.com%2Fupload%2Farticle%2F2020%2F11%2F%25E9%2586%25AB%25E7%2599%2582%25E5%2599%25A8%25E6%259D%2590.jpg&amp;imgrefurl=https%3A%2F%2Fnews.gbimonthly.com%2Ftw%2Farticle%2Fshow.php%3Fnum%3D34773&amp;tbnid=yMpwn_5UBOZD5M&amp;vet=12ahUKEwjZtJ_UuszzAhXChXIEHRZFDC8QMygeegUIARDsAQ..i&amp;docid=2h3rblppW6MxuM&amp;w=1280&amp;h=720&amp;itg=1&amp;q=%E5%8C%BB%E7%96%97%E5%99%A8%E6%9D%90&amp;ved=2ahUKEwjZtJ_UuszzAhXChXIEHRZFDC8QMygeegUIARDsAQ)
+网易新闻近日报道，国家财政部及工信部联合发布的《政府采购进口产品审核指导标准》通知流出，这份通知明确规定了政府机构（事业单位）采购国产医疗器械及仪器的比例要求。其中137种医疗器械全部要求100%采购国产；12种医疗器械要求75%采购国产；24种医疗器械要求50%采购国产；5种医疗器械要求25%采购国产。这项标准从全国范围内，把公立医院在内的单位，采购国产仪器设备的比例进行强制规范。
 
-参考链接：[全国首批试点！济南11月起14岁以下免费接种HPV 疫苗](https://baijiahao.baidu.com/s?id=1711145025842353973&amp;wfr=spider&amp;for=pc)
+中共国医疗企业多少多是“作坊生产”从未进入世界前100名医疗器械名单，要求采购国产设备而有不足以解决问题，中共国财政部要求限制进口137种医疗器械名单中多是手术医疗器械和各种仪器设备，在外汇枯竭的情况下也是中共国不得已的选择。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+消息来源：[国家财政部：进一步限制进口，137种医疗器械全部采购国产](https://mo.mbd.baidu.com/r/uwGl3JiK4M?f=cp&amp;rs=740884740&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0a5c16729399eec6)
 
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/ 知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
