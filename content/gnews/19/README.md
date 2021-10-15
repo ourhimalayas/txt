@@ -2,34 +2,26 @@
 ---
 
 
-## 日本要闻汇编
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1595079/)
+## 有声|联邦法官准许纽约医护人员对疫苗强制政策申请宗教豁免
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1595120/)
 
-素材：东京樱花团｜GNEWS组
-![](https://lh3.googleusercontent.com/MSGwgCBwRJMe0CdqQw1krRDInWdvYL8REDLdvwuKPs4WTiIWhPOjp2CJVBbFDPTE6KDRGJaPj48tXViPryh4gSSiRPKIN5DxQL-SwrYDK3K4r-rzd-aPESjlWP4QAjCqjT2wAY3y=s0)[*图片来源*](https://img.kyodonews.net/chinese/public/images/posts/0a7fac31b125d5c34afb43391999bcc0/photo_l.jpg)
-9月15日汇编
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月12号，一名联邦法官暂时允许纽约的医护人员对该州的新冠疫苗强制政策申请宗教豁免。上个月，17名医护人员，许多匿名提起诉讼，反对纽约州卫生部的疫苗强制政策及不允许宗教豁免。美国地区法官大卫-赫德周二作出裁决，批准了一项初步禁令，允许医护人员申请其雇主考虑的宗教豁免。赫德还禁止卫生部对那些寻求或获得宗教豁免的医护人员的执照、证书、居住权或其他专业身份采取纪律处分或其他行动。
 
-1、[**日本31日举行大选 岸田展现必胜决心**](https://china.kyodonews.net/news/2021/10/a7373a15b979-31-.html)
+本案原告的首席律师赞扬了法官的裁决。称”通过这项裁决，法院正确地认识到，昔日抗疫的’前线英雄’突然被当作携带病毒的恶棍，被州卫生局一纸命令踢到路边。抗议疫苗任务的医护人员这样做是因为他们反对被迫接种使用 “堕胎 “的 “胎儿细胞系 “的疫苗。
 
-共同社消息，日本朝野政党14日在众院解散后实际上进入了选战，政府在当天傍晚的临时内阁会议上正式决定大选日程为“19日发布公告、31日投计票”。17天的短期决战拉开了帷幕。岸田晚间在官邸举行记者会，表示将在疫情应对和经济对策上做到万无一失。岸田提出胜败分界线是执政党取得过半数议席。
+纸终将包不住火，主流媒体也开始慢慢转变风向。
 
-2、[**台积电拟在日本熊本建新工厂**](https://china.kyodonews.net/news/2021/10/e0effaa721fa.html)
+文字版原文：[联邦法官准许纽约医护人员对疫苗强制政策申请宗教豁免](https://gnews.org/zh-hans/1592514/)
 
-共同社消息，全球半导体巨头台湾积体电路制造公司（TSMC）14日宣布，计划2022年在日本动工建设新工厂，2024年投产。拟建在熊本县，正就此展开协调。据悉将与索尼集团共同建设，拟生产车用半导体等。据悉将生产制程为22纳米（1纳米为10亿分之1米）和28纳米的产品。经济产业省称，该级别的产品可能向汽车和家电提供。美中对立激化，对日本而言加强重要物资半导体的供应链成为当务之急。
-
-3、[**日本制铁状告丰田和中国宝钢侵权**](https://china.kyodonews.net/news/2021/10/9d6678dee6cf.html)
-
-日本制铁公司14日宣布，以该公司拥有的“无方向性电磁钢板”的高性能产品相关专利遭侵权为由，当天已向东京地方法院提起诉讼，对丰田汽车公司和中国钢铁巨头宝山钢铁公司分别索赔约200亿日元（约合人民币11亿元）。还申请了叫停丰田公司电动车在日本国内制造和销售的临时处分。日铁主张，宝山钢铁在日本销售侵犯了成分和板材厚度等制造技术相关专利的电磁钢板，而丰田在采用该产品。这是日铁首次因侵犯专利权起诉汽车厂商。
-
-4、[**海自新型潜艇“白鲸”号举行下水仪式**](https://china.kyodonews.net/news/2021/10/b270ffc2c3b4.html)
-
-据共同社报道，计划2023年3月在日本海上自卫队服役的最新型潜艇的命名及下水仪式14日在神户市的川崎重工业公司神户工厂举行，舰名定为白色鲸鱼之意的“白鲸”。据海自和该公司介绍，“白鲸”号是去年举行下水仪式的“大鲸”型潜艇的2号舰。标准排水量约3000吨，全长84米，宽9.1米，是国内最大级别，提升了难以被探测到的隐形性能，通过搭载锂离子电池延长了潜航时间。荷载船员约70人，建造费约720亿日元（约合人民币41亿元）。
-
-5、[**东京股市反弹上涨1.46% 半导体板块受追捧**](https://china.kyodonews.net/news/2021/10/cb2b296fa651-146-.html)
-
-东京股市14日大幅反弹。日经指数收报28550.93点，上涨410.65点，创约两周高点，涨幅为1.46%。美国长期利率上升势头暂歇利好股市，半导体等高科技板块领涨大盘。随着日本众院的解散，对选举期间股市上涨的期待也支撑了投资者的信心。东证指数（TOPIX）上涨13.14点，收报1986.97点，涨幅为0.67%。全天成交量约为11.52亿股。
-
-（本文只代表个人观点，与Gnews网站无关）
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

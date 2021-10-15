@@ -2,45 +2,50 @@
 ---
 
 
-## 使用经营贷炒房的也即将爆雷
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1594900/)
+## 参议员瑞克·斯科特：要求拜登加入我的呼吁,将 2022 年奥运会从共产主义中国移走
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1594950/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图虫创意-1131364677267619850.jpg)图片来源：时代在线
-**作者：**顺其自然
-**编辑：**翼族
+参议员瑞克·斯科特： 在几个月的完全无所作为和沉默之后，今天我再次要求乔·拜登加入我的呼吁，将 2022 年奥运会从 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 移走，并保护美国运动员和美国队的安全和个人信息免受中共国的侵入性监视。 【附斯科特参议员官网声明】
 
-我们知道，在2020年疫情之后，中共政府为了促进实体行业的发展，渡过难关，推出了经营贷。经营贷的利息很低，大概为百分之三点几，于是就有很多人，尤其是炒房客，把政府用来扶持中小企业的经营贷去炒房，当然这里面也少不了银行的暗中帮助，这也是2020年房地产在原本要凉凉的情况下又突然火爆的原因，深圳、上海、杭州，凡是房事火爆的城市都有经营贷的影子。因为经营贷几乎比正常的房贷利率低一半，所有无论有无实体企业的，在某些中介的操作下，注册一个壳公司，也拿到了经营贷，这中间的很多都是炒房客。
 
-但现在，这帮用经营贷炒房的炒房客要完蛋了！因为明年绝大多数经营贷要到期了，需要续贷。有人说经营贷不是有10年吗？不短啊……其实经营贷大部分是三年，只是到期可以续一两次而已。
 
-现在主要问题是，之前按市场价贷的，现在到期后的续贷要按指导价。在银行工作的某位人士说，现在如果房贷调控的方向不变的话，明年深圳肯定要出现很多法拍房的，因为明年会有不少人，之前是通过高评高贷获得的经营贷，现在贷款要到期了，如果续期的话，就要按照二手房的指导价来进行发放，直接发放给他们的贷款要减少一半，杠杆一下子就要断了。另外，现在金融机构审批给房地产，投放贷款的额度也减少了很多。该人士说，现在到银行去打听经营贷续贷事情的很多人都是之前用经营贷买的房，现在距离续贷只剩下半年一年时间，每个人都在害怕到时候办不下来。
+> After MONTHS of complete inaction & silence, today I again demanded Joe Biden join my call to move the 2022 Olympics out of Communist China & protect the safety & personal information of American athletes & Team USA from China's invasive surveillance. [https://t.co/zClmB4xUyr](https://t.co/zClmB4xUyr)
+> — Rick Scott (@SenRickScott) [October 14, 2021](https://twitter.com/SenRickScott/status/1448778039031181320?ref_src=twsrc%5Etfw)
 
-这里面确实存在很大风险，尤其是那些杠杠太高的人会很麻烦。除非一开始贷的比较少的人，风险还可控制。
 
-所谓经营贷，就是个人经营贷款，主要是为了帮助中小企业主或个体工商户经营发展，贷款利率最低可做到百分之三点八五。作为对比的数据，目前各地房贷利率大多约为5%-6%左右。千万别小看这两个点的利率差别，用一线城市的房价算下来，利息节省百八十万根本不是问题。
 
-经营贷买房的操作方法也并不复杂，常规操作方法是中介先为买房者注册或过户一家公司，并伪造经营流水，让买房者变身经营者，然后找垫资公司为买房者提供一笔过桥资金来全款买房，房子过户到购房者名下后，再把房子作为抵押物向银行申请经营贷来偿还过桥资金。基本上，只要你想买房，哪怕手里没有一分钱，通过经营贷也能实现买房梦。因为中介公司能帮你搞定一切。
+参议员瑞克·斯科特： 我很高兴[@LinkedIn](https://twitter.com/LinkedIn)和微软正在努力解决我对于（中共国）对美国人不可接受的审查制度的担忧。 每家美国公司都需要在全球范围内支持言论自由，并反对 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 及其种族灭绝和侵犯人权的行为。这是一个好开始。 【附华尔街日报的新闻：微软说将关闭在中国的LinkedIn网站】
 
-除去专业的炒房客，其实还有很多人只是想多买个一两套房，或者是两三套房，用房子保值或者躺着用房子的出租来为自己赚钱。这些人认为房价永远涨——我这个钱放在家里边，将来要大通胀的也会贬值，而且周围的人一直说的买房防通胀。其实，房既是债，债即是房，是老百姓借债推动了大通胀，推动了房市的发展，但是很多人不懂，就是认为买房才能防通胀，这是因果倒置。许多人又不懂国家的政策财经，听中介一忽悠，中介还告诉他可以贷个10年20年没问题。还有的人说，国家现在别的产业都不行了，一定要保房地产，房价肯定还会涨的，房价肯定不会掉下来的。所以很多人也就听了中介的忽悠，然后就用了这种经营贷来买房。
 
-但是现在大家已经知道了，由于房价已经过高，出生率又出现断崖式下跌，中共政府已经看到了这一点，为了将来长远的发展，它肯定是需要打压房价的，而且最主要的就是房价过高，影响了实体业的发展。再有就是中央政府、地方政府和老百姓都欠了一屁股的债，债务太多将来肯定会爆发债务危机，政府自身也是非常害怕的，所以即使现在不让房价暴跌，要稳住，但也不可能继续让房价再涨下去了。政府对房价的调控不会放松。现在的成交价就是按照政府的指导价来定的。
 
-所以现在政府在经营贷上下了狠手，再续贷的时候是按照二手房的指导价来评估，来贷款，因为大家知道二手房指导价比实际的价格要低很多，按二手房指导价来拿贷款的话可以拿到的贷款额度很低，中间的差价是需要自己来补上的，很多人并没有那么多的资金来补齐中间的差价，最后就只能把这些房子扔给法院去做法拍房。
+> I’m glad [@LinkedIn](https://twitter.com/LinkedIn?ref_src=twsrc%5Etfw) & [@Microsoft](https://twitter.com/Microsoft?ref_src=twsrc%5Etfw) are working to address my concerns over the unacceptable censorship of Americans.
+> 
+> Every U.S. company needs to stand for free speech worldwide & take a stand against Communist China & its genocide & human right abuses. This is a good start. [https://t.co/DOQK6PboTh](https://t.co/DOQK6PboTh)
+> — Rick Scott (@SenRickScott) [October 14, 2021](https://twitter.com/SenRickScott/status/1448762596975382533?ref_src=twsrc%5Etfw)
 
-因此现在很多使用经营贷买房的人，都成为了热锅上的蚂蚁，天天打听国家的房贷政策。再有，原本经营贷是给中小微企业用来经营实业的，在推出的时候，中共政府就明文规定不可以用于炒房，不可以用作它用。所以这些炒房客如果现在偿还不了贷款，不仅首付会被银行拿走，还会被追索骗贷的刑责，很多人有可能就会进入监狱了。
 
-房价现在升得如此之高，当然与地方政府和开发商有关系，但是炒房客在房价上涨的过程中也是功不可没的，所以现在他们受到惩罚，或者房子变成法拍房，或甚至有人因此入狱，也是他们应得的。辛辛苦苦做实业的制造业业主们，这几年惨淡经营，活的非常的累，还不如炒房客炒房赚的钱多。
 
-这种现象表明一个国家的经济已经走上了歪路，一个国家要让人民富足，只有发展制造业才是正途。现在不止是中国，全世界都在走这一条路，澳洲也是一样的，虽然我们有房子，但是我也不希望房价涨得过高，因为将来对我们的儿女是一种很大的伤害。就像高晓松说的那句话——生活不止有眼前的苟且，还有诗和远方。但是过高的房价，使得孩子们一毕业就想着要买一套房，然后辛辛苦苦工作，为银行打工一辈子，这将会是非常扭曲的生活方式。
+参议员汤姆·科顿： 在艾伦·埃斯特维兹确认他将解决 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 构成的威胁之前，他无权在商务部任职。 【附科顿参议员官网声明】
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
 
-**YOUTUBE链接：**[闲聊澳洲](https://www.youtube.com/channel/UCPxB0vpNpmHN0hORXK4gj2A)
 
-*发布：翼族*
+> Until Alan Estevez confirms that he will address the threat posed by the Chinese Communist Party, he has no business serving at the Department of Commerce.[https://t.co/uGFCcnO43d](https://t.co/uGFCcnO43d)
+> — Tom Cotton (@SenTomCotton) [October 14, 2021](https://twitter.com/SenTomCotton/status/1448758126006657025?ref_src=twsrc%5Etfw)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+美国第780军事情报旅(网络)： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在南亚的影响力：四个国家的脆弱性和韧性 【附卡内基捐赠基金网[http://Carnegieendowment.org](https://t.co/O2KmgjJU98?amp=1) 同名文章链接】“孟加拉国、马尔代夫、尼泊尔和斯里兰卡展示了 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在一个非常多维地区的参与战略的多样性，但也表明南亚的影响者们正在相互学习与中共国金钱和权力(关系)的经验。
+
+
+
+> China’s Influence in South Asia: Vulnerabilities and Resilience in Four Countries [https://t.co/vOwy8iEFHf](https://t.co/vOwy8iEFHf) via [@CarnegieEndow](https://twitter.com/CarnegieEndow?ref_src=twsrc%5Etfw)
+> — 780th Military Intelligence Brigade (Cyber) (@780thC) [October 14, 2021](https://twitter.com/780thC/status/1448696155664179209?ref_src=twsrc%5Etfw)
+
+
+
+参议员卢比奥媒体办公室： 卢比奥参议员欢迎哈佛大学 [@Harvard](https://twitter.com/Harvard) 把他们的中文暑期项目从 [#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 移到 [#台北](https://twitter.com/hashtag/%E5%8F%B0%E5%8C%97?src=hashtag_click) 的决定。[#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 向全世界提供了独特的机会，可以学习中国的语言，传统和文化，不受 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 的压迫。其他的美国大学也应该效仿。（转纽时，哈佛把受欢迎的中文项目转移到台北）
+
+
+
+> Sen.Rubio welcomes [@Harvard](https://twitter.com/Harvard?ref_src=twsrc%5Etfw)’s decision to move its Chinese language summer program from [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw) to [#Taipei](https://twitter.com/hashtag/Taipei?src=hash&amp;ref_src=twsrc%5Etfw).[#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) offers the world a unique opportunity to learn about Chinese language,traditions, & culture free from [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) repression. Other U.S. universities should follow suit. [https://t.co/7BX0xdTtHz](https://t.co/7BX0xdTtHz)
+> — Senator Rubio Press (@SenRubioPress) [October 14, 2021](https://twitter.com/SenRubioPress/status/1448660962148372488?ref_src=twsrc%5Etfw)
