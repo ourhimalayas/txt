@@ -2,79 +2,35 @@
 ---
 
 
-## 樱花灭共段子之长津湖冰雕连之思、逻辑课堂之蛋生和怪胎
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1594786/)
+## 比特币价格竞猜结果出炉 你中奖了吗？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1594888/)
 
-#### 撰稿：东京樱花团/修文
-![](https://assets.gnews.org/wp-content/uploads/2021/10/7-10.jpg)
-【长津湖 冰雕连 之思】
+新闻收集：香草山写作组 – 文斗
 
-援朝战争初期的楷模— —长津湖的冰雕连。
 
-僵卧冻土等待伏击敌人，等来的是风雪和死神。说他们忠于职守，宁可送命也要完成任务。说他们成为炮灰，援朝本来就是不义之举。他们就是这场南辕北辙之行的缩影。
 
-再思当年的出兵，如没有赴死的决心，没有惨烈的胜利。也许朝鲜会直接解放，两韩统一而和平，朝鲜人民不必见识地狱。也许中国会提早开放，减少饥荒和落后。免于三十年封锁而内耗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-一次出兵，两者皆输。三家邻居变仇敌。只证明在错误的道路上越努力，就越远离目标。
 
-当年的南辕北辙，造成今天的南韩北朝。
 
-[盖特链接](https://www.gettr.com/post/pdtani6e55)
+9月15日，由喜马拉雅交易所主办的比特币价格竞猜结果公布。
 
-【逻辑课堂】之《蛋生》
+BTC在2021年10月13日 23:59:00的正确价格为USD： 57,401.1，
 
-五毛：上节课说到共产党也从辛亥革命诞生，所以民国和共产党都继承了辛亥革命的正义性。
+获胜者的竞猜价格：USD 57,407.26。误差仅7.16美元。
 
-樱团子：不对，共产党是苏联来的。
+这名中奖者账号是：z\*\*\*\*\*[\[email protected\]](/cdn-cgi/l/email-protection)\*\*\*\*\*\*\*\*l.com。
 
-五毛：啊～伟大的苏联！中国共产党在那里蛋生。
+主办方同时公布了前10名名单。看看自己是不是进十强？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-14-at-8.32.38-PM.png)
+编辑/发稿：正义的小新
 
-樱团子：不对，你说的那是南湖。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-五毛：啊～伟大的南湖！早期领导人在那里蛋生。
-
-樱团子：不对，你说的那是上海。
-
-五毛：啊～伟大的上海！早期根据地在那里蛋生。
-
-樱团子：不对，你说那是井冈山。
-
-五毛：啊～伟大的井冈山！早期苏维埃在那里蛋生。
-
-樱团子：不对，你说那是江西。
-
-五毛：啊～伟大的江西……
-
-樱团子：等一下，你一个也没说对，而且你这是数典忘祖啊。
-
-五毛：这是一盘大棋，岂是你等能参悟透的。
-
-樱团子：这些地方没有一个跟辛亥革命的武昌有关系。你列举这么多蛋生做什么呢？
-
-五毛：鸡蛋不能只放在一个筐里，分散投资才保险。所以哪里有筐，我党就在哪里蛋生。
-
-樱团子：你这是流窜作案。
-
-[盖特链接](https://www.gettr.com/post/pdvxl14078)
-
-【逻辑课堂】之《怪胎》
-
-樱团子：逻辑课堂又开课啦。
-
-樱团子：上一课讲到辛亥革命和一脉相承的民国是正义的，共产党是反动的。
-
-五毛：不对，共产党也是正义的。民国和共产党都继承了辛亥革命的正义性，是平等的关系。所以共产党可以推翻民国。
-
-樱团子：辛亥革命1911年发生，共产党1921年诞生，隔了十年是怎么继承辛亥革命的？
-
-五毛：共产党不是蛋生的，应该是胎生的。人需要怀胎十月，党就需要怀胎十年。
-
-樱团子：你说这是怪胎
-
-[盖特链接](https://www.gettr.com/post/pdvz5861da)
-
-(文章仅代表作者本人观点，与GNEWS无关)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

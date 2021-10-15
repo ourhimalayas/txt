@@ -2,79 +2,63 @@
 ---
 
 
-## 病毒疫苗的本质是种族大屠杀
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1594718/)
+## 台积电计划明年在日本建新厂
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1594843/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/111-a9tt5-a2nj0.jpg)
-[https://gtv.org/video/id=61681731d2e2b81748751d1c](https://gtv.org/video/id=61681731d2e2b81748751d1c)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**郭文贵
-Miles Guo**
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/T-5.jpg)nau.ch
+《台北时报》（Taipei Times）发表文章，题目“台积电计划在日本建厂”，副标题称，这家总部位于台湾新竹的芯片制造商表示，其目标收入将达到 154 亿美元，并计划在今年晚些时候生产 3 纳米芯片。
 
-烂账、烂房把西方经济绑架，疫苗病毒，把西方全部Lockdown
-Bad debts and bad mortgages have kidnapped the western economy, and the vac-cine and the virus have locked down all of the West
+全文如下：
 
-司法界、媒体、社交媒体全部控制
-The judiciary, the media, and social media are all controlled by them
+台积电亚洲时间今天（10月15日）宣布，计划明年在日本建立新工厂，生产 22 纳米和 28 纳米芯片，以扩大其全球制造能力。
 
-对犹太人、对世界上的种族，中东人进行一种完全的种族大屠杀
-A complete genocide against Jews, races in the world, and Middle Easterners
+这家全球最大的芯片代工厂表示，台积电的日本工厂将于 2024 年开始运营，结束了人们数月来的猜测。
 
-你觉得未来6个月到12个月你的日子还像今天坐在这儿（直播），是不是
-Do you think your life in the next 6 to 12 months will be the same, like sitting here today and live broadcast, right?
+台积电首席执行官魏哲家在季度投资者会议上说：“我们得到了客户和日本政府大力支持该项目的承诺。”“我们相信，全球制造能力的扩大将使我们能够更好地满足客户的需求并吸引全球人才，同时从我们的投资中获得适当的回报，并为我们的股东带来长期的盈利增长。”
 
-你们能这么过吗？澳大利亚也会这么过吗？新西兰你会这么过吗？
-Can you still live like this? Will Australia live like this? Will New Zealand live like this ?
+魏拒绝透露有关晶圆厂产能和财务安排的更多细节，该公司也没有直接回答是否会成为合资企业。
 
-而且现在你会发现所有的推广疫苗的政府官员全部被lobby了
-And now you will find that all government officials who promote vaccines have been lobbied by the Pharmaceutical companies
+这家芯片制造商表示，在海外建厂时，将根据具体情况考虑与其他公司或主要客户合资。
 
-全被又游说的，全是为了钱
-All have been lobbied and all for the money
+通常，台积电拥有 100%海外业务（的股份），例如在中共国和美国的业务。
 
-现在疫苗你看新加坡、澳大利亚病例增长情况，几乎是打疫苗最高（的国家）Looking at the increase in the number of vaccination cases in Singapore and Australia, it’s almost the country with the highest number of vaccinations
+上周，《日经新闻》（The Nikkei）报道称，台积电和索尼集团（Sony Group）正在考虑在熊本县（Kumamoto Prefecture）建立一家工厂，生产用于汽车和相机图像传感器的芯片。
 
-接种率85%，接种率50%，你看看这是什么概念
-The vaccination rate are 85% and 50%, look at this concept
+报告称，总投资可能达到 8000 亿日元（70.4 亿美元），其中一半来自日本政府。
 
-这是大屠杀吧，兄弟姐妹们，
-This is a massacre, brothers and sisters
+除了日本，魏表示，台积电不排除在其它地方建设晶圆厂的可能性，包括在欧洲。
 
-我的老天爷，澳大利亚天呐，天呐，新加坡，
-Oh my god, Australia, my god, Singapore,
+日本首相岸田文雄（Fumio Kishida）昨天对台积电的决定表示欢迎，称这将有助于该国的芯片自给自足。
 
-你看看这有多可怕，这是刚刚发生的事情，
-Look at how terrible this is, this is what just happened
+即使有大量资本正在流出，这家总部位于新竹的芯片制造商昨天仍将其长期毛利率预测上调至 50% 以上，而不仅仅是 50%。
 
-所以兄弟姐妹们，疫苗推广你看看，在那个洛杉矶
-So brothers and sisters, look at the vaccine promotion in Los Angeles
+台积电表示，本季度的毛利率预计为 51% 至 53%，而上季度为 51.3%。
 
-洛杉矶可能最重要的就是消防员了
-Perhaps the most important thing in Los Angeles is the firefighters
+收入将从上一季度的 148.8 亿美元增至 154 亿美元至 157 亿美元，季度增长率为 3.5% 至 5.5%。
 
-因为洛杉矶着火，你们没有来过洛杉矶
-because of the fire in Los Angeles, you haven’t been to Los Angeles, so you don’t understand
+“进入第四季度，预计因行业领先的 5 纳米技术的支持我们将实现连续增长。”魏说，“根据第四季度的收入指引，我们今年的收入以美元计算预计将同比增长 24%。”
 
-你想消防员都哭了，说，这帮人要弄死我们，我受不了了
-Look, the firefighters are crying and saying, this group of people is going to kill us and I can’t stand it anymore
+魏还表示，该公司在开发下一代技术方面取得了进展。台积电有望在今年晚些时候开始初步生产 3 纳米芯片，然后在明年下半年开始量产用于智能手机和高性能计算应用的芯片。
 
-————————————————————
+他驳斥了有关延迟的猜测，因为外国投资咨询公司报告称，（台积电有可能推迟高性能芯片的生产）。他说，2 纳米芯片将于 2025 年问世。
 
-**原视频接:**[https://twitter.com/se1y7cblljselva/status/1447502355054743564?s=24](https://twitter.com/se1y7cblljselva/status/1447502355054743564?s=24)
+台积电昨天给出了芯片需求的积极前景，预计其今年和明年的产能将持续紧张。
 
-Date:10/13/2021
-The essence of COVID vaccine is massacre
-原视频日期：2021/10/10
-任务编号：KC171（2507）
-视频时间段 : 0:00-1:34
+这家芯片制造商发表上述言论之前，在截至9月30日的一个季度中，该公司又公布了创纪录的季度净利润1562.6亿新台币（55.6亿美元），相当于从1373.1亿台币年增长了13.8%，从1343.6亿台币季增长了16.3%。
 
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+上季度公司股票每股收益从去年同期的 5.3 新台币和前一季度的 5.18 新台币增至 6.03 新台币。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+（全文完）
+
+台积电此举是否终结了在南京生产28纳米芯片的计划？至少会分流吧？其实应该完全撤出中共国，或者进行一种维持设备运行状态的最低产能，等待那片土地获得自由、真正得解放后再放开生产。
+
+从报道来看，这个厂是台积电与索尼合作，生产用于汽车和相机图像传感器的芯片，不是文贵先生提到的AMD手机微处理器芯片，不得不佩服文贵先生的大智慧！
+
+（文章仅代表作者个人观点）
+
+原文链接：
+
+[https://www.taipeitimes.com/News/front/archives/2021/10/15/2003766139](https://www.taipeitimes.com/News/front/archives/2021/10/15/2003766139)

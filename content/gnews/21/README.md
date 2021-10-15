@@ -2,31 +2,41 @@
 ---
 
 
-## 日本制铁公司起诉中共宝钢侵权
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1594804/)
+## 苦瓜酒的酿制像极了中共国的教育
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1594899/)
 
-**撰稿：日本东京方舟农场 海星**
+作者：香草山写作组 – 静水流深
 
-10月14日，日本制铁公司宣布，已在东京地方法院对中共宝山钢铁公司提出专利权侵害诉讼，被同时起诉的还有丰田汽车公司。
 
-据《共同社》报道，日本制铁称，在日本销售的丰田电动车马达使用的电磁钢板侵害了该公司的专利权，而这种电磁钢板是由宝钢供应的，因此日本制铁在东京地方法院对这两家公司提起诉讼，要求分别赔偿约200亿日元（人民币11亿元）。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/phpkyEZB0.jpg)图片来自于网络
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-此外，日本制铁针对丰田汽车特别申请了临时禁令，要求其禁止在日本生产和销售使用了上述电磁钢板的电动车。
 
-宝钢公司早在1977年还未建成前便与日本企业来往密切，通过日本新日铁公司提供的设备和技术支持，于1985年9月15日建成。目前，宝钢公司是中共国钢铁大厂中国宝武钢铁集团的子公司。
 
-*注：本文仅代表作者观点，与 Gnews无关*
+据百度经验记录：苦瓜酒是近年来南方市场上出现的一种保健药酒，具有清热解毒、怡心明目、养血滋肝、润脾补肾等多种功效。常饮苦瓜酒可促进食欲、清热解毒、泻热通便，而且还具有预防和治疗感冒、扁桃体炎、咳嗽等作用。
 
-*参考链接：*
+对于苦瓜酒的上述功效，笔者没有查证验证，笔者也不关心。而苦瓜酒的酿制，尤其是苦瓜的选料却让笔者震惊，这也让笔者联想到了中共国的教育。
 
-[简讯：日本制铁状告丰田和中国宝钢侵权](https://china.kyodonews.net/news/2021/10/c22c1e74b8fd.html)
+苦瓜酒酿制所需的苦瓜是瓜形较长，要求瓜条充分伸长发粗，果皮青绿色，瓜体中种子开始发育但种皮尚未木质化的苦瓜。苦瓜的选料以及苦瓜何时摘下如视频所示。
+（视频来源于网络）
+统一的苦瓜，统一的玻璃瓶，统一的酿制过程，最后被一饮而尽，这难道不类似于中共国的学校教育吗？
 
-[求償200億日圓！日本製鐵告Toyota和中國寶鋼侵權](https://ec.ltn.com.tw/article/breakingnews/3703956)
+统一的教材，统一的大纲，统一的考试，统一的学习过程，统一的学校要求，最终培养的就是为中共服务的奴隶。学校教育总是要求学生整齐划一，全部做到一致，忽略了学生的个性成长，更不用提差异化教学了。谁要是没有做到统一的标准，谁就是一个另类，就是一个麻烦制造者，就是一个问题学生。在这样的各种统一的标准下，学生的思维还能正常发展吗？学生的个性特征还会被鼓励吗？学生的天性都被中共给泯灭了。
 
-[中国宝武钢铁集团](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%9B%BD%E5%AE%9D%E6%AD%A6%E9%92%A2%E9%93%81%E9%9B%86%E5%9B%A2)
+参考来源：
 
-* * *
+苦瓜酒制作方法
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+[https://jingyan.baidu.com/article/ce09321b02f55d2bff858f8e.html](https://jingyan.baidu.com/article/ce09321b02f55d2bff858f8e.html)
+
+编辑/审核/发稿：正义的小新
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
