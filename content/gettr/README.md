@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/15/2021 12:19 AM (UTC)`
+
+10月14号：尊敬的战友们好，明天10月15号，没有大直播。17号，星期天上午9点．7哥和战友们继续我们的大直播，一切都已经开始。🔥🔥🔥🌹🌹🌹
+![img](https://media.gettr.com/group29/getter/2021/10/15/00/601fcbdf-bef2-00c1-4857-09c8fb52e4cd/c0bbce8ef2cbac284b9b81e5e01cbe86.jpg)
+
+---
+
 `@miles 10/14/2021 11:26 PM (UTC)`
 
 10月14号：新中国联邦的旗帜在我们帅气，健康的战友的手中，第一次在马拉松比赛中，走向了胜利。https://www.telegram.com/picture-gallery/sports/2021/10/11/boston-marathon-2021-runners-framingham-natick-ashland-pictures/6082058001/
@@ -293,13 +300,6 @@ MILES GUO Live Stream 2021/10/11
 
 10月11号：刚才的视频大家的反应有卡顿，我再重发一次。
 ![img](https://media.gettr.com/group47/getter/2021/10/11/16/54/2e40c462-1e5c-6146-1f2c-d04c045b15ec/out.jpg)
-
----
-
-`@miles 10/11/2021 4:27 PM (UTC)`
-
-10-11日：新中国联邦人救人，无数。有种的别信……疫苗灭共将彻底的建立新中国人在世界的新形象和崇高的地位。<br/><br/>【草根小哥你好：战友送过来的药我老公一直拒绝吃，他说他医生的药不能跟我们的药一起吃，怕起反效果，等他吃完他医生的药身体还是没有好就吃我们的药，所以我一直等他的药结束，一直没有告诉你他的病情怎么样，后来他医生的药一直没有改善他的病情，所以才改吃我们的药，吃上我们的药身体马上恢复过来，太神奇，所以现在才告诉你晚一些，太感谢你的帮助谢谢🙏 我在GTV做直播了，讲一下我先生吃药的过程，让更多的战友知道爆料革命的药是救命的药。🙏】
-![img](https://media.gettr.com/group19/getter/2021/10/11/16/27/41995b2e-36a8-722a-a756-8c03ca249d63/675639c0bbf1f2c3c94f4d896779564b.jpg)
 
 ---
 
