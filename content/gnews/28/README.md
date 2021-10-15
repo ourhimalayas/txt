@@ -2,23 +2,35 @@
 ---
 
 
-## 促生育！中共全面清理涉计划生育法规
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596241/)
+## 拉脱维亚总统完整接种疫苗 仍感染中共病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596318/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/erw.jpg)[图片来源](https://read01.com/xm60dA5.html#.YWmJRxpBw2w)
-据“澎湃新闻”报道，目前中共全国人大常委会正在开展涉及计划生育法规规章、规范性文件的专项清理工作。
+作者：七哩香
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+拉脱维亚总统的幕僚长10月14日表示，总统李维兹（Egils Levits）完整接种新冠疫苗后，仍然染疫。
 
-据悉，此次专项清理工作，主要依据中共新修订的《中华人民共和国人口与计划生育法》，重点围绕三孩生育政策、取消社会抚养费、废止相关处罚、处分规定以及将入学入户入职等与个人生育情况挂钩的规定，开展涉及计划生育法规规章、规范性文件的专项清理工作。目前，清理工作仍在进行中。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-4.jpeg)
 
-近年来，随着中共经济形势的急转直下，加之“房医学”新三座大山对老百姓的极端压榨，导致中共国生育率不断走低。可以说，中共及其盗国贼治国模式才是老百姓生不起、不愿生的根源，清理法规这种“头疼医头脚疼医脚”的做法，无助于破解人口困局。中共不灭，中国的人口灾难还将持续恶化。
+李维兹结束丹麦与瑞典访问行程返国后，接受PCR筛检，结果呈阳性。芬兰总统尼尼斯托（Sauli Niinisto）前一天曾与李维兹共进午餐，这项消息迫使尼尼斯托也得隔离。
 
-信息来源：
+人口190万的拉脱维亚，当天通报2408起新冠病例，创下单日新高纪录。为因应病例激增，拉国11日已宣布为期三个月的紧急状态。
 
-[全国人大常委会：已部署开展涉计生法规规章专项清理工作](https://news.sina.com.cn/c/2021-10-14/doc-iktzqtyu1428500.shtml)
+病例增加趋势同前几个月的疫苗接种曲线存在相关性。推行毒针计划的疾控中心CDC，对拉脱维亚停滞不前接种率十分不满。政府随即于8月份开始在各行各业推行接种强制令，遭到了人们的强烈反抗，导致疫苗库存继续堆积。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+(本文仅代表作者观点)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+参考链接：[拉脱维亚总统完整接种疫苗 仍确诊COVID-19](https://www.rfi.fr/cn/拉脱维亚总统完整接种疫苗-仍确诊covid-19)
+[Latvia’s plans for mandatory vaccination spark huge protests](https://www.euronews.com/2021/08/19/latvia-s-plans-for-mandatory-vaccination-sparks-huge-protests)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

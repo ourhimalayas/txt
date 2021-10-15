@@ -2,38 +2,27 @@
 ---
 
 
-## 鲁比奥等参议员呼吁 从华为剥离的荣耀必须列入黑名单
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596087/)
+## “天空WiFi”带热激光通信！索尼成功演示“星地通联”系统
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596237/)
 
-作者：七哩香
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/12-8.jpg)[图片来源](https://www.sohu.com/a/273066731_819742)
+近年来，随着“天空WiFi”不断发展，特别是“星链”系统（Starlink）的试商用，更是让“激光通信”技术备受追捧。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月14日，索尼官方宣布，索尼计算机科学实验室（下称：索尼 CSL）和康斯贝格卫星服务公司（KSAT）成功地演示了从国际空间站（ISS）上的一个太空终端（ISS 的小型光学链路：SOLISS）到 KSAT 在希腊的商业光学地面站的光学下行链路。使用的通信格式与 CCSDS（141.0-B-1 + O3K 粉皮书）空间激光通信标准一致。
 
+索尼这一终端体积小巧，未来能够实现高性价比的地面和太空通信解决方案。KSAT 光学解决方案总监 Hennes Henniger 表示：“这次活动对 KSAT 来说是一个很好的机会，可以验证我们第一个光学地面站的性能和光学未来的开始。”
 
+希腊 KSAT 光学地面站是光核网络（Optical Nucleus Network）的第一个站点。光核网络是航天机构和工业界之间的非正式合作，它将提供一个光学地面站网络，为太空中的光学终端服务。
 
-本周四，三名共和党参议员鲁比奥、斯科特、和科宁发信给美国商务部长雷蒙多，呼吁拜登政府，把从中共电信巨头华为剥离出去的手机生产商“荣耀 ”，加入到商务部黑名单。称这家中国国有公司躲避了美国的出口管制，从而对美国国家安全构成威胁。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1015AM（1-5）視頻備用.005.jpeg)
-这几位参议员表示，华为为了避免美国对它实施的出口控制，把荣耀卖给由深圳市政府控制的「深圳智信新信息技术有限公司」，从而通过荣耀不受限制地获得华为目前无法得到的宝贵的美国技术，华为的一些高管、工程师以及其他雇员，也都转到了荣耀。
+2020年，SpaceX透露，其已经首次成功在轨道上测试了星链卫星的“激光通信”。马斯克称，搭载激光后的传输速度，预计将比光纤快40%左右，路径也更短。因此，我们可能会看到高速的互联网传输能力，而无需接触地面。
 
-2019年，川普政府以危害国家安全为由，把华为列入商务部的实体名单，导致华为无法获得关键的美国软件和硬件，包括半导体。荣耀是华为在2011年9月推出的一个子品牌，2013年12月开始独立运作。2020年11月17日，荣耀被华为剥离。
+长期以来，受小型化以及视距传输的制约，激光通信主要被用于军事和特殊行业领域，因此发展相对缓慢，应用也比较狭窄。随着“天空WiFi”项目应用的不断落地，由于在数据传输方面的显著优势，激光通信将迎来巨大的发展机遇，也必将成为大数据时代的重要产品。
 
-今年八月，以众议员外交委员会的麦考尔议员为首的14名共和党众议员，也曾呼吁商务部把荣耀列入黑名单。
-(本文仅代表作者观点)
+[信息来源](https://finance.sina.com.cn/jjxw/2021-10-14/doc-iktzqtyu1385558.shtml)
 
-参考链接：[鲁比奥等参议员呼吁把从华为剥离出来的手机生产商荣耀列入黑名单](https://www.voachinese.com/a/Honor-rubio-scott-cornyn-entity-list-20211014/6271666.html)
+(文章仅代表作者本人观点，与GNEWS无关)
 
-
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：FoxRina
-编辑/校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

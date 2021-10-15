@@ -2,29 +2,51 @@
 ---
 
 
-## 文贵先生分析中共试图&#8221;武统&#8221;台湾的内因和外因
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596326/)
+## 中共国全面禁止非共产党资助的自媒体发布新闻，进一步打压言论自由
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1596403/)
 
-作者：文龍
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月13号，文贵先生在直播中分析了中共习近平决意要”武统”攻打台湾的动机，其中内因来自习近平一直以来的皇帝梦，他想做当代的秦始皇，一统天下拿回台湾，留名史册。 同时也是因为中共国内目前愈演愈烈的房地产崩盘压力和激烈的党内政治斗争所致。习近平想用一场局部战争来缓解所有这些无法避免的内部矛盾。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/101502.jpg)
+摘要翻译
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-2.jpeg)
+- 中共国提出禁止所有私人投资新闻公司
+- 法律上意味着所有报纸都必须由共产党资助
+- 这只是在科技行业受到打击后，对其他行业的新的打击
+- 一位专家说：“政府正在确保控制它的信息的发布和传播。”
 
-外部因素首先是中共主管外交事务的王毅和杨洁篪，他们的欺上瞒下和报喜不报忧，如同当年的袁克定和袁世凯，导致习近平误判国际形势，认为联合国和俄罗斯等周边国家已经默许中共”武统”台湾，建功立业的时机已经成熟，况且由于美国政府的软弱和绥靖，以及来自台湾内部的卖台贼呼声，都给了中共和习近平更多的信心，这一切都使得台海战争的脚步越来越近了。
 
-(本文仅代表作者观点)
+正文
 
-参考链接：[https://gettr.com/post/pe5ia99a21](https://gettr.com/post/pe5ia99a21)
+中共国已提出取缔所有非共产党直接资助的新闻机构。由国家发展和改革委员会起草的新法律将禁止任何私人投资“新闻采编和广播”。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+在今年初原本蓬勃发展的科技行业和其亿万富翁的所有者遭到重创之后，这标志着执政的中共对私营企业的新一轮打压。
 
-编辑/校正/发稿：谐趣园
+据《南华早报》报道，控制可以资助新闻采集公司的法律至少从2005年就开始实施。《南华早报》称它也是受到这一变化影响的报纸之一。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+但这些规则通常只适用于实体报纸，而且执法不严，允许在线媒体引入私人投资。由国家发改委起草、目前正在审查中的新法律似乎旨在弥补这一漏洞。它包含在一份名为“市场准入负面清单”的文件中，该文件概述了不直接来自国家或国有企业的资金的私人投资被行业禁止或限制。
+
+清单上的第6项相当于全面禁止私人投资所有类型的媒体——从新闻机构到广播和电视，以及在线内容。它还将禁止私营企业直播与“政治、经济、军事、外交事务或社会、文化、技术、健康、教育和体育方面的重大活动或事件”有关的任何内容。
+
+私营媒体也将被禁止“引用外国实体发布的新闻”。这表明在中共国境内经营的海外媒体也可能受到禁令的影响。该禁令甚至会影响由新闻出版商主办的“峰会和颁奖典礼”。
+
+山西大学一位罗姓的退休讲师告诉自由亚洲电台，共产党“正在确保控制信息”。
+
+**简评：**
+
+中共国原本就有防火墙和出版管控，现在出台更加严格的措施，使得老百姓更加发声无门。 使普通民众目之所见，耳之所闻，皆为中国共产党安排好的谎言。文化大革命的气息越来越浓厚了。只是学习“强国”看来还不能让“中南坑”满意，相信不久的将来，毛泽东语录，习近平思想之类的书籍，又将被强制背诵了。
+
+新闻链接：[China moves to ban all private news publishers that are not funded by the Communist Party in further crackdown on free speech](https://www.dailymail.co.uk/news/article-10082989/China-moves-ban-news-publishers-not-funded-Communist-Party.html)
+
+***翻译**：Barfuss*
+
+***校对**：clau*
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

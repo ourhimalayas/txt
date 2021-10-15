@@ -2,42 +2,33 @@
 ---
 
 
-## 随着能源危机加剧和工厂停工，中共国接纳澳洲的煤炭
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1596036/)
+## 针下亡魂｜美国 21 岁医科生接种疫苗1日后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1596153/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GettyImages-1231937500-e1634097009429.jpg)图片来源：fortune.com
-#### 编译：小红帽
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 15/10/2021**
 
-在面临停电和工厂停工的情况下，能源匮乏的中共国对澳大利亚煤炭的禁令已被非正式地取消。这是一种耻辱性的损失。
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
 
-Braemar ACM船舶经纪公司的货运分析师尼克·里斯蒂奇（Nick Ristic）表示，在中共国港口外等候的少数澳大利亚货物获准靠泊和卸货。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/28-1.jpg)
 
-里斯蒂奇先生告诉《纽约数字新闻》（New York Digital News），他认为有45万吨煤炭被卸下。
+【美国】俄亥俄州一名 21 岁男性 John Francis Foley 在接种完强生 COVID-19 疫苗的 24 小时后死亡。
 
-其他分析师引用了较低的数字，但所有人都同意，中共国关于惩罚澳大利亚的强硬言论未能经受住即将到来的第一个冬天的寒流和相关经济影响。
+John 是当地辛辛那提大学国家荣誉学会医学预科生，成绩相当优秀，但由于该学校早前曾经强制所有学生接种疫苗，John 于 4 月 10 日接受了第一针疫苗。
 
-随着寒冷天气席卷中共国大部分地区，发电厂争相囤积煤炭，燃料价格创历史新高，中共国的能源危机已经加深。
+当晚，他在自己的 Facebook 上写下了人生的最后一篇贴文，“身体感到十分不适，希望早点休息，明天醒来，一切会有好转”，可惜，他再也没醒过来。
 
-由于季节性天气模式带来从中共国北方吹来的寒风，预计家庭和办公室的供暖电力需求将猛增。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Mary-Beth-Foley.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Jennifer-Snyder-Benedict.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Lisa-Foley.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Foley-family-statement-1170x525-1.png)
 
-预报员预测，在接下来的2-3天内，一些中部和东部地区的平均气温可能会下降多达16摄氏度。
 
-煤炭短缺、燃料价格高企和大流行后工业需求的蓬勃发展，引发了这个世界第二大经济体的普遍电力短缺。
+维权律师 Mark R. Weaver 代表 John 的家人发表声明：
 
-自9月以来，中共国30多个地区中至少17个地区已经实施电力配给，迫使一些工厂停产，扰乱了供应链。
+尽管 John 在接种疫苗之后的 24 小时就去世了，但官方公布的死因甚至都未提到接种疫苗这件事，仅用一个没有人听说过的花哨医学术语作为一名健康的 21 岁大学生的死因，他原本有 99.997% 的机会在没有接种疫苗的情况下幸免于 COVID-19。
 
-吉林、黑龙江和辽宁这三个东北省份是上个月受电力短缺的重灾区，包括内蒙古和甘肃在内的华北几个地区已经开始以煤炭为燃料的冬季供暖，以应对比正常天气更冷的的情况。
+来源｜ [个案028](https://www.wbrc.com/2021/04/16/university-cincinnati-students-death-after-jj-vaccine-under-investigation/)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+* * *
 
-**参考新闻：**[China admits Australian coal as energy crisis grows (thenewdaily.com.au)](https://thenewdaily.com.au/news/world/asia-news/2021/10/15/china-unloads-australian-coal/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//

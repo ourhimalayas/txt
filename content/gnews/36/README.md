@@ -2,33 +2,19 @@
 ---
 
 
-## 中共管制趋严 领英Linkedin退出中共国
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596066/)
+## 日本，第三次疫苗接种
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596227/)
 
-作者：云豹
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/10/132.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.rcinet.ca%2Fzh%2Fwp-content%2Fuploads%2Fsites%2F6%2F2021%2F04%2Fdddd-10-635x357.png&amp;imgrefurl=https%3A%2F%2Fwww.rcinet.ca%2Fzh%2F2021%2F04%2F17%2F%25E7%25BE%258E%25E5%259B%25BD%25E5%259C%25A8%25E8%2580%2583%25E8%2599%2591%25E4%25B8%2580%25E5%25B9%25B4%25E5%2586%2585%25E6%25B3%25A8%25E5%25B0%2584%25E7%25AC%25AC%25E4%25B8%2589%25E9%2592%2588%25E6%2596%25B0%25E5%2586%25A0%25E7%2596%25AB%25E8%258B%2597%25E7%259A%2584%25E9%2597%25AE%25E9%25A2%2598%2F&amp;tbnid=FBWoPrs3bQFrHM&amp;vet=12ahUKEwi0hvOqyMzzAhUOqHIEHcerD7QQMygDegUIARCBAQ..i&amp;docid=j0DEK1VvtXyqeM&amp;w=635&amp;h=357&amp;itg=1&amp;q=%E7%AC%AC%E4%B8%89%E9%92%88&amp;ved=2ahUKEwi0hvOqyMzzAhUOqHIEHcerD7QQMygDegUIARCBAQ)
+日本广播协会10月15日报道，负责推进疫苗接种的大臣堀内诏子，在上午的新闻发布会上表示，我们将与地方政府和医务人员密切合作，在11月的初期将确认疫苗的状况，并整理出具体的疫苗接种体制等等，最快在12月份能开始接种第三针疫苗。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+岸田文雄首相12日在参议院议员全员会议上宣布，关于第三次疫苗接种，最早将于12月开始。日本境内第三针疫苗接种将逐渐落实。
 
+[信息来源](https://www.sankei.com/article/20211015-ZDUNVXQAW5JYDBTT2AOIFVZ7FI/)
 
+(文章仅代表作者本人观点，与GNEWS无关)
 
-知名职场社交平台领英在14日宣布，由于中共的监管要求越趋严格，该公司将关闭在中共国的服务网站。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1015AM（1-5）視頻備用.003.jpeg)
-领英发表声明时仅含蓄表示，该决定是由于大陆营运环境已更具挑战性，而中方当局要求遵守的规定也更多。 据熟悉内情人士透露，中共的网路监管机构曾告诉领英的负责人，必须加强规范网页的内容，并限令30天做到。 近日有许多积极关注中国人权情势的活跃人士、学者、和记者，他们在领英平台上的个人档案已遭中共封锁。
-
-在领英宣布退出中国后，最后一个可在中国大陆公开连线的美国社群网站也将走入历史。
-(本文仅代表作者观点)
-
-参考链接：[中共當局監管趨嚴 領英將關閉中國網站](https://www.cna.com.tw/news/firstnews/202110140401.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：FoxRina
-编辑/校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
