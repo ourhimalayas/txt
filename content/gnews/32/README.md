@@ -2,38 +2,45 @@
 ---
 
 
-## 七国集团财政领导人为央行数字货币制定准则
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1595484/)
+## 英国港口正在面临集装箱货轮拥堵
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1595649/)
 
-作者：香草山金融部 – 闲聊钱币
+翻译： 纽约香草山健身部 – Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+英国最大的商业港口——费利克斯托港表示，由于供应链危机，造成了港口航运集装箱的堵塞。费利克斯托港每年处理的货运集装箱运输，约占英国的36%，它表示，由于圣诞节前的繁忙时期和运输工具的短缺，导致了港口拥堵。在过去几天里，港口一直致力于改善拥堵的情况。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-264.png)
 
+航运巨头马士基告诉英国广播公司，它正在将一些最大的船只从该港口改道。《金融时报》周二首次报道说，马士基正在将船只从费利克斯托港转移到其他欧洲港口，在那里将使用较小的船只在英国交货。马士基全球海洋网络主管Lars Mikael Jensen告诉BBC电台5台的“驱动”节目，它旗下部分最大的货轮，可载2万集装箱的巨轮，在费利克斯托港口外等待了4到7天。“我们采取了一些措施，是因为我们看到，由于货轮巨大的原因，他们在费利克斯托港停靠的泊位是有限制的，并且由于其速度较慢，处理每艘船的时间也比较长”，他说，“我们没有浪费时间等待，而是马上转运到下一站，并安排这些集装箱”该港口中转，而不是在菲利克斯托港等待一个星期再卸货”。
 
+该港口发言人将航运集装箱的堆积归咎于几个因素，包括圣诞节前的繁忙高峰期、运输工具短缺、船舶调度不力以及大流行病的影响。除此之外，目前还有大量的空集装箱停在港口，造成港口集装箱拥堵。它正在要求航运公司尽快运走它们。
 
-10月13日（路透社）–世界上最先进的七个经济体（G7）周三表示，中央银行发行的任何数字货币必须支持并不损害本国银行系统履行其货币授权和金融稳定的能力，而且还必须符合极度严格的标准。
+该港口强调说：“绝大多数进口集装箱在到达后几分钟内就被运走，通常会有超过1000个空集装箱等待被运输商预订。可是，本周进口集装箱的等待时间比7月初以来的任何时候都多，供应链初现断链危机。”
 
-在周三的会议后七国集团还表示，如果发行央行数字货币（CBDC），它将有三个特点，对现金的补充，可以作为一种安全的流动资产，和对支付系统的完善。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture5-2.jpg)
-这些数字货币（CBDC）的发行方式必须不能侵犯中央银行对货币的授权同时符合严格的隐私、透明度和保护用户数据的标准。
+与此同时，货运物流行业也在面临司机短缺的问题。行业机构估计有大约10万名司机的短缺，从零售商到家庭垃圾收集的几个部门都受到影响。英国政府最近起草了军事人员来帮助运送燃料，并向外国司机发放紧急临时签证。这种短缺是由几个因素造成的，包括在大流行期间回家的欧洲司机、英国脱欧、税收变化和积压的HGV司机测试。
 
-在跨境支付方面，七国集团表示，虽然数字货币会提高便利性，但是他们有 共同的责任尽量减少有害的国际间的货币金融体系的流动。
+代表港口运营商的主要港口集团负责人蒂姆-莫里斯（Tim Morris）说，该行业受到了一系列问题的冲击，包括英国脱欧的边境变化、全球对海上运输货物的需求以及大流行病。他说：“这并不容易，港口系统面临真正的压力，已经采取了许多措施，以应对挑战，并解决危机。”
 
-中共国在发行数字货币方面一直快马加鞭，企图起主导地位，当大哥。而七国集团一直在尝试制定发行CBDC的共同标准。因此，中共国的数字货币只能在墙国内自己玩儿玩儿，世界上的发达国家不会认同并参与其中。
+这个问题并不仅仅局限于英国，世界各地的港口也在遭受重大延误。零售商们强调了中国和东亚的特殊问题，那里的大流行病限制和恶劣的天气条件影响了航运。贸易集团英国航运商会的首席执行官萨拉-特雷泽德说，有报告称，有几十艘船被迫在美洲和亚洲的港口外等待。她说：“我们预计，在基本市场波动稳定的情况下，这种情况可能将持续下去。”
 
-（本文仅代表作者观点）
+参考链接：
+[Felixstowe port says HGV shortage a factor in container logjam](https://www.bbc.com/news/business-58888552)
 
-参考来源：[https://www.reuters.com/business/finance/g7-statement-cbank-digital-currencies-must-do-no-harm-cbank-mandates-2021-10-14/](https://www.reuters.com/business/finance/g7-statement-cbank-digital-currencies-must-do-no-harm-cbank-mandates-2021-10-14/)
+**本文代表作者观点**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
 
-编辑/校对/发稿：Hetangyuese
+**校对/发稿：童谣**
 
 **更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

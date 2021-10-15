@@ -2,25 +2,15 @@
 ---
 
 
-## 加拿大学者新书 揭露中共当局迫害新疆人民
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1595636/)
+## 秘翻在线：美国前总统克林顿住进重症监护室 住院原因众说纷纭
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1595736/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/social_media-1.jpg)加拿大学者新书 揭露中共当局迫害新疆人民 网络图片
-据自由亚洲电台10月14日报道，新疆维吾尔和其他少数民族被中共国当局大规模拘捕并被关进所谓“再教育营”的状况，持续引发国际舆论关注。加拿大西门菲沙大学国际研究学院助理教授达伦·拜勒 (Darren Byler)经多年研究，并采访大量集中营内的工作人员和曾被关押在“再教育营”的拘留者后，出版了《在集中营：中国高科技流放地》一书。书中详细描绘了2017年以来新疆集中营里残忍的状况，以及当局如何运用高科技手段监控人民。
+#### 翻译/撰稿：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1935.jpg)图片来源：theguardian
+据今日俄罗斯电视台 (Russia Today TV)的报道，前美国总统比尔·克林顿（Bill Clinton）因不明原因感染,正住院接受重症监护治疗，一位发言人称，克林顿并非感染中共病毒，目前他正在康复中。
 
-对中共政府而言，任何可能和西方世界有联系，都会被冠上涉嫌恐怖主义而被投进集中营。新疆维吾尔人时刻活在被高科技监控的数字监狱内。一些人会穿上汉服、只说普通话，尽量呆在家里，甚至连手机等社交媒体都尽可能不用，力求自保。
+克林顿的发言人安吉尔·乌雷纳（Angel Urena）在周四晚上的一份声明中说：“75岁的克林顿总统于周二晚上被送入加州大学欧文分校（University of California Irvine）的医疗中心，接受非中共病毒相关感染的治疗。”
 
-中共政府对新疆人的种族灭绝行为，并由此产生的人道危机，引起了国际社会的谴责。但这不是反华，是反共。中共不等于中国人。推翻中共就会彻底解决新疆的种族灭绝。
+《国会山报》（The Hill）援引一位“熟悉”情况人士的报道称，克林顿患有败血症，或血液感染。也有另外的消息称，克林顿在重症监护室主要是出于 “隐私原因”，现在 “情况好转”。美国有线电视新闻网（CNN）的报道称，克林顿这次住院与他之前的心脏问题无关，而且克林顿可能最快于周五出院。
 
-新闻参考链接：[https://www.rfa.org/mandarin/yataibaodao/shaoshuminzu/lf-10142021100212.html](https://www.rfa.org/mandarin/yataibaodao/shaoshuminzu/lf-10142021100212.html)
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+新闻来源：[Former US President Clinton in ‘good spirits’ after being hospitalized in ICU with blood infection ‘not related to Covid-19’](https://www.rt.com/usa/537523-bill-clinton-icu-blood-infection/)

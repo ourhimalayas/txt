@@ -2,16 +2,49 @@
 ---
 
 
-## 台湾中共病毒死亡率与疫苗接种率同步走高
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1595371/)
+## 芝加哥市长退让，表示不会解雇未接种疫苗的教师
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1595494/)
 
-#### 翻译：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-46.jpg)图片来源：DW
-零对冲网10月14日报道，台湾从2020年2月发现第一例中共病毒感染病例到现在，只有16313例感染，846例死亡，尽管抗疫很成功，但它还是注册了世卫组织领导的疫苗交换计划，并于2021年3月开始注射疫苗，当时台湾因染上中共病毒而死亡的病例还不到12例。
+作者：AsG諾雅
 
-846例死亡中有836例是发生在开始注射疫苗项目以后，这更让人担心台湾疫苗注射的安全性和有效性，台湾中央流行病指挥中心（CECC）已经展示了有850例死于疫苗所致，死亡总数超过了病毒本身所致死亡。尽管注射疫苗的人数不断增加，但是九月之前7天平均病例数一直没有降至10例以下，而且一直无法达到疫苗注射前的低病例数。
 
-在850例疫苗引起死亡病例中，643例注射了AZ疫苗，183例注射了莫德纳疫苗，只有22例注射了台湾国产高端疫苗，尽管记录显示注射后副作用，但台湾官员在向CECC报告时称死亡并不一定是疫苗所致。在过去几周内，台湾因中共病毒死亡7天平均数徘徊在0-1之间，而疫苗引起的死亡数将在一定时间内继续超过病毒死亡数。
 
-新闻来源： [Deaths Following Vaccination Reported in Taiwan Exceed Nation’s COVID Death Total](https://www.zerohedge.com/news/2021-10-14/deaths-following-vaccination-reported-taiwan-exceed-nations-covid-deaths)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+
+
+
+
+
+
+
+生命新闻10月14日消息，在威胁要解雇本周五之前未接种疫苗的公立学校教师之后，芝加哥民主党执政的市政府做出了让步，表示只要他们同意每周接受测试，将允许拒绝接种毒疫苗的人继续工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-84.jpg)
+周三，芝加哥教师工会（CTU）和代表学区支助人员的两个服务雇员国际联盟（SEIU）团体一起，写信给市长莱特福特，声称近90%的CTU普通会员和数以千计的SEIU 73区会员已经接种了疫苗，未接种疫苗的雇员多是黑人和拉美裔妇女，如果政府坚持执行对未接种疫苗者的惩罚性政策，期限之后，学校将面临比平常更严重的人员短缺问题，特别是卫生工作者、清洁工、代课教师和校车助理关键的一线工作人员，将威胁到学校的安全。 芝加哥市长对教师工会的退让，表明只要人们坚持不打新冠疫苗的立场，团结一致，政府是无法继续推行强制政策的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-3.jpg)
+参考链接：
+[Chicago mayor backs down on COVID threat, won’t fire unvaccinated teachers](https://www.lifesitenews.com/news/chicago-mayor-backs-down-on-covid-threat-wont-fire-unvaccinated-teachers/?utm_source=featured&amp;utm_campaign=usa%20https://www.ctulocal1.org/posts/ctu-seiu-local-73-seiu-local-1-to-lightfoot-time-to-partner-on-vax-for-all/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
