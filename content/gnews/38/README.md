@@ -2,58 +2,50 @@
 ---
 
 
-## 加拿大安大略省的疫苗接种要求证明最终可能成为企业的自愿行为
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1594919/)
+## 参议员瑞克·斯科特：要求拜登加入我的呼吁,将 2022 年奥运会从共产主义中国移走
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1594950/)
 
-**翻译：**圆成农场新闻组
-![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-14-204901-edited.png)图片来源：网络
-据CTV NEWS报道：多伦多——安大略省的疫苗接种要求证明最终可能降级为自愿计划，因为省政府正在考虑一套新的措施，以缓解企业对大流行的限制。
+参议员瑞克·斯科特： 在几个月的完全无所作为和沉默之后，今天我再次要求乔·拜登加入我的呼吁，将 2022 年奥运会从 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 移走，并保护美国运动员和美国队的安全和个人信息免受中共国的侵入性监视。 【附斯科特参议员官网声明】
 
-知情人士说，福特政府正在制定第三步后战略，将取消对需要疫苗证书的企业的产能限制——该计划将于下周公布。
 
-作为”分阶段办法”的一部分，消息人士说，只要该省的疫情状况继续改善，政府正在考虑可能放宽疫苗接种规定的强制性证明。
 
-一位了解该计划的消息人士表示：“（我们）希望疫苗证书不再强制性。
+> After MONTHS of complete inaction & silence, today I again demanded Joe Biden join my call to move the 2022 Olympics out of Communist China & protect the safety & personal information of American athletes & Team USA from China's invasive surveillance. [https://t.co/zClmB4xUyr](https://t.co/zClmB4xUyr)
+> — Rick Scott (@SenRickScott) [October 14, 2021](https://twitter.com/SenRickScott/status/1448778039031181320?ref_src=twsrc%5Etfw)
 
-虽然没有实施该计划这一阶段的时间表，但该消息人士补充说，疫苗证书计划仍将是自愿的。”
-![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-14-204807-edited.png)图片来源：网络
-福特省长预计将在本周五发表讲话，比安大略省退出第3步的疫苗接种证明，QR守则实施提前一周。
 
-卫生首席医疗官基兰·摩尔博士周四在接受记者采访时说，他预计安大略省在时机合适时将“分阶段取消”疫苗证书。
 
-摩尔说：“我们可能在某些场所不要求他们，但在群众集会上仍然要求他们。”我们没有看到整个认证过程突然结束，而是随着时间推移逐步退出。
+参议员瑞克·斯科特： 我很高兴[@LinkedIn](https://twitter.com/LinkedIn)和微软正在努力解决我对于（中共国）对美国人不可接受的审查制度的担忧。 每家美国公司都需要在全球范围内支持言论自由，并反对 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 及其种族灭绝和侵犯人权的行为。这是一个好开始。 【附华尔街日报的新闻：微软说将关闭在中国的LinkedIn网站】
 
-摩尔说，逐步取消公共卫生措施，“使我们在安大略省一直做得很好”，他希望继续这样做。
 
-他还说，在他确定感恩节周末对该省COVID-19局势的影响之前，安大略省的限制不会放松。
 
-自7月以来，安大略一直处于“重新开放路线图”的第3步。由于8月份COVID-19病例增加，该省推迟了退出第3步。
+> I’m glad [@LinkedIn](https://twitter.com/LinkedIn?ref_src=twsrc%5Etfw) & [@Microsoft](https://twitter.com/Microsoft?ref_src=twsrc%5Etfw) are working to address my concerns over the unacceptable censorship of Americans.
+> 
+> Every U.S. company needs to stand for free speech worldwide & take a stand against Communist China & its genocide & human right abuses. This is a good start. [https://t.co/DOQK6PboTh](https://t.co/DOQK6PboTh)
+> — Rick Scott (@SenRickScott) [October 14, 2021](https://twitter.com/SenRickScott/status/1448762596975382533?ref_src=twsrc%5Etfw)
 
-退出路线图第 3 步可能意味着在许多设置中增加了容量限制，但哪些限制将放宽的细节尚未得到确认。
 
-消息人士说，室内遮盖要求将保持不变。
 
-卫生部在周三对多伦多CTV新闻的早些时候声明中说，安大略省的COVID-19活性病例率是全国最低的。
+参议员汤姆·科顿： 在艾伦·埃斯特维兹确认他将解决 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 构成的威胁之前，他无权在商务部任职。 【附科顿参议员官网声明】
 
-卫生部发言人说：“我们现在能够研究哪些公共卫生措施能够解除，同时保持谨慎的态度。”
 
-周三晚上，多伦多CTV新闻联系了福特的办公室，但没有得到回应。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-14-204742.png)图片来源：网络
-上周六，安大略取消了某些大型场馆的容量限制，包括用于音乐会、体育和电影的场馆。
 
-多伦多枫叶队周三在几乎满员的观众面前举行了主场揭幕战。
+> Until Alan Estevez confirms that he will address the threat posed by the Chinese Communist Party, he has no business serving at the Department of Commerce.[https://t.co/uGFCcnO43d](https://t.co/uGFCcnO43d)
+> — Tom Cotton (@SenTomCotton) [October 14, 2021](https://twitter.com/SenTomCotton/status/1448758126006657025?ref_src=twsrc%5Etfw)
 
-周三晚上，多伦多卫生官员在接受CP24采访时说，Leafs的回归为该市的许多人提供了“非常需要的推动”，健康限制应该意味着会场仍然安全。
 
-她补充说，目前正在就是否在其他领域放松能力限制进行“积极讨论”。
 
-餐饮业本周对省政府表示失望，因为没有发布任何放松对企业限制的计划。
+美国第780军事情报旅(网络)： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在南亚的影响力：四个国家的脆弱性和韧性 【附卡内基捐赠基金网[http://Carnegieendowment.org](https://t.co/O2KmgjJU98?amp=1) 同名文章链接】“孟加拉国、马尔代夫、尼泊尔和斯里兰卡展示了 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在一个非常多维地区的参与战略的多样性，但也表明南亚的影响者们正在相互学习与中共国金钱和权力(关系)的经验。
 
-新闻来源：[https://toronto.ctvnews.ca/ontario-s-proof-of-vaccination-requirement-could-eventually-be-made-voluntary-for-businesses-sources-1.5622432](https://toronto.ctvnews.ca/ontario-s-proof-of-vaccination-requirement-could-eventually-be-made-voluntary-for-businesses-sources-1.5622432)
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
 
-编辑/发布：LILY
+> China’s Influence in South Asia: Vulnerabilities and Resilience in Four Countries [https://t.co/vOwy8iEFHf](https://t.co/vOwy8iEFHf) via [@CarnegieEndow](https://twitter.com/CarnegieEndow?ref_src=twsrc%5Etfw)
+> — 780th Military Intelligence Brigade (Cyber) (@780thC) [October 14, 2021](https://twitter.com/780thC/status/1448696155664179209?ref_src=twsrc%5Etfw)
 
-21211014
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+
+
+参议员卢比奥媒体办公室： 卢比奥参议员欢迎哈佛大学 [@Harvard](https://twitter.com/Harvard) 把他们的中文暑期项目从 [#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 移到 [#台北](https://twitter.com/hashtag/%E5%8F%B0%E5%8C%97?src=hashtag_click) 的决定。[#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 向全世界提供了独特的机会，可以学习中国的语言，传统和文化，不受 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 的压迫。其他的美国大学也应该效仿。（转纽时，哈佛把受欢迎的中文项目转移到台北）
+
+
+
+> Sen.Rubio welcomes [@Harvard](https://twitter.com/Harvard?ref_src=twsrc%5Etfw)’s decision to move its Chinese language summer program from [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw) to [#Taipei](https://twitter.com/hashtag/Taipei?src=hash&amp;ref_src=twsrc%5Etfw).[#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) offers the world a unique opportunity to learn about Chinese language,traditions, & culture free from [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) repression. Other U.S. universities should follow suit. [https://t.co/7BX0xdTtHz](https://t.co/7BX0xdTtHz)
+> — Senator Rubio Press (@SenRubioPress) [October 14, 2021](https://twitter.com/SenRubioPress/status/1448660962148372488?ref_src=twsrc%5Etfw)

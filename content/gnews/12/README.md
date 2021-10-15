@@ -2,14 +2,20 @@
 ---
 
 
-## 不堪网络审查 微软将关闭中共国领英网站
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1595370/)
+## 芝加哥警察协会强力反击中共病毒疫苗限制令
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1595468/)
 
-#### 翻译：沙子最怕你不理它
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-45.jpg)图片来源：网络截图
-据CNBC 10月14日报道，微软周四宣布，由于中共国继续扩大对互联网的审查，领英（Linkedin）中共国网站即将关闭。
+编译撰稿：文莱 校对，编辑，发稿：硫酸羟氯喹64
 
-领英于2014年在中国推出，为了尊守中共国严格的互联网法律，只取用一些有限的功能。中共国是领英的第三大市场。中国互联网监管机构在3月份给予领英30天的期限要求整改网站内容。 上个月，领英以个人资料中的“禁止内容”为由，屏蔽了几名美国驻华记者的账号。近几个月来，学者和研究人员们的个人资料页被该网站屏蔽了。名为InJobs的新网站将不包含社交推送以及用户共享帖子或文章。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/jc-2-edited.jpg)图片来源：千禧年报
 
-新闻来源：[Microsoft to shut down LinkedIn website in China as internet censorship increases in the country](https://www.cnbc.com/2021/10/14/microsoft-to-shut-down-linkedin-in-china.html)
+
+据加拿大自媒体《千禧年报》10月14日报道，【芝加哥警察协会】负责人约翰在面临失去工作和工资的威胁下，仍然公开抨击该市市长莱特福所强推的【新冠病毒疫苗限制令】。同时，他还鼓励该市警察共同抵制该疫苗护照，并勇于披露疫苗接种后发生的各种伤害真相。
+
+今年8月，芝加哥市长莱特福宣布：所有市政雇员都必须在10月15日之前完全接种新冠病毒疫苗，否则将会面临停薪留职的处罚。为此，该负责人表示，如果政府按计划执行疫苗限制令，他就会将市长告上法庭。
+
+约翰最后呼吁那些反对疫苗限制令的警官应申请疫苗接种豁免，而无需与该市的相关机构分享其个人信息，并再次警告称：如果疫苗限制令被强制执行，那么芝加哥可能会出现警察人数大幅减少的状况。
+
+（以上内容仅代表原文信息和作者个人观点）
+
+[原文链接：](https://thepostmillennial.com/chicago-police-union-president-urges-officers-not-to-declare-vaccine-status)

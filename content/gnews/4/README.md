@@ -2,49 +2,50 @@
 ---
 
 
-## 芝加哥市长退让，表示不会解雇未接种疫苗的教师
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1595494/)
+## 澳大利亚正在建造安置“未接种疫苗者”的隔离营
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1595561/)
 
-作者：AsG諾雅
+#### 正在建造的设施是为安置那些“没有接种疫苗的人”
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/121021camp1-1.jpg)视频截图-网络图片
+
+尽管一些州暂时开始解除封锁限制，但澳大利亚当局正在建造隔离营，这些营地要到明年才能完工，以便为“正在进行的行动”做准备，并为那些“没有接种疫苗”的人提供住所。
+
+据澳大利亚广播公司报道，位于图文巴郊外威尔康普机场的一个拥有1,000个床位的隔离设施，将于2022年3月底全面完工。
+
+报告称：“现阶段，这些小屋将供从COVID热点地区返回的国内旅客使用。”
+
+然而，报告也明确表示，该营地将用于“正在进行的行动”，并将成为当地的就业来源。
+
+营地被分为不同的区域，分别为单人房、双人房和家庭房，同时由警察和保安人员24小时全天候巡逻。
+
+昆士兰州副州长史蒂文·迈尔斯(Steven Miles)对媒体表示，由于出现了新的COVID毒株和“没有接种疫苗的人”，“我们预计对隔离设施的需求将继续存在。”
+
+政府将从瓦格纳公司那里租用建造营地的土地12个月，之后可以选择再租用12个月。
+
+另一个拥有1,000个床位的检疫设施，也在布里斯班机场附近的平肯巴工业区，一个占地30公顷的陆军营房的用地上建造。
+
+正如我们之前强调的那样，美国各州当局也在为“无法在家中隔离”的美国人建造新的“隔离设施”。
+
+正如我们去年报道的那样，加拿大魁北克市当局宣布，他们将把“不合作”的公民隔离在一个隔离冠状病毒的场所中，该场所的位置仍然是一个秘密。
+
+新西兰还宣布了将COVID感染者及其家人安置在“隔离设施”中的计划。
+
+早在今年1月，德国当局还宣布，他们将在位于德累斯顿的所谓“拘留营”中，关押屡次未能正确遵守规则的COVID持不同政见者。
+
+**简评：**澳大利亚这些民主国家，在冠状病毒疫苗的问题上对未接种疫苗的人集中隔离，其手段与CCP极其相似，统治者不对病毒追责，但对疫苗有着极大的兴趣，让人怀疑其真正的目的。
+
+新闻链接：[Australia Building Quarantine Camps For “Ongoing Operations”](https://summit.news/2021/10/12/australia-building-quarantine-camps-for-ongoing-operations/)
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
-
-
-
-
-
-
-
-生命新闻10月14日消息，在威胁要解雇本周五之前未接种疫苗的公立学校教师之后，芝加哥民主党执政的市政府做出了让步，表示只要他们同意每周接受测试，将允许拒绝接种毒疫苗的人继续工作。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-84.jpg)
-周三，芝加哥教师工会（CTU）和代表学区支助人员的两个服务雇员国际联盟（SEIU）团体一起，写信给市长莱特福特，声称近90%的CTU普通会员和数以千计的SEIU 73区会员已经接种了疫苗，未接种疫苗的雇员多是黑人和拉美裔妇女，如果政府坚持执行对未接种疫苗者的惩罚性政策，期限之后，学校将面临比平常更严重的人员短缺问题，特别是卫生工作者、清洁工、代课教师和校车助理关键的一线工作人员，将威胁到学校的安全。 芝加哥市长对教师工会的退让，表明只要人们坚持不打新冠疫苗的立场，团结一致，政府是无法继续推行强制政策的。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-3.jpg)
-参考链接：
-[Chicago mayor backs down on COVID threat, won’t fire unvaccinated teachers](https://www.lifesitenews.com/news/chicago-mayor-backs-down-on-covid-threat-wont-fire-unvaccinated-teachers/?utm_source=featured&amp;utm_campaign=usa%20https://www.ctulocal1.org/posts/ctu-seiu-local-73-seiu-local-1-to-lightfoot-time-to-partner-on-vax-for-all/)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：鬼五
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

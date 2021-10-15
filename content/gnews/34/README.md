@@ -2,35 +2,26 @@
 ---
 
 
-## 俄克拉荷马州反对拜登的疫苗强制令
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1595096/)
+## 有声|联邦法官准许纽约医护人员对疫苗强制政策申请宗教豁免
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1595120/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月12号，一名联邦法官暂时允许纽约的医护人员对该州的新冠疫苗强制政策申请宗教豁免。上个月，17名医护人员，许多匿名提起诉讼，反对纽约州卫生部的疫苗强制政策及不允许宗教豁免。美国地区法官大卫-赫德周二作出裁决，批准了一项初步禁令，允许医护人员申请其雇主考虑的宗教豁免。赫德还禁止卫生部对那些寻求或获得宗教豁免的医护人员的执照、证书、居住权或其他专业身份采取纪律处分或其他行动。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/O.jpg)survivethenews.com
-这算是文贵先生说的，本周会好消息不断？在阴谋集团猖獗的情况下，这样的消息还是令人鼓舞的。
+本案原告的首席律师赞扬了法官的裁决。称”通过这项裁决，法院正确地认识到，昔日抗疫的’前线英雄’突然被当作携带病毒的恶棍，被州卫生局一纸命令踢到路边。抗议疫苗任务的医护人员这样做是因为他们反对被迫接种使用 “堕胎 “的 “胎儿细胞系 “的疫苗。
 
-《门道专家》发表文章，题目“俄克拉荷马州州长反对拜登的疫苗强制令，称接种疫苗是‘个人选择’”。
+纸终将包不住火，主流媒体也开始慢慢转变风向。
 
-全文如下：
+文字版原文：[联邦法官准许纽约医护人员对疫苗强制政策申请宗教豁免](https://gnews.org/zh-hans/1592514/)
 
-俄克拉荷马州州长凯文·斯蒂特（Kevin Stitt）宣布，他们将把拜登政府告上法庭，因为他们计划对拥有100名以上员工的企业强制实施疫苗接种。
-
-在周四（10月14日）发布的一条视频消息中，斯蒂特州长说，“这一行动不仅是联邦政府的越权行为，而且是违宪的，接种疫苗应该是个人的选择。”
-
-斯蒂特州长在视频中说：“接种疫苗是个人的选择。固定的、一刀切的指令根本不符合我们当今的现实，在俄克拉荷马州，病例和住院率下降了近50%，随着这种病毒的演变，可以有科学和治疗方法，包括自然免疫。”
-
-斯蒂特州长补充道，“拜登政府不尊重个人自由，我不敢相信我们有一位总统想要强迫美国人在疫苗和工作之间做出选择，受影响的不仅仅是统计数字，他们是真正的俄克拉荷马人，有着真正的担忧，他们是勇敢的护士和看护者，他们要成为父母，他们是应急人员和勇敢的执法者。”
-
-州司法部长约翰·奥康纳（John O’Connor）也谴责了即将出台的强制接种。奥康纳部长在一份声明中说：“如果联邦紧急状态条例颁布，对雇主提出这样的非法要求，我们的办公室将与全国其他州的司法部长一起，迅速起诉并寻求禁令，禁止任何执行或强制执行任务的行为。”
-
-（全文完）
-
-给斯蒂特州长、奥康纳部长点赞！面对邪恶，只有勇敢地站出来说不，才能震慑邪恶，才能伸张正义，才能唤醒人们。
-
-（文章仅代表作者个人观点）
-
-原文链接：
-
-[https://www.thegatewaypundit.com/2021/10/watch-oklahoma-governor-stands-bidens-vaccine-mandates-says-shots-personal-choice/](https://www.thegatewaypundit.com/2021/10/watch-oklahoma-governor-stands-bidens-vaccine-mandates-says-shots-personal-choice/)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

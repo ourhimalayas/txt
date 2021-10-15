@@ -2,42 +2,39 @@
 ---
 
 
-## 机器狗配备狙击步枪 ——“杀人机器狗”在华盛顿亮相
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1595274/)
+## 澳航提前重启国际航班
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1595318/)
 
-【**简评**】*在未来的战争中，这些“机器狗”将成为人类额外的眼睛和耳朵，可以代替人类士兵进入危险狭小的空间。6.5毫米克里德摩尔枪将使它能够在更远的距离上对付威胁。这对应对安全威胁非常有利，至少在侦察和城市巷战中能起到关键作用。但是，我还是赞同埃隆·马斯克的建议，即彻底禁止杀人机器人的研发，给子孙后代一个安全美好的世界。*
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qantas.jpg__1600x900_q85_crop_subsampling-2.jpg)图片来源：Global Citizen
+**整理报道：**翼族
 
-据《有趣的工程》网站记者：[Chris Young](https://interestingengineering.com/author/chris-young)，2021年10月13日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3A4E6168-F941-4608-9CF3-EDB20852EA98.jpeg)SPUR 机器狗系统。 图片来源：Ghost Robotics
-几十年来流行的反乌托邦科幻小说一直警告说，这可能会发生，然而，它真的来了。
+澳航宣布将会提前两周重启国际航班，以在11月1日重新开通国际航班。
 
-本周，在美国华盛顿特区举行的“美国陆军协会2021年会暨博览会”（AUSA）上，军用机器人制造商美国“幽灵机器人”公司（Ghost Robotics）展示了其致命的创造物 ——“杀人机器狗”—— 将狙击步枪绑在四足机器狗背上。
+此举是在澳大利亚联邦和新南威尔士州政府确认边界将在11月1日当天重新开放之后做出的，完全接种疫苗的海外入境者在抵达新南威尔士州时无需隔离。
 
-这家总部位于费城的公司在推特上分享了一张四足无人地面车辆(Q-UGV)的照片，照片上它戴着来自军火商“SWORD International”（简称SWORD）的6.5毫米口径克里德摩尔步枪（6.5mm Creedmoor rifle）。该系统被称为“特殊用途无人步枪”(Special Purpose Unmanned Rifle，简称SPUR)，不出所料，其在社交媒体上引发了争议。
+总理斯科特·莫里森（Scott Morrison）表示，该计划“首先是针对澳大利亚居民和公民的”，而不是游客。
 
-**没有灵魂的硬件**
+澳航在一份声明中表示，它也欢迎新南威尔士州为完全接种疫苗的旅客提供新的检疫系统。
 
-在另一篇Instagram帖子中，SWORD 表示，它参与SPUR的研发，目的是“保持（其特殊行动） 团队配备最创新的杀伤力武器”。这张照片以及幽灵机器人公司推文下面的大部分评论，都是在谴责这台机器的反乌托邦性质。
+澳航表示，从11月1日起将开启波音787梦想飞机每周往返于悉尼和伦敦，并且每周最多将有五次航班，另外每周运营多达四趟从悉尼飞往洛杉矶的往返航班。如果需要还将增加更多航班以满足需求。
 
-有人评论说:“你们在看了两次《银翼杀手》、一次《西部世界》节目和电影、10集《终结者》电影、两次《太空堡垒卡拉狄加》节目后，还认为这是个好主意吗?”也有人评论说，幽灵机器人公司制造了“一个没有灵魂的硬件，当亿万富翁最终担心他们的不义之财时，它可以用来残酷地镇压人民群众。”另一个人更直接地说:“这简直就是电视剧《黑镜》中金属头（机器狗）情节的再现。”
+至少在2022年4月之前，飞往伦敦的航班将通过达尔文【注：达尔文是澳洲较为偏僻的北领地的首府】中转运营。
 
-很难与这些评论争论。 幽灵机器人公司和 SWORD合作的这款机器狗是一种高精度的杀人机器，可以很容易地让人与已经在战场上使用人工智能设备（例如无人机和其他最先进的军事装备）联系起来。虽然SPUR也是为战场设计的，但我们不能忽略的是，迄今为止，机器狗主要用于公共场所。
+开始阶段只有澳大利亚公民、永久居民及其直系亲属和父母才有资格购买机票。
 
-**专家呼吁禁止杀手机器人**
+飞往新加坡、斐济和温哥华等其它目的地的航班仍将从12月18日开始恢复。但澳航表示如果可能的话，它会考虑增加从悉尼出发的目的地。
 
-与战争无人机不同，四足机器人已经在一些国家的执法部门使用。2020年中共疫情期间，新加坡曾使用波士顿动力公司(Boston Dynamics)的Spot机器人用于提醒居民保持适当社交距离及向社区隔离人员运送药品等工作。机器人技术在美国的执法领域也存在争议。2020年12月，纽约警察局对波士顿动力公司的Spot执法机器人进行了试验，但公众的强烈抗议迫使该部门取消了与这家机器人公司价值9.4万美元的合同。
+根据新南威尔士州的计划，完全接种疫苗的海外旅客将需要在登机前接受中共病毒（COVID-19）测试并出示完全接种疫苗的证明，目前尚不清楚抵达新南威尔士州后是否需要进行病毒检测。
 
-2015年，包括埃隆·马斯克(Elon Musk)、诺姆·乔姆斯基(Noam Chomsky)和斯蒂芬·霍金(Stephen Hawking) 在内的专家签署了一封公开信，呼吁联合国彻底禁止杀手机器人，称大多数人工智能研究人员“对制造人工智能武器没有兴趣”。**阻止杀手机器人运动**近年来也获得了关注，谷歌等大型科技公司的前雇员也加入了该运动（此前，其曾参与旨在增强美国军用无人机技术的 Maven 项目）。
+新州政府在一份新闻稿中表示，“将在未来几天提供有关入境者检测要求的进一步建议”。
 
-SWORD 在其网站上表示，“[SPUR] 专门设计用于从无人平台（例如 Ghost Robotics Vision-60 quadruped）上提供精确射击。由于其功能强大的传感器，SPUR 可以在各种条件下运行，无论白天还是晚上。”除此之外，在 SPUR 的规格方面几乎没有透露。例如，我们不知道它是否是远程操作的，或者它是否具有一定程度的自主性。我们也不知道机器人是为特定客户设计的，还是作为与任何军事组织签订的合同的一部分。
+**参考链接：**[Qantas brings forward restart of international flights](https://www.smh.com.au/national/australia-news-live-victoria-s-record-covid-cases-won-t-delay-reopening-nsw-restrictions-set-to-ease-further-as-daily-numbers-decline-20211014-p5903d.html)
 
-原文连接：[https://interestingengineering.com/yes-robot-dogs-can-now-carry-sniper-rifles-on-their-backs](https://interestingengineering.com/yes-robot-dogs-can-now-carry-sniper-rifles-on-their-backs)
+*编辑/发布：翼族*
 
-（本文评论仅代表个人观点）
-
-翻译/评论：洛杉矶盘古农场 – 钢蛋儿
-校对/编辑：洛杉矶盘古农场 – 明子
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

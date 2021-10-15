@@ -2,50 +2,49 @@
 ---
 
 
-## 澳大利亚正在建造安置“未接种疫苗者”的隔离营
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1595561/)
+## 郭文贵先生宣布重大好消息
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1595609/)
 
-#### 正在建造的设施是为安置那些“没有接种疫苗的人”
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/121021camp1-1.jpg)视频截图-网络图片
-
-尽管一些州暂时开始解除封锁限制，但澳大利亚当局正在建造隔离营，这些营地要到明年才能完工，以便为“正在进行的行动”做准备，并为那些“没有接种疫苗”的人提供住所。
-
-据澳大利亚广播公司报道，位于图文巴郊外威尔康普机场的一个拥有1,000个床位的隔离设施，将于2022年3月底全面完工。
-
-报告称：“现阶段，这些小屋将供从COVID热点地区返回的国内旅客使用。”
-
-然而，报告也明确表示，该营地将用于“正在进行的行动”，并将成为当地的就业来源。
-
-营地被分为不同的区域，分别为单人房、双人房和家庭房，同时由警察和保安人员24小时全天候巡逻。
-
-昆士兰州副州长史蒂文·迈尔斯(Steven Miles)对媒体表示，由于出现了新的COVID毒株和“没有接种疫苗的人”，“我们预计对隔离设施的需求将继续存在。”
-
-政府将从瓦格纳公司那里租用建造营地的土地12个月，之后可以选择再租用12个月。
-
-另一个拥有1,000个床位的检疫设施，也在布里斯班机场附近的平肯巴工业区，一个占地30公顷的陆军营房的用地上建造。
-
-正如我们之前强调的那样，美国各州当局也在为“无法在家中隔离”的美国人建造新的“隔离设施”。
-
-正如我们去年报道的那样，加拿大魁北克市当局宣布，他们将把“不合作”的公民隔离在一个隔离冠状病毒的场所中，该场所的位置仍然是一个秘密。
-
-新西兰还宣布了将COVID感染者及其家人安置在“隔离设施”中的计划。
-
-早在今年1月，德国当局还宣布，他们将在位于德累斯顿的所谓“拘留营”中，关押屡次未能正确遵守规则的COVID持不同政见者。
-
-**简评：**澳大利亚这些民主国家，在冠状病毒疫苗的问题上对未接种疫苗的人集中隔离，其手段与CCP极其相似，统治者不对病毒追责，但对疫苗有着极大的兴趣，让人怀疑其真正的目的。
-
-新闻链接：[Australia Building Quarantine Camps For “Ongoing Operations”](https://summit.news/2021/10/12/australia-building-quarantine-camps-for-ongoing-operations/)
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：火来
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+
+
+
+
+
+
+
+2021年10月15日，郭文贵先生在盖特视频中宣布了一个重大的好消息，那就是3月15日之后，新增的G系列投资者也将享有喜币配额。郭文贵先生从机构投资者中又争取了四千万个喜币，以满足新增投资者的喜币配额，比例为1比0.2。喜币将在本月上市，在上市前的最后几天里，还能为战友们争取到喜币配额的福利，也只有郭文贵先生能做到，只有新中国联邦能做到。新中国联邦不放弃任何一个战友，不让任何一个战友落下，要让每一个战友都抓住可能是人生中唯一的机会，这与中国共产党有着本质的不同。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-47.jpg)
+
+参考链接：
+[郭文贵先生盖特： 10月14号：大好消息来了……](https://gettr.com/post/pe4gjl93d5)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

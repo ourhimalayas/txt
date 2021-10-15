@@ -2,39 +2,18 @@
 ---
 
 
-## 澳航提前重启国际航班
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1595318/)
+## 研究发现超过一半的中共病毒幸存者患有新冠长期症状
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1595369/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qantas.jpg__1600x900_q85_crop_subsampling-2.jpg)图片来源：Global Citizen
-**整理报道：**翼族
+#### 翻译：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-26.jpg)图片来源：网络截图
+据合众国际社10月14日报道，研究人员发现，一半以上的中共病毒幸存者会患有所谓的新冠长期症状，医疗保健系统应该做好准备治疗他们。
 
-澳航宣布将会提前两周重启国际航班，以在11月1日重新开通国际航班。
+到目前为止，全世界有2.36亿人被诊断出感染中共病毒，许多人的身体和精神健康问题挥之不去，长达六个月或更长。中共病毒幸存者健康状况不佳的负担是压倒性的，其中包括精神健康障碍。一个人与中共病毒的战斗并不随着急性感染的恢复而结束，宾夕法尼亚州立大学公园神经工程中心助理研究教授Paddy Ssentongo博士说。
 
-此举是在澳大利亚联邦和新南威尔士州政府确认边界将在11月1日当天重新开放之后做出的，完全接种疫苗的海外入境者在抵达新南威尔士州时无需隔离。
+研究人员重新审查了57项研究，其中包括2019年12月至2021年3月期间被诊断为中共病毒的25万多名成人和儿童。他们对康复后一个月（短期）、两到五个月（中期）和六个月或更长时间（长期）的患者进行评估。总的来说，50%的人有长期症状，而且从最初患病后一个月到六个月或更长时间内，比率保持相当稳定。
 
-总理斯科特·莫里森（Scott Morrison）表示，该计划“首先是针对澳大利亚居民和公民的”，而不是游客。
+超过一半的人有体重减轻、疲劳、发烧或疼痛，大约五分之一的人行动能力下降，近四分之一的人注意力难以集中，约三分之一的人被诊断出患有广泛性焦虑症。10人中有6人有胸部影像异常，超过四分之一的人有呼吸问题，近五分之一的人有脱发或皮疹。胸痛和心悸是最常见的心脏相关症状，而胃痛、食欲不振、腹泻和呕吐是常见的消化道疾病。
 
-澳航在一份声明中表示，它也欢迎新南威尔士州为完全接种疫苗的旅客提供新的检疫系统。
-
-澳航表示，从11月1日起将开启波音787梦想飞机每周往返于悉尼和伦敦，并且每周最多将有五次航班，另外每周运营多达四趟从悉尼飞往洛杉矶的往返航班。如果需要还将增加更多航班以满足需求。
-
-至少在2022年4月之前，飞往伦敦的航班将通过达尔文【注：达尔文是澳洲较为偏僻的北领地的首府】中转运营。
-
-开始阶段只有澳大利亚公民、永久居民及其直系亲属和父母才有资格购买机票。
-
-飞往新加坡、斐济和温哥华等其它目的地的航班仍将从12月18日开始恢复。但澳航表示如果可能的话，它会考虑增加从悉尼出发的目的地。
-
-根据新南威尔士州的计划，完全接种疫苗的海外旅客将需要在登机前接受中共病毒（COVID-19）测试并出示完全接种疫苗的证明，目前尚不清楚抵达新南威尔士州后是否需要进行病毒检测。
-
-新州政府在一份新闻稿中表示，“将在未来几天提供有关入境者检测要求的进一步建议”。
-
-**参考链接：**[Qantas brings forward restart of international flights](https://www.smh.com.au/national/australia-news-live-victoria-s-record-covid-cases-won-t-delay-reopening-nsw-restrictions-set-to-ease-further-as-daily-numbers-decline-20211014-p5903d.html)
-
-*编辑/发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[More than half of COVID-19 survivors in study had ‘long-COVID’](https://www.upi.com/Health_News/2021/10/14/covid19-recovery-long-term-symptoms/7281634244051/)

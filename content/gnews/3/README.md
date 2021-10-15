@@ -2,31 +2,59 @@
 ---
 
 
-## 对美媒报道“中共国将派遣3名宇航员执行迄今为止最长的载人任务”的讨论和分析
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1595540/)
+## 一组抵抗疫苗强制简讯
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1595581/)
 
-撰稿：喜妈
+作者：文一
 
-美联社的最新报道，中共国正计划“派遣三名宇航员在其空间站上生活六个月”，这被该报道称之为是中共在这个领域中的“新里程碑”。文章援引中共国方面的介绍，这将是中共国“历时最长的载人航天任务”，是中共国航天员“在太空停留时间最长的记录”。文章对该计划内容有详细的分享。笔者关注的重点不在于中共即将如何进一步探索太空，而是中共为什么会选择在目前时间开展这个计划。笔者愿意分享对此计划一些自己的看法。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16342798371.png)（来自网络截图）
-首先，我们非常清楚地知道中共的一切科学发展都是“举国”模式，都是要符合“党国”当下的现实需求。
 
-笔者认为，这个在中共国即将展开的宇航员计划，至少有一点是明确的，继续为习神获得在中共国政治生态圈中，套取最大的政治利益，准备好台面上的光鲜和造神的素材。在疫情仍然没有控制，人民都尚且还在生存的挣扎中，这个计划出台，非常诡异。如果要找合理性，肯定首先就是从中南坑里最大的受益者习神入手来看待了；只有从这个角度，我们才能理出一些该计划的存在意义。
 
-其次，当下的中共国，老百姓饭都吃不上，民不聊生，各种经济形态和状况都每况愈下，载人航天计划被推出，实在就是祸国殃民。众所周知，载人航天计划都是烧钱的计划，是要大成本支撑的研究。这个时候，出台这个计划，笔者认为，还有一种可能就是习神要向天下公告：我们还有钱烧，我们还撑得起。照这样的做法，中共国就可以通过做个姿态然后媒体作假夸大宣传，再行造势一番。对于那些墙内外只看中共官方媒体的人民来说，这些信息就是他们打鸡血的来源。对于那些中共国的小兄弟们来说，也是可以被再糊弄一番，中共也得以继续维持与之表面上的友好关系。我们都知道，那些关系都是靠金钱和利益堆积出来的。因此，利用这个计划也在场面上打点一下，就是中共当下维护其既有“伙伴关系”的必须。
 
-第三，中共在目前的阶段，启动这个非常具有挑战性的航天计划，并不在科学和探索宇宙主题本身，这些都是他们用来蛊惑人心的工具。他们也会用这些素材去描绘自己的所谓先进性，为已经被不断质疑的领导能力、管理能力和执政能力，去有气无力的自我安慰一番。他们认为把自己都弄得激情澎湃了，全民全国也就跟着一起统一到了一个激情状态下。中共国的国民在长期的红色洗脑体系下，在乎的是一种感觉，而不是一种确定的可把握的存在。笔者预测，如果这个计划启动，成不成功都不是关键，关键是有这个计划，关键是他们给你在计划中描绘的一切神奇和震撼。在中共国体制下的老百姓已经习惯了不断被“喂”给一些“伟光正”的宏大布局，广阔蓝图。如果时间久了，没有了那些“鸡冻”的刺激，就没有了心理上的平衡和慰藉。
 
-第四，笔者认为，该航天计划，还有给不明真相的国际社会以虚幻的科技领先形象的意图。中共国以为谎言是可以不断畅行，永无止境地推进。中共罔顾自己的飞船和很多航天计划都失败的事实，什么都是骗，都是造假。成功的当然大肆宣传，失败绝口不提甚至以各种方式隐没。前不久中共国号称自己研制的探测器能够登上火星的消息，结果被民间和专业人士不断分享的各种事实所揭穿。可是，中共国不会有任何一点的廉耻之心，他就是意淫在自己的世界里。他还要把自己的意淫骄傲而自豪地传达给他红色体制下的国民。中共的科技进步是建立在“假骗偷”上的，他们没有坚实的科研基础。这些都是已知的事实。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-综上所述，这是非常可悲和荒唐的一个计划。没有什么实际的意义，即使得到相应的推动和实行，也是劳民伤财。我们不会相信中共以及被他们渗透的媒体宣传，我们更加能从这些疯狂的举动，看到中共的气数已尽，越是疯狂越是早亡。让中共在不断制造的疯狂与谎言中狂奔，我们相信，他会死得更快，灭得更彻底。
 
-(本文纯属个人观点，与Gnews无关)
 
-参考资料：
 
-[https://apnews.com/article/technology-science-business-china-mars-21b73a2b27b84ef1b38d9caba6980911](https://apnews.com/article/technology-science-business-china-mars-21b73a2b27b84ef1b38d9caba6980911)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+
+
+一、曾将疫苗强制与纳粹德国相提并论的芝加哥警察工会主席卡坦扎拉呼吁警员们反抗该市强制接种疫苗政策。 芝加哥要求政府雇员在周五之前提交疫苗接种记录，否则将面临每半周的检测。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-8.jpg)
+二、加州两大学区——洛杉矶和圣地亚哥学校系统因强制疫苗接种政策被指控歧视和剥夺未接种疫苗儿童接受公共教育的平等权利。 两个学区都早于州政府要求学生接种疫苗并实施比州政府还要严格的标准，接种要求扩展到 12 至 15 岁的人群，并不准宗教豁免。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-3.jpg)
+三、阿肯色州州长哈钦森在雇员可以选择不参加拜登总统的疫苗强制政策上，不赞成也不表示反对，称 “将允许该政策在没有我签字的情况下成为法律。” 在阿肯色州，如果州长没有在五天内否决，法案就会成为法律。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.3-2.jpg)
+四、一名加州法官部分阻止了一项本周生效的命令，该命令要求州监狱雇员接种中共病毒疫苗。 加州克恩县的一名法官发布了一项临时限制令，阻止州监狱雇员接受接种中共病毒疫苗。 该疫苗强制令定于周五生效，适用于所有拥有医疗保健设施的监狱员工。 加州惩教人员协会表示反对该疫苗政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.4.jpg)
+以法灭苗的火焰在美已成燎原之势，人们开始展开以法律做武器捍卫自己最基本的权利-生存权。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-72.jpg)
+参考链接：
+1. [Chicago police union chief who once compared vaccine mandates to Nazi Germany tells officers to defy the city’s requirement](https://news.yahoo.com/chicago-police-union-chief-once-131136323.html)
+2. [U.S. pastors, advocacy groups mobilize against COVID-19 vaccine mandates](https://www.reuters.com/world/us/us-pastors-advocacy-groups-mobilize-against-covid-19-vaccine-mandates-2021-10-14/)
+3. [L.A., San Diego school districts are sued over student vaccination mandate](http://L.A.,%20San%20Diego%20school%20districts%20are%20sued%20over%20student%20vaccination%20mandate)
+4. [Arkansas governor allows vaccine mandate opt-out bills to become law](https://www.upi.com/Top_News/US/2021/10/14/Arkansas-vaccine-mandate-opt-out/1551634198205/)
+5. [The Latest: Vaccine mandate for Calif. prison guards blocked](https://www.sfgate.com/news/article/The-Latest-US-to-drop-19-month-ban-on-16529088.php#photo-21578615)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
