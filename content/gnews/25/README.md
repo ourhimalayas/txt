@@ -2,84 +2,41 @@
 ---
 
 
-## 亮一亮和吴征在蒙古包喝酒的FBI合伙人Richard Frankel
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1595758/)
+## DC大中华时事：中共认为美国已经失去向台湾承诺的资本
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1595781/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/002_副本.png)
-郭文贵先生在[2021年10月13日文贵直播：记住今天这个大日子；傅政华的被抓，全世界的律师事务所，司法界大颠覆，大唤醒；马云是光明会成员；目前世界的危局，经济大崩溃，世界的黑暗势力和中共的黑暗势力因为病毒疫苗受到扭曲；房地产的倒塌会导致中共更加要打台湾，全面拖垮世界经济；中美之间必有一战](https://www.gtv.org/video/id=6166d150304e992109b45e6f)直播中提到：
+*编辑：NewFree(文华) / 作图：*superT3d(文揚)
 
-［吴征更夸张的是，现在你看看，吴征所有的官司和在香港的几个公司，还有香港的几个律师事务所，太平联盟告我这个官司，太平联盟的律师，竟然是有一个帮助的律师是吴征的合伙人，原FBI的高管,在北京蒙古包里边记着喝酒那个，旁边有美女的唱什么歌那个。前FBI纽约高管——吴征的合伙人。这个高管和合伙人和吴征竟然是帮助买了一个叫什么idigital(注：疑为*Ideanomics)*，吴征就卖给了那个马云34亿美元弄走。］
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
 
-这就牵扯到推特上曾经发出过的一段吴征在蒙古包的视频——
+#   墙国妄语每日驳
 
-视频中出现的这个人——
-![](https://assets.gnews.org/wp-content/uploads/2021/10/002-2.png)
-根据[Ideanomics HQ](https://www.facebook.com/ideanomicshq/?__tn__=-UC*F)于[2019年3月16日](https://www.facebook.com/ideanomicshq/photos/a.230727764203885/353480878595239/?__tn__=%2CO*F)发表的脸书内容
+### 10.15 【社评】台海局势：中国的钢铁VS美国的磐石
 
-[https://www.facebook.com/ideanomicshq/photos/a.230727764203885/353480878595239/](https://www.facebook.com/ideanomicshq/photos/a.230727764203885/353480878595239/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/53913849_353480888595238_3556440217684541440_n.jpg)
-Ideanomics at the GT Future Forum 2019
+*美国多名官员近日高频次宣示“美国对台湾的承诺坚如磐石”，同时指责解放军在台海地区的演训“破坏和平与稳定”。美台勾连也在加码，台“陆军司令”近日访美，美副国务卿公开会见“台北经济文化代表处”负责人等都在发生。“坚如磐石说”可以欺骗、安抚岛内激进势力，但对中国大陆起不到任何吓阻作用。大陆会坚定不移地不断强化军事斗争准备，为最终解决台湾问题塑造关键且压倒性的筹码。我们要告诫岛内社会，切莫笃信美方“坚如磐石的承诺”，美国决不会为了“台独”与中国大陆殊死一搏，它现在做的一切不过是在玩弄地缘政治花招。它想通过打“台湾牌”制造中国崛起的最大阻力，但“台湾牌”不是美国需要不惜代价、宁愿付出大量生命来捍卫的“生死之牌”。美国自己的利益始终是它设计台海政策的出发点。*
 
-Ideanomics: Dr. Bruno Wu, Chairman (Center right), Alf Poor, CEO (2nd left), and Richard Frankel, Director (left)
+*让我们打开天窗说亮话：美国今天已经失去了向台湾做所谓“坚如磐石”承诺的资本。民进党当局休要误判形势，他们需要清楚，华盛顿撑不起对台湾的“保护伞”。偏执地认为美国决不会放弃台湾，会与台湾并肩战斗，而且美方的决心将让中国大陆望而却步，这是幻想。大陆一旦做出武力解决台湾问题的政治决定，必将再创当年解放军“百万雄师过大江”的现代版，美国届时抛弃台当局将是必然选择。大陆决心打掉民进党当局的嚣张气焰，我们也决心用自己的钢铁意志击碎美国的所谓“坚如磐石”。我们不会放弃和平解决台湾问题的努力，但和平的终点必须是两岸统一，而不是“两个中国”或“一中一台”。那些分裂中国者决不会找到一条通往其目标的和平之路。*
 
-中文大意：Ideanomics 2019 年 GT 未来论坛
+***简评：*2020美国大选还存在变数，深层政府通过政治手段帮助拜登上位，让美国社会对选举的诚信产生了巨大忧虑，病毒危机，疫苗灾难、严重透支的财政和经济结构的严重失衡，经济危机就在眼前，2022年的中期选举是民主党输不起的战役，在巨大的各种危机压力下，拜登政府选择与中共继续勾兑，拜登的亲笔信，表示中共对美国的控制占据主动权，所以习神国庆讲话，预示即将要采取强硬手段收回台湾，目前中共官媒放出各种收回台湾的檄文就不足为奇了，同时也是中国为即将发生的军事行动进行的国际国内宣传。正如郭文贵先生说的：“台湾在国际疫情和经济变局下，成为了中美交易的筹码”，可悲的是台湾内部有大量的卖台贼与中共合作，各个剩余的台湾人安享和平繁荣太久，还以为中共只是口炮，中共已经筹划多年，现在的历史时机也是不可多得，发誓要成为秦始皇一样的伟人的习神，在健康威胁下，打台湾是95%以上的可能性，而且基本不会超过20大这个时间点，台湾当局是否做好了应对中共攻台的准备，被勾兑后的拜登政府，最多象征性的表演一下对台湾的所谓承诺和义务，那么日本和其它的盟友，在美国不采取有效反击的前提下是不会有实质行动的。当前的国际形势，新中国联邦是一股不可忽视的力量，通过爆料革命和正道主义力量在背后的斡旋，改变了国际形势的走势，让黑暗的国际勾兑呈现在世人面前，唤醒正义的人们，使台湾危机的伤害降到最小，凝聚世界的力量，共同消灭中共和共产主义，才能让台湾与大陆得以实现真正的安定与长久的繁荣。**
 
-Ideanomics：董事长Bruno Wu吴征（中右）、首席执行官Alf Poor（左二）和总经理Richard Frankel（左）
+### 10.15 罕见！华裔成员呼吁加反对党放弃反华纲领：为什么不将中国命运留给中国人民决定？
 
-再让我们看看总经理Richard Frankel先生，据[Richard M Frankel](https://rmfpc.com/attorneys/frankel/)：
+*据加拿大《国家邮报》13日报道，代表加最大反对党联邦保守党的华裔成员近日“惊人地”召开记者会，呼吁该党党首奥图尔辞职，因为其强硬的对华政策疏远了华人选民，致使该党在上个月的选举中失去3个席位。该团体认为，加拿大对中国事务的干预只会激起中国的民族主义情绪，“为什么不将中国的命运留给生活在其中的中国人民来决定？”据报道，该团体名为加拿大华人保守党协会。该协会认为，保守党不应该对北京采取强烈对抗的立场。在最近举行的一次新闻发布会上，协会发言人、地方市议员乔·李说，该组织主要关注的是保守党选举纲领中的对华 “仇恨信息”。这一纲领也被称为“对华断交”纲领。李说，保守党曾经建议他在此次选举中参选，但 “我不认为自己能够在这种反华政策下获胜”，“当你不断攻击中国时，有时会转化为攻击华人社区”。*
 
-Mr. Richard M. Frankel served for more than 25 years in public service, the majority of his career with the Federal Bureau of Investigation (FBI).
+*据报道，加拿大华人保守党协会成立于1983年，旨在鼓励华人参与保守党政治活动，在加拿大各地拥有约1000名成员，其会员包括上个月在列治文中心选区竞选失败的一些议员。针对该协会的呼吁，当地观察人士告诉《环球时报》记者，华人对保守党的影响力有限，甚至对华人选民的影响力都有限。《国家邮报》称，奥图尔的发言人未置评。自从保守党在9月20日的联邦选举失败后，奥图尔的领导地位受到普遍质疑，尽管他说自己仍有足够的支持。竞选期间，在执政党支持率下降的情况下，保守党居然失去了三个有大量华人的选区——两个在不列颠哥伦比亚省的列治文，一个在安大略省的万锦市。*
 
-Serving as Of Counsel at Ruskin Moscou Faltischek P.C., Richard’s practice focuses on Cybersecurity and White Collar Crime & Investigations.
+***简评：*郭文贵先生对本次麻烦大的大选预测是，小土豆大概率再次当选，但是在议会上会失去控制权，对其接下来的执政极为不利，同时由于中共利用蓝金黄几乎把各国的投资基金都吸入了中共的资本黑洞，中共病毒危机和疫苗灾难的叠加，会让世界陷入死亡的人道危机，同时世界经济危机爆发，未来1-2年世界在死亡和绝望的困境下苦苦挣扎，就会深刻体会到中共才是制造危机的罪魁祸首，但是在仇恨的驱使下，又有多少人能分清中国人与中共的区别，因此排华和屠华几乎是不可避免的。这篇报道充分体现了中共对加拿大的渗透，而且中共不仅分化华人与加拿大人的融合，还再不断制造华人与多数加拿大人的冲突和矛盾，加最大反对党联邦保守党提出强硬的对华政策，也被称为“对华断交”纲领，就说明加拿大的保守党已经深刻意识到中共的危害，不惜采取激进的“对华断交”，这些政策在当前形势下，无疑对保守党的竞选是不利的，但是当整个国际形势发生变化的时候，被中共裹挟的华人无疑也是最危险的。海外的华人朋友们，你们即使不完全相信郭先生的忠告，也应该认识到中共给世界带来的危险和破坏，远离中共，积极融入当地社会，宣传中共的邪恶，同时做好必要的准备，以应对不久将来可能到来的排华危机。**
 
-A recognized authority in complex investigations, asset recovery, cyber issues and crisis management, Frankel also provides regular insight on terrorism, criminal and intelligence related matters. He has extensive experience in understanding as well as investigating complex coordinated attacks.
+### 10.15 “中国拍《长津湖》是威胁世界”？封！
 
-Mr. Frankel led several FBI field divisions as the Special Agent In-Charge. In this capacity Mr. Frankel oversaw criminal investigations, as well as undercover and tactical operations, while actively working to lead organizational transformational efforts to transition to a threat-based, intelligence-led operating posture. Mr. Frankel also directed multi-agency initiatives and major response to threats against persons and property, while developing extensive liaison programs through outreach to entities in the public, private, academic and non-profit sectors, as well as with community groups.
+*触犯众怒的“米路哲光影业”账号目前已因“不符合社区规范”被抖音平台封禁，相关视频无法查看。需要强调的是，《人民日报》曾在10月11日报道称，对于一部战争片来说，如何定义和体现战争的正义性和非正义性，是确立影片合理性的前提。《长津湖》导演之一陈凯歌认为，中国的战争片一定要让观众明白这场战争对中国有什么价值和意义，对今天的和平起到了什么作用。“战争要付出生命的代价。赢来的和平则更为宝贵。这都是我们希望通过《长津湖》来表达的。”陈凯歌说。*
 
-Mr. Frankel is also Chief Executive Officer of a strategic crisis management, intelligence and security advisory firm dedicated to helping clients, financially and physically, mitigate exposure and minimize loss by integrating technology with specialist knowledge, including human and deep source intelligence, by combining open source cyber and surveillance intelligence in order to address current and emerging threats to multinational corporations, governments, and non-governmental organizations as well as private individuals across four main areas: intelligence, counter-terrorism, cyber security, and critical infrastructure protection.
+*该片历史顾问王树增也表示：“近代以来我们这个民族受尽屈辱，所以百年以来我们这块土地上的仁人志士，不惜掉头颅也要挽救这个民族，要让这块土地上的广大人民过上自由平等的生活。《长津湖》用画面、镜头、表演，深刻、饱满地体现了当时历史片段中的人和事。”而据报道，在影院里，观众的反应更是令人动容。有观众在影片结束后肃然起立敬礼，向影片中的英雄先辈们致敬；有观众看完长达十几分钟的字幕后仍然久久不愿离去。*
 
-In addition, Mr. Frankel served as the Associate Director of National Intelligence and Senior FBI Representative to the Office of the Director of National Intelligence with the responsibility for overseeing and managing domestic intelligence relationships.  Mr. Frankel was the principal liaison with external entities and advised the Director on all issues related to the intelligence relationship between the Intelligence Community and its Domestic Partners.  In this position, Mr. Frankel worked to increase interaction and cooperation between the law enforcement community and the greater Intelligence Community as it related to identifying and working against cyber threats.
+***简评：*每个国家和人民都有拍摄影视作品的权力，但是想借战争电影来扭曲历史，美化战争，宣传民族主义，并通过洗脑民众来发动新的战争就是可耻的，也是要被世人抵制的。中国拍《长津湖》就是中共高层想攻打台湾，拍出来的政治电影，“米路哲光影业”账号目前已因“不符合社区规范”被抖音平台封禁，相关视频无法查看，这是法西斯集权下的中共，对言论的审查，消除一切反对中共的声音，再不行的话就让当事人消失。翻开中共的历史我们可以知道，中共的起家就是靠宣传洗脑，在他们伟大、光荣、正确的背后，隐藏的是卑鄙、无耻、下作、背叛、冷血、颠倒黑白。为了攻打台湾，中共一定会宣传民族统一大业、虚假的战争英雄、美化战争的残酷性，激起国内粉红的所谓爱国情怀，把所有中国人绑架到中共这台战争机器上。尚有良知的中国人，一定要保持清醒，影响自己所能影响的人，与新中国联邦一道团结所有灭共的团体组织，消灭中共是正义的需要，没有中共对所有的华人都至关重要。**
 
-A graduate of Ithaca College, Quinnipiac Law School and several Senior Executive programs, Richard’s government service began as Assistant District Attorney for Suffolk County, New York.
-
-谷歌翻译结果——
-
-Richard M. Frankel 先生在公共服务领域服务了超过 25 年，他的大部分职业生涯都在联邦调查局 (FBI) 任职。
-
-作为 Ruskin Moscou Faltischek P.C. 的法律顾问，Richard 的执业重点是网络安全和白领犯罪与调查。
-
-作为复杂调查、资产追回、网络问题和危机管理领域公认的权威，弗兰克尔还定期提供有关恐怖主义、犯罪和情报相关事务的见解。他在理解和调查复杂的协同攻击方面拥有丰富的经验。
-
-弗兰克尔先生作为特工主管领导了几个联邦调查局的外勤部门。在此职位上，弗兰克尔先生负责监督刑事调查以及卧底和战术行动，同时积极致力于领导组织转型工作，以过渡到以威胁为基础、以情报为主导的行动态势。 Frankel 先生还指导多机构倡议和对人身和财产威胁的重大反应，同时通过与公共、私营、学术和非营利部门的实体以及社区团体的外展活动来制定广泛的联络计划。
-
-Frankel 先生还是一家战略危机管理、情报和安全咨询公司的首席执行官，该公司致力于通过将技术与专业知识（包括人类和深度源情报）相结合，在财务和身体方面帮助客户减轻风险并最大限度地减少损失。获取网络和监视情报，以应对跨国公司、政府和非政府组织以及个人在四个主要领域面临的当前和新出现的威胁：情报、反恐、网络安全和关键基础设施保护。
-
-此外，弗兰克尔先生还担任国家情报局副局长和国家情报局局长办公室的高级联邦调查局代表，负责监督和管理国内情报关系。 Frankel 先生是与外部实体的主要联络人，并就与情报界与其国内合作伙伴之间的情报关系有关的所有问题向局长提供建议。在此职位上，弗兰克尔先生致力于加强执法界与更大的情报界之间的互动与合作，因为这与识别和应对网络威胁有关。
-
-作为伊萨卡学院、昆尼皮亚克法学院和多个高级管理人员课程的毕业生，理查德的政府服务开始于纽约萨福克县的助理地区检察官。
-
-\*\*\*\*\*\*\*资料引用完毕\*\*\*\*\*\*\*
-
-郭文贵先生在[2021年10月13日文贵直播：记住今天这个大日子；傅政华的被抓，全世界的律师事务所，司法界大颠覆，大唤醒；马云是光明会成员；目前世界的危局，经济大崩溃，世界的黑暗势力和中共的黑暗势力因为病毒疫苗受到扭曲；房地产的倒塌会导致中共更加要打台湾，全面拖垮世界经济；中美之间必有一战](https://www.gtv.org/video/id=6166d150304e992109b45e6f)的直播中提到“这次我们要以律师、以法灭共的同时，要以法灭了共产党的共贼在全世界。”，根据郭先生四年的爆料革命以来，我们已经耳熟能详并且可以背下来的的关于司法部大案的几个关键人物是：Higginbotham、Steve Wynn、Nickie Lum Davis、Elliott Broidy，这一次再度浮现的Richard M. Frankel会不会是接下来以法灭掉的共贼呢？让我们拭目以待。
-
-撰稿：喜马拉雅的肉夹馍
-
-审核：喜马拉雅的馍夹肉
-
-校对：Maarago
-
-（文章内容仅代表作者个人观点）
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+#   港台资讯
+![](https://media.discordapp.net/attachments/858887785507323904/898468071646314526/2_cn.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/898468071809904680/1_cn.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/898468082928992256/3_cn.png?width=1043&amp;height=586)
+*编辑：*NewFree(文华)
+*作图：superT3d(文揚)
+发布：文顾*
