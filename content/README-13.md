@@ -16,6 +16,8 @@
 ---
 ## 頁面 13/36 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [36](/content/README-36.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)
 
+[文字版:2020年2月15日文贵告诉战友们一定要耐心在家健身健心，会有解药的！CCP灭了车贷房贷不用还了！](/content/2020/02/20200218-4076658468529416877.md)
+
 [文字版：2020年2月14日文贵试直播谈GTV的武汉疫情视频免费用，战友不树敌只为灭共](/content/2020/02/20200216-8326399150836754935.md)
 
 [文字版：2020年2月12日文贵谈一切都听党的走向火葬场](/content/2020/02/20200214-4470688033484197678.md)
@@ -63,8 +65,6 @@
 [文字版：2020年1月20日文贵谈中国正在发生的非典真相并分享西方人如何看待勤劳的中国人却如此多灾多难不受人尊重的原因](/content/2020/01/20200122-2341307363254649322.md)
 
 [文字版：2020年1月19日文贵爆惊天新闻——中美协议是卖港交易](/content/2020/01/20200121-9098198645527028408.md)
-
-[文字版：2020年1月18日文贵谈刘鹤招待会取消预示着什么，爆料革命击中了中共的所有要害](/content/2020/01/20200120-5512396279941051665.md)
 
 
 ## 頁面 13/36 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [36](/content/README-36.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)

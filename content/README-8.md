@@ -16,6 +16,8 @@
 ---
 ## 頁面 8/36 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [36](/content/README-36.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年8月31日郭先生GTV直播](/content/2020/09/20200909-6393113916959370264.md)
+
 [文字版：2020年8月29日郭先生GTV直播连线台湾游行战友](/content/2020/09/20200909-3958441803573956074.md)
 
 [文字版：2020年8月29日郭先生GTV直播连线图桑游行战友  ](/content/2020/09/20200909-4793138191271001277.md)
@@ -63,8 +65,6 @@
 [文字版：2020年7月27日郭先生GTV直播](/content/2020/07/20200730-5703887795037771842.md)
 
 [文字版：郭先生2020年7月25日GTV直播](/content/2020/07/20200729-6515817926208283674.md)
-
-[文字版：2020年7月22日郭先生8分钟盖特](/content/2020/07/20200726-4617342392146265454.md)
 
 
 ## 頁面 8/36 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [36](/content/README-36.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
