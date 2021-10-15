@@ -2,56 +2,53 @@
 ---
 
 
-## 护士吹哨：医院从未不堪重负
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1595724/)
+## 2021/10/14 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1595740/)
 
-- 编译：Jenny Ball
+**主播**：大卫｜**嘉宾**：微蓝、神奇四侠
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-22.png)
 
-据报道，一名前护士由于 COVID-19 疫苗要求的宗教豁免被拒绝而被解雇，他对那些歇斯底里的说法提出了相当严厉的指责，即 ICU 床位因所有未接种疫苗的病人而满负荷运转。
+**板块1–香港台湾**
 
-在接受《生活新闻》[LifeSiteNews](https://www.lifesitenews.com/news/exclusive-nurse-fired-for-refusing-covid-jab-reveals-truth/)采访时，曾在弗吉尼亚州温彻斯特（Valley Health）担任急诊室护士的布拉德·麦克道威尔（ Brad McDowell） 解释说，“满负荷”状态与未接种疫苗的患者关系不大，而更多是由于未接种疫苗的工作人员[抗拒](https://www.westernjournal.com/alabama-hospital-defies-biden-administration-ends-covid-vaccine-requirement-staff/?ff_source=Email&amp;ff_medium=conservative-brief-CT&amp;ff_campaign=dailyam&amp;ff_content=conservative-tribune)医院、州和联邦的命令。
+1. 将《周三对话班农先生》节目打造成面向全联盟英语水平高开放式的灭共平台。目的在于使《班农作战室》和爆料革命信息“落地”世界各国。
 
-“他们无法开放是因为他们没有护士和技术人员，”他在周末发布的视频采访中解释说，采访者吉姆·黑尔问到，[医疗保健人员的短缺](https://www.westernjournal.com/new-york-health-care-workers-get-massive-win-court-covid-vaccine-mandate/?ff_source=Email&amp;ff_medium=conservative-brief-CT&amp;ff_campaign=dailyam&amp;ff_content=conservative-tribune) 是否由大流行引起的，但实际上是许多卫生保健专业人员拒绝遵守严格的疫苗规定的结果。
+2. 中共对香港从明目张胆修改《国安法》到私下阴招逐个击破异见人士。以镇压香港试探国际底线并恐吓世界。联合国专家敦促检查香港国安法，不符合人权和国际法律，实际效应不大，但证明国际上还有正义人士。
 
-“我可以告诉你，[Valley Health]没有开放所有床位，我确实知道这一点，”麦克道尔在谈到他以前的工作地点时说道。
+**板块2–中共病毒**
 
-他解释说：“有些床位关着，他们说是……满员了，但这不是因为床位不够。”
+1. 孜孜不倦重复传播爆料革命关于病毒和疫苗真相，让更多人知晓。吸收海外华人“中间观望派”加入爆料革命，合作面对未来的世界“暴力排华”，农场开始准备应对措施。
 
-“这不是因为病人过多，这是因为劳动力不够，”他说。
+2. 中共利用纽约时报报道–世界卫生组织成立26名科学家组成调查组，研究大流行起源》。目的在于“研究定性”病毒来源，继续误导世界，转移大众视线，逃避责任。
 
-**换句话说，未接种疫苗的患者并没有让医院不堪重负； 医院解雇了许多拒绝遵守疫苗规定的工人，结果现在人手不足。**
+**板块3–国际国内财经**
 
-当您考虑到在整个大流行期间，医护人员不仅对 COVID-19 病毒最为熟悉，而且他们最有可能大声疾呼疫苗。
+1. 中共国通胀严重，老百姓生活成本升高。生活必需品酱油明显涨价。生产者价格指数（PPI)创有记录以来最快上涨（PPI上涨10.7%，CPI上涨0.7%），工厂通胀将引发连锁反应（供应链转移、政策变化不定）。
 
-首先，与消防员、EMT 和警察等一线工作人员的情况一样，大多数护士和医生都曾接触过冠状病毒，许多人都感染并幸存下来。
+2. 各地银行烂账将逐个破裂。习派计划“保一批、灭一批”，顺着爆料革命提供信息摸底海外存钱“密码”，收回部分填补国内的坑，顺便打击政治对手。
 
-尽管这对制造和强制接种疫苗的人来说非常不方便，但事实仍然是，有充分的证据表明，**天然免疫至少可以像疫苗本身一样抵御病毒**。
+3. 随着国际能源价格上涨，北方供暖面临现实问题。现在提出北方供暖煤改气，凸显中共管理规划的不足。
 
-“你仔细想想就知道，是那些政治精英、媒体精英、疾控中心最高级别的人、制药业，他们在运行，他们在掌控着整个故事话语权，”麦克道尔解释说。
+4. 九月份中共国汽车整车销售暴跌16.5%。中共国持续打击加密货币，堵住外汇出逃可能，币安已经从平台取消人民币。
 
-“**他们是推动疫苗的人，他们是从每个接种疫苗人身上受益最大的人**，”他说。
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
 
-与此同时，医院的病人和辛勤工作的前线工作人员因这些命令而受害。
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
 
-一年前，护士和医生是这场大流行的著名英雄——现在他们因拒绝接种疫苗而被过河拆桥。
 
-在大流行开始时，他们被视为全人类的救世主。他们的困境，经常被用来说服我们其他人闭嘴，排队，无视对我们公民自由前所未有的侵犯和关注。
+[![](https://spark.adobe.com/page/jWZN8f7xWOUhR/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://spark.adobe.com/page/jWZN8f7xWOUhR/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
 
-突然之间，既然如此多的人对这种疫苗产生了怀疑，并且愿意并准备好与 COVID-19 患者一起工作，而无需自己接种疫苗，他们突然就没有影响力了吗？
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-卫生保健系统、各州和拜登政府的广泛任务，正在造成卫生保健工作者短缺，而他们继续告诉我们，这是一种可怕的致命流行病，而这种流行病是由那些拒绝接种疫苗的人造成的。 然而，显然，根据麦克道尔的说法，**情况远非如此**。**我们还要忍受这种人为制造的流行病多久**——**在这个过程中，我们国家重要的医疗保健基础设施将受到多大的破坏？**
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
 
-（文章仅代表作者观点，与GNEWS无关）
 
-**素材来源：**[www.westernjournal.com](https://www.westernjournal.com/nurse-whistleblower-debunks-leftist-lie-hospitals-beds-unvaccinated-patients/?utm_source=Email&amp;utm_medium=conservative-brief-CT&amp;utm_campaign=dailyam&amp;utm_content=conservative-tribune&amp;ats_es=%5B-MD5-%5D)
+*编辑：【英国伦敦喜庄园编辑部】*
 
-* * *
+*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
 
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
+[![](https://spark.adobe.com/page/jWZN8f7xWOUhR/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/jWZN8f7xWOUhR/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)

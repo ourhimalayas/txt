@@ -15,140 +15,140 @@
 
 ---
 
-### [虚伪表演：台湾是中国的台湾，轮不到美国说三道四](/content/gnews/1/README.md)
+### [秘翻在线：前美国卫生部门官员呼吁川普站出来停止疫苗接种](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中国共产党对全球民主国家的非军事作战](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [虚伪表演：台湾是中国的台湾，轮不到美国说三道四](/content/gnews/3/README.md)
  ` 儒为`
 
-### [秘翻在线：意大利强推绿色通行证并未提高疫苗接种率](/content/gnews/2/README.md)
+### [秘翻在线：意大利强推绿色通行证并未提高疫苗接种率](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [解读美国海狼级核潜艇南海撞击事件](/content/gnews/3/README.md)
+### [解读美国海狼级核潜艇南海撞击事件](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共病毒制造者、疫苗推广者和疫苗生产者之间的惊人联系](/content/gnews/4/README.md)
+### [中共病毒制造者、疫苗推广者和疫苗生产者之间的惊人联系](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线：新世卫病毒溯源小组吸纳了更多被中共勾兑的“科学家”](/content/gnews/5/README.md)
+### [秘翻在线：新世卫病毒溯源小组吸纳了更多被中共勾兑的“科学家”](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [业务焦虑！华为入局医疗器械行业](/content/gnews/6/README.md)
+### [业务焦虑！华为入局医疗器械行业](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [揭穿中共“为人类和平发展进步作出新的重要贡献”的大骗局](/content/gnews/7/README.md)
+### [揭穿中共“为人类和平发展进步作出新的重要贡献”的大骗局](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [疫苗强制令引起的停工潮迅速蔓延至21家航空公司](/content/gnews/8/README.md)
+### [疫苗强制令引起的停工潮迅速蔓延至21家航空公司](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [应对“中共的海洋活动”！日本最强潜艇下水](/content/gnews/9/README.md)
+### [应对“中共的海洋活动”！日本最强潜艇下水](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共“翼龙”无人机挂“新弹”现身埃及空军建军纪念日](/content/gnews/10/README.md)
+### [中共“翼龙”无人机挂“新弹”现身埃及空军建军纪念日](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：世卫组织已成为中共宣传的一部分](/content/gnews/11/README.md)
+### [秘翻在线：世卫组织已成为中共宣传的一部分](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [航空从业者大面积拒绝强制疫苗接种将导致航空公司关门](/content/gnews/12/README.md)
+### [航空从业者大面积拒绝强制疫苗接种将导致航空公司关门](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [歌曲：把酒倒满](/content/gnews/13/README.md)
+### [歌曲：把酒倒满](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [在拜登政府的姑息下，中共间谍仍在美国肆虐](/content/gnews/14/README.md)
+### [在拜登政府的姑息下，中共间谍仍在美国肆虐](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [迈克·加拉格尔：召开北京冬奥会和进行拜习会谈是对中共的奖励](/content/gnews/15/README.md)
+### [迈克·加拉格尔：召开北京冬奥会和进行拜习会谈是对中共的奖励](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [DC大中华时事：中共认为美国已经失去向台湾承诺的资本](/content/gnews/16/README.md)
+### [DC大中华时事：中共认为美国已经失去向台湾承诺的资本](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [初中生未戴口罩被戴手铐示众 家长提诉讼](/content/gnews/17/README.md)
+### [初中生未戴口罩被戴手铐示众 家长提诉讼](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [疫苗强制令导致的人员短缺日益严重，使社区处于危险境地](/content/gnews/18/README.md)
+### [疫苗强制令导致的人员短缺日益严重，使社区处于危险境地](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [亮一亮和吴征在蒙古包喝酒的FBI合伙人Richard Frankel](/content/gnews/19/README.md)
+### [亮一亮和吴征在蒙古包喝酒的FBI合伙人Richard Frankel](/content/gnews/21/README.md)
  ` NewFOC`
 
-### [法国参议院经投票，不予通过疫苗强制接种提案](/content/gnews/20/README.md)
+### [法国参议院经投票，不予通过疫苗强制接种提案](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [VAERS：可能至少有 16万美国人死于新冠病毒疫苗](/content/gnews/21/README.md)
+### [VAERS：可能至少有 16万美国人死于新冠病毒疫苗](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021/10/14 大卫作战室直播精要](/content/gnews/22/README.md)
+### [2021/10/14 大卫作战室直播精要](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：美国前总统克林顿住进重症监护室 住院原因众说纷纭](/content/gnews/23/README.md)
+### [秘翻在线：美国前总统克林顿住进重症监护室 住院原因众说纷纭](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [护士吹哨：医院从未不堪重负](/content/gnews/24/README.md)
+### [政治经济梗：日本新首相岸田宣布议会解散诏书](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [护士吹哨：医院从未不堪重负](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：拜登气候特使克里向中共国公司投资了一百多万美元](/content/gnews/25/README.md)
+### [秘翻在线：拜登气候特使克里向中共国公司投资了一百多万美元](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [10/6郭文贵盖特：共产党一定死于以假治国、以黑治国、以警治国（粤语配音）](/content/gnews/26/README.md)
+### [10/6郭文贵盖特：共产党一定死于以假治国、以黑治国、以警治国（粤语配音）](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [10/06郭文贵盖特：香港太盟投资欺骗西方机构投资人（粤语配音）](/content/gnews/27/README.md)
+### [10/06郭文贵盖特：香港太盟投资欺骗西方机构投资人（粤语配音）](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [10/5/郭文贵直播：中国人将为中共经济绑架全世界而买单（粤语配音）](/content/gnews/28/README.md)
+### [10/5/郭文贵直播：中国人将为中共经济绑架全世界而买单（粤语配音）](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [10/5郭文贵直播：中共债务将让全世界的养老金和保险金蒸发（粤语配音）](/content/gnews/29/README.md)
+### [10/5郭文贵直播：中共债务将让全世界的养老金和保险金蒸发（粤语配音）](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国是美国第一威胁 陆军年会展示最新武器装备](/content/gnews/30/README.md)
+### [中共国是美国第一威胁 陆军年会展示最新武器装备](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [联合国人权专家对香港实施国安法逮捕表达关切](/content/gnews/31/README.md)
+### [联合国人权专家对香港实施国安法逮捕表达关切](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：民主党参议员伊丽莎白·沃伦呼吁分解亚马逊](/content/gnews/32/README.md)
+### [秘翻在线：民主党参议员伊丽莎白·沃伦呼吁分解亚马逊](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [英国港口正在面临集装箱货轮拥堵](/content/gnews/33/README.md)
- ` 纽约香草山MOS02`
-
-### [一组抵抗疫苗强制简讯](/content/gnews/34/README.md)
+### [一组抵抗疫苗强制简讯](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [芝加哥市长退让，表示不会解雇未接种疫苗的教师](/content/gnews/35/README.md)
+### [芝加哥市长退让，表示不会解雇未接种疫苗的教师](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [每日快报：世界上最大的房地产市场正在崩溃](/content/gnews/36/README.md)
+### [每日快报：世界上最大的房地产市场正在崩溃](/content/gnews/38/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七国集团财政领导人为央行数字货币制定准则](/content/gnews/37/README.md)
+### [七国集团财政领导人为央行数字货币制定准则](/content/gnews/39/README.md)
  ` 纽约香草山MOS01`
 
-### [普京：接受加密货币支付方式](/content/gnews/38/README.md)
+### [普京：接受加密货币支付方式](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [台湾中共病毒死亡率与疫苗接种率同步走高](/content/gnews/39/README.md)
+### [台湾中共病毒死亡率与疫苗接种率同步走高](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [不堪网络审查 微软将关闭中共国领英网站](/content/gnews/40/README.md)
+### [不堪网络审查 微软将关闭中共国领英网站](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [国会大厦骚乱调查委员会将指控班农藐视法庭](/content/gnews/41/README.md)
+### [国会大厦骚乱调查委员会将指控班农藐视法庭](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [不为人知&#8211;大量美军基地人员接种新冠病毒疫苗后病亡！](/content/gnews/42/README.md)
+### [不为人知&#8211;大量美军基地人员接种新冠病毒疫苗后病亡！](/content/gnews/44/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [机器狗配备狙击步枪 ——“杀人机器狗”在华盛顿亮相](/content/gnews/43/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [美国食品和药物管理局急欲推行第三剂莫德纳疫苗接种](/content/gnews/44/README.md)
+### [美国食品和药物管理局急欲推行第三剂莫德纳疫苗接种](/content/gnews/45/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
-
-### [俄克拉荷马州反对拜登的疫苗强制令](/content/gnews/45/README.md)
- ` HimalayaRussia`
 
 ### [10/14/2021 文贵盖特：新中国联邦、爆料革命通过以(疫)苗灭共和解药灭共，拯救了无数人，使全世界把中国人和中共分开](/content/gnews/46/README.md)
  ` 秘密翻译组-北美组`

@@ -2,18 +2,14 @@
 ---
 
 
-## 不为人知&#8211;大量美军基地人员接种新冠病毒疫苗后病亡！
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1595292/)
+## 不堪网络审查 微软将关闭中共国领英网站
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1595370/)
 
-编译撰稿：苦尽甜来（文来） 校对发稿：硫酸羟氯喹64
+#### 翻译：沙子最怕你不理它
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-45.jpg)图片来源：网络截图
+据CNBC 10月14日报道，微软周四宣布，由于中共国继续扩大对互联网的审查，领英（Linkedin）中共国网站即将关闭。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/sp-edited.png)图片来源：redvoicemedia
+领英于2014年在中国推出，为了尊守中共国严格的互联网法律，只取用一些有限的功能。中共国是领英的第三大市场。中国互联网监管机构在3月份给予领英30天的期限要求整改网站内容。 上个月，领英以个人资料中的“禁止内容”为由，屏蔽了几名美国驻华记者的账号。近几个月来，学者和研究人员们的个人资料页被该网站屏蔽了。名为InJobs的新网站将不包含社交推送以及用户共享帖子或文章。
 
-
-著名自媒体【红声传媒】主持人斯杜·彼得于10月13日在其节目中表示，一位多年来在美军基地附近经营一家理发店的店主蕾妮女士对他透露说，在过去的一年里，该理发店的顾客数量不仅急剧减少，而且她熟知的许多客人在接种了COVID疫苗后不久都由于各种不明原因死亡。
-
-除了这些死亡的顾客之外，蕾妮还向主持人透露了许多其他异常发生的情况，包括：有顾客因接种该疫苗后双目失明，还有的被诊断出患有肺纤维化疾病，还有一位基地女军人在接种该疫苗后瘫痪，至今还坐在轮椅上等。
-
-虽然类似这样离奇的伤亡事件大量涌现，但当地的卫生官员，政界人士，还有军方官员都对以上实事矢口否认，甚至宣称所有以上爆料都是假新闻，就好像这所有悲剧从未发生过一样。
-
-[原文链接：](https://www.redvoicemedia.com/2021/10/first-hand-account-vaxx-deaths-alarming-to-military-barber/)
+新闻来源：[Microsoft to shut down LinkedIn website in China as internet censorship increases in the country](https://www.cnbc.com/2021/10/14/microsoft-to-shut-down-linkedin-in-china.html)

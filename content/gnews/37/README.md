@@ -2,38 +2,49 @@
 ---
 
 
-## 七国集团财政领导人为央行数字货币制定准则
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1595484/)
+## 芝加哥市长退让，表示不会解雇未接种疫苗的教师
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1595494/)
 
-作者：香草山金融部 – 闲聊钱币
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+作者：AsG諾雅
 
 
 
-10月13日（路透社）–世界上最先进的七个经济体（G7）周三表示，中央银行发行的任何数字货币必须支持并不损害本国银行系统履行其货币授权和金融稳定的能力，而且还必须符合极度严格的标准。
 
-在周三的会议后七国集团还表示，如果发行央行数字货币（CBDC），它将有三个特点，对现金的补充，可以作为一种安全的流动资产，和对支付系统的完善。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture5-2.jpg)
-这些数字货币（CBDC）的发行方式必须不能侵犯中央银行对货币的授权同时符合严格的隐私、透明度和保护用户数据的标准。
 
-在跨境支付方面，七国集团表示，虽然数字货币会提高便利性，但是他们有 共同的责任尽量减少有害的国际间的货币金融体系的流动。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-中共国在发行数字货币方面一直快马加鞭，企图起主导地位，当大哥。而七国集团一直在尝试制定发行CBDC的共同标准。因此，中共国的数字货币只能在墙国内自己玩儿玩儿，世界上的发达国家不会认同并参与其中。
+
+
+
+
+
+
+生命新闻10月14日消息，在威胁要解雇本周五之前未接种疫苗的公立学校教师之后，芝加哥民主党执政的市政府做出了让步，表示只要他们同意每周接受测试，将允许拒绝接种毒疫苗的人继续工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-84.jpg)
+周三，芝加哥教师工会（CTU）和代表学区支助人员的两个服务雇员国际联盟（SEIU）团体一起，写信给市长莱特福特，声称近90%的CTU普通会员和数以千计的SEIU 73区会员已经接种了疫苗，未接种疫苗的雇员多是黑人和拉美裔妇女，如果政府坚持执行对未接种疫苗者的惩罚性政策，期限之后，学校将面临比平常更严重的人员短缺问题，特别是卫生工作者、清洁工、代课教师和校车助理关键的一线工作人员，将威胁到学校的安全。 芝加哥市长对教师工会的退让，表明只要人们坚持不打新冠疫苗的立场，团结一致，政府是无法继续推行强制政策的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-3.jpg)
+参考链接：
+[Chicago mayor backs down on COVID threat, won’t fire unvaccinated teachers](https://www.lifesitenews.com/news/chicago-mayor-backs-down-on-covid-threat-wont-fire-unvaccinated-teachers/?utm_source=featured&amp;utm_campaign=usa%20https://www.ctulocal1.org/posts/ctu-seiu-local-73-seiu-local-1-to-lightfoot-time-to-partner-on-vax-for-all/)
 
 （本文仅代表作者观点）
 
-参考来源：[https://www.reuters.com/business/finance/g7-statement-cbank-digital-currencies-must-do-no-harm-cbank-mandates-2021-10-14/](https://www.reuters.com/business/finance/g7-statement-cbank-digital-currencies-must-do-no-harm-cbank-mandates-2021-10-14/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-编辑/校对/发稿：Hetangyuese
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
 
 **更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

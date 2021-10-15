@@ -2,66 +2,84 @@
 ---
 
 
-## VAERS：可能至少有 16万美国人死于新冠病毒疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1595742/)
+## 亮一亮和吴征在蒙古包喝酒的FBI合伙人Richard Frankel
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1595758/)
 
-- **编译：Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/002_副本.png)
+郭文贵先生在[2021年10月13日文贵直播：记住今天这个大日子；傅政华的被抓，全世界的律师事务所，司法界大颠覆，大唤醒；马云是光明会成员；目前世界的危局，经济大崩溃，世界的黑暗势力和中共的黑暗势力因为病毒疫苗受到扭曲；房地产的倒塌会导致中共更加要打台湾，全面拖垮世界经济；中美之间必有一战](https://www.gtv.org/video/id=6166d150304e992109b45e6f)直播中提到：
 
+［吴征更夸张的是，现在你看看，吴征所有的官司和在香港的几个公司，还有香港的几个律师事务所，太平联盟告我这个官司，太平联盟的律师，竟然是有一个帮助的律师是吴征的合伙人，原FBI的高管,在北京蒙古包里边记着喝酒那个，旁边有美女的唱什么歌那个。前FBI纽约高管——吴征的合伙人。这个高管和合伙人和吴征竟然是帮助买了一个叫什么idigital(注：疑为*Ideanomics)*，吴征就卖给了那个马云34亿美元弄走。］
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip332.png)
+这就牵扯到推特上曾经发出过的一段吴征在蒙古包的视频——
 
-如果根据目前我们了解的漏报情况进行推断，来自 VAERS（疫苗不良事件报告系统）的最新数据[表明](https://vaersanalysis.info/2021/10/08/vaers-summary-for-covid-19-vaccines-through-10-1-2021/)，到目前为止，可能有超过 160,000 名美国人死于武汉冠状病毒（**Covid-19****）****“****疫苗****”**。
+视频中出现的这个人——
+![](https://assets.gnews.org/wp-content/uploads/2021/10/002-2.png)
+根据[Ideanomics HQ](https://www.facebook.com/ideanomicshq/?__tn__=-UC*F)于[2019年3月16日](https://www.facebook.com/ideanomicshq/photos/a.230727764203885/353480878595239/?__tn__=%2CO*F)发表的脸书内容
 
-自去年 12 月注射剂作为“极速行动”(Operation Warp Speed)的一部分首次发布以来，VAERS官方已经报告的 16,310 人死于中共病毒疫苗。由于只有 1% 的疫苗伤害被报告给 VAERS，因此，美国的真实死亡人数可能高达 163.1 万。
+[https://www.facebook.com/ideanomicshq/photos/a.230727764203885/353480878595239/](https://www.facebook.com/ideanomicshq/photos/a.230727764203885/353480878595239/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/53913849_353480888595238_3556440217684541440_n.jpg)
+Ideanomics at the GT Future Forum 2019
 
-更保守的估计可能使用 10 的系数，这意味着美国约有 163,100 人死亡。无论哪个数字是正确的，我们至少知道，死于注射中共病毒疫苗的人数比政府公布的要多得多，人们需要了解这一点，以便明智地决定是否加入统计。
+Ideanomics: Dr. Bruno Wu, Chairman (Center right), Alf Poor, CEO (2nd left), and Richard Frankel, Director (left)
 
-正如[我们所报道的那样](https://www.naturalnews.com/2021-10-11-phd-150000-americans-died-covid-vaccines.html)，其他人也同意新冠病毒疫苗导致的死亡人数被严重低估， 其中就有计算生物学家、分子生物学家和免疫学家杰西卡·罗斯（Jessica Rose, PhD）博士，他估计美国约有 150,000 人死于新冠病毒疫苗。
+中文大意：Ideanomics 2019 年 GT 未来论坛
 
-有多种方法可以用来计算出比政府声称的更真实（即更准确）的粗略估计值。 **政府轻描淡写伤害和死亡数据，而夸大“感染病例”，显然是为了符合大型制药公司的最佳利益**，这正是我们在这场大流行的过去几个月中看到的情况。
+Ideanomics：董事长Bruno Wu吴征（中右）、首席执行官Alf Poor（左二）和总经理Richard Frankel（左）
 
-**Covid ****疫苗可能杀死的人，比在越南战争中杀死的美国士兵还要多。**
+再让我们看看总经理Richard Frankel先生，据[Richard M Frankel](https://rmfpc.com/attorneys/frankel/)：
 
-主流媒体几乎没有人关注 VAERS，即使它是跟踪所有疫苗伤害和死亡的官方数据来源，而且，它被大大低估了，但至少可以让我们了解当前的伤亡人数。
+Mr. Richard M. Frankel served for more than 25 years in public service, the majority of his career with the Federal Bureau of Investigation (FBI).
 
-**即使按照VAERS报告的数字，武汉流感疫苗也是几十年来投放市场的最致命的“疫苗”。 事实上，它们似乎比所有其他疫苗组合起来更危险——这还只是基于 VAERS 报告的内容**。
+Serving as Of Counsel at Ruskin Moscou Faltischek P.C., Richard’s practice focuses on Cybersecurity and White Collar Crime & Investigations.
 
-使用乘数推断，Covid 疫苗是一场全面的药物大屠杀，**可能比整个越南战争对美国士兵造成的死亡还多**。
+A recognized authority in complex investigations, asset recovery, cyber issues and crisis management, Frankel also provides regular insight on terrorism, criminal and intelligence related matters. He has extensive experience in understanding as well as investigating complex coordinated attacks.
 
-**中共病毒疫苗肯定比 9/11 恐怖袭击更致命至少五倍**。换句话说，仅根据迄今为止向 VAERS 报告的内容，相当于 9/11 袭击了五次，“极速行动”夺走了更多的生命。
+Mr. Frankel led several FBI field divisions as the Special Agent In-Charge. In this capacity Mr. Frankel oversaw criminal investigations, as well as undercover and tactical operations, while actively working to lead organizational transformational efforts to transition to a threat-based, intelligence-led operating posture. Mr. Frankel also directed multi-agency initiatives and major response to threats against persons and property, while developing extensive liaison programs through outreach to entities in the public, private, academic and non-profit sectors, as well as with community groups.
 
-使用来自 VAERS的数据乘以10，也是很保守的，到目前为止，就美国军事伤亡人数而言，由 Covid 疫苗造成的死亡人数就像三场越南战争。
+Mr. Frankel is also Chief Executive Officer of a strategic crisis management, intelligence and security advisory firm dedicated to helping clients, financially and physically, mitigate exposure and minimize loss by integrating technology with specialist knowledge, including human and deep source intelligence, by combining open source cyber and surveillance intelligence in order to address current and emerging threats to multinational corporations, governments, and non-governmental organizations as well as private individuals across four main areas: intelligence, counter-terrorism, cyber security, and critical infrastructure protection.
 
-换句话说，我们在谈论天量级数字，而媒体却继续对所有这些保持沉默。相反，他们不断告诉我们大家卷起袖子，鼓励我们所爱的人也一样做，以“挽救生命”并停止连累老人家。
+In addition, Mr. Frankel served as the Associate Director of National Intelligence and Senior FBI Representative to the Office of the Director of National Intelligence with the responsibility for overseeing and managing domestic intelligence relationships.  Mr. Frankel was the principal liaison with external entities and advised the Director on all issues related to the intelligence relationship between the Intelligence Community and its Domestic Partners.  In this position, Mr. Frankel worked to increase interaction and cooperation between the law enforcement community and the greater Intelligence Community as it related to identifying and working against cyber threats.
 
-“**媒体不报道这些重要信息应该是犯罪！**” 一位在 VAERS 博客上写的评论说。
+A graduate of Ithaca College, Quinnipiac Law School and several Senior Executive programs, Richard’s government service began as Assistant District Attorney for Suffolk County, New York.
 
-“所有主流媒体，甚至包括 Fox News 和 Newsmax，都拒绝谈论‘疫苗’（实验性基因疗法）的明显危险，”另一位写道。“**他们是同谋和腐败者**。”
+谷歌翻译结果——
 
-有关中共流感疫苗造成的伤亡的最新消息，请访问[ChemicalViolence.com](https://chemicalviolence.com/).
+Richard M. Frankel 先生在公共服务领域服务了超过 25 年，他的大部分职业生涯都在联邦调查局 (FBI) 任职。
 
-**评论：**
+作为 Ruskin Moscou Faltischek P.C. 的法律顾问，Richard 的执业重点是网络安全和白领犯罪与调查。
 
-**如果5次911袭击唤不醒人们，如果3次越战痛不醒人们，那么我们只有走向地狱。**
+作为复杂调查、资产追回、网络问题和危机管理领域公认的权威，弗兰克尔还定期提供有关恐怖主义、犯罪和情报相关事务的见解。他在理解和调查复杂的协同攻击方面拥有丰富的经验。
 
-**文贵先生说到：所有推动强制打“疫苗”的人，无论是政府高官、科学大咖、精英大鳄、媒体，都将受到应有的审判！**
+弗兰克尔先生作为特工主管领导了几个联邦调查局的外勤部门。在此职位上，弗兰克尔先生负责监督刑事调查以及卧底和战术行动，同时积极致力于领导组织转型工作，以过渡到以威胁为基础、以情报为主导的行动态势。 Frankel 先生还指导多机构倡议和对人身和财产威胁的重大反应，同时通过与公共、私营、学术和非营利部门的实体以及社区团体的外展活动来制定广泛的联络计划。
 
-**我们不断传播真相， 通过法律行动，说“不”，就能让审判的时刻更早到来！**
+Frankel 先生还是一家战略危机管理、情报和安全咨询公司的首席执行官，该公司致力于通过将技术与专业知识（包括人类和深度源情报）相结合，在财务和身体方面帮助客户减轻风险并最大限度地减少损失。获取网络和监视情报，以应对跨国公司、政府和非政府组织以及个人在四个主要领域面临的当前和新出现的威胁：情报、反恐、网络安全和关键基础设施保护。
 
-**文章内容来源：**
+此外，弗兰克尔先生还担任国家情报局副局长和国家情报局局长办公室的高级联邦调查局代表，负责监督和管理国内情报关系。 Frankel 先生是与外部实体的主要联络人，并就与情报界与其国内合作伙伴之间的情报关系有关的所有问题向局长提供建议。在此职位上，弗兰克尔先生致力于加强执法界与更大的情报界之间的互动与合作，因为这与识别和应对网络威胁有关。
 
-[**VaersAnalysis.info**](https://vaersanalysis.info/2021/10/08/vaers-summary-for-covid-19-vaccines-through-10-1-2021/)
+作为伊萨卡学院、昆尼皮亚克法学院和多个高级管理人员课程的毕业生，理查德的政府服务开始于纽约萨福克县的助理地区检察官。
 
-[**NaturalNews.com**](https://www.naturalnews.com/2021-10-11-phd-150000-americans-died-covid-vaccines.html)
+\*\*\*\*\*\*\*资料引用完毕\*\*\*\*\*\*\*
 
-（文章仅代表作者观点，与GNEWS无关）
+郭文贵先生在[2021年10月13日文贵直播：记住今天这个大日子；傅政华的被抓，全世界的律师事务所，司法界大颠覆，大唤醒；马云是光明会成员；目前世界的危局，经济大崩溃，世界的黑暗势力和中共的黑暗势力因为病毒疫苗受到扭曲；房地产的倒塌会导致中共更加要打台湾，全面拖垮世界经济；中美之间必有一战](https://www.gtv.org/video/id=6166d150304e992109b45e6f)的直播中提到“这次我们要以律师、以法灭共的同时，要以法灭了共产党的共贼在全世界。”，根据郭先生四年的爆料革命以来，我们已经耳熟能详并且可以背下来的的关于司法部大案的几个关键人物是：Higginbotham、Steve Wynn、Nickie Lum Davis、Elliott Broidy，这一次再度浮现的Richard M. Frankel会不会是接下来以法灭掉的共贼呢？让我们拭目以待。
 
-**素材链接**：**[newstarget.com](https://www.newstarget.com/2021-10-13-vaers-160000-americans-have-died-covid-vaccines.html)**
+撰稿：喜马拉雅的肉夹馍
 
-* * *
+审核：喜马拉雅的馍夹肉
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+校对：Maarago
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
+（文章内容仅代表作者个人观点）
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

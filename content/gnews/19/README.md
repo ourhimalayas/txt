@@ -2,84 +2,61 @@
 ---
 
 
-## 亮一亮和吴征在蒙古包喝酒的FBI合伙人Richard Frankel
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1595758/)
+## 初中生未戴口罩被戴手铐示众 家长提诉讼
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1595773/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/002_副本.png)
-郭文贵先生在[2021年10月13日文贵直播：记住今天这个大日子；傅政华的被抓，全世界的律师事务所，司法界大颠覆，大唤醒；马云是光明会成员；目前世界的危局，经济大崩溃，世界的黑暗势力和中共的黑暗势力因为病毒疫苗受到扭曲；房地产的倒塌会导致中共更加要打台湾，全面拖垮世界经济；中美之间必有一战](https://www.gtv.org/video/id=6166d150304e992109b45e6f)直播中提到：
+- 编译**：Lulumi**
 
-［吴征更夸张的是，现在你看看，吴征所有的官司和在香港的几个公司，还有香港的几个律师事务所，太平联盟告我这个官司，太平联盟的律师，竟然是有一个帮助的律师是吴征的合伙人，原FBI的高管,在北京蒙古包里边记着喝酒那个，旁边有美女的唱什么歌那个。前FBI纽约高管——吴征的合伙人。这个高管和合伙人和吴征竟然是帮助买了一个叫什么idigital(注：疑为*Ideanomics)*，吴征就卖给了那个马云34亿美元弄走。］
 
-这就牵扯到推特上曾经发出过的一段吴征在蒙古包的视频——
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-267.png)
 
-视频中出现的这个人——
-![](https://assets.gnews.org/wp-content/uploads/2021/10/002-2.png)
-根据[Ideanomics HQ](https://www.facebook.com/ideanomicshq/?__tn__=-UC*F)于[2019年3月16日](https://www.facebook.com/ideanomicshq/photos/a.230727764203885/353480878595239/?__tn__=%2CO*F)发表的脸书内容
+据Gettr盖文报道，图中的孩子叫格蕾丝·史密斯，是拉莱米高中的一名16岁的初三学生，她因为没带口罩被逮捕，并被戴上手铐带出学校。
 
-[https://www.facebook.com/ideanomicshq/photos/a.230727764203885/353480878595239/](https://www.facebook.com/ideanomicshq/photos/a.230727764203885/353480878595239/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/53913849_353480888595238_3556440217684541440_n.jpg)
-Ideanomics at the GT Future Forum 2019
+是否应该强迫孩子们戴口罩？尽管关于口罩效果的数据难以置信地不一致，田纳西州威廉姆森县的官员似乎认为他们应该这样做。
 
-Ideanomics: Dr. Bruno Wu, Chairman (Center right), Alf Poor, CEO (2nd left), and Richard Frankel, Director (left)
+事实上，情况就是如此，根据《联邦主义者》的最新报道，该县现在将拒绝戴口罩的学生在整个上学期间隔离起来。
 
-中文大意：Ideanomics 2019 年 GT 未来论坛
+据WTVF电视台报道，克里斯汀·麦金尼（Kristin McKinney）、梅根·海姆（Megan Heim）和该县另外两位学生的母亲就该地区的口罩政策对学校董事会提起诉讼。
 
-Ideanomics：董事长Bruno Wu吴征（中右）、首席执行官Alf Poor（左二）和总经理Richard Frankel（左）
+目前在威廉姆森县就读的两名初中女生的母亲麦金尼告诉《联邦主义者》，“我的两个初中孩子这周每天都在校内被隔离停课”。
 
-再让我们看看总经理Richard Frankel先生，据[Richard M Frankel](https://rmfpc.com/attorneys/frankel/)：
+麦金尼的两个女儿“从到达学校的那一刻起就与其他孩子分开，直到她们坐上巴士回家，在一个单独的房间里静静地坐着，有两次预先安排的厕所休息时间，在好的日子里，有两次15分钟的室外散步，”她告诉该媒体。
 
-Mr. Richard M. Frankel served for more than 25 years in public service, the majority of his career with the Federal Bureau of Investigation (FBI).
+即使在食堂不需要戴口罩（这很奇怪——难道中共病毒不会在学生吃午餐时传播？），学校校长告诉麦金尼，她的女儿们必须在隔离室里吃饭，说“不允许她们与其他学生接触”。
 
-Serving as Of Counsel at Ruskin Moscou Faltischek P.C., Richard’s practice focuses on Cybersecurity and White Collar Crime & Investigations.
+海姆是三个孩子的母亲，她有一个患有唐氏综合症的女儿，这可能使她有资格获得医疗豁免。
 
-A recognized authority in complex investigations, asset recovery, cyber issues and crisis management, Frankel also provides regular insight on terrorism, criminal and intelligence related matters. He has extensive experience in understanding as well as investigating complex coordinated attacks.
+然而，海姆出于原则拒绝签署该豁免。
 
-Mr. Frankel led several FBI field divisions as the Special Agent In-Charge. In this capacity Mr. Frankel oversaw criminal investigations, as well as undercover and tactical operations, while actively working to lead organizational transformational efforts to transition to a threat-based, intelligence-led operating posture. Mr. Frankel also directed multi-agency initiatives and major response to threats against persons and property, while developing extensive liaison programs through outreach to entities in the public, private, academic and non-profit sectors, as well as with community groups.
+“当你对口罩进行研究时，”她告诉《联邦主义者》，“它们是实验性的医疗设备，那里必须有一个选择。”
 
-Mr. Frankel is also Chief Executive Officer of a strategic crisis management, intelligence and security advisory firm dedicated to helping clients, financially and physically, mitigate exposure and minimize loss by integrating technology with specialist knowledge, including human and deep source intelligence, by combining open source cyber and surveillance intelligence in order to address current and emerging threats to multinational corporations, governments, and non-governmental organizations as well as private individuals across four main areas: intelligence, counter-terrorism, cyber security, and critical infrastructure protection.
+她说：“对我来说，签署一纸文件，无论是医疗还是宗教，都意味着我相信学校有权力强迫其他所有孩子戴口罩。”
 
-In addition, Mr. Frankel served as the Associate Director of National Intelligence and Senior FBI Representative to the Office of the Director of National Intelligence with the responsibility for overseeing and managing domestic intelligence relationships.  Mr. Frankel was the principal liaison with external entities and advised the Director on all issues related to the intelligence relationship between the Intelligence Community and its Domestic Partners.  In this position, Mr. Frankel worked to increase interaction and cooperation between the law enforcement community and the greater Intelligence Community as it related to identifying and working against cyber threats.
+“如果你有一个孩子，你觉得戴上口罩更舒服，这应该是你作为父母的权利。”
 
-A graduate of Ithaca College, Quinnipiac Law School and several Senior Executive programs, Richard’s government service began as Assistant District Attorney for Suffolk County, New York.
+据《城市日报》报道，事实上，戴口罩确实对儿童有许多不好的影响。
 
-谷歌翻译结果——
+“在拥挤的室内环境中，戴口罩可能为一些高风险的成年人提供一些保护，但证据不一，口罩不仅会让人不舒服，而且有害。一些成年人可能认为这样的权衡对他们自己来说是值得的，但是对儿童来说，这一切都是痛苦，没有任何好处。”
 
-Richard M. Frankel 先生在公共服务领域服务了超过 25 年，他的大部分职业生涯都在联邦调查局 (FBI) 任职。
+蒂尔尼认为，儿童戴口罩在心理上是有害的；可能导致长期的身体问题，如耳朵突出；阻碍儿童的社交发展——尤其是自闭症的儿童；并导致头痛、不快乐、学习能力受损、嗜睡和疲劳等问题。
 
-作为 Ruskin Moscou Faltischek P.C. 的法律顾问，Richard 的执业重点是网络安全和白领犯罪与调查。
+尽管如此，担心自己的孩子被迫整天戴口罩的母亲们却被嘲笑、谴责，甚至被贴上了国内恐怖分子的标签。
 
-作为复杂调查、资产追回、网络问题和危机管理领域公认的权威，弗兰克尔还定期提供有关恐怖主义、犯罪和情报相关事务的见解。他在理解和调查复杂的协同攻击方面拥有丰富的经验。
+左派为了达到自己的目的不择手段。
 
-弗兰克尔先生作为特工主管领导了几个联邦调查局的外勤部门。在此职位上，弗兰克尔先生负责监督刑事调查以及卧底和战术行动，同时积极致力于领导组织转型工作，以过渡到以威胁为基础、以情报为主导的行动态势。 Frankel 先生还指导多机构倡议和对人身和财产威胁的重大反应，同时通过与公共、私营、学术和非营利部门的实体以及社区团体的外展活动来制定广泛的联络计划。
+**评论：先抛开口罩对中共病毒的防范效果不说，仅仅因为学生没带口罩就被拷上手铐，着实矫枉过正。**
 
-Frankel 先生还是一家战略危机管理、情报和安全咨询公司的首席执行官，该公司致力于通过将技术与专业知识（包括人类和深度源情报）相结合，在财务和身体方面帮助客户减轻风险并最大限度地减少损失。获取网络和监视情报，以应对跨国公司、政府和非政府组织以及个人在四个主要领域面临的当前和新出现的威胁：情报、反恐、网络安全和关键基础设施保护。
+**邪恶的中共全世界放病毒，让西方原本运作非常顺畅的社会秩序完全失序。把主管健康的CDC和FDA变成帮中共和邪恶光明会杀人的爪牙，把保护人民的警察变成剥夺人民自由的帮凶，西方的警察已经和香港黑警没有什么区别了。**
 
-此外，弗兰克尔先生还担任国家情报局副局长和国家情报局局长办公室的高级联邦调查局代表，负责监督和管理国内情报关系。 Frankel 先生是与外部实体的主要联络人，并就与情报界与其国内合作伙伴之间的情报关系有关的所有问题向局长提供建议。在此职位上，弗兰克尔先生致力于加强执法界与更大的情报界之间的互动与合作，因为这与识别和应对网络威胁有关。
+**无论哪个国家，孩子都是父母的心头肉，被这样粗暴对待的罪魁祸首就是放毒的中共和光明会。只有全世界联合消灭这些邪恶势力才能拯救这个走向黑暗的世界。**
 
-作为伊萨卡学院、昆尼皮亚克法学院和多个高级管理人员课程的毕业生，理查德的政府服务开始于纽约萨福克县的助理地区检察官。
+（文章仅代表作者观点，与GNEWS无关）
 
-\*\*\*\*\*\*\*资料引用完毕\*\*\*\*\*\*\*
+**素材链接：**[westernjournal.com](https://www.westernjournal.com/moms-file-lawsuit-one-said-middle-school-put-maskless-kids-prison-like-conditions/?ff_source=Email&amp;ff_medium=newsletter-CT&amp;ff_campaign=dailypm&amp;ff_content=conservative-tribune)
 
-郭文贵先生在[2021年10月13日文贵直播：记住今天这个大日子；傅政华的被抓，全世界的律师事务所，司法界大颠覆，大唤醒；马云是光明会成员；目前世界的危局，经济大崩溃，世界的黑暗势力和中共的黑暗势力因为病毒疫苗受到扭曲；房地产的倒塌会导致中共更加要打台湾，全面拖垮世界经济；中美之间必有一战](https://www.gtv.org/video/id=6166d150304e992109b45e6f)的直播中提到“这次我们要以律师、以法灭共的同时，要以法灭了共产党的共贼在全世界。”，根据郭先生四年的爆料革命以来，我们已经耳熟能详并且可以背下来的的关于司法部大案的几个关键人物是：Higginbotham、Steve Wynn、Nickie Lum Davis、Elliott Broidy，这一次再度浮现的Richard M. Frankel会不会是接下来以法灭掉的共贼呢？让我们拭目以待。
+* * *
 
-撰稿：喜马拉雅的肉夹馍
-
-审核：喜马拉雅的馍夹肉
-
-校对：Maarago
-
-（文章内容仅代表作者个人观点）
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
