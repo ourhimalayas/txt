@@ -2,47 +2,45 @@
 ---
 
 
-## 英国将为政府服务引入面部识别应用程序
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1594382/)
+## 纳瓦罗称中国共产党控制了乔·拜登
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1594387/)
 
-作者：纽约香草山农场 – 四季
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/P-6.jpg)washingtonexaminer.com
+《新闻纵横》（NEWSMAX）10月13日发表文章，彼得·纳瓦罗（Peter Navarro）称：中共控制了拜登。
 
+文章说，川普总统政府时期贸易和制造业政策办公室（the Office of Trade and Manufacturing Policy）的主任彼得·纳瓦罗（Peter Navarro）向《新闻纵横》宣称，乔·拜登被中国共产党控制了，并补充说拜登的弱点可能引发战争。
 
+纳瓦罗周三（10月13日）在《埃里克·博林：平衡》（Eric Bolling: The Balance）栏目中说：“毫无疑问，拜登一家都被中国共产党控制，中共还有更深远的影响力。在国家安全委员会、白宫、国务院和其他地方的高级官员中，有许多人已经被《国家脉动》（The National Pulse）等网站揭露，他们被中国共产党的金钱所收买。“
 
+“我不会对拜登在决策方面受到中共的影响而感到惊讶，这些影响扩大到了他的人事选择和不同级别的政府机构。这是一个非常危险的情况。” 纳瓦罗补充说。
 
+据英国《每日邮报》（Daily Mail）周三（10月13日）报道，拜登可能被牵扯进联邦调查局的一项调查，涉及他的儿子亨特·拜登。此前有报道称，拜登和拜登共用财务账户，并相互支付账单。
 
-据[布赖特巴特新闻网](https://www.breitbart.com/europe/2021/10/14/definitely-not-authoritarian-uk-to-use-facial-recognition-for-govt-services/)10月14日报道，英国政府在已引入冠状病毒疫苗护照应用软件后，还将为想要获得一系列公共服务的公民引入一款面部识别应用。
+此前还有报道称，亨特·拜登（Hunter Biden）在乔治·贝格斯画廊（Georges Bergès Gallery）展出了自己的作品，贝格斯与中共国有着密切的关系。贝格斯表示，他每年前往中共国三到四次。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1220-1-GettyImages-913641954-640x480-1.png)图片来源：[metamorworks/Getty Images](https://www.gettyimages.co.uk/detail/photo/biometrics-concept-facial-recognition-system-iris-royalty-free-image/913641954?adppopup=true)
+根据纳瓦罗的说法，涉及中共的腐败迹象是一个危险的信号。
 
-这款名为gov.uk的全新应用程序预计将在明年年底推出，将使公民能够通过智能手机访问300多个政府服务。该应用程序将使用面部识别或指纹扫描来验证用户。
+“拜登不仅破坏了我们的边境，也破坏了我们的经济，破坏了阿富汗，他的弱点将引发战争。与强大的里根和川普的和平（时期）相差得太远。”
 
-一个新的小组，即数字咨询委员会，预计也将被宣布，以监督政府不断扩大的虚拟设备。来自银行业的商业领袖，包括劳埃德银行集团（Lloyds Banking Group）和汇丰银行，以及欧洲公用事业公司（E.ON）也已经计划加入该委员会。
+“这是我最担心的事情之一，我们有飞机，中国共产党的飞机却正在台湾海峡上空掠过。” 纳瓦罗补充道。
 
-然而，人们对该系统提出了隐私方面的担忧，英国国民保健署（NHS）承认他们将在刑事调查中与警方分享此类信息，这导致人们对所谓的匿名应用程序的隐私感到担忧。
+（原文完）
 
-公民自由运动组织 “老大哥观察 “的负责人西尔克-卡罗星期二在上议院司法和内政委员会作证时说，在没有任何议会参与和几乎完全没有监管制度的情况下，数千万英国人已经在不知情的情况下受到了面部识别扫描。
+不愧是新中国联邦的形象大使，相信纳瓦罗先生对中共的认知来自于文贵先生，并在美国上层进行坚持不懈地游说。“在国家安全委员会、白宫、国务院和其他地方的高级官员中……被中国共产党的金钱所收买。” “中共的腐败迹象是一个危险的信号。”
 
-（本文仅代表作者观点）
+的确，腐败渗透造成的危害不亚于中共病毒和疫苗阴谋，美国若想自救，必须清理政府机构与中共的关联，从立法、司法、执法部门开始。文贵先生爆料自己在美国60多个官司中的亲身经历，即将引爆美国司法领域的腐败大案。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+谁曾想，堂堂军方的参谋长联席会议主席背着总司令进行通共泄密电话？通话已经荒唐，更荒唐的是国会听证会上竟然有立法者为之袒护，然后此事有可能不了了之！笔者并不认为米利是一个被中共拉下水的走狗，但他的身边肯定会有中共众多的内线，否则，演绎不出这幕荒唐的桥段。
 
-编辑/校对/发稿：小鹿
+中共病毒溯源报告，已经演绎了情报机构、美国国务院的荒唐；疫苗问题演绎了美国政府、科技界、医疗卫生界的荒唐；主流媒体、大科技公司加入其中演绎禁言禁声、控制民意扼杀自由的荒唐，这就是当下的美国！
 
+这种荒唐势必在各种邪恶力量的操纵下发展到猖狂，进而给美国、世界带来毁灭性打击。灭共是正义的必需，全人类都面临大觉醒大决战！
 
+（文章仅代表作者个人观点）
 
-**更多资讯，更多关注**
+原文链接：
 
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+[https://www.newsmax.com/newsmax-tv/china-joebiden-hunter-taiwan/2021/10/13/id/1040394/](https://www.newsmax.com/newsmax-tv/china-joebiden-hunter-taiwan/2021/10/13/id/1040394/)

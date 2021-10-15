@@ -2,37 +2,35 @@
 ---
 
 
-## 中共国动力煤价格涨至新高 煤炭电力股大跌
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1594811/)
+## 比特币价格竞猜结果出炉 你中奖了吗？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1594888/)
 
-**撰稿：日本东京方舟农场 子辰**
+新闻收集：香草山写作组 – 文斗
 
-据大纪元10月13日报道，中共国动力煤价格本周再度攀升，创历史新高。受之影响A股煤炭和电力板块应声大跌。
 
-自今年8月份以来，中共国多地重现2020年12月的限电、停电状况，而此次电力供应紧张涉及的范围更广，涵盖大约20个省市。
 
-此前9月末至10月初，已经有多省市调涨了电价。比如，广东、浙江、广西计划上调高峰时段电价；内蒙古、宁夏、上海、湖南的涨价措施则是用燃煤价格作为电价来制定的参数。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-中共国10月长假之后，部分地区的限电措施仍有所升级，比如浙江省从10月8日起，将限电级别从B级升至C级。
 
-据路透社分析表示，近期产煤大省山西的洪灾更加加剧了煤炭供应紧张问题，一度导致60座煤矿停产。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GettyImages-882439930-600x400-1.jpg)图片来自于网络
+9月15日，由喜马拉雅交易所主办的比特币价格竞猜结果公布。
 
-期间，山西省政府称，目前该省仍然有四座煤矿尚未恢复，总年产量为480万吨。其中三座煤矿位于临汾市，停产原因是涌水较大仍未彻底清除；另一座位于太原市，停产原因是运煤通道因山体滑坡中断。
+BTC在2021年10月13日 23:59:00的正确价格为USD： 57,401.1，
 
-受动力煤涨价影响，大陆煤炭板块13日领跌A股，大跌逾6%，该板块主力资金净流出23.76亿元。截至当天收盘，恒源煤电、潞安环能、露天煤业等多只个股跌停。
+获胜者的竞猜价格：USD 57,407.26。误差仅7.16美元。
 
-同时期在动力煤持续涨价、煤炭股大跌之时，与煤炭相关的电力股13日同时大跌，跌幅近5%，多只电力股跌停。
+这名中奖者账号是：z\*\*\*\*\*[\[email protected\]](/cdn-cgi/l/email-protection)\*\*\*\*\*\*\*\*l.com。
 
-目前，中共国正面临煤炭供应紧张、煤价和电价飙涨的困境。
+主办方同时公布了前10名名单。看看自己是不是进十强？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-14-at-8.32.38-PM.png)
+编辑/发稿：正义的小新
 
-*注：本文仅代表作者观点，与 Gnews无关*
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-*参考链接：*
-
-[大陆动力煤价格涨至新高 煤炭电力股大跌](https://www.epochtimes.com/gb/21/10/13/n13302299.htm)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
