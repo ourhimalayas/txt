@@ -2,32 +2,38 @@
 ---
 
 
-## 科学家爆料：人类有史以来第一次通过疫苗使人体产生一种异常蛋白质
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1595247/)
+## 七国集团财政领导人为央行数字货币制定准则
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1595484/)
 
-翻译：喜国公民
+作者：香草山金融部 – 闲聊钱币
 
-视频制作：今年必胜
-视频来自网络
-美国著名心脏病专家彼得·麦卡洛教授发表过多篇关于新冠疫苗安全方面的文章。他主张用羟氯喹等药物进行新冠病毒感染的早期治疗，而不是用未经测试的疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
-在一次演讲中，麦卡洛教授揭露了新冠疫苗是如何对人体产生危害的。从遗传学的角度来看，每一针新冠疫苗都是将超量的遗传物质注入了人体。
 
-他说，强生公司生产的新冠疫苗包含一种腺病毒载体。这些有复制能力的载体进入人体后，将DNA带入细胞核，在细胞核中产生了新冠病毒信使RNA。这些信使RNA随后产生刺突蛋白。
 
-与强生疫苗不同，辉瑞和莫得纳公司生产的新冠疫苗包含合成的信使RNA。通常情况下，信使RNA使用一次就会被处理掉。但辉瑞和莫得纳疫苗中的信使RNA却被重复使用，以产生刺突蛋白，并在细胞中长期停留。
+10月13日（路透社）–世界上最先进的七个经济体（G7）周三表示，中央银行发行的任何数字货币必须支持并不损害本国银行系统履行其货币授权和金融稳定的能力，而且还必须符合极度严格的标准。
 
-有一种观点认为，信使RNA可以在细胞分裂后继续存活。因此，母细胞可以将其传给子细胞。而且信使RNA还会以小包装的形式转移到其他细胞。
+在周三的会议后七国集团还表示，如果发行央行数字货币（CBDC），它将有三个特点，对现金的补充，可以作为一种安全的流动资产，和对支付系统的完善。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture5-2.jpg)
+这些数字货币（CBDC）的发行方式必须不能侵犯中央银行对货币的授权同时符合严格的隐私、透明度和保护用户数据的标准。
 
-在细胞表面的刺突蛋白是一种异常的蛋白质。这是人类第一次用一种生物产品，使身体产生一种异常的蛋白质。通常人类是用这种方法产生一种正常的蛋白质。但这次却是为了产生一种异常的蛋白质。
+在跨境支付方面，七国集团表示，虽然数字货币会提高便利性，但是他们有 共同的责任尽量减少有害的国际间的货币金融体系的流动。
 
-刺突蛋白附着在病毒表面。这种使刺突蛋白通过裂解节点连接到病毒表面的技术来自武汉病毒研究所的病毒功能增强试验。
+中共国在发行数字货币方面一直快马加鞭，企图起主导地位，当大哥。而七国集团一直在尝试制定发行CBDC的共同标准。因此，中共国的数字货币只能在墙国内自己玩儿玩儿，世界上的发达国家不会认同并参与其中。
 
-刺突蛋白在人体内就像一种武器，对人体造成伤害。身体会立即意识到这些刺突蛋白不应该在那里存在，并对刺突蛋白进行攻击。
+（本文仅代表作者观点）
 
-如果刺突蛋白只是停留在注射了疫苗的手臂上，免疫反应也就局限在手臂上。然而，刺突蛋白一旦进入人体循环系统，就会对身体内的各个器官照成损害。
+参考来源：[https://www.reuters.com/business/finance/g7-statement-cbank-digital-currencies-must-do-no-harm-cbank-mandates-2021-10-14/](https://www.reuters.com/business/finance/g7-statement-cbank-digital-currencies-must-do-no-harm-cbank-mandates-2021-10-14/)
 
-(本文纯属个人观点，与Gnews无关)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)

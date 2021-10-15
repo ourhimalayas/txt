@@ -2,38 +2,75 @@
 ---
 
 
-## 七国集团财政领导人为央行数字货币制定准则
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1595484/)
+## 币圈新闻动态：2020年3月16日之后投资的也将获得HCN配额
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1595638/)
 
-作者：香草山金融部 – 闲聊钱币
+*喜马拉雅华盛顿DC 编辑：aQ*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
 
 
 
-10月13日（路透社）–世界上最先进的七个经济体（G7）周三表示，中央银行发行的任何数字货币必须支持并不损害本国银行系统履行其货币授权和金融稳定的能力，而且还必须符合极度严格的标准。
+## 每日一问
 
-在周三的会议后七国集团还表示，如果发行央行数字货币（CBDC），它将有三个特点，对现金的补充，可以作为一种安全的流动资产，和对支付系统的完善。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture5-2.jpg)
-这些数字货币（CBDC）的发行方式必须不能侵犯中央银行对货币的授权同时符合严格的隐私、透明度和保护用户数据的标准。
 
-在跨境支付方面，七国集团表示，虽然数字货币会提高便利性，但是他们有 共同的责任尽量减少有害的国际间的货币金融体系的流动。
 
-中共国在发行数字货币方面一直快马加鞭，企图起主导地位，当大哥。而七国集团一直在尝试制定发行CBDC的共同标准。因此，中共国的数字货币只能在墙国内自己玩儿玩儿，世界上的发达国家不会认同并参与其中。
 
-（本文仅代表作者观点）
 
-参考来源：[https://www.reuters.com/business/finance/g7-statement-cbank-digital-currencies-must-do-no-harm-cbank-mandates-2021-10-14/](https://www.reuters.com/business/finance/g7-statement-cbank-digital-currencies-must-do-no-harm-cbank-mandates-2021-10-14/)
+当福利从天而降时， 我们该做点什么？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
 
-编辑/校对/发稿：Hetangyuese
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
+## 喜马拉雅交易所要闻
+
+- 文贵先生10月14日盖特消息，2020年3月16日之后投资的也将获得HCN配额，兑换系数为0.2。
+- 喜交所发邮件公布，BTC竞猜活动锁定价格为57,401.1美元以及幸运获奖者信息（57,407.26）。恭喜中奖者，期待喜交所新的活动。
+
+
+
+
+
+
+## 新闻动态
+
+
+
+
+
+1. 10月14日消息，据最新数据显示，数字货币总市值已突破2.5万亿美元，本文撰写时为2,501,072,394,129美元，24小时涨幅5.5%，其中BTC市值为1,086,336,408,519美元，ETH市值为441,144,261,621美元。
+2. 10月15日消息，据最新数据显示，以太坊销毁的ETH总价值已超20亿美元，目前达到2,020,589,442美元，销毁总量为535,230ETH，当前Base Fee为143GWEi。
+3. Cointelegraph报道，随着加密货币挖矿行业从中国迁移到俄罗斯，俄罗斯能源部正寻求对加密货币矿工实施特殊电价。据当地媒体RBC 10月13日报道，俄罗斯能源部长Nikolai Shulginov周三宣布，该机构正在制定一个新的框架，以区分一般用途和加密货币挖矿的关税。
+4. Dailyhodl报道，国际货币基金组织（IMF）认为加密货币有可能给银行业带来压力。IMF在一份新报告中表示，技术创新正在改变金融服务。该报告指出，如果加密生态系统发展成为银行存款或当前贷款选择的主流替代方案，银行业可能会失去市场份额。国际货币基金组织还警告称，加密货币生态系统存在“消费者欺诈和市场诚信风险”。
+5. Splash247报道，Stena Drilling收购英国区块链初创企业Smart Chain Services（SCS）的少数股权，并与SCS建立为期三年的技术合作关系。此前，Stena Drilling实施为期六个月的价值证明（Proof of Value）项目，应用区块链和智能合约技术，以减少并最终消除与国际钻井承包商协会（International Association of Drilling Contractors）报告和支付钻机性能相关的复杂交易。
+6. 10月14日消息，ConsenSys宣布旗下MetaMask机构解决方案（MMI）与托管机构BitGo、Qredo、Matrixport旗下CactusCustody建立合作伙伴关系，将允许机构利用这些托管解决方案，与去中心化金融应用交互。MMI是ConsenSys于2020年12月推出的业务，以解决加密货币基金、做市商等机构接入DeFi的需求，同时需要满足安全、运营和合规的要求。
+7. 10月14日消息，基于NEAR构建的以太坊扩容方案Aurora完成1,200万美元首轮融资。NEAR表示，此次融资共吸引了100多家来自生态合作伙伴和风投领域的投资机构参与。Aurora会将这笔资金用作EVM及其正在运行的以太坊与NEAR和以太坊与Aurora桥的开发和维护。
+8. Newsfile报道，Fandom Sports Media宣布与加密货币平台Polygon建立技术合作关系，旨在支持Fandom Sports的FANDOMART NFT市场上高效且可扩展的NFT。
+9. 福布斯报道，金融科技公司Tala完成1.45亿美元E轮融资，Upstart领投，Stellar Development Foundation、IVP、Revolution Growth、Lowercase Capital参投。此轮融资使Tala总融资额达到3.5亿美元，公司估值为8亿美元。
+10. 10月14日消息，捷豹路虎(JLR)已试用区块链技术来追踪其皮革供应链的碳影响。据悉，区块链平台Circulor结合使用GPS、生物识别技术和二维码，为原材料创建防篡改审计跟踪。捷豹路虎本周证实，其Circulor平台已与英国皮革制造商BridgeofWeir皮革公司和诺丁汉大学合作，在皮革供应链中试用可追溯性技术。该试验使用区块链技术评估JLR皮革供应网络的碳足迹，以追踪最低碳源。
+11. HollywoodReporter报道，美国影视娱乐巨头福克斯于10月13日推出了其第一套与其名人歌唱比赛《蒙面歌王》相联系的The Mask Verse NFT。此外，该公司还计划推出用于购买、出售或交易该NFT的市场和社区。
+12. 10月15日消息，美国第二大抵押贷款机构United Wholesale Mortgage放弃了接受加密货币支付的计划。该公司于8月开始在行业内率先试点加密支付。其首席执行官Mat Ishbia表示，该公司在经过测试后认为不值得。Ishbia称，由于目前加密领域的增量成本和监管不确定性相结合，该公司得出的结论是，目前不会超越试点范围。
+13. 10月15日消息，英国拍卖行苏富比推出了一个名为“苏富比元宇宙”（Sotheby’s Metaverse）的新平台，让参观者可以查看拍卖中的数字艺术品，并了解NFT背后的收藏家和艺术家。“苏富比元宇宙”将于10月18日至26日举行首次拍卖。
+14. 10月14日消息，纽交所上市公司Paysafe的子公司、数字支付供应商NETELLER宣布启用了加密到法币支付模块，客户现在可以用法币购买主流加密货币和新型代币。通过这个功能，NETELLER钱包支持美元、欧元和英镑等40种法定货币的存入和提现。这些法定资金可用于购买BTC、BCH、ETH、ETC、LTC、SOL等代币。
+15. 10月14日消息，加密资管平台Bitwise已向纽约证券交易平台Arca提交了其BTC现货ETF注册申请。对此，Bitwise首席投资官Matt Hougan在个人社交媒体上发文表示，“市场已经成熟了”。
+16. 10月14日消息，StarkWare的以太坊扩容方案StarkEx在GitHub上发布4.0版本源代码，该版本移除了用户需要注册的流程，只有在取消存款等场景下才需要进行注册，另外，提现功能可以在资产所有者授权下直接执行到以太坊地址上。
+17. 10月14日消息，Elrond宣布集成跨链身份聚合协议Litentry，通过Litentry的“My Crypto Profile”服务，Twitter帐户可链接到用户的Elrond钱包，并通过网络扩展提供有用的信息，甚至可以在Twitter上展示Elrond用户的NFT收藏。Litentry将帮助Elrond实现Web3.0转型，实现更多创造性用例。
+18. Cryptoninjas报道，区块链互操作性平台AllianceBlock与阿尔巴尼亚平台dua建立合作关系，后者的平台提供撮合、市场和支付服务。未来，AllianceBlock将支持dua创建dua.pay，这是一个汇款交易和支付平台，利用DeFi为国际存款构建数字银行服务。
+19. 10月15日消息，技术驱动型加密货币矿业公司比特矿业（BIT Mining）今天宣布其矿池子公司BTC.com将退出中国大陆市场。BTC.com将停止中国大陆新用户的注册，并预计从2021年10月15日起有序停用中国大陆现有用户的账户。该公司计划加大业务拓展力度，加速全球发展。
+20. 10月15日消息，加拿大清洁技术加密货币矿商Mint Green正与Lonsdale Energy合作，通过比特币挖矿为不列颠哥伦比亚省的北温哥华市提供热量。根据声明，该热源将于2022年引入，与天然气相比，每兆瓦将防止20,000公吨温室气体进入大气。Mint Green专有的“数字锅炉”可回收96%的用于比特币挖矿的电力作为热量，然后用于供应社区和服务工业流程。
+21. 10月14日消息，Web3云计算平台Phala Network的预备网络Khala正式上线Khala-以太坊桥。随着Khala-以太坊桥开通，K-PHA可以在链上直接转移至以太坊网络。自此，Khala原生资产PHA完全实现Khala链与以太坊链之间的自由互转，兑换比例为1:1。
+22. 10月15日消息，以帮助萨尔瓦多采用比特币而闻名的初创公司Strike正在允许其美国用户立即将他们的全部或部分薪水转换为比特币，而无需他们的雇主接受比特币。新推出的Pay Mein Bitcoin选项允许用户将工资直接存入他们的Strike账户，可选择自动交换并记入其比特币余额。Strike不收取服务费用。
+23. 华尔街日报报道，Coinbase（COIN.O）呼吁为数字资产建立专门的监管机构。
+24. 10月14日消息，Twitter首席执行官Jack Dorsey转发Blockstream开发者Grubles的推文：没有Web3，只有WebVC，并表示：“的确如此”。
+25. 瑞典央行副行长奥尔森：对我来说，加密货币就是一场赌局。
+26. 10月14日消息，美联储博斯蒂克表示，央行数字货币可能会引发一系列关于隐私的问题，在央行数字货币实施之前需要解决很多问题。各国央行需要弄清楚如何创造一种安全且价值可预测的数字货币。
+27. 10月14日消息，摩根士丹利CEO戈尔曼表示，不认为加密货币是一种时尚趋势；加密货币不会消失。
+28. Cointelegraph报道，特斯拉目前持有约43,200BTC，价值约25亿美元。这比2月份该公司披露其资产负债表增加15亿美元BTC时支付的金额高出约65%，即10亿美元。
+
+
+
+
+
+*编辑：aQ
+发布：文顾*

@@ -15,140 +15,140 @@
 
 ---
 
-### [联合国人权专家对香港实施国安法逮捕表达关切](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线：民主党参议员伊丽莎白·沃伦呼吁分解亚马逊](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [英国港口正在面临集装箱货轮拥堵](/content/gnews/3/README.md)
- ` 纽约香草山MOS02`
-
-### [币圈新闻动态：2020年3月16日之后投资的也将获得HCN配额](/content/gnews/4/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [关于世卫组织将启动病毒来源新调查的分析](/content/gnews/5/README.md)
- ` 澳喜农场`
-
-### [加拿大学者新书 揭露中共当局迫害新疆人民](/content/gnews/6/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [郭文贵先生宣布重大好消息](/content/gnews/7/README.md)
- ` GTV新闻访谈`
-
-### [新中国联邦国旗首次在国际赛事中飘扬](/content/gnews/8/README.md)
- ` 纽约香草山MOS02`
-
-### [秘翻在线：议员们头疼医头 脚疼医脚 继续隔靴搔痒中共](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [一组抵抗疫苗强制简讯](/content/gnews/10/README.md)
- ` GTV新闻访谈`
-
-### [澳大利亚正在建造安置“未接种疫苗者”的隔离营](/content/gnews/11/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [澳大利亚诡异的疫情曲线](/content/gnews/12/README.md)
- ` 墨尔本雅典娜农场`
-
-### [对美媒报道“中共国将派遣3名宇航员执行迄今为止最长的载人任务”的讨论和分析](/content/gnews/13/README.md)
- ` 澳喜农场`
-
-### [芝加哥市长退让，表示不会解雇未接种疫苗的教师](/content/gnews/14/README.md)
- ` GTV新闻访谈`
-
-### [每日快报：世界上最大的房地产市场正在崩溃](/content/gnews/15/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [国民党卖台贼可能要求中共军事保护，出卖台湾主权](/content/gnews/16/README.md)
- ` G-NEWS TAIWAN`
-
-### [美国NBA全明星球员因拒绝接种中共病毒疫苗被暂停比赛](/content/gnews/17/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [七国集团财政领导人为央行数字货币制定准则](/content/gnews/18/README.md)
- ` 纽约香草山MOS01`
-
-### [芝加哥警察协会强力反击中共病毒疫苗限制令](/content/gnews/19/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [澳大利亚政坛拨款丑闻：给执政党选区建公共停车场](/content/gnews/20/README.md)
- ` 墨尔本雅典娜农场`
-
-### [普京：接受加密货币支付方式](/content/gnews/21/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [樱花灭共诗——西江月•龙脉](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [台湾中共病毒死亡率与疫苗接种率同步走高](/content/gnews/23/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [不堪网络审查 微软将关闭中共国领英网站](/content/gnews/24/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [研究发现超过一半的中共病毒幸存者患有新冠长期症状](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [国会大厦骚乱调查委员会将指控班农藐视法庭](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [苏格兰公共卫生局报告显示接种中共病毒疫苗死亡人数在剧增](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美阿肯色州拒绝联邦政府的强制疫苗接种国策](/content/gnews/28/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [重阳登高忆思情](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [不为人知&#8211;大量美军基地人员接种新冠病毒疫苗后病亡！](/content/gnews/30/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [机器狗配备狙击步枪 ——“杀人机器狗”在华盛顿亮相](/content/gnews/31/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [科学家爆料：人类有史以来第一次通过疫苗使人体产生一种异常蛋白质](/content/gnews/32/README.md)
- ` 澳喜农场`
-
-### [江志成马云吴征孟建柱王岐山盯上习近平家人Daniel Foa](/content/gnews/33/README.md)
+### [亮一亮和吴征在蒙古包喝酒的FBI合伙人Richard Frankel](/content/gnews/1/README.md)
  ` NewFOC`
 
-### [郭文贵先生2021年10月14日盖特视频（9分59秒）全文字版](/content/gnews/34/README.md)
+### [法国参议院经投票，不予通过疫苗强制接种提案](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [VAERS：可能至少有 16万美国人死于新冠病毒疫苗](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021/10/14 大卫作战室直播精要](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：美国前总统克林顿住进重症监护室 住院原因众说纷纭](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [政治经济梗：日本新首相岸田宣布议会解散诏书](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|中共对美施压，要求取消关税和制裁](/content/gnews/35/README.md)
- ` MOSREC`
+### [护士吹哨：医院从未不堪重负](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [美国食品和药物管理局急欲推行第三剂莫德纳疫苗接种](/content/gnews/36/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
+### [秘翻在线：拜登气候特使克里向中共国公司投资了一百多万美元](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [有声|联邦法官准许纽约医护人员对疫苗强制政策申请宗教豁免](/content/gnews/37/README.md)
- ` MOSREC`
+### [飞行员警告疫苗授权将造成航运和旅行的“大规模中断”](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [中美之间必有一战！](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
+### [10/5/郭文贵直播：中国人将为中共经济绑架全世界而买单（粤语配音）](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [俄克拉荷马州反对拜登的疫苗强制令](/content/gnews/39/README.md)
- ` HimalayaRussia`
+### [10/5郭文贵直播：中共债务将让全世界的养老金和保险金蒸发（粤语配音）](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|恒大危机持续，150万中国人恐将房财两空](/content/gnews/40/README.md)
- ` MOSREC`
+### [10/3郭文贵直播：习近平拿下傅政华符合他的政治利益（粤语配音）](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [参议员瑞克·斯科特：要求拜登加入我的呼吁,将 2022 年奥运会从共产主义中国移走](/content/gnews/41/README.md)
- ` 美国政要直译推`
+### [中共国是美国第一威胁 陆军年会展示最新武器装备](/content/gnews/13/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [10/14/2021 文贵盖特：新中国联邦、爆料革命通过以(疫)苗灭共和解药灭共，拯救了无数人，使全世界把中国人和中共分开](/content/gnews/42/README.md)
- ` 秘密翻译组-北美组`
+### [联合国人权专家对香港实施国安法逮捕表达关切](/content/gnews/14/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [Gofundme 撤销“反对强制疫苗”诉讼的募捐](/content/gnews/43/README.md)
+### [秘翻在线：民主党参议员伊丽莎白·沃伦呼吁分解亚马逊](/content/gnews/15/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [解封前的最后一天](/content/gnews/16/README.md)
+ ` 澳喜农场`
+
+### [英国港口正在面临集装箱货轮拥堵](/content/gnews/17/README.md)
+ ` 纽约香草山MOS02`
+
+### [币圈新闻动态：2020年3月16日之后投资的也将获得HCN配额](/content/gnews/18/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [关于世卫组织将启动病毒来源新调查的分析](/content/gnews/19/README.md)
+ ` 澳喜农场`
+
+### [加拿大学者新书 揭露中共当局迫害新疆人民](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [郭文贵先生宣布重大好消息](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [前法国总统顾问贾克-阿达利——在未来，需要解决的问题是人口过剩](/content/gnews/44/README.md)
- ` 加拿大多伦多枫叶农场视频组`
+### [新中国联邦国旗首次在国际赛事中飘扬](/content/gnews/22/README.md)
+ ` 纽约香草山MOS02`
 
-### [2021年10月13日郭文贵先生直播全文字版](/content/gnews/45/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
+### [秘翻在线：议员们头疼医头 脚疼医脚 继续隔靴搔痒中共](/content/gnews/23/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [一组抵抗疫苗强制简讯](/content/gnews/24/README.md)
+ ` GTV新闻访谈`
+
+### [澳大利亚正在建造安置“未接种疫苗者”的隔离营](/content/gnews/25/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [澳大利亚诡异的疫情曲线](/content/gnews/26/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [对美媒报道“中共国将派遣3名宇航员执行迄今为止最长的载人任务”的讨论和分析](/content/gnews/27/README.md)
+ ` 澳喜农场`
+
+### [芝加哥市长退让，表示不会解雇未接种疫苗的教师](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [每日快报：世界上最大的房地产市场正在崩溃](/content/gnews/29/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [国民党卖台贼可能要求中共军事保护，出卖台湾主权](/content/gnews/30/README.md)
+ ` G-NEWS TAIWAN`
+
+### [美国NBA全明星球员因拒绝接种中共病毒疫苗被暂停比赛](/content/gnews/31/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [七国集团财政领导人为央行数字货币制定准则](/content/gnews/32/README.md)
+ ` 纽约香草山MOS01`
+
+### [普京：接受加密货币支付方式](/content/gnews/33/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [台湾中共病毒死亡率与疫苗接种率同步走高](/content/gnews/34/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [不堪网络审查 微软将关闭中共国领英网站](/content/gnews/35/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [研究发现超过一半的中共病毒幸存者患有新冠长期症状](/content/gnews/36/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [国会大厦骚乱调查委员会将指控班农藐视法庭](/content/gnews/37/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [不为人知&#8211;大量美军基地人员接种新冠病毒疫苗后病亡！](/content/gnews/38/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [机器狗配备狙击步枪 ——“杀人机器狗”在华盛顿亮相](/content/gnews/39/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [科学家爆料：人类有史以来第一次通过疫苗使人体产生一种异常蛋白质](/content/gnews/40/README.md)
+ ` 澳喜农场`
+
+### [郭文贵先生2021年10月14日盖特视频（9分59秒）全文字版](/content/gnews/41/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国食品和药物管理局急欲推行第三剂莫德纳疫苗接种](/content/gnews/42/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [中美之间必有一战！](/content/gnews/43/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [俄克拉荷马州反对拜登的疫苗强制令](/content/gnews/44/README.md)
+ ` HimalayaRussia`
+
+### [10/14/2021 文贵盖特：新中国联邦、爆料革命通过以(疫)苗灭共和解药灭共，拯救了无数人，使全世界把中国人和中共分开](/content/gnews/45/README.md)
+ ` 秘密翻译组-北美组`
 
 ### [文革幸存母亲目睹美国滑向深渊](/content/gnews/46/README.md)
  ` 西班牙巴塞罗那喜悦农场`

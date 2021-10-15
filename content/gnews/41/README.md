@@ -2,50 +2,33 @@
 ---
 
 
-## 参议员瑞克·斯科特：要求拜登加入我的呼吁,将 2022 年奥运会从共产主义中国移走
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1594950/)
+## 郭文贵先生2021年10月14日盖特视频（9分59秒）全文字版
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1595153/)
 
-参议员瑞克·斯科特： 在几个月的完全无所作为和沉默之后，今天我再次要求乔·拜登加入我的呼吁，将 2022 年奥运会从 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 移走，并保护美国运动员和美国队的安全和个人信息免受中共国的侵入性监视。 【附斯科特参议员官网声明】
+#### 整理编辑：东京樱花团/Peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-29.png)
+尊敬的战友们好，今天是十月十四号。今天录这个视频，今天已经十二点了，我才开始录。因为今天从早上一直在开会，刚才又跟咱们农场联盟委员会开会，咱们这几天实际就是忙一个事儿，业就是从三月十一号之后吧，三月十五号以后，就是投资者，新增加的投资者，还有所有的战友的投资，没有喜币配额了。但是最近很多战友追加的投资，都是费了很多劲把钱给拿出来了。我的心里边老就不舒服，你说这些战友拿到喜必以后，过两天上市了，吃香喝辣的是吧？那有些战友呢，由于各种共产党的原因，没有获得喜币，你说这多难受啊？
 
+所以说我心里很不舒服，有的战友是把自己的所有的钱都去投资了，而且这个时候大家吃香喝辣的时候，没有这战友的份儿，我觉得说不过去呀。所以说最后我争取到从咱们这个基金里边，机构投资者里面，争取出来4000万个币，给新增加投资的这些战友，那么这个比例可能跟原来有点不一样，过去是0.5，现在可能是0.2，这个时间很紧了，因为这两天就上市了，反正这个月是肯定上市，最后两天肯定上市。
 
+在这个时候还能给战友争取来喜币，还能让大家以这样的价格获得喜币。我觉得天下没有第二个机构，没有第二个人能这么做到，我相信。这就是爆料革命，这就是新中国联邦，除此之外没有人可以做到，大家知道意味什么？一毛钱一个币，你连电费钱都不够。我们在这儿买的柴火，那柴火都多少，上百美金一捆，对吧？二十多美金，一小捆，二百四十美金一大捆，你说吓死人了吧，你说你买个币算什么？但是这个币对战友们终生是最重要的，我觉得是非常重要，不能把任何人给落下来。
 
-> After MONTHS of complete inaction & silence, today I again demanded Joe Biden join my call to move the 2022 Olympics out of Communist China & protect the safety & personal information of American athletes & Team USA from China's invasive surveillance. [https://t.co/zClmB4xUyr](https://t.co/zClmB4xUyr)
-> — Rick Scott (@SenRickScott) [October 14, 2021](https://twitter.com/SenRickScott/status/1448778039031181320?ref_src=twsrc%5Etfw)
+所以呢我们开了这个会，跟联盟委员会各农场主刚开完，开完以后我有另外一个会，我心里边特别舒服，因为这样的，我知道，我们的很多战友们才能一样，不能让这好人吃亏呀，很多好人。你想想发生路大脑骗，蛇妖闫，九指妖这么多事情，战友们还继续更多的人来投钱，这是对G系列的信任，我虽然不是股东，但是我有影响力，我发挥影响力，我就说服他们，从机构投资者里边拿出了一部分币，然后把咱们过去给国内战友预留的6000万个币，拿出来了一部分币，给了现在三月份以后新增加的投资者的兄弟姐妹们这个配合。那么给国内留的那币没问题，因为今年年底，就这一年用不着，就拿明年的再增发的十亿币，从那里边拿出来给战友。那个时候可能就是价钱，就是成本，给战友的成本可能就是高很多很多倍了，那没办法，也等于变相送给了战友钱。送给了现在这一批战友钱，因为这个给战友的币拿出来3000万，发给了今天的这些新增加投资战友们，那就等同于明年再买回这三千万币的价格，是明年的价格，明年也可能是一倍，也可能是十倍和一百倍。谁知道的啊？但是这个我相信大家都明白，只有爆料革命，咱们新中国人才能做到这样的事情，真正的让好人不吃亏，真正的为他人，为战友们考虑。这就是我们新中国联邦能做的事情，没有人能做得到，没有人能做得到啊。这件事做完了以后，今天开完会已经明确了，我已经重复了三遍了，希望大家能明白具体问题。老班长，长岛哥，铁血组还有联盟委员会，会在直播中说明。所以这是今天的一个新的情况。
 
+另外一个，从这个大家看到这几天，打不打台湾，疫苗的问题，肠道梗、心梗、脑梗、航空、火车、飞机航空飞机，大家都看到了爆料革命最早爆出真相，现在全球爆发。抗击疫苗，再反疫苗，一半人也打了疫苗了，这一半人没打疫苗的，真的是现在精子卵子值多少钱？我们不是从子宫聊到太空，现在从子宫聊到太空，现在又聊到了人的安全、人类的未来和生存的方式，大家都看到了。多大程度上影响了人类的生存？如果这个世界上，真的是像你们现在看七哥这个视频一样，有起码的常识common sense，你也不会去打那个傻疫苗去。有些人压根这一年两年没离开过家，你没事儿干了，你去打那个疫苗去吗？那些农民在山里面天天种地，你打什么疫苗吗？你这不是要命吗？还有的是单身母亲，单身父亲的，你要有了事，这孩子咋办？咋办？大家去想想吧。所以说这个世界非常的疯狂，这就是爆料革命和新中国联邦的魅力。
 
+我们这个以苗灭共，仅仅开展几个月，救了多少人？我们以苗灭共，同时以解药灭共，用这个解药救了多少人？我们又在海外让多少人看到了，现在的中国人和他们被共产党宣传的中国形象是什么不同？共产党不等同于中国人，我们中国人不同意共产党被代表，这个意义有多大？通过解药，通过伊维菌素，通过地塞米松，通过青蒿素，通过我们现在向世界宣传的真相，拯救了多少人？战友们广泛传播，很多战友真的是这一两年来、三四年来每天都辛苦的工作，把眼睛都看花了。经历了一次又一次的事情，把自己家的东西都卖了，相信爆料革命，这种感情是没办法用语言来形容的。我们任何人都不会超过三万六千天在地球上，但是这份感情，这份信任不是每个人都拥有的。七哥珍惜，我们战友之间更要互相珍惜，我也希望各农场主能真心的为战友们服务，真心的为我们战友们，不要让他们错过一次又一次的，他们一生中可能就这一次的机会。
 
-参议员瑞克·斯科特： 我很高兴[@LinkedIn](https://twitter.com/LinkedIn)和微软正在努力解决我对于（中共国）对美国人不可接受的审查制度的担忧。 每家美国公司都需要在全球范围内支持言论自由，并反对 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 及其种族灭绝和侵犯人权的行为。这是一个好开始。 【附华尔街日报的新闻：微软说将关闭在中国的LinkedIn网站】
+那么我们现在这个以苗灭共，没有战友的传播，还有这个解药灭共，没有战友传播，达不到现在的效果。这个力量有多大？在欧洲，在日本、在亚洲、在非洲、在东欧、在加拿大、在澳洲、澳大利亚，无处不在的爆料革命的力量，爆料革命的正义的声音，每分每秒都在拯救着无辜的人类。美国有航空公司的人，很多我的朋友，包括我们的过去有合作基础的人，都跟我说：“miles你救了我们全家。”非常简单嘛，是不是？这个多简单，连病毒都不知道哪来的，你怎么有疫苗呢？为啥这疫苗打得让我负责任，你们不负责任呢？为什么要强制打呢？癌症在社会那么多年，艾滋病那么多年，你们研究疫苗，怎么突然就来了个疫苗呢？为什么要给小孩子打，为什么要给呆在家里的，还有在山里的，根本不出门的农民打？邪恶呀！兄弟姐妹们。啥都不说了，这高兴事太多了，你们看直播去吧，保证你们鼻涕一把泪一把的。我可以告诉你，没有任何人，能做这样的事情，只有新中国联邦，只有我们！
 
+啥都不说了……
 
+稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
 
-> I’m glad [@LinkedIn](https://twitter.com/LinkedIn?ref_src=twsrc%5Etfw) & [@Microsoft](https://twitter.com/Microsoft?ref_src=twsrc%5Etfw) are working to address my concerns over the unacceptable censorship of Americans.
-> 
-> Every U.S. company needs to stand for free speech worldwide & take a stand against Communist China & its genocide & human right abuses. This is a good start. [https://t.co/DOQK6PboTh](https://t.co/DOQK6PboTh)
-> — Rick Scott (@SenRickScott) [October 14, 2021](https://twitter.com/SenRickScott/status/1448762596975382533?ref_src=twsrc%5Etfw)
+[郭文贵先生10月14日盖特](https://gettr.com/post/pe4gjl93d5)
 
+(文章仅代表作者本人观点，与GNEWS无关)
 
-
-参议员汤姆·科顿： 在艾伦·埃斯特维兹确认他将解决 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 构成的威胁之前，他无权在商务部任职。 【附科顿参议员官网声明】
-
-
-
-> Until Alan Estevez confirms that he will address the threat posed by the Chinese Communist Party, he has no business serving at the Department of Commerce.[https://t.co/uGFCcnO43d](https://t.co/uGFCcnO43d)
-> — Tom Cotton (@SenTomCotton) [October 14, 2021](https://twitter.com/SenTomCotton/status/1448758126006657025?ref_src=twsrc%5Etfw)
-
-
-
-美国第780军事情报旅(网络)： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在南亚的影响力：四个国家的脆弱性和韧性 【附卡内基捐赠基金网[http://Carnegieendowment.org](https://t.co/O2KmgjJU98?amp=1) 同名文章链接】“孟加拉国、马尔代夫、尼泊尔和斯里兰卡展示了 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在一个非常多维地区的参与战略的多样性，但也表明南亚的影响者们正在相互学习与中共国金钱和权力(关系)的经验。
-
-
-
-> China’s Influence in South Asia: Vulnerabilities and Resilience in Four Countries [https://t.co/vOwy8iEFHf](https://t.co/vOwy8iEFHf) via [@CarnegieEndow](https://twitter.com/CarnegieEndow?ref_src=twsrc%5Etfw)
-> — 780th Military Intelligence Brigade (Cyber) (@780thC) [October 14, 2021](https://twitter.com/780thC/status/1448696155664179209?ref_src=twsrc%5Etfw)
-
-
-
-参议员卢比奥媒体办公室： 卢比奥参议员欢迎哈佛大学 [@Harvard](https://twitter.com/Harvard) 把他们的中文暑期项目从 [#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 移到 [#台北](https://twitter.com/hashtag/%E5%8F%B0%E5%8C%97?src=hashtag_click) 的决定。[#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 向全世界提供了独特的机会，可以学习中国的语言，传统和文化，不受 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 的压迫。其他的美国大学也应该效仿。（转纽时，哈佛把受欢迎的中文项目转移到台北）
-
-
-
-> Sen.Rubio welcomes [@Harvard](https://twitter.com/Harvard?ref_src=twsrc%5Etfw)’s decision to move its Chinese language summer program from [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw) to [#Taipei](https://twitter.com/hashtag/Taipei?src=hash&amp;ref_src=twsrc%5Etfw).[#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) offers the world a unique opportunity to learn about Chinese language,traditions, & culture free from [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) repression. Other U.S. universities should follow suit. [https://t.co/7BX0xdTtHz](https://t.co/7BX0xdTtHz)
-> — Senator Rubio Press (@SenRubioPress) [October 14, 2021](https://twitter.com/SenRubioPress/status/1448660962148372488?ref_src=twsrc%5Etfw)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
