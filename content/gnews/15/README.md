@@ -2,79 +2,49 @@
 ---
 
 
-## 病毒疫苗的本质是种族大屠杀
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1594718/)
+## 西南航空CEO说没有人会因为强制疫苗接种而被解雇
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1594746/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/111-a9tt5-a2nj0.jpg)
-[https://gtv.org/video/id=61681731d2e2b81748751d1c](https://gtv.org/video/id=61681731d2e2b81748751d1c)
+据《保守派简报》记者卡米尼·萨比亚2021年10月12日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-9.png)图片来自网络
+西南航空CEO正在反击乔·拜登及其政府的强制疫苗接种政策。
 
-**郭文贵
-Miles Guo**
+西南航空公司CEO加里·凯利（Gary Kelly），周二在接受ABC新闻乔治·斯蒂芬诺伯罗斯（George Stephanopoulos）采访时说，没有人会因为没有接种疫苗而被解雇。
 
-烂账、烂房把西方经济绑架，疫苗病毒，把西方全部Lockdown
-Bad debts and bad mortgages have kidnapped the western economy, and the vac-cine and the virus have locked down all of the West
+他说：“我们不会因为这件事解雇任何雇员”。
 
-司法界、媒体、社交媒体全部控制
-The judiciary, the media, and social media are all controlled by them
+他的确说”没有证据”表明最近的航班取消和强制疫苗有任何关系。
 
-对犹太人、对世界上的种族，中东人进行一种完全的种族大屠杀
-A complete genocide against Jews, races in the world, and Middle Easterners
+他说：“没有证据表明那种可能性，我们的员工工作很努力，他们做的很出色，我为他们感到骄傲。”
 
-你觉得未来6个月到12个月你的日子还像今天坐在这儿（直播），是不是
-Do you think your life in the next 6 to 12 months will be the same, like sitting here today and live broadcast, right?
+CEO说：“这个是政府的强制措施，是总统的命令，而我们正尽我们的最大努力去遵守已经设置的最后期限”，但他说强制措施备受争议。
 
-你们能这么过吗？澳大利亚也会这么过吗？新西兰你会这么过吗？
-Can you still live like this? Will Australia live like this? Will New Zealand live like this ?
+他在[CNBC上说](https://trendingpolitics.com/southwest-ceo-blasts-joe-biden-as-workers-go-on-strike-causing-thousands-of-flights-to-be-cancelled-crugg/) ：“我对推行那种强制措施的公司从来都不感冒，我不喜欢那样的，从来都不，但是拜登总统的行政命令要求，所有联邦雇员和所有联邦承包商，涵盖所有主要的航空公司，都必须在12月8日前完成疫苗任务。所以我们正在实现那个目标。”
 
-而且现在你会发现所有的推广疫苗的政府官员全部被lobby了
-And now you will find that all government officials who promote vaccines have been lobbied by the Pharmaceutical companies
+他说：“同样，我认为了解航空公司如何工作的人，当你落后时，只需要几天时间就能赶上，我们在昨天和今天被超越，这一事实支持了我们在这里的论断。我们在周五明显落后了，那需要好几天才能追上来。”
 
-全被又游说的，全是为了钱
-All have been lobbied and all for the money
+不过，根据MSN的报道，这是凯利的一个新的姿态，因为上周他说他的雇员必需要打疫苗。
 
-现在疫苗你看新加坡、澳大利亚病例增长情况，几乎是打疫苗最高（的国家）Looking at the increase in the number of vaccination cases in Singapore and Australia, it’s almost the country with the highest number of vaccinations
+他说：“西南航空是一家联邦承包商，在可见的选项之内，我们别无选择地去遵照美国政府要求雇员要接种的强制要求，而且，就像其他航班那样，我们正逐步遵循政策”。
 
-接种率85%，接种率50%，你看看这是什么概念
-The vaccination rate are 85% and 50%, look at this concept
+航空公司本周不得不取消超过1000多家航班，但CEO说，这与强制接种或任何类型的抗议没有关系。
 
-这是大屠杀吧，兄弟姐妹们，
-This is a massacre, brothers and sisters
+该公司表示：“西南航空公司飞行员协会知道今天由于一些问题导致的运营困难影响了西南航空公司，但是我们能充满自信地说，我们的飞行员没有参与任何官方或非官方的工作行动”。
 
-我的老天爷，澳大利亚天呐，天呐，新加坡，
-Oh my god, Australia, my god, Singapore,
+“我们的飞行员将继续克服西南航空公司管理层的不良计划，以及任何外部的运营挑战，并保留世界上最具创造性的飞行员。他们将继续专注于他们的最高优先项——安全。西南航空公司飞行员协会的飞行员是真正的专业人员，并将对他们的空乘员、他们的乘客以及我们的航空公司一直保持最高的责任心”。
 
-你看看这有多可怕，这是刚刚发生的事情，
-Look at how terrible this is, this is what just happened
+但是正如《彭博》新闻[报道](https://www.msn.com/en-us/money/companies/southwest-airlines-says-staff-must-be-vaccinated-against-covid-by-dec-8-under-federal-rules/ar-AAP8wYK)的那样，西南航空的飞行员已经要求法院阻止强制疫苗。
 
-所以兄弟姐妹们，疫苗推广你看看，在那个洛杉矶
-So brothers and sisters, look at the vaccine promotion in Los Angeles
+*东南航空飞行员协会周五提交的文件，还要求达拉斯的一家联邦法院立即对该请求进行听证，声称该航空公司继续采取的单边行动违反了《铁路劳工法》条款，该法约束了航空公司与工会关系。那些步骤包括了中共病毒疫苗接种要求。*
 
-洛杉矶可能最重要的就是消防员了
-Perhaps the most important thing in Los Angeles is the firefighters
+*“新的疫苗强制举措不合法地强加了新条件下的雇佣关系，并提出了威胁任何在**2021**年**12**月**8**日之前没有完全接种的飞行员停职的新政策”。劳工法文件写道：“西南航空对多方集体谈判协定进行新条款附加和单方的修改，明显违反了劳动法”*
 
-因为洛杉矶着火，你们没有来过洛杉矶
-because of the fire in Los Angeles, you haven’t been to Los Angeles, so you don’t understand
+*根据联邦对与美国政府签有合同的公司雇员的强制疫苗接种要求，西南航空将截止日期设置为**10**月**4**日。员工能寻求医药或宗教上的豁免。工会代表了**9000**名西南航空的飞行员。*
 
-你想消防员都哭了，说，这帮人要弄死我们，我受不了了
-Look, the firefighters are crying and saying, this group of people is going to kill us and I can’t stand it anymore
+*东南航空在一封电邮中的声明表示：**“**航空公司不同意西南航空公司飞行员协会对于任何过去几个月与冠状病毒相关的改变都需要协商的要求**”**。该航空公司正在和它的工会一同行动，“正如我们继续度过持续疫情带来的挑战”。*
 
-————————————————————
+【本文仅代表作者自己的观点，与Gnews无关】
 
-**原视频接:**[https://twitter.com/se1y7cblljselva/status/1447502355054743564?s=24](https://twitter.com/se1y7cblljselva/status/1447502355054743564?s=24)
+原文链接：https://conservativebrief.com/southwest-ceo-52681/?utm\_source=CB&utm\_medium=DJD
 
-Date:10/13/2021
-The essence of COVID vaccine is massacre
-原视频日期：2021/10/10
-任务编号：KC171（2507）
-视频时间段 : 0:00-1:34
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+翻译：阿基米德|校对：烟波浩淼|编辑&发布: 黎明的光芒
