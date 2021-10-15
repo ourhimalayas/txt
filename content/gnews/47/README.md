@@ -2,38 +2,29 @@
 ---
 
 
-## 七国集团财政领导人为央行数字货币制定准则
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1595484/)
+## 秘翻在线：拜登气候特使克里向中共国公司投资了一百多万美元
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1595722/)
 
-作者：香草山金融部 – 闲聊钱币
+#### 翻译/撰稿：zzballack
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+#### 校对：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16342868991.png)图片来源：纽约邮报
+据《华盛顿自由灯塔》（Washington Free Beacon）10月14日报道，根据约翰·克里（John Kerry）今年年初提交的财务披露报告,他和他妻子向中共国的投资集团高瓴中国价值基金（Hillhouse China Value Fund L.P.）投资了100多万美元，该基金是中共国人工智能行业的主要资助者，包括投资了因侵犯维吾尔人人权而被美国列入黑名单的上海依图网络科技有限公司（YITU Technology）。
+
+根据依图科技公司2020年11月提交给上海证券交易所科创板的首次公开募股招股书副本显示，高瓴中国价值基金是依图科技的顶级股东之一。据报道，该基金在2017年向依图科技注资5500万美元。依图公司协助中共利用高科技对维吾尔人进行监控，并帮助中共政府开发了一套面部识别软件，按种族和民族将人分类。2019年，美国商务部（U.S. Department of Commerce）将依图科技公司列入限制贸易的黑名单，原因是“在中共对维吾尔族、哈萨克族和其他穆斯林少数民族成员进行镇压、大规模任意拘留和高科技监控的恶行中涉嫌违反和侵犯人权。”
+
+作为拜登总统的气候特使，克里在与中共政府进行气候变化协议谈判时，总是淡化中共对维吾尔人的迫害。上个月，当被问及是否有必要用人权来换取中共在气候方面的让步时，克里说：“生活总是充满了艰难的选择。“共和党立法者9月份担心说，克里正在悄悄游说反对参议院批准的一项法案，该法案将禁止从中共国进口与维吾尔奴隶劳工有关的产品。
+
+情报分析师安德尔斯·科尔 (Anders Corr)称克里向中共国投资“令人惊讶和失望”。他说：“克里在中共国问题上起着主导作用，不仅仅限于气候谈判，他和他的家人应该被禁止以一种会造成利益冲突的方式进行投资。中共将人工智能行业视为其经济和军事发展的极少数最重要的战略部门之一，这一部门的扩张将使中共成为全球霸主的目标得以实现。任何美国人都不应该投资中共的人工智能行业。”中共政府制定了到2030年成为全球人工智能领导者的目标，这引起了美国国家安全专家的关注，他们说中共正在将这项技术军事化，并对持不同政见者和国内少数群体实施极权式的控制。
+
+高瓴中国价值基金是高瓴资本集团 (Hillhouse Capital Group)的一部分，高瓴资本的创始人是中国商人张磊。张磊是上海人工智能战略专家咨询委员会的成员，该委员会由中共政府创建，是其努力提升人工智能技术的一部分。张磊在2019年成为中美交流基金会的成员，该组织与中共政府的海外影响力行动有关。张磊和高瓴资本集团还资助了中国人民大学的高瓴人工智能学院。
+
+新闻来源：[Kerry Owns Stake in Chinese Investment Group That Funds Company Blacklisted for Human Rights Abuses](https://freebeacon.com/biden-administration/kerry-owns-stake-in-chinese-investment-group-that-funds-company-blacklisted-for-human-rights-abuses/)
+
+关键词：
+
+约翰·克里 高瓴中国价值基金 人工智能 依图网络科技公司 蓝金黄 维吾尔人
 
 
 
-10月13日（路透社）–世界上最先进的七个经济体（G7）周三表示，中央银行发行的任何数字货币必须支持并不损害本国银行系统履行其货币授权和金融稳定的能力，而且还必须符合极度严格的标准。
-
-在周三的会议后七国集团还表示，如果发行央行数字货币（CBDC），它将有三个特点，对现金的补充，可以作为一种安全的流动资产，和对支付系统的完善。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture5-2.jpg)
-这些数字货币（CBDC）的发行方式必须不能侵犯中央银行对货币的授权同时符合严格的隐私、透明度和保护用户数据的标准。
-
-在跨境支付方面，七国集团表示，虽然数字货币会提高便利性，但是他们有 共同的责任尽量减少有害的国际间的货币金融体系的流动。
-
-中共国在发行数字货币方面一直快马加鞭，企图起主导地位，当大哥。而七国集团一直在尝试制定发行CBDC的共同标准。因此，中共国的数字货币只能在墙国内自己玩儿玩儿，世界上的发达国家不会认同并参与其中。
-
-（本文仅代表作者观点）
-
-参考来源：[https://www.reuters.com/business/finance/g7-statement-cbank-digital-currencies-must-do-no-harm-cbank-mandates-2021-10-14/](https://www.reuters.com/business/finance/g7-statement-cbank-digital-currencies-must-do-no-harm-cbank-mandates-2021-10-14/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+。
