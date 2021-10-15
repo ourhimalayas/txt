@@ -2,29 +2,37 @@
 ---
 
 
-## 美议员呼吁将华为前子公司荣耀列为黑名单
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1596574/)
+## 加拿大BC省市议员公开反对疫苗护照
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1596587/)
 
-**撰稿：日本东京方舟农场 子辰**
+作者：Drea Humphrey
 
-据大纪元10月15日报道，由参议员马可·卢比奥（Marco Rubio）为主导的共和党参议员在周四呼吁拜登政府，将中共电信华为公司拆分出来的“荣耀”公司列入黑名单。
+加拿大的疫苗护照要求对加拿大人进行了歧视和隔离，但几乎我们选举的每一位政治家都在这个问题上保持沉默。我们的民主怎么了？
 
-据路透社报导，参议员卢比奥还有约翰·科宁（John Cornyn）和里克·斯科特（Rick Scott）在10月14日的一封信中表示，华为在2020年11月通过分拆出售了其低端智能手机品牌“荣耀”（Honor），致使北京有效地躲过了美国的关键出口管制。而“荣耀”公司本质上就是中共政府的一个“武器”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GettyImages-486448402-600x400-1.jpg)图片来自于网络
 
-信中说：美国商务部如果不对此作出回应，将会树立危险的先例，等同于变相支持威权政权明目张胆的金融操作。
+值得庆幸的是，卑诗省皮特梅多斯市议员安妮娜辛普森勇敢打破政治的沉默。辛普森在 9 月 28 日的一次例行理事会会议上说：“有些弱势群体被这种疫苗护照制度边缘化。”辛普森选择不透露涉及她疫苗接种状况的个人健康信息，並实际上参加了政府的工作会议。她说，她选择与因各种原因受到护照伤害的边缘化选民站在一起，比如 22 岁的Tenley Csolle，她在第一次接种摩德纳疫苗后就无法走路，或者免疫功能低下两个孩子的妈妈Leigh Eliason因医疗原因无法接种任何 COVID-19 疫苗。
 
-此外，今年8月由众议院外交事务委员会资深成员迈克尔·麦考尔（Michael McCaul）为主导的14名共和党国会议员，也曾呼吁美国商务部将“荣耀”公司列入黑名单，称华为将其拆分、剥离出来，就是为了逃避美国的出口管制，以便让华为获得被封锁的半导体芯片及软件。
+观看这份报告，了解我对辛普森的完整采访，了解她为何勇敢地为这些加拿大人挺身而出。
 
-此前2019年，中共华为就被川普政府列入了贸易黑名单，因为该公司对美国国家安全构成威胁。
+根据*Rebel News*他们已经聘请了一个律师团队，并且已经提起了多项法律诉讼，包括寻求停止 BC 护照的禁令。
 
-*注：本文仅代表作者观点，与 Gnews无关*
+Reference: [https://www.rebelnews.com/b\_c\_city\_councillor\_speaks\_out\_against\_vaccine\_passport](https://www.rebelnews.com/b_c_city_councillor_speaks_out_against_vaccine_passport)/
 
-*参考链接：*
+（文章仅代表作者个人观点）
 
-[美议员吁拜登将华为前子公司荣耀列黑名单](https://www.epochtimes.com/gb/21/10/15/n13305462.htm)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-* * *
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

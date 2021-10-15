@@ -2,37 +2,113 @@
 ---
 
 
-## 完全疫苗接种加州大学生因病毒并发症去世
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596254/)
+## 10/15/21 香港快讯 【贤学思政案】仅朱慧盈获批保释 不可于社交平台发表言论
+` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1596290/)
 
-作者：雪梨
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-21岁的美国加州佐治亚大学的肖恩·库恩（Shawn Kuhn），在完全接种新冠疫苗后，死于近期突然感染的新冠病毒，他在去世之前与病魔战斗了大约6个星期。
+**搜集****/****整理：卡西欧**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1015fenmian.jpg)
+封面素材：立场新闻
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-15-at-10.23.49-AM.png)
+**1.****【贤学思政案】仅朱慧盈获批保释****不可于社交平台发表言论****其余**** 3 ****人续还押**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-25.jpeg)
+[据【立场新闻】10月15日讯，早前宣布解散的贤学思政，其前召集人王逸战、前发言人黄沅琳、前秘书长陈枳森和前发言人朱慧盈4 人，同被控一项「串谋煽动他人实施颠覆国家政权」罪，4 人早前在裁判法院申请保释被拒，正被还押。 4 人今日再向高院申请保释，由国安法指定法官李运腾处理，他听罢双方陈词后，只批准朱慧盈保释，其余 3 人保释被拒，须继续还押。](https://www.thestandnews.com/court/賢學思政案-4-人高院申保釋-僅朱慧盈獲批-其餘-3-人續還押)
 
-库恩是运动和体育专业的大四学生，身体健康，在竞技项目中获奖，在校园兼职私人教练。
+[三名不获保释的被告离开被告栏时，有人于旁听席高呼「撑住呀」、「黄沅琳，我爱你！」等，而黄则一度抽泣。朱慧盈的保释条件包括：](https://www.thestandnews.com/court/賢學思政案-4-人高院申保釋-僅朱慧盈獲批-其餘-3-人續還押)
 
-尽管新冠病毒对30岁以下人群危险性极低，但在学校和工作场所的胁迫下，年轻人正在大规模的接种，库恩和许多比他更年轻的人在这种环境下，被迫接种了含胚胎细胞的毒针。
+[现金1.5万元](https://www.thestandnews.com/court/賢學思政案-4-人高院申保釋-僅朱慧盈獲批-其餘-3-人續還押)
 
-前辉瑞公司的员工凯伦·金斯敦此前揭露，较未接种时，人体感染病毒的机率增加了3倍，而当接种第二剂后，随着时间的推移，人体免疫力逐渐减弱，感染率将持续升高。
+[人事担保1万元](https://www.thestandnews.com/court/賢學思政案-4-人高院申保釋-僅朱慧盈獲批-其餘-3-人續還押)
 
-今年6月，加州15岁少年接种辉瑞疫苗第二针2天后，死于“应激性心肌炎并伴有冠状动脉炎症”。此前，美国疾病控制和预防中心（CDC）也承认，接种mRNA疫苗的年轻男性有罹患心肌炎和心包炎的风险。如果美国政府仍强制推行疫苗接种令，随着在校学生大面积接种疫苗，越来越多的年轻人将因此受到伤害，甚至死亡。
+[每晚11时至翌晨7时宵禁](https://www.thestandnews.com/court/賢學思政案-4-人高院申保釋-僅朱慧盈獲批-其餘-3-人續還押)
 
-(本文仅代表作者观点)
+[每日到指定警署报到](https://www.thestandnews.com/court/賢學思政案-4-人高院申保釋-僅朱慧盈獲批-其餘-3-人續還押)
 
-参考链接：[‘Fully vaccinated’ 21-year-old personal trainer dies from COVID complications](https://www.lifesitenews.com/news/fully-vaccinated-21-year-old-personal-trainer-dies-from-covid-complications/?utm_source=top_news&amp;utm_campaign=usa)
-[https://www.watsonhunt.com/obituaries/Shawn-Kuhn/#!/Obituary](https://www.watsonhunt.com/obituaries/Shawn-Kuhn/#!/Obituary)
+[交出所有旅游证件，包括BNO](https://www.thestandnews.com/court/賢學思政案-4-人高院申保釋-僅朱慧盈獲批-其餘-3-人續還押)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+[居于指定住址，不得搬迁](https://www.thestandnews.com/court/賢學思政案-4-人高院申保釋-僅朱慧盈獲批-其餘-3-人續還押)
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
+[承诺不得直接或间接作出，任何有合理理由可视为违反国安法或其他罪行的行为。](https://www.thestandnews.com/court/賢學思政案-4-人高院申保釋-僅朱慧盈獲批-其餘-3-人續還押)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[承诺不得直接或间接以任何方式接受访问、不得于社交平台作出任何言论、及不得与任何外国政府官员或代表见面。](https://www.thestandnews.com/court/賢學思政案-4-人高院申保釋-僅朱慧盈獲批-其餘-3-人續還押)
+
+[四名被告分别为王逸战、陈枳森、朱慧盈及黄沅琳，被控一项「串谋煽动他人实施颠覆国家政权」罪，即于 2020 年 10 月 25 日至 2021 年 6 月 16 日期间，在香港与王逸战、陈枳森、朱慧盈及其他人，串谋煽动他人组织、策划、实施或者参与实施以下武力、威胁使用武力或其他非法手段，旨在颠覆国家政权。](https://www.thestandnews.com/court/賢學思政案-4-人高院申保釋-僅朱慧盈獲批-其餘-3-人續還押)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-15-at-10.24.01-AM.png)
+**2. ****高志活：愿来港移走国殇之柱**
+
+[据【Now新闻台】10月15日讯，国殇之柱的创作人、丹麦雕塑家高志活发表声明指，愿意将国殇之柱由港大移走，但要求给予充足时间。](https://news.now.com/home/local/player?newsId=453263)
+
+[高志活指，港大要求移走国殇之柱的期限已届满，但至今港大及代表律师都无接触过他。高志活强调，愿意移走雕像，但需要时间处理，拟议方案包括他本人亲自来港，将国殇之柱航运到其他地方，例如欧洲、美国等。他亦收到不同有心人及机构的建议及协助，但相信难将国殇之柱留在到香港境内，因为不肯定会否违反国安法。](https://news.now.com/home/local/player?newsId=453263)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-15-at-10.24.17-AM.png)
+**3. ****壹传媒遭财政司呈请清盘****高院今委任两临时清盘人**
+
+[据【大纪元时报】10月15日讯，高等法院今日（15日）针对财政司就「壹传媒清盘」申请委任临时清盘人，批准委任安永会计师事务所顾智心及徐子超作为临时清盘人。](https://hk.epochtimes.com/news/2021-10-15/24603884)
+
+[财政司今日由资深大律师余若海代表，壹传媒则没有任何代表出席。余陈词表示，现时向法院提交壹传媒清盘呈请，可保障公司的最佳利益。她说，截至9月5日，壹传媒集团所有董事已辞任，包括两名美国董事；10月4日起没有任何员工继续工作，没有人管理公司；公司已解散，实际上与清盘无异。](https://hk.epochtimes.com/news/2021-10-15/24603884)
+
+[余又表示，据审查员调查显示，壹传媒亏损2.47亿，无形资产有6.58亿，在港现金约7,200多万，集团8月底从一间公司获转帐约3,000万。壹传媒曾就台湾业务商讨出售，惟最后未能达成协议。壹传媒现时仍有本港的书籍印刷业务及台湾的数码业务。](https://hk.epochtimes.com/news/2021-10-15/24603884)
+
+[她说，财政司就审查事宜已从壹传媒大楼取得4,000箱文件资料，审查仍在进行中。](https://hk.epochtimes.com/news/2021-10-15/24603884)
+
+[法官陈静芬最终批准申请，颁令委任安永会计师事务所的顾智心及徐子超作为临时清盘人，书面理由书今午颁布。](https://hk.epochtimes.com/news/2021-10-15/24603884)
+
+[司法机构网页显示，壹传媒清盘聆讯排期于12月15日早上在高等法院进行。](https://hk.epochtimes.com/news/2021-10-15/24603884)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-15-at-10.24.26-AM.png)
+**4. ****杨润雄：公营学校只可聘任通过《基本法》测试的新教师**** …**
+
+[据【香港电台】10月15日讯，由下学年起，教育局会要求公营学校只可聘任已经通过《基本法》测试的新教师。教育局局长杨润雄表示，会参考招聘公务员做法，不排除明年年底也将《香港国安法》纳入考核范围。](https://news.rthk.hk/rthk/ch/component/k2/1615376-20211015.htm)
+
+[香港教育工作者工会主席黄建豪认为，有关做法适切，他表示，现时大部分准教师毕业前都会应考公务员的综合招聘考试，因此要再应付入职时《基本法》测试不会有太大困难，他又建议学校举办工作坊，让新老师更了解校园国安教育，避免在教学时违反相关法例。](https://news.rthk.hk/rthk/ch/component/k2/1615376-20211015.htm)
+
+[多间大学已于本学年将国安法及国安教育纳入本科生的必修课程，黄建豪说，大学课程目的是让准教师了解不可涉及违反国安法，教育局的考核则是希望教师恪守《基本法》，两者起步点不同，建议经过一段时间磨合后，可让准教师选择，修读并通过指定校内课程考核，抑或参加《基本法》考试，作为入职条件。](https://news.rthk.hk/rthk/ch/component/k2/1615376-20211015.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-15-at-10.24.36-AM.png)
+**5. ****财委会通过删除临时动议程序****主席有权为议程设时限**
+
+[据【香港电台】10月15日讯，立法会财务委员会通过修改会议程序，修订包括让财委会决定，是否讨论在工务或人事编制小组委员会已经通过的拨款项目，同时删除俗称「37A」的临时动议程序，另外亦订明财委会主席有权为议程设定时限，以及有权决定议员可否提出传召官员的议案，其余修订亦包括订明选举财委会正副主席的程序。](https://news.rthk.hk/rthk/ch/component/k2/1615367-20211015.htm)
+
+[新修订将于新一届立法会财委会、工务及人事编制小组委员会实施。](https://news.rthk.hk/rthk/ch/component/k2/1615367-20211015.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-15-at-10.24.49-AM.png)
+**6.****「合规要求越来越高」**** LinkedIn ****终止中共国服务**
+
+[据【立场新闻】10月15日讯，微软 (Microsoft) 持有的社交平台 LinkedIn 周四（14 日）宣布，由于「中共国日益具挑战性的经营环境和合规要求越来越高」，决定终止在中共国的服务。](https://www.thestandnews.com/international/合規要求越來越高-linkedin-終止中國服務)
+
+[在 3 月时，《纽约时报》引述消息人士指，中共网络监管机构国家互联网信息办公室严厉斥责 LinkedIn，指平台未能控制政治内容，要求 LinkedIn 进行自我评估并提交报告。](https://www.thestandnews.com/international/合規要求越來越高-linkedin-終止中國服務)
+
+[而在 9 月，LinkedIn 以「违禁内容」为由，在中共封锁数名美国记者的帐户。 LinkedIn 亦被指近月审查一些人权活动家、学者和记者的个人简介，禁止「敏感内容」在中共国展示。](https://www.thestandnews.com/international/合規要求越來越高-linkedin-終止中國服務)
+
+[美国共和党参议员 Rick Scott 其后去信 LinkedIn 和母公司微软的行政总裁，形容这些审查是「令人恶心的绥靖和对中国共产党的妥协」。](https://www.thestandnews.com/international/合規要求越來越高-linkedin-終止中國服務)
+
+[LinkedIn 官方网志有提及「支持言论自由」，并解释终止服务是由于「中共国日益具挑战性的经营环境和合规要求越来越高」，中共国版本则只字未提。在由 LinkedIn（领英）中国总裁陆坚署名的《致领英中国会员的一封信》中，LinkedIn 指找工作已经成为中共国用户到 LinkedIn 的主要原因，而为更好地服务中国用户，将调整目前战略，专注于提供「连接职业机会」的价值。](https://www.thestandnews.com/international/合規要求越來越高-linkedin-終止中國服務)
+
+[在微博，网民普遍对决定感到可惜，认为 LinkedIn 真正优势在于职业交友，而非求职。不过亦有网民表示﹕「一个连所在国法律都不尊重和遵守的企业，还诉什么苦？」尽管有网民反驳，「LinkedIn 作为一个严肃的职场社交软件，遵守全世界 190 个国家的法律法规并营运 10 多年，怎么就到你这里遵守不了了？」](https://www.thestandnews.com/international/合規要求越來越高-linkedin-終止中國服務)
+
+[LinkedIn 在 2014 年进入中共国市场，有超过 5,000 万各国内用户，是美国公司获准在中共国营运的唯一主要社交平台。](https://www.thestandnews.com/international/合規要求越來越高-linkedin-終止中國服務)
+
+[LinkedIn 在网志指，将在今年底在中共国开设求职程式 InJobs，惟后者没有 LinkedIn 的内容发布和帖文分享功能。](https://www.thestandnews.com/international/合規要求越來越高-linkedin-終止中國服務)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-15-at-10.25.00-AM.png)
+**7. ****银公：若港股通允以人民币计价****将扩本港人民币资金池**
+
+[据【香港电台】10月15日讯，银行公会举行例会。银公指，欢迎行政长官上周公布《施政报告》提到多项巩固香港国际金融中心的措施，指出若日后「港股通」容许以人民币计价，相信能够扩大本港人民币资金池，让投资者有多一个选择，而银公相关小组近日举办工作坊，就互联互通、提升香港离岸人民币中心地位，以及境外人民币流动性方面，与业界交流，并讨论如何透过粤港澳大湾区，进一步推动人民币国际化。](https://news.rthk.hk/rthk/ch/component/k2/1615382-20211015.htm)
+
+[公会指，《施政报告》提到政府将与内地积极研究建立一站式沙盒联网。银行公会相信，措施有助鼓励银行业界与科技公司合作，携手推动金融创新。](https://news.rthk.hk/rthk/ch/component/k2/1615382-20211015.htm)
+
+[另外，公会提到，支持以循序渐进的方式引入应用程式介面（开放API）。](https://news.rthk.hk/rthk/ch/component/k2/1615382-20211015.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-15-at-10.25.10-AM.png)
+**8. ****财汇局就恒大去年及今年上半年财务报表展开调查**
+
+[据【香港电台】10月15日讯，财务汇报局表示，今日就中国恒大有关持续经营的汇报展开调查，涉及恒大去年度及今年上半年度的财务报表，并对罗兵咸永道会计师事务所就恒大去年度帐目进行的审计展开调查。](https://news.rthk.hk/rthk/ch/component/k2/1615378-20211015.htm)
+
+[财汇局指，透过监察市场活动，在恒大去年度帐目、今年上半年度帐目，及罗兵咸永道去年度审计的核数师报告中，发现中国恒大在有关持续经营汇报的充分性方面存在问题。](https://news.rthk.hk/rthk/ch/component/k2/1615378-20211015.htm)
+
+[财汇局又指，接获一宗与恒大去年度帐目，及去年度审计相关事项的公众投诉。](https://news.rthk.hk/rthk/ch/component/k2/1615378-20211015.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-15-at-10.25.21-AM.png)
+**9. ****许正宇：积极研究提升本港发行和交易人民币证券需求**
+
+[据【香港电台】10月15日讯，财经事务及库务局局长许正宇在一个有关香港离岸人民币中心的论坛致辞时提到，新一份施政报告公布本港进一步强化离岸人民币业务重要方向，会积极研究提升本港离岸市场，发行和交易人民币证券需求。他表示，深圳市政府本周在港发行50亿元离岸人民币债券，是首次有内地市政府在境外发债，当中包括绿色债劵。他认为是丰富了本港市场的人民币金融产品，扩大及深化本港人民币债券市场。就深圳市政府在港发债所支付的利息和获利，特区政府计划豁免征收利得税。](https://news.rthk.hk/rthk/ch/component/k2/1615345-20211015.htm)
+
+[许正宇说，值得认真研究容许港股通股票交易以人民币计价，包括有关措施的技术可行性，同时与内地开展商讨。他认为做法可以减低内地投资者交易时，将人民币兑换成港币的汇兑风险，提升交易价格的确定性，同时增加香港离岸人民币计价证劵产品的规模和流动性。](https://news.rthk.hk/rthk/ch/component/k2/1615345-20211015.htm)
+
+[另外，被问到有报道指，内地与特区当局最快下周公布首批获准推出跨境理财通南、北向通业务的银行名单。许正宇未有回应。](https://news.rthk.hk/rthk/ch/component/k2/1615345-20211015.htm)
+
+【以上观点仅代表笔者本人 并不代表GNEWS立场】
+
+校对 / 封面合成：文粤 / 发布：流光飞舞
