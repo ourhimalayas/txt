@@ -2,16 +2,20 @@
 ---
 
 
-## 日本，第三次疫苗接种
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596227/)
+## 促生育！中共全面清理涉计划生育法规
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596241/)
 
-#### 撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/132.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.rcinet.ca%2Fzh%2Fwp-content%2Fuploads%2Fsites%2F6%2F2021%2F04%2Fdddd-10-635x357.png&amp;imgrefurl=https%3A%2F%2Fwww.rcinet.ca%2Fzh%2F2021%2F04%2F17%2F%25E7%25BE%258E%25E5%259B%25BD%25E5%259C%25A8%25E8%2580%2583%25E8%2599%2591%25E4%25B8%2580%25E5%25B9%25B4%25E5%2586%2585%25E6%25B3%25A8%25E5%25B0%2584%25E7%25AC%25AC%25E4%25B8%2589%25E9%2592%2588%25E6%2596%25B0%25E5%2586%25A0%25E7%2596%25AB%25E8%258B%2597%25E7%259A%2584%25E9%2597%25AE%25E9%25A2%2598%2F&amp;tbnid=FBWoPrs3bQFrHM&amp;vet=12ahUKEwi0hvOqyMzzAhUOqHIEHcerD7QQMygDegUIARCBAQ..i&amp;docid=j0DEK1VvtXyqeM&amp;w=635&amp;h=357&amp;itg=1&amp;q=%E7%AC%AC%E4%B8%89%E9%92%88&amp;ved=2ahUKEwi0hvOqyMzzAhUOqHIEHcerD7QQMygDegUIARCBAQ)
-日本广播协会10月15日报道，负责推进疫苗接种的大臣堀内诏子，在上午的新闻发布会上表示，我们将与地方政府和医务人员密切合作，在11月的初期将确认疫苗的状况，并整理出具体的疫苗接种体制等等，最快在12月份能开始接种第三针疫苗。
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/erw.jpg)[图片来源](https://read01.com/xm60dA5.html#.YWmJRxpBw2w)
+据“澎湃新闻”报道，目前中共全国人大常委会正在开展涉及计划生育法规规章、规范性文件的专项清理工作。
 
-岸田文雄首相12日在参议院议员全员会议上宣布，关于第三次疫苗接种，最早将于12月开始。日本境内第三针疫苗接种将逐渐落实。
+据悉，此次专项清理工作，主要依据中共新修订的《中华人民共和国人口与计划生育法》，重点围绕三孩生育政策、取消社会抚养费、废止相关处罚、处分规定以及将入学入户入职等与个人生育情况挂钩的规定，开展涉及计划生育法规规章、规范性文件的专项清理工作。目前，清理工作仍在进行中。
 
-[信息来源](https://www.sankei.com/article/20211015-ZDUNVXQAW5JYDBTT2AOIFVZ7FI/)
+近年来，随着中共经济形势的急转直下，加之“房医学”新三座大山对老百姓的极端压榨，导致中共国生育率不断走低。可以说，中共及其盗国贼治国模式才是老百姓生不起、不愿生的根源，清理法规这种“头疼医头脚疼医脚”的做法，无助于破解人口困局。中共不灭，中国的人口灾难还将持续恶化。
+
+信息来源：
+
+[全国人大常委会：已部署开展涉计生法规规章专项清理工作](https://news.sina.com.cn/c/2021-10-14/doc-iktzqtyu1428500.shtml)
 
 (文章仅代表作者本人观点，与GNEWS无关)
 

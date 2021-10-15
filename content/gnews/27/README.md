@@ -2,20 +2,33 @@
 ---
 
 
-## 疫苗接种者，乘坐专属列车，享受定制旅游
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596123/)
+## 针下亡魂｜美国 21 岁医科生接种疫苗1日后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1596153/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-280.png)[示意图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg1.jiemian.com%2F101%2Foriginal%2F20210325%2F161666736868514200_a700xH.png&amp;imgrefurl=https%3A%2F%2Fwww.jiemian.com%2Farticle%2F5862147.html&amp;tbnid=X7vQS3gGPwvJ_M&amp;vet=12ahUKEwiRtP-lv8zzAhUagXIEHeE9CqkQMygAegUIARCYAQ..i&amp;docid=cblEZvUvrtlvKM&amp;w=700&amp;h=525&amp;itg=1&amp;q=%E4%B8%93%E5%88%97&amp;ved=2ahUKEwiRtP-lv8zzAhUagXIEHeE9CqkQMygAegUIARCYAQ)
-读卖新闻报道，JR东日本公司15日宣布，将从明年年初，开始运营新型冠状病毒疫苗接种完成者专用的新干线，将临时列车座位出售给旅行社，旅行社将组织仅限接种者参加的旅游。运行数量等详细规划今后将完善。
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 15/10/2021**
 
-参加该旅游活动者，必须出示两次接种证明，如果因为疾病等无法接种疫苗者，PCR检查结果为阴性或许有机会参加。从15日开始，子公司的旅行社开始推出只针对疫苗接种完成者地旅游活动。整个集团旗下地如酒店、电车等服务也将提供疫苗接种者折扣及礼品。
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
 
-近期，日本中共病毒新增感染人数急剧下降，社会各界迫不及待恢复生产活动，并通过各种优惠活动及特定服务，呼吁接种新冠疫苗，然而日本官方也并不能肯定感染人数急剧下降具体原因，并预估第6波感染还会再来。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/28-1.jpg)
 
-信息来源：[ワクチン接種者専用の新幹線、来年から運行…ツアーにＰＣＲ検査陰性でも参加可能](https://www.yomiuri.co.jp/economy/20211015-OYT1T50161/)
+【美国】俄亥俄州一名 21 岁男性 John Francis Foley 在接种完强生 COVID-19 疫苗的 24 小时后死亡。
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+John 是当地辛辛那提大学国家荣誉学会医学预科生，成绩相当优秀，但由于该学校早前曾经强制所有学生接种疫苗，John 于 4 月 10 日接受了第一针疫苗。
+
+当晚，他在自己的 Facebook 上写下了人生的最后一篇贴文，“身体感到十分不适，希望早点休息，明天醒来，一切会有好转”，可惜，他再也没醒过来。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Mary-Beth-Foley.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Jennifer-Snyder-Benedict.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Lisa-Foley.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Foley-family-statement-1170x525-1.png)
+
+
+维权律师 Mark R. Weaver 代表 John 的家人发表声明：
+
+尽管 John 在接种疫苗之后的 24 小时就去世了，但官方公布的死因甚至都未提到接种疫苗这件事，仅用一个没有人听说过的花哨医学术语作为一名健康的 21 岁大学生的死因，他原本有 99.997% 的机会在没有接种疫苗的情况下幸免于 COVID-19。
+
+来源｜ [个案028](https://www.wbrc.com/2021/04/16/university-cincinnati-students-death-after-jj-vaccine-under-investigation/)
+
+* * *
+
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//
