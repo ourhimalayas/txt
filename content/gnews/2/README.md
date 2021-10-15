@@ -2,42 +2,37 @@
 ---
 
 
-## 随着能源危机加剧和工厂停工，中共国接纳澳洲的煤炭
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1596036/)
+## 美国重返联合国人权理事会 或与中共正面对决
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596082/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GettyImages-1231937500-e1634097009429.jpg)图片来源：fortune.com
-#### 编译：小红帽
+作者：修文
 
-在面临停电和工厂停工的情况下，能源匮乏的中共国对澳大利亚煤炭的禁令已被非正式地取消。这是一种耻辱性的损失。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-Braemar ACM船舶经纪公司的货运分析师尼克·里斯蒂奇（Nick Ristic）表示，在中共国港口外等候的少数澳大利亚货物获准靠泊和卸货。
 
-里斯蒂奇先生告诉《纽约数字新闻》（New York Digital News），他认为有45万吨煤炭被卸下。
 
-其他分析师引用了较低的数字，但所有人都同意，中共国关于惩罚澳大利亚的强硬言论未能经受住即将到来的第一个冬天的寒流和相关经济影响。
+联合国人权理事会10月14日选举部分新成员，三年前由川普政府宣布退出的美国就此重返。随着中共在人权理事会中掀起的反人权趋势扩大，美国的回归势将与中共形成强烈对抗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1015AM（1-5）視頻備用.004.jpeg)
+中国去年第五度当选联合国人权理事会成员，并趁美国退出期间，在人权理事会上下其手，影响已不容小觑。在美国缺席期间，一些发展中国家已向中方靠拢，今年的十八个候选国中多达十一国是“一带一路”合作国。中共近年来还频与人权纪录欠佳的白俄罗斯与委内瑞拉等国联手，为中共当局镇压香港、新疆与西藏的暴行来辩护，并反指西方国家“违反人权”。
 
-随着寒冷天气席卷中共国大部分地区，发电厂争相囤积煤炭，燃料价格创历史新高，中共国的能源危机已经加深。
+有外交官指出，中共国与某些国家，在人权理事会已经变得越来越强大，而它们从根本上反对欧洲人所理解的人权。中共致力于摧毁人权概念的普世性，并主张符合其独裁政治体系的意识形态。
 
-由于季节性天气模式带来从中共国北方吹来的寒风，预计家庭和办公室的供暖电力需求将猛增。
+随着美国的回归，理事会被中共政治强权所把握的趋势将会改变，联合国人权理事会或将成为中美较量的又一战场。
+(本文仅代表作者观点)
 
-预报员预测，在接下来的2-3天内，一些中部和东部地区的平均气温可能会下降多达16摄氏度。
+参考链接：[重返UN人權理事會 美與北京正面交鋒](https://news.ltn.com.tw/news/world/paper/1478689)
 
-煤炭短缺、燃料价格高企和大流行后工业需求的蓬勃发展，引发了这个世界第二大经济体的普遍电力短缺。
 
-自9月以来，中共国30多个地区中至少17个地区已经实施电力配给，迫使一些工厂停产，扰乱了供应链。
 
-吉林、黑龙江和辽宁这三个东北省份是上个月受电力短缺的重灾区，包括内蒙古和甘肃在内的华北几个地区已经开始以煤炭为燃料的冬季供暖，以应对比正常天气更冷的的情况。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+新闻访谈终审：FoxRina
+编辑/校正/发稿：我不在这里
 
-**参考新闻：**[China admits Australian coal as energy crisis grows (thenewdaily.com.au)](https://thenewdaily.com.au/news/world/asia-news/2021/10/15/china-unloads-australian-coal/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

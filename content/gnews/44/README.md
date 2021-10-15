@@ -2,14 +2,18 @@
 ---
 
 
-## 不堪网络审查 微软将关闭中共国领英网站
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1595370/)
+## 普京：接受加密货币支付方式
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1595397/)
 
 #### 翻译：沙子最怕你不理它
 校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-45.jpg)图片来源：网络截图
-据CNBC 10月14日报道，微软周四宣布，由于中共国继续扩大对互联网的审查，领英（Linkedin）中共国网站即将关闭。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-73.jpg)图片来源：网络截图
+据彭博社10月14日报道，由于担心加密货币可用于洗钱和犯罪活动，加密货币正受到世界各地监管机构越来越多的审查。但普京表示并不排斥加密货币。
 
-领英于2014年在中国推出，为了尊守中共国严格的互联网法律，只取用一些有限的功能。中共国是领英的第三大市场。中国互联网监管机构在3月份给予领英30天的期限要求整改网站内容。 上个月，领英以个人资料中的“禁止内容”为由，屏蔽了几名美国驻华记者的账号。近几个月来，学者和研究人员们的个人资料页被该网站屏蔽了。名为InJobs的新网站将不包含社交推送以及用户共享帖子或文章。
+普京周四在CNBC采访中表示，加密货币“有权存在，并可以用作支付手段”，但现在谈论使用数字货币交易占俄罗斯出口大部分的石油和其他商品还为时过早。
 
-新闻来源：[Microsoft to shut down LinkedIn website in China as internet censorship increases in the country](https://www.cnbc.com/2021/10/14/microsoft-to-shut-down-linkedin-in-china.html)
+自2014年吞并克里米亚后受到制裁以来，俄罗斯一直在寻找替代美元交易的方案，普京指责美国将其货币用作武器。加密支持者认为，去中心化货币最终将取代央行发行的法定货币。俄罗斯银行不允许在国内使用数字货币作为付款方式。然而，财政部副部长阿列克谢•莫伊谢耶夫(Alexei Moiseev)本周表示，没有像中共国类似的全面禁令计划。
+
+普京接受加密货币之际，白宫正在考虑启动一项广泛的倡议，审查和协调拜登政府中的加密政策，这个行动可能会导致出台对加密货币的新法规。中共国今年打击了该行业，并于9月禁止了所有的加密货币交易。
+
+新闻来源：[Putin Says He Accepts Crypto’s Role in Making Payments](https://www.bloomberg.com/news/articles/2021-10-14/putin-defends-cryptocurrencies-amid-global-regulation-push)

@@ -2,16 +2,38 @@
 ---
 
 
-## 台湾中共病毒死亡率与疫苗接种率同步走高
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1595371/)
+## 七国集团财政领导人为央行数字货币制定准则
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1595484/)
 
-#### 翻译：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-46.jpg)图片来源：DW
-零对冲网10月14日报道，台湾从2020年2月发现第一例中共病毒感染病例到现在，只有16313例感染，846例死亡，尽管抗疫很成功，但它还是注册了世卫组织领导的疫苗交换计划，并于2021年3月开始注射疫苗，当时台湾因染上中共病毒而死亡的病例还不到12例。
+作者：香草山金融部 – 闲聊钱币
 
-846例死亡中有836例是发生在开始注射疫苗项目以后，这更让人担心台湾疫苗注射的安全性和有效性，台湾中央流行病指挥中心（CECC）已经展示了有850例死于疫苗所致，死亡总数超过了病毒本身所致死亡。尽管注射疫苗的人数不断增加，但是九月之前7天平均病例数一直没有降至10例以下，而且一直无法达到疫苗注射前的低病例数。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
-在850例疫苗引起死亡病例中，643例注射了AZ疫苗，183例注射了莫德纳疫苗，只有22例注射了台湾国产高端疫苗，尽管记录显示注射后副作用，但台湾官员在向CECC报告时称死亡并不一定是疫苗所致。在过去几周内，台湾因中共病毒死亡7天平均数徘徊在0-1之间，而疫苗引起的死亡数将在一定时间内继续超过病毒死亡数。
 
-新闻来源： [Deaths Following Vaccination Reported in Taiwan Exceed Nation’s COVID Death Total](https://www.zerohedge.com/news/2021-10-14/deaths-following-vaccination-reported-taiwan-exceed-nations-covid-deaths)
+
+10月13日（路透社）–世界上最先进的七个经济体（G7）周三表示，中央银行发行的任何数字货币必须支持并不损害本国银行系统履行其货币授权和金融稳定的能力，而且还必须符合极度严格的标准。
+
+在周三的会议后七国集团还表示，如果发行央行数字货币（CBDC），它将有三个特点，对现金的补充，可以作为一种安全的流动资产，和对支付系统的完善。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture5-2.jpg)
+这些数字货币（CBDC）的发行方式必须不能侵犯中央银行对货币的授权同时符合严格的隐私、透明度和保护用户数据的标准。
+
+在跨境支付方面，七国集团表示，虽然数字货币会提高便利性，但是他们有 共同的责任尽量减少有害的国际间的货币金融体系的流动。
+
+中共国在发行数字货币方面一直快马加鞭，企图起主导地位，当大哥。而七国集团一直在尝试制定发行CBDC的共同标准。因此，中共国的数字货币只能在墙国内自己玩儿玩儿，世界上的发达国家不会认同并参与其中。
+
+（本文仅代表作者观点）
+
+参考来源：[https://www.reuters.com/business/finance/g7-statement-cbank-digital-currencies-must-do-no-harm-cbank-mandates-2021-10-14/](https://www.reuters.com/business/finance/g7-statement-cbank-digital-currencies-must-do-no-harm-cbank-mandates-2021-10-14/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)

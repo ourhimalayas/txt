@@ -2,38 +2,25 @@
 ---
 
 
-## 七国集团财政领导人为央行数字货币制定准则
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1595484/)
+## 中共国是美国第一威胁 陆军年会展示最新武器装备
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1595675/)
 
-作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/10/E2F06C9B-EEB2-4DDC-9297-91322B352E8A_w1080_h608_s_b.jpg) 中共国是美国第一威胁 陆军年会展示最新武器装备 网络图片
+据美国之音10月14日报道，美军进入将中共国作为重点防务目标的战略新时期。美国陆军部长克里斯汀·沃穆思10月11日在美国陆军协会年会上表示，随着美国中东反恐作战告一段落，美军的全球防务战略重点将瞄向中共国带来的挑战。中共国被视为是美国的第一威胁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+年会上展示了美国最新的军事装备。百年历史的波音公司能够满足六个现代化优先事项的四个方面：远程精准火力、未来垂直升降系统、航空和导弹防御以及网络技术。另外两项优先要务是新一代战车和士兵杀伤力系统。
+
+波士顿动力公司凭借四足机器人“Spot”成为展会焦点。目前投入使用的Spot机器人超过500多部，用于工商业各种场所。机器人是国际竞争激烈的技术领域，早期产品“四足机械狗”的研发就是在美国国防部国防高等研究计划局（DARPA）的资助下进行的。邪恶中共未来定会面对国际社会先进的军事力量打击。
+
+新闻参考链接：[https://www.voachinese.com/a/us-army-weapons-show-20211013/6270103.html](https://www.voachinese.com/a/us-army-weapons-show-20211013/6270103.html)
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-10月13日（路透社）–世界上最先进的七个经济体（G7）周三表示，中央银行发行的任何数字货币必须支持并不损害本国银行系统履行其货币授权和金融稳定的能力，而且还必须符合极度严格的标准。
-
-在周三的会议后七国集团还表示，如果发行央行数字货币（CBDC），它将有三个特点，对现金的补充，可以作为一种安全的流动资产，和对支付系统的完善。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture5-2.jpg)
-这些数字货币（CBDC）的发行方式必须不能侵犯中央银行对货币的授权同时符合严格的隐私、透明度和保护用户数据的标准。
-
-在跨境支付方面，七国集团表示，虽然数字货币会提高便利性，但是他们有 共同的责任尽量减少有害的国际间的货币金融体系的流动。
-
-中共国在发行数字货币方面一直快马加鞭，企图起主导地位，当大哥。而七国集团一直在尝试制定发行CBDC的共同标准。因此，中共国的数字货币只能在墙国内自己玩儿玩儿，世界上的发达国家不会认同并参与其中。
-
-（本文仅代表作者观点）
-
-参考来源：[https://www.reuters.com/business/finance/g7-statement-cbank-digital-currencies-must-do-no-harm-cbank-mandates-2021-10-14/](https://www.reuters.com/business/finance/g7-statement-cbank-digital-currencies-must-do-no-harm-cbank-mandates-2021-10-14/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

@@ -2,59 +2,56 @@
 ---
 
 
-## 一组抵抗疫苗强制简讯
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1595581/)
+## 护士吹哨：医院从未不堪重负
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1595724/)
 
-作者：文一
-
-
+- 编译：Jenny Ball
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-22.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
+据报道，一名前护士由于 COVID-19 疫苗要求的宗教豁免被拒绝而被解雇，他对那些歇斯底里的说法提出了相当严厉的指责，即 ICU 床位因所有未接种疫苗的病人而满负荷运转。
 
+在接受《生活新闻》[LifeSiteNews](https://www.lifesitenews.com/news/exclusive-nurse-fired-for-refusing-covid-jab-reveals-truth/)采访时，曾在弗吉尼亚州温彻斯特（Valley Health）担任急诊室护士的布拉德·麦克道威尔（ Brad McDowell） 解释说，“满负荷”状态与未接种疫苗的患者关系不大，而更多是由于未接种疫苗的工作人员[抗拒](https://www.westernjournal.com/alabama-hospital-defies-biden-administration-ends-covid-vaccine-requirement-staff/?ff_source=Email&amp;ff_medium=conservative-brief-CT&amp;ff_campaign=dailyam&amp;ff_content=conservative-tribune)医院、州和联邦的命令。
 
+“他们无法开放是因为他们没有护士和技术人员，”他在周末发布的视频采访中解释说，采访者吉姆·黑尔问到，[医疗保健人员的短缺](https://www.westernjournal.com/new-york-health-care-workers-get-massive-win-court-covid-vaccine-mandate/?ff_source=Email&amp;ff_medium=conservative-brief-CT&amp;ff_campaign=dailyam&amp;ff_content=conservative-tribune) 是否由大流行引起的，但实际上是许多卫生保健专业人员拒绝遵守严格的疫苗规定的结果。
 
+“我可以告诉你，[Valley Health]没有开放所有床位，我确实知道这一点，”麦克道尔在谈到他以前的工作地点时说道。
 
+他解释说：“有些床位关着，他们说是……满员了，但这不是因为床位不够。”
 
+“这不是因为病人过多，这是因为劳动力不够，”他说。
 
+**换句话说，未接种疫苗的患者并没有让医院不堪重负； 医院解雇了许多拒绝遵守疫苗规定的工人，结果现在人手不足。**
 
-一、曾将疫苗强制与纳粹德国相提并论的芝加哥警察工会主席卡坦扎拉呼吁警员们反抗该市强制接种疫苗政策。 芝加哥要求政府雇员在周五之前提交疫苗接种记录，否则将面临每半周的检测。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-8.jpg)
-二、加州两大学区——洛杉矶和圣地亚哥学校系统因强制疫苗接种政策被指控歧视和剥夺未接种疫苗儿童接受公共教育的平等权利。 两个学区都早于州政府要求学生接种疫苗并实施比州政府还要严格的标准，接种要求扩展到 12 至 15 岁的人群，并不准宗教豁免。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-3.jpg)
-三、阿肯色州州长哈钦森在雇员可以选择不参加拜登总统的疫苗强制政策上，不赞成也不表示反对，称 “将允许该政策在没有我签字的情况下成为法律。” 在阿肯色州，如果州长没有在五天内否决，法案就会成为法律。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.3-2.jpg)
-四、一名加州法官部分阻止了一项本周生效的命令，该命令要求州监狱雇员接种中共病毒疫苗。 加州克恩县的一名法官发布了一项临时限制令，阻止州监狱雇员接受接种中共病毒疫苗。 该疫苗强制令定于周五生效，适用于所有拥有医疗保健设施的监狱员工。 加州惩教人员协会表示反对该疫苗政策。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.4.jpg)
-以法灭苗的火焰在美已成燎原之势，人们开始展开以法律做武器捍卫自己最基本的权利-生存权。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-72.jpg)
-参考链接：
-1. [Chicago police union chief who once compared vaccine mandates to Nazi Germany tells officers to defy the city’s requirement](https://news.yahoo.com/chicago-police-union-chief-once-131136323.html)
-2. [U.S. pastors, advocacy groups mobilize against COVID-19 vaccine mandates](https://www.reuters.com/world/us/us-pastors-advocacy-groups-mobilize-against-covid-19-vaccine-mandates-2021-10-14/)
-3. [L.A., San Diego school districts are sued over student vaccination mandate](http://L.A.,%20San%20Diego%20school%20districts%20are%20sued%20over%20student%20vaccination%20mandate)
-4. [Arkansas governor allows vaccine mandate opt-out bills to become law](https://www.upi.com/Top_News/US/2021/10/14/Arkansas-vaccine-mandate-opt-out/1551634198205/)
-5. [The Latest: Vaccine mandate for Calif. prison guards blocked](https://www.sfgate.com/news/article/The-Latest-US-to-drop-19-month-ban-on-16529088.php#photo-21578615)
+当您考虑到在整个大流行期间，医护人员不仅对 COVID-19 病毒最为熟悉，而且他们最有可能大声疾呼疫苗。
 
-（本文仅代表作者观点）
+首先，与消防员、EMT 和警察等一线工作人员的情况一样，大多数护士和医生都曾接触过冠状病毒，许多人都感染并幸存下来。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+尽管这对制造和强制接种疫苗的人来说非常不方便，但事实仍然是，有充分的证据表明，**天然免疫至少可以像疫苗本身一样抵御病毒**。
 
-新闻访谈终审：鬼五
-编辑/校对/发稿：为真不破20
+“你仔细想想就知道，是那些政治精英、媒体精英、疾控中心最高级别的人、制药业，他们在运行，他们在掌控着整个故事话语权，”麦克道尔解释说。
 
-**更多资讯，更多关注**
+“**他们是推动疫苗的人，他们是从每个接种疫苗人身上受益最大的人**，”他说。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+与此同时，医院的病人和辛勤工作的前线工作人员因这些命令而受害。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+一年前，护士和医生是这场大流行的著名英雄——现在他们因拒绝接种疫苗而被过河拆桥。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+在大流行开始时，他们被视为全人类的救世主。他们的困境，经常被用来说服我们其他人闭嘴，排队，无视对我们公民自由前所未有的侵犯和关注。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+突然之间，既然如此多的人对这种疫苗产生了怀疑，并且愿意并准备好与 COVID-19 患者一起工作，而无需自己接种疫苗，他们突然就没有影响力了吗？
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+卫生保健系统、各州和拜登政府的广泛任务，正在造成卫生保健工作者短缺，而他们继续告诉我们，这是一种可怕的致命流行病，而这种流行病是由那些拒绝接种疫苗的人造成的。 然而，显然，根据麦克道尔的说法，**情况远非如此**。**我们还要忍受这种人为制造的流行病多久**——**在这个过程中，我们国家重要的医疗保健基础设施将受到多大的破坏？**
 
+（文章仅代表作者观点，与GNEWS无关）
 
+**素材来源：**[www.westernjournal.com](https://www.westernjournal.com/nurse-whistleblower-debunks-leftist-lie-hospitals-beds-unvaccinated-patients/?utm_source=Email&amp;utm_medium=conservative-brief-CT&amp;utm_campaign=dailyam&amp;utm_content=conservative-tribune&amp;ats_es=%5B-MD5-%5D)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)

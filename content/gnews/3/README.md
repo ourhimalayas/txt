@@ -2,31 +2,27 @@
 ---
 
 
-## 台防长称若遭中共侵略国军将应战
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596028/)
+## 中共管制趋严 领英Linkedin退出中共国
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596066/)
 
-作者：在远方
+作者：云豹
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-台湾防长邱国正14日表示，面对中共不断升级的武力挑衅，国军谨守不发动”第一击”的原则，不给中共出兵借口。但国军会对中共更多兵力集结等后续动作进行及时掌握研判，一旦共军有实际犯台战争行为，国军将会奋起应战。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1015AM（1-5）視頻備用.001.jpeg)
-去年8月台湾前总统马英九称，如果大陆攻台，其战略将是“首战即终战”，这一言论引发岛内巨大争议。民调显示，大多数台湾人反对马英九的这种说法。蔡英文政府发言人第一时间驳斥了马英九的言论，称马英九不应与北京一起威胁打压台湾。
+知名职场社交平台领英在14日宣布，由于中共的监管要求越趋严格，该公司将关闭在中共国的服务网站。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1015AM（1-5）視頻備用.003.jpeg)
+领英发表声明时仅含蓄表示，该决定是由于大陆营运环境已更具挑战性，而中方当局要求遵守的规定也更多。 据熟悉内情人士透露，中共的网路监管机构曾告诉领英的负责人，必须加强规范网页的内容，并限令30天做到。 近日有许多积极关注中国人权情势的活跃人士、学者、和记者，他们在领英平台上的个人档案已遭中共封锁。
 
-郭文贵先生爆料目前中共已经跟美国完成勾兑，拜登政府为了保障国内经济稳定和中期选举，决定背弃和出卖2300万台湾人民的利益，台湾随时面临灭顶之灾。台湾防长的声明代表了大多数台湾人的心声，自救者天救。当面对中共的武力侵犯时，台湾只有奋起反击，才有可能换来一线生机。
+在领英宣布退出中国后，最后一个可在中国大陆公开连线的美国社群网站也将走入历史。
 (本文仅代表作者观点)
 
-参考链接：
-
-1. [台湾防长强调绝不启动战端 但遭遇侵略将应战](https://www.voachinese.com/a/Taiwan-will-not-start-a-war-with-China-defense-minister-says-20211014/6270618.html)
-2. [中共对台“首战即终战”？ 五成八台湾人不认同](https://www.rfa.org/mandarin/yataibaodao/gangtai/hx1-08242020091817.html)
-
+参考链接：[中共當局監管趨嚴 領英將關閉中國網站](https://www.cna.com.tw/news/firstnews/202110140401.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-新闻访谈终审：文龙
+新闻访谈终审：FoxRina
 编辑/校正/发稿：我不在这里
 
 **更多资讯，更多关注**
@@ -35,5 +31,4 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
