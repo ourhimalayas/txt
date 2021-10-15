@@ -2,38 +2,50 @@
 ---
 
 
-## 七国集团财政领导人为央行数字货币制定准则
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1595484/)
+## 澳大利亚正在建造安置“未接种疫苗者”的隔离营
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1595561/)
 
-作者：香草山金融部 – 闲聊钱币
+#### 正在建造的设施是为安置那些“没有接种疫苗的人”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/121021camp1-1.jpg)视频截图-网络图片
+
+尽管一些州暂时开始解除封锁限制，但澳大利亚当局正在建造隔离营，这些营地要到明年才能完工，以便为“正在进行的行动”做准备，并为那些“没有接种疫苗”的人提供住所。
+
+据澳大利亚广播公司报道，位于图文巴郊外威尔康普机场的一个拥有1,000个床位的隔离设施，将于2022年3月底全面完工。
+
+报告称：“现阶段，这些小屋将供从COVID热点地区返回的国内旅客使用。”
+
+然而，报告也明确表示，该营地将用于“正在进行的行动”，并将成为当地的就业来源。
+
+营地被分为不同的区域，分别为单人房、双人房和家庭房，同时由警察和保安人员24小时全天候巡逻。
+
+昆士兰州副州长史蒂文·迈尔斯(Steven Miles)对媒体表示，由于出现了新的COVID毒株和“没有接种疫苗的人”，“我们预计对隔离设施的需求将继续存在。”
+
+政府将从瓦格纳公司那里租用建造营地的土地12个月，之后可以选择再租用12个月。
+
+另一个拥有1,000个床位的检疫设施，也在布里斯班机场附近的平肯巴工业区，一个占地30公顷的陆军营房的用地上建造。
+
+正如我们之前强调的那样，美国各州当局也在为“无法在家中隔离”的美国人建造新的“隔离设施”。
+
+正如我们去年报道的那样，加拿大魁北克市当局宣布，他们将把“不合作”的公民隔离在一个隔离冠状病毒的场所中，该场所的位置仍然是一个秘密。
+
+新西兰还宣布了将COVID感染者及其家人安置在“隔离设施”中的计划。
+
+早在今年1月，德国当局还宣布，他们将在位于德累斯顿的所谓“拘留营”中，关押屡次未能正确遵守规则的COVID持不同政见者。
+
+**简评：**澳大利亚这些民主国家，在冠状病毒疫苗的问题上对未接种疫苗的人集中隔离，其手段与CCP极其相似，统治者不对病毒追责，但对疫苗有着极大的兴趣，让人怀疑其真正的目的。
+
+新闻链接：[Australia Building Quarantine Camps For “Ongoing Operations”](https://summit.news/2021/10/12/australia-building-quarantine-camps-for-ongoing-operations/)
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-10月13日（路透社）–世界上最先进的七个经济体（G7）周三表示，中央银行发行的任何数字货币必须支持并不损害本国银行系统履行其货币授权和金融稳定的能力，而且还必须符合极度严格的标准。
-
-在周三的会议后七国集团还表示，如果发行央行数字货币（CBDC），它将有三个特点，对现金的补充，可以作为一种安全的流动资产，和对支付系统的完善。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture5-2.jpg)
-这些数字货币（CBDC）的发行方式必须不能侵犯中央银行对货币的授权同时符合严格的隐私、透明度和保护用户数据的标准。
-
-在跨境支付方面，七国集团表示，虽然数字货币会提高便利性，但是他们有 共同的责任尽量减少有害的国际间的货币金融体系的流动。
-
-中共国在发行数字货币方面一直快马加鞭，企图起主导地位，当大哥。而七国集团一直在尝试制定发行CBDC的共同标准。因此，中共国的数字货币只能在墙国内自己玩儿玩儿，世界上的发达国家不会认同并参与其中。
-
-（本文仅代表作者观点）
-
-参考来源：[https://www.reuters.com/business/finance/g7-statement-cbank-digital-currencies-must-do-no-harm-cbank-mandates-2021-10-14/](https://www.reuters.com/business/finance/g7-statement-cbank-digital-currencies-must-do-no-harm-cbank-mandates-2021-10-14/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

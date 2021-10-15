@@ -2,14 +2,24 @@
 ---
 
 
-## 不堪网络审查 微软将关闭中共国领英网站
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1595370/)
+## 美国NBA全明星球员因拒绝接种中共病毒疫苗被暂停比赛
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1595491/)
 
-#### 翻译：沙子最怕你不理它
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-45.jpg)图片来源：网络截图
-据CNBC 10月14日报道，微软周四宣布，由于中共国继续扩大对互联网的审查，领英（Linkedin）中共国网站即将关闭。
+新闻采编：风云小哥    编译撰稿：苦尽甜来 (文来)
 
-领英于2014年在中国推出，为了尊守中共国严格的互联网法律，只取用一些有限的功能。中共国是领英的第三大市场。中国互联网监管机构在3月份给予领英30天的期限要求整改网站内容。 上个月，领英以个人资料中的“禁止内容”为由，屏蔽了几名美国驻华记者的账号。近几个月来，学者和研究人员们的个人资料页被该网站屏蔽了。名为InJobs的新网站将不包含社交推送以及用户共享帖子或文章。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/aa.png)图片来源：REBELNEWS
 
-新闻来源：[Microsoft to shut down LinkedIn website in China as internet censorship increases in the country](https://www.cnbc.com/2021/10/14/microsoft-to-shut-down-linkedin-in-china.html)
+
+据加拿大知名自媒体【叛逆者新闻】10月12日报道，美国职业篮球联赛（NBA）七次全明星球员凯里.欧文因拒绝接种新冠病毒疫苗，而被布鲁克林篮网队暂停参加即将到来的 NBA 赛季。
+
+篮网队在其当天的意外公告中宣布：这位 29 岁的全明星球员在接种新冠病毒疫苗之前将不得参加任何NBA的比赛或训练。因为根据纽约市政的规定，每位NBA球员都必须提供该疫苗接种证明才有资格进入城区范围内的室内体育馆。
+
+欧文是反对纽约市新冠病毒疫苗护照和拒绝接种该疫苗的几名NBA球员之一。对该球星的禁赛发生在篮网队对阵密尔沃基雄鹿队的常规赛开始前的一周。欧文曾七次入选NBA全明星，是球队胜利完成即将到来赛季战略的关键性球员。目前尚不清楚在他缺阵的情况下，篮网队的比赛计划将如何进行。
+
+（以上内容仅代表原文信息和作者个人观点）
+
+* * *
+
+校对，编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://www.rebelnews.com/brooklyn_nets_suspend_all_star_kyrie_irving_for_refusing_covid_vaccine)

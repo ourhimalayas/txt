@@ -2,18 +2,38 @@
 ---
 
 
-## 研究发现超过一半的中共病毒幸存者患有新冠长期症状
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1595369/)
+## 七国集团财政领导人为央行数字货币制定准则
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1595484/)
 
-#### 翻译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-26.jpg)图片来源：网络截图
-据合众国际社10月14日报道，研究人员发现，一半以上的中共病毒幸存者会患有所谓的新冠长期症状，医疗保健系统应该做好准备治疗他们。
+作者：香草山金融部 – 闲聊钱币
 
-到目前为止，全世界有2.36亿人被诊断出感染中共病毒，许多人的身体和精神健康问题挥之不去，长达六个月或更长。中共病毒幸存者健康状况不佳的负担是压倒性的，其中包括精神健康障碍。一个人与中共病毒的战斗并不随着急性感染的恢复而结束，宾夕法尼亚州立大学公园神经工程中心助理研究教授Paddy Ssentongo博士说。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
-研究人员重新审查了57项研究，其中包括2019年12月至2021年3月期间被诊断为中共病毒的25万多名成人和儿童。他们对康复后一个月（短期）、两到五个月（中期）和六个月或更长时间（长期）的患者进行评估。总的来说，50%的人有长期症状，而且从最初患病后一个月到六个月或更长时间内，比率保持相当稳定。
 
-超过一半的人有体重减轻、疲劳、发烧或疼痛，大约五分之一的人行动能力下降，近四分之一的人注意力难以集中，约三分之一的人被诊断出患有广泛性焦虑症。10人中有6人有胸部影像异常，超过四分之一的人有呼吸问题，近五分之一的人有脱发或皮疹。胸痛和心悸是最常见的心脏相关症状，而胃痛、食欲不振、腹泻和呕吐是常见的消化道疾病。
 
-新闻来源：[More than half of COVID-19 survivors in study had ‘long-COVID’](https://www.upi.com/Health_News/2021/10/14/covid19-recovery-long-term-symptoms/7281634244051/)
+10月13日（路透社）–世界上最先进的七个经济体（G7）周三表示，中央银行发行的任何数字货币必须支持并不损害本国银行系统履行其货币授权和金融稳定的能力，而且还必须符合极度严格的标准。
+
+在周三的会议后七国集团还表示，如果发行央行数字货币（CBDC），它将有三个特点，对现金的补充，可以作为一种安全的流动资产，和对支付系统的完善。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture5-2.jpg)
+这些数字货币（CBDC）的发行方式必须不能侵犯中央银行对货币的授权同时符合严格的隐私、透明度和保护用户数据的标准。
+
+在跨境支付方面，七国集团表示，虽然数字货币会提高便利性，但是他们有 共同的责任尽量减少有害的国际间的货币金融体系的流动。
+
+中共国在发行数字货币方面一直快马加鞭，企图起主导地位，当大哥。而七国集团一直在尝试制定发行CBDC的共同标准。因此，中共国的数字货币只能在墙国内自己玩儿玩儿，世界上的发达国家不会认同并参与其中。
+
+（本文仅代表作者观点）
+
+参考来源：[https://www.reuters.com/business/finance/g7-statement-cbank-digital-currencies-must-do-no-harm-cbank-mandates-2021-10-14/](https://www.reuters.com/business/finance/g7-statement-cbank-digital-currencies-must-do-no-harm-cbank-mandates-2021-10-14/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)

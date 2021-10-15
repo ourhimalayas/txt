@@ -2,50 +2,71 @@
 ---
 
 
-## 参议员瑞克·斯科特：要求拜登加入我的呼吁,将 2022 年奥运会从共产主义中国移走
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1594950/)
+## 中美之间必有一战！
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1595112/)
 
-参议员瑞克·斯科特： 在几个月的完全无所作为和沉默之后，今天我再次要求乔·拜登加入我的呼吁，将 2022 年奥运会从 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 移走，并保护美国运动员和美国队的安全和个人信息免受中共国的侵入性监视。 【附斯科特参议员官网声明】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳洲-1.jpg)图片制作：翼族
 
+**整理：**顺其自然
+**编辑**：Candy
 
+在美国时间的10月13日，郭先生与几位嘉宾做了四个小时的直播。在直播中，郭先生主要讲了以下内容：
 
-> After MONTHS of complete inaction & silence, today I again demanded Joe Biden join my call to move the 2022 Olympics out of Communist China & protect the safety & personal information of American athletes & Team USA from China's invasive surveillance. [https://t.co/zClmB4xUyr](https://t.co/zClmB4xUyr)
-> — Rick Scott (@SenRickScott) [October 14, 2021](https://twitter.com/SenRickScott/status/1448778039031181320?ref_src=twsrc%5Etfw)
+1）在中国的欧美律师事务所，都是在北京国贸一期、二期、金融街、上海金茂大厦，在香港金融IFC、二期，然后就是长江，就这一块儿。这三个地方包含了美国、欧洲95%的律师事务所，一年拿走500亿美元的律师收费，包含了整个中国国有企业。那么一年经手的资产是多少钱呢？一年是四万亿到五万亿美元。总共多少律师呢？加在一起也就是说2000个律师左右。这2000个律师，在北京、在上海、在香港，一起吃一起住。他们住的公寓，亮马河公寓，长城公寓，天上人间的老牌儿了，还有就是soho公寓。他们不去任何地方。他们住在一个楼，吃在一个楼，几个餐厅，然后去中国的那个李嘉诚的东方广场，还有长城餐厅。晚上夜总会男的女的鬼混，每个律师事务所都有美女律师和同性恋律师。
 
+律师最大的问题是什么？就是你必须在法庭说，我跟这个当事人，这个公司和他家族没有关系。如果有关系，你必须退出。再有，你跟这个对方的律师有没有认识或熟人，你要有就必须离开。如果你说了谎，你的执照就被取消。但现在他们楼上楼下的住着，吃住在一起，玩在一起，让他们每个人在法官面前说，双方之间的代理没有利益冲突，可能吗？现在他们代理的都是一个老板，中国共产党，他会在美国法官面前说实话吗？
 
-
-参议员瑞克·斯科特： 我很高兴[@LinkedIn](https://twitter.com/LinkedIn)和微软正在努力解决我对于（中共国）对美国人不可接受的审查制度的担忧。 每家美国公司都需要在全球范围内支持言论自由，并反对 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 及其种族灭绝和侵犯人权的行为。这是一个好开始。 【附华尔街日报的新闻：微软说将关闭在中国的LinkedIn网站】
-
-
-
-> I’m glad [@LinkedIn](https://twitter.com/LinkedIn?ref_src=twsrc%5Etfw) & [@Microsoft](https://twitter.com/Microsoft?ref_src=twsrc%5Etfw) are working to address my concerns over the unacceptable censorship of Americans.
-> 
-> Every U.S. company needs to stand for free speech worldwide & take a stand against Communist China & its genocide & human right abuses. This is a good start. [https://t.co/DOQK6PboTh](https://t.co/DOQK6PboTh)
-> — Rick Scott (@SenRickScott) [October 14, 2021](https://twitter.com/SenRickScott/status/1448762596975382533?ref_src=twsrc%5Etfw)
+2）美国的40%的众议员从事过律师，57%的参议员从事过律师。在国外，很多的东西都是走法律的，然后现在共产党就通过与国外律师事务所的合作，把这个领域全部控制起来。很多律师后来又做了法官、检察官、SEC、参议员、众议员。就这样控制了西方的很多要害部门。
 
 
 
-参议员汤姆·科顿： 在艾伦·埃斯特维兹确认他将解决 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 构成的威胁之前，他无权在商务部任职。 【附科顿参议员官网声明】
+3）新东方的俞敏洪破产了。
 
+4）这两天胡舒立出来频繁的讲话，说猪头就是个猪头啊，不合作你就等死，本来可以合作的。中国过去十几年，如果你没有读懂吴征这个小人物干了多大的事儿；你没读懂胡舒立做出了多大的事儿，你根本不懂中国这十年历史。胡舒立跟王岐山，那绝对是那有性偏好的人。胡舒立能把李友给弄到医院去，在床上那不是一般的女人。胡舒立说抓谁就抓谁，爆谁的料谁就被抓。因为胡就是王岐山的人，孟建柱、江家的人。胡舒立骨子里边儿看不起所有江浙以北的任何人。
 
+5）马云已经到了香港。马云到香港告诉胡舒立，他们要出手。现在习近平才查25家国有银行，查投资海外媒体，他来得及吗？习近平身体都不行了。爆料革命到今天已经五、六年了，习才查这25家。所谓国有银行跟马云输送钱，上海银行、兴业银行，还不在范围内，最后才补上。周亮那是王岐山秘书，控制整个人民银行，周小川、郭树清都是人家王岐山的人，马云所有玩儿的游戏都是为一国打造的利器，叫财务利器。胡舒立掌握着全世界的国际话语权，所有现在骂习近平的，全都是胡舒立的朋友，更不要谈《南华早报》了。现在马云在香港开始全面布局，马云与王岐山是一会之友。马云说他做生意不为钱，他是为了权力，为了垄断。
 
-> Until Alan Estevez confirms that he will address the threat posed by the Chinese Communist Party, he has no business serving at the Department of Commerce.[https://t.co/uGFCcnO43d](https://t.co/uGFCcnO43d)
-> — Tom Cotton (@SenTomCotton) [October 14, 2021](https://twitter.com/SenTomCotton/status/1448758126006657025?ref_src=twsrc%5Etfw)
+6）现在马云、吴征、胡舒立信心满满，觉得王岐山最后一定出手。还有一点别忘了，所有的这些欧美大律师事务所在中国赚钱，赚最多是王岐山的建行上市、农行上市，UBS进中国，邮储银行上市。上海银行所有的业务代理没有王岐山点头，不可能。这些律师事务所，投行，代理机构基金赚的都是王岐山的钱。习近平再活100回，也没有王岐山，这个过去拿了几万亿行贿，全世界法律界，律师界，还有西方的法官和检察官，然后所有的基金，人家王岐山、江家是亲爹。，王岐山的女朋友高燕燕是中国中投公司，第一创始人。高燕燕代表这几大投资基金投了多少钱，每一笔投资背后必须有律师事务所，一定有基金，一定有会计师。高艳燕左脚华尔街，右脚华盛顿，白宫。
 
+7）西方投资到中国是15万亿美元左右，有多少律师，会计师经历了这事。与中国合作的律师事务所里拥有的外国机构的绝密信息，很多都已经被中共盗取了。
 
+8）某个姓姚的普通人被抓了，但是你知道他有多重要吗？当年孙立军想弄死这个人，因为这个姓姚的掌握了当年江志成在海外的密码。这个姓姚的曾经告诉郭先生马云不是好人，马云不会改邪归正，而且马云正在外面弄习家的事。马云正在跟习家在欧洲的那个洋女婿做基金，到现在习近平都不知道。未来习家一定会出大事儿，而且他根本不知道背后是谁搞的。这就像当年的江家、孟家盯住令计划的儿子，让这些西藏的女孩儿、新疆的女孩儿跟令计划的儿子令谷交往。习家有几个人已经被江志成、马云、吴征、周亮，孟建柱、王岐山的人给盯住了。习未来，最让他感到恐惧的是来自他家人。他们用什么招对待令计划，对待胡锦涛，就用什么招来对待习近平。
 
-美国第780军事情报旅(网络)： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在南亚的影响力：四个国家的脆弱性和韧性 【附卡内基捐赠基金网[http://Carnegieendowment.org](https://t.co/O2KmgjJU98?amp=1) 同名文章链接】“孟加拉国、马尔代夫、尼泊尔和斯里兰卡展示了 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在一个非常多维地区的参与战略的多样性，但也表明南亚的影响者们正在相互学习与中共国金钱和权力(关系)的经验。
+9）外国人一直希望共产党继续买美国国债，给欧洲继续他的投资，但中共能继续下去，共产党有这个钱吗？他没这个钱。习近平绝对不知道郭树清和王歧山在中国金融界有多深。习近平现在得到的报告，是共产党有这个钱，好像仓库里的钱用不完一样。中共对欧洲和其他国家友好，一带一路的投资不是中国人投最多，是中国腐败的官员和政府投最多，而且做了假票据。
 
+在新加坡注册，包括在一带一路，神华投资，神龙投资，神运能源等，还有神油，他在海外的借款、还有融资是没有进入中国的外债，他没有外汇担保。再担保，这些外国基金也都配合他们。高燕燕一出手都没有任何问题了，这些钱是在天上飘的，你不知道的，不包含共产党的所谓的七万亿美元的外债。当共产党没法兑现的时候，习近平和共产党一定把中国人拖入深渊。
 
+10）外国一旦经济被拖垮，反华势力是挡不住的。各国政府都会推给中国人，甚至掩盖各国政府的腐败，把所有的罪责归究于中国人。而且西方人认为西方的科学家和中共勾兑，律师事务所被买通，西方养老金被骗，疫苗病毒确定来自中共，他们都认为是中国人的错，一定会恨中国人。西方人绝大多数是分不清共产党和中国人。
 
-> China’s Influence in South Asia: Vulnerabilities and Resilience in Four Countries [https://t.co/vOwy8iEFHf](https://t.co/vOwy8iEFHf) via [@CarnegieEndow](https://twitter.com/CarnegieEndow?ref_src=twsrc%5Etfw)
-> — 780th Military Intelligence Brigade (Cyber) (@780thC) [October 14, 2021](https://twitter.com/780thC/status/1448696155664179209?ref_src=twsrc%5Etfw)
+11）南普陀会议的除了培养出习近平干五年滚蛋，结果习就赖着不走了。这个引发的后果就是阻止了江家和上海帮千秋万代领导全世界的机会。习近平没有任何能力领导全世界，他根本不可能，他有这个野心，他没有这个能力。
 
+12）沃尔玛撤出中国，会直接间接的带走中国一千万劳工的就业。投资亚马逊的贝佐斯现在投资的电瓶车，绝对是马斯克的特斯拉最大竞争者，这家一开始就不去中国。而且马斯克最后一定会撤离中国，最后就剩下比尔盖茨了。
 
+13）庞氏骗局获利的最后会死的很惨，当中国房地产倒的时候，它一定会导致更加猛烈的打台湾，为什么这么说，因为房地产的倒塌，最大的伤害者就是江家、曾家、朱家、王岐山家，他们都会问：这钱去哪儿了？现在习近平也蒙了，老看我们直播报告，到底这钱去哪儿了？六十五万亿的房地产，十几万亿的所谓的互联网产业啊。共100万亿美元，去哪了？房产倒必然导致保险倒；银行一定倒，银行倒，信托也得倒；粮食供应链儿一定倒。这个时候全世界都问钱去哪儿啦？全中国人里，最想转移目标的是谁呀？是王岐山，是江志成，是曾庆红，是朱镕基这些最有钱的家族。那就打台湾，一了百了。中国历史上所有皇家没落之前一定是社会大乱，
 
-参议员卢比奥媒体办公室： 卢比奥参议员欢迎哈佛大学 [@Harvard](https://twitter.com/Harvard) 把他们的中文暑期项目从 [#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 移到 [#台北](https://twitter.com/hashtag/%E5%8F%B0%E5%8C%97?src=hashtag_click) 的决定。[#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 向全世界提供了独特的机会，可以学习中国的语言，传统和文化，不受 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 的压迫。其他的美国大学也应该效仿。（转纽时，哈佛把受欢迎的中文项目转移到台北）
+14）本来川普要加入盖特的，最大影响就是律师。律师说，川普跟某某人签过什么协议，若川普加入盖特，他就会被告。川普很多麻烦就来自律师，而且他找不着律师，而且他很多银行不跟他合作。王岐山、江家，在美国在欧洲的力量控制，律师控制，会计师控制，金融控制，到啥程度啊？王岐山跟他那个高盛的哥们说：川普，我们想让川普下台，不会超过一个月，这是王岐山原话。
 
+15）张宏伟的东方集团、东方海外、东方能源，一个人在国家开发行所有融资贷款上百亿。张宏伟从来没有一个赚钱的企业。在香港，所谓的东方能源私下里借的钱，没有一分钱回到国内去，他在国内房地产又捞了一把。他在海外上市公司大量举债，东方海外，东方集团在民生银行弄走的钱，房地产套走的钱就有70多亿美元，都被张宏伟藏起来了。
 
+16）未来两年，有将近2亿套的房子会被政府批准，就算一套房子100万人民币，2亿套房子就是两百万亿人民币，合30多万亿美元，但是他们报给习近平的未来两年是五千万套。
 
-> Sen.Rubio welcomes [@Harvard](https://twitter.com/Harvard?ref_src=twsrc%5Etfw)’s decision to move its Chinese language summer program from [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw) to [#Taipei](https://twitter.com/hashtag/Taipei?src=hash&amp;ref_src=twsrc%5Etfw).[#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) offers the world a unique opportunity to learn about Chinese language,traditions, & culture free from [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) repression. Other U.S. universities should follow suit. [https://t.co/7BX0xdTtHz](https://t.co/7BX0xdTtHz)
-> — Senator Rubio Press (@SenRubioPress) [October 14, 2021](https://twitter.com/SenRubioPress/status/1448660962148372488?ref_src=twsrc%5Etfw)
+17）房地产海外借债十五万亿美元，你靠什么来还？房地产的利润只有10%-20%。国内将近一百万亿，涉及到保险、信托，你怎么还？哪个不是庞氏骗局？！老百姓的钱最后全被通胀搞掉了。
+
+18）共产党打台湾的很多原因，除了习从小到大就要拿回台湾，当秦始皇拿回香港这个最主要的原因之外，其他原因就是政治斗争和经济崩塌，而且最终是打台湾把全世界经济全面拖垮。杨洁篪、王毅给习所有的报告绝大部份都是假的。打台湾跟房地产、共产党的经济、内部政治有很大关系，当然西方的内乱和衰弱也助长了共产党。
+
+19）川普原来认为跟中国不可能有一战，现在他明白，现在中美必有一战。另外郭先生也认为中美之间必有一战，原来郭先生认为中美之间不会打起来，但现在改变了想法。中美之战不是因为台湾，也不是因为香港，根本原因就是经济。因为共产党房地产经济，海外十几万亿的美元债，他还不上，美国人你动他啥，你别动他的钱，这就是动了他的奶酪儿了。中美一旦有一战，排华会更加升级。
+
+20）中共中美之间不脱钩绝不可能，因为政府绝对管不了美国的私营企业。包括苹果，包括微软，这些利用中国发财的也都会脱钩。中共停止买美国国债，房地产的债还不上，八国联军就来了。
+
+21)今年的年底是中共房地产倒塌的开始，最晚时间是20大之后，中共要撑到在20大之后爆雷。但是郭先生认为如果20大以前要打台湾，他也撑不住。那么整个中共的经济外商板块儿彻底的崩塌，随着房地产的这个暴雷，中国的金融界一定是爆雷。
+
+**发布：**Candy
+
+**YouTube链接**：[闲聊澳洲](https://www.youtube.com/channel/UCPxB0vpNpmHN0hORXK4gj2A)
+**GTV频道：**[墨尔本雅典娜农场AthenaFarm](https://gtv.org/video/id=6153fecc42a8af3151a72e5b)
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

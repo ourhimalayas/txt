@@ -2,28 +2,50 @@
 ---
 
 
-## Gofundme 撤销“反对强制疫苗”诉讼的募捐
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1594831/)
+## 参议员瑞克·斯科特：要求拜登加入我的呼吁,将 2022 年奥运会从共产主义中国移走
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1594950/)
 
-作者：葛朗台太太
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-13.jpg)
-Jennifer Bridges是一位在Houston Methodist hospital工作的注册护士，因为拒绝接种新冠疫苗被开除。她采取法律诉讼手段抗议强制疫苗。在Gofundme公司根据所谓“错误信息”政策，关闭她的募捐之前，她已为她的诉讼筹集了超过 180,000 美元。 Gofundme还承认已经撤销了数百个他们认为的与疫苗有关的所谓“错误信息”的募捐活动。 滥用“misinformation/错误信息”标签，已经成为所有大科技平台打压真相的武器。而且他们的打压远远超过了言论自由，甚至还进一步限制你的财务自由。 8月份，chase银行就取消了麦克弗林将军及其家人的信用卡。 幸好，世界仍有一线光明： GETTR公司CEO米勒先生10月7日在接受媒体人Todd Wood的采访中提到GETTR正在开发打赏功能，GETTR Pay将会是明年的重头戏，它不仅仅会成为Apply Pay和Ali Pay的竞争对手，还会融合区块链加密货币。这将为超过7500万的美国人提供接触虚拟货币服务平台。 GETTR在7月份正式上市，在上市100天后 ，已经有超过300万的注册用户。那些被剥夺言论自由，被限制财务自由的人们，都将涌向GETTR。
+参议员瑞克·斯科特： 在几个月的完全无所作为和沉默之后，今天我再次要求乔·拜登加入我的呼吁，将 2022 年奥运会从 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 移走，并保护美国运动员和美国队的安全和个人信息免受中共国的侵入性监视。 【附斯科特参议员官网声明】
 
-（本文仅代表作者观点）
 
-参考链接：
-1. [Gofundme 撤销“反对强制疫苗”诉讼的募捐](https://www.defenseone.com/policy/2021/10/catholic-troops-can-refuse-covid-vaccine-archbishop-declares/186056/)
-2. [Gofundme 撤销“反对强制疫苗”诉讼的募捐](https://www.defenseone.com/policy/2021/10/catholic-troops-can-refuse-covid-vaccine-archbishop-declares/186056/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+> After MONTHS of complete inaction & silence, today I again demanded Joe Biden join my call to move the 2022 Olympics out of Communist China & protect the safety & personal information of American athletes & Team USA from China's invasive surveillance. [https://t.co/zClmB4xUyr](https://t.co/zClmB4xUyr)
+> — Rick Scott (@SenRickScott) [October 14, 2021](https://twitter.com/SenRickScott/status/1448778039031181320?ref_src=twsrc%5Etfw)
 
-新闻访谈终审：Ryan
-编辑/校对/审核：Hetangyuese
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+
+参议员瑞克·斯科特： 我很高兴[@LinkedIn](https://twitter.com/LinkedIn)和微软正在努力解决我对于（中共国）对美国人不可接受的审查制度的担忧。 每家美国公司都需要在全球范围内支持言论自由，并反对 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 及其种族灭绝和侵犯人权的行为。这是一个好开始。 【附华尔街日报的新闻：微软说将关闭在中国的LinkedIn网站】
+
+
+
+> I’m glad [@LinkedIn](https://twitter.com/LinkedIn?ref_src=twsrc%5Etfw) & [@Microsoft](https://twitter.com/Microsoft?ref_src=twsrc%5Etfw) are working to address my concerns over the unacceptable censorship of Americans.
+> 
+> Every U.S. company needs to stand for free speech worldwide & take a stand against Communist China & its genocide & human right abuses. This is a good start. [https://t.co/DOQK6PboTh](https://t.co/DOQK6PboTh)
+> — Rick Scott (@SenRickScott) [October 14, 2021](https://twitter.com/SenRickScott/status/1448762596975382533?ref_src=twsrc%5Etfw)
+
+
+
+参议员汤姆·科顿： 在艾伦·埃斯特维兹确认他将解决 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 构成的威胁之前，他无权在商务部任职。 【附科顿参议员官网声明】
+
+
+
+> Until Alan Estevez confirms that he will address the threat posed by the Chinese Communist Party, he has no business serving at the Department of Commerce.[https://t.co/uGFCcnO43d](https://t.co/uGFCcnO43d)
+> — Tom Cotton (@SenTomCotton) [October 14, 2021](https://twitter.com/SenTomCotton/status/1448758126006657025?ref_src=twsrc%5Etfw)
+
+
+
+美国第780军事情报旅(网络)： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在南亚的影响力：四个国家的脆弱性和韧性 【附卡内基捐赠基金网[http://Carnegieendowment.org](https://t.co/O2KmgjJU98?amp=1) 同名文章链接】“孟加拉国、马尔代夫、尼泊尔和斯里兰卡展示了 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在一个非常多维地区的参与战略的多样性，但也表明南亚的影响者们正在相互学习与中共国金钱和权力(关系)的经验。
+
+
+
+> China’s Influence in South Asia: Vulnerabilities and Resilience in Four Countries [https://t.co/vOwy8iEFHf](https://t.co/vOwy8iEFHf) via [@CarnegieEndow](https://twitter.com/CarnegieEndow?ref_src=twsrc%5Etfw)
+> — 780th Military Intelligence Brigade (Cyber) (@780thC) [October 14, 2021](https://twitter.com/780thC/status/1448696155664179209?ref_src=twsrc%5Etfw)
+
+
+
+参议员卢比奥媒体办公室： 卢比奥参议员欢迎哈佛大学 [@Harvard](https://twitter.com/Harvard) 把他们的中文暑期项目从 [#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 移到 [#台北](https://twitter.com/hashtag/%E5%8F%B0%E5%8C%97?src=hashtag_click) 的决定。[#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 向全世界提供了独特的机会，可以学习中国的语言，传统和文化，不受 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 的压迫。其他的美国大学也应该效仿。（转纽时，哈佛把受欢迎的中文项目转移到台北）
+
+
+
+> Sen.Rubio welcomes [@Harvard](https://twitter.com/Harvard?ref_src=twsrc%5Etfw)’s decision to move its Chinese language summer program from [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw) to [#Taipei](https://twitter.com/hashtag/Taipei?src=hash&amp;ref_src=twsrc%5Etfw).[#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) offers the world a unique opportunity to learn about Chinese language,traditions, & culture free from [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) repression. Other U.S. universities should follow suit. [https://t.co/7BX0xdTtHz](https://t.co/7BX0xdTtHz)
+> — Senator Rubio Press (@SenRubioPress) [October 14, 2021](https://twitter.com/SenRubioPress/status/1448660962148372488?ref_src=twsrc%5Etfw)

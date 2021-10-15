@@ -2,20 +2,21 @@
 ---
 
 
-## 重阳登高忆思情
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1595323/)
+## 樱花灭共诗——西江月•龙脉
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1595372/)
 
-撰稿：东京樱花团/神的带领
-![](https://cdn.discordapp.com/attachments/740156308631584770/898163751994392626/533fddbf32e920cf.png)
-重阳登高又一载，美景良辰对空萧；
+作者：东京樱花团/藤田村野
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-259.png)
+大陆十一国庆，台湾双十邦欢。
 
-唯有日月遥相应，思亲不觉泪两行；
+同根两岸各家喧，谁辨黄龙真赝？
 
-可恨中共病毒传，疫苗危害大如天；
+土匪篡权夺位，海棠劫难崩天。
 
-待到共匪消亡时，再来回乡与亲和。
-
+操戈相刃弟兄歼，玉玺连夜出殿。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-260.png)
 （文章仅代表作者本人观点，与GNEWS无关）
-*编辑：东京樱花团/喜马拉雅的微尘
+*插图：东京樱花团/闪闪
+校对：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-8.png)

@@ -2,10 +2,10 @@
 ---
 
 
-## 芝加哥市长退让，表示不会解雇未接种疫苗的教师
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1595494/)
+## 郭文贵先生宣布重大好消息
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1595609/)
 
-作者：AsG諾雅
+作者：火来
 
 
 
@@ -19,12 +19,12 @@
 
 
 
-生命新闻10月14日消息，在威胁要解雇本周五之前未接种疫苗的公立学校教师之后，芝加哥民主党执政的市政府做出了让步，表示只要他们同意每周接受测试，将允许拒绝接种毒疫苗的人继续工作。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-84.jpg)
-周三，芝加哥教师工会（CTU）和代表学区支助人员的两个服务雇员国际联盟（SEIU）团体一起，写信给市长莱特福特，声称近90%的CTU普通会员和数以千计的SEIU 73区会员已经接种了疫苗，未接种疫苗的雇员多是黑人和拉美裔妇女，如果政府坚持执行对未接种疫苗者的惩罚性政策，期限之后，学校将面临比平常更严重的人员短缺问题，特别是卫生工作者、清洁工、代课教师和校车助理关键的一线工作人员，将威胁到学校的安全。 芝加哥市长对教师工会的退让，表明只要人们坚持不打新冠疫苗的立场，团结一致，政府是无法继续推行强制政策的。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-3.jpg)
+2021年10月15日，郭文贵先生在盖特视频中宣布了一个重大的好消息，那就是3月15日之后，新增的G系列投资者也将享有喜币配额。郭文贵先生从机构投资者中又争取了四千万个喜币，以满足新增投资者的喜币配额，比例为1比0.2。喜币将在本月上市，在上市前的最后几天里，还能为战友们争取到喜币配额的福利，也只有郭文贵先生能做到，只有新中国联邦能做到。新中国联邦不放弃任何一个战友，不让任何一个战友落下，要让每一个战友都抓住可能是人生中唯一的机会，这与中国共产党有着本质的不同。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-47.jpg)
+
 参考链接：
-[Chicago mayor backs down on COVID threat, won’t fire unvaccinated teachers](https://www.lifesitenews.com/news/chicago-mayor-backs-down-on-covid-threat-wont-fire-unvaccinated-teachers/?utm_source=featured&amp;utm_campaign=usa%20https://www.ctulocal1.org/posts/ctu-seiu-local-73-seiu-local-1-to-lightfoot-time-to-partner-on-vax-for-all/)
+[郭文贵先生盖特： 10月14号：大好消息来了……](https://gettr.com/post/pe4gjl93d5)
 
 （本文仅代表作者观点）
 
