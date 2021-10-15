@@ -2,18 +2,21 @@
 ---
 
 
-## 不为人知&#8211;大量美军基地人员接种新冠病毒疫苗后病亡！
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1595292/)
+## 樱花灭共诗——西江月•龙脉
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1595372/)
 
-编译撰稿：苦尽甜来（文来） 校对发稿：硫酸羟氯喹64
+作者：东京樱花团/藤田村野
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-259.png)
+大陆十一国庆，台湾双十邦欢。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/sp-edited.png)图片来源：redvoicemedia
+同根两岸各家喧，谁辨黄龙真赝？
 
+土匪篡权夺位，海棠劫难崩天。
 
-著名自媒体【红声传媒】主持人斯杜·彼得于10月13日在其节目中表示，一位多年来在美军基地附近经营一家理发店的店主蕾妮女士对他透露说，在过去的一年里，该理发店的顾客数量不仅急剧减少，而且她熟知的许多客人在接种了COVID疫苗后不久都由于各种不明原因死亡。
-
-除了这些死亡的顾客之外，蕾妮还向主持人透露了许多其他异常发生的情况，包括：有顾客因接种该疫苗后双目失明，还有的被诊断出患有肺纤维化疾病，还有一位基地女军人在接种该疫苗后瘫痪，至今还坐在轮椅上等。
-
-虽然类似这样离奇的伤亡事件大量涌现，但当地的卫生官员，政界人士，还有军方官员都对以上实事矢口否认，甚至宣称所有以上爆料都是假新闻，就好像这所有悲剧从未发生过一样。
-
-[原文链接：](https://www.redvoicemedia.com/2021/10/first-hand-account-vaxx-deaths-alarming-to-military-barber/)
+操戈相刃弟兄歼，玉玺连夜出殿。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-260.png)
+（文章仅代表作者本人观点，与GNEWS无关）
+*插图：东京樱花团/闪闪
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-8.png)

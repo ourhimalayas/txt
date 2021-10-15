@@ -2,50 +2,35 @@
 ---
 
 
-## 参议员瑞克·斯科特：要求拜登加入我的呼吁,将 2022 年奥运会从共产主义中国移走
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1594950/)
+## 俄克拉荷马州反对拜登的疫苗强制令
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1595096/)
 
-参议员瑞克·斯科特： 在几个月的完全无所作为和沉默之后，今天我再次要求乔·拜登加入我的呼吁，将 2022 年奥运会从 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 移走，并保护美国运动员和美国队的安全和个人信息免受中共国的侵入性监视。 【附斯科特参议员官网声明】
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/O.jpg)survivethenews.com
+这算是文贵先生说的，本周会好消息不断？在阴谋集团猖獗的情况下，这样的消息还是令人鼓舞的。
 
+《门道专家》发表文章，题目“俄克拉荷马州州长反对拜登的疫苗强制令，称接种疫苗是‘个人选择’”。
 
-> After MONTHS of complete inaction & silence, today I again demanded Joe Biden join my call to move the 2022 Olympics out of Communist China & protect the safety & personal information of American athletes & Team USA from China's invasive surveillance. [https://t.co/zClmB4xUyr](https://t.co/zClmB4xUyr)
-> — Rick Scott (@SenRickScott) [October 14, 2021](https://twitter.com/SenRickScott/status/1448778039031181320?ref_src=twsrc%5Etfw)
+全文如下：
 
+俄克拉荷马州州长凯文·斯蒂特（Kevin Stitt）宣布，他们将把拜登政府告上法庭，因为他们计划对拥有100名以上员工的企业强制实施疫苗接种。
 
+在周四（10月14日）发布的一条视频消息中，斯蒂特州长说，“这一行动不仅是联邦政府的越权行为，而且是违宪的，接种疫苗应该是个人的选择。”
 
-参议员瑞克·斯科特： 我很高兴[@LinkedIn](https://twitter.com/LinkedIn)和微软正在努力解决我对于（中共国）对美国人不可接受的审查制度的担忧。 每家美国公司都需要在全球范围内支持言论自由，并反对 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 及其种族灭绝和侵犯人权的行为。这是一个好开始。 【附华尔街日报的新闻：微软说将关闭在中国的LinkedIn网站】
+斯蒂特州长在视频中说：“接种疫苗是个人的选择。固定的、一刀切的指令根本不符合我们当今的现实，在俄克拉荷马州，病例和住院率下降了近50%，随着这种病毒的演变，可以有科学和治疗方法，包括自然免疫。”
 
+斯蒂特州长补充道，“拜登政府不尊重个人自由，我不敢相信我们有一位总统想要强迫美国人在疫苗和工作之间做出选择，受影响的不仅仅是统计数字，他们是真正的俄克拉荷马人，有着真正的担忧，他们是勇敢的护士和看护者，他们要成为父母，他们是应急人员和勇敢的执法者。”
 
+州司法部长约翰·奥康纳（John O’Connor）也谴责了即将出台的强制接种。奥康纳部长在一份声明中说：“如果联邦紧急状态条例颁布，对雇主提出这样的非法要求，我们的办公室将与全国其他州的司法部长一起，迅速起诉并寻求禁令，禁止任何执行或强制执行任务的行为。”
 
-> I’m glad [@LinkedIn](https://twitter.com/LinkedIn?ref_src=twsrc%5Etfw) & [@Microsoft](https://twitter.com/Microsoft?ref_src=twsrc%5Etfw) are working to address my concerns over the unacceptable censorship of Americans.
-> 
-> Every U.S. company needs to stand for free speech worldwide & take a stand against Communist China & its genocide & human right abuses. This is a good start. [https://t.co/DOQK6PboTh](https://t.co/DOQK6PboTh)
-> — Rick Scott (@SenRickScott) [October 14, 2021](https://twitter.com/SenRickScott/status/1448762596975382533?ref_src=twsrc%5Etfw)
+（全文完）
 
+给斯蒂特州长、奥康纳部长点赞！面对邪恶，只有勇敢地站出来说不，才能震慑邪恶，才能伸张正义，才能唤醒人们。
 
+（文章仅代表作者个人观点）
 
-参议员汤姆·科顿： 在艾伦·埃斯特维兹确认他将解决 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 构成的威胁之前，他无权在商务部任职。 【附科顿参议员官网声明】
+原文链接：
 
-
-
-> Until Alan Estevez confirms that he will address the threat posed by the Chinese Communist Party, he has no business serving at the Department of Commerce.[https://t.co/uGFCcnO43d](https://t.co/uGFCcnO43d)
-> — Tom Cotton (@SenTomCotton) [October 14, 2021](https://twitter.com/SenTomCotton/status/1448758126006657025?ref_src=twsrc%5Etfw)
-
-
-
-美国第780军事情报旅(网络)： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在南亚的影响力：四个国家的脆弱性和韧性 【附卡内基捐赠基金网[http://Carnegieendowment.org](https://t.co/O2KmgjJU98?amp=1) 同名文章链接】“孟加拉国、马尔代夫、尼泊尔和斯里兰卡展示了 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在一个非常多维地区的参与战略的多样性，但也表明南亚的影响者们正在相互学习与中共国金钱和权力(关系)的经验。
-
-
-
-> China’s Influence in South Asia: Vulnerabilities and Resilience in Four Countries [https://t.co/vOwy8iEFHf](https://t.co/vOwy8iEFHf) via [@CarnegieEndow](https://twitter.com/CarnegieEndow?ref_src=twsrc%5Etfw)
-> — 780th Military Intelligence Brigade (Cyber) (@780thC) [October 14, 2021](https://twitter.com/780thC/status/1448696155664179209?ref_src=twsrc%5Etfw)
-
-
-
-参议员卢比奥媒体办公室： 卢比奥参议员欢迎哈佛大学 [@Harvard](https://twitter.com/Harvard) 把他们的中文暑期项目从 [#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 移到 [#台北](https://twitter.com/hashtag/%E5%8F%B0%E5%8C%97?src=hashtag_click) 的决定。[#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 向全世界提供了独特的机会，可以学习中国的语言，传统和文化，不受 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 的压迫。其他的美国大学也应该效仿。（转纽时，哈佛把受欢迎的中文项目转移到台北）
-
-
-
-> Sen.Rubio welcomes [@Harvard](https://twitter.com/Harvard?ref_src=twsrc%5Etfw)’s decision to move its Chinese language summer program from [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw) to [#Taipei](https://twitter.com/hashtag/Taipei?src=hash&amp;ref_src=twsrc%5Etfw).[#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) offers the world a unique opportunity to learn about Chinese language,traditions, & culture free from [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) repression. Other U.S. universities should follow suit. [https://t.co/7BX0xdTtHz](https://t.co/7BX0xdTtHz)
-> — Senator Rubio Press (@SenRubioPress) [October 14, 2021](https://twitter.com/SenRubioPress/status/1448660962148372488?ref_src=twsrc%5Etfw)
+[https://www.thegatewaypundit.com/2021/10/watch-oklahoma-governor-stands-bidens-vaccine-mandates-says-shots-personal-choice/](https://www.thegatewaypundit.com/2021/10/watch-oklahoma-governor-stands-bidens-vaccine-mandates-says-shots-personal-choice/)

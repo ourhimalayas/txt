@@ -2,30 +2,58 @@
 ---
 
 
-## 铜、铝、锌等金属价格疯涨，正在翻越十多年前的纪录高点
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1594832/)
+## 加拿大安大略省的疫苗接种要求证明最终可能成为企业的自愿行为
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1594919/)
 
-作者：文一
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-8.jpg)
-据《华尔街见闻》报道-全球能源危机导致供应中断，原材料价格全面飙升。 从锌到铜，各种金属的价格正在飙升，其中锌价格飙升至2007年来最高。 周三，美国原材料工业品现货指数飙升至历史新高，反映了皮革、牛油和金属废料等不在期货交易所交易的原材料价格也在飙升。 在伦敦金属交易所，锌的涨幅今日一度高达6.9%，至每吨3637.50美元， 在上海，锌价今日也一度涨停，收盘涨至每吨25700元。 同时，铝的价格目前也正处于2008年以来的最高水平。在伦敦金属交易所，铜的现货溢价达到近10年来的最高水平。 在上海市场，铜价涨幅最高达5%。种种现象反映出现货供应面临的巨大压力，原材料价格飞涨，宛如扼住经济发展的生命线，全球经济衰退似不可避免。
+**翻译：**圆成农场新闻组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-14-204901-edited.png)图片来源：网络
+据CTV NEWS报道：多伦多——安大略省的疫苗接种要求证明最终可能降级为自愿计划，因为省政府正在考虑一套新的措施，以缓解企业对大流行的限制。
 
-（本文仅代表作者观点）
+知情人士说，福特政府正在制定第三步后战略，将取消对需要疫苗证书的企业的产能限制——该计划将于下周公布。
 
-参考链接：
-1. [铜、铝、锌等金属价格疯涨，正在翻越十多年前的纪录高点](https://wallstreetcn.com/articles/3642359)
-2. [铜、铝、锌等金属价格疯涨，正在翻越十多年前的纪录高点](https://www.bloomberg.com/news/articles/2021-10-14/lme-metals-index-hits-record-high-as-energy-crisis-hurts-supply)
-3. [铜、铝、锌等金属价格疯涨，正在翻越十多年前的纪录高点](https://www.spglobal.com/platts/en/market-insights/latest-news/metals/101321-zinc-producer-nyrstar-cuts-output-by-up-to-50-at-three-european-smelters-on-energy-price-surge)
-4. [铜、铝、锌等金属价格疯涨，正在翻越十多年前的纪录高点](https://www.metalbulletin.com/Article/4011795/base-metals/LIVE-FUTURES-1410-LME-zinc-price-at-highest-since-2007-copper-cash3-month-spread-in-backwardation.html)
+作为”分阶段办法”的一部分，消息人士说，只要该省的疫情状况继续改善，政府正在考虑可能放宽疫苗接种规定的强制性证明。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+一位了解该计划的消息人士表示：“（我们）希望疫苗证书不再强制性。
 
-新闻访谈终审：Ryan
-编辑/校对/审核：Hetangyuese
+虽然没有实施该计划这一阶段的时间表，但该消息人士补充说，疫苗证书计划仍将是自愿的。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-14-204807-edited.png)图片来源：网络
+福特省长预计将在本周五发表讲话，比安大略省退出第3步的疫苗接种证明，QR守则实施提前一周。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+卫生首席医疗官基兰·摩尔博士周四在接受记者采访时说，他预计安大略省在时机合适时将“分阶段取消”疫苗证书。
+
+摩尔说：“我们可能在某些场所不要求他们，但在群众集会上仍然要求他们。”我们没有看到整个认证过程突然结束，而是随着时间推移逐步退出。
+
+摩尔说，逐步取消公共卫生措施，“使我们在安大略省一直做得很好”，他希望继续这样做。
+
+他还说，在他确定感恩节周末对该省COVID-19局势的影响之前，安大略省的限制不会放松。
+
+自7月以来，安大略一直处于“重新开放路线图”的第3步。由于8月份COVID-19病例增加，该省推迟了退出第3步。
+
+退出路线图第 3 步可能意味着在许多设置中增加了容量限制，但哪些限制将放宽的细节尚未得到确认。
+
+消息人士说，室内遮盖要求将保持不变。
+
+卫生部在周三对多伦多CTV新闻的早些时候声明中说，安大略省的COVID-19活性病例率是全国最低的。
+
+卫生部发言人说：“我们现在能够研究哪些公共卫生措施能够解除，同时保持谨慎的态度。”
+
+周三晚上，多伦多CTV新闻联系了福特的办公室，但没有得到回应。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-14-204742.png)图片来源：网络
+上周六，安大略取消了某些大型场馆的容量限制，包括用于音乐会、体育和电影的场馆。
+
+多伦多枫叶队周三在几乎满员的观众面前举行了主场揭幕战。
+
+周三晚上，多伦多卫生官员在接受CP24采访时说，Leafs的回归为该市的许多人提供了“非常需要的推动”，健康限制应该意味着会场仍然安全。
+
+她补充说，目前正在就是否在其他领域放松能力限制进行“积极讨论”。
+
+餐饮业本周对省政府表示失望，因为没有发布任何放松对企业限制的计划。
+
+新闻来源：[https://toronto.ctvnews.ca/ontario-s-proof-of-vaccination-requirement-could-eventually-be-made-voluntary-for-businesses-sources-1.5622432](https://toronto.ctvnews.ca/ontario-s-proof-of-vaccination-requirement-could-eventually-be-made-voluntary-for-businesses-sources-1.5622432)
+
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+
+编辑/发布：LILY
+
+21211014
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)

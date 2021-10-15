@@ -2,26 +2,24 @@
 ---
 
 
-## 哈佛大学“北京书院”将改名“台北书院”，准备于 2022 年由北京迁往台北
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1594830/)
+## 铜、铝、锌等金属价格疯涨，正在翻越十多年前的纪录高点
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1594832/)
 
-作者：新世界的一员/晓仙女
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
-【哈佛克里姆森报】10 月 14 日报道，“哈佛北京书院”是哈佛大学与北京语言大学联合创办的暑期中文学习项目，近年来北京校方的态度日益恶劣，哈佛决定与台湾大学合作，改名为“台北书院”，于明年迁往台湾。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-13.jpg)
-由于美国独立纪念日恰好在进修期间，参加课程的哈佛学生往往会举办一个小型派对，学生和教师们一起聚餐、唱美国国歌來庆祝。然而从 2019 年起，北京校方表示，学生们不能再举办这个节日派对。哈佛大学中文项目主任刘力嘉说：“我们被告知，我们的学生不能唱美国国歌、不能庆祝美国国庆日。”
-
-哈佛大学中文项目主任刘力嘉对《哈佛克里姆森报》表示，她怀疑这种不友善的态度是北京当局对美国态度改变的结果。 郭文贵先生爆料，美中必有一战，无论当下政治经济如何勾兑，都是表象，不友好的社会本质现象，已经点点滴滴体现出来。
+作者：文一
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-8.jpg)
+据《华尔街见闻》报道-全球能源危机导致供应中断，原材料价格全面飙升。 从锌到铜，各种金属的价格正在飙升，其中锌价格飙升至2007年来最高。 周三，美国原材料工业品现货指数飙升至历史新高，反映了皮革、牛油和金属废料等不在期货交易所交易的原材料价格也在飙升。 在伦敦金属交易所，锌的涨幅今日一度高达6.9%，至每吨3637.50美元， 在上海，锌价今日也一度涨停，收盘涨至每吨25700元。 同时，铝的价格目前也正处于2008年以来的最高水平。在伦敦金属交易所，铜的现货溢价达到近10年来的最高水平。 在上海市场，铜价涨幅最高达5%。种种现象反映出现货供应面临的巨大压力，原材料价格飞涨，宛如扼住经济发展的生命线，全球经济衰退似不可避免。
 
 （本文仅代表作者观点）
 
 参考链接：
-1. [哈佛大学“北京书院”将改名“台北书院”，准备于 2022 年由北京迁往台北](https://twitter.com/rfi_tradcn/status/1448414385932693509?s=21)
-2. [哈佛大学“北京书院”将改名“台北书院”，准备于 2022 年由北京迁往台北](https://www.rfi.fr/tw/中國/20211013-哈佛大學-北京書院-將改名-台北書院-明年由北京遷去台北?ref=tw_i)
+1. [铜、铝、锌等金属价格疯涨，正在翻越十多年前的纪录高点](https://wallstreetcn.com/articles/3642359)
+2. [铜、铝、锌等金属价格疯涨，正在翻越十多年前的纪录高点](https://www.bloomberg.com/news/articles/2021-10-14/lme-metals-index-hits-record-high-as-energy-crisis-hurts-supply)
+3. [铜、铝、锌等金属价格疯涨，正在翻越十多年前的纪录高点](https://www.spglobal.com/platts/en/market-insights/latest-news/metals/101321-zinc-producer-nyrstar-cuts-output-by-up-to-50-at-three-european-smelters-on-energy-price-surge)
+4. [铜、铝、锌等金属价格疯涨，正在翻越十多年前的纪录高点](https://www.metalbulletin.com/Article/4011795/base-metals/LIVE-FUTURES-1410-LME-zinc-price-at-highest-since-2007-copper-cash3-month-spread-in-backwardation.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
-新闻访谈终审：Q大哥
+新闻访谈终审：Ryan
 编辑/校对/审核：Hetangyuese
 
 **更多资讯，更多关注**
