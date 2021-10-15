@@ -2,21 +2,39 @@
 ---
 
 
-## 日本厚生省将讨论莫德纳疫苗的不良反应问题
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1595238/)
+## 澳航提前重启国际航班
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1595318/)
 
-#### 撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-31.png)(图片源自本文链接)
-日本雅虎网站10月14日消息：日本疫苗担当大臣堀内先生宣布， 15日将讨论莫德纳公司生产的中共病毒疫苗的不良反应问题。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qantas.jpg__1600x900_q85_crop_subsampling-2.jpg)图片来源：Global Citizen
+**整理报道：**翼族
 
-14日，堀内大臣访问了国家传染病研究所，并与该所所长肋田等人交换了意见。堀内大臣事后接受采访，在提到有关年轻男生接种莫德纳疫苗后出现心肌炎和其它疾病的情况时说：日本厚生省将在15日的会议上讨论接种疫苗的不良反应。
+澳航宣布将会提前两周重启国际航班，以在11月1日重新开通国际航班。
 
-[信息源](https://news.yahoo.co.jp/articles/c8af08a31820cd6df088ec4257cf45b13f2e5392)
+此举是在澳大利亚联邦和新南威尔士州政府确认边界将在11月1日当天重新开放之后做出的，完全接种疫苗的海外入境者在抵达新南威尔士州时无需隔离。
 
-非感染病专业人士的，刚刚上任的，堀内疫苗担当大臣，用自己的语言淡化了疫苗的副作用。没有根据的说“心肌炎通常很轻微，而且接种疫苗的好处更大”等。但请试想一下，能让一个先进国家的厚生省开会探讨的问题，会是小问题吗？
+总理斯科特·莫里森（Scott Morrison）表示，该计划“首先是针对澳大利亚居民和公民的”，而不是游客。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+澳航在一份声明中表示，它也欢迎新南威尔士州为完全接种疫苗的旅客提供新的检疫系统。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+澳航表示，从11月1日起将开启波音787梦想飞机每周往返于悉尼和伦敦，并且每周最多将有五次航班，另外每周运营多达四趟从悉尼飞往洛杉矶的往返航班。如果需要还将增加更多航班以满足需求。
+
+至少在2022年4月之前，飞往伦敦的航班将通过达尔文【注：达尔文是澳洲较为偏僻的北领地的首府】中转运营。
+
+开始阶段只有澳大利亚公民、永久居民及其直系亲属和父母才有资格购买机票。
+
+飞往新加坡、斐济和温哥华等其它目的地的航班仍将从12月18日开始恢复。但澳航表示如果可能的话，它会考虑增加从悉尼出发的目的地。
+
+根据新南威尔士州的计划，完全接种疫苗的海外旅客将需要在登机前接受中共病毒（COVID-19）测试并出示完全接种疫苗的证明，目前尚不清楚抵达新南威尔士州后是否需要进行病毒检测。
+
+新州政府在一份新闻稿中表示，“将在未来几天提供有关入境者检测要求的进一步建议”。
+
+**参考链接：**[Qantas brings forward restart of international flights](https://www.smh.com.au/national/australia-news-live-victoria-s-record-covid-cases-won-t-delay-reopening-nsw-restrictions-set-to-ease-further-as-daily-numbers-decline-20211014-p5903d.html)
+
+*编辑/发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

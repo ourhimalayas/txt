@@ -2,19 +2,26 @@
 ---
 
 
-## 秘翻在线：俞敏洪的格局注定他的可悲命运
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1595035/)
+## 有声|联邦法官准许纽约医护人员对疫苗强制政策申请宗教豁免
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1595120/)
 
-**撰稿：葛大饼**
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月12号，一名联邦法官暂时允许纽约的医护人员对该州的新冠疫苗强制政策申请宗教豁免。上个月，17名医护人员，许多匿名提起诉讼，反对纽约州卫生部的疫苗强制政策及不允许宗教豁免。美国地区法官大卫-赫德周二作出裁决，批准了一项初步禁令，允许医护人员申请其雇主考虑的宗教豁免。赫德还禁止卫生部对那些寻求或获得宗教豁免的医护人员的执照、证书、居住权或其他专业身份采取纪律处分或其他行动。
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-15-105850.jpg)
-根据2021年10月13日 UC新闻报道，近日，网络流传的视频中显示新东方创始人俞敏洪直言“解决自卑的办法就是搞钱”，这让俞敏洪再次成为焦点人物。
+本案原告的首席律师赞扬了法官的裁决。称”通过这项裁决，法院正确地认识到，昔日抗疫的’前线英雄’突然被当作携带病毒的恶棍，被州卫生局一纸命令踢到路边。抗议疫苗任务的医护人员这样做是因为他们反对被迫接种使用 “堕胎 “的 “胎儿细胞系 “的疫苗。
 
-对此俞敏洪称这是造假短视频，他完全没有发表过类似言论。 新闻称这并不是俞敏洪第一次遭遇此事，面对这种利用名人效应达到混淆视听、赚取流量为目的的虚假行为，俞敏洪本人及新东方方面正在搜集相关证据，将依法追究相关人士的法律责任。
+纸终将包不住火，主流媒体也开始慢慢转变风向。
 
-俞敏洪出身贫寒，曾三次高考落榜，创建新东方学校也是吃了很多苦。但是受过高等教育经历过苦难不代表他的格局有多大，对中共有多清醒的认识。他的大嘴巴狂言乱语不是第一次，以前还曾说过“**中国女性堕落导致国家堕落**”惹众怒。另一方面，中共目前对教育培训行业的监管和打压不断，新东方、学而思等15家教培机构曾被处以3650万罚款，教育部的 “双减”政策也让很多校外培训机构破产。
+文字版原文：[联邦法官准许纽约医护人员对疫苗强制政策申请宗教豁免](https://gnews.org/zh-hans/1592514/)
 
-新东方目前的市值已经蒸发了2000亿人民币，裁员超过4万人。新东方俞敏洪的确该想办法搞钱了，曾经惹怒过财新总编胡舒立，不让她当精神导师，当时胡舒立就扬言要搞死新东方。这下可好，老俞现在该把国家的堕落归咎于谁呢！
-
-**[新闻来源](https://mparticle.uc.cn/article.html?btifl=100&amp;app=smds-iflow&amp;title_type=1&amp;wm_id=401632bd39d34f4c95557fc4bf51d04d&amp;wm_cid=448960085570370560&amp;pagetype=share&amp;client=&amp;uc_share_depth=1&amp;uc_param_str=frdnsnpfvepcntnwprdssskt)**
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

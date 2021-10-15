@@ -2,36 +2,45 @@
 ---
 
 
-## 六四纪念雕塑将遭移除 ,丹麦雕塑家对峙港大
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593974/)
+## 纳瓦罗称中国共产党控制了乔·拜登
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1594387/)
 
-作者：FoxRina
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-丹麦雕塑家高志活纪念八九·六四天安门大屠杀的雕塑作品「国殇之柱」将遭到香港大学的移除，高已聘请了律师和外交官处理此事，并表示如果他高达8 米的六四大屠杀遇难者雕像遭到破坏，他将起诉香港大学。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-22.jpeg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/P-6.jpg)washingtonexaminer.com
+《新闻纵横》（NEWSMAX）10月13日发表文章，彼得·纳瓦罗（Peter Navarro）称：中共控制了拜登。
 
-高志活是这位关注中国人权的丹麦雕塑家的中文名字，和他的丹麦姓名发音相近。高志活是中国大陆人权的关注者，国际人权组织橙色运动发起人之一，并因其人权艺术活动在2009年访港时遭到中共拒绝入境。
+文章说，川普总统政府时期贸易和制造业政策办公室（the Office of Trade and Manufacturing Policy）的主任彼得·纳瓦罗（Peter Navarro）向《新闻纵横》宣称，乔·拜登被中国共产党控制了，并补充说拜登的弱点可能引发战争。
 
-雕塑“国殇之柱”1997年由以组织天安门广场大屠杀遇难者年度追悼会而闻名的香港市民支援爱过民主运动联合会向其雕塑者无限期借用，并安置在香港大学，是中国境内纪念六四的唯一雕塑。高大的雕塑上布满了扭曲的面孔，震撼地描绘了天安门广场大屠杀的受害者，强烈引发观者的深思与悲愤。
+纳瓦罗周三（10月13日）在《埃里克·博林：平衡》（Eric Bolling: The Balance）栏目中说：“毫无疑问，拜登一家都被中国共产党控制，中共还有更深远的影响力。在国家安全委员会、白宫、国务院和其他地方的高级官员中，有许多人已经被《国家脉动》（The National Pulse）等网站揭露，他们被中国共产党的金钱所收买。“
 
-由于国安法暴政和香港民主的全面沦陷，支援会于上个月被迫解散，部分成员被捕或被拘留中。港大高层要求支援会于本周三下午5点之前对雕塑完成拆除，否则将被视为放弃。
+“我不会对拜登在决策方面受到中共的影响而感到惊讶，这些影响扩大到了他的人事选择和不同级别的政府机构。这是一个非常危险的情况。” 纳瓦罗补充说。
 
-然而该雕塑仍为其创作者所拥有，估价约为1200 多万瑞典克朗。高志活现已在香港聘请律师处理此案，并寻求丹麦官员的外交帮助，以保护这座雕塑，或至少确保该雕塑可以毫无损坏地从香港大学移走。
+据英国《每日邮报》（Daily Mail）周三（10月13日）报道，拜登可能被牵扯进联邦调查局的一项调查，涉及他的儿子亨特·拜登。此前有报道称，拜登和拜登共用财务账户，并相互支付账单。
 
-(本文仅代表作者观点)
+此前还有报道称，亨特·拜登（Hunter Biden）在乔治·贝格斯画廊（Georges Bergès Gallery）展出了自己的作品，贝格斯与中共国有着密切的关系。贝格斯表示，他每年前往中共国三到四次。
 
-参考链接：[Dansk staty om massakern vid Himmelska fridens torg skapar storbråk i Hongkong](https://kinamedia.se/2021/10/14/dansk-staty-om-massakern-vid-himmelska-fridens-torg-skapar-storbrak-i-hongkong/)
+根据纳瓦罗的说法，涉及中共的腐败迹象是一个危险的信号。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+“拜登不仅破坏了我们的边境，也破坏了我们的经济，破坏了阿富汗，他的弱点将引发战争。与强大的里根和川普的和平（时期）相差得太远。”
 
-新闻访谈终审：FoxRina
-编辑/校正/发稿：谐趣园
+“这是我最担心的事情之一，我们有飞机，中国共产党的飞机却正在台湾海峡上空掠过。” 纳瓦罗补充道。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（原文完）
+
+不愧是新中国联邦的形象大使，相信纳瓦罗先生对中共的认知来自于文贵先生，并在美国上层进行坚持不懈地游说。“在国家安全委员会、白宫、国务院和其他地方的高级官员中……被中国共产党的金钱所收买。” “中共的腐败迹象是一个危险的信号。”
+
+的确，腐败渗透造成的危害不亚于中共病毒和疫苗阴谋，美国若想自救，必须清理政府机构与中共的关联，从立法、司法、执法部门开始。文贵先生爆料自己在美国60多个官司中的亲身经历，即将引爆美国司法领域的腐败大案。
+
+谁曾想，堂堂军方的参谋长联席会议主席背着总司令进行通共泄密电话？通话已经荒唐，更荒唐的是国会听证会上竟然有立法者为之袒护，然后此事有可能不了了之！笔者并不认为米利是一个被中共拉下水的走狗，但他的身边肯定会有中共众多的内线，否则，演绎不出这幕荒唐的桥段。
+
+中共病毒溯源报告，已经演绎了情报机构、美国国务院的荒唐；疫苗问题演绎了美国政府、科技界、医疗卫生界的荒唐；主流媒体、大科技公司加入其中演绎禁言禁声、控制民意扼杀自由的荒唐，这就是当下的美国！
+
+这种荒唐势必在各种邪恶力量的操纵下发展到猖狂，进而给美国、世界带来毁灭性打击。灭共是正义的必需，全人类都面临大觉醒大决战！
+
+（文章仅代表作者个人观点）
+
+原文链接：
+
+[https://www.newsmax.com/newsmax-tv/china-joebiden-hunter-taiwan/2021/10/13/id/1040394/](https://www.newsmax.com/newsmax-tv/china-joebiden-hunter-taiwan/2021/10/13/id/1040394/)

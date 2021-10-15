@@ -2,24 +2,22 @@
 ---
 
 
-## 美国会议员刻意掩盖使用伊维菌素真相
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1595197/)
+## 拜登政府对中共国供应链的依赖是当前美国经济恶化的根源
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1595284/)
 
-采编：风云小哥 撰稿：文明(添草灭共)
+新闻采编：青青     撰稿：苦尽甜来 (文来）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/yw-edited-scaled.jpg)图片来源：JOURNALQUEBEC
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/bx-edited.jpg)图片来源：TRUENORTH
 
 
-据美国自媒体《茶党运动》(tea party)10月12日报道：尽管有大量美国国会议员及其家属和工作人员都接受了服用伊维菌素作为防治新冠病毒的疗方，但该抗毒良方却从未告知公众。
+美参议员汤姆·科顿在10月13日“福克斯新闻”黄金时段节目中指出，美国制造业对中共国的依赖是导致目前该国供应链断裂的根本原因，而拜登政府推行的各项政策所造成的失业率上升和经济停滞等问题使得以上情况更加恶化。
 
-美国著名重症护理医生皮埃尔-科里，这位一直非常注重对新冠病毒的早期防治，包括服用伊维菌素、维生素C和D3、锌和单克隆抗体等治疗方案的医学博士在其推文中披露：在过去的15个月里，数百名国会议员及家人和工作人员都接受了包括服用“备受争议”的伊维菌素作为对该病毒的早期治疗和预防性方案。但重要的是，这些人却对公众隐瞒了相关的防治药品及方案信息。
+科顿议员在节目中表示：近30 年来，美国已将大量的工作岗位和制造业转移到了中共国。如今，想购买到一件非中国制造的商品并不容易。是拜登政府的国策导致了这一切，并由此引发了包括通货膨胀，各种商品供应短缺等一系列经济问题。
 
-对此，【新冠病毒重症专家组】指出：使用伊维菌素成功治疗COVID19感染已在印度最大的北方邦被充分体现。但当伊维菌素被各大媒体刻意描述为兽用驱虫药时，几乎所有使用该药的国会议员都保持了沉默。
-
-（以上内容仅代表原文信息和作者个人观点）
+(以上内容仅代表原文信息和作者个人观点)
 
 * * *
 
 校对，编辑，发稿：硫酸羟氯喹64
 
-[原文链接：](https://www.teaparty.org/bombshell-report-congressmen-families-staffers-received-successful-ivermectin-preventative-covid-care-never-told-public-470546/)
+[原文鏈接](https://www.breitbart.com/clips/2021/10/13/cotton-biden-helped-create-supply-chain-dependency-on-china-thats-the-root-of-current-problems/)

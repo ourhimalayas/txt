@@ -2,107 +2,72 @@
 ---
 
 
-## “这是灾难性的一天”—— 中国债券市场彻底崩溃
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1595130/)
+## 江志成马云吴征孟建柱王岐山盯上习近平家人Daniel Foa
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1595220/)
 
-据《零对冲》记者 Tyler Durden 2021年10月12日报道：**美国债券市场可能已经关闭，但在中国却是全面开放，当地人利用这一事实做了一件事：卖出**。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/article-2224730-15BE227A000005DC-90_634x395_副本.jpg)
+图片来源：[‘Buccaneering’ British businessman, 36, who has married into the most powerful family in China](https://www.dailymail.co.uk/news/article-2224730/British-businessman-Daniel-Foa-36-married-powerful-family-China.html)（**PUBLISHED:** 08:34 EDT, 29 October 2012 | **UPDATED:** 09:24 EDT, 29 October 2012）
 
-在我们的病毒式文章《灾难性的房地产销售意味着中国最坏的情况正在发生》之后，**由于恒大将第三次违约（离岸）债券兑付，周一中国房地产公司债券再次遭受重创**，竞争对手**现代置业**则成为最新的争相推迟最后期限的人。
+郭文贵先生[2021年10月13日文贵直播：记住今天这个大日子；傅政华的被抓，全世界的律师事务所，司法界大颠覆，大唤醒；马云是光明会成员；目前世界的危局，经济大崩溃，世界的黑暗势力和中共的黑暗势力因为病毒疫苗受到扭曲；房地产的倒塌会导致中共更加要打台湾，全面拖垮世界经济；中美之间必有一战](https://www.gtv.org/video/id=6166d150304e992109b45e6f)时间点1：30：43提到——
 
-在经历了有史以来最快的跌幅之后，中国垃圾债券市场（房地产开发商发行人占主导地位）再次受到影响，因为人们对这个5 万亿美元行业 —— 驱动着中国经济相当大的一部分 —— 的担忧情绪继续迅速蔓延。与此同时，路透社援引消息人士的话报道称，**中国恒大集团的境外债券持有人在亚洲时间周一截止日期前仍未收到利息支付**。
+［我接着说，就是说七哥怎么活过来的。真的，我每天，几乎每天啊每天，有时候很多次，都会被不同的人问“你怎么活过来的” ？ 有时候我也问我自己我咋活过来的。
 
-虽然在恒大的违约现在只是语义上的问题，但**花样年**在表示其流动性良好的几周之后，**却以一个意想不到的公告震惊了它的债券持有人，这导致其债券在几秒钟内从面值暴跌至 74 美分。**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-251.png)图片来源：《零对冲》
-……其他压力迹象包括规模较小的竞争对手**现代置业**要求投资者将 10 月 25 日到期的 2.5 亿美元债券付款推迟三个月，部分是“以避免任何潜在的付款违约”。这出乎意料，**现代置业**2021年4月的债券当天暴跌超过50% 至30美分。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-252.png)图片来源：《零对冲》
-在其他地方，**鑫源房地产**提议**仅支付10月15日到期的票据本金的 5%**，并将该债务换成 2023 年到期的债券。惠誉评级称此举为不良债务交换，同时将公司评级降至 C。至少两家公司的债务规模是相对较小的：根据彭博汇编的数据，现代置地和鑫源的未偿美元债券分别为 13.5 亿美元和 7.6 亿美元。相比之下，恒大拥有192亿美元。
+就像昨天晚上，这个人告诉我说国内的一些情况，司法部门的情况，谁谁被抓了，当他突然说到一个，他说谁谁谁是在两个小时以前被带走了。这个人，很多（人）都不知道他的名字，姓姚，跟那个姚家没关系，跟那个姚依林家（没关系），一个姓姚的一个普通人。
 
-在高收益发行人的跌幅中，中国**奥园集团 **2024 年到期的 6.35% 票据兑美元下跌 13.2美分至 57.5美分；融创 2026年到期、利率为 6.5% 的美元债券下跌 9.4美分至 57.9美分，使两者均收于有史以来的最低水平。
+但他一句话就把我“扑棱”一下精神就来了，我说什么时候弄走的？他说两小时前，我说我告诉你他有多重要。我说当时孙力军想弄死他，为啥要弄死他？因为就这个姓姚的掌握了当年江志成在海外的一些密码。
 
-**佳兆业集团**是 2015 年首家违约的中国房地产开发商，其部分债券也暴跌至面值的一半以下，而**富力地产**和**绿地控股**等被认为是“安全”的名称，它们都拥有声誉良好的项目在伦敦等全球城市，也被广泛抛售。
+我说我怎么知道马云这个王八蛋不是个好东西的？原来我觉得这个人，我一直夸他，我2017、2018年爆料，我有时候还夸他呢你知道吧？你们好好看一看去，我希望他改邪归正。
 
-彭博指数显示，中国垃圾美元债券的收益率上周飙升 291个基点，至 17.54%，为 10 年来的最高水平。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-253.png)图片来源：《零对冲》
-**雪上加霜的是，中国 10 年期国债期货跌至三个月低点**，因为央行最近的流动性流失削弱了对新一轮货币政策宽松的预期。10 年期国债期货合约下跌 0.4% 至 99.14，为 7 月 12日以来的最低水平。10 年期主权债券收益率上涨 5 个基点，为两个月来最大涨幅，至2.96%。
+结果就这个姓姚的告诉我，他说：“七哥你再也不要觉得这个小子有救了，这小子是没救了，他在害你”，我说：“他也不敢嘛，他跟江家再好不会害我”，他说：“我告诉你他跟江家什么关系”，他说：“他正在外面弄习家的事儿”。我当时以为，我说：“你疯了吧？马云敢弄习家的事儿？”
 
-**“这是灾难性的一天。”**香港的大道资产管理的固定收益产品经理 Clarence Tam 告诉路透社，强调**即使是一些本应更安全的“投资级”公司现在也看到 20% 的债券被抹去。**“我们认为这是由全球资金外流驱动的……从根本上说，我们担心在岸抵押贷款管理会严重打击开发商的现金流。”他补充说，指的是人们可能会停止为新房支付首付。
+他说：“你知道习家的那个谁谁谁在英国，你知道吧？” 我说：“这个我清楚啊”，“那个外国女婿你知道吗？” 我说：“我知道”，他说：“你去了解了解，最近马云找人都是跟这小子接触”。
 
-换句话说，我们在周末讨论的动态解释了为什么**“中国最坏的情况正在发生”，正在从最大的烂苹果 —— 即恒大、花样年 —— 蔓延到对房地产行业的信心崩溃，再到目前为止被认为是健康和免受房地产内爆影响的信贷。**简而言之，美国房地产泡沫的破灭已经转移到中国，是的 —— 它会像雷曼那样告终。
+我当时马上叫人就找了这个习家的洋女婿，从侧面打听，一打听是真的。我再那跟马云尝试做基金做这做那的，再后我发现马云所布的局已经不是那么简单了。
 
-与此同时，摩根大通分析师强调，国际投资者现在要求以最高溢价购买或持有“垃圾”级中国债券。该银行紧随其后的 JACI 中国高收益指数与投资级 AA 级中国本地市场债券（称为“在岸”债券）的类似指数之间存在高达 1,200 个基点的差异。ICE BofA亚洲美元高收益企业中国发行人指数 (MERACYC) 的期权调整价差也达到有史以来最宽的水平。
+哎不是，我说错了，这个是2016年，2016年，16年的事儿。
 
-摩根大通的分析师表示：**“恒大的蔓延风险现在正在其他发行人和行业蔓延。”**
+到2018年的时候，这个姚这个人给我再说，他说：“七哥，现在我告诉你做到什么程度，习本人到现在都不知道。”习家也不知道，他这个洋女婿就跟当年薄熙来老婆找了一个叫什么维尔，多维尔，陪着薄瓜瓜读书那个，然后跟薄熙来老婆搞上、最后就是被他杀掉那个人，是一模一样的东西。这是英国人，外国人见了大钱都懵。
 
-**虽然今天可能是“灾难性的”，但如果市场对北京将救助债券市场失去信心，情况可能会变得更糟。**
+在欧洲，你见一个三四十岁有一台跑车，它只有两个原因：一个他是天才，第二个这钱就不好来的，很有可能是家族来的。就是欧洲人想挣一台法拉利，说挣一台跑车自己挣来，几乎是很难的，在欧洲你想尽快挣财富是很难的。在美国有这种可能的，就是年轻人创业能起来，在欧洲几乎是很难的，要么老钱，要么就是天才中的天才。
 
-“我们认为政策制定者对出现的系统性风险持零容忍态度，旨在维持房地产市场稳定，如果房地产活动水平恶化，政策支持可能即将到来。”高盛亚洲信贷主管 Kenneth Ho 表示。
+那么这个小子也开了好几台跑车，我们后来接触，这跑车好几个全是马云找人给他弄的。你记住我这话，未来习家一定会出大事儿，而且他根本不知道这背后怎么搞的。
 
-一夜之间，我们在东北部黑龙江省省会哈尔滨看到了这种隐性支持的第一个迹象，它成为中国首批宣布支持房地产开发商及其项目的城市之一。据哈尔滨日报运营的网站报道，该市将向符合条件的“人才”提供最高10万元的购房补贴。该市还将向购房者提供更多符合住房公积金贷款条件的现有房屋；文件称，此举旨在促进该市房地产市场平稳健康发展。
+这就像当年江家、孟建柱盯住了令计划的儿子，让这些西藏的女孩、新疆的女孩，是吧？然后跟他交往。这个孩子，令谷真的是个不错的人，非常好，很腼腆。他就在我香港的那个律师事务所打工，他又不喝酒，就是遇到女孩有点腼腆，有点好色。
 
-摩根士丹利亚洲量化研究主管 Gilbert Wong 表示，虽然中国房地产行业的动荡迄今已被债券市场所遏制，但离岸债券的紧张局势可能很快会给该国的股票交易员带来麻烦。截至周五，彭博汇编的数据显示，可比美国国债的高收益信用利差是有记录以来最大的 —— 经期权调整后约为 1,866 个基点。但本月到目前为止，衡量股票波动性的指标实际上已经下降。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-254.png)图片来源：《零对冲》
-尽管如此，这一对已表现出这些年的密切关系，表明他们的分歧可能不会持续，最终，**成千上万中国居民投资的股票市场崩溃，可能加速将北京从麻木的不救助中唤醒**。
+这年轻人谁不好色？你告诉我你们谁不好色？男男女女不好色你不正常，你只是什么方式好色而已。他不喝酒，但是就被江家盯住了，关键一刻就弄死你，下的毒药。
 
+那么现在习家好几个人已经被江志成、马云、吴征、孟建柱、王岐山的人给盯住了，周亮。你看着，习未来最让他感到恐惧的是来自他家人，他们用什么招儿对待令计划对待胡锦涛，就是什么招儿对待习近平，这是共产党历来的。］
 
+习神如果能够读懂郭先生爆出的这个惊天大料，那么这个刚刚被抓的姓姚的人应该不至于死于非命，那么对于这位已经被抓的姚先生提到的马云给弄了好几台跑车的习家人是谁呢？据BBC中文网[英媒：与习近平家族关系最牛外国人](https://www.bbc.com/zhongwen/simp/chinese_news/2012/10/121029_press_daniel_foa)（更新时间 2012年10月29日, 格林尼治标准时间12:01） ：
 
-**“It’s A Disastrous Day” – All Hell Breaks Loose In China’s Bond Markets**
+［几年前，36岁的英国商人丹尼尔（Daniel Foa）为了给一群中国和西方公司的总裁们留下深刻印象，曾经在一般人不可能进入的北京人民大会堂宴会厅订了一席晚餐。
 
-BY TYLER DURDEN
+人民大会堂是中国的政治中心，数周内，中国共产党将在那里举行十年一度的中国最高领导人换届的十八大，公认习近平将接替胡锦涛，成为中国国家主席。
 
-TUESDAY, OCT 12, 2021 – 04:11 AM
+所以在十八大之后，英国中产阶级家庭出身的丹尼尔应该会变成与中国最高层关系最紧密的外国人，因为他是习近平的外甥女婿，是习近平妹妹习安安的女儿吴雅凝的丈夫。］
 
-The US bond market may be closed, but it was fully open in China, and locals took advantage of this fact to do one thing: sell.
+根据目前看到的资料，Daniel Foa应该是高度疑似郭先生在[2021年10月13日文贵直播：记住今天这个大日子；傅政华的被抓，全世界的律师事务所，司法界大颠覆，大唤醒；马云是光明会成员；目前世界的危局，经济大崩溃，世界的黑暗势力和中共的黑暗势力因为病毒疫苗受到扭曲；房地产的倒塌会导致中共更加要打台湾，全面拖垮世界经济；中美之间必有一战](https://www.gtv.org/video/id=6166d150304e992109b45e6f)直播中提到的已经被江志成、马云、吴征、孟建柱、王岐山、周亮的给盯住的习家人之一，现在马云已经送了好几台跑车了，接下来，江志成、马云、吴征、孟建柱、王岐山、周亮这些人会为包括Daniel Foa在内的几个习家人制造什么样的灾难或丑闻呢？
 
-In the aftermath of our viral post “”Catastrophic” Property Sales Mean China’s Worst Case Scenario Is Now In Play”, China property firms bonds were hit with another wrecking ball on Monday as Evergrande was set to miss its third round of (offshore) bond payments in as many weeks and rival Modern Land became the latest scrambling to delay deadlines.
+不管Daniel Foa还是任何习近平的其他家人还是王岐山、孟建柱、马云、吴征、江志成的家人都不应该被以令谷那样的人为下毒并最终车祸致死，所以在我们为Daniel Foa和所有被盯住的习家人以及未被盯住的哪怕是盗国贼的无辜家人祈求安全的时候，我们每一个人都应该知道，灭共不仅是正义的必须，灭共也是习近平的必须，灭共也是盗国贼的必须，因为不灭共，每一个人都是不安全的。
 
-Having already suffered the fastest drop on record, Chinese junk bond markets – where property developer issuers dominate – were routed once again as fears about fast-spreading contagion in the $5 trillion sector, which drives a sizable chunk of the Chinese economy, continued to savage sentiment. Meanwhile, China Evergrande Group’s offshore bondholders still had not received interest payment by a Monday deadline Asia time, Reuters reported citing sources.
+撰稿：喜马拉雅的肉夹馍
 
-But while Evergrande’s default is now just semantics, and one week after Fantasia shocked bondholders with a surprise announcement it too would stuff creditors just weeks after it had said its liquidity was fine, which sent its bond plunging from par to 74 cents in seconds…
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-255.png)
-… other signs of stress included smaller rival Modern Land asking investors to push back by three months a $250 million bond payment due on Oct. 25 in part “to avoid any potential payment default.” This was not expected, and Modern Land’s April 2023 bond plunged more than 50% to 30 cents on the day.
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-256.png)
-Elsewhere, Xinyuan Real Estate proposed paying just 5% of principal on a note due Oct. 15 and swapping that debt for bonds due 2023. Fitch Ratings called the move a distressed debt exchange while downgrading the firm to C. At least the two companies are relatively small: Modern Land and Xinyuan have $1.35 billion and $760 million of dollar bonds outstanding, respectively, according to data compiled by Bloomberg. In comparison, Evergrande has $19.2 billion.
+审核：喜马拉雅的馍夹肉
 
-Among the declines for high-yield issuers, China Aoyuan Group’s 6.35% note due 2024 dropped 13.2 cents on the dollar to 57.5 cents; Sunac’s 6.5% dollar bond due 2026 declined 9.4 cents to 57.9 cents, leaving both poised to close at the lowest-ever levels.
+校对：Maarago
 
-Kaisa Group, which was the first Chinese property developer to default back in 2015, also saw some of its bonds slump to less than half their face value while supposedly “safe” names such as R&F Properties, and Greenland Holdings, which both have prestige projects in global cities like London, were also widely sold.
+（文章内容仅代表作者个人观点）
 
-Yields on Chinese junk-rated dollar bonds surged 291 basis points to 17.54% last week, the highest level in about a decade, according to a Bloomberg index.
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-257.png)
-And just to add insult to injury, China’s10-year government bond futures declined to a three-month low as the central bank’s latest liquidity draining weakened expectations of fresh monetary policy easing. Futures contracts on 10-year notes fall 0.4% to 99.14, the lowest level since July 12. 10-year sovereign bond yields rose 5bps, the biggest gains in two months, to 2.96%.
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-“It’s a disastrous day,” Clarence Tam, fixed income PM at Avenue Asset Management in Hong Kong, told Reuters, highlighting how even some supposedly safer “investment grade” firms had now seen 20% wiped off their bonds. “We think it’s driven by global fund outflow …. Fundamentally, we are worried the mortgage management onshore hits the developers’ cash flow hard,” he added, referring to concerns people could stop putting deposits down on new homes.
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-In other words, the dynamic we discussed over the weekend in which we explained why “China’s Worst Case Scenario Is Now In Play” is spreading from the biggest rotten apples – i.e., Evergrande, Fantasia – to collapsing confidence in the property sector, to credits that until now were seen as healthy and immune from a property implosion. In short, the bursting of the US housing bubble has moved to China, and yes – that culminated with the original Lehman moment.
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-Meanwhile, JPMorgan analysts highlighted how international investors were now demanding the highest ever premium to buy or hold ‘junk’-rated Chinese debt. There is now a whopping 1,200 basis point difference between the bank’s closely-followed JACI China high yield index and a similar index of investment grade AA-rated local Chinese market bonds, known as “onshore” bonds. The option-adjusted spread on the ICE BofA Asian Dollar High Yield Corporate China Issuers Index (.MERACYC) is also at its widest ever.
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-“Evergrande’s contagion risk is now spreading across other issuers and sectors,” JPMorgan’s analysts said, demonstrating a rare talent for observing the obvious.
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-And while today may have been “disastrous” it could get far, far worse if the market loses faith that Beijing will bail out the bond market.
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-“We believe policymakers have zero tolerance for systemic risk to emerge and are aiming to maintain a stable property market, and policy support could be forthcoming if the deterioration in property activity levels worsen,” said Goldman head of Asia Credit Kenneth Ho.
-
-Overnight we saw the first sign of such an implicit support in Harbin, the capital of northeastern Heilongjiang province, which became one of the first cities in China to announce measures to support property developers and their projects. According to a report on a website run by Harbin Daily, the city will offer as much as 100,000 yuan home-purchase subsidy to “talents” that meet certain requirements. The city would also make more existing homes eligible for housing provident fund loans to buyers; the moves are aimed at promoting stable and healthy development of the city’s property market, according to the document.
-
-The cash-strapped property developer’s troubles and contagion worries have sent shockwaves across global markets and the firm has already missed payments on dollar bonds, worth a combined $131 million, that were due on Sept. 23 and Sept. 29.
-
-While China’s property sector turmoil has so far been contained to the bond market, tensions amid offshore bonds could soon create headaches for the country’s equity traders, according to Gilbert Wong, head of Asia quantitative research at Morgan Stanley. High-yield credit spreads over comparable Treasuries are the widest on record — at about 1,866 basis points on an option-adjusted basis, data compiled by Bloomberg as of Friday show.  But a measure of stock volatility has actually fallen so far this month.
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-258.png)
-Still, the pair has shown a close relationship in recent years, which suggests their divergence may not last. In the end, a crash in the stock market, where hundreds of millions of Chinese residents are invested, may be just the kick Beijing needs to wake it out of its no bailout stupor.
-
-文章来源：[https://www.zerohedge.com/markets/its-disastrous-day-all-hell-breaks-loose-chinas-bond-markets](https://www.zerohedge.com/markets/its-disastrous-day-all-hell-breaks-loose-chinas-bond-markets)
-
-文章点评仅代表个人观点
-
-翻译：洛杉矶盘古农场 – Raul
-
-校对：洛杉矶盘古农场 – Mike Li
-
-编辑：洛杉矶盘古农场 – 明子
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

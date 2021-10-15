@@ -2,22 +2,21 @@
 ---
 
 
-## 拜登政府对中共国供应链的依赖是当前美国经济恶化的根源
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1595284/)
+## 樱花灭共诗——西江月•龙脉
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1595372/)
 
-新闻采编：青青     撰稿：苦尽甜来 (文来）
+作者：东京樱花团/藤田村野
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-259.png)
+大陆十一国庆，台湾双十邦欢。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/bx-edited.jpg)图片来源：TRUENORTH
+同根两岸各家喧，谁辨黄龙真赝？
 
+土匪篡权夺位，海棠劫难崩天。
 
-美参议员汤姆·科顿在10月13日“福克斯新闻”黄金时段节目中指出，美国制造业对中共国的依赖是导致目前该国供应链断裂的根本原因，而拜登政府推行的各项政策所造成的失业率上升和经济停滞等问题使得以上情况更加恶化。
-
-科顿议员在节目中表示：近30 年来，美国已将大量的工作岗位和制造业转移到了中共国。如今，想购买到一件非中国制造的商品并不容易。是拜登政府的国策导致了这一切，并由此引发了包括通货膨胀，各种商品供应短缺等一系列经济问题。
-
-(以上内容仅代表原文信息和作者个人观点)
-
-* * *
-
-校对，编辑，发稿：硫酸羟氯喹64
-
-[原文鏈接](https://www.breitbart.com/clips/2021/10/13/cotton-biden-helped-create-supply-chain-dependency-on-china-thats-the-root-of-current-problems/)
+操戈相刃弟兄歼，玉玺连夜出殿。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-260.png)
+（文章仅代表作者本人观点，与GNEWS无关）
+*插图：东京樱花团/闪闪
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-8.png)

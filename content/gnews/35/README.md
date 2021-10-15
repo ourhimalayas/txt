@@ -2,39 +2,58 @@
 ---
 
 
-## 中共国经济出現滞涨，9 月 CPI 与 PPI 剪刀差再创历史新高
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1594829/)
+## 加拿大安大略省的疫苗接种要求证明最终可能成为企业的自愿行为
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1594919/)
 
-作者：AsG諾雅
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
-中共国家统计局 10 月 14 日发布，9 月生产物价指数（PPI）年增 10.7%，创 1996 年以来新高，涨幅比上月扩大 1.2 个百分点，涨幅创 2006 年以来新高。而 9 月消费者物价指数（CPI）比去年同期上涨了 0.7%，略低于预期，表示需求端比较弱。两者之间大约 10 个百分点的剪刀差，继 8 月之后再次创下历史新高。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-14.jpg)
-9 月中下旬以来，一场近年来最严峻的限电限产潮席卷中共国 20 余个省份。原因包括中共内斗、运动式减排导致的“人祸”，又有外汇不足、煤价高企、电价难动的客观因素。
+**翻译：**圆成农场新闻组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-14-204901-edited.png)图片来源：网络
+据CTV NEWS报道：多伦多——安大略省的疫苗接种要求证明最终可能降级为自愿计划，因为省政府正在考虑一套新的措施，以缓解企业对大流行的限制。
 
-零对冲预测，如果煤炭价格和 PPI 之间的历史相关性成立，则可能很快会看到中共国的 PPI 翻三倍，从 9 月份的 10.7%，即将飙升到 30% 或更多。这样，利润率将崩溃，本已稀薄的现金流的暴跌将导致更多的违约和供应链瓶颈，甚至在获得商品的争夺中，将成本和 PPI 推向更高。
+知情人士说，福特政府正在制定第三步后战略，将取消对需要疫苗证书的企业的产能限制——该计划将于下周公布。
 
-中共官媒《中国证券报》周四报道称，今年至少有 13 家在 A 股上市的企业宣布涨价，以应对成本上升和供应紧张，表示生产商开始尝试将成本转嫁给消费者。
+作为”分阶段办法”的一部分，消息人士说，只要该省的疫情状况继续改善，政府正在考虑可能放宽疫苗接种规定的强制性证明。
 
-接下来，中共的经济政策将面临两难，如果放松则会导致通货膨胀飙升，并引发深度滞胀衰退；如果不放松，已经内爆的房地产市场将崩溃。面临经济动荡，请大家做好保命保财的准备。
+一位了解该计划的消息人士表示：“（我们）希望疫苗证书不再强制性。
 
-（本文仅代表作者观点）
+虽然没有实施该计划这一阶段的时间表，但该消息人士补充说，疫苗证书计划仍将是自愿的。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-14-204807-edited.png)图片来源：网络
+福特省长预计将在本周五发表讲话，比安大略省退出第3步的疫苗接种证明，QR守则实施提前一周。
 
-参考链接：
-1. [中共国经济出現滞涨，9 月 CPI 与 PPI 剪刀差再创历史新高](https://www.zerohedge.com/economics/beijing-trapped-china-producer-prices-surge-fastest-pace-26-years)
-2. [中共国经济出現滞涨，9 月 CPI 与 PPI 剪刀差再创历史新高](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211014-%E6%9D%8E%E5%85%8B%E5%BC%BA%E5%BC%BA%E8%B0%83%E5%8A%A0%E7%94%B5%E8%B4%B9%E4%B8%8D%E5%BD%B1%E5%93%8D%E9%80%9A%E8%83%80%E6%95%B0%E6%8D%AE-%E5%AD%A6%E8%80%85%E6%89%B9-%E6%8E%A9%E8%80%B3%E7%9B%97%E9%93%83)
-3. [中共国经济出現滞涨，9 月 CPI 与 PPI 剪刀差再创历史新高](https://cn.reuters.com/article/instant-view-china-sept-inflation-1014-idCNKBS2H406O)
-4. [中共国经济出現滞涨，9 月 CPI 与 PPI 剪刀差再创历史新高](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD9%E6%9C%88ppi%E5%B9%B4%E5%A2%9E10-7-%E5%88%9B25%E5%B9%B4%E6%9D%A5%E6%96%B0%E9%AB%98)
-5. [中共国经济出現滞涨，9 月 CPI 与 PPI 剪刀差再创历史新高](https://www.163.com/dy/article/GJP2J5PV05396T3S.html)
+卫生首席医疗官基兰·摩尔博士周四在接受记者采访时说，他预计安大略省在时机合适时将“分阶段取消”疫苗证书。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+摩尔说：“我们可能在某些场所不要求他们，但在群众集会上仍然要求他们。”我们没有看到整个认证过程突然结束，而是随着时间推移逐步退出。
 
-新闻访谈终审：Q大哥
-编辑/校对/审核：Hetangyuese
+摩尔说，逐步取消公共卫生措施，“使我们在安大略省一直做得很好”，他希望继续这样做。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+他还说，在他确定感恩节周末对该省COVID-19局势的影响之前，安大略省的限制不会放松。
+
+自7月以来，安大略一直处于“重新开放路线图”的第3步。由于8月份COVID-19病例增加，该省推迟了退出第3步。
+
+退出路线图第 3 步可能意味着在许多设置中增加了容量限制，但哪些限制将放宽的细节尚未得到确认。
+
+消息人士说，室内遮盖要求将保持不变。
+
+卫生部在周三对多伦多CTV新闻的早些时候声明中说，安大略省的COVID-19活性病例率是全国最低的。
+
+卫生部发言人说：“我们现在能够研究哪些公共卫生措施能够解除，同时保持谨慎的态度。”
+
+周三晚上，多伦多CTV新闻联系了福特的办公室，但没有得到回应。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-14-204742.png)图片来源：网络
+上周六，安大略取消了某些大型场馆的容量限制，包括用于音乐会、体育和电影的场馆。
+
+多伦多枫叶队周三在几乎满员的观众面前举行了主场揭幕战。
+
+周三晚上，多伦多卫生官员在接受CP24采访时说，Leafs的回归为该市的许多人提供了“非常需要的推动”，健康限制应该意味着会场仍然安全。
+
+她补充说，目前正在就是否在其他领域放松能力限制进行“积极讨论”。
+
+餐饮业本周对省政府表示失望，因为没有发布任何放松对企业限制的计划。
+
+新闻来源：[https://toronto.ctvnews.ca/ontario-s-proof-of-vaccination-requirement-could-eventually-be-made-voluntary-for-businesses-sources-1.5622432](https://toronto.ctvnews.ca/ontario-s-proof-of-vaccination-requirement-could-eventually-be-made-voluntary-for-businesses-sources-1.5622432)
+
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+
+编辑/发布：LILY
+
+21211014
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)

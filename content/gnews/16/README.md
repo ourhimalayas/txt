@@ -2,28 +2,21 @@
 ---
 
 
-## 有声|中共对美施压，要求取消关税和制裁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1595135/)
+## 日本厚生省将讨论莫德纳疫苗的不良反应问题
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1595238/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-10月9日，美国贸易代表戴琪和中共政府副总理刘鹤举行视频会议。
+#### 撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-31.png)(图片源自本文链接)
+日本雅虎网站10月14日消息：日本疫苗担当大臣堀内先生宣布， 15日将讨论莫德纳公司生产的中共病毒疫苗的不良反应问题。
 
-美方试图通过双边对话，磋商美中经贸协议第一阶段执行情况。中方强调，中美经贸关系对两国和世界非常重要，应加强双边经贸往来与合作。中方就取消关税和制裁进行谈判，并澄清对中共国经济发展模式和产业政策的立场。
+14日，堀内大臣访问了国家传染病研究所，并与该所所长肋田等人交换了意见。堀内大臣事后接受采访，在提到有关年轻男生接种莫德纳疫苗后出现心肌炎和其它疾病的情况时说：日本厚生省将在15日的会议上讨论接种疫苗的不良反应。
 
-戴琪在本周一的演讲中强调捍卫美国利益，与中方对话的目标是不要激化与中共国贸易紧张关系，持久的共存需要对行动的巨大后果负责和尊重。
+[信息源](https://news.yahoo.co.jp/articles/c8af08a31820cd6df088ec4257cf45b13f2e5392)
 
-某美国官员说，中共政府明目张胆的行为，表明它正在加倍推行以国家为中心的独裁主义，并抵制解决美方的结构性关切。美国最新贸易战略将引起对中共国”非市场“经济行为的关注。华盛顿将侧重于提高美国的竞争力，使市场多样化，并 “限制北京有害做法的影响”。
+非感染病专业人士的，刚刚上任的，堀内疫苗担当大臣，用自己的语言淡化了疫苗的副作用。没有根据的说“心肌炎通常很轻微，而且接种疫苗的好处更大”等。但请试想一下，能让一个先进国家的厚生省开会探讨的问题，会是小问题吗？
 
-文字版原文：[中共对美施压，要求取消关税和制裁](https://gnews.org/zh-hans/1592408/)
+(文章仅代表作者本人观点，与GNEWS无关)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

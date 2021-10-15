@@ -2,24 +2,47 @@
 ---
 
 
-## 有声|恒大危机持续，150万中国人恐将房财两空
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1595087/)
+## 秘翻在线：武毒所正在研究更致命的尼帕病毒是什么?
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1595152/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-根据路透社的消息，周一（10月11日），恒大第三次错过向海外债权人支付1.48亿美元的款项。彭博社指出，本周恒大将有1.5亿美元的美元债券的票面付款到期。《时代》杂志在12月报道，恒大有150万个家庭向他们提供了尚未建成公寓的押金。 这些家庭很可能会失去他们的押金。
+**翻译：Nstar**
 
-中共国过度建设房产，每个人都在这个过程中发了财。 现在，这些房产处于半空或空置状态，没有人偿还房产的债务。恒大首当其冲，其3000亿美元的债务高居世界首位。看来，中共国房地产和偿债危机比媒体报道的要大得多。
+**校对: 人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-15-114909.jpg)
+尼帕病毒 (NiV) 于 1999 年在马来西亚和新加坡的猪和人中爆发疾病后首次被发现。今年9月初,致命的尼帕病毒在印度喀拉拉邦再次爆发。
 
-文字版原文：[恒大危机持续，150万中国人恐将房财两空](https://gnews.org/zh-hans/1592524/)
+#### **症状**
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+最初的症状与流感相似：发烧、恶心和剧烈头痛。在一些患者中，还有呼吸问题。随后出现定向障碍、头晕和意识模糊。患者可能会昏迷并在一两天内死亡。尼帕病的死亡率为 70%。
+
+#### **病因**
+
+尼帕病毒是副粘病毒科*Henipavirus*属的一员。它与埃博拉病毒和 MERS 冠状病毒都是来自不同家族的 RNA 病毒，在RNA病毒中，遗传物质由核糖核酸（ribonucleic acid）组成，这是一种在将遗传信息转化为蛋白质过程中起决定性作用的大分子。
+
+这些高致病性病毒会导致出血热、脑部感染或急性呼吸窘迫综合征。
+
+#### **诊****断程序**
+
+常见的诊断方法有：细胞培养（仅限于安全级别 4 的安全实验室）、使用酶联免疫吸附测定 (ELISA) 或 IFA（间接荧光抗体）测试和逆转录酶聚合酶链反应 (RT-PCR) 进行的血清学测试）。它们仅在少数专业实验室进行，因为没有商业测试套件。
+
+#### **鉴别诊****断**
+
+尼帕病毒病很难与许多其他发热性疾病区分开来，至少在疾病初期是这样。必须排除病毒性肺炎的更常见原因，包括腺病毒和流感，以及病毒性脑炎，尤其是日本脑炎。
+
+#### **治疗**
+
+到目前为止，还没有针对尼帕病毒的疫苗接种或药物治疗——无论是针对动物还是针对人类。
+
+⚠️ *由于**对**其中一些病毒感染没有有效的治**疗**方法，人**们**担心它**们**会被用于生物恐怖主**义**。**–*
+
+**参考:**
+
+
+
+> [秘翻在线：什么是让人七窍出血的热病毒？](https://gnews.org/zh-hans/1553478/)
+
+
+
+
+
+> [秘翻在线：带你更多了解马尔堡和埃博拉病毒](https://gnews.org/zh-hans/1575256/)
