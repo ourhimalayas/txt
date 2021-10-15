@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/15/2021 1:40 PM (UTC)`
+
+10月15号：尊敬的战友们好，你们健身了吗？传播疫苗解药，C C P病毒的真相了吗？一切都已经开始！
+![img](https://media.gettr.com/group39/getter/2021/10/15/13/39/2d497f51-9fd9-fcbe-3dbb-64b0adf00945/out.jpg)
+
+---
+
 `@miles 10/15/2021 12:19 AM (UTC)`
 
 10月14号：尊敬的战友们好，明天10月15号，没有大直播。17号，星期天上午9点．7哥和战友们继续我们的大直播，一切都已经开始。🔥🔥🔥🌹🌹🌹
@@ -293,13 +300,6 @@ MILES GUO Live Stream 2021/10/11
 
 10月11号：尊敬的战友们好！这是川普总统办公室的官方帐号，希望大家分享这里的有关信息，和加上他的关注。🔥🔥🔥
 > `@45statements 10/11/2021 4:56 PM (UTC)`<br/>ICYMI: "AZ State Rep. Mark Finchem Speaks At Trump Rally In Des Moines: “34,000 Or 35,000 Fictitious Voters–We Believe We Found Them.”"<br/><br/>https://www.thegatewaypundit.com/2021/10/az-state-rep-mark-finchem-speaks-trump-rally-des-moines-34000-35000-fictitious-voters-believe-found/
-
----
-
-`@miles 10/11/2021 4:54 PM (UTC)`
-
-10月11号：刚才的视频大家的反应有卡顿，我再重发一次。
-![img](https://media.gettr.com/group47/getter/2021/10/11/16/54/2e40c462-1e5c-6146-1f2c-d04c045b15ec/out.jpg)
 
 ---
 
