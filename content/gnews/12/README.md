@@ -2,18 +2,27 @@
 ---
 
 
-## 中共国限制医疗器械进口，自给自足？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596086/)
+## “天空WiFi”带热激光通信！索尼成功演示“星地通联”系统
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596237/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-279.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnews.gbimonthly.com%2Fupload%2Farticle%2F2020%2F11%2F%25E9%2586%25AB%25E7%2599%2582%25E5%2599%25A8%25E6%259D%2590.jpg&amp;imgrefurl=https%3A%2F%2Fnews.gbimonthly.com%2Ftw%2Farticle%2Fshow.php%3Fnum%3D34773&amp;tbnid=yMpwn_5UBOZD5M&amp;vet=12ahUKEwjZtJ_UuszzAhXChXIEHRZFDC8QMygeegUIARDsAQ..i&amp;docid=2h3rblppW6MxuM&amp;w=1280&amp;h=720&amp;itg=1&amp;q=%E5%8C%BB%E7%96%97%E5%99%A8%E6%9D%90&amp;ved=2ahUKEwjZtJ_UuszzAhXChXIEHRZFDC8QMygeegUIARDsAQ)
-网易新闻近日报道，国家财政部及工信部联合发布的《政府采购进口产品审核指导标准》通知流出，这份通知明确规定了政府机构（事业单位）采购国产医疗器械及仪器的比例要求。其中137种医疗器械全部要求100%采购国产；12种医疗器械要求75%采购国产；24种医疗器械要求50%采购国产；5种医疗器械要求25%采购国产。这项标准从全国范围内，把公立医院在内的单位，采购国产仪器设备的比例进行强制规范。
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/12-8.jpg)[图片来源](https://www.sohu.com/a/273066731_819742)
+近年来，随着“天空WiFi”不断发展，特别是“星链”系统（Starlink）的试商用，更是让“激光通信”技术备受追捧。
 
-中共国医疗企业多少多是“作坊生产”从未进入世界前100名医疗器械名单，要求采购国产设备而有不足以解决问题，中共国财政部要求限制进口137种医疗器械名单中多是手术医疗器械和各种仪器设备，在外汇枯竭的情况下也是中共国不得已的选择。
+10月14日，索尼官方宣布，索尼计算机科学实验室（下称：索尼 CSL）和康斯贝格卫星服务公司（KSAT）成功地演示了从国际空间站（ISS）上的一个太空终端（ISS 的小型光学链路：SOLISS）到 KSAT 在希腊的商业光学地面站的光学下行链路。使用的通信格式与 CCSDS（141.0-B-1 + O3K 粉皮书）空间激光通信标准一致。
 
-消息来源：[国家财政部：进一步限制进口，137种医疗器械全部采购国产](https://mo.mbd.baidu.com/r/uwGl3JiK4M?f=cp&amp;rs=740884740&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0a5c16729399eec6)
+索尼这一终端体积小巧，未来能够实现高性价比的地面和太空通信解决方案。KSAT 光学解决方案总监 Hennes Henniger 表示：“这次活动对 KSAT 来说是一个很好的机会，可以验证我们第一个光学地面站的性能和光学未来的开始。”
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/ 知了知了
-发布：东京樱花团/平安卿卿*
+希腊 KSAT 光学地面站是光核网络（Optical Nucleus Network）的第一个站点。光核网络是航天机构和工业界之间的非正式合作，它将提供一个光学地面站网络，为太空中的光学终端服务。
+
+2020年，SpaceX透露，其已经首次成功在轨道上测试了星链卫星的“激光通信”。马斯克称，搭载激光后的传输速度，预计将比光纤快40%左右，路径也更短。因此，我们可能会看到高速的互联网传输能力，而无需接触地面。
+
+长期以来，受小型化以及视距传输的制约，激光通信主要被用于军事和特殊行业领域，因此发展相对缓慢，应用也比较狭窄。随着“天空WiFi”项目应用的不断落地，由于在数据传输方面的显著优势，激光通信将迎来巨大的发展机遇，也必将成为大数据时代的重要产品。
+
+[信息来源](https://finance.sina.com.cn/jjxw/2021-10-14/doc-iktzqtyu1385558.shtml)
+
+(文章仅代表作者本人观点，与GNEWS无关)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

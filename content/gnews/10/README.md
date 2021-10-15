@@ -2,20 +2,37 @@
 ---
 
 
-## 疫苗接种者，乘坐专属列车，享受定制旅游
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596123/)
+## 完全疫苗接种加州大学生因病毒并发症去世
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596254/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-280.png)[示意图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg1.jiemian.com%2F101%2Foriginal%2F20210325%2F161666736868514200_a700xH.png&amp;imgrefurl=https%3A%2F%2Fwww.jiemian.com%2Farticle%2F5862147.html&amp;tbnid=X7vQS3gGPwvJ_M&amp;vet=12ahUKEwiRtP-lv8zzAhUagXIEHeE9CqkQMygAegUIARCYAQ..i&amp;docid=cblEZvUvrtlvKM&amp;w=700&amp;h=525&amp;itg=1&amp;q=%E4%B8%93%E5%88%97&amp;ved=2ahUKEwiRtP-lv8zzAhUagXIEHeE9CqkQMygAegUIARCYAQ)
-读卖新闻报道，JR东日本公司15日宣布，将从明年年初，开始运营新型冠状病毒疫苗接种完成者专用的新干线，将临时列车座位出售给旅行社，旅行社将组织仅限接种者参加的旅游。运行数量等详细规划今后将完善。
+作者：雪梨
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+21岁的美国加州佐治亚大学的肖恩·库恩（Shawn Kuhn），在完全接种新冠疫苗后，死于近期突然感染的新冠病毒，他在去世之前与病魔战斗了大约6个星期。
 
-参加该旅游活动者，必须出示两次接种证明，如果因为疾病等无法接种疫苗者，PCR检查结果为阴性或许有机会参加。从15日开始，子公司的旅行社开始推出只针对疫苗接种完成者地旅游活动。整个集团旗下地如酒店、电车等服务也将提供疫苗接种者折扣及礼品。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-25.jpeg)
 
-近期，日本中共病毒新增感染人数急剧下降，社会各界迫不及待恢复生产活动，并通过各种优惠活动及特定服务，呼吁接种新冠疫苗，然而日本官方也并不能肯定感染人数急剧下降具体原因，并预估第6波感染还会再来。
+库恩是运动和体育专业的大四学生，身体健康，在竞技项目中获奖，在校园兼职私人教练。
 
-信息来源：[ワクチン接種者専用の新幹線、来年から運行…ツアーにＰＣＲ検査陰性でも参加可能](https://www.yomiuri.co.jp/economy/20211015-OYT1T50161/)
+尽管新冠病毒对30岁以下人群危险性极低，但在学校和工作场所的胁迫下，年轻人正在大规模的接种，库恩和许多比他更年轻的人在这种环境下，被迫接种了含胚胎细胞的毒针。
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+前辉瑞公司的员工凯伦·金斯敦此前揭露，较未接种时，人体感染病毒的机率增加了3倍，而当接种第二剂后，随着时间的推移，人体免疫力逐渐减弱，感染率将持续升高。
+
+今年6月，加州15岁少年接种辉瑞疫苗第二针2天后，死于“应激性心肌炎并伴有冠状动脉炎症”。此前，美国疾病控制和预防中心（CDC）也承认，接种mRNA疫苗的年轻男性有罹患心肌炎和心包炎的风险。如果美国政府仍强制推行疫苗接种令，随着在校学生大面积接种疫苗，越来越多的年轻人将因此受到伤害，甚至死亡。
+
+(本文仅代表作者观点)
+
+参考链接：[‘Fully vaccinated’ 21-year-old personal trainer dies from COVID complications](https://www.lifesitenews.com/news/fully-vaccinated-21-year-old-personal-trainer-dies-from-covid-complications/?utm_source=top_news&amp;utm_campaign=usa)
+[https://www.watsonhunt.com/obituaries/Shawn-Kuhn/#!/Obituary](https://www.watsonhunt.com/obituaries/Shawn-Kuhn/#!/Obituary)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

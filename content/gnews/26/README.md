@@ -2,25 +2,20 @@
 ---
 
 
-## 秘翻在线：前美国卫生部门官员呼吁川普站出来停止疫苗接种
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1595958/)
+## 西方知名的病毒专家重磅演讲戳穿疫苗谎言
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1596024/)
 
-#### 翻译/撰稿：zzballack
+翻译： Rosa
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片2-9.jpg)图片来源：stat news
-据《Red Voice Media》10月14日报道，斯图·彼得斯（Stew Peters）一直以来都是川普总统的粉丝，但在一件事上他不同意这位前总统的观点，那就是中共病毒疫苗。
+视频：澳洲天好蓝
+视频来源：https://rumble.com/vnbv86-winning-the-war-against-therapeutic-nihilism-and-trusted-treatments-vs-unte.html
+知名的COVID-19专家和拥有众多出版期刊的医生Peter McCullough博士向同事们提供了一份全面的、有据可查的报告），内容涉及由于基因转移疫苗运动而在西方发生的 “令人难以置信的暴行”，对儿童接种疫苗的 “牢不可破的抵抗 “的必要性，以及公共卫生机构 “令人震惊的…无能和故意的错误行为”。
 
-彼得斯10月13日在他的节目中斥责川普推动全民接种疫苗的做法，因为这些疫苗在安全性方面已被证明是非常有问题的。随后，他与保罗·亚历山大（Paul Alexander）博士进行了交谈，后者在大流行开始时担任川普的美国卫生与公众服务部（HHS）高级顾问。
+McCullough曾提出，世界上没有人比他在这个问题上更有权威，他详细分析了多项科学研究和数据报告，证明了 “疫苗计划的失败”，有效的早期治疗的压制，以及自然免疫的 “强大、完整和持久 “的品质。
 
-川普自卸任总统以来一直在推广疫苗。亚历山大却截然相反，他一直在反对疫苗。
+（本文纯属个人观点，与Gnews无关）
 
-亚历山大在一开始就赞扬了川普，说：“川普是我一生中最伟大的总统，我认为甚至可以媲美亚伯拉罕·林肯(Abraham Lincoln)。他为美国的少数族裔所做的事情是令人难以置信的。”
+[原文链接：](https://rumble.com/vnbv86-winning-the-war-against-therapeutic-nihilism-and-trusted-treatments-vs-unte.html)
 
-尽管如此，亚历山大说他坚决不同意川普对疫苗的看法，而且他对川普有一个请求，希望这位前总统能听从。“现在这些疫苗有严重的问题，川普总统有责任后退一步，我明白他被这些疫苗误导了。川普被科学人士和那些疫苗开发者误导了，这些疫苗无法预防病毒，它们实际上是有害的，会导致死亡。”
-
-这就是为什么亚历山大呼吁川普站出来，警告美国人民这些疫苗所带来的危险，特别是对儿童的危险。亚历山大强调说：“孩子绝对不应该注射这种疫苗，我祈祷川普的儿子和孙子永远不要接种这些疫苗。它们没有任何好处，只会带来潜在的伤害。我同意儿童死于中共病毒的风险几乎为零的说法。但如果我们给儿童注射这些疫苗，他们死于疫苗的人数将远远超过病毒。儿童的先天免疫力足以应对中共病毒。”
-
-采访最后，彼得斯问亚历山大，如果他现在能和川普谈话，会对他说什么。亚历山大回答说：“我会告诉川普，虽然我仍然支持他，并觉得他在第二个任期会很出色。但是很明显，这些疫苗有问题，无法提供保护。很多人都因疫苗受到了伤害甚至死亡。我们不应该去接种疫苗，并远离疫苗诊所。因此，我希望川普总统至少能立即来到谈判桌前，为了孩子，立即停止这些疫苗。我恳求川普至少站出来，阻止食品药品监督管理局（FDA），阻止疾控中心（CDC）为儿童接种疫苗。他的声音将激励我们继续战斗，但我们需要他来帮助我们。”
-
-新闻来源：[HHS Senior COVID Advisor Says Trump Was Misled On Vaccines](https://www.redvoicemedia.com/2021/10/hhs-senior-covid-advisor-says-trump-was-misled-on-vaccines/)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

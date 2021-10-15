@@ -2,9 +2,12 @@
 ---
 
 
-## 中共病毒制造者、疫苗推广者和疫苗生产者之间的惊人联系
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1595884/)
+## 圣诞老人因为没接种中共病毒疫苗而失业
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1595981/)
 
-08/23/2021 一位爆料人: 武汉的中共国生物实验室归葛兰素史克所有，而葛兰素史克拥有中共病毒疫苗的生产商辉瑞。一些疫苗推广方与中共病毒制造者或疫苗生产商有密切联系。
+- 制作：葛大饼
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)

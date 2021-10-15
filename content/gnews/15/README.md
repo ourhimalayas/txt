@@ -2,28 +2,33 @@
 ---
 
 
-## 中共欲给14岁以下女孩接种宫颈癌疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596054/)
+## 迫于中共言论管控，微软旗下社交平台领英（LinkedIn）宣布关闭
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1596208/)
 
-作者：在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月14日，文贵先生盖特发文称，全世界人民饱受CCP病毒和毒疫苗戕害的同时，中共山东济南市率先启动为未成年幼女接种HPV宫颈癌疫苗的计划，该计划预计11月份正式开始执行。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1015AM（1-5）視頻備用.002.jpeg)
-HPV疫苗用于预防病毒感染引起的宫颈癌，于2014年在美国获批上市。2018年4月28日，HPV疫苗在中国上市，其接种适应年龄范围应该是16岁至26岁的女性。而此次中共继在鄂尔多斯和厦门之后，再次将济南等15个城市作为试点城市,   给9至14岁 幼女施打 HPV疫苗，却对宫颈癌高发年龄的35～64岁女性仅仅进行“筛查”，这一反常的举措在人民福利为零的中共国，在全世界“疫苗战争”的关键时间点，都说明了其中蕴含着阴谋。目前广东省也正在推进适龄幼女HPV疫苗的接种，并称 “争取成为第一个全面接种HPV疫苗的省份”。
-(本文仅代表作者观点)
+**撰稿：日本东京方舟农场 Kevin wang**
 
-参考链接：[全国首批试点！济南11月起14岁以下免费接种HPV 疫苗](https://baijiahao.baidu.com/s?id=1711145025842353973&amp;wfr=spider&amp;for=pc)
+10月14日，微软领英表示，由于“中共国越来越具挑战性的经营环境和合规要求越来越高”，将关闭网站，结束在中共国7年的运营。此举也代表最后一个在中共国公开运作的美国大型社交网站宣告关闭。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+领英在中国有5300万用户，约占其总用户数的7%。微软近期表示，领英的年收入已突破100亿美元。报道称，有数名驻中共国或台湾的记者与智库研究员，均收到来自领英的邮件，表示由于他们的领英个人资料含有被禁止或是敏感的内容，所以他们的帐号、留言以及动态将在中共国境内被屏蔽。
 
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
+德国之声曾针对此事询问领英，领英表示：“为了给我们在中共国和世界各地的会员创造价值，我们将在必要时执行中共政府对内容的限制。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/59369558_303.jpg)图片来自于网络
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国乔治敦大学教授麦德罗斯对华尔街日报表示，如果领英继续代表中共当局进行审查，其声誉和全球商业模式也将面临风险。
+
+有知情人士透露，中共的互联网监管机构在3月份要求领英管理人员加强监管其内容，并限期30天内完成要求。
+
+据英国《金融时报》报导，拜登政府对领英退出中共国的决策表示欢迎，并指责中共政府强迫公司成为其“镇压和专制行为的同谋”。
+
+《金融时报》引述一位美国高阶官员的说法表示：“私营部门和国际社会应该反对中共利用其市场武器来扼杀自由言论和人权。”
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[领英关闭中国网站 “一企两制”终告结](https://www.dw.com/zh/%E9%A2%86%E8%8B%B1%E5%85%B3%E9%97%AD%E4%B8%AD%E5%9B%BD%E7%BD%91%E7%AB%99-%E4%B8%80%E4%BC%81%E4%B8%A4%E5%88%B6%E7%BB%88%E5%91%8A%E7%BB%93/a-59512205)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

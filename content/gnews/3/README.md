@@ -2,23 +2,29 @@
 ---
 
 
-## 促生育！中共全面清理涉计划生育法规
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596241/)
+## 文贵先生分析中共试图&#8221;武统&#8221;台湾的内因和外因
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596326/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/erw.jpg)[图片来源](https://read01.com/xm60dA5.html#.YWmJRxpBw2w)
-据“澎湃新闻”报道，目前中共全国人大常委会正在开展涉及计划生育法规规章、规范性文件的专项清理工作。
+作者：文龍
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月13号，文贵先生在直播中分析了中共习近平决意要”武统”攻打台湾的动机，其中内因来自习近平一直以来的皇帝梦，他想做当代的秦始皇，一统天下拿回台湾，留名史册。 同时也是因为中共国内目前愈演愈烈的房地产崩盘压力和激烈的党内政治斗争所致。习近平想用一场局部战争来缓解所有这些无法避免的内部矛盾。
 
-据悉，此次专项清理工作，主要依据中共新修订的《中华人民共和国人口与计划生育法》，重点围绕三孩生育政策、取消社会抚养费、废止相关处罚、处分规定以及将入学入户入职等与个人生育情况挂钩的规定，开展涉及计划生育法规规章、规范性文件的专项清理工作。目前，清理工作仍在进行中。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-2.jpeg)
 
-近年来，随着中共经济形势的急转直下，加之“房医学”新三座大山对老百姓的极端压榨，导致中共国生育率不断走低。可以说，中共及其盗国贼治国模式才是老百姓生不起、不愿生的根源，清理法规这种“头疼医头脚疼医脚”的做法，无助于破解人口困局。中共不灭，中国的人口灾难还将持续恶化。
+外部因素首先是中共主管外交事务的王毅和杨洁篪，他们的欺上瞒下和报喜不报忧，如同当年的袁克定和袁世凯，导致习近平误判国际形势，认为联合国和俄罗斯等周边国家已经默许中共”武统”台湾，建功立业的时机已经成熟，况且由于美国政府的软弱和绥靖，以及来自台湾内部的卖台贼呼声，都给了中共和习近平更多的信心，这一切都使得台海战争的脚步越来越近了。
 
-信息来源：
+(本文仅代表作者观点)
 
-[全国人大常委会：已部署开展涉计生法规规章专项清理工作](https://news.sina.com.cn/c/2021-10-14/doc-iktzqtyu1428500.shtml)
+参考链接：[https://gettr.com/post/pe5ia99a21](https://gettr.com/post/pe5ia99a21)
 
-(文章仅代表作者本人观点，与GNEWS无关)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
