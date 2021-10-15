@@ -2,15 +2,66 @@
 ---
 
 
-## 秘翻在线：美国前总统克林顿住进重症监护室 住院原因众说纷纭
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1595736/)
+## VAERS：可能至少有 16万美国人死于新冠病毒疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1595742/)
 
-#### 翻译/撰稿：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1935.jpg)图片来源：theguardian
-据今日俄罗斯电视台 (Russia Today TV)的报道，前美国总统比尔·克林顿（Bill Clinton）因不明原因感染,正住院接受重症监护治疗，一位发言人称，克林顿并非感染中共病毒，目前他正在康复中。
+- **编译：Jenny Ball**
 
-克林顿的发言人安吉尔·乌雷纳（Angel Urena）在周四晚上的一份声明中说：“75岁的克林顿总统于周二晚上被送入加州大学欧文分校（University of California Irvine）的医疗中心，接受非中共病毒相关感染的治疗。”
 
-《国会山报》（The Hill）援引一位“熟悉”情况人士的报道称，克林顿患有败血症，或血液感染。也有另外的消息称，克林顿在重症监护室主要是出于 “隐私原因”，现在 “情况好转”。美国有线电视新闻网（CNN）的报道称，克林顿这次住院与他之前的心脏问题无关，而且克林顿可能最快于周五出院。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip332.png)
 
-新闻来源：[Former US President Clinton in ‘good spirits’ after being hospitalized in ICU with blood infection ‘not related to Covid-19’](https://www.rt.com/usa/537523-bill-clinton-icu-blood-infection/)
+如果根据目前我们了解的漏报情况进行推断，来自 VAERS（疫苗不良事件报告系统）的最新数据[表明](https://vaersanalysis.info/2021/10/08/vaers-summary-for-covid-19-vaccines-through-10-1-2021/)，到目前为止，可能有超过 160,000 名美国人死于武汉冠状病毒（**Covid-19****）****“****疫苗****”**。
+
+自去年 12 月注射剂作为“极速行动”(Operation Warp Speed)的一部分首次发布以来，VAERS官方已经报告的 16,310 人死于中共病毒疫苗。由于只有 1% 的疫苗伤害被报告给 VAERS，因此，美国的真实死亡人数可能高达 163.1 万。
+
+更保守的估计可能使用 10 的系数，这意味着美国约有 163,100 人死亡。无论哪个数字是正确的，我们至少知道，死于注射中共病毒疫苗的人数比政府公布的要多得多，人们需要了解这一点，以便明智地决定是否加入统计。
+
+正如[我们所报道的那样](https://www.naturalnews.com/2021-10-11-phd-150000-americans-died-covid-vaccines.html)，其他人也同意新冠病毒疫苗导致的死亡人数被严重低估， 其中就有计算生物学家、分子生物学家和免疫学家杰西卡·罗斯（Jessica Rose, PhD）博士，他估计美国约有 150,000 人死于新冠病毒疫苗。
+
+有多种方法可以用来计算出比政府声称的更真实（即更准确）的粗略估计值。 **政府轻描淡写伤害和死亡数据，而夸大“感染病例”，显然是为了符合大型制药公司的最佳利益**，这正是我们在这场大流行的过去几个月中看到的情况。
+
+**Covid ****疫苗可能杀死的人，比在越南战争中杀死的美国士兵还要多。**
+
+主流媒体几乎没有人关注 VAERS，即使它是跟踪所有疫苗伤害和死亡的官方数据来源，而且，它被大大低估了，但至少可以让我们了解当前的伤亡人数。
+
+**即使按照VAERS报告的数字，武汉流感疫苗也是几十年来投放市场的最致命的“疫苗”。 事实上，它们似乎比所有其他疫苗组合起来更危险——这还只是基于 VAERS 报告的内容**。
+
+使用乘数推断，Covid 疫苗是一场全面的药物大屠杀，**可能比整个越南战争对美国士兵造成的死亡还多**。
+
+**中共病毒疫苗肯定比 9/11 恐怖袭击更致命至少五倍**。换句话说，仅根据迄今为止向 VAERS 报告的内容，相当于 9/11 袭击了五次，“极速行动”夺走了更多的生命。
+
+使用来自 VAERS的数据乘以10，也是很保守的，到目前为止，就美国军事伤亡人数而言，由 Covid 疫苗造成的死亡人数就像三场越南战争。
+
+换句话说，我们在谈论天量级数字，而媒体却继续对所有这些保持沉默。相反，他们不断告诉我们大家卷起袖子，鼓励我们所爱的人也一样做，以“挽救生命”并停止连累老人家。
+
+“**媒体不报道这些重要信息应该是犯罪！**” 一位在 VAERS 博客上写的评论说。
+
+“所有主流媒体，甚至包括 Fox News 和 Newsmax，都拒绝谈论‘疫苗’（实验性基因疗法）的明显危险，”另一位写道。“**他们是同谋和腐败者**。”
+
+有关中共流感疫苗造成的伤亡的最新消息，请访问[ChemicalViolence.com](https://chemicalviolence.com/).
+
+**评论：**
+
+**如果5次911袭击唤不醒人们，如果3次越战痛不醒人们，那么我们只有走向地狱。**
+
+**文贵先生说到：所有推动强制打“疫苗”的人，无论是政府高官、科学大咖、精英大鳄、媒体，都将受到应有的审判！**
+
+**我们不断传播真相， 通过法律行动，说“不”，就能让审判的时刻更早到来！**
+
+**文章内容来源：**
+
+[**VaersAnalysis.info**](https://vaersanalysis.info/2021/10/08/vaers-summary-for-covid-19-vaccines-through-10-1-2021/)
+
+[**NaturalNews.com**](https://www.naturalnews.com/2021-10-11-phd-150000-americans-died-covid-vaccines.html)
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**素材链接**：**[newstarget.com](https://www.newstarget.com/2021-10-13-vaers-160000-americans-have-died-covid-vaccines.html)**
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)

@@ -2,42 +2,38 @@
 ---
 
 
-## 随着能源危机加剧和工厂停工，中共国接纳澳洲的煤炭
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1596036/)
+## 鲁比奥等参议员呼吁 从华为剥离的荣耀必须列入黑名单
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596087/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GettyImages-1231937500-e1634097009429.jpg)图片来源：fortune.com
-#### 编译：小红帽
+作者：七哩香
 
-在面临停电和工厂停工的情况下，能源匮乏的中共国对澳大利亚煤炭的禁令已被非正式地取消。这是一种耻辱性的损失。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-Braemar ACM船舶经纪公司的货运分析师尼克·里斯蒂奇（Nick Ristic）表示，在中共国港口外等候的少数澳大利亚货物获准靠泊和卸货。
 
-里斯蒂奇先生告诉《纽约数字新闻》（New York Digital News），他认为有45万吨煤炭被卸下。
 
-其他分析师引用了较低的数字，但所有人都同意，中共国关于惩罚澳大利亚的强硬言论未能经受住即将到来的第一个冬天的寒流和相关经济影响。
+本周四，三名共和党参议员鲁比奥、斯科特、和科宁发信给美国商务部长雷蒙多，呼吁拜登政府，把从中共电信巨头华为剥离出去的手机生产商“荣耀 ”，加入到商务部黑名单。称这家中国国有公司躲避了美国的出口管制，从而对美国国家安全构成威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1015AM（1-5）視頻備用.005.jpeg)
+这几位参议员表示，华为为了避免美国对它实施的出口控制，把荣耀卖给由深圳市政府控制的「深圳智信新信息技术有限公司」，从而通过荣耀不受限制地获得华为目前无法得到的宝贵的美国技术，华为的一些高管、工程师以及其他雇员，也都转到了荣耀。
 
-随着寒冷天气席卷中共国大部分地区，发电厂争相囤积煤炭，燃料价格创历史新高，中共国的能源危机已经加深。
+2019年，川普政府以危害国家安全为由，把华为列入商务部的实体名单，导致华为无法获得关键的美国软件和硬件，包括半导体。荣耀是华为在2011年9月推出的一个子品牌，2013年12月开始独立运作。2020年11月17日，荣耀被华为剥离。
 
-由于季节性天气模式带来从中共国北方吹来的寒风，预计家庭和办公室的供暖电力需求将猛增。
+今年八月，以众议员外交委员会的麦考尔议员为首的14名共和党众议员，也曾呼吁商务部把荣耀列入黑名单。
+(本文仅代表作者观点)
 
-预报员预测，在接下来的2-3天内，一些中部和东部地区的平均气温可能会下降多达16摄氏度。
+参考链接：[鲁比奥等参议员呼吁把从华为剥离出来的手机生产商荣耀列入黑名单](https://www.voachinese.com/a/Honor-rubio-scott-cornyn-entity-list-20211014/6271666.html)
 
-煤炭短缺、燃料价格高企和大流行后工业需求的蓬勃发展，引发了这个世界第二大经济体的普遍电力短缺。
 
-自9月以来，中共国30多个地区中至少17个地区已经实施电力配给，迫使一些工厂停产，扰乱了供应链。
 
-吉林、黑龙江和辽宁这三个东北省份是上个月受电力短缺的重灾区，包括内蒙古和甘肃在内的华北几个地区已经开始以煤炭为燃料的冬季供暖，以应对比正常天气更冷的的情况。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+新闻访谈终审：FoxRina
+编辑/校正/发稿：我不在这里
 
-**参考新闻：**[China admits Australian coal as energy crisis grows (thenewdaily.com.au)](https://thenewdaily.com.au/news/world/asia-news/2021/10/15/china-unloads-australian-coal/)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

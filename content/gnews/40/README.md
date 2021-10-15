@@ -2,29 +2,56 @@
 ---
 
 
-## 秘翻在线：拜登气候特使克里向中共国公司投资了一百多万美元
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1595722/)
+## 护士吹哨：医院从未不堪重负
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1595724/)
 
-#### 翻译/撰稿：zzballack
-
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16342868991.png)图片来源：纽约邮报
-据《华盛顿自由灯塔》（Washington Free Beacon）10月14日报道，根据约翰·克里（John Kerry）今年年初提交的财务披露报告,他和他妻子向中共国的投资集团高瓴中国价值基金（Hillhouse China Value Fund L.P.）投资了100多万美元，该基金是中共国人工智能行业的主要资助者，包括投资了因侵犯维吾尔人人权而被美国列入黑名单的上海依图网络科技有限公司（YITU Technology）。
-
-根据依图科技公司2020年11月提交给上海证券交易所科创板的首次公开募股招股书副本显示，高瓴中国价值基金是依图科技的顶级股东之一。据报道，该基金在2017年向依图科技注资5500万美元。依图公司协助中共利用高科技对维吾尔人进行监控，并帮助中共政府开发了一套面部识别软件，按种族和民族将人分类。2019年，美国商务部（U.S. Department of Commerce）将依图科技公司列入限制贸易的黑名单，原因是“在中共对维吾尔族、哈萨克族和其他穆斯林少数民族成员进行镇压、大规模任意拘留和高科技监控的恶行中涉嫌违反和侵犯人权。”
-
-作为拜登总统的气候特使，克里在与中共政府进行气候变化协议谈判时，总是淡化中共对维吾尔人的迫害。上个月，当被问及是否有必要用人权来换取中共在气候方面的让步时，克里说：“生活总是充满了艰难的选择。“共和党立法者9月份担心说，克里正在悄悄游说反对参议院批准的一项法案，该法案将禁止从中共国进口与维吾尔奴隶劳工有关的产品。
-
-情报分析师安德尔斯·科尔 (Anders Corr)称克里向中共国投资“令人惊讶和失望”。他说：“克里在中共国问题上起着主导作用，不仅仅限于气候谈判，他和他的家人应该被禁止以一种会造成利益冲突的方式进行投资。中共将人工智能行业视为其经济和军事发展的极少数最重要的战略部门之一，这一部门的扩张将使中共成为全球霸主的目标得以实现。任何美国人都不应该投资中共的人工智能行业。”中共政府制定了到2030年成为全球人工智能领导者的目标，这引起了美国国家安全专家的关注，他们说中共正在将这项技术军事化，并对持不同政见者和国内少数群体实施极权式的控制。
-
-高瓴中国价值基金是高瓴资本集团 (Hillhouse Capital Group)的一部分，高瓴资本的创始人是中国商人张磊。张磊是上海人工智能战略专家咨询委员会的成员，该委员会由中共政府创建，是其努力提升人工智能技术的一部分。张磊在2019年成为中美交流基金会的成员，该组织与中共政府的海外影响力行动有关。张磊和高瓴资本集团还资助了中国人民大学的高瓴人工智能学院。
-
-新闻来源：[Kerry Owns Stake in Chinese Investment Group That Funds Company Blacklisted for Human Rights Abuses](https://freebeacon.com/biden-administration/kerry-owns-stake-in-chinese-investment-group-that-funds-company-blacklisted-for-human-rights-abuses/)
-
-关键词：
-
-约翰·克里 高瓴中国价值基金 人工智能 依图网络科技公司 蓝金黄 维吾尔人
+- 编译：Jenny Ball
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-22.png)
 
-。
+据报道，一名前护士由于 COVID-19 疫苗要求的宗教豁免被拒绝而被解雇，他对那些歇斯底里的说法提出了相当严厉的指责，即 ICU 床位因所有未接种疫苗的病人而满负荷运转。
+
+在接受《生活新闻》[LifeSiteNews](https://www.lifesitenews.com/news/exclusive-nurse-fired-for-refusing-covid-jab-reveals-truth/)采访时，曾在弗吉尼亚州温彻斯特（Valley Health）担任急诊室护士的布拉德·麦克道威尔（ Brad McDowell） 解释说，“满负荷”状态与未接种疫苗的患者关系不大，而更多是由于未接种疫苗的工作人员[抗拒](https://www.westernjournal.com/alabama-hospital-defies-biden-administration-ends-covid-vaccine-requirement-staff/?ff_source=Email&amp;ff_medium=conservative-brief-CT&amp;ff_campaign=dailyam&amp;ff_content=conservative-tribune)医院、州和联邦的命令。
+
+“他们无法开放是因为他们没有护士和技术人员，”他在周末发布的视频采访中解释说，采访者吉姆·黑尔问到，[医疗保健人员的短缺](https://www.westernjournal.com/new-york-health-care-workers-get-massive-win-court-covid-vaccine-mandate/?ff_source=Email&amp;ff_medium=conservative-brief-CT&amp;ff_campaign=dailyam&amp;ff_content=conservative-tribune) 是否由大流行引起的，但实际上是许多卫生保健专业人员拒绝遵守严格的疫苗规定的结果。
+
+“我可以告诉你，[Valley Health]没有开放所有床位，我确实知道这一点，”麦克道尔在谈到他以前的工作地点时说道。
+
+他解释说：“有些床位关着，他们说是……满员了，但这不是因为床位不够。”
+
+“这不是因为病人过多，这是因为劳动力不够，”他说。
+
+**换句话说，未接种疫苗的患者并没有让医院不堪重负； 医院解雇了许多拒绝遵守疫苗规定的工人，结果现在人手不足。**
+
+当您考虑到在整个大流行期间，医护人员不仅对 COVID-19 病毒最为熟悉，而且他们最有可能大声疾呼疫苗。
+
+首先，与消防员、EMT 和警察等一线工作人员的情况一样，大多数护士和医生都曾接触过冠状病毒，许多人都感染并幸存下来。
+
+尽管这对制造和强制接种疫苗的人来说非常不方便，但事实仍然是，有充分的证据表明，**天然免疫至少可以像疫苗本身一样抵御病毒**。
+
+“你仔细想想就知道，是那些政治精英、媒体精英、疾控中心最高级别的人、制药业，他们在运行，他们在掌控着整个故事话语权，”麦克道尔解释说。
+
+“**他们是推动疫苗的人，他们是从每个接种疫苗人身上受益最大的人**，”他说。
+
+与此同时，医院的病人和辛勤工作的前线工作人员因这些命令而受害。
+
+一年前，护士和医生是这场大流行的著名英雄——现在他们因拒绝接种疫苗而被过河拆桥。
+
+在大流行开始时，他们被视为全人类的救世主。他们的困境，经常被用来说服我们其他人闭嘴，排队，无视对我们公民自由前所未有的侵犯和关注。
+
+突然之间，既然如此多的人对这种疫苗产生了怀疑，并且愿意并准备好与 COVID-19 患者一起工作，而无需自己接种疫苗，他们突然就没有影响力了吗？
+
+卫生保健系统、各州和拜登政府的广泛任务，正在造成卫生保健工作者短缺，而他们继续告诉我们，这是一种可怕的致命流行病，而这种流行病是由那些拒绝接种疫苗的人造成的。 然而，显然，根据麦克道尔的说法，**情况远非如此**。**我们还要忍受这种人为制造的流行病多久**——**在这个过程中，我们国家重要的医疗保健基础设施将受到多大的破坏？**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**素材来源：**[www.westernjournal.com](https://www.westernjournal.com/nurse-whistleblower-debunks-leftist-lie-hospitals-beds-unvaccinated-patients/?utm_source=Email&amp;utm_medium=conservative-brief-CT&amp;utm_campaign=dailyam&amp;utm_content=conservative-tribune&amp;ats_es=%5B-MD5-%5D)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)

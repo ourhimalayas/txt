@@ -2,38 +2,18 @@
 ---
 
 
-## 台防长称若遭中共侵略国军将应战
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596028/)
+## 中共国限制医疗器械进口，自给自足？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596086/)
 
-作者：在远方
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-279.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnews.gbimonthly.com%2Fupload%2Farticle%2F2020%2F11%2F%25E9%2586%25AB%25E7%2599%2582%25E5%2599%25A8%25E6%259D%2590.jpg&amp;imgrefurl=https%3A%2F%2Fnews.gbimonthly.com%2Ftw%2Farticle%2Fshow.php%3Fnum%3D34773&amp;tbnid=yMpwn_5UBOZD5M&amp;vet=12ahUKEwjZtJ_UuszzAhXChXIEHRZFDC8QMygeegUIARDsAQ..i&amp;docid=2h3rblppW6MxuM&amp;w=1280&amp;h=720&amp;itg=1&amp;q=%E5%8C%BB%E7%96%97%E5%99%A8%E6%9D%90&amp;ved=2ahUKEwjZtJ_UuszzAhXChXIEHRZFDC8QMygeegUIARDsAQ)
+网易新闻近日报道，国家财政部及工信部联合发布的《政府采购进口产品审核指导标准》通知流出，这份通知明确规定了政府机构（事业单位）采购国产医疗器械及仪器的比例要求。其中137种医疗器械全部要求100%采购国产；12种医疗器械要求75%采购国产；24种医疗器械要求50%采购国产；5种医疗器械要求25%采购国产。这项标准从全国范围内，把公立医院在内的单位，采购国产仪器设备的比例进行强制规范。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共国医疗企业多少多是“作坊生产”从未进入世界前100名医疗器械名单，要求采购国产设备而有不足以解决问题，中共国财政部要求限制进口137种医疗器械名单中多是手术医疗器械和各种仪器设备，在外汇枯竭的情况下也是中共国不得已的选择。
 
+消息来源：[国家财政部：进一步限制进口，137种医疗器械全部采购国产](https://mo.mbd.baidu.com/r/uwGl3JiK4M?f=cp&amp;rs=740884740&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0a5c16729399eec6)
 
-
-台湾防长邱国正14日表示，面对中共不断升级的武力挑衅，国军谨守不发动”第一击”的原则，不给中共出兵借口。但国军会对中共更多兵力集结等后续动作进行及时掌握研判，一旦共军有实际犯台战争行为，国军将会奋起应战。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1015AM（1-5）視頻備用.001.jpeg)
-去年8月台湾前总统马英九称，如果大陆攻台，其战略将是“首战即终战”，这一言论引发岛内巨大争议。民调显示，大多数台湾人反对马英九的这种说法。蔡英文政府发言人第一时间驳斥了马英九的言论，称马英九不应与北京一起威胁打压台湾。
-
-郭文贵先生爆料目前中共已经跟美国完成勾兑，拜登政府为了保障国内经济稳定和中期选举，决定背弃和出卖2300万台湾人民的利益，台湾随时面临灭顶之灾。台湾防长的声明代表了大多数台湾人的心声，自救者天救。当面对中共的武力侵犯时，台湾只有奋起反击，才有可能换来一线生机。
-(本文仅代表作者观点)
-
-参考链接：
-
-1. [台湾防长强调绝不启动战端 但遭遇侵略将应战](https://www.voachinese.com/a/Taiwan-will-not-start-a-war-with-China-defense-minister-says-20211014/6270618.html)
-2. [中共对台“首战即终战”？ 五成八台湾人不认同](https://www.rfa.org/mandarin/yataibaodao/gangtai/hx1-08242020091817.html)
-
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/ 知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

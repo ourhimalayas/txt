@@ -2,33 +2,33 @@
 ---
 
 
-## 中共管制趋严 领英Linkedin退出中共国
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596066/)
+## 迫于中共言论管控，微软旗下社交平台领英（LinkedIn）宣布关闭
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1596208/)
 
-作者：云豹
+**撰稿：日本东京方舟农场 Kevin wang**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月14日，微软领英表示，由于“中共国越来越具挑战性的经营环境和合规要求越来越高”，将关闭网站，结束在中共国7年的运营。此举也代表最后一个在中共国公开运作的美国大型社交网站宣告关闭。
 
+领英在中国有5300万用户，约占其总用户数的7%。微软近期表示，领英的年收入已突破100亿美元。报道称，有数名驻中共国或台湾的记者与智库研究员，均收到来自领英的邮件，表示由于他们的领英个人资料含有被禁止或是敏感的内容，所以他们的帐号、留言以及动态将在中共国境内被屏蔽。
 
+德国之声曾针对此事询问领英，领英表示：“为了给我们在中共国和世界各地的会员创造价值，我们将在必要时执行中共政府对内容的限制。”
 
-知名职场社交平台领英在14日宣布，由于中共的监管要求越趋严格，该公司将关闭在中共国的服务网站。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1015AM（1-5）視頻備用.003.jpeg)
-领英发表声明时仅含蓄表示，该决定是由于大陆营运环境已更具挑战性，而中方当局要求遵守的规定也更多。 据熟悉内情人士透露，中共的网路监管机构曾告诉领英的负责人，必须加强规范网页的内容，并限令30天做到。 近日有许多积极关注中国人权情势的活跃人士、学者、和记者，他们在领英平台上的个人档案已遭中共封锁。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/59369558_303.jpg)图片来自于网络
 
-在领英宣布退出中国后，最后一个可在中国大陆公开连线的美国社群网站也将走入历史。
-(本文仅代表作者观点)
+美国乔治敦大学教授麦德罗斯对华尔街日报表示，如果领英继续代表中共当局进行审查，其声誉和全球商业模式也将面临风险。
 
-参考链接：[中共當局監管趨嚴 領英將關閉中國網站](https://www.cna.com.tw/news/firstnews/202110140401.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+有知情人士透露，中共的互联网监管机构在3月份要求领英管理人员加强监管其内容，并限期30天内完成要求。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+据英国《金融时报》报导，拜登政府对领英退出中共国的决策表示欢迎，并指责中共政府强迫公司成为其“镇压和专制行为的同谋”。
 
-新闻访谈终审：FoxRina
-编辑/校正/发稿：我不在这里
+《金融时报》引述一位美国高阶官员的说法表示：“私营部门和国际社会应该反对中共利用其市场武器来扼杀自由言论和人权。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[领英关闭中国网站 “一企两制”终告结](https://www.dw.com/zh/%E9%A2%86%E8%8B%B1%E5%85%B3%E9%97%AD%E4%B8%AD%E5%9B%BD%E7%BD%91%E7%AB%99-%E4%B8%80%E4%BC%81%E4%B8%A4%E5%88%B6%E7%BB%88%E5%91%8A%E7%BB%93/a-59512205)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

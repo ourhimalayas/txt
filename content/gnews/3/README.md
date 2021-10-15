@@ -2,20 +2,23 @@
 ---
 
 
-## 疫苗接种者，乘坐专属列车，享受定制旅游
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596123/)
+## 促生育！中共全面清理涉计划生育法规
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596241/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-280.png)[示意图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg1.jiemian.com%2F101%2Foriginal%2F20210325%2F161666736868514200_a700xH.png&amp;imgrefurl=https%3A%2F%2Fwww.jiemian.com%2Farticle%2F5862147.html&amp;tbnid=X7vQS3gGPwvJ_M&amp;vet=12ahUKEwiRtP-lv8zzAhUagXIEHeE9CqkQMygAegUIARCYAQ..i&amp;docid=cblEZvUvrtlvKM&amp;w=700&amp;h=525&amp;itg=1&amp;q=%E4%B8%93%E5%88%97&amp;ved=2ahUKEwiRtP-lv8zzAhUagXIEHeE9CqkQMygAegUIARCYAQ)
-读卖新闻报道，JR东日本公司15日宣布，将从明年年初，开始运营新型冠状病毒疫苗接种完成者专用的新干线，将临时列车座位出售给旅行社，旅行社将组织仅限接种者参加的旅游。运行数量等详细规划今后将完善。
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/erw.jpg)[图片来源](https://read01.com/xm60dA5.html#.YWmJRxpBw2w)
+据“澎湃新闻”报道，目前中共全国人大常委会正在开展涉及计划生育法规规章、规范性文件的专项清理工作。
 
-参加该旅游活动者，必须出示两次接种证明，如果因为疾病等无法接种疫苗者，PCR检查结果为阴性或许有机会参加。从15日开始，子公司的旅行社开始推出只针对疫苗接种完成者地旅游活动。整个集团旗下地如酒店、电车等服务也将提供疫苗接种者折扣及礼品。
+据悉，此次专项清理工作，主要依据中共新修订的《中华人民共和国人口与计划生育法》，重点围绕三孩生育政策、取消社会抚养费、废止相关处罚、处分规定以及将入学入户入职等与个人生育情况挂钩的规定，开展涉及计划生育法规规章、规范性文件的专项清理工作。目前，清理工作仍在进行中。
 
-近期，日本中共病毒新增感染人数急剧下降，社会各界迫不及待恢复生产活动，并通过各种优惠活动及特定服务，呼吁接种新冠疫苗，然而日本官方也并不能肯定感染人数急剧下降具体原因，并预估第6波感染还会再来。
+近年来，随着中共经济形势的急转直下，加之“房医学”新三座大山对老百姓的极端压榨，导致中共国生育率不断走低。可以说，中共及其盗国贼治国模式才是老百姓生不起、不愿生的根源，清理法规这种“头疼医头脚疼医脚”的做法，无助于破解人口困局。中共不灭，中国的人口灾难还将持续恶化。
 
-信息来源：[ワクチン接種者専用の新幹線、来年から運行…ツアーにＰＣＲ検査陰性でも参加可能](https://www.yomiuri.co.jp/economy/20211015-OYT1T50161/)
+信息来源：
 
-（文章仅代表作者本人观点，与GNEWS无关）
+[全国人大常委会：已部署开展涉计生法规规章专项清理工作](https://news.sina.com.cn/c/2021-10-14/doc-iktzqtyu1428500.shtml)
+
+(文章仅代表作者本人观点，与GNEWS无关)
+
 *校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
+发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
