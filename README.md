@@ -15,136 +15,136 @@
 
 ---
 
-### [中共超限战灭港行动（七十九）七二一·恐袭事件之官黑勾结警黑合作（上）](/content/gnews/1/README.md)
- ` 英喜-粵語組`
-
-### [喜币将重建人类货币制度](/content/gnews/2/README.md)
- ` 波士顿五月花农场`
-
-### [郭文贵先生2021年10月14日盖特视频（9分59秒）全文字版](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：武毒所正在研究更致命的尼帕病毒是什么?](/content/gnews/4/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声|中共对美施压，要求取消关税和制裁](/content/gnews/5/README.md)
- ` MOSREC`
-
-### [“这是灾难性的一天”—— 中国债券市场彻底崩溃](/content/gnews/6/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [美国食品和药物管理局急欲推行第三剂莫德纳疫苗接种](/content/gnews/7/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [有声|联邦法官准许纽约医护人员对疫苗强制政策申请宗教豁免](/content/gnews/8/README.md)
- ` MOSREC`
-
-### [美联储最快11月中旬开启缩表](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [俄克拉荷马州反对拜登的疫苗强制令](/content/gnews/10/README.md)
- ` HimalayaRussia`
-
-### [继火币、币安之后，OKEx宣布保持&#8221;退出中共国大陆市场&#8221;政策](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|恒大危机持续，150万中国人恐将房财两空](/content/gnews/12/README.md)
- ` MOSREC`
-
-### [2021年10月14日郭先生盖特 — 视频盖特1「9分59秒」](/content/gnews/13/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [日本要闻汇编](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [国际要闻汇编](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：俞敏洪的格局注定他的可悲命运](/content/gnews/16/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共国出現滞涨 PPI-CPI剪刀差再创历史新高](/content/gnews/17/README.md)
- ` 纽约香草山MOS01`
-
-### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（九）](/content/gnews/18/README.md)
- ` 墨尔本雅典娜农场`
-
-### [人祸不断天灾难停&#8211;全球仍有10亿人忍饥挨饿！](/content/gnews/19/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [高雄大楼火灾酿惨剧，已造成46人死亡](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [受中共病变疫情影响，日本学生自杀人数创历史新高](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [参议员瑞克·斯科特：要求拜登加入我的呼吁,将 2022 年奥运会从共产主义中国移走](/content/gnews/22/README.md)
- ` 美国政要直译推`
-
-### [Coinbase:美国应建立一个新的加密货币监管机构](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [加拿大安大略省的疫苗接种要求证明最终可能成为企业的自愿行为](/content/gnews/24/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [折戟沉沙&#8211;魁北克医护人员短缺迫使强制疫苗接种延期！](/content/gnews/25/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [使用经营贷炒房的也即将爆雷](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
-
-### [苦瓜酒的酿制像极了中共国的教育](/content/gnews/27/README.md)
- ` 纽约香草山MOS01`
-
-### [雅典娜时报-第082期](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [新冠疫苗加强针，毒害人民的加强针又来了](/content/gnews/29/README.md)
- ` 纽约香草山MOS01`
-
-### [喜币凌云&#8211;七国集团争相背书加密数字货币！](/content/gnews/30/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [10/14/2021 文贵盖特：新中国联邦、爆料革命通过以(疫)苗灭共和解药灭共，拯救了无数人，使全世界把中国人和中共分开](/content/gnews/31/README.md)
- ` 秘密翻译组-北美组`
-
-### [台积电计划明年在日本建新厂](/content/gnews/32/README.md)
- ` HimalayaRussia`
-
-### [日本制铁公司起诉中共宝钢侵权](/content/gnews/33/README.md)
+### [中共加大巡察力度对付党内躺平行为](/content/gnews/1/README.md)
  ` 日本东京方舟农场`
 
-### [病毒疫苗的本质是种族大屠杀](/content/gnews/34/README.md)
+### [日本厚生省将讨论莫德纳疫苗的不良反应问题](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [江志成马云吴征孟建柱王岐山盯上习近平家人Daniel Foa](/content/gnews/3/README.md)
+ ` NewFOC`
+
+### [中共超限战灭港行动（七十九）七二一·恐袭事件之官黑勾结警黑合作（上）](/content/gnews/4/README.md)
+ ` 英喜-粵語組`
+
+### [习动西方奶酪将引火烧身](/content/gnews/5/README.md)
+ ` 波士顿五月花农场`
+
+### [美国会议员刻意掩盖使用伊维菌素真相](/content/gnews/6/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [喜币将重建人类货币制度](/content/gnews/7/README.md)
+ ` 波士顿五月花农场`
+
+### [郭文贵先生2021年10月14日盖特视频（9分59秒）全文字版](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：武毒所正在研究更致命的尼帕病毒是什么?](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声|中共对美施压，要求取消关税和制裁](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [“这是灾难性的一天”—— 中国债券市场彻底崩溃](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [前法国总统顾问贾克-阿达利——在未来，需要解决的问题是人口过剩](/content/gnews/35/README.md)
- ` 加拿大多伦多枫叶农场视频组`
+### [美国食品和药物管理局急欲推行第三剂莫德纳疫苗接种](/content/gnews/12/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
 
-### [纳瓦罗称中国共产党控制了乔·拜登](/content/gnews/36/README.md)
+### [有声|联邦法官准许纽约医护人员对疫苗强制政策申请宗教豁免](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [美联储最快11月中旬开启缩表](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [俄克拉荷马州反对拜登的疫苗强制令](/content/gnews/15/README.md)
  ` HimalayaRussia`
 
-### [文革幸存母亲目睹美国滑向深渊](/content/gnews/37/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [继火币、币安之后，OKEx宣布保持&#8221;退出中共国大陆市场&#8221;政策](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中国秘密社会史中的土地主张](/content/gnews/38/README.md)
- ` 骄子`
+### [有声|恒大危机持续，150万中国人恐将房财两空](/content/gnews/17/README.md)
+ ` MOSREC`
 
-### [&#8220;没有新中国联邦，哪里都没有真正的安全&#8221;!](/content/gnews/39/README.md)
- ` GTV新闻访谈`
+### [2021年10月14日郭先生盖特 — 视频盖特1「9分59秒」](/content/gnews/18/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [没有新中国联邦，哪里都没有真正的安全](/content/gnews/40/README.md)
+### [日本要闻汇编](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [国际要闻汇编](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：俞敏洪的格局注定他的可悲命运](/content/gnews/21/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共国出現滞涨 PPI-CPI剪刀差再创历史新高](/content/gnews/22/README.md)
  ` 纽约香草山MOS01`
 
-### [世卫与中共为新冠溯源再度联手表演依旧拙劣](/content/gnews/41/README.md)
+### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（九）](/content/gnews/23/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [人祸不断天灾难停&#8211;全球仍有10亿人忍饥挨饿！](/content/gnews/24/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [高雄大楼火灾酿惨剧，已造成46人死亡](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [受中共病变疫情影响，日本学生自杀人数创历史新高](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [参议员瑞克·斯科特：要求拜登加入我的呼吁,将 2022 年奥运会从共产主义中国移走](/content/gnews/27/README.md)
+ ` 美国政要直译推`
+
+### [Coinbase:美国应建立一个新的加密货币监管机构](/content/gnews/28/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [加拿大安大略省的疫苗接种要求证明最终可能成为企业的自愿行为](/content/gnews/29/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [折戟沉沙&#8211;魁北克医护人员短缺迫使强制疫苗接种延期！](/content/gnews/30/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [使用经营贷炒房的也即将爆雷](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [苦瓜酒的酿制像极了中共国的教育](/content/gnews/32/README.md)
+ ` 纽约香草山MOS01`
+
+### [新冠疫苗加强针，毒害人民的加强针又来了](/content/gnews/33/README.md)
+ ` 纽约香草山MOS01`
+
+### [10/14/2021 文贵盖特：新中国联邦、爆料革命通过以(疫)苗灭共和解药灭共，拯救了无数人，使全世界把中国人和中共分开](/content/gnews/34/README.md)
+ ` 秘密翻译组-北美组`
+
+### [日本制铁公司起诉中共宝钢侵权](/content/gnews/35/README.md)
+ ` 日本东京方舟农场`
+
+### [前法国总统顾问贾克-阿达利——在未来，需要解决的问题是人口过剩](/content/gnews/36/README.md)
+ ` 加拿大多伦多枫叶农场视频组`
+
+### [纳瓦罗称中国共产党控制了乔·拜登](/content/gnews/37/README.md)
+ ` HimalayaRussia`
+
+### [文革幸存母亲目睹美国滑向深渊](/content/gnews/38/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中国秘密社会史中的土地主张](/content/gnews/39/README.md)
+ ` 骄子`
+
+### [&#8220;没有新中国联邦，哪里都没有真正的安全&#8221;!](/content/gnews/40/README.md)
  ` GTV新闻访谈`
 
-### [六四纪念雕塑将遭移除 ,丹麦雕塑家对峙港大](/content/gnews/42/README.md)
+### [没有新中国联邦，哪里都没有真正的安全](/content/gnews/41/README.md)
+ ` 纽约香草山MOS01`
+
+### [世卫与中共为新冠溯源再度联手表演依旧拙劣](/content/gnews/42/README.md)
  ` GTV新闻访谈`
 
-### [持BNO护照港人移民英国重启新生](/content/gnews/43/README.md)
+### [六四纪念雕塑将遭移除 ,丹麦雕塑家对峙港大](/content/gnews/43/README.md)
  ` GTV新闻访谈`
 
-### [拒做政治花瓶，民主党不参选香港立法会](/content/gnews/44/README.md)
+### [持BNO护照港人移民英国重启新生](/content/gnews/44/README.md)
  ` GTV新闻访谈`
 
 ### [10/14/2021 国际财经快讯：欧佩克下调2021年全球石油供应预期, 供应链中断迫使白宫推动沃尔玛、UPS、联邦快递24小时运营](/content/gnews/45/README.md)

@@ -2,12 +2,19 @@
 ---
 
 
-## 受中共病变疫情影响，日本学生自杀人数创历史新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1594953/)
+## 秘翻在线：俞敏洪的格局注定他的可悲命运
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1595035/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10._15-scaled.jpg)
-（文章仅代表作者个人观点，与GNEWS无关）
+**撰稿：葛大饼**
 
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-15-105850.jpg)
+根据2021年10月13日 UC新闻报道，近日，网络流传的视频中显示新东方创始人俞敏洪直言“解决自卑的办法就是搞钱”，这让俞敏洪再次成为焦点人物。
+
+对此俞敏洪称这是造假短视频，他完全没有发表过类似言论。 新闻称这并不是俞敏洪第一次遭遇此事，面对这种利用名人效应达到混淆视听、赚取流量为目的的虚假行为，俞敏洪本人及新东方方面正在搜集相关证据，将依法追究相关人士的法律责任。
+
+俞敏洪出身贫寒，曾三次高考落榜，创建新东方学校也是吃了很多苦。但是受过高等教育经历过苦难不代表他的格局有多大，对中共有多清醒的认识。他的大嘴巴狂言乱语不是第一次，以前还曾说过“**中国女性堕落导致国家堕落**”惹众怒。另一方面，中共目前对教育培训行业的监管和打压不断，新东方、学而思等15家教培机构曾被处以3650万罚款，教育部的 “双减”政策也让很多校外培训机构破产。
+
+新东方目前的市值已经蒸发了2000亿人民币，裁员超过4万人。新东方俞敏洪的确该想办法搞钱了，曾经惹怒过财新总编胡舒立，不让她当精神导师，当时胡舒立就扬言要搞死新东方。这下可好，老俞现在该把国家的堕落归咎于谁呢！
+
+**[新闻来源](https://mparticle.uc.cn/article.html?btifl=100&amp;app=smds-iflow&amp;title_type=1&amp;wm_id=401632bd39d34f4c95557fc4bf51d04d&amp;wm_cid=448960085570370560&amp;pagetype=share&amp;client=&amp;uc_share_depth=1&amp;uc_param_str=frdnsnpfvepcntnwprdssskt)**

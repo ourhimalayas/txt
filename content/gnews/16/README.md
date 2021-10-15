@@ -2,19 +2,23 @@
 ---
 
 
-## 秘翻在线：俞敏洪的格局注定他的可悲命运
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1595035/)
+## 继火币、币安之后，OKEx宣布保持&#8221;退出中共国大陆市场&#8221;政策
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1595094/)
 
-**撰稿：葛大饼**
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-83.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.financemagnates.com%2Fwp-content%2Fuploads%2F2020%2F10%2FOKEX.jpg&amp;imgrefurl=https%3A%2F%2Fwww.financemagnates.com%2Fcryptocurrency%2Fnews%2Fokex-to-resume-p2p-services-with-3-fiats%2F&amp;tbnid=kUpVqGmjS8nniM&amp;vet=12ahUKEwjEm_XNtsvzAhWpxIsBHVjgA3EQMygIegUIARDSAQ..i&amp;docid=lssEIq2jRJt60M&amp;w=880&amp;h=400&amp;q=okex&amp;ved=2ahUKEwjEm_XNtsvzAhWpxIsBHVjgA3EQMygIegUIARDSAQ)
+10月13日，在币安发布清退中国大陆用户的公告之后，OKEx随后也发布了一篇《关于中国大陆地区监管政策的通知》。
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-15-105850.jpg)
-根据2021年10月13日 UC新闻报道，近日，网络流传的视频中显示新东方创始人俞敏洪直言“解决自卑的办法就是搞钱”，这让俞敏洪再次成为焦点人物。
+公告称，欧易OKEx自2017年9月开始就把业务重心转到国际市场，不针对中国大陆市场进行推广和服务，okex.com网站在中国大陆无法访问，APP也下架了所有的中国大陆地区的应用市场。欧易OKEx方面强调，将继续在国际市场稳步发展，不断提升自己的产品和服务，继续保持”退出中国大陆市场”的政策，不在中国大陆地区设立办公室和团队。该公司目前在全球多个主要国家建立了办公室，拥有1000名以上的海外员工。
 
-对此俞敏洪称这是造假短视频，他完全没有发表过类似言论。 新闻称这并不是俞敏洪第一次遭遇此事，面对这种利用名人效应达到混淆视听、赚取流量为目的的虚假行为，俞敏洪本人及新东方方面正在搜集相关证据，将依法追究相关人士的法律责任。
+在2017年后，国内的“币圈”曾将火币、币安、OKEx并称为“三大”，因这三家加密货币交易平台彼时交易量极大，在全球份额占比极高。但截止到2021年10月13日，这三家交易所已全部宣布退出中国大陆市场。
 
-俞敏洪出身贫寒，曾三次高考落榜，创建新东方学校也是吃了很多苦。但是受过高等教育经历过苦难不代表他的格局有多大，对中共有多清醒的认识。他的大嘴巴狂言乱语不是第一次，以前还曾说过“**中国女性堕落导致国家堕落**”惹众怒。另一方面，中共目前对教育培训行业的监管和打压不断，新东方、学而思等15家教培机构曾被处以3650万罚款，教育部的 “双减”政策也让很多校外培训机构破产。
+信息来源：
 
-新东方目前的市值已经蒸发了2000亿人民币，裁员超过4万人。新东方俞敏洪的确该想办法搞钱了，曾经惹怒过财新总编胡舒立，不让她当精神导师，当时胡舒立就扬言要搞死新东方。这下可好，老俞现在该把国家的堕落归咎于谁呢！
+[OKEx：继续保持退出中国大陆市场的政策](https://www.chainnews.com/news/990439259781.htm)
 
-**[新闻来源](https://mparticle.uc.cn/article.html?btifl=100&amp;app=smds-iflow&amp;title_type=1&amp;wm_id=401632bd39d34f4c95557fc4bf51d04d&amp;wm_cid=448960085570370560&amp;pagetype=share&amp;client=&amp;uc_share_depth=1&amp;uc_param_str=frdnsnpfvepcntnwprdssskt)**
+(文章仅代表作者本人观点，与GNEWS无关)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
