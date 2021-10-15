@@ -2,27 +2,37 @@
 ---
 
 
-## “天空WiFi”带热激光通信！索尼成功演示“星地通联”系统
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596237/)
+## 完全疫苗接种加州大学生因病毒并发症去世
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596254/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/12-8.jpg)[图片来源](https://www.sohu.com/a/273066731_819742)
-近年来，随着“天空WiFi”不断发展，特别是“星链”系统（Starlink）的试商用，更是让“激光通信”技术备受追捧。
+作者：雪梨
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+21岁的美国加州佐治亚大学的肖恩·库恩（Shawn Kuhn），在完全接种新冠疫苗后，死于近期突然感染的新冠病毒，他在去世之前与病魔战斗了大约6个星期。
 
-10月14日，索尼官方宣布，索尼计算机科学实验室（下称：索尼 CSL）和康斯贝格卫星服务公司（KSAT）成功地演示了从国际空间站（ISS）上的一个太空终端（ISS 的小型光学链路：SOLISS）到 KSAT 在希腊的商业光学地面站的光学下行链路。使用的通信格式与 CCSDS（141.0-B-1 + O3K 粉皮书）空间激光通信标准一致。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-25.jpeg)
 
-索尼这一终端体积小巧，未来能够实现高性价比的地面和太空通信解决方案。KSAT 光学解决方案总监 Hennes Henniger 表示：“这次活动对 KSAT 来说是一个很好的机会，可以验证我们第一个光学地面站的性能和光学未来的开始。”
+库恩是运动和体育专业的大四学生，身体健康，在竞技项目中获奖，在校园兼职私人教练。
 
-希腊 KSAT 光学地面站是光核网络（Optical Nucleus Network）的第一个站点。光核网络是航天机构和工业界之间的非正式合作，它将提供一个光学地面站网络，为太空中的光学终端服务。
+尽管新冠病毒对30岁以下人群危险性极低，但在学校和工作场所的胁迫下，年轻人正在大规模的接种，库恩和许多比他更年轻的人在这种环境下，被迫接种了含胚胎细胞的毒针。
 
-2020年，SpaceX透露，其已经首次成功在轨道上测试了星链卫星的“激光通信”。马斯克称，搭载激光后的传输速度，预计将比光纤快40%左右，路径也更短。因此，我们可能会看到高速的互联网传输能力，而无需接触地面。
+前辉瑞公司的员工凯伦·金斯敦此前揭露，较未接种时，人体感染病毒的机率增加了3倍，而当接种第二剂后，随着时间的推移，人体免疫力逐渐减弱，感染率将持续升高。
 
-长期以来，受小型化以及视距传输的制约，激光通信主要被用于军事和特殊行业领域，因此发展相对缓慢，应用也比较狭窄。随着“天空WiFi”项目应用的不断落地，由于在数据传输方面的显著优势，激光通信将迎来巨大的发展机遇，也必将成为大数据时代的重要产品。
+今年6月，加州15岁少年接种辉瑞疫苗第二针2天后，死于“应激性心肌炎并伴有冠状动脉炎症”。此前，美国疾病控制和预防中心（CDC）也承认，接种mRNA疫苗的年轻男性有罹患心肌炎和心包炎的风险。如果美国政府仍强制推行疫苗接种令，随着在校学生大面积接种疫苗，越来越多的年轻人将因此受到伤害，甚至死亡。
 
-[信息来源](https://finance.sina.com.cn/jjxw/2021-10-14/doc-iktzqtyu1385558.shtml)
+(本文仅代表作者观点)
 
-(文章仅代表作者本人观点，与GNEWS无关)
+参考链接：[‘Fully vaccinated’ 21-year-old personal trainer dies from COVID complications](https://www.lifesitenews.com/news/fully-vaccinated-21-year-old-personal-trainer-dies-from-covid-complications/?utm_source=top_news&amp;utm_campaign=usa)
+[https://www.watsonhunt.com/obituaries/Shawn-Kuhn/#!/Obituary](https://www.watsonhunt.com/obituaries/Shawn-Kuhn/#!/Obituary)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

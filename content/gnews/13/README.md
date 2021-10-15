@@ -2,29 +2,35 @@
 ---
 
 
-## 气候融资目标提高到1000亿美元！亚开行行长力推“让燃煤电厂退役
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596293/)
+## 拉脱维亚总统完整接种疫苗 仍感染中共病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596318/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+作者：七哩香
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+拉脱维亚总统的幕僚长10月14日表示，总统李维兹（Egils Levits）完整接种新冠疫苗后，仍然染疫。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-51.png)[图片来源](https://www.adb.org/zh/news/masatsugu-asakawa-elected-adb-president)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-4.jpeg)
 
-亚洲开发银行（ADB）行长浅川雅嗣10月12日表示，亚洲开发银行将把2019-2030年的气候融资目标提高200亿美元，新目标达1000亿美元。浅川雅嗣也打算在第二十六届联合国气候变化框架公约缔约方会议（COP26）上提出“让燃煤电厂退役”的概念。
+李维兹结束丹麦与瑞典访问行程返国后，接受PCR筛检，结果呈阳性。芬兰总统尼尼斯托（Sauli Niinisto）前一天曾与李维兹共进午餐，这项消息迫使尼尼斯托也得隔离。
 
-据路透社报道，新投入的200亿美元将用于为减缓气候变化提供支持，涉及低碳能源、气候适应计划和私营部门项目。
+人口190万的拉脱维亚，当天通报2408起新冠病例，创下单日新高纪录。为因应病例激增，拉国11日已宣布为期三个月的紧急状态。
 
-浅川雅嗣表示，亚洲开发银行目前计划到2030年为减缓气候变化融资660亿美元，涉及新能源储存、能源效率和低碳交通投资等方面。亚开行将计划提供340亿美元的气候调适融资，包括农业、城市和水资源调适项目。
+病例增加趋势同前几个月的疫苗接种曲线存在相关性。推行毒针计划的疾控中心CDC，对拉脱维亚停滞不前接种率十分不满。政府随即于8月份开始在各行各业推行接种强制令，遭到了人们的强烈反抗，导致疫苗库存继续堆积。
 
-浅川雅嗣还表示，由于融资需求增加，亚洲开发银行计划吸引更多的私营资本投入到与气候有关的技术和创新上。
+(本文仅代表作者观点)
 
-路透社曾于8月报道称，亚洲开发银行正在与主要的金融公司展开合作以制定一种机制。亚洲开放银行计划联合金融公司，通过购买亚洲燃煤电厂并让电厂提前退役的方式实现“碳排放减少”。
+参考链接：[拉脱维亚总统完整接种疫苗 仍确诊COVID-19](https://www.rfi.fr/cn/拉脱维亚总统完整接种疫苗-仍确诊covid-19)
+[Latvia’s plans for mandatory vaccination spark huge protests](https://www.euronews.com/2021/08/19/latvia-s-plans-for-mandatory-vaccination-sparks-huge-protests)
 
-信息来源：
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-[亚洲开发银行行长：将在气候峰会上提“让燃煤电厂退役”设想|亚洲开发银行](https://mil.news.sina.com.cn/2021-10-14/doc-iktzscyx9585425.shtml)
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
 
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
