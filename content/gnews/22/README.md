@@ -2,89 +2,33 @@
 ---
 
 
-## G时评：原创时政小段子（强迫症）
-` GISELLE` [轉載自GNews](https://gnews.org/zh-hans/1596062/)
+## 中共管制趋严 领英Linkedin退出中共国
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596066/)
 
-**作者/图片设计：Giselle**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/段子2.png)
-1，**中共为何在扯蛋的事情上做得那么专业？比如那些在人民大会堂端茶倒水的服务员，拿着尺子丈量茶杯之间的距离……**
+作者：云豹
 
-——以下是中共病例本
-
-【患者姓名】中共
-
-【诊断】强迫症
-
-【症状】
-
-1，过度追求完美，特别在意别人的评价；
-
-2，胆小、自卑、不自信；
-
-3，安全感匮乏、缺失。
-
-【病因】以犯罪起家，特别害怕老底被揭穿，整天惶惶不可终日，随时担心见光死。
-
-【处方】白绫三尺，绳子一根，毒酒一杯，恶犬三只
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-2，**爆料革命《行酒令》**
+知名职场社交平台领英在14日宣布，由于中共的监管要求越趋严格，该公司将关闭在中共国的服务网站。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1015AM（1-5）視頻備用.003.jpeg)
+领英发表声明时仅含蓄表示，该决定是由于大陆营运环境已更具挑战性，而中方当局要求遵守的规定也更多。 据熟悉内情人士透露，中共的网路监管机构曾告诉领英的负责人，必须加强规范网页的内容，并限令30天做到。 近日有许多积极关注中国人权情势的活跃人士、学者、和记者，他们在领英平台上的个人档案已遭中共封锁。
 
-地产崩，地产崩，地产崩了银行崩，
+在领英宣布退出中国后，最后一个可在中国大陆公开连线的美国社群网站也将走入历史。
+(本文仅代表作者观点)
 
-银行崩，银行崩，银行崩了保险崩，
+参考链接：[中共當局監管趨嚴 領英將關閉中國網站](https://www.cna.com.tw/news/firstnews/202110140401.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-保险崩，保险崩，保险崩了基金崩，
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-基金崩，基金崩，基金崩了养老崩，
+新闻访谈终审：FoxRina
+编辑/校正/发稿：我不在这里
 
-养老崩，养老崩，养老崩了欧美崩，
-
-欧美崩，欧美崩，欧美崩了世界崩。
-
-黑暗秩序被摧毁，
-
-凤凰涅槃获新生。
-
-否极泰来万众起，
-
-阴阳有序正气昇。
-
-魑魅魍魉无处遁，
-
-爆料革命定乾坤。
-
-
-
-3，**狼要吃羊。**
-
-羊问：你为什么要吃我？
-
-狼：你弄脏了我的水。
-
-羊：我在下游，你在上游，我怎么可能会弄脏你的水？
-
-中共，台湾是中国的。
-
-台湾：中华民国1912年就建国了，中共1949年才建国，请问要怎么“隶属”呢？按时间关系、历史渊源，究竟谁隶属谁？
-
-【中共词典】“隶”，奴隶的隶。隶属：像奴隶一样从属。
-
-
-
-4，“**美军特战队”驻台湾超1年的消息接连爆出猛料，五角大楼消息，有23名陆战队员、2名海军和5名空军“永久派驻”台湾。**
-
-剧情是这样的：
-
-米国：0044
-
-习：44944
-
-米国：你先44
-
-习：你0044……
-
-台湾：都成年人了，别闹了行不行？
-
-（**文章内容仅代表作者个人笑点）**
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,33 +2,18 @@
 ---
 
 
-## 中共管制趋严 领英Linkedin退出中共国
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596066/)
+## 中共国限制医疗器械进口，自给自足？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596086/)
 
-作者：云豹
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-279.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnews.gbimonthly.com%2Fupload%2Farticle%2F2020%2F11%2F%25E9%2586%25AB%25E7%2599%2582%25E5%2599%25A8%25E6%259D%2590.jpg&amp;imgrefurl=https%3A%2F%2Fnews.gbimonthly.com%2Ftw%2Farticle%2Fshow.php%3Fnum%3D34773&amp;tbnid=yMpwn_5UBOZD5M&amp;vet=12ahUKEwjZtJ_UuszzAhXChXIEHRZFDC8QMygeegUIARDsAQ..i&amp;docid=2h3rblppW6MxuM&amp;w=1280&amp;h=720&amp;itg=1&amp;q=%E5%8C%BB%E7%96%97%E5%99%A8%E6%9D%90&amp;ved=2ahUKEwjZtJ_UuszzAhXChXIEHRZFDC8QMygeegUIARDsAQ)
+网易新闻近日报道，国家财政部及工信部联合发布的《政府采购进口产品审核指导标准》通知流出，这份通知明确规定了政府机构（事业单位）采购国产医疗器械及仪器的比例要求。其中137种医疗器械全部要求100%采购国产；12种医疗器械要求75%采购国产；24种医疗器械要求50%采购国产；5种医疗器械要求25%采购国产。这项标准从全国范围内，把公立医院在内的单位，采购国产仪器设备的比例进行强制规范。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共国医疗企业多少多是“作坊生产”从未进入世界前100名医疗器械名单，要求采购国产设备而有不足以解决问题，中共国财政部要求限制进口137种医疗器械名单中多是手术医疗器械和各种仪器设备，在外汇枯竭的情况下也是中共国不得已的选择。
 
+消息来源：[国家财政部：进一步限制进口，137种医疗器械全部采购国产](https://mo.mbd.baidu.com/r/uwGl3JiK4M?f=cp&amp;rs=740884740&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0a5c16729399eec6)
 
-
-知名职场社交平台领英在14日宣布，由于中共的监管要求越趋严格，该公司将关闭在中共国的服务网站。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1015AM（1-5）視頻備用.003.jpeg)
-领英发表声明时仅含蓄表示，该决定是由于大陆营运环境已更具挑战性，而中方当局要求遵守的规定也更多。 据熟悉内情人士透露，中共的网路监管机构曾告诉领英的负责人，必须加强规范网页的内容，并限令30天做到。 近日有许多积极关注中国人权情势的活跃人士、学者、和记者，他们在领英平台上的个人档案已遭中共封锁。
-
-在领英宣布退出中国后，最后一个可在中国大陆公开连线的美国社群网站也将走入历史。
-(本文仅代表作者观点)
-
-参考链接：[中共當局監管趨嚴 領英將關閉中國網站](https://www.cna.com.tw/news/firstnews/202110140401.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：FoxRina
-编辑/校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/ 知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

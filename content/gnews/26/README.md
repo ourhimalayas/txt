@@ -2,20 +2,42 @@
 ---
 
 
-## 西方知名的病毒专家重磅演讲戳穿疫苗谎言
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1596024/)
+## 随着能源危机加剧和工厂停工，中共国接纳澳洲的煤炭
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1596036/)
 
-翻译： Rosa
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GettyImages-1231937500-e1634097009429.jpg)图片来源：fortune.com
+#### 编译：小红帽
 
-视频：澳洲天好蓝
-视频来源：https://rumble.com/vnbv86-winning-the-war-against-therapeutic-nihilism-and-trusted-treatments-vs-unte.html
-知名的COVID-19专家和拥有众多出版期刊的医生Peter McCullough博士向同事们提供了一份全面的、有据可查的报告），内容涉及由于基因转移疫苗运动而在西方发生的 “令人难以置信的暴行”，对儿童接种疫苗的 “牢不可破的抵抗 “的必要性，以及公共卫生机构 “令人震惊的…无能和故意的错误行为”。
+在面临停电和工厂停工的情况下，能源匮乏的中共国对澳大利亚煤炭的禁令已被非正式地取消。这是一种耻辱性的损失。
 
-McCullough曾提出，世界上没有人比他在这个问题上更有权威，他详细分析了多项科学研究和数据报告，证明了 “疫苗计划的失败”，有效的早期治疗的压制，以及自然免疫的 “强大、完整和持久 “的品质。
+Braemar ACM船舶经纪公司的货运分析师尼克·里斯蒂奇（Nick Ristic）表示，在中共国港口外等候的少数澳大利亚货物获准靠泊和卸货。
 
-（本文纯属个人观点，与Gnews无关）
+里斯蒂奇先生告诉《纽约数字新闻》（New York Digital News），他认为有45万吨煤炭被卸下。
 
-[原文链接：](https://rumble.com/vnbv86-winning-the-war-against-therapeutic-nihilism-and-trusted-treatments-vs-unte.html)
+其他分析师引用了较低的数字，但所有人都同意，中共国关于惩罚澳大利亚的强硬言论未能经受住即将到来的第一个冬天的寒流和相关经济影响。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+随着寒冷天气席卷中共国大部分地区，发电厂争相囤积煤炭，燃料价格创历史新高，中共国的能源危机已经加深。
+
+由于季节性天气模式带来从中共国北方吹来的寒风，预计家庭和办公室的供暖电力需求将猛增。
+
+预报员预测，在接下来的2-3天内，一些中部和东部地区的平均气温可能会下降多达16摄氏度。
+
+煤炭短缺、燃料价格高企和大流行后工业需求的蓬勃发展，引发了这个世界第二大经济体的普遍电力短缺。
+
+自9月以来，中共国30多个地区中至少17个地区已经实施电力配给，迫使一些工厂停产，扰乱了供应链。
+
+吉林、黑龙江和辽宁这三个东北省份是上个月受电力短缺的重灾区，包括内蒙古和甘肃在内的华北几个地区已经开始以煤炭为燃料的冬季供暖，以应对比正常天气更冷的的情况。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[China admits Australian coal as energy crisis grows (thenewdaily.com.au)](https://thenewdaily.com.au/news/world/asia-news/2021/10/15/china-unloads-australian-coal/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

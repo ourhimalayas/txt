@@ -2,27 +2,33 @@
 ---
 
 
-## 台湾24岁男子注射阿斯利康疫苗18天后死亡
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1596124/)
+## 针下亡魂｜美国 21 岁医科生接种疫苗1日后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1596153/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 15/10/2021**
 
-据苹果新闻网10月14日报道，台湾疫情指挥中心当日下午公布，台中一名24岁男子施打阿斯利康疫苗18天后送医不治身亡。
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
 
-据报道，台中市卫生局表示，这名男子除了有尿酸偏高情形外，并无其他慢性疾病史，于9月11日接种阿斯利康疫苗第1剂后，出现发烧情形，经服用退烧药，9月13日退烧后无其他身体不适症状。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/28-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211015152852.png)图片来自于网络
+【美国】俄亥俄州一名 21 岁男性 John Francis Foley 在接种完强生 COVID-19 疫苗的 24 小时后死亡。
 
-不料，9月29日家属发现异常，立即通知救护车送医，到院前已无呼吸心跳，经急救无效后宣告死亡。本案已于10月5日进行解剖，法医研究所初步判断死因为心脏双心室扩大、心肌病变。
+John 是当地辛辛那提大学国家荣誉学会医学预科生，成绩相当优秀，但由于该学校早前曾经强制所有学生接种疫苗，John 于 4 月 10 日接受了第一针疫苗。
 
-在疫苗不良反应通报方面，据台北卫生局表示，AZ疫苗通报数计653案，含住院中34案及死亡案98案；莫德纳疫苗通报数计152案，含住院中19案及死亡案22案；高端疫苗通报数计40案，含住院中2案、死亡案2案；BNT疫苗通报数计95案，含住院中5案、死亡1案。
+当晚，他在自己的 Facebook 上写下了人生的最后一篇贴文，“身体感到十分不适，希望早点休息，明天醒来，一切会有好转”，可惜，他再也没醒过来。
 
-*注：本文仅代表作者观点，与 Gnews无关*
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Mary-Beth-Foley.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Jennifer-Snyder-Benedict.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Lisa-Foley.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Foley-family-statement-1170x525-1.png)
 
-*参考链接：*
 
-[台中24歲男打疫苗後18天死亡　法醫研究所初判死因出爐](https://tw.appledaily.com/life/20211014/V522PK25WNB2RFPG5P4HW6LLOA/)
+维权律师 Mark R. Weaver 代表 John 的家人发表声明：
+
+尽管 John 在接种疫苗之后的 24 小时就去世了，但官方公布的死因甚至都未提到接种疫苗这件事，仅用一个没有人听说过的花哨医学术语作为一名健康的 21 岁大学生的死因，他原本有 99.997% 的机会在没有接种疫苗的情况下幸免于 COVID-19。
+
+来源｜ [个案028](https://www.wbrc.com/2021/04/16/university-cincinnati-students-death-after-jj-vaccine-under-investigation/)
 
 * * *
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//

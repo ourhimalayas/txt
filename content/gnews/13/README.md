@@ -2,16 +2,24 @@
 ---
 
 
-## 日本，第三次疫苗接种
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596227/)
+## “天空WiFi”带热激光通信！索尼成功演示“星地通联”系统
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596237/)
 
-#### 撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/132.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.rcinet.ca%2Fzh%2Fwp-content%2Fuploads%2Fsites%2F6%2F2021%2F04%2Fdddd-10-635x357.png&amp;imgrefurl=https%3A%2F%2Fwww.rcinet.ca%2Fzh%2F2021%2F04%2F17%2F%25E7%25BE%258E%25E5%259B%25BD%25E5%259C%25A8%25E8%2580%2583%25E8%2599%2591%25E4%25B8%2580%25E5%25B9%25B4%25E5%2586%2585%25E6%25B3%25A8%25E5%25B0%2584%25E7%25AC%25AC%25E4%25B8%2589%25E9%2592%2588%25E6%2596%25B0%25E5%2586%25A0%25E7%2596%25AB%25E8%258B%2597%25E7%259A%2584%25E9%2597%25AE%25E9%25A2%2598%2F&amp;tbnid=FBWoPrs3bQFrHM&amp;vet=12ahUKEwi0hvOqyMzzAhUOqHIEHcerD7QQMygDegUIARCBAQ..i&amp;docid=j0DEK1VvtXyqeM&amp;w=635&amp;h=357&amp;itg=1&amp;q=%E7%AC%AC%E4%B8%89%E9%92%88&amp;ved=2ahUKEwi0hvOqyMzzAhUOqHIEHcerD7QQMygDegUIARCBAQ)
-日本广播协会10月15日报道，负责推进疫苗接种的大臣堀内诏子，在上午的新闻发布会上表示，我们将与地方政府和医务人员密切合作，在11月的初期将确认疫苗的状况，并整理出具体的疫苗接种体制等等，最快在12月份能开始接种第三针疫苗。
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/12-8.jpg)[图片来源](https://www.sohu.com/a/273066731_819742)
+近年来，随着“天空WiFi”不断发展，特别是“星链”系统（Starlink）的试商用，更是让“激光通信”技术备受追捧。
 
-岸田文雄首相12日在参议院议员全员会议上宣布，关于第三次疫苗接种，最早将于12月开始。日本境内第三针疫苗接种将逐渐落实。
+10月14日，索尼官方宣布，索尼计算机科学实验室（下称：索尼 CSL）和康斯贝格卫星服务公司（KSAT）成功地演示了从国际空间站（ISS）上的一个太空终端（ISS 的小型光学链路：SOLISS）到 KSAT 在希腊的商业光学地面站的光学下行链路。使用的通信格式与 CCSDS（141.0-B-1 + O3K 粉皮书）空间激光通信标准一致。
 
-[信息来源](https://www.sankei.com/article/20211015-ZDUNVXQAW5JYDBTT2AOIFVZ7FI/)
+索尼这一终端体积小巧，未来能够实现高性价比的地面和太空通信解决方案。KSAT 光学解决方案总监 Hennes Henniger 表示：“这次活动对 KSAT 来说是一个很好的机会，可以验证我们第一个光学地面站的性能和光学未来的开始。”
+
+希腊 KSAT 光学地面站是光核网络（Optical Nucleus Network）的第一个站点。光核网络是航天机构和工业界之间的非正式合作，它将提供一个光学地面站网络，为太空中的光学终端服务。
+
+2020年，SpaceX透露，其已经首次成功在轨道上测试了星链卫星的“激光通信”。马斯克称，搭载激光后的传输速度，预计将比光纤快40%左右，路径也更短。因此，我们可能会看到高速的互联网传输能力，而无需接触地面。
+
+长期以来，受小型化以及视距传输的制约，激光通信主要被用于军事和特殊行业领域，因此发展相对缓慢，应用也比较狭窄。随着“天空WiFi”项目应用的不断落地，由于在数据传输方面的显著优势，激光通信将迎来巨大的发展机遇，也必将成为大数据时代的重要产品。
+
+[信息来源](https://finance.sina.com.cn/jjxw/2021-10-14/doc-iktzqtyu1385558.shtml)
 
 (文章仅代表作者本人观点，与GNEWS无关)
 
