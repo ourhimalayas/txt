@@ -2,33 +2,37 @@
 ---
 
 
-## 迫于中共言论管控，微软旗下社交平台领英（LinkedIn）宣布关闭
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1596208/)
+## 完全疫苗接种加州大学生因病毒并发症去世
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596254/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+作者：雪梨
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+21岁的美国加州佐治亚大学的肖恩·库恩（Shawn Kuhn），在完全接种新冠疫苗后，死于近期突然感染的新冠病毒，他在去世之前与病魔战斗了大约6个星期。
 
-10月14日，微软领英表示，由于“中共国越来越具挑战性的经营环境和合规要求越来越高”，将关闭网站，结束在中共国7年的运营。此举也代表最后一个在中共国公开运作的美国大型社交网站宣告关闭。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-25.jpeg)
 
-领英在中国有5300万用户，约占其总用户数的7%。微软近期表示，领英的年收入已突破100亿美元。报道称，有数名驻中共国或台湾的记者与智库研究员，均收到来自领英的邮件，表示由于他们的领英个人资料含有被禁止或是敏感的内容，所以他们的帐号、留言以及动态将在中共国境内被屏蔽。
+库恩是运动和体育专业的大四学生，身体健康，在竞技项目中获奖，在校园兼职私人教练。
 
-德国之声曾针对此事询问领英，领英表示：“为了给我们在中共国和世界各地的会员创造价值，我们将在必要时执行中共政府对内容的限制。”
+尽管新冠病毒对30岁以下人群危险性极低，但在学校和工作场所的胁迫下，年轻人正在大规模的接种，库恩和许多比他更年轻的人在这种环境下，被迫接种了含胚胎细胞的毒针。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/59369558_303.jpg)图片来自于网络
+前辉瑞公司的员工凯伦·金斯敦此前揭露，较未接种时，人体感染病毒的机率增加了3倍，而当接种第二剂后，随着时间的推移，人体免疫力逐渐减弱，感染率将持续升高。
 
-美国乔治敦大学教授麦德罗斯对华尔街日报表示，如果领英继续代表中共当局进行审查，其声誉和全球商业模式也将面临风险。
+今年6月，加州15岁少年接种辉瑞疫苗第二针2天后，死于“应激性心肌炎并伴有冠状动脉炎症”。此前，美国疾病控制和预防中心（CDC）也承认，接种mRNA疫苗的年轻男性有罹患心肌炎和心包炎的风险。如果美国政府仍强制推行疫苗接种令，随着在校学生大面积接种疫苗，越来越多的年轻人将因此受到伤害，甚至死亡。
 
-有知情人士透露，中共的互联网监管机构在3月份要求领英管理人员加强监管其内容，并限期30天内完成要求。
+(本文仅代表作者观点)
 
-据英国《金融时报》报导，拜登政府对领英退出中共国的决策表示欢迎，并指责中共政府强迫公司成为其“镇压和专制行为的同谋”。
+参考链接：[‘Fully vaccinated’ 21-year-old personal trainer dies from COVID complications](https://www.lifesitenews.com/news/fully-vaccinated-21-year-old-personal-trainer-dies-from-covid-complications/?utm_source=top_news&amp;utm_campaign=usa)
+[https://www.watsonhunt.com/obituaries/Shawn-Kuhn/#!/Obituary](https://www.watsonhunt.com/obituaries/Shawn-Kuhn/#!/Obituary)
 
-《金融时报》引述一位美国高阶官员的说法表示：“私营部门和国际社会应该反对中共利用其市场武器来扼杀自由言论和人权。”
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-*注：本文仅代表作者观点，与 Gnews无关*
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
 
-*参考链接：*
-
-[领英关闭中国网站 “一企两制”终告结](https://www.dw.com/zh/%E9%A2%86%E8%8B%B1%E5%85%B3%E9%97%AD%E4%B8%AD%E5%9B%BD%E7%BD%91%E7%AB%99-%E4%B8%80%E4%BC%81%E4%B8%A4%E5%88%B6%E7%BB%88%E5%91%8A%E7%BB%93/a-59512205)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

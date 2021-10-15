@@ -2,42 +2,18 @@
 ---
 
 
-## 随着能源危机加剧和工厂停工，中共国接纳澳洲的煤炭
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1596036/)
+## 中共国限制医疗器械进口，自给自足？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596086/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GettyImages-1231937500-e1634097009429.jpg)图片来源：fortune.com
-#### 编译：小红帽
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-279.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnews.gbimonthly.com%2Fupload%2Farticle%2F2020%2F11%2F%25E9%2586%25AB%25E7%2599%2582%25E5%2599%25A8%25E6%259D%2590.jpg&amp;imgrefurl=https%3A%2F%2Fnews.gbimonthly.com%2Ftw%2Farticle%2Fshow.php%3Fnum%3D34773&amp;tbnid=yMpwn_5UBOZD5M&amp;vet=12ahUKEwjZtJ_UuszzAhXChXIEHRZFDC8QMygeegUIARDsAQ..i&amp;docid=2h3rblppW6MxuM&amp;w=1280&amp;h=720&amp;itg=1&amp;q=%E5%8C%BB%E7%96%97%E5%99%A8%E6%9D%90&amp;ved=2ahUKEwjZtJ_UuszzAhXChXIEHRZFDC8QMygeegUIARDsAQ)
+网易新闻近日报道，国家财政部及工信部联合发布的《政府采购进口产品审核指导标准》通知流出，这份通知明确规定了政府机构（事业单位）采购国产医疗器械及仪器的比例要求。其中137种医疗器械全部要求100%采购国产；12种医疗器械要求75%采购国产；24种医疗器械要求50%采购国产；5种医疗器械要求25%采购国产。这项标准从全国范围内，把公立医院在内的单位，采购国产仪器设备的比例进行强制规范。
 
-在面临停电和工厂停工的情况下，能源匮乏的中共国对澳大利亚煤炭的禁令已被非正式地取消。这是一种耻辱性的损失。
+中共国医疗企业多少多是“作坊生产”从未进入世界前100名医疗器械名单，要求采购国产设备而有不足以解决问题，中共国财政部要求限制进口137种医疗器械名单中多是手术医疗器械和各种仪器设备，在外汇枯竭的情况下也是中共国不得已的选择。
 
-Braemar ACM船舶经纪公司的货运分析师尼克·里斯蒂奇（Nick Ristic）表示，在中共国港口外等候的少数澳大利亚货物获准靠泊和卸货。
+消息来源：[国家财政部：进一步限制进口，137种医疗器械全部采购国产](https://mo.mbd.baidu.com/r/uwGl3JiK4M?f=cp&amp;rs=740884740&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0a5c16729399eec6)
 
-里斯蒂奇先生告诉《纽约数字新闻》（New York Digital News），他认为有45万吨煤炭被卸下。
-
-其他分析师引用了较低的数字，但所有人都同意，中共国关于惩罚澳大利亚的强硬言论未能经受住即将到来的第一个冬天的寒流和相关经济影响。
-
-随着寒冷天气席卷中共国大部分地区，发电厂争相囤积煤炭，燃料价格创历史新高，中共国的能源危机已经加深。
-
-由于季节性天气模式带来从中共国北方吹来的寒风，预计家庭和办公室的供暖电力需求将猛增。
-
-预报员预测，在接下来的2-3天内，一些中部和东部地区的平均气温可能会下降多达16摄氏度。
-
-煤炭短缺、燃料价格高企和大流行后工业需求的蓬勃发展，引发了这个世界第二大经济体的普遍电力短缺。
-
-自9月以来，中共国30多个地区中至少17个地区已经实施电力配给，迫使一些工厂停产，扰乱了供应链。
-
-吉林、黑龙江和辽宁这三个东北省份是上个月受电力短缺的重灾区，包括内蒙古和甘肃在内的华北几个地区已经开始以煤炭为燃料的冬季供暖，以应对比正常天气更冷的的情况。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[China admits Australian coal as energy crisis grows (thenewdaily.com.au)](https://thenewdaily.com.au/news/world/asia-news/2021/10/15/china-unloads-australian-coal/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/ 知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
