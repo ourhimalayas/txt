@@ -2,41 +2,50 @@
 ---
 
 
-## Coinbase:美国应建立一个新的加密货币监管机构
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1594944/)
+## 参议员瑞克·斯科特：要求拜登加入我的呼吁,将 2022 年奥运会从共产主义中国移走
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1594950/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/web_GettyImages-1230489990-scaled.jpg)图片来源：fortune.com
-#### 整理报道：小红帽
-
-Coinbase在周四发布的一项新政策提案中表示，美国应该建立一个新的监管机构来监督数字资产市场。它警告说，如果不进行适当的监管，可能会使美国进一步“落后”于其他国家政府。
-
-该提案提出的前一天，其投资者之一、风险投资公司安德森·霍洛维茨 (Andreessen Horowitz)发布了对包括区块链和数字资产在内的下一代互联网服务应如何监管的看法。a16z【**注：**Andreessen Horowitz（又名a16z）是一家美国私人风险投资公司】的高管们计划在本周与政府各部门的领导人会面。
-
-Coinbase的愿景与安德森·霍洛维茨的愿景重叠，但包含一些细微差别，并且更加关注数字资产。虽然a16z提倡各监管机构之间进行合作，但Coinbase在其政策报告中表示，数字资产市场应该只有一个监管机构。
-
-Coinbase首席政策官Faryar Shirzad（法亚尔·希尔扎德）在早前的电话会议上表示，该公司已经与大约三十几个议员办公室以及几个机构会面，讨论该提案的各个方面。他说，到目前为止，国会山的反馈是“受欢迎的”。
-
-总的来说，Coinbase在政策报告中表示，它希望有一个“明确而全面的方法来监管数字资产，并希望监管能符合目的”。 Coinbase表示监管需要认识到技术如何能使公众受益，并警告说，在制定全面的数字资产监管方面，美国已经“落后”于其他政府。
-
-Coinbase将其建议分解为四大支柱：
-
-- 创建一个新的数字资产监管框架，与传统金融系统的监管框架分开。
-- 将监管数字市场的责任交给一个新的单一联邦机构，以及一个类似于传统市场的非政府自律组织。
-- 保护数字资产持有者免受欺诈和市场操纵，并要求披露信息以提高透明度。
-- 促进产品之间的公平竞争和互操作性。
+参议员瑞克·斯科特： 在几个月的完全无所作为和沉默之后，今天我再次要求乔·拜登加入我的呼吁，将 2022 年奥运会从 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 移走，并保护美国运动员和美国队的安全和个人信息免受中共国的侵入性监视。 【附斯科特参议员官网声明】
 
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
 
-**参考新闻：**[Coinbase says U.S. should create a new cryptocurrency regulator (cnbc.com)](https://www.cnbc.com/2021/10/14/coinbase-says-us-should-create-a-new-cryptocurrency-regulator.html)
+> After MONTHS of complete inaction & silence, today I again demanded Joe Biden join my call to move the 2022 Olympics out of Communist China & protect the safety & personal information of American athletes & Team USA from China's invasive surveillance. [https://t.co/zClmB4xUyr](https://t.co/zClmB4xUyr)
+> — Rick Scott (@SenRickScott) [October 14, 2021](https://twitter.com/SenRickScott/status/1448778039031181320?ref_src=twsrc%5Etfw)
 
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+参议员瑞克·斯科特： 我很高兴[@LinkedIn](https://twitter.com/LinkedIn)和微软正在努力解决我对于（中共国）对美国人不可接受的审查制度的担忧。 每家美国公司都需要在全球范围内支持言论自由，并反对 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 及其种族灭绝和侵犯人权的行为。这是一个好开始。 【附华尔街日报的新闻：微软说将关闭在中国的LinkedIn网站】
+
+
+
+> I’m glad [@LinkedIn](https://twitter.com/LinkedIn?ref_src=twsrc%5Etfw) & [@Microsoft](https://twitter.com/Microsoft?ref_src=twsrc%5Etfw) are working to address my concerns over the unacceptable censorship of Americans.
+> 
+> Every U.S. company needs to stand for free speech worldwide & take a stand against Communist China & its genocide & human right abuses. This is a good start. [https://t.co/DOQK6PboTh](https://t.co/DOQK6PboTh)
+> — Rick Scott (@SenRickScott) [October 14, 2021](https://twitter.com/SenRickScott/status/1448762596975382533?ref_src=twsrc%5Etfw)
+
+
+
+参议员汤姆·科顿： 在艾伦·埃斯特维兹确认他将解决 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 构成的威胁之前，他无权在商务部任职。 【附科顿参议员官网声明】
+
+
+
+> Until Alan Estevez confirms that he will address the threat posed by the Chinese Communist Party, he has no business serving at the Department of Commerce.[https://t.co/uGFCcnO43d](https://t.co/uGFCcnO43d)
+> — Tom Cotton (@SenTomCotton) [October 14, 2021](https://twitter.com/SenTomCotton/status/1448758126006657025?ref_src=twsrc%5Etfw)
+
+
+
+美国第780军事情报旅(网络)： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在南亚的影响力：四个国家的脆弱性和韧性 【附卡内基捐赠基金网[http://Carnegieendowment.org](https://t.co/O2KmgjJU98?amp=1) 同名文章链接】“孟加拉国、马尔代夫、尼泊尔和斯里兰卡展示了 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在一个非常多维地区的参与战略的多样性，但也表明南亚的影响者们正在相互学习与中共国金钱和权力(关系)的经验。
+
+
+
+> China’s Influence in South Asia: Vulnerabilities and Resilience in Four Countries [https://t.co/vOwy8iEFHf](https://t.co/vOwy8iEFHf) via [@CarnegieEndow](https://twitter.com/CarnegieEndow?ref_src=twsrc%5Etfw)
+> — 780th Military Intelligence Brigade (Cyber) (@780thC) [October 14, 2021](https://twitter.com/780thC/status/1448696155664179209?ref_src=twsrc%5Etfw)
+
+
+
+参议员卢比奥媒体办公室： 卢比奥参议员欢迎哈佛大学 [@Harvard](https://twitter.com/Harvard) 把他们的中文暑期项目从 [#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 移到 [#台北](https://twitter.com/hashtag/%E5%8F%B0%E5%8C%97?src=hashtag_click) 的决定。[#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 向全世界提供了独特的机会，可以学习中国的语言，传统和文化，不受 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 的压迫。其他的美国大学也应该效仿。（转纽时，哈佛把受欢迎的中文项目转移到台北）
+
+
+
+> Sen.Rubio welcomes [@Harvard](https://twitter.com/Harvard?ref_src=twsrc%5Etfw)’s decision to move its Chinese language summer program from [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw) to [#Taipei](https://twitter.com/hashtag/Taipei?src=hash&amp;ref_src=twsrc%5Etfw).[#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) offers the world a unique opportunity to learn about Chinese language,traditions, & culture free from [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) repression. Other U.S. universities should follow suit. [https://t.co/7BX0xdTtHz](https://t.co/7BX0xdTtHz)
+> — Senator Rubio Press (@SenRubioPress) [October 14, 2021](https://twitter.com/SenRubioPress/status/1448660962148372488?ref_src=twsrc%5Etfw)

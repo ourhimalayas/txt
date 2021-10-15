@@ -2,58 +2,41 @@
 ---
 
 
-## 加拿大安大略省的疫苗接种要求证明最终可能成为企业的自愿行为
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1594919/)
+## Coinbase:美国应建立一个新的加密货币监管机构
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1594944/)
 
-**翻译：**圆成农场新闻组
-![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-14-204901-edited.png)图片来源：网络
-据CTV NEWS报道：多伦多——安大略省的疫苗接种要求证明最终可能降级为自愿计划，因为省政府正在考虑一套新的措施，以缓解企业对大流行的限制。
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/web_GettyImages-1230489990-scaled.jpg)图片来源：fortune.com
+#### 整理报道：小红帽
 
-知情人士说，福特政府正在制定第三步后战略，将取消对需要疫苗证书的企业的产能限制——该计划将于下周公布。
+Coinbase在周四发布的一项新政策提案中表示，美国应该建立一个新的监管机构来监督数字资产市场。它警告说，如果不进行适当的监管，可能会使美国进一步“落后”于其他国家政府。
 
-作为”分阶段办法”的一部分，消息人士说，只要该省的疫情状况继续改善，政府正在考虑可能放宽疫苗接种规定的强制性证明。
+该提案提出的前一天，其投资者之一、风险投资公司安德森·霍洛维茨 (Andreessen Horowitz)发布了对包括区块链和数字资产在内的下一代互联网服务应如何监管的看法。a16z【**注：**Andreessen Horowitz（又名a16z）是一家美国私人风险投资公司】的高管们计划在本周与政府各部门的领导人会面。
 
-一位了解该计划的消息人士表示：“（我们）希望疫苗证书不再强制性。
+Coinbase的愿景与安德森·霍洛维茨的愿景重叠，但包含一些细微差别，并且更加关注数字资产。虽然a16z提倡各监管机构之间进行合作，但Coinbase在其政策报告中表示，数字资产市场应该只有一个监管机构。
 
-虽然没有实施该计划这一阶段的时间表，但该消息人士补充说，疫苗证书计划仍将是自愿的。”
-![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-14-204807-edited.png)图片来源：网络
-福特省长预计将在本周五发表讲话，比安大略省退出第3步的疫苗接种证明，QR守则实施提前一周。
+Coinbase首席政策官Faryar Shirzad（法亚尔·希尔扎德）在早前的电话会议上表示，该公司已经与大约三十几个议员办公室以及几个机构会面，讨论该提案的各个方面。他说，到目前为止，国会山的反馈是“受欢迎的”。
 
-卫生首席医疗官基兰·摩尔博士周四在接受记者采访时说，他预计安大略省在时机合适时将“分阶段取消”疫苗证书。
+总的来说，Coinbase在政策报告中表示，它希望有一个“明确而全面的方法来监管数字资产，并希望监管能符合目的”。 Coinbase表示监管需要认识到技术如何能使公众受益，并警告说，在制定全面的数字资产监管方面，美国已经“落后”于其他政府。
 
-摩尔说：“我们可能在某些场所不要求他们，但在群众集会上仍然要求他们。”我们没有看到整个认证过程突然结束，而是随着时间推移逐步退出。
+Coinbase将其建议分解为四大支柱：
 
-摩尔说，逐步取消公共卫生措施，“使我们在安大略省一直做得很好”，他希望继续这样做。
+- 创建一个新的数字资产监管框架，与传统金融系统的监管框架分开。
+- 将监管数字市场的责任交给一个新的单一联邦机构，以及一个类似于传统市场的非政府自律组织。
+- 保护数字资产持有者免受欺诈和市场操纵，并要求披露信息以提高透明度。
+- 促进产品之间的公平竞争和互操作性。
 
-他还说，在他确定感恩节周末对该省COVID-19局势的影响之前，安大略省的限制不会放松。
 
-自7月以来，安大略一直处于“重新开放路线图”的第3步。由于8月份COVID-19病例增加，该省推迟了退出第3步。
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-退出路线图第 3 步可能意味着在许多设置中增加了容量限制，但哪些限制将放宽的细节尚未得到确认。
+**参考新闻：**[Coinbase says U.S. should create a new cryptocurrency regulator (cnbc.com)](https://www.cnbc.com/2021/10/14/coinbase-says-us-should-create-a-new-cryptocurrency-regulator.html)
 
-消息人士说，室内遮盖要求将保持不变。
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-卫生部在周三对多伦多CTV新闻的早些时候声明中说，安大略省的COVID-19活性病例率是全国最低的。
-
-卫生部发言人说：“我们现在能够研究哪些公共卫生措施能够解除，同时保持谨慎的态度。”
-
-周三晚上，多伦多CTV新闻联系了福特的办公室，但没有得到回应。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-14-204742.png)图片来源：网络
-上周六，安大略取消了某些大型场馆的容量限制，包括用于音乐会、体育和电影的场馆。
-
-多伦多枫叶队周三在几乎满员的观众面前举行了主场揭幕战。
-
-周三晚上，多伦多卫生官员在接受CP24采访时说，Leafs的回归为该市的许多人提供了“非常需要的推动”，健康限制应该意味着会场仍然安全。
-
-她补充说，目前正在就是否在其他领域放松能力限制进行“积极讨论”。
-
-餐饮业本周对省政府表示失望，因为没有发布任何放松对企业限制的计划。
-
-新闻来源：[https://toronto.ctvnews.ca/ontario-s-proof-of-vaccination-requirement-could-eventually-be-made-voluntary-for-businesses-sources-1.5622432](https://toronto.ctvnews.ca/ontario-s-proof-of-vaccination-requirement-could-eventually-be-made-voluntary-for-businesses-sources-1.5622432)
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：LILY
-
-21211014
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

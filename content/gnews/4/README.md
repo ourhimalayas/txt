@@ -2,10 +2,10 @@
 ---
 
 
-## 受中共病变疫情影响，日本学生自杀人数创历史新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1594953/)
+## 高雄大楼火灾酿惨剧，已造成46人死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1594966/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10._15-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1015-scaled.jpg)
 （文章仅代表作者个人观点，与GNEWS无关）
 
 *编辑：东京樱花团/简报小组*
