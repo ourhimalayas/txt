@@ -2,38 +2,76 @@
 ---
 
 
-## 鲁比奥等参议员呼吁 从华为剥离的荣耀必须列入黑名单
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596087/)
+## 今天，我们都是欧金中
+` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1596209/)
 
-作者：七哩香
+By：银河勇气星｜天雷滚滚
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+莆田杀人案的主角欧金中的事件还在继续发酵，不出所料，官媒开始出来公关洗地了。先看一下央视网阴阳怪气的评论。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-32.png)图片来源：网路
 
+网民何曾美化过暴力，只是对欧金中被政府纵容黑恶势力欺凌感到无比愤怒而已。当然《环球屎报》的胡叼盘一看有一大坨屎可以吃了，也开始出来“汪汪”乱咬了。
 
-本周四，三名共和党参议员鲁比奥、斯科特、和科宁发信给美国商务部长雷蒙多，呼吁拜登政府，把从中共电信巨头华为剥离出去的手机生产商“荣耀 ”，加入到商务部黑名单。称这家中国国有公司躲避了美国的出口管制，从而对美国国家安全构成威胁。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1015AM（1-5）視頻備用.005.jpeg)
-这几位参议员表示，华为为了避免美国对它实施的出口控制，把荣耀卖给由深圳市政府控制的「深圳智信新信息技术有限公司」，从而通过荣耀不受限制地获得华为目前无法得到的宝贵的美国技术，华为的一些高管、工程师以及其他雇员，也都转到了荣耀。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/2-17.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/3-10.png)
 
-2019年，川普政府以危害国家安全为由，把华为列入商务部的实体名单，导致华为无法获得关键的美国软件和硬件，包括半导体。荣耀是华为在2011年9月推出的一个子品牌，2013年12月开始独立运作。2020年11月17日，荣耀被华为剥离。
+图片来源：网路
+胡叼盘这种避重就轻乱带节奏的目的，就是要为其效忠的主子治下官吏与地方恶势力狼狈为奸欺压良善百姓的罪恶洗地，教育老百姓，官再坏，民也只能忍受，不能造反。
 
-今年八月，以众议员外交委员会的麦考尔议员为首的14名共和党众议员，也曾呼吁商务部把荣耀列入黑名单。
-(本文仅代表作者观点)
+还有一种共匪豢养的网络大咖也迫不及待地跳出来，用一贯的套路，开始从道德上污名化受害人了。
 
-参考链接：[鲁比奥等参议员呼吁把从华为剥离出来的手机生产商荣耀列入黑名单](https://www.voachinese.com/a/Honor-rubio-scott-cornyn-entity-list-20211014/6271666.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-27.jpg)图片来源：网路
 
+这条通篇都是“根据可靠消息”的公众号阅读量超过了10万+，欧金中变成了真正的恶霸，又是“据说”有犯罪前科，想霸占邻居土地。真是这样吗？
 
+30年前，欧金中从海里救下的小男孩出来报答救命恩人，为他发声了。这三分多钟的视频中，该男子数度泣不成声。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/8-12.png)图片来源：网路
 
-新闻访谈终审：FoxRina
-编辑/校正/发稿：我不在这里
+![](https://assets.gnews.org/wp-content/uploads/2021/10/9-12.png)图片来源：网路
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+这是欧金中获批的新房规划图，看看欧金中和村霸家的对比
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/8-11.png)图片来源：网路
+
+再看看欧金中窝棚特写，现代版的朱门酒肉臭，路有冻死骨。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-1-1.png)图片来源：网路
+
+我们再来看看网传的村霸那种嚣张恶毒地向欧金中炫耀的自拍视频。
+视频来源：网路
+里边的方言：我这房子是多么宽敞凉爽，真舒服，你现在大太阳的，没房子住，我看你能活多久。然后不停地咒他死，视频处有7处提到死。
+
+一个合法建房的善良的人，却被地方恶霸屡屡阻拦，致使他一家几口带着他90岁的老母亲住进比猪窝还差的铁皮屋顶简易住房里，一住就是五年。这是在南方福建，冬天阴冷的海风灌进这个窝棚，像冰窖；夏天，40度的高温炙烤着铁皮，里面就是一个蒸笼，是个人看到都会同情。他请求各级政府解决问题，甚至找到公安部投诉，都是石沉大海。然后，他就找媒体，密密麻麻的烟盒上，都是各级政府及媒体的电话号码，并且还寻求《焦点访谈》来帮忙。无人理他，于是用他满是错别字的帖子，学会了在微博寻求帮助，还是无济于事。可以这样说，他找遍了他能找到的所有的寻求帮助的渠道，但这个世界，没有给他一个说法的地方。
+
+再来看看，欧金中激情杀人后，当地政府的反应。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/11-10.png)图片来源：网路
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/13-3.png)图片来源：网路
+
+都杀人了，还在为自己大唱赞歌；一个乡政府，竟然用纳税人的，去悬赏他，发现死的竟然比活的钱多！他们这是要杀人灭口吗？公权力的无耻和恣意妄为，让老百姓是无比的愤怒。看看他们的跟贴。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/14-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/15-3.png)
+
+图片来源：网路
+再看看上百万网民对欧金中杀人事件的态度。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16-4.png)图片来源：网路
+
+胡叼盘，睁开你的狗眼瞧瞧这100多万人的点赞和3万多的评论，老百姓不是傻子，一个帖子上百万的点赞，只是民意的体现而已。谁都明白，一个助纣为虐的共产党政府，让谁都有可能成为下一个欧金中！共产党政府才是最大最坏的村霸——地球村村霸！
+
+这么多年来，“村霸”共产党残暴地对待墙内百姓，任意残害中国民众。多少的战友因不堪这个恶霸的欺凌而远走异国他乡。可是，无论走到天涯海角，我们还依旧被遭受他的恐吓，胁迫——像对G系列的打压，还对郭先生发起的一系列的诉讼，不能在肉体上消灭他，就企图对其发起法律超限战。有的甚至被肉体消亡，像张首晟教授。欺负了本国国民，还开始欺负外国国民，战狼外交，还有对各国的病毒袭击等等。
+
+“地球村村霸”——中共不灭，我们每个人都会成为欧金中！
+
+（文章内容仅代表作者观点）
+
+作者：天雷滚滚
+审核：兵嫂、骄子
+发布：骄子
+
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家-1.jpeg)
