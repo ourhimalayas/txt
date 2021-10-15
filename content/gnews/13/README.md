@@ -2,51 +2,33 @@
 ---
 
 
-## 中共国全面禁止非共产党资助的自媒体发布新闻，进一步打压言论自由
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1596403/)
+## SMART联盟宣布强烈反对强制接种疫苗
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1596422/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/101502.jpg)
-摘要翻译
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-- 中共国提出禁止所有私人投资新闻公司
-- 法律上意味着所有报纸都必须由共产党资助
-- 这只是在科技行业受到打击后，对其他行业的新的打击
-- 一位专家说：“政府正在确保控制它的信息的发布和传播。”
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/S-2.jpg)cybernistas.com
+反对强制疫苗活动又有重大进展，北美拥有203,000名成员的钣金、航空、铁路和运输联盟（SMART）宣布反对强制接种疫苗。
 
+《门道专家》发表文章，进行了专门报道：
 
-正文
+SMART是国际钣金、航空、铁路和运输工人协会，是北美最具活力和多样性的工会之一，拥有203,000名会员。该工会由钣金工人、服务技术人员、公交车运营商、工程师、售票员、铁路信号工、焊工、生产员工等组成。SMART是北美最大的铁路运营联盟，拥有500多名当地交通运输人员。
 
-中共国已提出取缔所有非共产党直接资助的新闻机构。由国家发展和改革委员会起草的新法律将禁止任何私人投资“新闻采编和广播”。
+周四（10月14日），SMART联盟总裁罗伊·戴维斯（Roy Davis）致函联合太平洋铁路公司（Union Pacific Railroad Company），告知该公司，SMART联盟强烈反对该公司对中共（新冠）病毒疫苗接种的“单方面”要求。
 
-在今年初原本蓬勃发展的科技行业和其亿万富翁的所有者遭到重创之后，这标志着执政的中共对私营企业的新一轮打压。
+SMART要求立即作出回应，并要求“承运人”本着诚信的原则进行谈判。
 
-据《南华早报》报道，控制可以资助新闻采集公司的法律至少从2005年就开始实施。《南华早报》称它也是受到这一变化影响的报纸之一。
+这是美国运输业员工工会的一项重大举措。
 
-但这些规则通常只适用于实体报纸，而且执法不严，允许在线媒体引入私人投资。由国家发改委起草、目前正在审查中的新法律似乎旨在弥补这一漏洞。它包含在一份名为“市场准入负面清单”的文件中，该文件概述了不直接来自国家或国有企业的资金的私人投资被行业禁止或限制。
+原文附上了SMART联盟的公开信。
 
-清单上的第6项相当于全面禁止私人投资所有类型的媒体——从新闻机构到广播和电视，以及在线内容。它还将禁止私营企业直播与“政治、经济、军事、外交事务或社会、文化、技术、健康、教育和体育方面的重大活动或事件”有关的任何内容。
+（原文完）
 
-私营媒体也将被禁止“引用外国实体发布的新闻”。这表明在中共国境内经营的海外媒体也可能受到禁令的影响。该禁令甚至会影响由新闻出版商主办的“峰会和颁奖典礼”。
+邪恶势力，你们有本事把飞机驾驶员、火车驾驶员都开除，把医生、护士都开除！猖狂到了极点，哪有这般的强制行动，当年纳粹也没有如此明目张胆，也没敢对全世界人出手！把世界当成中共统治下的中共国了，人民怎可以逆来顺受？有了爆料革命，邪魔遇到了克星，新中国联邦就是惩邪降魔的力量，战友们，加油！
 
-山西大学一位罗姓的退休讲师告诉自由亚洲电台，共产党“正在确保控制信息”。
+（文章仅代表作者个人观点）
 
-**简评：**
+原文链接：
 
-中共国原本就有防火墙和出版管控，现在出台更加严格的措施，使得老百姓更加发声无门。 使普通民众目之所见，耳之所闻，皆为中国共产党安排好的谎言。文化大革命的气息越来越浓厚了。只是学习“强国”看来还不能让“中南坑”满意，相信不久的将来，毛泽东语录，习近平思想之类的书籍，又将被强制背诵了。
-
-新闻链接：[China moves to ban all private news publishers that are not funded by the Communist Party in further crackdown on free speech](https://www.dailymail.co.uk/news/article-10082989/China-moves-ban-news-publishers-not-funded-Communist-Party.html)
-
-***翻译**：Barfuss*
-
-***校对**：clau*
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[https://www.thegatewaypundit.com/2021/10/boom-sheet-metal-air-rail-transportation-union-smart-203000-members-announces-stand-forced-vaccines/](https://www.thegatewaypundit.com/2021/10/boom-sheet-metal-air-rail-transportation-union-smart-203000-members-announces-stand-forced-vaccines/)
