@@ -2,30 +2,31 @@
 ---
 
 
-## 中共干预神户日台交流峰会，议员表示：绝不屈服
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593745/)
+## 六四纪念雕塑将遭移除 ,丹麦雕塑家对峙港大
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1593974/)
 
-作者：云豹
-
+作者：FoxRina
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+丹麦雕塑家高志活纪念八九·六四天安门大屠杀的雕塑作品「国殇之柱」将遭到香港大学的移除，高已聘请了律师和外交官处理此事，并表示如果他高达8 米的六四大屠杀遇难者雕像遭到破坏，他将起诉香港大学。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-22.jpeg)
 
+高志活是这位关注中国人权的丹麦雕塑家的中文名字，和他的丹麦姓名发音相近。高志活是中国大陆人权的关注者，国际人权组织橙色运动发起人之一，并因其人权艺术活动在2009年访港时遭到中共拒绝入境。
 
-神户市议员 上畠(tián)宽弘 13日在推特中发文表示，在神户市议会69位议员，无异议通过“支持台湾以观察员身分参与10月下旬在神户举行的「WHO西太平洋地区委员会」”后，神户市接到中共总领事馆政治部主任的电话抗议，甚至要求停办预定11月12日在神户市举办的第7届日台交流高峰会。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1014-AM-（3-5）.001.jpeg)
-身为提案人和本届日台交流高峰会执行委员会秘书长的神户市议员上畠愤慨表示：「日台情谊不灭，绝不向中共屈服！」
+雕塑“国殇之柱”1997年由以组织天安门广场大屠杀遇难者年度追悼会而闻名的香港市民支援爱过民主运动联合会向其雕塑者无限期借用，并安置在香港大学，是中国境内纪念六四的唯一雕塑。高大的雕塑上布满了扭曲的面孔，震撼地描绘了天安门广场大屠杀的受害者，强烈引发观者的深思与悲愤。
 
-神户市议会在10月7日通过意见书，建议日本政府采取措施让台湾以观察员身分参与「WHO西太平洋地区委员会」。 主要理由是台湾是航路、金融、观光枢纽，从台湾入出境或过境的旅客高达6900万人，若台湾无法参与WHO等国际组织，势必会产生地理上的空白，对日本、台湾，甚至全世界民众的健康恐构成威胁。
+由于国安法暴政和香港民主的全面沦陷，支援会于上个月被迫解散，部分成员被捕或被拘留中。港大高层要求支援会于本周三下午5点之前对雕塑完成拆除，否则将被视为放弃。
 
-本月25日至29日，WHO预计在日本兵库县姬路市举行其第72届西太平洋地区委员会，共有37个西太平洋国家和地区参加，日本为本次大会主办国。
+然而该雕塑仍为其创作者所拥有，估价约为1200 多万瑞典克朗。高志活现已在香港聘请律师处理此案，并寻求丹麦官员的外交帮助，以保护这座雕塑，或至少确保该雕塑可以毫无损坏地从香港大学移走。
+
 (本文仅代表作者观点)
 
-参考链接：[中國干預神戶市辦日台交流峰會 日議員：絕不屈服](https://www.cna.com.tw/news/firstnews/202110140003.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+参考链接：[Dansk staty om massakern vid Himmelska fridens torg skapar storbråk i Hongkong](https://kinamedia.se/2021/10/14/dansk-staty-om-massakern-vid-himmelska-fridens-torg-skapar-storbrak-i-hongkong/)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
 新闻访谈终审：FoxRina
-编辑/校正/发稿：我不在这里
+编辑/校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -33,5 +34,4 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

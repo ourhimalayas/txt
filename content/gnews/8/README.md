@@ -2,20 +2,20 @@
 ---
 
 
-## 雅典娜时报-第082期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1594897/)
+## 折戟沉沙&#8211;魁北克医护人员短缺迫使强制疫苗接种延期！
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1594907/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+撰稿：Spirit 编辑校对：硫酸羟氯喹64
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/10/32.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/33.png)
-（文章内容仅代表作者个人观点，与GNEWS无关）
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/蛋白.jpg)图片来源：CTV
 
-***发布：小红帽***
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据加拿大《CBC新闻》10月13日报道，魁北克卫生部长杜贝当天宣布：由于医护人员短缺所带来的巨大医疗风险，魁省政府不得不决定将强制医护人员接种新冠病毒疫苗的最后期限由10月15延至11月15日。
+
+最近，魁省政府一直施压其医护人员接受新冠病毒疫苗注射任务，并坚持要对不遵守该规定的员工实施停薪留职的处罚。目前，该省93%的医护人员已完全接种了该疫苗，但仍有约2.2万名医护人员因为他们只接种了一剂或未接种该疫苗而面临相关处罚。
+
+此前，魁北克省在医护和卫生人员严重短缺的情况下，曾在各公共部门紧急招聘了1000多名全职护士，以应对不断恶化的疫情危机。为此，该省卫生部长承认，魁北克的医疗卫生系统将无法应对同时失去这么多工作人员所引发的巨大医疗风险。
+
+（以上内容仅代表原文信息和作者个人观点）
+
+[原文链接：](https://www.cbc.ca/news/canada/montreal/dube-update-health-services-plan-1.6208975)
