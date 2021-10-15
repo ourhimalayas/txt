@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/15/2021 8:43 PM (UTC)`
+
+10/15/2021 Miles Guo’s GETTR: The most crucial thing for the New Federal State of China and the Whistleblowers’ Movement is not to forget about any fellow fighters. I will always strive to make sure the fellow fighters’ contributions get the respect and rewards they deserve, and let them live a better life. The New Federal State of China has given everyone a hope that can be fulfilled within a certain period of time instead of the CCP’s lies such as the so-called “China dream”<br/><br/>10/15/2021 文贵盖特：新中国联邦和爆料革命最重要的是不忘记任何一个战友，文贵会永远努力让战友们的付出得到应有的尊重和回报，让他们过上更好的生活；新中国联邦带给大家能兑现的希望，而非中共所谓“中国梦”的欺骗<br/>
+![img](https://media.gettr.com/group34/getter/2021/10/15/20/43/d795e309-b702-4209-acea-d49bd29c1837/out.jpg)
+
+---
+
 `@miles 10/15/2021 1:40 PM (UTC)`
 
 10月15号：尊敬的战友们好，你们健身了吗？传播疫苗解药，C C P病毒的真相了吗？一切都已经开始！
@@ -293,13 +300,6 @@ Henry Reitzug博士强烈建议所有人都不要接种疫苗，而是寻求其�
 
 MILES GUO Live Stream 2021/10/11
 ![img](https://media.gettr.com/group22/origin/2021/10/11/21/7c71012f-b64e-3475-cb21-0ac0c494ad42/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 10/11/2021 4:59 PM (UTC)`
-
-10月11号：尊敬的战友们好！这是川普总统办公室的官方帐号，希望大家分享这里的有关信息，和加上他的关注。🔥🔥🔥
-> `@45statements 10/11/2021 4:56 PM (UTC)`<br/>ICYMI: "AZ State Rep. Mark Finchem Speaks At Trump Rally In Des Moines: “34,000 Or 35,000 Fictitious Voters–We Believe We Found Them.”"<br/><br/>https://www.thegatewaypundit.com/2021/10/az-state-rep-mark-finchem-speaks-trump-rally-des-moines-34000-35000-fictitious-voters-believe-found/
 
 ---
 
