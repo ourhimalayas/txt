@@ -2,19 +2,21 @@
 ---
 
 
-## 年轻人自杀的高峰
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1597417/)
+## 秘翻在线：美国上半年遭受黑客勒索软件攻击导致赎金金额急剧上升
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1597483/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10162.jpg)
-据美国有线电视新闻网报道，美国教育部宣布称，2020年学生自杀数量比 2019年增加了约 31%。这涉及 6 至 18 岁之间的阶段。他们是那些未能克服大流行的艰难时期以及在 2020 年不得不忍受的身心孤独的孩子。
+#### 撰稿：彩虹
 
-在昨天发布的包含 2020 学年数据的文件中，增长特别集中在去年 6 月，随后是 8 月之后，在较短的暑假后重新开始课堂学习。有14名小学生自杀，比上年增加8名；中学生有136人自杀，增加40人；高中生有329人自杀，比2019年增加了92人。[在自杀的高中生中女孩](https://www.corriere.it/cronache/08_febbraio_24/giappone_suicidi_collettivi_internet_c5d869f6-e2b8-11dc-a3c3-0003ba99c667.shtml)的自杀人数几乎翻了一番，从 71 人增加到 138 人。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-2-2.png)图片来源：ThreatPost
+10月16日，《新闻极限》报道说，在2021年上半年，美国勒索软件受害者已经向犯罪分子支付了约5.9亿美元。
 
-日本教育部儿童事务司司长告诉广播公司NHK说，学生自杀人数的增加非常令人震惊。特别该国女性自杀率令人担忧的数据急剧增长，自 2020 年 7 月以来，日本女性自杀的人数开始上升，尤其是 30 岁以下的女孩。仅在 2020 年 10 月，就有 826 名女孩在 30 岁以下自杀，而 2019 年是486 名。
+根据美国财政部金融执法网络的《金融趋势分析报告》，截至6月30日，有635份勒索软件可疑活动报告(SAR)，涉及458笔付款，比2020年全年增加了30%。
 
-免责申明：本文只代表译者观点，与Gnews无关
+该报告援引了佐治亚州的科洛尼尔管道运输公司（*Colonial Pipeline*）遭受勒索软件攻击的案例，该公司5月份向东欧的黑客支付了500万美元的无法追踪的加密货币。该黑客攻击导致东部沿海地区的汽油运输一度陷入混乱。报告说：“最近的其他攻击，针对了不同的行业，包括制造业、法律、保险、医疗保健、能源、教育和食品供应链。”
 
-原文链接：[https://www.corriere.it/esteri/21\_ottobre\_15/covid-isolamento-giappone-picco-suicidi-giovanissimi-sono-415-2020-3b9a0462-2d62-11ec-be4a-8aaf23299e0e.shtml](https://www.corriere.it/esteri/21_ottobre_15/covid-isolamento-giappone-picco-suicidi-giovanissimi-sono-415-2020-3b9a0462-2d62-11ec-be4a-8aaf23299e0e.shtml)
+报告指，2020年全年，网络犯罪分子勒索了共4.16亿美元，而今年上半年的5.9亿美元相对于去年全年增加了近42%。文章特别报道，比特币（Bitcoin）是黑客最喜欢的接受赎金的方式。正如财政部部长珍妮特·耶伦（Janet Yellen）所讲：“勒索软件和网络攻击导致全美大大小小的企业成为受害者，对我们国家的经济构成了直接威胁。” 财政部副部长沃利·阿德耶莫 (Wally Adeyemo)说：“勒索软件的实施者是犯罪分子，他们利用了全球虚拟货币生态系统中的合规制度的漏洞而（屡屡）得逞。”
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+**新闻来源**
+
+[US Ransomware Attacks Jump First Six Months of 2021, Up 30 Percent Over All of 2020](https://www.newsmax.com/newsfront/ransomware-increase-bitcoin-treasury/2021/10/15/id/1040730/)

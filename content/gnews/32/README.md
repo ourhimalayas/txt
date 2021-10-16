@@ -2,30 +2,34 @@
 ---
 
 
-## 澳洲超市巨头联手四大银行推进无现金消费模式
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1597111/)
+## 中共建设类似台北的模拟城市进行军事模拟训练
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597249/)
 
-翻译/评论：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_1650.jpg)网络截图
-据澳洲《新闻网》报道，伍尔沃斯（Woolworths）科尔斯（Coles）联手四大银行推出新的付款方式。澳大利亚消费者将在圣诞节前，在两大超市Woolworths和Coles使用二维码扫描支付购物账单。
+作者：RYAN
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+澳媒news.com10月14日报导：中共国建设类似台北的模拟城市进行军事模拟训练，证明中共多年来一直在为一场引发全球大规模冲突的战争而准备。2013 年 3 月下旬至 2015 年 3 月中旬在内蒙古朱日和作战训练基地的卫星图像记录了模拟台北的建造过程。总统总部是模拟城市最显著的特征。2015 年年中，中共官媒播放了解放军模拟在台北地区进行的训练演习的简短片段：军队从直升机上降下并走上街头，发射机枪并袭击总统总部。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture500-1.jpg)
+在过去三年的大部分时间里，台湾人民一直忍受着中共的军事挑衅和武力统一的威胁。
 
-这个在中共国早就引以为傲的支付方式。终于借CCP病毒大流行登陆澳大利亚了。此时的消费者，可能将迫不及待的接受这个能减少“病毒感染的”无现金付款方式，全然不在乎自己的私人讯息会被收集和跟踪。
+过去几周，中共无视台北和美国的警告，通过定期飞越台湾领空来展示其空中力量。
 
-据悉，超市巨头和包括联邦银行和澳大利亚国民银行在内的主要银行已经与Eftpos公司合作，推出了一个新的支付平台，称为eQR。
+9 月下旬，几乎每天都在发生突破防空识别区的事件。飞行演习一直在继续，引发了人们对其日益咄咄逼人的对台立场的担忧。台湾外交部长吴钊燮上周告诉美国广播公司，台湾已做好战争准备。分析人士说，习近平主席在推动台湾统一方面已经把自己逼到了绝路。
 
-澳洲在疫情期间，这种二维码技术被广泛用于“签出签入”各个公共场所，作为重要监控措施之一，人们已经接受并习惯了这个“新技术”。
+郭先生近期的爆料也一再强调：中共入侵台湾的可能性达95%，台湾危矣！
 
-它将在全国范围内推广，预计将帮助零售商从客户那里收集更多的数据，并通过将客户的会员卡积分系统与二维码联系起来，使他们能够获得个性化地优惠服务。
+（本文仅代表作者观点）
 
-在商店里，它将通过在结账处设置一个二维码来工作，顾客可以通过他们的手机摄像头或商店的应用程序来扫描。
+参考链接：[中共建设类似台北的模拟城市进行军事模拟训练](https://www.news.com.au/technology/innovation/military/proof-china-has-been-practising-for-years-for-a-war-that-would-spark-mass-global-conflict/news-story/efe55679a42171268224ba89b084e386)
 
-Eftpos首席执行官Stephen Benton说，新的支付平台是为了重新规划澳大利亚的支付体验。”我们预计eQR将迅速成为相当于Eftpos借记卡上的点击支付的二维码。Covid19已经改变了客户消费行为和习惯，澳大利亚人现在已经准备好接受eQR所提供的增强型支付体验，”他说。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
-无现金社会已经势不可挡，将在全球范围内快速推进。这或许是一种社会进步，因为数字货币代替纸钞在技术上已经完全成熟。这也同样符合我们即将上市的喜币的愿景，未来喜币加入eQR以及全球其它国家的数字支付系统，就是我们新中国联邦货币登上世界舞台的时刻。
+新闻访谈终审：鬼五
+编辑/校对/审核：Hetangyuese
 
-（本文纯属个人观点，与Gnews无关）
-
-[原文链接：](https://www.news.com.au/finance/business/retail/woolworths-coles-and-big-banks-introduce-new-way-to-pay/news-story/78aa9368f17330cf5d7b0c8299317c94)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

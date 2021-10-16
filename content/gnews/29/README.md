@@ -2,20 +2,34 @@
 ---
 
 
-## 澳大利亚将取消对已接种疫苗的旅行者的隔离
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1597157/)
+## 比特币飙升至 61000 美元以上，离历史最高点还差 6%
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597253/)
 
-#### 撰稿：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-78.jpg)图片来源：网络截图
-据澳大利亚美联社堪培拉报道，新南威尔士州州长Dominic Perrottet说，澳大利亚计划在两周内恢复国际航班，对到达悉尼的的已接种疫苗的并且中共病毒检测阴性的旅客将从11月1日取消酒店隔离，但对进入该国的外国人保持一些限制。
+作者：文一
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
 
-悉尼机场是澳大利亚第一个重新开放的国际机场，因为新州的疫苗接种率是澳洲最高的。总理斯科特-莫里森批准了11月1日的旅行恢复，但还没有说何时对外国游客开放，他已经排除了今年的可能性。澳大利亚永久居民和公民将在下个月自由旅行，技术移民和学生将优先于国际游客来澳大利亚。
 
-澳航对这一消息作出回应，将计划国际航班提前两周至11月1日，首批航班将在悉尼和洛杉矶以及悉尼和伦敦之间运营。目前还不清楚回国的澳大利亚人是否能够通过在悉尼降落，然后跨越州界搭乘国内航班来避免在其他州的酒店隔离。
+【市场观察】网站报道：比特币在最近 24 小时内上涨了 7.3%，已高至 61253 美元，为4月以来首次，离历史最高点还差6%。
 
-维多利亚州已经超过新州成为澳大利亚中共病毒的热点地区，该州政府非常希望看到新州隔离变化的细节。昆士兰州已暗示将在圣诞节前对接种疫苗的州际旅行者开放。
+彭博社周四援引消息人士的话称，美国证券交易委员会 SEC 准备为美国首个比特币期货交易基金开绿灯，并称监管机构不可能阻止这些基金在下周开始交易。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture700-1.jpg)
+此前，SEC 投资者教育办公室发了一条推文，警告投资者要权衡比特币期货基金的风险和收益，被认为是将要批准比特币 EFT 的信号，致比特币价格一路飙升。
 
-澳大利亚旅游出口委员会对酒店隔离的取消表示欢迎。国际边境关闭严重打击了澳大利亚的旅游业，许多企业自2020年3月以来没有任何收入。这一宣布不仅使旅游企业恢复了收入，而且还让世界知道他们回到澳大利亚是受欢迎的，该委员会的常务董事彼得·谢利说。
+SEC 在未来两周内批准、拒绝或推迟比特币期货 ETF 提案都是有可能的，比特币最近几个星期内因各类消息价格跌宕起伏，且不说其合法性和被操纵在极少部分人手里的事实，但从市场和投资者如此敏感热烈的反应来看，虚拟币或数字货币万众瞩目，炙手可热，或是“热钱”的新去向。
 
-新闻来源：[Australian state to end quarantine for vaccinated travelers](https://apnews.com/article/coronavirus-pandemic-lifestyle-business-sydney-australia-e7888152d91309d4c73562853e7f2a6c)
+（本文仅代表作者观点）
+
+参考链接：[比特币飙升至 61000 美元以上，离历史最高点还差 6%](https://www.msn.com/en-us/money/savingandinvesting/bitcoin-rises-above-2461000-6-25-away-from-all-time-high/ar-AAPyIqE)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+
+新闻访谈终审：Q大哥
+编辑/校对/审核：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

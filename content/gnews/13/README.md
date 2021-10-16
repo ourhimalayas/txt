@@ -2,19 +2,23 @@
 ---
 
 
-## 秘翻在线：英国顶级保守党人戴维斯反疫苗通行证的演讲被油管删除
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1597369/)
+## 日本新增感染骤减
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597426/)
 
-#### 翻译/撰稿：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/UGdOZMMggZOiXZQ-800x450-noPad.jpg)图片来源：change
-根据布莱巴特（Breitbart）的报道，曾担任英国首任脱欧事务大臣，英国重要政治家戴维·戴维斯(David Davis)，最近在曼彻斯特举行的党派会议上发表演讲称，虽然他提倡接种疫苗，但是反对疫苗护照，如果英国公民每做一件事都需要出示证件的话，这是不自由的。
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/10/34-4.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.tyypsc.com%2Fzb_users%2Fupload%2F2021%2F02%2F20210218013106161358306633141.jpg&amp;imgrefurl=https%3A%2F%2Fwww.tyypsc.com%2Fjingtaichun%2F923.html&amp;tbnid=5gJdyslbLjJdoM&amp;vet=12ahUKEwiDtpSgps7zAhVEy4sBHdfmBb4QMygTegUIARDRAQ..i&amp;docid=IORcVLhDnZ1YbM&amp;w=640&amp;h=427&amp;itg=1&amp;q=%E5%B8%8C%E6%9C%9B%E7%9A%84%E6%9B%99%E5%85%89&amp;hl=zh-CN&amp;ved=2ahUKEwiDtpSgps7zAhVEy4sBHdfmBb4QMygTegUIARDRAQ)
+时事通信社10月16日报道，进入九月份后，中共病毒新增感染人数急剧下降，日本厚生劳动省的专家组织分析其原因，得出结论：不清楚确切的理由，但与“疫苗效果”、“国民行动变化”等综合原因有关。
 
-据老大哥在看着你 (Big Brother Watch)的报道，戴维斯的这段演讲已在世界上最大的“医疗错误信息”视频分享平台上删除。科技巨头没有说明哪些内容违反了规则，但收到一份通知，解释说：“油管不允许关于中共病毒疫苗接种的说法与当地卫生部门或世界卫生组织（WHO）的专家共识相矛盾。”
+在第5波中共病毒流行期间，8月20日全日本一天新增感染人数为2万5866，这是截至目前最高数据；本月3日全日本一天新增感人数仅为1000。专家组织表示，3-9月份接种新冠疫苗，有效抑制感染约为65万人，预防死亡约7200人。报道称，感染人数下降的原因可能有：疫苗接种率提高；控制自己的行为；天气转凉，室内通风；德尔塔病毒变强，但病原性减弱；无症状感染者且未接受检测等原因。
 
-戴维斯在一份声明中回击称：“这是对言论自由的无耻攻击。在整个中共病毒大流行期间，我们已经看到科技巨头公然压制挑战反对声音，这个插曲只不过是扼杀言论自由的又一个例子。”戴维斯继续坚持自己在会议上的讲话是经过仔细研究，准确无误的，并且有科学证据支持。
+所谓专家的措辞还是一如既往的“谨慎”，不断引导大众往疫苗方向上归因，又怕担责任含糊不清，难以得出具体原因。
 
-戴维斯哀叹自己的政党纸上谈兵，不过是进一步的侵蚀英国的言论自由，成千上万的人因为他们表达的观点而被逮捕或被警察骚扰。并不像波兰政府那样，着手解决科技巨头的审查制度。
+信息来源：
 
-戴维斯批评本届政府将推出的《在线安全法案》（Online Safety Bill），这项立法什么都做不了，只会将更多的权力赋予那些不负责任的硅谷巨头。油管对我言论的审查就是一个很好的警告，如果油管愿意，它甚至可以让当选的议会议员“沉默”。政府必须阻止网络言论自由被侵蚀，比如从重新审视《在线安全法案》开始。
+[感染者数なぜ急減？　ワクチン効果、行動変化など―専門家「複合的要因」](https://www.jiji.com/jc/article?k=2021101600137&amp;g=cov)
 
-新闻来源：[YouTube Deletes Anti-Vax Pass Speech by Top Tory for ‘Contradicting Expert Consensus’](https://www.breitbart.com/europe/2021/10/14/youtube-deletes-anti-vax-passport-speech-tory-contradicting-expert-consensus/)
+(文章仅代表作者本人观点，与GNEWS无关)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

@@ -2,21 +2,21 @@
 ---
 
 
-## 秘翻在线：纽约市长候选人多年前就被中共统战部游说影响
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1597362/)
+## 日本制铁公司起诉宝山钢铁公司侵犯特殊钢产品专利权
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597422/)
 
-#### 撰稿：彩虹
+#### 撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-37.png)（图片源自本文链接）
+日本《读卖新闻》驻北京记者小川直树10月15日报道：日本制铁公司向东京地方裁判所起诉丰田汽车公司和宝山钢铁公司侵犯特殊钢产品专利权。世界最大钢铁公司之一的中国宝武钢铁集团的子公司–宝山钢铁公司15日表示应诉。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-38.jpg)图片来源：ABC7 New York
-10月15日，《国家脉动》调查记者娜塔莉·温特斯（Natalie Winters）发布文章，指目前竞选纽约市市长的民主党候选人埃里克·亚当斯（Eric Adams）早在2017年就被中共国统战部游说影响。
+宝山钢铁对《读卖新闻》记者说，作为一家全球性公司，我们严格遵守各种法律法规，不接受日本制铁公司单方面的主张。我们将积极应诉，坚决捍卫公司的利益。
 
-根据公开的信息，中国人民对外友好协会（CPAFFC）由于“直接和恶意游说影响”美国官员的活动以及作为“公开的党国机构”而被美国国务院标记。根据联邦美中安全与经济审查委员会（U.S.-China Security and Economic Review Commission）的说法，该机构由中国共产党数十亿美元进行资助，旨在“收编和消除潜在的反对中共执政的敌对政策和相关权威来源”并“游说影响外国政府采取支持北京中意政策的行动或立场”。
+[信息源](https://www.yomiuri.co.jp/economy/20211015-OYT1T50140/)
 
-根据中国人民对外友好协会官网的介绍，尽管该机构被美国相关组织和政府披露为游说影响外国行动并有相关记录，但2017年10月，作为当时的纽约市布鲁克林区区长的亚当斯到中国受到了该机构相关负责人的接待。如下图所示，（2017年）10月19日，美大部主任张和强在京会见了来华访问的美国纽约市布鲁克林区区长埃里克·亚当斯。该主任向他介绍了中国人民对外友好协会的工作职能及对美工作情况，并总结了亚当斯此行的目的：“未来希望进一步推进布鲁克林区对华交往，增进双方在青少年交流、文化、商贸等领域的合作。”
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片2-20.png)图片来源：中国人民对外友好协会官网截图
-**新闻来源**
+是否严格遵守各种法律，不是说出来的。众所周知，从地方企业，到国家级事务，中共国就不是个依法治国的国家。就连香港基本法、香港回归时的中英联合声明，都可以在全世界面前公然被践踏。即便这样，外交部的战狼们依然自嗨依法治国，别国不得干涉。所以，这个官司的结局是否像宝山钢铁说的那样仅仅是新日本制铁公司单方主张？我们拭目以待！
 
-[New York Mayoral Candidate Eric Adams Met With Chinese Communist Party Influence Group Seeking To ‘Malignly Influence’ American Officials](https://thenationalpulse.com/exclusive/eric-adams-met-with-cpaffc/)
+(文章仅代表作者本人观点，与GNEWS无关)
 
-[美大部主任张和强会见美国纽约市布鲁克林区区长](https://www.cpaffc.org.cn/index/news/detail/id/1072/lang/1.html)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

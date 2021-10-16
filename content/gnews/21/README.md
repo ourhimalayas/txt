@@ -2,32 +2,42 @@
 ---
 
 
-## 世界医师会通过支持台湾参与 WHO、WHA 的决议文
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597252/)
+## 法官驳回美联航将未接种员工放无薪假的计划
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1597377/)
 
-作者：RYAN
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
-法广援引自由时报 10 月 15 日消息，10 月11 日至 15 日在伦敦召开的世界医师会（WMA）会员大会上，中共国医师会试图再次打压台湾的提案，遭到了各国代表的强力抵制。
+- **编译：Jenny Ball**
 
-WMA 拥有 115 个会员国，是世界重要的医疗组织，也是 WHO 重要的国际非政府专业组织合作伙伴之一，在全球医疗及公共卫生等议题扮演关键角色。此次视频会议中，中共国医师会不顾此前的会议结果，提案要求取消支持台湾参与世界卫生组织（WHO）、世界卫生大会（WHA） 的决议文。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture600.jpg)
-台湾的防疫方面的成就深受各国肯定，台湾医师会长期受到中共打压有目共睹，有违“健康为基本人权，不因种族、宗教、政治信仰、经济或社会情境而有所分别”这个世卫组织及世界医师会的普世价值。
 
-经过激烈辩论，各国代表以 99 票对 19 票否决中国医师会的提案，并以 91 票比 16 票再次通过支持台湾参与 WHO、WHA 的决议文。按照 WMA 的议事规则，决议文原则上 10 年检讨一次，因此 WMA 支持台湾的决议文修正案已经完整定案，理论上中共国医师会10年内不能再提出否决案。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip01.png)
 
-（本文仅代表作者观点）
+一位联邦法官本周裁定，为避免公司的Covid-19疫苗接种强制令，而寻求医疗或宗教豁免的美国联合航空公司员工，不能被置于无薪休假的状态。
 
-参考链接：[世界医师会通过支持台湾参与 WHO、WHA 的决议文](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211015-%E6%8C%BA%E5%8F%B0%E6%B9%BE-%E4%B8%96%E7%95%8C%E5%8C%BB%E5%B8%88%E4%BC%9A%E4%B8%A4%E6%AC%A1%E5%90%A6%E5%86%B3%E4%B8%AD%E5%9B%BD%E5%8C%BB%E5%B8%88%E4%BC%9A%E6%8F%90%E6%A1%88)
+据《布莱巴特新闻网》报道，由川普总统任命的美国地区法官马克·皮特曼(Mark Pittman)针对该公司将在10月26日前不接种疫苗的员工置于无薪假期的计划发布了临时限制令。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+皮特曼在他的裁决中写道：“法院现在得出结论，有必要发布这一临时限制令，以避免出现不可挽回的伤害风险，并在法院审理和解决原告的初步禁令动议之前维持本案的现状。”
 
-新闻访谈终审：Q大哥
-编辑/校对/审核：Hetangyuese
+根据最新的裁决，最早要求接种中共病毒Covid-19疫苗的美联航，也被禁止拒绝任何员工对Covid-19疫苗的宗教或医疗豁免请求。美联航最初告诉员工，他们在8月31日之后将不被允许申请豁免。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+这一裁决有效地保护了员工，直到法院能够听取与一群美联航公司员工提起的诉讼有关的口头辩论。
+
+然而，据《每日邮报》报道，虽然寻求豁免疫苗强制令的美联航员工被暂时允许继续工作，但该航空公司计划解雇300多名没有申请豁免的工人。
+
+保守派评论员、美国保守派联盟主席马特·施拉普(Matt Schlapp)向美联航提出了一系列问题，问它要走多远。
+
+“你能因为不健康而解雇某人吗？因为是吸烟者？因为有2型糖尿病？因为超重？因为年老？免疫系统差？正在生病？这些都会促成更严重的冠状病毒病例。这是美联航的下一步吗？”施拉普问道。
+
+虽然目前还不清楚公司打算以“公共健康”的名义将强制规定做到什么程度，但所有美国人都应该对他们目前所处的境遇深感担忧。
+
+由于这种明显侵犯美国人个人自由的乌托邦式的强制令，航空公司的员工正在全国各地进行抗议，希望重新获得他们的自由。
+
+（文章仅代表作者观点，与GNEWS无关）
+
+参考资料：[rsbnetwork.com] [JUDGE STRIKES DOWN UNITED AIRLINES PLAN TO PLACE UNVACCINATED WORKERS SEEKING EXEMPTIONS ON UNPAID LEAVE](https://rsbnetwork.com/news/judge-strikes-down-united-airlines-plan-to-place-unvaccinated-workers-seeking-exemptions-on-unpaid-leave/)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
