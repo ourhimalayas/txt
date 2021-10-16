@@ -15,95 +15,95 @@
 
 ---
 
-### [《我是音雄》第二季 第八期第二场复赛 节目预告](/content/gnews/1/README.md)
+### [针下亡魂｜新加坡 44 岁指挥家接种疫苗七周后死亡](/content/gnews/1/README.md)
+ ` G&#124;News TAIWAN`
+
+### [苹果公司被迫下架在中共国的古兰经应用程序](/content/gnews/2/README.md)
+ ` 纽约香草山MOS02`
+
+### [《我是音雄》第二季 第八期第二场复赛 节目预告](/content/gnews/3/README.md)
  ` 我是音雄`
 
-### [普京的天然气掌控人](/content/gnews/2/README.md)
+### [秘翻在线：英国卫生署数据显示，40 岁以上疫苗接种者的感染率是未接种者的两倍多](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [普京的天然气掌控人](/content/gnews/5/README.md)
  ` Shuizhuyu`
 
-### [2021年10月15日郭先生盖特 — 视频盖特2「2分51秒」](/content/gnews/3/README.md)
+### [2021年10月15日郭先生盖特 — 视频盖特2「2分51秒」](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [澳媒报道：中共制定新的游戏限制，致最新CSGO明星及早退休](/content/gnews/4/README.md)
+### [澳媒报道：中共制定新的游戏限制，致最新CSGO明星及早退休](/content/gnews/7/README.md)
  ` 澳喜农场`
 
-### [习近平动真格，房地产税真的要来了](/content/gnews/5/README.md)
+### [习近平动真格，房地产税真的要来了](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [辉瑞举报人称疫苗含有有毒荧光素酶、氧化石墨烯化合物](/content/gnews/6/README.md)
+### [辉瑞举报人称疫苗含有有毒荧光素酶、氧化石墨烯化合物](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [意大利爆发了大规模的抗议活动反对绿色通行证](/content/gnews/7/README.md)
+### [意大利爆发了大规模的抗议活动反对绿色通行证](/content/gnews/10/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [杀人的疫苗](/content/gnews/8/README.md)
+### [杀人的疫苗](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [秘翻在线:民主党展开对班农展开”猎巫”行动?](/content/gnews/9/README.md)
+### [秘翻在线:民主党展开对班农展开”猎巫”行动?](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [德国消费者今年取暖费增加数百欧元](/content/gnews/10/README.md)
+### [德国消费者今年取暖费增加数百欧元](/content/gnews/13/README.md)
  ` Shuizhuyu`
 
-### [洪秀柱卖台行径](/content/gnews/11/README.md)
+### [洪秀柱卖台行径](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美媒报道：芯片短缺可能会再持续二到三年](/content/gnews/12/README.md)
+### [美媒报道：芯片短缺可能会再持续二到三年](/content/gnews/15/README.md)
  ` 澳喜农场`
 
-### [中共撒谎：恒大集团的问题在房地产行业是个别现象](/content/gnews/13/README.md)
+### [中共撒谎：恒大集团的问题在房地产行业是个别现象](/content/gnews/16/README.md)
  ` 儒为`
 
-### [审查帖子遭批 微软将关闭中国区Linkedin服务](/content/gnews/14/README.md)
+### [审查帖子遭批 微软将关闭中国区Linkedin服务](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [妻子注射辉瑞疫苗后逐渐失去视力，看孩子像鬼怪](/content/gnews/15/README.md)
+### [妻子注射辉瑞疫苗后逐渐失去视力，看孩子像鬼怪](/content/gnews/18/README.md)
  ` 首尔天池农场`
 
-### [立法者对 CDC提起重要指控——我们被你们骗了吗？](/content/gnews/16/README.md)
+### [立法者对 CDC提起重要指控——我们被你们骗了吗？](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [墙内要闻汇编](/content/gnews/17/README.md)
+### [墙内要闻汇编](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [岸田与文在寅举行首次电话会谈，一致同意深化日韩及日美韩3国合作](/content/gnews/18/README.md)
+### [岸田与文在寅举行首次电话会谈，一致同意深化日韩及日美韩3国合作](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共停电导致零部件短缺 丰田11月全球产量将减少15%](/content/gnews/19/README.md)
+### [中共停电导致零部件短缺 丰田11月全球产量将减少15%](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [牵制中共！日美英澳在孟加拉湾举行联合战术训练](/content/gnews/20/README.md)
+### [牵制中共！日美英澳在孟加拉湾举行联合战术训练](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [币圈新闻动态：长岛伟哥10月14日直播介绍4,000万HCN如何分配](/content/gnews/21/README.md)
+### [币圈新闻动态：长岛伟哥10月14日直播介绍4,000万HCN如何分配](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [澳媒报道：恒大危机是否会毁掉中共国宏大的足球梦？](/content/gnews/22/README.md)
+### [澳媒报道：恒大危机是否会毁掉中共国宏大的足球梦？](/content/gnews/25/README.md)
  ` 澳喜农场`
 
-### [DC大中华时事：中共央行回应恒大集团债务危机是个别现象](/content/gnews/23/README.md)
+### [DC大中华时事：中共央行回应恒大集团债务危机是个别现象](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [韩总统文在寅夫妇接种中共病毒疫苗“加强针”](/content/gnews/24/README.md)
+### [韩总统文在寅夫妇接种中共病毒疫苗“加强针”](/content/gnews/27/README.md)
  ` 首尔天池农场`
 
-### [秘翻在线：美国上半年遭受黑客勒索软件攻击导致赎金金额急剧上升](/content/gnews/25/README.md)
+### [秘翻在线：美国上半年遭受黑客勒索软件攻击导致赎金金额急剧上升](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [每日快报：卫星图像显示中共国已升级面向台湾的军事基地](/content/gnews/26/README.md)
+### [每日快报：卫星图像显示中共国已升级面向台湾的军事基地](/content/gnews/29/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [日本要闻汇编](/content/gnews/27/README.md)
+### [中共国正在加速增强自己空间站的太空战力](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共国正在加速增强自己空间站的太空战力](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [年轻人自杀的高峰](/content/gnews/29/README.md)
- ` Charlie`
-
-### [英国数万阴性测试结果可能是假的](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [京东网的青蒿素哌喹片下面的评论区让战友们乐翻了天](/content/gnews/31/README.md)
  ` NewFOC`

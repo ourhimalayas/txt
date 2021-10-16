@@ -2,28 +2,42 @@
 ---
 
 
-## 德国消费者今年取暖费增加数百欧元
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1597558/)
+## 意大利爆发了大规模的抗议活动反对绿色通行证
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1597581/)
 
-新闻来源：德国世界报网络版
+**By:秘翻新闻**
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+***2021-10-16***
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/1016-2.jpg)](https://gtv.org/broadcast/watch/616a93a2304e992109b5cf88)点击图片观看视频
+**新闻摘要:**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/kwon-junho-CdW4DAF5i7Q-unsplash-scaled.jpg)
+1.恒大瑞典电动汽车公司资金不足或无力支付工资
 
+2.中国“鬼城”数量庞大 几乎可容纳德国全部人口
 
-资料来源：unplash
+3.福建扩建距离台湾最近的三大空军基地快两年
 
-今年，数百万德国人面临着特别高的取暖费用的威胁。联邦消费者组织协会使用两个例子计算了个人的增长幅度。
+4.陕西洪灾 引发矿难 当地枣农一生心血被毁
 
-由于天然气价格上涨，德国消费者不得不考虑到明显更高的供暖成本。以 2021 年全年计算，120 平方米的独立式房屋中的典型家庭预计将支付 1260 欧元的供暖和热水费用。
+5.大陆“公司作息表”走红网络 “996”引关注
 
-去年是 990 欧元。这来自德国消费者组织联合会 (vzbv)  的计算示例。
+6.比特币突破60,000美元 逼近历史新高
 
-在 100 平方米的公寓中，每年的取暖费用从平均 770 欧元增加到 980 欧元。
+7.全球集装箱告急 沃尔玛等零售巨头租船运货
 
-[https://www.welt.de/wirtschaft/energie/article234453946/Heizkosten-Rechnung-offenbart-Anstieg-von-mehreren-hundert-Euro.html](https://www.welt.de/wirtschaft/energie/article234453946/Heizkosten-Rechnung-offenbart-Anstieg-von-mehreren-hundert-Euro.html)
+8.世界医师会以91:16挺台参与WHO
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+9.意大利爆发了大规模的抗议活动反对绿色通行证
 
-责任编辑/发布： Shuizhuyu
+10.郭文贵先生一语成谶 阿富汗两周两起恐怖袭击
+
+11.波音公司员工 抗议强制疫苗令
+
+**GTV链接：**[https://gtv.org/broadcast/watch/616a93a2304e992109b5cf88](https://gtv.org/broadcast/watch/616a93a2304e992109b5cf88)
+
+发布: 文橙
+
+* * *
+
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
