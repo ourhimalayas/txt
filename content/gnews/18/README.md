@@ -2,20 +2,20 @@
 ---
 
 
-## 电荒寒流毒疫苗，国人迎来严酷寒冬
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597898/)
+## 台陆委会称目前局势接近准战争状态!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597920/)
 
 作者：在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-自15日起，中国中东部地区大面积遭受寒流袭击，部分地区气温骤降至0度，已导致中共气象局不得不启动4级应急响应应对。另外，由于煤炭价格暴涨、供应不足，加上疫情过后工业生产强势反弹，中共国内超过一半的省市区自9月以来就实施错峰或配给供电，甚至拉闸限电，极大的干扰了社会正常运转。而降温进一步提升了对电力的需求，让原本处于电荒之下的中共供电系统雪上加霜，可以想见, 东三省及内蒙地区百姓的生活将苦不堪言。
+10月初的数日内, 中共军机多达149架数次侵犯台湾空域，而且此前中共只是出动侦察机，近日的军事行动则还括了战斗机、轰炸机和预警机等多种机型编队袭扰 , 台陆委会主任邱太三14日表示，这已接近准战争状态!
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-26.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-16.jpeg)
 
-如郭文贵先生所称，毒疫苗造成的危害将在10月底至年底集中爆发出来。冬季本是心脑血管疾病的高发季节，届时由于疫苗造成的心梗、脑梗、心肌炎、心包炎等重症病人将大幅增加, 对墙内很多国人来说, 这将是一个艰难的冬天。
+但同时邱太三还爆料称，为回应共军军机侵台，十月初美英日等六国军演时，曾有两架美国战机进入可发射飞弹攻击中共军港射程，而中共雷达却未在第一时间发现美军战机。
 
 (本文仅代表作者观点)
 
-参考链接：[中国电荒尚未缓解，寒流又构成新的“冷酷”挑战](https://www.voachinese.com/a/China-coal-prices-hit-record-highs-early-winter-chill-adds-to-energy-woes-20211015/6272298.html)
+参考链接：[中国军机大举扰台 台湾陆委会主委邱太三称“准战争状况布局”](https://www.rfa.org/mandarin/yataibaodao/gangtai/hcm1015a-10152021054841.html)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 

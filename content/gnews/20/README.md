@@ -2,28 +2,28 @@
 ---
 
 
-## 涉及误导性陈述被罚！加密货币公司Tether向美国监管支付四千万美元和解金
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597875/)
+## 有声|新冠疫苗加强针，毒害人民的加强针又来了
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1597918/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+配音：香草山香港部-文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+据中国新闻网10月13日报道，截至目前，据不完全统计，安徽、福建、河南、黑龙江、湖北等10余省份已明确启动加强针接种。黑龙江疾控中心10日发布消息，完成新冠疫苗加强针接种的人群，健康码将由“金码”升级为“钻石码”，作为后续加强针查验凭证。而根据国家卫健委公布的数据，截止10月11日，全国累计报告接种新冠病毒疫苗超过22.2亿剂次。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/涉及误导性陈述被罚1.png)[图片来源](https://news.bitcoin.com/cftc-fines-stablecoin-issuer-tether-and-crypto-exchange-bitfinex-42-5-million/)
+大多数人已经打了新冠疫苗，或被中共洗脑去打、或被恐吓去打、或被威胁去打、或直接被拉去打。总之，接种新冠疫苗的数据漂漂亮亮，各地各单位都为了上级任务，让其片区的未接种疫苗率清零。
 
-财联社10月16日讯，当地时间周五，美国商品期货交易委员会（CFTC）发布公告称，已经与知名加密稳定币发行公司Tether以及加密货币交易所Bitfinex达成民事诉讼和解协议，两家公司一共将支付4250万美元的罚金。
+上级每次都要求的是数据，接种数据达到多少多少，未接种数据是多少多少，今天又完成了多少指标，离上上级要求的数据又近了多少。打疫苗是一项政治任务，只关注数据的漂亮，而不关注是否真的适合打？反正在中共的洗脑下，中共要求的就无条件服从吧。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/涉及误导性陈述被罚2.png)（来源：CFTC）
+变成了“钻石码”的健康码就一定代表人是的健康吗？中新网的文章也已经说得很清楚了，“钻石码”是作为后续加强查验的凭证。然而身在中共国的人民，有多少人能够避免不打，避免疫苗带来的伤害？身在中共体制内工作的同胞们，有多少能够不听上级的数据要求而不接种疫苗？在一些体制内的单位，领导直接说，完成疫苗加强针的，截图发群，上面数据要求清零。于是，大家都自觉去打了加强针，自觉为上级数据服务，自觉又一次拿自己做了试验。生是体制内工作的人，死也让体制去送一程。身在中共国，好好活着实在是太难太难太难。
 
-![]()这两家涉事公司均属于iFinex旗下。根据CFTC描述，Tether涉及在2016至2019年期间涉嫌误导投资者“每一个美元稳定币USDT背后都有1美元支持”，但这样的表述并非“100%准确”。为此Tether将向CFTC支付4100万美元和解相关诉讼，并承诺不会再犯。
+文字版原文：[新冠疫苗加强针，毒害人民的加强针又来了](https://gnews.org/zh-hans/1594896/)
 
-在监管声明发布后，Tether公司也在官网作出回应，表示引发调查的原因只是公司储备金并非全部以现金的方式存在，同时也并不总是存放在以Tether公司名义开立的银行账户中，但这样的情况从未影响公司履约。
-
-CFTC同时指控Bitfinex交易所与美国人进行数字资产的非法场外零售商品交易，并在未按要求注册的情况下作为期货佣金商 （FCM） 运营。Bitfinex也将支付150万美元和解这一起诉。
-
-当前，数字加密货币备受关注和追捧，各国政府基本都采取加强监管和规范的方式来主动顺应这一发展趋势。但由于中共以及世界黑暗势力对于数字加密货币的控制和滥用，可以预计，随着全球灭共进程的推进，众多数字加密货币还将经历痛苦的洗牌和转型过程。而这种激浊扬清、大浪淘沙式的行业重塑，对于始终将合规摆在首位的“喜币”（HCN）而言，都是利好。
-
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/老黑
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

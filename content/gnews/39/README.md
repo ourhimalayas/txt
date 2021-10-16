@@ -2,63 +2,23 @@
 ---
 
 
-## 审查帖子遭批 微软将关闭中国区Linkedin服务
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1597531/)
+## 秘翻在线:民主党展开对班农展开”猎巫”行动?
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1597566/)
 
-编译：Jenny Ball
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/AZ-2.jpg)
+图片:路透社
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/imrs-scaled.jpg)图片来源：washingtonpost.com
+据《零对冲》的报导，由于前川普竞选主管和白宫首席战略家史蒂夫•班农(Steve Bannon)无视南希•佩洛西(Nancy Pelosi)的传票，拒绝参加南希•佩洛西特别委员会调查 1 月 6 日“国会山风暴”事件，因此将面临民主党议员对班农提起藐视司法权的刑事指控。
 
-公司援引中共国当局的“更具挑战性的经营环境和更高的合规要求”
+当时班农并没有为川普总统工作，但就像之前的许多川普任内人士一样，班农以行政特权作为他无视传票的理由。尽管班农与组织或参与活动无关，但班农仍被国会传唤于10月14日出席特别委员会，委员会要求班农交出文件和证词，因为据说他在国会山的示威活动失控之前与川普总统有过联系。
 
-微软表示将关闭其在中共国境内的 LinkedIn 网站，因为前几天审查几名美国记者的帖子而面临公众批评。
+班农拒绝参与调查的决定无疑是明显的蔑视国会，这可能使他入狱。据《美联社》报导，如果众议院投票通过对班农的蔑视指控，美国司法部可能会起诉班农。委员会成员告诉《美联社》，他们无法袖手旁观并容忍班农的指责。密西西比州民主党众议员、委员会主席本尼•汤普森(Bennie Thompson)表示，将对班农的蔑视进行投票，委员会“完全否定他的立场”。汤普森在一份声明中说： “专责委员会无法容忍对委员会传票的蔑视，因此委员会必须推进诉讼程序，将班农先生列为藐视法庭罪。”
 
-在[周四宣布](https://blog.linkedin.com/2021/october/14/china-sunset-of-localized-version-of-linkedin-and-launch-of-new-injobs-app)这一决定时，LinkedIn 表示，它正面临“在中国的社交媒体网站，会面临着更具挑战性的运营环境和更高的合规要求”。
+据《零对冲》的报导，民主党人追捕班农不仅仅是因为他做错了什么，而是企图恢复国会传票的完整性和合法性，因为国会传票在川普政府时代经常被忽视和蔑视。到目前为止，民主党发出了 19 份传票，并打算在国会山展现他们的小型审判，这些审判充满了社会集权主义的色彩，表面上是公正的，实质上却是一场剥夺巫师神奇力量的”猎巫”行动。
 
-这一消息终结了在中共国运营的最后一个西方主要社交媒体网站，当局长期以来一直在中共国屏蔽 Facebook、WhatsApp、Twitter 和其他应用程序。
+消息来源:
 
-美国外交关系委员会中国与技术问题专家亚当·西格尔（Adam Segal）表示，“中共国内部的压制加剧，以及国会对遵守中国法规的更大批评，使美国社交媒体公司无法持续经营”。
+[Bannon Faces Criminal Contempt Charge After Ignoring Subpoena From Pelosi’s Jan. 6 Committee](http://Bannon%20Faces%20Criminal%20Contempt%20Charge%20After%20Ignoring%20Subpoena%20From%20Pelosi's%20Jan.%206%20Committee)
 
-[中共国审查制度通过微信侵入美国](https://www.washingtonpost.com/technology/2021/01/07/wechat-censorship-china-us-ban/?itid=lk_interstitial_manual_7)
-
-LinkedIn 表示将在今年晚些时候“关闭”其网站，但将推出一个名为 InJobs 的新网站，该网站将不包含社交媒体提要或分享帖子或文章的功能。
-
-“我们在中国的新战略是，将我们的重点放在帮助中国专业人士在中国找到工作，和中国公司找到优质候选人上，”LinkedIn 说。 它没有提供更多细节。
-
-微信和微博等中国人拥有的社交媒体应用程序受到严格审查，删除当局认为敏感的内容。最近几周，LinkedIn 的美国用户表示，他们在中共国境内的个人资料也面临类似审查。
-
-这些报道促使参议员里克·斯科特（Rick Scott）[写信给微软和领英的首席执行官](https://www.rickscott.senate.gov/services/files/7CCE2FDB-FED0-4F82-8FEA-6EC30BA021F8)，表达了对“一家美国公司代表中共积极审查美国记者”的担忧。
-
-其中一名记者贝瑟尼·艾伦-埃布拉希米安（Bethany Allen-Ebrahimian ）是一名来自华盛顿特区的 Axios 记者，在[9 月 30 日报道称](https://www.axios.com/linkedin-blocks-us-journalists-profiles-in-china-22fcefd4-5bc1-490b-a448-b4f9b05e9566.html)，LinkedIn 屏蔽了她自己和其他美国驻华记者的个人资料。
-
-在周四的一次采访中，艾伦-埃布拉希米安说，LinkedIn 几周前给她发了一条消息，通知她，她的个人资料在中国将不再可见，因为它包含“被禁止”的内容。
-
-埃布拉希米安多次向公司询问更多细节，但“他们从未告诉我禁止的内容是什么，”她说。 周四LinkedIn 没有回应相关问题。
-
-埃布拉希米安说，即使 LinkedIn 的新网站缺乏社交媒体功能，该公司仍将受到中共国当局潜在的侵入性信息请求的影响。
-
-“如果中共当局想知道，这个人有没有给任何人发信息，他们有没有申请过任何工作？ InJobs 将不得不提供这一点。如果是刑事案件，可以理解，但如果他们出于政治原因这样做呢？” 她问。
-
-曾为Vice和《大西洋》报道的美国记者梅丽莎·陈（Melissa Chan）也透露LinkedIn 因“禁止”内容而屏蔽了她在中国的个人资料。
-
-“问题多于答案，”陈周四通过电子邮件说。“一些中共当局是否向Linkedin提供了一份他们遇到问题的人和帖子的清单？还是LinkedIn主动提供的？知道发生了什么很重要。”
-
-专注于西藏问题的自由记者和作家格雷格布鲁诺（Greg Bruno），周四在接受采访时表示，LinkedIn 告诉他，由于他个人资料的出版物部分中的“禁止”内容，他在中共国境内被屏蔽。这部分中唯一的信息是关于他三年前的书，他说这本书详细描述了“中共国努力使西藏流亡者边缘化和非法化”。
-
-“我非常生气，”他说。 “LinkedIn 让我最烦恼的是，它逼迫我进行自我审查。”
-
-尽管在 LinkedIn 上遇到了麻烦，布鲁诺还是对美国上一次社交媒体在中共国的抵制结束感到遗憾。“这只会继续将我们与信息泡沫隔绝开来，并切断我们作为人应有的联系，”他说。
-
-**评论：经历了2020年美国大选媒体的操控，在长达近两年病毒疫苗灾难中，世界遭受着媒体对真相的打压，造成上百万的人无辜死亡，中共对社交媒体的掌控正在将世界推向没有自由的独裁世界。与之相比，LinkedIn的遭遇就是小巫见大巫不足挂齿了。只是我们要想一想，怎么走到了这个地步？**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**参考资料：**[washingtonpost][Microsoft will shut down LinkedIn service in China after facing criticism for censoring posts](https://www.washingtonpost.com/technology/2021/10/14/linkedin-china-shut-down/?utm_campaign=wp_todays_worldview&amp;utm_medium=email&amp;utm_source=newsletter&amp;wpisrc=nl_todayworld&amp;carta-url=https%3A%2F%2Fs2.washingtonpost.com%2Fcar-ln-tr%2F34fc2b1%2F6168fd139d2fda9d4110679d%2F5e2dde419bbc0f6326309bfd%2F42%2F66%2F6168fd139d2fda9d4110679d)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
+[January 6 committee exposes a dark truth in going after Bannon](http://January%206%20committee%20exposes%20a%20dark%20truth%20in%20going%20after%20Bannon)

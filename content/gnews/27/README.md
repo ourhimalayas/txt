@@ -2,54 +2,31 @@
 ---
 
 
-## 如果CCP打台湾，日本会怎样
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1597769/)
+## 日本央行数字货币测试顺利，明年4月进入第2阶段
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597811/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2533.png)
-[https://gtv.org/video/id=616ac666d2e2b8174875d1df](https://gtv.org/video/id=616ac666d2e2b8174875d1df)
+撰稿：东京樱花团/喜马拉雅的微尘
 
-郭文贵
-Miles Guo
+![](https://assets.gnews.org/wp-content/uploads/2021/10/日本央行数字货币测试顺利，明年4月进入第2阶段.png)[图片来源](https://btcmanager.com/boj-executive-japan-cbdc/)
 
-今天很多台湾的战友问我，说日本会怎么样
-Today there are a lot of comrades in arms ask me if CCP attacks Taiwan, what Japan will do?
+日本央行15日发布消息称，中央银行数字货币（CBDC）正在进行的“概念验证”第一阶段试验进展顺利，明年4月将进入第2阶段。
 
-日本会站起来的，我说你们这太不了解了
-will Japan step in? I said you don’t understand it at all
+日本中央银行数字货币（CBDC）“概念验证”（PoC）第二阶测试为有效性验证试验。届时，将验证预约支付、与外部系统协同等货币所需功能方面的课题。央行在旨在相关行业共享信息的协议会会议上出示了计划。
 
-美国要是不动手的话，日本连个屁不会放，连个屁都不会放
-If the U.S. doesn’t do anything, Japan won’t even make a sound
+4月5日，日本央行发布公告称，从当天起对中央银行数字货币（CBDC）进行“概念验证”（PoC）第一阶段的测试。根据公告，该阶段为期一年，至2022年3月。日本央行表示，在PoC第一阶段，该行计划开发CBDC系统的测试环境，并根据支付工具的核心基本功能，重点是测试发行、流通和兑换央行数字货币(CBDC)的技术可行性。
 
-没有任何用的，它即使有这个能力，
-It’s useless, even Japan has the ability to stop CCP
+概念验证共有两个阶段：阶段一即开发测试环境，并对CBDC作为支付工具的核心功能进行实验；阶段二，日本央行将在第一阶段开发的测试环境中实施CBDC的附加功能，并测试其可行性。
 
-真正的要打起来，日本是完全能KO它的
-If really start the war, Japan is completely able to knock it out
+CBDC是中央银行以电子数据形式发行的法定货币。日本央行称目前没有发行CBDC的计划，但正在推进确认有效性的试验。还考虑今后以企业和消费者也实际参与的形式，实施最终试验。
 
-但是，你知道老共它会动（用）核武器，它有核武器呀
-But, you know that the Communist Party can use nuclear weapons, and it has nuclear weapons
+面对中共强势推动的数字人民币（DCEP），从去年开始，美国、日本及欧洲多国央行对于数字货币的态度从保守逐渐转向积极。随着，中共病毒及疫苗灾难对全球经济影响的积累，特别是中共自身“金融核弹”的爆炸，必将促使世界主动或者被动的走向数字货币时代。这一点，已毋庸置疑。
 
-它敢动核武器呀，日本不敢冒这个险，
-It dares to use nuclear weapons, Japan dare not take the risk
+信息来源：
 
-就美国的态度只要不明确, 日本连个屁都不敢放，这是绝对的常识
-As long as the attitude of the United States is not clear, Japan will not take the risk, this is absolutely common sense
+[日本央行数字货币测试明年4月进入第2阶段](https://china.kyodonews.net/news/2021/10/666957601337-42.html)
 
-* * *
+（免责声明：文章仅代表作者本人观点，与GNEWS无关）
 
-Date:10/15/2021
-原视频标题:如果CCP打台湾，日本会怎样
-If CCP attacks Taiwan, what will happen to Japan
-原视频日期：2021/10/10
-原视频接:[https://twitter.com/se1y7cblljselva/status/1447866562375999489?s=24](https://twitter.com/se1y7cblljselva/status/1447866562375999489?s=24)
-任务编号：KC173（2533）
-视频时间段 : 0:00-0:45
-英听校：洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)

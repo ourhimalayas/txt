@@ -2,33 +2,44 @@
 ---
 
 
-## 针下亡魂｜美国 21 岁医科生接种疫苗1日后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1596153/)
+## 北京陷入困境：中国生产成本以26年来最快速度飙升
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1596720/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 15/10/2021**
+**据《零对冲》作者：TYLER DURDEN于2021 年 10月 13日报道：**
 
-***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
+今年9月，中国工厂出厂价格以近26年来最快的速度飙升，增加了全球通胀风险，并给当地企业带来了压力，迫使他们开始将更高的成本转嫁到消费者身上。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/28-1.jpg)
+中国国家统计局周四公布的数据显示，生产者价格指数（1995年11月）较上年同期上涨10.7%，为1995年11月以来的最高水平，远高于8月份9.5%的涨幅，也高于10.5%的预期。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/dc.png)图片来源：《零对冲》
+另一方面，上月消费者价格指数（CPI）较上年同期上涨0.7%，低于前一个月的0.8%。但彭博社指出，目前消费者通胀仍受到猪肉价格下跌的影响，（译者注：猪肉价格在CPI指数占据很大的比重）尽管在9月底之前取消了大部分因病毒的封锁，可能会有助于提升家庭支出。
 
-【美国】俄亥俄州一名 21 岁男性 John Francis Foley 在接种完强生 COVID-19 疫苗的 24 小时后死亡。
+“PPI与CPI差距的拉大意味着上游行业面临更大的压力，不断上涨的成本将转嫁到下游。”华复兴证券香港宏观与策略研究部主管彭小龙表示。
 
-John 是当地辛辛那提大学国家荣誉学会医学预科生，成绩相当优秀，但由于该学校早前曾经强制所有学生接种疫苗，John 于 4 月 10 日接受了第一针疫苗。
+正如我们先前警告的那样，情况将变得更加严重。如果煤炭价格与PPI的历史相关性得以维持，那么中国PPI可能很快就会翻三倍，即从9月份的10.7%/年，将飙升至30%／年以上。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/cfu.png)图片来源：《零对冲》
+不用说，如果中国PPI确实达到30%／年以上，即使CPI以某种方式保持在个位数，结果将是灾难性的：利润率将崩溃，本已稀薄的现金流的暴跌将导致更多的违约和供应链瓶颈，即使“不惜任何代价”（译者：引用中共政府的话来说）获取大宗商品的争夺，将不断推高成本和PPI。
 
-当晚，他在自己的 Facebook 上写下了人生的最后一篇贴文，“身体感到十分不适，希望早点休息，明天醒来，一切会有好转”，可惜，他再也没醒过来。
+同时，如果生产商确实试图类似90年代初期那样将部分成本和CPI峰值转嫁到消费者身上（CPI和PPI之间的差距在近期煤炭价格飙升之前已经达到创纪录水平），那么中国将发生社会动荡。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/alaih-ixypk.jpg)图片来源：《零对冲》
+有初步迹象显示，生产商开始将更高的成本转嫁到消费者身上：中国最大的酱油生产商本周表示，计划提高产品的零售价格。据《中国证券报》4日报道，今年至少有13家在中国A股市场上市的公司宣布提价，以应对成本上升和供应紧张的问题。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Mary-Beth-Foley.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Jennifer-Snyder-Benedict.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Lisa-Foley.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Foley-family-statement-1170x525-1.png)
+这一切的发生，是由于中国房地产业迫切需要大量的流动性注入，而你猜对了，这就是通货膨胀。
 
+尽管中国可能面临自90年代初以来的首次PPI“高通胀”，但从此只是走下坡路，因为正如花旗集团（Citigroup）上周末所写的那样，停电目前在中共国大面积地发生（尽管占中国GDP&gt;2/3的省份自8月份以来已经出台了电力配给措施），而收缩的PMI“似乎表明中国可能进入至少一段短暂的滞胀期”。
 
-维权律师 Mark R. Weaver 代表 John 的家人发表声明：
+Pinpoint资产管理有限公司首席经济学家张志伟表示：“我们认为，中国和世界其他地区的滞胀风险正在上升。”
 
-尽管 John 在接种疫苗之后的 24 小时就去世了，但官方公布的死因甚至都未提到接种疫苗这件事，仅用一个没有人听说过的花哨医学术语作为一名健康的 21 岁大学生的死因，他原本有 99.997% 的机会在没有接种疫苗的情况下幸免于 COVID-19。
+持续的通胀压力限制了货币政策放松的潜在空间。
 
-来源｜ [个案028](https://www.wbrc.com/2021/04/16/university-cincinnati-students-death-after-jj-vaccine-under-investigation/)
+因此，北京现在陷入了困境：如果货币宽松，已经处于流鼻血水平的通胀将进一步飙升，并引发严重的滞胀衰退；如果货币紧缩，已经崩溃的房地产市场将一泻千里。
 
-* * *
+**原文链接：**[https://www.zerohedge.com/economics/beijing-trapped-china-producer-prices-surge-fastest-pace-26-years](https://www.zerohedge.com/economics/beijing-trapped-china-producer-prices-surge-fastest-pace-26-years)
 
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//
+翻译：洛杉矶盘古农场 – 蓝精灵
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

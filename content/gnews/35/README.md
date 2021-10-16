@@ -2,40 +2,27 @@
 ---
 
 
-## 苹果公司被迫下架在中共国的古兰经应用程序
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1597695/)
+## 针下亡魂｜新加坡 44 岁指挥家接种疫苗七周后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1597702/)
 
-作者：纽约香草山健身部 – Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在中共官方的要求下，苹果公司已经关闭了在中共国的Quran Majeed——古兰经应用程序，这是世界上最受欢迎的古兰经应用程序之一。Quran Majeed在世界各地的App Store上都有销售，并且有近15万条评论。它被全世界数百万的穆斯林使用，并且在中（共）国有将近一百万的使用者。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-288.png)
-虽然，中国共产党正式承认伊斯兰教为该国的一种宗教。但是，中（共）国一直被指控侵犯人权，甚至是对新疆大部分穆斯林维吾尔族的种族灭绝。今年早些时候，英国广播公司（BBC）报道说，维吾尔族阿訇在中（共）国的新疆镇压中成为目标。
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 16/10/2021**
 
-《纽约时报》今年早些时候报道说，苹果公司在中（共）国的应用程序，如果被中共政府认为是禁区，就会被关闭。应用程序不能讨论的话题包括天安门广场、中国精神运动法轮功、达赖喇嘛以及西藏和台湾的独立。
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
+![](https://assets.gnews.org/wp-content/uploads/2021/10/30-1.jpg)
+【新加坡】一名 44 岁的交响乐团总指挥家 Adrian Tan 在接种 COVID-19 疫苗后七周内，在睡梦中死于心脏骤停。
 
-另一个受欢迎的宗教应用，橄榄树的圣经应用，本周在中（共）国也被撤下。
+Adrian 于 2012 年成为新加坡管乐交响乐团和布拉德尔高地交响乐团的音乐总监，是新加坡赫赫有名的音乐家，在此之前，他曾在新加坡海军担任海军军官十年，体魄十分健硕。可惜，他 5 月 24 日打了第一针疫苗之后，在接近两个月的时候，即 7 月 12 日当晚，就在睡梦中意外过世。
 
-周四，微软表示，它正在关闭其在中（共）国的社交网络LinkedIn，这一决定是在职业网站因屏蔽一些记者的资料，而面临质疑之后做出的。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Adrian-Tan-1-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Adrian-Tan-2.jpeg)
 
-由此可见，在中共北京当局对网络和高科技公司的管制越来越严厉，原本仅存不多的宗教自由、新闻自由、言论自由……已经快要被中共政府抹杀殆尽。中（共）国亦变成一个封闭的极权专制国家，就和他们的好邻居——朝鲜一样，一个不折不扣的寒蝉之国。
 
-参考链接：[Apple takes down Quran app in China](https://www.bbc.com/news/technology-58921230)
+今年早些时候与 Adrian 共同创立亚洲指挥学院的两位朋友之一 Chiang 表示难以置信，亦非常意外，“他总是充满活力，是一个非常健康的人，所以我很想知道到底发生了什么，是什么夺走了一位年仅 44 岁，才华横溢的音乐家的生命。”
 
-**本文谨代表作者观点**
+另外据 [theviolinchannel.com](https://theviolinchannel.com/conductor-adrian-tan-has-died-aged-44-obituary/) 报导指：“Tan 的去世消息令人震惊，因为他没有任何健康问题。”据悉，Adrian 与他的母亲一起生活，儿子的过世，令孤苦伶仃的母亲难以接受。
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
+来源｜[个案030](https://www.straitstimes.com/life/arts/home-grown-music-conductor-adrian-tan-dies-in-his-sleep-aged-44)
 
-**校对/发稿：童谣**
+* * *
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//
