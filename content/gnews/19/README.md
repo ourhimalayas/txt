@@ -2,25 +2,53 @@
 ---
 
 
-## 中共国产新型导弹垂直发射系统列装055万吨驱逐舰
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596695/)
+## 加拿大“民主”大选后的抓捕
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1596730/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/53.png)[图片来源](https://www.sohu.com/a/495227274_335714)
-近日，中共央视新闻报道，中共海军055万吨大驱配备了新一代国产通用垂直发射系统。
+作者：纽约香草山美食部 – 文百合
 
-据报道，中共055万吨导弹驱逐舰上使用的这套垂直发射系统采用了开放式体系架构设计技术，是一款兼具垂直冷热发射，和多弹种共架发射能力的新型通用垂直发射系统，具备全通用，高密度，高火力等性能优势。其不仅能发射防空反导导弹以及反舰导弹两种驱逐舰上常见的导弹，还能发射对陆攻击导弹和反潜导弹，提高了055万吨导弹驱逐舰的远程对陆攻击和反潜作战能力。
 
-目前，除055万吨导弹驱逐舰上配备这种新一代通用垂直发射系统外，中共海军大批量装备的052D导弹驱逐舰也配备了类似的通用垂直发射系统。
 
-对于如今的海军作战舰艇而言，通用垂直发射系统已经成为一种标配。当今，美国MK41通用垂直发射系统是世界最著名的系统之一。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-由于科技和工业的整体水平所限，中共近年来通过“偷买并用”的方法才得以突破相关关键技术，但中共必然会将其作为炫耀武力，威胁台日的资本。
 
-信息来源：[“海军的标配”，国产新型垂发系统装配万吨大驱，提升海军战力\_通用](https://www.sohu.com/a/495227274_335714)
 
-(文章仅代表作者本人观点，与GNEWS无关)
+10月14日，据CTV报道，加拿大萨斯喀彻温省计划逮捕与PPC人民党相关的志愿者与支持者。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+![](https://saskatoon.ctvnews.ca/content/dam/ctvnews/en/images/2021/9/21/maxime-bernier-1-5593830-1632206890498.jpg)图片来源：THE CANADIAN PRESS/Liam Richards
+
+此前，2021年加拿大民主大选刚刚落幕，萨斯喀彻温省的警察署随即呼吁，希望民众能举报在9月20日大选时参与人民党选举聚会的志愿者与支持者们。
+
+![Image](https://media.discordapp.net/attachments/879117708753514526/898697649396514826/image0.png?width=929&amp;height=609)图片来源：萨斯喀彻温省警署网站截图
+
+对此，警察署表示，民众可以匿名举报或通过照片指认人民党的支持者与志愿者。但是，至今没有任何相关报道指出，这些参与者到底违反了加拿大哪条法律与规则。网友们猜测，人民党是唯一一支反对强制新冠疫苗和疫苗护照的联邦党派。
+
+实际上，在9月20日加拿大的大选日当天，加拿大各个党派均有选举日聚会，但此次抓捕却仅针对人民党的支持者。可以说，这种针对性的抓捕行动着实让加拿大人后背发凉，更不要说警察署鼓动的有违民主政治制度的匿名举报行为了。
+
+让人悲哀的是，也许加拿大的民主选举制度已经不复存在了。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+[Saskatoon police seeking help to identify 15 people who allegedly violated COVID-19 restrictions at PPC rally](https://saskatoon.ctvnews.ca/saskatoon-police-seeking-help-to-identify-15-people-who-allegedly-violated-covid-19-restrictions-at-ppc-rally-1.5623680)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
