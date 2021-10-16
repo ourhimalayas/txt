@@ -2,27 +2,31 @@
 ---
 
 
-## 中共党媒疑为推房地产税吹风
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1596850/)
+## 健康男孩接种后上网课时死亡，母亲向辉瑞问责
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1596581/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+据《红声媒体》詹姆斯·萨姆森2021年10月13日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ym_adobespark.png)图片来自网络
+“*对于大脑、心脏、肝脏和肾脏的微血管损伤，这些潜在药物目前似乎没有做过安全性试验的评估。”*
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/text-SC-14.png)
-文章仅代表作者本人观点，与Gnews无关
+一名来自加州16岁身体状况良好的男孩，在接受第二剂辉瑞(Pfizer)中共病毒疫苗后在网课课堂上死亡。
 
-视频参看： 2021.10.15晚GTV新闻访谈
+7月13日，该男孩的母亲向美国食品和药物管理局(FDA)和疾病控制与预防中心(CDC)管理的疫苗不良事件报告系统(VAERS)提交了一份报告，称她的儿子在4月接受第二剂辉瑞的实验性中共病毒疫苗27天后去世了。
 
-[https://gtv.org/broadcast/watch/616a1cd6304e992109b5a983](https://gtv.org/broadcast/watch/616a1cd6304e992109b5a983)
+“我儿子在Zoom上数学课时去世了。我们正在等待尸检，因为医生没有发现任何东西，”这位母亲在报告中写道。 “他是一个健康的男孩，他的学习成绩很好，他想成为一名土木工程师。他是我生命中最美好的事物。”
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+“他之前没有任何症状。一小时前我和他在一起，并且我的助手在20分钟前看到了他，他没有表现出任何反常现象，”她在疫苗不良事件报告系统的“诊断实验室数据”部分补充道。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
+据报道，这名男孩于4月3日接种了第二剂疫苗，然后于4月27日死亡。他的母亲表示，他没有被诊断出有任何过敏症、既往病症、疾病、残疾或先天缺陷。在他去世近期，也没有服用任何药物。这名少年在医院住了八天，目前尚不清楚他是从医院参加的Zoom课堂，还是在他去世前已经出院。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+几个月来，媒体一直在试图扫除有关儿童被中共病毒疫苗伤害或杀害的报道。早在6月份，儿童健康防御部门就查看了有关儿童接种中共病毒疫苗的早期数据。结论发现，“对于12-17岁的儿童，在接受第二剂后7天内发生心肌炎/心包炎的风险是普通男性的32倍，女性的9.5倍。”
+
+对于18至24岁的年轻人，发生心肌炎和心包炎的风险增加是普通男性的27倍。
+
+帕特里克·惠兰 (Patrick Whelan) 医生是一名照顾患有多系统炎症综合征儿童的儿科专家，他最近发表讲话警告说，疫苗中发现的刺突蛋白对年轻人特别关注，因为它是一种潜在的致命毒素，会导致“对于大脑、心脏、肝脏和肾脏的微血管损伤，这些潜在药物目前似乎没有过安全性试验的评估。”
+
+【本文仅代表作者个人观点】
+
+原文链接：[https://www.redvoicemedia.com/2021/10/healthy-16-year-old-boy-drops-dead-during-virtual-class-mom-blames-pfizers-covid-vaccine/](https://www.redvoicemedia.com/2021/10/healthy-16-year-old-boy-drops-dead-during-virtual-class-mom-blames-pfizers-covid-vaccine/)
+
+翻译：Prof.Bacteriophage |校对：烟波浩渺 |编辑&发布：V
