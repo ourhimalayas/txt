@@ -2,9 +2,20 @@
 ---
 
 
-## 疫苗强制令引起的停工潮迅速蔓延至21家航空公司
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1595846/)
+## 西方知名的病毒专家重磅演讲戳穿疫苗谎言
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1596024/)
 
-10/11/2021 西南航空谎报2000个航班被取消的原因。杰克·波索别克透露，这是由他们的飞行员发起的针对疫苗强制令的罢工造成的，现在这种罢工正在迅速蔓延到21家航空公司和Amtrak铁路系统。
+翻译： Rosa
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+视频：澳洲天好蓝
+视频来源：https://rumble.com/vnbv86-winning-the-war-against-therapeutic-nihilism-and-trusted-treatments-vs-unte.html
+知名的COVID-19专家和拥有众多出版期刊的医生Peter McCullough博士向同事们提供了一份全面的、有据可查的报告），内容涉及由于基因转移疫苗运动而在西方发生的 “令人难以置信的暴行”，对儿童接种疫苗的 “牢不可破的抵抗 “的必要性，以及公共卫生机构 “令人震惊的…无能和故意的错误行为”。
+
+McCullough曾提出，世界上没有人比他在这个问题上更有权威，他详细分析了多项科学研究和数据报告，证明了 “疫苗计划的失败”，有效的早期治疗的压制，以及自然免疫的 “强大、完整和持久 “的品质。
+
+（本文纯属个人观点，与Gnews无关）
+
+[原文链接：](https://rumble.com/vnbv86-winning-the-war-against-therapeutic-nihilism-and-trusted-treatments-vs-unte.html)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

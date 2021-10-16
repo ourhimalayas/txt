@@ -2,29 +2,31 @@
 ---
 
 
-## 文贵先生分析中共试图&#8221;武统&#8221;台湾的内因和外因
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596326/)
+## 香港审计监管部门调查恒大账目及其会计师事务所的审计
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1596563/)
 
-作者：文龍
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月13号，文贵先生在直播中分析了中共习近平决意要”武统”攻打台湾的动机，其中内因来自习近平一直以来的皇帝梦，他想做当代的秦始皇，一统天下拿回台湾，留名史册。 同时也是因为中共国内目前愈演愈烈的房地产崩盘压力和激烈的党内政治斗争所致。习近平想用一场局部战争来缓解所有这些无法避免的内部矛盾。
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-2.jpeg)
+据德国之声报道，香港审计监管机构10月15日表示，监管部门担忧恒大在有关持续经营汇报的充分性方面存在问题，正在对中国恒大集团2020年年度账目，以及罗兵咸永道会计师事务所（中国称“普华永道”）对恒大2020年年度账目进行的审计展开调查。
 
-外部因素首先是中共主管外交事务的王毅和杨洁篪，他们的欺上瞒下和报喜不报忧，如同当年的袁克定和袁世凯，导致习近平误判国际形势，认为联合国和俄罗斯等周边国家已经默许中共”武统”台湾，建功立业的时机已经成熟，况且由于美国政府的软弱和绥靖，以及来自台湾内部的卖台贼呼声，都给了中共和习近平更多的信心，这一切都使得台海战争的脚步越来越近了。
+财务汇报局指出，恒大2020年底账目的现金和现金等价物总共1590亿元人民币（约247亿美元），但这并不包括目前的1.5万亿元人民币的债务，并且还有2022年到期的1670亿元人民币的借款。
 
-(本文仅代表作者观点)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211015211541.png)图片来自于网络
 
-参考链接：[https://gettr.com/post/pe5ia99a21](https://gettr.com/post/pe5ia99a21)
+财务汇报局说，恒大的账目未明确说明在实施计划影响之前或者之后，是否存在重大持续经营的不确定性，而恒大曾表示必须减轻对现金流的潜在影响。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+财务汇报局还说，罗兵咸永道会计师事务所在恒大2020年年度账目审计报告中发表了未经修改的审计意见，但是未提到恒大是否持续经营存在重大的不确定性。
 
-编辑/校正/发稿：谐趣园
+另外，财务汇报局还表示，在调查之前，他们曾接获一宗与恒大集团2020年年度账目及2020年年度审计相关事项的公众投诉。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+资金紧张的恒大集团一直在接二连三地剥离一些资产偿还到期的欠款。目前，该集团债务高达3000亿美元，已经三次未能按时偿还海外债权人的票息。
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[香港审计监管部门对恒大账目及其会计师事务所的审计进行调查](https://www.voachinese.com/a/hong-kong-audit-watchdog-investigating-evergrande-and-pwc-20211015/6271890.html)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

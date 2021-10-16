@@ -2,45 +2,44 @@
 ---
 
 
-## 美前国务卿赖斯: 北京遥控“亲中势力”暗中颠覆台湾政权
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1596706/)
+## 北京陷入困境：中国生产成本以26年来最快速度飙升
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1596720/)
 
-作者：纽约香草山农场 – 四季
+**据《零对冲》作者：TYLER DURDEN于2021 年 10月 13日报道：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+今年9月，中国工厂出厂价格以近26年来最快的速度飙升，增加了全球通胀风险，并给当地企业带来了压力，迫使他们开始将更高的成本转嫁到消费者身上。
 
+中国国家统计局周四公布的数据显示，生产者价格指数（1995年11月）较上年同期上涨10.7%，为1995年11月以来的最高水平，远高于8月份9.5%的涨幅，也高于10.5%的预期。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/dc.png)图片来源：《零对冲》
+另一方面，上月消费者价格指数（CPI）较上年同期上涨0.7%，低于前一个月的0.8%。但彭博社指出，目前消费者通胀仍受到猪肉价格下跌的影响，（译者注：猪肉价格在CPI指数占据很大的比重）尽管在9月底之前取消了大部分因病毒的封锁，可能会有助于提升家庭支出。
 
+“PPI与CPI差距的拉大意味着上游行业面临更大的压力，不断上涨的成本将转嫁到下游。”华复兴证券香港宏观与策略研究部主管彭小龙表示。
 
+正如我们先前警告的那样，情况将变得更加严重。如果煤炭价格与PPI的历史相关性得以维持，那么中国PPI可能很快就会翻三倍，即从9月份的10.7%/年，将飙升至30%／年以上。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/cfu.png)图片来源：《零对冲》
+不用说，如果中国PPI确实达到30%／年以上，即使CPI以某种方式保持在个位数，结果将是灾难性的：利润率将崩溃，本已稀薄的现金流的暴跌将导致更多的违约和供应链瓶颈，即使“不惜任何代价”（译者：引用中共政府的话来说）获取大宗商品的争夺，将不断推高成本和PPI。
 
+同时，如果生产商确实试图类似90年代初期那样将部分成本和CPI峰值转嫁到消费者身上（CPI和PPI之间的差距在近期煤炭价格飙升之前已经达到创纪录水平），那么中国将发生社会动荡。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/alaih-ixypk.jpg)图片来源：《零对冲》
+有初步迹象显示，生产商开始将更高的成本转嫁到消费者身上：中国最大的酱油生产商本周表示，计划提高产品的零售价格。据《中国证券报》4日报道，今年至少有13家在中国A股市场上市的公司宣布提价，以应对成本上升和供应紧张的问题。
 
-据[法广](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211015-%E7%BE%8E%E5%89%8D%E5%9B%BD%E5%8A%A1%E5%8D%BF%E8%B5%96%E6%96%AF-%E5%8C%97%E4%BA%AC%E9%81%A5%E6%8E%A7-%E4%BA%B2%E4%B8%AD%E5%8A%BF%E5%8A%9B-%E4%BB%A5%E4%BE%BF%E9%A2%A0%E8%A6%86%E5%8F%B0%E6%B9%BE%E6%94%BF%E6%9D%83)10月15日报道，美国前国务卿赖斯（Condoleezza Rice）与澳洲大利亚外交部部长唐纳（Alexander Downer）伦敦时间14日透过视讯，出席了英国智库“政策交流”（Policy Exchange）举办的线上座谈会。在谈到台海情势时赖斯指出，美国不会坐视中共国武力犯台。中共不会派遣正规部队攻台，而是透过遥控“亲中势力”颠覆台湾政权。
+这一切的发生，是由于中国房地产业迫切需要大量的流动性注入，而你猜对了，这就是通货膨胀。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1224-1-zhong_hua_min_guo_zong_tong_fu_01_1.jpg)台湾总统府图片 © Wikipedia维基百科
+尽管中国可能面临自90年代初以来的首次PPI“高通胀”，但从此只是走下坡路，因为正如花旗集团（Citigroup）上周末所写的那样，停电目前在中共国大面积地发生（尽管占中国GDP&gt;2/3的省份自8月份以来已经出台了电力配给措施），而收缩的PMI“似乎表明中国可能进入至少一段短暂的滞胀期”。
 
-美澳双方都表示，中共国不会派遣正规部队抢滩登陆台湾，以免引发美国及其盟友联手驰援台湾。中共国对付台湾的方式，将会比照俄罗斯控制乌克兰东部的做法，遥控台湾内部的“亲中”准军事势力，在台湾内部采取各种扰乱行动，例如切断海底电缆、制造网络安全威胁等，进而颠覆台湾政权。
+Pinpoint资产管理有限公司首席经济学家张志伟表示：“我们认为，中国和世界其他地区的滞胀风险正在上升。”
 
-赖斯强调，幸好，每一次中共国发动台湾亲中势力施展类似的把戏时，都会遭遇台湾社会反弹，造成反效果；因为，台湾民众对自己的民主政治引以为傲，而且对北京当局是有警戒的。
+持续的通胀压力限制了货币政策放松的潜在空间。
 
-这和郭先生的爆料不谋而合，即那些卖台贼和中共勾结，蓄谋拿下台湾。期盼正义的力量聚集，保卫台湾这一块中华民族最后一片净土。
+因此，北京现在陷入了困境：如果货币宽松，已经处于流鼻血水平的通胀将进一步飙升，并引发严重的滞胀衰退；如果货币紧缩，已经崩溃的房地产市场将一泻千里。
 
-（本文仅代表作者观点）
+**原文链接：**[https://www.zerohedge.com/economics/beijing-trapped-china-producer-prices-surge-fastest-pace-26-years](https://www.zerohedge.com/economics/beijing-trapped-china-producer-prices-surge-fastest-pace-26-years)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+翻译：洛杉矶盘古农场 – 蓝精灵
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
