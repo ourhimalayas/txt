@@ -2,54 +2,31 @@
 ---
 
 
-## 如果CCP打台湾，日本会怎样
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1597769/)
+## 中共国房产税毫无合法性
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597832/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2533.png)
-[https://gtv.org/video/id=616ac666d2e2b8174875d1df](https://gtv.org/video/id=616ac666d2e2b8174875d1df)
+撰稿：东京樱花团/知了知了
 
-郭文贵
-Miles Guo
+![](https://assets.gnews.org/wp-content/uploads/2021/10/中共国房产税毫无合法性.png)[图片来源](https://i.ifeng.com/c/8A5rChBMsnb)
 
-今天很多台湾的战友问我，说日本会怎么样
-Today there are a lot of comrades in arms ask me if CCP attacks Taiwan, what Japan will do?
+这世界上，唯有死亡和税收不可避免。
 
-日本会站起来的，我说你们这太不了解了
-will Japan step in? I said you don’t understand it at all
+有段时间，王某甲一直租住在天上人间，退房时收到一份账单，房费10 Cion，服务费2 Cion、房产税2 Cion。王某大怒，发飙曰，“房间不是我的私产，你们凭什么收取房产税”？天上人间递上一张报纸，淡淡曰，“仔细看，天上人间也不是我的私产”。
 
-美国要是不动手的话，日本连个屁不会放，连个屁都不会放
-If the U.S. doesn’t do anything, Japan won’t even make a sound
+10月16日，中共党媒《求是》刊发习近平的重要文章《扎实推动共同富裕》，核心意思是以共同富裕之名，积极稳妥推进房地产税立法和改革。喧嚣多年的靴子总算落地，中共国房地产终于松了最后一口气。
 
-没有任何用的，它即使有这个能力，
-It’s useless, even Japan has the ability to stop CCP
+**房产税实质是财产税**，**起源于公民让渡自己的部分利益，换取国家或组织对私人财产提供的安全保障服务**。中共国房地产产权结构里，包括70年（或40年）土地使用权和同期房屋使用权，及同期用益物权和担保物权。不包括所有权，**所有权又称完全物权**，是指民法上，权利人对标的物可以**直接全面排他性支配特定物的物权**。所谓“全面支配”，意味着**支配范围的全面性和支配时间的无限性**。中共国土地法规定，**土地归国家或集体所有。单位或个人只能依法获取有限期的使用权，并在使用权到期后，土地及其地上附着物无偿归还国家或集体**。因此，中共国房屋所有者没有所有权，根本不构成私人财产要件，何来房产税可言？**中共国房地产权益几乎等同于王某甲在天上人间租住之房。**
 
-真正的要打起来，日本是完全能KO它的
-If really start the war, Japan is completely able to knock it out
+中共国房产税到底是什么？**额外地租或者叫二次地租**。这在整个中华历史上，仅在契约地租极低的地方才会出现额外地租现象（曾在东北出现过，即便加上额外地租，东北的总地租也比南方低）。中共国契约地租一次性收取了70年或40年，叠加平均税负高达67%的重税，政府这都能穷疯，而重新签订契约地租成本太高，只好染指额外地租，就是**以房产税为名依法抢劫**。
 
-但是，你知道老共它会动（用）核武器，它有核武器呀
-But, you know that the Communist Party can use nuclear weapons, and it has nuclear weapons
+这种骚操作能出现，中共政府该有多穷，又一秤砣压在中共国房地产和世界经济的身上，他们还能坚持多久？
 
-它敢动核武器呀，日本不敢冒这个险，
-It dares to use nuclear weapons, Japan dare not take the risk
+消息来源：
 
-就美国的态度只要不明确, 日本连个屁都不敢放，这是绝对的常识
-As long as the attitude of the United States is not clear, Japan will not take the risk, this is absolutely common sense
+[《扎实推动共同富裕》提及房地产税试点 业内分析或会加快落地](https://www.sohu.com/a/495300185_114988)
 
-* * *
+（免责声明：文章仅代表作者本人观点，与GNEWS无关）
 
-Date:10/15/2021
-原视频标题:如果CCP打台湾，日本会怎样
-If CCP attacks Taiwan, what will happen to Japan
-原视频日期：2021/10/10
-原视频接:[https://twitter.com/se1y7cblljselva/status/1447866562375999489?s=24](https://twitter.com/se1y7cblljselva/status/1447866562375999489?s=24)
-任务编号：KC173（2533）
-视频时间段 : 0:00-0:45
-英听校：洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)

@@ -2,32 +2,73 @@
 ---
 
 
-## 美众议员提出反中国经济胁迫法案对抗中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597979/)
+## 只是节目上的陪衬——前保守派主持人患“创伤后应激障碍”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1598041/)
 
-作者：云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国众议院外委会亚太小组主席贝拉与共和党籍众议员华格纳等人，于15日提出反中国经济胁迫法案。民主党籍众议员卡斯楚、泰塔斯等也共同参与了此项提案。
+编译：Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Untitled-design-2021-10-15T131020.146-817x429-1.jpg)2016 年 4 月 30 日“观点”（The View）的演员——宝拉·法瑞丝（Paula Faris）、米歇尔·柯林斯（ Michelle Collins,）、瑞文·西蒙尼（ Raven-Symone）、乔伊·比哈尔（ Joy Behar）和坎迪斯·卡梅隆·布尔（ Candace Cameron Bure）——抵达华盛顿特区参加白宫记者协会的年度晚宴 , 布尔去年在电视节目中。 （安德鲁·比拉杰/法新社通过盖蒂图片社）
 
-过去10年，中国对美国主要伙伴与盟国不断采取胁迫性经济措施，如2010年，日本与中国渔船在东海争议海域发生冲突时，中国停止向日本出口稀土；2016年，韩国同意美军在当地部署萨德导弹防御系统时，中国限制进口韩国娱乐与其他文化产品，禁止销售部分韩国家用产品并限制两地旅游；2020年，澳洲呼吁对冠状病毒起源进行独立调查后，中国对澳洲葡萄酒与大麦采取大幅提高关税以报复。
+“观点”节目(The View)中象征保守主义者，就像在虚构的英国重金属乐队（ Spinal Tap）中担任鼓手一样。
 
-贝拉及华格纳表示，中共以强制性的经济制裁行为来惩罚违背其利益的国家和企业，损害了美国及盟友的利益。 这项法案的目的，在于确保美国能以全面的方式，实施对中共经济霸凌的回应和反击。
+（注释：Spinal Tap 的虚构历史包括一系列鼓手，据说他们都死于奇怪的情况）
 
-(本文仅代表作者观点)
+当然，有几个关键的区别，长期举办的 ABC 聊天节中保守派总是退出； Spinal Tap 中的鼓手以奇怪的方式被杀死。“观点”通常无法观看下去，而“这就是重金属乐队”（This is Spinal Tap）是有史以来最有趣的电影之一。此外，“观点”是真实的现实，而“这就是重金属乐队”是虚构的。
 
-参考链接：[中國經濟脅迫日增 美議員推法案反擊](https://www.cna.com.tw/news/firstnews/202110160013.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+最后一部分是最大的问题，看看将真实的人置于“观点”的实际环境中，会如何导致实际的痛苦——该节目的一位前象征性保守派人士说，这让她患上了创伤后应激障碍（PTSD）。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+根据《每日电讯报》者的说法，坎迪斯·卡梅隆·布尔——以其饰演 D.J. 电视节目“欢乐满屋”（Full House）中的坦纳说，她在 2015 和 2016年共同主持该节目的时间让她患上了PTSD。
 
-新闻访谈终审：文龍
-编辑/校正/发稿：谐趣园
+据《每日电讯报》周三报道，布尔在ABC的“桌子后面”（Behind the Table）播客中说：“压力和焦虑——我现在提起这个话题肚子翻腾。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“我一生中只有一种压力， 那就是来自那个“观点”节目。就像 让我患上了PTSD，我能感觉到。这太困难了，要控制这种情绪压力非常非常困难。”
+
+对于那些在 24 年的运行中设法避开“观点”的人，让我首先说：我羡慕你们。 然而，基本情况是这样的：一群共同主持人围坐在一张桌子旁，愤怒地互相讨论当天的社会政治和文化问题。
+
+好吧，让我检查一下自己——他们并不都在互相交谈。 虽然 参与者的核心群体每年都在变化，但该小组的意识形态构成仍然惊人地一致。
+
+除了一个例外，还有来自好莱坞和各行各业的自由主义者和进步主义者。然后，有一个保守派在里面充当“平衡”。小组的其他成员不断对这个无情的反动者大喊大叫。
+
+虽然布尔从她在好莱坞的时候就被认为是一个保守的基督徒，但她告诉“桌子后面”，尽管她缺乏意见或兴趣深度，但她在节目中感到“压力”，需要对主题采取保守的角度。
+
+“（我）只是想了解一下并大致搞清楚那个我并不想谈论或不关心的话题，”她说。
+
+“当我要参加一个我没有明确观点的节目，或者节目上的话题会让我紧张时——因为我确实有自己的观点，但我知道我会是“桌子上”唯一，一个自己观点的人，我就会恶心倒胃。我恨那种感觉。”
+
+虽然布尔说她并不后悔这次经历，但她补充说，她经常在节目前泪流满面。
+
+作为保守派陪衬的“压力”，她不是独一份。
+
+当尼科尔·华莱士（[Nicolle Wallace](https://www.westernjournal.com/co-founder-anti-trump-org-employed-alleged-predator-compares-conservatives-bloodthirsty-terrorists/?ff_source=Email&amp;ff_medium=newsletter-CT&amp;ff_campaign=dailypm&amp;ff_content=conservative-tribune)）名义上还是共和党人时，这位前乔治·W·布什政府官员是“观点”象征性的保守派。仅仅一个季度之后，她就在 2015 年被解雇了，部分原因是《综艺》报道效果，真实原因是“在政治问题上没有提供足够的异议”。
+
+**如果你是象征性的保守派，也不能保证提供政治异议会让你的生活变得轻松。**
+
+梅根·麦凯恩成为最近一个在去年八月离开“观点”的象征性保守派，而且——你不知道吗？报道称她的任期远非顺利。
+
+2020 年 1月，《纽约邮报》的第六页报道了“观点”的众多内部人士，他们说，唯一的一个甚至会与麦凯恩交谈的，联合主持人是艾比·亨茨曼——另一个名义上的保守派，尽管更像是一个共和党建制派(RINO)。该节目的消息人士称，麦凯恩对“观点”的嘉宾和联合主持人“粗鲁且不屑一顾”。
+
+完全不同于“观点”的联合主持人乌比·戈德堡（ Whoopi Goldberg），他在里面既不粗鲁也不轻视：相信我，还有更多的来源——不仅来自乌比，还来自乔伊·比哈尔和桑尼·哈兴等联合主持人。
+
+《纽约邮报》的卡洛斯·格里尔(Carlos Greer)还报道说，麦凯恩在节目中被排斥在外，因为她与所有联合主持人“争吵不休”。
+
+然而，布尔说她感到“压力”，所以要采取更保守的角度，《综艺》报道华莱士因“在政治问题上没有提出足够的异议”而走人。所以，如果你是一个保守派，你要么做太多激烈的争斗，要么说你做的不够。
+
+简而言之，**问题不在于麦凯恩、布雷、华莱士或下一个牺牲者是谁**。（据The Wrap 报道，本月早些时候，前川普政府官员艾莉莎·法拉(Alyssa Farah)作为嘉宾主持，被比作川普白宫的星球大战式“冲锋队”，因为她早已经适应了。）
+
+问题在于节目的形式：它要求将象征性的保守派被视为摔跤比赛的脚后跟(在职业摔跤中，脚后跟是一个摔跤手，他扮演恶棍、“坏人”或“规则破坏者”，并作为英雄的主角或“好人”角色的面孔的对手)，并放弃理智的用一个小时讨论乔治·奥威尔的“两分钟仇恨”。
+
+令人震惊的不应该是布尔从她那个时代作为象征性的保守派开始就患有PTSD，可悲的是如果她最终成为唯一的一个受创伤的人，那才是令人震惊的。
+
+**评论：无怪乎美国人民今天遭受如此毁灭性的共产主义洗脑，正是由于这类节目的污染！这类节目的收视率,就是自由思想的伤亡率！也是正常思维的致死率！因此作者感叹道： “可悲的是， 如果她最终成为唯一的一个受创伤的人，那才是令人震惊的。”**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**参考资料：**[westernjournal][Former Conservative Co-Host on ‘The View’ Says She Has PTSD from Her Time on the Show](https://www.westernjournal.com/former-conservative-co-host-view-says-ptsd-time-show/?utm_source=Email&amp;utm_medium=newsletter-CT&amp;utm_campaign=dailypm&amp;utm_content=conservative-tribune&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)

@@ -2,30 +2,28 @@
 ---
 
 
-## 西班牙卫生部确认未分离出SARS-CoV-2病毒样本，并承认“测试本身不足以确定疾病”
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1597806/)
+## 涉及误导性陈述被罚！加密货币公司Tether向美国监管支付四千万美元和解金
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597875/)
 
-撰稿：Runaway
+撰稿：东京樱花团/喜马拉雅的微尘
 
-《自由协会和生物学家寻真相》和一位个人向西班牙卫生部提出了有关SARS-CoV-2病毒的公开信息的请求，同时要求提供可以独立进行测试的病毒样本培养物。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/涉及误导性陈述被罚1.png)[图片来源](https://news.bitcoin.com/cftc-fines-stablecoin-issuer-tether-and-crypto-exchange-bitfinex-42-5-million/)
 
-在根据《透明度法案》回应这项要求时，西班牙卫生部承认“它既没有SARS-CoV-2培养物”，也没有注册的“具有培养和隔离检测能力的实验室”。该回应还将诊断和治疗的所有责任推给了卫生专业人员，并承认“测试本身通常不足以确定疾病。”
+财联社10月16日讯，当地时间周五，美国商品期货交易委员会（CFTC）发布公告称，已经与知名加密稳定币发行公司Tether以及加密货币交易所Bitfinex达成民事诉讼和解协议，两家公司一共将支付4250万美元的罚金。
 
-根据西班牙卫生部的说法，那些被用来决定有关限制、关闭、隔离、患者治疗、疫苗接种和旨在结束所有人自由的独裁措施的所谓“测试”，并不足以确定这种疾病，因为连测试的依据都还没有。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/涉及误导性陈述被罚2.png)（来源：CFTC）
 
-截至2021年10月7日，超过[20个国家的116家机构](https://www.fluoridefreepeel.ca/wp-content/uploads/2021/10/Institution-list-for-website2.xls)（主要是卫生和科学机构，点击进入列表）没有任何人、从任何地方提供或引用甚至一条描述纯化“SARS-COV-2”病毒或包含其存在证据的记录。这些机构中的几个（即CDC、英国公共卫生、英国DHSC、印度的ICMR）都有类似的回应。
+![]()这两家涉事公司均属于iFinex旗下。根据CFTC描述，Tether涉及在2016至2019年期间涉嫌误导投资者“每一个美元稳定币USDT背后都有1美元支持”，但这样的表述并非“100%准确”。为此Tether将向CFTC支付4100万美元和解相关诉讼，并承诺不会再犯。
 
-在全世界因”病毒流行“被隔离所困，经济被摧毁，人们失去自由的今天，竟然连测试是否被病毒感染的样本都没有被分离和培养出来，简直是令人难以置信。更有甚者，全世界人口的一半竟然为此接种了不知道是什么成分、以及安全性未知的疫苗。这是如何做到的？
+在监管声明发布后，Tether公司也在官网作出回应，表示引发调查的原因只是公司储备金并非全部以现金的方式存在，同时也并不总是存放在以Tether公司名义开立的银行账户中，但这样的情况从未影响公司履约。
 
-（文章仅代表作者观点，与Gnews无关）
+CFTC同时指控Bitfinex交易所与美国人进行数字资产的非法场外零售商品交易，并在未按要求注册的情况下作为期货佣金商 （FCM） 运营。Bitfinex也将支付150万美元和解这一起诉。
 
-发布：Runaway
+当前，数字加密货币备受关注和追捧，各国政府基本都采取加强监管和规范的方式来主动顺应这一发展趋势。但由于中共以及世界黑暗势力对于数字加密货币的控制和滥用，可以预计，随着全球灭共进程的推进，众多数字加密货币还将经历痛苦的洗牌和转型过程。而这种激浊扬清、大浪淘沙式的行业重塑，对于始终将合规摆在首位的“喜币”（HCN）而言，都是利好。
 
-参考链接：
+（免责声明：文章仅代表作者本人观点，与GNEWS无关）
 
-1. [Spain: Ministry of Health Confirms It Has Not Isolated The SARS-CoV-2 Virus and Admits “Tests, By Themselves, Are Not Usually Sufficient to Determine the Disease.”](https://theexpose.uk/2021/10/14/spain-ministry-of-health-confirms-it-has-not-isolated-the-sars-cov-2-virus-and-admits-tests-by-themselves-are-not-usually-sufficient-to-determine-the-disease/)
-2. [Spain: Ministry of Health Confirms It Has Not Isolated The SARS-CoV-2 Virus and Admits “Tests, By Themselves, Are Not Usually Sufficient to Determine the Disease.”](https://theexpose.uk/2021/10/14/spain-ministry-of-health-confirms-it-has-not-isolated-the-sars-cov-2-virus-and-admits-tests-by-themselves-are-not-usually-sufficient-to-determine-the-disease/)
+校对：东京樱花团/知了知了
+发布：东京樱花团/老黑
 
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)

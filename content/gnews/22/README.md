@@ -2,20 +2,22 @@
 ---
 
 
-## 台陆委会称目前局势接近准战争状态!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597920/)
+## 美众议员提出反中国经济胁迫法案对抗中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597979/)
 
-作者：在远方
+作者：云豹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月初的数日内, 中共军机多达149架数次侵犯台湾空域，而且此前中共只是出动侦察机，近日的军事行动则还括了战斗机、轰炸机和预警机等多种机型编队袭扰 , 台陆委会主任邱太三14日表示，这已接近准战争状态!
+美国众议院外委会亚太小组主席贝拉与共和党籍众议员华格纳等人，于15日提出反中国经济胁迫法案。民主党籍众议员卡斯楚、泰塔斯等也共同参与了此项提案。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-16.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9-2.jpeg)
 
-但同时邱太三还爆料称，为回应共军军机侵台，十月初美英日等六国军演时，曾有两架美国战机进入可发射飞弹攻击中共军港射程，而中共雷达却未在第一时间发现美军战机。
+过去10年，中国对美国主要伙伴与盟国不断采取胁迫性经济措施，如2010年，日本与中国渔船在东海争议海域发生冲突时，中国停止向日本出口稀土；2016年，韩国同意美军在当地部署萨德导弹防御系统时，中国限制进口韩国娱乐与其他文化产品，禁止销售部分韩国家用产品并限制两地旅游；2020年，澳洲呼吁对冠状病毒起源进行独立调查后，中国对澳洲葡萄酒与大麦采取大幅提高关税以报复。
+
+贝拉及华格纳表示，中共以强制性的经济制裁行为来惩罚违背其利益的国家和企业，损害了美国及盟友的利益。 这项法案的目的，在于确保美国能以全面的方式，实施对中共经济霸凌的回应和反击。
 
 (本文仅代表作者观点)
 
-参考链接：[中国军机大举扰台 台湾陆委会主委邱太三称“准战争状况布局”](https://www.rfa.org/mandarin/yataibaodao/gangtai/hcm1015a-10152021054841.html)
+参考链接：[中國經濟脅迫日增 美議員推法案反擊](https://www.cna.com.tw/news/firstnews/202110160013.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
