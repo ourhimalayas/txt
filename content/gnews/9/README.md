@@ -2,45 +2,26 @@
 ---
 
 
-## 北美最大工会之一（SMART）宣布反对疫苗强制
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597146/)
+## 联邦法官就强制疫苗政策对联合航空公司发出限制令
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1597156/)
 
-作者：文一
+#### 撰稿：Grace
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-49.jpg)图片来源：网络截图
+据Breitbart10月12日报道，联合航空（United Airlines）公司最初要求它的6.7万名美国员工，必须在9月27日之前接种中共病毒疫苗（或获得豁免），否则将面临解雇。根据该公司的强制疫苗规定，任何获得豁免的员工仍将被视为受雇，但将被置于无薪休假状态，并将失去长达6年的福利，或直到航空公司认为疫情对未接种疫苗的员工来说是安全的，才能返回。
 
+Conservative Institute 10月14日报道， 美国联合航空公司对员工实施了这一严格疫苗规定后，导致一些工人提出了联邦诉讼，要求法官发布禁令。
 
+联合航空公司请求驳回该诉讼，**但联邦法官在本周三发布了一项临时限制令（****TRO****），禁止该公司在诉讼继续进行时，在10****月26****日之前，强制员工打中共病毒疫苗或拒绝员工的宗教或医疗的豁免请求。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+参与该集体诉讼的六名主要员工声称，该公司违反了1964年《民权法案》第七章（Title VII of the Civil Rights Act of 1964 ）和《美国残疾人法案》（ADA），对寻求医疗或宗教豁免的人进行报复。
 
+在星期三裁决中，美国联邦法官马克.皮特曼（Mark Pittman ）写道：“法院现在得出结论，有必要发布这个临时限制令，以避免不可挽回的伤害风险，并在法院审理和解决原告的初步禁令动议之前维持本案的现状。”
 
+尽管法官明确表示，他没有对该案的 “案情进行裁决”，但他重申，他的法庭 “只是寻求避免对各方造成不可挽回的伤害的风险，并在提交证据的同时维持现状。”
 
-据Gateway pundit 报道- 周四，北美最大工会之一，国际金属板材、航空、铁路和运输工人协会 （SMART）工会主席罗伊-戴维斯先后两次致信告知联合太平洋公司，该工会坚决不同意该公司“单方面”要求接种新冠疫苗的做法，并要求对方立即进行诚意谈判。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-6.jpg)
-SMART，是北美最大的铁路运营工会，拥有超过500个交通局域网，会员超过20万人，由钣金工、技师、巴士司机、工程师、售票员、焊工等组成。
+为此，他命令联合航空公司在本月尾之前，“暂时限制”已获延期的未接种疫苗的员工无限期无薪休假。该法官还禁止联合航空拒绝接受员工在8月31日之后提交的住宿申请。
 
-此次抗议是继飞行员航空业工人之后美国运输雇员工会反毒针的一个巨大举措，预示着更多社会中坚力量正在觉醒和行动。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-48.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/5-30.jpg)
-参考链接：
-[BOOM! Sheet Metal, Air, Rail and Transportation Union (SMART) with 203,000 Members Announces Stand Against Forced Vaccines](https://www.thegatewaypundit.com/2021/10/boom-sheet-metal-air-rail-transportation-union-smart-203000-members-announces-stand-forced-vaccines/)
+**新闻来源：**[**Judge issues restraining order against United Airlines over vaccine policy**](https://conservativeinstitute.org/conservative-news/judge-issues-vaccine-mandate.htm)
 
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：鬼五
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[**Exclusive — Federal Judge Blocks United Airlines From Imposing Employee Vaccine Mandate**](https://www.breitbart.com/politics/2021/10/12/exclusive-federal-judge-blocks-united-airlines-from-imposing-employee-vaccine-mandate/)

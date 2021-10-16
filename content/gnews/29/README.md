@@ -2,10 +2,10 @@
 ---
 
 
-## 日本政府将对台积电在日设厂，提供一半投资额补助
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596931/)
+## 中共央行为恒大危机辩护，香港调查恒大问题账目
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1596953/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10._16-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1016-scaled.jpg)
 （文章仅代表作者个人观点，与GNEWS无关）
 
 *编辑：东京樱花团/简报小组*

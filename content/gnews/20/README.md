@@ -2,30 +2,23 @@
 ---
 
 
-## 日铁起诉丰田、宝钢专利侵权，涉及碳化技术竞争
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597079/)
+## 日本官方：感染中共病毒，比心肌炎、心包炎强？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597080/)
 
-作者：东京樱花团｜文小白
-![](https://lh3.googleusercontent.com/FR6l3w5sUUjcEwYkiWsdtyfIgs9Q1lafhpGuTgI9pBTsSEN1114ggZfsulENMGWsHKzSJoHhtdL8qGzp4nyuPHJhsZfDJEz-cx4B99d9qVvRAlPIVJhyM1lIn4oTbDaBQUQi0mGS=s0)[图片来源](https://china.kyodonews.net/news/2021/10/e6839bd48937.html)
-日本制铁公司14日就电动汽车发动机等使用的电磁钢板，起诉丰田汽车公司和中国宝山钢铁公司侵害了专利权，分别索赔约200亿日元（约合人民币11亿元）。
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-76.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Ftest.qycz.org%2Fa%2F202106%2Fn6798867%2Fweb%2Fimages%2Fid13029529-q3-2-covid-19-virus-attack-heart-cell-600x338.jpg&amp;imgrefurl=https%3A%2F%2Ftest.qycz.org%2Fa%2F202106%2Fn6798867%2Fweb%2F&amp;tbnid=eI2EQhHFPEbQTM&amp;vet=12ahUKEwirsN_-_M3zAhVDfn0KHZVYAbgQMygEegQIARAr..i&amp;docid=hO3vE_kQysRZKM&amp;w=600&amp;h=338&amp;q=%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92%20%E5%BF%83%E5%8C%85%E7%82%8E&amp;hl=zh-CN&amp;ved=2ahUKEwirsN_-_M3zAhVDfn0KHZVYAbgQMygEegQIARAr)
+读卖新闻10月16日报道，厚生劳动省15日宣布，10岁至20岁的男性第一针接种了美国辉瑞疫苗，第二针可以选择美国辉瑞疫苗，或者美国莫德纳疫苗；第一针如果接种莫德纳疫苗，第二针可以选择接种辉瑞疫苗。
 
-- *延展阅读：*[*日本制铁状告丰田和中国宝钢侵权*](https://china.kyodonews.net/news/2021/10/9d6678dee6cf.html)
+据厚生劳动省统计数据，日本国内接种疫苗后患有心肌炎或心包炎的患者，10岁至20岁的男性中，接种莫德纳疫苗者，每100万有25-28人；接种辉瑞疫苗者，每100万有3-9人。厚生劳动省在15日的专家会议上称，感染中共病毒后，心肌炎或心包炎的发病率会增高，即便是莫德纳疫苗，接种后益处也十分明显。
 
+按照厚生劳动省的说法，即便患有心肌炎和心包炎，也有可能是因为患有中共病毒，而不是疫苗的原因，最终目的终究是鼓励大家接种疫苗。
 
-据共同社15日消息，日本制铁公司以该公司拥有的“无方向性电磁钢板”的高性能产品相关专利遭侵权为由，当天已向东京地方法院提起诉讼的。日铁主张，宝山钢铁在日本销售侵犯了成分和板材厚度等制造技术相关专利的电磁钢板，而丰田在采用该产品。这是日铁首次因侵犯专利权起诉汽车厂商。
+信息来源：
 
-此次诉讼的背景之一是为了在二氧化碳排放量较多的钢铁生产行业确立去碳化技术，各方展开得激烈竞争。对于以国家的资金实力为武器的中国厂家，日铁担心自身技术遭到盘剥，计划抗争到底。“我们以技术立国（的理念）工作至今。必需凭技术实力赚钱并进行投资。对于技术被中国抢走，无法沉默。”日铁相关人士就14日提起诉讼的理由这样强调。
+[１０～２０代男性、２回目ワクチンは選択可能に](https://news.yahoo.co.jp/articles/a7cb0163a19b8edbe99c100e95b2c9d8f76cebaf?page=2)
 
-- *延展阅读：*[*宝钢已成为中国规模最大、世界第五钢铁联合企业*](https://china.gov.cn.admin.kyber.vip/ztzl/2008-12/23/content_1185199.htm)
+(文章仅代表作者本人观点，与GNEWS无关)
 
-
-日铁之所以危机感增强，是因为使钢铁生产中的二氧化碳排放量为零的“零碳钢”国际研发竞争已经开始。为了能够成功，日铁估算需要5000亿日元（约合人民币281亿元）用于研发，需要4万亿～5万亿日元用于设备投资。日本政府决定从支援致力于去碳化的基金中，分配1935亿日元给减少二氧化碳排放的制铁法。
-
-旗下拥有宝钢等的全球龙头中国宝武钢铁集团从中国政府获得了500亿元去碳化技术研发资金。日本政府的基金在金额上相形见绌，两者的差异显著。日铁社长桥本英二认为，靠这个金额日铁无法从日益激烈的竞争中胜出。
-
-*[参考连接]：[关注：日铁起诉专利侵权或意在去碳化技术竞争](https://china.kyodonews.net/news/2021/10/e6839bd48937.html)*
-
-（本文只代表个人观点，与Gnews网站无关）
-*校对：东京樱花团 /*平安卿卿
-*发布：东京樱花团 /*平安卿卿
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
