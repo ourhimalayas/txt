@@ -2,30 +2,31 @@
 ---
 
 
-## 西班牙卫生部确认未分离出SARS-CoV-2病毒样本，并承认“测试本身不足以确定疾病”
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1597806/)
+## 日本央行数字货币测试顺利，明年4月进入第2阶段
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597811/)
 
-撰稿：Runaway
+撰稿：东京樱花团/喜马拉雅的微尘
 
-《自由协会和生物学家寻真相》和一位个人向西班牙卫生部提出了有关SARS-CoV-2病毒的公开信息的请求，同时要求提供可以独立进行测试的病毒样本培养物。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/日本央行数字货币测试顺利，明年4月进入第2阶段.png)[图片来源](https://btcmanager.com/boj-executive-japan-cbdc/)
 
-在根据《透明度法案》回应这项要求时，西班牙卫生部承认“它既没有SARS-CoV-2培养物”，也没有注册的“具有培养和隔离检测能力的实验室”。该回应还将诊断和治疗的所有责任推给了卫生专业人员，并承认“测试本身通常不足以确定疾病。”
+日本央行15日发布消息称，中央银行数字货币（CBDC）正在进行的“概念验证”第一阶段试验进展顺利，明年4月将进入第2阶段。
 
-根据西班牙卫生部的说法，那些被用来决定有关限制、关闭、隔离、患者治疗、疫苗接种和旨在结束所有人自由的独裁措施的所谓“测试”，并不足以确定这种疾病，因为连测试的依据都还没有。
+日本中央银行数字货币（CBDC）“概念验证”（PoC）第二阶测试为有效性验证试验。届时，将验证预约支付、与外部系统协同等货币所需功能方面的课题。央行在旨在相关行业共享信息的协议会会议上出示了计划。
 
-截至2021年10月7日，超过[20个国家的116家机构](https://www.fluoridefreepeel.ca/wp-content/uploads/2021/10/Institution-list-for-website2.xls)（主要是卫生和科学机构，点击进入列表）没有任何人、从任何地方提供或引用甚至一条描述纯化“SARS-COV-2”病毒或包含其存在证据的记录。这些机构中的几个（即CDC、英国公共卫生、英国DHSC、印度的ICMR）都有类似的回应。
+4月5日，日本央行发布公告称，从当天起对中央银行数字货币（CBDC）进行“概念验证”（PoC）第一阶段的测试。根据公告，该阶段为期一年，至2022年3月。日本央行表示，在PoC第一阶段，该行计划开发CBDC系统的测试环境，并根据支付工具的核心基本功能，重点是测试发行、流通和兑换央行数字货币(CBDC)的技术可行性。
 
-在全世界因”病毒流行“被隔离所困，经济被摧毁，人们失去自由的今天，竟然连测试是否被病毒感染的样本都没有被分离和培养出来，简直是令人难以置信。更有甚者，全世界人口的一半竟然为此接种了不知道是什么成分、以及安全性未知的疫苗。这是如何做到的？
+概念验证共有两个阶段：阶段一即开发测试环境，并对CBDC作为支付工具的核心功能进行实验；阶段二，日本央行将在第一阶段开发的测试环境中实施CBDC的附加功能，并测试其可行性。
 
-（文章仅代表作者观点，与Gnews无关）
+CBDC是中央银行以电子数据形式发行的法定货币。日本央行称目前没有发行CBDC的计划，但正在推进确认有效性的试验。还考虑今后以企业和消费者也实际参与的形式，实施最终试验。
 
-发布：Runaway
+面对中共强势推动的数字人民币（DCEP），从去年开始，美国、日本及欧洲多国央行对于数字货币的态度从保守逐渐转向积极。随着，中共病毒及疫苗灾难对全球经济影响的积累，特别是中共自身“金融核弹”的爆炸，必将促使世界主动或者被动的走向数字货币时代。这一点，已毋庸置疑。
 
-参考链接：
+信息来源：
 
-1. [Spain: Ministry of Health Confirms It Has Not Isolated The SARS-CoV-2 Virus and Admits “Tests, By Themselves, Are Not Usually Sufficient to Determine the Disease.”](https://theexpose.uk/2021/10/14/spain-ministry-of-health-confirms-it-has-not-isolated-the-sars-cov-2-virus-and-admits-tests-by-themselves-are-not-usually-sufficient-to-determine-the-disease/)
-2. [Spain: Ministry of Health Confirms It Has Not Isolated The SARS-CoV-2 Virus and Admits “Tests, By Themselves, Are Not Usually Sufficient to Determine the Disease.”](https://theexpose.uk/2021/10/14/spain-ministry-of-health-confirms-it-has-not-isolated-the-sars-cov-2-virus-and-admits-tests-by-themselves-are-not-usually-sufficient-to-determine-the-disease/)
+[日本央行数字货币测试明年4月进入第2阶段](https://china.kyodonews.net/news/2021/10/666957601337-42.html)
 
+（免责声明：文章仅代表作者本人观点，与GNEWS无关）
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)

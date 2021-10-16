@@ -2,9 +2,27 @@
 ---
 
 
-## 美国的短缺是因为让杀害5亿中国人的中共控制了供应链
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1598002/)
+## 台陆委会称目前局势接近准战争状态
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1598029/)
 
-10/11/2021 美国的短缺是因为让中共控制了供应链，这个犯罪组织在过去70年里杀害了近5亿中国人。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-15.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：2021.10.16早GTV新闻访谈
+
+[https://gtv.org/video/id=616ac57a304e992109b5daab](https://gtv.org/video/id=616ac57a304e992109b5daab)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

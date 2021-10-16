@@ -2,32 +2,42 @@
 ---
 
 
-## 日铁起诉宝钢专利侵权，涉及碳化技术竞争
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597953/)
+## NBA球员：不会因为强制或不接种疫苗而放弃比赛
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1597960/)
 
-作者：文小白
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-共同社15日消息，日本制铁公司14日就电动汽车发动机等使用的电磁钢板，起诉中国宝山钢铁公司侵害了其专利权，并索赔约200亿日元,约合人民币11亿元 。
+**简评：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-15.jpeg)
+NBA球员欧文在赛季前被承诺豁免接种疫苗，结果临到比赛时又被要求必须接种疫苗。他站出来声明，自己不会因为强制疫苗或不接种疫苗而放弃比赛。现实世界的人们正在因为疫苗措施而失去工作。人们为了生活而做出选择。欧文只是想好好打球，但他成了一个被利用的典型。
 
-日本制铁公司拥有“无方向性电磁钢板”及高性能产品相关专利, 当天日铁以该专利 遭中国宝钢侵权为由，向东京地方法院提起诉讼。日铁主张，宝山钢铁在日本销售侵犯了成分和板材厚度等制造技术相关专利的电磁钢板，而丰田汽车采购使用了该产品。
+[GTV视频链接](https://gtv.org/video/id=61698a94d2e2b817487586cd)
 
-出于对大气环境的保护,国际机构在二氧化碳排放量较多的钢铁生产行业, 确立了去碳化技术标准，各国以此展开激烈竞争。日铁发言人称 :“ 日本以技术立国,  凭借技术实力盈利并在世界投资, 而日铁的专利技术被中国窃取，我们无法保持沉默。”
 
-(本文仅代表作者观点)
 
-参考链接：[关注：日铁起诉专利侵权或意在去碳化技术竞争](https://china.kyodonews.net/news/2021/10/e6839bd48937.html)
+**视频字幕:**
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**凯里·欧文 （Kyrie Andrew Irving）：**我是名球员，从4岁就开始接触篮球，后来进入NBA，我的梦想就是打好球。
 
-新闻访谈终审：文龍
-编辑/校正/发稿：谐趣园
+我没有料想到这一切会随之而来。但我必须对自己的生活负责，而且对我真正重要的事我必须发声。我不能再默不作声，必须用我的平台来讲述关于我的事，没有人可以劫持我的声音。沒人能夺走我在这些事上发言的权力，别相信我会引退。别相信我会因为强制疫苗或不接种疫苗而放弃比赛。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+別相信那些屁話，在有机会站在台前为我自己发声之前，我真的很清楚有些人在说什么。所有这些人讲的关于我的事都是假的。关注现实世界正在发生的事吧。人们正因为强制措施失去工作。
+
+我尊重人们为了生活做出的选择。我也不想坐在这玩弄人们的感情。请用逻辑思考。你会怎么做？如果你在进入赛季前被承诺豁免接种疫苗，赛季开始时却又说不行了，你是否会感到不舒服？
+
+赛季开始前没有问题，这是我没有预料到的，所以毫无准备。我有机会做对我和我家人最好的决策。赛季前，我只想能打球，能用我的天赋以正确的方式继续激励和影响人们。
+
+你们为什么要这样对我？我又不是和科学家、医师、医生。我只是个球员，对吧？我只是一个被利用的典型。
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*字幕/听写：云岭|翻译：致良知| 校对：clau|简评/文字整理/编辑：胖丁| Page：小六月*
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
