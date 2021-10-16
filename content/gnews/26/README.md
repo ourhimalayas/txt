@@ -2,30 +2,28 @@
 ---
 
 
-## 有声|苦瓜酒的酿制像极了中共国的教育
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1597822/)
+## 涉及误导性陈述被罚！加密货币公司Tether向美国监管支付四千万美元和解金
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597875/)
 
-配音：香草山香港部-文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据百度经验记录：苦瓜酒是近年来南方市场上出现的一种保健药酒，具有清热解毒、怡心明目、养血滋肝、润脾补肾等多种功效。常饮苦瓜酒可促进食欲、清热解毒、泻热通便，而且还具有预防和治疗感冒、扁桃体炎、咳嗽等作用。
+撰稿：东京樱花团/喜马拉雅的微尘
 
-对于苦瓜酒的上述功效，笔者没有查证验证，笔者也不关心。而苦瓜酒的酿制，尤其是苦瓜的选料却让笔者震惊，这也让笔者联想到了中共国的教育。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/涉及误导性陈述被罚1.png)[图片来源](https://news.bitcoin.com/cftc-fines-stablecoin-issuer-tether-and-crypto-exchange-bitfinex-42-5-million/)
 
-苦瓜酒酿制所需的苦瓜是瓜形较长，要求瓜条充分伸长发粗，果皮青绿色，瓜体中种子开始发育但种皮尚未木质化的苦瓜。苦瓜的选料以及苦瓜何时摘下如视频所示。
+财联社10月16日讯，当地时间周五，美国商品期货交易委员会（CFTC）发布公告称，已经与知名加密稳定币发行公司Tether以及加密货币交易所Bitfinex达成民事诉讼和解协议，两家公司一共将支付4250万美元的罚金。
 
-统一的苦瓜，统一的玻璃瓶，统一的酿制过程，最后被一饮而尽，这难道不类似于中共国的学校教育吗？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/涉及误导性陈述被罚2.png)（来源：CFTC）
 
-统一的教材，统一的大纲，统一的考试，统一的学习过程，统一的学校要求，最终培养的就是为中共服务的奴隶。学校教育总是要求学生整齐划一，全部做到一致，忽略了学生的个性成长，更不用提差异化教学了。谁要是没有做到统一的标准，谁就是一个另类，就是一个麻烦制造者，就是一个问题学生。在这样的各种统一的标准下，学生的思维还能正常发展吗？学生的个性特征还会被鼓励吗？学生的天性都被中共给泯灭了。
+![]()这两家涉事公司均属于iFinex旗下。根据CFTC描述，Tether涉及在2016至2019年期间涉嫌误导投资者“每一个美元稳定币USDT背后都有1美元支持”，但这样的表述并非“100%准确”。为此Tether将向CFTC支付4100万美元和解相关诉讼，并承诺不会再犯。
 
-文字版原文：[苦瓜酒的酿制像极了中共国的教育](https://gnews.org/zh-hans/1594899/)
+在监管声明发布后，Tether公司也在官网作出回应，表示引发调查的原因只是公司储备金并非全部以现金的方式存在，同时也并不总是存放在以Tether公司名义开立的银行账户中，但这样的情况从未影响公司履约。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+CFTC同时指控Bitfinex交易所与美国人进行数字资产的非法场外零售商品交易，并在未按要求注册的情况下作为期货佣金商 （FCM） 运营。Bitfinex也将支付150万美元和解这一起诉。
+
+当前，数字加密货币备受关注和追捧，各国政府基本都采取加强监管和规范的方式来主动顺应这一发展趋势。但由于中共以及世界黑暗势力对于数字加密货币的控制和滥用，可以预计，随着全球灭共进程的推进，众多数字加密货币还将经历痛苦的洗牌和转型过程。而这种激浊扬清、大浪淘沙式的行业重塑，对于始终将合规摆在首位的“喜币”（HCN）而言，都是利好。
+
+（免责声明：文章仅代表作者本人观点，与GNEWS无关）
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/老黑
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)

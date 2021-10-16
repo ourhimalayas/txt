@@ -2,24 +2,28 @@
 ---
 
 
-## 苹果公司被迫下架在中共国的古兰经应用程序
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1597695/)
+## 强制令集体诉讼结果公布前 美海军部门再次施压
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597704/)
 
-作者：纽约香草山健身部 – Ivy001
+作者：雪梨
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在中共官方的要求下，苹果公司已经关闭了在中共国的Quran Majeed——古兰经应用程序，这是世界上最受欢迎的古兰经应用程序之一。Quran Majeed在世界各地的App Store上都有销售，并且有近15万条评论。它被全世界数百万的穆斯林使用，并且在中（共）国有将近一百万的使用者。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-288.png)
-虽然，中国共产党正式承认伊斯兰教为该国的一种宗教。但是，中（共）国一直被指控侵犯人权，甚至是对新疆大部分穆斯林维吾尔族的种族灭绝。今年早些时候，英国广播公司（BBC）报道说，维吾尔族阿訇在中（共）国的新疆镇压中成为目标。
+周三，海军部门发布的最新行政文件称，11月28日前，所有现役海军人员必须完成疫苗接种，或被批准医疗或宗教豁免，否则将被要求退役。预备役海军则需在12月28日前完成疫苗接种。不合者会被调离岗位，而且将影响军事生涯。
 
-《纽约时报》今年早些时候报道说，苹果公司在中（共）国的应用程序，如果被中共政府认为是禁区，就会被关闭。应用程序不能讨论的话题包括天安门广场、中国精神运动法轮功、达赖喇嘛以及西藏和台湾的独立。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-290.png)
 
-另一个受欢迎的宗教应用，橄榄树的圣经应用，本周在中（共）国也被撤下。
+两个月前，陆军上士丹·罗伯特（Dan Robert），和海军陆战队上士霍利·马尔韦希尔（Hollie Mulvihill），于8月17日，在科罗拉多州地区法院提起集体诉讼，将国防部官员，卫生和公共服务部长列为被告。诉讼明确指出，国防部的疫苗授权公开侵犯军人权力，违反宪法。在随后的一周，负责诉讼的律师加强了努力，增添要求法官下令，发布临时禁令的项目，停止所有的新冠疫苗接种。
 
-周四，微软表示，它正在关闭其在中（共）国的社交网络LinkedIn，这一决定是在职业网站因屏蔽一些记者的资料，而面临质疑之后做出的。
+随着法律诉讼案的审理，海军部门担心即将公布的结果对疫苗计划产生不利影响，再次向未接种毒针疫苗的军人施压。与此同时，政府层面各项强制令持续推进，造成餐饮、零售业、航空等服务行业的从业者，教师、警察、医护人员等纷纷离职，对稳定的社会秩序造成了巨大的打击。
 
-由此可见，在中共北京当局对网络和高科技公司的管制越来越严厉，原本仅存不多的宗教自由、新闻自由、言论自由……已经快要被中共政府抹杀殆尽。中（共）国亦变成一个封闭的极权专制国家，就和他们的好邻居——朝鲜一样，一个不折不扣的寒蝉之国。
+即使限期临近，觉醒的美国军人依然会选择坚持信仰，不屈服于政府的强制令，拒绝接种疫苗。如红衣大主教维加诺所说，新冠疫苗仍处于试验阶段，不仅不能为人体提供免疫保护，而且导致多种严重副作用，强制要求接种实验性的疫苗，是反人类的重罪。
 
-参考链接：[Apple takes down Quran app in China](https://www.bbc.com/news/technology-58921230)
+参考链接：
+[military vaccine mandate complaint](https://www.courthousenews.com/wp-content/uploads/2021/08/military-vaccine-mandate-complaint.pdf)
+[Troops move to block Pentagon vaccine requirement in court](https://thehill.com/policy/defense/574790-troops-move-to-block-pentagon-vaccine-requirement-in-court) 
+[Navy to Discharge All Sailors Refusing Covid Vax](https://www.thegatewaypundit.com/2021/10/navy-discharge-sailors-refusing-covid-vax/)
+[COVID-19 CONSOLIDATED DISPOSITION AUTHORITY (CCDA)](https://www.mynavyhr.navy.mil/Portals/55/Messages/NAVADMIN/NAV2021/NAV21225.txt?ver=EfkG2psijI2X0IEKSId_5w%3d%3d)
+
+新闻访谈终审：暗黑
 
 **本文谨代表作者观点**
 

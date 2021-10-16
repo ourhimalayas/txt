@@ -2,30 +2,31 @@
 ---
 
 
-## 西班牙卫生部确认未分离出SARS-CoV-2病毒样本，并承认“测试本身不足以确定疾病”
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1597806/)
+## 中共国房产税毫无合法性
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597832/)
 
-撰稿：Runaway
+撰稿：东京樱花团/知了知了
 
-《自由协会和生物学家寻真相》和一位个人向西班牙卫生部提出了有关SARS-CoV-2病毒的公开信息的请求，同时要求提供可以独立进行测试的病毒样本培养物。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/中共国房产税毫无合法性.png)[图片来源](https://i.ifeng.com/c/8A5rChBMsnb)
 
-在根据《透明度法案》回应这项要求时，西班牙卫生部承认“它既没有SARS-CoV-2培养物”，也没有注册的“具有培养和隔离检测能力的实验室”。该回应还将诊断和治疗的所有责任推给了卫生专业人员，并承认“测试本身通常不足以确定疾病。”
+这世界上，唯有死亡和税收不可避免。
 
-根据西班牙卫生部的说法，那些被用来决定有关限制、关闭、隔离、患者治疗、疫苗接种和旨在结束所有人自由的独裁措施的所谓“测试”，并不足以确定这种疾病，因为连测试的依据都还没有。
+有段时间，王某甲一直租住在天上人间，退房时收到一份账单，房费10 Cion，服务费2 Cion、房产税2 Cion。王某大怒，发飙曰，“房间不是我的私产，你们凭什么收取房产税”？天上人间递上一张报纸，淡淡曰，“仔细看，天上人间也不是我的私产”。
 
-截至2021年10月7日，超过[20个国家的116家机构](https://www.fluoridefreepeel.ca/wp-content/uploads/2021/10/Institution-list-for-website2.xls)（主要是卫生和科学机构，点击进入列表）没有任何人、从任何地方提供或引用甚至一条描述纯化“SARS-COV-2”病毒或包含其存在证据的记录。这些机构中的几个（即CDC、英国公共卫生、英国DHSC、印度的ICMR）都有类似的回应。
+10月16日，中共党媒《求是》刊发习近平的重要文章《扎实推动共同富裕》，核心意思是以共同富裕之名，积极稳妥推进房地产税立法和改革。喧嚣多年的靴子总算落地，中共国房地产终于松了最后一口气。
 
-在全世界因”病毒流行“被隔离所困，经济被摧毁，人们失去自由的今天，竟然连测试是否被病毒感染的样本都没有被分离和培养出来，简直是令人难以置信。更有甚者，全世界人口的一半竟然为此接种了不知道是什么成分、以及安全性未知的疫苗。这是如何做到的？
+**房产税实质是财产税**，**起源于公民让渡自己的部分利益，换取国家或组织对私人财产提供的安全保障服务**。中共国房地产产权结构里，包括70年（或40年）土地使用权和同期房屋使用权，及同期用益物权和担保物权。不包括所有权，**所有权又称完全物权**，是指民法上，权利人对标的物可以**直接全面排他性支配特定物的物权**。所谓“全面支配”，意味着**支配范围的全面性和支配时间的无限性**。中共国土地法规定，**土地归国家或集体所有。单位或个人只能依法获取有限期的使用权，并在使用权到期后，土地及其地上附着物无偿归还国家或集体**。因此，中共国房屋所有者没有所有权，根本不构成私人财产要件，何来房产税可言？**中共国房地产权益几乎等同于王某甲在天上人间租住之房。**
 
-（文章仅代表作者观点，与Gnews无关）
+中共国房产税到底是什么？**额外地租或者叫二次地租**。这在整个中华历史上，仅在契约地租极低的地方才会出现额外地租现象（曾在东北出现过，即便加上额外地租，东北的总地租也比南方低）。中共国契约地租一次性收取了70年或40年，叠加平均税负高达67%的重税，政府这都能穷疯，而重新签订契约地租成本太高，只好染指额外地租，就是**以房产税为名依法抢劫**。
 
-发布：Runaway
+这种骚操作能出现，中共政府该有多穷，又一秤砣压在中共国房地产和世界经济的身上，他们还能坚持多久？
 
-参考链接：
+消息来源：
 
-1. [Spain: Ministry of Health Confirms It Has Not Isolated The SARS-CoV-2 Virus and Admits “Tests, By Themselves, Are Not Usually Sufficient to Determine the Disease.”](https://theexpose.uk/2021/10/14/spain-ministry-of-health-confirms-it-has-not-isolated-the-sars-cov-2-virus-and-admits-tests-by-themselves-are-not-usually-sufficient-to-determine-the-disease/)
-2. [Spain: Ministry of Health Confirms It Has Not Isolated The SARS-CoV-2 Virus and Admits “Tests, By Themselves, Are Not Usually Sufficient to Determine the Disease.”](https://theexpose.uk/2021/10/14/spain-ministry-of-health-confirms-it-has-not-isolated-the-sars-cov-2-virus-and-admits-tests-by-themselves-are-not-usually-sufficient-to-determine-the-disease/)
+[《扎实推动共同富裕》提及房地产税试点 业内分析或会加快落地](https://www.sohu.com/a/495300185_114988)
 
+（免责声明：文章仅代表作者本人观点，与GNEWS无关）
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)

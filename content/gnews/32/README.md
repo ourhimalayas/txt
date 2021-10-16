@@ -2,98 +2,65 @@
 ---
 
 
-## 中国房地产不只是崩塌，那是会炸死很多人的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1597744/)
+## 北京准备打哪场战争？
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1597785/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2532.png)
-[https://gtv.org/video/id=616ac5e3d2e2b8174875d1c0](https://gtv.org/video/id=616ac5e3d2e2b8174875d1c0)
+据《零对冲》于2021 年10月13 日发表的文章《北京正在为战争做准备已经不是什么秘密了》
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2526.png)图片来源：BBC
+主要原因之一是中（共）国经济不景气。恒大房地产开发公司最近的债务违约只是加剧国内不满情绪的一系列可怕症状中的最新一个。在中（共）国存在着具备8万亿美元的债务危机的影子经济，超过其国内生产总值，这使得金融体系的大半壁江山摇摇欲坠。老龄化、生产力低下的人口、更高的生产成本以及外资逃离都会导致 GDP 下降。
 
-**郭文贵
-Miles Guo**
+**中（共）国的力量已经达到顶峰**
 
-中央银行，郭树清如何怎么样把银行里边的所有的财务进行重新分配处理
-How does Guo Shuqing of the Central Bank of China reallocate all the finances in the bank?
+现实是，中（共）国的经济实力已经在下降。
 
-所谓的处理方式，就是过去的销账，销坏账
-The so-called processing method is just write-offs, write-off bad debts
+当然，统计数据可以调整，但它不会改变现实。更重要的是，这种全面的经济下滑正在促使中国共产党（CCP）对其人民和企业采取更加极端的、压制性的措施。中共的反应只会恶化经济表现和内乱。
 
-销谁的坏账啊，把海航的坏账给销了，是吧
-Whose bad debts should he write off? He wrote off HNA’s bad debts, right?
+与此同时，北京多年来一直在调整内部安排。例如，2017 年 1 月 1 日生效的《国防运输法》。该法重新调整了法律框架，将所有商业航运置于中共的直接管辖之下。
 
-王岐山这些人的，那是他哥们啊，对吧
-People like Wang Qishan who’s his buddies, right?
+从外部看，中（共）国与世界的日益孤立是显而易见的，这突显了其与全球经济以及国际贸易和外交规范的持续脱钩。如果只是为了转移对中（共）国国内问题的注意力，这种趋势很可能会导致台湾入侵迟早会发生。
 
-他能销许家印的坏账嘛 对吧，很多人呢现在都被闭嘴了
-He won’t write off Xu Jiayin’s（Evergrande） bad debts, right? many people are shut up now
+军事和海军专家得出结论，北京计划使用商业运输船在入侵台湾时帮助运送多达 200 万名士兵。
 
-要钱就抓人，这个世界真是够流氓的
-If you want money back then you get arrest, this world is really rascal
+最近的新闻报道似乎证实了这样的结论。中（共）国官方媒体《环球时报》几乎承认对台湾的入侵是不可避免的，如果不是迫在眉睫的话。“中国已经为最坏的情况做好了准备——美国及其盟国，包括日本，发动全面军事干预，以阻止中国的国家统一。”
 
-你说人家买房子，房子没拿着，还欠银行的钱
-someone bought a house, but didn’t get it, and still owed money to the bank
+显然，战争或战争威胁即将来临，亚太地区的所有国家都知道这一点。
 
-然后说呢能不能把钱要回来，我不买房子了，那也抓人
-Then he want his money back cause he doesn’t want buy that house anymore, then he got arrested
+为应对中（共）国日益咄咄逼人的姿态，包括商业航运安排，台湾和其他国家正在增加更多远程反舰导弹。几十年来一直奉行和平外交政策的日本也在思想上发生了巨大转变，将台湾的安全与其自身的安全联系起来。
 
-你还得继续付利息，有多惨呢
-You have to continue to pay interests, how miserable it is
+中（共）国入侵台湾的影响不仅限于台湾。如果它像日本那样发生，美国和其他国家就会将其视为对其国家安全的战略威胁。
 
-谁知道中共国现在有多少积压或已经政府批准的在建的房产
-Who knows how many backlogs or real estate under construction approved by the government of the CCP?
+部分原因是台湾提供了全球 50% 以上的先进数据处理、汽车、人工智能和其他高科技所需的半导体。台湾的陷落也会威胁到该地区的民主国家，以及贸易和国际法律规范。
 
-你不敢想象，14亿的中国人有多少房子
-You can’t imagine how many houses the 1.4 billion Chinese people have
+**更多触发点**
 
-按照现在共产党公布的数字，中国还有说2000万套，房子积压，你信不信
-According to the figures released by the Communist Party, China still has 20 million units and a backlog of houses, believe it or not
+但台湾并不是唯一的触发点。中（共）国还威胁到东海无人居住的尖阁诸岛，日本视其为领土。它们也被中（共）国和台湾声称拥有主权，并可能成为战争的导火索。拜登政府最近向日本新首相岸田文雄保证，如果中（共）国发动攻击，美国将保卫尖阁诸岛。
 
-那如果不是2000万套，那按照现在国内流出来的信息，说大概在一亿套左右
-If it’s not 20 million units, then according to the current information flowing out of the country, it’s about 100 million units
+正如之前的一篇文章所指出的，中共已经通知了澳大利亚。如果堪培拉在最近的 AUKUS 军事联盟下从美国获得核动力潜艇，中（共）国会将澳大利亚列为核攻击的合法目标。
 
-那就每14个人还有一套房子，是吧
-Then there is a house for every 14 people, right?
+韩国已明确反对北京在台湾的野心。在与美国的联合声明中，两国首次承诺捍卫南海和台湾海峡的国际规则和规范。该信息异常直接承认中（共）国对台湾和亚太地区构成迫在眉睫的威胁。
 
-那就是说每14个人就一套房，还有一亿套
-That means there is one unit for every 14 people, and there are 100 million units
+在更远的地方，中（共）国最近与印度在加尔万山谷的喜马拉雅高地发生军事冲突，这让新德里意识到中（共）国正在寻求对邻国的明确霸权，印度就是其中之一。这促使印度在战略与美国领导的 AUKUS 联盟结盟。印度最近参加了今年8月26日至29日在美国关岛海域举行的马拉巴尔联合海军演习，向北京发出了明确的信息。
 
-这一亿套房子就是按照现在共产党内部所谓的文件认可的，已批准在建的
-according to the so-called documents that the 100 million houses are approved within the Communist Party and have been approved for construction
+当然，所有这些安排的关键是美国。与中（共）国相比，它仍然保持着显著的海军优势。但不太确定的是拜登政府履行其军事承诺的政治意愿。随着美国从阿富汗撤退，拜登政府被视为软弱无力，更关心国内经济和社会问题，而不是投射美国力量来保护国际秩序。在世界范围内，人们对美国领导力的信心正在减弱。
 
-有了资金安排和消费的已形成了所谓的三证齐全的
-With funding arrangements and consumption has formed the so-called three-certificate complete
+北京当然知道这些事实，它可能正在影响其对台湾和整个地区的战略。中共领导人可能已经得出结论，拜登政府的软弱为检验美国在该地区的决心提供了一个独特的机会。
 
-有银行贷款的，三证两融，就是说有卖楼花了，有银行贷款了
-If there is a bank loan, three certificates and two financing, that means the property can be sold and there is a bank loan
+这种看法将有助于解释来自北京的对美国的新的和更大的威胁。但习近平对中共的个人领导和所有权，加上中（共）国国内日益严重的失败，无疑也是促成因素。
 
-有自己投资了三证两融的，那么这样的房子就一亿套
-If you have invested in three certificates and two financing, then such houses will be 100 million units
+中（共）国宁愿避免战争——至少在它能够与美国在该地区的军事实力相匹敌之前。但它确实领先美国的一个领域是高超音速反舰导弹技术。与其与邻国发生冲突，中共是否会计划对美国海军进行打击以将美国赶出该地区？
 
-那就是说14亿中国人，每14个人就一套房子，那是真的吗
-That means that 1.4 billion Chinese people have a house for every 14 people, is that true?
+如果是这样，美国会作何反应？该地区将如何反应？
 
-它不是真的，比一亿套还大，那你说有多少套房子
-It’s not true, there’re more than 100 million units, so how many units do you think there are?
+如果美国不对中（共）国的袭击做出全面回应，就意味着以美国为首的亚太安全联盟将立即不复存在。届时，每个国家都可能与北京单独和平相处——如果那是一种选择的话。
 
-中国的房地产它不是崩塌，它不是崩塌，它会炸死很多人的
-China’s real estate is not “collapsing”, it is not “collapsing”, and it will blow up a lot of people and the world economy
+那就很适合中共了。
 
-谁也弄不了, 谁也救不了
-No one can solve it, no one can save it
+原文链接：
+[https://www.zerohedge.com/geopolitical/which-war-beijing-preparing](https://www.zerohedge.com/geopolitical/which-war-beijing-preparing)
 
-* * *
-
-Date:10/15/2021
-原视频标题:中国房地产不只是崩塌，那是会炸死很多人的
-China’s real estate is not just collapsing, it will blow up many people
-原视频日期：2021/10/10
-原视频接:[https://twitter.com/se1y7cblljselva/status/1447867132335714311?s=24](https://twitter.com/se1y7cblljselva/status/1447867132335714311?s=24)
-任务编号：KC172 （2532）
-视频时间段 : 0:00-2:16
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
+翻译：洛杉矶盘古农场- 蓝精灵
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 柯镇恶
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
