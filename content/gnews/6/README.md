@@ -2,32 +2,50 @@
 ---
 
 
-## 美众议员提出反中国经济胁迫法案对抗中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597979/)
+## 中国房价下跌波及半数以上省份
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1598035/)
 
-作者：云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国众议院外委会亚太小组主席贝拉与共和党籍众议员华格纳等人，于15日提出反中国经济胁迫法案。民主党籍众议员卡斯楚、泰塔斯等也共同参与了此项提案。
+据《日经亚洲》记者：IORI KAWATE，2021年10月14日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2545.png)中国南方城市深圳的房地产经纪公司。（摄影：Yusuke Hinata）
+北京——由于政府试图控制房地产泡沫，中国大部分省份的房价六年多来首次下跌，导致负债累累的地方当局急于为下跌设置底线。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9-2.jpeg)
+官方数据显示，包括中央直辖市在内的 31 个省中有 16 个在 8 月份录得价格跌幅，为 2015 年 3 月以来的最大跌幅。
 
-过去10年，中国对美国主要伙伴与盟国不断采取胁迫性经济措施，如2010年，日本与中国渔船在东海争议海域发生冲突时，中国停止向日本出口稀土；2016年，韩国同意美军在当地部署萨德导弹防御系统时，中国限制进口韩国娱乐与其他文化产品，禁止销售部分韩国家用产品并限制两地旅游；2020年，澳洲呼吁对冠状病毒起源进行独立调查后，中国对澳洲葡萄酒与大麦采取大幅提高关税以报复。
+随着旨在刺激经济的减税削减收入，城市越来越依赖土地作为金融生命线。但中央政府对房地产投机的限制威胁到了这些资金流动。
 
-贝拉及华格纳表示，中共以强制性的经济制裁行为来惩罚违背其利益的国家和企业，损害了美国及盟友的利益。 这项法案的目的，在于确保美国能以全面的方式，实施对中共经济霸凌的回应和反击。
+情况可能比官方数据显示的还要糟糕。难以获得资金的房地产开发商正急于抛售库存以追求快速现金回流。网上传言称，受危机影响的中国恒大集团和其他开发商的房产开始以原价的一半出售。
 
-(本文仅代表作者观点)
+中（共）国的土地属于国家或集体所有，地方政府将使用权出售给房地产开发商，用于建造住房或商业设施。2020年此类销售收入相当于中央和地方税收总额的一半以上。
 
-参考链接：[中國經濟脅迫日增 美議員推法案反擊](https://www.cna.com.tw/news/firstnews/202110160013.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+为了阻止价格下跌，岳阳和张家口自 8 月以来禁止开发商以超过 15% 的折扣出售新物业。无锡部分地区禁止以低于建造成本的价格出售房产。据中国媒体报道，大约有 10 个主要是低线城市对降低房地产价格施加了限制。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+城市也在努力重新点燃需求。位于重灾区黑龙江省的工业中心哈尔滨本月开始向具有全日制博士学历的首次购房者提供高达 10 万元人民币（15,500 美元）的补贴。政府资助的抵押贷款现在可用于 30 年以下的现有房屋，而之前的最高期限为 20 年。
 
-新闻访谈终审：文龍
-编辑/校正/发稿：谐趣园
+中央政府通过加强抵押贷款审查等措施减少城市公寓投机活动的努力已经开始给市场降温。根据国家统计局的数据，8 月份按面积计算的新房价格同比下降 2.7%，这是自 2020 年 4 月以来的首次下降。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-292.png)2019年昆明在建房屋。云南省是今年8月房价出现两位数下降的地区之一。©路透社
+但这些限制也加剧了面临居民外流的中小城市的需求萎缩。东北地区的黑龙江 8 月份房价跌幅最大，为 21%。南部的云贵省和内陆的宁夏回族自治区都出现了两位数的下降。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+较低的公寓价格会影响建造新住房的土地市场。由于开发商资金短缺，土地拍卖越来越难以吸引买家。
+
+根据财政部的数据，8 月份土地销售收入同比下降近 20%，为 2015 年 8 月以来的最大降幅。
+
+较低的收入使城市更难偿还资产负债表内外的大量债务。
+
+国家附属智库中国财政科学院的一份报告估计，截至 2018 年 2 月2018年底，地方政府的“隐形”债务在21万亿元至45万亿元之间——超过公开披露的18万亿元。
+
+在发达经济体，对业主征收的税款为地方政府提供了稳定的收入来源。2013 年中国共产党中央委员会全体会议批准的一项改革计划要求就财产税立法。
+
+据报道，由于在主要城市持有或拥有持有大量土地的亲属的党内高级官员的反对，这一计划一再推迟。但房产税可能使中（共）国更接近于在稳定地方政府财政的同时遏制投机。
+
+文章点评仅代表个人观点
+
+文章来源：[https://asia.nikkei.com/Business/Markets/Property/China-s-housing-price-declines-spread-to-more-than-half-of-provinces](https://asia.nikkei.com/Business/Markets/Property/China-s-housing-price-declines-spread-to-more-than-half-of-provinces)
+
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场– Mike Li
+评论：洛杉矶盘古农场 –柯镇恶
+编辑：洛杉矶盘古农场-柯镇恶
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

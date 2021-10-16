@@ -2,31 +2,30 @@
 ---
 
 
-## 中共国房产税毫无合法性
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597832/)
+## 电荒寒流毒疫苗，国人迎来严酷寒冬
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597898/)
 
-撰稿：东京樱花团/知了知了
+作者：在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+自15日起，中国中东部地区大面积遭受寒流袭击，部分地区气温骤降至0度，已导致中共气象局不得不启动4级应急响应应对。另外，由于煤炭价格暴涨、供应不足，加上疫情过后工业生产强势反弹，中共国内超过一半的省市区自9月以来就实施错峰或配给供电，甚至拉闸限电，极大的干扰了社会正常运转。而降温进一步提升了对电力的需求，让原本处于电荒之下的中共供电系统雪上加霜，可以想见, 东三省及内蒙地区百姓的生活将苦不堪言。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/中共国房产税毫无合法性.png)[图片来源](https://i.ifeng.com/c/8A5rChBMsnb)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-26.jpeg)
 
-这世界上，唯有死亡和税收不可避免。
+如郭文贵先生所称，毒疫苗造成的危害将在10月底至年底集中爆发出来。冬季本是心脑血管疾病的高发季节，届时由于疫苗造成的心梗、脑梗、心肌炎、心包炎等重症病人将大幅增加, 对墙内很多国人来说, 这将是一个艰难的冬天。
 
-有段时间，王某甲一直租住在天上人间，退房时收到一份账单，房费10 Cion，服务费2 Cion、房产税2 Cion。王某大怒，发飙曰，“房间不是我的私产，你们凭什么收取房产税”？天上人间递上一张报纸，淡淡曰，“仔细看，天上人间也不是我的私产”。
+(本文仅代表作者观点)
 
-10月16日，中共党媒《求是》刊发习近平的重要文章《扎实推动共同富裕》，核心意思是以共同富裕之名，积极稳妥推进房地产税立法和改革。喧嚣多年的靴子总算落地，中共国房地产终于松了最后一口气。
+参考链接：[中国电荒尚未缓解，寒流又构成新的“冷酷”挑战](https://www.voachinese.com/a/China-coal-prices-hit-record-highs-early-winter-chill-adds-to-energy-woes-20211015/6272298.html)
 
-**房产税实质是财产税**，**起源于公民让渡自己的部分利益，换取国家或组织对私人财产提供的安全保障服务**。中共国房地产产权结构里，包括70年（或40年）土地使用权和同期房屋使用权，及同期用益物权和担保物权。不包括所有权，**所有权又称完全物权**，是指民法上，权利人对标的物可以**直接全面排他性支配特定物的物权**。所谓“全面支配”，意味着**支配范围的全面性和支配时间的无限性**。中共国土地法规定，**土地归国家或集体所有。单位或个人只能依法获取有限期的使用权，并在使用权到期后，土地及其地上附着物无偿归还国家或集体**。因此，中共国房屋所有者没有所有权，根本不构成私人财产要件，何来房产税可言？**中共国房地产权益几乎等同于王某甲在天上人间租住之房。**
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-中共国房产税到底是什么？**额外地租或者叫二次地租**。这在整个中华历史上，仅在契约地租极低的地方才会出现额外地租现象（曾在东北出现过，即便加上额外地租，东北的总地租也比南方低）。中共国契约地租一次性收取了70年或40年，叠加平均税负高达67%的重税，政府这都能穷疯，而重新签订契约地租成本太高，只好染指额外地租，就是**以房产税为名依法抢劫**。
+新闻访谈终审：文龍
+编辑/校正/发稿：谐趣园
 
-这种骚操作能出现，中共政府该有多穷，又一秤砣压在中共国房地产和世界经济的身上，他们还能坚持多久？
-
-消息来源：
-
-[《扎实推动共同富裕》提及房地产税试点 业内分析或会加快落地](https://www.sohu.com/a/495300185_114988)
-
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
-
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
