@@ -2,42 +2,32 @@
 ---
 
 
-## 全球航空货运业或于12月开始崩溃
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597112/)
+## 世界医师会通过支持台湾参与 WHO、WHA 的决议文
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597252/)
 
-作者：Ryan
+作者：RYAN
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+法广援引自由时报 10 月 15 日消息，10 月11 日至 15 日在伦敦召开的世界医师会（WMA）会员大会上，中共国医师会试图再次打压台湾的提案，遭到了各国代表的强力抵制。
 
+WMA 拥有 115 个会员国，是世界重要的医疗组织，也是 WHO 重要的国际非政府专业组织合作伙伴之一，在全球医疗及公共卫生等议题扮演关键角色。此次视频会议中，中共国医师会不顾此前的会议结果，提案要求取消支持台湾参与世界卫生组织（WHO）、世界卫生大会（WHA） 的决议文。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture600.jpg)
+台湾的防疫方面的成就深受各国肯定，台湾医师会长期受到中共打压有目共睹，有违“健康为基本人权，不因种族、宗教、政治信仰、经济或社会情境而有所分别”这个世卫组织及世界医师会的普世价值。
 
+经过激烈辩论，各国代表以 99 票对 19 票否决中国医师会的提案，并以 91 票比 16 票再次通过支持台湾参与 WHO、WHA 的决议文。按照 WMA 的议事规则，决议文原则上 10 年检讨一次，因此 WMA 支持台湾的决议文修正案已经完整定案，理论上中共国医师会10年内不能再提出否决案。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-News Target13日消息称：因疫苗强制政策而失去数万名员工，波音公司将无法向世界各地的波音飞机机主提供备件，供应链或于12月开始崩溃，航空货运业也将崩溃。波音公司要求125,000 名员工在 12 月 8 日之前必须接种新冠疫苗，否则将会被解雇。预计数以万计的波音员工会拒绝要求并辞职。由于国际海运物流供应链已经处于崩溃状态，空运便成为全球货物运输的唯一选择。而联邦航空局规定所有波音飞机都有细致的维护计划，对新零件、发动机大修和设备更换有稳定的需求。如此一来，除非取消强制疫苗接种政策，否则到2022年春季航空货运是否能正常运作是非常值得怀疑的。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-4.jpg)
-物流供应链连番遭受的重创，势必进一步推高物价，令本已通胀高企的世界经济形势雪上加霜。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-92.jpg)
-参考链接：
-[Hospitals are literally SUFFOCATING patients with plastic bags; AIR CARGO will be halted this winter due to collapsing airplane parts supply chain](https://newstarget.com/2021-10-13-hospitals-suffocating-patients-plastics-bags-air-cargo-halted-parts-supply-chain.html)
 （本文仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+参考链接：[世界医师会通过支持台湾参与 WHO、WHA 的决议文](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211015-%E6%8C%BA%E5%8F%B0%E6%B9%BE-%E4%B8%96%E7%95%8C%E5%8C%BB%E5%B8%88%E4%BC%9A%E4%B8%A4%E6%AC%A1%E5%90%A6%E5%86%B3%E4%B8%AD%E5%9B%BD%E5%8C%BB%E5%B8%88%E4%BC%9A%E6%8F%90%E6%A1%88)
 
-新闻访谈终审：鬼五
-编辑/校对/发稿：为真不破20
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+
+新闻访谈终审：Q大哥
+编辑/校对/审核：Hetangyuese
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

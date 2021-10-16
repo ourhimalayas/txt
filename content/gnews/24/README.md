@@ -2,50 +2,35 @@
 ---
 
 
-## 京东网的青蒿素哌喹片下面的评论区让战友们乐翻了天
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1597401/)
+## 日本要闻汇编
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597465/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FAitrFlUcAEQKZw_副本-1.jpg)
-京东大药房[现货直发】粤特快青蒿素哌喹片62.5mg:375mg\*4片青蒿素片疟疾恶性疟日间疟三日疟 1盒](https://item.jkcsjd.com/10032140329993.html#comment)下边的评论区让战友们乐翻了天——
+#### 素材：东京樱花团｜GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-2-1.png)[*图片来源*](https://cdn-japantimes.com/wp-content/uploads/2020/09/np_file_40803-1.jpeg)
+10月16日汇编
 
-以备呢个什么之需，有几盒备着心里踏实，一切你们都? 懂得?，，， 2021-09-21 14:18
+1、[**岸田与文在寅举行首次电话会谈**](https://china.kyodonews.net/news/2021/10/3e44275e4120.html)
 
-玉米地传奇产品，大品牌，值得信赖，而且价格实惠? 2021-09-20 11:41
+据共同社报道，日本首相岸田文雄15日晚与韩国总统文在寅举行首次电话会谈。岸田指出，由于原被征劳工和原慰安妇诉讼，日韩关系处于严峻状况，强烈要求韩方采取妥善措施。有关如何应对持续核与导弹开发的朝鲜，双方一致同意深化日韩以及日美韩3国的合作。岸田就朝鲜绑架日本人问题谋求韩方协助。文在寅表示支持日方立场。
 
-以备呢个什么之需，有几盒备着心里踏实，一切你们都? 懂得?，，，2021-09-21 14:18
+2、[**众院议席目标设233席 岸田警惕责任追究**](https://china.kyodonews.net/news/2021/10/b5dce0004920--.html)
 
-一起都是刚刚begin，嗯 哈哈哈，亲爱的展有们啊，你们健身了吗，传播。。。。感谢教练，希望人类可以度过这次劫难，阿弥陀佛 2021-10-01 21:17
+共同社10月16日消息，日本首相岸田文雄把众院选举的胜负线设为较低的“执政党过半数（233个议席）”。这是岸田警惕着如果一味强调数字而未能达到胜负线，就可能直接引来对自身责任的追究。在野党也面临议席数若低于现在就可能令党首领导力遭质疑的状况，所以立宪民主党没有明示具体的议席数目标。
 
-今日感觉良好，头晕，乏力有所减轻，感谢兄弟姐妹们，唯真不破 2021-09-29 12:23
+3、[**NTTdocomo大规模通信故障修复**](https://china.kyodonews.net/news/2021/10/89891df5b900-ntt.html)
 
-外包装完好～是按预售下单的，商家很快就发货了，赞个? 据介绍，这款药有很奇特的效果，感谢屠呦呦老人多年坚持不懈的辛苦付出? 2021-09-29 19:28
+14日手机大手NTTdocomo发生大规模通信故障。完全无法打电话或者上网的用户约有200万人。据共同社消息，第四代（4G）移动通信系统和高速大容量的第五代（5G）通信在15日早晨5点05分已经正常。副社长田村穗积在15日的记者会上表示：“给许多人造成了困扰和担心，很抱歉。”
 
-等了10天终于送到了，兄弟姐妹们，莘县阳谷现大现，咱走走看～2021-10-07 00:52
+4、[**丰田11月将在全球减产10万～15万辆汽车**](https://china.kyodonews.net/news/2021/10/c4ebf04093a7-111015.html)
 
-你健身了吗 [购买18天后追评]
+丰田汽车公司15日表示，11月的全球产量将比计划减少10万～15万辆。东南亚新冠疫情导致零部件采购困难和全球半导体不足产生了影响。随着影响已逐渐缓和，11月产量即便在减产后也有85万～90万辆，预计将达到历史最高水平。由于今后也将推进弥补减产部分，丰田维持了2021年度全球产量达900万辆的预期。
 
-玉米地出品，大品牌，值得信赖，你懂得！2021-10-15 11:29
+5、[**东京疫情监测会议出示最新疫情分析报告**](https://www3.nhk.or.jp/nhkworld/zh/news/327640/)
 
-防火墙无法阻挡对真相的追寻和传递，京东大药房青蒿素下边的评论区，让我们欣喜让我们癫狂，因为我们并不孤独，知道真相的战友们同时也是一颗颗传递真相的火种，在这个至暗时刻，我们彼此相依，待到冲锋号角响起，正是星火燎原时。
+据NHK16日消息，东京都政府14日召开疫情监测会议，并就东京的疫情形势以及医疗资源现状出示了分析报告。报告指出，东京的7天日均新增确诊病例已经降至100例以下，10月6日至13日的7天日均新增病例为86.3例，连续8个周期递减。在截至10月11日的一周新增确诊病例中，20至29岁年龄段的人群最多，占比为22.4%；其后依次是30至39岁，占比19.4%；40至49岁，占比13.6%。
 
-撰稿：喜马拉雅的肉夹馍
+（本文只代表个人观点，与Gnews网站无关）
 
-审核：喜马拉雅的馍夹肉
-
-校对：Maarago
-
-（文章内容仅代表作者个人观点）
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*编辑：东京樱花团 / 文小白*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

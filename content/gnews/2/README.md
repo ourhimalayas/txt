@@ -2,63 +2,18 @@
 ---
 
 
-## 审查帖子遭批 微软将关闭中国区Linkedin服务
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1597531/)
+## 2021年10月15日郭先生盖特 — 视频盖特2「2分51秒」
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1597623/)
 
-编译：Jenny Ball
+听写：洛杉矶盘古农场 — 盘古小蚂蚁
+校对：洛杉矶盘古农场 — Antsee-GTV
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/imrs-scaled.jpg)图片来源：washingtonpost.com
+Video link: [https://gettr.com/post/peaunq1b9f](https://gettr.com/post/peaunq1b9f)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/B1765736-60AF-4A13-B04F-9A43E1B12F42.png)
+我这是从办公室开了一天的会回来，特别幸福，开了一天的会，老带劲了。各种官司现在大量的进步，各个官司都有革命性的进展。所以我们要开启，等待着，酝酿着“以法灭共，以法灭贼” — 在全世界。
 
-公司援引中共国当局的“更具挑战性的经营环境和更高的合规要求”
+刚才很多战友给我发了很多很多信息 — 我真的回不完了，因为今天下午我没有时间看手机。战友们「表达」对新的4000万喜币的各种憧憬，各种感激。没有回复的请战友们多多包涵。关于付款的问题，请与各农场主联系，和联盟委员会联系 — 所有的付款。有太多要付款的了，这一百万那两百万的，太多了，我没办法一一回了。请和农场联系，请和长岛哥、老班长联系。如果是实在这几个都联系不了的再找我，中不中？太多了，兄弟姐妹们。
 
-微软表示将关闭其在中共国境内的 LinkedIn 网站，因为前几天审查几名美国记者的帖子而面临公众批评。
+还有一个，莫名其妙的新的人想投资绝对不能接受。没有什么历史，没有任何支持的，莫名其妙就来的 — 这个不能要的，咱们要把好关。这是给我们的老战友，长期的战友，可信的战友留下的喜币上市前最后的机会，希望大家都能把握住。
 
-在[周四宣布](https://blog.linkedin.com/2021/october/14/china-sunset-of-localized-version-of-linkedin-and-launch-of-new-injobs-app)这一决定时，LinkedIn 表示，它正面临“在中国的社交媒体网站，会面临着更具挑战性的运营环境和更高的合规要求”。
-
-这一消息终结了在中共国运营的最后一个西方主要社交媒体网站，当局长期以来一直在中共国屏蔽 Facebook、WhatsApp、Twitter 和其他应用程序。
-
-美国外交关系委员会中国与技术问题专家亚当·西格尔（Adam Segal）表示，“中共国内部的压制加剧，以及国会对遵守中国法规的更大批评，使美国社交媒体公司无法持续经营”。
-
-[中共国审查制度通过微信侵入美国](https://www.washingtonpost.com/technology/2021/01/07/wechat-censorship-china-us-ban/?itid=lk_interstitial_manual_7)
-
-LinkedIn 表示将在今年晚些时候“关闭”其网站，但将推出一个名为 InJobs 的新网站，该网站将不包含社交媒体提要或分享帖子或文章的功能。
-
-“我们在中国的新战略是，将我们的重点放在帮助中国专业人士在中国找到工作，和中国公司找到优质候选人上，”LinkedIn 说。 它没有提供更多细节。
-
-微信和微博等中国人拥有的社交媒体应用程序受到严格审查，删除当局认为敏感的内容。最近几周，LinkedIn 的美国用户表示，他们在中共国境内的个人资料也面临类似审查。
-
-这些报道促使参议员里克·斯科特（Rick Scott）[写信给微软和领英的首席执行官](https://www.rickscott.senate.gov/services/files/7CCE2FDB-FED0-4F82-8FEA-6EC30BA021F8)，表达了对“一家美国公司代表中共积极审查美国记者”的担忧。
-
-其中一名记者贝瑟尼·艾伦-埃布拉希米安（Bethany Allen-Ebrahimian ）是一名来自华盛顿特区的 Axios 记者，在[9 月 30 日报道称](https://www.axios.com/linkedin-blocks-us-journalists-profiles-in-china-22fcefd4-5bc1-490b-a448-b4f9b05e9566.html)，LinkedIn 屏蔽了她自己和其他美国驻华记者的个人资料。
-
-在周四的一次采访中，艾伦-埃布拉希米安说，LinkedIn 几周前给她发了一条消息，通知她，她的个人资料在中国将不再可见，因为它包含“被禁止”的内容。
-
-埃布拉希米安多次向公司询问更多细节，但“他们从未告诉我禁止的内容是什么，”她说。 周四LinkedIn 没有回应相关问题。
-
-埃布拉希米安说，即使 LinkedIn 的新网站缺乏社交媒体功能，该公司仍将受到中共国当局潜在的侵入性信息请求的影响。
-
-“如果中共当局想知道，这个人有没有给任何人发信息，他们有没有申请过任何工作？ InJobs 将不得不提供这一点。如果是刑事案件，可以理解，但如果他们出于政治原因这样做呢？” 她问。
-
-曾为Vice和《大西洋》报道的美国记者梅丽莎·陈（Melissa Chan）也透露LinkedIn 因“禁止”内容而屏蔽了她在中国的个人资料。
-
-“问题多于答案，”陈周四通过电子邮件说。“一些中共当局是否向Linkedin提供了一份他们遇到问题的人和帖子的清单？还是LinkedIn主动提供的？知道发生了什么很重要。”
-
-专注于西藏问题的自由记者和作家格雷格布鲁诺（Greg Bruno），周四在接受采访时表示，LinkedIn 告诉他，由于他个人资料的出版物部分中的“禁止”内容，他在中共国境内被屏蔽。这部分中唯一的信息是关于他三年前的书，他说这本书详细描述了“中共国努力使西藏流亡者边缘化和非法化”。
-
-“我非常生气，”他说。 “LinkedIn 让我最烦恼的是，它逼迫我进行自我审查。”
-
-尽管在 LinkedIn 上遇到了麻烦，布鲁诺还是对美国上一次社交媒体在中共国的抵制结束感到遗憾。“这只会继续将我们与信息泡沫隔绝开来，并切断我们作为人应有的联系，”他说。
-
-**评论：经历了2020年美国大选媒体的操控，在长达近两年病毒疫苗灾难中，世界遭受着媒体对真相的打压，造成上百万的人无辜死亡，中共对社交媒体的掌控正在将世界推向没有自由的独裁世界。与之相比，LinkedIn的遭遇就是小巫见大巫不足挂齿了。只是我们要想一想，怎么走到了这个地步？**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**参考资料：**[washingtonpost][Microsoft will shut down LinkedIn service in China after facing criticism for censoring posts](https://www.washingtonpost.com/technology/2021/10/14/linkedin-china-shut-down/?utm_campaign=wp_todays_worldview&amp;utm_medium=email&amp;utm_source=newsletter&amp;wpisrc=nl_todayworld&amp;carta-url=https%3A%2F%2Fs2.washingtonpost.com%2Fcar-ln-tr%2F34fc2b1%2F6168fd139d2fda9d4110679d%2F5e2dde419bbc0f6326309bfd%2F42%2F66%2F6168fd139d2fda9d4110679d)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
+啥都不说了，我马上有很重要的那个……哎，那背景是啥呀？是对面的大楼。现在的曼哈顿到处都是疫苗的恐惧心理。今天开会的时候原来都是打了疫苗的人，真感到他们恐惧了，他们真感到害怕了，太多人现在被疫苗给吓得半死的了。我担心疫苗真正灾难来的时候多少人得吓死。兄弟姐妹们，任何人跟随爆料革命和新中国联邦，给你最大的一个回报就是你没打疫苗；第二个，就是在这个世界危机时刻，你有希望，你有更多像亲人一样亲的战友，这是第二个 — 你从来没有那么多人爱你，关心你，这都是真正的比家人还爱你，关心你的人，这是第二个；第三个是给了你希望，在最关键的时候你可能安全下来，珍惜吧。我都不知道说啥好 — 珍惜爆料革命，珍惜战友。越想咱们太幸福了，我都是深刻的感觉，没你们7哥就没那么幸福了。

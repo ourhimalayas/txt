@@ -2,71 +2,32 @@
 ---
 
 
-## 立法者对 CDC提起重要指控——我们被你们骗了吗？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1597528/)
+## 澳媒报道：中共制定新的游戏限制，致最新CSGO明星及早退休
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1597620/)
 
-编译：Jenny Ball
+撰稿：喜妈
+![](https://assets.gnews.org/wp-content/uploads/2021/10/喜妈.png)
+（来自网络截图）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-7-6.png)图片来源：westernjournal.com
+Kotaku 是一个非常有名的游戏播客，它在澳洲的媒体报道，中共出台“新游戏限制”，使得该国“在国际 CSGO （一款射击游戏）赛道上掀起波澜”的优秀选手“可能已经被迫退休”。该报道引用一个非常出色的选手在一次游戏比赛中称，自己因为一些“无言”的限制，当天的比赛应该是他“两年来的最后一场比赛”，而他“对此无能为力”。他也对此只能是看做是自己“一个完美的最后鞠躬”。
 
-## 立法者：CDC 可能在操纵 COVID 数据，以 5 倍的系数少报疫苗副作用
+报道指出，对相关游戏选手的包括：限制中共国“18 岁以下玩家可以花多少时间玩游戏的新规定”。具体来说就是：“周五、周六、周日和公共假期只允许玩一小时游戏”；“正常工作日为零”。文章引用中共政府的规定表示，这些限制是由“中共国国家新闻出版总署责成游戏发行商自行实施”。据说限制的收紧“旨在针对中国 92% 至 95% 的免费游戏”，目的是避免“导致成瘾和过度消费”。据来自官方的消息称，这些限制并不会“影响三 A 冠军球员的职业前景”。可是，文章指出，CSGO等玩家选手还是引起了连锁反应。
 
-很明显，所谓的健康“专家”在谈到冠状病毒时有一个政治议程。两名共和党州参议员现在指控两个政府卫生机构操纵统计数据。
+报道进一步指出，中共国“成人游戏账户存在很大的灰色市场”，比如“父母不会被禁止将不受限制的成人账户提供给孩子”。也因此类中共国的限制现实存在，有些游戏玩家正在而且“寻找一种留在欧洲并继续竞争的方法”。文章认为，“在大流行最糟糕的时期之后”，“竞争激烈的 CSGO 在欧洲进一步巩固”。这种趋势让“认真考虑在全球范围内比赛的球队和球员别无选择，只能搬到那里”。当然，对于那些未成年人来说就有所不同，如文章指出，对有些中共国“ 16 岁的孩子来说可能很难”。
 
-[据《大纪元时报》报道](https://www.theepochtimes.com/oregon-senators-call-for-investigation-into-alleged-covid-19-statistical-manipulation_4044333.html)，俄勒冈州参议员金·撒切尔 (Kim Thatcher) 和丹尼斯·林西克 (Dennis Linthicum)于 8 月 16 日[致函](https://standforhealthfreedom.com/wp-content/uploads/2021/09/0-Senate-Letterhead-Grand-Jury-Petition-AUSA.pdf)代理美国检察官斯科特·阿斯福格（Scott E. Asphaug），要求他对CDC和 FDA 提供的冠状病毒统计数据展开大陪审团调查。
+游戏业是中共国非常重要的产业，也是中共网络经济中的特别有吸引力和成长性的领域，这个动态引起了笔者的关注。我们会问：对于一个对中共来说很有成长性，很有市场并很有未来消费人群的一个涉及娱乐、创意和网络等方面的行业，为什么在这个时候被限制？游戏已经在中共国出现和畅行很多年了，对游戏的沉湎和上瘾都是整个中共国社会普遍存在的问题，为什么喊了好多年都没人管，现在有人来过问了？真的是“中共党妈”关心和爱护自己的“孩子”？真的是草民成了“党妈”的“香饽饽”？
 
-虽然这封信已经一个多月了，但请愿背后的组织“健康自由立场”[Stand for Health Freedom](https://standforhealthfreedom.com/press-release/or-senators-grand-jury-petition/)表示它故意拖至到 9 月 16 日才被公开。
+笔者认为，以上的问题都不是问题，因为根本是不成其为问题。如果中共真的将18岁以下的孩子们当成自己的宝，我想他们应该还有更多重要的事情可以做。换句话说，如果中共国对自己统治下的国民的孩子有过关注和爱惜，有关他们成长所需的很多方面早就该例行禁止。出于我们站在爆料革命中，对于中共的本质有充分和深刻的理解，我们知道，这个关心孩子的出发点只是一个打出来的大旗而已。中共体制下任何事情都是要看它做一件事情背后那一套和隐含的意义。
 
-SHF 的贝利·库肯多尔 (Bailey Kuykendoll) 告诉[Just the News](https://justthenews.com/government/federal-agencies/lawmakers-seek-federal-grand-jury-investigation-covid-19-statistical)网站：“我不确定是否曾有人指控政府有如此大规模的不当行为。” 她说，该组织希望在公开这封信之前确保数据的“准确性和安全性”。
+众所周知的是，伴随着网络存在而存在的游戏，其得益者，就是中南坑的老杂毛们的家族。游戏是网络经济中的重要组成，青少年又是主力的消费者，那么，为什么要限制青少年，为什么要限制游戏？因为限制了青少年，限制了游戏，打击的就是网络经济和持有网络经济利益的背后势力。
 
-立法者在信中说，一名举报人在宣誓证词中声称，CDC 疫苗不良事件报告系统中(VAERS)记录的死亡和伤害“可能被漏报了五倍”。
+很多在中共国的事情，是不能从正常的方面去理解和认识的。比如这个明明就是青年人在消费的产业，你偏偏要去限制它，这个就不合市场经济的规律。而如果你从市场行为得不到合理解释，那么我们只能说，不合理的地方就是诡异的核心。这个诡异我们在上面已经提及，如果打击和限制了消费的人群就限制了这个游戏产业的利益获得者。
 
-此外，参议员们表示， [CDC](https://www.westernjournal.com/forget-covid-masks-now-cdc-getting-involved-guns/?ff_source=Email&amp;ff_medium=newsletter-CT&amp;ff_campaign=dailypm&amp;ff_content=conservative-tribune) 和 FDA 使用的 COVID-19 测试可能会产生大量的误报。 他们特别表示，测试中被称为周期阈值的参数之一,可能会导致“夸大的 COVID 病例数、住院人数和死亡人数”。
+由此，一个合理的推论就出来：这个限制无关对青少年的保护，有关的是中共党内各方的利益斗争。进一步来说，我们可以这样理解，打着关心青少年的旗号，收紧对网络游戏的管束，限制掌控着游戏产业的利益关联方的口袋，打击的就是和当今习神所不能容的对手方。那么，谁是网络游戏以及网络经济的最大受益人，那么就是当局所要打压和斗争的对象。这就是我们作为一个爆料革命战友从本则新闻看到的背后那一套。这就是我们受到爆料革命启发所认识到隐含的中共当局举措的意义。跟随爆料革命，可以拥有更加明亮的眼睛，由此可见一斑。
 
-“哈佛流行病学家迈克尔·米纳（Michael Mina）博士在 2020 年 8 月告诉《纽约时报》，阈值（1）太高的测试可能不仅能检测到活病毒，还能检测到基因片段，”《大纪元时报》报道。
+（本文纯属个人观点，与G news无关）
 
-（1: 阈值指为使某种反应、现象、结果或条件发生或显现而必须超过的量级或强度。）
+参考消息：
 
-米纳说阈值最多应该是30个周期。在信中，参议员们表示，CDC 目前将接种疫苗的人的周期阈值设定为 28。
-
-**然而，**** FDA ****将未接种疫苗的人的阈值设定为**** 40****。**[**不同的标准导致未接种疫苗的假阳性较多**](https://www.westernjournal.com/nearly-200000-covid-tests-recalled-kits-produced-huge-number-false-positives/?ff_source=Email&amp;ff_medium=newsletter-CT&amp;ff_campaign=dailypm&amp;ff_content=conservative-tribune)**，接种疫苗的****“****突破****”****病例报告较少。**
-
-参议员们说：“这些事实使公众几乎不可能相信他们所提供的数据,以及基于这些数据的公共卫生政策。”
-
-关于 COVID-19 治疗的问题，参议员们表示，他们“深切关注科学文献继续提供经验证据，那些证据表明存在针对 COVID-19 的安全有效的治疗和管理策略，但却并没有提供给最需要的美国人。** ”**
-
-参议员们表示，虽然疫苗通常“有用”，但突破性病例数量的增加表明，它们并不是对每个美国人都灵丹妙药。 出于这个原因，他们表示 CDC 和 FDA 应该提供其他治疗方案来代替或补充疫苗。
-
-据 Just the News 报道，**立法者将维生素**** D ****和伊维菌素**[**ivermectin**](https://www.westernjournal.com/game-changer-places-ivermectin-used-fight-parasites-medical-group-notices-something-huge/?ff_source=Email&amp;ff_medium=newsletter-CT&amp;ff_campaign=dailypm&amp;ff_content=conservative-tribune)** ****列为被这些机构打压的治疗方法**。**他们说，虽然这些治疗已被证明是安全的，但开处方的医生可能会被罚款或吊销执照。**
-
-参议员提出的另一个问题是，即使他们已经从病毒中康复，测试方法也倾向于将人们识别为 COVID 阳性。
-
-“明确诊断才能保证在评估情况和确保急需的人得到他们应有的相应护理，谁具有传染性，并区分谁不是最急需的，”信中说。
-
-**“****传染性传播管理的这一重要方面陷入混乱。当我们提供给他们的**** PCR ****测试既不准确，又无法区分谁是传染性的，谁可能已经被感染但已经康复时，我们勇敢的前线医护人员实际上就被戴上了手铐。**”
-
-最后，参议员们重申了美国的建国文件在这最艰难时期的重要性。
-
-他们说：“**危机并不能先于我们国家或州的宪法**。” “**危机使宪法更适用，并且当真诚地遵守时，会产生公众信任。”**
-
-《大纪元时报》称，共有 1,718 名俄勒冈人和 53,032 名美国人签署了这封信。大陪审团的调查尚未针对请愿书展开。
-
-评论：
-
-我们是不是要问一下专业医疗人士，如果非专业的立法者都看到了“**当我们提供给他们的**** PCR ****测试既不准确，又无法区分谁是传染性的，谁可能已经被感染但已经康复时，我们勇敢的前线医护人员实际上就被戴上了手铐。**”难道你们吃这碗饭的人不知道数据准确的重要性吗？
-
-人们应该多选出这样的代表，他们知道“**危机使宪法更适用，并且当真诚地遵守时，会产生公众信任。”**
-
-**拿起我们的武器——宪法，行动起来保护我们的健康和生命！**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**参考资料：**[westernjournal][Lawmakers: CDC May Be Manipulating COVID Data, Underreporting Vaccine Side Effects by Factor of 5](https://www.westernjournal.com/lawmakers-cdc-may-manipulating-covid-data-underreporting-vaccine-side-effects-factor-5/?utm_source=Email&amp;utm_medium=newsletter-CT&amp;utm_campaign=dailypm&amp;utm_content=conservative-tribune&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
+[https://www.kotaku.com.au/2021/10/chinese-csgo-player-restrictions-starry-lynn-vision/](https://www.kotaku.com.au/2021/10/chinese-csgo-player-restrictions-starry-lynn-vision/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

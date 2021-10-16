@@ -2,19 +2,19 @@
 ---
 
 
-## 秘翻在线：英国顶级保守党人戴维斯反疫苗通行证的演讲被油管删除
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1597369/)
+## 年轻人自杀的高峰
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1597417/)
 
-#### 翻译/撰稿：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/UGdOZMMggZOiXZQ-800x450-noPad.jpg)图片来源：change
-根据布莱巴特（Breitbart）的报道，曾担任英国首任脱欧事务大臣，英国重要政治家戴维·戴维斯(David Davis)，最近在曼彻斯特举行的党派会议上发表演讲称，虽然他提倡接种疫苗，但是反对疫苗护照，如果英国公民每做一件事都需要出示证件的话，这是不自由的。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10162.jpg)
+据美国有线电视新闻网报道，美国教育部宣布称，2020年学生自杀数量比 2019年增加了约 31%。这涉及 6 至 18 岁之间的阶段。他们是那些未能克服大流行的艰难时期以及在 2020 年不得不忍受的身心孤独的孩子。
 
-据老大哥在看着你 (Big Brother Watch)的报道，戴维斯的这段演讲已在世界上最大的“医疗错误信息”视频分享平台上删除。科技巨头没有说明哪些内容违反了规则，但收到一份通知，解释说：“油管不允许关于中共病毒疫苗接种的说法与当地卫生部门或世界卫生组织（WHO）的专家共识相矛盾。”
+在昨天发布的包含 2020 学年数据的文件中，增长特别集中在去年 6 月，随后是 8 月之后，在较短的暑假后重新开始课堂学习。有14名小学生自杀，比上年增加8名；中学生有136人自杀，增加40人；高中生有329人自杀，比2019年增加了92人。[在自杀的高中生中女孩](https://www.corriere.it/cronache/08_febbraio_24/giappone_suicidi_collettivi_internet_c5d869f6-e2b8-11dc-a3c3-0003ba99c667.shtml)的自杀人数几乎翻了一番，从 71 人增加到 138 人。
 
-戴维斯在一份声明中回击称：“这是对言论自由的无耻攻击。在整个中共病毒大流行期间，我们已经看到科技巨头公然压制挑战反对声音，这个插曲只不过是扼杀言论自由的又一个例子。”戴维斯继续坚持自己在会议上的讲话是经过仔细研究，准确无误的，并且有科学证据支持。
+日本教育部儿童事务司司长告诉广播公司NHK说，学生自杀人数的增加非常令人震惊。特别该国女性自杀率令人担忧的数据急剧增长，自 2020 年 7 月以来，日本女性自杀的人数开始上升，尤其是 30 岁以下的女孩。仅在 2020 年 10 月，就有 826 名女孩在 30 岁以下自杀，而 2019 年是486 名。
 
-戴维斯哀叹自己的政党纸上谈兵，不过是进一步的侵蚀英国的言论自由，成千上万的人因为他们表达的观点而被逮捕或被警察骚扰。并不像波兰政府那样，着手解决科技巨头的审查制度。
+免责申明：本文只代表译者观点，与Gnews无关
 
-戴维斯批评本届政府将推出的《在线安全法案》（Online Safety Bill），这项立法什么都做不了，只会将更多的权力赋予那些不负责任的硅谷巨头。油管对我言论的审查就是一个很好的警告，如果油管愿意，它甚至可以让当选的议会议员“沉默”。政府必须阻止网络言论自由被侵蚀，比如从重新审视《在线安全法案》开始。
+原文链接：[https://www.corriere.it/esteri/21\_ottobre\_15/covid-isolamento-giappone-picco-suicidi-giovanissimi-sono-415-2020-3b9a0462-2d62-11ec-be4a-8aaf23299e0e.shtml](https://www.corriere.it/esteri/21_ottobre_15/covid-isolamento-giappone-picco-suicidi-giovanissimi-sono-415-2020-3b9a0462-2d62-11ec-be4a-8aaf23299e0e.shtml)
 
-新闻来源：[YouTube Deletes Anti-Vax Pass Speech by Top Tory for ‘Contradicting Expert Consensus’](https://www.breitbart.com/europe/2021/10/14/youtube-deletes-anti-vax-passport-speech-tory-contradicting-expert-consensus/)
+责任编辑/发布：意大利达芬奇农场   萧亦
