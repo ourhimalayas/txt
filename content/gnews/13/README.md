@@ -2,40 +2,30 @@
 ---
 
 
-## 苹果公司被迫下架在中共国的古兰经应用程序
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1597695/)
+## 西班牙卫生部确认未分离出SARS-CoV-2病毒样本，并承认“测试本身不足以确定疾病”
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1597806/)
 
-作者：纽约香草山健身部 – Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在中共官方的要求下，苹果公司已经关闭了在中共国的Quran Majeed——古兰经应用程序，这是世界上最受欢迎的古兰经应用程序之一。Quran Majeed在世界各地的App Store上都有销售，并且有近15万条评论。它被全世界数百万的穆斯林使用，并且在中（共）国有将近一百万的使用者。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-288.png)
-虽然，中国共产党正式承认伊斯兰教为该国的一种宗教。但是，中（共）国一直被指控侵犯人权，甚至是对新疆大部分穆斯林维吾尔族的种族灭绝。今年早些时候，英国广播公司（BBC）报道说，维吾尔族阿訇在中（共）国的新疆镇压中成为目标。
+撰稿：Runaway
 
-《纽约时报》今年早些时候报道说，苹果公司在中（共）国的应用程序，如果被中共政府认为是禁区，就会被关闭。应用程序不能讨论的话题包括天安门广场、中国精神运动法轮功、达赖喇嘛以及西藏和台湾的独立。
+《自由协会和生物学家寻真相》和一位个人向西班牙卫生部提出了有关SARS-CoV-2病毒的公开信息的请求，同时要求提供可以独立进行测试的病毒样本培养物。
 
-另一个受欢迎的宗教应用，橄榄树的圣经应用，本周在中（共）国也被撤下。
+在根据《透明度法案》回应这项要求时，西班牙卫生部承认“它既没有SARS-CoV-2培养物”，也没有注册的“具有培养和隔离检测能力的实验室”。该回应还将诊断和治疗的所有责任推给了卫生专业人员，并承认“测试本身通常不足以确定疾病。”
 
-周四，微软表示，它正在关闭其在中（共）国的社交网络LinkedIn，这一决定是在职业网站因屏蔽一些记者的资料，而面临质疑之后做出的。
+根据西班牙卫生部的说法，那些被用来决定有关限制、关闭、隔离、患者治疗、疫苗接种和旨在结束所有人自由的独裁措施的所谓“测试”，并不足以确定这种疾病，因为连测试的依据都还没有。
 
-由此可见，在中共北京当局对网络和高科技公司的管制越来越严厉，原本仅存不多的宗教自由、新闻自由、言论自由……已经快要被中共政府抹杀殆尽。中（共）国亦变成一个封闭的极权专制国家，就和他们的好邻居——朝鲜一样，一个不折不扣的寒蝉之国。
+截至2021年10月7日，超过[20个国家的116家机构](https://www.fluoridefreepeel.ca/wp-content/uploads/2021/10/Institution-list-for-website2.xls)（主要是卫生和科学机构，点击进入列表）没有任何人、从任何地方提供或引用甚至一条描述纯化“SARS-COV-2”病毒或包含其存在证据的记录。这些机构中的几个（即CDC、英国公共卫生、英国DHSC、印度的ICMR）都有类似的回应。
 
-参考链接：[Apple takes down Quran app in China](https://www.bbc.com/news/technology-58921230)
+在全世界因”病毒流行“被隔离所困，经济被摧毁，人们失去自由的今天，竟然连测试是否被病毒感染的样本都没有被分离和培养出来，简直是令人难以置信。更有甚者，全世界人口的一半竟然为此接种了不知道是什么成分、以及安全性未知的疫苗。这是如何做到的？
 
-**本文谨代表作者观点**
+（文章仅代表作者观点，与Gnews无关）
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
+发布：Runaway
 
-**校对/发稿：童谣**
+参考链接：
 
-**更多资讯，更多关注**
+1. [Spain: Ministry of Health Confirms It Has Not Isolated The SARS-CoV-2 Virus and Admits “Tests, By Themselves, Are Not Usually Sufficient to Determine the Disease.”](https://theexpose.uk/2021/10/14/spain-ministry-of-health-confirms-it-has-not-isolated-the-sars-cov-2-virus-and-admits-tests-by-themselves-are-not-usually-sufficient-to-determine-the-disease/)
+2. [Spain: Ministry of Health Confirms It Has Not Isolated The SARS-CoV-2 Virus and Admits “Tests, By Themselves, Are Not Usually Sufficient to Determine the Disease.”](https://theexpose.uk/2021/10/14/spain-ministry-of-health-confirms-it-has-not-isolated-the-sars-cov-2-virus-and-admits-tests-by-themselves-are-not-usually-sufficient-to-determine-the-disease/)
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
