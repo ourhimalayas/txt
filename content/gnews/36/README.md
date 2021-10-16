@@ -2,34 +2,25 @@
 ---
 
 
-## 比特币飙升至 61000 美元以上，离历史最高点还差 6%
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597253/)
+## 针下亡魂｜科威特 48 岁著名男星接种疫苗两周后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1597333/)
 
-作者：文一
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 16/10/2021**
 
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
 
-【市场观察】网站报道：比特币在最近 24 小时内上涨了 7.3%，已高至 61253 美元，为4月以来首次，离历史最高点还差6%。
+【科威特】48 岁著名男演员 Mishary al-Balam 在接种完第一剂辉瑞 COVID-19 疫苗后的两周内死亡。
 
-彭博社周四援引消息人士的话称，美国证券交易委员会 SEC 准备为美国首个比特币期货交易基金开绿灯，并称监管机构不可能阻止这些基金在下周开始交易。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture700-1.jpg)
-此前，SEC 投资者教育办公室发了一条推文，警告投资者要权衡比特币期货基金的风险和收益，被认为是将要批准比特币 EFT 的信号，致比特币价格一路飙升。
+Mishary 于 2 月 11 日在 Instagram 上分享了一段影片，显示他正在接种辉瑞疫苗，9日后，他就紧急送往医院治疗，后因血氧浓度下降迅速而被送到重症监护室，6日后，即 2 月 25 日，病重身亡。
 
-SEC 在未来两周内批准、拒绝或推迟比特币期货 ETF 提案都是有可能的，比特币最近几个星期内因各类消息价格跌宕起伏，且不说其合法性和被操纵在极少部分人手里的事实，但从市场和投资者如此敏感热烈的反应来看，虚拟币或数字货币万众瞩目，炙手可热，或是“热钱”的新去向。
+关于背后的真正原因，Mishary Al-Balam 曾在接种疫苗后不久，在 Instagram 上表示，自己在接种疫苗的时，感染了冠状病毒，他写道“不要在你的祈祷中忘记我。无论如何都要赞美上帝。我的家人、艺术家同行以及忠实的、受人爱戴的观众，感谢您的提问，发生的一切都是我在接种疫苗时被感染了。这是命运，请原谅我无法接听电话。”
 
-（本文仅代表作者观点）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/螢幕截圖-2021-10-16-下午2.07.26.png)
 
-参考链接：[比特币飙升至 61000 美元以上，离历史最高点还差 6%](https://www.msn.com/en-us/money/savingandinvesting/bitcoin-rises-above-2461000-6-25-away-from-all-time-high/ar-AAPyIqE)
+Mishary 1991 年在科威特的剧院开始了他的职业生涯，进军影视界后，先后出演了 56 部作品，可惜，仅在接种完疫苗的两周内，就丢下了他的妻子和五个孩子撒手人寰。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+来源｜ [个案029](https://english.alarabiya.net/coronavirus/2021/02/25/Coronavirus-Kuwaiti-actor-comedian-Mishary-al-Balam-dies-following-COVID-19-complications)
 
-新闻访谈终审：Q大哥
-编辑/校对/审核：Hetangyuese
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//

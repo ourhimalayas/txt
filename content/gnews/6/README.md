@@ -2,18 +2,38 @@
 ---
 
 
-## 2021年10月15日郭先生盖特 — 视频盖特2「2分51秒」
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1597623/)
+## 中共严控苹果商店，圣经古兰经遭下架
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597703/)
 
-听写：洛杉矶盘古农场 — 盘古小蚂蚁
-校对：洛杉矶盘古农场 — Antsee-GTV
+作者：飞虹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+本周早些时候，监督苹果商店运营的“苹果审查”发现，亚马逊旗下的有声读物中, 一些伊斯兰教与基督教等宗教的经书软件从中共大陆地区的苹果商店中消失了。相关的《古兰经》和《圣经》应用软件商也称，他们的经文软件在中共政府的要求下被移除。
 
-Video link: [https://gettr.com/post/peaunq1b9f](https://gettr.com/post/peaunq1b9f)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/B1765736-60AF-4A13-B04F-9A43E1B12F42.png)
-我这是从办公室开了一天的会回来，特别幸福，开了一天的会，老带劲了。各种官司现在大量的进步，各个官司都有革命性的进展。所以我们要开启，等待着，酝酿着“以法灭共，以法灭贼” — 在全世界。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-289.png)
 
-刚才很多战友给我发了很多很多信息 — 我真的回不完了，因为今天下午我没有时间看手机。战友们「表达」对新的4000万喜币的各种憧憬，各种感激。没有回复的请战友们多多包涵。关于付款的问题，请与各农场主联系，和联盟委员会联系 — 所有的付款。有太多要付款的了，这一百万那两百万的，太多了，我没办法一一回了。请和农场联系，请和长岛哥、老班长联系。如果是实在这几个都联系不了的再找我，中不中？太多了，兄弟姐妹们。
+中共驻美国大使馆发言人拒绝回应相关宗教内容应用软件下架事宜，只是在电邮中声明，中（共）国的互联网发展，必须遵守中（共）国的“法律和规定”。
 
-还有一个，莫名其妙的新的人想投资绝对不能接受。没有什么历史，没有任何支持的，莫名其妙就来的 — 这个不能要的，咱们要把好关。这是给我们的老战友，长期的战友，可信的战友留下的喜币上市前最后的机会，希望大家都能把握住。
+古兰经和圣经的软件供应商表示，他们已经向中共的互联网管理部门提出审议申请，期望能够获的中共的特殊许可证，进而恢复他们的软件，但他们的愿望只能是愿望了。在对国内网络信息进行严格控制的同时，中共政府对从境外输入的内容特别是宗教信息，更不会放弃审查和屏蔽。
 
-啥都不说了，我马上有很重要的那个……哎，那背景是啥呀？是对面的大楼。现在的曼哈顿到处都是疫苗的恐惧心理。今天开会的时候原来都是打了疫苗的人，真感到他们恐惧了，他们真感到害怕了，太多人现在被疫苗给吓得半死的了。我担心疫苗真正灾难来的时候多少人得吓死。兄弟姐妹们，任何人跟随爆料革命和新中国联邦，给你最大的一个回报就是你没打疫苗；第二个，就是在这个世界危机时刻，你有希望，你有更多像亲人一样亲的战友，这是第二个 — 你从来没有那么多人爱你，关心你，这都是真正的比家人还爱你，关心你的人，这是第二个；第三个是给了你希望，在最关键的时候你可能安全下来，珍惜吧。我都不知道说啥好 — 珍惜爆料革命，珍惜战友。越想咱们太幸福了，我都是深刻的感觉，没你们7哥就没那么幸福了。
+参考链接：[china-crackdown-on-apple-store-hits-holy-book-apps-audible](https://www.voachinese.com/a/china-crackdown-on-apple-store-hits-holy-book-apps-audible-20211015/6273111.html)
+
+新闻访谈终审: 文龍
+
+**本文谨代表作者观点**
+
+![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
+
+**校对/发稿：童谣**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

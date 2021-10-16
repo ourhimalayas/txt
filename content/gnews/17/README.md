@@ -2,63 +2,208 @@
 ---
 
 
-## 审查帖子遭批 微软将关闭中国区Linkedin服务
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1597531/)
+## 杀人的疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1597580/)
 
-编译：Jenny Ball
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/C494469A-8A5C-4212-BF06-562B82C5D883.jpeg)](https://gtv.org/video/id=616a833ad2e2b8174875c4d5)
+[https://gtv.org/video/id=616a833ad2e2b8174875c4d5](https://gtv.org/video/id=616a833ad2e2b8174875c4d5)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/imrs-scaled.jpg)图片来源：washingtonpost.com
+字幕内容：
 
-公司援引中共国当局的“更具挑战性的经营环境和更高的合规要求”
+22 months into COVID,
 
-微软表示将关闭其在中共国境内的 LinkedIn 网站，因为前几天审查几名美国记者的帖子而面临公众批评。
+进入COVID已经22 个月了
 
-在[周四宣布](https://blog.linkedin.com/2021/october/14/china-sunset-of-localized-version-of-linkedin-and-launch-of-new-injobs-app)这一决定时，LinkedIn 表示，它正面临“在中国的社交媒体网站，会面临着更具挑战性的运营环境和更高的合规要求”。
+we have all the information needed to paint a clear picture of what’s going on.
 
-这一消息终结了在中共国运营的最后一个西方主要社交媒体网站，当局长期以来一直在中共国屏蔽 Facebook、WhatsApp、Twitter 和其他应用程序。
+我们拥有清晰描绘正在发生事情所需的所有信息
 
-美国外交关系委员会中国与技术问题专家亚当·西格尔（Adam Segal）表示，“中共国内部的压制加剧，以及国会对遵守中国法规的更大批评，使美国社交媒体公司无法持续经营”。
+We know the Anthony Fauci, who has done all this before
 
-[中共国审查制度通过微信侵入美国](https://www.washingtonpost.com/technology/2021/01/07/wechat-censorship-china-us-ban/?itid=lk_interstitial_manual_7)
+我们知道安东尼·福奇，他以前在 1980 年代在艾滋病毒、AZT(一种抗艾滋的药物) 和艾滋病方面上
 
-LinkedIn 表示将在今年晚些时候“关闭”其网站，但将推出一个名为 InJobs 的新网站，该网站将不包含社交媒体提要或分享帖子或文章的功能。
+in the 1980s with HIV, AZT, and AIDS
 
-“我们在中国的新战略是，将我们的重点放在帮助中国专业人士在中国找到工作，和中国公司找到优质候选人上，”LinkedIn 说。 它没有提供更多细节。
+和艾滋病方面上曾经做过同样的事
 
-微信和微博等中国人拥有的社交媒体应用程序受到严格审查，删除当局认为敏感的内容。最近几周，LinkedIn 的美国用户表示，他们在中共国境内的个人资料也面临类似审查。
+was illegally working with the Communist Chinese via the NIH
 
-这些报道促使参议员里克·斯科特（Rick Scott）[写信给微软和领英的首席执行官](https://www.rickscott.senate.gov/services/files/7CCE2FDB-FED0-4F82-8FEA-6EC30BA021F8)，表达了对“一家美国公司代表中共积极审查美国记者”的担忧。
+通过美国国立卫生研究院非法与中国共产党合作
 
-其中一名记者贝瑟尼·艾伦-埃布拉希米安（Bethany Allen-Ebrahimian ）是一名来自华盛顿特区的 Axios 记者，在[9 月 30 日报道称](https://www.axios.com/linkedin-blocks-us-journalists-profiles-in-china-22fcefd4-5bc1-490b-a448-b4f9b05e9566.html)，LinkedIn 屏蔽了她自己和其他美国驻华记者的个人资料。
+to create a highly contagious, bat Coronavirus in Wuhan, China.
 
-在周四的一次采访中，艾伦-埃布拉希米安说，LinkedIn 几周前给她发了一条消息，通知她，她的个人资料在中国将不再可见，因为它包含“被禁止”的内容。
+在中国武汉制造一种具有高度传染性的蝙蝠冠状病毒
 
-埃布拉希米安多次向公司询问更多细节，但“他们从未告诉我禁止的内容是什么，”她说。 周四LinkedIn 没有回应相关问题。
+We know that the PCR test was used to fraudulently create
 
-埃布拉希米安说，即使 LinkedIn 的新网站缺乏社交媒体功能，该公司仍将受到中共国当局潜在的侵入性信息请求的影响。
+我们知道，PCR病毒测试被用于欺诈地制造
 
-“如果中共当局想知道，这个人有没有给任何人发信息，他们有没有申请过任何工作？ InJobs 将不得不提供这一点。如果是刑事案件，可以理解，但如果他们出于政治原因这样做呢？” 她问。
+a flood of false positives to legitimize the FDA emergency vaccine authorization.
 
-曾为Vice和《大西洋》报道的美国记者梅丽莎·陈（Melissa Chan）也透露LinkedIn 因“禁止”内容而屏蔽了她在中国的个人资料。
+大量误报为阳性，以使食品药品监督管理局紧急疫苗授权合法化
 
-“问题多于答案，”陈周四通过电子邮件说。“一些中共当局是否向Linkedin提供了一份他们遇到问题的人和帖子的清单？还是LinkedIn主动提供的？知道发生了什么很重要。”
+We know that the COVID vaccines are not vaccines,
 
-专注于西藏问题的自由记者和作家格雷格布鲁诺（Greg Bruno），周四在接受采访时表示，LinkedIn 告诉他，由于他个人资料的出版物部分中的“禁止”内容，他在中共国境内被屏蔽。这部分中唯一的信息是关于他三年前的书，他说这本书详细描述了“中共国努力使西藏流亡者边缘化和非法化”。
+我们知道COVID疫苗不是疫苗
 
-“我非常生气，”他说。 “LinkedIn 让我最烦恼的是，它逼迫我进行自我审查。”
+but rather, highly controversial mRNA, tech that failed miserably on its animal trials,
 
-尽管在 LinkedIn 上遇到了麻烦，布鲁诺还是对美国上一次社交媒体在中共国的抵制结束感到遗憾。“这只会继续将我们与信息泡沫隔绝开来，并切断我们作为人应有的联系，”他说。
+而是极具争议的mRNA，是在动物试验中惨遭失败的技术
 
-**评论：经历了2020年美国大选媒体的操控，在长达近两年病毒疫苗灾难中，世界遭受着媒体对真相的打压，造成上百万的人无辜死亡，中共对社交媒体的掌控正在将世界推向没有自由的独裁世界。与之相比，LinkedIn的遭遇就是小巫见大巫不足挂齿了。只是我们要想一想，怎么走到了这个地步？**
+the type of gene therapy that several top scientists warn will kill you
 
-（文章仅代表作者观点，与GNEWS无关）
+几位顶尖科学家警告的基因治疗类型可能会杀死你
 
-**参考资料：**[washingtonpost][Microsoft will shut down LinkedIn service in China after facing criticism for censoring posts](https://www.washingtonpost.com/technology/2021/10/14/linkedin-china-shut-down/?utm_campaign=wp_todays_worldview&amp;utm_medium=email&amp;utm_source=newsletter&amp;wpisrc=nl_todayworld&amp;carta-url=https%3A%2F%2Fs2.washingtonpost.com%2Fcar-ln-tr%2F34fc2b1%2F6168fd139d2fda9d4110679d%2F5e2dde419bbc0f6326309bfd%2F42%2F66%2F6168fd139d2fda9d4110679d)
+if you can’t keep it from spreading throughout the body, which is exactly what it is doing.
 
-* * *
+如果你不能阻止它扩散到全身，而这正是它正在做的
 
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
+We know that no matter how deadly these experimental shots are
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
+我们知道，无论这些实验性疫苗是多么致命
+
+the company selling them, will not be held liable.
+
+出售它们的公司将不承担任何责任
+
+It is all being taken care of by taxpayer dollars.
+
+这一切都由纳税人的钱来支付
+
+We know that the ingredients are a big secret.
+
+我们知道它的成分是一个大秘密
+
+And they don’t want you to know what’s in them.
+
+而且他们不想让你知道他们里面有什么
+
+And we know that some are getting saline placebos.
+
+我们知道有些人正在使用生理盐水安慰剂
+
+But now we are learning what these experimental jabs, are actually doing.
+
+但是现在我们正在学习这些实验性疫苗实际上在做什么
+
+Dr. Ryan Cole, a pathologist,
+
+病理学家瑞安 科尔博士
+
+running the biggest independent testing lab in Idaho
+
+在爱达荷州运行着最大的独立测试实验室
+
+described how the mRNA shots are causing serious autoimmune disorders.
+
+描述了mRNA注射如何导致严重的自身免疫性疾病
+
+The first shot stifles the production of lymphocytes, which cripples the immune system,
+
+第一剂会抑制淋巴细胞的产生，从而削弱免疫系统
+
+resulting in a massive increase of autoimmune diseases and cancers.
+
+导致自身免疫性疾病和癌症的大量增加
+
+The blood work presented by Dr. Nathan Thompson shows the same,
+
+这与内森·汤普森博士提供的血液检查结果显示相同
+
+and after receiving the second shot their immune system begins to fail even more.
+
+在接受接种第二剂疫苗后，他们的免疫系统开始更加衰竭
+
+According to one of the top virologists running this program,
+
+根据运行该计划的顶级病毒学家之一的说法
+
+you need the booster shot because your immune system
+
+你需要疫苗加强针，因为你的免疫系统
+
+is now failing as a result of getting the previous two shots.
+
+在你得到的前两剂疫苗现在正在减弱
+
+The data consistently shows that these shots
+
+数据一致表明这些注射的疫苗
+
+are causing massive cellular mutation throughout the entire body.
+
+正在导致整个身体的大规模细胞突变
+
+Often, wherever the recipient is most vulnerable.
+
+通常，在接种者最脆弱的地方
+
+We know that some of these shots are contaminated with mysterious objects
+
+我们知道其中一些疫苗被神秘物体污染了
+
+that appear to grow into other objects.
+
+似乎长成为其他的物体
+
+For what purpose. We don’t know.
+
+出于什么目的， 我们不知道
+
+But we do know that our government, along with the entire pop culture media machine
+
+但我们确实知道，我们的政府以及整个流行文化媒体机器
+
+are blocking life saving treatments, while keeping them for themselves.
+
+正在阻止挽救生命的治疗，同时保留着它们为他们自己使用
+
+While pushing the deadly kill shot on the public,
+
+在向公众推销致命疫苗的同时
+
+and creating a segregated society.
+
+并创造了一个隔离的社会
+
+We know without a doubt that these mRNA injections are killing people.
+
+我们毫无疑问地知道这些mRNA疫苗注射正在杀人
+
+While some may get lucky with saline placebos.
+
+虽然有些人可能会幸运的得到生理盐水安慰剂
+
+Most are having their immune system destroyed from the inside out.
+
+大多数人的免疫系统都是由内到外被破坏的
+
+We know these things, because at this point, the evidence is overwhelming.
+
+我们知道这些事情，因为在这一点上，证据是压倒性的
+
+And we know that it’s the big banks, calling all the shots for their great reset,
+
+我们知道，这是大银行为他们的“大重置”发号施令
+
+which they claim is a trans humanist utopia, a cure to climate change.
+
+他们声称这是一个跨人文主义的乌托邦，是对气候变化的治疗
+
+But who knows what we all instinctively know is how to stop them.
+
+但谁知道我们都本能地知道如何阻止它们
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: [https://forbiddenknowledgetv.net/kill-shot/](https://forbiddenknowledgetv.net/kill-shot/)
+
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+审片：洛杉矶盘古农场-银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

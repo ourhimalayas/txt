@@ -2,38 +2,71 @@
 ---
 
 
-## 澳媒报道：恒大危机是否会毁掉中共国宏大的足球梦？
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1597494/)
+## 立法者对 CDC提起重要指控——我们被你们骗了吗？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1597528/)
 
-撰稿：喜妈
-![](https://assets.gnews.org/wp-content/uploads/2021/10/162-2.jpg)（图片来自网络截图）
-澳洲非盈利媒体机构《对话》报道，中共国恒大集团“处境艰难”，这个曾经是“中共国第二大房地产开发商”的公司面对其巨大的“财务困境”。该媒体提出一个很值得关注的问题，这样的财务现实会“对中共国足球运动的宏伟抱负”有何影响呢？文章认为，恒大作为“广州恒大足球俱乐部的所有者”是“迄今为止中国最成功的俱乐部”。很难说这两者之间不会产生“连锁反应”。文章非常明确地指出，恒大公司和中共国足球“在经济和政治上已经交织在一起，并将一起兴衰”。文章甚至引用了一句中国的老话来表明自己的观点“覆巢之下，焉有完卵？”
+编译：Jenny Ball
 
-报道认为，中共国政府“依赖足球来提升民族自豪感”并且采用“转移批评并实现其更广泛目标”。文章指出，中共国“长期以来一直将体育作为灌输社会凝聚力、鼓励爱国公民和建立共同民族认同的一种方式”。这种态度可以让人从中共国在很多国际赛事上的表现看到。比如，近几十年来，“中共国已成为奥运会的主导力量”，并以“2008 年在北京举办夏季奥运会被视为国家的最高成就之一”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-7-6.png)图片来源：westernjournal.com
 
-可是，报道指出，与这些体育成就相比较，中共国“在世界上最受欢迎的运动足球方面长期以来一直处于落后状态”。这已经成为中共国“一个不断尴尬的根源”。中共国统治下，“中国队只获得过一次世界杯参赛资格”，“从未打入过一球”。同时，中共国的国家足球队即使“在 2022 年卡塔尔世界杯上机会似乎仍很小”。
+## 立法者：CDC 可能在操纵 COVID 数据，以 5 倍的系数少报疫苗副作用
 
-因此，为了解决这个问题，中共国“在 2015 年启动了一项重大的足球发展计划，旨在将国家的项目从基层提升到精英水平”。文章指出，卡在了这种态势和需要下，恒大集团成为一个“一直是这场运动最热情的支持者”。文章详细地表述了恒大在足球运动项目下配合政府进行了各种财力和物力的投入。政府也同样“投入了大量的财政和声誉资本”。可是在恒大用巨资形成中共足球商业联赛商业价值的同时，其“支出很快就达到了不健康的水平”。
+很明显，所谓的健康“专家”在谈到冠状病毒时有一个政治议程。两名共和党州参议员现在指控两个政府卫生机构操纵统计数据。
 
-这导致恒大所建设的据说是世界第一大可容纳十万人的体育场停建，“俱乐部出现巨额赤字”。现在，广州恒大“濒临倒闭，正在寻求政府救助”。文章认为，恒大的危机标志着“中共国职业足球史上黄金时代的结束”。这也充分体现着“中共国联赛的异常政治和商业环境”。恒大的危机有可能导致“中共国在国际舞台上的宏伟足球野心现在似乎也注定要失败”。报道指出：中共国的足球改革，就像是一种“大跃进”，具有“裙带资本主义的特征”。恒大的危机可能标志着“这项实验的结束”，这可能会产生“超越体育迷的影响”。
+[据《大纪元时报》报道](https://www.theepochtimes.com/oregon-senators-call-for-investigation-into-alleged-covid-19-statistical-manipulation_4044333.html)，俄勒冈州参议员金·撒切尔 (Kim Thatcher) 和丹尼斯·林西克 (Dennis Linthicum)于 8 月 16 日[致函](https://standforhealthfreedom.com/wp-content/uploads/2021/09/0-Senate-Letterhead-Grand-Jury-Petition-AUSA.pdf)代理美国检察官斯科特·阿斯福格（Scott E. Asphaug），要求他对CDC和 FDA 提供的冠状病毒统计数据展开大陪审团调查。
 
-从这个报道，我们看到什么呢？首先我们当然是看到恒大的危机即将导致其所参与的一切政府项目包括体育项目和其他商业项目的失败。可是外媒所没有看到的是，恒大的危机不是一个商业性机构经营上的失败，而是中共体制化腐朽的必然。恒大对于很多不明真相的人来说，只是一个商业机构，可是站在爆料革命中，我们都知道，恒大是一个商业外壳下的政治套利的白手套。
+虽然这封信已经一个多月了，但请愿背后的组织“健康自由立场”[Stand for Health Freedom](https://standforhealthfreedom.com/press-release/or-senators-grand-jury-petition/)表示它故意拖至到 9 月 16 日才被公开。
 
-其次，我们看到恒大的危机即使从表象来说，其引起的连锁性反应，是一定会波及与之相关联的所有商业运作。可是外媒在为恒大的黯然退场表示观点时，并不明白，这些恒大所卷走的钱财，不是政府买单的行为，而是无数普通百姓的养命钱。那个背后的伤害不是西方法律体系下的人们所能了解和体会的。
+SHF 的贝利·库肯多尔 (Bailey Kuykendoll) 告诉[Just the News](https://justthenews.com/government/federal-agencies/lawmakers-seek-federal-grand-jury-investigation-covid-19-statistical)网站：“我不确定是否曾有人指控政府有如此大规模的不当行为。” 她说，该组织希望在公开这封信之前确保数据的“准确性和安全性”。
 
-第三，恒大的危机也反射出来中共所谓的体育救国和大国体制等问题是无比深刻的。中共干了多少打着国家人民旗帜，其实是为着盗国贼私利的事情数不胜数。如果恒大所参与的足球事业是说败就败，那么还有什么是不可以说败就败的呢！因为，这些败是必然不可逆，那些真金白银都被他们套走了，剩下的都是空壳。中共下的一切经济都是“擀面杖”经济，是靠数据撑起来的。
+立法者在信中说，一名举报人在宣誓证词中声称，CDC 疫苗不良事件报告系统中(VAERS)记录的死亡和伤害“可能被漏报了五倍”。
 
-综上所述，恒大的危机已经为世人看到，感觉到，可是恒大所要卷起的海啸，西方社会和墙内民众还未深刻理解到。我们要警惕着这些连锁效应在未来时间中不可阻挡地到来。亲爱的同胞们，请在真相面前提前预备好，应对不可逃避的现实和危机吧。
+此外，参议员们表示， [CDC](https://www.westernjournal.com/forget-covid-masks-now-cdc-getting-involved-guns/?ff_source=Email&amp;ff_medium=newsletter-CT&amp;ff_campaign=dailypm&amp;ff_content=conservative-tribune) 和 FDA 使用的 COVID-19 测试可能会产生大量的误报。 他们特别表示，测试中被称为周期阈值的参数之一,可能会导致“夸大的 COVID 病例数、住院人数和死亡人数”。
 
-（本文纯属个人观点，与Gnews无关）
+“哈佛流行病学家迈克尔·米纳（Michael Mina）博士在 2020 年 8 月告诉《纽约时报》，阈值（1）太高的测试可能不仅能检测到活病毒，还能检测到基因片段，”《大纪元时报》报道。
 
-参考消息：
+（1: 阈值指为使某种反应、现象、结果或条件发生或显现而必须超过的量级或强度。）
 
-Will the Evergrande crisis doom China’s grandiose, big-spending football dreams?
+米纳说阈值最多应该是30个周期。在信中，参议员们表示，CDC 目前将接种疫苗的人的周期阈值设定为 28。
 
-[https://theconversation.com/will-the-evergrande-crisis-doom-chinas-grandiose-big-spending-football-dreams-169830](https://theconversation.com/will-the-evergrande-crisis-doom-chinas-grandiose-big-spending-football-dreams-169830)
+**然而，**** FDA ****将未接种疫苗的人的阈值设定为**** 40****。**[**不同的标准导致未接种疫苗的假阳性较多**](https://www.westernjournal.com/nearly-200000-covid-tests-recalled-kits-produced-huge-number-false-positives/?ff_source=Email&amp;ff_medium=newsletter-CT&amp;ff_campaign=dailypm&amp;ff_content=conservative-tribune)**，接种疫苗的****“****突破****”****病例报告较少。**
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+参议员们说：“这些事实使公众几乎不可能相信他们所提供的数据,以及基于这些数据的公共卫生政策。”
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+关于 COVID-19 治疗的问题，参议员们表示，他们“深切关注科学文献继续提供经验证据，那些证据表明存在针对 COVID-19 的安全有效的治疗和管理策略，但却并没有提供给最需要的美国人。** ”**
+
+参议员们表示，虽然疫苗通常“有用”，但突破性病例数量的增加表明，它们并不是对每个美国人都灵丹妙药。 出于这个原因，他们表示 CDC 和 FDA 应该提供其他治疗方案来代替或补充疫苗。
+
+据 Just the News 报道，**立法者将维生素**** D ****和伊维菌素**[**ivermectin**](https://www.westernjournal.com/game-changer-places-ivermectin-used-fight-parasites-medical-group-notices-something-huge/?ff_source=Email&amp;ff_medium=newsletter-CT&amp;ff_campaign=dailypm&amp;ff_content=conservative-tribune)** ****列为被这些机构打压的治疗方法**。**他们说，虽然这些治疗已被证明是安全的，但开处方的医生可能会被罚款或吊销执照。**
+
+参议员提出的另一个问题是，即使他们已经从病毒中康复，测试方法也倾向于将人们识别为 COVID 阳性。
+
+“明确诊断才能保证在评估情况和确保急需的人得到他们应有的相应护理，谁具有传染性，并区分谁不是最急需的，”信中说。
+
+**“****传染性传播管理的这一重要方面陷入混乱。当我们提供给他们的**** PCR ****测试既不准确，又无法区分谁是传染性的，谁可能已经被感染但已经康复时，我们勇敢的前线医护人员实际上就被戴上了手铐。**”
+
+最后，参议员们重申了美国的建国文件在这最艰难时期的重要性。
+
+他们说：“**危机并不能先于我们国家或州的宪法**。” “**危机使宪法更适用，并且当真诚地遵守时，会产生公众信任。”**
+
+《大纪元时报》称，共有 1,718 名俄勒冈人和 53,032 名美国人签署了这封信。大陪审团的调查尚未针对请愿书展开。
+
+评论：
+
+我们是不是要问一下专业医疗人士，如果非专业的立法者都看到了“**当我们提供给他们的**** PCR ****测试既不准确，又无法区分谁是传染性的，谁可能已经被感染但已经康复时，我们勇敢的前线医护人员实际上就被戴上了手铐。**”难道你们吃这碗饭的人不知道数据准确的重要性吗？
+
+人们应该多选出这样的代表，他们知道“**危机使宪法更适用，并且当真诚地遵守时，会产生公众信任。”**
+
+**拿起我们的武器——宪法，行动起来保护我们的健康和生命！**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**参考资料：**[westernjournal][Lawmakers: CDC May Be Manipulating COVID Data, Underreporting Vaccine Side Effects by Factor of 5](https://www.westernjournal.com/lawmakers-cdc-may-manipulating-covid-data-underreporting-vaccine-side-effects-factor-5/?utm_source=Email&amp;utm_medium=newsletter-CT&amp;utm_campaign=dailypm&amp;utm_content=conservative-tribune&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
