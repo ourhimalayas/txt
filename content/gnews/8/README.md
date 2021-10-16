@@ -2,28 +2,32 @@
 ---
 
 
-## 涉及误导性陈述被罚！加密货币公司Tether向美国监管支付四千万美元和解金
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597875/)
+## 日铁起诉宝钢专利侵权，涉及碳化技术竞争
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597953/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+作者：文小白
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+共同社15日消息，日本制铁公司14日就电动汽车发动机等使用的电磁钢板，起诉中国宝山钢铁公司侵害了其专利权，并索赔约200亿日元,约合人民币11亿元 。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/涉及误导性陈述被罚1.png)[图片来源](https://news.bitcoin.com/cftc-fines-stablecoin-issuer-tether-and-crypto-exchange-bitfinex-42-5-million/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-15.jpeg)
 
-财联社10月16日讯，当地时间周五，美国商品期货交易委员会（CFTC）发布公告称，已经与知名加密稳定币发行公司Tether以及加密货币交易所Bitfinex达成民事诉讼和解协议，两家公司一共将支付4250万美元的罚金。
+日本制铁公司拥有“无方向性电磁钢板”及高性能产品相关专利, 当天日铁以该专利 遭中国宝钢侵权为由，向东京地方法院提起诉讼。日铁主张，宝山钢铁在日本销售侵犯了成分和板材厚度等制造技术相关专利的电磁钢板，而丰田汽车采购使用了该产品。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/涉及误导性陈述被罚2.png)（来源：CFTC）
+出于对大气环境的保护,国际机构在二氧化碳排放量较多的钢铁生产行业, 确立了去碳化技术标准，各国以此展开激烈竞争。日铁发言人称 :“ 日本以技术立国,  凭借技术实力盈利并在世界投资, 而日铁的专利技术被中国窃取，我们无法保持沉默。”
 
-![]()这两家涉事公司均属于iFinex旗下。根据CFTC描述，Tether涉及在2016至2019年期间涉嫌误导投资者“每一个美元稳定币USDT背后都有1美元支持”，但这样的表述并非“100%准确”。为此Tether将向CFTC支付4100万美元和解相关诉讼，并承诺不会再犯。
+(本文仅代表作者观点)
 
-在监管声明发布后，Tether公司也在官网作出回应，表示引发调查的原因只是公司储备金并非全部以现金的方式存在，同时也并不总是存放在以Tether公司名义开立的银行账户中，但这样的情况从未影响公司履约。
+参考链接：[关注：日铁起诉专利侵权或意在去碳化技术竞争](https://china.kyodonews.net/news/2021/10/e6839bd48937.html)
 
-CFTC同时指控Bitfinex交易所与美国人进行数字资产的非法场外零售商品交易，并在未按要求注册的情况下作为期货佣金商 （FCM） 运营。Bitfinex也将支付150万美元和解这一起诉。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-当前，数字加密货币备受关注和追捧，各国政府基本都采取加强监管和规范的方式来主动顺应这一发展趋势。但由于中共以及世界黑暗势力对于数字加密货币的控制和滥用，可以预计，随着全球灭共进程的推进，众多数字加密货币还将经历痛苦的洗牌和转型过程。而这种激浊扬清、大浪淘沙式的行业重塑，对于始终将合规摆在首位的“喜币”（HCN）而言，都是利好。
+新闻访谈终审：文龍
+编辑/校正/发稿：谐趣园
 
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/老黑
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,69 +2,99 @@
 ---
 
 
-## 《我是音雄》第二季 第八期第二场复赛 节目预告
-` 我是音雄` [轉載自GNews](https://gnews.org/zh-hans/1597649/)
+## 中国房地产不只是崩塌，那是会炸死很多人的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1597744/)
 
-灭共尖峰时刻，音雄再度归来！2021年度《我是音雄》震撼来袭！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2532.png)
+[https://gtv.org/video/id=616ac5e3d2e2b8174875d1c0](https://gtv.org/video/id=616ac5e3d2e2b8174875d1c0)
 
-由喜马拉雅农场联盟和G|Music倾心打造的新中国联邦“音乐灭共”节目《我是音雄》第二季第八期 复赛第二场，将于美东时间2021年10月16日周六晚10点，即北京时间10月17日周日早10点，在GTV正式开播。
+**郭文贵
+Miles Guo**
 
-请订阅喜马拉雅农场联盟频道：
+中央银行，郭树清如何怎么样把银行里边的所有的财务进行重新分配处理
+How does Guo Shuqing of the Central Bank of China reallocate all the finances in the bank?
 
-GTV   [https://gtv.org/video/id=613ecf61751e4f2b0e518675](https://gtv.org/video/id=613ecf61751e4f2b0e518675)
+所谓的处理方式，就是过去的销账，销坏账
+The so-called processing method is just write-offs, write-off bad debts
 
-Youtube   [https://youtube.com/channel/UC\_E99PLRQHapCyjREgnFyrg](https://youtube.com/channel/UC_E99PLRQHapCyjREgnFyrg)
+销谁的坏账啊，把海航的坏账给销了，是吧
+Whose bad debts should he write off? He wrote off HNA’s bad debts, right?
+
+王岐山这些人的，那是他哥们啊，对吧
+People like Wang Qishan who’s his buddies, right?
+
+他能销许家印的坏账嘛 对吧，很多人呢现在都被闭嘴了
+He won’t write off Xu Jiayin’s（Evergrande） bad debts, right? many people are shut up now
+
+要钱就抓人，这个世界真是够流氓的
+If you want money back then you get arrest, this world is really rascal
+
+你说人家买房子，房子没拿着，还欠银行的钱
+someone bought a house, but didn’t get it, and still owed money to the bank
+
+然后说呢能不能把钱要回来，我不买房子了，那也抓人
+Then he want his money back cause he doesn’t want buy that house anymore, then he got arrested
+
+你还得继续付利息，有多惨呢
+You have to continue to pay interests, how miserable it is
+
+谁知道中共国现在有多少积压或已经政府批准的在建的房产
+Who knows how many backlogs or real estate under construction approved by the government of the CCP?
+
+你不敢想象，14亿的中国人有多少房子
+You can’t imagine how many houses the 1.4 billion Chinese people have
+
+按照现在共产党公布的数字，中国还有说2000万套，房子积压，你信不信
+According to the figures released by the Communist Party, China still has 20 million units and a backlog of houses, believe it or not
+
+那如果不是2000万套，那按照现在国内流出来的信息，说大概在一亿套左右
+If it’s not 20 million units, then according to the current information flowing out of the country, it’s about 100 million units
+
+那就每14个人还有一套房子，是吧
+Then there is a house for every 14 people, right?
+
+那就是说每14个人就一套房，还有一亿套
+That means there is one unit for every 14 people, and there are 100 million units
+
+这一亿套房子就是按照现在共产党内部所谓的文件认可的，已批准在建的
+according to the so-called documents that the 100 million houses are approved within the Communist Party and have been approved for construction
+
+有了资金安排和消费的已形成了所谓的三证齐全的
+With funding arrangements and consumption has formed the so-called three-certificate complete
+
+有银行贷款的，三证两融，就是说有卖楼花了，有银行贷款了
+If there is a bank loan, three certificates and two financing, that means the property can be sold and there is a bank loan
+
+有自己投资了三证两融的，那么这样的房子就一亿套
+If you have invested in three certificates and two financing, then such houses will be 100 million units
+
+那就是说14亿中国人，每14个人就一套房子，那是真的吗
+That means that 1.4 billion Chinese people have a house for every 14 people, is that true?
+
+它不是真的，比一亿套还大，那你说有多少套房子
+It’s not true, there’re more than 100 million units, so how many units do you think there are?
+
+中国的房地产它不是崩塌，它不是崩塌，它会炸死很多人的
+China’s real estate is not “collapsing”, it is not “collapsing”, and it will blow up a lot of people and the world economy
+
+谁也弄不了, 谁也救不了
+No one can solve it, no one can save it
 
 * * *
 
-**GMUSIC – ****我是音雄****第二季第****八****期****复赛第二场****共有****10****位选手：**
+Date:10/15/2021
+原视频标题:中国房地产不只是崩塌，那是会炸死很多人的
+China’s real estate is not just collapsing, it will blow up many people
+原视频日期：2021/10/10
+原视频接:[https://twitter.com/se1y7cblljselva/status/1447867132335714311?s=24](https://twitter.com/se1y7cblljselva/status/1447867132335714311?s=24)
+任务编号：KC172 （2532）
+视频时间段 : 0:00-2:16
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**1****号选手：****Rica ****（纽约香草山农场）**
-
-她是大家熟悉的青春靓丽爆二代之一，是GTV新闻访谈播报员，也是联盟工作汇报的新主持人之一。感谢父母的引荐得以了解、加入爆料革命；郭先生的真诚、勇气、智慧激励着我们探索、传播真相。选手拥有清亮纯洁、甜美的音色，给人予希望。初赛以《Heal The World》获得全体评委的好评。
-
-**2****号选手：娜娜酱（华盛顿****DC ****农场）****  **
-
-“努力展现真实的自己，不做作”和自我挑战是娜娜酱的目标，也在锻炼专注一件事的能力。这位大家熟悉的GTV美女主播，很适合清新风格，希望在《我是音雄》的舞台上有一个蜕变。初赛时虽有临场小意外，但调整及时。声音有香港歌手的特质，搭配服饰，让整个画面沉浸在美好中，期待复赛中可以从容大胆的展现自己。
-
-**3****号选手：齐天二圣（秘密翻译组）**
-
-高中时代接触爆料革命，现在全职在秘密翻译组参与字幕制作和GTV News 英文直播节目。“不做历史看客，做历史的创造者，因为我们是新中国联邦人”外形柔美拥有很有爆发力的嗓音，语言表达能力也很棒，现场得到GTV访谈导演QMay的邀请。一份参与就是一份力量，希望给大家带来快乐。
-
-**4****号选手：青藤（美东香草山农场）**
-
-GTV新闻访谈大家喜爱的主播之一，多次参加郭先生的大直播，表现优秀。语言表达和交流能力，以及对事物的推理判断能力都非常棒。喜欢音乐的他，在初赛时凭借歌曲《一剪梅》给大家留下深刻的印象，相信这是近年来最好的版本。非常期待他的复赛作品。
-
-**5****号选手：灭共小太阳（日本东京方舟农场）**
-
-从初中到现在进入高中，聪明伶俐行动派，觉醒爆二代。通过对西方民主国家的独特人文环境，和自由的气息的体验，对爆料革命有了更深的感悟。是爆料革命的小太阳，也是家庭的小太阳，非常难得。小小年纪，对爆料革命有着非常深刻的理解。初赛时被评委发觉音准好，兼具嘻哈歌手范儿。
-
-**6****号选手：匿名战友（日本银河系农场）**
-
-几年学习对世界的理解有了很大提高，相识是缘分。正直善良父母同自己观念相同：向往光明，痛恨虚假欺骗，信仰和追求是正道主义和平民主义。金属面具下，内心深处燃烧着一团爆料革命之火，生活之中尽力传播真相。“匿名”代表很多战友的真实状态，希望将来大家都可以自由发声。
-
-**7****号选手：****Rachel ****莘****7****女孩（加拿大枫叶农场）**
-
-优秀女主播，也参与多次大直播。风格时而严肃、时而活泼，现场反应机敏，为战友带来非常多的欢乐。参加《我是音雄》她做了很多的准备，初赛时一曲《我可以抱你吗》加上非常漂亮的舞台影效，收获粉丝无数。期待她本期的精彩演出。
-
-**8****号选手：一朵自由行走的花****（澳大利亚喜农场）**
-
-经历从沉默、到坚定认可、再到深度参于农场工作。一路走来感恩郭先生、爆料革命，和战友们给予鼓励和帮助。用清唱的方式演唱了一首1983年代的改词歌曲，音准及唱功到位，台风稳健没有新手的胆怯。歌声中充满了温暖，心理素质好，初赛顺利晋级。
-
-**9****号选手：****Happy 2000 ****（澳大利亚喜农场）**
-
-在四年前看到七哥爆料后确定人生新目标并离开国内。相信郭先生的特殊使命，通过爆料革命带领觉醒的灵魂，推翻中共的统治，建立正道主义，人类终将走向光明。初赛时选用了特有的半说半唱的演唱方式，极具北方特色，倾诉感很强。透过音乐，真诚的声音体现了个人信仰和价值，深深打动评委和观众。
-
-**10****号选手：艺术之光（美国纽约香草山农场）**
-
-以亲身经历分享了自己的转变：从被中共洗脑的小粉红到通过爆料革命觉醒。郭先生的出现犹如一盏明灯照亮了黑暗，惊醒有正义和良知的人。四年来感恩郭先生的开智，感恩战友同行。初赛时歌唱似泉水沁人心田，给我们留下深刻印象。期待他在复赛的精彩表现。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-07-at-10.56.10-AM.png)
-
-G|Music创始人郭先生单曲打榜，向世界展示爆料革命、新中国联邦的实力，将“以歌灭共”推向高潮。音乐就是子弹，歌唱就有力量！《我是音雄》参赛战友将给大家带来什么样的感动呢？让我们拭目以待！
-
-《我是音雄》文宣组： May
-
-编辑/审核：暗黑
-
-校正/发稿：正义的小新
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

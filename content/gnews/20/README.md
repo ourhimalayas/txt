@@ -2,40 +2,31 @@
 ---
 
 
-## “只有新中国联邦能给中国人民带来希望”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597705/)
+## 日本央行数字货币测试顺利，明年4月进入第2阶段
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597811/)
 
-作者：雪梨
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月15日，郭文贵先生在盖特视频中讲到，中共不允许中国人民购买虚拟币，但中共自己的家族成员却不受法规监管和约束。只有消灭中共，才能诞生相对客观、公平的制度，中国人民才会有希望。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-291.png)
-为了阻止喜币上市，中共制定各项政策，联合并操控全世界的金融机构，禁止中国人民购买虚拟币。但对于中共高层及其家人，中国的法律体系只是为其服务而已。他们在海外金融机构的掩护下，肆意窃取中国老百姓的血汗，藏匿万亿财富。而国内数亿人口仍处于贫困线以下，杨改兰事件层出不穷。所谓的“中国梦”，是中共一手编造的骗局，是不可能实现的幻想，而对于底层老百姓，则是历经70余年的噩梦统治。
+撰稿：东京樱花团/喜马拉雅的微尘
 
-爆料革命不落下任何一位战友，确保每一位，为灭共事业付出的战友，得到应有的尊重和回报。文贵先生为3月中旬后新增投资的战友，和法治基金捐款者，争取到了额外的喜币福利。新中国联邦和爆料革命不忘记任何一位战友。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/日本央行数字货币测试顺利，明年4月进入第2阶段.png)[图片来源](https://btcmanager.com/boj-executive-japan-cbdc/)
 
-文贵先生再次用实际行动证明，新中国联邦能给中国人民可兑现的希望，而不是中共不切实际的许诺。
+日本央行15日发布消息称，中央银行数字货币（CBDC）正在进行的“概念验证”第一阶段试验进展顺利，明年4月将进入第2阶段。
 
-参考链接：
-[https://gettr.com/post/pe9beaf54d](https://gettr.com/post/pe9beaf54d)
-[https://gettr.com/post/peadc98dd3](https://gettr.com/post/peadc98dd3)
+日本中央银行数字货币（CBDC）“概念验证”（PoC）第二阶测试为有效性验证试验。届时，将验证预约支付、与外部系统协同等货币所需功能方面的课题。央行在旨在相关行业共享信息的协议会会议上出示了计划。
 
-新闻访谈终审：暗黑
+4月5日，日本央行发布公告称，从当天起对中央银行数字货币（CBDC）进行“概念验证”（PoC）第一阶段的测试。根据公告，该阶段为期一年，至2022年3月。日本央行表示，在PoC第一阶段，该行计划开发CBDC系统的测试环境，并根据支付工具的核心基本功能，重点是测试发行、流通和兑换央行数字货币(CBDC)的技术可行性。
 
-**本文谨代表作者观点**
+概念验证共有两个阶段：阶段一即开发测试环境，并对CBDC作为支付工具的核心功能进行实验；阶段二，日本央行将在第一阶段开发的测试环境中实施CBDC的附加功能，并测试其可行性。
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
+CBDC是中央银行以电子数据形式发行的法定货币。日本央行称目前没有发行CBDC的计划，但正在推进确认有效性的试验。还考虑今后以企业和消费者也实际参与的形式，实施最终试验。
 
-**校对/发稿：童谣**
+面对中共强势推动的数字人民币（DCEP），从去年开始，美国、日本及欧洲多国央行对于数字货币的态度从保守逐渐转向积极。随着，中共病毒及疫苗灾难对全球经济影响的积累，特别是中共自身“金融核弹”的爆炸，必将促使世界主动或者被动的走向数字货币时代。这一点，已毋庸置疑。
 
-**更多资讯，更多关注**
+信息来源：
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[日本央行数字货币测试明年4月进入第2阶段](https://china.kyodonews.net/news/2021/10/666957601337-42.html)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+（免责声明：文章仅代表作者本人观点，与GNEWS无关）
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)

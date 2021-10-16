@@ -2,30 +2,28 @@
 ---
 
 
-## 西班牙卫生部确认未分离出SARS-CoV-2病毒样本，并承认“测试本身不足以确定疾病”
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1597806/)
+## 有声|新冠疫苗加强针，毒害人民的加强针又来了
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1597918/)
 
-撰稿：Runaway
+配音：香草山香港部-文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+据中国新闻网10月13日报道，截至目前，据不完全统计，安徽、福建、河南、黑龙江、湖北等10余省份已明确启动加强针接种。黑龙江疾控中心10日发布消息，完成新冠疫苗加强针接种的人群，健康码将由“金码”升级为“钻石码”，作为后续加强针查验凭证。而根据国家卫健委公布的数据，截止10月11日，全国累计报告接种新冠病毒疫苗超过22.2亿剂次。
 
-《自由协会和生物学家寻真相》和一位个人向西班牙卫生部提出了有关SARS-CoV-2病毒的公开信息的请求，同时要求提供可以独立进行测试的病毒样本培养物。
+大多数人已经打了新冠疫苗，或被中共洗脑去打、或被恐吓去打、或被威胁去打、或直接被拉去打。总之，接种新冠疫苗的数据漂漂亮亮，各地各单位都为了上级任务，让其片区的未接种疫苗率清零。
 
-在根据《透明度法案》回应这项要求时，西班牙卫生部承认“它既没有SARS-CoV-2培养物”，也没有注册的“具有培养和隔离检测能力的实验室”。该回应还将诊断和治疗的所有责任推给了卫生专业人员，并承认“测试本身通常不足以确定疾病。”
+上级每次都要求的是数据，接种数据达到多少多少，未接种数据是多少多少，今天又完成了多少指标，离上上级要求的数据又近了多少。打疫苗是一项政治任务，只关注数据的漂亮，而不关注是否真的适合打？反正在中共的洗脑下，中共要求的就无条件服从吧。
 
-根据西班牙卫生部的说法，那些被用来决定有关限制、关闭、隔离、患者治疗、疫苗接种和旨在结束所有人自由的独裁措施的所谓“测试”，并不足以确定这种疾病，因为连测试的依据都还没有。
+变成了“钻石码”的健康码就一定代表人是的健康吗？中新网的文章也已经说得很清楚了，“钻石码”是作为后续加强查验的凭证。然而身在中共国的人民，有多少人能够避免不打，避免疫苗带来的伤害？身在中共体制内工作的同胞们，有多少能够不听上级的数据要求而不接种疫苗？在一些体制内的单位，领导直接说，完成疫苗加强针的，截图发群，上面数据要求清零。于是，大家都自觉去打了加强针，自觉为上级数据服务，自觉又一次拿自己做了试验。生是体制内工作的人，死也让体制去送一程。身在中共国，好好活着实在是太难太难太难。
 
-截至2021年10月7日，超过[20个国家的116家机构](https://www.fluoridefreepeel.ca/wp-content/uploads/2021/10/Institution-list-for-website2.xls)（主要是卫生和科学机构，点击进入列表）没有任何人、从任何地方提供或引用甚至一条描述纯化“SARS-COV-2”病毒或包含其存在证据的记录。这些机构中的几个（即CDC、英国公共卫生、英国DHSC、印度的ICMR）都有类似的回应。
+文字版原文：[新冠疫苗加强针，毒害人民的加强针又来了](https://gnews.org/zh-hans/1594896/)
 
-在全世界因”病毒流行“被隔离所困，经济被摧毁，人们失去自由的今天，竟然连测试是否被病毒感染的样本都没有被分离和培养出来，简直是令人难以置信。更有甚者，全世界人口的一半竟然为此接种了不知道是什么成分、以及安全性未知的疫苗。这是如何做到的？
-
-（文章仅代表作者观点，与Gnews无关）
-
-发布：Runaway
-
-参考链接：
-
-1. [Spain: Ministry of Health Confirms It Has Not Isolated The SARS-CoV-2 Virus and Admits “Tests, By Themselves, Are Not Usually Sufficient to Determine the Disease.”](https://theexpose.uk/2021/10/14/spain-ministry-of-health-confirms-it-has-not-isolated-the-sars-cov-2-virus-and-admits-tests-by-themselves-are-not-usually-sufficient-to-determine-the-disease/)
-2. [Spain: Ministry of Health Confirms It Has Not Isolated The SARS-CoV-2 Virus and Admits “Tests, By Themselves, Are Not Usually Sufficient to Determine the Disease.”](https://theexpose.uk/2021/10/14/spain-ministry-of-health-confirms-it-has-not-isolated-the-sars-cov-2-virus-and-admits-tests-by-themselves-are-not-usually-sufficient-to-determine-the-disease/)
-
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

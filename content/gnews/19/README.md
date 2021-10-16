@@ -2,35 +2,30 @@
 ---
 
 
-## 秘翻在线：接种 COVID-19 疫苗后 丙型肝炎病毒再次激活
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1597707/)
+## 有声|苦瓜酒的酿制像极了中共国的教育
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1597822/)
 
-#### 翻译发布：文柯Miles
+配音：香草山香港部-文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+据百度经验记录：苦瓜酒是近年来南方市场上出现的一种保健药酒，具有清热解毒、怡心明目、养血滋肝、润脾补肾等多种功效。常饮苦瓜酒可促进食欲、清热解毒、泻热通便，而且还具有预防和治疗感冒、扁桃体炎、咳嗽等作用。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Cropped-1596189971AP_20190505918297-scaled.jpg)
+对于苦瓜酒的上述功效，笔者没有查证验证，笔者也不关心。而苦瓜酒的酿制，尤其是苦瓜的选料却让笔者震惊，这也让笔者联想到了中共国的教育。
 
-病例报告：我们报告了一名 82 岁的痴呆症患者，她住进了荷兰的一家疗养院。在接种 COVID-19 疫苗后，她进行了身体检查和实验室测试。
+苦瓜酒酿制所需的苦瓜是瓜形较长，要求瓜条充分伸长发粗，果皮青绿色，瓜体中种子开始发育但种皮尚未木质化的苦瓜。苦瓜的选料以及苦瓜何时摘下如视频所示。
 
-在接种基于 mRNA 的辉瑞-BioNTech COVID-19 疫苗后，她再次感染丙型肝炎。这种重新激活表现为黄疸、意识丧失、肝昏迷和死亡。
+统一的苦瓜，统一的玻璃瓶，统一的酿制过程，最后被一饮而尽，这难道不类似于中共国的学校教育吗？
 
-一位患有痴呆症 [阿尔茨海默病] 的 82 岁妇女于 2020 年入住荷兰的一家疗养院。 她的病史包括丙型肝炎感染 [2007]、乙型肝炎感染 [1980]、2 型糖尿病 [2005]、必需高血压 [2001]、骨关节炎 [2007]、门脉高压伴食管静脉曲张 [2015]、肝硬化伴血小板减少症和对黄蜂蜇伤过敏 [2014]。她的肝酶 [AST、ALT、GGT、ALP] 略有增加，但胆红素正常 [自 2011 年以来]。该患者从未检测出 COVID-19 呈阳性。
+统一的教材，统一的大纲，统一的考试，统一的学习过程，统一的学校要求，最终培养的就是为中共服务的奴隶。学校教育总是要求学生整齐划一，全部做到一致，忽略了学生的个性成长，更不用提差异化教学了。谁要是没有做到统一的标准，谁就是一个另类，就是一个麻烦制造者，就是一个问题学生。在这样的各种统一的标准下，学生的思维还能正常发展吗？学生的个性特征还会被鼓励吗？学生的天性都被中共给泯灭了。
 
-2021 年 2 月 21 日，患者使用 Pfizer–BioNTech接种了第一剂COVID-19 疫苗。在第一次接种疫苗后的前两天，没有观察到任何症状或体征。
+文字版原文：[苦瓜酒的酿制像极了中共国的教育](https://gnews.org/zh-hans/1594899/)
 
-接种后第 3 天出现黄疸、嗜睡和寒战。临床检查有明显的皮肤和巩膜黄疸；她的意识下降。直肠温度 38.1C，心率 92 bpm，氧饱和度 95% [无呼吸困难]，血压 105/93 mmHg。两小时后直肠温度为37.4℃，意识有所改善，其他生命体征仍不正常。尿液和粪便的颜色正常。血糖水平正常。
-
-在第 4 天和第 10 天之间，患者意识得到改善，黄疸消失。
-
-随访第10天黄疸再次加重，伴右上腹剧烈疼痛，放射至左上腹，第23天意识丧失、昏迷、死亡。
-
-血检证实为丙型肝炎，患者拒绝接受丙型肝炎药物治疗。
-
-第 5 天的血液检查显示：
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-10.png)
-
-第 14 天的第二次验血显示胆红素和 CRP 水平下降，但肝酶 AST、ALT 和 ALP 进一步升高。
-
-结论：接种 Pfizer–BioNTech COVID-19 疫苗后，丙型肝炎病毒的重新激活表明需要认真考虑先前感染过 HCV 并考虑接种 COVID-19 疫苗的个体。
-
-相关链接：**[Hepatitis C Virus Reactivation Following COVID-19 Vaccination – A Case Report](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC8412816/)**
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
