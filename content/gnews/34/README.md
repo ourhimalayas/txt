@@ -2,22 +2,22 @@
 ---
 
 
-## 日铁起诉宝钢专利侵权，涉及碳化技术竞争
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597953/)
+## 美众议员提出反中国经济胁迫法案对抗中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597979/)
 
-作者：文小白
+作者：云豹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-共同社15日消息，日本制铁公司14日就电动汽车发动机等使用的电磁钢板，起诉中国宝山钢铁公司侵害了其专利权，并索赔约200亿日元,约合人民币11亿元 。
+美国众议院外委会亚太小组主席贝拉与共和党籍众议员华格纳等人，于15日提出反中国经济胁迫法案。民主党籍众议员卡斯楚、泰塔斯等也共同参与了此项提案。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-15.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9-2.jpeg)
 
-日本制铁公司拥有“无方向性电磁钢板”及高性能产品相关专利, 当天日铁以该专利 遭中国宝钢侵权为由，向东京地方法院提起诉讼。日铁主张，宝山钢铁在日本销售侵犯了成分和板材厚度等制造技术相关专利的电磁钢板，而丰田汽车采购使用了该产品。
+过去10年，中国对美国主要伙伴与盟国不断采取胁迫性经济措施，如2010年，日本与中国渔船在东海争议海域发生冲突时，中国停止向日本出口稀土；2016年，韩国同意美军在当地部署萨德导弹防御系统时，中国限制进口韩国娱乐与其他文化产品，禁止销售部分韩国家用产品并限制两地旅游；2020年，澳洲呼吁对冠状病毒起源进行独立调查后，中国对澳洲葡萄酒与大麦采取大幅提高关税以报复。
 
-出于对大气环境的保护,国际机构在二氧化碳排放量较多的钢铁生产行业, 确立了去碳化技术标准，各国以此展开激烈竞争。日铁发言人称 :“ 日本以技术立国,  凭借技术实力盈利并在世界投资, 而日铁的专利技术被中国窃取，我们无法保持沉默。”
+贝拉及华格纳表示，中共以强制性的经济制裁行为来惩罚违背其利益的国家和企业，损害了美国及盟友的利益。 这项法案的目的，在于确保美国能以全面的方式，实施对中共经济霸凌的回应和反击。
 
 (本文仅代表作者观点)
 
-参考链接：[关注：日铁起诉专利侵权或意在去碳化技术竞争](https://china.kyodonews.net/news/2021/10/e6839bd48937.html)
+参考链接：[中國經濟脅迫日增 美議員推法案反擊](https://www.cna.com.tw/news/firstnews/202110160013.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 

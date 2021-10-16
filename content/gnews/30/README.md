@@ -2,27 +2,50 @@
 ---
 
 
-## 台陆委会称目前局势接近准战争状态
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1598029/)
+## 中国房价下跌波及半数以上省份
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1598035/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
+据《日经亚洲》记者：IORI KAWATE，2021年10月14日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2545.png)中国南方城市深圳的房地产经纪公司。（摄影：Yusuke Hinata）
+北京——由于政府试图控制房地产泡沫，中国大部分省份的房价六年多来首次下跌，导致负债累累的地方当局急于为下跌设置底线。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-15.png)
-文章仅代表作者本人观点，与Gnews无关
+官方数据显示，包括中央直辖市在内的 31 个省中有 16 个在 8 月份录得价格跌幅，为 2015 年 3 月以来的最大跌幅。
 
-视频参看：2021.10.16早GTV新闻访谈
+随着旨在刺激经济的减税削减收入，城市越来越依赖土地作为金融生命线。但中央政府对房地产投机的限制威胁到了这些资金流动。
 
-[https://gtv.org/video/id=616ac57a304e992109b5daab](https://gtv.org/video/id=616ac57a304e992109b5daab)
+情况可能比官方数据显示的还要糟糕。难以获得资金的房地产开发商正急于抛售库存以追求快速现金回流。网上传言称，受危机影响的中国恒大集团和其他开发商的房产开始以原价的一半出售。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+中（共）国的土地属于国家或集体所有，地方政府将使用权出售给房地产开发商，用于建造住房或商业设施。2020年此类销售收入相当于中央和地方税收总额的一半以上。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+为了阻止价格下跌，岳阳和张家口自 8 月以来禁止开发商以超过 15% 的折扣出售新物业。无锡部分地区禁止以低于建造成本的价格出售房产。据中国媒体报道，大约有 10 个主要是低线城市对降低房地产价格施加了限制。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+城市也在努力重新点燃需求。位于重灾区黑龙江省的工业中心哈尔滨本月开始向具有全日制博士学历的首次购房者提供高达 10 万元人民币（15,500 美元）的补贴。政府资助的抵押贷款现在可用于 30 年以下的现有房屋，而之前的最高期限为 20 年。
+
+中央政府通过加强抵押贷款审查等措施减少城市公寓投机活动的努力已经开始给市场降温。根据国家统计局的数据，8 月份按面积计算的新房价格同比下降 2.7%，这是自 2020 年 4 月以来的首次下降。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-292.png)2019年昆明在建房屋。云南省是今年8月房价出现两位数下降的地区之一。©路透社
+但这些限制也加剧了面临居民外流的中小城市的需求萎缩。东北地区的黑龙江 8 月份房价跌幅最大，为 21%。南部的云贵省和内陆的宁夏回族自治区都出现了两位数的下降。
+
+较低的公寓价格会影响建造新住房的土地市场。由于开发商资金短缺，土地拍卖越来越难以吸引买家。
+
+根据财政部的数据，8 月份土地销售收入同比下降近 20%，为 2015 年 8 月以来的最大降幅。
+
+较低的收入使城市更难偿还资产负债表内外的大量债务。
+
+国家附属智库中国财政科学院的一份报告估计，截至 2018 年 2 月2018年底，地方政府的“隐形”债务在21万亿元至45万亿元之间——超过公开披露的18万亿元。
+
+在发达经济体，对业主征收的税款为地方政府提供了稳定的收入来源。2013 年中国共产党中央委员会全体会议批准的一项改革计划要求就财产税立法。
+
+据报道，由于在主要城市持有或拥有持有大量土地的亲属的党内高级官员的反对，这一计划一再推迟。但房产税可能使中（共）国更接近于在稳定地方政府财政的同时遏制投机。
+
+文章点评仅代表个人观点
+
+文章来源：[https://asia.nikkei.com/Business/Markets/Property/China-s-housing-price-declines-spread-to-more-than-half-of-provinces](https://asia.nikkei.com/Business/Markets/Property/China-s-housing-price-declines-spread-to-more-than-half-of-provinces)
+
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场– Mike Li
+评论：洛杉矶盘古农场 –柯镇恶
+编辑：洛杉矶盘古农场-柯镇恶
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
