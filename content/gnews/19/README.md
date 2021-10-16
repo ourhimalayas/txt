@@ -2,208 +2,68 @@
 ---
 
 
-## 杀人的疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1597580/)
+## 习近平动真格，房地产税真的要来了
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1597595/)
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/C494469A-8A5C-4212-BF06-562B82C5D883.jpeg)](https://gtv.org/video/id=616a833ad2e2b8174875c4d5)
-[https://gtv.org/video/id=616a833ad2e2b8174875c4d5](https://gtv.org/video/id=616a833ad2e2b8174875c4d5)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/v2-13819addb31a4e655f3b22c837f83636_1440w.jpg)图片来源：知乎
+作者：顺其自然
+编辑：翼族
 
-字幕内容：
+​10月16日，中共《求是》杂志出版的第20期，发表中共中央总书记、国家主席、中央军委主席习近平的文章《扎实推动共同富裕》。文章中指出，在依法保护合法收入的同时，要防止两极分化、消除分配不公。要合理调节过高收入，完善个人所得税制度，规范资本性所得管理。要积极稳妥推进房地产税立法和改革，做好试点工作。要加大消费环节税收调节力度，研究扩大消费税征收范围。
 
-22 months into COVID,
+房产税的提出最早要追溯到2003年出台的《中华人民共和国物权法》，到今天已经足足十八年了。这十八年间，在国家重大会议上提及房产税的次数，已经多到数都数不清。
 
-进入COVID已经22 个月了
+2012年之后，每年都说要“稳步”推进房地产税，消息放出来是震天响，但就是看不见房产税的影，反而搞得市场一惊一乍。那么，为什么房产税迟迟不出台呢？
 
-we have all the information needed to paint a clear picture of what’s going on.
+很多人说，是法理障碍，是土地出让金争议。我们都知道，在中国买一套房子，都是交过土地出让金的。房价的绝大部分是土地价值，而土地出让金就相当于土地税，已经在买房的时候交过了，现在如果再征土地税，属于重复征税。
 
-我们拥有清晰描绘正在发生事情所需的所有信息
+再有经济学家任泽平曾提过一个观点，说房产税的出台要解决两个问题， 第一个问题是税基，第二个问题是税源，税基是评估这个房子多少钱，税源要弄明白谁名下有房子。
 
-We know the Anthony Fauci, who has done all this before
+这涉及到政治透明化的问题，牵扯到权力阶层的利益。因此，过去十多年中共不断高喊推行房产税和不动产实名制，但都失败了，房产信息也无法联网，这在互联网高度发达的现代社会是难以想象的。
 
-我们知道安东尼·福奇，他以前在 1980 年代在艾滋病毒、AZT(一种抗艾滋的药物) 和艾滋病方面上
+当年韩国为了推动不动产实名制和金融实名制，把超过2000名公务员送进了监狱、两任前总统送上了审判席。所以，深层次问题已不单是什么房产税，而是政治改革。
 
-in the 1980s with HIV, AZT, and AIDS
+我们知道拥有多套房产的都是官员，尤其是省部级的官员，厅局级的官员等等，他们每个人手里怎么也有个百八十套房，所以阻碍房产税出台最大的障碍就是这些官员们。
 
-和艾滋病方面上曾经做过同样的事
+房产税一直迟迟不出，还有一个原因就是土地财政还没有到头，地方政府在土地出让金上拿到的钱比房产税可以收到的钱多多了，只要有土地出让金存在，他们就不会有动力去征收房产税。
 
-was illegally working with the Communist Chinese via the NIH
+但是现在这些不能征收房产税的所有的障碍都不存在了。
 
-通过美国国立卫生研究院非法与中国共产党合作
+首先，恒大、花样年的暴雷，接下来的绿地、融创、富力、保利这些房地产都将要债务违约，这些都表明房地产已经走到了尽头。还有土地流拍，很多城市都出现了土地流拍，即使是没有流拍的城市，土地拍卖价也没有再出现溢价。也就是说，地方政府通过土地出让金来维持地方政府运作的这条路已经被堵死了，地方政府已经没有收入的来源了。
 
-to create a highly contagious, bat Coronavirus in Wuhan, China.
+再不出房产税的话，地方政府的公务员就要喝西北风了。在中国这么一个人口大国，如果没有地方政府去维持基层的运转，那么中国就会出现乱子，所以他一定要想办法来维持地方政府的运转，而地方政府的运转不能没有钱，所以上头一定要给地方政府的新的生财之道，这就是房产税。
 
-在中国武汉制造一种具有高度传染性的蝙蝠冠状病毒
+再有，从2016年涨价去库存之后，中国的生育率直线下降，新生儿的出生率已经出现了暴跌，从2016年到现在已经暴跌了45%，如果房价再高高在上的话，20年之后中国就真的没有年轻人了。一个国家的正常运转，最主要的是需要有新的劳动力的人口和消费人口，如果没有这些，其余的都是瞎扯。在全国第七次人口普查的新闻发布会之后，中共政府就急急忙忙地推出了可以三胎政策，然后打击教培行业，这都是为了让人们要多生孩子，促进人口生育率的增长。所以中共必需打击高房价。而打击高房价，其中一个主要的手段就是征收房产税。
 
-We know that the PCR test was used to fraudulently create
+很多人也许会说，房东可以把房产税转嫁到租户身上，殊不知，租金是看租住房子的人的收入，如果租客收入很低，还要把租金都交给房东，那他宁可回老家，不再外出打工了。
 
-我们知道，PCR病毒测试被用于欺诈地制造
+省部级干部也好，厅局级干部也好，他们手里有很多套房，在地方政府还有收入来源、还有土地出让金的情况下，他们也许可以阻碍房产税的推出。但是中国的房地产已经走到了尽头，而地方政府已经收不到土地出让金的情况下，这些人就不会成为房产税出台的阻碍。其实真正的赵家人，也就是中南坑里边那几个家族那几个人，其余的人都是可以被牺牲的。
 
-a flood of false positives to legitimize the FDA emergency vaccine authorization.
+在习近平看来，人口出生暴跌，地方政府没钱来维持基层的运转，已经威胁到他的统治了，所以他一定要推出房产税。只要习近平下定决心，一发话，这房产税出来的就会非常快了，估计年底细则就会出来。房产税会成为地方政府的新税种。在这种情况下，所谓的法理——土地出让金里已经交过税了，不能再重复收税了，既然对外的《中英联合声明》都可以成为历史文件，那对内对老百姓可能连解释都不会多解释，直接出台政策。
 
-大量误报为阳性，以使食品药品监督管理局紧急疫苗授权合法化
+但房产税怎么征收，还没有消息出来。像我的同学在北京金融街，他之前工作的时候单位分的一套房，最后他买下了，是他自己的产权。他这套房子还不到100平，90多平的两房一厅，现在已经2000多万了，这种房子的房产税他应该怎么交呢？还有像在一些小城市，有的人住三四百平的房子，以及在北京郊区买的三、四百平的别墅，其实都没有北京金融街一套不到一百平的房子贵。
 
-We know that the COVID vaccines are not vaccines,
+也许可以参考日本和美国的房产税。
 
-我们知道COVID疫苗不是疫苗
+日本的房产税是指房屋和土地的固定资产税和都市计划税，常被简称为固都税（房产税）：
+01 – 固定资产税为房产评估价的1.4%。
+02 – 都市计划税为房产评估价的0.3%。
+也可以简单的理解为，日本房产每年的固都税大约是房产售价的0.3%-0.4%。
 
-but rather, highly controversial mRNA, tech that failed miserably on its animal trials,
+而美国的房产税与中国不同。美国的土地和房产都是私有的。房主拥有永久产权，不用担心被强拆，但需要每年缴纳数额不小的房产税。房产税征收在美国已有200多年的历史，从建国初期就被写进了各州法律。房产税由各州政府征收，也由各州自行决定税率的高低，是地方政府的消防、教育、医疗等公共服务费用主要来源。
 
-而是极具争议的mRNA，是在动物试验中惨遭失败的技术
+房产税率最高的三个州为新泽西、伊利诺伊和新罕布什尔；最低的三个州为夏威夷、阿拉巴马和路易斯安那。目前税率是1%到3%。
 
-the type of gene therapy that several top scientists warn will kill you
+无论房产税怎么收，这次房产税是必须推出的。对于那些大部分收入用来支付房贷的普通人来说，房产税的出台将会是雪上加霜。
 
-几位顶尖科学家警告的基因治疗类型可能会杀死你
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-if you can’t keep it from spreading throughout the body, which is exactly what it is doing.
+**YOUTUBE链接：**[闲聊澳洲](https://www.youtube.com/watch?v=RZ-oB385OTo)
 
-如果你不能阻止它扩散到全身，而这正是它正在做的
+*发布：翼族*
 
-We know that no matter how deadly these experimental shots are
-
-我们知道，无论这些实验性疫苗是多么致命
-
-the company selling them, will not be held liable.
-
-出售它们的公司将不承担任何责任
-
-It is all being taken care of by taxpayer dollars.
-
-这一切都由纳税人的钱来支付
-
-We know that the ingredients are a big secret.
-
-我们知道它的成分是一个大秘密
-
-And they don’t want you to know what’s in them.
-
-而且他们不想让你知道他们里面有什么
-
-And we know that some are getting saline placebos.
-
-我们知道有些人正在使用生理盐水安慰剂
-
-But now we are learning what these experimental jabs, are actually doing.
-
-但是现在我们正在学习这些实验性疫苗实际上在做什么
-
-Dr. Ryan Cole, a pathologist,
-
-病理学家瑞安 科尔博士
-
-running the biggest independent testing lab in Idaho
-
-在爱达荷州运行着最大的独立测试实验室
-
-described how the mRNA shots are causing serious autoimmune disorders.
-
-描述了mRNA注射如何导致严重的自身免疫性疾病
-
-The first shot stifles the production of lymphocytes, which cripples the immune system,
-
-第一剂会抑制淋巴细胞的产生，从而削弱免疫系统
-
-resulting in a massive increase of autoimmune diseases and cancers.
-
-导致自身免疫性疾病和癌症的大量增加
-
-The blood work presented by Dr. Nathan Thompson shows the same,
-
-这与内森·汤普森博士提供的血液检查结果显示相同
-
-and after receiving the second shot their immune system begins to fail even more.
-
-在接受接种第二剂疫苗后，他们的免疫系统开始更加衰竭
-
-According to one of the top virologists running this program,
-
-根据运行该计划的顶级病毒学家之一的说法
-
-you need the booster shot because your immune system
-
-你需要疫苗加强针，因为你的免疫系统
-
-is now failing as a result of getting the previous two shots.
-
-在你得到的前两剂疫苗现在正在减弱
-
-The data consistently shows that these shots
-
-数据一致表明这些注射的疫苗
-
-are causing massive cellular mutation throughout the entire body.
-
-正在导致整个身体的大规模细胞突变
-
-Often, wherever the recipient is most vulnerable.
-
-通常，在接种者最脆弱的地方
-
-We know that some of these shots are contaminated with mysterious objects
-
-我们知道其中一些疫苗被神秘物体污染了
-
-that appear to grow into other objects.
-
-似乎长成为其他的物体
-
-For what purpose. We don’t know.
-
-出于什么目的， 我们不知道
-
-But we do know that our government, along with the entire pop culture media machine
-
-但我们确实知道，我们的政府以及整个流行文化媒体机器
-
-are blocking life saving treatments, while keeping them for themselves.
-
-正在阻止挽救生命的治疗，同时保留着它们为他们自己使用
-
-While pushing the deadly kill shot on the public,
-
-在向公众推销致命疫苗的同时
-
-and creating a segregated society.
-
-并创造了一个隔离的社会
-
-We know without a doubt that these mRNA injections are killing people.
-
-我们毫无疑问地知道这些mRNA疫苗注射正在杀人
-
-While some may get lucky with saline placebos.
-
-虽然有些人可能会幸运的得到生理盐水安慰剂
-
-Most are having their immune system destroyed from the inside out.
-
-大多数人的免疫系统都是由内到外被破坏的
-
-We know these things, because at this point, the evidence is overwhelming.
-
-我们知道这些事情，因为在这一点上，证据是压倒性的
-
-And we know that it’s the big banks, calling all the shots for their great reset,
-
-我们知道，这是大银行为他们的“大重置”发号施令
-
-which they claim is a trans humanist utopia, a cure to climate change.
-
-他们声称这是一个跨人文主义的乌托邦，是对气候变化的治疗
-
-But who knows what we all instinctively know is how to stop them.
-
-但谁知道我们都本能地知道如何阻止它们
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: [https://forbiddenknowledgetv.net/kill-shot/](https://forbiddenknowledgetv.net/kill-shot/)
-
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
-审片：洛杉矶盘古农场-银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

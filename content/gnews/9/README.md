@@ -2,27 +2,40 @@
 ---
 
 
-## 针下亡魂｜新加坡 44 岁指挥家接种疫苗七周后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1597702/)
+## “只有新中国联邦能给中国人民带来希望”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597705/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 16/10/2021**
+作者：雪梨
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月15日，郭文贵先生在盖特视频中讲到，中共不允许中国人民购买虚拟币，但中共自己的家族成员却不受法规监管和约束。只有消灭中共，才能诞生相对客观、公平的制度，中国人民才会有希望。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-291.png)
+为了阻止喜币上市，中共制定各项政策，联合并操控全世界的金融机构，禁止中国人民购买虚拟币。但对于中共高层及其家人，中国的法律体系只是为其服务而已。他们在海外金融机构的掩护下，肆意窃取中国老百姓的血汗，藏匿万亿财富。而国内数亿人口仍处于贫困线以下，杨改兰事件层出不穷。所谓的“中国梦”，是中共一手编造的骗局，是不可能实现的幻想，而对于底层老百姓，则是历经70余年的噩梦统治。
 
-***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
-![](https://assets.gnews.org/wp-content/uploads/2021/10/30-1.jpg)
-【新加坡】一名 44 岁的交响乐团总指挥家 Adrian Tan 在接种 COVID-19 疫苗后七周内，在睡梦中死于心脏骤停。
+爆料革命不落下任何一位战友，确保每一位，为灭共事业付出的战友，得到应有的尊重和回报。文贵先生为3月中旬后新增投资的战友，和法治基金捐款者，争取到了额外的喜币福利。新中国联邦和爆料革命不忘记任何一位战友。
 
-Adrian 于 2012 年成为新加坡管乐交响乐团和布拉德尔高地交响乐团的音乐总监，是新加坡赫赫有名的音乐家，在此之前，他曾在新加坡海军担任海军军官十年，体魄十分健硕。可惜，他 5 月 24 日打了第一针疫苗之后，在接近两个月的时候，即 7 月 12 日当晚，就在睡梦中意外过世。
+文贵先生再次用实际行动证明，新中国联邦能给中国人民可兑现的希望，而不是中共不切实际的许诺。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Adrian-Tan-1-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Adrian-Tan-2.jpeg)
+参考链接：
+[https://gettr.com/post/pe9beaf54d](https://gettr.com/post/pe9beaf54d)
+[https://gettr.com/post/peadc98dd3](https://gettr.com/post/peadc98dd3)
 
+新闻访谈终审：暗黑
 
-今年早些时候与 Adrian 共同创立亚洲指挥学院的两位朋友之一 Chiang 表示难以置信，亦非常意外，“他总是充满活力，是一个非常健康的人，所以我很想知道到底发生了什么，是什么夺走了一位年仅 44 岁，才华横溢的音乐家的生命。”
+**本文谨代表作者观点**
 
-另外据 [theviolinchannel.com](https://theviolinchannel.com/conductor-adrian-tan-has-died-aged-44-obituary/) 报导指：“Tan 的去世消息令人震惊，因为他没有任何健康问题。”据悉，Adrian 与他的母亲一起生活，儿子的过世，令孤苦伶仃的母亲难以接受。
+![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
 
-来源｜[个案030](https://www.straitstimes.com/life/arts/home-grown-music-conductor-adrian-tan-dies-in-his-sleep-aged-44)
+**校对/发稿：童谣**
 
-* * *
+**更多资讯，更多关注**
 
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
