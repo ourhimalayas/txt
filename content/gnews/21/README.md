@@ -2,23 +2,22 @@
 ---
 
 
-## 全球航空货运业或于12月开始崩溃
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597112/)
+## 新中国联邦旗帜在马拉松比赛中走向世界
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597158/)
 
-作者：Ryan
+栏目记者：新世界的一员
+责任编辑：晓仙女
 
+2020年6月4日，新中国联邦应时代局势庄严成立，我们的国旗代表“自由、民主、法制、信仰”，是正道主义的化身。
 
+10月14日郭文贵先生盖文展示，在10月11日举行的波士顿第125届马拉松比赛的跑道上，一位参赛的，脸带自信微笑，帅气的爆料革命战友（来自香草山农场的煤油灯），手握美丽庄严的新中国联邦旗帜，精神抖擞，身影矫健，成为赛场上一道亮丽的风景线，吸引当地记者快速按下了相机快门，把正走向胜利的新中国联邦的形象传向了世界。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-News Target13日消息称：因疫苗强制政策而失去数万名员工，波音公司将无法向世界各地的波音飞机机主提供备件，供应链或于12月开始崩溃，航空货运业也将崩溃。波音公司要求125,000 名员工在 12 月 8 日之前必须接种新冠疫苗，否则将会被解雇。预计数以万计的波音员工会拒绝要求并辞职。由于国际海运物流供应链已经处于崩溃状态，空运便成为全球货物运输的唯一选择。而联邦航空局规定所有波音飞机都有细致的维护计划，对新零件、发动机大修和设备更换有稳定的需求。如此一来，除非取消强制疫苗接种政策，否则到2022年春季航空货运是否能正常运作是非常值得怀疑的。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-4.jpg)
-物流供应链连番遭受的重创，势必进一步推高物价，令本已通胀高企的世界经济形势雪上加霜。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-92.jpg)
+唯真不破的新中国联邦人走到哪里，哪里就会成为亮点。 我们为身为新中国联邦的公民而感到无比自豪。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-46.jpg)
 参考链接：
-[Hospitals are literally SUFFOCATING patients with plastic bags; AIR CARGO will be halted this winter due to collapsing airplane parts supply chain](https://newstarget.com/2021-10-13-hospitals-suffocating-patients-plastics-bags-air-cargo-halted-parts-supply-chain.html)
+1. [郭先生盖特： 10月14号：新中国联邦的旗帜在我们帅气，健康的战友的手中，第一次在马拉松比赛中，走向了胜利。](https://gettr.com/post/pe6v027c80)
+2. [长岛哥盖特： 太棒了**👏👏👏**香草山的煤油灯战友手举新中国联邦国旗跑完了波士顿马拉松全程。未来新中国联邦国旗会出现越来越多的国际赛场上**💪💪💪**](https://gettr.com/post/pe665y48ed)
+
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)

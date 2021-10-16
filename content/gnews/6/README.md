@@ -2,30 +2,21 @@
 ---
 
 
-## 病毒专家彼得·麦卡洛：某些非常糟糕的事情正在发生
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1597311/)
+## 秘翻在线：纽约市长候选人多年前就被中共统战部游说影响
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1597362/)
 
-撰稿：Gradient Boost
+#### 撰稿：彩虹
 
-视频制作：澳洲天好蓝
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-38.jpg)图片来源：ABC7 New York
+10月15日，《国家脉动》调查记者娜塔莉·温特斯（Natalie Winters）发布文章，指目前竞选纽约市市长的民主党候选人埃里克·亚当斯（Eric Adams）早在2017年就被中共国统战部游说影响。
 
-近期，知名的COVID-19专家和拥有众多出版期刊的医生彼得·麦卡洛（Peter McCullough）博士向同事们提供了一份有关中共病毒疫苗全面的、有据可查的报告。在报告宣讲的开头，麦卡洛博士便坦诚：“我们感觉到这个世界上正在发生非常糟糕的事情。”
+根据公开的信息，中国人民对外友好协会（CPAFFC）由于“直接和恶意游说影响”美国官员的活动以及作为“公开的党国机构”而被美国国务院标记。根据联邦美中安全与经济审查委员会（U.S.-China Security and Economic Review Commission）的说法，该机构由中国共产党数十亿美元进行资助，旨在“收编和消除潜在的反对中共执政的敌对政策和相关权威来源”并“游说影响外国政府采取支持北京中意政策的行动或立场”。
 
-麦卡洛博士来自德克萨斯，早年毕业于美国知名院校，有着非常丰富的学术研究以及医学经验，在多家学术机构担任主编、学会主席、总顾问等职位。然而自从他开始演说以来，已经被多家机构剥夺了资格以及头衔，失去了在大型医疗系统工作的资格，甚至还收到了来自美国医师协会的恐吓信件。
+根据中国人民对外友好协会官网的介绍，尽管该机构被美国相关组织和政府披露为游说影响外国行动并有相关记录，但2017年10月，作为当时的纽约市布鲁克林区区长的亚当斯到中国受到了该机构相关负责人的接待。如下图所示，（2017年）10月19日，美大部主任张和强在京会见了来华访问的美国纽约市布鲁克林区区长埃里克·亚当斯。该主任向他介绍了中国人民对外友好协会的工作职能及对美工作情况，并总结了亚当斯此行的目的：“未来希望进一步推进布鲁克林区对华交往，增进双方在青少年交流、文化、商贸等领域的合作。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片2-20.png)图片来源：中国人民对外友好协会官网截图
+**新闻来源**
 
-麦卡洛博士认为虽然当前一切似乎仍然处于正常状态，但是很快随着事情的发展，这一现状将完全瓦解。许多业内人士其实也都有类似的感觉，并且通过邮件的方式询问接下来到底应该采取怎样的行动，而在目前这个节点，有力的行动是扭转糟糕事态的关键。
+[New York Mayoral Candidate Eric Adams Met With Chinese Communist Party Influence Group Seeking To ‘Malignly Influence’ American Officials](https://thenationalpulse.com/exclusive/eric-adams-met-with-cpaffc/)
 
-本文视频中包含更多麦卡洛博士对自己的学术经历的详细介绍，以及对他在开始宣讲活动后遭受学术检查和威胁报复的详细说明。欢迎各位读者点击播放进行收看。
-
-要想了解麦卡洛博士更多有关疫苗的研究内容，请查看一下两篇视频文章：
-
-《[知名病毒专家重磅演讲戳穿疫苗谎言](https://gnews.org/zh-hans/1596024/)》
-
-《[科学家爆料：人类有史以来第一次通过疫苗使人体产生一种异常蛋白质](https://gnews.org/zh-hans/1595247/)》
-
-（本文纯属个人观点，与Gnews无关）
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+[美大部主任张和强会见美国纽约市布鲁克林区区长](https://www.cpaffc.org.cn/index/news/detail/id/1072/lang/1.html)

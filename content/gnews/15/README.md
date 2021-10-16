@@ -2,41 +2,34 @@
 ---
 
 
-## 新中国联邦旗帜在马拉松比赛中走向世界
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597158/)
+## 中共建设类似台北的模拟城市进行军事模拟训练
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597249/)
 
-栏目记者：新世界的一员
-责任编辑：晓仙女
+作者：RYAN
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+澳媒news.com10月14日报导：中共国建设类似台北的模拟城市进行军事模拟训练，证明中共多年来一直在为一场引发全球大规模冲突的战争而准备。2013 年 3 月下旬至 2015 年 3 月中旬在内蒙古朱日和作战训练基地的卫星图像记录了模拟台北的建造过程。总统总部是模拟城市最显著的特征。2015 年年中，中共官媒播放了解放军模拟在台北地区进行的训练演习的简短片段：军队从直升机上降下并走上街头，发射机枪并袭击总统总部。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture500-1.jpg)
+在过去三年的大部分时间里，台湾人民一直忍受着中共的军事挑衅和武力统一的威胁。
 
-2020年6月4日，新中国联邦应时代局势庄严成立，我们的国旗代表“自由、民主、法制、信仰”，是正道主义的化身。
+过去几周，中共无视台北和美国的警告，通过定期飞越台湾领空来展示其空中力量。
 
-10月14日郭文贵先生盖文展示，在10月11日举行的波士顿第125届马拉松比赛的跑道上，一位参赛的，脸带自信微笑，帅气的爆料革命战友（来自香草山农场的煤油灯），手握美丽庄严的新中国联邦旗帜，精神抖擞，身影矫健，成为赛场上一道亮丽的风景线，吸引当地记者快速按下了相机快门，把正走向胜利的新中国联邦的形象传向了世界。
+9 月下旬，几乎每天都在发生突破防空识别区的事件。飞行演习一直在继续，引发了人们对其日益咄咄逼人的对台立场的担忧。台湾外交部长吴钊燮上周告诉美国广播公司，台湾已做好战争准备。分析人士说，习近平主席在推动台湾统一方面已经把自己逼到了绝路。
 
-唯真不破的新中国联邦人走到哪里，哪里就会成为亮点。 我们为身为新中国联邦的公民而感到无比自豪。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-46.jpg)
-参考链接：
-1. [郭先生盖特： 10月14号：新中国联邦的旗帜在我们帅气，健康的战友的手中，第一次在马拉松比赛中，走向了胜利。](https://gettr.com/post/pe6v027c80)
-2. [长岛哥盖特： 太棒了**👏👏👏**香草山的煤油灯战友手举新中国联邦国旗跑完了波士顿马拉松全程。未来新中国联邦国旗会出现越来越多的国际赛场上**💪💪💪**](https://gettr.com/post/pe665y48ed)
+郭先生近期的爆料也一再强调：中共入侵台湾的可能性达95%，台湾危矣！
 
 （本文仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+参考链接：[中共建设类似台北的模拟城市进行军事模拟训练](https://www.news.com.au/technology/innovation/military/proof-china-has-been-practising-for-years-for-a-war-that-would-spark-mass-global-conflict/news-story/efe55679a42171268224ba89b084e386)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
 新闻访谈终审：鬼五
-编辑/校对/发稿：为真不破20
+编辑/校对/审核：Hetangyuese
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

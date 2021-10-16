@@ -2,26 +2,66 @@
 ---
 
 
-## 联邦法官就强制疫苗政策对联合航空公司发出限制令
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1597156/)
+## 我是一名囚犯
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1597212/)
 
-#### 撰稿：Grace
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-49.jpg)图片来源：网络截图
-据Breitbart10月12日报道，联合航空（United Airlines）公司最初要求它的6.7万名美国员工，必须在9月27日之前接种中共病毒疫苗（或获得豁免），否则将面临解雇。根据该公司的强制疫苗规定，任何获得豁免的员工仍将被视为受雇，但将被置于无薪休假状态，并将失去长达6年的福利，或直到航空公司认为疫情对未接种疫苗的员工来说是安全的，才能返回。
+撰稿：一英里
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1612.png)图片来自网络
+我是一名奇怪的囚犯
+我有家庭，孩子，事业和工作伙伴
+我甚至可以自由行走
+好像和世界上其他的75亿人一样
+每天上下班，或者听音乐，或者阅读
+假期还可以去爬山，游玩……
+坦白地讲，我每天生活充实
+甚至快乐，甚至幸福
 
-Conservative Institute 10月14日报道， 美国联合航空公司对员工实施了这一严格疫苗规定后，导致一些工人提出了联邦诉讼，要求法官发布禁令。
+但我是一名囚犯，一个木头人
+一头野蛮的怪兽，一具行走的僵尸
+但对于它们来说，我最好就是一件器具
+但坏就坏在，我不是
+我似乎了解得太多，知道得太多
+我了解它们的邪恶，知道它们的骨子里
+流淌的不是它们自己的血——
+那是14亿老百姓的血🩸
+但这还不可怕
 
-联合航空公司请求驳回该诉讼，**但联邦法官在本周三发布了一项临时限制令（****TRO****），禁止该公司在诉讼继续进行时，在10****月26****日之前，强制员工打中共病毒疫苗或拒绝员工的宗教或医疗的豁免请求。**
+可怕的是，周围的囚犯也不认为我是囚犯
+我的身上没有枷锁
+我的手上也没有手铐
+他们也没有
+在很多囚犯眼里
+我甚至是活得不错的人
+但我知道
+我是一名囚犯
 
-参与该集体诉讼的六名主要员工声称，该公司违反了1964年《民权法案》第七章（Title VII of the Civil Rights Act of 1964 ）和《美国残疾人法案》（ADA），对寻求医疗或宗教豁免的人进行报复。
+请您也不要否认这一点
+我是一名囚犯
+自从我出生那一刻开始
+我就成了它们终生的囚徒
+它们希望我永远都不要醒来
+沉睡在它们的梦里——
+那个伟大光荣正确的谎言
 
-在星期三裁决中，美国联邦法官马克.皮特曼（Mark Pittman ）写道：“法院现在得出结论，有必要发布这个临时限制令，以避免不可挽回的伤害风险，并在法院审理和解决原告的初步禁令动议之前维持本案的现状。”
+如果不是上天的安排
+我不会知道自己是一名囚犯
+如果没有爆料革命
+我会成为它们眼中完美的囚徒
+我甚至会亲吻那手铐
+紧紧抱住那冰冷的枷锁
+我会爱上这座人世间最大的炼狱
+最后，在我死之前，我会和别的囚犯一起
+为它们唱响赞美的高歌
 
-尽管法官明确表示，他没有对该案的 “案情进行裁决”，但他重申，他的法庭 “只是寻求避免对各方造成不可挽回的伤害的风险，并在提交证据的同时维持现状。”
+如今
+我依然是它们的一名囚犯
+但那只是肉体上
+在精神上
+我已获得了自由
 
-为此，他命令联合航空公司在本月尾之前，“暂时限制”已获延期的未接种疫苗的员工无限期无薪休假。该法官还禁止联合航空拒绝接受员工在8月31日之后提交的住宿申请。
+（本文仅代表作者个人观点）
 
-**新闻来源：**[**Judge issues restraining order against United Airlines over vaccine policy**](https://conservativeinstitute.org/conservative-news/judge-issues-vaccine-mandate.htm)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-[**Exclusive — Federal Judge Blocks United Airlines From Imposing Employee Vaccine Mandate**](https://www.breitbart.com/politics/2021/10/12/exclusive-federal-judge-blocks-united-airlines-from-imposing-employee-vaccine-mandate/)
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

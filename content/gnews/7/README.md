@@ -2,32 +2,31 @@
 ---
 
 
-## 世界医师会通过支持台湾参与 WHO、WHA 的决议文
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597252/)
+## 米歇尔和习近平通话后 中国同意与欧盟举行峰会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597358/)
 
-作者：RYAN
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
-法广援引自由时报 10 月 15 日消息，10 月11 日至 15 日在伦敦召开的世界医师会（WMA）会员大会上，中共国医师会试图再次打压台湾的提案，遭到了各国代表的强力抵制。
+#### 作者：东京樱花团｜文小白
 
-WMA 拥有 115 个会员国，是世界重要的医疗组织，也是 WHO 重要的国际非政府专业组织合作伙伴之一，在全球医疗及公共卫生等议题扮演关键角色。此次视频会议中，中共国医师会不顾此前的会议结果，提案要求取消支持台湾参与世界卫生组织（WHO）、世界卫生大会（WHA） 的决议文。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture600.jpg)
-台湾的防疫方面的成就深受各国肯定，台湾医师会长期受到中共打压有目共睹，有违“健康为基本人权，不因种族、宗教、政治信仰、经济或社会情境而有所分别”这个世卫组织及世界医师会的普世价值。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/欧中.png)[*图片来源*](https://gdb.voanews.com/6182A7A6-CD14-42D2-9F02-C58F774B3D59_w1597_n_r1_st.jpg)
 
-经过激烈辩论，各国代表以 99 票对 19 票否决中国医师会的提案，并以 91 票比 16 票再次通过支持台湾参与 WHO、WHA 的决议文。按照 WMA 的议事规则，决议文原则上 10 年检讨一次，因此 WMA 支持台湾的决议文修正案已经完整定案，理论上中共国医师会10年内不能再提出否决案。
 
-（本文仅代表作者观点）
+欧洲理事会主席米歇尔（Charles Michel）周五（15日）与中共国主席习近平进行了今年以来的首次通话。米歇尔表示中共国同意很快与欧盟举行峰会。
 
-参考链接：[世界医师会通过支持台湾参与 WHO、WHA 的决议文](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211015-%E6%8C%BA%E5%8F%B0%E6%B9%BE-%E4%B8%96%E7%95%8C%E5%8C%BB%E5%B8%88%E4%BC%9A%E4%B8%A4%E6%AC%A1%E5%90%A6%E5%86%B3%E4%B8%AD%E5%9B%BD%E5%8C%BB%E5%B8%88%E4%BC%9A%E6%8F%90%E6%A1%88)
+米歇尔本人与习近平通话后则表示，欧中关系尽管存在分歧，但对话仍然至关重要，双方同意举行峰会，认为国际社会需要团结一致。米歇尔强调，欧盟随时准备与中共合作，包括应对气候变化、流行病防范、经济复甦等全球性挑战，以及阿富汗等地区问题和安全。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+说在台湾议题方面，米歇尔提及对近期南海及两岸紧张局势升级令人担忧。米歇尔通话时还提及欧盟对中国人权状况的关切，强调需要就此问题继续对话。此外重申：欧盟认为对欧洲议会议员等实施制裁是不合理和不可接受的。
 
-新闻访谈终审：Q大哥
-编辑/校对/审核：Hetangyuese
+- ***延展阅读：***[***欧盟向中国领导人摊牌：我们要求对等、负责和公平***](https://www.voachinese.com/a/eu-china-summit-20200915/5583865.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+
+中共官媒对这次中欧领导人通话的报道明显具有“中国特色“，据新华社在通话后所发布讯息称，中欧关系有必要加强战略沟通，且指中方有发展中欧关系的诚意，同时也会坚定维护自身主权、安全、发展利益等。
+
+欧盟和中共国是世界上最大的两个贸易国，自从新冠病毒爆发之前，欧盟和中国就没有举行过面对面的峰会。欧盟和中国上一次视频峰会于2020年12月30日举行。
+
+**新闻来源：**[米歇尔和习近平通话后 中国同意与欧盟举行峰会](https://www.voachinese.com/a/china-agree-to-hold-summit-michel-says-after-xi-call-20211015/6273139.html)
+
+（本文只代表个人观点，与Gnews网站无关）
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-7.png)
