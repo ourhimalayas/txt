@@ -2,44 +2,33 @@
 ---
 
 
-## 报告显示苏格兰接种中共病毒疫苗后死亡的情况在恶化
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1596328/)
+## Coinbase拒绝SEC监督，要求成立新监管机构
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1596582/)
 
-**By:秘翻新闻**
+**撰稿：日本东京方舟农场 海星**
 
-***2021-10-15***
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/1015-2.jpg)](https://gtv.org/broadcast/watch/6169422c304e992109b56d48)点击图片观看视频
-**新闻摘要:**
+据《华尔街日报》10月14日报道，美国最大的加密数字货币交易所Coinbase计划公布的一份文件中表示，要求国会阻止证券交易委员会（SEC）监督数字资产行业，并成立一个新的监管机构。
 
-1.扩大电价浮动范围后 李克强广东提电费上涨
+据报道，在上周国会的听证会上，SEC主席加里·詹斯勒（Gary Gensler）称，如果国会要从证券法中划分出一些东西，可能会破坏90年的经济成果及损害7000多个发行人的利益。而Coinbase在计划公布的文件中则表示，数字资产应该有一个指定的监管机构，而不是面临SEC或商品期货交易委员会等多个机构的监管威胁。
 
-2.中国大陆逾半省级行政区房价下跌
+该文件指出，单一的监管机构将消除加密货币公司同时应对众多联邦、州政府机构监督的必要性，并且它们也必须自我约束。
 
-3.中国PPI升幅创新纪录，对全球供应链酿新威胁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/b61a-219df613bc00ef3104470c9a41d9408a.jpg)图片来自于网络
 
-4.中共严控财经资讯 上海知名分析师被刑拘
+Coinbase在文件中写道，20世纪30年代，SEC为了有效监督金融市场而起草的法律已经无法监管正在进行中的数字技术革命。它强调，国会应该在法律上承认所有数字资产，包括传统金融资产的数字原生版本，都应该受到新的监管制度的约束。
 
-5.全球经济陷入通胀完美风暴
+今年9月，Coinbase首席执行官布莱恩·阿姆斯特朗(Brian Armstrong)在推特上写道，SEC威胁要对该公司的加密数字货币借贷项目采取法律行动，但此项目并不受其监管。他表示，SEC的这种行为相当于闭门造车的恐吓。
 
-6.台湾国防部长称不会主动挑起战争
+Coinbase表示，SEC不愿澄清为什么该项目有资格受到监管。
 
-7.以法灭共要把中共对西方的法律超限战挖出来
+*注：本文仅代表作者观点，与 Gnews无关*
 
-8.日本众议院解散
+*参考链接：*
 
-9.报告显示苏格兰接种中共病毒疫苗后死亡的情况在恶化
+[Coinbase Pitches Blueprint for Special Crypto Regulator](https://www.wsj.com/articles/coinbase-pitches-blueprint-for-special-crypto-regulator-11634231298)
 
-10.美国牧师倡导“宗教豁免” 反抗强制疫苗接种
-
-11.美国港口24小时运营 缓解货物积压
-
-12.微软将停止在中共国运营社交平台LinkedIn
-
-**GTV链接：**[https://gtv.org/broadcast/watch/6169422c304e992109b56d48](https://gtv.org/broadcast/watch/6169422c304e992109b56d48)
-
-发布: 文橙
+[不願受SEC監管 Coinbase提議設新監管機構](https://ec.ltn.com.tw/article/breakingnews/3704879)
 
 * * *
 
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+*编辑：文顺 校对：Ranting 发布：Ranting*

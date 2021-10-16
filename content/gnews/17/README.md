@@ -2,35 +2,25 @@
 ---
 
 
-## 新州最高法院驳回两起强制接种疫苗诉讼案件
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1596904/)
+## 让中共改善民生，实现三免比登天都难
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597072/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/vaccine-mandatory-label.jpg)图片来源：Sydney Criminal Lawyers
-**整理报道：**翼族
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-91.jpg)[图片来源](https://kknews.cc/zh-sg/history/l8xv46b.html)
+酒泉10月16日电，2003年10月15日，中国首飞航天员杨利伟从酒泉卫星发射中心出发，迈出了中国人遨游星汉的第一步。
 
-来自澳大利亚新南威尔士州的工人，对新州卫生部长布拉德·哈扎德（Brad Hazzard）要求强制接种疫苗的命令提起了两起诉讼，周五当地时间下午4点，两项挑战均被新州最高法院驳回。
+2021年10月16日，神舟十三号载人飞船成功在长征二号F运载火箭的托举下升空。18年，从神舟五号到神舟十三号，从一人一天到三人半年，中国人奔赴星辰大海的步伐从未停止。
 
-工人们认为新州政府试图从疫苗接种的争论中删除个人选择。
+半个多世纪前，一曲《东方红》响彻寰宇。从“两弹一星”到“载人航天”，“航天梦”早已汇入伟大的“中国梦”，“嫦娥”奔月、“北斗”指路，“天问”问天、“天宫”览胜，“玉兔”探月、“祝融”探火、“羲和”探日……看似飞天梦永不失重，科学梦张力无限。
 
-哈扎德的律师早些时候告诉法庭，要求工人们接种中共病毒（Covid-19）疫苗以继续工作根本不是“强制要求”。
+中共所吹嘘的“两弹一星”、“载人航天”技术据参与其中的科学家解密，所有技术都不是自主研发，全部是偷窃前苏联或者美国的技术。专制独裁国家不可能有自主研发，因为所有上位的科学家都是技术官僚，全部是假骗偷，全部是洗脑国人思想的，让中国人一次次在民族复兴的意淫中达到高潮。
 
-在法院的判决中，法官直接针对新南威尔士州的疫苗令违反了身体完整性的论点进行了回应，法官称，“就身体完整权而言，它没有受到侵犯，因为受到指责的命令没有授权任何人非自愿接种疫苗。”
+中共从2003年已经实现载人航天升空，而中国人要求的官员公示财产、免费上学，免费医疗、免费养老的愿望一次次落空。让中共改善民生，给中国人想要的自由民主法治和公民福利真是比登天都难。郭文贵先生说过中共72年来给中国人民的中国梦是遥不可及的幻想，永远不可能实现，而新中国联邦Ｇ系列给所有战友带来希望，这个是实实在在的福利，所以说只有灭共中国人才有未来。
 
-新南威尔士州最高法院裁定，要求新南威尔士州卫生工作者、教师和一些建筑工人接种新冠病毒疫苗以继续工作的公共卫生命令是有效的。
+信息来源：中共新华社
 
-该案件是澳大利亚一系列挑战对未接种疫苗者进行各种限制的系列案件中的第一起。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考链接：**[Challenges to NSW vaccine mandates for essential workers fail as Supreme Court throws out two cases in landmark ruling the laws ARE valid](https://www.dailymail.co.uk/news/article-10095051/NSW-Supreme-Court-dismisses-anti-vaccine-mandate-cases.html)
-
-[Australia Covid news: Supreme Court vaccine mandate challenges tossed out](https://www.news.com.au/world/coronavirus/australia/australia-covid-news-live-cases-lockdown-restrictions-and-vaccinations-as-80pc-roadmap-revealed-with-travel-changes/news-story/7018d974d9793b9f23b2df900c103566)
-
-*编辑/发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

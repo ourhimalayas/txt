@@ -2,30 +2,52 @@
 ---
 
 
-## 日铁起诉丰田、宝钢专利侵权，涉及碳化技术竞争
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597079/)
+## Zerohedge: 因心脏炎症问题，FDA推迟对青少年疫苗做出决定，Moderna股票下滑
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597136/)
 
-作者：东京樱花团｜文小白
-![](https://lh3.googleusercontent.com/FR6l3w5sUUjcEwYkiWsdtyfIgs9Q1lafhpGuTgI9pBTsSEN1114ggZfsulENMGWsHKzSJoHhtdL8qGzp4nyuPHJhsZfDJEz-cx4B99d9qVvRAlPIVJhyM1lIn4oTbDaBQUQi0mGS=s0)[图片来源](https://china.kyodonews.net/news/2021/10/e6839bd48937.html)
-日本制铁公司14日就电动汽车发动机等使用的电磁钢板，起诉丰田汽车公司和中国宝山钢铁公司侵害了专利权，分别索赔约200亿日元（约合人民币11亿元）。
-
-- *延展阅读：*[*日本制铁状告丰田和中国宝钢侵权*](https://china.kyodonews.net/news/2021/10/9d6678dee6cf.html)
+作者：文一
 
 
-据共同社15日消息，日本制铁公司以该公司拥有的“无方向性电磁钢板”的高性能产品相关专利遭侵权为由，当天已向东京地方法院提起诉讼的。日铁主张，宝山钢铁在日本销售侵犯了成分和板材厚度等制造技术相关专利的电磁钢板，而丰田在采用该产品。这是日铁首次因侵犯专利权起诉汽车厂商。
 
-此次诉讼的背景之一是为了在二氧化碳排放量较多的钢铁生产行业确立去碳化技术，各方展开得激烈竞争。对于以国家的资金实力为武器的中国厂家，日铁担心自身技术遭到盘剥，计划抗争到底。“我们以技术立国（的理念）工作至今。必需凭技术实力赚钱并进行投资。对于技术被中国抢走，无法沉默。”日铁相关人士就14日提起诉讼的理由这样强调。
-
-- *延展阅读：*[*宝钢已成为中国规模最大、世界第五钢铁联合企业*](https://china.gov.cn.admin.kyber.vip/ztzl/2008-12/23/content_1185199.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-日铁之所以危机感增强，是因为使钢铁生产中的二氧化碳排放量为零的“零碳钢”国际研发竞争已经开始。为了能够成功，日铁估算需要5000亿日元（约合人民币281亿元）用于研发，需要4万亿～5万亿日元用于设备投资。日本政府决定从支援致力于去碳化的基金中，分配1935亿日元给减少二氧化碳排放的制铁法。
 
-旗下拥有宝钢等的全球龙头中国宝武钢铁集团从中国政府获得了500亿元去碳化技术研发资金。日本政府的基金在金额上相形见绌，两者的差异显著。日铁社长桥本英二认为，靠这个金额日铁无法从日益激烈的竞争中胜出。
+零对冲10月15日报道-据消息人士透露，美国食品和药物管理局（FDA）遵循与四个北欧国家相同的做法，要么完全禁止，要么有选择地禁止，决定推迟对Moderna公司的青少年新冠疫苗的授权决定，以评估该疫苗是否引发一种罕见心脏炎症。
 
-*[参考连接]：[关注：日铁起诉专利侵权或意在去碳化技术竞争](https://china.kyodonews.net/news/2021/10/e6839bd48937.html)*
+Moderna公司股价应声下滑。截止今天下午 1:06，跌1.5%至327.01美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-9.jpg)
+Moderna公司首席医疗官Paul Burton叫屈，称FDA的数据并没有显示Moderna和辉瑞疫苗接种者在出现心肌炎的比率有任何显著差异。
 
-（本文只代表个人观点，与Gnews网站无关）
-*校对：东京樱花团 /*平安卿卿
-*发布：东京樱花团 /*平安卿卿
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+鉴于华盛顿立法者最近要求Moderna公司交出疫苗的专利，FDA做出该决定的时机也很耐人寻味。
+
+去年辉瑞首席执行官在宣布疫苗的同一天出售了其价值 560 万美元的股票的新闻，就已经揭示这些利欲熏心、道德沦丧大医药公司及黑暗势力的台前代言人， 他们完全了解接种即是注毒的真相。FDA的决定明显受到他们左右，如今他们之间出现不同步的情况，印证了郭文贵先生在直播中诠释的“世界的黑暗势力和中共的黑暗势力因为病毒疫苗受到扭曲”，疫苗真相正在逐步铺陈展露，终将大白于天下。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-77.jpg)
+参考链接：
+1. [Moderna Slides After FDA Delays Youth Vaccine Decision Due To Heart Inflammation Issues](https://www.zerohedge.com/covid-19/moderna-slides-after-fda-delays-youth-vaccine-decision-due-heart-inflammation-issues)
+2. [Moderna Shares Sink After Report of Delay on Children’s Vaccine](https://www.bloomberg.com/news/articles/2021-10-15/moderna-shares-sink-after-report-of-delay-on-kids-vaccine)
+3. [Pfizer CEO sold stock worth $5.6 million on same day as vaccine announcement](https://www.nbcnews.com/business/business-news/pfizer-ceo-sold-stock-worth-5-6-million-same-day-n1247398)
+4. [2021年10月13日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1594496/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

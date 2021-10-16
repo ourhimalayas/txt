@@ -2,23 +2,45 @@
 ---
 
 
-## 日本官方：感染中共病毒，比心肌炎、心包炎强？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597080/)
+## 北美最大工会之一（SMART）宣布反对疫苗强制
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597146/)
 
-#### 撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-76.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Ftest.qycz.org%2Fa%2F202106%2Fn6798867%2Fweb%2Fimages%2Fid13029529-q3-2-covid-19-virus-attack-heart-cell-600x338.jpg&amp;imgrefurl=https%3A%2F%2Ftest.qycz.org%2Fa%2F202106%2Fn6798867%2Fweb%2F&amp;tbnid=eI2EQhHFPEbQTM&amp;vet=12ahUKEwirsN_-_M3zAhVDfn0KHZVYAbgQMygEegQIARAr..i&amp;docid=hO3vE_kQysRZKM&amp;w=600&amp;h=338&amp;q=%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92%20%E5%BF%83%E5%8C%85%E7%82%8E&amp;hl=zh-CN&amp;ved=2ahUKEwirsN_-_M3zAhVDfn0KHZVYAbgQMygEegQIARAr)
-读卖新闻10月16日报道，厚生劳动省15日宣布，10岁至20岁的男性第一针接种了美国辉瑞疫苗，第二针可以选择美国辉瑞疫苗，或者美国莫德纳疫苗；第一针如果接种莫德纳疫苗，第二针可以选择接种辉瑞疫苗。
+作者：文一
 
-据厚生劳动省统计数据，日本国内接种疫苗后患有心肌炎或心包炎的患者，10岁至20岁的男性中，接种莫德纳疫苗者，每100万有25-28人；接种辉瑞疫苗者，每100万有3-9人。厚生劳动省在15日的专家会议上称，感染中共病毒后，心肌炎或心包炎的发病率会增高，即便是莫德纳疫苗，接种后益处也十分明显。
 
-按照厚生劳动省的说法，即便患有心肌炎和心包炎，也有可能是因为患有中共病毒，而不是疫苗的原因，最终目的终究是鼓励大家接种疫苗。
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-[１０～２０代男性、２回目ワクチンは選択可能に](https://news.yahoo.co.jp/articles/a7cb0163a19b8edbe99c100e95b2c9d8f76cebaf?page=2)
 
-(文章仅代表作者本人观点，与GNEWS无关)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+据Gateway pundit 报道- 周四，北美最大工会之一，国际金属板材、航空、铁路和运输工人协会 （SMART）工会主席罗伊-戴维斯先后两次致信告知联合太平洋公司，该工会坚决不同意该公司“单方面”要求接种新冠疫苗的做法，并要求对方立即进行诚意谈判。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-6.jpg)
+SMART，是北美最大的铁路运营工会，拥有超过500个交通局域网，会员超过20万人，由钣金工、技师、巴士司机、工程师、售票员、焊工等组成。
+
+此次抗议是继飞行员航空业工人之后美国运输雇员工会反毒针的一个巨大举措，预示着更多社会中坚力量正在觉醒和行动。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-48.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/5-30.jpg)
+参考链接：
+[BOOM! Sheet Metal, Air, Rail and Transportation Union (SMART) with 203,000 Members Announces Stand Against Forced Vaccines](https://www.thegatewaypundit.com/2021/10/boom-sheet-metal-air-rail-transportation-union-smart-203000-members-announces-stand-forced-vaccines/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

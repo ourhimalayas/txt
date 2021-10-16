@@ -2,58 +2,35 @@
 ---
 
 
-## 安德鲁斯领导的工党不断跨越道德底线
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1596797/)
+## 新州最高法院驳回两起强制接种疫苗诉讼案件
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1596904/)
 
-#### 翻译：Lish
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/vaccine-mandatory-label.jpg)图片来源：Sydney Criminal Lawyers
+**整理报道：**翼族
 
-#### 编辑/评论：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan2-1.jpg)
-图片来源：APP
+来自澳大利亚新南威尔士州的工人，对新州卫生部长布拉德·哈扎德（Brad Hazzard）要求强制接种疫苗的命令提起了两起诉讼，周五当地时间下午4点，两项挑战均被新州最高法院驳回。
 
-**文章导读：**
+工人们认为新州政府试图从疫苗接种的争论中删除个人选择。
 
-本篇新闻依然涉及澳大利亚政治腐败。维州反腐败委员会（IBAC）公开听证会完成了第一周，一位前工党内部人士出面指证维州工党腐败的选举文化。当2014年维州“红衫军”选举丑闻爆出后，反腐败委员会出具报告，并让工党偿还了公款。然而至今不当招聘仍然泛滥。反腐败监察专员对于制度的漏洞似乎也是无可奈何，因为除了媒体抨击一下，工党并不需要承担任何政治后果。证人指出，工党成员屁股没有一个干净，他们内部相互制约达成了恐怖平衡。这点与中共的体制很像。
+哈扎德的律师早些时候告诉法庭，要求工人们接种中共病毒（Covid-19）疫苗以继续工作根本不是“强制要求”。
 
-如此，让我对于郭先生“政治一定是黑暗的”这句话的理解又深了一层。西方民主国家虽然已经建立了各种权力制衡机制，但是制度的漏洞依然存在，让政客们勾兑自如、游刃有余。澳大利亚的腐败选举文化（不当招聘），反腐败部门跟踪了多少年竟然无法解决；2020年美国大选，民主党公然邮寄选票偷天换日。联想到各国主权货币疯狂透支信用，未来国家的概念正在淡化，正道主义成为人类更好的选择。新中国联邦人还是很有福的。
+在法院的判决中，法官直接针对新南威尔士州的疫苗令违反了身体完整性的论点进行了回应，法官称，“就身体完整权而言，它没有受到侵犯，因为受到指责的命令没有授权任何人非自愿接种疫苗。”
 
-**译文：**
+新南威尔士州最高法院裁定，要求新南威尔士州卫生工作者、教师和一些建筑工人接种新冠病毒疫苗以继续工作的公共卫生命令是有效的。
 
-10月15日，亚当·苏利文（Adam Sullivan）在IBAC听证会上提供的证据表明，维多利亚州监察专员对“红衫军”丑闻的报告被工党议员和工作人员忽略，更深入地说，此举并未能净化维多利亚州工党的（选举）文化，虽然令人震惊，但也并不奇怪。
+该案件是澳大利亚一系列挑战对未接种疫苗者进行各种限制的系列案件中的第一起。
 
-【备注：“红衫军”丑闻是2014年工党在选举中的舞弊行为】
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-苏利文是工党派系元老和议员阿德姆·索米尤里克（Adem Somyurek）的前顾问，本周他告诉的反腐败调查委员会，**监察专员的调查结果未能改变工党，因为参与欺诈的每个人都认为他们可以继续逃脱惩罚。**
+**参考链接：**[Challenges to NSW vaccine mandates for essential workers fail as Supreme Court throws out two cases in landmark ruling the laws ARE valid](https://www.dailymail.co.uk/news/article-10095051/NSW-Supreme-Court-dismisses-anti-vaccine-mandate-cases.html)
 
-反腐败委员会（IBAC）专员罗伯特·雷德利希（Robert Redlich）翻出了“红衫军”报告，询问为什么在2018年3月报告发布后，用公共资源（钱）选举议会雇员和政府官员之类的不当招聘继续泛滥？
+[Australia Covid news: Supreme Court vaccine mandate challenges tossed out](https://www.news.com.au/world/coronavirus/australia/australia-covid-news-live-cases-lockdown-restrictions-and-vaccinations-as-80pc-roadmap-revealed-with-travel-changes/news-story/7018d974d9793b9f23b2df900c103566)
 
-沙利文提示，工党人士的决定都是经过深思熟虑，**即（他们）每个人都有太多见不得人的事，所以他们不会对不当行为进行揭发，工党要的就是其内部成员相互制约达成恐怖平衡。**
+*编辑/发布：翼族*
 
-维州州长安德鲁斯已经领导该党11年，要了解这个政党道德和伦理丧失故事的其余部分，**人们必须深入研究监察员德博拉·格拉斯（****Deborah Glass****）长达****200****页的报告。**
-
-格拉斯女士是一个严厉的审讯者，她让工党的“诡计”无所遁形，**“红衫军”丑闻——即工党故意使用纳税人的钱资助工作人员在****2014****年的选举中为工党竞选，最后澳州工党偿还了这****38.8****万澳元。**
-
-格拉斯女士指出：“破案就像完成一个拼图，在一开始，你并不确定有多少碎片是错的，以及你是否有足够的碎片来看到整个画面”。
-
-她继续说：“**管辖权的问题拖延了调查**，即立法议会主张的专属管辖权——**实际上（让）我不能调查议会成员**，对处理案件是不利的。”
-
-为此，**工党无视该调查，工党下议院的议员们拒绝合作**。他们辩解，基于反腐败委员会没有权力调查下议院议员，导致现在澳大利亚政坛腐败仍然像五年前一样令人愤慨。
-
-这种（政党）保护主义的傲慢，直接导致了“红衫军”丑闻的全部腐败费用永远不为人所知。而且，安德鲁斯政府将此案告上高等法院，以阻止调查。虽然案子他们输了，但下议院的议员们从未配合调查过。
-
-一位工党议员最近有感而发**，（工党）政府在面对丑闻和灾难时不仅能够生存，而且能够保持民众的支持，这意味着道德底线不断被跨越。**
-
-**最后，“红衫军”丑闻或当时造成的任何危机，除了媒体在抨击，对工党没有造成任何直接的政治后果。”**
-
-（文章仅代表作者个人观点，与Gnews平台无关）
-
-原文链接：[Subscribe to The Australian | Newspaper home delivery, website, iPad, iPhone & Android apps](https://www.theaustralian.com.au/subscribe/news/1/?sourceCode=TAWEB_WRE170_a&amp;dest=https%3A%2F%2Fwww.theaustralian.com.au%2Fnation%2Fpolitics%2Fhubris-rules-labors-great-moral-and-ethical-failure-on-daniel-andrews-watch%2Fnews-story%2F0666831548cde5adbee3563c7963b61d&amp;memtype=anonymous&amp;mode=premium&amp;v21=dynamic-hot-control-score&amp;V21spcbehaviour=append)
-
-**发布：文泓**
-
-**更多资讯，请关注：****
+**更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

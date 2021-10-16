@@ -2,23 +2,26 @@
 ---
 
 
-## 嘿，该打流感疫苗了
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597090/)
+## 联邦法官就强制疫苗政策对联合航空公司发出限制令
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1597156/)
 
-#### 撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/12-9.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimgcdn.cna.com.tw%2Fwww%2FWebPhotos%2F1024%2F20210926%2F1152x768_73787414606.jpg&amp;imgrefurl=https%3A%2F%2Fwww.cna.com.tw%2Fnews%2Ffirstnews%2F202109260103.aspx&amp;tbnid=8H4r8lytgAsGKM&amp;vet=12ahUKEwiIvoin_s3zAhUBXCsKHZwqAqEQMygLegUIARCLAQ..i&amp;docid=0EOKR9nyi-oJHM&amp;w=1024&amp;h=683&amp;q=%E6%B5%81%E6%84%9F%E7%96%AB%E8%8B%97&amp;hl=zh-CN&amp;ved=2ahUKEwiIvoin_s3zAhUBXCsKHZwqAqEQMygLegUIARCLAQ)
-日刊现代10月16日报道，冬天是流行性感冒的高发期，日本人对季节性流感的抗体和免疫比较低，为防止流感发展为重症，建议大家接种流感疫苗，流感疫苗与新冠疫苗接种间隔时间为两周以上。
+#### 撰稿：Grace
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-49.jpg)图片来源：网络截图
+据Breitbart10月12日报道，联合航空（United Airlines）公司最初要求它的6.7万名美国员工，必须在9月27日之前接种中共病毒疫苗（或获得豁免），否则将面临解雇。根据该公司的强制疫苗规定，任何获得豁免的员工仍将被视为受雇，但将被置于无薪休假状态，并将失去长达6年的福利，或直到航空公司认为疫情对未接种疫苗的员工来说是安全的，才能返回。
 
-2020年冬季，因为中共病毒肆虐，全世界限制出行，因此流感并未爆发。然而今年10月，南亚地区，中东各国正在正在经历流感。目前日本出入境限制缓和，人口流动，自然会发生流行性感冒。目前全球正在推广新冠疫苗接种，美国正在进行临床试验，以确认新型冠状病毒和季节性流感混合疫苗的效果和安全性。日本国内，三重县报告了重度感染情况，即感染中共病毒又得季节性流感，为防止重症化发生，因此推荐大家接种新冠疫苗和流感疫苗。
+Conservative Institute 10月14日报道， 美国联合航空公司对员工实施了这一严格疫苗规定后，导致一些工人提出了联邦诉讼，要求法官发布禁令。
 
-在未确认两种疫苗安全和有效性的前提下，又再次呼吁大众接种疫苗，民众再次被当作实验小白鼠。
+联合航空公司请求驳回该诉讼，**但联邦法官在本周三发布了一项临时限制令（****TRO****），禁止该公司在诉讼继续进行时，在10****月26****日之前，强制员工打中共病毒疫苗或拒绝员工的宗教或医疗的豁免请求。**
 
-信息来源：
+参与该集体诉讼的六名主要员工声称，该公司违反了1964年《民权法案》第七章（Title VII of the Civil Rights Act of 1964 ）和《美国残疾人法案》（ADA），对寻求医疗或宗教豁免的人进行报复。
 
-[重感染、スーパー感染…新型コロナに続くインフルエンザ流行の備えはどこまで？](https://news.yahoo.co.jp/articles/4dd32c898fa35b0278ae1c4dbf815375287776cc?page=3)
+在星期三裁决中，美国联邦法官马克.皮特曼（Mark Pittman ）写道：“法院现在得出结论，有必要发布这个临时限制令，以避免不可挽回的伤害风险，并在法院审理和解决原告的初步禁令动议之前维持本案的现状。”
 
-(文章仅代表作者本人观点，与GNEWS无关)
+尽管法官明确表示，他没有对该案的 “案情进行裁决”，但他重申，他的法庭 “只是寻求避免对各方造成不可挽回的伤害的风险，并在提交证据的同时维持现状。”
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+为此，他命令联合航空公司在本月尾之前，“暂时限制”已获延期的未接种疫苗的员工无限期无薪休假。该法官还禁止联合航空拒绝接受员工在8月31日之后提交的住宿申请。
+
+**新闻来源：**[**Judge issues restraining order against United Airlines over vaccine policy**](https://conservativeinstitute.org/conservative-news/judge-issues-vaccine-mandate.htm)
+
+[**Exclusive — Federal Judge Blocks United Airlines From Imposing Employee Vaccine Mandate**](https://www.breitbart.com/politics/2021/10/12/exclusive-federal-judge-blocks-united-airlines-from-imposing-employee-vaccine-mandate/)
