@@ -2,23 +2,25 @@
 ---
 
 
-## 每 15 秒就有一个孩子死于营养不良
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1598277/)
+## 有声|中共欲给14岁以下女孩接种宫颈癌疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1598350/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1015-4.jpg)
-每年有 200 万儿童死于营养不良，每 15 秒就有 1 人死亡。世界上有三分之一的人，约 570 万人没有足够的食物，比2019 年增加了 50% 以上。 在世界范围内，超过 4000 万人处于粮食不安全水平，非洲 16 个国家、中美洲 4 个国家和亚洲 3 个国家的情况正在迅速恶化。
+配音：香草山美食部 – 玫瑰园
 
-气候紧急情况、大流行病和冲突的蔓延正在抵消国际社会近几十年来在应对婴儿死亡率和营养不良方面取得的进展。救助儿童会总干事丹妮拉·法塔雷拉 (Daniela Fatarella) 解释道：“如果我们不立即采取行动，数以千计的儿童可能会死亡”。
+10月14日，文贵先生盖特发文称，全世界人民饱受CCP病毒和毒疫苗戕害的同时，中共山东济南市率先启动为未成年幼女接种HPV宫颈癌疫苗的计划，该计划预计11月份正式开始执行。
 
-由于大流行，很多本已薄弱的卫生系统已经崩溃，到 2022 年这可能会导致另外 168,000 名婴儿死亡。冠状(中共)病毒对许多家庭产生了重大影响，印度是受影响最严重的国家之一，它剥夺了超过 1.2 亿儿童的主餐。
+HPV疫苗用于预防病毒感染引起的宫颈癌，于2014年在美国获批上市。2018年4月28日，HPV疫苗在中国上市，其接种适应年龄范围应该是16岁至26岁的女性。而此次中共继在鄂尔多斯和厦门之后，再次将济南等15个城市作为试点城市,   给9至14岁 幼女施打 HPV疫苗，却对宫颈癌高发年龄的35～64岁女性仅仅进行“筛查”，这一反常的举措在人民福利为零的中共国，在全世界“疫苗战争”的关键时间点，都说明了其中蕴含着阴谋。目前广东省也正在推进适龄幼女HPV疫苗的接种，并称 “争取成为第一个全面接种HPV疫苗的省份”。
 
-同样，在也门有1030 万儿童遭受粮食短缺，如果不采取行动，大约 400,000 人可能会死亡。在阿富汗，8 月塔利班接管后，人道主义援助中断，局势进一步恶化，该国超过 50 万儿童遭受极度饥饿，五岁以下儿童中有一半患有急性营养不良，即二分之一的儿童。
+文字版原文：[中共欲给14岁以下女孩接种宫颈癌疫苗](https://gnews.org/zh-hans/1596054/)
 
-丹妮拉·法塔雷拉 (Daniela Fatarella) 总结道：“儿童为贫困、冲突、气候危机和流行病付出了最高的代价，且数字在增长，给整代人的未来蒙上了一层阴影，孩子们可能因缺乏食物而无法生存”。
+音频处理：喜山必胜Maverick
 
-免责申明：本文只代表译者观点，与Gnews无关
-
-原文链接：[https://www.repubblica.it/esteri/2021/10/14/news/save\_the\_children\_emergenza\_fame-322110139/](https://www.repubblica.it/esteri/2021/10/14/news/save_the_children_emergenza_fame-322110139/)
-
-责任编辑/发布：意大利达芬奇农场   萧亦
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

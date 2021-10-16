@@ -2,28 +2,32 @@
 ---
 
 
-## 涉及误导性陈述被罚！加密货币公司Tether向美国监管支付四千万美元和解金
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597875/)
+## 美众议员提出反中国经济胁迫法案对抗中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597979/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+作者：云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国众议院外委会亚太小组主席贝拉与共和党籍众议员华格纳等人，于15日提出反中国经济胁迫法案。民主党籍众议员卡斯楚、泰塔斯等也共同参与了此项提案。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/涉及误导性陈述被罚1.png)[图片来源](https://news.bitcoin.com/cftc-fines-stablecoin-issuer-tether-and-crypto-exchange-bitfinex-42-5-million/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9-2.jpeg)
 
-财联社10月16日讯，当地时间周五，美国商品期货交易委员会（CFTC）发布公告称，已经与知名加密稳定币发行公司Tether以及加密货币交易所Bitfinex达成民事诉讼和解协议，两家公司一共将支付4250万美元的罚金。
+过去10年，中国对美国主要伙伴与盟国不断采取胁迫性经济措施，如2010年，日本与中国渔船在东海争议海域发生冲突时，中国停止向日本出口稀土；2016年，韩国同意美军在当地部署萨德导弹防御系统时，中国限制进口韩国娱乐与其他文化产品，禁止销售部分韩国家用产品并限制两地旅游；2020年，澳洲呼吁对冠状病毒起源进行独立调查后，中国对澳洲葡萄酒与大麦采取大幅提高关税以报复。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/涉及误导性陈述被罚2.png)（来源：CFTC）
+贝拉及华格纳表示，中共以强制性的经济制裁行为来惩罚违背其利益的国家和企业，损害了美国及盟友的利益。 这项法案的目的，在于确保美国能以全面的方式，实施对中共经济霸凌的回应和反击。
 
-![]()这两家涉事公司均属于iFinex旗下。根据CFTC描述，Tether涉及在2016至2019年期间涉嫌误导投资者“每一个美元稳定币USDT背后都有1美元支持”，但这样的表述并非“100%准确”。为此Tether将向CFTC支付4100万美元和解相关诉讼，并承诺不会再犯。
+(本文仅代表作者观点)
 
-在监管声明发布后，Tether公司也在官网作出回应，表示引发调查的原因只是公司储备金并非全部以现金的方式存在，同时也并不总是存放在以Tether公司名义开立的银行账户中，但这样的情况从未影响公司履约。
+参考链接：[中國經濟脅迫日增 美議員推法案反擊](https://www.cna.com.tw/news/firstnews/202110160013.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-CFTC同时指控Bitfinex交易所与美国人进行数字资产的非法场外零售商品交易，并在未按要求注册的情况下作为期货佣金商 （FCM） 运营。Bitfinex也将支付150万美元和解这一起诉。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-当前，数字加密货币备受关注和追捧，各国政府基本都采取加强监管和规范的方式来主动顺应这一发展趋势。但由于中共以及世界黑暗势力对于数字加密货币的控制和滥用，可以预计，随着全球灭共进程的推进，众多数字加密货币还将经历痛苦的洗牌和转型过程。而这种激浊扬清、大浪淘沙式的行业重塑，对于始终将合规摆在首位的“喜币”（HCN）而言，都是利好。
+新闻访谈终审：文龍
+编辑/校正/发稿：谐趣园
 
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/老黑
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
