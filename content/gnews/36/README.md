@@ -2,31 +2,23 @@
 ---
 
 
-## 台湾接种新冠疫苗死亡人数超过病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596302/)
+## 文贵先生分析中共试图&#8221;武统&#8221;台湾的内因和外因
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596326/)
 
-作者：飞虹
+作者：文龍
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-新冠肺炎爆发初期，台湾因对新冠肺炎的有效管理，和对世界个人防护用品的支援受到广泛赞誉。
+10月13号，文贵先生在直播中分析了中共习近平决意要”武统”攻打台湾的动机，其中内因来自习近平一直以来的皇帝梦，他想做当代的秦始皇，一统天下拿回台湾，留名史册。 同时也是因为中共国内目前愈演愈烈的房地产崩盘压力和激烈的党内政治斗争所致。习近平想用一场局部战争来缓解所有这些无法避免的内部矛盾。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-14.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-2.jpeg)
 
-尽管成功控制了疫情，但台湾政府对“政治疫苗”来者不拒。一方面上演与中共上海复兴医药的采购大戏，另一方面向国民推打资产高端疫苗，同时，欣然接纳来自日本、斯洛伐克、波兰和捷克赠送的新冠疫苗。获赠品牌包括牛津阿斯利康、莫德纳和辉瑞毒针疫苗，这些针剂多为捐赠国过剩库存。
-
-自2021年3月22日开始，台湾执行第一波疫苗接种，截至10月11日，超过人口60%的1370万人至少接种了一剂，其中448万人已完全接种疫苗。
-
-疫苗接种计划实施之前，全国死于新冠病毒的人数不足12人，而自疫苗接种计划开始以来，据官方数据新冠病毒死亡人数猛增，已达到846人。在疫苗的安全有效性的相关报告中，国家中央疫情指挥中心表示，有850例死亡报告属于接种疫苗后的不良事件导致。这一总数超过了病毒本身造成的死亡人数。
-
-接种疫苗后感染和死亡人数大幅度上升，证明了疫苗无效；接种不良反应致死人数多于病毒死亡人数，更进一步揭示了疫苗有毒。而可悲的的是，掌权者对此熟视无睹，竭力掩盖，并一再通过各种胁迫、强制手段努力提高疫苗接种率，这些人触犯了“灭绝人类罪”，终将面临纽伦堡审判台。
+外部因素首先是中共主管外交事务的王毅和杨洁篪，他们的欺上瞒下和报喜不报忧，如同当年的袁克定和袁世凯，导致习近平误判国际形势，认为联合国和俄罗斯等周边国家已经默许中共”武统”台湾，建功立业的时机已经成熟，况且由于美国政府的软弱和绥靖，以及来自台湾内部的卖台贼呼声，都给了中共和习近平更多的信心，这一切都使得台海战争的脚步越来越近了。
 
 (本文仅代表作者观点)
 
-参考链接：[Deaths Following Vaccination Reported in Taiwan Exceed Nation’s COVID Death Total](https://www.zerohedge.com/news/2021-10-14/deaths-following-vaccination-reported-taiwan-exceed-nations-covid-deaths)
-[https://www.cdc.gov.tw/File/Get/yHTBfZNApPb\_6f1-fPLNFg](https://www.cdc.gov.tw/File/Get/yHTBfZNApPb_6f1-fPLNFg)
+参考链接：[https://gettr.com/post/pe5ia99a21](https://gettr.com/post/pe5ia99a21)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-新闻访谈终审：暗黑
 编辑/校正/发稿：谐趣园
 
 **更多资讯，更多关注**

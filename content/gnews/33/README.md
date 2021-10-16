@@ -2,29 +2,29 @@
 ---
 
 
-## 文贵先生分析中共试图&#8221;武统&#8221;台湾的内因和外因
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1596326/)
+## 领英向中共叩头，拆分公司以扼杀言论
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1596384/)
 
-作者：文龍
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月13号，文贵先生在直播中分析了中共习近平决意要”武统”攻打台湾的动机，其中内因来自习近平一直以来的皇帝梦，他想做当代的秦始皇，一统天下拿回台湾，留名史册。 同时也是因为中共国内目前愈演愈烈的房地产崩盘压力和激烈的党内政治斗争所致。习近平想用一场局部战争来缓解所有这些无法避免的内部矛盾。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/101501-1.jpg)
+领英 （LinkedIn）周四宣布，在努力遵守共产党的审查规则的过程中，该公司将关闭其在中共国的平台。取而代之的是，这家微软旗下的公司将推出一个用户无法自由交流的网站。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-2.jpeg)
+这个名为InJobs的新平台将在今年晚些时候推出，且不包含任何社交媒体功能。用户将不被允许分享帖子或文章。此举是由于中共国要求加强对社交媒体公司的审查，作为控制国内科技行业的努力的一部分。
 
-外部因素首先是中共主管外交事务的王毅和杨洁篪，他们的欺上瞒下和报喜不报忧，如同当年的袁克定和袁世凯，导致习近平误判国际形势，认为联合国和俄罗斯等周边国家已经默许中共”武统”台湾，建功立业的时机已经成熟，况且由于美国政府的软弱和绥靖，以及来自台湾内部的卖台贼呼声，都给了中共和习近平更多的信心，这一切都使得台海战争的脚步越来越近了。
+领英和其母公司微软为了在中共国开展业务，经常与中国共产党保持一致。领英是唯一在中国运营的美国社交网络，它关闭了批评中共政权或使用 “天安门广场 “等违禁词语的中国账户用户。
 
-(本文仅代表作者观点)
+新闻链接：[LinkedIn Kowtows to Communist China by Creating Spin-Off That Will Stifle Speech](https://freebeacon.com/latest-news/linkedin-kowtows-to-china-spin-off-stifle-speech/)
 
-参考链接：[https://gettr.com/post/pe5ia99a21](https://gettr.com/post/pe5ia99a21)
+***翻译:** 村民彼得潘*
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+***校对:** 感恩*
 
-编辑/校正/发稿：谐趣园
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
