@@ -2,53 +2,27 @@
 ---
 
 
-## 加拿大阿尔伯塔省法官对阿图尔牧师案的无情裁决
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1596792/)
+## NBA老鹰队球员因疫苗伤害恐结束职业生涯
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1596826/)
 
-作者：Rebelnews
+采编：风云小哥 撰稿：文莱
 
-法官 Adam Germain 就 Artur Pawlowski 牧师的案件作出的正式书面决定。该文件写入了法官的一些奇怪陈述，包括他建议按照代表艾伯塔省卫生服务部门检察官的要求将Artur牧师送回监狱将“使他成为一名殉道者”，并且当Artur牧师反对政府关于 COVID-19 的政策时都要被迫阅读相关的文件。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/bg-edited.jpg)图片来源：thegatewaypundit
+图为NBA球员布兰登·古德温
 
 
+据美国自媒体【网关专家】10月14日报道，来自亚特兰大老鹰队的NBA球员布兰登·古德温最近表示，他在接种新冠病毒疫苗后引发了严重的血栓症状，这不但提前结束了他在本赛季的所有比赛，更有可能会终结他今后的篮球职业生涯。
 
-Germain 法官将 Artur 牧师在法庭上的陈述描述为“嘲弄我要监禁他”，他说，阿尔伯塔省卫生服务部门提出的额外 21 天监禁将是“对他的一记耳光，将使他成为殉道者。”
+古德温表称，在接种该疫苗之前他本人的身体状况非常好，但是就在接种后的一个月之内，突然出现的背痛导致其无法参赛。最终医生确诊他的背部出现了血栓。而在该病情出现后，NBA官方却要求他对此事保持沉默。（原文完）
 
-法官进一步概述了Artur牧师在被判藐视法庭罪后如何在美国进行巡回演讲。
+简评：
 
-根据 Germain 法官的说法，Artur 牧师“充分利用了他作为牧师的头衔，以及他因举行教堂礼拜而被捕的事实，成为集会呼声，吸引了美国志同道合的人，他们反对针对抗击 COVID-19的医疗措施。”
+古德温的以上遭遇被NBA管理部门和各主流新闻媒体所掩盖。当局宁愿对美国公众撒谎，宁愿看着一个人的生命健康和职业奉献精神被摧毁，也不愿大声疾呼反对接种有致命危险的中共病毒疫苗。
 
-Germain 法官还命令 Artur 牧师谴责他自己的所说的话，迫使牧师在他对封锁、口罩、疫苗或任何其他与大流行相关的话题发表评论时，有效地谴责自己。
+（以上内容仅代表原文信息和作者个人观点）
 
-写给Germain大法官：
+* * *
 
-我认为他缓刑令最后一条应该是，当他在公众集会或公共论坛（包括电子社交媒体）上行使言论自由权并反对 AHS 健康令和 AHS 健康建议时；他必须说明以下内容：
+校对，编辑，发稿：硫酸羟氯喹64
 
-我也知道，我在这个场合向你表达的观点可能与艾伯塔省大多数医学专家的观点不同。虽然我可能不同意他们的观点，但我有义务告诉你，大多数医学专家赞成保持社交距离、戴口罩和避免人群聚集，以减少 COVID-19 的传播。大多数医学专家也支持参加疫苗接种计划，除非出于有效的宗教或医学原因你不能接种疫苗。统计表明，接种疫苗可以挽救生命并减轻 COVID-19 症状的严重程度。
-
-在讨论任何可能侵犯Artur牧师权利的行为时，Germain法官将大流行的限制描述为“侵犯个人自由”，但认为 “这个牺牲并不会违反加拿大权利和自由宪章，并不是惊人的牺牲”。
-
-Germain 法官引用了一位医生的比较，将违反艾伯塔省 COVID 规则而受害的司机进行了比较。
-
-“这些限制是为了让人们活着，” Germain官写道。“关于人权与禁令的辩论随着越来越多人的死去在阿尔伯塔讨论的越来越激烈，因为Covid被杀死的人可能不是你自己。”
-
-在裁决中，Germain法官还称Artur牧师和他的兄弟David“对他们的逮捕感到兴奋”，并补充说，Pawlowskis一家“竭尽全力让他们在周六晚上的新闻中高调被捕。”
-
-*Rebel News*将帮助 Artur 牧师对这一骇人听闻的决定提出上诉。
-
-Reference: [https://www.rebelnews.com/read\_judges\_outrageous\_decision\_in\_pastor\_artur\_case](https://www.rebelnews.com/read_judges_outrageous_decision_in_pastor_artur_case)
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[原文链接：](https://www.thegatewaypundit.com/2021/10/nba-player-got-blood-clots-covid-vaccine-ends-season-nba-told-keep-quiet-video/)
