@@ -2,28 +2,27 @@
 ---
 
 
-## 澳大利亚新州法官驳回反“强制疫苗接种”的诉讼
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1596805/)
+## 中共党媒疑为推房地产税吹风
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1596850/)
 
-采编：文明       撰稿：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/ao-edited.png)图中接种者为澳洲总理：莫里森
-图片来源：AUSM
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/text-SC-14.png)
+文章仅代表作者本人观点，与Gnews无关
 
+视频参看： 2021.10.15晚GTV新闻访谈
 
-【澳大利亚广播公司新闻网】10月15日刊文报道，新州最高法院驳回包括卫生、老年护理、建筑和教育领域的工作者们（原告）针对该州“强制接种COVID19疫苗政策”的司法起诉。
-由于担忧该疫苗的安全问题和可能引发的副作用，原告均未接种疫苗。在该政策的影响下，原告均遭到就业上的不公待遇，而且旅行也受到限制。 故原告方以该法规极不合理、侵犯人权为由将新州卫生厅长、首席卫生官、州政府和联邦政府列为共同被告并提起诉讼。 
+[https://gtv.org/broadcast/watch/616a1cd6304e992109b5a983](https://gtv.org/broadcast/watch/616a1cd6304e992109b5a983)
 
-开庭当天，法官以原告身体未受侵犯，疫苗行政令也未授权对任何人进行非自愿的强制接种以及限制个体自由行动正是【公共卫生法】明确授权的限制类型等为由，裁定原告方所有申诉都不成立。 （原文完）
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-简评：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
 
-人身侵犯不仅是肉体还包括精神层面；通过限制和施压也属于变相的“强制”；疫苗如果有效，未打疫苗者不会给注射疫苗的群体带来风险。如果无效，为何要鼓励或变相强制人们去打？卫生法的目的是为了维护人民健康安全，把实验性疫苗强加于人造成的危害为什么不制止呢？
-
-（以上内容均代表原文信息和作者个人观点）
-
-* * *
-
-校对，编辑，发稿：硫酸羟氯喹64
-
-[原文链接：](https://www.abc.net.au/news/2021-10-15/judge-rules-out-challenges-to-nsw-covid-19-vaccination-orders/100543888)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

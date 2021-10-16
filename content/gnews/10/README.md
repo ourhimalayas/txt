@@ -2,27 +2,27 @@
 ---
 
 
-## 中共党媒疑为推房地产税吹风
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1596850/)
+## 英媒：习近平将不出席联合国气候变化大会
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1596983/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/114.jpeg)图片来自网络
+据联合早报10月15日报道，英国首相约翰逊被告知，中共国国家主席习近平将不会出席在苏格兰举行的联合国气候变化大会（COP）。英国主办方担心在电力供应紧张的背景下，习近平不出席联合国气候变化大会，可能是中共国拒绝制定新气候变化目标的前奏。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/text-SC-14.png)
-文章仅代表作者本人观点，与Gnews无关
+习近平自去年初就没有离开过中共国。中共官方已经通知二十国集团（G20）官员，习近平不打算前往意大利出席G20峰会。据称习近平的健康出现了问题。毛腊肉平生做过的最正确的事情就是他死了，愿习近平和中南坑老杂毛们都能追随毛腊肉的脚步，尽快在民众的觉醒中进入地狱。
 
-视频参看： 2021.10.15晚GTV新闻访谈
+新闻参考链接：[https://www.zaobao.com/realtime/china/story20211015-1203748](https://www.zaobao.com/realtime/china/story20211015-1203748)
 
-[https://gtv.org/broadcast/watch/616a1cd6304e992109b5a983](https://gtv.org/broadcast/watch/616a1cd6304e992109b5a983)
+编辑：胖丁
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

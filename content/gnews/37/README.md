@@ -2,33 +2,37 @@
 ---
 
 
-## Coinbase拒绝SEC监督，要求成立新监管机构
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1596582/)
+## 加拿大BC省市议员公开反对疫苗护照
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1596587/)
 
-**撰稿：日本东京方舟农场 海星**
+作者：Drea Humphrey
 
-据《华尔街日报》10月14日报道，美国最大的加密数字货币交易所Coinbase计划公布的一份文件中表示，要求国会阻止证券交易委员会（SEC）监督数字资产行业，并成立一个新的监管机构。
+加拿大的疫苗护照要求对加拿大人进行了歧视和隔离，但几乎我们选举的每一位政治家都在这个问题上保持沉默。我们的民主怎么了？
 
-据报道，在上周国会的听证会上，SEC主席加里·詹斯勒（Gary Gensler）称，如果国会要从证券法中划分出一些东西，可能会破坏90年的经济成果及损害7000多个发行人的利益。而Coinbase在计划公布的文件中则表示，数字资产应该有一个指定的监管机构，而不是面临SEC或商品期货交易委员会等多个机构的监管威胁。
 
-该文件指出，单一的监管机构将消除加密货币公司同时应对众多联邦、州政府机构监督的必要性，并且它们也必须自我约束。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/b61a-219df613bc00ef3104470c9a41d9408a.jpg)图片来自于网络
+值得庆幸的是，卑诗省皮特梅多斯市议员安妮娜辛普森勇敢打破政治的沉默。辛普森在 9 月 28 日的一次例行理事会会议上说：“有些弱势群体被这种疫苗护照制度边缘化。”辛普森选择不透露涉及她疫苗接种状况的个人健康信息，並实际上参加了政府的工作会议。她说，她选择与因各种原因受到护照伤害的边缘化选民站在一起，比如 22 岁的Tenley Csolle，她在第一次接种摩德纳疫苗后就无法走路，或者免疫功能低下两个孩子的妈妈Leigh Eliason因医疗原因无法接种任何 COVID-19 疫苗。
 
-Coinbase在文件中写道，20世纪30年代，SEC为了有效监督金融市场而起草的法律已经无法监管正在进行中的数字技术革命。它强调，国会应该在法律上承认所有数字资产，包括传统金融资产的数字原生版本，都应该受到新的监管制度的约束。
+观看这份报告，了解我对辛普森的完整采访，了解她为何勇敢地为这些加拿大人挺身而出。
 
-今年9月，Coinbase首席执行官布莱恩·阿姆斯特朗(Brian Armstrong)在推特上写道，SEC威胁要对该公司的加密数字货币借贷项目采取法律行动，但此项目并不受其监管。他表示，SEC的这种行为相当于闭门造车的恐吓。
+根据*Rebel News*他们已经聘请了一个律师团队，并且已经提起了多项法律诉讼，包括寻求停止 BC 护照的禁令。
 
-Coinbase表示，SEC不愿澄清为什么该项目有资格受到监管。
+Reference: [https://www.rebelnews.com/b\_c\_city\_councillor\_speaks\_out\_against\_vaccine\_passport](https://www.rebelnews.com/b_c_city_councillor_speaks_out_against_vaccine_passport)/
 
-*注：本文仅代表作者观点，与 Gnews无关*
+（文章仅代表作者个人观点）
 
-*参考链接：*
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-[Coinbase Pitches Blueprint for Special Crypto Regulator](https://www.wsj.com/articles/coinbase-pitches-blueprint-for-special-crypto-regulator-11634231298)
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
 
-[不願受SEC監管 Coinbase提議設新監管機構](https://ec.ltn.com.tw/article/breakingnews/3704879)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-* * *
+**关注我们**
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
