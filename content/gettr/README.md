@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/16/2021 12:12 AM (UTC)`
+
+10月15号：尊敬的战友们好……非常的抱歉，很多战友给我发的信息没办法一一回复，我只能在这里，简单给大家统一回复一下，谢谢。
+![img](https://media.gettr.com/group10/getter/2021/10/16/00/12/e1f9451d-fbe9-849a-3ed5-2bb83f9157ca/out.jpg)
+
+---
+
 `@miles 10/15/2021 11:29 PM (UTC)`
 
 10月15号：共产党这种低级的下三滥的手段……体现在各个方方面面，从把龙头变成鸟头……又要在海外，哭闹到处发红头文件，为了喜币上市．下发，禁止全国14亿国人买虚拟货币……荒唐至极……【七哥您好! 向您汇报一件昨天发生在老椅子群的事情，有个战友叫firenew的，忽然在群里说要G club退款，等了一个多月还没退成，找农场不同意还把他踢了。我们都告诉他G club卡早就说过不能退的。<br/><br/>然后继续谈下来，发现他破绽很多，就是要钱，说没钱吃饭了，他投资了40万椅子，还有几万G1，捐款也不少，说现在穷得要等钱开饭。还可以把喜币配额给我们，我们都觉得还有两星期喜币上市，现在转让喜币配额不是疯了吗？<br/><br/>最后大家商量不如把他的配额买了，这样他就有钱，有战友马上表示愿意5万全部收购他的配额，26万多的喜币配额，这么便宜他竟然同意了，还要他原来的香草山农场义工做第三方完成交易。凑巧，那时候已经是纽约半夜三点，找不到人。<br/><br/>然后大家慢慢聊，发现更多破绽，他似乎连什么时候投G TV，喜币的特点都不懂。还扯什么狗币，然后私信战友攻击喜币。这时候基本能确定这个账号被控制了，然后迟些时候，有战友发现这个号已经一年左右没在群里活动了。基本能完全确定，这个战友已经被中共抓了，账号可能被手下办案的狗腿子控制，想向战友骗点钱。】<br/><br/>
@@ -293,13 +300,6 @@ Henry Reitzug博士强烈建议所有人都不要接种疫苗，而是寻求其�
 
 2021年10月11日 法治基金,法治社会每周捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>11 Oct 2021, Rule of Law Foundation and Society donors messages collection.Rule of Law Foundation and Society appreciate all of our supporters and donors!
 ![img](https://media.gettr.com/group10/getter/2021/10/12/03/05b12172-bad0-d661-5c6b-aa29c09a61c7/out.jpg)
-
----
-
-`@miles 10/12/2021 3:02 AM (UTC)`
-
-10/10/2021 Miles Guo: We are the first to say that the COVID vaccine disaster and the vaccine politics are from the CCP’s biochemical warfare; The Jews may be the biggest victims of the COVID vaccine disaster; No one can stop our momentum to take down the CCP with the truth about the COVID vaccines. The COVID vaccine mandate will soon stop, but humanity will pay a huge price! Regardless of whether the CCP is going to invade Taiwan or not, the price of body bags will skyrocket, and the world’s economy will collapse!<br/><br/>10/10/2021 文贵直播: 我们最早说出疫苗灾难和疫苗政治来自中共生化战；犹太人可能成为疫苗灾难的最大受害者；以苗灭共无人可档，强制打疫苗亦将很快停止，但人类将付出巨大代价！不论中共是否攻台，装尸袋的价格将暴涨、世界经济会崩溃！<br/>
-![img](https://media.gettr.com/group45/getter/2021/10/12/03/02/4ad12bf6-9426-4ae9-88e2-cdfa10d3318f/out.jpg)
 
 ---
 
