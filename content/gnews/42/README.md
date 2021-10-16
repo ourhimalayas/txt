@@ -2,33 +2,42 @@
 ---
 
 
-## 郭文贵先生2021年10月15日盖特视频二（2分51秒）全文字版
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597094/)
+## 全球航空货运业或于12月开始崩溃
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597112/)
 
-#### 整理编辑：东京樱花团/Peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/10/49-29.png)
-我这是从办公室开了一天的会，特别幸福，开一天会。哎呦…我的妈呀，老带劲了，各种官司，有大量的进步，各个官司，革命性的进步。所以说我们要开启，等待着酝酿着，以法灭共，以法灭贼，在全世界。
+作者：Ryan
 
-然后呢，刚才很多战友们给我发了很多很多信息，我真的回不完了。因为今天下午没有时间看手机，就是在你们对这个新的，四千万的喜币的这个各种憧憬，各种感激，没有回复的，请战友们多多包涵。
 
-再一个关于付款的问题，请和各农场主联系，和联盟委员会联系，所有的付款，有太多要付款的了。这一百万，那两百万的，太多了，我没办法一一回了，请和农场联系，请和长岛哥联系，老班长联系，好不好？如果是实在这几个都联系不了的，你再找我，中不中？太多了，兄弟姐妹们。
 
-还有一个，莫名其妙的新的人想投资，绝对不能接受，没有什么历史，没有任何支持的，莫名其妙就来了，这个不能要了，咱们要把好关。这是给我们的老战友，长期的战友，可信的战友，留下的这个喜币上市前最后的机会，希望大家都能把握住。啥都不说了，我马上有很重要的那个……
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-那背景啥呀？对面的大楼，现在的曼哈顿……到处都是疫苗的恐惧性。今天开会的时候，原来都是打了疫苗的人，真感到他们恐惧了，他们真感到害怕，太多人现在被疫苗给吓得半死。我都担心这疫苗真正的灾难来的时候，多少人得吓死。
 
-兄弟姐妹们，任何跟随爆料革命性的，最大的给你的一个回报，就是你没打疫苗。
 
-第二个就是在这个世界危机时刻，你有希望。你有更多像亲人一样亲的战友，这是第二个。你从来没有那么多人爱你，关心你，这都是真正的比家人还爱你，关心你的人，这是第二个。
+News Target13日消息称：因疫苗强制政策而失去数万名员工，波音公司将无法向世界各地的波音飞机机主提供备件，供应链或于12月开始崩溃，航空货运业也将崩溃。波音公司要求125,000 名员工在 12 月 8 日之前必须接种新冠疫苗，否则将会被解雇。预计数以万计的波音员工会拒绝要求并辞职。由于国际海运物流供应链已经处于崩溃状态，空运便成为全球货物运输的唯一选择。而联邦航空局规定所有波音飞机都有细致的维护计划，对新零件、发动机大修和设备更换有稳定的需求。如此一来，除非取消强制疫苗接种政策，否则到2022年春季航空货运是否能正常运作是非常值得怀疑的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-4.jpg)
+物流供应链连番遭受的重创，势必进一步推高物价，令本已通胀高企的世界经济形势雪上加霜。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-92.jpg)
+参考链接：
+[Hospitals are literally SUFFOCATING patients with plastic bags; AIR CARGO will be halted this winter due to collapsing airplane parts supply chain](https://newstarget.com/2021-10-13-hospitals-suffocating-patients-plastics-bags-air-cargo-halted-parts-supply-chain.html)
+（本文仅代表作者观点）
 
-第三个是给了你希望。在你最关键的时候，你可能安全下来，珍惜吧，我都不知道说啥好，珍惜爆料革命，珍惜爆料革命，珍惜战友！越想……咱们太幸福了，我都是深刻的感觉呀，没你们，七哥就没那么幸福了。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
 
-[郭文贵先生10月15日盖特视频](https://gettr.com/post/peaunq1b9f)
+**更多资讯，更多关注**
 
-(文章仅代表作者本人观点，与GNEWS无关)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

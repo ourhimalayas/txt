@@ -2,18 +2,27 @@
 ---
 
 
-## 2021年10月15日郭先生盖特 — 视频盖特2「2分51秒」
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1597623/)
+## 秘翻在线：英国卫生署数据显示，40 岁以上疫苗接种者的感染率是未接种者的两倍多
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1597646/)
 
-听写：洛杉矶盘古农场 — 盘古小蚂蚁
-校对：洛杉矶盘古农场 — Antsee-GTV
+#### 翻译发布：文柯Miles
 
-Video link: [https://gettr.com/post/peaunq1b9f](https://gettr.com/post/peaunq1b9f)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/B1765736-60AF-4A13-B04F-9A43E1B12F42.png)
-我这是从办公室开了一天的会回来，特别幸福，开了一天的会，老带劲了。各种官司现在大量的进步，各个官司都有革命性的进展。所以我们要开启，等待着，酝酿着“以法灭共，以法灭贼” — 在全世界。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-8.png)
 
-刚才很多战友给我发了很多很多信息 — 我真的回不完了，因为今天下午我没有时间看手机。战友们「表达」对新的4000万喜币的各种憧憬，各种感激。没有回复的请战友们多多包涵。关于付款的问题，请与各农场主联系，和联盟委员会联系 — 所有的付款。有太多要付款的了，这一百万那两百万的，太多了，我没办法一一回了。请和农场联系，请和长岛哥、老班长联系。如果是实在这几个都联系不了的再找我，中不中？太多了，兄弟姐妹们。
+在英国卫生署(PHE)的最新疫苗监测报告中，40 多岁的人两次接种疫苗的感染率首次比未接种疫苗的人高出 100% 以上，达到 109%。这意味着疫苗有效性为负 109%。
 
-还有一个，莫名其妙的新的人想投资绝对不能接受。没有什么历史，没有任何支持的，莫名其妙就来的 — 这个不能要的，咱们要把好关。这是给我们的老战友，长期的战友，可信的战友留下的喜币上市前最后的机会，希望大家都能把握住。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-9.png)
 
-啥都不说了，我马上有很重要的那个……哎，那背景是啥呀？是对面的大楼。现在的曼哈顿到处都是疫苗的恐惧心理。今天开会的时候原来都是打了疫苗的人，真感到他们恐惧了，他们真感到害怕了，太多人现在被疫苗给吓得半死的了。我担心疫苗真正灾难来的时候多少人得吓死。兄弟姐妹们，任何人跟随爆料革命和新中国联邦，给你最大的一个回报就是你没打疫苗；第二个，就是在这个世界危机时刻，你有希望，你有更多像亲人一样亲的战友，这是第二个 — 你从来没有那么多人爱你，关心你，这都是真正的比家人还爱你，关心你的人，这是第二个；第三个是给了你希望，在最关键的时候你可能安全下来，珍惜吧。我都不知道说啥好 — 珍惜爆料革命，珍惜战友。越想咱们太幸福了，我都是深刻的感觉，没你们7哥就没那么幸福了。
+所有18岁以上人群的疫苗有效性继续快速下降，50多岁的人达到负85%，60多岁的人达到负88%，70多岁的人达到负79%。(有关定义和局限性的讨论见[这里](https://dailysceptic.org/2021/10/10/vaccine-effectiveness-drops-again-now-as-low-as-minus-86-in-over-40s-latest-phe-data-shows/))
+
+![](https://dailysceptic.org/wp-content/uploads/2021/10/VE-age-table-5-1024x196.jpg)
+
+尽管有一些下降的迹象，但疫苗对住院和死亡的有效性在所有年龄组中继续保持着，特别是在老年人中。
+
+![](https://dailysceptic.org/wp-content/uploads/2021/10/image-6.png)
+
+![](https://dailysceptic.org/wp-content/uploads/2021/10/image-8.png)
+
+政府仍然没有承认这种疫苗政策的失败和其对政策的影响以及分析其背后可能的原因。
+
+相关链接：**[Infection Rate in Vaccinated People in Their 40s Now More Than DOUBLE the Rate in Unvaccinated, PHE Data Shows, as Vaccine Effectiveness Hits Minus-109%](https://dailysceptic.org/2021/10/15/infection-rate-in-vaccinated-people-in-their-40s-now-more-than-double-the-rate-in-unvaccinated-phe-data-shows-as-vaccine-effectiveness-hits-minus-109/)**
