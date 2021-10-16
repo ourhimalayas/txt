@@ -2,33 +2,41 @@
 ---
 
 
-## 科顿警告美允许中共吞台将是场历史性的灾难
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1596637/)
+## 美国运输雇员工会宣布反对强迫性疫苗接种
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1596679/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：纽约香草山农场 – 四季
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/T-6.jpg)salon.com
-《福克斯新闻》10月15日发表文章指出，美国允许中共入侵、吞并台湾，这将是一场“历史性的灾难”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-全文如下：
 
-阿肯色州参议员汤姆·科顿（Tom Cotton）周五（10月15日）对“美国新闻室”（America’s Newsroom）表示，中共与台湾的紧张局势升级表明，中共政权正在利用拜登的弱点。科顿对中共官媒的一篇新社论作出回应，该社论宣称，“美国派遣海军和空军保卫台湾，将对美国士兵以致命打击。”
 
-汤姆·科顿：这是来自中共宣传机构的强有力的语言，而且与他们的行动相匹配。他们现在比近代历史上任何时候都更积极地进入台湾领空，我认为这不是在试探弱点，而是在利用乔·拜登已经表现出的弱点，我们从阿富汗屈辱地撤退，然后拜登去了联合国，甚至连中共国的名字都不说，确实是，他不敢提中共国这个词。
 
-他还说，“我们不寻求冷战。现在，当然，美国从不寻求任何形式的战争。但当中共国对我们发动冷战时，唯一的选择就是我们是赢还是输。而现在乔·拜登正在失去它，如果允许中共入侵并吞并台湾，那将是一场历史性的灾难，所以我们需要做一些事情。”
 
-“其中一些是非常实际和直接的，我们需要帮助台湾加强防御，提供更多的网络安全支持，提供更多的导弹，并为台湾海峡提供水雷。更为根本的是，我们需要向习近平明确表示，我们将支持台湾，如果中共试图入侵，我们将伸出援手。这是首要的阻止入侵的最好办法。”
+据[网关专家](https://www.thegatewaypundit.com/2021/10/boom-sheet-metal-air-rail-transportation-union-smart-203000-members-announces-stand-forced-vaccines/)10月14日报道，周四，国际金属板材、航空、铁路和运输工人协会（SMART）主席罗伊-戴维斯致信联合太平洋铁路公司，坚决反对该公司“单方面”要求工会成员接种COVID疫苗的做法，要求其立即做出书面回应，并进行谈判。这是美国运输雇员工会采取的一个重大举措。
 
-（全文完）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1223-1-smart-union.jpg)图片来源：网关专家
 
-相信科顿参议员看到了新中国联邦提供的信息，不只是中共对台湾的跃跃欲试，还包括了无能拜登老儿对中共的绥靖。一想起窃位总统拜登为了卖台而给中共写保证信就为美国悲哀。若不是文贵先生，各国领导人将都是拜登的作派，都会在中共的淫威下胆寒下跪。
+追溯其历史，SMART是由2008年1月合并的金属板工人国际协会和联合运输工会组成的，这些工会加在一起，拥有超过200年的历史和传统，并延续至今。SMART是北美最具活力和多样性的工会之一，拥有203,000名会员。该工会由钣金工人、服务技术人员、巴士操作员、工程师、售票员、标志工人、焊工、生产员工等组成。同时SMART还是北美最大的铁路运营联盟，覆盖500多个本地交通网。
 
-台湾已经到了最危险的时刻，美国还不觉醒吗？
+（本文仅代表作者观点）
 
-（文章仅代表作者个人观点）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
 
-原文链接：
+编辑/校对/发稿：小鹿
 
-[https://www.foxnews.com/media/tom-cotton-warning-china-xi-taiwan-biden-weakness](https://www.foxnews.com/media/tom-cotton-warning-china-xi-taiwan-biden-weakness)
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
