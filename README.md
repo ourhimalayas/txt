@@ -15,110 +15,110 @@
 
 ---
 
-### [俄罗斯海军在日本海驱逐美国军舰](/content/gnews/1/README.md)
+### [10/16/2021 文贵盖特：通过疫苗真相的揭露，新中国联邦正在撬动着地球](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [俄罗斯海军在日本海驱逐美国军舰](/content/gnews/2/README.md)
  ` Shuizhuyu`
 
-### [有声|郭文贵先生宣布重大好消息](/content/gnews/2/README.md)
+### [有声|郭文贵先生宣布重大好消息](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [有声|军方大主教支持宗教人士豁免接种疫苗](/content/gnews/3/README.md)
+### [有声|军方大主教支持宗教人士豁免接种疫苗](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [有声|中共欲给14岁以下女孩接种宫颈癌疫苗](/content/gnews/4/README.md)
+### [有声|中共欲给14岁以下女孩接种宫颈癌疫苗](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [香港教育局：只聘任已通过《基本法》测试的新教师](/content/gnews/5/README.md)
+### [香港教育局：只聘任已通过《基本法》测试的新教师](/content/gnews/6/README.md)
  ` 日本东京方舟农场`
 
-### [以色列卫生部连夜删帖被曝光](/content/gnews/6/README.md)
+### [以色列卫生部连夜删帖被曝光](/content/gnews/7/README.md)
  ` 日本东京方舟农场`
 
-### [美政府监督组织指控白宫发言人有违中立](/content/gnews/7/README.md)
+### [美政府监督组织指控白宫发言人有违中立](/content/gnews/8/README.md)
  ` 日本东京方舟农场`
 
-### [日本不满尚无资格的智利支持中共加入TPP](/content/gnews/8/README.md)
+### [日本不满尚无资格的智利支持中共加入TPP](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [中共能源公司欲购美国天然气](/content/gnews/9/README.md)
+### [中共能源公司欲购美国天然气](/content/gnews/10/README.md)
  ` 日本东京方舟农场`
 
-### [应届大学毕业生发起拒绝加班倡议，爆红中共国互联网](/content/gnews/10/README.md)
+### [应届大学毕业生发起拒绝加班倡议，爆红中共国互联网](/content/gnews/11/README.md)
  ` 纽约香草山MOS02`
 
-### [俄罗斯24小时内死亡人数超过一千人](/content/gnews/11/README.md)
+### [俄罗斯24小时内死亡人数超过一千人](/content/gnews/12/README.md)
  ` Charlie`
 
-### [加拿大BC省两名女士向疫苗护照提出宪法挑战](/content/gnews/12/README.md)
+### [加拿大BC省两名女士向疫苗护照提出宪法挑战](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [每 15 秒就有一个孩子死于营养不良](/content/gnews/13/README.md)
+### [每 15 秒就有一个孩子死于营养不良](/content/gnews/14/README.md)
  ` Charlie`
 
-### [四个撼动中共国经济的蝴蝶效应](/content/gnews/14/README.md)
+### [四个撼动中共国经济的蝴蝶效应](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [LinkedIn：最新撤离中共国的美国平台](/content/gnews/15/README.md)
+### [LinkedIn：最新撤离中共国的美国平台](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美又有两城市警察工会站出来对疫苗强制说不](/content/gnews/16/README.md)
+### [美又有两城市警察工会站出来对疫苗强制说不](/content/gnews/17/README.md)
  ` HimalayaRussia`
 
-### [动力煤5天暴涨34%，中共国经济危机即将被引爆](/content/gnews/17/README.md)
+### [动力煤5天暴涨34%，中共国经济危机即将被引爆](/content/gnews/18/README.md)
  ` 丁过`
 
-### [东盟拒绝缅甸军政府参与十月峰会](/content/gnews/18/README.md)
+### [东盟拒绝缅甸军政府参与十月峰会](/content/gnews/19/README.md)
  ` HimalayaRussia`
 
-### [被逼出来的绝望——“莆田凶杀案”](/content/gnews/19/README.md)
+### [被逼出来的绝望——“莆田凶杀案”](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年俄美双边贸易额可达创纪录新高](/content/gnews/20/README.md)
+### [2021年俄美双边贸易额可达创纪录新高](/content/gnews/21/README.md)
  ` HimalayaRussia`
 
-### [彻头彻尾的欺诈：CDC 允许医院将接种疫苗的死者归类为未接种疫苗的死者](/content/gnews/21/README.md)
+### [彻头彻尾的欺诈：CDC 允许医院将接种疫苗的死者归类为未接种疫苗的死者](/content/gnews/22/README.md)
  ` 波士顿五月花农场`
 
-### [财富浪潮：喜马拉雅币](/content/gnews/22/README.md)
+### [财富浪潮：喜马拉雅币](/content/gnews/23/README.md)
  ` 纽约香草山MOS02`
 
-### [澳大利亚正在建造永久性 Covid-19 隔离营](/content/gnews/23/README.md)
+### [澳大利亚正在建造永久性 Covid-19 隔离营](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [家庭反洗脑序列: 第30篇 一切都在变](/content/gnews/24/README.md)
+### [家庭反洗脑序列: 第30篇 一切都在变](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [佛州州长德桑蒂斯誓言与拜登疫苗强制令作斗争](/content/gnews/25/README.md)
+### [佛州州长德桑蒂斯誓言与拜登疫苗强制令作斗争](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新西兰强制医生和教师接种新冠疫苗](/content/gnews/26/README.md)
+### [新西兰强制医生和教师接种新冠疫苗](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [供应链短缺威胁大规模圣诞失望](/content/gnews/27/README.md)
+### [供应链短缺威胁大规模圣诞失望](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农专访2: 新中国联邦是全球自由之战的核心和先锋](/content/gnews/28/README.md)
+### [班农专访2: 新中国联邦是全球自由之战的核心和先锋](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [只是节目上的陪衬——前保守派主持人患“创伤后应激障碍”](/content/gnews/29/README.md)
+### [只是节目上的陪衬——前保守派主持人患“创伤后应激障碍”](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中国房价下跌波及半数以上省份](/content/gnews/30/README.md)
+### [中国房价下跌波及半数以上省份](/content/gnews/31/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [班农专访4: 中共执政的合法性被质疑](/content/gnews/31/README.md)
+### [班农专访4: 中共执政的合法性被质疑](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [台陆委会称目前局势接近准战争状态](/content/gnews/32/README.md)
+### [台陆委会称目前局势接近准战争状态](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
 
-### [美国的短缺是因为让杀害5亿中国人的中共控制了供应链](/content/gnews/33/README.md)
+### [美国的短缺是因为让杀害5亿中国人的中共控制了供应链](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美众议员提出反中国经济胁迫法案对抗中共](/content/gnews/34/README.md)
+### [美众议员提出反中国经济胁迫法案对抗中共](/content/gnews/35/README.md)
  ` GTV新闻访谈`
-
-### [NBA球员：不会因为强制或不接种疫苗而放弃比赛](/content/gnews/35/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [日铁起诉宝钢专利侵权，涉及碳化技术竞争](/content/gnews/36/README.md)
  ` GTV新闻访谈`
