@@ -2,34 +2,30 @@
 ---
 
 
-## 比特币飙升至 61000 美元以上，离历史最高点还差 6%
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597253/)
+## 病毒专家彼得·麦卡洛：某些非常糟糕的事情正在发生
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1597311/)
 
-作者：文一
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+撰稿：Gradient Boost
 
+视频制作：澳洲天好蓝
 
-【市场观察】网站报道：比特币在最近 24 小时内上涨了 7.3%，已高至 61253 美元，为4月以来首次，离历史最高点还差6%。
+近期，知名的COVID-19专家和拥有众多出版期刊的医生彼得·麦卡洛（Peter McCullough）博士向同事们提供了一份有关中共病毒疫苗全面的、有据可查的报告。在报告宣讲的开头，麦卡洛博士便坦诚：“我们感觉到这个世界上正在发生非常糟糕的事情。”
 
-彭博社周四援引消息人士的话称，美国证券交易委员会 SEC 准备为美国首个比特币期货交易基金开绿灯，并称监管机构不可能阻止这些基金在下周开始交易。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture700-1.jpg)
-此前，SEC 投资者教育办公室发了一条推文，警告投资者要权衡比特币期货基金的风险和收益，被认为是将要批准比特币 EFT 的信号，致比特币价格一路飙升。
+麦卡洛博士来自德克萨斯，早年毕业于美国知名院校，有着非常丰富的学术研究以及医学经验，在多家学术机构担任主编、学会主席、总顾问等职位。然而自从他开始演说以来，已经被多家机构剥夺了资格以及头衔，失去了在大型医疗系统工作的资格，甚至还收到了来自美国医师协会的恐吓信件。
 
-SEC 在未来两周内批准、拒绝或推迟比特币期货 ETF 提案都是有可能的，比特币最近几个星期内因各类消息价格跌宕起伏，且不说其合法性和被操纵在极少部分人手里的事实，但从市场和投资者如此敏感热烈的反应来看，虚拟币或数字货币万众瞩目，炙手可热，或是“热钱”的新去向。
+麦卡洛博士认为虽然当前一切似乎仍然处于正常状态，但是很快随着事情的发展，这一现状将完全瓦解。许多业内人士其实也都有类似的感觉，并且通过邮件的方式询问接下来到底应该采取怎样的行动，而在目前这个节点，有力的行动是扭转糟糕事态的关键。
 
-（本文仅代表作者观点）
+本文视频中包含更多麦卡洛博士对自己的学术经历的详细介绍，以及对他在开始宣讲活动后遭受学术检查和威胁报复的详细说明。欢迎各位读者点击播放进行收看。
 
-参考链接：[比特币飙升至 61000 美元以上，离历史最高点还差 6%](https://www.msn.com/en-us/money/savingandinvesting/bitcoin-rises-above-2461000-6-25-away-from-all-time-high/ar-AAPyIqE)
+要想了解麦卡洛博士更多有关疫苗的研究内容，请查看一下两篇视频文章：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+《[知名病毒专家重磅演讲戳穿疫苗谎言](https://gnews.org/zh-hans/1596024/)》
 
-新闻访谈终审：Q大哥
-编辑/校对/审核：Hetangyuese
+《[科学家爆料：人类有史以来第一次通过疫苗使人体产生一种异常蛋白质](https://gnews.org/zh-hans/1595247/)》
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+（本文纯属个人观点，与Gnews无关）
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

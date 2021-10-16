@@ -2,208 +2,83 @@
 ---
 
 
-## 杀人的疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1597580/)
+## 辉瑞举报人称疫苗含有有毒荧光素酶、氧化石墨烯化合物
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1597591/)
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/C494469A-8A5C-4212-BF06-562B82C5D883.jpeg)](https://gtv.org/video/id=616a833ad2e2b8174875c4d5)
-[https://gtv.org/video/id=616a833ad2e2b8174875c4d5](https://gtv.org/video/id=616a833ad2e2b8174875c4d5)
+编译：Jenny Ball
 
-字幕内容：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-2-7.png)基督徒梅丽莎·斯特里克勒 (Melissa Strickler)刚刚遭到 辉瑞 (Pfizer)解雇（图片来源：lifesitenews.com）
 
-22 months into COVID,
+《生活新闻》([LifeSiteNews](https://www.lifesitenews.com/canada/)) 报道，辉瑞-生物科技疫苗小瓶发出蓝色荧光，并含有一种叫做荧光素酶的酶，这家制药公司的质量检查员在本周的专访中告诉《生活新闻》。
 
-进入COVID已经22 个月了
+“疫苗会发光，至少辉瑞是这样，”为这家制药巨头工作了近 10 年的梅丽莎·斯特里克勒 (Melissa Strickler) 说。 **“****看起来有人拿了一根蓝色荧光棒，将其打开并放入小瓶中，但前提是有光且背景是黑暗的。**”
 
-we have all the information needed to paint a clear picture of what’s going on.
+曾在辉瑞公司堪萨斯州麦克弗森工厂工作的斯特里克勒说，她在公司的职业生涯中已经检查了“数十万单位”的疫苗，“从来没有见过这样的事情，甚至没有见过。” 她说，通常小瓶中的液体像水一样清澈，但当她注意到液体上有蓝色荧光色调时，她就拍下了小瓶的照片，并向上级询问了成分。
 
-我们拥有清晰描绘正在发生事情所需的所有信息
+**标签上没有写有荧光素酶成分**
 
-We know the Anthony Fauci, who has done all this before
+斯特里克勒说，她听到一位医生描述了疫苗成分的代码，包括荧光素酶的代码 SM102，荧光素酶是一种在萤火虫、植物和鱼类中产生的夜光酶，用于生物发光研究。 根据混合的不同化学物质，萤光素酶会发出不同的颜色。
 
-我们知道安东尼·福奇，他以前在 1980 年代在艾滋病毒、AZT(一种抗艾滋的药物) 和艾滋病方面上
+例如，在 2020 年《自然科学报告》杂志([Nature Scientific Reports](https://www.nature.com/articles/s41598-020-66286-1))的一份报告中发现了一种亮蓝色荧光素酶，并且仅在某些波长的紫外线下可见。
 
-in the 1980s with HIV, AZT, and AIDS
+斯特里克勒告诉 LifeSiteNews，她给公司发了电子邮件，询问荧光素酶是否包含在 Covid 疫苗中，并被告知它“仅用于疫苗测试”，但不会包含在最终产品中。“但我认为这整个事情是实验性的，”斯特里克勒说。
 
-和艾滋病方面上曾经做过同样的事
+“我们甚至还没有看到标签被贴在“共同体”(Comirnaty)那个工厂的小瓶上，”斯特里克勒说，指的是FDA 8 月份批准的疫苗的商品名。 “据我所知，大家还在领取那个紧急使用授权”的原来的产品。
 
-was illegally working with the Communist Chinese via the NIH
+**发育中的流产胎儿细胞**
 
-通过美国国立卫生研究院非法与中国共产党合作
+在上周“真相工程”[Project Veritas](https://www.lifesitenews.com/news/leaked-emails-show-pfizer-wanted-to-hide-covid-vaccines-connection-to-abortion/) 公开的爆炸性采访中，斯特里克勒透露了辉瑞公司高层员工的内部电子邮件，指示让低级别员工不要与公众讨论流产的胎儿细胞在开发 Covid 疫苗中的作用。
 
-to create a highly contagious, bat Coronavirus in Wuhan, China.
+辉瑞全球研究高级主管凡妮莎·格尔曼（Vanessa Gelman）向一名员工发送了一封电子邮件，询问如何回答有关在其 Covid 疫苗中使用流产细胞的问题。
 
-在中国武汉制造一种具有高度传染性的蝙蝠冠状病毒
+“从公司事务的角度来看，我们希望避免有关胎儿细胞的信息外泄。现在传达此信息的风险超过了我们可以看到的任何潜在好处，特别是对于可以获取此信息的一般公众，他们可能不希望我们在疫苗里使用它，“电子邮件说。
 
-We know that the PCR test was used to fraudulently create
+辉瑞副总裁兼首席科学官菲利普·多米策 (Philip Dormitzer) 的其他电子邮件，讨论了 1973 年从一名流产女婴身上采集的人类胚胎肾细胞 (HEK 293 细胞) 的作用，这些细胞在用于生产辉瑞 Covid 疫苗的连续细胞系中进行了复制。
 
-我们知道，PCR病毒测试被用于欺诈地制造
+斯特里克勒说，选择这些细胞，是因为它们具有生长能力，而且基本上是来自流产婴儿的“癌细胞”。
 
-a flood of false positives to legitimize the FDA emergency vaccine authorization.
+**还有什么（我们不知道）？**
 
-大量误报为阳性，以使食品药品监督管理局紧急疫苗授权合法化
+**“这让我感到恶心，因为如果他们要在这样的事情上撒谎，还有什么谎不能撒？**” 斯特里克勒评论道。“这实际上是：如果公众知道，他们肯定会关心这样的事情。”
 
-We know that the COVID vaccines are not vaccines,
+成千上万的人以宗教或良心豁免的人，以在 Covid 疫苗的开发中使用胎儿细胞为由，寻求豁免工作场所 Covid 疫苗的要求，但他们的请求遭到拒绝。**社交媒体平台经常删除有关**** Covid ****疫苗开发中胎儿组织的帖子，主流媒体将“事实核查”报告称为“错误信息”。**斯特里克勒说辉瑞知道这一点。
 
-我们知道COVID疫苗不是疫苗
+**他们就是欺骗**
 
-but rather, highly controversial mRNA, tech that failed miserably on its animal trials,
+“他们就是在欺骗。我的意思是，他们可以结束阴谋论，他们可以纠正社交媒体上的事实核查人员，但他们保持沉默，因为他们知道如果他们明确地说，‘是的，我们确实在开发过程中使用了胎儿细胞系，’他们知道他们就不能否认宗教豁免。我认为这就是它的真实用意所在。”
 
-而是极具争议的mRNA，是在动物试验中惨遭失败的技术
+“在我看来，从堕胎中获益是错误的。我不认为上帝会希望我们做这样的事情。但它比公共欺骗更深，他们正试图把疫苗打到孩子们身上。”
 
-the type of gene therapy that several top scientists warn will kill you
+**基因编辑**
 
-几位顶尖科学家警告的基因治疗类型可能会杀死你
+“**我认为所有这些东西都是阴谋**，”**斯特里克勒告诉**** LifeSiteNews ****记者吉姆·黑尔****(**** Jim Hale)****。然而，她将辉瑞的欺骗描述为****“****无止境****”****。****“****我认为除了实验性疫苗之外，他们对这种疫苗的任何事情都不诚实****,****像**** mRNA ****技术。**”
 
-if you can’t keep it from spreading throughout the body, which is exactly what it is doing.
+她补充说，疫苗的 mRNA 技术可以与 CRISPR 技术一起用于基因编辑，而辉瑞、主流媒体和政府的消息也掩盖了这一事实**。**
 
-如果你不能阻止它扩散到全身，而这正是它正在做的
+**辉瑞员工准备辞职**
 
-We know that no matter how deadly these experimental shots are
+斯特里克勒说，在 Covid 之前，她很享受作为产品检查员的工作，但自从大流行开始以来，许多员工在接种疫苗后“后悔”，“很多人拒绝接种。事实上，超过一半的员工愿意为此离职，辉瑞也知道这一点。”
 
-我们知道，无论这些实验性疫苗是多么致命
+**斯特里克勒将这个毒枭比作一个“虐待狂、富有的丈夫**”。她说，公司提供优厚的福利和薪酬，“但他们并不是完全对你最好的，因为他们似乎并没有平等地重视所有员工。”
 
-the company selling them, will not be held liable.
+她描述了频繁发送给员工的“美德信号”电子邮件，其中一封称辉瑞首席执行官阿尔伯特·布尔拉（Albert Bourla）为“年度之父”。
 
-出售它们的公司将不承担任何责任
+斯特里克勒说，在麦克弗森工厂开始生产 Covid 疫苗后，她经常想辞职，并为此祈祷，但她不得不坚持下去，直到她发现了一个爆炸性和欺骗性的公司电子邮件数据库，最终她将这些电子邮件暴露给了“真相工程”。
 
-It is all being taken care of by taxpayer dollars.
+曝光后，斯特里克勒接到辉瑞一名员工的电话，告诉她不要再来上班了，公司的来信证实她被解雇了。
 
-这一切都由纳税人的钱来支付
+LifeSiteNews将与 “真相工程” 一起为斯特里克勒筹集资金，以表彰她为捍卫真相而直言不讳的勇敢。
 
-We know that the ingredients are a big secret.
+**评论：还有什么比辉瑞质量检查员冒着辞退揭示的真相更真实？我们不能让勇敢的斯特里克勒孤单，因为她的正义良知和勇气，給我们带来了真相，这个真相将激励所有的人们行动起来，至少为了保护自己的健康和生命！斯特里克勒不仅为自己，她想到了我们人类的未来安全，她想到了我们的孩子们的未来！**
 
-我们知道它的成分是一个大秘密
+（文章仅代表作者观点，与GNEWS无关）
 
-And they don’t want you to know what’s in them.
+**参考资料：**[lifesitenews][BOMBSHELL: Pfizer whistleblower says vaccine ‘glows,’ contains toxic luciferase, graphene oxide compounds](https://www.lifesitenews.com/news/bombshell-pfizer-whistleblower-says-vaccine-glows-contains-toxic-luciferase-graphene-oxide-compounds/)
 
-而且他们不想让你知道他们里面有什么
+* * *
 
-And we know that some are getting saline placebos.
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
 
-我们知道有些人正在使用生理盐水安慰剂
-
-But now we are learning what these experimental jabs, are actually doing.
-
-但是现在我们正在学习这些实验性疫苗实际上在做什么
-
-Dr. Ryan Cole, a pathologist,
-
-病理学家瑞安 科尔博士
-
-running the biggest independent testing lab in Idaho
-
-在爱达荷州运行着最大的独立测试实验室
-
-described how the mRNA shots are causing serious autoimmune disorders.
-
-描述了mRNA注射如何导致严重的自身免疫性疾病
-
-The first shot stifles the production of lymphocytes, which cripples the immune system,
-
-第一剂会抑制淋巴细胞的产生，从而削弱免疫系统
-
-resulting in a massive increase of autoimmune diseases and cancers.
-
-导致自身免疫性疾病和癌症的大量增加
-
-The blood work presented by Dr. Nathan Thompson shows the same,
-
-这与内森·汤普森博士提供的血液检查结果显示相同
-
-and after receiving the second shot their immune system begins to fail even more.
-
-在接受接种第二剂疫苗后，他们的免疫系统开始更加衰竭
-
-According to one of the top virologists running this program,
-
-根据运行该计划的顶级病毒学家之一的说法
-
-you need the booster shot because your immune system
-
-你需要疫苗加强针，因为你的免疫系统
-
-is now failing as a result of getting the previous two shots.
-
-在你得到的前两剂疫苗现在正在减弱
-
-The data consistently shows that these shots
-
-数据一致表明这些注射的疫苗
-
-are causing massive cellular mutation throughout the entire body.
-
-正在导致整个身体的大规模细胞突变
-
-Often, wherever the recipient is most vulnerable.
-
-通常，在接种者最脆弱的地方
-
-We know that some of these shots are contaminated with mysterious objects
-
-我们知道其中一些疫苗被神秘物体污染了
-
-that appear to grow into other objects.
-
-似乎长成为其他的物体
-
-For what purpose. We don’t know.
-
-出于什么目的， 我们不知道
-
-But we do know that our government, along with the entire pop culture media machine
-
-但我们确实知道，我们的政府以及整个流行文化媒体机器
-
-are blocking life saving treatments, while keeping them for themselves.
-
-正在阻止挽救生命的治疗，同时保留着它们为他们自己使用
-
-While pushing the deadly kill shot on the public,
-
-在向公众推销致命疫苗的同时
-
-and creating a segregated society.
-
-并创造了一个隔离的社会
-
-We know without a doubt that these mRNA injections are killing people.
-
-我们毫无疑问地知道这些mRNA疫苗注射正在杀人
-
-While some may get lucky with saline placebos.
-
-虽然有些人可能会幸运的得到生理盐水安慰剂
-
-Most are having their immune system destroyed from the inside out.
-
-大多数人的免疫系统都是由内到外被破坏的
-
-We know these things, because at this point, the evidence is overwhelming.
-
-我们知道这些事情，因为在这一点上，证据是压倒性的
-
-And we know that it’s the big banks, calling all the shots for their great reset,
-
-我们知道，这是大银行为他们的“大重置”发号施令
-
-which they claim is a trans humanist utopia, a cure to climate change.
-
-他们声称这是一个跨人文主义的乌托邦，是对气候变化的治疗
-
-But who knows what we all instinctively know is how to stop them.
-
-但谁知道我们都本能地知道如何阻止它们
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: [https://forbiddenknowledgetv.net/kill-shot/](https://forbiddenknowledgetv.net/kill-shot/)
-
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
-审片：洛杉矶盘古农场-银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
