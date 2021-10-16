@@ -2,32 +2,19 @@
 ---
 
 
-## 世界医师会通过支持台湾参与 WHO、WHA 的决议文
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597252/)
+## 秘翻在线：英国顶级保守党人戴维斯反疫苗通行证的演讲被油管删除
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1597369/)
 
-作者：RYAN
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
-法广援引自由时报 10 月 15 日消息，10 月11 日至 15 日在伦敦召开的世界医师会（WMA）会员大会上，中共国医师会试图再次打压台湾的提案，遭到了各国代表的强力抵制。
+#### 翻译/撰稿：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/UGdOZMMggZOiXZQ-800x450-noPad.jpg)图片来源：change
+根据布莱巴特（Breitbart）的报道，曾担任英国首任脱欧事务大臣，英国重要政治家戴维·戴维斯(David Davis)，最近在曼彻斯特举行的党派会议上发表演讲称，虽然他提倡接种疫苗，但是反对疫苗护照，如果英国公民每做一件事都需要出示证件的话，这是不自由的。
 
-WMA 拥有 115 个会员国，是世界重要的医疗组织，也是 WHO 重要的国际非政府专业组织合作伙伴之一，在全球医疗及公共卫生等议题扮演关键角色。此次视频会议中，中共国医师会不顾此前的会议结果，提案要求取消支持台湾参与世界卫生组织（WHO）、世界卫生大会（WHA） 的决议文。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture600.jpg)
-台湾的防疫方面的成就深受各国肯定，台湾医师会长期受到中共打压有目共睹，有违“健康为基本人权，不因种族、宗教、政治信仰、经济或社会情境而有所分别”这个世卫组织及世界医师会的普世价值。
+据老大哥在看着你 (Big Brother Watch)的报道，戴维斯的这段演讲已在世界上最大的“医疗错误信息”视频分享平台上删除。科技巨头没有说明哪些内容违反了规则，但收到一份通知，解释说：“油管不允许关于中共病毒疫苗接种的说法与当地卫生部门或世界卫生组织（WHO）的专家共识相矛盾。”
 
-经过激烈辩论，各国代表以 99 票对 19 票否决中国医师会的提案，并以 91 票比 16 票再次通过支持台湾参与 WHO、WHA 的决议文。按照 WMA 的议事规则，决议文原则上 10 年检讨一次，因此 WMA 支持台湾的决议文修正案已经完整定案，理论上中共国医师会10年内不能再提出否决案。
+戴维斯在一份声明中回击称：“这是对言论自由的无耻攻击。在整个中共病毒大流行期间，我们已经看到科技巨头公然压制挑战反对声音，这个插曲只不过是扼杀言论自由的又一个例子。”戴维斯继续坚持自己在会议上的讲话是经过仔细研究，准确无误的，并且有科学证据支持。
 
-（本文仅代表作者观点）
+戴维斯哀叹自己的政党纸上谈兵，不过是进一步的侵蚀英国的言论自由，成千上万的人因为他们表达的观点而被逮捕或被警察骚扰。并不像波兰政府那样，着手解决科技巨头的审查制度。
 
-参考链接：[世界医师会通过支持台湾参与 WHO、WHA 的决议文](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211015-%E6%8C%BA%E5%8F%B0%E6%B9%BE-%E4%B8%96%E7%95%8C%E5%8C%BB%E5%B8%88%E4%BC%9A%E4%B8%A4%E6%AC%A1%E5%90%A6%E5%86%B3%E4%B8%AD%E5%9B%BD%E5%8C%BB%E5%B8%88%E4%BC%9A%E6%8F%90%E6%A1%88)
+戴维斯批评本届政府将推出的《在线安全法案》（Online Safety Bill），这项立法什么都做不了，只会将更多的权力赋予那些不负责任的硅谷巨头。油管对我言论的审查就是一个很好的警告，如果油管愿意，它甚至可以让当选的议会议员“沉默”。政府必须阻止网络言论自由被侵蚀，比如从重新审视《在线安全法案》开始。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
-
-新闻访谈终审：Q大哥
-编辑/校对/审核：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+新闻来源：[YouTube Deletes Anti-Vax Pass Speech by Top Tory for ‘Contradicting Expert Consensus’](https://www.breitbart.com/europe/2021/10/14/youtube-deletes-anti-vax-passport-speech-tory-contradicting-expert-consensus/)

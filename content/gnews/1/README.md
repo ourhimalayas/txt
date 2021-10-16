@@ -2,50 +2,47 @@
 ---
 
 
-## 京东网的青蒿素哌喹片下面的评论区让战友们乐翻了天
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1597401/)
+## 中共国正在加速增强自己空间站的太空战力
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597461/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FAitrFlUcAEQKZw_副本-1.jpg)
-京东大药房[现货直发】粤特快青蒿素哌喹片62.5mg:375mg\*4片青蒿素片疟疾恶性疟日间疟三日疟 1盒](https://item.jkcsjd.com/10032140329993.html#comment)下边的评论区让战友们乐翻了天——
+#### 作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-286.png)[*图片来源*](https://newsatcl-pctr.c.yimg.jp/r/iwiz-yn/rpr/nishiokashoji/00240598/title-1622374157136.jpeg?pri=l&amp;w=800&amp;h=450&amp;order=c2r&amp;cx=1&amp;cy=0&amp;cw=1505&amp;ch=847&amp;exp=10800&amp;fmt=webp)
+**随着“国际空间站退役进入倒计时”，中共国将成为世界上首个独立拥有国际空间站的国家。中共正在增强其太空战攻击能力，并积极追求全球合作。美太空司令迪金森说：这使得国际社会有理由猜测其“真正目的”——如发生战争，中共国战斗人员将在几分钟内禁用美国全球定位系统 (GPS)。**
 
-以备呢个什么之需，有几盒备着心里踏实，一切你们都? 懂得?，，， 2021-09-21 14:18
+据日本NHK援引CCTV消息称，16日黎明前，一艘载有3名参与中国自主空间站建设的宇航员的航天器发射升空。[中国正在加速太空探索，目标是明年完成空间站](https://www3.nhk.or.jp/news/html/20211016/k10013309481000.html)。或将初步具有对抗美军太空司令部战力。
 
-玉米地传奇产品，大品牌，值得信赖，而且价格实惠? 2021-09-20 11:41
+这是继[6月18日，中共国航天员聂海胜、刘伯明、汤洪波搭乘神州飞船进驻“天和”核心舱与天舟组合体，中国人首次进入自己的国际空间站](http://www.xinhuanet.com/mrdx/2021-06/18/c_1310015126.htm)之后的第二次。
 
-以备呢个什么之需，有几盒备着心里踏实，一切你们都? 懂得?，，，2021-09-21 14:18
+- ***延展阅读：***[***中共国以太空军备竞赛压制威胁“日美合作”***](https://www.sankei.com/article/20210706-ZTZWST7RRVPQDGHQIQGGFTALE4/)
 
-一起都是刚刚begin，嗯 哈哈哈，亲爱的展有们啊，你们健身了吗，传播。。。。感谢教练，希望人类可以度过这次劫难，阿弥陀佛 2021-10-01 21:17
 
-今日感觉良好，头晕，乏力有所减轻，感谢兄弟姐妹们，唯真不破 2021-09-29 12:23
+据NHK援引中共央视消息，16日凌晨， “神舟十三号” 载有3名男女宇航员从内陆地区的酒泉卫星发射中心发射升空。日本时间今天上午8点前，中国航天官员宣布飞船已与在建空间站成功对接。
 
-外包装完好～是按预售下单的，商家很快就发货了，赞个? 据介绍，这款药有很奇特的效果，感谢屠呦呦老人多年坚持不懈的辛苦付出? 2021-09-29 19:28
+消息称：中国正在加速建设自己的空间站，今年 6 月发射了一艘载人飞船，宇航员在进行出舱活动和技术实验后，上个月刚刚返回。据说，此次太空男女航天员“将停留半年左右，这是迄今为止中国宇航员最长的一次示范实验。”“据说女飞行员在中国首次出舱活动”。
 
-等了10天终于送到了，兄弟姐妹们，莘县阳谷现大现，咱走走看～2021-10-07 00:52
+中共国宣称此次航天发射标志着自己进入“航天强国” 行列，“已成为引领世界航天发展为目标的中国，正在加速航天发展，目标是明年建成自己的空间站。”
 
-你健身了吗 [购买18天后追评]
+根据SPACE透露，[中共国太空站将配备一个直径为 6.6 英尺（2 米），具有 25 亿像素的“巡天”望远镜，“类似于哈勃望远镜，但视野将大 300 倍](https://www.space.com/tiangong-space-station)。”该望远镜的巨大相机测量能力将具备检测 40% 的天空。
 
-玉米地出品，大品牌，值得信赖，你懂得！2021-10-15 11:29
+中共国表示届时将欢迎世界各国参与空间站科学实验。但美国立法者于 2011 年通过的一项法令禁止 NASA 与中国或任何中国公司直接合作，从而终止了这种可能性。这意味着美国宇航员送往“天宫”的前景变得不可能。
 
-防火墙无法阻挡对真相的追寻和传递，京东大药房青蒿素下边的评论区，让我们欣喜让我们癫狂，因为我们并不孤独，知道真相的战友们同时也是一颗颗传递真相的火种，在这个至暗时刻，我们彼此相依，待到冲锋号角响起，正是星火燎原时。
+显然，中共国的航天发展目标不是和平的，航天发射野蛮式增长，早些时日，令世界担心的[来自中共国最大不受控制的火箭助推器再入大气层后在阿拉伯半岛坠落地球，](https://www.space.com/chinese-rocket-booster-long-march-5b-space-junk-crash)险些酿成巨大灾难。
 
-撰稿：喜马拉雅的肉夹馍
+随着“[国际空间站](https://www.asahi.com/topics/word/%E5%9B%BD%E9%9A%9B%E5%AE%87%E5%AE%99%E3%82%B9%E3%83%86%E3%83%BC%E3%82%B7%E3%83%A7%E3%83%B3.html)[退役进入倒计时](https://news.cctv.com/2021/04/20/ARTI5otkJ8nIaZBNgdm1WdyE210420.shtml)，” 这意味着中共国将成为世界上首个独立在太空拥有国际空间站的国家，随后，俄罗斯核动力太空飞船将陆续发射登月器和和航天员登月计划。
 
-审核：喜马拉雅的馍夹肉
+- ***延展阅读：***[***中国如何一步步拥有自己的空间站司令部：从“714”到“863”再到“921”***](https://m.thepaper.cn/baijiahao_12819588)
 
-校对：Maarago
 
-（文章内容仅代表作者个人观点）
+这一举措无疑增强中共国监视世界，并有能力在太空与它宣称的敌人对抗，包括美军太空司令部。若中共政权不灭，人类将会进入不受控的星球大战时代吗？[**阅读更多**](https://theriver.jp/enterprise-d-deagostini/)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+据[雅虎日本2021年5月31日消息](https://news.yahoo.co.jp/byline/nishiokashoji/20210531-00240598)透露，中国已经发射了几颗装有机械臂的“清道夫卫星”，以收集空间碎片并在大气中将其烧掉。美国对这些机械臂表示怀疑。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+美国综合太空部队司令迪金森4月20日在美国参议院军事委员会上表示，“中国正在通过其太空攻击系统积极追求太空优势。值得一提的是，这些机械臂未来可能用于对抗卫星的系统。” 迪金森补充说：这使得国际社会有理由猜测其“真正目的”是，“如果发生战争，战斗人员将在最初几分钟内尝试禁用敌方通信，例如美国全球定位系统 (GPS)。”
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+2021年10月16日
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+（本文只代表个人观点，与Gnews网站无关）
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*校对：东京樱花团 / 野猫*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

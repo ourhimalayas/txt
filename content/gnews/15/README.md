@@ -2,34 +2,31 @@
 ---
 
 
-## 中共建设类似台北的模拟城市进行军事模拟训练
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597249/)
+## 米歇尔和习近平通话后 中国同意与欧盟举行峰会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597358/)
 
-作者：RYAN
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
-澳媒news.com10月14日报导：中共国建设类似台北的模拟城市进行军事模拟训练，证明中共多年来一直在为一场引发全球大规模冲突的战争而准备。2013 年 3 月下旬至 2015 年 3 月中旬在内蒙古朱日和作战训练基地的卫星图像记录了模拟台北的建造过程。总统总部是模拟城市最显著的特征。2015 年年中，中共官媒播放了解放军模拟在台北地区进行的训练演习的简短片段：军队从直升机上降下并走上街头，发射机枪并袭击总统总部。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture500-1.jpg)
-在过去三年的大部分时间里，台湾人民一直忍受着中共的军事挑衅和武力统一的威胁。
+#### 作者：东京樱花团｜文小白
 
-过去几周，中共无视台北和美国的警告，通过定期飞越台湾领空来展示其空中力量。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/欧中.png)[*图片来源*](https://gdb.voanews.com/6182A7A6-CD14-42D2-9F02-C58F774B3D59_w1597_n_r1_st.jpg)
 
-9 月下旬，几乎每天都在发生突破防空识别区的事件。飞行演习一直在继续，引发了人们对其日益咄咄逼人的对台立场的担忧。台湾外交部长吴钊燮上周告诉美国广播公司，台湾已做好战争准备。分析人士说，习近平主席在推动台湾统一方面已经把自己逼到了绝路。
 
-郭先生近期的爆料也一再强调：中共入侵台湾的可能性达95%，台湾危矣！
+欧洲理事会主席米歇尔（Charles Michel）周五（15日）与中共国主席习近平进行了今年以来的首次通话。米歇尔表示中共国同意很快与欧盟举行峰会。
 
-（本文仅代表作者观点）
+米歇尔本人与习近平通话后则表示，欧中关系尽管存在分歧，但对话仍然至关重要，双方同意举行峰会，认为国际社会需要团结一致。米歇尔强调，欧盟随时准备与中共合作，包括应对气候变化、流行病防范、经济复甦等全球性挑战，以及阿富汗等地区问题和安全。
 
-参考链接：[中共建设类似台北的模拟城市进行军事模拟训练](https://www.news.com.au/technology/innovation/military/proof-china-has-been-practising-for-years-for-a-war-that-would-spark-mass-global-conflict/news-story/efe55679a42171268224ba89b084e386)
+说在台湾议题方面，米歇尔提及对近期南海及两岸紧张局势升级令人担忧。米歇尔通话时还提及欧盟对中国人权状况的关切，强调需要就此问题继续对话。此外重申：欧盟认为对欧洲议会议员等实施制裁是不合理和不可接受的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+- ***延展阅读：***[***欧盟向中国领导人摊牌：我们要求对等、负责和公平***](https://www.voachinese.com/a/eu-china-summit-20200915/5583865.html)
 
-新闻访谈终审：鬼五
-编辑/校对/审核：Hetangyuese
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+中共官媒对这次中欧领导人通话的报道明显具有“中国特色“，据新华社在通话后所发布讯息称，中欧关系有必要加强战略沟通，且指中方有发展中欧关系的诚意，同时也会坚定维护自身主权、安全、发展利益等。
+
+欧盟和中共国是世界上最大的两个贸易国，自从新冠病毒爆发之前，欧盟和中国就没有举行过面对面的峰会。欧盟和中国上一次视频峰会于2020年12月30日举行。
+
+**新闻来源：**[米歇尔和习近平通话后 中国同意与欧盟举行峰会](https://www.voachinese.com/a/china-agree-to-hold-summit-michel-says-after-xi-call-20211015/6273139.html)
+
+（本文只代表个人观点，与Gnews网站无关）
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-7.png)

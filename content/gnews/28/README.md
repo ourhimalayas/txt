@@ -2,30 +2,41 @@
 ---
 
 
-## 澳洲超市巨头联手四大银行推进无现金消费模式
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1597111/)
+## 新中国联邦旗帜在马拉松比赛中走向世界
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597158/)
 
-翻译/评论：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_1650.jpg)网络截图
-据澳洲《新闻网》报道，伍尔沃斯（Woolworths）科尔斯（Coles）联手四大银行推出新的付款方式。澳大利亚消费者将在圣诞节前，在两大超市Woolworths和Coles使用二维码扫描支付购物账单。
+栏目记者：新世界的一员
+责任编辑：晓仙女
 
-这个在中共国早就引以为傲的支付方式。终于借CCP病毒大流行登陆澳大利亚了。此时的消费者，可能将迫不及待的接受这个能减少“病毒感染的”无现金付款方式，全然不在乎自己的私人讯息会被收集和跟踪。
+2020年6月4日，新中国联邦应时代局势庄严成立，我们的国旗代表“自由、民主、法制、信仰”，是正道主义的化身。
 
-据悉，超市巨头和包括联邦银行和澳大利亚国民银行在内的主要银行已经与Eftpos公司合作，推出了一个新的支付平台，称为eQR。
+10月14日郭文贵先生盖文展示，在10月11日举行的波士顿第125届马拉松比赛的跑道上，一位参赛的，脸带自信微笑，帅气的爆料革命战友（来自香草山农场的煤油灯），手握美丽庄严的新中国联邦旗帜，精神抖擞，身影矫健，成为赛场上一道亮丽的风景线，吸引当地记者快速按下了相机快门，把正走向胜利的新中国联邦的形象传向了世界。
 
-澳洲在疫情期间，这种二维码技术被广泛用于“签出签入”各个公共场所，作为重要监控措施之一，人们已经接受并习惯了这个“新技术”。
+唯真不破的新中国联邦人走到哪里，哪里就会成为亮点。 我们为身为新中国联邦的公民而感到无比自豪。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-46.jpg)
+参考链接：
+1. [郭先生盖特： 10月14号：新中国联邦的旗帜在我们帅气，健康的战友的手中，第一次在马拉松比赛中，走向了胜利。](https://gettr.com/post/pe6v027c80)
+2. [长岛哥盖特： 太棒了**👏👏👏**香草山的煤油灯战友手举新中国联邦国旗跑完了波士顿马拉松全程。未来新中国联邦国旗会出现越来越多的国际赛场上**💪💪💪**](https://gettr.com/post/pe665y48ed)
 
-它将在全国范围内推广，预计将帮助零售商从客户那里收集更多的数据，并通过将客户的会员卡积分系统与二维码联系起来，使他们能够获得个性化地优惠服务。
+（本文仅代表作者观点）
 
-在商店里，它将通过在结账处设置一个二维码来工作，顾客可以通过他们的手机摄像头或商店的应用程序来扫描。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-Eftpos首席执行官Stephen Benton说，新的支付平台是为了重新规划澳大利亚的支付体验。”我们预计eQR将迅速成为相当于Eftpos借记卡上的点击支付的二维码。Covid19已经改变了客户消费行为和习惯，澳大利亚人现在已经准备好接受eQR所提供的增强型支付体验，”他说。
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
 
-无现金社会已经势不可挡，将在全球范围内快速推进。这或许是一种社会进步，因为数字货币代替纸钞在技术上已经完全成熟。这也同样符合我们即将上市的喜币的愿景，未来喜币加入eQR以及全球其它国家的数字支付系统，就是我们新中国联邦货币登上世界舞台的时刻。
+**更多资讯，更多关注**
 
-（本文纯属个人观点，与Gnews无关）
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[原文链接：](https://www.news.com.au/finance/business/retail/woolworths-coles-and-big-banks-introduce-new-way-to-pay/news-story/78aa9368f17330cf5d7b0c8299317c94)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

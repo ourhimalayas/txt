@@ -2,42 +2,23 @@
 ---
 
 
-## 法官驳回美联航将未接种员工放无薪假的计划
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1597377/)
+## 日本新增感染骤减
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597426/)
 
-- **编译：Jenny Ball**
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/10/34-4.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.tyypsc.com%2Fzb_users%2Fupload%2F2021%2F02%2F20210218013106161358306633141.jpg&amp;imgrefurl=https%3A%2F%2Fwww.tyypsc.com%2Fjingtaichun%2F923.html&amp;tbnid=5gJdyslbLjJdoM&amp;vet=12ahUKEwiDtpSgps7zAhVEy4sBHdfmBb4QMygTegUIARDRAQ..i&amp;docid=IORcVLhDnZ1YbM&amp;w=640&amp;h=427&amp;itg=1&amp;q=%E5%B8%8C%E6%9C%9B%E7%9A%84%E6%9B%99%E5%85%89&amp;hl=zh-CN&amp;ved=2ahUKEwiDtpSgps7zAhVEy4sBHdfmBb4QMygTegUIARDRAQ)
+时事通信社10月16日报道，进入九月份后，中共病毒新增感染人数急剧下降，日本厚生劳动省的专家组织分析其原因，得出结论：不清楚确切的理由，但与“疫苗效果”、“国民行动变化”等综合原因有关。
 
+在第5波中共病毒流行期间，8月20日全日本一天新增感染人数为2万5866，这是截至目前最高数据；本月3日全日本一天新增感人数仅为1000。专家组织表示，3-9月份接种新冠疫苗，有效抑制感染约为65万人，预防死亡约7200人。报道称，感染人数下降的原因可能有：疫苗接种率提高；控制自己的行为；天气转凉，室内通风；德尔塔病毒变强，但病原性减弱；无症状感染者且未接受检测等原因。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip01.png)
+所谓专家的措辞还是一如既往的“谨慎”，不断引导大众往疫苗方向上归因，又怕担责任含糊不清，难以得出具体原因。
 
-一位联邦法官本周裁定，为避免公司的Covid-19疫苗接种强制令，而寻求医疗或宗教豁免的美国联合航空公司员工，不能被置于无薪休假的状态。
+信息来源：
 
-据《布莱巴特新闻网》报道，由川普总统任命的美国地区法官马克·皮特曼(Mark Pittman)针对该公司将在10月26日前不接种疫苗的员工置于无薪假期的计划发布了临时限制令。
+[感染者数なぜ急減？　ワクチン効果、行動変化など―専門家「複合的要因」](https://www.jiji.com/jc/article?k=2021101600137&amp;g=cov)
 
-皮特曼在他的裁决中写道：“法院现在得出结论，有必要发布这一临时限制令，以避免出现不可挽回的伤害风险，并在法院审理和解决原告的初步禁令动议之前维持本案的现状。”
+(文章仅代表作者本人观点，与GNEWS无关)
 
-根据最新的裁决，最早要求接种中共病毒Covid-19疫苗的美联航，也被禁止拒绝任何员工对Covid-19疫苗的宗教或医疗豁免请求。美联航最初告诉员工，他们在8月31日之后将不被允许申请豁免。
-
-这一裁决有效地保护了员工，直到法院能够听取与一群美联航公司员工提起的诉讼有关的口头辩论。
-
-然而，据《每日邮报》报道，虽然寻求豁免疫苗强制令的美联航员工被暂时允许继续工作，但该航空公司计划解雇300多名没有申请豁免的工人。
-
-保守派评论员、美国保守派联盟主席马特·施拉普(Matt Schlapp)向美联航提出了一系列问题，问它要走多远。
-
-“你能因为不健康而解雇某人吗？因为是吸烟者？因为有2型糖尿病？因为超重？因为年老？免疫系统差？正在生病？这些都会促成更严重的冠状病毒病例。这是美联航的下一步吗？”施拉普问道。
-
-虽然目前还不清楚公司打算以“公共健康”的名义将强制规定做到什么程度，但所有美国人都应该对他们目前所处的境遇深感担忧。
-
-由于这种明显侵犯美国人个人自由的乌托邦式的强制令，航空公司的员工正在全国各地进行抗议，希望重新获得他们的自由。
-
-（文章仅代表作者观点，与GNEWS无关）
-
-参考资料：[rsbnetwork.com] [JUDGE STRIKES DOWN UNITED AIRLINES PLAN TO PLACE UNVACCINATED WORKERS SEEKING EXEMPTIONS ON UNPAID LEAVE](https://rsbnetwork.com/news/judge-strikes-down-united-airlines-plan-to-place-unvaccinated-workers-seeking-exemptions-on-unpaid-leave/)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

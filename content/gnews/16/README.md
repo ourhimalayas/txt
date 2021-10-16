@@ -2,36 +2,27 @@
 ---
 
 
-## 中共党媒同时发表习近平讲稿 疑为推房地产税吹风
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597248/)
+## 秘翻在线:美国证监会行政令：关于GTV、VOG等公司的问题
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1597339/)
 
-作者：AsG諾雅
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
-10 月 15 日，中共党媒《求是》为首的喉舌正式发表了题为《扎实推动共同富裕》的文章。该文是习近平 8 月 17 日在中央财经委员会第十次会议上讲话的一部分，据称会议强调了要合理调节所谓“过高收入”，鼓励高收入人群和企业更多回报社会。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1000.jpg)
-针对中共党媒此时再刊此文，外媒关注到文中明确要求的“要积极稳妥推进房地产税立法和改革”。中共酝酿征收房产税已超过十年，在各地财政赤字问题突出的背景下，可以合理推测北京会在短期内修订《房产税暂行条例》，扩大征收范围，将个人住房纳入其中，并且将整合现有税种，开始征收房地产税这一新税。
+#### 翻译/撰稿：zzballack
 
-2020 年的中共两会记者会上，李克强公开表示，有 6 亿人月收入在 1000 元以下，国民收入分配中，近年来居民占比持续下降，2018 年的初次分配和再分配中占比都低于 2013 年。今年中共内斗，政策打压横扫从科技巨头到教培、电游、娱乐等行业，加上中共一连串的倒行逆施，国内营商环境恶化，私企倒闭，外资撤离等等，中共在金融体系崩溃前继续想方设法、巧立名目从老百姓身上吸血。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-2-11.jpg)图片来源：路透社
+2021年9月13日，美国证券交易委员会（SEC）对GTV Media Group, Inc.（“GTV”）、Saraca Media Group, Inc.（“Saraca”）和Voice of Guo Media, Inc.（“VOG”）（统称为“被告”）提起并同时解决了终止诉讼程序（“命令”）。在该命令中，委员会发现，大约从2020年4月到2020年6月，被告违反了联邦证券法的注册规定，招揽数千人投资GTV发行的普通股。委员会还发现，在同一时期，GTV和Saraca招揽人们投资他们发行的被称为G-Coins或G-Dollars的数字资产证券。根据该命令，由于这两次未注册的证券发行，其收益被混合在一起，到2020年7月，被告人从5000多名投资者那里总共筹集了约4.87亿美元。
 
-（本文仅代表作者观点）
+在其他方面，委员会命令GTV和Saraca共同和单独支付4亿3413万4141美元的罚金和1577万6488美元的预付利息，并各自向委员会支付1500万美元的民事罚款。委员会还命令VOG支付5261万922美元的罚金、191万1877美元的预付利息以及向委员会支付500万美元的民事罚款。委员会根据《2002年萨班斯-奥克斯利法案》（Sarbanes-Oxley Act of 2002）第308(a)条设立了一个公平基金（Fair Fund），以便将收缴的罚款以及收缴的罚金和预付利息分配给那些受到本命令所述的被告行为伤害的人（“公平基金”）。
 
-参考链接：
-1. [中共党媒同时发表习近平讲稿 疑为推房地产税吹风](https://www.dw.com/zh/%E4%B8%BA%E4%BA%86%E5%85%B1%E5%90%8C%E5%AF%8C%E8%A3%95%E6%88%BF%E5%9C%B0%E4%BA%A7%E7%A8%8E%E5%91%BC%E4%B9%8B%E6%AC%B2%E5%87%BA/a-59521592)
-2. [中共党媒同时发表习近平讲稿 疑为推房地产税吹风](https://www.reuters.com/world/china/xi-says-china-will-achieve-common-prosperity-by-around-2050-party-publication-2021-10-15/)
-3. [中共党媒同时发表习近平讲稿 疑为推房地产税吹风](https://www.gov.cn/xinwen/2021-10/15/content_5642821.htm)
-4. [中共党媒同时发表习近平讲稿 疑为推房地产税吹风](https://www.sohu.com/a/495309054_465270)
-5. [中共党媒同时发表习近平讲稿 疑为推房地产税吹风](http://www.news.cn/politics/leaders/2021-10/15/c_1127961105.htm?appid=898574)
-6. [中共党媒同时发表习近平讲稿 疑为推房地产税吹风](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E9%A2%86%E5%AF%BC%E4%BA%BA%E8%A6%81%E9%87%8D%E6%96%B0%E5%88%86%E9%85%8D%E8%B4%A2%E5%AF%8C-%E8%B0%83%E8%8A%82%E8%BF%87%E9%AB%98%E6%94%B6%E5%85%A5%E5%BC%95%E7%83%AD%E8%AE%AE/a-58899079)
+此外，委员会还命令被告人遵守几项承诺，包括承诺协助委员会工作人员管理分配计划，将公平基金分配给受影响的投资者。见委员会的命令：第[33-10979](https://www.sec.gov/litigation/admin/2021/33-10979.pdf)号公告。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+截至2021年10月14日，公平基金包括被告人根据该命令支付的约4.54亿美元。公平基金已被存入美国财政部（Department of the Treasury）财政服务局 (Bureau of the Fiscal Service)的一个计息账户。今后根据该命令收取的任何资金，以及根据法院或委员会命令指向公平基金的任何相关行动的资金将被添加到公平基金中，
 
-新闻访谈终审：Ryan
-编辑/校对/审核：Hetangyuese
+2021年10月14日，委员会发布命令，任命Miller Kaplan Arase LLP为公平基金的税务管理员。见委员会的命令：第[34-93313](https://www.sec.gov/litigation/admin/2021/34-93313.pdf)号公告。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+欲了解更多信息，请联系委员会：
+
+分配办公室
+
+电子邮件：Email: [\[email protected\]](/cdn-cgi/l/email-protection)
+
+新闻来源：[In the Matter of GTV Media Group, Inc., et al. Admin. Proc. File No. 3-20537](https://www.sec.gov/divisions/enforce/claims/gtv-media-group.htm)

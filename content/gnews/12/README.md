@@ -2,34 +2,42 @@
 ---
 
 
-## 比特币飙升至 61000 美元以上，离历史最高点还差 6%
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597253/)
+## 法官驳回美联航将未接种员工放无薪假的计划
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1597377/)
 
-作者：文一
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+- **编译：Jenny Ball**
 
 
-【市场观察】网站报道：比特币在最近 24 小时内上涨了 7.3%，已高至 61253 美元，为4月以来首次，离历史最高点还差6%。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip01.png)
 
-彭博社周四援引消息人士的话称，美国证券交易委员会 SEC 准备为美国首个比特币期货交易基金开绿灯，并称监管机构不可能阻止这些基金在下周开始交易。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture700-1.jpg)
-此前，SEC 投资者教育办公室发了一条推文，警告投资者要权衡比特币期货基金的风险和收益，被认为是将要批准比特币 EFT 的信号，致比特币价格一路飙升。
+一位联邦法官本周裁定，为避免公司的Covid-19疫苗接种强制令，而寻求医疗或宗教豁免的美国联合航空公司员工，不能被置于无薪休假的状态。
 
-SEC 在未来两周内批准、拒绝或推迟比特币期货 ETF 提案都是有可能的，比特币最近几个星期内因各类消息价格跌宕起伏，且不说其合法性和被操纵在极少部分人手里的事实，但从市场和投资者如此敏感热烈的反应来看，虚拟币或数字货币万众瞩目，炙手可热，或是“热钱”的新去向。
+据《布莱巴特新闻网》报道，由川普总统任命的美国地区法官马克·皮特曼(Mark Pittman)针对该公司将在10月26日前不接种疫苗的员工置于无薪假期的计划发布了临时限制令。
 
-（本文仅代表作者观点）
+皮特曼在他的裁决中写道：“法院现在得出结论，有必要发布这一临时限制令，以避免出现不可挽回的伤害风险，并在法院审理和解决原告的初步禁令动议之前维持本案的现状。”
 
-参考链接：[比特币飙升至 61000 美元以上，离历史最高点还差 6%](https://www.msn.com/en-us/money/savingandinvesting/bitcoin-rises-above-2461000-6-25-away-from-all-time-high/ar-AAPyIqE)
+根据最新的裁决，最早要求接种中共病毒Covid-19疫苗的美联航，也被禁止拒绝任何员工对Covid-19疫苗的宗教或医疗豁免请求。美联航最初告诉员工，他们在8月31日之后将不被允许申请豁免。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+这一裁决有效地保护了员工，直到法院能够听取与一群美联航公司员工提起的诉讼有关的口头辩论。
 
-新闻访谈终审：Q大哥
-编辑/校对/审核：Hetangyuese
+然而，据《每日邮报》报道，虽然寻求豁免疫苗强制令的美联航员工被暂时允许继续工作，但该航空公司计划解雇300多名没有申请豁免的工人。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+保守派评论员、美国保守派联盟主席马特·施拉普(Matt Schlapp)向美联航提出了一系列问题，问它要走多远。
+
+“你能因为不健康而解雇某人吗？因为是吸烟者？因为有2型糖尿病？因为超重？因为年老？免疫系统差？正在生病？这些都会促成更严重的冠状病毒病例。这是美联航的下一步吗？”施拉普问道。
+
+虽然目前还不清楚公司打算以“公共健康”的名义将强制规定做到什么程度，但所有美国人都应该对他们目前所处的境遇深感担忧。
+
+由于这种明显侵犯美国人个人自由的乌托邦式的强制令，航空公司的员工正在全国各地进行抗议，希望重新获得他们的自由。
+
+（文章仅代表作者观点，与GNEWS无关）
+
+参考资料：[rsbnetwork.com] [JUDGE STRIKES DOWN UNITED AIRLINES PLAN TO PLACE UNVACCINATED WORKERS SEEKING EXEMPTIONS ON UNPAID LEAVE](https://rsbnetwork.com/news/judge-strikes-down-united-airlines-plan-to-place-unvaccinated-workers-seeking-exemptions-on-unpaid-leave/)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
