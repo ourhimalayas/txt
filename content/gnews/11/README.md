@@ -2,22 +2,19 @@
 ---
 
 
-## 樱花灭共诗——26病毒溯源砖家出炉
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597435/)
+## 韩总统文在寅夫妇接种中共病毒疫苗“加强针”
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1597484/)
 
-#### 作者：东京樱花团/藤田村野
-![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
-病毒溯源何日了？一轮造假二轮编。
+韩国首尔天池农场
+翻译：鱼子酱
+编辑：追着曙光跑
+![照片提供：韩联社](https://assets.gnews.org/wp-content/uploads/2021/10/WhatsApp-Image-2021-10-16-at-18.30.23.jpeg)照片：韩联社
+根据韩国MBC新闻10月15日的报道，文在寅总统和夫人金正淑女士于15日上午在国立中央医疗院，接受了中共病毒疫苗“加强针”的追加预防接种。
 
-全球点将阴箱作，二六砖家匪笑弯。
+这次追加接种的是辉瑞疫苗，此前文在寅总统于3月23日和4月30日接种了阿斯特拉杰内卡疫苗。
 
-世卫丑闻诚信失，联合国誉亦玩完。
+韩政府对第二次接种后超过6个月的高龄层和医疗人员，实行追加接种“加强针”，但如果有出国等原因，允许在6个月内接种。
 
-搭台唱戏谁人看？正义追查绝不闲。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3242.jpg)
-(本文只代表作者观点，与GNews网站无关)
+据青瓦台透露，接种疫苗后，文在寅在青瓦台完成了预定日程，他表示：“进行了追加接种，并不觉得太累，希望更多人接种疫苗。”
 
-*插图：东京樱花团/闪闪*
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)
+[新闻来源](https://imnews.imbc.com/news/2021/politics/article/6307462_34866.html?utm_source=dable)

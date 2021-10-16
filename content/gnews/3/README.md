@@ -2,74 +2,71 @@
 ---
 
 
-## 币圈新闻动态：长岛伟哥10月14日直播介绍4,000万HCN如何分配
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1597502/)
+## 立法者对 CDC提起重要指控——我们被你们骗了吗？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1597528/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
+编译：Jenny Ball
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-7-6.png)图片来源：westernjournal.com
 
+## 立法者：CDC 可能在操纵 COVID 数据，以 5 倍的系数少报疫苗副作用
 
+很明显，所谓的健康“专家”在谈到冠状病毒时有一个政治议程。两名共和党州参议员现在指控两个政府卫生机构操纵统计数据。
 
-## 每日一问
+[据《大纪元时报》报道](https://www.theepochtimes.com/oregon-senators-call-for-investigation-into-alleged-covid-19-statistical-manipulation_4044333.html)，俄勒冈州参议员金·撒切尔 (Kim Thatcher) 和丹尼斯·林西克 (Dennis Linthicum)于 8 月 16 日[致函](https://standforhealthfreedom.com/wp-content/uploads/2021/09/0-Senate-Letterhead-Grand-Jury-Petition-AUSA.pdf)代理美国检察官斯科特·阿斯福格（Scott E. Asphaug），要求他对CDC和 FDA 提供的冠状病毒统计数据展开大陪审团调查。
 
+虽然这封信已经一个多月了，但请愿背后的组织“健康自由立场”[Stand for Health Freedom](https://standforhealthfreedom.com/press-release/or-senators-grand-jury-petition/)表示它故意拖至到 9 月 16 日才被公开。
 
+SHF 的贝利·库肯多尔 (Bailey Kuykendoll) 告诉[Just the News](https://justthenews.com/government/federal-agencies/lawmakers-seek-federal-grand-jury-investigation-covid-19-statistical)网站：“我不确定是否曾有人指控政府有如此大规模的不当行为。” 她说，该组织希望在公开这封信之前确保数据的“准确性和安全性”。
 
+立法者在信中说，一名举报人在宣誓证词中声称，CDC 疫苗不良事件报告系统中(VAERS)记录的死亡和伤害“可能被漏报了五倍”。
 
+此外，参议员们表示， [CDC](https://www.westernjournal.com/forget-covid-masks-now-cdc-getting-involved-guns/?ff_source=Email&amp;ff_medium=newsletter-CT&amp;ff_campaign=dailypm&amp;ff_content=conservative-tribune) 和 FDA 使用的 COVID-19 测试可能会产生大量的误报。 他们特别表示，测试中被称为周期阈值的参数之一,可能会导致“夸大的 COVID 病例数、住院人数和死亡人数”。
 
-“不抛弃，不忘记”，到底对象是谁呢？
+“哈佛流行病学家迈克尔·米纳（Michael Mina）博士在 2020 年 8 月告诉《纽约时报》，阈值（1）太高的测试可能不仅能检测到活病毒，还能检测到基因片段，”《大纪元时报》报道。
 
+（1: 阈值指为使某种反应、现象、结果或条件发生或显现而必须超过的量级或强度。）
 
+米纳说阈值最多应该是30个周期。在信中，参议员们表示，CDC 目前将接种疫苗的人的周期阈值设定为 28。
 
+**然而，**** FDA ****将未接种疫苗的人的阈值设定为**** 40****。**[**不同的标准导致未接种疫苗的假阳性较多**](https://www.westernjournal.com/nearly-200000-covid-tests-recalled-kits-produced-huge-number-false-positives/?ff_source=Email&amp;ff_medium=newsletter-CT&amp;ff_campaign=dailypm&amp;ff_content=conservative-tribune)**，接种疫苗的****“****突破****”****病例报告较少。**
 
+参议员们说：“这些事实使公众几乎不可能相信他们所提供的数据,以及基于这些数据的公共卫生政策。”
 
-## 喜马拉雅交易所要闻
+关于 COVID-19 治疗的问题，参议员们表示，他们“深切关注科学文献继续提供经验证据，那些证据表明存在针对 COVID-19 的安全有效的治疗和管理策略，但却并没有提供给最需要的美国人。** ”**
 
+参议员们表示，虽然疫苗通常“有用”，但突破性病例数量的增加表明，它们并不是对每个美国人都灵丹妙药。 出于这个原因，他们表示 CDC 和 FDA 应该提供其他治疗方案来代替或补充疫苗。
 
+据 Just the News 报道，**立法者将维生素**** D ****和伊维菌素**[**ivermectin**](https://www.westernjournal.com/game-changer-places-ivermectin-used-fight-parasites-medical-group-notices-something-huge/?ff_source=Email&amp;ff_medium=newsletter-CT&amp;ff_campaign=dailypm&amp;ff_content=conservative-tribune)** ****列为被这些机构打压的治疗方法**。**他们说，虽然这些治疗已被证明是安全的，但开处方的医生可能会被罚款或吊销执照。**
 
+参议员提出的另一个问题是，即使他们已经从病毒中康复，测试方法也倾向于将人们识别为 COVID 阳性。
 
+“明确诊断才能保证在评估情况和确保急需的人得到他们应有的相应护理，谁具有传染性，并区分谁不是最急需的，”信中说。
 
-- 联盟长岛伟哥和唐平女士10月14日直播介绍4,000万HCN如何分配给投资G系列的以及捐款给法治基金和法治社会的战友们。
+**“****传染性传播管理的这一重要方面陷入混乱。当我们提供给他们的**** PCR ****测试既不准确，又无法区分谁是传染性的，谁可能已经被感染但已经康复时，我们勇敢的前线医护人员实际上就被戴上了手铐。**”
 
+最后，参议员们重申了美国的建国文件在这最艰难时期的重要性。
 
+他们说：“**危机并不能先于我们国家或州的宪法**。” “**危机使宪法更适用，并且当真诚地遵守时，会产生公众信任。”**
 
+《大纪元时报》称，共有 1,718 名俄勒冈人和 53,032 名美国人签署了这封信。大陪审团的调查尚未针对请愿书展开。
 
+评论：
 
+我们是不是要问一下专业医疗人士，如果非专业的立法者都看到了“**当我们提供给他们的**** PCR ****测试既不准确，又无法区分谁是传染性的，谁可能已经被感染但已经康复时，我们勇敢的前线医护人员实际上就被戴上了手铐。**”难道你们吃这碗饭的人不知道数据准确的重要性吗？
 
-## 新闻动态
+人们应该多选出这样的代表，他们知道“**危机使宪法更适用，并且当真诚地遵守时，会产生公众信任。”**
 
+**拿起我们的武器——宪法，行动起来保护我们的健康和生命！**
 
+（文章仅代表作者观点，与GNEWS无关）
 
+**参考资料：**[westernjournal][Lawmakers: CDC May Be Manipulating COVID Data, Underreporting Vaccine Side Effects by Factor of 5](https://www.westernjournal.com/lawmakers-cdc-may-manipulating-covid-data-underreporting-vaccine-side-effects-factor-5/?utm_source=Email&amp;utm_medium=newsletter-CT&amp;utm_campaign=dailypm&amp;utm_content=conservative-tribune&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
 
+* * *
 
-1. DappRader最新数据显示，NFT市场OpenSea交易总额已突破90亿美元（交易者数量为549,615），创下历史新高，位列NFT市场交易额排名第一位。值得一提的是，OpenSea在10月7日交易总额达到80亿美元，这意味着该平台最近十天的交易额达到10亿美元。
-2. 10月16日消息，以太坊链上BTC锚定币锁仓量在10月15日晚间突破180亿美元创历史新高，最高点达到18,095,745,724美元。此外BTC锚定币昨日出现小幅增发，目前总发行量为29.326万枚。
-3. Decrypt报道，AxieInfinity在2021年第三季度交易量达到20.8亿美元，超过NBATopShot和CryptoPunks，成为上一季交易量最大NFT收藏品。据DappRadar数据显示，三季度dApp唯一活跃钱包日均值达到了154万个，其中“边玩边赚”游戏平均每天吸引的唯一活跃钱包数量达到了754,000个，比上一季度提高140%，包括Hive、BSC和WAX在内的区块链网络也都从“边玩边赚”游戏潮流中受益。自从转向Ronin侧链解决方案以来，AxieInfinity表现越来越出色，据这款游戏背后的开发公司SkyMavis称，AxieInfinity在第三季度的活跃用户量已经超过150万，游戏收入超过7.76亿美元，轻松超越BSC区块链、甚至是比特币的收入。
-4. CoinATMRadar统计数据显示，截止目前，比特币ATM机在全球的部署数量已达29,539台。分布在73个国家或地区，其中美国25,990台，加拿大2,014台，萨尔瓦多205台。其余每个国家或地区均低于200台。
-5. 10月16日消息，美国金融稳定监督委员会将于10月21日召开会议，议程包括稳定币报告。
-6. 10月16日消息，Jacobi资产管理公司获准推出首个一级比特币ETF。Jacobi比特币ETF是一种中央清算的加密支持的金融工具，由根西岛金融服务委员会(GFSC)授权并由Fidelity Digital Assets提供托管。Jacobi打算将Jacobi比特币ETF在欧洲最大的泛欧股票交易所之一Cboe Europe上市，但需获得英国金融行为监管局(FCA)的上市批准。
-7. BitcoinMagazine报道，Jack Dorsey旗下移动支付公司Square的比特币投资价值翻倍。该公司此前投资2.2亿美元的比特币，现在价值超过4.7亿美元。迄今为止，Square持有约8,027枚比特币，总购买价为2.2亿美元，每枚比特币的平均价格为27407美元，包括费用和开支。
-8. 10月16日消息，DeFi无损彩票项目PoolTogether通过推出v4对架构进行了彻底改革，这是为小玩家量身定制的协议升级。PoolTogether的新架构允许更大程度的奖金分拆（从收益池中抽取上千份奖金），让较小的存款人获得奖金的机会更大。
-9. Pressat报道，Bitcoin Latinum宣布与区块链网络安全公司GK8达成合作。据悉，GK8是为金融机构和加密货币项目提供数字资产自我管理的端到端托管平台。为了保护其生态系统，Bitcoin Latinum将集成GK8专有的专有合规解决方案，利用它来存储自己的代币，并有可能向其散户和机构投资者提供托管服务。
-10. 10月16日消息，洲际交易所（ICE）周五宣布，数字资产平台Bakkt Holdings已完成与VPC Impact Acquisition的合并。Bakkt将从10月18日开始作为一家上市公司在纽约证券交易所（NYSE）进行交易，将使用股票代码“BKKT”。
-11. 10月15日消息，国际网球联合会（ITF）与戴维斯杯的主办方Kosmos Tennis宣布与Socios.com达成合作关系，将于Socios.com推出戴维斯杯官方粉丝Token DAVIS。戴维斯杯被称为网球的世界杯，开始于1900年。选手们以国家为单位，于一年中分散的数个星期、于许多地点进行比赛，每年产生一个戴维斯杯总冠军。
-12. 官方消息，基于币安智能链上的新生GAMEFI硬币Petworld（PW）与纽约加密区块链M31Capital达成合作。据悉，M31Capital会助力PW进入美国地区的加密货币市场；监督PWGAMEFI在资源配置、风险定价、收益产出等方面建立更加完善的模型，为推动游戏高质量发展提供支撑。
-13. 10月16日消息，由Valve运营的游戏和软件平台Steam已开始清除所有涉及NFT或加密货币的游戏。Valve的新手入门页面中添加的更新指出，不应在Steam上发布的应用程序包括“基于区块链技术构建的可发行或允许交换加密货币或NFT的应用程序”。
-14. 10月16日消息，前UFC轻量级冠军Khabib Nurmagomedov已与加密货币矿业公司GoMining达成赞助协议。Nurmagomedov表示，相信在不久的将来，区块链和比特币将取代我们习惯的金融机构，成为世界上主要的支付系统。
-15. Telecoms报道，Telefónica Tech表示，将使用其Trust OS区块链平台注册Atrebo管理的20万个塔点。过去十年，总部位于塞维利亚的Atrebo一直在帮助铁塔公司和移动运营商实现基础设施资产的自动化和管理，其客户包括Telefonica和Vodafone的Vantage Towers。
-16. 官方消息，Chainge所在公链Fusion近日在550万块高度在测试网进行分叉升级，测试通过之后会在580万块高度在主网进行分叉升级。升级之后，Chainge的EDM兼容性将升级到最新版本，将可以兼容其他所有EDM兼容的智能合约。Fusion增容将使Chainge的交易速度提升至少5倍、承载的交易笔数也提高至少5倍。
-17. CoinDesk报道，根据能源部和反垄断部联合发布的一项指令，白俄罗斯将加密矿工归入与数据中心相同的电价分组类别。该指令于9月27日发布，并于周四公开，在之前的列表中增加两种客户类别。其中一个类别是“处理数据、为信息存储和相关活动提供服务的组织，包括挖矿和数据中心。”
-18. Cointelegraph报道，俄罗斯央行正试图评估当地投资者的比特币持有量，因为在新冠肺炎引发的提款后，大量资金没有返回银行。据俄罗斯央行金融稳定部门负责人Elizaveta Danilova称，俄罗斯银行正在对当地加密货币投资者进行民意调查，以估计俄罗斯的加密货币投资量。
-19. 10月16日消息，美国货币监理署（OCC）于周五发布了2022财年银行监管运营计划，加密货币首次被纳入该计划。在报告中，OCC列出了11项监管重点领域，除网络安全、气候变化之外，OCC表示，审查员应识别正在使用加密货币等金融创新对其运营实施重大变革的银行，并评估实施情况。当银行发生重大变化时，审查员应评估治理流程的适当性。OCC至少自2018年以来一直在研究加密行业，这是加密货币首次被纳入该监管机构的年度运营计划，去年7月，OCC发布了一封解释信，允许联邦特许银行提供加密托管服务。
-20. 10月15日消息，美国商品期货交易委员会（CFTC）要求加密货币交易平台Bitfinex和Tether支付4,250万美元的罚款。26岁的阿根廷程序员Damian Catanzaro于2020年2月创办小费平台Cafecito，在阿根廷内容创作者和非政府组织中引起轰动，该平台已有30万用户。在最近集成闪电网络后，他希望走向全球。
-21. 10月15日消息，美国财政部发布虚拟货币行业制裁合规指南，美国财政部建议虚拟货币交易所使用地理定位工具阻止受到美国制裁的国家访问其网站，加密行业有责任确保他们不直接或间接参与美国财政部外国资产控制办公室（OFAC）所禁止的制裁交易。
-22. Blockworks报道，正当人们猜测美国SEC是否会批准基于比特币期货的ETF之际，Valkyrie周五凌晨提交一份文件，表明其基金可能很快开始交易。Valkyrie于8月份首次申请其比特币策略ETF，并于10月15日向SEC提交Valkyrie ETF Trust II的Form8-A注册文件。通常公司在交易所发行证券前必须填写该表格。知情人士表示，此举很可能意味着比特币期货ETF的批准即将到来。
-23. Cointelegraph报道，在美国总统乔•拜登签署将政府债务上限提高到28.9万亿美元的法案之际，参议员Cynthia Lummis称“Thank God for Bitcoin（谢天谢地，还好有比特币）”。Lummis说，她对比特币等非法定数字货币如此感兴趣的原因之一是，这些货币不是由政府发行的，因此不受美国等“政府积累”债务的影响。
-24. U.Today报道，金融服务平台Evrynet宣布三位金融科技资深人士加入其顾问委员会。Kyber Network首席执行官兼联合创始人LoiLui将策划Evrynet的产品开发。Stellar Development Foundation（SDF）联合创始人David Mazieres已经为Evrynet白皮书做出贡献。作为顾问，他将通过自己在分布式分类账系统方面的专业知识来支持Evrynet团队。麻省理工学院教授、芝加哥联邦储备银行和世界银行的顾问Robert Townsend将利用他在世界经济和金融方面的经验来改进Evrynet的代币经济学。
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
 
-
-
-
-
-*编辑：aQ
-发布：文顾*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)

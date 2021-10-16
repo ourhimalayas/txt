@@ -2,32 +2,30 @@
 ---
 
 
-## 世界医师会通过支持台湾参与 WHO、WHA 的决议文
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597252/)
+## 病毒专家彼得·麦卡洛：某些非常糟糕的事情正在发生
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1597311/)
 
-作者：RYAN
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
-法广援引自由时报 10 月 15 日消息，10 月11 日至 15 日在伦敦召开的世界医师会（WMA）会员大会上，中共国医师会试图再次打压台湾的提案，遭到了各国代表的强力抵制。
+撰稿：Gradient Boost
 
-WMA 拥有 115 个会员国，是世界重要的医疗组织，也是 WHO 重要的国际非政府专业组织合作伙伴之一，在全球医疗及公共卫生等议题扮演关键角色。此次视频会议中，中共国医师会不顾此前的会议结果，提案要求取消支持台湾参与世界卫生组织（WHO）、世界卫生大会（WHA） 的决议文。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture600.jpg)
-台湾的防疫方面的成就深受各国肯定，台湾医师会长期受到中共打压有目共睹，有违“健康为基本人权，不因种族、宗教、政治信仰、经济或社会情境而有所分别”这个世卫组织及世界医师会的普世价值。
+视频制作：澳洲天好蓝
 
-经过激烈辩论，各国代表以 99 票对 19 票否决中国医师会的提案，并以 91 票比 16 票再次通过支持台湾参与 WHO、WHA 的决议文。按照 WMA 的议事规则，决议文原则上 10 年检讨一次，因此 WMA 支持台湾的决议文修正案已经完整定案，理论上中共国医师会10年内不能再提出否决案。
+近期，知名的COVID-19专家和拥有众多出版期刊的医生彼得·麦卡洛（Peter McCullough）博士向同事们提供了一份有关中共病毒疫苗全面的、有据可查的报告。在报告宣讲的开头，麦卡洛博士便坦诚：“我们感觉到这个世界上正在发生非常糟糕的事情。”
 
-（本文仅代表作者观点）
+麦卡洛博士来自德克萨斯，早年毕业于美国知名院校，有着非常丰富的学术研究以及医学经验，在多家学术机构担任主编、学会主席、总顾问等职位。然而自从他开始演说以来，已经被多家机构剥夺了资格以及头衔，失去了在大型医疗系统工作的资格，甚至还收到了来自美国医师协会的恐吓信件。
 
-参考链接：[世界医师会通过支持台湾参与 WHO、WHA 的决议文](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211015-%E6%8C%BA%E5%8F%B0%E6%B9%BE-%E4%B8%96%E7%95%8C%E5%8C%BB%E5%B8%88%E4%BC%9A%E4%B8%A4%E6%AC%A1%E5%90%A6%E5%86%B3%E4%B8%AD%E5%9B%BD%E5%8C%BB%E5%B8%88%E4%BC%9A%E6%8F%90%E6%A1%88)
+麦卡洛博士认为虽然当前一切似乎仍然处于正常状态，但是很快随着事情的发展，这一现状将完全瓦解。许多业内人士其实也都有类似的感觉，并且通过邮件的方式询问接下来到底应该采取怎样的行动，而在目前这个节点，有力的行动是扭转糟糕事态的关键。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+本文视频中包含更多麦卡洛博士对自己的学术经历的详细介绍，以及对他在开始宣讲活动后遭受学术检查和威胁报复的详细说明。欢迎各位读者点击播放进行收看。
 
-新闻访谈终审：Q大哥
-编辑/校对/审核：Hetangyuese
+要想了解麦卡洛博士更多有关疫苗的研究内容，请查看一下两篇视频文章：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+《[知名病毒专家重磅演讲戳穿疫苗谎言](https://gnews.org/zh-hans/1596024/)》
+
+《[科学家爆料：人类有史以来第一次通过疫苗使人体产生一种异常蛋白质](https://gnews.org/zh-hans/1595247/)》
+
+（本文纯属个人观点，与Gnews无关）
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

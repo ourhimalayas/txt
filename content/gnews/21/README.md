@@ -2,42 +2,19 @@
 ---
 
 
-## 法官驳回美联航将未接种员工放无薪假的计划
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1597377/)
+## 年轻人自杀的高峰
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1597417/)
 
-- **编译：Jenny Ball**
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10162.jpg)
+据美国有线电视新闻网报道，美国教育部宣布称，2020年学生自杀数量比 2019年增加了约 31%。这涉及 6 至 18 岁之间的阶段。他们是那些未能克服大流行的艰难时期以及在 2020 年不得不忍受的身心孤独的孩子。
 
+在昨天发布的包含 2020 学年数据的文件中，增长特别集中在去年 6 月，随后是 8 月之后，在较短的暑假后重新开始课堂学习。有14名小学生自杀，比上年增加8名；中学生有136人自杀，增加40人；高中生有329人自杀，比2019年增加了92人。[在自杀的高中生中女孩](https://www.corriere.it/cronache/08_febbraio_24/giappone_suicidi_collettivi_internet_c5d869f6-e2b8-11dc-a3c3-0003ba99c667.shtml)的自杀人数几乎翻了一番，从 71 人增加到 138 人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip01.png)
+日本教育部儿童事务司司长告诉广播公司NHK说，学生自杀人数的增加非常令人震惊。特别该国女性自杀率令人担忧的数据急剧增长，自 2020 年 7 月以来，日本女性自杀的人数开始上升，尤其是 30 岁以下的女孩。仅在 2020 年 10 月，就有 826 名女孩在 30 岁以下自杀，而 2019 年是486 名。
 
-一位联邦法官本周裁定，为避免公司的Covid-19疫苗接种强制令，而寻求医疗或宗教豁免的美国联合航空公司员工，不能被置于无薪休假的状态。
+免责申明：本文只代表译者观点，与Gnews无关
 
-据《布莱巴特新闻网》报道，由川普总统任命的美国地区法官马克·皮特曼(Mark Pittman)针对该公司将在10月26日前不接种疫苗的员工置于无薪假期的计划发布了临时限制令。
+原文链接：[https://www.corriere.it/esteri/21\_ottobre\_15/covid-isolamento-giappone-picco-suicidi-giovanissimi-sono-415-2020-3b9a0462-2d62-11ec-be4a-8aaf23299e0e.shtml](https://www.corriere.it/esteri/21_ottobre_15/covid-isolamento-giappone-picco-suicidi-giovanissimi-sono-415-2020-3b9a0462-2d62-11ec-be4a-8aaf23299e0e.shtml)
 
-皮特曼在他的裁决中写道：“法院现在得出结论，有必要发布这一临时限制令，以避免出现不可挽回的伤害风险，并在法院审理和解决原告的初步禁令动议之前维持本案的现状。”
-
-根据最新的裁决，最早要求接种中共病毒Covid-19疫苗的美联航，也被禁止拒绝任何员工对Covid-19疫苗的宗教或医疗豁免请求。美联航最初告诉员工，他们在8月31日之后将不被允许申请豁免。
-
-这一裁决有效地保护了员工，直到法院能够听取与一群美联航公司员工提起的诉讼有关的口头辩论。
-
-然而，据《每日邮报》报道，虽然寻求豁免疫苗强制令的美联航员工被暂时允许继续工作，但该航空公司计划解雇300多名没有申请豁免的工人。
-
-保守派评论员、美国保守派联盟主席马特·施拉普(Matt Schlapp)向美联航提出了一系列问题，问它要走多远。
-
-“你能因为不健康而解雇某人吗？因为是吸烟者？因为有2型糖尿病？因为超重？因为年老？免疫系统差？正在生病？这些都会促成更严重的冠状病毒病例。这是美联航的下一步吗？”施拉普问道。
-
-虽然目前还不清楚公司打算以“公共健康”的名义将强制规定做到什么程度，但所有美国人都应该对他们目前所处的境遇深感担忧。
-
-由于这种明显侵犯美国人个人自由的乌托邦式的强制令，航空公司的员工正在全国各地进行抗议，希望重新获得他们的自由。
-
-（文章仅代表作者观点，与GNEWS无关）
-
-参考资料：[rsbnetwork.com] [JUDGE STRIKES DOWN UNITED AIRLINES PLAN TO PLACE UNVACCINATED WORKERS SEEKING EXEMPTIONS ON UNPAID LEAVE](https://rsbnetwork.com/news/judge-strikes-down-united-airlines-plan-to-place-unvaccinated-workers-seeking-exemptions-on-unpaid-leave/)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
+责任编辑/发布：意大利达芬奇农场   萧亦
