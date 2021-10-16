@@ -2,52 +2,66 @@
 ---
 
 
-## Zerohedge: 因心脏炎症问题，FDA推迟对青少年疫苗做出决定，Moderna股票下滑
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597136/)
+## 我是一名囚犯
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1597212/)
 
-作者：文一
+撰稿：一英里
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1612.png)图片来自网络
+我是一名奇怪的囚犯
+我有家庭，孩子，事业和工作伙伴
+我甚至可以自由行走
+好像和世界上其他的75亿人一样
+每天上下班，或者听音乐，或者阅读
+假期还可以去爬山，游玩……
+坦白地讲，我每天生活充实
+甚至快乐，甚至幸福
 
+但我是一名囚犯，一个木头人
+一头野蛮的怪兽，一具行走的僵尸
+但对于它们来说，我最好就是一件器具
+但坏就坏在，我不是
+我似乎了解得太多，知道得太多
+我了解它们的邪恶，知道它们的骨子里
+流淌的不是它们自己的血——
+那是14亿老百姓的血🩸
+但这还不可怕
 
+可怕的是，周围的囚犯也不认为我是囚犯
+我的身上没有枷锁
+我的手上也没有手铐
+他们也没有
+在很多囚犯眼里
+我甚至是活得不错的人
+但我知道
+我是一名囚犯
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+请您也不要否认这一点
+我是一名囚犯
+自从我出生那一刻开始
+我就成了它们终生的囚徒
+它们希望我永远都不要醒来
+沉睡在它们的梦里——
+那个伟大光荣正确的谎言
 
+如果不是上天的安排
+我不会知道自己是一名囚犯
+如果没有爆料革命
+我会成为它们眼中完美的囚徒
+我甚至会亲吻那手铐
+紧紧抱住那冰冷的枷锁
+我会爱上这座人世间最大的炼狱
+最后，在我死之前，我会和别的囚犯一起
+为它们唱响赞美的高歌
 
+如今
+我依然是它们的一名囚犯
+但那只是肉体上
+在精神上
+我已获得了自由
 
-零对冲10月15日报道-据消息人士透露，美国食品和药物管理局（FDA）遵循与四个北欧国家相同的做法，要么完全禁止，要么有选择地禁止，决定推迟对Moderna公司的青少年新冠疫苗的授权决定，以评估该疫苗是否引发一种罕见心脏炎症。
+（本文仅代表作者个人观点）
 
-Moderna公司股价应声下滑。截止今天下午 1:06，跌1.5%至327.01美元。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-9.jpg)
-Moderna公司首席医疗官Paul Burton叫屈，称FDA的数据并没有显示Moderna和辉瑞疫苗接种者在出现心肌炎的比率有任何显著差异。
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-鉴于华盛顿立法者最近要求Moderna公司交出疫苗的专利，FDA做出该决定的时机也很耐人寻味。
-
-去年辉瑞首席执行官在宣布疫苗的同一天出售了其价值 560 万美元的股票的新闻，就已经揭示这些利欲熏心、道德沦丧大医药公司及黑暗势力的台前代言人， 他们完全了解接种即是注毒的真相。FDA的决定明显受到他们左右，如今他们之间出现不同步的情况，印证了郭文贵先生在直播中诠释的“世界的黑暗势力和中共的黑暗势力因为病毒疫苗受到扭曲”，疫苗真相正在逐步铺陈展露，终将大白于天下。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-77.jpg)
-参考链接：
-1. [Moderna Slides After FDA Delays Youth Vaccine Decision Due To Heart Inflammation Issues](https://www.zerohedge.com/covid-19/moderna-slides-after-fda-delays-youth-vaccine-decision-due-heart-inflammation-issues)
-2. [Moderna Shares Sink After Report of Delay on Children’s Vaccine](https://www.bloomberg.com/news/articles/2021-10-15/moderna-shares-sink-after-report-of-delay-on-kids-vaccine)
-3. [Pfizer CEO sold stock worth $5.6 million on same day as vaccine announcement](https://www.nbcnews.com/business/business-news/pfizer-ceo-sold-stock-worth-5-6-million-same-day-n1247398)
-4. [2021年10月13日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1594496/)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：鬼五
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

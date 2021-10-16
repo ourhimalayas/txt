@@ -2,23 +2,52 @@
 ---
 
 
-## 嘿，该打流感疫苗了
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597090/)
+## Zerohedge: 因心脏炎症问题，FDA推迟对青少年疫苗做出决定，Moderna股票下滑
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597136/)
 
-#### 撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/12-9.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimgcdn.cna.com.tw%2Fwww%2FWebPhotos%2F1024%2F20210926%2F1152x768_73787414606.jpg&amp;imgrefurl=https%3A%2F%2Fwww.cna.com.tw%2Fnews%2Ffirstnews%2F202109260103.aspx&amp;tbnid=8H4r8lytgAsGKM&amp;vet=12ahUKEwiIvoin_s3zAhUBXCsKHZwqAqEQMygLegUIARCLAQ..i&amp;docid=0EOKR9nyi-oJHM&amp;w=1024&amp;h=683&amp;q=%E6%B5%81%E6%84%9F%E7%96%AB%E8%8B%97&amp;hl=zh-CN&amp;ved=2ahUKEwiIvoin_s3zAhUBXCsKHZwqAqEQMygLegUIARCLAQ)
-日刊现代10月16日报道，冬天是流行性感冒的高发期，日本人对季节性流感的抗体和免疫比较低，为防止流感发展为重症，建议大家接种流感疫苗，流感疫苗与新冠疫苗接种间隔时间为两周以上。
+作者：文一
 
-2020年冬季，因为中共病毒肆虐，全世界限制出行，因此流感并未爆发。然而今年10月，南亚地区，中东各国正在正在经历流感。目前日本出入境限制缓和，人口流动，自然会发生流行性感冒。目前全球正在推广新冠疫苗接种，美国正在进行临床试验，以确认新型冠状病毒和季节性流感混合疫苗的效果和安全性。日本国内，三重县报告了重度感染情况，即感染中共病毒又得季节性流感，为防止重症化发生，因此推荐大家接种新冠疫苗和流感疫苗。
 
-在未确认两种疫苗安全和有效性的前提下，又再次呼吁大众接种疫苗，民众再次被当作实验小白鼠。
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-[重感染、スーパー感染…新型コロナに続くインフルエンザ流行の備えはどこまで？](https://news.yahoo.co.jp/articles/4dd32c898fa35b0278ae1c4dbf815375287776cc?page=3)
 
-(文章仅代表作者本人观点，与GNEWS无关)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+零对冲10月15日报道-据消息人士透露，美国食品和药物管理局（FDA）遵循与四个北欧国家相同的做法，要么完全禁止，要么有选择地禁止，决定推迟对Moderna公司的青少年新冠疫苗的授权决定，以评估该疫苗是否引发一种罕见心脏炎症。
+
+Moderna公司股价应声下滑。截止今天下午 1:06，跌1.5%至327.01美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-9.jpg)
+Moderna公司首席医疗官Paul Burton叫屈，称FDA的数据并没有显示Moderna和辉瑞疫苗接种者在出现心肌炎的比率有任何显著差异。
+
+鉴于华盛顿立法者最近要求Moderna公司交出疫苗的专利，FDA做出该决定的时机也很耐人寻味。
+
+去年辉瑞首席执行官在宣布疫苗的同一天出售了其价值 560 万美元的股票的新闻，就已经揭示这些利欲熏心、道德沦丧大医药公司及黑暗势力的台前代言人， 他们完全了解接种即是注毒的真相。FDA的决定明显受到他们左右，如今他们之间出现不同步的情况，印证了郭文贵先生在直播中诠释的“世界的黑暗势力和中共的黑暗势力因为病毒疫苗受到扭曲”，疫苗真相正在逐步铺陈展露，终将大白于天下。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-77.jpg)
+参考链接：
+1. [Moderna Slides After FDA Delays Youth Vaccine Decision Due To Heart Inflammation Issues](https://www.zerohedge.com/covid-19/moderna-slides-after-fda-delays-youth-vaccine-decision-due-heart-inflammation-issues)
+2. [Moderna Shares Sink After Report of Delay on Children’s Vaccine](https://www.bloomberg.com/news/articles/2021-10-15/moderna-shares-sink-after-report-of-delay-on-kids-vaccine)
+3. [Pfizer CEO sold stock worth $5.6 million on same day as vaccine announcement](https://www.nbcnews.com/business/business-news/pfizer-ceo-sold-stock-worth-5-6-million-same-day-n1247398)
+4. [2021年10月13日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1594496/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

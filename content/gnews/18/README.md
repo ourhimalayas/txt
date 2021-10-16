@@ -2,33 +2,45 @@
 ---
 
 
-## 郭文贵先生2021年10月15日盖特视频二（2分51秒）全文字版
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1597094/)
+## 北美最大工会之一（SMART）宣布反对疫苗强制
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597146/)
 
-#### 整理编辑：东京樱花团/Peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/10/49-29.png)
-我这是从办公室开了一天的会，特别幸福，开一天会。哎呦…我的妈呀，老带劲了，各种官司，有大量的进步，各个官司，革命性的进步。所以说我们要开启，等待着酝酿着，以法灭共，以法灭贼，在全世界。
+作者：文一
 
-然后呢，刚才很多战友们给我发了很多很多信息，我真的回不完了。因为今天下午没有时间看手机，就是在你们对这个新的，四千万的喜币的这个各种憧憬，各种感激，没有回复的，请战友们多多包涵。
 
-再一个关于付款的问题，请和各农场主联系，和联盟委员会联系，所有的付款，有太多要付款的了。这一百万，那两百万的，太多了，我没办法一一回了，请和农场联系，请和长岛哥联系，老班长联系，好不好？如果是实在这几个都联系不了的，你再找我，中不中？太多了，兄弟姐妹们。
 
-还有一个，莫名其妙的新的人想投资，绝对不能接受，没有什么历史，没有任何支持的，莫名其妙就来了，这个不能要了，咱们要把好关。这是给我们的老战友，长期的战友，可信的战友，留下的这个喜币上市前最后的机会，希望大家都能把握住。啥都不说了，我马上有很重要的那个……
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-那背景啥呀？对面的大楼，现在的曼哈顿……到处都是疫苗的恐惧性。今天开会的时候，原来都是打了疫苗的人，真感到他们恐惧了，他们真感到害怕，太多人现在被疫苗给吓得半死。我都担心这疫苗真正的灾难来的时候，多少人得吓死。
 
-兄弟姐妹们，任何跟随爆料革命性的，最大的给你的一个回报，就是你没打疫苗。
 
-第二个就是在这个世界危机时刻，你有希望。你有更多像亲人一样亲的战友，这是第二个。你从来没有那么多人爱你，关心你，这都是真正的比家人还爱你，关心你的人，这是第二个。
+据Gateway pundit 报道- 周四，北美最大工会之一，国际金属板材、航空、铁路和运输工人协会 （SMART）工会主席罗伊-戴维斯先后两次致信告知联合太平洋公司，该工会坚决不同意该公司“单方面”要求接种新冠疫苗的做法，并要求对方立即进行诚意谈判。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-6.jpg)
+SMART，是北美最大的铁路运营工会，拥有超过500个交通局域网，会员超过20万人，由钣金工、技师、巴士司机、工程师、售票员、焊工等组成。
 
-第三个是给了你希望。在你最关键的时候，你可能安全下来，珍惜吧，我都不知道说啥好，珍惜爆料革命，珍惜爆料革命，珍惜战友！越想……咱们太幸福了，我都是深刻的感觉呀，没你们，七哥就没那么幸福了。
+此次抗议是继飞行员航空业工人之后美国运输雇员工会反毒针的一个巨大举措，预示着更多社会中坚力量正在觉醒和行动。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-48.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/5-30.jpg)
+参考链接：
+[BOOM! Sheet Metal, Air, Rail and Transportation Union (SMART) with 203,000 Members Announces Stand Against Forced Vaccines](https://www.thegatewaypundit.com/2021/10/boom-sheet-metal-air-rail-transportation-union-smart-203000-members-announces-stand-forced-vaccines/)
 
-稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
+（本文仅代表作者观点）
 
-[郭文贵先生10月15日盖特视频](https://gettr.com/post/peaunq1b9f)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-(文章仅代表作者本人观点，与GNEWS无关)
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
