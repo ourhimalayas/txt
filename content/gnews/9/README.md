@@ -2,10 +2,10 @@
 ---
 
 
-## 全球航空货运业或于12月开始崩溃
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597112/)
+## 北美最大工会之一（SMART）宣布反对疫苗强制
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597146/)
 
-作者：Ryan
+作者：文一
 
 
 
@@ -13,12 +13,15 @@
 
 
 
-News Target13日消息称：因疫苗强制政策而失去数万名员工，波音公司将无法向世界各地的波音飞机机主提供备件，供应链或于12月开始崩溃，航空货运业也将崩溃。波音公司要求125,000 名员工在 12 月 8 日之前必须接种新冠疫苗，否则将会被解雇。预计数以万计的波音员工会拒绝要求并辞职。由于国际海运物流供应链已经处于崩溃状态，空运便成为全球货物运输的唯一选择。而联邦航空局规定所有波音飞机都有细致的维护计划，对新零件、发动机大修和设备更换有稳定的需求。如此一来，除非取消强制疫苗接种政策，否则到2022年春季航空货运是否能正常运作是非常值得怀疑的。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-4.jpg)
-物流供应链连番遭受的重创，势必进一步推高物价，令本已通胀高企的世界经济形势雪上加霜。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-92.jpg)
+据Gateway pundit 报道- 周四，北美最大工会之一，国际金属板材、航空、铁路和运输工人协会 （SMART）工会主席罗伊-戴维斯先后两次致信告知联合太平洋公司，该工会坚决不同意该公司“单方面”要求接种新冠疫苗的做法，并要求对方立即进行诚意谈判。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-6.jpg)
+SMART，是北美最大的铁路运营工会，拥有超过500个交通局域网，会员超过20万人，由钣金工、技师、巴士司机、工程师、售票员、焊工等组成。
+
+此次抗议是继飞行员航空业工人之后美国运输雇员工会反毒针的一个巨大举措，预示着更多社会中坚力量正在觉醒和行动。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-48.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/5-30.jpg)
 参考链接：
-[Hospitals are literally SUFFOCATING patients with plastic bags; AIR CARGO will be halted this winter due to collapsing airplane parts supply chain](https://newstarget.com/2021-10-13-hospitals-suffocating-patients-plastics-bags-air-cargo-halted-parts-supply-chain.html)
+[BOOM! Sheet Metal, Air, Rail and Transportation Union (SMART) with 203,000 Members Announces Stand Against Forced Vaccines](https://www.thegatewaypundit.com/2021/10/boom-sheet-metal-air-rail-transportation-union-smart-203000-members-announces-stand-forced-vaccines/)
+
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)

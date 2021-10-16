@@ -2,25 +2,21 @@
 ---
 
 
-## 北美最大工会之一（SMART）宣布反对疫苗强制
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597146/)
+## 新中国联邦旗帜在马拉松比赛中走向世界
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597158/)
 
-作者：文一
+栏目记者：新世界的一员
+责任编辑：晓仙女
 
+2020年6月4日，新中国联邦应时代局势庄严成立，我们的国旗代表“自由、民主、法制、信仰”，是正道主义的化身。
 
+10月14日郭文贵先生盖文展示，在10月11日举行的波士顿第125届马拉松比赛的跑道上，一位参赛的，脸带自信微笑，帅气的爆料革命战友（来自香草山农场的煤油灯），手握美丽庄严的新中国联邦旗帜，精神抖擞，身影矫健，成为赛场上一道亮丽的风景线，吸引当地记者快速按下了相机快门，把正走向胜利的新中国联邦的形象传向了世界。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-据Gateway pundit 报道- 周四，北美最大工会之一，国际金属板材、航空、铁路和运输工人协会 （SMART）工会主席罗伊-戴维斯先后两次致信告知联合太平洋公司，该工会坚决不同意该公司“单方面”要求接种新冠疫苗的做法，并要求对方立即进行诚意谈判。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-6.jpg)
-SMART，是北美最大的铁路运营工会，拥有超过500个交通局域网，会员超过20万人，由钣金工、技师、巴士司机、工程师、售票员、焊工等组成。
-
-此次抗议是继飞行员航空业工人之后美国运输雇员工会反毒针的一个巨大举措，预示着更多社会中坚力量正在觉醒和行动。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-48.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/5-30.jpg)
+唯真不破的新中国联邦人走到哪里，哪里就会成为亮点。 我们为身为新中国联邦的公民而感到无比自豪。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-46.jpg)
 参考链接：
-[BOOM! Sheet Metal, Air, Rail and Transportation Union (SMART) with 203,000 Members Announces Stand Against Forced Vaccines](https://www.thegatewaypundit.com/2021/10/boom-sheet-metal-air-rail-transportation-union-smart-203000-members-announces-stand-forced-vaccines/)
+1. [郭先生盖特： 10月14号：新中国联邦的旗帜在我们帅气，健康的战友的手中，第一次在马拉松比赛中，走向了胜利。](https://gettr.com/post/pe6v027c80)
+2. [长岛哥盖特： 太棒了**👏👏👏**香草山的煤油灯战友手举新中国联邦国旗跑完了波士顿马拉松全程。未来新中国联邦国旗会出现越来越多的国际赛场上**💪💪💪**](https://gettr.com/post/pe665y48ed)
 
 （本文仅代表作者观点）
 

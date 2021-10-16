@@ -2,18 +2,18 @@
 ---
 
 
-## 郭文贵先生再次为战友创造巨大福利
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1596828/)
+## 中共党媒疑为推房地产税吹风
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1596850/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-1.jpg)
 
 作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/text-SC-14.png)
 文章仅代表作者本人观点，与Gnews无关
 
-视频参看：2021.10.15早GTV新闻访谈
+视频参看： 2021.10.15晚GTV新闻访谈
 
-[https://gtv.org/broadcast/watch/616973c0304e992109b57f2e](https://gtv.org/broadcast/watch/616973c0304e992109b57f2e)
+[https://gtv.org/broadcast/watch/616a1cd6304e992109b5a983](https://gtv.org/broadcast/watch/616a1cd6304e992109b5a983)
 
 编辑： Lakers
 校对： Lakers
