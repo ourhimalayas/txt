@@ -2,41 +2,42 @@
 ---
 
 
-## 美国运输雇员工会宣布反对强迫性疫苗接种
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1596679/)
+## 辉瑞专利：利用电子设备和石墨烯追踪所有疫苗接种者
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1596711/)
 
-作者：纽约香草山农场 – 四季
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unnamed-8.jpg)图片来源：美国专利局网站
+根据Wide Awake in Switzerland近日的推文：辉瑞公司的专利申请于8月31日获得批准，他们将通过频率为 2.4 GHz 的量子链接经细胞塔和现已存在于人体内的氧化石墨烯,通过”物联网 “- 即手机，远程追踪所有即将或已接种者。
 
+辉瑞公司的专利申请递交于2020年11月30日，专利号为1110758.其主题为：在保护个人隐私的同时确定治疗、疫苗接种、测试和/或活动的优先次序的方法和系统。在发明概要中，专利文件第23条是如此描述此电子设备的：
 
-
-
-
-据[网关专家](https://www.thegatewaypundit.com/2021/10/boom-sheet-metal-air-rail-transportation-union-smart-203000-members-announces-stand-forced-vaccines/)10月14日报道，周四，国际金属板材、航空、铁路和运输工人协会（SMART）主席罗伊-戴维斯致信联合太平洋铁路公司，坚决反对该公司“单方面”要求工会成员接种COVID疫苗的做法，要求其立即做出书面回应，并进行谈判。这是美国运输雇员工会采取的一个重大举措。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1223-1-smart-union.jpg)图片来源：网关专家
-
-追溯其历史，SMART是由2008年1月合并的金属板工人国际协会和联合运输工会组成的，这些工会加在一起，拥有超过200年的历史和传统，并延续至今。SMART是北美最具活力和多样性的工会之一，拥有203,000名会员。该工会由钣金工人、服务技术人员、巴士操作员、工程师、售票员、标志工人、焊工、生产员工等组成。同时SMART还是北美最大的铁路运营联盟，覆盖500多个本地交通网。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
-
-编辑/校对/发稿：小鹿
+- 与每个人相关联的电子设备；
+- 设备具有“接近跟踪电路”，当设备检测到另一个附近的设备时，设备之间会交换信息；
+- 这称为“邻近事件”，其中两个设备都计算接近度得分，这意味着两个设备彼此之间的距离有多近；
+- “邻近事件”还将从多个邻近设备收集数据，计算所有设备之间的邻近分数；
+- 检测“邻近事件”是否发生在室外或其他通风良好的位置，或者是否发生在不通风的室内空间；
+- 可能需要 GPS 接收器；
+- 在设备能够时可以通过互联网连接到服务器以上传任何收集的数据。
 
 
+使用一个或多个电子设备收集所述电子定位数据，这些电子设备是智能手机、平板电脑、智能手表和专用电子设备。
 
-**更多资讯，更多关注**
+在一些实施例中，每个人的实际地理位置数据使用以下一项或多项来监控：
 
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+1. 电子设备，例如由他们自己手机的GPS提供的位置；
+2. 使用基于以下一项或多项的人脸识别技术：
 
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+- 从可用来源接收的视频监控数据，例如街道摄像机、自动取款机、商店、建筑物和房屋等中的私人监控摄像机；
+- 社交媒体。
 
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+3. 数字活动，例如信用卡使用、计算机或电子设备时使用的IP地址、在拨打电话时接收数据的天线等。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+读完辉瑞的专利申请，不禁毛骨悚然。根据10月15日最新统计，47.3%的世界人口至少接种了一剂COVID-19疫苗，他们身体内植入的设备是会跟随他们的一生。想想在这场疫苗危机中，大型医药公司只是起了打手作用，所做的一切，一是获得极高的利益回报，二是为统治者提供控制大众的科技工具。白纸黑字，政府专利文件，希望这些能唤醒仍在沉睡的民众，为人的基本权利去奋战。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+**新闻来源：**
+
+1. [Wide Awake in Switzerland on Twitter](https://twitter.com/timetowakeupsw1/status/1442488150278901764/photo/2)
+2. [Methods and systems of prioritizing treatments, vaccination, testing and/or activities while protecting the privacy of individuals](https://patft.uspto.gov/netacgi/nph-Parser?Sect1=PTO2&amp;Sect2=HITOFF&amp;p=1&amp;u=%2Fnetahtml%2FPTO%2Fsearch-bool.html&amp;r=1&amp;f=G&amp;l=50&amp;co1=AND&amp;d=PTXT&amp;s1=11107588.PN.&amp;OS=PN/11107588&amp;RS=PN/11107588)

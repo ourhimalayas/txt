@@ -2,33 +2,41 @@
 ---
 
 
-## Coinbase拒绝SEC监督，要求成立新监管机构
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1596582/)
+## 美国运输雇员工会宣布反对强迫性疫苗接种
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1596679/)
 
-**撰稿：日本东京方舟农场 海星**
+作者：纽约香草山农场 – 四季
 
-据《华尔街日报》10月14日报道，美国最大的加密数字货币交易所Coinbase计划公布的一份文件中表示，要求国会阻止证券交易委员会（SEC）监督数字资产行业，并成立一个新的监管机构。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-据报道，在上周国会的听证会上，SEC主席加里·詹斯勒（Gary Gensler）称，如果国会要从证券法中划分出一些东西，可能会破坏90年的经济成果及损害7000多个发行人的利益。而Coinbase在计划公布的文件中则表示，数字资产应该有一个指定的监管机构，而不是面临SEC或商品期货交易委员会等多个机构的监管威胁。
 
-该文件指出，单一的监管机构将消除加密货币公司同时应对众多联邦、州政府机构监督的必要性，并且它们也必须自我约束。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/b61a-219df613bc00ef3104470c9a41d9408a.jpg)图片来自于网络
 
-Coinbase在文件中写道，20世纪30年代，SEC为了有效监督金融市场而起草的法律已经无法监管正在进行中的数字技术革命。它强调，国会应该在法律上承认所有数字资产，包括传统金融资产的数字原生版本，都应该受到新的监管制度的约束。
 
-今年9月，Coinbase首席执行官布莱恩·阿姆斯特朗(Brian Armstrong)在推特上写道，SEC威胁要对该公司的加密数字货币借贷项目采取法律行动，但此项目并不受其监管。他表示，SEC的这种行为相当于闭门造车的恐吓。
+据[网关专家](https://www.thegatewaypundit.com/2021/10/boom-sheet-metal-air-rail-transportation-union-smart-203000-members-announces-stand-forced-vaccines/)10月14日报道，周四，国际金属板材、航空、铁路和运输工人协会（SMART）主席罗伊-戴维斯致信联合太平洋铁路公司，坚决反对该公司“单方面”要求工会成员接种COVID疫苗的做法，要求其立即做出书面回应，并进行谈判。这是美国运输雇员工会采取的一个重大举措。
 
-Coinbase表示，SEC不愿澄清为什么该项目有资格受到监管。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1223-1-smart-union.jpg)图片来源：网关专家
 
-*注：本文仅代表作者观点，与 Gnews无关*
+追溯其历史，SMART是由2008年1月合并的金属板工人国际协会和联合运输工会组成的，这些工会加在一起，拥有超过200年的历史和传统，并延续至今。SMART是北美最具活力和多样性的工会之一，拥有203,000名会员。该工会由钣金工人、服务技术人员、巴士操作员、工程师、售票员、标志工人、焊工、生产员工等组成。同时SMART还是北美最大的铁路运营联盟，覆盖500多个本地交通网。
 
-*参考链接：*
+（本文仅代表作者观点）
 
-[Coinbase Pitches Blueprint for Special Crypto Regulator](https://www.wsj.com/articles/coinbase-pitches-blueprint-for-special-crypto-regulator-11634231298)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
 
-[不願受SEC監管 Coinbase提議設新監管機構](https://ec.ltn.com.tw/article/breakingnews/3704879)
+编辑/校对/发稿：小鹿
 
-* * *
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/16/2021 1:11 AM (UTC)`
+
+10/15/2021 Miles Guo’s GETTR: The CCP does not allow the Lao Baixing to purchase cryptocurrencies, while itself can buy whatever crypto it wants and nobody dares to ask! Only if the CCP is taken down will there be a relatively objective and fair social system<br/><br/>10/15/2021 文贵盖特：共产党不许老百姓买虚拟币，而它自己却爱咋买咋买，无人敢管！只有消灭中共，才能有相对客观公平的社会制度<br/>
+![img](https://media.gettr.com/group25/getter/2021/10/16/01/11/7cd279cc-1521-a288-d8df-25fa787f0187/out.jpg)
+
+---
+
 `@miles 10/16/2021 12:12 AM (UTC)`
 
 10月15号：尊敬的战友们好……非常的抱歉，很多战友给我发的信息没办法一一回复，我只能在这里，简单给大家统一回复一下，谢谢。
@@ -293,13 +300,6 @@ Henry Reitzug博士：在注射带有被改造氨基酸的新冠mRNA疫苗进入
 
 Henry Reitzug博士强烈建议所有人都不要接种疫苗，而是寻求其他治疗方案，主流媒体或政治家说“遵循科学”的意思是“遵照我的意思”，这通常是有政治动机的，他们从一开始的口号就是“没有治疗手段，我们需要疫苗”，这违背了医学界的普遍方法，这是虚假且不合理的，新冠病毒没有治疗方法的说法也是绝对不正确的。（评：新冠溯源都未确定，不探究方法，而新冠疫苗这么快就问世了，这太荒唐了！）<br/><br/>Dr. Henry Reitzug strongly advises anyone not to get vaccinated, but to seek alternative treatments for the coronavirus. Mainstream media or politicians say "follow the science" means "follow my way ", which is usually politically motivated. Their initial mantra was "there is no treatment, we need a vaccine." This violates the approach generally in medicine, is false and unreasonable, and the claim that there is no treatment is absolutely not true. (Comment: The COVID-19 origin tracing has not been determined, while the COVID-19 vaccines came out so soon, which is ridiculous.)
 ![img](https://media.gettr.com/group34/origin/2021/10/12/10/19/809240c7-ead9-b0dd-0a76-302ca7c91623/out.jpg)
-
----
-
-`@miles 10/12/2021 4:01 AM (UTC)`
-
-2021年10月11日 法治基金,法治社会每周捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>11 Oct 2021, Rule of Law Foundation and Society donors messages collection.Rule of Law Foundation and Society appreciate all of our supporters and donors!
-![img](https://media.gettr.com/group10/getter/2021/10/12/03/05b12172-bad0-d661-5c6b-aa29c09a61c7/out.jpg)
 
 ---
 
