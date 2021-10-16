@@ -2,29 +2,23 @@
 ---
 
 
-## 中共能源公司欲购美国天然气
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1598323/)
+## 有声|郭文贵先生宣布重大好消息
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1598390/)
 
-**撰稿：日本东京方舟农场 海星**
+配音：香草山美食部 – 玫瑰园
 
-据《路透社》10月15日报导，有消息人士披露，中共国大型能源公司正在与美国供应商谈判天然气供应合同。
+2021年10月15日，郭文贵先生在盖特视频中宣布了一个重大的好消息，那就是3月15日之后，新增的G系列投资者也将享有喜币配额。郭文贵先生从机构投资者中又争取了四千万个喜币，以满足新增投资者的喜币配额，比例为1比0.2。喜币将在本月上市，在上市前的最后几天里，还能为战友们争取到喜币配额的福利，也只有郭文贵先生能做到，只有新中国联邦能做到。新中国联邦不放弃任何一个战友，不让任何一个战友落下，要让每一个战友都抓住可能是人生中唯一的机会，这与中国共产党有着本质的不同。
 
-该消息人士表示，参与天然气谈判的至少有五家中共公司，包括中石化和中国海洋石油总公司以及浙江能源等地方政府支持的能源经销商，相关交易价值可达数百亿美元。美国主要谈判方分别是钱尼尔能源公司（Cheniere Energy）和全球风险投资液化天然气公司（Venture Global）。内部人士透露，仅中石化便考虑购买 400 万吨。
+文字版原文：[郭文贵先生宣布重大好消息](https://gnews.org/zh-hans/1595609/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/48973967_303.jpg)图片来自于网络
+音频处理：喜山必胜Maverick
 
-据报道，今年年初，中共便与美国供应商开始谈判天然气供应合同，并正在加快谈判的速度。消息人士预计未来几个月还将有新的交易公布。
-
-此前，中共新奥能源公司于10月11日对外公布与钱尼尔达能源公司签订了为期13年的合同。
-
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[独家：能源紧缺引发担忧 中国考虑及早敲定美国LNG供应–消息](https://cn.reuters.com/article/china-us-lng-supply-1015-idCNKBS2H50QF)
-
-[中国欲购巨额美国液化天然气](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E6%AC%B2%E8%B4%AD%E5%B7%A8%E9%A2%9D%E7%BE%8E%E5%9B%BD%E6%B6%B2%E5%8C%96%E5%A4%A9%E7%84%B6%E6%B0%94/a-59515390)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
