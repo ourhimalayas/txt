@@ -2,40 +2,17 @@
 ---
 
 
-## 新南威尔士州退出澳洲的中共病毒热点地区
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1599231/)
+## 秘翻在线：年轻儿子接种辉瑞疫苗出现多处血栓 母亲悲愤交加
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599235/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/c861a980-98a9-11ea-b2ff-f3d662fd5c30.jpg)图片来源：s.yimg.com
-#### 编译：小红帽
+**翻译：Nstar**
 
-在新南威尔士州的中共病毒疫苗接种率达到80% 后，该州于今晚将取消其作为联邦中共病毒（COVID-19）热点地区的地位。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-17-155035-1.jpg)
+一位身在瑞典的母亲讲述儿子注射中共病毒疫苗后出现了严重副作用。这说明疫苗导致血栓是毫无疑问的。 她的儿子接受了辉瑞公司的两次注射，他的胳膊红肿得厉害，去了急诊室，在那里他受到怀疑和敌意的对待。工作人员荒唐地说，可能是因为运动过度，他的手臂肿了。然而，经过检查，他们很快就在他的手臂上发现了第一个血块…他们开始在他身体的各个部位发现血块。他们试图让他带着吗啡回家，并指示他自己注射血液稀释剂，但他的母亲要求他们让他过夜。她告诉护士长不要喋喋不休地谈论他们的规则和命令，而要发自内心地行动。所以医院让这个年轻人过夜，并做了更多的 X 光检查。他们发现了更多的血块。一个在他的脖子上，他们说必须手术切除，还有更多在他的肺部，使他面临心脏病发作的极端风险。他们让他躺在担架上一动不动——告诉他动起来很危险。
 
-自8月14日以来，该州一直是全国中共病毒热点地区。然而，澳大利亚政府首席医疗官保罗·凯利（Paul Kelly）教授证实，该州将从今天晚上11点59分起取消这一地位。
+这位年轻人的母亲说： “当他进来时，他们并不真的相信他，他病了。然后他们检查了他，医生来了，说他的手臂上有血块。他又坐在候诊室里。他从晚上9点一直坐到早上5点。然后他们更仔细地看了看他的手臂。他接受了 X 光检查。一位看着他手臂的医生说，他从来没有见过这么年轻的人有这么大的血块。医生说“绝对”和“毫无疑问”这是因为他接种了疫苗。然后他做了超声波检查。他们在他脖子上发现了另一个血块。当他们找到它时，他们告诉他他们必须通过手术将其移除。” 母亲接着说：“我实在太生气了。我非常非常非常生气。我的愤怒以悲伤的形式出现。我不害怕，但我觉得在过去的 24 小时内我承受了儿子的恐惧…”（泪水盈满眼眶，她不得不停下来。） “他一直躺在床上，担心自己可能会在一夜之间死去。正是因为这该死的疫苗。”目前男孩仍在住院。这位母亲说她是反对疫苗的，并恳求她年轻、健康、喜爱运动的儿子相信自己的身体——他不需要接种任何疫苗。但儿子受到朋友和同事的压力，他们说他欠别人“保护”他们，例如害怕生病的老人。
 
-根据管理中共病毒的国家计划，一旦在特定州或领地内达到80%的中共病毒疫苗完全接种率，该州或领地的联邦热点声明将自动结束。
+“他们怎么能出来告诉年轻、健康的人接种这些疫苗？”她问。 “之前我问过我儿子，‘你不怕生病吗？’他说，‘不，妈妈，我不怕。他们告诉我们放心这样做。 ” 这位母亲说： “我不会再保持沉默了…我要把它传播到每个地方。我气得浑身发抖。 ”
 
-在该地区的状态降级两周后，其中共病毒热点地位而获得的支持将结束。
-
-昨天，新南威尔士州80%的16岁以上符合条件的人群接种了中共病毒疫苗。
-
-在澳大利亚全国范围内，有超过1740万人接种了至少一剂疫苗，这意味着84.6%的16岁以上人群正在全面接种疫苗。 澳大利亚现在有67.8%符合条件的人口完全接种了疫苗。
-
-首都领地、杰维斯湾领地以及维多利亚州和塔斯马尼亚州的一些地方政府目前是联邦中共病毒的热点地区。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**
-
-1. [Coronavirus vaccine rollout Australia: State by state guide to Australia’s current vaccination rates, including when NSW will hit 80 percent and when will Victoria hit 70 per cent double doses | Explainer (9news.com.au)](https://www.9news.com.au/national/coronavirus-vaccine-rollout-australia-state-by-state-guide-covid19-vaccination-rates-single-dose-double-doses-explainer/abacde8f-d35e-45ee-83bc-069ede212ecf)
-2. [New South Wales to no longer be classified as a national COVID-19 hotspot (msn.com)](https://www.msn.com/en-au/news/australia/new-south-wales-to-no-longer-be-classified-as-a-national-covid-19-hotspot/ar-AAPCjHc?ocid=msedgntp)
-
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**[信息来源](https://celiafarber.substack.com/p/swedish-mother-cries-telling-story)**
