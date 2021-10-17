@@ -2,38 +2,40 @@
 ---
 
 
-## 辉瑞科学家：中共病毒疫苗接种女性会将其通过脐带传给孩子
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1599544/)
+## 中共国试射新型超音速核导弹 美方震惊
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1599581/)
 
-**By:秘翻新闻**
+编译**：Lulumi**
 
-***2021-10-17***
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/1017-2.jpg)](https://gtv.org/broadcast/watch/616be965304e992109b64113)点击图片观看视频
-**新闻摘要:**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-307.png)
 
-1. 宝能系危机扩大 9项信托踩雷200亿
+图片来源**：**thegatewaypundit.com
 
-2. 内蒙新疆新增病例 边境市停摆
+据《金融时报》报道，中国在8月发射了一枚新的超高音速核动力导弹，在低轨道上环绕整个地球。
 
-3. 大陆记者全员被严控继续教育每年90小时
+美国情报部门和美国军方官员都被震惊了。
 
-4. 新歌《玻璃心》暗讽“小粉红”的歌手微博被封
+“我们不知道他们是如何做到这一点的，”一位消息人士告诉《金融时报》。
 
-5. 美国取代中共国 成印度最大贸易伙伴
+根据该报告，这枚导弹与目标相差约24英里，让美国情报部门措手不及。
 
-6. 能源危机 中共国急需购买美国液化天然气
+今年早些时候，一张卫星图像显示中国扩大了其核导弹发射井。
 
-7. 美国大量抗议者抗议游行要求解散大媒体
+美国有线电视新闻网（CNN）在7月高超音速核能力导弹发射前不久报道：“美国科学家联合会（FAS）周一发布的报告说，通过卫星图像识别，中国新疆地区的新导弹基地最终可能包括110个发射井。这是研究人员本月发现的第二个明显的发射井，加
 
-8. 辉瑞科学家：中共病毒疫苗接种女性会将其通过脐带传给孩子
+上邻近的甘肃省似乎正在建设的120个发射井，正如詹姆斯·马丁不扩散研究中心所详述的那样。”
 
-9. 比利时群众聚集辉瑞总部要求解释疫苗成分
+与此同时，清醒的美国军方却忙于清理未接种疫苗的军人，并专注于“白人的愤怒”。
 
-**GTV链接：**[https://gtv.org/broadcast/watch/616be965304e992109b64113](https://gtv.org/broadcast/watch/616be965304e992109b64113)
+*在*[这里](https://www.ft.com/content/ba0a3cde-719b-4040-93cb-a486e1f843fb)阅读完整的报告。
 
-发布: 文橙
+（文章仅代表作者观点，与GNEWS无关）
+
+**参考资料**[thegatewaypundit.com] [China Tests New Hypersonic Nuclear-Capable Missile That Circled Entire Globe at Low-Orbit – US Military Officials Stunned](https://www.thegatewaypundit.com/2021/10/china-tests-new-hypersonic-nuclear-capable-missile-circled-entire-globe-low-orbit-us-military-officials-stunned/)
 
 * * *
 
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+*审核：文乐 
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)

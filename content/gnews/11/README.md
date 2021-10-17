@@ -2,17 +2,24 @@
 ---
 
 
-## 文贵焦点10/17 马上开始的大直播会有全世界必须了解的重要发布
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1599566/)
+## 有声|台陆委会称目前局势接近准战争状态!
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1599684/)
 
-新闻采稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Pictu-scaled.jpg)图片来源：Gnews
-10月16日，爆料革命旗帜人物郭文贵先生在他的盖特账号发布17日大直播预告：即将到来的17号大直播中将会有全世界必须了解的重大发布。
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月初的数日内, 中共军机多达149架数次侵犯台湾空域，而且此前中共只是出动侦察机，近日的军事行动则包括了战斗机、轰炸机和预警机等多种机型编队袭扰 , 台陆委会主任邱太三14日表示，这已接近准战争状态!
 
-郭先生用他一贯的轻松幽默、又不失严肃的独特风格预告大直播主要内容：首先是中共国内斗，超过六、七成会发生大翻盘，即江、朱、曾、孟、王已无路可走，必在大反击中绝地求生。郭先生会从司法和纪委乱象入手揭示详情。本次大直播核心内容是会就中共国的房地产经济政治军事等面向全球作重要爆料发布。同时特别提示军事方面会有令中共军官吓尿的内容爆出。
+但同时邱太三还爆料称，为回应共军军机侵台，十月初美英日等六国军演时，曾有两架美国战机进入可发射飞弹攻击中共军港射程，而中共雷达却未在第一时间发现美军战机。
 
-关于各国强制疫苗行动的发展方向等相关事宜和话题也应是必谈议题。每天都在发生的大量事实，已经昭示新中国联邦和爆料革命的力量正在撬动整个世界的变局。
+文字版原文：[台陆委会称目前局势接近准战争状态!](https://gnews.org/zh-hans/1597920/)
 
-【原文链接】https://gettr.com/post/pebnmn4403
-
-校对发布：Shifter
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
