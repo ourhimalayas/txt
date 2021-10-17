@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/17/2021 12:34 PM (UTC)`
+
+疫苗青蒿素轰动全球；金融大危机促生变革
+![img](https://media.gettr.com/group49/origin/2021/10/17/12/3a157294-9363-5719-d4ee-a9afb97d8bbb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 10/17/2021 3:14 AM (UTC)`
 
 10/16/2021 Miles Guo’s GETTR: Jiang Zemin, Zeng Qinghong, Meng Jianzhu, Han Zheng, and Wang Qishan have no no choice but to fight against Xi Jinping! Only the US and Japan can grant safety to those who got out of the CCP’s system. Tomorrow I will drop a bombshell on the CCP’s military that will freak the CCP’s officers out. Even the CCP’s National Security Commission, which is equivalent to the KGB, has said that what I talked about has now proved to be true.<br/><br/>10/16/2021 文贵盖特：江、曾、孟、韩、王现已无路可走，将对习反戈一击！只有美、日能让中共体制内逃出来的人有安全；明天将爆会让中共军官们吓尿裤子的军事大料；中共版克格勃 - 国安委称，文贵说的话现在都被证明是真的！<br/>
@@ -293,13 +300,6 @@ Henry Reitzug博士：在注射带有被改造氨基酸的新冠mRNA疫苗进入
 
 10月12号：在任何国家邪恶势力，面对大于他们力量的反抗的时候，他们一定会放弃，因为他们比谁都怕死，他们比谁都怕失败，这就是中国人民被共产党奴役了七十年根本的原因，因为中国人民从来不懂得反抗，当然永远不会被人们尊重，也不可能有自由和民主。【西南航空CEO说他从来不支持强制疫苗，是白等的行政令造成的。抗议是有效的👍】
 ![img](https://media.gettr.com/group9/getter/2021/10/12/15/54/6b24f785-5f63-d2d5-ffe7-fa2d97d8639b/out.jpg)
-
----
-
-`@miles 10/12/2021 3:44 PM (UTC)`
-
-10月12号：尊敬的战友们好．世界政治经济面临的巨大挑战给新中国联邦带来了前所未有的机会，我们要冷静，客观全面进行揭发．帮助世界拆除共产党在全世界埋下的各种定时炸弹……
-![img](https://media.gettr.com/group45/getter/2021/10/12/15/dab0ba3c-8ce9-d8bb-af78-b1be6fcdfca7/out.jpg)
 
 ---
 
