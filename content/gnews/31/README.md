@@ -2,21 +2,25 @@
 ---
 
 
-## 秘翻在线：疫苗杀人应接受纽伦堡审判
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599367/)
+## 秘翻在线：多国喜欢使用抖音的青少年女孩患上抽动症
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599413/)
 
-#### 采集/撰稿：极寒将至 
+#### 翻译撰稿：zzballack
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-2-12.jpg)图为1947年纽伦堡审判历史照片 图片来源：推特
-来自“新冠伦理医生”组织（Doctors for COVID Ethics）网站的消息，2021年4月，律师梅琳达·梅恩（Melinda C. Mayne）和凯拉·麦卡勒姆（Kaira S. McCallum）向国际刑事法院（International Criminal Court 简称ICC）提交了一份 “调查请求”。这两位律师指控英国政府犯有种族灭绝罪、反人类罪和违反纽伦堡法典的行为。此后，来自斯洛伐克、法国和捷克共和国的律师们也加入了他们的行列。
+#### 校对发布：文柯Miles
 
-他们特别指控：“SARS-CoV-2病毒（中共病毒）和Covid-19疫苗是被故意设计的生物武器，并被分为两个阶段向世界上毫无戒心的人们释放。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/maxresdefgd13s13123dsfa1231sa332sdfault.jpg)
 
-纳粹大屠杀的幸存者维拉·沙拉夫（Vera Sharav）、摩西·布朗（Moshe Brown）和希勒·汉德勒（Hillel Handler）已向国际刑事法院致函，以支持这一联合索赔。在信中，他们表达了对Covid-19疫苗的担忧，呼吁立即停止”这种对人类的不敬和犯罪的医学实验”。
+据《商业内幕》（Business Insider）10月17日报道，多个国家的医生报告说，自中共病毒疫情爆发以来，很多青少年女孩出现了身体与语言上的抽动、失调问题，这令医生们感到震惊和疑惑，引发了医学界的高度关注。几篇医学期刊文章发现这些少女在抖音观看抽动症（Tourette Syndrome）患者的视频。焦虑、抑郁和抖音可能是症状的成因。
 
-文中还提供了这封致国际刑事法院信的下载链接。
+抽动症是一种遗传性神经系统疾病，会导致人们抽搐，做出重复的、不自主的动作或发出声音。这种疾病主要影响男孩，抽搐通常在一个人年轻时开始，然后随着时间的推移而发展。有报道称，在大流行之前，医疗中心每个月会有一两个抽动症病例，但现在有些人说他们每个月看到10到20个病例。
 
-把中共病毒和中共病毒疫苗并列为生化武器，这是非常罕见的进展，把病毒和疫苗灾难制造者送上纽伦堡审判台，至少已经看见了希望。
+德国汉诺威的医生基尔斯滕·穆勒-瓦尔(Kirsten Müller-Vahl)告诉《耶路撒冷邮报》（Jerusalem Post），她看到越来越多的年轻女孩出现抽搐。有25年抽动症治疗经验的穆勒-瓦尔说，虽然患有这种疾病的人通常有自己独特的抽搐，但她最近看到女孩们的抽搐方式几乎相同。她很快发现，这些患者是在模仿一位德国油管播主的抽搐，播主在网上分享了她如何与这种疾病共处。
 
-新闻来源：[Holocaust Survivors’ Letter to the International Criminal Court](https://doctors4covidethics.org/holocaust-survivors-letter-to-international-criminal-court/)
+芝加哥拉什大学医学中心（Rush University Medical Center）的运动障碍研究员卡罗琳·奥尔维拉 (Caroline Olvera)表示，许多青少年患者倾向于观看在抖音流行的抽动症患者类视频。在这些短视频中，青少年表演一系列不自主的行为，进行猛烈的手臂动作到咒骂或者抽搐，或者表演出说话困难的情景。而一些热衷观看这类视频的青少年也在生活中出现了相应的举动，最终成为无法控制自己行动的患者。在过去一年中，奥尔维拉研究了3千个抖音视频，发现类似的视频在抖音中广为传播。一旦用户点击类似视频，更多的同类内容将会出现，导致对青少年产生类似洗脑的效果。她说这些患者的症状并不是抽动症，而是一种功能性运动障碍。
+
+德克萨斯儿童医院的儿童神经病学家玛丽亚姆·赫尔 (Mariam Hull)则指出，社交媒体似乎为具有传播能力的儿童心理障碍在世界范围内迅速传播提供了一种新途径。现在，抖音特别受少女欢迎，“有些孩子给我看了他们的抖音，里面充满了抽动症患者的烹饪和字母表挑战。”只看一个视频不可能形成抽搐，但抖音的算法会让孩子们反复看到类似的视频。
+
+《耶路撒冷邮报》说，这些障碍是可以治疗的。医生建议孩子们暂时远离社交媒体，父母们需要知道他们的孩子在看什么类型的视频。此外，如果孩子表现出的抽搐干扰了日常生活，父母应该寻求专家的帮助。
+
+新闻来源：[**Teen girls are showing up to the doctor with tics, and experts think anxiety, depression, and TikTok could be playing a role**](https://www.businessinsider.com/teen-girls-develop-tics-doctors-tiktok-anxiety-depression-experts-2021-10)

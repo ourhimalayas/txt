@@ -2,21 +2,23 @@
 ---
 
 
-## 影评人质疑《长津湖》&#8221;意识形态&#8221;威胁世界
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599539/)
+## 美台讨论提前交付 F-16V 战机的可行性
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599551/)
 
-作者：文小白
+作者：云豹
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-近日，有大陆抖音影评人因质疑“中国拍《长津湖》一类电影是在威胁世界”等言论，可谓一语中的，其账号也因此遭抖音平台封禁。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.17AM-PICTURES-123468.002.jpeg)
-星岛日报报道，抖音匿称为“米路哲光影业”的用户以“狂欢的背后，不可忽视的危机感”为题，发表了对《长津湖》的反思。该用户在视频中称，“我们的电影《长津湖》的出现，以及如此频繁的抗战影片的出现，是否是向世界传达着一种不够友好、不够维稳的意识形态？里面是不是包含有威胁的意味?……”上述言论经多个微博“大V”传播，在赢得掌声同时，也遭到小粉红围剿和举报。目前该账号因“不符合社区规范”被抖音平台封禁，相关视频也已无法查看。
+中央社报导，由于中共连续派军机侵入台湾防空识别区，两岸的紧张情势升级，美台双方已开始讨论提早交付台湾所订购F-16 V战机的可行性。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.17AM-PICTURES-123468.007.jpeg)
+在两周前，中共军机频繁大量入侵台湾西南防空识别区时，美国拜登政府毫无反应。 美国两党国会议员向拜登政府施压，要求对北京采取更强硬态度且动作要快，主张国会应允许总统有更多空间发起海外军事行动，以在必要时保卫盟友台湾。
+
+根据此前台美双方签署的军售合约，台湾从美国购买的66架F-16V战机，将在2023年首批交付单、双座战机各一架，台湾空军用来进行测试及训练，其他战机预计2026年前陆续交付。此次美台双方如能达成共识，能尽快提前交付部分F-16V战机，将对提升台湾的防空战力有极大助力。
 (本文仅代表作者观点)
 
-参考链接：[因坦言《长津湖》恐威胁世界，中国抖音影评人被封号](https://www.voachinese.com/a/douyin-account-gets-suspended-for-commenting-on-film-chosin-reservoir-battle-20211016/6273398.html)
+参考链接：[CNN：台美官員討論F-16V提前交機可能性](https://www.cna.com.tw/news/firstnews/202110160128.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
