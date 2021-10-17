@@ -2,49 +2,25 @@
 ---
 
 
-## 研究揭示中共病毒的刺突蛋白导致血栓的机制
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599090/)
+## 疫苗灾情｜英国 58 岁前世界冠军接种疫苗后截肢保命
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1599126/)
 
-作者：Zion文恩
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 17/10/2021**
 
+***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/33-2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+【英国】前跆拳道世界冠军 Dave Mears 在接种完阿斯利康 COVID-19 疫苗后的 1 个月内失去了腿。今年 58 岁的 Dave 1984 年成为跆拳道世界冠军后，移居泰国开办跆拳道教学并获得专业摄影师的资格，2019 年因为疫情原因，他才返回家乡——英国斯坦福。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/WCTLMWILOV6EJ2RHFJGR-535x720.jpeg)
 
+他于 3 月 4 日接受第一针疫苗，立即出现了类似流感的症状以及持续发烧。1 个月后，Dave 因感染而入院，情况非常严重，当主诊医生看到 Dave 肿胀的腿时，十分震惊，当即移送至剑桥当地的一家医院，就在这个时候，恐怖的事情发生了，他的“腿炸开了”，到处都是血，别无选择之下，医生唯有将他左腿自膝盖以下部分截掉，以保全他的性命。
 
-今夏以来，世界各国政府和医药监管机构不遗余力地推行“中共病毒”疫苗接种，然而，全球的德尔塔变种病毒感染率、死亡率并未得到有效控制。此外，因接种疫苗引发的严重不良反应——血栓、心肌炎、心包炎在各国都已大面积出现。
+虽然，医务人员尚未给出 Dave 会严重感染的原因，不过 Dave 就认为这一切与疫苗脱不了关系。他说“我在接种疫苗后的当天晚上就病了，开始严重发烧，4日接种，10日住院，12日腿就炸开了，我认为两者有关，我失去了一条腿，我会积极复健，但我一定会讨回公道。”
 
-10月13日，一项发表在知名生命科学开放预印文献库biorxiv的研究表明，中共病毒的刺突蛋白可与人类凝血因子——纤维蛋白原结合，由此产生结构异常的凝血块，进而引发各种炎症反应。此外，该研究还表明，刺突蛋白增强小胶质细胞的活性，由此引发患者肺部病变。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-52.jpg)
-早在8月3日，GTV新闻访谈栏目已报道了中共病毒的刺突蛋白可引发血管内皮细胞的炎性反应的相关研究。值得注意的是，当前广泛接种的各类疫苗，其作用机制都是通过向人体直接或间接地注射部分或全部的刺突蛋白，使人体产生相应抗体，以达到所谓的预防“中共”病毒的目的。
+来源｜[个案033](https://www.stamfordmercury.co.uk/news/man-lost-leg-weeks-after-covid-vaccination-9198171/)
 
-综合这两项有关刺突蛋白的致病性的研究，当下疫苗引发的各种血栓已成为关乎人类生死存亡的大事。遗憾的是，世界各国绝大多数主流媒体和医药监管机构仍在无视或回避这一问题。
+* * *
 
-可预见的是，“疫苗灾难”将在不久的将来引发世界范围的人道危机。
-
-参考链接：
-[SARS-CoV-2 spike protein induces abnormal inflammatory blood clots neutralized by fibrin immunotherapy](https://www.biorxiv.org/content/10.1101/2021.10.12.464152v1.full)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：鬼五
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//

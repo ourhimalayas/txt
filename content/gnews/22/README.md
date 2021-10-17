@@ -2,40 +2,36 @@
 ---
 
 
-## 新南威尔士州退出澳洲的中共病毒热点地区
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1599231/)
+## 日本科学家们吐心声言及中共千人计划(之一)
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1599254/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/c861a980-98a9-11ea-b2ff-f3d662fd5c30.jpg)图片来源：s.yimg.com
-#### 编译：小红帽
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-301.png)[图片来源](https://www.aboluowang.com/2021/0102/1540782.html)
+著名的文春在线9月30日发表了题为【日本の大学は技術流出に甘い？ アメリカが危惧を強める中国の“科学技術剽窃”問題…不満を抱える科学者たちの“本音”】的文章。中文大意为：日本的大学对技术泄密的处理是否太宽松？对已使美国产生危机感的中共国的 “技术剽窃 “问题…… 心怀不满的科学家们的心里话。
 
-在新南威尔士州的中共病毒疫苗接种率达到80% 后，该州于今晚将取消其作为联邦中共病毒（COVID-19）热点地区的地位。
+条件是5年2亿日元…… “你要申请中共国政府的千人计划吗？”。从这个涉及44名日本人之 “国家项目 “的现实状况进行深入了解。
 
-自8月14日以来，该州一直是全国中共病毒热点地区。然而，澳大利亚政府首席医疗官保罗·凯利（Paul Kelly）教授证实，该州将从今天晚上11点59分起取消这一地位。
+中共国正在收集有价值的技术和数据，努力提高其对世界的影响和控制。对这种状况的担心，导致美国开始对中共国提高警惕、加强审查。与此同时，日本的反应是怎样的呢？本文节选自《可视化中国的 “隐形侵略”》(Shincho Shinsho)，它研究了日本学术界在规避风险上存在的问题。
 
-根据管理中共病毒的国家计划，一旦在特定州或领地内达到80%的中共病毒疫苗完全接种率，该州或领地的联邦热点声明将自动结束。
+**之一、外国是如何窃取技术的详解。**
 
-在该地区的状态降级两周后，其中共病毒热点地位而获得的支持将结束。
+美国汇聚了世界上最聪明的人们，他们的研究成果本应归属美国，但在他们意识到之前，这些成果就已经流失到它国去了。
 
-昨天，新南威尔士州80%的16岁以上符合条件的人群接种了中共病毒疫苗。
+《基础研究的安全性》是受美国国家科学基金会委托的，由科学家们组成的，叫做杰森的咨询小组于2007年12月发布的报告。它详细介绍了外国利用美国的开放学术环境进行技术盗窃的方式。在情报等机构的配合下，还就外国行使不当影响、损害研究完整性的方法等进行了详细的分析，并将其分为四种类型。
 
-在澳大利亚全国范围内，有超过1740万人接种了至少一剂疫苗，这意味着84.6%的16岁以上人群正在全面接种疫苗。 澳大利亚现在有67.8%符合条件的人口完全接种了疫苗。
+第一种是奖励。如高薪、豪宅、诱人的职位、研究经费和研究设施。这种奖励在包括美国在内的许多国家都很常见，可以诱使人们开始不利于研究公正性的行动。这些行为包括未经批准分享信息、偷窃试验中的原型等物品，以及允许外国学生加入美国的研究小组。在某些情况下，还可能要求不可向所属组织告知奖励相关信息。
 
-首都领地、杰维斯湾领地以及维多利亚州和塔斯马尼亚州的一些地方政府目前是联邦中共病毒的热点地区。
+第二种是欺诈。典型的例子有，外国研究人员隐瞒自己是本国军队、安全部门或军事附属大学成员的事实。以留学生身份作掩护，来美国学习高超音速技术或人工智能等敏感技术。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+第三种是恐吓强制。如威胁或胁迫。威胁的范围可以从社会排斥到身体伤害。就留学生而言，如果他们拒绝收集信息等要求的话，就会被停发国家奖学金。也可能以法律为由要求他们与情报和安全机构合作。就美国研究人员而言，他们可能会受到失去财产、被毁坏名声、被剥夺在外国享有的特权地位的威胁。如果人才招聘计划的合同中包含阻止人们透露其参与情况的条款，就可能被用来勒索他们。
 
-**参考新闻：**
+第四种是窃取知识产权。它意味着研究成果的损失，如样品、原型、软件、文件和想法。报告称，外国研究人员比美国研究人员更有可能在其研究过程中使知识产权被窃。
 
-1. [Coronavirus vaccine rollout Australia: State by state guide to Australia’s current vaccination rates, including when NSW will hit 80 percent and when will Victoria hit 70 per cent double doses | Explainer (9news.com.au)](https://www.9news.com.au/national/coronavirus-vaccine-rollout-australia-state-by-state-guide-covid19-vaccination-rates-single-dose-double-doses-explainer/abacde8f-d35e-45ee-83bc-069ede212ecf)
-2. [New South Wales to no longer be classified as a national COVID-19 hotspot (msn.com)](https://www.msn.com/en-au/news/australia/new-south-wales-to-no-longer-be-classified-as-a-national-covid-19-hotspot/ar-AAPCjHc?ocid=msedgntp)
+[信息源](https://news.yahoo.co.jp/articles/1884864cd8816c5e03d8c7a72a5da2fe36cdc58d?page=1)
 
+未完待续
 
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)

@@ -2,35 +2,36 @@
 ---
 
 
-## 美中对抗惠及印度，美国成印度最大贸易伙伴
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1599276/)
+## 新中国联邦国旗飘扬在波士顿马拉松赛场上｜后续报道II
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1599308/)
 
-作者：东京樱花团｜文小白
-![](https://lh5.googleusercontent.com/8OaGzDKX6IiuQvOI2kWFzrGqykdh4jPbf9-ZydeJI6LORDDi0SeOQH_zaT555r_tvEkHYcKWM47sXoWKqCzG-DplatV5KstZk9z3nt9dXVwTxHm-Fw5cGgJMtI1S639DreyY6cyo=s0)[图片来源](https://www.voachinese.com/a/us-pips-china-as-indias-largest-trade-partner-20211016/6273253.html)
-印度政府曾努力维持与美国和中共国之间的贸易平衡。美中对抗惠及印度，美国已经取代中国成为印度的最大贸易伙伴，中国目前位居第二。
+作者：纽约香草山健身部 – Jack Li文阳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在10月11日举行的波士顿马拉松比赛上，纽约香草山农场战友煤油灯高举新中国联邦国旗，从起点直至终点，第一次在国际性赛事上由参赛选手向世界展示了新中国联邦的形象。
 
-据印度时报报道，印度商务部公布的数据显示，今年1至9月，印度与美国的双边贸易额暴增50%，达到280亿美元；而同期与中国的贸易增长46%，达到253亿美元。美国已经取代中国成为印度最大的贸易伙伴。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-305.png)图片来源：煤油灯
 
-- ***延展阅读：***[***布林肯访问印度扩大印美伙伴关系***](https://www.voachinese.com/a/blinken-visit-to-new-delhi-expands-indo-us-partnership-2021-07-28/5982668.html)
+波士顿马拉松比赛全程26.2英里，参赛选手每增加一分重量，在跑步的过程中都是沉重的负担。平常，选手们为了减轻负重，穿着的比赛衣服都是既轻又薄。据煤油灯战友介绍，他赛前也有过担心，怕举着旗子坚持不到终点，所以准备了一个轻小的背袋，以防体力消耗过大时放旗子之用。但最后他凭着良好的身体素质，坚韧不拔的意志坚持下来了。正如七哥说的：（新中国联邦）第一次在马拉松比赛中，走向了胜利。
 
+赛后，煤油灯战友回忆起当时的情景：我们的新中国联邦国旗引起了沿途观众和参赛选手的注意，不少人还饶有兴趣的问：“这是什么旗帜？”，煤油灯战友边跑边回答他们的问题，简单的向他们宣传新中国联邦。一位人士问他：“你们支持台湾吗？煤油灯战友给出了肯定的回答。这位人士马上提出要求，要与煤油灯以及新中国联邦国旗合照。
 
-美国与中国长期以来都是印度的前两大贸易伙伴，但是自从去年6月15日，中印边境爆发军人徒手搏斗并造成严重伤亡事件之后，中印政治关系开始恶化。同时，印度迅速强化了与美国及其盟友的关系。9月底，印度总理莫迪前来华盛顿，出席4国集团（QUAD）首次面对面的高峰会。
+一位当地报纸Daily News的记者看到煤油灯战友跑到跟前的时候，及时的按下了快门，记录下了这珍贵的一刻，他的这张由当地美国媒体记者拍摄的照片，必定会记录在新中国联邦珍贵历史文献里。
 
-- ***延展阅读：***[***印中两军指挥官边境会谈陷入僵局，冬季将持续对峙***](https://www.voachinese.com/a/india-china-border-talk-fail-20211011/6266356.html)
+**本文谨代表作者观点**
 
+![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
 
-印度时报说，除了美国成为印度的最大的贸易伙伴之外，印度与其他贸易伙伴，例如澳大利亚、阿拉伯联合酋长国以及比利时之间的贸易增长则更为突出。
+**校对/发稿：童谣**
 
-根据印度商务部汇集的数据，在印度的主要贸易伙伴中间，印度与南非的贸易增幅最大，为91.4%，贸易额达到59亿美元；印度与澳大利亚的贸易上涨超过85%，达到64亿美元；印度与比利时的贸易增幅为80%，达到60亿美元；而印度与阿拉伯联合酋长国的贸易也增长67%，达到200亿美元。
+**更多资讯，更多关注**
 
-印度与中国贸易增幅趋缓的同时，印度与其他亚洲国家的贸易增幅也略显滞后。在今年1月至9月，印度与印尼贸易增幅为48.4%，贸易额为61亿美元；印度与泰国的贸易增幅为60%，贸易额为38亿美元。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-印度时报的报道说，印度与许多国家的贸易增长，部分原因是某些商品价格的暴涨。油价以及金属价格暴涨就是重要的因素。
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-- ***参考连接：***[***美中对抗惠及印度，印外贸跳跃增长，美国成印度最大贸易伙伴***](https://www.voachinese.com/a/us-pips-china-as-indias-largest-trade-partner-20211016/6273253.html)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-（本文只代表个人观点，与Gnews网站无关）
-*校对：东京樱花团 /*平安卿卿
-*发布：东京樱花团 /*平安卿卿
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

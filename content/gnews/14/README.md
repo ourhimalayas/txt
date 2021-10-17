@@ -2,51 +2,38 @@
 ---
 
 
-## NBA球队不准出现有中共病毒疫苗不良的报告
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1599275/)
+## 新中国联邦国旗飘扬在波士顿马拉松赛场上｜后续报道I
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1599307/)
 
-**编译：wenwu**
+作者：纽约香草山健身部 – Jack Li文阳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在10月11日举行的第125届波士顿马拉松比赛上，煤油灯，一位来自纽约香草山的新中国联邦战友，从霍普金顿到波士顿的26.2英里的赛道上，手持新中国联邦国旗跑完全程，向世界展示了新中国联邦这道亮丽的风景线。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-304.png)
+波士顿马拉松赛是全世界最古老的马拉松比赛，与[伦敦马拉松](https://zh.wikipedia.org/wiki/%E5%80%AB%E6%95%A6%E9%A6%AC%E6%8B%89%E6%9D%BE)、[柏林马拉松](https://zh.wikipedia.org/wiki/%E6%9F%8F%E6%9E%97%E9%A6%AC%E6%8B%89%E6%9D%BE)、[芝加哥马拉松](https://zh.wikipedia.org/wiki/%E8%8A%9D%E5%8A%A0%E5%93%A5%E9%A6%AC%E6%8B%89%E6%9D%BE)、[纽约马拉松](https://zh.wikipedia.org/wiki/%E7%B4%90%E7%B4%84%E9%A6%AC%E6%8B%89%E6%9D%BE)和[东京马拉松](https://zh.wikipedia.org/wiki/%E6%9D%B1%E4%BA%AC%E9%A6%AC%E6%8B%89%E6%9D%BE)合称为世界马拉松大满贯赛事。波士顿马拉松是单向赛道，经过7个热闹的小镇，沿途会有超过50万人围观，无论是在体育界，还是在社会上都有巨大的影响力。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip20.png)
+煤油灯战友，是纽约香草山健身部的一位老大哥，在平常的交流中，只知道他是一位奔跑达人。就算是健身部的战友，也不知道这位亲切的老大哥原来还是一位能跨进波士顿马拉松赛的运动健将。同时他也是一位摄影师，他身背长短炮，活跃在农场游行示威和联盟庆典等活动上。他常常为了获得最好的摄影角度爬高伏低，在休息在吃饭时，他还在忙碌着，不放过任何一个动人的瞬间，他的专业精神常常得到战友们的赞许。
 
-图片来源：**[Megan Redshaw](https://childrenshealthdefense.org/authors/megan-redshaw/)**
+长岛伟哥首先发盖特：太棒了，香草山的煤油灯战友，手举新中国联邦国旗跑完了波士顿马拉松全程。未来新中国联邦国旗会出现在越来越多的国际赛场上。
 
-在美国国家篮球协会(NBA)和凯里·欧文（Kyrie Irving）之间[的对峙中](https://www.espn.com/nba/story/_/id/32397602/kyrie-irving-says-decision-remain-unvaccinated-being-true-feels-good-me)——欧文被禁止在布鲁克林篮网队[训练](https://childrenshealthdefense.org/defender_category/covid/)或比赛，直到他接种中共疫苗——如今，另一名球员以“亲身试法”来[发出了警告](https://www.outkick.com/atl-hawks-point-guard-yes-the-vaccine-ended-my-season-one-thousand-percent/)，解释了去年的[中共疫苗](https://childrenshealthdefense.org/defender_category/covid/)是如何结束他的赛季，以及他的团队官员如何试图掩盖他的疫苗副作用。
+文贵先生随即也在盖特上说：新中国联邦的旗帜在我们帅气，健康的战友的手中，第一次在马拉松比赛中，走向了胜利。
 
-布兰登·古德温(Brandon Goodwin) 是亚特兰大老鹰队的前控球后卫——他在周四与纽约尼克斯队[签署了一份新的合同](https://www.nba.com/knicks/front-office-news/knicks-sign-brandon-goodwin)——在五月曾因被[描述](https://www.bizpacreview.com/2021/10/15/player-says-nba-muzzled-him-after-he-got-blood-clots-from-covid-vaccine-that-took-him-out-for-season-1149030/)为“轻微”的呼吸道疾病而退出了本赛季。
+这是首次有比赛选手高举新中国联邦的国旗参加比赛，这是纽约香草山农场的骄傲，也是新中国联邦走向国际体育赛场的开始。相信在不久的将来，必定会在越来越多的赛场上飘起新中国联邦的国旗。
 
-[美联社](https://apnews.com/article/atlanta-hawks-new-york-knicks-health-nba-sports-ea4f9157ff2501558ab263a009f84118) 5 月 18 日报道说：“亚特兰大老鹰队的替补后卫布兰登·古德温将在被诊断出患有呼吸系统疾病后，缺席 NBA 季后赛；虽然球队将这种情况描述为小病，但它将需要治疗，并使古德温在本赛季的剩余时间里都不能参加比赛。”
+**本文谨代表作者观点**
 
-直到今年 9 月 29 日，[古德温](https://www.bizpacreview.com/2021/10/15/player-says-nba-muzzled-him-after-he-got-blood-clots-from-covid-vaccine-that-took-him-out-for-season-1149030/)在视频流媒体网站 [Twitch 上](https://www.twitch.tv/videos/1163181232)透露，他的“轻微病症”是血栓，他说这是在接种中共疫苗后才出现的。
+![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
 
-古德温在 10 月 3 日的 [Twitch 直播中说](https://www.twitch.tv/videos/1163181232)：
+**校对/发稿：童谣**
 
-“我生病了，然后我再也没有从中恢复过来。我总是会有背痛。我只是在比赛中感到非常疲倦，就像我们与费城 [4 月 28-30 日] 背靠背比赛时候。兄弟，我太累了，就像我不能在球场上跑来跑去一样。然后我们回家了，那时我的背真的开始痛的非常厉害。然后我认为我必须去看医生，那时我才发现我出现了血栓。”
+**更多资讯，更多关注**
 
-古德温[说，](https://www.outkick.com/atl-hawks-point-guard-yes-the-vaccine-ended-my-season-one-thousand-percent/)这些症状“都发生在接种中共疫苗后的一个月内”。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-“在那之前我一直很好，直到我接种中共疫苗，”古德温说。“我很好。所以人们试图告诉你这不是中共疫苗的问题，你怎么知道？你是不知道的，对吧。中共疫苗结束了我的赛季，这是事情的百分之百真相。”
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-古德温[对](https://www.outkick.com/atl-hawks-point-guard-yes-the-vaccine-ended-my-season-one-thousand-percent/)老鹰队[没有表示任何敌意](https://www.outkick.com/atl-hawks-point-guard-yes-the-vaccine-ended-my-season-one-thousand-percent/)，但确实对他们如何处理他的住院治疗，表示出一些困惑。“我不反对老鹰队，但是他们在我住医院时候的第二天给我打电话，告诉我，‘我们要告诉媒体你的赛季，已经结束了’”他说。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-古德温说，球队[要求他](https://www.bizpacreview.com/2021/10/15/player-says-nba-muzzled-him-after-he-got-blood-clots-from-covid-vaccine-that-took-him-out-for-season-1149030/)对自己的病情[保持沉默](https://www.bizpacreview.com/2021/10/15/player-says-nba-muzzled-him-after-he-got-blood-clots-from-covid-vaccine-that-took-him-out-for-season-1149030/)，这解释了为什么公众到现在才知道这所谓的“轻微”病症就是疫苗的副作用——血栓。“他们只是，就像在暗示什么也不说。不要告诉任何人。我想，兄弟……，”古德温[在视频中透露](https://www.twitch.tv/videos/1163181232)。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[古德温说](https://www.bizpacreview.com/2021/10/15/player-says-nba-muzzled-him-after-he-got-blood-clots-from-covid-vaccine-that-took-him-out-for-season-1149030/)，他想说出疫苗副作用的真相，这样他就可以重新回到比赛中，因为在最初的呼吸问题之后，尽管在服用血液稀释剂，但他已经重新站了起来；为公平起见，古德温还爆料了主治医生也告诉他“不要在夏天打篮球”。
-
-古德温没有透露他接种的是哪种中共疫苗，但血液凝块[与](https://childrenshealthdefense.org/defender/jessica-berg-wilson-dies-covid-vaccine-twitter-censors-obituary/)美国授权紧急使用的所有[三种中共疫苗](https://childrenshealthdefense.org/defender/pfizer-moderna-vaccines-blood-clots/)——[辉瑞](https://childrenshealthdefense.org/defender/pfizer-covid-vaccine-linked-rare-blood-clot-disorder/)、[Moderna](https://childrenshealthdefense.org/defender/man-dies-moderna-vaccine-rare-blood-clotting-disorder/)和[强生](https://childrenshealthdefense.org/defender/jessica-berg-wilson-dies-covid-vaccine-twitter-censors-obituary/)(J&J)——都有关——尽管美国食品和药物管理局 (FDA)仅在强生的中共疫苗上，[添加了（血栓）警告标签](https://www.fdanews.com/articles/202501-fda-lifts-pause-on-jj-vaccine-inoculations-adds-blood-clot-risk-warning#:~:text=The%20FDA%20on%20Friday%20amended,Prevention%20%28CDC%29%20advisory%20committee.)。
-
-4 月 13 日，联邦机构[暂停了强生公司](https://childrenshealthdefense.org/defender/u-s-pauses-johnson-johnson-covid-vaccine/)旗下 Janssen 子公司销售[的疫苗](https://childrenshealthdefense.org/defender/u-s-pauses-johnson-johnson-covid-vaccine/)，同时他们调查了该中共疫苗与潜在危险血栓的可能联系；在 4 月 13 日美国疾病控制与预防中心 (CDC) 和 FDA 的[联合声明中](https://apnews.com/press-release/pr-newswire/business-diseases-and-conditions-health-care-industry-anne-schuchat-health-561bd901bd02aeb7fbf7935b7db3e481)，这些机构表示他们正在调查美国的 6 起血栓病例，这 6 起都发生在 18 至 48 岁的女性身上，而且症状是在接种疫苗后的 6 至 13 天出现。
-
-4 月 23 日，CDC 的一个独立顾问小组以 10 票对 4 票投票决定[恢复使用](https://childrenshealthdefense.org/defender/cdc-panel-resume-use-of-jj-covid-vaccine-no-restrictions/)强生公司的中共疫苗，并贴有[标签注明](https://www.fdanews.com/articles/202501-fda-lifts-pause-on-jj-vaccine-inoculations-adds-blood-clot-risk-warning#:~:text=The%20FDA%20on%20Friday%20amended,Prevention%20%28CDC%29%20advisory%20committee.)该疫苗有血栓风险的警告。
-
-根据[疫苗不良事件报告系统](https://vaers.hhs.gov/reportevent.html)的[最新数据](https://childrenshealthdefense.org/defender/vaers-cdc-covid-vaccine-injuries-deaths-fda-booster-shots/)，在2020 年 12 月 14 日至 2021 年 10 月 8 日期间，[美国](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;STATE=NOTFR)有[1万0131份](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;STATE=NOTFR)关于血液凝固障碍的[报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;STATE=NOTFR)。其中，有 [4407 份报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR)归因于辉瑞，有 [3654 份报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=MODERNA&amp;STATE=NOTFR)归因于 Moderna，以及有 [2018 份报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=JANSSEN&amp;STATE=NOTFR)归因于J＆J。
-
-（文章仅代表作者观点与GNEWS无关）
-
-**新闻来源**：[The Defender](https://childrenshealthdefense.org/defender/brandon-goodwin-nba-player-covid-vaccine-blood-clots/) |**作者：梅根·雷德肖**｜ [NBA Player Says COVID Vaccine Caused Blood Clots, But Team Officials Told Him to ‘Keep Quiet’](https://childrenshealthdefense.org/defender/brandon-goodwin-nba-player-covid-vaccine-blood-clots/)**发布时间：2021年10月15日｜**
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

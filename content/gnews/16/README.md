@@ -2,20 +2,50 @@
 ---
 
 
-## 新冠口服药登场，伊维菌素“名不正言不顺”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1599259/)
+## 首次让新中国联邦国旗在国际比赛中飘扬的参赛选手——煤油灯战友的访谈
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1599283/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-302.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimages.theconversation.com%2Ffiles%2F421500%2Foriginal%2Ffile-20210916-17-bcsltk.jpg%3Fixlib%3Drb-1.1.0%26q%3D45%26auto%3Dformat%26w%3D1200%26h%3D900.0%26fit%3Dcrop&amp;imgrefurl=https%3A%2F%2Ftheconversation.com%2Fivermectin-whether-formulated-for-humans-or-horses-is-not-a-treatment-for-covid-19-167340&amp;tbnid=U6iM6rJYrU_BVM&amp;vet=12ahUKEwj03dnf_tDzAhVCAqYKHRdHBcsQMygDegUIARCGAQ..i&amp;docid=0hyAKJxReUm2LM&amp;w=1200&amp;h=900&amp;q=ivermectine&amp;ved=2ahUKEwj03dnf_tDzAhVCAqYKHRdHBcsQMygDegUIARCGAQ)
-美国制药巨头Merck公司11日向美国食品和药物管理局（FDA）申请了口服抗病毒药物”莫诺匹拉韦（molnupiravir）”的紧急使用许可。 预计不久将在日本申请药品批准，日本首相岸田文雄对该口服药寄予厚望。Merck公司已经与美国政府签订了供应协议，并正在与日本政府就供应问题进行谈判。
+记者： 纽约香草山健身部 – Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+记者问：这位战友是来自纽约香草山健身部的煤油灯战友，他刚刚参加完波士顿马拉松比赛，一路高举着我们新中国联邦的国旗，跑完26英里（42公里）的全程。请问，煤油灯战友，您一直都有参加马拉松比赛吗？
 
-根据年内投入使用的方针，日本盐野义制药正在抓紧开发治疗药物。盐野义研制的抗病毒药物”S―217622″抑制了另一种酶”3CL蛋白酶”的作用，防止病毒繁殖，9月开始最后阶段的临床试验，争取今年供应，2022年3月份前至少准备100万人份的药物。此外，瑞士和美国多家公司都在积极研制对抗中共病毒药物，对药物型治疗药物的开发竞争正在进入高潮。
+煤油灯：以前参加过多次。因为波士顿马拉松是门槛比较高的国际赛事，需要提交较好的成绩作为报名的资格。我其实是参加去年的，不过，去年波士顿马拉松4月份的比赛因为疫情取消了，今年的延后到十月份举行。这样正好，我们新中国联邦成立了，可以举着我们的国旗参加比赛。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-303.png)
+记者问：讲到国旗，我就有点好奇。煤油灯战友，请问您是怎么想到要举着我们新中国联邦的国旗跑比赛的？而我们都知道，马拉松比赛的参赛选手都是尽量轻装上阵的，您还要用手举着国旗，这是非常不容易完成的任务吧？
 
-在药物治疗中，有医生使用抗寄生虫药物伊维菌素，目前，该药尚未批准为中共病毒药物，有效性尚未得到证实，药品制造商“兴和”（名古屋市）正在对该药进行临床试验。
+煤油灯：在以前国际大比赛中，经常看到有参赛者带着国旗跑，自然想到带我们七芒星旗参加这个顶级的国际马拉松比赛。
 
-信息来源：[コロナ飲み薬、年内にも登場　ウイルス増殖防ぐ　米メルクや塩野義が開発](https://news.yahoo.co.jp/articles/10503b7a478f3f619d0e948f40cebd8cbabc2a39)
+比我开始想得容易些，之前怕在末段出现状况，就买了个背包改装了一下，可以把旗插的里面背着跑。比赛时，我全程举着国旗跑，背包没用上。不过，在比赛的末段，举旗的手有累到抽筋的感觉，只好左手换右手，右手换左手，就这样坚持到底了。
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+记者问：象您这样举着我们新中国联邦国旗比赛的选手，一定是很引人注目的吧？
+
+煤油灯：是的，我听到沿路的很多观众都注意到了，在纷纷议论：“这是什么旗？”， 在我附近的参赛选手都很好奇问我，“这是什么旗？代表什么？”我会简单地回答（因为在跑步中）：“这是新中国联邦的国旗，我们反对中国共产党。”
+
+记者问：作为第一个把我们新中国联邦国旗带进比赛中的运动员选手，文贵先生和长岛哥也发盖特表扬，有什么感觉？
+
+煤油灯：感觉很棒！用自己力所能及的方法去传播爆料革命，和扩大新中国联邦的影响，是每个战友都想做的。我很荣幸，能有这个机会在波士顿马拉松上，展示我们美丽的新中国联邦国旗。我们纽约香草山农场，在爆料革命中，敢为人先，做吃螃蟹的第一个勇士。
+
+记者问：煤油灯战友，您未来还有什么赛事安排吗？
+
+煤油灯：目前还没具体的安排，因为我的腿之前有点受伤，需要点复原时间。但可以肯定，如果未来参加这样的比赛，还会让我们的国旗飘过赛道。
+
+记者结语：来自纽约香草山的煤油灯战友，开启了带着国旗，代表着我们新中国联邦参加国际赛事的先河。煤油灯战友举着国旗，成功的跑完全程，不仅是我们纽约香草山农场的骄傲，也是我们新中国联邦人的骄傲。希望在不久的将来，我们美丽的新中国联邦国旗，能在世界各地的运动比赛中飘扬，让更多的人知道我们美丽的七芒星旗，了解我们追求民主自由的新中国联邦。
+
+**本文谨代表作者观点**
+
+![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
+
+**校对/发稿：童谣**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
