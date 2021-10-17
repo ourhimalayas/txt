@@ -2,20 +2,38 @@
 ---
 
 
-## 新冠口服药登场，伊维菌素“名不正言不顺”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1599259/)
+## 新中国联邦国旗飘扬在波士顿马拉松赛场上｜后续报道I
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1599307/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-302.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimages.theconversation.com%2Ffiles%2F421500%2Foriginal%2Ffile-20210916-17-bcsltk.jpg%3Fixlib%3Drb-1.1.0%26q%3D45%26auto%3Dformat%26w%3D1200%26h%3D900.0%26fit%3Dcrop&amp;imgrefurl=https%3A%2F%2Ftheconversation.com%2Fivermectin-whether-formulated-for-humans-or-horses-is-not-a-treatment-for-covid-19-167340&amp;tbnid=U6iM6rJYrU_BVM&amp;vet=12ahUKEwj03dnf_tDzAhVCAqYKHRdHBcsQMygDegUIARCGAQ..i&amp;docid=0hyAKJxReUm2LM&amp;w=1200&amp;h=900&amp;q=ivermectine&amp;ved=2ahUKEwj03dnf_tDzAhVCAqYKHRdHBcsQMygDegUIARCGAQ)
-美国制药巨头Merck公司11日向美国食品和药物管理局（FDA）申请了口服抗病毒药物”莫诺匹拉韦（molnupiravir）”的紧急使用许可。 预计不久将在日本申请药品批准，日本首相岸田文雄对该口服药寄予厚望。Merck公司已经与美国政府签订了供应协议，并正在与日本政府就供应问题进行谈判。
+作者：纽约香草山健身部 – Jack Li文阳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在10月11日举行的第125届波士顿马拉松比赛上，煤油灯，一位来自纽约香草山的新中国联邦战友，从霍普金顿到波士顿的26.2英里的赛道上，手持新中国联邦国旗跑完全程，向世界展示了新中国联邦这道亮丽的风景线。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-304.png)
+波士顿马拉松赛是全世界最古老的马拉松比赛，与[伦敦马拉松](https://zh.wikipedia.org/wiki/%E5%80%AB%E6%95%A6%E9%A6%AC%E6%8B%89%E6%9D%BE)、[柏林马拉松](https://zh.wikipedia.org/wiki/%E6%9F%8F%E6%9E%97%E9%A6%AC%E6%8B%89%E6%9D%BE)、[芝加哥马拉松](https://zh.wikipedia.org/wiki/%E8%8A%9D%E5%8A%A0%E5%93%A5%E9%A6%AC%E6%8B%89%E6%9D%BE)、[纽约马拉松](https://zh.wikipedia.org/wiki/%E7%B4%90%E7%B4%84%E9%A6%AC%E6%8B%89%E6%9D%BE)和[东京马拉松](https://zh.wikipedia.org/wiki/%E6%9D%B1%E4%BA%AC%E9%A6%AC%E6%8B%89%E6%9D%BE)合称为世界马拉松大满贯赛事。波士顿马拉松是单向赛道，经过7个热闹的小镇，沿途会有超过50万人围观，无论是在体育界，还是在社会上都有巨大的影响力。
 
-根据年内投入使用的方针，日本盐野义制药正在抓紧开发治疗药物。盐野义研制的抗病毒药物”S―217622″抑制了另一种酶”3CL蛋白酶”的作用，防止病毒繁殖，9月开始最后阶段的临床试验，争取今年供应，2022年3月份前至少准备100万人份的药物。此外，瑞士和美国多家公司都在积极研制对抗中共病毒药物，对药物型治疗药物的开发竞争正在进入高潮。
+煤油灯战友，是纽约香草山健身部的一位老大哥，在平常的交流中，只知道他是一位奔跑达人。就算是健身部的战友，也不知道这位亲切的老大哥原来还是一位能跨进波士顿马拉松赛的运动健将。同时他也是一位摄影师，他身背长短炮，活跃在农场游行示威和联盟庆典等活动上。他常常为了获得最好的摄影角度爬高伏低，在休息在吃饭时，他还在忙碌着，不放过任何一个动人的瞬间，他的专业精神常常得到战友们的赞许。
 
-在药物治疗中，有医生使用抗寄生虫药物伊维菌素，目前，该药尚未批准为中共病毒药物，有效性尚未得到证实，药品制造商“兴和”（名古屋市）正在对该药进行临床试验。
+长岛伟哥首先发盖特：太棒了，香草山的煤油灯战友，手举新中国联邦国旗跑完了波士顿马拉松全程。未来新中国联邦国旗会出现在越来越多的国际赛场上。
 
-信息来源：[コロナ飲み薬、年内にも登場　ウイルス増殖防ぐ　米メルクや塩野義が開発](https://news.yahoo.co.jp/articles/10503b7a478f3f619d0e948f40cebd8cbabc2a39)
+文贵先生随即也在盖特上说：新中国联邦的旗帜在我们帅气，健康的战友的手中，第一次在马拉松比赛中，走向了胜利。
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+这是首次有比赛选手高举新中国联邦的国旗参加比赛，这是纽约香草山农场的骄傲，也是新中国联邦走向国际体育赛场的开始。相信在不久的将来，必定会在越来越多的赛场上飘起新中国联邦的国旗。
+
+**本文谨代表作者观点**
+
+![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
+
+**校对/发稿：童谣**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

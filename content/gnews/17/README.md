@@ -2,25 +2,40 @@
 ---
 
 
-## 疫苗灾情｜英国 58 岁前世界冠军接种疫苗后截肢保命
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1599126/)
+## 新南威尔士州退出澳洲的中共病毒热点地区
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1599231/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 17/10/2021**
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/c861a980-98a9-11ea-b2ff-f3d662fd5c30.jpg)图片来源：s.yimg.com
+#### 编译：小红帽
 
-***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
+在新南威尔士州的中共病毒疫苗接种率达到80% 后，该州于今晚将取消其作为联邦中共病毒（COVID-19）热点地区的地位。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/33-2.jpg)
+自8月14日以来，该州一直是全国中共病毒热点地区。然而，澳大利亚政府首席医疗官保罗·凯利（Paul Kelly）教授证实，该州将从今天晚上11点59分起取消这一地位。
 
-【英国】前跆拳道世界冠军 Dave Mears 在接种完阿斯利康 COVID-19 疫苗后的 1 个月内失去了腿。今年 58 岁的 Dave 1984 年成为跆拳道世界冠军后，移居泰国开办跆拳道教学并获得专业摄影师的资格，2019 年因为疫情原因，他才返回家乡——英国斯坦福。
+根据管理中共病毒的国家计划，一旦在特定州或领地内达到80%的中共病毒疫苗完全接种率，该州或领地的联邦热点声明将自动结束。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/WCTLMWILOV6EJ2RHFJGR-535x720.jpeg)
+在该地区的状态降级两周后，其中共病毒热点地位而获得的支持将结束。
 
-他于 3 月 4 日接受第一针疫苗，立即出现了类似流感的症状以及持续发烧。1 个月后，Dave 因感染而入院，情况非常严重，当主诊医生看到 Dave 肿胀的腿时，十分震惊，当即移送至剑桥当地的一家医院，就在这个时候，恐怖的事情发生了，他的“腿炸开了”，到处都是血，别无选择之下，医生唯有将他左腿自膝盖以下部分截掉，以保全他的性命。
+昨天，新南威尔士州80%的16岁以上符合条件的人群接种了中共病毒疫苗。
 
-虽然，医务人员尚未给出 Dave 会严重感染的原因，不过 Dave 就认为这一切与疫苗脱不了关系。他说“我在接种疫苗后的当天晚上就病了，开始严重发烧，4日接种，10日住院，12日腿就炸开了，我认为两者有关，我失去了一条腿，我会积极复健，但我一定会讨回公道。”
+在澳大利亚全国范围内，有超过1740万人接种了至少一剂疫苗，这意味着84.6%的16岁以上人群正在全面接种疫苗。 澳大利亚现在有67.8%符合条件的人口完全接种了疫苗。
 
-来源｜[个案033](https://www.stamfordmercury.co.uk/news/man-lost-leg-weeks-after-covid-vaccination-9198171/)
+首都领地、杰维斯湾领地以及维多利亚州和塔斯马尼亚州的一些地方政府目前是联邦中共病毒的热点地区。
 
-* * *
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//
+**参考新闻：**
+
+1. [Coronavirus vaccine rollout Australia: State by state guide to Australia’s current vaccination rates, including when NSW will hit 80 percent and when will Victoria hit 70 per cent double doses | Explainer (9news.com.au)](https://www.9news.com.au/national/coronavirus-vaccine-rollout-australia-state-by-state-guide-covid19-vaccination-rates-single-dose-double-doses-explainer/abacde8f-d35e-45ee-83bc-069ede212ecf)
+2. [New South Wales to no longer be classified as a national COVID-19 hotspot (msn.com)](https://www.msn.com/en-au/news/australia/new-south-wales-to-no-longer-be-classified-as-a-national-covid-19-hotspot/ar-AAPCjHc?ocid=msedgntp)
+
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,47 +2,17 @@
 ---
 
 
-## SEC已经为GTV、SARACA、VOG相关退款创建公平基金并指定税务管理员
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599127/)
+## 秘翻在线：年轻儿子接种辉瑞疫苗出现多处血栓 母亲悲愤交加
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599235/)
 
-作者：葛朗台太太
+**翻译：Nstar**
 
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-17-155035-1.jpg)
+一位身在瑞典的母亲讲述儿子注射中共病毒疫苗后出现了严重副作用。这说明疫苗导致血栓是毫无疑问的。 她的儿子接受了辉瑞公司的两次注射，他的胳膊红肿得厉害，去了急诊室，在那里他受到怀疑和敌意的对待。工作人员荒唐地说，可能是因为运动过度，他的手臂肿了。然而，经过检查，他们很快就在他的手臂上发现了第一个血块…他们开始在他身体的各个部位发现血块。他们试图让他带着吗啡回家，并指示他自己注射血液稀释剂，但他的母亲要求他们让他过夜。她告诉护士长不要喋喋不休地谈论他们的规则和命令，而要发自内心地行动。所以医院让这个年轻人过夜，并做了更多的 X 光检查。他们发现了更多的血块。一个在他的脖子上，他们说必须手术切除，还有更多在他的肺部，使他面临心脏病发作的极端风险。他们让他躺在担架上一动不动——告诉他动起来很危险。
 
+这位年轻人的母亲说： “当他进来时，他们并不真的相信他，他病了。然后他们检查了他，医生来了，说他的手臂上有血块。他又坐在候诊室里。他从晚上9点一直坐到早上5点。然后他们更仔细地看了看他的手臂。他接受了 X 光检查。一位看着他手臂的医生说，他从来没有见过这么年轻的人有这么大的血块。医生说“绝对”和“毫无疑问”这是因为他接种了疫苗。然后他做了超声波检查。他们在他脖子上发现了另一个血块。当他们找到它时，他们告诉他他们必须通过手术将其移除。” 母亲接着说：“我实在太生气了。我非常非常非常生气。我的愤怒以悲伤的形式出现。我不害怕，但我觉得在过去的 24 小时内我承受了儿子的恐惧…”（泪水盈满眼眶，她不得不停下来。） “他一直躺在床上，担心自己可能会在一夜之间死去。正是因为这该死的疫苗。”目前男孩仍在住院。这位母亲说她是反对疫苗的，并恳求她年轻、健康、喜爱运动的儿子相信自己的身体——他不需要接种任何疫苗。但儿子受到朋友和同事的压力，他们说他欠别人“保护”他们，例如害怕生病的老人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+“他们怎么能出来告诉年轻、健康的人接种这些疫苗？”她问。 “之前我问过我儿子，‘你不怕生病吗？’他说，‘不，妈妈，我不怕。他们告诉我们放心这样做。 ” 这位母亲说： “我不会再保持沉默了…我要把它传播到每个地方。我气得浑身发抖。 ”
 
-
-
-在GTV投资人抗议证交会SEC进行了8天以后，SEC官方网站终于有了更新。10月14日，SEC官方网站发出公告：公平基金已经包含了答辩人支付的大约四亿五千四百万美金的款项，并且已存入美国财政部财政局的一个计息账户。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-31.jpg)
-委员会还发布了34-93313号命令，任命 Miller Kaplan Arase LLP 为公平基金的税务管理员。
-
-SEC尚未公布已经到账的款项和未到账款项分别来自哪些公司。SEC还公布了退款办公室的邮箱，如果投资人需要了解更多信息，可以通过邮件联系退款办公室。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.4-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture-7.jpg)
-参考链接：
-1. [SEC指定税务管理员文件](https://www.sec.gov/litigation/admin/2021/34-93313.pdf)
-2. [In the Matter of GTV Media Group, Inc., et al.
-Admin. Proc. File No. 3-20537](https://www.sec.gov/divisions/enforce/claims/gtv-media-group.htm)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：鬼五
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+**[信息来源](https://celiafarber.substack.com/p/swedish-mother-cries-telling-story)**

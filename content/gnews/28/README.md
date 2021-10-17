@@ -2,64 +2,46 @@
 ---
 
 
-## 完全接种国药新冠疫苗后，丈夫和儿子都死于COVID-19
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1598925/)
+## 美国内布拉斯加州总检查长批准伊维菌素和羟氯喹用于预防或治疗新冠
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599079/)
 
-【**简评：】***这是一个来自中美洲国家特立尼达和多巴哥的悲惨故事，故事主人公安卓莉是一位家庭主妇，丈夫和儿子在外工作，为了不让安卓莉感染，两位男士都完全接种了来自中共国国药集团的新冠疫苗。仅仅两个月后，全家人都患病了，两位男士检测为阳性，并在10天内相继死于COVID-19。我想，主人公安卓莉一定开始怀疑疫苗导致了其两位亲人的死亡，但是在媒体面前，她依然选择沉默，并表示不会阻止其他人继续打疫苗。媒体垄断，舆论压力，政府集权导致了人民不敢发声，如果这一切不能改变，类似的家庭惨剧还将持续上演。*
+作者：文真
 
-据《特立尼达和多巴哥卫报》记者：Jesse Ramdeo，2021年10月15日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-297.png)
-安卓莉看着一张她和丈夫迈克的照片，迈克和他们的儿子克林顿都接种了中共病毒COVID-19疫苗，但又都死于COVID-19。图片来源：NICOLE DRAYTON
 
-中共病毒大流行之后，在短短几天内，安卓莉（Angenine）便失去了丈夫和其长子。这对于一位妇女来说，的确是一场难以想象的悲剧。
 
-安卓莉说，更令人心碎的是，为了给她一个不感染疾病的机会，死去的两位男人都接种了疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-在位于塔纳普纳的家中，安卓莉在接受卫报媒体的采访时，安卓莉说，失去了丈夫无条件的爱，她将很难生活下去。
 
-“我的丈夫是世界上最好的丈夫，我这辈子找不到比他更好的丈夫了。”
 
-将近50年的婚姻中，丈夫迈克（Michael）一直坚守自己“保护妻子”的誓言。
+10月15日，美国内布拉斯加州总检查长彼得森，应该州卫生和人类服务部的要求，发表一份意见，指出“明确和令人信服的证据表明，医生在获得病人知情同意后，利用伊维菌素或羟氯喹治疗新冠，没有违反内布拉斯加州的统一证书法案”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-10.jpg)
+该意见引用多篇医学期刊文章、研究和案例研究，证实伊维菌素或羟氯喹对预防或治疗新冠的有效性。该意见允许本州医生合规使用伊维菌素和羟氯喹预防或治疗新冠，免受法律诉讼和纪律处分，以此挽救更多生命，和缓解紧张的医疗资源。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-80.jpg)
+该意见剖析了在《柳叶刀》发表的、谴责羟氯喹的一篇文章，这篇文章因统计数据缺陷被撤稿。在全球健康紧急情况下，该篇文章制造了巨大的欺诈和信息误导。同时，总检查长办公室议程质疑了默克公司因巨大经济利益，对伊维菌素的质疑存在利益冲突。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-4.jpg)
+参考链接：
+1. [Prescription of Ivermectin or Hydroxychloroquine as Off-Label Medicines for the Prevention or Treatment of Covid-19](https://ago.nebraska.gov/opinions/prescription-ivermectin-or-hydroxychloroquine-label-medicines-prevention-or-treatment-covid)
+2. [Nebraska AG Issues Opinion on Doctors Prescribing HCQ and Ivermectin for COVID Treatment Will Not Face Punishment](https://www.thegatewaypundit.com/2021/10/nebraska-ag-issues-opinion-doctors-prescribing-hcq-ivermectin-covid-treatment-will-not-face-punishment/)
 
-“他是一名业务员，他在外面工作，而我是家庭主妇，这就是为什么他说他接种疫苗是为了保护我，因为他在外面，他不想让我在家里发生任何事情，这就是他接种疫苗的原因。”
+（本文仅代表作者观点）
 
-早在6月，迈克和他的大儿子、47岁的克林顿（Clinton）就在同一天接种了第一剂国药疫苗。他们的疫苗接种卡显示，他们也接种了第二针，到7月，两人都已完全接种。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-299.png)
-克林顿，图片来源：NICOLE DRAYTON
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-据世界卫生组织称，疫苗可以阻止大多数人感染COVID-19，但不是所有人。
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
 
-即使一个人完全接种了疫苗，也需要等待几周，免疫力才逐渐增强，他们仍然有被感染的机会。
+**更多资讯，更多关注**
 
-父子俩以为接种疫苗就可以抵御病毒，然而，在不到一个月之前，整个家庭都感染了这种病毒。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-“大约在9月6日或7日，我们开始感到不舒服，我们所有人都在一起。然后我丈夫带我去看医生，我去看了大约一个星期的医生。我儿子说他去做了PCR检测，周日上午，也就是19日，他得到的结果是阳性。”
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-在他们确诊后的几天内，安卓莉的心脏就受到沉重打击。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-“20日早上大家起床时，我丈夫就瘫倒在地上。他死的时候，验尸官来了，说是心脏病发作。我丈夫也做了检查，在他们取走尸体后，同一天，护士打电话说他的结果也是阳性。”
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-然而，安卓莉的噩梦并没有结束。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-“到了周二，我儿子病了。他也有胸痛，所以我们叫了救护车，他们把他带到医院开始给他治疗，当天我去了库瓦医院。我在库瓦医院呆了10天，在我出来的前两天他死了。我简直不敢相信。”
 
-安卓莉说，丈夫和儿子相隔十天都失去了，这是不可思议的。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-298.png)
-安卓莉在接受GML采访时谈到了她的丈夫和儿子都死于Covid-19，她的家人正在她位于图纳普纳的家中安慰她。图片来源：NICOLE DRAYTON
 
-“他们两个是我家里的两个健康男人，两个正在工作的健康男人……家里只有这两个人在工作。”
-
-当她强忍住眼泪时，安卓莉说她现在只剩下对亲人的回忆了。“我想念他们，我想念他们的一切。我现在心痛的无法呼吸，他们都给这个家带来了如此多的欢乐和幸福。我的心真的很疼。”
-
-安卓莉说，尽管她很痛苦，但她永远不会阻止别人接种 COVID-19 疫苗。
-
-原文连接：[https://guardian.co.tt/news/fully-vaccinated-father-son-die-after-contracting-covid-6.2.1400249.9d4f69149f](https://guardian.co.tt/news/fully-vaccinated-father-son-die-after-contracting-covid-6.2.1400249.9d4f69149f)
-
-(本文评论仅代表个人观点）
-
-翻译/评论：洛杉矶盘古农场 – 钢蛋儿
-校对/编辑：洛杉矶盘古农场 – 明子
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

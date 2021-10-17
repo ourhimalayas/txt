@@ -2,46 +2,23 @@
 ---
 
 
-## 美国内布拉斯加州总检查长批准伊维菌素和羟氯喹用于预防或治疗新冠
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599079/)
+## 秘翻在线：拜登政府带来了经济“滞涨”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599150/)
 
-作者：文真
+#### 撰稿：彩虹       
 
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16344544621.png)图片来源：thedailyusnews
+10月16日，彼得·纳瓦罗（Peter Navarro）接受《新闻极限》（Newsmax）访谈，指如果只是通货膨胀影响美国，则是“可控的”，但是，在总统乔·拜登（Joe Biden）的领导下，反而出现了像上个世纪70年代冲击全国的“滞涨”问题。
 
+纳瓦罗认为，美联储主席杰罗姆·鲍威尔（Jerome Powell）正在“印钞”，“这正在推动达到我们所说的需求拉动型通货膨胀，而与此同时，我们面临（中共病毒）疫情，再加上拜登政府打击化石燃料，这给我们带来了所谓的推动型通货膨胀”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+在川普政府时期，纳瓦罗说：“我们那时就是拥有天然气优势的沙特。川普总统的伟大成就之一就是使美国处于战略主导地位。（那时）我们的能源部五十年来第一次有能力出口石油。但是现在呢？在拜登领导下，能源价格迅速上涨，随即推动了食品价格的上涨。”
 
+此外，纳瓦罗指出目前美国供应链出了大问题，“但我和川普总统在白宫时，我们要购买美国货，雇佣美国人，把制造业产品出口。”纳瓦罗警告，拜登政府的中共病毒疫苗强制接种正在导致劳动力急剧短缺，因为军人、卡车司机、飞行员等正在逃离工作。
 
+是否有一些补救措施？纳瓦罗认为其中之一就是国会立法者对更多的支出（法案）说不。同时，纳瓦罗抨击拜登政府某些工作人员的不敬业。他说：“我们正处于自20世纪70年代以来最严重的经济危机时期的疫情中，而我们却有一些（政府）人员坐在家中，拍摄家庭照片并在社交媒体脸书（Facebook）上（显摆）。这就是拜登政府，他们根本不知道如何处理任何形式的危机。”
 
-10月15日，美国内布拉斯加州总检查长彼得森，应该州卫生和人类服务部的要求，发表一份意见，指出“明确和令人信服的证据表明，医生在获得病人知情同意后，利用伊维菌素或羟氯喹治疗新冠，没有违反内布拉斯加州的统一证书法案”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-10.jpg)
-该意见引用多篇医学期刊文章、研究和案例研究，证实伊维菌素或羟氯喹对预防或治疗新冠的有效性。该意见允许本州医生合规使用伊维菌素和羟氯喹预防或治疗新冠，免受法律诉讼和纪律处分，以此挽救更多生命，和缓解紧张的医疗资源。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-80.jpg)
-该意见剖析了在《柳叶刀》发表的、谴责羟氯喹的一篇文章，这篇文章因统计数据缺陷被撤稿。在全球健康紧急情况下，该篇文章制造了巨大的欺诈和信息误导。同时，总检查长办公室议程质疑了默克公司因巨大经济利益，对伊维菌素的质疑存在利益冲突。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-4.jpg)
-参考链接：
-1. [Prescription of Ivermectin or Hydroxychloroquine as Off-Label Medicines for the Prevention or Treatment of Covid-19](https://ago.nebraska.gov/opinions/prescription-ivermectin-or-hydroxychloroquine-label-medicines-prevention-or-treatment-covid)
-2. [Nebraska AG Issues Opinion on Doctors Prescribing HCQ and Ivermectin for COVID Treatment Will Not Face Punishment](https://www.thegatewaypundit.com/2021/10/nebraska-ag-issues-opinion-doctors-prescribing-hcq-ivermectin-covid-treatment-will-not-face-punishment/)
+**新闻来源**
 
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：鬼五
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[**Peter Navarro to Newsmax: Biden Brings ’70s-Style ‘Stagflation’**](https://www.newsmax.com/newsmax-tv/peter-navarro-inflation-economy-stagflation/2021/10/16/id/1040789/)

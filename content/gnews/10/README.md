@@ -2,40 +2,27 @@
 ---
 
 
-## 新南威尔士州退出澳洲的中共病毒热点地区
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1599231/)
+## 秘翻在线：谁在危及和剥夺美国加密货币企业的行业领导地位？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599263/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/c861a980-98a9-11ea-b2ff-f3d662fd5c30.jpg)图片来源：s.yimg.com
-#### 编译：小红帽
+#### 撰稿：彩虹
 
-在新南威尔士州的中共病毒疫苗接种率达到80% 后，该州于今晚将取消其作为联邦中共病毒（COVID-19）热点地区的地位。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-2-3.png)图片来源：Himalaya.Exchange
+小乔治·尼瑟卡特(George Nethercutt Jr)是来自于华盛顿第五区的前共和党众议员，曾在众议院拨款委员会和众议院科学委员会的空间和航空小组委员会任职，10月16日，针对拜登政府面临的加密货币监管问题，他在《国会山报》发表了专栏文章。
 
-自8月14日以来，该州一直是全国中共病毒热点地区。然而，澳大利亚政府首席医疗官保罗·凯利（Paul Kelly）教授证实，该州将从今天晚上11点59分起取消这一地位。
+作者认为，由于最近国内外事态的发展，促使拜登政府采取拖延已久的步骤，开始解决围绕加密货币和区块链技术的许多监管问题。但是，作为互联网以来最有前途的经济创新之一，加密货币的市值目前已超过2万亿美元，而且人们越来越一致地认为该技术将继续存在。该行业需要的，也是让美国经济最受益的，是需要一个合作伙伴，帮助制定一个全面的监管框架，巩固美国在这一新兴领域的领导者地位。
 
-根据管理中共病毒的国家计划，一旦在特定州或领地内达到80%的中共病毒疫苗完全接种率，该州或领地的联邦热点声明将自动结束。
+但是，不幸的是，财政部已经决定放弃这样的合作，而走向另一个方向，他们正在与拜登任命的金融监管机构负责人一起，领导一项“闭门造车”工作，起草关于政府应如何打击数字资产的监管政策建议。
 
-在该地区的状态降级两周后，其中共病毒热点地位而获得的支持将结束。
+企业区块链领域领先的美国，初创企业多年来一直在努力与监管机构真诚合作，特别是证券交易委员会（SEC），制定规则，防范欺诈和犯罪活动，同时也允许合法公司将其创新和有益的产品推向市场。但是，这些初创企业没有被邀请参与透明的规则制定或公众参与以达到明确的目的，而是被起诉、传唤和恶意攻击。特别是连续两届政府领导下的美国证券交易委员会没有建设性操作，而是将执法监管作为其与加密货币公司对话的唯一可靠手段。可悲的是，拜登政府正在发出信号，它将加倍使用这种方法。
 
-昨天，新南威尔士州80%的16岁以上符合条件的人群接种了中共病毒疫苗。
+文章认为，如果联邦政府几年前就与美国的加密货币公司坐下来，通过一套明确的规则，打击欺诈行为，保护消费者，为极端的价格动荡设置规则，培育创新，那结果会如何呢？。我们在1997年为电子商务做了这样的工作，两党都做出了广泛的努力，拥抱美国的创造力而不是贬低它，得到的结果是一场由美国主导的全球经济革命。
 
-在澳大利亚全国范围内，有超过1740万人接种了至少一剂疫苗，这意味着84.6%的16岁以上人群正在全面接种疫苗。 澳大利亚现在有67.8%符合条件的人口完全接种了疫苗。
+作者呼吁，随着拜登政府在加密货币监管方面走向错误的方向，国会迫切需要介入。这不应该是一个党派问题，而更应该是关于美国创新未来的辩论。拜登政府的行为表明，它将维持危及我们国内加密货币行业现状的未来，因此立法部门必须坚持自己的立场，捍卫下一代美国消费者和企业的经济利益。
 
-首都领地、杰维斯湾领地以及维多利亚州和塔斯马尼亚州的一些地方政府目前是联邦中共病毒的热点地区。
+他建议，如果民主党领导层错误地采用拜登政府对创新者的强硬立场，那么共和党人应该在2022年的选举中以捍卫加密货币为目标进行竞选。必须尽快采取行动，否则，拜登政府拥有无限时间和资源的执法律师将使区块链企业公司无法在美国开展业务，并将剥夺我们国家在这一铁定发生的技术飞跃中的领导作用。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+**新闻来源**
 
-**参考新闻：**
-
-1. [Coronavirus vaccine rollout Australia: State by state guide to Australia’s current vaccination rates, including when NSW will hit 80 percent and when will Victoria hit 70 per cent double doses | Explainer (9news.com.au)](https://www.9news.com.au/national/coronavirus-vaccine-rollout-australia-state-by-state-guide-covid19-vaccination-rates-single-dose-double-doses-explainer/abacde8f-d35e-45ee-83bc-069ede212ecf)
-2. [New South Wales to no longer be classified as a national COVID-19 hotspot (msn.com)](https://www.msn.com/en-au/news/australia/new-south-wales-to-no-longer-be-classified-as-a-national-covid-19-hotspot/ar-AAPCjHc?ocid=msedgntp)
-
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Congress needs to step up on crypto, or Biden might crush it](https://thehill.com/opinion/finance/577055-congress-needs-to-step-up-on-crypto-or-biden-might-crush-it?rl=1)
