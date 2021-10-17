@@ -2,55 +2,39 @@
 ---
 
 
-## 美国总统拜登就人权问题发表演讲
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1600051/)
+## 中共病毒时代的大辞职逼雇主涨薪留住员工
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1600060/)
 
-作者：纽约香草山农场 – 四季
+编译：Lulumi
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-5-6.png)根据一位组织心理学家的说法，COVID-19大流行期间的封锁行动迎来了“大辞职”，美国银行预测多年的“劳动力的结构变化”即将到来。
 
+据《商业内幕》报道，显然，美国人喜欢不用去工作，资本主义以社会主义的方式来应对中共病毒大流行——政府掏腰包让美国人留在家里——这种政策让工人们迫使雇主不得不付出代价来改变他们（辞职）的想法。
 
+随着工人离职率创下新高，组织心理学家安东尼·克洛茨（Anthony Klotz）告诉《商业内幕》，他在中共病毒大流行的预测中把这种现象称为“大辞职”。
 
+此外，根据该报告，美国银行研究部经济学家米歇尔·迈耶（Michelle Meyer）和斯蒂芬·朱诺（Stephen Juneau）预测，到2023年，劳动力参与率将持平，低于前总统唐纳德·川普时期病毒大流行前的水平（63.3%）。
 
+由于拜登政府支持的每周300美元的失业奖金已在今年夏末到期，辞职已经成为一种流行。8月份有430万工人离开工作岗位，占劳动力的近3%。
 
-据白宫10月15日发布的[简报](https://www.whitehouse.gov/briefing-room/statements-releases/2021/10/15/remarks-by-president-biden-at-the-dedication-of-the-dodd-center-for-human-rights/)，星期五，美国总统拜登在多德人权中心（Dodd Center for Human Rights）落成典礼上发表了演讲。
+受影响最大的是酒店业，餐馆和酒店有89.2万工人离职，占该行业的6.8%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1232-1.jpg)*‎康涅狄格大学多德人权中心。(Peter Morenus/UConn Photo)*
+迈耶和朱诺说，高水平的工人离职将带来“劳动力的结构变化”。
 
-多德人权中心是以参议员克里斯-多德（Chris Dodd）和他的父亲，前参议员托马斯-多德（Thomas Dodd）的名字命名的。二战期间，托马斯-多德揭露纳粹政权犯下的堕落和反人类罪，并在纽伦堡审判（Nuremberg Trials）中起诉纳粹战犯，将那些试图否认其共犯和佯装无知的纳粹领导人绳之以法。
+不仅已“辞职者”在数据中体现出来，求职网站Joblist的调查也显示73%的工人正在考虑在未来辞职。
 
-拜登总统在讲演中痛陈德国[纳粹](https://www.aboluowang.com/tag/%E7%BA%B3%E7%B2%B9-1.html)对600万犹太人的大屠杀，新疆维吾尔族人遭受的压迫和强迫劳动，以及缅甸军政府对待罗兴亚人的行径，并重提纽伦堡对当今世界的警示。他指出，纽伦堡迫使我们仔细审视人类的邪恶和我们可能犯下的罪行，让我们看到大规模的暴行。反人类罪不是偶然发生的，它们是选择的结果——由人类个体和世界领导人做出的选择。
+不过，根据美国银行分析师的说法，在这种“劳动力的极端动荡 ”中也有一线希望，那就是 “工资的快速增长”。
 
-拜登总统强调纽伦堡提升了人类对法治的概念。它为未来的正义树立了一个标杆，提高了人权在国际事务中的重要性。他同时警告全世界：对“人权的侵犯”保持沉默，即如纽伦堡审判所说，“你的沉默就是同谋”。
+报告显示，工资同比增长了4.6%，其中休闲和酒店业工人的工资增长10.8%。
 
-拜登总统说，12月，他将代表美国主持一个民主国家的虚拟峰会，届时，世界各国领导人将聚集在一起，做出具体承诺，捍卫民主价值观，以回击不断推进的独裁主义。他强调，我们不能再回到一个强权即正义，强国虐待弱国或压迫个人权利而不受惩罚的世界。
+（文章仅代表作者观点，与GNEWS无关）
 
-他说，当我们今天环顾世界，我们看到人权和民主原则日益受到攻击。我们感到辜负了历史赋予我们所肩负的使命，我们要采取行动。
+**参考资料：**[newsmax][COVID-Era ‘Great Resignation’ Has Workers Forcing Employers to Pay Up](https://www.newsmax.com/newsfront/great-resignation-covid-19-wages-workers/2021/10/15/id/1040695/)
 
-在美国重返联合国人权理事会之际，拜登总统对人权问题发表的演讲向全世界对发出了明确的声音，即，将人权重新置于美国外交政策的中心，并重申美国在全球舞台上的道德领导地位。可以预见，美国作为自由世界的领袖将继续引领全球，捍卫自由和公正，警惕中共等邪恶势力，推动全球的人权事业。
+* * *
 
-（本文仅代表作者观点）
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
 
-**原文阅读：**
-
-[President Joe Biden to Visit UConn for Dedication of Dodd Center for Human Rights – UConn Today](https://today.uconn.edu/2021/10/president-joe-biden-to-visit-uconn-for-dedication-of-dodd-center-for-human-rights/?utm_source=uconn-today-plugin)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)

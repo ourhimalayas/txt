@@ -2,30 +2,37 @@
 ---
 
 
-## 疫苗造成了DELTA变种病毒
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1599940/)
+## 爱达荷州医生：中共病毒疫苗接种者癌症发病率增加了 20 倍
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1599947/)
 
-**简评：**
+**撰稿：日本东京方舟农场 北极**
 
-新冠疫苗只针对占病毒基因序列12%的刺突蛋白，病毒很容易“逃逸”，疫苗对Delta变种不起作用。事实上，因为对疫苗的使用造成了Delta变种。强制推广疫苗根本不起作用。
+据Lifesite news网站近期报道，爱达荷州病理学家瑞恩·科尔（Ryan Cole）博士于3月18日在“国会澄清”节目中报告，接种中共病毒疫苗导致免疫力下降，其他病毒和癌症发病率上升，尤其是女性子宫内膜癌发病率较往年增加了20倍。
 
-GTV视频链接：[Dr. Richard Urso是疫苗造成了Delta变异](https://gtv.org/video/id=6166e2a9d2e2b8174874b9f7)
+瑞恩·科尔（Ryan Cole）博士是全美认证的病理学专家，在爱达荷州拥有全州最大的独立医学检测实验室。
 
-**视频字幕：**
+科尔博士说：“自 1 月 1 日以来，在实验室中，我看到子宫内膜癌的发病率比往年增加了 20倍。”他补充说：“我不仅看到子宫内膜癌比例上升，而且年轻患者黑色素瘤发病率及恶性程度也增加，其他如疱疹病毒、传染性皮肤乳头状瘤病毒的发病率都增加了。”
 
-Dr. Richard Urso:（新冠病毒的）Delta变种是由于我们只针对病毒的一小部分–刺突蛋白而引起的变种。刺突蛋白只占病毒基因序列的12%，疫苗只针对这一部分。当疫苗只瞄准一小部分时，小小的变化就会使病毒逃脱，我们称之为“逃逸”。所以我们看到的就是，Delta这个变种逃过了疫苗的作用。其原因就是我们对疫苗的使用，疫苗造成了变种。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Cancer_concept-810x500-810x500-1.jpeg)图片来自于网络
 
-所以我认为明白Delta变种是哪里来的非常重要，因为我认为人们很迷惑，到底是哪里来的呢？Delta变种不是凭空而來的，是从对病毒的治疗而来的，这个治疗就是疫苗。
+科尔在当日的活动中解释了他的发现，他告诉爱达荷州，疫苗似乎正在引起严重的自身免疫问题，他将其描述为“翻版 HIV”反应。
 
-*字幕/听写：云岭* *| 翻译：Roberts* *| PR：Wade* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+科尔表示，在 HIV 患者中，CD4细胞（辅助性 T 细胞）受到抑制，导致免疫功能下降，并使患者容易患上各种疾病。
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+“与HIV的情况类似”，科尔描述道，“接种中共病毒疫苗后，我们看到的是CD8细胞（杀伤性T细胞）的减少。CD8 细胞有什么作用？它会对抗所有其他病毒和癌细胞。”
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+科尔解释说，完整的免疫系统功能需要两种类型的细胞，CD4 细胞和CD8 细胞。
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+> [Idaho doctor reports a ‘20 times increase’ of cancer in vaccinated patients](https://www.lifesitenews.com/news/idaho-doctor-reports-a-20-times-increase-of-cancer-in-vaccinated-patients/)
+
+
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*
