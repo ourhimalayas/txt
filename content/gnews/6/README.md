@@ -2,51 +2,34 @@
 ---
 
 
-## 波音工人在西雅图附近抗议美国疫苗授权
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1599481/)
+## 英国金融时报: 中共试射高超音速巡航导弹!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599546/)
 
-编译：Jenny Ball
+作者：Foxrina
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/anti-vax-protest-of-boeing-employees-700x420-1.jpg)2021 年 10 月 15 日，波音公司员工和其他人在华盛顿州埃弗雷特的波音工厂外抗议该公司的冠状病毒疾病疫苗规定，在雨中向过往车辆挥手致意。（林赛·沃森/路透社）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-华盛顿州埃弗里特——周五，大约 200 名波音公司员工和其他人挥舞着“强制不是同意”和“停止授权”等标语，抗议该飞机制造商对美国工人的 COVID-19 疫苗要求。
 
-波音公司周二表示，根据总统乔·拜登 (Joe Biden) 为联邦承包商发布的行政命令，它将要求美国员工在 12 月 8 日之前接种疫苗。
 
-“这是我的选择，这是我的身体，”一位航空电子工程师说，他的声音几乎被反拜登的口号和卡车鸣笛声淹没，在西雅图北部埃弗雷特波音工厂外，繁忙的街道上鸣笛表示支持。
+英国《金融时报》报道，中共在8 月份秘密发射了一枚具有核打击能力的高超音速巡航导弹，消息人士称，该高超音速滑翔飞行器由中共的长征火箭携带助推，通常中共的此类发射活动都会公开宣布，但 8 月的这一测试一直处于保密状态。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.17AM-PICTURES-123468.003.jpeg)
+虽然高超音速导弹与传统弹道导弹一样，可以搭载核武器攻击，但其飞行速度是音速的五倍甚至十倍以上，同时具备更加多变的轨道和机动性，使其难以被探测、追踪和防御，这是目前最为尖端和最具威慑力的武器。美国、俄罗斯、日本及中共都在研究高超音速技术，而中国在高超音速武器方面的进展“让美国情报部门感到意外”。
 
-“这是一种在伪紧急情况下给予的实验性药物，”他补充道。
+金融时报称，此次秘密试验是在美中紧张局势加剧以及北京在台湾附近加强军事活动之际进行的，台湾是一个与美国结盟的自治民主国家，而北京中共政权则认为台湾只是一个等待完成统一的省份，正是这种冲突造成了眼下的台海危机。目前五角大楼尚没有回应法新社对《金融时报》此篇报道发表评论的请求。
+(本文仅代表作者观点)
 
-另一名装配机械师说：“这是美国。我们不会因为一个人的要求而去做被告知的事。”
+参考链接：[China Tested New Space Capability With Hypersonic Missile: Report](https://www.ndtv.com/world-news/china-space-mission-china-space-china-tested-new-space-capability-with-hypersonic-missile-report-2578051)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/boeing-employees-protest-1200x879-1.jpg)2021 年 10 月 15 日，波音公司员工和其他人在华盛顿州埃弗雷特波音工厂外挥舞标志和美国国旗，以抗议该公司的冠状病毒病 (COVID-19) 疫苗规定。（Lindsey Wasson/路透社）
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-本周早些时候，波音公司表示，员工必须在 12 月 8 日前出示疫苗接种证明，或根据残疾或真诚持有宗教信仰获得批准的合理要求。
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
 
-“波音公司致力于为我们的员工维护一个安全的工作环境，”一位发言人说。“促进我们全球员工的健康和安全是我们价值观的基础，也是每天的核心优先事务。”
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-包括美国航空公司在内的美国主要航空公司都表示，他们也将在联邦承包商规定的最后期限前完成（疫苗接种），飞机零部件制造商“精神航空系统公司”（Spirit AeroSystems）也是如此。
-
-“既然他已经发布了行政命令，我们有责任遵守该命令，”首席执行官汤姆·詹蒂莱（Tom Gentile）在给员工的备忘录中写道，路透社周五看到了这一消息。
-
-精神航空系统正在召回前员工，因为如詹蒂莱所说的“我们行业在为历史上生产率增长最快的项目之一”做准备。
-
-波音公司表示，其授权并不立即适用于其在德克萨斯州的工厂，共和党州长格雷格·阿博特 (Greg Abbott) **周一在德克萨斯州发布了一项行政命令，禁止任何实体（包括私人雇主）使用**** COVID-19 ****疫苗**。
-
-**评论：**
-
-**文贵先生已经预言：中共必死在其一手释放的疫苗——这就是“以苗灭共”！人民已经看到了真相： **“这是一种在伪紧急情况下给予的实验性药物”；我们有宪法保护的权利和武器： **“这是我的身体，这是我的选择”；现在抗议的怒火已经点燃，有德州州长这样保护人民身体健康的行政命令，禁止任何实体（包括私人雇主）使用**** COVID-19 ****疫苗**；有波音公司员工和其他许多人的抗议！
-
-**行动起来才能保护我们的身体！尽早的行动起来就能让逼迫我们的邪恶势力早日灭共！**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**参考资料：**[theepochtimes][Boeing Workers Stage Protest Near Seattle Over US Vaccine Mandate](https://www.theepochtimes.com/boeing-workers-stage-protest-near-seattle-over-us-vaccine-mandate_4052370.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-10-17)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
