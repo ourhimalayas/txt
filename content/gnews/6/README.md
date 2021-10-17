@@ -2,40 +2,42 @@
 ---
 
 
-## 新南威尔士州退出澳洲的中共病毒热点地区
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1599231/)
+## 【樱花宅急便】质疑《长津湖》恐威胁世界，中国抖音影评人被封号
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1599247/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/c861a980-98a9-11ea-b2ff-f3d662fd5c30.jpg)图片来源：s.yimg.com
-#### 编译：小红帽
+作者：东京樱花团｜文小白
 
-在新南威尔士州的中共病毒疫苗接种率达到80% 后，该州于今晚将取消其作为联邦中共病毒（COVID-19）热点地区的地位。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/【樱花宅急便】质疑《长津湖》恐威胁世界.png)[图片来源](https://www.voachinese.com/a/douyin-account-gets-suspended-for-commenting-on-film-chosin-reservoir-battle-20211016/6273398.html)
 
-自8月14日以来，该州一直是全国中共病毒热点地区。然而，澳大利亚政府首席医疗官保罗·凯利（Paul Kelly）教授证实，该州将从今天晚上11点59分起取消这一地位。
+近日，有大陆抖音影评人因质疑“中国拍《长津湖》一类电影是在威胁世界”等言论，其账号遭到抖音平台封禁。相关的视频目前也无法点阅。
 
-根据管理中共病毒的国家计划，一旦在特定州或领地内达到80%的中共病毒疫苗完全接种率，该州或领地的联邦热点声明将自动结束。
+根据香港星岛日报报道，抖音匿称为“米路哲光影业”的用户在观看了电影《长津湖》之后，以“狂欢的背后，不可忽视的危机感”为题，发表了对《长津湖》的反思。
 
-在该地区的状态降级两周后，其中共病毒热点地位而获得的支持将结束。
-
-昨天，新南威尔士州80%的16岁以上符合条件的人群接种了中共病毒疫苗。
-
-在澳大利亚全国范围内，有超过1740万人接种了至少一剂疫苗，这意味着84.6%的16岁以上人群正在全面接种疫苗。 澳大利亚现在有67.8%符合条件的人口完全接种了疫苗。
-
-首都领地、杰维斯湾领地以及维多利亚州和塔斯马尼亚州的一些地方政府目前是联邦中共病毒的热点地区。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**
-
-1. [Coronavirus vaccine rollout Australia: State by state guide to Australia’s current vaccination rates, including when NSW will hit 80 percent and when will Victoria hit 70 per cent double doses | Explainer (9news.com.au)](https://www.9news.com.au/national/coronavirus-vaccine-rollout-australia-state-by-state-guide-covid19-vaccination-rates-single-dose-double-doses-explainer/abacde8f-d35e-45ee-83bc-069ede212ecf)
-2. [New South Wales to no longer be classified as a national COVID-19 hotspot (msn.com)](https://www.msn.com/en-au/news/australia/new-south-wales-to-no-longer-be-classified-as-a-national-covid-19-hotspot/ar-AAPCjHc?ocid=msedgntp)
+- ***延展阅读：***[***中国再掀爱国主义浪潮 爱国还是爱钱？***](https://www.voachinese.com/a/why-does-patriotic-business-have-a-market-in-China-20211016/6271919.html)
+- ***延展阅读：***[***专访林培瑞：中共赖以治国的“恐惧文化”***](https://www.voachinese.com/a/CCPs-culture-of-fear-20211011/6266436.html)
 
 
-***发布：小红帽***
+“米路哲光影业”在视频中说，“在这种情况下，我们的电影《长津湖》的出现，频繁的抗战影片的出现，是否是向世界传达着一种不够友好、不够维稳的这样的一种意识形态？它里面是不是包含有威胁的意味呢……”
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+上述言论经多个微博“大V”传播后，立即遭到大陆小粉红的围剿和举报。目前，“米路哲光影业”账号已因“不符合社区规范”被抖音平台封禁，相关视频无法查看。
+
+《长津湖》描述的是1950年11月，中国志愿军秘密入朝参与的首战，第9兵团约15万人，对战隶属联合国军的美军陆战第一师和步兵第7师约3万人，在冰天雪地的朝鲜东北部长津湖地区厮杀17天的历史。
+
+这场被称为朝鲜战争中“最悲惨可怕”的战役，让交战双方的伤亡程度都非常高。人数占绝对优势的志愿军由于武器装备落后，特别是由于匆忙入朝，很多人连棉衣都没有穿，因此在摄氏零下40度的严寒中，冻伤冻死的人数甚至超过战斗伤亡减员。《长津湖》中的一个场面，展现约有3个连队200名志愿军官兵为了守卫一个高地，在严寒中被活活冻死，人人都变成“冰雕”，因此被称为“冰雕连”。
+
+中国知名媒体人罗昌平，10月6日在新浪微博上发帖，质疑志愿军赴朝参战的“正义性”。罗昌平写道，“半个世纪之后，国人少有反思这场战争的正义性，就像当年的沙雕连不会怀疑上峰的‘英明决策’”。警方当天传唤罗昌平，并展开调查，最后以涉嫌“侵害英雄烈士名誉、荣誉罪”对罗刑事拘留，目前案件正在进一步办理中。
+
+- ***延展阅读：***[***被控网上妄议电影《长津湖》中的“冰雕连”，中国知名媒体人罗昌平遭刑拘***](https://www.voachinese.com/a/Chinese-journalist-taken-into-custody-over-social-media-post-20211008/6263237.html)
+
+
+与罗昌平相比，“米路哲光影业”的遭遇应该还不算悲惨，除了抖音账户被封号外，目前似乎没有警方介入。
+
+- ***参考连接：***[***因坦言《长津湖》恐威胁世界，中国抖音影评人被封号***](https://www.voachinese.com/a/douyin-account-gets-suspended-for-commenting-on-film-chosin-reservoir-battle-20211016/6273398.html)
+
+
+（本文只代表个人观点，与Gnews网站无关）
+
+*校对：东京樱花团 / 鸿雁
+发布：东京樱花团 / 老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)

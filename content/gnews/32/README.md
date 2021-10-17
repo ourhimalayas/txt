@@ -2,32 +2,23 @@
 ---
 
 
-## 德国拒绝未打疫苗的人购买基本必需品
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1598867/)
+## 苹果公司应中共要求下架古兰经应用程序“Quran Majeed”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1598895/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/german.jpg)图片来源：thelocal.de
-#### 编译：小红帽
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/121094297_gettyimages-992536972.jpg)[图片来源](https://www.bbc.com/zhongwen/simp/chinese-news-58937126)
+苹果公司在中共官员的要求下，在AppleStore（中国大陆）内移除了世界上最受欢迎的古兰经（又译可兰经）应用程序之一。
 
-德国黑森州已成为第一个允许企业拒绝未接种中共病毒（Covid-19）疫苗的人购买基本必需品的州，这开创了一个令人不安的先例，因为其邻国正处于与反对接种中共病毒疫苗的抗议斗争中。
+该应用程序“Quran Majeed”在全球App Store销售，有近15万条消费者评论。该程序被数以百万计的全球穆斯林使用。据悉，该应用被删除的原因是被中共官方认定为承载了“非法宗教文本”。
 
-黑森州议会周五向德国杂志《BILD》证实，黑森州的超市已获准拒绝让未接种中共病毒疫苗的人购买食品和其他必需品的权利。在新政策下，商店可以决定是否实施“2G规则”，即只接受接种中共病毒疫苗和从中共病毒中康复的人（德语为“geimpft”和“genesen”）或更宽松的“3G 规则”，包括那些中共病毒检测呈阴性的人（德语为“getestet”）。
+网站“苹果审查”（Apple Censorship）首先注意到了该应用程序被苹果删除。这个网站是对苹果应用商店的应用程序进行全球监测。该应用程序的制造商PDMS公司在一份声明中说:“根据苹果公司的说法，我们的应用程序Quran Majeed已经从中国大陆境内使用的苹果App Store中删除，因为现在该程序上架需要中共当局提供额外文件”。“我们正试图与中国网络安全和信息化委员会办公室和有关部门取得联系，以便解决这个问题”。该公司还表示，它在中共国拥有近一百万用户。
 
-除了新的“2G规则”外，仍未接种中共病毒疫苗的医院工作人员必须每周接受两次中共病毒检测，而学生仍需要在课堂上佩戴口罩。
+中共官方承认伊斯兰教为该国的合法宗教。然而，中共却一直被指控侵犯新疆众多穆斯林维吾尔族人权，甚至被指控对该种族进行种族灭绝。
 
-虽然德国至少有八个州已经让酒吧、餐馆、健身房、电影院和妓院等实施“2G规则”，但黑森州是第一个在杂货店和其他零售店实施该规则的州。
+[信息来源](https://www.bbc.com/zhongwen/simp/chinese-news-58937126)
 
-尽管意大利和法国等其他欧洲国家已经实施了严格的中共病毒疫苗要求，禁止未接种疫苗的人工作（意大利）或在咖啡馆吃饭（法国），但大多数领导人并没有直接强制要求其公民接种中共病毒疫苗。然而，对疫苗护照的担忧已使数十万人走上街头抗议，即使像美国这样的国家也开始重新开放旅行——当然，仅限于接种疫苗的人。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[German state allows ALL businesses to ban unvaxxed customers, even for groceries & other essentials — RT World News](https://www.rt.com/news/537644-hesse-bans-unvaxxed-supermarkets/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

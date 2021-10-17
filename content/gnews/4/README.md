@@ -2,22 +2,18 @@
 ---
 
 
-## 比特币挖矿份额：中国降为零，美国和哈萨克斯坦跃居前两位
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1599241/)
+## 新冠口服药登场，伊维菌素“名不正言不顺”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1599259/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-300.png)[图片来源](http://jxqklxh.com/Item/164)
-据日经中文网10月15日消息，近日，英国剑桥大学研究团队发布的8月推算数据显示，比特币的挖矿全球份额发生骤变，美国以35.4％排在首位，与3个月前的17.8％相比激增至约2倍。5月决定禁止挖矿的中国在7月以后减为零，与中国接壤的哈萨克斯坦跃居第二。
+撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-302.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimages.theconversation.com%2Ffiles%2F421500%2Foriginal%2Ffile-20210916-17-bcsltk.jpg%3Fixlib%3Drb-1.1.0%26q%3D45%26auto%3Dformat%26w%3D1200%26h%3D900.0%26fit%3Dcrop&amp;imgrefurl=https%3A%2F%2Ftheconversation.com%2Fivermectin-whether-formulated-for-humans-or-horses-is-not-a-treatment-for-covid-19-167340&amp;tbnid=U6iM6rJYrU_BVM&amp;vet=12ahUKEwj03dnf_tDzAhVCAqYKHRdHBcsQMygDegUIARCGAQ..i&amp;docid=0hyAKJxReUm2LM&amp;w=1200&amp;h=900&amp;q=ivermectine&amp;ved=2ahUKEwj03dnf_tDzAhVCAqYKHRdHBcsQMygDegUIARCGAQ)
+美国制药巨头Merck公司11日向美国食品和药物管理局（FDA）申请了口服抗病毒药物”莫诺匹拉韦（molnupiravir）”的紧急使用许可。 预计不久将在日本申请药品批准，日本首相岸田文雄对该口服药寄予厚望。Merck公司已经与美国政府签订了供应协议，并正在与日本政府就供应问题进行谈判。
 
-挖矿是基于计算机的计算，验证和批准比特币交易数据的作业。最快完成复杂计算的人能获得新比特币作为报酬。挖矿过程中会消耗大量电力。
+根据年内投入使用的方针，日本盐野义制药正在抓紧开发治疗药物。盐野义研制的抗病毒药物”S―217622″抑制了另一种酶”3CL蛋白酶”的作用，防止病毒繁殖，9月开始最后阶段的临床试验，争取今年供应，2022年3月份前至少准备100万人份的药物。此外，瑞士和美国多家公司都在积极研制对抗中共病毒药物，对药物型治疗药物的开发竞争正在进入高潮。
 
-长期以来，比特币的挖矿算力在全球排名第一，截至2020年秋季占全球约三分之二的份额。今年5月以来，中共开始禁止并全面整治和打击挖矿企业，随着其境内挖矿企业的撤离转移，其境内的算力不断下降，到今年5月降至44.0％，6月降至34.3％，到7月以后已减为零。
+在药物治疗中，有医生使用抗寄生虫药物伊维菌素，目前，该药尚未批准为中共病毒药物，有效性尚未得到证实，药品制造商“兴和”（名古屋市）正在对该药进行临床试验。
 
-美国成为了挖矿基地的转移目的地。截至5月美国的全球份额约为10％，到6月增至21.8％，7月增至35.1％，跃居首位。
-
-此外，将基地转移至电费低廉、与中国接壤的哈萨克斯坦的趋势也在扩大，截至6月仅为近1成的份额到8月增至18.1％，跃居第2位。
-
-信息来源：[https://cn.nikkei.com/politicsaeconomy/efinance/46349-2021-10-15-04-59-07.html](https://cn.nikkei.com/politicsaeconomy/efinance/46349-2021-10-15-04-59-07.html)
+信息来源：[コロナ飲み薬、年内にも登場　ウイルス増殖防ぐ　米メルクや塩野義が開発](https://news.yahoo.co.jp/articles/10503b7a478f3f619d0e948f40cebd8cbabc2a39)
 
 （文章仅代表作者本人观点，与GNEWS无关）
 *校对：东京樱花团/知了知了

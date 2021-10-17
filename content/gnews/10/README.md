@@ -2,23 +2,40 @@
 ---
 
 
-## 秘翻在线：拜登政府带来了经济“滞涨”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599150/)
+## 新南威尔士州退出澳洲的中共病毒热点地区
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1599231/)
 
-#### 撰稿：彩虹       
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/c861a980-98a9-11ea-b2ff-f3d662fd5c30.jpg)图片来源：s.yimg.com
+#### 编译：小红帽
 
-#### 责编：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16344544621.png)图片来源：thedailyusnews
-10月16日，彼得·纳瓦罗（Peter Navarro）接受《新闻极限》（Newsmax）访谈，指如果只是通货膨胀影响美国，则是“可控的”，但是，在总统乔·拜登（Joe Biden）的领导下，反而出现了像上个世纪70年代冲击全国的“滞涨”问题。
+在新南威尔士州的中共病毒疫苗接种率达到80% 后，该州于今晚将取消其作为联邦中共病毒（COVID-19）热点地区的地位。
 
-纳瓦罗认为，美联储主席杰罗姆·鲍威尔（Jerome Powell）正在“印钞”，“这正在推动达到我们所说的需求拉动型通货膨胀，而与此同时，我们面临（中共病毒）疫情，再加上拜登政府打击化石燃料，这给我们带来了所谓的推动型通货膨胀”。
+自8月14日以来，该州一直是全国中共病毒热点地区。然而，澳大利亚政府首席医疗官保罗·凯利（Paul Kelly）教授证实，该州将从今天晚上11点59分起取消这一地位。
 
-在川普政府时期，纳瓦罗说：“我们那时就是拥有天然气优势的沙特。川普总统的伟大成就之一就是使美国处于战略主导地位。（那时）我们的能源部五十年来第一次有能力出口石油。但是现在呢？在拜登领导下，能源价格迅速上涨，随即推动了食品价格的上涨。”
+根据管理中共病毒的国家计划，一旦在特定州或领地内达到80%的中共病毒疫苗完全接种率，该州或领地的联邦热点声明将自动结束。
 
-此外，纳瓦罗指出目前美国供应链出了大问题，“但我和川普总统在白宫时，我们要购买美国货，雇佣美国人，把制造业产品出口。”纳瓦罗警告，拜登政府的中共病毒疫苗强制接种正在导致劳动力急剧短缺，因为军人、卡车司机、飞行员等正在逃离工作。
+在该地区的状态降级两周后，其中共病毒热点地位而获得的支持将结束。
 
-是否有一些补救措施？纳瓦罗认为其中之一就是国会立法者对更多的支出（法案）说不。同时，纳瓦罗抨击拜登政府某些工作人员的不敬业。他说：“我们正处于自20世纪70年代以来最严重的经济危机时期的疫情中，而我们却有一些（政府）人员坐在家中，拍摄家庭照片并在社交媒体脸书（Facebook）上（显摆）。这就是拜登政府，他们根本不知道如何处理任何形式的危机。”
+昨天，新南威尔士州80%的16岁以上符合条件的人群接种了中共病毒疫苗。
 
-**新闻来源**
+在澳大利亚全国范围内，有超过1740万人接种了至少一剂疫苗，这意味着84.6%的16岁以上人群正在全面接种疫苗。 澳大利亚现在有67.8%符合条件的人口完全接种了疫苗。
 
-[**Peter Navarro to Newsmax: Biden Brings ’70s-Style ‘Stagflation’**](https://www.newsmax.com/newsmax-tv/peter-navarro-inflation-economy-stagflation/2021/10/16/id/1040789/)
+首都领地、杰维斯湾领地以及维多利亚州和塔斯马尼亚州的一些地方政府目前是联邦中共病毒的热点地区。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**
+
+1. [Coronavirus vaccine rollout Australia: State by state guide to Australia’s current vaccination rates, including when NSW will hit 80 percent and when will Victoria hit 70 per cent double doses | Explainer (9news.com.au)](https://www.9news.com.au/national/coronavirus-vaccine-rollout-australia-state-by-state-guide-covid19-vaccination-rates-single-dose-double-doses-explainer/abacde8f-d35e-45ee-83bc-069ede212ecf)
+2. [New South Wales to no longer be classified as a national COVID-19 hotspot (msn.com)](https://www.msn.com/en-au/news/australia/new-south-wales-to-no-longer-be-classified-as-a-national-covid-19-hotspot/ar-AAPCjHc?ocid=msedgntp)
+
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
