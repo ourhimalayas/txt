@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/17/2021 5:54 PM (UTC)`
+
+10/17/2021 Miles Guo: During the CCP virus epidemic in Wuhan, Xi didn’t go to Wuhan because he was told Sun Lijun, Wang Like, and others were going to assassinate him. So, Xi immediately sent people to investigate it, had Sun Lijun taken to Shuanggui, put Meng Jianzhu and Wang Qishan under house arrest. It turned out Alvin Jiang was found to be involved in it.<br/><br/>10/17/2021 文贵直播：2020年武汉疫情期间，习没去武汉是因其得知孙力军和王立科等人要杀他，于是习马上派人去查，双规了孙力军，软禁了孟建柱和王岐山，最后发现这跟江志成有关<br/>
+![img](https://media.gettr.com/group12/getter/2021/10/17/17/54/db815dbf-64d5-3e26-7721-d1a312660a65/out.jpg)
+
+---
+
 `@miles 10/17/2021 12:34 PM (UTC)`
 
 疫苗青蒿素轰动全球；金融大危机促生变革
@@ -293,13 +300,6 @@ Henry Reitzug博士：在注射带有被改造氨基酸的新冠mRNA疫苗进入
 
 10月12号：王岐山，和孟建柱．江志成……有关中国国有银行和金融机构的腐败……能查清楚1%，中国人的财政部，的国库，马上就会增加几倍以上净现金。不信咱们走着瞧……中南城的老杂毛……看文贵的视频后．现在冷静多了长大了。【美国《华尔街日报》引述知情人士称，中共总书记习近平向中纪委下指令，审查至少25家国有银行及其他金融机构，要求这些金融机构厘清与大型私营企业的关系。报道又指，金融业是国家副主席王岐山的势力范围，很多金融业高管都跟王岐山有密切关系；王岐山曾任行长的中国建设银行对海航的贷款，预计将成为新一轮审查的一部分。近几个月来，王岐山的政治影响力有所下降。他的一名长期助手在8月被指控受贿7100多万美元。据了解该计划的人士称，王岐山与一些现在面临审查的金融公司有联系。】
 ![img](https://media.gettr.com/group46/getter/2021/10/12/19/2a1658f7-8856-e964-68bb-f404728861ec/4b1c9c412cc8d590718f7ed7f5136caa.jpg)
-
----
-
-`@miles 10/12/2021 3:54 PM (UTC)`
-
-10月12号：在任何国家邪恶势力，面对大于他们力量的反抗的时候，他们一定会放弃，因为他们比谁都怕死，他们比谁都怕失败，这就是中国人民被共产党奴役了七十年根本的原因，因为中国人民从来不懂得反抗，当然永远不会被人们尊重，也不可能有自由和民主。【西南航空CEO说他从来不支持强制疫苗，是白等的行政令造成的。抗议是有效的👍】
-![img](https://media.gettr.com/group9/getter/2021/10/12/15/54/6b24f785-5f63-d2d5-ffe7-fa2d97d8639b/out.jpg)
 
 ---
 

@@ -2,40 +2,19 @@
 ---
 
 
-## 中共国试射新型超音速核导弹 美方震惊
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1599581/)
+## 秘翻在线：日本“匿名专家”开始打压伊维菌素的使用！
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599565/)
 
-编译**：Lulumi**
+撰稿：待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/画像1-13.png)（图片源自本文链接）
+日本产经新闻10月17日发文：【对个人进口伊维菌素的警告：”没有科学证据”】。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-307.png)
+文章称：从海外进口并使用在日本未获批准的抗寄生虫药物伊维菌素来预防或治疗中共病毒感染已很普遍。由于东京医师会请求政府允许使用伊维菌素，伊维菌素开始引起了人们的注意。但是，在日本和国外的临床试验中并没有显示出其有效性。专家警告：不要服用个人进口的伊维菌素。
 
-图片来源**：**thegatewaypundit.com
+文章还说：对中共病毒的惧怕，使得伊维菌素成了被热捧的安慰剂。于是，药品进口商以这为诱饵，在互联网上进行推销。伊维菌素在试管程度的研究中显示出了能够抑制中共病毒生长的结果，引起了人们的关注。评估其有效性和安全性的试验和研究正在日本和国外继续进行中，但还没有显示出明显的效果。
 
-据《金融时报》报道，中国在8月发射了一枚新的超高音速核动力导弹，在低轨道上环绕整个地球。
+[信息源](https://news.yahoo.co.jp/articles/32314040f7730b6d5daf0146c17a0dc73d90d4c5)
 
-美国情报部门和美国军方官员都被震惊了。
+在中共病毒蔓延的紧要关头，东京医师会请求政府允许使用伊维菌素！而这篇文章中的没有报上名字的“专家”则相反。而通常情况下，以专家名义发出的警告，应该会产生一定的影响。前后两者表明的，对伊维菌素截然不同的态度，各将为这场史无前例的疫情带来怎样的结果？历史一定会给出明确的答案！
 
-“我们不知道他们是如何做到这一点的，”一位消息人士告诉《金融时报》。
-
-根据该报告，这枚导弹与目标相差约24英里，让美国情报部门措手不及。
-
-今年早些时候，一张卫星图像显示中国扩大了其核导弹发射井。
-
-美国有线电视新闻网（CNN）在7月高超音速核能力导弹发射前不久报道：“美国科学家联合会（FAS）周一发布的报告说，通过卫星图像识别，中国新疆地区的新导弹基地最终可能包括110个发射井。这是研究人员本月发现的第二个明显的发射井，加
-
-上邻近的甘肃省似乎正在建设的120个发射井，正如詹姆斯·马丁不扩散研究中心所详述的那样。”
-
-与此同时，清醒的美国军方却忙于清理未接种疫苗的军人，并专注于“白人的愤怒”。
-
-*在*[这里](https://www.ft.com/content/ba0a3cde-719b-4040-93cb-a486e1f843fb)阅读完整的报告。
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**参考资料**[thegatewaypundit.com] [China Tests New Hypersonic Nuclear-Capable Missile That Circled Entire Globe at Low-Orbit – US Military Officials Stunned](https://www.thegatewaypundit.com/2021/10/china-tests-new-hypersonic-nuclear-capable-missile-circled-entire-globe-low-orbit-us-military-officials-stunned/)
-
-* * *
-
-*审核：文乐 
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
+（文章仅代表作者个人观点）

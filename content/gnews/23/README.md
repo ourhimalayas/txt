@@ -2,29 +2,26 @@
 ---
 
 
-## 加拿大冰球少年接种疫苗两周后死于心脏病
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599760/)
+## 黄明志再发新作, 小粉红&#8221;玻璃心&#8221;碎一地!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599801/)
 
-作者：雪梨
+作者：FoxRina
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-加拿大17岁少年肖恩·哈特曼，在接种新冠疫苗后，身体出现包括心肌炎在内的多种健康问题，两周后，死于心脏病。
+10月15日，大马歌手/鬼才艺人黄明志发布了与另一位女歌手陈芳语合唱的新歌《玻璃心》，不到24小时，其YouTube频道该曲目便有逾85万次观看量，截止记者发稿前，点击率已达250万，评论也有2万5千条之多!
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide15.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide17.jpeg)
 
-肖恩酷爱冰球运动，5岁即开始冰球生涯，并为TNT队效力3年，是一名坚实的后卫。据加拿大的相关政策，没有接种疫苗的球员不允许进入冰球馆参加比赛，肖恩因此被迫接种疫苗。
+此前大马歌手黄明志曾发布向香港经典摇滚乐团 Beyond致敬的单曲”我们的海阔天空”，并特别邀请中国歌手富九合唱。但其音乐MV中出现 身穿黑衣的示威者场面，疑似向去年香港「反送中」事件表明其立场，这首作品也因此在内地遭禁播。此次虽然黄明志将这首新作定义为“粉红色的浪漫情歌”，但其中歌词及MV画面多处暗讽“小粉红”，如”出征反击”,”爬墙壁”，”总觉得世界与你为敌，不知道到底辱了你哪里?”等，特别是”撒币”， “共同富裕”和”十里不换肩”，  更是直接影射中共党魁习近平，也就不出意外的引发轩然大波！
 
-据安大略省公共卫生局的一份报告显示，注射第二针疫苗后，18-24岁的男青年患心肌炎/心包炎的比率最高。此前北欧三国承认莫德纳疫苗与青少年心脏疾病相关性，瑞典和丹麦表示将暂停对30岁以下的年轻人接种莫德纳疫苗。加拿大医学教授Steven Pelech博士指出，对19岁以下的青少年来说，疫苗造成伤害约为病毒的4-5倍。
-
-越来越多的青少年，倒在新冠毒针之下，父母家长和正义人士在世界各地游行，抗议全球政府残忍的疫苗杀人计划，正如游行人群举起的标语所警示，”孩子们正死于新冠疫苗”。
+目前，黄明志和陈芳语的微博账号均已被禁。此事是否会演变成大陆和台湾之间的又一”公共事件”尚不得知。
 
 (本文仅代表作者观点)
 
-参考链接：[Teen dies of heart attack soon after getting COVID shot so he could play hockey: report](https://www.lifesitenews.com/news/17-year-old-boy-dies-of-heart-attack-after-taking-covid-jab-that-would-allow-him-to-play-hockey/?utm_source=top_news&amp;utm_campaign=usa)
-[In Loving Memory of Sean Hartman #6](https://beetonstingers.com/Articles/1790/In_Loving_Memory_of_Sean_Hartman_6_/)
+参考链接：[新歌《玻璃心》影响？　黄明志陈芳语微博被封](https://www.orientaldaily.com.my/news/entertainment/2021/10/16/444427)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-新闻访谈终审：暗黑
+新闻访谈终审：文龍
 编辑/校正/发稿：谐趣园
 
 **更多资讯，更多关注**

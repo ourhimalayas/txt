@@ -2,32 +2,21 @@
 ---
 
 
-## 黄明志再发新作, 小粉红&#8221;玻璃心&#8221;碎一地!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599801/)
+## 中共国2.6亿老年人，已提前进入老龄化社会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1599814/)
 
-作者：FoxRina
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月15日，大马歌手/鬼才艺人黄明志发布了与另一位女歌手陈芳语合唱的新歌《玻璃心》，不到24小时，其YouTube频道该曲目便有逾85万次观看量，截止记者发稿前，点击率已达250万，评论也有2万5千条之多!
+撰稿：东京樱花团/盐和光
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide17.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/11g.jpg)
 
-此前大马歌手黄明志曾发布向香港经典摇滚乐团 Beyond致敬的单曲”我们的海阔天空”，并特别邀请中国歌手富九合唱。但其音乐MV中出现 身穿黑衣的示威者场面，疑似向去年香港「反送中」事件表明其立场，这首作品也因此在内地遭禁播。此次虽然黄明志将这首新作定义为“粉红色的浪漫情歌”，但其中歌词及MV画面多处暗讽“小粉红”，如”出征反击”,”爬墙壁”，”总觉得世界与你为敌，不知道到底辱了你哪里?”等，特别是”撒币”， “共同富裕”和”十里不换肩”，  更是直接影射中共党魁习近平，也就不出意外的引发轩然大波！
+10月17日每日经济新闻快讯，从16日举行的第二届中国人口与发展论坛获悉，截至2020年，全国老年人口抚养比为19.7%，比2010年提高7.8个百分点。我国有12个省市区已经进入中度老龄化，有149个城市已经进入了中度老龄化。80岁及以上老年人口3580万人，占比为13.56%。乡村老龄化水平明显高于城镇，乡村60岁及以上老年人口占乡村总人口的比重为23.8%，比城镇60岁及以上老年人口占城镇总人口的比重高7.99%。
 
-目前，黄明志和陈芳语的微博账号均已被禁。此事是否会演变成大陆和台湾之间的又一”公共事件”尚不得知。
+全国老年人口抚养比为19.7%，即每100名劳动年龄人口要负担近20名老年人。60岁以上的老人有2.6亿，中共国已提前进入老龄化社会，以中共国目前养老、医疗、社会服务等方面的缺失，难以满足庞大老年人群特别是迅速增长的“空巢”、高龄和带病老年人的服务需求。
 
-(本文仅代表作者观点)
+[信息来源](https://mz.mbd.baidu.com/r/uSBfmeluEw?f=cp&amp;rs=1722739172&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=988d989272447c73)
 
-参考链接：[新歌《玻璃心》影响？　黄明志陈芳语微博被封](https://www.orientaldaily.com.my/news/entertainment/2021/10/16/444427)
+（免责声明：文章仅代表作者本人观点，与GNEWS无关）
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：文龍
-编辑/校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
