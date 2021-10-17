@@ -2,23 +2,34 @@
 ---
 
 
-## 有声|郭文贵先生宣布重大好消息
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1598390/)
+## 缅甸军事政变新进展
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1598524/)
 
-配音：香草山美食部 – 玫瑰园
+新闻来源：瑞士新苏黎世报网络版
 
-2021年10月15日，郭文贵先生在盖特视频中宣布了一个重大的好消息，那就是3月15日之后，新增的G系列投资者也将享有喜币配额。郭文贵先生从机构投资者中又争取了四千万个喜币，以满足新增投资者的喜币配额，比例为1比0.2。喜币将在本月上市，在上市前的最后几天里，还能为战友们争取到喜币配额的福利，也只有郭文贵先生能做到，只有新中国联邦能做到。新中国联邦不放弃任何一个战友，不让任何一个战友落下，要让每一个战友都抓住可能是人生中唯一的机会，这与中国共产党有着本质的不同。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-文字版原文：[郭文贵先生宣布重大好消息](https://gnews.org/zh-hans/1595609/)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/sergio-capuzzimati-ihry1T_uMpI-unsplash-scaled.jpg)
 
-音频处理：喜山必胜Maverick
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+资料来源：网络图片
+
+自缅甸今年2月发生军事政变数月后，缅甸的抗议活动仍在继续。前自由偶像昂山素季自2月1日以来一直被拘留。现在她正在接受审判。
+
+东南亚国家联盟（Asean）已将缅甸的军事领导人排除在10月底的首脑会议之外。新加坡外交部长维维安-巴拉克里什南（Vivian Balakrishnan）周六（10月16日）晚间在东南亚国家联盟外长紧急会议后在Facebook上宣布，”缅甸的一名非政治代表 “将被邀请参加这次和相关的会议。部长指出，4月24日雅加达峰会上达成的五点计划的 “进展非常有限 “是原因之一。这包括结束暴力和开始与这个东南亚国家的社会力量进行对话。”这是一个困难但必要的决定，以维护东南亚国家联盟的信誉，”部长写道。军政府首脑敏昂莱曾于4月出席过该峰会。
+
+缅甸军政府禁止被推翻的政府首脑昂山素季的律师发言。正如他周五（10月15日）在Facebook上宣布的那样，他被禁止与媒体、外交官、国际组织和外国政府沟通。该律师公布了当局为此发出的命令。
+
+缅甸军政府不会阻止东盟特使访问该国，但不允许对被推翻的政府首脑昂山素季进行接触。这是军方发言人Zaw Min Tun在星期三（10月14日）宣布的。 昂山素季被指控犯罪。因此，她不能接待访客。
+
+据她的律师说，缅甸对被推翻的政府首脑昂山素季的审判正在对这位76岁的老人的健康产生影响。钦貌佐告诉记者，这位诺贝尔和平奖得主在10月初要求法官让她每两周才出庭一次，而不是像以前那样每周都出庭。”她说她不得不把所有的工作日都花在法庭上，她的健康因此而受到影响，”律师这样描述。自2月初的军事政变以来，昂山素季一直处于软禁状态。9月中旬，她因病无法在首都出庭。目前还不知道她到底出了什么问题。
+
+自9月初以来，缅甸的货币已经贬值超过60%。这推动了食品和燃料价格的上涨。自8个月前的军事政变以来，该国的经济一直处于低迷状态。现在美元短缺的情况非常严重，一些货币兑换商已经关闭了他们的商店。”由于目前货币价格不稳定，所有外币兑换服务网点都暂时关闭。 有货币兑换商在Facebook上宣布。那些仍在运营的公司周二报出的汇率为每美元2700缅元，而9月1日是1695缅元和2月1日是1395缅元，当时军方推翻了由诺贝尔奖获得者昂山素季领导的民选政府。
+
+简评： 这条新闻意味着， 东南亚国家联盟国家不愿意承认政变的军方， 而愿意和非政府代表接触， 并为昂山素季被关押表示不满。 与此同时， 缅甸的经济也一直处于低迷状态， 缅甸货币贬值巨大。 缅甸人民才是这次政变的最大牺牲者。 普通百姓的生活困难程度也是可想而知。
+
+[https://www.nzz.ch/international/militaerputsch-in-myanmar-und-suu-kyi-antworten-und-entwicklungen-ld.1599361](https://www.nzz.ch/international/militaerputsch-in-myanmar-und-suu-kyi-antworten-und-entwicklungen-ld.1599361)
+
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+
+责任编辑/发布： Shuizhuyu
