@@ -2,23 +2,27 @@
 ---
 
 
-## 有声|郭文贵先生宣布重大好消息
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1598390/)
+## 辽宁首家纽交所上市企业诞生！成立不满2年的小微企业“民为先”什么情况？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1598554/)
 
-配音：香草山美食部 – 玫瑰园
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/43.png)
+据中国证券报10月16日消息，辽宁民为先物联科技发展有限公司（简称“民为先”）日前已完成纽交所注册，成为辽宁省首家在纽交所取得上市交易代码、正式核准通过的企业，其中，公司首选代码为“CMWX”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/454.png)
+据公开资料显示，“民为先”注册成立于2019年12月18日，注册资本为1000万元人民币，股东为2名自然人，注册地址为辽宁省盘锦市兴隆台区兴盛街道西水湾社区西水湾花园小区西水湾物业办公楼一楼102室。人员和参保规模不详。对外投资1家全资子公司为营口国申网络科技有限公司，据公开资料，该公司注册资本120万元人民币，人员规模小于50人，参保人数为4人。
 
-2021年10月15日，郭文贵先生在盖特视频中宣布了一个重大的好消息，那就是3月15日之后，新增的G系列投资者也将享有喜币配额。郭文贵先生从机构投资者中又争取了四千万个喜币，以满足新增投资者的喜币配额，比例为1比0.2。喜币将在本月上市，在上市前的最后几天里，还能为战友们争取到喜币配额的福利，也只有郭文贵先生能做到，只有新中国联邦能做到。新中国联邦不放弃任何一个战友，不让任何一个战友落下，要让每一个战友都抓住可能是人生中唯一的机会，这与中国共产党有着本质的不同。
+据公司网站，“民为先”是一家电商零售、线下配送和以物业费等本地生活服务为主的综合服务公司。公司开发的“民为先”APP线上服务平台主要面向普通大众客户，线上与淘宝、京东、拼多多等各大主流电商平台合作，线下以生鲜超市为主并提供免费配送服务，通过打通物业端实现由自然消费抵扣物业费的综合服务平台。民为先企业版是以服务政府、中小微企业为主的本地B2B企业采购平台，主要面向大宗采购，并提供商品运输服务、金融服务等多项专属增值服务。
 
-文字版原文：[郭文贵先生宣布重大好消息](https://gnews.org/zh-hans/1595609/)
+综上，可以得出一个基本结论：“民为先”是业务面向辽宁本地化，靠政商关系起家和发展的企业。从常理来讲，其规模、业绩和企业形象连中共国内上市要求都难以满足，更不用说纽交所了。这种连基本的企业包装都懒得做的操作，简单粗暴的让人难以置信！“民为先”到底什么情况呢，笔者一头雾水！
 
-音频处理：喜山必胜Maverick
+信息来源：
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[民为先完成纽交所注册 推动智慧城市建设和发展](http://www.cs.com.cn/ssgs/gsxw/202110/t20211016_6211043.html)
+
+[辽宁民为先物联科技发展有限公司官网](http://www.mwxwl.com/web/qualification.html)
+
+(文章仅代表作者本人观点，与GNEWS无关)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

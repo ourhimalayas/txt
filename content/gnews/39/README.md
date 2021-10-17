@@ -2,32 +2,51 @@
 ---
 
 
-## 美众议员提出反中国经济胁迫法案对抗中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597979/)
+## 佛州州长德桑蒂斯誓言与拜登疫苗强制令作斗争
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1598110/)
 
-作者：云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国众议院外委会亚太小组主席贝拉与共和党籍众议员华格纳等人，于15日提出反中国经济胁迫法案。民主党籍众议员卡斯楚、泰塔斯等也共同参与了此项提案。
+编译：Lulumi
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-3-6.png)佛罗里达州州长罗恩·德桑蒂斯(Ron DeSantis)发誓要与乔·拜登总统对雇主和工人的COVID-19疫苗强制令进行斗争。
 
-过去10年，中国对美国主要伙伴与盟国不断采取胁迫性经济措施，如2010年，日本与中国渔船在东海争议海域发生冲突时，中国停止向日本出口稀土；2016年，韩国同意美军在当地部署萨德导弹防御系统时，中国限制进口韩国娱乐与其他文化产品，禁止销售部分韩国家用产品并限制两地旅游；2020年，澳洲呼吁对冠状病毒起源进行独立调查后，中国对澳洲葡萄酒与大麦采取大幅提高关税以报复。
+据《政客》报道，这位共和党州长周四表示，佛罗里达州将在联邦法院和通过立法挑战拜登的强制令。
 
-贝拉及华格纳表示，中共以强制性的经济制裁行为来惩罚违背其利益的国家和企业，损害了美国及盟友的利益。 这项法案的目的，在于确保美国能以全面的方式，实施对中共经济霸凌的回应和反击。
+德桑蒂斯在迈尔斯堡的一个新闻发布会上说：“我们不要让拜登进来并威胁夺走那些在整个大流行病中一直努力工作的人的工作。我被冒犯了，一个警察有可能会失去他们的工作。”
 
-(本文仅代表作者观点)
+州长的评论是在德克萨斯州共和党人格雷格·艾伯特(Greg Abbott)发布行政命令，禁止任何实体，包括私人雇主在德州强制接种所有中共病毒COVID-19疫苗的三天后发表的。
 
-参考链接：[中國經濟脅迫日增 美議員推法案反擊](https://www.cna.com.tw/news/firstnews/202110160013.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+德桑蒂斯周四表示，基于佛州的针对联邦疫苗强制规定的诉讼将在美国第11巡回上诉法院提出。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+拜登上月初宣布，计划对雇员超过100人的企业和联邦工作人员发布疫苗强制令。
 
-新闻访谈终审：文龍
-编辑/校正/发稿：谐趣园
+包括德桑蒂斯在内的许多共和党人表示，接种疫苗应该是一种个人选择，对COVID-19有自然免疫力的人应该免于强制接种。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据《政客》报道，德桑蒂斯说：“我只是认为剥夺人们的工作从根本上是错误的，特别是考虑到我们看到自己面临的经济形势。”
+
+自中共病毒大流行开始以来，德桑蒂斯已经成为2024年共和党总统提名的潜在竞争者，因为他反对与中共病毒有关的限制，如疫苗护照、口罩强制令和封锁。
+
+许多佛州的学区和城市都顺从了州长的命令。盖恩斯维尔市在面临德桑蒂斯的威慑后，于上个月取消了其疫苗强制接种。
+
+《政客》说，200多名城市雇员在州巡回法院对盖恩斯维尔市提起了诉讼。德桑蒂斯说，该市的一些警察即将被解雇。
+
+德桑蒂斯说：“他们没有办法在家，他们没办法用Zoom来保护我们，他们不是那种在Zoom上保护公众的工作，你得在现场工作。他们一直都在那里。”
+
+州长一直在与藐视他的命令的州内学区作斗争，其中包括扣减那些在没有家长选择退出政策的情况下实施口罩要求的学校官员的工资。
+
+拜登政府已经向学校官员提供了超过50万美元的财政援助。
+
+佛罗里达州卫生部最近对莱昂县开出了357万美元的罚款，该县在要求数百名工人接种疫苗后解雇了14名员工。
+
+该县的一名律师说，它准备为这项任务辩护。
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**参考资料：**[newsmax][Florida Gov. DeSantis Vows to Fight Biden COVID Vaccine Mandate](https://www.newsmax.com/us/florida-desantis-biden-vaccine/2021/10/15/id/1040662/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)

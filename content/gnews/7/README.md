@@ -2,23 +2,32 @@
 ---
 
 
-## 入境美国双证明：疫苗接种和阴性检测
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1598569/)
+## 在线公益活动揭露中共国&#8221;996&#8243;过劳工作文化
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1598634/)
 
-#### 撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/234-1.jpg)[图片来源](https://www.nmql.com/flzs/xingzhengsusongfa/xingzhengxuke/6317.html)
-美国政府15日宣布，随着中共病毒感染扩大，对入境限制进行了修改。从11月8日起，所有乘飞机进入美国的外国人必须提供病毒阴性检测证明和疫苗接种证明，入境后无需隔离。
+作者：文真
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+一项名为“工人生命重要”的公益活动，在Github网站分享了一个在线电子表格，鼓励中国不同行业的员工，分享他们的每周工作时间表。截至上周二，该电子表格已经获得了超过一千万的浏览量。目前有超过六千个条目，其中包括腾讯、阿里巴巴和字节跳动等大型科技和金融公司。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-16.jpg)
+最新的运动呼应了科技员工，早先为抗议长时间工作而做出的努力。2019年，一群中国程序员在GitHub上，呼吁驱逐那些被指控虐待员工的初创公司，禁止使用他们的开源代码。
 
-迄今为止，来自日本的渡航者只需提供离境前三天内的阴性证明即可获准入境，但这次修改新增接种义务，条件变严苛。据美国国务院称，疫苗类型应符合美国食品和药物管理局（FDA）等机构批准的疫苗类型。
+“996”超长时间工作，导致的“过劳死”不断在社交媒体上曝光。中共制国下的各行业公司普遍存在的“996”工作制，是不合理的加班行为，公然违反人权。这种艰苦苛刻的超时工作文化，也是中国工人被“现代奴隶制”压榨的最佳例证。
 
-与此同时，中国、欧洲等国的入境禁令将于下月8日解除。去年，美国对中国的入境限制开始后，在逐步扩大。过去14天以内曾居住在欧洲大多数国家，或印度、巴西等国的外国人，目前原则上不允许入境美国。
+（本文仅代表作者观点）
 
-信息来源:
+参考链接：
+1. [在线公益活动揭露中共国”996″过劳工作文化](https://www.bloomberg.com/news/articles/2021-10-14/chinese-workers-reveal-hours-online-as-backlash-to-996-grows)
+2. [在线公益活动揭露中共国”996″过劳工作文化](https://www.newsmax.com/newsfront/china-workers-996-protest/2021/10/15/id/1040718/)
 
-[日本から米国への入国厳しく、陰性証明に加えワクチン接種義務化…隔離は不要に](https://www.yomiuri.co.jp/world/20211016-OYT1T50192/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
-(文章仅代表作者本人观点，与GNEWS无关)
+新闻访谈终审：暗黑
+编辑/校对/审核：Hetangyuese
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

@@ -2,31 +2,23 @@
 ---
 
 
-## 有声|军方大主教支持宗教人士豁免接种疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1598377/)
+## 兴业银行收紧个人外汇和贵金属交易业务
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1598550/)
 
-配音：香草山美食部 – 玫瑰园
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/12-9.png)[图片来源](https://www.sohu.com/a/490095972_115865)
+近日，兴业银行在官网发布公告，该行将于2021年10月23日起对账户贵金属、账户外汇业务无持仓客户进行集中解约。
 
-据布莱特巴特新闻网10月14日报道，美国军方天主教大主教蒂莫西-布罗格里奥本周表示，天主教军事人员可以以宗教理由拒绝接种强制的冠状病毒疫苗。
+2020年底以来，工商银行、邮储银行、平安银行、中国银行等20多家银行相继收紧包括贵金属与外汇业务在内的个人交易类业务，具体措施包括提高交易起点、提高保证金比例、上调风险等级、持仓限额、集中解约等。
 
-他在一份声明中说：如果接种COVID-19疫苗会违反他或她神圣的良知，那么任何人都不应该被迫接种，并引用圣保罗六世的话，“公民有权不受阻碍地按照自己的良心生活”。
+郭文贵先生多次爆料，兴业银行和上海银行是中共上海帮洗钱绝对的大平台！当前，无论是从中共外汇紧缺，还是从内斗着力的角度来看，兴业银行收紧个人外汇和贵金属交易业务都不令人意外。对于兴业银行的动态，值得我们持续关注。
 
-布罗格里奥大主教指出，美国最高法院已经裁定，宗教信仰不需要被他人接受、不需要符合逻辑、一致或者被他人理解，即可得到第一修正案的保护。
+信息来源：
 
-他补充说，拒绝提供宗教便利，或对那些提出真诚的、基于良心的反对意见的人采取惩罚性或不利的人事行动，将违反联邦法律，在道德上应受到谴责。
+[兴业银行发布账户贵金属、账户外汇业务调整公告\_风险](https://www.sohu.com/a/495226888_223785)
 
-近期披露的消息指证，疫苗是用来自堕胎的细胞系开发、测试和生产的，这些都涉及到了道德范畴。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-文字版原文：[军方大主教支持宗教人士豁免接种疫苗](https://gnews.org/zh-hans/1594370/)
-
-音频处理：喜山必胜Maverick
-
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

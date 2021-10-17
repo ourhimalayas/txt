@@ -2,29 +2,23 @@
 ---
 
 
-## 日本不满尚无资格的智利支持中共加入TPP
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1598330/)
+## 有声|郭文贵先生宣布重大好消息
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1598390/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+配音：香草山美食部 – 玫瑰园
 
-据法广中文网10月15日报道，日本外相茂木敏充在记者会上对智利支持中共国加入TPP表达不满。
+2021年10月15日，郭文贵先生在盖特视频中宣布了一个重大的好消息，那就是3月15日之后，新增的G系列投资者也将享有喜币配额。郭文贵先生从机构投资者中又争取了四千万个喜币，以满足新增投资者的喜币配额，比例为1比0.2。喜币将在本月上市，在上市前的最后几天里，还能为战友们争取到喜币配额的福利，也只有郭文贵先生能做到，只有新中国联邦能做到。新中国联邦不放弃任何一个战友，不让任何一个战友落下，要让每一个战友都抓住可能是人生中唯一的机会，这与中国共产党有着本质的不同。
 
-法广网引援日本共同社报道，智利据信表态支持中共国加入跨太平洋伙伴关系协议TPP，对此，日本外相茂木批评称：“本国虽已参加了签署仪式却尚未能加入。希望比起管他人之事，切实推进自身的手续。”
+文字版原文：[郭文贵先生宣布重大好消息](https://gnews.org/zh-hans/1595609/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211016212924.png)图片来自于网络
+音频处理：喜山必胜Maverick
 
-智利签署了TPP，但该国议会还没有批准签约，因此智利被认为并没有资格支持或反对他国加入事宜。
-
-此外，日本新首相岸田文雄4日在记者会上，当被问及如何对待中共国申请加入跨太平洋伙伴关系协议（TPP）时，明确表示中共难以满足CPTPP要求的自由贸易标准。
-
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[日本對尚沒有資格的智利說支持中國加入TPP不滿](https://www.rfi.fr/tw/%E4%B8%AD%E5%9C%8B/20211015-%E6%97%A5%E6%9C%AC%E5%B0%8D%E5%B0%9A%E6%B2%92%E6%9C%89%E8%B3%87%E6%A0%BC%E7%9A%84%E6%99%BA%E5%88%A9%E8%AA%AA%E6%94%AF%E6%8C%81%E4%B8%AD%E5%9C%8B%E5%8A%A0%E5%85%A5tpp%E4%B8%8D%E6%BB%BF)
-
-[日本新首相岸田：質疑中國能否滿足TPP標準](https://www.rfi.fr/cn/%E4%BA%9E%E6%B4%B2/20211005-%E6%97%A5%E6%9C%AC%E6%96%B0%E9%A6%96%E7%9B%B8%E5%B2%B8%E7%94%B0-%E8%B3%AA%E7%96%91%E4%B8%AD%E5%9C%8B%E8%83%BD%E5%90%A6%E6%BB%BF%E8%B6%B3tpp%E6%A8%99%E6%BA%96)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

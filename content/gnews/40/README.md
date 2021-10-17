@@ -2,32 +2,53 @@
 ---
 
 
-## 日铁起诉宝钢专利侵权，涉及碳化技术竞争
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1597953/)
+## 新西兰强制医生和教师接种新冠疫苗
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1598106/)
 
-作者：文小白
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-共同社15日消息，日本制铁公司14日就电动汽车发动机等使用的电磁钢板，起诉中国宝山钢铁公司侵害了其专利权，并索赔约200亿日元,约合人民币11亿元 。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/101610.jpg)照片上一名卫生工作者在新西兰奥克兰的一家流动诊所接种疫苗【Sylvie Whinray，新西兰先驱者报】
+**摘要翻译：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-15.jpeg)
+新西兰当局表示，它将很快要求其大部分医护人员和教师接种冠状病毒疫苗。周一宣布的新的疫苗强制令，强制医生、药剂师、社区护士和其他医疗保健工作者在12 月之前完全接种疫苗。
 
-日本制铁公司拥有“无方向性电磁钢板”及高性能产品相关专利, 当天日铁以该专利 遭中国宝钢侵权为由，向东京地方法院提起诉讼。日铁主张，宝山钢铁在日本销售侵犯了成分和板材厚度等制造技术相关专利的电磁钢板，而丰田汽车采购使用了该产品。
+教育部门的教师和其他工作人员必须在1月之前完全接种疫苗。新西兰教育部长克里斯·希普金斯 (Chris Hipkins)，兼任该国新冠疫情的应对工作，他说：“我们不能放任不管，所以这就是我们强制执行疫苗的原因。”
 
-出于对大气环境的保护,国际机构在二氧化碳排放量较多的钢铁生产行业, 确立了去碳化技术标准，各国以此展开激烈竞争。日铁发言人称 :“ 日本以技术立国,  凭借技术实力盈利并在世界投资, 而日铁的专利技术被中国窃取，我们无法保持沉默。”
+“这不是一个容易的决定，但我们需要给这些人员施行这一额外措施，因为他们工作时接触到那些尚未接种疫苗的高危人群”他补充说。
 
-(本文仅代表作者观点)
+新西兰已经要求许多在边境工作的人员接种疫苗。
 
-参考链接：[关注：日铁起诉专利侵权或意在去碳化技术竞争](https://china.kyodonews.net/news/2021/10/e6839bd48937.html)
+强制疫苗执行的同时，卫生当局也报告了35例新病例，所有病例均发生在新西兰最大的城市奥克兰。自8月中旬当局发现一例社区传播病例以来，该市一直执行严格的新冠限制措施。周一，奥克兰的限制措施又延长了一周。在当前的疫情中，共有1,622例病例。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+由具有高度传染性的Delta变种病毒所驱动的持续感染，迫使总理杰辛达·阿德恩 (Jacinda Ardern) 政府放弃其长期的“病毒清零”的战略。该国现在正在寻求通过更高的疫苗接种率应对病毒。
 
-新闻访谈终审：文龍
-编辑/校正/发稿：谐趣园
+阿德恩周一在惠灵顿告诉记者说，“目前是新西兰对抗新冠大流行最棘手和最具挑战性的时刻之一。”然而，她说，很明显，一旦该国达到更高的疫苗接种水平，在接下来的几个月里生活中的各种限制可以减少。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+到目前为止，大约有238万新西兰人已经完全接种了疫苗，约占符合条件人口的57%；官员们承诺一旦90%的符合条件的人口接种疫苗，就会结束封城。
+
+受影响的劳工团体的初步反应是支持强制疫苗措施。新西兰皇家全科医师学院院长，萨曼莎·默顿博士说：“考虑到德尔塔病毒在我们国家蔓延的速度，这是一个大胆但必要的提议。”
+
+为鼓励疫苗接种，政府计划在本周末举办一场，类似总统选举规模的，“超级星期六”疫苗接种活动。届时疫苗接种中心将全天开放至晚上。
+
+政府还于周一宣布了一项提前采购协议，采购由默克(Merck)公司生产的60,000个疗程的实验性新药。该协议正在等待新西兰监管机构的批准。如果获得包括美国食品和药物管理局在内的监管机构的批准，这种名为molnupiravir的药丸，将是第一个可以治疗新冠病毒的药物。
+
+**简评: **
+
+进入十月份以来，德尔塔变种病毒导致新西兰国内病毒感染率再次大幅攀升。十月份以前57%的疫苗接种率，并没有成功阻止新冠病毒传播。寄希望于将疫苗接种率提高到90%，就能够彻底解决病毒问题的想法是完全错误的。新西兰政府没有参考新加坡和以色列的前车之鉴。等待新西兰老老百姓的将是疫苗灾难。
+
+新闻链接：[New Zealand makes COVID vaccines mandatory for doctors, teachers](https://www.aljazeera.com/news/2021/10/11/new-zealand-makes-covid-vaccines-mandatory-for-doctors-teachers)
+
+***翻译：**Guan Yunchang*
+
+***校对：**clau*
+
+
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
