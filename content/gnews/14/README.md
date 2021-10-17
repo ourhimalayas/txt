@@ -2,35 +2,28 @@
 ---
 
 
-## 佛罗里达州将对拜登政府疫苗强制令发起诉讼
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1598635/)
+## 警惕散布疫苗接种人群仇视未接种人群的言论
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1598728/)
 
-作者：文一
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
-继 德克萨斯州 州长 艾伯特 发布行政命令，禁止任何实体强制接种任何中共病毒疫苗三天后，佛罗里达州州长罗恩-德桑蒂斯（Ron DeSantis）也宣称反抗拜登总统对雇主和雇员的疫苗强制政策。
+撰稿：喜国公民
+视频来自网络
+最近，位于澳大利亚阿德莱德的一名学生录下了他的法律课教师，试图说服他们接种疫苗，并告诉他们，下一个大流行会在那些对疫苗嗤之以鼻的人中间传开，尤其是成年人的风险最大。
 
-拜登上月初宣布，要求雇员超过100人的企业，和联邦工作人员强制接种疫苗。佛州州长将通过联邦法院和立法推翻这项政策，在美国第11巡回上诉法院提出诉讼。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-16.jpg)
-德桑蒂斯说：”我认为剥夺人们的工作从根本上是错误的，特别是考虑到我们现在面临的经济形势。”许多共和党人也表示，人们拥有自由选择权，政府的多项行为已经侵犯人权。
+这位教师极力向学生们推荐新冠疫苗。他说，“如果你们年满16岁或以上，就不需要通知父母，自己走去新冠疫苗诊所打疫苗”。
 
-据悉该州许多学区和城市都积极相应了州长的命令，取消强制接种。而面对政府限制规定，佛州港口会议则表示，工作人员已经就位，港口将会全部开放为货物交接做准备。盖恩斯维尔市的200多名警察和消防人员，在上个月对市政府提起诉讼，成功回击疫苗强制令，越来越多的城市也将为维护个人隐私权，平等保护和身体完整性等权力而行动起来。
+这位教师还抱怨说，当地的成年人拖了接种疫苗的后腿，使该州的疫苗接种率落后于其它州。
 
-（本文仅代表作者观点）
+他还恐吓学生们说，“你会接触到接种或没有接种疫苗的人，而你不知道哪些人已经接种了疫苗，因为每个人的头上都没有挂上已接种了疫苗的牌子”。
 
-参考链接：
-[佛罗里达州将对拜登政府疫苗强制令发起诉讼](https://www.newsmax.com/us/florida-desantis-biden-vaccine/2021/10/15/id/1040662/)
-[佛罗里达州将对拜登政府疫苗强制令发起诉讼](https://trendingpolitics.com/mainstream-media-silent-after-florida-reports-3rd-lowest-rate-of-covid-infection/?utm_source=JangoMail&amp;%3Butm_medium=spotim_recirculation&amp;utm_medium=Email&amp;utm_campaign=Good+News+Friday+-+Oct+15+%28344795572%29&amp;utm_content=)
-[佛罗里达州将对拜登政府疫苗强制令发起诉讼](https://justthenews.com/nation/states/florida-sue-feds-over-biden-employer-vaccine-mandate)
+这位教师还暗示，选择不接种疫苗的人群是不够聪明，尽管有学生指出，接种了新冠疫苗后，还是会被感染, 还是可能会死于新冠病毒。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+学生们在学校被灌输这种疫苗能够防止新冠感染的观点，会使学生产生对不打疫苗人群的歧视，认为是不打疫苗的人群在传播新冠病毒，使他们认为，不打疫苗的人群是“不安全因素”。
 
-新闻访谈终审：暗黑
-编辑/校对/审核：Hetangyuese
+这使人想起，1994年发生在非洲卢旺达的种族大屠杀之前的几个月，一家当地广播电台一直在鼓吹胡图族对图西族的仇恨，并告诉胡图族人要起来杀死图西族人。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+以史为鉴，人们不得不对当前这种仇视未接种人群的言论保持高度的警惕！
+
+(本文纯属个人观点，与Gnews无关)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

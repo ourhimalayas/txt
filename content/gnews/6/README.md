@@ -2,38 +2,51 @@
 ---
 
 
-## 菲律宾开始为12-17岁青少年接种中共病毒疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1598695/)
+## 龚道安下属唐丽娜是否是七哥刚刚提到的上海妓警考娜姐
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1598879/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/inoculating-children-i.jpg)图片来源：medicalxpress.com
-#### 编译：小红帽
+郭文贵先生在[https://gettr.com/post/pebnmn4403](https://gettr.com/post/pebnmn4403)的盖特中爆了好几个大料——
 
-菲律宾当局于周五在马尼拉大都会的八个试点地点，为1200万名15至17岁的青少年接种中共病毒（COVID-19）疫苗。
+昨天晚上凌晨3点多，三点多钟和江西的老表，老表全家刚刚跑出来，刚刚跑出来，这个人原来孟建柱的就是大秘之一叫陈臻，臻就臻字果那个臻，一个王字边一个那个什么秦的那个针，这个陈臻的哥们，陈臻帮过他，而且是很多很多年前帮过他，发了点财，发点财以后呢，这小子还挺不忘恩情的，完全听了陈臻的话，在海外，陈臻当年就说不要在国内混，出去吧。
 
-继许多国家之后，菲律宾也将其中共病毒疫苗接种活动扩大到未成年人。
+头一段走几年又挡不住诱惑，这货又跟孙力军搭钩上，搭钩上以后还认识了赵薇老公黄云龙，然后不知道咋倒腾的，帮他倒腾了几笔钱，头一段时间全家在国内都被抓——先把钱拿回来再说。
 
-菲律宾总医院、菲律宾儿童医疗中心、国家儿童医院、世界信仰（Fe Del Mundo）医疗中心、帕西格市儿童医院、菲律宾心脏中心、马卡蒂医疗中心和圣路加医疗中心-环球城为患有合并症的青少年开展了疫苗接种。
+后来跟我商量说我是救家人呢还是说我是配合到底呢，我给他出了一招，因为在这些人心目中七哥就是神，绝对是神，后来出一招管用了，全跑出来了，昨天跟我通话，讲述了孟建柱的一些故事、王岐山的故事、江志成的故事、马云的故事、黄云龙的故事，还有上海帮那几个什么娜姐——警察考娜姐，叫上海第一警，第一警叫妓警，就这个娜姐的事儿，哇噻，把我听的比听黄片还过瘾，真的是懂的人就知道七哥曾经说啥。
 
-这些青少年接种了辉瑞生物技术公司（Pfizer-BioNTech’s）的Comirnaty疫苗和莫德纳（Moderna）的Spikevax疫苗。据悉，这些疫苗已获得食品和药物管理局 (FDA) 的紧急使用批准，可用于12至17岁的青少年。
+现在女的出门带尿不湿，女的出来带着个卫生巾——小孩的尿不湿，七哥带这个（擦鼻涕的纸巾），（以下文字暂略）
 
-卫生部副部长玛丽亚·罗萨里奥·维吉尔 (Maria Rosario Vergeire) 在周五的新闻发布会上说，这些疫苗正在试点医院进行试用，以便向青少年及其父母保证，任何不良反应都会被立即处理。
+关于郭先生提到的这个上海第一警、上海妓警、警察考娜姐到底是谁呢？在网上并没有查到郭先生提到的考娜姐，考虑到郭先生曾经故意把“青蒿素”说成“青篙素”，所以这一次虽然没有查到准确的考娜姐，但是我们还是要说查到的上海女警花——唐丽娜，但愿本文不是张冠唐丽娜李戴考娜姐，据好看视频2021年10月16日发布的[女公安局长唐丽娜被逮捕，频繁出入私人会所，老上司也是“警虎”](https://haokan.baidu.com/v?pd=wisenatural&amp;vid=5385682758106792332)——
 
-从周六开始，菲律宾将进一步放宽对马尼拉地区的中共病毒限制。迄今为止，菲律宾已为其1.1亿人口中的近2400万人接种了中共病毒疫苗。
+视频概要：
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+10月15日据检察日报消息,干了近9年纪委书记的女公安局长唐丽娜，1962年出生的唐丽娜是名老公安，原任上海市奉贤区副区长，市公安局奉贤分局原党委书记、局长。在唐丽娜的双开通报中曾提到他频繁出入私人会所，甘于被围猎。利用职权为自己谋求特殊待遇，违规使用专职驾驶员、公车私用，长期大肆收受礼金等。
 
-**参考新闻：**
+一个值得关注的点是如果没有被查，唐丽娜近几年就会退休，提到唐丽娜，不得不想到她的老上司“警虎”龚道安，在任职期间，她目睹了龚道安的履新、落马、被捕，龚道安被查后，多次被公安系统通报要肃清其流毒，5月13日下午奉贤区召开了中央第六督导组督导奉贤区政法队伍教育整顿工作专题汇报会，而唐丽娜参加这次会议的两周后便落马。
 
-1. [Philippines starts COVID-19 vaccinations for 12-17 year olds | Reuters](https://www.reuters.com/world/asia-pacific/philippines-starts-covid-19-vaccinations-12-17-year-olds-2021-10-15/)
-2. [Philippines begins vaccinations for teens aged 15 – 17 (nst.com.my)](https://www.nst.com.my/world/region/2021/10/736990/philippines-begins-vaccinations-teens-aged-15-17)
+\*\*\*\*\*\*\*视频引用完毕\*\*\*\*\*\*\*
 
+龚道安是参与813未遂政变的重要参与人（参见[813政变重要人物龚道安两会前被移送检察机关意味着什么](https://gnews.org/zh-hans/944687/)），作为龚道安的下属，唐丽娜是否知情和参与813未遂政变，我们不得而知，但是从唐丽娜参加完2021年5月13日下午公安系统在奉贤区招开的教育整顿专题汇报会后两周便落马来看，5月13日的教育整顿专题会的针对意味非常明显，这次会议应该就是定点清除唐丽娜的吹风会。
 
-***发布：小红帽***
+关于视频中提到的唐丽娜“频繁出入私人会所，甘于被围猎。利用职权为自己谋求特殊待遇，违规使用专职驾驶员、公车私用，”来看，在她甘于被围猎的时候，在她违规使用专职驾驶员的时候，应该也会用到尿不湿。此唐丽娜到底是不是彼妓警考娜姐？或许在2021年10月17日的郭文贵先生大直播中，我们就能找到答案。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+撰稿：喜马拉雅的肉夹馍
+
+审核：喜马拉雅的馍夹肉
+
+校对：Maarago
+
+（文章内容仅代表作者个人观点）
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

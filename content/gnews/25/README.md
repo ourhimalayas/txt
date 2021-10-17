@@ -2,23 +2,32 @@
 ---
 
 
-## 兴业银行收紧个人外汇和贵金属交易业务
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1598550/)
+## 在线公益活动揭露中共国&#8221;996&#8243;过劳工作文化
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1598634/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/12-9.png)[图片来源](https://www.sohu.com/a/490095972_115865)
-近日，兴业银行在官网发布公告，该行将于2021年10月23日起对账户贵金属、账户外汇业务无持仓客户进行集中解约。
+作者：文真
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+一项名为“工人生命重要”的公益活动，在Github网站分享了一个在线电子表格，鼓励中国不同行业的员工，分享他们的每周工作时间表。截至上周二，该电子表格已经获得了超过一千万的浏览量。目前有超过六千个条目，其中包括腾讯、阿里巴巴和字节跳动等大型科技和金融公司。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-16.jpg)
+最新的运动呼应了科技员工，早先为抗议长时间工作而做出的努力。2019年，一群中国程序员在GitHub上，呼吁驱逐那些被指控虐待员工的初创公司，禁止使用他们的开源代码。
 
-2020年底以来，工商银行、邮储银行、平安银行、中国银行等20多家银行相继收紧包括贵金属与外汇业务在内的个人交易类业务，具体措施包括提高交易起点、提高保证金比例、上调风险等级、持仓限额、集中解约等。
+“996”超长时间工作，导致的“过劳死”不断在社交媒体上曝光。中共制国下的各行业公司普遍存在的“996”工作制，是不合理的加班行为，公然违反人权。这种艰苦苛刻的超时工作文化，也是中国工人被“现代奴隶制”压榨的最佳例证。
 
-郭文贵先生多次爆料，兴业银行和上海银行是中共上海帮洗钱绝对的大平台！当前，无论是从中共外汇紧缺，还是从内斗着力的角度来看，兴业银行收紧个人外汇和贵金属交易业务都不令人意外。对于兴业银行的动态，值得我们持续关注。
+（本文仅代表作者观点）
 
-信息来源：
+参考链接：
+1. [在线公益活动揭露中共国”996″过劳工作文化](https://www.bloomberg.com/news/articles/2021-10-14/chinese-workers-reveal-hours-online-as-backlash-to-996-grows)
+2. [在线公益活动揭露中共国”996″过劳工作文化](https://www.newsmax.com/newsfront/china-workers-996-protest/2021/10/15/id/1040718/)
 
-[兴业银行发布账户贵金属、账户外汇业务调整公告\_风险](https://www.sohu.com/a/495226888_223785)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
-(文章仅代表作者本人观点，与GNEWS无关)
+新闻访谈终审：暗黑
+编辑/校对/审核：Hetangyuese
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

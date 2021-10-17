@@ -2,31 +2,38 @@
 ---
 
 
-## 2021/10/16文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1598628/)
+## 菲律宾开始为12-17岁青少年接种中共病毒疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1598695/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/101616.png)[盖特链接](https://gettr.com/post/pebnmn4403)
-昨晚凌晨3点多，一位江西的朋友刚刚逃出来，是孟建柱重要部下陈瑧的哥们。当年陈臻就告诉他“不要在国内”，可前几年因为挡不住诱惑，又回国了，和孙立军勾兑上了，还认识了赵薇老公黄有龙，搞了几笔钱。前一阵全家在国内都被抓，被命令其把海外的钱财转回国内，在是否配合还是救家人的选择之中，七哥给他出了一招，管用了，让他和家人们成功地都跑了出来。随后他给我爆料了一些孟建柱、王岐山、江志成、马云、黄有龙的故事，还有一个关于上海第一女警察“娜姐”的故事，太黄了，比电影还精彩… 懂得人就会明白，以后到哪里都带着七哥牌鼻涕纸。
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/inoculating-children-i.jpg)图片来源：medicalxpress.com
+#### 编译：小红帽
 
-明天大直播，好好的跟大家聊聊这些，明天参加直播的嘉宾阵容强大，有我们的圣女，一位虔诚的宗教徒；吃了青蒿素皮肤越来越好的钊颖妹妹；中国第一猛男郝海东兄弟和咱们300年的飞飞。明天涉及到的话题会非常多，而且内容也非常的重要，关于国内的经济、地产、政治，也会详细谈谈昨晚逃出战友的爆料。现在的形势是，江，曾、孟、韩正，王岐山超过六成会大反击，因为他们已经无路可退了。
+菲律宾当局于周五在马尼拉大都会的八个试点地点，为1200万名15至17岁的青少年接种中共病毒（COVID-19）疫苗。
 
-我明天还将细讲一个在中纪委的兄弟，头两天在香港办案，现在跑到了日本。在世界上，能让这些从体制内能出来的，还有大钱的人安全的，只有两个地方：美国和日本。现在中纪委专案组办案的人员，表面上是在办案，实际上都在利用职务便利敛财抢夺钱财，最后都想办法逃走。
+继许多国家之后，菲律宾也将其中共病毒疫苗接种活动扩大到未成年人。
 
-明天的直播还讲军事方面的事情，等我们说完，一定让军队内部的军官们吓尿裤子。凡事过去污蔑郭文贵，说郭文贵是造谣骗子的，现在证明“谣言”都是真的。这是王沪宁、赵乐际和整个国家安全委员会确认的。啥是国安委，国家安全情报委员会，在俄罗斯叫“克格勃”。过去对孟建柱、王岐山、王立科、江志成等爆出的信息现在全都被证实了，曾家的料还不到时候爆。江家、朱家、曾家、王岐山家一定会反击的。
+菲律宾总医院、菲律宾儿童医疗中心、国家儿童医院、世界信仰（Fe Del Mundo）医疗中心、帕西格市儿童医院、菲律宾心脏中心、马卡蒂医疗中心和圣路加医疗中心-环球城为患有合并症的青少年开展了疫苗接种。
 
-还有疫苗的事情，跑出来的江西老板和纪委哥们都反馈说，我们爆料疫苗真相的直播在国内政界引起震撼。再看看各国的政策，走极端的是被人拿枪顶着威胁的，那是少数；大多数国家都必须放开，停止疫苗灾难。兄弟姐妹们，新中国联邦和G系列的力量是不是正在撬动整个地球呢？！明天大直播见！
+这些青少年接种了辉瑞生物技术公司（Pfizer-BioNTech’s）的Comirnaty疫苗和莫德纳（Moderna）的Spikevax疫苗。据悉，这些疫苗已获得食品和药物管理局 (FDA) 的紧急使用批准，可用于12至17岁的青少年。
 
-***听写：**阿甘*
+卫生部副部长玛丽亚·罗萨里奥·维吉尔 (Maria Rosario Vergeire) 在周五的新闻发布会上说，这些疫苗正在试点医院进行试用，以便向青少年及其父母保证，任何不良反应都会被立即处理。
 
-***校对: **小雨*
+从周六开始，菲律宾将进一步放宽对马尼拉地区的中共病毒限制。迄今为止，菲律宾已为其1.1亿人口中的近2400万人接种了中共病毒疫苗。
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+**参考新闻：**
+
+1. [Philippines starts COVID-19 vaccinations for 12-17 year olds | Reuters](https://www.reuters.com/world/asia-pacific/philippines-starts-covid-19-vaccinations-12-17-year-olds-2021-10-15/)
+2. [Philippines begins vaccinations for teens aged 15 – 17 (nst.com.my)](https://www.nst.com.my/world/region/2021/10/736990/philippines-begins-vaccinations-teens-aged-15-17)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+***发布：小红帽***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
