@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/17/2021 7:05 PM (UTC)`
+
+October 17, 2021, this is the material sent last year about Wang Qishan and Meng Jianzhu, UBS Bank, and the Swiss AMAC company robbed our Trust fund's aircraft, which Youtube deleted at that time! When we look back to this video today, it means so much. We'll present evidence that this aircraft renovation company's alleged terrorist money laundering links to various terrorist groups in Syria during our bathroom breaks and bring it to trial under international law【October 10, 2020, this is the chairman of AMAC aircraft renovation company from Lebanon, together with Meng Hongwei, UBS bank, and HNA; he planned this appalling scam and robbery! This is our 12 years' work to build this one of a kind aircraft, and I paid $110 million on this project…】
+![img](https://media.gettr.com/group13/getter/2021/10/17/19/05/a217148e-5b98-a3fa-dac8-0b58a77174e4/9fcd81d957ac5e60bd269f901d205b1d.jpg)
+
+---
+
 `@miles 10/17/2021 6:25 PM (UTC)`
 
 2021年10月17号，这是去年发出的有关被王岐山和孟建柱．UBS银行和瑞士的这家AMAC公司黑掉了我们基金的飞机的视频，当时被YOUTUBE 删掉了！今天我们再回看这个视频的时候意义重大。接下来我们会在上厕所的时间把这家飞机装修公司的涉嫌恐怖主义洗黑钱和叙利亚的各个恐怖组织联系的证据推出来，让他接受国际上法律的审判。【2020年10月10日：这个来自黎巴嫩的(马黑地)是AMAC飞机装修公司的主席！他与UBS银行孟宏伟．海航一起共同策划了这起骇人听闻的诈骗抢劫案！这是我们十二年的心血．对我付出了一亿一千万现金创造的世界上唯一常中式厨房！用碳纤维．莲花的图腾．爱马仕特制皮革．用中国五行风水概念世界级唯一以中国元素的现代空中艺术品！我会专门直播详细介绍盗国贼是如何操纵这一切的！】
@@ -293,13 +300,6 @@ Henry Reitzug博士：在注射带有被改造氨基酸的新冠mRNA疫苗进入
 
 10月12号：这个世界最终会被正义唤醒．并会共同的铲除邪恶！【Sir Christopher Chope MP： Covid-19 vaccines has done a lot more damage than any other vaccine program in history; There is causation between vaccinations and damage caused by the vaccine克里斯托弗·乔普爵士议员：新冠疫苗给人们带来的伤害远超历史上任何一种疫苗，接种疫苗和因疫苗造成的伤害之间存在因果关系】
 ![img](https://media.gettr.com/group7/getter/2021/10/12/22/43/a5bcb4fd-1f4d-4f81-655f-5998db91cc25/out.jpg)
-
----
-
-`@miles 10/12/2021 10:13 PM (UTC)`
-
-10/12/2021 Miles Guo’s GETTR: The CCP has been deceiving the whole world using the lures of a large potential market and huge investments; By controlling the American lawyers and law firms with threats and temptations, the CCP has infiltrated the judicial system, shaking the foundation of the US.<br/><br/>10/12/2021 文贵盖特：中共利用巨大的潜在市场和投资的诱惑在全球招摇撞骗；中共用威胁和利透拿下了美国的律师和律师事务所，从而渗透了司法系统并动摇了美国的根基<br/>
-![img](https://media.gettr.com/group31/getter/2021/10/12/22/13/0e3c10e0-7af3-51c5-14f3-041e9ef89494/out.jpg)
 
 ---
 

@@ -2,39 +2,24 @@
 ---
 
 
-## 中共病毒时代的大辞职逼雇主涨薪留住员工
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1600060/)
+## 北溪2号上胜利属于莫斯科
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1600130/)
 
-编译：Lulumi
+新闻来源：德国世界报网络版
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-5-6.png)根据一位组织心理学家的说法，COVID-19大流行期间的封锁行动迎来了“大辞职”，美国银行预测多年的“劳动力的结构变化”即将到来。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-据《商业内幕》报道，显然，美国人喜欢不用去工作，资本主义以社会主义的方式来应对中共病毒大流行——政府掏腰包让美国人留在家里——这种政策让工人们迫使雇主不得不付出代价来改变他们（辞职）的想法。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/DWO-WI-Teaser-Nord-Stream-2-mw-jpg.jpg)
 
-随着工人离职率创下新高，组织心理学家安东尼·克洛茨（Anthony Klotz）告诉《商业内幕》，他在中共病毒大流行的预测中把这种现象称为“大辞职”。
 
-此外，根据该报告，美国银行研究部经济学家米歇尔·迈耶（Michelle Meyer）和斯蒂芬·朱诺（Stephen Juneau）预测，到2023年，劳动力参与率将持平，低于前总统唐纳德·川普时期病毒大流行前的水平（63.3%）。
+资料来源：网络图片
 
-由于拜登政府支持的每周300美元的失业奖金已在今年夏末到期，辞职已经成为一种流行。8月份有430万工人离开工作岗位，占劳动力的近3%。
+北溪2号从来就不是一个欧洲项目，有可能阻碍能源转型，而且还可能堕落成一个投资废墟。德国已经为该管道付出了高昂的代价。未来的政府有三个选择–而且还可以回头。
 
-受影响最大的是酒店业，餐馆和酒店有89.2万工人离职，占该行业的6.8%。
+在俄罗斯吞并克里米亚后不久启动，从来都不是一个欧洲项目，而总是一个俄罗斯-德国项目。俄罗斯的地缘战略目标从一开始就是要在天然气出口方面能够绕过乌克兰，从而在乌克兰和欧盟之间打下一个楔子，随后将乌克兰置于更大的压力之下，并最终使其服从。对于德国的共谋，只能用法国政治家夏尔-莫里斯-德-塔列朗-佩里戈尔的话来评论：”这是犯罪， 是罪恶”。
 
-迈耶和朱诺说，高水平的工人离职将带来“劳动力的结构变化”。
+[https://www.welt.de/wirtschaft/plus234471416/Nord-Stream-2-Der-Triumph-gehoert-Moskau-Deutschland-zahlt-hohen-Preis.html](https://www.welt.de/wirtschaft/plus234471416/Nord-Stream-2-Der-Triumph-gehoert-Moskau-Deutschland-zahlt-hohen-Preis.html)
 
-不仅已“辞职者”在数据中体现出来，求职网站Joblist的调查也显示73%的工人正在考虑在未来辞职。
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 
-不过，根据美国银行分析师的说法，在这种“劳动力的极端动荡 ”中也有一线希望，那就是 “工资的快速增长”。
-
-报告显示，工资同比增长了4.6%，其中休闲和酒店业工人的工资增长10.8%。
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**参考资料：**[newsmax][COVID-Era ‘Great Resignation’ Has Workers Forcing Employers to Pay Up](https://www.newsmax.com/newsfront/great-resignation-covid-19-wages-workers/2021/10/15/id/1040695/)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)
+责任编辑/发布： Shuizhuyu
