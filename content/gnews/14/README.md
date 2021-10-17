@@ -2,96 +2,70 @@
 ---
 
 
-## 1.2. 疫苗 Vaccines
-` reneelee` [轉載自GNews](https://gnews.org/zh-hans/1600349/)
+## 中国恒大面临三期债券利息支付期限
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1600454/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/thumbWithTitle4-2.jpg)
-[https://gtv.org/video/id=616c6859d2e2b81748764364](https://gtv.org/video/id=616c6859d2e2b81748764364)
+【**评论】***恒大集团是中共利用公司和基金等名义变相掠夺资本财富的代表，是资本市场”庞氏骗局”术的典型。中共把吸取的天量中国人民血钱财富，转而包装成公司和基金，转而到西方资本市场上市，对西方国家资本进行一种变相的财富掠夺，使被层层剥削的各国人民成为邪恶集团的受害者。中共及其邪恶联盟在当前的债券违约风险中将导致金融海啸，加之中共生化武器–新冠疫苗大灾难的一同到来，必将引爆世界经济危机，世界经济大萧条很快到来。。*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/11111-1-e1634507363778.jpg)中国恒大面临的压力正在给现代置地和鑫源地产等规模较小的竞争对手带来压力。
+© 盖蒂图片社
+据《日经亚洲地区财经》2021 年 10 月 11 日报道：
 
-## 1.2. 疫苗 Vaccines
+随着正式违约的临近和债权人开始联手试图从陷入困境的房地产开发商那里收回资金，中国恒大集团周一面临更多的债券利息到期。
 
-疫苗接种，最早始于中共国。
+根据Refinitiv汇编的数据，恒大将需要在纽约时间午夜之前支付三张半年度离岸债券息票，总额为1.481亿美元。这家全球负债最多、负债超过3000亿美元的开发商在9月底错过了两次总额为1.29亿美元的离岸债券付款，在年底前还有 5.73 亿美元到期。
 
-Vaccination first began in Communist China.
+该公司仍没有向银行、供应商和小投资者付款，并被迫暂停其在中国 800 个开发项目中的大约一半的工作。它希望出售资产并吸引新投资者以应对流动性危机，中共的媒体报道称，该公司即将将其物业管理业务的多数股权出售给竞争对手合生发展控股。
 
-2020年2月，中共国陈薇将军，第一个接种疫苗。
+一家持有恒大债券的基金驻香港的投资组合经理表示：“与合生国际的交易确实让恒大在宽限期结束前支付了息票。然而，看看即将到期的债务，这笔钱的简直不值一提。”
 
-2020年3月和4月，中国的科学界、医疗界、护士，开始接种疫苗。
+根据恒大物业在香港的最后收盘价，母公司持有的恒大物业服务集团 61% 的股份价值 43 亿美元。
 
-2020年6月，中共的外交部，开始全部接种疫苗。
+恒大在最近的一份文件中表示，其明年到期的债务总额为人民币 2,400 亿元（合 372 亿美元），而截至 6 月 30 日的现金和银行存款为人民币 1,616 亿元。包括2022年的77亿美元的到期债券据。
 
-In February 2020, General Chen Wei of the Communist Party of China was the first to receive the vaccine.
+根据招股说明书，恒大有30天的宽限期来弥补其离岸债券错过的票息支付。它未能在 9 月 23 日支付第一笔息票，这意味着距离正式违约还有不到两周的时间。
 
-In March and April 2020, China’s scientific community, the medical community, and nurses began the vaccination.
+两名债券持有人表示，他们正在与顾问合作，向恒大及其法律代表提出索赔要求，以寻求付款。如果失败，他们计划成立一个债权人委员会来保护他们的利益并确保他们在清算程序中有发言权。惠誉评级估计，如果恒大破产，投资者可能收回不足10%的到期款项。
 
-随后，中东开始接种疫苗，特别是阿联酋、沙特等国。
+Kirkland & Ellis 律师事务所和投资银行 Moelis 代表持有 50 亿美元恒大债务的投资者联系了恒大开发商，以寻求有关该公司财务状况的信息，并保证在谈判收回债券时不会低价出售离岸债券。他们在周五与债券持有人的电话会议中表示，在第一次错过债券利息支付之前就与恒大进行了接触，但顾问们还没有“有意义的接触”。
 
-2021年1月，拜登进入白宫，辉瑞疫苗被认可，美国开始推进疫苗。
+“我们不希望出现所谓的离岸资产以某种方式货币化的情况，这些资产的价值被泄露给其他各方，无论是在岸还是其他地方，”重组合伙人尼尔-麦克唐纳在 Kirkland & Ellis 的电话中说。
 
-与此同时，西方各国也开始了全面推进疫苗的接种。
+恒大也背负着表外债务，例如出售给小投资者的债务和财富管理信托贷款。
 
-In June 2020, the Chinese Communist Party’s Foreign Ministry began all vaccinations.
+它还为附属公司发行的债券提供担保。其中一项债务是来自 Jumbo Fortune Enterprises 的 2.6 亿美元票据，这是一家涉及恒大主要国内运营部门的合资企业。据彭博社报道，该债券于 10 月 3 日到期，尚未支付。
 
-Then, the Middle East begins vaccination, especially in the UAE, Saudi Arabia, and other countries.
+彭博社称，债券持有人联合成立了债权人委员会，White & Case 律师事务所就 Jumbo Fortune 向几位投资者提供建议。
 
-In January 2021, Biden entered the White House, the Pfizer vaccine was recognized, and the United States began to promote vaccines.
+恒大的困境凸显了中国房地产行业的过度杠杆。大大小小的公司都在努力按时偿还债务。
 
-At the same time, Western countries also began a full vaccination push.
+花样年控股是一家规模较小的深圳开发商，本月未能赎回2.057亿美元的债券，该公司正争先恐后地筹集现金。10 月 5 日，标普全球评级下调了上海开发商新力控股的评级，该公司上个月股价暴跌，理由是“违约风险迫在眉睫”。Sinic 拥有 2.46 亿美元的离岸债券，将于 10 月 18 日到期。
 
-全球推进疫苗以来，西方国家，在推广之后，大约六十天内，病毒传染率极速下降，然后，突然间大幅度反弹，感染率和死亡率，同时大幅攀升。
+其他中国开发商正在寻求获得债券持有人许可的​​时间来偿还债务。
 
-2021年5、6月后，多种新型病毒，开始在全球大肆蔓延，疫苗接种开始了第二针和第三针。
+现代置地（中国）正在寻求将 10 月 25 日到期的 2.5 亿美元债券延期三个月，周一表示，其董事长和总裁将在此期间共同提供 1.24 亿美元贷款以提高流动性。
 
-Since the global advancement of the vaccine, Western countries, for about sixty days after the rollout, saw an extremely rapid decline in virus transmission rates, and then, suddenly, a significant rebound, with infection and death rates, simultaneously climbing dramatically.
+同样在周一，鑫源地产表示，预计90%的债券持有人将接受交换新两年期债券的要约，以取代本周五到期的2.29亿美元债券。它还将偿还本金的5%。不过，惠誉评级将鑫源评级从“CCC”下调至“C”，这是违约前的最后一个等级。它称该公司的举动是“陷入困境的交易”。
 
-After May and June 2021, a variety of new viruses began to spread globally, and vaccination began with the second and third doses.
+另一家开发商粤港大湾区控股公司正寻求用新的两年期票据替代将于12月到期的2.772 亿美元债券。
 
-2021年7、8月，于东京奥运会前后，日本疫苗普及率整体上升。死亡率，也紧随着直线上升。从冠状病毒肆虐至今，日本死亡率为最高。东京奥运会，成为了日本的灾难。日本每日死亡人数，约两千人左右。
+标普估计，受其评级的房地产开发商将在明年赎回 4800 亿元人民币的境内外债券，几乎相当于其自由现金储备的四分之一。
 
-2021年8月左右，以色列的大批民众开始接种第两针，甚至第三针，其死亡率和疫苗普及率，恰好相当，分别为百分之一百零七和百分之一百零八。
+该机构在上月底的报告中表示：“几个月来，中国一些实力较弱的房地产公司一直受到恒大形势的影响。随着一些更边缘开发商的债券价格下跌，他们无法获得离岸再融资。到期集中且流动性恶化的开发商面临债务违约风险。”
 
-In July and August 2021, around the time of the Tokyo Olympics, the overall vaccine prevalence rate in Japan increased. The mortality rate, too, rose steeply. The death rate in Japan was the highest since the coronavirus attack. The Tokyo Olympics became a disaster for Japan. Japan’s daily death toll was about two thousand people.
+原文链接：[https://asia.nikkei.com/Business/Markets/China-debt-crunch/China-Evergrande-faces-triple-deadline-for-bond-interest-payments](https://asia.nikkei.com/Business/Markets/China-debt-crunch/China-Evergrande-faces-triple-deadline-for-bond-interest-payments)
 
-Around August 2021, a large number of people in Israel began to receive their second and even third doses, and their mortality rates and vaccine prevalence rates were the same, at 107% and 108%, respectively.
+（本文评论仅代表个人观点）
 
-值得注意的是，这段时间，无论是美国、英国、还是以色列，人们都处于隔离状态。人们的生存空间和活动空间，分别减少了百分之五十和百分之七十。然而，与此同时，病毒的感染率和死亡率，居然高于去年。
+翻译：洛杉矶盘古农场 – 蓝精灵
 
-It is noteworthy that during this time, people were in isolation, whether in the United States, the United Kingdom, or Israel. People’s living space and activity space have been reduced by 50% and 70% respectively. Yet, at the same time, the infection and death rates of the virus are higher than last year.
+校对：洛杉矶盘古农场 – Mike Li
 
-美国的死亡率和疫苗普及率，呈等幅上升。感染人数，每天二十多万到三十多万，回到了2020年的最高峰，感染率居高不下。死亡率，连翻二倍到三倍，甚至更多。过去感染十万人，可能死亡一两千人，而现在的死亡人数，多达五六千人。
+评论：洛杉矶盘古农场 – 滴水穿石
 
-Mortality rates and vaccine prevalence in the United States, are increasing at equal rates. The number of infections, more than 200,000 to 300,000 per day, is back to its peak in 2020, with infection rates remaining high. The death rate even doubled to tripled, or more. Whereas in the past 100,000 people were infected, one or two thousand might die, the number of deaths now, as many as five or six thousand.
+编辑：洛杉矶盘古农场 – 滴水穿石
 
-再看印度。在印度，羟氯喹、锌和伊维菌素，是被广泛使用的。病毒传播初期，印度的感染率和死亡率，保持很低。
 
-然而，在什么时间点、又是怎样的情况下，印度的感染率和死亡率，急剧上升、出现大量死亡？这和疫苗有没有关系？有怎样的关系？
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-In India, hydroxychloroquine, zinc, and ivermectin are widely used. In the early stages of virus transmission, the infection and mortality rates in India remained very low.
-
-However, at what point in time, and under what circumstances, did the infection and mortality rates in India, increase dramatically and a large number of deaths occurred? Does this have anything to do with the vaccine? How is it related?
-
-印度开始大量死亡的时间点，恰恰是全国开始疫苗接种之时。其时间上，早于以色列。
-
-印度最早购买的疫苗，来自俄罗斯，然后是从英国和中国进口疫苗，最后进口了美国疫苗。印度富人，则大多选择辉瑞疫苗。
-
-而印度死亡人中，年轻人占很大比例。为什么要让年轻人接种疫苗？为什么印度这么多年轻人死亡？
-
-The point at which India began to die in large numbers precisely with the start of vaccination across the country. Its timing was earlier than in Israel. The first vaccines purchased in India came from Russia, then were imported from the UK and China, and finally, the US vaccines were imported. The rich Indians, in turn, mostly chose Pfizer vaccines.
-
-And a large percentage of the dead in India are young people. Why should young people be vaccinated? Why are so many young people dying from vaccination in India?
-
-在台湾，人们习惯食用很多瓦萨比和芥末，加上当地的气候，其病毒控制，卓有成效。即使被多次暗中放毒，皆未造成蔓延。
-
-但是，台湾政府，后来居然引进大陆疫苗，全民推进。这将给台湾人民带来不堪设想的后果。
-
-In Taiwan, people are used to eating a lot of Wasabi and mustard, and with the local climate, the virus has been controlled with great success. Even though the coronavirus has been secretly released in Taiwan many times, it did not cause the spread.
-
-However, the Taiwan government, later on, actually introduced the mainland vaccine and promoted it for all people. This will bring unimaginable consequences to the people of Taiwan.
-
-中共国的感染人数和死亡人数皆低。是它治疗得法、还是谎报数字？
-
-我们再问一句：仅仅是这么简单吗？
-
-The number of infections and deaths in Communist China are both low. Did it treat them well, or did it lie about the numbers?
-
-Again, we ask: Is it that simple?
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,29 +2,29 @@
 ---
 
 
-## 有声|“只有新中国联邦能给中国人民带来希望”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1600393/)
+## 樱花灭共段子之谢谢你砖家
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1600481/)
 
-配音：香草山美食部 – 玫瑰园
+#### 作者：灭共段子组战友
+![](https://assets.gnews.org/wp-content/uploads/2021/10/43.jpg)插图：选自联盟
+【谢谢你砖家】
 
-10月15日，郭文贵先生在盖特视频中讲到，中共不允许中国人民购买虚拟币，但中共自己的家族成员却不受法规监管和约束。只有消灭中共，才能诞生相对客观、公平的制度，中国人民才会有希望。
+看着眼前的视频，某砖家正卖力的说着：
 
-为了阻止喜币上市，中共制定各项政策，联合并操控全世界的金融机构，禁止中国人民购买虚拟币。但对于中共高层及其家人，中国的法律体系只是为其服务而已。他们在海外金融机构的掩护下，肆意窃取中国老百姓的血汗，藏匿万亿财富。而国内数亿人口仍处于贫困线以下，杨改兰事件层出不穷。所谓的“中国梦”，是中共一手编造的骗局，是不可能实现的幻想，而对于底层老百姓，则是历经70余年的噩梦统治。
+“他都在努力，你有什么理由不努力**🤬**，还躺平，真是没有前途的一代……
 
-爆料革命不落下任何一位战友，确保每一位，为灭共事业付出的战友，得到应有的尊重和回报。文贵先生为3月中旬后新增投资的战友，和法治基金捐款者，争取到了额外的喜币福利。新中国联邦和爆料革命不忘记任何一位战友。
+国家就是因为你们不努力让你们拖累所以还没有成为世界强国……”
 
-文贵先生再次用实际行动证明，新中国联邦能给中国人民可兑现的希望，而不是中共不切实际的许诺。
+意识到现在还不能歇着，得努力工作，**☹️**伴随着“相思好比小蚂蚁”，输入“认领任务077”，心里的负罪感瞬时没了。
 
-文字版原文：[“只有新中国联邦能给中国人民带来希望”](https://gnews.org/zh-hans/1597705/)
+好多战友都在努力，着实不该看那些流水媒体，想着时常念叨的TAKE DOWN CCP重任，瞬间元气满满，谢谢你专家！
 
-音频处理：喜山必胜Maverick
+灭共，没你不行**!**
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[盖特链接](https://www.gettr.com/post/pe0jke2402)
+
+(文章仅代表作者本人观点，与GNEWS无关)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

@@ -2,32 +2,31 @@
 ---
 
 
-## Brnovich:要求司法部调查脸书推动美墨边界危机
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1600292/)
+## 美国律所中止代表港大移除六四纪念雕像
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1600421/)
 
-**编译：wenwu**
+**撰稿：日本东京方舟农场 海星**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-313.png)
+10月15日，美国国际律师事务所Mayer Brown发表声明，表示将不再代表香港大学要求支联会从港大校园中移除六四纪念雕像“国殇之柱”。
 
-亚利桑那州总检察长马克·布尔诺维奇 (Mark Brnovich) 表示，司法部必须调查脸书（Facebook）在美国边境鼓励违法的行为。
+据《德国之声》报导，美国律师事务所Mayer Brown代表香港大学要求移除六四纪念雕像的行为，违背了其在西方的声明，二十多个非营利团体敦促Mayer Brown停止在该事件中代表港大。于是，该公司于10月15日在一份声明中表示，今后将不会在这件事上代表香港大学。
 
-Brnovich  于周四（15日）[致信](https://www.scribd.com/document/532520112/10-14-Brnovich-Letter-to-Garland#download&amp;from_embed)司法部长梅里克·加兰（Merrick Garland），解释了 Facebook 是如何允许宣传非法进入美国的帖子；此外，Brnovich 还表示，Facebook 甚至还提供有关如何成功非法越境的指导说明。
+美国参议员格雷厄姆（Lindsey Graham）指出：“美国律师事务所正在听从共产党的命令，抹去对在天安门广场为自由献身的年轻勇敢的中国学生的记忆。”参议员克鲁兹（Ted Cruz）也谴责了Mayer Brown公司，他说：“美国公司应该为成为拆除雕塑的同谋而感到羞耻。”
 
-Brnovich  说，社交媒体推动这种行动无疑破坏了法治和边境安全。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/59488847_303.jpg)图片来自于网络
 
-“Facebook 允许宣传人口贩卖和非法进入美国的帖子可以经常接触该平台的数十亿用户，说明该公司的经营政策严重破坏了法治，”Brnovich  在给加兰的信中说（如下图[推特所示](https://twitter.com/GeneralBrnovich/status/1448773704075280388?s=20)）。“Facebook 公司是直接的法治破坏推动者，因此加剧了发生在亚利桑那州南部边境的灾难。”
+10月8日，Mayer Brown代表香港大学向已被迫解散的支联会发出律师函，要求其在10月13日下午5点之前移除六四纪念雕像“国殇之柱”，否则校方将会视为遗弃物品处置。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-315.png)
+六四纪念雕像“国殇之柱”是由丹麦艺术家高志活（Jens Galschiøt）创作，自1997年以来一直矗立在港大校园内展示。雕塑由50具表情痛苦的示威者尸体堆叠在一起，以纪念1989年在北京天安门广场被中共军队镇压的示威者。
 
-在此之前，这家科技巨头声称可以向移民提供信息，可以减少他们被人口贩卖者和贩毒集团利用。Facebook 表示，该公司政策的制定“是为了确保我们禁止与人口贩卖业务有关的内容，但不干涉人们行使寻求庇护的权利，这是国际法所承认的”（脸书或成为了犯罪分子不可或缺的一环、或直接参与了犯罪行为）。
+*注：本文仅代表作者观点，与 Gnews无关*
 
-Brnovich 说， Facebook 是乔·拜登边境危机的直接推动者和促成者。他已经要求进行联邦调查。
+*参考链接：*
 
-（文章仅代表作者观点与GNEWS无关）
+[美国律所中止代表香港大学移除“国殇之柱”](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD%E5%BE%8B%E6%89%80%E4%B8%AD%E6%AD%A2%E4%BB%A3%E8%A1%A8%E9%A6%99%E6%B8%AF%E5%A4%A7%E5%AD%A6%E7%A7%BB%E9%99%A4%E5%9B%BD%E6%AE%87%E4%B9%8B%E6%9F%B1/a-59525622)
 
-新闻来源：[ajuede.com](https://www.ajuede.com/2021/10/ariz-attorney-general-brnovich-doj-must.html) |发布时间：2021年10月15日
+[港大要求支联会移除六四“国殇之柱”](https://www.dw.com/zh/%E6%B8%AF%E5%A4%A7%E8%A6%81%E6%B1%82%E6%94%AF%E8%81%94%E4%BC%9A%E7%A7%BB%E9%99%A4%E5%85%AD%E5%9B%9B%E5%9B%BD%E6%AE%87%E4%B9%8B%E6%9F%B1/a-59457581)
 
 * * *
 
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
+*编辑：文顺 校对：Ranting 发布：Ranting*

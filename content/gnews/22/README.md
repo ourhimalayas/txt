@@ -2,25 +2,31 @@
 ---
 
 
-## 随着严格的“绿色通行证”规则生效，意大利多地举行抗议
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1600256/)
+## 有声|完全疫苗接种加州大学生因病毒并发症去世
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1600378/)
 
-撰稿：西枫westca
+配音：香草山美食部 – 玫瑰园
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unnamed-9.jpg)图片来源：保罗·乔瓦尼尼/环保局
-据多家外媒报道，意大利政府执意决定任何在公共部门或私营企业工作人员都必须持有带有二维码的“绿色通行证”才能进入工作场所的政策在10月15日实行。未能出示证明者面临被宣布无薪缺勤。由此引发了意大利全国的抗议活动，要求当局放弃进入室内公共场所的“绿色通行证”要求。
+21岁的美国加州佐治亚大学的肖恩·库恩（Shawn Kuhn），在完全接种新冠疫苗后，死于近期突然感染的新冠病毒，他在去世之前与病魔战斗了大约6个星期。
 
-10月15日抗议首先在意大利的港口城市的里雅斯特（Trieste）开始，约6000人以上的港口工人聚集在港口。其港口工人中，只有40%接种了疫苗。的里雅斯特港口为意大利北部、德国、奥地利和中欧提供服务。抗议中，可以看到写着“公民不是傀儡”， “没有绿色通行证，没有歧视”等横幅。59岁的里雅斯特港口工人法比奥·博辛告诉路透社，‘绿通行证是件坏事，是法律规定的歧视。这不是卫生条例，而只是制造人与人之间的分裂的政治举动。”其他港口热那亚（Genoa）、安科纳（Ancona）的人们也中断工作参加了抗议，他们在港口静坐，阻止交通进入港口。 据估计，约有300万意大利工人仍未接种疫苗。新规定下的一个大问题是如何解决大量外国卡车司机为港口提供服务并跨越边境运输货物。因为外籍劳工中有许多人接种了未经欧洲或意大利药品管理局认可的疫苗。此外，由于有大量来自东欧的外籍农工，意大利农业也会面临困境。
+库恩是运动和体育专业的大四学生，身体健康，在竞技项目中获奖，在校园兼职私人教练。
 
-同天在意大利的许多大城市也发生了抗议活动。人民涌上罗马、博洛尼亚、佛罗伦萨、都灵等城市，抗议政府的决策。
+尽管新冠病毒对30岁以下人群危险性极低，但在学校和工作场所的胁迫下，年轻人正在大规模的接种，库恩和许多比他更年轻的人在这种环境下，被迫接种了含胚胎细胞的毒针。
 
-已有证据表明，早在2020年3月，中共大外宣在海外进行大肆宣传，推动全球各国实施类似武汉的封城措施，使经济停摆。意大利则是第一个加入这种措施的国家。今年意大利是最早推行疫苗护照的国家之一， 7月时，博物馆、餐厅、电影院等已开始限制无疫苗护照的人进入。
+前辉瑞公司的员工凯伦·金斯敦此前揭露，较未接种时，人体感染病毒的机率增加了3倍，而当接种第二剂后，随着时间的推移，人体免疫力逐渐减弱，感染率将持续升高。
 
-疫苗护照限制了人的基本活动权利，违反人权宪章。在疫苗的真相越来越多被揭露时，全球各地的越来越多各行各业的人加入质疑的行列，疫苗护照究竟还能走多远？
+今年6月，加州15岁少年接种辉瑞疫苗第二针2天后，死于“应激性心肌炎并伴有冠状动脉炎症”。此前，美国疾病控制和预防中心（CDC）也承认，接种mRNA疫苗的年轻男性有罹患心肌炎和心包炎的风险。如果美国政府仍强制推行疫苗接种令，随着在校学生大面积接种疫苗，越来越多的年轻人将因此受到伤害，甚至死亡。
 
-**新闻来源：**
+文字版原文：[完全疫苗接种加州大学生因病毒并发症去世](https://gnews.org/zh-hans/1596254/)
 
-**[https://www.thegatewaypundit.com/2021/10/italians-protest-government-mandated-requirement-taken-vaccine-eligible-work/](https://www.thegatewaypundit.com/2021/10/italians-protest-government-mandated-requirement-taken-vaccine-eligible-work/)**
+音频处理：喜山必胜Maverick
 
-** [https://www.bbc.com/news/world-europe-58913865](https://www.bbc.com/news/world-europe-58913865)**
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

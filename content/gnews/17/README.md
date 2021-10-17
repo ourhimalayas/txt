@@ -2,28 +2,31 @@
 ---
 
 
-## 1.1. 冠状病毒 Coronavirus
-` reneelee` [轉載自GNews](https://gnews.org/zh-hans/1600311/)
+## 美国取代中共国 成印度最大贸易伙伴
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1600441/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/thumbWithTitle4-1.jpg)
-[揭秘疫苗惊天阴谋的第１.１节。](http://gtv%20揭秘疫苗惊天阴谋的第１.１,1.2节。)
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-所有冠状病毒的制造机理，其核心元素，就是被植入了艾滋病的某个基因片段。
+据大纪元10月17日报道，印度政府数据显示，得益于2021年前9个月的快速增长，美国已超过中共国，成为印度最大的贸易伙伴。
 
-艾滋病基因进入体内后，它会无限放大身体的免疫力，令其竭尽全力拼杀，最终导致彻底衰竭，而令身体免疫力，完全丧失。艾滋病，就是人体免疫力的杀手。
+印度商务部整理的数据显示，今年1月到9月，印美双边贸易额增长50%至280亿美元，位居首位。而印度和中共国的贸易增长相对较慢，达46%，使双边贸易增加到253亿美元，居于第二。
 
-The core element of the manufacturing mechanism of all coronaviruses is that they are implanted with a certain gene fragment of AIDS.
+此外，在主要贸易伙伴中，增幅最大的是南非，增幅为91.4%，达到59亿美元；其次是澳大利亚，贸易额增长了85%以上，达到64亿美元；之后是比利时，贸易额跃升了近80%，达到60亿美元；而与阿联酋的贸易额则增长了67%，达200亿美元。
 
-After the AIDS gene enters the body, it will infinitely amplify the body’s immunity, causing it to fight with all its might, eventually leading to complete failure, and making the body’s immunity completely lost. AIDS is the killer of the body’s immunity.
+![](https://assets.gnews.org/wp-content/uploads/2021/10/id13309516-000_9NG3EX-600x400-1.jpg)图片来自于网络
 
-当一个病毒，被作为“生化武器”研发时，一定有两个核心课题。
+根据印度时报的报道，印度与许多国家的贸易增长，部分原因是某些商品价格的暴涨。其中石油及金属价格暴涨是重要的因素。
 
-第一，如何控制病毒的传播，即如何达到可以定颜色、定区域和定人种的杀伤目的。
+美国和中共国一直是印度最大的贸易伙伴。但自从去年6月15日，中印在边境爆发45年来最致命的冲突，20名印度军人死亡，引起印度全国愤怒，爆发抗议，并掀起抵制中国货的风潮。
 
-第二，如何解毒。
+另一方面，印度在与中方关系恶化的同时，迅速强化与美国及其盟友的关系。9月底，印度总理莫迪前来华盛顿，出席4国集团（QUAD）首次面对面的高峰会。
 
-When a virus is developed as a “biochemical weapon”, there must be two core issues.
+*注：本文仅代表作者观点，与 Gnews无关*
 
-First, how to control the spread of the virus, that is, how to achieve the purpose of killing and killing by color, area, and race.
+*参考链接：*
 
-Second, how to detoxify.
+[美國取代中國 成印度最大貿易夥伴](https://www.epochtimes.com/b5/21/10/16/n13309299.htm)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

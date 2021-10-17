@@ -2,24 +2,25 @@
 ---
 
 
-## 北溪2号上胜利属于莫斯科
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1600130/)
+## 随着严格的“绿色通行证”规则生效，意大利多地举行抗议
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1600256/)
 
-新闻来源：德国世界报网络版
+撰稿：西枫westca
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unnamed-9.jpg)图片来源：保罗·乔瓦尼尼/环保局
+据多家外媒报道，意大利政府执意决定任何在公共部门或私营企业工作人员都必须持有带有二维码的“绿色通行证”才能进入工作场所的政策在10月15日实行。未能出示证明者面临被宣布无薪缺勤。由此引发了意大利全国的抗议活动，要求当局放弃进入室内公共场所的“绿色通行证”要求。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/DWO-WI-Teaser-Nord-Stream-2-mw-jpg.jpg)
+10月15日抗议首先在意大利的港口城市的里雅斯特（Trieste）开始，约6000人以上的港口工人聚集在港口。其港口工人中，只有40%接种了疫苗。的里雅斯特港口为意大利北部、德国、奥地利和中欧提供服务。抗议中，可以看到写着“公民不是傀儡”， “没有绿色通行证，没有歧视”等横幅。59岁的里雅斯特港口工人法比奥·博辛告诉路透社，‘绿通行证是件坏事，是法律规定的歧视。这不是卫生条例，而只是制造人与人之间的分裂的政治举动。”其他港口热那亚（Genoa）、安科纳（Ancona）的人们也中断工作参加了抗议，他们在港口静坐，阻止交通进入港口。 据估计，约有300万意大利工人仍未接种疫苗。新规定下的一个大问题是如何解决大量外国卡车司机为港口提供服务并跨越边境运输货物。因为外籍劳工中有许多人接种了未经欧洲或意大利药品管理局认可的疫苗。此外，由于有大量来自东欧的外籍农工，意大利农业也会面临困境。
 
+同天在意大利的许多大城市也发生了抗议活动。人民涌上罗马、博洛尼亚、佛罗伦萨、都灵等城市，抗议政府的决策。
 
-资料来源：网络图片
+已有证据表明，早在2020年3月，中共大外宣在海外进行大肆宣传，推动全球各国实施类似武汉的封城措施，使经济停摆。意大利则是第一个加入这种措施的国家。今年意大利是最早推行疫苗护照的国家之一， 7月时，博物馆、餐厅、电影院等已开始限制无疫苗护照的人进入。
 
-北溪2号从来就不是一个欧洲项目，有可能阻碍能源转型，而且还可能堕落成一个投资废墟。德国已经为该管道付出了高昂的代价。未来的政府有三个选择–而且还可以回头。
+疫苗护照限制了人的基本活动权利，违反人权宪章。在疫苗的真相越来越多被揭露时，全球各地的越来越多各行各业的人加入质疑的行列，疫苗护照究竟还能走多远？
 
-在俄罗斯吞并克里米亚后不久启动，从来都不是一个欧洲项目，而总是一个俄罗斯-德国项目。俄罗斯的地缘战略目标从一开始就是要在天然气出口方面能够绕过乌克兰，从而在乌克兰和欧盟之间打下一个楔子，随后将乌克兰置于更大的压力之下，并最终使其服从。对于德国的共谋，只能用法国政治家夏尔-莫里斯-德-塔列朗-佩里戈尔的话来评论：”这是犯罪， 是罪恶”。
+**新闻来源：**
 
-[https://www.welt.de/wirtschaft/plus234471416/Nord-Stream-2-Der-Triumph-gehoert-Moskau-Deutschland-zahlt-hohen-Preis.html](https://www.welt.de/wirtschaft/plus234471416/Nord-Stream-2-Der-Triumph-gehoert-Moskau-Deutschland-zahlt-hohen-Preis.html)
+**[https://www.thegatewaypundit.com/2021/10/italians-protest-government-mandated-requirement-taken-vaccine-eligible-work/](https://www.thegatewaypundit.com/2021/10/italians-protest-government-mandated-requirement-taken-vaccine-eligible-work/)**
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-
-责任编辑/发布： Shuizhuyu
+** [https://www.bbc.com/news/world-europe-58913865](https://www.bbc.com/news/world-europe-58913865)**
