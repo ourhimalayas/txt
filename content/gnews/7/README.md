@@ -2,48 +2,46 @@
 ---
 
 
-## 中共是美国“气候变化”激进主义会议的幕后推手
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1598955/)
+## 美国内布拉斯加州总检查长批准伊维菌素和羟氯喹用于预防或治疗新冠
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599079/)
 
-【评论】中共作为世界上最大的碳排放国，它永远不会履行任何气候协议。中共赞助气候变化会议是醉翁之意不在酒，它希望“体制的改变而不是气候的改变”，其实质是在利用气候变化问题去攻击美国的民主和人权等制度，中共的邪恶渗透表现在方方面面，真是360度无死角。
+作者：文真
 
-下次您在新闻中看到气候变化抗议活动时，请注意它可能得到了中共的支持。
 
-《国家脉搏》（National Pulse）记者娜塔莉·温特斯（Natalie Winters） 2021 年 10 月 14 日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/D14C6A4E-FBF7-44F2-BEB3-6D49302DD18D.png)
-图片来源：国家脉博
 
-《国家脉搏》（National Pulse )透露，一个与中共有联系的外国有影响力的组织赞助了一次气候变化会议，旨在动员美国的青年倡导者。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-主办最近会议的实体中美交流基金会 (CUSEF) 是北京“统一战线”的一部分。美国政府认为该组织旨在“拉拢和消除潜在反对中国共产党执政的政策和权威的来源”，并“影响外国政府采取行动或采取支持北京的立场”。
 
-中美交流基金会（CUSEF )的网站指出，它“赞助” 了 与麻省理工学院 （MIT） 和清华大学两所学校合作开展的中美青年气候变化对话。
 
-“由清华大学和麻省理工学院共同主办的中美青年气候变化对话（SAYD）将于第26届联合国气候变化会议( COP26）前一个月的 10 月 8 日举行。此次活动的目的是为中美两国的年轻人提供一个平台，为第26届联合国气候变化会议（COP26）提出应对气候变化和可持续发展的想法和建议。” 中美交流基金会（CUSEF）在向与会者提出以下问题之前解释道：
+10月15日，美国内布拉斯加州总检查长彼得森，应该州卫生和人类服务部的要求，发表一份意见，指出“明确和令人信服的证据表明，医生在获得病人知情同意后，利用伊维菌素或羟氯喹治疗新冠，没有违反内布拉斯加州的统一证书法案”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-10.jpg)
+该意见引用多篇医学期刊文章、研究和案例研究，证实伊维菌素或羟氯喹对预防或治疗新冠的有效性。该意见允许本州医生合规使用伊维菌素和羟氯喹预防或治疗新冠，免受法律诉讼和纪律处分，以此挽救更多生命，和缓解紧张的医疗资源。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-80.jpg)
+该意见剖析了在《柳叶刀》发表的、谴责羟氯喹的一篇文章，这篇文章因统计数据缺陷被撤稿。在全球健康紧急情况下，该篇文章制造了巨大的欺诈和信息误导。同时，总检查长办公室议程质疑了默克公司因巨大经济利益，对伊维菌素的质疑存在利益冲突。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-4.jpg)
+参考链接：
+1. [Prescription of Ivermectin or Hydroxychloroquine as Off-Label Medicines for the Prevention or Treatment of Covid-19](https://ago.nebraska.gov/opinions/prescription-ivermectin-or-hydroxychloroquine-label-medicines-prevention-or-treatment-covid)
+2. [Nebraska AG Issues Opinion on Doctors Prescribing HCQ and Ivermectin for COVID Treatment Will Not Face Punishment](https://www.thegatewaypundit.com/2021/10/nebraska-ag-issues-opinion-doctors-prescribing-hcq-ivermectin-covid-treatment-will-not-face-punishment/)
 
-各国政府应如何应对气候紧急情况？
+（本文仅代表作者观点）
 
-企业应如何制定可持续发展战略以实现净零排放？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-作为个人，我们可以采取哪些行动来减少浪费和气体排放？
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
 
-会议明确寻求动员青年积极分子。其主题是“让碳中和，青年在行动”。
+**更多资讯，更多关注**
 
-会议网站补充说，“通过青年代表和现场专家的讨论和分享，论坛希望就这个问题达成共识，并形成有价值的政策建议”。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-此次活动的发言人包括中美交流基金会（CUSEF ) 创始人董建华（Tung Chee-hwa）、中共官员以及麻省理工学院和清华大学的校长。据美国国务院称，清华大学也参与了此次会议。 据报道该校对美国政府发起了网络攻击，并在技术和国家安全问题上与中国政府有“明确联系” 。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-这所学校是习近平的母校，也是一所“马克思主义”新闻学院。在《纽约时报》、美国有线电视新闻网等机构的协助下，该校培养下一代中共国官方媒体宣传人员。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-院长在介绍信中写道: “我们要坚持坚定正确的政治方针。我校积极探索马克思主义新闻学理论与实践，即把马克思主义理论应用于观察世界、选择和处理新闻生产”。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-文章来源：[https://thenationalpulse.com/exclusive/ccp-influence-group-sponsors-climate-change-conference//](https://thenationalpulse.com/exclusive/ccp-influence-group-sponsors-climate-change-conference//)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Freeearth
-评论：洛杉矶盘古农场 – Wendy
-编辑：洛杉矶盘古农场 – Wendy
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

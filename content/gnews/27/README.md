@@ -2,38 +2,24 @@
 ---
 
 
-## 菲律宾开始为12-17岁青少年接种中共病毒疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1598695/)
+## 因华盛顿州强制疫苗令失去工作的巡警以粗口表达对州长的不满
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1598821/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/inoculating-children-i.jpg)图片来源：medicalxpress.com
-#### 编译：小红帽
+#### 编译：Grace
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-47.jpg)图片来源：Survival magazine
+据The Gateway Pundit 10月16日报道，一名因未接种中共病毒疫苗而被解雇的华盛顿州巡警，在其巡逻车上发布了最后一次签字的视频，在视频中他对强制要求州雇员接种中共病毒疫苗的州长杰伊.英斯利（Gov. Jay Inslee）留言说： “杰伊. 英斯利可以吻我的腚。”
 
-菲律宾当局于周五在马尼拉大都会的八个试点地点，为1200万名15至17岁的青少年接种中共病毒（COVID-19）疫苗。
+这位华盛顿州亚基马市（Yakima County）的巡警在工作了22年后, 离开了自己的工作岗位—因未接种中共病毒疫苗被州长英斯利解雇了。
 
-继许多国家之后，菲律宾也将其中共病毒疫苗接种活动扩大到未成年人。
+今天距离华盛顿州大多数州政府、医疗保健和学校工作人员接种中共病毒疫苗的最后期限还有两天。在今年夏天，州长杰伊.英斯利发布命令说：“在10月18日或之前出示疫苗接种证明，否则将失去工作。”
 
-菲律宾总医院、菲律宾儿童医疗中心、国家儿童医院、世界信仰（Fe Del Mundo）医疗中心、帕西格市儿童医院、菲律宾心脏中心、马卡蒂医疗中心和圣路加医疗中心-环球城为患有合并症的青少年开展了疫苗接种。
+在周四，英斯利宣布，截至本周，超过90%的华盛顿州政府工作人员已被核实是完全接种疫苗了，这比几周前的68%有所提高。
 
-这些青少年接种了辉瑞生物技术公司（Pfizer-BioNTech’s）的Comirnaty疫苗和莫德纳（Moderna）的Spikevax疫苗。据悉，这些疫苗已获得食品和药物管理局 (FDA) 的紧急使用批准，可用于12至17岁的青少年。
+该州的财务管理办公室在本周早些时候报告说，最大的州机构之间的比率有所不同。社会和卫生服务部工作人员的比率为91%；惩教部监狱雇员的比率为84%至91%；华盛顿州巡逻队工作人员的比率为89%。
 
-卫生部副部长玛丽亚·罗萨里奥·维吉尔 (Maria Rosario Vergeire) 在周五的新闻发布会上说，这些疫苗正在试点医院进行试用，以便向青少年及其父母保证，任何不良反应都会被立即处理。
+西雅图脱口秀主持人杰森.兰茨（Jason Rantz）发布了这名未透露姓名的巡警最后一次签字的视频，“我要离开了。在为华盛顿州的公民服务了二十二年后，我被要求离开，因为我 “脏 “了。无数次的死亡、受伤，我带病工作、带病比赛，这些年我们埋葬了很多朋友。我想感谢你们，我想感谢亚基马市的公民以及我在山谷中的同事。没有你们，我不会有很大的成功，你们让我安全，让我每晚回家与家人团聚。谢谢你们。希望我可以说更多，但是，这就是它。所以，请保持10-34，这是你们最后一次在州巡逻车上听到我的声音。杰伊.英斯利可以吻我的腚。”
 
-从周六开始，菲律宾将进一步放宽对马尼拉地区的中共病毒限制。迄今为止，菲律宾已为其1.1亿人口中的近2400万人接种了中共病毒疫苗。
+杰森.兰茨发推说：“他（英斯利）的强者疫苗政策，将在周一解雇成千上万的工人。警察、教师、护士、巴士司机，以及更多的人将因为英斯利的独裁冲动而失去生计。这些影响将是严重的。”
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**
-
-1. [Philippines starts COVID-19 vaccinations for 12-17 year olds | Reuters](https://www.reuters.com/world/asia-pacific/philippines-starts-covid-19-vaccinations-12-17-year-olds-2021-10-15/)
-2. [Philippines begins vaccinations for teens aged 15 – 17 (nst.com.my)](https://www.nst.com.my/world/region/2021/10/736990/philippines-begins-vaccinations-teens-aged-15-17)
-
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**新闻来源：**[**Washington State Trooper Fired Over COVID Vaccine Mandate Has Final Signoff Message: “Jay Inslee Can Kiss My A\*\*”**](https://www.thegatewaypundit.com/2021/10/washington-state-trooper-fired-covid-vaccine-mandate-final-signoff-message-jay-inslee-can-kiss/)

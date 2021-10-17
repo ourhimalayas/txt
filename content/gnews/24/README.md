@@ -2,27 +2,30 @@
 ---
 
 
-## &#8220;工人生命重要&#8221;公益活动揭露996过劳文化
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1598755/)
+## 重磅：辉瑞吹哨人称疫苗含有有毒荧光素酶和氧化石墨烯化合物
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1598853/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
+#### 编译：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-51.jpg)图片来源：网络截图
+据LifeSiteNews 10月14日报道，  辉瑞生物技术公司的一位质量检查员梅丽莎·斯特里克勒（Melissa Strickler）在本周的独家采访中告诉LifeSiteNews，辉瑞生物技术公司的疫苗瓶会发出蓝色荧光，并含有一种荧光素酶。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/text-SC-15.png)
-文章仅代表作者本人观点，与Gnews无关
+在辉瑞公司堪萨斯州麦克弗森大型工厂工作10年的斯特里克勒说，她在公司的职业生涯中已经检查过数十万瓶疫苗，但是从来没有见过发光的疫苗。药瓶中的液体通常情况下像水一样清澈，但当她注意到液体中的蓝色荧光色调时，她对小瓶进行了拍照，并向上级询问了这种成分。
 
-视频参看： 2021.10.16晚GTV新闻访谈
+斯特里克勒说，她听到一位医生描述了疫苗成分的代码，包括荧光素酶的代码SM102，这是一种在萤火虫、植物和鱼类中产生的被用于生物发光的研究的夜光酶，当它与不同化学品混合时，会发出不同的颜色的光。
 
-[https://gtv.org/broadcast/watch/616b6dd8304e992109b6139a](https://gtv.org/broadcast/watch/616b6dd8304e992109b6139a)
+她告诉LifeSite，她给公司发电子邮件，询问在中共病毒疫苗中是否有荧光素酶，得到的答案是它只用于疫苗的测试，不会出现在最终产品中。但我看到的是整个事情就是是实验性的，斯特里克勒说。我们甚至还没有看到Comirnaty 标签（食品和药物管理局在8月批准的疫苗的商标名）被贴在那个工厂的小瓶上，每个人都还在接受那个紧急使用授权的原始产品。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+在上周公开的Project Veritas的一次爆炸性采访中，斯特里克勒披露了辉瑞公司全球研究部高级主管瓦内萨·盖尔曼（Vanessa Gelman）的内部邮件，指示低层员工不要与公众讨论流产胎儿细胞在其中共病毒疫苗开发中的作用。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+辉瑞公司副总裁兼首席科学官菲利普·多米茨（Philip Dormitzer）的其他电子邮件也讨论了在1973年从一个流产女婴身上获取的人类胚胎肾细胞（HEK 293细胞）在辉瑞公司中共病毒疫苗生产过程中连续繁殖的细胞的作用。选择这些细胞是因为它们的生长能力，基本上是来自流产婴儿的 “癌症细胞”，斯特里克勒说，
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+数以千计的人以宗教或良心豁免为由寻求豁免工作场所的强制疫苗要求，但是他们的请求被拒绝了。社交媒体平台经常删除有关中共病毒疫苗开发中使用胎儿组织的帖子，主流媒体也将 事实核查报告视为错误信息。斯特里克勒说，辉瑞公司知道这一点，他们在欺骗，他们可以结束阴谋论，他们可以纠正社交媒体上的事实核查者，但他们保持沉默，他们知道他们无法拒绝宗教豁免，这就是问题所在。
+
+她补充说，疫苗的mRNA技术可以与CRISPR技术一起用于基因编辑，这一事实也被辉瑞公司、主流媒体和政府的信息所掩盖。
+
+斯特里克勒说，在中共病毒之前，她很喜欢她的产品检验员工作，但自从大流行开始后，许多员工在打完针后都后悔了，很多人拒绝打针。事实上，超过一半的员工愿意因此而走人，辉瑞公司也知道这一点。
+
+斯特里克勒说，在麦克弗森工厂开始生产中共病毒疫苗后，她经常想辞职，并为此进行了祈祷，但感到不得不坚持下去，直到她发现了一个爆炸性和欺骗性的公司电子邮件数据库，并最终向Project Veritas曝光，斯特里克勒为此被解雇。
+
+新闻来源：[BOMBSHELL: Pfizer whistleblower says vaccine ‘glows,’ contains toxic luciferase, graphene oxide compounds](https://www.lifesitenews.com/news/bombshell-pfizer-whistleblower-says-vaccine-glows-contains-toxic-luciferase-graphene-oxide-compounds/)

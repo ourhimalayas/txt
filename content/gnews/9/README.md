@@ -2,49 +2,47 @@
 ---
 
 
-## WHO渎职，提名不符合资格的人进入重启的病毒溯源小组
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1598919/)
+## 纽约州立大学布法罗分校取消至少30名中共国学生的F-1身份
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599067/)
 
-【**简评**：】*世卫专家今年初曾赴武汉进行溯源调查，但却没有进入到病毒起源的核心点 —— 武汉病毒研究所。又因中共不提供武汉病毒爆发时的原始数据，调查因此是失败的，没有给世界一个真实的答案。但调查组却给了“病毒源自自然”的定论，荒唐吧。*
+作者：文一
 
-*这次，新的调查团队将再次赴中国进行调查，拟议的小组成员里有着与中共有很深的利益关系的人，为了利益，他们会继续为中共打马虎眼。这次改版的COVID溯源小组，相信还是换汤不换药了，再次的赴中国的调查，也只是走个过场，忽悠吧。*
 
-据《每日来电》调查记者：安德鲁·克尔（Andrew Kerr），2021年10月14日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/7E02B087-7956-4102-87C3-B98EE41D1E3E.png)图片来源：Getty Images
-世界卫生组织周三提名一名与《生态健康联盟》有直接联系的泰国医生在一个新的咨询委员会任职，负责调查COVID-19的起源。
 
-根据The Intercept首次报道的记录，这位泰国医生，苏帕波恩·瓦查拉普萨迪（Supaporn Wacharapluesadee），被列为过敏和传染病的国家机构的分包商，代理《生态健康联盟》在2020年进行新兴的东南亚流行病毒的研究。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-记录显示，瓦查拉普萨迪所在的机构朱拉隆功大学将在2020年至 2025年期间从这笔赠款中获得107万美元。这笔资金将包括让瓦查拉普萨迪飞往纽约市与《生态健康联盟》主席彼得·达扎克（Peter Daszak）举行年度会议。彼得·达扎克在《柳叶刀》医学杂志上精心策划了臭名昭著的2020年2月信函，谴责COVID-19非自然的起源为“阴谋论”。
 
-彼得·达扎克是世卫组织第一个 COVID-19 起源小组中唯一的美国成员，该小组在2021年初在中国进行了广泛的调查后得出结论，该病毒“极不可能”从武汉实验室泄漏。在彼得·达扎克的领导下，《生态健康联盟》在大流行之前将60万美元的纳税人资金拨给了武汉病毒研究所，用于进行基于蝙蝠的冠状病毒实验。
 
-罗格斯大学教授理查德·埃布赖特 (Richard Ebright) 博士是对实验室泄漏理论进行全面调查的主要支持者，他告诉《每日来电者新闻基金会》，瓦查拉普萨迪“有利益冲突使她失去资格”加入新的世界卫生组织小组。
+据PIE新闻网报道， 近日，纽约州立大学布法罗分校注销了至少30名中共国学生的F-1身份，一个国际教育组织说这是十年中最大规模的集体注销事件。
 
-“作为生态健康联盟的分包商，瓦查拉普萨迪在2020-2025年以 107 万美元的价格受惠于生态健康联盟，显然存在利益冲突，不符合资格。”埃布赖特博士说。
+该校表示，“为了保持学生（F-1）签证身份，新到美国的学生需要向他们的指定学校官员报告，提交有效的美国地址，支付任何所需的费用，并全职入学。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-5.jpg)
+目前，大约37名学生违反了规定。这些学生没有在抵达校园后30天内向国际学生服务处提交I-94文件。该文件是美国国土安全部对进入该国的旅客的抵达和离开记录，用来确认旅客签证状态和留美合法时间。
 
-“如果在被告知存在利益冲突后，世界卫生组织继续任命瓦查拉普萨迪为‘新型病原体起源科学咨询小组’成员，那么世界卫生组织将再次失败，正如其对生态健康联盟主席的任命一样。彼得·达扎克曾经参加了世界卫生组织武汉代表团，但没有达到公认的尽职调查和对全球公众负责的标准。”
+该校中国学生学者联谊会在社交媒体上称，I-94表格“并不是一个非常难以获得的文件”，但并不是所有的学校都需要。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-96.jpg)
+参考链接：
+[University at Buffalo terminates Chinese students’ F-1 statuses](https://thepienews.com/news/university-of-buffalo-terminates-chinese-students-f-1-statuses/)
 
-据华盛顿审查员报道，在世界卫生组织新小组的26名拟议成员中，还包括了曾参与世界卫生组织第一次 COVID-19 起源调查的6个人。（相关：数十名科学家抨击世界卫生组织关于处理实验室泄漏证据的报告）
+（本文仅代表作者观点）
 
-审查员补充说，新小组的另一名拟议成员是彼得·达扎克，在2020 年 2月在《柳叶刀》上发表信函的签字人。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-世界卫生组织没有立即对评论请求作出回应。
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
 
-世界卫生组织总干事谭德塞表示，世界卫生组织在中国的首次COVID-19起源调查没有充分调查实验室泄漏理论。此后呼吁对武汉病毒研究所进行进一步调查。
+**更多资讯，更多关注**
 
-然而，中国不太可能同意对该实验室进行独立调查。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-原文链接：
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[https://dailycaller.com/2021/10/14/who-nominates-ecohealth-subcontractor-covid-origins-panel-peter-daszak/](https://dailycaller.com/2021/10/14/who-nominates-ecohealth-subcontractor-covid-origins-panel-peter-daszak/)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-(本文评论仅代表个人观点）
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-翻译：洛杉矶盘古农场 – 蓝精灵
-校对：洛杉矶盘古农场 – Mike Li
-评论/编辑：洛杉矶盘古农场 – 明子
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

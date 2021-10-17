@@ -2,10 +2,10 @@
 ---
 
 
-## 美国内布拉斯加州总检查长批准伊维菌素和羟氯喹用于预防或治疗新冠
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599079/)
+## SEC已经为GTV、SARACA、VOG相关退款创建公平基金并指定税务管理员
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599127/)
 
-作者：文真
+作者：葛朗台太太
 
 
 
@@ -13,15 +13,16 @@
 
 
 
-10月15日，美国内布拉斯加州总检查长彼得森，应该州卫生和人类服务部的要求，发表一份意见，指出“明确和令人信服的证据表明，医生在获得病人知情同意后，利用伊维菌素或羟氯喹治疗新冠，没有违反内布拉斯加州的统一证书法案”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-10.jpg)
-该意见引用多篇医学期刊文章、研究和案例研究，证实伊维菌素或羟氯喹对预防或治疗新冠的有效性。该意见允许本州医生合规使用伊维菌素和羟氯喹预防或治疗新冠，免受法律诉讼和纪律处分，以此挽救更多生命，和缓解紧张的医疗资源。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-80.jpg)
-该意见剖析了在《柳叶刀》发表的、谴责羟氯喹的一篇文章，这篇文章因统计数据缺陷被撤稿。在全球健康紧急情况下，该篇文章制造了巨大的欺诈和信息误导。同时，总检查长办公室议程质疑了默克公司因巨大经济利益，对伊维菌素的质疑存在利益冲突。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-4.jpg)
+在GTV投资人抗议证交会SEC进行了8天以后，SEC官方网站终于有了更新。10月14日，SEC官方网站发出公告：公平基金已经包含了答辩人支付的大约四亿五千四百万美金的款项，并且已存入美国财政部财政局的一个计息账户。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-31.jpg)
+委员会还发布了34-93313号命令，任命 Miller Kaplan Arase LLP 为公平基金的税务管理员。
+
+SEC尚未公布已经到账的款项和未到账款项分别来自哪些公司。SEC还公布了退款办公室的邮箱，如果投资人需要了解更多信息，可以通过邮件联系退款办公室。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.4-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture-7.jpg)
 参考链接：
-1. [Prescription of Ivermectin or Hydroxychloroquine as Off-Label Medicines for the Prevention or Treatment of Covid-19](https://ago.nebraska.gov/opinions/prescription-ivermectin-or-hydroxychloroquine-label-medicines-prevention-or-treatment-covid)
-2. [Nebraska AG Issues Opinion on Doctors Prescribing HCQ and Ivermectin for COVID Treatment Will Not Face Punishment](https://www.thegatewaypundit.com/2021/10/nebraska-ag-issues-opinion-doctors-prescribing-hcq-ivermectin-covid-treatment-will-not-face-punishment/)
+1. [SEC指定税务管理员文件](https://www.sec.gov/litigation/admin/2021/34-93313.pdf)
+2. [In the Matter of GTV Media Group, Inc., et al.
+Admin. Proc. File No. 3-20537](https://www.sec.gov/divisions/enforce/claims/gtv-media-group.htm)
 
 （本文仅代表作者观点）
 
