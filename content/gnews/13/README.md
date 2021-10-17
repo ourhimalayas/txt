@@ -2,22 +2,25 @@
 ---
 
 
-## 在线公益活动揭露中共国&#8221;996&#8243;过劳工作文化
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1598634/)
+## 意大利各地工人举行大规模抗议 要求取消疫苗护照
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1598636/)
 
 作者：文真
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
-一项名为“工人生命重要”的公益活动，在Github网站分享了一个在线电子表格，鼓励中国不同行业的员工，分享他们的每周工作时间表。截至上周二，该电子表格已经获得了超过一千万的浏览量。目前有超过六千个条目，其中包括腾讯、阿里巴巴和字节跳动等大型科技和金融公司。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-16.jpg)
-最新的运动呼应了科技员工，早先为抗议长时间工作而做出的努力。2019年，一群中国程序员在GitHub上，呼吁驱逐那些被指控虐待员工的初创公司，禁止使用他们的开源代码。
+10月15日，意大利“绿色通行证”，即疫苗护照，在全国强制实施。拒绝接受疫苗护照政策的工人，将面临罚款，或被迫停薪。这项政策随即遭到意大利各地工人的强烈抗议。反对者认为，疫苗护照就是“独裁统治的工具”。
 
-“996”超长时间工作，导致的“过劳死”不断在社交媒体上曝光。中共制国下的各行业公司普遍存在的“996”工作制，是不合理的加班行为，公然违反人权。这种艰苦苛刻的超时工作文化，也是中国工人被“现代奴隶制”压榨的最佳例证。
+最大的示威活动发生在东北部的里亚斯特主要港口，约6000人聚集，抗议实施疫苗护照，并已承诺停止港口运营，直到取消疫苗护照为止。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-14.jpg)
+米兰公共交通公司的一些工人表示，随着强制性的疫苗护照在工作场所生效，他们将进行罢工，到时甚至会封堵整个城市的公共交通。
+
+热那亚的轮渡码头和国际机场航站楼也出现了抗议活动，导致这些地方被反对疫苗护照的抗议者封堵。
 
 （本文仅代表作者观点）
 
 参考链接：
-1. [在线公益活动揭露中共国”996″过劳工作文化](https://www.bloomberg.com/news/articles/2021-10-14/chinese-workers-reveal-hours-online-as-backlash-to-996-grows)
-2. [在线公益活动揭露中共国”996″过劳工作文化](https://www.newsmax.com/newsfront/china-workers-996-protest/2021/10/15/id/1040718/)
+1. [意大利各地工人举行大规模抗议 要求取消疫苗护照](https://www.zerohedge.com/covid-19/huge-dock-worker-protests-italy-fears-disruption-covid-green-pass-takes-effect)
+2. [意大利各地工人举行大规模抗议 要求取消疫苗护照](https://www.breitbart.com/europe/2021/10/16/covid-pass-deadline-fears-violent-protest-workers-disruption/)
+3. [意大利各地工人举行大规模抗议 要求取消疫苗护照](https://www.breitbart.com/europe/2021/10/16/milan-transportation-workers-threaten-strike-over-mandatory-covid-pass/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 

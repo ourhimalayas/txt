@@ -2,31 +2,35 @@
 ---
 
 
-## 2021/10/16文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1598628/)
+## 佛罗里达州将对拜登政府疫苗强制令发起诉讼
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1598635/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/101616.png)[盖特链接](https://gettr.com/post/pebnmn4403)
-昨晚凌晨3点多，一位江西的朋友刚刚逃出来，是孟建柱重要部下陈瑧的哥们。当年陈臻就告诉他“不要在国内”，可前几年因为挡不住诱惑，又回国了，和孙立军勾兑上了，还认识了赵薇老公黄有龙，搞了几笔钱。前一阵全家在国内都被抓，被命令其把海外的钱财转回国内，在是否配合还是救家人的选择之中，七哥给他出了一招，管用了，让他和家人们成功地都跑了出来。随后他给我爆料了一些孟建柱、王岐山、江志成、马云、黄有龙的故事，还有一个关于上海第一女警察“娜姐”的故事，太黄了，比电影还精彩… 懂得人就会明白，以后到哪里都带着七哥牌鼻涕纸。
+作者：文一
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+继 德克萨斯州 州长 艾伯特 发布行政命令，禁止任何实体强制接种任何中共病毒疫苗三天后，佛罗里达州州长罗恩-德桑蒂斯（Ron DeSantis）也宣称反抗拜登总统对雇主和雇员的疫苗强制政策。
 
-明天大直播，好好的跟大家聊聊这些，明天参加直播的嘉宾阵容强大，有我们的圣女，一位虔诚的宗教徒；吃了青蒿素皮肤越来越好的钊颖妹妹；中国第一猛男郝海东兄弟和咱们300年的飞飞。明天涉及到的话题会非常多，而且内容也非常的重要，关于国内的经济、地产、政治，也会详细谈谈昨晚逃出战友的爆料。现在的形势是，江，曾、孟、韩正，王岐山超过六成会大反击，因为他们已经无路可退了。
+拜登上月初宣布，要求雇员超过100人的企业，和联邦工作人员强制接种疫苗。佛州州长将通过联邦法院和立法推翻这项政策，在美国第11巡回上诉法院提出诉讼。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-16.jpg)
+德桑蒂斯说：”我认为剥夺人们的工作从根本上是错误的，特别是考虑到我们现在面临的经济形势。”许多共和党人也表示，人们拥有自由选择权，政府的多项行为已经侵犯人权。
 
-我明天还将细讲一个在中纪委的兄弟，头两天在香港办案，现在跑到了日本。在世界上，能让这些从体制内能出来的，还有大钱的人安全的，只有两个地方：美国和日本。现在中纪委专案组办案的人员，表面上是在办案，实际上都在利用职务便利敛财抢夺钱财，最后都想办法逃走。
+据悉该州许多学区和城市都积极相应了州长的命令，取消强制接种。而面对政府限制规定，佛州港口会议则表示，工作人员已经就位，港口将会全部开放为货物交接做准备。盖恩斯维尔市的200多名警察和消防人员，在上个月对市政府提起诉讼，成功回击疫苗强制令，越来越多的城市也将为维护个人隐私权，平等保护和身体完整性等权力而行动起来。
 
-明天的直播还讲军事方面的事情，等我们说完，一定让军队内部的军官们吓尿裤子。凡事过去污蔑郭文贵，说郭文贵是造谣骗子的，现在证明“谣言”都是真的。这是王沪宁、赵乐际和整个国家安全委员会确认的。啥是国安委，国家安全情报委员会，在俄罗斯叫“克格勃”。过去对孟建柱、王岐山、王立科、江志成等爆出的信息现在全都被证实了，曾家的料还不到时候爆。江家、朱家、曾家、王岐山家一定会反击的。
+（本文仅代表作者观点）
 
-还有疫苗的事情，跑出来的江西老板和纪委哥们都反馈说，我们爆料疫苗真相的直播在国内政界引起震撼。再看看各国的政策，走极端的是被人拿枪顶着威胁的，那是少数；大多数国家都必须放开，停止疫苗灾难。兄弟姐妹们，新中国联邦和G系列的力量是不是正在撬动整个地球呢？！明天大直播见！
+参考链接：
+[佛罗里达州将对拜登政府疫苗强制令发起诉讼](https://www.newsmax.com/us/florida-desantis-biden-vaccine/2021/10/15/id/1040662/)
+[佛罗里达州将对拜登政府疫苗强制令发起诉讼](https://trendingpolitics.com/mainstream-media-silent-after-florida-reports-3rd-lowest-rate-of-covid-infection/?utm_source=JangoMail&amp;%3Butm_medium=spotim_recirculation&amp;utm_medium=Email&amp;utm_campaign=Good+News+Friday+-+Oct+15+%28344795572%29&amp;utm_content=)
+[佛罗里达州将对拜登政府疫苗强制令发起诉讼](https://justthenews.com/nation/states/florida-sue-feds-over-biden-employer-vaccine-mandate)
 
-***听写：**阿甘*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
-***校对: **小雨*
+新闻访谈终审：暗黑
+编辑/校对/审核：Hetangyuese
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

@@ -2,31 +2,33 @@
 ---
 
 
-## 健康男孩接种后上网课时死亡，母亲向辉瑞问责
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1596581/)
+## 针下亡魂｜美国 21 岁医科生接种疫苗1日后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1596153/)
 
-据《红声媒体》詹姆斯·萨姆森2021年10月13日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ym_adobespark.png)图片来自网络
-“*对于大脑、心脏、肝脏和肾脏的微血管损伤，这些潜在药物目前似乎没有做过安全性试验的评估。”*
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 15/10/2021**
 
-一名来自加州16岁身体状况良好的男孩，在接受第二剂辉瑞(Pfizer)中共病毒疫苗后在网课课堂上死亡。
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
 
-7月13日，该男孩的母亲向美国食品和药物管理局(FDA)和疾病控制与预防中心(CDC)管理的疫苗不良事件报告系统(VAERS)提交了一份报告，称她的儿子在4月接受第二剂辉瑞的实验性中共病毒疫苗27天后去世了。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/28-1.jpg)
 
-“我儿子在Zoom上数学课时去世了。我们正在等待尸检，因为医生没有发现任何东西，”这位母亲在报告中写道。 “他是一个健康的男孩，他的学习成绩很好，他想成为一名土木工程师。他是我生命中最美好的事物。”
+【美国】俄亥俄州一名 21 岁男性 John Francis Foley 在接种完强生 COVID-19 疫苗的 24 小时后死亡。
 
-“他之前没有任何症状。一小时前我和他在一起，并且我的助手在20分钟前看到了他，他没有表现出任何反常现象，”她在疫苗不良事件报告系统的“诊断实验室数据”部分补充道。
+John 是当地辛辛那提大学国家荣誉学会医学预科生，成绩相当优秀，但由于该学校早前曾经强制所有学生接种疫苗，John 于 4 月 10 日接受了第一针疫苗。
 
-据报道，这名男孩于4月3日接种了第二剂疫苗，然后于4月27日死亡。他的母亲表示，他没有被诊断出有任何过敏症、既往病症、疾病、残疾或先天缺陷。在他去世近期，也没有服用任何药物。这名少年在医院住了八天，目前尚不清楚他是从医院参加的Zoom课堂，还是在他去世前已经出院。
+当晚，他在自己的 Facebook 上写下了人生的最后一篇贴文，“身体感到十分不适，希望早点休息，明天醒来，一切会有好转”，可惜，他再也没醒过来。
 
-几个月来，媒体一直在试图扫除有关儿童被中共病毒疫苗伤害或杀害的报道。早在6月份，儿童健康防御部门就查看了有关儿童接种中共病毒疫苗的早期数据。结论发现，“对于12-17岁的儿童，在接受第二剂后7天内发生心肌炎/心包炎的风险是普通男性的32倍，女性的9.5倍。”
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Mary-Beth-Foley.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Jennifer-Snyder-Benedict.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Lisa-Foley.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Foley-family-statement-1170x525-1.png)
 
-对于18至24岁的年轻人，发生心肌炎和心包炎的风险增加是普通男性的27倍。
 
-帕特里克·惠兰 (Patrick Whelan) 医生是一名照顾患有多系统炎症综合征儿童的儿科专家，他最近发表讲话警告说，疫苗中发现的刺突蛋白对年轻人特别关注，因为它是一种潜在的致命毒素，会导致“对于大脑、心脏、肝脏和肾脏的微血管损伤，这些潜在药物目前似乎没有过安全性试验的评估。”
+维权律师 Mark R. Weaver 代表 John 的家人发表声明：
 
-【本文仅代表作者个人观点】
+尽管 John 在接种疫苗之后的 24 小时就去世了，但官方公布的死因甚至都未提到接种疫苗这件事，仅用一个没有人听说过的花哨医学术语作为一名健康的 21 岁大学生的死因，他原本有 99.997% 的机会在没有接种疫苗的情况下幸免于 COVID-19。
 
-原文链接：[https://www.redvoicemedia.com/2021/10/healthy-16-year-old-boy-drops-dead-during-virtual-class-mom-blames-pfizers-covid-vaccine/](https://www.redvoicemedia.com/2021/10/healthy-16-year-old-boy-drops-dead-during-virtual-class-mom-blames-pfizers-covid-vaccine/)
+来源｜ [个案028](https://www.wbrc.com/2021/04/16/university-cincinnati-students-death-after-jj-vaccine-under-investigation/)
 
-翻译：Prof.Bacteriophage |校对：烟波浩渺 |编辑&发布：V
+* * *
+
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//

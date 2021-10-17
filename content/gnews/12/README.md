@@ -2,25 +2,27 @@
 ---
 
 
-## 佛罗里达州将对拜登政府疫苗强制令发起诉讼
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1598635/)
+## 澳大利亚面部识别应用程序监控公民隐私
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1598637/)
 
-作者：文一
+作者：文真
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
-继 德克萨斯州 州长 艾伯特 发布行政命令，禁止任何实体强制接种任何中共病毒疫苗三天后，佛罗里达州州长罗恩-德桑蒂斯（Ron DeSantis）也宣称反抗拜登总统对雇主和雇员的疫苗强制政策。
+目前，澳大利亚的南澳大利亚州、新南威尔士州和维多利亚州，正在试用一个为居家隔离设计的面部识别应用程序。该应用使用地理定位和面部识别技术，来帮助监测新冠隔离措施的遵守情况。隔离者如果错过了一次扫描，将收到家庭检疫团队的问询电话，甚至可能会有一名合规官员被派往批准的住址检查情况。
 
-拜登上月初宣布，要求雇员超过100人的企业，和联邦工作人员强制接种疫苗。佛州州长将通过联邦法院和立法推翻这项政策，在美国第11巡回上诉法院提出诉讼。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-16.jpg)
-德桑蒂斯说：”我认为剥夺人们的工作从根本上是错误的，特别是考虑到我们现在面临的经济形势。”许多共和党人也表示，人们拥有自由选择权，政府的多项行为已经侵犯人权。
+澳大利亚一家研究所针对此现象，发表一份最新报告，警告各州政府，应避免家庭检疫程序导致的公民监控。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-9.jpg)
+该机构称，大流行病重塑了监控技术的使用。借新冠疫情，在全球范围内越来越多地使用监控技术，是”令人不安的趋势”。”监控文化的正常化”须予以警告。该报告呼吁各国政府，认识到面部识别技术的缺陷以及它对隐私权构成的风险。同时建议澳大利亚各州政府更新法律，以涵盖面部识别和更有力的人权保护。
 
-据悉该州许多学区和城市都积极相应了州长的命令，取消强制接种。而面对政府限制规定，佛州港口会议则表示，工作人员已经就位，港口将会全部开放为货物交接做准备。盖恩斯维尔市的200多名警察和消防人员，在上个月对市政府提起诉讼，成功回击疫苗强制令，越来越多的城市也将为维护个人隐私权，平等保护和身体完整性等权力而行动起来。
+这款应用程序叫Clearview AI，在多年前就已被全球警方作为执法工具广泛使用。该软件由澳大利亚人郝通赛（Hoan Ton-That）参与开发，业界将此款应用与中共军企海康威视监控软件相类比。
+
+郝通赛表示，这款应用通过对数十亿张社交网络图片进行分析，对于抓取警方数据库中没有记录的人，具有绝对优势。
 
 （本文仅代表作者观点）
 
 参考链接：
-[佛罗里达州将对拜登政府疫苗强制令发起诉讼](https://www.newsmax.com/us/florida-desantis-biden-vaccine/2021/10/15/id/1040662/)
-[佛罗里达州将对拜登政府疫苗强制令发起诉讼](https://trendingpolitics.com/mainstream-media-silent-after-florida-reports-3rd-lowest-rate-of-covid-infection/?utm_source=JangoMail&amp;%3Butm_medium=spotim_recirculation&amp;utm_medium=Email&amp;utm_campaign=Good+News+Friday+-+Oct+15+%28344795572%29&amp;utm_content=)
-[佛罗里达州将对拜登政府疫苗强制令发起诉讼](https://justthenews.com/nation/states/florida-sue-feds-over-biden-employer-vaccine-mandate)
+1. [澳大利亚面部识别应用程序监控公民隐私](https://www.zerohedge.com/political/facial-recognition-apps-home-quarantine-privacy-disaster-report)
+2. [澳大利亚面部识别应用程序监控公民隐私](https://www.abc.net.au/news/2020-01-23/australian-founder-of-clearview-facial-recognition-interview/11887112)
+3. [澳大利亚面部识别应用程序监控公民隐私](https://learningenglish.voanews.com/a/facial-recognition-technology-helps-solve-crimes-raises-privacy-concerns/5938677.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
