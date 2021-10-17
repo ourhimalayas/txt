@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/17/2021 3:14 AM (UTC)`
+
+10/16/2021 Miles Guo’s GETTR: Jiang Zemin, Zeng Qinghong, Meng Jianzhu, Han Zheng, and Wang Qishan have no no choice but to fight against Xi Jinping! Only the US and Japan can grant safety to those who got out of the CCP’s system. Tomorrow I will drop a bombshell on the CCP’s military that will freak the CCP’s officers out. Even the CCP’s National Security Commission, which is equivalent to the KGB, has said that what I talked about has now proved to be true.<br/><br/>10/16/2021 文贵盖特：江、曾、孟、韩、王现已无路可走，将对习反戈一击！只有美、日能让中共体制内逃出来的人有安全；明天将爆会让中共军官们吓尿裤子的军事大料；中共版克格勃 - 国安委称，文贵说的话现在都被证明是真的！<br/>
+![img](https://media.gettr.com/group41/getter/2021/10/17/03/14/8c08e9d0-dd4c-5cfc-706e-861ff4fac885/out.jpg)
+
+---
+
 `@miles 10/16/2021 10:24 PM (UTC)`
 
 10/16/2021 Miles Guo’s GETTR: The New Federal State of China is changing the world by revealing the truth about the COVID vaccines!<br/><br/>10/16/2021 文贵盖特：通过疫苗真相的揭露，新中国联邦正在撬动着地球！
@@ -293,13 +300,6 @@ Henry Reitzug博士：在注射带有被改造氨基酸的新冠mRNA疫苗进入
 
 10月12号：尊敬的战友们好．世界政治经济面临的巨大挑战给新中国联邦带来了前所未有的机会，我们要冷静，客观全面进行揭发．帮助世界拆除共产党在全世界埋下的各种定时炸弹……
 ![img](https://media.gettr.com/group45/getter/2021/10/12/15/dab0ba3c-8ce9-d8bb-af78-b1be6fcdfca7/out.jpg)
-
----
-
-`@miles 10/12/2021 2:50 PM (UTC)`
-
-10月12号：万分感谢战友们制作的精美的视频。【第一次使用航拍，在设备局限技术缺乏情况下，战友们共同完成了庆祝喜币上市的视频拍摄。😅】
-![img](https://media.gettr.com/group11/getter/2021/10/12/14/50/0e9ea057-7aec-8c03-86b3-46054fbf6d7a/out.jpg)
 
 ---
 
