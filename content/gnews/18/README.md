@@ -2,24 +2,31 @@
 ---
 
 
-## 有声|美前国务卿赖斯: 北京遥控“亲中势力”暗中颠覆台湾政权
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1599642/)
+## 加拿大冰球少年接种疫苗两周后死于心脏病
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599760/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据[法广](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211015-%E7%BE%8E%E5%89%8D%E5%9B%BD%E5%8A%A1%E5%8D%BF%E8%B5%96%E6%96%AF-%E5%8C%97%E4%BA%AC%E9%81%A5%E6%8E%A7-%E4%BA%B2%E4%B8%AD%E5%8A%BF%E5%8A%9B-%E4%BB%A5%E4%BE%BF%E9%A2%A0%E8%A6%86%E5%8F%B0%E6%B9%BE%E6%94%BF%E6%9D%83)10月15日报道，美国前国务卿赖斯（Condoleezza Rice）与澳洲大利亚外交部部长唐纳（Alexander Downer）伦敦时间14日透过视讯，出席了英国智库“政策交流”（Policy Exchange）举办的线上座谈会。在谈到台海情势时赖斯指出，美国不会坐视中共国武力犯台。中共不会派遣正规部队攻台，而是透过遥控“亲中势力”颠覆台湾政权。
+作者：雪梨
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+加拿大17岁少年肖恩·哈特曼，在接种新冠疫苗后，身体出现包括心肌炎在内的多种健康问题，两周后，死于心脏病。
 
-美澳双方都表示，中共国不会派遣正规部队抢滩登陆台湾，以免引发美国及其盟友联手驰援台湾。中共国对付台湾的方式，将会比照俄罗斯控制乌克兰东部的做法，遥控台湾内部的“亲中”准军事势力，在台湾内部采取各种扰乱行动，例如切断海底电缆、制造网络安全威胁等，进而颠覆台湾政权。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide15.jpeg)
 
-赖斯强调，幸好，每一次中共国发动台湾亲中势力施展类似的把戏时，都会遭遇台湾社会反弹，造成反效果；因为，台湾民众对自己的民主政治引以为傲，而且对北京当局是有警戒的。
+肖恩酷爱冰球运动，5岁即开始冰球生涯，并为TNT队效力3年，是一名坚实的后卫。据加拿大的相关政策，没有接种疫苗的球员不允许进入冰球馆参加比赛，肖恩因此被迫接种疫苗。
 
-这和郭先生的爆料不谋而合，即那些卖台贼和中共勾结，蓄谋拿下台湾。期盼正义的力量聚集，保卫台湾这一块中华民族最后一片净土。
+据安大略省公共卫生局的一份报告显示，注射第二针疫苗后，18-24岁的男青年患心肌炎/心包炎的比率最高。此前北欧三国承认莫德纳疫苗与青少年心脏疾病相关性，瑞典和丹麦表示将暂停对30岁以下的年轻人接种莫德纳疫苗。加拿大医学教授Steven Pelech博士指出，对19岁以下的青少年来说，疫苗造成伤害约为病毒的4-5倍。
 
-文字版原文：[美前国务卿赖斯: 北京遥控“亲中势力”暗中颠覆台湾政权](https://gnews.org/zh-hans/1596706/)
+越来越多的青少年，倒在新冠毒针之下，父母家长和正义人士在世界各地游行，抗议全球政府残忍的疫苗杀人计划，正如游行人群举起的标语所警示，”孩子们正死于新冠疫苗”。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
+(本文仅代表作者观点)
+
+参考链接：[Teen dies of heart attack soon after getting COVID shot so he could play hockey: report](https://www.lifesitenews.com/news/17-year-old-boy-dies-of-heart-attack-after-taking-covid-jab-that-would-allow-him-to-play-hockey/?utm_source=top_news&amp;utm_campaign=usa)
+[In Loving Memory of Sean Hartman #6](https://beetonstingers.com/Articles/1790/In_Loving_Memory_of_Sean_Hartman_6_/)
+
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
+
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)

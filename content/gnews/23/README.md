@@ -2,19 +2,24 @@
 ---
 
 
-## 秘翻在线：日本“匿名专家”开始打压伊维菌素的使用！
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599565/)
+## 有声|台陆委会称目前局势接近准战争状态!
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1599684/)
 
-撰稿：待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/画像1-13.png)（图片源自本文链接）
-日本产经新闻10月17日发文：【对个人进口伊维菌素的警告：”没有科学证据”】。
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月初的数日内, 中共军机多达149架数次侵犯台湾空域，而且此前中共只是出动侦察机，近日的军事行动则包括了战斗机、轰炸机和预警机等多种机型编队袭扰 , 台陆委会主任邱太三14日表示，这已接近准战争状态!
 
-文章称：从海外进口并使用在日本未获批准的抗寄生虫药物伊维菌素来预防或治疗中共病毒感染已很普遍。由于东京医师会请求政府允许使用伊维菌素，伊维菌素开始引起了人们的注意。但是，在日本和国外的临床试验中并没有显示出其有效性。专家警告：不要服用个人进口的伊维菌素。
+但同时邱太三还爆料称，为回应共军军机侵台，十月初美英日等六国军演时，曾有两架美国战机进入可发射飞弹攻击中共军港射程，而中共雷达却未在第一时间发现美军战机。
 
-文章还说：对中共病毒的惧怕，使得伊维菌素成了被热捧的安慰剂。于是，药品进口商以这为诱饵，在互联网上进行推销。伊维菌素在试管程度的研究中显示出了能够抑制中共病毒生长的结果，引起了人们的关注。评估其有效性和安全性的试验和研究正在日本和国外继续进行中，但还没有显示出明显的效果。
+文字版原文：[台陆委会称目前局势接近准战争状态!](https://gnews.org/zh-hans/1597920/)
 
-[信息源](https://news.yahoo.co.jp/articles/32314040f7730b6d5daf0146c17a0dc73d90d4c5)
-
-在中共病毒蔓延的紧要关头，东京医师会请求政府允许使用伊维菌素！而这篇文章中的没有报上名字的“专家”则相反。而通常情况下，以专家名义发出的警告，应该会产生一定的影响。前后两者表明的，对伊维菌素截然不同的态度，各将为这场史无前例的疫情带来怎样的结果？历史一定会给出明确的答案！
-
-（文章仅代表作者个人观点）
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

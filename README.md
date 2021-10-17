@@ -15,125 +15,125 @@
 
 ---
 
-### [国际要闻汇编](/content/gnews/1/README.md)
+### [俄克拉荷马州长：强制疫苗违宪](/content/gnews/1/README.md)
+ ` Itana`
+
+### [文贵爆料10/17 平安投地产9万亿 中共地产金融泡沫随时崩溃](/content/gnews/2/README.md)
+ ` 秘密翻译组-原创组`
+
+### [呼吸道病毒没有疫苗](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [军方、联邦雇员和联邦民用承包商将起诉拜登](/content/gnews/4/README.md)
+ ` 澳喜农场`
+
+### [台湾正遭受CCP+卖台贼里应外合的攻势](/content/gnews/5/README.md)
+ ` 纽约香草山MOS01`
+
+### [俄罗斯疫苗出口超过7亿美元](/content/gnews/6/README.md)
+ ` HimalayaRussia`
+
+### [七星信仰：信仰就是爱](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [澳大利亚前总理支持台湾加入CPTPP](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [国际要闻汇编](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵爆料:(10/17):中共军队众多高官也逃不过杨改兰的命运](/content/gnews/2/README.md)
+### [文贵爆料:(10/17):中共军队众多高官也逃不过杨改兰的命运](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [爱的真谛：灭共战士最高境界在乎认识自己](/content/gnews/3/README.md)
+### [爱的真谛：灭共战士最高境界在乎认识自己](/content/gnews/11/README.md)
  ` 纽约香草山MOS03`
 
-### [文贵爆料10/17 揭露中共对青蒿素泼污的阴谋](/content/gnews/4/README.md)
+### [文贵爆料10/17 揭露中共对青蒿素泼污的阴谋](/content/gnews/12/README.md)
  ` 秘密翻译组-原创组`
 
-### [加拿大牧师因反抗疫情限制令被捕](/content/gnews/5/README.md)
+### [加拿大牧师因反抗疫情限制令被捕](/content/gnews/13/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [中共国2.6亿老年人，已提前进入老龄化社会](/content/gnews/6/README.md)
+### [中共国2.6亿老年人，已提前进入老龄化社会](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [皮特∙麦卡洛博士：刺突蛋白是一种致命的蛋白](/content/gnews/7/README.md)
+### [皮特∙麦卡洛博士：刺突蛋白是一种致命的蛋白](/content/gnews/15/README.md)
  ` MG 澳喜农场多语组`
 
-### [黄明志再发新作, 小粉红&#8221;玻璃心&#8221;碎一地!](/content/gnews/8/README.md)
+### [黄明志再发新作, 小粉红&#8221;玻璃心&#8221;碎一地!](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [波音公司工人抗议疫苗强制令](/content/gnews/9/README.md)
+### [波音公司工人抗议疫苗强制令](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [加拿大冰球少年接种疫苗两周后死于心脏病](/content/gnews/10/README.md)
+### [加拿大冰球少年接种疫苗两周后死于心脏病](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [拜登突改沉默 面对中共新疆政策罕见表态](/content/gnews/11/README.md)
+### [拜登突改沉默 面对中共新疆政策罕见表态](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [墙内要闻汇编](/content/gnews/12/README.md)
+### [墙内要闻汇编](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵爆料（10/17）：欧洲科学家：青蒿素是人间长生不老药](/content/gnews/13/README.md)
+### [文贵爆料（10/17）：欧洲科学家：青蒿素是人间长生不老药](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [10/17/21 香港快讯 被控袭警罪成 美籍律师提上诉叩问公义](/content/gnews/14/README.md)
+### [10/17/21 香港快讯 被控袭警罪成 美籍律师提上诉叩问公义](/content/gnews/22/README.md)
  ` 英喜-粵語組`
 
-### [有声|台陆委会称目前局势接近准战争状态!](/content/gnews/15/README.md)
+### [有声|台陆委会称目前局势接近准战争状态!](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [DC大中华时事：美国从下月起放宽外国人旅行禁令](/content/gnews/16/README.md)
+### [DC大中华时事：美国从下月起放宽外国人旅行禁令](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共超限战灭港行动（八十）七二一·恐袭事件之官黑勾结警黑合作（中）](/content/gnews/17/README.md)
+### [中共超限战灭港行动（八十）七二一·恐袭事件之官黑勾结警黑合作（中）](/content/gnews/25/README.md)
  ` 英喜-粵語組`
 
-### [有声|美前国务卿赖斯: 北京遥控“亲中势力”暗中颠覆台湾政权](/content/gnews/18/README.md)
+### [有声|美前国务卿赖斯: 北京遥控“亲中势力”暗中颠覆台湾政权](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [信使核糖核酸（mRNA）将如何与我们的细胞互动？](/content/gnews/19/README.md)
+### [信使核糖核酸（mRNA）将如何与我们的细胞互动？](/content/gnews/27/README.md)
  ` MG 澳喜农场多语组`
 
-### [10/17/21国内经济财经周报：房产税呼之欲出；煤碳价格飙升，剪刀差使政策两难](/content/gnews/20/README.md)
+### [10/17/21国内经济财经周报：房产税呼之欲出；煤碳价格飙升，剪刀差使政策两难](/content/gnews/28/README.md)
  ` 秘密翻译组金融团队`
 
-### [中共国试射新型超音速核导弹 美方震惊](/content/gnews/21/README.md)
+### [中共国试射新型超音速核导弹 美方震惊](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵焦点10/17 马上开始的大直播会有全世界必须了解的重要发布](/content/gnews/22/README.md)
+### [文贵焦点10/17 马上开始的大直播会有全世界必须了解的重要发布](/content/gnews/30/README.md)
  ` 秘密翻译组-原创组`
 
-### [秘翻在线：日本“匿名专家”开始打压伊维菌素的使用！](/content/gnews/23/README.md)
+### [秘翻在线：日本“匿名专家”开始打压伊维菌素的使用！](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [爆料革命——历史的今天10月13日](/content/gnews/24/README.md)
+### [爆料革命——历史的今天10月13日](/content/gnews/32/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [美台讨论提前交付 F-16V 战机的可行性](/content/gnews/25/README.md)
+### [美台讨论提前交付 F-16V 战机的可行性](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [中美持续对抗，美国成为印度最大贸易伙伴](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [英国金融时报: 中共试射高超音速巡航导弹!](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [辉瑞科学家：中共病毒疫苗接种女性会将其通过脐带传给孩子](/content/gnews/28/README.md)
+### [辉瑞科学家：中共病毒疫苗接种女性会将其通过脐带传给孩子](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [影评人质疑《长津湖》&#8221;意识形态&#8221;威胁世界](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [接种疫苗的达美航空飞行员在飞行中死亡, 要求飞机紧急降落](/content/gnews/30/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [波音工人在西雅图附近抗议美国疫苗授权](/content/gnews/31/README.md)
+### [波音工人在西雅图附近抗议美国疫苗授权](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美财政副部长威胁：物资会持续短缺直到全民接种](/content/gnews/32/README.md)
+### [美财政副部长威胁：物资会持续短缺直到全民接种](/content/gnews/36/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（十六）](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
-
-### [基因和孩子](/content/gnews/34/README.md)
+### [基因和孩子](/content/gnews/37/README.md)
  ` 骄子`
 
-### [讽刺：中共反人类政府谴责日本“靖国神社”文化（评述）](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [每日快报：大科技公司未能与美国站在一起对抗中共国](/content/gnews/36/README.md)
+### [每日快报：大科技公司未能与美国站在一起对抗中共国](/content/gnews/38/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [日本要闻汇编](/content/gnews/37/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [跪在地上的中共国教育](/content/gnews/38/README.md)
+### [跪在地上的中共国教育](/content/gnews/39/README.md)
  ` 银河勇气之星`
 
-### [FDA的“再来一针”又引发了青年疫苗死亡事件](/content/gnews/39/README.md)
+### [FDA的“再来一针”又引发了青年疫苗死亡事件](/content/gnews/40/README.md)
  ` wenwu`
-
-### [秘翻在线：拜登政府带来了经济“滞涨”](/content/gnews/40/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [由于大量警员抵制，洛杉矶郡警署宣布暂停疫苗强制令](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

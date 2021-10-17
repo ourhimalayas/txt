@@ -2,40 +2,19 @@
 ---
 
 
-## 中共国试射新型超音速核导弹 美方震惊
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1599581/)
+## 文贵爆料（10/17）：欧洲科学家：青蒿素是人间长生不老药
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599739/)
 
-编译**：Lulumi**
+#### 撰稿：萌萌的朋克（秘翻 Gnews 原创组）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-3.jpeg)
+青蒿素是中国人送给世界的礼物，其意义不亚于中共一直鼓吹的四大发明。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-307.png)
+郭文贵先生在2021年10月17日的大直播中转述了欧洲科学家对青蒿素的评价：青蒿素绝对是人间的长生不老药。
 
-图片来源**：**thegatewaypundit.com
+青蒿素最重要的作用是彻底疏通血管。包括癌症、艾滋病在内的任何疾病，都是把人体的免疫力打乱，造成血管堵塞，“不通”是万病之因（中医有云“不通则痛”），青蒿素可以完全清理人体内多余的“垃圾”，无论是因为哪种疾病产生的，都可以清除。
 
-据《金融时报》报道，中国在8月发射了一枚新的超高音速核动力导弹，在低轨道上环绕整个地球。
+欧洲科学家是一位有着数十年研究经验的军医，调入北京防化学院之后所做的工作是人体研究。科学家透露，青蒿素已经广泛运用于中共空军飞行员和潜水艇部队，对于保护血管、改善体质有着神奇的功效。这就是中共和世界上的黑暗势力极力“雪藏”青蒿素的原因。
 
-美国情报部门和美国军方官员都被震惊了。
+信息来源：[2021年10月17日 文贵大直播](https://gettr.com/streaming/peejbb0321)
 
-“我们不知道他们是如何做到这一点的，”一位消息人士告诉《金融时报》。
-
-根据该报告，这枚导弹与目标相差约24英里，让美国情报部门措手不及。
-
-今年早些时候，一张卫星图像显示中国扩大了其核导弹发射井。
-
-美国有线电视新闻网（CNN）在7月高超音速核能力导弹发射前不久报道：“美国科学家联合会（FAS）周一发布的报告说，通过卫星图像识别，中国新疆地区的新导弹基地最终可能包括110个发射井。这是研究人员本月发现的第二个明显的发射井，加
-
-上邻近的甘肃省似乎正在建设的120个发射井，正如詹姆斯·马丁不扩散研究中心所详述的那样。”
-
-与此同时，清醒的美国军方却忙于清理未接种疫苗的军人，并专注于“白人的愤怒”。
-
-*在*[这里](https://www.ft.com/content/ba0a3cde-719b-4040-93cb-a486e1f843fb)阅读完整的报告。
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**参考资料**[thegatewaypundit.com] [China Tests New Hypersonic Nuclear-Capable Missile That Circled Entire Globe at Low-Orbit – US Military Officials Stunned](https://www.thegatewaypundit.com/2021/10/china-tests-new-hypersonic-nuclear-capable-missile-circled-entire-globe-low-orbit-us-military-officials-stunned/)
-
-* * *
-
-*审核：文乐 
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
+（本文仅代表作者个人观点）
