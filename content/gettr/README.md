@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/17/2021 6:25 PM (UTC)`
+
+2021年10月17号，这是去年发出的有关被王岐山和孟建柱．UBS银行和瑞士的这家AMAC公司黑掉了我们基金的飞机的视频，当时被YOUTUBE 删掉了！今天我们再回看这个视频的时候意义重大。接下来我们会在上厕所的时间把这家飞机装修公司的涉嫌恐怖主义洗黑钱和叙利亚的各个恐怖组织联系的证据推出来，让他接受国际上法律的审判。【2020年10月10日：这个来自黎巴嫩的(马黑地)是AMAC飞机装修公司的主席！他与UBS银行孟宏伟．海航一起共同策划了这起骇人听闻的诈骗抢劫案！这是我们十二年的心血．对我付出了一亿一千万现金创造的世界上唯一常中式厨房！用碳纤维．莲花的图腾．爱马仕特制皮革．用中国五行风水概念世界级唯一以中国元素的现代空中艺术品！我会专门直播详细介绍盗国贼是如何操纵这一切的！】
+![img](https://media.gettr.com/group19/getter/2021/10/17/18/25/4c9fcda9-5a77-e189-2c45-b9da193d18b4/out.jpg)
+
+---
+
 `@miles 10/17/2021 5:54 PM (UTC)`
 
 10/17/2021 Miles Guo: During the CCP virus epidemic in Wuhan, Xi didn’t go to Wuhan because he was told Sun Lijun, Wang Like, and others were going to assassinate him. So, Xi immediately sent people to investigate it, had Sun Lijun taken to Shuanggui, put Meng Jianzhu and Wang Qishan under house arrest. It turned out Alvin Jiang was found to be involved in it.<br/><br/>10/17/2021 文贵直播：2020年武汉疫情期间，习没去武汉是因其得知孙力军和王立科等人要杀他，于是习马上派人去查，双规了孙力军，软禁了孟建柱和王岐山，最后发现这跟江志成有关<br/>
@@ -293,13 +300,6 @@ Henry Reitzug博士：在注射带有被改造氨基酸的新冠mRNA疫苗进入
 
 10/12/2021 Miles Guo’s GETTR: The CCP has been deceiving the whole world using the lures of a large potential market and huge investments; By controlling the American lawyers and law firms with threats and temptations, the CCP has infiltrated the judicial system, shaking the foundation of the US.<br/><br/>10/12/2021 文贵盖特：中共利用巨大的潜在市场和投资的诱惑在全球招摇撞骗；中共用威胁和利透拿下了美国的律师和律师事务所，从而渗透了司法系统并动摇了美国的根基<br/>
 ![img](https://media.gettr.com/group31/getter/2021/10/12/22/13/0e3c10e0-7af3-51c5-14f3-041e9ef89494/out.jpg)
-
----
-
-`@miles 10/12/2021 7:42 PM (UTC)`
-
-10月12号：王岐山，和孟建柱．江志成……有关中国国有银行和金融机构的腐败……能查清楚1%，中国人的财政部，的国库，马上就会增加几倍以上净现金。不信咱们走着瞧……中南城的老杂毛……看文贵的视频后．现在冷静多了长大了。【美国《华尔街日报》引述知情人士称，中共总书记习近平向中纪委下指令，审查至少25家国有银行及其他金融机构，要求这些金融机构厘清与大型私营企业的关系。报道又指，金融业是国家副主席王岐山的势力范围，很多金融业高管都跟王岐山有密切关系；王岐山曾任行长的中国建设银行对海航的贷款，预计将成为新一轮审查的一部分。近几个月来，王岐山的政治影响力有所下降。他的一名长期助手在8月被指控受贿7100多万美元。据了解该计划的人士称，王岐山与一些现在面临审查的金融公司有联系。】
-![img](https://media.gettr.com/group46/getter/2021/10/12/19/2a1658f7-8856-e964-68bb-f404728861ec/4b1c9c412cc8d590718f7ed7f5136caa.jpg)
 
 ---
 
