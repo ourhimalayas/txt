@@ -2,9 +2,18 @@
 ---
 
 
-## 俄克拉荷马州长：强制疫苗违宪
-` Itana` [轉載自GNews](https://gnews.org/zh-hans/1599946/)
+## 七哥说— 第21期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1599977/)
 
-By Himalaya Italy Ana
+制作：Inzaghi
 
-我是州长凯文-斯蒂特，我听到许多俄克拉荷马州人对拜登总统对企业的强制疫苗表示担忧。我想直接解决这些问题，这一行为不仅是联邦的过度行为，它是违宪的。
+天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-12.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image1-3.png)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)

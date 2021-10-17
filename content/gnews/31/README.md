@@ -2,19 +2,28 @@
 ---
 
 
-## 秘翻在线：日本“匿名专家”开始打压伊维菌素的使用！
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599565/)
+## 有声|美前国务卿赖斯: 北京遥控“亲中势力”暗中颠覆台湾政权
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1599642/)
 
-撰稿：待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/画像1-13.png)（图片源自本文链接）
-日本产经新闻10月17日发文：【对个人进口伊维菌素的警告：”没有科学证据”】。
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+据[法广](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211015-%E7%BE%8E%E5%89%8D%E5%9B%BD%E5%8A%A1%E5%8D%BF%E8%B5%96%E6%96%AF-%E5%8C%97%E4%BA%AC%E9%81%A5%E6%8E%A7-%E4%BA%B2%E4%B8%AD%E5%8A%BF%E5%8A%9B-%E4%BB%A5%E4%BE%BF%E9%A2%A0%E8%A6%86%E5%8F%B0%E6%B9%BE%E6%94%BF%E6%9D%83)10月15日报道，美国前国务卿赖斯（Condoleezza Rice）与澳洲大利亚外交部部长唐纳（Alexander Downer）伦敦时间14日透过视讯，出席了英国智库“政策交流”（Policy Exchange）举办的线上座谈会。在谈到台海情势时赖斯指出，美国不会坐视中共国武力犯台。中共不会派遣正规部队攻台，而是透过遥控“亲中势力”颠覆台湾政权。
 
-文章称：从海外进口并使用在日本未获批准的抗寄生虫药物伊维菌素来预防或治疗中共病毒感染已很普遍。由于东京医师会请求政府允许使用伊维菌素，伊维菌素开始引起了人们的注意。但是，在日本和国外的临床试验中并没有显示出其有效性。专家警告：不要服用个人进口的伊维菌素。
+美澳双方都表示，中共国不会派遣正规部队抢滩登陆台湾，以免引发美国及其盟友联手驰援台湾。中共国对付台湾的方式，将会比照俄罗斯控制乌克兰东部的做法，遥控台湾内部的“亲中”准军事势力，在台湾内部采取各种扰乱行动，例如切断海底电缆、制造网络安全威胁等，进而颠覆台湾政权。
 
-文章还说：对中共病毒的惧怕，使得伊维菌素成了被热捧的安慰剂。于是，药品进口商以这为诱饵，在互联网上进行推销。伊维菌素在试管程度的研究中显示出了能够抑制中共病毒生长的结果，引起了人们的关注。评估其有效性和安全性的试验和研究正在日本和国外继续进行中，但还没有显示出明显的效果。
+赖斯强调，幸好，每一次中共国发动台湾亲中势力施展类似的把戏时，都会遭遇台湾社会反弹，造成反效果；因为，台湾民众对自己的民主政治引以为傲，而且对北京当局是有警戒的。
 
-[信息源](https://news.yahoo.co.jp/articles/32314040f7730b6d5daf0146c17a0dc73d90d4c5)
+这和郭先生的爆料不谋而合，即那些卖台贼和中共勾结，蓄谋拿下台湾。期盼正义的力量聚集，保卫台湾这一块中华民族最后一片净土。
 
-在中共病毒蔓延的紧要关头，东京医师会请求政府允许使用伊维菌素！而这篇文章中的没有报上名字的“专家”则相反。而通常情况下，以专家名义发出的警告，应该会产生一定的影响。前后两者表明的，对伊维菌素截然不同的态度，各将为这场史无前例的疫情带来怎样的结果？历史一定会给出明确的答案！
+文字版原文：[美前国务卿赖斯: 北京遥控“亲中势力”暗中颠覆台湾政权](https://gnews.org/zh-hans/1596706/)
 
-（文章仅代表作者个人观点）
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

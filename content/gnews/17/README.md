@@ -2,36 +2,19 @@
 ---
 
 
-## 波音公司工人抗议疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599776/)
+## 文贵爆料10/17 揭露中共对青蒿素泼污的阴谋
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1599819/)
 
-作者：飞虹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月15日，在华盛顿州埃弗雷特的波音工厂外，波音员工和其他人和平抗议公司的疫苗强制令。在雨中抗议人群同过往车辆挥手相互呼应。
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Pict1.png)图片来源：GTV、GETTR
+爆料革命发起人郭文贵先生在10月17日大直播的首要话题，聚焦到青蒿素上。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide2-26.jpeg)
+在大直播前，文贵先生接到2年不联系的老领导等人电话，并且还有北京某医院首脑特别谈到某些涉及青蒿素的所谓要求。同时，郭先生还注意到，在之前的48小时内，在网络媒体上，奇怪地出现许多关于青蒿素的“副作用”的各种消息，而且IP几乎都来自香港解放军基地。
 
-波音公司曾在10月12日表示，根据拜登总统的行政命令，将要求其12.5万名美国员工在12月8日前接种疫苗。
+郭先生请直播现场的执业医师，和世界冠军叶钊颖和足球亚洲先生等嘉宾分享了自己的体验。
 
-这一要求遭到了大量员工的抵制和抗议。每个人都有选择不接种的权利，政府和企业不能强迫人们做事情。有相当比例的员工已经认识到疫苗的部分真相，新冠疫苗并没有获得正式授权，而是在缺失“知情同意”的情况下，不人道的“人体实验药物”。
+并通报和欧洲科学家等专业人士对青蒿素的核心观点。青蒿素重在强化人的免疫力，并且清理身体中所有不必要的毒素。青蒿素对人类的生命和健康具有非凡的作用。
 
-在德克萨斯州，共和党州长格雷格·阿伯特10月11日发布行政命令，禁止包括私人雇主在内的任何实体强制使用新冠病毒疫苗，波音公司宣布他们的强制令不立即适用于该州的工厂。蝴蝶效应将传遍美国各地，德州和佛州发起的法律诉讼，也为其他地区反抗的人们提供了参考。
+【原文链接】https://gtv.org/broadcast/watch/616c1823304e992109b65282
 
-我们相信，随着疫苗真相的不断被揭露，民众自由权利意识的不断觉醒，为自由争取权力的人们将很快取得最后的胜利。
-
-(本文仅代表作者观点)
-
-参考链接：[Boeing workers stage protest near Seattle over U.S. vaccine mandate](https://www.reuters.com/world/us/boeing-workers-stage-protest-over-vaccine-mandate-2021-10-15/)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对发布：Shifter

@@ -2,146 +2,310 @@
 ---
 
 
-## FDA的“再来一针”又引发了青年疫苗死亡事件
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1599161/)
+## 每日快报：大科技公司未能与美国站在一起对抗中共国
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1599393/)
 
-**编译：西班牙喜悦农场–wenwu**
+*作者：*JAY（杰伊）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip16.png)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
-图片来源：**[Megan Redshaw](https://childrenshealthdefense.org/authors/megan-redshaw/)**
+# ***今日摘要***
 
-美国疾病控制与预防中心 (CDC) 周五（15日）发布的数据显示，在 2020 年 12 月 14 日至 2021 年 10 月 8 日期间，共向疫苗不良事件报告系统 (VAERS) 报告了因接种中共疫苗后的[79万8636 起疫苗不良事件](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=CAT&amp;EVENTS=ON&amp;VAX=COVID19). 数据包括总共[1万6766 份死亡报告](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes)——比前一周增加了 456 份；另外，还有两起青少年在接种中共疫苗后死亡的报告。
+1. [俄罗斯试图加强亚洲关系以对抗印太联盟](https://www.voanews.com/a/russia-tries-to-boost-asia-ties-to-counter-indo-pacific-alliances/6272006.html)
+2. [拜登利用执法者纪念碑推动枪支管制、警察改革，并谴责1月6日事件](https://www.breitbart.com/politics/2021/10/16/joe-biden-uses-law-enforcement-memorial-to-push-gun-control-police-reform-and-condemn-jan-6th/)
+3. [大科技公司未能与美国站在一起对抗中共国](https://www.washingtonexaminer.com/restoring-america/patriotism-unity/big-tech-fails-stand-with-america-against-china)
+4. [中共审查机构正禁止好莱坞电影进入中共国市场](https://www.zerohedge.com/geopolitical/foreign-dangerous-chinas-censors-are-banning-hollywood-films-domestic-market)
+5. [中共国在8月进行了新的高超音速导弹试验](https://www.wionews.com/world/with-new-hypersonic-missile-test-in-august-china-surprised-us-officials-421414)
 
-[在同一时期，](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;SERIOUS=ON)有[11万7399起](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;SERIOUS=ON)包括死亡在内的[重伤报告，](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;SERIOUS=ON)与前一周相比增加了 5478 起；另外，不包括向 VAERS 的“[外国报告](https://wonder.cdc.gov/wonder/help/vaers/VAERS%20Advisory%20Guide.htm)” ，2020 年 12 月 14 日至 2021 年 10 月 8 日期间，美国报告了[60万4160起](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR)疫苗不良事件，其中包括 [7674 人死亡](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR)和[4万8958人重伤](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;SERIOUS=ON&amp;STATE=NOTFR)。
 
-在截至 10 月 8 日美国报告的 7674 例死亡病例中，有 [11% 发生](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR&amp;V2DCHECKED=ON&amp;V2DHIGH=1)在接种疫苗后 24 小时内，有 [16% 发生](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR&amp;V2DCHECKED=ON&amp;V2DHIGH=2)在接种疫苗后 48 小时内，有 [28% 发生](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR&amp;V2OCHECKED=ON&amp;V2OLOW=0&amp;V2OHIGH=2)在接种疫苗后 48 小时内出现症状的人群中；另外，美国已接种 4.003 亿剂中共疫苗。其中[包括](https://ourworldindata.org/grapher/covid-vaccine-doses-by-manufacturer?country=~USA)：2.32 亿剂[辉瑞](https://childrenshealthdefense.org/defender/cheryl-cohen-dies-rare-brain-disease-second-dose-pfizer-covid-shot/)疫苗、1.53 亿剂 [Moderna](https://childrenshealthdefense.org/defender/the-peoples-testaments-polly-tommey-sally-kirkland-moderna-vaccine-constant-pain/) 和 1500 万剂[强生](https://childrenshealthdefense.org/defender/fda-warning-jj-vaccine-serious-rare-autoimmune-disorder/)疫苗（J&J）。
+# 重要事件
 
-以上数据直接来自提交给 VAERS 的报告，VAERS 是美国政府资助的用于报告不良疫苗反应的主要系统。从历史上看，VAERS（如下图）仅报告[了实际疫苗不良事件的 1%](https://digital.ahrq.gov/sites/default/files/docs/publication/r18hs017045-lazarus-final-report-2011.pdf)（实际美国的疫苗不良事件报告或已超过了六千万份）。
+- ** **[**10.15 VOA：俄罗斯试图加强亚洲关系以对抗印太联盟**](https://www.voanews.com/a/russia-tries-to-boost-asia-ties-to-counter-indo-pacific-alliances/6272006.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip17.png)
 
-本周美国** 12 **至** 17 **岁儿童的数据显示：
+分析人士说，俄罗斯正试图通过与东南亚国家联盟成员的会议和计划来扩大其在东南亚的影响力，但似乎没有军事或财政力量来成为该地区的一个更大角色。这一努力包括俄罗斯通过了一个五年的路线图，重点是与东盟10个成员国进行贸易和投资合作，数字经济和可持续发展。
 
-- 总共有[2万1652起](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;VAXTYPES=COVID-19&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)疫苗不良事件，其中[1304 起被评为严重](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;VAXTYPES=COVID-19&amp;SERIOUS=ON&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)，[24 起已报告死亡](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;VAXTYPES=COVID-19&amp;DIED=Yes&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)（其中有两人是自杀）。
+同时，在上个月于符拉迪沃斯托克举行的第六届东方经济论坛上，越南提出自己是连接东盟与俄罗斯和欧亚经济联盟（包括俄罗斯、亚美尼亚、白俄罗斯、哈萨克斯坦和吉尔吉斯斯坦的经济集团）的桥梁，分析家预测莫斯科将寻求加强区域政治关系，以应对印度-太平洋地区的外交转变。
 
+柬埔寨合作与和平研究所的布拉德利-穆尔格说：”俄罗斯希望被视为一个全球大国，为其国内受众服务。”他说：”它希望被视为不仅仅是一个区域实体，而东南亚是一个相对容易进入的途径。”他补充说，获得Sputnik V疫苗以及通过中共国的 “一带一路 “倡议开放贸易走廊，正在为东南亚国家改善与俄罗斯的关系提供额外的激励。
 
-【最近的疫苗死亡事件涉及一名 15 岁的男性，他在接受第一剂辉瑞 (Pfizer) 的中共疫苗后，六天死亡。根据他的 VAERS 报告（[VAERS ID 1764974](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1764974)），这位未接种前曾健康的青少年在接受中共病毒疫苗五天后，汇报了短暂的单侧肩疼痛。第二天，他和两个朋友在社区池塘里玩耍，在绳索秋千上荡来荡去，然后飞到空中，脚先落到了水里。他浮出水面，大笑着告诉他的朋友：“哇，好痛！” 然后他在水下向岸边游去，这是他一贯的做法，但没有重新浮出水面。
+穆尔格说：”随着基础设施的扩展，”一带一路 “的扩展，以及通过丝绸之路倡议连接东南亚到中亚到欧洲，由于这与东南亚的经济走廊相连，有理由增加贸易。”
 
-尸检显示没有头部受伤的外部迹象，但在左脑部有一个小的额叶下出血——一种罕见但致命的[出血性疾病](https://radiopaedia.org/articles/subgaleal-haematoma-2?lang=us)。此外，男孩心脏肿块轻度升高，左心室壁厚度增加，左心室侧壁心肌炎症病灶，心肌细胞坏死与[心肌梗死](https://www.health.harvard.edu/a_to_z/heart-attack-myocardial-infarction-a-to-z)一致。
+另一位分析家说，俄罗斯对澳大利亚、英国和美国结成的AUKUS海军联盟以及由澳大利亚、印度、日本和美国组成的四方联盟的崛起 “私下里感到愤怒”。两者的目的都是为了对抗中共国的影响。
 
-最近的另一例死亡包括一名 16 岁的女性 ( [VAERS ID 1757635](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1757635) )，她汇报了疲劳，并在接受辉瑞 (Pfizer) 的中共病毒疫苗一天后死亡。】
+俄罗斯外交部长谢尔盖-拉夫罗夫在最近举行的外交和国防政策委员会第29届大会上说：”今天最时髦的趋势之一是美国发明的所谓印度-太平洋战略，这是一个由高级官员、管理人员和学者组成的莫斯科组织。”他说：”所有这一切都遵循着侵蚀亚太地区普遍形式的路线，这种形式在过去几十年里在东盟的主持下存在。
 
-- 在12 至 17 岁的儿童中，有 57 份过敏性休克反应的[报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Anaphylactic+reaction+%2810002198%29&amp;SYMPTOMS%5B%5D=Anaphylactic+shock+%2810002199%29&amp;SYMPTOMS%5B%5D=Anaphylactoid+reaction+%2810002216%29&amp;SYMPTOMS%5B%5D=Anaphylactoid+shock+%2810063119%29&amp;SYMPTOMS%5B%5D=Anaphylaxis+prophylaxis+%2810049090%29&amp;SYMPTOMS%5B%5D=Anaphylaxis+treatment+%2810002222%29&amp;VAX=COVID19&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)，其中 96% 的病例危及生命、需要治疗或导致死亡；全归因于[辉瑞的疫苗](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Anaphylactic+reaction+%2810002198%29&amp;SYMPTOMS%5B%5D=Anaphylactic+shock+%2810002199%29&amp;SYMPTOMS%5B%5D=Anaphylactoid+reaction+%2810002216%29&amp;SYMPTOMS%5B%5D=Anaphylactoid+shock+%2810063119%29&amp;SYMPTOMS%5B%5D=Anaphylaxis+prophylaxis+%2810049090%29&amp;SYMPTOMS%5B%5D=Anaphylaxis+treatment+%2810002222%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)。
+他的批评是在俄罗斯政府通讯社塔斯社报道一支舰艇和潜艇分队驶入印度洋，作为俄罗斯太平洋舰队的一部分进行长期部署时提出的。拉夫罗夫在马来西亚也得到了支持，该国国防部长希沙姆丁-侯赛因告诉议会，奥克斯 “也可能激起其他大国在这个地区，特别是在南中国海采取更积极的行动”。
 
+侯赛因说，鉴于AUKUS，定于下个月在文莱举行的东盟国防部长会议有望加强区域防务合作，但分析家们不相信俄罗斯拥有火力、资金或贸易协议，使其在缅甸和越南以外的地区具有任何影响力。
 
-- 有 529 份心肌炎和心包炎（心脏炎症）[报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)，其中有 [508 例](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)归因于辉瑞的疫苗。
+新加坡ISEAS-Yusof Ishak研究所的Ian Storey说：”俄罗斯将自己视为一个大国。”他说，俄罗斯主导着欧亚经济联盟，并在多国团体中拥有 “强大的影响力和重要的既得利益”，如北极理事会（一个位于挪威的政府间组织，旨在促进北极合作）、金砖国家（巴西、俄罗斯、印度、中国和南非的新兴经济体）和上海合作组织（一个包括中国、印度、哈萨克斯坦、吉尔吉斯斯坦、俄罗斯、巴基斯坦、塔吉克斯坦和乌兹别克斯坦的多边安全和发展组织）。”它想要一个席位，它认为这是它与生俱来的权利，这是一种权利感，但它不喜欢多边机构，除非它在这些机构中有压倒性的影响力，”斯托雷说，并补充说莫斯科在东盟或东亚峰会上没有那种 “强大的影响力”。
 
+俄罗斯在东盟的传统影响力仅限于向缅甸和越南出售武器，而且，正如穆尔格所说，”越南已经明确表示，它与俄罗斯的合作方式与其他国家不同”–这是冷战时期两国关系密切的遗产。斯托里对这些观点表示赞同，他指出俄罗斯是一个 “非常交易性的角色”，其他国家，如英国，在东南亚的利益比俄罗斯大得多。
 
-- 有 [117 份](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)关于凝血障碍的[报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)，所有病例均归因于辉瑞公司。
+例如，在病毒大流行之前，俄罗斯和东盟之间的双边贸易每年约为200亿美元，而该集团2019年与英国的贸易额为520亿美元，与澳大利亚的贸易额为930亿美元，与美国的贸易额为3620亿美元，与中国的贸易额为6440亿美元。
 
+斯托里说：”它是该地区的一个参与者，但它不是一个主要参与者。”他说：”他们的军事存在是纸糊的。你知道他们最亲密的伙伴是越南，而他们实际上没有与越南进行过一次军事演习，或者说可能只有一次，这对于两个有几十年国防关系的国家来说是很不寻常的。”
 
-根据本周美国** VAERS **数据（从** 2020 **年** 12 **月** 14 **日到** 2021 **年** 10 **月** 8 **日）所有年龄段的数据显示：
+这个 “也许一次 “演习是指2019年的联合训练演习，涉及一艘旨在救援遇险潜艇的船只。然而，俄罗斯已经与老挝在其远东滨海地区举行了联合军事演习。穆尔格还表示，俄罗斯仍然离中国太近，无法被视为东南亚的独立参与者，但在经济方面，新加坡和越南与欧亚经济联盟的自由贸易协定可以为未来经济增长提供前景。穆尔格说：”但俄罗斯投资者一直相对谨慎。”“与俄罗斯又是精彩的拍照，更多的会议，更多的通往未来的声明，仅此而已，”他说。
 
-- 有 19% 的死亡与心脏疾病有关。
+- ** **[**10.16 BreitBart：拜登利用执法者纪念碑推动枪支管制、警察改革，并谴责1月6日事件**](https://www.breitbart.com/politics/2021/10/16/joe-biden-uses-law-enforcement-memorial-to-push-gun-control-police-reform-and-condemn-jan-6th/)
 
 
-- 有 54% 的死者是男性，有 42% 是女性，其余的死亡报告没有包括死者的性别（未出世？）。
+拜登总统10月16日在第40届全国和平官员纪念仪式上发表讲话，利用这一场合推动枪支管制、警察改革，以及关于1月6日的抗议活动是 “叛乱 “和对民主的根本威胁的说法。
 
+总统在国会山的台阶上发表讲话，赞扬了在1月6日的抗议活动中保卫大楼的国会警察。拜登说：”九个月前，你们的兄弟姐妹在这里挫败了一场对我们国家的价值观和我们的选票的违宪和根本性的非美攻击。因为你们，民主得以幸存。”
 
-- [平均死亡年龄](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes)为 72.7 岁。
+拜登批评公众对警察期望过高，他们是第一个对精神健康事件和家庭纠纷作出反应的人。他说：”今天做警察比以往任何时候都难得多，”他指出，2020年是有记录以来执法部门死亡最多的一年。拜登发誓要继续推动更多的警察改革立法，给执法人员提供更多的工具，以便更好地管理社区。他承诺：”我们还没有任何进展，但我们会到达那里。”
 
+总统说，警察应该得到心理健康工作者的支持，他们可以更好地处理工作中的困难情况。他说：”你不应该是那个不得不劝说别人离开屋顶边缘的人。你应该有专业人员帮助你。”
 
-- 有[2973 份贝尔氏麻痹的](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Bell%27s+palsy+%2810004223%29&amp;VAX=COVID19&amp;STATE=NOTFR)报告，有 51％ 是由于[辉瑞](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Bell%27s+palsy+%2810004223%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR)公司的疫苗，有 41％ 归因于 [Moderna 的疫苗](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Bell%27s+palsy+%2810004223%29&amp;VAX=COVID19&amp;VAXMAN=MODERNA&amp;STATE=NOTFR)，以及有 8％ 归因于[强生公司](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Bell%27s+palsy+%2810004223%29&amp;VAX=COVID19&amp;VAXMAN=JANSSEN&amp;STATE=NOTFR)。
+拜登回顾了他因癌症失去儿子博，以及他的小女儿在车祸中丧生的情况，以表达对那些在执行任务中失去亲人的家庭的同情。他还利用这番话来推动更多的枪支管制。拜登说：”我们需要共同努力，应对枪支暴力这一流行病，”他指出，全国各地的警察在执法问题上都 “力不从心”。
 
+他指出，他的司法部在司法部长加兰的领导下，让枪支远离 “危险人物 “的手中，并让枪支公司承担责任。总统推动扩大各州的 “红旗法”，从被认为不安全的人手中夺走枪支，并推动民主党在重新授权《反对暴力侵害妇女法》中扩大 “红旗 “条款。他说：”这些步骤将保护你，保护你所服务的人。”
 
-- 有 661 份报告属于[吉兰·巴雷综合征](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Guillain-Barre+syndrome+%2810018767%29&amp;VAX=COVID19&amp;STATE=NOTFR)，其中有 40％ 的病例[归因于辉瑞](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Guillain-Barre+syndrome+%2810018767%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR)，有 31％ 归因于 [Moderna](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Guillain-Barre+syndrome+%2810018767%29&amp;VAX=COVID19&amp;VAXMAN=MODERNA&amp;STATE=NOTFR)，以及有 28％ 归因于[强生公司](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Guillain-Barre+syndrome+%2810018767%29&amp;VAX=COVID19&amp;VAXMAN=JANSSEN&amp;STATE=NOTFR)。
+- **[10.16 Washington Examiner：大科技公司未能与美国站在一起对抗中共国](https://www.washingtonexaminer.com/restoring-america/patriotism-unity/big-tech-fails-stand-with-america-against-china)**
 
 
-- 有 1995 份过敏性休克反应的[报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Anaphylactic+reaction+%2810002198%29&amp;SYMPTOMS%5B%5D=Anaphylactic+shock+%2810002199%29&amp;SYMPTOMS%5B%5D=Anaphylactoid+reaction+%2810002216%29&amp;SYMPTOMS%5B%5D=Anaphylactoid+shock+%2810063119%29&amp;SYMPTOMS%5B%5D=Anaphylaxis+prophylaxis+%2810049090%29&amp;SYMPTOMS%5B%5D=Anaphylaxis+treatment+%2810002222%29&amp;VAX=COVID19&amp;STATE=NOTFR)，该反应会危及生命、需要治疗或导致死亡。
+美国企业一直是打败美国敌人的关键。在第二次世界大战期间，大企业使美国成为 “民主的武器库”。它帮助打败了种族灭绝的法西斯主义。在政府和企业之间的合作努力的刺激下，创新对赢得冷战同样重要。
 
+不幸的是，今天，许多美国科技巨头不愿意帮助他们的国家对抗极权主义的中共国。更糟糕的是，还有人在帮助中国共产党。9月2日，美国空军的软件主管尼古拉-查兰辞职，以抗议目前的情况。在10月10日的采访中，Chaillan告诉《金融时报》，他因美国军队的技术转型步伐缓慢而辞职。”我们在15到20年内没有与中国竞争的机会，”他警告说。”现在，这已经是一笔交易了；在我看来，它已经结束了。” 他告诉《金融时报》，在对未来至关重要的领域，北京正在顺利实现全球主导地位：人工智能、网络能力和机器学习。
 
-- 有[1万0131份](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;STATE=NOTFR)关于凝血障碍的[报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;STATE=NOTFR)。其中有 [4407 份报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR)归因于辉瑞，有[3654 份报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=MODERNA&amp;STATE=NOTFR)归因于 Moderna，有 [2018 份](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=JANSSEN&amp;STATE=NOTFR)[报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR)归因于[强生](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=MODERNA&amp;STATE=NOTFR)。
+相比之下，几个美国政府机构的网络防御处于 “幼儿园水平”，Chaillan说。他对五角大楼的官僚主义、缺乏资金以及负责关键单位的无能领导人表示遗憾。但是，Chaillan提到了美国落后的另一个原因。大型科技公司。他说，谷歌不愿意与五角大楼在人工智能方面合作。这是个问题。
 
+正如国防部长劳埃德-奥斯汀在2021年7月指出的那样，”像人工智能这样的技术进步正在改变战争的面貌和速度”。奥斯汀告诉国家人工智能安全委员会，中共国寻求 “到2030年在人工智能领域成为全球主导”。这种情况的发生将对未来产生潜在的可怕后果。大部分的责任可以归咎于大科技公司的门。
 
-- 有 [2818 例](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;STATE=NOTFR)心肌炎和心包炎，其中 [1782 份](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR)归因于辉瑞，有 [915 份](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;VAXMAN=MODERNA&amp;STATE=NOTFR)归因于 Moderna，有 [111 份](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;VAXMAN=JANSSEN&amp;STATE=NOTFR)归因于强生的中共疫苗。
+2017年，美国国防部承认，为了 “整合人工智能和机器学习”，它需要 “做得更多，走得更快”，并启动了Maven项目。五角大楼希望找到使用人工智能来更新其能力的方法。例如，它寻求使用人工智能来分析美国无人机捕获的数据。但五角大楼向私营部门提出的帮助请求引起了谷歌员工的反感。数千名谷歌员工给首席执行官桑达尔-皮查伊写了一封公开信，称 “谷歌不应该从事战争业务”。他们呼吁取消Maven项目，并呼吁 “谷歌起草、公布和执行一项明确的政策，说明谷歌或其承包商永远不会建立战争技术”。
 
+2018年6月，谷歌向美国媒体透露，它不会延长帮助五角大楼进行Maven项目的18个月合同。《华盛顿邮报》称，此举是在谷歌面临 “员工因帮助开发可能有助于战争的技术工具而辞职 “之后。此后，谷歌高管们谴责了他们对美国国家安全事业不感兴趣的印象。2020年，该公司宣布与五角大楼签订了有限的合同，以应对网络威胁。
 
-**FDA **小组一致支持** Moderna **和** J&J **为老年人和高危人群，提供**“**再来一针**”**
+然而，谷歌的道德观是有偏差的。该公司在中共国建立了一个主要的人工智能中心，并推出了一些企业，军方领导人警告说，这些企业将 “帮助专制政府对自己的人口实施控制”。2019年，时任参谋长联席会议主席约瑟夫-邓福德将军说，谷歌 “间接为中共军方带来好处”。
 
-[据 CNBC 报道](https://www.cnbc.com/2021/10/15/fda-panel-unanimously-recommends-jj-covid-booster-shots-to-millions-of-americans.html)，美国食品和药物管理局 (FDA) 的一个顾问小组今天一致投票决定，向超过 1500 万已经接种第一剂疫苗的美国人推荐第二针强生中共疫苗；FDA的许多投票委员会建议为 18 岁以上的每个人都接种加强针（至少在他们接受第一剂后两个月）。
+中共国公司对中国共产党言听计从。中共国国家的支持似乎让北京在美国不能输的领域获得了决定性的优势。谷歌和其他大科技公司不愿意帮助国防，这是一个重大的历史偏差。大企业在实现美国在两次世界大战和随后的冷战中的胜利中发挥了重要作用。大科技公司缺乏爱国主义精神，损害了国家利益。如果中国共产党在未来的战争中获胜，一些最大的美国公司很可能会受到责备。
 
-[据路透社报道](https://www.reuters.com/business/healthcare-pharmaceuticals/us-fda-advisers-weigh-case-covid-19-vaccine-booster-shots-2021-10-14/)，FDA 的顾问小组于周四（14日）一致建议为 65 岁及以上的美国人以及那些有严重疾病，以及职业暴露于中共病毒的高风险人群提供 Moderna 的中共疫苗。
+- ** [10.16 Zero Hedge：中共审查机构正禁止好莱坞电影进入中共国市场](https://www.zerohedge.com/geopolitical/foreign-dangerous-chinas-censors-are-banning-hollywood-films-domestic-market)**
 
-匹兹堡大学医学院的帕特里克·摩尔博士说：“数据本身是并不强大的，但它肯定是朝着可以支持这一投票的方向发展。”摩尔说，他投票支持 Moderna 加强针主要是基于“直觉，而不是真正严肃的数据”。值得一提的是，他们投票后，Moderna 股价上涨近 3%，至 330.71 美元。
 
-如果 FDA 签署了所谓专家组对强生和 Moderna 的中共病毒疫苗“再来一针”的建议，CDC 将就谁应该来接种中共疫苗提出[具体建议](https://www.reuters.com/business/healthcare-pharmaceuticals/us-fda-advisers-weigh-case-covid-19-vaccine-booster-shots-2021-10-14/)。CDC 的疫苗顾问定于下周开会。
+正如美国政治领导人和金融巨头一样，好莱坞也误判了中共国的意图。在大连万达收购美国制片公司传奇娱乐之后，一些人警告说，中国政府正试图通过在美国电影中注入微妙的中共国宣传来颠覆美国观众对中共国的看法。但事实证明，北京和习近平并没有拥抱好莱坞的意图：相反，他们似乎在试图阻止中共国消费者吸收好莱坞的颓废文化价值观。这就是为什么近年来美国电影越来越多地被阻止在中共国娱乐市场上放映。
 
-白宫告诉州长们准备为年幼的孩子接种疫苗，即使** FDA **尚未批准它**
+根据《日经新闻》的一篇报道，虽然好莱坞电影公司希望中共国成为大片的主要增长市场，但中共国的审查人员对允许在这个世界第二大经济体放映的电影非常挑剔，其票房收入在2020年超过了美国2（主要归功于大流行病）。就像NBA球员需要注意他们对香港等敏感问题的言论一样，好莱坞演员也需要小心翼翼，以免触及神经。当约翰-塞纳在《速度与激情9》的宣传片中不小心将台湾称为 “一个国家 “时，他差点让制片厂损失超过2亿美元。最后，他为自己的诚实错误乞求中共的原谅。
 
-**在周二（12日）与美国州长的私人电话中，白宫告诉各州[准备在](https://childrenshealthdefense.org/defender/white-house-governors-prepare-vaccinate-young-kids-fda-not-approved/) 11 月初为 5 [岁的儿童接种疫苗](https://childrenshealthdefense.org/defender/white-house-governors-prepare-vaccinate-young-kids-fda-not-approved/)，尽管 FDA 尚未授予 5 至 11 岁年龄组的中共病毒疫苗的紧急使用授权。
+虽然不可预测，但中共国一直是美国电影公司决策的一个主要因素。电影制作有时会对场景进行调整，以获得进入中共国的机会。1986年大片《绝命毒师》续集的预告片显示，主角马弗里克的皮夹克上的日本和台湾国旗已被移除，以避免触及中共国监管机构的神经。6月，《速度与激情9》的主演约翰-塞纳因在电影宣传片中把台湾称为 “国家 “而向中国粉丝道歉。”速度与激情9》在中共国赚了近2.04亿美元，在美国赚了1.73亿美元。
 
-据[NBC 新闻报道](https://www.nbcnews.com/politics/white-house/white-house-tells-states-prepare-covid-vaccinations-young-children-n1281384)，拜登政府购买了 6500 万剂儿科的[辉瑞/BioNTech 疫苗](https://childrenshealthdefense.org/defender/pfizer-trovan-vaccine-injured-killed-kids/)——如果 FDA 批准辉瑞公司要求为低年龄组接种中共[疫苗](https://childrenshealthdefense.org/defender/pfizer-trovan-vaccine-injured-killed-kids/)，这足以为估计有资格的 2800 万儿童接种疫苗；政府[上周告诉供应商](https://childrenshealthdefense.org/defender/white-house-governors-prepare-vaccinate-young-kids-fda-not-approved/)，儿童疫苗将在 FDA 授权后一周内运送到美国数千个地点，包括州、药房、学校和医疗团体。儿科辉瑞中共疫苗的剂量将是成人疫苗的三分之一。
+有时，预测中共国观众对一部电影的反应会很困难。以《尚志》为例，该片因其全亚洲的演员阵容而受到广泛赞誉。这部电影在中共国受到了广泛的批评，尽管它在全球获得了数亿美元的收入。电影公司和明星经常发现自己被卷入中共国社交媒体的争议中。由于几乎是全亚洲的演员阵容，《尚志》得到了很好的评价、广泛的赞赏和丰厚的利润。根据Box Office Mojo的数据，截至10月5日，其美国票房已超过2亿美元，全球票房为3.88亿美元。但在海外宣传时，中共国的网民批评明星刘思敏和阿瓦菲娜不符合中共国传统的美貌标准，也批评反派人物普通话是一种刻板印象。美国的一些评论家对曼达林也有类似的批评–曼达林是漫威漫画中傅满洲的严重改编版本–但中国演员梁朝伟在影片上映前就因为这个角色在中共国社交媒体上受到了特别严厉的批评。
 
-印第安纳州的父母说，儿童在错误地接种成人剂量的中共疫苗后出现不良反应** 
+虽然漫威电影在中国大受欢迎，但一些人担心即将上映的《永恒战士》电影可能会被中共国审查机构封锁。一些人怀疑即将上映的 “永恒 “面临确保上映日期的困难，因为它的导演，奥斯卡获奖的中国人Chloe Zhao，在几年前的一次采访中被批评对她的祖国发表了不恭维的评论。她获得奥斯卡奖的消息在中共国互联网上也被封锁了。目前仍不清楚中国电影观众今年是否能够观看《永恒》。”如果我是投资者，我会非常担心此时的策略，它取决于进入中国市场和中国电影监管机构的好感，”《中国制造的好莱坞》的作者、弗吉尼亚大学的媒体研究教授Aynne Kokas说。”从我的角度来看，制作非常昂贵的电影，期望能够向中共国市场提供，然后又不确定这是否可能，这实际上是一种在财务上更不负责任的策略。”
 
-**[据《国会山》报道](https://thehill.com/policy/healthcare/576765-indiana-parents-say-children-suffering-adverse-reactions-after-COVID-19-vaccine)，约书亚和亚历山德拉·普莱斯于一周前带着他们四岁的儿子和五岁的女儿去印第安纳州的一家 Walgreens 打了[流感疫苗](https://childrenshealthdefense.org/protecting-our-future/flu-shot-facts/)，但孩子和父母都被误导了，不知情下接种了辉瑞的中共病毒疫苗（出示的广告故意误导公众“流感/中共病毒疫苗”）。
+中共国的审查机构每年只允许34部外国电影在中共国大陆上映的配额。尽管好莱坞的监管机构和中国的审查机构之间进行了多年的谈判，但中国政府一直拒绝改变这一配额。北京还对中共国的流媒体服务中的外国内容设置了上限。更重要的是，北京最近对自己的娱乐业进行了镇压（禁止描述 “娘娘腔 “的男人，同时将中国最受欢迎的女演员之一从中共国互联网上抹去），这进一步支持了一个事实，即北京对什么娱乐应该被允许，什么不应该被允许有着非常明确的想法。
 
-父母说，他们的孩子 Sophia 和 Lukas 正在经历疫苗的副作用（辉瑞疫苗只被批准用于 12 岁及以上）——包括发烧、身体疼痛、咳嗽、头痛和恶心（儿童接种中共病毒的成人版疫苗是无法隐藏其杀人目的）。“这两位 4 岁和 5 岁的孩子，还分别因心动过速和血压升高而接受儿科心脏病专家的治疗，”Prices 的律师丹·图利 (Dan Tuley) 在一份声明中说。
+“南加州大学专门研究中国政治和社会的政治学教授斯坦利-罗森（Stanley Rosen）说：”你看看所有对所谓的娘娘腔男孩的批评，关闭K-pop粉丝俱乐部，关闭教英语的辅导服务，英语不包括在学校期末考试中……这是现在的气氛，外国是危险的，好莱坞也受制于此，。
 
-贝勒医学院国家热带医学院院长彼得·霍兹 (Peter Hotez)[告诉美国有线电视新闻网](https://www.cnn.com/2021/10/13/us/parents-say-walgreens-mistake-covid-vaccine/index.html)，对于父母来说，印第安纳州的两位父母基本上定义为加强针，因为父母已经在 4 月份接种了中共疫苗。
+虽然好莱坞迄今为止一直依赖中共国的增长，但北京并不需要好莱坞做任何事情。事实证明，自制的爱国主义大片在中共国和国外都是大热门。在过去六年中，国产电影的收入一直领先于中共国的票房。
 
-新数据显示帕森纳**·**特纳综合症与** mRNA **中共疫苗有关
+但是，如果说好莱坞仍然需要中共国，那么中共国是否需要好莱坞就是一个开放的问题。根据跟踪应用程序Dengta的数据，2021年上半年，中共国的票房大约达到39亿美元，尽管过去收入最高的电影是好莱坞大片，但在过去六年中，国产电影已经夺得桂冠。”嗨，妈妈 “是一部感人至深的中共国电影，讲述了一个女人回到过去，试图让她的母亲生活得更好，到目前为止，它的票房是2021年全球最高的，达到8.22亿美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip18.png)
+爱国的中共国大片也创造了很多收入。根据Box Office Mojo的数据，”长津湖之战 “在中共国的国庆节周末收获了2.032亿美元的收入。因此，美国电影公司现在有一个困难的选择。他们可以开始对中共国市场的需求更加敏感。但这种 “疯狂 “的做法很可能会在国内引起反弹，因为政客们指责好莱坞将利润置于人权之上。
 
-根据 10 月 14 日Medscape [发表](https://www.medscape.com/viewarticle/960858)的一篇文章，在法国国家药品和保健品安全局（ANSM）最近的一份[药物警戒监测报告中](https://ansm.sante.fr/actualites/point-de-situation-sur-la-surveillance-des-vaccins-contre-la-covid-19-periode-du-03-09-2021-au-16-09-2021)，帕森纳·特纳综合症（PTS）被强调为 mRNA 中共病毒疫苗的一种潜在疫苗不良反应；PTS 是一种罕见的疾病，其特征是突然出现严重的肩部疼痛，然后是手臂麻痹。这种反应似乎在男性中比在女性中更常见。
+- [10.17 Wionews：中共国在8月进行了新的高超音速导弹试验](https://www.wionews.com/world/with-new-hypersonic-missile-test-in-august-china-surprised-us-officials-421414)
 
-自监测计划开始以来，共报告了 6 起与[辉瑞 Comirnaty 疫苗](https://childrenshealthdefense.org/defender/childrens-health-defense-sues-fda-pfizer-comirnaty-covid-vaccine/)相关的严重病例，其中 4 起发生在 9 月（3-16）日；与辉瑞疫苗相关的所有 6 例病例均涉及 19 至 69 岁的患者，包括两名女性和四名男性——他们在接种疫苗后 50 天内出现 PTS 症状。一半的病例发生在第一针之后，另一半病例发生在第二次针之后。目前有四名患者正在康复中，另外两名患者的结果是未知的…
 
-[报告指出](https://ansm.sante.fr/uploads/2021/09/24/20210923-covid-19-vaccins-moderna-rapport-15.pdf)，这个时间点表明 PTS 与中共疫苗之间可能存在联系，第三个病例发生在疫苗接种后的50多天；报告称，mRNA 疫苗约等于患上 PTS 已“得到官方认可”。根据10 月 8 日发布的一份[药物警戒报告](https://ansm.sante.fr/uploads/2021/10/08/rapport-16-astrazeneca-vfa.pdf)，它也被认为是[阿斯利康](https://childrenshealthdefense.org/defender/deaths-johnson-johnson-astrazeneca-vaccines-strokes-young-adults/)疫苗的“潜在信号”，该[报告](https://ansm.sante.fr/uploads/2021/10/08/rapport-16-astrazeneca-vfa.pdf)描述了八起疫苗接种后的 PTS 案例。
+一份报告说，在中国用高超音速导弹测试新的空间能力后，美国情报官员感到惊讶。   根据《金融时报》10月16日的报道，中国在8月发射了一枚具有核能力的高超音速导弹，该导弹在低轨道上环绕地球，然后向其目标下降。高超音速滑翔器由长征火箭运载。
 
-数据显示，儿童感染中共病毒的风险**“**不具有威胁**”**
+报道援引了熟悉该测试的多个消息来源。消息人士还说，它错过了20多英里（32公里）。 报道援引消息人士的话说，中共国在 “高超音速武器方面取得了令人震惊的进展，比美国官员意识到的要先进得多”。
 
-正如 The Defender 10 月 12 日[报道的那样](https://childrenshealthdefense.org/defender/new-york-times-overstates-number-children-hospitalized-covid/)，来自华盛顿州国王县的新数据——其中包含该县最详细的中共病毒数据——显示未接种中共疫苗的儿童的风险与 50 多岁接种中共疫苗的人的风险，是相似的。
+美国国防部新闻秘书约翰-柯比说，在两国努力发展高超音速武器的过程中，美国将中共国视为头号 “步调一致的挑战”。  “我们已经明确表示了我们对中共国继续追求的军事能力的担忧，这些能力只会加剧该地区和其他地区的紧张局势，”柯比补充说。
 
-据[《纽约时报》报道](https://www.nytimes.com/2021/10/12/briefing/covid-age-risk-infection-vaccine.html)，来自英国的全国统计数据显示，年龄和风险呈现出两极化。12 岁以下未接种疫苗的儿童感染中共病毒（Covid-19)的风险似乎低于 40 多岁（如果不是 30 多岁）接种中共疫苗的人。
+这种导弹可以运送核武器，并以超过五倍的音速飞行。它具有机动性，这使得它更难被发现和防御。除中国外，其他一些国家也在研究这项技术。   中共国的发言人刘鹏宇说，中国没有全球战略或军事行动计划。   刘说：”我们对与其他国家进行军备竞赛完全不感兴趣。相反，美国近年来一直在编造’中国威胁’等借口，为其军备扩张和发展高超音速武器辩护。这直接加剧了这一类别的军备竞赛，严重破坏了全球战略稳定。”
 
-对于没有严重疾病的儿童来说，出现中共病毒重症的风险非常低，以至于难以被量化。[据《纽约时报》报道](https://www.nytimes.com/2021/10/12/briefing/covid-age-risk-infection-vaccine.html)，对于患有这种情况的儿童来说，危险性更高，但仍低于许多人认为的风险水平。
+# 每日文贵说
+![](https://himalayawashingtondc.org/wp-content/uploads/2021/10/905-1536x864-1-1024x576.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip19.png)
 
-简评：
+# 更多要闻链接
 
-一则相关[报道](https://childrenshealthdefense.org/defender/white-house-governors-prepare-vaccinate-young-kids-fda-not-approved/)。
+1. [新加坡新的强有力的 “外国干涉 “法引发了对滥用的担忧](https://www.voanews.com/a/singapore-passes-powerful-foreign-interference-law-stirring-fears-of-abuse/6273407.html)
+2. [伦敦数百名民众10月17日游行，要求 “不要给我们孩子打针 “及 “我的身体我做主”](https://www.dailymail.co.uk/news/article-10099081/Hundreds-anti-vaxxers-march-London-demanding-dont-jab-kids-body-choice.html)
+3. [美国海军部长威胁海豹突击队如不接种疫苗就偿还训练费用](https://www.thegatewaypundit.com/2021/10/us-navy-secretary-lloyd-austin-threatens-navy-sealss-get-vax-will-fired-may-force-pay-back-cost-training/)
+4. [达美航空首席执行官表示公司将不会执行强制疫苗](https://www.breitbart.com/politics/2021/10/16/delta-airlines-ceo-will-not-enforce-divisive-vaccine-mandate/)
+5. [台湾正在寻求提前交付66架F-16V战斗机，同时希望采购100多枚AGM-158远程导弹](https://www.taiwannews.com.tw/en/news/4316806)
+6. [拜登承认他3.5万亿美元的大规模社会支出计划在目前不会通过，需要进行缩减](https://nypost.com/2021/10/15/joe-biden-admits-3-5t-social-spending-plan-wont-pass/)
+7. [德国黑森州通过动议允许食品店禁止未接种疫苗人群进入](https://www.zerohedge.com/political/german-state-allows-food-stores-ban-unvaccinated)
+8. [英国顶级博彩公司看好川普2024年获胜](https://www.zerohedge.com/political/trump-favored-win-2024-among-top-uk-betting-houses)
 
-在给 [The Defender](https://childrenshealthdefense.org/defender/) 的一封电子邮件中，Mumper 说她希望白宫会考虑以下数据：
 
-- [99.998%](https://www.cdc.gov/coronavirus/2019-ncov/hcp/planning-scenarios.html)的 18 岁以下中共病毒感染者从 COVID 中幸存下来；
-- 中共病毒“疫苗”尚未经过[充分的长期安全研究](https://www.npr.org/sections/health-shots/2021/02/19/969143015/long-term-studies-of-covid-19-vaccines-hurt-by-placebo-recipients-getting-immuni)；
-- 根据疫苗不良事件报告系统（VAERS）的[最新数据](https://childrenshealthdefense.org/defender/vaers-cdc-serious-injuries-deaths-covid-vaccines/)，截至 10 月 1 日，在 12 至 17 岁年龄段共有[2万1298](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;VAXTYPES=COVID-19&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)起不良事件报告，其中[有 1284 起被评为严重](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;VAXTYPES=COVID-19&amp;SERIOUS=ON&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)，[22 起死亡报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;VAXTYPES=COVID-19&amp;DIED=Yes&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)（22 起死亡中有 2 起是自杀）；
-- 接种中共病毒“疫苗”的健康青少年会出现[血栓](https://childrenshealthdefense.org/defender/teen-hospitalized-brain-blood-clots-after-pfizer-vaccine/)、[心肌炎](https://childrenshealthdefense.org/defender/13-year-old-jacob-clynick-dies-pfizer-vaccine-myocarditis/)、月经异常、[神经系统症状](https://childrenshealthdefense.org/defender/sarah-green-16-year-old-neurological-symptoms-pfizer-vaccine/)和极度疲劳；
-- 大多数中共病毒病例是[从成人传播给儿童的](https://pediatrics.aappublications.org/content/pediatrics/early/2020/07/08/peds.2020-004879.full.pdf)——儿童对老年人和弱势群体没有重大威胁。
+# 每日推特文摘
 
 
-Mumper 说，（请记住）中共疫苗是不会减少病毒传播，接种中共疫苗的人可以[感染](https://childrenshealthdefense.org/defender/covid-outbreak-vaccinated-patient-herd-immunity-theory/)和[传播中共病毒](https://childrenshealthdefense.org/defender/covid-outbreak-vaccinated-patient-herd-immunity-theory/)，我们应该首先做到不对孩子造成伤害。
 
-**FDA **将于** 10 **月** 26 **日召开辉瑞儿童疫苗会议，专家质疑其必要性和安全性
+普京发表北京无需武统台湾言论 引多方解读 俄罗斯总统 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 周三（10月13日）说，台海没有爆发武装冲突的危险，北京统一 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) “不需要动用武力”，他的一句话引起各界关注和不同解读。
 
-辉瑞公司和 BioNTech 公司本月表示，他们提交了一份 EUA [请求](https://childrenshealthdefense.org/defender/pfizer-vaccine-immunity-fda-kids-5-to-11/)，[要求](https://childrenshealthdefense.org/defender/pfizer-vaccine-immunity-fda-kids-5-to-11/) 5 至 11 岁的儿童接受较低剂量的中共疫苗。FDA 的咨询委员会定于 10 月 26 日开会讨论该请求。
 
-辉瑞公司对小学适龄儿童的研究包括来自美国、芬兰、波兰和西班牙的志愿者。尽管[辉瑞公司表示](https://abcnews.go.com/Politics/white-house-tells-governors-ready-start-vaccinating-kids/story?id=80542481)该研究表明较小的剂量是“安全有效的” ，但尚未公开发布有关儿童的临床试验中疫苗有效性的确切细节。
 
-据《纽约时报》前[记者](https://www.alexberenson.com/about-the-author/)[亚历克斯·贝伦森](https://alexberenson.substack.com/p/pfizer-is-now-officially-asking-to/comments)（Alex Berenson 是十二部小说和两本非小说类书籍的作者，目前是 Substack 出版物“未报道的[真相](https://alexberenson.substack.com/)”的作者）声称，辉瑞公司针对 5 至 11 岁儿童的中共疫苗的[临床数据](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-and-biontech-announce-positive-topline-results)显示，没有证据表明接受中共疫苗的儿童有实际的所谓健康益处。
 
-“换句话说，辉瑞公司在其 2300 名儿童试验中证明，它的 mRNA 剂量可以让你的孩子制造[刺突蛋白](https://childrenshealthdefense.org/defender/moderna-pfizer-vaccines-blood-clots-inflammation-brain-heart/)（并产生副作用），”贝伦森说。
 
-（文章仅代表作者观点与GNEWS无关）
+> 普京发表北京无需武统台湾言论 引多方解读 
+> 
+> 俄罗斯总统 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hash&amp;ref_src=twsrc%5Etfw) 周三（10月13日）说，台海没有爆发武装冲突的危险，北京统一 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hash&amp;ref_src=twsrc%5Etfw) “不需要动用武力”，他的一句话引起各界关注和不同解读。[https://t.co/PIJNi6aEth](https://t.co/PIJNi6aEth)
+> — 大纪元新闻网 (@dajiyuan) [October 16, 2021](https://twitter.com/dajiyuan/status/1449482788307144704?ref_src=twsrc%5Etfw)
 
-**新闻来源：[The Defender](https://childrenshealthdefense.org/defender/vaers-cdc-covid-vaccine-injuries-deaths-fda-booster-shots/) |作者：梅根·雷德肖｜**[Two other teenage deaths were reported to VAERS because the FDA team recommended Moderna and J&J Booster Shots](https://childrenshealthdefense.org/defender/vaers-cdc-covid-vaccine-injuries-deaths-fda-booster-shots/)**发布时间：2021年10月15日**｜
 
-* * *
 
-***发稿：信心满满***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
+
+
+
+宝能系危机扩大 9项信托踩雷200亿 大陆 [#宝能集团](https://twitter.com/hashtag/%E5%AE%9D%E8%83%BD%E9%9B%86%E5%9B%A2?src=hashtag_click) 的资金链紧张程度不断升级。目前宝能系已出现至少9项信托违约，所涉金额高达200亿（人民币，下同），其旗下各企业的风险系数也不断攀升，有关股权质押、财产冻结、法律诉讼等消息频频爆出。
+
+
+
+
+
+> 宝能系危机扩大 9项信托踩雷200亿 
+> 
+> 大陆 [#宝能集团](https://twitter.com/hashtag/%E5%AE%9D%E8%83%BD%E9%9B%86%E5%9B%A2?src=hash&amp;ref_src=twsrc%5Etfw) 的资金链紧张程度不断升级。目前宝能系已出现至少9项信托违约，所涉金额高达200亿（人民币，下同），其旗下各企业的风险系数也不断攀升，有关股权质押、财产冻结、法律诉讼等消息频频爆出。[https://t.co/ogIwInpfOj](https://t.co/ogIwInpfOj)
+> — 大纪元-中国新闻 (@china\_epoch) [October 16, 2021](https://twitter.com/china_epoch/status/1449475236299161612?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+Gettr——Freedom Truth Media
+
+
+
+
+
+> Gettr——Freedom Truth Media [pic.twitter.com/slT2LfoeBf](https://t.co/slT2LfoeBf)
+> — 安红(澳喜特战旅) (@maryann\_3040) [October 16, 2021](https://twitter.com/maryann_3040/status/1449236401505984514?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+这位疫苗受害者的母亲说她是反对疫苗的， 并恳求她年轻、健康、喜爱运动的儿子相信自己的身体——他不需要接种任何疫苗 。 但是儿子出于周围的压力（道德方面的指责）接种了， 目前处于危险之中。
+
+
+
+
+
+> [https://t.co/ZQirfuxnHJ](https://t.co/ZQirfuxnHJ) 
+> 这位疫苗受害者的母亲说她是反对疫苗的，
+> 并恳求她年轻、健康、喜爱运动的儿子相信自己的身体——他不需要接种任何疫苗 。
+> 但是儿子出于周围的压力（道德方面的指责）接种了，
+> 目前处于危险之中。
+> — 【G时评】Giselle (@GiselleonGnews) [October 17, 2021](https://twitter.com/GiselleonGnews/status/1449670461952987141?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+灾难已经悄悄来临….
+
+
+
+
+
+> 灾难已经悄悄来临…. [pic.twitter.com/swTNKOjxWx](https://t.co/swTNKOjxWx)
+> — FKJ【澳喜特战旅】 (@2020zaijianle) [October 16, 2021](https://twitter.com/2020zaijianle/status/1449474733968343040?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+love this one!
+
+
+
+
+
+> 😂😂😂love this one! [pic.twitter.com/ohNaJWSZNk](https://t.co/ohNaJWSZNk)
+> — The last straw (@starstuded11) [October 15, 2021](https://twitter.com/starstuded11/status/1448854243516035099?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+20211015蓬佩奧國務卿在Nixon圖書館的演講 4.美國沒有人想跟中共國開戰，但CCP卻數十年堅信必將跟美國有一戰 5.能看見它（戰爭）的臨近，而且很難再繞開（本週三七哥大直播剛講了必有一戰） 6.當時蘇聯引起的問題非常複雜，而當下中國共產黨引發的問題更加複雜 完整版↓ [https://gettr.com/post/peblaha03b](https://t.co/qOKJGR76Ep?amp=1)
+
+
+
+
+
+> 20211015蓬佩奧國務卿在Nixon圖書館的演講
+> 4.美國沒有人想跟中共國開戰，但CCP卻數十年堅信必將跟美國有一戰
+> 5.能看見它（戰爭）的臨近，而且很難再繞開（本週三七哥大直播剛講了必有一戰）
+> 6.當時蘇聯引起的問題非常複雜，而當下中國共產黨引發的問題更加複雜
+> 
+> 完整版↓[https://t.co/qOKJGR76Ep](https://t.co/qOKJGR76Ep) [pic.twitter.com/puQLdOJJMF](https://t.co/puQLdOJJMF)
+> — Andy5 (@andy5\_123) [October 16, 2021](https://twitter.com/andy5_123/status/1449300071372132355?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+德州参议院的公开听证会，医药公司责任豁免权是个大问题。这就是郭先生常说的“责任真空”，医药公司不用对任何疫苗副作用负责。政府，雇主，医院也都不用为疫苗副作用负责，只有个人自己为自己负责，出了问题自己承担。这就像是“230法案”，为社交媒体免责，因此，推特，facebook，youtube才可以为所欲为
+
+
+
+
+
+> 德州参议院的公开听证会，医药公司责任豁免权是个大问题。这就是郭先生常说的“责任真空”，医药公司不用对任何疫苗副作用负责。政府，雇主，医院也都不用为疫苗副作用负责，只有个人自己为自己负责，出了问题自己承担。这就像是“230法案”，为社交媒体免责，因此，推特，facebook，youtube才可以为所欲为 [https://t.co/t4rObtR1sP](https://t.co/t4rObtR1sP) [pic.twitter.com/lFGHgHussF](https://t.co/lFGHgHussF)
+> — 🔥火来2号🔥✊🌽🚀 (@jsdfposjpqyuee1) [October 16, 2021](https://twitter.com/jsdfposjpqyuee1/status/1449163992832696320?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+刚刚公布的研究表明刺突蛋白导致炎性血凝块 1，刺突蛋白与纤维蛋白凝血因子结合，导致结构异常的血凝块（下图中粗糙的凝血纤维就是与刺突蛋白结合的结果，正常情况是光滑的），伴有高度炎症反应 2，增强胶质细胞活动，引发肺部病变 3，新冠病人长期携带纤维蛋白自身抗体（自己攻击自己的抗体）
+
+
+
+
+
+> 刚刚公布的研究表明刺突蛋白导致炎性血凝块
+> 1，刺突蛋白与纤维蛋白凝血因子结合，导致结构异常的血凝块（下图中粗糙的凝血纤维就是与刺突蛋白结合的结果，正常情况是光滑的），伴有高度炎症反应
+> 2，增强胶质细胞活动，引发肺部病变
+> 3，新冠病人长期携带纤维蛋白自身抗体（自己攻击自己的抗体） [pic.twitter.com/K97TgGsrev](https://t.co/K97TgGsrev)
+> — 🔥火来2号🔥✊🌽🚀 (@jsdfposjpqyuee1) [October 15, 2021](https://twitter.com/jsdfposjpqyuee1/status/1449134468543889410?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+造假又创新高度，咸阳市委书记、市长亲自下地收玉米！ 我信你个鬼！
+
+
+
+
+
+> 造假又创新高度，咸阳市委书记、市长亲自下地收玉米！
+> 
+> 我信你个鬼！ [pic.twitter.com/wwusDqin3S](https://t.co/wwusDqin3S)
+> — 财经真相 (@caijingxiang) [October 16, 2021](https://twitter.com/caijingxiang/status/1449366626671890439?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+*编辑：JAY（杰伊）
+审核发布：文顾*
