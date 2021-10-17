@@ -2,27 +2,18 @@
 ---
 
 
-## 台湾正遭受CCP+卖台贼里应外合的攻势
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1599891/)
+## 七哥说— 第21期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1599977/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
+制作：Inzaghi
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-16.png)
-文章仅代表作者本人观点，与Gnews无关
+天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。
 
-视频参看：2021.10.17早GTV新闻访谈
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-12.png)
 
-[https://gtv.org/broadcast/watch/616c1743304e992109b650e5](https://gtv.org/broadcast/watch/616c1743304e992109b650e5)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image1-3.png)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+发稿：信心的选择
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)

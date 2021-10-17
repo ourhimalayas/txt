@@ -2,36 +2,49 @@
 ---
 
 
-## 波音公司工人抗议疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599776/)
+## 澳大利亚前总理支持台湾加入CPTPP
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1599865/)
 
-作者：飞虹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月15日，在华盛顿州埃弗雷特的波音工厂外，波音员工和其他人和平抗议公司的疫苗强制令。在雨中抗议人群同过往车辆挥手相互呼应。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/101706-1.jpg)澳大利亚前总理托尼·阿博特。 （美联社照片）
+来自《台湾英文新闻》10月17日的报道
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide2-26.jpeg)
+**摘要翻译：**
 
-波音公司曾在10月12日表示，根据拜登总统的行政命令，将要求其12.5万名美国员工在12月8日前接种疫苗。
+澳大利亚前总理托尼·阿博特(Tony Abbott)周五（10月15日）表示，邀请台湾加入全面与进步跨太平洋伙伴关系协定(CPTPP)以帮助加强这个国家至关重要。托尼·阿博特称，CPTPP成员资格是加强台湾对抗中共国威胁的有效途径。
 
-这一要求遭到了大量员工的抵制和抗议。每个人都有选择不接种的权利，政府和企业不能强迫人们做事情。有相当比例的员工已经认识到疫苗的部分真相，新冠疫苗并没有获得正式授权，而是在缺失“知情同意”的情况下，不人道的“人体实验药物”。
+阿博特在位于华盛顿的智库机构“2049计划研究所”(Project 2049 Institute)组织的关于“与中国战略竞争的创新政策选择”的虚拟讨论中发言时指出，在不到二十年的时间里，中共国已经从一个有机会的国家变成一个竞争者，现在成为一个威胁。他说，历史表明，独裁者只承认实力。
 
-在德克萨斯州，共和党州长格雷格·阿伯特10月11日发布行政命令，禁止包括私人雇主在内的任何实体强制使用新冠病毒疫苗，波音公司宣布他们的强制令不立即适用于该州的工厂。蝴蝶效应将传遍美国各地，德州和佛州发起的法律诉讼，也为其他地区反抗的人们提供了参考。
+阿博特说，对于一个自由国家来说，重要的是要确保它不容易受到挑战，并补充说台湾处于捍卫自由的最前沿。这位前总理表示，国际社会应尽可能地帮助加强东亚民主，其中一种方法就是将其纳入CPTPP。
 
-我们相信，随着疫苗真相的不断被揭露，民众自由权利意识的不断觉醒，为自由争取权力的人们将很快取得最后的胜利。
+阿博特表示，台湾拥有充满活力的经济，尊重法治，并且具有以国际规则为基础的秩序。他说，欢迎台湾加入(CPTPP)。
 
-(本文仅代表作者观点)
+对于中共国的申请，阿博特表示不相信中共国能成功加入贸易协定。中共国正在对澳大利亚实施贸易制裁，任何有尊严的澳大利亚政府都不会支持中共国加入CPTPP。
 
-参考链接：[Boeing workers stage protest near Seattle over U.S. vaccine mandate](https://www.reuters.com/world/us/boeing-workers-stage-protest-over-vaccine-mandate-2021-10-15/)
+阿博特表示，贸易协定要求所有成员遵守法治，但中共政府在共产党领导下非法治理国家。他说，这是其根本问题，并补充说，这也使中共国几乎不可能加入其他国际组织和协议。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**简评：**
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
+CPTPP原称TPP（跨太平洋伙伴关系协定），最初由亚太经合组织成员发起，旨在“促进亚太区的贸易自由化，达成贸易自由之目的”。该协定不仅包含降低关税促进贸易，还赋予跨国企业侵犯消费者权益、劳工权益及破坏环境的强大力量。所以 ，有日本学者分析，CPTPP不是经济架构，而是日本及美国等国家联手在太平洋围堵中共国的政治架构。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+托尼·阿博特于10月8日在台北会见台湾总统蔡英文时曾发表过一段精彩的演讲，严厉抨击中共政府对台湾的霸凌。在演讲中，阿博特一一列举了中共政府的罪状，其中包括将贸易武器化，特别是针对澳大利亚，撕毁有关香港的“一国两制”承诺，将100多万维吾尔族人关进集中营，不断强化针对本国公民的网络监控间谍活动等等。结合本篇报道中阿博特对中共极权运作模式的进一步分析可以看出，独裁的中共政权，根本就不具备加入CPTPP的条件。
+
+通过爆料革命郭文贵先生的爆料我们了解到，从经济到政治，中共政权在世界上的影响力是多方面的，其邪恶力量已经很难被忽视；如果CPTPP签约国决定批准台湾加入，而将中共国排除在外，等于是公开与中共国形成贸易对峙局面，这对于签约各国来说都有很大的挑战性，他们是否能够顶住来自中共国的压力，值得期待。如果事情如预期的发展下去，对中共在经贸领域的打击和威慑将是巨大的，对于我们爆料革命所推动的全球联合灭共事业也会是重大利好，让我们拭目以待。
+
+新闻链接：[Former Australian PM supports Taiwan’s inclusion in CPTPP](https://www.taiwannews.com.tw/en/news/4317315)
+
+***翻译/简评：**Harvey (叶知秋)*
+
+***校对：**感恩*
+
+
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

@@ -2,35 +2,37 @@
 ---
 
 
-## 加拿大冰球少年接种疫苗两周后死于心脏病
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599760/)
+## 国际要闻汇编
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1599843/)
 
-作者：雪梨
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-加拿大17岁少年肖恩·哈特曼，在接种新冠疫苗后，身体出现包括心肌炎在内的多种健康问题，两周后，死于心脏病。
+素材：东京樱花团｜GNEWS组
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide15.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/国际要闻汇编-1.png)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1016/20211016111319937.jpg)
 
-肖恩酷爱冰球运动，5岁即开始冰球生涯，并为TNT队效力3年，是一名坚实的后卫。据加拿大的相关政策，没有接种疫苗的球员不允许进入冰球馆参加比赛，肖恩因此被迫接种疫苗。
+10月17日汇编
 
-据安大略省公共卫生局的一份报告显示，注射第二针疫苗后，18-24岁的男青年患心肌炎/心包炎的比率最高。此前北欧三国承认莫德纳疫苗与青少年心脏疾病相关性，瑞典和丹麦表示将暂停对30岁以下的年轻人接种莫德纳疫苗。加拿大医学教授Steven Pelech博士指出，对19岁以下的青少年来说，疫苗造成伤害约为病毒的4-5倍。
+1、[**IS-K自杀攻击 阿富汗坎达哈清真寺41死70伤**](https://www.aboluowang.com/2021/1016/1660341.html)
 
-越来越多的青少年，倒在新冠毒针之下，父母家长和正义人士在世界各地游行，抗议全球政府残忍的疫苗杀人计划，正如游行人群举起的标语所警示，”孩子们正死于新冠疫苗”。
+2021年10月15日，阿富汗南部坎达哈市一座什叶派清真寺发生自杀炸弹攻击，造成至少41人死亡，约70人受伤。阿富汗北部昆都兹市（Kunduz）一座清真寺一周前遭遇攻击，造成60多人丧命。15日，在南部坎达哈市（Kandahar）又发生自杀炸弹攻击，造成至少41人死亡，约70人受伤，伊斯兰国已宣称犯案。这是自塔利班掌权以来第四起造成重大伤亡的屠杀案。自杀炸弹攻击发生时，坎达哈市比比法蒂玛(Bibi Fatima)清真寺挤满了信徒。从内部的照片显示，窗户破碎，尸体倒在地上，而其他信徒则试图提供帮助。据医院资讯，坎达哈卫生局长阿巴斯告诉法新社，这场自杀炸弹攻击造成41人死亡，另有约70人受伤。
 
-(本文仅代表作者观点)
+2、[**东盟拒绝缅甸军政府领导人出席本月峰会**](https://www.voachinese.com/a/asean-to-exclude-myanmar-junta-20211016/6273543.html)
 
-参考链接：[Teen dies of heart attack soon after getting COVID shot so he could play hockey: report](https://www.lifesitenews.com/news/17-year-old-boy-dies-of-heart-attack-after-taking-covid-jab-that-would-allow-him-to-play-hockey/?utm_source=top_news&amp;utm_campaign=usa)
-[In Loving Memory of Sean Hartman #6](https://beetonstingers.com/Articles/1790/In_Loving_Memory_of_Sean_Hartman_6_/)
+东南亚国家联盟（东盟）成员国外长星期五（10月15日）晚间举行紧急会议，决定邀请一位缅甸非政治代表参加本月举行的地区峰会。东盟主席国汶莱在一份声明中说，由于邀请缅甸政治人物出席的问题无法达成一致，将邀请一名缅甸非政治人物参加10月26日到28日举行的地区峰会。声明说，“由于没有取得足够的进展，以及担心缅甸的承诺，尤其是对在有关各方之间建立建设性对话的承诺，有些东盟成员国建议东盟给予缅甸恢复内部事务和正常化的空间。”声明没有提及敏昂莱的名字，也没有说谁会得到邀请。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+3、[**巴基斯坦开通阿富汗空中过境贸易航线**](https://www.voachinese.com/a/pakistan-opens-air-trade-route-to-afghanistan-20211016/6273870.html)
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
+巴基斯坦首次开通连接阿富汗的空中过境贸易航线，帮助阿富汗政府应对日益加剧的经济危机。巴基斯坦阿富汗问题特别代表萨迪克星期六（10月16日）在推文中说，“伊斯兰堡国际机场现在对高价值的阿富汗过境贸易开放。”萨迪克说，包机星期五把“不同的产业进口物资”运到伊斯兰堡，然后把这些阿富汗过境货物装进了集装箱，再经过陆路把这些物资通过西北部阿富汗边境的过境口岸运往喀布尔。塔利班接管阿富汗后，巴基斯坦几乎每天都向阿富汗运送几十卡车的人道救援物资，并在上月取消了从阿富汗进口水果的销售税，以鼓励阿富汗的贸易商和农民。但巴基斯坦领导人并没有承认塔利班政府，理由是他们将等待塔利班兑现承诺以及国际社会的承认。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+4、[**联合国呼吁提高世界贫困人口的粮食安全**](https://www.voachinese.com/a/un-calls-to-combat-hunger-20211016/6273505.html)
+
+联合国秘书长古特雷斯在纪念“世界粮食日”的活动中呼吁国际社会采取积极行动和投资，加强地区的粮食系统。古特雷斯承认，在2030年前消除世界饥饿的目标可能无法实现。他说世界上30亿人口中有40%无法负担得起一个健康的饮食，这正导致营养不良和肥胖症在世界范围内传播。联合国警告说，全球范围内的冲突、流离失所、气候变化和新冠病毒对经济造成的影响正在导致饥饿的增加，让难民和因冲突而在国内被迫流离失所的民众面临最大的危险。联合国粮农组织建议发展多样性的农业系统，提高对气候变化和其它冲击的适应能力。
+
+5、[**朝鲜按对政权忠诚度将百姓分为3个阶级51个阶层**](https://www.aboluowang.com/2021/1017/1660447.html)
+
+金氏政权依据对自己的忠诚度，设计了一套精致的出身成分制度，把国民分为：3大阶级51种成分。以这一套制度配给国民不同的教育、工作、能获多少粮食配给、医疗照护，婚姻配偶，甚至居住的城市。出身成分制度源于金氏家族极权制度的确立，因此其划分的标准也是上溯三代对金家忠诚度的调查。1957年，金日成在八月宗派事件后开始肃清朝鲜劳动党党内苏联派与亲中的延安派，随后，为了方便从源头上将“可能危害体制稳定的人群”隔离开来，1958-1960年对一般市民根据对金日成的忠诚度分为“核心阶级”、“动摇阶级”、“敌对阶级”3种类。当时，三个阶级的比例是核心阶级30%，动摇阶级40%，敌对阶级30%。核心阶级多是金日成在中国东北抗日时的战友，地位最高，动摇阶级对党不置赞否，人口最多；而敌对阶级则是对党持敌视和否定态度，大概有7万人，被发配至山区居住并被监视，其中大概6000人被以反革命的名义处决。
+
+（本文只代表个人观点，与Gnews网站无关）
+
+*编辑：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
