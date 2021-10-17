@@ -2,16 +2,24 @@
 ---
 
 
-## 教宗呼吁制药公司放弃中共病毒疫苗专利
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1598819/)
+## 因华盛顿州强制疫苗令失去工作的巡警以粗口表达对州长的不满
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1598821/)
 
-#### 编译：致敬香港！
+#### 编译：Grace
 校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-79.jpg)图片来源：网络合成
-据合众国际社10月16日报道，在当日的 “人民运动”国际会议（World Meeting of Popular Movements）中，教宗方济各（Pope Francis）通过视频呼吁制药公司放弃新冠疫苗专利、做出人道的举措。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-47.jpg)图片来源：Survival magazine
+据The Gateway Pundit 10月16日报道，一名因未接种中共病毒疫苗而被解雇的华盛顿州巡警，在其巡逻车上发布了最后一次签字的视频，在视频中他对强制要求州雇员接种中共病毒疫苗的州长杰伊.英斯利（Gov. Jay Inslee）留言说： “杰伊. 英斯利可以吻我的腚。”
 
-这位来自拉丁美洲的教宗在38 分钟的视频演讲中还呼吁，媒体停止散播虚假信息、同情受害者；科技巨头停止利用人性的脆弱谋取利益；金融机构取消对穷国的债务；自然资源行业停止污染；大型食品公司停止生产和分销垄断，让饥饿的人更容易获得食物；停止武器制造商的活动等等。
+这位华盛顿州亚基马市（Yakima County）的巡警在工作了22年后, 离开了自己的工作岗位—因未接种中共病毒疫苗被州长英斯利解雇了。
 
-教宗表示，个人改变是必要的，但也必须调整社会经济模式、使更其人性化，因为许多现有模式已经失去了人性。
+今天距离华盛顿州大多数州政府、医疗保健和学校工作人员接种中共病毒疫苗的最后期限还有两天。在今年夏天，州长杰伊.英斯利发布命令说：“在10月18日或之前出示疫苗接种证明，否则将失去工作。”
 
-**新闻来源：**[Pope asks pharmaceutical companies to release patents for COVID-19 vaccines](https://www.upi.com/Top_News/World-News/2021/10/16/pope-pharmaceutical-companies-patents-covid-19-vaccines/3221634420392/)
+在周四，英斯利宣布，截至本周，超过90%的华盛顿州政府工作人员已被核实是完全接种疫苗了，这比几周前的68%有所提高。
+
+该州的财务管理办公室在本周早些时候报告说，最大的州机构之间的比率有所不同。社会和卫生服务部工作人员的比率为91%；惩教部监狱雇员的比率为84%至91%；华盛顿州巡逻队工作人员的比率为89%。
+
+西雅图脱口秀主持人杰森.兰茨（Jason Rantz）发布了这名未透露姓名的巡警最后一次签字的视频，“我要离开了。在为华盛顿州的公民服务了二十二年后，我被要求离开，因为我 “脏 “了。无数次的死亡、受伤，我带病工作、带病比赛，这些年我们埋葬了很多朋友。我想感谢你们，我想感谢亚基马市的公民以及我在山谷中的同事。没有你们，我不会有很大的成功，你们让我安全，让我每晚回家与家人团聚。谢谢你们。希望我可以说更多，但是，这就是它。所以，请保持10-34，这是你们最后一次在州巡逻车上听到我的声音。杰伊.英斯利可以吻我的腚。”
+
+杰森.兰茨发推说：“他（英斯利）的强者疫苗政策，将在周一解雇成千上万的工人。警察、教师、护士、巴士司机，以及更多的人将因为英斯利的独裁冲动而失去生计。这些影响将是严重的。”
+
+**新闻来源：**[**Washington State Trooper Fired Over COVID Vaccine Mandate Has Final Signoff Message: “Jay Inslee Can Kiss My A\*\*”**](https://www.thegatewaypundit.com/2021/10/washington-state-trooper-fired-covid-vaccine-mandate-final-signoff-message-jay-inslee-can-kiss/)

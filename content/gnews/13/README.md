@@ -2,48 +2,13 @@
 ---
 
 
-## 中共是美国“气候变化”激进主义会议的幕后推手
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1598955/)
+## 秘翻在线：完全接种也无济于事 球队多人感染中共病毒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599034/)
 
-【评论】中共作为世界上最大的碳排放国，它永远不会履行任何气候协议。中共赞助气候变化会议是醉翁之意不在酒，它希望“体制的改变而不是气候的改变”，其实质是在利用气候变化问题去攻击美国的民主和人权等制度，中共的邪恶渗透表现在方方面面，真是360度无死角。
+#### 翻译/撰稿：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ArizonaCardinals.jpg)图片来源：dynastynerds
+10月16日据NOQ Report的报道，亚利桑那红雀队是全国橄榄球联盟中最后一支不败的球队，但他们的主教练克利夫·金斯伯里（Kliff Kingsbury）因核酸检测呈阳性从而成为第一个因中共病毒而缺席比赛的教练。亚利桑那红雀队只能在没有主教练的情况下，努力保持他们不败的成绩。
 
-下次您在新闻中看到气候变化抗议活动时，请注意它可能得到了中共的支持。
+据了解，该球队的所有球员和教练都已“完全接种疫苗”。目前各种新闻消息报道病毒突破疫苗的病例很少，但事实上亚利桑那红雀队的主教练克利夫·金斯伯里、总经理史蒂夫·基姆（Steve Keim）、四分卫教练卡姆·特纳（Cam Turner）、另一位未透露姓名的助理、外线卫钱德勒·琼斯（Chandler Jones）和防守截锋扎克·艾伦（Zach Allen）都将错过本周末对战克利夫兰布朗队的比赛，因为他们检测结果呈阳性。疫苗并不能保护他们免受感染，那么接种疫苗的意义何在？
 
-《国家脉搏》（National Pulse）记者娜塔莉·温特斯（Natalie Winters） 2021 年 10 月 14 日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/D14C6A4E-FBF7-44F2-BEB3-6D49302DD18D.png)
-图片来源：国家脉博
-
-《国家脉搏》（National Pulse )透露，一个与中共有联系的外国有影响力的组织赞助了一次气候变化会议，旨在动员美国的青年倡导者。
-
-主办最近会议的实体中美交流基金会 (CUSEF) 是北京“统一战线”的一部分。美国政府认为该组织旨在“拉拢和消除潜在反对中国共产党执政的政策和权威的来源”，并“影响外国政府采取行动或采取支持北京的立场”。
-
-中美交流基金会（CUSEF )的网站指出，它“赞助” 了 与麻省理工学院 （MIT） 和清华大学两所学校合作开展的中美青年气候变化对话。
-
-“由清华大学和麻省理工学院共同主办的中美青年气候变化对话（SAYD）将于第26届联合国气候变化会议( COP26）前一个月的 10 月 8 日举行。此次活动的目的是为中美两国的年轻人提供一个平台，为第26届联合国气候变化会议（COP26）提出应对气候变化和可持续发展的想法和建议。” 中美交流基金会（CUSEF）在向与会者提出以下问题之前解释道：
-
-各国政府应如何应对气候紧急情况？
-
-企业应如何制定可持续发展战略以实现净零排放？
-
-作为个人，我们可以采取哪些行动来减少浪费和气体排放？
-
-会议明确寻求动员青年积极分子。其主题是“让碳中和，青年在行动”。
-
-会议网站补充说，“通过青年代表和现场专家的讨论和分享，论坛希望就这个问题达成共识，并形成有价值的政策建议”。
-
-此次活动的发言人包括中美交流基金会（CUSEF ) 创始人董建华（Tung Chee-hwa）、中共官员以及麻省理工学院和清华大学的校长。据美国国务院称，清华大学也参与了此次会议。 据报道该校对美国政府发起了网络攻击，并在技术和国家安全问题上与中国政府有“明确联系” 。
-
-这所学校是习近平的母校，也是一所“马克思主义”新闻学院。在《纽约时报》、美国有线电视新闻网等机构的协助下，该校培养下一代中共国官方媒体宣传人员。
-
-院长在介绍信中写道: “我们要坚持坚定正确的政治方针。我校积极探索马克思主义新闻学理论与实践，即把马克思主义理论应用于观察世界、选择和处理新闻生产”。
-
-文章来源：[https://thenationalpulse.com/exclusive/ccp-influence-group-sponsors-climate-change-conference//](https://thenationalpulse.com/exclusive/ccp-influence-group-sponsors-climate-change-conference//)
-
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Freeearth
-评论：洛杉矶盘古农场 – Wendy
-编辑：洛杉矶盘古农场 – Wendy
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻来源：[100% ‘Vaccinated’ NFL Team Loses Their Head Coach, Two Assistants, the GM, and Two Players Due to Covid](https://noqreport.com/2021/10/16/100-vaccinated-nfl-team-loses-their-head-coach-two-assistants-the-gm-and-two-players-due-to-covid/)

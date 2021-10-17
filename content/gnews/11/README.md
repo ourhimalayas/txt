@@ -2,13 +2,47 @@
 ---
 
 
-## 秘翻在线：完全接种也无济于事 球队多人感染中共病毒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599034/)
+## 纽约州立大学布法罗分校取消至少30名中共国学生的F-1身份
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599067/)
 
-#### 翻译/撰稿：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ArizonaCardinals.jpg)图片来源：dynastynerds
-10月16日据NOQ Report的报道，亚利桑那红雀队是全国橄榄球联盟中最后一支不败的球队，但他们的主教练克利夫·金斯伯里（Kliff Kingsbury）因核酸检测呈阳性从而成为第一个因中共病毒而缺席比赛的教练。亚利桑那红雀队只能在没有主教练的情况下，努力保持他们不败的成绩。
+作者：文一
 
-据了解，该球队的所有球员和教练都已“完全接种疫苗”。目前各种新闻消息报道病毒突破疫苗的病例很少，但事实上亚利桑那红雀队的主教练克利夫·金斯伯里、总经理史蒂夫·基姆（Steve Keim）、四分卫教练卡姆·特纳（Cam Turner）、另一位未透露姓名的助理、外线卫钱德勒·琼斯（Chandler Jones）和防守截锋扎克·艾伦（Zach Allen）都将错过本周末对战克利夫兰布朗队的比赛，因为他们检测结果呈阳性。疫苗并不能保护他们免受感染，那么接种疫苗的意义何在？
 
-新闻来源：[100% ‘Vaccinated’ NFL Team Loses Their Head Coach, Two Assistants, the GM, and Two Players Due to Covid](https://noqreport.com/2021/10/16/100-vaccinated-nfl-team-loses-their-head-coach-two-assistants-the-gm-and-two-players-due-to-covid/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+据PIE新闻网报道， 近日，纽约州立大学布法罗分校注销了至少30名中共国学生的F-1身份，一个国际教育组织说这是十年中最大规模的集体注销事件。
+
+该校表示，“为了保持学生（F-1）签证身份，新到美国的学生需要向他们的指定学校官员报告，提交有效的美国地址，支付任何所需的费用，并全职入学。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-5.jpg)
+目前，大约37名学生违反了规定。这些学生没有在抵达校园后30天内向国际学生服务处提交I-94文件。该文件是美国国土安全部对进入该国的旅客的抵达和离开记录，用来确认旅客签证状态和留美合法时间。
+
+该校中国学生学者联谊会在社交媒体上称，I-94表格“并不是一个非常难以获得的文件”，但并不是所有的学校都需要。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-96.jpg)
+参考链接：
+[University at Buffalo terminates Chinese students’ F-1 statuses](https://thepienews.com/news/university-of-buffalo-terminates-chinese-students-f-1-statuses/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
