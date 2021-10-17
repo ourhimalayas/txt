@@ -2,22 +2,27 @@
 ---
 
 
-## 在线公益活动揭露中共国&#8221;996&#8243;过劳工作文化
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1598634/)
+## 澳大利亚面部识别应用程序监控公民隐私
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1598637/)
 
 作者：文真
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
-一项名为“工人生命重要”的公益活动，在Github网站分享了一个在线电子表格，鼓励中国不同行业的员工，分享他们的每周工作时间表。截至上周二，该电子表格已经获得了超过一千万的浏览量。目前有超过六千个条目，其中包括腾讯、阿里巴巴和字节跳动等大型科技和金融公司。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-16.jpg)
-最新的运动呼应了科技员工，早先为抗议长时间工作而做出的努力。2019年，一群中国程序员在GitHub上，呼吁驱逐那些被指控虐待员工的初创公司，禁止使用他们的开源代码。
+目前，澳大利亚的南澳大利亚州、新南威尔士州和维多利亚州，正在试用一个为居家隔离设计的面部识别应用程序。该应用使用地理定位和面部识别技术，来帮助监测新冠隔离措施的遵守情况。隔离者如果错过了一次扫描，将收到家庭检疫团队的问询电话，甚至可能会有一名合规官员被派往批准的住址检查情况。
 
-“996”超长时间工作，导致的“过劳死”不断在社交媒体上曝光。中共制国下的各行业公司普遍存在的“996”工作制，是不合理的加班行为，公然违反人权。这种艰苦苛刻的超时工作文化，也是中国工人被“现代奴隶制”压榨的最佳例证。
+澳大利亚一家研究所针对此现象，发表一份最新报告，警告各州政府，应避免家庭检疫程序导致的公民监控。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-9.jpg)
+该机构称，大流行病重塑了监控技术的使用。借新冠疫情，在全球范围内越来越多地使用监控技术，是”令人不安的趋势”。”监控文化的正常化”须予以警告。该报告呼吁各国政府，认识到面部识别技术的缺陷以及它对隐私权构成的风险。同时建议澳大利亚各州政府更新法律，以涵盖面部识别和更有力的人权保护。
+
+这款应用程序叫Clearview AI，在多年前就已被全球警方作为执法工具广泛使用。该软件由澳大利亚人郝通赛（Hoan Ton-That）参与开发，业界将此款应用与中共军企海康威视监控软件相类比。
+
+郝通赛表示，这款应用通过对数十亿张社交网络图片进行分析，对于抓取警方数据库中没有记录的人，具有绝对优势。
 
 （本文仅代表作者观点）
 
 参考链接：
-1. [在线公益活动揭露中共国”996″过劳工作文化](https://www.bloomberg.com/news/articles/2021-10-14/chinese-workers-reveal-hours-online-as-backlash-to-996-grows)
-2. [在线公益活动揭露中共国”996″过劳工作文化](https://www.newsmax.com/newsfront/china-workers-996-protest/2021/10/15/id/1040718/)
+1. [澳大利亚面部识别应用程序监控公民隐私](https://www.zerohedge.com/political/facial-recognition-apps-home-quarantine-privacy-disaster-report)
+2. [澳大利亚面部识别应用程序监控公民隐私](https://www.abc.net.au/news/2020-01-23/australian-founder-of-clearview-facial-recognition-interview/11887112)
+3. [澳大利亚面部识别应用程序监控公民隐私](https://learningenglish.voanews.com/a/facial-recognition-technology-helps-solve-crimes-raises-privacy-concerns/5938677.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 

@@ -2,31 +2,32 @@
 ---
 
 
-## 有声|军方大主教支持宗教人士豁免接种疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1598377/)
+## 俄罗斯海军在日本海驱逐美国军舰
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1598416/)
 
-配音：香草山美食部 – 玫瑰园
+新闻来源：德国NTV媒体网络版
 
-据布莱特巴特新闻网10月14日报道，美国军方天主教大主教蒂莫西-布罗格里奥本周表示，天主教军事人员可以以宗教理由拒绝接种强制的冠状病毒疫苗。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-他在一份声明中说：如果接种COVID-19疫苗会违反他或她神圣的良知，那么任何人都不应该被迫接种，并引用圣保罗六世的话，“公民有权不受阻碍地按照自己的良心生活”。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/5e6fa957f7314b487a0b0a7511cefc3a.jpg)
 
-布罗格里奥大主教指出，美国最高法院已经裁定，宗教信仰不需要被他人接受、不需要符合逻辑、一致或者被他人理解，即可得到第一修正案的保护。
 
-他补充说，拒绝提供宗教便利，或对那些提出真诚的、基于良心的反对意见的人采取惩罚性或不利的人事行动，将违反联邦法律，在道德上应受到谴责。
+资料来源：美联社
 
-近期披露的消息指证，疫苗是用来自堕胎的细胞系开发、测试和生产的，这些都涉及到了道德范畴。
+美国海军将其驱逐舰 “USS Chafee “号驶入俄罗斯声称属于自己的日本海的一部分。一艘俄罗斯军舰将美国人赶走。太平洋地区的此类事件很少，因为中共国主要在该地区活动。
 
-文字版原文：[军方大主教支持宗教人士豁免接种疫苗](https://gnews.org/zh-hans/1594370/)
+俄罗斯谴责一艘美国海军军舰侵入其在日本海的领海。莫斯科国防部表示，” USS Chafee “号驱逐舰无视俄罗斯海军的警告，于周五下午（当地时间日本海）越过海上边界。
 
-音频处理：喜山必胜Maverick
+根据俄罗斯消息，俄罗斯驱逐舰 “特里普斯海军上将 “号曾警告美国军舰不要进入俄罗斯水域。”俄罗斯国防部说：”在国际航行规则的框架内，’特里普斯海军上将’号设定了航线，将入侵者驱逐出俄罗斯领海。当 ” USS Chafee “号离俄罗斯船只不到60米时，它终于转向。
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国海军拒绝了这一说法，认为这一事件是 “假的”。当一艘俄罗斯驱逐舰接近美国海军 ” USS Chafee “号约65米时，其舰艇正在 “日本海的国际水域进行常规操作”。这种互动是安全和专业的。
+
+在任何情况下，美国舰艇都是 “按照国际法和惯例行事”。美国军队将继续 “在国际法允许的地方飞行、航行和行动”。
+
+在太平洋地区与俄罗斯海军发生的事件是相当罕见的。中共国在该地区尤其活跃，北京最近对美国及其盟国的过境和演习做出了越来越愤怒的反应。俄罗斯和中共国这几天正在该地区举行联合海军演习。
+
+[https://www.n-tv.de/politik/Russische-Marine-vertreibt-US-Kriegsschiff-article22869610.html](https://www.n-tv.de/politik/Russische-Marine-vertreibt-US-Kriegsschiff-article22869610.html)
+
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+
+责任编辑/发布： Shuizhuyu
