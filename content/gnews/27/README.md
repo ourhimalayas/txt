@@ -2,35 +2,53 @@
 ---
 
 
-## 佛罗里达州将对拜登政府疫苗强制令发起诉讼
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1598635/)
+## 美国海豹突击队员因寻求疫苗的宗教豁免面临恐吓和骚扰
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1598648/)
 
-作者：文一
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
-继 德克萨斯州 州长 艾伯特 发布行政命令，禁止任何实体强制接种任何中共病毒疫苗三天后，佛罗里达州州长罗恩-德桑蒂斯（Ron DeSantis）也宣称反抗拜登总统对雇主和雇员的疫苗强制政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/101619.jpg)
+**摘要翻译：**
 
-拜登上月初宣布，要求雇员超过100人的企业，和联邦工作人员强制接种疫苗。佛州州长将通过联邦法院和立法推翻这项政策，在美国第11巡回上诉法院提出诉讼。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-16.jpg)
-德桑蒂斯说：”我认为剥夺人们的工作从根本上是错误的，特别是考虑到我们现在面临的经济形势。”许多共和党人也表示，人们拥有自由选择权，政府的多项行为已经侵犯人权。
+福克斯新闻独家报道，美国海军指挥官JH Furman在参加“卡尔森今夜秀”节目时公开表示反对疫苗强制接种政策，称疫苗的影响是未知的。
 
-据悉该州许多学区和城市都积极相应了州长的命令，取消强制接种。而面对政府限制规定，佛州港口会议则表示，工作人员已经就位，港口将会全部开放为货物交接做准备。盖恩斯维尔市的200多名警察和消防人员，在上个月对市政府提起诉讼，成功回击疫苗强制令，越来越多的城市也将为维护个人隐私权，平等保护和身体完整性等权力而行动起来。
+福克斯新闻了解到，越来越多的正在寻求国防部新冠病毒疫苗强制接种政策的宗教豁免的美国海豹突击队员受到威胁，一些人因受到骚扰而屈服。海军一系列的新指令宣布将给予海豹突击队和其他不遵守疫苗强制规定的海军军人严厉惩罚，包括降级、减薪和禁止旅行。对于一些正在寻求宗教豁免的海豹突击队成员来说，这一寻求豁免的过程几乎不可能成功完成。
 
-（本文仅代表作者观点）
+代表着大约34名现役海豹突击队员和两名预备役人员的第一自由研究所的总法律顾问兼美国海军陆战队预备役中校迈克尔·贝瑞(Michael Berry)告诉福克斯新闻，海军的新指令是非法的，侵犯了个人《美国宪法第一修正案》的自由。
 
-参考链接：
-[佛罗里达州将对拜登政府疫苗强制令发起诉讼](https://www.newsmax.com/us/florida-desantis-biden-vaccine/2021/10/15/id/1040662/)
-[佛罗里达州将对拜登政府疫苗强制令发起诉讼](https://trendingpolitics.com/mainstream-media-silent-after-florida-reports-3rd-lowest-rate-of-covid-infection/?utm_source=JangoMail&amp;%3Butm_medium=spotim_recirculation&amp;utm_medium=Email&amp;utm_campaign=Good+News+Friday+-+Oct+15+%28344795572%29&amp;utm_content=)
-[佛罗里达州将对拜登政府疫苗强制令发起诉讼](https://justthenews.com/nation/states/florida-sue-feds-over-biden-employer-vaccine-mandate)
+“清除我们军中的精英军人对美国国家安全有害。这样做是因为总司令拒绝接受他们的宗教信仰，而这是违反宪法的。他们为我们国家服务多年，其经验和领导力是不可估量和不可替代的。”贝瑞对福克斯新闻说。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+贝瑞继续说道，“从特战队中开除海豹突击队员，降低他的薪水，并强迫他偿还训练费，这纯粹是报复性和惩罚性的。这是非法的！这与病毒无关。”贝瑞的这些客户拥有总共超过350年的军事经验和100多次的实战经验。
 
-新闻访谈终审：暗黑
-编辑/校对/审核：Hetangyuese
+美国海军新冠肺炎联合处置管理局(CCDA)周四发布的一项新指令称，如果海豹突击队员拒绝接种疫苗，海军可能会从每个海豹突击队员那里收回政府用于培训他们的资金。对于单个海豹突击队员来说，仅培训费用估计就达数百万美元。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+10月6日，海军发布了一项指令，禁止未接种疫苗的军人及其配偶和家属进行所有公务和非公务旅行。
+
+福克斯新闻审查的另一份内部文件指出，海豹突击队作为特种作战(SO)执勤人员，仅因宗教或个人信仰而拒绝接种疫苗，将被“取消”执行特种作战任务的资格。这意味着寻求宗教豁免的海豹突击队员将会因此而失去 “特战”薪酬。此规定对于那些由于医学原因而不能接种疫苗的海豹突击队队员除外。
+
+海军军方周四告诉现役军人，11月14日是现役水兵接种第二针双剂疫苗或单针单剂疫苗的最后期限。12月14日是预备役人员必须接种的最后期限。
+
+**简评：**
+
+记得川普总统在任期间，也支持疫苗接种政策。众所周知的川普女儿伊万卡还刻意向公众展示了其接种疫苗的过程，可想而知，这种广告效应对美国普通民众的影响是巨大的。如今拜登政府上台后，更是加大了对中共病毒疫苗的推广力度，在全国范围内各个行业实行强制接种政策，哪怕是军队也未能幸免。如今，在世界各国因为疫苗副作用造成的死亡人数不断攀升的情况下，各国政府对强制疫苗接种政策却仍然在继续……
+
+根据我们爆料革命揭露的信息，新冠病毒就是中共政府从实验室制造并用以攻击全世界的生物武器。新冠疫苗更是中共政权及其背后的黑暗势力借此毁灭人类文明的大阴谋。可悲的是，在病毒真相还没有调查清楚的情况下，世界各国政府反倒“相信”并大力推行疫苗强制接种，个中缘由令人深思。
+
+从美国前疾控中心主任雷德菲尔德医生和前国务卿彭佩奥的多次采访中的言论可以看出，美国政府似乎早知道中共病毒真相，但是它依然停止了对中共病毒追责的步伐。作为资助武汉病毒研究所进行新冠病毒“功能增强实验”研究的实体美国国立卫生研究院的领导者–福奇博士与武汉病毒研究所有着千丝万缕的联系，但是他至今还能稳稳地坐在总统首席医疗顾问的位置，禁不住让人思考，美国现任拜登政府与中共政权在中共病毒和新冠疫苗问题上，到底是一种什么关系？世界各国的政治家们又到底想把人类社会的发展推向何方？
+
+新闻链接: [Navy SEALs seeking religious exemptions to vaccine mandate facing intimidation and harassment, sources say](https://www.foxnews.com/politics/navy-seals-coronavirus-vaccine-mandate-religious-exemption-intimidation-harassment)
+
+***翻译/简评：**Harvey (叶知秋)*
+
+***校对：**感恩*
+
+
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

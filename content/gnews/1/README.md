@@ -2,48 +2,36 @@
 ---
 
 
-## 中共是美国“气候变化”激进主义会议的幕后推手
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1598955/)
+## 澳大利亚暂时抵御住中共国紧张局势的影响
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1599056/)
 
-【评论】中共作为世界上最大的碳排放国，它永远不会履行任何气候协议。中共赞助气候变化会议是醉翁之意不在酒，它希望“体制的改变而不是气候的改变”，其实质是在利用气候变化问题去攻击美国的民主和人权等制度，中共的邪恶渗透表现在方方面面，真是360度无死角。
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GettyImages-1231937500-e1634097009429.jpg)图片来源：fortune.com
+#### 编译：小红帽
 
-下次您在新闻中看到气候变化抗议活动时，请注意它可能得到了中共的支持。
+尽管澳大利亚经济的某些领域面临巨大压力，但大宗商品价格趋势、中共国的能源危机和不断发展的亚太防务联盟似乎正在帮助澳大利亚度过与北京的长期对抗。
 
-《国家脉搏》（National Pulse）记者娜塔莉·温特斯（Natalie Winters） 2021 年 10 月 14 日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/D14C6A4E-FBF7-44F2-BEB3-6D49302DD18D.png)
-图片来源：国家脉博
+在总理斯科特·莫里森(Scott Morrison)呼吁对中共病毒（COVID-19）的起源进行国际调查，使其与北京当局的关系恶化近18个月后，分析人士表示，澳大利亚似乎只受到中共国的贸易制裁和其他压力的有限打击。过去一年里，澳大利亚甚至设法扩大了与其最大伙伴的贸易顺差，并达到创纪录的水平，同时为其许多受影响的行业寻找到了新市场。
 
-《国家脉搏》（National Pulse )透露，一个与中共有联系的外国有影响力的组织赞助了一次气候变化会议，旨在动员美国的青年倡导者。
+澳大利亚还成为日益突出的与美国结盟的四边安全对话（Quadrilateral Security Dialogue）联盟的支柱。上个月，澳大利亚获得了与英国和美国的三边AUKUS伙伴关系。这将带来包括核潜艇在内的重大军事利益。
 
-主办最近会议的实体中美交流基金会 (CUSEF) 是北京“统一战线”的一部分。美国政府认为该组织旨在“拉拢和消除潜在反对中国共产党执政的政策和权威的来源”，并“影响外国政府采取行动或采取支持北京的立场”。
+对来自澳大利亚进口煤炭的非正式禁运，是北京当局不满的最大和最明显的表现。一年多来，几十艘载有澳大利亚煤炭的船只滞留在中共国港口外，因为这个世界第二大经济体试图破坏堪培拉第三大出口收入行业的贸易。
 
-中美交流基金会（CUSEF )的网站指出，它“赞助” 了 与麻省理工学院 （MIT） 和清华大学两所学校合作开展的中美青年气候变化对话。
+相反，这些限制措施导致了全球大宗商品供应链的中断，而中共国电力部门的需求不断增长，导致基准优质澳大利亚煤炭的价格在本月触及创纪录的每吨230美元。
 
-“由清华大学和麻省理工学院共同主办的中美青年气候变化对话（SAYD）将于第26届联合国气候变化会议( COP26）前一个月的 10 月 8 日举行。此次活动的目的是为中美两国的年轻人提供一个平台，为第26届联合国气候变化会议（COP26）提出应对气候变化和可持续发展的想法和建议。” 中美交流基金会（CUSEF）在向与会者提出以下问题之前解释道：
+中共国本月允许少量澳大利亚煤炭货物卸货，这是一个巨大的逆转。分析人士现在认为，由于中共国面临严重的电力短缺，北京当局将暂时放宽对动力煤运输的禁令。
 
-各国政府应如何应对气候紧急情况？
+根据进口商的说法，能源咨询公司WoodMackenzie预计将有300万吨澳大利亚动力煤和500万吨冶金煤进入中共国国内市场。
 
-企业应如何制定可持续发展战略以实现净零排放？
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-作为个人，我们可以采取哪些行动来减少浪费和气体排放？
+**参考新闻：**[‘Lucky’ Australia seen weathering impact of China tensions for now – Nikkei Asia](https://asia.nikkei.com/Politics/International-relations/Lucky-Australia-seen-weathering-impact-of-China-tensions-for-now)
 
-会议明确寻求动员青年积极分子。其主题是“让碳中和，青年在行动”。
+***发布：小红帽***
 
-会议网站补充说，“通过青年代表和现场专家的讨论和分享，论坛希望就这个问题达成共识，并形成有价值的政策建议”。
-
-此次活动的发言人包括中美交流基金会（CUSEF ) 创始人董建华（Tung Chee-hwa）、中共官员以及麻省理工学院和清华大学的校长。据美国国务院称，清华大学也参与了此次会议。 据报道该校对美国政府发起了网络攻击，并在技术和国家安全问题上与中国政府有“明确联系” 。
-
-这所学校是习近平的母校，也是一所“马克思主义”新闻学院。在《纽约时报》、美国有线电视新闻网等机构的协助下，该校培养下一代中共国官方媒体宣传人员。
-
-院长在介绍信中写道: “我们要坚持坚定正确的政治方针。我校积极探索马克思主义新闻学理论与实践，即把马克思主义理论应用于观察世界、选择和处理新闻生产”。
-
-文章来源：[https://thenationalpulse.com/exclusive/ccp-influence-group-sponsors-climate-change-conference//](https://thenationalpulse.com/exclusive/ccp-influence-group-sponsors-climate-change-conference//)
-
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Freeearth
-评论：洛杉矶盘古农场 – Wendy
-编辑：洛杉矶盘古农场 – Wendy
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

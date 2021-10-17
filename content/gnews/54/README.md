@@ -2,31 +2,50 @@
 ---
 
 
-## 健康男孩接种后上网课时死亡，母亲向辉瑞问责
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1596581/)
+## 京东网的青蒿素哌喹片下面的评论区让战友们乐翻了天
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1597401/)
 
-据《红声媒体》詹姆斯·萨姆森2021年10月13日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ym_adobespark.png)图片来自网络
-“*对于大脑、心脏、肝脏和肾脏的微血管损伤，这些潜在药物目前似乎没有做过安全性试验的评估。”*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FAitrFlUcAEQKZw_副本-1.jpg)
+京东大药房[现货直发】粤特快青蒿素哌喹片62.5mg:375mg\*4片青蒿素片疟疾恶性疟日间疟三日疟 1盒](https://item.jkcsjd.com/10032140329993.html#comment)下边的评论区让战友们乐翻了天——
 
-一名来自加州16岁身体状况良好的男孩，在接受第二剂辉瑞(Pfizer)中共病毒疫苗后在网课课堂上死亡。
+以备呢个什么之需，有几盒备着心里踏实，一切你们都? 懂得?，，， 2021-09-21 14:18
 
-7月13日，该男孩的母亲向美国食品和药物管理局(FDA)和疾病控制与预防中心(CDC)管理的疫苗不良事件报告系统(VAERS)提交了一份报告，称她的儿子在4月接受第二剂辉瑞的实验性中共病毒疫苗27天后去世了。
+玉米地传奇产品，大品牌，值得信赖，而且价格实惠? 2021-09-20 11:41
 
-“我儿子在Zoom上数学课时去世了。我们正在等待尸检，因为医生没有发现任何东西，”这位母亲在报告中写道。 “他是一个健康的男孩，他的学习成绩很好，他想成为一名土木工程师。他是我生命中最美好的事物。”
+以备呢个什么之需，有几盒备着心里踏实，一切你们都? 懂得?，，，2021-09-21 14:18
 
-“他之前没有任何症状。一小时前我和他在一起，并且我的助手在20分钟前看到了他，他没有表现出任何反常现象，”她在疫苗不良事件报告系统的“诊断实验室数据”部分补充道。
+一起都是刚刚begin，嗯 哈哈哈，亲爱的展有们啊，你们健身了吗，传播。。。。感谢教练，希望人类可以度过这次劫难，阿弥陀佛 2021-10-01 21:17
 
-据报道，这名男孩于4月3日接种了第二剂疫苗，然后于4月27日死亡。他的母亲表示，他没有被诊断出有任何过敏症、既往病症、疾病、残疾或先天缺陷。在他去世近期，也没有服用任何药物。这名少年在医院住了八天，目前尚不清楚他是从医院参加的Zoom课堂，还是在他去世前已经出院。
+今日感觉良好，头晕，乏力有所减轻，感谢兄弟姐妹们，唯真不破 2021-09-29 12:23
 
-几个月来，媒体一直在试图扫除有关儿童被中共病毒疫苗伤害或杀害的报道。早在6月份，儿童健康防御部门就查看了有关儿童接种中共病毒疫苗的早期数据。结论发现，“对于12-17岁的儿童，在接受第二剂后7天内发生心肌炎/心包炎的风险是普通男性的32倍，女性的9.5倍。”
+外包装完好～是按预售下单的，商家很快就发货了，赞个? 据介绍，这款药有很奇特的效果，感谢屠呦呦老人多年坚持不懈的辛苦付出? 2021-09-29 19:28
 
-对于18至24岁的年轻人，发生心肌炎和心包炎的风险增加是普通男性的27倍。
+等了10天终于送到了，兄弟姐妹们，莘县阳谷现大现，咱走走看～2021-10-07 00:52
 
-帕特里克·惠兰 (Patrick Whelan) 医生是一名照顾患有多系统炎症综合征儿童的儿科专家，他最近发表讲话警告说，疫苗中发现的刺突蛋白对年轻人特别关注，因为它是一种潜在的致命毒素，会导致“对于大脑、心脏、肝脏和肾脏的微血管损伤，这些潜在药物目前似乎没有过安全性试验的评估。”
+你健身了吗 [购买18天后追评]
 
-【本文仅代表作者个人观点】
+玉米地出品，大品牌，值得信赖，你懂得！2021-10-15 11:29
 
-原文链接：[https://www.redvoicemedia.com/2021/10/healthy-16-year-old-boy-drops-dead-during-virtual-class-mom-blames-pfizers-covid-vaccine/](https://www.redvoicemedia.com/2021/10/healthy-16-year-old-boy-drops-dead-during-virtual-class-mom-blames-pfizers-covid-vaccine/)
+防火墙无法阻挡对真相的追寻和传递，京东大药房青蒿素下边的评论区，让我们欣喜让我们癫狂，因为我们并不孤独，知道真相的战友们同时也是一颗颗传递真相的火种，在这个至暗时刻，我们彼此相依，待到冲锋号角响起，正是星火燎原时。
 
-翻译：Prof.Bacteriophage |校对：烟波浩渺 |编辑&发布：V
+撰稿：喜马拉雅的肉夹馍
+
+审核：喜马拉雅的馍夹肉
+
+校对：Maarago
+
+（文章内容仅代表作者个人观点）
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

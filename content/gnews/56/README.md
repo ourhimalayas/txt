@@ -2,34 +2,53 @@
 ---
 
 
-## 纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1534601/)
+## 一夜之间停摆的二连浩特
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1596754/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-CN.jpg)
-[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
-
-[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-001-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-002-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-003-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-004-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-005-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-006-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-007-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-008-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-009-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-010-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-011-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-012-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-013-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-014-scaled.jpg)
+作者：纽约香草山教育部 – 糯米团子
 
 
-[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-+4
+
+当地时间10月14日上午，据墙内媒体报道称，内蒙古二连浩特市出现了一例中共病毒阳性确诊病例。此后，二连浩特市全市陷入停工、停学的停摆状态。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-294.png)图源网络
+
+据了解，10月12日，二连浩特市汇通物流园区闭环管理人员在例行隔日核酸检测时出现了一组阳性检测结果。13日，二连浩特市对该园区32名管理人员进行了全员核酸检测，其中一名员工的检测结果阳性。目前，该患者正在接受隔离治疗，园区内也同步展开了严格的环境消杀和后续流调工作。
+
+值得注意的是，此次二连浩特的疫情中，仅因为一个在封闭式管理的物流环境中确诊的病例，当地疫情防控指挥部居然连夜宣布，自14日0时起，二连浩特全市实行封闭管理，各交通出入口进行交通管制，同时要求全市停工、停产、停学，所有经营场所全部关闭，只留水、电、油、气、暖及通信等基本民生部门保持运行。该起疫情的防控力度之大、波及范围之广，令人咋舌。
+
+此前，疫情“遍地开花”的南京机场，在已经出现明显扩散迹象且病例数持续增加的情况下，南京市也只是设立了几个相关的中高风险区，对少数疫情相关区域进行了封闭式管理。至于其他地区，除了例行的全员核酸检测外，民众在工作、出行等方面并未受到过多影响。反观这次二连浩特的疫情，病例出现在封闭管理的物流园内，同时该患者在园区内接受日常核酸检测的频率是隔日一次。事实上，即使他感染的是德尔塔变种毒株，其传代扩散的时间也需要两到三天，且他周围同事目前并未被感染。从总体上判断，本次疫情的源头大概率是来源于物流园区内，而非园区以外。同时，此次疫情的传播链尚未形成，尚属初期阶段。因此，相较于南京等地的疫情，二连浩特的疫情是相当可控的。
+
+那么，对于地广人稀的二连浩特来说，区区一例阳性病例何以要全市停摆呢？就笔者来看，许是政治、经济因素大于防疫需要。二连浩特地理位置特殊，是中蒙最大的陆路口岸城市，也是中蒙两国间唯一的铁路口岸，更是中欧班列中线通道上唯一的出入境口岸——即使是在中共国内疫情严重的2020年，二连浩特口岸每天仍在满负荷运转，目前从二连浩特口岸回程的中欧班列满载率达100%。
+
+另一方面，二连浩特位于中蒙俄经济走廊的关键节点，在粮食进口落地加工方面有得天独厚的优势。目前，中共国的油料、油脂作物对外依存度高——这一直是中共在粮油进口方面急于要摆脱的难题。数据显示，中共在大豆油和棕榈油上对外依存度高达80%和99%，而菜籽油的对外依存度仅有10%。因此，中共国不仅是全球最大的菜籽油进口国，同时也是最大的菜籽油生产国。中共国内的油菜籽主要从加拿大、俄罗斯和蒙古进口：大量由蒙古国和俄罗斯进口的油菜籽被就地加工成菜籽油，随后运往全国各地，甚至逆向销回蒙古。2020年，中共限制从加拿大进口油菜籽，这一粮油通道彼时显得尤为重要。
+
+而今，二连浩特全市因疫情而停摆，这无异给中共国内的粮油市场雪上加霜，让原本就紧张的粮油供应链变得更加岌岌可危。可以说，这一粮道的关闭可能是中共对粮油紧缺问题的仓促掩饰，也可能是中共党内斗争白热化下的又一牺牲品。
+
+也许，粮票与大饥荒真的距离国人同胞们不远了……至少，对于三产（主要为物流）占据了70%，一产占比不到1%的二连浩特来说，寒冬已然到来，比以往哪一年都要残酷凛冽……愿同胞们早日醒来！
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)

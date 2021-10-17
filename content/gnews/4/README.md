@@ -2,25 +2,48 @@
 ---
 
 
-## 针下亡魂｜法国 16 岁少女接种疫苗 5 日后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1598913/)
+## 中共是美国“气候变化”激进主义会议的幕后推手
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1598955/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 17/10/2021**
+【评论】中共作为世界上最大的碳排放国，它永远不会履行任何气候协议。中共赞助气候变化会议是醉翁之意不在酒，它希望“体制的改变而不是气候的改变”，其实质是在利用气候变化问题去攻击美国的民主和人权等制度，中共的邪恶渗透表现在方方面面，真是360度无死角。
 
-***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
+下次您在新闻中看到气候变化抗议活动时，请注意它可能得到了中共的支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/31-1.jpg)
+《国家脉搏》（National Pulse）记者娜塔莉·温特斯（Natalie Winters） 2021 年 10 月 14 日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/D14C6A4E-FBF7-44F2-BEB3-6D49302DD18D.png)
+图片来源：国家脉博
 
-【法国】贝济耶一名 16 岁的女学生 Melanie Macip 在接种完第二针辉瑞 COVID-19 疫苗后第 5 日死亡。
+《国家脉搏》（National Pulse )透露，一个与中共有联系的外国有影响力的组织赞助了一次气候变化会议，旨在动员美国的青年倡导者。
 
-最令人不解的是，Melanie 于 7 月 11 日接受了第一针，2 日后就发生心脏骤停，被紧急送往当地医院抢救，住院期间，即 8 月 2 日，她接受了第二剂辉瑞 COVID-19 疫苗，随后就陷入昏迷状态，直至 5 日后去世。
+主办最近会议的实体中美交流基金会 (CUSEF) 是北京“统一战线”的一部分。美国政府认为该组织旨在“拉拢和消除潜在反对中国共产党执政的政策和权威的来源”，并“影响外国政府采取行动或采取支持北京的立场”。
 
-Melanie 的家人很想知道，到底是谁给住院期间的 Melanie 接种第二针疫苗的？Melanie 又是在什么情况下，接受了第二针疫苗的？
+中美交流基金会（CUSEF )的网站指出，它“赞助” 了 与麻省理工学院 （MIT） 和清华大学两所学校合作开展的中美青年气候变化对话。
 
-Melanie 的疫苗接种证明：
+“由清华大学和麻省理工学院共同主办的中美青年气候变化对话（SAYD）将于第26届联合国气候变化会议( COP26）前一个月的 10 月 8 日举行。此次活动的目的是为中美两国的年轻人提供一个平台，为第26届联合国气候变化会议（COP26）提出应对气候变化和可持续发展的想法和建议。” 中美交流基金会（CUSEF）在向与会者提出以下问题之前解释道：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/melanie1.jpeg)
+各国政府应如何应对气候紧急情况？
 
-来源｜[个案031](https://thecovidworld.com/melanie-macip-16-year-old-girl-suffers-cardiac-arrest-shortly-after-receiving-the-pfizer-covid-19-vaccine-dies-1-month-later/)
+企业应如何制定可持续发展战略以实现净零排放？
 
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//
+作为个人，我们可以采取哪些行动来减少浪费和气体排放？
+
+会议明确寻求动员青年积极分子。其主题是“让碳中和，青年在行动”。
+
+会议网站补充说，“通过青年代表和现场专家的讨论和分享，论坛希望就这个问题达成共识，并形成有价值的政策建议”。
+
+此次活动的发言人包括中美交流基金会（CUSEF ) 创始人董建华（Tung Chee-hwa）、中共官员以及麻省理工学院和清华大学的校长。据美国国务院称，清华大学也参与了此次会议。 据报道该校对美国政府发起了网络攻击，并在技术和国家安全问题上与中国政府有“明确联系” 。
+
+这所学校是习近平的母校，也是一所“马克思主义”新闻学院。在《纽约时报》、美国有线电视新闻网等机构的协助下，该校培养下一代中共国官方媒体宣传人员。
+
+院长在介绍信中写道: “我们要坚持坚定正确的政治方针。我校积极探索马克思主义新闻学理论与实践，即把马克思主义理论应用于观察世界、选择和处理新闻生产”。
+
+文章来源：[https://thenationalpulse.com/exclusive/ccp-influence-group-sponsors-climate-change-conference//](https://thenationalpulse.com/exclusive/ccp-influence-group-sponsors-climate-change-conference//)
+
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Freeearth
+评论：洛杉矶盘古农场 – Wendy
+编辑：洛杉矶盘古农场 – Wendy
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
