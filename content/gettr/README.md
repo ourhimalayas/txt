@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/17/2021 10:21 PM (UTC)`
+
+10/17/2021 Miles Guo: Before Ant Group’s IPO, Sun Lijun confessed that Jack Ma’s boss was Alvin Jiang and that he had hidden and laundered a gigantic sum of money, which Xi Jinping was dumbfounded. Jack Ma was immediately tricked back to mainland China and got arrested, with the Ant Group’s IPO being cancelled<br/><br/>10/17/2021 文贵直播：孙力军在去年初蚂蚁金服上市前供出马云替背后老板江志成藏钱和洗钱，涉及了天量资金，习对此很震惊，马云被立刻骗回大陆并被逮捕，蚂蚁金服上市流产<br/>
+![img](https://media.gettr.com/group48/getter/2021/10/17/22/21/92a4784a-63a8-1294-7204-c04a5f78293d/out.jpg)
+
+---
+
 `@miles 10/17/2021 7:05 PM (UTC)`
 
 October 17, 2021, this is the material sent last year about Wang Qishan and Meng Jianzhu, UBS Bank, and the Swiss AMAC company robbed our Trust fund's aircraft, which Youtube deleted at that time! When we look back to this video today, it means so much. We'll present evidence that this aircraft renovation company's alleged terrorist money laundering links to various terrorist groups in Syria during our bathroom breaks and bring it to trial under international law【October 10, 2020, this is the chairman of AMAC aircraft renovation company from Lebanon, together with Meng Hongwei, UBS bank, and HNA; he planned this appalling scam and robbery! This is our 12 years' work to build this one of a kind aircraft, and I paid $110 million on this project…】
@@ -293,13 +300,6 @@ Henry Reitzug博士：在注射带有被改造氨基酸的新冠mRNA疫苗进入
 
 10月12号：尊敬的战友们好，明天上午9点．10月13号．七哥和我们帅哥，美女战友们继续我们的大直播！
 ![img](https://media.gettr.com/group20/getter/2021/10/12/23/41/2ad3284a-3617-4a4c-f4be-9d3bf55261b7/e5f6f5534b0c580020cb9b32cd17a52d.jpg)
-
----
-
-`@miles 10/12/2021 10:43 PM (UTC)`
-
-10月12号：这个世界最终会被正义唤醒．并会共同的铲除邪恶！【Sir Christopher Chope MP： Covid-19 vaccines has done a lot more damage than any other vaccine program in history; There is causation between vaccinations and damage caused by the vaccine克里斯托弗·乔普爵士议员：新冠疫苗给人们带来的伤害远超历史上任何一种疫苗，接种疫苗和因疫苗造成的伤害之间存在因果关系】
-![img](https://media.gettr.com/group7/getter/2021/10/12/22/43/a5bcb4fd-1f4d-4f81-655f-5998db91cc25/out.jpg)
 
 ---
 

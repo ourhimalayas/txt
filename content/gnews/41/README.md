@@ -2,24 +2,43 @@
 ---
 
 
-## 有声|台陆委会称目前局势接近准战争状态!
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1599684/)
+## 呼吸道病毒没有疫苗
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1599918/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-10月初的数日内, 中共军机多达149架数次侵犯台湾空域，而且此前中共只是出动侦察机，近日的军事行动则包括了战斗机、轰炸机和预警机等多种机型编队袭扰 , 台陆委会主任邱太三14日表示，这已接近准战争状态!
+![](https://assets.gnews.org/wp-content/uploads/2021/10/101708.jpg)
+**简评：**
 
-但同时邱太三还爆料称，为回应共军军机侵台，十月初美英日等六国军演时，曾有两架美国战机进入可发射飞弹攻击中共军港射程，而中共雷达却未在第一时间发现美军战机。
+呼吸道病毒一般没有疫苗。2003年非典病毒期间，曾尝试制造冠状病毒的疫苗，但实验失败了，所有动物都死了。但是如果制造问题吸引大众注意力，就会在引起恐惧的情况下引导大众认可一个解决方案，疫苗因此产生了。疫苗从研制到紧急投入使用仅用了八个月时间，跳过了正常的实验过程。但广泛接种疫苗之后，病毒还在扩散，死亡没有停止。病毒显然是经过改造的，称之为“功能增强”，意味着病毒会更加致命。法国病毒学家Luc Montagnier博士分离病毒之后发现，其中含有HIV艾滋病毒。至今人类没有研制出HIV疫苗，新冠病毒不会有真正有效的疫苗。
 
-文字版原文：[台陆委会称目前局势接近准战争状态!](https://gnews.org/zh-hans/1597920/)
+GTV视频链接：[Dr. Henry Reitzug： 呼吸道病毒一般没有疫苗](https://gtv.org/video/id=6166e2fed2e2b8174874ba0c)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**视频字幕：**
+
+**Dr. Henry Reitzug: **找到冠状病毒的疫苗，我认为也是非常困难的。呼吸道病毒一般沒有疫苗。呼吸道病毒通常从鼻腔进入喉咙。疫苗产生的抗体在血液中。只有你病得非常非常重了，鼻腔和喉咙的病毒才会进入血液。
+
+以前曾有过一次冠状病毒疫苗的尝试。2003年“非典”病毒期间，曾试图制造一种疫苗，但失败了。他们在动物身上试验，所有的动物都死了。结果不好。因此，我认为，制造疫苗的希望有点遥不可及。
+
+然后就是制造恐惧。黑格尔辩证法说的就是，他们必须创造问题或提出问题引起公众的反应。现在的情况就是引起恐惧。
+
+然后就能认可一个解决方案，即疫苗。当然，公众立即上钩了。好了，我们需要一种疫苗。于是，就有了“疫苗”。而且有一个巨大的推动疫苗的力量。川普总统提议使用最快的速度，于是他们以最快的速度完成。事实上，疫苗从开始临床试验到投放或获得紧急使用授权。只花了八个月。
+
+我不得不说，疫苗通常是很多年的项目，因为临床试验通常包含四个阶段。这需要一段时间。第四阶段通常是长期的，以观察疫苗的长期副作用。现在，他们把第一阶段和第二阶段结合起来，把第二或第三阶段结合起来，他们认为这很好。
+
+通常情況下，疫苗是由灭活或弱化的病毒或细菌而制成的。然后被培养和增殖，用在病人身上进行研究；他们不能让冠状病毒自我繁殖。
+
+现在病毒不断让人死亡，显然病毒是经过改造的。这是一种经过改造的病毒，是一种称之为“功能增强”的病毒。“功能增强”意味着它变得更加的致命。
+
+法国病毒学家Luc Montagnier博士，分离出该病毒的各种基因组片段，并发现其中一个被插入的片段是HIV病毒的片段。这位博士由于在HIV病毒方面的研究获得了诺贝尔奖。所以他知道自己在说什么，这就是他们如何使其更加致命的原因。
+
+*字幕/听写：云岭* *| 翻译：clau* *| PR：致良知，Roberts* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

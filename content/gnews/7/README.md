@@ -2,24 +2,27 @@
 ---
 
 
-## 1. 冠状病毒和疫苗 Coronavirus and Vaccines
-` reneelee` [轉載自GNews](https://gnews.org/zh-hans/1600362/)
+## 美警告朝鲜明年可能试射远程导弹
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1600422/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/thumbWithTitle4-3.jpg)
-[https://gtv.org/video/id=616c6859d2e2b81748764364](https://gtv.org/video/id=616c6859d2e2b81748764364)
+俄罗斯莫斯科喀秋莎农场  银河
 
-今天，肆虐全球一年多的冠状病毒、和世界各国都在推进的疫苗，与地球上每一个人的身心利益、以及整个人类的生死存亡，已经息息相关、不可分离。
+编辑上传   水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/N-7.jpg)thenewsmotion.com
+日本共同社10月17日报道，美国国防情报局(us Defense Intelligence Agency)在一份分析朝鲜军事能力的报告中说，朝鲜可能在明年恢复远程弹道导弹试验，并警告说，平壤将继续对美国及其盟友构成“关键的安全挑战”。这份10月15日公布的报告是对朝鲜加强军事力量的最新警告。
 
-Today, the coronavirus that has ravaged the world for more than a year and the vaccine that is being promoted worldwide are inextricably linked to the physical and mental interests of every person on earth, as well as the survival of the entire human race.
+向美国国防部提供情报的国防情报局指出，朝鲜领导人认为核武器“对政权的生存至关重要”，并表示，“将核武器与弹道导弹结合起来，使核导弹作为一个系统可靠地发挥作用，是朝鲜的最终作战目标。”
 
-冠状病毒和疫苗，其研发、生产等涉及的所有最高科技，包括基因切片技术、mRNA、刺突蛋白等等，全部来自美国。这是不容置疑的事实。这些技术，在1970年，美国就已经拥有。中共和美国合作之后，通过买、骗、偷和蓝金黄的手段，盗取了这些技术。这些便是真正的“功能增强“技术，完全来自美国的研发。
+美国防情报局表示：“我们有可能在明年看到一枚远程导弹的试验。”该机构还补充说，平壤可能进一步进行地下核试验，以验证武器能力。
 
-Coronavirus and vaccines, all of the highest technology involved in their development and production, including gene slicing technology, mRNA, spike protein, etc., all come from the United States. This is an indisputable fact. These technologies were already in the possession of the United States in 1970. After the CCP and the United States cooperated, they stole these technologies through buying, cheating, stealing, and Blue-Gold-Yellow Tactics. These are the real “functional enhancement” technologies, which come entirely from the research and development of the United States.
+朝鲜上一次试射洲际弹道导弹是在2017年11月，这种导弹有可能携带核弹头进入美国本土。自同年9月以来，朝鲜没有进行过核试验。2020年10月，朝鲜在阅兵式上展示了一种新型洲际弹道导弹，并继续试射短程弹道导弹和其他武器。
 
-1.1. 冠状病毒 Coronavirus
+美报告表示：“即使短期内不进行更多的远程系统飞行测试，平壤方面也可能会专注于训练和改进其导弹力量，这对的威慑战略越来越重要。”报告称，预计朝鲜还将努力改进其新型固体燃料弹道导弹，这种导弹可以比液体燃料导弹更快地发射。
 
-[https://gnews.org/zh-hans/1600311/](https://gnews.org/zh-hans/1600311/)
+美国防情报局负责人、美国陆军中将斯科特·贝里尔(Scott Berrier)在报告中称，“金正恩迫使朝鲜走上了发展核武器的道路，并将其与能够打到韩国、日本、美国的弹道导弹相结合。”
 
-1.2. 疫苗 Vaccines
+他认为朝鲜可以以此将美国置于危险之中，从而威慑华盛顿，迫使华盛顿做出对平壤有利的政策决定。而这一点在朝鲜的权威言论中已经得到了验证。
 
-[https://gnews.org/zh-hans/1600349/](https://gnews.org/zh-hans/1600349/)
+参考链接：
+
+[https://english.kyodonews.net/news/2021/10/c473dd3f1a13-n-korea-may-test-long-range-missile-over-next-year-us-report.html](https://english.kyodonews.net/news/2021/10/c473dd3f1a13-n-korea-may-test-long-range-missile-over-next-year-us-report.html)

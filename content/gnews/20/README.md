@@ -2,30 +2,56 @@
 ---
 
 
-## 中共国测试新的具有核能力的导弹
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1600180/)
+## 中共国入侵台湾的四阶段军事阴谋暴露 &#8211; 空袭美军
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1600276/)
 
-新闻来源：德国法兰克福报网络版
+![](https://assets.gnews.org/wp-content/uploads/2021/10/worldbank_malpassdavid_ahmajunaid_alemaheyumengistu_102619getty-8.jpg)网络图片
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+随着全面冲突的威胁“与日俱增”，中共国公布了入侵和接管台湾的“四阶段军事行动”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/chinesische-und-amerikanische.jpg)
+中共国制定了入侵和接管台湾的“四阶段”军事计划。印度广播公司WION展示了一份中共国“入侵剧本”的副本，其中详细描述了潜在军事对抗的细节。中共国军事规划人员为可能入侵台湾设计了四阶段军事行动，其中包括对美军的空袭。
+
+WION的Palki Sharma解释说：“我们有一份中共国计划做的副本。入侵台湾将分四个阶段进行。
+
+该战役首先是夺取制空权，使用中共国空军解除台湾人的武装，以军队、政府和平民为目标。
+
+他们希望迫使台北屈从于中共国的要求。
+
+“第二战役是封锁行动。中共国将试图切断台湾与外界的联系，阻止关键物资到达台湾，并切断通讯。”
+
+她继续说道：第三次战役是针对美军。
+
+解放军将对部署在台湾附近的美军进行空袭，以削弱台湾的防御。这会使台湾容易受到地面攻击。
+
+而第四次战役将是中共国军队登陆台湾地区的两栖攻击。
+
+他们甚至可以选择对台湾的陆军、海军和空军进行地毯式轰炸。
+
+“中共国的军事规划者正在考虑入侵，他们正在考虑进攻。”
+
+本周早些时候，中共国官方报纸《环球时报》发布了一段解放军的军事宣传视频。
+
+演习展示了中共国军队模拟入侵台湾的场景，包括突袭海滩、破坏铁丝网和挖掘壕沟。
+
+一周前，中共国有150多架飞机飞入台湾领空。
+
+周五，中共国防部回击了美国对其以密集的军事活动破坏台湾地区稳定的指责。
+
+外交部发言人谭克飞表示：“美国应停止支持‘台独’分裂势力，以实际行动维护台海的和平与稳定。”
+
+过去一天出现的卫星图像显示，中共国已升级了对台军事基地，这是其入侵计划的最新暗示。
+
+新闻链接：[China’s four-phase military plot to invade Taiwan exposed – with air strikes on US troops](https://www.express.co.uk/news/world/1506908/China-Taiwan-invasion-war-Beijing-US-Xi-Jinping-military-Taipei-latest-news-vn)
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-资料来源：FAZ
+编辑：【英国伦敦喜庄园编辑部】
 
-中共国显然在发展高超音速导弹方面取得了长足的进步。据说，它早在8月就测试了一枚高速导弹。
-
-据一份媒体报道，中国在开发高超音速导弹方面取得了巨大进展。正如《金融时报》周六援引知情人士的话报道，中国早在8月就测试了一种新型高速导弹。据报道，中国用一枚 “长征 “火箭将具有核能力的射弹送入太空，在低轨道上环绕地球，然后向其目标进发。
-
-然而，据三个不同的消息来源称，该导弹与目标相差30多公里，该报报道。美国情报机构对中国的新军事能力感到惊讶。
-
-美国国防部发言人约翰-柯比不愿就报告的细节发表评论。他说，”我们已经明确表示了对中国军事能力的担忧，这只会加剧该地区和其他地区的紧张局势。这是我们将中国视为我们最大挑战的原因之一”。
-
-除了中共国，美国、俄罗斯、朝鲜和至少其他四个国家也在研究高超音速技术。与弹道导弹一样，这些导弹可以携带核武器并达到五倍以上的音速。然而，弹道导弹以高弧度在空间飞行，而高超音速导弹则保持在低轨道上。它们也是遥控的，这使得它们更难被击落。
-
-[https://www.faz.net/aktuell/politik/ausland/usa-beunruhigt-china-testet-neues-atomwaffenfaehiges-geschoss-17588929.html](https://www.faz.net/aktuell/politik/ausland/usa-beunruhigt-china-testet-neues-atomwaffenfaehiges-geschoss-17588929.html)
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-
-责任编辑/发布： Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

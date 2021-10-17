@@ -2,28 +2,31 @@
 ---
 
 
-## 1.1. 冠状病毒 Coronavirus
-` reneelee` [轉載自GNews](https://gnews.org/zh-hans/1600311/)
+## 有声|完全疫苗接种加州大学生因病毒并发症去世
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1600378/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/thumbWithTitle4-1.jpg)
-[揭秘疫苗惊天阴谋的第１.１节。](http://gtv%20揭秘疫苗惊天阴谋的第１.１,1.2节。)
+配音：香草山美食部 – 玫瑰园
 
-所有冠状病毒的制造机理，其核心元素，就是被植入了艾滋病的某个基因片段。
+21岁的美国加州佐治亚大学的肖恩·库恩（Shawn Kuhn），在完全接种新冠疫苗后，死于近期突然感染的新冠病毒，他在去世之前与病魔战斗了大约6个星期。
 
-艾滋病基因进入体内后，它会无限放大身体的免疫力，令其竭尽全力拼杀，最终导致彻底衰竭，而令身体免疫力，完全丧失。艾滋病，就是人体免疫力的杀手。
+库恩是运动和体育专业的大四学生，身体健康，在竞技项目中获奖，在校园兼职私人教练。
 
-The core element of the manufacturing mechanism of all coronaviruses is that they are implanted with a certain gene fragment of AIDS.
+尽管新冠病毒对30岁以下人群危险性极低，但在学校和工作场所的胁迫下，年轻人正在大规模的接种，库恩和许多比他更年轻的人在这种环境下，被迫接种了含胚胎细胞的毒针。
 
-After the AIDS gene enters the body, it will infinitely amplify the body’s immunity, causing it to fight with all its might, eventually leading to complete failure, and making the body’s immunity completely lost. AIDS is the killer of the body’s immunity.
+前辉瑞公司的员工凯伦·金斯敦此前揭露，较未接种时，人体感染病毒的机率增加了3倍，而当接种第二剂后，随着时间的推移，人体免疫力逐渐减弱，感染率将持续升高。
 
-当一个病毒，被作为“生化武器”研发时，一定有两个核心课题。
+今年6月，加州15岁少年接种辉瑞疫苗第二针2天后，死于“应激性心肌炎并伴有冠状动脉炎症”。此前，美国疾病控制和预防中心（CDC）也承认，接种mRNA疫苗的年轻男性有罹患心肌炎和心包炎的风险。如果美国政府仍强制推行疫苗接种令，随着在校学生大面积接种疫苗，越来越多的年轻人将因此受到伤害，甚至死亡。
 
-第一，如何控制病毒的传播，即如何达到可以定颜色、定区域和定人种的杀伤目的。
+文字版原文：[完全疫苗接种加州大学生因病毒并发症去世](https://gnews.org/zh-hans/1596254/)
 
-第二，如何解毒。
+音频处理：喜山必胜Maverick
 
-When a virus is developed as a “biochemical weapon”, there must be two core issues.
-
-First, how to control the spread of the virus, that is, how to achieve the purpose of killing and killing by color, area, and race.
-
-Second, how to detoxify.
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
