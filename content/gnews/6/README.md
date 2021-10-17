@@ -2,35 +2,21 @@
 ---
 
 
-## 加拿大冰球少年接种疫苗两周后死于心脏病
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599760/)
+## 中共国2.6亿老年人，已提前进入老龄化社会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1599814/)
 
-作者：雪梨
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-加拿大17岁少年肖恩·哈特曼，在接种新冠疫苗后，身体出现包括心肌炎在内的多种健康问题，两周后，死于心脏病。
+撰稿：东京樱花团/盐和光
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide15.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/11g.jpg)
 
-肖恩酷爱冰球运动，5岁即开始冰球生涯，并为TNT队效力3年，是一名坚实的后卫。据加拿大的相关政策，没有接种疫苗的球员不允许进入冰球馆参加比赛，肖恩因此被迫接种疫苗。
+10月17日每日经济新闻快讯，从16日举行的第二届中国人口与发展论坛获悉，截至2020年，全国老年人口抚养比为19.7%，比2010年提高7.8个百分点。我国有12个省市区已经进入中度老龄化，有149个城市已经进入了中度老龄化。80岁及以上老年人口3580万人，占比为13.56%。乡村老龄化水平明显高于城镇，乡村60岁及以上老年人口占乡村总人口的比重为23.8%，比城镇60岁及以上老年人口占城镇总人口的比重高7.99%。
 
-据安大略省公共卫生局的一份报告显示，注射第二针疫苗后，18-24岁的男青年患心肌炎/心包炎的比率最高。此前北欧三国承认莫德纳疫苗与青少年心脏疾病相关性，瑞典和丹麦表示将暂停对30岁以下的年轻人接种莫德纳疫苗。加拿大医学教授Steven Pelech博士指出，对19岁以下的青少年来说，疫苗造成伤害约为病毒的4-5倍。
+全国老年人口抚养比为19.7%，即每100名劳动年龄人口要负担近20名老年人。60岁以上的老人有2.6亿，中共国已提前进入老龄化社会，以中共国目前养老、医疗、社会服务等方面的缺失，难以满足庞大老年人群特别是迅速增长的“空巢”、高龄和带病老年人的服务需求。
 
-越来越多的青少年，倒在新冠毒针之下，父母家长和正义人士在世界各地游行，抗议全球政府残忍的疫苗杀人计划，正如游行人群举起的标语所警示，”孩子们正死于新冠疫苗”。
+[信息来源](https://mz.mbd.baidu.com/r/uSBfmeluEw?f=cp&amp;rs=1722739172&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=988d989272447c73)
 
-(本文仅代表作者观点)
+（免责声明：文章仅代表作者本人观点，与GNEWS无关）
 
-参考链接：[Teen dies of heart attack soon after getting COVID shot so he could play hockey: report](https://www.lifesitenews.com/news/17-year-old-boy-dies-of-heart-attack-after-taking-covid-jab-that-would-allow-him-to-play-hockey/?utm_source=top_news&amp;utm_campaign=usa)
-[In Loving Memory of Sean Hartman #6](https://beetonstingers.com/Articles/1790/In_Loving_Memory_of_Sean_Hartman_6_/)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
