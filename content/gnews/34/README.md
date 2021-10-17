@@ -2,47 +2,25 @@
 ---
 
 
-## 纽约州立大学布法罗分校取消至少30名中共国学生的F-1身份
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599067/)
+## 疫苗灾情｜英国 58 岁前世界冠军接种疫苗后截肢保命
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1599126/)
 
-作者：文一
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 17/10/2021**
 
+***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/33-2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+【英国】前跆拳道世界冠军 Dave Mears 在接种完阿斯利康 COVID-19 疫苗后的 1 个月内失去了腿。今年 58 岁的 Dave 1984 年成为跆拳道世界冠军后，移居泰国开办跆拳道教学并获得专业摄影师的资格，2019 年因为疫情原因，他才返回家乡——英国斯坦福。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/WCTLMWILOV6EJ2RHFJGR-535x720.jpeg)
 
+他于 3 月 4 日接受第一针疫苗，立即出现了类似流感的症状以及持续发烧。1 个月后，Dave 因感染而入院，情况非常严重，当主诊医生看到 Dave 肿胀的腿时，十分震惊，当即移送至剑桥当地的一家医院，就在这个时候，恐怖的事情发生了，他的“腿炸开了”，到处都是血，别无选择之下，医生唯有将他左腿自膝盖以下部分截掉，以保全他的性命。
 
-据PIE新闻网报道， 近日，纽约州立大学布法罗分校注销了至少30名中共国学生的F-1身份，一个国际教育组织说这是十年中最大规模的集体注销事件。
+虽然，医务人员尚未给出 Dave 会严重感染的原因，不过 Dave 就认为这一切与疫苗脱不了关系。他说“我在接种疫苗后的当天晚上就病了，开始严重发烧，4日接种，10日住院，12日腿就炸开了，我认为两者有关，我失去了一条腿，我会积极复健，但我一定会讨回公道。”
 
-该校表示，“为了保持学生（F-1）签证身份，新到美国的学生需要向他们的指定学校官员报告，提交有效的美国地址，支付任何所需的费用，并全职入学。”
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-5.jpg)
-目前，大约37名学生违反了规定。这些学生没有在抵达校园后30天内向国际学生服务处提交I-94文件。该文件是美国国土安全部对进入该国的旅客的抵达和离开记录，用来确认旅客签证状态和留美合法时间。
+来源｜[个案033](https://www.stamfordmercury.co.uk/news/man-lost-leg-weeks-after-covid-vaccination-9198171/)
 
-该校中国学生学者联谊会在社交媒体上称，I-94表格“并不是一个非常难以获得的文件”，但并不是所有的学校都需要。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-96.jpg)
-参考链接：
-[University at Buffalo terminates Chinese students’ F-1 statuses](https://thepienews.com/news/university-of-buffalo-terminates-chinese-students-f-1-statuses/)
+* * *
 
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：鬼五
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//

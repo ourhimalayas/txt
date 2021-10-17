@@ -2,51 +2,47 @@
 ---
 
 
-## 龚道安下属唐丽娜是否是七哥刚刚提到的上海妓警考娜姐
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1598879/)
+## 纽约州立大学布法罗分校取消至少30名中共国学生的F-1身份
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599067/)
 
-郭文贵先生在[https://gettr.com/post/pebnmn4403](https://gettr.com/post/pebnmn4403)的盖特中爆了好几个大料——
+作者：文一
 
-昨天晚上凌晨3点多，三点多钟和江西的老表，老表全家刚刚跑出来，刚刚跑出来，这个人原来孟建柱的就是大秘之一叫陈臻，臻就臻字果那个臻，一个王字边一个那个什么秦的那个针，这个陈臻的哥们，陈臻帮过他，而且是很多很多年前帮过他，发了点财，发点财以后呢，这小子还挺不忘恩情的，完全听了陈臻的话，在海外，陈臻当年就说不要在国内混，出去吧。
 
-头一段走几年又挡不住诱惑，这货又跟孙力军搭钩上，搭钩上以后还认识了赵薇老公黄云龙，然后不知道咋倒腾的，帮他倒腾了几笔钱，头一段时间全家在国内都被抓——先把钱拿回来再说。
 
-后来跟我商量说我是救家人呢还是说我是配合到底呢，我给他出了一招，因为在这些人心目中七哥就是神，绝对是神，后来出一招管用了，全跑出来了，昨天跟我通话，讲述了孟建柱的一些故事、王岐山的故事、江志成的故事、马云的故事、黄云龙的故事，还有上海帮那几个什么娜姐——警察考娜姐，叫上海第一警，第一警叫妓警，就这个娜姐的事儿，哇噻，把我听的比听黄片还过瘾，真的是懂的人就知道七哥曾经说啥。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-现在女的出门带尿不湿，女的出来带着个卫生巾——小孩的尿不湿，七哥带这个（擦鼻涕的纸巾），（以下文字暂略）
 
-关于郭先生提到的这个上海第一警、上海妓警、警察考娜姐到底是谁呢？在网上并没有查到郭先生提到的考娜姐，考虑到郭先生曾经故意把“青蒿素”说成“青篙素”，所以这一次虽然没有查到准确的考娜姐，但是我们还是要说查到的上海女警花——唐丽娜，但愿本文不是张冠唐丽娜李戴考娜姐，据好看视频2021年10月16日发布的[女公安局长唐丽娜被逮捕，频繁出入私人会所，老上司也是“警虎”](https://haokan.baidu.com/v?pd=wisenatural&amp;vid=5385682758106792332)——
 
-视频概要：
+据PIE新闻网报道， 近日，纽约州立大学布法罗分校注销了至少30名中共国学生的F-1身份，一个国际教育组织说这是十年中最大规模的集体注销事件。
 
-10月15日据检察日报消息,干了近9年纪委书记的女公安局长唐丽娜，1962年出生的唐丽娜是名老公安，原任上海市奉贤区副区长，市公安局奉贤分局原党委书记、局长。在唐丽娜的双开通报中曾提到他频繁出入私人会所，甘于被围猎。利用职权为自己谋求特殊待遇，违规使用专职驾驶员、公车私用，长期大肆收受礼金等。
+该校表示，“为了保持学生（F-1）签证身份，新到美国的学生需要向他们的指定学校官员报告，提交有效的美国地址，支付任何所需的费用，并全职入学。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-5.jpg)
+目前，大约37名学生违反了规定。这些学生没有在抵达校园后30天内向国际学生服务处提交I-94文件。该文件是美国国土安全部对进入该国的旅客的抵达和离开记录，用来确认旅客签证状态和留美合法时间。
 
-一个值得关注的点是如果没有被查，唐丽娜近几年就会退休，提到唐丽娜，不得不想到她的老上司“警虎”龚道安，在任职期间，她目睹了龚道安的履新、落马、被捕，龚道安被查后，多次被公安系统通报要肃清其流毒，5月13日下午奉贤区召开了中央第六督导组督导奉贤区政法队伍教育整顿工作专题汇报会，而唐丽娜参加这次会议的两周后便落马。
+该校中国学生学者联谊会在社交媒体上称，I-94表格“并不是一个非常难以获得的文件”，但并不是所有的学校都需要。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-96.jpg)
+参考链接：
+[University at Buffalo terminates Chinese students’ F-1 statuses](https://thepienews.com/news/university-of-buffalo-terminates-chinese-students-f-1-statuses/)
 
-\*\*\*\*\*\*\*视频引用完毕\*\*\*\*\*\*\*
+（本文仅代表作者观点）
 
-龚道安是参与813未遂政变的重要参与人（参见[813政变重要人物龚道安两会前被移送检察机关意味着什么](https://gnews.org/zh-hans/944687/)），作为龚道安的下属，唐丽娜是否知情和参与813未遂政变，我们不得而知，但是从唐丽娜参加完2021年5月13日下午公安系统在奉贤区招开的教育整顿专题汇报会后两周便落马来看，5月13日的教育整顿专题会的针对意味非常明显，这次会议应该就是定点清除唐丽娜的吹风会。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-关于视频中提到的唐丽娜“频繁出入私人会所，甘于被围猎。利用职权为自己谋求特殊待遇，违规使用专职驾驶员、公车私用，”来看，在她甘于被围猎的时候，在她违规使用专职驾驶员的时候，应该也会用到尿不湿。此唐丽娜到底是不是彼妓警考娜姐？或许在2021年10月17日的郭文贵先生大直播中，我们就能找到答案。
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
 
-撰稿：喜马拉雅的肉夹馍
+**更多资讯，更多关注**
 
-审核：喜马拉雅的馍夹肉
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-校对：Maarago
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-（文章内容仅代表作者个人观点）
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

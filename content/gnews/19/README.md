@@ -2,51 +2,41 @@
 ---
 
 
-## NBA球队不准出现有中共病毒疫苗不良的报告
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1599275/)
+## 新西兰助产士准备辞职也不愿接种 疫苗
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1599366/)
 
-**编译：wenwu**
+SherryOk水云间
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip20.png)
+新西兰新闻中心网站，10月16日报道了两位助产士，她们宁愿辞职也不愿接种 COVID-19 疫苗。助产士敦促政府重新考虑强制卫生人员接种疫苗的措施。
 
-图片来源：**[Megan Redshaw](https://childrenshealthdefense.org/authors/megan-redshaw/)**
+但是 COVID-19 响应部长克里斯（ Chris Hipkins ）并没有让步，他说与儿童一起工作的人必须接种疫苗以确保他们的安全。
 
-在美国国家篮球协会(NBA)和凯里·欧文（Kyrie Irving）之间[的对峙中](https://www.espn.com/nba/story/_/id/32397602/kyrie-irving-says-decision-remain-unvaccinated-being-true-feels-good-me)——欧文被禁止在布鲁克林篮网队[训练](https://childrenshealthdefense.org/defender_category/covid/)或比赛，直到他接种中共疫苗——如今，另一名球员以“亲身试法”来[发出了警告](https://www.outkick.com/atl-hawks-point-guard-yes-the-vaccine-ended-my-season-one-thousand-percent/)，解释了去年的[中共疫苗](https://childrenshealthdefense.org/defender_category/covid/)是如何结束他的赛季，以及他的团队官员如何试图掩盖他的疫苗副作用。
+塔拉纳基地区卫生委员会的 63 名注册助产士中有 10 名表示，她们不会接种这种疫苗，这实际上结束了她们的职业生涯。
 
-布兰登·古德温(Brandon Goodwin) 是亚特兰大老鹰队的前控球后卫——他在周四与纽约尼克斯队[签署了一份新的合同](https://www.nba.com/knicks/front-office-news/knicks-sign-brandon-goodwin)——在五月曾因被[描述](https://www.bizpacreview.com/2021/10/15/player-says-nba-muzzled-him-after-he-got-blood-clots-from-covid-vaccine-that-took-him-out-for-season-1149030/)为“轻微”的呼吸道疾病而退出了本赛季。
+政府已表示将强制要求所有前线卫生人员接种疫苗。第一剂预计在 10 月 30 日之前，第二次在 12 月 1 日之前。管理隔离和检疫设施中的工人以及边境人员几个月来一直在接种疫苗，对该命令的法律挑战失败了-卫生部长有权豁免现有命令。
 
-[美联社](https://apnews.com/article/atlanta-hawks-new-york-knicks-health-nba-sports-ea4f9157ff2501558ab263a009f84118) 5 月 18 日报道说：“亚特兰大老鹰队的替补后卫布兰登·古德温将在被诊断出患有呼吸系统疾病后，缺席 NBA 季后赛；虽然球队将这种情况描述为小病，但它将需要治疗，并使古德温在本赛季的剩余时间里都不能参加比赛。”
+助产士安吉拉·沃辛顿 (Angela Worthington) 说，自从克里斯周一宣布这一消息以来，她与 55 位客户的谈话“只有眼泪和心痛”，从那以后她一直难以入睡。
 
-直到今年 9 月 29 日，[古德温](https://www.bizpacreview.com/2021/10/15/player-says-nba-muzzled-him-after-he-got-blood-clots-from-covid-vaccine-that-took-him-out-for-season-1149030/)在视频流媒体网站 [Twitch 上](https://www.twitch.tv/videos/1163181232)透露，他的“轻微病症”是血栓，他说这是在接种中共疫苗后才出现的。
+“当你是一名助产士时，你会很重视你的睡眠，沃辛顿说。“我知道这周我和同事们交谈的时候，你知道，我们中的很多人这周吃得不多。这个压力是巨大的。”
 
-古德温在 10 月 3 日的 [Twitch 直播中说](https://www.twitch.tv/videos/1163181232)：
+她不会透露她没有接种疫苗的原因。“几十年来，我们一直在与女性谈论‘你的身体，你的选择’，”她说。“但是，这些已经响亮而清晰地传达出来的信息现在并未用于作为生产力的我们。”
 
-“我生病了，然后我再也没有从中恢复过来。我总是会有背痛。我只是在比赛中感到非常疲倦，就像我们与费城 [4 月 28-30 日] 背靠背比赛时候。兄弟，我太累了，就像我不能在球场上跑来跑去一样。然后我们回家了，那时我的背真的开始痛的非常厉害。然后我认为我必须去看医生，那时我才发现我出现了血栓。”
+沃辛顿说，尽管她是家人的主要收入来源，但她对“身体自主权”的意识非常强烈，她愿意离开，而且她不是唯一的。卫生部门（DHB） 确认至少有 9 人退出，Worthington 说这将让“大约 290 个家庭”寻找新的助产士。
 
-古德温[说，](https://www.outkick.com/atl-hawks-point-guard-yes-the-vaccine-ended-my-season-one-thousand-percent/)这些症状“都发生在接种中共疫苗后的一个月内”。
+“不仅仅是社区助产士，还有核心员工，”沃辛顿说。“明年将有许多核心员工加入……我实际上不知道卫生部门将如何运作。”
 
-“在那之前我一直很好，直到我接种中共疫苗，”古德温说。“我很好。所以人们试图告诉你这不是中共疫苗的问题，你怎么知道？你是不知道的，对吧。中共疫苗结束了我的赛季，这是事情的百分之百真相。”
+沃尔尼克（Sorcha Wolnik）曾经与沃辛顿一起工作。她原本打算重新做助产士，但现在不会了。她也不会说为什么。
 
-古德温[对](https://www.outkick.com/atl-hawks-point-guard-yes-the-vaccine-ended-my-season-one-thousand-percent/)老鹰队[没有表示任何敌意](https://www.outkick.com/atl-hawks-point-guard-yes-the-vaccine-ended-my-season-one-thousand-percent/)，但确实对他们如何处理他的住院治疗，表示出一些困惑。“我不反对老鹰队，但是他们在我住医院时候的第二天给我打电话，告诉我，‘我们要告诉媒体你的赛季，已经结束了’”他说。
+“我强烈要求克里斯和政府重新考虑这项授权，”沃尔尼克说。“要收回已经宣布的东西总是很困难的。”
 
-古德温说，球队[要求他](https://www.bizpacreview.com/2021/10/15/player-says-nba-muzzled-him-after-he-got-blood-clots-from-covid-vaccine-that-took-him-out-for-season-1149030/)对自己的病情[保持沉默](https://www.bizpacreview.com/2021/10/15/player-says-nba-muzzled-him-after-he-got-blood-clots-from-covid-vaccine-that-took-him-out-for-season-1149030/)，这解释了为什么公众到现在才知道这所谓的“轻微”病症就是疫苗的副作用——血栓。“他们只是，就像在暗示什么也不说。不要告诉任何人。我想，兄弟……，”古德温[在视频中透露](https://www.twitch.tv/videos/1163181232)。
+克里斯部长说，这一决定也影响了教育劳动力，但并非轻率做出的。
 
-[古德温说](https://www.bizpacreview.com/2021/10/15/player-says-nba-muzzled-him-after-he-got-blood-clots-from-covid-vaccine-that-took-him-out-for-season-1149030/)，他想说出疫苗副作用的真相，这样他就可以重新回到比赛中，因为在最初的呼吸问题之后，尽管在服用血液稀释剂，但他已经重新站了起来；为公平起见，古德温还爆料了主治医生也告诉他“不要在夏天打篮球”。
+希普金斯说，官员们正在密切关注有多少卫生和教育工作者拒绝接种疫苗，但到目前为止“没有证据”表明这会加剧现有的短缺。
 
-古德温没有透露他接种的是哪种中共疫苗，但血液凝块[与](https://childrenshealthdefense.org/defender/jessica-berg-wilson-dies-covid-vaccine-twitter-censors-obituary/)美国授权紧急使用的所有[三种中共疫苗](https://childrenshealthdefense.org/defender/pfizer-moderna-vaccines-blood-clots/)——[辉瑞](https://childrenshealthdefense.org/defender/pfizer-covid-vaccine-linked-rare-blood-clot-disorder/)、[Moderna](https://childrenshealthdefense.org/defender/man-dies-moderna-vaccine-rare-blood-clotting-disorder/)和[强生](https://childrenshealthdefense.org/defender/jessica-berg-wilson-dies-covid-vaccine-twitter-censors-obituary/)(J&J)——都有关——尽管美国食品和药物管理局 (FDA)仅在强生的中共疫苗上，[添加了（血栓）警告标签](https://www.fdanews.com/articles/202501-fda-lifts-pause-on-jj-vaccine-inoculations-adds-blood-clot-risk-warning#:~:text=The%20FDA%20on%20Friday%20amended,Prevention%20%28CDC%29%20advisory%20committee.)。
+“最终，我们必须考虑这里的公共卫生风险。”
 
-4 月 13 日，联邦机构[暂停了强生公司](https://childrenshealthdefense.org/defender/u-s-pauses-johnson-johnson-covid-vaccine/)旗下 Janssen 子公司销售[的疫苗](https://childrenshealthdefense.org/defender/u-s-pauses-johnson-johnson-covid-vaccine/)，同时他们调查了该中共疫苗与潜在危险血栓的可能联系；在 4 月 13 日美国疾病控制与预防中心 (CDC) 和 FDA 的[联合声明中](https://apnews.com/press-release/pr-newswire/business-diseases-and-conditions-health-care-industry-anne-schuchat-health-561bd901bd02aeb7fbf7935b7db3e481)，这些机构表示他们正在调查美国的 6 起血栓病例，这 6 起都发生在 18 至 48 岁的女性身上，而且症状是在接种疫苗后的 6 至 13 天出现。
+希普金斯说，还在与教师工会讨论如何处理拒绝接种疫苗的工作人员。
 
-4 月 23 日，CDC 的一个独立顾问小组以 10 票对 4 票投票决定[恢复使用](https://childrenshealthdefense.org/defender/cdc-panel-resume-use-of-jj-covid-vaccine-no-restrictions/)强生公司的中共疫苗，并贴有[标签注明](https://www.fdanews.com/articles/202501-fda-lifts-pause-on-jj-vaccine-inoculations-adds-blood-clot-risk-warning#:~:text=The%20FDA%20on%20Friday%20amended,Prevention%20%28CDC%29%20advisory%20committee.)该疫苗有血栓风险的警告。
+“会有一些重新部署的机会……但可能不是每个人都适合。”
 
-根据[疫苗不良事件报告系统](https://vaers.hhs.gov/reportevent.html)的[最新数据](https://childrenshealthdefense.org/defender/vaers-cdc-covid-vaccine-injuries-deaths-fda-booster-shots/)，在2020 年 12 月 14 日至 2021 年 10 月 8 日期间，[美国](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;STATE=NOTFR)有[1万0131份](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;STATE=NOTFR)关于血液凝固障碍的[报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;STATE=NOTFR)。其中，有 [4407 份报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR)归因于辉瑞，有 [3654 份报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=MODERNA&amp;STATE=NOTFR)归因于 Moderna，以及有 [2018 份报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=JANSSEN&amp;STATE=NOTFR)归因于J＆J。
-
-（文章仅代表作者观点与GNEWS无关）
-
-**新闻来源**：[The Defender](https://childrenshealthdefense.org/defender/brandon-goodwin-nba-player-covid-vaccine-blood-clots/) |**作者：梅根·雷德肖**｜ [NBA Player Says COVID Vaccine Caused Blood Clots, But Team Officials Told Him to ‘Keep Quiet’](https://childrenshealthdefense.org/defender/brandon-goodwin-nba-player-covid-vaccine-blood-clots/)**发布时间：2021年10月15日｜**
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
+[新闻链接](https://www.newshub.co.nz/home/politics/2021/10/coronavirus-taranaki-midwives-prepared-to-quit-rather-than-get-vaccinated-against-covid-19.html)

@@ -2,38 +2,25 @@
 ---
 
 
-## 新中国联邦国旗飘扬在波士顿马拉松赛场上｜后续报道I
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1599307/)
+## 秘翻在线：多国喜欢使用抖音的青少年女孩患上抽动症
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599413/)
 
-作者：纽约香草山健身部 – Jack Li文阳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在10月11日举行的第125届波士顿马拉松比赛上，煤油灯，一位来自纽约香草山的新中国联邦战友，从霍普金顿到波士顿的26.2英里的赛道上，手持新中国联邦国旗跑完全程，向世界展示了新中国联邦这道亮丽的风景线。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-304.png)
-波士顿马拉松赛是全世界最古老的马拉松比赛，与[伦敦马拉松](https://zh.wikipedia.org/wiki/%E5%80%AB%E6%95%A6%E9%A6%AC%E6%8B%89%E6%9D%BE)、[柏林马拉松](https://zh.wikipedia.org/wiki/%E6%9F%8F%E6%9E%97%E9%A6%AC%E6%8B%89%E6%9D%BE)、[芝加哥马拉松](https://zh.wikipedia.org/wiki/%E8%8A%9D%E5%8A%A0%E5%93%A5%E9%A6%AC%E6%8B%89%E6%9D%BE)、[纽约马拉松](https://zh.wikipedia.org/wiki/%E7%B4%90%E7%B4%84%E9%A6%AC%E6%8B%89%E6%9D%BE)和[东京马拉松](https://zh.wikipedia.org/wiki/%E6%9D%B1%E4%BA%AC%E9%A6%AC%E6%8B%89%E6%9D%BE)合称为世界马拉松大满贯赛事。波士顿马拉松是单向赛道，经过7个热闹的小镇，沿途会有超过50万人围观，无论是在体育界，还是在社会上都有巨大的影响力。
+#### 翻译撰稿：zzballack
 
-煤油灯战友，是纽约香草山健身部的一位老大哥，在平常的交流中，只知道他是一位奔跑达人。就算是健身部的战友，也不知道这位亲切的老大哥原来还是一位能跨进波士顿马拉松赛的运动健将。同时他也是一位摄影师，他身背长短炮，活跃在农场游行示威和联盟庆典等活动上。他常常为了获得最好的摄影角度爬高伏低，在休息在吃饭时，他还在忙碌着，不放过任何一个动人的瞬间，他的专业精神常常得到战友们的赞许。
+#### 校对发布：文柯Miles
 
-长岛伟哥首先发盖特：太棒了，香草山的煤油灯战友，手举新中国联邦国旗跑完了波士顿马拉松全程。未来新中国联邦国旗会出现在越来越多的国际赛场上。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/maxresdefgd13s13123dsfa1231sa332sdfault.jpg)
 
-文贵先生随即也在盖特上说：新中国联邦的旗帜在我们帅气，健康的战友的手中，第一次在马拉松比赛中，走向了胜利。
+据《商业内幕》（Business Insider）10月17日报道，多个国家的医生报告说，自中共病毒疫情爆发以来，很多青少年女孩出现了身体与语言上的抽动、失调问题，这令医生们感到震惊和疑惑，引发了医学界的高度关注。几篇医学期刊文章发现这些少女在抖音观看抽动症（Tourette Syndrome）患者的视频。焦虑、抑郁和抖音可能是症状的成因。
 
-这是首次有比赛选手高举新中国联邦的国旗参加比赛，这是纽约香草山农场的骄傲，也是新中国联邦走向国际体育赛场的开始。相信在不久的将来，必定会在越来越多的赛场上飘起新中国联邦的国旗。
+抽动症是一种遗传性神经系统疾病，会导致人们抽搐，做出重复的、不自主的动作或发出声音。这种疾病主要影响男孩，抽搐通常在一个人年轻时开始，然后随着时间的推移而发展。有报道称，在大流行之前，医疗中心每个月会有一两个抽动症病例，但现在有些人说他们每个月看到10到20个病例。
 
-**本文谨代表作者观点**
+德国汉诺威的医生基尔斯滕·穆勒-瓦尔(Kirsten Müller-Vahl)告诉《耶路撒冷邮报》（Jerusalem Post），她看到越来越多的年轻女孩出现抽搐。有25年抽动症治疗经验的穆勒-瓦尔说，虽然患有这种疾病的人通常有自己独特的抽搐，但她最近看到女孩们的抽搐方式几乎相同。她很快发现，这些患者是在模仿一位德国油管播主的抽搐，播主在网上分享了她如何与这种疾病共处。
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
+芝加哥拉什大学医学中心（Rush University Medical Center）的运动障碍研究员卡罗琳·奥尔维拉 (Caroline Olvera)表示，许多青少年患者倾向于观看在抖音流行的抽动症患者类视频。在这些短视频中，青少年表演一系列不自主的行为，进行猛烈的手臂动作到咒骂或者抽搐，或者表演出说话困难的情景。而一些热衷观看这类视频的青少年也在生活中出现了相应的举动，最终成为无法控制自己行动的患者。在过去一年中，奥尔维拉研究了3千个抖音视频，发现类似的视频在抖音中广为传播。一旦用户点击类似视频，更多的同类内容将会出现，导致对青少年产生类似洗脑的效果。她说这些患者的症状并不是抽动症，而是一种功能性运动障碍。
 
-**校对/发稿：童谣**
+德克萨斯儿童医院的儿童神经病学家玛丽亚姆·赫尔 (Mariam Hull)则指出，社交媒体似乎为具有传播能力的儿童心理障碍在世界范围内迅速传播提供了一种新途径。现在，抖音特别受少女欢迎，“有些孩子给我看了他们的抖音，里面充满了抽动症患者的烹饪和字母表挑战。”只看一个视频不可能形成抽搐，但抖音的算法会让孩子们反复看到类似的视频。
 
-**更多资讯，更多关注**
+《耶路撒冷邮报》说，这些障碍是可以治疗的。医生建议孩子们暂时远离社交媒体，父母们需要知道他们的孩子在看什么类型的视频。此外，如果孩子表现出的抽搐干扰了日常生活，父母应该寻求专家的帮助。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新闻来源：[**Teen girls are showing up to the doctor with tics, and experts think anxiety, depression, and TikTok could be playing a role**](https://www.businessinsider.com/teen-girls-develop-tics-doctors-tiktok-anxiety-depression-experts-2021-10)
