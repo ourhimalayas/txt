@@ -2,32 +2,19 @@
 ---
 
 
-## 影评人质疑《长津湖》&#8221;意识形态&#8221;威胁世界
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599539/)
+## 秘翻在线：日本“匿名专家”开始打压伊维菌素的使用！
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599565/)
 
-作者：文小白
+撰稿：待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/画像1-13.png)（图片源自本文链接）
+日本产经新闻10月17日发文：【对个人进口伊维菌素的警告：”没有科学证据”】。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+文章称：从海外进口并使用在日本未获批准的抗寄生虫药物伊维菌素来预防或治疗中共病毒感染已很普遍。由于东京医师会请求政府允许使用伊维菌素，伊维菌素开始引起了人们的注意。但是，在日本和国外的临床试验中并没有显示出其有效性。专家警告：不要服用个人进口的伊维菌素。
 
+文章还说：对中共病毒的惧怕，使得伊维菌素成了被热捧的安慰剂。于是，药品进口商以这为诱饵，在互联网上进行推销。伊维菌素在试管程度的研究中显示出了能够抑制中共病毒生长的结果，引起了人们的关注。评估其有效性和安全性的试验和研究正在日本和国外继续进行中，但还没有显示出明显的效果。
 
+[信息源](https://news.yahoo.co.jp/articles/32314040f7730b6d5daf0146c17a0dc73d90d4c5)
 
-近日，有大陆抖音影评人因质疑“中国拍《长津湖》一类电影是在威胁世界”等言论，可谓一语中的，其账号也因此遭抖音平台封禁。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.17AM-PICTURES-123468.002.jpeg)
-星岛日报报道，抖音匿称为“米路哲光影业”的用户以“狂欢的背后，不可忽视的危机感”为题，发表了对《长津湖》的反思。该用户在视频中称，“我们的电影《长津湖》的出现，以及如此频繁的抗战影片的出现，是否是向世界传达着一种不够友好、不够维稳的意识形态？里面是不是包含有威胁的意味?……”上述言论经多个微博“大V”传播，在赢得掌声同时，也遭到小粉红围剿和举报。目前该账号因“不符合社区规范”被抖音平台封禁，相关视频也已无法查看。
-(本文仅代表作者观点)
+在中共病毒蔓延的紧要关头，东京医师会请求政府允许使用伊维菌素！而这篇文章中的没有报上名字的“专家”则相反。而通常情况下，以专家名义发出的警告，应该会产生一定的影响。前后两者表明的，对伊维菌素截然不同的态度，各将为这场史无前例的疫情带来怎样的结果？历史一定会给出明确的答案！
 
-参考链接：[因坦言《长津湖》恐威胁世界，中国抖音影评人被封号](https://www.voachinese.com/a/douyin-account-gets-suspended-for-commenting-on-film-chosin-reservoir-battle-20211016/6273398.html)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（文章仅代表作者个人观点）

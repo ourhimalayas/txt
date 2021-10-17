@@ -2,23 +2,23 @@
 ---
 
 
-## 秘翻在线：拜登政府带来了经济“滞涨”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599150/)
+## 秘翻在线：巴西总统宣布他不会接种疫苗 因为他具有天然免疫力
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599282/)
 
-#### 撰稿：彩虹       
+#### 搜集翻译：nstar
 
-#### 责编：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16344544621.png)图片来源：thedailyusnews
-10月16日，彼得·纳瓦罗（Peter Navarro）接受《新闻极限》（Newsmax）访谈，指如果只是通货膨胀影响美国，则是“可控的”，但是，在总统乔·拜登（Joe Biden）的领导下，反而出现了像上个世纪70年代冲击全国的“滞涨”问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.16-11.13-fdse3-1024x535-1.jpg)
 
-纳瓦罗认为，美联储主席杰罗姆·鲍威尔（Jerome Powell）正在“印钞”，“这正在推动达到我们所说的需求拉动型通货膨胀，而与此同时，我们面临（中共病毒）疫情，再加上拜登政府打击化石燃料，这给我们带来了所谓的推动型通货膨胀”。
+巴西总统[雅伊尔·博索纳罗](https://www.google.com/search?q=%E9%9B%85%E4%BC%8A%E5%B0%94%C2%B7%E5%8D%9A%E7%B4%A2%E7%BA%B3%E7%BD%97&amp;stick=H4sIAAAAAAAAAONgVuLSz9U3MEk3LTQyeMRoyi3w8sc9YSmdSWtOXmNU4-IKzsgvd80rySypFJLgYoOy-KR4uJC08SxiFX85u_XJnq6nG6Yc2v60d9bzLYue79r8fO90AEtvqm9gAAAA)宣布，他不再计划接种任何疫苗。他说他有比这更好的东西：自然免疫力。
 
-在川普政府时期，纳瓦罗说：“我们那时就是拥有天然气优势的沙特。川普总统的伟大成就之一就是使美国处于战略主导地位。（那时）我们的能源部五十年来第一次有能力出口石油。但是现在呢？在拜登领导下，能源价格迅速上涨，随即推动了食品价格的上涨。”
+他此前曾表示，他将是“最后一个接受注射的巴西人”，但在他自己感染了中共病毒后 , 与医学专家做了交谈后，他决定不再接种疫苗.
 
-此外，纳瓦罗指出目前美国供应链出了大问题，“但我和川普总统在白宫时，我们要购买美国货，雇佣美国人，把制造业产品出口。”纳瓦罗警告，拜登政府的中共病毒疫苗强制接种正在导致劳动力急剧短缺，因为军人、卡车司机、飞行员等正在逃离工作。
+博索纳罗总统说：“我看到了新的研究……我已经获得了最高的免疫接种。我去打疫苗是为了什么？这与在彩票中玩 10 美元赢得 2 美元是一样的。这没有意义。”
 
-是否有一些补救措施？纳瓦罗认为其中之一就是国会立法者对更多的支出（法案）说不。同时，纳瓦罗抨击拜登政府某些工作人员的不敬业。他说：“我们正处于自20世纪70年代以来最严重的经济危机时期的疫情中，而我们却有一些（政府）人员坐在家中，拍摄家庭照片并在社交媒体脸书（Facebook）上（显摆）。这就是拜登政府，他们根本不知道如何处理任何形式的危机。”
+博索纳罗总统现年 66 岁，他表示并没有明确反对疫苗，只是反对某些实体使用的胁迫手段。疫苗强制令感觉像是出于经济动机。
 
-**新闻来源**
+他谴责巴西一些州和地方政府使用疫苗护照。“对我来说，自由高于一切。如果一个公民不想接种疫苗，那是他的权利。”
 
-[**Peter Navarro to Newsmax: Biden Brings ’70s-Style ‘Stagflation’**](https://www.newsmax.com/newsmax-tv/peter-navarro-inflation-economy-stagflation/2021/10/16/id/1040789/)
+因为疫苗接种情况他不被允许进入餐厅，上周总统在纽约市的一条街道上吃了一片披萨。出于同样的原因，他也被拒绝进入体育场观看桑托斯和格雷米奥之间的足球比赛。
+
+相关链接：**[Will Not Receive COVID-19 Vaccine Because He Has Natural Immunity](https://www.redvoicemedia.com/2021/10/president-of-brazil-announces-he-will-not-receive-covid-19-vaccine-because-he-has-natural-immunity/)**

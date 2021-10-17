@@ -2,43 +2,32 @@
 ---
 
 
-## 美财政副部长威胁：物资会持续短缺直到全民接种
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1599466/)
+## 影评人质疑《长津湖》&#8221;意识形态&#8221;威胁世界
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599539/)
 
-编译：**lulumi**
+作者：文小白
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip21.png)
-美国财政部副部长让美国人注意到，结束全国各地空架子瘟疫的唯一办法是让每个居民都接种疫苗。这一“坦率”的警告在许多人看来是一种威胁。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-图片来源：© Reuters / Alan Devall
 
-拜登政府财政部的二把手瓦利·阿德耶莫（Wally Adeyemo）在周四接受美国广播公司（ABC）采访时，似乎公开要挟那些尚未接种COVID-19中共病毒疫苗的美国人，似乎将持续的消费品短缺归咎于他们，这导致许多人嘲笑总统为 “空架子乔”。
 
-尽管照片显示数以千计的货船在洛杉矶港排队准备卸货，但阿德耶莫声称，困扰这么多美国零售商的供应链问题是一个国际问题，只有当全国有足够比例的人接种了疫苗后才会有所缓解。
+近日，有大陆抖音影评人因质疑“中国拍《长津湖》一类电影是在威胁世界”等言论，可谓一语中的，其账号也因此遭抖音平台封禁。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.17AM-PICTURES-123468.002.jpeg)
+星岛日报报道，抖音匿称为“米路哲光影业”的用户以“狂欢的背后，不可忽视的危机感”为题，发表了对《长津湖》的反思。该用户在视频中称，“我们的电影《长津湖》的出现，以及如此频繁的抗战影片的出现，是否是向世界传达着一种不够友好、不够维稳的意识形态？里面是不是包含有威胁的意味?……”上述言论经多个微博“大V”传播，在赢得掌声同时，也遭到小粉红围剿和举报。目前该账号因“不符合社区规范”被抖音平台封禁，相关视频也已无法查看。
+(本文仅代表作者观点)
 
-阿德耶莫将灾难性的经济状况描述为“处于过渡期的经济”，他承认，“我们看到人们必须购买的一些东西价格很高”。虽然他赞扬了政府的刺激性补贴，但他也将责任完全归咎于未接种疫苗的人。
+参考链接：[因坦言《长津湖》恐威胁世界，中国抖音影评人被封号](https://www.voachinese.com/a/douyin-account-gets-suspended-for-commenting-on-film-chosin-reservoir-battle-20211016/6273398.html)
 
-“现实情况是，我们能通过过渡性经济的唯一途径，就是每个美国人和全世界每个人都接种疫苗。”
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-虽然美国广播公司的记者一再表示，该国卫生纸和其他恐慌性购买物品的短缺可以追溯到国际供应链的中断，但越来越多的美国人正在要求就某些产品从商店货架上消失的奇怪的特殊性质作出答复。一些人甚至怀疑这些短缺是否是故意的，要么是为了激起对未接种疫苗者的仇恨，要么是让美国人在经济上失去平衡，因为他们已经习惯了这种中共病毒大流行的疯狂破坏。
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
 
-阿德耶莫给拜登内阁添油加醋，解释说拜登继续推动每个人接种疫苗的主要原因是，只有这样，白宫才能“提供美国人民所需的资源，使其到达供应链问题的另一端”。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-尽管将美国的空货架归咎于国际航运业，但媒体已经承认，处理全国40%的进口货物的洛杉矶和长滩的港口，去年是有记录以来最繁忙的一年。这让美国货架上丢失的产品根本不存在的说法成为谎言。然而，许多为航运公司工作的卡车司机对强制接种疫苗的想法表示反对，使他们公司的车队人手严重不足，还有人罢工，要求改善工作条件。
-
-拜登政府试图通过呼吁洛杉矶港24小时运行来解决供应链问题，但尽管他称赞自己承诺的举措是“改变游戏规则”，但该港口的执行董事已明确表示，没有为承诺的时间表转变制定时间表。与此同时，拜登的内阁已经显得非常不合群——例如，白宫办公厅主任罗恩·克莱恩(Ron Klain)本周早些时候把空货架的问题说成是一个“高级”问题，引起了左右两派的批评。交通部长皮特·布蒂吉格（Pete Buttigieg）自8月中旬以来一直在悄悄地休陪产假，由于货物堵塞没有消散的迹象，这个国家甚至没有任何后勤监督的影子。
-
-劳动力短缺的问题远远不止美国。在意大利，本周早些时候有数千名抗议者出来阻止货船卸货。示威者对该国采取类似拜登政府威胁的强制性疫苗接种的政策感到愤怒。而英国政府已经恳求卡车司机返回工作岗位，甚至用临时签证来吸引外国司机，因为该国正在为自己的空架子问题而烦恼。
-
-澳大利亚的 “卡车司机”已经与其他工会联合起来向政府施压，尽管报告的Covid-19案件少得可怜，但政府已经将墨尔本等城市封锁了好几个月了。一年多前，政府就已经开始推行“不打针，不工作”等政策，并带头利用中共病毒将五眼联盟的 “民主国家”变成警察国家。
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**参考资料：**【www.rt.com/usa】[US Treasury deputy sec warns unvaxxed Americans that shortages will continue until EVERYONE is jabbed](https://www.rt.com/usa/537637-supply-chain-covid-unvaccinated-biden/)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

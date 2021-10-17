@@ -2,34 +2,40 @@
 ---
 
 
-## 英国金融时报: 中共试射高超音速巡航导弹!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599546/)
+## 中共国试射新型超音速核导弹 美方震惊
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1599581/)
 
-作者：Foxrina
+编译**：Lulumi**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-307.png)
 
+图片来源**：**thegatewaypundit.com
 
+据《金融时报》报道，中国在8月发射了一枚新的超高音速核动力导弹，在低轨道上环绕整个地球。
 
-英国《金融时报》报道，中共在8 月份秘密发射了一枚具有核打击能力的高超音速巡航导弹，消息人士称，该高超音速滑翔飞行器由中共的长征火箭携带助推，通常中共的此类发射活动都会公开宣布，但 8 月的这一测试一直处于保密状态。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.17AM-PICTURES-123468.003.jpeg)
-虽然高超音速导弹与传统弹道导弹一样，可以搭载核武器攻击，但其飞行速度是音速的五倍甚至十倍以上，同时具备更加多变的轨道和机动性，使其难以被探测、追踪和防御，这是目前最为尖端和最具威慑力的武器。美国、俄罗斯、日本及中共都在研究高超音速技术，而中国在高超音速武器方面的进展“让美国情报部门感到意外”。
+美国情报部门和美国军方官员都被震惊了。
 
-金融时报称，此次秘密试验是在美中紧张局势加剧以及北京在台湾附近加强军事活动之际进行的，台湾是一个与美国结盟的自治民主国家，而北京中共政权则认为台湾只是一个等待完成统一的省份，正是这种冲突造成了眼下的台海危机。目前五角大楼尚没有回应法新社对《金融时报》此篇报道发表评论的请求。
-(本文仅代表作者观点)
+“我们不知道他们是如何做到这一点的，”一位消息人士告诉《金融时报》。
 
-参考链接：[China Tested New Space Capability With Hypersonic Missile: Report](https://www.ndtv.com/world-news/china-space-mission-china-space-china-tested-new-space-capability-with-hypersonic-missile-report-2578051)
+根据该报告，这枚导弹与目标相差约24英里，让美国情报部门措手不及。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+今年早些时候，一张卫星图像显示中国扩大了其核导弹发射井。
 
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
+美国有线电视新闻网（CNN）在7月高超音速核能力导弹发射前不久报道：“美国科学家联合会（FAS）周一发布的报告说，通过卫星图像识别，中国新疆地区的新导弹基地最终可能包括110个发射井。这是研究人员本月发现的第二个明显的发射井，加
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+上邻近的甘肃省似乎正在建设的120个发射井，正如詹姆斯·马丁不扩散研究中心所详述的那样。”
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+与此同时，清醒的美国军方却忙于清理未接种疫苗的军人，并专注于“白人的愤怒”。
+
+*在*[这里](https://www.ft.com/content/ba0a3cde-719b-4040-93cb-a486e1f843fb)阅读完整的报告。
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**参考资料**[thegatewaypundit.com] [China Tests New Hypersonic Nuclear-Capable Missile That Circled Entire Globe at Low-Orbit – US Military Officials Stunned](https://www.thegatewaypundit.com/2021/10/china-tests-new-hypersonic-nuclear-capable-missile-circled-entire-globe-low-orbit-us-military-officials-stunned/)
+
+* * *
+
+*审核：文乐 
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)
