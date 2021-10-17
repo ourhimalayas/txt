@@ -2,47 +2,19 @@
 ---
 
 
-## SEC已经为GTV、SARACA、VOG相关退款创建公平基金并指定税务管理员
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599127/)
+## 秘翻在线：中共称60岁老人医疗费用减免不符合国情，对外“大撒币”却不含糊！
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599242/)
 
-作者：葛朗台太太
+**撰稿：Ping**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-17-161422.jpg)图片来源：网易
+针对人大代表提出的60岁老人医疗费用给予适度减免或全免的建议，近日中共国医保局称目前在中共国还缺乏足够的落地条件。
 
+我们先来看一下新农合医疗的缴费清单显示，2006年每人缴费10元，到2012年每人缴费达到100元，2016年每人缴费200元，而截至2021年每人缴费已经达到320元。15年中共国的合作医疗缴费清单已经增长了32倍，中共国人口按中国政府称中共国总人口为14亿，农民比例为41%，5.74亿农民，仅2021年新农合的医疗资金就已经达1836亿人民币。如此庞大的医疗费用，难道对60岁以上的老人的医疗费用进行减免不符合中共国国情？似乎说不过去吧！
 
+从2000年到2015年之间，中共国向140个国家提供了经济援助和贷款，一共高达3620亿美元。但是按照目前的汇率来算，累计捐赠的金额竟高达2.45万亿元人民币。据中共国媒体报道截至2020年，15年以来中共国对外援助的金额高达5.45万亿元人民币。如此慷慨的对外“大撒币“，却吝啬于对本国人民的医疗免费。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+民是国之根本，一个国家是否强大靠的就是人民是否安居乐业。纵观古今中外的历史，哪一个国家的“兴“不是与爱民，抚民的政策有关，而之”衰“又有哪一个不是与欺民，辱民的暴政有关。如今的中共国，贪污腐败，欺压百姓，致使多少中共国老百姓活得不如猪狗。近日，福建莆田的命案，欧全中杀人潜逃。因房屋纠纷此人多次上访，政府官员根本无视其冤情，最后逼得欧某走上了极端。这不就是说明了，官不为民做主，只能民自己做主。这样的政府已然到了尽头。
 
+如今的恒大暴雷在即，又会有多少人，倾家荡产，家破人亡？我们都不愿看到尸横遍野的历史重演。然而中共的虚假经济，腐败统治，罔顾民生，会害死多少无辜的老百姓。新中国联邦正在积极努力的联合全世界所有有良知，有正义，不分国家，不分种族的人民团结到一起，推翻中国共产党，铲除整个世界的邪恶组织！新中国联邦是黑暗世界中唯一的亮光，请人们不要犹豫，站起来，团结起来一起战胜邪恶！
 
-
-在GTV投资人抗议证交会SEC进行了8天以后，SEC官方网站终于有了更新。10月14日，SEC官方网站发出公告：公平基金已经包含了答辩人支付的大约四亿五千四百万美金的款项，并且已存入美国财政部财政局的一个计息账户。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-31.jpg)
-委员会还发布了34-93313号命令，任命 Miller Kaplan Arase LLP 为公平基金的税务管理员。
-
-SEC尚未公布已经到账的款项和未到账款项分别来自哪些公司。SEC还公布了退款办公室的邮箱，如果投资人需要了解更多信息，可以通过邮件联系退款办公室。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.4-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture-7.jpg)
-参考链接：
-1. [SEC指定税务管理员文件](https://www.sec.gov/litigation/admin/2021/34-93313.pdf)
-2. [In the Matter of GTV Media Group, Inc., et al.
-Admin. Proc. File No. 3-20537](https://www.sec.gov/divisions/enforce/claims/gtv-media-group.htm)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：鬼五
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+**[新闻来源](https://baijiahao.baidu.com/s?id=1669014269623932116&amp;wfr=spider&amp;for=pc)**

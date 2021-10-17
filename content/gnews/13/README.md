@@ -2,13 +2,25 @@
 ---
 
 
-## 秘翻在线：完全接种也无济于事 球队多人感染中共病毒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599034/)
+## 疫苗灾情｜英国 58 岁前世界冠军接种疫苗后截肢保命
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1599126/)
 
-#### 翻译/撰稿：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ArizonaCardinals.jpg)图片来源：dynastynerds
-10月16日据NOQ Report的报道，亚利桑那红雀队是全国橄榄球联盟中最后一支不败的球队，但他们的主教练克利夫·金斯伯里（Kliff Kingsbury）因核酸检测呈阳性从而成为第一个因中共病毒而缺席比赛的教练。亚利桑那红雀队只能在没有主教练的情况下，努力保持他们不败的成绩。
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 17/10/2021**
 
-据了解，该球队的所有球员和教练都已“完全接种疫苗”。目前各种新闻消息报道病毒突破疫苗的病例很少，但事实上亚利桑那红雀队的主教练克利夫·金斯伯里、总经理史蒂夫·基姆（Steve Keim）、四分卫教练卡姆·特纳（Cam Turner）、另一位未透露姓名的助理、外线卫钱德勒·琼斯（Chandler Jones）和防守截锋扎克·艾伦（Zach Allen）都将错过本周末对战克利夫兰布朗队的比赛，因为他们检测结果呈阳性。疫苗并不能保护他们免受感染，那么接种疫苗的意义何在？
+***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
 
-新闻来源：[100% ‘Vaccinated’ NFL Team Loses Their Head Coach, Two Assistants, the GM, and Two Players Due to Covid](https://noqreport.com/2021/10/16/100-vaccinated-nfl-team-loses-their-head-coach-two-assistants-the-gm-and-two-players-due-to-covid/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/33-2.jpg)
+
+【英国】前跆拳道世界冠军 Dave Mears 在接种完阿斯利康 COVID-19 疫苗后的 1 个月内失去了腿。今年 58 岁的 Dave 1984 年成为跆拳道世界冠军后，移居泰国开办跆拳道教学并获得专业摄影师的资格，2019 年因为疫情原因，他才返回家乡——英国斯坦福。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/WCTLMWILOV6EJ2RHFJGR-535x720.jpeg)
+
+他于 3 月 4 日接受第一针疫苗，立即出现了类似流感的症状以及持续发烧。1 个月后，Dave 因感染而入院，情况非常严重，当主诊医生看到 Dave 肿胀的腿时，十分震惊，当即移送至剑桥当地的一家医院，就在这个时候，恐怖的事情发生了，他的“腿炸开了”，到处都是血，别无选择之下，医生唯有将他左腿自膝盖以下部分截掉，以保全他的性命。
+
+虽然，医务人员尚未给出 Dave 会严重感染的原因，不过 Dave 就认为这一切与疫苗脱不了关系。他说“我在接种疫苗后的当天晚上就病了，开始严重发烧，4日接种，10日住院，12日腿就炸开了，我认为两者有关，我失去了一条腿，我会积极复健，但我一定会讨回公道。”
+
+来源｜[个案033](https://www.stamfordmercury.co.uk/news/man-lost-leg-weeks-after-covid-vaccination-9198171/)
+
+* * *
+
+他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//

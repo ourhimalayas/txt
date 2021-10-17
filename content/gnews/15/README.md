@@ -2,48 +2,49 @@
 ---
 
 
-## 中共是美国“气候变化”激进主义会议的幕后推手
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1598955/)
+## 研究揭示中共病毒的刺突蛋白导致血栓的机制
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599090/)
 
-【评论】中共作为世界上最大的碳排放国，它永远不会履行任何气候协议。中共赞助气候变化会议是醉翁之意不在酒，它希望“体制的改变而不是气候的改变”，其实质是在利用气候变化问题去攻击美国的民主和人权等制度，中共的邪恶渗透表现在方方面面，真是360度无死角。
+作者：Zion文恩
 
-下次您在新闻中看到气候变化抗议活动时，请注意它可能得到了中共的支持。
 
-《国家脉搏》（National Pulse）记者娜塔莉·温特斯（Natalie Winters） 2021 年 10 月 14 日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/D14C6A4E-FBF7-44F2-BEB3-6D49302DD18D.png)
-图片来源：国家脉博
 
-《国家脉搏》（National Pulse )透露，一个与中共有联系的外国有影响力的组织赞助了一次气候变化会议，旨在动员美国的青年倡导者。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-主办最近会议的实体中美交流基金会 (CUSEF) 是北京“统一战线”的一部分。美国政府认为该组织旨在“拉拢和消除潜在反对中国共产党执政的政策和权威的来源”，并“影响外国政府采取行动或采取支持北京的立场”。
 
-中美交流基金会（CUSEF )的网站指出，它“赞助” 了 与麻省理工学院 （MIT） 和清华大学两所学校合作开展的中美青年气候变化对话。
 
-“由清华大学和麻省理工学院共同主办的中美青年气候变化对话（SAYD）将于第26届联合国气候变化会议( COP26）前一个月的 10 月 8 日举行。此次活动的目的是为中美两国的年轻人提供一个平台，为第26届联合国气候变化会议（COP26）提出应对气候变化和可持续发展的想法和建议。” 中美交流基金会（CUSEF）在向与会者提出以下问题之前解释道：
+今夏以来，世界各国政府和医药监管机构不遗余力地推行“中共病毒”疫苗接种，然而，全球的德尔塔变种病毒感染率、死亡率并未得到有效控制。此外，因接种疫苗引发的严重不良反应——血栓、心肌炎、心包炎在各国都已大面积出现。
 
-各国政府应如何应对气候紧急情况？
+10月13日，一项发表在知名生命科学开放预印文献库biorxiv的研究表明，中共病毒的刺突蛋白可与人类凝血因子——纤维蛋白原结合，由此产生结构异常的凝血块，进而引发各种炎症反应。此外，该研究还表明，刺突蛋白增强小胶质细胞的活性，由此引发患者肺部病变。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-52.jpg)
+早在8月3日，GTV新闻访谈栏目已报道了中共病毒的刺突蛋白可引发血管内皮细胞的炎性反应的相关研究。值得注意的是，当前广泛接种的各类疫苗，其作用机制都是通过向人体直接或间接地注射部分或全部的刺突蛋白，使人体产生相应抗体，以达到所谓的预防“中共”病毒的目的。
 
-企业应如何制定可持续发展战略以实现净零排放？
+综合这两项有关刺突蛋白的致病性的研究，当下疫苗引发的各种血栓已成为关乎人类生死存亡的大事。遗憾的是，世界各国绝大多数主流媒体和医药监管机构仍在无视或回避这一问题。
 
-作为个人，我们可以采取哪些行动来减少浪费和气体排放？
+可预见的是，“疫苗灾难”将在不久的将来引发世界范围的人道危机。
 
-会议明确寻求动员青年积极分子。其主题是“让碳中和，青年在行动”。
+参考链接：
+[SARS-CoV-2 spike protein induces abnormal inflammatory blood clots neutralized by fibrin immunotherapy](https://www.biorxiv.org/content/10.1101/2021.10.12.464152v1.full)
 
-会议网站补充说，“通过青年代表和现场专家的讨论和分享，论坛希望就这个问题达成共识，并形成有价值的政策建议”。
+（本文仅代表作者观点）
 
-此次活动的发言人包括中美交流基金会（CUSEF ) 创始人董建华（Tung Chee-hwa）、中共官员以及麻省理工学院和清华大学的校长。据美国国务院称，清华大学也参与了此次会议。 据报道该校对美国政府发起了网络攻击，并在技术和国家安全问题上与中国政府有“明确联系” 。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-这所学校是习近平的母校，也是一所“马克思主义”新闻学院。在《纽约时报》、美国有线电视新闻网等机构的协助下，该校培养下一代中共国官方媒体宣传人员。
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
 
-院长在介绍信中写道: “我们要坚持坚定正确的政治方针。我校积极探索马克思主义新闻学理论与实践，即把马克思主义理论应用于观察世界、选择和处理新闻生产”。
+**更多资讯，更多关注**
 
-文章来源：[https://thenationalpulse.com/exclusive/ccp-influence-group-sponsors-climate-change-conference//](https://thenationalpulse.com/exclusive/ccp-influence-group-sponsors-climate-change-conference//)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Freeearth
-评论：洛杉矶盘古农场 – Wendy
-编辑：洛杉矶盘古农场 – Wendy
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

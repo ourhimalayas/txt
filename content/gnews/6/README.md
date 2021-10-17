@@ -2,57 +2,40 @@
 ---
 
 
-## 德州参议员Ted Cruz：强制员工接种疫苗政策 侵害人权
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1599107/)
+## 新南威尔士州退出澳洲的中共病毒热点地区
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1599231/)
 
-德克萨斯州共和党籍参议员Ted Cruz在推特上表示，他认为拜登总统对美国境内公司，雇员达100人者，必须强制接种疫苗，否则将会被解雇。这是违反宪法对人权的保障。
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/c861a980-98a9-11ea-b2ff-f3d662fd5c30.jpg)图片来源：s.yimg.com
+#### 编译：小红帽
 
+在新南威尔士州的中共病毒疫苗接种率达到80% 后，该州于今晚将取消其作为联邦中共病毒（COVID-19）热点地区的地位。
 
+自8月14日以来，该州一直是全国中共病毒热点地区。然而，澳大利亚政府首席医疗官保罗·凯利（Paul Kelly）教授证实，该州将从今天晚上11点59分起取消这一地位。
 
-> Joe Biden’s illegal vaccine mandate at work!
-> 
-> Suddenly, we’re short on pilots & air traffic controllers.[#ThanksJoe](https://twitter.com/hashtag/ThanksJoe?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wviOzLt7Iv](https://t.co/wviOzLt7Iv)
-> — Ted Cruz (@tedcruz) [October 10, 2021](https://twitter.com/tedcruz/status/1447327311095910402?ref_src=twsrc%5Etfw)
+根据管理中共病毒的国家计划，一旦在特定州或领地内达到80%的中共病毒疫苗完全接种率，该州或领地的联邦热点声明将自动结束。
 
+在该地区的状态降级两周后，其中共病毒热点地位而获得的支持将结束。
 
+昨天，新南威尔士州80%的16岁以上符合条件的人群接种了中共病毒疫苗。
 
-Ted Cruz指出，拜登总统的行政命令，要求公司人数达100人，员工必须强制接种疫苗，否则将会受到解雇的政策，违反美国宪法对人权的保障。
+在澳大利亚全国范围内，有超过1740万人接种了至少一剂疫苗，这意味着84.6%的16岁以上人群正在全面接种疫苗。 澳大利亚现在有67.8%符合条件的人口完全接种了疫苗。
 
-Ted Cruz推特分享新闻，是关于西南航空公司的员工数量，因为强制接种政策而短缺，导致了数以千计的航班被取消。Ted Cruz讽刺拜登总统，表示：感谢Joe（拜登总统）。
+首都领地、杰维斯湾领地以及维多利亚州和塔斯马尼亚州的一些地方政府目前是联邦中共病毒的热点地区。
 
-#### 西南航空反击
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-针对Ted Cruz的推特，美国西南航空称，航班取消不是因为人力短缺，而是天气因素。
+**参考新闻：**
 
-#### Ted Cruz：新冠疫苗接种证明是对个人隐私的侵犯
-
-今年八月，Ted Cruz与Fox新闻主播Sean Hannity同台称：新冠疫苗接种证明是对个人隐私的侵犯。当被要求出示接种新冠疫苗的相关证明，都是对个人自由的侵犯。
-
-#### COVID法西斯主义兴起，美国陷入绝对的混乱
-
-據[新聞報導](https://www.click2houston.com/news/local/2021/06/30/passengers-frustrated-after-southwest-airlines-cancels-thousands-of-flights/)，美国西南航空取消上千个航班，导致许多搭乘西南航空的旅客无法顺利启程，并且滞留在机场航厦中，等待西南航空安排“完全接种疫苗”的机组人员，引导旅客到目的地所需的航班。
-
-西南航空尚未改变策略，允许“未完全接种疫苗”的员工返回工作岗位。
-
-#### 德克萨斯州颁布行政命令：禁止疫苗歧视
-
-德克萨斯州长签署行政命令，禁止公私部门以疫苗接种与否为标准，对员工进行差别待遇。（[行政命令PDF](https://gov.texas.gov/uploads/files/press/EO-GA-40_prohibiting_vaccine_mandates_legislative_action_IMAGE_10-11-2021.pdf)）
-
-南航空公司对德州的禁令表示不会遵守。将全力遵循拜登总统的疫苗强制接种政策。不会遵守禁令，仍会以是否接种疫苗差别对待员工的原因是希望维护美国社会可以正常运作。
-
-- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
-- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
-- 相關：[印度德里使用伊維菌素，確診病例下降97%](https://gnews.org/zh-hant/1570870/)
+1. [Coronavirus vaccine rollout Australia: State by state guide to Australia’s current vaccination rates, including when NSW will hit 80 percent and when will Victoria hit 70 per cent double doses | Explainer (9news.com.au)](https://www.9news.com.au/national/coronavirus-vaccine-rollout-australia-state-by-state-guide-covid19-vaccination-rates-single-dose-double-doses-explainer/abacde8f-d35e-45ee-83bc-069ede212ecf)
+2. [New South Wales to no longer be classified as a national COVID-19 hotspot (msn.com)](https://www.msn.com/en-au/news/australia/new-south-wales-to-no-longer-be-classified-as-a-national-covid-19-hotspot/ar-AAPCjHc?ocid=msedgntp)
 
 
-白宫目前正在考虑将“美国境内航班旅客”也纳入强制接种范围，若白宫确定将境内航班旅客纳入强制接种范围，那没有接种疫苗的人民将无法搭乘飞机。
+***发布：小红帽***
 
-- 相關：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
-- 相關：[麥卡洛博士呼籲，不要接種新冠疫苗](https://www.wnd.com/2021/05/prominent-physician-dont-get-covid-shot/)（完整採訪）
-
-
-* * *
-
-[原文](https://www.naturalnews.com/2021-10-16-cruz-calls-biden-covid-vaccine-mandate-illegal.html)￨转译 台湾宝岛农场 zhong
-
-（一切内容以原文为主，转译仅供参考）
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

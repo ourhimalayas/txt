@@ -2,49 +2,46 @@
 ---
 
 
-## WHO渎职，提名不符合资格的人进入重启的病毒溯源小组
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1598919/)
+## 美国内布拉斯加州总检查长批准伊维菌素和羟氯喹用于预防或治疗新冠
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599079/)
 
-【**简评**：】*世卫专家今年初曾赴武汉进行溯源调查，但却没有进入到病毒起源的核心点 —— 武汉病毒研究所。又因中共不提供武汉病毒爆发时的原始数据，调查因此是失败的，没有给世界一个真实的答案。但调查组却给了“病毒源自自然”的定论，荒唐吧。*
+作者：文真
 
-*这次，新的调查团队将再次赴中国进行调查，拟议的小组成员里有着与中共有很深的利益关系的人，为了利益，他们会继续为中共打马虎眼。这次改版的COVID溯源小组，相信还是换汤不换药了，再次的赴中国的调查，也只是走个过场，忽悠吧。*
 
-据《每日来电》调查记者：安德鲁·克尔（Andrew Kerr），2021年10月14日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/7E02B087-7956-4102-87C3-B98EE41D1E3E.png)图片来源：Getty Images
-世界卫生组织周三提名一名与《生态健康联盟》有直接联系的泰国医生在一个新的咨询委员会任职，负责调查COVID-19的起源。
 
-根据The Intercept首次报道的记录，这位泰国医生，苏帕波恩·瓦查拉普萨迪（Supaporn Wacharapluesadee），被列为过敏和传染病的国家机构的分包商，代理《生态健康联盟》在2020年进行新兴的东南亚流行病毒的研究。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-记录显示，瓦查拉普萨迪所在的机构朱拉隆功大学将在2020年至 2025年期间从这笔赠款中获得107万美元。这笔资金将包括让瓦查拉普萨迪飞往纽约市与《生态健康联盟》主席彼得·达扎克（Peter Daszak）举行年度会议。彼得·达扎克在《柳叶刀》医学杂志上精心策划了臭名昭著的2020年2月信函，谴责COVID-19非自然的起源为“阴谋论”。
 
-彼得·达扎克是世卫组织第一个 COVID-19 起源小组中唯一的美国成员，该小组在2021年初在中国进行了广泛的调查后得出结论，该病毒“极不可能”从武汉实验室泄漏。在彼得·达扎克的领导下，《生态健康联盟》在大流行之前将60万美元的纳税人资金拨给了武汉病毒研究所，用于进行基于蝙蝠的冠状病毒实验。
 
-罗格斯大学教授理查德·埃布赖特 (Richard Ebright) 博士是对实验室泄漏理论进行全面调查的主要支持者，他告诉《每日来电者新闻基金会》，瓦查拉普萨迪“有利益冲突使她失去资格”加入新的世界卫生组织小组。
+10月15日，美国内布拉斯加州总检查长彼得森，应该州卫生和人类服务部的要求，发表一份意见，指出“明确和令人信服的证据表明，医生在获得病人知情同意后，利用伊维菌素或羟氯喹治疗新冠，没有违反内布拉斯加州的统一证书法案”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-10.jpg)
+该意见引用多篇医学期刊文章、研究和案例研究，证实伊维菌素或羟氯喹对预防或治疗新冠的有效性。该意见允许本州医生合规使用伊维菌素和羟氯喹预防或治疗新冠，免受法律诉讼和纪律处分，以此挽救更多生命，和缓解紧张的医疗资源。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-80.jpg)
+该意见剖析了在《柳叶刀》发表的、谴责羟氯喹的一篇文章，这篇文章因统计数据缺陷被撤稿。在全球健康紧急情况下，该篇文章制造了巨大的欺诈和信息误导。同时，总检查长办公室议程质疑了默克公司因巨大经济利益，对伊维菌素的质疑存在利益冲突。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-4.jpg)
+参考链接：
+1. [Prescription of Ivermectin or Hydroxychloroquine as Off-Label Medicines for the Prevention or Treatment of Covid-19](https://ago.nebraska.gov/opinions/prescription-ivermectin-or-hydroxychloroquine-label-medicines-prevention-or-treatment-covid)
+2. [Nebraska AG Issues Opinion on Doctors Prescribing HCQ and Ivermectin for COVID Treatment Will Not Face Punishment](https://www.thegatewaypundit.com/2021/10/nebraska-ag-issues-opinion-doctors-prescribing-hcq-ivermectin-covid-treatment-will-not-face-punishment/)
 
-“作为生态健康联盟的分包商，瓦查拉普萨迪在2020-2025年以 107 万美元的价格受惠于生态健康联盟，显然存在利益冲突，不符合资格。”埃布赖特博士说。
+（本文仅代表作者观点）
 
-“如果在被告知存在利益冲突后，世界卫生组织继续任命瓦查拉普萨迪为‘新型病原体起源科学咨询小组’成员，那么世界卫生组织将再次失败，正如其对生态健康联盟主席的任命一样。彼得·达扎克曾经参加了世界卫生组织武汉代表团，但没有达到公认的尽职调查和对全球公众负责的标准。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-据华盛顿审查员报道，在世界卫生组织新小组的26名拟议成员中，还包括了曾参与世界卫生组织第一次 COVID-19 起源调查的6个人。（相关：数十名科学家抨击世界卫生组织关于处理实验室泄漏证据的报告）
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
 
-审查员补充说，新小组的另一名拟议成员是彼得·达扎克，在2020 年 2月在《柳叶刀》上发表信函的签字人。
+**更多资讯，更多关注**
 
-世界卫生组织没有立即对评论请求作出回应。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-世界卫生组织总干事谭德塞表示，世界卫生组织在中国的首次COVID-19起源调查没有充分调查实验室泄漏理论。此后呼吁对武汉病毒研究所进行进一步调查。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-然而，中国不太可能同意对该实验室进行独立调查。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-原文链接：
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[https://dailycaller.com/2021/10/14/who-nominates-ecohealth-subcontractor-covid-origins-panel-peter-daszak/](https://dailycaller.com/2021/10/14/who-nominates-ecohealth-subcontractor-covid-origins-panel-peter-daszak/)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-(本文评论仅代表个人观点）
 
-翻译：洛杉矶盘古农场 – 蓝精灵
-校对：洛杉矶盘古农场 – Mike Li
-评论/编辑：洛杉矶盘古农场 – 明子
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
