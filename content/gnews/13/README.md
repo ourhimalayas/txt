@@ -2,21 +2,32 @@
 ---
 
 
-## 来自中(共)国的假冒蜂蜜
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1600205/)
+## Brnovich:要求司法部调查脸书推动美墨边界危机
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1600292/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1017-1-1.jpg)
-欧盟希望收紧食品标签规则，以防止来自中(共)国的假冒蜂蜜以欧洲人的身份出售。本周，二十七个国家的农业部长在卢森堡的欧盟理事会上与相关专员讨论了这个问题。
+**编译：wenwu**
 
-蜂蜜是世界上最假冒的产品之一，欧盟是全球第二大生产国，仅次于中(共)国，也是欧洲最大的出口国。然而，与中(共)国不同是欧洲对这种产品的生产和营销采取了相当高的标准。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-313.png)
 
-如果欧盟消耗的 40% 的蜂蜜是进口的，那么跨越欧洲边界的大约五分之一的罐头不符合欧盟标准。养蜂人长期以来一直抱怨这种不公平竞争，而这种竞争主要来自中(共)国。在那里，将蜂蜜与糖浆混合或过早收集蜂蜜然后通过人工程序将其干燥是很常见的。
+亚利桑那州总检察长马克·布尔诺维奇 (Mark Brnovich) 表示，司法部必须调查脸书（Facebook）在美国边境鼓励违法的行为。
 
-现行规则已经要求蜂蜜生产商在标签上注明欧盟原产国，但是，如果产品是来自不同国家的蜂蜜的混合物，则类别会变得更加模糊。
+Brnovich  于周四（15日）[致信](https://www.scribd.com/document/532520112/10-14-Brnovich-Letter-to-Garland#download&amp;from_embed)司法部长梅里克·加兰（Merrick Garland），解释了 Facebook 是如何允许宣传非法进入美国的帖子；此外，Brnovich 还表示，Facebook 甚至还提供有关如何成功非法越境的指导说明。
 
-免责申明：本文只代表译者观点，与Gnews无关
+Brnovich  说，社交媒体推动这种行动无疑破坏了法治和边境安全。
 
-原文链接：[https://www.agrifoodtoday.it/attualita/ue-regole-etichette-miele.html#\_ga=2.169219425.1310016791.1634410989-145009575.1615972944](https://www.agrifoodtoday.it/attualita/ue-regole-etichette-miele.html#_ga=2.169219425.1310016791.1634410989-145009575.1615972944)
+“Facebook 允许宣传人口贩卖和非法进入美国的帖子可以经常接触该平台的数十亿用户，说明该公司的经营政策严重破坏了法治，”Brnovich  在给加兰的信中说（如下图[推特所示](https://twitter.com/GeneralBrnovich/status/1448773704075280388?s=20)）。“Facebook 公司是直接的法治破坏推动者，因此加剧了发生在亚利桑那州南部边境的灾难。”
 
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-315.png)
+
+在此之前，这家科技巨头声称可以向移民提供信息，可以减少他们被人口贩卖者和贩毒集团利用。Facebook 表示，该公司政策的制定“是为了确保我们禁止与人口贩卖业务有关的内容，但不干涉人们行使寻求庇护的权利，这是国际法所承认的”（脸书或成为了犯罪分子不可或缺的一环、或直接参与了犯罪行为）。
+
+Brnovich 说， Facebook 是乔·拜登边境危机的直接推动者和促成者。他已经要求进行联邦调查。
+
+（文章仅代表作者观点与GNEWS无关）
+
+新闻来源：[ajuede.com](https://www.ajuede.com/2021/10/ariz-attorney-general-brnovich-doj-must.html) |发布时间：2021年10月15日
+
+* * *
+
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
