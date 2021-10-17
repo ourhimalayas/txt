@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/17/2021 11:43 PM (UTC)`
+
+10/17/2021 Miles Guo: On or about October 2, 2020, a historical arrest took place in the Communist China, with nearly 60,000 people being arrested. Xi Jinping even had no idea how much money was seized. Xi has not come out or seen anyone since then. Because he had never expected that Wang Qishan, Meng Jianzhu and others were going to kill him. Xi ordered to deal with the Chinese entrepreneurs in the same way as how the HNA case was handled - arrest them, kidnap their family, and force them to move their oversea assets back<br/><br/>10/17/2021文贵直播：2020年10月2日左右，中共国发生了一场历史性的大抓捕，近6万人被抓，习甚至不清楚多少钱被查封；习此后再未出门见人，因为他做梦都没想到王岐山、孟建柱等人要谋害他；习下令采用处理海航的模式针对国内企业家 - 抓捕他们、绑架其家人并逼迫其将海外资产转回国<br/>
+![img](https://media.gettr.com/group30/getter/2021/10/17/23/43/e629c1f0-7132-c080-0dd7-537b8df3f02d/out.jpg)
+
+---
+
 `@miles 10/17/2021 10:21 PM (UTC)`
 
 10/17/2021 Miles Guo: Before Ant Group’s IPO, Sun Lijun confessed that Jack Ma’s boss was Alvin Jiang and that he had hidden and laundered a gigantic sum of money, which Xi Jinping was dumbfounded. Jack Ma was immediately tricked back to mainland China and got arrested, with the Ant Group’s IPO being cancelled<br/><br/>10/17/2021 文贵直播：孙力军在去年初蚂蚁金服上市前供出马云替背后老板江志成藏钱和洗钱，涉及了天量资金，习对此很震惊，马云被立刻骗回大陆并被逮捕，蚂蚁金服上市流产<br/>
@@ -293,13 +300,6 @@ Henry Reitzug博士：在注射带有被改造氨基酸的新冠mRNA疫苗进入
 
 10/12/2021 Miles Guo’s GETTR: The world’s religions, politics, and economy shall all be reformed; The COVID vaccine disaster and the CCP’s invasion of Taiwan will destabilize the world’s economy, undermine the confidence of Europe and the US, and result in lots of uncertainty; The CCP fears that the New Federal Stare of China can make our fellow fighters rich and strong, and have good judgment<br/><br/>10/12/2021 文贵盖特：世界宗教、政治、经济都要改革；疫苗灾难和中共攻台将打破世界经济平稳运行，打击欧美的信心，并造成大量不确定性；中共惧怕新中国联邦能让战友们有钱、腰杆硬和有判断力<br/>
 ![img](https://media.gettr.com/group33/getter/2021/10/13/00/55/b7bf2fa7-152c-1e9d-1565-6fe910456be3/out.jpg)
-
----
-
-`@miles 10/12/2021 11:41 PM (UTC)`
-
-10月12号：尊敬的战友们好，明天上午9点．10月13号．七哥和我们帅哥，美女战友们继续我们的大直播！
-![img](https://media.gettr.com/group20/getter/2021/10/12/23/41/2ad3284a-3617-4a4c-f4be-9d3bf55261b7/e5f6f5534b0c580020cb9b32cd17a52d.jpg)
 
 ---
 
