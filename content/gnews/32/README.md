@@ -2,13 +2,27 @@
 ---
 
 
-## 文贵爆料:(10/17):中共军队众多高官也逃不过杨改兰的命运
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599836/)
+## 台湾正遭受CCP+卖台贼里应外合的攻势
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1599891/)
 
-撰稿:牛小妹(秘翻Gnews原创组)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/AZ-3.jpg)
-2016年一家六口依靠丈夫外出务工微薄收入生存的杨改兰，因当地官员硬性规定取消了他们的低保资格导致生活困难，甘肃农村妇女杨改兰8月底用斧头将自己的4个年幼子女砍死后，服毒自杀。事发后8天后，杨改兰在外打工的丈夫李某英也在本村树林服毒身亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
 
-根据郭文贵先生10月17日的爆料，中共军队最近有许多高官都不断地被调查，负责调查的纪委告诉文贵先生:”常常调查的一栋楼走下来，就听到各楼层枪声不断大作，一些被调查的军中将军或者高官用手枪先杀了自己的家人，再举头自尽!”300年的飞飞说出自己的看法:”这不就是像杨改兰一样吗?在中共这样的邪恶体制，就算他们曾经是中共军队的将军或者高官也难逃杨改兰的命运!”
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-16.png)
+文章仅代表作者本人观点，与Gnews无关
 
-文贵先生呼吁体制内的中共官员，要像发现青蒿素的屠呦呦一样，有自己的理想，”如果有勇气自杀或者杀自己的家人，为什么没有勇气反抗?”参与直播的青藤提出疑问。”人活在世上不超过3万天，体制内的中共党员很多可能都没有一万五千天的日子好活，活着要像个人。”文贵先生鼓励中共体制内99%的党员，唾弃共产党，活出自我。
+视频参看：2021.10.17早GTV新闻访谈
+
+[https://gtv.org/broadcast/watch/616c1743304e992109b650e5](https://gtv.org/broadcast/watch/616c1743304e992109b650e5)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
