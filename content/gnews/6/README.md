@@ -2,111 +2,208 @@
 ---
 
 
-## 樱花灭共段子之打油诗《脊椎》、喜币要上市了、田螺松果系列18之天佑台湾、全球最难懂的“民主”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1600499/)
+## 打不打台湾疫苗都会停，世界经济都会崩塌
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1600500/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/12313.jpg)
-打油诗《脊椎》
+![](https://assets.gnews.org/wp-content/uploads/2021/10/122-adt0y-n71er.jpg)
+[https://gtv.org/video/id=616c116bd2e2b81748763124](https://gtv.org/video/id=616c116bd2e2b81748763124)
 
-作者：文佑（荆棘不鸟）
+**郭文贵**
+**Miles Guo**
 
-脊椎顶得住，灭了孟建柱。
+不管他打不打台湾，疫苗的事情都会停
+Regardless of whether he fights Taiwan or not, the vaccination will stop
 
-脊椎不乱颤，直取王岐山。
+一定会停的
+It will definitely stop
 
-脊椎不突出，老杂毛全输。
+不会太长的时间
+It will not be too long
 
-脊椎不侧弯，蛤蟆会完蛋。
+几个月以内一定会停
+It will definitely stop within a few months
 
-脊椎不生疮，共匪心里慌。
+这是一定的
+This is certain
 
-待到红妖灭，脊椎苦得闲。
+不管他打不打台湾
+No matter whether he fights Taiwan or not
 
-脊椎不能闲，到处有风险。
+疫苗导致死人
+the vaccine will cause deaths
 
-病情难掌控，奈何尔非龙。
+未来你会看到最火的最涨价的
+You will see that the hottest and the most expensive in the future
 
-冢中墙国梦，难解心中痛。
+就是装尸袋，这是一定的
+is the cadaver bags. It’s for sure.
 
-从此茶饭间，脊椎成焦点。
+而且会导致世界上几年来，因为打了疫苗以后的反应
+And it will cause (fear) globally for several years because of the reactions after be-ing vaccinated
 
-脊椎帮谁忙，新中国联邦。
+3年、5年的期限
+3 or 5 years of time period
 
-[盖特链接](https://www.gettr.com/post/pdzz4c5853)
+这种恐惧和恐慌一定是到处无处不在
+This kind of fear and panic must be everywhere
 
-【喜币要上市了】
+他跟打台湾都没关系
+It has nothing to do with fighting Taiwan
 
-作者：文佑（荆棘不鸟）
+然后呢
+and then
 
-战友：厉害啊，喜币要上市了。
+这个经济上，不管打不打台湾
+it doesn’t matter whether it fights Taiwan or not, economically
 
-粉红：啥是喜币？
+美国、世界、欧元、经济都会崩塌
+the United States, the world, and the euro economy all will collapse
 
-战友：就是一种虚拟货币，锚定黄金，用区块链技术的。
+供应链会奇怪地
+the supply chain will be strangely
 
-粉红：啥叫锚定？
+你无法想象地暴涨
+and you can’t imagine it soaring
 
-战友：就是随时可以兑换实物黄金。
+各……有些东西涨到你无法想象
+each…Some things have risen beyond your imagination
 
-粉红：啥叫区块链？
+很多人说是有人不干活啦
+Many people have said that some people are not working
 
-战友：你上网学习一下，就是一种加密的数据包。
+很多人说这个物价了，都不是
+Many people have blamed the pricing, neither.
 
-粉红：我劝你别信网上的东西，到头来自讨苦吃。
+它有整个这些年的经济积累的各方面
+It has all aspects of economic accumulation throughout these year
 
-战友：哎呀，对不起，错了错了，我眼花，原来是《冒币要上吊了》。
+根本问题还是世界上经济失调
+The fundamental problem is the economic imbalance in the world
 
-[盖特链接](https://www.gettr.com/post/peeme03821)
+还有这个全世界的所谓的全球的经济化、全球化
+as well as the so-called global economization, globalization, trade, and global trade in the world
 
-【田螺松果系列18】之《天佑台湾》
+贸易、全球贸易化，和由共产党这个巨大的影响造成的不平衡
+Trade, global trade, and the imbalance caused by the huge influence of the Com-munist Party
 
-作者：奇遇
+这个人类都要付出代价
+The mankind will have to pay the cost for that
+现在印度的工人上来了
+Now the Indian workers are coming up
 
-田螺:台湾凶了……妈祖啊，保估宝岛台湾吧！
+会对一些某些贸易、运输领域会下来
+some trade and transportation fields will come down
 
-松果:香港被土共整得满目疮痍了，接着要对台湾下手了？
+然后再一个
+And then, another one is
 
-田螺:是啊，土共这遭天遣的，不怀好意让台湾回归tnnd的“母亲”怀里，台湾人哪个要回归啊？！
+非洲还有东南亚现在上来了
+Africa and Southeast Asia are now coming up
 
-这下共匪撕下了伪善的面具，要动粗了。
+像越南这些。但都解决不了
+like Vietnam etc. But all will not be solved
 
-松果:台湾的中华民国比中共伪政权要早吧？到底哪个才是合法政权啊？靠厚颜无耻、烧杀抢掠成立的的伪政权还想千秋万岁？
+根本上
+Fundamentally,
 
-田螺:”枪杆子里面出政权”，毛贼东的千古名言。现在习大神想做习始皇，”统一祖国”，撸起袖子要动粗了。
+美国整个供应链从中共国转到东南亚
+it takes time for the entire supply chain of the United States to transfer from the CCP to Southeast Asia
 
-松果:这下台湾真危险了。听说习大神脑瘤严重，活不过1.2年了。他要在死前完成”光复大业”，然后可以名垂青史。
+转到欧洲和东欧国家
+to Europe and Eastern European countries
 
-田螺:听说土共和拜登勾兑好了，美国不主持公道。
+它需要一个时间
+It needs time
 
-哎！这政客都想着自己的利益，没几个是好东西。
+所以说它物价是不平衡的
+That’s why it said that the produces prices are unbalanced
 
-松果:苍天啊！保佑宝岛台湾吧！
+它会突胀。再一个就是运输业，还有一个能源业, 大变化
+It will inflate. Other ones are the transportation industry and the energy industry. There will be a big change.
 
-[盖特链接](https://www.gettr.com/post/pedbdd71df)
+这跟台湾都没有关系
+This has nothing to do with fights Taiwan
 
-【全球最难懂的“民主”】
+打台湾只是加剧了这几件事的快速发生
+The fight against Taiwan has only aggravated the rapid occurrence of these events
 
-作者：美好的初夏
+它跟它不是绝对关系
+It is not absolutely related to it
 
-网友：什么是全过程人民民主？
+一定是这结局，有没有打台湾（这件事）
+It must be this outcome, whether he fights Taiwan or not
 
-习近平：我国全过程人民民主实现了过民主和成果民主、程序民主和实质民主、直接民主和间接民主、人民民主和国家意志相统一，是全链条、全方位、全覆盖的民主，是最广泛、最真实、最管用的社会主义民主。
+所以说现在这个美国，它是很夸张的这个政治短视
+That’s why the United States now is very politically shortsighted
 
-网友：说人话！
+还有一个美国现在现任政府(问题)
+and another one is the current US government (issues)
 
-习近平：就是共产党把全过程包办了的民主。
+他们2022年的中期大选
+their midterm elections in 2022
 
-网友：那什么是民主？
+还有疫苗的问题
+and the issue of vaccines
 
-习近平：就是作人民的主，简称“民主”。
+他们都知道好日子不多
+All of them aware that the good days won’t last long
 
-网友：去你大爷的！
+所以说把台湾人卖掉，根本不算什么事
+Therefore, selling Taiwanese people is not a matter at all
 
-[盖特链接](https://www.gettr.com/post/ped8o0b530)
+这也符合美国一贯以来的冷血
+This is also match the United States character which has always been cold-blooded
 
-(文章仅代表作者本人观点，与GNEWS无关)
+还有一个就是美国的现实的资本主义
+Also, true nature of actual capitalism in America
 
-*校对：东京樱花团/知了知了*
-*插图：樱花团设计组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+还有华尔街的黑暗势力的控制
+and the control of the dark forces on Wall Street
+
+这跟……都没啥关系
+These have nothing to do with….
+
+不管打不打台湾，这事都会发生
+This will happen regardless of whether Taiwan is facing the war or not
+
+它只是加速的发生
+Hitting Taiwan just accelerated all of this
+
+这关键说打不打共产党的问题
+The key to this is the question of whether or not the Communist Party will be de-feated
+
+我可以告诉你
+I can tell you that
+
+打不打台湾，中美之间
+whether it (the CCP) fights the Taiwan or not, between China and the US
+
+必然脱钩，必然有一战
+will inevitably decouple and have a battle
+
+它就是一个你死我活的关系
+It (the CCP fights Taiwan) is a life-and-death relationship
+
+没有任何逻辑性
+without any logical ideology
+
+———————————————————
+
+**原视频链接:**[** **https://twitter.com/se1y7cblljselva/status/1447502562257563651?s=24](https://twitter.com/se1y7cblljselva/status/1447502562257563651?s=24)
+
+Date: 10/15/2021
+Regardless of whether fighting Taiwan or not, the vaccination will stop and the world economy will collapse
+原视频日期：2021/10/10
+任务编号：KC174(2530)
+视频时间段 : 0:00-2:15
+
+英听校: 洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

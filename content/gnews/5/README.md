@@ -2,208 +2,157 @@
 ---
 
 
-## 打不打台湾疫苗都会停，世界经济都会崩塌
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1600500/)
+## 樱花灭共段子之白条、你对ccp怎么看三、五说欧金中
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1600508/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/122-adt0y-n71er.jpg)
-[https://gtv.org/video/id=616c116bd2e2b81748763124](https://gtv.org/video/id=616c116bd2e2b81748763124)
+#### 撰稿：东京樱花团/修文
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3424.jpg)插图：樱花团设计组
+【白条】
 
-**郭文贵**
-**Miles Guo**
+网友：我上个月考核任务没完成，给客户打了白条，下个月凭白条找我拿双倍作品，考核就让他帮我确认通过了。
 
-不管他打不打台湾，疫苗的事情都会停
-Regardless of whether he fights Taiwan or not, the vaccination will stop
+樱团子：这月你得还双倍作品啊，你有得忙了。
 
-一定会停的
-It will definitely stop
+网友：我不忙，考核任务完成，工资奖金全额到账，我就辞职了。现在回家躺平。
 
-不会太长的时间
-It will not be too long
+樱团子：那白条咋办？
 
-几个月以内一定会停
-It will definitely stop within a few months
+网友：让他找老板自己兑现。
 
-这是一定的
-This is certain
+樱团子：你太聪明了，你是哪个大学的。
 
-不管他打不打台湾
-No matter whether he fights Taiwan or not
+网友：我是跟恒大学的。
 
-疫苗导致死人
-the vaccine will cause deaths
+[盖特链接](https://www.gettr.com/post/pe2w4e26dd)
 
-未来你会看到最火的最涨价的
-You will see that the hottest and the most expensive in the future
+【你对ccp怎么看】三
 
-就是装尸袋，这是一定的
-is the cadaver bags. It’s for sure.
+樱团子** **采访：你好，你对ccp怎么看。
 
-而且会导致世界上几年来，因为打了疫苗以后的反应
-And it will cause (fear) globally for several years because of the reactions after be-ing vaccinated
+晋惠帝：早知道粮食短缺，
 
-3年、5年的期限
-3 or 5 years of time period
+还可以给百姓一天只吃三两粮。
 
-这种恐惧和恐慌一定是到处无处不在
-This kind of fear and panic must be everywhere
+我就不会问”何不食肉糜”，被叔伯看扁而引起八王之乱。
 
-他跟打台湾都没关系
-It has nothing to do with fighting Taiwan
+我的儿孙就会永远当皇帝，看来还是ccp够狠。
 
-然后呢
-and then
+冉闵：早知道勾结外国人，
 
-这个经济上，不管打不打台湾
-it doesn’t matter whether it fights Taiwan or not, economically
+还可以提高自己的国际地位。
 
-美国、世界、欧元、经济都会崩塌
-the United States, the world, and the euro economy all will collapse
+我就不会下“杀胡令”，得罪外国人。
 
-供应链会奇怪地
-the supply chain will be strangely
+我的儿孙就会永远当皇帝，看来还是ccp够狠。
 
-你无法想象地暴涨
-and you can’t imagine it soaring
+苻坚：早知道与敌人隔江对峙，
 
-各……有些东西涨到你无法想象
-each…Some things have risen beyond your imagination
+还可以强迫渔民驾渔船发起渡江战役。
 
-很多人说是有人不干活啦
-Many people have said that some people are not working
+我就不会后退三里地弄的风声鹤唳。
 
-很多人说这个物价了，都不是
-Many people have blamed the pricing, neither.
+我的儿孙就会永远当皇帝，看来还是ccp够狠。
 
-它有整个这些年的经济积累的各方面
-It has all aspects of economic accumulation throughout these year
+西域胡人：恨不生在中共国。
 
-根本问题还是世界上经济失调
-The fundamental problem is the economic imbalance in the world
+[盖特链接](https://www.gettr.com/post/pe49ujae1c)
 
-还有这个全世界的所谓的全球的经济化、全球化
-as well as the so-called global economization, globalization, trade, and global trade in the world
+【五说欧金中】
 
-贸易、全球贸易化，和由共产党这个巨大的影响造成的不平衡
-Trade, global trade, and the imbalance caused by the huge influence of the Com-munist Party
+五年，铁皮房中忍冬耐寒，法律无存的时间。
 
-这个人类都要付出代价
-The mankind will have to pay the cost for that
-现在印度的工人上来了
-Now the Indian workers are coming up
+五百，新买手机学习发帖，求助无门的艰难。
 
-会对一些某些贸易、运输领域会下来
-some trade and transportation fields will come down
+五刀，邻居家中放倒恶霸，守护良心的审判。
 
-然后再一个
-And then, another one is
+五万，政府公告买凶杀人，悬赏尸身的荒诞。
 
-非洲还有东南亚现在上来了
-Africa and Southeast Asia are now coming up
+五十五岁，既知天命又以命换命，为了家人而诀别家人的一年。
 
-像越南这些。但都解决不了
-like Vietnam etc. But all will not be solved
+[盖特链接](https://www.gettr.com/post/pe5hojc020)
 
-根本上
-Fundamentally,
+【苦愁悲喜】
 
-美国整个供应链从中共国转到东南亚
-it takes time for the entire supply chain of the United States to transfer from the CCP to Southeast Asia
+百姓苦，领导个个二百五。
 
-转到欧洲和东欧国家
-to Europe and Eastern European countries
+百姓愁，工作餐餐地沟油。
 
-它需要一个时间
-It needs time
+百姓悲，物价天天往上飞。
 
-所以说它物价是不平衡的
-That’s why it said that the produces prices are unbalanced
+百姓喜，售楼处处五折起。
 
-它会突胀。再一个就是运输业，还有一个能源业, 大变化
-It will inflate. Other ones are the transportation industry and the energy industry. There will be a big change.
+领导苦，官大一级赛老虎。
 
-这跟台湾都没有关系
-This has nothing to do with fights Taiwan
+领导愁，商铺买卖难卡油。
 
-打台湾只是加剧了这几件事的快速发生
-The fight against Taiwan has only aggravated the rapid occurrence of these events
+领导悲，纪委查账要双规。
 
-它跟它不是绝对关系
-It is not absolutely related to it
+领导喜，关门会所重开启。
 
-一定是这结局，有没有打台湾（这件事）
-It must be this outcome, whether he fights Taiwan or not
+猪也苦，架上大锅要被煮。
 
-所以说现在这个美国，它是很夸张的这个政治短视
-That’s why the United States now is very politically shortsighted
+猪也愁。撒泼打滚保护头。
 
-还有一个美国现在现任政府(问题)
-and another one is the current US government (issues)
+猪也悲，身后捅刀都玩黑。
 
-他们2022年的中期大选
-their midterm elections in 2022
+猪也喜，病情缓和好里脊。
 
-还有疫苗的问题
-and the issue of vaccines
+[盖特链接](https://www.gettr.com/post/pe8hjua5be)
 
-他们都知道好日子不多
-All of them aware that the good days won’t last long
+【意外保险】
 
-所以说把台湾人卖掉，根本不算什么事
-Therefore, selling Taiwanese people is not a matter at all
+夫：我买了一百万意外险，受益人是你。
 
-这也符合美国一贯以来的冷血
-This is also match the United States character which has always been cold-blooded
+不用怀疑，我对你的爱。
 
-还有一个就是美国的现实的资本主义
-Also, true nature of actual capitalism in America
+夏天洪水淹庄稼，恒大理财又违约，积蓄没了房贷还在。
 
-还有华尔街的黑暗势力的控制
-and the control of the dark forces on Wall Street
+只能这笔赔偿金，能让你度过难关。未来的路你要自己走了。
 
-这跟……都没啥关系
-These have nothing to do with….
+妻：不，亲爱的，骗保是不会理赔的，不要做傻事。
 
-不管打不打台湾，这事都会发生
-This will happen regardless of whether Taiwan is facing the war or not
+夫：会赔偿的，一定查不出病来。因为我去打了新冠疫苗。
 
-它只是加速的发生
-Hitting Taiwan just accelerated all of this
+[盖特链接](https://www.gettr.com/post/peaz9ead9f)
 
-这关键说打不打共产党的问题
-The key to this is the question of whether or not the Communist Party will be de-feated
+【洪（红）流】
 
-我可以告诉你
-I can tell you that
+洪流过境，不敢安睡。救援物资，踪影难追。
 
-打不打台湾，中美之间
-whether it (the CCP) fights the Taiwan or not, between China and the US
+救灾部队，层层推诿。受难乡亲，人人自危。
 
-必然脱钩，必然有一战
-will inevitably decouple and have a battle
+新闻频道，赞歌唱谁。领导急令，优先抢煤。
 
-它就是一个你死我活的关系
-It (the CCP fights Taiwan) is a life-and-death relationship
+黄河泛滥，我看见水，镜子前面，我看见泪。
 
-没有任何逻辑性
-without any logical ideology
+[盖特链接](https://www.gettr.com/post/pdl79kbcf0)
 
-———————————————————
+【喜币创造历史】
 
-**原视频链接:**[** **https://twitter.com/se1y7cblljselva/status/1447502562257563651?s=24](https://twitter.com/se1y7cblljselva/status/1447502562257563651?s=24)
+辛亥革命诞生是十月，他们改变了中国。
 
-Date: 10/15/2021
-Regardless of whether fighting Taiwan or not, the vaccination will stop and the world economy will collapse
-原视频日期：2021/10/10
-任务编号：KC174(2530)
-视频时间段 : 0:00-2:15
+中共国成立是十月，它再次改变了中国。
 
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+喜币上市是十月，他会改变中国么。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+秋天总是收获的季节。
+
+春种一粒粟，秋收万颗子。
+
+投资一美元，收获万般可能。
+
+心动，是梦想的启示。
+
+行动，是成功的开始。
+
+未来，在喜币中起始。
+
+喜币，创造未来的历史。
+
+[盖特链接](https://www.gettr.com/post/peddjaf87e)
+
+(文章仅代表作者本人观点，与GNEWS无关)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

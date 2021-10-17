@@ -2,29 +2,31 @@
 ---
 
 
-## 有声|“只有新中国联邦能给中国人民带来希望”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1600393/)
+## 美国律所中止代表港大移除六四纪念雕像
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1600421/)
 
-配音：香草山美食部 – 玫瑰园
+**撰稿：日本东京方舟农场 海星**
 
-10月15日，郭文贵先生在盖特视频中讲到，中共不允许中国人民购买虚拟币，但中共自己的家族成员却不受法规监管和约束。只有消灭中共，才能诞生相对客观、公平的制度，中国人民才会有希望。
+10月15日，美国国际律师事务所Mayer Brown发表声明，表示将不再代表香港大学要求支联会从港大校园中移除六四纪念雕像“国殇之柱”。
 
-为了阻止喜币上市，中共制定各项政策，联合并操控全世界的金融机构，禁止中国人民购买虚拟币。但对于中共高层及其家人，中国的法律体系只是为其服务而已。他们在海外金融机构的掩护下，肆意窃取中国老百姓的血汗，藏匿万亿财富。而国内数亿人口仍处于贫困线以下，杨改兰事件层出不穷。所谓的“中国梦”，是中共一手编造的骗局，是不可能实现的幻想，而对于底层老百姓，则是历经70余年的噩梦统治。
+据《德国之声》报导，美国律师事务所Mayer Brown代表香港大学要求移除六四纪念雕像的行为，违背了其在西方的声明，二十多个非营利团体敦促Mayer Brown停止在该事件中代表港大。于是，该公司于10月15日在一份声明中表示，今后将不会在这件事上代表香港大学。
 
-爆料革命不落下任何一位战友，确保每一位，为灭共事业付出的战友，得到应有的尊重和回报。文贵先生为3月中旬后新增投资的战友，和法治基金捐款者，争取到了额外的喜币福利。新中国联邦和爆料革命不忘记任何一位战友。
+美国参议员格雷厄姆（Lindsey Graham）指出：“美国律师事务所正在听从共产党的命令，抹去对在天安门广场为自由献身的年轻勇敢的中国学生的记忆。”参议员克鲁兹（Ted Cruz）也谴责了Mayer Brown公司，他说：“美国公司应该为成为拆除雕塑的同谋而感到羞耻。”
 
-文贵先生再次用实际行动证明，新中国联邦能给中国人民可兑现的希望，而不是中共不切实际的许诺。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/59488847_303.jpg)图片来自于网络
 
-文字版原文：[“只有新中国联邦能给中国人民带来希望”](https://gnews.org/zh-hans/1597705/)
+10月8日，Mayer Brown代表香港大学向已被迫解散的支联会发出律师函，要求其在10月13日下午5点之前移除六四纪念雕像“国殇之柱”，否则校方将会视为遗弃物品处置。
 
-音频处理：喜山必胜Maverick
+六四纪念雕像“国殇之柱”是由丹麦艺术家高志活（Jens Galschiøt）创作，自1997年以来一直矗立在港大校园内展示。雕塑由50具表情痛苦的示威者尸体堆叠在一起，以纪念1989年在北京天安门广场被中共军队镇压的示威者。
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[美国律所中止代表香港大学移除“国殇之柱”](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD%E5%BE%8B%E6%89%80%E4%B8%AD%E6%AD%A2%E4%BB%A3%E8%A1%A8%E9%A6%99%E6%B8%AF%E5%A4%A7%E5%AD%A6%E7%A7%BB%E9%99%A4%E5%9B%BD%E6%AE%87%E4%B9%8B%E6%9F%B1/a-59525622)
+
+[港大要求支联会移除六四“国殇之柱”](https://www.dw.com/zh/%E6%B8%AF%E5%A4%A7%E8%A6%81%E6%B1%82%E6%94%AF%E8%81%94%E4%BC%9A%E7%A7%BB%E9%99%A4%E5%85%AD%E5%9B%9B%E5%9B%BD%E6%AE%87%E4%B9%8B%E6%9F%B1/a-59457581)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

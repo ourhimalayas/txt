@@ -2,24 +2,179 @@
 ---
 
 
-## 1. 冠状病毒和疫苗 Coronavirus and Vaccines
-` reneelee` [轉載自GNews](https://gnews.org/zh-hans/1600362/)
+## 习进平的噩梦
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1600344/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/thumbWithTitle4-3.jpg)
-[https://gtv.org/video/id=616c6859d2e2b81748764364](https://gtv.org/video/id=616c6859d2e2b81748764364)
+习近平的噩梦与恐惧将来自于其家人。江志成、马云、王岐山、吴征、孟建柱、周亮等人已经完成对灭掉习近平家人的布局。
 
-今天，肆虐全球一年多的冠状病毒、和世界各国都在推进的疫苗，与地球上每一个人的身心利益、以及整个人类的生死存亡，已经息息相关、不可分离。
+**【郭先生直播摘要】****2021.10.13****习进平的噩****梦**
 
-Today, the coronavirus that has ravaged the world for more than a year and the vaccine that is being promoted worldwide are inextricably linked to the physical and mental interests of every person on earth, as well as the survival of the entire human race.
+郭先生：
 
-冠状病毒和疫苗，其研发、生产等涉及的所有最高科技，包括基因切片技术、mRNA、刺突蛋白等等，全部来自美国。这是不容置疑的事实。这些技术，在1970年，美国就已经拥有。中共和美国合作之后，通过买、骗、偷和蓝金黄的手段，盗取了这些技术。这些便是真正的“功能增强“技术，完全来自美国的研发。
+就像昨天，我这个晚上
 
-Coronavirus and vaccines, all of the highest technology involved in their development and production, including gene slicing technology, mRNA, spike protein, etc., all come from the United States. This is an indisputable fact. These technologies were already in the possession of the United States in 1970. After the CCP and the United States cooperated, they stole these technologies through buying, cheating, stealing, and Blue-Gold-Yellow Tactics. These are the real “functional enhancement” technologies, which come entirely from the research and development of the United States.
+这个人告诉我说，国内的一些情况
 
-1.1. 冠状病毒 Coronavirus
+司法部门的一些情况，谁…谁…谁，被抓了
 
-[https://gnews.org/zh-hans/1600311/](https://gnews.org/zh-hans/1600311/)
+当他突然说到一个
 
-1.2. 疫苗 Vaccines
+他说，谁…谁…谁，是在两个小时以前被带走了
 
-[https://gnews.org/zh-hans/1600349/](https://gnews.org/zh-hans/1600349/)
+这个人，很多（人）都不知道他的名字，姓姚
+
+跟那个姚家没关系，跟那个姚依林家（没关系）
+
+一个姓姚的，一个普通人
+
+但他一句话就把我“扑棱”一下子，我就那个精神就来了
+
+我说，什么时候弄走的
+
+他说，两个小时以前
+
+我说，我告诉你，他有多重要
+
+我(说)，当时孙力军想弄死他
+
+为啥要弄死他
+
+因为就这个姓姚的，掌握了当年江志成在海外的一些密码
+
+我说，我怎么知道，马云这个王八蛋，不是个好东西的呢
+
+原来呢，我觉得这个人，我一直夸他
+
+你看我2017、2018年爆料
+
+我还，我还，我有时候还夸他呢，你知道吧？你们好好看一看去
+
+我希望他(马云)改邪归正
+
+结果是，就这个姓姚的告诉我
+
+他说：“七哥！你再也不要觉得这个小子有救了”
+
+(他说)“这小子是没救了，他(马云)在害你”
+
+我说：“他(马云)也不敢嘛，他(马云)跟江家再好，也不会害我”
+
+他说：“我告诉你，他(马云)跟江家什么关系”
+
+他说：“他(马云)正在外面，弄习(近平)家的事”
+
+我当时以为，我说：“你疯了吧！”
+
+马云敢弄习(近平)家的事
+
+他说：“你知道习(近平)家的那个，谁…谁…谁，是在英国，你知道吧
+
+哎！我说：“这个我清楚啊“
+
+你说，”那个外国女婿，你知道吗？” 我说：“我知道”
+
+他说：“你去了解、了解，最近，马云找人都是跟这小子接触”
+
+哎！我当时马上叫人，就找了这个习(近平)家的洋女婿
+
+从侧面打听，一打听，真的
+
+我(习家洋女婿)正在跟马云尝试做基金，做什么这，做那的
+
+再后，我发现，马云所布的局，已经不是那么简单了
+
+哎！不是，我说错了，这个是2016年，2016年，16年的事
+
+到2018年的时候
+
+这个姚，这个人给我再说
+
+他说：“七哥，现在我告诉你，做到什么程度“
+
+习(近平)本人，到现在都还不知道
+
+习(近平)家(人)也不知道
+
+他(习近平)这个洋女婿
+
+就跟当年那个谁呀！那个…那个…
+
+薄熙来老婆，找了一个叫什么维尔，多维尔
+
+陪着薄瓜瓜读书那个
+
+跟这个，然后跟薄熙来老婆搞上那个，最后就是，被他杀掉那个人
+
+是一模一样的东西
+
+这英国人、外国人，见了大钱都懵
+
+在欧洲，你见一个三、四十岁有一台跑车
+
+它只有两个原因
+
+一个他是天才
+
+第二个，这钱就不好来的
+
+很有可能是家族来的
+
+就是欧洲人，他想挣一台法拉利
+
+说挣一台跑车，自己挣来的
+
+几乎是很难的
+
+在欧洲，你想尽(快)，快速挣财富是很难的
+
+在美国，是有这种可能的，就是年轻人创业，能起来
+
+在欧洲几乎是很难的
+
+要么老钱，要么就是天才中的天才
+
+那么，这个小子也开了好几台跑车
+
+我们后来接触
+
+这跑车，好几个，全是马云找人给他(习家洋女婿)弄的
+
+你记住我这话，未来习(近平)家，一定会出大事
+
+而且他(习近平)根本不知道，这背后怎么搞的
+
+这就像当年江家、孟建柱，盯住了令计划的儿子
+
+让这些西藏的女孩、新疆的女孩，是吧
+
+然后，跟他交往
+
+这个孩子——令谷，真的是个不错的人，非常好，很腼腆
+
+他(令谷)就在我香港的那个律师事务所打工
+
+他(令谷)又不喝酒
+
+就是遇到女孩有点腼腆，有点好色
+
+这年轻人谁不好色？你告诉我你们谁不好色
+
+男男女女，不好色，你不正常
+
+你只是什么方式好色而已
+
+他(令谷)还不喝酒
+
+但是，就被江(江泽民)家盯住了，关键一刻，就弄死你，下的毒药
+
+那么，现在习(近平)家好几个人
+
+已经被江志成、马云、吴征、孟建柱、王岐山的人给盯住了，周亮
+
+你看着，习(近平)未来，最让他感到恐惧的是来自他家人
+
+他们用什么招儿对待令计划、对待胡锦涛，就是什么招儿对待习近平
+
+这是共产党历来的
+
+听写：小蜜蜂 |视频制作+字幕：小蜜蜂|编辑&发布：V
