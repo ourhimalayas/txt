@@ -2,20 +2,23 @@
 ---
 
 
-## 新冠口服药登场，伊维菌素“名不正言不顺”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1599259/)
+## 秘翻在线：巴西总统宣布他不会接种疫苗 因为他具有天然免疫力
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599282/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-302.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimages.theconversation.com%2Ffiles%2F421500%2Foriginal%2Ffile-20210916-17-bcsltk.jpg%3Fixlib%3Drb-1.1.0%26q%3D45%26auto%3Dformat%26w%3D1200%26h%3D900.0%26fit%3Dcrop&amp;imgrefurl=https%3A%2F%2Ftheconversation.com%2Fivermectin-whether-formulated-for-humans-or-horses-is-not-a-treatment-for-covid-19-167340&amp;tbnid=U6iM6rJYrU_BVM&amp;vet=12ahUKEwj03dnf_tDzAhVCAqYKHRdHBcsQMygDegUIARCGAQ..i&amp;docid=0hyAKJxReUm2LM&amp;w=1200&amp;h=900&amp;q=ivermectine&amp;ved=2ahUKEwj03dnf_tDzAhVCAqYKHRdHBcsQMygDegUIARCGAQ)
-美国制药巨头Merck公司11日向美国食品和药物管理局（FDA）申请了口服抗病毒药物”莫诺匹拉韦（molnupiravir）”的紧急使用许可。 预计不久将在日本申请药品批准，日本首相岸田文雄对该口服药寄予厚望。Merck公司已经与美国政府签订了供应协议，并正在与日本政府就供应问题进行谈判。
+#### 搜集翻译：nstar
 
-根据年内投入使用的方针，日本盐野义制药正在抓紧开发治疗药物。盐野义研制的抗病毒药物”S―217622″抑制了另一种酶”3CL蛋白酶”的作用，防止病毒繁殖，9月开始最后阶段的临床试验，争取今年供应，2022年3月份前至少准备100万人份的药物。此外，瑞士和美国多家公司都在积极研制对抗中共病毒药物，对药物型治疗药物的开发竞争正在进入高潮。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.16-11.13-fdse3-1024x535-1.jpg)
 
-在药物治疗中，有医生使用抗寄生虫药物伊维菌素，目前，该药尚未批准为中共病毒药物，有效性尚未得到证实，药品制造商“兴和”（名古屋市）正在对该药进行临床试验。
+巴西总统[雅伊尔·博索纳罗](https://www.google.com/search?q=%E9%9B%85%E4%BC%8A%E5%B0%94%C2%B7%E5%8D%9A%E7%B4%A2%E7%BA%B3%E7%BD%97&amp;stick=H4sIAAAAAAAAAONgVuLSz9U3MEk3LTQyeMRoyi3w8sc9YSmdSWtOXmNU4-IKzsgvd80rySypFJLgYoOy-KR4uJC08SxiFX85u_XJnq6nG6Yc2v60d9bzLYue79r8fO90AEtvqm9gAAAA)宣布，他不再计划接种任何疫苗。他说他有比这更好的东西：自然免疫力。
 
-信息来源：[コロナ飲み薬、年内にも登場　ウイルス増殖防ぐ　米メルクや塩野義が開発](https://news.yahoo.co.jp/articles/10503b7a478f3f619d0e948f40cebd8cbabc2a39)
+他此前曾表示，他将是“最后一个接受注射的巴西人”，但在他自己感染了中共病毒后 , 与医学专家做了交谈后，他决定不再接种疫苗.
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+博索纳罗总统说：“我看到了新的研究……我已经获得了最高的免疫接种。我去打疫苗是为了什么？这与在彩票中玩 10 美元赢得 2 美元是一样的。这没有意义。”
+
+博索纳罗总统现年 66 岁，他表示并没有明确反对疫苗，只是反对某些实体使用的胁迫手段。疫苗强制令感觉像是出于经济动机。
+
+他谴责巴西一些州和地方政府使用疫苗护照。“对我来说，自由高于一切。如果一个公民不想接种疫苗，那是他的权利。”
+
+因为疫苗接种情况他不被允许进入餐厅，上周总统在纽约市的一条街道上吃了一片披萨。出于同样的原因，他也被拒绝进入体育场观看桑托斯和格雷米奥之间的足球比赛。
+
+相关链接：**[Will Not Receive COVID-19 Vaccine Because He Has Natural Immunity](https://www.redvoicemedia.com/2021/10/president-of-brazil-announces-he-will-not-receive-covid-19-vaccine-because-he-has-natural-immunity/)**

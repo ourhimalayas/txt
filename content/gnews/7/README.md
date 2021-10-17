@@ -2,23 +2,36 @@
 ---
 
 
-## 秘翻在线：巴西总统宣布他不会接种疫苗 因为他具有天然免疫力
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1599282/)
+## 新中国联邦国旗飘扬在波士顿马拉松赛场上｜后续报道II
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1599308/)
 
-#### 搜集翻译：nstar
+作者：纽约香草山健身部 – Jack Li文阳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在10月11日举行的波士顿马拉松比赛上，纽约香草山农场战友煤油灯高举新中国联邦国旗，从起点直至终点，第一次在国际性赛事上由参赛选手向世界展示了新中国联邦的形象。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.16-11.13-fdse3-1024x535-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-305.png)图片来源：煤油灯
 
-巴西总统[雅伊尔·博索纳罗](https://www.google.com/search?q=%E9%9B%85%E4%BC%8A%E5%B0%94%C2%B7%E5%8D%9A%E7%B4%A2%E7%BA%B3%E7%BD%97&amp;stick=H4sIAAAAAAAAAONgVuLSz9U3MEk3LTQyeMRoyi3w8sc9YSmdSWtOXmNU4-IKzsgvd80rySypFJLgYoOy-KR4uJC08SxiFX85u_XJnq6nG6Yc2v60d9bzLYue79r8fO90AEtvqm9gAAAA)宣布，他不再计划接种任何疫苗。他说他有比这更好的东西：自然免疫力。
+波士顿马拉松比赛全程26.2英里，参赛选手每增加一分重量，在跑步的过程中都是沉重的负担。平常，选手们为了减轻负重，穿着的比赛衣服都是既轻又薄。据煤油灯战友介绍，他赛前也有过担心，怕举着旗子坚持不到终点，所以准备了一个轻小的背袋，以防体力消耗过大时放旗子之用。但最后他凭着良好的身体素质，坚韧不拔的意志坚持下来了。正如七哥说的：（新中国联邦）第一次在马拉松比赛中，走向了胜利。
 
-他此前曾表示，他将是“最后一个接受注射的巴西人”，但在他自己感染了中共病毒后 , 与医学专家做了交谈后，他决定不再接种疫苗.
+赛后，煤油灯战友回忆起当时的情景：我们的新中国联邦国旗引起了沿途观众和参赛选手的注意，不少人还饶有兴趣的问：“这是什么旗帜？”，煤油灯战友边跑边回答他们的问题，简单的向他们宣传新中国联邦。一位人士问他：“你们支持台湾吗？煤油灯战友给出了肯定的回答。这位人士马上提出要求，要与煤油灯以及新中国联邦国旗合照。
 
-博索纳罗总统说：“我看到了新的研究……我已经获得了最高的免疫接种。我去打疫苗是为了什么？这与在彩票中玩 10 美元赢得 2 美元是一样的。这没有意义。”
+一位当地报纸Daily News的记者看到煤油灯战友跑到跟前的时候，及时的按下了快门，记录下了这珍贵的一刻，他的这张由当地美国媒体记者拍摄的照片，必定会记录在新中国联邦珍贵历史文献里。
 
-博索纳罗总统现年 66 岁，他表示并没有明确反对疫苗，只是反对某些实体使用的胁迫手段。疫苗强制令感觉像是出于经济动机。
+**本文谨代表作者观点**
 
-他谴责巴西一些州和地方政府使用疫苗护照。“对我来说，自由高于一切。如果一个公民不想接种疫苗，那是他的权利。”
+![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
 
-因为疫苗接种情况他不被允许进入餐厅，上周总统在纽约市的一条街道上吃了一片披萨。出于同样的原因，他也被拒绝进入体育场观看桑托斯和格雷米奥之间的足球比赛。
+**校对/发稿：童谣**
 
-相关链接：**[Will Not Receive COVID-19 Vaccine Because He Has Natural Immunity](https://www.redvoicemedia.com/2021/10/president-of-brazil-announces-he-will-not-receive-covid-19-vaccine-because-he-has-natural-immunity/)**
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

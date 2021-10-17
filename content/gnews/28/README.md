@@ -2,46 +2,25 @@
 ---
 
 
-## 美国内布拉斯加州总检查长批准伊维菌素和羟氯喹用于预防或治疗新冠
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1599079/)
+## 疫苗灾情｜英国 58 岁前世界冠军接种疫苗后截肢保命
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1599126/)
 
-作者：文真
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 17/10/2021**
 
+***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/33-2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+【英国】前跆拳道世界冠军 Dave Mears 在接种完阿斯利康 COVID-19 疫苗后的 1 个月内失去了腿。今年 58 岁的 Dave 1984 年成为跆拳道世界冠军后，移居泰国开办跆拳道教学并获得专业摄影师的资格，2019 年因为疫情原因，他才返回家乡——英国斯坦福。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/WCTLMWILOV6EJ2RHFJGR-535x720.jpeg)
 
+他于 3 月 4 日接受第一针疫苗，立即出现了类似流感的症状以及持续发烧。1 个月后，Dave 因感染而入院，情况非常严重，当主诊医生看到 Dave 肿胀的腿时，十分震惊，当即移送至剑桥当地的一家医院，就在这个时候，恐怖的事情发生了，他的“腿炸开了”，到处都是血，别无选择之下，医生唯有将他左腿自膝盖以下部分截掉，以保全他的性命。
 
-10月15日，美国内布拉斯加州总检查长彼得森，应该州卫生和人类服务部的要求，发表一份意见，指出“明确和令人信服的证据表明，医生在获得病人知情同意后，利用伊维菌素或羟氯喹治疗新冠，没有违反内布拉斯加州的统一证书法案”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-10.jpg)
-该意见引用多篇医学期刊文章、研究和案例研究，证实伊维菌素或羟氯喹对预防或治疗新冠的有效性。该意见允许本州医生合规使用伊维菌素和羟氯喹预防或治疗新冠，免受法律诉讼和纪律处分，以此挽救更多生命，和缓解紧张的医疗资源。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-80.jpg)
-该意见剖析了在《柳叶刀》发表的、谴责羟氯喹的一篇文章，这篇文章因统计数据缺陷被撤稿。在全球健康紧急情况下，该篇文章制造了巨大的欺诈和信息误导。同时，总检查长办公室议程质疑了默克公司因巨大经济利益，对伊维菌素的质疑存在利益冲突。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-4.jpg)
-参考链接：
-1. [Prescription of Ivermectin or Hydroxychloroquine as Off-Label Medicines for the Prevention or Treatment of Covid-19](https://ago.nebraska.gov/opinions/prescription-ivermectin-or-hydroxychloroquine-label-medicines-prevention-or-treatment-covid)
-2. [Nebraska AG Issues Opinion on Doctors Prescribing HCQ and Ivermectin for COVID Treatment Will Not Face Punishment](https://www.thegatewaypundit.com/2021/10/nebraska-ag-issues-opinion-doctors-prescribing-hcq-ivermectin-covid-treatment-will-not-face-punishment/)
+虽然，医务人员尚未给出 Dave 会严重感染的原因，不过 Dave 就认为这一切与疫苗脱不了关系。他说“我在接种疫苗后的当天晚上就病了，开始严重发烧，4日接种，10日住院，12日腿就炸开了，我认为两者有关，我失去了一条腿，我会积极复健，但我一定会讨回公道。”
 
-（本文仅代表作者观点）
+来源｜[个案033](https://www.stamfordmercury.co.uk/news/man-lost-leg-weeks-after-covid-vaccination-9198171/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+* * *
 
-新闻访谈终审：鬼五
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//

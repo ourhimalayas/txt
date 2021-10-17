@@ -2,51 +2,72 @@
 ---
 
 
-## NBA球队不准出现有中共病毒疫苗不良的报告
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1599275/)
+## 币圈新闻动态：没有喜交所KYC账户的投资者，选择联盟代持
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1599306/)
 
-**编译：wenwu**
+*喜马拉雅华盛顿DC 编辑：aQ*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip20.png)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
 
-图片来源：**[Megan Redshaw](https://childrenshealthdefense.org/authors/megan-redshaw/)**
 
-在美国国家篮球协会(NBA)和凯里·欧文（Kyrie Irving）之间[的对峙中](https://www.espn.com/nba/story/_/id/32397602/kyrie-irving-says-decision-remain-unvaccinated-being-true-feels-good-me)——欧文被禁止在布鲁克林篮网队[训练](https://childrenshealthdefense.org/defender_category/covid/)或比赛，直到他接种中共疫苗——如今，另一名球员以“亲身试法”来[发出了警告](https://www.outkick.com/atl-hawks-point-guard-yes-the-vaccine-ended-my-season-one-thousand-percent/)，解释了去年的[中共疫苗](https://childrenshealthdefense.org/defender_category/covid/)是如何结束他的赛季，以及他的团队官员如何试图掩盖他的疫苗副作用。
 
-布兰登·古德温(Brandon Goodwin) 是亚特兰大老鹰队的前控球后卫——他在周四与纽约尼克斯队[签署了一份新的合同](https://www.nba.com/knicks/front-office-news/knicks-sign-brandon-goodwin)——在五月曾因被[描述](https://www.bizpacreview.com/2021/10/15/player-says-nba-muzzled-him-after-he-got-blood-clots-from-covid-vaccine-that-took-him-out-for-season-1149030/)为“轻微”的呼吸道疾病而退出了本赛季。
+## 每日一问
 
-[美联社](https://apnews.com/article/atlanta-hawks-new-york-knicks-health-nba-sports-ea4f9157ff2501558ab263a009f84118) 5 月 18 日报道说：“亚特兰大老鹰队的替补后卫布兰登·古德温将在被诊断出患有呼吸系统疾病后，缺席 NBA 季后赛；虽然球队将这种情况描述为小病，但它将需要治疗，并使古德温在本赛季的剩余时间里都不能参加比赛。”
 
-直到今年 9 月 29 日，[古德温](https://www.bizpacreview.com/2021/10/15/player-says-nba-muzzled-him-after-he-got-blood-clots-from-covid-vaccine-that-took-him-out-for-season-1149030/)在视频流媒体网站 [Twitch 上](https://www.twitch.tv/videos/1163181232)透露，他的“轻微病症”是血栓，他说这是在接种中共疫苗后才出现的。
 
-古德温在 10 月 3 日的 [Twitch 直播中说](https://www.twitch.tv/videos/1163181232)：
 
-“我生病了，然后我再也没有从中恢复过来。我总是会有背痛。我只是在比赛中感到非常疲倦，就像我们与费城 [4 月 28-30 日] 背靠背比赛时候。兄弟，我太累了，就像我不能在球场上跑来跑去一样。然后我们回家了，那时我的背真的开始痛的非常厉害。然后我认为我必须去看医生，那时我才发现我出现了血栓。”
 
-古德温[说，](https://www.outkick.com/atl-hawks-point-guard-yes-the-vaccine-ended-my-season-one-thousand-percent/)这些症状“都发生在接种中共疫苗后的一个月内”。
+寒冬还未到，是不是已经听到冰裂的声音？
 
-“在那之前我一直很好，直到我接种中共疫苗，”古德温说。“我很好。所以人们试图告诉你这不是中共疫苗的问题，你怎么知道？你是不知道的，对吧。中共疫苗结束了我的赛季，这是事情的百分之百真相。”
 
-古德温[对](https://www.outkick.com/atl-hawks-point-guard-yes-the-vaccine-ended-my-season-one-thousand-percent/)老鹰队[没有表示任何敌意](https://www.outkick.com/atl-hawks-point-guard-yes-the-vaccine-ended-my-season-one-thousand-percent/)，但确实对他们如何处理他的住院治疗，表示出一些困惑。“我不反对老鹰队，但是他们在我住医院时候的第二天给我打电话，告诉我，‘我们要告诉媒体你的赛季，已经结束了’”他说。
 
-古德温说，球队[要求他](https://www.bizpacreview.com/2021/10/15/player-says-nba-muzzled-him-after-he-got-blood-clots-from-covid-vaccine-that-took-him-out-for-season-1149030/)对自己的病情[保持沉默](https://www.bizpacreview.com/2021/10/15/player-says-nba-muzzled-him-after-he-got-blood-clots-from-covid-vaccine-that-took-him-out-for-season-1149030/)，这解释了为什么公众到现在才知道这所谓的“轻微”病症就是疫苗的副作用——血栓。“他们只是，就像在暗示什么也不说。不要告诉任何人。我想，兄弟……，”古德温[在视频中透露](https://www.twitch.tv/videos/1163181232)。
 
-[古德温说](https://www.bizpacreview.com/2021/10/15/player-says-nba-muzzled-him-after-he-got-blood-clots-from-covid-vaccine-that-took-him-out-for-season-1149030/)，他想说出疫苗副作用的真相，这样他就可以重新回到比赛中，因为在最初的呼吸问题之后，尽管在服用血液稀释剂，但他已经重新站了起来；为公平起见，古德温还爆料了主治医生也告诉他“不要在夏天打篮球”。
 
-古德温没有透露他接种的是哪种中共疫苗，但血液凝块[与](https://childrenshealthdefense.org/defender/jessica-berg-wilson-dies-covid-vaccine-twitter-censors-obituary/)美国授权紧急使用的所有[三种中共疫苗](https://childrenshealthdefense.org/defender/pfizer-moderna-vaccines-blood-clots/)——[辉瑞](https://childrenshealthdefense.org/defender/pfizer-covid-vaccine-linked-rare-blood-clot-disorder/)、[Moderna](https://childrenshealthdefense.org/defender/man-dies-moderna-vaccine-rare-blood-clotting-disorder/)和[强生](https://childrenshealthdefense.org/defender/jessica-berg-wilson-dies-covid-vaccine-twitter-censors-obituary/)(J&J)——都有关——尽管美国食品和药物管理局 (FDA)仅在强生的中共疫苗上，[添加了（血栓）警告标签](https://www.fdanews.com/articles/202501-fda-lifts-pause-on-jj-vaccine-inoculations-adds-blood-clot-risk-warning#:~:text=The%20FDA%20on%20Friday%20amended,Prevention%20%28CDC%29%20advisory%20committee.)。
+## 喜马拉雅交易所要闻
 
-4 月 13 日，联邦机构[暂停了强生公司](https://childrenshealthdefense.org/defender/u-s-pauses-johnson-johnson-covid-vaccine/)旗下 Janssen 子公司销售[的疫苗](https://childrenshealthdefense.org/defender/u-s-pauses-johnson-johnson-covid-vaccine/)，同时他们调查了该中共疫苗与潜在危险血栓的可能联系；在 4 月 13 日美国疾病控制与预防中心 (CDC) 和 FDA 的[联合声明中](https://apnews.com/press-release/pr-newswire/business-diseases-and-conditions-health-care-industry-anne-schuchat-health-561bd901bd02aeb7fbf7935b7db3e481)，这些机构表示他们正在调查美国的 6 起血栓病例，这 6 起都发生在 18 至 48 岁的女性身上，而且症状是在接种疫苗后的 6 至 13 天出现。
 
-4 月 23 日，CDC 的一个独立顾问小组以 10 票对 4 票投票决定[恢复使用](https://childrenshealthdefense.org/defender/cdc-panel-resume-use-of-jj-covid-vaccine-no-restrictions/)强生公司的中共疫苗，并贴有[标签注明](https://www.fdanews.com/articles/202501-fda-lifts-pause-on-jj-vaccine-inoculations-adds-blood-clot-risk-warning#:~:text=The%20FDA%20on%20Friday%20amended,Prevention%20%28CDC%29%20advisory%20committee.)该疫苗有血栓风险的警告。
 
-根据[疫苗不良事件报告系统](https://vaers.hhs.gov/reportevent.html)的[最新数据](https://childrenshealthdefense.org/defender/vaers-cdc-covid-vaccine-injuries-deaths-fda-booster-shots/)，在2020 年 12 月 14 日至 2021 年 10 月 8 日期间，[美国](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;STATE=NOTFR)有[1万0131份](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;STATE=NOTFR)关于血液凝固障碍的[报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;STATE=NOTFR)。其中，有 [4407 份报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR)归因于辉瑞，有 [3654 份报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=MODERNA&amp;STATE=NOTFR)归因于 Moderna，以及有 [2018 份报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=JANSSEN&amp;STATE=NOTFR)归因于J＆J。
 
-（文章仅代表作者观点与GNEWS无关）
 
-**新闻来源**：[The Defender](https://childrenshealthdefense.org/defender/brandon-goodwin-nba-player-covid-vaccine-blood-clots/) |**作者：梅根·雷德肖**｜ [NBA Player Says COVID Vaccine Caused Blood Clots, But Team Officials Told Him to ‘Keep Quiet’](https://childrenshealthdefense.org/defender/brandon-goodwin-nba-player-covid-vaccine-blood-clots/)**发布时间：2021年10月15日｜**
+- 联盟10月15日答疑消息，对于没有喜交所KYC账户的投资者，选择联盟代持，直到投资者有合适的喜交所账号。
 
-* * *
 
-***发稿：信心满满***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
+
+
+
+## 新闻动态
+
+
+
+
+
+1. News.Bitcoin报道，最近一项针对1011名美国人的研究显示，14%的美国信用卡用户希望从他们的信用卡中获得加密货币奖励。例如，Blockfi信用卡用户在购物时可以获得高达3.5%的比特币（BTC）返还。Crypto.com公司发行的信用卡在卡用户每次购物时都会以CRO方式支付奖励。Couponfollow的研究结果显示，被称为”婴儿潮”的一代人（一般定义为1946年至1964年出生的人）平均拥有三张信用卡。
+2. Cointelegraph报道，调查显示，超过80%的中央银行正在研究CBDC，其中一些正在研究概念证明，最终可能会导致引入功能齐全的CBDC。在接受调查的中央银行中，10%的央行计划在未来三年内推出零售版的CBDC，另有20%的央行计划在未来六年内采取行动。亚洲主要银行对CBDC表现出极大的兴趣，因为报告显示泰国、香港和中国的中央银行正在合作为旨在弥合跨境差距的CBDC原型创建数字分类账技术（DLT）。
+3. 10月16日消息，美国金融犯罪执法网络（FinCEN）发布关于2021年上半年勒索软件的趋势分析报告，截至今年6月，交易所和其他金融机构向FinCEN报告了超过5.9亿美元的与勒索软件攻击有关的付款，包括加密货币付款，超过了2020年全年的总额（4.16亿美元）。
+4. Ambcrypto报道，根据Allied Market Research的一份报告，2020年全球ATM市场的估值为3580万美元，预计到2030年这一数字将达到35.5亿美元。
+5. 10月16日消息，德国加密初创公司Iconic CEO Patrick Lowry发推表示，比特币目前每天处理约40亿美元的交易。据Glassnode数据表明，当前99.02%的比特币供应量处于盈利状态。
+6. 10月16日消息，DeFi端到端隐私协议Panther Protocol与网络安全解决方案提供商Kudelski Security达成合作。作为最新加入Kudelski合作伙伴生态系统的项目，Panther的目标是随着Kudelski在美国和英国推进数据驱动解决方案的交付，提供更多的隐私支持。
+7. livebitcoinnews报道，WildPack BeverageInc.已经成为最新一家开始接受比特币和加密货币支付产品和服务的公司。WildPack宣布，比特币和其他数字货币现在可以用于其饮料制造和联合包装服务。
+8. 10月17日消息，元宇宙游戏平台Meta Spatial宣布，已成功完成Beta测试V2。现在用户可以创建角色、生成NFT，混合640多个物品以创建自己的角色。
+9. GlobeNewswire投票和上币平台Coin Discovery目前在币安智能链（BSC）网络上提供质押功能。该平台提供有关DeFi代币的信息和实时数据，帮助用户了解其DeFi代币，为其节省时间并提高回报。
+10. 10月16日消息，NFT游戏M yDeFi Pet与Maker DAO达成合作，其即将推出的NFT市场将支持稳定币DAI。玩家将能够通过完成游戏中的任务来获得DAI作为奖励。具有特殊要求的PVE和PVP战斗模式即将推出，将使玩家有机会获得DPET和DAI。
+11. 10月16日消息，Poolz Ventures宣布投资边玩边赚（P2E）NFT游戏Furu Kuru。此外，Ava Xlauncher也是Furu Kuru的投资方。
+12. EconomicTimes报道，印度短视频社交平台Chingar推出社交代币GARI以及GARINFT市场。宝莱坞明星Salman Khan已签约成为GARI代币奖励计划和NFT市场品牌大使。该公司表示，GARI将使其应用程序上的内容创作者能够建立自己的电商空间，包括实体商品、构建NFT创作，并帮助人们资助自己喜爱的艺术家。
+13. 10月16日消息，WavesTech宣布，TikTok网红SpencerX加入Waves Ducks Metaverse，为一只非常稀有和有价值的全新NFT鸭子贡献其形象和声音。Beatbox歌手SpencerX是TikTok第九大受欢迎的创作者。总共有4只不同的SpencerX鸭子，100%稀有。
+14. 10月16日消息，印度教团呼吁政府监管加密货币，并限制流媒体平台的相关内容，称监管至关重要。右翼印度教民族主义团体Rashtriya Swayamsevak Sangh负责人Mohan Bhagwat表示，为了社会的更大利益，有必要规范这些事情。（路透社）
+15. Cryptodaily报道，游戏巨头Epic Games向The Verge表示，它对在游戏商店中的区块链游戏以及支持加密货币和区块链资产的游戏持开放态度。在Epic发表声明之前，其竞争对手Valve已禁止Steam上使用区块链技术和NFT等资产的游戏。
+16. 10月16日消息，以太坊核心开发者Tim Beiko表示，预计可能在明年2月准备好合并（The Merge）所需代码，6月完成以太坊PoS合并。
+17. 10月16日消息，区块链游戏项目启动平台Fara Starter发推称，区块链手游BEMIL将成为首个在其平台启动的项目。
+18. 10月16日消息，推特用户BΞN表示，今天是SushiSwap产生的费用（收入）首次超过Uniswap。该用户认为这主要是由两个趋势驱动的：像OHM和SPELL这样的“DeFi 2.0”代币的兴起给Sush带来巨大交易量；由于0.05%池的增加，Uniswap的价值获取能力（费用%）正在下降。
+19. News.Bitcoin报道，NBA达拉斯独行侠队老板Mark Cuban表示，不打算投资比特币ETF或比特币期货ETF，可以直接购买BTC。
+20. Dailyhodl报道，Pantera Capital的创始人兼首席执行官表示，从长远来看，投资者可以预期替代币的表现将超过比特币。在最近一期Pantera的会议期间，Morehead说，尽管他的公司已经从BTC中大大获利，但他强调，未来大多数加密货币的收益将来自于altcoin投资。
+21. Dailyhodl报道，加密货币分析师Smart Contracter在概述智能合约平台Solana（SOL）和Ethereum（ETH）的发展道路时认为Solana将创历史新高，而ETH仍有活力。SOL在经过一段时间的积累后，将飙升至新的历史高点。
+22. 10月17日消息，分析师Eddievander Walt表示，比特币近期前景非常乐观，如果比特币价格突破64,869美元的纪录高点，动量交易员可能会将价格进一步大幅推高。
+
+
+
+
+
+*编辑：aQ
+发布：文顾*
