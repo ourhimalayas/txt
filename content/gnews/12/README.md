@@ -2,57 +2,20 @@
 ---
 
 
-## 健康强壮的体育教练接种疫苗后仍感染，肺部90%损伤，接受采访时被要求说谎
-` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1600613/)
+## 雅典娜时报-第085期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1600738/)
 
-尼基塔，一个27岁的自由式摔跤教练
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-没有不良嗜好，他的肺部有90%的损伤
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/10/181.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/182.png)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-他已经在医院住了两个月
+***发布：小红帽***
 
-他很难开口说话
-
-今天，他能够在没有氧气罩的情况下呼吸3个小时
-
-他的母亲就在他旁边
-
-他的整个家庭都患有甲状腺疾病
-
-尼基塔没有接种疫苗这就是他感觉更糟的原因。
-
-幕后花絮
-
-尼基塔和他的母亲住在一个病房里,
-
-因为她也是一个病毒感染的病人
-
-她帮助他,现在他可以自己做任何事情
-
-但他以前甚至连翻身都很困难
-
-这个年轻人今年27岁
-
-你姓什么？ Boklagov ,对
-
-尼基塔，你为什么不接种疫苗？
-
-也许你没有时间没有信任，或者有些偏见？
-
-我打过疫苗了
-
-嗯, 你说你接种了疫苗是什么意思?
-
-我们不拍这个
-
-我们拍吧，但跳过这部分
-
-他会说接种疫苗有多重要等等。
-
-文字听写翻译：Kent
-
-视频字幕：Kent
-
-编辑/发稿：Kent
-
-*免责声明：本文仅代表作者个人观点，与G-NEWS网站无关*
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

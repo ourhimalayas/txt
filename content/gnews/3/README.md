@@ -2,7 +2,12 @@
 ---
 
 
-## 10/17/2021七哥直播：江志成是当着江家的面被从新加坡绑架回中共国的，他被要求从海外拿回所有的财产
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1600760/)
+## 日本首相岸田文雄向靖国神社供奉盆栽祭品“真榊”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1600796/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10._18-scaled.jpg)
+（文章仅代表作者个人观点，与GNEWS无关）
+
+*编辑：东京樱花团/简报小组*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

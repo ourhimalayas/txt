@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/18/2021 2:24 AM (UTC)`
+
+10/17/2021 Miles Guo: Alvin Jiang was abducted in Singapore and sent back to the Communist China right in front of the Jiang family, and he was required to bring back all his assets from overseas. The investigation on Fu Zhenghua shows that the CCP can enforce laws and carry out operations in Canada as if they are in the Communist China<br/><br/>10/17/2021 文贵直播：江志成是当着江家的面从新加坡被绑架回中共国的，他被要求从海外拿回所有的财产；对傅政华的调查反映出中共在加拿大的“执法”跟其在国内执法没什么两样！<br/>
+![img](https://media.gettr.com/group45/getter/2021/10/18/02/24/dfa93c53-4547-24c7-5dd1-ecd53971e2fa/out.jpg)
+
+---
+
 `@miles 10/18/2021 1:03 AM (UTC)`
 
 2021年10月17号，这是去年发出的有关被王岐山和孟建柱．UBS银行和瑞士的这家AMAC公司黑掉了我们基金的飞机的视频，当时被YOUTUBE 删掉了！今天我们再回看这个视频的时候意义重大。接下来我们会在上厕所的时间把这家飞机装修公司的涉嫌恐怖主义洗黑钱和叙利亚的各个恐怖组织联系的证据推出来，让他接受国际上法律的审判。【2018年10月10日：这个来自黎巴嫩的(马黑地)是AMAC飞机装修公司的主席！他与UBS银行孟宏伟．海航一起共同策划了这起骇人听闻的诈骗抢劫案！这是我们十二年的心血．我付出了一亿一千万现金创造的世界上唯一的中式厨房！用碳纤维．莲花的图腾．爱马仕特制皮革．用中国五行风水概念世界级唯一以中国元素的现代空中艺术品！我会专门直播详细介绍盗国贼是如何操纵这一切的！】
@@ -293,13 +300,6 @@ Henry Reitzug博士：在注射带有被改造氨基酸的新冠mRNA疫苗进入
 
 西方外汇入中知多少、再谈疫苗台湾房地产
 ![img](https://media.gettr.com/group16/origin/2021/10/13/13/c7bb1497-4dd4-3010-0e30-363a3ff374fc/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 10/13/2021 2:25 AM (UTC)`
-
-10/12/2021 Miles Guo’s GETTR: The “hot money” in the world all went to the Darknet, and energy and commodity prices will rise first and then fall. The accomplices of the COVID vaccine disaster will pay their price. With more and more people waking up, COVID vaccination cannot be pushed anymore. This shows the power of the Whistleblowers' Movement and the New Federal State of China!<br/><br/>10/12/2021 文贵盖特：全世界的热钱都去了暗网，能源和大宗商品的价格将先涨后跌；疫苗灾难的帮凶都将付出代价，而越发多的人在觉醒，打疫苗也无法再推行下去，这就是爆料革命、新中国联邦的力量！
-![img](https://media.gettr.com/group14/getter/2021/10/13/02/25/fff23e8f-2772-ef20-e375-ac28c73065c2/out.jpg)
 
 ---
 

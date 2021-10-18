@@ -2,51 +2,43 @@
 ---
 
 
-## 前国务卿迈克·蓬佩奥：中国共产党正在进行大规模颠覆美国的行动
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1600752/)
+## 【战友观点】浅谈家庭离网光伏发电系统建设
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1600795/)
 
-比尔·格茨: 前国务卿迈克·蓬佩奥说，[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 正在进行大规模颠覆美国的行动. 【附华盛顿时报的相关文章：[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在美国国内进行声势浩大的影响力和情报行动，目标是拿下联邦、州和地方政府。】
-
-
-
-> China’s Communist Party is carrying out large scale operations to subvert the United States, former Secretary of State Mike Pompeo says [https://t.co/2n6oXmkGjc](https://t.co/2n6oXmkGjc)
-> — Bill Gertz (@BillGertz) [October 17, 2021](https://twitter.com/BillGertz/status/1449861325732020225?ref_src=twsrc%5Etfw)
+温哥华扬帆农场 – 枫叶正红时
+![](https://assets.gnews.org/wp-content/uploads/2021/10/101721.png)图片来源：Kssfny.com
 
 
+尽管我个人以为，在所有投资中，彻底消灭共惨党，消灭中共CCP，投资灭共基金，是投资回报率最好的方式。但最近看到很多战友讨论新能源发电的话题，本文重点介绍家庭离网光伏发电系统。
 
-众议员迈克·沃尔茨： 美国需要意识到 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在与我们进行军备竞赛……而我们正在失败。 【转金融时报记者推文：独家新闻 – [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 测试了具有核能力的高超音速导弹，该导弹通过太空低轨道飞行，在加速飞向目标之前绕地球一周，让美国情报部门和军事官员感到震惊。】
+应该说，对于应急困难的准备，有多种层次。比如，如果经济条件非常一般，或者家住公寓，一般只能准备到照明的层次，20升煤油或者20升未经提纯过滤的菜籽油、甚至20升工业酒精，一个容量200ml的玻璃瓶，再加上半斤棉花用于制作灯芯，差不多可以满足一年的照明需要了。如果经济条件更好一些，而且住在独立的House里，一台2~3KW的柴油发电机或汽油发电机，再加200升柴油或汽油都可以应付相当一段时间，正常情况下，0.3升左右柴油或汽油可以发出一度电。当然，如果追求高品质的生活或者作为长期投资回报计算，新能源发电是一个不错的选择。
 
+新能源发电的形式有很多种，但真正可以被普通个人利用的只有太阳能光伏发电、微风发电、和风光互补发电三种形式。如果单纯就度电成本来说，比市电成本都要高很多。具体成本的高低需要取决于您所在地区的光伏资源或风力资源分布。如果您所在地的风力资源丰富，微风发电的成本应当是最低的，甚至比市电成本都低很多。但风力发电具有明显的缺点。首先是风力发电系统电压、功率都极不稳定，系统控制非常困难。其次是常见小型微风发电机尽管启动风速最低甚至可以到3.9m/s，但系统噪音大概在35-65分贝之间。所以本文重点介绍光伏发电。
 
+如果不考虑应对突发艰难日子的因素，建设光伏发电系统的投资回报，取决于您所在地的峰值日照时数和市电价格。比如，如果您所在地的平均峰值日照时数大于4小时，而市电价格为0.6元/KWh，建设光伏发电系统的投资回收期为5~6年，而光伏发电系统的使用年限为20~25年，所以投资回报是不错的。
 
-> America needs to realize that the CCP is in an arms race with us….and we are losing. [https://t.co/i2XV1YNj2t](https://t.co/i2XV1YNj2t)
-> — Rep. Mike Waltz (@michaelgwaltz) [October 16, 2021](https://twitter.com/michaelgwaltz/status/1449473392344813571?ref_src=twsrc%5Etfw)
+家庭光伏发电分为离网光伏发电和并网光伏发电两种。如果家庭光伏发电需要和市电连接起来，形成多能互补、余电上网的并网光伏发电系统，一般是需要向供电部门申请的，供电部门会在系统并网点将单向电能表改成双向电能表。如果不申请并网发电系统，接入市电网络时，最好有防逆流装置。因为如果市电故障需要检修时，如果您的光伏发电系统向市电馈电，这对检修人员的安全是非常大的威胁。所以，如果您不想并网，又想实现和市电网络并列运行，那一定要选择带低电压、和高电压穿越功能的双向变流器，同时将变流器设置在离网运行模式，以防止系统向市电网络馈电。运行在离网模式的双向变电器可以自动实现光伏优先、不足由市电补充的最佳经济模式。
 
+家庭光伏发电系统的组成主要包括：单晶硅太阳能发电板、光伏支架、光伏控制器、双向变流器和蓄电池组，有的系统甚至需要用到带防雷接地和防反冲的光伏汇流箱。对于10KW以下的系统，光伏太阳能板、光伏支架、光伏控制器、双向变流器、电线电缆、基座建设成本为人民币3500-5000元/KW左右。对于家庭光伏发电系统，蓄电池应该选择阀控式铅酸蓄电池或铅炭电池，选择锂电池会是非常危险的，蓄电池的成本大概是人民币450~1000元/KWh。也就是说，小型光伏发电系统整体建造成本应当在5000~6500元/KW。如果您所在地区年平均峰值日照时数为4小时，市电价格0.6元/KWh，系统投资回收期为5~6年。
 
+那么，家庭光伏系统的功率多大才合适呢？根据这个公式：1.3ⅹ家庭平均日用电量 ∕ 当地峰值日照时数。比如，河南济源地区的峰值日照时数为4.18小时，如果家庭日用电量为20KWh，那光伏发电系统的功率应当为6.2KW。太阳能发电板有多种，单晶硅、多晶硅、非晶硅，您应当选择单晶硅。
 
-前白宫经济顾问彼得·纳瓦罗: 解雇蝠奇(Fire Fauci Video) 视频广告将于下周在 John Fredericks 的广播节目和班农作战室(War Room)首次亮相。 这里让你先睹为快。 让中共全额赔偿！！ 你认为怎样？ 在我的新书《川普时代》(In Trump Time) 中阅读有关福奇的真相。 购书网址为 bit./InTrumpTimeTQuote Tweet
+接下来就应该是考虑光伏支架和安装了。光伏太阳能发电板可以安装在坡屋顶屋面上或平面房顶上。要达到最佳的发电效率，应当面向正南方向安装。坡屋顶，则顺着房屋坡屋顶安装；平面屋顶，则按照安装倾角安装。在北纬30度以下的地区，一般可选择当地纬度+2~5度的安装倾角；如果是北纬30度以上的地区，则按照当地纬度+5~10度的安装倾角安装。光伏支架的选择必须按照当地的风荷载、雪荷载，经结构力学计算后确定。支架材料最好采用镀锌角钢，保证足够的使用年限（一般为20~25年）和强度。
 
+支架必须有足够的固定。坡屋顶，需要把瓦片揭开，把支架固定在房梁上，再盖上瓦片，之后再安装光伏发电板。如果是平面屋顶或地面上，光伏板必须无遮挡，基座必须经结构力学计算后确定，否则，容易被大风吹翻，光伏板离地最小间隙为30cm。
 
+如何确定几块串联，几块并联呢。需要根据您所在地的市电额定电压值来确定。任何光伏发电板都有一个工作参数表，其中，有一个参数叫最大功率点工作电压，串联数=1.43\*市电额定电压（如中共国220V、美国110V）/ 最大功率点工作电压。例如中共国战友安装，选择了450.2Wp、最大功率点电压为37.5V的单晶硅太阳能发电板，则串联数应当为1.43\*220/37.5=8串，并联数=6200 / 450.2 / 8=2并，实际总安装功率为7.2KW，平均日发电量为30度。最高41度，最低18度。实际可利用电能为平均23度，最高32度，最低14度。年发电量为11040度，实际可利用大于8460度。配置18只12V100Ah阀控式铅酸电池，18只串联。预计总投资4~5万元。
 
-> Fire Fauci Video ad debuts on John Fredericks and War Room next week. Here's your sneak peek. FULL REPARATIONS FROM CCP!!
-> What do you think?
-> 
-> Read the truth about Fauci in my new book In Trump Time on Amazon at [https://t.co/KPNUX2SBsy](https://t.co/KPNUX2SBsy) [pic.twitter.com/EKmsC9FdcY](https://t.co/EKmsC9FdcY)
-> — Peter Navarro (@RealPNavarro) [October 16, 2021](https://twitter.com/RealPNavarro/status/1449460176751321093?ref_src=twsrc%5Etfw)
+为什么需要蓄电池？所有新能源发电都存在发电和用电时间的之间的不平衡，对于光伏发电系统来说，系统电压波动幅动很小，但电流波动幅度很大，也就是功率波动幅度非常大，所以需要通过蓄电池系统进行平衡。做一个形象的比喻，天上下雨您无法控制，加装蓄电池系统相当于修池塘，雨水变得友好，才真正可以利用。
 
+家庭离网系统不能选择锂电池，因为锂电池对运行环境有非常严格的要求，必须严格控制锂电池的充电电压、电流、温度等参数，这需要单片机、PLC可编程控制系统或电池管理系统（BMS）来完成，这对家庭离网系统来说，是非常不划算的。不管您选用的是磷酸铁锂还是三元锂电池，没有电池管理系统的锂电池系统是极其危险的。
 
+家庭离网系统使用阀控式铅酸蓄电池或铅炭电池时，必须把电池放在无阳光直射、通风的室内环境中，电池应置于镀锌角铁钢制作的支架上，电池支架表面刷绝缘漆或进行喷塑处理，电池连接线束一般采用16或25平方纯铜导线，连接端子应加装聚乙烯、聚氯乙烯绝缘帽或绝缘胶带。
 
-众议员吉姆·班克斯： 关于达美航空公司[@Delta](https://twitter.com/Delta) 正在摒弃对其员工滥用和违宪的拜登疫苗强制的重大新闻。希望会有更多的公司跟进。 很快，许多公司就会意识到他们别无选择。倒闭或站在让你保持在空中飞翔的员工们一边！
-
-
-
-> Big news that [@Delta](https://twitter.com/Delta?ref_src=twsrc%5Etfw) is ditching the abusive and unconstitutional Biden vaccine mandate on its employees. Hopefully many more companies will follow. Soon many will realize they don’t have a choice. Go out of business or be on the side of your employees who keep you in the air!
-> — Jim Banks (@RepJimBanks) [October 16, 2021](https://twitter.com/RepJimBanks/status/1449419828574531591?ref_src=twsrc%5Etfw)
+最后，无论从投资回报还是人类生存基本需要，所有的投资方向，都不如直接投资灭共基金，消灭中共CCP回报更高。对我来说，消灭共惨党永远是第一选项。建设民主、法治的新中国联邦，才能真正拥有美好的未来，其它应对困难的准备都只是最后的选项。Take Down CCP!
 
 
 
-参议员玛莎·布莱克本： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 正在扩大其军队以欺负和威胁 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 的主权。 美国必须支持民主，反对 [#共产主义](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89?src=hashtag_click)。
+（免责声明：本文只代表作者观点，跟GNEWS平台无关）
 
-
-
-> Communist China is expanding its military to bully and threaten Taiwan’s sovereignty. The United States must stand for democracy and against communism.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [October 15, 2021](https://twitter.com/MarshaBlackburn/status/1449085783625932805?ref_src=twsrc%5Etfw)
+*编审/ 发布：文敏*

@@ -2,54 +2,51 @@
 ---
 
 
-## 调查前任新州州长，廉政公署举行公开听证会
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1600641/)
+## 前国务卿迈克·蓬佩奥：中国共产党正在进行大规模颠覆美国的行动
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1600752/)
 
-#### 编译报导：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/习近平-1.jpeg)
-图片来源：Newsraiser.com
+比尔·格茨: 前国务卿迈克·蓬佩奥说，[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 正在进行大规模颠覆美国的行动. 【附华盛顿时报的相关文章：[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在美国国内进行声势浩大的影响力和情报行动，目标是拿下联邦、州和地方政府。】
 
-10月18日，新州的廉政公署（ICAC）于今天上午开始对这位前新南威尔士州州长格拉迪斯·贝瑞吉克莲(Gladys Berejiklian)的调查举行公开听证会。
 
-协助ICAC法律顾问斯科特·罗伯逊（Scott Robertson）表示，进一步调查贝瑞吉克莲的决定是在她去年出席公开听证会后引发的。
 
-那时，贝瑞吉克莲透露她看到了委员会正在调查名誉扫地的前自由党议员达里尔·马奎尔（Daryl Maguire）。
+> China’s Communist Party is carrying out large scale operations to subvert the United States, former Secretary of State Mike Pompeo says [https://t.co/2n6oXmkGjc](https://t.co/2n6oXmkGjc)
+> — Bill Gertz (@BillGertz) [October 17, 2021](https://twitter.com/BillGertz/status/1449861325732020225?ref_src=twsrc%5Etfw)
 
-【备注：达里尔·马奎尔（Daryl Maguire）与前州长贝瑞吉克莲的男友】
 
-贝瑞吉克莲说，她从2015年开始与马奎尔交往，直到2018年，她因马奎尔陷入另一桩腐败丑闻而将马奎尔开除出党，直到去年公开听证会召开前不久，他们之间继续有私人交往。
 
-这位前州长现在正在接受调查，因为她是否违反了公众的信任并且没有报告马奎尔的腐败行为。
+众议员迈克·沃尔茨： 美国需要意识到 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在与我们进行军备竞赛……而我们正在失败。 【转金融时报记者推文：独家新闻 – [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 测试了具有核能力的高超音速导弹，该导弹通过太空低轨道飞行，在加速飞向目标之前绕地球一周，让美国情报部门和军事官员感到震惊。】
 
-罗伯逊说，经过几次私人听证会后，委员会决定今年举行公开听证会。
 
-“该委员会已经决定，进行公开调查符合公共利益，”罗伯逊说。
 
-今天的证人是体育局大悉尼地区主管迈克尔·图希（Michael Toohey），正在调查当时的财务主管贝瑞吉克莲向马奎尔选区的澳大利亚飞碟靶场协会提供的一笔赠款。
+> America needs to realize that the CCP is in an arms race with us….and we are losing. [https://t.co/i2XV1YNj2t](https://t.co/i2XV1YNj2t)
+> — Rep. Mike Waltz (@michaelgwaltz) [October 16, 2021](https://twitter.com/michaelgwaltz/status/1449473392344813571?ref_src=twsrc%5Etfw)
 
-ICAC法律顾问罗伯逊在听证会上致开幕词。
 
-罗伯逊问贝瑞吉克莲她是否怀疑马奎尔可能腐败，贝瑞吉克莲反复说“我不知道”。
 
-“我不知道，我很震惊，我不知道该怎么想，我没有足够的细节，我不知道发生了什么。我不记得我当时的想法，”贝瑞吉克莲说。
+前白宫经济顾问彼得·纳瓦罗: 解雇蝠奇(Fire Fauci Video) 视频广告将于下周在 John Fredericks 的广播节目和班农作战室(War Room)首次亮相。 这里让你先睹为快。 让中共全额赔偿！！ 你认为怎样？ 在我的新书《川普时代》(In Trump Time) 中阅读有关福奇的真相。 购书网址为 bit./InTrumpTimeTQuote Tweet
 
-罗伯逊指出，专员露丝·麦科尔(Ruth McColl)提到了贝瑞吉克莲于7月13日晚些时候发布的媒体报道，称马奎尔“让他的选民、新南威尔士州人民和新南威尔士州自由党失望了”。
 
-他还表示，贝瑞吉克莲之前曾宣布过其他关系，包括她2017年在公共服务部门工作的表亲或2018年的政党捐助者，但从未宣布与马奎尔存在潜在的利益冲突。
 
-新南威尔士州现任州长表示，他周末与前任贝瑞吉克莲进行了交谈，不会就今天开始的廉政公署听证会发表评论。
+> Fire Fauci Video ad debuts on John Fredericks and War Room next week. Here's your sneak peek. FULL REPARATIONS FROM CCP!!
+> What do you think?
+> 
+> Read the truth about Fauci in my new book In Trump Time on Amazon at [https://t.co/KPNUX2SBsy](https://t.co/KPNUX2SBsy) [pic.twitter.com/EKmsC9FdcY](https://t.co/EKmsC9FdcY)
+> — Peter Navarro (@RealPNavarro) [October 16, 2021](https://twitter.com/RealPNavarro/status/1449460176751321093?ref_src=twsrc%5Etfw)
 
-“她做得很好。我的部长团队专注于新州人民，廉政机构也将做好他们的工作，”多米尼克·佩罗特说（Dominic Perrottet）。
 
-新闻链接：[NSW COVID UPDATES LIVE: ICAC inquiry into former NSW Premier Gladys Berejiklian begins; Masks off in Sydney, Melbourne’s lockdown to end (afr.com)](https://www.afr.com/politics/federal/masks-off-in-sydney-melbourne-s-lockdown-to-end-20211018-p590ru)
 
-(本文仅代表作者个人观点，与Gnews 无关)
+众议员吉姆·班克斯： 关于达美航空公司[@Delta](https://twitter.com/Delta) 正在摒弃对其员工滥用和违宪的拜登疫苗强制的重大新闻。希望会有更多的公司跟进。 很快，许多公司就会意识到他们别无选择。倒闭或站在让你保持在空中飞翔的员工们一边！
 
-**发布：**
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+> Big news that [@Delta](https://twitter.com/Delta?ref_src=twsrc%5Etfw) is ditching the abusive and unconstitutional Biden vaccine mandate on its employees. Hopefully many more companies will follow. Soon many will realize they don’t have a choice. Go out of business or be on the side of your employees who keep you in the air!
+> — Jim Banks (@RepJimBanks) [October 16, 2021](https://twitter.com/RepJimBanks/status/1449419828574531591?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 正在扩大其军队以欺负和威胁 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 的主权。 美国必须支持民主，反对 [#共产主义](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89?src=hashtag_click)。
+
+
+
+> Communist China is expanding its military to bully and threaten Taiwan’s sovereignty. The United States must stand for democracy and against communism.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [October 15, 2021](https://twitter.com/MarshaBlackburn/status/1449085783625932805?ref_src=twsrc%5Etfw)

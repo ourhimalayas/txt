@@ -2,31 +2,208 @@
 ---
 
 
-## 索要数十亿美元投资！塔利班公开喊话中共
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1600472/)
+## 打不打台湾疫苗都会停，世界经济都会崩塌
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1600500/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/32-4.jpg)[图片来源](https://www.thepaper.cn/newsDetail_forward_14376785)
-“观察者网”10月17日报道，阿富汗塔利班发言人扎比乌拉·穆贾希德14日在接受“美国之音”采访时表示，“只要阿塔能够保证中国投资者、工人和财产安全，中共将在阿富汗投资数十亿美元开发铜矿。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/122-adt0y-n71er.jpg)
+[https://gtv.org/video/id=616c116bd2e2b81748763124](https://gtv.org/video/id=616c116bd2e2b81748763124)
 
-据报道，在14日的采访中，记者问及阿富汗塔利班对于中共投资有何要求。扎比乌拉·穆贾希德表示：“中共国是阿富汗的邻居，且有着很强的经济。我们在尝试着跟他们发展经济和贸易关系。虽然我们希望中国能够跟我们做生意，能够投资我们，但是我们也不会容忍任何对我们内部事务的干涉。”
+**郭文贵**
+**Miles Guo**
 
-记者提问，那么根据他与中方的交流，中共对于阿富汗塔利班有什么“要求”呢？
+不管他打不打台湾，疫苗的事情都会停
+Regardless of whether he fights Taiwan or not, the vaccination will stop
 
-扎比乌拉·穆贾希德说：“中共想要他们的工人和投资者的安全得到保障。他们对阿富汗某些领域的投资感兴趣，且想要沟通细节。其中一个项目是梅斯·艾娜克地区（Mes Aynak）的铜矿，这是一个他们想要投资数十亿美元的重点领域。”
+一定会停的
+It will definitely stop
 
-“当然阿富汗人也需要这些投资。我们已经向他们承诺保证他们的投资和财产的安全。”穆贾希德补充道。
+不会太长的时间
+It will not be too long
 
-今年9月8日，中共外长王毅在北京以视频方式出席首次阿富汗邻国外长会。王毅宣布根据阿富汗人民的需要，中共决定紧急提供价值2亿元人民币的粮食、越冬物资、疫苗和药品。王毅还表示，待安全等条件具备后，中共愿帮助阿富汗建设有助于改善民生的项目，并在力所能及的范围内，支持阿富汗和平重建和经济发展。
+几个月以内一定会停
+It will definitely stop within a few months
 
-8月，在中共的大力支持下，塔利班成功夺取了阿富汗政权。由于阿富汗的政局、社会和经济形势，掌权后的塔利班对中共的索取和讹诈将会更加无度，这必然会把已濒临崩溃的中共经济拖向深渊。
+这是一定的
+This is certain
 
-信息来源：
+不管他打不打台湾
+No matter whether he fights Taiwan or not
 
-[阿塔称中国或投资阿富汗数十亿美元，前提是保证安全\_手机网易网](https://www.163.com/news/article/GMHHQNR70001899O.html)
+疫苗导致死人
+the vaccine will cause deaths
 
-(文章仅代表作者本人观点，与GNEWS无关)
+未来你会看到最火的最涨价的
+You will see that the hottest and the most expensive in the future
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+就是装尸袋，这是一定的
+is the cadaver bags. It’s for sure.
+
+而且会导致世界上几年来，因为打了疫苗以后的反应
+And it will cause (fear) globally for several years because of the reactions after be-ing vaccinated
+
+3年、5年的期限
+3 or 5 years of time period
+
+这种恐惧和恐慌一定是到处无处不在
+This kind of fear and panic must be everywhere
+
+他跟打台湾都没关系
+It has nothing to do with fighting Taiwan
+
+然后呢
+and then
+
+这个经济上，不管打不打台湾
+it doesn’t matter whether it fights Taiwan or not, economically
+
+美国、世界、欧元、经济都会崩塌
+the United States, the world, and the euro economy all will collapse
+
+供应链会奇怪地
+the supply chain will be strangely
+
+你无法想象地暴涨
+and you can’t imagine it soaring
+
+各……有些东西涨到你无法想象
+each…Some things have risen beyond your imagination
+
+很多人说是有人不干活啦
+Many people have said that some people are not working
+
+很多人说这个物价了，都不是
+Many people have blamed the pricing, neither.
+
+它有整个这些年的经济积累的各方面
+It has all aspects of economic accumulation throughout these year
+
+根本问题还是世界上经济失调
+The fundamental problem is the economic imbalance in the world
+
+还有这个全世界的所谓的全球的经济化、全球化
+as well as the so-called global economization, globalization, trade, and global trade in the world
+
+贸易、全球贸易化，和由共产党这个巨大的影响造成的不平衡
+Trade, global trade, and the imbalance caused by the huge influence of the Com-munist Party
+
+这个人类都要付出代价
+The mankind will have to pay the cost for that
+现在印度的工人上来了
+Now the Indian workers are coming up
+
+会对一些某些贸易、运输领域会下来
+some trade and transportation fields will come down
+
+然后再一个
+And then, another one is
+
+非洲还有东南亚现在上来了
+Africa and Southeast Asia are now coming up
+
+像越南这些。但都解决不了
+like Vietnam etc. But all will not be solved
+
+根本上
+Fundamentally,
+
+美国整个供应链从中共国转到东南亚
+it takes time for the entire supply chain of the United States to transfer from the CCP to Southeast Asia
+
+转到欧洲和东欧国家
+to Europe and Eastern European countries
+
+它需要一个时间
+It needs time
+
+所以说它物价是不平衡的
+That’s why it said that the produces prices are unbalanced
+
+它会突胀。再一个就是运输业，还有一个能源业, 大变化
+It will inflate. Other ones are the transportation industry and the energy industry. There will be a big change.
+
+这跟台湾都没有关系
+This has nothing to do with fights Taiwan
+
+打台湾只是加剧了这几件事的快速发生
+The fight against Taiwan has only aggravated the rapid occurrence of these events
+
+它跟它不是绝对关系
+It is not absolutely related to it
+
+一定是这结局，有没有打台湾（这件事）
+It must be this outcome, whether he fights Taiwan or not
+
+所以说现在这个美国，它是很夸张的这个政治短视
+That’s why the United States now is very politically shortsighted
+
+还有一个美国现在现任政府(问题)
+and another one is the current US government (issues)
+
+他们2022年的中期大选
+their midterm elections in 2022
+
+还有疫苗的问题
+and the issue of vaccines
+
+他们都知道好日子不多
+All of them aware that the good days won’t last long
+
+所以说把台湾人卖掉，根本不算什么事
+Therefore, selling Taiwanese people is not a matter at all
+
+这也符合美国一贯以来的冷血
+This is also match the United States character which has always been cold-blooded
+
+还有一个就是美国的现实的资本主义
+Also, true nature of actual capitalism in America
+
+还有华尔街的黑暗势力的控制
+and the control of the dark forces on Wall Street
+
+这跟……都没啥关系
+These have nothing to do with….
+
+不管打不打台湾，这事都会发生
+This will happen regardless of whether Taiwan is facing the war or not
+
+它只是加速的发生
+Hitting Taiwan just accelerated all of this
+
+这关键说打不打共产党的问题
+The key to this is the question of whether or not the Communist Party will be de-feated
+
+我可以告诉你
+I can tell you that
+
+打不打台湾，中美之间
+whether it (the CCP) fights the Taiwan or not, between China and the US
+
+必然脱钩，必然有一战
+will inevitably decouple and have a battle
+
+它就是一个你死我活的关系
+It (the CCP fights Taiwan) is a life-and-death relationship
+
+没有任何逻辑性
+without any logical ideology
+
+———————————————————
+
+**原视频链接:**[** **https://twitter.com/se1y7cblljselva/status/1447502562257563651?s=24](https://twitter.com/se1y7cblljselva/status/1447502562257563651?s=24)
+
+Date: 10/15/2021
+Regardless of whether fighting Taiwan or not, the vaccination will stop and the world economy will collapse
+原视频日期：2021/10/10
+任务编号：KC174(2530)
+视频时间段 : 0:00-2:15
+
+英听校: 洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
