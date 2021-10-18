@@ -2,42 +2,46 @@
 ---
 
 
-## 英国生育率创下新低
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1601494/)
+## 班农专访Q-7: 从不爱护国民的非法政府要举办全球盛会
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1601613/)
 
-作者：文真
+**简评：**一个从来不爱护民众，不能给国民提供基本保障的非法政府要举办奥运会，还威胁其他国家不要抵制。中华文明有着悠久的历史，中国人民勤劳能干，创造了大量的财富，但他们却在挨冻受饿。中国人民不会再忍受这种情况。郭文贵先生引领的新中国联邦和爆料革命正在做了不起的事情，全世界都会看到中国老百姓真实的生活，然后看到会发生什么。
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+GTV视频链接：[英喜每周访问班农先生1013-Q7: 一个国家几乎无法给自己的人民提供基本服务，比如供暖，还举办国际盛会，有意思不](https://gtv.org/video/id=616bb526d2e2b817487617a7)
 
 
 
-根据英国国家统计局的官方数据，2020年英国的生育率降至1.58，达到有记录以来的最低水平。 尽管新冠大流行期间，人们大部分时间待在家中，但是2020年英国人口出生率比2019年下降了4.2%，比2001年的前一个历史低点低了3.1%。而且，英国的出生率已经连续五年呈下降趋势。 英国怀孕咨询处指责中共病毒大流行导致的经济不确定性，是生育率大幅下降的原因之一。 大范围接种新冠疫苗也可能会成为导致生育率和出生率下降的因素。英国是最早普及新冠疫苗的国家之一，接种率已接近70%。英国生殖免疫专家发现新冠疫苗导致女性经期紊乱，甚至闭经。大量医学案例证明，孕期女性接种新冠疫苗可导致流产。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-99.jpg)
-参考链接：
-1.[Demographic Collapse: British Fertility Rate Lowest in History, But Number of Foreign Mothers at Record High](https://www.breitbart.com/europe/2021/10/17/british-fertility-rate-falls-to-lowest-in-history/)
-2. [秘翻在线：英国生殖免疫专家呼吁调查疫苗与经期紊乱的关联](https://gnews.org/zh-hans/1545301/)
+**视频字幕：**
 
-（本文仅代表作者观点）
+**主持人Winston：**说到中共的危险，中共警告美国不要带头抵制（北京）冬奥会。先把人权问题搁置一边。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+一个国家几乎无法给自己的人民提供基本服务，比如供暖，还举办国际盛会，这太不合理了。
 
-新闻访谈终审：Ryan
-编辑/校对/发稿：为真不破20
+**班农先生：**你说到点子上了。这恰恰是我劝别人，我们不应该推动抵制（北京冬奥会）的原因。全世界都应该看看他们在北京冬奥会上企图粉饰太平的表演。
 
-**更多资讯，更多关注**
+其实提供这一切的中国工人在挨饿受冷。在中国被奴役的劳工们既没钱，又在受冷、挨饿。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+让我们把现实展示给世界吧。到时候让我们把现实展示给全世界。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+现实并不是那些体育比赛，也不是他们将要举行的盛大开幕式。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+让我们给大家看看现代中国人的现状。他们在受冷挨饿，还没钱。我就说这么多。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（中国）作为世界上最古老的文明，给予过世界很多东西。（中国文化）是基于家庭传统、勤劳、自力更生和壮大家族之上的。而你们的回报却是寒冷、饥饿和没钱，就这。但这是站不住脚的。你们知道为什么吗？
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+中国人民不会允许这样下去了，所以我认为文贵所做的太了不起。新中国联邦和爆料革命正在做的太了不起。
+
+让全世界看看中国老百姓的现实生活，然后我们再看看会发生什么。
+
+编辑：【英国伦敦喜庄园编辑部】
+
+*字幕：nights | 听写：势不可挡 | 翻译：Roberts | 校对：clau | 简评/文字整理/编辑：胖丁 | Page：Daoiii*
+
+免责声明：本文只代表警告、作者观点，与Gnews平台发布无关
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[![](https://spark.adobe.com/page/pZSWByXmfzss4/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/pZSWByXmfzss4/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
