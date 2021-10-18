@@ -2,50 +2,26 @@
 ---
 
 
-## 中共国谴责外国政府派军舰通过台湾海峡，自己却持续挑衅台湾领空
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1600863/)
+## 中共国曾在8月秘密测试高超音速导弹
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1600904/)
 
-作者：香草山金融部 – 闲聊钱币
+撰稿：东京樱花团/上善若水
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/中共国曾在8月秘密测试高超音速导弹.jpg)[图片来源](https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E7%88%86%E6%96%99%E4%B8%AD%E5%9B%BD%E6%9B%BE%E5%9C%A88%E6%9C%88%E7%A7%98%E5%AF%86%E6%B5%8B%E8%AF%95%E9%AB%98%E8%B6%85%E9%9F%B3%E9%80%9F%E5%AF%BC%E5%BC%B9/a-59530540)
 
+英国《金融时报》报道称，中共国在今年8月测试过一枚可携带核弹头的在轨超高音速导弹，导弹最终落在偏离目标约32公里处。报道称，中国在超高音速武器发展方面的进展令“美国情报部门感到措手不及”。
 
+文章中引述消息人士称，中国进行的这次超高音速导弹测试通过长征火箭作为运载工具。报道称，中国通常会通报火箭发射，但是8月的这次测试却被对外隐瞒。 美国五角大楼发言人柯比（John Kirby）表示，他不会对《金融时报》这篇报道的具体内容发表评论，但是他补充说：”我们已经很明确地表达了对于中国持续追求提高会导致本地区及其它地区局势升温的军事能力的担忧。这也是为什么我们把中国看作是头号挑战的原因之一。”
 
+报道指出，包括中国、美国、俄罗斯在内，目前至少有5个国家正在研究高超音速技术。一般而言，高超音速武器指的是在大气层内飞行速度超过5倍音速的武器，同时可以携带核弹头。
 
+信息来源：
 
+[英媒爆料中国曾在8月秘密测试高超音速导弹](https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E7%88%86%E6%96%99%E4%B8%AD%E5%9B%BD%E6%9B%BE%E5%9C%A88%E6%9C%88%E7%A7%98%E5%AF%86%E6%B5%8B%E8%AF%95%E9%AB%98%E8%B6%85%E9%9F%B3%E9%80%9F%E5%AF%BC%E5%BC%B9/a-59530540)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+（免责声明：文章仅代表作者本人观点，与GNEWS无关）
 
+*校对：东京樱花团/知了知了
+发布：东京樱花团/老黑*
 
-
-
-
-
-
-
-
-(路透社) 北京/台北10月17日 – 中共国军方周日谴责美国和加拿大上周各自派军舰通过台湾海峡，称他们正在威胁该地区的和平与稳定。
-
-美国军方则表示在周四和周五，阿利伯克级导弹驱逐舰杜威号与加拿大护卫舰温尼伯号护卫舰一起驶过台湾海峡。这一动作表明了美国及其盟友对维护印太地区的自由和开放的承诺。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture6-3.jpg)
-中共解放军东部战区司令部表示其辖下部队在船只通过的同时进行了严密的监控，随时应对。
-
-美国海军舰艇大约每个月都会通过台湾海峡，美国的盟友偶尔也会派船只通过海峡，包括上个月的英国和这次的加拿大。
-
-中共贼喊捉贼，在谴责别国的同时自己确在过去的一年多时间里多次向台湾防空识别区（ADIZ）执行空军任务。特别是今年的10月初的四天内，中共国向该地区派遣了大约 150 架飞机。台湾国防部周日表示，最新的一次，中共国派遣了两架歼16战斗机和一架反潜机再次飞入防空识别区。
-
-（本文仅代表作者观点）
-
-参考来源：[https://www.reuters.com/world/asia-pacific/us-canadian-warships-sailed-through-taiwan-strait-last-week-2021-10-17/](https://www.reuters.com/world/asia-pacific/us-canadian-warships-sailed-through-taiwan-strait-last-week-2021-10-17/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
