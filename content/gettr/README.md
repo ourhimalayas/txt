@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@feelsogood 10/18/2021 8:52 PM (UTC)`
+
+狂印錢之後的大禍
+![img](https://media.gettr.com/group46/getter/2021/10/18/20/f9034373-c6e6-f039-04da-ea4608b39fc3/544f6abb932d67c772155181192b4885.jpg)
+
+---
+
 `@miles 10/18/2021 6:13 PM (UTC)`
 
 10月18日：鲍威尔绝对死于疫苗，而不是死于病毒，所有的这些媒体都在撒谎。<br/><br/>他们在掩盖什么？恐惧什么？<br/><br/>https://twitter.com/Reuters/status/1450101932299857928?s=08 七哥您好! 路透社的新闻非常明确，他是打完两针疫苗，fully vaccinated的。
@@ -290,13 +299,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 10/13/2021 Miles Guo: The war between the Communist China and the US is inevitable, with the fundamental reason being the CCP’s economy - the real estate industry will completely collapse, and the CCP will stop buying US Treasury securities and will default on the debt to the West; Once the war broke out between the CCP and the US, the anti-Chinese movement will surely escalate!<br/><br/>10/13/2021 文贵直播：中美之间必有一战，其根本原因在于中共的经济 - 房地产将彻底崩溃、中共将停止购买美债并无法偿还欠西方的债务；中美一旦开战，排华必将升级！<br/><br/>
 ![img](https://media.gettr.com/group25/getter/2021/10/14/00/28/942f8583-54a8-81ba-ec89-85e5e6bcf45b/out.jpg)
-
----
-
-`@miles 10/14/2021 12:03 AM (UTC)`
-
-10月13号：【经过战友同意，分享一位战友的经历。<br/>推文内容战友自己编写、她没有推。<br/>       <br/>  我十几年的炎症已好了90%'，早上吃药后一直在散结。<br/>注意，不可喝酒。】
-![img](https://media.gettr.com/group39/getter/2021/10/14/00/03/e999607f-ee9d-9d4c-3827-f1c3ed5d44b4/d855f558bf95ff33dca364ef837a2897.jpg)
 
 ---
 
