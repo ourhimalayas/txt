@@ -2,51 +2,32 @@
 ---
 
 
-## 前国务卿迈克·蓬佩奥：中国共产党正在进行大规模颠覆美国的行动
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1600752/)
+## 国际人权活动人士在雅典卫城抗议北京冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1600792/)
 
-比尔·格茨: 前国务卿迈克·蓬佩奥说，[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 正在进行大规模颠覆美国的行动. 【附华盛顿时报的相关文章：[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在美国国内进行声势浩大的影响力和情报行动，目标是拿下联邦、州和地方政府。】
-
-
-
-> China’s Communist Party is carrying out large scale operations to subvert the United States, former Secretary of State Mike Pompeo says [https://t.co/2n6oXmkGjc](https://t.co/2n6oXmkGjc)
-> — Bill Gertz (@BillGertz) [October 17, 2021](https://twitter.com/BillGertz/status/1449861325732020225?ref_src=twsrc%5Etfw)
+作者：文仁
 
 
 
-众议员迈克·沃尔茨： 美国需要意识到 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在与我们进行军备竞赛……而我们正在失败。 【转金融时报记者推文：独家新闻 – [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 测试了具有核能力的高超音速导弹，该导弹通过太空低轨道飞行，在加速飞向目标之前绕地球一周，让美国情报部门和军事官员感到震惊。】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-17.jpg)
+据【美国之音】和【路透社】报道，在北京2022年冬奥会组委会准备接收奥运火炬之际，人权活动人士星期天在希腊雅典卫城举行示威，抗议北京冬奥会。警方拘捕了两名向卫城投掷旗帜的活动人士。由于中国恶劣的人权记录，抗议活动和要求抵制在北京举办奥运会的呼声，令奥运会蒙上阴影。人权组织和美国国会议员呼吁国际奥委会推迟北京冬奥会并改在其他城市举办，除非中国当局停止在新疆针对维吾尔和其他少数民族穆斯林的“种族灭绝”行为。 国际奥林匹克委员会副主席科茨（John Coates）10月13日明确拒绝了有关方面要求该组织在2022年北京冬奥会上批评中国的人权问题。中共的蓝金黄已经深深地影响了世界上很多的非政府组织，他们为了一些短期的利益而放弃了对人权的尊重和正义的坚守。
 
-> America needs to realize that the CCP is in an arms race with us….and we are losing. [https://t.co/i2XV1YNj2t](https://t.co/i2XV1YNj2t)
-> — Rep. Mike Waltz (@michaelgwaltz) [October 16, 2021](https://twitter.com/michaelgwaltz/status/1449473392344813571?ref_src=twsrc%5Etfw)
+（本文仅代表作者观点）
 
+参考链接：[国际人权活动人士在雅典卫城抗议北京冬奥会](https://www.voachinese.com/a/athens-protest-beijing-winter-games-20211017/6274118.html)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
-前白宫经济顾问彼得·纳瓦罗: 解雇蝠奇(Fire Fauci Video) 视频广告将于下周在 John Fredericks 的广播节目和班农作战室(War Room)首次亮相。 这里让你先睹为快。 让中共全额赔偿！！ 你认为怎样？ 在我的新书《川普时代》(In Trump Time) 中阅读有关福奇的真相。 购书网址为 bit./InTrumpTimeTQuote Tweet
+新闻访谈终审：Ryan
+编辑/校对/审核：Hetangyuese
 
-
-
-> Fire Fauci Video ad debuts on John Fredericks and War Room next week. Here's your sneak peek. FULL REPARATIONS FROM CCP!!
-> What do you think?
-> 
-> Read the truth about Fauci in my new book In Trump Time on Amazon at [https://t.co/KPNUX2SBsy](https://t.co/KPNUX2SBsy) [pic.twitter.com/EKmsC9FdcY](https://t.co/EKmsC9FdcY)
-> — Peter Navarro (@RealPNavarro) [October 16, 2021](https://twitter.com/RealPNavarro/status/1449460176751321093?ref_src=twsrc%5Etfw)
-
-
-
-众议员吉姆·班克斯： 关于达美航空公司[@Delta](https://twitter.com/Delta) 正在摒弃对其员工滥用和违宪的拜登疫苗强制的重大新闻。希望会有更多的公司跟进。 很快，许多公司就会意识到他们别无选择。倒闭或站在让你保持在空中飞翔的员工们一边！
-
-
-
-> Big news that [@Delta](https://twitter.com/Delta?ref_src=twsrc%5Etfw) is ditching the abusive and unconstitutional Biden vaccine mandate on its employees. Hopefully many more companies will follow. Soon many will realize they don’t have a choice. Go out of business or be on the side of your employees who keep you in the air!
-> — Jim Banks (@RepJimBanks) [October 16, 2021](https://twitter.com/RepJimBanks/status/1449419828574531591?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 正在扩大其军队以欺负和威胁 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 的主权。 美国必须支持民主，反对 [#共产主义](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89?src=hashtag_click)。
-
-
-
-> Communist China is expanding its military to bully and threaten Taiwan’s sovereignty. The United States must stand for democracy and against communism.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [October 15, 2021](https://twitter.com/MarshaBlackburn/status/1449085783625932805?ref_src=twsrc%5Etfw)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
