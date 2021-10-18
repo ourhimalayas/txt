@@ -2,35 +2,32 @@
 ---
 
 
-## 针下亡魂｜中国 12 岁少女接种疫苗 7 日后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1601721/)
+## 709维权律师家属宣布独立参选区县人大代表
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1601750/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 18/10/2021**
+作者：在远方
 
-***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/36-1.jpg)
+中共709维权律师大抓捕案的14名家属，15日发表了独立候选人联合宣言，表示要参选区级人大代表，谋求能为基层百姓发声、说话。709案是2015年7月9日，中共对23个省份的上百名律师、民间维权人士及其家属，进行的一场大规模刑拘、逮捕事件，部分人士至今下落不明。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1018-AM-（1-3）.001.jpeg)
+709案受害律师王全璋家属李文足表示，他们在维权过程中受到各种打压与刁难，深感平民百姓申诉愿望无门，以及与中共公检法司机关沟通的艰难，所以他们决心作为独立候选人，争取在中共五年一次的区县人大换届选举中参选。
 
-【中国】河南省濮阳市一名 12 岁少女李博艺接种完中共国产 COVID-19 疫苗之后的第 7 日死亡。
+中共所谓人大机关本身就是一个“橡皮图章”，只是共产党用来粉饰虚假民主的摆设而已。709案家属公开挑战中共的行为勇气可嘉，但也将引来中共的更多迫害。
+(本文仅代表作者观点)
 
-据该少女的母亲蒋艳红的回忆，她的女儿于 8 月 10 日接受了第一针疫苗，3日后，就出现发高烧，嗓子疼的状况，询问当地疫苗接种中心卫生院的院长之后，被告知“吃点退烧药就好了。”结果，李博艺 15 日开始呼吸困难，送到当地人民医院急诊之后，直接被推进了重症监护室，17日凌晨 2 时，李博艺就病重离世。
+参考链接：[北京709案维权律师家属等14公民宣布独立参选区县人大代表选举](https://www.voachinese.com/a/beijing-citizens-announced-independent-candidacy-for-local-people-rep-elections-20211017/6274043.html)
 
-母亲蒋艳红表示，自己是单亲母亲，“我的孩子才 12 岁，接种疫苗是学校强行通知让打的，孩子不打疫苗就不让上学。我领着孩子打了一支疫苗，结果把孩子的命都打没了。我们当地卫健委听说孩子病逝了，直接火化，9 月 1 日给出的鉴定结果是，死亡纯属偶合。”
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-蒋艳红不接受鉴定结果，去信访办投诉，信访办推诿给市卫健委，市卫健委又推给县卫健委。但县卫健委的领导不仅避而不见，更安排超过四位体魄健硕的男人殴打蒋艳红。
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/post-672177-616d2fa3c2f36.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/post-672177-616d2fa407a33.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-被逼无奈之下，她在中国大陆的社交平台微博、微信、QQ上发贴为孩子讨要公道，可惜，不久之后就被全面封禁。不过，她依然坚持，“孩子不能这样就没了，孩子死不瞑目，我再艰难也要为孩子讨回公道。”
-
-令人痛心的是，最新消息显示，蒋艳红 10 月 16 日拟赴北京维权之前，被南乐县公安局以涉嫌“寻衅滋事罪”刑事拘留。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-1634545521575.png)
-
-来源｜ [个案036](https://m.renminbao.com/rmb/articles/2021/9/27/73261mb.html)
-
-* * *
-
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,29 +2,31 @@
 ---
 
 
-## 布伦特油价三年来首次突破86美元
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1602183/)
+## 有声|波音公司工人抗议疫苗强制令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1602241/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+配音：香草山美食部 – 玫瑰园
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/B-4.jpg)usfreenews.com
-美东时间10月18日报道，布伦特原油在10月18日星期一的交易中突破了每桶86美元。这是自2018年10月以来的首次。美国洲际交易所（ICE）数据显示，截至莫斯科时间6:13，12月布伦特期货比周五收盘时上涨1.35%，报每桶86.02美元。
+10月15日，在华盛顿州埃弗雷特的波音工厂外，波音员工和其他人和平抗议公司的疫苗强制令。在雨中抗议人群同过往车辆挥手相互呼应。
 
-BCS Express的专家Igor Galaktionov评论称，油价增长的关键驱动力是强劲的需求，除此之外，发电能力从昂贵的天然气和煤炭转向更便宜的燃料油和柴油驱动。
+波音公司曾在10月12日表示，根据拜登总统的行政命令，将要求其12.5万名美国员工在12月8日前接种疫苗。
 
-在此背景下，国际能源署（IEA）将2021年的需求预测提高到9630万桶/日。也就是说，根据该组织的预期，今年的需求将增加550万桶/日。
+这一要求遭到了大量员工的抵制和抗议。每个人都有选择不接种的权利，政府和企业不能强迫人们做事情。有相当比例的员工已经认识到疫苗的部分真相，新冠疫苗并没有获得正式授权，而是在缺失“知情同意”的情况下，不人道的“人体实验药物”。
 
-国际能源署还将2022年的需求增长预测从320万桶/天提高到330万桶/天。因此，国际能源署估计明年的石油需求为9960万桶/天，略高于中共（新冠）病毒大流行前的水平。
+在德克萨斯州，共和党州长格雷格·阿伯特10月11日发布行政命令，禁止包括私人雇主在内的任何实体强制使用新冠病毒疫苗，波音公司宣布他们的强制令不立即适用于该州的工厂。蝴蝶效应将传遍美国各地，德州和佛州发起的法律诉讼，也为其他地区反抗的人们提供了参考。
 
-尽管需求量增长，欧佩克继续坚持增产40万桶/天的计划。与此同时，美国能源部将该国2021年的石油日产量预测下调了6万桶/日，至1102万桶/日。
+我们相信，随着疫苗真相的不断被揭露，民众自由权利意识的不断觉醒，为自由争取权力的人们将很快取得最后的胜利。
 
-“这种环境市场坚信未来几个月石油需求将继续保持赤字状态，并使人们有理由期待价格将进一步上涨。”Galaktionov总结道。
+文字版原文：[波音公司工人抗议疫苗强制令](https://gnews.org/zh-hans/1599776/)
 
-在此背景下，市场忽略了周五美国活跃的石油钻机数量的数据，上周增加了12台钻机，钻机总数达445台。
+音频处理：喜山必胜Maverick
 
-Solid经纪公司首席分析师Dmitry Donetsky表示，“我们现在看到的是需求上升和供应增长放缓的典型情况，这导致价格上涨。因此，在目前的情况下，布伦特油价达到100美元是比较现实的。然而，Donetsky强调，我们预计油价的增长是短期的。迟早，价格将回到50-70美元的范围，这个价格区间从长期来说是稳定的。”
-
-参考链接：
-
-[https://quote.rbc.ru/news/article/616d03c79a7947cb418aaeef?from=from\_main\_6](https://quote.rbc.ru/news/article/616d03c79a7947cb418aaeef?from=from_main_6)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

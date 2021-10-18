@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@wsmartin218 10/15/2021 2:36 PM (UTC)`
+
+@jasonmillerindc @gavinwax Need #GETTR threads!!<br/><br/>Don't want need!
+> `@wsmartin218 10/15/2021 2:27 PM (UTC)`<br/>All of this to say: DO NOT think Democrats have come around on the border crisis all of a sudden.<br/><br/>Mass illegal immigration is the outcome Democrats WANT. They will not seriously act to stop mass illegal immigration.<br/><br/>We have to remove them from power if we want the it to stop.
+
+---
+
 `@miles 10/18/2021 3:24 PM (UTC)`
 
 10月18日：愿战友们一定谨遵医嘱用药，从目前的情况看，国内的青蒿素的质量和国外的青蒿素的质量差距很大，青蒿素和青蒿素哌奎片一定要分清楚。【我已得到不少战友要求咨询，多是关于国内家人用青蒿素哌喹解疫苗毒而至高热的主诉。问下来，似乎都有先前服用硫酸羟氯奎预防病毒感染的用药史。这两个药均含喹宁成分，不能同时服用。且硫酸羟氯奎的药物半衰期长达52天，就是说要等停用羟氯奎20来天后，才能开始青蒿素哌喹的解毒疗程。这是我根据这两种药的药物代谢动力学做出的逻辑推断，尚无实验数据证明该论点。】
@@ -289,15 +298,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 10月13日：杀戮还在继续，只是刚刚开始。【661 people died within 28 days of having the vaccine in Maine USA, However, the Maine CDC Director, Dr. Nirav Shah refused to be drawn on those deaths <br/>缅因州661人在接种完疫苗28天死亡。然而缅因州的CDC主任 Dr.Nirav Shah 拒绝对这些死亡展开调查】
 ![img](https://media.gettr.com/group25/getter/2021/10/13/23/58/ee03c549-10d6-caef-82e7-5467b264d188/out.jpg)
-
----
-
-`@miles 10/13/2021 10:01 PM (UTC)`
-
-Henry Reitzug博士：在注射带有被改造氨基酸的新冠mRNA疫苗进入人体后，人体变成一个生产刺突蛋白的工厂，而刺突蛋白对人体是致命的。接种新冠mRNA疫苗的人改变了自身先天免疫系统，表现在癌症发病率的增加，已经缓解的癌症被重新激活，复发率越来越高。<br/><br/>Dr. Henry Reitzug: After injecting the COVID mRNA vaccines with modified amino acids into the human body, the body becomes a factory for producing spike protein that is lethal to the human body. People who have had the mRNA injected have changed their innate immune system, which leads to the increasing incidence of cancer. The remission of cancer is reactivated, and the recurrence rate is getting higher and higher.
-![img](https://media.gettr.com/group12/origin/2021/10/13/22/01/ae18413d-b885-1684-9793-5c92e53ee097/out.jpg)
-> `@miles 10/12/2021 10:19 AM (UTC)`<br/>Henry Reitzug博士强烈建议所有人都不要接种疫苗，而是寻求其他治疗方案，主流媒体或政治家说“遵循科学”的意思是“遵照我的意思”，这通常是有政治动机的，他们从一开始的口号就是“没有治疗手段，我们需要疫苗”，这违背了医学界的普遍方法，这是虚假且不合理的，新冠病毒没有治疗方法的说法也是绝对不正确的。（评：新冠溯源都未确定，不探究方法，而新冠疫苗这么快就问世了，这太荒唐了！）<br/><br/>Dr. Henry Reitzug strongly advises anyone not to get vaccinated, but to seek alternative treatments for the coronavirus. Mainstream media or politicians say "follow the science" means "follow my way ", which is usually politically motivated. Their initial mantra was "there is no treatment, we need a vaccine." This violates the approach generally in medicine, is false and unreasonable, and the claim that there is no treatment is absolutely not true. (Comment: The COVID-19 origin tracing has not been determined, while the COVID-19 vaccines came out so soon, which is ridiculous.)
-![img](https://media.gettr.com/group34/origin/2021/10/12/10/19/809240c7-ead9-b0dd-0a76-302ca7c91623/out.jpg)
 
 ---
 
