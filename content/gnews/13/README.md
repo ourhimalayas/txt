@@ -2,31 +2,27 @@
 ---
 
 
-## 针对医院拒绝用伊维菌素治疗COVID-19，各地提起了诉讼
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602517/)
+## 丹麦公布多数冠状病毒住院患者和新感染者已完全接种疫苗
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1602596/)
 
-【简评：】*伊维菌素作为抗寄生虫药物早在几十年前就已经被批准使用于人体，其发明者大村智先生及青蒿素的发明者屠呦呦女士一同获得了2015年的诺贝尔奖，在颁奖大会上，*[*诺贝尔奖委员会讲到：“伊维菌素对于改善数百万患有河盲症和淋巴丝虫病的人的健康和福祉的重要性是无法估量的，主要是在世界最贫穷的地区，它的治疗如此成功，以至于这些疾病即将被根除，这将是人类医学史上的一项重大壮举*](https://gnews.org/zh-hans/1600096/)*。”现在*[*主流媒体为了维护大型制药公司和医疗机构的利益而去撒谎，谎称伊维菌素是非人用驱虫剂*](https://gnews.org/zh-hans/1511179/)*，不过，在爆料革命、文贵先生、以及广大战友的大力宣传下，越来越多人认识到伊维菌素对治疗中共病毒的效果，并积极主动参与到伊维菌素的宣传中。*
+撰稿：Skagen【㊙️翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222-1.jpg)
+来源：TV2
 
-据《公正新闻》2021年10月17日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-329.png)图片来源：法新社
-美国各地正在掀起一波诉讼浪潮，设法迫使医疗工作者提供伊维菌素作为治疗COVID-19患者的药物。
+丹麦国家血清研究所 Statens Serum Institut (SSI) 的最新数据显示，**绝大多数因 covid-19 入院的患者已经完全接种疫苗。**
 
-自去年年底以来，人们一直在猜测伊维菌素是否有可能用于治疗SARS-Cov-2病毒。许多医疗官员强烈反对使用它，声称其对抗病毒的有效性尚未得到证实。
+10月17日的最新统计显示，在当天住院的115人中，有66人完成了疫苗接种，即超过57%的住院者是完成了两针疫苗的。
 
-据美联社报道，在全国各地提起的诉讼是由“一些试图迫使医院给他们感染了新冠病毒的亲人服用伊维菌素的人”提交的。
+再看一下感染者，情况与住院的人相似。在586名感染者中，366人已经完成了疫苗接种，而210人尚未接种疫苗，即超过62%的感染者是完成了两针疫苗的。
 
-许多批评者狡辩称，处方伊维菌素只是一种用于牲畜的药物。事实上，该药物可以以不同的形式让人和动物服用。
+欧登塞大学医院传染病系主任Isik Somuncu Johansen教授的观点是： 这些可能是癌症患者或养老院的人，他们在近10个月前就已经接种了疫苗。他们的免疫力可能已经下降，这就是造成这种情况的原因。 因此，有这样的人群，他们接种了疫苗，但由于其他一些疾病，使他们的疫苗不能像预期的那样发挥作用。
 
-原文连接：[https://justthenews.com/politics-policy/coronavirus/lawsuits-seek-allow-ivermectin-treatment-covid-19#article](https://justthenews.com/politics-policy/coronavirus/lawsuits-seek-allow-ivermectin-treatment-covid-19#article)
+这恰好和丹麦的疫苗施打优先顺序是一致的，老年人最早打。丹麦的两针接种率是75%，而住在养老院的老人和75岁以上的老人两针接种率达到了97%！而现在的疫苗后遗症也恰好从老年人先开始了。
 
-（本文评论仅代表个人观点）
+（文章只代表作者个人观点）
 
-翻译/评论：洛杉矶盘古农场 – 钢蛋儿
+参考来源：
 
-校对/编辑：洛杉矶盘古农场 – 明子
+[1.SSI](https://www.ssi.dk/)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[2. TV2](https://nyheder.tv2.dk/samfund/2021-10-18-storstedelen-af-coronaindlagte-er-faerdigvaccinerede)

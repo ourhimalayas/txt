@@ -2,26 +2,31 @@
 ---
 
 
-## 俄罗斯暂时关闭在北约的代表处
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1602459/)
+## 针对医院拒绝用伊维菌素治疗COVID-19，各地提起了诉讼
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602517/)
 
-新闻来源：德国世界报报网络版
+【简评：】*伊维菌素作为抗寄生虫药物早在几十年前就已经被批准使用于人体，其发明者大村智先生及青蒿素的发明者屠呦呦女士一同获得了2015年的诺贝尔奖，在颁奖大会上，*[*诺贝尔奖委员会讲到：“伊维菌素对于改善数百万患有河盲症和淋巴丝虫病的人的健康和福祉的重要性是无法估量的，主要是在世界最贫穷的地区，它的治疗如此成功，以至于这些疾病即将被根除，这将是人类医学史上的一项重大壮举*](https://gnews.org/zh-hans/1600096/)*。”现在*[*主流媒体为了维护大型制药公司和医疗机构的利益而去撒谎，谎称伊维菌素是非人用驱虫剂*](https://gnews.org/zh-hans/1511179/)*，不过，在爆料革命、文贵先生、以及广大战友的大力宣传下，越来越多人认识到伊维菌素对治疗中共病毒的效果，并积极主动参与到伊维菌素的宣传中。*
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+据《公正新闻》2021年10月17日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-329.png)图片来源：法新社
+美国各地正在掀起一波诉讼浪潮，设法迫使医疗工作者提供伊维菌素作为治疗COVID-19患者的药物。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/76-Generaldebatte-der-UN-Vollversammlung.jpg)
+自去年年底以来，人们一直在猜测伊维菌素是否有可能用于治疗SARS-Cov-2病毒。许多医疗官员强烈反对使用它，声称其对抗病毒的有效性尚未得到证实。
+
+据美联社报道，在全国各地提起的诉讼是由“一些试图迫使医院给他们感染了新冠病毒的亲人服用伊维菌素的人”提交的。
+
+许多批评者狡辩称，处方伊维菌素只是一种用于牲畜的药物。事实上，该药物可以以不同的形式让人和动物服用。
+
+原文连接：[https://justthenews.com/politics-policy/coronavirus/lawsuits-seek-allow-ivermectin-treatment-covid-19#article](https://justthenews.com/politics-policy/coronavirus/lawsuits-seek-allow-ivermectin-treatment-covid-19#article)
+
+（本文评论仅代表个人观点）
+
+翻译/评论：洛杉矶盘古农场 – 钢蛋儿
+
+校对/编辑：洛杉矶盘古农场 – 明子
 
 
-资料来源：DPA
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-作为对北约撤销俄罗斯外交官认证的回应，俄罗斯将从11月初开始暂停其在布鲁塞尔的北约常驻代表机构的工作。据国际文传电讯社报道，这是外交部长谢尔盖-拉夫罗夫在周一的新闻发布会上宣布的。北约驻莫斯科新闻办公室的工作也将终止。此外，北约在莫斯科的军事特派团将不被允许继续工作。从11月1日起，其工作人员的资格认证将被撤销。
-
-“拉夫罗夫说：”北约对平等对话和合作都不感兴趣。他补充说，在紧急情况下，军事联盟可以求助于俄罗斯驻比利时大使。
-
-北约在十天前取消了八名俄罗斯外交官的认证，因为怀疑他们是为俄罗斯特勤局工作。同时还决定减少俄罗斯代表团的规模。今后只认可10人，而不是20人。莫斯科随后宣布采取反制措施。
-
-[https://www.welt.de/politik/ausland/article234488300/Laut-Lawrow-Russland-schliesst-vorerst-Vertretung-bei-der-Nato.html](https://www.welt.de/politik/ausland/article234488300/Laut-Lawrow-Russland-schliesst-vorerst-Vertretung-bei-der-Nato.html)
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-
-责任编辑/发布： Shuizhuyu
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

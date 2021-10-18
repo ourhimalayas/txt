@@ -2,41 +2,26 @@
 ---
 
 
-## 因遭到工会反对，美国伊利诺伊州延长疫苗接种命令期限
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1602425/)
+## 以色列的无声快递服务
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1602487/)
 
-作者：纽约香草山农场 – 四季
+新闻来源：德国世界报报网络版
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-
-
-
-
-据[网关专家](https://www.thegatewaypundit.com/2021/10/il-governor-pritzker-extends-covid-vaccine-mandate-til-end-november-unions-revolt/)10月18日报道，因为工会反对，伊利诺伊州州长普里茨克将退伍军人之家、监狱和其他聚集设施的员工强制接种COVID疫苗的任务推迟至11月底。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1235-1-IMG_0948-600x425-1.jpg)图片来源：网关专家
-
-伊利诺伊州州长普里茨克在8月份，为他所要求的州政府工作人员接种疫苗设定了10月4日的最后期限，他在周五表示，员工在11月30日之前必须完全接种疫苗。这些工作人员受雇于惩教署、退伍军人事务部、人类服务部和少年司法部。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
-
-编辑/校对/发稿：小鹿
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Drohnenlieferung-Eis-Sushi-Blutspende-5.jpg)
 
 
+资料来源：Dror, Ben David, 以色列创新局
 
-**更多资讯，更多关注**
+以色列用无人机运送包裹，可能在几年后成为现实。在特拉维夫的一家公司，正在测试这种空中送货服务。
 
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+在离地面两米的地方，无人机突然停止飞行。经过紧急警告附近的人群后， 无人机进入着陆地区并降落。 无人机带着一个鞋盒大小的盒子，里面是冰激凌。它仍然是冻结状况的，证明无人机送货服务实验已经成功了。
 
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+这些天，几十架无人机在以色列大都市地区上空嗡嗡作响，运送冰激凌、寿司和血浆。它们是国家无人机计划的一部分，政府希望通过该计划建立一个空中货物运输的网络。交通堵塞和汽车尾气将成为送货服务的过去。在未来，比萨饼出租车和包裹快递员将来自空中， 但愿这个无声的快递服务能够顺利实现。
 
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[https://www.welt.de/politik/ausland/plus234477574/Eis-Sushi-Blutspenden-Drohnenpost-Israels-lautloser-Lieferservice.html](https://www.welt.de/politik/ausland/plus234477574/Eis-Sushi-Blutspenden-Drohnenpost-Israels-lautloser-Lieferservice.html)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+责任编辑/发布： Shuizhuyu

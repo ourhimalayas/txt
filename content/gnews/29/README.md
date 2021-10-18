@@ -2,38 +2,29 @@
 ---
 
 
-## 疫苗灾难正在逐渐显现
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1602354/)
+## 五角大楼前软件主管说，美国须付出行动打赢人工智能之战
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602448/)
 
-**作者：**卢卡斯
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片13457.png)图片来源：网络
-入夏以来各国政府推行疫苗接种运动到最近推行强制疫苗接种和疫苗护照政策，导致迄今为止全球有近28.4亿人完全接种了疫苗（占全球人口总数的36.4%）。疫苗接种者自身的免疫系统遭到中共毒疫苗的削弱甚至严重破坏，导致他们易于被流感病毒感染引发并发症的得病甚至死亡。北半球秋冬季节已经开始，其流感季节最早从10月开始，12月开始频发，一直到次年2月达到巅峰，然后3月才结束。疫苗灾难叠加秋冬季流感季节的影响因素将加剧灾难性的后果。
+【简评：】*西方情报部门评估，世界第二大经济体中共国将在未来十年内在众多新技术领域占主导地位，尤其是在人工智能、合成生物学和遗传领域。五角大楼前首席软件主管夏兰先生对『金融时报』称：“15或 25年以后，我们将没有任何机会战胜中国。在我看来，现在已经是既成事实，都结束了。”对于上述观点，爆料革命战友，我们新中国联邦人只会笑而不语，因为我们知道，中共马上就要完球蛋了。建议西方情报部门和这位前主管好好看看GTV、GETTR、GNEWS，尤其是2021年10月17日的文贵先生大直播。*
 
-基于以上的原因，最近几周以来，文贵先生大直播中反复强调疫苗灾难即将开始，并将持续到明年6月左右结束，他严肃呼吁大家传播疫苗灾难的真相和以青藁素、伊维菌素来解除疫苗毒素，拯救更多的人类。不出所料，疫苗灾难正在开始显现。
+据《大纪元时报》2021年10月16日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/555.jpg)图片来源：大纪元时报
+“我们正在输掉这场战斗。”最近辞去美国空军首席软件主管一职的尼古拉斯·夏兰(Nicolas Chaillan)表示，美国正在输掉与共产主义中国的人工智能竞赛。
 
-美国乔治亚州亚特兰大市Red Voice Media重磅报道：英国Milton Keynes家庭殡葬服务中心经理John O’Looney今年9月19日爆料称，根据他的观察，自中共病毒疫苗接种运动以来，与中共病毒全球大流行的初期相比疫苗接种灾难导致的死亡人数如火箭般窜升了300%。10月14日他接受RAIR Foundation USA采访，然后一天之内就收到了大约65位殡葬业同行联系他分享各人观察到的类似结果。
+美国公司在技术进步方面仍然领先，但他们不愿与国防部分享他们的技术。“如果我们停止对信息过度分类……他们可能很快就会看到(共产主义中国的）威胁将成为一个真正的问题，甚至会影响他们的日常生活。” 夏兰说。
 
-O’Looney注意到：在去年的中共病毒全球大流行期间，几乎没有死于中共病毒的感染者送到他的中心；然而自政府推行疫苗接种以来，送到他的殡葬中心死者暴增300%。O’Looney说他从业15年来从来没有看到这么高的死亡率，这些死者中有一位是32岁，一位是33岁，还有一个是28岁，他们都接受了疫苗接种，并且都是出人意料之外突然死亡，死因是血栓、心梗或者器官衰竭。
+夏兰说，如果美国现在不开始迎头赶上，那么由于人工智能发展的加速性质，我们将失去战胜中共国的机会。
 
-O’Looney感觉到人们正在清醒过来，但是他担心政府将会耍花招来控制局势；他认为政府中的某些人的所作所为无异于谋杀，他们干的某些事情是不可饶恕的。
+原文连接：[https://www.theepochtimes.com/nicolas-chaillan-former-pentagon-software-chief-on-what-the-us-must-do-to-win-china-ai-battle-before-point-of-no-return\_4052569.html](https://www.theepochtimes.com/nicolas-chaillan-former-pentagon-software-chief-on-what-the-us-must-do-to-win-china-ai-battle-before-point-of-no-return_4052569.html)
 
-O’Looney揭露其所见的疫苗灾难以及他在一天之内接到多达65位同行与其分享类似的亲眼所见事实，说明疫苗灾难已经开始，但是大多数知道这些事实的人在沉默，或者他们的声音被黑暗势力所压制和消声，因为政府和医疗权威机构、主流媒体和大媒体平台等都被这些邪恶的黑暗势力所控制，他们正在干着谋杀人类的勾当。
+（本文评论仅代表个人观点）
 
-英国的O’Looney揭露的事实表明疫苗灾难性后果正在开始显现，随之而来冬季寒冷季节很可能会导致大量的疫苗接种者的死亡，这会给濒临崩溃的CCP政权借机把灾祸和仇恨转嫁给海外华人，让全体中国人为CCP病毒及其毒疫苗背锅，制造种族仇恨，仇华、排华，借机逃脱全世界对极少数中共邪恶首领的追责和惩罚。因此，大力传播疫苗灾难的真相和青藁素、伊维菌素救命药物给周围的人们，传播中国人不是CCP，并做好准备应对最极端的仇华排华运动，将越来越变得重要和紧迫。
+翻译/评论：洛杉矶盘古农场 – 钢蛋儿
 
-参考文献:
+校对/编辑：洛杉矶盘古农场 – 明子
 
-[Centers for Disease Control. The Flu Season](http://www.cdc.gov/flu/about/season/flu-season.htm)
 
-[Coronavirus (COVID-19) Vaccinations](https://ourworldindata.org/covid-vaccinations?country=OWID_WRL)
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[Funeral Director Blows The Whistle On COVID-19 – John O’Looney (redvoicemedia.com)](https://www.redvoicemedia.com/video/2021/09/funeral-director-blows-the-whistle-on-covid-19-john-olooney/)
-
-[BOMBSHELL: Deaths Skyrocketed by 300% After COVID Vaccine – Funeral Director Blows The Whistle \[VIDEO\] (lifezette.com)](https://www.lifezette.com/2021/10/bombshell-deaths-skyrocketed-by-300-after-covid-vaccine-funeral-director-blows-the-whistle-video/?utm_source=right-rail-latest)
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：LILY
-
-20211018
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

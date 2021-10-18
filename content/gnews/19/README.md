@@ -2,36 +2,52 @@
 ---
 
 
-## 中共政府的官媒瞄准民营银行
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1602464/)
+## 【CCP病毒】中共国杨运桂赫然出现在WHO公布的新型病原体溯源专家小组26人名单
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1602531/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/worldbank_malpassdavid_ahmajunaid_alemaheyumengistu_102619getty-9.jpg)图片来源：法新社
+![](https://assets.gnews.org/wp-content/uploads/2021/10/杨运佳-.jpg)图片来源：6parkbbc.com
+温哥华扬帆农场 : 枫叶正红时
 
-**摘要翻译：**近期，中国大陆多家民营房地产企业破产倒闭，中共官方媒体将问题归咎于民营银行违规放贷。一些财经评论员认为，在中共领导人习近平的统治下，民营银行将成为打压的对象。
+2021年10月13日，世界卫生组织（WHO）公布了一份由26名专家组成的新型病原体溯源专家小组， WHO Scientific Advisory Group for the Origins of Novel Pathogens ，简称SAGO。
 
-中共官方媒体《经济日报》于10月15日发表了一篇专栏文章，声称近期多家民营银行因“违法违规”被监管部门罚款。文章批评了一些民营银行盲目寻找大额借款人，放出大量贷款，可能产生意想不到的后果；违规放贷房地产项目；大股东过度干预银行经营和管理。
+根据世卫组织的描述，该专家组的主要职责是：
 
-文章提醒，有关政权部门要警惕一些民营银行的“野蛮生长”，有效防范金融风险。文章还督促有关部门引导银行回归为服务实体经济薄弱环节的初衷，深入研究民营银行发展的制约因素，出台更有针对性的解决方案，逐步缓解资本补充政策的障碍。
+1.    就各种新近出现或重复出现的流行性和具有潜在大流行性的病毒溯源问题，向世界卫生组织提出框架性建议。
 
-“问题是，企业和银行倒闭后，很多人会失业，其它相关业务也会受到影响。”他说。
+2.    就新出现和重复出现的具有流行病和大流行潜力的病原体的溯源研究和实地调查工作的优先次序向世界卫生组织提出建议。
 
-中共国经济学家何江兵告诉自由亚洲电台：“中共国没有民营银行。它们都是国有企业。其中少部分是政府与企业勾结的产物。中共国没有真正的民营银行。国家对银行有最大的控制权。”
+（1）    提供信息或意见，协助世卫组织秘书处制定 SAGO 的详细工作计划；
 
-中共国在2014年才开始允许民营银行，到2020年底，全国共有19家民营银行，资产总额为12.66 亿元人民币（2 亿美元）。
+（2）    关于新冠病毒（中共CCP病毒）溯源方面：
 
-**简评：**中共国银行主要分为中央银行、政策性银行、国有商业银行、股份制商业银行、地方性商业银行及其它银行，其它包含民营银行，具体是指由民营资本作为主发起人设立的银行。银行分类貌似很民主自由（不管什么性质的银行都有）。可不管在生活在中共国内的人还是海外华人，都不认为在极权独裁的中共国内会有真正的民营银行。这些所谓的民营银行都是中共国的权力阶层及其白手套勾结，只是顶着民营银行的帽子而已。因为在中共国缺乏实际的监管，这些民营银行统统都是上有政策，下有对策。连中共国的金融监管部门都直呼：民营银行在野蛮生长，可见违规操作有多少？最近中共国房地产已面临史上最大泡沫，在这样的情况下，“到期了债务还不出来的话，最后谁来接呢？一方面是购买债券的人，包括境外的那些金融机构或者投资者，但同时还有大量的国内金融企业，自然包括民营银行。”“如果房地产崩塌，这些银行70%～80%都无法生存。因为这些银行绝大多数都与房子有关，都会做房地产贷款。所以一旦出现大规模房子贬值时，就会看到雪崩来了。”中共国如果不想让房地产及银行倒闭，唯一就是独裁统治，国资来接盘，就可以党领导一切了。虽然最终买单的还是在中共国的老百姓。
+l  向世卫组织秘书处提供对新冠病毒（中共CCP病毒）溯源全球研究的所有可用科学和技术结果的独立评估。
 
-新闻链接：[Chinese Regime’s State Media Target Private Banks](https://www.theepochtimes.com/chinese-regimes-state-media-target-private-banks_4052950.html)
+l  就制定、监测和支持下一阶段新冠病毒（中共CCP病毒）溯源研究向世卫组织秘书处提供建议，包括就世卫组织实施下一阶段新冠病毒（中共CCP病毒）溯源全球研究的业务计划提供快速建议，如 2021 年 3 月 30 日世卫组织发布的-中共国全球新冠病毒（中共CCP病毒）溯源联合研究：中共国部分报告中所述，并根据需要为其他研究提供建议；
 
-* * *
+l  根据世卫组织 SAGO 秘书处的要求，向世卫组织提供其它建议和支持，其中可能包括参与未来的世卫组织国际任务，中共CCP病毒溯源或其他新出现的病原体溯源研究。
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+世卫组织高级官员Michael Ryan说，新成立的新型病原体溯源专家小组（Sago）可能是“以学术性、集体性和相互负责的方式”发现Covid-19（CCP病毒）起源的最后机会。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+由于这一份26人名单包含7名今年3月赴中共国调查的小组成员，而今年3月份的调查报告显然在帮助中共掩盖CCP病毒真相。因而这份报告在全球范围内完全得不到认可，该调查组的所有成员已经名誉扫地。所以现在人们有理由担心，这次他们的调查结果是不是会再次与中共一起演戏。
 
+如英国教授John Watson和荷兰科学家Marion Koopmans。Marion Koopmans正在管理的病毒科学部门，正在与Peter Daszak 领导的生态健康联盟合作，而正是Peter Daszak 领导的生态健康联盟资助了武毒所的功能增强实验。
 
-编辑：【英国伦敦喜庄园编辑部】
+另一名德国病毒学家Christian Drosten，他去年签署了一份抨击“中共CCP病毒并非自然起源”为阴谋论的声明，该声明发表在柳叶刀上《Lancet》，并称赞中共CCP“快速、公开和透明地共享数据”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+瑞士科学家Kathrin Summermatter，甚至恬不知耻的称赞中共国实验室的安全性，调查武毒所的想法是“经典的阴谋论”。
+
+更让人们难以理解的是，这份26人名单中，甚至包含中共国科学院北京基因组研究所副所长杨运桂，这简直是对世界人民智商的赤裸裸的侮辱。
+
+根据霍普金斯大学的统计数据，截止目前为止，中共CCP病毒已经感染240,508,281人，因中共CCP病毒而死亡4,896,755人，全世界共注射6,613,084,760剂疫苗。中共CCP病毒持续杀人，不彻查中共CCP病毒来源、彻底消灭中共CCP，继续配合CCP演戏，只会助长CCP越来越嚣张，世界只会陷入更深的灾难。
+
+参考资料：
+
+[WHO Announces Proposed Members of its Scientific Advisory Group for the Origins of Novel Pathogens (SAGO)](https://www.who.int/news/item/13-10-2021-who-announces-proposed-members-of-its-scientific-advisory-group-for-the-origins-of-novel-pathogens-%28sago%29)
+
+[Public notice of proposed new Scientific Advisory Group for the Origins of Novel Pathogens (SAGO) members](https://www.who.int/news-room/articles-detail/public-notice-and-comment-on-proposed-new-scientific-advisory-group-for-the-origins-of-novel-pathogens-%28sago%29-members)
+
+[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
+
+（免责声明：本文只代表作者观点，跟GNEWS平台无关）
+
+编审：文敏    发布：文敏

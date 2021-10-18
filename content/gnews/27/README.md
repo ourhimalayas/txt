@@ -2,22 +2,26 @@
 ---
 
 
-## 美国前国务卿因新冠病毒并发症去世
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1602387/)
+## 俄罗斯暂时关闭在北约的代表处
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1602459/)
 
-采编：文明      编撰：文明(添草灭共)
+新闻来源：德国世界报报网络版
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/k-1-edited.jpg)图片来源：CBC
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/76-Generaldebatte-der-UN-Vollversammlung.jpg)
 
 
-据CBC新闻10月18日报道，美国前国务卿科林-鲍威尔的家人不久前在其社交媒体上公布消息称，现年84岁的鲍威尔先生死于新冠病毒感染所导致的并发症。消息还显示，该前国务卿已完全接种了该病毒疫苗，在感染该病毒后，他一直在马里兰州的一家国家级医疗中心接受治疗。 
+资料来源：DPA
 
-简评：虽然当前“新冠病毒疫苗”属于未经安全有效临床测试的一款实验性疫苗，但仍被世卫组织及美国疾病防控中心大肆宣传其安全有效性。在出现多起接种该疫苗后仍感染该病毒的病例后又改口为“接种的益处大于感染的风险并能防止该病毒引发的重症和死亡”等论调。如今再次被鲍威尔的去世所打脸，它们的谎言该停止了！
+作为对北约撤销俄罗斯外交官认证的回应，俄罗斯将从11月初开始暂停其在布鲁塞尔的北约常驻代表机构的工作。据国际文传电讯社报道，这是外交部长谢尔盖-拉夫罗夫在周一的新闻发布会上宣布的。北约驻莫斯科新闻办公室的工作也将终止。此外，北约在莫斯科的军事特派团将不被允许继续工作。从11月1日起，其工作人员的资格认证将被撤销。
 
-（以上内容仅代表原文信息和作者个人观点）
+“拉夫罗夫说：”北约对平等对话和合作都不感兴趣。他补充说，在紧急情况下，军事联盟可以求助于俄罗斯驻比利时大使。
 
-* * *
+北约在十天前取消了八名俄罗斯外交官的认证，因为怀疑他们是为俄罗斯特勤局工作。同时还决定减少俄罗斯代表团的规模。今后只认可10人，而不是20人。莫斯科随后宣布采取反制措施。
 
-校对，编辑，发稿：硫酸羟氯喹64
+[https://www.welt.de/politik/ausland/article234488300/Laut-Lawrow-Russland-schliesst-vorerst-Vertretung-bei-der-Nato.html](https://www.welt.de/politik/ausland/article234488300/Laut-Lawrow-Russland-schliesst-vorerst-Vertretung-bei-der-Nato.html)
 
-[原文链接：](https://www.cbc.ca/news/world/us-powell-obit-1.6214736)
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+
+责任编辑/发布： Shuizhuyu
