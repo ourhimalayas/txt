@@ -2,41 +2,17 @@
 ---
 
 
-## 因遭到工会反对，美国伊利诺伊州延长疫苗接种命令期限
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1602425/)
+## 中共外交部就美加军舰通过台湾海峡措辞强烈
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1602482/)
 
-作者：纽约香草山农场 – 四季
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/10/a3f1416988cdd730f3d6a1a13d8c4cceu5.jpg)图片来源：环球网
+据环球网10月18日报道，外交部发言人赵立坚对于日前美国“杜威”号导弹驱除舰和加拿大“温尼伯”号护卫舰通过台湾海峡表示：“中国捍卫国家主权和领土完整的决心坚定不移，中国军队时刻保持高度戒备，坚决反制一切威胁挑衅。美方应改弦更张、纠正错误。加方应从自身利益和中加关系大局出发，不要为他人火中取栗、甘当帮凶。”
 
+中共国东部战区二日前也就美加两国军舰过航台湾海峡发布谈话称，美加勾连挑衅、搅局滋事、性质恶劣，严重危害台海和平稳定。并称，台湾是中国领土的一部分，战区部队时刻保持高度戒备，坚决反制一切威胁挑衅。
 
+台湾海峡本是公海，任何舰只都有权合法通过。反之中共国在10月初的几天内，派遣近150架战机飞入台湾防空识别区。是谁意在挑起纷争，一目了然。台湾领土属于谁，是由台湾人民决定的，而不是由中共独裁控制的。
 
-
-
-据[网关专家](https://www.thegatewaypundit.com/2021/10/il-governor-pritzker-extends-covid-vaccine-mandate-til-end-november-unions-revolt/)10月18日报道，因为工会反对，伊利诺伊州州长普里茨克将退伍军人之家、监狱和其他聚集设施的员工强制接种COVID疫苗的任务推迟至11月底。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1235-1-IMG_0948-600x425-1.jpg)图片来源：网关专家
-
-伊利诺伊州州长普里茨克在8月份，为他所要求的州政府工作人员接种疫苗设定了10月4日的最后期限，他在周五表示，员工在11月30日之前必须完全接种疫苗。这些工作人员受雇于惩教署、退伍军人事务部、人类服务部和少年司法部。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+**新闻来源：**[美加军舰过航台湾海峡，赵立坚回应：中国这个决心坚定不移！ (huanqiu.com)](https://world.huanqiu.com/article/45Dlv0PQQdt)

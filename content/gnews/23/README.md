@@ -2,26 +2,31 @@
 ---
 
 
-## 以色列的无声快递服务
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1602487/)
+## 美调查员：中共制造病毒生化武器证据确凿
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1602544/)
 
-新闻来源：德国世界报报网络版
+**撰稿：日本东京方舟农场 北极**
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+近期，喜马拉雅环球工作站（Global Himalaya）发布在盖特上（Gettr）的一段视频显示，美国务院前调查员大卫·艾舍（David Asher）证实了泄露文件中披露的中共制造新冠病毒（COVID-19）的实锤证据，并指出病毒是生化武器。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Drohnenlieferung-Eis-Sushi-Blutspende-5.jpg)
+大卫·艾舍是美国国务院前首席调查员，在任职期间秘密调查中共病毒（COVID-19）来源。
 
+他在采访中表示，在2018年3月，武汉病毒研究所与纽约生态健康联盟合作，向美国国防部申请资金进行功能增强研究。这个功能增强研究，是给蝙蝠冠状病毒注入一个福林酶切位点，增加对人的致病性。国防部认为这是个杀人病毒，有可能成为大规模杀伤性武器，否决了这一申请。
 
-资料来源：Dror, Ben David, 以色列创新局
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GettyImages-1210149339-800x450-1.jpg)图片来自于网络
 
-以色列用无人机运送包裹，可能在几年后成为现实。在特拉维夫的一家公司，正在测试这种空中送货服务。
+大卫·艾舍接着说，其实中共早前就与纽约生态健康联盟合作，利用中共的资金进行提高冠状病毒致病性的研究。
 
-在离地面两米的地方，无人机突然停止飞行。经过紧急警告附近的人群后， 无人机进入着陆地区并降落。 无人机带着一个鞋盒大小的盒子，里面是冰激凌。它仍然是冻结状况的，证明无人机送货服务实验已经成功了。
+大卫·艾舍指出，基因序列的本身就像犯罪现场的指纹。他补充说：“根据目前已掌握的中共病毒基因片段，发现包含有奇特的福林酶切位点，证明COVID19就是武汉病毒研究所做出来的。”
 
-这些天，几十架无人机在以色列大都市地区上空嗡嗡作响，运送冰激凌、寿司和血浆。它们是国家无人机计划的一部分，政府希望通过该计划建立一个空中货物运输的网络。交通堵塞和汽车尾气将成为送货服务的过去。在未来，比萨饼出租车和包裹快递员将来自空中， 但愿这个无声的快递服务能够顺利实现。
+*注：本文仅代表作者观点，与 Gnews无关*
 
-[https://www.welt.de/politik/ausland/plus234477574/Eis-Sushi-Blutspenden-Drohnenpost-Israels-lautloser-Lieferservice.html](https://www.welt.de/politik/ausland/plus234477574/Eis-Sushi-Blutspenden-Drohnenpost-Israels-lautloser-Lieferservice.html)
+*参考链接：*
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+[前国务院新冠来源调查员大卫艾舍：最新泄漏的文档揭示了中共制造病毒的实锤证据和犯罪现场！病毒是杀人武器！](https://gettr.com/post/pcuhi842af)
 
-责任编辑/发布： Shuizhuyu
+[美调查员：疑中共生化武器泄露 致疫情爆发](https://www.ntdtv.com/gb/2021/03/13/a103072794.html)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

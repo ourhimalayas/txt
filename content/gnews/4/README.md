@@ -2,29 +2,164 @@
 ---
 
 
-## 我亲见的玉琮王
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1602728/)
+## 美国文字承诺卖台3个条件，台湾凶多吉少
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602765/)
 
-俄罗斯莫斯科喀秋莎农场  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/azyxo-p2t45.jpg)
+[https://gtv.org/video/id=616d7d7dd2e2b8174876b7bd](https://gtv.org/video/id=616d7d7dd2e2b8174876b7bd)
 
-10月18日，七哥在盖特上发了一段视频，说北京盘古七星酒店的龙头被中共改成了“玉琮”，意义非凡。这一下子让我想起三年多前在杭州西子湖畔的浙江省博物馆里亲眼见到的玉琮王。
+**郭文贵**
+**Miles Guo**
 
-2018年夏我时隔28年后又一次来到杭州，中午朋友招待我吃了西湖醋鱼后，我说我们去看看博物馆吧。就那么随性地踱步进了博物馆，没想到平生第一次见到了玉琮。仿佛偶遇，一回首又是五千年的等待——如此精美、细润又尊贵的它就那么静静地立在玻璃展柜里，一下子把我吸引过去——“哇噢，这么美！” 我这一声赞叹引来一位讲解员，“这是玉琮之王哦”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Y.jpg)图来自浙江省博物馆官网
-哇噢，第一次见到玉琮，居然就见到他们的镇馆之宝——琮王。更惊喜的是这位庄姓讲解志愿者可不是一般的讲解员，他是刚退休的研究员，良渚文化就是他几十年研究的课题。我问他答，我很珍惜地听他娓娓道来，他仿佛也遇到了知音侃侃而谈。一个多小时过去还意犹未尽，但闭官时间就要到了，我才认识了这一个宝贝。
+跟美方的勾兑第一条
+La primera garantía de cooperación con la parte de EE. UU
 
-那一刻，我是穿越了半个地球后站在了良渚文化的发源之地，距今约5300-4300年的良渚文化因着这件琮王愈发在我的时空交错中熠熠生光。一年后2019年7月曾经的“神王之国”的良渚的古城遗址被列入世界遗产名录。现在想来，那精美的神人兽面图像被放大300多倍投放在展馆墙上的样子还历历在目。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/T3.jpg)muguanyuan.com
-我遇见的这件玉琮王是余杭反山出土，高8.9厘米，射口直径16.5-17.6厘米。形体宽阔硕大，不像其他玉琮那样瘦高方柱形的样子，纹饰独特繁缛。整器重约6500克，外方内圆，上大下小，中间对钻圆孔。琮体四面直槽内上下各琢刻一个具象的神人兽面图像，神人头戴羽冠，骑跨在一神兽上，图案采用浅浮雕和线刻技法雕琢而成。在角尺形的长方形凸面上，每两节琢刻一组抽象的神人兽面图案，以转角为中轴线向两侧展开，兽面的两侧各浅浮雕一变形夸张的鸟纹。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/T1.jpg)图为玉琮王局部 来自浙江省博物馆
-庄研究员告诉我，这件玉琮根据他们的研究模拟，应该是三代工匠细细雕琢而成，其工艺难度之高，打造之精美都令人惊叹不已。他研究认为当时良渚人对台风的神力崇拜不已，这玉琮就描摹了台风眼。
+再次晒美方在有文字承诺的情况下
+En caso de que EE. UU demuestre la promesa en escrito
 
-玉琮是一种筒形玉器，关于琮的功能有很多说法，例如通天地、祭祀神灵等，但由于缺少文字记录，很难确切说明。现在跟着七哥又学习到玉琮乃宇宙之祖宗。对了，七哥提到的玉钺、玉璧我都在那里同时见到了。
+这是美方的人跟我说的
+Esto me lo dijo un americano
 
-据悉，迄今为止，良渚文化出土的玉器总量已经超过一万件，仅反山、瑶山两地就出土了六千余件玉器，数量之庞大，远非其他原始文化可及。良渚玉器的种类多达40多种，姿态万千，风格各异，神徽图案这种神灵形象的多种变异表现形式与演变形态构成了整个良渚玉器纹样的主流。【1】
+我都不敢相信
+No lo puedo creer
 
-玉琮、玉琮王，玉钺，玉璧，七哥、盘古，龙头……所有这些生命中的遇见都是令人惊叹的，看似偶然，实际是一种必然。反正我信了，神力！
+美方总统是（写）亲笔信的
+El presidente de EE. UU escribió una carta a mano
 
-参考链接：
+亲手交给秦刚的
+Se lo entregó a Qin Gang
 
-【1】https://guoxue.ifeng.com/c/7oVvKTTLiJf
+首先就3个保证
+Primero son 3 promesas
+
+绝不改变中共的制度
+No cambiar el Sistema del PCCh en lo absoluto
+
+不改变中共制度
+No cambiar el Sistema del PCCh
+
+听懂啊 别说推翻了
+Entiendan, no digamos derrocar
+
+就是绝不改变你的制度
+Esto es no cambiar en lo absoluto tu sistema
+
+第二 大家要记住
+Segundo, todos deben recordar
+
+现在要挂钩
+Ahorita se van a vincular
+
+从过去的脱钩
+Desde la desvinculación de antes
+
+现在要挂钩 逐渐恢复
+Ahora se van a vincular, recuperar gradualmente
+
+大家看着
+Todos vean
+
+第三 大家要记住
+Tercero, recuerden
+
+恢复中美之间的各层次
+Recuperar cada nivel entre China y Estados Unidos
+
+全面对话
+Diálogo completo
+
+括弧 括弧
+Entre paréntesis
+
+记住 这美方的信 括弧
+Recuerden, esta carta de Estados Unidos entre paréntesis
+
+中美军事高层对话
+Diálogo entre el militar chino-estadounidense de alto rango
+
+正常化
+Lo van a normalizar
+
+大家（如果有）懂的
+Si todos entienden
+
+台湾我相信那些名嘴
+Yo pienso que los presentadores famosos de Taiwán
+
+像什么『年代向钱看』
+Como el programa de Next TV
+
+还有那个什么节目
+Y los otros programas
+
+那些混饭吃的家伙瞎忽悠的
+Esa gente inventa para tener algo de comer
+
+他懂这里边什么意思
+Él entiende el significado que hay dentro
+
+在这个要打台湾的时候
+En este momento donde van a atacar a Taiwán
+
+不推翻体制
+No van a derrocar y cancelar el sistema
+
+经济挂钩
+Se van a enlazar económicamente
+
+军事全面恢复交流
+Van a recuperar completamente el diálogo militar
+
+正常交流
+Normalizar el diálogo
+
+没有呈现的说明什么
+Sin demostrar ninguna explicación
+
+不管你发生什么事情
+Sin importar lo que te suceda
+
+你打台湾什么的
+Si atacas a Taiwán o no
+
+咱经济 政治 军事 都不会停止
+Nuestra economía, política, fuerza militar no se detendrá
+
+这已经把台湾卖完了
+Ya esto terminó de vender a Taiwán
+
+我可以告诉大家郭文贵是第一个
+Yo les puedo decir a ustedes que Guo Wengui es el primero
+
+今天是台湾双十节
+Hoy es el Día Nacional de Taiwán
+
+2021年我告诉世界发生了什么事儿
+Dime que ha pasado en el mundo el 2021
+
+在这个信之后才有苏利文的
+Después de esta carta habrá de Sullivan
+
+杨洁篪的会谈
+Conversación de Yang Jiechi
+
+———————————————————
+
+**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1447755121153040385?s=24](https://twitter.com/se1y7cblljselva/status/1447755121153040385?s=24)
+
+日期：10/16/2021
+Estados Unidos garantizó 3 condiciones para vender a Taiwán, este habrá más peligro que suerte
+原视频日期：10/12/2021
+任务编号：KC176（2494）
+视频时间段：0:00-2:14
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

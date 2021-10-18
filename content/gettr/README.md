@@ -17,6 +17,34 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/18/2021 10:54 PM (UTC)`
+
+10/18/2021 Miles Guo’s GETTR: The Jade Cong, Jade Yue Axe, and Jade Bi of the Liangzhu Culture dating back over 5,000 years are the symbols of separation of powers; Although the Chinese dragon head structure of the Pangu Plaza has been destroyed by the CCP, it implies the Communist China is like a group of dragons without the lead, and this is exactly what Jade Cong means - CCP, you are finished!<br/><br/>10/18/2021 文贵盖特：5000多年前良渚文化的玉琮、玉钺、玉璧象征着三权分立；盘古龙头虽被中共毁掉，但这意味着中共国群龙无首，群龙无首就叫玉琮 - 中共，你完蛋了！<br/>
+![img](https://media.gettr.com/group24/getter/2021/10/18/22/54/39409712-ab05-8fc5-8243-5eece349b080/out.jpg)
+
+---
+
+`@miles 10/18/2021 10:50 PM (UTC)`
+
+10/17/2021 Miles Guo: Standing Committee Members are all returning the money. He calls for the CCP male members and entrepreneurs to have courage<br/><br/>10/17/2021 文贵直播：中共常委们都正在把钱往回交。请党内，企业家有良知的男人有点勇气
+![img](https://media.gettr.com/group3/getter/2021/10/18/22/50/a916ed1f-c101-ca0b-10a4-33f8a4e8964b/out.jpg)
+
+---
+
+`@miles 10/18/2021 10:44 PM (UTC)`
+
+10/17/2021 Miles Guo: Bank of Beijing is a hidden catastrophe… The Whistleblowers Movement has gained great prestige in the party by exposing a series of truths<br/><br/>10/17/2021 文贵直播：北京银行是个大雷... 爆料革命通过曝光一系列真相已经在党内赢得了非常高的的威信
+![img](https://media.gettr.com/group16/getter/2021/10/18/22/44/4e64d969-7b74-aee9-46d4-af4801ceb03d/out.jpg)
+
+---
+
+`@miles 10/18/2021 10:43 PM (UTC)`
+
+17/10/2021 Miles Guo: Yang Jiechi must be the next one to be arrested... Yang Jiechi and Wang Yi could have defected at any time if not for fear of harming their families<br/><br/>17/10/2021 文贵直播：下一个抓的一定是杨洁篪... 若非担心祸及家人杨洁篪、王毅随时可能叛逃出国
+![img](https://media.gettr.com/group44/getter/2021/10/18/22/43/b4648bc6-379f-45f0-82c7-c00d34c20a88/out.jpg)
+
+---
+
 `@miles 10/18/2021 10:38 PM (UTC)`
 
 直播测试
@@ -271,34 +299,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 10月13号：这是真的么？但我相信真正的较量的背后老板：还是江志成！【七哥您好! 这是香港阿里巴巴的一个月走势图。大概从马云去香港溜达开始，从最低的130元十天左右拉升了30%。<br/><br/>通过这么一出资本戏，似乎是传递一个信号，就是习就是个纸老虎，配合胡舒立的猪头，还有吃螃蟹。营造出一种：你搞不死老子，我胡汉三又回来啦，市场还是认我马云的还乡团气氛。】
 ![img](https://media.gettr.com/group22/getter/2021/10/14/02/93c9c0a1-ede7-ba04-3d44-55b50724e1f3/5a4344014ad55cb816bfea51d9b0533f.jpg)
-
----
-
-`@miles 10/14/2021 1:58 AM (UTC)`
-
-美国很多航空公司雇员宁愿失业也不愿打疫苗<br/><br/>Many US airline employees are choosing to lose their jobs instead of being vaccinated
-![img](https://media.gettr.com/group21/getter/2021/10/14/01/58/a713befa-acc9-a4bd-0292-276797f38faa/out.jpg)
-
----
-
-`@miles 10/14/2021 1:37 AM (UTC)`
-
-10月13号：感谢战友的精美的制作。这个视频当中的每一个镜头，都是用生命和血汗换来的……我一生中最对不起的，就是我的家人，还有盘古，裕达……方正．海通．民族证券，以及多个合作基金的同事们，还有合作的基金的相关人员，还有受迫害的我那些合伙人，这一辈子是无法偿还我欠下他们的债……但我一定会为他们所遭受的痛苦，讨回公道……一定会铲除共产党，为他们报仇雪恨。归还他们被抢走了所有的财富。😡😡😡😡😡😡🥵🥵🥵
-![img](https://media.gettr.com/group42/getter/2021/10/14/01/37/c5110cd1-dc4a-2fd2-46fd-54b9ec0a6bda/out.jpg)
-
----
-
-`@miles 10/14/2021 12:38 AM (UTC)`
-
-10月13号：这些所谓的传统媒体都是一帮骗子，犯罪集团的共犯……十一月份看七哥对平安保险打响第一炮以后的情况吧！让平安保险的罪恶展示给这个世界那么一点点，都会震撼整个世界的金融领域．莘县阳谷县搭县咱们走着看。
-![img](https://media.gettr.com/group29/getter/2021/10/14/00/463530ad-6a06-9dd0-dfff-4241bebd30ee/add90938f39ce84f0a0291fb664bf13e.jpg)
-
----
-
-`@miles 10/14/2021 12:37 AM (UTC)`
-
-10/13/2021 Miles Guo: Hu Shuli and Jack Ma were appointed at the South Putuo Meeting as the de facto head of the CCP’s Publicity Department and Finance minister, respectively. Hu Shuli is in control of the narrative on the global stage, while Jack Ma has forged a “financial sharp weapon”; It’s too late for Xi to start investigating the state-owned banks now.<br/><br/>10/13/2021 文贵直播：胡舒立和马云分别是南普陀会议指定的中共事实上的“宣传部长“和”财政部长”，胡舒立掌握着国际话语权，马云打造了“财务利器“；习到现在才开始调查国有银行，为时已晚！<br/>
-![img](https://media.gettr.com/group35/getter/2021/10/14/00/37/40e99eca-922d-6f74-b52b-b351d6f8b78a/out.jpg)
 
 ---
 
