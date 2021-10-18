@@ -2,25 +2,34 @@
 ---
 
 
-## 美加战舰联合，再次穿越台湾海峡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1602038/)
+## 拜登政府因疫苗强制令面临大规模集体诉讼
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1602078/)
 
-作者：飞虹
+作者：雪梨
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国军方10月17日宣称，美国海军阿利·伯克级导弹驱逐舰“杜威号”与加拿大皇家海军哈利法克斯级护卫舰“温尼伯号”，已于10月14日和15日联合航行, 穿越了台湾海峡，此举旨在”展现美国与盟友对维护印太地区自由开放的承诺”。
+10月15日，包括海豹突击队、陆军特种部队和海军、空军军官、联邦雇员和联邦文职承包商在内的24名原告，于美国佛罗里达州中区法院，正式对拜登政府提起诉讼，要求法院发布临时限制令，暂停强制接种疫苗，并最终发布禁令，阻止五角大楼继续执行该行政命令。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-11.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-18.jpeg)
 
-一年多来，中共不断对台湾发出威胁信号，频繁派遣军机侵扰台湾。作为回应, 美国及盟国海军则不断在台海及南海水域进行联合演习, 或者穿越台湾海峡的巡航, 以维护这一海域的航行自由 。最近的一次是在9月27日，英国皇家海军“伊丽莎白女王”号航母打击群的“里士满号”护卫舰 穿过台湾海峡，前往越南军港。
+国防部长劳埃德·奥斯汀、国土安全部长亚历杭德罗·马约卡斯和拜登总统均被列为被告。
+
+目前上市使用的三种疫苗，均通过流产胎儿干细胞开发而来，仅从该点出发，宗教人士有权获得豁免。但实际上大部分原告仍遭到被解雇、诉诸军事法庭或惩罚的威胁。这一做法严重侵犯了宪法第一修正案赋予公民宗教自由的权利。
+
+此外，新冠疫苗根本没有通过批准，仅得到市场紧急使用，人们有拒绝接种的自由和权利。
+
+两个月前，两名美军士兵已将国防部官员诉诸法院。随着限期临近，觉醒的美国军人纷纷拿起法律的武器，坚决捍卫自己的权利。
+
+随着疫苗真相的大力传播，民众逐渐觉醒，政府和联邦卫生机构面临更多的质疑和指控，同时，诉讼也将朝着有利于原告期望的方向推进。
 
 (本文仅代表作者观点)
 
-参考链接：[美加战舰联合穿越台湾海峡 中国谴责“挑衅滋事”](https://www.voachinese.com/a/china-condemns-us-canadian-warships-crossing-taiwan-strait-20211017/6274141.html)
+参考链接：[Biden, Pentagon Face Massive Class-Action Lawsuit Over Vaccine Mandate on Federal Employees and Military Members](https://www.thegatewaypundit.com/2021/10/biden-pentagon-face-massive-class-action-lawsuit-vaccine-mandate-federal-employees-military-members/)
+
+新闻访谈终审：暗黑
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-新闻访谈终审：文龍
-编辑/校正/发稿：谐趣园
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

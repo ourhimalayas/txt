@@ -2,38 +2,35 @@
 ---
 
 
-## 輝瑞科學家說疫苗沒用
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1601679/)
+## 针下亡魂｜中国 12 岁少女接种疫苗 7 日后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1601721/)
 
-![](https://spark.adobe.com/page/M0XSwckn2aSxx/images/e3dbc88b-cd53-4ac4-848c-579487ae459c.png?asset_id=671c341c-2017-4851-b807-73a8380f57a9&amp;img_etag=%22094f1d2c5e8da0277e8a1a3f2d861e78%22&amp;size=1024)
-**簡評：**輝瑞科學家在臨床實驗中發現輝瑞疫苗產生不了抗體，但是老闆並不在意，也不讓科學家繼續調查，看起來好像有人知道疫苗不起作用。
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 18/10/2021**
 
-GTV視頻連結：[輝瑞科學家說疫苗完全沒用](https://gtv.org/video/id=616bad83d2e2b817487614d3)
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
 
-**視頻字幕：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/36-1.jpg)
 
-**輝瑞科學家：我問，“這個樣品是不是被貼錯標籤了？”我提出這個問題，我的老闆說，“管他呢，沒抗體就沒抗體”。我驚訝,“什麼？”**
+【中国】河南省濮阳市一名 12 岁少女李博艺接种完中共国产 COVID-19 疫苗之后的第 7 日死亡。
 
-**記者：**
+据该少女的母亲蒋艳红的回忆，她的女儿于 8 月 10 日接受了第一针疫苗，3日后，就出现发高烧，嗓子疼的状况，询问当地疫苗接种中心卫生院的院长之后，被告知“吃点退烧药就好了。”结果，李博艺 15 日开始呼吸困难，送到当地人民医院急诊之后，直接被推进了重症监护室，17日凌晨 2 时，李博艺就病重离世。
 
-**輝瑞科學家：我不知道，他不想讓我進一步調查。他說，“我根本不在乎這個不起作用的樣品”。我猜有一小部分不起作用。**
+母亲蒋艳红表示，自己是单亲母亲，“我的孩子才 12 岁，接种疫苗是学校强行通知让打的，孩子不打疫苗就不让上学。我领着孩子打了一支疫苗，结果把孩子的命都打没了。我们当地卫健委听说孩子病逝了，直接火化，9 月 1 日给出的鉴定结果是，死亡纯属偶合。”
 
-**記者：**
+蒋艳红不接受鉴定结果，去信访办投诉，信访办推诿给市卫健委，市卫健委又推给县卫健委。但县卫健委的领导不仅避而不见，更安排超过四位体魄健硕的男人殴打蒋艳红。
 
-**輝瑞科學家：**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/post-672177-616d2fa3c2f36.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/post-672177-616d2fa407a33.jpeg)
 
-**記者：**
 
-**輝瑞科學家：我的老闆說，“看起來沒起作用”。我說，“你什麼意思？” 他說，“沒什麼意思”。**
+被逼无奈之下，她在中国大陆的社交平台微博、微信、QQ上发贴为孩子讨要公道，可惜，不久之后就被全面封禁。不过，她依然坚持，“孩子不能这样就没了，孩子死不瞑目，我再艰难也要为孩子讨回公道。”
 
-編輯：【英國倫敦喜莊園編輯部】
+令人痛心的是，最新消息显示，蒋艳红 10 月 16 日拟赴北京维权之前，被南乐县公安局以涉嫌“寻衅滋事罪”刑事拘留。
 
-*字幕/聽寫：雲嶺| 翻譯：Roberts | PR：Dasy | 簡評/文字整理/編輯：胖丁| Page：Daoiii*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-1634545521575.png)
 
-免責聲明：本文只代表警告、作者觀點，與Gnews平台發布無關
+来源｜ [个案036](https://m.renminbao.com/rmb/articles/2021/9/27/73261mb.html)
 
-- [點擊閱讀英國倫敦喜莊園在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [點擊觀看英國倫敦喜莊園在G-TV的精彩視頻](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英國倫敦喜莊園Spotify Podcast電台/Apple Podcast電台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+* * *
 
-[![](https://spark.adobe.com/page/M0XSwckn2aSxx/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/M0XSwckn2aSxx/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//
