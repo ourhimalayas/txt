@@ -2,53 +2,164 @@
 ---
 
 
-## 与Covid有关的骗局已从美国人手中骗走5.86亿美元
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1602704/)
+## 美国文字承诺卖台3个条件，台湾凶多吉少
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602765/)
 
-编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2021/10/azyxo-p2t45.jpg)
+[https://gtv.org/video/id=616d7d7dd2e2b8174876b7bd](https://gtv.org/video/id=616d7d7dd2e2b8174876b7bd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-5-5.jpg)图片来源：cnbc.com（视频截屏）
+**郭文贵**
+**Miles Guo**
 
-根据联邦贸易委员会的数据，消费者因与Covid-19大流行病有关的欺诈而损失了5.86亿美元。
+跟美方的勾兑第一条
+La primera garantía de cooperación con la parte de EE. UU
 
-根据最新的联邦数据，从2020年初到2021年10月14日，美国人提出了超过26.9万份欺诈投诉。(消费者在投诉中引用了Covid、刺激物或相关术语）。
+再次晒美方在有文字承诺的情况下
+En caso de que EE. UU demuestre la promesa en escrito
 
-典型的受害者（按中位数计算）损失了392美元，其中有一系列针对网上购物者、旅行者和其他人的计划。美国老年人的损失更多。80岁以上的老人受害者每人损失了1000美元。
+这是美方的人跟我说的
+Esto me lo dijo un americano
 
-然而，官员们的报告中说，与大流行病有关的骗局似乎正在减少。
+我都不敢相信
+No lo puedo creer
 
-根据联邦贸易委员会的数据，周四有273起消费者投诉（按14天的滚动平均值衡量）。这是自2020年3月16日以来的最低水平。
+美方总统是（写）亲笔信的
+El presidente de EE. UU escribió una carta a mano
 
-这也比今年4月初每天2100起投诉的高峰期少了约8倍，当时正值Covid疫苗开始被更广泛地部署，联邦政府正在发放由美国救援计划授权的1400美元的经济刺激支票。
+亲手交给秦刚的
+Se lo entregó a Qin Gang
 
-在向联邦贸易委员会报告的诈骗案中，网上购物占最大数量，约有57,600起投诉。
+首先就3个保证
+Primero son 3 promesas
 
-美国人在大流行期间增加了他们的网上购物活动，因为他们在室内花费了更多的时间。
+绝不改变中共的制度
+No cambiar el Sistema del PCCh en lo absoluto
 
-但是，许多人成为“机会主义网站”的受害者，这些网站声称出售流行的、需求量大的商品–从洗手液、手套到电子产品、服装甚至小狗，根据联邦贸易委员会的报告。客户订购了这些物品，但却从未收到过它们。
+不改变中共制度
+No cambiar el Sistema del PCCh
 
-哄抬价格的现象也很普遍。根据美国消费者联合会对各州和地方消费者机构的调查，这是2020年最常报告的与大流行病有关的问题。消费者抱怨说，他们为抢手的产品（如洗手液、卫生纸和口罩）支付了高昂的价格。
+听懂啊 别说推翻了
+Entiendan, no digamos derrocar
 
-报告说，国家和地方机构还收到了与Covid有关的广泛的其他类别的投诉，如被驱逐、取消的活动和旅行、学校和儿童保育。
+就是绝不改变你的制度
+Esto es no cambiar en lo absoluto tu sistema
 
-根据联邦贸易委员会的数据，受害者在度假和旅游诈骗中损失的总金额最大（8100万美元）。该机构说，大多数欺诈行为与退款和取消活动有关。
+第二 大家要记住
+Segundo, todos deben recordar
 
-消费者投诉和损失的真实范围可能比官方统计数字所显示的要高得多，因为这些数据是由消费者自我报告的。
+现在要挂钩
+Ahorita se van a vincular
 
-**简评：**
+从过去的脱钩
+Desde la desvinculación de antes
 
-**中共病毒的爆发彻底搞乱了美国，随着病毒的爆发，美国普通民众所遇到的诈骗性消费也随之飙升。这只是中共病毒带给美国民众的负面影响的冰山一角。真正的经济衰退（崩溃），供应链断裂还没有到来，中共病毒给美国经济带来的最大灾难还没有开始。**
+现在要挂钩 逐渐恢复
+Ahora se van a vincular, recuperar gradualmente
 
-**在灾难面前，体现出了人性。病毒灾难带来的欺骗，让美国的普通民众损失不小。但是，美国乃至全世界人们还没有看到的是，病毒之后疫苗的灾难。疫苗，才是中共病毒之后最大的骗局。而这个灾难，是人们无法想象的。**
+大家看着
+Todos vean
 
-（文章仅代表作者观点，与GNEWS无关）
+第三 大家要记住
+Tercero, recuerden
 
-**参考资料：**[cnbc][Covid-related scams have bilked Americans out of $586 million](https://www.cnbc.com/2021/10/18/covid-related-scams-have-bilked-americans-out-of-586-million.html)
+恢复中美之间的各层次
+Recuperar cada nivel entre China y Estados Unidos
 
-* * *
+全面对话
+Diálogo completo
 
-*审核：蚂蚁兄弟*
-*校对：阿伯塔*
-*发布：信心的选择*
+括弧 括弧
+Entre paréntesis
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)
+记住 这美方的信 括弧
+Recuerden, esta carta de Estados Unidos entre paréntesis
+
+中美军事高层对话
+Diálogo entre el militar chino-estadounidense de alto rango
+
+正常化
+Lo van a normalizar
+
+大家（如果有）懂的
+Si todos entienden
+
+台湾我相信那些名嘴
+Yo pienso que los presentadores famosos de Taiwán
+
+像什么『年代向钱看』
+Como el programa de Next TV
+
+还有那个什么节目
+Y los otros programas
+
+那些混饭吃的家伙瞎忽悠的
+Esa gente inventa para tener algo de comer
+
+他懂这里边什么意思
+Él entiende el significado que hay dentro
+
+在这个要打台湾的时候
+En este momento donde van a atacar a Taiwán
+
+不推翻体制
+No van a derrocar y cancelar el sistema
+
+经济挂钩
+Se van a enlazar económicamente
+
+军事全面恢复交流
+Van a recuperar completamente el diálogo militar
+
+正常交流
+Normalizar el diálogo
+
+没有呈现的说明什么
+Sin demostrar ninguna explicación
+
+不管你发生什么事情
+Sin importar lo que te suceda
+
+你打台湾什么的
+Si atacas a Taiwán o no
+
+咱经济 政治 军事 都不会停止
+Nuestra economía, política, fuerza militar no se detendrá
+
+这已经把台湾卖完了
+Ya esto terminó de vender a Taiwán
+
+我可以告诉大家郭文贵是第一个
+Yo les puedo decir a ustedes que Guo Wengui es el primero
+
+今天是台湾双十节
+Hoy es el Día Nacional de Taiwán
+
+2021年我告诉世界发生了什么事儿
+Dime que ha pasado en el mundo el 2021
+
+在这个信之后才有苏利文的
+Después de esta carta habrá de Sullivan
+
+杨洁篪的会谈
+Conversación de Yang Jiechi
+
+———————————————————
+
+**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1447755121153040385?s=24](https://twitter.com/se1y7cblljselva/status/1447755121153040385?s=24)
+
+日期：10/16/2021
+Estados Unidos garantizó 3 condiciones para vender a Taiwán, este habrá más peligro que suerte
+原视频日期：10/12/2021
+任务编号：KC176（2494）
+视频时间段：0:00-2:14
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
