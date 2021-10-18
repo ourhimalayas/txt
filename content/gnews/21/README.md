@@ -2,53 +2,32 @@
 ---
 
 
-## 抗议、封锁迎接新的意大利 Covid 规则
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1601754/)
+## 国际人权活动人士在雅典卫抵制北京冬奥
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1601829/)
 
-据《Asia Times》记者ALICE RITCHIE 2021 年 10 月 15 日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2566.png)手机上传递的数字 Covid-19 疫苗接种代码。意大利强制要求所有工人持有 Covid 绿色通行证、疫苗接种证明、阴性测试或从病毒中恢复。照片：法新社 / EyePress 新闻
-周五，抗议者聚集在意大利港口，因为该国准备因新的冠状病毒对工人的要求而发生广泛的破坏。
+作者：在远方
 
-大约 300 人封锁了西北部热那亚港口的一个入口，造成延误，这恐怕是封锁和示威活动开始的一天。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-数百人还在东北部主要枢纽的里雅斯特港示威，但地区负责人马西米利亚诺·费德里加坚称“港口正在运作”。
 
-从周五开始，所有工人都必须出示所谓的绿色通行证，提供疫苗接种证明、最近从 Covid-19 中康复或检测结果呈阴性——否则将面临被宣布无薪缺勤。
 
-超过 86% 的 12 岁以上意大利人至少接受过一针疫苗，因此自动有资格获得认。
+10月17日，国际人权活动人士聚集在希腊首都雅典卫城，举行了抗议北京冬奥会的活动。抗议人士手举自由西藏的旗帜和写有“自由香港—革命”的条幅，抗议中共恶劣的人权记录，要求抵制北京冬奥会。警方拘捕了抗议者中一位18岁的西藏学生和一位来自香港的美国公民。人权组织称，按照流程本周二要将圣火交给给北京冬奥会代表，他们会就此继续进行抗议。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1018-AM-（1-3）.004.jpeg)
+由于中共在新疆的种族灭绝和反人类罪行，目前已有多个国际人权组织、美国国会议员和欧洲议会公开呼吁抵制北京冬奥会，新中国联邦也向奥组委发出了要求停办北京冬奥会的公文，呼吁制止这场堪比当年纳粹德国柏林奥运会的活动 。
+(本文仅代表作者观点)
 
-但据估计，多达 300万工人没有接种疫苗——大多数人只有在每 48 小时或 72 小时支付自己的检测费用后才能工作，具体取决于类型。
+参考链接：[国际人权活动人士在雅典卫城抗议北京冬奥会](https://www.voachinese.com/a/athens-protest-beijing-winter-games-20211017/6274118.html)
 
-贸易组织 Confetra 总干事伊万诺·鲁索 (Ivano Russo) 表示，在他的游说团体成员雇用的总共 900,000 名卡车司机、快递员和仓库工作人员中，人群中“25-30%”没有 Covid 证书。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-尽管可以得到免费的 Covid 检测，但的里雅斯特的码头工人还是威胁要无限期罢工。
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
 
-在热那亚，虽然一些卡车司机报告了延误，但周五早些时候的小型封锁是和平的。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-“今天真的很难卸货。”50 岁的司机马可告诉安莎通讯社。
-
-“我必须卸货，我必须能够工作。因为我必须工作，所以我接种了疫苗以获得绿色通行证。”
-
-下载通行证
-
-根据政府数据，周三有超过56万张绿色通行证被下载，这表明新规则的出现正在促进疫苗接种。
-
-意大利总理马里奥·德拉吉 (Mario Draghi) 的政府为绿色通行证辩护，认为这是避免意大利进一步封锁的一种方式，在经历了 Covid 引发的毁灭性的经济衰退之后，意大利今年的经济预计将增长近 6%。
-
-部长们似乎不太可能屈服于为所有人提供免费 Covid 测试的呼吁，但安莎通讯社报道称，他们正在考虑为支付费用的公司提供更大的税收减免。
-
-预计周五将在全国各地举行反通行证抗议活动，但政府希望避免上周末在罗马发生的示威活动重演，该活动演变为极右翼武装分子激怒的暴力冲突。
-
-工会计划周六举行反法西斯集会。
-
-–法新社
-
-文章来源：[https://asiatimes.com/2021/10/protests-blockades-greet-new-italy-covid-rules/](https://asiatimes.com/2021/10/protests-blockades-greet-new-italy-covid-rules/)
-
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场–Mike Li
-编辑：洛杉矶盘古农场 – 柯镇恶
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

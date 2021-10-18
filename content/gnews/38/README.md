@@ -2,45 +2,42 @@
 ---
 
 
-## 美国国际开发署启动了1.25亿美元的项目以寻找12000种新病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1601546/)
+## 蓬佩奥：中共是当今美国最大的外部威胁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1601644/)
 
-作者：AsG諾雅
+**简评：**美国从来不希望与中共国发生战争，但中共把美国作为假想敌已经几十年了。中共利用了美国两党之间的矛盾，与美国的政治和经济交织在一起，非常复杂。美国有决心建立一个在宗教自由和财产权基础之上的自由和平的世界，盼望每一位国务卿和国家安全顾问都能把人类最基本的尊严放在心上。任务艰巨，不可能快速和轻易实现。但是蓬佩奥国务卿对此充满信心。
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+GTV视频链接：[蓬佩奥：中共是美国最大威胁](https://gtv.org/video/id=616baee3d2e2b8174876155c)
 
 
 
-国家脉动10月16日消息，美国国际开发署与华盛顿州立大学和外国合作者启动了一个价值1.25亿美元的新项目，以发现自然界中超过一万种新型病毒。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-8.jpg)
-华盛顿州立大学（WSU）在10月5日宣布，该项目将在五年内收集超过80万个样本。在一份摘要中，该校预计会找到8000到12000个新型病毒，研究人员将对给动物和人类健康构成最大风险的病毒进行筛选和基因组测序，重点是冠状病毒、丝虫病毒和副粘病毒。该项目计划与多达12个非洲、亚洲和拉丁美洲国家合作，在这些国家建立科学能力，利用各国自有的实验室设施，开展大规模的动物监测项目。 WSU尚未确定其外国合作单位，但该校曾和大疆等与中共情报部门相关的技术公司合作进行研究。而美国国际开发署曾经资助生态健康联盟和武汉病毒研究所进行过类似的研究，众所周知，武汉病毒研究所正是中共病毒的来源。
+**视频字幕：**
 
-只有在正义力量的监管下，才能使生物研究真正造福人类，呼吁一定要先查清楚本次病毒大流行的起因经过，并对相关责任人进行问责。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-56.jpg)
-参考链接：
-[WTF!? Biden’s USAID Launches $125 Million Project To Find 12,000 New Viruses.](https://thenationalpulse.com/news/bidens-usaid-launches-project-to-find-novel-viruses/)
+**前国务卿蓬佩奥：**中国共产党是当今美国最大的外部威胁。
 
-（本文仅代表作者观点）
+我们从来不希望与中共国发生战争。但你们应该知道，中共现在认为它与我们国家交战至少已有几十年了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+他们利用了美国两党问题造成的美国缺乏决心。我们看到这种趋势，但是很难绕道而行。
 
-新闻访谈终审：鬼五
-编辑/校对/发稿：为真不破20
+当初苏联的问题很复杂，中共的问题更复杂。
 
-**更多资讯，更多关注**
+我们与中共国的经济关系交织得太深，但是他们现在所做的一切将我们的子孙置于危险之中。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+那天我在这个特殊的地方发表了讲话，就在此处尼克松总统为中国开启了一个机会，但是习近平所选择的方向与此不同。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+我在这里强调，美国一定有决心建立一套战略，一个在理解基础之上的国际联盟来说服中共选择和平之路，好过继续努力主宰世界，击垮世界超级强国的企图。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+对此，我们只是刚刚开始。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑：【英国伦敦喜庄园编辑部】
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+*字幕：雨中漫步 | 听写：云岭 | 翻译：Roberts | PR：Dasy | 简评/文字整理/编辑：胖丁 | Page：Daoiii*
+
+免责声明：本文只代表警告、作者观点，与Gnews平台发布无关
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[![](https://spark.adobe.com/page/MbRQ0rwMewWV6/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/MbRQ0rwMewWV6/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
