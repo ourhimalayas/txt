@@ -2,9 +2,9 @@
 ---
 
 
-## 澳洲男子因质疑新冠疫情被送往医院接受强制心理评估
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1601549/)
+## 一人疑似疫苗毒发在深圳机场“随地倒”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1601577/)
 
-10/14/2021 一名澳洲男子因质疑新冠疫情遭妻子举报后被送往医院接受强制心理评估和关押。
+10/15/2021 中共国网民透露一人疑似疫苗毒发在深圳机场“随地倒”。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

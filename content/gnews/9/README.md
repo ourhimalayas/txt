@@ -2,40 +2,46 @@
 ---
 
 
-## 程国平替孟建柱杨洁篪王毅没少弄钱在迪拜有一万多套房
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1601582/)
+## 班农专访Q-7: 从不爱护国民的非法政府要举办全球盛会
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1601613/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FA-mkwFVIAsAoOt_副本.jpg)
-据[2021年10月17日 文贵大直播：青蒿素的神奇功效；爆料孙力军，傅政华和江志诚在新加坡被抓的细节；中共的经济政治危机导致对台开战，将引发美国，日本对中共进行极限战争；经过疫苗灾难，灭共之后，人类会走向更好的未来，美国将在绿色能源，生物科技，太空时代领先世界，中美是人类的未来](https://gtv.org/video/id=616c1823304e992109b65281)时间点1：42：14——
+**简评：**一个从来不爱护民众，不能给国民提供基本保障的非法政府要举办奥运会，还威胁其他国家不要抵制。中华文明有着悠久的历史，中国人民勤劳能干，创造了大量的财富，但他们却在挨冻受饿。中国人民不会再忍受这种情况。郭文贵先生引领的新中国联邦和爆料革命正在做了不起的事情，全世界都会看到中国老百姓真实的生活，然后看到会发生什么。
 
-**郭文贵先生：**他（指中纪委出逃到日本的战友）说七哥我告诉你，下一个抓的一定是杨洁篪，他说我手里有杨洁篪的料，抓他一千次都不会拉倒，他说但是杨洁篪和王毅这俩王八蛋完全把习整个外交这块全都是假的，他说七哥为啥我们这人信你？我们查这些案子，我们太了解你说的是真是假的。
+GTV视频链接：[英喜每周访问班农先生1013-Q7: 一个国家几乎无法给自己的人民提供基本服务，比如供暖，还举办国际盛会，有意思不](https://gtv.org/video/id=616bb526d2e2b817487617a7)
 
-他说我们没有任何人不看你直播的，他说我们在这边审人，审人中间、审完都看你直播，都上G-TV，他说现在都上盖特，他说杨洁篪的事你说得太对了，包括程国平、包括倪坚，他说你说得太对了，他说就是我们查的呀！他说杨洁篪现在随时可能就是跑国外不回来了，王毅都是有可能的。
 
-他就是担心家人，所有现在对这就是祸连十三族，要没这个都跑了，都叛变了，他说现在各外交部各外大使都随时做好像北朝鲜一样被干掉、被抓起来。然后说这个倪坚很快就让他退休，退休就把他抓起来，而且说到程国平的时候，你说你说得太对了，他说这个孙子钱不一定是他的，但是替孟建柱中没少弄钱，替杨洁篪、王毅没少代持。
 
-仅在迪拜就有一万多套房子，光在迪拜一万多套房子，他说七哥你说这数的时候我们都吓傻了，他说只有我们掌握这个，他说我们都查完了，一万多套房子！我说我这全都有单子，我可以放在电视上给大家看。我这有一万套房子所有的名字、所有的单子。
+**视频字幕：**
 
-他说所以说七哥为啥我们服你，只有我们掌握一万多套房子，他说我们给习报的时候我们报多少，我们报三千，他都吓半死了，我们还没给他报一万多，你讲出一万多，他说我们知道这一万多套。
+**主持人Winston：**说到中共的危险，中共警告美国不要带头抵制（北京）冬奥会。先把人权问题搁置一边。
 
-（以下暂略）
+一个国家几乎无法给自己的人民提供基本服务，比如供暖，还举办国际盛会，这太不合理了。
 
-撰稿：喜马拉雅的肉夹馍；
+**班农先生：**你说到点子上了。这恰恰是我劝别人，我们不应该推动抵制（北京冬奥会）的原因。全世界都应该看看他们在北京冬奥会上企图粉饰太平的表演。
 
-审核：喜马拉雅的馍夹肉；
+其实提供这一切的中国工人在挨饿受冷。在中国被奴役的劳工们既没钱，又在受冷、挨饿。
 
-校对：Maarago
+让我们把现实展示给世界吧。到时候让我们把现实展示给全世界。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+现实并不是那些体育比赛，也不是他们将要举行的盛大开幕式。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+让我们给大家看看现代中国人的现状。他们在受冷挨饿，还没钱。我就说这么多。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+（中国）作为世界上最古老的文明，给予过世界很多东西。（中国文化）是基于家庭传统、勤劳、自力更生和壮大家族之上的。而你们的回报却是寒冷、饥饿和没钱，就这。但这是站不住脚的。你们知道为什么吗？
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+中国人民不会允许这样下去了，所以我认为文贵所做的太了不起。新中国联邦和爆料革命正在做的太了不起。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+让全世界看看中国老百姓的现实生活，然后我们再看看会发生什么。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+编辑：【英国伦敦喜庄园编辑部】
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*字幕：nights | 听写：势不可挡 | 翻译：Roberts | 校对：clau | 简评/文字整理/编辑：胖丁 | Page：Daoiii*
+
+免责声明：本文只代表警告、作者观点，与Gnews平台发布无关
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[![](https://spark.adobe.com/page/pZSWByXmfzss4/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/pZSWByXmfzss4/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)

@@ -2,45 +2,42 @@
 ---
 
 
-## 美国国际开发署启动了1.25亿美元的项目以寻找12000种新病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1601546/)
+## 班农专访Q-1: 中国人必须自己反抗暴政获得自由
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1601561/)
 
-作者：AsG諾雅
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+**简评：**中国人要想获得自由，必须自己起来反抗暴政。在中共大陆危险的处境下，保持和平，拿起手机，多录制视频，通过Gnews和GTV广泛传播，让更多的人知道真相，认清中国共产党的本质和罪恶。如果中国人民自己揭示了正在中国发生的事情，全世界都会聚焦并支持，就不会允许中共政权再残害中国人民。
 
 
 
-国家脉动10月16日消息，美国国际开发署与华盛顿州立大学和外国合作者启动了一个价值1.25亿美元的新项目，以发现自然界中超过一万种新型病毒。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-8.jpg)
-华盛顿州立大学（WSU）在10月5日宣布，该项目将在五年内收集超过80万个样本。在一份摘要中，该校预计会找到8000到12000个新型病毒，研究人员将对给动物和人类健康构成最大风险的病毒进行筛选和基因组测序，重点是冠状病毒、丝虫病毒和副粘病毒。该项目计划与多达12个非洲、亚洲和拉丁美洲国家合作，在这些国家建立科学能力，利用各国自有的实验室设施，开展大规模的动物监测项目。 WSU尚未确定其外国合作单位，但该校曾和大疆等与中共情报部门相关的技术公司合作进行研究。而美国国际开发署曾经资助生态健康联盟和武汉病毒研究所进行过类似的研究，众所周知，武汉病毒研究所正是中共病毒的来源。
+**视频字幕：**
 
-只有在正义力量的监管下，才能使生物研究真正造福人类，呼吁一定要先查清楚本次病毒大流行的起因经过，并对相关责任人进行问责。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-56.jpg)
-参考链接：
-[WTF!? Biden’s USAID Launches $125 Million Project To Find 12,000 New Viruses.](https://thenationalpulse.com/news/bidens-usaid-launches-project-to-find-novel-viruses/)
+**主持人Forrest：**你多次提到中国人想获得自由，应该自己起来反抗暴政。那么你建议中国人民采取什么行动打倒中共政权？ 中国大陆的人在不使自己陷入危险的情况下，可以采取什么实际行动？
 
-（本文仅代表作者观点）
+**班农先生：**我认为要做的就是确保自己不会处于危险之中，因为中共政权，特别是现在非常危险，他们已经处境非常困难。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+我认为中国老百姓要面临的第一件事，是像恒大地产这样金融崩溃。我认为可在外面进行和平抗议，喊出官员的名字。
 
-新闻访谈终审：鬼五
-编辑/校对/发稿：为真不破20
+全界通过Gnews和GTV看到的一些视频片段是惊人的。我想世人都在问，怎么可能这么多钱被偷走？
 
-**更多资讯，更多关注**
+我认为这是全世界第一次有这么多人真正理解中国共产党是中国人民的敌人。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+（中共）沒有合法性。所以对于中国人，我建议在你们不处于危险的情况下，继续录制视频，把它交给有办法传送到Gnews和GTV的人，通过全世界的新中国联邦英雄扩散。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+请记住，如果展示中国人民自己揭示的正在中国发生的事情，整个世界都会聚焦，都会支持他们，不会再允许这个政权折磨中国人民。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+我想不出还有什么比金融危机更能使（中共垮台），因为记住9万亿美元被中共不同家庭和派系以现金或其他价值洗到西方。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+我认为这是显而易见的。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+编辑：【英国伦敦喜庄园编辑部】
+
+*字幕：雨中漫步 | 听写：势不可挡 | 翻译：Boxinglady | 校对：Roberts | 简评/文字整理/编辑：胖丁 | Page：Daoiii*
+
+免责声明：本文只代表警告、作者观点，与Gnews平台发布无关
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[![](https://spark.adobe.com/page/eWV1FPlz8Vy9u/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/eWV1FPlz8Vy9u/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)

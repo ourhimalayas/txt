@@ -2,8 +2,8 @@
 ---
 
 
-## 英国生育率创下新低
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1601494/)
+## 法官暂时阻止对加州监狱工作人员的强制疫苗要求
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1601507/)
 
 作者：文真
 
@@ -13,17 +13,20 @@
 
 
 
-根据英国国家统计局的官方数据，2020年英国的生育率降至1.58，达到有记录以来的最低水平。 尽管新冠大流行期间，人们大部分时间待在家中，但是2020年英国人口出生率比2019年下降了4.2%，比2001年的前一个历史低点低了3.1%。而且，英国的出生率已经连续五年呈下降趋势。 英国怀孕咨询处指责中共病毒大流行导致的经济不确定性，是生育率大幅下降的原因之一。 大范围接种新冠疫苗也可能会成为导致生育率和出生率下降的因素。英国是最早普及新冠疫苗的国家之一，接种率已接近70%。英国生殖免疫专家发现新冠疫苗导致女性经期紊乱，甚至闭经。大量医学案例证明，孕期女性接种新冠疫苗可导致流产。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-99.jpg)
+零对冲10月17日报道，加州克恩县法官巴曼在10月13日发布一项临时限制令，暂时阻止了对加州监狱工作人员的强制疫苗要求。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.3-3.jpg)
+加州的新冠疫苗强制令在10月15日生效。加州治安官员协会，代表全州约两万八千名官员，反对在全州范围内实施强制疫苗措施。在其最初提交法院的文件中说，大范围强制接种疫苗的时间点，与近几个月监狱内以及整个州内，中共病毒感染率大幅下降的现象并不相符。截至9月10日，加州有240名囚犯、39名监狱员工死于中共病毒。但在过去的14天里，只有178个新病例。 因此，法院应抵制强制接种疫苗的要求。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-11.jpg)
+加州囚犯和监狱雇员总共约有五万一千个中共病毒确诊病例。中共病毒病例的大量出现导致许多加州囚犯被加速释放。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-5.jpg)
 参考链接：
-1.[Demographic Collapse: British Fertility Rate Lowest in History, But Number of Foreign Mothers at Record High](https://www.breitbart.com/europe/2021/10/17/british-fertility-rate-falls-to-lowest-in-history/)
-2. [秘翻在线：英国生殖免疫专家呼吁调查疫苗与经期紊乱的关联](https://gnews.org/zh-hans/1545301/)
+[Judge Temporarily Blocks Vaccine Mandate Requirement For California Prison Workers](https://www.zerohedge.com/covid-19/judge-temporarily-blocks-vaccine-mandate-requirement-tor-california-prison-workers)
 
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-新闻访谈终审：Ryan
+新闻访谈终审：鬼五
 编辑/校对/发稿：为真不破20
 
 **更多资讯，更多关注**
