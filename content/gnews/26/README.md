@@ -2,14 +2,9 @@
 ---
 
 
-## 西媒头条 — 第89期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1601990/)
+## 美国前国务卿科林-鲍威尔将军去世
+` Itana` [轉載自GNews](https://gnews.org/zh-hans/1602007/)
 
-制作：蚂蚁兄弟
+By Himalaya Italy Ana
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1018.001.jpeg)
-
-发稿：信心现在选择
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)
+美国前国务卿和参谋长联席会议主席科林-鲍威尔将军于美国时间今天上午因中共病毒的并发症而去世。他的家人说他已经完全接种过疫苗，并已接受了多年的癌症治疗。

@@ -2,49 +2,33 @@
 ---
 
 
-## 郭文贵直播摘要和音频 2021.10.17
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1602045/)
+## 迈阿密学校要求学生暂不接种新冠疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1602067/)
 
-摘要撰稿人： 文俊
+作者：飞虹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+佛罗里达州迈阿密的森特纳学院，致信给学生家长，建议家长对给孩子接种一事慎重考虑；同时要求，每次接种疫苗的学生都必须在家隔离30天。
 
-音频提供者： 左媛
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide8-5.jpeg)
 
+森特纳学院首席运营官在近日发给学生家长的一封信中说：“如果您正在考虑为您的学生接种疫苗，请您推迟到来年夏季，这将减少潜在的传播或传染给他人。”这封信同时还为仍然选择给孩子接种疫苗的父母制定了隔离规定。“由于对其他学生和我们学校社区的潜在影响，接种疫苗的学生在每次接种疫苗和增强剂后需要在家呆30天，只要学生健康且无症状，30天后可以返回学校。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-18-at-11.23.22-AM.png)
+早在4月份，森特纳学院就表示，4月22日之后接种疫苗的员工将不被允许返回学院工作，尽管后来决定接种疫苗的教师和员工不会被解雇，但也不允许他们与学生一起工作。原因就是校方担心这些仍然处于试验性状态的疫苗的副作用，接种者会感染未接种者。
 
+在这封致家长信中，校方表示他们对“实验性疫苗”的担忧没有改变，他们尊重每个人的选择，但也需要关注整个学校社区。
 
-### 视频：
+(本文仅代表作者观点)
 
-[视频链接](https://gtv.org/video/id=616c1823304e992109b65281)
+参考链接：[Miami private school to require students getting COVID vaccine to stay home for 30 days after each dose](https://wsvn.com/news/local/miami-private-school-to-require-students-getting-covid-vaccine-to-stay-home-for-30-days-after-each-dose/)
 
-### 音频：
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-### 摘要：
+编辑/校正/发稿：谐趣园
 
-1. 香港深水湾 赤柱军方4个IP地址 发了100多条信息 诋毁青蒿素
-2. 欧洲科学家：青蒿素主要疏通血管和清理你身体里不该存在的东西
-3. 青蒿素广泛使用在中共空军和潜水艇部队
-4. 习做梦没想到包括军队等十几波人想干掉他
-5. 2021年3 月江志诚在新加坡被抓包括双胞胎孩子和女友
-6. 刘彦平岳父被抓时监狱自杀，两星期后女儿自杀
-7. 日本房价涨幅最大 主要是大陆和台湾买家
-8. 到日本中纪委战友是跟习直接对话 这位战友告诉郭先生 青蒿素是中国的秘密下一个要抓的就是杨洁篪
-9. 倪坚代持资产就迪拜就代持了一万多套房子
-10. 平安 佣金占20% 烂账超过50% 你说中国的经济能好吗？
-11. 合生创展、富力、融创、大连万达、碧桂园都是假贷款、假账
-12. 江家 王岐山 韩正下令孙立军做掉郭先生
-13. 专家科学家被江家干掉（暗指马航）
-14. 相信七哥而卖掉房子的人 大概有百万到千万人
-15. 到日本中纪委妻子亲眼目睹 香港孩子被杀 、被鸡奸、被奸
-16. 郭广昌相信疫苗 给家人打三针高纯度疫苗
-17. CCP控制香港4大家族，所有人海外100年的钱全部吐出来
-18. 谭咏麟、曾志伟虐童 玩变态
-19. 孙力军叫所有香港明星集体看各自小视频
-20. 李嘉诚60%是代持江家 要卖掉长江、和黄
-21. 李嘉诚也换了2-3次 活摘人的肾
-22. 中共活摘西藏人器官成功率只有20分之一 也就是杀20个人才能成功一个
-23. 崔永元几次要被做掉，共产党最恐惧 班农 、 皮特纳瓦罗 、 彭培奥
-24. 不打核战，100%消灭共产党，美国3分钟，日本5分钟
-25. 未来核电 干细胞 太空科技，这些改变就会在未来3-5年发生
-26. 李磊石（音）家人过两天可能出来爆料马航的事
-27. 星期三 直播
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

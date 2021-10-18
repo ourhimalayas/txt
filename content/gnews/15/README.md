@@ -2,27 +2,20 @@
 ---
 
 
-## 中共一旦武攻台湾，美军三分钟铲平其军事基地
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1602116/)
+## 默克制药遭谴【伊维菌素和羟氯喹】获内布拉斯加州官方首肯
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1602123/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
+采编：风云小哥，撰稿：文明(添草灭共)， 校对，编辑，发稿：硫酸羟氯喹64
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-17.png)
-文章仅代表作者本人观点，与Gnews无关
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/i.jpeg)图片来源：GP
 
-视频参看：2021.10.18早GTV新闻访谈
 
-[https://gtv.org/broadcast/watch/616d685d304e992109b7345d](https://gtv.org/broadcast/watch/616d685d304e992109b7345d)
+据自媒体《网关专家》10月16日报道，内布拉斯加州总检察长办公室对外称：医生不仅可在患者知情且同意的情况下使用【伊维菌素】或【羟氯喹】治疗“新冠病毒”感染，而且也可凭其专业知识制定合适的早期治疗方案，使该病毒感染者尽快脱离危险，以缓解该州日趋紧张的医疗保健系统。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+该办公室引用了相关研究小组的临床数据分析，指出【伊维菌素】和【羟氯喹】对预防“新冠病毒”感染的有效作用。同时对【默克制药公司】刻意掩盖该药疗效的做法进行了抨击。对此，总检察长道格-彼得森表示：【默克制药公司】是【伊维菌素】的原始专利持有人，却不遗余力地质疑该药，并向公众传递使用该药可能不安全的信息。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+据外界报道，由于【伊维菌素】专利期早已失效，【默克公司】不能再从中获利，因此该公司目前正在推售一种用于治疗“新冠病毒”感染的新药【莫努匹拉韦】，并已获得美国政府12亿美元的巨额订单。但如果【伊维菌素】和【羟氯喹】的防治效果被公之于众，那么该公司将面临经济利益的巨大损失。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（以上内容仅代表原文信息和作者个人观点）
+
+[原文链接：](https://www.thegatewaypundit.com/2021/10/nebraska-ag-issues-opinion-doctors-prescribing-hcq-ivermectin-covid-treatment-will-not-face-punishment/)

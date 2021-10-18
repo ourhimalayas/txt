@@ -2,43 +2,38 @@
 ---
 
 
-## FDA因心肌炎风险推迟青少年莫德纳疫苗接种
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1602311/)
+## 疫苗灾难正在逐渐显现
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1602354/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**作者：**卢卡斯
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片13457.png)图片来源：网络
+入夏以来各国政府推行疫苗接种运动到最近推行强制疫苗接种和疫苗护照政策，导致迄今为止全球有近28.4亿人完全接种了疫苗（占全球人口总数的36.4%）。疫苗接种者自身的免疫系统遭到中共毒疫苗的削弱甚至严重破坏，导致他们易于被流感病毒感染引发并发症的得病甚至死亡。北半球秋冬季节已经开始，其流感季节最早从10月开始，12月开始频发，一直到次年2月达到巅峰，然后3月才结束。疫苗灾难叠加秋冬季流感季节的影响因素将加剧灾难性的后果。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M-3.jpg)covidcalltohumanity.org
-《门道专家》10月18日发表文章，“震惊：FDA推迟青少年使用莫德纳疫苗（Moderna Vax），理由是担心儿童心肌炎风险”。
+基于以上的原因，最近几周以来，文贵先生大直播中反复强调疫苗灾难即将开始，并将持续到明年6月左右结束，他严肃呼吁大家传播疫苗灾难的真相和以青藁素、伊维菌素来解除疫苗毒素，拯救更多的人类。不出所料，疫苗灾难正在开始显现。
 
-全文如下：
+美国乔治亚州亚特兰大市Red Voice Media重磅报道：英国Milton Keynes家庭殡葬服务中心经理John O’Looney今年9月19日爆料称，根据他的观察，自中共病毒疫苗接种运动以来，与中共病毒全球大流行的初期相比疫苗接种灾难导致的死亡人数如火箭般窜升了300%。10月14日他接受RAIR Foundation USA采访，然后一天之内就收到了大约65位殡葬业同行联系他分享各人观察到的类似结果。
 
-瑞典和丹麦上周宣布，由于可能的副作用，他们将停止为30岁以下的人接种莫德纳中共病毒疫苗。
+O’Looney注意到：在去年的中共病毒全球大流行期间，几乎没有死于中共病毒的感染者送到他的中心；然而自政府推行疫苗接种以来，送到他的殡葬中心死者暴增300%。O’Looney说他从业15年来从来没有看到这么高的死亡率，这些死者中有一位是32岁，一位是33岁，还有一个是28岁，他们都接受了疫苗接种，并且都是出人意料之外突然死亡，死因是血栓、心梗或者器官衰竭。
 
-这是个大新闻。
+O’Looney感觉到人们正在清醒过来，但是他担心政府将会耍花招来控制局势；他认为政府中的某些人的所作所为无异于谋杀，他们干的某些事情是不可饶恕的。
 
-这两个国家看到了足够的证据来禁止年轻人接种疫苗。
+O’Looney揭露其所见的疫苗灾难以及他在一天之内接到多达65位同行与其分享类似的亲眼所见事实，说明疫苗灾难已经开始，但是大多数知道这些事实的人在沉默，或者他们的声音被黑暗势力所压制和消声，因为政府和医疗权威机构、主流媒体和大媒体平台等都被这些邪恶的黑暗势力所控制，他们正在干着谋杀人类的勾当。
 
-10天前，辉瑞公司向FDA申请批准5至11岁儿童的疫苗。
+英国的O’Looney揭露的事实表明疫苗灾难性后果正在开始显现，随之而来冬季寒冷季节很可能会导致大量的疫苗接种者的死亡，这会给濒临崩溃的CCP政权借机把灾祸和仇恨转嫁给海外华人，让全体中国人为CCP病毒及其毒疫苗背锅，制造种族仇恨，仇华、排华，借机逃脱全世界对极少数中共邪恶首领的追责和惩罚。因此，大力传播疫苗灾难的真相和青藁素、伊维菌素救命药物给周围的人们，传播中国人不是CCP，并做好准备应对最极端的仇华排华运动，将越来越变得重要和紧迫。
 
-根据疫苗不良事件报告系统（VAERS，Vaccine Adverse Event Reporting System）追踪网站的数据，在美国，有4,144名美国人死于莫德纳中共病毒疫苗接种，11,346人死于辉瑞疫苗接种。
+参考文献:
 
-《审查员》（The Examiner）报告：
+[Centers for Disease Control. The Flu Season](http://www.cdc.gov/flu/about/season/flu-season.htm)
 
-美国食品和药物管理局（FDA）周五（10月15日）宣布，推迟对青少年接种莫德纳疫苗的决定，理由是担心该疫苗可能导致罕见心脏病风险的增加。
+[Coronavirus (COVID-19) Vaccinations](https://ourworldindata.org/covid-vaccinations?country=OWID_WRL)
 
-据《华尔街日报》报道，美国食品和药物管理局（FDA）尚未确定青少年的风险是否更高，但该机构正计划在延长疫苗合格期之前进一步审查数据。
+[Funeral Director Blows The Whistle On COVID-19 – John O’Looney (redvoicemedia.com)](https://www.redvoicemedia.com/video/2021/09/funeral-director-blows-the-whistle-on-covid-19-john-olooney/)
 
-莫德纳首席医疗官保罗·伯顿（Paul Burton）对媒体说：“我认为人们可以放心，使用mRNA疫苗的心肌炎风险很低，不同产品之间各有利弊。”
+[BOMBSHELL: Deaths Skyrocketed by 300% After COVID Vaccine – Funeral Director Blows The Whistle \[VIDEO\] (lifezette.com)](https://www.lifezette.com/2021/10/bombshell-deaths-skyrocketed-by-300-after-covid-vaccine-funeral-director-blows-the-whistle-video/?utm_source=right-rail-latest)
 
-（全文完）
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
 
-FDA似乎在疫苗审批方面一直显得比较慎重，即使前一阵主流媒体、各大公司铺天盖地地喧嚷辉瑞疫苗获得了批准，为政府实施强制疫苗政策造势。约翰逊参议员及时揭穿过炒作、撒谎的阴谋，指出FDA只是延期了辉瑞疫苗紧急授权的使用。FDA不出来澄清、否定阴谋集团假新闻的炒作，反映了邪恶力量对美国主管机构一定程度的操控。FDA此次推迟莫德纳疫苗，说明邪恶的操控又一次受阻，说明正义力量一直在抗争并取得成果。
+编辑/发布：LILY
 
-只有抗争，站出来说不，揭露邪恶，邪恶才会退缩，坚持才能打败邪恶势力。战友们加油！
-
-（文章仅代表作者个人观点）
-
-原文链接：
-
-[https://www.thegatewaypundit.com/2021/10/shock-fda-delays-moderna-vax-adolescents-citing-consern-myocarditis-risk-children/](https://www.thegatewaypundit.com/2021/10/shock-fda-delays-moderna-vax-adolescents-citing-consern-myocarditis-risk-children/)
+20211018
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)

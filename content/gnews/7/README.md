@@ -2,37 +2,31 @@
 ---
 
 
-## 抗议之下伊利诺伊州长推迟疫苗强制令
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1602237/)
+## 有声|波音公司工人抗议疫苗强制令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1602241/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+配音：香草山美食部 – 玫瑰园
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/I-1.jpg)king5.com
-这样的事发生在蓝左州实属不易，可以看出人们对疫苗强制政策的质疑及反感，也反映出人民的觉醒。
+10月15日，在华盛顿州埃弗雷特的波音工厂外，波音员工和其他人和平抗议公司的疫苗强制令。在雨中抗议人群同过往车辆挥手相互呼应。
 
-《门道专家》发表文章，“伊利诺伊州州长普里茨克（Pritzker）在工会抗议后，将中共病毒疫苗强制令推迟到11月底”。
+波音公司曾在10月12日表示，根据拜登总统的行政命令，将要求其12.5万名美国员工在12月8日前接种疫苗。
 
-全文如下：
+这一要求遭到了大量员工的抵制和抗议。每个人都有选择不接种的权利，政府和企业不能强迫人们做事情。有相当比例的员工已经认识到疫苗的部分真相，新冠疫苗并没有获得正式授权，而是在缺失“知情同意”的情况下，不人道的“人体实验药物”。
 
-伊利诺伊州州长J.B. 普里茨克（J.B. Pritzker）将退伍军人之家、监狱和其他公共机构员工接种中共病毒疫苗的任务推迟到11月底，工会成员现在还有7周时间接种实验性中共病毒疫苗。
+在德克萨斯州，共和党州长格雷格·阿伯特10月11日发布行政命令，禁止包括私人雇主在内的任何实体强制使用新冠病毒疫苗，波音公司宣布他们的强制令不立即适用于该州的工厂。蝴蝶效应将传遍美国各地，德州和佛州发起的法律诉讼，也为其他地区反抗的人们提供了参考。
 
-工会成员与强制抗争，如果强制不延长，本周数千人将被解雇。
+我们相信，随着疫苗真相的不断被揭露，民众自由权利意识的不断觉醒，为自由争取权力的人们将很快取得最后的胜利。
 
-ABC7报告：
+文字版原文：[波音公司工人抗议疫苗强制令](https://gnews.org/zh-hans/1599776/)
 
-州长J.B.普里茨克推迟了退伍军人之家、监狱和其他公共机构的州政府雇员接种中共病毒疫苗的最后期限，因为他的办公室与代表一些工人的工会进行了谈判。
+音频处理：喜山必胜Maverick
 
-据《芝加哥论坛报》（the Chicago Tribune）报道，普利茨克在8月份为要求州工作人员接种疫苗设定了10月4日的最后期限，他周五（10月15日）表示，雇员必须在11月30日之前进行全面接种。这些工人受雇于惩戒部、退伍军人事务部、公共服务部和少年司法部。
-
-普里茨克政府已与代表州工人的几个工会达成协议，但与美国联邦、郡和市雇员委员会（AFSCME，the American Federation of State, County and Municipal Employees Council）31区分会和当地卡车司机协会（Teamsters Local）700分会的谈判仍在继续。AFSCME代表约15000名受该强制要求影响的州工作人员，他们反对其所谓的“严格强制”。
-
-（全文完）
-
-阴谋集团作何感想？其实你们不缺钱，想体验统治世界、改变人们生活方式的快感吗？不惜直接、间接杀戮百万、千万人的性命？没有文贵先生、没有爆料革命、没有新中国联邦，你们罪恶的目的几乎得以实现，但是现在，正道主义在向你们说不！正在唤醒世界，正在阻止你们，直到消灭你们！
-
-（文章仅代表作者个人观点）
-
-原文链接：
-
-[https://www.thegatewaypundit.com/2021/10/il-governor-pritzker-extends-covid-vaccine-mandate-til-end-november-unions-revolt/](https://www.thegatewaypundit.com/2021/10/il-governor-pritzker-extends-covid-vaccine-mandate-til-end-november-unions-revolt/)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
