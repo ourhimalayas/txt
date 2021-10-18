@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/18/2021 10:38 PM (UTC)`
+
+直播测试
+![img](https://media.gettr.com/group4/origin/2021/10/18/22/74a5860d-b85f-3d5c-1e5f-9ea844d77323/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@feelsogood 10/18/2021 8:52 PM (UTC)`
@@ -292,13 +299,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 10/13/2021 Miles Guo: Hu Shuli and Jack Ma were appointed at the South Putuo Meeting as the de facto head of the CCP’s Publicity Department and Finance minister, respectively. Hu Shuli is in control of the narrative on the global stage, while Jack Ma has forged a “financial sharp weapon”; It’s too late for Xi to start investigating the state-owned banks now.<br/><br/>10/13/2021 文贵直播：胡舒立和马云分别是南普陀会议指定的中共事实上的“宣传部长“和”财政部长”，胡舒立掌握着国际话语权，马云打造了“财务利器“；习到现在才开始调查国有银行，为时已晚！<br/>
 ![img](https://media.gettr.com/group35/getter/2021/10/14/00/37/40e99eca-922d-6f74-b52b-b351d6f8b78a/out.jpg)
-
----
-
-`@miles 10/14/2021 12:28 AM (UTC)`
-
-10/13/2021 Miles Guo: The war between the Communist China and the US is inevitable, with the fundamental reason being the CCP’s economy - the real estate industry will completely collapse, and the CCP will stop buying US Treasury securities and will default on the debt to the West; Once the war broke out between the CCP and the US, the anti-Chinese movement will surely escalate!<br/><br/>10/13/2021 文贵直播：中美之间必有一战，其根本原因在于中共的经济 - 房地产将彻底崩溃、中共将停止购买美债并无法偿还欠西方的债务；中美一旦开战，排华必将升级！<br/><br/>
-![img](https://media.gettr.com/group25/getter/2021/10/14/00/28/942f8583-54a8-81ba-ec89-85e5e6bcf45b/out.jpg)
 
 ---
 
