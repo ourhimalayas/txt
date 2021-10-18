@@ -2,20 +2,16 @@
 ---
 
 
-## ESPN记者因强制疫苗选择离职
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1601039/)
+## 内布拉斯加州总检察长：医生可以开具有争议的中共病毒药物
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1601041/)
 
-#### 翻译：花岗岩
+#### 翻译：沙子最怕你不理它
 校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/7-11.jpg)图片来源：网络截图
-据今日美国（USA TODAY）10月17日报道，美国电视新闻网（ESPN）的资深记者艾莉森·威廉姆斯（Allison Williams）决定拒绝遵守该网络要求所有员工接种中共病毒疫苗的规定，选择离开电视台。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-32.jpg)图片来源：网络截图
+据3 News Now 10月15日报道，内布拉斯加州总检察长道格·彼得森（Doug Peterson）表示，只要医生获得患者的知情同意，并且不参与不当行为，他不会对开具有争议的非适应症药物（伊维菌素或羟氯喹）来治疗和预防中共病毒感染的医生采取惩罚措施。
 
-威廉姆斯上个月宣布，因为拒绝注射疫苗，她将不会在ESPN的大学橄榄球转播中出现在现场，这是她从业15年来第一次。ESPN 在8月初强制要求现场活动的工作人员接种疫苗，并在本月将其扩大到所有员工。
+许多健康专家和主要医疗团体一直在试图停止使用这两种药物，但内布拉斯加州司法部长办公室给内布拉斯加州卫生与公众服务部首席执行官达内特•史密斯（Dannette R. Smith）提交了一份意见。在意见的导言中质疑史密斯要求总检察长就纪律处分持牌医疗保健提供者开具用于治疗中共病毒的非适应症药物的合法性。导言还指出了经调查后发现了潜在中共病毒治疗的重大争议和可疑信息。该文件接着引用了使用伊维菌素和羟氯喹治疗中共病毒的例子。
 
-在本周五，她在Instagram上发布了一个五分钟的视频来解释她的决定，说她在道德和伦理上不能接受强制疫苗，她和她的丈夫正在考虑生另一个孩子。威廉姆斯引用了妇女在接种疫苗后出现健康问题的事例证据，作为她选择不遵循公司要求的原因之一。
+在结论中，彼得森写道：“……我们没有发现明确和令人信服的证据，证明首先获得知情同意并使用伊维菌素或羟氯喹治疗COVID-19（中共病毒）的医生违反了UCA（统一认证法）。”
 
-威廉姆斯说，她很难接受这样一个事实，上赛季阿拉巴马州和俄亥俄州的全国冠军赛将是她在ESPN工作的最后一场比赛。“归根结底，我不能把薪水放在原则之上，我不会为了维持职业生涯而牺牲我所相信和坚持的东西。” 她说。
-
-在通过电子邮件发给《今日美国体育》的一份声明中，ESPN拒绝就威廉姆斯的具体情况发表评论。
-
-新闻来源：[ESPN reporter Allison Williams leaving network due to vaccine mandate](https://www.usatoday.com/story/sports/media/2021/10/17/allison-williams-leaving-espn-over-mandatory-vaccination-policy/8498841002/)
+新闻来源：[Nebraska AG: Docs can prescribe controversial COVID drugs](https://www.3newsnow.com/news/local-news/nebraska-ag-docs-can-prescribe-controversial-covid-drugs)
