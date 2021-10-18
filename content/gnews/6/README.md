@@ -2,36 +2,23 @@
 ---
 
 
-## 报应来得快，中共开始对香港富豪开刀
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1600934/)
+## 5个月内抗体下降约85%，专家回应有效
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1600968/)
 
-作者：纽约香草山健身部 – Jack Li文阳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-文贵先生在10月17日大直播中爆料：中共为了挽救其濒临破产的经济，正在对香港的四大家族下手。严令他们还回手里所有的地，还要把在大陆挣的钱拿回来，才能保其不死。中共威胁：无论他们跑到外国哪里，共产党都能把他们抓回来。对于房地产商、律师、金融届、黑社会，这些人都得把钱拿回来，中共要他们把100年挣的钱都吐出来。中共堂而皇之的以疫情的理由对相关人士实施边控，变相绑架香港富豪及其家人，使其不能随便出入边境逃跑。如有不从者，冠状病毒死亡就是其下场。
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-81.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpic4.zhimg.com%2Fv2-c6c619dcc6b38298ec7067539ea27497_b.jpg&amp;imgrefurl=https%3A%2F%2Fzhuanlan.zhihu.com%2Fp%2F76075991&amp;tbnid=Gi1JXCDgMkJA0M&amp;vet=12ahUKEwjP6dCf_tLzAhVTQ_UHHUQlByAQMygBegUIARCaAQ..i&amp;docid=W7P_bsDnrFHJaM&amp;w=1084&amp;h=894&amp;q=%E8%A1%B0%E5%87%8F&amp;ved=2ahUKEwjP6dCf_tLzAhVTQ_UHHUQlByAQMygBegUIARCaAQ)
+南日本新闻社10月17日报道，10月16日，鹿儿岛市米盛医院对该院曾接种过两次新冠辉瑞疫苗的医务人员进行了抗体水平检测，638人进行了检测，结果显示平均抗体水平 5 个月内下降了约 85%。该院7月份也公开发表过“新冠接种后3个月，抗体水平减半”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-316.png)图片来源：Jack Li文阳
+日本感染症学会疫苗委员会西顺义郎委员长解释道：辉瑞等生产的mRNA疫苗通过制造抗体获得防止病毒侵入细胞的“液性免疫”的功能。此外，还可以获得淋巴细胞破坏感染细胞的“细胞免疫”的功能。“两种免疫力同时工作，可以预防感染、发病和重症化化。”并对抗体水平下降约85%做出回应：抗体时疫苗产生免疫的一部分，抗体水平下降并不会减少其有效性。委员长对该医院的数据表示称：“非常重要的报道，但希望结合实际感染者的状况慎重做评价。”
 
-香港民众2019年轰轰烈烈的反送中运动，反独裁、保民主、争自由。当时，面对港人的前赴后继，不畏牺牲，一众香港富豪无耻的为中共站台，支持中共疯狂打压市民的民主运动。其实，香港的百年高速发展正是得益于民主自由的政治体制，因此得到国际社会对自由贸易港的承认，这些富豪也是因此挣得盘满钵满，富得流油。
+医院通过测试得出的数据结果，那么委员会，专家等呢？而为什么医院只对疫苗的有效性进行检测，疫苗的安全性谁来验证？
 
-中共粗暴的撕毁一国两制，垂涎的正是香港辉煌的财富，而香港绝大部分的财富其实是掌握在少数人的手中。勇敢的香港人誓死保卫的除了自己狭小的蜗居和一份辛苦的工作，其实更多的是保卫这些无良奸商的财富和营商环境。可这帮不要脸的商人，泯灭良心，出卖港人投靠中共。
+信息来源：
 
-中共这个天下第一绞肉机，一旦控制住香港，一定会开动绞肉程序。香港的肉都在富豪的身上，其结局可想而知。当下中共四面楚歌，国内经济每况日下，地产庞氏骗局已经玩不下去了，世上最大的经济泡沫爆破在即。因此，中共迫不及待对香港下手，香港富豪两三代人的百年财富很快要改名换姓了。另一方面，中共倒台也指日可待。到时，这些财富，自然会回归到香港人手中。
+[半年で抗体量85％減少　ファイザー製コロナワクチン　鹿児島市・米盛病院調べ](https://news.yahoo.co.jp/articles/0589ffb257c63853ba97b1435b2e372c1a9db9cb)
 
-**本文谨代表作者观点**
+(文章仅代表作者本人观点，与GNEWS无关)
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
-
-**校对/发稿：童谣**
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
