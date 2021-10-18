@@ -2,31 +2,23 @@
 ---
 
 
-## 环京巨头华夏幸福疑似资金链断裂，引发多处维权
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1600930/)
+## 5个月内抗体下降约85%，专家回应有效
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1600968/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/nimg.ws_.126.net_.jpg)环京巨头华夏幸福疑似资金链断裂，引发多处维权 网络图片
-据环京零距离10月16日报道，昔日河北最大房企华夏幸福从今年年初公开承认流动性危机到现在，初步确定了“偿债”计划。10月8日，华夏幸福复牌涨停，第一大股东中国平安也大涨7.73%。
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-81.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpic4.zhimg.com%2Fv2-c6c619dcc6b38298ec7067539ea27497_b.jpg&amp;imgrefurl=https%3A%2F%2Fzhuanlan.zhihu.com%2Fp%2F76075991&amp;tbnid=Gi1JXCDgMkJA0M&amp;vet=12ahUKEwjP6dCf_tLzAhVTQ_UHHUQlByAQMygBegUIARCaAQ..i&amp;docid=W7P_bsDnrFHJaM&amp;w=1084&amp;h=894&amp;q=%E8%A1%B0%E5%87%8F&amp;ved=2ahUKEwjP6dCf_tLzAhVTQ_UHHUQlByAQMygBegUIARCaAQ)
+南日本新闻社10月17日报道，10月16日，鹿儿岛市米盛医院对该院曾接种过两次新冠辉瑞疫苗的医务人员进行了抗体水平检测，638人进行了检测，结果显示平均抗体水平 5 个月内下降了约 85%。该院7月份也公开发表过“新冠接种后3个月，抗体水平减半”。
 
-华夏幸福首先变卖资产偿还2192亿元的金融债务。卖出资产预计回笼约750亿元，预计会带走金融债务约500亿元。由此，华夏幸福偿还的金融债务超过千亿，剩余约550亿元债务由公司承接。
+日本感染症学会疫苗委员会西顺义郎委员长解释道：辉瑞等生产的mRNA疫苗通过制造抗体获得防止病毒侵入细胞的“液性免疫”的功能。此外，还可以获得淋巴细胞破坏感染细胞的“细胞免疫”的功能。“两种免疫力同时工作，可以预防感染、发病和重症化化。”并对抗体水平下降约85%做出回应：抗体时疫苗产生免疫的一部分，抗体水平下降并不会减少其有效性。委员长对该医院的数据表示称：“非常重要的报道，但希望结合实际感染者的状况慎重做评价。”
 
-尽管启动了变卖模式，华夏幸福仍然保留自己的核心业务-孔雀新城。这是华夏幸福基于产业新城的模式，围绕都市圈发展园区配套住宅，
+医院通过测试得出的数据结果，那么委员会，专家等呢？而为什么医院只对疫苗的有效性进行检测，疫苗的安全性谁来验证？
 
-与产业新城进行联动。华夏幸福截至今年上半年，已经打造了超过50座孔雀城项目。
+信息来源：
 
-华夏幸福目前的困境，一是前期激进扩张，再就是误判了环京的房地产形势，投资过于集中。2017年环京形势发生重大变化，华夏幸福调整效果不够显著。2020年以来，疫情导致环京市场出现断崖式下降，并最终引爆了华夏幸福的债务偿付危机——2021年需偿付金额高达千亿元。而截至2021年1月31日，华夏幸福的货币资金仅有240亿元，且新增融资全面受阻、业务现金流无法覆盖偿付需求。可注入的资金，基本枯竭。
+[半年で抗体量85％減少　ファイザー製コロナワクチン　鹿児島市・米盛病院調べ](https://news.yahoo.co.jp/articles/0589ffb257c63853ba97b1435b2e372c1a9db9cb)
 
-再大的体积，在中共的体制下，在中共释放病毒的情况下，都会轰然倒塌。中共的吸血体制最终会连蚂蚁和大象都会全部吃掉。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-新闻参考链接：[https://c.m.163.com/news/a/GMF7TVN00534JOPJ.html?spss=newsapp](https://c.m.163.com/news/a/GMF7TVN00534JOPJ.html?spss=newsapp)
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
