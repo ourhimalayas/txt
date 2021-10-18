@@ -2,39 +2,20 @@
 ---
 
 
-## 拜登政府因疫苗强制令面临大规模集体诉讼
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1602078/)
+## 默克制药遭谴【伊维菌素和羟氯喹】获内布拉斯加州官方首肯
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1602123/)
 
-作者：雪梨
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月15日，包括海豹突击队、陆军特种部队和海军、空军军官、联邦雇员和联邦文职承包商在内的24名原告，于美国佛罗里达州中区法院，正式对拜登政府提起诉讼，要求法院发布临时限制令，暂停强制接种疫苗，并最终发布禁令，阻止五角大楼继续执行该行政命令。
+采编：风云小哥，撰稿：文明(添草灭共)， 校对，编辑，发稿：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-18.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/i.jpeg)图片来源：GP
 
-国防部长劳埃德·奥斯汀、国土安全部长亚历杭德罗·马约卡斯和拜登总统均被列为被告。
 
-目前上市使用的三种疫苗，均通过流产胎儿干细胞开发而来，仅从该点出发，宗教人士有权获得豁免。但实际上大部分原告仍遭到被解雇、诉诸军事法庭或惩罚的威胁。这一做法严重侵犯了宪法第一修正案赋予公民宗教自由的权利。
+据自媒体《网关专家》10月16日报道，内布拉斯加州总检察长办公室对外称：医生不仅可在患者知情且同意的情况下使用【伊维菌素】或【羟氯喹】治疗“新冠病毒”感染，而且也可凭其专业知识制定合适的早期治疗方案，使该病毒感染者尽快脱离危险，以缓解该州日趋紧张的医疗保健系统。
 
-此外，新冠疫苗根本没有通过批准，仅得到市场紧急使用，人们有拒绝接种的自由和权利。
+该办公室引用了相关研究小组的临床数据分析，指出【伊维菌素】和【羟氯喹】对预防“新冠病毒”感染的有效作用。同时对【默克制药公司】刻意掩盖该药疗效的做法进行了抨击。对此，总检察长道格-彼得森表示：【默克制药公司】是【伊维菌素】的原始专利持有人，却不遗余力地质疑该药，并向公众传递使用该药可能不安全的信息。
 
-两个月前，两名美军士兵已将国防部官员诉诸法院。随着限期临近，觉醒的美国军人纷纷拿起法律的武器，坚决捍卫自己的权利。
+据外界报道，由于【伊维菌素】专利期早已失效，【默克公司】不能再从中获利，因此该公司目前正在推售一种用于治疗“新冠病毒”感染的新药【莫努匹拉韦】，并已获得美国政府12亿美元的巨额订单。但如果【伊维菌素】和【羟氯喹】的防治效果被公之于众，那么该公司将面临经济利益的巨大损失。
 
-随着疫苗真相的大力传播，民众逐渐觉醒，政府和联邦卫生机构面临更多的质疑和指控，同时，诉讼也将朝着有利于原告期望的方向推进。
+（以上内容仅代表原文信息和作者个人观点）
 
-(本文仅代表作者观点)
-
-参考链接：[Biden, Pentagon Face Massive Class-Action Lawsuit Over Vaccine Mandate on Federal Employees and Military Members](https://www.thegatewaypundit.com/2021/10/biden-pentagon-face-massive-class-action-lawsuit-vaccine-mandate-federal-employees-military-members/)
-
-新闻访谈终审：暗黑
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-校对/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[原文链接：](https://www.thegatewaypundit.com/2021/10/nebraska-ag-issues-opinion-doctors-prescribing-hcq-ivermectin-covid-treatment-will-not-face-punishment/)

@@ -2,31 +2,43 @@
 ---
 
 
-## 有声|波音公司工人抗议疫苗强制令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1602241/)
+## FDA因心肌炎风险推迟青少年莫德纳疫苗接种
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1602311/)
 
-配音：香草山美食部 – 玫瑰园
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-10月15日，在华盛顿州埃弗雷特的波音工厂外，波音员工和其他人和平抗议公司的疫苗强制令。在雨中抗议人群同过往车辆挥手相互呼应。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M-3.jpg)covidcalltohumanity.org
+《门道专家》10月18日发表文章，“震惊：FDA推迟青少年使用莫德纳疫苗（Moderna Vax），理由是担心儿童心肌炎风险”。
 
-波音公司曾在10月12日表示，根据拜登总统的行政命令，将要求其12.5万名美国员工在12月8日前接种疫苗。
+全文如下：
 
-这一要求遭到了大量员工的抵制和抗议。每个人都有选择不接种的权利，政府和企业不能强迫人们做事情。有相当比例的员工已经认识到疫苗的部分真相，新冠疫苗并没有获得正式授权，而是在缺失“知情同意”的情况下，不人道的“人体实验药物”。
+瑞典和丹麦上周宣布，由于可能的副作用，他们将停止为30岁以下的人接种莫德纳中共病毒疫苗。
 
-在德克萨斯州，共和党州长格雷格·阿伯特10月11日发布行政命令，禁止包括私人雇主在内的任何实体强制使用新冠病毒疫苗，波音公司宣布他们的强制令不立即适用于该州的工厂。蝴蝶效应将传遍美国各地，德州和佛州发起的法律诉讼，也为其他地区反抗的人们提供了参考。
+这是个大新闻。
 
-我们相信，随着疫苗真相的不断被揭露，民众自由权利意识的不断觉醒，为自由争取权力的人们将很快取得最后的胜利。
+这两个国家看到了足够的证据来禁止年轻人接种疫苗。
 
-文字版原文：[波音公司工人抗议疫苗强制令](https://gnews.org/zh-hans/1599776/)
+10天前，辉瑞公司向FDA申请批准5至11岁儿童的疫苗。
 
-音频处理：喜山必胜Maverick
+根据疫苗不良事件报告系统（VAERS，Vaccine Adverse Event Reporting System）追踪网站的数据，在美国，有4,144名美国人死于莫德纳中共病毒疫苗接种，11,346人死于辉瑞疫苗接种。
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+《审查员》（The Examiner）报告：
+
+美国食品和药物管理局（FDA）周五（10月15日）宣布，推迟对青少年接种莫德纳疫苗的决定，理由是担心该疫苗可能导致罕见心脏病风险的增加。
+
+据《华尔街日报》报道，美国食品和药物管理局（FDA）尚未确定青少年的风险是否更高，但该机构正计划在延长疫苗合格期之前进一步审查数据。
+
+莫德纳首席医疗官保罗·伯顿（Paul Burton）对媒体说：“我认为人们可以放心，使用mRNA疫苗的心肌炎风险很低，不同产品之间各有利弊。”
+
+（全文完）
+
+FDA似乎在疫苗审批方面一直显得比较慎重，即使前一阵主流媒体、各大公司铺天盖地地喧嚷辉瑞疫苗获得了批准，为政府实施强制疫苗政策造势。约翰逊参议员及时揭穿过炒作、撒谎的阴谋，指出FDA只是延期了辉瑞疫苗紧急授权的使用。FDA不出来澄清、否定阴谋集团假新闻的炒作，反映了邪恶力量对美国主管机构一定程度的操控。FDA此次推迟莫德纳疫苗，说明邪恶的操控又一次受阻，说明正义力量一直在抗争并取得成果。
+
+只有抗争，站出来说不，揭露邪恶，邪恶才会退缩，坚持才能打败邪恶势力。战友们加油！
+
+（文章仅代表作者个人观点）
+
+原文链接：
+
+[https://www.thegatewaypundit.com/2021/10/shock-fda-delays-moderna-vax-adolescents-citing-consern-myocarditis-risk-children/](https://www.thegatewaypundit.com/2021/10/shock-fda-delays-moderna-vax-adolescents-citing-consern-myocarditis-risk-children/)
