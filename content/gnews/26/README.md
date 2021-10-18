@@ -2,49 +2,39 @@
 ---
 
 
-## 郭文贵直播摘要和音频 2021.10.17
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1602045/)
+## 拜登政府因疫苗强制令面临大规模集体诉讼
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1602078/)
 
-摘要撰稿人： 文俊
+作者：雪梨
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月15日，包括海豹突击队、陆军特种部队和海军、空军军官、联邦雇员和联邦文职承包商在内的24名原告，于美国佛罗里达州中区法院，正式对拜登政府提起诉讼，要求法院发布临时限制令，暂停强制接种疫苗，并最终发布禁令，阻止五角大楼继续执行该行政命令。
 
-音频提供者： 左媛
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-18.jpeg)
 
+国防部长劳埃德·奥斯汀、国土安全部长亚历杭德罗·马约卡斯和拜登总统均被列为被告。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-18-at-11.23.22-AM.png)
+目前上市使用的三种疫苗，均通过流产胎儿干细胞开发而来，仅从该点出发，宗教人士有权获得豁免。但实际上大部分原告仍遭到被解雇、诉诸军事法庭或惩罚的威胁。这一做法严重侵犯了宪法第一修正案赋予公民宗教自由的权利。
 
+此外，新冠疫苗根本没有通过批准，仅得到市场紧急使用，人们有拒绝接种的自由和权利。
 
-### 视频：
+两个月前，两名美军士兵已将国防部官员诉诸法院。随着限期临近，觉醒的美国军人纷纷拿起法律的武器，坚决捍卫自己的权利。
 
-[视频链接](https://gtv.org/video/id=616c1823304e992109b65281)
+随着疫苗真相的大力传播，民众逐渐觉醒，政府和联邦卫生机构面临更多的质疑和指控，同时，诉讼也将朝着有利于原告期望的方向推进。
 
-### 音频：
+(本文仅代表作者观点)
 
-### 摘要：
+参考链接：[Biden, Pentagon Face Massive Class-Action Lawsuit Over Vaccine Mandate on Federal Employees and Military Members](https://www.thegatewaypundit.com/2021/10/biden-pentagon-face-massive-class-action-lawsuit-vaccine-mandate-federal-employees-military-members/)
 
-1. 香港深水湾 赤柱军方4个IP地址 发了100多条信息 诋毁青蒿素
-2. 欧洲科学家：青蒿素主要疏通血管和清理你身体里不该存在的东西
-3. 青蒿素广泛使用在中共空军和潜水艇部队
-4. 习做梦没想到包括军队等十几波人想干掉他
-5. 2021年3 月江志诚在新加坡被抓包括双胞胎孩子和女友
-6. 刘彦平岳父被抓时监狱自杀，两星期后女儿自杀
-7. 日本房价涨幅最大 主要是大陆和台湾买家
-8. 到日本中纪委战友是跟习直接对话 这位战友告诉郭先生 青蒿素是中国的秘密下一个要抓的就是杨洁篪
-9. 倪坚代持资产就迪拜就代持了一万多套房子
-10. 平安 佣金占20% 烂账超过50% 你说中国的经济能好吗？
-11. 合生创展、富力、融创、大连万达、碧桂园都是假贷款、假账
-12. 江家 王岐山 韩正下令孙立军做掉郭先生
-13. 专家科学家被江家干掉（暗指马航）
-14. 相信七哥而卖掉房子的人 大概有百万到千万人
-15. 到日本中纪委妻子亲眼目睹 香港孩子被杀 、被鸡奸、被奸
-16. 郭广昌相信疫苗 给家人打三针高纯度疫苗
-17. CCP控制香港4大家族，所有人海外100年的钱全部吐出来
-18. 谭咏麟、曾志伟虐童 玩变态
-19. 孙力军叫所有香港明星集体看各自小视频
-20. 李嘉诚60%是代持江家 要卖掉长江、和黄
-21. 李嘉诚也换了2-3次 活摘人的肾
-22. 中共活摘西藏人器官成功率只有20分之一 也就是杀20个人才能成功一个
-23. 崔永元几次要被做掉，共产党最恐惧 班农 、 皮特纳瓦罗 、 彭培奥
-24. 不打核战，100%消灭共产党，美国3分钟，日本5分钟
-25. 未来核电 干细胞 太空科技，这些改变就会在未来3-5年发生
-26. 李磊石（音）家人过两天可能出来爆料马航的事
-27. 星期三 直播
+新闻访谈终审：暗黑
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+校对/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

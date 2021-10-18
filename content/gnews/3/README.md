@@ -2,17 +2,41 @@
 ---
 
 
-## 南非药管局称俄疫苗有艾滋病毒风险
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1602397/)
+## 因遭到工会反对，美国伊利诺伊州延长疫苗接种命令期限
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1602425/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10183.jpg)图片来自网络
-南非药品管理局宣布拒绝接种俄罗斯人造卫星五号疫苗，因为它会增加男性感染艾滋病毒的风险。该国目前只有四分之一的人口接种了冠状病毒疫苗。
+作者：纽约香草山农场 – 四季
 
-但是俄罗斯开发疫苗的中心 Gamaleya 表示，它将提供证据证明南非的担忧完全没有根据，他说，有关 HIV 高危人群的研究结果只是基于小规模研究。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-免责申明：本文只代表译者观点，与Gnews无关
 
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/10/18/agenzia-farmaco-sudafricana-sputnik-aumenta-rischio-hiv\_483404e2-dd00-42ee-83cb-26b8be904cbf.html](https://www.ansa.it/sito/notizie/topnews/2021/10/18/agenzia-farmaco-sudafricana-sputnik-aumenta-rischio-hiv_483404e2-dd00-42ee-83cb-26b8be904cbf.html)
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+
+
+据[网关专家](https://www.thegatewaypundit.com/2021/10/il-governor-pritzker-extends-covid-vaccine-mandate-til-end-november-unions-revolt/)10月18日报道，因为工会反对，伊利诺伊州州长普里茨克将退伍军人之家、监狱和其他聚集设施的员工强制接种COVID疫苗的任务推迟至11月底。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1235-1-IMG_0948-600x425-1.jpg)图片来源：网关专家
+
+伊利诺伊州州长普里茨克在8月份，为他所要求的州政府工作人员接种疫苗设定了10月4日的最后期限，他在周五表示，员工在11月30日之前必须完全接种疫苗。这些工作人员受雇于惩教署、退伍军人事务部、人类服务部和少年司法部。
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

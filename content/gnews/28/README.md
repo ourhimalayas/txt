@@ -2,21 +2,33 @@
 ---
 
 
-## 因面临集体诉讼美国防部疫苗接种授权恐难被执行
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1602025/)
+## 迈阿密学校要求学生暂不接种新冠疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1602067/)
 
-采编：风云小哥   撰稿：文明(添草灭共)
+作者：飞虹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+佛罗里达州迈阿密的森特纳学院，致信给学生家长，建议家长对给孩子接种一事慎重考虑；同时要求，每次接种疫苗的学生都必须在家隔离30天。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/wj.jpg)
-图片来源：NTD
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide8-5.jpeg)
 
+森特纳学院首席运营官在近日发给学生家长的一封信中说：“如果您正在考虑为您的学生接种疫苗，请您推迟到来年夏季，这将减少潜在的传播或传染给他人。”这封信同时还为仍然选择给孩子接种疫苗的父母制定了隔离规定。“由于对其他学生和我们学校社区的潜在影响，接种疫苗的学生在每次接种疫苗和增强剂后需要在家呆30天，只要学生健康且无症状，30天后可以返回学校。”
 
-据美国媒体《新唐人》10月17日报道，来自美军五个军种的军人、联邦雇员和联邦文职承包商的多名人士，针对【国防部新冠病毒疫苗接种规定】进行了集体诉讼：原告提出的【疫苗接种宗教豁免】请求被当局拒绝，并且因寻求该豁免而遭到不光彩退伍、军事法庭起诉、解雇及其他方面的“威胁”。 
+早在4月份，森特纳学院就表示，4月22日之后接种疫苗的员工将不被允许返回学院工作，尽管后来决定接种疫苗的教师和员工不会被解雇，但也不允许他们与学生一起工作。原因就是校方担心这些仍然处于试验性状态的疫苗的副作用，接种者会感染未接种者。
 
-该诉状已提交至佛罗里达州中区地方法院，并将总统乔-拜登、国防部长劳埃德-奥斯汀和国土安全部长亚历杭德罗-马约卡斯等列为被告。要求法院发布临时限制令以阻止该疫苗接种授权的生效，并最终颁布禁令，阻止国防部执行拜登政府的该疫苗接种授权。
+在这封致家长信中，校方表示他们对“实验性疫苗”的担忧没有改变，他们尊重每个人的选择，但也需要关注整个学校社区。
 
-（以上内容仅代表原文信息和作者个人观点）
+(本文仅代表作者观点)
 
-编辑，校对，发稿：硫酸羟氯喹64
+参考链接：[Miami private school to require students getting COVID vaccine to stay home for 30 days after each dose](https://wsvn.com/news/local/miami-private-school-to-require-students-getting-covid-vaccine-to-stay-home-for-30-days-after-each-dose/)
 
-[原文链接：](https://www.ntd.com/pentagon-faces-class-action-lawsuit-over-vaccine-mandates-on-military-federal-employees-and-contractors_689876.html)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
