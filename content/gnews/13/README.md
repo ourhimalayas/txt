@@ -2,19 +2,36 @@
 ---
 
 
-## 突发：福特对卫生工作者的强制性疫苗感兴趣，向医院首席执行官寻求建议
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1600914/)
+## 报应来得快，中共开始对香港富豪开刀
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1600934/)
 
-采编：文莱     编译撰写：苦尽甜来 (文來）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/doug-ford.jpg)
-[图片来源：](https://www.tvo.org/article/the-vaccine-passport-is-a-win-for-doug-ford-lets-hope-it-doesnt-go-to-his-head)
+作者：纽约香草山健身部 – Jack Li文阳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+文贵先生在10月17日大直播中爆料：中共为了挽救其濒临破产的经济，正在对香港的四大家族下手。严令他们还回手里所有的地，还要把在大陆挣的钱拿回来，才能保其不死。中共威胁：无论他们跑到外国哪里，共产党都能把他们抓回来。对于房地产商、律师、金融届、黑社会，这些人都得把钱拿回来，中共要他们把100年挣的钱都吐出来。中共堂而皇之的以疫情的理由对相关人士实施边控，变相绑架香港富豪及其家人，使其不能随便出入边境逃跑。如有不从者，冠状病毒死亡就是其下场。
 
-据加拿大《多伦多太阳报》10月15日报道，尽管此前安大略省长道格·福特表示不希望任何人被强迫接种其不想接受的疫苗。但他当天仍向省级医院管理部门咨询是否有必要对该省医疗卫生系统人员强制接种新冠病毒疫苗，以及该措施是否会对人员配备产生严重影响。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-316.png)图片来源：Jack Li文阳
 
-最近，魁北克宣布把针对该省所有医护人员的强制疫苗接种截止日期从 10 月 15 日推迟到 11 月 15 日。统计数据显示，如果按原定日期执行该措施，由于大量医护人员宁愿选择辞职，也拒绝接种该疫苗，因此魁省各医院将有 600 多张病床因缺乏医护工作者而无法被使用。
+香港民众2019年轰轰烈烈的反送中运动，反独裁、保民主、争自由。当时，面对港人的前赴后继，不畏牺牲，一众香港富豪无耻的为中共站台，支持中共疯狂打压市民的民主运动。其实，香港的百年高速发展正是得益于民主自由的政治体制，因此得到国际社会对自由贸易港的承认，这些富豪也是因此挣得盘满钵满，富得流油。
 
-安省的下届省长选举将于明年6月2日或之前进行。在该省大选开始之前，福特这种对该疫苗接种政策的模棱两可态度，很可能是基于其个人政治目的而不得已为之。希望随着更多疫苗危害真相被逐渐揭露，他能及时做出明智的选择。
+中共粗暴的撕毁一国两制，垂涎的正是香港辉煌的财富，而香港绝大部分的财富其实是掌握在少数人的手中。勇敢的香港人誓死保卫的除了自己狭小的蜗居和一份辛苦的工作，其实更多的是保卫这些无良奸商的财富和营商环境。可这帮不要脸的商人，泯灭良心，出卖港人投靠中共。
 
-校对，编辑：硫酸羟氯喹64
+中共这个天下第一绞肉机，一旦控制住香港，一定会开动绞肉程序。香港的肉都在富豪的身上，其结局可想而知。当下中共四面楚歌，国内经济每况日下，地产庞氏骗局已经玩不下去了，世上最大的经济泡沫爆破在即。因此，中共迫不及待对香港下手，香港富豪两三代人的百年财富很快要改名换姓了。另一方面，中共倒台也指日可待。到时，这些财富，自然会回归到香港人手中。
 
-[相关链接](https://thepostmillennial.com/breaking-ford-interested-in-mandatory-vaccines-for-health-workers-asks-hospital-ceos-for-advise)
+**本文谨代表作者观点**
+
+![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
+
+**校对/发稿：童谣**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
