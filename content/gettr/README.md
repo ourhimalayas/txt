@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/18/2021 7:17 AM (UTC)`
+
+17/10/2021 Miles Guo： Tu Youyou believes that Artemisinin can cure the most common diseases like AIDS, cancer, diabetes etc. It can potentially change humankind’s fate!<br/><br/>17/10/2021 文贵直播： 屠呦呦相信青蒿素一定会把艾滋病、癌症以及糖尿病等人类最常见的病都解决了。这个药很可能会改变人类的命运！
+![img](https://media.gettr.com/group14/getter/2021/10/18/07/17/bdf52275-be97-9b08-99f7-ee23f3f1585a/out.jpg)
+
+---
+
 `@miles 10/18/2021 2:42 AM (UTC)`
 
 10/17/2021 Miles Guo: The CCP kleptocrats should be given fair trials with due process rather than have their family abducted or tortured; When the Chinese private entrepreneurs and military personnel were being arrested, so many of them committed suicides, including Liu Yanping’s family members<br/><br/>10/17/2021 文贵直播：中共盗国贼应当经过正当的司法程序审判，而不应该绑架和折磨他们的家人；在抓捕国内私人企业家和军人的过程中，有大量人自杀，包括刘彦平的家人
@@ -294,12 +301,6 @@ Henry Reitzug博士：在注射带有被改造氨基酸的新冠mRNA疫苗进入
 
 1013号：晚了……太晚了<br/>盗囯贼……盗国贼．盗国贼……<br/>【一行三会+四大行+沪深二大交易所……<br/>这是要干嘛的呢？😎】
 ![img](https://media.gettr.com/group47/getter/2021/10/13/18/01/ca6cb0f2-670d-6a6c-0f0f-ea18994e0802/5de9cde263324a6ad12cbe9d39524627.jpg)
-
----
-
-`@miles 10/13/2021 4:48 PM (UTC)`
-
-10月13号：我们中国人连这个老狮子的待遇都混不上……如果你老在中国……想自己挖个坑把自己埋了，永远不可能。中国人太可怜了，太可悲了。
 
 ---
 
