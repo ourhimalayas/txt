@@ -2,35 +2,51 @@
 ---
 
 
-## 文贵大直播爆江志成3月已被抓
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1600668/)
+## 前国务卿迈克·蓬佩奥：中国共产党正在进行大规模颠覆美国的行动
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1600752/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+比尔·格茨: 前国务卿迈克·蓬佩奥说，[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 正在进行大规模颠覆美国的行动. 【附华盛顿时报的相关文章：[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在美国国内进行声势浩大的影响力和情报行动，目标是拿下联邦、州和地方政府。】
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/G-5.jpg)俄罗斯莫斯科喀秋莎农场  女农
-文贵先生今天（10月17日）的大直播爆了很多猛料。一位逃出中共魔掌的前中纪委战友直接负责江志成专案，刚刚逃到日本。文贵先生听他介绍，孙力军去武汉是进行“除习”部署。习近平得到了湖北军区、上海警备区的报告，在怀疑中进行了核实，一个月后，抓捕了孙力军，并在去年4.19爆料革命断播3周年之际官方作了宣布，“2020年4月19日，中央纪委国家监委网站宣布，孙力军涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查”【2】。
 
-文贵先生继续透露，孙力军被捕后，江派成员也被监控、边控、约谈，但开始他们很顽固，拒不交代。半年后，孙力军扛不住了，开始交代问题，交代出江志成是马云的背后老板，马云为江志成等利益集团代持……由此可以看出，是孙力军供出了江志成，导致2021年3月底江志成从新加坡被抓捕，江志成国外的住所均遭查抄……
 
-孙力军是孟建柱的死党。孟建柱靠攀附江二世（江绵恒，江泽民长子），获一路提拔，成为“刀把子”公检法的掌控人，十八大差点入常，或成为“监国”角色（十八大政治局常委减为7人，规定政法委书记不入常）。因此，江绵恒、孟建柱、江三世（江志成，江绵恒之子）系“江派”的核心成员（应该也包括“铁帽子王”曾庆红等人），孙力军等则是执行者。
+> China’s Communist Party is carrying out large scale operations to subvert the United States, former Secretary of State Mike Pompeo says [https://t.co/2n6oXmkGjc](https://t.co/2n6oXmkGjc)
+> — Bill Gertz (@BillGertz) [October 17, 2021](https://twitter.com/BillGertz/status/1449861325732020225?ref_src=twsrc%5Etfw)
 
-孙力军可谓是为江家两肋插刀，也是不得已，坏事已经做尽，江家若倒台，他也休想逃脱法网，从这个角度出发，他与江、曾、孟、王有同样的除习需求。
 
-当初试图遣返文贵先生的阴谋挫败后，孙力军在江志成等人指使下，成立了专门的“灭爆小组”，不惜动用倾国之力，陷害、打击爆料革命。文贵先生丝毫不惧，越战越勇，眼见文贵先生引领的新中国联邦越做越大，一再兑现不成的孙力军，遭到了帮主们的斥责，“……就你这样还想作常务副部长……还想当部长……”在江派“南普陀计划”实施遇到阻碍，即习神不打算让位的情况下，“作掉习”便成为江派的选择。“武汉害习“或许是孙力军向主子们证明自己能力的机会。
 
-回顾一下孙力军赴武汉的报道，“2020年3月7日从公安部获悉，正在武汉指导疫情防控工作的中央指导组成员、公安部党委委员、副部长孙力军作为乐翥、朱新年的入党介绍人，参加了宣誓仪式【1】。”
+众议员迈克·沃尔茨： 美国需要意识到 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在与我们进行军备竞赛……而我们正在失败。 【转金融时报记者推文：独家新闻 – [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 测试了具有核能力的高超音速导弹，该导弹通过太空低轨道飞行，在加速飞向目标之前绕地球一周，让美国情报部门和军事官员感到震惊。】
 
-写到这里，不由得想起文贵先生曾经的一段大义凛然、气贯长虹、不畏邪恶的视频，那是在“灭爆小组”最猖狂的时刻，文贵先生在屏前以蔑视的口吻，对江志成喊话，“……你小子想学你爷爷……就你那点水平……咱们走着瞧……”
 
-江志成的被抓必将引发江、习等各派更加严重的内斗。笔者并不认为王岐山属于江派，作为十八大各方“勾兑、平衡”而入常的角色，王在担任中纪委书记后，助习排除异己、坐稳位置的同时，巩固、发展、壮大了自己的势力，形成了“王派”，与江派有共同利益时，他们会合作。在习触犯到了王，王派与江派联合对抗习派也在情理之中。
 
-因此，文贵先生明确指出，新中国联邦不会在意江志成被抓、王岐山被监控、孟建柱被规等，而是要铲除中共这个恶魔体制，体制在，还会营造出“王志成”、“江岐山”、“江建柱”等。我们必须消灭中共这个体系，建立真正能为人民带来幸福、安康、快乐生活的制度。
+> America needs to realize that the CCP is in an arms race with us….and we are losing. [https://t.co/i2XV1YNj2t](https://t.co/i2XV1YNj2t)
+> — Rep. Mike Waltz (@michaelgwaltz) [October 16, 2021](https://twitter.com/michaelgwaltz/status/1449473392344813571?ref_src=twsrc%5Etfw)
 
-（文章仅代表作者个人观点）
 
-参考链接：
 
-【1】[http://legal.people.com.cn/n1/2020/0307/c42510-31621423.html](http://legal.people.com.cn/n1/2020/0307/c42510-31621423.html)
+前白宫经济顾问彼得·纳瓦罗: 解雇蝠奇(Fire Fauci Video) 视频广告将于下周在 John Fredericks 的广播节目和班农作战室(War Room)首次亮相。 这里让你先睹为快。 让中共全额赔偿！！ 你认为怎样？ 在我的新书《川普时代》(In Trump Time) 中阅读有关福奇的真相。 购书网址为 bit./InTrumpTimeTQuote Tweet
 
-【2】[https://www.ccdi.gov.cn/toutiao/202004/t20200419\_215644.html](https://www.ccdi.gov.cn/toutiao/202004/t20200419_215644.html)
+
+
+> Fire Fauci Video ad debuts on John Fredericks and War Room next week. Here's your sneak peek. FULL REPARATIONS FROM CCP!!
+> What do you think?
+> 
+> Read the truth about Fauci in my new book In Trump Time on Amazon at [https://t.co/KPNUX2SBsy](https://t.co/KPNUX2SBsy) [pic.twitter.com/EKmsC9FdcY](https://t.co/EKmsC9FdcY)
+> — Peter Navarro (@RealPNavarro) [October 16, 2021](https://twitter.com/RealPNavarro/status/1449460176751321093?ref_src=twsrc%5Etfw)
+
+
+
+众议员吉姆·班克斯： 关于达美航空公司[@Delta](https://twitter.com/Delta) 正在摒弃对其员工滥用和违宪的拜登疫苗强制的重大新闻。希望会有更多的公司跟进。 很快，许多公司就会意识到他们别无选择。倒闭或站在让你保持在空中飞翔的员工们一边！
+
+
+
+> Big news that [@Delta](https://twitter.com/Delta?ref_src=twsrc%5Etfw) is ditching the abusive and unconstitutional Biden vaccine mandate on its employees. Hopefully many more companies will follow. Soon many will realize they don’t have a choice. Go out of business or be on the side of your employees who keep you in the air!
+> — Jim Banks (@RepJimBanks) [October 16, 2021](https://twitter.com/RepJimBanks/status/1449419828574531591?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 正在扩大其军队以欺负和威胁 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 的主权。 美国必须支持民主，反对 [#共产主义](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89?src=hashtag_click)。
+
+
+
+> Communist China is expanding its military to bully and threaten Taiwan’s sovereignty. The United States must stand for democracy and against communism.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [October 15, 2021](https://twitter.com/MarshaBlackburn/status/1449085783625932805?ref_src=twsrc%5Etfw)

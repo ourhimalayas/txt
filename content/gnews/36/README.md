@@ -2,25 +2,32 @@
 ---
 
 
-## 随着严格的“绿色通行证”规则生效，意大利多地举行抗议
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1600256/)
+## Brnovich:要求司法部调查脸书推动美墨边界危机
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1600292/)
 
-撰稿：西枫westca
+**编译：wenwu**
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unnamed-9.jpg)图片来源：保罗·乔瓦尼尼/环保局
-据多家外媒报道，意大利政府执意决定任何在公共部门或私营企业工作人员都必须持有带有二维码的“绿色通行证”才能进入工作场所的政策在10月15日实行。未能出示证明者面临被宣布无薪缺勤。由此引发了意大利全国的抗议活动，要求当局放弃进入室内公共场所的“绿色通行证”要求。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-313.png)
 
-10月15日抗议首先在意大利的港口城市的里雅斯特（Trieste）开始，约6000人以上的港口工人聚集在港口。其港口工人中，只有40%接种了疫苗。的里雅斯特港口为意大利北部、德国、奥地利和中欧提供服务。抗议中，可以看到写着“公民不是傀儡”， “没有绿色通行证，没有歧视”等横幅。59岁的里雅斯特港口工人法比奥·博辛告诉路透社，‘绿通行证是件坏事，是法律规定的歧视。这不是卫生条例，而只是制造人与人之间的分裂的政治举动。”其他港口热那亚（Genoa）、安科纳（Ancona）的人们也中断工作参加了抗议，他们在港口静坐，阻止交通进入港口。 据估计，约有300万意大利工人仍未接种疫苗。新规定下的一个大问题是如何解决大量外国卡车司机为港口提供服务并跨越边境运输货物。因为外籍劳工中有许多人接种了未经欧洲或意大利药品管理局认可的疫苗。此外，由于有大量来自东欧的外籍农工，意大利农业也会面临困境。
+亚利桑那州总检察长马克·布尔诺维奇 (Mark Brnovich) 表示，司法部必须调查脸书（Facebook）在美国边境鼓励违法的行为。
 
-同天在意大利的许多大城市也发生了抗议活动。人民涌上罗马、博洛尼亚、佛罗伦萨、都灵等城市，抗议政府的决策。
+Brnovich  于周四（15日）[致信](https://www.scribd.com/document/532520112/10-14-Brnovich-Letter-to-Garland#download&amp;from_embed)司法部长梅里克·加兰（Merrick Garland），解释了 Facebook 是如何允许宣传非法进入美国的帖子；此外，Brnovich 还表示，Facebook 甚至还提供有关如何成功非法越境的指导说明。
 
-已有证据表明，早在2020年3月，中共大外宣在海外进行大肆宣传，推动全球各国实施类似武汉的封城措施，使经济停摆。意大利则是第一个加入这种措施的国家。今年意大利是最早推行疫苗护照的国家之一， 7月时，博物馆、餐厅、电影院等已开始限制无疫苗护照的人进入。
+Brnovich  说，社交媒体推动这种行动无疑破坏了法治和边境安全。
 
-疫苗护照限制了人的基本活动权利，违反人权宪章。在疫苗的真相越来越多被揭露时，全球各地的越来越多各行各业的人加入质疑的行列，疫苗护照究竟还能走多远？
+“Facebook 允许宣传人口贩卖和非法进入美国的帖子可以经常接触该平台的数十亿用户，说明该公司的经营政策严重破坏了法治，”Brnovich  在给加兰的信中说（如下图[推特所示](https://twitter.com/GeneralBrnovich/status/1448773704075280388?s=20)）。“Facebook 公司是直接的法治破坏推动者，因此加剧了发生在亚利桑那州南部边境的灾难。”
 
-**新闻来源：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-315.png)
 
-**[https://www.thegatewaypundit.com/2021/10/italians-protest-government-mandated-requirement-taken-vaccine-eligible-work/](https://www.thegatewaypundit.com/2021/10/italians-protest-government-mandated-requirement-taken-vaccine-eligible-work/)**
+在此之前，这家科技巨头声称可以向移民提供信息，可以减少他们被人口贩卖者和贩毒集团利用。Facebook 表示，该公司政策的制定“是为了确保我们禁止与人口贩卖业务有关的内容，但不干涉人们行使寻求庇护的权利，这是国际法所承认的”（脸书或成为了犯罪分子不可或缺的一环、或直接参与了犯罪行为）。
 
-** [https://www.bbc.com/news/world-europe-58913865](https://www.bbc.com/news/world-europe-58913865)**
+Brnovich 说， Facebook 是乔·拜登边境危机的直接推动者和促成者。他已经要求进行联邦调查。
+
+（文章仅代表作者观点与GNEWS无关）
+
+新闻来源：[ajuede.com](https://www.ajuede.com/2021/10/ariz-attorney-general-brnovich-doj-must.html) |发布时间：2021年10月15日
+
+* * *
+
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
