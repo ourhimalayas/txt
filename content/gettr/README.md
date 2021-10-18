@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/18/2021 3:24 PM (UTC)`
+
+10月18日：愿战友们一定谨遵医嘱用药，从目前的情况看，国内的青蒿素的质量和国外的青蒿素的质量差距很大，青蒿素和青蒿素哌奎片一定要分清楚。【我已得到不少战友要求咨询，多是关于国内家人用青蒿素哌喹解疫苗毒而至高热的主诉。问下来，似乎都有先前服用硫酸羟氯奎预防病毒感染的用药史。这两个药均含喹宁成分，不能同时服用。且硫酸羟氯奎的药物半衰期长达52天，就是说要等停用羟氯奎20来天后，才能开始青蒿素哌喹的解毒疗程。这是我根据这两种药的药物代谢动力学做出的逻辑推断，尚无实验数据证明该论点。】
+![img](https://media.gettr.com/group6/getter/2021/10/18/15/08a6141a-846b-0195-64b7-35cc29ca57be/45e5c4bd449354aa91681aa2bc9046cb.jpg)
+
+---
+
 `@miles 10/18/2021 2:47 PM (UTC)`
 
 10月18号：神秘的世界不．神秘的人类，神秘的宇宙，有着无穷无尽的我们未知的力量，这事预义太大了👍👍👍👍👍👍👍👍
@@ -291,15 +298,6 @@ Henry Reitzug博士：在注射带有被改造氨基酸的新冠mRNA疫苗进入
 ![img](https://media.gettr.com/group12/origin/2021/10/13/22/01/ae18413d-b885-1684-9793-5c92e53ee097/out.jpg)
 > `@miles 10/12/2021 10:19 AM (UTC)`<br/>Henry Reitzug博士强烈建议所有人都不要接种疫苗，而是寻求其他治疗方案，主流媒体或政治家说“遵循科学”的意思是“遵照我的意思”，这通常是有政治动机的，他们从一开始的口号就是“没有治疗手段，我们需要疫苗”，这违背了医学界的普遍方法，这是虚假且不合理的，新冠病毒没有治疗方法的说法也是绝对不正确的。（评：新冠溯源都未确定，不探究方法，而新冠疫苗这么快就问世了，这太荒唐了！）<br/><br/>Dr. Henry Reitzug strongly advises anyone not to get vaccinated, but to seek alternative treatments for the coronavirus. Mainstream media or politicians say "follow the science" means "follow my way ", which is usually politically motivated. Their initial mantra was "there is no treatment, we need a vaccine." This violates the approach generally in medicine, is false and unreasonable, and the claim that there is no treatment is absolutely not true. (Comment: The COVID-19 origin tracing has not been determined, while the COVID-19 vaccines came out so soon, which is ridiculous.)
 ![img](https://media.gettr.com/group34/origin/2021/10/12/10/19/809240c7-ead9-b0dd-0a76-302ca7c91623/out.jpg)
-
----
-
-`@miles 10/13/2021 6:34 PM (UTC)`
-
-皮特·纳瓦罗向机械师协会、NFL 和NBA的运动员协会呼吁：现在是时候为你们所代表的群体站出来抵制强制疫苗了，不要做那些将NBA、NFL和航空公司的利益置于球员和飞行员之上的老板们的奴隶了。<br/><br/>Peter Navarro appealed to the Associations of the Machinist, the NFL and the NBA: It’s time to stand up for the people you represent to resist mandatory vaccines. Don't be the peons and peasants of the Masters in the corporations that put players and pilots behind profits in the NBA, the NFL and these airline industries.
-![img](https://media.gettr.com/group23/origin/2021/10/13/18/34/392aaae7-0d9a-b715-24a2-7b9cd2e88e8b/out.jpg)
-> `@globalhimalaya 10/13/2021 12:48 AM (UTC)`<br/>Sources: VAXXED Delta Pilot DIES IN-FLIGHT, Emergency Landing Required<br/>达美航空（Delta Airlines）一名接种过新冠疫苗的机长在飞行途中死亡！该航班由副驾驶员紧急迫降，达美航空掩盖了这一事件。Jane Ruby博士提供了该爆炸性消息，并得到多个来源的证实
-![img](https://media.gettr.com/group24/origin/2021/10/13/00/48/e5589120-697e-923d-a053-c658cbc7a64f/out.jpg)
 
 ---
 
