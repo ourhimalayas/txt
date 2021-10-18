@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/18/2021 1:03 AM (UTC)`
+
+2021年10月17号，这是去年发出的有关被王岐山和孟建柱．UBS银行和瑞士的这家AMAC公司黑掉了我们基金的飞机的视频，当时被YOUTUBE 删掉了！今天我们再回看这个视频的时候意义重大。接下来我们会在上厕所的时间把这家飞机装修公司的涉嫌恐怖主义洗黑钱和叙利亚的各个恐怖组织联系的证据推出来，让他接受国际上法律的审判。【2018年10月10日：这个来自黎巴嫩的(马黑地)是AMAC飞机装修公司的主席！他与UBS银行孟宏伟．海航一起共同策划了这起骇人听闻的诈骗抢劫案！这是我们十二年的心血．我付出了一亿一千万现金创造的世界上唯一的中式厨房！用碳纤维．莲花的图腾．爱马仕特制皮革．用中国五行风水概念世界级唯一以中国元素的现代空中艺术品！我会专门直播详细介绍盗国贼是如何操纵这一切的！】
+![img](https://media.gettr.com/group8/getter/2021/10/18/01/03/405202fc-6d3b-857e-b9c2-fedcc09c64ab/out.jpg)
+
+---
+
 `@miles 10/18/2021 12:43 AM (UTC)`
 
 10/17/2021 Miles Guo: Revisit the CCP’s real estate sector - Just Ping An alone, it took way over RMB 9 trillion; Peter Ma (Mingzhe) became the No. 1 godfather in the Communist China via bribery; The CCP’s economy is really a mess, and even the CCDI or the special investigation team has no idea about the actual amount of money involved<br/><br/>10/17/2021文贵直播：再谈中共国房地产 - 仅平安就干掉了9万多亿人民币，马明哲通过行贿成为中共国的大瓢把子；中共烂账真的是一笔糊涂账，连中纪委、专案组对真实数字都毫无概念<br/>
@@ -49,13 +56,6 @@
 
 October 17, 2021, this is the material sent last year about Wang Qishan and Meng Jianzhu, UBS Bank, and the Swiss AMAC company robbed our Trust fund's aircraft, which Youtube deleted at that time! When we look back to this video today, it means so much. We'll present evidence that this aircraft renovation company's alleged terrorist money laundering links to various terrorist groups in Syria during our bathroom breaks and bring it to trial under international law【October 10, 2020, this is the chairman of AMAC aircraft renovation company from Lebanon, together with Meng Hongwei, UBS bank, and HNA; he planned this appalling scam and robbery! This is our 12 years' work to build this one of a kind aircraft, and I paid $110 million on this project…】
 ![img](https://media.gettr.com/group13/getter/2021/10/17/19/05/a217148e-5b98-a3fa-dac8-0b58a77174e4/9fcd81d957ac5e60bd269f901d205b1d.jpg)
-
----
-
-`@miles 10/17/2021 6:25 PM (UTC)`
-
-2021年10月17号，这是去年发出的有关被王岐山和孟建柱．UBS银行和瑞士的这家AMAC公司黑掉了我们基金的飞机的视频，当时被YOUTUBE 删掉了！今天我们再回看这个视频的时候意义重大。接下来我们会在上厕所的时间把这家飞机装修公司的涉嫌恐怖主义洗黑钱和叙利亚的各个恐怖组织联系的证据推出来，让他接受国际上法律的审判。【2020年10月10日：这个来自黎巴嫩的(马黑地)是AMAC飞机装修公司的主席！他与UBS银行孟宏伟．海航一起共同策划了这起骇人听闻的诈骗抢劫案！这是我们十二年的心血．对我付出了一亿一千万现金创造的世界上唯一常中式厨房！用碳纤维．莲花的图腾．爱马仕特制皮革．用中国五行风水概念世界级唯一以中国元素的现代空中艺术品！我会专门直播详细介绍盗国贼是如何操纵这一切的！】
-![img](https://media.gettr.com/group19/getter/2021/10/17/18/25/4c9fcda9-5a77-e189-2c45-b9da193d18b4/out.jpg)
 
 ---
 
