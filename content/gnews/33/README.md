@@ -2,42 +2,45 @@
 ---
 
 
-## 澳洲版疫苗护照&#8211;全球首创国际旅行证书于周二推出
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1601490/)
+## 法官暂时阻止对加州监狱工作人员的强制疫苗要求
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1601507/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1d9209144d0db1f4e1318687c5cbdf42.jpg)图片来源：abc.net.au
-#### 编译：小红帽
+作者：文真
 
-澳大利亚联邦政府表示，国际旅行疫苗证书将于周二面世。该证书将提供中共病毒疫苗（COVID-19）状态的国际证明。这可能是世界首创的。
 
-此前，澳大利亚总理在10月初宣布，将从11月初开始放宽对完全接种中共病毒疫苗的澳大利亚人的国际旅行限制。
 
-然而，到目前为止，新南威尔士州是唯一一个决定从11月1日起，终止对悉尼入境的人采取隔离措施的州。其他州需要达到超过80% 的两剂疫苗接种覆盖率才能放宽隔离政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-就业部长斯图尔特·罗伯特（Stuart Robert）周日表示，一些海外国家可能需要澳大利亚人提供他们已完全接种两剂疫苗的证据。
 
-该证明将提供给澳大利亚护照持有人和澳大利亚签证持有人。他们的中共病毒疫苗接种记录会在澳大利亚免疫接种登记册上。
 
-澳大利亚政府部长在一份联合声明中宣布：“国际疫苗接种证明具有安全的二维码，可向世界各地的边境当局证明中共病毒疫苗接种状态，并提高一个人安全、自信地旅行的能力。”
+零对冲10月17日报道，加州克恩县法官巴曼在10月13日发布一项临时限制令，暂时阻止了对加州监狱工作人员的强制疫苗要求。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.3-3.jpg)
+加州的新冠疫苗强制令在10月15日生效。加州治安官员协会，代表全州约两万八千名官员，反对在全州范围内实施强制疫苗措施。在其最初提交法院的文件中说，大范围强制接种疫苗的时间点，与近几个月监狱内以及整个州内，中共病毒感染率大幅下降的现象并不相符。截至9月10日，加州有240名囚犯、39名监狱员工死于中共病毒。但在过去的14天里，只有178个新病例。 因此，法院应抵制强制接种疫苗的要求。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-11.jpg)
+加州囚犯和监狱雇员总共约有五万一千个中共病毒确诊病例。中共病毒病例的大量出现导致许多加州囚犯被加速释放。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-5.jpg)
+参考链接：
+[Judge Temporarily Blocks Vaccine Mandate Requirement For California Prison Workers](https://www.zerohedge.com/covid-19/judge-temporarily-blocks-vaccine-mandate-requirement-tor-california-prison-workers)
 
-它可以以数字或打印形式下载，并且与中共病毒旅行应用程序兼容，例如国际航空运输协会 (IATA) 旅行通行证。
+（本文仅代表作者观点）
 
-部长们表示，国际疫苗接种证明中的可见数字印章技术是世界领先的，与澳大利亚护照一样安全。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-罗伯特先生表示，澳大利亚正在引领潮流。
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
 
-申请人可以通过myGov或Medicare Express应用程序，使用Medicare帐户获得免费的国际旅行证书。
+**更多资讯，更多关注**
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**参考新闻：**[International travel certificates to be available from Tuesday (thenewdaily.com.au)](https://thenewdaily.com.au/news/2021/10/18/international-travel-certificates-to-be-available-from-tuesday/)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-***发布：小红帽***
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

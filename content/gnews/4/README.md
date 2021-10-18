@@ -2,30 +2,21 @@
 ---
 
 
-## 有声|应届大学毕业生发起拒绝加班倡议，爆红中共国互联网
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1601814/)
+## 事态严重，意大利宪兵因无绿色通行证被驱逐出兵营宿舍
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1601846/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据多家媒体今日报道，由4位参加秋招的应届大学毕业生发起的拒绝加班文化、抵制“996”工作模式的网上运动在中共国互联网上爆红。
+#### 翻译/整理        意大利达芬奇农场          小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Schermata-2021-10-18-alle-12.57.54.png)图片来源：今日新闻
+宪兵新工会发布了一条通告，自10月15日起，宪兵高层决定所有在兵营住宿的宪兵， 如果自10月15日起没有绿色通行证将被逐出兵营。
 
-在青年白领占多数的中共国公司中，加班加点或超时工作长期以来就是家常便饭。所谓“996”工作模式，就是每天的上班时间从上午9时至晚间9时，且一周工作6天。
+宪兵司令部命令住在兵营内无绿色通行证的宪兵离开房间， 因为他们住宿的地方等同于工作的地点。这在意大利宪兵历史上是第一次，从未有过一项法令类似这样的要求。
 
-发起人以“打工人也要生活”（Worker Lives Matter）为口号，呼吁在科技公司上班的员工在代码托管服务平台GitHub上一份共享的“公司作息表”上，填写各自服务公司的名称、职位以及每天的工作时间。目前这则在“知乎”网站上的贴文，点击率已达600万人次。
+意大利宪兵新工会将在每一处保护深夜被驱逐出兵营的同事，为他们提供有尊严的解决方式。
 
-截至10月14日上午，已有超过4000人注册并分享了各自的数据。许多在阿里巴巴、百度、腾讯和字节跳动等中共国著名高科技大公司上班的员工，纷纷将自己每天超长时间工作的作息表匿名上传。此外，网民还添加了包括房地产、金融和外资企业的公司作息表。网上已填写的数据显示，很多人每天的工作时间高达10至12小时。而今年8月，中共国最高人民法院刚刚判定，“966”工作模式违法。
+我们从未想到会出现这样的情况。我们要问总理德拉吉：当他颁布法令时，这是否就是他今后规范劳动世界的法令？
 
-“公司作息表”引发对诸多中共国公司习以为常的加班文化的反思与反弹。“996”现象凸显中共国人权受到侵犯的现实。
+原文链接：[https://www.ogginotizie.eu/ogginotizie/grave-larma-dei-carabinieri-caccia-i-suoi-militari-dagli-alloggi-cosa-e-successo/](https://www.ogginotizie.eu/ogginotizie/grave-larma-dei-carabinieri-caccia-i-suoi-militari-dagli-alloggi-cosa-e-successo/)
 
-文字版原文：[应届大学毕业生发起拒绝加班倡议，爆红中共国互联网](https://gnews.org/zh-hans/1598317/)
+免责声明：本文只代表作者观点， 与GNEWS 平台无关
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+责任编辑/发布： Xiao baige

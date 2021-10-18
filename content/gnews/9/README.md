@@ -2,53 +2,30 @@
 ---
 
 
-## 抗议、封锁迎接新的意大利 Covid 规则
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1601754/)
+## 有声|应届大学毕业生发起拒绝加班倡议，爆红中共国互联网
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1601814/)
 
-据《Asia Times》记者ALICE RITCHIE 2021 年 10 月 15 日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2566.png)手机上传递的数字 Covid-19 疫苗接种代码。意大利强制要求所有工人持有 Covid 绿色通行证、疫苗接种证明、阴性测试或从病毒中恢复。照片：法新社 / EyePress 新闻
-周五，抗议者聚集在意大利港口，因为该国准备因新的冠状病毒对工人的要求而发生广泛的破坏。
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+据多家媒体今日报道，由4位参加秋招的应届大学毕业生发起的拒绝加班文化、抵制“996”工作模式的网上运动在中共国互联网上爆红。
 
-大约 300 人封锁了西北部热那亚港口的一个入口，造成延误，这恐怕是封锁和示威活动开始的一天。
+在青年白领占多数的中共国公司中，加班加点或超时工作长期以来就是家常便饭。所谓“996”工作模式，就是每天的上班时间从上午9时至晚间9时，且一周工作6天。
 
-数百人还在东北部主要枢纽的里雅斯特港示威，但地区负责人马西米利亚诺·费德里加坚称“港口正在运作”。
+发起人以“打工人也要生活”（Worker Lives Matter）为口号，呼吁在科技公司上班的员工在代码托管服务平台GitHub上一份共享的“公司作息表”上，填写各自服务公司的名称、职位以及每天的工作时间。目前这则在“知乎”网站上的贴文，点击率已达600万人次。
 
-从周五开始，所有工人都必须出示所谓的绿色通行证，提供疫苗接种证明、最近从 Covid-19 中康复或检测结果呈阴性——否则将面临被宣布无薪缺勤。
+截至10月14日上午，已有超过4000人注册并分享了各自的数据。许多在阿里巴巴、百度、腾讯和字节跳动等中共国著名高科技大公司上班的员工，纷纷将自己每天超长时间工作的作息表匿名上传。此外，网民还添加了包括房地产、金融和外资企业的公司作息表。网上已填写的数据显示，很多人每天的工作时间高达10至12小时。而今年8月，中共国最高人民法院刚刚判定，“966”工作模式违法。
 
-超过 86% 的 12 岁以上意大利人至少接受过一针疫苗，因此自动有资格获得认。
+“公司作息表”引发对诸多中共国公司习以为常的加班文化的反思与反弹。“996”现象凸显中共国人权受到侵犯的现实。
 
-但据估计，多达 300万工人没有接种疫苗——大多数人只有在每 48 小时或 72 小时支付自己的检测费用后才能工作，具体取决于类型。
+文字版原文：[应届大学毕业生发起拒绝加班倡议，爆红中共国互联网](https://gnews.org/zh-hans/1598317/)
 
-贸易组织 Confetra 总干事伊万诺·鲁索 (Ivano Russo) 表示，在他的游说团体成员雇用的总共 900,000 名卡车司机、快递员和仓库工作人员中，人群中“25-30%”没有 Covid 证书。
-
-尽管可以得到免费的 Covid 检测，但的里雅斯特的码头工人还是威胁要无限期罢工。
-
-在热那亚，虽然一些卡车司机报告了延误，但周五早些时候的小型封锁是和平的。
-
-“今天真的很难卸货。”50 岁的司机马可告诉安莎通讯社。
-
-“我必须卸货，我必须能够工作。因为我必须工作，所以我接种了疫苗以获得绿色通行证。”
-
-下载通行证
-
-根据政府数据，周三有超过56万张绿色通行证被下载，这表明新规则的出现正在促进疫苗接种。
-
-意大利总理马里奥·德拉吉 (Mario Draghi) 的政府为绿色通行证辩护，认为这是避免意大利进一步封锁的一种方式，在经历了 Covid 引发的毁灭性的经济衰退之后，意大利今年的经济预计将增长近 6%。
-
-部长们似乎不太可能屈服于为所有人提供免费 Covid 测试的呼吁，但安莎通讯社报道称，他们正在考虑为支付费用的公司提供更大的税收减免。
-
-预计周五将在全国各地举行反通行证抗议活动，但政府希望避免上周末在罗马发生的示威活动重演，该活动演变为极右翼武装分子激怒的暴力冲突。
-
-工会计划周六举行反法西斯集会。
-
-–法新社
-
-文章来源：[https://asiatimes.com/2021/10/protests-blockades-greet-new-italy-covid-rules/](https://asiatimes.com/2021/10/protests-blockades-greet-new-italy-covid-rules/)
-
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场–Mike Li
-编辑：洛杉矶盘古农场 – 柯镇恶
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,16 +2,23 @@
 ---
 
 
-## 内布拉斯加州总检察长：医生可以开具有争议的中共病毒药物
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1601041/)
+## 疫苗灾情｜意大利 25 岁女明星接种疫苗后患上心包炎
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1601146/)
 
-#### 翻译：沙子最怕你不理它
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-32.jpg)图片来源：网络截图
-据3 News Now 10月15日报道，内布拉斯加州总检察长道格·彼得森（Doug Peterson）表示，只要医生获得患者的知情同意，并且不参与不当行为，他不会对开具有争议的非适应症药物（伊维菌素或羟氯喹）来治疗和预防中共病毒感染的医生采取惩罚措施。
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 18/10/2021**
 
-许多健康专家和主要医疗团体一直在试图停止使用这两种药物，但内布拉斯加州司法部长办公室给内布拉斯加州卫生与公众服务部首席执行官达内特•史密斯（Dannette R. Smith）提交了一份意见。在意见的导言中质疑史密斯要求总检察长就纪律处分持牌医疗保健提供者开具用于治疗中共病毒的非适应症药物的合法性。导言还指出了经调查后发现了潜在中共病毒治疗的重大争议和可疑信息。该文件接着引用了使用伊维菌素和羟氯喹治疗中共病毒的例子。
+***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
 
-在结论中，彼得森写道：“……我们没有发现明确和令人信服的证据，证明首先获得知情同意并使用伊维菌素或羟氯喹治疗COVID-19（中共病毒）的医生违反了UCA（统一认证法）。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/34-7.jpg)
 
-新闻来源：[Nebraska AG: Docs can prescribe controversial COVID drugs](https://www.3newsnow.com/news/local-news/nebraska-ag-docs-can-prescribe-controversial-covid-drugs)
+【意大利】罗马一名 25 岁的女演员 Ludovica Bizzaglia 在接种完第二剂莫德纳 COVID-19 疫苗后患上了心包炎。 Ludovica 于 8 月 5 日接受了第二针疫苗之后，就立即遭受了严重的胸痛、左臂疼痛和疲劳。后来她被诊断出患有心包炎。
+
+她在社交媒体上撰文形容指，“我的心很痛，我不能爬楼梯，我不能让空调对准我，我不能走路，并且没有任何迹象显示，这一切会结束。”
+
+尽管如此，她依然告诉她 80 万的追随者说，她将“再接种一百万次”疫苗，因为“我支持疫苗，我坚信医学和科学。”
+
+来源｜[个案034](https://www.msn.com/it-it/lifestyle/notizie/ludovica-bizzaglia-mi-%C3%A8-venuta-la-pericardite-ma-difendo-il-vaccino/ar-AANYECC)
+
+* * *
+
+他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//

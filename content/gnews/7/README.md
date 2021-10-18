@@ -2,44 +2,32 @@
 ---
 
 
-## 官媒报道，中共国可能扩大房产税试点
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1601785/)
+## 国际人权活动人士在雅典卫抵制北京冬奥
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1601829/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Download-36-2.jpg)网络图片
+作者：在远方
 
-**摘要翻译：**
-
-来自《亚洲新闻台》的报道，周日（10月17日）官方媒体援引一位前政府专家的话说，中共国可能会将房产税试点扩大到浙江省，这是中共国即将正式通过讨论已久的房产税征收的最新迹象。
-
-据中共官媒报道，中共国于2011年在上海和重庆启动了房产税试点，专家们过去曾建议将试点范围扩大到深圳市和海南省。
-
-随着中共国要努力在本世纪中叶实现“共同繁荣”的目标，中共党魁习近平周五呼吁要在房产税方面取得进展，称这有助于减少财富不平等。
-
-十多年来，中共政府一直在考虑引入房产税，但面临包括地方政府在内的利益相关方的抵制，地方政府依赖土地销售收入，担心这会侵蚀房地产价值或引发市场抛售。
-
-然而，中共政府宣称这样的税收可能有助于遏制房地产市场的大肆炒作，随着大型开发商中国恒大集团在债务和流动性危机中挣扎，中共国房地产市场受到了全球的密切关注。
-
-财政部支持的中国财政科学院前所长贾康建议将房产税试点扩大到富裕的东部省份浙江。
-
-自2011年上海和重庆试点启动以来，中共政府一直在对上海和重庆的某些类别的高端住宅征收房产税。
-
-今年3月，中共政府在其2021-2025年发展规划中表示，将在未来五年内推动房产税立法，但在该国 2021 年的立法议程中连续第二年没有提及此类税收。
-
-**简评：**中共国老百姓没有一寸土地，没有对房屋的永久产权，中共政府以集体和国家的名义霸占了中国所有的土地，而所谓的集体所有、国家所有，本质就是中国共产党所有，共产党的几大家族以及他们的子子孙孙所有。
-
-中共政府提出征收房产税的理由是“实现‘共同繁荣’，减少财富不平等”，却不敢在中共国推行官员财产公开制度，老百姓的财产完全掌握在中共政府的控制之下，官员的财产却可以隐形，这样的现状，又怎么可能实现“共同富裕”，怎么可能减少财富不平等？在没有监督的一党专政极权统治下，中共国立什么法，收什么税就是中国共产党的一句话，百姓没有丝毫的选择权，所以我们爆料革命提出要消灭中国共产党，成立喜马拉雅监督机构，把国家管理的权力还给人民。希望中国的有志之士都能够加入到我们爆料革命中来，一起为实现新中国联邦的理想而努力。
-
-新闻链接: [China could widen property tax trial, official media outlet reports](https://www.channelnewsasia.com/business/china-could-widen-property-tax-trial-official-media-outlet-reports-2249926)
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+10月17日，国际人权活动人士聚集在希腊首都雅典卫城，举行了抗议北京冬奥会的活动。抗议人士手举自由西藏的旗帜和写有“自由香港—革命”的条幅，抗议中共恶劣的人权记录，要求抵制北京冬奥会。警方拘捕了抗议者中一位18岁的西藏学生和一位来自香港的美国公民。人权组织称，按照流程本周二要将圣火交给给北京冬奥会代表，他们会就此继续进行抗议。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1018-AM-（1-3）.004.jpeg)
+由于中共在新疆的种族灭绝和反人类罪行，目前已有多个国际人权组织、美国国会议员和欧洲议会公开呼吁抵制北京冬奥会，新中国联邦也向奥组委发出了要求停办北京冬奥会的公文，呼吁制止这场堪比当年纳粹德国柏林奥运会的活动 。
+(本文仅代表作者观点)
+
+参考链接：[国际人权活动人士在雅典卫城抗议北京冬奥会](https://www.voachinese.com/a/athens-protest-beijing-winter-games-20211017/6274118.html)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
