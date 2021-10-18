@@ -2,26 +2,27 @@
 ---
 
 
-## 以色列的无声快递服务
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1602487/)
+## 丹麦公布多数冠状病毒住院患者和新感染者已完全接种疫苗
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1602596/)
 
-新闻来源：德国世界报报网络版
+撰稿：Skagen【㊙️翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222-1.jpg)
+来源：TV2
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+丹麦国家血清研究所 Statens Serum Institut (SSI) 的最新数据显示，**绝大多数因 covid-19 入院的患者已经完全接种疫苗。**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Drohnenlieferung-Eis-Sushi-Blutspende-5.jpg)
+10月17日的最新统计显示，在当天住院的115人中，有66人完成了疫苗接种，即超过57%的住院者是完成了两针疫苗的。
 
+再看一下感染者，情况与住院的人相似。在586名感染者中，366人已经完成了疫苗接种，而210人尚未接种疫苗，即超过62%的感染者是完成了两针疫苗的。
 
-资料来源：Dror, Ben David, 以色列创新局
+欧登塞大学医院传染病系主任Isik Somuncu Johansen教授的观点是： 这些可能是癌症患者或养老院的人，他们在近10个月前就已经接种了疫苗。他们的免疫力可能已经下降，这就是造成这种情况的原因。 因此，有这样的人群，他们接种了疫苗，但由于其他一些疾病，使他们的疫苗不能像预期的那样发挥作用。
 
-以色列用无人机运送包裹，可能在几年后成为现实。在特拉维夫的一家公司，正在测试这种空中送货服务。
+这恰好和丹麦的疫苗施打优先顺序是一致的，老年人最早打。丹麦的两针接种率是75%，而住在养老院的老人和75岁以上的老人两针接种率达到了97%！而现在的疫苗后遗症也恰好从老年人先开始了。
 
-在离地面两米的地方，无人机突然停止飞行。经过紧急警告附近的人群后， 无人机进入着陆地区并降落。 无人机带着一个鞋盒大小的盒子，里面是冰激凌。它仍然是冻结状况的，证明无人机送货服务实验已经成功了。
+（文章只代表作者个人观点）
 
-这些天，几十架无人机在以色列大都市地区上空嗡嗡作响，运送冰激凌、寿司和血浆。它们是国家无人机计划的一部分，政府希望通过该计划建立一个空中货物运输的网络。交通堵塞和汽车尾气将成为送货服务的过去。在未来，比萨饼出租车和包裹快递员将来自空中， 但愿这个无声的快递服务能够顺利实现。
+参考来源：
 
-[https://www.welt.de/politik/ausland/plus234477574/Eis-Sushi-Blutspenden-Drohnenpost-Israels-lautloser-Lieferservice.html](https://www.welt.de/politik/ausland/plus234477574/Eis-Sushi-Blutspenden-Drohnenpost-Israels-lautloser-Lieferservice.html)
+[1.SSI](https://www.ssi.dk/)
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-
-责任编辑/发布： Shuizhuyu
+[2. TV2](https://nyheder.tv2.dk/samfund/2021-10-18-storstedelen-af-coronaindlagte-er-faerdigvaccinerede)

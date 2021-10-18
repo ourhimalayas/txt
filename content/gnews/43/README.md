@@ -2,30 +2,21 @@
 ---
 
 
-## 有声|应届大学毕业生发起拒绝加班倡议，爆红中共国互联网
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1601814/)
+## 因面临集体诉讼美国防部疫苗接种授权恐难被执行
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1602025/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据多家媒体今日报道，由4位参加秋招的应届大学毕业生发起的拒绝加班文化、抵制“996”工作模式的网上运动在中共国互联网上爆红。
+采编：风云小哥   撰稿：文明(添草灭共)
 
-在青年白领占多数的中共国公司中，加班加点或超时工作长期以来就是家常便饭。所谓“996”工作模式，就是每天的上班时间从上午9时至晚间9时，且一周工作6天。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/wj.jpg)
+图片来源：NTD
 
-发起人以“打工人也要生活”（Worker Lives Matter）为口号，呼吁在科技公司上班的员工在代码托管服务平台GitHub上一份共享的“公司作息表”上，填写各自服务公司的名称、职位以及每天的工作时间。目前这则在“知乎”网站上的贴文，点击率已达600万人次。
 
-截至10月14日上午，已有超过4000人注册并分享了各自的数据。许多在阿里巴巴、百度、腾讯和字节跳动等中共国著名高科技大公司上班的员工，纷纷将自己每天超长时间工作的作息表匿名上传。此外，网民还添加了包括房地产、金融和外资企业的公司作息表。网上已填写的数据显示，很多人每天的工作时间高达10至12小时。而今年8月，中共国最高人民法院刚刚判定，“966”工作模式违法。
+据美国媒体《新唐人》10月17日报道，来自美军五个军种的军人、联邦雇员和联邦文职承包商的多名人士，针对【国防部新冠病毒疫苗接种规定】进行了集体诉讼：原告提出的【疫苗接种宗教豁免】请求被当局拒绝，并且因寻求该豁免而遭到不光彩退伍、军事法庭起诉、解雇及其他方面的“威胁”。 
 
-“公司作息表”引发对诸多中共国公司习以为常的加班文化的反思与反弹。“996”现象凸显中共国人权受到侵犯的现实。
+该诉状已提交至佛罗里达州中区地方法院，并将总统乔-拜登、国防部长劳埃德-奥斯汀和国土安全部长亚历杭德罗-马约卡斯等列为被告。要求法院发布临时限制令以阻止该疫苗接种授权的生效，并最终颁布禁令，阻止国防部执行拜登政府的该疫苗接种授权。
 
-文字版原文：[应届大学毕业生发起拒绝加班倡议，爆红中共国互联网](https://gnews.org/zh-hans/1598317/)
+（以上内容仅代表原文信息和作者个人观点）
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑，校对，发稿：硫酸羟氯喹64
+
+[原文链接：](https://www.ntd.com/pentagon-faces-class-action-lawsuit-over-vaccine-mandates-on-military-federal-employees-and-contractors_689876.html)
