@@ -2,29 +2,20 @@
 ---
 
 
-## 新州调整口罩限制以提高疫苗接种率
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1600768/)
+## 为霸制全球能源供应链中共力推“冰上丝绸之路”
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1600824/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4c3918bdba876178a7147397a740d142.jpg)图片来源：News.com.au
-**整理报道：**翼族
+编撰：我是1，小一 校对，编辑，发稿：硫酸羟氯喹64
 
-从周一开始，已完全接种疫苗的新南威尔士州居民在办公室工作时不再需要戴口罩，但是新州州长多米尼克·佩罗特(Dominic Perrottet)证实，未接种疫苗者仍将必须遵守口罩限制令。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/xp.jpg)图片来源：CBC
 
-此次德尔塔病毒疫情爆发以来，在办公室戴口罩一直是最不受欢迎的规定之一。该限制原本打算持续到12月，但为了鼓励人们重返工作岗位并提前达到80%的双剂接种率，新州政府推出了该项新的口罩限制。
 
-州长特别提醒未接种疫苗的工人和市民，如果他们想待在办公室里工作就必须继续戴口罩。
+据《环球网》10月17日报道，北极圈论坛大会于10月14日到10月17日在冰岛举行。中共在此次会议期间首提与俄罗斯等国共建“冰上丝绸之路”计划。
 
-佩罗特说：“我确实要指出的是，如果您未接种疫苗，则必须在办公室戴口罩。这仍然是与这些新变化有关的要求。”
+中俄一直谋求在北极地区共建利益共同体，并试图以此提升对全球航运以及能源产品供应链的更强控制力。而液化天然气等战略能源运输则是该计划的首要重点。据悉，2021年，北极圈内的中俄亚马尔液化天然气运输量成为北方航道运输之最。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+中共长期倡导的“一带一路”对外经济侵略政策已让全世界清楚地看到其势力向外扩张的野心，而此次中俄力推的”冰上丝绸之路”企图，更是对全球战略能源市场格局影响巨大，并将使美国领土直接受到中共和俄罗斯攻击的威胁！
 
-**参考链接：**[Australia Covid news live: Unvaccinated barred from new NSW mask freedom](https://www.news.com.au/world/coronavirus/australia/australia-covid-news-live-new-freedoms-cases-and-vaccinations/news-story/3fce7058153a931445a771235d354024)
+（以上内容仅代表原文信息和个人观点）
 
-*编辑/发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[原文链接：](https://world.huanqiu.com/article/45CjK4ioVad)

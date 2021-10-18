@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/18/2021 2:42 AM (UTC)`
+
+10/17/2021 Miles Guo: The CCP kleptocrats should be given fair trials with due process rather than have their family abducted or tortured; When the Chinese private entrepreneurs and military personnel were being arrested, so many of them committed suicides, including Liu Yanping’s family members<br/><br/>10/17/2021 文贵直播：中共盗国贼应当经过正当的司法程序审判，而不应该绑架和折磨他们的家人；在抓捕国内私人企业家和军人的过程中，有大量人自杀，包括刘彦平的家人
+![img](https://media.gettr.com/group21/getter/2021/10/18/02/42/22b06469-8181-54cd-d480-20da297d7985/out.jpg)
+
+---
+
 `@miles 10/18/2021 2:24 AM (UTC)`
 
 10/17/2021 Miles Guo: Alvin Jiang was abducted in Singapore and sent back to the Communist China right in front of the Jiang family, and he was required to bring back all his assets from overseas. The investigation on Fu Zhenghua shows that the CCP can enforce laws and carry out operations in Canada as if they are in the Communist China<br/><br/>10/17/2021 文贵直播：江志成是当着江家的面从新加坡被绑架回中共国的，他被要求从海外拿回所有的财产；对傅政华的调查反映出中共在加拿大的“执法”跟其在国内执法没什么两样！<br/>
@@ -293,13 +300,6 @@ Henry Reitzug博士：在注射带有被改造氨基酸的新冠mRNA疫苗进入
 `@miles 10/13/2021 4:48 PM (UTC)`
 
 10月13号：我们中国人连这个老狮子的待遇都混不上……如果你老在中国……想自己挖个坑把自己埋了，永远不可能。中国人太可怜了，太可悲了。
-
----
-
-`@miles 10/13/2021 2:07 PM (UTC)`
-
-西方外汇入中知多少、再谈疫苗台湾房地产
-![img](https://media.gettr.com/group16/origin/2021/10/13/13/c7bb1497-4dd4-3010-0e30-363a3ff374fc/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

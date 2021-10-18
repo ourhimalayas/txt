@@ -2,47 +2,51 @@
 ---
 
 
-## 约翰逊参议员称人们真地需要了解疫苗的危害
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1600612/)
+## 前国务卿迈克·蓬佩奥：中国共产党正在进行大规模颠覆美国的行动
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1600752/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+比尔·格茨: 前国务卿迈克·蓬佩奥说，[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 正在进行大规模颠覆美国的行动. 【附华盛顿时报的相关文章：[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在美国国内进行声势浩大的影响力和情报行动，目标是拿下联邦、州和地方政府。】
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/J-2.jpg)noticias1776.com
-《门道专家》发表文章，题目“参议员罗恩·约翰逊（Ron Johnson）：‘没有必要强制执行任何命令——使用中共病毒疫苗，我们在10个月内已经有16,766人死亡。”【1】
 
-全文如下：
 
-参议员罗恩·约翰逊作客今天（10月17日）上午的玛丽亚·巴蒂罗莫（Maria Bartiromo）《周日早间未来》（Sunday Morning Futures）节目。
+> China’s Communist Party is carrying out large scale operations to subvert the United States, former Secretary of State Mike Pompeo says [https://t.co/2n6oXmkGjc](https://t.co/2n6oXmkGjc)
+> — Bill Gertz (@BillGertz) [October 17, 2021](https://twitter.com/BillGertz/status/1449861325732020225?ref_src=twsrc%5Etfw)
 
-约翰逊参议员是为数不多的公开谈论中共病毒疫苗历史性危险的议员之一。
 
-周日，约翰逊参议员针对强制疫苗政策说：“强制毫无意义，现在我们知道，完全接种疫苗的个体正在感染，他们可能会传染别人。不幸的是，他们正在住院，他们正在变重病，他们正在死亡。强制接种疫苗毫无意义。”
 
-关于疫苗的危险，约翰逊参议员补充说，“他们完全忽视了疫苗的伤害，玛丽亚，人们真地需要了解这一点，因为它的伤害没有被报告，对疫苗的质疑正在被压制。在使用流感疫苗的25年中，疫苗不良反应报告系统（VAERS，the Vaccine Adverse Reporting System）报告的死亡人数略少于1700人。这是CDC的早期监控安全系统……使用中共病毒疫苗，我们在接种疫苗的10个月内已经有16,766人死亡。”
+众议员迈克·沃尔茨： 美国需要意识到 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在与我们进行军备竞赛……而我们正在失败。 【转金融时报记者推文：独家新闻 – [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 测试了具有核能力的高超音速导弹，该导弹通过太空低轨道飞行，在加速飞向目标之前绕地球一周，让美国情报部门和军事官员感到震惊。】
 
-约翰逊参议员是对的。
 
-VAERS网站上目前报告了16,766例死于中共病毒疫苗的病例。
 
-（原文附上了数据图表）
+> America needs to realize that the CCP is in an arms race with us….and we are losing. [https://t.co/i2XV1YNj2t](https://t.co/i2XV1YNj2t)
+> — Rep. Mike Waltz (@michaelgwaltz) [October 16, 2021](https://twitter.com/michaelgwaltz/status/1449473392344813571?ref_src=twsrc%5Etfw)
 
-约翰逊参议员补充说，其中超过5,400例死亡发生在接种疫苗后2天内。
 
-为什么他们要对美国公众隐瞒？
 
-请看《周日早间未来》。
+前白宫经济顾问彼得·纳瓦罗: 解雇蝠奇(Fire Fauci Video) 视频广告将于下周在 John Fredericks 的广播节目和班农作战室(War Room)首次亮相。 这里让你先睹为快。 让中共全额赔偿！！ 你认为怎样？ 在我的新书《川普时代》(In Trump Time) 中阅读有关福奇的真相。 购书网址为 bit./InTrumpTimeTQuote Tweet
 
-（原文完）
 
-笔者曾经报道约翰逊参议员揭露了主流媒体进行恶意不实的宣传，谎称辉瑞疫苗获得了FDA的正式批准，实际上FDA批准的是不在美国市场上存在的一种疫苗，而正在施打的疫苗依然是紧急使用授权的。受邪恶力量操控的FDA玩文字游戏【2】。参议员现在继续揭露并指出，“人们真地需要了解疫苗对人的伤害，因为它的伤害没有被报告，对疫苗的质疑正在被压制。”
 
-立法者都应该向约翰逊参议员学习，站出来向毒疫苗说不，拯救美国，拯救世界。
+> Fire Fauci Video ad debuts on John Fredericks and War Room next week. Here's your sneak peek. FULL REPARATIONS FROM CCP!!
+> What do you think?
+> 
+> Read the truth about Fauci in my new book In Trump Time on Amazon at [https://t.co/KPNUX2SBsy](https://t.co/KPNUX2SBsy) [pic.twitter.com/EKmsC9FdcY](https://t.co/EKmsC9FdcY)
+> — Peter Navarro (@RealPNavarro) [October 16, 2021](https://twitter.com/RealPNavarro/status/1449460176751321093?ref_src=twsrc%5Etfw)
 
-（文章仅代表作者个人观点）
 
-有关链接：
 
-【1】[https://www.thegatewaypundit.com/2021/10/senator-ron-johnson-no-point-mandate-whatsoever-covid-vaccine-16766-deaths-10-months-video/](https://www.thegatewaypundit.com/2021/10/senator-ron-johnson-no-point-mandate-whatsoever-covid-vaccine-16766-deaths-10-months-video/)
+众议员吉姆·班克斯： 关于达美航空公司[@Delta](https://twitter.com/Delta) 正在摒弃对其员工滥用和违宪的拜登疫苗强制的重大新闻。希望会有更多的公司跟进。 很快，许多公司就会意识到他们别无选择。倒闭或站在让你保持在空中飞翔的员工们一边！
 
-【2】[https://gnews.org/zh-hans/1571540/](https://gnews.org/zh-hans/1571540/)
+
+
+> Big news that [@Delta](https://twitter.com/Delta?ref_src=twsrc%5Etfw) is ditching the abusive and unconstitutional Biden vaccine mandate on its employees. Hopefully many more companies will follow. Soon many will realize they don’t have a choice. Go out of business or be on the side of your employees who keep you in the air!
+> — Jim Banks (@RepJimBanks) [October 16, 2021](https://twitter.com/RepJimBanks/status/1449419828574531591?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 正在扩大其军队以欺负和威胁 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 的主权。 美国必须支持民主，反对 [#共产主义](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89?src=hashtag_click)。
+
+
+
+> Communist China is expanding its military to bully and threaten Taiwan’s sovereignty. The United States must stand for democracy and against communism.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [October 15, 2021](https://twitter.com/MarshaBlackburn/status/1449085783625932805?ref_src=twsrc%5Etfw)
