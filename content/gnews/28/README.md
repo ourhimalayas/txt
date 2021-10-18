@@ -2,19 +2,23 @@
 ---
 
 
-## 突发：福特对卫生工作者的强制性疫苗感兴趣，向医院首席执行官寻求建议
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1600914/)
+## 5个月内抗体下降约85%，专家回应有效
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1600968/)
 
-采编：文莱     编译撰写：苦尽甜来 (文來）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/doug-ford.jpg)
-[图片来源：](https://www.tvo.org/article/the-vaccine-passport-is-a-win-for-doug-ford-lets-hope-it-doesnt-go-to-his-head)
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-81.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpic4.zhimg.com%2Fv2-c6c619dcc6b38298ec7067539ea27497_b.jpg&amp;imgrefurl=https%3A%2F%2Fzhuanlan.zhihu.com%2Fp%2F76075991&amp;tbnid=Gi1JXCDgMkJA0M&amp;vet=12ahUKEwjP6dCf_tLzAhVTQ_UHHUQlByAQMygBegUIARCaAQ..i&amp;docid=W7P_bsDnrFHJaM&amp;w=1084&amp;h=894&amp;q=%E8%A1%B0%E5%87%8F&amp;ved=2ahUKEwjP6dCf_tLzAhVTQ_UHHUQlByAQMygBegUIARCaAQ)
+南日本新闻社10月17日报道，10月16日，鹿儿岛市米盛医院对该院曾接种过两次新冠辉瑞疫苗的医务人员进行了抗体水平检测，638人进行了检测，结果显示平均抗体水平 5 个月内下降了约 85%。该院7月份也公开发表过“新冠接种后3个月，抗体水平减半”。
 
-据加拿大《多伦多太阳报》10月15日报道，尽管此前安大略省长道格·福特表示不希望任何人被强迫接种其不想接受的疫苗。但他当天仍向省级医院管理部门咨询是否有必要对该省医疗卫生系统人员强制接种新冠病毒疫苗，以及该措施是否会对人员配备产生严重影响。
+日本感染症学会疫苗委员会西顺义郎委员长解释道：辉瑞等生产的mRNA疫苗通过制造抗体获得防止病毒侵入细胞的“液性免疫”的功能。此外，还可以获得淋巴细胞破坏感染细胞的“细胞免疫”的功能。“两种免疫力同时工作，可以预防感染、发病和重症化化。”并对抗体水平下降约85%做出回应：抗体时疫苗产生免疫的一部分，抗体水平下降并不会减少其有效性。委员长对该医院的数据表示称：“非常重要的报道，但希望结合实际感染者的状况慎重做评价。”
 
-最近，魁北克宣布把针对该省所有医护人员的强制疫苗接种截止日期从 10 月 15 日推迟到 11 月 15 日。统计数据显示，如果按原定日期执行该措施，由于大量医护人员宁愿选择辞职，也拒绝接种该疫苗，因此魁省各医院将有 600 多张病床因缺乏医护工作者而无法被使用。
+医院通过测试得出的数据结果，那么委员会，专家等呢？而为什么医院只对疫苗的有效性进行检测，疫苗的安全性谁来验证？
 
-安省的下届省长选举将于明年6月2日或之前进行。在该省大选开始之前，福特这种对该疫苗接种政策的模棱两可态度，很可能是基于其个人政治目的而不得已为之。希望随着更多疫苗危害真相被逐渐揭露，他能及时做出明智的选择。
+信息来源：
 
-校对，编辑：硫酸羟氯喹64
+[半年で抗体量85％減少　ファイザー製コロナワクチン　鹿児島市・米盛病院調べ](https://news.yahoo.co.jp/articles/0589ffb257c63853ba97b1435b2e372c1a9db9cb)
 
-[相关链接](https://thepostmillennial.com/breaking-ford-interested-in-mandatory-vaccines-for-health-workers-asks-hospital-ceos-for-advise)
+(文章仅代表作者本人观点，与GNEWS无关)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
