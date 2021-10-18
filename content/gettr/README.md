@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/18/2021 6:13 PM (UTC)`
+
+10月18日：鲍威尔绝对死于疫苗，而不是死于病毒，所有的这些媒体都在撒谎。<br/><br/>他们在掩盖什么？恐惧什么？<br/><br/>https://twitter.com/Reuters/status/1450101932299857928?s=08 七哥您好! 路透社的新闻非常明确，他是打完两针疫苗，fully vaccinated的。
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@wsmartin218 10/15/2021 2:36 PM (UTC)`
@@ -291,13 +297,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 10月13号：【经过战友同意，分享一位战友的经历。<br/>推文内容战友自己编写、她没有推。<br/>       <br/>  我十几年的炎症已好了90%'，早上吃药后一直在散结。<br/>注意，不可喝酒。】
 ![img](https://media.gettr.com/group39/getter/2021/10/14/00/03/e999607f-ee9d-9d4c-3827-f1c3ed5d44b4/d855f558bf95ff33dca364ef837a2897.jpg)
-
----
-
-`@miles 10/13/2021 11:58 PM (UTC)`
-
-10月13日：杀戮还在继续，只是刚刚开始。【661 people died within 28 days of having the vaccine in Maine USA, However, the Maine CDC Director, Dr. Nirav Shah refused to be drawn on those deaths <br/>缅因州661人在接种完疫苗28天死亡。然而缅因州的CDC主任 Dr.Nirav Shah 拒绝对这些死亡展开调查】
-![img](https://media.gettr.com/group25/getter/2021/10/13/23/58/ee03c549-10d6-caef-82e7-5467b264d188/out.jpg)
 
 ---
 
