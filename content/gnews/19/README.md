@@ -2,19 +2,30 @@
 ---
 
 
-## 华盛顿州警察因拒绝疫苗接种而愤然辞职
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1602015/)
+## 美加战舰联合，再次穿越台湾海峡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1602038/)
 
-原文采编：文莱 翻译撰稿：文所未闻     校对编辑：硫酸羟氯喹64
+作者：飞虹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国军方10月17日宣称，美国海军阿利·伯克级导弹驱逐舰“杜威号”与加拿大皇家海军哈利法克斯级护卫舰“温尼伯号”，已于10月14日和15日联合航行, 穿越了台湾海峡，此举旨在”展现美国与盟友对维护印太地区自由开放的承诺”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/hsd-edited.jpg)图左：华盛顿州长英斯利 图右：辞职警察
-图片来源：千禧年报
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-11.jpeg)
 
+一年多来，中共不断对台湾发出威胁信号，频繁派遣军机侵扰台湾。作为回应, 美国及盟国海军则不断在台海及南海水域进行联合演习, 或者穿越台湾海峡的巡航, 以维护这一海域的航行自由 。最近的一次是在9月27日，英国皇家海军“伊丽莎白女王”号航母打击群的“里士满号”护卫舰 穿过台湾海峡，前往越南军港。
 
-据加拿大知名自媒体《千禧年报》10月17日报道，10月16日晚，一段华盛顿州警察因拒绝遵守该州关于新冠病毒疫苗强制接种规定而愤然辞职的视频，在社交媒体上被迅速传播。该名警察在完成其最后一班岗后，对外宣告这个消息说：“今天是我最后一次任务，在为华盛顿州的公民服务了22年之后，我却被（政府）要求离职。”
+(本文仅代表作者观点)
 
-8月20日，华盛顿州州长杰伊-英斯利宣布：该州所有政府工作人员，包括州警察，消防员等都必须在10月18日前接种该疫苗，否则将面临被当局解雇的处罚。在该州长宣布此项强制接种疫苗政策后，民众反应极为强烈，并导致了整个州的大规模示威活动。数以千计的居民在华盛顿州议会大厦前集会，抗议这项强制接种疫苗措施。期间，有大量警察，消防员、执法人员、管教人员、医护人员和各社区成员都参加了该集会。
+参考链接：[美加战舰联合穿越台湾海峡 中国谴责“挑衅滋事”](https://www.voachinese.com/a/china-condemns-us-canadian-warships-crossing-taiwan-strait-20211017/6274141.html)
 
-（以上内容仅代表原文信息和作者个人观点）
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-[原文链接：](https://thepostmillennial.com/watch-washington-state-trooper-resigns-over-vaccine-mandate-tells-gov-inslee-to-kiss-my-ass)
+新闻访谈终审：文龍
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

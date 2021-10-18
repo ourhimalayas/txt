@@ -2,24 +2,21 @@
 ---
 
 
-## 人均收入又被中共国平均
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1601833/)
+## 事态严重，意大利宪兵因无绿色通行证被驱逐出兵营宿舍
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1601846/)
 
-撰稿：东京樱花团/ 盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/人均收入又被中共国平均.png)[图片来源](https://m.idongde.com/c/Da548dB55C5b7674.shtml)
-中国经济网北京10月18日讯，国家统计局今天发布的数据显示，前三季度，全国居民人均工资性收入14917元，增长10.6%，占可支配收入的比重为56.8%；人均经营净收入4136元，增长12.4%，占可支配收入的比重为15.7%；人均财产净收入2329元，增长11.4%，占可支配收入的比重为8.9%；人均转移净收入4884元，增长7.9%，占可支配收入的比重为18.6%。
+#### 翻译/整理        意大利达芬奇农场          小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Schermata-2021-10-18-alle-12.57.54.png)图片来源：今日新闻
+宪兵新工会发布了一条通告，自10月15日起，宪兵高层决定所有在兵营住宿的宪兵， 如果自10月15日起没有绿色通行证将被逐出兵营。
 
-按常住地分，城镇居民人均可支配收入35946元，同比名义增长9.5%，实际增长8.7%；农村居民人均可支配收入13726元，同比名义增长11.6%，实际增长11.2%。
+宪兵司令部命令住在兵营内无绿色通行证的宪兵离开房间， 因为他们住宿的地方等同于工作的地点。这在意大利宪兵历史上是第一次，从未有过一项法令类似这样的要求。
 
-平均，是一种美好的价值，最朴素的解释，就是每个人都能得到他应该得到的东西。在中共国所有的资源财富都被中共霸占奴役，若是把基层百姓与中共国所谓“红色血统”平均财富，那每人都是非富即贵，也就不会有杨改兰事件频繁发生。
+意大利宪兵新工会将在每一处保护深夜被驱逐出兵营的同事，为他们提供有尊严的解决方式。
 
-消息来源：
+我们从未想到会出现这样的情况。我们要问总理德拉吉：当他颁布法令时，这是否就是他今后规范劳动世界的法令？
 
-[国家统计局：前三季度全国人均财产净收入2329元 增长11.4%](https://mz.mbd.baidu.com/r/uWeWAiFRhS?f=cp&amp;rs=406615085&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=c82208b5ee19083d)
+原文链接：[https://www.ogginotizie.eu/ogginotizie/grave-larma-dei-carabinieri-caccia-i-suoi-militari-dagli-alloggi-cosa-e-successo/](https://www.ogginotizie.eu/ogginotizie/grave-larma-dei-carabinieri-caccia-i-suoi-militari-dagli-alloggi-cosa-e-successo/)
 
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
+免责声明：本文只代表作者观点， 与GNEWS 平台无关
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+责任编辑/发布： Xiao baige

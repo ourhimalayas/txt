@@ -2,28 +2,34 @@
 ---
 
 
-## 迈阿密学校要求学生暂不接种新冠疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1602067/)
+## 拜登政府因疫苗强制令面临大规模集体诉讼
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1602078/)
 
-作者：飞虹
+作者：雪梨
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-佛罗里达州迈阿密的森特纳学院，致信给学生家长，建议家长对给孩子接种一事慎重考虑；同时要求，每次接种疫苗的学生都必须在家隔离30天。
+10月15日，包括海豹突击队、陆军特种部队和海军、空军军官、联邦雇员和联邦文职承包商在内的24名原告，于美国佛罗里达州中区法院，正式对拜登政府提起诉讼，要求法院发布临时限制令，暂停强制接种疫苗，并最终发布禁令，阻止五角大楼继续执行该行政命令。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide8-5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-18.jpeg)
 
-森特纳学院首席运营官在近日发给学生家长的一封信中说：“如果您正在考虑为您的学生接种疫苗，请您推迟到来年夏季，这将减少潜在的传播或传染给他人。”这封信同时还为仍然选择给孩子接种疫苗的父母制定了隔离规定。“由于对其他学生和我们学校社区的潜在影响，接种疫苗的学生在每次接种疫苗和增强剂后需要在家呆30天，只要学生健康且无症状，30天后可以返回学校。”
+国防部长劳埃德·奥斯汀、国土安全部长亚历杭德罗·马约卡斯和拜登总统均被列为被告。
 
-早在4月份，森特纳学院就表示，4月22日之后接种疫苗的员工将不被允许返回学院工作，尽管后来决定接种疫苗的教师和员工不会被解雇，但也不允许他们与学生一起工作。原因就是校方担心这些仍然处于试验性状态的疫苗的副作用，接种者会感染未接种者。
+目前上市使用的三种疫苗，均通过流产胎儿干细胞开发而来，仅从该点出发，宗教人士有权获得豁免。但实际上大部分原告仍遭到被解雇、诉诸军事法庭或惩罚的威胁。这一做法严重侵犯了宪法第一修正案赋予公民宗教自由的权利。
 
-在这封致家长信中，校方表示他们对“实验性疫苗”的担忧没有改变，他们尊重每个人的选择，但也需要关注整个学校社区。
+此外，新冠疫苗根本没有通过批准，仅得到市场紧急使用，人们有拒绝接种的自由和权利。
+
+两个月前，两名美军士兵已将国防部官员诉诸法院。随着限期临近，觉醒的美国军人纷纷拿起法律的武器，坚决捍卫自己的权利。
+
+随着疫苗真相的大力传播，民众逐渐觉醒，政府和联邦卫生机构面临更多的质疑和指控，同时，诉讼也将朝着有利于原告期望的方向推进。
 
 (本文仅代表作者观点)
 
-参考链接：[Miami private school to require students getting COVID vaccine to stay home for 30 days after each dose](https://wsvn.com/news/local/miami-private-school-to-require-students-getting-covid-vaccine-to-stay-home-for-30-days-after-each-dose/)
+参考链接：[Biden, Pentagon Face Massive Class-Action Lawsuit Over Vaccine Mandate on Federal Employees and Military Members](https://www.thegatewaypundit.com/2021/10/biden-pentagon-face-massive-class-action-lawsuit-vaccine-mandate-federal-employees-military-members/)
+
+新闻访谈终审：暗黑
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-编辑/校正/发稿：谐趣园
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

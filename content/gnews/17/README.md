@@ -2,24 +2,27 @@
 ---
 
 
-## 美加战舰联合，再次穿越台湾海峡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1602038/)
+## 迈阿密学校要求学生暂不接种新冠疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1602067/)
 
 作者：飞虹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国军方10月17日宣称，美国海军阿利·伯克级导弹驱逐舰“杜威号”与加拿大皇家海军哈利法克斯级护卫舰“温尼伯号”，已于10月14日和15日联合航行, 穿越了台湾海峡，此举旨在”展现美国与盟友对维护印太地区自由开放的承诺”。
+佛罗里达州迈阿密的森特纳学院，致信给学生家长，建议家长对给孩子接种一事慎重考虑；同时要求，每次接种疫苗的学生都必须在家隔离30天。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-11.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide8-5.jpeg)
 
-一年多来，中共不断对台湾发出威胁信号，频繁派遣军机侵扰台湾。作为回应, 美国及盟国海军则不断在台海及南海水域进行联合演习, 或者穿越台湾海峡的巡航, 以维护这一海域的航行自由 。最近的一次是在9月27日，英国皇家海军“伊丽莎白女王”号航母打击群的“里士满号”护卫舰 穿过台湾海峡，前往越南军港。
+森特纳学院首席运营官在近日发给学生家长的一封信中说：“如果您正在考虑为您的学生接种疫苗，请您推迟到来年夏季，这将减少潜在的传播或传染给他人。”这封信同时还为仍然选择给孩子接种疫苗的父母制定了隔离规定。“由于对其他学生和我们学校社区的潜在影响，接种疫苗的学生在每次接种疫苗和增强剂后需要在家呆30天，只要学生健康且无症状，30天后可以返回学校。”
+
+早在4月份，森特纳学院就表示，4月22日之后接种疫苗的员工将不被允许返回学院工作，尽管后来决定接种疫苗的教师和员工不会被解雇，但也不允许他们与学生一起工作。原因就是校方担心这些仍然处于试验性状态的疫苗的副作用，接种者会感染未接种者。
+
+在这封致家长信中，校方表示他们对“实验性疫苗”的担忧没有改变，他们尊重每个人的选择，但也需要关注整个学校社区。
 
 (本文仅代表作者观点)
 
-参考链接：[美加战舰联合穿越台湾海峡 中国谴责“挑衅滋事”](https://www.voachinese.com/a/china-condemns-us-canadian-warships-crossing-taiwan-strait-20211017/6274141.html)
+参考链接：[Miami private school to require students getting COVID vaccine to stay home for 30 days after each dose](https://wsvn.com/news/local/miami-private-school-to-require-students-getting-covid-vaccine-to-stay-home-for-30-days-after-each-dose/)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-新闻访谈终审：文龍
 编辑/校正/发稿：谐趣园
 
 **更多资讯，更多关注**
