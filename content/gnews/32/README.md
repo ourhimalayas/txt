@@ -2,29 +2,32 @@
 ---
 
 
-## 新州调整口罩限制以提高疫苗接种率
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1600768/)
+## 国际人权活动人士在雅典卫城抗议北京冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1600792/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4c3918bdba876178a7147397a740d142.jpg)图片来源：News.com.au
-**整理报道：**翼族
+作者：文仁
 
-从周一开始，已完全接种疫苗的新南威尔士州居民在办公室工作时不再需要戴口罩，但是新州州长多米尼克·佩罗特(Dominic Perrottet)证实，未接种疫苗者仍将必须遵守口罩限制令。
 
-此次德尔塔病毒疫情爆发以来，在办公室戴口罩一直是最不受欢迎的规定之一。该限制原本打算持续到12月，但为了鼓励人们重返工作岗位并提前达到80%的双剂接种率，新州政府推出了该项新的口罩限制。
 
-州长特别提醒未接种疫苗的工人和市民，如果他们想待在办公室里工作就必须继续戴口罩。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-佩罗特说：“我确实要指出的是，如果您未接种疫苗，则必须在办公室戴口罩。这仍然是与这些新变化有关的要求。”
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-17.jpg)
+据【美国之音】和【路透社】报道，在北京2022年冬奥会组委会准备接收奥运火炬之际，人权活动人士星期天在希腊雅典卫城举行示威，抗议北京冬奥会。警方拘捕了两名向卫城投掷旗帜的活动人士。由于中国恶劣的人权记录，抗议活动和要求抵制在北京举办奥运会的呼声，令奥运会蒙上阴影。人权组织和美国国会议员呼吁国际奥委会推迟北京冬奥会并改在其他城市举办，除非中国当局停止在新疆针对维吾尔和其他少数民族穆斯林的“种族灭绝”行为。 国际奥林匹克委员会副主席科茨（John Coates）10月13日明确拒绝了有关方面要求该组织在2022年北京冬奥会上批评中国的人权问题。中共的蓝金黄已经深深地影响了世界上很多的非政府组织，他们为了一些短期的利益而放弃了对人权的尊重和正义的坚守。
 
-**参考链接：**[Australia Covid news live: Unvaccinated barred from new NSW mask freedom](https://www.news.com.au/world/coronavirus/australia/australia-covid-news-live-new-freedoms-cases-and-vaccinations/news-story/3fce7058153a931445a771235d354024)
+（本文仅代表作者观点）
 
-*编辑/发布：翼族*
+参考链接：[国际人权活动人士在雅典卫城抗议北京冬奥会](https://www.voachinese.com/a/athens-protest-beijing-winter-games-20211017/6274118.html)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+
+新闻访谈终审：Ryan
+编辑/校对/审核：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

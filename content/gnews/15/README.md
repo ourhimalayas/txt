@@ -2,25 +2,36 @@
 ---
 
 
-## 中共秋后算帐，多名香港民主人士被判刑
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1600923/)
+## 报应来得快，中共开始对香港富豪开刀
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1600934/)
 
-撰稿：东京樱花团/上善若水
+作者：纽约香草山健身部 – Jack Li文阳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+文贵先生在10月17日大直播中爆料：中共为了挽救其濒临破产的经济，正在对香港的四大家族下手。严令他们还回手里所有的地，还要把在大陆挣的钱拿回来，才能保其不死。中共威胁：无论他们跑到外国哪里，共产党都能把他们抓回来。对于房地产商、律师、金融届、黑社会，这些人都得把钱拿回来，中共要他们把100年挣的钱都吐出来。中共堂而皇之的以疫情的理由对相关人士实施边控，变相绑架香港富豪及其家人，使其不能随便出入边境逃跑。如有不从者，冠状病毒死亡就是其下场。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/中共秋后算帐，多名香港民主人士被判刑.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fi0.hdslb.com%2Fbfs%2Farchive%2F73ffb831ddb26be6632c4e918bad2f232739e07d.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bilibili.com%2Fs%2Fvideo%2FBV1eg4y187b7&amp;tbnid=6OzYCjj4IYEonM&amp;vet=12ahUKEwjOzNyi-9LzAhXUxGEKHdnyDPMQMygKegUIARCwAQ..i&amp;docid=VprwzSzWUn_Z_M&amp;w=432&amp;h=271&amp;q=%E7%A7%8B%E5%90%8E%E7%AE%97%E5%B8%90&amp;ved=2ahUKEwjOzNyi-9LzAhXUxGEKHdnyDPMQMygKegUIARCwAQ)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-316.png)图片来源：Jack Li文阳
 
-10月16日包括多名立法会议员在内，共有７名香港民主运动人士因曾参与抗议北京出台港版《国家安全法》而被判处最高 12 个月监禁。
+香港民众2019年轰轰烈烈的反送中运动，反独裁、保民主、争自由。当时，面对港人的前赴后继，不畏牺牲，一众香港富豪无耻的为中共站台，支持中共疯狂打压市民的民主运动。其实，香港的百年高速发展正是得益于民主自由的政治体制，因此得到国际社会对自由贸易港的承认，这些富豪也是因此挣得盘满钵满，富得流油。
 
-被判７人均对包括组织 2020 年 7 月 1 日未经授权的集会在内的有关指控认罪。抗议活动举行之时，有数十万民众走上街头。当局曾以新冠瘟疫为由，禁止该次示威集会。抗议活动发生活，港警使用了催泪瓦斯和高压水枪，强行驱散示威者者。 今天获刑的７人分别是：现已解散的公民人权阵线（CHRF）前召集人陈皓桓（刑期12个月）、前区议员曾健成（10个月）、前立法会议员胡志伟（10个月）、前立法会议员梁国雄（8个月），前区议员徐子见（6个月）、前立法会议员朱凯廸（6个月）及”社民连”成员邓世礼（6个月）。 法官游德康在宣判时称，涉及煽惑他人参与未经批准集结的被告，是希望煽惑更多人参与。当时，香港国安法刚实施，社会气氛不稳，有发生暴力的风险，即时监禁是唯一适当的刑期。
+中共粗暴的撕毁一国两制，垂涎的正是香港辉煌的财富，而香港绝大部分的财富其实是掌握在少数人的手中。勇敢的香港人誓死保卫的除了自己狭小的蜗居和一份辛苦的工作，其实更多的是保卫这些无良奸商的财富和营商环境。可这帮不要脸的商人，泯灭良心，出卖港人投靠中共。
 
-中共秋后算帐，作为对 2019 年席卷香港的大规模反政府抗议浪潮的回应，去年7月1日起，北京在港实施国家安全法。该法旨在惩罚颠覆、分裂国家、恐怖主义和勾结外国势力等罪行。
+中共这个天下第一绞肉机，一旦控制住香港，一定会开动绞肉程序。香港的肉都在富豪的身上，其结局可想而知。当下中共四面楚歌，国内经济每况日下，地产庞氏骗局已经玩不下去了，世上最大的经济泡沫爆破在即。因此，中共迫不及待对香港下手，香港富豪两三代人的百年财富很快要改名换姓了。另一方面，中共倒台也指日可待。到时，这些财富，自然会回归到香港人手中。
 
-信息来源：
+**本文谨代表作者观点**
 
-[多名香港民主人士被判刑](https://www.dw.com/zh/%E5%A4%9A%E5%90%8D%E9%A6%99%E6%B8%AF%E6%B0%91%E4%B8%BB%E4%BA%BA%E5%A3%AB%E8%A2%AB%E5%88%A4%E5%88%91/a-59527006)
+![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
 
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
+**校对/发稿：童谣**
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
