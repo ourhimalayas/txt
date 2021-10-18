@@ -2,23 +2,40 @@
 ---
 
 
-## 颠覆政权在香港也成了“口袋罪”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1601547/)
+## 程国平替孟建柱杨洁篪王毅没少弄钱在迪拜有一万多套房
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1601582/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/23-5.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg95.699pic.com%2Fxsj%2F0x%2Fob%2Fvn.jpg!%2Ffw%2F700%2Fwatermark%2Furl%2FL3hzai93YXRlcl9kZXRhaWwyLnBuZw%2Falign%2Fsoutheast&amp;imgrefurl=https%3A%2F%2Fxsj.699pic.com%2Ftupian%2F0xobvn.html&amp;tbnid=H4Jooop0leNptM&amp;vet=12ahUKEwik1dvK1dPzAhUL7JQKHdqQDYsQMygIegUIARCmAQ..i&amp;docid=qV2xePeSv-JRVM&amp;w=700&amp;h=453&amp;itg=1&amp;q=%E5%8F%A3%E8%A2%8B%20%E6%89%8B%E9%93%90&amp;ved=2ahUKEwik1dvK1dPzAhUL7JQKHdqQDYsQMygIegUIARCmAQ)
-香港《端传媒》发表文章《中港行动者对谈：香港大解散？不能让政治否定公共的价值》，指出国安法之后，香港多了国家安全相关的罪名，比如47人案中很多被告“颠覆国家”，另外也有人被告“煽动分裂国家安全罪”。而这两、三个月，“煽颠”在大陆的使用也扩大到了像独立记者黄雪琴、劳工NGO王建兵、或年轻学者方然身上。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FA-mkwFVIAsAoOt_副本.jpg)
+据[2021年10月17日 文贵大直播：青蒿素的神奇功效；爆料孙力军，傅政华和江志诚在新加坡被抓的细节；中共的经济政治危机导致对台开战，将引发美国，日本对中共进行极限战争；经过疫苗灾难，灭共之后，人类会走向更好的未来，美国将在绿色能源，生物科技，太空时代领先世界，中美是人类的未来](https://gtv.org/video/id=616c1823304e992109b65281)时间点1：42：14——
 
-对谈者认为，确实有一个趋势，以前这些罪名都用于具有对抗性的行动，一些直接挑衅的行为，强烈反对政府合法性的，才会引用这个罪名。但是近几年，中共开始打压没有那么强烈地去挑战现有政权合法性的一些个体，不管是思想上或是个人。有些人只是倡导某个理念，并不是直接挑战整个合法性，但他就会被认为是“颠覆国家政权”。偏公民社会类的这种社群组织，都会被认为可能是挑战它的正当合法性。对于活动人士来说，“颠覆国家政权”在香港也成为了一种“口袋罪”。
+**郭文贵先生：**他（指中纪委出逃到日本的战友）说七哥我告诉你，下一个抓的一定是杨洁篪，他说我手里有杨洁篪的料，抓他一千次都不会拉倒，他说但是杨洁篪和王毅这俩王八蛋完全把习整个外交这块全都是假的，他说七哥为啥我们这人信你？我们查这些案子，我们太了解你说的是真是假的。
 
-对谈者说，以前英国在香港的统治是基于一种协商性的政治，一个ruled by negotiation，在不同政党、利益之间需要中间人去调和，扮演利益上沟通的角色。香港政治现在是基于中共政权恐惧的管制，变成一个ruled by fear，不再有政治上的这种协商，香港原来三权分立的政治体制，在所谓“1997回归之后”，特别是在香港反送中运动之后，被中共认为碍手碍脚，挑战中央权威，这个机制正在被中共国安恶法所替代。
+他说我们没有任何人不看你直播的，他说我们在这边审人，审人中间、审完都看你直播，都上G-TV，他说现在都上盖特，他说杨洁篪的事你说得太对了，包括程国平、包括倪坚，他说你说得太对了，他说就是我们查的呀！他说杨洁篪现在随时可能就是跑国外不回来了，王毅都是有可能的。
 
-信息来源：
+他就是担心家人，所有现在对这就是祸连十三族，要没这个都跑了，都叛变了，他说现在各外交部各外大使都随时做好像北朝鲜一样被干掉、被抓起来。然后说这个倪坚很快就让他退休，退休就把他抓起来，而且说到程国平的时候，你说你说得太对了，他说这个孙子钱不一定是他的，但是替孟建柱中没少弄钱，替杨洁篪、王毅没少代持。
 
-[墙外文摘：颠覆政权在香港也成了“口袋罪”](https://www.dw.com/zh/%E5%A2%99%E5%A4%96%E6%96%87%E6%91%98%E9%A2%A0%E8%A6%86%E6%94%BF%E6%9D%83%E5%9C%A8%E9%A6%99%E6%B8%AF%E4%B9%9F%E6%88%90%E4%BA%86%E5%8F%A3%E8%A2%8B%E7%BD%AA/a-59530976)
+仅在迪拜就有一万多套房子，光在迪拜一万多套房子，他说七哥你说这数的时候我们都吓傻了，他说只有我们掌握这个，他说我们都查完了，一万多套房子！我说我这全都有单子，我可以放在电视上给大家看。我这有一万套房子所有的名字、所有的单子。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+他说所以说七哥为啥我们服你，只有我们掌握一万多套房子，他说我们给习报的时候我们报多少，我们报三千，他都吓半死了，我们还没给他报一万多，你讲出一万多，他说我们知道这一万多套。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+（以下暂略）
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

@@ -2,9 +2,48 @@
 ---
 
 
-## 澳洲男子因质疑新冠疫情被送往医院接受强制心理评估
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1601549/)
+## 达美航空首席执行官将不执行强制疫苗政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1601589/)
 
-10/14/2021 一名澳洲男子因质疑新冠疫情遭妻子举报后被送往医院接受强制心理评估和关押。
+作者：AsG諾雅
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+每日邮报10月17日消息，在西南航空公司因强制疫苗接种导致内部危机，在10月8日至12日期间因罢工被迫取消了2500多个航班之际，达美航空首席执行官埃德-巴斯蒂安周四，在接受福克斯商业频道的采访时表示，该公司将不会执行强制疫苗接种政策。
+
+巴斯蒂安称疫苗强制接种是 “分裂性的”，在没有强制规定的情况下，该公司已经达到了90%的高接种率。达美航空将为那些希望不接种疫苗的人提供宗教和医疗原因的豁免。他说，在尊重人们的决定的同时与他们合作，要比威胁解雇他们有效得多。 拜登的行政命令要求拥有100名或更多员工的公司在12月8日前强制接种疫苗，并从员工那里获得全面接种的证明，但允许以至少每周一次的PCR检测代替疫苗接种。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-33.jpg)
+隶属于劳工部的职业安全与健康管理局（OSHA）受命执行该命令，但尚未对所有私营公司实施该要求。这意味着，任何已经开始实施强制性疫苗的公司都为时过早，因为劳工部的指导意见还没有发布出来。
+
+达美航空是美国唯一 一家在企业层面，公开斥责总统实施的强制疫苗政策的航空公司。当疫苗灾难的真相最终呈现的时候，所有强迫人们接种新冠毒疫苗的人都会被审判，请老百姓坚决不要打毒针，也希望更多企业和机构拒绝配合强制政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-49.jpg)
+参考链接：
+1. [Delta CEO Ed Bastian REFUSES to impose Biden’s ‘divisive’ vaccine mandate: Reveals 90% of staff are already jabbed because they ‘work collaboratively’ with employees and don’t threaten them with being fired](https://www.dailymail.co.uk/news/article-10100909/Delta-CEO-REFUSES-impose-Bidens-vaccine-mandate-Reveals-90-staff-jabbed.html)
+2. [Delta Air Lines CEO Will Not Enforce ‘Divisive’ Vaccine Mandate](https://www.breitbart.com/politics/2021/10/16/delta-airlines-ceo-will-not-enforce-divisive-vaccine-mandate/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
