@@ -2,10 +2,10 @@
 ---
 
 
-## 法官暂时阻止对加州监狱工作人员的强制疫苗要求
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1601507/)
+## 达美航空首席执行官将不执行强制疫苗政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1601589/)
 
-作者：文真
+作者：AsG諾雅
 
 
 
@@ -13,14 +13,17 @@
 
 
 
-零对冲10月17日报道，加州克恩县法官巴曼在10月13日发布一项临时限制令，暂时阻止了对加州监狱工作人员的强制疫苗要求。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.3-3.jpg)
-加州的新冠疫苗强制令在10月15日生效。加州治安官员协会，代表全州约两万八千名官员，反对在全州范围内实施强制疫苗措施。在其最初提交法院的文件中说，大范围强制接种疫苗的时间点，与近几个月监狱内以及整个州内，中共病毒感染率大幅下降的现象并不相符。截至9月10日，加州有240名囚犯、39名监狱员工死于中共病毒。但在过去的14天里，只有178个新病例。 因此，法院应抵制强制接种疫苗的要求。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-11.jpg)
-加州囚犯和监狱雇员总共约有五万一千个中共病毒确诊病例。中共病毒病例的大量出现导致许多加州囚犯被加速释放。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-5.jpg)
+每日邮报10月17日消息，在西南航空公司因强制疫苗接种导致内部危机，在10月8日至12日期间因罢工被迫取消了2500多个航班之际，达美航空首席执行官埃德-巴斯蒂安周四，在接受福克斯商业频道的采访时表示，该公司将不会执行强制疫苗接种政策。
+
+巴斯蒂安称疫苗强制接种是 “分裂性的”，在没有强制规定的情况下，该公司已经达到了90%的高接种率。达美航空将为那些希望不接种疫苗的人提供宗教和医疗原因的豁免。他说，在尊重人们的决定的同时与他们合作，要比威胁解雇他们有效得多。 拜登的行政命令要求拥有100名或更多员工的公司在12月8日前强制接种疫苗，并从员工那里获得全面接种的证明，但允许以至少每周一次的PCR检测代替疫苗接种。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-33.jpg)
+隶属于劳工部的职业安全与健康管理局（OSHA）受命执行该命令，但尚未对所有私营公司实施该要求。这意味着，任何已经开始实施强制性疫苗的公司都为时过早，因为劳工部的指导意见还没有发布出来。
+
+达美航空是美国唯一 一家在企业层面，公开斥责总统实施的强制疫苗政策的航空公司。当疫苗灾难的真相最终呈现的时候，所有强迫人们接种新冠毒疫苗的人都会被审判，请老百姓坚决不要打毒针，也希望更多企业和机构拒绝配合强制政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-49.jpg)
 参考链接：
-[Judge Temporarily Blocks Vaccine Mandate Requirement For California Prison Workers](https://www.zerohedge.com/covid-19/judge-temporarily-blocks-vaccine-mandate-requirement-tor-california-prison-workers)
+1. [Delta CEO Ed Bastian REFUSES to impose Biden’s ‘divisive’ vaccine mandate: Reveals 90% of staff are already jabbed because they ‘work collaboratively’ with employees and don’t threaten them with being fired](https://www.dailymail.co.uk/news/article-10100909/Delta-CEO-REFUSES-impose-Bidens-vaccine-mandate-Reveals-90-staff-jabbed.html)
+2. [Delta Air Lines CEO Will Not Enforce ‘Divisive’ Vaccine Mandate](https://www.breitbart.com/politics/2021/10/16/delta-airlines-ceo-will-not-enforce-divisive-vaccine-mandate/)
 
 （本文仅代表作者观点）
 

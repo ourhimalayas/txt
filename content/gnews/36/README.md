@@ -2,25 +2,45 @@
 ---
 
 
-## 秘翻在线：五角大楼因疫苗强制令面临联邦雇员和军人的集体诉讼
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1601431/)
+## 法官暂时阻止对加州监狱工作人员的强制疫苗要求
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1601507/)
 
-#### 翻译/撰稿：zzballack
+作者：文真
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-4-1.jpg)图片来源：ctmirror
-据《网关专家》（Gateway Pundit）10月17日报道，二十四名军人、联邦雇员和文职承包商加入了一项针对拜登政府的强制疫苗令的大规模集体诉讼。该团体包括来自美国所有五个军种的成员，包括海豹突击队、陆军特种部队和一些高级军官。
 
-基督教律师事务所“自由顾问”（Liberty Counsel）代表24名原告在美国佛罗里达州中区法院提起诉讼。诉讼书说：“原告已经履行了他们对美国宪法和国家的承诺，法院应该要求国家回报他们。现在他们被要求强制接种中共病毒疫苗，拒绝遵从的话，他们将面临军事法庭、不光彩的退伍、解雇以及其它改变生活的纪律处分，这将使这些英雄们所做的牺牲蒙羞。一些人甚至被告知‘即使提出申请也没有用’，因为不会给予任何宗教豁免或便利。”
 
-国防部长劳埃德·奥斯汀 (Lloyd Austin)、国土安全部部长亚历杭德罗·马约尔卡斯（Alejandro Mayorkas）和总统乔·拜登都被列为这起诉讼的被告。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-原告要求法院发布临时限制令以阻止强制疫苗令生效，并最终发布禁令以阻止五角大楼执行拜登政府的疫苗强制令。
 
-拜登于9月9日发布了一项行政命令，要求几乎所有联邦雇员接种疫苗，作为就业的条件。联邦文职雇员和承包商在11月22日之前必须全面接种疫苗。而且定期检测不再考虑之内。国防部长奥斯汀于8月24日发布了一份备忘录，要求所有军人都必须接种疫苗。
 
-诉讼认为，疫苗强制令是违宪的，因为它直接侵犯了原告的宗教自由。目前可用的三种疫苗是通过使用流产的胎儿干细胞开发的。“原告的宗教信仰迫使他们不能宽恕、支持、（直接或间接）从通过堕胎夺取无辜人的生命中获益，这样做是对上帝的犯罪。”
+零对冲10月17日报道，加州克恩县法官巴曼在10月13日发布一项临时限制令，暂时阻止了对加州监狱工作人员的强制疫苗要求。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.3-3.jpg)
+加州的新冠疫苗强制令在10月15日生效。加州治安官员协会，代表全州约两万八千名官员，反对在全州范围内实施强制疫苗措施。在其最初提交法院的文件中说，大范围强制接种疫苗的时间点，与近几个月监狱内以及整个州内，中共病毒感染率大幅下降的现象并不相符。截至9月10日，加州有240名囚犯、39名监狱员工死于中共病毒。但在过去的14天里，只有178个新病例。 因此，法院应抵制强制接种疫苗的要求。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-11.jpg)
+加州囚犯和监狱雇员总共约有五万一千个中共病毒确诊病例。中共病毒病例的大量出现导致许多加州囚犯被加速释放。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-5.jpg)
+参考链接：
+[Judge Temporarily Blocks Vaccine Mandate Requirement For California Prison Workers](https://www.zerohedge.com/covid-19/judge-temporarily-blocks-vaccine-mandate-requirement-tor-california-prison-workers)
 
-除此之外，因为美国食品药品监督管理局（FDA）只为该疫苗颁发了紧急使用授权。律师们认为对于未获FDA完全批准的产品，人们有自由接受或拒绝的权利。
+（本文仅代表作者观点）
 
-新闻来源：[Biden, Pentagon Face Massive Class-Action Lawsuit Over Vaccine Mandate on Federal Employees and Military Members](https://www.thegatewaypundit.com/2021/10/biden-pentagon-face-massive-class-action-lawsuit-vaccine-mandate-federal-employees-military-members/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
