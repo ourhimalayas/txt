@@ -2,42 +2,32 @@
 ---
 
 
-## 蓬佩奥：中共是当今美国最大的外部威胁
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1601644/)
+## 709维权律师家属宣布独立参选区县人大代表
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1601750/)
 
-**简评：**美国从来不希望与中共国发生战争，但中共把美国作为假想敌已经几十年了。中共利用了美国两党之间的矛盾，与美国的政治和经济交织在一起，非常复杂。美国有决心建立一个在宗教自由和财产权基础之上的自由和平的世界，盼望每一位国务卿和国家安全顾问都能把人类最基本的尊严放在心上。任务艰巨，不可能快速和轻易实现。但是蓬佩奥国务卿对此充满信心。
+作者：在远方
 
-GTV视频链接：[蓬佩奥：中共是美国最大威胁](https://gtv.org/video/id=616baee3d2e2b8174876155c)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+中共709维权律师大抓捕案的14名家属，15日发表了独立候选人联合宣言，表示要参选区级人大代表，谋求能为基层百姓发声、说话。709案是2015年7月9日，中共对23个省份的上百名律师、民间维权人士及其家属，进行的一场大规模刑拘、逮捕事件，部分人士至今下落不明。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1018-AM-（1-3）.001.jpeg)
+709案受害律师王全璋家属李文足表示，他们在维权过程中受到各种打压与刁难，深感平民百姓申诉愿望无门，以及与中共公检法司机关沟通的艰难，所以他们决心作为独立候选人，争取在中共五年一次的区县人大换届选举中参选。
 
+中共所谓人大机关本身就是一个“橡皮图章”，只是共产党用来粉饰虚假民主的摆设而已。709案家属公开挑战中共的行为勇气可嘉，但也将引来中共的更多迫害。
+(本文仅代表作者观点)
 
-**视频字幕：**
+参考链接：[北京709案维权律师家属等14公民宣布独立参选区县人大代表选举](https://www.voachinese.com/a/beijing-citizens-announced-independent-candidacy-for-local-people-rep-elections-20211017/6274043.html)
 
-**前国务卿蓬佩奥：**中国共产党是当今美国最大的外部威胁。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-我们从来不希望与中共国发生战争。但你们应该知道，中共现在认为它与我们国家交战至少已有几十年了。
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
 
-他们利用了美国两党问题造成的美国缺乏决心。我们看到这种趋势，但是很难绕道而行。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-当初苏联的问题很复杂，中共的问题更复杂。
-
-我们与中共国的经济关系交织得太深，但是他们现在所做的一切将我们的子孙置于危险之中。
-
-那天我在这个特殊的地方发表了讲话，就在此处尼克松总统为中国开启了一个机会，但是习近平所选择的方向与此不同。
-
-我在这里强调，美国一定有决心建立一套战略，一个在理解基础之上的国际联盟来说服中共选择和平之路，好过继续努力主宰世界，击垮世界超级强国的企图。
-
-对此，我们只是刚刚开始。
-
-编辑：【英国伦敦喜庄园编辑部】
-
-*字幕：雨中漫步 | 听写：云岭 | 翻译：Roberts | PR：Dasy | 简评/文字整理/编辑：胖丁 | Page：Daoiii*
-
-免责声明：本文只代表警告、作者观点，与Gnews平台发布无关
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-
-[![](https://spark.adobe.com/page/MbRQ0rwMewWV6/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/MbRQ0rwMewWV6/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,41 +2,48 @@
 ---
 
 
-## 共军一旦开战，美军有能力瞬间摧毁解放军
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1601512/)
+## 达美航空首席执行官将不执行强制疫苗政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1601589/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10183.png)[**图片来源**](https://new.qq.com/omn/20211006/20211006A0ASPS00.html)
-**随着台湾海峡局势升级，美海军近日在冲绳西南海域与日、英、荷兰、印、澳海军进行了联合军事演习。美军友人明确地向新中国国联邦表明，一旦开战，美军有能力会在几分钟内把所有的共产党的军事基地铲平。**
-
-据[日本NHK18日消息](https://www3.nhk.or.jp/news/html/20211018/k10013311391000.html?utm_int=nsearch_contents_search-items_002)称：中共国军队正在以台湾为打击目标加强军事活动，这加剧了美中冲突。
-
-虽然国际社会对美国拜登政府在台湾问题上的决心，但新中国联邦始创始人郭文贵于美国当地时间17日直播透露打消了人们的疑虑：（3:32.50时段） 我们一直问美国军界朋友，“[台湾有事，你们美军参不参与](https://gtv.org/video/id=616c1823304e992109b65281)”?郭先生表示：从来没有听到过明确的答案，但是，这次，他们很明确地告诉我：“如果是共产党直接去（打台湾），美军是会参与的。”（美军不参与，日军就不参与）（3：34.38 时段）
-
-郭先生补充说，让我最惊讶的是，美军朋友明确地指出，[美军有能力会在几分钟内把所有的共产党的军事基地铲平](https://gtv.org/video/id=616c1823304e992109b65281)。
-
-该消息援引五角大楼发言人柯比表示，“我们对台湾海峡的和平与稳定有着持久的利益。我们将继续支持有足够自卫能力的台湾。”
-
-- ***延展阅读：***[***美加军舰过航台湾海峡，东部战区回应***](http://www.news.cn/2021-10/17/c_1127967180.htm)***。***
-- ***延展阅读：***[***台湾-中国军机连续三天大量进入美国国务院批评“破坏地区和平”***](https://japan.cna.com.tw/news/apol/202110040001.aspx)
+作者：AsG諾雅
 
 
-该消息称，本月4日和1日，共有56架中国军机进入台湾在西南沿海设置的防空识别区。中国军方正在启动针对台湾的军事行动。对此，[美国强调支持加强台湾防御能力，美中的冲突正在加剧](https://www3.nhk.or.jp/news/html/20211018/k10013311391000.html?utm_int=nsearch_contents_search-items_002)。
 
-几乎与此同时，就在本月2日、3日，美国海军与日本、英国、荷兰等5国在冲绳西南海域进行了包括3艘航母在内的联合舰艇训练，同时，印度和澳大利亚的联合舰艇也参与军事演习。
-
-这些军事动作都在警告，美中之间因为台湾地区安全的冲突正在加剧。台湾的所有专家也都在认为，“出现意外情况的可能性很大。”
-
-- ***延展阅读：***[***简报-内阁官房长官松野：台海和平稳定很重要，期待各方直接对话***](https://jp.reuters.com/article/BRIEF-%E6%9D%BE%E9%87%8E%E5%AE%98%E6%88%BF%E9%95%B7%E5%AE%98%EF%BC%9A%E5%8F%B0%E6%B9%BE%E6%B5%B7%E5%B3%A1%E3%81%AE%E5%B9%B3%E5%92%8C%E3%81%A8%E5%AE%89%E5%AE%9A%E3%81%AF%E9%87%8D%E8%A6%81-%E5%BD%93%E4%BA%8B%E8%80%85%E9%96%93%E3%81%AE%E7%9B%B4%E6%8E%A5%E5%AF%BE%E8%A9%B1%E3%81%AB%E6%9C%9F%E5%BE%85-idJPT9N2R200G)***。***
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-台湾认为，中国“如果大量战机的飞行变得正常，那么处于戒备状态的台空军的负担就会增加，出现意外情况的可能性也会增加。”
 
-对此，伊斯顿先生指出，中国的战斗机和轰炸机不仅在白天进入，而且在午夜进入。“这种做法是前所未有的，考虑到未来对台湾的军事行动。”
+每日邮报10月17日消息，在西南航空公司因强制疫苗接种导致内部危机，在10月8日至12日期间因罢工被迫取消了2500多个航班之际，达美航空首席执行官埃德-巴斯蒂安周四，在接受福克斯商业频道的采访时表示，该公司将不会执行强制疫苗接种政策。
 
-2021年10月18日
+巴斯蒂安称疫苗强制接种是 “分裂性的”，在没有强制规定的情况下，该公司已经达到了90%的高接种率。达美航空将为那些希望不接种疫苗的人提供宗教和医疗原因的豁免。他说，在尊重人们的决定的同时与他们合作，要比威胁解雇他们有效得多。 拜登的行政命令要求拥有100名或更多员工的公司在12月8日前强制接种疫苗，并从员工那里获得全面接种的证明，但允许以至少每周一次的PCR检测代替疫苗接种。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-33.jpg)
+隶属于劳工部的职业安全与健康管理局（OSHA）受命执行该命令，但尚未对所有私营公司实施该要求。这意味着，任何已经开始实施强制性疫苗的公司都为时过早，因为劳工部的指导意见还没有发布出来。
 
-（本文只代表个人观点，与Gnews网站无关）
-*校对：东京樱花团 /平安卿卿*
-*发布：东京樱花团 /平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18.png)
+达美航空是美国唯一 一家在企业层面，公开斥责总统实施的强制疫苗政策的航空公司。当疫苗灾难的真相最终呈现的时候，所有强迫人们接种新冠毒疫苗的人都会被审判，请老百姓坚决不要打毒针，也希望更多企业和机构拒绝配合强制政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-49.jpg)
+参考链接：
+1. [Delta CEO Ed Bastian REFUSES to impose Biden’s ‘divisive’ vaccine mandate: Reveals 90% of staff are already jabbed because they ‘work collaboratively’ with employees and don’t threaten them with being fired](https://www.dailymail.co.uk/news/article-10100909/Delta-CEO-REFUSES-impose-Bidens-vaccine-mandate-Reveals-90-staff-jabbed.html)
+2. [Delta Air Lines CEO Will Not Enforce ‘Divisive’ Vaccine Mandate](https://www.breitbart.com/politics/2021/10/16/delta-airlines-ceo-will-not-enforce-divisive-vaccine-mandate/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

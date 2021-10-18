@@ -2,42 +2,42 @@
 ---
 
 
-## 英国生育率创下新低
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1601494/)
+## 班农专访Q-1: 中国人必须自己反抗暴政获得自由
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1601561/)
 
-作者：文真
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+**简评：**中国人要想获得自由，必须自己起来反抗暴政。在中共大陆危险的处境下，保持和平，拿起手机，多录制视频，通过Gnews和GTV广泛传播，让更多的人知道真相，认清中国共产党的本质和罪恶。如果中国人民自己揭示了正在中国发生的事情，全世界都会聚焦并支持，就不会允许中共政权再残害中国人民。
 
 
 
-根据英国国家统计局的官方数据，2020年英国的生育率降至1.58，达到有记录以来的最低水平。 尽管新冠大流行期间，人们大部分时间待在家中，但是2020年英国人口出生率比2019年下降了4.2%，比2001年的前一个历史低点低了3.1%。而且，英国的出生率已经连续五年呈下降趋势。 英国怀孕咨询处指责中共病毒大流行导致的经济不确定性，是生育率大幅下降的原因之一。 大范围接种新冠疫苗也可能会成为导致生育率和出生率下降的因素。英国是最早普及新冠疫苗的国家之一，接种率已接近70%。英国生殖免疫专家发现新冠疫苗导致女性经期紊乱，甚至闭经。大量医学案例证明，孕期女性接种新冠疫苗可导致流产。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-99.jpg)
-参考链接：
-1.[Demographic Collapse: British Fertility Rate Lowest in History, But Number of Foreign Mothers at Record High](https://www.breitbart.com/europe/2021/10/17/british-fertility-rate-falls-to-lowest-in-history/)
-2. [秘翻在线：英国生殖免疫专家呼吁调查疫苗与经期紊乱的关联](https://gnews.org/zh-hans/1545301/)
+**视频字幕：**
 
-（本文仅代表作者观点）
+**主持人Forrest：**你多次提到中国人想获得自由，应该自己起来反抗暴政。那么你建议中国人民采取什么行动打倒中共政权？ 中国大陆的人在不使自己陷入危险的情况下，可以采取什么实际行动？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+**班农先生：**我认为要做的就是确保自己不会处于危险之中，因为中共政权，特别是现在非常危险，他们已经处境非常困难。
 
-新闻访谈终审：Ryan
-编辑/校对/发稿：为真不破20
+我认为中国老百姓要面临的第一件事，是像恒大地产这样金融崩溃。我认为可在外面进行和平抗议，喊出官员的名字。
 
-**更多资讯，更多关注**
+全界通过Gnews和GTV看到的一些视频片段是惊人的。我想世人都在问，怎么可能这么多钱被偷走？
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+我认为这是全世界第一次有这么多人真正理解中国共产党是中国人民的敌人。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+（中共）沒有合法性。所以对于中国人，我建议在你们不处于危险的情况下，继续录制视频，把它交给有办法传送到Gnews和GTV的人，通过全世界的新中国联邦英雄扩散。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+请记住，如果展示中国人民自己揭示的正在中国发生的事情，整个世界都会聚焦，都会支持他们，不会再允许这个政权折磨中国人民。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+我想不出还有什么比金融危机更能使（中共垮台），因为记住9万亿美元被中共不同家庭和派系以现金或其他价值洗到西方。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+我认为这是显而易见的。
+
+编辑：【英国伦敦喜庄园编辑部】
+
+*字幕：雨中漫步 | 听写：势不可挡 | 翻译：Boxinglady | 校对：Roberts | 简评/文字整理/编辑：胖丁 | Page：Daoiii*
+
+免责声明：本文只代表警告、作者观点，与Gnews平台发布无关
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[![](https://spark.adobe.com/page/eWV1FPlz8Vy9u/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/eWV1FPlz8Vy9u/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
