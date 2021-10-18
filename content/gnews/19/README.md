@@ -2,32 +2,44 @@
 ---
 
 
-## 709维权律师家属宣布独立参选区县人大代表
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1601750/)
+## 官媒报道，中共国可能扩大房产税试点
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1601785/)
 
-作者：在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Download-36-2.jpg)网络图片
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**摘要翻译：**
 
-中共709维权律师大抓捕案的14名家属，15日发表了独立候选人联合宣言，表示要参选区级人大代表，谋求能为基层百姓发声、说话。709案是2015年7月9日，中共对23个省份的上百名律师、民间维权人士及其家属，进行的一场大规模刑拘、逮捕事件，部分人士至今下落不明。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1018-AM-（1-3）.001.jpeg)
-709案受害律师王全璋家属李文足表示，他们在维权过程中受到各种打压与刁难，深感平民百姓申诉愿望无门，以及与中共公检法司机关沟通的艰难，所以他们决心作为独立候选人，争取在中共五年一次的区县人大换届选举中参选。
+来自《亚洲新闻台》的报道，周日（10月17日）官方媒体援引一位前政府专家的话说，中共国可能会将房产税试点扩大到浙江省，这是中共国即将正式通过讨论已久的房产税征收的最新迹象。
 
-中共所谓人大机关本身就是一个“橡皮图章”，只是共产党用来粉饰虚假民主的摆设而已。709案家属公开挑战中共的行为勇气可嘉，但也将引来中共的更多迫害。
-(本文仅代表作者观点)
+据中共官媒报道，中共国于2011年在上海和重庆启动了房产税试点，专家们过去曾建议将试点范围扩大到深圳市和海南省。
 
-参考链接：[北京709案维权律师家属等14公民宣布独立参选区县人大代表选举](https://www.voachinese.com/a/beijing-citizens-announced-independent-candidacy-for-local-people-rep-elections-20211017/6274043.html)
+随着中共国要努力在本世纪中叶实现“共同繁荣”的目标，中共党魁习近平周五呼吁要在房产税方面取得进展，称这有助于减少财富不平等。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+十多年来，中共政府一直在考虑引入房产税，但面临包括地方政府在内的利益相关方的抵制，地方政府依赖土地销售收入，担心这会侵蚀房地产价值或引发市场抛售。
 
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
+然而，中共政府宣称这样的税收可能有助于遏制房地产市场的大肆炒作，随着大型开发商中国恒大集团在债务和流动性危机中挣扎，中共国房地产市场受到了全球的密切关注。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+财政部支持的中国财政科学院前所长贾康建议将房产税试点扩大到富裕的东部省份浙江。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+自2011年上海和重庆试点启动以来，中共政府一直在对上海和重庆的某些类别的高端住宅征收房产税。
+
+今年3月，中共政府在其2021-2025年发展规划中表示，将在未来五年内推动房产税立法，但在该国 2021 年的立法议程中连续第二年没有提及此类税收。
+
+**简评：**中共国老百姓没有一寸土地，没有对房屋的永久产权，中共政府以集体和国家的名义霸占了中国所有的土地，而所谓的集体所有、国家所有，本质就是中国共产党所有，共产党的几大家族以及他们的子子孙孙所有。
+
+中共政府提出征收房产税的理由是“实现‘共同繁荣’，减少财富不平等”，却不敢在中共国推行官员财产公开制度，老百姓的财产完全掌握在中共政府的控制之下，官员的财产却可以隐形，这样的现状，又怎么可能实现“共同富裕”，怎么可能减少财富不平等？在没有监督的一党专政极权统治下，中共国立什么法，收什么税就是中国共产党的一句话，百姓没有丝毫的选择权，所以我们爆料革命提出要消灭中国共产党，成立喜马拉雅监督机构，把国家管理的权力还给人民。希望中国的有志之士都能够加入到我们爆料革命中来，一起为实现新中国联邦的理想而努力。
+
+新闻链接: [China could widen property tax trial, official media outlet reports](https://www.channelnewsasia.com/business/china-could-widen-property-tax-trial-official-media-outlet-reports-2249926)
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
