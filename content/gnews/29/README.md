@@ -2,32 +2,27 @@
 ---
 
 
-## Brnovich:要求司法部调查脸书推动美墨边界危机
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1600292/)
+## 美警告朝鲜明年可能试射远程导弹
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1600422/)
 
-**编译：wenwu**
+俄罗斯莫斯科喀秋莎农场  银河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-313.png)
+编辑上传   水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/N-7.jpg)thenewsmotion.com
+日本共同社10月17日报道，美国国防情报局(us Defense Intelligence Agency)在一份分析朝鲜军事能力的报告中说，朝鲜可能在明年恢复远程弹道导弹试验，并警告说，平壤将继续对美国及其盟友构成“关键的安全挑战”。这份10月15日公布的报告是对朝鲜加强军事力量的最新警告。
 
-亚利桑那州总检察长马克·布尔诺维奇 (Mark Brnovich) 表示，司法部必须调查脸书（Facebook）在美国边境鼓励违法的行为。
+向美国国防部提供情报的国防情报局指出，朝鲜领导人认为核武器“对政权的生存至关重要”，并表示，“将核武器与弹道导弹结合起来，使核导弹作为一个系统可靠地发挥作用，是朝鲜的最终作战目标。”
 
-Brnovich  于周四（15日）[致信](https://www.scribd.com/document/532520112/10-14-Brnovich-Letter-to-Garland#download&amp;from_embed)司法部长梅里克·加兰（Merrick Garland），解释了 Facebook 是如何允许宣传非法进入美国的帖子；此外，Brnovich 还表示，Facebook 甚至还提供有关如何成功非法越境的指导说明。
+美国防情报局表示：“我们有可能在明年看到一枚远程导弹的试验。”该机构还补充说，平壤可能进一步进行地下核试验，以验证武器能力。
 
-Brnovich  说，社交媒体推动这种行动无疑破坏了法治和边境安全。
+朝鲜上一次试射洲际弹道导弹是在2017年11月，这种导弹有可能携带核弹头进入美国本土。自同年9月以来，朝鲜没有进行过核试验。2020年10月，朝鲜在阅兵式上展示了一种新型洲际弹道导弹，并继续试射短程弹道导弹和其他武器。
 
-“Facebook 允许宣传人口贩卖和非法进入美国的帖子可以经常接触该平台的数十亿用户，说明该公司的经营政策严重破坏了法治，”Brnovich  在给加兰的信中说（如下图[推特所示](https://twitter.com/GeneralBrnovich/status/1448773704075280388?s=20)）。“Facebook 公司是直接的法治破坏推动者，因此加剧了发生在亚利桑那州南部边境的灾难。”
+美报告表示：“即使短期内不进行更多的远程系统飞行测试，平壤方面也可能会专注于训练和改进其导弹力量，这对的威慑战略越来越重要。”报告称，预计朝鲜还将努力改进其新型固体燃料弹道导弹，这种导弹可以比液体燃料导弹更快地发射。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-315.png)
+美国防情报局负责人、美国陆军中将斯科特·贝里尔(Scott Berrier)在报告中称，“金正恩迫使朝鲜走上了发展核武器的道路，并将其与能够打到韩国、日本、美国的弹道导弹相结合。”
 
-在此之前，这家科技巨头声称可以向移民提供信息，可以减少他们被人口贩卖者和贩毒集团利用。Facebook 表示，该公司政策的制定“是为了确保我们禁止与人口贩卖业务有关的内容，但不干涉人们行使寻求庇护的权利，这是国际法所承认的”（脸书或成为了犯罪分子不可或缺的一环、或直接参与了犯罪行为）。
+他认为朝鲜可以以此将美国置于危险之中，从而威慑华盛顿，迫使华盛顿做出对平壤有利的政策决定。而这一点在朝鲜的权威言论中已经得到了验证。
 
-Brnovich 说， Facebook 是乔·拜登边境危机的直接推动者和促成者。他已经要求进行联邦调查。
+参考链接：
 
-（文章仅代表作者观点与GNEWS无关）
-
-新闻来源：[ajuede.com](https://www.ajuede.com/2021/10/ariz-attorney-general-brnovich-doj-must.html) |发布时间：2021年10月15日
-
-* * *
-
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
+[https://english.kyodonews.net/news/2021/10/c473dd3f1a13-n-korea-may-test-long-range-missile-over-next-year-us-report.html](https://english.kyodonews.net/news/2021/10/c473dd3f1a13-n-korea-may-test-long-range-missile-over-next-year-us-report.html)

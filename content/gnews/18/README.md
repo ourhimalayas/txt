@@ -2,69 +2,207 @@
 ---
 
 
-## 中国恒大面临三期债券利息支付期限
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1600454/)
+## 打不打台湾疫苗都会停，世界经济都会崩塌
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1600500/)
 
-【**评论】***恒大集团是中共利用公司和基金等名义变相掠夺资本财富的代表，是资本市场”庞氏骗局”术的典型。中共把吸取的天量中国人民血钱财富，转而包装成公司和基金，转而到西方资本市场上市，对西方国家资本进行一种变相的财富掠夺，使被层层剥削的各国人民成为邪恶集团的受害者。中共及其邪恶联盟在当前的债券违约风险中将导致金融海啸，加之中共生化武器–新冠疫苗大灾难的一同到来，必将引爆世界经济危机，世界经济大萧条很快到来。。*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/11111-1-e1634507363778.jpg)中国恒大面临的压力正在给现代置地和鑫源地产等规模较小的竞争对手带来压力。
-© 盖蒂图片社
-据《日经亚洲地区财经》2021 年 10 月 11 日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/122-adt0y-n71er.jpg)
+[https://gtv.org/video/id=616c116bd2e2b81748763124](https://gtv.org/video/id=616c116bd2e2b81748763124)
 
-随着正式违约的临近和债权人开始联手试图从陷入困境的房地产开发商那里收回资金，中国恒大集团周一面临更多的债券利息到期。
+**郭文贵**
+**Miles Guo**
 
-根据Refinitiv汇编的数据，恒大将需要在纽约时间午夜之前支付三张半年度离岸债券息票，总额为1.481亿美元。这家全球负债最多、负债超过3000亿美元的开发商在9月底错过了两次总额为1.29亿美元的离岸债券付款，在年底前还有 5.73 亿美元到期。
+不管他打不打台湾，疫苗的事情都会停
+Regardless of whether he fights Taiwan or not, the vaccination will stop
 
-该公司仍没有向银行、供应商和小投资者付款，并被迫暂停其在中国 800 个开发项目中的大约一半的工作。它希望出售资产并吸引新投资者以应对流动性危机，中共的媒体报道称，该公司即将将其物业管理业务的多数股权出售给竞争对手合生发展控股。
+一定会停的
+It will definitely stop
 
-一家持有恒大债券的基金驻香港的投资组合经理表示：“与合生国际的交易确实让恒大在宽限期结束前支付了息票。然而，看看即将到期的债务，这笔钱的简直不值一提。”
+不会太长的时间
+It will not be too long
 
-根据恒大物业在香港的最后收盘价，母公司持有的恒大物业服务集团 61% 的股份价值 43 亿美元。
+几个月以内一定会停
+It will definitely stop within a few months
 
-恒大在最近的一份文件中表示，其明年到期的债务总额为人民币 2,400 亿元（合 372 亿美元），而截至 6 月 30 日的现金和银行存款为人民币 1,616 亿元。包括2022年的77亿美元的到期债券据。
+这是一定的
+This is certain
 
-根据招股说明书，恒大有30天的宽限期来弥补其离岸债券错过的票息支付。它未能在 9 月 23 日支付第一笔息票，这意味着距离正式违约还有不到两周的时间。
+不管他打不打台湾
+No matter whether he fights Taiwan or not
 
-两名债券持有人表示，他们正在与顾问合作，向恒大及其法律代表提出索赔要求，以寻求付款。如果失败，他们计划成立一个债权人委员会来保护他们的利益并确保他们在清算程序中有发言权。惠誉评级估计，如果恒大破产，投资者可能收回不足10%的到期款项。
+疫苗导致死人
+the vaccine will cause deaths
 
-Kirkland & Ellis 律师事务所和投资银行 Moelis 代表持有 50 亿美元恒大债务的投资者联系了恒大开发商，以寻求有关该公司财务状况的信息，并保证在谈判收回债券时不会低价出售离岸债券。他们在周五与债券持有人的电话会议中表示，在第一次错过债券利息支付之前就与恒大进行了接触，但顾问们还没有“有意义的接触”。
+未来你会看到最火的最涨价的
+You will see that the hottest and the most expensive in the future
 
-“我们不希望出现所谓的离岸资产以某种方式货币化的情况，这些资产的价值被泄露给其他各方，无论是在岸还是其他地方，”重组合伙人尼尔-麦克唐纳在 Kirkland & Ellis 的电话中说。
+就是装尸袋，这是一定的
+is the cadaver bags. It’s for sure.
 
-恒大也背负着表外债务，例如出售给小投资者的债务和财富管理信托贷款。
+而且会导致世界上几年来，因为打了疫苗以后的反应
+And it will cause (fear) globally for several years because of the reactions after be-ing vaccinated
 
-它还为附属公司发行的债券提供担保。其中一项债务是来自 Jumbo Fortune Enterprises 的 2.6 亿美元票据，这是一家涉及恒大主要国内运营部门的合资企业。据彭博社报道，该债券于 10 月 3 日到期，尚未支付。
+3年、5年的期限
+3 or 5 years of time period
 
-彭博社称，债券持有人联合成立了债权人委员会，White & Case 律师事务所就 Jumbo Fortune 向几位投资者提供建议。
+这种恐惧和恐慌一定是到处无处不在
+This kind of fear and panic must be everywhere
 
-恒大的困境凸显了中国房地产行业的过度杠杆。大大小小的公司都在努力按时偿还债务。
+他跟打台湾都没关系
+It has nothing to do with fighting Taiwan
 
-花样年控股是一家规模较小的深圳开发商，本月未能赎回2.057亿美元的债券，该公司正争先恐后地筹集现金。10 月 5 日，标普全球评级下调了上海开发商新力控股的评级，该公司上个月股价暴跌，理由是“违约风险迫在眉睫”。Sinic 拥有 2.46 亿美元的离岸债券，将于 10 月 18 日到期。
+然后呢
+and then
 
-其他中国开发商正在寻求获得债券持有人许可的​​时间来偿还债务。
+这个经济上，不管打不打台湾
+it doesn’t matter whether it fights Taiwan or not, economically
 
-现代置地（中国）正在寻求将 10 月 25 日到期的 2.5 亿美元债券延期三个月，周一表示，其董事长和总裁将在此期间共同提供 1.24 亿美元贷款以提高流动性。
+美国、世界、欧元、经济都会崩塌
+the United States, the world, and the euro economy all will collapse
 
-同样在周一，鑫源地产表示，预计90%的债券持有人将接受交换新两年期债券的要约，以取代本周五到期的2.29亿美元债券。它还将偿还本金的5%。不过，惠誉评级将鑫源评级从“CCC”下调至“C”，这是违约前的最后一个等级。它称该公司的举动是“陷入困境的交易”。
+供应链会奇怪地
+the supply chain will be strangely
 
-另一家开发商粤港大湾区控股公司正寻求用新的两年期票据替代将于12月到期的2.772 亿美元债券。
+你无法想象地暴涨
+and you can’t imagine it soaring
 
-标普估计，受其评级的房地产开发商将在明年赎回 4800 亿元人民币的境内外债券，几乎相当于其自由现金储备的四分之一。
+各……有些东西涨到你无法想象
+each…Some things have risen beyond your imagination
 
-该机构在上月底的报告中表示：“几个月来，中国一些实力较弱的房地产公司一直受到恒大形势的影响。随着一些更边缘开发商的债券价格下跌，他们无法获得离岸再融资。到期集中且流动性恶化的开发商面临债务违约风险。”
+很多人说是有人不干活啦
+Many people have said that some people are not working
 
-原文链接：[https://asia.nikkei.com/Business/Markets/China-debt-crunch/China-Evergrande-faces-triple-deadline-for-bond-interest-payments](https://asia.nikkei.com/Business/Markets/China-debt-crunch/China-Evergrande-faces-triple-deadline-for-bond-interest-payments)
+很多人说这个物价了，都不是
+Many people have blamed the pricing, neither.
 
-（本文评论仅代表个人观点）
+它有整个这些年的经济积累的各方面
+It has all aspects of economic accumulation throughout these year
 
-翻译：洛杉矶盘古农场 – 蓝精灵
+根本问题还是世界上经济失调
+The fundamental problem is the economic imbalance in the world
 
-校对：洛杉矶盘古农场 – Mike Li
+还有这个全世界的所谓的全球的经济化、全球化
+as well as the so-called global economization, globalization, trade, and global trade in the world
 
-评论：洛杉矶盘古农场 – 滴水穿石
+贸易、全球贸易化，和由共产党这个巨大的影响造成的不平衡
+Trade, global trade, and the imbalance caused by the huge influence of the Com-munist Party
 
-编辑：洛杉矶盘古农场 – 滴水穿石
+这个人类都要付出代价
+The mankind will have to pay the cost for that
+现在印度的工人上来了
+Now the Indian workers are coming up
 
+会对一些某些贸易、运输领域会下来
+some trade and transportation fields will come down
 
+然后再一个
+And then, another one is
+
+非洲还有东南亚现在上来了
+Africa and Southeast Asia are now coming up
+
+像越南这些。但都解决不了
+like Vietnam etc. But all will not be solved
+
+根本上
+Fundamentally,
+
+美国整个供应链从中共国转到东南亚
+it takes time for the entire supply chain of the United States to transfer from the CCP to Southeast Asia
+
+转到欧洲和东欧国家
+to Europe and Eastern European countries
+
+它需要一个时间
+It needs time
+
+所以说它物价是不平衡的
+That’s why it said that the produces prices are unbalanced
+
+它会突胀。再一个就是运输业，还有一个能源业, 大变化
+It will inflate. Other ones are the transportation industry and the energy industry. There will be a big change.
+
+这跟台湾都没有关系
+This has nothing to do with fights Taiwan
+
+打台湾只是加剧了这几件事的快速发生
+The fight against Taiwan has only aggravated the rapid occurrence of these events
+
+它跟它不是绝对关系
+It is not absolutely related to it
+
+一定是这结局，有没有打台湾（这件事）
+It must be this outcome, whether he fights Taiwan or not
+
+所以说现在这个美国，它是很夸张的这个政治短视
+That’s why the United States now is very politically shortsighted
+
+还有一个美国现在现任政府(问题)
+and another one is the current US government (issues)
+
+他们2022年的中期大选
+their midterm elections in 2022
+
+还有疫苗的问题
+and the issue of vaccines
+
+他们都知道好日子不多
+All of them aware that the good days won’t last long
+
+所以说把台湾人卖掉，根本不算什么事
+Therefore, selling Taiwanese people is not a matter at all
+
+这也符合美国一贯以来的冷血
+This is also match the United States character which has always been cold-blooded
+
+还有一个就是美国的现实的资本主义
+Also, true nature of actual capitalism in America
+
+还有华尔街的黑暗势力的控制
+and the control of the dark forces on Wall Street
+
+这跟……都没啥关系
+These have nothing to do with….
+
+不管打不打台湾，这事都会发生
+This will happen regardless of whether Taiwan is facing the war or not
+
+它只是加速的发生
+Hitting Taiwan just accelerated all of this
+
+这关键说打不打共产党的问题
+The key to this is the question of whether or not the Communist Party will be de-feated
+
+我可以告诉你
+I can tell you that
+
+打不打台湾，中美之间
+whether it (the CCP) fights the Taiwan or not, between China and the US
+
+必然脱钩，必然有一战
+will inevitably decouple and have a battle
+
+它就是一个你死我活的关系
+It (the CCP fights Taiwan) is a life-and-death relationship
+
+没有任何逻辑性
+without any logical ideology
+
+———————————————————
+
+**原视频链接:**[** **https://twitter.com/se1y7cblljselva/status/1447502562257563651?s=24](https://twitter.com/se1y7cblljselva/status/1447502562257563651?s=24)
+
+Date: 10/15/2021
+Regardless of whether fighting Taiwan or not, the vaccination will stop and the world economy will collapse
+原视频日期：2021/10/10
+任务编号：KC174(2530)
+视频时间段 : 0:00-2:15
+
+英听校: 洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

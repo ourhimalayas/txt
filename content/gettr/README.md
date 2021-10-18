@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/18/2021 12:43 AM (UTC)`
+
+10/17/2021 Miles Guo: Revisit the CCP’s real estate sector - Just Ping An alone, it took way over RMB 9 trillion; Peter Ma (Mingzhe) became the No. 1 godfather in the Communist China via bribery; The CCP’s economy is really a mess, and even the CCDI or the special investigation team has no idea about the actual amount of money involved<br/><br/>10/17/2021文贵直播：再谈中共国房地产 - 仅平安就干掉了9万多亿人民币，马明哲通过行贿成为中共国的大瓢把子；中共烂账真的是一笔糊涂账，连中纪委、专案组对真实数字都毫无概念<br/>
+![img](https://media.gettr.com/group15/getter/2021/10/18/00/43/c82515a1-d4d1-6d57-aaed-cfa9e9b968fa/out.jpg)
+
+---
+
 `@miles 10/18/2021 12:31 AM (UTC)`
 
 10/17/2021 Miles Guo: The Taiwanese who are afraid of wars and the entrepreneurs of the Communist China terrified by nationalization have bought lots of properties in Japan; My buddy who used to work for the CCDI and fled to Japan had already hidden many properties over there. This buddy pointed out that my revelation regarding artemisinin being the antidote once again changed the world and that artemisinin is the secret of the Communist China<br/><br/>10/17/2021 文贵直播：怕打仗的台湾人和恐惧国有化的中共国企业家在日本大量买房；从中纪委逃到日本的哥们早就在日本藏匿了大量房产，他指出，文贵说出青蒿素是解药再一次改变了世界，青蒿素是中共国的秘密！<br/>
@@ -293,13 +300,6 @@ Henry Reitzug博士：在注射带有被改造氨基酸的新冠mRNA疫苗进入
 
 10/12/2021 Miles Guo’s GETTR: The “hot money” in the world all went to the Darknet, and energy and commodity prices will rise first and then fall. The accomplices of the COVID vaccine disaster will pay their price. With more and more people waking up, COVID vaccination cannot be pushed anymore. This shows the power of the Whistleblowers' Movement and the New Federal State of China!<br/><br/>10/12/2021 文贵盖特：全世界的热钱都去了暗网，能源和大宗商品的价格将先涨后跌；疫苗灾难的帮凶都将付出代价，而越发多的人在觉醒，打疫苗也无法再推行下去，这就是爆料革命、新中国联邦的力量！
 ![img](https://media.gettr.com/group14/getter/2021/10/13/02/25/fff23e8f-2772-ef20-e375-ac28c73065c2/out.jpg)
-
----
-
-`@miles 10/13/2021 2:18 AM (UTC)`
-
-10/12/2021 Miles Guo’s GETTR: Although Japan, Germany, Britain, and Taiwan know that the CCP is fraudulent, they are still investing lots of money in the Communist China; The CCP’s economic unrestricted warfare will have enormous and serious consequences for the entire world!<br/><br/>10/12/2021 文贵盖特：日本、德国、英国和台湾，明知中共造假，却仍向中共国投入了大量资金，中共经济超限战将对全世界造成巨大的严重后果！<br/>
-![img](https://media.gettr.com/group7/getter/2021/10/13/02/18/6ea9a92a-6f7e-8c8e-ff03-29d6cba77357/out.jpg)
 
 ---
 
