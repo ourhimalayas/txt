@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/18/2021 10:56 PM (UTC)`
+
+10/18/2021 Miles Guo’s GETTR: It’s karma! Both Pan Shiyi and Zhang Xin, who pushed to repatriate me, are now wanted by the CCP! When taking the artemisinin-piperaquine tablets and artemisinin, please consult the doctors first and be very cautious! We will have a key person provide more information on taking artemisinin<br/><br/>10/18/2021 文贵盖特：当年推动遣返文贵的潘石屹和张欣遭到报应，二人均被中共通缉；在服用青蒿素哌喹片和青蒿素时，请大家遵从医嘱，务必小心！我们将联系重要人士提供更多关于服用青蒿素的信息<br/>
+![img](https://media.gettr.com/group34/getter/2021/10/18/22/56/b1f28994-ba6b-10bb-73e5-511132784536/out.jpg)
+
+---
+
 `@miles 10/18/2021 10:54 PM (UTC)`
 
 10/18/2021 Miles Guo’s GETTR: The Jade Cong, Jade Yue Axe, and Jade Bi of the Liangzhu Culture dating back over 5,000 years are the symbols of separation of powers; Although the Chinese dragon head structure of the Pangu Plaza has been destroyed by the CCP, it implies the Communist China is like a group of dragons without the lead, and this is exactly what Jade Cong means - CCP, you are finished!<br/><br/>10/18/2021 文贵盖特：5000多年前良渚文化的玉琮、玉钺、玉璧象征着三权分立；盘古龙头虽被中共毁掉，但这意味着中共国群龙无首，群龙无首就叫玉琮 - 中共，你完蛋了！<br/>
@@ -292,13 +299,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 10/13/2021 Miles Guo: The Whistleblowers’ Movement will conduct a comprehensive disclosure of the judiciary system in the West, and this will be the fundamental condition for changing the West and can also protect our overseas Chinese. The threats caused by the CCP’s real estate is part of its economic unrestricted warfare and will become one of the most key motives for the CCP to invade Taiwan. No one can stop the collapse of the CCP’s real estate and financial sector！<br/><br/>10/13/2021 文贵直播：爆料革命将对西方的公检法大起底，这将是改变西方的根本基础并且能保护海外华人；中共房地产带来的威胁是其经济超限战的一种手段，且将成为中共攻台的最大动机之一；无人能阻止中共房地产和金融界的崩溃！<br/>
 ![img](https://media.gettr.com/group44/getter/2021/10/14/06/17/6f4c61b7-6e02-8153-28d5-abd841ede519/out.jpg)
-
----
-
-`@miles 10/14/2021 2:05 AM (UTC)`
-
-10月13号：这是真的么？但我相信真正的较量的背后老板：还是江志成！【七哥您好! 这是香港阿里巴巴的一个月走势图。大概从马云去香港溜达开始，从最低的130元十天左右拉升了30%。<br/><br/>通过这么一出资本戏，似乎是传递一个信号，就是习就是个纸老虎，配合胡舒立的猪头，还有吃螃蟹。营造出一种：你搞不死老子，我胡汉三又回来啦，市场还是认我马云的还乡团气氛。】
-![img](https://media.gettr.com/group22/getter/2021/10/14/02/93c9c0a1-ede7-ba04-3d44-55b50724e1f3/5a4344014ad55cb816bfea51d9b0533f.jpg)
 
 ---
 
