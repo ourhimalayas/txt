@@ -2,9 +2,27 @@
 ---
 
 
-## 美国前国务卿科林-鲍威尔将军去世
-` Itana` [轉載自GNews](https://gnews.org/zh-hans/1602007/)
+## 中共一旦武攻台湾，美军三分钟铲平其军事基地
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1602116/)
 
-By Himalaya Italy Ana
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
 
-美国前国务卿和参谋长联席会议主席科林-鲍威尔将军于美国时间今天上午因中共病毒的并发症而去世。他的家人说他已经完全接种过疫苗，并已接受了多年的癌症治疗。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-17.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：2021.10.18早GTV新闻访谈
+
+[https://gtv.org/broadcast/watch/616d685d304e992109b7345d](https://gtv.org/broadcast/watch/616d685d304e992109b7345d)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

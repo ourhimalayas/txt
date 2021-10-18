@@ -2,24 +2,31 @@
 ---
 
 
-## 突发！鲍威尔死于新冠并发症
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1602089/)
+## 有声|波音公司工人抗议疫苗强制令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1602241/)
 
-**翻译：**沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-18-110708-edited.png)图片来源：网络
-美国有线电视新闻网(CNN)刚刚消息，美国首位黑人国务卿、前美军参谋长联席会议主席、共和党人科林·鲍威尔因新冠并发症去世，终年84岁。
+配音：香草山美食部 – 玫瑰园
 
-报道称，科林·鲍威尔的家人在脸书上公布了他的死讯，并称他死于新冠并发症。
+10月15日，在华盛顿州埃弗雷特的波音工厂外，波音员工和其他人和平抗议公司的疫苗强制令。在雨中抗议人群同过往车辆挥手相互呼应。
 
-鲍威尔曾在乔治·H·W·布什执政期间任美军参谋长联席会议主席，在海湾战争中指挥美军与伊拉克军队作战。乔治·W·布什2000年当选总统后，鲍威尔于2001年至2004年担任国务卿。美国2003年指称伊拉克藏匿大规模杀伤性武器，发动伊拉克战争。
+波音公司曾在10月12日表示，根据拜登总统的行政命令，将要求其12.5万名美国员工在12月8日前接种疫苗。
 
-**评：**病毒危机、疫苗危机正在延续，为了自己和家人的健康，请持续关注Gnews，G-TV & Gettr。
+这一要求遭到了大量员工的抵制和抗议。每个人都有选择不接种的权利，政府和企业不能强迫人们做事情。有相当比例的员工已经认识到疫苗的部分真相，新冠疫苗并没有获得正式授权，而是在缺失“知情同意”的情况下，不人道的“人体实验药物”。
 
-新闻来源：[Colin Powell, first Black US secretary of state, dies of Covid-19 complications amid cancer battle – CNNPolitics](https://edition.cnn.com/2021/10/18/politics/colin-powell-dies/index.html)
+在德克萨斯州，共和党州长格雷格·阿伯特10月11日发布行政命令，禁止包括私人雇主在内的任何实体强制使用新冠病毒疫苗，波音公司宣布他们的强制令不立即适用于该州的工厂。蝴蝶效应将传遍美国各地，德州和佛州发起的法律诉讼，也为其他地区反抗的人们提供了参考。
 
-免责声明：文章观点仅代表作者本人，与GNEW平台无关！
+我们相信，随着疫苗真相的不断被揭露，民众自由权利意识的不断觉醒，为自由争取权力的人们将很快取得最后的胜利。
 
-编辑/发布：LILY
+文字版原文：[波音公司工人抗议疫苗强制令](https://gnews.org/zh-hans/1599776/)
 
-20211018
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

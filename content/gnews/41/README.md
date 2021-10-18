@@ -2,32 +2,21 @@
 ---
 
 
-## 国际人权活动人士在雅典卫抵制北京冬奥
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1601829/)
+## 因面临集体诉讼美国防部疫苗接种授权恐难被执行
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1602025/)
 
-作者：在远方
+采编：风云小哥   撰稿：文明(添草灭共)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/wj.jpg)
+图片来源：NTD
 
 
+据美国媒体《新唐人》10月17日报道，来自美军五个军种的军人、联邦雇员和联邦文职承包商的多名人士，针对【国防部新冠病毒疫苗接种规定】进行了集体诉讼：原告提出的【疫苗接种宗教豁免】请求被当局拒绝，并且因寻求该豁免而遭到不光彩退伍、军事法庭起诉、解雇及其他方面的“威胁”。 
 
-10月17日，国际人权活动人士聚集在希腊首都雅典卫城，举行了抗议北京冬奥会的活动。抗议人士手举自由西藏的旗帜和写有“自由香港—革命”的条幅，抗议中共恶劣的人权记录，要求抵制北京冬奥会。警方拘捕了抗议者中一位18岁的西藏学生和一位来自香港的美国公民。人权组织称，按照流程本周二要将圣火交给给北京冬奥会代表，他们会就此继续进行抗议。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1018-AM-（1-3）.004.jpeg)
-由于中共在新疆的种族灭绝和反人类罪行，目前已有多个国际人权组织、美国国会议员和欧洲议会公开呼吁抵制北京冬奥会，新中国联邦也向奥组委发出了要求停办北京冬奥会的公文，呼吁制止这场堪比当年纳粹德国柏林奥运会的活动 。
-(本文仅代表作者观点)
+该诉状已提交至佛罗里达州中区地方法院，并将总统乔-拜登、国防部长劳埃德-奥斯汀和国土安全部长亚历杭德罗-马约卡斯等列为被告。要求法院发布临时限制令以阻止该疫苗接种授权的生效，并最终颁布禁令，阻止国防部执行拜登政府的该疫苗接种授权。
 
-参考链接：[国际人权活动人士在雅典卫城抗议北京冬奥会](https://www.voachinese.com/a/athens-protest-beijing-winter-games-20211017/6274118.html)
+（以上内容仅代表原文信息和作者个人观点）
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+编辑，校对，发稿：硫酸羟氯喹64
 
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[原文链接：](https://www.ntd.com/pentagon-faces-class-action-lawsuit-over-vaccine-mandates-on-military-federal-employees-and-contractors_689876.html)

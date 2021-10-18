@@ -2,17 +2,26 @@
 ---
 
 
-## 南非药管局称俄疫苗有艾滋病毒风险
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1602397/)
+## 以色列的无声快递服务
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1602487/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10183.jpg)图片来自网络
-南非药品管理局宣布拒绝接种俄罗斯人造卫星五号疫苗，因为它会增加男性感染艾滋病毒的风险。该国目前只有四分之一的人口接种了冠状病毒疫苗。
+新闻来源：德国世界报报网络版
 
-但是俄罗斯开发疫苗的中心 Gamaleya 表示，它将提供证据证明南非的担忧完全没有根据，他说，有关 HIV 高危人群的研究结果只是基于小规模研究。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-免责申明：本文只代表译者观点，与Gnews无关
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Drohnenlieferung-Eis-Sushi-Blutspende-5.jpg)
 
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/10/18/agenzia-farmaco-sudafricana-sputnik-aumenta-rischio-hiv\_483404e2-dd00-42ee-83cb-26b8be904cbf.html](https://www.ansa.it/sito/notizie/topnews/2021/10/18/agenzia-farmaco-sudafricana-sputnik-aumenta-rischio-hiv_483404e2-dd00-42ee-83cb-26b8be904cbf.html)
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+资料来源：Dror, Ben David, 以色列创新局
+
+以色列用无人机运送包裹，可能在几年后成为现实。在特拉维夫的一家公司，正在测试这种空中送货服务。
+
+在离地面两米的地方，无人机突然停止飞行。经过紧急警告附近的人群后， 无人机进入着陆地区并降落。 无人机带着一个鞋盒大小的盒子，里面是冰激凌。它仍然是冻结状况的，证明无人机送货服务实验已经成功了。
+
+这些天，几十架无人机在以色列大都市地区上空嗡嗡作响，运送冰激凌、寿司和血浆。它们是国家无人机计划的一部分，政府希望通过该计划建立一个空中货物运输的网络。交通堵塞和汽车尾气将成为送货服务的过去。在未来，比萨饼出租车和包裹快递员将来自空中， 但愿这个无声的快递服务能够顺利实现。
+
+[https://www.welt.de/politik/ausland/plus234477574/Eis-Sushi-Blutspenden-Drohnenpost-Israels-lautloser-Lieferservice.html](https://www.welt.de/politik/ausland/plus234477574/Eis-Sushi-Blutspenden-Drohnenpost-Israels-lautloser-Lieferservice.html)
+
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+
+责任编辑/发布： Shuizhuyu

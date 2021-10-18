@@ -2,19 +2,17 @@
 ---
 
 
-## 恒大拖累中共国地产股价继续下跌
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1602229/)
+## 南非药管局称俄疫苗有艾滋病毒风险
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1602397/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10183.jpg)图片来自网络
+南非药品管理局宣布拒绝接种俄罗斯人造卫星五号疫苗，因为它会增加男性感染艾滋病毒的风险。该国目前只有四分之一的人口接种了冠状病毒疫苗。
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/E-3.jpg)breakingviews.com
-美东时间10月18日报道，中共国房产开发商恒大的危机继续对中共国其他开发商的股价产生负面影响。
+但是俄罗斯开发疫苗的中心 Gamaleya 表示，它将提供证据证明南非的担忧完全没有根据，他说，有关 HIV 高危人群的研究结果只是基于小规模研究。
 
-跟踪主要建筑公司股票的中国沪深300地产指数瞬间下跌超过2%，香港恒生中国内地地产业指数(HSMPI)下跌0.3%，恒生地产指数下跌0.7%。
+免责申明：本文只代表译者观点，与Gnews无关
 
-据彭博社报道，出于同样的原因（恒大危机），中共国的房地产销售在9月和8月与去年同期相比分别下降了17%和19%。根据花旗集团的报告，恒大9月份的销售额下降了93%。如果该公司再次拖欠1.19亿美元的债务，预计将在10月23日被迫违约。
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/10/18/agenzia-farmaco-sudafricana-sputnik-aumenta-rischio-hiv\_483404e2-dd00-42ee-83cb-26b8be904cbf.html](https://www.ansa.it/sito/notizie/topnews/2021/10/18/agenzia-farmaco-sudafricana-sputnik-aumenta-rischio-hiv_483404e2-dd00-42ee-83cb-26b8be904cbf.html)
 
-参考链接：
-
-[https://quote.rbc.ru/news/short\_article/616d0ff29a7947ce3355f688](https://quote.rbc.ru/news/short_article/616d0ff29a7947ce3355f688)
+责任编辑/发布：意大利达芬奇农场   萧亦
