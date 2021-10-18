@@ -2,31 +2,31 @@
 ---
 
 
-## 有声|完全疫苗接种加州大学生因病毒并发症去世
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1600378/)
+## 美国律所中止代表港大移除六四纪念雕像
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1600421/)
 
-配音：香草山美食部 – 玫瑰园
+**撰稿：日本东京方舟农场 海星**
 
-21岁的美国加州佐治亚大学的肖恩·库恩（Shawn Kuhn），在完全接种新冠疫苗后，死于近期突然感染的新冠病毒，他在去世之前与病魔战斗了大约6个星期。
+10月15日，美国国际律师事务所Mayer Brown发表声明，表示将不再代表香港大学要求支联会从港大校园中移除六四纪念雕像“国殇之柱”。
 
-库恩是运动和体育专业的大四学生，身体健康，在竞技项目中获奖，在校园兼职私人教练。
+据《德国之声》报导，美国律师事务所Mayer Brown代表香港大学要求移除六四纪念雕像的行为，违背了其在西方的声明，二十多个非营利团体敦促Mayer Brown停止在该事件中代表港大。于是，该公司于10月15日在一份声明中表示，今后将不会在这件事上代表香港大学。
 
-尽管新冠病毒对30岁以下人群危险性极低，但在学校和工作场所的胁迫下，年轻人正在大规模的接种，库恩和许多比他更年轻的人在这种环境下，被迫接种了含胚胎细胞的毒针。
+美国参议员格雷厄姆（Lindsey Graham）指出：“美国律师事务所正在听从共产党的命令，抹去对在天安门广场为自由献身的年轻勇敢的中国学生的记忆。”参议员克鲁兹（Ted Cruz）也谴责了Mayer Brown公司，他说：“美国公司应该为成为拆除雕塑的同谋而感到羞耻。”
 
-前辉瑞公司的员工凯伦·金斯敦此前揭露，较未接种时，人体感染病毒的机率增加了3倍，而当接种第二剂后，随着时间的推移，人体免疫力逐渐减弱，感染率将持续升高。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/59488847_303.jpg)图片来自于网络
 
-今年6月，加州15岁少年接种辉瑞疫苗第二针2天后，死于“应激性心肌炎并伴有冠状动脉炎症”。此前，美国疾病控制和预防中心（CDC）也承认，接种mRNA疫苗的年轻男性有罹患心肌炎和心包炎的风险。如果美国政府仍强制推行疫苗接种令，随着在校学生大面积接种疫苗，越来越多的年轻人将因此受到伤害，甚至死亡。
+10月8日，Mayer Brown代表香港大学向已被迫解散的支联会发出律师函，要求其在10月13日下午5点之前移除六四纪念雕像“国殇之柱”，否则校方将会视为遗弃物品处置。
 
-文字版原文：[完全疫苗接种加州大学生因病毒并发症去世](https://gnews.org/zh-hans/1596254/)
+六四纪念雕像“国殇之柱”是由丹麦艺术家高志活（Jens Galschiøt）创作，自1997年以来一直矗立在港大校园内展示。雕塑由50具表情痛苦的示威者尸体堆叠在一起，以纪念1989年在北京天安门广场被中共军队镇压的示威者。
 
-音频处理：喜山必胜Maverick
+*注：本文仅代表作者观点，与 Gnews无关*
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*参考链接：*
+
+[美国律所中止代表香港大学移除“国殇之柱”](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD%E5%BE%8B%E6%89%80%E4%B8%AD%E6%AD%A2%E4%BB%A3%E8%A1%A8%E9%A6%99%E6%B8%AF%E5%A4%A7%E5%AD%A6%E7%A7%BB%E9%99%A4%E5%9B%BD%E6%AE%87%E4%B9%8B%E6%9F%B1/a-59525622)
+
+[港大要求支联会移除六四“国殇之柱”](https://www.dw.com/zh/%E6%B8%AF%E5%A4%A7%E8%A6%81%E6%B1%82%E6%94%AF%E8%81%94%E4%BC%9A%E7%A7%BB%E9%99%A4%E5%85%AD%E5%9B%9B%E5%9B%BD%E6%AE%87%E4%B9%8B%E6%9F%B1/a-59457581)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

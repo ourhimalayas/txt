@@ -2,30 +2,44 @@
 ---
 
 
-## 中共国测试新的具有核能力的导弹
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1600180/)
+## 意大利爆发针对疫苗授权的抗议
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1600228/)
 
-新闻来源：德国法兰克福报网络版
+![](https://assets.gnews.org/wp-content/uploads/2021/10/worldbank_malpassdavid_ahmajunaid_alemaheyumengistu_102619getty-7.jpg)法新社/盖蒂图片社
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+周五，意大利各地爆发了抗议活动，因为该国的强制接种COVID-19疫苗的规定生效了，而该规定是世界上最严格的规定之一。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/chinesische-und-amerikanische.jpg)
+意大利所谓的“绿色通行证”规定于周五生效，这意味着工作人员必须出示证明，证明他们在过去六个月内已完全接种了疫苗、检测呈阴性或从COVID-19中康复。
+
+意大利已经需要绿色通行证才能进入许多室内场所，例如餐馆、博物馆、剧院和乘坐一些火车。
+
+现在，如果雇主和雇员未能执行或遵守这一规定，他们都将面临罚款。 未能执行要求的雇主可能会被处以400至1,000欧元的罚款，而在工作中未出示绿色通行证的雇员，可能会被处以600至1,500欧元的罚款，并且还将被视为未经批准的旷工。
+
+绿色通行证计划，确实允许那些因已证实的健康状况而无法接种疫苗的人获得医疗豁免，但没有豁免的人必须每48小时接受一次COVID-19检测才能去工作。雇员必须自己支付超过17美元的检测费用，除非他们的雇主为其提供免费检测，因为政府没有向所有人提供免费检测。
+
+意大利的两个主要港口，里雅斯特和热那亚发生了两次大规模抗议活动，工人们高喊“没有绿色通行证”和“自由”。
+
+据报道，这些抗议活动以及罗马和米兰其它抗议活动都是和平的。
+
+在意大利，85%12岁以上的人至少接种了一次冠状病毒疫苗。在美国，77%12岁及以上的人至少接种了一次疫苗。
+
+上周末，众议院议长南希·佩洛西（Nancy Pelosi）访问梵蒂冈，期间她访问了教皇方济各，但因反对疫苗规定的抗议活动而中断。
+
+大约10,000名意大利人在教堂外抗议该国新的疫苗授权令后，佩洛西不得不离开她参加弥撒的圣帕特里克教堂。那次抗议活动演变成了暴力事件，至少有十几名抗议者被捕。
+
+一些意大利立法者也在周五表达了他们对疫苗授权的反对。
+
+新闻链接：[Italy Erupts In Protests Over Vaccine Mandates](https://www.dailywire.com/news/italy-erupts-in-protests-over-vaccine-mandates)
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-资料来源：FAZ
+编辑：【英国伦敦喜庄园编辑部】
 
-中共国显然在发展高超音速导弹方面取得了长足的进步。据说，它早在8月就测试了一枚高速导弹。
-
-据一份媒体报道，中国在开发高超音速导弹方面取得了巨大进展。正如《金融时报》周六援引知情人士的话报道，中国早在8月就测试了一种新型高速导弹。据报道，中国用一枚 “长征 “火箭将具有核能力的射弹送入太空，在低轨道上环绕地球，然后向其目标进发。
-
-然而，据三个不同的消息来源称，该导弹与目标相差30多公里，该报报道。美国情报机构对中国的新军事能力感到惊讶。
-
-美国国防部发言人约翰-柯比不愿就报告的细节发表评论。他说，”我们已经明确表示了对中国军事能力的担忧，这只会加剧该地区和其他地区的紧张局势。这是我们将中国视为我们最大挑战的原因之一”。
-
-除了中共国，美国、俄罗斯、朝鲜和至少其他四个国家也在研究高超音速技术。与弹道导弹一样，这些导弹可以携带核武器并达到五倍以上的音速。然而，弹道导弹以高弧度在空间飞行，而高超音速导弹则保持在低轨道上。它们也是遥控的，这使得它们更难被击落。
-
-[https://www.faz.net/aktuell/politik/ausland/usa-beunruhigt-china-testet-neues-atomwaffenfaehiges-geschoss-17588929.html](https://www.faz.net/aktuell/politik/ausland/usa-beunruhigt-china-testet-neues-atomwaffenfaehiges-geschoss-17588929.html)
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-
-责任编辑/发布： Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

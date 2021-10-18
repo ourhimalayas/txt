@@ -2,32 +2,31 @@
 ---
 
 
-## Brnovich:要求司法部调查脸书推动美墨边界危机
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1600292/)
+## 有声|完全疫苗接种加州大学生因病毒并发症去世
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1600378/)
 
-**编译：wenwu**
+配音：香草山美食部 – 玫瑰园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-313.png)
+21岁的美国加州佐治亚大学的肖恩·库恩（Shawn Kuhn），在完全接种新冠疫苗后，死于近期突然感染的新冠病毒，他在去世之前与病魔战斗了大约6个星期。
 
-亚利桑那州总检察长马克·布尔诺维奇 (Mark Brnovich) 表示，司法部必须调查脸书（Facebook）在美国边境鼓励违法的行为。
+库恩是运动和体育专业的大四学生，身体健康，在竞技项目中获奖，在校园兼职私人教练。
 
-Brnovich  于周四（15日）[致信](https://www.scribd.com/document/532520112/10-14-Brnovich-Letter-to-Garland#download&amp;from_embed)司法部长梅里克·加兰（Merrick Garland），解释了 Facebook 是如何允许宣传非法进入美国的帖子；此外，Brnovich 还表示，Facebook 甚至还提供有关如何成功非法越境的指导说明。
+尽管新冠病毒对30岁以下人群危险性极低，但在学校和工作场所的胁迫下，年轻人正在大规模的接种，库恩和许多比他更年轻的人在这种环境下，被迫接种了含胚胎细胞的毒针。
 
-Brnovich  说，社交媒体推动这种行动无疑破坏了法治和边境安全。
+前辉瑞公司的员工凯伦·金斯敦此前揭露，较未接种时，人体感染病毒的机率增加了3倍，而当接种第二剂后，随着时间的推移，人体免疫力逐渐减弱，感染率将持续升高。
 
-“Facebook 允许宣传人口贩卖和非法进入美国的帖子可以经常接触该平台的数十亿用户，说明该公司的经营政策严重破坏了法治，”Brnovich  在给加兰的信中说（如下图[推特所示](https://twitter.com/GeneralBrnovich/status/1448773704075280388?s=20)）。“Facebook 公司是直接的法治破坏推动者，因此加剧了发生在亚利桑那州南部边境的灾难。”
+今年6月，加州15岁少年接种辉瑞疫苗第二针2天后，死于“应激性心肌炎并伴有冠状动脉炎症”。此前，美国疾病控制和预防中心（CDC）也承认，接种mRNA疫苗的年轻男性有罹患心肌炎和心包炎的风险。如果美国政府仍强制推行疫苗接种令，随着在校学生大面积接种疫苗，越来越多的年轻人将因此受到伤害，甚至死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-315.png)
+文字版原文：[完全疫苗接种加州大学生因病毒并发症去世](https://gnews.org/zh-hans/1596254/)
 
-在此之前，这家科技巨头声称可以向移民提供信息，可以减少他们被人口贩卖者和贩毒集团利用。Facebook 表示，该公司政策的制定“是为了确保我们禁止与人口贩卖业务有关的内容，但不干涉人们行使寻求庇护的权利，这是国际法所承认的”（脸书或成为了犯罪分子不可或缺的一环、或直接参与了犯罪行为）。
+音频处理：喜山必胜Maverick
 
-Brnovich 说， Facebook 是乔·拜登边境危机的直接推动者和促成者。他已经要求进行联邦调查。
-
-（文章仅代表作者观点与GNEWS无关）
-
-新闻来源：[ajuede.com](https://www.ajuede.com/2021/10/ariz-attorney-general-brnovich-doj-must.html) |发布时间：2021年10月15日
-
-* * *
-
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
