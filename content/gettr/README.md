@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/18/2021 12:31 AM (UTC)`
+
+10/17/2021 Miles Guo: The Taiwanese who are afraid of wars and the entrepreneurs of the Communist China terrified by nationalization have bought lots of properties in Japan; My buddy who used to work for the CCDI and fled to Japan had already hidden many properties over there. This buddy pointed out that my revelation regarding artemisinin being the antidote once again changed the world and that artemisinin is the secret of the Communist China<br/><br/>10/17/2021 文贵直播：怕打仗的台湾人和恐惧国有化的中共国企业家在日本大量买房；从中纪委逃到日本的哥们早就在日本藏匿了大量房产，他指出，文贵说出青蒿素是解药再一次改变了世界，青蒿素是中共国的秘密！<br/>
+![img](https://media.gettr.com/group8/getter/2021/10/18/00/31/d115562d-8649-c6df-de97-a8f653eadba1/out.jpg)
+
+---
+
 `@miles 10/17/2021 11:43 PM (UTC)`
 
 10/17/2021 Miles Guo: On or about October 2, 2020, a historical arrest took place in the Communist China, with nearly 60,000 people being arrested. Xi Jinping even had no idea how much money was seized. Xi has not come out or seen anyone since then. Because he had never expected that Wang Qishan, Meng Jianzhu and others were going to kill him. Xi ordered to deal with the Chinese entrepreneurs in the same way as how the HNA case was handled - arrest them, kidnap their family, and force them to move their oversea assets back<br/><br/>10/17/2021文贵直播：2020年10月2日左右，中共国发生了一场历史性的大抓捕，近6万人被抓，习甚至不清楚多少钱被查封；习此后再未出门见人，因为他做梦都没想到王岐山、孟建柱等人要谋害他；习下令采用处理海航的模式针对国内企业家 - 抓捕他们、绑架其家人并逼迫其将海外资产转回国<br/>
@@ -293,13 +300,6 @@ Henry Reitzug博士：在注射带有被改造氨基酸的新冠mRNA疫苗进入
 
 10/12/2021 Miles Guo’s GETTR: Although Japan, Germany, Britain, and Taiwan know that the CCP is fraudulent, they are still investing lots of money in the Communist China; The CCP’s economic unrestricted warfare will have enormous and serious consequences for the entire world!<br/><br/>10/12/2021 文贵盖特：日本、德国、英国和台湾，明知中共造假，却仍向中共国投入了大量资金，中共经济超限战将对全世界造成巨大的严重后果！<br/>
 ![img](https://media.gettr.com/group7/getter/2021/10/13/02/18/6ea9a92a-6f7e-8c8e-ff03-29d6cba77357/out.jpg)
-
----
-
-`@miles 10/13/2021 12:55 AM (UTC)`
-
-10/12/2021 Miles Guo’s GETTR: The world’s religions, politics, and economy shall all be reformed; The COVID vaccine disaster and the CCP’s invasion of Taiwan will destabilize the world’s economy, undermine the confidence of Europe and the US, and result in lots of uncertainty; The CCP fears that the New Federal Stare of China can make our fellow fighters rich and strong, and have good judgment<br/><br/>10/12/2021 文贵盖特：世界宗教、政治、经济都要改革；疫苗灾难和中共攻台将打破世界经济平稳运行，打击欧美的信心，并造成大量不确定性；中共惧怕新中国联邦能让战友们有钱、腰杆硬和有判断力<br/>
-![img](https://media.gettr.com/group33/getter/2021/10/13/00/55/b7bf2fa7-152c-1e9d-1565-6fe910456be3/out.jpg)
 
 ---
 
