@@ -15,122 +15,122 @@
 
 ---
 
-### [中共拟针对电信诈骗问题专门立法](/content/gnews/1/README.md)
+### [真相工程曝光：辉瑞科学家承认疫苗对有些人“不起作用”](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [共军一旦开战，美军有能力瞬间摧毁解放军](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [法官暂时阻止对加州监狱工作人员的强制疫苗要求](/content/gnews/3/README.md)
+ ` GTV新闻访谈`
+
+### [一美军陆战队士兵表示宁愿慷慨赴死也不会接种新冠疫苗](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [高盛获批成为外商独资券商](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [英国生育率创下新低](/content/gnews/6/README.md)
+ ` GTV新闻访谈`
+
+### [澳洲版疫苗护照&#8211;全球首创国际旅行证书于周二推出](/content/gnews/7/README.md)
+ ` 走进澳洲`
+
+### [伊维菌素在防治中共病毒的有效性信息一直受到压制](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [海量数据显示伊维菌素在预防和治疗中共病毒的神奇功效](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共拟针对电信诈骗问题专门立法](/content/gnews/10/README.md)
  ` 儒为`
 
-### [法轮功被活摘的带声音的图像和新疆小伙无麻醉下被活摘](/content/gnews/2/README.md)
+### [法轮功被活摘的带声音的图像和新疆小伙无麻醉下被活摘](/content/gnews/11/README.md)
  ` NewFOC`
 
-### [秘翻在线：五角大楼因疫苗强制令面临联邦雇员和军人的集体诉讼](/content/gnews/3/README.md)
+### [秘翻在线：五角大楼因疫苗强制令面临联邦雇员和军人的集体诉讼](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [Eglise亲历器官活摘:先割走肾脏肝脏心脏等主要器官](/content/gnews/4/README.md)
+### [Eglise亲历器官活摘:先割走肾脏肝脏心脏等主要器官](/content/gnews/13/README.md)
  ` NewFOC`
 
-### [读欧洲议会简报-欧中关系处在充满挑战的时期（一）](/content/gnews/5/README.md)
+### [读欧洲议会简报-欧中关系处在充满挑战的时期（一）](/content/gnews/14/README.md)
  ` 澳喜农场`
 
-### [针下亡魂｜希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](/content/gnews/6/README.md)
+### [针下亡魂｜希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](/content/gnews/15/README.md)
  ` G&#124;News TAIWAN`
 
-### [秘翻在线：前中校奥利弗·诺斯：拜登是习近平的傀儡](/content/gnews/7/README.md)
+### [秘翻在线：前中校奥利弗·诺斯：拜登是习近平的傀儡](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [谁会为中共国年轻人豪华消费买单？](/content/gnews/8/README.md)
+### [谁会为中共国年轻人豪华消费买单？](/content/gnews/17/README.md)
  ` 澳喜农场`
 
-### [日本要闻汇编](/content/gnews/9/README.md)
+### [日本要闻汇编](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [币圈新闻动态：UBS银行试图购买的HCN也只有5万枚](/content/gnews/10/README.md)
+### [币圈新闻动态：UBS银行试图购买的HCN也只有5万枚](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [莫得纳疫苗引发青少年男性心肌炎！日本厚生省允许第二针接种辉瑞疫苗](/content/gnews/11/README.md)
+### [莫得纳疫苗引发青少年男性心肌炎！日本厚生省允许第二针接种辉瑞疫苗](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [20万份中国血液样本“揭秘”了冠状病毒大流行的起源](/content/gnews/12/README.md)
+### [20万份中国血液样本“揭秘”了冠状病毒大流行的起源](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [DC大中华时事：中共重返联合国50年](/content/gnews/13/README.md)
+### [DC大中华时事：中共重返联合国50年](/content/gnews/22/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [疫苗灾情｜意大利 25 岁女明星接种疫苗后患上心包炎](/content/gnews/14/README.md)
+### [疫苗灾情｜意大利 25 岁女明星接种疫苗后患上心包炎](/content/gnews/23/README.md)
  ` G&#124;News TAIWAN`
 
-### [秘翻在线:纽约法官以未接种疫苗为由剥夺了一位父亲看望其3岁女儿的权利](/content/gnews/15/README.md)
+### [秘翻在线:纽约法官以未接种疫苗为由剥夺了一位父亲看望其3岁女儿的权利](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳洲海事工会号召昆士兰码头工人抵制疫苗护照](/content/gnews/16/README.md)
+### [澳洲海事工会号召昆士兰码头工人抵制疫苗护照](/content/gnews/25/README.md)
  ` 走进澳洲`
 
-### [中共大批海上民兵，或正在加紧演练利用民间船只渡海投送战术](/content/gnews/17/README.md)
+### [中共大批海上民兵，或正在加紧演练利用民间船只渡海投送战术](/content/gnews/26/README.md)
  ` G-NEWS TAIWAN`
 
-### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（十七）](/content/gnews/18/README.md)
+### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（十七）](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [内布拉斯加州总检察长：医生可以开具有争议的中共病毒药物](/content/gnews/19/README.md)
+### [内布拉斯加州总检察长：医生可以开具有争议的中共病毒药物](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [FDA 禁止为青少年接种莫得纳疫苗](/content/gnews/20/README.md)
+### [FDA 禁止为青少年接种莫得纳疫苗](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [ESPN记者因强制疫苗选择离职](/content/gnews/21/README.md)
+### [ESPN记者因强制疫苗选择离职](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [黄明志最新单曲涉嫌“辱华”被中共封杀](/content/gnews/22/README.md)
+### [黄明志最新单曲涉嫌“辱华”被中共封杀](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [蓬佩奥指责中共深度颠覆美国](/content/gnews/23/README.md)
+### [蓬佩奥指责中共深度颠覆美国](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共谴责美加军舰通过台湾海峡](/content/gnews/24/README.md)
+### [中共谴责美加军舰通过台湾海峡](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [艾伯塔省消防员联手打击强制性疫苗接种政策](/content/gnews/25/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [IMDB为了提高纪录片《福奇》的评分修改计算方法](/content/gnews/26/README.md)
- ` 首尔天池农场`
-
-### [新加坡最新疫苗报告出炉！12703人出现副作用](/content/gnews/27/README.md)
+### [新加坡最新疫苗报告出炉！12703人出现副作用](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [瘫痪共产党所有军事力量美国需要三分钟日本需要五分钟](/content/gnews/28/README.md)
- ` NewFOC`
-
-### [姗姗来迟的维多利亚州解封，但只针对接种疫苗者](/content/gnews/29/README.md)
- ` 走进澳洲`
-
-### [41岁健康男子接种疫苗9天后去世](/content/gnews/30/README.md)
+### [41岁健康男子接种疫苗9天后去世](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [环京巨头华夏幸福疑似资金链断裂，引发多处维权](/content/gnews/31/README.md)
+### [环京巨头华夏幸福疑似资金链断裂，引发多处维权](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [10/17/2021七哥直播：中共盗国贼应当经过正当的司法程序审判，而不应该绑架和折磨他们的家人](/content/gnews/32/README.md)
+### [10/17/2021七哥直播：中共盗国贼应当经过正当的司法程序审判，而不应该绑架和折磨他们的家人](/content/gnews/37/README.md)
  ` 秘密翻译组-北美组`
 
-### [跨境互联网券商富途、老虎将面临中共监管](/content/gnews/33/README.md)
+### [跨境互联网券商富途、老虎将面临中共监管](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
 
-### [拜登批判中共国新疆政策 呼吁全球领袖不应沉默](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [能源危机消耗中共外储，政敌海外资产成习大神猎物](/content/gnews/35/README.md)
+### [能源危机消耗中共外储，政敌海外资产成习大神猎物](/content/gnews/39/README.md)
  ` 军迷wilson`
-
-### [10/17/2021七哥直播：江志成是当着江家的面被从新加坡绑架回中共国的，他被要求从海外拿回所有的财产](/content/gnews/36/README.md)
- ` 秘密翻译组-北美组`
-
-### [10/17/2021七哥直播：中共烂账真的是一笔糊涂账，连中纪委、专案组对真实数字都毫无概念](/content/gnews/37/README.md)
- ` 秘密翻译组-北美组`
-
-### [10/17/2021七哥直播：怕打仗的台湾人和恐惧国有化的中共国企业家在日本大量买房](/content/gnews/38/README.md)
- ` 秘密翻译组-北美组`
-
-### [健康强壮的体育教练接种疫苗后仍感染，肺部90%损伤，接受采访时被要求说谎](/content/gnews/39/README.md)
- ` 加拿大多伦多枫叶农场视频组`
 
 ### [约翰逊参议员称人们真地需要了解疫苗的危害](/content/gnews/40/README.md)
  ` HimalayaRussia`

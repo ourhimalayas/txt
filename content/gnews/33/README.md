@@ -2,35 +2,22 @@
 ---
 
 
-## 跨境互联网券商富途、老虎将面临中共监管
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1600883/)
+## 中共谴责美加军舰通过台湾海峡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1601035/)
 
-作者：香草山翻译部
+#### 翻译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-48.jpg)图片来源：网络截图
+零对冲网10月17日报道，五角大楼周日揭示了美军军舰与加拿大护卫舰共同通过有争议的台湾海峡，这对军舰是在中共与台湾不断升级的紧张情势下于周四和周五通过的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
+据美国军方陈述，美国军舰是阿利·伯特级引导的导弹驱逐舰USS杜威舰和加拿大HMCS 温尼伯格护卫舰，杜威舰和温尼伯格舰通过台湾海峡证明了美国和同盟国及合作者对自由和开放的印太地区的承诺。
 
+这个行为显然通过每月一次军舰通过台湾海峡以显示继续执行拜登政府的“自由航行”政策，最近几周中共军队进入台湾航空识别区的战机数达到新高，从10月1日至4日，中共派出了150架战机骚扰台湾，单单10月4日一天就派出的了56架战机。
 
+而本周末中共却指责两艘西方舰艇通过台湾海峡，称这一行为威胁到了台海的“和平与稳定”。
 
+中共军方称：“台湾是中国领土，中共军队总是保持高度警惕，坚决反对任何威胁和挑衅。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1017-text-SC.png)
-文章仅代表作者本人观点，与Gnews无关
+这些情况提示美国带领其他英语国家（五眼情报联盟和军事同盟者）在印太地区不断合作以对抗中共军事影响力，加拿大护卫舰正是在实践这个区域合作，就像前段时间华为财务总监孟晚舟刚从加拿大法院获释回国那样。
 
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：
-
-晚GTV新闻访谈：[https://gtv.org/broadcast/watch/616cbf5f304e992109b6eaa9](https://gtv.org/broadcast/watch/616cbf5f304e992109b6eaa9)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
-
-**更多资讯，更多关注**
-
-**[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-** [欢迎加入纽约香草山农场 | Discord](http://Free%20to%20Join%20New%20York%20MOS%20Himalaya%20|%20Discord)**
+新闻来源： [China Condemns US & Canada For Joint Warship Sail Throughs Of Taiwan Strait](https://www.zerohedge.com/geopolitical/us-canadian-warships-conduct-provocative-taiwan-strait-passage)
