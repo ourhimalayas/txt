@@ -2,22 +2,20 @@
 ---
 
 
-## 中共谴责美加军舰通过台湾海峡
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1601035/)
+## ESPN记者因强制疫苗选择离职
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1601039/)
 
-#### 翻译：Evalu
+#### 翻译：花岗岩
 校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-48.jpg)图片来源：网络截图
-零对冲网10月17日报道，五角大楼周日揭示了美军军舰与加拿大护卫舰共同通过有争议的台湾海峡，这对军舰是在中共与台湾不断升级的紧张情势下于周四和周五通过的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/7-11.jpg)图片来源：网络截图
+据今日美国（USA TODAY）10月17日报道，美国电视新闻网（ESPN）的资深记者艾莉森·威廉姆斯（Allison Williams）决定拒绝遵守该网络要求所有员工接种中共病毒疫苗的规定，选择离开电视台。
 
-据美国军方陈述，美国军舰是阿利·伯特级引导的导弹驱逐舰USS杜威舰和加拿大HMCS 温尼伯格护卫舰，杜威舰和温尼伯格舰通过台湾海峡证明了美国和同盟国及合作者对自由和开放的印太地区的承诺。
+威廉姆斯上个月宣布，因为拒绝注射疫苗，她将不会在ESPN的大学橄榄球转播中出现在现场，这是她从业15年来第一次。ESPN 在8月初强制要求现场活动的工作人员接种疫苗，并在本月将其扩大到所有员工。
 
-这个行为显然通过每月一次军舰通过台湾海峡以显示继续执行拜登政府的“自由航行”政策，最近几周中共军队进入台湾航空识别区的战机数达到新高，从10月1日至4日，中共派出了150架战机骚扰台湾，单单10月4日一天就派出的了56架战机。
+在本周五，她在Instagram上发布了一个五分钟的视频来解释她的决定，说她在道德和伦理上不能接受强制疫苗，她和她的丈夫正在考虑生另一个孩子。威廉姆斯引用了妇女在接种疫苗后出现健康问题的事例证据，作为她选择不遵循公司要求的原因之一。
 
-而本周末中共却指责两艘西方舰艇通过台湾海峡，称这一行为威胁到了台海的“和平与稳定”。
+威廉姆斯说，她很难接受这样一个事实，上赛季阿拉巴马州和俄亥俄州的全国冠军赛将是她在ESPN工作的最后一场比赛。“归根结底，我不能把薪水放在原则之上，我不会为了维持职业生涯而牺牲我所相信和坚持的东西。” 她说。
 
-中共军方称：“台湾是中国领土，中共军队总是保持高度警惕，坚决反对任何威胁和挑衅。”
+在通过电子邮件发给《今日美国体育》的一份声明中，ESPN拒绝就威廉姆斯的具体情况发表评论。
 
-这些情况提示美国带领其他英语国家（五眼情报联盟和军事同盟者）在印太地区不断合作以对抗中共军事影响力，加拿大护卫舰正是在实践这个区域合作，就像前段时间华为财务总监孟晚舟刚从加拿大法院获释回国那样。
-
-新闻来源： [China Condemns US & Canada For Joint Warship Sail Throughs Of Taiwan Strait](https://www.zerohedge.com/geopolitical/us-canadian-warships-conduct-provocative-taiwan-strait-passage)
+新闻来源：[ESPN reporter Allison Williams leaving network due to vaccine mandate](https://www.usatoday.com/story/sports/media/2021/10/17/allison-williams-leaving-espn-over-mandatory-vaccination-policy/8498841002/)
