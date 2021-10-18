@@ -2,30 +2,24 @@
 ---
 
 
-## 美加战舰联合，再次穿越台湾海峡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1602038/)
+## 突发！鲍威尔死于新冠并发症
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1602089/)
 
-作者：飞虹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国军方10月17日宣称，美国海军阿利·伯克级导弹驱逐舰“杜威号”与加拿大皇家海军哈利法克斯级护卫舰“温尼伯号”，已于10月14日和15日联合航行, 穿越了台湾海峡，此举旨在”展现美国与盟友对维护印太地区自由开放的承诺”。
+**翻译：**沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-18-110708-edited.png)图片来源：网络
+美国有线电视新闻网(CNN)刚刚消息，美国首位黑人国务卿、前美军参谋长联席会议主席、共和党人科林·鲍威尔因新冠并发症去世，终年84岁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-11.jpeg)
+报道称，科林·鲍威尔的家人在脸书上公布了他的死讯，并称他死于新冠并发症。
 
-一年多来，中共不断对台湾发出威胁信号，频繁派遣军机侵扰台湾。作为回应, 美国及盟国海军则不断在台海及南海水域进行联合演习, 或者穿越台湾海峡的巡航, 以维护这一海域的航行自由 。最近的一次是在9月27日，英国皇家海军“伊丽莎白女王”号航母打击群的“里士满号”护卫舰 穿过台湾海峡，前往越南军港。
+鲍威尔曾在乔治·H·W·布什执政期间任美军参谋长联席会议主席，在海湾战争中指挥美军与伊拉克军队作战。乔治·W·布什2000年当选总统后，鲍威尔于2001年至2004年担任国务卿。美国2003年指称伊拉克藏匿大规模杀伤性武器，发动伊拉克战争。
 
-(本文仅代表作者观点)
+**评：**病毒危机、疫苗危机正在延续，为了自己和家人的健康，请持续关注Gnews，G-TV & Gettr。
 
-参考链接：[美加战舰联合穿越台湾海峡 中国谴责“挑衅滋事”](https://www.voachinese.com/a/china-condemns-us-canadian-warships-crossing-taiwan-strait-20211017/6274141.html)
+新闻来源：[Colin Powell, first Black US secretary of state, dies of Covid-19 complications amid cancer battle – CNNPolitics](https://edition.cnn.com/2021/10/18/politics/colin-powell-dies/index.html)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+免责声明：文章观点仅代表作者本人，与GNEW平台无关！
 
-新闻访谈终审：文龍
-编辑/校正/发稿：谐趣园
+编辑/发布：LILY
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+20211018
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)

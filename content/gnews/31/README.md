@@ -2,25 +2,34 @@
 ---
 
 
-## 在中共罗网中反抗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1601739/)
+## 南缺水北缺电 大陆民众将艰难过冬
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1601786/)
 
-作者：东京樱花团｜阿恩
+作者：在远方
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/在中共罗网中反抗.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-犯罪受罚本是公义的彰显，但古往今来人类都会以各种理由推卸责任逃避惩罚。陈同佳在台湾将18岁的女友杀害抛尸潜逃回港，三年后依旧不能赴台伏法。陈同佳这个被历史拣选的人物成了港府强推逃犯条例的导火索，随之引发了轰动全球的反逃犯条例运动，中共借势杀害了大批不满港府暴政的年轻人，颁布国安恶法拔除了香港最大的本土民主派系，彻底推倒了香港的民主自由灯塔。港府以未能与台湾建立引渡条约为由将陈同佳扣留在香港，陈同佳表面上被港府保护，实际不过是中共享舆论要挟台湾的棋子，而港府也同样是中共的傀儡。
 
-据爆料革命郭文贵先生昨日大直播揭露，香港政界、商界、法律界，甚至娱乐界都已被中共编控，把柄就是掌握了他们大量的不雅视频。经此一爆终于可以理解香港社会那些达官贵胄、名门世家为何一面倒地拥护中共的暴政。这些道貌岸然的人恐惧自己的罪被公之于众，极力配合中共为虎作伥，换取中共掩饰其丑恶的“承诺”。
 
-圣经上说：这世上没有义人，连一个也没有；（罗3：10）因为世人都犯了罪，亏缺了神的荣耀。（罗 3：23）由此可见，全人类都是罪人，罪在人类的世界是常态，中共正是利用人对罪的羞愧和惧怕编织了控制中国同胞的罗网。
+16日，中共水利部召开视频会议，针对珠江流域旱情部署所谓“抗旱保供水”工作。今年以来，珠江流域降雨和来水较往年显著偏少，各水库临近枯水状态，南方广大地区民众饮水保障难以为继。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1018-AM-（1-3）.003.jpeg)
+与此同时，自9月份以来，中共开始对过半省市实行错峰配电和拉闸限电，特别是北方各省，包括东北，而由于近期以来的寒流袭击，东北、华北、黄淮等地已经大面积气温骤降，部分地区已经达到零度或零下！ 对这些城镇的居民来说，今年冬天将很艰难。
 
-但从古至今不乏敢面对自己的罪，与罪恶割席的勇士，古有保罗从杀害基督徒的刽子手转变成奋力传扬耶稣基督救恩福音的勇士，是福音向外邦广传的奠基人；今有出生于中共污秽染缸的郭文贵先生蜕变成灭共的先锋。他们共同的特点就是勇于面对自己的过去，有坚定的信念驱动自己的行为去否定罪恶，亲近良善和公义。奉劝那些在中共罗网中的同胞们，抛弃掉任何中共认为你在乎的，勇敢地在这个短暂的维度与邪恶的中共对抗，也不枉自己被造的使命。
+中共七十年来对大陆生态系统的彻底破坏，导致环境严重污染和水土失调，各种看似天然、实为人祸的灾难频发。而号称世界第二经济强国，竟然连百姓吃水用电都无法保障，习近平的”中国梦”显然只是个脆弱的泡影。
+(本文仅代表作者观点)
 
-新闻来源：[**据报陈同佳已离开安全屋  邓炳强：都要正常生活无法协调陈与潘母会面**](https://www.thestandnews.com/politics/a%E6%93%9A%E5%A0%B1%E9%99%B3%E5%90%8C%E4%BD%B3%E5%B7%B2%E9%9B%A2%E9%96%8B%E5%AE%89%E5%85%A8%E5%B1%8B-%E9%84%A7%E7%82%B3%E5%BC%B7%E9%83%BD%E8%A6%81%E6%AD%A3%E5%B8%B8%E7%94%9F%E6%B4%BB-%E7%84%A1%E6%B3%95%E5%8D%94%E8%AA%BF%E9%99%B3%E8%88%87%E6%BD%98%E6%AF%8D%E6%9C%83%E9%9D%A2)
+参考链接：[珠江流域旱情形势严峻水利部会商部署抗旱保供水工作 – 央视网](https://news.cctv.com/2021/10/17/ARTIREwYZ2N8W3X9BTYSNHNn211017.shtml)
 
-（本文只代表个人观点，与Gnews网站无关）
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-*校对：东京樱花团 / 平安卿卿*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

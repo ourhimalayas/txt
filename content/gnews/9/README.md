@@ -2,19 +2,39 @@
 ---
 
 
-## 华盛顿州警察因拒绝疫苗接种而愤然辞职
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1602015/)
+## 拜登政府因疫苗强制令面临大规模集体诉讼
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1602078/)
 
-原文采编：文莱 翻译撰稿：文所未闻     校对编辑：硫酸羟氯喹64
+作者：雪梨
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月15日，包括海豹突击队、陆军特种部队和海军、空军军官、联邦雇员和联邦文职承包商在内的24名原告，于美国佛罗里达州中区法院，正式对拜登政府提起诉讼，要求法院发布临时限制令，暂停强制接种疫苗，并最终发布禁令，阻止五角大楼继续执行该行政命令。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/hsd-edited.jpg)图左：华盛顿州长英斯利 图右：辞职警察
-图片来源：千禧年报
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-18.jpeg)
 
+国防部长劳埃德·奥斯汀、国土安全部长亚历杭德罗·马约卡斯和拜登总统均被列为被告。
 
-据加拿大知名自媒体《千禧年报》10月17日报道，10月16日晚，一段华盛顿州警察因拒绝遵守该州关于新冠病毒疫苗强制接种规定而愤然辞职的视频，在社交媒体上被迅速传播。该名警察在完成其最后一班岗后，对外宣告这个消息说：“今天是我最后一次任务，在为华盛顿州的公民服务了22年之后，我却被（政府）要求离职。”
+目前上市使用的三种疫苗，均通过流产胎儿干细胞开发而来，仅从该点出发，宗教人士有权获得豁免。但实际上大部分原告仍遭到被解雇、诉诸军事法庭或惩罚的威胁。这一做法严重侵犯了宪法第一修正案赋予公民宗教自由的权利。
 
-8月20日，华盛顿州州长杰伊-英斯利宣布：该州所有政府工作人员，包括州警察，消防员等都必须在10月18日前接种该疫苗，否则将面临被当局解雇的处罚。在该州长宣布此项强制接种疫苗政策后，民众反应极为强烈，并导致了整个州的大规模示威活动。数以千计的居民在华盛顿州议会大厦前集会，抗议这项强制接种疫苗措施。期间，有大量警察，消防员、执法人员、管教人员、医护人员和各社区成员都参加了该集会。
+此外，新冠疫苗根本没有通过批准，仅得到市场紧急使用，人们有拒绝接种的自由和权利。
 
-（以上内容仅代表原文信息和作者个人观点）
+两个月前，两名美军士兵已将国防部官员诉诸法院。随着限期临近，觉醒的美国军人纷纷拿起法律的武器，坚决捍卫自己的权利。
 
-[原文链接：](https://thepostmillennial.com/watch-washington-state-trooper-resigns-over-vaccine-mandate-tells-gov-inslee-to-kiss-my-ass)
+随着疫苗真相的大力传播，民众逐渐觉醒，政府和联邦卫生机构面临更多的质疑和指控，同时，诉讼也将朝着有利于原告期望的方向推进。
+
+(本文仅代表作者观点)
+
+参考链接：[Biden, Pentagon Face Massive Class-Action Lawsuit Over Vaccine Mandate on Federal Employees and Military Members](https://www.thegatewaypundit.com/2021/10/biden-pentagon-face-massive-class-action-lawsuit-vaccine-mandate-federal-employees-military-members/)
+
+新闻访谈终审：暗黑
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+校对/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,40 +2,21 @@
 ---
 
 
-## 塔斯马尼亚州结束封锁，州长坚称封锁是必须的
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1601909/)
+## 因面临集体诉讼美国防部疫苗接种授权恐难被执行
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1602025/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳洲新闻.jpg)图片来源：abc.net.au
-#### 编译：小红帽
+采编：风云小哥   撰稿：文明(添草灭共)
 
-塔斯马尼亚州州长彼得·古特温(Peter Gutwein)坚称，有必要对该州南部进行为期三天的封锁。在没有证据表明一个受中共病毒（Covid-19)感染的酒店隔离逃亡者会继续传播中共病毒后，封锁将按时结束。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/wj.jpg)
+图片来源：NTD
 
-古特温已确认，霍巴特和塔斯马尼亚南部的为期三天的封锁将于周一下午6点结束，因为此前该州报告的1400多次测试中没有新病例。
 
-周五晚上，在一名受感染的新南威尔士州男子从霍巴特Travelodge逃出并在逃约18小时后，该岛州的南部地区陷入了72小时的居家限制。
+据美国媒体《新唐人》10月17日报道，来自美军五个军种的军人、联邦雇员和联邦文职承包商的多名人士，针对【国防部新冠病毒疫苗接种规定】进行了集体诉讼：原告提出的【疫苗接种宗教豁免】请求被当局拒绝，并且因寻求该豁免而遭到不光彩退伍、军事法庭起诉、解雇及其他方面的“威胁”。 
 
-这位31岁的男子上周在没有有效边境通行证的情况下，从墨尔本飞往霍巴特，并被勒令进行隔离。他不配合接触者追踪人器，围绕他的行动的不确定性导致古特温先生实施了快速封锁。
+该诉状已提交至佛罗里达州中区地方法院，并将总统乔-拜登、国防部长劳埃德-奥斯汀和国土安全部长亚历杭德罗-马约卡斯等列为被告。要求法院发布临时限制令以阻止该疫苗接种授权的生效，并最终颁布禁令，阻止国防部执行拜登政府的该疫苗接种授权。
 
-与该男子“长期”接触的15人的检测结果呈阴性。
+（以上内容仅代表原文信息和作者个人观点）
 
-尽管没有病例与感染者的接触者有关，包括来自Woolworths超市的约120例，但州长坚持认为封锁是必要的。
+编辑，校对，发稿：硫酸羟氯喹64
 
-塔斯马尼亚州公共卫生主任马克·维奇（Mark Veitch）表示，卫生当局别无选择，只能采取行动。
-
-工党表示，州长欠塔斯马尼亚人的答复。
-
-反对党发言人米歇尔·奥伯恩（Michelle O’Byrne）说：“州长需要向塔斯马尼亚人表明，已经吸取了重要的教训，正如他所说，不能允许这种情况再次发生。”
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Tasmania to exit lockdown, premier defends call (thenewdaily.com.au)](https://thenewdaily.com.au/news/coronavirus/2021/10/18/tasmania-exit-lockdown-premier-defends-call/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[原文链接：](https://www.ntd.com/pentagon-faces-class-action-lawsuit-over-vaccine-mandates-on-military-federal-employees-and-contractors_689876.html)
