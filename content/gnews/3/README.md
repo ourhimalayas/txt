@@ -2,25 +2,50 @@
 ---
 
 
-## 加拿大原住民面临强制疫苗，妇儿女童被迫在寒冷中躲进树林！
-` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1603545/)
+## 美国传奇科林-鲍威尔完全接种疫苗后去世
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1603612/)
 
-在萨斯喀彻温省北部，靠近萨斯喀彻温省和西北地区的边界，有一个叫黑湖的保留地，显然黑湖正在强迫他们的妇女和儿童打疫苗，他们中的许多人站出来反对，他们不要打疫苗！
+栏目记者: Andy5
+责任编辑：AsG諾雅
 
-这是他们的选择，是医生和他们自己之间的事，你不能强迫他们，这在加拿大是个人的选择，所以他们甚至被强迫离开自己的家，带着孩子跑到灌木丛中，躲避强制疫苗，这必须停止，现在必须停止，这必须成为国际新闻！
 
-我现在告诉你，我要表达我对这件事的强烈担忧，整个加拿大都应该对原住民需要到灌木丛中躲避强制疫苗表示强烈的抗议，因为他们不想打疫苗，这个致命的疫苗。
 
-为什么在加拿大伊维菌素、槲皮素、羟氯喹，所有这些药物被禁止使用，因为服用这些药物很便宜，这令疫苗无利可图，我们甚至还不知道该病毒的分离情况，他们让我们打的疫苗，没有进行严格的试验，严格的测试需要进行很多年，他们在短短几个月内就注射了两次，所以这必须停止。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-我们必须为我们原住民民站出来，尤其是那些为躲避强制疫苗，而四处躲藏的妇女和儿童，这绝对是错误的！
 
-你还提到了军队？是的显然军队也参与其中，在黑瀑布，对不起，萨省的黑湖，因此，请将这一消息传播出去，我们必须为这些妇女和儿童站出来，为这些亲爱的妇女和儿童，谢谢你。
 
-文字听写翻译：Kent
+10月18日星期一，鲍威尔去世，享年84岁。他的家人在其脸书页面的声明上写道：”在完全接种了新冠疫苗后，美国前国务卿和参谋长联席会议主席科林-L-鲍威尔将军今天上午去世。我们要感谢沃尔特-里德国家医疗中心的医务人员的关怀治疗。我们失去了一位杰出的、充满爱心的丈夫、父亲、祖父和一位伟大的美国人。”
 
-视频字幕：Kent
+据报道，鲍威尔被诊断出患有多发性骨髓瘤这种癌症，他的去世与86岁的棒球传奇人物汉克-亚伦的去世有相似之处，后者在1月份打了一针新冠疫苗后仅几周就去世了，尽管医院声称亚伦的死因与疫苗无关。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-103.jpg)
+科林-鲍威尔于1937年4月5日出生在纽约市，由牙买加移民父母抚养长大。从参加越南战争到成为四星上将，到1987年在里根政府出任史上第一位黑人国家安全顾问，1989年成为老布什总统的参谋长联席会议主席，并在克林顿政府连任同一职位，2000年在伊拉克战争期间在小布什政府中担任第一位黑人国务卿，他的一生充满传奇色彩，
 
-编辑/发稿：Kent
+鲍威尔是第一个享有如此盛誉而死于所谓“突破性病例”的公众人物，他的死亡将使更多人看到新冠毒针的危害，从而更加坚定立场，拒绝所谓新冠疫苗。
 
-*免责声明：本文仅代表作者个人观点，与G-NEWS网站无关*
+参考链接：
+1. [Colin Powell, Fully Vaccinated, Dies From COVID-19 Complications](https://marketrealist.com/p/was-colin-powell-vaccinated-covid/)
+2. [Colin Powell dead at 84 from COVID-19 complications](https://thehill.com/policy/defense/577152-colin-powell-dies-at-age-of-84)
+3. [“Fully Vaccinated” Colin Powell Dies From Covid Complications](https://www.infowars.com/posts/fully-vaccinated-colin-powell-dies-from-covid-complication/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

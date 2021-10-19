@@ -2,21 +2,20 @@
 ---
 
 
-## 从欧金中被抓捕到被自杀，中共莆田警方已经陷入塔西陀陷阱
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1603488/)
+## 雅典娜时报-第086期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1603520/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-86.jpg)
-10月10日，福建莆田市秀屿区平海镇发生2死3伤的重大刑事案件，犯罪嫌疑人欧金中出逃。随后，莆田警方公布悬赏通告，活捉2万，交尸5万。
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-10月18日，参与追捕的公安民警和当地村干部表示，欧金中当天下午已被抓捕。短短一个小时不到，剧情反转，莆田市公安局长秀屿分局发布警情通报：18日15时许，在公安武警围捕下，犯罪嫌疑人欧金中在平海镇上林村附近一山洞拒捕并畏罪自杀，经送医抢救无效死亡。
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/10/191.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/19-3.png)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-时间间隔仅仅一个小时不到，比起在欧金中生前维权所有媒体不闻不问，这一次警方反应可谓神速。但凡事发之前有一个主管部门受理欧事务，欧金中也不会走此绝路，民谚说蝼蚁尚且偷生，何况他上有80老母，下有尚未成年的儿女。
+***发布：小红帽***
 
-欧金中事件悲剧完全是中共独裁体制的牺牲品，因为中共国没有法治民主自由，普通公民投诉无门，所有部门都是互相推诿，敷衍塞责。可以想象，只要中共不灭，此类事件还会一再发生，而且永远不会有真相。普通公民也不会再相信中共的虚假宣传，中共已经陷入塔西陀陷阱，等待它的只有灭亡。
-
-(文章仅代表作者本人观点，与GNEWS无关)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,39 +2,35 @@
 ---
 
 
-## 达美航空员工疫苗接种率达90%，暂不执行疫苗强制接种令
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1603070/)
+## 【GTV新闻访谈简报】2021年10月18日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1603095/)
 
-【简评：】*对这个消息既喜也悲，喜的是不愿打疫苗的人暂时保住了工作；悲的是，已有90%的员工完成了疫苗接种。让我们看一看视频下清醒的美国民众的留言吧。*
+作者：香草山翻译部
 
-*一位观众留言说，“事实上，这种‘疫苗’不会阻止你感染 COVID-19，也不会阻止你传播 COVID-19。不应该对无效的药物进行授权。”另一位留言说，“有很多健康的人没有风险，也不需要这种疫苗。如果强制执行，他们甚至无法让他们的医生反对。我们的政府绝对是可悲的。”还有一位说，“我们现在生活在一个极权国家，不那么伟大的独裁者可能会迫使达美航空就范。”*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
 
-据《福克斯商业》记者：[Angelica Stabile](https://www.foxbusiness.com/person/s/angelica-stabile)，2021年10月14日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-338.png)达美航空CEO 埃德·巴斯蒂安 图片来源：《福克斯商业》视频
-达美航空是唯一的一家暂不对员工执行新冠疫苗任务的美国航空公司，首席执行官埃德·巴斯蒂安（Ed Bastian）报告说，针对疫苗接种率和合规性，这是一种有效的策略。
 
-达美航空负责人在“克莱曼倒计时”节目中透露，该公司的疫苗接种率已达到90%以上，并预计在没有新冠疫苗强制接种命令的情况下，下个月内疫苗接种率会再提高5%。
 
-巴斯蒂安承认，需要为那些希望保持不接种新冠疫苗，同时避免威胁就业的人提供宗教和医疗豁免。
 
-他还提到：“当我们完成时，我们将非常接近于完全接种疫苗的公司，而不需要为疫苗接种命令大家发生争执，我们正在证明你可以与你的员工合作，相信你的员工会做出正确的决定，尊重他们的决定，而不是强迫他们失去工作。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1018text-SC.png)
+文章仅代表作者本人观点，与Gnews无关
 
-尽管由于新冠病毒的原因，航空旅游业的恢复情况变得“非常不稳定”，巴斯蒂安对达美航空的低取消率和整体运营平衡感到满意。这位首席执行官分享说，该公司今年已经记录了116个没有取消的 “完美日子”，这与2019年新冠病毒大流行前的数字相当。
+校对：Stay文苑
 
-他提到，“达美航空一整年都做得很好，这确保我们在平衡中管理供需，我们的员工做得很好。”
+编辑：Stay文苑
 
-“我非常感谢达美航空的团队，他们为我们的客户提供了出色的产品，这也是我们本季度盈利的原因之一。”
+发稿：Stay文苑
 
-新闻来源：[https://www.foxbusiness.com/media/delta-air-lines-ceo-ditches-divisive-covid-vaccine-mandate](https://www.foxbusiness.com/media/delta-air-lines-ceo-ditches-divisive-covid-vaccine-mandate)
+视频参看：
 
-(本文评论仅代表个人观点）
+晚GTV新闻访谈: [https://gtv.org/broadcast/watch/616e1365304e992109b76759](https://gtv.org/broadcast/watch/616e1365304e992109b76759)
 
-翻译：洛杉矶盘古农场 – KY
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-6.png)
 
-校对：洛杉矶盘古农场 – Mike Li
+**                               更多资讯，更多关注**
 
-评论/编辑：洛杉矶盘古农场 – 明子
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://紐約香草山農場%20%20|%20GTV-香草山之聲%20紐約香草山農場GTV-%20|%20MOS%20TALK%20香草山訪談%20紐約香草山農場%20|%20GETTR%20紐約香草山農場%20｜YouTube%20歡迎加入香草山農場%20%20|%20Discord)
