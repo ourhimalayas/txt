@@ -2,19 +2,41 @@
 ---
 
 
-## 前《纽约时报》记者就病毒来源真相反击主流媒体
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1602743/)
+## 多伦多 CBC 办公室的新冠爆发
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1602857/)
 
-采编：苦尽甜来 (文來）. 撰稿：文所未闻. 校对,编辑,发稿：硫酸羟氯喹64
+作者：Sheila Gunn Reid
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/s.jpg)图片来源：FOXNEWS
-左：CNN的布莱恩 右：记者韦丝
+![](https://assets.gnews.org/wp-content/uploads/2021/10/cbc.png)
 
+新冠爆发的网站上位于多伦多市的加拿大广播公司办公室赫然在列。
 
-据美国《福克斯新闻》10月18日报道，前《纽约时报》记者巴里-韦丝在日前CNN 的 “可靠消息 ”节目中列举了世界为何变得如此疯狂的具体例子。并就该主流媒体对新冠病毒实验室泄漏理论的歪曲报道与该电视台的主持人布莱恩-斯特尔特进行了激烈辩论。
+虽然人们担心艾伯塔省和萨斯喀彻温省的新冠状态，标题“新冠急诊就诊和住院人数增加”的文章，其中CBC错误地声称一名 14 岁的脑癌患者死于新冠；并且“在新冠危机期间，萨斯喀彻温省询问其他省份是否可以保留 ICU 工作人员。” 但CBC的母公司也有自己的新冠危机。
 
-韦丝在该节目中举例说：“当质疑或追究该病毒实验室泄漏的问题就被定义为种族主义时，当不敢承认暴乱是非法暴乱时，当人们不能认为亨特-拜登的笔记本电脑值得被调查时，这个世界就已经疯掉了。”
+在多伦多公共卫生发布的最新在线列表中，CBC在拥有 20 名或更多员工的霍格敦工作场所爆发中受到关注。
 
-此外，该记者同时暗批CNN等主流媒体掩盖新冠病毒是从武汉实验室泄漏出来的事实。并因此指出，美国各科技寡头、新闻媒体、出版社、好莱坞和大学科研机构等，不仅都在刻意掩盖该病毒的来源真相，而且它们应该对目前盛行的虚假欺骗舆论导向负有不可推卸的责任。
+10 月 6 日至 12 日期间，CBC 发现了两个活跃病例。此后，公共卫生官员宣布CBC的 新冠爆发已经结束，但CBC的假新闻大流行仍在继续。
 
-[原文链接](https://www.foxnews.com/media/bari-weiss-brian-stelter-world-has-gone-mad-cnn)：
+目前尚不清楚CBC工作场所的两起案件是否反映了真实的事件或CBC用来吓唬少数剩余观众和读者的医疗例子，因为据称艾伯塔省重症监护病房已不堪重负。
+
+CBC羞愧道歉之后，眼尖的推特用户注意到了国家电视台，标题的一篇文章“这是真实的。这很危险：ICU病房里的情况，”使用了躺在ICU病床上的一个非常不真实的塑料病人的图像和视频。
+
+來源：[https://www.rebelnews.com/covid\_outbreak\_at\_toronto\_cbc\_office](https://www.rebelnews.com/covid_outbreak_at_toronto_cbc_office)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

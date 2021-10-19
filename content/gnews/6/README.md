@@ -2,49 +2,35 @@
 ---
 
 
-## 美国前国务卿科林-鲍威尔死于COVID并发症
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1602962/)
+## 脸书迫于压力未继续禁止澳洲联合党页面
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1603046/)
 
-作者：纽约香草山福音部 – Lilian89
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ab8746fbe28176bf785c7428945b35df.jpg)图片来源：Herald Sun
+**整理报道：**翼族
 
+今年早些时候，反对强制接种COVID-19疫苗的澳大利亚国会议员克雷格·凯利（Craig Kelly)因宣传羟氯喹和伊维菌素以及质疑口罩有效性而被脸书（Facebook）暂停数周，随后Facebook在4月份将其脸书页面永久关闭。
 
+但是迫于来自各方的政治压力，Facebook未继续封锁凯利议员领导的澳大利亚联合党（UAP）的页面。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
+上个月，工党的蒂姆·沃茨(Tim Watts)要求社交媒体巨头Facebook解释，为何凯利议员领导的UAP的政治广告仍然继续在Facebook平台上广泛传播。沃茨是现任澳大利亚网络安全助理部长。
 
+瓦茨（Watts）9月份向Facebook投诉，UAP已在Facebook和谷歌上发起了一项新活动，一个月内花费广告费用超过50万澳元。瓦茨认为这种行为相当于“逃避执法”。
 
+Facebook澳大利亚和新西兰政策主管米娅·戈尔里克（Mia Garlick）回应称，UAP并未违反其社区标准，尽管广告中载有凯利议员的重要内容，Facebook也“删除了似乎是为了逃避执法而创建的其它一些帐户”，但并没有扩展到UAP的账户，因为该页面“目前没有”违反社区标准。
 
-10月18日上午，美国前国务卿和参谋长联席会议主席科林-鲍威尔将军因COVID-19并发症去世。
+凯利议员周一告诉澳大利亚《卫报》，他即将对Facebook提起诽谤和违约的法律诉讼。凯利称，Facebook说他因传播错误信息而被禁止是对他的诽谤。
 
-![](https://image.cnbcfm.com/api/v1/image/106961860-16345640352021-10-18t132037z_1211972680_rc2dcq9gb487_rtrmadp_0_usa-powell.jpeg?v=1634564097&amp;w=929&amp;h=523)图片来源：路透社
+对于瓦茨向Facebook的投诉，凯利说：“澳大利亚议会的另一名成员试图宣布我为‘非正常人类’，这令人非常失望。瓦茨先生的行为是对言论自由的侮辱”。
 
-鲍威尔是牙买加移民的儿子，在里根政府时期成为美国第一位黑人国家安全顾问。此后，乔治-布什总统任命鲍威尔为参谋长联席会议最年轻的第一位黑人主席。作为主席，他在波斯湾战争期间监督了美国的沙漠风暴行动。他去世的消息传来后，美国的领导人和前同事都称赞他是一位领袖和英雄，前总统乔治-布什更是称赞他是一位“伟大的公务员”。
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-鲍威尔的家人在Facebook上写道：“我们失去了一位杰出的、充满爱心的丈夫、父亲、祖父和一个伟大的美国人。”据悉，虽然鲍威尔患有多发性骨髓瘤，但他还是完全接种了新冠疫苗。
+**参考链接：**[Facebook says Craig Kelly’s content on United Australia party page OK after banning MP](https://www.theguardian.com/australia-news/2021/oct/19/facebook-says-craig-kellys-content-on-united-australia-party-page-ok-after-banning-mp?utm_source=newsshowcase&amp;utm_medium=gnews&amp;utm_campaign=CDAQlYixxM6EgpgYGPnOnaX4hbTPlgEqEAgAKgcICjDU66ILMJf2ugM&amp;utm_content=rundown)
 
-而今，COVID疫苗给人类带来的次生灾害正逐渐在全球范围爆发。因此，任何强制他人打疫苗的行为，都等同于谋杀犯罪。
+*编辑/发布：翼族*
 
-（本文仅代表作者观点）
-
-参考阅读：
-
-[Colin Powell, trailblazing soldier and statesman who made case for Iraq invasion, dies of Covid at 84](https://www.cnbc.com/2021/10/18/colin-powell-former-secretary-of-state-who-made-case-for-iraq-invasion-dies-of-covid-complications-at-84.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

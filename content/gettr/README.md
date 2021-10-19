@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/19/2021 1:35 AM (UTC)`
+
+10月18号：我的天哪，这青蒿素比黄金都贵重呀……，我们伟大的战友．Eglise钟声．太棒了。【Sigma-Aldrich 化工试剂公司原料价格    50毫克精炼青蒿素 $1160 (100%) <br/>                                                                100毫克精炼青蒿素 $ 81.8 (98%)<br/>2%原料青蒿素的不同，价格差了14倍。所以那些号称每粒胶囊中含100-450mg 98%青蒿素的保健品，仅就价钱，就不可能是他们声称的<br/><br/>不, 2%的纯度差异, 造成价格28倍的猛增. 这2%的差异是关键!! 治疗药物可能用的是100%纯精炼青蒿素,而保健品用的原料是便宜的98%原料青蒿素.】
+![img](https://media.gettr.com/group45/getter/2021/10/19/01/35/96bd9b24-c110-e568-6f2b-23f5f6782e2a/f63a9a7d55a4abfb62cd0861f9f23063.jpg)
+
+---
+
+`@miles 10/19/2021 1:25 AM (UTC)`
+
+10/18/2021 Miles Guo’s GETTR: The original design of the Pangu Plaza was in the shape of a Jade Cong, which was switched to the Chinese dragon’s head due to the Liu Zhihua case. After Wang Qishan removed the dragon’s head, the Pangu Plaza was restored to the shape of a Jade Cong, which symbolizes the arrival of a new era - it’s just like how Pangu created heaven and earth! Think about it, what will it look like if the Jade Yue Axe is placed in the middle of Jade Bi?<br/><br/>10/18/2021 文贵盖特：盘古最初的设计就是玉琮，但由于刘志华案而改为龙头；王岐山拿掉盘古的龙头后，盘古竟然恢复了玉琮的设计；而这玉琮象征着新时代的到来，即盘古开天地！大家想想，把玉璧中间放上玉钺会是什么？<br/>
+![img](https://media.gettr.com/group35/getter/2021/10/19/01/25/429ced6c-4455-d6cc-a76f-d8bf7030069f/out.jpg)
+
+---
+
 `@miles 10/19/2021 1:00 AM (UTC)`
 
 【英语/English】 CCP Virus Covid-19 Treatment & Prophylaxis Protocol & Covid-19 Vaccinated People Detox Protocol<br/><br/>https://gnews.org/1581246/<br/><br/>【韩语/한국어】 코로나19 예방과 치료방안 및 백신 해독 방안<br/><br/>https://gnews.org/1601281/<br/><br/>【葡萄牙语/Português】 Protocolo de Tratamento e Profilaxia do Vírus PCCh Covid-19 e Protocolo de Desintoxicação de Pessoas Vacinadas da Covid-19<br/><br/>https://gnews.org/1601348/<br/><br/>【法语/Français】 PCC Virus Covid-19 Protocole de traitement et de prophylaxie & Protocole de désintoxication pour les personnes vaccinées contre le Covid-19<br/><br/>https://gnews.org/1601192/<br/><br/>【意大利语/Italian】 Virus PCC Covid-19 Trattamento & Protocollo di profilassi & Protocollo di disintossicazione per i vaccinati Covid-19<br/>https://gnews.org/1601214/
@@ -281,20 +295,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 10/14/2021 Miles Guo’s GETTR: The Whistleblowers’ Movement and the New Federal State of China have saved numerous people and let the world distinguish between the Chinese people and the CCP via our efforts to take down the CCP with the truth about the COVID vaccines and the antidote to the coronavirus. Behind our powerful force are countless fellow fighters who have been spreading the truth!<br/><br/>10/14/2021 文贵盖特：新中国联邦、爆料革命通过以(疫)苗灭共和解药灭共，拯救了无数人，使全世界把中国人和中共分开，我们强大的力量背后是无数战友们在传播真相！<br/>
 ![img](https://media.gettr.com/group29/getter/2021/10/14/23/05/e8893ec8-d7e0-f77b-a7be-61cbddc4e96c/out.jpg)
-
----
-
-`@miles 10/14/2021 4:18 PM (UTC)`
-
-10月14号：大好消息来了……
-![img](https://media.gettr.com/group24/getter/2021/10/14/16/72f266b6-9898-eaf3-1371-ccb2fe6dbf9f/out.jpg)
-
----
-
-`@miles 10/14/2021 6:24 AM (UTC)`
-
-10/13/2021 Miles Guo: The motives for Xi to invade Taiwan derive from: 1) Xi wants to be the modern “Emperor Qin Shihuang”; 2) The internal political struggles in the CCP; 3) To cover up the economic disaster brought by the collapse of real estate and to bring down the world's economy; 4) Xi is only informed of good news instead of bad news, leading to his complacency; 5) The weakening of the US<br/><br/>10/13/2021 文贵直播：习想打台湾的动机来自：1. 想做当代秦始皇；2. 党内政治斗争；3. 掩盖房地产崩溃带来的经济灾难，并拖垮世界经济；4.  手下的人报喜不报忧导致其自以为是; 5. 美国的衰弱<br/>
-![img](https://media.gettr.com/group17/getter/2021/10/14/06/24/63fa1862-0f74-e4de-17d3-a15056f4f7a5/out.jpg)
 
 ---
 

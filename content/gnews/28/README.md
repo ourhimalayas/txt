@@ -2,33 +2,164 @@
 ---
 
 
-## 拒绝强制疫苗，美国现役军人起诉拜登
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1602624/)
+## 美国文字承诺卖台3个条件，台湾凶多吉少
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602765/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/azyxo-p2t45.jpg)
+[https://gtv.org/video/id=616d7d7dd2e2b8174876b7bd](https://gtv.org/video/id=616d7d7dd2e2b8174876b7bd)
 
-据新唐人电视台10月18日报道，因反对拜登政府的强制疫苗政策，美国现役军人在法院起诉总统拜登，国防部长奥斯汀和国土安全部部长马约卡斯。
+**郭文贵**
+**Miles Guo**
 
-报道称，诉讼在佛罗里达州中区地方法院提出，由来自美军的5个部门的24名军人发起的集体诉讼。
+跟美方的勾兑第一条
+La primera garantía de cooperación con la parte de EE. UU
 
-代理案件的律师事务所Liberty Counsel表示，由于联邦的疫苗强制令，24名原告无法得到宗教豁免或调整，从而不得不起诉。
+再次晒美方在有文字承诺的情况下
+En caso de que EE. UU demuestre la promesa en escrito
 
-原告律师在起诉文件中写道，强制疫苗规定是对捍卫美国的英雄们的羞辱，会造成直接和不可弥合的伤害。
+这是美方的人跟我说的
+Esto me lo dijo un americano
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/44bc-ksmehzs8237032.png)图片来自于网络
+我都不敢相信
+No lo puedo creer
 
-原告要求法院颁布临时禁令，阻止联邦的疫苗强制令生效，最终希望能阻止五角大楼执行拜登政府的疫苗令。
+美方总统是（写）亲笔信的
+El presidente de EE. UU escribió una carta a mano
 
-五角大楼发言人，在一份电子邮件中表示，“不会对正在进行的诉讼发表评论。”
+亲手交给秦刚的
+Se lo entregó a Qin Gang
 
-自从联邦政府的强制疫苗令发布后，此类诉讼此起彼伏。10月6日，前联邦检察官鲍威尔代表16位现役军人，为强制疫苗接种的规定而向国防部及部长奥斯汀提出法律行动。
+首先就3个保证
+Primero son 3 promesas
 
-*注：本文仅代表作者观点，与 Gnews无关*
+绝不改变中共的制度
+No cambiar el Sistema del PCCh en lo absoluto
 
-*参考链接：*
+不改变中共制度
+No cambiar el Sistema del PCCh
 
-[强制接种疫苗 五角大楼再接集体诉讼](https://www.ntdtv.com/gb/2021/10/17/a103245526.html)
+听懂啊 别说推翻了
+Entiendan, no digamos derrocar
 
-* * *
+就是绝不改变你的制度
+Esto es no cambiar en lo absoluto tu sistema
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+第二 大家要记住
+Segundo, todos deben recordar
+
+现在要挂钩
+Ahorita se van a vincular
+
+从过去的脱钩
+Desde la desvinculación de antes
+
+现在要挂钩 逐渐恢复
+Ahora se van a vincular, recuperar gradualmente
+
+大家看着
+Todos vean
+
+第三 大家要记住
+Tercero, recuerden
+
+恢复中美之间的各层次
+Recuperar cada nivel entre China y Estados Unidos
+
+全面对话
+Diálogo completo
+
+括弧 括弧
+Entre paréntesis
+
+记住 这美方的信 括弧
+Recuerden, esta carta de Estados Unidos entre paréntesis
+
+中美军事高层对话
+Diálogo entre el militar chino-estadounidense de alto rango
+
+正常化
+Lo van a normalizar
+
+大家（如果有）懂的
+Si todos entienden
+
+台湾我相信那些名嘴
+Yo pienso que los presentadores famosos de Taiwán
+
+像什么『年代向钱看』
+Como el programa de Next TV
+
+还有那个什么节目
+Y los otros programas
+
+那些混饭吃的家伙瞎忽悠的
+Esa gente inventa para tener algo de comer
+
+他懂这里边什么意思
+Él entiende el significado que hay dentro
+
+在这个要打台湾的时候
+En este momento donde van a atacar a Taiwán
+
+不推翻体制
+No van a derrocar y cancelar el sistema
+
+经济挂钩
+Se van a enlazar económicamente
+
+军事全面恢复交流
+Van a recuperar completamente el diálogo militar
+
+正常交流
+Normalizar el diálogo
+
+没有呈现的说明什么
+Sin demostrar ninguna explicación
+
+不管你发生什么事情
+Sin importar lo que te suceda
+
+你打台湾什么的
+Si atacas a Taiwán o no
+
+咱经济 政治 军事 都不会停止
+Nuestra economía, política, fuerza militar no se detendrá
+
+这已经把台湾卖完了
+Ya esto terminó de vender a Taiwán
+
+我可以告诉大家郭文贵是第一个
+Yo les puedo decir a ustedes que Guo Wengui es el primero
+
+今天是台湾双十节
+Hoy es el Día Nacional de Taiwán
+
+2021年我告诉世界发生了什么事儿
+Dime que ha pasado en el mundo el 2021
+
+在这个信之后才有苏利文的
+Después de esta carta habrá de Sullivan
+
+杨洁篪的会谈
+Conversación de Yang Jiechi
+
+———————————————————
+
+**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1447755121153040385?s=24](https://twitter.com/se1y7cblljselva/status/1447755121153040385?s=24)
+
+日期：10/16/2021
+Estados Unidos garantizó 3 condiciones para vender a Taiwán, este habrá más peligro que suerte
+原视频日期：10/12/2021
+任务编号：KC176（2494）
+视频时间段：0:00-2:14
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

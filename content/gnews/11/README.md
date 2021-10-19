@@ -2,41 +2,84 @@
 ---
 
 
-## 文件显示大流行期间阿伯塔省 ICU 的容量下降
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1602898/)
+## 中美之间必有一战，其根本不在台湾，在经济
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602990/)
 
-作者：Sheila Gunn Reid
+![](https://assets.gnews.org/wp-content/uploads/2021/10/888-a71ie-wzywl.jpg)
+[https://gtv.org/video/id=616d6e80d2e2b8174876b079](https://gtv.org/video/id=616d6e80d2e2b8174876b079)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Article-Image_ICU-beds-in-AB_Oct-18-e1634599686734.jpg)
+**郭文贵**
+**Miles Guo**
 
-独家文件显示，与 2020 年 3 月宣布开始时相比，阿尔伯塔省卫生保健系统在新冠大流行一年后的 ICU 床位更少了。
+飞机来干啥呀，飞机来保护台湾呐
+What are your fighter jets coming here for? Were CCP’s fighter jets come here to protect Taiwan？
 
-访问文件管理器提供给反叛新聞的政府文件显示，在前卫生部长泰勒·山德罗的领导下，重症监护病床数量减少了。
+这飞机都是（对着）美帝国主义和日本去的
+Those fighter jets are all going against the US and Japan
 
-2020 年 3 月大流行前，ICU 容量数字表明，全省共有 186 张 ICU 病床，每 100,000 名阿伯塔人有 4.2 张病床。
+就差喊了，快来吧，快来吧，
+They’re (Taiwan) almost shouting to the mainland, come here, come here
 
-2021 年，ICU 床位数量显示全省有 173 张床位，每 100,000 名艾伯塔人有 3.8 张床位。
+所以说现在打台湾这些动机和房地产有很大的关系
+So these motives to attack Taiwan now have a lot to do with CCP’S real estate
 
-2019 年 3 月的数据显示，全省有 207 张可用的 ICU 床位；2018 年的数字反映了相同的床位数量，再次为 207。
+跟共产党的经济很大关系，共产党内部政治有很大的关系
+CCP’s economy and CCP’s internal politic struggles
 
-同一份文件表明，在所谓的第二波新冠浪潮中，阿伯塔省能够在 2021 年 1 月将 ICU 容量增加到 291 张床位，而阿伯塔省同时有 130 名 ICU 患者。 在第三波中，到 2021 年 5 月 24 日，阿伯塔省的 ICU 容量达到了 299 张床位的峰值，而 161 名患者占用了这些 ICU 床位。
+另外一个，现在看到国际形势，当然跟美国的国家现在整个的实力衰弱
+Another one, now that we see the international situation, of course it has something to do with the current weakening of the strength of the U.S.
 
-來源：[https://www.rebelnews.com/docs\_show\_alberta\_icu\_capacity\_declined\_during\_pandemic](https://www.rebelnews.com/docs_show_alberta_icu_capacity_declined_during_pandemic)
+内乱，政治斗争，助长了他们，这是为什么川普总统说谁都看到了我们的懦弱
+civil strife and political struggles have fueled them up, this is why President Trump said that everyone has seen our cowardice
 
-（文章仅代表作者个人观点）
+所以跟中共国他说未来可能只有一战了
+So just like what he said that there might be a war between China and the U.S. in the future
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+他现在才明白，他在白宫时候他不明白，
+He just realizes now, he didn’t understand when he was in the White House
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+我们每周的报告他认为跟中共国不可能有一战，要战就是第三次世界大战
+In our weekly report, he believes that there can be no war with the Chinese Com-munist Party, and that the battle will be the world war III
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+现在他明白了，现在他明白必有一战
+Now he understands, now he understands that there must be a war
 
-**关注我们**
+我告诉你，兄弟姐妹们，中美之间必有一战
+I tell you, brothers and sisters, there must be a war between China and the United States
 
-Discord 账号
+我从来没说过，你查我过去直播，我没说过，我是第一次告诉你们
+I never said that before, you check my past live broadcast, I didn’t say it, this is the first time I told you
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+我一直认为中美不能有一战，但是今天我可以告诉大家，
+I have always thought that China and the United States cannot have a war, but to-day I can tell everyone
 
-Gettr 账号
+我认为中美之间必有一战，必有一战，不是因为台湾，也不是因为香港
+I think there must be a war between China and the United States, there must be a war, not because of Taiwan, nor because of Hong Kong
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+根本问题就是经济，因为共产党这个房地产经济，这海外的十几万亿美元
+The fundamental problem is the economy because the real estate economy of the Communist Party of China, the tens of trillions of dollars in overseas
+
+这美国人你动它哈，你别动它奶酪，那就是它的钱
+No matter what you touch the American’s stuff, don’t dare touch their “cheese”, that’s their money
+
+———————————————————
+
+**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1449243903303905284?s=24](https://twitter.com/se1y7cblljselva/status/1449243903303905284?s=24)
+
+Date:10/16/2021
+原视频标题:
+There must be a war between China and the United States, it is not for Taiwan at all, it’s for the economy.
+原视频日期：2021/10/13
+任务编号：2571
+视频时间段 : 0:00-1:40
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
