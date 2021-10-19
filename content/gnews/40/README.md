@@ -2,81 +2,47 @@
 ---
 
 
-## 中共病毒及其疫苗全球超限战中的典型案例（十）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1602966/)
+## 瑞银集团表示：以太坊超越比特币的时代即将到来
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1603104/)
 
-作者：纽约香草山信息部 – 6zero4
+据《零对冲》作者：Tyler Burden，2021年10月16日报道：
 
+以太坊在今年年初表现出色，其价格飙升至4100美元以上的历史高位，几乎超越了所有的加密货币同行。最近几周，以太坊停滞不前，其在聚光灯下的位置被比特币取代，而比特币令人印象深刻的表现是现已证实的关于比特币期货ETF（交易型开放式指数基金）即将推出的猜测的结果。这也意味着，传统上两大加密货币之间的密切关联已经打破，更有利于加密货币行业；这也表明，以太币与比特币的交易价格便宜了约1000美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-339.png)图片来源：《零对冲》
+这不仅仅是比特币久违的ETF成功。瑞银策略师詹姆斯·马尔科姆（James Malcolm）表示，自夏末以来，以太币也被去中心化金融和非同质化代币这些驱动的对更快和更便宜的区块链的需求置于阴影之下。但在该银行最新的《加密指南针》出版物中，马尔科姆写道，由于以太坊之前的第二层解决方案之一Optimism的进展，这种情况可能很快会改变。
 
+正如瑞银解释：“在几乎被遗忘之后，它似乎突然要给领先的竞争对手Arbitrum一个下马威。OVM 2.0承诺了更快的处理速度，更便宜的价格和更少的代码限制，这应该鼓励智能合约的部署。” 此外，它刚刚在以太坊的测试网中实施，现在计划在两周后的10月28日在主网上线。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
+当然，所有这些与以太坊2.0准备好推出后将发生的以太币升值相比，都相形见绌。一些人猜测，该事件将迅速引发加密货币的快速翻倍，高盛将其称为 “信息的亚马逊”（这也是高盛也认为以太币最终会超过比特币的原因）。
 
+数据还显示最近链上活跃地址的反弹，被总转账量的小幅下降所抵消，然而这可以归因于最近几周巨额天量交易的激增（更多内容见下文）。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-340.png)图片来源：瑞银/Glassnode
+在观察比特币和以太币之间的交易所余额时，也出现了一个奇怪的分歧。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-341.png)图片来源：瑞银/Glassnode
+但最引人注目的似乎是比特币和以太坊的加密期权分配，两者都远远高于当前市场价格，这表明两者都可能会面临重大的伽马挤压。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-342.png)图片来源：瑞银/Glassnode
+顺便说一下，说到以太坊二级，比特币用于小型交易的闪电网络也一直在增长，以期待下个月的Taproot升级：今年到目前为止，闪电网络节点和通道的数量增加了一倍，容量增加了将近两倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-343.png)图片来源：瑞银/Glassnode
+顺便说一句，相反，这并不意味着比特币会下跌。
 
+正如瑞银所写的那样，比特币现在处于6万美元附近，距离其4月份的历史高点很近。它的最新反弹分为两个步骤：10 月 1 日，鲍威尔发表评论称无意跟随中共国禁止加密货币；10 月 6 日，据报道在五分钟内执行了近 16 亿美元的买单。两者都发生在数字峰会上大牌主持人抛出即将获得美国 ETF 批准的猜测不断增加的背景下（我们现在知道这已经发生了），以及参议院银行委员会共和党反对拜登政府和美联储明确的强加计划的反对类似银行对稳定币的监管。 Pat Toomey 的观点是，这是国会决定和颁布澄清立法的事情，这需要更多时间。它们帮助触发了空头期货头寸的清算，但没有留下买卖价差的痕迹，与我们一个月前看到的相比，几乎没有任何变化。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-344.png)图片来源：瑞银/Bloomberg
+毫不奇怪，随着比特币价格超过 6 万美元，看涨情绪变得更加明显，吸引了芝加哥商业交易所不断增长的现货期货基差套利，并推高了永续期货融资利率。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-345.png)图片来源：瑞银/Glassnode
+随着比特币实体调整后的交易量超过 2021 年初的高点，链上活动也出现了重大复苏。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-346.png)图片来源：瑞银/Glassnode
+最引人注目的是，这根本不是小规模和散户投资者设定的价格：正如瑞银的下一张图表所示，庄家在驱动座位上的影响程度几乎是史无前例的，平均交易规模比达到了2013年以来的最高水平。
 
-**新南威尔士州当局威胁没有疫苗接种证明而试图进入工作场所的人将被监禁**
+说到庄家，庄家持有的比特币供应量现在是有史以来最高的，约为8百万（总数为2100万），而交易所和场外交易柜台的持有量都在下降。同样值得注意的是，随着越来越多的真正的长期持有者，比特币的供应在不到3个月前开始暴跌。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-347.png)图片来源：瑞银/Glassnode
+新闻来源：[https://www.zerohedge.com/crypto/ethereums-turn-outshine-bitcoin-coming-ubs-says](https://www.zerohedge.com/crypto/ethereums-turn-outshine-bitcoin-coming-ubs-says)
 
-据零对冲9月30日报道，澳大利亚新南威尔士州劳工服务部部长多明奈洛威胁称，没有COVID-19疫苗接种证明而试图用假疫苗护照进入工作场所的人将被逮捕甚至监禁，如有发现进入商店、餐馆和其他公共场所时拒绝出示疫苗接种证明的情况，相关民众应该立即向警方报案。
+翻译：洛杉矶盘古农场 – KY
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-348.png)图片来源：零对冲
+校对：洛杉矶盘古农场 – Mike Li
 
-澳大利亚未接种新冠疫苗的人不仅被公然歧视，他们如果试图从事基本的商业或社交活动，还会被投入监狱，开创了疫苗护照与犯罪挂钩的先例。但新南威尔士州警察局长富勒最近却声称，他的警员不会检查这些个人医学文件，不会在餐厅、咖啡馆和酒吧检查人们是否接种了两针疫苗。
+编辑：洛杉矶盘古农场 – 明子
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**梵蒂冈将惩罚拒绝遵守COVID-19疫苗接种认证的员工**
-
-教皇方济各表示，自10月1日起，对于不能证明自己接种过新冠疫苗或者没有进行COVID病毒检测而不能上班的工作人员，梵蒂冈将定义其为“无故旷工”而扣发工资。教皇方济各一直是大规模疫苗接种计划的强烈支持者，他还声称，人类“与疫苗有着友好的历史”。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-349.png)图片来源：零对冲
-
-领土只有0.44平方公里，常住人口只有800人左右的梵蒂冈，其外围的意大利就是梵蒂冈人进行社会活动的场所。实际上，意大利政府最近也通过了一项适用于私营和公共部门的法令，责令公司对拒绝接种COVID-19疫苗的职员扣发工资。在博物馆、体育场、酒吧、餐馆和学校的准入条件被放松后，那些在没有疫苗通行证的情况下仍然继续工作的人将面临高达1500欧元的罚款。未接种新冠疫苗的人还被禁止使用长途公共交通工具——这意味着许多人无法度假、上班和探亲。
-
-对此，意大利人继续走上街头，抗议这些所谓的COVID-19疫情防控措施。一段视频显示，警察摘下头盔与示威者站在一起，以示对这些抗议者的支持。
-
-许多信徒试图申请宗教豁免以避免接种新冠疫苗，但梵蒂冈本身并没有提供这样的变通选项——教皇方济各认为，天主教徒接种新冠疫苗是可以接受的，即使是那些使用导致胎儿流产的干细胞素的疫苗。实际上，教皇是在推广新冠疫苗和代理疫苗护照，因此他要求所有人都遵守新冠疫苗接种令。
-
-**只有七家英超足球俱乐部球员的COVID-19疫苗接种率超过50%**
-
-据零对冲10月1日报道，尽管足球界有大规模的宣传活动鼓励球员接种新冠疫苗，英超甚至计划“奖励”疫苗接种率高的球队，但在20家英超足球俱乐部中，只有七家俱乐部的球员的COVID-19疫苗接种率超过50%；至少有两家英超俱乐部在整个球队阵容中接种COVID-19疫苗的球员不超过6人，而通常整个阵容包含超过25名球员。英超当局对球队新冠疫苗接种率之低感到担忧——他们担心，随着疫苗护照在国际旅行中变得越来越普遍，恐将危及英超球员参加国际比赛的机会。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-350.png)图片来源：零对冲
-
-正如NBA明星球员艾萨克所言，没有理由让一名健康且年轻的运动员接种COVID-19疫苗——对于年龄在20到30岁的健康男性来说，疫苗副作用对身体构成的威胁比病毒本身多得多。
-
-体育明星痴迷于健康和健身。显然，相比大多数人，他们对自己的身体需要摄入什么与摄入了什么做了更多的研究。因此，COVID-19疫苗的真实面貌他们怎能不探个究竟呢？尽管媒体和当局对他们施加了难以承受的压力，他们中的许多人仍然坚决拒绝接种COVID-19疫苗——这种想象其实不足为奇。
-
-**加州参议院费恩斯坦提出为国内航空旅行的人接种新冠疫苗的法案**
-
-据零对冲10月1日报道，民主党加州参议员费恩斯坦最近提出了一项“美国航空旅行公共安全法案”，要求卫生与人类服务部和美国联邦航空管理局为航空公司制定一套标准，用以确保在国内进行航空旅行的人要么已经完全接种了COVID-19疫苗，要么COVID-19病毒检测结果为阴性，或者已完全从COVID-19病毒感染中恢复，否则，他们没有在国内航空旅行的资格。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-351.png)图片来源：零对冲
-
-费恩斯坦办公室声明称，此举对确保航空旅客保护自己及其目的地社区免受COVID-19疫情的影响意义重大，尤其是在我们面临新的、更致命的COVID-19变种的情况下。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-1. [Authorities Threaten Jail Time For Unvaccinated Aussies Who Try To Enter Businesses](https://www.zerohedge.com/covid-19/authorities-threaten-jail-time-unvaccinated-aussies-who-try-enter-businesses)
-2. [Vatican To Punish Employees Who Refuse To Comply With COVID-19 Certification](https://www.zerohedge.com/covid-19/vatican-punish-employees-who-refuse-comply-covid-19-certification)
-3. [Only Seven Premier League Clubs Have More Than 50% Vaccinated Players](https://www.zerohedge.com/covid-19/only-seven-premier-league-clubs-have-more-50-vaccinated-players)
-4. [Dianne Feinstein Introduces Bill To Require COVID Vaccination In Order To Fly Domestically](https://www.zerohedge.com/political/dianne-feinstein-introduces-bill-require-covid-vaccination-order-fly-domestically)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

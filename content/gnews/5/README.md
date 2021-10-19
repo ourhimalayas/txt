@@ -2,20 +2,36 @@
 ---
 
 
-## 中共和俄军舰首次联合穿越日本津轻海峡
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1603751/)
+## 工党议员“利用种族主义”来逃避审查
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1603821/)
 
-#### 撰稿：坤霆
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-59.jpg)图片来源：维基百科
-10月19日日经新闻报道，东京国防部周一表示，属于中国和俄罗斯的十艘海军舰艇在日本北部穿过了一个狭窄的瓶颈—-津轻海峡。
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/r0_0_800_600_w1200_h678_fmax-1.jpg)图片来源：mandurahmail.com.au
+#### 编译：小红帽
 
-这是已知中国和俄罗斯军舰首次共同穿越津加鲁海峡。海峡位于日本主岛本州和北海道北部岛屿之间。
+前维多利亚州劳工部长艾德姆·索缪雷克（Adem Somyurek）和他的政治门生指责记者有种族主义倾向，以阻止记者调查由纳税人资助的，授予其派系盟友的拨款。
 
-津轻海峡最窄的点是19.5公里，即12.1英里，但海峡的中心部分被指定为国际水域。这是美苏冷战时的遗留问题，即允许携带核武器的美国船只通过。通过将日本领水限制在离海岸仅3海里，而不是惯例12海里，来允许美国船只在不违反日本“三项无核原则”的情况下穿越的津轻海峡，其中一项原则禁止将核武器引入日本领土。
+在索缪雷克先生的指导下，Banyule市长里克·加罗蒂（Rick Garotti）周二告诉维多利亚独立广泛反腐败委员会调查，他帮助索马里澳大利亚维多利亚委员会（SACOV）获得了几笔赠款。
 
-军舰向东驶向太平洋，这可能是“2021年海军互动”的一部分，这是两国海军本月进行的联合海上演习。
+其中包括10万美元，作为2019年维多利亚负责任赌博基金会预防合作计划的一部分。该计划由当时的博彩部长玛琳·凯鲁兹（Marlene Kairouz ）监督。
 
-由于海峡是国际水域，通过本身并不违反国际法。海上自卫队使用一架P-3C海上监视飞机和两台扫雷机监测了这次行动。
+加罗蒂先生说，他“不知道”赠款的用途，也不知道索马里澳大利亚维多利亚委员会将用它做什么，但他帮助了该组织的创始人兼秘书侯赛因·哈拉科（Hussein Haraco），因为哈拉科是一个“派系盟友”，因为其派系活动而得到奖励。
 
-原文链接：[Chinese, Russian warships jointly pass Japan chokepoint for 1st time](https://asia.nikkei.com/Politics/International-relations/Chinese-Russian-warships-jointly-pass-Japan-chokepoint-for-1st-time)
+当记者联系哈拉科博士，询问有关补助金的问题时，加罗蒂先生和索缪雷克先生讨论了以种族主义的说法作为回应。两人还代表哈拉科博士起草了一封回复给记者的电子邮件。
+
+“索马里社区厌倦了像你这样的记者指责我们分支堆叠……是因为我们是黑人吗？”邮件写道。
+
+索缪雷克先生在被开除之前退出工党，但保留了他的上议院席位，而凯鲁兹女士则辞去了内阁职务。两人都否认有不当行为。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Labor MP ‘used racism’ to avoid scrutiny (thenewdaily.com.au)](https://thenewdaily.com.au/news/state/vic/2021/10/19/adem-somyurek-ibac/)  ** **
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

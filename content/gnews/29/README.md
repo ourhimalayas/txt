@@ -2,19 +2,45 @@
 ---
 
 
-## 秘翻在线：【速报】辉瑞和莫德纳疫苗的原材料来自日本ヤマサ（觓）酱油
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1603515/)
+## 40多个国家在推广新冠毒疫苗后，相关死亡人数激增
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1603633/)
 
-撰稿：待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/画像1-14.png)（图片源自本文链接）
-10月19日FNN要闻在线报道：很多人已经接种了中共病毒疫苗，看似日本在开发该疫苗方面落后于世。但您知道吗，一家日本制造商正在为一种新的中共病毒疫苗提供原材料。
+栏目记者/责任编辑：AsG諾雅
 
-中共病毒疫苗“信使RNA”不可或缺的关键成分”假尿苷”就由位于日本千叶县铫子市的酱油名企ヤマサ (觓)酱油生产并提供给辉瑞和莫德纳。
 
-ヤマサ (觓)酱油厂家的人告诉记者说：这种”假尿苷 “虽然产出于酱油企业，但并不用于酱油生产，它只是用于生产中共病毒疫苗的原材料的名称而已。它是构成中共病毒疫苗 “信使RNA疫苗 “的原材料之一，也存在于我们身体的细胞中。
 
-ヤマサ (觓)酱油生产核酸相关物质的历史已经超过60年。核酸是脱氧核糖核酸（DNA）和核糖核酸（RNA）的总称，是生命所必需的高分子生物聚合物。在这个领域的专业和发展过程中，觓(ヤマサ)酱油合成了各种核酸相关物质，并作为研究试剂出售，”假尿苷 “也是其中之一。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-[信息源](https://www.fnn.jp/articles/-/255192)
 
-（文章仅代表作者个人观点）
+
+英国【The Expose】10月18日报道，定量数据分析师乔尔-斯马利发布的一段视频显示，有40多个国家在推广新冠毒疫苗接种后，相关死亡的人数却比接种前大幅增加。该视频的数据来源于约翰-霍普金斯大学冠状病毒资源中心。
+
+英国的首批新冠毒疫苗于2020年12月8日开始接种，当时相关死亡人数已经开始下降。随着新冠毒疫苗的推广，相关死亡人数又开始迅速爬升。
+
+该视频完全验证了爆料革命的判断，新冠疫苗就是杀人的生物武器，它的推出与健康无关，目的除了杀人就是黑暗势力企图控制世界。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-9.jpg)
+参考链接：
+[Data Analyst proves Covid-19 Deaths increased dramatically AFTER the Vaccine roll-out in over 40 countries](https://theexpose.uk/2021/10/18/covid-19-deaths-increased-dramatically-after-the-vaccine-roll-out-in-over-40-countries/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Q大哥
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
