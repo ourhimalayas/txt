@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/19/2021 4:39 AM (UTC)`
+
+Tu Youyou said Artemisia annua has many other efficacies besides treating malaria: “I hope it can reach its full potential.”<br/><br/>屠呦呦说青蒿素除治疗疟疾外，还有很多功效：“我也很愿意物尽其用。”<br/>
+![img](https://media.gettr.com/group16/getter/2021/10/19/04/39/173dc3b9-6777-a76e-ad70-e5b1cb9bb87b/out.jpg)
+
+---
+
+`@miles 10/19/2021 4:30 AM (UTC)`
+
+10/17/2021 Mile Guo: Anyone in the CCP system could be the next victim of the CCP, and entrepreneurs who try to cooperate with CCP in exchange for freedom won’t escape the fate of being killed at last<br/><br/>10/17/2021 文贵直播：体制内的任何人都可能是共产党的下一个受害者，试图和共产党合作来换取自由的企业家最终逃不过被杀害的命运<br/>
+![img](https://media.gettr.com/group9/getter/2021/10/19/04/30/8503dc0e-896e-4580-e36b-d6662e93a8ca/out.jpg)
+
+---
+
 `@miles 10/19/2021 1:35 AM (UTC)`
 
 10月18号：我的天哪，这青蒿素比黄金都贵重呀……，我们伟大的战友．Eglise钟声．太棒了。【Sigma-Aldrich 化工试剂公司原料价格    50毫克精炼青蒿素 $1160 (100%) <br/>                                                                100毫克精炼青蒿素 $ 81.8 (98%)<br/>2%原料青蒿素的不同，价格差了14倍。所以那些号称每粒胶囊中含100-450mg 98%青蒿素的保健品，仅就价钱，就不可能是他们声称的<br/><br/>不, 2%的纯度差异, 造成价格28倍的猛增. 这2%的差异是关键!! 治疗药物可能用的是100%纯精炼青蒿素,而保健品用的原料是便宜的98%原料青蒿素.】
@@ -279,22 +293,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 10月14号：新中国联邦的旗帜在我们帅气，健康的战友的手中，第一次在马拉松比赛中，走向了胜利。https://www.telegram.com/picture-gallery/sports/2021/10/11/boston-marathon-2021-runners-framingham-natick-ashland-pictures/6082058001/
 ![img](https://media.gettr.com/group19/getter/2021/10/14/23/26/2ff943ba-8f83-46bc-ce6f-3ff7918b8225/ba28685d08056f54cc0ac24194688745.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@zemmoureric 10/11/2021 9:31 PM (UTC)`
-
-Économie, écologie, instruction, merci au @CercleHebe pour ces échanges !  
-![img](https://media.gettr.com/group31/tw/2021/10/12/00/a5abd86b-8366-5804-7c44-d203d57e41f3/d28ba18d93253219c3a340080b79d7fb.jpg)
-
----
-
-`@miles 10/14/2021 11:05 PM (UTC)`
-
-10/14/2021 Miles Guo’s GETTR: The Whistleblowers’ Movement and the New Federal State of China have saved numerous people and let the world distinguish between the Chinese people and the CCP via our efforts to take down the CCP with the truth about the COVID vaccines and the antidote to the coronavirus. Behind our powerful force are countless fellow fighters who have been spreading the truth!<br/><br/>10/14/2021 文贵盖特：新中国联邦、爆料革命通过以(疫)苗灭共和解药灭共，拯救了无数人，使全世界把中国人和中共分开，我们强大的力量背后是无数战友们在传播真相！<br/>
-![img](https://media.gettr.com/group29/getter/2021/10/14/23/05/e8893ec8-d7e0-f77b-a7be-61cbddc4e96c/out.jpg)
 
 ---
 
