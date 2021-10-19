@@ -2,42 +2,36 @@
 ---
 
 
-## 中共国苹果商店删除所有圣经和古兰经应用程序
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1604201/)
+## 依旧以假治国, 受灾减产变成“大丰收”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1604203/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/PCMGXOTTVRMVRPYSKB7PEOBAMI-2.jpg)网络图片
+作者：修文
 
-**摘要翻译：**《布赖特巴特新闻网》10月18日报道称，允许用户阅读和收听圣经和古兰经的应用程序制造商，包括亚马逊的Audible，周五宣布，由于中共政府的“许可证要求”，他们从中共国的苹果商店中删除了此类应用程序。
-
-华盛顿州斯波坎市一家名为“橄榄树圣经软件公司”(Olive Tree Bible Software)的圣经应用程序开发商表示，“从苹果应用商店的审核程序中得知，需要特殊许可才能发布‘书籍或杂志内容’的应用程序”，它已将其应用程序从中共国的苹果商店中删除。美联社(AP)10月16日报道。
-
-一家名为“巴基斯坦数据管理服务”的公司开发了一款古兰经阅读应用程序，该公司周五表示，它“正在研究需要哪些文件才能获得中共当局的批准，以便恢复该应用程序。”
-
-这家总部位于卡拉奇的公司提到了其“Quran Majeed”应用程序，该应用程序在中共国拥有近100万用户，在全球拥有约4000万用户。
-
-Audible是亚马逊的有声读物服务，与圣经和古兰经特定的应用程序相比，它是一款开发更完善的应用程序，周末也受到了中共国的新互联网法规的影响。
-
-据美联社报道，“监测网站‘苹果审查’(AppleCensorship)在本周最早发现这些应用程序被删除，该网站主要监控苹果应用商店以发现应用程序何时被阻止。”
-
-据美国之音报道，10月16日，当美国新闻机构向中共国驻美国大使馆发言人刘鹏宇询问此事时，他拒绝就“具体的应用程序删除”答复美联社。
-
-刘鹏宇确实向美联社表示，中共政府“一直鼓励和支持互联网的发展”。
-
-“与此同时，中国互联网的发展也必须遵守中国的法律法规。”他在一封电子邮件声明中说。
-
-**简评：**从香港反送中运动到一国两制在香港的彻底消失，中共政府已经向全世界发出了一个明确的信号，法律在它面前就是一个可以随时利用的武器，需要什么样的法律它就会颁布什么样的法律，曾经颁布的法律，只要需要，它也可以随时更改。所以，中共政府对苹果商店圣经和古兰经应用程序提出“许可证要求”，并不奇怪。这一举动虽然表面上看是中共政权意图进一步打压中共国老百姓的宗教信仰自由，但从另一方面可以看出，中共政权对于其统治地位的自信正在下降。随着中共国经济的进一步恶化，随着中共内部政治斗争的加剧，共产主义中共政权的陷落将不可避免。
-
-新闻链接: [**China’s Apple Store Deletes All Bible and Quran Apps**](https://www.breitbart.com/asia/2021/10/18/china-apple-store-deletes-bible-quran-apps/)
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+自由时报消息，中共河南省副省長武国定曾在9月底向媒体表示，由于连遭暴雨和水灾，导致各行各业损失惨重。特别是农业，河南本来是墙内产粮大省，但全境农田、农作物受灾面积达1515万亩，今年秋粮肯定会减产。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1019-AM-（1-3）.005.jpeg)
+但是不到一个月，官方口径就转向改为宣传河南今年秋粮“大丰收”。其中央视财经本月13日引述农业部数据称，中国秋粮已收获完成超过一半，”降雨”没有改变秋粮丰收得局势。当地农民普遍表达质疑和愤怒， 称政府不提受灾减产，“秋收还没有结束，专家已经计算出增产二百亿吨，简直是在做中国梦”。几十年过去，中共依然是这种大跃进式套路以假治国，用“大丰收”谎言，掩盖水灾造成的粮食减产，只求维稳。
+
+虽然官媒强调粮食丰收，但根据中共海关的数据显示，今年1到4月粮食进口量比去年同期增加高达57.8% ! 天灾可以躲过，人祸却无法避免，数据表明，墙内大范围粮荒已经出现势头 。
+(本文仅代表作者观点)
+
+参考链接：[秋收未結束卻估計大豐收 中國不斷吹噓「糧食豐收」遭打臉](https://news.ltn.com.tw/news/world/breakingnews/3708289)
+
+
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

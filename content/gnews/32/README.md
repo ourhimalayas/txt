@@ -2,31 +2,34 @@
 ---
 
 
-## 朝鲜向日本海发射弹道导弹，疑为中朝给新首相岸田送“贺礼”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1604202/)
+## 跨党派议员提交法案，抗击中共&#8221;经济霸凌&#8221;
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1604204/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/342-2.jpg)[图片来源](https://bowenpress.com/news/bowen_173520.html)
-韩军联合参谋本部19日透露，朝鲜当天上午10点17分前后从该国东部新浦附近向日本海发射了1枚弹道导弹。日本首相岸田文雄透露发射了2枚。截至目前未发现受害情况。
+作者：飞虹
 
-韩国《中央日报》援引韩军相关人士的话报道称，据推断发射的是潜射弹道导弹（SLBM）。另据韩联社报道，飞行距离约450公里。日美韩将加紧展开分析。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-日本防卫省召开相关干部会议，防卫相岸信夫等出席。防卫省在记者会上透露，已通过北京的大使馆渠道向朝鲜提出了抗议。
 
-鉴于朝鲜发射弹道导弹，日本外务省亚洲大洋洲局局长船越健裕与美国朝鲜政策特别代表金成进行电话磋商，再次确认了密切合作的方针。
 
-据韩国媒体报道，日美韩情报机构一把手19日在首尔围绕朝鲜交换意见。此外，负责朝鲜事务的日美韩外交部门高官也将于当地时间19日聚首华盛顿。朝鲜射弹也有可能考虑到了该日程。
+10月15日，美国众议院外交事务委员会、亚太小组委员会主席 贝拉 发布一份媒体新闻稿，历数了中共过去十多年来对各国采取“经济报复与胁迫”的例子，将中共的这类行径称为“经济霸凌”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1019-AM-（1-3）.006.jpeg)
+贝拉是来自加州的民主党众议员，她联合密苏里州共和党议员瓦格纳，及其跨党派议员共同提交了名为《反中国经济胁迫法》的法案，并积极推动成立一个跨部门工作组，应对和反抗中共对美国政府、企业、组织和个人的”经济霸凌”。
 
-9月4日，朝鲜当日接连发射远程巡航导弹、高超音速导弹等多种新型导弹，随后便暂停了导弹发射动作。
+近年来，美国国会两院两党议员在涉及新疆、香港、台湾的问题上，已经针对中共暴政陆续推出一系列法案。表明在党派分歧严重的美国国会，对中共政府采取强硬立场已经日益成为两党共识。
+(本文仅代表作者观点)
 
-10月4日，岸田文雄当选就职以后先后分别与美中韩3国首脑进行了电话沟通。特别是10月15日与韩国总统文在寅的电话会谈中表示，深化日韩以及日美韩3国的合作以应对朝鲜的核与导弹开发和朝鲜绑架日本人的问题。
+参考链接：[美跨党派议员提出对抗中国经济胁迫的法案](https://www.voachinese.com/a/US-congressmen-china-economic-coercion-20211018/6275850.html)
 
-中共支持并安排朝鲜以核和导弹威胁日韩已经成为世人皆知的事情。此次朝鲜突然发射弹道导弹，也是其“以威胁促谈判，以撒泼要利益”的惯用套路，恰好发生在岸田首相新上任的两周，也算是中共和朝鲜送上的一份“贺礼”。朝鲜的问题，实质也就是日中韩的三角关系，关于如何处理，对于岸田的考验已经开始。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-[信息来源](https://china.kyodonews.net/news/2021/10/3a9f4d6ec2d4--slbm.html)
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
 
-(文章仅代表作者本人观点，与GNEWS无关)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
