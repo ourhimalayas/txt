@@ -2,54 +2,33 @@
 ---
 
 
-## 据称泄露的加拿大政府备忘录告诉员工不要说“加油吧布兰登”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1604685/)
+## 完全接种COVID疫苗的前美国国务卿死于 COVID 并发症
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1604726/)
 
-作者：Efron Monsanto
+据《新闻大全》2021 年 10 月 18 日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-13.png)图片来源于网络
+美国第一位黑人国务卿科林鲍威尔死于 COVID-19 并发症。
 
-一份据称来自加拿大政府打印出来的备忘录昨天在推特上疯传，警告员工不要使用“加油吧布兰登（Let’s Go Brandon）”这句话，否则有被解雇的风险。
+科林·鲍威尔是牙买加移民的儿子，他成为美国第一位黑人国务卿和高级军官。
 
-阿尔伯塔研究所所长彼得麦卡弗里将备忘录的一个版本发布到推特上，据称该备忘录显示了加拿大共享服务部泄露的备忘录，该机构向联邦政府提供提供满足加拿大人需求数字和IT 服务。
+他的家人说，尽管他已经完全接种了COVID-19疫苗，但他还是死于该病的并发症。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Brandon-1.jpeg)
+民主党人以及鲍威尔的共和党同僚，包括前总统乔治·W·布什，都纷纷表示哀悼。
 
-备忘录写道：“具体来说，加拿大公共服务部门禁止在任何情况下使用‘加油吧布兰登（Let’s go Brandon）’一词及其任何变体。”
+“布什在一份声明中写道：“许多总统依赖鲍威尔将军的建议和经验。”他是总统们的最爱，以至于他获得了总统自由勋章–两次。“
 
-备忘录还说，任何员工提及这句话“都将成为立即解雇的理由，没有追索权或工会代表。”
+英国前首相托尼-布莱尔（Tony Blair）回顾了鲍威尔的自嘲式幽默，他对员工的善意，以及他 “愿意为了国家的利益跨越党派分歧”的精神。
 
+布莱尔说：“多年来，科林是美国军事和政治领导层的一个重要人物，他能力超群，为人正直，性格非常可爱和热情。”
 
+几十年来，鲍威尔是美国最重要的黑人人物之一。他被三位共和党总统任命为高级职位，并在美国军队在经历了越南战争的创伤后重新获得活力时达到了顶峰。
 
-> Lets Go Brandon … LOL [#LetsGoBrandon](https://twitter.com/hashtag/LetsGoBrandon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/kZpIyyxjTk](https://t.co/kZpIyyxjTk)
-> — Javy Foxtrot (@JavyFoxtrot17) [October 11, 2021](https://twitter.com/JavyFoxtrot17/status/1447543009483055105?ref_src=twsrc%5Etfw)
+在越南受伤的鲍威尔在1987年至1989年期间担任罗纳德-里根总统的美国国家安全顾问。作为一名四星陆军上将，他在1991年海湾战争期间在乔治-H-W-布什总统手下担任军方参谋长联席会议主席，在这次战争中，美国领导的部队将伊拉克军队从邻国科威特驱逐出去。
 
+鲍威尔是一个温和的共和党人和实用主义者，他曾考虑在1996年成为第一位黑人总统，但他的妻子阿尔玛对他的安全的担忧帮助他作出了不同的决定。2008年，他与他的政党决裂，支持民主党人巴拉克·奥巴马，后者成为第一个当选白宫的黑人。
 
+【本文仅代表作者个人观点，与Gnews无关】
 
-口号“加油吧布兰登”是一个流行的模仿，背景是现场观众高呼的那句全美熟悉的热搜词“X 乔·拜登（F \*\*\* Joe Biden）”。一位NBC记者正在 NASCAR赛车活动中采访车手布兰登·布朗，当时后面的口号爆发了。然而，NBC的记者声称口号是“加油吧布兰登”，此后被称为损害控制的一种形式。
+原文链接：[https://www.newsmax.com/headline/colin-powell-dies-covid-complications/2021/10/18/id/1040894/](https://www.newsmax.com/headline/colin-powell-dies-covid-complications/2021/10/18/id/1040894/)
 
-我联系了加拿大共享服务部的评论，它首先回应要求提供一份未经编辑的信件副本，并知道我是为哪个网站写稿的。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Brandon-3.png)
-
-下午晚些时候，加拿大共享服务部回应并在给反叛新闻的一份声明中澄清说：“我们可以确认这条消息不是由加拿大共享服务部发布的，也没有相关部门政策。”
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Brandon-4.png)
-
-來源：[https://www.rebelnews.com/debunked\_alleged\_leaked\_canadian\_gov\_memo\_tells\_employees\_to\_not\_say\_let\_s\_go\_brandon](https://www.rebelnews.com/debunked_alleged_leaked_canadian_gov_memo_tells_employees_to_not_say_let_s_go_brandon)
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+翻译：烟波浩淼 |校对：雨山溪桥客 | 编辑&发布：黎明的光芒

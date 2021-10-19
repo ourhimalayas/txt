@@ -2,27 +2,23 @@
 ---
 
 
-## 莫斯科举办阿富汗问题会议
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1604908/)
+## 有声|英国生育率创下新低
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1604931/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+配音：香草山美食部 – 玫瑰园
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/a-1.jpg)yenisafak.com
-印度媒体报道，莫斯科10月19日表示，10个国家的代表和一个塔利班高层代表团将参加莫斯科举行的阿富汗问题会议。
+根据英国国家统计局的官方数据，2020年英国的生育率降至1.58，达到有记录以来的最低水平。 尽管新冠大流行期间，人们大部分时间待在家中，但是2020年英国人口出生率比2019年下降了4.2%，比2001年的前一个历史低点低了3.1%。而且，英国的出生率已经连续五年呈下降趋势。 英国怀孕咨询处指责中共病毒大流行导致的经济不确定性，是生育率大幅下降的原因之一。 大范围接种新冠疫苗也可能会成为导致生育率和出生率下降的因素。英国是最早普及新冠疫苗的国家之一，接种率已接近70%。英国生殖免疫专家发现新冠疫苗导致女性经期紊乱，甚至闭经。大量医学案例证明，孕期女性接种新冠疫苗可导致流产。
 
-这次由俄罗斯主持的会议将于10月20日举行。在会议期间，讨论的重点将是阿富汗的军事和政治局势，组建一个包容性的政府以及国际社会为防止人道主义危机所做的努力。
+文字版原文：[英国生育率创下新低](https://gnews.org/zh-hans/1601494/)
 
-阿富汗外交部发言人巴尔基(Abdul Qahar Balkhi)在推特（Twitter）上写道，塔利班代表团将由阿富汗临时政府副总理哈纳菲（Abdul Salam Hanafi）率领，塔利班计划在访问莫斯科期间与各国代表就共同关心的问题进行谈判。
+音频处理：喜山必胜Maverick
 
-据俄罗斯新闻社报道，莫斯科模式（Moscow Format）会议是在俄罗斯、阿富汗、中共国、巴基斯坦、伊朗和印度六方会谈机制的基础上于2017年推出的。
-
-路透社表示，俄罗斯外交部称，俄罗斯、中共国和巴基斯坦愿意向阿富汗提供援助，但莫斯科表示尚未准备好承认塔利班政府。俄罗斯外长拉夫罗夫说，俄罗斯不承认塔利班，而是在等待他们履行执政时做出的承诺，包括新政府在政治和种族方面的包容性。美国表示不会加入这一轮谈判，但计划将来加入。
-
-8月中旬，随着美国及其盟友在阿富汗驻扎20年后撤出军队，阿富汗政府垮台，导致塔利班以闪电攻势夺取政权。俄罗斯正试图抓住外交主动权，避免更广泛地区的不稳定，同时最大范围内地保障自身利益及增加国际影响力。
-
-参考链接：
-
-[https://www.afghanistansun.com/news/271523080/representatives-of-10-nations-taliban-to-take-part-in-moscow-format-meeting-discussion-likely-on-afghan-humanitarian-crisis](https://www.afghanistansun.com/news/271523080/representatives-of-10-nations-taliban-to-take-part-in-moscow-format-meeting-discussion-likely-on-afghan-humanitarian-crisis)
-
-[https://www.news18.com/news/world/moscow-talks-on-wednesday-india-to-come-face-to-face-with-taliban-for-the-second-time-4340747.html](https://www.news18.com/news/world/moscow-talks-on-wednesday-india-to-come-face-to-face-with-taliban-for-the-second-time-4340747.html)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

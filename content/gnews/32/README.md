@@ -2,35 +2,24 @@
 ---
 
 
-## 加州家长抗议对在校学生强制接种新冠疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1604504/)
+## 郭文贵先生2021年10月19日盖特视频（4分34秒）全文字版
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1604550/)
 
-作者：雪梨
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-本周一数千名学生家长，齐聚州议会大厦，抗议加州州长的学生接种强制令。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-44.png)
+10月19号，尊敬的战友们好，我昨天晚上真是把我忙头晕了，你看嗓子……昨天晚上开了将近四个半小时的会，开了好几次，起起睡睡，睡睡起起，好多，好多，好多，好多，好多事情。
 
-在加州首府沙加缅度的议会大厦门外，聚集了数千人，有来自本地及附近城镇，如旧金山湾区的人们，还有距离五百英里以外，圣地亚哥社区的家长们。当天，很多学生没有去学校，选择留在家里，以示抗议。
+现在国内啊，很多大事儿都发生。现在看到杰克马，杰克马跑西班牙接客去了。兄弟姐妹们，我可以告诉大家，看着这个阿里巴巴的股票，阿里巴巴股票如果你们要是任何一个人相信啊，要相信说杰克马是自由的，去了西班牙，那你就傻了啊，太傻了。要相信的人赶快去买他股票去，看看这个杰克马的股票会怎么样。杰克马完全没有自由，一定要记住，完全没有自。未来，记住我今天说的话，什么时候原来抓查这个杰克马，什么时候抓杰克马，杰克马什么时候去香港，只有七哥知道。大家记住吧，只有七哥知道去了香港，他去西班牙完全是非自由的，正在处理资产中，哈哈，处理资产，了解，了解，了解啊。大家走着看，现在是脱手啊，一切都要脱手。包括大家看了股票，这个股票抬一抬，把很多东西要出手。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-8.jpeg)
+江家、曾家、王岐山家、孟建柱家危也，危也，看着怎么弄吧，现在也看到这个所有处理这些资产当中，这些游戏，包括现在你看那个潘石屹，为啥要通缉他两口子是吧，是吧，这吹啥狼蛋的，只有咱知道，因为咱有暴料革命，咱有新中国联邦。杰克马这个惨的，不是一般的惨。我最担心他也跟王健一样，什么跳墙死啊，什么生殖器戳死自己，我真担心他这样。
 
-本月1号，州长加文·纽森宣布，在FDA全面批准为12岁以上的青少年接种疫苗后，加州7-12年级，即12岁到18岁的学生将首先全面开始接种疫苗，幼儿园至六年级，即12岁以下的儿童在下一阶段执行。儿童对新冠病毒风险极低，几乎免疫，但接种新冠疫苗却会导致各类疾病，甚至伤及生命。接种毒针疫苗后，健康青少年死亡的案例一直在增加。
+所以中国没有男人啊，中国人是在生死面前，在邪恶面前，特别是中国男人基本都是狗屎一样。哪有真正的勇士，更没有智者。所谓的为了家人是吧，作为一个在中国社会长大的，也算个人物的家人或者家族的一员的话，永远有一个基本不变的道理——家族的核心人物、成功人士，你活着，家人有尊严、有安全，甚至有时候有痛苦，会受到胁迫，这是他们要付出的代价，但是你死了，你死了，他们没有尊严，没有价值，甚至没有任何希望，他一生都是灾难。
 
-爆料革命和无数不畏强权，选择挺身而出发声的医护人员、以及科学家，包括前辉瑞公司副总裁耶登博士，一再对世人发出警告。越来越多的家长已经觉醒，从对疫苗危害的担忧，升级为付诸于实际行动，强烈反对强制疫苗接种。
+所以说作为一个中国的家庭的核心人物，因你而生，因你而好，因你而有灾，这种核心的家庭成员只有一条，你活着，你活着，他们才有未来，才有希望。不要让家人成为你的肉票，那你就把家人害了。勇敢的向威胁家人的，向威胁朋友的，向威胁亲人爱人的说不，攒足力气，挥出你的拳头。只有这样，即使你输了，你都不枉活一世。如果你跪下来，只是早晚让你怎么死，和让你家人和你如何死的问题。王健以及N个中国的所谓的大人物不都这下场吗？
 
-(本文仅代表作者观点)
+薄熙来如何？周永康如何？只有灭了共产党，你才能永远的活下去，没有任何其他机会和余地。信不信，不信就试试吧。把家人作为你的肉票，然后最后你把家人虐死，打着爱的名义，忠诚的名义，孝敬名义，实际上就是懦弱无知。就这么简单。只有新中国联邦爆料革命能救你们，谁也救不了！信不信？咱不行，走着看还是，姆该塞……
 
-参考链接：[Parents Rally Statewide To Protest Newsom’s School COVID Vaccination Mandate](https://sanfrancisco.cbslocal.com/2021/10/18/parents-rally-statewide-to-protest-newsoms-school-covid-vaccination-mandate/)
-[Thousands Gather at California State Capitol to Protest Newsom’s School Covid Vaccine Mandate (VIDEO)](https://www.thegatewaypundit.com/2021/10/thousands-gather-california-state-capitol-protest-newsoms-school-covid-vaccine-mandate-video/)
+稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[郭文贵先生10月19日盖特](https://gettr.com/post/peks4hb556)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-5.png)
