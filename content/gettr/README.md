@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/19/2021 3:24 PM (UTC)`
+
+10/18/2021 Miles Guo: Revealing the CCP’s evil social security! The total amount of money in the National Social Security Fund in the Communist China is only about 100 billion USD, with 96% of the fund allocated to the CCP’s retired cadres and their families. The Lao Baixing can only access the remaining 4%<br/><br/>10/18/2021 文贵直播：起底邪恶的中共社保！中共国的社保基金总额只有1000多亿美元，其中96%被分给1.3亿共产党的退休干部及其家人，老百姓只有能分到剩下的4%<br/>
+![img](https://media.gettr.com/group14/getter/2021/10/19/15/24/3f40c1f3-1f08-b78c-c34e-9e5367e1c4a6/out.jpg)
+
+---
+
 `@miles 10/19/2021 2:06 PM (UTC)`
 
 10月19号：尊敬的战友们好……杰克．马．去西班牙意味着什么？
@@ -288,15 +295,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 10月14号：新中国联邦的旗帜在我们帅气，健康的战友的手中，第一次在马拉松比赛中，走向了胜利。https://www.telegram.com/picture-gallery/sports/2021/10/11/boston-marathon-2021-runners-framingham-natick-ashland-pictures/6082058001/
 ![img](https://media.gettr.com/group19/getter/2021/10/14/23/26/2ff943ba-8f83-46bc-ce6f-3ff7918b8225/ba28685d08056f54cc0ac24194688745.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@zemmoureric 10/11/2021 9:31 PM (UTC)`
-
-Économie, écologie, instruction, merci au @CercleHebe pour ces échanges !  
-![img](https://media.gettr.com/group31/tw/2021/10/12/00/a5abd86b-8366-5804-7c44-d203d57e41f3/d28ba18d93253219c3a340080b79d7fb.jpg)
 
 ---
 
