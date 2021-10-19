@@ -2,149 +2,33 @@
 ---
 
 
-## 习身体不行了更要打台湾，借口台独大开杀戒
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602862/)
+## 完全接种COVID疫苗的前美国国务卿死于COVID 并发症
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1602899/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/555-wzywl.jpg)
-[https://gtv.org/video/id=616d7dcad2e2b8174876b7dd](https://gtv.org/video/id=616d7dcad2e2b8174876b7dd)
+据《新闻大全》2021 年 10 月 18 日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/10/powel_adobespark.png)图片来自网络
+美国第一位黑人国务卿科林鲍威尔死于 COVID-19 并发症。
 
-会谈当中对台湾问题
-Se habló el problema de Taiwán durante la reunión
+科林·鲍威尔是牙买加移民的儿子，他成为美国第一位黑人国务卿和高级军官。
 
-我告诉大家
-Déjame decirles
+他的家人说，尽管他已经完全接种了COVID-19疫苗，但他还是死于该病的并发症。
 
-一会儿下一段我再告诉大家
-En un rato les digo
+民主党人以及鲍威尔的共和党同僚，包括前总统乔治·W·布什，都纷纷表示哀悼。
 
-把我吓死了
-Esto me asustó
+“布什在一份声明中写道：“许多总统依赖鲍威尔将军的建议和经验。”他是总统们的最爱，以至于他获得了总统自由勋章–两次。“
 
-我当时听完以后
-En aquel momento cuando terminé de escuchar
+英国前首相托尼-布莱尔（Tony Blair）回顾了鲍威尔的自嘲式幽默，他对员工的善意，以及他 “愿意为了国家的利益跨越党派分歧”的精神。
 
-我真的是坐在那儿
-Realmente, me senté allí
+布莱尔说：“多年来，科林是美国军事和政治领导层的一个重要人物，他能力超群，为人正直，性格非常可爱和热情。”
 
-我抽了3根雪茄, 为台湾人民
-Y fumé tres cigarros por los ciudadanos de Taiwán
+几十年来，鲍威尔是美国最重要的黑人人物之一。他被三位共和党总统任命为高级职位，并在美国军队在经历了越南战争的创伤后重新获得活力时达到了顶峰。
 
-嗓子都哑了
-Quedé afónico
+在越南受伤的鲍威尔在1987年至1989年期间担任罗纳德-里根总统的美国国家安全顾问。作为一名四星陆军上将，他在1991年海湾战争期间在乔治-H-W-布什总统手下担任军方参谋长联席会议主席，在这次战争中，美国领导的部队将伊拉克军队从邻国科威特驱逐出去。
 
-很恐怖
-Es terrible
+鲍威尔是一个温和的共和党人和实用主义者，他曾考虑在1996年成为第一位黑人总统，但他的妻子阿尔玛对他的安全的担忧帮助他作出了不同的决定。2008年，他与他的政党决裂，支持民主党人巴拉克·奥巴马，后者成为第一个当选白宫的黑人。
 
-然后我没看到习近平讲话之前, 我就知道
-Y antes que ví a Xi hablando ya sabía
+【本文仅代表作者个人观点，与Gnews无关】
 
-习近平这次的讲话, 一定以辛亥革命(为主题)
-El tema que habló Xi esta vez, debe ser la Revolución del 1911 como tema principal
+原文链接：[https://www.newsmax.com/headline/colin-powell-dies-covid-complications/2021/10/18/id/1040894/](https://www.newsmax.com/headline/colin-powell-dies-covid-complications/2021/10/18/id/1040894/)
 
-还找出所谓的多党派
-Y consiguió también el llamado multipartidista
-
-让汪洋的政协主席讲话
-Dejemos que hable el presidente de la CPPCC de Wang Yang
-后来我就了解
-Luego entendí
-
-因为习的身体真的不行了
-Porque la salud de Xi ya no está en buena condición
-
-习的身体真的是不行了
-Realmente su salud no está muy bien
-
-这对台湾几乎是个噩梦
-Esto casi es una pesadilla para Taiwán
-
-他越是身体不行
-Cuanto más enfermo esté físicamente
-
-他越要打台湾
-Más quiere atacar a Taiwán
-
-他要完成所谓的现代第二个秦始皇的历史责任
-Él quiere cumplir con la responsabilidad histórica del llamado segunda generación de Qin Shi Huang en los tiempos actuales
-
-对台湾凶也
-Es un peligro para Taiwán
-
-凶也
-Muy peligroso
-
-第二部分, 除了习身体不好
-Segunda parte, a parte de que la salud física de Xi no está bien
-
-你看一看那天人民大会堂
-Mire El Gran Salón del Pueblo de aquel día
-
-所有在主席台上的人
-Toda la gente que estaba en el podio
-
-你见哪个是江派
-Viste quién es del partido Jiang
-
-除了韩正
-Excepto Han Zheng
-
-你见哪个是曾派
-Viste quién es del partido Zeng
-
-最后那句最狠的话
-La última frase más cruel
-
-习要对台湾的
-Xi quiere hacer con Taiwán
-
-台湾的一切问题在台独
-Todos los problemas de Taiwán radican en la independencia del país
-
-台独要必需遭受所谓的大审判
-La independencia de Taiwán necesita pasar por el gran juicio final
-
-这两句话已经就基本定义了
-Estas dos frases se definen básicamente
-
-以孙灭台
-Destruir a Taiwán mediante Sun
-
-用孙中山合法的这种理由
-Utilizar esta razón legal de Sun Zhongshan
-
-继承衣钵
-Heredar el manto
-
-谁在台湾呼应呢
-Quién será el que coordina en Taiwán
-
-那就是国民党
-Es el Partido Nacionalista Chino (KMT)
-
-打击对象的原因是谁呢
-¿ Quién fue la causa del ataque?
-
-台独
-La Independencia de Taiwán
-
-——————————————————
-
-**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1447754673880911877?s=24](https://twitter.com/se1y7cblljselva/status/1447754673880911877?s=24)
-
-日期：10/16/2021
-原视频标题：
-Cuanto más enfermo esté Xi físicamente, más querrá atacar a Taiwán y su excusa es por la Independencia de Taiwán
-原视频日期：10/12/2021
-任务编号：KC177（2495）
-视频时间段：0:00-1:50
-
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场–彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+翻译：烟波浩淼 |校对：雨山溪桥客 | 编辑&发布：V

@@ -2,9 +2,7 @@
 ---
 
 
-## 中共违反国际协议和规范，以巩固其对香港的政治控制
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1603157/)
-
-10/14/2021 国会议员Young Kim： 中共已违反具有约束力的国际协议和规范，以巩固其对香港的政治控制。
+## 10/17/2021 文贵直播：下一个抓的一定是杨洁篪&#8230; 若非担心祸及家人杨洁篪、王毅随时可能叛逃出国
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1603165/)
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

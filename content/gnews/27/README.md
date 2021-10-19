@@ -2,17 +2,49 @@
 ---
 
 
-## 文在寅对杨森疫苗接种者补打作出指示
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1602955/)
+## 美国前国务卿科林-鲍威尔死于COVID并发症
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1602962/)
 
-韩国首尔天池农场 —–追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/10/WhatsApp-Image-2021-10-19-at-09.19.29-1.jpeg)图片来源：KBS新闻
-据韩国KBS新闻10月18日的报道  韩国青瓦台发言人朴炅美18日称，文在寅总统在当天的幕僚会议上作出指示，要尽快制定针对杨森疫苗接种者施打加强针的计划。
+作者：纽约香草山福音部 – Lilian89
 
-韩政府是于2020年12月同制药公司杨森签订中共病毒疫苗采购合同，根据合同是采购600万剂。
 
-此前，美国拜登总统在韩美首脑会议上承诺向55万名韩军官兵提供援助的疫苗也是杨森。最终是比承诺的数量多出一倍，提供了100万剂。
 
-杨森疫苗是唯一一款仅注射1剂即可完成接种的疫苗。美国食品药品监督管理局（FDA）的咨询机构，对已接种杨森疫苗的62万名退伍军人进行研究的结果显示，今年3月预防效果高达88%，但8月骤减至3%。“疫苗和相关生物制品咨询委员会”（VRBPAC）以杨森疫苗功能大幅下滑的研究结果为基础，建议批准对杨森疫苗接种者施打加强针。因此，文在寅总统作出了上述指示。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-[新闻来源](https://mn.kbs.co.kr/mobile/news/view.do?ncd=5303177)
+
+
+10月18日上午，美国前国务卿和参谋长联席会议主席科林-鲍威尔将军因COVID-19并发症去世。
+
+![](https://image.cnbcfm.com/api/v1/image/106961860-16345640352021-10-18t132037z_1211972680_rc2dcq9gb487_rtrmadp_0_usa-powell.jpeg?v=1634564097&amp;w=929&amp;h=523)图片来源：路透社
+
+鲍威尔是牙买加移民的儿子，在里根政府时期成为美国第一位黑人国家安全顾问。此后，乔治-布什总统任命鲍威尔为参谋长联席会议最年轻的第一位黑人主席。作为主席，他在波斯湾战争期间监督了美国的沙漠风暴行动。他去世的消息传来后，美国的领导人和前同事都称赞他是一位领袖和英雄，前总统乔治-布什更是称赞他是一位“伟大的公务员”。
+
+鲍威尔的家人在Facebook上写道：“我们失去了一位杰出的、充满爱心的丈夫、父亲、祖父和一个伟大的美国人。”据悉，虽然鲍威尔患有多发性骨髓瘤，但他还是完全接种了新冠疫苗。
+
+而今，COVID疫苗给人类带来的次生灾害正逐渐在全球范围爆发。因此，任何强制他人打疫苗的行为，都等同于谋杀犯罪。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+[Colin Powell, trailblazing soldier and statesman who made case for Iraq invasion, dies of Covid at 84](https://www.cnbc.com/2021/10/18/colin-powell-former-secretary-of-state-who-made-case-for-iraq-invasion-dies-of-covid-complications-at-84.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)

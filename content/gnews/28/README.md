@@ -2,57 +2,34 @@
 ---
 
 
-## 国会山司法要害部门一半都是律师，都被共产党控制了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602947/)
+## 以太坊月入超7亿，新生代币一年内市值翻10番
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1602958/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/277-aw0zs-cgvx6.jpg)
-[https://gtv.org/video/id=616d8acbd2e2b8174876bdfd](https://gtv.org/video/id=616d8acbd2e2b8174876bdfd)
+作者：文一
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+【The Daily Hodl】网站10月17日报道，Token Terminal的数据显示，以太坊在过去30天的合约收入达到了7.77亿美元，远远超过了Axie Infinity（1.836亿美元）、不可伪造代币（NFT）市场OpenSea（7010万美元）、去中心化保证金交易平台dYdX（4990万美元）和数字支付系统Filecoin（1670万美元）。
 
-**郭文贵**
-**Miles Guo**
+另据【Business Insider】消息，鲜为人知的新生代币NuCypher上周五单日暴涨1134%，成为第79大加密货币。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-16.jpg)
+NuCypher的白皮书于2017年首次发布，2020年10月15日开始交易，开盘价为0.23美元，市场估值为240万美元。NuCypher建立在以太坊平台上，目前有6.875亿枚在流通，最大供应量为39亿枚。
 
-美国现在这个国家，咱们今天为啥从头要谈法治
-now the United States, why are we talking about the rule of law from the begin-ning?
+短短一年后，根据CoinMarketCap的数据，NuCypher的市场估值从约2亿美元飙升至超过20亿美元，单日成交量爆增近200倍，单价达到3.58美元高点。
 
-刚才Rachel做得非常好，我希望继续再深挖下去
-Rachel did a very good job just now, I hope you continue to dig deeper
+目前市场还无法确定该代币需求急剧上升的原因，只是这次暴涨是在比特币继续其10月的涨势并触及60,000美元时发生。
 
-美国的国会山一半都是律师，美国的司法部门要害部门一半的人都是律师
-Half of Capitol Hill in the United States are lawyers, and half of the people in the key departments of the US judicial department are lawyers
+（本文仅代表作者观点）
 
-都是被共产党控制了，想控制谁就控制谁
-They are all controlled by the Communist Party, they control whoever they want to control
+参考链接：[以太坊月入超7亿，新生代币一年内市值翻10番](https://dailyhodl.com/2021/10/17/ethereum-towers-above-axie-infinity-and-altcoin-projects-earning-777000000-in-revenue-in-just-one-month/)
 
-而且很脆弱，西方的民主法治，当你有信仰的时候，它是极为强大的
-and it’s very fragile, the democracy and rule of law in the West is extremely pow-erful when you have faith
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
-当你没有信仰的时候，它很脆弱
-it is so fragile when you have no faith
+新闻访谈终审：Q大哥
+编辑/校对/审核：Hetangyuese
 
-欧洲就更不用提了，那些老不要脸的就不用提了
-Hard to even mention Europe, those old shameless politicians
-
-就没见过有骨头的人，
-I have never seen anyone with backbone
-
-———————————————————
-
-**原视频链接**:[https://twitter.com/se1y7cblljselva/status/1449362247776567297?s=24](https://twitter.com/se1y7cblljselva/status/1449362247776567297?s=24)
-
-Date:10/17/2021
-原视频标题:
-Half of the crucial judicial departments on Capitol Hill are lawyers and they are all controlled by the Communist Party
-原视频日期：2021/10/13
-任务编号：KC178（2569）
-视频时间段 : 0:00-0:45
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

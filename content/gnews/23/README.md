@@ -2,84 +2,80 @@
 ---
 
 
-## 中美之间必有一战，其根本不在台湾，在经济
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602990/)
+## 为什么有关死亡的数据被政府搁置？
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1602992/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/888-a71ie-wzywl.jpg)
-[https://gtv.org/video/id=616d6e80d2e2b8174876b079](https://gtv.org/video/id=616d6e80d2e2b8174876b079)
+#### 编译报导：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-8.jpg)
+图片来源：The Guardian
 
-**郭文贵**
-**Miles Guo**
+**文章导读：**
 
-飞机来干啥呀，飞机来保护台湾呐
-What are your fighter jets coming here for? Were CCP’s fighter jets come here to protect Taiwan？
+10月18日，昆士兰州一国党参议员马尔科姆·罗伯茨（Malcolm Roberts）在议会演讲，他指出，疫情大流行死亡率数据通常每6周发布一次。但是，由于一个无法解释的原因，最新的数据已经逾期15周未公布。他抨击卫生部门不公布澳洲最新的死亡信息，政府需要公开透明，应该即时发布数据。
 
-这飞机都是（对着）美帝国主义和日本去的
-Those fighter jets are all going against the US and Japan
+10月19日，罗伯茨议员将演讲视频同步发推，他提出了一个观点，截至2021年6月30日，2021年澳大利亚死亡人数高于前七年的移动平均数。因为澳洲卫生部没有公布最新死亡率，他参考了英国的数据，非常令人震惊。一时间很多澳洲民众给他留言：
 
-就差喊了，快来吧，快来吧，
-They’re (Taiwan) almost shouting to the mainland, come here, come here
+姬拉丽·史密斯回复，因为他们没有对大多数人进行尸检，却声称有些人死于新冠，其实可能死于疫苗或其他并发症，但我们永远不会知道。这都是政府的宣传。
 
-所以说现在打台湾这些动机和房地产有很大的关系
-So these motives to attack Taiwan now have a lot to do with CCP’S real estate
+威格斯特留言，他们都说死亡的病例与新冠相关，而一些未打过疫苗的人一开始就病得很重，所以听起来更像是未打过疫苗的人在死亡。醒醒吧，我们都被耍了。
 
-跟共产党的经济很大关系，共产党内部政治有很大的关系
-CCP’s economy and CCP’s internal politic struggles
+弗兰克·巴拉马蒂亚斯留言：绝对精彩！围绕着（政府对）疫苗接种死亡和副作用信息的缄默不语，这非常可怕。
 
-另外一个，现在看到国际形势，当然跟美国的国家现在整个的实力衰弱
-Another one, now that we see the international situation, of course it has something to do with the current weakening of the strength of the U.S.
+看来澳洲民众已经洞察政客们的企图。让我们看下罗伯茨议员的演讲。
 
-内乱，政治斗争，助长了他们，这是为什么川普总统说谁都看到了我们的懦弱
-civil strife and political struggles have fueled them up, this is why President Trump said that everyone has seen our cowardice
+**译文：**
 
-所以跟中共国他说未来可能只有一战了
-So just like what he said that there might be a war between China and the U.S. in the future
+主席先生，作为昆士兰州和澳大利亚人民的服务者，我有责任确保（一场）合理和准确的辩论。代表卫生部和部长的科尔贝克参议员也有同样的责任，确保这场事关合理和知情的辩论至关重要的数据被公开。
 
-他现在才明白，他在白宫时候他不明白，
-He just realizes now, he didn’t understand when he was in the White House
+多年来，在各州之间的死亡率报告标准化之后，死亡率数据在其发生以后的6周后被公布。
 
-我们每周的报告他认为跟中共国不可能有一战，要战就是第三次世界大战
-In our weekly report, he believes that there can be no war with the Chinese Com-munist Party, and that the battle will be the world war III
+（当前）最后的死亡率数据截至到2021年6月30日。现在已是10月18日。突然间，在没有（任何）解释的情况下，（死亡率）数据（公布）被推迟了15周。
 
-现在他明白了，现在他明白必有一战
-Now he understands, now he understands that there must be a war
+（卫生）部长应该对这个问题有所准备，我确实向他的办公室告知了我今天问话的主题，也向他的办公室指示了我关于第3970号通知的问题，要求提供相同的信息。第3970号通知已被搁置了12周。
 
-我告诉你，兄弟姐妹们，中美之间必有一战
-I tell you, brothers and sisters, there must be a war between China and the United States
+**截至****6****月****30****日的数据显示，****2021****年澳大利亚的死亡人数超过了****7****年的移动平均数，并且一直高于我们以前在澳大利亚看到的任何情况。**
 
-我从来没说过，你查我过去直播，我没说过，我是第一次告诉你们
-I never said that before, you check my past live broadcast, I didn’t say it, this is the first time I told you
+令人不安的是，新南威尔士州和昆士兰州不再公开这些信息。
 
-我一直认为中美不能有一战，但是今天我可以告诉大家，
-I have always thought that China and the United States cannot have a war, but to-day I can tell everyone
+在没有澳大利亚死亡率数据的情况下**，我将快速参考英国的官方数据，在开始为****15-17****岁人群接种疫苗后，该年龄段的死亡人数增加了****20%****，在****4****岁以下的年龄段有****25%****的趋势。**
 
-我认为中美之间必有一战，必有一战，不是因为台湾，也不是因为香港
-I think there must be a war between China and the United States, there must be a war, not because of Taiwan, nor because of Hong Kong
+**更令人担忧的是，这种分布并不均匀，男孩的死亡率上升了****28%****，而女孩的死亡率上升了****8%****。**
 
-根本问题就是经济，因为共产党这个房地产经济，这海外的十几万亿美元
-The fundamental problem is the economy because the real estate economy of the Communist Party of China, the tens of trillions of dollars in overseas
+这可能是美国食品和药物管理局在其网站上记录的268种已知的新冠疫苗和其他处方药之间的不良反应之一造成的。
 
-这美国人你动它哈，你别动它奶酪，那就是它的钱
-No matter what you touch the American’s stuff, don’t dare touch their “cheese”, that’s their money
+从逻辑上讲，在给病人注射新冠疫苗之前，应该检查一下他们已经在使用什么药物，以及他们在以前的新冠感染中可能有什么自然免疫力。
 
-———————————————————
+我不认为上周末向公众提供疫苗接种的昆士兰州33家邦宁斯（Bunnings）商场会要求（公众）提供这些信息。
 
-**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1449243903303905284?s=24](https://twitter.com/se1y7cblljselva/status/1449243903303905284?s=24)
+**爱丁堡大学最近发表的一篇黄金标准论文发现，天然抗体对****新冠患者****的保护率为****80%****，大大优于现在的疫苗。**
 
-Date:10/16/2021
-原视频标题:
-There must be a war between China and the United States, it is not for Taiwan at all, it’s for the economy.
-原视频日期：2021/10/13
-任务编号：2571
-视频时间段 : 0:00-1:40
+我担心，（现在）议会不计后果的疫苗接种运动正在杀害人们。
 
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+让我提出一些更广泛的问题供部长考虑：
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+有据可查的卫生和诊断服务的减少是否在延误治疗方面制造了一个定时炸弹——例如癌症的早期检测——而这是否在杀害人们？
+
+广泛的封禁是否造成了（人们）精神健康问题，从而导致了更多的生命损失？
+
+把澳大利亚的老人关在养老院里，没有家人的联络，是否会导致老人提前离世？
+
+那些看到自己一生（追求）的事业，被（政府）反复无常和适得其反的封锁所摧毁和破产的企业主们，是否正在心灰意冷？
+
+这些问题是任何谨慎的、有爱心的政府都会担忧的。这个政府和这个议会应该密切关注死亡率数据，以实时获得关于这些问题的指导。
+
+可悲的是，这个政府和这个议会既不审慎也不关心。
+
+我们的社区、我们的国家（人们）应该得到更好的服务。
+
+新闻链接：[Why is data about deaths being held back? – Malcolm Roberts (malcolmrobertsqld.com.au)](https://www.malcolmrobertsqld.com.au/why-is-data-about-deaths-being-held-back/)
+
+(本文仅代表作者个人观点，与Gnews 无关)
+
+**编辑/发布： 文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
