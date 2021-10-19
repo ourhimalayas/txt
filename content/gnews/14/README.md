@@ -2,27 +2,31 @@
 ---
 
 
-## 莫斯科举办阿富汗问题会议
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1604908/)
+## 10/18/2021 文贵直播：中共社保基金内幕
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1604942/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+编辑：HimaFAFA
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/a-1.jpg)yenisafak.com
-印度媒体报道，莫斯科10月19日表示，10个国家的代表和一个塔利班高层代表团将参加莫斯科举行的阿富汗问题会议。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/社保.png)
 
-这次由俄罗斯主持的会议将于10月20日举行。在会议期间，讨论的重点将是阿富汗的军事和政治局势，组建一个包容性的政府以及国际社会为防止人道主义危机所做的努力。
+中国根本没有社保，问题是中国经济发展了中国没有社保。中国14亿人，中国人的社保基金是多少钱你知道吗？所有社保金额只有1000多亿美元。名义上所说的2500亿美元实际上就是1000多亿美元。因为社保基金原来主席、创始人是车峰的老岳父，中国银行行长戴相龙。别忘了，它里面这个总数实际上就是1000多亿，你可以查它的帐。他那是叫划拨式的。这个1000多亿美元的分配权在哪里呢？你有1500亿美元也好，2500亿美元也好，96%的钱是给所有的共产党的退休干部。那只是说多少党员退休呢？中国大概1.3亿全是共产党，所有的亲戚家人拿走了96%。剩下的13亿人是干嘛的呢？对不起了，你只能拿到整个社保基金额的4%。那就是100块钱我拿4块钱，你拿96块钱。你想过这个问题吗？你说哪有一个国家，一个党派拿走96%的社保的钱？所有的老百姓享受你4%的钱？中国光退休所、干休所所有占有的土地和资产是不计入到国家的资产范围内的。比如说，这不属于房地产记账里边去，它的开支也不算开支进去。它叫什么？它叫财政部划拨。财政划拨是不算这个的。你知道，这很夸张吧。在中国有多少的干休所呢？中国大概有17000个国家的干休所，不算地方的，不算各省市的，就算军队、各部委的。事实上大概有两万个，这是当时统计局统计的。两万个干休所的编制是多少？土地不算钱，各种成本都不算，那都是财政部拨的。那你说你这社保是老百姓没有的这个待遇啊。它又不包含在社保基金里面去，所以当年戴相龙跟我说的一句话。他说：“文贵啊，任何中国人没把社保搞明白的你什么都不用跟他聊，王岐山就在建行的时候跟戴相龙说‘你让中国人要有了社保，戴相龙，戴行长，那中国人会把你吃了的。中国人要是吃饱了，是要吃人的。’” 这是原话呀。戴相龙这句话说的最有深意就是中国没把社保搞明白的人是脑子不清楚的。你去查查社保，社保基金的创始人就是戴相龙。记住啊，中国叫社保基金它不叫中国社保制度。别把事搞错了。基金是经营法人机构，法人最早是戴相龙，他自负盈亏，赔了就拉倒。
 
-阿富汗外交部发言人巴尔基(Abdul Qahar Balkhi)在推特（Twitter）上写道，塔利班代表团将由阿富汗临时政府副总理哈纳菲（Abdul Salam Hanafi）率领，塔利班计划在访问莫斯科期间与各国代表就共同关心的问题进行谈判。
+來源：[https://gettr.com/post/pelgk0f11c](https://gettr.com/post/pelgk0f11c)
 
-据俄罗斯新闻社报道，莫斯科模式（Moscow Format）会议是在俄罗斯、阿富汗、中共国、巴基斯坦、伊朗和印度六方会谈机制的基础上于2017年推出的。
+（文章仅代表作者个人观点）
 
-路透社表示，俄罗斯外交部称，俄罗斯、中共国和巴基斯坦愿意向阿富汗提供援助，但莫斯科表示尚未准备好承认塔利班政府。俄罗斯外长拉夫罗夫说，俄罗斯不承认塔利班，而是在等待他们履行执政时做出的承诺，包括新政府在政治和种族方面的包容性。美国表示不会加入这一轮谈判，但计划将来加入。
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-8月中旬，随着美国及其盟友在阿富汗驻扎20年后撤出军队，阿富汗政府垮台，导致塔利班以闪电攻势夺取政权。俄罗斯正试图抓住外交主动权，避免更广泛地区的不稳定，同时最大范围内地保障自身利益及增加国际影响力。
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
 
-参考链接：
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[https://www.afghanistansun.com/news/271523080/representatives-of-10-nations-taliban-to-take-part-in-moscow-format-meeting-discussion-likely-on-afghan-humanitarian-crisis](https://www.afghanistansun.com/news/271523080/representatives-of-10-nations-taliban-to-take-part-in-moscow-format-meeting-discussion-likely-on-afghan-humanitarian-crisis)
+**关注我们**
 
-[https://www.news18.com/news/world/moscow-talks-on-wednesday-india-to-come-face-to-face-with-taliban-for-the-second-time-4340747.html](https://www.news18.com/news/world/moscow-talks-on-wednesday-india-to-come-face-to-face-with-taliban-for-the-second-time-4340747.html)
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
