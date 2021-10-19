@@ -2,36 +2,25 @@
 ---
 
 
-## 台军方正式提请美国尽快交付F-16V订单
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1604205/)
+## 中共国透过“运动式执法”强化新疆基层统治力
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1604313/)
 
-作者：飞虹
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-105.jpg)（图片来源于本文链接）
+澳大利亚战略政策研究所 (Australian Strategic Policy Institute)周二 (10月19日)发布一份新疆报告，揭露了中共国政府在新疆如何透过“运动式执法”的治理模式来迫害与打压维吾尔人与其他少数民族。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这份报告引用了上千个从新疆泄漏出来的警察报告以及其他官方文件，发现中共国政府在新疆所运用的治理模式，与毛泽东时代推动的“运动式执法”有许多相似之处。报告作者写道，除了之前已揭露的大规模关押与强迫劳动之外，新疆当地居民还会被强迫参与所谓的“政治性剧场”，包含公判大会、揭批、宣示、政令宣导课程以及喊口号。
 
+澳大利亚战略政策研究所的研究员还发现，中共国政府在新疆迫害维吾尔人的过程中，透过推动5种关键政策将共产党的党政系统深入到维吾尔人的生活中。这5个关键政策包含了在社区设置警务室、推动网格化管理、推广访惠聚、建立“三位一体工作机制”以及推动“十户联防”。
 
+研究员在报告中写道：“这些政策赋予了新疆的社区和村干部特殊的权力，让他们可以对居民的行动和情绪进行监控，从而制造令人害怕的氛围。一名维吾尔族青少年在社交媒体上发表关于对生活无望的帖子，就会被认为是对区域稳定造成威胁，也让他成为当地警察的目标。”
 
-2019年台湾军方斥资80亿美元，向美国订购了66架F-16V型战机，按照合约10年内完成交付。但台海局势的急剧恶化，使台湾军方倍感压力，因此希望美方提前交付一定数量战机，以便台空军尽快训练形成战斗力。据悉拜登政府已经正式与台湾官员开始讨论，如何加速交付战机的事宜。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1019AM-4-7.002.jpeg)
-目前台湾空军部署在台东”志航”空军基地的 F-5战机已经老旧，台军急需这批先进的F-16V战机以强化空防能力。与此同时，文贵先生在最新直播中透露，他得到军事专业人士的私密情报，如果中共武统入侵台湾，美军不仅一定会出手救援，而且美军有把握也有实力，可以在三分钟内摧毁中共海内外包括天上、地上所有军事基地，这一惊爆消息无疑将给台湾军民一针强心剂，同时也似乎是在激将盗国贼，如加速对台湾动武的步伐，最终必将自取灭亡！
-(本文仅代表作者观点)
+消息来源：
 
-参考链接：
+[澳智库：中国透过“运动式执法”强化新疆基层统治力](https://www.dw.com/zh/%E6%BE%B3%E6%99%BA%E5%BA%93%E4%B8%AD%E5%9B%BD%E9%80%8F%E8%BF%87%E8%BF%90%E5%8A%A8%E5%BC%8F%E6%89%A7%E6%B3%95%E5%BC%BA%E5%8C%96%E6%96%B0%E7%96%86%E5%9F%BA%E5%B1%82%E7%BB%9F%E6%B2%BB%E5%8A%9B/a-59544446)
 
-1. [因应北京战机侵扰 台湾要求美国提前交付66架F-16V战机](https://www.voachinese.com/a/Taiwan-requests-US-to-expedite-shipment-of-F-16s-20211018/6275525.html)
-2. [2021年10月17日 文贵大直播@03:33:00: (3)中共的经济政治危机导致对台开战，将引发美国，日本对中共进行极限战争](https://gtv.org/video/id=616c1823304e992109b65281)
+(文章仅代表作者本人观点，与GNEWS无关)
 
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

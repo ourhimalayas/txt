@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/19/2021 3:28 PM (UTC)`
+
+10/18/2021 Miles Guo: Money has its owners - the money that belongs to the Chinese shouldn’t be taken away! In the Communist China, 0.001% or even 0.00001% of the Chinese people possess the same amount of wealth as the remaining 99.999% of the people; There is no one responsible for Bitcoin, which decentralizes responsibilities.<br/><br/>10/18/2021 文贵直播：金钱是有主人的- 属于中国人民的钱不能被他人夺走！在中共国，0.001%甚至0.00001%的人拥有着和剩下99.999%的人同等的财富；比特币没人负责，因为责任被去中心化<br/>
+![img](https://media.gettr.com/group28/getter/2021/10/19/15/28/ef09daca-8f02-5380-12b3-e5dfae356cd1/out.jpg)
+
+---
+
 `@miles 10/19/2021 3:24 PM (UTC)`
 
 10/18/2021 Miles Guo: Revealing the CCP’s evil social security! The total amount of money in the National Social Security Fund in the Communist China is only about 100 billion USD, with 96% of the fund allocated to the CCP’s retired cadres and their families. The Lao Baixing can only access the remaining 4%<br/><br/>10/18/2021 文贵直播：起底邪恶的中共社保！中共国的社保基金总额只有1000多亿美元，其中96%被分给1.3亿共产党的退休干部及其家人，老百姓只有能分到剩下的4%<br/>
@@ -288,13 +295,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 10月14号：尊敬的战友们好，明天10月15号，没有大直播。17号，星期天上午9点．7哥和战友们继续我们的大直播，一切都已经开始。🔥🔥🔥🌹🌹🌹
 ![img](https://media.gettr.com/group29/getter/2021/10/15/00/601fcbdf-bef2-00c1-4857-09c8fb52e4cd/c0bbce8ef2cbac284b9b81e5e01cbe86.jpg)
-
----
-
-`@miles 10/14/2021 11:26 PM (UTC)`
-
-10月14号：新中国联邦的旗帜在我们帅气，健康的战友的手中，第一次在马拉松比赛中，走向了胜利。https://www.telegram.com/picture-gallery/sports/2021/10/11/boston-marathon-2021-runners-framingham-natick-ashland-pictures/6082058001/
-![img](https://media.gettr.com/group19/getter/2021/10/14/23/26/2ff943ba-8f83-46bc-ce6f-3ff7918b8225/ba28685d08056f54cc0ac24194688745.jpg)
 
 ---
 

@@ -2,30 +2,35 @@
 ---
 
 
-## 维权组织就强制疫苗护照起诉安大略省政府
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1604419/)
+## 加州家长抗议对在校学生强制接种新冠疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1604504/)
 
-蒙特利尔皇家山战友团 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/10/share-how-it-works-EN.jpg)图片来源：coe
-根据《加拿大律师日报》(Lawyers Daily)10月18日报道，宪法自由正义中心（JCCF）宣布代表8名安大略省人，对该省的强制疫苗接种证明发起了法律挑战。
+作者：雪梨
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+本周一数千名学生家长，齐聚州议会大厦，抗议加州州长的学生接种强制令。
 
-根据法院的文件，”所有申请人都是决定不同意接受医疗的成年人，即一个或多个剂量的COVID-19疫苗”。JCCF的公告指出，这是一个宪法挑战。
+在加州首府沙加缅度的议会大厦门外，聚集了数千人，有来自本地及附近城镇，如旧金山湾区的人们，还有距离五百英里以外，圣地亚哥社区的家长们。当天，很多学生没有去学校，选择留在家里，以示抗议。
 
-JCCF工作人员律师Jorge Pineda在一份声明中指出，”就企业和组织的所有者而言，疫苗护照迫使人们执行违反宪法的法律，以及通常被认为违反人权立法的法律”。他补充说：”安大略省人不应该被迫以个人和私人的医疗决定为由而受到歧视和排斥”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-8.jpeg)
 
-JCCF的公告解释说，安大略省的 “疫苗护照法”于9月22日出台，”禁止个人进入餐馆、健身房和其他场所，除非他们按照政府的定义’完全接种’。不执行这些新限制的企业和组织将被处以高达1000万加元的罚款，企业主将面临一年以下的监禁威胁。”
+本月1号，州长加文·纽森宣布，在FDA全面批准为12岁以上的青少年接种疫苗后，加州7-12年级，即12岁到18岁的学生将首先全面开始接种疫苗，幼儿园至六年级，即12岁以下的儿童在下一阶段执行。儿童对新冠病毒风险极低，几乎免疫，但接种新冠疫苗却会导致各类疾病，甚至伤及生命。接种毒针疫苗后，健康青少年死亡的案例一直在增加。
 
-Pineda在一份声明中说：“加拿大最高法院认为，《宪章》保护身体自主权和知情同意权，这是法律规定，无可争议。疫苗护照是一个厚颜无耻的企图，旨在颠覆宪章，使其保护措施失去意义“。
+爆料革命和无数不畏强权，选择挺身而出发声的医护人员、以及科学家，包括前辉瑞公司副总裁耶登博士，一再对世人发出警告。越来越多的家长已经觉醒，从对疫苗危害的担忧，升级为付诸于实际行动，强烈反对强制疫苗接种。
 
-他补充说：”安大略省疫苗护照本身就是一种胁迫手段，迫使个人接受医疗干预，违背了他们的意愿和自己的最佳判断”，他指出，”这不仅是道德上的错误，也是非法的”。
+(本文仅代表作者观点)
 
-他解释说：”当我们上法庭时，我们将让他们看到这些强制疫苗真正用途就是剥夺公民对医疗服务享有的长期知情同意权”。
+参考链接：[Parents Rally Statewide To Protest Newsom’s School COVID Vaccination Mandate](https://sanfrancisco.cbslocal.com/2021/10/18/parents-rally-statewide-to-protest-newsoms-school-covid-vaccination-mandate/)
+[Thousands Gather at California State Capitol to Protest Newsom’s School Covid Vaccine Mandate (VIDEO)](https://www.thegatewaypundit.com/2021/10/thousands-gather-california-state-capitol-protest-newsoms-school-covid-vaccine-mandate-video/)
 
-10月15日，安大略省发布了 “带有官方二维码的增强型疫苗证书”，以及 “QR code” 和”Verify Ontario”应用程序。该省首席卫生医官基兰-摩尔博士说，”使用带有二维码的新疫苗证书和Verify Ontario应用程序的疫苗接种证明是帮助阻止病毒传播的重要工具，同时保持企业和组织的安全开放。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-不管政府和媒体用多么美好的借口，强制疫苗是违宪的。
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
 
-原文链接：
-https://www.thelawyersdaily.ca/articles/30561/rights-group-sues-ontario-government-over-proof-of-vaccination?category=covid-19
-
-发稿 Spirit
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

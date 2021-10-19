@@ -2,181 +2,34 @@
 ---
 
 
-## 郭先生10年前的布局，未来新科技无限, G系列前景无限
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1603961/)
+## 沉重话题：摘器官
+` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1604112/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2529.png)
-[https://gtv.org/video/id=616e7207d2e2b8174876fbc5](https://gtv.org/video/id=616e7207d2e2b8174876fbc5)
+By：银河勇气星｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-61.jpg)图片：骄子
+那天看直播，看到摘器官这段。尤其Eglise医生，说她的亲身经历，自己作为流水线上的一环，那些可怕的工作经历。说到被解剖的人都太年轻了，都才20来岁，一车一车拉进来，器官被拿完，剩下个空壳子，到她这儿她需要做的是头颅的解剖，然后医院也不通知家属就处理了。年轻轻一具具一车车拉进来的人，在彻夜通明没有休息的情况下，被摘器官。涉及到的数量巨大到需要加班加点。Eglise说自己是医生，但是一直有这样的障碍，睡不着觉。她作为专业人士医生，每天都要经历解剖，血腥这些的日常，尚且对这件事都产生了强烈的心理障碍，那对于普通人来说，就仿佛是更加无法承受的。我听到这段，整个人莫名产生了一种生理性的应激反应，觉得难受，也不知道哪儿难受，胃里有点东西往外涌，想吐出来但是又吐不出来那样。
 
-这个大家要记住
-Deben recordar esto
+最早了解关于摘器官的事情，还是因为法轮功。法轮功的很多人都被摘了器官。当时一直以为，摘掉器官后，让这个人在没有器官的情况下等死，以为摘器官是对法轮功练习者的一种惩罚，就类似我不杀你我要折磨你这样的逻辑。因为当时从未关注器官移植这件事，真得实在是太少了，况且从伦理上来说，移植器官是会有道德禁忌的。更重要的是局限于医疗条件，不同的身体移植的器官，就算是配型成功的，也会产生排异反应，甚至会死去。但为了治病，那真得没办法的事，可是现实生活中，从来没有真正见过移植成功的例子。包括我们在电视剧/纪录片中看到的，一个需要器官移植的病人，往往撑不到合适配型的器官，就死去了。虽然共产党从未停下来关于器官捐赠的宣传，但收效甚微，主要还是人们对不熟悉的事物的恐惧。共产党那些关于器官捐赠的广告，大部分是把器官作为一种可批量的工业物品一样。但是也很奇怪，倒是看到有很多捐器官的，而那些需要匹配器官的病人，依然等不到需要的器官，照样还是在医院等死。还有很多关于器官捐赠的鬼故事，比如得到角膜的人，看到了死者生前看到的事情，从而得上精神疾病；还有移植过心脏的，受赠的病人康复后为了感谢捐赠而去看捐赠者的家人，心脏不规律跳动产生排异死掉了。
 
-很多人在问七哥
-Muchas personas me han preguntado
+任何事情，尤其是拿掉器官这样的，要动身体的组织的，多多少少会有顾虑。人天生对医院是害怕的，主要还是怕拿掉器官以后生病。苹果手机风靡全球的那一年，大家都在买。不知道是哪儿先传出来的，卖一颗肾，正好够买一个苹果手机。卖肾换一个苹果手机这样的魔咒，让普通买不起苹果手机的人有了一些变态的期待。当时的互联网上甚至流传着真实的经历，有个小伙子真得卖肾去买了苹果手机。后来还有什么大学生卖肾买苹果手机。每年九月底苹果新手机出来的时候，多少人的肾在隐隐作痛。他们卖掉的肾去哪儿了？一颗肾就廉价到只值一个苹果手机吗？你有几个肾够卖的？摘了肾身体的功能还在吗？都是这么年轻的人，以后想要孩子了怎么办？
 
-建一个什么, 去问班农去
-Construir qué cosa, ve y pregúntale a Bannon
+![](https://assets.gnews.org/wp-content/uploads/2021/10/9D4766BFFD167CBDC6F327ED463E7DEDEE51ACE8_size46_w711_h525.jpeg)卖肾换iPhone漫画 / 图片来源：网路
 
-班农问我, Miles
-Bannon me pregunta, Miles
+苹果手机在美国老百姓这里就是一个手机，几百块就买到了。而在中共国，想得到一个苹果手机，老百姓需要卖掉一个肾。最初操控这个卖肾换苹果手机的话题的恶魔，除了共产党和邪恶组织，还有谁会这么无所顾忌的残害人民的肾？而这都是前几年的事情了。最近几年，又有了活体摘除，不打麻药的方式，说这样情况下的器官移植更加优质。看着自己的肚子被剖开，意识清醒地看着自己的器官被拿出来，换给中南坑的老杂毛，这真得太残忍了。人连一个小动物都不如。
 
-(他们)都在问我, 你到底
-Ellos me han estado preguntando
+小的时候看杀猪，问家人，人被杀了会是什么样。家人给我说，差不多，一样的，猪有的你也有，心肝脾肾什么的。成年以后，我忘掉了这件事。可是真正经历过这种惨痛经历的，况且是解剖人啊不是杀猪啊，他们怎么能忘呢？这些精神压力足够折磨掉一个善良的人。Eglise医生失眠，逃离中共国，李保春黎磊石的自杀，原因正是如此。无法想象亲身经历这些的，看看照片都能让人崩溃的。
 
-要建一个什么啊
-Qué es lo que vas a construir
+七哥说他所有的经历，就是让他来灭共的。每个人都有不同的经历，这些不同的经历，不能够把人打倒的，只会让人更强大。尤其是，活体摘除器官这种残忍的方式，被干细胞培育器官所代替的时候，经历过杀人，经历过救人，都是同样的方式移植器官，善莫大焉。而现在这个世界，只有正道主义，只有新中国联邦爆料革命做得到这些。
 
-我说不告诉你
-Le dije que no te voy a decir
 
-不会告诉任何人
-No se dirá a nadie
-
-你只有在6个月以后, 你才知道七哥要建的是什么
-Solamente después de seis meses sabrás qué lo es que construiré
-
-你才知道新中国联邦是什么
-Sabrás qué es el Nuevo Estado Federal de China
-
-就像喜币
-Así como la moneda de Himalaya
-
-昨天那个投资者说
-Ayer el inversor dijo
-
-Miles
-Miles
-我第一次跟你因为喜币吵架
-Primera vez peleé contigo por la moneda de Himilaya
-
-到最后我哀情你, 到现在我成为股东
-Al final te lloré, y ahora soy accionista
-
-现在我想知道喜币到底会到什么(程度)
-Ahora quiero saber qué tanto puede llegar la moneda de Himalaya
-
-我不会告诉你
-No te lo diré
-
-当你们了解七哥这十几年前的布局
-Cuando ustedes entiendan el plan que he estado realizando por más de diez años
-
-你看看未来的干细胞, 星空Wifi
-Mira las células madre del futuro, el Starry Internet
-
-你看看整个世界金融系统, 再看医疗系统
-Mire el sistema financiero mundial y luego miras al sistema médico
-
-还有一个大家要记住的, 高科技
-Y otra cosa que deben recordar, la alta tecnología
-
-所有的新科技
-Todas las nuevas tecnologías
-
-现在说新科技, 我要给你们爆两句
-Ahora que estoy hablando de la nueva tecnología, debo reverlarles un poco
-
-今天你们得晕
-Hoy todos ustedes deben estar mareados por eso
-
-都得晕
-Deben estar mareados
-
-新的科技对通讯的提升
-La nueva tecnología mejora la comunicación
-
-对医疗的提升
-Mejora del tratamiento médico
-
-对交通方式的提升
-En la forma de transporte
-
-兄弟姊妹们
-Hermanos y hermanas
-
-我现在跟你说完
-Ahora que termine de decirlo
-
-你一定把我订为神经病
-Seguramente dirás que estoy loco
-
-因为七哥投资了, 七哥知道意味什么
-Porque yo invertí, así que sé lo que significa esto
-
-就像我说那个生物芯片一样
-Como dije sobre el biochip
-
-生物芯片就这么大一块
-El biochip es así de grande
-
-能把全地球的信息装进去
-Puede ingresar todas las informaciones del mundo
-
-你很快会看到手机、电脑、通信、医疗、一点儿不夸张
-Pronto verás en los teléfonos móviles, computadoras, medios de comunicación, tratamiento médico, no estoy exagerando
-
-人类未来有钱有条件的活个130岁、150岁
-El futuro de la humanidad tendrá condiciones para vivir hasta130 años, 150 años
-
-跟玩兒似的, 你在活着之前
-Así como jugando, antes de estar vivo
-
-基本没有疾病
-Básicamente, no hay enfermedad
-
-基本不可能有疾病来骚扰你
-No hay enfermedades que te molestarán
-
-基本上不可能
-Básicamente no habrá
-
-在非洲草原上看到一个能老死的狮王的话
-Si ves a un rey león que muere por estar viejo en las praderas de África
-
-那一定是有原因的
-Eso debe ser por alguna razón
-
-那是有原因的
-Por algún motivo
-
-咱慢慢来
-Vamos poco a poco
-
-新中国联邦未来将拥有世界上最高的各种生物、生命
-En el futuro, el Nuevo Estado Federal de China tendrá la mayor variedad de criaturas y vidas del mundo
-
-太空、交通、能源、科技
-En el espacio, transporte, energía, tecnología
-
-一定是咱么的投资者
-Seguramente son de nuestros inversores
-
-我想告诉大家, 再说一遍, 所有老椅子投资者, G-club
-Les quiero decir de nuevo, todas los inversores de sillas antiguas, G-club
-都是5%的盖特, 5%的喜联储, 10%的G-club
-Tienen el 5% de GETRR, 5% del banco central de Himalaya, 10% de G-club
-
-还有一个大家看到的, 10%新的金融机构, 还会更多
-Y otro que ustedes vieron, el 10% de instituciones financieras y más
-
-你们会看到一系列的公布
-Ustedes verán una serie de anuncio
 
 * * *
 
-日期: 10/18/2021
-原视频标题：郭先生10年前的布局，未来新科技无限, G系列前景无限
-La planificación del Señor Guo desde hace diez años; la tecnología nueva del futuro es infinita y las perspectivas son ilimitadas para la serie G
-原视频日期: 10/12/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1447865670356516874?s=24](https://twitter.com/se1y7cblljselva/status/1447865670356516874?s=24)
-任务编号：KC181（2529）
-视频时间段：0:00-2:18
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场-小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*文章内容仅代表作者观点*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+作者：骄子
+审核：兵嫂、天雷滚滚
+发布：骄子
+
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家-1.jpeg)

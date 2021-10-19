@@ -2,15 +2,30 @@
 ---
 
 
-## 狮城快讯：新加坡被美国列为中共病毒最高危险级别的国家
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1604379/)
+## 叶刘淑仪话音未落, 抗议北京冬奥会的邵岚获释
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1604491/)
 
-**撰稿：小坡**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-19-220136.jpg)
-本周一（10月18日）美国疾病控制与预防中心 (CDC) 将其对新加坡的建议级别调整为 4 级，即最高危险级别。 CDC 说：“由于新加坡目前的情况，即使是完全接种疫苗的旅行者也可能感染和传播中共病毒。”
+作者：七哩香
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+17日，香港学生代表邵岚与西藏女学生Tsela Zoksang 在希腊雅典参与了呼吁抵制北京冬奥的抗议活动，遭希腊警方拘押但已于18日获释。此前港共官员 叶刘淑仪得知此消息后，在社交平台发帖称，“邵岚是流亡海外的香港社运人士，是时候让她尝尝民主发源地的希腊警方，是如何对待滥用表达自由了!”这位前保安局长话音未落,邵岚已经获释。
 
-美国国务院周一也发布了类似通知，敦促人们不要轻易前往新加坡。 CDC 使用旅行健康通知，通过四级咨询系统提醒旅行者注意世界各地的健康威胁。 该系统通过考虑近期中共病例数和新病例轨迹等因素对目的地进行分类。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-18.jpeg)
 
-美国CDC的福奇难道不看李显龙的演讲吗？我们都和病毒共存了，新加坡一直都是按照福奇老人家的指导一路走过来的啊，不让吃羟氯喹，疫苗一针不行两针，两针不行，再加强针，而且绝大多数都是打的你们美国CDC推荐的疫苗啊。如今我们每天几千人感染，全都是美国CDC和辉瑞的功劳啊！怎么还说新加坡“危险”呢？新加坡政府从来都是说我们是控制病毒最好的国家，人死了多少嘛…. 咳咳，好像也不多啊，反正没有像美国鲍威尔将军那么有名的人死了，民众就觉得一点都不危险啊，福奇博士请出来走两步，为啥说我们新加坡危险呢？
+2019年反送中运动期间，中共独裁极权操控下的港共警方滥用暴力, 对抗争者残杀虐待, 致使近2万人伤亡失踪。邵岚所属的香港学界国际事务代表团，向多个国家和联合国人权理事会发出声讨控诉,  中共香港政府的所谓”执法”，与民主国家早已是天壤之别!  叶刘淑仪不仅嘲笑受害港人，还以为”天下乌鸦一般黑”, 结果一天就被打脸。以她为代表的一众港共帮凶,实为香港人的耻辱和败类!
 
-**[新闻来源](https://www.straitstimes.com/singapore/us-raises-covid-19-travel-alert-for-singapore-to-highest-risk-level)**
+(本文仅代表作者观点)
+
+参考链接：[邵岚希腊抗议冬奥旋即获释 香港前保安局长遭打脸](https://www.rfi.fr/cn/人权/20211019-邵南希腊抗议冬奥旋即获释-香港前保安局长遭打脸)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：文龍
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
