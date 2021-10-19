@@ -2,18 +2,50 @@
 ---
 
 
-## 新中共病毒超级变种使英国近期病例激增
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1603368/)
+## 美国传奇科林-鲍威尔完全接种疫苗后去世
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1603612/)
 
-#### 撰稿：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-35.jpg)图片来源：网截图
-据零对冲10月18日报道，美国食品和药物管理局前局长斯科特·戈特利布（Scott Gottlieb）博士周一警告说，从三角洲变体演变而来的新的 “超级菌株 ”可能是英国最近病例激增的背后原因，而英国认为它已基本控制了中共病毒，首相约翰逊和他的卫生部长刚刚宣布计划放松外国旅行限制。
+栏目记者: Andy5
+责任编辑：AsG諾雅
 
-戈特利布博士在他的推特账号上说，英国近期创下了3个月以来最大单日中共病毒新病例的跃升。同时他指出，被称为AY.4v的新变体与在刺突蛋白中的S:Y145H变体的已经迅速蔓延，目前占英国正在确认的新病例的8%。
 
-英国周日新感染的病例45,140例，57例死亡。该每日统计数字是三个月来的最高值，这正是促使戈特利布博士提出关注的原因。戈特利布博士说，英国和其他国家需要加强对这种新变体的研究。特别需要对新变体是否更容易传播进行更多研究。没有明确的迹象表明它具有相当大的传播性，但我们应该努力更迅速地确定这些和其他新变体的特征。
 
-戈特利布博士所说的突变大约从7月开始在英国传播。戈特利布博士解释说这并不是要求立即采取行动，也不是要求重新回到封锁的日子。相反，在研究和其他措施方面需要有一个协调的全球反应，以保持对下一轮变体和超级变体的关注。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-新闻来源：[Dr. Gottlieb Warns New “Super Variant” Is Behind Latest COVID Comeback In UK](https://www.zerohedge.com/covid-19/dr-gottlieb-warns-new-super-variant-behind-latest-covid-comeback-uk)
+
+
+10月18日星期一，鲍威尔去世，享年84岁。他的家人在其脸书页面的声明上写道：”在完全接种了新冠疫苗后，美国前国务卿和参谋长联席会议主席科林-L-鲍威尔将军今天上午去世。我们要感谢沃尔特-里德国家医疗中心的医务人员的关怀治疗。我们失去了一位杰出的、充满爱心的丈夫、父亲、祖父和一位伟大的美国人。”
+
+据报道，鲍威尔被诊断出患有多发性骨髓瘤这种癌症，他的去世与86岁的棒球传奇人物汉克-亚伦的去世有相似之处，后者在1月份打了一针新冠疫苗后仅几周就去世了，尽管医院声称亚伦的死因与疫苗无关。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-103.jpg)
+科林-鲍威尔于1937年4月5日出生在纽约市，由牙买加移民父母抚养长大。从参加越南战争到成为四星上将，到1987年在里根政府出任史上第一位黑人国家安全顾问，1989年成为老布什总统的参谋长联席会议主席，并在克林顿政府连任同一职位，2000年在伊拉克战争期间在小布什政府中担任第一位黑人国务卿，他的一生充满传奇色彩，
+
+鲍威尔是第一个享有如此盛誉而死于所谓“突破性病例”的公众人物，他的死亡将使更多人看到新冠毒针的危害，从而更加坚定立场，拒绝所谓新冠疫苗。
+
+参考链接：
+1. [Colin Powell, Fully Vaccinated, Dies From COVID-19 Complications](https://marketrealist.com/p/was-colin-powell-vaccinated-covid/)
+2. [Colin Powell dead at 84 from COVID-19 complications](https://thehill.com/policy/defense/577152-colin-powell-dies-at-age-of-84)
+3. [“Fully Vaccinated” Colin Powell Dies From Covid Complications](https://www.infowars.com/posts/fully-vaccinated-colin-powell-dies-from-covid-complication/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

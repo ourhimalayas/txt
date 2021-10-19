@@ -2,61 +2,181 @@
 ---
 
 
-## 对战友们参加本次追加投资的投资组合的建议
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1603880/)
+## 郭先生10年前的布局，未来新科技无限, G系列前景无限
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1603961/)
 
-作者：香草山福音部-所罗门
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2529.png)
+[https://gtv.org/video/id=616e7207d2e2b8174876fbc5](https://gtv.org/video/id=616e7207d2e2b8174876fbc5)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/gnews-logo.jpeg)
+这个大家要记住
+Deben recordar esto
 
+很多人在问七哥
+Muchas personas me han preguntado
 
+建一个什么, 去问班农去
+Construir qué cosa, ve y pregúntale a Bannon
 
-就在这喜币即将上市之际，七哥又给战友们一次惊喜，就是给上次统计之后新追加投资和捐款的，以及上次统计时被落下的，仍给与喜币配额，虽然比上次给的比例少了，但因为战友们深知喜币价值，所以处处人心振奋，群情激昂，纷纷采用各种方式，希望多收集一些资金，再在这趟财富末班车上参与一把。
+班农问我, Miles
+Bannon me pregunta, Miles
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image1-2.jpg)
+(他们)都在问我, 你到底
+Ellos me han estado preguntando
 
-那么钱应该怎么投呢？
+要建一个什么啊
+Qué es lo que vas a construir
 
-很多人马上会说，这还用问吗？当然是全部买卡或者直接追加GTV股票投资啦！我前两天还算呢，比如一上市开盘价是5美元，那么投资1万美元+按配额花200美元买喜币的话，光喜币的价值就已经到了1万美元，而GTV股票的价值也翻了10倍，达到10万美元，GCLUB就先不计算了。
+我说不告诉你
+Le dije que no te voy a decir
 
-但是如果开盘价更低的话，这还是最优方案吗？
+不会告诉任何人
+No se dirá a nadie
 
-如果开盘价真能低到0.2美元呢？这不可能吗？七哥自己甚至还说过0.15美元这个价格，记得吧？
+你只有在6个月以后, 你才知道七哥要建的是什么
+Solamente después de seis meses sabrás qué lo es que construiré
 
-这种情况下仍按投资1万+200的话，股票还是十倍，喜币价值变为400美元，增加200，这样就不显得多了。
+你才知道新中国联邦是什么
+Sabrás qué es el Nuevo Estado Federal de China
 
-而如果遇到这种价格，手里又正好有一些喜美元，比如1万喜美元，去购买喜币呢？那就可以买5万个币。而这时候，价格再上涨的话，那显然就占大优势了。因为价格涨一倍，总价值就翻一番。
+就像喜币
+Así como la moneda de Himalaya
 
-那么价格再继续涨到2块钱的时候，买股票投资的资产就是10万（因为根据经验，GTV股票在真正上市前，大概率会涨的比较慢）+4000。全买喜币的话，这就是翻了十倍，价格达到10万美元，基本上就和股票投资的价值持平了。而接下来再涨的话，显然很快就超过追加股票投资的回报了。
+昨天那个投资者说
+Ayer el inversor dijo
 
-不但如此，而且留一部分钱全买喜币的话，这部分钱具有高流动性。就是说，这部分钱可能是贷款的钱，透支信用卡的钱，或者手里只留了一两个月生活费，剩下的积蓄都投进来了。
+Miles
+Miles
+我第一次跟你因为喜币吵架
+Primera vez peleé contigo por la moneda de Himilaya
 
-那么在这种情况下，如果前期几个月价格涨的相对比较慢的话，你怎么办？要是钱全用作追加股票投资的话，而过了一两个月，需要生活费了，或者需要还贷款了，这时喜币如果只涨到10美元（也算是100倍了），你又急等着用钱，你卖不卖？还从其他渠道找钱吗？能找的地方你已经都找了用来投资了。股票好像现在还没有什么成熟的市场，你说卖马上就有人买吧？那你每次得卖多少喜币？你又有多少喜币？
+到最后我哀情你, 到现在我成为股东
+Al final te lloré, y ahora soy accionista
 
-所以，对资金有高流动性需求的，留些钱用于上市后购买喜币也是有价值的，就像刚才说的，如果开盘价格不高，可以多买些喜币，而且只要喜币升值一倍，这部分钱就升值一倍。从另一个角度说，本来这部分钱是应该留在身边预备做将来的生活费的，但这样就相像是之前用余额宝，平时也不取多少现金，都放到余额宝里，随用随取。当然喜币的提现这方面肯定比支付宝复杂，而且会有手续费，但是按喜币的升值潜力来说，这些肯定就都不是问题了。
+现在我想知道喜币到底会到什么(程度)
+Ahora quiero saber qué tanto puede llegar la moneda de Himalaya
 
-那么留多少钱用于上市后再购买呢？这要看你的资金需求，要是这部分资产三年不动，生活也完全不受影响，而且如果你对喜币的开盘价有相对高的预期，比如几美元这样的价格，那么就完全没有必要再留这部分钱。
+我不会告诉你
+No te lo diré
 
-但如果你每个月都要还贷款，或有其他花费，那就可以大致上把你几个月到半年内需要还的钱或者生活费等都放到这里，然后随用随卖。
+当你们了解七哥这十几年前的布局
+Cuando ustedes entiendan el plan que he estado realizando por más de diez años
 
-当然，我也遇到过实在没钱的战友，不但现在没钱，以前也基本上没有投多少。而且现在所有的钱只够几个月的生活费，而且没有找到合适的工作，而且作为外国人，在当地也很难找到工作。而这样的战友，我也建议他从牙缝里抠出来一些钱参与投资，因为虽然很多人可能不建议这么做，但是他如果不这么做，过几个月就彻底没钱了，就断粮了。
+你看看未来的干细胞, 星空Wifi
+Mira las células madre del futuro, el Starry Internet
 
-所以大家可以考虑一下上市后再买喜币这种方式，我个人其实是计划大概百分之八九十投入到股票追加投资，其余部分用于上市后再买喜币。这其实也是在做风险对冲。如果很快价格就很高了，那用于上市后买喜币的那部分资金肯定就算浪费了。但实际上喜币配额的那部分赚的钱已经完全可以弥补这部分损失了。而如果开盘价格不高，而且涨得慢，那显然这部分钱就起到作用了。
+你看看整个世界金融系统, 再看医疗系统
+Mire el sistema financiero mundial y luego miras al sistema médico
 
-以上是我的一点儿心得体会，希望对帮助大家选择一个合理的投资组合起到一定作用。愿我们通过喜币的上市，掀起一股以钱灭共的热浪！早日推翻这帮老杂毛！
+还有一个大家要记住的, 高科技
+Y otra cosa que deben recordar, la alta tecnología
 
-校对/发稿：飞虹
+所有的新科技
+Todas las nuevas tecnologías
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+现在说新科技, 我要给你们爆两句
+Ahora que estoy hablando de la nueva tecnología, debo reverlarles un poco
 
-**更多资讯，更多关注**
+今天你们得晕
+Hoy todos ustedes deben estar mareados por eso
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+都得晕
+Deben estar mareados
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+新的科技对通讯的提升
+La nueva tecnología mejora la comunicación
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+对医疗的提升
+Mejora del tratamiento médico
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+对交通方式的提升
+En la forma de transporte
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+兄弟姊妹们
+Hermanos y hermanas
+
+我现在跟你说完
+Ahora que termine de decirlo
+
+你一定把我订为神经病
+Seguramente dirás que estoy loco
+
+因为七哥投资了, 七哥知道意味什么
+Porque yo invertí, así que sé lo que significa esto
+
+就像我说那个生物芯片一样
+Como dije sobre el biochip
+
+生物芯片就这么大一块
+El biochip es así de grande
+
+能把全地球的信息装进去
+Puede ingresar todas las informaciones del mundo
+
+你很快会看到手机、电脑、通信、医疗、一点儿不夸张
+Pronto verás en los teléfonos móviles, computadoras, medios de comunicación, tratamiento médico, no estoy exagerando
+
+人类未来有钱有条件的活个130岁、150岁
+El futuro de la humanidad tendrá condiciones para vivir hasta130 años, 150 años
+
+跟玩兒似的, 你在活着之前
+Así como jugando, antes de estar vivo
+
+基本没有疾病
+Básicamente, no hay enfermedad
+
+基本不可能有疾病来骚扰你
+No hay enfermedades que te molestarán
+
+基本上不可能
+Básicamente no habrá
+
+在非洲草原上看到一个能老死的狮王的话
+Si ves a un rey león que muere por estar viejo en las praderas de África
+
+那一定是有原因的
+Eso debe ser por alguna razón
+
+那是有原因的
+Por algún motivo
+
+咱慢慢来
+Vamos poco a poco
+
+新中国联邦未来将拥有世界上最高的各种生物、生命
+En el futuro, el Nuevo Estado Federal de China tendrá la mayor variedad de criaturas y vidas del mundo
+
+太空、交通、能源、科技
+En el espacio, transporte, energía, tecnología
+
+一定是咱么的投资者
+Seguramente son de nuestros inversores
+
+我想告诉大家, 再说一遍, 所有老椅子投资者, G-club
+Les quiero decir de nuevo, todas los inversores de sillas antiguas, G-club
+都是5%的盖特, 5%的喜联储, 10%的G-club
+Tienen el 5% de GETRR, 5% del banco central de Himalaya, 10% de G-club
+
+还有一个大家看到的, 10%新的金融机构, 还会更多
+Y otro que ustedes vieron, el 10% de instituciones financieras y más
+
+你们会看到一系列的公布
+Ustedes verán una serie de anuncio
+
+* * *
+
+日期: 10/18/2021
+原视频标题：郭先生10年前的布局，未来新科技无限, G系列前景无限
+La planificación del Señor Guo desde hace diez años; la tecnología nueva del futuro es infinita y las perspectivas son ilimitadas para la serie G
+原视频日期: 10/12/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1447865670356516874?s=24](https://twitter.com/se1y7cblljselva/status/1447865670356516874?s=24)
+任务编号：KC181（2529）
+视频时间段：0:00-2:18
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场-小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

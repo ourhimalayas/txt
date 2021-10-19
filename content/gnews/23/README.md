@@ -2,26 +2,59 @@
 ---
 
 
-## 警惕中共对台实施军民融合式“夺岛登陆”战法
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1603809/)
+## COVID-19最新情报｜美参议员Ted Cruz：拜登授权强制接种疫苗 侵害人权
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1603909/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/21-4.png)（图片为视频截图）
-据近日央视网视频栏目消息，解放军第81集团军某合成旅在近期的一次训练行动中，动员了4.5万吨的民用船舶，进行了军地联合的兵员投送行动。数据显示，4.5万吨民船可以运送战斗车辆350台，一旦战斗设备运抵目标地点，立即可以配合任务指令投入战斗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-60.jpg)
+美国德克萨斯州共和党籍参议员Ted Cruz在推特上表示，他认为拜登总统在九月发布的强制接种命令，是侵害人权的。
 
-近年来，中共在部分民用船舶研发生产过程中，就充分考虑了军事需求，如“渤海翠珠”轮，就是一艘体现军民融合的大型客滚船，其排水量达到3.6万吨。“渤海翠珠”轮在启动首航之前，就曾参与解放军投送演习，现场装甲车设备陆续上船，作业效率非常高，两分钟就可以固定一辆装甲车。“渤海翠珠”轮除了有多层车库可以运送大量装甲车设备之外，还配置直升机降落平台和临时医疗中心，这些设施能够保障“渤海翠珠”轮作为临时军事设施的关键作用。
+拜登针对Delta提出六大方针的[COVID-19 ACTION PLAN](https://www-whitehouse-gov.translate.goog/covidplan/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=nui,sc)（COVID-19战略计划），目的为打击新冠病毒。
 
-长期以来，中共一直处心积虑地研究对台军事打击的各种战法，其中“夺岛登陆”又是实施全面军事占领的关键步骤。
+其中《[COVID-19 Action Plan With New Vaccine Mandates](https://www-aamc-org.translate.goog/advocacy-policy/washington-highlights/president-biden-announces-covid-19-action-plan-new-vaccine-mandates?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=nui,op,sc)》（新冠疫苗强制接种），要求美国境内所有拥有雇员达100人以上的雇主，强制员工接种新冠疫苗，或是每周提供阴性证明。在媒体的推广下，许多私营部门已经表示将遵循拜登发布的疫苗规定，要求员工接种疫苗。更有私营部门，因雇员未接种疫苗而予以解雇。
 
-当前，中共对台作战的军事决心已经下定和各种动员准备也已完成，鉴于中共行事的无底线，以军民融合保障为掩护，“藏军于民”，出其不意地对台进行闪电式攻击，也将是中共的一种战术。
 
-信息来源：
 
-[解放军征用4.5万吨民船，投送精锐整支部队，岛内蔡当局慌不慌？](https://www.163.com/dy/article/GMEBP4MV0515D8SH.html)
-[对岸蔡当局慌不慌？解放军征用4.5万吨民船，整支部队一起投送](https://www.bilibili.com/video/BV19P4y1t7pH)
+> Joe Biden’s illegal vaccine mandate at work!
+> 
+> Suddenly, we’re short on pilots & air traffic controllers.[#ThanksJoe](https://twitter.com/hashtag/ThanksJoe?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wviOzLt7Iv](https://t.co/wviOzLt7Iv)
+> — Ted Cruz (@tedcruz) [October 10, 2021](https://twitter.com/tedcruz/status/1447327311095910402?ref_src=twsrc%5Etfw)
 
-(文章仅代表作者本人观点，与GNEWS无关)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+[Ted Cruz](https://en.wikipedia.org/wiki/Ted_Cruz)推特分享西南航空公司的新闻，西南航空因为遵守拜登总统发布的疫苗政策，要求员工必须接种新冠疫苗，否则不得执勤。此举间接导致了数以千计的航班被取消。大量旅客因航班取消缘故，滞留于机场航厦。
+
+Ted Cruz讽刺拜登总统，表示：感谢Joe（拜登总统）。
+
+西南航空针对航班取消一事，对外说明：不是因为人力短缺，而是天气因素。
+
+#### Ted Cruz：要求出示接种证明、阴性证明，侵犯隐私！
+
+今年八月，Ted Cruz与Fox新闻主播Sean Hannity同台称：新冠疫苗接种证明是对个人隐私的侵犯。当被要求出示接种新冠疫苗的相关证明，都是对个人自由的侵犯。
+
+#### COVID法西斯主义兴起，美国陷入绝对的混乱
+
+据[新闻报导](https://www.click2houston.com/news/local/2021/06/30/passengers-frustrated-after-southwest-airlines-cancels-thousands-of-flights/)，美国西南航空取消上千个航班，导致许多搭乘西南航空的旅客无法顺利启程，并且滞留于机场航厦中，等待西南航空安排“完全接种疫苗”的机组人员，引导旅客到目的地所需的航班。
+
+西南航空尚未允许“未完全接种疫苗”的员工返回工作岗位。
+
+#### 德州颁布“疫苗歧视禁令”
+
+德克萨斯州长签署行政命令，包含私营部门在内，禁止疫苗歧视。（[行政命令PDF](https://gov.texas.gov/uploads/files/press/EO-GA-40_prohibiting_vaccine_mandates_legislative_action_IMAGE_10-11-2021.pdf)）
+
+西南航空公司对德州的禁令表示**不会遵守**，将全力遵循拜登总统的疫苗规定。拜登总统发布的疫苗规定，希望美国人民尽最大努力接种疫苗，以维持生活、就业。
+
+- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/)
+- 相关：[新冠病毒预防、治疗方案（](https://vladimirzelenkomd.com/prophylaxis-protocol/)Zev Zelenko 博士）
+- 相关：[印度德里使用伊维菌素，确诊病例下降97%](https://gnews.org/zh-hant/1570870/)
+
+
+白宫目前正在考虑将“美国境内航班旅客”也纳入强制接种范围，若白宫确定将境内航班旅客纳入强制接种范围，那没有接种疫苗的人民将无法搭乘飞机。
+
+- 相关：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
+- 相关：[麥卡洛博士呼籲，不要接種新冠疫苗](https://www.wnd.com/2021/05/prominent-physician-dont-get-covid-shot/)（完整采访）
+
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-92.jpg)
+[原文](https://www.naturalnews.com/2021-10-16-cruz-calls-biden-covid-vaccine-mandate-illegal.html)￨转译 台湾宝岛农场 zhong
+（一切内容以原文为主，转译仅供参考）

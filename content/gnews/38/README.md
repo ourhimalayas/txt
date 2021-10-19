@@ -2,26 +2,16 @@
 ---
 
 
-## COVID-19最新情报｜美前国务卿接种疫苗后染疫身亡 疫苗防重症破功？死于疫苗？
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1603675/)
+## 瑞士卫兵抨击梵蒂冈强制疫苗措施是“可耻的，不人道的”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1603750/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期****/ 19/10/2021**
+#### 撰稿：沙子最怕你不理它
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-50.jpg)图片来源：网络截图
+据 LifeSiteNews 10月18日报道，一名瑞士警卫队成员皮埃尓•安德烈•乌德西（Pierre-Andre Udressy）在拒绝注射含有胎儿细胞的中共病毒疫苗后失业，这名队员于10月8日给梵蒂冈官员写了一封公开信，抨击他们的反天主教强制疫苗措施。
 
-***当主流媒体只为当权者粉饰谎言，新闻资讯就沦为洗脑工具。本栏目旨在从中寻找不同角度，为您扩大厘清病毒及疫苗真相的空间。***
+目前，所有可用的中共病毒疫苗在开发测试过程中都使用从流产胎儿中收集的细胞组织。来自辉瑞的爆料人梅丽莎•斯蒂克勒（Melissa Strickler）称为了更容易地让宗教人士接受注射，真相被制药公司的高管隐瞒和模糊化。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Blue-Universal-Space-Channel-Banner.jpg)
+乌德西是三名在梵蒂冈城拒绝注射后失业并不得不返回瑞士的瑞士警卫之一，他称梵蒂冈的强制疫苗措施是“可耻的”、“不人道的”。作为一名忠实的天主教徒，他在道义上有义务避免与堕胎有联系的医疗项目，如注射实验性中共病毒。在他看来，梵蒂冈不仅受到（政府）胁迫，而且背叛了忠实的天主教徒和教会的官方教义。乌德西还引用了大教宗约翰•保罗二世（John Paul II）的第*74*期宣讲福音的原话：“医生和家中的父亲有义务求助于替代疫苗（如果有的话），向政治当局和卫生系统施加压力，以便提供其他没有道德问题的疫苗。” 乌德西并不是唯一一个反对中共病毒疫苗的天主教徒。卡罗尔•玛丽亚•维嘉诺(Carlo Maria Vigano）大主教和亚他那休•施耐德（Athanasius Schneider）主教等高级牧师也表示反对含有胎儿细胞的疫苗。
 
-美媒消息（18日），美国前国务卿鲍威尔（Colin Powell）因感染新冠病毒 COVID-19 而引发并发症不治，终年 84 岁。鲍威尔的家人于社交网站公布他逝世的消息，并透露他已经完成两剂新冠疫苗接种，可惜，鲍威尔仍然因病毒引起的重症而身亡。
-
-较早前，法新社消息（12日），法国对超过 2000 万人的最新研究显示，COVID-19 疫苗能有效预防重症，Delta 变体亦不例外。报导同时指出，法国的这份研究结果又一次证实了美国、英国和以色列此前的相关研究，而且法国的研究是迄今规模最大的一个。
-
-鲍威尔的离世似乎令该份研究变得有点可笑。
-
-值得留意的是，新中国联邦发起人之一的郭文贵先生则有另一番见解，他在个人社交平台 GETTR 上发文指，“鲍威尔绝对死于疫苗，而不是病毒，所有的这些媒体都在撒谎。”，并质疑“他们在掩盖什么？恐惧什么？”不过，郭文贵暂未透露，该结论的情报来源。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/螢幕截圖-2021-10-19-下午1.14.43.png)
-
-* * *
-
-新闻来源｜[WSJ](https://www.wsj.com/articles/former-secretary-of-state-colin-powell-dies-at-84-11634560862?mod=hp_lead_pos5) / [Swissinfo](https://www.swissinfo.ch/chi/%E6%B3%95%E5%9B%BD%E7%A0%94%E7%A9%B6%E6%8C%87%E7%96%AB%E8%8B%97%E5%8F%AF%E6%9C%89%E6%95%88%E9%98%B2%E9%87%8D%E7%97%87-%E5%AF%B9delta%E4%B9%9F%E6%9C%89%E6%95%88/47020646)
-声明｜ 以上观点仅代表作者
+新闻来源：[Swiss Guard calls Vatican vax mandate ‘scandalous, inhumane’ after being ousted over jab refusal](https://www.lifesitenews.com/news/former-vatican-swiss-guard-slams-church-officials-over-vaccine-mandates/)

@@ -2,96 +2,63 @@
 ---
 
 
-## 电视台想做未接种疫苗死亡节目，结果全是疫苗受伤的报道
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1603795/)
+## COVID-19最新情报｜拜登授权雇主强制员工接种的命令，违宪！
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1603900/)
 
-**编译：JennyBall**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/102.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip34.png)图片来源：news target.com
+9 月 9 日的公开演讲中，拜登总统宣布六管齐下的打击COVID-19行动计划，其中最具争议性的部分是要求拥有 100 名以上员工的雇主强制要求员工接种疫苗或每周进行 SARS-CoV-2 检测。
 
+这部分的强制接种授权，是拜登总统行使宪法赋予的行政权，依照Occupational Safety and Health Administration（ 职业安全与健康管理局）将发布的紧急临时标准，要求拥有 100 名以上员工的雇主强制要求员工接种疫苗或每周进行 SARS-CoV-2 检测。
 
-大约一个月前，WXYZ-TV 第 7 频道在他们的 Facebook 页面上[发布了帖子](https://www.lifesitenews.com/news/tv-station-asks-for-stories-of-unvaxxed-deaths-but-gets-deluged-with-jab-death-and-injury-stories/)，想要寻找未接种冠状病毒 (COVID-19) 疫苗的人死亡的用户分享他们的故事，但相反，底特律的 ABC 分支机构收到了许多疫苗造成伤害和死亡的故事。
+拜登总统，此强制接种授权是属于“行政命令”性质。对隶属于行政权以外的人民、民间企业或组织（下简称：私营部门），应该不会产生法律规制力，但仍有许多的公司行号依照拜登总统的行政命令，强制要求员工接种疫苗，部分不遵守强制接种要求的员工，遭受失业的不公平对待。
 
-9 月初，底特律的 ABC 附属电台，要求 Facebook 用户分享因冠状病毒而死亡的未接种疫苗的人的故事。电台没有收到他们预期的故事，而是充斥着各种接种冠状病毒疫苗的人已经死亡和受伤的报告。
+#### 行政命令仅对联邦机构生效！
 
-该电台的帖子写道：“在所有人都可以接种疫苗后，您是否因为 COVID-19 而失去了未接种疫苗的亲人？如果您愿意分享您家人的故事，请将您的联系信息发送给我们，我们可能会联系你加入我们正在做的节目。”
+大卫·马丁博士于[影片](https://www.brighteon.com/3d2299e3-b420-446f-a8d1-7f3e10b80df0)中表示，拜登总统发布行政命令，对私营部门不应该具有拘束力。（意思是不需要遵守）
 
-在撰写本文时（在 FB 帖子发布大约一周后），该帖子有 212,000 条评论。下面详细介绍了评论者分享的一些故事：
+拜登的行政命令对私人没有任何影响，因为行政命令只能对联邦机构（隶属联邦政府的公部门）生效。至于，联邦机构以外的私人，不论是普通公民、私营机构，州政府公部门，都无须遵守。
 
-- 根据贝基·伯奇（Becky Burch）说的，她的姨妈在接种疫苗后一周就去世了。 他们没有将死亡与冠状病毒疫苗联系起来，直到拜访了另一位表亲，他的家人注射了疫苗后发生了同样“奇怪”的死亡。 虽然不确定细节，但伯奇认为她的姨妈死于本应保护她的疫苗。
+**大卫·马丁表示：目前没有任何法律允许联邦机构，要求员工强制接种任何新冠疫苗。**
 
+原因在于，法律允许强制接种疫苗、强制用药，需要将疫苗、药物送交“经批准的伦理委员会（institutional review board，又称人体试验委员会）”审核。伦理委员会必须审核疫苗或是药品的安全数据、动物实验等临床结果。
 
-- 克里斯塔·埃文斯(Krista Evans)  说,她知道至少有三个人在接种疫苗后不久就死亡了。 她补充说，她认识的感染了冠状病毒的人，只有“非常轻微的流感样症状”，根本不需要危险的疫苗。
-
-
-- 马克西米连·罗伯斯庇尔（Maximilien Robespierre）分享说，虽然他个人不认识任何死于冠状病毒的人，但他认识一位 37 岁的人，他接种了疫苗，并在接种疫苗八天后死于[脑动脉瘤](https://www.naturalpedia.com/aneurysm-causes-side-effects-and-treatments-at-naturalpedia-com.html)。
-
-
-- 理查德·斯莫瑟 (Richard Smother) 说，他同事 12 岁的女儿在第二次注射一小时后昏倒，需要紧急医疗服务。
+- 伦理委员会：由具医学背景之专业人员与非医学背景之社会公正 人士所共同组成之委员会，其责任在保护受试者之权利、安全与福祉。（更详细：[馬偕醫院](https://www.mmh.org.tw/taitam/irb/Description/MMH人體試驗委員會方針及作業手冊-2010-05.pdf)）
 
 
-- 除了与疫苗相关的死亡之外，评论者还分享了有关疫苗引起的副作用的故事，例如消化问题、视力和运动障碍、心脏病发作和血栓。
+但现存的新冠疫苗都属于“实验性疫苗”，新冠疫苗在欠缺相关数据的阶段，就被政府紧急授权投入生产、使用。因此，新冠疫苗没有任何经实验的安全数据，也就不存在经过伦理委员会审核的程序。
 
+**因此，大卫·马丁认为，拜登总统发布的疫苗规定是违法的。**
 
-- 杰西卡·莫尔丁（Jessica Mauldin）分享说，她的母亲在接种疫苗四天后心脏病发作，现在她的肺部有血块。
+#### [康奈尔法学院](https://www.lawschool.cornell.edu/)教授曾批川普，促进公共健康和福利是州政府权力！
 
+针对川普政府于2020/04宣布“总统对COVID-19的促进公共健康和福祉的限制措施，享有全权”一事，包含凯瑟琳·伯金在内的法律学者，援引《宪法第10条》说明促进公共健康和福祉的限制措施，应属于“州政府”。
 
-与此同时，朱莉·史密斯(Juli Smith)说她的邻居死于冠状病毒疫苗。此外，史密斯的母亲的胳膊和腿已经失去知觉。 她的一位密友也因头痛而多次被送往急诊室。
+CNN还针对此事进行事实查核，指出“在公共卫生方面，没有法律明确授权总统享有优先于各州政府的权力”。
 
-史密斯感叹说，她母亲和朋友的医生，都声称疫苗和症状无关。最后，她丈夫的医生拒绝让他检测冠状病毒抗体，史密斯声称这些医生是“同谋”。
+#### *City Journal 的专栏作家也认同拜登的疫苗规定违宪*
 
-根据联邦疫苗不良事件报告系统（VAERS) 数据库数据，截至2021年7月19日，美国[共有 419,513 起](https://sharylattkisson.com/2021/08/covid-19-vaccine-analysis-the-most-common-adverse-events-reported-so-far/)与冠状病毒疫苗接种相关的不良事件报告。总共报告了 1,814,326 种症状，包括：
+*City Journal 的专栏作家亚当·弗里德曼 (Adam Freedman) 发表一篇文章《*[拜登的强制接种疫苗命令违宪](https://www.city-journal.org/biden-vaccine-mandate-unconstitutional)》，文章表示拜登的疫苗规定，明显违反了美国宪法的联邦制及三权分立原则。
 
-• 肌肉、骨骼、关节疼痛和肿胀
+亚当·弗里德曼表示，拜登这项疫苗规定，应该属于州政府，而不是联邦政府。
 
-• 注射部位疼痛、出血、硬化和瘀伤
+最高法院的两个相关判例，[Jacobson *v.* Massachusetts](https://www.oyez.org/cases/1900-1940/197us11)（马萨诸塞州）、[Zucht v. King, 260 U.S. 174](https://supreme.justia.com/cases/federal/us/260/174/)(1922)。这两个案件都涉及到天花疫苗，依照判例内容，都表示疫苗相关规定应依照州法律，而非联邦法律。
 
-• 注射部位或其他地方发红、皮疹和荨麻疹
+亚当·弗里德曼表示，拜登总统所为的疫苗规定，司法依照宪法原则审查违法性，可以在短时间内停止。但是司法必须迅速采取行动，因为在新闻媒体的大力推广下，许多大公司已经宣布将遵循拜登发布的疫苗规定。
 
-- 疲劳、嗜睡和能量损失
-- 头痛和[偏头痛](https://www.naturalpedia.com/migraine-causes-side-effects-and-treatments-at-naturalpedia-com.html)
+亚当·弗里德曼进一步指出，拜登总统发布的“COVID-19行动计划”，意图以《职业安全与健康法(Occupational Safety and Health Act)》为法律基础。职业安全与健康法，授予职业安全与健康管理局(OSHA) 发布“紧急测试标准(ETS)” 的权力，为了保护员工于工作场所，免于暴露或接触已确定为有毒或对身体有害的物质、制剂，或因新的危害而可能致员工于工作中陷入在严重危险当中。
 
+（法律规定以原文为准：grave danger from exposure to substances or agents determined to be toxic or physically harmful or from new hazards.）
 
-真相绝不像主流媒体描述的那样！
+意思是，拜登总统意图依照职业安全与健康法，依照职业安全与健康管理局(OSHA)紧急发布的紧急测试标准(ETS) ，要求员工人数达100人以上者，雇主应强制要求员工接种疫苗，或是每周提供阴性证明。
 
-查看 WXYZ-TV 第 7 频道的 Facebook 帖子，了解来自用户的更多恐怖故事，其中大部分与该电台极力想抹黑不打疫苗的目标适得其反。
+然而，亚当·弗里德曼指出，紧急测试标准(ETS) 仅针对工作场所的危险，如危险化学品，并不包括病毒等自然发生的危险。
 
-该帖子已被分享 192,000 次。（相关：[VAERS现在在美国超过 400,000 名受害者](https://www.naturalnews.com/2021-07-09-coronavirus-vaccine-injury-reports-surpass-400k-mark.html)。)
-
-关于冠状病毒疫苗死亡和伤害的大量评论，描绘了一幅与大型制药公司和主流媒体告诉公民的相反的画面。
-
-在该电台要求用户分享未接种疫苗的人因冠状病毒而死亡的故事的同一天，它分享了CD的统计数据，声称未接种疫苗的人比完全接种疫苗的人，“11倍的可能性”死于 COVID-19 。”
-
-早在 7 月份，CDC 主任罗谢尔·瓦伦斯基（Rochelle Walensky）博士就声称，超过 97% 的因冠状病毒住院的人是未接种疫苗的人，但这与 CDC 自己当时发布的数据相矛盾，该数据称15% 的住院冠状病毒死亡是接种疫苗的人。
-
-在白宫新闻发布会上，瓦伦斯基承认这个数字不包括来自 Delta 变体的更新数据。
-
-截至 8 月初，以色列的研究表明，冠状病毒疫苗的有效性“减弱”，令人震惊的是，85% 至 90% 的住院患者已经完全接种了疫苗。
-
-点击查看更多疫苗副作用的文章 [VaccineInjuryNews.com](https://vaccineinjurynews.com/)
-
-**评论：**
-
-**福特说过“人生最伟大的事情就是经历。即使是错误也有价值。”今天是我们爆料革命的战友说：正是我们经历了共产党独裁的恐怖，才让我们4年来成为世界上唯一坚持不懈揭露中共罪恶的人群，才让我们看到这个世界是如何在中共的操纵下已经变得乾坤颠倒，黑白不分！看看各个政府，媒体，医学专家睁着眼罔顾事实，置宪法与法律而不顾，让人们充当白老鼠，而人们竟然还在邪恶势力中拱手放弃自己的权利！这些颠倒黑白没有王法的事情竟在当今的美国发生着！在自由美国竟然没有地方讲出自己真实遭遇！**
-
-**但真相一定会唤醒民众，致敬勇敢讲出真相的人们，致敬敢于正常思维的人们，致敬为自己的权利而抗争的人们！**
-
-（文章仅代表作者观点与GNEWS无关）
-
-文章信息来源链接**:**
-
-[LifeSiteNews.com](https://www.lifesitenews.com/news/tv-station-asks-for-stories-of-unvaxxed-deaths-but-gets-deluged-with-jab-death-and-injury-stories/)
-
-[Facebook.com](https://www.facebook.com/wxyzdetroit/photos/after-the-vaccines-were-available-to-everyone-did-you-lose-an-unvaccinated-loved/10158207966696135/)
-
-[SharylAttkisson.com](https://sharylattkisson.com/2021/08/covid-19-vaccine-analysis-the-most-common-adverse-events-reported-so-far/)
-
-**新闻来源：**[news target.com ] [TV station looking for stories of unvaccinated fatalities gets flooded with reports of vaccine injuries](https://www.newstarget.com/2021-10-16-tv-station-unvaccinated-fatalities-flooded-vaccine-injuries.html)
+亚当·弗里德曼：人民希望法院比新闻媒体更仔细的审查拜登的命令，如果宪法原则运用得当，强制员工接种的部分很快就会被确认违反宪法对人权的保护，而被取消。且司法应干更迅速的采取行动，许多大公司已经宣布将会遵循拜登的命令。
 
 * * *
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_0.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)
+[原文](https://www.naturalnews.com/2021-10-16-david-martin-biden-vaccine-mandates-mean-nothing.html)￨转译 台湾宝岛农场 zhong 
+（一切内容以原文为主，转译仅供参考）
