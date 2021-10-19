@@ -2,34 +2,36 @@
 ---
 
 
-## 參議員羅恩·約翰遜：接種COVID-19疫苗後的10月內有16766 人死亡
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1604158/)
+## 依旧以假治国, 受灾减产变成“大丰收”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1604203/)
 
-據《網關專家》記者Jim Hoft，2021年10月17日報道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2588.png)圖片來源：www.thegatewaypundit.com
-共和黨參議員羅恩·約翰遜（Ron Johnson）今天早上參加了瑪麗亞·巴蒂羅莫（Maria Bartiromo）主持的《週日早間未來》節目。
-約翰遜參議員是少數公開談論COVID毒疫苗具有史詩級別危險的議員之一。
+作者：修文
 
-週日，約翰遜參議員表示:“強制接種是毫無意義的。現在我們知道完全接種疫苗的人照樣會被感染，同時他們會傳播這種疾病。不幸的是，他們正在住院，他們病得很嚴重，他們正在邁向火葬場。不管怎麼說，疫苗強制接種令沒有意義。”
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-關於疫苗的危險，約翰遜參議員補充說，“他們完全忽視了疫苗造成的傷害。瑪麗亞，人們真的需要理解這一點，因爲它沒有被報道。相關信息被壓制。但在使用流感疫苗的25年裏，疫苗不良報告系統(VAERS)報告的死亡人數略低於1700人。這是美國疾病控制與預防中心（CDC）的早期監控安全系統……有了新冠疫苗後，在接種該疫苗的10個月內，已經報告了16766人死亡。”
 
-約翰遜參議員是對的。
-目前VAERS 網站上報告了 16,766 人死於 COVID 疫苗。然而與新冠病毒疫苗相關的實際死亡人數，遠遠比VAERS報告的死亡人數要高。一位匿名的聯邦政府的工作人員表示，他看到的數字是超過150，000。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-363.png)
-約翰遜補充說，其中超過5400例死亡發生在接種疫苗後的2天內。
-他們爲什麼要對美國公衆隱瞞這一點？
-通過《週日早間未來》觀看完整視頻。
 
-文章點評僅代表個人觀點
+自由时报消息，中共河南省副省長武国定曾在9月底向媒体表示，由于连遭暴雨和水灾，导致各行各业损失惨重。特别是农业，河南本来是墙内产粮大省，但全境农田、农作物受灾面积达1515万亩，今年秋粮肯定会减产。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1019-AM-（1-3）.005.jpeg)
+但是不到一个月，官方口径就转向改为宣传河南今年秋粮“大丰收”。其中央视财经本月13日引述农业部数据称，中国秋粮已收获完成超过一半，”降雨”没有改变秋粮丰收得局势。当地农民普遍表达质疑和愤怒， 称政府不提受灾减产，“秋收还没有结束，专家已经计算出增产二百亿吨，简直是在做中国梦”。几十年过去，中共依然是这种大跃进式套路以假治国，用“大丰收”谎言，掩盖水灾造成的粮食减产，只求维稳。
 
-原文連接[https://www.thegatewaypundit.com/2021/10/senator-ron-johnson-no-point-mandate-whatsoever-covid-vaccine-16766-deaths-10-months-video/](https://www.thegatewaypundit.com/2021/10/senator-ron-johnson-no-point-mandate-whatsoever-covid-vaccine-16766-deaths-10-months-video/)
+虽然官媒强调粮食丰收，但根据中共海关的数据显示，今年1到4月粮食进口量比去年同期增加高达57.8% ! 天灾可以躲过，人祸却无法避免，数据表明，墙内大范围粮荒已经出现势头 。
+(本文仅代表作者观点)
 
-翻譯：洛杉磯盤古農場 – 鋼蛋兒
-校對：洛杉磯盤古農場– Mike Li
-評論：洛杉磯盤古農場 – 鋼蛋兒
-編輯：洛杉磯盤古農場 – 柯鎮惡
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+参考链接：[秋收未結束卻估計大豐收 中國不斷吹噓「糧食豐收」遭打臉](https://news.ltn.com.tw/news/world/breakingnews/3708289)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

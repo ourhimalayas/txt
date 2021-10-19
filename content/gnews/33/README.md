@@ -2,181 +2,41 @@
 ---
 
 
-## 郭先生10年前的布局，未来新科技无限, G系列前景无限
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1603961/)
+## 如何理解普京对台海局势的表态
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1604055/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2529.png)
-[https://gtv.org/video/id=616e7207d2e2b8174876fbc5](https://gtv.org/video/id=616e7207d2e2b8174876fbc5)
+**【雅典娜观察】与您一起洞察世界**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/China-Russia-.jpg)图片来源：China Breifing
+**作者/编辑：**MSGZ
 
-这个大家要记住
-Deben recordar esto
+[《普京葫芦里的帝国主义毒药》](https://gnews.org/zh-hans/1603792/)一文中提到俄罗斯总统普京在2021年10月13日发言称，台海没有爆发武装冲突的危险，北京统一台湾“不需要动用武力”。
 
-很多人在问七哥
-Muchas personas me han preguntado
+要理解普京表态的意思 ，必须要知道俄罗斯的帝国背景。俄罗斯在沙俄时期、苏联时期以及解体后，大肆对清帝国和中华民国的领土进行掠夺和肢解，以及和伪中共政府签订的领土条约，涉及的土地总面积达大清帝国1/3面积的领土。甚至在以国际法和联合国为国际秩序的21世纪，依然毫无忌惮地吞并乌克兰的领土——克里米亚。因此，普京的俄罗斯帝国野心昭然若揭。
 
-建一个什么, 去问班农去
-Construir qué cosa, ve y pregúntale a Bannon
+此次普京对台海问题的表态，无疑是在配合中共。表面上表现的好像是站在中间立场说些无关痛痒的话，欲使国际政治关系不致太过焦虑。然而实际上普京的话是极其阴险的。
 
-班农问我, Miles
-Bannon me pregunta, Miles
+**普京发言中称：**
 
-(他们)都在问我, 你到底
-Ellos me han estado preguntando
+**“北京统一台湾不需要动用武力，就有能力实现其国家目标，我没有看到任何的威胁 ”**——实际上这就是认可台湾应该被中共掠夺，武力只是一个选项。
 
-要建一个什么啊
-Qué es lo que vas a construir
+**“中国的治国哲学不崇尚军事威胁 ”**——表面上普京好像是在美化中国的历史性格和降低中共的军事威胁感。实则是在帮中共强调，它们可以用诡道同样能谋取台湾，也可以运用在世界上的任何地方。
 
-我说不告诉你
-Le dije que no te voy a decir
+**“只要增强经济潜力，中国就有能力实现其国家目标，我没有看到任何的威胁”**——实则这是在强调一种“强权政治思维逻辑”，也就是只要一个国家或政权相对强大，就可以顺理成章的进行对外侵略。
 
-不会告诉任何人
-No se dirá a nadie
+**“就南海而言，的确存在一些对立和矛盾的利益，而俄国的立场是，我们要给域内所有国家提供一个机会，在不受域外国家的干扰下，根据国际法的基本规范进行适当的对话”**——有些媒体居然把这段话解读为普京对南海问题持中立态度，这绝对是无知，或是为虎作伥的心态。既然提到应该依据国际法，既然已经不存在对话的可能，就应该严格依据和遵守海牙国际法庭的裁决。裁决的区域不属于中共国领土，那中共国就不是属于“域内国家”的范畴。而不应该用域内国家这样去模糊概念和焦点。
 
-你只有在6个月以后, 你才知道七哥要建的是什么
-Solamente después de seis meses sabrás qué lo es que construiré
+**“这应该是一个谈判过程，也是我们解决任何分歧的应有方法。我认为，这方面存在（谈判）可能性，但到目前为止，仍未被善用”**——本质上台海问题就不应该成为一个问题，中共国和中华民国在台湾地域上，不应该有任何分歧。甚至中共没有任何资格提台湾问题和分歧。所有的台海问题都是中共的无耻和恃强凌弱造成的结果。
 
-你才知道新中国联邦是什么
-Sabrás qué es el Nuevo Estado Federal de China
+从以上普京的表态，可以认知到他的“真实立场”。他以巧妙的语言技巧，传达“俄罗斯帝国的帝国主义逻辑”，以及俄罗斯和中共国暂时的利益同盟关系。
 
-就像喜币
-Así como la moneda de Himalaya
+同时，借这种充斥暗示与威胁意味的“帝国主义逻辑”，无疑也在对在俄罗斯历史上掠夺它国领土的丑陋行径进行正当化和美化。说得再赤裸一点，就是不要动我盟友的利益关切，也不要对我和俄罗斯在历史上和以后进行的暴力领土扩再张说三道四，都给我闭嘴！而这就是俄罗斯一贯的强盗嘴脸。
 
-昨天那个投资者说
-Ayer el inversor dijo
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-Miles
-Miles
-我第一次跟你因为喜币吵架
-Primera vez peleé contigo por la moneda de Himilaya
+*发布：翼族*
 
-到最后我哀情你, 到现在我成为股东
-Al final te lloré, y ahora soy accionista
-
-现在我想知道喜币到底会到什么(程度)
-Ahora quiero saber qué tanto puede llegar la moneda de Himalaya
-
-我不会告诉你
-No te lo diré
-
-当你们了解七哥这十几年前的布局
-Cuando ustedes entiendan el plan que he estado realizando por más de diez años
-
-你看看未来的干细胞, 星空Wifi
-Mira las células madre del futuro, el Starry Internet
-
-你看看整个世界金融系统, 再看医疗系统
-Mire el sistema financiero mundial y luego miras al sistema médico
-
-还有一个大家要记住的, 高科技
-Y otra cosa que deben recordar, la alta tecnología
-
-所有的新科技
-Todas las nuevas tecnologías
-
-现在说新科技, 我要给你们爆两句
-Ahora que estoy hablando de la nueva tecnología, debo reverlarles un poco
-
-今天你们得晕
-Hoy todos ustedes deben estar mareados por eso
-
-都得晕
-Deben estar mareados
-
-新的科技对通讯的提升
-La nueva tecnología mejora la comunicación
-
-对医疗的提升
-Mejora del tratamiento médico
-
-对交通方式的提升
-En la forma de transporte
-
-兄弟姊妹们
-Hermanos y hermanas
-
-我现在跟你说完
-Ahora que termine de decirlo
-
-你一定把我订为神经病
-Seguramente dirás que estoy loco
-
-因为七哥投资了, 七哥知道意味什么
-Porque yo invertí, así que sé lo que significa esto
-
-就像我说那个生物芯片一样
-Como dije sobre el biochip
-
-生物芯片就这么大一块
-El biochip es así de grande
-
-能把全地球的信息装进去
-Puede ingresar todas las informaciones del mundo
-
-你很快会看到手机、电脑、通信、医疗、一点儿不夸张
-Pronto verás en los teléfonos móviles, computadoras, medios de comunicación, tratamiento médico, no estoy exagerando
-
-人类未来有钱有条件的活个130岁、150岁
-El futuro de la humanidad tendrá condiciones para vivir hasta130 años, 150 años
-
-跟玩兒似的, 你在活着之前
-Así como jugando, antes de estar vivo
-
-基本没有疾病
-Básicamente, no hay enfermedad
-
-基本不可能有疾病来骚扰你
-No hay enfermedades que te molestarán
-
-基本上不可能
-Básicamente no habrá
-
-在非洲草原上看到一个能老死的狮王的话
-Si ves a un rey león que muere por estar viejo en las praderas de África
-
-那一定是有原因的
-Eso debe ser por alguna razón
-
-那是有原因的
-Por algún motivo
-
-咱慢慢来
-Vamos poco a poco
-
-新中国联邦未来将拥有世界上最高的各种生物、生命
-En el futuro, el Nuevo Estado Federal de China tendrá la mayor variedad de criaturas y vidas del mundo
-
-太空、交通、能源、科技
-En el espacio, transporte, energía, tecnología
-
-一定是咱么的投资者
-Seguramente son de nuestros inversores
-
-我想告诉大家, 再说一遍, 所有老椅子投资者, G-club
-Les quiero decir de nuevo, todas los inversores de sillas antiguas, G-club
-都是5%的盖特, 5%的喜联储, 10%的G-club
-Tienen el 5% de GETRR, 5% del banco central de Himalaya, 10% de G-club
-
-还有一个大家看到的, 10%新的金融机构, 还会更多
-Y otro que ustedes vieron, el 10% de instituciones financieras y más
-
-你们会看到一系列的公布
-Ustedes verán una serie de anuncio
-
-* * *
-
-日期: 10/18/2021
-原视频标题：郭先生10年前的布局，未来新科技无限, G系列前景无限
-La planificación del Señor Guo desde hace diez años; la tecnología nueva del futuro es infinita y las perspectivas son ilimitadas para la serie G
-原视频日期: 10/12/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1447865670356516874?s=24](https://twitter.com/se1y7cblljselva/status/1447865670356516874?s=24)
-任务编号：KC181（2529）
-视频时间段：0:00-2:18
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场-小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

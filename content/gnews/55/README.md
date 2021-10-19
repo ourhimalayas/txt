@@ -2,40 +2,34 @@
 ---
 
 
-## 国内的企业家们醒醒
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1601734/)
+## 纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1534601/)
 
-By：银河勇气星｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-CN.jpg)
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021082520271943-2.jpg)马云 图片来源：网路
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
 
-七哥直播里说马云怎么被抓的。当时蚂蚁金服要上市，说好了先在香港上市，然后转天就回去上海再敲一次钟。那时候孙力军撑不住了交代了马云背后，江曾孟王，马明哲，美国是谁代持，吴征又怎么帮的孙力军孟建柱弄钱，以及江志诚等。这都把习给吓死了。蚂蚁金服上市前王岐山讲话，说要对市场加强监管，马云也讲话了说市场应该自由发展，反对监管。网警出动了删掉了王岐山的所有的讲话，还把马云的讲话给捧上来了。习的人给马云说，你看我们多支持你，组织上是希望你成功的，只是我们觉得你应该先来上海，马云一兴奋，就上了回去上海的飞机，飞机一起飞军机就跟上了，自此以后马云就消失了挺久，蚂蚁金服上市事宜搁置。
-
-听完这段真是，好气又好笑。笑的是，按道理说马云是那么老大一个企业家，居然就相信了这种谎话，让回去就回去了。气的是，马云这个阶层的企业家，都是世界秘密邪恶组织光明会的会员了，还能够乖乖束手就擒，那还有什么人能够逃脱共产党的绞肉机的？所以几乎就在同样那么几天，董文标，柳传志，马明哲，史玉柱，那些叫得上名字的这些大领导大私人企业家，全部都被抓了。称为十月红色屠杀。奇怪的是这些名头这么大，能力这么大的人，被抓了以后全部束手就擒。俗话说狡兔三窟，起码在被抓之前是可以有预判的吧。孙力军被抓是2020年419，为了纪念七哥的419断播事件，从419到10月份了，半年过去了，这些个私人企业家难道一个都不知道料理一下自己的后事吗？起码孙力军被抓起来了就应该有所警觉的吧，孙力军知道太多太多了，共产党那种拷问方法，谁知道他哪一刻会把谁供出来？
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-83.jpg)图片：骄子
-
-记得七哥之前讲过一个他的朋友，有大船，有飞机，在某国过着非常体面的生活。就这么样的一个人，就在自家船上，碰到了中共国来办案的民警，非常礼貌地告诉他，你被捕了，谁让你把恒大的股票全套现了？你现在可以大喊大叫还可以报警，但是请你小心你国内的家人的安危。他的船作为他的私有财产，任何人不得踏入他的船上，但是中共国的民警不请自上，就那样上了他的船，还要把他逮捕回去，等待他的还有他的财产，全部都得拿回去。这个人其实比起国内那些个董文标，柳传志来说，还算是聪明的，起码肉身跑出了中共国，但是你跑出来你能够保护自己吗？能够保护家人吗？能够保护自己的财产吗？中共国可以在除了美国和日本的任何地方随意“执法”（黑社会抓捕行动），这个人为什么不来美国啊？是的，有的人不敢来美国，美国的税吓死人。
-
-如果不来美国不来日本，那一定有些地方是安全的吧。是的，有的，天无绝人之路。七哥在某次直播中谈到，在某国，一个跟踪战友很久很久的特务，在街上就被人逮住了，他还要大喊我是中共国大使馆的人云云，人家一把就捂住了他的嘴巴，在民主国家，捂住你的嘴巴不让你说话只有一种情况，你这个人对人家的国家安全造成了伤害。所以，就这个特务，他跟踪我们的战友，他就是在危害别人的国家安全，就这么严重。而这个初衷，仅仅是为了保护战友，因为战友的贡献是在保护这个国家的法制和安全。这个事情从一些侧面反映了确实非常强大的力量，不了解新中国联邦的力量，可以从这个事件里窥探一些。如果那个私人企业家，早早加入爆料革命了，结局不会是那样的。
-
-我们常说一个人的自信可以让这个人更容易成功。但是有些自信会把人害死的呀。像马云这样，他看到把王岐山的讲话给撤了，把自己的演讲给留下来了，自信爆棚，马上就被人家牵着鼻子走，不抓你抓谁？那些被抓的企业家，包括江志诚，哪个不是用错了自信，哪个不是一直自信到自己有强大的力量一定会赢，甚至觉得被抓这件事不会发生在自己身上，永远不考虑后事，不抓你抓谁？你这么自信，再自信你不能比习神自信，你比他还自信，你甚至自信到要杀掉习神，不抓你抓谁？他们这种盲目自信都仅仅是对自己本身能力的错误预判。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/006mowZngy1gj2y6adv6qg308c08sh9a.gif)图片来源：网路
-
-自信真得不是什么坏事情，你把他分开看。自是自，信是信，自信就是拥有自己拥有信仰。信仰是上天的，放在当下来说，信仰一定会让你找到新中国联邦的力量。如果不想逃到异国他乡都被抓了，还被逼着还回去自己的巨额财产，只有这一条路，七哥和爆料革命新中国联邦，不仅是庇佑自身安全，更能够给他人提供保护，甚至直接会有上天的力量帮助你，只要你真心灭共。
-
-
-
-* * *
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-001-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-002-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-003-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-004-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-005-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-006-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-007-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-008-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-009-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-010-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-011-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-012-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-013-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-014-scaled.jpg)
 
 
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-（文章内容仅代表作者观点）
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
 
-作者：骄子
-审核：兵嫂、天雷滚滚
-发布：骄子
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/欢迎战友回家-2.jpeg)
++4
