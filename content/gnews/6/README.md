@@ -2,19 +2,16 @@
 ---
 
 
-## 比利时一半的患者接种了疫苗
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1603665/)
+## 瑞士卫兵抨击梵蒂冈强制疫苗措施是“可耻的，不人道的”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1603750/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10191.jpg)图片来自网路
-比利时负责健康监测的机构 Sciensano的最新报告发现：来自冠状(中共)病毒的感染已经恢复增长，随之而来的是住院治疗。但令人担忧的是，大约一半的新住院病例涉及已经接种了疫苗的人。
+#### 撰稿：沙子最怕你不理它
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-50.jpg)图片来源：网络截图
+据 LifeSiteNews 10月18日报道，一名瑞士警卫队成员皮埃尓•安德烈•乌德西（Pierre-Andre Udressy）在拒绝注射含有胎儿细胞的中共病毒疫苗后失业，这名队员于10月8日给梵蒂冈官员写了一封公开信，抨击他们的反天主教强制疫苗措施。
 
-病毒学家承认：“随着时间的推移，我们注意到越来越多的人患有感冒和流感疾病，也许疫苗对轻度感染不再有效。另一方面，由于秋季天气和放松措施，病毒的传播范围更大”。
+目前，所有可用的中共病毒疫苗在开发测试过程中都使用从流产胎儿中收集的细胞组织。来自辉瑞的爆料人梅丽莎•斯蒂克勒（Melissa Strickler）称为了更容易地让宗教人士接受注射，真相被制药公司的高管隐瞒和模糊化。
 
-根据一些专家的说法，应该推动政府向全体人民发出第三次疫苗接种的呼吁，但目前该国卫生部长弗兰克·范登布鲁克排除了这种可能性，他说：“我没有拒绝第三剂，但目前我们没有令人信服的数据使我们得出结论是否有必要对民众进行第三剂疫苗的接种”。
+乌德西是三名在梵蒂冈城拒绝注射后失业并不得不返回瑞士的瑞士警卫之一，他称梵蒂冈的强制疫苗措施是“可耻的”、“不人道的”。作为一名忠实的天主教徒，他在道义上有义务避免与堕胎有联系的医疗项目，如注射实验性中共病毒。在他看来，梵蒂冈不仅受到（政府）胁迫，而且背叛了忠实的天主教徒和教会的官方教义。乌德西还引用了大教宗约翰•保罗二世（John Paul II）的第*74*期宣讲福音的原话：“医生和家中的父亲有义务求助于替代疫苗（如果有的话），向政治当局和卫生系统施加压力，以便提供其他没有道德问题的疫苗。” 乌德西并不是唯一一个反对中共病毒疫苗的天主教徒。卡罗尔•玛丽亚•维嘉诺(Carlo Maria Vigano）大主教和亚他那休•施耐德（Athanasius Schneider）主教等高级牧师也表示反对含有胎儿细胞的疫苗。
 
-免责申明：本文只代表译者观点，与Gnews无关
-
-原文链接：[https://europa.today.it/attualita/ricoveri-vaccinati-terza-dose.html#\_ga=2.243006209.2037763293.1634583631-145009575.1615972944](https://europa.today.it/attualita/ricoveri-vaccinati-terza-dose.html#_ga=2.243006209.2037763293.1634583631-145009575.1615972944)
-
-责任编辑/发布：意大利达芬奇农场   萧亦
+新闻来源：[Swiss Guard calls Vatican vax mandate ‘scandalous, inhumane’ after being ousted over jab refusal](https://www.lifesitenews.com/news/former-vatican-swiss-guard-slams-church-officials-over-vaccine-mandates/)

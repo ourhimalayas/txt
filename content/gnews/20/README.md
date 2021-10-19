@@ -2,21 +2,45 @@
 ---
 
 
-## 从欧金中被抓捕到被自杀，中共莆田警方已经陷入塔西陀陷阱
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1603488/)
+## 40多个国家在推广新冠毒疫苗后，相关死亡人数激增
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1603633/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-86.jpg)
-10月10日，福建莆田市秀屿区平海镇发生2死3伤的重大刑事案件，犯罪嫌疑人欧金中出逃。随后，莆田警方公布悬赏通告，活捉2万，交尸5万。
+栏目记者/责任编辑：AsG諾雅
 
-10月18日，参与追捕的公安民警和当地村干部表示，欧金中当天下午已被抓捕。短短一个小时不到，剧情反转，莆田市公安局长秀屿分局发布警情通报：18日15时许，在公安武警围捕下，犯罪嫌疑人欧金中在平海镇上林村附近一山洞拒捕并畏罪自杀，经送医抢救无效死亡。
 
-时间间隔仅仅一个小时不到，比起在欧金中生前维权所有媒体不闻不问，这一次警方反应可谓神速。但凡事发之前有一个主管部门受理欧事务，欧金中也不会走此绝路，民谚说蝼蚁尚且偷生，何况他上有80老母，下有尚未成年的儿女。
 
-欧金中事件悲剧完全是中共独裁体制的牺牲品，因为中共国没有法治民主自由，普通公民投诉无门，所有部门都是互相推诿，敷衍塞责。可以想象，只要中共不灭，此类事件还会一再发生，而且永远不会有真相。普通公民也不会再相信中共的虚假宣传，中共已经陷入塔西陀陷阱，等待它的只有灭亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-(文章仅代表作者本人观点，与GNEWS无关)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+英国【The Expose】10月18日报道，定量数据分析师乔尔-斯马利发布的一段视频显示，有40多个国家在推广新冠毒疫苗接种后，相关死亡的人数却比接种前大幅增加。该视频的数据来源于约翰-霍普金斯大学冠状病毒资源中心。
+
+英国的首批新冠毒疫苗于2020年12月8日开始接种，当时相关死亡人数已经开始下降。随着新冠毒疫苗的推广，相关死亡人数又开始迅速爬升。
+
+该视频完全验证了爆料革命的判断，新冠疫苗就是杀人的生物武器，它的推出与健康无关，目的除了杀人就是黑暗势力企图控制世界。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-9.jpg)
+参考链接：
+[Data Analyst proves Covid-19 Deaths increased dramatically AFTER the Vaccine roll-out in over 40 countries](https://theexpose.uk/2021/10/18/covid-19-deaths-increased-dramatically-after-the-vaccine-roll-out-in-over-40-countries/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Q大哥
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

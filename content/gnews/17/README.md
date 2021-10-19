@@ -2,20 +2,19 @@
 ---
 
 
-## 雅典娜时报-第086期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1603520/)
+## 比利时一半的患者接种了疫苗
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1603665/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10191.jpg)图片来自网路
+比利时负责健康监测的机构 Sciensano的最新报告发现：来自冠状(中共)病毒的感染已经恢复增长，随之而来的是住院治疗。但令人担忧的是，大约一半的新住院病例涉及已经接种了疫苗的人。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/10/191.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/19-3.png)
-（文章内容仅代表作者个人观点，与GNEWS无关）
+病毒学家承认：“随着时间的推移，我们注意到越来越多的人患有感冒和流感疾病，也许疫苗对轻度感染不再有效。另一方面，由于秋季天气和放松措施，病毒的传播范围更大”。
 
-***发布：小红帽***
+根据一些专家的说法，应该推动政府向全体人民发出第三次疫苗接种的呼吁，但目前该国卫生部长弗兰克·范登布鲁克排除了这种可能性，他说：“我没有拒绝第三剂，但目前我们没有令人信服的数据使我们得出结论是否有必要对民众进行第三剂疫苗的接种”。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+免责申明：本文只代表译者观点，与Gnews无关
+
+原文链接：[https://europa.today.it/attualita/ricoveri-vaccinati-terza-dose.html#\_ga=2.243006209.2037763293.1634583631-145009575.1615972944](https://europa.today.it/attualita/ricoveri-vaccinati-terza-dose.html#_ga=2.243006209.2037763293.1634583631-145009575.1615972944)
+
+责任编辑/发布：意大利达芬奇农场   萧亦

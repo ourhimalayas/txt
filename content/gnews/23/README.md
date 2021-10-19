@@ -2,21 +2,50 @@
 ---
 
 
-## 约3200名芝加哥警察拒绝上报疫苗接种状况
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1603472/)
+## 美国传奇科林-鲍威尔完全接种疫苗后去世
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1603612/)
 
-韩国首尔天池农场——zzballack         上传——追着曙光跑
+栏目记者: Andy5
+责任编辑：AsG諾雅
 
-据《布雷特巴特新闻网》（Breitbart News）10月18日报道，芝加哥警察兄弟会（Chicago Fraternal Order of Police）主席约翰‧卡坦扎拉（John Catanzara）估计，大约有3200名警察拒绝遵从该市的报告疫苗接种状况的命令。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/WhatsApp-Image-2021-10-19-at-13.08.58.jpeg)图片来源：网络
-根据芝加哥市长洛丽‧莱特富特（Lori Lightfoot）的规定，警察必须在10月15日之前上报他们的疫苗接种状况，否则将被休无薪假。未接种中共病毒疫苗的警察如果每半周接受一次测试，就可以继续工作。
 
-卡坦扎拉告诉媒体说，这项强制令是非法的，这些规则应该是无效的，因为市政府官员没有与工会进行谈判。“我们的非官方数字估计有超过3200名警察，约占整个部门的三分之一没有接种疫苗。如果他们拒绝报告其疫苗状况，将被立即停薪。市政府必须与我们谈判，但它却拒绝这样做。”
 
-莱特福特10月15日指示她的政府对该市警察工会提出强制救济申诉，指责其在卡坦扎拉敦促警官违抗强制令后“参与、支持和鼓励停工或罢工。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-莱特福特在一份声明中说：“作为芝加哥市长，当阴谋论者的言论威胁到芝加哥居民和第一响应者的健康和安全时，我不能也不会袖手旁观。卡坦扎拉主席一次又一次地故意误导我们的警察，对政策的要求撒谎，并谎称如果警察不服从并拒绝遵守市政府和部门的指令或命令，将不会有任何影响。”
 
-芝加哥市议员安东尼‧纳波利塔诺（Anthony Napolitano）最近与其他五位当地议员一道敦促莱特福特放弃这项强制令，称其侵犯了我们的宪法权利。同时警告说，警察的潜在短缺可能会使芝加哥的街道更加危险。“如果更多的警察因此被停职，我们的街道就会完全失去控制。你将会看到无人值守的警车和街头混战。”
 
-[原新闻链接](https://www.breitbart.com/health/2021/10/18/union-president-estimates-3200-chicago-police-defying-vaccine-reporting-rules/)
+10月18日星期一，鲍威尔去世，享年84岁。他的家人在其脸书页面的声明上写道：”在完全接种了新冠疫苗后，美国前国务卿和参谋长联席会议主席科林-L-鲍威尔将军今天上午去世。我们要感谢沃尔特-里德国家医疗中心的医务人员的关怀治疗。我们失去了一位杰出的、充满爱心的丈夫、父亲、祖父和一位伟大的美国人。”
+
+据报道，鲍威尔被诊断出患有多发性骨髓瘤这种癌症，他的去世与86岁的棒球传奇人物汉克-亚伦的去世有相似之处，后者在1月份打了一针新冠疫苗后仅几周就去世了，尽管医院声称亚伦的死因与疫苗无关。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-103.jpg)
+科林-鲍威尔于1937年4月5日出生在纽约市，由牙买加移民父母抚养长大。从参加越南战争到成为四星上将，到1987年在里根政府出任史上第一位黑人国家安全顾问，1989年成为老布什总统的参谋长联席会议主席，并在克林顿政府连任同一职位，2000年在伊拉克战争期间在小布什政府中担任第一位黑人国务卿，他的一生充满传奇色彩，
+
+鲍威尔是第一个享有如此盛誉而死于所谓“突破性病例”的公众人物，他的死亡将使更多人看到新冠毒针的危害，从而更加坚定立场，拒绝所谓新冠疫苗。
+
+参考链接：
+1. [Colin Powell, Fully Vaccinated, Dies From COVID-19 Complications](https://marketrealist.com/p/was-colin-powell-vaccinated-covid/)
+2. [Colin Powell dead at 84 from COVID-19 complications](https://thehill.com/policy/defense/577152-colin-powell-dies-at-age-of-84)
+3. [“Fully Vaccinated” Colin Powell Dies From Covid Complications](https://www.infowars.com/posts/fully-vaccinated-colin-powell-dies-from-covid-complication/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：鬼五
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
