@@ -2,159 +2,35 @@
 ---
 
 
-## 为避经济危机美国的浅薄与疯狂
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602972/)
+## 脸书迫于压力未继续禁止澳洲联合党页面
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1603046/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/331-azahh-pwlkr.jpg)
-[https://gtv.org/video/id=616d93d8d2e2b8174876c1fa](https://gtv.org/video/id=616d93d8d2e2b8174876c1fa)
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ab8746fbe28176bf785c7428945b35df.jpg)图片来源：Herald Sun
+**整理报道：**翼族
 
-**郭文贵**
-**Miles Guo**
+今年早些时候，反对强制接种COVID-19疫苗的澳大利亚国会议员克雷格·凯利（Craig Kelly)因宣传羟氯喹和伊维菌素以及质疑口罩有效性而被脸书（Facebook）暂停数周，随后Facebook在4月份将其脸书页面永久关闭。
 
-房地产这个雷是一定要炸死人的
-La mina inmobiliaria seguro matará gente
+但是迫于来自各方的政治压力，Facebook未继续封锁凯利议员领导的澳大利亚联合党（UAP）的页面。
 
-只是谁的尸体
-Sobre el cadáver de quién
+上个月，工党的蒂姆·沃茨(Tim Watts)要求社交媒体巨头Facebook解释，为何凯利议员领导的UAP的政治广告仍然继续在Facebook平台上广泛传播。沃茨是现任澳大利亚网络安全助理部长。
 
-现在美国佬疯狂在哪里
-Dónde está la locura de los jefes estadounidenses
+瓦茨（Watts）9月份向Facebook投诉，UAP已在Facebook和谷歌上发起了一项新活动，一个月内花费广告费用超过50万澳元。瓦茨认为这种行为相当于“逃避执法”。
 
-跟中共的勾兑当中
-Dentro de la vinculación con el PCCh
+Facebook澳大利亚和新西兰政策主管米娅·戈尔里克（Mia Garlick）回应称，UAP并未违反其社区标准，尽管广告中载有凯利议员的重要内容，Facebook也“删除了似乎是为了逃避执法而创建的其它一些帐户”，但并没有扩展到UAP的账户，因为该页面“目前没有”违反社区标准。
 
-你继续买我国债
-Tu sigues comprándome la deuda nacional
+凯利议员周一告诉澳大利亚《卫报》，他即将对Facebook提起诽谤和违约的法律诉讼。凯利称，Facebook说他因传播错误信息而被禁止是对他的诽谤。
 
-多么多么的浅薄
-Es tan pero tan superficial
+对于瓦茨向Facebook的投诉，凯利说：“澳大利亚议会的另一名成员试图宣布我为‘非正常人类’，这令人非常失望。瓦茨先生的行为是对言论自由的侮辱”。
 
-你真以为美国人就很伟大是吗
-Tu de verdad crees que los estadounidenses son grandiosos?
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-你觉得他们去干这种事
-Tu crees que ellos al hacer este tipo de cosas?
+**参考链接：**[Facebook says Craig Kelly’s content on United Australia party page OK after banning MP](https://www.theguardian.com/australia-news/2021/oct/19/facebook-says-craig-kellys-content-on-united-australia-party-page-ok-after-banning-mp?utm_source=newsshowcase&amp;utm_medium=gnews&amp;utm_campaign=CDAQlYixxM6EgpgYGPnOnaX4hbTPlgEqEAgAKgcICjDU66ILMJf2ugM&amp;utm_content=rundown)
 
-你觉得他有视野吗
-Implica que ellos tienen visión?
+*编辑/发布：翼族*
 
-我问一个美国朋友
-Yo le pregunte a un amigo de EE. UU
-
-你觉得共产党现在给你撑个半年一年
-Tu crees que ahorita el PCCh te soporta por medio o un año
-
-让它慢点倒 它永远不倒了吗
-Para que no se caiga y no caerá nunca?
-
-你继续印钞票就能解决问题吗
-Puedes resolver el problema imprimiendo billetes?
-
-就解决你的流动性
-Podrá solventar tu fluidez
-
-和你国债的整个的天花板的问题吗
-Con tu deuda nacional ha llegado al límite máximo de problemas
-
-这个太不要脸了
-Esto es demasiado sin vergüenza
-
-这就是中国人被奴役你知道中国人真的是很可怜
-Esto es el por qué los chinos son esclavizados, de verdad es muy lamentable
-
-真的说白了
-En pocas palabras
-
-人家喊两嗓子叫几声
-Esa gente te llama o alza la voz
-
-就像对香港 新疆一样
-Así como hicieron con Hong Kong y Sinkiang
-
-都是拿来做政治筹码
-Lo usan como ficha política
-
-你看看这个美国人
-Mira los estadounidenses
-
-现在这个时候
-Ahora en estos momentos
-
-就为了自己明年中期大选经济别倒
-Solo para que no quiebre la economía en las Elecciones de medio mandato del año que viene
-
-台湾你就打了吧
-Ataca a Taiwán si deseas
-
-弄回去吧
-Llévatelo
-
-经济这块 地产不要倒了
-Pero la parte de la economía e inmobiliaria no se puede caer
-
-继续给我们撑着
-Sigue apoyándolo por nosotros
-
-不要烂账
-No hagas cuentas pasadas
-
-而且竟有人私下承诺
-Además, hubo alguien que prometió por privado
-
-我们可以把这些基金让他们给你延期
-De poder extender la fecha de estos fondos
-
-也就是在西方从来没发生的
-Quiere decir hacer como si no pasó nada en el occidente
-
-也就是说 借新还旧
-En pocas palabras pedir préstamo nuevo para reembolsar lo viejo
-
-这就是西方经济方面的
-Esto es en la parte económica del occidente
-
-这种疯狂
-Este tipo de locura
-
-就为了短期的政治利益
-Sólo por los beneficios políticos a corto plazo
-
-宁可借新还旧
-Prefieren un préstamo nuevo y reembolsar lo viejo
-
-花样年、合生创展、富力
-Fantasía Holdings, Hopson Development, R&F Properties
-
-李思廉都已经找着基金了
-Li Silian ya consiguió fondos
-
-你不让我借新还旧老子就要死给你看
-Si no me dejas pedir préstamo nuevo para reembolsar lo viejo entonces me suicidaré
-
-你像那融创
-Así como Sunac
-
-你不让（我借新还旧）我就死给你看
-Si no me dejas (pedir préstamo lo nuevo para reembolsar lo viejo) me suicido
-
-———————————————————
-
-**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1447866395929178124?s=24](https://twitter.com/se1y7cblljselva/status/1447866395929178124?s=24)
-
-日期: 10/17/2021
-原视频标题：
-La superficialidad y la locura de Estados Unidos para evitar la crisis económica
-原视频日期: 10/12/2021
-任务编号：KC180（2528）
-视频时间段：0:00-1:52
-
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

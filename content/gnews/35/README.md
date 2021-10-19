@@ -2,41 +2,34 @@
 ---
 
 
-## 文件显示大流行期间阿伯塔省 ICU 的容量下降
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1602898/)
+## 以太坊月入超7亿，新生代币一年内市值翻10番
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1602958/)
 
-作者：Sheila Gunn Reid
+作者：文一
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+【The Daily Hodl】网站10月17日报道，Token Terminal的数据显示，以太坊在过去30天的合约收入达到了7.77亿美元，远远超过了Axie Infinity（1.836亿美元）、不可伪造代币（NFT）市场OpenSea（7010万美元）、去中心化保证金交易平台dYdX（4990万美元）和数字支付系统Filecoin（1670万美元）。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Article-Image_ICU-beds-in-AB_Oct-18-e1634599686734.jpg)
+另据【Business Insider】消息，鲜为人知的新生代币NuCypher上周五单日暴涨1134%，成为第79大加密货币。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-16.jpg)
+NuCypher的白皮书于2017年首次发布，2020年10月15日开始交易，开盘价为0.23美元，市场估值为240万美元。NuCypher建立在以太坊平台上，目前有6.875亿枚在流通，最大供应量为39亿枚。
 
-独家文件显示，与 2020 年 3 月宣布开始时相比，阿尔伯塔省卫生保健系统在新冠大流行一年后的 ICU 床位更少了。
+短短一年后，根据CoinMarketCap的数据，NuCypher的市场估值从约2亿美元飙升至超过20亿美元，单日成交量爆增近200倍，单价达到3.58美元高点。
 
-访问文件管理器提供给反叛新聞的政府文件显示，在前卫生部长泰勒·山德罗的领导下，重症监护病床数量减少了。
+目前市场还无法确定该代币需求急剧上升的原因，只是这次暴涨是在比特币继续其10月的涨势并触及60,000美元时发生。
 
-2020 年 3 月大流行前，ICU 容量数字表明，全省共有 186 张 ICU 病床，每 100,000 名阿伯塔人有 4.2 张病床。
+（本文仅代表作者观点）
 
-2021 年，ICU 床位数量显示全省有 173 张床位，每 100,000 名艾伯塔人有 3.8 张床位。
+参考链接：[以太坊月入超7亿，新生代币一年内市值翻10番](https://dailyhodl.com/2021/10/17/ethereum-towers-above-axie-infinity-and-altcoin-projects-earning-777000000-in-revenue-in-just-one-month/)
 
-2019 年 3 月的数据显示，全省有 207 张可用的 ICU 床位；2018 年的数字反映了相同的床位数量，再次为 207。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
-同一份文件表明，在所谓的第二波新冠浪潮中，阿伯塔省能够在 2021 年 1 月将 ICU 容量增加到 291 张床位，而阿伯塔省同时有 130 名 ICU 患者。 在第三波中，到 2021 年 5 月 24 日，阿伯塔省的 ICU 容量达到了 299 张床位的峰值，而 161 名患者占用了这些 ICU 床位。
+新闻访谈终审：Q大哥
+编辑/校对/审核：Hetangyuese
 
-來源：[https://www.rebelnews.com/docs\_show\_alberta\_icu\_capacity\_declined\_during\_pandemic](https://www.rebelnews.com/docs_show_alberta_icu_capacity_declined_during_pandemic)
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
