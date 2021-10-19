@@ -2,37 +2,159 @@
 ---
 
 
-## 国家动物园对灵长类动物接种中共病毒疫苗
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1602919/)
+## 为避经济危机美国的浅薄与疯狂
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602972/)
 
-据《福克斯新闻》布雷克.杜马斯 （Breck Dumas）2021年10约16日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/apes_adobespark.png)猿在围栏内徘徊。2018年1月4日华盛顿DC国家动物园。（摄影/来源：安德鲁·利希滕斯坦/盖蒂图片社）
-国家动物园声称将会尽快为更多种类的动物接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/331-azahh-pwlkr.jpg)
+[https://gtv.org/video/id=616d93d8d2e2b8174876c1fa](https://gtv.org/video/id=616d93d8d2e2b8174876c1fa)
 
-史密森尼国家动物园和保护生物研究所，本周为其园内几只灵长类动物接种了中共病毒疫苗，并声称这只是该机构为其所在地的动物接种中共病毒疫苗的开始。
+**郭文贵**
+**Miles Guo**
 
-动物园在周五的新闻稿中宣布，工作人员在周三对十一只动物进行了第一轮的两剂注射。包括：七只猩猩、一只西部低地大猩猩、一只白耳猴和两只帝王狨猴。
+房地产这个雷是一定要炸死人的
+La mina inmobiliaria seguro matará gente
 
-硕腾（Zoetis）是总部位于密歇根州的兽医制药公司。该公司在发现中共国的一只狗在大流行早期感染了中共病毒后专门为动物开发了这款疫苗。
+只是谁的尸体
+Sobre el cadáver de quién
 
-硕腾在七月份发布的一份新闻稿中表示，其开发的这款针对中共病毒的注射疫苗已获得“美国农业部逐案授权”，可用于一系列动物园动物。并表示“宠物或牲畜目前不需要注射该疫苗。”
+现在美国佬疯狂在哪里
+Dónde está la locura de los jefes estadounidenses
 
-国家动物园还提供了在上个月中共病毒测试为“推定阳性”的狮子和老虎的最新状态。动物园称这些大型猫科动物“恢复良好“并且”行为、饮食和饮水正常。“
+跟中共的勾兑当中
+Dentro de la vinculación con el PCCh
 
-动物园解释说“在接下来的几个月里，动物园将和位于弗吉尼亚州，皇家前线的史密森尼保护生物研究所，继续对选定的易感物种进行疫苗接种，”并补充到“狮子和老虎将不会在感染病毒后的90内接种疫苗。”
+你继续买我国债
+Tu sigues comprándome la deuda nacional
 
-国家动物园没有立即回应福克斯新闻关于疫苗接种的问题。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tg.jpg)华盛顿DC的史密森尼国家动物园中的老虎。（摄影/来源：卡伦·布莱尔/法新社）
-美国境内越来越多的动物园，正在为各个物种的动物接种硕腾研制的动物中共病毒疫苗。
+多么多么的浅薄
+Es tan pero tan superficial
 
-据哥伦比亚广播公司新闻报道。丹佛动物园和奥克兰动物园，今年夏天已对园内部分动物进行了注射。丹佛动物园计划像国家动物园那样，为更多的物种进行中共病毒疫苗注射。
+你真以为美国人就很伟大是吗
+Tu de verdad crees que los estadounidenses son grandiosos?
 
-《福克斯35》[报道](https://www.fox35orlando.com/news/zootampa-begins-vaccinating-animals-against-covid-19)，周四开始坦帕动物园也已开始对动物进行疫苗注射。
+你觉得他们去干这种事
+Tu crees que ellos al hacer este tipo de cosas?
 
-“佛罗里达黑豹、臭鼬、水獭和灵长类动物处于接种名单前列，” 福克斯35报道。“坦帕动物园目前已收到足够十九类共九十三只动物接种的中共病毒疫苗。”
+你觉得他有视野吗
+Implica que ellos tienen visión?
 
-【本文仅代表作者个人观点，与Gnews 无关】
+我问一个美国朋友
+Yo le pregunte a un amigo de EE. UU
 
-原文链接：[https://www.foxnews.com/us/national-zoo-vaccinates-primates-against-covid-19](https://www.foxnews.com/us/national-zoo-vaccinates-primates-against-covid-19)
+你觉得共产党现在给你撑个半年一年
+Tu crees que ahorita el PCCh te soporta por medio o un año
 
-翻译：Fila文新心 |校对：烟波浩淼 |编辑&发布：V
+让它慢点倒 它永远不倒了吗
+Para que no se caiga y no caerá nunca?
+
+你继续印钞票就能解决问题吗
+Puedes resolver el problema imprimiendo billetes?
+
+就解决你的流动性
+Podrá solventar tu fluidez
+
+和你国债的整个的天花板的问题吗
+Con tu deuda nacional ha llegado al límite máximo de problemas
+
+这个太不要脸了
+Esto es demasiado sin vergüenza
+
+这就是中国人被奴役你知道中国人真的是很可怜
+Esto es el por qué los chinos son esclavizados, de verdad es muy lamentable
+
+真的说白了
+En pocas palabras
+
+人家喊两嗓子叫几声
+Esa gente te llama o alza la voz
+
+就像对香港 新疆一样
+Así como hicieron con Hong Kong y Sinkiang
+
+都是拿来做政治筹码
+Lo usan como ficha política
+
+你看看这个美国人
+Mira los estadounidenses
+
+现在这个时候
+Ahora en estos momentos
+
+就为了自己明年中期大选经济别倒
+Solo para que no quiebre la economía en las Elecciones de medio mandato del año que viene
+
+台湾你就打了吧
+Ataca a Taiwán si deseas
+
+弄回去吧
+Llévatelo
+
+经济这块 地产不要倒了
+Pero la parte de la economía e inmobiliaria no se puede caer
+
+继续给我们撑着
+Sigue apoyándolo por nosotros
+
+不要烂账
+No hagas cuentas pasadas
+
+而且竟有人私下承诺
+Además, hubo alguien que prometió por privado
+
+我们可以把这些基金让他们给你延期
+De poder extender la fecha de estos fondos
+
+也就是在西方从来没发生的
+Quiere decir hacer como si no pasó nada en el occidente
+
+也就是说 借新还旧
+En pocas palabras pedir préstamo nuevo para reembolsar lo viejo
+
+这就是西方经济方面的
+Esto es en la parte económica del occidente
+
+这种疯狂
+Este tipo de locura
+
+就为了短期的政治利益
+Sólo por los beneficios políticos a corto plazo
+
+宁可借新还旧
+Prefieren un préstamo nuevo y reembolsar lo viejo
+
+花样年、合生创展、富力
+Fantasía Holdings, Hopson Development, R&F Properties
+
+李思廉都已经找着基金了
+Li Silian ya consiguió fondos
+
+你不让我借新还旧老子就要死给你看
+Si no me dejas pedir préstamo nuevo para reembolsar lo viejo entonces me suicidaré
+
+你像那融创
+Así como Sunac
+
+你不让（我借新还旧）我就死给你看
+Si no me dejas (pedir préstamo lo nuevo para reembolsar lo viejo) me suicido
+
+———————————————————
+
+**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1447866395929178124?s=24](https://twitter.com/se1y7cblljselva/status/1447866395929178124?s=24)
+
+日期: 10/17/2021
+原视频标题：
+La superficialidad y la locura de Estados Unidos para evitar la crisis económica
+原视频日期: 10/12/2021
+任务编号：KC180（2528）
+视频时间段：0:00-1:52
+
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

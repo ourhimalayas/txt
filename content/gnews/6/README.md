@@ -2,41 +2,57 @@
 ---
 
 
-## 李嘉诚要把长江集团卖掉
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1602889/)
+## 国会山司法要害部门一半都是律师，都被共产党控制了
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602947/)
 
-**【郭先生直播摘要】2021.10.17 李嘉诚要把长江集团卖掉**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/277-aw0zs-cgvx6.jpg)
+[https://gtv.org/video/id=616d8acbd2e2b8174876bdfd](https://gtv.org/video/id=616d8acbd2e2b8174876bdfd)
 
-他说，李嘉诚要把长江（集团）卖掉
-和(记)黄(埔)
-你们不懂啊
-你知道李嘉诚是几个不卖的
-长江(集团)、和(记)黄(埔)是绝对不卖的
-还有长江中心大楼
-现在已经在卖，为啥要卖，知道不
-你们想知道吗？我告诉你
-他(李嘉诚)的所有的股权代持，百分之六十，是江家的
-给李嘉诚谈话
-你不把钱，在2021年10月份以前，给我如数拿回来
-我连你——李嘉诚，都关到监狱里去
-你俩儿子和你，全都得抓起来
-他(李嘉诚)这个女朋友叫什么？这个名字叫
-叫什么，Cathy（音）的
-叫什么？…，东方广场那个，哎呀！想不起来了
-他(李嘉诚)的女朋友，先抓她
-你能想到吗？东(郝海东)弟，一代超人——李嘉诚，现在要把长江、和黄卖掉
-就是要把后面代持人的钱还过去
-你能想象的到吗？
-同样的是，让李嘉诚看他儿子、看他，当年所有的性、乱性、玩小孩、玩处女的视频
-他说，这是你道德问题，我会你(李嘉诚)超人一夜变成垃圾
-然后，你所有的钱，你怎么弄的
-包括你(李嘉诚)换这些心脏、换肾，怎么换的，这个人死，这个活人摘掉肾的时候，怎么换到你李嘉诚身上去的
-哇塞！这真的够雷人的，兄弟姐妹们
-李嘉诚啊
-老头(李嘉诚)，竟然能接受活人切割器官的肾啊
-他(李嘉诚)怪不得活到九十四啊
-太吓人了
-过去，就是说玩这个阴枣，处女阴道里面泡枣吃，这是孟建柱、王岐山的专利
-这香港富豪、大律师全玩啊
+**郭文贵**
+**Miles Guo**
 
-视频听写：小蜜蜂 |视频制作+字幕：小蜜蜂 |编辑&发布：V
+美国现在这个国家，咱们今天为啥从头要谈法治
+now the United States, why are we talking about the rule of law from the begin-ning?
+
+刚才Rachel做得非常好，我希望继续再深挖下去
+Rachel did a very good job just now, I hope you continue to dig deeper
+
+美国的国会山一半都是律师，美国的司法部门要害部门一半的人都是律师
+Half of Capitol Hill in the United States are lawyers, and half of the people in the key departments of the US judicial department are lawyers
+
+都是被共产党控制了，想控制谁就控制谁
+They are all controlled by the Communist Party, they control whoever they want to control
+
+而且很脆弱，西方的民主法治，当你有信仰的时候，它是极为强大的
+and it’s very fragile, the democracy and rule of law in the West is extremely pow-erful when you have faith
+
+当你没有信仰的时候，它很脆弱
+it is so fragile when you have no faith
+
+欧洲就更不用提了，那些老不要脸的就不用提了
+Hard to even mention Europe, those old shameless politicians
+
+就没见过有骨头的人，
+I have never seen anyone with backbone
+
+———————————————————
+
+**原视频链接**:[https://twitter.com/se1y7cblljselva/status/1449362247776567297?s=24](https://twitter.com/se1y7cblljselva/status/1449362247776567297?s=24)
+
+Date:10/17/2021
+原视频标题:
+Half of the crucial judicial departments on Capitol Hill are lawyers and they are all controlled by the Communist Party
+原视频日期：2021/10/13
+任务编号：KC178（2569）
+视频时间段 : 0:00-0:45
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

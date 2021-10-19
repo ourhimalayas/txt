@@ -2,43 +2,164 @@
 ---
 
 
-## 2021/10/18文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1602729/)
+## 美国文字承诺卖台3个条件，台湾凶多吉少
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602765/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/101806.png)[盖特链接](https://gettr.com/post/pehq2z0831)
-战友告知中共正在通缉潘石屹和张欣夫妇，他的公司30多个高管被抓，将近五、六百人被边控，他当年想遣返七哥，他现在完了，这就是报应。报应这两个字在新中国联邦七哥这几年就可以得到验证。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/azyxo-p2t45.jpg)
+[https://gtv.org/video/id=616d7d7dd2e2b8174876b7bd](https://gtv.org/video/id=616d7d7dd2e2b8174876b7bd)
 
-昨天大直播时说到军方抓某人时，他开枪打死了女儿和母亲，然后自己一枪，共两枪，要更正一下。
+**郭文贵**
+**Miles Guo**
 
-关于菁蒿素，现在没有办法联系上告诉七哥绝密的人，有反应吃菁蒿素派喹片副作用比较多，吃菁蒿素的不多，大家务必小心。
+跟美方的勾兑第一条
+La primera garantía de cooperación con la parte de EE. UU
 
-今天看到盘古的龙头拆掉了，像那个银泰正正方方的。从1999年买地的最早方案就是玉琮，外方内圆，整个是天、地、宇宙。什么叫玉琮？距今5千3百年，良渚文化是玉琮、玉钺、玉壁，5千多年前中国文化已经有三权鼎立，王琮是权力，玉壁是财富的权利，玉钺是军事权利，一财一武中间是皇帝，三权鼎立。玉琮严格来讲是宇宙之宗，是解开地球、星系和太阳系的密码。玉琮有很多种，它代表着上天来人间传达上天的旨意，也就是管理人类的，它的座驾就是龙。什么时候斩龙？传说中玉器，是用玉龙、虎和万物的血来养着它。现在把龙头斩了，变成群龙无首，这就叫玉琮。现在中国群龙无首了，这寓意着共产党完球蛋了。
+再次晒美方在有文字承诺的情况下
+En caso de que EE. UU demuestre la promesa en escrito
 
-当时玉琮没建成是因为“刘志华案”，所以将其改成龙头。当时玉琮诞生之时，中国过去百年来，第一个干掉的中国政府三千个所谓名流的就是那个玉琮。现在没想到王岐山抢走龙头后，斩龙头变玉琮，成为宇宙之宗，万物之首。群龙无首喻意新时代的到来。盘古开天当时就是把糊涂变清楚，辨别天地，认清宇宙。
+这是美方的人跟我说的
+Esto me lo dijo un americano
 
-当时中共内部说要把龙头变鸟头，变鸟头也有好的寓意。但不管怎样变，中轴线左边是鸟巢，西边是水立方，天圆地方落在一起就是玉琮，现在就是龙头把水立方和鸟巢套在一起了，而且整条中轴线对着鸟蛋-龙珠, 万物之首，鸟蛋也像地球宇宙一样，整个宇宙星系围绕转着，现在就像宇宙的宗，开天辟地，建立新天地，共产党玩完了。
+我都不敢相信
+No lo puedo creer
 
-七哥感觉到天地之间，万物有它的规律，什么时候让七哥买那块地，而且那是唯一私人开发商，而且是买农民的地。结果中国奥运会官方指定地点奥运村，然后盘古盖起来，又有“刘志华事件”和“黑蛇白蛇”的经历。
+美方总统是（写）亲笔信的
+El presidente de EE. UU escribió una carta a mano
 
-玉琮的诞生是宇宙开天辟地，这是宇宙的新纪元。礼器玉钺、玉壁，玉琮显世永远是第三个，按照中国的密学叫密堂之码，“堂”指宇宙，“密”是进宇宙的钥匙叫密堂。密堂开始是玉璧，玉钺是军事权力的斧子，玉璧是财富，中国所有的货币包括西方的货币都是外圆内圆，把玉璧放在玉钺中间时，就是今天的喜币。
+亲手交给秦刚的
+Se lo entregó a Qin Gang
 
-在喜币上市之前，玉琮诞生于世，这是要开天辟地。中国的玉壁先出现了，就是喜币。玉钺回头告诉大家，然后玉琮出现了。它早一天出现都不好，就是今天最好。
+首先就3个保证
+Primero son 3 promesas
 
-战友们永远要记住我们人类是有主人的，是有来处的，绝对不是猴子变的。事大了，走着看！
+绝不改变中共的制度
+No cambiar el Sistema del PCCh en lo absoluto
 
-***听写：**乐禧禧*
+不改变中共制度
+No cambiar el Sistema del PCCh
 
-***校对:** 小雨*
+听懂啊 别说推翻了
+Entiendan, no digamos derrocar
 
+就是绝不改变你的制度
+Esto es no cambiar en lo absoluto tu sistema
 
+第二 大家要记住
+Segundo, todos deben recordar
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+现在要挂钩
+Ahorita se van a vincular
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+从过去的脱钩
+Desde la desvinculación de antes
 
+现在要挂钩 逐渐恢复
+Ahora se van a vincular, recuperar gradualmente
 
-编辑：【英国伦敦喜庄园编辑部】
+大家看着
+Todos vean
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+第三 大家要记住
+Tercero, recuerden
+
+恢复中美之间的各层次
+Recuperar cada nivel entre China y Estados Unidos
+
+全面对话
+Diálogo completo
+
+括弧 括弧
+Entre paréntesis
+
+记住 这美方的信 括弧
+Recuerden, esta carta de Estados Unidos entre paréntesis
+
+中美军事高层对话
+Diálogo entre el militar chino-estadounidense de alto rango
+
+正常化
+Lo van a normalizar
+
+大家（如果有）懂的
+Si todos entienden
+
+台湾我相信那些名嘴
+Yo pienso que los presentadores famosos de Taiwán
+
+像什么『年代向钱看』
+Como el programa de Next TV
+
+还有那个什么节目
+Y los otros programas
+
+那些混饭吃的家伙瞎忽悠的
+Esa gente inventa para tener algo de comer
+
+他懂这里边什么意思
+Él entiende el significado que hay dentro
+
+在这个要打台湾的时候
+En este momento donde van a atacar a Taiwán
+
+不推翻体制
+No van a derrocar y cancelar el sistema
+
+经济挂钩
+Se van a enlazar económicamente
+
+军事全面恢复交流
+Van a recuperar completamente el diálogo militar
+
+正常交流
+Normalizar el diálogo
+
+没有呈现的说明什么
+Sin demostrar ninguna explicación
+
+不管你发生什么事情
+Sin importar lo que te suceda
+
+你打台湾什么的
+Si atacas a Taiwán o no
+
+咱经济 政治 军事 都不会停止
+Nuestra economía, política, fuerza militar no se detendrá
+
+这已经把台湾卖完了
+Ya esto terminó de vender a Taiwán
+
+我可以告诉大家郭文贵是第一个
+Yo les puedo decir a ustedes que Guo Wengui es el primero
+
+今天是台湾双十节
+Hoy es el Día Nacional de Taiwán
+
+2021年我告诉世界发生了什么事儿
+Dime que ha pasado en el mundo el 2021
+
+在这个信之后才有苏利文的
+Después de esta carta habrá de Sullivan
+
+杨洁篪的会谈
+Conversación de Yang Jiechi
+
+———————————————————
+
+**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1447755121153040385?s=24](https://twitter.com/se1y7cblljselva/status/1447755121153040385?s=24)
+
+日期：10/16/2021
+Estados Unidos garantizó 3 condiciones para vender a Taiwán, este habrá más peligro que suerte
+原视频日期：10/12/2021
+任务编号：KC176（2494）
+视频时间段：0:00-2:14
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

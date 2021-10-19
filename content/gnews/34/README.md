@@ -2,29 +2,17 @@
 ---
 
 
-## 五角大楼前软件主管说，美国须付出行动打赢人工智能之战
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602448/)
+## 中共外交部就美加军舰通过台湾海峡措辞强烈
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1602482/)
 
-【简评：】*西方情报部门评估，世界第二大经济体中共国将在未来十年内在众多新技术领域占主导地位，尤其是在人工智能、合成生物学和遗传领域。五角大楼前首席软件主管夏兰先生对『金融时报』称：“15或 25年以后，我们将没有任何机会战胜中国。在我看来，现在已经是既成事实，都结束了。”对于上述观点，爆料革命战友，我们新中国联邦人只会笑而不语，因为我们知道，中共马上就要完球蛋了。建议西方情报部门和这位前主管好好看看GTV、GETTR、GNEWS，尤其是2021年10月17日的文贵先生大直播。*
+撰稿：西枫westca
 
-据《大纪元时报》2021年10月16日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/555.jpg)图片来源：大纪元时报
-“我们正在输掉这场战斗。”最近辞去美国空军首席软件主管一职的尼古拉斯·夏兰(Nicolas Chaillan)表示，美国正在输掉与共产主义中国的人工智能竞赛。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/10/a3f1416988cdd730f3d6a1a13d8c4cceu5.jpg)图片来源：环球网
+据环球网10月18日报道，外交部发言人赵立坚对于日前美国“杜威”号导弹驱除舰和加拿大“温尼伯”号护卫舰通过台湾海峡表示：“中国捍卫国家主权和领土完整的决心坚定不移，中国军队时刻保持高度戒备，坚决反制一切威胁挑衅。美方应改弦更张、纠正错误。加方应从自身利益和中加关系大局出发，不要为他人火中取栗、甘当帮凶。”
 
-美国公司在技术进步方面仍然领先，但他们不愿与国防部分享他们的技术。“如果我们停止对信息过度分类……他们可能很快就会看到(共产主义中国的）威胁将成为一个真正的问题，甚至会影响他们的日常生活。” 夏兰说。
+中共国东部战区二日前也就美加两国军舰过航台湾海峡发布谈话称，美加勾连挑衅、搅局滋事、性质恶劣，严重危害台海和平稳定。并称，台湾是中国领土的一部分，战区部队时刻保持高度戒备，坚决反制一切威胁挑衅。
 
-夏兰说，如果美国现在不开始迎头赶上，那么由于人工智能发展的加速性质，我们将失去战胜中共国的机会。
+台湾海峡本是公海，任何舰只都有权合法通过。反之中共国在10月初的几天内，派遣近150架战机飞入台湾防空识别区。是谁意在挑起纷争，一目了然。台湾领土属于谁，是由台湾人民决定的，而不是由中共独裁控制的。
 
-原文连接：[https://www.theepochtimes.com/nicolas-chaillan-former-pentagon-software-chief-on-what-the-us-must-do-to-win-china-ai-battle-before-point-of-no-return\_4052569.html](https://www.theepochtimes.com/nicolas-chaillan-former-pentagon-software-chief-on-what-the-us-must-do-to-win-china-ai-battle-before-point-of-no-return_4052569.html)
-
-（本文评论仅代表个人观点）
-
-翻译/评论：洛杉矶盘古农场 – 钢蛋儿
-
-校对/编辑：洛杉矶盘古农场 – 明子
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**新闻来源：**[美加军舰过航台湾海峡，赵立坚回应：中国这个决心坚定不移！ (huanqiu.com)](https://world.huanqiu.com/article/45Dlv0PQQdt)
