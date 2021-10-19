@@ -2,46 +2,26 @@
 ---
 
 
-## 魁北克推迟卫生工作者接种疫苗的任务，但抗议活动仍在继续
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1604653/)
+## 加拿大“疫苗”之灾恐波及戕害无辜儿童
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1604776/)
 
-作者：Alexandra Lavoie
+采编：文明    撰稿：文明(添草灭共)
 
-2021 年 10 月 15 日应该是魁北克未接种疫苗前线工人的最后期限。
-
-那天有数千人准备被解雇。
-
-然而，就在截止日期前两天，我们的卫生部长克里斯蒂安·杜贝决定再给予一个月的宽限期，以鼓励这些工人去接种疫苗。
-
-尽管有这种延误，但这一变化丝毫没有阻止医护人员在弗朗特纳克城堡前达弗林露台上的示威，以表达他们的声音。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/t-edited.png)图片来源：NP
 
 
+据加拿大【国家邮报】10月18日新闻报道，【辉瑞生物技术公司】最近已向加拿大卫生部提出了申请，要求批准为该国5至11岁年龄阶段的儿童接种该公司生产的新冠病毒疫苗。
 
-> Château Frontenac, terrasse Dufferin, Old Québec. Frontline workers from all sectors are gathered to protest against the Mandatory Vaccination.[https://t.co/hCaNShGwhQ](https://t.co/hCaNShGwhQ) [pic.twitter.com/tgMKIpfJ3x](https://t.co/tgMKIpfJ3x)
-> — Alexa Lavoie (@ThevoiceAlexa) [October 15, 2021](https://twitter.com/ThevoiceAlexa/status/1449069536435707908?ref_src=twsrc%5Etfw)
+据悉，该被命名为“科米纳蒂”的疫苗是【辉瑞公司】与德国【生物新技术公司】共同合作研发的。去年12月已被加拿大联邦政府授权用于16岁以上人群，今年5月则用于12至15岁的少年。而目前儿童用疫苗的剂量约为12岁以上群体所用剂量的三分之一。
 
+卫生部表示，在今年10月1日以前，加拿大已出现859个与该疫苗副作用相关的病例，因此，当局希望在未来几个月内从辉瑞公司收集到更多低年龄组儿童的接种数据以供审查。一旦该疫苗被批准用于儿童，【国家免疫咨询委员会】将对该疫苗接种后所带来的好处是否超过幼儿接种后的潜在风险进行权衡，并做出最终的决定。
 
+简评：
 
-一些抗议者身着制服，其他人则在海报上展示了他们的专业背景。这是一个非常情绪化的事件，有令人难以置信和感人的证词。
+当前几乎所有的新冠病毒疫苗都不能有效预防中共病毒，其副作用所导致的健康危害已在各年龄段群体均有大量体现。接种该疫苗早已背离其预防感染该病毒的目的，而成为了一项政治任务和牟利工具。加拿大卫生部门必须把履行其监督职责放在首位，避免该国无辜儿童遭受“中共病毒疫苗”的戕害。
 
-当活动家弗朗索瓦·阿马莱加在一次演讲中提议通过继续在魁北克医院前的示威活动来证明魁北克省禁止在医院外抗议的新法律是荒谬的时，这场示威发生了意想不到的转变。 最终，这一天充满了波折。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/魁北克1.png)
-來源：[https://www.rebelnews.com/quebec\_delays\_health\_worker\_vaccine\_mandate\_but\_protests\_continue](https://www.rebelnews.com/quebec_delays_health_worker_vaccine_mandate_but_protests_continue)
+（以上内容仅代表原文信息和作者个人观点）
 
-（文章仅代表作者个人观点）
+校对，编辑，发稿：硫酸羟氯喹64
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[原文链接：](https://nationalpost.com/health/newsalert-pfizer-officially-requests-health-canada-approval-for-kids-covid-19-shot)

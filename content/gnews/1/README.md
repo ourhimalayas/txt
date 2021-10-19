@@ -2,39 +2,26 @@
 ---
 
 
-## 据称泄露的加拿大政府备忘录告诉员工不要说“加油吧布兰登”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1604685/)
+## 拜登提案将允许美国国税局监视每个在职美国人的银行记录
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1604791/)
 
-作者：Efron Monsanto
+作者：Steven Ahle
 
-一份据称来自加拿大政府打印出来的备忘录昨天在推特上疯传，警告员工不要使用“加油吧布兰登（Let’s Go Brandon）”这句话，否则有被解雇的风险。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/IRS-scaled.jpg)
 
-阿尔伯塔研究所所长彼得麦卡弗里将备忘录的一个版本发布到推特上，据称该备忘录显示了加拿大共享服务部泄露的备忘录，该机构向联邦政府提供提供满足加拿大人需求数字和IT 服务。
+乔拜登提出了一项计划，国税局可以访问每个人的银行账户如果他们每年有 600 美元的存款或购买力，这甚至包括最贫穷的美国人。 迪蒙特主席解释说，这是旨在向不纳税的富人索取财务。他们现在10,000 美元的限额浮动。我的租金每年超过 10,000 美元，其中不包括网络、电和食物。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Brandon-1.jpeg)
+我不了解你，但我不希望国税局窥探我的银行账户，在我没有做错任何事的情況下。如果你每月支付 875 美元的租金或每月赚取 875 美元，他们就可以访问你的所有财务记录。面对现实，我们现在生活在纳粹美国。如果你有工作，国税局可以监视你。如果你是一个焦虑的的父母，你就是一个家庭恐怖分子。如果你不同意民主党，你就是对民主的威胁。
 
-备忘录写道：“具体来说，加拿大公共服务部门禁止在任何情况下使用‘加油吧布兰登（Let’s go Brandon）’一词及其任何变体。”
+十美元是指您在纽约市以最低工资全职工作四个月，按联邦标准工作八个月的收入。这是西弗吉尼亚州的平均年租金（该国最便宜的），还不到 2020 年二手车平均价格的一半。 10,000 美元更不用说 600 美元了。很明显这不是一个正确的为避税富人设置的年交易水平。这就是变相的监视一种方式。
 
-备忘录还说，任何员工提及这句话“都将成为立即解雇的理由，没有追索权或工会代表。”
+“強有力的信息报告，以及提供持续保护的国税局资金，将确保我们将执法重点放在最大的鱼上，” 参议员伊丽莎白沃伦板着脸向纽约时报声称。
 
+如果你真的是富人，截点将是每年 250,000 美元。那么，你为什么认为他们想要访问每个人的帐户？他们意识到对富人征税不会带来足够的钱。他们也需要对穷人和中产阶级征税。国税局有权冻结你的银行账户。拜登的支出计划包括为美国国税局提供 800 亿美元的额外资金。下一步是什么？我们是否也需要报告姓名对于我们参与卧室活动呢？
 
+对上厕所次数多的人征收水税会是怎么样？在民主党掌权的情况下，它永远不会结束。
 
-> Lets Go Brandon … LOL [#LetsGoBrandon](https://twitter.com/hashtag/LetsGoBrandon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/kZpIyyxjTk](https://t.co/kZpIyyxjTk)
-> — Javy Foxtrot (@JavyFoxtrot17) [October 11, 2021](https://twitter.com/JavyFoxtrot17/status/1447543009483055105?ref_src=twsrc%5Etfw)
-
-
-
-口号“加油吧布兰登”是一个流行的模仿，背景是现场观众高呼的那句全美熟悉的热搜词“X 乔·拜登（F \*\*\* Joe Biden）”。一位NBC记者正在 NASCAR赛车活动中采访车手布兰登·布朗，当时后面的口号爆发了。然而，NBC的记者声称口号是“加油吧布兰登”，此后被称为损害控制的一种形式。
-
-我联系了加拿大共享服务部的评论，它首先回应要求提供一份未经编辑的信件副本，并知道我是为哪个网站写稿的。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Brandon-3.png)
-
-下午晚些时候，加拿大共享服务部回应并在给反叛新闻的一份声明中澄清说：“我们可以确认这条消息不是由加拿大共享服务部发布的，也没有相关部门政策。”
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Brandon-4.png)
-
-來源：[https://www.rebelnews.com/debunked\_alleged\_leaked\_canadian\_gov\_memo\_tells\_employees\_to\_not\_say\_let\_s\_go\_brandon](https://www.rebelnews.com/debunked_alleged_leaked_canadian_gov_memo_tells_employees_to_not_say_let_s_go_brandon)
+來源：[https://djhjmedia.com/steven/biden-proposal-will-allow-the-irs-to-spy-on-every-working-americans-banking-records/](https://djhjmedia.com/steven/biden-proposal-will-allow-the-irs-to-spy-on-every-working-americans-banking-records/)
 
 （文章仅代表作者个人观点）
 

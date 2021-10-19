@@ -2,28 +2,15 @@
 ---
 
 
-## 有声|达美航空首席执行官将不执行强制疫苗政策
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1604246/)
+## 狮城快讯：新加坡被美国列为中共病毒最高危险级别的国家
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1604379/)
 
-配音：香草山香港部-文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-每日邮报10月17日消息，在西南航空公司因强制疫苗接种导致内部危机，在10月8日至12日期间因罢工被迫取消了2500多个航班之际，达美航空首席执行官埃德-巴斯蒂安周四，在接受福克斯商业频道的采访时表示，该公司将不会执行强制疫苗接种政策。
+**撰稿：小坡**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-19-220136.jpg)
+本周一（10月18日）美国疾病控制与预防中心 (CDC) 将其对新加坡的建议级别调整为 4 级，即最高危险级别。 CDC 说：“由于新加坡目前的情况，即使是完全接种疫苗的旅行者也可能感染和传播中共病毒。”
 
-巴斯蒂安称疫苗强制接种是 “分裂性的”，在没有强制规定的情况下，该公司已经达到了90%的高接种率。达美航空将为那些希望不接种疫苗的人提供宗教和医疗原因的豁免。他说，在尊重人们的决定的同时与他们合作，要比威胁解雇他们有效得多。 拜登的行政命令要求拥有100名或更多员工的公司在12月8日前强制接种疫苗，并从员工那里获得全面接种的证明，但允许以至少每周一次的PCR检测代替疫苗接种。
+美国国务院周一也发布了类似通知，敦促人们不要轻易前往新加坡。 CDC 使用旅行健康通知，通过四级咨询系统提醒旅行者注意世界各地的健康威胁。 该系统通过考虑近期中共病例数和新病例轨迹等因素对目的地进行分类。
 
-隶属于劳工部的职业安全与健康管理局（OSHA）受命执行该命令，但尚未对所有私营公司实施该要求。这意味着，任何已经开始实施强制性疫苗的公司都为时过早，因为劳工部的指导意见还没有发布出来。
+美国CDC的福奇难道不看李显龙的演讲吗？我们都和病毒共存了，新加坡一直都是按照福奇老人家的指导一路走过来的啊，不让吃羟氯喹，疫苗一针不行两针，两针不行，再加强针，而且绝大多数都是打的你们美国CDC推荐的疫苗啊。如今我们每天几千人感染，全都是美国CDC和辉瑞的功劳啊！怎么还说新加坡“危险”呢？新加坡政府从来都是说我们是控制病毒最好的国家，人死了多少嘛…. 咳咳，好像也不多啊，反正没有像美国鲍威尔将军那么有名的人死了，民众就觉得一点都不危险啊，福奇博士请出来走两步，为啥说我们新加坡危险呢？
 
-达美航空是美国唯一 一家在企业层面，公开斥责总统实施的强制疫苗政策的航空公司。当疫苗灾难的真相最终呈现的时候，所有强迫人们接种新冠毒疫苗的人都会被审判，请老百姓坚决不要打毒针，也希望更多企业和机构拒绝配合强制政策。
-
-文字版原文：[达美航空首席执行官将不执行强制疫苗政策](https://gnews.org/zh-hans/1601589/)
-
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**[新闻来源](https://www.straitstimes.com/singapore/us-raises-covid-19-travel-alert-for-singapore-to-highest-risk-level)**

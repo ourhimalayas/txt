@@ -2,35 +2,35 @@
 ---
 
 
-## 加州家长抗议对在校学生强制接种新冠疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1604504/)
+## 9家信托踩雷宝能，涉资高达200亿元
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1604637/)
 
-作者：雪梨
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-本周一数千名学生家长，齐聚州议会大厦，抗议加州州长的学生接种强制令。
+**撰稿：日本东京方舟农场 海星**
 
-在加州首府沙加缅度的议会大厦门外，聚集了数千人，有来自本地及附近城镇，如旧金山湾区的人们，还有距离五百英里以外，圣地亚哥社区的家长们。当天，很多学生没有去学校，选择留在家里，以示抗议。
+近期，中共宝能集团已经违约至少9家信托公司的项目，涉及资金高达200亿元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-8.jpeg)
+据《凤凰网》报导，宝能旗下多个理财产品及信托计划均出现了逾期，经不完全统计，截至目前，至少有9家信托公司遭遇宝能违约，包括民生信托、重庆信托、山东信托、爱建信托、粤财信托、中航信托、雪松国际信托，中铁信托、云南信托，共涉及金额200亿元。
 
-本月1号，州长加文·纽森宣布，在FDA全面批准为12岁以上的青少年接种疫苗后，加州7-12年级，即12岁到18岁的学生将首先全面开始接种疫苗，幼儿园至六年级，即12岁以下的儿童在下一阶段执行。儿童对新冠病毒风险极低，几乎免疫，但接种新冠疫苗却会导致各类疾病，甚至伤及生命。接种毒针疫苗后，健康青少年死亡的案例一直在增加。
+10月13日，宝能持股的中炬高新发布公告称，控股股东中山润田（宝能投资的三级子公司）因与粤财信托的债务出现违约，负债金额7.2亿元，被粤财信托冻结持有的中炬高新股份555万股、轮候冻结2100万股；与中航信托债务金额10.5亿元，欠付本息合计6.3亿元。
 
-爆料革命和无数不畏强权，选择挺身而出发声的医护人员、以及科学家，包括前辉瑞公司副总裁耶登博士，一再对世人发出警告。越来越多的家长已经觉醒，从对疫苗危害的担忧，升级为付诸于实际行动，强烈反对强制疫苗接种。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211019185336.png)图片来自于网络
 
-(本文仅代表作者观点)
+10月8日，中铁信托发布公告称，其向宝能汽车发放信托贷款28亿元，期限为18个月，但债务人未如期支付贷款利息，现已被法院查封土地等资产。
 
-参考链接：[Parents Rally Statewide To Protest Newsom’s School COVID Vaccination Mandate](https://sanfrancisco.cbslocal.com/2021/10/18/parents-rally-statewide-to-protest-newsoms-school-covid-vaccination-mandate/)
-[Thousands Gather at California State Capitol to Protest Newsom’s School Covid Vaccine Mandate (VIDEO)](https://www.thegatewaypundit.com/2021/10/thousands-gather-california-state-capitol-protest-newsoms-school-covid-vaccine-mandate-video/)
+此前，云南信托向宝能子公司钜盛华发放了信托贷款50亿元，但钜盛华只逾期支付了利息8968.57万元，未清偿剩余借款本金42亿元，因此被冻结了部分银行账户。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+宝能集团于1992年在深圳成立，业务涉及领域广泛，遍布中共国300多个城市。近年由于其资金流动问题频发，旗下公司业务相继陷入困境，宝能投资集团、钜盛华、宝能汽车、宝能地产、深业物流等均被列为高风险企业。
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
+*注：本文仅代表作者观点，与 Gnews无关*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*参考链接：*
+
+[宝能系“风暴”再扩大：9家信托踩雷200亿，3家上市公司股权生变](https://ishare.ifeng.com/c/s/v002Ev740PmUOL66Zlwj6UCU--Ost5FpdK5YjNizvMTRrOGA__)
+
+[中铁、重庆、云南多家信托踩雷宝能，涉及金额90亿，姚振华出现被法院强制执行情况](https://c.m.163.com/news/a/GM2643900519RAAQ.html?spss=newsapp)
+
+[宝能系危机扩大 9项信托踩雷200亿](https://www.epochtimes.com/gb/21/10/16/n13309195.htm)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

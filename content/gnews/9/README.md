@@ -2,31 +2,38 @@
 ---
 
 
-## NIH在7月份已将伊维菌素纳入治疗中共病毒推荐药物
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1604629/)
+## 快报：魁省推迟医护人员疫苗接种令，但抗议仍继续
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1604710/)
 
-**撰稿：日本东京方舟农场 北极**
+编译：**Lulumi**
 
-据网名Daily Beats的用户10月15日发布在盖特(Gettr)上的一段视频显示，NIH（美国国立卫生研究院）在7月8日就已将伊维菌素列为治疗中共病毒的推荐药物，而美国患者和医生却并不知道。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-366.png)
 
-视频中，来自美国的Bryan Ardis医生披露，他每周都会收到很多中共病毒患者及其家属的邮件，均是由于伊维菌素得不到官方批准，导致ICU（重症监护室）医生或医院管理人员无法开具伊维菌素的处方治疗病毒感染。
+2021年10月14日，医院工作人员和工会组织者挥舞着标语和横幅，抗议位于Roseville的Kaiser Permanente医院的人员短缺问题
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/id13047584-504254-scaled.jpg)图片来自于网络
+图片来源：Fred Greaves for CalMatters
 
-事实上，NIH网站在7月8日更新发布的用治疗中共病毒的推荐药物中，明确列出了伊维菌素及具体使用剂量。
+2021年10月15日本来是魁北克省未接种疫苗的一线医护人员的最后期限。他们中的几千人准备在那一天被解雇。
 
-Bryan Ardis医生表示，NIH之所以悄悄将信息放在网站而不通知医院使用，一方面为了确保没人知道，另一方面是为了在以后的法庭上为自己辩解，掩护罪行。
+然而，我们的卫生部长克里斯蒂安·杜贝（Christian Dubé）就在最后期限的前两天决定再给予一个月的宽限期，以鼓励这些医护人员去接种疫苗。
 
-Bryan Ardis医生得出结论说，所有美国医生和医疗机构针对中共病毒的治疗指导都遵循NIH。
+尽管有这样的延迟，但这一变化丝毫没有阻止医护人员来到杜弗林平台上的弗朗特纳克城堡前示威，表达他们的声音。
 
-*注：本文仅代表作者观点，与 Gnews无关*
+几位抗议者身着制服，其他人在海报上展示他们的专业背景。这是一次非常激动人心的活动，有令人难以置信和感人的证词。
 
-*参考链接：*
+这次示威活动出现了意想不到的变化，在一次演讲中，活动家弗朗索瓦·阿马莱加（François Amalega）提议在魁北克L’Hôtel-Dieu医院前继续示威，以证明魁北克禁止在医院外抗议的新法律的荒谬性。
 
-[Ivermectin is listed in nih.com as one of the two medicines to treat Covid-19 patients. Please see the table below.](https://gettr.com/post/pe66me9529)
+然而警察已经封锁了通往医院的道路。最近在医院周围50米范围内进行抗议是非法的。
 
-[Table 2e. Characteristics of Antiviral Agents That Are Approved or Under Evaluation for the Treatment of COVID-19](https://www.covid19treatmentguidelines.nih.gov/tables/table-2e/)
+最后，这是充满曲折的一天。
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**参考资料：**[rebelnews.com] [Quebec delays health worker vaccine mandate, but protests continue](https://www.rebelnews.com/quebec_delays_health_worker_vaccine_mandate_but_protests_continue)
 
 * * *
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+*审核：文乐
+校对: 阿伯塔
+发稿: Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)

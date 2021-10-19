@@ -2,34 +2,33 @@
 ---
 
 
-## 英国中学接种计划后多地爆发猝死病例
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1604537/)
+## 南非政府：俄罗斯疫苗或增加男性感染爱滋病的风险
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1604651/)
 
-作者：安吉拉
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-位于英格兰埃塞克斯郡的约翰国王中学，所有的人都沉浸在巨大的悲痛和惊恐不安中。周一10月18日，校长通过信件公告了一条讣告， 12年级的一名少年，在无预兆的情况下于睡梦中死亡。此时距离毒针接种队进驻该学校，执行新冠疫苗计划不足两周。
+**撰稿：日本东京方舟农场 Kevin wang**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-3.jpeg)
+据法新社10月19日报道，南非卫生产品监管局表示，不会批准俄罗斯疫苗「卫星-V」，因该疫苗可能让接种后的男性感染爱滋病毒风险增加。
 
-上周二，位于莱斯特郡Moat学校的一名11岁女孩因突发心脏骤停昏倒，虽然空中救援直升机和救护车很快抵达，但女孩不久后就去世了。随后该市 议会 召开了紧急会议，从10月14起，训练有素的辅导员将在各学校临阵以待，为可能突发的事件提供援助。
+声明指出，在南非申请卫星-V使用许可的公司，并未提出“在爱滋病毒高盛行率情况下”采用此疫苗会的安全证明。
 
-短短几个月，英美国家已出现多起青少年突发死亡的悲惨事件，而与此同时，辉瑞制药却在向FDA 和其他国家药监局施压，快速推进为低龄儿童接种新冠疫苗。9月中旬主媒已为下一轮屠戮做足了铺垫。邪恶集团最快将于万圣节期间，将死亡魔爪伸向5至11岁儿童。
+有学者表示，南非政府的做法可能还不够。他解释说：“根据日前英国发布最新的PHE 疫苗监测报告中的数据，接种疫苗会导致人体免疫力下降，进而增加感染艾滋病的风险。作为全世界感染爱滋病毒人数最多的国家，更有效的做法应该是采用伊维菌素等药品作为治疗和预防方案，以替代任何种类的疫苗。”
 
-(本文仅代表作者观点)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/163466313823102_P14359361.jpg)图片来自于网络
 
-参考链接：[King’s Lynn school student dies suddenly](https://www.lynnnews.co.uk/news/kings-lynn-school-student-dies-suddenly-9221098/)
-[Young people aged 12 to 15 to be offered a COVID-19 vaccine](https://www.gov.uk/government/news/young-people-aged-12-to-15-to-be-offered-a-covid-19-vaccine)
-[US children aged 5 to 11 on track to receive Pfizer vaccine by Halloween](https://www.theguardian.com/society/2021/sep/20/pfizer-covid-vaccine-children-5-to-11-trial)
-[https://twitter.com/sarlou281/status/1450142510899150858?s=28](https://twitter.com/sarlou281/status/1450142510899150858?s=28)
+据英国PHE 疫苗监测报告，与未接种疫苗的人相比，接种双倍疫苗的 40-70 岁人群的免疫系统能力下降了 40%。他们的免疫系统正在以每周 5% 左右的速度恶化（介于 2.7% 和 8.7% 之间）。如果这种情况持续下去，那么 30-50 岁的人的免疫系统将 100% 退化，到圣诞节时病毒防御为零，所有 30 岁以上的人都将在明年 3 月之前失去免疫系统。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+*注：本文仅代表作者观点，与 Gnews无关*
 
-编辑/校正/发稿：谐趣园
+*参考链接：*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[忧男性染爱滋病毒风险增 南非不批准俄卫星-V疫苗](https://www.rfi.fr/cn/%E5%BF%A7%E7%94%B7%E6%80%A7%E6%9F%93%E7%88%B1%E6%BB%8B%E7%97%85%E6%AF%92%E9%A3%8E%E9%99%A9%E5%A2%9E-%E5%8D%97%E9%9D%9E%E4%B8%8D%E6%89%B9%E5%87%86%E4%BF%84%E5%8D%AB%E6%98%9F-v%E7%96%AB%E8%8B%97)
+
+
+
+> [A comparison of official Government reports suggest the Fully Vaccinated are developing Acquired Immunodeficiency Syndrome](https://theexpose.uk/2021/10/10/comparison-reports-proves-vaccinated-developing-ade/)
+
+
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

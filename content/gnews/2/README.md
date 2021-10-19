@@ -2,100 +2,71 @@
 ---
 
 
-## 有人叫嚣拒绝未接种疫苗人群生命垂危时到医院治疗
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1604675/)
+## [CCP病毒]指望WHO新型病原体溯源专家小组彻查中共病毒真相是不可能的
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1604787/)
 
-据《峰会新闻》(Summit News)保罗·约瑟夫·沃森（Paul Joseph） 2021年10月15日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-12.png)图片来自网络
-在精神错乱咆哮中说他们 “不适合地球上的生活”。
+温哥华扬帆农场  枫叶正红时
+![](https://assets.gnews.org/wp-content/uploads/2021/10/101921.png)图片来源：m.soundofhope.org
+这是2021年10月14日，世卫组织总干事谭德塞在新型病原体溯源专家小组（WHO Scientific Advisory Group for the Origins of Novel Pathogens ，简称SAGO）会员国简报会上的开幕词。以下为大致内容：
 
-《纽约时报》和《华盛顿邮报》引用了一位网络安全方面工作“专家”的推特，称未接种疫苗人群生命垂危时应该被拒绝到医院治疗，因为他们“不适合在地球上生活”。
+各位阁下，亲爱的同事们，
 
-克里斯·维克里(Chris Vickery)称自己为“数据泄露猎人”，还吹嘘他的“调查结果对联邦贸易委员会(FTC)、联邦调查局(FBI)、证券交易委员会(SEC)、特勤局(Secret Service)、卫生与健康服务部(HHS)、参议院情报特别委员会(SSCI)等进行的调查有很大帮助”。
+如您所知，世卫组织昨天宣布了世卫组织新型病原体溯源专家小组（SAGO）的拟议成员名单。
 
-在维克里精神错乱的推特中，咆哮宣称，应该对拒绝接种中共病毒疫苗的人设定一个12月1日的时间限制。
+这 26 名专家是从来自 100 多个成员国的 700 多份申请中选出的，他们之所以被选中，是因为他们在一系列学科领域拥有世界一流的专业知识和经验，并确保了地域和性别的多样性。
 
-他尖叫道：“现在就定个日期。在那之后，医院不再为自愿未接种疫苗的人提供服务”。
+SAGO 的主要任务是就世卫组织定义和指导对具有流行和大流行潜力的，新出现和重复出现的病原体，包括新冠病毒（中共CCP病毒）的溯源研究提供建议。
 
+我想强调的是，新冠病毒（中共CCP病毒）溯源不是 SAGO 的唯一，甚至是主要关注点。尽管它的首要任务之一将是评估当前关于新冠病毒（中共CCP病毒）溯源的科学知识，如果我们需要进一步对这种病毒的起源调查，专家组将确定哪些是必须作为优先事项进行的、最重要的研究。
 
+现在将有一个为期两周的公众咨询期，以征求（您们）对被提名的26名SAGO成员的反馈意见。之后，我们将（最终）确定SAGO的成员组成，该小组将举行第一次会议。
 
-> Seriously. Pick a date now. Make it something like December 1st, 2021. Broadcast this fact widely.
-> Then, after the chosen date, anyone choosing to refuse the covid-19 vaccine can deal with the consequences of that choice alone.
-> — Chris Vickery (@VickerySec) [October 14, 2021](https://twitter.com/VickerySec/status/1448468418508644361?ref_src=twsrc%5Etfw)
+有可能引发流行病和大流行病的新病毒出现是自然而然的事实，新冠病毒（中共CCP病毒）是此类病毒中最新的一个，但它不会是最后一个。
 
+我们感谢所有希望加入 SAGO的人，我们希望这将成为世卫组织维护世界卫生安全工作的宝贵补充。
 
-*Chris Vickery @VickerySec · 10月13日*
-*现在就定个日期。*
-*在那之后，医院不再为自愿未接种疫苗的人提供服务。*
-*Chris Vickery @VickerySec · 10月13日*
-*说真地。现在选择一个日期。比如2021年12月1日那样。广泛传播这个事情。然后，在选定的日期之后，任何选择拒绝中共病毒疫苗的人都要独自面对该选择的后果*
-维克里补充道：“然后，在选定的日期之后，任何选择拒绝中共病毒疫苗的人都要独自面对该选择的后果”。
+我谢谢你。
 
-在声称任何人都没有“合法”理由拒绝接种之后，维克里以疯狂的呼吁结束了他的咆哮，让这些人“与幸存的世界分离”。
+简评：
 
+“新冠病毒（中共CCP病毒）溯源不是 SAGO 的唯一，甚至是主要关注点“，谭书记你不是在梦游吧？
 
+世界组织发布的这份26人名单，差不多算是中南坑老杂毛们直接任命的。指望这份名单上的人，去彻查中共病毒真相，是不可能的。难怪赵立奸（坚）在2021年5月14日例行记者会上洋洋得意地称，“中（共）方率先同世卫组织开展联合研究”。
 
-> Human society isn't a suicide pact. If you are too dumb to get the covid vaccine, then you are not fit for continued life on Earth.
-> That's your choice, but the consequences of refusing to get the vaccine is you having to wave a fond farewell and separate from the surviving world.
-> — Chris Vickery (@VickerySec) [October 14, 2021](https://twitter.com/VickerySec/status/1448468420362604545?ref_src=twsrc%5Etfw)
+所有有良知的人都想问一句，世卫组织是不是还要派一个专家组到中共国去学习制毒放毒经验？
 
+在世卫组织公布的名单中，第26位Dr Yungui Yang杨运桂，来自于中共国科学院北京基因组研究所副所长。
 
-*Chris Vickery @VickerySec · 10月13日*
-*已经够久了。那些人有大量的犹豫时间和缓冲空间来“检查科学”。现在不接种的人没有合法、理由充分、普遍适用的论点。*
-*Chris Vickery @VickerySec · 10月13日*
-*人类社会不是自杀协议。如果你太笨而不去接种中共病毒疫苗，那么你就不适合在地球上继续生活。*
-*那是你的选择，但拒绝接种疫苗的后果是你不得不挥手告别，与幸存的世界分开。*
-“人类社会不是自杀协议。如果你太笨而不去接种中共病毒疫苗，那么你就不适合在地球上继续生活。”
+第6位德国人Christian Drosten一直公开为中共CCP唱赞歌。去年Christian Drosten还参与了发表在Lancet上，抨击“中共CCP病毒并非自然起源”为阴谋论的联合签名。
 
-“那是你的选择，但拒绝接种疫苗的后果是你不得不挥手告别，与幸存的世界分开。”
+第22位瑞士人Katharina Summermatter更是声称“中共病毒实验室泄漏“完全是阴谋论，并公开赞扬武毒所的安全性。
 
-一些人开玩笑说，这是推特常见的蓝色复选标记趋势的又一个例子，它积极展示他们的美德，同时实际上呼吁大规模种族灭绝。
+第13位Dr Marion Koopmans和第25位英国科学家Dr John Watson一直和Peter Daszak密切合作。英国《mailonline》指出，Marion Koopmans甚至还和Ron Fouchier共同发表过27篇论文，Ron Fouchier 一直是世界上最具争议的“功能增强”实验研究人员之一，该实验旨在使动物病毒更具传播性并能够感染人类。
 
+第11位古巴Maria Guzman，第14位柬埔寨的Sowath Ly，第16位缅甸的Khin Myint，第24位泰国的Supaporn Wacharapluesadee和中共勾兑之深，脚趾头动一下都能猜到。
 
+其它像第1位菲律宾的Phillip Alviola，第2位沙特的Abdullah Assiri，第5位俄罗斯的Vladimir Dedkov，第7位苏丹的Elmoubasher Farag，第10位黎巴嫩的Nada Ghosn，第12位喀麦隆的Christian Happi，第15位法国的Jean-Claude Manuguerra，第19位尼日利亚Chinwe Ochu，第21位肯尼亚的Rosemary Sang，第23位南非的Marietjie Venter，等等，能否作出公正的调查，我想明眼人都应该知道。
 
-> [pic.twitter.com/ojFGpOXFzZ](https://t.co/ojFGpOXFzZ)
-> — Auron MacIntyre (@AuronMacintyre) [October 15, 2021](https://twitter.com/AuronMacintyre/status/1448973333635211305?ref_src=twsrc%5Etfw)
+或许西朝鲜中南坑老杂毛们演技还有待提高，尔等应当直接点名东朝鲜、塔里班、巴基斯坦等也加入这份专家组名单。
 
+难怪英国外交事务委员会、保守党议员Tory MP Bob Seely指出，世卫组织新的调查小组为什么包含那些公开与中共勾兑的人。
 
+就在刚刚过去的短短10分钟之内，中共CCP病毒感染人数就增加了14077人，由240,508,281人增加到240,522,358，因中共CCP病毒而死亡209人，由4,896,755人增加到4,896,964人。
 
-其他人则直接抨击维克里的无情，不人道。
+留给世界的时间不多了，援引西利的话对CCP老杂毛们说，“洗白两次并不比洗白一次好“，中共CCP想一直掩盖病毒真相是不可能的。
 
-一个网友发问：“当你还是个孩子的时候，你有没有想过你成年后会是一个多么可怕的人？”
+世界应该对中共CCP病毒起源进行强有力的独立调查！
 
-另一位网友打趣讽刺，“医疗保健作为一项基本人权到此为止。”
+参考资料：
 
-维克里后来吹嘘他在发表评论后在推特上屏蔽了很多人。
+[2021年10月14日外交部发言人赵立坚主持例行记者会](https://www.fmprc.gov.cn/web/fyrbt_673021/jzhsl_673025/t1914522.shtml)
 
+[Public notice of proposed new Scientific Advisory Group for the Origins of Novel Pathogens (SAGO) members](https://www.who.int/news-room/articles-detail/public-notice-and-comment-on-proposed-new-scientific-advisory-group-for-the-origins-of-novel-pathogens-%28sago%29-members)
 
+[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
 
-> Make my day. [pic.twitter.com/Dmtk873EMg](https://t.co/Dmtk873EMg)
-> — Chris Vickery (@VickerySec) [October 14, 2021](https://twitter.com/VickerySec/status/1448680623518851075?ref_src=twsrc%5Etfw)
+#  
 
+（免责声明：本文只代表作者观点，跟GNEWS平台无关）
 
-*Chris Vickery @VickerySec · 10月14日*
-*我杀了巨魔。 就这样。*
-*Chris Vickery @VickerySec · 10月14日*
-*我的一天*
-他多么勇敢。
-
-正如我们之前强调过的，美国各地的许多医院已经在拒绝向未接种疫苗的患者进行挽救生命的器官移植手术。
-
-同时，在英国，根据国民保健服务(NHS)的规定，被视为“种族主义”、“性别歧视”或“恐同性恋”的患者也可能被拒绝接受治疗。
-
-正如我们在下面的视频中所记录的那样，基思·奥尔伯曼(Keith Olbermann)和一些人正在发表相似言论，他们打算煽动“新常态”邪教成员进行疯狂、歇斯底里的仇恨，针对那些选择不接受接种人群。
-
-老头向未接种人群大叫
-
-
-
-【本文仅代表作者个人观点】
-
-译者评论：普通大众很难了解疫苗的真相，少数极端者还在对没有接种疫苗的人咆哮恐吓，甚至医院不接受没有接种疫苗的患者进行挽救生命的器官移植。政府、大科技媒体串通一气掩盖争相，强制疫苗，实施着邪恶的计划。爆料革命、新中国联邦一直致力于揭露疫苗真相。希望更多的人能够觉醒，希望能拯救更多的生命！
-
-[https://gettr.com/](https://gettr.com/)
-[https://gtv.org/](https://gtv.org/)
-https://www.gnews.org/
-
-原文链接： [https://summit.news/2021/10/15/expert-calls-for-denying-life-saving-hospital-treatment-to-the-unvaccinated/](https://summit.news/2021/10/15/expert-calls-for-denying-life-saving-hospital-treatment-to-the-unvaccinated/)
-
-翻译：Prof.Bacteriophage |校对： 烟波浩淼|编辑&发布：黎明的光芒
+编审：文敏   发布：文敏
