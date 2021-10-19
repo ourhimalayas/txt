@@ -2,25 +2,39 @@
 ---
 
 
-## 12岁在疫苗前终止
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1604309/)
+## 西喜时事新闻简报 — 美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1604396/)
 
-撰稿：文雨
+编译：土饭团
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-9.jpg)
+您若想了解全文报导内容，请点击标题链接
 
-图片来自：网络
+**1.[白宫对中国测试核导弹的报道保持沉默，称政府欢迎“激烈的竞争”](https://www.foxnews.com/politics/white-house-mum-on-reports-of-china-testing-nuclear-missile-says-admin-welcomes-stiff-competition)**
 
-今天在腾讯网上看到一则陆火Media的报道，说的是一个12岁成绩优秀的女孩李博艺，因注射疫苗，8月28日经濮阳油田总医院抢救无效后身亡。可怜母亲蒋艳红为维权上访，去疫苗注射单位南乐县城关镇卫生院，要求提供疫苗相关资料，遭拒绝。她向相关部门申请医疗事故和疫苗副作用调查，始终未得到任何回应。蒋艳红说，她去南乐县卫健委要说法，结果被四五个男人摁在地上，进行了40多分钟的殴打。南乐县相关领导多次上门慰问提醒她：”再去北京上访，有可能拘留或是判刑.” 村委会主任还曾提出：“不要上访，给你几十万拉倒吧……”但被断然拒绝。心碎欲绝的母亲从9月26日起每天在微博更新内容，直至10月3日再无更新。蒋艳红母亲的亲属披露：2021年10月16日，蒋艳红已被刑事拘留，羁押于濮阳市看守所。
+福克斯新闻10月18日电，白宫新闻秘书Jen Psaki周一不愿就中国测试了具有核能力的高超音速导弹的报道发表评论，而是说美国欢迎“激烈的竞争”，同时坚持认为Biden政府“不希望这种竞争演变为冲突”。Psaki说：“我们已经明确表示我们对中国继续追求的军事能力的担忧，我们对中国的态度一直是一致的。”
 
-这样的事件看了让人心碎。中共病毒疫苗造成的灾难让一个鲜活的12岁花季的生命嘎然而止，这又是一个失独家庭，飞来的横祸对母亲的打击如五雷轰顶，试问疫苗，失独是谁做的恶？答案是中共！
+**2.[Trump国防部官员: 中国正在取代美国成为世界超级大国](https://www.foxnews.com/media/trump-defense-elbridge-colby-china-superpower-adversary-threat)**
 
-上访在中共国是一个耳熟能详的词，也是普通老百姓在受到伤害和不公待遇的时候，唯一寄于希望的一条路，但是漫漫长路之后，等待的是另一个可怕的牢笼。正如这一事件的主角，母亲蒋艳红在为女儿的死要说法的时候，遭到的是毒打，区区几十万的息事宁人和寻衅滋事的牢狱之灾。这是怎样一个国度？这是在中共统治下千千万万个百姓上访的其中一幕。
+福克斯新闻10月18日电，前国防官员Elbridge Colby在福克斯国家电视台新一期的“Tucker Carlson Today”节目中说，国家对通货膨胀威胁的麻木，使其难以传达中国对美国和整个全球社会构成的威胁的“严重性和严峻性”。中国共产党目前被列为该国最大的对手和对国际体系的最大地缘政治威胁。
 
-要结束这疫苗灾难，飞来横祸吗？要结束这上访恶梦吗？唯灭掉中共！
+**3.[美国、加拿大军舰驶过台湾海峡](https://thehill.com/policy/defense/577086-us-canadian-war-ships-sail-through-taiwan-strait)**
 
-本文纯属个人观点，与Gnews无关
+The Hill 10月17日电，美国军方周日表示，在中国和台湾之间高度紧张的情况下，一艘美国军舰和一艘加拿大军舰上周通过台湾海峡。美国军方派遣Arleigh Burke级导弹驱逐舰Dewey号穿过台湾海峡，中国声称该岛是其领土的一部分。军方表示：“Dewey和Winnipeg过境台湾海峡表明了美国及其盟友和伙伴对自由开放的印度太平洋地区的承诺。”
 
-[参考来源](https://view.inews.qq.com/a/TWF202110180005440Q?uid=100029586029&amp;devid=7CFE7EDC-23DB-44D2-B1F3-29320106FE67&amp;qimei=7cfe7edc-23db-44d2-b1f3-29320106fe67#)：
+**4.[参议员Cotton警告：习近平发动冷战和“Biden正在失败”](https://www.foxnews.com/media/tom-cotton-warning-china-xi-taiwan-biden-weakness)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+福克斯新闻10月16日电，共和党参议员Tom Cotton周五在“America’s Newsroom”说，中国与台湾的紧张关系升级，表明共产党政权正在利用Biden总统的弱点。美国允许中国入侵、吞并台湾将是“历史性规模”的灾难。
+
+**5. [一位记者的新书中写出：Fauci被指在武汉的功能增益研究上误导了Trump政府](https://www.foxnews.com/politics/book-fauci-allegedly-misled-trump-administration-gain-of-function-wuhan)**
+
+福克斯新闻10月17日电，一位澳大利亚调查记者的新书深入探讨了Anthony Fauci博士如何在中国的功能增益研究方面误导Trump政府的。详细介绍了Fauci如何试图说服白宫办公厅主任Mark Meadows将资金返还给一个在中国的研究项目，该项目由一个名为生态健康联盟的美国非营利组织负责。在今年夏天被参议员Rand Paul就资金问题进行了质问。
+
+（文章仅代表作者观点，与GNEWS无关）
+
+* * *
+
+*审核：蚂蚁兄弟*
+*校对：信心满满*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)

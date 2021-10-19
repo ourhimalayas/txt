@@ -2,21 +2,36 @@
 ---
 
 
-## 秘翻在线：中共媒体强调阿里巴巴的控制权变更，意在马云已是枚废棋
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1604190/)
+## 台军方正式提请美国尽快交付F-16V订单
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1604205/)
 
-**撰稿：Ping**
+作者：飞虹
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/7245651634614862798449.jpeg)
-今天中共媒体，再次报道9月份阿里集团控制权之变：创始人离开，北美系势力更大，雅虎退出，董事会改选之后，阿里巴巴集团五大董事（非独立董事），包括2名中国大陆人和3名外国人。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-为何已经一个多月后，中共媒体再次报道此则新闻呢？笔者认为与近日传出，马云从香港逃离中共国到西班牙的消息不无关系。就是强调马云已经与阿里巴巴再无瓜葛，也意味着马云对中共国已没有任何用处，是随时可以除掉的一枚棋子而已了。当然也还有一个可能就是表面上欲擒故纵，对外宣称去度假，真正用意让马云把海外所有曾经代持的钱这次统统弄回国吧。
 
-郭文贵先生从2017年爆料开始，不止一次的提到阿里巴巴，提到马云的结局一定很悲惨的。经过4年的验证，马云的辉煌时代已然成为历史。郭先生还强调，全世界只有美国和日本不受中共控制，可以维护个人肉身安全，其他国家都跟中共沆瀣一气。言外之意，马云如果真的在西班牙，恐怕遣返回中共国只是时间问题。
 
-其次，中共媒体重提阿里巴巴股权控制权变更，标志阿里巴巴在中共国今后的发展，不会再有曾经的优厚待遇了。基于现实的残酷性，也奉劝那些还在为中共割老百姓韭菜的高管白手套们，赶紧自求多福，提早做好打算，远离阿里巴巴的是非之地！
+2019年台湾军方斥资80亿美元，向美国订购了66架F-16V型战机，按照合约10年内完成交付。但台海局势的急剧恶化，使台湾军方倍感压力，因此希望美方提前交付一定数量战机，以便台空军尽快训练形成战斗力。据悉拜登政府已经正式与台湾官员开始讨论，如何加速交付战机的事宜。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1019AM-4-7.002.jpeg)
+目前台湾空军部署在台东”志航”空军基地的 F-5战机已经老旧，台军急需这批先进的F-16V战机以强化空防能力。与此同时，文贵先生在最新直播中透露，他得到军事专业人士的私密情报，如果中共武统入侵台湾，美军不仅一定会出手救援，而且美军有把握也有实力，可以在三分钟内摧毁中共海内外包括天上、地上所有军事基地，这一惊爆消息无疑将给台湾军民一针强心剂，同时也似乎是在激将盗国贼，如加速对台湾动武的步伐，最终必将自取灭亡！
+(本文仅代表作者观点)
 
-中共的邪恶体制，就是权力的绞杀。谁占上位，则鸡犬升天；谁居下位，池鱼遭殃。中共国没有法治，就是一群流氓肆无忌惮的愚弄并残杀着老百姓。正如郭先生所言，马云也好，孙力军也罢，亦或傅政华，虽然大恶，但不需要受到如此羞辱，自有法律可以审判。新中国联邦就要实现真正的依法治国，实现正道主义！
+参考链接：
 
-**[新闻来源](https://www.163.com/dy/article/GMLMCQ6A05148JTU.html)**
+1. [因应北京战机侵扰 台湾要求美国提前交付66架F-16V战机](https://www.voachinese.com/a/Taiwan-requests-US-to-expedite-shipment-of-F-16s-20211018/6275525.html)
+2. [2021年10月17日 文贵大直播@03:33:00: (3)中共的经济政治危机导致对台开战，将引发美国，日本对中共进行极限战争](https://gtv.org/video/id=616c1823304e992109b65281)
+
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：文龙
+编辑/校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

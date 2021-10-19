@@ -2,26 +2,31 @@
 ---
 
 
-## 打鸡血！中共500吨推力固体火箭发动机试验成功
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1604521/)
+## NIH在7月份已将伊维菌素纳入治疗中共病毒推荐药物
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1604629/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-21.png)
-[图片来源](https://china.huanqiu.com/article/45ERGWA1GUM)
+**撰稿：日本东京方舟农场 北极**
 
-中共央视新闻10月19日报道，中共自主研制的500吨推力整体式固体火箭发动机在航天科技集团四院试车成功。
+据网名Daily Beats的用户10月15日发布在盖特(Gettr)上的一段视频显示，NIH（美国国立卫生研究院）在7月8日就已将伊维菌素列为治疗中共病毒的推荐药物，而美国患者和医生却并不知道。
 
-该发动机直径3.5米，推力达500吨，采用高性能纤维复合材料壳体、高装填整体浇注成型燃烧室、超大尺寸喷管等多项先进技术。试验的成功，标志着中共固体运载能力实现大幅提升。
+视频中，来自美国的Bryan Ardis医生披露，他每周都会收到很多中共病毒患者及其家属的邮件，均是由于伊维菌素得不到官方批准，导致ICU（重症监护室）医生或医院管理人员无法开具伊维菌素的处方治疗病毒感染。
 
-目前，基于500吨推力整体式固体发动机，航天科技集团四院已经在开展直径3.5米级分段发动机的研究，发动机分5段，最大推力将达到千吨级以上，可应用于大型、重型运载火箭固体助推器中，以满足空间装备、载人登月、深空探索等航天运载工具的不同发展需求。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/id13047584-504254-scaled.jpg)图片来自于网络
 
-长期以来，由于受制于材料和工艺，中共火箭固体发动机水平远远落后于欧美发达国家，同时研制进展也比较缓慢。突出的表现就是中共“一箭多星”的能力很弱，同时也无法开展载人登月等对运载能力要求更高的活动。此次中共500吨级推力整体式固体火箭发动机的试验成功，虽然与发达国家水平相比仍有较大差距，但却足以让中共给墙内“小粉红”打上一顿鸡血。
+事实上，NIH网站在7月8日更新发布的用治疗中共病毒的推荐药物中，明确列出了伊维菌素及具体使用剂量。
 
-信息来源：
+Bryan Ardis医生表示，NIH之所以悄悄将信息放在网站而不通知医院使用，一方面为了确保没人知道，另一方面是为了在以后的法庭上为自己辩解，掩护罪行。
 
-[重大突破！世界最大推力整体式固体火箭发动机试车成功](https://china.huanqiu.com/article/45ERGWA1GUM)
+Bryan Ardis医生得出结论说，所有美国医生和医疗机构针对中共病毒的治疗指导都遵循NIH。
 
-免责声明：文章仅代表作者本人观点，与GNEWS无关
+*注：本文仅代表作者观点，与 Gnews无关*
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/樱花团-1.jpg)
+*参考链接：*
+
+[Ivermectin is listed in nih.com as one of the two medicines to treat Covid-19 patients. Please see the table below.](https://gettr.com/post/pe66me9529)
+
+[Table 2e. Characteristics of Antiviral Agents That Are Approved or Under Evaluation for the Treatment of COVID-19](https://www.covid19treatmentguidelines.nih.gov/tables/table-2e/)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

@@ -2,151 +2,25 @@
 ---
 
 
-## 每日快报：中国持有的美国国债暴跌至10年低点
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1603690/)
+## 针下亡魂｜意大利 18 岁排球运动员接种疫苗27日后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1603893/)
 
-*作者：*冰川
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 19/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
+【意大利】威尼托一名 18 岁男子 Davide Bristo 在接种辉瑞 COVID-19 疫苗后的第 27 天死亡。
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
+Davide 是一名排球运动员， 6 月 17 日接受第一针疫苗，大约 3 周后的 7 月 10 日，他开始感到剧烈头痛。 Davide 的父母将他送往医院诊治，可惜，医生为他做了几项测试之后，认为无大碍，他就出院返家，从入院到出院，只有一个小时。
 
-# ***今日摘要***
+翌日早上， Davide 迟迟没有步出房间，母亲试图开门叫醒他，发现了他已经再也不会醒了。经验尸官初步认定，死者死于**急性心肌缺血，**但暂未发现死者有心脏病，致死原因不明。
 
-1. 中国持有的美国国债暴跌至10年低点
-2. 大银行终于认识到，恒大只是中国经济危机的开始
-3. 西南航空员工抗议强制疫苗
-4. 亿万富翁连锁超市老板警告食品价格将 “大幅 “上涨
+![](https://assets.gnews.org/wp-content/uploads/2021/10/螢幕截圖-2021-10-19-下午3.13.53.png)
 
+目前，当地副检察官 Alberto Primavera 已就 Davide 的猝死对医生展开了过失杀人调查。值得留意的是，该则新闻的留言区，大批网友认为“死者接种了一样东西， 没有提及，像很多年轻人一样，心肌炎、心包炎，这是禁言，不能说？”
 
-# 重要事件
+![](https://assets.gnews.org/wp-content/uploads/2021/10/37-1.jpg)
 
-- ** 10.18. Zerohedge：**[中国的美国国债持有量在8月抛售后暴跌至10年低点 China’s US Treasury Holdings Plunge To 10 Year Lows After Dumping In August](https://www.zerohedge.com/geopolitical/chinas-us-treasury-holdings-plunge-10-year-lows-after-dumping-august)
-由于来自日本的需求使该国的国债库存创下历史新高，8月份外国持有的美国国债增加到创纪录的7.56万亿美元。所有的资产类别都出现了净买入。外国央行和储备管理人（石油出口国）大量抛售国债，减少了209亿美元，而私人实体买入了高达516亿美元–是2018年8月以来的第二大买入。事实上，外国央行已经连续4个月抛售美国国债…
+来源｜[个案037](https://www.ilgazzettino.it/nordest/belluno/ischemia_ragazzo_morto_sedico_davide_bristot_funerale_oggi_inchieste_aperte-6093800.html)
 
-英国也是一个主要的买家–也将其持有的美国国债推到了历史最高水平。但最大的头条新闻是，中国在8月份抛售了超过210亿美元的国债（最新的TIC数据），将其总体持有量削减至2010年8月以来的最低点，而且在去美元化的交易中没有任何松动的迹象……
-- ** 10.18. Gateway Pundit：**[大银行终于认识到，恒大只是中国经济危机的开始 Big Banks Are Finally Recognizing that Evergrande Is Only the Beginning of the China Economic Crisis](https://www.thegatewaypundit.com/2021/10/big-banks-finally-recognizing-evergrande-beginning-china-economic-crisis/)
-今天大银行瑞银和巴克莱终于承认，恒大的偿债能力问题只是中国经济危机的一小部分。瑞银和巴克莱表示，房地产开发商恒大的持续危机正在感染更广泛的中国经济，他们警告说2021年的增长将大大低于之前的预期。这两家银行表示，恒大迫在眉睫的违约正在挤压更广泛的中国房地产行业–这是中国经济增长的主要来源之一。他们还表示，中国的电力紧缩将成为一个拖累。
+* * *
 
-以首席中国经济学家王涛为首的瑞银集团分析师周一在一份说明中说：”在岸和离岸债券市场对[房地产]开发商来说仍然有效关闭，而作为现金流主要来源的销售正在下降。“巴克莱银行的分析师，包括首席中国经济学家张健，说 “由于恒大的财务困难[已经]在10月份蔓延到更多的开发商，住房市场情绪迅速恶化。”多年来，我们一直在警告中国的投资危机。我们上周了解到，目前的趋势已经比高盛公司的最坏情况更糟糕。
-- **10.18. Washington Examiner：**[西南航空员工抗议强制疫苗：”我们爱航空” Southwest Airlines employees protest vaccine mandate: ‘We are the love airline’](https://www.washingtonexaminer.com/news/southwest-airlines-employees-protest-vaccine-mandate-we-are-the-love-airline)
-周一有100多人聚集在西南航空公司达拉斯总部外，抗议该航空公司的强制疫苗。示威者包括西南航空公司的现任和前任员工以及其他相信 “医疗自由 “的人。该事件在上午8点半左右开始。这次抗议活动获得了大量的支持。周一的抗议活动是对西南航空宣布其员工必须在12月8日之前完全接种疫苗，否则就有可能失去工作的回应。
-- **10.18. Breitbart：**[亿万富翁连锁超市老板警告食品价格将 “大幅 “上涨 Billionaire Supermarket Chain Owner Warns Food Prices Will Go Up ‘Tremendously’](https://www.breitbart.com/economy/2021/10/18/billionaire-supermarket-chain-owner-warns-food-prices-will-go-up-tremendously/)
-Gristedes杂货店连锁店主John Catsimatidis周一在福克斯商业网络上发言时警告说，总统乔-拜登的政府正在努力控制不断上升的通货膨胀，食品价格将继续飙升。约翰-CATSIMATIDIS：我们都是做石油和食品生意的，所以我看到了产业链的各个环节。今天早上，我们的石油价格几乎达到84美元。我们将看到100美元的石油，看起来是这样，没有停止的迹象。你知道华尔街的首席执行官们是怎样的，他们按季度生活。如果他们的收益有一分钱的偏差，华尔街是不会宽恕的。那么，CEO们在做什么？他们正在提高价格。他们想走在曲线的前面。我看到食品价格大幅上涨，他们想走在曲线的前面，我们正在做的方式是他们放弃所有的促销活动，他们放弃了低流动性的项目。
-
-
-# 每日文贵说
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/10/1-1-1024x576.jpg)
-# 每日推特文摘
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-为什么COVID-19疫苗没能保护科林-鲍威尔
-
-
-
-
-
-> Why the COVID-19 vaccine didn't protect Colin Powell [https://t.co/90Fs6DpLpo](https://t.co/90Fs6DpLpo) [pic.twitter.com/e7nfd7Zmwc](https://t.co/e7nfd7Zmwc)
-> — New York Post (@nypost) [October 18, 2021](https://twitter.com/nypost/status/1450229178905858051?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-
-
-
-
-
-西方认为习打台湾的可能性连亿分之一都没有，除非他疯了。 但对中共和习的了解深入骨髓的郭先生认为可能性超过95%。 打赢了灭共之战，人类将走向最美好的时代！
-
-
-
-
-
-> 西方认为习打台湾的可能性连亿分之一都没有，除非他疯了。
-> 但对中共和习的了解深入骨髓的郭先生认为可能性超过95%。
-> 打赢了灭共之战，人类将走向最美好的时代！[pic.twitter.com/BH9Fr3We1J](https://t.co/BH9Fr3We1J)
-> — 瞿水台 Qu Shuitai (@QuShuitai) [October 18, 2021](https://twitter.com/QuShuitai/status/1450194917964324868?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-
-
-
-
-
-西南航空员工聚集在德克萨斯州西南总部前，抗议航空公司的疫苗规定。
-
-
-
-
-
-> 西南航空员工聚集在德克萨斯州西南总部前，抗议航空公司的疫苗规定。 [pic.twitter.com/dCMyuSnrPk](https://t.co/dCMyuSnrPk)
-> — 约翰 (@JohnDoe1284495) [October 18, 2021](https://twitter.com/JohnDoe1284495/status/1450160005819219968?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-不要忘記被中共非法抓捕的香港孩子！
-
-
-
-
-
-> 不要忘記被中共非法抓捕的香港孩子！ [pic.twitter.com/zvnIf23i4U](https://t.co/zvnIf23i4U) [https://t.co/IYbt7HKk1l](https://t.co/IYbt7HKk1l)
-> — 穎姐備用號14 (@YingJie22739040) [October 18, 2021](https://twitter.com/YingJie22739040/status/1450126466323152899?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-意大利警方出动水炮车强行清场，驱散在场示威以及罢工的工人。
-
-
-
-
-
-> [#意大利](https://twitter.com/hashtag/%E6%84%8F%E5%A4%A7%E5%88%A9?src=hash&amp;ref_src=twsrc%5Etfw) 🇮🇹 警方出動水炮車強行清場，驅散在場示威以及罷工的工人。 [https://t.co/Wem7yDfHzr](https://t.co/Wem7yDfHzr)
-> — Nikki (@nikki\_miumiu) [October 18, 2021](https://twitter.com/nikki_miumiu/status/1450184945041743873?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-
-*编辑：冰川
-审核发布：文顾*
+他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//
