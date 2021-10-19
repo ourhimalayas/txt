@@ -2,28 +2,15 @@
 ---
 
 
-## 有声|法官暂时阻止对加州监狱工作人员的强制疫苗要求
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1604354/)
+## 狮城快讯：新加坡被美国列为中共病毒最高危险级别的国家
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1604379/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+**撰稿：小坡**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-19-220136.jpg)
+本周一（10月18日）美国疾病控制与预防中心 (CDC) 将其对新加坡的建议级别调整为 4 级，即最高危险级别。 CDC 说：“由于新加坡目前的情况，即使是完全接种疫苗的旅行者也可能感染和传播中共病毒。”
 
+美国国务院周一也发布了类似通知，敦促人们不要轻易前往新加坡。 CDC 使用旅行健康通知，通过四级咨询系统提醒旅行者注意世界各地的健康威胁。 该系统通过考虑近期中共病例数和新病例轨迹等因素对目的地进行分类。
 
-零对冲10月17日报道，加州克恩县法官巴曼在10月13日发布一项临时限制令，暂时阻止了对加州监狱工作人员的强制疫苗要求。
+美国CDC的福奇难道不看李显龙的演讲吗？我们都和病毒共存了，新加坡一直都是按照福奇老人家的指导一路走过来的啊，不让吃羟氯喹，疫苗一针不行两针，两针不行，再加强针，而且绝大多数都是打的你们美国CDC推荐的疫苗啊。如今我们每天几千人感染，全都是美国CDC和辉瑞的功劳啊！怎么还说新加坡“危险”呢？新加坡政府从来都是说我们是控制病毒最好的国家，人死了多少嘛…. 咳咳，好像也不多啊，反正没有像美国鲍威尔将军那么有名的人死了，民众就觉得一点都不危险啊，福奇博士请出来走两步，为啥说我们新加坡危险呢？
 
-加州的新冠疫苗强制令在10月15日生效。加州治安官员协会，代表全州约两万八千名官员，反对在全州范围内实施强制疫苗措施。在其最初提交法院的文件中说，大范围强制接种疫苗的时间点，与近几个月监狱内以及整个州内，中共病毒感染率大幅下降的现象并不相符。截至9月10日，加州有240名囚犯、39名监狱员工死于中共病毒。但在过去的14天里，只有178个新病例。 因此，法院应抵制强制接种疫苗的要求。
-
-加州囚犯和监狱雇员总共约有五万一千个中共病毒确诊病例。中共病毒病例的大量出现导致许多加州囚犯被加速释放。
-
-文字版原文：[法官暂时阻止对加州监狱工作人员的强制疫苗要求](https://gnews.org/zh-hans/1601507/)
-
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**[新闻来源](https://www.straitstimes.com/singapore/us-raises-covid-19-travel-alert-for-singapore-to-highest-risk-level)**

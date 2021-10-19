@@ -2,46 +2,33 @@
 ---
 
 
-## 魁北克推迟卫生工作者接种疫苗的任务，但抗议活动仍在继续
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1604653/)
+## 完全接种COVID疫苗的前美国国务卿死于 COVID 并发症
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1604726/)
 
-作者：Alexandra Lavoie
+据《新闻大全》2021 年 10 月 18 日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-13.png)图片来源于网络
+美国第一位黑人国务卿科林鲍威尔死于 COVID-19 并发症。
 
-2021 年 10 月 15 日应该是魁北克未接种疫苗前线工人的最后期限。
+科林·鲍威尔是牙买加移民的儿子，他成为美国第一位黑人国务卿和高级军官。
 
-那天有数千人准备被解雇。
+他的家人说，尽管他已经完全接种了COVID-19疫苗，但他还是死于该病的并发症。
 
-然而，就在截止日期前两天，我们的卫生部长克里斯蒂安·杜贝决定再给予一个月的宽限期，以鼓励这些工人去接种疫苗。
+民主党人以及鲍威尔的共和党同僚，包括前总统乔治·W·布什，都纷纷表示哀悼。
 
-尽管有这种延误，但这一变化丝毫没有阻止医护人员在弗朗特纳克城堡前达弗林露台上的示威，以表达他们的声音。
+“布什在一份声明中写道：“许多总统依赖鲍威尔将军的建议和经验。”他是总统们的最爱，以至于他获得了总统自由勋章–两次。“
 
+英国前首相托尼-布莱尔（Tony Blair）回顾了鲍威尔的自嘲式幽默，他对员工的善意，以及他 “愿意为了国家的利益跨越党派分歧”的精神。
 
+布莱尔说：“多年来，科林是美国军事和政治领导层的一个重要人物，他能力超群，为人正直，性格非常可爱和热情。”
 
-> Château Frontenac, terrasse Dufferin, Old Québec. Frontline workers from all sectors are gathered to protest against the Mandatory Vaccination.[https://t.co/hCaNShGwhQ](https://t.co/hCaNShGwhQ) [pic.twitter.com/tgMKIpfJ3x](https://t.co/tgMKIpfJ3x)
-> — Alexa Lavoie (@ThevoiceAlexa) [October 15, 2021](https://twitter.com/ThevoiceAlexa/status/1449069536435707908?ref_src=twsrc%5Etfw)
+几十年来，鲍威尔是美国最重要的黑人人物之一。他被三位共和党总统任命为高级职位，并在美国军队在经历了越南战争的创伤后重新获得活力时达到了顶峰。
 
+在越南受伤的鲍威尔在1987年至1989年期间担任罗纳德-里根总统的美国国家安全顾问。作为一名四星陆军上将，他在1991年海湾战争期间在乔治-H-W-布什总统手下担任军方参谋长联席会议主席，在这次战争中，美国领导的部队将伊拉克军队从邻国科威特驱逐出去。
 
+鲍威尔是一个温和的共和党人和实用主义者，他曾考虑在1996年成为第一位黑人总统，但他的妻子阿尔玛对他的安全的担忧帮助他作出了不同的决定。2008年，他与他的政党决裂，支持民主党人巴拉克·奥巴马，后者成为第一个当选白宫的黑人。
 
-一些抗议者身着制服，其他人则在海报上展示了他们的专业背景。这是一个非常情绪化的事件，有令人难以置信和感人的证词。
+【本文仅代表作者个人观点，与Gnews无关】
 
-当活动家弗朗索瓦·阿马莱加在一次演讲中提议通过继续在魁北克医院前的示威活动来证明魁北克省禁止在医院外抗议的新法律是荒谬的时，这场示威发生了意想不到的转变。 最终，这一天充满了波折。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/魁北克1.png)
-來源：[https://www.rebelnews.com/quebec\_delays\_health\_worker\_vaccine\_mandate\_but\_protests\_continue](https://www.rebelnews.com/quebec_delays_health_worker_vaccine_mandate_but_protests_continue)
+原文链接：[https://www.newsmax.com/headline/colin-powell-dies-covid-complications/2021/10/18/id/1040894/](https://www.newsmax.com/headline/colin-powell-dies-covid-complications/2021/10/18/id/1040894/)
 
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+翻译：烟波浩淼 |校对：雨山溪桥客 | 编辑&发布：黎明的光芒

@@ -2,29 +2,30 @@
 ---
 
 
-## 俄外长宣布暂停俄驻北约代表处的工作
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1604448/)
+## 叶刘淑仪话音未落, 抗议北京冬奥会的邵岚获释
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1604491/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+作者：七哩香
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+17日，香港学生代表邵岚与西藏女学生Tsela Zoksang 在希腊雅典参与了呼吁抵制北京冬奥的抗议活动，遭希腊警方拘押但已于18日获释。此前港共官员 叶刘淑仪得知此消息后，在社交平台发帖称，“邵岚是流亡海外的香港社运人士，是时候让她尝尝民主发源地的希腊警方，是如何对待滥用表达自由了!”这位前保安局长话音未落,邵岚已经获释。
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/u.jpg)thescotfree.com
-美东时间10月19日报道，美国国务院发言人内德∙普莱斯（Ned Price）表示，北约对俄罗斯的政策保持不变，联盟仍然需要应对俄罗斯的“侵略”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-18.jpeg)
 
-普莱斯称，“北约对俄罗斯的态度保持不变，联盟加强了遏制和防御能力，以应对俄罗斯的侵略行动，但同时为有意义的对话敞开大门。”
+2019年反送中运动期间，中共独裁极权操控下的港共警方滥用暴力, 对抗争者残杀虐待, 致使近2万人伤亡失踪。邵岚所属的香港学界国际事务代表团，向多个国家和联合国人权理事会发出声讨控诉,  中共香港政府的所谓”执法”，与民主国家早已是天壤之别!  叶刘淑仪不仅嘲笑受害港人，还以为”天下乌鸦一般黑”, 结果一天就被打脸。以她为代表的一众港共帮凶,实为香港人的耻辱和败类!
 
-10月18日下午，俄罗斯外交部长谢尔盖∙拉夫罗夫宣布暂停俄罗斯驻北约代表处的工作。拉夫罗夫称，联盟现在如果想与莫斯科接触，需要联系俄罗斯驻比利时大使。
+(本文仅代表作者观点)
 
-此外，拉夫罗夫表示，俄罗斯将暂停北约驻莫斯科军事联络处的活动，并停止北大西洋联盟信息处的工作，该处是在比利时大使馆下设立的。
+参考链接：[邵岚希腊抗议冬奥旋即获释 香港前保安局长遭打脸](https://www.rfi.fr/cn/人权/20211019-邵南希腊抗议冬奥旋即获释-香港前保安局长遭打脸)
 
-拉夫罗夫强调，“采取这些措施是为了回应北约决定撤销对俄罗斯常驻联合国代表团几名雇员的许可。就在今天，我们宣布了这样的措施。我们已经通知了北约国际秘书处，上述机构的工作将从11月1日起暂停。”
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-10月6日，北约宣布驱逐俄罗斯代表团的8名成员，并取消另外两名成员的职务，自此俄罗斯常驻代表团从20人减少到10人。这一决定是针对俄罗斯的“敌对行动”作出的，北大西洋联盟怀疑被驱逐的外交官在为俄罗斯情报部门工作。
+新闻访谈终审：文龍
+编辑/校正/发稿：谐趣园
 
-北约发言人朗杰斯古（Oana Lungescu）表示，“该集团对莫斯科的政策是一致的，由于俄罗斯的“侵略行动”，联盟加强了防御。北约已经准备好进行对话，特别是在北约-俄罗斯理事会的框架内，她称该平台是重要的对话平台。“
-
-俄罗斯驻北约的代表处于1998年在布鲁塞尔设立，在2012年至2018年代表职位由格鲁什科∙亚历山大∙维克托罗维奇担任。自从这位外交官离开这个职位（2018年1月）以来，这个职位一直空缺。北约驻莫斯科新闻处于2001年开始运作。
-
-参考链接：
-
-[https://www.rbc.ru/politics/19/10/2021/616dd60b9a79471bc9d74730?from=from\_main\_9](https://www.rbc.ru/politics/19/10/2021/616dd60b9a79471bc9d74730?from=from_main_9)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

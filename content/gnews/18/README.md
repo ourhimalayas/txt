@@ -2,29 +2,54 @@
 ---
 
 
-## 中共透过“运动式执法”迫害新疆
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1604642/)
+## 据称泄露的加拿大政府备忘录告诉员工不要说“加油吧布兰登”
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1604685/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+作者：Efron Monsanto
 
-据德国之声10月19日报道，澳大利亚战略政策研究所 (Australian Strategic Policy Institute)发布了一份新疆报告，揭露中共在新疆如何透过“运动式执法”的治理模式来迫害与打压维吾尔人与其他少数民族。
+一份据称来自加拿大政府打印出来的备忘录昨天在推特上疯传，警告员工不要使用“加油吧布兰登（Let’s Go Brandon）”这句话，否则有被解雇的风险。
 
-据悉，这份报告引用了上千个从新疆泄漏出来的警察报告以及其他官方文件，发现中共在新疆所运用的治理模式，与毛泽东时代推动的“运动式执法”有许多相似之处。报告作者写道，除了之前已揭露的大规模关押与强迫劳动之外，新疆当地居民还会被强迫参与所谓的“政治性剧场”，包含公判大会、揭批、宣示、政令宣导课程以及喊口号。
+阿尔伯塔研究所所长彼得麦卡弗里将备忘录的一个版本发布到推特上，据称该备忘录显示了加拿大共享服务部泄露的备忘录，该机构向联邦政府提供提供满足加拿大人需求数字和IT 服务。
 
-此外，澳大利亚战略政策研究所的研究员还发现，中共在新疆迫害维吾尔人的过程中，透过推动5种关键政策将共产党的党政系统深入到维吾尔人的生活中。这5个关键政策包含了在社区设置警务室、推动网格化管理、推广访惠聚、建立“三位一体工作机制”以及推动“十户联防”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Brandon-1.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/58619783_303.jpg)图片来自于网络
+备忘录写道：“具体来说，加拿大公共服务部门禁止在任何情况下使用‘加油吧布兰登（Let’s go Brandon）’一词及其任何变体。”
 
-报告中还写道：“这些政策赋予了新疆的社区和村干部特殊的权力，让他们可以对居民的行动和情绪进行监控，从而制造令人害怕的氛围。一名维吾尔族青少年在社交媒体上发表关于对生活无望的帖子，就会被认为是对区域稳定造成威胁，也让他成为当地警察的目标。”
+备忘录还说，任何员工提及这句话“都将成为立即解雇的理由，没有追索权或工会代表。”
 
-另外，报告作者之一的澳洲乐卓博大学(La Trobe University) 中国民族政策教授雷国俊 (James Leibold) 告诉德国之声，新疆以社区为基础的控制机制是中共推动加强基层治理的一部分，这个治理模式旨在动员群众帮助消除异议和不稳定，提高中国共产党在社会底层的统治力。
 
-*注：本文仅代表作者观点，与 Gnews无关*
 
-*参考链接：*
+> Lets Go Brandon … LOL [#LetsGoBrandon](https://twitter.com/hashtag/LetsGoBrandon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/kZpIyyxjTk](https://t.co/kZpIyyxjTk)
+> — Javy Foxtrot (@JavyFoxtrot17) [October 11, 2021](https://twitter.com/JavyFoxtrot17/status/1447543009483055105?ref_src=twsrc%5Etfw)
 
-[澳智库：中国透过“运动式执法”强化新疆基层统治力](https://www.dw.com/zh/%E6%BE%B3%E6%99%BA%E5%BA%93%E4%B8%AD%E5%9B%BD%E9%80%8F%E8%BF%87%E8%BF%90%E5%8A%A8%E5%BC%8F%E6%89%A7%E6%B3%95%E5%BC%BA%E5%8C%96%E6%96%B0%E7%96%86%E5%9F%BA%E5%B1%82%E7%BB%9F%E6%B2%BB%E5%8A%9B/a-59544446)
 
-* * *
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+口号“加油吧布兰登”是一个流行的模仿，背景是现场观众高呼的那句全美熟悉的热搜词“X 乔·拜登（F \*\*\* Joe Biden）”。一位NBC记者正在 NASCAR赛车活动中采访车手布兰登·布朗，当时后面的口号爆发了。然而，NBC的记者声称口号是“加油吧布兰登”，此后被称为损害控制的一种形式。
+
+我联系了加拿大共享服务部的评论，它首先回应要求提供一份未经编辑的信件副本，并知道我是为哪个网站写稿的。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Brandon-3.png)
+
+下午晚些时候，加拿大共享服务部回应并在给反叛新闻的一份声明中澄清说：“我们可以确认这条消息不是由加拿大共享服务部发布的，也没有相关部门政策。”
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Brandon-4.png)
+
+來源：[https://www.rebelnews.com/debunked\_alleged\_leaked\_canadian\_gov\_memo\_tells\_employees\_to\_not\_say\_let\_s\_go\_brandon](https://www.rebelnews.com/debunked_alleged_leaked_canadian_gov_memo_tells_employees_to_not_say_let_s_go_brandon)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

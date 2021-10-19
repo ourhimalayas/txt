@@ -2,52 +2,35 @@
 ---
 
 
-## 关注中共国的国内生产总值GDP和欧美的采购经理人指数PMI
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1604487/)
+## 加州家长抗议对在校学生强制接种新冠疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1604504/)
 
-编译：喜妹
+作者：雪梨
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+本周一数千名学生家长，齐聚州议会大厦，抗议加州州长的学生接种强制令。
 
-本周是衡量世界不同地区经济复苏步伐的时候了，因为冠状病毒大流行病已经逐渐好转。周一带来了本周的亮点之一，中国第三季度的国内生产总值GDP数据将被公布。
+在加州首府沙加缅度的议会大厦门外，聚集了数千人，有来自本地及附近城镇，如旧金山湾区的人们，还有距离五百英里以外，圣地亚哥社区的家长们。当天，很多学生没有去学校，选择留在家里，以示抗议。
 
-据彭博社报道，市场预计这次将确认这个亚洲巨人的经济增长速度明显放缓，因为它预计GDP同比增长将降至5%，这是去年第三季度以来的最低增长速度。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-8.jpeg)
 
-如果中国最终公布的GDP增长远远低于普遍共识预测，无论是上升还是下降，都有可能在该地区的股市中产生另一天的波动。
+本月1号，州长加文·纽森宣布，在FDA全面批准为12岁以上的青少年接种疫苗后，加州7-12年级，即12岁到18岁的学生将首先全面开始接种疫苗，幼儿园至六年级，即12岁以下的儿童在下一阶段执行。儿童对新冠病毒风险极低，几乎免疫，但接种新冠疫苗却会导致各类疾病，甚至伤及生命。接种毒针疫苗后，健康青少年死亡的案例一直在增加。
 
-安联国际解释说：“周一对亚洲投资者来说很重要，预计报告将显示中共国GDP大幅放缓，从第二季度的7.9%降至第三季度的5.5%”。
+爆料革命和无数不畏强权，选择挺身而出发声的医护人员、以及科学家，包括前辉瑞公司副总裁耶登博士，一再对世人发出警告。越来越多的家长已经觉醒，从对疫苗危害的担忧，升级为付诸于实际行动，强烈反对强制疫苗接种。
 
-中国的房产价格可能变得更加关键
+(本文仅代表作者观点)
 
-“在最近关于中国能源和建筑行业问题的报道之后，中共国的工业生产、固定资产投资和家庭价格数据可能具有更大的意义”他们提醒说，这指的是最近几周成为众多头条新闻的房地产危机，开发商恒大以及该行业的其他公司都处于破产的边缘。
+参考链接：[Parents Rally Statewide To Protest Newsom’s School COVID Vaccination Mandate](https://sanfrancisco.cbslocal.com/2021/10/18/parents-rally-statewide-to-protest-newsoms-school-covid-vaccination-mandate/)
+[Thousands Gather at California State Capitol to Protest Newsom’s School Covid Vaccine Mandate (VIDEO)](https://www.thegatewaypundit.com/2021/10/thousands-gather-california-state-capitol-protest-newsoms-school-covid-vaccine-mandate-video/)
 
-这并不是中国下周要公布的唯一重要的宏观经济数据，因为同样在周一，中国9月份的工业生产速度将被知晓，预计将同比下降至3.8%，而前一个月为5.3%。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-在欧洲和美国的活动
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
 
-本周开始时将关注中共国，结束时将关注美国和欧元区市场，因为这两个地区的10月份采购经理人指数PMI将在周五公布。
-
-在美国，分析师的预测指出，如果预估准确的话，今年第十个月的工业活动（制造业PMI）将略有放缓，从9月的60.7降至60.5。同时，预计服务业将略有回升，估计为55.1点，而上个月为54.9点。
-
-要知道通货膨胀即使不是最大的因素，也是最令人担忧的事情之一。
-
-根据彭博社的市场预估，欧洲的经济活动增长前景，将从9月的58.6略微放缓至10月的57。对于服务部门的前景是55点，低于上个月的56.4点。
-
-就欧元区而言，周三是该地区投资者的另一个重要日子。9月通胀数据的最新修正，预计将确认该月同比增长3.4%。要记住，通货膨胀即使不是最大的因素，也是目前投资者最大的担忧之一。
-
-着眼于能源方面
-
-在这一领域，能源价格目前特别重要，因为它们与最近几个月发生的通货膨胀的上涨有很大关系，天然气在欧元区创下历史新高，电价在最近几周飙升到前所未有的水平。因此，周三公布的美国石油和天然气库存数据也值得一提，因为它可能在本周对这些能源资源的价格产生影响，在一个特别微妙的时刻。
-
-一些分析家，如美国银行，不排除天然气高价格可能持续数年：“我们认为，世界各地天然气开发的延迟可能导致市场在2025年之前一直处于非常紧张的状态”，美国银行解释说。
-
-在接下来的几天里，美联储还将在周三发布白皮书，该机构在书中公布了对国家经济状况的详细评估。
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**参考资料：**[eleconomista.es][Pendientes del PIB de China y los PMI en Europa y EEUU](https://www.eleconomista.es/mercados-cotizaciones/noticias/11433750/10/21/Pendientes-del-PIB-de-China-y-los-PMI-en-Europa-y-EEUU.html)
-
-* * *
-
-*审核：蚂蚁兄弟
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
