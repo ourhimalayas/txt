@@ -2,159 +2,56 @@
 ---
 
 
-## 为避经济危机美国的浅薄与疯狂
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602972/)
+## 青蒿素及其衍生物在心血管疾病中的应用
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1603030/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/331-azahh-pwlkr.jpg)
-[https://gtv.org/video/id=616d93d8d2e2b8174876c1fa](https://gtv.org/video/id=616d93d8d2e2b8174876c1fa)
+作者：纽约香草山农场 – 善良的城君
 
-**郭文贵**
-**Miles Guo**
 
-房地产这个雷是一定要炸死人的
-La mina inmobiliaria seguro matará gente
 
-只是谁的尸体
-Sobre el cadáver de quién
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-现在美国佬疯狂在哪里
-Dónde está la locura de los jefes estadounidenses
 
-跟中共的勾兑当中
-Dentro de la vinculación con el PCCh
 
-你继续买我国债
-Tu sigues comprándome la deuda nacional
+前言：青蒿素及其衍生物除了可以抗疟疾外，对心血管系统也具有保护作用。青蒿素通过增加收缩型血管平滑肌细胞基因表达、干扰心室肌细胞动作电位、抑制心肌间质纤维化等机制，具有抑制动脉粥样硬化、抗心律失常、抑制心肌梗死等作用，为临床治疗心血管系统相关疾病提供新思路。
 
-多么多么的浅薄
-Es tan pero tan superficial
+![](https://lh3.googleusercontent.com/proxy/vjqlLmBwl3vF121sV4FWar3c2AckA6_BkfRQJ2rbtzOMwFRjjHsSoiNEFSKfIV3Vx_FCEcOAIKKYV4LYgitVVmWzUQ6cXUGqdpNyn_JTQltLDJfoRmt-nU1ln0lXSBYPvw)图源网络
 
-你真以为美国人就很伟大是吗
-Tu de verdad crees que los estadounidenses son grandiosos?
+* * *
 
-你觉得他们去干这种事
-Tu crees que ellos al hacer este tipo de cosas?
+青蒿素是从菊科植物青蒿中提取分离的一种具有过氧桥的倍半萜内酯类化合物，其衍生物主要包括双氢青蒿素、青蒿琥酯、蒿甲醚等。青蒿素及其衍生物是经典的一线抗疟疾药，还具有抗肿瘤、抗炎、抗病毒、抗菌、抗纤维化以及治疗系统性红斑狼疮等多种药理作用。研究发现，青蒿素及其衍生物在心血管领域也有治疗作用。
 
-你觉得他有视野吗
-Implica que ellos tienen visión?
+1. 青蒿素与动脉粥样硬化：动脉粥样硬化的发展与血管平滑肌细胞表型转化有关。研究表明，青蒿素可减少动脉粥样硬化小鼠模型主动脉粥样斑块面积。
+2. 青蒿素与心律失常：青蒿素具有抗心律失常作用。有发现称，青蒿素通过干扰心室肌细胞外向整流电流，发挥抗心律失常功能。此外，研究发现，青蒿素能降低心力衰竭（心衰兔）的心率。
+3. 青蒿素与心梗：有研究表明，通过结扎大鼠冠状动脉左前降支构建动物心梗模型，分别给予青蒿素和羧甲基纤维素治疗。四周后发现，青蒿素治疗组的大鼠生存率明显高于羧甲基纤维素组。这表明青蒿素在心梗后交感神经重构中的潜在应用价值。
+4. 青蒿素与慢性心力衰竭：青蒿素具有改善心衰的作用。实验表明，在心衰兔模型中，与模型组比较，青蒿素组提示青蒿素可明显改善心衰兔的心功能。
+5. 青蒿素与糖尿病性心肌病：糖尿病性心肌病以心肌纤维化、心脏代谢失调、左室结构和功能改变为特征，最终进展为心衰。青蒿素可减轻糖尿病心肌病心肌纤维化，明显改善心脏收缩功能，在一定程度上改善心脏舒张功能。
+6. 青蒿素与其他心血管病：有发现称，青蒿琥酯可治疗人疱疹病毒所致的病毒性心肌炎。儿童心肌炎患者经青蒿琥酯治疗后，临床症状和心功能改善且无药物不良反应。青蒿素及其衍生物可显著降低细胞炎性因子水平，进而减少因炎性因子对心血管系统造成的损害。
+7. 青蒿素的适用患者：安全性方面，疟疾患者治疗结果的分析已证实青蒿素的安全性。大量研究已表明，青蒿素及其衍生物在心血管疾病治疗方面具有一定作用，但起作用机制尚不清楚，有待于进一步探索。
 
-我问一个美国朋友
-Yo le pregunte a un amigo de EE. UU
 
-你觉得共产党现在给你撑个半年一年
-Tu crees que ahorita el PCCh te soporta por medio o un año
+* * *
 
-让它慢点倒 它永远不倒了吗
-Para que no se caiga y no caerá nunca?
+编者注：具体药物的使用方式请咨询医生。GNews文章不提供任何用药参考。
 
-你继续印钞票就能解决问题吗
-Puedes resolver el problema imprimiendo billetes?
+（本文仅代表作者观点）
 
-就解决你的流动性
-Podrá solventar tu fluidez
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
 
-和你国债的整个的天花板的问题吗
-Con tu deuda nacional ha llegado al límite máximo de problemas
+***编辑/校对/发稿：Irene木木***
 
-这个太不要脸了
-Esto es demasiado sin vergüenza
+**更多资讯，更多关注**
 
-这就是中国人被奴役你知道中国人真的是很可怜
-Esto es el por qué los chinos son esclavizados, de verdad es muy lamentable
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-真的说白了
-En pocas palabras
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-人家喊两嗓子叫几声
-Esa gente te llama o alza la voz
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-就像对香港 新疆一样
-Así como hicieron con Hong Kong y Sinkiang
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-都是拿来做政治筹码
-Lo usan como ficha política
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-你看看这个美国人
-Mira los estadounidenses
 
-现在这个时候
-Ahora en estos momentos
 
-就为了自己明年中期大选经济别倒
-Solo para que no quiebre la economía en las Elecciones de medio mandato del año que viene
-
-台湾你就打了吧
-Ataca a Taiwán si deseas
-
-弄回去吧
-Llévatelo
-
-经济这块 地产不要倒了
-Pero la parte de la economía e inmobiliaria no se puede caer
-
-继续给我们撑着
-Sigue apoyándolo por nosotros
-
-不要烂账
-No hagas cuentas pasadas
-
-而且竟有人私下承诺
-Además, hubo alguien que prometió por privado
-
-我们可以把这些基金让他们给你延期
-De poder extender la fecha de estos fondos
-
-也就是在西方从来没发生的
-Quiere decir hacer como si no pasó nada en el occidente
-
-也就是说 借新还旧
-En pocas palabras pedir préstamo nuevo para reembolsar lo viejo
-
-这就是西方经济方面的
-Esto es en la parte económica del occidente
-
-这种疯狂
-Este tipo de locura
-
-就为了短期的政治利益
-Sólo por los beneficios políticos a corto plazo
-
-宁可借新还旧
-Prefieren un préstamo nuevo y reembolsar lo viejo
-
-花样年、合生创展、富力
-Fantasía Holdings, Hopson Development, R&F Properties
-
-李思廉都已经找着基金了
-Li Silian ya consiguió fondos
-
-你不让我借新还旧老子就要死给你看
-Si no me dejas pedir préstamo nuevo para reembolsar lo viejo entonces me suicidaré
-
-你像那融创
-Así como Sunac
-
-你不让（我借新还旧）我就死给你看
-Si no me dejas (pedir préstamo lo nuevo para reembolsar lo viejo) me suicido
-
-———————————————————
-
-**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1447866395929178124?s=24](https://twitter.com/se1y7cblljselva/status/1447866395929178124?s=24)
-
-日期: 10/17/2021
-原视频标题：
-La superficialidad y la locura de Estados Unidos para evitar la crisis económica
-原视频日期: 10/12/2021
-任务编号：KC180（2528）
-视频时间段：0:00-1:52
-
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)

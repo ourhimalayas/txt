@@ -2,12 +2,9 @@
 ---
 
 
-## 美国前国务卿鲍威尔接种疫苗后，仍感染中共病毒死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1603047/)
+## 不能让中共的暴政扼杀香港人心中的自由之火
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1603093/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1019-scaled.jpg)
-（文章仅代表作者个人观点，与GNEWS无关）
+10/14/2021 克里斯托弗·史密斯: 我们必须回到与被压迫者而不是压迫者团结一致的立场。我们不能让习近平及中共的暴政扼杀了香港人心中的自由之火。
 
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

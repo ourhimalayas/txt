@@ -2,49 +2,43 @@
 ---
 
 
-## 美国前国务卿科林-鲍威尔死于COVID并发症
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1602962/)
+## 短视频：恐惧自由民主，中共不惜毁掉香港
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1602996/)
 
-作者：纽约香草山福音部 – Lilian89
+#### 翻译：文扬
+听写核对：Lish
+编辑：文泓
+剪辑字幕：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-9.jpg)
+图片来源：新唐人
 
+目前香港的街头运动有真正的希望吗？你能看到蓝天吗？
 
+香港的街头运动没有希望，我看不到任何蓝天，除了看到香港精神的余晖，这还真是了不起，我的意思是，当我们在6月被迫关停报社时，我们印了100万份报纸，是我们通常印数的10倍以上，它们在几小时内就被卖光了。凌晨三点，几千人为了购买最后一份报纸在街上排队。苹果日报的总部围了几千人，为记者们欢呼。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
+我认为，这是一个非凡的时刻，这是一个非常、非常重要的时刻。因为这表明，一个中共国城市的人民想要自由，即便面对中共他们也会站出来说，他们想要在一个开放和公平的社会中做自由和民主的公民。这一直是中共所恐惧的。我想，现在他们已经决定通过毁掉一个自由的香港来消除这种恐惧。
 
+让我们谈一谈报社的话题，因为你的企业《苹果日报》被中共称为非法组织。这很可笑，不是吗？
 
+我认为这很疯狂。但我认为这表明中国共产党与自由世界是多么的脱节。他们不理解不同意见，他们不容忍其他观点。他们不能容忍黎智英这样做，而黎也不会退缩。而他的不退让态度，让他们抓狂。真的，中共几乎疯了，这很疯狂。
 
-10月18日上午，美国前国务卿和参谋长联席会议主席科林-鲍威尔将军因COVID-19并发症去世。
+在那一刻，当你目睹你的朋友，也是团队伙伴黎智英，被逮捕并被戴上镣铐时，你是否感到震惊？
 
-![](https://image.cnbcfm.com/api/v1/image/106961860-16345640352021-10-18t132037z_1211972680_rc2dcq9gb487_rtrmadp_0_usa-powell.jpeg?v=1634564097&amp;w=929&amp;h=523)图片来源：路透社
+真的是这样。他是个了不起的人，他知道会发生什么。他有充足的资源，而他选择留在香港。现在，我不知道如果我在香港会怎么样。但我不想生活在一个自己朋友被关在监狱里的地方。而我们这些没进监狱的人也很害怕。谁愿意生活在那样的城市？
 
-鲍威尔是牙买加移民的儿子，在里根政府时期成为美国第一位黑人国家安全顾问。此后，乔治-布什总统任命鲍威尔为参谋长联席会议最年轻的第一位黑人主席。作为主席，他在波斯湾战争期间监督了美国的沙漠风暴行动。他去世的消息传来后，美国的领导人和前同事都称赞他是一位领袖和英雄，前总统乔治-布什更是称赞他是一位“伟大的公务员”。
+我的意思是，如果中共能逮捕像黎智英这样知名度很高，具有高度原则性的商人，那么在香港还有人是安全的吗？
 
-鲍威尔的家人在Facebook上写道：“我们失去了一位杰出的、充满爱心的丈夫、父亲、祖父和一个伟大的美国人。”据悉，虽然鲍威尔患有多发性骨髓瘤，但他还是完全接种了新冠疫苗。
+香港现在没有人是安全的。这是如此困难，每个人都必须做出自我的选择，没有人能得到完整的信息。没有人知道明天早上7:30的敲门声是为了黎智英？或者是你我，你不知道敲门的人是为了谁。
 
-而今，COVID疫苗给人类带来的次生灾害正逐渐在全球范围爆发。因此，任何强制他人打疫苗的行为，都等同于谋杀犯罪。
+(本文仅代表作者个人观点，与Gnews 无关)
 
-（本文仅代表作者观点）
+视频链接：[Former journalist on the fight for free speech in Hong Kong | 60 Minutes Australia – YouTube](https://www.youtube.com/watch?v=cj7XFjq159I&amp;t=88sYouTube)
 
-参考阅读：
+**发布： 文泓**
 
-[Colin Powell, trailblazing soldier and statesman who made case for Iraq invasion, dies of Covid at 84](https://www.cnbc.com/2021/10/18/colin-powell-former-secretary-of-state-who-made-case-for-iraq-invasion-dies-of-covid-complications-at-84.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

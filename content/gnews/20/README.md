@@ -2,7 +2,9 @@
 ---
 
 
-## 10/17/2021 文贵直播： 屠呦呦相信青蒿素一定会把艾滋病、癌症以及糖尿病等人类最常见的病都解决了。这个药很可能会改变人类的命运！
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1603076/)
+## 中共违反国际协议和规范，以巩固其对香港的政治控制
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1603157/)
+
+10/14/2021 国会议员Young Kim： 中共已违反具有约束力的国际协议和规范，以巩固其对香港的政治控制。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

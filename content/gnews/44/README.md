@@ -2,29 +2,29 @@
 ---
 
 
-## 五角大楼前软件主管说，美国须付出行动打赢人工智能之战
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602448/)
+## 蓬佩奥：永远和香港人站在一起
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1602581/)
 
-【简评：】*西方情报部门评估，世界第二大经济体中共国将在未来十年内在众多新技术领域占主导地位，尤其是在人工智能、合成生物学和遗传领域。五角大楼前首席软件主管夏兰先生对『金融时报』称：“15或 25年以后，我们将没有任何机会战胜中国。在我看来，现在已经是既成事实，都结束了。”对于上述观点，爆料革命战友，我们新中国联邦人只会笑而不语，因为我们知道，中共马上就要完球蛋了。建议西方情报部门和这位前主管好好看看GTV、GETTR、GNEWS，尤其是2021年10月17日的文贵先生大直播。*
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-据《大纪元时报》2021年10月16日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/555.jpg)图片来源：大纪元时报
-“我们正在输掉这场战斗。”最近辞去美国空军首席软件主管一职的尼古拉斯·夏兰(Nicolas Chaillan)表示，美国正在输掉与共产主义中国的人工智能竞赛。
+10月17日，美国前国务卿蓬佩奥受邀出席旅美香港人的聚会后发推文表示，永远和香港人站在一起。
 
-美国公司在技术进步方面仍然领先，但他们不愿与国防部分享他们的技术。“如果我们停止对信息过度分类……他们可能很快就会看到(共产主义中国的）威胁将成为一个真正的问题，甚至会影响他们的日常生活。” 夏兰说。
+蓬佩奥17日在推文中说：“这个周末，我出席了香港美国人举办的晚餐会和纪念‘香港自由灯塔’活动，期间重申了我永远会毫不掩饰地与香港人站在一起。”
 
-夏兰说，如果美国现在不开始迎头赶上，那么由于人工智能发展的加速性质，我们将失去战胜中共国的机会。
+他还为推文配上图片，其中一张照片显示他在一个大型会场演讲，会场上悬挂了美国国旗和“光复香港、时代革命”的标语。
 
-原文连接：[https://www.theepochtimes.com/nicolas-chaillan-former-pentagon-software-chief-on-what-the-us-must-do-to-win-china-ai-battle-before-point-of-no-return\_4052569.html](https://www.theepochtimes.com/nicolas-chaillan-former-pentagon-software-chief-on-what-the-us-must-do-to-win-china-ai-battle-before-point-of-no-return_4052569.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211018225359.png)图片来自于网络
 
-（本文评论仅代表个人观点）
+此外，蓬佩奥在演讲前录制的一段视频中说，他会在演讲中阐述美国人如何抵抗专制政权。
 
-翻译/评论：洛杉矶盘古农场 – 钢蛋儿
+蓬佩奥在任内尖锐批评中共政权对内侵犯人权、对外恶性扩张的行为。在去年6月30日北京强行在香港实施国家安全法之后，蓬佩奥推动川普政府对北京和香港官员实施制裁，并终止了美国对香港的特别关系。
 
-校对/编辑：洛杉矶盘古农场 – 明子
+*注：本文仅代表作者观点，与 Gnews无关*
 
+*参考链接：*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[蓬佩奥出席旅美港人聚会：共同抵抗中共专制](https://www.voachinese.com/a/pompeo-hong-kong-expats-20211018/6274798.html)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*
