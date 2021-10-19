@@ -2,59 +2,36 @@
 ---
 
 
-## COVID-19最新情报｜美参议员Ted Cruz：拜登授权强制接种疫苗 侵害人权
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1603909/)
+## 朝鲜测试弹道导弹
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1603989/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-60.jpg)
-美国德克萨斯州共和党籍参议员Ted Cruz在推特上表示，他认为拜登总统在九月发布的强制接种命令，是侵害人权的。
+信息来源： 德国法兰克福报网页版
 
-拜登针对Delta提出六大方针的[COVID-19 ACTION PLAN](https://www-whitehouse-gov.translate.goog/covidplan/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=nui,sc)（COVID-19战略计划），目的为打击新冠病毒。
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
 
-其中《[COVID-19 Action Plan With New Vaccine Mandates](https://www-aamc-org.translate.goog/advocacy-policy/washington-highlights/president-biden-announces-covid-19-action-plan-new-vaccine-mandates?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=nui,op,sc)》（新冠疫苗强制接种），要求美国境内所有拥有雇员达100人以上的雇主，强制员工接种新冠疫苗，或是每周提供阴性证明。在媒体的推广下，许多私营部门已经表示将遵循拜登发布的疫苗规定，要求员工接种疫苗。更有私营部门，因雇员未接种疫苗而予以解雇。
-
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_0906.jpg)
 
 
-> Joe Biden’s illegal vaccine mandate at work!
-> 
-> Suddenly, we’re short on pilots & air traffic controllers.[#ThanksJoe](https://twitter.com/hashtag/ThanksJoe?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wviOzLt7Iv](https://t.co/wviOzLt7Iv)
-> — Ted Cruz (@tedcruz) [October 10, 2021](https://twitter.com/tedcruz/status/1447327311095910402?ref_src=twsrc%5Etfw)
+图片来源： 视频截图
 
+根据韩国的信息，朝鲜再次测试了一枚弹道导弹。韩国军方周二宣布，平壤从新浦向海里发射了一枚的射弹。据专家称，这可能是一枚潜艇发射的弹道导弹（SLBM）。朝鲜在最近几周多次试射导弹，引发了国际关注。
 
+新浦是一个大型海军造船厂，根据卫星图像，潜艇也停泊在这里。朝鲜正在研制潜射弹道导弹，并且已经进行了水下发射试验，这一点众所周知。”韩国国家战略研究所的Shin Beom-chul说：“朝鲜很可能发射了一枚潜射导弹”。
 
-[Ted Cruz](https://en.wikipedia.org/wiki/Ted_Cruz)推特分享西南航空公司的新闻，西南航空因为遵守拜登总统发布的疫苗政策，要求员工必须接种新冠疫苗，否则不得执勤。此举间接导致了数以千计的航班被取消。大量旅客因航班取消缘故，滞留于机场航厦。
+据媒体报道，最新的导弹试验是在美国情报协调员艾薇儿-海因斯与韩国和日本同行开会之前进行的。而且，今天在首尔举行的会谈的主题是朝鲜的局势。
 
-Ted Cruz讽刺拜登总统，表示：感谢Joe（拜登总统）。
+美国的朝鲜问题特使宋金 昨天再次呼吁平壤进行会谈。他在华盛顿与韩国同行会谈后说，华盛顿对朝鲜 “没有敌意”，并希望 “不设前提条件的会晤”。
 
-西南航空针对航班取消一事，对外说明：不是因为人力短缺，而是天气因素。
+乔-拜登总统的美国政府一再强调愿意与平壤对话。美国政府官员强调，为了实现结束朝鲜的核计划，华盛顿准备在任何时候与平壤的代表在任何地方会面，并且不设前提条件。
 
-#### Ted Cruz：要求出示接种证明、阴性证明，侵犯隐私！
+另一方面，朝鲜没有表现出放弃其武器库的意愿。朝鲜的强人金正恩在9月底拒绝了会谈的提议，称美国的声明是 “廉价的把戏”。
 
-今年八月，Ted Cruz与Fox新闻主播Sean Hannity同台称：新冠疫苗接种证明是对个人隐私的侵犯。当被要求出示接种新冠疫苗的相关证明，都是对个人自由的侵犯。
+最近几周，除其他外，平壤测试了一枚远程巡航导弹、一枚短程弹道导弹，根据朝鲜自己的声明，还有一枚高超音速导弹。如果朝鲜的信息是正确的，这个被国际孤立的国家将达到其武器库升级的另一个阶段。高超音速导弹速度极快且灵活，这使得它们很难被导弹防御系统摧毁。
 
-#### COVID法西斯主义兴起，美国陷入绝对的混乱
+众多西方国家强烈谴责了这次疑似高超音速导弹试验。朝鲜在国际上基本处于孤立状态，由于其核计划和导弹计划，它受到美国和联合国的严格制裁。
 
-据[新闻报导](https://www.click2houston.com/news/local/2021/06/30/passengers-frustrated-after-southwest-airlines-cancels-thousands-of-flights/)，美国西南航空取消上千个航班，导致许多搭乘西南航空的旅客无法顺利启程，并且滞留于机场航厦中，等待西南航空安排“完全接种疫苗”的机组人员，引导旅客到目的地所需的航班。
+[https://www.faz.net/aktuell/politik/ausland/laut-angaben-aus-seoul-neuer-raketentest-nordkoreas-17591692.html](https://www.faz.net/aktuell/politik/ausland/laut-angaben-aus-seoul-neuer-raketentest-nordkoreas-17591692.html)
 
-西南航空尚未允许“未完全接种疫苗”的员工返回工作岗位。
+免责声明：本文观点只代表作者， 与Gnews平台无关
 
-#### 德州颁布“疫苗歧视禁令”
-
-德克萨斯州长签署行政命令，包含私营部门在内，禁止疫苗歧视。（[行政命令PDF](https://gov.texas.gov/uploads/files/press/EO-GA-40_prohibiting_vaccine_mandates_legislative_action_IMAGE_10-11-2021.pdf)）
-
-西南航空公司对德州的禁令表示**不会遵守**，将全力遵循拜登总统的疫苗规定。拜登总统发布的疫苗规定，希望美国人民尽最大努力接种疫苗，以维持生活、就业。
-
-- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/)
-- 相关：[新冠病毒预防、治疗方案（](https://vladimirzelenkomd.com/prophylaxis-protocol/)Zev Zelenko 博士）
-- 相关：[印度德里使用伊维菌素，确诊病例下降97%](https://gnews.org/zh-hant/1570870/)
-
-
-白宫目前正在考虑将“美国境内航班旅客”也纳入强制接种范围，若白宫确定将境内航班旅客纳入强制接种范围，那没有接种疫苗的人民将无法搭乘飞机。
-
-- 相关：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
-- 相关：[麥卡洛博士呼籲，不要接種新冠疫苗](https://www.wnd.com/2021/05/prominent-physician-dont-get-covid-shot/)（完整采访）
-
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-92.jpg)
-[原文](https://www.naturalnews.com/2021-10-16-cruz-calls-biden-covid-vaccine-mandate-illegal.html)￨转译 台湾宝岛农场 zhong
-（一切内容以原文为主，转译仅供参考）
+编辑发布： Shuizhuyu

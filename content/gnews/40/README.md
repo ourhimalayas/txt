@@ -2,63 +2,181 @@
 ---
 
 
-## COVID-19最新情报｜拜登授权雇主强制员工接种的命令，违宪！
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1603900/)
+## 郭先生10年前的布局，未来新科技无限, G系列前景无限
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1603961/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/102.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2529.png)
+[https://gtv.org/video/id=616e7207d2e2b8174876fbc5](https://gtv.org/video/id=616e7207d2e2b8174876fbc5)
 
-9 月 9 日的公开演讲中，拜登总统宣布六管齐下的打击COVID-19行动计划，其中最具争议性的部分是要求拥有 100 名以上员工的雇主强制要求员工接种疫苗或每周进行 SARS-CoV-2 检测。
+这个大家要记住
+Deben recordar esto
 
-这部分的强制接种授权，是拜登总统行使宪法赋予的行政权，依照Occupational Safety and Health Administration（ 职业安全与健康管理局）将发布的紧急临时标准，要求拥有 100 名以上员工的雇主强制要求员工接种疫苗或每周进行 SARS-CoV-2 检测。
+很多人在问七哥
+Muchas personas me han preguntado
 
-拜登总统，此强制接种授权是属于“行政命令”性质。对隶属于行政权以外的人民、民间企业或组织（下简称：私营部门），应该不会产生法律规制力，但仍有许多的公司行号依照拜登总统的行政命令，强制要求员工接种疫苗，部分不遵守强制接种要求的员工，遭受失业的不公平对待。
+建一个什么, 去问班农去
+Construir qué cosa, ve y pregúntale a Bannon
 
-#### 行政命令仅对联邦机构生效！
+班农问我, Miles
+Bannon me pregunta, Miles
 
-大卫·马丁博士于[影片](https://www.brighteon.com/3d2299e3-b420-446f-a8d1-7f3e10b80df0)中表示，拜登总统发布行政命令，对私营部门不应该具有拘束力。（意思是不需要遵守）
+(他们)都在问我, 你到底
+Ellos me han estado preguntando
 
-拜登的行政命令对私人没有任何影响，因为行政命令只能对联邦机构（隶属联邦政府的公部门）生效。至于，联邦机构以外的私人，不论是普通公民、私营机构，州政府公部门，都无须遵守。
+要建一个什么啊
+Qué es lo que vas a construir
 
-**大卫·马丁表示：目前没有任何法律允许联邦机构，要求员工强制接种任何新冠疫苗。**
+我说不告诉你
+Le dije que no te voy a decir
 
-原因在于，法律允许强制接种疫苗、强制用药，需要将疫苗、药物送交“经批准的伦理委员会（institutional review board，又称人体试验委员会）”审核。伦理委员会必须审核疫苗或是药品的安全数据、动物实验等临床结果。
+不会告诉任何人
+No se dirá a nadie
 
-- 伦理委员会：由具医学背景之专业人员与非医学背景之社会公正 人士所共同组成之委员会，其责任在保护受试者之权利、安全与福祉。（更详细：[馬偕醫院](https://www.mmh.org.tw/taitam/irb/Description/MMH人體試驗委員會方針及作業手冊-2010-05.pdf)）
+你只有在6个月以后, 你才知道七哥要建的是什么
+Solamente después de seis meses sabrás qué lo es que construiré
 
+你才知道新中国联邦是什么
+Sabrás qué es el Nuevo Estado Federal de China
 
-但现存的新冠疫苗都属于“实验性疫苗”，新冠疫苗在欠缺相关数据的阶段，就被政府紧急授权投入生产、使用。因此，新冠疫苗没有任何经实验的安全数据，也就不存在经过伦理委员会审核的程序。
+就像喜币
+Así como la moneda de Himalaya
 
-**因此，大卫·马丁认为，拜登总统发布的疫苗规定是违法的。**
+昨天那个投资者说
+Ayer el inversor dijo
 
-#### [康奈尔法学院](https://www.lawschool.cornell.edu/)教授曾批川普，促进公共健康和福利是州政府权力！
+Miles
+Miles
+我第一次跟你因为喜币吵架
+Primera vez peleé contigo por la moneda de Himilaya
 
-针对川普政府于2020/04宣布“总统对COVID-19的促进公共健康和福祉的限制措施，享有全权”一事，包含凯瑟琳·伯金在内的法律学者，援引《宪法第10条》说明促进公共健康和福祉的限制措施，应属于“州政府”。
+到最后我哀情你, 到现在我成为股东
+Al final te lloré, y ahora soy accionista
 
-CNN还针对此事进行事实查核，指出“在公共卫生方面，没有法律明确授权总统享有优先于各州政府的权力”。
+现在我想知道喜币到底会到什么(程度)
+Ahora quiero saber qué tanto puede llegar la moneda de Himalaya
 
-#### *City Journal 的专栏作家也认同拜登的疫苗规定违宪*
+我不会告诉你
+No te lo diré
 
-*City Journal 的专栏作家亚当·弗里德曼 (Adam Freedman) 发表一篇文章《*[拜登的强制接种疫苗命令违宪](https://www.city-journal.org/biden-vaccine-mandate-unconstitutional)》，文章表示拜登的疫苗规定，明显违反了美国宪法的联邦制及三权分立原则。
+当你们了解七哥这十几年前的布局
+Cuando ustedes entiendan el plan que he estado realizando por más de diez años
 
-亚当·弗里德曼表示，拜登这项疫苗规定，应该属于州政府，而不是联邦政府。
+你看看未来的干细胞, 星空Wifi
+Mira las células madre del futuro, el Starry Internet
 
-最高法院的两个相关判例，[Jacobson *v.* Massachusetts](https://www.oyez.org/cases/1900-1940/197us11)（马萨诸塞州）、[Zucht v. King, 260 U.S. 174](https://supreme.justia.com/cases/federal/us/260/174/)(1922)。这两个案件都涉及到天花疫苗，依照判例内容，都表示疫苗相关规定应依照州法律，而非联邦法律。
+你看看整个世界金融系统, 再看医疗系统
+Mire el sistema financiero mundial y luego miras al sistema médico
 
-亚当·弗里德曼表示，拜登总统所为的疫苗规定，司法依照宪法原则审查违法性，可以在短时间内停止。但是司法必须迅速采取行动，因为在新闻媒体的大力推广下，许多大公司已经宣布将遵循拜登发布的疫苗规定。
+还有一个大家要记住的, 高科技
+Y otra cosa que deben recordar, la alta tecnología
 
-亚当·弗里德曼进一步指出，拜登总统发布的“COVID-19行动计划”，意图以《职业安全与健康法(Occupational Safety and Health Act)》为法律基础。职业安全与健康法，授予职业安全与健康管理局(OSHA) 发布“紧急测试标准(ETS)” 的权力，为了保护员工于工作场所，免于暴露或接触已确定为有毒或对身体有害的物质、制剂，或因新的危害而可能致员工于工作中陷入在严重危险当中。
+所有的新科技
+Todas las nuevas tecnologías
 
-（法律规定以原文为准：grave danger from exposure to substances or agents determined to be toxic or physically harmful or from new hazards.）
+现在说新科技, 我要给你们爆两句
+Ahora que estoy hablando de la nueva tecnología, debo reverlarles un poco
 
-意思是，拜登总统意图依照职业安全与健康法，依照职业安全与健康管理局(OSHA)紧急发布的紧急测试标准(ETS) ，要求员工人数达100人以上者，雇主应强制要求员工接种疫苗，或是每周提供阴性证明。
+今天你们得晕
+Hoy todos ustedes deben estar mareados por eso
 
-然而，亚当·弗里德曼指出，紧急测试标准(ETS) 仅针对工作场所的危险，如危险化学品，并不包括病毒等自然发生的危险。
+都得晕
+Deben estar mareados
 
-亚当·弗里德曼：人民希望法院比新闻媒体更仔细的审查拜登的命令，如果宪法原则运用得当，强制员工接种的部分很快就会被确认违反宪法对人权的保护，而被取消。且司法应干更迅速的采取行动，许多大公司已经宣布将会遵循拜登的命令。
+新的科技对通讯的提升
+La nueva tecnología mejora la comunicación
+
+对医疗的提升
+Mejora del tratamiento médico
+
+对交通方式的提升
+En la forma de transporte
+
+兄弟姊妹们
+Hermanos y hermanas
+
+我现在跟你说完
+Ahora que termine de decirlo
+
+你一定把我订为神经病
+Seguramente dirás que estoy loco
+
+因为七哥投资了, 七哥知道意味什么
+Porque yo invertí, así que sé lo que significa esto
+
+就像我说那个生物芯片一样
+Como dije sobre el biochip
+
+生物芯片就这么大一块
+El biochip es así de grande
+
+能把全地球的信息装进去
+Puede ingresar todas las informaciones del mundo
+
+你很快会看到手机、电脑、通信、医疗、一点儿不夸张
+Pronto verás en los teléfonos móviles, computadoras, medios de comunicación, tratamiento médico, no estoy exagerando
+
+人类未来有钱有条件的活个130岁、150岁
+El futuro de la humanidad tendrá condiciones para vivir hasta130 años, 150 años
+
+跟玩兒似的, 你在活着之前
+Así como jugando, antes de estar vivo
+
+基本没有疾病
+Básicamente, no hay enfermedad
+
+基本不可能有疾病来骚扰你
+No hay enfermedades que te molestarán
+
+基本上不可能
+Básicamente no habrá
+
+在非洲草原上看到一个能老死的狮王的话
+Si ves a un rey león que muere por estar viejo en las praderas de África
+
+那一定是有原因的
+Eso debe ser por alguna razón
+
+那是有原因的
+Por algún motivo
+
+咱慢慢来
+Vamos poco a poco
+
+新中国联邦未来将拥有世界上最高的各种生物、生命
+En el futuro, el Nuevo Estado Federal de China tendrá la mayor variedad de criaturas y vidas del mundo
+
+太空、交通、能源、科技
+En el espacio, transporte, energía, tecnología
+
+一定是咱么的投资者
+Seguramente son de nuestros inversores
+
+我想告诉大家, 再说一遍, 所有老椅子投资者, G-club
+Les quiero decir de nuevo, todas los inversores de sillas antiguas, G-club
+都是5%的盖特, 5%的喜联储, 10%的G-club
+Tienen el 5% de GETRR, 5% del banco central de Himalaya, 10% de G-club
+
+还有一个大家看到的, 10%新的金融机构, 还会更多
+Y otro que ustedes vieron, el 10% de instituciones financieras y más
+
+你们会看到一系列的公布
+Ustedes verán una serie de anuncio
 
 * * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_0.jpg)
+日期: 10/18/2021
+原视频标题：郭先生10年前的布局，未来新科技无限, G系列前景无限
+La planificación del Señor Guo desde hace diez años; la tecnología nueva del futuro es infinita y las perspectivas son ilimitadas para la serie G
+原视频日期: 10/12/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1447865670356516874?s=24](https://twitter.com/se1y7cblljselva/status/1447865670356516874?s=24)
+任务编号：KC181（2529）
+视频时间段：0:00-2:18
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场-小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[原文](https://www.naturalnews.com/2021-10-16-david-martin-biden-vaccine-mandates-mean-nothing.html)￨转译 台湾宝岛农场 zhong 
-（一切内容以原文为主，转译仅供参考）
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

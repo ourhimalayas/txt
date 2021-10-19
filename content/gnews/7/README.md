@@ -2,36 +2,25 @@
 ---
 
 
-## 台军方正式提请美国尽快交付F-16V订单
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1604205/)
+## 12岁在疫苗前终止
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1604309/)
 
-作者：飞虹
+撰稿：文雨
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-9.jpg)
 
+图片来自：网络
 
+今天在腾讯网上看到一则陆火Media的报道，说的是一个12岁成绩优秀的女孩李博艺，因注射疫苗，8月28日经濮阳油田总医院抢救无效后身亡。可怜母亲蒋艳红为维权上访，去疫苗注射单位南乐县城关镇卫生院，要求提供疫苗相关资料，遭拒绝。她向相关部门申请医疗事故和疫苗副作用调查，始终未得到任何回应。蒋艳红说，她去南乐县卫健委要说法，结果被四五个男人摁在地上，进行了40多分钟的殴打。南乐县相关领导多次上门慰问提醒她：”再去北京上访，有可能拘留或是判刑.” 村委会主任还曾提出：“不要上访，给你几十万拉倒吧……”但被断然拒绝。心碎欲绝的母亲从9月26日起每天在微博更新内容，直至10月3日再无更新。蒋艳红母亲的亲属披露：2021年10月16日，蒋艳红已被刑事拘留，羁押于濮阳市看守所。
 
-2019年台湾军方斥资80亿美元，向美国订购了66架F-16V型战机，按照合约10年内完成交付。但台海局势的急剧恶化，使台湾军方倍感压力，因此希望美方提前交付一定数量战机，以便台空军尽快训练形成战斗力。据悉拜登政府已经正式与台湾官员开始讨论，如何加速交付战机的事宜。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1019AM-4-7.002.jpeg)
-目前台湾空军部署在台东”志航”空军基地的 F-5战机已经老旧，台军急需这批先进的F-16V战机以强化空防能力。与此同时，文贵先生在最新直播中透露，他得到军事专业人士的私密情报，如果中共武统入侵台湾，美军不仅一定会出手救援，而且美军有把握也有实力，可以在三分钟内摧毁中共海内外包括天上、地上所有军事基地，这一惊爆消息无疑将给台湾军民一针强心剂，同时也似乎是在激将盗国贼，如加速对台湾动武的步伐，最终必将自取灭亡！
-(本文仅代表作者观点)
+这样的事件看了让人心碎。中共病毒疫苗造成的灾难让一个鲜活的12岁花季的生命嘎然而止，这又是一个失独家庭，飞来的横祸对母亲的打击如五雷轰顶，试问疫苗，失独是谁做的恶？答案是中共！
 
-参考链接：
+上访在中共国是一个耳熟能详的词，也是普通老百姓在受到伤害和不公待遇的时候，唯一寄于希望的一条路，但是漫漫长路之后，等待的是另一个可怕的牢笼。正如这一事件的主角，母亲蒋艳红在为女儿的死要说法的时候，遭到的是毒打，区区几十万的息事宁人和寻衅滋事的牢狱之灾。这是怎样一个国度？这是在中共统治下千千万万个百姓上访的其中一幕。
 
-1. [因应北京战机侵扰 台湾要求美国提前交付66架F-16V战机](https://www.voachinese.com/a/Taiwan-requests-US-to-expedite-shipment-of-F-16s-20211018/6275525.html)
-2. [2021年10月17日 文贵大直播@03:33:00: (3)中共的经济政治危机导致对台开战，将引发美国，日本对中共进行极限战争](https://gtv.org/video/id=616c1823304e992109b65281)
+要结束这疫苗灾难，飞来横祸吗？要结束这上访恶梦吗？唯灭掉中共！
 
+本文纯属个人观点，与Gnews无关
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+[参考来源](https://view.inews.qq.com/a/TWF202110180005440Q?uid=100029586029&amp;devid=7CFE7EDC-23DB-44D2-B1F3-29320106FE67&amp;qimei=7cfe7edc-23db-44d2-b1f3-29320106fe67#)：
 
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

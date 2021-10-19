@@ -2,70 +2,59 @@
 ---
 
 
-## 能源价格飙涨，供应告急；中国指望美国，欧洲关注救济
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1603891/)
+## COVID-19最新情报｜美参议员Ted Cruz：拜登授权强制接种疫苗 侵害人权
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1603909/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/PCMGXOTTVRMVRPYSKB7PEOBAMI.jpg)中国内蒙古自治区包头市的一座燃煤发电厂，2010 年 10 月 31 日，路透社David Gray
-**翻译摘要：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-60.jpg)
+美国德克萨斯州共和党籍参议员Ted Cruz在推特上表示，他认为拜登总统在九月发布的强制接种命令，是侵害人权的。
 
-- 中共国企业正在与美国液化天然气供应商进行讨论
-- 中共国煤炭价格在短缺中创下新高
-- 波兰及德国为支持消费者采取措施
-- 原油价格创下三年历史新高
-- 下周欧盟峰会将讨论紧急措施
+拜登针对Delta提出六大方针的[COVID-19 ACTION PLAN](https://www-whitehouse-gov.translate.goog/covidplan/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=nui,sc)（COVID-19战略计划），目的为打击新冠病毒。
+
+其中《[COVID-19 Action Plan With New Vaccine Mandates](https://www-aamc-org.translate.goog/advocacy-policy/washington-highlights/president-biden-announces-covid-19-action-plan-new-vaccine-mandates?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=nui,op,sc)》（新冠疫苗强制接种），要求美国境内所有拥有雇员达100人以上的雇主，强制员工接种新冠疫苗，或是每周提供阴性证明。在媒体的推广下，许多私营部门已经表示将遵循拜登发布的疫苗规定，要求员工接种疫苗。更有私营部门，因雇员未接种疫苗而予以解雇。
 
 
-10月15日（路透社）——消息人士告诉路透社，中国的能源危机在周五加深，随着寒冷天气的席卷，煤炭价格创下历史新高，天然气价格飙升，促使主要能源公司与美国供应商寻求长期交易。
 
-在亚洲和欧洲，能源保障已经成为政府的首要议程，此时正值全球经济从中共病毒的各种限制中重新复苏，但却由于煤炭短缺和天然气价格飙升已经引发了停电，并使供应苹果等大品牌的工厂停工。
+> Joe Biden’s illegal vaccine mandate at work!
+> 
+> Suddenly, we’re short on pilots & air traffic controllers.[#ThanksJoe](https://twitter.com/hashtag/ThanksJoe?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wviOzLt7Iv](https://t.co/wviOzLt7Iv)
+> — Ted Cruz (@tedcruz) [October 10, 2021](https://twitter.com/tedcruz/status/1447327311095910402?ref_src=twsrc%5Etfw)
 
-为了保护消费者在冬季来临之际免受价格飞涨的影响，欧盟领导人准备在下周的峰会上为各成员国的紧急措施开绿灯，包括设置价格上限和补贴。
 
-消息人士告诉路透社，中国作为全球最大的产品出口国所受到的冲击尤为严重，中石化和中国海洋石油总公司（CNOOC）等主要能源公司正在与美国的液化天然气（LNG）出口商就长期合同进行深入讨论。
 
-这些讨论可能会促成价值数百亿美元的交易，使未来几年内中国从美国的液化天然气进口量激增。相比之下，在2019年中美贸易关系最紧张的时期，两国之间的天然气贸易曾一度陷入停顿。
+[Ted Cruz](https://en.wikipedia.org/wiki/Ted_Cruz)推特分享西南航空公司的新闻，西南航空因为遵守拜登总统发布的疫苗政策，要求员工必须接种新冠疫苗，否则不得执勤。此举间接导致了数以千计的航班被取消。大量旅客因航班取消缘故，滞留于机场航厦。
 
-“作为国有企业，企业都面临着保障供应的压力，近期的价格走势已经深深改变了长期供应在领导层心目中的印象。”北京的一位交易员说。
+Ted Cruz讽刺拜登总统，表示：感谢Joe（拜登总统）。
 
-在应对全球变暖的斗争中，中共国及其他国家在短期内转向了煤炭。北京还采取了一系列措施来遏制价格上涨，包括提高国内煤炭产量和削减对耗电行业的供应。
+西南航空针对航班取消一事，对外说明：不是因为人力短缺，而是天气因素。
 
-周五早些时候，交易最活跃的郑州动力煤1月期货合约CZCc1创下每吨1669.40元（259.42 美元）的历史新高，今年迄今已上涨超过200%。
+#### Ted Cruz：要求出示接种证明、阴性证明，侵犯隐私！
 
-中共国已经向消费者保证，冬季供暖的能源供应将得到保障。
+今年八月，Ted Cruz与Fox新闻主播Sean Hannity同台称：新冠疫苗接种证明是对个人隐私的侵犯。当被要求出示接种新冠疫苗的相关证明，都是对个人自由的侵犯。
 
-**油价不断攀升**
+#### COVID法西斯主义兴起，美国陷入绝对的混乱
 
-俄罗斯总统弗拉基米尔·普京本周告诉欧洲，作为该地区最大的天然气供应国，俄罗斯可以应要求提供更多的天然气，以帮助缓解价格的飙升，他把这种状况归咎于欧洲不愿意签署长期的合同。
+据[新闻报导](https://www.click2houston.com/news/local/2021/06/30/passengers-frustrated-after-southwest-airlines-cancels-thousands-of-flights/)，美国西南航空取消上千个航班，导致许多搭乘西南航空的旅客无法顺利启程，并且滞留于机场航厦中，等待西南航空安排“完全接种疫苗”的机组人员，引导旅客到目的地所需的航班。
 
-一些欧洲政界人士表示，俄罗斯正在利用天然气价格的飙升作为杠杆，启动由俄罗斯天然气工业股份公司（Gazprom）支持、绕过乌克兰的北溪2号管道项目的流量——俄罗斯否认了这一指控。
+西南航空尚未允许“未完全接种疫苗”的员工返回工作岗位。
 
-乌克兰国营天然气过境运营商周五表示，通过乌克兰输送到欧洲的俄罗斯天然气量已低于他们目前的过境合同。
+#### 德州颁布“疫苗歧视禁令”
 
-运营商负责人Sergiy Makogon直指俄罗斯的国家天然气出口商说道：“俄罗斯天然气工业股份公司的这种行为应受到欧洲的特别关注，因为尽管欧盟天然气严重短缺且价格达到最高，该公司竟还未启用那些已被支付过的产能”俄罗斯天然气工业股份公司没有立即回复置评请求。
+德克萨斯州长签署行政命令，包含私营部门在内，禁止疫苗歧视。（[行政命令PDF](https://gov.texas.gov/uploads/files/press/EO-GA-40_prohibiting_vaccine_mandates_legislative_action_IMAGE_10-11-2021.pdf)）
 
-由于天然气和煤炭价格飙升促使人们转向石油产品，预计未来几个月将出现供应短缺，油价在周五创下三年新高，攀升至每桶85美元以上。
+西南航空公司对德州的禁令表示**不会遵守**，将全力遵循拜登总统的疫苗规定。拜登总统发布的疫苗规定，希望美国人民尽最大努力接种疫苗，以维持生活、就业。
 
-波兰气候部长周五表示，政府将为消费者提供15亿兹罗提（3.8亿美元）的额外补贴，以缓解零售价格攀升带来的痛苦。
+- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/)
+- 相关：[新冠病毒预防、治疗方案（](https://vladimirzelenkomd.com/prophylaxis-protocol/)Zev Zelenko 博士）
+- 相关：[印度德里使用伊维菌素，确诊病例下降97%](https://gnews.org/zh-hant/1570870/)
 
-德国也证实，该国正在削减消费者账单上的绿色能源附加费，以帮助应对飙升的水电费。
 
-荷兰银行ABN Amro警告称，欧洲天然气批发价格不太可能在2023年之前恢复到“正常”水平。
+白宫目前正在考虑将“美国境内航班旅客”也纳入强制接种范围，若白宫确定将境内航班旅客纳入强制接种范围，那没有接种疫苗的人民将无法搭乘飞机。
 
-挪威作为欧洲第二大天然气供应国，一直是能源危机的赢家中之一，官方数据显示，由于销售天然气的收入飙升，挪威上个月的贸易顺差增长了28%，达到创纪录的537亿挪威克朗（63.7亿美元）。
+- 相关：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
+- 相关：[麥卡洛博士呼籲，不要接種新冠疫苗](https://www.wnd.com/2021/05/prominent-physician-dont-get-covid-shot/)（完整采访）
 
-**简评：**随着北半球即将入冬，欧亚各国出现了燃料价格飙升和供应短缺的双重危机。而作为最大的产品生产及出口国，中共国的经济高度依赖于能源。相比专注生产高附加值产品的日本、韩国等，能源在中国制造商的成本构成中占比更高，受到的打击也就更大。野村和高盛在这个月初调低了对中共国的经济增长预期。而中共国由于能源价格上涨造成的生产成本上升也会转嫁于全球，造成通胀压力，对处在复苏期的全球经济带来更大打击。欧洲方面，伴随着对俄罗斯能源的需求，俄罗斯在未来对欧洲政治方面的影响力可能会大幅增强。墙内最近关于断电的新闻屡见不鲜，尽管中共政府承诺保证供应，也需要墙内百姓自己多做些准备，迎接一个寒冷的冬季。
-
-原文链接：[Hungry for fuel, China looks to the U.S., Europe eyes relief plans](https://www.reuters.com/business/energy/hungry-fuel-china-looks-us-europe-eyes-relief-plans-2021-10-15/)
 
 * * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-92.jpg)
+[原文](https://www.naturalnews.com/2021-10-16-cruz-calls-biden-covid-vaccine-mandate-illegal.html)￨转译 台湾宝岛农场 zhong
+（一切内容以原文为主，转译仅供参考）

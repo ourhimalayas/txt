@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/19/2021 2:06 PM (UTC)`
+
+10月19号：尊敬的战友们好……杰克．马．去西班牙意味着什么？
+![img](https://media.gettr.com/group19/getter/2021/10/19/14/06/8776f6fd-5e02-b93b-b059-49830990c483/out.jpg)
+
+---
+
 `@miles 10/19/2021 4:39 AM (UTC)`
 
 Tu Youyou said Artemisia annua has many other efficacies besides treating malaria: “I hope it can reach its full potential.”<br/><br/>屠呦呦说青蒿素除治疗疟疾外，还有很多功效：“我也很愿意物尽其用。”<br/>
@@ -290,13 +297,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 Économie, écologie, instruction, merci au @CercleHebe pour ces échanges !  
 ![img](https://media.gettr.com/group31/tw/2021/10/12/00/a5abd86b-8366-5804-7c44-d203d57e41f3/d28ba18d93253219c3a340080b79d7fb.jpg)
-
----
-
-`@miles 10/14/2021 11:05 PM (UTC)`
-
-10/14/2021 Miles Guo’s GETTR: The Whistleblowers’ Movement and the New Federal State of China have saved numerous people and let the world distinguish between the Chinese people and the CCP via our efforts to take down the CCP with the truth about the COVID vaccines and the antidote to the coronavirus. Behind our powerful force are countless fellow fighters who have been spreading the truth!<br/><br/>10/14/2021 文贵盖特：新中国联邦、爆料革命通过以(疫)苗灭共和解药灭共，拯救了无数人，使全世界把中国人和中共分开，我们强大的力量背后是无数战友们在传播真相！<br/>
-![img](https://media.gettr.com/group29/getter/2021/10/14/23/05/e8893ec8-d7e0-f77b-a7be-61cbddc4e96c/out.jpg)
 
 ---
 
