@@ -2,23 +2,37 @@
 ---
 
 
-## 有声|英国生育率创下新低
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1604931/)
+## 感谢信
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1605019/)
 
-配音：香草山美食部 – 玫瑰园
+作者：HimaFAFA
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Protest-2021-10-14-at-12.48.22-PM.jpeg)
+秋天已至，战友们的斗志未减。温哥华英里农场由衷的感谢那些自发前往SEC华盛顿总部抗议的战友们，感谢你们代表广大未能到达现场的GTV投资人向SEC就消极对待处理GTV投资人资金进行的抗议示威活动。在疫情横行的艰难时刻，你们勇往直前捍卫着大家的权益；在同胞们不解的眼里，你们坚毅的眼神向权贵们宣示着追求公平正义的决心；在瑟瑟秋风中，你们昂首挺胸为不惧困难的环境只为自己的信仰而战！
 
-根据英国国家统计局的官方数据，2020年英国的生育率降至1.58，达到有记录以来的最低水平。 尽管新冠大流行期间，人们大部分时间待在家中，但是2020年英国人口出生率比2019年下降了4.2%，比2001年的前一个历史低点低了3.1%。而且，英国的出生率已经连续五年呈下降趋势。 英国怀孕咨询处指责中共病毒大流行导致的经济不确定性，是生育率大幅下降的原因之一。 大范围接种新冠疫苗也可能会成为导致生育率和出生率下降的因素。英国是最早普及新冠疫苗的国家之一，接种率已接近70%。英国生殖免疫专家发现新冠疫苗导致女性经期紊乱，甚至闭经。大量医学案例证明，孕期女性接种新冠疫苗可导致流产。
+虽然许多GTV投资人因疫情未能到达现场，但是我们的也将通过邮件电话的形式联系SEC表达作为GTV投资人的诉求。我们的钱我做主，我们反对SEC的种族歧视，反对打压华裔投资者，反对勾结CCP。作为投资人我有投资的自由，作为普通人我有支配自己财产的权利。在崇尚自由的国度里，SEC剥夺了我们的合法权益，消极对待处理我们财产归还问题。作为投资人，我们看好GTV的发展。作为老百姓，我们支持GTV为自由发声，为人权呐喊。在前线的战友们，你们并不孤单，我们的心与你们同在。
 
-文字版原文：[英国生育率创下新低](https://gnews.org/zh-hans/1601494/)
+温哥华英里农场再次感谢那些奋斗在最前线的战友们，愿疫情褪去，正义战胜邪恶，我们将共同拥抱灿烂的生活与和平的世界。届时，欢迎最前线的战友们共聚温哥华英里农场以香槟庆祝，以美乐高歌庆祝来之不易的胜利。
 
-音频处理：喜山必胜Maverick
+此致
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+敬礼
+
+温哥华英里农场战友们
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

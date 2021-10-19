@@ -2,31 +2,27 @@
 ---
 
 
-## 2021/10/19文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1604842/)
+## 莫斯科举办阿富汗问题会议
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1604908/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/101901-1.png)[盖特链接](https://gettr.com/post/peks4hb556)
-现在国内发生了很多大事。Jack马（马云）跑西班牙去了，但他完全没有自由。记住七哥今天说的话—-什么时候查Jack马，什么时候抓他，什么时候他去香港，只有七哥知道。他去西班牙是非自由的，现在正在处理资产，一切都在脱手中，包括股票。
+俄罗斯莫斯科喀秋莎农场   银河
 
-江家、曾家、王岐山家、孟建柱家危矣；正处于处理所有资产的游戏中。潘石屹俩口子被通缉，只有咱爆料革命、新中国联邦知道。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/a-1.jpg)yenisafak.com
+印度媒体报道，莫斯科10月19日表示，10个国家的代表和一个塔利班高层代表团将参加莫斯科举行的阿富汗问题会议。
 
-很担心Jack马和王健一样被弄死。中国男人在生死和邪恶面前，鲜有真正的勇士和智者。作为在中国社会长大的数得上的大人物，即是家族的成功人物、核心人物，都有着一个永远不变的道理：你活着，家人就有尊严、有安全，也会有痛苦，甚至有胁迫，这是他们要付出的代价；但是如果你死了，他们（家人）没有尊严，没有价值，没有任何希望，他的一生都是灾难。
+这次由俄罗斯主持的会议将于10月20日举行。在会议期间，讨论的重点将是阿富汗的军事和政治局势，组建一个包容性的政府以及国际社会为防止人道主义危机所做的努力。
 
-作为一个中国家庭的核心人物，家人因你而好，因你而灾的人，只要你活着他们（你的家人）才有未来和希望。不要让家人成为你的肉票，那你就把家人害了。勇敢地向威胁你家人、朋友、亲人的那些人说，“不”！展出利器，挥出你的拳头，即使输了，都不妄为活一世。如果你跪下来，早晚让你和家人死，只是如何死。王健以及N个中国的大人物都是这下场。薄熙来，周永康又如何？
+阿富汗外交部发言人巴尔基(Abdul Qahar Balkhi)在推特（Twitter）上写道，塔利班代表团将由阿富汗临时政府副总理哈纳菲（Abdul Salam Hanafi）率领，塔利班计划在访问莫斯科期间与各国代表就共同关心的问题进行谈判。
 
-只有灭了共产党，你才能永远活下去，没有任何其他机会和余地。不信就试试，把家人做为你的肉票，打着爱、忠诚、孝敬的名义，最后你把家人都虐死。实际上这就是懦弱无知！只有新中国联邦和爆料革命能救了你们！
+据俄罗斯新闻社报道，莫斯科模式（Moscow Format）会议是在俄罗斯、阿富汗、中共国、巴基斯坦、伊朗和印度六方会谈机制的基础上于2017年推出的。
 
-***听写：**文评*
+路透社表示，俄罗斯外交部称，俄罗斯、中共国和巴基斯坦愿意向阿富汗提供援助，但莫斯科表示尚未准备好承认塔利班政府。俄罗斯外长拉夫罗夫说，俄罗斯不承认塔利班，而是在等待他们履行执政时做出的承诺，包括新政府在政治和种族方面的包容性。美国表示不会加入这一轮谈判，但计划将来加入。
 
-***校对: **小雨*
+8月中旬，随着美国及其盟友在阿富汗驻扎20年后撤出军队，阿富汗政府垮台，导致塔利班以闪电攻势夺取政权。俄罗斯正试图抓住外交主动权，避免更广泛地区的不稳定，同时最大范围内地保障自身利益及增加国际影响力。
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+参考链接：
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[https://www.afghanistansun.com/news/271523080/representatives-of-10-nations-taliban-to-take-part-in-moscow-format-meeting-discussion-likely-on-afghan-humanitarian-crisis](https://www.afghanistansun.com/news/271523080/representatives-of-10-nations-taliban-to-take-part-in-moscow-format-meeting-discussion-likely-on-afghan-humanitarian-crisis)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[https://www.news18.com/news/world/moscow-talks-on-wednesday-india-to-come-face-to-face-with-taliban-for-the-second-time-4340747.html](https://www.news18.com/news/world/moscow-talks-on-wednesday-india-to-come-face-to-face-with-taliban-for-the-second-time-4340747.html)

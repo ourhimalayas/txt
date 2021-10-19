@@ -2,27 +2,20 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月19日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1604492/)
+## 加拿大安省医生被限制签发新冠病毒疫苗的医疗豁免证
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1604503/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
+编译撰稿：硫酸羟氯喹64
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-18.png)
-文章仅代表作者本人观点，与Gnews无关
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/ys-edited.jpg)图片来源：thepostmillennial
 
-视频参看：2021.10.19早GTV新闻访谈
 
-[https://gtv.org/video/id=616eb9e8304e992109b79be2](https://gtv.org/video/id=616eb9e8304e992109b79be2)
+据加拿大自媒体《千禧年报》10月18日报道，安大略省【医生和外科医生学院】于当天宣布对马克-特罗齐医生和罗查尼-基里安医生进行职权限制，禁止他们再为新冠病毒疫苗接种签发任何医疗豁免证明。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+该限制令还延伸到禁止为“强制性口罩要求和新冠病毒测试”签发医疗豁免。被实施限制令的以上两位医生都强烈反对该疫苗的接种，而且最近都在公开场合发表了针对该疫苗的反对意见和言论。其中，基里安医生还在上个月辞去了其急诊室医生的职务，以抗议当地卫生局对疫情处理所采取的各种不合理政策。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+安大略省首席卫生官员基兰-摩尔对此表示，每10万人中真正有资格获得医疗豁免的人不应该超过5人。而豁免接种疫苗的医学理由应该是，有文件证明对疫苗的某种成分过敏，或是有证据证明接种后将导致患心肌炎的风险增加。莫德纳公司疫苗的被暂停使用就是该情况的最好例证。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（以上内容仅代表原文信息和作者个人观点）
+
+[原文链接：](https://thepostmillennial.com/two-ontario-doctors-restricted-from-issuing-medical-exemptions-for-covid-vaccines)

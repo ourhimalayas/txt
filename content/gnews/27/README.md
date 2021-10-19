@@ -2,35 +2,54 @@
 ---
 
 
-## 9家信托踩雷宝能，涉资高达200亿元
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1604637/)
+## 据称泄露的加拿大政府备忘录告诉员工不要说“加油吧布兰登”
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1604685/)
 
-**撰稿：日本东京方舟农场 海星**
+作者：Efron Monsanto
 
-近期，中共宝能集团已经违约至少9家信托公司的项目，涉及资金高达200亿元。
+一份据称来自加拿大政府打印出来的备忘录昨天在推特上疯传，警告员工不要使用“加油吧布兰登（Let’s Go Brandon）”这句话，否则有被解雇的风险。
 
-据《凤凰网》报导，宝能旗下多个理财产品及信托计划均出现了逾期，经不完全统计，截至目前，至少有9家信托公司遭遇宝能违约，包括民生信托、重庆信托、山东信托、爱建信托、粤财信托、中航信托、雪松国际信托，中铁信托、云南信托，共涉及金额200亿元。
+阿尔伯塔研究所所长彼得麦卡弗里将备忘录的一个版本发布到推特上，据称该备忘录显示了加拿大共享服务部泄露的备忘录，该机构向联邦政府提供提供满足加拿大人需求数字和IT 服务。
 
-10月13日，宝能持股的中炬高新发布公告称，控股股东中山润田（宝能投资的三级子公司）因与粤财信托的债务出现违约，负债金额7.2亿元，被粤财信托冻结持有的中炬高新股份555万股、轮候冻结2100万股；与中航信托债务金额10.5亿元，欠付本息合计6.3亿元。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Brandon-1.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211019185336.png)图片来自于网络
+备忘录写道：“具体来说，加拿大公共服务部门禁止在任何情况下使用‘加油吧布兰登（Let’s go Brandon）’一词及其任何变体。”
 
-10月8日，中铁信托发布公告称，其向宝能汽车发放信托贷款28亿元，期限为18个月，但债务人未如期支付贷款利息，现已被法院查封土地等资产。
+备忘录还说，任何员工提及这句话“都将成为立即解雇的理由，没有追索权或工会代表。”
 
-此前，云南信托向宝能子公司钜盛华发放了信托贷款50亿元，但钜盛华只逾期支付了利息8968.57万元，未清偿剩余借款本金42亿元，因此被冻结了部分银行账户。
 
-宝能集团于1992年在深圳成立，业务涉及领域广泛，遍布中共国300多个城市。近年由于其资金流动问题频发，旗下公司业务相继陷入困境，宝能投资集团、钜盛华、宝能汽车、宝能地产、深业物流等均被列为高风险企业。
 
-*注：本文仅代表作者观点，与 Gnews无关*
+> Lets Go Brandon … LOL [#LetsGoBrandon](https://twitter.com/hashtag/LetsGoBrandon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/kZpIyyxjTk](https://t.co/kZpIyyxjTk)
+> — Javy Foxtrot (@JavyFoxtrot17) [October 11, 2021](https://twitter.com/JavyFoxtrot17/status/1447543009483055105?ref_src=twsrc%5Etfw)
 
-*参考链接：*
 
-[宝能系“风暴”再扩大：9家信托踩雷200亿，3家上市公司股权生变](https://ishare.ifeng.com/c/s/v002Ev740PmUOL66Zlwj6UCU--Ost5FpdK5YjNizvMTRrOGA__)
 
-[中铁、重庆、云南多家信托踩雷宝能，涉及金额90亿，姚振华出现被法院强制执行情况](https://c.m.163.com/news/a/GM2643900519RAAQ.html?spss=newsapp)
+口号“加油吧布兰登”是一个流行的模仿，背景是现场观众高呼的那句全美熟悉的热搜词“X 乔·拜登（F \*\*\* Joe Biden）”。一位NBC记者正在 NASCAR赛车活动中采访车手布兰登·布朗，当时后面的口号爆发了。然而，NBC的记者声称口号是“加油吧布兰登”，此后被称为损害控制的一种形式。
 
-[宝能系危机扩大 9项信托踩雷200亿](https://www.epochtimes.com/gb/21/10/16/n13309195.htm)
+我联系了加拿大共享服务部的评论，它首先回应要求提供一份未经编辑的信件副本，并知道我是为哪个网站写稿的。
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Brandon-3.png)
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+下午晚些时候，加拿大共享服务部回应并在给反叛新闻的一份声明中澄清说：“我们可以确认这条消息不是由加拿大共享服务部发布的，也没有相关部门政策。”
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Brandon-4.png)
+
+來源：[https://www.rebelnews.com/debunked\_alleged\_leaked\_canadian\_gov\_memo\_tells\_employees\_to\_not\_say\_let\_s\_go\_brandon](https://www.rebelnews.com/debunked_alleged_leaked_canadian_gov_memo_tells_employees_to_not_say_let_s_go_brandon)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
