@@ -2,50 +2,26 @@
 ---
 
 
-## 美国传奇科林-鲍威尔完全接种疫苗后去世
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1603612/)
+## COVID-19最新情报｜美前国务卿接种疫苗后染疫身亡 疫苗防重症破功？死于疫苗？
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1603675/)
 
-栏目记者: Andy5
-责任编辑：AsG諾雅
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期****/ 19/10/2021**
 
+***当主流媒体只为当权者粉饰谎言，新闻资讯就沦为洗脑工具。本栏目旨在从中寻找不同角度，为您扩大厘清病毒及疫苗真相的空间。***
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Blue-Universal-Space-Channel-Banner.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+美媒消息（18日），美国前国务卿鲍威尔（Colin Powell）因感染新冠病毒 COVID-19 而引发并发症不治，终年 84 岁。鲍威尔的家人于社交网站公布他逝世的消息，并透露他已经完成两剂新冠疫苗接种，可惜，鲍威尔仍然因病毒引起的重症而身亡。
 
+较早前，法新社消息（12日），法国对超过 2000 万人的最新研究显示，COVID-19 疫苗能有效预防重症，Delta 变体亦不例外。报导同时指出，法国的这份研究结果又一次证实了美国、英国和以色列此前的相关研究，而且法国的研究是迄今规模最大的一个。
 
+鲍威尔的离世似乎令该份研究变得有点可笑。
 
-10月18日星期一，鲍威尔去世，享年84岁。他的家人在其脸书页面的声明上写道：”在完全接种了新冠疫苗后，美国前国务卿和参谋长联席会议主席科林-L-鲍威尔将军今天上午去世。我们要感谢沃尔特-里德国家医疗中心的医务人员的关怀治疗。我们失去了一位杰出的、充满爱心的丈夫、父亲、祖父和一位伟大的美国人。”
+值得留意的是，新中国联邦发起人之一的郭文贵先生则有另一番见解，他在个人社交平台 GETTR 上发文指，“鲍威尔绝对死于疫苗，而不是病毒，所有的这些媒体都在撒谎。”，并质疑“他们在掩盖什么？恐惧什么？”不过，郭文贵暂未透露，该结论的情报来源。
 
-据报道，鲍威尔被诊断出患有多发性骨髓瘤这种癌症，他的去世与86岁的棒球传奇人物汉克-亚伦的去世有相似之处，后者在1月份打了一针新冠疫苗后仅几周就去世了，尽管医院声称亚伦的死因与疫苗无关。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-103.jpg)
-科林-鲍威尔于1937年4月5日出生在纽约市，由牙买加移民父母抚养长大。从参加越南战争到成为四星上将，到1987年在里根政府出任史上第一位黑人国家安全顾问，1989年成为老布什总统的参谋长联席会议主席，并在克林顿政府连任同一职位，2000年在伊拉克战争期间在小布什政府中担任第一位黑人国务卿，他的一生充满传奇色彩，
+![](https://assets.gnews.org/wp-content/uploads/2021/10/螢幕截圖-2021-10-19-下午1.14.43.png)
 
-鲍威尔是第一个享有如此盛誉而死于所谓“突破性病例”的公众人物，他的死亡将使更多人看到新冠毒针的危害，从而更加坚定立场，拒绝所谓新冠疫苗。
+* * *
 
-参考链接：
-1. [Colin Powell, Fully Vaccinated, Dies From COVID-19 Complications](https://marketrealist.com/p/was-colin-powell-vaccinated-covid/)
-2. [Colin Powell dead at 84 from COVID-19 complications](https://thehill.com/policy/defense/577152-colin-powell-dies-at-age-of-84)
-3. [“Fully Vaccinated” Colin Powell Dies From Covid Complications](https://www.infowars.com/posts/fully-vaccinated-colin-powell-dies-from-covid-complication/)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：鬼五
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+新闻来源｜[WSJ](https://www.wsj.com/articles/former-secretary-of-state-colin-powell-dies-at-84-11634560862?mod=hp_lead_pos5) / [Swissinfo](https://www.swissinfo.ch/chi/%E6%B3%95%E5%9B%BD%E7%A0%94%E7%A9%B6%E6%8C%87%E7%96%AB%E8%8B%97%E5%8F%AF%E6%9C%89%E6%95%88%E9%98%B2%E9%87%8D%E7%97%87-%E5%AF%B9delta%E4%B9%9F%E6%9C%89%E6%95%88/47020646)
+声明｜ 以上观点仅代表作者

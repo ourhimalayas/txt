@@ -2,40 +2,59 @@
 ---
 
 
-## 嘴炮禁毒与威权主义
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1603855/)
+## COVID-19最新情报｜美参议员Ted Cruz：拜登授权强制接种疫苗 侵害人权
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1603909/)
 
-作者 台湾宝岛农场 Y.M.O
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-60.jpg)
+美国德克萨斯州共和党籍参议员Ted Cruz在推特上表示，他认为拜登总统在九月发布的强制接种命令，是侵害人权的。
 
-在1985年1月，一份题目为“曲目含有意识形态危险主题的外国乐队和艺术家的粗略名单”被分发给苏联共产党官员，目的是禁止某些外国乐队进入苏联，因为他们被认为太“危险”。 这些名字中有些看起来明显更极端，也有些明显更加无害。 看上去很多理由十分直接，但这都是为了政治利益服务，没有人会去更细致地向你解释原因。
+拜登针对Delta提出六大方针的[COVID-19 ACTION PLAN](https://www-whitehouse-gov.translate.goog/covidplan/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=nui,sc)（COVID-19战略计划），目的为打击新冠病毒。
 
-仅仅是朋克和暴力这两个词就可以禁止Sex Pistols， The B-52s， Madness， Strangers的音乐。 如果BLACK SABBATH的暴力和宗教蒙昧主义尚且可以去想像一下的话，那Pink Floyd 的理由”Interfering with the Foreign Policy of USSR （Afghanistan）”真是让人大跌眼镜。 事实上音乐从来没有也做不到去颠覆一个政权，即使是The  Velet Underground那也只是对哈威尔有深远影响而已。
-
-所以说威权政权的封禁只有两个作用，除了作为音乐鉴赏的指路明灯（接近100%准），另外就是展示自己内心的恐惧。 不过苏联的封杀好歹算是面对面的概念，就像拿自己的体制和美国硬碰硬一样，但在今天的中共国可就没有这样的待遇了。 2021年10月11日，湖北禁毒的微信公众号发布了一篇名为“快来围观，这些学生的创意禁毒书画作品让人惊叹”的文章，文章里中南民族大学余同学的作品一下引起了部分乐迷的注意。
-
-如果要选出史上最伟大的摇滚乐队的话，Pink Floyd即使不是第一，那也一定跳不出前三。 他们的音乐在实验性、旋律性和社会性上的高度是无可比拟的，像是《The Dark Side of the Moon》和《The Wall》在很多人心里都是神作。 而在《The Wall》发表的3年后它也被改编成了电影。 全片没有一句对白，全部由画面和音乐构成，就是这些视听语言构成了数不清的象征和隐喻，它们都代表着各种隔阂与高墙，这也算是电影史上的名作了。
-
-而这样厉害的作品被余同学盯上了，只不过把图片中嘴里的高墙改成了一大堆胶囊，旁边加个针筒以及禁毒这两个字，并且这篇文章也已经被搜狐腾讯转载了。 的确Pink Floyd和迷幻摇滚之间关系算是密切，但那是一种摇滚乐流派，而不是你拿来篡改之后讨好中共的借口。 并且余同学敢抄袭篡改《The Wall》这样经典的作品，一是生活在中共国的世界已经不知道天高地厚了，二是在中共国不管意义多深刻价值多宝贵的作品最后只能为了最高意志服务。
-
-媒体、政府和那些信任他们的人可以而且将会把任何事情都政治化。 而大多数人认为政府的行为符合人民的最大利益。 甚至许多对政府持强烈批评态度的人也是如此。 中共国的禁毒看上去是为了大多数人着想，但实际上是借这些手段让大多数人接受甚至主动要求威权主义。 前些天宋冬野因为自己的演出遭受举报取消在网上发言，结果得到的是社会主义铁拳一轮轮的围殴。 尽管已经过了法律条例要求的期限，甚至去年的演出成功演完了，今年的演出之前被批准了也没用。
-
-现在做演出这行乐队或剧团赚不到钱，演出公司赚不到钱，场地方赚不到钱，观众又没少花钱。 可以说是从上游到终端全都叫穷，所有做演出的人也是属于维持生计，同时观众也能放松一下。 但这些在统治者的政治经济利益面前都不算什么，哪怕这会让很多人失业甚至失去生命。
-
-P.S. 宋东野方的言论已经被封禁，包括为他说话的帐号也都消失不见，剩下的只有痛打落水狗的大多数。
-
-资料连结
-
-．[https://www.163.com/dy/article/GM4PUD98051491D0.html?f=post2020\_dy\_recommends](https://www.163.com/dy/article/GM4PUD98051491D0.html?f=post2020_dy_recommends)
-．以下为一篇墙内网站对《The Wall》的评论，不用看具体内容，拿原始图片进行比对即可： [https://ent.sina.cn/review/internet/2006-07-12/detail-iawzunex8238194.d.html?from=wap](https://ent.sina.cn/review/internet/2006-07-12/detail-iawzunex8238194.d.html?from=wap)
+其中《[COVID-19 Action Plan With New Vaccine Mandates](https://www-aamc-org.translate.goog/advocacy-policy/washington-highlights/president-biden-announces-covid-19-action-plan-new-vaccine-mandates?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=nui,op,sc)》（新冠疫苗强制接种），要求美国境内所有拥有雇员达100人以上的雇主，强制员工接种新冠疫苗，或是每周提供阴性证明。在媒体的推广下，许多私营部门已经表示将遵循拜登发布的疫苗规定，要求员工接种疫苗。更有私营部门，因雇员未接种疫苗而予以解雇。
 
 
 
-> [This List Of Bands Banned On Soviet Radio Is A Real Head Scratcher](https://uproxx.com/music/ussr-banned-music-bands-russia/)
+> Joe Biden’s illegal vaccine mandate at work!
+> 
+> Suddenly, we’re short on pilots & air traffic controllers.[#ThanksJoe](https://twitter.com/hashtag/ThanksJoe?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wviOzLt7Iv](https://t.co/wviOzLt7Iv)
+> — Ted Cruz (@tedcruz) [October 10, 2021](https://twitter.com/tedcruz/status/1447327311095910402?ref_src=twsrc%5Etfw)
 
 
 
-[https://www.163.com/dy/article/GM4PUD98051491D0.html?f=post2020\_dy\_recommends](https://www.163.com/dy/article/GM4PUD98051491D0.html?f=post2020_dy_recommends)
+[Ted Cruz](https://en.wikipedia.org/wiki/Ted_Cruz)推特分享西南航空公司的新闻，西南航空因为遵守拜登总统发布的疫苗政策，要求员工必须接种新冠疫苗，否则不得执勤。此举间接导致了数以千计的航班被取消。大量旅客因航班取消缘故，滞留于机场航厦。
 
-以下為一篇牆內網站對《The Wall》的評論，不用看具體內容，拿原始圖片進行比對即可。
+Ted Cruz讽刺拜登总统，表示：感谢Joe（拜登总统）。
 
-https://ent.sina.cn/review/internet/2006-07-12/detail-iawzunex8238194.d.html?from=wap
+西南航空针对航班取消一事，对外说明：不是因为人力短缺，而是天气因素。
+
+#### Ted Cruz：要求出示接种证明、阴性证明，侵犯隐私！
+
+今年八月，Ted Cruz与Fox新闻主播Sean Hannity同台称：新冠疫苗接种证明是对个人隐私的侵犯。当被要求出示接种新冠疫苗的相关证明，都是对个人自由的侵犯。
+
+#### COVID法西斯主义兴起，美国陷入绝对的混乱
+
+据[新闻报导](https://www.click2houston.com/news/local/2021/06/30/passengers-frustrated-after-southwest-airlines-cancels-thousands-of-flights/)，美国西南航空取消上千个航班，导致许多搭乘西南航空的旅客无法顺利启程，并且滞留于机场航厦中，等待西南航空安排“完全接种疫苗”的机组人员，引导旅客到目的地所需的航班。
+
+西南航空尚未允许“未完全接种疫苗”的员工返回工作岗位。
+
+#### 德州颁布“疫苗歧视禁令”
+
+德克萨斯州长签署行政命令，包含私营部门在内，禁止疫苗歧视。（[行政命令PDF](https://gov.texas.gov/uploads/files/press/EO-GA-40_prohibiting_vaccine_mandates_legislative_action_IMAGE_10-11-2021.pdf)）
+
+西南航空公司对德州的禁令表示**不会遵守**，将全力遵循拜登总统的疫苗规定。拜登总统发布的疫苗规定，希望美国人民尽最大努力接种疫苗，以维持生活、就业。
+
+- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/)
+- 相关：[新冠病毒预防、治疗方案（](https://vladimirzelenkomd.com/prophylaxis-protocol/)Zev Zelenko 博士）
+- 相关：[印度德里使用伊维菌素，确诊病例下降97%](https://gnews.org/zh-hant/1570870/)
+
+
+白宫目前正在考虑将“美国境内航班旅客”也纳入强制接种范围，若白宫确定将境内航班旅客纳入强制接种范围，那没有接种疫苗的人民将无法搭乘飞机。
+
+- 相关：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
+- 相关：[麥卡洛博士呼籲，不要接種新冠疫苗](https://www.wnd.com/2021/05/prominent-physician-dont-get-covid-shot/)（完整采访）
+
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-92.jpg)
+[原文](https://www.naturalnews.com/2021-10-16-cruz-calls-biden-covid-vaccine-mandate-illegal.html)￨转译 台湾宝岛农场 zhong
+（一切内容以原文为主，转译仅供参考）

@@ -2,21 +2,45 @@
 ---
 
 
-## 约3200名芝加哥警察拒绝上报疫苗接种状况
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1603472/)
+## 40多个国家在推广新冠毒疫苗后，相关死亡人数激增
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1603633/)
 
-韩国首尔天池农场——zzballack         上传——追着曙光跑
+栏目记者/责任编辑：AsG諾雅
 
-据《布雷特巴特新闻网》（Breitbart News）10月18日报道，芝加哥警察兄弟会（Chicago Fraternal Order of Police）主席约翰‧卡坦扎拉（John Catanzara）估计，大约有3200名警察拒绝遵从该市的报告疫苗接种状况的命令。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/WhatsApp-Image-2021-10-19-at-13.08.58.jpeg)图片来源：网络
-根据芝加哥市长洛丽‧莱特富特（Lori Lightfoot）的规定，警察必须在10月15日之前上报他们的疫苗接种状况，否则将被休无薪假。未接种中共病毒疫苗的警察如果每半周接受一次测试，就可以继续工作。
 
-卡坦扎拉告诉媒体说，这项强制令是非法的，这些规则应该是无效的，因为市政府官员没有与工会进行谈判。“我们的非官方数字估计有超过3200名警察，约占整个部门的三分之一没有接种疫苗。如果他们拒绝报告其疫苗状况，将被立即停薪。市政府必须与我们谈判，但它却拒绝这样做。”
 
-莱特福特10月15日指示她的政府对该市警察工会提出强制救济申诉，指责其在卡坦扎拉敦促警官违抗强制令后“参与、支持和鼓励停工或罢工。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-莱特福特在一份声明中说：“作为芝加哥市长，当阴谋论者的言论威胁到芝加哥居民和第一响应者的健康和安全时，我不能也不会袖手旁观。卡坦扎拉主席一次又一次地故意误导我们的警察，对政策的要求撒谎，并谎称如果警察不服从并拒绝遵守市政府和部门的指令或命令，将不会有任何影响。”
 
-芝加哥市议员安东尼‧纳波利塔诺（Anthony Napolitano）最近与其他五位当地议员一道敦促莱特福特放弃这项强制令，称其侵犯了我们的宪法权利。同时警告说，警察的潜在短缺可能会使芝加哥的街道更加危险。“如果更多的警察因此被停职，我们的街道就会完全失去控制。你将会看到无人值守的警车和街头混战。”
 
-[原新闻链接](https://www.breitbart.com/health/2021/10/18/union-president-estimates-3200-chicago-police-defying-vaccine-reporting-rules/)
+英国【The Expose】10月18日报道，定量数据分析师乔尔-斯马利发布的一段视频显示，有40多个国家在推广新冠毒疫苗接种后，相关死亡的人数却比接种前大幅增加。该视频的数据来源于约翰-霍普金斯大学冠状病毒资源中心。
+
+英国的首批新冠毒疫苗于2020年12月8日开始接种，当时相关死亡人数已经开始下降。随着新冠毒疫苗的推广，相关死亡人数又开始迅速爬升。
+
+该视频完全验证了爆料革命的判断，新冠疫苗就是杀人的生物武器，它的推出与健康无关，目的除了杀人就是黑暗势力企图控制世界。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-9.jpg)
+参考链接：
+[Data Analyst proves Covid-19 Deaths increased dramatically AFTER the Vaccine roll-out in over 40 countries](https://theexpose.uk/2021/10/18/covid-19-deaths-increased-dramatically-after-the-vaccine-roll-out-in-over-40-countries/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Q大哥
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

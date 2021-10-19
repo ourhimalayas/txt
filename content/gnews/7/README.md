@@ -2,59 +2,181 @@
 ---
 
 
-## COVID-19最新情报｜美参议员Ted Cruz：拜登授权强制接种疫苗 侵害人权
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1603909/)
+## 郭先生10年前的布局，未来新科技无限, G系列前景无限
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1603961/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-60.jpg)
-美国德克萨斯州共和党籍参议员Ted Cruz在推特上表示，他认为拜登总统在九月发布的强制接种命令，是侵害人权的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2529.png)
+[https://gtv.org/video/id=616e7207d2e2b8174876fbc5](https://gtv.org/video/id=616e7207d2e2b8174876fbc5)
 
-拜登针对Delta提出六大方针的[COVID-19 ACTION PLAN](https://www-whitehouse-gov.translate.goog/covidplan/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=nui,sc)（COVID-19战略计划），目的为打击新冠病毒。
+这个大家要记住
+Deben recordar esto
 
-其中《[COVID-19 Action Plan With New Vaccine Mandates](https://www-aamc-org.translate.goog/advocacy-policy/washington-highlights/president-biden-announces-covid-19-action-plan-new-vaccine-mandates?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=nui,op,sc)》（新冠疫苗强制接种），要求美国境内所有拥有雇员达100人以上的雇主，强制员工接种新冠疫苗，或是每周提供阴性证明。在媒体的推广下，许多私营部门已经表示将遵循拜登发布的疫苗规定，要求员工接种疫苗。更有私营部门，因雇员未接种疫苗而予以解雇。
+很多人在问七哥
+Muchas personas me han preguntado
 
+建一个什么, 去问班农去
+Construir qué cosa, ve y pregúntale a Bannon
 
+班农问我, Miles
+Bannon me pregunta, Miles
 
-> Joe Biden’s illegal vaccine mandate at work!
-> 
-> Suddenly, we’re short on pilots & air traffic controllers.[#ThanksJoe](https://twitter.com/hashtag/ThanksJoe?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wviOzLt7Iv](https://t.co/wviOzLt7Iv)
-> — Ted Cruz (@tedcruz) [October 10, 2021](https://twitter.com/tedcruz/status/1447327311095910402?ref_src=twsrc%5Etfw)
+(他们)都在问我, 你到底
+Ellos me han estado preguntando
 
+要建一个什么啊
+Qué es lo que vas a construir
 
+我说不告诉你
+Le dije que no te voy a decir
 
-[Ted Cruz](https://en.wikipedia.org/wiki/Ted_Cruz)推特分享西南航空公司的新闻，西南航空因为遵守拜登总统发布的疫苗政策，要求员工必须接种新冠疫苗，否则不得执勤。此举间接导致了数以千计的航班被取消。大量旅客因航班取消缘故，滞留于机场航厦。
+不会告诉任何人
+No se dirá a nadie
 
-Ted Cruz讽刺拜登总统，表示：感谢Joe（拜登总统）。
+你只有在6个月以后, 你才知道七哥要建的是什么
+Solamente después de seis meses sabrás qué lo es que construiré
 
-西南航空针对航班取消一事，对外说明：不是因为人力短缺，而是天气因素。
+你才知道新中国联邦是什么
+Sabrás qué es el Nuevo Estado Federal de China
 
-#### Ted Cruz：要求出示接种证明、阴性证明，侵犯隐私！
+就像喜币
+Así como la moneda de Himalaya
 
-今年八月，Ted Cruz与Fox新闻主播Sean Hannity同台称：新冠疫苗接种证明是对个人隐私的侵犯。当被要求出示接种新冠疫苗的相关证明，都是对个人自由的侵犯。
+昨天那个投资者说
+Ayer el inversor dijo
 
-#### COVID法西斯主义兴起，美国陷入绝对的混乱
+Miles
+Miles
+我第一次跟你因为喜币吵架
+Primera vez peleé contigo por la moneda de Himilaya
 
-据[新闻报导](https://www.click2houston.com/news/local/2021/06/30/passengers-frustrated-after-southwest-airlines-cancels-thousands-of-flights/)，美国西南航空取消上千个航班，导致许多搭乘西南航空的旅客无法顺利启程，并且滞留于机场航厦中，等待西南航空安排“完全接种疫苗”的机组人员，引导旅客到目的地所需的航班。
+到最后我哀情你, 到现在我成为股东
+Al final te lloré, y ahora soy accionista
 
-西南航空尚未允许“未完全接种疫苗”的员工返回工作岗位。
+现在我想知道喜币到底会到什么(程度)
+Ahora quiero saber qué tanto puede llegar la moneda de Himalaya
 
-#### 德州颁布“疫苗歧视禁令”
+我不会告诉你
+No te lo diré
 
-德克萨斯州长签署行政命令，包含私营部门在内，禁止疫苗歧视。（[行政命令PDF](https://gov.texas.gov/uploads/files/press/EO-GA-40_prohibiting_vaccine_mandates_legislative_action_IMAGE_10-11-2021.pdf)）
+当你们了解七哥这十几年前的布局
+Cuando ustedes entiendan el plan que he estado realizando por más de diez años
 
-西南航空公司对德州的禁令表示**不会遵守**，将全力遵循拜登总统的疫苗规定。拜登总统发布的疫苗规定，希望美国人民尽最大努力接种疫苗，以维持生活、就业。
+你看看未来的干细胞, 星空Wifi
+Mira las células madre del futuro, el Starry Internet
 
-- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/)
-- 相关：[新冠病毒预防、治疗方案（](https://vladimirzelenkomd.com/prophylaxis-protocol/)Zev Zelenko 博士）
-- 相关：[印度德里使用伊维菌素，确诊病例下降97%](https://gnews.org/zh-hant/1570870/)
+你看看整个世界金融系统, 再看医疗系统
+Mire el sistema financiero mundial y luego miras al sistema médico
 
+还有一个大家要记住的, 高科技
+Y otra cosa que deben recordar, la alta tecnología
 
-白宫目前正在考虑将“美国境内航班旅客”也纳入强制接种范围，若白宫确定将境内航班旅客纳入强制接种范围，那没有接种疫苗的人民将无法搭乘飞机。
+所有的新科技
+Todas las nuevas tecnologías
 
-- 相关：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
-- 相关：[麥卡洛博士呼籲，不要接種新冠疫苗](https://www.wnd.com/2021/05/prominent-physician-dont-get-covid-shot/)（完整采访）
+现在说新科技, 我要给你们爆两句
+Ahora que estoy hablando de la nueva tecnología, debo reverlarles un poco
 
+今天你们得晕
+Hoy todos ustedes deben estar mareados por eso
+
+都得晕
+Deben estar mareados
+
+新的科技对通讯的提升
+La nueva tecnología mejora la comunicación
+
+对医疗的提升
+Mejora del tratamiento médico
+
+对交通方式的提升
+En la forma de transporte
+
+兄弟姊妹们
+Hermanos y hermanas
+
+我现在跟你说完
+Ahora que termine de decirlo
+
+你一定把我订为神经病
+Seguramente dirás que estoy loco
+
+因为七哥投资了, 七哥知道意味什么
+Porque yo invertí, así que sé lo que significa esto
+
+就像我说那个生物芯片一样
+Como dije sobre el biochip
+
+生物芯片就这么大一块
+El biochip es así de grande
+
+能把全地球的信息装进去
+Puede ingresar todas las informaciones del mundo
+
+你很快会看到手机、电脑、通信、医疗、一点儿不夸张
+Pronto verás en los teléfonos móviles, computadoras, medios de comunicación, tratamiento médico, no estoy exagerando
+
+人类未来有钱有条件的活个130岁、150岁
+El futuro de la humanidad tendrá condiciones para vivir hasta130 años, 150 años
+
+跟玩兒似的, 你在活着之前
+Así como jugando, antes de estar vivo
+
+基本没有疾病
+Básicamente, no hay enfermedad
+
+基本不可能有疾病来骚扰你
+No hay enfermedades que te molestarán
+
+基本上不可能
+Básicamente no habrá
+
+在非洲草原上看到一个能老死的狮王的话
+Si ves a un rey león que muere por estar viejo en las praderas de África
+
+那一定是有原因的
+Eso debe ser por alguna razón
+
+那是有原因的
+Por algún motivo
+
+咱慢慢来
+Vamos poco a poco
+
+新中国联邦未来将拥有世界上最高的各种生物、生命
+En el futuro, el Nuevo Estado Federal de China tendrá la mayor variedad de criaturas y vidas del mundo
+
+太空、交通、能源、科技
+En el espacio, transporte, energía, tecnología
+
+一定是咱么的投资者
+Seguramente son de nuestros inversores
+
+我想告诉大家, 再说一遍, 所有老椅子投资者, G-club
+Les quiero decir de nuevo, todas los inversores de sillas antiguas, G-club
+都是5%的盖特, 5%的喜联储, 10%的G-club
+Tienen el 5% de GETRR, 5% del banco central de Himalaya, 10% de G-club
+
+还有一个大家看到的, 10%新的金融机构, 还会更多
+Y otro que ustedes vieron, el 10% de instituciones financieras y más
+
+你们会看到一系列的公布
+Ustedes verán una serie de anuncio
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-92.jpg)
-[原文](https://www.naturalnews.com/2021-10-16-cruz-calls-biden-covid-vaccine-mandate-illegal.html)￨转译 台湾宝岛农场 zhong
-（一切内容以原文为主，转译仅供参考）
+
+日期: 10/18/2021
+原视频标题：郭先生10年前的布局，未来新科技无限, G系列前景无限
+La planificación del Señor Guo desde hace diez años; la tecnología nueva del futuro es infinita y las perspectivas son ilimitadas para la serie G
+原视频日期: 10/12/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1447865670356516874?s=24](https://twitter.com/se1y7cblljselva/status/1447865670356516874?s=24)
+任务编号：KC181（2529）
+视频时间段：0:00-2:18
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场-小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

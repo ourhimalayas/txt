@@ -2,23 +2,44 @@
 ---
 
 
-## 秘翻在线：微信对美国人的个人隐私安全构成严重威胁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1603875/)
+## 维多利亚州警务人员因未接种新冠疫苗被停职
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1603931/)
 
-#### 撰稿：彩虹       
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-#### 责编：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-362.png)图片来源：BBC
-10月18日，《国家脉动》调查记者娜塔莉·温特斯（Natalie Winters）发布文章，指受中共控制的腾讯公司终于承认，即使你没有在使用微信，但微信会定期在后台运行扫描用户的照片。
+#### 编译报导：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-10.jpg)
+图片来源：The Sunday Times & Sydney Criminal
 
-文章指，根据应用程序破解者（Hacklous）的揭露，即使你没有打开使用微信，但“微信可以在后台运行，并且扫描用户的照片库可以长达一分钟”。此外，一份报告说该应用程序破解者同样揭露QQ、淘宝(Taobao)等应用程序也被发现定期扫描用户的照片库。
+10月18日，澳大利亚维多利亚州警方表示，在州政府强制要求基本工作人员必须接种新冠疫苗后，34名警察和9名保护服务人员（PSO）已被停职。
 
-微信对隐私的侵犯引发了用户的担忧，即该应用可能在暗中获取其他类型的数据。正如一位用户在中共国社交媒体平台微博上发文说：“既然他们可以扫描照片，那他们也很容易读取手机上的其他内容。”
+这43名警方雇员被迫休带薪假或长期休假，并有可能失去工作。
 
-对此，微信的一位发言人回应说，微信之所以经常扫描用户的照片，是为了“使用户发送照片更快、更顺畅。后续版本将取消此功能。”
+维多利亚警方发言人对媒体说：“维州警方目前知道34名警察和9名保护服务人员，他们没有遵守首席卫生官(CHO)的疫苗接种指示和首席专员的具体指示。”
 
-作者指，川普政府之前努力在美国禁用微信，但却被乔·拜登的商务部阻止，而微信的公开回应做实了腾讯公司这种令人不安和侵略性的做法。
+*“*只有在雇员因医疗问题而无法接种疫苗的情况下，才可豁免接种强制疫苗，如CHO（对工人）的强制疫苗接种指示中所述。”
 
-**新闻来源**
+“选择不接种疫苗的警察和PSO已被转交专业标准指挥部，因为他们未能遵守首席专员的指示，随后的纪律处分可能导致成员被解雇。”
 
-[China’s WeChat Admits To Secretly Scanning Users’ Photos](https://thenationalpulse.com/news/wechat-admits-to-scanning-photos/)
+维多利亚州所有获得授权的工人都必须在10月15日之前至少接种一剂疫苗，在11月26日之前完全接种疫苗。
+
+州长安德鲁斯表示，（明年澳网）未接种疫苗的网球运动员不会获得进入这里签证。如果他们确实获得了签证，他们可能需要隔离几周。明年4月举行的一级方程式大奖赛等赛事很可能会要求游客全面接种疫苗。
+
+截至10月19日，维州当日新增1749个病例，11人死亡，现在有22476例活跃的病毒病例。当前疫苗接种率一剂为89.4%，两剂为67.2%。
+
+（以上文章仅代表作者个人观点，与Gnews平台无关）
+
+参考链接：
+
+1、[Coronavirus Victoria: Police and PSOs stood down over decision not to get COVID 19 vaccine in line with mandate for authorised workers (9news.com.au)](https://www.9news.com.au/national/coronavirus-victoria-police-and-psos-stood-down-over-decision-not-to-get-covid-19-vaccine-in-line-with-mandate-for-authorised-workers/2a5f710f-af8b-4bdd-9da0-0bca56e1e877)
+
+2、[Victoria records new 1,749 local COVID-19 cases and 11 deaths – ABC News](https://www.abc.net.au/news/2021-10-19/victoria-records-new-covid-cases-and-deaths/100549554)
+
+编辑/发布：文泓
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
