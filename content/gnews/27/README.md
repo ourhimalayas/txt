@@ -2,40 +2,42 @@
 ---
 
 
-## 中共国经济崩溃式下滑
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1603680/)
+## 新南威尔士州火车罢工导致大规模服务中断
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1603746/)
 
-作者：纽约香草山健身部 – Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中（共）国经济在7月至9月的季度中比去年同期增长了4.9%，是一年来最慢的速度，比分析师预测的要差。这比前一季度的增长速度要慢得多，当时的增长速度接近8%，这表明复苏正在减弱。
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/nswtrains-header.jpg)图片来源：transport.nsw.gov.au
+#### 编译：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-355.png)
+铁路工人因新的企业谈判协议缺乏进展将举行罢工，悉尼火车和地区TrainLink约三分之二网络将于周三中断。
 
-受到电力短缺、Covid-19的爆发、房地产行业的债务危机，和来自中共北京对一些行业的打压……这些正在给中（共）国的经济造成损失。一位专家说，这些情况可能会抑制今年余下时间的增长，不应低估。世界第二大经济体近几个月来面临着一系列挑战。
+铁路电车和巴士工会表示，在“持续拒绝与工人会面以谈判公平的工资和条件”后，工人“被迫采取罢工行动”。
 
-另外，中共北京扩大对各行业的最大的公司进行打压，从大科技到游戏到网络再到教育部门……例如：阿里巴巴、腾讯、美团、嘀嘀打车、新东方等。中（共）国一些最大的公司正面临着旨在社会转型的政策遏制。中（共）国政府公布了一个五年计划，表明这种打压将会持续多年。
+工会因担心服务和工作的进一步私有化以及火车的清洁度问题发起谈判，但是该谈判已停滞数月。
 
-如图所示，如此激烈的波动幅度，在世界经济史上是非常罕见的。这样失速般的暴跌之后暴涨，之后再度失速般的暴跌，除了显示出其经济完全失去动力，并且各方都对经济前景非常悲观之外。这种曲线波幅，往往预示着该国政府的政权不稳，正在失去对经济的掌控力。
+周三，工作人员将拒绝驾驶私人建造的列车，其中包括Waratah和Millennium列车。
 
-2019年，文贵先生就预告：阿里巴巴马云肯定会完蛋，中（共）国大科技公司肯定会完蛋；中（共）国的房地产业、金融业和保险业肯定会完蛋……现在中（共）国的整个经济环境，完美的印证了这与文贵先生的预测——中（共）国的经济正在逐步崩塌中，无可避免，无可救药。
+悉尼火车公司首席执行官马特·朗兰（Matt Longland）表示，这些火车占“我们可用火车的大约三分之二”。
 
-参考链接：[China’s growth slowdown suggests recovery is losing steam](https://www.bbc.com/news/business-58950551)
+朗兰说，客户应该预期该罢工会造成“重大影响”。客户需提前计划，并避免乘坐火车，除非他们不得不这样做。
 
-**本文谨代表作者观点**
+新南威尔士州交通局首席运营官霍华德·柯林斯（Howard Collins）表示，该局将继续与工会合作，以尽量减少周三罢工行动后的影响。
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
+一个提供“基本服务水平”的替代时间表，将使用可用的火车运行。某些服务按周日时间表运行。巴士也将代替火车提供某些服务。
 
-**校对/发稿：童谣**
+新南威尔士州铁路公司（NSW TrainLink）首席执行官戴尔·梅里克（Dale Merrick）就“服务的持续中断”向客户道歉，并表示他希望这次行动是最后一次。
 
-**更多资讯，更多关注**
+高层领导周一与工会举行了“积极”讨论，他希望能结束进一步的行动，但他表示，这次会议“更多的是听取他们的担忧”，并承诺参与“持续的讨论”。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+**参考新闻：**[NSW train strike to cause mass disruptions (thenewdaily.com.au)](https://thenewdaily.com.au/news/state/nsw/2021/10/19/sydney-train-strike-2021/)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+***发布：小红帽***
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

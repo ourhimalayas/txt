@@ -2,36 +2,25 @@
 ---
 
 
-## 工党议员“利用种族主义”来逃避审查
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1603821/)
+## 针下亡魂｜意大利 18 岁排球运动员接种疫苗27日后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1603893/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/r0_0_800_600_w1200_h678_fmax-1.jpg)图片来源：mandurahmail.com.au
-#### 编译：小红帽
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 19/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
+【意大利】威尼托一名 18 岁男子 Davide Bristo 在接种辉瑞 COVID-19 疫苗后的第 27 天死亡。
 
-前维多利亚州劳工部长艾德姆·索缪雷克（Adem Somyurek）和他的政治门生指责记者有种族主义倾向，以阻止记者调查由纳税人资助的，授予其派系盟友的拨款。
+Davide 是一名排球运动员， 6 月 17 日接受第一针疫苗，大约 3 周后的 7 月 10 日，他开始感到剧烈头痛。 Davide 的父母将他送往医院诊治，可惜，医生为他做了几项测试之后，认为无大碍，他就出院返家，从入院到出院，只有一个小时。
 
-在索缪雷克先生的指导下，Banyule市长里克·加罗蒂（Rick Garotti）周二告诉维多利亚独立广泛反腐败委员会调查，他帮助索马里澳大利亚维多利亚委员会（SACOV）获得了几笔赠款。
+翌日早上， Davide 迟迟没有步出房间，母亲试图开门叫醒他，发现了他已经再也不会醒了。经验尸官初步认定，死者死于**急性心肌缺血，**但暂未发现死者有心脏病，致死原因不明。
 
-其中包括10万美元，作为2019年维多利亚负责任赌博基金会预防合作计划的一部分。该计划由当时的博彩部长玛琳·凯鲁兹（Marlene Kairouz ）监督。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/螢幕截圖-2021-10-19-下午3.13.53.png)
 
-加罗蒂先生说，他“不知道”赠款的用途，也不知道索马里澳大利亚维多利亚委员会将用它做什么，但他帮助了该组织的创始人兼秘书侯赛因·哈拉科（Hussein Haraco），因为哈拉科是一个“派系盟友”，因为其派系活动而得到奖励。
+目前，当地副检察官 Alberto Primavera 已就 Davide 的猝死对医生展开了过失杀人调查。值得留意的是，该则新闻的留言区，大批网友认为“死者接种了一样东西， 没有提及，像很多年轻人一样，心肌炎、心包炎，这是禁言，不能说？”
 
-当记者联系哈拉科博士，询问有关补助金的问题时，加罗蒂先生和索缪雷克先生讨论了以种族主义的说法作为回应。两人还代表哈拉科博士起草了一封回复给记者的电子邮件。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/37-1.jpg)
 
-“索马里社区厌倦了像你这样的记者指责我们分支堆叠……是因为我们是黑人吗？”邮件写道。
+来源｜[个案037](https://www.ilgazzettino.it/nordest/belluno/ischemia_ragazzo_morto_sedico_davide_bristot_funerale_oggi_inchieste_aperte-6093800.html)
 
-索缪雷克先生在被开除之前退出工党，但保留了他的上议院席位，而凯鲁兹女士则辞去了内阁职务。两人都否认有不当行为。
+* * *
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Labor MP ‘used racism’ to avoid scrutiny (thenewdaily.com.au)](https://thenewdaily.com.au/news/state/vic/2021/10/19/adem-somyurek-ibac/)  ** **
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//
