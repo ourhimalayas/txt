@@ -15,125 +15,125 @@
 
 ---
 
-### [Eglise医生来谈青蒿素的副作用](/content/gnews/1/README.md)
- ` Itana`
-
-### [感谢信](/content/gnews/2/README.md)
- ` MG FARM`
-
-### [日本要闻汇编](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【小雨专栏】在路上(036）——野鸡篇](/content/gnews/4/README.md)
- ` 温哥华扬帆农场`
-
-### [10/19/2021 文贵盖特：在中共国，社保就是骗局，而医院是杀人和抢钱的地方](/content/gnews/5/README.md)
- ` 秘密翻译组-北美组`
-
-### [福建莆田恶性杀人伤人案件引发的思考](/content/gnews/6/README.md)
+### [纽约州总检察长责令两加密货币交易平台关闭在该州的业务](/content/gnews/1/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [10/18/2021 文贵直播：中共社保基金内幕](/content/gnews/7/README.md)
- ` MG FARM`
-
-### [有声|英国生育率创下新低](/content/gnews/8/README.md)
- ` MOSREC`
-
-### [有声|中共一旦武攻台湾，美军3分钟铲平其军事基地](/content/gnews/9/README.md)
- ` MOSREC`
-
-### [莫斯科举办阿富汗问题会议](/content/gnews/10/README.md)
+### [加拉赫议员：中共正在上演“斯普特尼克危机”](/content/gnews/2/README.md)
  ` HimalayaRussia`
 
-### [有声|美国国际开发署启动了1.25亿美元的项目以寻找12000种新病毒](/content/gnews/11/README.md)
- ` MOSREC`
+### [前国务卿鲍威尔完全接种疫苗，周一死于 COVID-19 并发症](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021/10/17 文贵先生直播精要](/content/gnews/12/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [Eglise医生来谈青蒿素的副作用](/content/gnews/4/README.md)
+ ` Itana`
 
-### [2021年10月18日郭文贵先生直播（盖特直播测试）全文字版](/content/gnews/13/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [台湾战争恐惧飙升之际，中共国警告美国和加拿大不要“制造麻烦”](/content/gnews/14/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [〖信仰之声】宁失一眼，不失全身](/content/gnews/15/README.md)
- ` 纽约香草山MOS03`
-
-### [2021/10/19文贵先生盖特精要](/content/gnews/16/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [被海航收购的法兰克福哈恩机场资不抵债](/content/gnews/17/README.md)
- ` Shuizhuyu`
-
-### [拜登提案将允许美国国税局监视每个在职美国人的银行记录](/content/gnews/18/README.md)
+### [感谢信](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [[CCP病毒]指望WHO新型病原体溯源专家小组彻查中共病毒真相是不可能的](/content/gnews/19/README.md)
- ` 温哥华扬帆农场`
-
-### [加拿大“疫苗”之灾恐波及戕害无辜儿童](/content/gnews/20/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [佛蒙特州超过四分之三中共病毒死亡病例是全接种疫苗人群](/content/gnews/21/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共病毒及其疫苗在全球超限战中的典型案例（八）](/content/gnews/22/README.md)
- ` 纽约香草山MOS02`
-
-### [DC每日热点1019](/content/gnews/23/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [10/19/2021 文贵盖特：窜到西班牙的马云已完全失去自由](/content/gnews/24/README.md)
- ` 秘密翻译组-北美组`
-
-### [完全接种COVID疫苗的前美国国务卿死于 COVID 并发症](/content/gnews/25/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [郭文贵先生10月17日大直播概要（II)](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
-
-### [快报：魁省推迟医护人员疫苗接种令，但抗议仍继续](/content/gnews/27/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [据称泄露的加拿大政府备忘录告诉员工不要说“加油吧布兰登”](/content/gnews/28/README.md)
- ` MG FARM`
-
-### [中共透过“运动式执法”迫害新疆](/content/gnews/29/README.md)
- ` 日本东京方舟农场`
-
-### [美弗州一市提前表决决议，抵制中共活摘器官](/content/gnews/30/README.md)
- ` 日本东京方舟农场`
-
-### [NIH在7月份已将伊维菌素纳入治疗中共病毒推荐药物](/content/gnews/31/README.md)
- ` 日本东京方舟农场`
-
-### [加拿大维权组织就强制疫苗护照起诉安省政府](/content/gnews/32/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [10/18/2021 文贵直播：金钱有主人 &#8211; 属于中国人民的钱不能被他人夺走](/content/gnews/33/README.md)
- ` 秘密翻译组-北美组`
-
-### [英国中学接种计划后多地爆发猝死病例](/content/gnews/34/README.md)
- ` GTV新闻访谈`
-
-### [打鸡血！中共500吨推力固体火箭发动机试验成功](/content/gnews/35/README.md)
+### [日本要闻汇编](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加州家长抗议对在校学生强制接种新冠疫苗](/content/gnews/36/README.md)
- ` GTV新闻访谈`
+### [【小雨专栏】在路上(036）——野鸡篇](/content/gnews/7/README.md)
+ ` 温哥华扬帆农场`
 
-### [加拿大安省医生被限制签发新冠病毒疫苗的医疗豁免证](/content/gnews/37/README.md)
+### [10/19/2021 文贵盖特：在中共国，社保就是骗局，而医院是杀人和抢钱的地方](/content/gnews/8/README.md)
+ ` 秘密翻译组-北美组`
+
+### [福建莆田恶性杀人伤人案件引发的思考](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [青蒿素的药物动力学以及青蒿素保健品简介](/content/gnews/10/README.md)
+ ` 纽约香草山MOS03`
+
+### [10/18/2021 文贵直播：中共社保基金内幕](/content/gnews/11/README.md)
+ ` MG FARM`
+
+### [有声|英国生育率创下新低](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [有声|中共一旦武攻台湾，美军3分钟铲平其军事基地](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [莫斯科举办阿富汗问题会议](/content/gnews/14/README.md)
+ ` HimalayaRussia`
+
+### [有声|美国国际开发署启动了1.25亿美元的项目以寻找12000种新病毒](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [2021/10/17 文贵先生直播精要](/content/gnews/16/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2021年10月18日郭文贵先生直播（盖特直播测试）全文字版](/content/gnews/17/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [台湾战争恐惧飙升之际，中共国警告美国和加拿大不要“制造麻烦”](/content/gnews/18/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [〖信仰之声】宁失一眼，不失全身](/content/gnews/19/README.md)
+ ` 纽约香草山MOS03`
+
+### [2021/10/19文贵先生盖特精要](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [被海航收购的法兰克福哈恩机场资不抵债](/content/gnews/21/README.md)
+ ` Shuizhuyu`
+
+### [拜登提案将允许美国国税局监视每个在职美国人的银行记录](/content/gnews/22/README.md)
+ ` MG FARM`
+
+### [[CCP病毒]指望WHO新型病原体溯源专家小组彻查中共病毒真相是不可能的](/content/gnews/23/README.md)
+ ` 温哥华扬帆农场`
+
+### [加拿大“疫苗”之灾恐波及戕害无辜儿童](/content/gnews/24/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [GTV新闻访谈简报|2021年10月19日早](/content/gnews/38/README.md)
- ` 纽约香草山MOS01`
+### [佛蒙特州超过四分之三中共病毒死亡病例是全接种疫苗人群](/content/gnews/25/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [叶刘淑仪话音未落, 抗议北京冬奥会的邵岚获释](/content/gnews/39/README.md)
+### [中共病毒及其疫苗在全球超限战中的典型案例（八）](/content/gnews/26/README.md)
+ ` 纽约香草山MOS02`
+
+### [DC每日热点1019](/content/gnews/27/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [10/19/2021 文贵盖特：窜到西班牙的马云已完全失去自由](/content/gnews/28/README.md)
+ ` 秘密翻译组-北美组`
+
+### [郭文贵先生10月17日大直播概要（II)](/content/gnews/29/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共透过“运动式执法”迫害新疆](/content/gnews/30/README.md)
+ ` 日本东京方舟农场`
+
+### [美弗州一市提前表决决议，抵制中共活摘器官](/content/gnews/31/README.md)
+ ` 日本东京方舟农场`
+
+### [NIH在7月份已将伊维菌素纳入治疗中共病毒推荐药物](/content/gnews/32/README.md)
+ ` 日本东京方舟农场`
+
+### [加拿大维权组织就强制疫苗护照起诉安省政府](/content/gnews/33/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [10/18/2021 文贵直播：金钱有主人 &#8211; 属于中国人民的钱不能被他人夺走](/content/gnews/34/README.md)
+ ` 秘密翻译组-北美组`
+
+### [英国中学接种计划后多地爆发猝死病例](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [关注中共国的国内生产总值GDP和欧美的采购经理人指数PMI](/content/gnews/40/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [打鸡血！中共500吨推力固体火箭发动机试验成功](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [加州家长抗议对在校学生强制接种新冠疫苗](/content/gnews/37/README.md)
+ ` GTV新闻访谈`
+
+### [加拿大安省医生被限制签发新冠病毒疫苗的医疗豁免证](/content/gnews/38/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [GTV新闻访谈简报|2021年10月19日早](/content/gnews/39/README.md)
+ ` 纽约香草山MOS01`
+
+### [叶刘淑仪话音未落, 抗议北京冬奥会的邵岚获释](/content/gnews/40/README.md)
+ ` GTV新闻访谈`
 
 ### [中共两名参与建设新疆拘留营网络的官员获奖学金在哈佛大学学习](/content/gnews/41/README.md)
  ` 小象`
