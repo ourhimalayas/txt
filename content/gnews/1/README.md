@@ -2,34 +2,28 @@
 ---
 
 
-## 參議員羅恩·約翰遜：接種COVID-19疫苗後的10月內有16766 人死亡
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1604158/)
+## 有声|报应来得快，中共开始对香港富豪开刀
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1604237/)
 
-據《網關專家》記者Jim Hoft，2021年10月17日報道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2588.png)圖片來源：www.thegatewaypundit.com
-共和黨參議員羅恩·約翰遜（Ron Johnson）今天早上參加了瑪麗亞·巴蒂羅莫（Maria Bartiromo）主持的《週日早間未來》節目。
-約翰遜參議員是少數公開談論COVID毒疫苗具有史詩級別危險的議員之一。
+配音：香草山香港部-文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+文贵先生在10月17日大直播中爆料：中共为了挽救其濒临破产的经济，正在对香港的四大家族下手。严令他们还回手里所有的地，还要把在大陆挣的钱拿回来，才能保其不死。中共威胁：无论他们跑到外国哪里，共产党都能把他们抓回来。对于房地产商、律师、金融届、黑社会，这些人都得把钱拿回来，中共要他们把100年挣的钱都吐出来。中共堂而皇之的以疫情的理由对相关人士实施边控，变相绑架香港富豪及其家人，使其不能随便出入边境逃跑。如有不从者，冠状病毒死亡就是其下场。
 
-週日，約翰遜參議員表示:“強制接種是毫無意義的。現在我們知道完全接種疫苗的人照樣會被感染，同時他們會傳播這種疾病。不幸的是，他們正在住院，他們病得很嚴重，他們正在邁向火葬場。不管怎麼說，疫苗強制接種令沒有意義。”
+香港民众2019年轰轰烈烈的反送中运动，反独裁、保民主、争自由。当时，面对港人的前赴后继，不畏牺牲，一众香港富豪无耻的为中共站台，支持中共疯狂打压市民的民主运动。其实，香港的百年高速发展正是得益于民主自由的政治体制，因此得到国际社会对自由贸易港的承认，这些富豪也是因此挣得盘满钵满，富得流油。
 
-關於疫苗的危險，約翰遜參議員補充說，“他們完全忽視了疫苗造成的傷害。瑪麗亞，人們真的需要理解這一點，因爲它沒有被報道。相關信息被壓制。但在使用流感疫苗的25年裏，疫苗不良報告系統(VAERS)報告的死亡人數略低於1700人。這是美國疾病控制與預防中心（CDC）的早期監控安全系統……有了新冠疫苗後，在接種該疫苗的10個月內，已經報告了16766人死亡。”
+中共粗暴的撕毁一国两制，垂涎的正是香港辉煌的财富，而香港绝大部分的财富其实是掌握在少数人的手中。勇敢的香港人誓死保卫的除了自己狭小的蜗居和一份辛苦的工作，其实更多的是保卫这些无良奸商的财富和营商环境。可这帮不要脸的商人，泯灭良心，出卖港人投靠中共。
 
-約翰遜參議員是對的。
-目前VAERS 網站上報告了 16,766 人死於 COVID 疫苗。然而與新冠病毒疫苗相關的實際死亡人數，遠遠比VAERS報告的死亡人數要高。一位匿名的聯邦政府的工作人員表示，他看到的數字是超過150，000。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-363.png)
-約翰遜補充說，其中超過5400例死亡發生在接種疫苗後的2天內。
-他們爲什麼要對美國公衆隱瞞這一點？
-通過《週日早間未來》觀看完整視頻。
+中共这个天下第一绞肉机，一旦控制住香港，一定会开动绞肉程序。香港的肉都在富豪的身上，其结局可想而知。当下中共四面楚歌，国内经济每况日下，地产庞氏骗局已经玩不下去了，世上最大的经济泡沫爆破在即。因此，中共迫不及待对香港下手，香港富豪两三代人的百年财富很快要改名换姓了。另一方面，中共倒台也指日可待。到时，这些财富，自然会回归到香港人手中。
 
-文章點評僅代表個人觀點
+文字版原文：[报应来得快，中共开始对香港富豪开刀](https://gnews.org/zh-hans/1600934/)
 
-原文連接[https://www.thegatewaypundit.com/2021/10/senator-ron-johnson-no-point-mandate-whatsoever-covid-vaccine-16766-deaths-10-months-video/](https://www.thegatewaypundit.com/2021/10/senator-ron-johnson-no-point-mandate-whatsoever-covid-vaccine-16766-deaths-10-months-video/)
-
-翻譯：洛杉磯盤古農場 – 鋼蛋兒
-校對：洛杉磯盤古農場– Mike Li
-評論：洛杉磯盤古農場 – 鋼蛋兒
-編輯：洛杉磯盤古農場 – 柯鎮惡
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

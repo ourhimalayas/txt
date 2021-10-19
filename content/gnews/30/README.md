@@ -2,44 +2,48 @@
 ---
 
 
-## 维多利亚州警务人员因未接种新冠疫苗被停职
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1603931/)
+## 英国顶级私校将中共党员列入董事会
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1603974/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/PCMGXOTTVRMVRPYSKB7PEOBAMI-1.jpg)图片来源：泰晤士报
 
-#### 编译报导：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-10.jpg)
-图片来源：The Sunday Times & Sydney Criminal
+据《泰晤士报》的一项调查显示，一些顶级英国私立学校正在通过与中共关系密切的特许经营机构赚取数千万英镑。
 
-10月18日，澳大利亚维多利亚州警方表示，在州政府强制要求基本工作人员必须接种新冠疫苗后，34名警察和9名保护服务人员（PSO）已被停职。
+由港府提供2250万英镑无息贷款建成的香港哈罗国际学校有着庞大的校园，其董事会中有四名高级共产党员。
 
-这43名警方雇员被迫休带薪假或长期休假，并有可能失去工作。
+德威学校与中共国有关的九个校区之一的网站列出了如何让孩子入党的政策和程序。
 
-维多利亚警方发言人对媒体说：“维州警方目前知道34名警察和9名保护服务人员，他们没有遵守首席卫生官(CHO)的疫苗接种指示和首席专员的具体指示。”
+什罗普郡的康科德学院在上海有一家附属机构，与一名商人合作经营，该商人拥有一家向中共国军队供应设备的公司的股份。
 
-*“*只有在雇员因医疗问题而无法接种疫苗的情况下，才可豁免接种强制疫苗，如CHO（对工人）的强制疫苗接种指示中所述。”
+在过去的15年中，20所英国学校从国际特许经营机构中获得了大约6700万英镑的收入，而其中大部分来自中共国。这些学校通过一个税收漏洞从特许经营费中避免了高达1300万英镑的公司税。
 
-“选择不接种疫苗的警察和PSO已被转交专业标准指挥部，因为他们未能遵守首席专员的指示，随后的纪律处分可能导致成员被解雇。”
+由Kenneth Lau担任董事会主席的香港哈罗国际学校的董事每年收入可达30,000英镑，主席Kenneth Lau在学校网站上的简介概述了他向香港年轻人灌输“坚定的承诺、团结, 和对祖国的归属感”的愿景。
 
-维多利亚州所有获得授权的工人都必须在10月15日之前至少接种一剂疫苗，在11月26日之前完全接种疫苗。
+哈罗的名字被授权给亚洲国际学校有限公司（AISL），这是一家由中国亿万富翁丹尼尔·邱和已故的保守党政治家伊恩·泰勒在开曼群岛成立的公司。哈罗对该公司的授权为哈罗母公司的慈善机构筹集了超过1900万英镑的捐款。该慈善机构的管理者有李彼得（Peter Lee），是一名受过英国教育的房地产开发商并兼任一国两制研究所主任（该研究所是一个共产党附属智库并致力于加强北京和港府的密切联系）。该慈善机构的另一名管理者是约翰尼·莫克（Johnny Mok），一位在2016年为香港警方的暴行指控辩护的大律师。
 
-州长安德鲁斯表示，（明年澳网）未接种疫苗的网球运动员不会获得进入这里签证。如果他们确实获得了签证，他们可能需要隔离几周。明年4月举行的一级方程式大奖赛等赛事很可能会要求游客全面接种疫苗。
+德威学校的子公司向两家外国公司提供了价值690万英镑的名字使用许可：一家是德威国际学校管理有限公司 (DISM)，在开曼群岛注册，以及DISM设在中共国的关联公司——德宏教育。
 
-截至10月19日，维州当日新增1749个病例，11人死亡，现在有22476例活跃的病毒病例。当前疫苗接种率一剂为89.4%，两剂为67.2%。
+DISM是于2003年由英国律师Fraser White和他的华裔妻子Karen Yung成立的，他们当年因未能在上海为他们三个年幼的孩子找到一所满意的学校而后创立了这所教育机构。他们与德威学院签署了一项为期100年的合作伙伴关系，这一合作关系得益于此前他们对德威国际分支机构宣传搭建的网络,当时给机构董事长埃迪乔治（后来的英格兰银行行长）留下了深刻的印象。
 
-（以上文章仅代表作者个人观点，与Gnews平台无关）
+德宏教育在上海成立，由Karen Yung毕业于牛津大学的兄弟大卫管理。其在中共国注册的中资属性使得德宏能够绕开中共国禁止外国学校教育本地小学生的规定。
 
-参考链接：
+德宏旗舰校区的网站列出了如何引导该校的孩子们加入中共党员的政策和程序，以及宣布选举党支部书记和宣传委员的文章。德宏教育称其与德威的合作有助于将学生们安排进入“世界一流大学，包括常春藤盟校、牛津大学和其他罗素集团大学。
 
-1、[Coronavirus Victoria: Police and PSOs stood down over decision not to get COVID 19 vaccine in line with mandate for authorised workers (9news.com.au)](https://www.9news.com.au/national/coronavirus-victoria-police-and-psos-stood-down-over-decision-not-to-get-covid-19-vaccine-in-line-with-mandate-for-authorised-workers/2a5f710f-af8b-4bdd-9da0-0bca56e1e877)
+威斯敏斯特将开放与香港悠扬教育科技集团(HKMETG)合作至六所学校，时间到2028年。 威斯敏斯特学校校董主席John Hall博士写信给家长说，该合作项目“由HKMETG全额资助”，将提供“令人兴奋的文化交流机会”。
 
-2、[Victoria records new 1,749 local COVID-19 cases and 11 deaths – ABC News](https://www.abc.net.au/news/2021-10-19/victoria-records-new-covid-cases-and-deaths/100549554)
+简评：英国这样的老牌西方国家被中共“蓝金黄”浸淫的程度，令人发指。曾经让发展中国家甚至欧洲其他国家都艳羡的教育体系，如今居然堂而皇之的让中共党员列入校董事会，不尽让人怀疑这些学校无非是打着合作办学的名义，以达到其在中共国大揽钱财的目的，但是与恶魔做交易的人，最终会迷失自我，失去自己的一切。英国在对抗中共国渗透方面任重道远。
 
-编辑/发布：文泓
+原文链接：[Top English private schools put Chinese communists on boards](https://www.thetimes.co.uk/article/top-english-private-schools-put-chinese-communists-on-boards-vxsdtjcpk)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

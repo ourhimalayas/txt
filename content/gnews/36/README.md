@@ -2,36 +2,27 @@
 ---
 
 
-## 工党议员“利用种族主义”来逃避审查
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1603821/)
+## 针下亡魂｜葡萄牙 18 岁女大学生接种疫苗5日后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1603945/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/r0_0_800_600_w1200_h678_fmax-1.jpg)图片来源：mandurahmail.com.au
-#### 编译：小红帽
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 19/10/2021**
 
-前维多利亚州劳工部长艾德姆·索缪雷克（Adem Somyurek）和他的政治门生指责记者有种族主义倾向，以阻止记者调查由纳税人资助的，授予其派系盟友的拨款。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
 
-在索缪雷克先生的指导下，Banyule市长里克·加罗蒂（Rick Garotti）周二告诉维多利亚独立广泛反腐败委员会调查，他帮助索马里澳大利亚维多利亚委员会（SACOV）获得了几笔赠款。
+【葡萄牙】布拉加一名 18 岁的女孩 Inês Rafael Mendes 在接种 COVID-19 疫苗 5 日后死亡。 Inês 是当地一间大学的新闻系学生，按照规定，她于 8 月 2 日接种了第一针，5 日后，即 8 月 7 日凌晨，当时她还在和朋友一起露营，朋友发现她心脏骤停，立即拨打了急救电话，可惜，医疗队赶到时，为时已晚。
 
-其中包括10万美元，作为2019年维多利亚负责任赌博基金会预防合作计划的一部分。该计划由当时的博彩部长玛琳·凯鲁兹（Marlene Kairouz ）监督。
+她的父母认为，COVID-19 疫苗就是她猝死的原因。“Inês 突然去世之前，她没有心脏问题或任何疾病，她长年练习古典舞，身体健康。”
 
-加罗蒂先生说，他“不知道”赠款的用途，也不知道索马里澳大利亚维多利亚委员会将用它做什么，但他帮助了该组织的创始人兼秘书侯赛因·哈拉科（Hussein Haraco），因为哈拉科是一个“派系盟友”，因为其派系活动而得到奖励。
+不过，有报导引述一位一起露营的朋友指称，Inês 在露营期间，即她离世前晚，有喝过白酒，并且喝完就感到不适。因此，当地警方认为，过量饮酒是 Inês 猝死的原因。
 
-当记者联系哈拉科博士，询问有关补助金的问题时，加罗蒂先生和索缪雷克先生讨论了以种族主义的说法作为回应。两人还代表哈拉科博士起草了一封回复给记者的电子邮件。
+这种结论，令 Inês 的家人难以接受，她的叔叔表示，“她是一个健康的女孩，经常运动，注意饮食，突然就这样死去，这是闻所未闻的，我不认为有过量饮酒，Inês 从来不喝酒。”
 
-“索马里社区厌倦了像你这样的记者指责我们分支堆叠……是因为我们是黑人吗？”邮件写道。
+目前，她的案件已被移交给布拉加司法机关进一步调查。
 
-索缪雷克先生在被开除之前退出工党，但保留了他的上议院席位，而凯鲁兹女士则辞去了内阁职务。两人都否认有不当行为。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/38-1.jpg)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+来源｜ [个案038](https://magg.sapo.pt/atualidade/atualidade-nacional/artigos/familiares-jovem-morreu-vieira-do-minho-apontam-vacina-da-contra-covid-causa-morte)
 
-**参考新闻：**[Labor MP ‘used racism’ to avoid scrutiny (thenewdaily.com.au)](https://thenewdaily.com.au/news/state/vic/2021/10/19/adem-somyurek-ibac/)  ** **
+* * *
 
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)

@@ -2,59 +2,81 @@
 ---
 
 
-## COVID-19最新情报｜美参议员Ted Cruz：拜登授权强制接种疫苗 侵害人权
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1603909/)
+## “鬼城”：恒大危机照亮中国数百万空房
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1603973/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-60.jpg)
-美国德克萨斯州共和党籍参议员Ted Cruz在推特上表示，他认为拜登总统在九月发布的强制接种命令，是侵害人权的。
+评论: ***现在，类似恒大集团濒临破产的中国房地产巨头比比皆是，在中共国房地产行业的巨大债务危机中，可以看到中共极权体制下以“国有企业”之名在国内国外行“庞氏骗局”术，用上市和销售等方式圈走各国纳税人的钱财 ，即将到来的债务危机导致房地产泡沬破裂，将成为中共经济轰然倒塌的第一块多米诺骨牌。***
 
-拜登针对Delta提出六大方针的[COVID-19 ACTION PLAN](https://www-whitehouse-gov.translate.goog/covidplan/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=nui,sc)（COVID-19战略计划），目的为打击新冠病毒。
+据《CNN Business》记者Michelle Toh，2021 年 10 月 15 日报道
 
-其中《[COVID-19 Action Plan With New Vaccine Mandates](https://www-aamc-org.translate.goog/advocacy-policy/washington-highlights/president-biden-announces-covid-19-action-plan-new-vaccine-mandates?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=nui,op,sc)》（新冠疫苗强制接种），要求美国境内所有拥有雇员达100人以上的雇主，强制员工接种新冠疫苗，或是每周提供阴性证明。在媒体的推广下，许多私营部门已经表示将遵循拜登发布的疫苗规定，要求员工接种疫苗。更有私营部门，因雇员未接种疫苗而予以解雇。
+恒大的解体仍然引起全球关注，但它的麻烦是更大问题的一部分。
 
+数周以来，这家濒临破产的中国房地产集团一直是头条新闻，投资者等待着看其巨额债务会发生什么。随着缓慢蔓延的危机的展开，分析师指出了一个更深层次的潜在问题：中国的房地产市场在多年供过于求之后正在降温。
 
+周五，中国当局终于对恒大危机进行了权衡。中国人民银行表示，该公司业务管理不善，但金融体系面临的风险“可控”。
 
-> Joe Biden’s illegal vaccine mandate at work!
-> 
-> Suddenly, we’re short on pilots & air traffic controllers.[#ThanksJoe](https://twitter.com/hashtag/ThanksJoe?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wviOzLt7Iv](https://t.co/wviOzLt7Iv)
-> — Ted Cruz (@tedcruz) [October 10, 2021](https://twitter.com/tedcruz/status/1447327311095910402?ref_src=twsrc%5Etfw)
+中国央行金融市场司司长邹澜在新闻发布会上表示，“近年来，公司经营管理不善，经营不适应市场变化。相反，它盲目多元化扩张，导致经营和财务指标严重恶化，最终导致风险。”
 
+警告标志已经闪烁了一段时间。在恒大破产之前，在中国仍然有数千万套公寓空置。近年来，问题只会变得更糟。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2564.png)2021 年 9 月 17 日在北京看到的住宅楼。“中国的住宅需求正在进入持续下降的时代，”一位经济学家表示。图片源自CNN
+凯投宏观首席亚洲经济学家马克-威廉姆斯（Mark Williams）估计，中国仍有大约 3000 万处未售出的房产，可容纳 8000 万人。这几乎是德国的全部人口。
 
+最重要的是，据凯投宏观估计，大约有 1 亿处房产可能已被购买，但人们还未入住，可容纳约 2.6 亿人。此类项目多年来备受关注，甚至被称为中国的“鬼城”。
 
-[Ted Cruz](https://en.wikipedia.org/wiki/Ted_Cruz)推特分享西南航空公司的新闻，西南航空因为遵守拜登总统发布的疫苗政策，要求员工必须接种新冠疫苗，否则不得执勤。此举间接导致了数以千计的航班被取消。大量旅客因航班取消缘故，滞留于机场航厦。
+下面来看看其中的一些项目，以及问题最初是如何产生的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2564-1.png)2021 年 9 月 28 日，一名工人在中国青海省西宁市南川地区的一栋在建公寓楼安装安全网。图片源自CNN
+房地产及相关行业是中国经济的重要组成部分，占 GDP 的比重高达 30%。威廉姆斯表示，与建筑和邻近活动相关的经济产出比例“远高于其他主要经济体”。
 
-Ted Cruz讽刺拜登总统，表示：感谢Joe（拜登总统）。
+几十年来，这帮助该国保持了快速的经济增长。
 
-西南航空针对航班取消一事，对外说明：不是因为人力短缺，而是天气因素。
+但多年来，批评者一直质疑这种增长引擎是否正在为世界第二大经济体制造一颗定时炸弹。这部分是因为许多开发商为其项目融资而承担了大量债务。
 
-#### Ted Cruz：要求出示接种证明、阴性证明，侵犯隐私！
+作为中国负债最多的开发商，恒大已成为不可持续增长的典型代表，负债超过3000亿美元。
 
-今年八月，Ted Cruz与Fox新闻主播Sean Hannity同台称：新冠疫苗接种证明是对个人隐私的侵犯。当被要求出示接种新冠疫苗的相关证明，都是对个人自由的侵犯。
+然而，“恒大并不是唯一一家陷入困境的公司，”穆迪分析的经济学家克里斯蒂娜-朱（Christina Zhu）指出。在过去的几天里，许多其他开发商披露了他们自己的现金流问题，要求贷方同意债务延期或警告潜在违约。
 
-#### COVID法西斯主义兴起，美国陷入绝对的混乱
+朱在最近的一份报告中写道，今年上半年有 12 家中国房地产公司拖欠债券付款，总额约为 192 亿元人民币（近 30 亿美元）。
 
-据[新闻报导](https://www.click2houston.com/news/local/2021/06/30/passengers-frustrated-after-southwest-airlines-cancels-thousands-of-flights/)，美国西南航空取消上千个航班，导致许多搭乘西南航空的旅客无法顺利启程，并且滞留于机场航厦中，等待西南航空安排“完全接种疫苗”的机组人员，引导旅客到目的地所需的航班。
+她补充说：“这占今年前六个月公司债券违约总额的近 20%，是中国大陆所有行业中最高的”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2564-2.png)2016 年，美国有线电视新闻网的安德鲁·史蒂文斯 (Andrew Stevens) 在中国所谓的“鬼城”之一的神府高峰时间走在一条空荡荡的高速公路上。图片源自CNN
+大流行使活动暂时停止。但随着中国重新开放，建筑业随后恢复生机，中国的房地产市场也出现了短暂的反弹。
 
-西南航空尚未允许“未完全接种疫苗”的员工返回工作岗位。
+然而，从那以后，市场又开始动荡。而且没有立即缓解的迹象。
 
-#### 德州颁布“疫苗歧视禁令”
+朱指出，在过去的几个月里，“价格增长、房屋（建筑）开工和销售的衡量标准”已大幅减少。她补充说，8 月份，以销售面积衡量的房地产销售与去年同期相比下降了 18%。
+朱写道，同月，新房价格“较上年同期小幅上涨 3.5%，这是自 2020 年 6 月房地产市场从大流行的影响中反弹以来的最小涨幅”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2564-3.png)2021 年 8 月 30 日星期一，在中国上海的一家房地产办公室展示的待售公寓清单。图片源自CNN
+“中国的住宅需求正在进入持续下降的时代，”威廉姆斯在一份研究报告中写道。他称之为“恒大和其他高杠杆开发商麻烦的根源”。
 
-德克萨斯州长签署行政命令，包含私营部门在内，禁止疫苗歧视。（[行政命令PDF](https://gov.texas.gov/uploads/files/press/EO-GA-40_prohibiting_vaccine_mandates_legislative_action_IMAGE_10-11-2021.pdf)）
+然后还有未完成项目的问题，即使有需求。经济学家表示，中国的大部分新房产（约 90%）在完工前就已售出，这意味着房屋建筑商的任何挫折都可能直接影响买家。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2564-4.png)2018 年 12 月 23 日，中国购房者在中国江苏省淮安市查看住宅物业项目的房屋模型。图片源自CNN
+“（这）为当局提供了强大的动力，以确保在重组失败的开发商时，正在进行的项目继续进行，”威廉姆斯说。
 
-西南航空公司对德州的禁令表示**不会遵守**，将全力遵循拜登总统的疫苗规定。拜登总统发布的疫苗规定，希望美国人民尽最大努力接种疫苗，以维持生活、就业。
+根据美国银行最近的分析，恒大已售出20万套尚未移交给买家的住房。这加剧了人们的担忧，即该国第二大开发商可能会空手而归。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2564-5.png)2021 年 9 月 23 日，恒大集团在中国江苏省苏州市开发的项目恒大文化旅游城在建住宅楼。图片源自CNN
+最近几周，政府已将重点转向限制危机的影响和保护普通民众。中国人民银行在上月底的一份声明中并未具体提及恒大，誓言“保持房地产市场健康发展，维护住房消费者合法权益”。
 
-- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/)
-- 相关：[新冠病毒预防、治疗方案（](https://vladimirzelenkomd.com/prophylaxis-protocol/)Zev Zelenko 博士）
-- 相关：[印度德里使用伊维菌素，确诊病例下降97%](https://gnews.org/zh-hant/1570870/)
+央行官员邹澜周五表示，恒大是一个孤立现象。
 
+“国内房地产市场保持了地价、房价和预期的稳定。大部分房地产企业经营稳健，财务指标良好，房地产行业总体健康。”他告诉记者。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2564-6.png)中国天津黄昏时分写字楼的天际线景观。图片源自CNN
+诚然， 并非所有房地产公司都陷入困境。凯投宏观资深中国经济学家朱利安·埃文斯-普里查德 (Julian Evans-Pritchard) 表示，虽然一些参与者显然在苦苦挣扎，但“大多数开发商还未处于违约的边缘”。
 
-白宫目前正在考虑将“美国境内航班旅客”也纳入强制接种范围，若白宫确定将境内航班旅客纳入强制接种范围，那没有接种疫苗的人民将无法搭乘飞机。
+他在给客户的一份报告中说：“除了几个例外，大多数主要开发商的财务状况都比恒大要强得多，并且应该能够经受住因疫情蔓延而暂时飙升的借贷成本。” 他补充说，至少在短期内，这应该会在“当前市场不安的情况下”提供一些保证。
 
-- 相关：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
-- 相关：[麥卡洛博士呼籲，不要接種新冠疫苗](https://www.wnd.com/2021/05/prominent-physician-dont-get-covid-shot/)（完整采访）
+但从长远来看，这可能无关紧要。
 
+埃文斯-普里查德写道：“在未来十年内成功应对住房需求的结构性下降将证明更具挑战性。多年来，该行业的长期整合似乎比迫在眉睫的开发商倒闭潮更有可能。”
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-92.jpg)
-[原文](https://www.naturalnews.com/2021-10-16-cruz-calls-biden-covid-vaccine-mandate-illegal.html)￨转译 台湾宝岛农场 zhong
-（一切内容以原文为主，转译仅供参考）
+文章点评仅代表个人观点
+
+文章来源：[https://www.cnn.com/2021/10/14/business/evergrande-china-property-ghost-towns-intl-hnk/index.html](https://www.cnn.com/2021/10/14/business/evergrande-china-property-ghost-towns-intl-hnk/index.html)
+
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 –Mike Li
+评论：洛杉矶盘古农场 – 滴水穿石
+编辑：洛杉矶盘古农场 – 滴水穿石
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

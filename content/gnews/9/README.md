@@ -2,9 +2,10 @@
 ---
 
 
-## 10/10郭文贵直播：拜登签署了卖台的文字性承诺（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1604067/)
+## 来自澳大利亚的难以置信的消息：法官和部长豁免接种疫苗。这到底是什么原因呢？
+` MG 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1604150/)
 
-10/10/2021 郭文贵直播：台湾危矣！拜登签署了亲共的文字性承诺；美国卖台的三大根本条件：1) 中共继续买美国国债；2) 保持中美军事交流，在南海和台湾不发生军事冲突；3) 美方坚决支持一中并反对台独，不强调“两岸任何一方不改变现状”；这等同于给了中共以孙中山和灭台独的名义拿下台湾的合法性。
+澳大利亚（政府）曾经规定，首先在这个10月15日之前，在这里的每一个人都必须注射疫苗。然而7天之后却宣布，议会中的所有成员，包括议会部长和所有的法官都不需要接种疫苗。如果疫苗如此安全，如此有效，请问我们为什么要违反《基本法》，让法官和部长不需要接种疫苗？？
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+原视频链接：https://www.youtube.com/watch?v=B\_SFEUR7jv8
+ https://rumble.com/vnn2i7-in-australien-mssen-richter-und-minister-des-parlaments-keine-flssigkeit-ha.html
