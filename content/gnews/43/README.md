@@ -2,60 +2,30 @@
 ---
 
 
-## 中共国的“共同富裕”主义如何影响世界其他地区
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1602077/)
+## 美加战舰联合，再次穿越台湾海峡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1602038/)
 
-**编译：文羽**
+作者：飞虹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国军方10月17日宣称，美国海军阿利·伯克级导弹驱逐舰“杜威号”与加拿大皇家海军哈利法克斯级护卫舰“温尼伯号”，已于10月14日和15日联合航行, 穿越了台湾海峡，此举旨在”展现美国与盟友对维护印太地区自由开放的承诺”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip31.png)gettr.images
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-11.jpeg)
 
-中共国声称，“共同富裕”这是减少财富分配中日益加剧的不平等的政策，正是目前经济发展所需要的，但批评人士表示，这些政策带来了对企业和整个社会的更大控制。
+一年多来，中共不断对台湾发出威胁信号，频繁派遣军机侵扰台湾。作为回应, 美国及盟国海军则不断在台海及南海水域进行联合演习, 或者穿越台湾海峡的巡航, 以维护这一海域的航行自由 。最近的一次是在9月27日，英国皇家海军“伊丽莎白女王”号航母打击群的“里士满号”护卫舰 穿过台湾海峡，前往越南军港。
 
-虽然这种对“共同富裕”的追求只针对中共国人民，但它可能会在全世界产生深远的影响。
+(本文仅代表作者观点)
 
-“共同富裕”政策的后果之一是中共国企业重新重视国内市场。
+参考链接：[美加战舰联合穿越台湾海峡 中国谴责“挑衅滋事”](https://www.voachinese.com/a/china-condemns-us-canadian-warships-crossing-taiwan-strait-20211017/6274141.html)
 
-近年来在全球范围内提升知名度的科技巨头阿里巴巴刚刚承诺在与中共国“共同繁荣”相关的项目中投入155亿美元，并成立以张勇为首席执行官工作组。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-该公司表示，它是国家经济进步的受益者之一，“如果社会做得好，经济做得好，那么阿里巴巴能更好。”
+新闻访谈终审：文龍
+编辑/校正/发稿：谐趣园
 
-其竞争对手科技巨头腾讯也加入了这项事业，并承诺出资77.5亿美元。
-
-中国的企业结构急于显示其对中国共产党（CCP）指令的承诺，但当开始推动企业接受习近平的新愿景时，正如中国一家领先企业的代表私下告诉记者的那样，”有点震惊”。
-“但后来我们习惯了这个想法。这不是从富人那里偷东西的问题。这是关于重组社会和建立一个中产阶级。毕竟，我们是一个以消费者为基础的企业，所以这对我们有好处”。
-
-除了阿里巴巴和腾讯的努力之外，共同富裕计划到目前为止还没有取得任何具体成果。
-
-“许多行业都出现了大量即时监管，”他说，指的是中共国政府最近采取的控制科技公司的举措。 “这带来了不确定性和问题：如果你向内看，那么你真的需要世界其他地方吗？”
-
-从本质上讲，共同富裕寻求一个更公平的中共国社会，至少共产党是这么说的。这可能会改变社会主义在全球范围内的含义。
-
-“中共国希望避免一些西方国家的两极分化社会，我们已经看到它们导致去全球化和国有化。”
-
-但专家认为，如果共产党试图将中共国社会主义转变为其他国家的替代模式，那么共同富裕就不是办法。
-
-牛津大学中国中心研究员乔治·马格努斯（George Magnus）说：“这是习近平时期向左倾斜和加强控制的一部分。”
-
-对马格努斯来说，共同富裕并不意味着复制欧洲式的社会福利模式。
-
-“隐含的压力是实现共产党的目标，”他说。 “将会有高昂且‘不合理’的所得税和私营企业为实现中共的经济目标而捐款的压力。”
-
-一个乌托邦的中共国，在习近平的指挥下，很明显共同繁荣将成为中共国政府和社会围绕的轴心之一。
-
-这将是一种乌托邦式的中共国，中共希望将自己展示为西方提供给世界的可行替代模式。
-
-但它还有另一个方面，更多地掌握在共产党的手中。
-
-对于外国公司来说，中共国一直是一个艰难的环境。共同繁荣意味着世界第二大经济体变得更加难以驾驭。
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**新闻来源**：[bbc.com] [Cómo la doctrina de la “prosperidad común” en China puede impactar al resto del mundo](https://www.bbc.com/mundo/noticias-internacional-58853605)
-
-* * *
-
-***审核：蚂蚁兄弟
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

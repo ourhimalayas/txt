@@ -2,33 +2,57 @@
 ---
 
 
-## 完全接种COVID疫苗的前美国国务卿死于COVID 并发症
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1602899/)
+## 国会山司法要害部门一半都是律师，都被共产党控制了
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602947/)
 
-据《新闻大全》2021 年 10 月 18 日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/powel_adobespark.png)图片来自网络
-美国第一位黑人国务卿科林鲍威尔死于 COVID-19 并发症。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/277-aw0zs-cgvx6.jpg)
+[https://gtv.org/video/id=616d8acbd2e2b8174876bdfd](https://gtv.org/video/id=616d8acbd2e2b8174876bdfd)
 
-科林·鲍威尔是牙买加移民的儿子，他成为美国第一位黑人国务卿和高级军官。
+**郭文贵**
+**Miles Guo**
 
-他的家人说，尽管他已经完全接种了COVID-19疫苗，但他还是死于该病的并发症。
+美国现在这个国家，咱们今天为啥从头要谈法治
+now the United States, why are we talking about the rule of law from the begin-ning?
 
-民主党人以及鲍威尔的共和党同僚，包括前总统乔治·W·布什，都纷纷表示哀悼。
+刚才Rachel做得非常好，我希望继续再深挖下去
+Rachel did a very good job just now, I hope you continue to dig deeper
 
-“布什在一份声明中写道：“许多总统依赖鲍威尔将军的建议和经验。”他是总统们的最爱，以至于他获得了总统自由勋章–两次。“
+美国的国会山一半都是律师，美国的司法部门要害部门一半的人都是律师
+Half of Capitol Hill in the United States are lawyers, and half of the people in the key departments of the US judicial department are lawyers
 
-英国前首相托尼-布莱尔（Tony Blair）回顾了鲍威尔的自嘲式幽默，他对员工的善意，以及他 “愿意为了国家的利益跨越党派分歧”的精神。
+都是被共产党控制了，想控制谁就控制谁
+They are all controlled by the Communist Party, they control whoever they want to control
 
-布莱尔说：“多年来，科林是美国军事和政治领导层的一个重要人物，他能力超群，为人正直，性格非常可爱和热情。”
+而且很脆弱，西方的民主法治，当你有信仰的时候，它是极为强大的
+and it’s very fragile, the democracy and rule of law in the West is extremely pow-erful when you have faith
 
-几十年来，鲍威尔是美国最重要的黑人人物之一。他被三位共和党总统任命为高级职位，并在美国军队在经历了越南战争的创伤后重新获得活力时达到了顶峰。
+当你没有信仰的时候，它很脆弱
+it is so fragile when you have no faith
 
-在越南受伤的鲍威尔在1987年至1989年期间担任罗纳德-里根总统的美国国家安全顾问。作为一名四星陆军上将，他在1991年海湾战争期间在乔治-H-W-布什总统手下担任军方参谋长联席会议主席，在这次战争中，美国领导的部队将伊拉克军队从邻国科威特驱逐出去。
+欧洲就更不用提了，那些老不要脸的就不用提了
+Hard to even mention Europe, those old shameless politicians
 
-鲍威尔是一个温和的共和党人和实用主义者，他曾考虑在1996年成为第一位黑人总统，但他的妻子阿尔玛对他的安全的担忧帮助他作出了不同的决定。2008年，他与他的政党决裂，支持民主党人巴拉克·奥巴马，后者成为第一个当选白宫的黑人。
+就没见过有骨头的人，
+I have never seen anyone with backbone
 
-【本文仅代表作者个人观点，与Gnews无关】
+———————————————————
 
-原文链接：[https://www.newsmax.com/headline/colin-powell-dies-covid-complications/2021/10/18/id/1040894/](https://www.newsmax.com/headline/colin-powell-dies-covid-complications/2021/10/18/id/1040894/)
+**原视频链接**:[https://twitter.com/se1y7cblljselva/status/1449362247776567297?s=24](https://twitter.com/se1y7cblljselva/status/1449362247776567297?s=24)
 
-翻译：烟波浩淼 |校对：雨山溪桥客 | 编辑&发布：V
+Date:10/17/2021
+原视频标题:
+Half of the crucial judicial departments on Capitol Hill are lawyers and they are all controlled by the Communist Party
+原视频日期：2021/10/13
+任务编号：KC178（2569）
+视频时间段 : 0:00-0:45
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

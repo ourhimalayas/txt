@@ -2,37 +2,49 @@
 ---
 
 
-## 国家动物园对灵长类动物接种中共病毒疫苗
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1602919/)
+## 美国前国务卿科林-鲍威尔死于COVID并发症
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1602962/)
 
-据《福克斯新闻》布雷克.杜马斯 （Breck Dumas）2021年10约16日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/apes_adobespark.png)猿在围栏内徘徊。2018年1月4日华盛顿DC国家动物园。（摄影/来源：安德鲁·利希滕斯坦/盖蒂图片社）
-国家动物园声称将会尽快为更多种类的动物接种疫苗。
+作者：纽约香草山福音部 – Lilian89
 
-史密森尼国家动物园和保护生物研究所，本周为其园内几只灵长类动物接种了中共病毒疫苗，并声称这只是该机构为其所在地的动物接种中共病毒疫苗的开始。
 
-动物园在周五的新闻稿中宣布，工作人员在周三对十一只动物进行了第一轮的两剂注射。包括：七只猩猩、一只西部低地大猩猩、一只白耳猴和两只帝王狨猴。
 
-硕腾（Zoetis）是总部位于密歇根州的兽医制药公司。该公司在发现中共国的一只狗在大流行早期感染了中共病毒后专门为动物开发了这款疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-硕腾在七月份发布的一份新闻稿中表示，其开发的这款针对中共病毒的注射疫苗已获得“美国农业部逐案授权”，可用于一系列动物园动物。并表示“宠物或牲畜目前不需要注射该疫苗。”
 
-国家动物园还提供了在上个月中共病毒测试为“推定阳性”的狮子和老虎的最新状态。动物园称这些大型猫科动物“恢复良好“并且”行为、饮食和饮水正常。“
 
-动物园解释说“在接下来的几个月里，动物园将和位于弗吉尼亚州，皇家前线的史密森尼保护生物研究所，继续对选定的易感物种进行疫苗接种，”并补充到“狮子和老虎将不会在感染病毒后的90内接种疫苗。”
+10月18日上午，美国前国务卿和参谋长联席会议主席科林-鲍威尔将军因COVID-19并发症去世。
 
-国家动物园没有立即回应福克斯新闻关于疫苗接种的问题。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tg.jpg)华盛顿DC的史密森尼国家动物园中的老虎。（摄影/来源：卡伦·布莱尔/法新社）
-美国境内越来越多的动物园，正在为各个物种的动物接种硕腾研制的动物中共病毒疫苗。
+![](https://image.cnbcfm.com/api/v1/image/106961860-16345640352021-10-18t132037z_1211972680_rc2dcq9gb487_rtrmadp_0_usa-powell.jpeg?v=1634564097&amp;w=929&amp;h=523)图片来源：路透社
 
-据哥伦比亚广播公司新闻报道。丹佛动物园和奥克兰动物园，今年夏天已对园内部分动物进行了注射。丹佛动物园计划像国家动物园那样，为更多的物种进行中共病毒疫苗注射。
+鲍威尔是牙买加移民的儿子，在里根政府时期成为美国第一位黑人国家安全顾问。此后，乔治-布什总统任命鲍威尔为参谋长联席会议最年轻的第一位黑人主席。作为主席，他在波斯湾战争期间监督了美国的沙漠风暴行动。他去世的消息传来后，美国的领导人和前同事都称赞他是一位领袖和英雄，前总统乔治-布什更是称赞他是一位“伟大的公务员”。
 
-《福克斯35》[报道](https://www.fox35orlando.com/news/zootampa-begins-vaccinating-animals-against-covid-19)，周四开始坦帕动物园也已开始对动物进行疫苗注射。
+鲍威尔的家人在Facebook上写道：“我们失去了一位杰出的、充满爱心的丈夫、父亲、祖父和一个伟大的美国人。”据悉，虽然鲍威尔患有多发性骨髓瘤，但他还是完全接种了新冠疫苗。
 
-“佛罗里达黑豹、臭鼬、水獭和灵长类动物处于接种名单前列，” 福克斯35报道。“坦帕动物园目前已收到足够十九类共九十三只动物接种的中共病毒疫苗。”
+而今，COVID疫苗给人类带来的次生灾害正逐渐在全球范围爆发。因此，任何强制他人打疫苗的行为，都等同于谋杀犯罪。
 
-【本文仅代表作者个人观点，与Gnews 无关】
+（本文仅代表作者观点）
 
-原文链接：[https://www.foxnews.com/us/national-zoo-vaccinates-primates-against-covid-19](https://www.foxnews.com/us/national-zoo-vaccinates-primates-against-covid-19)
+参考阅读：
 
-翻译：Fila文新心 |校对：烟波浩淼 |编辑&发布：V
+[Colin Powell, trailblazing soldier and statesman who made case for Iraq invasion, dies of Covid at 84](https://www.cnbc.com/2021/10/18/colin-powell-former-secretary-of-state-who-made-case-for-iraq-invasion-dies-of-covid-complications-at-84.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)

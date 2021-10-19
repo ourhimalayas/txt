@@ -2,26 +2,17 @@
 ---
 
 
-## 以色列的无声快递服务
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1602487/)
+## 中共外交部就美加军舰通过台湾海峡措辞强烈
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1602482/)
 
-新闻来源：德国世界报报网络版
+撰稿：西枫westca
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/10/a3f1416988cdd730f3d6a1a13d8c4cceu5.jpg)图片来源：环球网
+据环球网10月18日报道，外交部发言人赵立坚对于日前美国“杜威”号导弹驱除舰和加拿大“温尼伯”号护卫舰通过台湾海峡表示：“中国捍卫国家主权和领土完整的决心坚定不移，中国军队时刻保持高度戒备，坚决反制一切威胁挑衅。美方应改弦更张、纠正错误。加方应从自身利益和中加关系大局出发，不要为他人火中取栗、甘当帮凶。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Drohnenlieferung-Eis-Sushi-Blutspende-5.jpg)
+中共国东部战区二日前也就美加两国军舰过航台湾海峡发布谈话称，美加勾连挑衅、搅局滋事、性质恶劣，严重危害台海和平稳定。并称，台湾是中国领土的一部分，战区部队时刻保持高度戒备，坚决反制一切威胁挑衅。
 
+台湾海峡本是公海，任何舰只都有权合法通过。反之中共国在10月初的几天内，派遣近150架战机飞入台湾防空识别区。是谁意在挑起纷争，一目了然。台湾领土属于谁，是由台湾人民决定的，而不是由中共独裁控制的。
 
-资料来源：Dror, Ben David, 以色列创新局
-
-以色列用无人机运送包裹，可能在几年后成为现实。在特拉维夫的一家公司，正在测试这种空中送货服务。
-
-在离地面两米的地方，无人机突然停止飞行。经过紧急警告附近的人群后， 无人机进入着陆地区并降落。 无人机带着一个鞋盒大小的盒子，里面是冰激凌。它仍然是冻结状况的，证明无人机送货服务实验已经成功了。
-
-这些天，几十架无人机在以色列大都市地区上空嗡嗡作响，运送冰激凌、寿司和血浆。它们是国家无人机计划的一部分，政府希望通过该计划建立一个空中货物运输的网络。交通堵塞和汽车尾气将成为送货服务的过去。在未来，比萨饼出租车和包裹快递员将来自空中， 但愿这个无声的快递服务能够顺利实现。
-
-[https://www.welt.de/politik/ausland/plus234477574/Eis-Sushi-Blutspenden-Drohnenpost-Israels-lautloser-Lieferservice.html](https://www.welt.de/politik/ausland/plus234477574/Eis-Sushi-Blutspenden-Drohnenpost-Israels-lautloser-Lieferservice.html)
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-
-责任编辑/发布： Shuizhuyu
+**新闻来源：**[美加军舰过航台湾海峡，赵立坚回应：中国这个决心坚定不移！ (huanqiu.com)](https://world.huanqiu.com/article/45Dlv0PQQdt)
