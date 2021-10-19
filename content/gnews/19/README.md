@@ -2,20 +2,31 @@
 ---
 
 
-## 加拿大维权组织就强制疫苗护照起诉安省政府
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1604586/)
+## NIH在7月份已将伊维菌素纳入治疗中共病毒推荐药物
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1604629/)
 
-编译撰稿：Spirit      校对编辑：硫酸羟氯喹64
+**撰稿：日本东京方舟农场 北极**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/fym-edited.jpg)图片来源：TRUENORTH
+据网名Daily Beats的用户10月15日发布在盖特(Gettr)上的一段视频显示，NIH（美国国立卫生研究院）在7月8日就已将伊维菌素列为治疗中共病毒的推荐药物，而美国患者和医生却并不知道。
 
+视频中，来自美国的Bryan Ardis医生披露，他每周都会收到很多中共病毒患者及其家属的邮件，均是由于伊维菌素得不到官方批准，导致ICU（重症监护室）医生或医院管理人员无法开具伊维菌素的处方治疗病毒感染。
 
-据《加拿大律师日报》10月18日报道，【宪法自由正义中心】组织当天宣布将代表8名安大略省居民，就当局目前实施的“强制疫苗护照”措施起诉安大略省政府。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/id13047584-504254-scaled.jpg)图片来自于网络
 
-该组织律师佐治.皮纳达在其声明中指出：“就企业和组织的所有者而言，政府强推的疫苗护照迫使其去执行那些违背宪章宗旨的法规，以及服从通常被认为是违反人权的立法制度。
+事实上，NIH网站在7月8日更新发布的用治疗中共病毒的推荐药物中，明确列出了伊维菌素及具体使用剂量。
 
-加拿大最高法院则认为：无可争议的是，《宪章》明文规定保护公民身体自主权和知情同意权。而“疫苗护照”则是一个旨在颠覆宪章，并使其保护措施失去意义的违宪企图。这不仅是道德上的错误，更是非法的。
+Bryan Ardis医生表示，NIH之所以悄悄将信息放在网站而不通知医院使用，一方面为了确保没人知道，另一方面是为了在以后的法庭上为自己辩解，掩护罪行。
 
-（以上内容仅代表原文信息和作者个人观点）
+Bryan Ardis医生得出结论说，所有美国医生和医疗机构针对中共病毒的治疗指导都遵循NIH。
 
-[原文链接：](https://www.thelawyersdaily.ca/articles/30561/rights-group-sues-ontario-government-over-proof-of-vaccination?category=covid-19)
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[Ivermectin is listed in nih.com as one of the two medicines to treat Covid-19 patients. Please see the table below.](https://gettr.com/post/pe66me9529)
+
+[Table 2e. Characteristics of Antiviral Agents That Are Approved or Under Evaluation for the Treatment of COVID-19](https://www.covid19treatmentguidelines.nih.gov/tables/table-2e/)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

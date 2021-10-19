@@ -2,39 +2,36 @@
 ---
 
 
-## “一人犯过，罪及家人”&#8212;中共再掀“连坐制”
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1537086/)
+## 美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1531510/)
 
-撰稿：二号电梯
+根据《1933 年证券法》第8A 条启动停终程序行政令、作出结论及实施停终令
 
-在现代的法治体系中，无论是欧美等发达国家，还是贫穷落后的非洲部落，谁犯罪，谁受处罚，罪不及家人，这是最基本的法则吧？只有在千百年前的所谓腐朽没落的封建社会，才会有“一人犯罪，祸及家人”的所谓“连坐制”吧？
-![](https://assets.gnews.org/wp-content/uploads/2021/09/ABE34377-BE54-4351-8884-341BB3F64D43-edited.jpeg)
-（图片来自网络）
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/1-4.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/2-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/3-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/4-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/5-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/6-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/7-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/8-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/9-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/10.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/11-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/12.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/13.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/14.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/15.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/16.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/17.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/18.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/19.jpeg)
 
-但是看看现在的中共，在如今的21世纪，在奴役了中国70年之后，又把可怜的中国老百姓拖回到千百年前！
 
-2021年9月10日，43名盘州籍非法滞留缅北人员被当地政府通告惩戒。惩戒措施包括曝光公示、关停手机号码、冻结银行及电子支付账户、纳入失信人员和公安部“两卡”惩戒人员名单等。但是重点是：
+[中文PDF版：](https://assets.gnews.org/wp-content/uploads/2021/09/SEC-order_20210913_中文翻译-V2.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/SEC-order_20210913_中文翻译-V2.pdf)
 
-通告还列出对缅北滞留人员的近亲属的惩戒措施，包括在其近亲属住所喷涂、悬挂缅北滞留人员标识；暂停其直系亲属办理户籍、出入境、驾驶证、车辆管理等业务；其直系亲属入团、入党、入学、参军、考录公务员等函询调查时，原则上不予通过；对其直系亲属一律暂停林业、农业等政策性优惠补贴（补助），暂停所有政策补助和资质审查。
+[原版英文PDF：](https://assets.gnews.org/wp-content/uploads/2021/09/33-10979-1-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/33-10979-1-1.pdf)
 
-虽然，这个通告在网上曝光并引起巨大反响之后，当地政府连忙出来解释说，这个通告还没有实行下去。但是这不是更加佐证了，中共政府的确是目标明确的要“一人犯过，罪及家人”的？！
 
-据2020年6月17日，一篇刊登在中共网易网，署名“财经空间站”的的文章称：目前在中共国14亿人口中，已有7亿人深陷债务牢笼。其中，信用卡逾期人数高达3亿人，人均负债接近18万。
 
-如果按中共流氓的做法，一人之过，罪及家人，那中共国所有14亿人都是罪犯了！试想一下，一个国家被一个政府统治了几十年之后，全国的老百姓都成了罪犯，真是古今中外绝无仅有吧？亦或是5000年一遇之奇观？
-
-可是可悲啊！在这样的情况下，只要中共不灭，中国14亿老百姓，管你有钱没钱，管你有权没权，都难逃清白。迟早有一天，你会因为自己或则别人“犯事”而被获罪。
-
-唯一的解决之道 ，就是消灭中共，越快越好，越早越好！
-
-本文只代表作者本人观点
-
-参考 ：
-
-【贵州一地惩戒非法滞留缅北人员牵连近亲属？回应：只是震慑 – 今日头条】https://m.toutiao.com/is/dka5awX/
-
-[https://3g.163.com/dy/article/FFAIJ4SF0545B1HU.html#clickfrom=tie?share\_tok](https://3g.163.com/dy/article/FFAIJ4SF0545B1HU.html#clickfrom=tie?share_tok)
-
-*编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
-0
++21

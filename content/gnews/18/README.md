@@ -2,30 +2,30 @@
 ---
 
 
-## NIH在7月份已将伊维菌素纳入治疗中共病毒推荐药物
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1604629/)
+## 美弗州一市提前表决决议，抵制中共活摘器官
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1604633/)
 
-**撰稿：日本东京方舟农场 北极**
+**撰稿：日本东京方舟农场 子辰**
 
-据网名Daily Beats的用户10月15日发布在盖特(Gettr)上的一段视频显示，NIH（美国国立卫生研究院）在7月8日就已将伊维菌素列为治疗中共病毒的推荐药物，而美国患者和医生却并不知道。
+据大纪元10月18日报道，美国弗吉尼亚州斯汤顿市（Staunton City）一致通过一项决议案，抵制中共活摘良心犯等器官的行径。
 
-视频中，来自美国的Bryan Ardis医生披露，他每周都会收到很多中共病毒患者及其家属的邮件，均是由于伊维菌素得不到官方批准，导致ICU（重症监护室）医生或医院管理人员无法开具伊维菌素的处方治疗病毒感染。
+斯汤顿市市长安德里亚‧奥克斯（Andrea Oakes）发言说，已经就决议案和弗吉尼亚州州议会众议员约翰‧阿沃利（John Avoli）沟通，他表示，大力支持市议会通过这一决议案，并将议会提前了两周的时间。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/id13047584-504254-scaled.jpg)图片来自于网络
+斯汤顿市副市长马克‧罗宾逊（Mark Robinson）发言说：“摘取非自愿人士的器官，这是恐怖的。所以，我支持和完全同意通过这一决议案。”
 
-事实上，NIH网站在7月8日更新发布的用治疗中共病毒的推荐药物中，明确列出了伊维菌素及具体使用剂量。
+该决议案的发起人、市议员卡罗琳‧杜尔（Carolyn Dull）发言称，所有人应该表态反对中共活摘人体器官。她说，“摘取非自愿者的器官，发生在中共国某些族裔或者宗教团体身上，这是一种有害行为，通过这次决议应该让大家看到真相，避免他们无意参与了这种类型的器官移植。”
 
-Bryan Ardis医生表示，NIH之所以悄悄将信息放在网站而不通知医院使用，一方面为了确保没人知道，另一方面是为了在以后的法庭上为自己辩解，掩护罪行。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/id13313265-Screen-Shot-2021-10-18-at-9.54.15-AM-600x400-1.png)图片来自于网络
 
-Bryan Ardis医生得出结论说，所有美国医生和医疗机构针对中共病毒的治疗指导都遵循NIH。
+决议案中提到，鉴于全球贩卖器官的存在，而且这些器官贩卖很大程度上是从不自愿者身上活摘器官，以及所谓医疗“旅游”，即前往其它国家就医，包括进行器官移植这种做法的越来越普遍性。许多器官移植病患不易得知器官来源，不知道器官“捐增者”的信息，也不知道“捐赠”的器官是否出于自愿、是否符合道德和法律标准。
+
+因此，弗吉尼亚州斯汤顿市议会决定，通知斯汤顿市和附近地区的居民和医疗界，前往中国进行器官移植的风险，并且进一步决议反对任何活摘器官的行径。
 
 *注：本文仅代表作者观点，与 Gnews无关*
 
 *参考链接：*
 
-[Ivermectin is listed in nih.com as one of the two medicines to treat Covid-19 patients. Please see the table below.](https://gettr.com/post/pe66me9529)
-
-[Table 2e. Characteristics of Antiviral Agents That Are Approved or Under Evaluation for the Treatment of COVID-19](https://www.covid19treatmentguidelines.nih.gov/tables/table-2e/)
+[抵制中共活摘器官 美弗州一市提前表决决议](https://www.epochtimes.com/gb/21/10/18/n13311937.htm)
 
 * * *
 

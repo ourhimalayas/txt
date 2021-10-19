@@ -2,34 +2,24 @@
 ---
 
 
-## 英国中学接种计划后多地爆发猝死病例
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1604537/)
+## 郭文贵先生2021年10月19日盖特视频（4分34秒）全文字版
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1604550/)
 
-作者：安吉拉
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-位于英格兰埃塞克斯郡的约翰国王中学，所有的人都沉浸在巨大的悲痛和惊恐不安中。周一10月18日，校长通过信件公告了一条讣告， 12年级的一名少年，在无预兆的情况下于睡梦中死亡。此时距离毒针接种队进驻该学校，执行新冠疫苗计划不足两周。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-44.png)
+10月19号，尊敬的战友们好，我昨天晚上真是把我忙头晕了，你看嗓子……昨天晚上开了将近四个半小时的会，开了好几次，起起睡睡，睡睡起起，好多，好多，好多，好多，好多事情。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-3.jpeg)
+现在国内啊，很多大事儿都发生。现在看到杰克马，杰克马跑西班牙接客去了。兄弟姐妹们，我可以告诉大家，看着这个阿里巴巴的股票，阿里巴巴股票如果你们要是任何一个人相信啊，要相信说杰克马是自由的，去了西班牙，那你就傻了啊，太傻了。要相信的人赶快去买他股票去，看看这个杰克马的股票会怎么样。杰克马完全没有自由，一定要记住，完全没有自。未来，记住我今天说的话，什么时候原来抓查这个杰克马，什么时候抓杰克马，杰克马什么时候去香港，只有七哥知道。大家记住吧，只有七哥知道去了香港，他去西班牙完全是非自由的，正在处理资产中，哈哈，处理资产，了解，了解，了解啊。大家走着看，现在是脱手啊，一切都要脱手。包括大家看了股票，这个股票抬一抬，把很多东西要出手。
 
-上周二，位于莱斯特郡Moat学校的一名11岁女孩因突发心脏骤停昏倒，虽然空中救援直升机和救护车很快抵达，但女孩不久后就去世了。随后该市 议会 召开了紧急会议，从10月14起，训练有素的辅导员将在各学校临阵以待，为可能突发的事件提供援助。
+江家、曾家、王岐山家、孟建柱家危也，危也，看着怎么弄吧，现在也看到这个所有处理这些资产当中，这些游戏，包括现在你看那个潘石屹，为啥要通缉他两口子是吧，是吧，这吹啥狼蛋的，只有咱知道，因为咱有暴料革命，咱有新中国联邦。杰克马这个惨的，不是一般的惨。我最担心他也跟王健一样，什么跳墙死啊，什么生殖器戳死自己，我真担心他这样。
 
-短短几个月，英美国家已出现多起青少年突发死亡的悲惨事件，而与此同时，辉瑞制药却在向FDA 和其他国家药监局施压，快速推进为低龄儿童接种新冠疫苗。9月中旬主媒已为下一轮屠戮做足了铺垫。邪恶集团最快将于万圣节期间，将死亡魔爪伸向5至11岁儿童。
+所以中国没有男人啊，中国人是在生死面前，在邪恶面前，特别是中国男人基本都是狗屎一样。哪有真正的勇士，更没有智者。所谓的为了家人是吧，作为一个在中国社会长大的，也算个人物的家人或者家族的一员的话，永远有一个基本不变的道理——家族的核心人物、成功人士，你活着，家人有尊严、有安全，甚至有时候有痛苦，会受到胁迫，这是他们要付出的代价，但是你死了，你死了，他们没有尊严，没有价值，甚至没有任何希望，他一生都是灾难。
 
-(本文仅代表作者观点)
+所以说作为一个中国的家庭的核心人物，因你而生，因你而好，因你而有灾，这种核心的家庭成员只有一条，你活着，你活着，他们才有未来，才有希望。不要让家人成为你的肉票，那你就把家人害了。勇敢的向威胁家人的，向威胁朋友的，向威胁亲人爱人的说不，攒足力气，挥出你的拳头。只有这样，即使你输了，你都不枉活一世。如果你跪下来，只是早晚让你怎么死，和让你家人和你如何死的问题。王健以及N个中国的所谓的大人物不都这下场吗？
 
-参考链接：[King’s Lynn school student dies suddenly](https://www.lynnnews.co.uk/news/kings-lynn-school-student-dies-suddenly-9221098/)
-[Young people aged 12 to 15 to be offered a COVID-19 vaccine](https://www.gov.uk/government/news/young-people-aged-12-to-15-to-be-offered-a-covid-19-vaccine)
-[US children aged 5 to 11 on track to receive Pfizer vaccine by Halloween](https://www.theguardian.com/society/2021/sep/20/pfizer-covid-vaccine-children-5-to-11-trial)
-[https://twitter.com/sarlou281/status/1450142510899150858?s=28](https://twitter.com/sarlou281/status/1450142510899150858?s=28)
+薄熙来如何？周永康如何？只有灭了共产党，你才能永远的活下去，没有任何其他机会和余地。信不信，不信就试试吧。把家人作为你的肉票，然后最后你把家人虐死，打着爱的名义，忠诚的名义，孝敬名义，实际上就是懦弱无知。就这么简单。只有新中国联邦爆料革命能救你们，谁也救不了！信不信？咱不行，走着看还是，姆该塞……
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
 
-编辑/校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[郭文贵先生10月19日盖特](https://gettr.com/post/peks4hb556)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-5.png)
