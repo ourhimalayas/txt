@@ -2,40 +2,27 @@
 ---
 
 
-## 嘴炮禁毒与威权主义
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1603855/)
+## 针下亡魂｜葡萄牙 18 岁女大学生接种疫苗5日后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1603945/)
 
-作者 台湾宝岛农场 Y.M.O
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 19/10/2021**
 
-在1985年1月，一份题目为“曲目含有意识形态危险主题的外国乐队和艺术家的粗略名单”被分发给苏联共产党官员，目的是禁止某些外国乐队进入苏联，因为他们被认为太“危险”。 这些名字中有些看起来明显更极端，也有些明显更加无害。 看上去很多理由十分直接，但这都是为了政治利益服务，没有人会去更细致地向你解释原因。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
 
-仅仅是朋克和暴力这两个词就可以禁止Sex Pistols， The B-52s， Madness， Strangers的音乐。 如果BLACK SABBATH的暴力和宗教蒙昧主义尚且可以去想像一下的话，那Pink Floyd 的理由”Interfering with the Foreign Policy of USSR （Afghanistan）”真是让人大跌眼镜。 事实上音乐从来没有也做不到去颠覆一个政权，即使是The  Velet Underground那也只是对哈威尔有深远影响而已。
+【葡萄牙】布拉加一名 18 岁的女孩 Inês Rafael Mendes 在接种 COVID-19 疫苗 5 日后死亡。 Inês 是当地一间大学的新闻系学生，按照规定，她于 8 月 2 日接种了第一针，5 日后，即 8 月 7 日凌晨，当时她还在和朋友一起露营，朋友发现她心脏骤停，立即拨打了急救电话，可惜，医疗队赶到时，为时已晚。
 
-所以说威权政权的封禁只有两个作用，除了作为音乐鉴赏的指路明灯（接近100%准），另外就是展示自己内心的恐惧。 不过苏联的封杀好歹算是面对面的概念，就像拿自己的体制和美国硬碰硬一样，但在今天的中共国可就没有这样的待遇了。 2021年10月11日，湖北禁毒的微信公众号发布了一篇名为“快来围观，这些学生的创意禁毒书画作品让人惊叹”的文章，文章里中南民族大学余同学的作品一下引起了部分乐迷的注意。
+她的父母认为，COVID-19 疫苗就是她猝死的原因。“Inês 突然去世之前，她没有心脏问题或任何疾病，她长年练习古典舞，身体健康。”
 
-如果要选出史上最伟大的摇滚乐队的话，Pink Floyd即使不是第一，那也一定跳不出前三。 他们的音乐在实验性、旋律性和社会性上的高度是无可比拟的，像是《The Dark Side of the Moon》和《The Wall》在很多人心里都是神作。 而在《The Wall》发表的3年后它也被改编成了电影。 全片没有一句对白，全部由画面和音乐构成，就是这些视听语言构成了数不清的象征和隐喻，它们都代表着各种隔阂与高墙，这也算是电影史上的名作了。
+不过，有报导引述一位一起露营的朋友指称，Inês 在露营期间，即她离世前晚，有喝过白酒，并且喝完就感到不适。因此，当地警方认为，过量饮酒是 Inês 猝死的原因。
 
-而这样厉害的作品被余同学盯上了，只不过把图片中嘴里的高墙改成了一大堆胶囊，旁边加个针筒以及禁毒这两个字，并且这篇文章也已经被搜狐腾讯转载了。 的确Pink Floyd和迷幻摇滚之间关系算是密切，但那是一种摇滚乐流派，而不是你拿来篡改之后讨好中共的借口。 并且余同学敢抄袭篡改《The Wall》这样经典的作品，一是生活在中共国的世界已经不知道天高地厚了，二是在中共国不管意义多深刻价值多宝贵的作品最后只能为了最高意志服务。
+这种结论，令 Inês 的家人难以接受，她的叔叔表示，“她是一个健康的女孩，经常运动，注意饮食，突然就这样死去，这是闻所未闻的，我不认为有过量饮酒，Inês 从来不喝酒。”
 
-媒体、政府和那些信任他们的人可以而且将会把任何事情都政治化。 而大多数人认为政府的行为符合人民的最大利益。 甚至许多对政府持强烈批评态度的人也是如此。 中共国的禁毒看上去是为了大多数人着想，但实际上是借这些手段让大多数人接受甚至主动要求威权主义。 前些天宋冬野因为自己的演出遭受举报取消在网上发言，结果得到的是社会主义铁拳一轮轮的围殴。 尽管已经过了法律条例要求的期限，甚至去年的演出成功演完了，今年的演出之前被批准了也没用。
+目前，她的案件已被移交给布拉加司法机关进一步调查。
 
-现在做演出这行乐队或剧团赚不到钱，演出公司赚不到钱，场地方赚不到钱，观众又没少花钱。 可以说是从上游到终端全都叫穷，所有做演出的人也是属于维持生计，同时观众也能放松一下。 但这些在统治者的政治经济利益面前都不算什么，哪怕这会让很多人失业甚至失去生命。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/38-1.jpg)
 
-P.S. 宋东野方的言论已经被封禁，包括为他说话的帐号也都消失不见，剩下的只有痛打落水狗的大多数。
+来源｜ [个案038](https://magg.sapo.pt/atualidade/atualidade-nacional/artigos/familiares-jovem-morreu-vieira-do-minho-apontam-vacina-da-contra-covid-causa-morte)
 
-资料连结
+* * *
 
-．[https://www.163.com/dy/article/GM4PUD98051491D0.html?f=post2020\_dy\_recommends](https://www.163.com/dy/article/GM4PUD98051491D0.html?f=post2020_dy_recommends)
-．以下为一篇墙内网站对《The Wall》的评论，不用看具体内容，拿原始图片进行比对即可： [https://ent.sina.cn/review/internet/2006-07-12/detail-iawzunex8238194.d.html?from=wap](https://ent.sina.cn/review/internet/2006-07-12/detail-iawzunex8238194.d.html?from=wap)
-
-
-
-> [This List Of Bands Banned On Soviet Radio Is A Real Head Scratcher](https://uproxx.com/music/ussr-banned-music-bands-russia/)
-
-
-
-[https://www.163.com/dy/article/GM4PUD98051491D0.html?f=post2020\_dy\_recommends](https://www.163.com/dy/article/GM4PUD98051491D0.html?f=post2020_dy_recommends)
-
-以下為一篇牆內網站對《The Wall》的評論，不用看具體內容，拿原始圖片進行比對即可。
-
-https://ent.sina.cn/review/internet/2006-07-12/detail-iawzunex8238194.d.html?from=wap
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)

@@ -2,25 +2,181 @@
 ---
 
 
-## 针下亡魂｜意大利 18 岁排球运动员接种疫苗27日后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1603893/)
+## 郭先生10年前的布局，未来新科技无限, G系列前景无限
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1603961/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 19/10/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
-【意大利】威尼托一名 18 岁男子 Davide Bristo 在接种辉瑞 COVID-19 疫苗后的第 27 天死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2529.png)
+[https://gtv.org/video/id=616e7207d2e2b8174876fbc5](https://gtv.org/video/id=616e7207d2e2b8174876fbc5)
 
-Davide 是一名排球运动员， 6 月 17 日接受第一针疫苗，大约 3 周后的 7 月 10 日，他开始感到剧烈头痛。 Davide 的父母将他送往医院诊治，可惜，医生为他做了几项测试之后，认为无大碍，他就出院返家，从入院到出院，只有一个小时。
+这个大家要记住
+Deben recordar esto
 
-翌日早上， Davide 迟迟没有步出房间，母亲试图开门叫醒他，发现了他已经再也不会醒了。经验尸官初步认定，死者死于**急性心肌缺血，**但暂未发现死者有心脏病，致死原因不明。
+很多人在问七哥
+Muchas personas me han preguntado
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/螢幕截圖-2021-10-19-下午3.13.53.png)
+建一个什么, 去问班农去
+Construir qué cosa, ve y pregúntale a Bannon
 
-目前，当地副检察官 Alberto Primavera 已就 Davide 的猝死对医生展开了过失杀人调查。值得留意的是，该则新闻的留言区，大批网友认为“死者接种了一样东西， 没有提及，像很多年轻人一样，心肌炎、心包炎，这是禁言，不能说？”
+班农问我, Miles
+Bannon me pregunta, Miles
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/37-1.jpg)
+(他们)都在问我, 你到底
+Ellos me han estado preguntando
 
-来源｜[个案037](https://www.ilgazzettino.it/nordest/belluno/ischemia_ragazzo_morto_sedico_davide_bristot_funerale_oggi_inchieste_aperte-6093800.html)
+要建一个什么啊
+Qué es lo que vas a construir
+
+我说不告诉你
+Le dije que no te voy a decir
+
+不会告诉任何人
+No se dirá a nadie
+
+你只有在6个月以后, 你才知道七哥要建的是什么
+Solamente después de seis meses sabrás qué lo es que construiré
+
+你才知道新中国联邦是什么
+Sabrás qué es el Nuevo Estado Federal de China
+
+就像喜币
+Así como la moneda de Himalaya
+
+昨天那个投资者说
+Ayer el inversor dijo
+
+Miles
+Miles
+我第一次跟你因为喜币吵架
+Primera vez peleé contigo por la moneda de Himilaya
+
+到最后我哀情你, 到现在我成为股东
+Al final te lloré, y ahora soy accionista
+
+现在我想知道喜币到底会到什么(程度)
+Ahora quiero saber qué tanto puede llegar la moneda de Himalaya
+
+我不会告诉你
+No te lo diré
+
+当你们了解七哥这十几年前的布局
+Cuando ustedes entiendan el plan que he estado realizando por más de diez años
+
+你看看未来的干细胞, 星空Wifi
+Mira las células madre del futuro, el Starry Internet
+
+你看看整个世界金融系统, 再看医疗系统
+Mire el sistema financiero mundial y luego miras al sistema médico
+
+还有一个大家要记住的, 高科技
+Y otra cosa que deben recordar, la alta tecnología
+
+所有的新科技
+Todas las nuevas tecnologías
+
+现在说新科技, 我要给你们爆两句
+Ahora que estoy hablando de la nueva tecnología, debo reverlarles un poco
+
+今天你们得晕
+Hoy todos ustedes deben estar mareados por eso
+
+都得晕
+Deben estar mareados
+
+新的科技对通讯的提升
+La nueva tecnología mejora la comunicación
+
+对医疗的提升
+Mejora del tratamiento médico
+
+对交通方式的提升
+En la forma de transporte
+
+兄弟姊妹们
+Hermanos y hermanas
+
+我现在跟你说完
+Ahora que termine de decirlo
+
+你一定把我订为神经病
+Seguramente dirás que estoy loco
+
+因为七哥投资了, 七哥知道意味什么
+Porque yo invertí, así que sé lo que significa esto
+
+就像我说那个生物芯片一样
+Como dije sobre el biochip
+
+生物芯片就这么大一块
+El biochip es así de grande
+
+能把全地球的信息装进去
+Puede ingresar todas las informaciones del mundo
+
+你很快会看到手机、电脑、通信、医疗、一点儿不夸张
+Pronto verás en los teléfonos móviles, computadoras, medios de comunicación, tratamiento médico, no estoy exagerando
+
+人类未来有钱有条件的活个130岁、150岁
+El futuro de la humanidad tendrá condiciones para vivir hasta130 años, 150 años
+
+跟玩兒似的, 你在活着之前
+Así como jugando, antes de estar vivo
+
+基本没有疾病
+Básicamente, no hay enfermedad
+
+基本不可能有疾病来骚扰你
+No hay enfermedades que te molestarán
+
+基本上不可能
+Básicamente no habrá
+
+在非洲草原上看到一个能老死的狮王的话
+Si ves a un rey león que muere por estar viejo en las praderas de África
+
+那一定是有原因的
+Eso debe ser por alguna razón
+
+那是有原因的
+Por algún motivo
+
+咱慢慢来
+Vamos poco a poco
+
+新中国联邦未来将拥有世界上最高的各种生物、生命
+En el futuro, el Nuevo Estado Federal de China tendrá la mayor variedad de criaturas y vidas del mundo
+
+太空、交通、能源、科技
+En el espacio, transporte, energía, tecnología
+
+一定是咱么的投资者
+Seguramente son de nuestros inversores
+
+我想告诉大家, 再说一遍, 所有老椅子投资者, G-club
+Les quiero decir de nuevo, todas los inversores de sillas antiguas, G-club
+都是5%的盖特, 5%的喜联储, 10%的G-club
+Tienen el 5% de GETRR, 5% del banco central de Himalaya, 10% de G-club
+
+还有一个大家看到的, 10%新的金融机构, 还会更多
+Y otro que ustedes vieron, el 10% de instituciones financieras y más
+
+你们会看到一系列的公布
+Ustedes verán una serie de anuncio
 
 * * *
 
-他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//
+日期: 10/18/2021
+原视频标题：郭先生10年前的布局，未来新科技无限, G系列前景无限
+La planificación del Señor Guo desde hace diez años; la tecnología nueva del futuro es infinita y las perspectivas son ilimitadas para la serie G
+原视频日期: 10/12/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1447865670356516874?s=24](https://twitter.com/se1y7cblljselva/status/1447865670356516874?s=24)
+任务编号：KC181（2529）
+视频时间段：0:00-2:18
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场-小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

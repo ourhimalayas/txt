@@ -2,50 +2,21 @@
 ---
 
 
-## 美国传奇科林-鲍威尔完全接种疫苗后去世
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1603612/)
+## 北韩今天上午向东海方向发射弹道导弹
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1603597/)
 
-栏目记者: Andy5
-责任编辑：AsG諾雅
+韩国首尔天池农场
+翻译：鱼子酱
+编辑：追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/10/WhatsApp-Image-2021-10-19-at-14.55.22.jpeg)
+据韩国YTN新闻10月19日的报道 韩国联合参谋本部表示，北韩今天上午向东海方向发射不明飞行器，这是继上月末之后时隔22天再次进行武力示威。
 
+联合参谋本部表示，北韩今天上午10时20分左右向国防部出入记者团表示，北韩向东海方向发射了不明物体。对于发射体的参数或射程等追加情报，韩美情报当局正在进行精密分析。 但是，通常军方会迅速向媒体通报弹道导弹的探测情况，所以稍微倾向于弹道导弹的可能性。
 
+这是北韩今年以来第八次进行武力示威，距离上个月9月30日发射新型官航导弹仅22天。上个月29日发射了兼具弹道导弹和巡航导弹特性的新型高超音速导弹。上个月15日，在列车上向东海方向发射了2枚短程弹道导弹。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+美国总统拜登就任后的1月22日和3月21日，北韩发射了巡航导弹。3月25日在咸镜南道咸州一带向东海发射了在下降阶段进行变通机动的新型伊斯坎德尔级短程弹道导弹。接着，上个月13日还宣布试射了远程巡航导弹并取得成功。
 
+青瓦台计划今天上午就北韩发射体召开NSC常任委员会。韩军为应对追加发射，在韩美紧密合作下，严密关注有关动向，保持高度的戒备态势。
 
-
-10月18日星期一，鲍威尔去世，享年84岁。他的家人在其脸书页面的声明上写道：”在完全接种了新冠疫苗后，美国前国务卿和参谋长联席会议主席科林-L-鲍威尔将军今天上午去世。我们要感谢沃尔特-里德国家医疗中心的医务人员的关怀治疗。我们失去了一位杰出的、充满爱心的丈夫、父亲、祖父和一位伟大的美国人。”
-
-据报道，鲍威尔被诊断出患有多发性骨髓瘤这种癌症，他的去世与86岁的棒球传奇人物汉克-亚伦的去世有相似之处，后者在1月份打了一针新冠疫苗后仅几周就去世了，尽管医院声称亚伦的死因与疫苗无关。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-103.jpg)
-科林-鲍威尔于1937年4月5日出生在纽约市，由牙买加移民父母抚养长大。从参加越南战争到成为四星上将，到1987年在里根政府出任史上第一位黑人国家安全顾问，1989年成为老布什总统的参谋长联席会议主席，并在克林顿政府连任同一职位，2000年在伊拉克战争期间在小布什政府中担任第一位黑人国务卿，他的一生充满传奇色彩，
-
-鲍威尔是第一个享有如此盛誉而死于所谓“突破性病例”的公众人物，他的死亡将使更多人看到新冠毒针的危害，从而更加坚定立场，拒绝所谓新冠疫苗。
-
-参考链接：
-1. [Colin Powell, Fully Vaccinated, Dies From COVID-19 Complications](https://marketrealist.com/p/was-colin-powell-vaccinated-covid/)
-2. [Colin Powell dead at 84 from COVID-19 complications](https://thehill.com/policy/defense/577152-colin-powell-dies-at-age-of-84)
-3. [“Fully Vaccinated” Colin Powell Dies From Covid Complications](https://www.infowars.com/posts/fully-vaccinated-colin-powell-dies-from-covid-complication/)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：鬼五
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[新闻来源](https://m.ytn.co.kr/news_view.php?key=202110191053230036&amp;s_mcd=0101)

@@ -2,7 +2,9 @@
 ---
 
 
-## 信使核糖核酸（mRNA）和刺突蛋白分布于身体的任何器官中
-` MG 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1604013/)
+## Feacebook禁止人们提及众所周知的疫苗伤害（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1604065/)
 
-辉瑞公司的一项最新研究显示，在对已故病人的尸检中，发现在女性卵巢和男性睾丸中发现大量的疫苗成分。
+10/6/2021 Feacebook禁止人们提及众所周知的疫苗伤害。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

@@ -2,33 +2,59 @@
 ---
 
 
-## 地产企业信用全面崩塌！穆迪下调多家开发商评级至负面
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1603828/)
+## COVID-19最新情报｜美参议员Ted Cruz：拜登授权强制接种疫苗 侵害人权
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1603909/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/343.jpg)[图片来源](https://www.google.com.hk/search?q=%E7%A9%86%E8%BF%AA+%E5%9C%B0%E4%BA%A7&amp;tbm=isch&amp;ved=2ahUKEwixnOWs-tXzAhVg0IsBHU7FDcUQ2-cCegQIABAA&amp;oq=%E7%A9%86%E8%BF%AA+%E5%9C%B0%E4%BA%A7&amp;gs_lcp=CgNpbWcQAzoFCAAQgAQ6BAgAEBhQ3MgCWIWXA2DlngNoAHAAeACAAYYBiAHJCpIBBDEuMTGYAQCgAQGqAQtnd3Mtd2l6LWltZ8ABAQ&amp;sclient=img&amp;ei=RHRuYbHqGuCgr7wPzoq3qAw&amp;bih=650&amp;biw=1595#imgrc=W6A3wgutcagXZM)
-10月18日，国际评级机构穆迪下调了多家房地产的企业评级，包括富力地产（02777.HK）、中国奥园（03883.HK）、祥生控股集团（02599.HK）、佳兆业集团（01638.HK）、合生创展集团（00754.HK）、阳光城（000671.SZ）、绿地控股（600606.SH）等等。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-60.jpg)
+美国德克萨斯州共和党籍参议员Ted Cruz在推特上表示，他认为拜登总统在九月发布的强制接种命令，是侵害人权的。
 
-穆迪将佳兆业企业家族评级由B1下调至B2，且将评级列入负面观察。穆迪预计，佳兆业在未来6-12个月流动性将减弱并增加融资风险，鉴于佳兆业在未来12-18个月内是否有足够现金流偿还所有到期的离岸债券存在不确定性，因此进一步下调其评级。
+拜登针对Delta提出六大方针的[COVID-19 ACTION PLAN](https://www-whitehouse-gov.translate.goog/covidplan/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=nui,sc)（COVID-19战略计划），目的为打击新冠病毒。
 
-富力地产的企业家族评级由B2下调至B3。穆迪高级副总裁Kaven Tsang表示，评级下调反映出富力地产的流动性较弱，再融资风险较高，因为该公司有大量的债务将在未来6-12个月到期，而且在目前融资条件紧张的情况下，该公司获得的离岸融资能力在减弱。
+其中《[COVID-19 Action Plan With New Vaccine Mandates](https://www-aamc-org.translate.goog/advocacy-policy/washington-highlights/president-biden-announces-covid-19-action-plan-new-vaccine-mandates?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=nui,op,sc)》（新冠疫苗强制接种），要求美国境内所有拥有雇员达100人以上的雇主，强制员工接种新冠疫苗，或是每周提供阴性证明。在媒体的推广下，许多私营部门已经表示将遵循拜登发布的疫苗规定，要求员工接种疫苗。更有私营部门，因雇员未接种疫苗而予以解雇。
 
-阳光城的企业家族评级由B1下调至B2，穆迪在报告中称，阳光城在未来6-12个月内，由于融资条件的紧张和大量债务到期，预计阳光城的融资遇到减弱，流动性的缓冲可能会减少。而且，在未来6-12个月内，由于资金紧张，消费者信心减弱，从而会导致公司流动性的恶化，阳光城的合同销售额也将下降。截至2022年年底，阳光城有大量在岸和离岸债务到期，包括11亿美元的离岸债券和101亿元的境内债券。
 
-另外，穆迪将祥生控股集团评级展望从“稳定”调整至“负面”。穆迪副总裁助理Kelly Chen表示，负面展望反映了穆迪对祥生控股的预期，即该公司的合同销售金额将在未来6-12个月下降。因为在资金紧张、消费者信心减弱的情况下，将导致该公司的财务指标和流动性的恶化。穆迪预计，在未来6-12个月，祥生控股将面临运营现金流被削弱，进而削弱其流动性。
 
-除此之外，穆迪还将中国奥园的B1企业家族评级列入评级下调观察名单；确认领地控股集团有限公司的“B2”公司家族评级，评级展望从“稳定”调整为“负面”；确认三盛控股“B2”企业家族评级，评级展望由“稳定”下调至“负面”；确认合生创展集团有限公司“B2”公司家族评级，另外，将其评级展望从“稳定”调整为“负面”；确认中梁控股集团有限公司的“B1”公司家族评级（CFR），将展望从“正面”调整为“稳定”。
+> Joe Biden’s illegal vaccine mandate at work!
+> 
+> Suddenly, we’re short on pilots & air traffic controllers.[#ThanksJoe](https://twitter.com/hashtag/ThanksJoe?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wviOzLt7Iv](https://t.co/wviOzLt7Iv)
+> — Ted Cruz (@tedcruz) [October 10, 2021](https://twitter.com/tedcruz/status/1447327311095910402?ref_src=twsrc%5Etfw)
 
-根据穆迪评级报告，当前，由于“融资减弱、流动性紧张”的共性问题，中共房地产企业信用已经全面崩塌，并且在未来6-12月将全面进入资金断裂状态。
 
-郭文贵先生多次预警，房地产是中共给自己和世界埋下的金融核弹，中共地产最快将在今年年底开始崩溃。不容回避，中共房地产全面暴雷的时刻已经越来越近。
 
-信息来源：
+[Ted Cruz](https://en.wikipedia.org/wiki/Ted_Cruz)推特分享西南航空公司的新闻，西南航空因为遵守拜登总统发布的疫苗政策，要求员工必须接种新冠疫苗，否则不得执勤。此举间接导致了数以千计的航班被取消。大量旅客因航班取消缘故，滞留于机场航厦。
 
-[穆迪下调多家开发商评级至负面：融资减弱、流动性紧张](https://wallstreetcn.com/articles/3642651)
+Ted Cruz讽刺拜登总统，表示：感谢Joe（拜登总统）。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+西南航空针对航班取消一事，对外说明：不是因为人力短缺，而是天气因素。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+#### Ted Cruz：要求出示接种证明、阴性证明，侵犯隐私！
+
+今年八月，Ted Cruz与Fox新闻主播Sean Hannity同台称：新冠疫苗接种证明是对个人隐私的侵犯。当被要求出示接种新冠疫苗的相关证明，都是对个人自由的侵犯。
+
+#### COVID法西斯主义兴起，美国陷入绝对的混乱
+
+据[新闻报导](https://www.click2houston.com/news/local/2021/06/30/passengers-frustrated-after-southwest-airlines-cancels-thousands-of-flights/)，美国西南航空取消上千个航班，导致许多搭乘西南航空的旅客无法顺利启程，并且滞留于机场航厦中，等待西南航空安排“完全接种疫苗”的机组人员，引导旅客到目的地所需的航班。
+
+西南航空尚未允许“未完全接种疫苗”的员工返回工作岗位。
+
+#### 德州颁布“疫苗歧视禁令”
+
+德克萨斯州长签署行政命令，包含私营部门在内，禁止疫苗歧视。（[行政命令PDF](https://gov.texas.gov/uploads/files/press/EO-GA-40_prohibiting_vaccine_mandates_legislative_action_IMAGE_10-11-2021.pdf)）
+
+西南航空公司对德州的禁令表示**不会遵守**，将全力遵循拜登总统的疫苗规定。拜登总统发布的疫苗规定，希望美国人民尽最大努力接种疫苗，以维持生活、就业。
+
+- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/)
+- 相关：[新冠病毒预防、治疗方案（](https://vladimirzelenkomd.com/prophylaxis-protocol/)Zev Zelenko 博士）
+- 相关：[印度德里使用伊维菌素，确诊病例下降97%](https://gnews.org/zh-hant/1570870/)
+
+
+白宫目前正在考虑将“美国境内航班旅客”也纳入强制接种范围，若白宫确定将境内航班旅客纳入强制接种范围，那没有接种疫苗的人民将无法搭乘飞机。
+
+- 相关：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
+- 相关：[麥卡洛博士呼籲，不要接種新冠疫苗](https://www.wnd.com/2021/05/prominent-physician-dont-get-covid-shot/)（完整采访）
+
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-92.jpg)
+[原文](https://www.naturalnews.com/2021-10-16-cruz-calls-biden-covid-vaccine-mandate-illegal.html)￨转译 台湾宝岛农场 zhong
+（一切内容以原文为主，转译仅供参考）

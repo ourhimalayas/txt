@@ -2,67 +2,44 @@
 ---
 
 
-## 新冠疫苗带来艾滋病？接种人的免疫系统每周丧失约 5%
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1603829/)
+## 维多利亚州警务人员因未接种新冠疫苗被停职
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1603931/)
 
-编译: Jennyball
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-359.png)
-图片来源：newstarget.com
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-英国《PHE 疫苗监测报告》的[最新数据](https://theexpose.uk/2021/10/10/comparison-reports-proves-vaccinated-developing-ade/)表明，已“完全接种”武汉冠状病毒 (Covid-19) 疫苗的人每周失去约 5% 的免疫系统。
+#### 编译报导：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-10.jpg)
+图片来源：The Sunday Times & Sydney Criminal
 
-40 至 70 岁接受双重注射的人，从注射的那一刻起就已经失去了大约 40% 的免疫系统能力。随着时间的推移，他们逐渐失去更多的免疫系统，预计圣诞节前许多人的免疫系统损失将达到峰值。
+10月18日，澳大利亚维多利亚州警方表示，在州政府强制要求基本工作人员必须接种新冠疫苗后，34名警察和9名保护服务人员（PSO）已被停职。
 
-“如果这种情况持续下去，那么30-50岁的人的免疫系统将 100% 退化，到圣诞节时病毒防御为零，所有 30 岁以上的人都将在明年 3 月之前失去免疫系统，”《曝光》（ The Exposé ）报道。
+这43名警方雇员被迫休带薪假或长期休假，并有可能失去工作。
 
-不可否认，根据数据，完全接种疫苗的人，现在患上了似乎是获得性免疫缺陷综合症，更普遍地称为艾滋病。他们的免疫系统正在衰退，[许多人一直警告](https://www.naturalnews.com/2020-12-23-covid19-vaccines-could-cause-hiv-infection.html)说，情况的确如此。
+维多利亚警方发言人对媒体说：“维州警方目前知道34名警察和9名保护服务人员，他们没有遵守首席卫生官(CHO)的疫苗接种指示和首席专员的具体指示。”
 
-“40-69岁的人已经失去了 40% 的免疫系统能力，并且正在以每周 3.3% 至 6.4% 的速度逐渐丧失，”《曝光》报道。
+*“*只有在雇员因医疗问题而无法接种疫苗的情况下，才可豁免接种强制疫苗，如CHO（对工人）的强制疫苗接种指示中所述。”
 
+“选择不接种疫苗的警察和PSO已被转交专业标准指挥部，因为他们未能遵守首席专员的指示，随后的纪律处分可能导致成员被解雇。”
 
-| 年龄组 | 36周丧失率 | 37周丧失率 | 38周丧失率 | 39周丧失率 | 40周丧失率 | 平均每周丧生率 | 免疫系统完全衰竭前数周（100% 丧生） |
-| --- | --- | --- | --- | --- | --- | --- | --- |
+维多利亚州所有获得授权的工人都必须在10月15日之前至少接种一剂疫苗，在11月26日之前完全接种疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-361.png)
-有趣的是，最糟糕的人群是 40-49 岁的人，他们在大约九周内免疫系统完全丧失。 最好的群体是 18-29 岁的年轻人，他们往往能坚持 44 周左右。
+州长安德鲁斯表示，（明年澳网）未接种疫苗的网球运动员不会获得进入这里签证。如果他们确实获得了签证，他们可能需要隔离几周。明年4月举行的一级方程式大奖赛等赛事很可能会要求游客全面接种疫苗。
 
-80 岁以上的老年人持续大约 20 周，而 50-59 岁年龄段的人只有大约 15 周。 其他剩余年龄组持续 12 至 25 周。
+截至10月19日，维州当日新增1749个病例，11人死亡，现在有22476例活跃的病毒病例。当前疫苗接种率一剂为89.4%，两剂为67.2%。
 
-《曝光》警告说：“30 岁以上的每个人都将在 6 个月内失去 100% 的全部免疫能力（针对病毒和某些癌症）。”
+（以上文章仅代表作者个人观点，与Gnews平台无关）
 
-“到圣诞节，30-50 岁的人就会失去免疫能力。 然后，这些人将有效地全面发展获得性免疫缺陷综合症，并摧毁 NHS（国家医疗服务体系）。”
+参考链接：
 
-注射**“**加强剂**”**只会加速死亡过程
+1、[Coronavirus Victoria: Police and PSOs stood down over decision not to get COVID 19 vaccine in line with mandate for authorised workers (9news.com.au)](https://www.9news.com.au/national/coronavirus-victoria-police-and-psos-stood-down-over-decision-not-to-get-covid-19-vaccine-in-line-with-mandate-for-authorised-workers/2a5f710f-af8b-4bdd-9da0-0bca56e1e877)
 
-不仅仅是疫苗不能提供声称的针对福奇流感的保护，事实是，从长远来看，它们根本不提供保护，实际上会破坏一个人的免疫系统。
+2、[Victoria records new 1,749 local COVID-19 cases and 11 deaths – ABC News](https://www.abc.net.au/news/2021-10-19/victoria-records-new-covid-cases-and-deaths/100549554)
 
-“辉瑞最初声称他们的疫苗有95%的效率（按上面最后一列计算）。上面的数字表明，他们的数字很可能在接种疫苗后即刻是正确的（较年轻的年龄组接种疫苗的时间最短），《曝光》解释说。
+编辑/发布：文泓
 
-“但上面的数据还表明，疫苗不仅会随着时间的推移而失去效率，逐渐降至零，还会逐渐损害免疫系统，直到实现负效率。他们目前让**30 **岁以上的人处于比接种疫苗之前更糟糕的境地。**”**
-
-接种拜登“加强剂”的人，只会通过向他们的身体添加更多破坏免疫的化学物质来加速这一过程。螺旋向下的速度会更快，换句话说，一个人接种的疫苗越多越糟糕。
-
-“如果我们对此不采取任何措施，情况只会比我们想象的更糟，”一位 《曝光》评论者写道。 “一方面，我感谢所有反对并继续反对这种暴政的人。”
-
-“刺突蛋白会劫持你的线粒体**……**永远，**”**另一位写道。** “**线粒体是免疫系统的心脏。本质上，它接管了您的免疫系统。刺突蛋白是生物武器。你自己的免疫系统变成了致命的武器。这就是类固醇上的艾滋病毒。**”**
-
-其他人也表达了同样的观点，指出议程是什么是显而易见的。竟然会有人一本正经地说这一切都是为了“公共卫生”，这仍然是个谜。
-
-有关武汉冠状病毒 (Covid-19) 种族灭绝“疫苗”的最新消息，请访问：[ChemicalViolence.com](https://chemicalviolence.com/)
-
-**评论：**
-
-**2021的圣诞节，不仅供应成问题，更大的灾难是种族灭绝的“疫苗”到那时将造成免疫力丧失贻尽，不敢想象那个人间地狱般的景象……**
-
-**醒来吧，让我们行动起来，让那些一本正经地说这一切都是为了“公共卫生”的人受到最严厉的法律审判！**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**参考资料：**[newstarget][Are covid “vaccines” giving people AIDS? Immune system functions are dropping around 5% EACH WEEK in those who were vaccinated](https://www.newstarget.com/2021-10-17-are-covid-vaccines-giving-people-aids.html)
-
-* * *
-
-*审核：文乐
-校对: 阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

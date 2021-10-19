@@ -2,181 +2,21 @@
 ---
 
 
-## 郭先生10年前的布局，未来新科技无限, G系列前景无限
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1603961/)
+## 生命不能自主的悲哀
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1604036/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2529.png)
-[https://gtv.org/video/id=616e7207d2e2b8174876fbc5](https://gtv.org/video/id=616e7207d2e2b8174876fbc5)
+#### 作者：东京樱花团｜阿恩
+![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-2-2.png)[*图片来源*](https://cdn.hk01.com/di/media/images/dw/20211019/527065559905603584241690.jpeg/Lu2pIgpVGdhk3DANTGJAcLgOYVjBPZcm0EV5tupFebY?v=w1920)
+圣经告诉我们，身体是上帝所造，生命是上帝所赐。这世上的万物都是为人类生存而预备，人们仰赖上主在这地上劳作，可以获得充足有余的供应。但自从人类的王在社会中出现，所有人的信仰、价值和追求都被扭曲，人类生存的根本“土地”被少数人私有化，他们以土地和人们的主人的姿态，将所有人带入尔虞我诈的混乱中，身体不再自由，生命也无权做主，人类的悲哀在扭曲的集权统治中愈发深沉。
 
-这个大家要记住
-Deben recordar esto
+2019年反送中运动至今，香港的死亡数字飙升，尸体发现案、高处堕下死亡案、浮尸案此起彼伏。这些年香港公营骨灰庵供不应求，举目观望堆叠的灵位，不难发现稚气未脱的面孔，00后的年龄大有人在，他们生命终止的时间大部分在这两年。[今日又出现了12岁孩子在校堕落的报道](https://www.hk01.com/%E7%AA%81%E7%99%BC/690185/%E7%8F%8D%E6%83%9C%E7%94%9F%E5%91%BD-%E7%A7%80%E8%8C%82%E5%9D%AA%E9%A0%86%E5%AE%89%E9%82%A8%E7%94%B7%E7%94%9F%E5%A2%AE%E6%A9%8B%E4%BA%A1-%E9%81%BA%E4%B8%8B%E6%9B%B8%E5%8C%85%E8%AA%B2%E6%9C%AC)，这类惨剧媒体大多将死因归咎于学业压力和家庭纠纷。追踪媒体今年报道的学生死亡个案已经超过10起，如果将年龄扩大，堕落死亡的个案超过20起，这些仅仅是媒体报道的个案，实际上二零二零年年中至二零二一年年中香港死亡人数为50400人。港府预计死亡的数字会逐年大幅上升，因此一直在施政方面对殡葬行业进行投入和引资。
 
-很多人在问七哥
-Muchas personas me han preguntado
+香港曾被喻为国际都市，金融、旅游、航运、医疗、零售等行业为港府创造巨额的财政储备，港人富庶和医疗保障是全球公认的，为何在医疗体系完善的状况下港府不预估人均寿命增长，反而预言大量人口死亡呢？这违反逻辑的预测一定隐藏了极其邪恶的阴谋。中共病毒和毒疫苗已经夺去许多长者的生命，更多的港人被毒针打残打废，搜索香港报章相关的医疗报道，最近因突发肝脏坏死、心脏报废、肾脏损坏等需要器官移植续命的报道愈来愈多，媒体大打悲情牌，呼吁社会“有心人士”踊跃捐赠器官！
 
-建一个什么, 去问班农去
-Construir qué cosa, ve y pregúntale a Bannon
+多么可怕的呼吁，殊不知续了一条生命的代价就是失去另一条生命。[爆料革命郭文贵先生在上周日的大直播中曝光中共一贯活摘器官，全中国同胞都是中共器官移植产业的供体](https://www.gtv.org/video/id=616c1823304e992109b65281)。中共邪恶政权统治下的香港医疗系统，只要有钱有权就能有限获得器官，**被中共囚禁的几百万香港人全部都是供体，随时会被中共选择性地死亡窃取器官**。中共不亡，香港先进的医疗系统将成为中共又一个杀人卖器官的恐怖工场。
 
-班农问我, Miles
-Bannon me pregunta, Miles
+（本文只代表个人观点，与Gnews网站无关）
 
-(他们)都在问我, 你到底
-Ellos me han estado preguntando
-
-要建一个什么啊
-Qué es lo que vas a construir
-
-我说不告诉你
-Le dije que no te voy a decir
-
-不会告诉任何人
-No se dirá a nadie
-
-你只有在6个月以后, 你才知道七哥要建的是什么
-Solamente después de seis meses sabrás qué lo es que construiré
-
-你才知道新中国联邦是什么
-Sabrás qué es el Nuevo Estado Federal de China
-
-就像喜币
-Así como la moneda de Himalaya
-
-昨天那个投资者说
-Ayer el inversor dijo
-
-Miles
-Miles
-我第一次跟你因为喜币吵架
-Primera vez peleé contigo por la moneda de Himilaya
-
-到最后我哀情你, 到现在我成为股东
-Al final te lloré, y ahora soy accionista
-
-现在我想知道喜币到底会到什么(程度)
-Ahora quiero saber qué tanto puede llegar la moneda de Himalaya
-
-我不会告诉你
-No te lo diré
-
-当你们了解七哥这十几年前的布局
-Cuando ustedes entiendan el plan que he estado realizando por más de diez años
-
-你看看未来的干细胞, 星空Wifi
-Mira las células madre del futuro, el Starry Internet
-
-你看看整个世界金融系统, 再看医疗系统
-Mire el sistema financiero mundial y luego miras al sistema médico
-
-还有一个大家要记住的, 高科技
-Y otra cosa que deben recordar, la alta tecnología
-
-所有的新科技
-Todas las nuevas tecnologías
-
-现在说新科技, 我要给你们爆两句
-Ahora que estoy hablando de la nueva tecnología, debo reverlarles un poco
-
-今天你们得晕
-Hoy todos ustedes deben estar mareados por eso
-
-都得晕
-Deben estar mareados
-
-新的科技对通讯的提升
-La nueva tecnología mejora la comunicación
-
-对医疗的提升
-Mejora del tratamiento médico
-
-对交通方式的提升
-En la forma de transporte
-
-兄弟姊妹们
-Hermanos y hermanas
-
-我现在跟你说完
-Ahora que termine de decirlo
-
-你一定把我订为神经病
-Seguramente dirás que estoy loco
-
-因为七哥投资了, 七哥知道意味什么
-Porque yo invertí, así que sé lo que significa esto
-
-就像我说那个生物芯片一样
-Como dije sobre el biochip
-
-生物芯片就这么大一块
-El biochip es así de grande
-
-能把全地球的信息装进去
-Puede ingresar todas las informaciones del mundo
-
-你很快会看到手机、电脑、通信、医疗、一点儿不夸张
-Pronto verás en los teléfonos móviles, computadoras, medios de comunicación, tratamiento médico, no estoy exagerando
-
-人类未来有钱有条件的活个130岁、150岁
-El futuro de la humanidad tendrá condiciones para vivir hasta130 años, 150 años
-
-跟玩兒似的, 你在活着之前
-Así como jugando, antes de estar vivo
-
-基本没有疾病
-Básicamente, no hay enfermedad
-
-基本不可能有疾病来骚扰你
-No hay enfermedades que te molestarán
-
-基本上不可能
-Básicamente no habrá
-
-在非洲草原上看到一个能老死的狮王的话
-Si ves a un rey león que muere por estar viejo en las praderas de África
-
-那一定是有原因的
-Eso debe ser por alguna razón
-
-那是有原因的
-Por algún motivo
-
-咱慢慢来
-Vamos poco a poco
-
-新中国联邦未来将拥有世界上最高的各种生物、生命
-En el futuro, el Nuevo Estado Federal de China tendrá la mayor variedad de criaturas y vidas del mundo
-
-太空、交通、能源、科技
-En el espacio, transporte, energía, tecnología
-
-一定是咱么的投资者
-Seguramente son de nuestros inversores
-
-我想告诉大家, 再说一遍, 所有老椅子投资者, G-club
-Les quiero decir de nuevo, todas los inversores de sillas antiguas, G-club
-都是5%的盖特, 5%的喜联储, 10%的G-club
-Tienen el 5% de GETRR, 5% del banco central de Himalaya, 10% de G-club
-
-还有一个大家看到的, 10%新的金融机构, 还会更多
-Y otro que ustedes vieron, el 10% de instituciones financieras y más
-
-你们会看到一系列的公布
-Ustedes verán una serie de anuncio
-
-* * *
-
-日期: 10/18/2021
-原视频标题：郭先生10年前的布局，未来新科技无限, G系列前景无限
-La planificación del Señor Guo desde hace diez años; la tecnología nueva del futuro es infinita y las perspectivas son ilimitadas para la serie G
-原视频日期: 10/12/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1447865670356516874?s=24](https://twitter.com/se1y7cblljselva/status/1447865670356516874?s=24)
-任务编号：KC181（2529）
-视频时间段：0:00-2:18
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场-小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
