@@ -45,18 +45,6 @@ Tu Youyou said Artemisia annua has many other efficacies besides treating malari
 
 ---
 
-`@miles 10/19/2021 1:00 AM (UTC)`
-
-【英语/English】 CCP Virus Covid-19 Treatment & Prophylaxis Protocol & Covid-19 Vaccinated People Detox Protocol<br/><br/>https://gnews.org/1581246/<br/><br/>【韩语/한국어】 코로나19 예방과 치료방안 및 백신 해독 방안<br/><br/>https://gnews.org/1601281/<br/><br/>【葡萄牙语/Português】 Protocolo de Tratamento e Profilaxia do Vírus PCCh Covid-19 e Protocolo de Desintoxicação de Pessoas Vacinadas da Covid-19<br/><br/>https://gnews.org/1601348/<br/><br/>【法语/Français】 PCC Virus Covid-19 Protocole de traitement et de prophylaxie & Protocole de désintoxication pour les personnes vaccinées contre le Covid-19<br/><br/>https://gnews.org/1601192/<br/><br/>【意大利语/Italian】 Virus PCC Covid-19 Trattamento & Protocollo di profilassi & Protocollo di disintossicazione per i vaccinati Covid-19<br/>https://gnews.org/1601214/
-
----
-
-`@miles 10/19/2021 12:56 AM (UTC)`
-
-【西班牙语/Español】 Virus del PCC Covid-19 Protocolo de Tratamiento y Profilaxis y Personas vacunadas con Covid-19 Protocolo de desintoxicación<br/><br/>https://gnews.org/1601170/<br/><br/>【俄语/русский】 Вирус КПК Covid-19 Программа лечения и профилактики коронавируса и Программа детоксикации<br/><br/>https://gnews.org/1601349/<br/><br/>【日语/日本語】 新型コロナウイルス (CCPウイルス) 予防・治療プロトコル &ワクチン接種者デトックス(解毒)プロトコル<br/><br/>https://gnews.org/1601255/<br/><br/>【荷兰语/Nederlands】 CCP-Virus Covid-19 Behandeling & Profylaxe Protocol & Covid-19 Gevaccineerde Mensen Detox Protocol<br/><br/>https://gnews.org/1601282/<br/><br/>【德语/Deutsch】 KPCh-Virus Covid-19 Behandlung & Prophylaxe & Entgiftungsbehandlung für gegen Covid-19 geimpfte Menschen<br/><br/>https://gnews.org/1601144/
-
----
-
 `@miles 10/18/2021 10:56 PM (UTC)`
 
 10/18/2021 Miles Guo’s GETTR: It’s karma! Both Pan Shiyi and Zhang Xin, who pushed to repatriate me, are now wanted by the CCP! When taking the artemisinin-piperaquine tablets and artemisinin, please consult the doctors first and be very cautious! We will have a key person provide more information on taking artemisinin<br/><br/>10/18/2021 文贵盖特：当年推动遣返文贵的潘石屹和张欣遭到报应，二人均被中共通缉；在服用青蒿素哌喹片和青蒿素时，请大家遵从医嘱，务必小心！我们将联系重要人士提供更多关于服用青蒿素的信息<br/>
@@ -293,6 +281,22 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 10月14号：新中国联邦的旗帜在我们帅气，健康的战友的手中，第一次在马拉松比赛中，走向了胜利。https://www.telegram.com/picture-gallery/sports/2021/10/11/boston-marathon-2021-runners-framingham-natick-ashland-pictures/6082058001/
 ![img](https://media.gettr.com/group19/getter/2021/10/14/23/26/2ff943ba-8f83-46bc-ce6f-3ff7918b8225/ba28685d08056f54cc0ac24194688745.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@zemmoureric 10/11/2021 9:31 PM (UTC)`
+
+Économie, écologie, instruction, merci au @CercleHebe pour ces échanges !  
+![img](https://media.gettr.com/group31/tw/2021/10/12/00/a5abd86b-8366-5804-7c44-d203d57e41f3/d28ba18d93253219c3a340080b79d7fb.jpg)
+
+---
+
+`@miles 10/14/2021 11:05 PM (UTC)`
+
+10/14/2021 Miles Guo’s GETTR: The Whistleblowers’ Movement and the New Federal State of China have saved numerous people and let the world distinguish between the Chinese people and the CCP via our efforts to take down the CCP with the truth about the COVID vaccines and the antidote to the coronavirus. Behind our powerful force are countless fellow fighters who have been spreading the truth!<br/><br/>10/14/2021 文贵盖特：新中国联邦、爆料革命通过以(疫)苗灭共和解药灭共，拯救了无数人，使全世界把中国人和中共分开，我们强大的力量背后是无数战友们在传播真相！<br/>
+![img](https://media.gettr.com/group29/getter/2021/10/14/23/05/e8893ec8-d7e0-f77b-a7be-61cbddc4e96c/out.jpg)
 
 ---
 
