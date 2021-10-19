@@ -2,57 +2,49 @@
 ---
 
 
-## 国会山司法要害部门一半都是律师，都被共产党控制了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602947/)
+## 美国前国务卿科林-鲍威尔死于COVID并发症
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1602962/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/277-aw0zs-cgvx6.jpg)
-[https://gtv.org/video/id=616d8acbd2e2b8174876bdfd](https://gtv.org/video/id=616d8acbd2e2b8174876bdfd)
+作者：纽约香草山福音部 – Lilian89
 
-**郭文贵**
-**Miles Guo**
 
-美国现在这个国家，咱们今天为啥从头要谈法治
-now the United States, why are we talking about the rule of law from the begin-ning?
 
-刚才Rachel做得非常好，我希望继续再深挖下去
-Rachel did a very good job just now, I hope you continue to dig deeper
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-美国的国会山一半都是律师，美国的司法部门要害部门一半的人都是律师
-Half of Capitol Hill in the United States are lawyers, and half of the people in the key departments of the US judicial department are lawyers
 
-都是被共产党控制了，想控制谁就控制谁
-They are all controlled by the Communist Party, they control whoever they want to control
 
-而且很脆弱，西方的民主法治，当你有信仰的时候，它是极为强大的
-and it’s very fragile, the democracy and rule of law in the West is extremely pow-erful when you have faith
+10月18日上午，美国前国务卿和参谋长联席会议主席科林-鲍威尔将军因COVID-19并发症去世。
 
-当你没有信仰的时候，它很脆弱
-it is so fragile when you have no faith
+![](https://image.cnbcfm.com/api/v1/image/106961860-16345640352021-10-18t132037z_1211972680_rc2dcq9gb487_rtrmadp_0_usa-powell.jpeg?v=1634564097&amp;w=929&amp;h=523)图片来源：路透社
 
-欧洲就更不用提了，那些老不要脸的就不用提了
-Hard to even mention Europe, those old shameless politicians
+鲍威尔是牙买加移民的儿子，在里根政府时期成为美国第一位黑人国家安全顾问。此后，乔治-布什总统任命鲍威尔为参谋长联席会议最年轻的第一位黑人主席。作为主席，他在波斯湾战争期间监督了美国的沙漠风暴行动。他去世的消息传来后，美国的领导人和前同事都称赞他是一位领袖和英雄，前总统乔治-布什更是称赞他是一位“伟大的公务员”。
 
-就没见过有骨头的人，
-I have never seen anyone with backbone
+鲍威尔的家人在Facebook上写道：“我们失去了一位杰出的、充满爱心的丈夫、父亲、祖父和一个伟大的美国人。”据悉，虽然鲍威尔患有多发性骨髓瘤，但他还是完全接种了新冠疫苗。
 
-———————————————————
+而今，COVID疫苗给人类带来的次生灾害正逐渐在全球范围爆发。因此，任何强制他人打疫苗的行为，都等同于谋杀犯罪。
 
-**原视频链接**:[https://twitter.com/se1y7cblljselva/status/1449362247776567297?s=24](https://twitter.com/se1y7cblljselva/status/1449362247776567297?s=24)
+（本文仅代表作者观点）
 
-Date:10/17/2021
-原视频标题:
-Half of the crucial judicial departments on Capitol Hill are lawyers and they are all controlled by the Communist Party
-原视频日期：2021/10/13
-任务编号：KC178（2569）
-视频时间段 : 0:00-0:45
+参考阅读：
 
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[Colin Powell, trailblazing soldier and statesman who made case for Iraq invasion, dies of Covid at 84](https://www.cnbc.com/2021/10/18/colin-powell-former-secretary-of-state-who-made-case-for-iraq-invasion-dies-of-covid-complications-at-84.html)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)

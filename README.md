@@ -15,128 +15,128 @@
 
 ---
 
-### [10/17/2021 文贵直播：中共常委们都正在把钱往回交，请党内有良知的男人有点勇气](/content/gnews/1/README.md)
+### [南加州大学法学院院长鼓励学生举报在室内喝水的同学](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [84岁美前国务卿鲍威尔因中共病毒并发症死亡](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [10/17/2021 文贵直播：中共常委们都正在把钱往回交，请党内有良知的男人有点勇气](/content/gnews/3/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [10/17/2021 文贵直播：北京银行是个大雷&#8230; 爆料革命通过曝光一系列真相已经在党内赢得了非常高的的威信](/content/gnews/2/README.md)
+### [10/17/2021 文贵直播：北京银行是个大雷&#8230; 爆料革命通过曝光一系列真相已经在党内赢得了非常高的的威信](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [快讯：朝鲜向日本海发射炮弹](/content/gnews/3/README.md)
+### [快讯：朝鲜向日本海发射炮弹](/content/gnews/5/README.md)
  ` HimalayaRussia`
 
-### [10/17/2021 文贵直播：下一个抓的一定是杨洁篪&#8230; 若非担心祸及家人杨洁篪、王毅随时可能叛逃出国](/content/gnews/4/README.md)
+### [10/17/2021 文贵直播：下一个抓的一定是杨洁篪&#8230; 若非担心祸及家人杨洁篪、王毅随时可能叛逃出国](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共违反国际协议和规范，以巩固其对香港的政治控制](/content/gnews/5/README.md)
+### [中共违反国际协议和规范，以巩固其对香港的政治控制](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [众议员号召为政策制定者提供建议解决香港人权侵犯问题](/content/gnews/6/README.md)
+### [众议员号召为政策制定者提供建议解决香港人权侵犯问题](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [瑞银集团表示：以太坊超越比特币的时代即将到来](/content/gnews/7/README.md)
+### [瑞银集团表示：以太坊超越比特币的时代即将到来](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【GTV新闻访谈简报】2021年10月18日晚](/content/gnews/8/README.md)
+### [【GTV新闻访谈简报】2021年10月18日晚](/content/gnews/10/README.md)
  ` 纽约香草山MOS01`
 
-### [不能让中共的暴政扼杀香港人心中的自由之火](/content/gnews/9/README.md)
+### [不能让中共的暴政扼杀香港人心中的自由之火](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [10/17/2021 文贵直播： 屠呦呦相信青蒿素一定会把艾滋病、癌症以及糖尿病等人类最常见的病都解决了。这个药很可能会改变人类的命运！](/content/gnews/10/README.md)
+### [10/17/2021 文贵直播： 屠呦呦相信青蒿素一定会把艾滋病、癌症以及糖尿病等人类最常见的病都解决了。这个药很可能会改变人类的命运！](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [达美航空员工疫苗接种率达90%，暂不执行疫苗强制接种令](/content/gnews/11/README.md)
+### [达美航空员工疫苗接种率达90%，暂不执行疫苗强制接种令](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [患者因拒绝接种中共病毒疫苗而被从器官移植名单除名](/content/gnews/12/README.md)
+### [患者因拒绝接种中共病毒疫苗而被从器官移植名单除名](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [众议员比尔·汉格蒂：我们的领导人必须致力于解决 中国共产党对美国构成的威胁](/content/gnews/13/README.md)
+### [众议员比尔·汉格蒂：我们的领导人必须致力于解决 中国共产党对美国构成的威胁](/content/gnews/15/README.md)
  ` 美国政要直译推`
 
-### [美国前国务卿鲍威尔接种疫苗后，仍感染中共病毒死亡](/content/gnews/14/README.md)
+### [美国前国务卿鲍威尔接种疫苗后，仍感染中共病毒死亡](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [脸书迫于压力未继续禁止澳洲联合党页面](/content/gnews/15/README.md)
+### [脸书迫于压力未继续禁止澳洲联合党页面](/content/gnews/17/README.md)
  ` 走进澳洲`
 
-### [因出售未注册的加密资产，5人被日本警方逮捕](/content/gnews/16/README.md)
+### [因出售未注册的加密资产，5人被日本警方逮捕](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [青蒿素及其衍生物在心血管疾病中的应用](/content/gnews/17/README.md)
+### [青蒿素及其衍生物在心血管疾病中的应用](/content/gnews/19/README.md)
  ` 纽约香草山MOS02`
 
-### [10/18/2021七哥直播：把玉璧中间放上玉钺会是什么？](/content/gnews/18/README.md)
+### [10/18/2021七哥直播：把玉璧中间放上玉钺会是什么？](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [短视频：恐惧自由民主，中共不惜毁掉香港](/content/gnews/19/README.md)
+### [短视频：恐惧自由民主，中共不惜毁掉香港](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [为什么有关死亡的数据被政府搁置？](/content/gnews/20/README.md)
+### [为什么有关死亡的数据被政府搁置？](/content/gnews/22/README.md)
  ` 走进澳洲`
 
-### [中美之间必有一战，其根本不在台湾，在经济](/content/gnews/21/README.md)
+### [中美之间必有一战，其根本不在台湾，在经济](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [为避经济危机美国的浅薄与疯狂](/content/gnews/22/README.md)
+### [为避经济危机美国的浅薄与疯狂](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国前国务卿科林-鲍威尔死于COVID并发症](/content/gnews/23/README.md)
+### [美国前国务卿科林-鲍威尔死于COVID并发症](/content/gnews/25/README.md)
  ` 纽约香草山MOS02`
 
-### [文在寅对杨森疫苗接种者补打作出指示](/content/gnews/24/README.md)
+### [中共完全控制澳门 高度自治已名存实亡](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [文在寅对杨森疫苗接种者补打作出指示](/content/gnews/27/README.md)
  ` 首尔天池农场`
 
-### [国会山司法要害部门一半都是律师，都被共产党控制了](/content/gnews/25/README.md)
+### [国会山司法要害部门一半都是律师，都被共产党控制了](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [国家动物园对灵长类动物接种中共病毒疫苗](/content/gnews/26/README.md)
+### [国家动物园对灵长类动物接种中共病毒疫苗](/content/gnews/29/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [完全接种COVID疫苗的前美国国务卿死于COVID 并发症](/content/gnews/27/README.md)
+### [完全接种COVID疫苗的前美国国务卿死于COVID 并发症](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [文件显示大流行期间阿伯塔省 ICU 的容量下降](/content/gnews/28/README.md)
+### [文件显示大流行期间阿伯塔省 ICU 的容量下降](/content/gnews/31/README.md)
  ` MG FARM`
 
-### [李嘉诚要把长江集团卖掉](/content/gnews/29/README.md)
+### [李嘉诚要把长江集团卖掉](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [下一个抓的一定是杨洁篪](/content/gnews/30/README.md)
+### [下一个抓的一定是杨洁篪](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [因接种疫苗导致的病毒感染或成为目前全美警官死亡首因](/content/gnews/31/README.md)
+### [习身体不行了更要打台湾，借口台独大开杀戒](/content/gnews/34/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [因接种疫苗导致的病毒感染或成为目前全美警官死亡首因](/content/gnews/35/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [美联邦法官依法临时叫停强制接种疫苗政策](/content/gnews/32/README.md)
+### [美联邦法官依法临时叫停强制接种疫苗政策](/content/gnews/36/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [中共“按需杀人”，活摘器官](/content/gnews/33/README.md)
+### [中共“按需杀人”，活摘器官](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中国的海外煤炭承诺不是改变气候变化的游戏规则](/content/gnews/34/README.md)
+### [与Covid有关的骗局已从美国人手中骗走5.86亿美元](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [与Covid有关的骗局已从美国人手中骗走5.86亿美元](/content/gnews/35/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [拒绝强制疫苗，美国现役军人起诉拜登](/content/gnews/36/README.md)
+### [拒绝强制疫苗，美国现役军人起诉拜登](/content/gnews/39/README.md)
  ` 日本东京方舟农场`
 
-### [丹麦公布多数冠状病毒住院患者和新感染者已完全接种疫苗](/content/gnews/37/README.md)
- ` 秘密翻译组-原创组`
-
-### [蓬佩奥：永远和香港人站在一起](/content/gnews/38/README.md)
+### [蓬佩奥：永远和香港人站在一起](/content/gnews/40/README.md)
  ` 日本东京方舟农场`
 
-### [美调查员：中共制造病毒生化武器证据确凿](/content/gnews/39/README.md)
- ` 日本东京方舟农场`
-
-### [每日快报：接种了疫苗的科林鲍威尔死于 COVID-19 并发症](/content/gnews/40/README.md)
+### [每日快报：接种了疫苗的科林鲍威尔死于 COVID-19 并发症](/content/gnews/41/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [中共外交部就美加军舰通过台湾海峡措辞强烈](/content/gnews/41/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [五角大楼前软件主管说，美国须付出行动打赢人工智能之战](/content/gnews/42/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -144,45 +144,45 @@
 ### [美国前国务卿因新冠病毒并发症去世](/content/gnews/43/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [美加战舰联合，再次穿越台湾海峡](/content/gnews/44/README.md)
- ` GTV新闻访谈`
-
-### [因面临集体诉讼美国防部疫苗接种授权恐难被执行](/content/gnews/45/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [10/18/2021国际财经快讯：美国银行财富管理业务蓬勃发展；供应链问题将持续到明年](/content/gnews/46/README.md)
+### [10/18/2021国际财经快讯：美国银行财富管理业务蓬勃发展；供应链问题将持续到明年](/content/gnews/44/README.md)
  ` 秘密翻译组金融团队`
 
-### [国内的企业家们醒醒](/content/gnews/47/README.md)
+### [国内的企业家们醒醒](/content/gnews/45/README.md)
  ` 银河勇气之星`
 
-### [针下亡魂｜中国 12 岁少女接种疫苗 7 日后死亡](/content/gnews/48/README.md)
+### [针下亡魂｜中国 12 岁少女接种疫苗 7 日后死亡](/content/gnews/46/README.md)
  ` G&#124;News TAIWAN`
 
-### [疫苗强制令正加剧供应链、短缺和滞胀等经济问题](/content/gnews/49/README.md)
+### [疫苗强制令正加剧供应链、短缺和滞胀等经济问题](/content/gnews/47/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [针下亡魂｜希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](/content/gnews/50/README.md)
+### [针下亡魂｜希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](/content/gnews/48/README.md)
  ` G&#124;News TAIWAN`
 
-### [能源危机消耗中共外储，政敌海外资产成习大神猎物](/content/gnews/51/README.md)
+### [澳洲海事工会号召昆士兰码头工人抵制疫苗护照](/content/gnews/49/README.md)
+ ` 走进澳洲`
+
+### [能源危机消耗中共外储，政敌海外资产成习大神猎物](/content/gnews/50/README.md)
  ` 军迷wilson`
 
-### [日铁索赔200亿日元，宝钢股份回应：积极应诉](/content/gnews/52/README.md)
+### [日铁索赔200亿日元，宝钢股份回应：积极应诉](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中国恒大面临三期债券利息支付期限](/content/gnews/53/README.md)
+### [中国恒大面临三期债券利息支付期限](/content/gnews/52/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [基因和孩子](/content/gnews/54/README.md)
+### [基因和孩子](/content/gnews/53/README.md)
  ` 骄子`
 
-### [跪在地上的中共国教育](/content/gnews/55/README.md)
+### [跪在地上的中共国教育](/content/gnews/54/README.md)
  ` 银河勇气之星`
 
-### [CCP封杀虚拟币，HCN蓄势待发](/content/gnews/56/README.md)
+### [CCP封杀虚拟币，HCN蓄势待发](/content/gnews/55/README.md)
  ` 纽约香草山MOS02`
 
-### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/57/README.md)
+### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/56/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/57/README.md)
+ ` 秘密翻译组-北美组`
 

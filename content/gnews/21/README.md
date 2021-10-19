@@ -2,84 +2,43 @@
 ---
 
 
-## 中美之间必有一战，其根本不在台湾，在经济
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602990/)
+## 短视频：恐惧自由民主，中共不惜毁掉香港
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1602996/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/888-a71ie-wzywl.jpg)
-[https://gtv.org/video/id=616d6e80d2e2b8174876b079](https://gtv.org/video/id=616d6e80d2e2b8174876b079)
+#### 翻译：文扬
+听写核对：Lish
+编辑：文泓
+剪辑字幕：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-9.jpg)
+图片来源：新唐人
 
-**郭文贵**
-**Miles Guo**
+目前香港的街头运动有真正的希望吗？你能看到蓝天吗？
 
-飞机来干啥呀，飞机来保护台湾呐
-What are your fighter jets coming here for? Were CCP’s fighter jets come here to protect Taiwan？
+香港的街头运动没有希望，我看不到任何蓝天，除了看到香港精神的余晖，这还真是了不起，我的意思是，当我们在6月被迫关停报社时，我们印了100万份报纸，是我们通常印数的10倍以上，它们在几小时内就被卖光了。凌晨三点，几千人为了购买最后一份报纸在街上排队。苹果日报的总部围了几千人，为记者们欢呼。
 
-这飞机都是（对着）美帝国主义和日本去的
-Those fighter jets are all going against the US and Japan
+我认为，这是一个非凡的时刻，这是一个非常、非常重要的时刻。因为这表明，一个中共国城市的人民想要自由，即便面对中共他们也会站出来说，他们想要在一个开放和公平的社会中做自由和民主的公民。这一直是中共所恐惧的。我想，现在他们已经决定通过毁掉一个自由的香港来消除这种恐惧。
 
-就差喊了，快来吧，快来吧，
-They’re (Taiwan) almost shouting to the mainland, come here, come here
+让我们谈一谈报社的话题，因为你的企业《苹果日报》被中共称为非法组织。这很可笑，不是吗？
 
-所以说现在打台湾这些动机和房地产有很大的关系
-So these motives to attack Taiwan now have a lot to do with CCP’S real estate
+我认为这很疯狂。但我认为这表明中国共产党与自由世界是多么的脱节。他们不理解不同意见，他们不容忍其他观点。他们不能容忍黎智英这样做，而黎也不会退缩。而他的不退让态度，让他们抓狂。真的，中共几乎疯了，这很疯狂。
 
-跟共产党的经济很大关系，共产党内部政治有很大的关系
-CCP’s economy and CCP’s internal politic struggles
+在那一刻，当你目睹你的朋友，也是团队伙伴黎智英，被逮捕并被戴上镣铐时，你是否感到震惊？
 
-另外一个，现在看到国际形势，当然跟美国的国家现在整个的实力衰弱
-Another one, now that we see the international situation, of course it has something to do with the current weakening of the strength of the U.S.
+真的是这样。他是个了不起的人，他知道会发生什么。他有充足的资源，而他选择留在香港。现在，我不知道如果我在香港会怎么样。但我不想生活在一个自己朋友被关在监狱里的地方。而我们这些没进监狱的人也很害怕。谁愿意生活在那样的城市？
 
-内乱，政治斗争，助长了他们，这是为什么川普总统说谁都看到了我们的懦弱
-civil strife and political struggles have fueled them up, this is why President Trump said that everyone has seen our cowardice
+我的意思是，如果中共能逮捕像黎智英这样知名度很高，具有高度原则性的商人，那么在香港还有人是安全的吗？
 
-所以跟中共国他说未来可能只有一战了
-So just like what he said that there might be a war between China and the U.S. in the future
+香港现在没有人是安全的。这是如此困难，每个人都必须做出自我的选择，没有人能得到完整的信息。没有人知道明天早上7:30的敲门声是为了黎智英？或者是你我，你不知道敲门的人是为了谁。
 
-他现在才明白，他在白宫时候他不明白，
-He just realizes now, he didn’t understand when he was in the White House
+(本文仅代表作者个人观点，与Gnews 无关)
 
-我们每周的报告他认为跟中共国不可能有一战，要战就是第三次世界大战
-In our weekly report, he believes that there can be no war with the Chinese Com-munist Party, and that the battle will be the world war III
+视频链接：[Former journalist on the fight for free speech in Hong Kong | 60 Minutes Australia – YouTube](https://www.youtube.com/watch?v=cj7XFjq159I&amp;t=88sYouTube)
 
-现在他明白了，现在他明白必有一战
-Now he understands, now he understands that there must be a war
+**发布： 文泓**
 
-我告诉你，兄弟姐妹们，中美之间必有一战
-I tell you, brothers and sisters, there must be a war between China and the United States
-
-我从来没说过，你查我过去直播，我没说过，我是第一次告诉你们
-I never said that before, you check my past live broadcast, I didn’t say it, this is the first time I told you
-
-我一直认为中美不能有一战，但是今天我可以告诉大家，
-I have always thought that China and the United States cannot have a war, but to-day I can tell everyone
-
-我认为中美之间必有一战，必有一战，不是因为台湾，也不是因为香港
-I think there must be a war between China and the United States, there must be a war, not because of Taiwan, nor because of Hong Kong
-
-根本问题就是经济，因为共产党这个房地产经济，这海外的十几万亿美元
-The fundamental problem is the economy because the real estate economy of the Communist Party of China, the tens of trillions of dollars in overseas
-
-这美国人你动它哈，你别动它奶酪，那就是它的钱
-No matter what you touch the American’s stuff, don’t dare touch their “cheese”, that’s their money
-
-———————————————————
-
-**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1449243903303905284?s=24](https://twitter.com/se1y7cblljselva/status/1449243903303905284?s=24)
-
-Date:10/16/2021
-原视频标题:
-There must be a war between China and the United States, it is not for Taiwan at all, it’s for the economy.
-原视频日期：2021/10/13
-任务编号：2571
-视频时间段 : 0:00-1:40
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

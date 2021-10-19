@@ -2,35 +2,83 @@
 ---
 
 
-## 脸书迫于压力未继续禁止澳洲联合党页面
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1603046/)
+## 众议员比尔·汉格蒂：我们的领导人必须致力于解决 中国共产党对美国构成的威胁
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1603050/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ab8746fbe28176bf785c7428945b35df.jpg)图片来源：Herald Sun
-**整理报道：**翼族
+众议员比尔·汉格蒂： 我们的领导人必须致力于解决 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 对美国构成的威胁。我与科顿参议员一起要求被提名人 Alan Estevez 回答有关国家安全的重要问题。 【附路透社特别报道：科顿参议员推迟了拜登就商务部处理中国事务的重要职位提名的投票】
 
-今年早些时候，反对强制接种COVID-19疫苗的澳大利亚国会议员克雷格·凯利（Craig Kelly)因宣传羟氯喹和伊维菌素以及质疑口罩有效性而被脸书（Facebook）暂停数周，随后Facebook在4月份将其脸书页面永久关闭。
 
-但是迫于来自各方的政治压力，Facebook未继续封锁凯利议员领导的澳大利亚联合党（UAP）的页面。
 
-上个月，工党的蒂姆·沃茨(Tim Watts)要求社交媒体巨头Facebook解释，为何凯利议员领导的UAP的政治广告仍然继续在Facebook平台上广泛传播。沃茨是现任澳大利亚网络安全助理部长。
+> Our leaders must be committed to addressing the threat the Chinese Communist Party poses to the United States. Joining [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) in demanding answers from nominee Alan Estevez about important matters of national security. [https://t.co/0S3pHqcLq4](https://t.co/0S3pHqcLq4)
+> — Senator Bill Hagerty (@SenatorHagerty) [October 17, 2021](https://twitter.com/SenatorHagerty/status/1449833424601198603?ref_src=twsrc%5Etfw)
 
-瓦茨（Watts）9月份向Facebook投诉，UAP已在Facebook和谷歌上发起了一项新活动，一个月内花费广告费用超过50万澳元。瓦茨认为这种行为相当于“逃避执法”。
 
-Facebook澳大利亚和新西兰政策主管米娅·戈尔里克（Mia Garlick）回应称，UAP并未违反其社区标准，尽管广告中载有凯利议员的重要内容，Facebook也“删除了似乎是为了逃避执法而创建的其它一些帐户”，但并没有扩展到UAP的账户，因为该页面“目前没有”违反社区标准。
 
-凯利议员周一告诉澳大利亚《卫报》，他即将对Facebook提起诽谤和违约的法律诉讼。凯利称，Facebook说他因传播错误信息而被禁止是对他的诽谤。
+参议员瑞克·斯科特： 随着 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的威胁升级和许多美国人仍滞留在阿富汗，民主党却决定将自由主义的优先事项放在首位，比如联邦为堕胎提供资金，同时却很难增加5%的国防开支。 是时候停止不计后果的社会主义开销并开始保护美国了。
 
-对于瓦茨向Facebook的投诉，凯利说：“澳大利亚议会的另一名成员试图宣布我为‘非正常人类’，这令人非常失望。瓦茨先生的行为是对言论自由的侮辱”。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
 
-**参考链接：**[Facebook says Craig Kelly’s content on United Australia party page OK after banning MP](https://www.theguardian.com/australia-news/2021/oct/19/facebook-says-craig-kellys-content-on-united-australia-party-page-ok-after-banning-mp?utm_source=newsshowcase&amp;utm_medium=gnews&amp;utm_campaign=CDAQlYixxM6EgpgYGPnOnaX4hbTPlgEqEAgAKgcICjDU66ILMJf2ugM&amp;utm_content=rundown)
+> As Communist China escalates its threats & Americans remain stranded in Afghanistan, Democrats decide to put liberal priorities first like federal funding for abortions while barely increase defense spending by 5%. 
+> 
+> Time to stop the reckless socialist spending & protect the U.S. [https://t.co/alnEVaojMk](https://t.co/alnEVaojMk)
+> — Rick Scott (@SenRickScott) [October 19, 2021](https://twitter.com/SenRickScott/status/1450256629614714885?ref_src=twsrc%5Etfw)
 
-*编辑/发布：翼族*
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+众议员加拉格尔新闻办公室： 加拉格尔众议员就 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的高超音速导弹试验说：“这不仅应该是给国防界敲响的警钟，也应该是给美国人民敲响的警钟，提醒我们正在应对的是何种威胁。我们正在应对的是一个将不惜一切代价破坏美国领导力和权力的政权” 【附加拉格尔议员在福克斯电视塔的视频讲话】
+
+
+
+> Rep. Gallagher on China's hypersonic missile test: "This should be a wake up call not just to the defense community, but to the American people about the type of threat we're dealing with. We're dealing with a regime that will stop at nothing to undermine US leadership & power." [pic.twitter.com/9i6CQ1iou5](https://t.co/9i6CQ1iou5)
+> — Rep. Gallagher Press Office (@RepGallagher) [October 18, 2021](https://twitter.com/RepGallagher/status/1450222201458806784?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加西亚： 令人尴尬的是，美国情报官员表示，他们对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 核能力的快速发展感到“惊讶”。几个月来，一直有关于它们快速发展的警告。我们保持领先于中共国至关重要。 【附福克斯新闻报道：美情报界对中共国具核能力的高超音速导弹试验表示惊讶】
+
+
+
+> It is embarrassing that U.S. intelligence officials are saying they are "surprised" about how quickly China’s nuclear capabilities have advanced. For months, there have been warnings of their rapid advances. It’s critical that we stay ahead of China.[https://t.co/d4uT3KeZyb](https://t.co/d4uT3KeZyb)
+> — Rep. Mike Garcia (@RepMikeGarcia) [October 18, 2021](https://twitter.com/RepMikeGarcia/status/1450221612733718531?ref_src=twsrc%5Etfw)
+
+
+
+众议员帕特·法伦： 过去几周，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 使得印-太地区局势升级。 他们的威胁不仅会损害台湾，也会损害我们在国内的自由。
+
+
+
+> Over the past several weeks, China has escalated the situation in the Indo-Pacific. 
+> 
+> Not only will their threats prove detrimental to Taiwan, but also our freedom here at home.
+> — Rep. Pat Fallon (@RepPatFallon) [October 18, 2021](https://twitter.com/RepPatFallon/status/1450153955657457667?ref_src=twsrc%5Etfw)
+
+
+
+参议员乔什·霍利： 我们拥有世界上所有的道德权威。 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是独裁政权。 美国是地球上最伟大、最崇高的国家。 拜登在很大程度上是一个失败的总统，因为他忘记了这些 【转共和党全国委员会研究推文：拜登的能源部长詹妮弗·格兰霍姆说，“我们没有太多道义上的权威”来指责 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click)。】
+
+
+
+> We have all the moral authority in the world. [#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) is a repressive dictatorship. The USA is the greatest, noblest country on the face of the earth. Biden is a failure as president in large measure because he’s forgotten that [https://t.co/NV0mQaJOKO](https://t.co/NV0mQaJOKO)
+> — Josh Hawley (@HawleyMO) [October 18, 2021](https://twitter.com/HawleyMO/status/1450115544368156678?ref_src=twsrc%5Etfw)
+
+
+
+众议员马乔里泰勒格林： 和解法案（预算）就是绿色新政，我们就是应该这么称呼它。这是个气候变化骗局，是社会主义者的项目，绿色能源不会让灯着火热，而 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 还会借此供应电动车电池。这是把美国放在最末位，将会最大地伤害穷人，让每个人变得更贫穷。（和解法案含油气业的 60 亿美元税收等）
+
+
+
+> The Reconciliation bill is the Green New Deal & that’s how we should refer to it.
+> 
+> It’s climate scam socialist programs, green energy that won’t keep the lights & heat on, and CCP supplied EV batteries.
+> 
+> It’s America-last & will hurt the poor the most & make everyone more poor. [https://t.co/0Ye5XHySZ1](https://t.co/0Ye5XHySZ1)
+> — Marjorie Taylor Greene 🇺🇸 (@mtgreenee) [October 18, 2021](https://twitter.com/mtgreenee/status/1450054864000651266?ref_src=twsrc%5Etfw)
+
+
+
+众议员马克·格林： 虽然美国军队是世界上最好的军队，但让这件事来提醒我们，削减国防预算永远不是答案。拜登总统，对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 保持警惕。 【附纽约邮报报道：中共国声称新的高超音速导弹打击美国的“战略优势”】
+
+
+
+> While the U.S. military is the best in the world, let this serve as a reminder that cutting our defense budget is never the answer. President Biden, hold China in check. [https://t.co/Z1xELVGG15](https://t.co/Z1xELVGG15)
+> — Rep. Mark Green (@RepMarkGreen) [October 18, 2021](https://twitter.com/RepMarkGreen/status/1450180415554211845?ref_src=twsrc%5Etfw)

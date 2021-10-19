@@ -2,10 +2,10 @@
 ---
 
 
-## 因出售未注册的加密资产，5人被日本警方逮捕
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1603031/)
+## 美国前国务卿鲍威尔接种疫苗后，仍感染中共病毒死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1603047/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10._19-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1019-scaled.jpg)
 （文章仅代表作者个人观点，与GNEWS无关）
 
 *编辑：东京樱花团/简报小组*

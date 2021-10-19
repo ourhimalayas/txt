@@ -2,7 +2,12 @@
 ---
 
 
-## 10/18/2021七哥直播：把玉璧中间放上玉钺会是什么？
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1603026/)
+## 因出售未注册的加密资产，5人被日本警方逮捕
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1603031/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10._19-scaled.jpg)
+（文章仅代表作者个人观点，与GNEWS无关）
+
+*编辑：东京樱花团/简报小组*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

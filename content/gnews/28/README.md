@@ -2,41 +2,57 @@
 ---
 
 
-## 文件显示大流行期间阿伯塔省 ICU 的容量下降
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1602898/)
+## 国会山司法要害部门一半都是律师，都被共产党控制了
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602947/)
 
-作者：Sheila Gunn Reid
+![](https://assets.gnews.org/wp-content/uploads/2021/10/277-aw0zs-cgvx6.jpg)
+[https://gtv.org/video/id=616d8acbd2e2b8174876bdfd](https://gtv.org/video/id=616d8acbd2e2b8174876bdfd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Article-Image_ICU-beds-in-AB_Oct-18-e1634599686734.jpg)
+**郭文贵**
+**Miles Guo**
 
-独家文件显示，与 2020 年 3 月宣布开始时相比，阿尔伯塔省卫生保健系统在新冠大流行一年后的 ICU 床位更少了。
+美国现在这个国家，咱们今天为啥从头要谈法治
+now the United States, why are we talking about the rule of law from the begin-ning?
 
-访问文件管理器提供给反叛新聞的政府文件显示，在前卫生部长泰勒·山德罗的领导下，重症监护病床数量减少了。
+刚才Rachel做得非常好，我希望继续再深挖下去
+Rachel did a very good job just now, I hope you continue to dig deeper
 
-2020 年 3 月大流行前，ICU 容量数字表明，全省共有 186 张 ICU 病床，每 100,000 名阿伯塔人有 4.2 张病床。
+美国的国会山一半都是律师，美国的司法部门要害部门一半的人都是律师
+Half of Capitol Hill in the United States are lawyers, and half of the people in the key departments of the US judicial department are lawyers
 
-2021 年，ICU 床位数量显示全省有 173 张床位，每 100,000 名艾伯塔人有 3.8 张床位。
+都是被共产党控制了，想控制谁就控制谁
+They are all controlled by the Communist Party, they control whoever they want to control
 
-2019 年 3 月的数据显示，全省有 207 张可用的 ICU 床位；2018 年的数字反映了相同的床位数量，再次为 207。
+而且很脆弱，西方的民主法治，当你有信仰的时候，它是极为强大的
+and it’s very fragile, the democracy and rule of law in the West is extremely pow-erful when you have faith
 
-同一份文件表明，在所谓的第二波新冠浪潮中，阿伯塔省能够在 2021 年 1 月将 ICU 容量增加到 291 张床位，而阿伯塔省同时有 130 名 ICU 患者。 在第三波中，到 2021 年 5 月 24 日，阿伯塔省的 ICU 容量达到了 299 张床位的峰值，而 161 名患者占用了这些 ICU 床位。
+当你没有信仰的时候，它很脆弱
+it is so fragile when you have no faith
 
-來源：[https://www.rebelnews.com/docs\_show\_alberta\_icu\_capacity\_declined\_during\_pandemic](https://www.rebelnews.com/docs_show_alberta_icu_capacity_declined_during_pandemic)
+欧洲就更不用提了，那些老不要脸的就不用提了
+Hard to even mention Europe, those old shameless politicians
 
-（文章仅代表作者个人观点）
+就没见过有骨头的人，
+I have never seen anyone with backbone
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+———————————————————
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+**原视频链接**:[https://twitter.com/se1y7cblljselva/status/1449362247776567297?s=24](https://twitter.com/se1y7cblljselva/status/1449362247776567297?s=24)
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+Date:10/17/2021
+原视频标题:
+Half of the crucial judicial departments on Capitol Hill are lawyers and they are all controlled by the Communist Party
+原视频日期：2021/10/13
+任务编号：KC178（2569）
+视频时间段 : 0:00-0:45
 
-**关注我们**
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

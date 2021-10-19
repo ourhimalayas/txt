@@ -2,56 +2,35 @@
 ---
 
 
-## 青蒿素及其衍生物在心血管疾病中的应用
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1603030/)
+## 脸书迫于压力未继续禁止澳洲联合党页面
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1603046/)
 
-作者：纽约香草山农场 – 善良的城君
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ab8746fbe28176bf785c7428945b35df.jpg)图片来源：Herald Sun
+**整理报道：**翼族
 
+今年早些时候，反对强制接种COVID-19疫苗的澳大利亚国会议员克雷格·凯利（Craig Kelly)因宣传羟氯喹和伊维菌素以及质疑口罩有效性而被脸书（Facebook）暂停数周，随后Facebook在4月份将其脸书页面永久关闭。
 
+但是迫于来自各方的政治压力，Facebook未继续封锁凯利议员领导的澳大利亚联合党（UAP）的页面。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
+上个月，工党的蒂姆·沃茨(Tim Watts)要求社交媒体巨头Facebook解释，为何凯利议员领导的UAP的政治广告仍然继续在Facebook平台上广泛传播。沃茨是现任澳大利亚网络安全助理部长。
 
+瓦茨（Watts）9月份向Facebook投诉，UAP已在Facebook和谷歌上发起了一项新活动，一个月内花费广告费用超过50万澳元。瓦茨认为这种行为相当于“逃避执法”。
 
+Facebook澳大利亚和新西兰政策主管米娅·戈尔里克（Mia Garlick）回应称，UAP并未违反其社区标准，尽管广告中载有凯利议员的重要内容，Facebook也“删除了似乎是为了逃避执法而创建的其它一些帐户”，但并没有扩展到UAP的账户，因为该页面“目前没有”违反社区标准。
 
-前言：青蒿素及其衍生物除了可以抗疟疾外，对心血管系统也具有保护作用。青蒿素通过增加收缩型血管平滑肌细胞基因表达、干扰心室肌细胞动作电位、抑制心肌间质纤维化等机制，具有抑制动脉粥样硬化、抗心律失常、抑制心肌梗死等作用，为临床治疗心血管系统相关疾病提供新思路。
+凯利议员周一告诉澳大利亚《卫报》，他即将对Facebook提起诽谤和违约的法律诉讼。凯利称，Facebook说他因传播错误信息而被禁止是对他的诽谤。
 
-![](https://lh3.googleusercontent.com/proxy/vjqlLmBwl3vF121sV4FWar3c2AckA6_BkfRQJ2rbtzOMwFRjjHsSoiNEFSKfIV3Vx_FCEcOAIKKYV4LYgitVVmWzUQ6cXUGqdpNyn_JTQltLDJfoRmt-nU1ln0lXSBYPvw)图源网络
+对于瓦茨向Facebook的投诉，凯利说：“澳大利亚议会的另一名成员试图宣布我为‘非正常人类’，这令人非常失望。瓦茨先生的行为是对言论自由的侮辱”。
 
-* * *
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-青蒿素是从菊科植物青蒿中提取分离的一种具有过氧桥的倍半萜内酯类化合物，其衍生物主要包括双氢青蒿素、青蒿琥酯、蒿甲醚等。青蒿素及其衍生物是经典的一线抗疟疾药，还具有抗肿瘤、抗炎、抗病毒、抗菌、抗纤维化以及治疗系统性红斑狼疮等多种药理作用。研究发现，青蒿素及其衍生物在心血管领域也有治疗作用。
+**参考链接：**[Facebook says Craig Kelly’s content on United Australia party page OK after banning MP](https://www.theguardian.com/australia-news/2021/oct/19/facebook-says-craig-kellys-content-on-united-australia-party-page-ok-after-banning-mp?utm_source=newsshowcase&amp;utm_medium=gnews&amp;utm_campaign=CDAQlYixxM6EgpgYGPnOnaX4hbTPlgEqEAgAKgcICjDU66ILMJf2ugM&amp;utm_content=rundown)
 
-1. 青蒿素与动脉粥样硬化：动脉粥样硬化的发展与血管平滑肌细胞表型转化有关。研究表明，青蒿素可减少动脉粥样硬化小鼠模型主动脉粥样斑块面积。
-2. 青蒿素与心律失常：青蒿素具有抗心律失常作用。有发现称，青蒿素通过干扰心室肌细胞外向整流电流，发挥抗心律失常功能。此外，研究发现，青蒿素能降低心力衰竭（心衰兔）的心率。
-3. 青蒿素与心梗：有研究表明，通过结扎大鼠冠状动脉左前降支构建动物心梗模型，分别给予青蒿素和羧甲基纤维素治疗。四周后发现，青蒿素治疗组的大鼠生存率明显高于羧甲基纤维素组。这表明青蒿素在心梗后交感神经重构中的潜在应用价值。
-4. 青蒿素与慢性心力衰竭：青蒿素具有改善心衰的作用。实验表明，在心衰兔模型中，与模型组比较，青蒿素组提示青蒿素可明显改善心衰兔的心功能。
-5. 青蒿素与糖尿病性心肌病：糖尿病性心肌病以心肌纤维化、心脏代谢失调、左室结构和功能改变为特征，最终进展为心衰。青蒿素可减轻糖尿病心肌病心肌纤维化，明显改善心脏收缩功能，在一定程度上改善心脏舒张功能。
-6. 青蒿素与其他心血管病：有发现称，青蒿琥酯可治疗人疱疹病毒所致的病毒性心肌炎。儿童心肌炎患者经青蒿琥酯治疗后，临床症状和心功能改善且无药物不良反应。青蒿素及其衍生物可显著降低细胞炎性因子水平，进而减少因炎性因子对心血管系统造成的损害。
-7. 青蒿素的适用患者：安全性方面，疟疾患者治疗结果的分析已证实青蒿素的安全性。大量研究已表明，青蒿素及其衍生物在心血管疾病治疗方面具有一定作用，但起作用机制尚不清楚，有待于进一步探索。
+*编辑/发布：翼族*
 
-
-* * *
-
-编者注：具体药物的使用方式请咨询医生。GNews文章不提供任何用药参考。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
