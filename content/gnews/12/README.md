@@ -2,100 +2,38 @@
 ---
 
 
-## 有人叫嚣拒绝未接种疫苗人群生命垂危时到医院治疗
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1604675/)
+## 快报：魁省推迟医护人员疫苗接种令，但抗议仍继续
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1604710/)
 
-据《峰会新闻》(Summit News)保罗·约瑟夫·沃森（Paul Joseph） 2021年10月15日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-12.png)图片来自网络
-在精神错乱咆哮中说他们 “不适合地球上的生活”。
+编译：**Lulumi**
 
-《纽约时报》和《华盛顿邮报》引用了一位网络安全方面工作“专家”的推特，称未接种疫苗人群生命垂危时应该被拒绝到医院治疗，因为他们“不适合在地球上生活”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-366.png)
 
-克里斯·维克里(Chris Vickery)称自己为“数据泄露猎人”，还吹嘘他的“调查结果对联邦贸易委员会(FTC)、联邦调查局(FBI)、证券交易委员会(SEC)、特勤局(Secret Service)、卫生与健康服务部(HHS)、参议院情报特别委员会(SSCI)等进行的调查有很大帮助”。
+2021年10月14日，医院工作人员和工会组织者挥舞着标语和横幅，抗议位于Roseville的Kaiser Permanente医院的人员短缺问题
 
-在维克里精神错乱的推特中，咆哮宣称，应该对拒绝接种中共病毒疫苗的人设定一个12月1日的时间限制。
+图片来源：Fred Greaves for CalMatters
 
-他尖叫道：“现在就定个日期。在那之后，医院不再为自愿未接种疫苗的人提供服务”。
+2021年10月15日本来是魁北克省未接种疫苗的一线医护人员的最后期限。他们中的几千人准备在那一天被解雇。
 
+然而，我们的卫生部长克里斯蒂安·杜贝（Christian Dubé）就在最后期限的前两天决定再给予一个月的宽限期，以鼓励这些医护人员去接种疫苗。
 
+尽管有这样的延迟，但这一变化丝毫没有阻止医护人员来到杜弗林平台上的弗朗特纳克城堡前示威，表达他们的声音。
 
-> Seriously. Pick a date now. Make it something like December 1st, 2021. Broadcast this fact widely.
-> Then, after the chosen date, anyone choosing to refuse the covid-19 vaccine can deal with the consequences of that choice alone.
-> — Chris Vickery (@VickerySec) [October 14, 2021](https://twitter.com/VickerySec/status/1448468418508644361?ref_src=twsrc%5Etfw)
+几位抗议者身着制服，其他人在海报上展示他们的专业背景。这是一次非常激动人心的活动，有令人难以置信和感人的证词。
 
+这次示威活动出现了意想不到的变化，在一次演讲中，活动家弗朗索瓦·阿马莱加（François Amalega）提议在魁北克L’Hôtel-Dieu医院前继续示威，以证明魁北克禁止在医院外抗议的新法律的荒谬性。
 
-*Chris Vickery @VickerySec · 10月13日*
-*现在就定个日期。*
-*在那之后，医院不再为自愿未接种疫苗的人提供服务。*
-*Chris Vickery @VickerySec · 10月13日*
-*说真地。现在选择一个日期。比如2021年12月1日那样。广泛传播这个事情。然后，在选定的日期之后，任何选择拒绝中共病毒疫苗的人都要独自面对该选择的后果*
-维克里补充道：“然后，在选定的日期之后，任何选择拒绝中共病毒疫苗的人都要独自面对该选择的后果”。
+然而警察已经封锁了通往医院的道路。最近在医院周围50米范围内进行抗议是非法的。
 
-在声称任何人都没有“合法”理由拒绝接种之后，维克里以疯狂的呼吁结束了他的咆哮，让这些人“与幸存的世界分离”。
+最后，这是充满曲折的一天。
 
+（文章仅代表作者观点，与GNEWS无关）
 
+**参考资料：**[rebelnews.com] [Quebec delays health worker vaccine mandate, but protests continue](https://www.rebelnews.com/quebec_delays_health_worker_vaccine_mandate_but_protests_continue)
 
-> Human society isn't a suicide pact. If you are too dumb to get the covid vaccine, then you are not fit for continued life on Earth.
-> That's your choice, but the consequences of refusing to get the vaccine is you having to wave a fond farewell and separate from the surviving world.
-> — Chris Vickery (@VickerySec) [October 14, 2021](https://twitter.com/VickerySec/status/1448468420362604545?ref_src=twsrc%5Etfw)
+* * *
 
-
-*Chris Vickery @VickerySec · 10月13日*
-*已经够久了。那些人有大量的犹豫时间和缓冲空间来“检查科学”。现在不接种的人没有合法、理由充分、普遍适用的论点。*
-*Chris Vickery @VickerySec · 10月13日*
-*人类社会不是自杀协议。如果你太笨而不去接种中共病毒疫苗，那么你就不适合在地球上继续生活。*
-*那是你的选择，但拒绝接种疫苗的后果是你不得不挥手告别，与幸存的世界分开。*
-“人类社会不是自杀协议。如果你太笨而不去接种中共病毒疫苗，那么你就不适合在地球上继续生活。”
-
-“那是你的选择，但拒绝接种疫苗的后果是你不得不挥手告别，与幸存的世界分开。”
-
-一些人开玩笑说，这是推特常见的蓝色复选标记趋势的又一个例子，它积极展示他们的美德，同时实际上呼吁大规模种族灭绝。
-
-
-
-> [pic.twitter.com/ojFGpOXFzZ](https://t.co/ojFGpOXFzZ)
-> — Auron MacIntyre (@AuronMacintyre) [October 15, 2021](https://twitter.com/AuronMacintyre/status/1448973333635211305?ref_src=twsrc%5Etfw)
-
-
-
-其他人则直接抨击维克里的无情，不人道。
-
-一个网友发问：“当你还是个孩子的时候，你有没有想过你成年后会是一个多么可怕的人？”
-
-另一位网友打趣讽刺，“医疗保健作为一项基本人权到此为止。”
-
-维克里后来吹嘘他在发表评论后在推特上屏蔽了很多人。
-
-
-
-> Make my day. [pic.twitter.com/Dmtk873EMg](https://t.co/Dmtk873EMg)
-> — Chris Vickery (@VickerySec) [October 14, 2021](https://twitter.com/VickerySec/status/1448680623518851075?ref_src=twsrc%5Etfw)
-
-
-*Chris Vickery @VickerySec · 10月14日*
-*我杀了巨魔。 就这样。*
-*Chris Vickery @VickerySec · 10月14日*
-*我的一天*
-他多么勇敢。
-
-正如我们之前强调过的，美国各地的许多医院已经在拒绝向未接种疫苗的患者进行挽救生命的器官移植手术。
-
-同时，在英国，根据国民保健服务(NHS)的规定，被视为“种族主义”、“性别歧视”或“恐同性恋”的患者也可能被拒绝接受治疗。
-
-正如我们在下面的视频中所记录的那样，基思·奥尔伯曼(Keith Olbermann)和一些人正在发表相似言论，他们打算煽动“新常态”邪教成员进行疯狂、歇斯底里的仇恨，针对那些选择不接受接种人群。
-
-老头向未接种人群大叫
-
-
-
-【本文仅代表作者个人观点】
-
-译者评论：普通大众很难了解疫苗的真相，少数极端者还在对没有接种疫苗的人咆哮恐吓，甚至医院不接受没有接种疫苗的患者进行挽救生命的器官移植。政府、大科技媒体串通一气掩盖争相，强制疫苗，实施着邪恶的计划。爆料革命、新中国联邦一直致力于揭露疫苗真相。希望更多的人能够觉醒，希望能拯救更多的生命！
-
-[https://gettr.com/](https://gettr.com/)
-[https://gtv.org/](https://gtv.org/)
-https://www.gnews.org/
-
-原文链接： [https://summit.news/2021/10/15/expert-calls-for-denying-life-saving-hospital-treatment-to-the-unvaccinated/](https://summit.news/2021/10/15/expert-calls-for-denying-life-saving-hospital-treatment-to-the-unvaccinated/)
-
-翻译：Prof.Bacteriophage |校对： 烟波浩淼|编辑&发布：黎明的光芒
+*审核：文乐
+校对: 阿伯塔
+发稿: Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)

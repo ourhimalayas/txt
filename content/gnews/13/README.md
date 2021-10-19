@@ -2,31 +2,39 @@
 ---
 
 
-## 魁北克推迟卫生工作者接种疫苗的任务，但抗议活动仍在继续
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1604653/)
+## 据称泄露的加拿大政府备忘录告诉员工不要说“加油吧布兰登”
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1604685/)
 
-作者：Alexandra Lavoie
+作者：Efron Monsanto
 
-2021 年 10 月 15 日应该是魁北克未接种疫苗前线工人的最后期限。
+一份据称来自加拿大政府打印出来的备忘录昨天在推特上疯传，警告员工不要使用“加油吧布兰登（Let’s Go Brandon）”这句话，否则有被解雇的风险。
 
-那天有数千人准备被解雇。
+阿尔伯塔研究所所长彼得麦卡弗里将备忘录的一个版本发布到推特上，据称该备忘录显示了加拿大共享服务部泄露的备忘录，该机构向联邦政府提供提供满足加拿大人需求数字和IT 服务。
 
-然而，就在截止日期前两天，我们的卫生部长克里斯蒂安·杜贝决定再给予一个月的宽限期，以鼓励这些工人去接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Brandon-1.jpeg)
 
-尽管有这种延误，但这一变化丝毫没有阻止医护人员在弗朗特纳克城堡前达弗林露台上的示威，以表达他们的声音。
+备忘录写道：“具体来说，加拿大公共服务部门禁止在任何情况下使用‘加油吧布兰登（Let’s go Brandon）’一词及其任何变体。”
 
-
-
-> Château Frontenac, terrasse Dufferin, Old Québec. Frontline workers from all sectors are gathered to protest against the Mandatory Vaccination.[https://t.co/hCaNShGwhQ](https://t.co/hCaNShGwhQ) [pic.twitter.com/tgMKIpfJ3x](https://t.co/tgMKIpfJ3x)
-> — Alexa Lavoie (@ThevoiceAlexa) [October 15, 2021](https://twitter.com/ThevoiceAlexa/status/1449069536435707908?ref_src=twsrc%5Etfw)
+备忘录还说，任何员工提及这句话“都将成为立即解雇的理由，没有追索权或工会代表。”
 
 
 
-一些抗议者身着制服，其他人则在海报上展示了他们的专业背景。这是一个非常情绪化的事件，有令人难以置信和感人的证词。
+> Lets Go Brandon … LOL [#LetsGoBrandon](https://twitter.com/hashtag/LetsGoBrandon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/kZpIyyxjTk](https://t.co/kZpIyyxjTk)
+> — Javy Foxtrot (@JavyFoxtrot17) [October 11, 2021](https://twitter.com/JavyFoxtrot17/status/1447543009483055105?ref_src=twsrc%5Etfw)
 
-当活动家弗朗索瓦·阿马莱加在一次演讲中提议通过继续在魁北克医院前的示威活动来证明魁北克省禁止在医院外抗议的新法律是荒谬的时，这场示威发生了意想不到的转变。 最终，这一天充满了波折。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/魁北克1.png)
-來源：[https://www.rebelnews.com/quebec\_delays\_health\_worker\_vaccine\_mandate\_but\_protests\_continue](https://www.rebelnews.com/quebec_delays_health_worker_vaccine_mandate_but_protests_continue)
+
+
+口号“加油吧布兰登”是一个流行的模仿，背景是现场观众高呼的那句全美熟悉的热搜词“X 乔·拜登（F \*\*\* Joe Biden）”。一位NBC记者正在 NASCAR赛车活动中采访车手布兰登·布朗，当时后面的口号爆发了。然而，NBC的记者声称口号是“加油吧布兰登”，此后被称为损害控制的一种形式。
+
+我联系了加拿大共享服务部的评论，它首先回应要求提供一份未经编辑的信件副本，并知道我是为哪个网站写稿的。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Brandon-3.png)
+
+下午晚些时候，加拿大共享服务部回应并在给反叛新闻的一份声明中澄清说：“我们可以确认这条消息不是由加拿大共享服务部发布的，也没有相关部门政策。”
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Brandon-4.png)
+
+來源：[https://www.rebelnews.com/debunked\_alleged\_leaked\_canadian\_gov\_memo\_tells\_employees\_to\_not\_say\_let\_s\_go\_brandon](https://www.rebelnews.com/debunked_alleged_leaked_canadian_gov_memo_tells_employees_to_not_say_let_s_go_brandon)
 
 （文章仅代表作者个人观点）
 

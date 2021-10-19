@@ -2,30 +2,20 @@
 ---
 
 
-## 叶刘淑仪话音未落, 抗议北京冬奥会的邵岚获释
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1604491/)
+## 加拿大安省医生被限制签发新冠病毒疫苗的医疗豁免证
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1604503/)
 
-作者：七哩香
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-17日，香港学生代表邵岚与西藏女学生Tsela Zoksang 在希腊雅典参与了呼吁抵制北京冬奥的抗议活动，遭希腊警方拘押但已于18日获释。此前港共官员 叶刘淑仪得知此消息后，在社交平台发帖称，“邵岚是流亡海外的香港社运人士，是时候让她尝尝民主发源地的希腊警方，是如何对待滥用表达自由了!”这位前保安局长话音未落,邵岚已经获释。
+编译撰稿：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-18.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/ys-edited.jpg)图片来源：thepostmillennial
 
-2019年反送中运动期间，中共独裁极权操控下的港共警方滥用暴力, 对抗争者残杀虐待, 致使近2万人伤亡失踪。邵岚所属的香港学界国际事务代表团，向多个国家和联合国人权理事会发出声讨控诉,  中共香港政府的所谓”执法”，与民主国家早已是天壤之别!  叶刘淑仪不仅嘲笑受害港人，还以为”天下乌鸦一般黑”, 结果一天就被打脸。以她为代表的一众港共帮凶,实为香港人的耻辱和败类!
 
-(本文仅代表作者观点)
+据加拿大自媒体《千禧年报》10月18日报道，安大略省【医生和外科医生学院】于当天宣布对马克-特罗齐医生和罗查尼-基里安医生进行职权限制，禁止他们再为新冠病毒疫苗接种签发任何医疗豁免证明。
 
-参考链接：[邵岚希腊抗议冬奥旋即获释 香港前保安局长遭打脸](https://www.rfi.fr/cn/人权/20211019-邵南希腊抗议冬奥旋即获释-香港前保安局长遭打脸)
+该限制令还延伸到禁止为“强制性口罩要求和新冠病毒测试”签发医疗豁免。被实施限制令的以上两位医生都强烈反对该疫苗的接种，而且最近都在公开场合发表了针对该疫苗的反对意见和言论。其中，基里安医生还在上个月辞去了其急诊室医生的职务，以抗议当地卫生局对疫情处理所采取的各种不合理政策。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+安大略省首席卫生官员基兰-摩尔对此表示，每10万人中真正有资格获得医疗豁免的人不应该超过5人。而豁免接种疫苗的医学理由应该是，有文件证明对疫苗的某种成分过敏，或是有证据证明接种后将导致患心肌炎的风险增加。莫德纳公司疫苗的被暂停使用就是该情况的最好例证。
 
-新闻访谈终审：文龍
-编辑/校正/发稿：谐趣园
+（以上内容仅代表原文信息和作者个人观点）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[原文链接：](https://thepostmillennial.com/two-ontario-doctors-restricted-from-issuing-medical-exemptions-for-covid-vaccines)
