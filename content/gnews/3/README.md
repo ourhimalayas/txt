@@ -2,50 +2,24 @@
 ---
 
 
-## 美国传奇科林-鲍威尔完全接种疫苗后去世
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1603612/)
+## 与中共抢夺规则制定权！G7确定数字货币共同指导原则
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1603673/)
 
-栏目记者: Andy5
-责任编辑：AsG諾雅
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-354.png)[图片来源](https://www.lianyi.cc/zixun/3141002)
+据北京青年报10月18日消息，近日，七国集团（G7）财长和央行行长针对央行数字货币确定了共同指导原则。原则在肯定央行数字货币提供流动性等功能的同时，尤为关注发行数字货币过程的用户隐私保护等监管问题。分析人士认为，G7此举不仅为各国央行发行数字货币提供了更多实践可能性，也打响了全球数字货币发展规则制定权的争夺战。（10月15日《上海证券报》）
 
+报道分析，旁观数字货币莽撞“竞赛”后，数字货币必须从研发领域的混乱丛林走上央行监管的中道和正道。G7设定的“原则”，意味着西方国家要制定数字货币监管规则，抢夺央行数字货币监管的话语权。G7设定的数字货币“原则”，将虚拟货币纳入和实体金融货币体系的监管中，不仅能够解决虚拟货币的投机乱象，也能破解虚拟数字货币损害央行履行货币和金融稳定使命的能力。
 
+报道称，虽然G7认可数字货币在跨境支付方面的优势，但同时也认为如果外国居民大量使用任何央行数字货币，可能导致发行国货币主权丧失。G7“原则”在某种程度上可理解为，央行数字货币只是一种主权货币的补充，在用其流动性功能和加密保护的同时，也给其设定了使用规则和局限。简言之，央行数字货币使用规则，不能破坏美元、欧元、英镑、日元等西方货币的权威性，也不能让西方主导全球金融秩序的主导权旁落。所以，G7设定的央行数字货币“原则”，是带了紧箍咒的“流通性”，是不能突破央行监管的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+反观，中共的数字人民币由于启动时间早、投入大，应用场景已不断扩大。根据7月16日中共人民银行发布的《中国数字人民币的研发进展白皮书》，截至2021年6月30日，数字人民币终端试点场景已超132万个，个人钱包2087万余个、对公钱包351万余个，累计交易笔数7075万余笔、金额约345亿元。
 
+近年来，中共对外以“一带一路”战略为掩护，在全球范围扩大影响力，抢夺能源和大宗商品的控制权，同时对内拿下香港，实施“大湾区计划”，强推人民币国际化，最终祭出数字人民币这把毒剑，最终目的是颠覆世界现行的美元货币体系。所幸通过四年多爆料革命的持续揭露，世界各国对中共数字人民币的野心终于有了警惕和反应。
 
+信息来源：[https://finance.sina.com.cn/money/bank/2021-10-18/doc-iktzqtyu2147146.shtml](https://finance.sina.com.cn/money/bank/2021-10-18/doc-iktzqtyu2147146.shtml)
 
-10月18日星期一，鲍威尔去世，享年84岁。他的家人在其脸书页面的声明上写道：”在完全接种了新冠疫苗后，美国前国务卿和参谋长联席会议主席科林-L-鲍威尔将军今天上午去世。我们要感谢沃尔特-里德国家医疗中心的医务人员的关怀治疗。我们失去了一位杰出的、充满爱心的丈夫、父亲、祖父和一位伟大的美国人。”
-
-据报道，鲍威尔被诊断出患有多发性骨髓瘤这种癌症，他的去世与86岁的棒球传奇人物汉克-亚伦的去世有相似之处，后者在1月份打了一针新冠疫苗后仅几周就去世了，尽管医院声称亚伦的死因与疫苗无关。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-103.jpg)
-科林-鲍威尔于1937年4月5日出生在纽约市，由牙买加移民父母抚养长大。从参加越南战争到成为四星上将，到1987年在里根政府出任史上第一位黑人国家安全顾问，1989年成为老布什总统的参谋长联席会议主席，并在克林顿政府连任同一职位，2000年在伊拉克战争期间在小布什政府中担任第一位黑人国务卿，他的一生充满传奇色彩，
-
-鲍威尔是第一个享有如此盛誉而死于所谓“突破性病例”的公众人物，他的死亡将使更多人看到新冠毒针的危害，从而更加坚定立场，拒绝所谓新冠疫苗。
-
-参考链接：
-1. [Colin Powell, Fully Vaccinated, Dies From COVID-19 Complications](https://marketrealist.com/p/was-colin-powell-vaccinated-covid/)
-2. [Colin Powell dead at 84 from COVID-19 complications](https://thehill.com/policy/defense/577152-colin-powell-dies-at-age-of-84)
-3. [“Fully Vaccinated” Colin Powell Dies From Covid Complications](https://www.infowars.com/posts/fully-vaccinated-colin-powell-dies-from-covid-complication/)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：鬼五
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+（本文只代表个人观点，与Gnews网站无关）
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18.png)
