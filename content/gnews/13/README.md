@@ -2,149 +2,79 @@
 ---
 
 
-## 习身体不行了更要打台湾，借口台独大开杀戒
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602862/)
+## 下一个抓的一定是杨洁篪
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1602879/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/555-wzywl.jpg)
-[https://gtv.org/video/id=616d7dcad2e2b8174876b7dd](https://gtv.org/video/id=616d7dcad2e2b8174876b7dd)
+**【郭先生直播摘要】2021.10.17 下一个抓的一定是杨洁篪**
 
-会谈当中对台湾问题
-Se habló el problema de Taiwán durante la reunión
+**郭先生：**
 
-我告诉大家
-Déjame decirles
+然后，他就说到这个杨洁篪。他说，七哥，我告诉你，下一个抓的一定是杨洁篪
 
-一会儿下一段我再告诉大家
-En un rato les digo
+他说，我手里有杨洁篪的料，抓他一千次都不会拉倒
 
-把我吓死了
-Esto me asustó
+他说，但是杨洁篪和王毅这俩个王八蛋
 
-我当时听完以后
-En aquel momento cuando terminé de escuchar
+完全的把习(近平)整个外交这一块，全都是假的
 
-我真的是坐在那儿
-Realmente, me senté allí
+他说，七哥，为啥我们这些人信你啊
 
-我抽了3根雪茄, 为台湾人民
-Y fumé tres cigarros por los ciudadanos de Taiwán
+我们查这些案子，我们太了解你说的是真、是假
 
-嗓子都哑了
-Quedé afónico
+他说，我们没有任何人不看你直播的
 
-很恐怖
-Es terrible
+他说，我们在里面审人，审人中间，审完人都看你直播
 
-然后我没看到习近平讲话之前, 我就知道
-Y antes que ví a Xi hablando ya sabía
+都上GTV，他说，现在都上盖特
 
-习近平这次的讲话, 一定以辛亥革命(为主题)
-El tema que habló Xi esta vez, debe ser la Revolución del 1911 como tema principal
+他说，杨洁篪的事，你说的太对了，包括那程国平，包括那倪坚
 
-还找出所谓的多党派
-Y consiguió también el llamado multipartidista
+他说，你说的太对了。他们就是，我们查他的啦
 
-让汪洋的政协主席讲话
-Dejemos que hable el presidente de la CPPCC de Wang Yang
-后来我就了解
-Luego entendí
+他说，杨洁篪，现在随时可能，就是跑国外不回来了
 
-因为习的身体真的不行了
-Porque la salud de Xi ya no está en buena condición
+王毅都是有可能的
 
-习的身体真的是不行了
-Realmente su salud no está muy bien
+他就是担心家人
 
-这对台湾几乎是个噩梦
-Esto casi es una pesadilla para Taiwán
+所有现在对的就是祸连十三族
 
-他越是身体不行
-Cuanto más enfermo esté físicamente
+要没这个，都跑了，都叛变了
 
-他越要打台湾
-Más quiere atacar a Taiwán
+他说，现在各外交部、各外大使，都随时做好像北朝鲜一样，被干掉、被抓起来
 
-他要完成所谓的现代第二个秦始皇的历史责任
-Él quiere cumplir con la responsabilidad histórica del llamado segunda generación de Qin Shi Huang en los tiempos actuales
+然后说，这个倪坚，很快就让他退休，退休就把他抓起来
 
-对台湾凶也
-Es un peligro para Taiwán
+而且，这程国平，他说，你说的太对了，这个孙子(的)钱
 
-凶也
-Muy peligroso
+不一定全是他的，但是替孟建柱没少弄钱
 
-第二部分, 除了习身体不好
-Segunda parte, a parte de que la salud física de Xi no está bien
+替杨洁篪、王毅没少代持
 
-你看一看那天人民大会堂
-Mire El Gran Salón del Pueblo de aquel día
+仅在迪拜，就一万多套房子
 
-所有在主席台上的人
-Toda la gente que estaba en el podio
+光在迪拜一万多套房子
 
-你见哪个是江派
-Viste quién es del partido Jiang
+他说，七哥，你说这数的时候，我们都吓傻了
 
-除了韩正
-Excepto Han Zheng
+他说，只有我们掌握这个
 
-你见哪个是曾派
-Viste quién es del partido Zeng
+他说，我们都查完了
 
-最后那句最狠的话
-La última frase más cruel
+一万多套房子
 
-习要对台湾的
-Xi quiere hacer con Taiwán
+我说，我这全都有单子，我可以放在电视上给大家看
 
-台湾的一切问题在台独
-Todos los problemas de Taiwán radican en la independencia del país
+我这有一万多套房子，所有的名字、所有的单子
 
-台独要必需遭受所谓的大审判
-La independencia de Taiwán necesita pasar por el gran juicio final
+他说，所以说，七哥，为啥我们服你，只有我们掌握一万多个房子
 
-这两句话已经就基本定义了
-Estas dos frases se definen básicamente
+他说，我们给习报的时候，我们报多少，我们报三千
 
-以孙灭台
-Destruir a Taiwán mediante Sun
+他(习近平)都吓半死的
 
-用孙中山合法的这种理由
-Utilizar esta razón legal de Sun Zhongshan
+我们还没给他报一万多，你讲出一万多，他说我们知道这一万多套
 
-继承衣钵
-Heredar el manto
 
-谁在台湾呼应呢
-Quién será el que coordina en Taiwán
 
-那就是国民党
-Es el Partido Nacionalista Chino (KMT)
-
-打击对象的原因是谁呢
-¿ Quién fue la causa del ataque?
-
-台独
-La Independencia de Taiwán
-
-——————————————————
-
-**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1447754673880911877?s=24](https://twitter.com/se1y7cblljselva/status/1447754673880911877?s=24)
-
-日期：10/16/2021
-原视频标题：
-Cuanto más enfermo esté Xi físicamente, más querrá atacar a Taiwán y su excusa es por la Independencia de Taiwán
-原视频日期：10/12/2021
-任务编号：KC177（2495）
-视频时间段：0:00-1:50
-
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场–彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+视频听写：小蜜蜂 |视频制作+字幕：小蜜蜂 |编辑&发布：V

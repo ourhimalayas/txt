@@ -2,159 +2,80 @@
 ---
 
 
-## 为避经济危机美国的浅薄与疯狂
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602972/)
+## 为什么有关死亡的数据被政府搁置？
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1602992/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/331-azahh-pwlkr.jpg)
-[https://gtv.org/video/id=616d93d8d2e2b8174876c1fa](https://gtv.org/video/id=616d93d8d2e2b8174876c1fa)
+#### 编译报导：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-8.jpg)
+图片来源：The Guardian
 
-**郭文贵**
-**Miles Guo**
+**文章导读：**
 
-房地产这个雷是一定要炸死人的
-La mina inmobiliaria seguro matará gente
+10月18日，昆士兰州一国党参议员马尔科姆·罗伯茨（Malcolm Roberts）在议会演讲，他指出，疫情大流行死亡率数据通常每6周发布一次。但是，由于一个无法解释的原因，最新的数据已经逾期15周未公布。他抨击卫生部门不公布澳洲最新的死亡信息，政府需要公开透明，应该即时发布数据。
 
-只是谁的尸体
-Sobre el cadáver de quién
+10月19日，罗伯茨议员将演讲视频同步发推，他提出了一个观点，截至2021年6月30日，2021年澳大利亚死亡人数高于前七年的移动平均数。因为澳洲卫生部没有公布最新死亡率，他参考了英国的数据，非常令人震惊。一时间很多澳洲民众给他留言：
 
-现在美国佬疯狂在哪里
-Dónde está la locura de los jefes estadounidenses
+姬拉丽·史密斯回复，因为他们没有对大多数人进行尸检，却声称有些人死于新冠，其实可能死于疫苗或其他并发症，但我们永远不会知道。这都是政府的宣传。
 
-跟中共的勾兑当中
-Dentro de la vinculación con el PCCh
+威格斯特留言，他们都说死亡的病例与新冠相关，而一些未打过疫苗的人一开始就病得很重，所以听起来更像是未打过疫苗的人在死亡。醒醒吧，我们都被耍了。
 
-你继续买我国债
-Tu sigues comprándome la deuda nacional
+弗兰克·巴拉马蒂亚斯留言：绝对精彩！围绕着（政府对）疫苗接种死亡和副作用信息的缄默不语，这非常可怕。
 
-多么多么的浅薄
-Es tan pero tan superficial
+看来澳洲民众已经洞察政客们的企图。让我们看下罗伯茨议员的演讲。
 
-你真以为美国人就很伟大是吗
-Tu de verdad crees que los estadounidenses son grandiosos?
+**译文：**
 
-你觉得他们去干这种事
-Tu crees que ellos al hacer este tipo de cosas?
+主席先生，作为昆士兰州和澳大利亚人民的服务者，我有责任确保（一场）合理和准确的辩论。代表卫生部和部长的科尔贝克参议员也有同样的责任，确保这场事关合理和知情的辩论至关重要的数据被公开。
 
-你觉得他有视野吗
-Implica que ellos tienen visión?
+多年来，在各州之间的死亡率报告标准化之后，死亡率数据在其发生以后的6周后被公布。
 
-我问一个美国朋友
-Yo le pregunte a un amigo de EE. UU
+（当前）最后的死亡率数据截至到2021年6月30日。现在已是10月18日。突然间，在没有（任何）解释的情况下，（死亡率）数据（公布）被推迟了15周。
 
-你觉得共产党现在给你撑个半年一年
-Tu crees que ahorita el PCCh te soporta por medio o un año
+（卫生）部长应该对这个问题有所准备，我确实向他的办公室告知了我今天问话的主题，也向他的办公室指示了我关于第3970号通知的问题，要求提供相同的信息。第3970号通知已被搁置了12周。
 
-让它慢点倒 它永远不倒了吗
-Para que no se caiga y no caerá nunca?
+**截至****6****月****30****日的数据显示，****2021****年澳大利亚的死亡人数超过了****7****年的移动平均数，并且一直高于我们以前在澳大利亚看到的任何情况。**
 
-你继续印钞票就能解决问题吗
-Puedes resolver el problema imprimiendo billetes?
+令人不安的是，新南威尔士州和昆士兰州不再公开这些信息。
 
-就解决你的流动性
-Podrá solventar tu fluidez
+在没有澳大利亚死亡率数据的情况下**，我将快速参考英国的官方数据，在开始为****15-17****岁人群接种疫苗后，该年龄段的死亡人数增加了****20%****，在****4****岁以下的年龄段有****25%****的趋势。**
 
-和你国债的整个的天花板的问题吗
-Con tu deuda nacional ha llegado al límite máximo de problemas
+**更令人担忧的是，这种分布并不均匀，男孩的死亡率上升了****28%****，而女孩的死亡率上升了****8%****。**
 
-这个太不要脸了
-Esto es demasiado sin vergüenza
+这可能是美国食品和药物管理局在其网站上记录的268种已知的新冠疫苗和其他处方药之间的不良反应之一造成的。
 
-这就是中国人被奴役你知道中国人真的是很可怜
-Esto es el por qué los chinos son esclavizados, de verdad es muy lamentable
+从逻辑上讲，在给病人注射新冠疫苗之前，应该检查一下他们已经在使用什么药物，以及他们在以前的新冠感染中可能有什么自然免疫力。
 
-真的说白了
-En pocas palabras
+我不认为上周末向公众提供疫苗接种的昆士兰州33家邦宁斯（Bunnings）商场会要求（公众）提供这些信息。
 
-人家喊两嗓子叫几声
-Esa gente te llama o alza la voz
+**爱丁堡大学最近发表的一篇黄金标准论文发现，天然抗体对****新冠患者****的保护率为****80%****，大大优于现在的疫苗。**
 
-就像对香港 新疆一样
-Así como hicieron con Hong Kong y Sinkiang
+我担心，（现在）议会不计后果的疫苗接种运动正在杀害人们。
 
-都是拿来做政治筹码
-Lo usan como ficha política
+让我提出一些更广泛的问题供部长考虑：
 
-你看看这个美国人
-Mira los estadounidenses
+有据可查的卫生和诊断服务的减少是否在延误治疗方面制造了一个定时炸弹——例如癌症的早期检测——而这是否在杀害人们？
 
-现在这个时候
-Ahora en estos momentos
+广泛的封禁是否造成了（人们）精神健康问题，从而导致了更多的生命损失？
 
-就为了自己明年中期大选经济别倒
-Solo para que no quiebre la economía en las Elecciones de medio mandato del año que viene
+把澳大利亚的老人关在养老院里，没有家人的联络，是否会导致老人提前离世？
 
-台湾你就打了吧
-Ataca a Taiwán si deseas
+那些看到自己一生（追求）的事业，被（政府）反复无常和适得其反的封锁所摧毁和破产的企业主们，是否正在心灰意冷？
 
-弄回去吧
-Llévatelo
+这些问题是任何谨慎的、有爱心的政府都会担忧的。这个政府和这个议会应该密切关注死亡率数据，以实时获得关于这些问题的指导。
 
-经济这块 地产不要倒了
-Pero la parte de la economía e inmobiliaria no se puede caer
+可悲的是，这个政府和这个议会既不审慎也不关心。
 
-继续给我们撑着
-Sigue apoyándolo por nosotros
+我们的社区、我们的国家（人们）应该得到更好的服务。
 
-不要烂账
-No hagas cuentas pasadas
+新闻链接：[Why is data about deaths being held back? – Malcolm Roberts (malcolmrobertsqld.com.au)](https://www.malcolmrobertsqld.com.au/why-is-data-about-deaths-being-held-back/)
 
-而且竟有人私下承诺
-Además, hubo alguien que prometió por privado
+(本文仅代表作者个人观点，与Gnews 无关)
 
-我们可以把这些基金让他们给你延期
-De poder extender la fecha de estos fondos
+**编辑/发布： 文泓**
 
-也就是在西方从来没发生的
-Quiere decir hacer como si no pasó nada en el occidente
-
-也就是说 借新还旧
-En pocas palabras pedir préstamo nuevo para reembolsar lo viejo
-
-这就是西方经济方面的
-Esto es en la parte económica del occidente
-
-这种疯狂
-Este tipo de locura
-
-就为了短期的政治利益
-Sólo por los beneficios políticos a corto plazo
-
-宁可借新还旧
-Prefieren un préstamo nuevo y reembolsar lo viejo
-
-花样年、合生创展、富力
-Fantasía Holdings, Hopson Development, R&F Properties
-
-李思廉都已经找着基金了
-Li Silian ya consiguió fondos
-
-你不让我借新还旧老子就要死给你看
-Si no me dejas pedir préstamo nuevo para reembolsar lo viejo entonces me suicidaré
-
-你像那融创
-Así como Sunac
-
-你不让（我借新还旧）我就死给你看
-Si no me dejas (pedir préstamo lo nuevo para reembolsar lo viejo) me suicido
-
-———————————————————
-
-**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1447866395929178124?s=24](https://twitter.com/se1y7cblljselva/status/1447866395929178124?s=24)
-
-日期: 10/17/2021
-原视频标题：
-La superficialidad y la locura de Estados Unidos para evitar la crisis económica
-原视频日期: 10/12/2021
-任务编号：KC180（2528）
-视频时间段：0:00-1:52
-
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

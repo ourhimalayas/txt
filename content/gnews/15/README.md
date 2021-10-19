@@ -2,41 +2,149 @@
 ---
 
 
-## 多伦多 CBC 办公室的新冠爆发
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1602857/)
+## 习身体不行了更要打台湾，借口台独大开杀戒
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602862/)
 
-作者：Sheila Gunn Reid
+![](https://assets.gnews.org/wp-content/uploads/2021/10/555-wzywl.jpg)
+[https://gtv.org/video/id=616d7dcad2e2b8174876b7dd](https://gtv.org/video/id=616d7dcad2e2b8174876b7dd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/cbc.png)
+会谈当中对台湾问题
+Se habló el problema de Taiwán durante la reunión
 
-新冠爆发的网站上位于多伦多市的加拿大广播公司办公室赫然在列。
+我告诉大家
+Déjame decirles
 
-虽然人们担心艾伯塔省和萨斯喀彻温省的新冠状态，标题“新冠急诊就诊和住院人数增加”的文章，其中CBC错误地声称一名 14 岁的脑癌患者死于新冠；并且“在新冠危机期间，萨斯喀彻温省询问其他省份是否可以保留 ICU 工作人员。” 但CBC的母公司也有自己的新冠危机。
+一会儿下一段我再告诉大家
+En un rato les digo
 
-在多伦多公共卫生发布的最新在线列表中，CBC在拥有 20 名或更多员工的霍格敦工作场所爆发中受到关注。
+把我吓死了
+Esto me asustó
 
-10 月 6 日至 12 日期间，CBC 发现了两个活跃病例。此后，公共卫生官员宣布CBC的 新冠爆发已经结束，但CBC的假新闻大流行仍在继续。
+我当时听完以后
+En aquel momento cuando terminé de escuchar
 
-目前尚不清楚CBC工作场所的两起案件是否反映了真实的事件或CBC用来吓唬少数剩余观众和读者的医疗例子，因为据称艾伯塔省重症监护病房已不堪重负。
+我真的是坐在那儿
+Realmente, me senté allí
 
-CBC羞愧道歉之后，眼尖的推特用户注意到了国家电视台，标题的一篇文章“这是真实的。这很危险：ICU病房里的情况，”使用了躺在ICU病床上的一个非常不真实的塑料病人的图像和视频。
+我抽了3根雪茄, 为台湾人民
+Y fumé tres cigarros por los ciudadanos de Taiwán
 
-來源：[https://www.rebelnews.com/covid\_outbreak\_at\_toronto\_cbc\_office](https://www.rebelnews.com/covid_outbreak_at_toronto_cbc_office)
+嗓子都哑了
+Quedé afónico
 
-（文章仅代表作者个人观点）
+很恐怖
+Es terrible
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+然后我没看到习近平讲话之前, 我就知道
+Y antes que ví a Xi hablando ya sabía
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+习近平这次的讲话, 一定以辛亥革命(为主题)
+El tema que habló Xi esta vez, debe ser la Revolución del 1911 como tema principal
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+还找出所谓的多党派
+Y consiguió también el llamado multipartidista
 
-**关注我们**
+让汪洋的政协主席讲话
+Dejemos que hable el presidente de la CPPCC de Wang Yang
+后来我就了解
+Luego entendí
 
-Discord 账号
+因为习的身体真的不行了
+Porque la salud de Xi ya no está en buena condición
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+习的身体真的是不行了
+Realmente su salud no está muy bien
 
-Gettr 账号
+这对台湾几乎是个噩梦
+Esto casi es una pesadilla para Taiwán
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+他越是身体不行
+Cuanto más enfermo esté físicamente
+
+他越要打台湾
+Más quiere atacar a Taiwán
+
+他要完成所谓的现代第二个秦始皇的历史责任
+Él quiere cumplir con la responsabilidad histórica del llamado segunda generación de Qin Shi Huang en los tiempos actuales
+
+对台湾凶也
+Es un peligro para Taiwán
+
+凶也
+Muy peligroso
+
+第二部分, 除了习身体不好
+Segunda parte, a parte de que la salud física de Xi no está bien
+
+你看一看那天人民大会堂
+Mire El Gran Salón del Pueblo de aquel día
+
+所有在主席台上的人
+Toda la gente que estaba en el podio
+
+你见哪个是江派
+Viste quién es del partido Jiang
+
+除了韩正
+Excepto Han Zheng
+
+你见哪个是曾派
+Viste quién es del partido Zeng
+
+最后那句最狠的话
+La última frase más cruel
+
+习要对台湾的
+Xi quiere hacer con Taiwán
+
+台湾的一切问题在台独
+Todos los problemas de Taiwán radican en la independencia del país
+
+台独要必需遭受所谓的大审判
+La independencia de Taiwán necesita pasar por el gran juicio final
+
+这两句话已经就基本定义了
+Estas dos frases se definen básicamente
+
+以孙灭台
+Destruir a Taiwán mediante Sun
+
+用孙中山合法的这种理由
+Utilizar esta razón legal de Sun Zhongshan
+
+继承衣钵
+Heredar el manto
+
+谁在台湾呼应呢
+Quién será el que coordina en Taiwán
+
+那就是国民党
+Es el Partido Nacionalista Chino (KMT)
+
+打击对象的原因是谁呢
+¿ Quién fue la causa del ataque?
+
+台独
+La Independencia de Taiwán
+
+——————————————————
+
+**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1447754673880911877?s=24](https://twitter.com/se1y7cblljselva/status/1447754673880911877?s=24)
+
+日期：10/16/2021
+原视频标题：
+Cuanto más enfermo esté Xi físicamente, más querrá atacar a Taiwán y su excusa es por la Independencia de Taiwán
+原视频日期：10/12/2021
+任务编号：KC177（2495）
+视频时间段：0:00-1:50
+
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场–彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

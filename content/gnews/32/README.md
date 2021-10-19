@@ -2,31 +2,30 @@
 ---
 
 
-## 针对医院拒绝用伊维菌素治疗COVID-19，各地提起了诉讼
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602517/)
+## 脸书的元宇宙概念
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1602532/)
 
-【简评：】*伊维菌素作为抗寄生虫药物早在几十年前就已经被批准使用于人体，其发明者大村智先生及青蒿素的发明者屠呦呦女士一同获得了2015年的诺贝尔奖，在颁奖大会上，*[*诺贝尔奖委员会讲到：“伊维菌素对于改善数百万患有河盲症和淋巴丝虫病的人的健康和福祉的重要性是无法估量的，主要是在世界最贫穷的地区，它的治疗如此成功，以至于这些疾病即将被根除，这将是人类医学史上的一项重大壮举*](https://gnews.org/zh-hans/1600096/)*。”现在*[*主流媒体为了维护大型制药公司和医疗机构的利益而去撒谎，谎称伊维菌素是非人用驱虫剂*](https://gnews.org/zh-hans/1511179/)*，不过，在爆料革命、文贵先生、以及广大战友的大力宣传下，越来越多人认识到伊维菌素对治疗中共病毒的效果，并积极主动参与到伊维菌素的宣传中。*
+新闻来源：德国法兰克福报网络版
 
-据《公正新闻》2021年10月17日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-329.png)图片来源：法新社
-美国各地正在掀起一波诉讼浪潮，设法迫使医疗工作者提供伊维菌素作为治疗COVID-19患者的药物。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-自去年年底以来，人们一直在猜测伊维菌素是否有可能用于治疗SARS-Cov-2病毒。许多医疗官员强烈反对使用它，声称其对抗病毒的有效性尚未得到证实。
-
-据美联社报道，在全国各地提起的诉讼是由“一些试图迫使医院给他们感染了新冠病毒的亲人服用伊维菌素的人”提交的。
-
-许多批评者狡辩称，处方伊维菌素只是一种用于牲畜的药物。事实上，该药物可以以不同的形式让人和动物服用。
-
-原文连接：[https://justthenews.com/politics-policy/coronavirus/lawsuits-seek-allow-ivermectin-treatment-covid-19#article](https://justthenews.com/politics-policy/coronavirus/lawsuits-seek-allow-ivermectin-treatment-covid-19#article)
-
-（本文评论仅代表个人观点）
-
-翻译/评论：洛杉矶盘古农场 – 钢蛋儿
-
-校对/编辑：洛杉矶盘古农场 – 明子
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/brett-jordan-tWX_ho-328k-unsplash-1-scaled.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+资料来源：unplash
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+脸书（Facebook）希望为其新互联网的愿景创造1万个新的就业机会。不是没有原因的：我们已经在通往 “元宇宙 “的路上了。
+
+科幻小说常常为我们日常使用的技术的进一步发展提供基础。弗里茨-朗在1927年的经典电影《大都会》中设计的Videophony，现在可以在每个智能手机或电脑上使用。
+
+因此，当马克-扎克伯格说，”我期望人们将从把我们主要看作是一家社交媒体公司转变为把我们看作是一家元空间公司”，这并不那么牵强。因为这个想法也来自一部科幻作品，即美国作家尼尔-斯蒂芬森于1992年出版的小说《雪崩》。
+
+这本书是一个反乌托邦的不寻常事实。行动发生在不远的将来的洛杉矶，在世界经济危机和美国先前存在的国家结构崩溃的几年后。从这个荒凉的全景中，人们相继逃到 “元宇宙”（metaverse），一个虚拟环境中，他们通过数字身份进行互动。
+
+抛开乌托邦式的背景，扎克伯格对互联网未来的看法正是如此。他刚刚宣布在脸书要提供1万个新工作岗位。当然，这个“元宇宙”到底会是什么样子，还不完全清楚。但无论如何，这个愿景包括一个可以比以前更 “沉浸 “在互联网。例如，以虚拟现实（VR）的形式：脸书已经在这项技术上进行了大量投资，它允许数字内容通过数据眼镜充满人们的整个视野。
+
+[https://www.faz.net/aktuell/wirtschaft/digitec/was-hinter-facebooks-metaversum-steckt-17591166.html](https://www.faz.net/aktuell/wirtschaft/digitec/was-hinter-facebooks-metaversum-steckt-17591166.html)
+
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+
+责任编辑/发布： Shuizhuyu

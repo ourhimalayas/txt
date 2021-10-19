@@ -2,41 +2,37 @@
 ---
 
 
-## 文件显示大流行期间阿伯塔省 ICU 的容量下降
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1602898/)
+## 国家动物园对灵长类动物接种中共病毒疫苗
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1602919/)
 
-作者：Sheila Gunn Reid
+据《福克斯新闻》布雷克.杜马斯 （Breck Dumas）2021年10约16日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/10/apes_adobespark.png)猿在围栏内徘徊。2018年1月4日华盛顿DC国家动物园。（摄影/来源：安德鲁·利希滕斯坦/盖蒂图片社）
+国家动物园声称将会尽快为更多种类的动物接种疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Article-Image_ICU-beds-in-AB_Oct-18-e1634599686734.jpg)
+史密森尼国家动物园和保护生物研究所，本周为其园内几只灵长类动物接种了中共病毒疫苗，并声称这只是该机构为其所在地的动物接种中共病毒疫苗的开始。
 
-独家文件显示，与 2020 年 3 月宣布开始时相比，阿尔伯塔省卫生保健系统在新冠大流行一年后的 ICU 床位更少了。
+动物园在周五的新闻稿中宣布，工作人员在周三对十一只动物进行了第一轮的两剂注射。包括：七只猩猩、一只西部低地大猩猩、一只白耳猴和两只帝王狨猴。
 
-访问文件管理器提供给反叛新聞的政府文件显示，在前卫生部长泰勒·山德罗的领导下，重症监护病床数量减少了。
+硕腾（Zoetis）是总部位于密歇根州的兽医制药公司。该公司在发现中共国的一只狗在大流行早期感染了中共病毒后专门为动物开发了这款疫苗。
 
-2020 年 3 月大流行前，ICU 容量数字表明，全省共有 186 张 ICU 病床，每 100,000 名阿伯塔人有 4.2 张病床。
+硕腾在七月份发布的一份新闻稿中表示，其开发的这款针对中共病毒的注射疫苗已获得“美国农业部逐案授权”，可用于一系列动物园动物。并表示“宠物或牲畜目前不需要注射该疫苗。”
 
-2021 年，ICU 床位数量显示全省有 173 张床位，每 100,000 名艾伯塔人有 3.8 张床位。
+国家动物园还提供了在上个月中共病毒测试为“推定阳性”的狮子和老虎的最新状态。动物园称这些大型猫科动物“恢复良好“并且”行为、饮食和饮水正常。“
 
-2019 年 3 月的数据显示，全省有 207 张可用的 ICU 床位；2018 年的数字反映了相同的床位数量，再次为 207。
+动物园解释说“在接下来的几个月里，动物园将和位于弗吉尼亚州，皇家前线的史密森尼保护生物研究所，继续对选定的易感物种进行疫苗接种，”并补充到“狮子和老虎将不会在感染病毒后的90内接种疫苗。”
 
-同一份文件表明，在所谓的第二波新冠浪潮中，阿伯塔省能够在 2021 年 1 月将 ICU 容量增加到 291 张床位，而阿伯塔省同时有 130 名 ICU 患者。 在第三波中，到 2021 年 5 月 24 日，阿伯塔省的 ICU 容量达到了 299 张床位的峰值，而 161 名患者占用了这些 ICU 床位。
+国家动物园没有立即回应福克斯新闻关于疫苗接种的问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tg.jpg)华盛顿DC的史密森尼国家动物园中的老虎。（摄影/来源：卡伦·布莱尔/法新社）
+美国境内越来越多的动物园，正在为各个物种的动物接种硕腾研制的动物中共病毒疫苗。
 
-來源：[https://www.rebelnews.com/docs\_show\_alberta\_icu\_capacity\_declined\_during\_pandemic](https://www.rebelnews.com/docs_show_alberta_icu_capacity_declined_during_pandemic)
+据哥伦比亚广播公司新闻报道。丹佛动物园和奥克兰动物园，今年夏天已对园内部分动物进行了注射。丹佛动物园计划像国家动物园那样，为更多的物种进行中共病毒疫苗注射。
 
-（文章仅代表作者个人观点）
+《福克斯35》[报道](https://www.fox35orlando.com/news/zootampa-begins-vaccinating-animals-against-covid-19)，周四开始坦帕动物园也已开始对动物进行疫苗注射。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+“佛罗里达黑豹、臭鼬、水獭和灵长类动物处于接种名单前列，” 福克斯35报道。“坦帕动物园目前已收到足够十九类共九十三只动物接种的中共病毒疫苗。”
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+【本文仅代表作者个人观点，与Gnews 无关】
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+原文链接：[https://www.foxnews.com/us/national-zoo-vaccinates-primates-against-covid-19](https://www.foxnews.com/us/national-zoo-vaccinates-primates-against-covid-19)
 
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+翻译：Fila文新心 |校对：烟波浩淼 |编辑&发布：V

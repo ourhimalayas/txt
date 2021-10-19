@@ -2,49 +2,84 @@
 ---
 
 
-## 美国前国务卿科林-鲍威尔死于COVID并发症
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1602962/)
+## 中美之间必有一战，其根本不在台湾，在经济
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602990/)
 
-作者：纽约香草山福音部 – Lilian89
+![](https://assets.gnews.org/wp-content/uploads/2021/10/888-a71ie-wzywl.jpg)
+[https://gtv.org/video/id=616d6e80d2e2b8174876b079](https://gtv.org/video/id=616d6e80d2e2b8174876b079)
 
+**郭文贵**
+**Miles Guo**
 
+飞机来干啥呀，飞机来保护台湾呐
+What are your fighter jets coming here for? Were CCP’s fighter jets come here to protect Taiwan？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
+这飞机都是（对着）美帝国主义和日本去的
+Those fighter jets are all going against the US and Japan
 
+就差喊了，快来吧，快来吧，
+They’re (Taiwan) almost shouting to the mainland, come here, come here
 
+所以说现在打台湾这些动机和房地产有很大的关系
+So these motives to attack Taiwan now have a lot to do with CCP’S real estate
 
-10月18日上午，美国前国务卿和参谋长联席会议主席科林-鲍威尔将军因COVID-19并发症去世。
+跟共产党的经济很大关系，共产党内部政治有很大的关系
+CCP’s economy and CCP’s internal politic struggles
 
-![](https://image.cnbcfm.com/api/v1/image/106961860-16345640352021-10-18t132037z_1211972680_rc2dcq9gb487_rtrmadp_0_usa-powell.jpeg?v=1634564097&amp;w=929&amp;h=523)图片来源：路透社
+另外一个，现在看到国际形势，当然跟美国的国家现在整个的实力衰弱
+Another one, now that we see the international situation, of course it has something to do with the current weakening of the strength of the U.S.
 
-鲍威尔是牙买加移民的儿子，在里根政府时期成为美国第一位黑人国家安全顾问。此后，乔治-布什总统任命鲍威尔为参谋长联席会议最年轻的第一位黑人主席。作为主席，他在波斯湾战争期间监督了美国的沙漠风暴行动。他去世的消息传来后，美国的领导人和前同事都称赞他是一位领袖和英雄，前总统乔治-布什更是称赞他是一位“伟大的公务员”。
+内乱，政治斗争，助长了他们，这是为什么川普总统说谁都看到了我们的懦弱
+civil strife and political struggles have fueled them up, this is why President Trump said that everyone has seen our cowardice
 
-鲍威尔的家人在Facebook上写道：“我们失去了一位杰出的、充满爱心的丈夫、父亲、祖父和一个伟大的美国人。”据悉，虽然鲍威尔患有多发性骨髓瘤，但他还是完全接种了新冠疫苗。
+所以跟中共国他说未来可能只有一战了
+So just like what he said that there might be a war between China and the U.S. in the future
 
-而今，COVID疫苗给人类带来的次生灾害正逐渐在全球范围爆发。因此，任何强制他人打疫苗的行为，都等同于谋杀犯罪。
+他现在才明白，他在白宫时候他不明白，
+He just realizes now, he didn’t understand when he was in the White House
 
-（本文仅代表作者观点）
+我们每周的报告他认为跟中共国不可能有一战，要战就是第三次世界大战
+In our weekly report, he believes that there can be no war with the Chinese Com-munist Party, and that the battle will be the world war III
 
-参考阅读：
+现在他明白了，现在他明白必有一战
+Now he understands, now he understands that there must be a war
 
-[Colin Powell, trailblazing soldier and statesman who made case for Iraq invasion, dies of Covid at 84](https://www.cnbc.com/2021/10/18/colin-powell-former-secretary-of-state-who-made-case-for-iraq-invasion-dies-of-covid-complications-at-84.html)
+我告诉你，兄弟姐妹们，中美之间必有一战
+I tell you, brothers and sisters, there must be a war between China and the United States
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+我从来没说过，你查我过去直播，我没说过，我是第一次告诉你们
+I never said that before, you check my past live broadcast, I didn’t say it, this is the first time I told you
 
-***编辑/校对/发稿：Irene木木***
+我一直认为中美不能有一战，但是今天我可以告诉大家，
+I have always thought that China and the United States cannot have a war, but to-day I can tell everyone
 
-**更多资讯，更多关注**
+我认为中美之间必有一战，必有一战，不是因为台湾，也不是因为香港
+I think there must be a war between China and the United States, there must be a war, not because of Taiwan, nor because of Hong Kong
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+根本问题就是经济，因为共产党这个房地产经济，这海外的十几万亿美元
+The fundamental problem is the economy because the real estate economy of the Communist Party of China, the tens of trillions of dollars in overseas
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+这美国人你动它哈，你别动它奶酪，那就是它的钱
+No matter what you touch the American’s stuff, don’t dare touch their “cheese”, that’s their money
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+———————————————————
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1449243903303905284?s=24](https://twitter.com/se1y7cblljselva/status/1449243903303905284?s=24)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+Date:10/16/2021
+原视频标题:
+There must be a war between China and the United States, it is not for Taiwan at all, it’s for the economy.
+原视频日期：2021/10/13
+任务编号：2571
+视频时间段 : 0:00-1:40
 
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

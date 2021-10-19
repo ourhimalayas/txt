@@ -2,164 +2,51 @@
 ---
 
 
-## 美国文字承诺卖台3个条件，台湾凶多吉少
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602765/)
+## 中国测试具有核能力的高超音速导弹
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1602820/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/azyxo-p2t45.jpg)
-[https://gtv.org/video/id=616d7d7dd2e2b8174876b7bd](https://gtv.org/video/id=616d7d7dd2e2b8174876b7bd)
+作者：Ian Miles Cheong
 
-**郭文贵**
-**Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Army.png)
 
-跟美方的勾兑第一条
-La primera garantía de cooperación con la parte de EE. UU
+美国已获悉中国成功进行了首次高超音速导弹试验，令拜登政府成员震惊。中国共产党政府在今年夏末发射了一枚具有核能力的高超音速导弹，在瞄准目标之前环绕整个地球。
 
-再次晒美方在有文字承诺的情况下
-En caso de que EE. UU demuestre la promesa en escrito
+据英国《*金融时报》*报道，尽管命中距离数英里，但熟悉这次测试的人士表示，搭载高超音速滑翔飞行器的火箭在向目标巡航之前飞过低轨道空间。
 
-这是美方的人跟我说的
-Esto me lo dijo un americano
+该出版物报道说：“据三位了解情报的人士称，导弹偏离了目标大约24英里。” “但有两人表示，试验表明中国在高超音速武器方面取得了惊人的进步，而且比美国官员意识到的要先进得多。”
 
-我都不敢相信
-No lo puedo creer
+与《*金融时报*》交谈的五位人士之一声称“我们不知道他们是怎么做到的。”
 
-美方总统是（写）亲笔信的
-El presidente de EE. UU escribió una carta a mano
+报告补充说，美国、俄罗斯和中国正在展开一场研发高超音速武器的军备竞赛，包括用火箭发射到太空但以自身动力绕地球运行的滑翔飞行器。
 
-亲手交给秦刚的
-Se lo entregó a Qin Gang
+与此同时，中国政府否认火箭是具有核能力的高超音速导弹，而是声称发射是为了航天器。
 
-首先就3个保证
-Primero son 3 promesas
+这些高超音速武器可以以五倍于音速的速度飞行，但比弹道导弹慢。然而，与弹道导弹不同的是，它们不遵循固定的抛物线轨迹并且可以机动，这使得它们难以跟踪，更不用说被击落了。
 
-绝不改变中共的制度
-No cambiar el Sistema del PCCh en lo absoluto
+前国家情报局局长约翰拉特克利夫今年早些时候表示，一旦拜登政府了解中国军事进步的速度，他们将感到震惊，并指出“中国缩小了差距”，在这个先进的领域他无法继续透露。
 
-不改变中共制度
-No cambiar el Sistema del PCCh
+拉特克利夫在接受福克斯新闻采访时告诉主持人比尔·海默，拜登政府虽然正在觉醒，但淡化了中国以其技术进步构成的威胁。
 
-听懂啊 别说推翻了
-Entiendan, no digamos derrocar
+赫默：大约 18 个月前，我认为乔拜登作为爱荷华州的候选人，他说中国吃我们午餐的可能性不会发生。这是一种普通人的反应。好吧，本周早些时候，他变了。在椭圆形办公室，他在镜头前说，中国要吃我们的午餐。那么，他为什么要做出这样的一个论点？与习主席通电话后？
 
-就是绝不改变你的制度
-Esto es no cambiar en lo absoluto tu sistema
+拉特克利夫：“好吧，我喜欢说的是，当他在爱荷华州发表评论时，他并没有获得利益，你知道的当他成为总统候选人时他开始接受情报简报。就像我说的，华尔街日报专栏，正如我在结论中所说的，情报是清楚的，并且我们的反应也必须如此。而且，我不得不认为，他和他的顾问们对此表示惊讶，我不知道惊讶是不是正确的词，但是当你看到它，你看看中国关闭的速度有多快差距，以及他们正在做的事情，他们在哪里花钱，你不禁担心，你知道，中国有能力挑战我们，正如我所说，你知道，在某些地方，你懂的，我不想详细谈论这些，因为承认这一点对国家安全构成威胁，但坦率地说，中国在某些地方做得更好，而且在某些技术问题上比我们走得更远。这是以前从未有过的情况。
 
-第二 大家要记住
-Segundo, todos deben recordar
+來源：[https://www.rebelnews.com/china\_reportedly\_tests\_nuclear\_capable\_hypersonic\_missile\_in\_surprise\_to\_us](https://www.rebelnews.com/china_reportedly_tests_nuclear_capable_hypersonic_missile_in_surprise_to_us)
 
-现在要挂钩
-Ahorita se van a vincular
+（文章仅代表作者个人观点）
 
-从过去的脱钩
-Desde la desvinculación de antes
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-现在要挂钩 逐渐恢复
-Ahora se van a vincular, recuperar gradualmente
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
 
-大家看着
-Todos vean
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-第三 大家要记住
-Tercero, recuerden
+**关注我们**
 
-恢复中美之间的各层次
-Recuperar cada nivel entre China y Estados Unidos
+Discord 账号
 
-全面对话
-Diálogo completo
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-括弧 括弧
-Entre paréntesis
+Gettr 账号
 
-记住 这美方的信 括弧
-Recuerden, esta carta de Estados Unidos entre paréntesis
-
-中美军事高层对话
-Diálogo entre el militar chino-estadounidense de alto rango
-
-正常化
-Lo van a normalizar
-
-大家（如果有）懂的
-Si todos entienden
-
-台湾我相信那些名嘴
-Yo pienso que los presentadores famosos de Taiwán
-
-像什么『年代向钱看』
-Como el programa de Next TV
-
-还有那个什么节目
-Y los otros programas
-
-那些混饭吃的家伙瞎忽悠的
-Esa gente inventa para tener algo de comer
-
-他懂这里边什么意思
-Él entiende el significado que hay dentro
-
-在这个要打台湾的时候
-En este momento donde van a atacar a Taiwán
-
-不推翻体制
-No van a derrocar y cancelar el sistema
-
-经济挂钩
-Se van a enlazar económicamente
-
-军事全面恢复交流
-Van a recuperar completamente el diálogo militar
-
-正常交流
-Normalizar el diálogo
-
-没有呈现的说明什么
-Sin demostrar ninguna explicación
-
-不管你发生什么事情
-Sin importar lo que te suceda
-
-你打台湾什么的
-Si atacas a Taiwán o no
-
-咱经济 政治 军事 都不会停止
-Nuestra economía, política, fuerza militar no se detendrá
-
-这已经把台湾卖完了
-Ya esto terminó de vender a Taiwán
-
-我可以告诉大家郭文贵是第一个
-Yo les puedo decir a ustedes que Guo Wengui es el primero
-
-今天是台湾双十节
-Hoy es el Día Nacional de Taiwán
-
-2021年我告诉世界发生了什么事儿
-Dime que ha pasado en el mundo el 2021
-
-在这个信之后才有苏利文的
-Después de esta carta habrá de Sullivan
-
-杨洁篪的会谈
-Conversación de Yang Jiechi
-
-———————————————————
-
-**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1447755121153040385?s=24](https://twitter.com/se1y7cblljselva/status/1447755121153040385?s=24)
-
-日期：10/16/2021
-Estados Unidos garantizó 3 condiciones para vender a Taiwán, este habrá más peligro que suerte
-原视频日期：10/12/2021
-任务编号：KC176（2494）
-视频时间段：0:00-2:14
-
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
