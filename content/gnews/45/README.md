@@ -2,181 +2,42 @@
 ---
 
 
-## 郭先生10年前的布局，未来新科技无限, G系列前景无限
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1603961/)
+## 抄袭没有错，看你抄谁
+` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1604064/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2529.png)
-[https://gtv.org/video/id=616e7207d2e2b8174876fbc5](https://gtv.org/video/id=616e7207d2e2b8174876fbc5)
+By：银河勇气星｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/10/截屏2021-10-17-下午7.33.15.png)图片来源：网路
+最近台湾的艺人黄明志和陈芳语，男女合唱的一首曲目《玻璃心》在YouTube trending上拿到第一名。讲老实话，并不认识这俩人，如何认识的？对的，是国内的社交媒体把黄明志block了，并把这个作为一个新闻，不仅在国内传，还在国外传。让不认识他的人，就这样认识了他。
 
-这个大家要记住
-Deben recordar esto
+MV我去看了，哈哈，有那么几句擦边球，写得有所指，尤其使用了爆料革命的词汇“撒币”，让很多战友也有亲切感。但是必须指出的是，歌词内容非常散漫，就类似台湾小清新特有的那种孤岛感，你说他们自恋也好，说是有自己的某种文化也好，和本地台湾人温婉软糯的台湾腔着实很匹配。这里没有任何歧视的意思，反而，我还很喜欢台湾腔。一个人的语音和性格有关系，但是在同一个区域，样本数量庞大，就无法类比了。举个例子，共产党里有很多很多好人。
 
-很多人在问七哥
-Muchas personas me han preguntado
+台湾的很多歌手，在歌曲的黄金年代，都是能够独当一面的，那个时候两岸关系也因此非常融洽，歌手的作品都在大陆本土有发行。现在KTV里唱歌，很多都是台湾歌手的歌，包括和18岁以下的孩子唱歌都这样，总有那么一首经典是台湾歌手的歌。尽管后面发现了很多歌都是抄袭的美国音乐，但是依然无法撼动台湾音乐的地位，金曲奖就是一个非常好的例子，几乎每次颁奖都能听到让人有些触动的歌曲。
 
-建一个什么, 去问班农去
-Construir qué cosa, ve y pregúntale a Bannon
+这种台湾歌手占据一大半歌坛的时光，从2005年以后发生了些变化。2005年内地的湖南卫视，照搬美国偶像这档节目，同样也是抄袭美国，开播了超级女声这样的娱乐节目。从而在音乐上挑选出来更多的平民女孩，男孩来打造成为全民偶像。一直到现在，这种模式经久不衰，现在叫练习生。这种节目对歌坛的贡献其实很小，但无法辩驳的是，确实有很多音乐大咖帮助做幕后的，也有些歌手，真得会唱，有魅力。对于普及大众的音乐素养，有很大的帮助。最大的不同，就是这种全民参与的模式，我想上点岁数的人，在2005年夏天，最常经历的事情就是找家长借手机，发短信投票，那时候发短信息其实很贵，对于年轻人来说。家长有时候还要阻挠，不好好学习天天追星。可对于青春期的孩子来说，那个意义很大，从来没有参与过投票，觉得自己投上一票，我的偶像就能当歌星，这也太神奇了。而这种模式，在大洋彼岸的美利坚，是每隔四年就会来这么一次的活动，叫做总统大选。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-95.jpg)图片来源：网路
+你猜怎么着，后来听了些小道消息，说那个冠军是内定的。这件事情的触动很大，你会觉得自己投的票怎么就给压下去了，原来是有内定的。那这个内定的数字到底是谁操控的。在后面几年依然在关注类似的节目，但是再也没有支持过一条短信。那时候年纪小，还从未体会过，在社会大型事件中居然可以造假，可以如此黑暗。
 
-班农问我, Miles
-Bannon me pregunta, Miles
+2020年选总统，把拜登给内定了。你们老百姓投的票都可以作废，造假选票，改数据，一台多米尼就可以搞定。忽然想起，已经有过这样的经历，在2005年。可很多人说那是小道消息，不要过分相信。拜登选上去了，很多人说他就是个机选总统，真正的总统应该是川普。依然有人说不要相信小道消息，要相信政府，拜登选上了就是拜登做总统啊。
 
-(他们)都在问我, 你到底
-Ellos me han estado preguntando
+台湾歌手抄美国歌手，大陆本土节目也抄美国节目，几乎都是以抄袭美国为主。从2020年开始，美国开始抄共产党了，选举拜登这样的社会大型事件，抄袭了共产党造假。在对待台湾问题上，美国拜登政府也抄袭了共产党的超限战，共产党超限战的本质就是温水煮青蛙，拜登采取的就是把台湾卖了，并设法扛住恒大这颗雷，赢得一些股市上的虚假喘息，好让美国国内老百姓个个做青蛙，煮在温水里等死。
 
-要建一个什么啊
-Qué es lo que vas a construir
+黄明志被block，也好像是似曾相识。这首歌很受反共的欢迎，他抄袭的是反共的王丹魏京生路大脑骗们，十里山路不换肩，玻璃心，还有熊猫大脑袋，只骂习，不骂共产党，不骂卖台贼。而共产党真正害怕的人，怎么可能让你在YouTube上，还让你trending第一名？台湾很多政治类的节目，说起习近平把他骂得狗血喷头，但是说起江泽民来，都是一副非常尊敬的样子，那位长者，长者。江泽民要是来统治你，就会好了吗？换江家的人上来他们只会更坏。
 
-我说不告诉你
-Le dije que no te voy a decir
+陈芳语最近还回应了被block，她说自己还有FB，还有IG。众所周知FB和IG都是扎特勒的，之前还被断过。在这种背景下，她居然不知道Gettr。抄袭也有抄袭的道理，日本抄美国，印度抄了美国的很多药，台湾歌坛黄金时期的抄袭，湖南卫视抄美国偶像，都对平民意识的觉醒有一些提示。黄明志如果抄袭的是爆料革命的灭共姿势，就不会说什么十里山路不换肩。
 
-不会告诉任何人
-No se dirá a nadie
-
-你只有在6个月以后, 你才知道七哥要建的是什么
-Solamente después de seis meses sabrás qué lo es que construiré
-
-你才知道新中国联邦是什么
-Sabrás qué es el Nuevo Estado Federal de China
-
-就像喜币
-Así como la moneda de Himalaya
-
-昨天那个投资者说
-Ayer el inversor dijo
-
-Miles
-Miles
-我第一次跟你因为喜币吵架
-Primera vez peleé contigo por la moneda de Himilaya
-
-到最后我哀情你, 到现在我成为股东
-Al final te lloré, y ahora soy accionista
-
-现在我想知道喜币到底会到什么(程度)
-Ahora quiero saber qué tanto puede llegar la moneda de Himalaya
-
-我不会告诉你
-No te lo diré
-
-当你们了解七哥这十几年前的布局
-Cuando ustedes entiendan el plan que he estado realizando por más de diez años
-
-你看看未来的干细胞, 星空Wifi
-Mira las células madre del futuro, el Starry Internet
-
-你看看整个世界金融系统, 再看医疗系统
-Mire el sistema financiero mundial y luego miras al sistema médico
-
-还有一个大家要记住的, 高科技
-Y otra cosa que deben recordar, la alta tecnología
-
-所有的新科技
-Todas las nuevas tecnologías
-
-现在说新科技, 我要给你们爆两句
-Ahora que estoy hablando de la nueva tecnología, debo reverlarles un poco
-
-今天你们得晕
-Hoy todos ustedes deben estar mareados por eso
-
-都得晕
-Deben estar mareados
-
-新的科技对通讯的提升
-La nueva tecnología mejora la comunicación
-
-对医疗的提升
-Mejora del tratamiento médico
-
-对交通方式的提升
-En la forma de transporte
-
-兄弟姊妹们
-Hermanos y hermanas
-
-我现在跟你说完
-Ahora que termine de decirlo
-
-你一定把我订为神经病
-Seguramente dirás que estoy loco
-
-因为七哥投资了, 七哥知道意味什么
-Porque yo invertí, así que sé lo que significa esto
-
-就像我说那个生物芯片一样
-Como dije sobre el biochip
-
-生物芯片就这么大一块
-El biochip es así de grande
-
-能把全地球的信息装进去
-Puede ingresar todas las informaciones del mundo
-
-你很快会看到手机、电脑、通信、医疗、一点儿不夸张
-Pronto verás en los teléfonos móviles, computadoras, medios de comunicación, tratamiento médico, no estoy exagerando
-
-人类未来有钱有条件的活个130岁、150岁
-El futuro de la humanidad tendrá condiciones para vivir hasta130 años, 150 años
-
-跟玩兒似的, 你在活着之前
-Así como jugando, antes de estar vivo
-
-基本没有疾病
-Básicamente, no hay enfermedad
-
-基本不可能有疾病来骚扰你
-No hay enfermedades que te molestarán
-
-基本上不可能
-Básicamente no habrá
-
-在非洲草原上看到一个能老死的狮王的话
-Si ves a un rey león que muere por estar viejo en las praderas de África
-
-那一定是有原因的
-Eso debe ser por alguna razón
-
-那是有原因的
-Por algún motivo
-
-咱慢慢来
-Vamos poco a poco
-
-新中国联邦未来将拥有世界上最高的各种生物、生命
-En el futuro, el Nuevo Estado Federal de China tendrá la mayor variedad de criaturas y vidas del mundo
-
-太空、交通、能源、科技
-En el espacio, transporte, energía, tecnología
-
-一定是咱么的投资者
-Seguramente son de nuestros inversores
-
-我想告诉大家, 再说一遍, 所有老椅子投资者, G-club
-Les quiero decir de nuevo, todas los inversores de sillas antiguas, G-club
-都是5%的盖特, 5%的喜联储, 10%的G-club
-Tienen el 5% de GETRR, 5% del banco central de Himalaya, 10% de G-club
-
-还有一个大家看到的, 10%新的金融机构, 还会更多
-Y otro que ustedes vieron, el 10% de instituciones financieras y más
-
-你们会看到一系列的公布
-Ustedes verán una serie de anuncio
+话又说回来，每个人都有每个人的长处，你无法让谁喜欢谁，不喜欢谁。每个人能够做到的事情也很有限。黄明志能唱这样的歌，给他一个赞，至于是不是被共产党利用的，不好说。别说黄明志了，就连战友中，七哥说过，最后能留下5%就不错了。这条路很艰辛，但路上太多精彩，一个也不想错过。哈哈。
 
 * * *
 
-日期: 10/18/2021
-原视频标题：郭先生10年前的布局，未来新科技无限, G系列前景无限
-La planificación del Señor Guo desde hace diez años; la tecnología nueva del futuro es infinita y las perspectivas son ilimitadas para la serie G
-原视频日期: 10/12/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1447865670356516874?s=24](https://twitter.com/se1y7cblljselva/status/1447865670356516874?s=24)
-任务编号：KC181（2529）
-视频时间段：0:00-2:18
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场-小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+（文章内容仅代表作者观点）
+
+
+
+作者：骄子
+审核：兵嫂、天雷滚滚
+发布：骄子
+
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/欢迎战友回家-1.jpeg)

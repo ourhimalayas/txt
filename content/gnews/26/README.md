@@ -2,36 +2,28 @@
 ---
 
 
-## 依旧以假治国, 受灾减产变成“大丰收”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1604203/)
+## 有声|达美航空首席执行官将不执行强制疫苗政策
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1604246/)
 
-作者：修文
+配音：香草山香港部-文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+每日邮报10月17日消息，在西南航空公司因强制疫苗接种导致内部危机，在10月8日至12日期间因罢工被迫取消了2500多个航班之际，达美航空首席执行官埃德-巴斯蒂安周四，在接受福克斯商业频道的采访时表示，该公司将不会执行强制疫苗接种政策。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+巴斯蒂安称疫苗强制接种是 “分裂性的”，在没有强制规定的情况下，该公司已经达到了90%的高接种率。达美航空将为那些希望不接种疫苗的人提供宗教和医疗原因的豁免。他说，在尊重人们的决定的同时与他们合作，要比威胁解雇他们有效得多。 拜登的行政命令要求拥有100名或更多员工的公司在12月8日前强制接种疫苗，并从员工那里获得全面接种的证明，但允许以至少每周一次的PCR检测代替疫苗接种。
 
+隶属于劳工部的职业安全与健康管理局（OSHA）受命执行该命令，但尚未对所有私营公司实施该要求。这意味着，任何已经开始实施强制性疫苗的公司都为时过早，因为劳工部的指导意见还没有发布出来。
 
+达美航空是美国唯一 一家在企业层面，公开斥责总统实施的强制疫苗政策的航空公司。当疫苗灾难的真相最终呈现的时候，所有强迫人们接种新冠毒疫苗的人都会被审判，请老百姓坚决不要打毒针，也希望更多企业和机构拒绝配合强制政策。
 
-自由时报消息，中共河南省副省長武国定曾在9月底向媒体表示，由于连遭暴雨和水灾，导致各行各业损失惨重。特别是农业，河南本来是墙内产粮大省，但全境农田、农作物受灾面积达1515万亩，今年秋粮肯定会减产。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1019-AM-（1-3）.005.jpeg)
-但是不到一个月，官方口径就转向改为宣传河南今年秋粮“大丰收”。其中央视财经本月13日引述农业部数据称，中国秋粮已收获完成超过一半，”降雨”没有改变秋粮丰收得局势。当地农民普遍表达质疑和愤怒， 称政府不提受灾减产，“秋收还没有结束，专家已经计算出增产二百亿吨，简直是在做中国梦”。几十年过去，中共依然是这种大跃进式套路以假治国，用“大丰收”谎言，掩盖水灾造成的粮食减产，只求维稳。
+文字版原文：[达美航空首席执行官将不执行强制疫苗政策](https://gnews.org/zh-hans/1601589/)
 
-虽然官媒强调粮食丰收，但根据中共海关的数据显示，今年1到4月粮食进口量比去年同期增加高达57.8% ! 天灾可以躲过，人祸却无法避免，数据表明，墙内大范围粮荒已经出现势头 。
-(本文仅代表作者观点)
-
-参考链接：[秋收未結束卻估計大豐收 中國不斷吹噓「糧食豐收」遭打臉](https://news.ltn.com.tw/news/world/breakingnews/3708289)
-
-
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
-
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
