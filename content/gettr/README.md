@@ -17,6 +17,18 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/19/2021 1:00 AM (UTC)`
+
+【英语/English】 CCP Virus Covid-19 Treatment & Prophylaxis Protocol & Covid-19 Vaccinated People Detox Protocol<br/><br/>https://gnews.org/1581246/<br/><br/>【韩语/한국어】 코로나19 예방과 치료방안 및 백신 해독 방안<br/><br/>https://gnews.org/1601281/<br/><br/>【葡萄牙语/Português】 Protocolo de Tratamento e Profilaxia do Vírus PCCh Covid-19 e Protocolo de Desintoxicação de Pessoas Vacinadas da Covid-19<br/><br/>https://gnews.org/1601348/<br/><br/>【法语/Français】 PCC Virus Covid-19 Protocole de traitement et de prophylaxie & Protocole de désintoxication pour les personnes vaccinées contre le Covid-19<br/><br/>https://gnews.org/1601192/<br/><br/>【意大利语/Italian】 Virus PCC Covid-19 Trattamento & Protocollo di profilassi & Protocollo di disintossicazione per i vaccinati Covid-19<br/>https://gnews.org/1601214/
+
+---
+
+`@miles 10/19/2021 12:56 AM (UTC)`
+
+【西班牙语/Español】 Virus del PCC Covid-19 Protocolo de Tratamiento y Profilaxis y Personas vacunadas con Covid-19 Protocolo de desintoxicación<br/><br/>https://gnews.org/1601170/<br/><br/>【俄语/русский】 Вирус КПК Covid-19 Программа лечения и профилактики коронавируса и Программа детоксикации<br/><br/>https://gnews.org/1601349/<br/><br/>【日语/日本語】 新型コロナウイルス (CCPウイルス) 予防・治療プロトコル &ワクチン接種者デトックス(解毒)プロトコル<br/><br/>https://gnews.org/1601255/<br/><br/>【荷兰语/Nederlands】 CCP-Virus Covid-19 Behandeling & Profylaxe Protocol & Covid-19 Gevaccineerde Mensen Detox Protocol<br/><br/>https://gnews.org/1601282/<br/><br/>【德语/Deutsch】 KPCh-Virus Covid-19 Behandlung & Prophylaxe & Entgiftungsbehandlung für gegen Covid-19 geimpfte Menschen<br/><br/>https://gnews.org/1601144/
+
+---
+
 `@miles 10/18/2021 10:56 PM (UTC)`
 
 10/18/2021 Miles Guo’s GETTR: It’s karma! Both Pan Shiyi and Zhang Xin, who pushed to repatriate me, are now wanted by the CCP! When taking the artemisinin-piperaquine tablets and artemisinin, please consult the doctors first and be very cautious! We will have a key person provide more information on taking artemisinin<br/><br/>10/18/2021 文贵盖特：当年推动遣返文贵的潘石屹和张欣遭到报应，二人均被中共通缉；在服用青蒿素哌喹片和青蒿素时，请大家遵从医嘱，务必小心！我们将联系重要人士提供更多关于服用青蒿素的信息<br/>
@@ -283,20 +295,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 10/13/2021 Miles Guo: The motives for Xi to invade Taiwan derive from: 1) Xi wants to be the modern “Emperor Qin Shihuang”; 2) The internal political struggles in the CCP; 3) To cover up the economic disaster brought by the collapse of real estate and to bring down the world's economy; 4) Xi is only informed of good news instead of bad news, leading to his complacency; 5) The weakening of the US<br/><br/>10/13/2021 文贵直播：习想打台湾的动机来自：1. 想做当代秦始皇；2. 党内政治斗争；3. 掩盖房地产崩溃带来的经济灾难，并拖垮世界经济；4.  手下的人报喜不报忧导致其自以为是; 5. 美国的衰弱<br/>
 ![img](https://media.gettr.com/group17/getter/2021/10/14/06/24/63fa1862-0f74-e4de-17d3-a15056f4f7a5/out.jpg)
-
----
-
-`@miles 10/14/2021 6:17 AM (UTC)`
-
-10/13/2021 Miles Guo: The Whistleblowers’ Movement will conduct a comprehensive disclosure of the judiciary system in the West, and this will be the fundamental condition for changing the West and can also protect our overseas Chinese. The threats caused by the CCP’s real estate is part of its economic unrestricted warfare and will become one of the most key motives for the CCP to invade Taiwan. No one can stop the collapse of the CCP’s real estate and financial sector！<br/><br/>10/13/2021 文贵直播：爆料革命将对西方的公检法大起底，这将是改变西方的根本基础并且能保护海外华人；中共房地产带来的威胁是其经济超限战的一种手段，且将成为中共攻台的最大动机之一；无人能阻止中共房地产和金融界的崩溃！<br/>
-![img](https://media.gettr.com/group44/getter/2021/10/14/06/17/6f4c61b7-6e02-8153-28d5-abd841ede519/out.jpg)
-
----
-
-`@miles 10/14/2021 2:05 AM (UTC)`
-
-10月13号：这是真的么？但我相信真正的较量的背后老板：还是江志成！【七哥您好! 这是香港阿里巴巴的一个月走势图。大概从马云去香港溜达开始，从最低的130元十天左右拉升了30%。<br/><br/>通过这么一出资本戏，似乎是传递一个信号，就是习就是个纸老虎，配合胡舒立的猪头，还有吃螃蟹。营造出一种：你搞不死老子，我胡汉三又回来啦，市场还是认我马云的还乡团气氛。】
-![img](https://media.gettr.com/group22/getter/2021/10/14/02/93c9c0a1-ede7-ba04-3d44-55b50724e1f3/5a4344014ad55cb816bfea51d9b0533f.jpg)
 
 ---
 
