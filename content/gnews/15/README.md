@@ -2,57 +2,35 @@
 ---
 
 
-## 国会山司法要害部门一半都是律师，都被共产党控制了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602947/)
+## 脸书迫于压力未继续禁止澳洲联合党页面
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1603046/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/277-aw0zs-cgvx6.jpg)
-[https://gtv.org/video/id=616d8acbd2e2b8174876bdfd](https://gtv.org/video/id=616d8acbd2e2b8174876bdfd)
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ab8746fbe28176bf785c7428945b35df.jpg)图片来源：Herald Sun
+**整理报道：**翼族
 
-**郭文贵**
-**Miles Guo**
+今年早些时候，反对强制接种COVID-19疫苗的澳大利亚国会议员克雷格·凯利（Craig Kelly)因宣传羟氯喹和伊维菌素以及质疑口罩有效性而被脸书（Facebook）暂停数周，随后Facebook在4月份将其脸书页面永久关闭。
 
-美国现在这个国家，咱们今天为啥从头要谈法治
-now the United States, why are we talking about the rule of law from the begin-ning?
+但是迫于来自各方的政治压力，Facebook未继续封锁凯利议员领导的澳大利亚联合党（UAP）的页面。
 
-刚才Rachel做得非常好，我希望继续再深挖下去
-Rachel did a very good job just now, I hope you continue to dig deeper
+上个月，工党的蒂姆·沃茨(Tim Watts)要求社交媒体巨头Facebook解释，为何凯利议员领导的UAP的政治广告仍然继续在Facebook平台上广泛传播。沃茨是现任澳大利亚网络安全助理部长。
 
-美国的国会山一半都是律师，美国的司法部门要害部门一半的人都是律师
-Half of Capitol Hill in the United States are lawyers, and half of the people in the key departments of the US judicial department are lawyers
+瓦茨（Watts）9月份向Facebook投诉，UAP已在Facebook和谷歌上发起了一项新活动，一个月内花费广告费用超过50万澳元。瓦茨认为这种行为相当于“逃避执法”。
 
-都是被共产党控制了，想控制谁就控制谁
-They are all controlled by the Communist Party, they control whoever they want to control
+Facebook澳大利亚和新西兰政策主管米娅·戈尔里克（Mia Garlick）回应称，UAP并未违反其社区标准，尽管广告中载有凯利议员的重要内容，Facebook也“删除了似乎是为了逃避执法而创建的其它一些帐户”，但并没有扩展到UAP的账户，因为该页面“目前没有”违反社区标准。
 
-而且很脆弱，西方的民主法治，当你有信仰的时候，它是极为强大的
-and it’s very fragile, the democracy and rule of law in the West is extremely pow-erful when you have faith
+凯利议员周一告诉澳大利亚《卫报》，他即将对Facebook提起诽谤和违约的法律诉讼。凯利称，Facebook说他因传播错误信息而被禁止是对他的诽谤。
 
-当你没有信仰的时候，它很脆弱
-it is so fragile when you have no faith
+对于瓦茨向Facebook的投诉，凯利说：“澳大利亚议会的另一名成员试图宣布我为‘非正常人类’，这令人非常失望。瓦茨先生的行为是对言论自由的侮辱”。
 
-欧洲就更不用提了，那些老不要脸的就不用提了
-Hard to even mention Europe, those old shameless politicians
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-就没见过有骨头的人，
-I have never seen anyone with backbone
+**参考链接：**[Facebook says Craig Kelly’s content on United Australia party page OK after banning MP](https://www.theguardian.com/australia-news/2021/oct/19/facebook-says-craig-kellys-content-on-united-australia-party-page-ok-after-banning-mp?utm_source=newsshowcase&amp;utm_medium=gnews&amp;utm_campaign=CDAQlYixxM6EgpgYGPnOnaX4hbTPlgEqEAgAKgcICjDU66ILMJf2ugM&amp;utm_content=rundown)
 
-———————————————————
+*编辑/发布：翼族*
 
-**原视频链接**:[https://twitter.com/se1y7cblljselva/status/1449362247776567297?s=24](https://twitter.com/se1y7cblljselva/status/1449362247776567297?s=24)
-
-Date:10/17/2021
-原视频标题:
-Half of the crucial judicial departments on Capitol Hill are lawyers and they are all controlled by the Communist Party
-原视频日期：2021/10/13
-任务编号：KC178（2569）
-视频时间段 : 0:00-0:45
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

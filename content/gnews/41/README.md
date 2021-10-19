@@ -2,27 +2,17 @@
 ---
 
 
-## 中共一旦武攻台湾，美军三分钟铲平其军事基地
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1602116/)
+## 中共外交部就美加军舰通过台湾海峡措辞强烈
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1602482/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
+撰稿：西枫westca
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-17.png)
-文章仅代表作者本人观点，与Gnews无关
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/10/a3f1416988cdd730f3d6a1a13d8c4cceu5.jpg)图片来源：环球网
+据环球网10月18日报道，外交部发言人赵立坚对于日前美国“杜威”号导弹驱除舰和加拿大“温尼伯”号护卫舰通过台湾海峡表示：“中国捍卫国家主权和领土完整的决心坚定不移，中国军队时刻保持高度戒备，坚决反制一切威胁挑衅。美方应改弦更张、纠正错误。加方应从自身利益和中加关系大局出发，不要为他人火中取栗、甘当帮凶。”
 
-视频参看：2021.10.18早GTV新闻访谈
+中共国东部战区二日前也就美加两国军舰过航台湾海峡发布谈话称，美加勾连挑衅、搅局滋事、性质恶劣，严重危害台海和平稳定。并称，台湾是中国领土的一部分，战区部队时刻保持高度戒备，坚决反制一切威胁挑衅。
 
-[https://gtv.org/broadcast/watch/616d685d304e992109b7345d](https://gtv.org/broadcast/watch/616d685d304e992109b7345d)
+台湾海峡本是公海，任何舰只都有权合法通过。反之中共国在10月初的几天内，派遣近150架战机飞入台湾防空识别区。是谁意在挑起纷争，一目了然。台湾领土属于谁，是由台湾人民决定的，而不是由中共独裁控制的。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新闻来源：**[美加军舰过航台湾海峡，赵立坚回应：中国这个决心坚定不移！ (huanqiu.com)](https://world.huanqiu.com/article/45Dlv0PQQdt)

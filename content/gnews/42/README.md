@@ -2,35 +2,29 @@
 ---
 
 
-## 中共一旦武攻台湾，美军3分钟铲平其军事基地
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1602088/)
+## 五角大楼前软件主管说，美国须付出行动打赢人工智能之战
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602448/)
 
-作者：雪梨
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月17日，郭文贵先生震撼爆料，中共一旦打响武力攻台的第一枪，美国和日本明确表示迎战，并在3分钟内铲平中共国内外，和太空的军事基地。
+【简评：】*西方情报部门评估，世界第二大经济体中共国将在未来十年内在众多新技术领域占主导地位，尤其是在人工智能、合成生物学和遗传领域。五角大楼前首席软件主管夏兰先生对『金融时报』称：“15或 25年以后，我们将没有任何机会战胜中国。在我看来，现在已经是既成事实，都结束了。”对于上述观点，爆料革命战友，我们新中国联邦人只会笑而不语，因为我们知道，中共马上就要完球蛋了。建议西方情报部门和这位前主管好好看看GTV、GETTR、GNEWS，尤其是2021年10月17日的文贵先生大直播。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-16.jpeg)
+据《大纪元时报》2021年10月16日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/555.jpg)图片来源：大纪元时报
+“我们正在输掉这场战斗。”最近辞去美国空军首席软件主管一职的尼古拉斯·夏兰(Nicolas Chaillan)表示，美国正在输掉与共产主义中国的人工智能竞赛。
 
-尽管西方普遍认为习近平武攻台湾的机率极小，但郭先生了解中共和习近平，判断中共主动出击的概率超过95%。中国房地产行业崩溃，将引发国内和世界经济大震荡。二十大前，只能攻打台湾，转移国民注意力，通过实现所谓的“大一统”，打击政治对手，巩固自己的政治势力，稳定国内局势。而根据郭先生的情报，美国为保国内的经济和政治稳定，表现软弱，长期采用绥靖政策，助长中共和习近平攻陷台湾的嚣张气焰。
+美国公司在技术进步方面仍然领先，但他们不愿与国防部分享他们的技术。“如果我们停止对信息过度分类……他们可能很快就会看到(共产主义中国的）威胁将成为一个真正的问题，甚至会影响他们的日常生活。” 夏兰说。
 
-美军以闪电战彰显军事实力，更加表明已全面掌握中共内部的军事情报和动态。中共军队领导深谙体制的邪恶，必要时刻将做出正确选择。
+夏兰说，如果美国现在不开始迎头赶上，那么由于人工智能发展的加速性质，我们将失去战胜中共国的机会。
 
-台湾处于第一岛链的核心要地。一旦中共攻台得逞，亚太阵线和第二岛链恐将拱手让给中共，直接威胁到夏威夷甚至美国本土的安全。如郭先生所说，面对中共鲁莽对台开战，为保第一岛链的安全和多重利益，美国和日本必须迎战，在不伤及平民的情况下，直捣中共巢穴。
+原文连接：[https://www.theepochtimes.com/nicolas-chaillan-former-pentagon-software-chief-on-what-the-us-must-do-to-win-china-ai-battle-before-point-of-no-return\_4052569.html](https://www.theepochtimes.com/nicolas-chaillan-former-pentagon-software-chief-on-what-the-us-must-do-to-win-china-ai-battle-before-point-of-no-return_4052569.html)
 
-(本文仅代表作者观点)
+（本文评论仅代表个人观点）
 
-参考链接：[2021年10月17日 文贵大直播：青蒿素的神奇功效；爆料孙力军，傅政华和江志诚在新加坡被抓的细节；中共的经济政治危机导致对台开战，将引发美国，日本对中共进行极限战争；经过疫苗灾难，灭共之后，人类会走向更好的未来，美国将在绿色能源，生物科技，太空时代领先世界，中美是人类的未来](https://gtv.org/video/id=616c1823304e992109b65281)
+翻译/评论：洛杉矶盘古农场 – 钢蛋儿
 
-新闻访谈终审：暗黑
+校对/编辑：洛杉矶盘古农场 – 明子
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-校对/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

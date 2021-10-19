@@ -2,21 +2,57 @@
 ---
 
 
-## 美联邦法官依法临时叫停强制接种疫苗政策
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1602846/)
+## 国会山司法要害部门一半都是律师，都被共产党控制了
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602947/)
 
-采编：苦尽甜来 (文來） 撰稿：文所未闻 校对，编辑，发稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2021/10/277-aw0zs-cgvx6.jpg)
+[https://gtv.org/video/id=616d8acbd2e2b8174876bdfd](https://gtv.org/video/id=616d8acbd2e2b8174876bdfd)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/s-edited.png)图片来源：thedcpatriot
-图为纽约州联邦法官：赫德
+**郭文贵**
+**Miles Guo**
 
+美国现在这个国家，咱们今天为啥从头要谈法治
+now the United States, why are we talking about the rule of law from the begin-ning?
 
-据华盛顿媒体《爱国者》10月17日报道，纽约州联邦法官赫德先生暂停了该州针对医护人员的新冠病毒疫苗强制接种规定，并支持17名医护人员就该非法规定提出诉讼。据悉，由于拒绝接种该疫苗，该州将有约75,000医护人员面临失业。
+刚才Rachel做得非常好，我希望继续再深挖下去
+Rachel did a very good job just now, I hope you continue to dig deeper
 
-该联邦法官表示，以上决定是基于美国宪法而做出的。并强调，只有彻底执行宪法及联邦反歧视法，广大民众的利益才能有所保障。
+美国的国会山一半都是律师，美国的司法部门要害部门一半的人都是律师
+Half of Capitol Hill in the United States are lawyers, and half of the people in the key departments of the US judicial department are lawyers
 
-与此同时，纽约州长凯西-霍楚尔则试图继续推行该强制接种政策。而纽约传奇市长鲁迪-朱利安尼的儿子安德鲁-朱利安尼，目前是该州州长候选人之一，他将以“拒绝疫苗护照和反对强制疫苗接种”作为其竞选的核心内容，并为此表示说：“政府即没有权利，也不应该参与到该政策的决定中来。”
+都是被共产党控制了，想控制谁就控制谁
+They are all controlled by the Communist Party, they control whoever they want to control
 
-（以上内容仅代表原文信息和作者个人观点）
+而且很脆弱，西方的民主法治，当你有信仰的时候，它是极为强大的
+and it’s very fragile, the democracy and rule of law in the West is extremely pow-erful when you have faith
 
-[原文链接：](https://thedcpatriot.com/judge-temporarily-stops-new-yorks-vaccine-mandate-for-healthcare-workers-citing-us-constitution/)
+当你没有信仰的时候，它很脆弱
+it is so fragile when you have no faith
+
+欧洲就更不用提了，那些老不要脸的就不用提了
+Hard to even mention Europe, those old shameless politicians
+
+就没见过有骨头的人，
+I have never seen anyone with backbone
+
+———————————————————
+
+**原视频链接**:[https://twitter.com/se1y7cblljselva/status/1449362247776567297?s=24](https://twitter.com/se1y7cblljselva/status/1449362247776567297?s=24)
+
+Date:10/17/2021
+原视频标题:
+Half of the crucial judicial departments on Capitol Hill are lawyers and they are all controlled by the Communist Party
+原视频日期：2021/10/13
+任务编号：KC178（2569）
+视频时间段 : 0:00-0:45
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

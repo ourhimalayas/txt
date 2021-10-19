@@ -2,12 +2,9 @@
 ---
 
 
-## 美国前国务卿鲍威尔接种疫苗后，仍感染中共病毒死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1603047/)
+## 中共违反国际协议和规范，以巩固其对香港的政治控制
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1603157/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1019-scaled.jpg)
-（文章仅代表作者个人观点，与GNEWS无关）
+10/14/2021 国会议员Young Kim： 中共已违反具有约束力的国际协议和规范，以巩固其对香港的政治控制。
 
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

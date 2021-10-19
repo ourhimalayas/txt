@@ -2,148 +2,158 @@
 ---
 
 
-## 习身体不行了更要打台湾，借口台独大开杀戒
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602862/)
+## 为避经济危机美国的浅薄与疯狂
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1602972/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/555-wzywl.jpg)
-[https://gtv.org/video/id=616d7dcad2e2b8174876b7dd](https://gtv.org/video/id=616d7dcad2e2b8174876b7dd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/331-azahh-pwlkr.jpg)
+[https://gtv.org/video/id=616d93d8d2e2b8174876c1fa](https://gtv.org/video/id=616d93d8d2e2b8174876c1fa)
 
-会谈当中对台湾问题
-Se habló el problema de Taiwán durante la reunión
+**郭文贵**
+**Miles Guo**
 
-我告诉大家
-Déjame decirles
+房地产这个雷是一定要炸死人的
+La mina inmobiliaria seguro matará gente
 
-一会儿下一段我再告诉大家
-En un rato les digo
+只是谁的尸体
+Sobre el cadáver de quién
 
-把我吓死了
-Esto me asustó
+现在美国佬疯狂在哪里
+Dónde está la locura de los jefes estadounidenses
 
-我当时听完以后
-En aquel momento cuando terminé de escuchar
+跟中共的勾兑当中
+Dentro de la vinculación con el PCCh
 
-我真的是坐在那儿
-Realmente, me senté allí
+你继续买我国债
+Tu sigues comprándome la deuda nacional
 
-我抽了3根雪茄, 为台湾人民
-Y fumé tres cigarros por los ciudadanos de Taiwán
+多么多么的浅薄
+Es tan pero tan superficial
 
-嗓子都哑了
-Quedé afónico
+你真以为美国人就很伟大是吗
+Tu de verdad crees que los estadounidenses son grandiosos?
 
-很恐怖
-Es terrible
+你觉得他们去干这种事
+Tu crees que ellos al hacer este tipo de cosas?
 
-然后我没看到习近平讲话之前, 我就知道
-Y antes que ví a Xi hablando ya sabía
+你觉得他有视野吗
+Implica que ellos tienen visión?
 
-习近平这次的讲话, 一定以辛亥革命(为主题)
-El tema que habló Xi esta vez, debe ser la Revolución del 1911 como tema principal
+我问一个美国朋友
+Yo le pregunte a un amigo de EE. UU
 
-还找出所谓的多党派
-Y consiguió también el llamado multipartidista
+你觉得共产党现在给你撑个半年一年
+Tu crees que ahorita el PCCh te soporta por medio o un año
 
-让汪洋的政协主席讲话
-Dejemos que hable el presidente de la CPPCC de Wang Yang
-后来我就了解
-Luego entendí
+让它慢点倒 它永远不倒了吗
+Para que no se caiga y no caerá nunca?
 
-因为习的身体真的不行了
-Porque la salud de Xi ya no está en buena condición
+你继续印钞票就能解决问题吗
+Puedes resolver el problema imprimiendo billetes?
 
-习的身体真的是不行了
-Realmente su salud no está muy bien
+就解决你的流动性
+Podrá solventar tu fluidez
 
-这对台湾几乎是个噩梦
-Esto casi es una pesadilla para Taiwán
+和你国债的整个的天花板的问题吗
+Con tu deuda nacional ha llegado al límite máximo de problemas
 
-他越是身体不行
-Cuanto más enfermo esté físicamente
+这个太不要脸了
+Esto es demasiado sin vergüenza
 
-他越要打台湾
-Más quiere atacar a Taiwán
+这就是中国人被奴役你知道中国人真的是很可怜
+Esto es el por qué los chinos son esclavizados, de verdad es muy lamentable
 
-他要完成所谓的现代第二个秦始皇的历史责任
-Él quiere cumplir con la responsabilidad histórica del llamado segunda generación de Qin Shi Huang en los tiempos actuales
+真的说白了
+En pocas palabras
 
-对台湾凶也
-Es un peligro para Taiwán
+人家喊两嗓子叫几声
+Esa gente te llama o alza la voz
 
-凶也
-Muy peligroso
+就像对香港 新疆一样
+Así como hicieron con Hong Kong y Sinkiang
 
-第二部分, 除了习身体不好
-Segunda parte, a parte de que la salud física de Xi no está bien
+都是拿来做政治筹码
+Lo usan como ficha política
 
-你看一看那天人民大会堂
-Mire El Gran Salón del Pueblo de aquel día
+你看看这个美国人
+Mira los estadounidenses
 
-所有在主席台上的人
-Toda la gente que estaba en el podio
+现在这个时候
+Ahora en estos momentos
 
-你见哪个是江派
-Viste quién es del partido Jiang
+就为了自己明年中期大选经济别倒
+Solo para que no quiebre la economía en las Elecciones de medio mandato del año que viene
 
-除了韩正
-Excepto Han Zheng
+台湾你就打了吧
+Ataca a Taiwán si deseas
 
-你见哪个是曾派
-Viste quién es del partido Zeng
+弄回去吧
+Llévatelo
 
-最后那句最狠的话
-La última frase más cruel
+经济这块 地产不要倒了
+Pero la parte de la economía e inmobiliaria no se puede caer
 
-习要对台湾的
-Xi quiere hacer con Taiwán
+继续给我们撑着
+Sigue apoyándolo por nosotros
 
-台湾的一切问题在台独
-Todos los problemas de Taiwán radican en la independencia del país
+不要烂账
+No hagas cuentas pasadas
 
-台独要必需遭受所谓的大审判
-La independencia de Taiwán necesita pasar por el gran juicio final
+而且竟有人私下承诺
+Además, hubo alguien que prometió por privado
 
-这两句话已经就基本定义了
-Estas dos frases se definen básicamente
+我们可以把这些基金让他们给你延期
+De poder extender la fecha de estos fondos
 
-以孙灭台
-Destruir a Taiwán mediante Sun
+也就是在西方从来没发生的
+Quiere decir hacer como si no pasó nada en el occidente
 
-用孙中山合法的这种理由
-Utilizar esta razón legal de Sun Zhongshan
+也就是说 借新还旧
+En pocas palabras pedir préstamo nuevo para reembolsar lo viejo
 
-继承衣钵
-Heredar el manto
+这就是西方经济方面的
+Esto es en la parte económica del occidente
 
-谁在台湾呼应呢
-Quién será el que coordina en Taiwán
+这种疯狂
+Este tipo de locura
 
-那就是国民党
-Es el Partido Nacionalista Chino (KMT)
+就为了短期的政治利益
+Sólo por los beneficios políticos a corto plazo
 
-打击对象的原因是谁呢
-¿ Quién fue la causa del ataque?
+宁可借新还旧
+Prefieren un préstamo nuevo y reembolsar lo viejo
 
-台独
-La Independencia de Taiwán
+花样年、合生创展、富力
+Fantasía Holdings, Hopson Development, R&F Properties
 
-——————————————————
+李思廉都已经找着基金了
+Li Silian ya consiguió fondos
 
-**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1447754673880911877?s=24](https://twitter.com/se1y7cblljselva/status/1447754673880911877?s=24)
+你不让我借新还旧老子就要死给你看
+Si no me dejas pedir préstamo nuevo para reembolsar lo viejo entonces me suicidaré
 
-日期：10/16/2021
+你像那融创
+Así como Sunac
+
+你不让（我借新还旧）我就死给你看
+Si no me dejas (pedir préstamo lo nuevo para reembolsar lo viejo) me suicido
+
+———————————————————
+
+**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1447866395929178124?s=24](https://twitter.com/se1y7cblljselva/status/1447866395929178124?s=24)
+
+日期: 10/17/2021
 原视频标题：
-Cuanto más enfermo esté Xi físicamente, más querrá atacar a Taiwán y su excusa es por la Independencia de Taiwán
-原视频日期：10/12/2021
-任务编号：KC177（2495）
-视频时间段：0:00-1:50
+La superficialidad y la locura de Estados Unidos para evitar la crisis económica
+原视频日期: 10/12/2021
+任务编号：KC180（2528）
+视频时间段：0:00-1:52
 
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
 字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场–彩虹 Rainbow
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

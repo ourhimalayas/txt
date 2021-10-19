@@ -2,22 +2,49 @@
 ---
 
 
-## 因接种疫苗导致的病毒感染或成为目前全美警官死亡首因
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1602858/)
+## 美国前国务卿科林-鲍威尔死于COVID并发症
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1602962/)
 
-采编撰稿：苦尽甜来 (文来），编辑校对：硫酸羟氯喹64
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/meij-edited.png)图片来源：LAPC
+作者：纽约香草山福音部 – Lilian89
 
 
-据美国新闻媒体【NEWSMAX】10月16日报道，截至目前为止，2021年全美因公殉职的 361 名警官中，有 231 人死于新冠病毒感染，该数字几乎是因被枪击致死警察人数的5倍。
 
-据警方网站纪念死亡官员的页面内容显示，该病毒连续第二年成为美国警官的头号杀手。而被枪杀致死率则高排第二，有 49 名警官因此丧生。這与2020 年的数据相似，即374 位死亡的警官中，有 245 人死于新冠病毒肺炎，另外 45 名警官被枪杀。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-在美国，尽管警察是 2020 年底第一批有资格接种新冠病毒疫苗的群体之一，但许多警察部门的接种率只有 50% 左右。随着警员接种率的升高，相信因该病毒感染所导致的死亡数也会随之增加。
 
-此外，芝加哥、洛杉矶和巴尔的摩等大城市的警察工会正与当地市政就新冠病毒疫苗接种规定发生着激烈冲突，那些未接种该疫苗的警员大部分都遭到当局解雇或停薪留职的处罚威胁。
 
-（以上内容仅代表原文信息和作者个人观点）
+10月18日上午，美国前国务卿和参谋长联席会议主席科林-鲍威尔将军因COVID-19并发症去世。
 
-[原文链接](https://www.newsmax.com/us/deaths-covid-police-lawsuit/2021/10/16/id/1040787/)：
+![](https://image.cnbcfm.com/api/v1/image/106961860-16345640352021-10-18t132037z_1211972680_rc2dcq9gb487_rtrmadp_0_usa-powell.jpeg?v=1634564097&amp;w=929&amp;h=523)图片来源：路透社
+
+鲍威尔是牙买加移民的儿子，在里根政府时期成为美国第一位黑人国家安全顾问。此后，乔治-布什总统任命鲍威尔为参谋长联席会议最年轻的第一位黑人主席。作为主席，他在波斯湾战争期间监督了美国的沙漠风暴行动。他去世的消息传来后，美国的领导人和前同事都称赞他是一位领袖和英雄，前总统乔治-布什更是称赞他是一位“伟大的公务员”。
+
+鲍威尔的家人在Facebook上写道：“我们失去了一位杰出的、充满爱心的丈夫、父亲、祖父和一个伟大的美国人。”据悉，虽然鲍威尔患有多发性骨髓瘤，但他还是完全接种了新冠疫苗。
+
+而今，COVID疫苗给人类带来的次生灾害正逐渐在全球范围爆发。因此，任何强制他人打疫苗的行为，都等同于谋杀犯罪。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+[Colin Powell, trailblazing soldier and statesman who made case for Iraq invasion, dies of Covid at 84](https://www.cnbc.com/2021/10/18/colin-powell-former-secretary-of-state-who-made-case-for-iraq-invasion-dies-of-covid-complications-at-84.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
