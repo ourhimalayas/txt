@@ -2,20 +2,35 @@
 ---
 
 
-## 加拿大安省医生被限制签发新冠病毒疫苗的医疗豁免证
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1604503/)
+## 加州家长抗议对在校学生强制接种新冠疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1604504/)
 
-编译撰稿：硫酸羟氯喹64
+作者：雪梨
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+本周一数千名学生家长，齐聚州议会大厦，抗议加州州长的学生接种强制令。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/ys-edited.jpg)图片来源：thepostmillennial
+在加州首府沙加缅度的议会大厦门外，聚集了数千人，有来自本地及附近城镇，如旧金山湾区的人们，还有距离五百英里以外，圣地亚哥社区的家长们。当天，很多学生没有去学校，选择留在家里，以示抗议。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-8.jpeg)
 
-据加拿大自媒体《千禧年报》10月18日报道，安大略省【医生和外科医生学院】于当天宣布对马克-特罗齐医生和罗查尼-基里安医生进行职权限制，禁止他们再为新冠病毒疫苗接种签发任何医疗豁免证明。
+本月1号，州长加文·纽森宣布，在FDA全面批准为12岁以上的青少年接种疫苗后，加州7-12年级，即12岁到18岁的学生将首先全面开始接种疫苗，幼儿园至六年级，即12岁以下的儿童在下一阶段执行。儿童对新冠病毒风险极低，几乎免疫，但接种新冠疫苗却会导致各类疾病，甚至伤及生命。接种毒针疫苗后，健康青少年死亡的案例一直在增加。
 
-该限制令还延伸到禁止为“强制性口罩要求和新冠病毒测试”签发医疗豁免。被实施限制令的以上两位医生都强烈反对该疫苗的接种，而且最近都在公开场合发表了针对该疫苗的反对意见和言论。其中，基里安医生还在上个月辞去了其急诊室医生的职务，以抗议当地卫生局对疫情处理所采取的各种不合理政策。
+爆料革命和无数不畏强权，选择挺身而出发声的医护人员、以及科学家，包括前辉瑞公司副总裁耶登博士，一再对世人发出警告。越来越多的家长已经觉醒，从对疫苗危害的担忧，升级为付诸于实际行动，强烈反对强制疫苗接种。
 
-安大略省首席卫生官员基兰-摩尔对此表示，每10万人中真正有资格获得医疗豁免的人不应该超过5人。而豁免接种疫苗的医学理由应该是，有文件证明对疫苗的某种成分过敏，或是有证据证明接种后将导致患心肌炎的风险增加。莫德纳公司疫苗的被暂停使用就是该情况的最好例证。
+(本文仅代表作者观点)
 
-（以上内容仅代表原文信息和作者个人观点）
+参考链接：[Parents Rally Statewide To Protest Newsom’s School COVID Vaccination Mandate](https://sanfrancisco.cbslocal.com/2021/10/18/parents-rally-statewide-to-protest-newsoms-school-covid-vaccination-mandate/)
+[Thousands Gather at California State Capitol to Protest Newsom’s School Covid Vaccine Mandate (VIDEO)](https://www.thegatewaypundit.com/2021/10/thousands-gather-california-state-capitol-protest-newsoms-school-covid-vaccine-mandate-video/)
 
-[原文链接：](https://thepostmillennial.com/two-ontario-doctors-restricted-from-issuing-medical-exemptions-for-covid-vaccines)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+新闻访谈终审：暗黑
+编辑/校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

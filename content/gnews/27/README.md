@@ -2,54 +2,38 @@
 ---
 
 
-## 据称泄露的加拿大政府备忘录告诉员工不要说“加油吧布兰登”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1604685/)
+## 快报：魁省推迟医护人员疫苗接种令，但抗议仍继续
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1604710/)
 
-作者：Efron Monsanto
+编译：**Lulumi**
 
-一份据称来自加拿大政府打印出来的备忘录昨天在推特上疯传，警告员工不要使用“加油吧布兰登（Let’s Go Brandon）”这句话，否则有被解雇的风险。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-366.png)
 
-阿尔伯塔研究所所长彼得麦卡弗里将备忘录的一个版本发布到推特上，据称该备忘录显示了加拿大共享服务部泄露的备忘录，该机构向联邦政府提供提供满足加拿大人需求数字和IT 服务。
+2021年10月14日，医院工作人员和工会组织者挥舞着标语和横幅，抗议位于Roseville的Kaiser Permanente医院的人员短缺问题
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Brandon-1.jpeg)
+图片来源：Fred Greaves for CalMatters
 
-备忘录写道：“具体来说，加拿大公共服务部门禁止在任何情况下使用‘加油吧布兰登（Let’s go Brandon）’一词及其任何变体。”
+2021年10月15日本来是魁北克省未接种疫苗的一线医护人员的最后期限。他们中的几千人准备在那一天被解雇。
 
-备忘录还说，任何员工提及这句话“都将成为立即解雇的理由，没有追索权或工会代表。”
+然而，我们的卫生部长克里斯蒂安·杜贝（Christian Dubé）就在最后期限的前两天决定再给予一个月的宽限期，以鼓励这些医护人员去接种疫苗。
 
+尽管有这样的延迟，但这一变化丝毫没有阻止医护人员来到杜弗林平台上的弗朗特纳克城堡前示威，表达他们的声音。
 
+几位抗议者身着制服，其他人在海报上展示他们的专业背景。这是一次非常激动人心的活动，有令人难以置信和感人的证词。
 
-> Lets Go Brandon … LOL [#LetsGoBrandon](https://twitter.com/hashtag/LetsGoBrandon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/kZpIyyxjTk](https://t.co/kZpIyyxjTk)
-> — Javy Foxtrot (@JavyFoxtrot17) [October 11, 2021](https://twitter.com/JavyFoxtrot17/status/1447543009483055105?ref_src=twsrc%5Etfw)
+这次示威活动出现了意想不到的变化，在一次演讲中，活动家弗朗索瓦·阿马莱加（François Amalega）提议在魁北克L’Hôtel-Dieu医院前继续示威，以证明魁北克禁止在医院外抗议的新法律的荒谬性。
 
+然而警察已经封锁了通往医院的道路。最近在医院周围50米范围内进行抗议是非法的。
 
+最后，这是充满曲折的一天。
 
-口号“加油吧布兰登”是一个流行的模仿，背景是现场观众高呼的那句全美熟悉的热搜词“X 乔·拜登（F \*\*\* Joe Biden）”。一位NBC记者正在 NASCAR赛车活动中采访车手布兰登·布朗，当时后面的口号爆发了。然而，NBC的记者声称口号是“加油吧布兰登”，此后被称为损害控制的一种形式。
+（文章仅代表作者观点，与GNEWS无关）
 
-我联系了加拿大共享服务部的评论，它首先回应要求提供一份未经编辑的信件副本，并知道我是为哪个网站写稿的。
+**参考资料：**[rebelnews.com] [Quebec delays health worker vaccine mandate, but protests continue](https://www.rebelnews.com/quebec_delays_health_worker_vaccine_mandate_but_protests_continue)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Brandon-3.png)
+* * *
 
-下午晚些时候，加拿大共享服务部回应并在给反叛新闻的一份声明中澄清说：“我们可以确认这条消息不是由加拿大共享服务部发布的，也没有相关部门政策。”
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Brandon-4.png)
-
-來源：[https://www.rebelnews.com/debunked\_alleged\_leaked\_canadian\_gov\_memo\_tells\_employees\_to\_not\_say\_let\_s\_go\_brandon](https://www.rebelnews.com/debunked_alleged_leaked_canadian_gov_memo_tells_employees_to_not_say_let_s_go_brandon)
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+*审核：文乐
+校对: 阿伯塔
+发稿: Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)

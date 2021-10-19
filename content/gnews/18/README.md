@@ -2,71 +2,41 @@
 ---
 
 
-## [CCP病毒]指望WHO新型病原体溯源专家小组彻查中共病毒真相是不可能的
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1604787/)
+## 拜登提案将允许美国国税局监视每个在职美国人的银行记录
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1604791/)
 
-温哥华扬帆农场  枫叶正红时
-![](https://assets.gnews.org/wp-content/uploads/2021/10/101921.png)图片来源：m.soundofhope.org
-这是2021年10月14日，世卫组织总干事谭德塞在新型病原体溯源专家小组（WHO Scientific Advisory Group for the Origins of Novel Pathogens ，简称SAGO）会员国简报会上的开幕词。以下为大致内容：
+作者：Steven Ahle
 
-各位阁下，亲爱的同事们，
+![](https://assets.gnews.org/wp-content/uploads/2021/10/IRS-scaled.jpg)
 
-如您所知，世卫组织昨天宣布了世卫组织新型病原体溯源专家小组（SAGO）的拟议成员名单。
+乔拜登提出了一项计划，国税局可以访问每个人的银行账户如果他们每年有 600 美元的存款或购买力，这甚至包括最贫穷的美国人。 迪蒙特主席解释说，这是旨在向不纳税的富人索取财务。他们现在10,000 美元的限额浮动。我的租金每年超过 10,000 美元，其中不包括网络、电和食物。
 
-这 26 名专家是从来自 100 多个成员国的 700 多份申请中选出的，他们之所以被选中，是因为他们在一系列学科领域拥有世界一流的专业知识和经验，并确保了地域和性别的多样性。
+我不了解你，但我不希望国税局窥探我的银行账户，在我没有做错任何事的情況下。如果你每月支付 875 美元的租金或每月赚取 875 美元，他们就可以访问你的所有财务记录。面对现实，我们现在生活在纳粹美国。如果你有工作，国税局可以监视你。如果你是一个焦虑的的父母，你就是一个家庭恐怖分子。如果你不同意民主党，你就是对民主的威胁。
 
-SAGO 的主要任务是就世卫组织定义和指导对具有流行和大流行潜力的，新出现和重复出现的病原体，包括新冠病毒（中共CCP病毒）的溯源研究提供建议。
+十美元是指您在纽约市以最低工资全职工作四个月，按联邦标准工作八个月的收入。这是西弗吉尼亚州的平均年租金（该国最便宜的），还不到 2020 年二手车平均价格的一半。 10,000 美元更不用说 600 美元了。很明显这不是一个正确的为避税富人设置的年交易水平。这就是变相的监视一种方式。
 
-我想强调的是，新冠病毒（中共CCP病毒）溯源不是 SAGO 的唯一，甚至是主要关注点。尽管它的首要任务之一将是评估当前关于新冠病毒（中共CCP病毒）溯源的科学知识，如果我们需要进一步对这种病毒的起源调查，专家组将确定哪些是必须作为优先事项进行的、最重要的研究。
+“強有力的信息报告，以及提供持续保护的国税局资金，将确保我们将执法重点放在最大的鱼上，” 参议员伊丽莎白沃伦板着脸向纽约时报声称。
 
-现在将有一个为期两周的公众咨询期，以征求（您们）对被提名的26名SAGO成员的反馈意见。之后，我们将（最终）确定SAGO的成员组成，该小组将举行第一次会议。
+如果你真的是富人，截点将是每年 250,000 美元。那么，你为什么认为他们想要访问每个人的帐户？他们意识到对富人征税不会带来足够的钱。他们也需要对穷人和中产阶级征税。国税局有权冻结你的银行账户。拜登的支出计划包括为美国国税局提供 800 亿美元的额外资金。下一步是什么？我们是否也需要报告姓名对于我们参与卧室活动呢？
 
-有可能引发流行病和大流行病的新病毒出现是自然而然的事实，新冠病毒（中共CCP病毒）是此类病毒中最新的一个，但它不会是最后一个。
+对上厕所次数多的人征收水税会是怎么样？在民主党掌权的情况下，它永远不会结束。
 
-我们感谢所有希望加入 SAGO的人，我们希望这将成为世卫组织维护世界卫生安全工作的宝贵补充。
+來源：[https://djhjmedia.com/steven/biden-proposal-will-allow-the-irs-to-spy-on-every-working-americans-banking-records/](https://djhjmedia.com/steven/biden-proposal-will-allow-the-irs-to-spy-on-every-working-americans-banking-records/)
 
-我谢谢你。
+（文章仅代表作者个人观点）
 
-简评：
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-“新冠病毒（中共CCP病毒）溯源不是 SAGO 的唯一，甚至是主要关注点“，谭书记你不是在梦游吧？
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
 
-世界组织发布的这份26人名单，差不多算是中南坑老杂毛们直接任命的。指望这份名单上的人，去彻查中共病毒真相，是不可能的。难怪赵立奸（坚）在2021年5月14日例行记者会上洋洋得意地称，“中（共）方率先同世卫组织开展联合研究”。
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-所有有良知的人都想问一句，世卫组织是不是还要派一个专家组到中共国去学习制毒放毒经验？
+**关注我们**
 
-在世卫组织公布的名单中，第26位Dr Yungui Yang杨运桂，来自于中共国科学院北京基因组研究所副所长。
+Discord 账号
 
-第6位德国人Christian Drosten一直公开为中共CCP唱赞歌。去年Christian Drosten还参与了发表在Lancet上，抨击“中共CCP病毒并非自然起源”为阴谋论的联合签名。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-第22位瑞士人Katharina Summermatter更是声称“中共病毒实验室泄漏“完全是阴谋论，并公开赞扬武毒所的安全性。
+Gettr 账号
 
-第13位Dr Marion Koopmans和第25位英国科学家Dr John Watson一直和Peter Daszak密切合作。英国《mailonline》指出，Marion Koopmans甚至还和Ron Fouchier共同发表过27篇论文，Ron Fouchier 一直是世界上最具争议的“功能增强”实验研究人员之一，该实验旨在使动物病毒更具传播性并能够感染人类。
-
-第11位古巴Maria Guzman，第14位柬埔寨的Sowath Ly，第16位缅甸的Khin Myint，第24位泰国的Supaporn Wacharapluesadee和中共勾兑之深，脚趾头动一下都能猜到。
-
-其它像第1位菲律宾的Phillip Alviola，第2位沙特的Abdullah Assiri，第5位俄罗斯的Vladimir Dedkov，第7位苏丹的Elmoubasher Farag，第10位黎巴嫩的Nada Ghosn，第12位喀麦隆的Christian Happi，第15位法国的Jean-Claude Manuguerra，第19位尼日利亚Chinwe Ochu，第21位肯尼亚的Rosemary Sang，第23位南非的Marietjie Venter，等等，能否作出公正的调查，我想明眼人都应该知道。
-
-或许西朝鲜中南坑老杂毛们演技还有待提高，尔等应当直接点名东朝鲜、塔里班、巴基斯坦等也加入这份专家组名单。
-
-难怪英国外交事务委员会、保守党议员Tory MP Bob Seely指出，世卫组织新的调查小组为什么包含那些公开与中共勾兑的人。
-
-就在刚刚过去的短短10分钟之内，中共CCP病毒感染人数就增加了14077人，由240,508,281人增加到240,522,358，因中共CCP病毒而死亡209人，由4,896,755人增加到4,896,964人。
-
-留给世界的时间不多了，援引西利的话对CCP老杂毛们说，“洗白两次并不比洗白一次好“，中共CCP想一直掩盖病毒真相是不可能的。
-
-世界应该对中共CCP病毒起源进行强有力的独立调查！
-
-参考资料：
-
-[2021年10月14日外交部发言人赵立坚主持例行记者会](https://www.fmprc.gov.cn/web/fyrbt_673021/jzhsl_673025/t1914522.shtml)
-
-[Public notice of proposed new Scientific Advisory Group for the Origins of Novel Pathogens (SAGO) members](https://www.who.int/news-room/articles-detail/public-notice-and-comment-on-proposed-new-scientific-advisory-group-for-the-origins-of-novel-pathogens-%28sago%29-members)
-
-[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
-
-#  
-
-（免责声明：本文只代表作者观点，跟GNEWS平台无关）
-
-编审：文敏   发布：文敏
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

@@ -2,35 +2,26 @@
 ---
 
 
-## 加州家长抗议对在校学生强制接种新冠疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1604504/)
+## 打鸡血！中共500吨推力固体火箭发动机试验成功
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1604521/)
 
-作者：雪梨
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-本周一数千名学生家长，齐聚州议会大厦，抗议加州州长的学生接种强制令。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-21.png)
+[图片来源](https://china.huanqiu.com/article/45ERGWA1GUM)
 
-在加州首府沙加缅度的议会大厦门外，聚集了数千人，有来自本地及附近城镇，如旧金山湾区的人们，还有距离五百英里以外，圣地亚哥社区的家长们。当天，很多学生没有去学校，选择留在家里，以示抗议。
+中共央视新闻10月19日报道，中共自主研制的500吨推力整体式固体火箭发动机在航天科技集团四院试车成功。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-8.jpeg)
+该发动机直径3.5米，推力达500吨，采用高性能纤维复合材料壳体、高装填整体浇注成型燃烧室、超大尺寸喷管等多项先进技术。试验的成功，标志着中共固体运载能力实现大幅提升。
 
-本月1号，州长加文·纽森宣布，在FDA全面批准为12岁以上的青少年接种疫苗后，加州7-12年级，即12岁到18岁的学生将首先全面开始接种疫苗，幼儿园至六年级，即12岁以下的儿童在下一阶段执行。儿童对新冠病毒风险极低，几乎免疫，但接种新冠疫苗却会导致各类疾病，甚至伤及生命。接种毒针疫苗后，健康青少年死亡的案例一直在增加。
+目前，基于500吨推力整体式固体发动机，航天科技集团四院已经在开展直径3.5米级分段发动机的研究，发动机分5段，最大推力将达到千吨级以上，可应用于大型、重型运载火箭固体助推器中，以满足空间装备、载人登月、深空探索等航天运载工具的不同发展需求。
 
-爆料革命和无数不畏强权，选择挺身而出发声的医护人员、以及科学家，包括前辉瑞公司副总裁耶登博士，一再对世人发出警告。越来越多的家长已经觉醒，从对疫苗危害的担忧，升级为付诸于实际行动，强烈反对强制疫苗接种。
+长期以来，由于受制于材料和工艺，中共火箭固体发动机水平远远落后于欧美发达国家，同时研制进展也比较缓慢。突出的表现就是中共“一箭多星”的能力很弱，同时也无法开展载人登月等对运载能力要求更高的活动。此次中共500吨级推力整体式固体火箭发动机的试验成功，虽然与发达国家水平相比仍有较大差距，但却足以让中共给墙内“小粉红”打上一顿鸡血。
 
-(本文仅代表作者观点)
+信息来源：
 
-参考链接：[Parents Rally Statewide To Protest Newsom’s School COVID Vaccination Mandate](https://sanfrancisco.cbslocal.com/2021/10/18/parents-rally-statewide-to-protest-newsoms-school-covid-vaccination-mandate/)
-[Thousands Gather at California State Capitol to Protest Newsom’s School Covid Vaccine Mandate (VIDEO)](https://www.thegatewaypundit.com/2021/10/thousands-gather-california-state-capitol-protest-newsoms-school-covid-vaccine-mandate-video/)
+[重大突破！世界最大推力整体式固体火箭发动机试车成功](https://china.huanqiu.com/article/45ERGWA1GUM)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+免责声明：文章仅代表作者本人观点，与GNEWS无关
 
-新闻访谈终审：暗黑
-编辑/校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/10/樱花团-1.jpg)

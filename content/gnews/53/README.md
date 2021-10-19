@@ -2,42 +2,59 @@
 ---
 
 
-## 喜币洋洋
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1603611/)
+## COVID-19最新情报｜美参议员Ted Cruz：拜登授权强制接种疫苗 侵害人权
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1603909/)
 
-韩国首尔天池农场——爱战神　校对/上传——无明逆流
-![](https://assets.gnews.org/wp-content/uploads/2021/10/hjhjjkkk.jpg)
-地址：玉米地小哥家
-人物：战友玉米地小哥以及他母亲
-恭喜战友发财，
-恭喜七哥精彩，
-灭共的请过来，
-砸锅的请走开，
-喜币洋洋蹭蹭地往上涨，
-恭喜发财，恭喜战友发财、恭喜七哥精彩⋯⋯
-母亲：别吼嗓了！这几天你兴奋那门子，派出所又来找你了？
-玉米地小哥：哈哈哈，终于忍不住和我这个不学好的儿子说话了，要不是我天天高兴的唱，你还不理我。告诉你老妈，还真是有天大的喜讯，请您老坐下来，慢慢听我说。
-母亲：(去去去，挣脱儿子的手)我才不相信你有什么好事，除非天上掉馅饼、水往高处流。不被你吓死，就烧高香了。叫你谈个恋爱，讨个老婆，让我抱个大孙子，你偏不肯，挑肥拣瘦，一会嫌人家姑娘脑残，一会说没有共同语言。我看姑娘长的都不错，有模有样，一点都不残好好的，没缺胳膊少腿。不知道那里不顺你眼，你爸泉下有知，也不瞑目……
-玉米地小哥：看看又来了，不能跟您说话，真受不了。我最近心情好，不与您老计较，不唠叨，好消息分享，好不好？
-母亲：好好好，不唠叨，你嫌我烦，我还嫌你呢！(白了儿子一眼，又爱又恨苦笑一下)
-玉米地小哥：您坐好了，不要激动啊！
-母亲：不激动，除非你结婚给我抱孙子。
-玉米地小哥:瞧瞧，您老就这点出息，整天媳妇孙子不离口，您想想，您有我这儿子又怎样，还不是让您操心没完没了。您放心，我会找到一个志同道合的战友做媳妇，给您一个大孙子。
-母亲：你又没当过一天兵，哪来的战友？我不信，小骗子！
-玉米地小哥：真的没骗你，是我们爆料革命，新中国联邦的战友啊！
-母亲：不懂，反正你尽快娶进门就行了。
-玉米地小哥：遵命！(唱了起来)喜币洋洋，蹭蹭地往上涨，恭喜发财，恭喜战友发财⋯妈，你说这歌好听么？
-母亲：好听，恭喜发财！
-玉米地小哥：谢谢老妈，我要发财了，您未来的儿媳妇，我们的战友都要发财了……
-母亲：真的？好像不太靠谱吧！
-玉米地小哥:是真的，长这么大我骗过你吗？
-母亲:记不得了
-玉米地小哥：故意急我，实话告诉您吧。您知道派出所找我二三回，是为什么吗？就因为我买了GTV原始股和喜币，我装疯卖傻、咬牙不承认，说是被人家骗了，上当了。
-母亲：要不是我求朋友帮忙，那能轻易放过你？
-玉米地小哥：知道、知道！这个月我们的喜币就要上市了，七哥给我们一毛钱一个，上市估计最少50美金一个，而且会蹭蹭蹭往上涨，百倍、千倍甚至万倍地涨啊！到时候每天给您一把美钞让您花，怎么样？
-母亲：(瞪大眼睛)我这把老骨头也有这福份？我儿子媳妇都是有钱人了，那我孙子不就是富二代了嘛，要是你老子在也能享享儿子的福了。你不会骗老妈吧，不会是做梦吧？
-玉米地小哥：不会骗您，您也不是做梦，以后的好日子长呢，您的儿子一定成为您的骄傲！我们扬眉吐气的一天，很快就要来啦，放心吧！不过，我们现在要保守这个秘密，等到胜利的那天再庆贺，好吗？
-母亲：好好好！保密，财不外露，省得贼惦。
-母子喜泪相拥！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-60.jpg)
+美国德克萨斯州共和党籍参议员Ted Cruz在推特上表示，他认为拜登总统在九月发布的强制接种命令，是侵害人权的。
 
-（本文仅代表作者观点）
+拜登针对Delta提出六大方针的[COVID-19 ACTION PLAN](https://www-whitehouse-gov.translate.goog/covidplan/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=nui,sc)（COVID-19战略计划），目的为打击新冠病毒。
+
+其中《[COVID-19 Action Plan With New Vaccine Mandates](https://www-aamc-org.translate.goog/advocacy-policy/washington-highlights/president-biden-announces-covid-19-action-plan-new-vaccine-mandates?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=nui,op,sc)》（新冠疫苗强制接种），要求美国境内所有拥有雇员达100人以上的雇主，强制员工接种新冠疫苗，或是每周提供阴性证明。在媒体的推广下，许多私营部门已经表示将遵循拜登发布的疫苗规定，要求员工接种疫苗。更有私营部门，因雇员未接种疫苗而予以解雇。
+
+
+
+> Joe Biden’s illegal vaccine mandate at work!
+> 
+> Suddenly, we’re short on pilots & air traffic controllers.[#ThanksJoe](https://twitter.com/hashtag/ThanksJoe?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wviOzLt7Iv](https://t.co/wviOzLt7Iv)
+> — Ted Cruz (@tedcruz) [October 10, 2021](https://twitter.com/tedcruz/status/1447327311095910402?ref_src=twsrc%5Etfw)
+
+
+
+[Ted Cruz](https://en.wikipedia.org/wiki/Ted_Cruz)推特分享西南航空公司的新闻，西南航空因为遵守拜登总统发布的疫苗政策，要求员工必须接种新冠疫苗，否则不得执勤。此举间接导致了数以千计的航班被取消。大量旅客因航班取消缘故，滞留于机场航厦。
+
+Ted Cruz讽刺拜登总统，表示：感谢Joe（拜登总统）。
+
+西南航空针对航班取消一事，对外说明：不是因为人力短缺，而是天气因素。
+
+#### Ted Cruz：要求出示接种证明、阴性证明，侵犯隐私！
+
+今年八月，Ted Cruz与Fox新闻主播Sean Hannity同台称：新冠疫苗接种证明是对个人隐私的侵犯。当被要求出示接种新冠疫苗的相关证明，都是对个人自由的侵犯。
+
+#### COVID法西斯主义兴起，美国陷入绝对的混乱
+
+据[新闻报导](https://www.click2houston.com/news/local/2021/06/30/passengers-frustrated-after-southwest-airlines-cancels-thousands-of-flights/)，美国西南航空取消上千个航班，导致许多搭乘西南航空的旅客无法顺利启程，并且滞留于机场航厦中，等待西南航空安排“完全接种疫苗”的机组人员，引导旅客到目的地所需的航班。
+
+西南航空尚未允许“未完全接种疫苗”的员工返回工作岗位。
+
+#### 德州颁布“疫苗歧视禁令”
+
+德克萨斯州长签署行政命令，包含私营部门在内，禁止疫苗歧视。（[行政命令PDF](https://gov.texas.gov/uploads/files/press/EO-GA-40_prohibiting_vaccine_mandates_legislative_action_IMAGE_10-11-2021.pdf)）
+
+西南航空公司对德州的禁令表示**不会遵守**，将全力遵循拜登总统的疫苗规定。拜登总统发布的疫苗规定，希望美国人民尽最大努力接种疫苗，以维持生活、就业。
+
+- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/)
+- 相关：[新冠病毒预防、治疗方案（](https://vladimirzelenkomd.com/prophylaxis-protocol/)Zev Zelenko 博士）
+- 相关：[印度德里使用伊维菌素，确诊病例下降97%](https://gnews.org/zh-hant/1570870/)
+
+
+白宫目前正在考虑将“美国境内航班旅客”也纳入强制接种范围，若白宫确定将境内航班旅客纳入强制接种范围，那没有接种疫苗的人民将无法搭乘飞机。
+
+- 相关：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
+- 相关：[麥卡洛博士呼籲，不要接種新冠疫苗](https://www.wnd.com/2021/05/prominent-physician-dont-get-covid-shot/)（完整采访）
+
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-92.jpg)
+[原文](https://www.naturalnews.com/2021-10-16-cruz-calls-biden-covid-vaccine-mandate-illegal.html)￨转译 台湾宝岛农场 zhong
+（一切内容以原文为主，转译仅供参考）
