@@ -2,39 +2,30 @@
 ---
 
 
-## 西喜时事新闻简报 — 美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1604396/)
+## 维权组织就强制疫苗护照起诉安大略省政府
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1604419/)
 
-编译：土饭团
+蒙特利尔皇家山战友团 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/10/share-how-it-works-EN.jpg)图片来源：coe
+根据《加拿大律师日报》(Lawyers Daily)10月18日报道，宪法自由正义中心（JCCF）宣布代表8名安大略省人，对该省的强制疫苗接种证明发起了法律挑战。
 
-您若想了解全文报导内容，请点击标题链接
+根据法院的文件，”所有申请人都是决定不同意接受医疗的成年人，即一个或多个剂量的COVID-19疫苗”。JCCF的公告指出，这是一个宪法挑战。
 
-**1.[白宫对中国测试核导弹的报道保持沉默，称政府欢迎“激烈的竞争”](https://www.foxnews.com/politics/white-house-mum-on-reports-of-china-testing-nuclear-missile-says-admin-welcomes-stiff-competition)**
+JCCF工作人员律师Jorge Pineda在一份声明中指出，”就企业和组织的所有者而言，疫苗护照迫使人们执行违反宪法的法律，以及通常被认为违反人权立法的法律”。他补充说：”安大略省人不应该被迫以个人和私人的医疗决定为由而受到歧视和排斥”。
 
-福克斯新闻10月18日电，白宫新闻秘书Jen Psaki周一不愿就中国测试了具有核能力的高超音速导弹的报道发表评论，而是说美国欢迎“激烈的竞争”，同时坚持认为Biden政府“不希望这种竞争演变为冲突”。Psaki说：“我们已经明确表示我们对中国继续追求的军事能力的担忧，我们对中国的态度一直是一致的。”
+JCCF的公告解释说，安大略省的 “疫苗护照法”于9月22日出台，”禁止个人进入餐馆、健身房和其他场所，除非他们按照政府的定义’完全接种’。不执行这些新限制的企业和组织将被处以高达1000万加元的罚款，企业主将面临一年以下的监禁威胁。”
 
-**2.[Trump国防部官员: 中国正在取代美国成为世界超级大国](https://www.foxnews.com/media/trump-defense-elbridge-colby-china-superpower-adversary-threat)**
+Pineda在一份声明中说：“加拿大最高法院认为，《宪章》保护身体自主权和知情同意权，这是法律规定，无可争议。疫苗护照是一个厚颜无耻的企图，旨在颠覆宪章，使其保护措施失去意义“。
 
-福克斯新闻10月18日电，前国防官员Elbridge Colby在福克斯国家电视台新一期的“Tucker Carlson Today”节目中说，国家对通货膨胀威胁的麻木，使其难以传达中国对美国和整个全球社会构成的威胁的“严重性和严峻性”。中国共产党目前被列为该国最大的对手和对国际体系的最大地缘政治威胁。
+他补充说：”安大略省疫苗护照本身就是一种胁迫手段，迫使个人接受医疗干预，违背了他们的意愿和自己的最佳判断”，他指出，”这不仅是道德上的错误，也是非法的”。
 
-**3.[美国、加拿大军舰驶过台湾海峡](https://thehill.com/policy/defense/577086-us-canadian-war-ships-sail-through-taiwan-strait)**
+他解释说：”当我们上法庭时，我们将让他们看到这些强制疫苗真正用途就是剥夺公民对医疗服务享有的长期知情同意权”。
 
-The Hill 10月17日电，美国军方周日表示，在中国和台湾之间高度紧张的情况下，一艘美国军舰和一艘加拿大军舰上周通过台湾海峡。美国军方派遣Arleigh Burke级导弹驱逐舰Dewey号穿过台湾海峡，中国声称该岛是其领土的一部分。军方表示：“Dewey和Winnipeg过境台湾海峡表明了美国及其盟友和伙伴对自由开放的印度太平洋地区的承诺。”
+10月15日，安大略省发布了 “带有官方二维码的增强型疫苗证书”，以及 “QR code” 和”Verify Ontario”应用程序。该省首席卫生医官基兰-摩尔博士说，”使用带有二维码的新疫苗证书和Verify Ontario应用程序的疫苗接种证明是帮助阻止病毒传播的重要工具，同时保持企业和组织的安全开放。
 
-**4.[参议员Cotton警告：习近平发动冷战和“Biden正在失败”](https://www.foxnews.com/media/tom-cotton-warning-china-xi-taiwan-biden-weakness)**
+不管政府和媒体用多么美好的借口，强制疫苗是违宪的。
 
-福克斯新闻10月16日电，共和党参议员Tom Cotton周五在“America’s Newsroom”说，中国与台湾的紧张关系升级，表明共产党政权正在利用Biden总统的弱点。美国允许中国入侵、吞并台湾将是“历史性规模”的灾难。
+原文链接：
+https://www.thelawyersdaily.ca/articles/30561/rights-group-sues-ontario-government-over-proof-of-vaccination?category=covid-19
 
-**5. [一位记者的新书中写出：Fauci被指在武汉的功能增益研究上误导了Trump政府](https://www.foxnews.com/politics/book-fauci-allegedly-misled-trump-administration-gain-of-function-wuhan)**
-
-福克斯新闻10月17日电，一位澳大利亚调查记者的新书深入探讨了Anthony Fauci博士如何在中国的功能增益研究方面误导Trump政府的。详细介绍了Fauci如何试图说服白宫办公厅主任Mark Meadows将资金返还给一个在中国的研究项目，该项目由一个名为生态健康联盟的美国非营利组织负责。在今年夏天被参议员Rand Paul就资金问题进行了质问。
-
-（文章仅代表作者观点，与GNEWS无关）
-
-* * *
-
-*审核：蚂蚁兄弟*
-*校对：信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)
+发稿 Spirit
