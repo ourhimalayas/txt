@@ -2,18 +2,49 @@
 ---
 
 
-## 微软：比尔•盖茨桃色电邮确有其事
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1605257/)
+## 加拿大医院取消未注射新冠疫苗者的就医资格
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1605289/)
 
-#### 编译：沙子最怕你不理它
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-36.jpg)图片来源：网络截图
-据 CNN 10月19日报道，微软周一证实，在微软董事会调查创始人比尔•盖茨（Bill Gates）与一名员工的暧昧关系之前，他的高管同事们曾要求盖茨停止与另外一名员工发送不正当电子邮件。
+作者：纽约香草山美食部 – 文百合
 
-知情人士透露，早在2008年，当盖茨还是微软员工和董事长时，高管们发现了他在一年前与一名中级女员工之间电子邮件，他要求该员工在工作之余会面。据《华尔街日报》（Wall Street Journal）报道，当时的总法律顾问布拉德·史密斯和当时的首席人事官丽莎·布鲁梅尔会见了盖茨，告诉他这种行为不合适，应该停止，盖茨同意了。
 
-上述事件微软已经确认但不予置评。虽然盖茨发言人布里吉特·阿诺德在给《华尔街日报》的书面声明中否认了这些说法，但盖茨的代表却没有回应CNN Business的多次置评请求。今年早些时候，盖茨与妻子梅林达·弗伦奇·盖茨离婚时，也有对其相似的指控。（CNN尚未独立证实所有指控。）
 
-2020年辞去微软董事会职务之前，比尔·盖茨被举报试图在2000年与一名公司员工建立亲密关系。董事会聘请了一家律师事务所来调查他几年前与微软女员工的暧昧关系。调查过程中微软给予举报人很大的支持。盖茨发言人在当时给《华尔街日报》的一份声明中称2000年的关系是“20年前的一场已经和平结束的外遇事件”，并表示该公司的调查与盖茨离开董事会的决定无关。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
 
-新闻来源：[Bill Gates was told to stop ‘inappropriate’ emails with Microsoft employee in 2008, report says](https://www.cnn.com/2021/10/19/tech/bill-gates-microsoft-employee-emails-report/index.html)
+
+
+据加拿大CTV的多次报道，在新冠疫情的影响下，加拿大各省的公立医院陆续拟下就医和探视新规，拒绝接待所有未注射新冠疫苗的患者，不论病情轻重，不论何种病症。
+
+![](https://ichef.bbci.co.uk/news/640/cpsprodpb/B647/production/_116936664_gettyimages-1230451368.jpg)图片来源：GETTY IMAGES
+
+然而，这一规定让未注射疫苗的患者处于两难境地——或注射毒疫苗以便就医，或无医可就，拖延病情，导致更坏的结果。
+
+也有很多网友表示，此规则不光广泛用于公立医院，而今，甚至许多普通的家庭医生都拒绝接受和看诊未种新冠疫苗的患者。
+
+这种不符合逻辑的操作让全世界乍舌，更让医院的传染科，乃至加拿大的医疗体系形同虚设。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+[Several Ontario hospitals enact mandatory vaccination policies for visitors](https://toronto.ctvnews.ca/several-ontario-hospitals-enact-mandatory-vaccination-policies-for-visitors-1.5621728)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2.jpg](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)

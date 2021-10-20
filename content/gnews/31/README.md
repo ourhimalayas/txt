@@ -2,35 +2,36 @@
 ---
 
 
-## 中共的绞肉机体制，无人能得幸免
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1605145/)
+## 微信承认秘密扫描用户的照片
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1605228/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/习3-e1634701769245.jpg)图片源自www.rfa.org
-**作者：**顺其自然
-**编辑：**Candy
+作者：文一
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+【国家脉动】10 月 18 日报道，微信承认经常性地秘密扫描用户图片信息，该操作可以在用户并未打开应用程序的情况下完成。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture6-4.jpg)
+业内著名人士 Hacklous 曝光说，不仅由中共控制的微信如此，中共控制的其它应用程序，如 QQ 应用程序、拥有 9 亿月活跃用户的在线购物平台淘宝等，也经常性地秘密扫描用户照片。
 
-总结完郭先生10月17号的大直播，我最深刻的感受是：在中共的绞肉机体制里，无一人能得幸免。主要从以下几个方面得此启发：
+此事件曝光再次引发用户对中共控制的应用程序侵犯隐私的担忧。
 
-1）对于法轮功：我不信法轮功，对于法轮功人的信仰我也不做置评，但是我对法轮功人的遭遇，这么多年来一直都是非常同情的。即使没有郭先生2017年报出来这事儿，我也早就知道法轮功那些事情是真的。
+另据【Hindustan Times】科技网报道，早在川普时期已经命令禁止下载微信和抖音，虽然现任总统拜登撤回了相关一系列行政令，但命令商务部审查这些应用程序所带来的安全问题，并要求上周四之前提交可行性方案以防止外国政府控制的公司获取美国数据。
 
-这么多年来，我一直特别佩服法轮功人的坚持：一直守护着《大纪元》。新唐人一直在宣传真相，一直在反共，可能是他们没有出现像郭先生这样能上达到美国及世界最高层的一个人来为他们发声，造成他们提供的证据不能直达顶层，所以一直沉冤不能得雪。还有一个原因就是世界的转变还没到那个节点，暗黑势力和中共一直勾兑。
+据悉，商务部已于上周二提交了方案。
 
-现在，所有的这一切都到了节点，再加上爆料革命的重大影响力，使得体制内有良知的人越来越多地站了出来，所以共产党这么多年对法轮功、对新疆人、对西藏人做的恶该有个清算了。
+（本文仅代表作者观点）
 
-2）听郭先生说，美国军方已经明确表态：要在共产党打台湾的时候出兵去保护台湾，消灭共产党所有的军事目标，而且只在三分钟之内。这点实在是让我太兴奋了！中共内部的政治斗争也在加剧：江志成已经被抓，江派和曾派肯定不会坐以待毙，肯定要对习近平进行反击。他们的政治内斗肯定会加速共产党的灭亡。如果美、日再给中共致命的一击，那共产党真的就完了。而且最令我惊讶的是，美军在三分钟内就可以把中共所有的军事目标，不用核武器，就能全部给与铲平。美国的军事力量实在实在是太厉害了，太令我惊讶了！难到用的是太空军？
+参考链接：
+1. [微信承认秘密扫描用户的照片](https://thenationalpulse.com/news/wechat-admits-to-scanning-photos/)
+2. [微信承认秘密扫描用户的照片](https://tech.hindustantimes.com/tech/news/tiktok-wechat-ban-us-agency-submits-recommendations-on-protecting-app-data-to-white-house-71634118259793.html)
 
-3）关于潘石屹。我以前是非常喜欢任志强的，虽然任志强是王岐山的哥们儿，但是他的很多言论我还是很欣赏的。因为潘石屹跟任志强是好朋友，所以我对潘石屹也是非常有好感的；再加上，我认为潘石屹是非常谦逊的，不是那么张扬跋扈，所以我一直很欣赏他，也看了他的很多微博，看了他的很多访谈。大家也都知道，在中共国，如果不跟高官在一起，你是没有办法做大生意的，所以对于潘石屹是白手套儿，我也理解。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
-直到2017年，郭先生爆料黄燕的事，潘石屹为黄燕辩护，然后还要上美国来告郭先生。从那个时候我就开始对他有反感了，就不喜欢他了。因为潘是王岐山那边儿的人，所以习近平肯定不会饶过他，通缉他是肯定的了。只是没想到报应来的这么快，郭先生在美国活得越来越好，爆料革命的队伍越来越壮大，而潘石屹和张欣竟然要被习近平下令给带回去了，真是世事无常。
+新闻访谈终审：Q大哥
+编辑/校对/审核：Hetangyuese
 
-共产党的这个绞肉机体质，只要是这个体制的人，就都逃不过。习近平最后会落得怎样的结局？
-
-**发布：**Candy
-
-**YouTube链接**：[闲聊澳洲](https://www.youtube.com/channel/UCPxB0vpNpmHN0hORXK4gj2A)
-**GTV频道：**[墨尔本雅典娜农场AthenaFarm](https://gtv.org/video/id=6153fecc42a8af3151a72e5b)
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

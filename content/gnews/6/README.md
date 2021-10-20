@@ -2,21 +2,22 @@
 ---
 
 
-## 北京实施多项调整允许外资投入VPN服务
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1605412/)
+## 127名华盛顿州警员因抵制强制疫苗而被解雇
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1605463/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/234-2.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.vpnpicks.com%2Fwp-content%2Fuploads%2F2020%2F07%2Fhow-to-bypass-great-firewall.jpg&amp;imgrefurl=https%3A%2F%2Fwww.vpnpicks.com%2Fbest-vpn-for-china-cn%2F&amp;tbnid=Sz1n3QRS4Z7ILM&amp;vet=12ahUKEwjxraLm_9fzAhUIwJQKHZghCdkQMygBegUIARCgAQ..i&amp;docid=F-vyKZugZOMbgM&amp;w=795&amp;h=625&amp;q=%E7%BF%BB%E5%A2%99%E6%A2%AF%E5%AD%90&amp;ved=2ahUKEwjxraLm_9fzAhUIwJQKHZghCdkQMygBegUIARCgAQ#imgrc=Sz1n3QRS4Z7ILM&amp;imgdii=Aa-lcb6mbWt2EM)
-中共国政府近日向北京市开绿灯，允许该市向外资开放中国国内互联网虚拟专用网业务（VPN）、允许外商从事除了台湾外的境外游、鼓励外商投资成教培训机构等。这显然释放出中共国要继续推进对外开放的信号。据财新等媒体报道，中共国务院10月18日发文调整多项规定在北京市的实施，继续推动外资进入电信增值业务等领域。
+#### 编译：Grace
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-65.jpg)图片来源：KNKX
+据Biznews Post 10月19 日的报道，华盛顿州巡逻队周二宣布，其127名工作人员因拒绝遵守该州的中共病毒疫苗规定而被解雇。
 
-报道称，中共国将继续推动互联网虚拟专用网络服务（IP-VPN）、互联网接入服务等电信增值服务的开放。根据2020年7月开始实施的《外商投资准入特别管理措施（负面清单）（2020年版）》，限于中共国入世承诺开放的电信业务，增值电信业务的外资股比不超过50%，基础电信业务必须由中方控股。
+有官员称，有53名文职官员和74名委任官员，包括67名警员、6名警长和1名上尉，被解除了职务。
 
-在中国，VPN服务被广泛用来绕过中国的防火墙、连接到海外服务器，很多在中国运营的跨国公司都依赖这项服务。报道指出，虽然中国政府允许公司们寻求特别批准，以使用VPN访问在中国被封锁的外网，但同时当局也一直在打击未经许可提供VPN服务的供应商。
+华盛顿州州长杰伊. 英斯利（Jay Inslee）在8月发布的强制疫苗规定，在本周一开始生效了。据FOX 13报道，“大多数州政府工作人员，长期护理雇员，州政府学校，其中包括州政府的学院和大学的教师和工作人员”，如果想继续工作的话，都必须得先去接种中共病毒疫苗。
 
-信息来源：德国之声中文网
+该州的财务管理办公室在上周报告说，该州的最大的州机构之间，已经接种中共病毒的比率有所不同。社会和卫生服务部工作人员的比率为91%；惩教部监狱雇员的比率为84%至91%；华盛顿州巡逻队工作人员的比率为89%。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+报道还指出，一些西雅图的居民，对于强制疫苗规定可能会所引发的社会问题表示担心，这些民众认为这一规定可能会导致警官短缺和犯罪率上升。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+有位西雅图咖啡店的老板说：“我觉得我是在靠自己。我无法从任何地方获得帮助。我每天只是打开门出去，但是不知道我是否会安全地回家，与家人团聚，也不知道是否会发生什么事。他还说：“游客不会来了，人们不会走出家门去买东西了。这城市将会像一个鬼城。”
+
+**新闻来源：**[**127 Washington State Police Employees Fired for Resisting Vaccine Mandate**](https://biznewspost.com/uk-news/bake-off-viewers-slam-noel-fielding-and-matt-lucas-for-using-fake-german-accents/)

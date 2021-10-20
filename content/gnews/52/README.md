@@ -2,59 +2,47 @@
 ---
 
 
-## COVID-19最新情报｜美参议员Ted Cruz：拜登授权强制接种疫苗 侵害人权
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1603909/)
+## 瑞银集团表示：以太坊超越比特币的时代即将到来
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1603104/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-60.jpg)
-美国德克萨斯州共和党籍参议员Ted Cruz在推特上表示，他认为拜登总统在九月发布的强制接种命令，是侵害人权的。
+据《零对冲》作者：Tyler Burden，2021年10月16日报道：
 
-拜登针对Delta提出六大方针的[COVID-19 ACTION PLAN](https://www-whitehouse-gov.translate.goog/covidplan/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=nui,sc)（COVID-19战略计划），目的为打击新冠病毒。
+以太坊在今年年初表现出色，其价格飙升至4100美元以上的历史高位，几乎超越了所有的加密货币同行。最近几周，以太坊停滞不前，其在聚光灯下的位置被比特币取代，而比特币令人印象深刻的表现是现已证实的关于比特币期货ETF（交易型开放式指数基金）即将推出的猜测的结果。这也意味着，传统上两大加密货币之间的密切关联已经打破，更有利于加密货币行业；这也表明，以太币与比特币的交易价格便宜了约1000美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-339.png)图片来源：《零对冲》
+这不仅仅是比特币久违的ETF成功。瑞银策略师詹姆斯·马尔科姆（James Malcolm）表示，自夏末以来，以太币也被去中心化金融和非同质化代币这些驱动的对更快和更便宜的区块链的需求置于阴影之下。但在该银行最新的《加密指南针》出版物中，马尔科姆写道，由于以太坊之前的第二层解决方案之一Optimism的进展，这种情况可能很快会改变。
 
-其中《[COVID-19 Action Plan With New Vaccine Mandates](https://www-aamc-org.translate.goog/advocacy-policy/washington-highlights/president-biden-announces-covid-19-action-plan-new-vaccine-mandates?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=nui,op,sc)》（新冠疫苗强制接种），要求美国境内所有拥有雇员达100人以上的雇主，强制员工接种新冠疫苗，或是每周提供阴性证明。在媒体的推广下，许多私营部门已经表示将遵循拜登发布的疫苗规定，要求员工接种疫苗。更有私营部门，因雇员未接种疫苗而予以解雇。
+正如瑞银解释：“在几乎被遗忘之后，它似乎突然要给领先的竞争对手Arbitrum一个下马威。OVM 2.0承诺了更快的处理速度，更便宜的价格和更少的代码限制，这应该鼓励智能合约的部署。” 此外，它刚刚在以太坊的测试网中实施，现在计划在两周后的10月28日在主网上线。
 
+当然，所有这些与以太坊2.0准备好推出后将发生的以太币升值相比，都相形见绌。一些人猜测，该事件将迅速引发加密货币的快速翻倍，高盛将其称为 “信息的亚马逊”（这也是高盛也认为以太币最终会超过比特币的原因）。
 
+数据还显示最近链上活跃地址的反弹，被总转账量的小幅下降所抵消，然而这可以归因于最近几周巨额天量交易的激增（更多内容见下文）。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-340.png)图片来源：瑞银/Glassnode
+在观察比特币和以太币之间的交易所余额时，也出现了一个奇怪的分歧。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-341.png)图片来源：瑞银/Glassnode
+但最引人注目的似乎是比特币和以太坊的加密期权分配，两者都远远高于当前市场价格，这表明两者都可能会面临重大的伽马挤压。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-342.png)图片来源：瑞银/Glassnode
+顺便说一下，说到以太坊二级，比特币用于小型交易的闪电网络也一直在增长，以期待下个月的Taproot升级：今年到目前为止，闪电网络节点和通道的数量增加了一倍，容量增加了将近两倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-343.png)图片来源：瑞银/Glassnode
+顺便说一句，相反，这并不意味着比特币会下跌。
 
-> Joe Biden’s illegal vaccine mandate at work!
-> 
-> Suddenly, we’re short on pilots & air traffic controllers.[#ThanksJoe](https://twitter.com/hashtag/ThanksJoe?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wviOzLt7Iv](https://t.co/wviOzLt7Iv)
-> — Ted Cruz (@tedcruz) [October 10, 2021](https://twitter.com/tedcruz/status/1447327311095910402?ref_src=twsrc%5Etfw)
+正如瑞银所写的那样，比特币现在处于6万美元附近，距离其4月份的历史高点很近。它的最新反弹分为两个步骤：10 月 1 日，鲍威尔发表评论称无意跟随中共国禁止加密货币；10 月 6 日，据报道在五分钟内执行了近 16 亿美元的买单。两者都发生在数字峰会上大牌主持人抛出即将获得美国 ETF 批准的猜测不断增加的背景下（我们现在知道这已经发生了），以及参议院银行委员会共和党反对拜登政府和美联储明确的强加计划的反对类似银行对稳定币的监管。 Pat Toomey 的观点是，这是国会决定和颁布澄清立法的事情，这需要更多时间。它们帮助触发了空头期货头寸的清算，但没有留下买卖价差的痕迹，与我们一个月前看到的相比，几乎没有任何变化。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-344.png)图片来源：瑞银/Bloomberg
+毫不奇怪，随着比特币价格超过 6 万美元，看涨情绪变得更加明显，吸引了芝加哥商业交易所不断增长的现货期货基差套利，并推高了永续期货融资利率。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-345.png)图片来源：瑞银/Glassnode
+随着比特币实体调整后的交易量超过 2021 年初的高点，链上活动也出现了重大复苏。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-346.png)图片来源：瑞银/Glassnode
+最引人注目的是，这根本不是小规模和散户投资者设定的价格：正如瑞银的下一张图表所示，庄家在驱动座位上的影响程度几乎是史无前例的，平均交易规模比达到了2013年以来的最高水平。
 
+说到庄家，庄家持有的比特币供应量现在是有史以来最高的，约为8百万（总数为2100万），而交易所和场外交易柜台的持有量都在下降。同样值得注意的是，随着越来越多的真正的长期持有者，比特币的供应在不到3个月前开始暴跌。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-347.png)图片来源：瑞银/Glassnode
+新闻来源：[https://www.zerohedge.com/crypto/ethereums-turn-outshine-bitcoin-coming-ubs-says](https://www.zerohedge.com/crypto/ethereums-turn-outshine-bitcoin-coming-ubs-says)
 
+翻译：洛杉矶盘古农场 – KY
 
-[Ted Cruz](https://en.wikipedia.org/wiki/Ted_Cruz)推特分享西南航空公司的新闻，西南航空因为遵守拜登总统发布的疫苗政策，要求员工必须接种新冠疫苗，否则不得执勤。此举间接导致了数以千计的航班被取消。大量旅客因航班取消缘故，滞留于机场航厦。
+校对：洛杉矶盘古农场 – Mike Li
 
-Ted Cruz讽刺拜登总统，表示：感谢Joe（拜登总统）。
+编辑：洛杉矶盘古农场 – 明子
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-西南航空针对航班取消一事，对外说明：不是因为人力短缺，而是天气因素。
-
-#### Ted Cruz：要求出示接种证明、阴性证明，侵犯隐私！
-
-今年八月，Ted Cruz与Fox新闻主播Sean Hannity同台称：新冠疫苗接种证明是对个人隐私的侵犯。当被要求出示接种新冠疫苗的相关证明，都是对个人自由的侵犯。
-
-#### COVID法西斯主义兴起，美国陷入绝对的混乱
-
-据[新闻报导](https://www.click2houston.com/news/local/2021/06/30/passengers-frustrated-after-southwest-airlines-cancels-thousands-of-flights/)，美国西南航空取消上千个航班，导致许多搭乘西南航空的旅客无法顺利启程，并且滞留于机场航厦中，等待西南航空安排“完全接种疫苗”的机组人员，引导旅客到目的地所需的航班。
-
-西南航空尚未允许“未完全接种疫苗”的员工返回工作岗位。
-
-#### 德州颁布“疫苗歧视禁令”
-
-德克萨斯州长签署行政命令，包含私营部门在内，禁止疫苗歧视。（[行政命令PDF](https://gov.texas.gov/uploads/files/press/EO-GA-40_prohibiting_vaccine_mandates_legislative_action_IMAGE_10-11-2021.pdf)）
-
-西南航空公司对德州的禁令表示**不会遵守**，将全力遵循拜登总统的疫苗规定。拜登总统发布的疫苗规定，希望美国人民尽最大努力接种疫苗，以维持生活、就业。
-
-- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/)
-- 相关：[新冠病毒预防、治疗方案（](https://vladimirzelenkomd.com/prophylaxis-protocol/)Zev Zelenko 博士）
-- 相关：[印度德里使用伊维菌素，确诊病例下降97%](https://gnews.org/zh-hant/1570870/)
-
-
-白宫目前正在考虑将“美国境内航班旅客”也纳入强制接种范围，若白宫确定将境内航班旅客纳入强制接种范围，那没有接种疫苗的人民将无法搭乘飞机。
-
-- 相关：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
-- 相关：[麥卡洛博士呼籲，不要接種新冠疫苗](https://www.wnd.com/2021/05/prominent-physician-dont-get-covid-shot/)（完整采访）
-
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-92.jpg)
-[原文](https://www.naturalnews.com/2021-10-16-cruz-calls-biden-covid-vaccine-mandate-illegal.html)￨转译 台湾宝岛农场 zhong
-（一切内容以原文为主，转译仅供参考）
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

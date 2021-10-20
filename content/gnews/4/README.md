@@ -2,36 +2,40 @@
 ---
 
 
-## 加拿大医疗体系名存实亡
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1605457/)
+## 你相信欧金中会自杀吗
+` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1605535/)
 
-作者：纽约香草山美食部 – 文百合
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据加拿大CTV的多次报道，在新冠疫情的影响下，加拿大各省的公立医院陆续拟下就医和探视新规，拒绝接待所有未注射疫苗者，不伦病情轻重，不伦何种病症。这让未注射疫苗的患者处于两难境地，或注射毒疫苗以便就医，或无医可就，拖延病情，导致更坏的结果。
+By：银河勇气星｜天雷滚滚
+视频来源：网路
+欧金中“顾全大局”地死了，在警方的通报中，他是自杀的，而不是被击毙的。一个没带粮食，没带水，连御寒的衣服都没带的人，在饥寒交迫惶恐不安中度过了8天，竟然在警方的围捕中，能让他畏罪自杀成功，莆田警察是酒囊饭袋还是凶手?不得不说，莆田警方已经到了最不要脸的时候。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-376.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-47.png)图片来源：网路
 
-也有很多网友表示，此规则不光广泛用于公立医院，乃至普通家庭医生现都拒绝接受和看诊未种疫苗者。这种不符合逻辑的操作让全世界乍舌，更让医院的传染科，加拿大的医疗体系形同虚设。
+只想问莆田警方，你们既然说欧金中是自杀的，请问，他是用什么方式自杀的？是举刀自尽还是撞石自尽？伤口可以公布吗？凶器可以展示吗？你们的执法记录仪视频可以公之与众吗？新闻是欧金中被捕3小时后发出的，为什么一个小时内又易其口，难道现场抓捕人员连被抓被杀都说不清楚吗？这一切的疑点如果不能得到解决，那么，欧金中是被自杀的。并且可能就是警车中或者直接在医院里把他干掉的。
 
-参考链接：
-[CTV National News:New policy for hospital visits](https://www.ctvnews.ca/video?clipId=2302957)
-[Several Ontario hospitals enact mandatory vaccination policies for visitors](https://www.google.com.hk/amp/s/beta.ctvnews.ca/local/toronto/2021/10/13/1_5621728.html)
+其实，早在莆田平海镇政府发出发现活的20000、发现死的50000元的悬赏通告就知道，当地政府要追杀他了。无论如何，官方必须让欧金中死。只有他死了，这些走狗官员们可以弹冠相庆。因为：
 
-**本文谨代表作者观点**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-22.png)图片来源：网路
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
+第一：欧金中如果被关押收监，势必要调查矛盾。这五年来，是什么原因不给了建房，从而导致他一家五口住在猪窝不如的房子里，地方政府是不是跟村霸狼狈为奸，有没有利益输送，还有警方有没有失责，当地村干部有没有形成黑恶势力。方方面面，经得起查吗？更何况，中央的啥工作组都进驻莆田了。让他现在“自杀”，总比审判过程中，多一个环节监控，多一点危险，不如快刀斩乱麻，大家省心。
 
-**校对/发稿：童谣**
+第二：当地恶霸对欧金中的合法建房屡次三番横加阻拦，并且当天又受到恶霸妻子的非人的辱骂，如此杀人，法官的判决非常尴尬，死活都得让舆情撕裂。判不死，网民觉得舆情胜利，大快人心，那会置天朝官员的脸面于何处？况且央视网阴阳怪气的论调和胡锡进他们早就举起的道德大棒也是必须得赢的。否则，怎么显示官媒的权威？如果判死，网民不干，那天朝得花多大精力维稳呀，光删帖就得让五毛删到手抽筋。
 
-**更多资讯，更多关注**
+第三：欧金中死了，当地政府警方不仅可以摆脱干系，而且，说不定处置得当，让民众情绪稳定，可以集体发个大金链子，个人记个几等功什么的，以示犒劳。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+也有人说，欧金中死了，他家的房子说不定在当地政府的“关怀”中，或者在网友的热心帮助下就可以建起来了。我不知道有没有这个可能，如果有，我想说的是，为什么一定要把事情闹得鸡犬不宁，要付出生命的代价，才能给人家安身立命之所在呢？
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-12.png)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+欧金中死了，他无法给自己辩护，检方无法提起公诉，法庭无法对他审判，所谓的督导组也失去了意义。不会有调查，不会有问责。生前没有说法，死时没有真相。欧金中死了，带走了跟邻居的恩怨是非，带走了对这个人世的不尽眷恋，也带走了对老母妻儿的无限牵挂。欧金中死了，死在了中共国看不到头的黑暗里，死在了连质疑他怎么死都不能的制度里。这是他一个人的悲剧，也是一个社会的悲剧。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+* * *
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（文章内容仅代表作者观点）
+
+作者：天雷滚滚
+审核：兵嫂、骄子
+发布：骄子
+
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/欢迎战友回家-2.jpeg)

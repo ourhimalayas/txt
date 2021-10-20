@@ -2,36 +2,18 @@
 ---
 
 
-## 微信承认秘密扫描用户的照片
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1605228/)
+## 微软：比尔•盖茨桃色电邮确有其事
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1605257/)
 
-作者：文一
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-【国家脉动】10 月 18 日报道，微信承认经常性地秘密扫描用户图片信息，该操作可以在用户并未打开应用程序的情况下完成。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture6-4.jpg)
-业内著名人士 Hacklous 曝光说，不仅由中共控制的微信如此，中共控制的其它应用程序，如 QQ 应用程序、拥有 9 亿月活跃用户的在线购物平台淘宝等，也经常性地秘密扫描用户照片。
+#### 编译：沙子最怕你不理它
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-36.jpg)图片来源：网络截图
+据 CNN 10月19日报道，微软周一证实，在微软董事会调查创始人比尔•盖茨（Bill Gates）与一名员工的暧昧关系之前，他的高管同事们曾要求盖茨停止与另外一名员工发送不正当电子邮件。
 
-此事件曝光再次引发用户对中共控制的应用程序侵犯隐私的担忧。
+知情人士透露，早在2008年，当盖茨还是微软员工和董事长时，高管们发现了他在一年前与一名中级女员工之间电子邮件，他要求该员工在工作之余会面。据《华尔街日报》（Wall Street Journal）报道，当时的总法律顾问布拉德·史密斯和当时的首席人事官丽莎·布鲁梅尔会见了盖茨，告诉他这种行为不合适，应该停止，盖茨同意了。
 
-另据【Hindustan Times】科技网报道，早在川普时期已经命令禁止下载微信和抖音，虽然现任总统拜登撤回了相关一系列行政令，但命令商务部审查这些应用程序所带来的安全问题，并要求上周四之前提交可行性方案以防止外国政府控制的公司获取美国数据。
+上述事件微软已经确认但不予置评。虽然盖茨发言人布里吉特·阿诺德在给《华尔街日报》的书面声明中否认了这些说法，但盖茨的代表却没有回应CNN Business的多次置评请求。今年早些时候，盖茨与妻子梅林达·弗伦奇·盖茨离婚时，也有对其相似的指控。（CNN尚未独立证实所有指控。）
 
-据悉，商务部已于上周二提交了方案。
+2020年辞去微软董事会职务之前，比尔·盖茨被举报试图在2000年与一名公司员工建立亲密关系。董事会聘请了一家律师事务所来调查他几年前与微软女员工的暧昧关系。调查过程中微软给予举报人很大的支持。盖茨发言人在当时给《华尔街日报》的一份声明中称2000年的关系是“20年前的一场已经和平结束的外遇事件”，并表示该公司的调查与盖茨离开董事会的决定无关。
 
-（本文仅代表作者观点）
-
-参考链接：
-1. [微信承认秘密扫描用户的照片](https://thenationalpulse.com/news/wechat-admits-to-scanning-photos/)
-2. [微信承认秘密扫描用户的照片](https://tech.hindustantimes.com/tech/news/tiktok-wechat-ban-us-agency-submits-recommendations-on-protecting-app-data-to-white-house-71634118259793.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
-
-新闻访谈终审：Q大哥
-编辑/校对/审核：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+新闻来源：[Bill Gates was told to stop ‘inappropriate’ emails with Microsoft employee in 2008, report says](https://www.cnn.com/2021/10/19/tech/bill-gates-microsoft-employee-emails-report/index.html)

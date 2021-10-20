@@ -2,51 +2,34 @@
 ---
 
 
-## 10/18/2021国际财经快讯：美国银行财富管理业务蓬勃发展；供应链问题将持续到明年
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1601801/)
+## 纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1534601/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-55.png)[图片来源](https://foxbusiness.com)
-**1****.** **美交通部长布蒂吉格称：供应链的问题将持续到明年**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-CN.jpg)
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-[交通部长皮特-布蒂吉格周日在CNN的 “国情咨文 “中说，美国港口的供应链拥堵 “将持续到明年”。主播杰克-塔佩尔说：”我们看到供应链的中断造成了从价格上涨到产品等待时间延长的一切。穆迪警告说，这些供应链的中断，’在变得更好之前会变得更糟，’。美国人是否需要为这种情况在变得更好之前变得更糟做好准备？” 布蒂吉格说：”当然，我们今年所经历的很多挑战将持续到明年。但是，我们可以采取短期和长期的措施来应对。正在发生的部分事情不仅仅是供应方面的问题。它是需求方面的问题。需求量大得惊人”。](https://www.breitbart.com/clips/2021/10/17/buttigieg-supply-chain-troubles-will-continue-into-next-year/)
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
 
-[当被问到，拜登总统是否会解除前总统特朗普对中国的关税，试图提供一些缓解时，布蒂吉格说：”每一个想法都被认真对待。我们现在所做的是专注于行动本身。很多美国人可能会惊讶地发现，我们的港口一般没有在24/7的基础上运作。我们已经获得了改变这种状况的承诺。总统宣布，洛杉矶和长滩的港口–长滩正在试行几周。这两个港口合计占我们集装箱运输的40%。他们现在正在进行24/7。这不是一个简单的事情，要在一夜之间完成。这是一个很大的承诺”。](https://www.breitbart.com/clips/2021/10/17/buttigieg-supply-chain-troubles-will-continue-into-next-year/)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-001-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-002-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-003-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-004-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-005-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-006-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-007-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-008-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-009-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-010-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-011-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-012-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-013-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-014-scaled.jpg)
 
-**2.** **美国银行业中的财富管理业务正在蓬勃发展**
 
-[纽约，10月15日（路透社）–美国大型银行的财富管理业务在第三季度又取得了骄人的业绩，受新资金流入账户的创纪录水平和客户以投资组合为抵押借款的需求激增的推动。摩根士丹利公司、摩根大通公司、美国银行和高盛集团本周各自报告了财富管理贷款余额和收入的两位数增长。虽然中共病毒疫情摧毁了大片经济，并使数百万人失业，但政府旨在减轻经济打击的非常规措施也通过推低利率和推动股市大规模反弹而提升了富人的财富。根据波士顿咨询公司6月的一份报告，全球金融财富在2020年飙升至250万亿美元的历史高位。财富管理经纪公司的一个蓬勃发展的贷款领域，即所谓的基于证券的贷款或信用额度，允许客户借到其投资账户价值的一定比例，用于除更多证券以外的任何用途。随着这些投资账户价值的增长，贷款也随之增长。](https://www.reuters.com/world/us/us-banks-see-wealth-management-boom-borrowing-new-assets-2021-10-15/)
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-**3. ****巴西央行表示巴西里拉的贬值压力将在****2022****年有所缓解**
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
 
-[巴西/圣保罗（路透社）–巴西央行货币政策主管Bruno Serra周五表示，该行预计明年里拉贬值的压力将有所缓解，并讨论了外汇干预。他表示，该行自9月底以来一直在干预外汇市场，已经卖出了35亿美元。目前里拉贬值的主要原因是财政可持续性的风险。在过去两年中，巴西公司一直在偿还外债，这减少了正常的资金流入水平。预计这种情况将在明年结束，每年的流入量约为200亿美元，这将减少对里拉的贬值压力。巴西投资者把储蓄送到国外以分散投资，也对外汇市场产生了影响。这位央行行长说，巴西人每月向国外汇款约6亿美元用于投资，累计金额已达120亿美元。预计未来几个月里拉对美元的汇率将上升，因为流动性改善，而且在巴西最近为对抗通货膨胀而加息后，投资者开始对更高的利率差作出反应。另外，巴西央行周五表示，它将在周一的特别拍卖会上提供5亿美元的货币掉期，是本周类似销售中提供的金额的一半，以支撑里拉。](https://www.oann.com/pressure-to-devalue-brazil-real-to-ease-in-2022-cenbank-official-says/)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-**4****.** **俄罗斯的天然气需求创下新高，但仍准备提高欧盟的供应量**
-
-[莫斯科，10月16日（路透社）–俄罗斯副总理亚历山大-诺瓦克周六表示，俄罗斯的天然气消费正在以历史最高水平运行，但莫斯科仍然准备增加对欧洲的供应。今年以来，随着中共病毒疫情后需求的恢复，欧洲现货天然气价格已经飙升了800%。本月早些时候，欧洲的主要天然气供应国俄罗斯表示它可以提供更多的天然气，但这些供应还没有实现，因此价格有所回落。](https://www.reuters.com/business/energy/russia-seeing-record-gas-demand-still-ready-boost-eu-supplies-novak-says-2021-10-16/)
-
-[俄罗斯的天然气生产和对欧盟的出口已经接近历史最高水平，它说它需要在增加对欧洲现货市场的供应之前完成自己的天然气存储储备。它计划在10月底前完成这一工作。诺瓦克没有说俄罗斯的天然气储备有多大，但估计欧洲的地下设施缺少大约250亿立方米的天然气。但他坚持认为，如果俄罗斯收到这样的请求，国内的高需求不会阻止它向欧洲提供更多的供应。](https://www.reuters.com/business/energy/russia-seeing-record-gas-demand-still-ready-boost-eu-supplies-novak-says-2021-10-16/)
-
-**5****.** **印度拥抱股票投资，当地市场大涨**
-
-[印度股市今年的涨幅超过了世界上任何其他主要市场，这吸引了数百万当地投资者将他们的储蓄投入到股票中，进一步提振了市场。截至周四，印度的基准30股标普上证指数今年上涨了28%，Nifty 50指数上涨了31%，两者均以收盘纪录高点收盘。相比之下，更广泛的MSCI新兴市场指数同期下跌约1.9%，而标准普尔500指数上涨约18%。](https://www.wsj.com/articles/india-embraces-stock-investing-as-local-market-surges-11634463001?mod=markets_lead_pos6)
-
-[牛市正在加速印度家庭十年来的转变，这些家庭历来是储蓄大户，正在进行投资。资金管理公司Kotak Mahindra Asset Management Co.的总经理Nilesh Shah说：”家庭储蓄正在从现金、黄金和房地产转向市场工具，包括债务和股票。”作为这一转变的一部分，许多印度的个人投资者首次使用共同基金。许多人还直接进入股票市场，对个别股票下注，通常使用智能手机交易应用程序。](https://www.wsj.com/articles/india-embraces-stock-investing-as-local-market-surges-11634463001?mod=markets_lead_pos6)
-
-**6****.****随着新冠封锁的结束和供应链无法应对，全球通货膨胀激增**
-
-[通货膨胀的上升正在引发世界各地的焦虑，因为在放松对新冠封锁之后，需求的激增遇到了供应瓶颈以及能源和原材料价格的上涨。许多国家多年来最大幅度的消费者价格上涨引起了中央银行的不同反应。十几家央行已经提高了利率，但有两家央行没有提高利率，它们是对全球经济影响最大的央行：美联储和欧洲央行。它们的不同反应反映了对价格回升是否会带来进一步的通货膨胀周期或将逐渐减弱的不同看法。哪种观点是正确的，将对未来几年全球经济的发展轨迹产生很大影响。](https://www.wsj.com/articles/inflation-sets-off-alarms-around-the-world-11634304187)
-
-[大型央行所依赖的是家庭对其保持低通胀的记录的信心，以及对有足够的未充分使用的工人来控制工资上涨的期望。其他货币当局不确定他们是否已经赢得了作为通胀斗士的那种信誉，并认为工资上涨的风险更大。在较贫穷的国家，较大份额的支出通常也用于食品和能源等价格涨幅最大的必需品，因此政策制定者会更快地抑制通胀。3月，世界范围内的价格上涨开始加速，使通货膨胀率高于大多数中央银行家的预期。到8月，占世界产出约五分之四的20个最大经济体的年通货膨胀率已上升到十年来的最高水平。](https://www.wsj.com/articles/inflation-sets-off-alarms-around-the-world-11634304187)
-
-**7****．****特斯拉在推迟数月后开始交付其最新的****Model X SUV****车型**
-
-[特斯拉早在1月份就宣布了其Model X SUV的改进版。现在经过数月的延迟，它终于将它们交付给客户。 这是自2016年推出特斯拉最大和最贵的车型以来最重要的更新。最大的变化来自于这款SUV的内部。价值10万美元的Model X现在有一个横向的显示屏（而不是垂直的），后排乘客有第二个屏幕，还有一个矩形的方向盘，就像你在飞机上看到的那样。](https://www.businessinsider.com/tesla-model-x-refresh-deliveries-begin-after-delays-2021-10)
-
-[当特斯拉在1月份宣布对Model X SUV和Model S轿车进行重大更新时，马斯克–在谈到时间表时总是乐观主义者–说新的Model S将在2月份开始交付，之后不久Model X将开始发货。新款Model S的交付在6月开始，比计划晚了几个月。在4月份的特斯拉第一季度财报电话会议上，马斯克表示，特斯拉在开发新的Model S和Model X时遇到了 “比预期更多的挑战”，这包括处理供应链问题和为更新的车辆制定新的内部生产流程。](https://www.businessinsider.com/tesla-model-x-refresh-deliveries-begin-after-delays-2021-10)
-
-**8.** **高盛预测,**** ****房价到明年年底将进一步增长****16%**
-
-[高盛(Goldman Sachs)的经济学家们预测，未来一年的房价涨幅会更大。由Jan Hatzius领导的高盛经济学家团队在最近的一份说明中写道, “我们的模型现在预测，到2022年底，房价将进一步增长16%，在困扰美国经济的所有短缺中，住房短缺可能持续时间最长。”房价目前同比增长20%。房产库存紧张、低利率和疫情期间的家庭迁移模式刺激了房价的繁荣。千禧一代首次购房只会加剧对房屋的需求。同时，手上有现金的投资者正试图通过购买房地产等硬资产来对冲通货膨胀，从而推动价格上涨。众多专家预测，鉴于目前的市场如此不同，不要指望出现2008年那样的住房崩溃。但是，购房者可能期望看到价格趋于平稳，特别是如果美联储开始缩减其资产负债表并在未来提高利率。自春季以来，房屋供应量略有增加，尽管仍远低于大流行前的水平。供应链问题正在减慢新房上市的努力。](https://finance.yahoo.com/news/home-prices-will-grow-a-further-16-by-end-of-next-year-goldman-forecast-203019920.html)
-
-By【秘密翻译组-金融组】
-作者：Opal
++4
