@@ -2,36 +2,27 @@
 ---
 
 
-## 加拿大医疗体系名存实亡
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1605457/)
+## 秘翻在线：说&#8221;人话 &#8220;的原日本【朝日新闻】记者稻垣えみこ
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1605556/)
 
-作者：纽约香草山美食部 – 文百合
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据加拿大CTV的多次报道，在新冠疫情的影响下，加拿大各省的公立医院陆续拟下就医和探视新规，拒绝接待所有未注射疫苗者，不伦病情轻重，不伦何种病症。这让未注射疫苗的患者处于两难境地，或注射毒疫苗以便就医，或无医可就，拖延病情，导致更坏的结果。
+撰稿：待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/画像1-16.png)（图片源自本文链接）
+题目看似不雅，但却是活生生的媒体现状。看到一句”人话 “太难了！日本雅虎网站10月18日报道了稻垣えみこ的文章节选，【媒体不会是攻击拒绝接种疫苗者的同谋吧？】文题一下子吸引了我。因为现在的日本，应该不只是日本，太少这样说”人话 “的记者、太少见这样的文章。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-376.png)
+稻垣えみこ，出生于1965年。原【朝日新闻】记者。她过着超级节能的生活，留着标志性的非洲人发型，在 “AERA “杂志上发表过系列 “非洲画报 “，50岁的她毅然决然地提前退休。最近出版了两本书，《非洲えみこ的四季》和《生活是不知会通向何处的门：里昂的14天》。这一章节中，描写了她新生活中的事、她所遇到的人们,,,,,,
 
-也有很多网友表示，此规则不光广泛用于公立医院，乃至普通家庭医生现都拒绝接受和看诊未种疫苗者。这种不符合逻辑的操作让全世界乍舌，更让医院的传染科，加拿大的医疗体系形同虚设。
+我想说说对拒绝接种疫苗者的偏见待遇问题。
 
-参考链接：
-[CTV National News:New policy for hospital visits](https://www.ctvnews.ca/video?clipId=2302957)
-[Several Ontario hospitals enact mandatory vaccination policies for visitors](https://www.google.com.hk/amp/s/beta.ctvnews.ca/local/toronto/2021/10/13/1_5621728.html)
+正如我以前写过的，决定接种或不接种疫苗应该是自愿的，是每个人的责任。取决于他们自己的情况、信仰和生活方式。
 
-**本文谨代表作者观点**
+如果只是专注于防止中共病毒的传播，当然，我们可以理解“接种疫苗的人越多越好”。 然而，病毒传播问题只是世界上许多重大问题之一，单单为了解决这一个问题，我们决不能忽视其它问题。而且病毒感染不仅仅只需要疫苗来预防，它还关乎每个人所采取的所有行动。所以我认为，片面地攻击拒绝接种疫苗的人，把他们当作社会恶人来评判，是不符合常规的行为。谈到工作场所的歧视，这显然更是个问题。
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
+经常听到周围的人说，他们实际上是被公司强迫进行疫苗接种。如果他们因为不接种疫苗而失去工作，这将是一个生死攸关的问题。我想知道他们如何能证明为了拯救某人的生命而剥夺他的生计（生命）这一做法是正当的？我怀疑：这些行为的背后是媒体的言行。媒体的报道过于片面，认为那些不接种疫苗的人是 “假话的信徒”、”担心不存在的东西 “、 “阴谋论者”。我从杂志上看到 “对感染他人的可能性无动于衷 “这句话时，感到很沮丧。
 
-**校对/发稿：童谣**
+最近，我一直在想，我们在中共病毒蔓延中失去的最大东西不是被限制了的出行等自由，首先失去的恰恰是对他人的信任。我们对一个不知道正确答案是什么的世界感到恐惧，所以我们跳到简单的答案，而且不允许任何人偏离它。我可以理解为什么会出现这种情况，我知道那种感觉，我可能也是这样的。如果你可以自由地做你想做的事，但你的思想仍然是残缺的，那是真正的自由吗？等待我们的是心灵的监狱。
 
-**更多资讯，更多关注**
+[信息源](https://news.yahoo.co.jp/articles/d0f77b00f03accf98c28e89d1bfe0bc77fa3c109)
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+虽然您已经不再是记者，但对您的文章给予远远超过现任记者们的文章的期待！稻垣えみこ，加油！
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（文章仅代表作者个人观点）

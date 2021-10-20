@@ -2,22 +2,38 @@
 ---
 
 
-## 应对中朝和印太局势，日法召开外交和防务部门级会议。年内举行外长防长2+2磋商
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1605649/)
+## 疫苗灾情｜美国 35 岁疫苗拥趸孕期接种后致新生儿夭折
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1605744/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-382.png)[图片来源](https://www.sohu.com/a/451901438_162522)
-据日本共同社10月20日报道，日法两国政府19日在东京举行了外交和防务部门高官磋商，围绕应对中共军事影响力及朝鲜核和导弹等地区局势展开了讨论。双方可能还就实现“自由开放的印度太平洋”构想确认了合作。
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 20/10/2021**
 
-日本外务省综合外交政策局长冈野正敬和防卫省防卫政策局次长野口泰、法国国防部官员等出席。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpg)
 
-法国外交部19日发布消息称，年内将与日本举行外长防长磋商（2+2磋商）。法国外长勒德里昂和防长帕利预计将访问东京，据相关人士透露，双方正在就11月下半月至12月上半月之间开会展开协调。这将是日法第6次2+2磋商，上一次是2019年1月在法国西部的布雷斯特举行的。法国在印太地区有领土，正在该地区与日本等推进防务合作。日法1997年以来定期举行外交和防务部门间磋商。
+【美国】华盛顿一名拥有公共卫生硕士学位的 35 岁女性 Amanda Makulec 在孕期接种 COVID-19 疫苗后，导致她 21 个月大的新生儿突然死亡。这是又一个怀孕后接种疫苗的不幸事件。
 
-此次日法两国政府19日在东京举行的外交和防务部门级会议，应是为11至12月举行的日法第6次外长防长磋商（2+2磋商）打前站、做准备。
+Amanda 一直以来都是新冠疫苗的拥趸，同时亦是美国民主党的坚定支持者，她会逐字逐句反驳一切质疑疾病控制中心、主流媒体的每一个观点。因此，尽管 Amanda 2020 年 11 月左右得知自己怀孕，即将迎来第二个孩子，她仍然选择于 3 月 17 日接受了第一针 mRNA 疫苗，并按时接受第二针注射。
 
-信息来源：[日法年内将举行第6次外长防长磋商](https://china.kyodonews.net/news/2021/10/939b96395652-6.html)
+7月中旬，Amanda 生下一个小男孩，并在社交平台分享了自己在孕期接种疫苗并顺利产子的实例，更谈及自己孕期及哺乳期接种疫苗后，可让婴儿“分享母亲的免疫保护”。
 
-（本文只代表个人观点，与Gnews网站无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![此图像的alt属性为空；文件名为image0-1-36.jpg](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-loves-vaxx.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-vaxx1.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-Sept-18.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-J-and-J-defense.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-echo1.png)
+
+
+之后，Amanda 开始经常宣传及鼓励大家接种疫苗，多条贴文都特意标注 #GetVaccined 标签。
+
+可惜，最不幸的事还是发生了，9 月 27 日，她在推特发文指，“昨天，我 2 1/2 个月大的男婴『突然意外去世』。”但当出现有多人在评论区留言指“疫苗是导致悲剧的主要原因”时，她很快就锁住了自己的账户。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-baby-dies.png)
+
+**小编有话说**：虽然该个案中的当事人有“咎由自取”之嫌，惟希望读者不要就这个问题嘲讽当事人，痛失孩子已是莫大伤害，任何一个疫苗灾难的背后，最该被斥责和批判的，是蓄意用疫苗杀害普通民众的少数权贵阶层。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/39-1.jpg)
+
+来源｜[个案039](https://thecovidblog.com/2021/10/02/amanda-makulec-35-year-old-washington-d-c-woman-gloats-of-being-vaccinated-pregnant-breastfeeding-newborn-son-dies-at-two-half-months/)
+
+* * *
+
+他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//

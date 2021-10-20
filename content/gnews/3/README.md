@@ -2,23 +2,32 @@
 ---
 
 
-## 秘翻在线：颠倒黑白 无视总统赦免 众议院指控班农
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1605735/)
+## 菲律宾Ayala Corp.将收购澳大利亚可再生能源公司所有权
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1605784/)
 
-#### 翻译/撰稿：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/https___d1e00ek4ebabms.cloudfront.net_production_027c89ad-d8ea-48c9-9c36-de5a0672ffe7.jpg)图片来源：Financial Times
-根据路透社（Reuters）10月19日的报道，针对1月6日美国国会大厦的致命袭击事件，美国国会委员会周二一致投票赞成，对前总统川普的长期助手史蒂夫·班农（Steve Bannon）提出藐视国会的指控。
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/AC.jpg)图片来源：esquiremag.ph
+#### 编译：小红帽
 
-众议院特别委员会的七名民主党成员和两名共和党成员以9比0的投票结果批准了一份建议对班农提起刑事指控的报告，称班农拒绝遵循传票要求提供文件和证词的行为“令人震惊”。
+AC能源公司（AC Energy）–由亿万富翁海梅·佐贝尔·德·阿亚拉（Jaime Zobel de Ayala）所拥有的阿亚拉公司（Ayala Corp.）的子公司，已同意完全拥有其澳大利亚可再生能源公司的所有权。这家菲律宾历史最悠久的企业集团正加大投资力度，以成为东南亚最大的上市可再生能源平台。
 
-该报告在委员会通过后，本周四将交由民主党控制的众议院全体成员投票决定，是否通过批准该报告。美国哥伦比亚特区检察官办公室的一位发言人说，如果全院批准这项建议，检察官将”根据事实和法律来评估此事”。
+根据交易，AC能源公司将以2.43 亿美元的价格向合作伙伴UPC可再生能源亚太控股公司（UPC Renewables Asia Pacific Holdings）和UPC可再生能源公司(UPC Renewables )的首席执行官安东·罗纳(Anton Rohner)收购澳大利亚UPC/AC可再生能源公司 ( UPC/AC Renewables Australia)剩余的51.6% 股权，该公司在周二向菲律宾证券交易所发表的一份声明中表示。
 
-特别委员会的主席本尼·汤普森(Bennie Thompson)反应非常激烈，称“班农先生将我们至于此地，这是一种耻辱。在被传唤的人中，班农自己竟然拒绝合作，这让我感到震惊，有人居然不全力以赴协助我们的调查。
+收购完成后，需获得监管部门的批准，其中包括澳大利亚外国投资审查委员会的同意。AC能源公司将拥有澳大利亚UPC/AC可再生能源公司的100%所有权。
 
-目前班农的律师还未对此回应。在川普总统离任之前，班农就曾面临指控，但都被川普总统赦免，川普还敦促被委员会传唤的前助手根据他的行政令拒绝其要求。班农通过律师表示，“在川普总统的行政令于委员会达成协议或法院介入之前，他不会与委员会合作。“川普周一提起诉讼，声称委员会对他的白宫记录提出了非法、无根据和过于广泛的要求，但这一起诉被委员会领导人拒绝了。
+自 2018 年成立以来，澳大利亚UPC/AC可再生能源公司已在新南威尔士州、塔斯马尼亚州、维多利亚州和南澳大利亚州开发了超过8,000兆瓦的可再生能源项目。该公司目前正在新英格兰建造一个520兆瓦的太阳能发电场。
 
-该委员会是由众议院民主党人在违背大多数共和党人的意愿而设立的，委员会其中只有两人是共和党人分别是亚当·金辛格（Adam Kinzinger）和利兹·切尼（Liz Cheney）。他们在一月份就一起投票弹劾前川普总统，指控他在1月6日前向其支持者发表煽动性讲话。
+AC能源公司已在澳大利亚、印度、印度尼西亚、菲律宾和越南建立了约2,600兆瓦的可归属容量，并计划到2025年前将容量翻一番，达到5,000兆瓦。对这些项目的投资，将帮助AC能源公司实现其成为东南亚最大的上市可再生能源平台的目标，董事长费尔南多·佐贝尔·德·阿亚拉(Fernando Zobel de Ayala)在公司最新的年报中表示。
 
-这件事情涉及美国两党内政关系所以不多评价，但是不要忘记，当时有很多暴力分子混入共和党的阵营，故意在这场普通的抗议中伤害他人，嫁祸给这场抗议。这种广泛自主的活动也很难避免有恶人或是中共派遣的人混入其中？现在唯一的敌人就是中共，危急存亡之际更不是搞内战的时候，希望两党明确目标。中共在美国阿富汗撤军后日渐嚣张，藐视美国，甚至明目张胆的入侵台湾领空，如果此时美国仍在内斗，这将会更加助长中共嚣张的气焰。
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-新闻来源：[U.S. House committee backs contempt charge against Trump aide Bannon](https://www.reuters.com/world/us/trump-aide-steve-bannon-faces-us-house-committee-contempt-vote-2021-10-19/)
+**参考新闻：**[Philippines’ Ayala Corp. Unit To Take Full Ownership Of Australian Renewable Energy Venture In $243 Million Deal (forbes.com)](https://www.forbes.com/sites/jonathanburgos/2021/10/20/philippines-ayala-corp-unit-to-take-full-ownership-of-australian-renewable-energy-venture-in-243-million-deal/?sh=164ccb7243f4)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

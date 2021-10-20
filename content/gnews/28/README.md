@@ -2,20 +2,21 @@
 ---
 
 
-## “Let&#8217;s Go Brandon”成美国最火国骂 抗议拜登完美避开审查
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1605305/)
+## 北京实施多项调整允许外资投入VPN服务
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1605412/)
 
-#### 编译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/7-12.jpg)图片来源：网络截图
-据美国太阳（The U.S. Sun）网站10月19日报道，川普的前助手杰森·米勒（Jason Miller  ）说，“Let’s Go Brandon”（布兰登加油）这个梗使美国可以在没有审查的情况下抗议拜登政府。
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/234-2.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.vpnpicks.com%2Fwp-content%2Fuploads%2F2020%2F07%2Fhow-to-bypass-great-firewall.jpg&amp;imgrefurl=https%3A%2F%2Fwww.vpnpicks.com%2Fbest-vpn-for-china-cn%2F&amp;tbnid=Sz1n3QRS4Z7ILM&amp;vet=12ahUKEwjxraLm_9fzAhUIwJQKHZghCdkQMygBegUIARCgAQ..i&amp;docid=F-vyKZugZOMbgM&amp;w=795&amp;h=625&amp;q=%E7%BF%BB%E5%A2%99%E6%A2%AF%E5%AD%90&amp;ved=2ahUKEwjxraLm_9fzAhUIwJQKHZghCdkQMygBegUIARCgAQ#imgrc=Sz1n3QRS4Z7ILM&amp;imgdii=Aa-lcb6mbWt2EM)
+中共国政府近日向北京市开绿灯，允许该市向外资开放中国国内互联网虚拟专用网业务（VPN）、允许外商从事除了台湾外的境外游、鼓励外商投资成教培训机构等。这显然释放出中共国要继续推进对外开放的信号。据财新等媒体报道，中共国务院10月18日发文调整多项规定在北京市的实施，继续推动外资进入电信增值业务等领域。
 
-10月2日，纳斯卡（NASCAR）车手布兰登·布朗在阿拉巴马州的塔拉迪加超速赛道上赢得了他的第一场 Xfinity 系列赛后，米勒组织了带有这一口号的飞机飞越川普集会的活动。在布兰等赛后接受NBC体育记者凯利·斯塔瓦斯特（Kelli Stavast）采访时，现场听到观众高呼 “F\*\*k Joe Biden”，斯塔瓦斯特似乎听错了口号，声称人群在说 “Let’s go Brandon”。
+报道称，中共国将继续推动互联网虚拟专用网络服务（IP-VPN）、互联网接入服务等电信增值服务的开放。根据2020年7月开始实施的《外商投资准入特别管理措施（负面清单）（2020年版）》，限于中共国入世承诺开放的电信业务，增值电信业务的外资股比不超过50%，基础电信业务必须由中方控股。
 
-从那时起，互联网上的这句话就被炒得沸沸扬扬。许多反对拜登的人把这句话作为他们的新口头禅，制作商品或在体育赛事中高呼。然而，盖特首席执行官米勒声称，这句口号有更重大的意义，它让美国人可以在没有审查的情况下进行抗议。米勒告诉《太阳报》。“布兰登加油”体现了主流媒体与美国人民是多么的脱节。NBC的记者没有听出这句话的真实含义是对失败的拜登政府的抗议，而是进入了“止损”模式，并编造了更多假新闻。
+在中国，VPN服务被广泛用来绕过中国的防火墙、连接到海外服务器，很多在中国运营的跨国公司都依赖这项服务。报道指出，虽然中国政府允许公司们寻求特别批准，以使用VPN访问在中国被封锁的外网，但同时当局也一直在打击未经许可提供VPN服务的供应商。
 
-“Let’s go Brandon”允许各地的体育迷行使他们的宪法权利，表达他们的意见，嘲笑假新闻的疯狂，抗议拜登政府而不受审查，这正是他们在GETTR上也能做到的。我们用这架飞机表示我们相信言论自由，而且在游击营销方面，没有人比GETTR更有优势，米勒说，他是众多加入 “Let’s go Brandon”潮流的共和党人之一。
+信息来源：德国之声中文网
 
-参议员特德·克鲁兹（Ted Cruz）周日也分享了一段他在棒球比赛中高呼 “Let’s go Brandon”的视频，似乎对总统拜登进行了暗讽。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-新闻来源：[‘FREEDOM’ Let’s Go Brandon allows US to ‘protest Biden without censorship,’ says Trump aide who flew planes with meme on banner](https://www.the-sun.com/news/3889229/lets-go-brandon-jason-miller/)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

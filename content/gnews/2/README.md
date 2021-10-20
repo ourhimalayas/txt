@@ -2,38 +2,66 @@
 ---
 
 
-## 疫苗灾情｜美国 35 岁疫苗拥趸孕期接种后致新生儿夭折
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1605744/)
+## 英国辉瑞报告揭示了令人震惊的疫苗伤害和导致的死亡
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1605786/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 20/10/2021**
+编译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-384.png)
 
-【美国】华盛顿一名拥有公共卫生硕士学位的 35 岁女性 Amanda Makulec 在孕期接种 COVID-19 疫苗后，导致她 21 个月大的新生儿突然死亡。这是又一个怀孕后接种疫苗的不幸事件。
+图片来源： naturalnews.com
 
-Amanda 一直以来都是新冠疫苗的拥趸，同时亦是美国民主党的坚定支持者，她会逐字逐句反驳一切质疑疾病控制中心、主流媒体的每一个观点。因此，尽管 Amanda 2020 年 11 月左右得知自己怀孕，即将迎来第二个孩子，她仍然选择于 3 月 17 日接受了第一针 mRNA 疫苗，并按时接受第二针注射。
+《自然新闻》([Natural News](https://www.naturalnews.com/))据估计，只有1%的疫苗不良事件被报告，主要是因为人们要么害怕，要么就是看不到或想象不到相关性。毕竟，有史以来生产的每一种疫苗都常被宣传为“安全有效”，难怪孩子们不会把它唱成顺口溜。可悲的是，由现在不安全和无效的疫苗（又名刺突蛋白基因治疗注射），直接造成的成千上万的伤害和死亡（报告和未报告），这没有什么好笑的。仅看报告给英国黄卡（类似于 VAERS）的不良事件的 1%，这是一个可怕的故事，足以让任何理智的人质疑整个疫苗行业，尤其是辉瑞中共国流感疫苗。
 
-7月中旬，Amanda 生下一个小男孩，并在社交平台分享了自己在孕期接种疫苗并顺利产子的实例，更谈及自己孕期及哺乳期接种疫苗后，可让婴儿“分享母亲的免疫保护”。
+毕竟，谁也不会相信，正是这同一个行业，创造了基因突变的动物病毒，以使它可以首先攻击人类？ 而在世界醒来之前，在人们只见树木不见森林之前，还有多少人要受伤、濒临死亡和死去？
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-loves-vaxx.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-vaxx1.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-Sept-18.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-J-and-J-defense.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-echo1.png)
+- 到底有多少人因**Covid“**疫苗**”**而死亡、即将死亡或已经永久受伤？
 
 
-之后，Amanda 开始经常宣传及鼓励大家接种疫苗，多条贴文都特意标注 #GetVaccined 标签。
+你知道吗，如果你在接种 Covid 疫苗后一小时死亡，医生和医院不会责怪疫苗？他们只是进行 PCR 测试（几乎总是假阳性结果）并宣布受害者死于 Covid，并补充说，疫苗还没有到生效时间（声称是 2 周，这意味着您“未正式接种疫苗”） ，有评论患者一个小时前，甚至几天前刚刚接受的实验性的、致命的、凝血疫苗。您可以确定，如果您一个月前的 Covid 检测呈阳性，您肯定会被贴上 Covid 导致的死亡标签。
 
-可惜，最不幸的事还是发生了，9 月 27 日，她在推特发文指，“昨天，我 2 1/2 个月大的男婴『突然意外去世』。”但当出现有多人在评论区留言指“疫苗是导致悲剧的主要原因”时，她很快就锁住了自己的账户。
+（**评论：那是不是我如果給一个人的美味饭里放了毒，这个人吃后立刻就断了气，我可以用CDC“专家”的逻辑申辩：这和我放的毒没关系，因为这个毒性还没有发作，这个人就是噎死的？用脚后跟去想也想不出这样混账的“CDC专业级”结论啊！**）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-baby-dies.png)
+英国政府辉瑞 (Pfizer) 疫苗接种数据 (参见[UKcolumn.org](https://www.ukcolumn.org/video/analysis-of-us-vaers-vaccine-adverse-reactions-data-by-biostatistician-christine-cotton-part)) 中列出的常见伤害显示，疫苗伤害，有些几乎立即发生或在几天内发生，包括心脏病发作、流产、败血症、瘫痪、贝尔麻痹、中风、带状疱疹、Covid- 19、耳聋、失明和精神障碍（朊病毒病如疯牛病）。现在，从一针到两针刺突蛋白疫苗开始，可怕的问题范围怎么会如此广泛？ 答案很简单：这些疫苗受害者的血液中有数十亿个刺突蛋白，在整个血管系统中造成绝对的混乱。
 
-**小编有话说**：虽然该个案中的当事人有“咎由自取”之嫌，惟希望读者不要就这个问题嘲讽当事人，痛失孩子已是莫大伤害，任何一个疫苗灾难的背后，最该被斥责和批判的，是蓄意用疫苗杀害普通民众的少数权贵阶层。
+（**评论：辉瑞疫苗最大的投资人是贝莱德（Blackrock），而黑岩最大的股东是中共。中共是制造和释放病毒的根源！顺着这个最基本大逻辑去思考：制造病毒的人在制造救你的疫苗？合乎逻辑吗？**）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/39-1.jpg)
+无论对您的健康和可能的生命造成多大的损失，都让你立即站出来免费获得您的凝块注射液。据媒体报道，如果你支持血液凝块和因新冠疫苗注射导致数万例死亡的说法，那么你就是“反科学”。然而，由于新冠疫苗直接造成的伤亡人数不断增加，假新闻和劣药再次引发争议。
 
-来源｜[个案039](https://thecovidblog.com/2021/10/02/amanda-makulec-35-year-old-washington-d-c-woman-gloats-of-being-vaccinated-pregnant-breastfeeding-newborn-son-dies-at-two-half-months/)
+以下是发布和报道的一些疫苗伤害恐怖故事[vaccine injury horror stories posted and reported](https://theexpose.uk/2021/10/09/how-many-people-are-the-covid-19-vaccines-killing/) ，您在大众媒体上从未听说过。 如果有人在社交媒体上发布任何这些伤害或死亡信息，他们将被永久禁止。
+
+#1. 一名被要求接受疫苗的医务人员，在注射了数十亿种堵塞血液的刺突蛋白后，不得不截肢双腿和一只手。
+
+#2. 一名 14 岁的男孩在第二次辉瑞注射后仅几个小时就死于大量脑出血。
+
+#3. 一名婴儿因 Covid 疫苗而瘫痪。
+
+#4. 一名妇女在接受第二次辉瑞注射后 12 周内，死于罕见的脑部疾病。
+
+#5. 一名海军医生说出了真相：死于疫苗的士兵多于死于病毒的士兵。
+
+#6. 一位母亲报告说，她的女儿在接受辉瑞注射后 5 小时死亡。
+
+#7. 一个男孩的学校让他接种了 Covid 疫苗，现在他患有严重的心脏病。
+
+#8. 一位女士的儿子是一个健康的运动员，现在他几乎连路都走不了。
+
+#9. 13% 的孕妇在接种 Covid 疫苗后不久流产。
+
+#10. 一位母亲报告说，第二次辉瑞疫苗后她成了哑巴。
+
+要知道并非每个人都有医疗保险、人寿保险或为紧急情况、永久性严重伤害和死亡而积累的储蓄。这些有毒凝块注射本身就是一种流行病，随着世界各国政府迫使更多人注射疫苗，流行病正在蔓延。
+
+将您的真实新闻发到[Pandemic.news](https://pandemic.news/2021-08-27-top-8-ways-americans-pollute-their-bodies-every-day.html) ，以随时了解 Covid 诈骗的陷阱。不需要科学家或医生就能看出[Covid疫苗](https://www.naturalnews.com/2021-09-16-covid-vaccines-devastating-long-term-effects.html)、瑞德西韦（Remdesivir）和呼吸机正在加剧大流行的问题，造成疫苗病毒的大流行。
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**参考资料： [naturalnews.com**][UK’s Pfizer report reveals SHOCKING VACCINE INJURIES and deaths from the covid jab](https://www.naturalnews.com/2021-10-19-uk-pfizer-report-shocking-vaccine-injuries-covid-jab.html) [Pandemic.news](https://www.pandemic.news/2021-03-04-who-insider-exposes-gavi-gates-perpetrating-plandemic.html) / [TruthWiki.org](http://www.truthwiki.org/cdc-centers-for-disease-control-and-prevention/) / [NaturalNews.com](https://www.naturalnews.com/2021-10-03-cdc-hospitals-fully-vaccinated-deaths-unvaccinated.html) /[ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede) / [TheExpose.uk](https://theexpose.uk/2021/10/09/how-many-people-are-the-covid-19-vaccines-killing/) / [UKcolumn.org](https://www.ukcolumn.org/video/analysis-of-us-vaers-vaccine-adverse-reactions-data-by-biostatistician-christine-cotton-part) /
 
 * * *
 
-他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)

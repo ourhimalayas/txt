@@ -2,30 +2,20 @@
 ---
 
 
-## 中共国 46 家银行机构参与人民币国际化，开通跨境理财
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1605229/)
+## “Let&#8217;s Go Brandon”成美国最火国骂 抗议拜登完美避开审查
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1605305/)
 
-作者：文仁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-【法广新闻网】报道，容许个人投资者买卖中港和澳门投资产品的「粤港澳大湾区跨境理财通」计划，19 日早开通，中国内地、香港及澳门等地共有 46 家银行成为首批开办「跨境理财通」服务的金融机构，有部分银行客户今早已开设相关户口。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture8-4.jpg)
-中共金融监管机构公布，粤港澳三地中，以深圳获批开办跨境理财通的银行数目最多，计有 20 家，大部份会开展「南向通」及「北向通」业务。香港获批的 19 家银行，汇丰、渣打及中银香港等发钞银行均上榜，其中有 6 家开办南、北双向跨境业务，东亚、大新及星展香港只进行南向通业务。
+#### 编译：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/7-12.jpg)图片来源：网络截图
+据美国太阳（The U.S. Sun）网站10月19日报道，川普的前助手杰森·米勒（Jason Miller  ）说，“Let’s Go Brandon”（布兰登加油）这个梗使美国可以在没有审查的情况下抗议拜登政府。
 
-事实上，从 2019 年香港的返送中运动开始，到 2021 年的港版国安法的实行，香港曾经的亚洲和世界金融中心的地位已名存实亡。随着外资银行与金融机构纷纷撤离，香港作为中共与世界金融接口和吸金盘的作用也日趋直下。为了继续维持摇摇欲坠中共政权，他们一直在想尽各种办法帮自己吸血、续命。此次通过 46 家银行开通人民币跨境理财只是中共垂死挣扎的一部分。
+10月2日，纳斯卡（NASCAR）车手布兰登·布朗在阿拉巴马州的塔拉迪加超速赛道上赢得了他的第一场 Xfinity 系列赛后，米勒组织了带有这一口号的飞机飞越川普集会的活动。在布兰等赛后接受NBC体育记者凯利·斯塔瓦斯特（Kelli Stavast）采访时，现场听到观众高呼 “F\*\*k Joe Biden”，斯塔瓦斯特似乎听错了口号，声称人群在说 “Let’s go Brandon”。
 
-（本文仅代表作者观点）
+从那时起，互联网上的这句话就被炒得沸沸扬扬。许多反对拜登的人把这句话作为他们的新口头禅，制作商品或在体育赛事中高呼。然而，盖特首席执行官米勒声称，这句口号有更重大的意义，它让美国人可以在没有审查的情况下进行抗议。米勒告诉《太阳报》。“布兰登加油”体现了主流媒体与美国人民是多么的脱节。NBC的记者没有听出这句话的真实含义是对失败的拜登政府的抗议，而是进入了“止损”模式，并编造了更多假新闻。
 
-参考链接：[中共国 46 家银行机构参与人民币国际化，开通跨境理财](https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20211019-%E8%B7%A8%E5%A2%83%E7%90%86%E8%B4%A2%E9%80%9A%E4%BB%8A%E5%BC%80%E9%80%9A-%E4%B8%AD%E6%B8%AF%E6%BE%B346%E5%AE%B6%E9%93%B6%E8%A1%8C%E6%8A%95%E5%85%A5-%E4%BF%83%E8%BF%9B%E4%BA%BA%E6%B0%91%E5%B8%81%E5%9B%BD%E9%99%85%E5%8C%96)
+“Let’s go Brandon”允许各地的体育迷行使他们的宪法权利，表达他们的意见，嘲笑假新闻的疯狂，抗议拜登政府而不受审查，这正是他们在GETTR上也能做到的。我们用这架飞机表示我们相信言论自由，而且在游击营销方面，没有人比GETTR更有优势，米勒说，他是众多加入 “Let’s go Brandon”潮流的共和党人之一。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
+参议员特德·克鲁兹（Ted Cruz）周日也分享了一段他在棒球比赛中高呼 “Let’s go Brandon”的视频，似乎对总统拜登进行了暗讽。
 
-新闻访谈终审：Q大哥
-编辑/校对/审核：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+新闻来源：[‘FREEDOM’ Let’s Go Brandon allows US to ‘protest Biden without censorship,’ says Trump aide who flew planes with meme on banner](https://www.the-sun.com/news/3889229/lets-go-brandon-jason-miller/)
