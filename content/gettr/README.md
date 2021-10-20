@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/20/2021 11:46 PM (UTC)`
+
+4K测试 4K testing
+![img](https://media.gettr.com/group4/origin/2021/10/20/23/f993d69a-b6f9-60e3-4616-f518453f9927/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 10/20/2021 11:32 PM (UTC)`
 
 10/20/2021 Miles Guo: Half of the 20 people accompanying Jack Ma who are supposed to watch over him have been bribed by him. Jack Ma will either be killed by the Jiang family like how Wang Jian was murdered or be sent to a certain European country instead of the US and Japan. If neither is the case, then the shares of Alibaba held by Jack Ma will definitely be sold off after the share price goes up, which means the fraud is successful. But Jack Ma will end up either being killed or sent to jail<br/><br/>10/20/2021 文贵直播: 监视马云的20名随行人员中的一半被他收买，马云要么是被江家像弄死王健一样弄死他；要么会被送往美日之外的欧洲某国。若两种情况均未发生，马云在阿里巴巴的持股定会在股票大涨后被抛售，诈骗成功。但最终他要么被杀，要么被送进监狱。<br/>
@@ -289,13 +296,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 10月16号：尊敬的战友们好，你们健身了吗？过去的两天又发生了很多很多的大事情，有关话题，我在这里简单说一下，明天大直播中再详细向战友们报告！
 ![img](https://media.gettr.com/group22/getter/2021/10/16/14/07/cf90edd4-3ea0-6eb3-95f4-156a8b114015/out.jpg)
-
----
-
-`@miles 10/16/2021 1:11 AM (UTC)`
-
-10/15/2021 Miles Guo’s GETTR: The CCP does not allow the Lao Baixing to purchase cryptocurrencies, while itself can buy whatever crypto it wants and nobody dares to ask! Only if the CCP is taken down will there be a relatively objective and fair social system<br/><br/>10/15/2021 文贵盖特：共产党不许老百姓买虚拟币，而它自己却爱咋买咋买，无人敢管！只有消灭中共，才能有相对客观公平的社会制度<br/>
-![img](https://media.gettr.com/group25/getter/2021/10/16/01/11/7cd279cc-1521-a288-d8df-25fa787f0187/out.jpg)
 
 ---
 
