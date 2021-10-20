@@ -2,43 +2,48 @@
 ---
 
 
-## JCCF对安大略省疫苗护照授权发起法律挑战
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1606631/)
+## 在美国检测到新的传染型德尔塔变异株
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1606658/)
 
-作者： Dakota Christensen
+编译：西班牙喜悦农场–wenwu
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-12.jpg)Rochelle Walensky 博士证实在美国发现了 AY.4.2。
+推特/@WHCOVIDResponse
+卫生官员周三（20日）表示，正在整个英国蔓延的高度传染性的德尔塔变体的一个新的亚系（AY.4.2），已经在美国被检测到。
 
-该[司法中心的宪法自由](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.jccf.ca/) （JCCF）已经对[安大略省的疫苗护照任务](https://www-rebelnews-com.translate.goog/breaking_doug_ford_announces_vaccine_passports_for_on?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)在安大略省高级法院提出了宪法挑战。
+AY.4.2 正在英国受到密切监测，此前英国卫生官员透露，这种新的变体（据说比德尔塔的传播性高10%到15%）与英国当前新增的中共病毒（COVID-19）感染有关。
 
-法律挑战是代表八名安大略省公民提出的，他们正面临安大略省政府的不公正待遇，他们只是为了行使他们的宪章权利和自由，选择不接种一剂或多剂新冠疫苗。
+美国疾病控制和预防中心主任 Rochelle Walensky 博士在周三的 COVID-19 简报会上证实，在美国已经发现了 AY.4.2。
 
-以下是参加 JCCF 宪法挑战的八名申请人中的四个例子：
+Walensky 说，她承认这个新的变体“在最近几天引起了一些关注”，但它并没有与国内的任何集群联系起来。
 
-- 莎拉·兰姆来自基奇纳。她因第一剂新冠疫苗而遭受严重不良反应，并已决定不接种第二剂。兰姆一直无法获得疫苗护照的豁免。安大略省政府[表示](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;nui=1&amp;u=https://toronto.ctvnews.ca/ontario-confirms-there-are-only-two-valid-medical-exemptions-from-covid-19-vaccines-1.5572833)，只有在极其有限的情况下才会接受疫苗护照的豁免。
-- 莎拉·哈吉是一位拥有护理和公共卫生学位的准妈妈。哈吉担心新冠疫苗可能对她自己和她未出生的孩子产生不利影响，因此她选择不接种疫苗。
-- 埃文·克拉延布林克是一名护理人员，他决定在是否注射新冠疫苗之前，他将等待有关新冠疫苗效果的进一步数据。克拉延布林克 先生也有宗教信仰，即他允许对自己的身体做的事情最终要向上帝负责。
-- 山姆·萨布林是渥太华一名 29 岁的健身房老板。萨布林先生行使他的宪章通过不采取新冠疫苗的身体自主权，同时也拒绝否认顾客进入到基于疫苗接种的状态他的健身房。他毫无歧视地欢迎所有人。
+Walensky说：“我们偶尔在美国发现了这个亚系，但是到目前为止还没有出现最近频率增加或聚集的情况；目前，没有证据表明亚系 AY.4.2 影响到我们目前的中共疫苗预防或治疗方法的有效性，我们将继续跟踪；在美国，原德尔塔毒株仍然是占主导地位的变体，美国有 99.7% 以上的序列病例，是由德尔塔造成的。” 疾病预防控制中心的一位发言人告诉《纽约邮报》，AY.4.2 在美国”非常罕见”—到目前为止发现的病例“不到10个”，占测序病例的不到 0.05%。另外，疾病预防控制中心还没有确认在美国哪些州发现了AY.4.2。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-1-12.png)
 
-所有参加挑战的申请人都担心政府强制接种疫苗会被作为允许他们简单过日常生活的条件。
+前美国食品和药物管理局局长 [Scott Gottlieb](https://twitter.com/scottgottliebmd/status/1449803423906418691) 周末在[推特上发布了](https://twitter.com/scottgottliebmd/status/1449803423906418691)关于该变种的[推文](https://twitter.com/scottgottliebmd/status/1449803423906418691)，呼吁“紧急研究以确定这种 Delta Plus 是否更具传播性”或“出现部分疫苗免疫逃避”。
 
-JCCF 的律师豪尔赫·皮内达说： “加拿大最高法院认定， 宪章保护身体自主权和知情同意权，这是法律，这是无可争议的。” “疫苗护照是一种破坏宪章并使其保护变得毫无意义且无耻的企图。”
+专家告诉英国《[金融时报](https://www.ft.com/content/f1ec9d5d-9e02-4cc4-95e7-1dcbb1844d43)》，AY.4.2 的传播率似乎比原始德尔塔变体高 10% 到 15%。
 
-“安大略疫苗护照本身是一种胁迫工具，迫使个人接受医疗干预，这违背了他们的意愿和他们自己最佳的判断，”皮内达补充道。“这不仅在道德上是错误的，而且也是非法的。当我们到达法院时，我们将敦促他们看到这些疫苗的强制要求，因为他们真正做了什么——这剥夺了公民对自己的医疗保健做出明智决定的长期权利。”
+英国卫生官员上周表示，在[最新数据](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1025827/Technical_Briefing_25.pdf)显示英国有 6% 的中共病毒病例与新变种有关后，他们正在密切监测 AY.4.2；AY.4.2 在英国没有被标记为“正在调查”或“需要关注的变体”；专家也表示，没有早期迹象表明 AY.4.2 将成为主要变体，并且不太可能改变当前的中共病毒情况。
 
-來源：[https://www.rebelnews.com/jccf\_launches\_legal\_challenge\_against\_ontario\_vaccine\_passport\_mandate](https://www.rebelnews.com/jccf_launches_legal_challenge_against_ontario_vaccine_passport_mandate)
+“发现新变种当然对监测很重要，但这并不表明新变种将成为下一个取代 Delta 的变种；事实上，即使确实如此，达美航空在接种疫苗的人群中传播的能力也非常出色，而新的人群（完全接种者）可能会好一点，但不太可能从我们今天的情况发生巨大变化。”牛津疫苗集团（Oxford Vaccine Group）负责人安德鲁·波拉德（Andrew Pollard ）周三告诉 BBC 电台。
 
-（文章仅代表作者个人观点）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-2-10.png)
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+**简评：**
 
-**关注我们**
+**老调常谈！相信疫苗公司与政府都要走进火葬场啦。中共疫苗（包括了AZ、辉瑞、Modena 等）造成的副作用伤害总是非常默契地被主流媒体所无视或装作看不见。疫苗公司时有内应的，没有人要求政府出来解释航空公司的飞行员脑梗死、拒绝打疫苗后被解雇的荒谬，很显然疫苗的“内应”非常明确“知道了”打与不打疫苗的我们，都无法反抗。**
 
-Discord 账号
+**据2021年10月日《联合新闻网》[报道](https://udn.com/news/story/122190/5805697)，截至10月7日为止，台湾卫福部的接种中共疫苗（所谓的蛋）通报死亡人数高达850人正式超过感染中共病毒（所谓的鸡）的死亡人数。台北市议员王鸿薇表示，目前第一针覆盖率不及六成，第二针覆盖率不及两层，到底是感染中共病毒好还是打中共疫苗好？**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+**二选一，你选哪个。**
 
-Gettr 账号
+（文章仅代表作者观点与GNEWS无关）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**新闻来源：**[nypost.com] [COVID-19: New, infectious strain of Delta variant detected in the US](https://nypost.com/2021/10/20/covid-19-new-strain-of-delta-variant-detected-in-the-us/?utm_campaign=SocialFlow&amp;utm_medium=SocialFlow&amp;utm_source=NYPTwitter) |发布时间：2021年10月20日
+
+* * *
+
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
