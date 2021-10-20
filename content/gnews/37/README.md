@@ -2,18 +2,26 @@
 ---
 
 
-## 微软：比尔•盖茨桃色电邮确有其事
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1605257/)
+## 雅典娜时报-第087期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1605297/)
 
-#### 编译：沙子最怕你不理它
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-36.jpg)图片来源：网络截图
-据 CNN 10月19日报道，微软周一证实，在微软董事会调查创始人比尔•盖茨（Bill Gates）与一名员工的暧昧关系之前，他的高管同事们曾要求盖茨停止与另外一名员工发送不正当电子邮件。
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-知情人士透露，早在2008年，当盖茨还是微软员工和董事长时，高管们发现了他在一年前与一名中级女员工之间电子邮件，他要求该员工在工作之余会面。据《华尔街日报》（Wall Street Journal）报道，当时的总法律顾问布拉德·史密斯和当时的首席人事官丽莎·布鲁梅尔会见了盖茨，告诉他这种行为不合适，应该停止，盖茨同意了。
+#### 编辑：精靈藍
+排版：小蚂蚁614
 
-上述事件微软已经确认但不予置评。虽然盖茨发言人布里吉特·阿诺德在给《华尔街日报》的书面声明中否认了这些说法，但盖茨的代表却没有回应CNN Business的多次置评请求。今年早些时候，盖茨与妻子梅林达·弗伦奇·盖茨离婚时，也有对其相似的指控。（CNN尚未独立证实所有指控。）
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/201-1.png)
 
-2020年辞去微软董事会职务之前，比尔·盖茨被举报试图在2000年与一名公司员工建立亲密关系。董事会聘请了一家律师事务所来调查他几年前与微软女员工的暧昧关系。调查过程中微软给予举报人很大的支持。盖茨发言人在当时给《华尔街日报》的一份声明中称2000年的关系是“20年前的一场已经和平结束的外遇事件”，并表示该公司的调查与盖茨离开董事会的决定无关。
 
-新闻来源：[Bill Gates was told to stop ‘inappropriate’ emails with Microsoft employee in 2008, report says](https://www.cnn.com/2021/10/19/tech/bill-gates-microsoft-employee-emails-report/index.html)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/202-1.png)
+
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+***发布：小红帽***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,30 +2,18 @@
 ---
 
 
-## 中共加速毁灭民族文化 实施种族灭绝计划
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1605230/)
+## 微软：比尔•盖茨桃色电邮确有其事
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1605257/)
 
-作者：文仁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-【美国之音】10 月 19 日报道，中国正在加速少数民族的汉化和同化步伐。中共国务院 9 月底透过《中国儿童发展纲要（2021-2030 年）》的发布，正式宣布要对少数民族儿童加大中文和汉语的推广力度。专家表示，此举等同宣告要灭绝少数民族的语言和文化，恐引发西藏、内蒙及新疆等民族的强力反弹。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture7-3.jpg)
-在这份最新版的《中国儿童发展纲要》中，“少数民族”一词已经完全销声匿迹。其中攸关《儿童与教育》的章节，原有的“尊重和保障少数民族儿童使用本民族语言接受教育的权利”等条文已被删除，取而代之的是要“加大国家通用语言文字推广力度”等措词。也就是说，未来少数民族的儿童只能读中文、说汉语，不再使用属于自己民族的母语。
+#### 编译：沙子最怕你不理它
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-36.jpg)图片来源：网络截图
+据 CNN 10月19日报道，微软周一证实，在微软董事会调查创始人比尔•盖茨（Bill Gates）与一名员工的暧昧关系之前，他的高管同事们曾要求盖茨停止与另外一名员工发送不正当电子邮件。
 
-中共祭出民族同化的大旗，其结果就是少数民族的文化将荡然无存。实际就是中共加速其毁灭民族文化、实施种族灭绝的疯狂计划。
+知情人士透露，早在2008年，当盖茨还是微软员工和董事长时，高管们发现了他在一年前与一名中级女员工之间电子邮件，他要求该员工在工作之余会面。据《华尔街日报》（Wall Street Journal）报道，当时的总法律顾问布拉德·史密斯和当时的首席人事官丽莎·布鲁梅尔会见了盖茨，告诉他这种行为不合适，应该停止，盖茨同意了。
 
-（本文仅代表作者观点）
+上述事件微软已经确认但不予置评。虽然盖茨发言人布里吉特·阿诺德在给《华尔街日报》的书面声明中否认了这些说法，但盖茨的代表却没有回应CNN Business的多次置评请求。今年早些时候，盖茨与妻子梅林达·弗伦奇·盖茨离婚时，也有对其相似的指控。（CNN尚未独立证实所有指控。）
 
-参考链接：[中共加速毁灭民族文化 实施种族灭绝计划](https://www.voachinese.com/a/China-formalizes-its-aim-at-assimilating-ethnic-minorities-20211019/6275307.html)
+2020年辞去微软董事会职务之前，比尔·盖茨被举报试图在2000年与一名公司员工建立亲密关系。董事会聘请了一家律师事务所来调查他几年前与微软女员工的暧昧关系。调查过程中微软给予举报人很大的支持。盖茨发言人在当时给《华尔街日报》的一份声明中称2000年的关系是“20年前的一场已经和平结束的外遇事件”，并表示该公司的调查与盖茨离开董事会的决定无关。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
-
-新闻访谈终审：Q大哥
-编辑/校对/审核：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)
+新闻来源：[Bill Gates was told to stop ‘inappropriate’ emails with Microsoft employee in 2008, report says](https://www.cnn.com/2021/10/19/tech/bill-gates-microsoft-employee-emails-report/index.html)
