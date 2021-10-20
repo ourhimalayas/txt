@@ -2,19 +2,33 @@
 ---
 
 
-## 文贵爆料10/20被绑架的私营企业家若和新中国联邦合作灭共 在天安门城楼也能把你救出！
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1606356/)
+## 郭文贵先生倾力打造灭共单曲《沧海一声啸》
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1606357/)
 
-撰稿：Shifter 【秘翻原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-20-at-11.05.33-AM.png)图片来源：GTV
-2021年10月20日，新中国联邦大直播爆料中郭文贵先生明确向所有被中共绑架的中国私营企业家喊话，如果和当地政府合作与新中国联邦一起合作灭共，哪怕你们是在天安门城楼，爆料革命和新中国联邦也能把你们救出来。只有新中国联邦没有任何人和机构力量可以做到这一点！
+作者：AlexZ
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+纽约当地时间10月16日下午5时左右，郭文贵先生携手三位音乐制作人唐平、威廉王、QMay再次走进录音棚，共同打造灭共单曲《沧海一声啸》。同时，郭先生也在GTV直播上与战友们分享了歌曲录制的整个过程。
 
-郭文贵先生爆料，来自中共国安、特警、军队和中国银行的20个人持假护照，绑架马云和其家人，在西班牙进行资产转移。这是中共绑架私营企业家，通过中共控制媒体公开欺诈全世界投资者，对西方世界的最大侮辱、诈骗、刑事犯罪。中外的私营企业家、基金经理是选择继续与中共一起进行经济欺骗和刑事犯罪，还是选择与新中国联邦合作灭共，完全取决于企业家个人自己的选择。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-14.jpeg)
 
-郭先生明确发出公告，只要满足两个条件：第一，和当地政府、法律界合作，揭露中共对全世界正在进行的生化、经济、技术、军事、情报超限战；第二，能和爆料革命合作灭共，必须坚定承认新中国联邦宣言，新中国联邦可以给予一切的帮助。
+事实上，《沧海一声啸》是2020年中共病毒大爆发期间，由唐平、威廉王为郭先生创作的第一支个人单曲。歌曲当时在网络上一经发布，随即在中共国内产生了巨大反响。为此，中共曾一度封杀该曲。此次郭先生与三位音乐人再度联手，为这首歌曲注入新的力量。
 
-新中国联邦能够协调全世界80多个国家给予方便和保护。在过去半年多，新中国联邦救了多少人当事人和历史有记录。哪怕是在天安门城楼新中国联邦也能把被绑架的私营企业家救出来，保证正常人的生活，保证安全。
+众所周知，郭先生的另外七支灭共单曲广受全球战友的喜爱与支持，在今年8月几经霸屏多国iTunes排行榜榜首。相信郭先生这次倾力打造的全新版《沧海一声啸》势必在全球音乐榜上掀起一股新的灭共浪潮。
 
-原文链接：https://gtv.org/broadcast/watch/61700c08304e992109b806ef
+(本文仅代表作者观点)
 
-校对发布：Shifter
+参考链接：[2021-10-16 揭秘摇滚巨星郭文贵先生与新中国联邦战友们现场录音实况](https://gtv.org/video/id=616b32f0304e992109b5fdbc)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Irene木木 
+编辑：Irene木木
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

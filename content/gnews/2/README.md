@@ -2,15 +2,17 @@
 ---
 
 
-## 白宫公布针对5-11岁儿童的疫苗计划
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1606722/)
+## 俄罗斯创纪录的死亡人数
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1606750/)
 
 翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10201.jpg)图片来自网络
-白宫公布了为 5 至 11 岁儿童接种疫苗的计划，该计划现在必须获得 FDA 的授权。据称，美国政府已获得足够的疫苗来为大约 2800 万儿童接种疫苗，该行动将涉及超过 25,000 名儿科医生、数百个甚至位于该国最偏远地区的医疗中心以及数万家药店。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10202-1.png)图片来自网路
+在最近几周由于冠状(中共)病毒造成的感染和死亡人数创纪录性的增加之后，俄罗斯普京总统已批准了一项迷你封锁的提议，规定从 10 月 30 日至 11 月 7 日停工一周，以试图阻止冠状(中共)病毒感染的传播。
+
+普京在电视讲话中敦促人们接种疫苗，根据莫斯科政府任命的监测该国大流行进展的工作组发布的数据，在过去的 24 小时内，已有 1,028死亡。
 
 免责申明：本文只代表译者观点，与Gnews无关
 
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/10/20/covid-casa-bianca-svela-piano-vaccini-a-bimbi-5-11-anni\_7cab68b3-2f6a-48dc-992c-9e5741e864be.html](https://www.ansa.it/sito/notizie/topnews/2021/10/20/covid-casa-bianca-svela-piano-vaccini-a-bimbi-5-11-anni_7cab68b3-2f6a-48dc-992c-9e5741e864be.html)
+原文链接：[https://www.today.it/mondo/russia-mini-lockdown.html](https://www.today.it/mondo/russia-mini-lockdown.html)
 
 责任编辑/发布：意大利达芬奇农场   萧亦

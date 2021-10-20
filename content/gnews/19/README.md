@@ -2,34 +2,65 @@
 ---
 
 
-## 马云在处理的财产大概三千多笔,蔡崇信洗掉马去75%的钱
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1606523/)
+## 我担心医生的信誉下降
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1606538/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/7617-icqznha8812694_副本.jpg)
-据郭文贵先生2021年10月20日大直播——
+作者：Ezra Levant / Rebel News
 
-我再告诉大家现在马云在干什么，马云处理的资产有涉及多少笔呢？大概3000多笔。在美国最重要的人物大家知道是谁吗？叫蔡崇信，蔡崇信你可以来告我，你不来告我你是王八蛋，就买了洋基队的美国的最牛的所谓来自台湾的蔡崇信，蔡崇信买的洋基队的钱几十亿美元的钱，还有刚刚的在我对面就纽约的Central Park220号——最牛的、全曼哈顿最贵的房子，对面是15号，是当年的海航买的，还有对面157号是王岐山买的，已经都卖完了。这个上面最顶楼5楼，5层最高2.5亿美元成交的是马云的房子，不是蔡崇信的，现在要求全部都得卖掉。
+我担心医生的信誉度下降。
 
-蔡崇信所有持有的财富75%都是马云的，这涉及到什么都知道了吗？大家知道什么意思吗？微蓝知道吗？这叫洗钱，这叫洗钱，不如实地在美国政府、税务局和在美国交易当中如实披露最终受益人这是洗钱，蔡崇信涉嫌洗钱，蔡崇信洗掉了马云的75%的钱。
+个别医生，并不是因为他们在道德上软弱或道德上邪恶，并如此，我认为医生，我指的是每天行医的真正医生。我认为他们是周围最值得信赖的人之一。尤其是那些足够了解患者的人，以至于他们给予真正适合该人的处方，而不是将一个人塞进处方中。
 
-视频协作：天边小面包
+但医疗保健领域正在发生一些奇怪的事情。
 
-撰稿：喜马拉雅的肉夹馍
+这些人是建设的英雄。
 
-审核：喜马拉雅的馍夹肉
+在英国，他们有这样的事情，每个人晚上都会走出家门，敲打锅碗瓢盆，象征性地感谢护士和医生。
 
-校对：Maarago
+我担心医生和护士的声誉，不是草根，而是老板，那些花哨的人，那些经营医院和长期护理院的人，那些会从阿片类药物那里收受百万美元贿赂公司的人，而且现在肯定的目标是疫苗公司——使用阿斯利康！不，使用辉瑞！不，使用摩德纳！数百亿美元正在流向他们。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+还有名声和名人效应，这对医生来说比金钱更令人陶醉。做电视医生、电视明星？从无名到成名！你也可以像安东尼福奇一样。他是明星，你也可以。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+但我担心我们不能那么信任医生，至少不是全部。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+这不好。这对公共健康或个人健康都不利。看这个。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Doctor-1.png)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+这是特鲁多的疫苗广告。那是最基础的。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+现在，你可以为那条推文讨价还价。里面有简化的意见。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+但它可以作为一个诚实的意见。它没有谈论副作用，尤其是对年轻男性。
+
+它并没有告诉您，年轻人因接种疫苗而去医院的可能性是因病毒而去医院是一般情況下的 6 倍。
+
+它并没有告诉你国外已经禁止了某些针对年轻男性的疫苗。这并不完全诚实。那是特鲁多给你的。
+
+但除此之外，还有一条来自萨斯喀彻温省的斯科特·莫通过萨斯喀彻温省卫生局发布的特鲁多推文。
+
+你知道他们知道他们在撒谎，因为看看他们做了什么——他们禁止任何人在推特上以正常方式回复。
+
+这是我的简单回答：
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Doctor-2.png)
+
+他们知道病毒不会平等地针对每个人。他们知道你知道。他们知道你知道他们知道。这就是他们阻止回复的原因。这就是为什么这条推文很重要。这是一个测试。你会通过还是失败？
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

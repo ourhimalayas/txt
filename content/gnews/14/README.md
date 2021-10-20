@@ -2,49 +2,37 @@
 ---
 
 
-## 华盛顿州立大学橄榄球主教练因拒绝接种疫苗被解雇
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1606593/)
+## 郭文贵Gettr/GTV双直播测试摘要和音频 2021.10.18
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1606594/)
 
-作者：纽约香草山农场 – 雪梨
+摘要撰稿人： 文俊
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
-
-
+音频提供者： 左媛
 
 
-
-周一，华盛顿州立大学体育总监帕特·春和校长柯克·舒尔茨在新闻发布会上宣布，因未按照州政府规定的、于本周一前完成新冠疫苗接种，该校橄榄球主教练尼克·罗洛维奇，及四名助理教练被解雇。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1256-1.jpg)图片来源：[lifesitenews.com](https://www.lifesitenews.com/news/major-university-fires-head-football-coach-over-vax-refusal-after-rejecting-exemption-request/?utm_source=top_news&amp;utm_campaign=usa)
-
-据悉，罗洛维奇年薪超过300万美元，是工资最高的州政府雇员，合同预计到2025年结束。7月，他曾发表推文，明确表示不会接种疫苗；并于10月9日提交宗教豁免申请，但遭到拒绝。
-
-本月12日，因拒绝接种疫苗，NBA球星凯里·欧文被篮网队禁赛，引发球迷和媒体的广泛关注和讨论。虽完成疫苗接种，美国加州佐治亚大学体育专业学生肖恩·库恩，仍感染新冠病毒，并于近期去世。且因接种毒针疫苗，导致病毒感染，甚至死亡的案例层出不穷。如果政府继续强制执行接种令，欧文等体育界有影响力人物的挺身而出，将激发更多的人探究和了解疫苗真相。
-
-（本文仅代表作者观点）
-
-**参考阅读：**
-
-1. [Head football coach at Washington State University denied religious exemption for COVID shot, gets fired – LifeSite (lifesitenews.com)](https://www.lifesitenews.com/news/major-university-fires-head-football-coach-over-vax-refusal-after-rejecting-exemption-request/?utm_source=top_news&amp;utm_campaign=usa)
-2. [Washington State fires football coach Nick Rolovich, 4 assistants for refusing state-mandated COVID-19 vaccine (espn.com)](https://www.espn.com/college-football/story/_/id/32426315/nick-rolovich-washington-state-football-coach-refusing-state-mandated-covid-19-vaccine-source-says)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-20-at-1.52.09-PM.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+### 视频：
 
-校对/发稿：小鹿
+[视频链接：](https://gettr.com/streaming/pejgy3dc01)
 
+### 音频：
 
+### 摘要：
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+1. 资本没有祖国，但是有主人啊，中国人的钱要还给中国人
+2. 虚拟货币区块链和金融区块链是两回事，比特币金融不区块链是不安全的，喜币金融区块链 安全 便捷 合法
+3. 中国人是没有社保的“中国是社保基金不是社保制度”基金赔了就赔了
+4. 中国社保第一条大病等死 小病分等级 治死不治活
+5. 中国医院是盈利机构
+6. 中国人洗脑不是我们能说清楚的，七哥家人打两针、担心七哥没钱、担心七哥没钱打疫苗
+7. 社保基金投了平安，平安倒了就没有了
+8. 老领导相信疫苗 打两针 突发心脏病去世
+9. 七哥英国朋友，打三针高纯度250克疫苗，有反应
+10. 高纯度（250克）疫苗每针等于80-100亿分子
+11. 长岛哥：后补喜币不一定是联盟代持
+12. GTV KYC被拒审核一月时间，长岛：可能正常耐心等待
+13. 美加日KYC没时候开始，长岛：根据每个国家政策，应该日本是最快的
+14. 长岛哥：小额三千起步，低于三千，除非老战友 有贡献 农场审核
+15. GTV 30号重建会不会延期，长岛哥：个人认为可能会延期，具体看GTV投资联盟公告

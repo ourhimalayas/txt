@@ -2,33 +2,35 @@
 ---
 
 
-## 郭文贵先生倾力打造灭共单曲《沧海一声啸》
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1606357/)
+## 俄克拉荷马州长反对拜登疫苗强制令，称接种是个人自由
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1606392/)
 
-作者：AlexZ
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-纽约当地时间10月16日下午5时左右，郭文贵先生携手三位音乐制作人唐平、威廉王、QMay再次走进录音棚，共同打造灭共单曲《沧海一声啸》。同时，郭先生也在GTV直播上与战友们分享了歌曲录制的整个过程。
+【评论：】*最近我们看到了很多关于抵制中共病毒疫苗强制接种的积极消息，例如佛罗里达州的莱昂县（Leon County）因违反了佛州的疫苗护照禁令在10月12日被佛州卫生局罚款350万美元 ；德克萨斯州州长格雷格.阿博特（Greg Abbott）表示在德克萨斯州不得有任何实体对任何个人包括雇员和消费者，也包括那些之前感染病毒后康复的患者采取强制疫苗接种的要求；美国众多议员及工作人员和家人服务伊维菌素治愈中共病毒等。好消息不断，有良知和正义的人正在觉醒。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-14.jpeg)
+据《网关专家》记者 Cassandra Fairbanks，2021年10月14日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-396.png)图片源自thegatewaypundit.com
+俄克拉荷马州州长凯文·斯蒂特 (Kevin Stitt) 宣布，他们将把拜登政府告上法庭，原因是他们计划对拥有 100 名以上员工的企业实施疫苗强制接种。
 
-事实上，《沧海一声啸》是2020年中共病毒大爆发期间，由唐平、威廉王为郭先生创作的第一支个人单曲。歌曲当时在网络上一经发布，随即在中共国内产生了巨大反响。为此，中共曾一度封杀该曲。此次郭先生与三位音乐人再度联手，为这首歌曲注入新的力量。
+在周四发布的一段视频中，斯蒂特州长表示，“这一行动不仅是联邦政府的越权行为，而且也违反了宪法，接种疫苗与否应该尊重个人选择。”
 
-众所周知，郭先生的另外七支灭共单曲广受全球战友的喜爱与支持，在今年8月几经霸屏多国iTunes排行榜榜首。相信郭先生这次倾力打造的全新版《沧海一声啸》势必在全球音乐榜上掀起一股新的灭共浪潮。
+斯蒂特在视频中说：“接种疫苗是个人选择。 死板的、一刀切式的静态指令根本不符合我们今天所处的现实。在俄克拉荷马州，病例和住院人数下降了近 50%。 伴随病毒的演变，也出现了科学的治疗方法，包括人们对自然免疫的选择。”
 
-(本文仅代表作者观点)
+斯蒂特补充说：“拜登总统政府不尊重个人自由。我不敢相信我们的总统想要迫使美国人在疫苗和工作之间做出选择。受此影响的不仅仅是统计数据，还包括我们俄克拉荷马州人，他们真正为此担忧，他们或者是勇敢的护士和守护者，或是翘首期盼的父亲和母亲，亦或是应急人员和勇敢执法者。”
 
-参考链接：[2021-10-16 揭秘摇滚巨星郭文贵先生与新中国联邦战友们现场录音实况](https://gtv.org/video/id=616b32f0304e992109b5fdbc)
+司法部长约翰·奥康纳（John O ‘Connor）也谴责了这项即将出台的疫苗强制接种令。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+奥康纳在一份声明中说：“一旦联邦紧急状态条例发布，对雇主提出这种非法要求，我们办公室将与全国各地的其他州检察长一道，迅速提起诉讼并寻求禁令，禁止任何实施或强制行为的发生。”
 
-总编：Irene木木 
-编辑：Irene木木
-校正/发稿：谐趣园
+原文连接[https://www.thegatewaypundit.com/2021/10/watch-oklahoma-governor-stands-bidens-vaccine-mandates-says-shots-personal-choice/](https://www.thegatewaypundit.com/2021/10/watch-oklahoma-governor-stands-bidens-vaccine-mandates-says-shots-personal-choice/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+翻译：洛杉矶盘古农场 – 钢蛋儿
+
+校对：洛杉矶盘古农场 – Mike Li
+
+评论：洛杉矶盘古农场 – 钢蛋儿
+
+编辑：洛杉矶盘古农场 – Wendy
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

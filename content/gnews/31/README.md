@@ -2,37 +2,19 @@
 ---
 
 
-## 中共社保基金实为一千亿，96%给了中共退休干部
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1606342/)
+## 文贵爆料10/20被绑架的私营企业家若和新中国联邦合作灭共 在天安门城楼也能把你救出！
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1606356/)
 
-作者：正义的小新
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-文贵先生在18日的直播中谈及了中共国的社保问题。
+撰稿：Shifter 【秘翻原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-20-at-11.05.33-AM.png)图片来源：GTV
+2021年10月20日，新中国联邦大直播爆料中郭文贵先生明确向所有被中共绑架的中国私营企业家喊话，如果和当地政府合作与新中国联邦一起合作灭共，哪怕你们是在天安门城楼，爆料革命和新中国联邦也能把你们救出来。只有新中国联邦没有任何人和机构力量可以做到这一点！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide8-7.jpeg)
+郭文贵先生爆料，来自中共国安、特警、军队和中国银行的20个人持假护照，绑架马云和其家人，在西班牙进行资产转移。这是中共绑架私营企业家，通过中共控制媒体公开欺诈全世界投资者，对西方世界的最大侮辱、诈骗、刑事犯罪。中外的私营企业家、基金经理是选择继续与中共一起进行经济欺骗和刑事犯罪，还是选择与新中国联邦合作灭共，完全取决于企业家个人自己的选择。
 
-据文贵先生爆料，中共全国社保基金总额，名义上有两千五百亿美元，实则仅余一千亿美元。这当中，有96%的社保金都给了中共的退休党员干部。
+郭先生明确发出公告，只要满足两个条件：第一，和当地政府、法律界合作，揭露中共对全世界正在进行的生化、经济、技术、军事、情报超限战；第二，能和爆料革命合作灭共，必须坚定承认新中国联邦宣言，新中国联邦可以给予一切的帮助。
 
-文贵先生指出，中共退休的党员干部目前大约有1.3亿。也就是说，中国十四亿人中除了中共党员干部的家人外，剩下的13亿百姓只能得到全国社保的4%。
+新中国联邦能够协调全世界80多个国家给予方便和保护。在过去半年多，新中国联邦救了多少人当事人和历史有记录。哪怕是在天安门城楼新中国联邦也能把被绑架的私营企业家救出来，保证正常人的生活，保证安全。
 
-此外，文贵先生还提到，中共国并没有社保制度，只有社保基金。而社保基金是法人机构，自负盈亏。中共社保基金最早的法人是车峰的岳父、原中国银行行长戴相龙。后来，车峰说服戴相龙，以骗取社保基金来投资上市公司。另据郭先生指出，平安集团如今拿走了全中国社保基金的45%。一旦平安集团暴雷，这些钱将再无法追回。
+原文链接：https://gtv.org/broadcast/watch/61700c08304e992109b806ef
 
-中国的老百姓本来就没有钱，还要将钱给社保基金。但社保基金盈利与否，都要由老百姓承担后果。到头来，受苦的还是老百姓。
-
-(本文仅代表作者观点)
-
-参考链接：[2021年10月18日郭文贵先生直播（盖特直播测试）全文字版](https://gnews.org/zh-hans/1604880/)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编：Irene木木 
-编辑：Irene木木
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对发布：Shifter
