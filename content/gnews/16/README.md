@@ -2,30 +2,54 @@
 ---
 
 
-## 纽约州总检察长责令两加密货币交易平台关闭在该州的业务
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1605067/)
+## 除非完全接种疫苗，否则德约科维奇将无缘澳网赛事
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1605122/)
 
-【**简评】加密货币最吸引人的方面之一是其底层的区块链分类账系统使其无法被黑客入侵。但这并不意味着对加密货币的投资不受欺诈的影响。最近纽约州最高法院关闭的加密货币交易平台之一 Coinseed ，对它的指控其中包括：在纽约未注册的情况下作为商品经纪交易商运营；出售加密代币；在投资者不知情的情况下将所有投资者持有的资产转移到狗狗币中，造成投资者的损失。 。 。**
+#### 【**雅****典娜快讯】，紧贴时事脉搏**
 
-**美国财政部也表示，加密货币的崛起可能影响到美国经济制裁措施的成效。到目前为止，加密货币行业仍旧处于监管的“灰色地带”之中，在这个行业与全球监管机构之间关系日益紧张的形势下，美国监管机构一直都在加大对该行业的监管力度。**
+#### **编译报导：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-11.jpg)
+图片来源：7 News
 
-**据《突发新闻》记者：Christian Baha，2021年10月18日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl-13.jpg)图片来源：《突发新闻》
-纽约州总检察长利蒂希娅·詹姆斯（Letitia James）办公室周一宣布，该州两家加密货币借贷平台被勒令关闭。
+如果世界排名第一的网球运动员诺瓦克·德约科维奇没有完全接种疫苗，他将不能参加明年的澳网比赛。
 
-此外，还有三家加密货币平台被要求提供有关其业务的信息。
+10月20日，维多利亚州移民部长亚历克斯·霍克周三早上证实，任何希望在今年夏天参加澳大利亚比赛的体育明星都需要接种两剂TGA批准的疫苗。
 
-詹姆斯说:“与其他所有公司一样，加密货币平台也必须遵守法律。”并断言“今天的行动……发出一个信号，我们将毫不犹豫地采取任何必要的行动，打击任何认为自己凌驾于法律之上的公司。”
+“我们的健康建议是，当我们开放边境时，每个来到澳大利亚的人都必须接种双重疫苗，”霍克先生告诉媒体。
 
-**原文连接**：[https://breakingthenews.net/Article/NYC-AG-orders-closure-of-2-crypto-trading-platforms/56551766](https://breakingthenews.net/Article/NYC-AG-orders-closure-of-2-crypto-trading-platforms/56551766)
+本周二，州长丹尼尔·安德鲁斯曾表示，未接种疫苗的网球运动员不会获得进入阿德利亚的签证。随即霍克先生发出了直言不讳的信息，如果运动员不接种疫苗将面临隔离（两周），而接种疫苗的球员则不会。
 
-**(本文评论仅代表个人观点）**
+“我认为未接种疫苗的网球运动员不会获得进入这个国家的签证”，他说：“如果他们确实获得了签证，他们可能需要隔离几周，而其他球员则不必。”
 
-翻译：洛杉矶盘古农场 – 钢蛋儿
-校对：洛杉矶盘古农场 – Mike Li
-评论/编辑：洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+“我不认为任何其他（不接种疫苗）网球运动员、高尔夫球手或一级方程式赛车手会获得签证来这里。”
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+“疫苗并不关心你的网球排名是多少，或者你赢得了多少个大满贯。对不起，病毒也不在乎。”
+
+“职业体育列入是（疫苗）授权工作清单的一部分，运动员必须接种双倍剂量的疫苗。”
+
+世界排名第一的德约科维奇已连续四次获得澳网冠军，他拒绝透露他是否接种了疫苗。本周早些时候告诉塞尔维亚媒体，这是个人“私事”。
+
+“事情就是这样，我仍然不知道我是否会去墨尔本，”德约科维奇说。
+
+“不会透露我是否接种过疫苗的状态，这是私事，这个询问是不恰当的。”
+
+“我当然想去，澳大利亚是我最成功的大满贯赛事。我想参加比赛，我热爱这项运动，而且我仍然充满动力。”
+
+“我正在关注澳网的情况……我相信今年会有很多限制，但我怀疑会有太多变化。”
+
+在2021年澳网公开赛上，德约科维奇公开批评澳大利亚政府强制运动员隔离两周。
+
+德约科维奇去年感染了新冠病毒，并因举办一场导致其他人感染病毒的派对而受到广泛批评。
+
+(本文仅代表作者个人观点，与Gnews 无关)
+
+原文链接：[Australian Open 2022: Novak Djokovic vaccination stance, not allowed into Australia, tennis news | news.com.au — Australia’s leading news site](https://www.news.com.au/sport/tennis/world-no1-novak-djokovic-wont-be-allowed-to-play-at-australian-open-unless-vaccinated/news-story/2651ce6d7b93feb61adb3995cb203325)
+
+**编辑****/发布：文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

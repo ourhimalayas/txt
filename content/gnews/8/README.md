@@ -2,25 +2,21 @@
 ---
 
 
-## 雷军退出上海小米金融公司董事 法定代表人变更
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1605138/)
+## 美官方或批准“混合搭配”疫苗加强接种方案
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1605205/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/SmBVYZ942IEsIp.jpg)雷军退出上海小米金融公司董事 法定代表人变更 网络图片
-据手机中国10月18日报道，上海小米金融信息服务有限公司发生工商变更，雷军、洪锋、林斌退出公司董事，林世伟任职董事、总经理，法定代表人由洪锋变更为林世伟。
+采编：文明       编译撰写：苦尽甜来 (文来）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/covid-coronavirus-vaccine-768x432-1.jpg)
+[图片来源](https://www.insurancejournal.com/news/national/2020/10/30/588822.htm)
 
-上海小米信息公司成立于2015年7月16日，注册资本为3000万元，现由天星数科科技有限公司100%控股。8月25日，小米集团总收入为878亿元，净利润63亿元。在金融科技方面，小米其他增值服务收入达16亿元，包含此业务在内的互联网服务版块收入为70亿元。
+据美国【福克斯新闻】10月18日转播《纽约时报》新闻报道称，美国食品和药物管理局计划批准美国人进行加强注射与最初接种不同的新冠病毒疫苗。
 
-雷军退出了，这一片忠心能不能买条命？拭目以待。下一个是谁？
+美国食品和药物管理局于 9 月批准了为 65 岁以上和其他易感染人群注射辉瑞公司疫苗的加强针，而上周类似的指导方案也被批准用于莫德纳疫苗。尽管强生疫苗与其他公司的不同，它只需要一次初始剂量，但现在也已被批准用于本次新冠病毒疫苗的加强接种。
 
-新闻参考链接：[https://c.m.163.com/news/a/GMJV4KLK051191D6.html?spss=newsapp](https://c.m.163.com/news/a/GMJV4KLK051191D6.html?spss=newsapp)
+安东尼·福奇此前曾表示，他相信强生疫苗应该类似于莫德纳和辉瑞的产品，分两次剂量进行接种。并支持“混合匹配疫苗接种”的方案，称那些最初接受强生疫苗的人可以灵活接受其他种类疫苗的加强注射。
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+在拜登总统于 8 月宣布开展全国性的推广“新冠病毒疫苗加强针”活动后，各州卫生官员对被要求批准“混合搭配疫苗接种”方案面临越来越大的压力。同时也引发了人们对某些地区因某些疫苗供应不足的担忧。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+编辑校对：硫酸羟氯喹64
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[原文链接：](https://www.foxnews.com/politics/fda-approves-a-mix-match-approach-vaccine-booster-shots)

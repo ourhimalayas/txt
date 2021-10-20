@@ -2,53 +2,12 @@
 ---
 
 
-## 武汉实验室宣布只雇用中共党员
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1605146/)
+## 中俄军舰首次联合通过日本津轻海峡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1605208/)
 
-作者：Natalie Winters
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10._20-scaled.jpg)
+（文章仅代表作者个人观点，与GNEWS无关）
 
-据《国家脉搏》透露，现在人们普遍认为武汉病毒学研究所是导致新冠大流行的罪魁祸首，它正在启动一个由另外七个实验室组成的新网络，其中一些设施专门雇用中共党员。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/CCP.jpeg)
-
-实验室网站上的几个帖子显示了其中一个新设施：江夏实验室的职位空缺。武汉及其实验得到了美国领先机构的资助和支持，例如安东尼·福奇国家过敏和传染病研究所。
-
-“江夏实验室是武汉病毒所牵头的湖北省首批七家湖北实验室之一，”该实验室解释说，其宗旨是“凝聚新发传染病防控领域优势力量，省内外生物安全，打造新一代检测试剂和设备，研发和储备抗病毒疫苗和药物。”
-
-一个5月17日交于实验室名单第一资格“管理”位置“中国共产党党员，35岁及以下，身体健康。”
-
-“具有1年以上公共事务管理和党务工作经验者优先，”申请说明补充道。
-
-岗位职责包括“实验室党建日常工作，包括制定工作制度，负责党支部建设和党员日常管理工作，编写和报告各种材料，负责实验室培养建设。”
-
-8 月 25 日发布的另一份 “人力资源管理” 职位空缺将第一个 “任命条件” 列为 “中国共产党员” 。
-
-10月14日职位空缺广告已经被发布到武汉病毒网站。
-
-武汉病毒研究所的七个实验室扩建根据《国家脉搏》揭示了该机构如何在中国共产党的直接控制下运作，包括因努力提升“党性”和承诺实现党的目标而获得政权奖励“在共产主义学习期间毫不妥协”。
-
-据其中文网站称，该实验室举行例行会议，以提高“党性”和“政治觉悟”，包括“迎接中国共产党第十八次全国代表大会”等活动。
-
-武汉病毒学研究所连接着中国共产党，也和正值美国国家过敏症和传染病研究所（NIAID）主任安东尼·福奇决定用美国纳税人的钱资助该实验室的决定有关系。
-
-该研究与彼得·达萨克等美国科学家合作进行，重点是操纵类似于新冠的蝙蝠冠状病毒。
-
-來源：[https://thenationalpulse.com/exclusive/wuhan-lab-launches-new-lab-for-ccp-members/](https://thenationalpulse.com/exclusive/wuhan-lab-launches-new-lab-for-ccp-members/)
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+*编辑：东京樱花团/简报小组*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
