@@ -2,20 +2,38 @@
 ---
 
 
-## 州长害怕逃跑了
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1605660/)
+## 疫苗灾情｜美国 35 岁疫苗拥趸孕期接种后致新生儿夭折
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1605744/)
 
-撰稿：文雨
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-10.jpg)图片来自网络截图
-今天在电视上看到了一张恐惧的脸，Michael Gunner北领地州长！一周前州长强硬地在电视上宣布了凡是从事与公众接触的职业，都必须在11月13日完成第一剂新冠疫苗的接种，否则将失去工作。而雇佣他们的雇主一经发现违反规定，将面临5000澳元的罚款，他的政策宣布后导致了上周六在州政府门前的大规模抗议，很多反疫苗团体和人们聚集在此，愤怒的人群高喊着口号，也有人将州长家的地址发布到了网上⋯⋯
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 20/10/2021**
 
-面对抗议的人们，州长周六就命令他的夫人和孩子离开了家，他说他感到了威胁，他感到了害怕。其实这位州长的恐惧已由来已久，早在今年九月，他就命令州议会升级在他家对他家人的固定人员保护，他说他家庭的私人保安系统存在被跟踪的风险，由此可见，州长早已恐惧之极！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpg)
 
-这次疫苗并非强制，为何州长有如此大权力以他的命令让不接种的人失去工作，失去饭碗？这就是变相强制！正是州长的所做所为先让人们感到了不安全，让人们失去了希望，让人们无法再忍受下去，才使得矛盾上升得如此激烈，这次轮到州长慌神了！其次，州长是本地民众选举产生，而在本地为民的一个堂堂州长却要用纳税人的钱去加强他家的安保系统，这也是在这新闻里读到不可思议的内容。看来推广疫苗接种，在澳洲这片土地上，政客们的丑态百出。
+【美国】华盛顿一名拥有公共卫生硕士学位的 35 岁女性 Amanda Makulec 在孕期接种 COVID-19 疫苗后，导致她 21 个月大的新生儿突然死亡。这是又一个怀孕后接种疫苗的不幸事件。
 
-参考来源：
+Amanda 一直以来都是新冠疫苗的拥趸，同时亦是美国民主党的坚定支持者，她会逐字逐句反驳一切质疑疾病控制中心、主流媒体的每一个观点。因此，尽管 Amanda 2020 年 11 月左右得知自己怀孕，即将迎来第二个孩子，她仍然选择于 3 月 17 日接受了第一针 mRNA 疫苗，并按时接受第二针注射。
 
-[https://www.abc.net.au/news/2021-10-19/nt-chief-minister-michael-gunner-address-anti-vaccine-protest/100550236](https://www.abc.net.au/news/2021-10-19/nt-chief-minister-michael-gunner-address-anti-vaccine-protest/100550236)
+7月中旬，Amanda 生下一个小男孩，并在社交平台分享了自己在孕期接种疫苗并顺利产子的实例，更谈及自己孕期及哺乳期接种疫苗后，可让婴儿“分享母亲的免疫保护”。
 
-(本文纯属个人观点，与Gnews无关)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-loves-vaxx.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-vaxx1.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-Sept-18.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-J-and-J-defense.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-echo1.png)
+
+
+之后，Amanda 开始经常宣传及鼓励大家接种疫苗，多条贴文都特意标注 #GetVaccined 标签。
+
+可惜，最不幸的事还是发生了，9 月 27 日，她在推特发文指，“昨天，我 2 1/2 个月大的男婴『突然意外去世』。”但当出现有多人在评论区留言指“疫苗是导致悲剧的主要原因”时，她很快就锁住了自己的账户。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-baby-dies.png)
+
+**小编有话说**：虽然该个案中的当事人有“咎由自取”之嫌，惟希望读者不要就这个问题嘲讽当事人，痛失孩子已是莫大伤害，任何一个疫苗灾难的背后，最该被斥责和批判的，是蓄意用疫苗杀害普通民众的少数权贵阶层。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/39-1.jpg)
+
+来源｜[个案039](https://thecovidblog.com/2021/10/02/amanda-makulec-35-year-old-washington-d-c-woman-gloats-of-being-vaccinated-pregnant-breastfeeding-newborn-son-dies-at-two-half-months/)
+
+* * *
+
+他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//

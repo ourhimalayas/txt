@@ -2,18 +2,20 @@
 ---
 
 
-## 微软：比尔•盖茨桃色电邮确有其事
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1605257/)
+## “Let&#8217;s Go Brandon”成美国最火国骂 抗议拜登完美避开审查
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1605305/)
 
-#### 编译：沙子最怕你不理它
+#### 编译：花岗岩
 校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-36.jpg)图片来源：网络截图
-据 CNN 10月19日报道，微软周一证实，在微软董事会调查创始人比尔•盖茨（Bill Gates）与一名员工的暧昧关系之前，他的高管同事们曾要求盖茨停止与另外一名员工发送不正当电子邮件。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/7-12.jpg)图片来源：网络截图
+据美国太阳（The U.S. Sun）网站10月19日报道，川普的前助手杰森·米勒（Jason Miller  ）说，“Let’s Go Brandon”（布兰登加油）这个梗使美国可以在没有审查的情况下抗议拜登政府。
 
-知情人士透露，早在2008年，当盖茨还是微软员工和董事长时，高管们发现了他在一年前与一名中级女员工之间电子邮件，他要求该员工在工作之余会面。据《华尔街日报》（Wall Street Journal）报道，当时的总法律顾问布拉德·史密斯和当时的首席人事官丽莎·布鲁梅尔会见了盖茨，告诉他这种行为不合适，应该停止，盖茨同意了。
+10月2日，纳斯卡（NASCAR）车手布兰登·布朗在阿拉巴马州的塔拉迪加超速赛道上赢得了他的第一场 Xfinity 系列赛后，米勒组织了带有这一口号的飞机飞越川普集会的活动。在布兰等赛后接受NBC体育记者凯利·斯塔瓦斯特（Kelli Stavast）采访时，现场听到观众高呼 “F\*\*k Joe Biden”，斯塔瓦斯特似乎听错了口号，声称人群在说 “Let’s go Brandon”。
 
-上述事件微软已经确认但不予置评。虽然盖茨发言人布里吉特·阿诺德在给《华尔街日报》的书面声明中否认了这些说法，但盖茨的代表却没有回应CNN Business的多次置评请求。今年早些时候，盖茨与妻子梅林达·弗伦奇·盖茨离婚时，也有对其相似的指控。（CNN尚未独立证实所有指控。）
+从那时起，互联网上的这句话就被炒得沸沸扬扬。许多反对拜登的人把这句话作为他们的新口头禅，制作商品或在体育赛事中高呼。然而，盖特首席执行官米勒声称，这句口号有更重大的意义，它让美国人可以在没有审查的情况下进行抗议。米勒告诉《太阳报》。“布兰登加油”体现了主流媒体与美国人民是多么的脱节。NBC的记者没有听出这句话的真实含义是对失败的拜登政府的抗议，而是进入了“止损”模式，并编造了更多假新闻。
 
-2020年辞去微软董事会职务之前，比尔·盖茨被举报试图在2000年与一名公司员工建立亲密关系。董事会聘请了一家律师事务所来调查他几年前与微软女员工的暧昧关系。调查过程中微软给予举报人很大的支持。盖茨发言人在当时给《华尔街日报》的一份声明中称2000年的关系是“20年前的一场已经和平结束的外遇事件”，并表示该公司的调查与盖茨离开董事会的决定无关。
+“Let’s go Brandon”允许各地的体育迷行使他们的宪法权利，表达他们的意见，嘲笑假新闻的疯狂，抗议拜登政府而不受审查，这正是他们在GETTR上也能做到的。我们用这架飞机表示我们相信言论自由，而且在游击营销方面，没有人比GETTR更有优势，米勒说，他是众多加入 “Let’s go Brandon”潮流的共和党人之一。
 
-新闻来源：[Bill Gates was told to stop ‘inappropriate’ emails with Microsoft employee in 2008, report says](https://www.cnn.com/2021/10/19/tech/bill-gates-microsoft-employee-emails-report/index.html)
+参议员特德·克鲁兹（Ted Cruz）周日也分享了一段他在棒球比赛中高呼 “Let’s go Brandon”的视频，似乎对总统拜登进行了暗讽。
+
+新闻来源：[‘FREEDOM’ Let’s Go Brandon allows US to ‘protest Biden without censorship,’ says Trump aide who flew planes with meme on banner](https://www.the-sun.com/news/3889229/lets-go-brandon-jason-miller/)

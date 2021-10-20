@@ -2,66 +2,51 @@
 ---
 
 
-## 英国辉瑞报告揭示了令人震惊的疫苗伤害和导致的死亡
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1605786/)
+## 美国司法部：Facebook将支付超过1400万美元的和解费
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1605828/)
 
-编译： Jenny Ball
+编译：西班牙喜悦农场–wenwu
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-386.png)
+图片来源：washingtonpost.com
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-384.png)
+美国官员周二（19日）表示，Facebook 已同意支付总额超过 1400 万美元的罚款，根据与司法部达成的和解协议，Facebook 公司的招聘行为属于引入外国人和故意歧视美国人。
 
-图片来源： naturalnews.com
+这些官员们表示，这家社交媒体巨头还与劳工部达成和解，同意采取更多措施招聘美国人从事技术工作，并接受长达三年的联邦审查。
 
-《自然新闻》([Natural News](https://www.naturalnews.com/))据估计，只有1%的疫苗不良事件被报告，主要是因为人们要么害怕，要么就是看不到或想象不到相关性。毕竟，有史以来生产的每一种疫苗都常被宣传为“安全有效”，难怪孩子们不会把它唱成顺口溜。可悲的是，由现在不安全和无效的疫苗（又名刺突蛋白基因治疗注射），直接造成的成千上万的伤害和死亡（报告和未报告），这没有什么好笑的。仅看报告给英国黄卡（类似于 VAERS）的不良事件的 1%，这是一个可怕的故事，足以让任何理智的人质疑整个疫苗行业，尤其是辉瑞中共国流感疫苗。
+这些协议是司法部[于 12 月起诉 Facebook](https://www.washingtonpost.com/technology/2020/12/03/facebook-doj-immigration-lawsuit/?itid=lk_inline_manual_4) 之后达成的，因为 [Facebook](https://www.washingtonpost.com/technology/2020/12/03/facebook-doj-immigration-lawsuit/?itid=lk_inline_manual_4) 被指控没有适当地公布至少2600个职位—以及考虑美国公民的职位申请–这直接导致了职位提供给外国人——他们在2018年和2019年也因此获得永久居留权的绿卡。
 
-毕竟，谁也不会相信，正是这同一个行业，创造了基因突变的动物病毒，以使它可以首先攻击人类？ 而在世界醒来之前，在人们只见树木不见森林之前，还有多少人要受伤、濒临死亡和死去？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-395.png)
 
-- 到底有多少人因**Covid“**疫苗**”**而死亡、即将死亡或已经永久受伤？
+该诉讼[称](https://wapo.st/3n9cSEz)，Facebook 的做法违反了联邦法律，该法律要求雇主在向他们赞助的临时外国工人提供职位之前，必须证明没有合格的美国工人可用。
 
+Facebook 已同意向美国政府支付 475 万美元的民事罚款，并向 Facebook 涉嫌歧视的符合条件的受害者支付高达 950 万美元的民事罚款；官员们表示，这是美国移民法反歧视条款中最大的货币和解，而且司法部将与该公司合作，以确定潜在的受害者。但他们表示，现在知道有多少人可能有资格获得损害赔偿，还为时过早。
 
-你知道吗，如果你在接种 Covid 疫苗后一小时死亡，医生和医院不会责怪疫苗？他们只是进行 PCR 测试（几乎总是假阳性结果）并宣布受害者死于 Covid，并补充说，疫苗还没有到生效时间（声称是 2 周，这意味着您“未正式接种疫苗”） ，有评论患者一个小时前，甚至几天前刚刚接受的实验性的、致命的、凝血疫苗。您可以确定，如果您一个月前的 Covid 检测呈阳性，您肯定会被贴上 Covid 导致的死亡标签。
+“Facebook 不能凌驾于法律之上，必须遵守国家的联邦民权法，”负责司法部民权部门的助理司法部长克里斯汀·克拉克 (Kristen Clarke) 说。“公司不能因为他们的公民身份或移民身份而将某些职位留给临时签证持有人。”
 
-（**评论：那是不是我如果給一个人的美味饭里放了毒，这个人吃后立刻就断了气，我可以用CDC“专家”的逻辑申辩：这和我放的毒没关系，因为这个毒性还没有发作，这个人就是噎死的？用脚后跟去想也想不出这样混账的“CDC专业级”结论啊！**）
+美国官员表示，Facebook 还同意就联邦反歧视要求对其公司员工进行（知识）培训。在接下来的三年里，劳工部将审核该公司在联邦政府永久劳工证计划下，为临时签证持有人提出的申请。
 
-英国政府辉瑞 (Pfizer) 疫苗接种数据 (参见[UKcolumn.org](https://www.ukcolumn.org/video/analysis-of-us-vaers-vaccine-adverse-reactions-data-by-biostatistician-christine-cotton-part)) 中列出的常见伤害显示，疫苗伤害，有些几乎立即发生或在几天内发生，包括心脏病发作、流产、败血症、瘫痪、贝尔麻痹、中风、带状疱疹、Covid- 19、耳聋、失明和精神障碍（朊病毒病如疯牛病）。现在，从一针到两针刺突蛋白疫苗开始，可怕的问题范围怎么会如此广泛？ 答案很简单：这些疫苗受害者的血液中有数十亿个刺突蛋白，在整个血管系统中造成绝对的混乱。
+Facebook 在一份声明中表示，该公司认为它“符合联邦法律规定下的联邦政府标准”，但同意就此案进行和解，“以结束正在进行的诉讼并向前推进”。公司官员指出，司法部诉讼中提到的工作岗位数量只占 Facebook 员工队伍的一小部分。公司官员表示，截至今年第二季度，该公司在全球拥有超过6万3400名全职员工和 3000 个职位空缺。
 
-（**评论：辉瑞疫苗最大的投资人是贝莱德（Blackrock），而黑岩最大的股东是中共。中共是制造和释放病毒的根源！顺着这个最基本大逻辑去思考：制造病毒的人在制造救你的疫苗？合乎逻辑吗？**）
+该公司在声明中表示，与联邦政府达成的和解“将使我们能够继续专注于从美国和世界各地聘请最优秀的建设者，以及支持公司内部寻求永久居留权的高技能签证持有的社区群体”。
 
-无论对您的健康和可能的生命造成多大的损失，都让你立即站出来免费获得您的凝块注射液。据媒体报道，如果你支持血液凝块和因新冠疫苗注射导致数万例死亡的说法，那么你就是“反科学”。然而，由于新冠疫苗直接造成的伤亡人数不断增加，假新闻和劣药再次引发争议。
+然而，1400 万美元的罚款凸显了 Facebook 和其他科技巨头，如何无法逃脱川普时代开始对其业务进行的更多严格的审查；司法部对 Facebook 的最初诉讼凸显了前美国总统与科技公司之间，在依赖高技能的外国工人方面长期存在的紧张关系。
 
-以下是发布和报道的一些疫苗伤害恐怖故事[vaccine injury horror stories posted and reported](https://theexpose.uk/2021/10/09/how-many-people-are-the-covid-19-vaccines-killing/) ，您在大众媒体上从未听说过。 如果有人在社交媒体上发布任何这些伤害或死亡信息，他们将被永久禁止。
+该行业在很大程度上与拜登白宫在移民问题上更加一致，尤其是在他改变了川普的许多政策之后。但和解协议反映了民主党人越来越关注科技巨头可能对美国工人的潜在伤害。劳工部律师西玛·南达（Seema Nanda）强调，她的机构愿意执行法律，“无论雇主的规模或范围如何”。尤其是 Facebook，多年来一直试图增加在美国的高技能外国劳工的数量，包括 H-1B 签证等项目，以为他们的高技术业务提供动力。
 
-#1. 一名被要求接受疫苗的医务人员，在注射了数十亿种堵塞血液的刺突蛋白后，不得不截肢双腿和一只手。
+司法部在去年 12 月的投诉中表示，该公司在希望雇用持有 H-1B 签证的员工担任永久职位的情况下，避开了美国传统的招聘流程。根据政府的说法，当临时签证持有人寻求这样的工作时，Facebook “偏离了其正常的招聘协议”，在某些情况下选择不“在其外部网站上宣传该职位”。
 
-#2. 一名 14 岁的男孩在第二次辉瑞注射后仅几个小时就死于大量脑出血。
+该诉讼表明，如果一名美国工人申请了他们其中一项工作——并且 Facebook 确定他们符合入职资格——该公司似乎会以不同的身份雇用他们。联邦法律一般只允许美国公司在没有合格的美国申请人的情况下，方可为临时工担任永久职位。
 
-#3. 一名婴儿因 Covid 疫苗而瘫痪。
+这一破纪录的处罚对 Facebook 的底线影响不大，因为该公司仅在今年第二季度就创造了约290亿美元的收入。
 
-#4. 一名妇女在接受第二次辉瑞注射后 12 周内，死于罕见的脑部疾病。
+但是，联邦对其招聘行为的审查增加，是因为该公司已经在与华盛顿的无数监管威胁作斗争。拜登政府已经表明了对科技巨头监管的强硬态度，政府提名了一些公司最大的批评者担任关键职位。
 
-#5. 一名海军医生说出了真相：死于疫苗的士兵多于死于病毒的士兵。
+（文章仅代表作者观点与GNEWS无关）
 
-#6. 一位母亲报告说，她的女儿在接受辉瑞注射后 5 小时死亡。
-
-#7. 一个男孩的学校让他接种了 Covid 疫苗，现在他患有严重的心脏病。
-
-#8. 一位女士的儿子是一个健康的运动员，现在他几乎连路都走不了。
-
-#9. 13% 的孕妇在接种 Covid 疫苗后不久流产。
-
-#10. 一位母亲报告说，第二次辉瑞疫苗后她成了哑巴。
-
-要知道并非每个人都有医疗保险、人寿保险或为紧急情况、永久性严重伤害和死亡而积累的储蓄。这些有毒凝块注射本身就是一种流行病，随着世界各国政府迫使更多人注射疫苗，流行病正在蔓延。
-
-将您的真实新闻发到[Pandemic.news](https://pandemic.news/2021-08-27-top-8-ways-americans-pollute-their-bodies-every-day.html) ，以随时了解 Covid 诈骗的陷阱。不需要科学家或医生就能看出[Covid疫苗](https://www.naturalnews.com/2021-09-16-covid-vaccines-devastating-long-term-effects.html)、瑞德西韦（Remdesivir）和呼吸机正在加剧大流行的问题，造成疫苗病毒的大流行。
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**参考资料： [naturalnews.com**][UK’s Pfizer report reveals SHOCKING VACCINE INJURIES and deaths from the covid jab](https://www.naturalnews.com/2021-10-19-uk-pfizer-report-shocking-vaccine-injuries-covid-jab.html) [Pandemic.news](https://www.pandemic.news/2021-03-04-who-insider-exposes-gavi-gates-perpetrating-plandemic.html) / [TruthWiki.org](http://www.truthwiki.org/cdc-centers-for-disease-control-and-prevention/) / [NaturalNews.com](https://www.naturalnews.com/2021-10-03-cdc-hospitals-fully-vaccinated-deaths-unvaccinated.html) /[ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede) / [TheExpose.uk](https://theexpose.uk/2021/10/09/how-many-people-are-the-covid-19-vaccines-killing/) / [UKcolumn.org](https://www.ukcolumn.org/video/analysis-of-us-vaers-vaccine-adverse-reactions-data-by-biostatistician-christine-cotton-part) /
+新闻来源：[washingtonpost.com] [Facebook to pay more than $14 million in Justice Dept. settlement over discrimination against American workers](https://www.washingtonpost.com/national-security/facebook-discrimination-settlement/2021/10/19/7d7f4b34-30f6-11ec-a1e5-07223c50280a_story.html)| 作者：[David Nakamura](https://www.washingtonpost.com/people/david-nakamura/) & [Cat Zakrzewski](https://www.washingtonpost.com/people/cat-zakrzewski/)｜发布时间：2021年10月19日
 
 * * *
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
+*发稿：Nuevo唐人*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
