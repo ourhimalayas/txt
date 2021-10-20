@@ -2,35 +2,27 @@
 ---
 
 
-## 华盛顿州美式足球教练因拒绝接种新冠疫苗而被解雇
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1606196/)
+## 俄罗斯请求六国协助调查纳粹的种族灭绝行为
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1606326/)
 
-作者：蓝天大海
+俄罗斯莫斯科喀秋莎农场 星河
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/h.jpg)whitespaceonline.org
+美东时间10月20日俄媒报道，俄罗斯总检察院发言人安德烈∙伊万诺夫表示，“俄罗斯已向德国、加拿大、拉脱维亚、波兰、美国和爱沙尼亚发出法律援助请求，以调查二战伟大卫国战争期间纳粹德军对苏联人民的种族灭绝行为。”
 
+伊万诺夫强调，“根据《俄罗斯刑事诉讼法》第453条和俄罗斯联邦的国际条约规定，已向德国、加拿大、拉脱维亚、波兰、美国和爱沙尼亚的主管当局发出法律援助请求。”
 
+他指出，一些国家已经向调查提供了所要求的信息。
 
-据每日邮报10月19日报道，华盛顿州立大学橄榄球教练——尼克·罗洛维奇，因拒绝接种疫苗而被解雇。尼克教练年薪三百万美元，是该州收入最高的政府雇员之一。同时被解雇的还有同一球队的助理教练。尼克教练是一名天主教徒。上周六，尼克提交了宗教豁免的申请，但并没有获得批准。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1020AM（1、3、5、6、8）視頻備用.002.jpeg)
-随着爆料革命对中共病毒及毒疫苗的不断揭露，越来越多的人们已经认识到了真相，开始反对疫苗强制接种。不久前，美国天主教维加诺大主教在一次讲话中说：强推试验性疫苗是反人类重罪，是全球范围对人类有计划的大屠杀。而今，罗洛维奇教练放弃三百万年薪，确选择拒绝接种疫苗，其勇气令人敬佩。
+伊万诺夫还称，“正在对居住在各国的前纳粹德国军人进行检查，以确认其是否参与了在伟大卫国战争时期对苏联国民的种族大屠杀。”
 
-生命对于自己只有一次，健康的活着就是最大的赢家。
-(本文仅代表作者观点)
+在俄联邦安全局解密了二战期间发生的在叶伊斯克大规模杀害儿童的材料后，俄罗斯于2019年开启了种族灭绝法律草案。这些文件说，纳粹向克拉斯诺达尔地区派出了一支装备有移动毒气室的宪兵队，该宪兵队于1942年10月在一家孤儿院进行了大规模屠杀，214名儿童成为受害者。
 
-参考链接：[Washington State football coach Nick Rolovich is FIRED from his $3m-a-year job for refusing to get COVID vaccine after his application for a religious exemption was denied](https://gnews.org/wp-admin/post-new.php?lang=zh-hans)
+居住在安大略省滑铁卢市的党卫军翻译赫尔穆特∙奥伯兰德（Helmut Oberlander）是该案的一名嫌疑人。据俄罗斯调查委员会称，在德国投降后，奥伯兰德设法逃避了初步调查，逃脱了惩罚。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+2020年3月，德国检察院要求俄罗斯当局提供这位前翻译参与大规模谋杀儿童的证据。2021年9月23日，奥伯兰德在面临审判之前就在加拿大去世。
 
-总编：Irene木木 
-编辑：正义的小新
-校正/发稿：我不在这里
+参考链接：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://www.rbc.ru/rbcfreenews/616f7b4c9a794718eef826ff](https://www.rbc.ru/rbcfreenews/616f7b4c9a794718eef826ff)

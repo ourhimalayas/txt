@@ -2,22 +2,33 @@
 ---
 
 
-## 疫苗接种者因其免疫系统受损恐难对抗呼吸道病毒威胁
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1606274/)
+## 郭文贵先生倾力打造灭共单曲《沧海一声啸》
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1606357/)
 
-采编：风云小哥     编撰：文明(添草灭共)
+作者：AlexZ
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+纽约当地时间10月16日下午5时左右，郭文贵先生携手三位音乐制作人唐平、威廉王、QMay再次走进录音棚，共同打造灭共单曲《沧海一声啸》。同时，郭先生也在GTV直播上与战友们分享了歌曲录制的整个过程。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/d-edited.png)图片来源：thegatewaypundit
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-14.jpeg)
 
+事实上，《沧海一声啸》是2020年中共病毒大爆发期间，由唐平、威廉王为郭先生创作的第一支个人单曲。歌曲当时在网络上一经发布，随即在中共国内产生了巨大反响。为此，中共曾一度封杀该曲。此次郭先生与三位音乐人再度联手，为这首歌曲注入新的力量。
 
-据【网关专家】10月19日报道，来自美国医疗前线的斯特拉医生最近接受该媒体采访时提出警告：由于接种“新冠病毒疫苗”后，群体的免疫系统将极有可能遭到破坏，无法充分抵抗呼吸道类病毒，而需要使用“羟氯喹”和“维生素”来度过这个冬季。并认为，由于该疫苗对人体RNA进行重新编码来永久持续产生刺突蛋白，因此人体免疫系统在其刺激下不断去对抗该恶性物质，自然免疫力经长期消耗会越来越弱直至完全丧失。
+众所周知，郭先生的另外七支灭共单曲广受全球战友的喜爱与支持，在今年8月几经霸屏多国iTunes排行榜榜首。相信郭先生这次倾力打造的全新版《沧海一声啸》势必在全球音乐榜上掀起一股新的灭共浪潮。
 
-此前斯特拉医生曾在2020年宣布了“羟氯喹”可以有效防治冠状病毒，但该言论却遭到主流媒体与大型医药公司的强力打压。对此，该医生表示：新冠病毒疫情犹如“特洛伊木马”，目的是为了强制人们接种破坏人体自然免疫力的疫苗，并用全球医疗暴政取代自由意志。而大规模的盲从必将导致大规模的种族灭绝！
+(本文仅代表作者观点)
 
-（以上内容仅代表原文信息和作者个人观点）
+参考链接：[2021-10-16 揭秘摇滚巨星郭文贵先生与新中国联邦战友们现场录音实况](https://gtv.org/video/id=616b32f0304e992109b5fdbc)
 
-* * *
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-校对，编辑，发稿：硫酸羟氯喹64
+总编：Irene木木 
+编辑：Irene木木
+校正/发稿：谐趣园
 
-[原文链接：](https://www.thegatewaypundit.com/2021/10/exclusive-dr-stella-immanuel-vaccinated-must-medicate-hydroxychloroquine-vitamins-survive-winter-wild-virus-video/)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

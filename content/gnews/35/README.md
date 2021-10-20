@@ -2,33 +2,21 @@
 ---
 
 
-## 2021/10/19 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1605924/)
+## 水灾后的缺粮已显现
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1605959/)
 
-**视频内容：**
+#### 撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ert.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2020%252F0723%252Fcb60327ej00qdx9os003ec000xc00m8m.jpg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FFI8F64690539BX8Z.html&amp;tbnid=yeDumOu9LhDj1M&amp;vet=12ahUKEwjQnuj12djzAhU0JaYKHZ7qCk8QMygEegUIARClAQ..i&amp;docid=qV86qo8WQz1e3M&amp;w=650&amp;h=434&amp;itg=1&amp;q=%E8%BF%9B%E5%8F%A3%E5%B0%8F%E9%BA%A6&amp;ved=2ahUKEwjQnuj12djzAhU0JaYKHZ7qCk8QMygEegUIARClAQ)
+中国新闻网哈尔滨10月19日电，黑龙江省对俄农业产业协会19日发布消息，中粮集团从俄罗斯进口的667吨小麦抵达黑河口岸，于19日脱箱卸到当地海关监管库。这是中共国首次成规模地从俄罗斯远东地区进口小麦，这打开了中俄农业合作的一个新渠道。
 
-1. 突发！10月18日下午，福建福州晋安湖摩天轮发生垮塌。据悉摩天轮耗资13.3亿元，高度超120米
-2. 10月17日，浙江宁波，盲道采用白钢材质，下雨天超级滑，“无脑设计”遭网友吐槽
-3. 10月17日，北京一幼儿园被曝针扎多名孩子
-4. 医院里患者家属正在交钱，手边的旧手机却让人泪目，省吃俭用一辈子进一次医院就要掏空积蓄
-5. 女子为省住宿费，在医院地下车库席地而睡。网友吐槽只有在医院才能真正见到老百姓生活的状态
-6. 网络红人考研教师 张雪峰吐槽保持房价的手段：把村里的学校都拆掉，逼着百姓到县里上学，维持县里房价
-7. 10月18日西藏，男子自驾游发视频吐槽疑似遭服务区“宰客”，8个菜1500，一条鱼竟要600
-8. 10月17日，许昌市城市管理执法支队开展专项行动，对辖区内违规伸缩棚进行统一整治
-9. 湖南长沙一20多岁男子刺死母亲
-10. 据莆田公安消息，莆田2死3伤案嫌犯拒捕并畏罪自杀，抢救无效死亡。嫌犯疑因多年被当地村官打压，蜗居雨棚5年而杀人。当地警方曾悬赏：抓到人给2万，找到尸体给5万
-11. 无脑的路政摄像头,影响视线和安全
+据黑龙江省对俄农业产业协会秘书处一位负责人介绍，自从20世纪90年代，黑龙江开始开展中俄农业合作以来，这是进口小麦数量最大的一次。
 
+小麦是中国人最重要的口粮之一，进口667顿的小麦，俨然成为规模？中共国是世界上最大的小麦生产国，整个中共国都有种植小麦的产区。从北到南，小麦的主产区一直都有分布。之所以要进口小麦，是南北水灾造成的严重损失，粮食危机在不久的未来一定会显现。
 
-* * *
+消息来源：[中国首次成规模进口俄罗斯小麦 667吨小麦运抵中国口岸](https://me.mbd.baidu.com/r/v2oTGESPZu?f=cp&amp;rs=1846487702&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=7212c7f377841973)
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
