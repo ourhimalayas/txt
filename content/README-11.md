@@ -16,6 +16,8 @@
 ---
 ## 頁面 11/36 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [36](/content/README-36.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
 
+[文字版：5月6日郭先生GTV直播连线Twins](/content/2020/05/20200510-2903203991693841280.md)
+
 [文字版：郭先生5月5日GTV直播](/content/2020/05/20200507-1653317726052582270.md)
 
 [文字版：5月4日郭先生GTV直播](/content/2020/05/20200507-758917873142808151.md)
@@ -63,8 +65,6 @@
 [文字版:2020年4月2日郭先生GTV视频直播提醒大家不要把战友逼成敌人](/content/2020/04/20200404-7348500743663555332.md)
 
 [文字版：2020年4月2日傍晚GTV第二次直播 共产党员该如何考虑自救了](/content/2020/04/20200404-1051683434562586641.md)
-
-[文字版：2020年4月1日文贵为什么在3月31日要谈第二次世界大战](/content/2020/04/20200403-1478603494714953028.md)
 
 
 ## 頁面 11/36 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [36](/content/README-36.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)

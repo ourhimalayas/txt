@@ -16,6 +16,8 @@
 ---
 ## 頁面 3/36 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [36](/content/README-36.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
 
+[全文字版2021年8月25日郭文贵先生以毒灭共时间线](/content/2021/08/20210825-1490238.md)
+
 [全文字版2021年8月25日郭文贵先生G-TV直播](/content/2021/08/20210825-1493884.md)
 
 [全文字版2021年8月24日郭文贵先生G-TV直播](/content/2021/08/20210824-1491517.md)
@@ -63,8 +65,6 @@
 [全文字版2021年8月7日郭文贵先生G-TV直播](/content/2021/08/20210807-1452928.md)
 
 [全文字版2021年8月4日郭文贵先生G-TV直播](/content/2021/08/20210804-1446074.md)
-
-[全文字版2021年8月3日郭文贵先生G-TV直播](/content/2021/08/20210803-1444955.md)
 
 
 ## 頁面 3/36 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [36](/content/README-36.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
