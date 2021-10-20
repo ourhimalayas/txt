@@ -2,34 +2,29 @@
 ---
 
 
-## 英国中学接种计划后多地爆发猝死病例
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1604537/)
+## 中共透过“运动式执法”迫害新疆
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1604642/)
 
-作者：安吉拉
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-位于英格兰埃塞克斯郡的约翰国王中学，所有的人都沉浸在巨大的悲痛和惊恐不安中。周一10月18日，校长通过信件公告了一条讣告， 12年级的一名少年，在无预兆的情况下于睡梦中死亡。此时距离毒针接种队进驻该学校，执行新冠疫苗计划不足两周。
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-3.jpeg)
+据德国之声10月19日报道，澳大利亚战略政策研究所 (Australian Strategic Policy Institute)发布了一份新疆报告，揭露中共在新疆如何透过“运动式执法”的治理模式来迫害与打压维吾尔人与其他少数民族。
 
-上周二，位于莱斯特郡Moat学校的一名11岁女孩因突发心脏骤停昏倒，虽然空中救援直升机和救护车很快抵达，但女孩不久后就去世了。随后该市 议会 召开了紧急会议，从10月14起，训练有素的辅导员将在各学校临阵以待，为可能突发的事件提供援助。
+据悉，这份报告引用了上千个从新疆泄漏出来的警察报告以及其他官方文件，发现中共在新疆所运用的治理模式，与毛泽东时代推动的“运动式执法”有许多相似之处。报告作者写道，除了之前已揭露的大规模关押与强迫劳动之外，新疆当地居民还会被强迫参与所谓的“政治性剧场”，包含公判大会、揭批、宣示、政令宣导课程以及喊口号。
 
-短短几个月，英美国家已出现多起青少年突发死亡的悲惨事件，而与此同时，辉瑞制药却在向FDA 和其他国家药监局施压，快速推进为低龄儿童接种新冠疫苗。9月中旬主媒已为下一轮屠戮做足了铺垫。邪恶集团最快将于万圣节期间，将死亡魔爪伸向5至11岁儿童。
+此外，澳大利亚战略政策研究所的研究员还发现，中共在新疆迫害维吾尔人的过程中，透过推动5种关键政策将共产党的党政系统深入到维吾尔人的生活中。这5个关键政策包含了在社区设置警务室、推动网格化管理、推广访惠聚、建立“三位一体工作机制”以及推动“十户联防”。
 
-(本文仅代表作者观点)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/58619783_303.jpg)图片来自于网络
 
-参考链接：[King’s Lynn school student dies suddenly](https://www.lynnnews.co.uk/news/kings-lynn-school-student-dies-suddenly-9221098/)
-[Young people aged 12 to 15 to be offered a COVID-19 vaccine](https://www.gov.uk/government/news/young-people-aged-12-to-15-to-be-offered-a-covid-19-vaccine)
-[US children aged 5 to 11 on track to receive Pfizer vaccine by Halloween](https://www.theguardian.com/society/2021/sep/20/pfizer-covid-vaccine-children-5-to-11-trial)
-[https://twitter.com/sarlou281/status/1450142510899150858?s=28](https://twitter.com/sarlou281/status/1450142510899150858?s=28)
+报告中还写道：“这些政策赋予了新疆的社区和村干部特殊的权力，让他们可以对居民的行动和情绪进行监控，从而制造令人害怕的氛围。一名维吾尔族青少年在社交媒体上发表关于对生活无望的帖子，就会被认为是对区域稳定造成威胁，也让他成为当地警察的目标。”
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+另外，报告作者之一的澳洲乐卓博大学(La Trobe University) 中国民族政策教授雷国俊 (James Leibold) 告诉德国之声，新疆以社区为基础的控制机制是中共推动加强基层治理的一部分，这个治理模式旨在动员群众帮助消除异议和不稳定，提高中国共产党在社会底层的统治力。
 
-编辑/校正/发稿：谐趣园
+*注：本文仅代表作者观点，与 Gnews无关*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*参考链接：*
+
+[澳智库：中国透过“运动式执法”强化新疆基层统治力](https://www.dw.com/zh/%E6%BE%B3%E6%99%BA%E5%BA%93%E4%B8%AD%E5%9B%BD%E9%80%8F%E8%BF%87%E8%BF%90%E5%8A%A8%E5%BC%8F%E6%89%A7%E6%B3%95%E5%BC%BA%E5%8C%96%E6%96%B0%E7%96%86%E5%9F%BA%E5%B1%82%E7%BB%9F%E6%B2%BB%E5%8A%9B/a-59544446)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*
