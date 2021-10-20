@@ -2,45 +2,20 @@
 ---
 
 
-## 美国联邦通信委员会（FCC）专员希望对中国无人机制造商大疆进行新的限制审查
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1605269/)
+## “Let&#8217;s Go Brandon”成美国最火国骂 抗议拜登完美避开审查
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1605305/)
 
-作者: 文仁
+#### 编译：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/7-12.jpg)图片来源：网络截图
+据美国太阳（The U.S. Sun）网站10月19日报道，川普的前助手杰森·米勒（Jason Miller  ）说，“Let’s Go Brandon”（布兰登加油）这个梗使美国可以在没有审查的情况下抗议拜登政府。
 
+10月2日，纳斯卡（NASCAR）车手布兰登·布朗在阿拉巴马州的塔拉迪加超速赛道上赢得了他的第一场 Xfinity 系列赛后，米勒组织了带有这一口号的飞机飞越川普集会的活动。在布兰等赛后接受NBC体育记者凯利·斯塔瓦斯特（Kelli Stavast）采访时，现场听到观众高呼 “F\*\*k Joe Biden”，斯塔瓦斯特似乎听错了口号，声称人群在说 “Let’s go Brandon”。
 
+从那时起，互联网上的这句话就被炒得沸沸扬扬。许多反对拜登的人把这句话作为他们的新口头禅，制作商品或在体育赛事中高呼。然而，盖特首席执行官米勒声称，这句口号有更重大的意义，它让美国人可以在没有审查的情况下进行抗议。米勒告诉《太阳报》。“布兰登加油”体现了主流媒体与美国人民是多么的脱节。NBC的记者没有听出这句话的真实含义是对失败的拜登政府的抗议，而是进入了“止损”模式，并编造了更多假新闻。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+“Let’s go Brandon”允许各地的体育迷行使他们的宪法权利，表达他们的意见，嘲笑假新闻的疯狂，抗议拜登政府而不受审查，这正是他们在GETTR上也能做到的。我们用这架飞机表示我们相信言论自由，而且在游击营销方面，没有人比GETTR更有优势，米勒说，他是众多加入 “Let’s go Brandon”潮流的共和党人之一。
 
+参议员特德·克鲁兹（Ted Cruz）周日也分享了一段他在棒球比赛中高呼 “Let’s go Brandon”的视频，似乎对总统拜登进行了暗讽。
 
-
-据【路透】华盛顿报道 10 月 19 日 – 美国联邦通信委员会 (FCC) 一名共和党成员周二表示，他希望美国电信监管机构开始对中共国无人机制造商深圳大疆创新科技有限公司实施新的限制措施。大疆应该被加入所谓的“调查名单”，该名单将禁止使用美国普遍服务基金的资金购买其设备。
-
-今年 3 月，根据 2019 年旨在保护美国通信网络的法律，美国联邦通信委员会将五家中国公司列为对国家安全构成威胁。它们是华为，中兴通讯，海能达通信、杭州海康威视，和浙江大华科技有限公司。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-107.jpg)
-2019 年 5 月，美国国土安全部警告美国公司注意中共国制造的无人机对公司数据的风险。12月，大疆被美国商务部列入美国政府经济黑名单。2020 年 1 月，美国内政部表示将停飞其由约 800 架中共国制造的无人机组成的机队，并早些时候停止了内政部对此类无人机的额外采购。FCC 官员说“大疆无人机和这些系统上的监控技术正在收集大量敏感数据——从关键基础设施的高分辨率图像到面部识别技术和可以测量个人体温和心率的远程传感器”，联邦通信委员会与国家安全机构协商后还应该考虑是否有其它实体需要进行更严格的审查。
-
-参考链接：
-[U.S. FCC commissioner wants new restrictions review for Chinese dronemaker DJI](https://www.reuters.com/technology/us-fcc-commissioner-wants-new-restrictions-review-chinese-dronemaker-dji-2021-10-19/)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：Ryan
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+新闻来源：[‘FREEDOM’ Let’s Go Brandon allows US to ‘protest Biden without censorship,’ says Trump aide who flew planes with meme on banner](https://www.the-sun.com/news/3889229/lets-go-brandon-jason-miller/)

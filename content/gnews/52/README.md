@@ -2,45 +2,59 @@
 ---
 
 
-## 10/19/2021国际财经快讯：美国工厂数据加剧需求忧虑；印度以色列将就自由贸易进行会谈
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1604121/)
+## COVID-19最新情报｜美参议员Ted Cruz：拜登授权强制接种疫苗 侵害人权
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1603909/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-57.png)[图片来源](https://dzm0ugdauank9.cloudfront.net/)
-**1.****美国工厂数据加剧需求忧****虑****，油价回调**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-60.jpg)
+美国德克萨斯州共和党籍参议员Ted Cruz在推特上表示，他认为拜登总统在九月发布的强制接种命令，是侵害人权的。
 
-[纽约（路透社）–油价周一在触及多年高点后回落，交易中涨跌互现，因为美国9月工业产出下降，削弱了早期对需求的热情。9月份美国工厂的产量创下七个月以来的最大降幅，因为全球半导体的持续短缺压低了机动车产量，进一步证明供应紧张阻碍了经济增长。”石油市场一开始就很繁荣，但美国工业生产的疲软数据使人们对需求失去信心，而中国公布的数据加剧了这些担忧，”纽约Price Futures Group的高级分析师Phil Flynn说。](https://www.oann.com/oil-prices-climb-to-highest-in-years-as-covid-recovery-power-generators-stoke-demand/)
+拜登针对Delta提出六大方针的[COVID-19 ACTION PLAN](https://www-whitehouse-gov.translate.goog/covidplan/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=nui,sc)（COVID-19战略计划），目的为打击新冠病毒。
 
-[布伦特原油期货收跌53美分或0.6%，报每桶84.33美元，此前曾触及86.04美元，为2018年10月以来最高。美国西德克萨斯中质原油（WTI）结算价上涨16美分，或0.19%，报每桶82.44美元，此前触及83.87美元，为2014年10月以来最高。这两份合约上周都至少上涨了3%。](https://www.oann.com/oil-prices-climb-to-highest-in-years-as-covid-recovery-power-generators-stoke-demand/)
+其中《[COVID-19 Action Plan With New Vaccine Mandates](https://www-aamc-org.translate.goog/advocacy-policy/washington-highlights/president-biden-announces-covid-19-action-plan-new-vaccine-mandates?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=nui,op,sc)》（新冠疫苗强制接种），要求美国境内所有拥有雇员达100人以上的雇主，强制员工接种新冠疫苗，或是每周提供阴性证明。在媒体的推广下，许多私营部门已经表示将遵循拜登发布的疫苗规定，要求员工接种疫苗。更有私营部门，因雇员未接种疫苗而予以解雇。
 
-**2.****印度和以色列将在下个月开始就自由贸易协定进行会谈**
 
-[新德里（路透社）–印度和以色列周一表示，两国同意从11月起恢复关于自由贸易协定的谈判，目标是在2022年中期签署一项协议。在印度总理纳伦德拉-莫迪(Narendra Modi)执政以来的七年里，两国之间的关系日益密切，在此期间形成了一些战略、军事和技术伙伴关系。两国在一份声明中说，自由贸易谈判是在两国外长在耶路撒冷会晤后宣布的，他们还就相互承认疫苗接种证书和扩大水和农业方面的合作达成一致。](https://www.oann.com/india-israel-to-start-talks-on-free-trade-agreement-next-month/)
 
-[“我们正在继续执行我们的联系政策，多年来我们在印度看到了一个非常重要的盟友。印度也带来了新的合作机会，”以色列外交部长亚伊尔-拉皮德说。印度旨在与包括澳大利亚、阿拉伯联合酋长国、英国和加拿大在内的几个国家签署新的贸易协议，以促进出口并帮助该国更快地从冠状病毒引起的经济放缓中恢复过来。](https://www.oann.com/india-israel-to-start-talks-on-free-trade-agreement-next-month/)
+> Joe Biden’s illegal vaccine mandate at work!
+> 
+> Suddenly, we’re short on pilots & air traffic controllers.[#ThanksJoe](https://twitter.com/hashtag/ThanksJoe?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wviOzLt7Iv](https://t.co/wviOzLt7Iv)
+> — Ted Cruz (@tedcruz) [October 10, 2021](https://twitter.com/tedcruz/status/1447327311095910402?ref_src=twsrc%5Etfw)
 
-**3.****澳大利亚央行称****Delta****疫情爆发干扰了经济复苏**
 
-[悉尼（路透社）–澳大利亚央行表示，中共病毒的Delta变体的爆发打断了国民经济的复苏，但预计这种挫折是暂时的，随着疫苗接种率的不断提高，经济将反弹。澳大利亚储备银行周二的10月政策会议纪要显示，澳大利亚经济将在12月季度恢复增长，但复苏速度可能会比2020年底和2021年初的速度慢。成员们指出，不那么宽松的货币政策将看到较低的住房价格和信贷增长，但它将导致更少的就业机会和更低的工资增长。鉴于工资和通货膨胀的低迷，董事会重申了在2024年之前不提高0.1%现金利率的观点。](https://www.oann.com/australia-central-bank-says-delta-outbreak-interrupts-economic-recovery/)
 
-**4.****芯片需求强劲，台湾****9****月出口订单连续****19****个月增长**
+[Ted Cruz](https://en.wikipedia.org/wiki/Ted_Cruz)推特分享西南航空公司的新闻，西南航空因为遵守拜登总统发布的疫苗政策，要求员工必须接种新冠疫苗，否则不得执勤。此举间接导致了数以千计的航班被取消。大量旅客因航班取消缘故，滞留于机场航厦。
 
-[台北（路透社）–路透社周一的调查显示，台湾9月的出口订单可能连续第19个月增长，受全球摆脱大流行的强劲芯片需求的推动，同时年底的假日购物季也对市场情绪有所帮助。17位经济学家的调查预测中值显示，出口订单将比去年同期增长17%。对增长的预测从6.5%到高达26%不等。台湾的出口订单是高科技小商品和亚洲出口需求的一个领先指标，通常领先实际出口两到三个月。这个岛国的出口订单是全球技术需求的风向标，8月份比上年同期跃升17.6%，达到535亿美元，表现强劲，但由于对新智能手机的需求意外疲软而低于预期。台湾的制造商，包括世界上最大的合约芯片制造商台湾积体电路制造有限公司，是苹果公司等科技巨头的全球供应链的一个关键部分。](https://www.oann.com/taiwan-sept-export-orders-seen-rising-for-19th-month-on-robust-chip-demand-reuters-poll/)
+Ted Cruz讽刺拜登总统，表示：感谢Joe（拜登总统）。
 
-**5.苹果公司通过新的高价位MacBook加倍实施芯片战略
-**
-[10月18日（路透社）–苹果公司（AAPL.O）周一宣布了两款新的MacBook Pro机型，该机型使用更强大的内部芯片，进一步与之前的供应商英特尔公司（INTC.O）决裂，表明其将机器与PC行业的其他产品区分开来的战略。新的14英寸和16英寸机型起价为1,999美元，最贵的机型可达6,099美元。苹果公司称，通过使用名为M1 Pro和M1 Max的两款新芯片，它们的性能将远远超过基于英特尔和Advanced Micro Devices（AMD.O）的竞争对手的机器，特别是当新笔记本只使用电池供电时。苹果在周一的一个在线活动中宣布了这些举措，它正在争取一批用户，其中包括寻找强大工具的专业摄影师、电影制作人和音频制作人，这是微软公司(MSFT.O)等竞争对手近年来试图通过其Surface硬件阵容剥离的威望领域。](https://www.reuters.com/technology/apple-expected-unveil-new-macs-with-more-powerful-chips-2021-10-18/)
+西南航空针对航班取消一事，对外说明：不是因为人力短缺，而是天气因素。
 
-**6.****亚马逊将为假日购物季雇用****15****万名美国工人**
+#### Ted Cruz：要求出示接种证明、阴性证明，侵犯隐私！
 
-[10月18日（路透社）–亚马逊公司（AMZN.O）周一表示，它计划在假日期间在美国雇用15万名季节性工人，因为这家电子商务巨头正在为预计会出现高需求和供应问题的购物季做准备。去年，该公司宣布了10万个季节性工作岗位，此前它已经通过大流行病增加了人员配置。亚马逊的招聘计划是在美国劳动力严重短缺和工会活动增加的情况下制定的，这导致公司在关键的年终购物期间提高工资以吸引工人。上个月，亚马逊将其在国内的平均起薪提高到每小时18美元以上。](https://www.reuters.com/business/retail-consumer/amazon-hire-150000-us-workers-holiday-shopping-season-2021-10-18/)
+今年八月，Ted Cruz与Fox新闻主播Sean Hannity同台称：新冠疫苗接种证明是对个人隐私的侵犯。当被要求出示接种新冠疫苗的相关证明，都是对个人自由的侵犯。
 
-**7.****美国法案将阻止大科技公司偏袒自己的产品**
+#### COVID法西斯主义兴起，美国陷入绝对的混乱
 
-[华盛顿，10月18日（路透社）–来自两党的约十名美国参议员周一正式提出一项法案，禁止亚马逊（AMZN.O）和Alphabet（GOOGL.O）的谷歌等大型科技平台偏袒其产品和服务。该法案是在其他法案之后提出的，目的是控制科技公司的超额市场力量，包括行业领导者Facebook（FB.O）和苹果（AAPL.O）。到目前为止，没有一个法案成为法律，尽管有一个法案通过了参议院，它将增加反垄断执法者的资源。参议员Amy Klobuchar和Chuck Grassley的法案将禁止平台要求在其网站上运营的公司购买平台的商品或服务，并禁止他们将搜索结果偏向于平台。一项配套法案已经在众议院司法委员会获得通过。它必须通过国会两院才能成为法律。](https://www.reuters.com/technology/us-bill-would-stop-big-tech-favoring-its-own-products-2021-10-18/)
+据[新闻报导](https://www.click2houston.com/news/local/2021/06/30/passengers-frustrated-after-southwest-airlines-cancels-thousands-of-flights/)，美国西南航空取消上千个航班，导致许多搭乘西南航空的旅客无法顺利启程，并且滞留于机场航厦中，等待西南航空安排“完全接种疫苗”的机组人员，引导旅客到目的地所需的航班。
 
-**8.****莫里森的投资者将****批准****100****亿美元的****CD&R****收购案**
+西南航空尚未允许“未完全接种疫苗”的员工返回工作岗位。
 
-[伦敦，10月19日（路透社）–超市集团Morrisons（MRW.L）的股东预计将在周二批准美国私募股权公司Clayton, Dubilier & Rice（CD&R）提出的70亿英镑（96亿美元）的报价，从而为英国今年竞争最为激烈的收购案拉开帷幕。CD&R公司的高级顾问是乐购(TSCO.L)的前老板Terry Leahy，它在10月2日赢得了对莫里森斯的拍卖，出价比软银(9434.T)旗下的Fortress投资集团领导的财团高出1分钱。投资者对该交易的批准将结束为期6个月的收购英国第四大杂货商和该国最大的食品生产商之一莫里斯的战斗。这将结束莫里森54年的上市公司生涯，并将集团未来的最终决定权从英格兰北部的布拉德福德转移到CD&R的纽约总部。](https://www.reuters.com/business/morrisons-investors-set-rubber-stamp-10-bln-cdr-takeover-2021-10-18/)
+#### 德州颁布“疫苗歧视禁令”
 
-By【秘密翻译组-金融组】
-作者：千年等一回
+德克萨斯州长签署行政命令，包含私营部门在内，禁止疫苗歧视。（[行政命令PDF](https://gov.texas.gov/uploads/files/press/EO-GA-40_prohibiting_vaccine_mandates_legislative_action_IMAGE_10-11-2021.pdf)）
+
+西南航空公司对德州的禁令表示**不会遵守**，将全力遵循拜登总统的疫苗规定。拜登总统发布的疫苗规定，希望美国人民尽最大努力接种疫苗，以维持生活、就业。
+
+- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/)
+- 相关：[新冠病毒预防、治疗方案（](https://vladimirzelenkomd.com/prophylaxis-protocol/)Zev Zelenko 博士）
+- 相关：[印度德里使用伊维菌素，确诊病例下降97%](https://gnews.org/zh-hant/1570870/)
+
+
+白宫目前正在考虑将“美国境内航班旅客”也纳入强制接种范围，若白宫确定将境内航班旅客纳入强制接种范围，那没有接种疫苗的人民将无法搭乘飞机。
+
+- 相关：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
+- 相关：[麥卡洛博士呼籲，不要接種新冠疫苗](https://www.wnd.com/2021/05/prominent-physician-dont-get-covid-shot/)（完整采访）
+
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-92.jpg)
+[原文](https://www.naturalnews.com/2021-10-16-cruz-calls-biden-covid-vaccine-mandate-illegal.html)￨转译 台湾宝岛农场 zhong
+（一切内容以原文为主，转译仅供参考）
