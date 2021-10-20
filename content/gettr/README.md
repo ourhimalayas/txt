@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/20/2021 11:05 PM (UTC)`
+
+10/20/2021 Miles Guo: Jack Ma is handling about 3000 assets, with Joe Tasi helping him launder 75% of his money. By pushing the “great economic revolution”, the CCP attempts to strengthen its reign, wage an economic unrestricted warfare against Europe and the US, and plunder the entire world’s wealth<br/><br/>10/20/2021文贵直播：马云正在处理大概3000多笔的资产，蔡崇信帮马云洗掉了他75%的钱；中共妄图通过搞经济大革命来强化统治、对欧美等国发动经济超限战并掠夺全球财富。<br/>
+![img](https://media.gettr.com/group3/getter/2021/10/20/23/05/20f74439-e449-0ae1-3d49-25a37fe3b0da/out.jpg)
+
+---
+
 `@miles 10/20/2021 9:25 PM (UTC)`
 
 👍👍👍👍👍👍👍😍😍😍😍😍
@@ -289,13 +296,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 10月15号：尊敬的战友们好……非常的抱歉，很多战友给我发的信息没办法一一回复，我只能在这里，简单给大家统一回复一下，谢谢。
 ![img](https://media.gettr.com/group10/getter/2021/10/16/00/12/e1f9451d-fbe9-849a-3ed5-2bb83f9157ca/out.jpg)
-
----
-
-`@miles 10/15/2021 11:29 PM (UTC)`
-
-10月15号：共产党这种低级的下三滥的手段……体现在各个方方面面，从把龙头变成鸟头……又要在海外，哭闹到处发红头文件，为了喜币上市．下发，禁止全国14亿国人买虚拟货币……荒唐至极……【七哥您好! 向您汇报一件昨天发生在老椅子群的事情，有个战友叫firenew的，忽然在群里说要G club退款，等了一个多月还没退成，找农场不同意还把他踢了。我们都告诉他G club卡早就说过不能退的。<br/><br/>然后继续谈下来，发现他破绽很多，就是要钱，说没钱吃饭了，他投资了40万椅子，还有几万G1，捐款也不少，说现在穷得要等钱开饭。还可以把喜币配额给我们，我们都觉得还有两星期喜币上市，现在转让喜币配额不是疯了吗？<br/><br/>最后大家商量不如把他的配额买了，这样他就有钱，有战友马上表示愿意5万全部收购他的配额，26万多的喜币配额，这么便宜他竟然同意了，还要他原来的香草山农场义工做第三方完成交易。凑巧，那时候已经是纽约半夜三点，找不到人。<br/><br/>然后大家慢慢聊，发现更多破绽，他似乎连什么时候投G TV，喜币的特点都不懂。还扯什么狗币，然后私信战友攻击喜币。这时候基本能确定这个账号被控制了，然后迟些时候，有战友发现这个号已经一年左右没在群里活动了。基本能完全确定，这个战友已经被中共抓了，账号可能被手下办案的狗腿子控制，想向战友骗点钱。】<br/><br/>
-![img](https://media.gettr.com/group7/getter/2021/10/15/23/e9358afa-2613-29ad-f85d-2942a32cfae3/f6620dddcc726eeb86f070f0ddc39fae.jpg)
 
 ---
 
