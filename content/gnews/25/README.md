@@ -2,65 +2,49 @@
 ---
 
 
-## 我担心医生的信誉下降
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1606538/)
+## 华盛顿州立大学橄榄球主教练因拒绝接种疫苗被解雇
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1606593/)
 
-作者：Ezra Levant / Rebel News
+作者：纽约香草山农场 – 雪梨
 
-我担心医生的信誉度下降。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-个别医生，并不是因为他们在道德上软弱或道德上邪恶，并如此，我认为医生，我指的是每天行医的真正医生。我认为他们是周围最值得信赖的人之一。尤其是那些足够了解患者的人，以至于他们给予真正适合该人的处方，而不是将一个人塞进处方中。
 
-但医疗保健领域正在发生一些奇怪的事情。
 
-这些人是建设的英雄。
 
-在英国，他们有这样的事情，每个人晚上都会走出家门，敲打锅碗瓢盆，象征性地感谢护士和医生。
 
-我担心医生和护士的声誉，不是草根，而是老板，那些花哨的人，那些经营医院和长期护理院的人，那些会从阿片类药物那里收受百万美元贿赂公司的人，而且现在肯定的目标是疫苗公司——使用阿斯利康！不，使用辉瑞！不，使用摩德纳！数百亿美元正在流向他们。
+周一，华盛顿州立大学体育总监帕特·春和校长柯克·舒尔茨在新闻发布会上宣布，因未按照州政府规定的、于本周一前完成新冠疫苗接种，该校橄榄球主教练尼克·罗洛维奇，及四名助理教练被解雇。
 
-还有名声和名人效应，这对医生来说比金钱更令人陶醉。做电视医生、电视明星？从无名到成名！你也可以像安东尼福奇一样。他是明星，你也可以。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1256-1.jpg)图片来源：[lifesitenews.com](https://www.lifesitenews.com/news/major-university-fires-head-football-coach-over-vax-refusal-after-rejecting-exemption-request/?utm_source=top_news&amp;utm_campaign=usa)
 
-但我担心我们不能那么信任医生，至少不是全部。
+据悉，罗洛维奇年薪超过300万美元，是工资最高的州政府雇员，合同预计到2025年结束。7月，他曾发表推文，明确表示不会接种疫苗；并于10月9日提交宗教豁免申请，但遭到拒绝。
 
-这不好。这对公共健康或个人健康都不利。看这个。
+本月12日，因拒绝接种疫苗，NBA球星凯里·欧文被篮网队禁赛，引发球迷和媒体的广泛关注和讨论。虽完成疫苗接种，美国加州佐治亚大学体育专业学生肖恩·库恩，仍感染新冠病毒，并于近期去世。且因接种毒针疫苗，导致病毒感染，甚至死亡的案例层出不穷。如果政府继续强制执行接种令，欧文等体育界有影响力人物的挺身而出，将激发更多的人探究和了解疫苗真相。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Doctor-1.png)
+（本文仅代表作者观点）
 
-这是特鲁多的疫苗广告。那是最基础的。
+**参考阅读：**
 
-现在，你可以为那条推文讨价还价。里面有简化的意见。
+1. [Head football coach at Washington State University denied religious exemption for COVID shot, gets fired – LifeSite (lifesitenews.com)](https://www.lifesitenews.com/news/major-university-fires-head-football-coach-over-vax-refusal-after-rejecting-exemption-request/?utm_source=top_news&amp;utm_campaign=usa)
+2. [Washington State fires football coach Nick Rolovich, 4 assistants for refusing state-mandated COVID-19 vaccine (espn.com)](https://www.espn.com/college-football/story/_/id/32426315/nick-rolovich-washington-state-football-coach-refusing-state-mandated-covid-19-vaccine-source-says)
 
-但它可以作为一个诚实的意见。它没有谈论副作用，尤其是对年轻男性。
 
-它并没有告诉您，年轻人因接种疫苗而去医院的可能性是因病毒而去医院是一般情況下的 6 倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
 
-它并没有告诉你国外已经禁止了某些针对年轻男性的疫苗。这并不完全诚实。那是特鲁多给你的。
+校对/发稿：小鹿
 
-但除此之外，还有一条来自萨斯喀彻温省的斯科特·莫通过萨斯喀彻温省卫生局发布的特鲁多推文。
 
-你知道他们知道他们在撒谎，因为看看他们做了什么——他们禁止任何人在推特上以正常方式回复。
 
-这是我的简单回答：
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Doctor-2.png)
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-他们知道病毒不会平等地针对每个人。他们知道你知道。他们知道你知道他们知道。这就是他们阻止回复的原因。这就是为什么这条推文很重要。这是一个测试。你会通过还是失败？
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-（文章仅代表作者个人观点）
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

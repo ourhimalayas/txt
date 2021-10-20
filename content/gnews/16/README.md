@@ -2,43 +2,41 @@
 ---
 
 
-## JCCF对安大略省疫苗护照授权发起法律挑战
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1606631/)
+## 前CDC主任揭完全接种疫苗者死亡的惊人数据
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1606691/)
 
-作者： Dakota Christensen
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-该[司法中心的宪法自由](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.jccf.ca/) （JCCF）已经对[安大略省的疫苗护照任务](https://www-rebelnews-com.translate.goog/breaking_doug_ford_announces_vaccine_passports_for_on?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)在安大略省高级法院提出了宪法挑战。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/C-6.jpg)newsoftheday.net
+爆料革命战友不会忘记，当阴谋集团打压中共病毒溯源的关键时刻，川普总统的美国疾病控制和预防中心（CDC）主任罗伯特·雷德菲尔德（Robert Redfield）勇敢地站出来，直指中共病毒来自武汉实验室，随后才有《华尔街日报》曝出武汉病毒研究所有早期患病的研究人员，掀起了追责中共的新一轮浪潮，重压之下的拜登装模作样地演出下令90天出报告的丑剧。之后，文贵先生引领的爆料革命向纵深发展，指出中共病毒、疫苗是阴谋集团攻击世界、控制世界的连环手段，正在世界觉醒之际，罗伯特·雷德菲尔德主任又有新的举动。
 
-法律挑战是代表八名安大略省公民提出的，他们正面临安大略省政府的不公正待遇，他们只是为了行使他们的宪章权利和自由，选择不接种一剂或多剂新冠疫苗。
+《塔克·卡尔森团队》（Team Tucker Carlson）10月20日发表文章，题目“前疾病预防控制中心主任提供了关于完全接种中共病毒疫苗者死亡的惊人统计数据”。
 
-以下是参加 JCCF 宪法挑战的八名申请人中的四个例子：
+全文如下：
 
-- 莎拉·兰姆来自基奇纳。她因第一剂新冠疫苗而遭受严重不良反应，并已决定不接种第二剂。兰姆一直无法获得疫苗护照的豁免。安大略省政府[表示](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;nui=1&amp;u=https://toronto.ctvnews.ca/ontario-confirms-there-are-only-two-valid-medical-exemptions-from-covid-19-vaccines-1.5572833)，只有在极其有限的情况下才会接受疫苗护照的豁免。
-- 莎拉·哈吉是一位拥有护理和公共卫生学位的准妈妈。哈吉担心新冠疫苗可能对她自己和她未出生的孩子产生不利影响，因此她选择不接种疫苗。
-- 埃文·克拉延布林克是一名护理人员，他决定在是否注射新冠疫苗之前，他将等待有关新冠疫苗效果的进一步数据。克拉延布林克 先生也有宗教信仰，即他允许对自己的身体做的事情最终要向上帝负责。
-- 山姆·萨布林是渥太华一名 29 岁的健身房老板。萨布林先生行使他的宪章通过不采取新冠疫苗的身体自主权，同时也拒绝否认顾客进入到基于疫苗接种的状态他的健身房。他毫无歧视地欢迎所有人。
+前疾病控制和预防中心主任罗伯特·雷德菲尔德星期一（10月18日）下午在接受《福克斯新闻》采访时说，最近在马里兰州死于中共病毒的人中，40%以上已经接种了疫苗。
 
+罗伯特主任在回应前国务卿科林·鲍威尔（Colin Powell）的死因时说：“很多时候，人们可能会觉得完全接种疫苗人的死亡是一件罕见的事情，我碰巧是马里兰州州长霍根（Hogan）的高级顾问，在过去6-8周里，马里兰州死亡的人中有40%以上都接种了疫苗。”
 
-所有参加挑战的申请人都担心政府强制接种疫苗会被作为允许他们简单过日常生活的条件。
+在鲍威尔死于病毒并发症时，他还在与一种降低了免疫力的血癌作斗争，根据马里兰州卫生部的统计，该州65.7%的成年人已经接种了疫苗。
 
-JCCF 的律师豪尔赫·皮内达说： “加拿大最高法院认定， 宪章保护身体自主权和知情同意权，这是法律，这是无可争议的。” “疫苗护照是一种破坏宪章并使其保护变得毫无意义且无耻的企图。”
+摘自《华尔街日报》：
 
-“安大略疫苗护照本身是一种胁迫工具，迫使个人接受医疗干预，这违背了他们的意愿和他们自己最佳的判断，”皮内达补充道。“这不仅在道德上是错误的，而且也是非法的。当我们到达法院时，我们将敦促他们看到这些疫苗的强制要求，因为他们真正做了什么——这剥夺了公民对自己的医疗保健做出明智决定的长期权利。”
+知情人士说，美国食品和药物管理局（FDA）正在采取行动，很快将允许人们接受不同于第一次接种中共病毒疫苗剂量的强化注射。
 
-來源：[https://www.rebelnews.com/jccf\_launches\_legal\_challenge\_against\_ontario\_vaccine\_passport\_mandate](https://www.rebelnews.com/jccf_launches_legal_challenge_against_ontario_vaccine_passport_mandate)
+一位知情人士说，FDA不会推荐任何加强剂，但会允许人们接种不同于他们第一次施打的疫苗加强剂。
+
+知情人士说，美国食品和药物管理局（FDA）正在尽快地寻求混合施打授权，以及相应的匹配方式，据知情人士透露，FDA预计本周还将批准莫德纳和强生公司的疫苗加强剂。
+
+雷德菲尔德在唐纳德·川普任总统期间当任CDC主任，目前担任马里兰州共和党州长拉里·霍根的顾问。他发表上述言论之际，拜登政府正在继续推动加强剂疫苗的施打，而食品和药物管理局正在批准不同公司的混合疫苗加强剂。
+
+（全文完）
+
+黑暗时刻还是有良知官员的，罗伯特·雷德菲尔德便是其中一个，正是这样人的存在，美国才有希望。正义力量必将阴谋集团彻底消灭！
 
 （文章仅代表作者个人观点）
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+原文链接：
 
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[https://teamtuckercarlson.com/news/former-cdc-director-gives-alarming-statistic-on-fully-vaccinated-covid-deaths/](https://teamtuckercarlson.com/news/former-cdc-director-gives-alarming-statistic-on-fully-vaccinated-covid-deaths/)

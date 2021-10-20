@@ -2,45 +2,41 @@
 ---
 
 
-## 官方称欧金中拒捕并自杀身亡 网友质疑
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1606570/)
+## 加拿大建筑公司拒绝执行疫苗任务
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1606598/)
 
-作者：纽约香草山文艺部 – 宁文静
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+作者：Adam Soos
 
 
 
+惠登建设集团首席执行官戴维·惠登发布了一份关于强制接种疫苗的通讯公告，引起了很多人的关注。
 
+我们将在下面提供完整的信件供您参考，让您了解内容：
 
-据大陆[搜狐网](https://m.sohu.com/a/495799157_180220/?pvid=000115_3w_a)18日的报道，当日莆田市公安局秀屿分局发出通报，一周前发生两死三伤的恶性杀人案件嫌疑人欧金中，拒捕并畏罪自杀，经抢救无效死亡。
+*“在咨询法律顾问后，我们的立场是当前和提议的疫苗强制执行违反了联邦、省和国际层面的法律。因此，在他们经受住加拿大最高法院要求的**“**法律测试**”**之前，*惠登建设集团*不支持也不会遵守目前提出的拟议疫苗授权和**/**或政策。”*
 
-网友质疑之前有消息称欧已被警方抓获，为什么几个小时后就变成畏罪自杀？为什么不在逃亡的数天内，从容了断？这些问题，恐怕永远成了谜。
+在过去的几个月里，我们已经习惯了公告和新闻稿，因为坏消息主要是针对未接种疫苗的员工或场地人员的。这是少数几家公司公开发表正式声明并拒绝参与疫苗任务之一，直到它们在法庭上得到适当的测试。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1255-希望之声.jpg)[图片来源](https://www.bannedbook.org/bnews/comments/20211019/1640424.html): bannedbook.org（希望之声制图）
+惠登先生在信中继续澄清，任何与惠登建设集团签订合同并寻求实施疫苗授权的客户都将对所涉及的任何成本承担财务责任，因为他们将实施合同的重大变更。此外，他坚持认为，任何疫苗护照政策阻止当前或未来工作继续进行的企业都将被追究违反合同的责任。
 
-欧金中一怒行凶，理应接受法律的制裁。但即刻死，与经过法庭审判后再死，有着天壤之别。我们只能猜测，欧苟活了七天，原本可能希望有机会申诉自己多年遭受恶邻欺压，指责警方、媒体、信访部门不作为，最后再认罪伏法。死罪难逃，中间审理的过程就显得很多余，不如免掉法院审判的环节，节省公共资源，也立刻堵上悠悠众口。
+乍一看，这一切都像是在谈生意。但实际上，这是为保护员工生计而进行的初步抗议。要是有更多的企业如此热衷于维护员工的权利就好了。
 
-欧金中死了，担心该案件继续引起社会强烈反响的中共当局松了一口气。不出三天，这件事就会消失得无影无踪。就像杨改兰，如果没有郭先生一直耿耿于怀的提醒，又有几个人能记得她呢？只有灭掉共产党，重建法治民主保障型社会体系，这些小人物才有生路。
+來源：[https://www.rebelnews.com/construction\_company\_refusing\_to\_enforce\_vaccine\_mandate](https://www.rebelnews.com/construction_company_refusing_to_enforce_vaccine_mandate)
 
-（本文仅代表作者观点）
+（文章仅代表作者个人观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-编辑/校对/发稿：小鹿
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
 
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
-**更多资讯，更多关注**
+Discord 账号
 
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+Gettr 账号
 
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

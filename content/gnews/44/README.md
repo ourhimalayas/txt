@@ -2,20 +2,18 @@
 ---
 
 
-## 反击中共国胁迫 欧盟支持台湾、立陶宛
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1605955/)
+## 水灾后的缺粮已显现
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1605959/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/232-1.jpg)（图片来源于本文链接）
-欧洲议会将在20日表决欧盟首份针对台湾的立场文件书，内容列出多项利台政策，欧盟副主席维斯塔格抨击中共国对台湾与立陶宛的威胁，并称将通过“相关措施”反击中共对成员国的经济胁迫。
+#### 撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ert.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2020%252F0723%252Fcb60327ej00qdx9os003ec000xc00m8m.jpg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FFI8F64690539BX8Z.html&amp;tbnid=yeDumOu9LhDj1M&amp;vet=12ahUKEwjQnuj12djzAhU0JaYKHZ7qCk8QMygEegUIARClAQ..i&amp;docid=qV86qo8WQz1e3M&amp;w=650&amp;h=434&amp;itg=1&amp;q=%E8%BF%9B%E5%8F%A3%E5%B0%8F%E9%BA%A6&amp;ved=2ahUKEwjQnuj12djzAhU0JaYKHZ7qCk8QMygEegUIARClAQ)
+中国新闻网哈尔滨10月19日电，黑龙江省对俄农业产业协会19日发布消息，中粮集团从俄罗斯进口的667吨小麦抵达黑河口岸，于19日脱箱卸到当地海关监管库。这是中共国首次成规模地从俄罗斯远东地区进口小麦，这打开了中俄农业合作的一个新渠道。
 
-欧洲议会周一（10月19日）在法国史特拉斯堡举行全体会议，并在会议中针对将在20日发布的“欧盟–台湾政治关系与合作”报告进行辩论。欧洲联盟副主席维斯塔格（Margrethe Vestager）说，中共国军机扰台危及欧洲利益，欧盟须加强与台湾的合作、确保台湾民主自由，并表示希望台湾成为欧洲芯片法案的重要伙伴。
+据黑龙江省对俄农业产业协会秘书处一位负责人介绍，自从20世纪90年代，黑龙江开始开展中俄农业合作以来，这是进口小麦数量最大的一次。
 
-“欧盟–台湾政治关系与合作”报告是欧洲议会第一份专门针对台湾所发布的立场文件。这份报告向欧盟委员会和成员国提出了一系列与台湾合作的建议，包括推动将位于台湾的欧洲经贸办事处更名为“欧盟驻台湾办事处”、支持台湾以观察员身分全面参与国际组织、将台湾纳入欧盟印太战略以及展开欧盟台湾双边投资协定（BIA）影响评估及范畴界定等。该报告获欧洲议会最大党派“欧洲人民党党团” （EPP）的支持。但是值得注意的是，该报告将不具法律约束力。
+小麦是中国人最重要的口粮之一，进口667顿的小麦，俨然成为规模？中共国是世界上最大的小麦生产国，整个中共国都有种植小麦的产区。从北到南，小麦的主产区一直都有分布。之所以要进口小麦，是南北水灾造成的严重损失，粮食危机在不久的未来一定会显现。
 
-9月28日，欧盟外交及安全政策代表博雷尔（Josep Borrell）曾向中共外交部长王毅表示，台湾是理念相近的重要经济伙伴，欧盟及其成员国有兴趣与台湾发展合作，但“不会承认其国家地位”。
-
-信息来源：[反击中国胁迫 欧盟支持台湾、立陶宛](https://www.dw.com/zh/%E5%8F%8D%E5%87%BB%E4%B8%AD%E5%9B%BD%E8%83%81%E8%BF%AB-%E6%AC%A7%E7%9B%9F%E6%94%AF%E6%8C%81%E5%8F%B0%E6%B9%BE%E7%AB%8B%E9%99%B6%E5%AE%9B/a-59555014)
+消息来源：[中国首次成规模进口俄罗斯小麦 667吨小麦运抵中国口岸](https://me.mbd.baidu.com/r/v2oTGESPZu?f=cp&amp;rs=1846487702&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=7212c7f377841973)
 
 (文章仅代表作者本人观点，与GNEWS无关)
 

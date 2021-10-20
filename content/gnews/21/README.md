@@ -2,49 +2,37 @@
 ---
 
 
-## 华盛顿州立大学橄榄球主教练因拒绝接种疫苗被解雇
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1606593/)
+## 文贵爆料10/20喜币与其他虚拟币的六点区别 将革掉所有法币的命
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1606609/)
 
-作者：纽约香草山农场 – 雪梨
+撰稿：Naughty（文行）【秘翻原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-20-at-2.19.13-PM-1.png)图片来源：GTV GETTR GNEWS
+郭文贵先生在2021年10月20日新中国联邦大直播中指出喜币与其他虚拟币的六点不同。喜币和喜联储唯一性的货币属性和对人类金融领域的破天荒式变革，将使传统国家法币与现代基于区块链的虚拟法币的欺骗本质大白于天下，走入历史的终结。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+**喜币与喜联储与其他虚拟币具有以下六点不同：**
 
-
-
-
-
-周一，华盛顿州立大学体育总监帕特·春和校长柯克·舒尔茨在新闻发布会上宣布，因未按照州政府规定的、于本周一前完成新冠疫苗接种，该校橄榄球主教练尼克·罗洛维奇，及四名助理教练被解雇。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1256-1.jpg)图片来源：[lifesitenews.com](https://www.lifesitenews.com/news/major-university-fires-head-football-coach-over-vax-refusal-after-rejecting-exemption-request/?utm_source=top_news&amp;utm_campaign=usa)
-
-据悉，罗洛维奇年薪超过300万美元，是工资最高的州政府雇员，合同预计到2025年结束。7月，他曾发表推文，明确表示不会接种疫苗；并于10月9日提交宗教豁免申请，但遭到拒绝。
-
-本月12日，因拒绝接种疫苗，NBA球星凯里·欧文被篮网队禁赛，引发球迷和媒体的广泛关注和讨论。虽完成疫苗接种，美国加州佐治亚大学体育专业学生肖恩·库恩，仍感染新冠病毒，并于近期去世。且因接种毒针疫苗，导致病毒感染，甚至死亡的案例层出不穷。如果政府继续强制执行接种令，欧文等体育界有影响力人物的挺身而出，将激发更多的人探究和了解疫苗真相。
-
-（本文仅代表作者观点）
-
-**参考阅读：**
-
-1. [Head football coach at Washington State University denied religious exemption for COVID shot, gets fired – LifeSite (lifesitenews.com)](https://www.lifesitenews.com/news/major-university-fires-head-football-coach-over-vax-refusal-after-rejecting-exemption-request/?utm_source=top_news&amp;utm_campaign=usa)
-2. [Washington State fires football coach Nick Rolovich, 4 assistants for refusing state-mandated COVID-19 vaccine (espn.com)](https://www.espn.com/college-football/story/_/id/32426315/nick-rolovich-washington-state-football-coach-refusing-state-mandated-covid-19-vaccine-source-says)
+- 喜美元是人类历史上唯一的使生产力不受国家主权范围限制的法定和与黄金20%量化挂钩的虚拟货币。
+- 喜币使用了任何人不可追踪、任何人不可剥夺、任何人不可知的去中心化的区块链技术，保证了个体财富的安全与自由；同时又有货币的可查、可控、有价值的属性，做到了可以中心化的管理。
+- 喜币上市后就会形成现场交易，喜币就会成为世界上第一家流通的、加密的可在无限范围内交易的货币。
+- 喜币和喜美元挂钩，可以随时变现流通，把区块链的法币（比特币）建成了区块链的货币（喜币）。
+- 喜币从第一天就有法人、有公司、有地址，真正做到做到有法可依、有人可找、有公司可找。
+- 将来会有实物的去中心化的喜货币。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+**为什么政府官员们骂区块链虚拟币？**
 
-校对/发稿：小鹿
+政府官员都骂区块链，因为政府是法币的发行者，它可以利用法币人为的制造通货膨胀，它不会接受区块链技术剥夺它利用法币来欺骗垄断人们的财富的权力。
 
+很多虚拟币的创造者，他利用区块链造出来的虚拟币实际是现代化的法币，他也不想告诉你真相，这两种人都是骗子。
 
+**喜币用的是去中心化的区块链技术，为什么还要中心化的管理？**
 
-**更多资讯，更多关注**
+如果全部(技术与权力方面）是去中心化的时候，它只能成为犯罪和洗钱工具。比特币就是完全的让你按照他的规则，让你相信了一个你不能确认的去中心化的假币。去中心化的技术和去中心化的权力（责任）导致了无法核实它的实际数量，无法找到负责人。主流虚拟币权力或责任的去中心化会使发行者隐藏起来，没有政府可查，没有人负责，这只对有洗钱需求的有钱人有意义。
 
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+喜币恰恰相反，喜币从第一天就有负责人、就有法人，有公司、有地址，这是他最重要的价值之一，真正做到有法可依、有人可找、有公司可找，而且有人必须在技术上和在任何行为上去回答你的问题。而且喜币与黄金挂钩，保证了喜币的价值。
 
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+喜币和喜美元挂钩，把区块链的法币（比特币）建成了区块链的货币（喜币），可以随时变现流通。
 
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+参考链接：[2021年10月20日大直播](https://gtv.org/video/id=61700c08304e992109b806ee)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+校对发布：Shifter

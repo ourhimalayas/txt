@@ -2,51 +2,23 @@
 ---
 
 
-## 美国司法部：Facebook将支付超过1400万美元的和解费
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1605828/)
+## 针下亡魂｜英国 34 岁妈妈接种疫苗 10 日后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1605901/)
 
-编译：西班牙喜悦农场–wenwu
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-386.png)
-图片来源：washingtonpost.com
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 20/10/2021**
 
-美国官员周二（19日）表示，Facebook 已同意支付总额超过 1400 万美元的罚款，根据与司法部达成的和解协议，Facebook 公司的招聘行为属于引入外国人和故意歧视美国人。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
 
-这些官员们表示，这家社交媒体巨头还与劳工部达成和解，同意采取更多措施招聘美国人从事技术工作，并接受长达三年的联邦审查。
+【英国】罗瑟勒姆一名 34 岁的女士 Kimberley Lockwood 在接种阿斯利康 COVID-19 疫苗后的第十日，因颅内出血（ICH）而死亡。Kimberley 是两个小朋友的妈妈，本身患有特发性颅内高压（IIH），但一直透过药物控制的很好，并且，考虑是否接受疫苗前，曾询问过多位医生，得到的答案是，疫苗对 IIH 患者安全。
 
-这些协议是司法部[于 12 月起诉 Facebook](https://www.washingtonpost.com/technology/2020/12/03/facebook-doj-immigration-lawsuit/?itid=lk_inline_manual_4) 之后达成的，因为 [Facebook](https://www.washingtonpost.com/technology/2020/12/03/facebook-doj-immigration-lawsuit/?itid=lk_inline_manual_4) 被指控没有适当地公布至少2600个职位—以及考虑美国公民的职位申请–这直接导致了职位提供给外国人——他们在2018年和2019年也因此获得永久居留权的绿卡。
+因此，Kimberley 3 月 14 日接种了疫苗，两天后出现了类似流感的症状和剧烈头痛，甚至视力都开始出现模糊，立即被送往医院诊治。10日后，即 3 月 24 日， Kimberley 的丈夫接到电话，请他去医院见妻子最后一面，因为他的妻子脑部出血，已经无法救治。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-395.png)
+Kimberley 的丈夫表示，“前一晚，太太对我说，明天会做个腰椎穿刺的手术，不用担心，明天就能回家了，结果，她再也回不来了。”他续指，暂时没有更多时间，探究妻子的真正死因，唯有等待尸检结果。“我是个体经营者，所以如果我不工作，我就赚不到钱，我还要照顾两个孩子，他们一个 13 岁，一个 6 岁，妻子的离开对我们是相当沉痛的打击。”
 
-该诉讼[称](https://wapo.st/3n9cSEz)，Facebook 的做法违反了联邦法律，该法律要求雇主在向他们赞助的临时外国工人提供职位之前，必须证明没有合格的美国工人可用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/40-1.jpg)
 
-Facebook 已同意向美国政府支付 475 万美元的民事罚款，并向 Facebook 涉嫌歧视的符合条件的受害者支付高达 950 万美元的民事罚款；官员们表示，这是美国移民法反歧视条款中最大的货币和解，而且司法部将与该公司合作，以确定潜在的受害者。但他们表示，现在知道有多少人可能有资格获得损害赔偿，还为时过早。
-
-“Facebook 不能凌驾于法律之上，必须遵守国家的联邦民权法，”负责司法部民权部门的助理司法部长克里斯汀·克拉克 (Kristen Clarke) 说。“公司不能因为他们的公民身份或移民身份而将某些职位留给临时签证持有人。”
-
-美国官员表示，Facebook 还同意就联邦反歧视要求对其公司员工进行（知识）培训。在接下来的三年里，劳工部将审核该公司在联邦政府永久劳工证计划下，为临时签证持有人提出的申请。
-
-Facebook 在一份声明中表示，该公司认为它“符合联邦法律规定下的联邦政府标准”，但同意就此案进行和解，“以结束正在进行的诉讼并向前推进”。公司官员指出，司法部诉讼中提到的工作岗位数量只占 Facebook 员工队伍的一小部分。公司官员表示，截至今年第二季度，该公司在全球拥有超过6万3400名全职员工和 3000 个职位空缺。
-
-该公司在声明中表示，与联邦政府达成的和解“将使我们能够继续专注于从美国和世界各地聘请最优秀的建设者，以及支持公司内部寻求永久居留权的高技能签证持有的社区群体”。
-
-然而，1400 万美元的罚款凸显了 Facebook 和其他科技巨头，如何无法逃脱川普时代开始对其业务进行的更多严格的审查；司法部对 Facebook 的最初诉讼凸显了前美国总统与科技公司之间，在依赖高技能的外国工人方面长期存在的紧张关系。
-
-该行业在很大程度上与拜登白宫在移民问题上更加一致，尤其是在他改变了川普的许多政策之后。但和解协议反映了民主党人越来越关注科技巨头可能对美国工人的潜在伤害。劳工部律师西玛·南达（Seema Nanda）强调，她的机构愿意执行法律，“无论雇主的规模或范围如何”。尤其是 Facebook，多年来一直试图增加在美国的高技能外国劳工的数量，包括 H-1B 签证等项目，以为他们的高技术业务提供动力。
-
-司法部在去年 12 月的投诉中表示，该公司在希望雇用持有 H-1B 签证的员工担任永久职位的情况下，避开了美国传统的招聘流程。根据政府的说法，当临时签证持有人寻求这样的工作时，Facebook “偏离了其正常的招聘协议”，在某些情况下选择不“在其外部网站上宣传该职位”。
-
-该诉讼表明，如果一名美国工人申请了他们其中一项工作——并且 Facebook 确定他们符合入职资格——该公司似乎会以不同的身份雇用他们。联邦法律一般只允许美国公司在没有合格的美国申请人的情况下，方可为临时工担任永久职位。
-
-这一破纪录的处罚对 Facebook 的底线影响不大，因为该公司仅在今年第二季度就创造了约290亿美元的收入。
-
-但是，联邦对其招聘行为的审查增加，是因为该公司已经在与华盛顿的无数监管威胁作斗争。拜登政府已经表明了对科技巨头监管的强硬态度，政府提名了一些公司最大的批评者担任关键职位。
-
-（文章仅代表作者观点与GNEWS无关）
-
-新闻来源：[washingtonpost.com] [Facebook to pay more than $14 million in Justice Dept. settlement over discrimination against American workers](https://www.washingtonpost.com/national-security/facebook-discrimination-settlement/2021/10/19/7d7f4b34-30f6-11ec-a1e5-07223c50280a_story.html)| 作者：[David Nakamura](https://www.washingtonpost.com/people/david-nakamura/) & [Cat Zakrzewski](https://www.washingtonpost.com/people/cat-zakrzewski/)｜发布时间：2021年10月19日
+来源｜[个案040](https://www.dailymail.co.uk/news/article-9478665/Mother-two-34-rare-condition-dies-10-days-getting-AstraZeneca-jab.html)
 
 * * *
 
-*发稿：Nuevo唐人*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//

@@ -2,37 +2,43 @@
 ---
 
 
-## 郭文贵Gettr/GTV双直播测试摘要和音频 2021.10.18
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1606594/)
+## JCCF对安大略省疫苗护照授权发起法律挑战
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1606631/)
 
-摘要撰稿人： 文俊
+作者： Dakota Christensen
 
-音频提供者： 左媛
+该[司法中心的宪法自由](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.jccf.ca/) （JCCF）已经对[安大略省的疫苗护照任务](https://www-rebelnews-com.translate.goog/breaking_doug_ford_announces_vaccine_passports_for_on?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)在安大略省高级法院提出了宪法挑战。
+
+法律挑战是代表八名安大略省公民提出的，他们正面临安大略省政府的不公正待遇，他们只是为了行使他们的宪章权利和自由，选择不接种一剂或多剂新冠疫苗。
+
+以下是参加 JCCF 宪法挑战的八名申请人中的四个例子：
+
+- 莎拉·兰姆来自基奇纳。她因第一剂新冠疫苗而遭受严重不良反应，并已决定不接种第二剂。兰姆一直无法获得疫苗护照的豁免。安大略省政府[表示](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;nui=1&amp;u=https://toronto.ctvnews.ca/ontario-confirms-there-are-only-two-valid-medical-exemptions-from-covid-19-vaccines-1.5572833)，只有在极其有限的情况下才会接受疫苗护照的豁免。
+- 莎拉·哈吉是一位拥有护理和公共卫生学位的准妈妈。哈吉担心新冠疫苗可能对她自己和她未出生的孩子产生不利影响，因此她选择不接种疫苗。
+- 埃文·克拉延布林克是一名护理人员，他决定在是否注射新冠疫苗之前，他将等待有关新冠疫苗效果的进一步数据。克拉延布林克 先生也有宗教信仰，即他允许对自己的身体做的事情最终要向上帝负责。
+- 山姆·萨布林是渥太华一名 29 岁的健身房老板。萨布林先生行使他的宪章通过不采取新冠疫苗的身体自主权，同时也拒绝否认顾客进入到基于疫苗接种的状态他的健身房。他毫无歧视地欢迎所有人。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-20-at-1.52.09-PM.png)
+所有参加挑战的申请人都担心政府强制接种疫苗会被作为允许他们简单过日常生活的条件。
 
+JCCF 的律师豪尔赫·皮内达说： “加拿大最高法院认定， 宪章保护身体自主权和知情同意权，这是法律，这是无可争议的。” “疫苗护照是一种破坏宪章并使其保护变得毫无意义且无耻的企图。”
 
-### 视频：
+“安大略疫苗护照本身是一种胁迫工具，迫使个人接受医疗干预，这违背了他们的意愿和他们自己最佳的判断，”皮内达补充道。“这不仅在道德上是错误的，而且也是非法的。当我们到达法院时，我们将敦促他们看到这些疫苗的强制要求，因为他们真正做了什么——这剥夺了公民对自己的医疗保健做出明智决定的长期权利。”
 
-[视频链接：](https://gettr.com/streaming/pejgy3dc01)
+來源：[https://www.rebelnews.com/jccf\_launches\_legal\_challenge\_against\_ontario\_vaccine\_passport\_mandate](https://www.rebelnews.com/jccf_launches_legal_challenge_against_ontario_vaccine_passport_mandate)
 
-### 音频：
+（文章仅代表作者个人观点）
 
-### 摘要：
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-1. 资本没有祖国，但是有主人啊，中国人的钱要还给中国人
-2. 虚拟货币区块链和金融区块链是两回事，比特币金融不区块链是不安全的，喜币金融区块链 安全 便捷 合法
-3. 中国人是没有社保的“中国是社保基金不是社保制度”基金赔了就赔了
-4. 中国社保第一条大病等死 小病分等级 治死不治活
-5. 中国医院是盈利机构
-6. 中国人洗脑不是我们能说清楚的，七哥家人打两针、担心七哥没钱、担心七哥没钱打疫苗
-7. 社保基金投了平安，平安倒了就没有了
-8. 老领导相信疫苗 打两针 突发心脏病去世
-9. 七哥英国朋友，打三针高纯度250克疫苗，有反应
-10. 高纯度（250克）疫苗每针等于80-100亿分子
-11. 长岛哥：后补喜币不一定是联盟代持
-12. GTV KYC被拒审核一月时间，长岛：可能正常耐心等待
-13. 美加日KYC没时候开始，长岛：根据每个国家政策，应该日本是最快的
-14. 长岛哥：小额三千起步，低于三千，除非老战友 有贡献 农场审核
-15. GTV 30号重建会不会延期，长岛哥：个人认为可能会延期，具体看GTV投资联盟公告
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
