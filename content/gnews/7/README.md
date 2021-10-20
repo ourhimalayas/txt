@@ -2,37 +2,37 @@
 ---
 
 
-## 中共社保基金实为一千亿，96%给了中共退休干部
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1606342/)
+## 日本要闻汇编
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1606394/)
 
-作者：正义的小新
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-文贵先生在18日的直播中谈及了中共国的社保问题。
+#### 素材：东京樱花团｜GNEWS组
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide8-7.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2020日本.png)[*图片来源*](https://s.wsj.net/public/resources/images/S1-FP509_asiavi_M_20200406075833.jpg)
 
-据文贵先生爆料，中共全国社保基金总额，名义上有两千五百亿美元，实则仅余一千亿美元。这当中，有96%的社保金都给了中共的退休党员干部。
+**10月20日汇编**
 
-文贵先生指出，中共退休的党员干部目前大约有1.3亿。也就是说，中国十四亿人中除了中共党员干部的家人外，剩下的13亿百姓只能得到全国社保的4%。
+1、[**选战聚焦医疗和重振经济 探讨能源政策**](https://china.kyodonews.net/news/2021/10/7571b7935ffa--.html)
 
-此外，文贵先生还提到，中共国并没有社保制度，只有社保基金。而社保基金是法人机构，自负盈亏。中共社保基金最早的法人是车峰的岳父、原中国银行行长戴相龙。后来，车峰说服戴相龙，以骗取社保基金来投资上市公司。另据郭先生指出，平安集团如今拿走了全中国社保基金的45%。一旦平安集团暴雷，这些钱将再无法追回。
+共同社20日消息，日本众院选举的政策讨论中，构建能应对新冠疫情的医疗体制、重振因疫情受挫的经济成为焦点。各党围绕“增长与分配”展开论战。朝着实现去碳化社会，包括核电站应有模式在内的能源政策也受到考验。
 
-中国的老百姓本来就没有钱，还要将钱给社保基金。但社保基金盈利与否，都要由老百姓承担后果。到头来，受苦的还是老百姓。
+2、[**日本电产EV专用马达畅销 中国10款车采用**](https://china.kyodonews.net/news/2021/10/2a1470bfeb0c-ev-10.html)
 
-(本文仅代表作者观点)
+日本电产公司面向电动汽车（EV）的驱动马达E-Axle订单正在增加。E-Axle是实现马达和齿轮等一体化的驱动系统。日本电产14日发布消息称，中国大型车企的高端汽车决定采用等，搭载该产品的EV在中国达到共计10款。
 
-参考链接：[2021年10月18日郭文贵先生直播（盖特直播测试）全文字版](https://gnews.org/zh-hans/1604880/)
+3、[**对日本印象“不好”的中国人升至66%**](https://china.kyodonews.net/news/2021/10/70b859022627-66.html)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+日本民间非营利团体“言论NPO”和中国国际出版集团20日公布了在两国实施的联合民意调查结果。其中回答对日本印象“不好”的中国人较去年上升13.2个百分点至66.1%，出现了恶化。言论NPO称原因是美中对立激化和历史问题等。对中国印象“不好”的日本人增加1.2个百分点至90.9%。约半数列举的理由是中国公务船驶入尖阁诸岛（中国称钓鱼岛）附近。
 
-总编：Irene木木 
-编辑：Irene木木
-校正/发稿：谐趣园
+4、[**谷歌推出自研芯片的新款智能手机**](https://china.kyodonews.net/news/2021/10/ce6bcb8f655b-28.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据共同社消息，美国谷歌的日本法人将于28日推出自家品牌的新款智能手机“Pixel 6”和“Pixel 6 Pro”。其特点是谷歌首次自主研发的作为智能手机大脑的半导体芯片。使用人工智能（AI）的翻译和摄像头功能也得到加强。
+
+5、[**四艘中国公务船一度驶入尖阁日本领海**](https://china.kyodonews.net/news/2021/10/f07c84b0d031-4.html)
+
+共同社消息，日本第11管区海上保安总部（那霸）称，20日上午10点前后起，4艘中国海警局船只相继驶入尖阁诸岛（中国称钓鱼岛）附近的日本领海，上午11点35分左右起驶出领海，进入外侧的毗连区。据称，周围没有日本渔船航行。这是继9月19日后再次有中国公务船驶入尖阁附近领海。
+
+（本文只代表个人观点，与Gnews网站无关）
+
+*编辑：东京樱花团 / 文小白
+发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-6.png)

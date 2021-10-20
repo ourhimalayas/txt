@@ -2,33 +2,30 @@
 ---
 
 
-## 秘翻在线：数以千计的加州家长参加抗议活动　反对强制给学生接种疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1606078/)
+## 有声|中共国经济崩溃式下滑
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1606138/)
 
-#### 翻译撰稿：文斗
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+中（共）国经济在7月至9月的季度中比去年同期增长了4.9%，是一年来最慢的速度，比分析师预测的要差。这比前一季度的增长速度要慢得多，当时的增长速度接近8%，这表明复苏正在减弱。
 
-数以千计的加州家长、学生和教师周一参加了全州范围的缺课抗议游行，抗议加文·纽森(Gavin Newsom)决定强制所有公立和私立学校的学生接种中共病毒疫苗。
+受到电力短缺、Covid-19的爆发、房地产行业的债务危机，和来自中共北京对一些行业的打压……这些正在给中（共）国的经济造成损失。一位专家说，这些情况可能会抑制今年余下时间的增长，不应低估。世界第二大经济体近几个月来面临着一系列挑战。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/as46df465sa1g561tr56h1ytj56j.png)2021年10月18日，亨廷顿海滩码头抗议现场。(图片来源：Vanessa Serna/The Epoch Times)
+另外，中共北京扩大对各行业的最大的公司进行打压，从大科技到游戏到网络再到教育部门……例如：阿里巴巴、腾讯、美团、嘀嘀打车、新东方等。中（共）国一些最大的公司正面临着旨在社会转型的政策遏制。中（共）国政府公布了一个五年计划，表明这种打压将会持续多年。
 
-民主党人纽森本月早些时候宣布，一旦疫苗获得联邦食品和药物管理局(FDA)的全面批准，将对7至12年级的学童进行疫苗接种，使加州成为第一个实施此类要求的州。
+如图所示，如此激烈的波动幅度，在世界经济史上是非常罕见的。这样失速般的暴跌之后暴涨，之后再度失速般的暴跌，除了显示出其经济完全失去动力，并且各方都对经济前景非常悲观之外。这种曲线波幅，往往预示着该国政府的政权不稳，正在失去对经济的掌控力。
 
-到目前为止，FDA只对12至15岁的人给予紧急授权，纽森的最新疫苗要求预计将于2022年1月或2022学年开始时生效。
+2019年，文贵先生就预告：阿里巴巴马云肯定会完蛋，中（共）国大科技公司肯定会完蛋；中（共）国的房地产业、金融业和保险业肯定会完蛋……现在中（共）国的整个经济环境，完美的印证了这与文贵先生的预测——中（共）国的经济正在逐步崩塌中，无可避免，无可救药。
 
-反对这些措施的加利福尼亚人蜂拥到加州国会大厦的台阶上，举着写有“我的身体，我的选择 ”和“我的孩子不会接受科学实验来让你感觉安全 ”的标牌。
+文字版原文：[中共国经济崩溃式下滑](https://gnews.org/zh-hans/1603680/)
 
-全州许多家长让他们的孩子离开学校参加集会，希望他们的缺课能向州政府官员传递一个信息。
-
-萨克拉门托一位母亲，32岁的肯德尔·拉默(Kendall Ramer)告诉美联社，她让她的两个孩子离开小学去参加集会，并补充说，一旦纽森的疫苗授权生效，她和她的丈夫计划转为在家教育。
-
-她说：“每个人都应该能够做出自己的选择，选择对他们有利的东西。”
-
-洛杉矶联合学区雇员霍维克·萨蓬吉安（Hovik Saponghian）告诉SkyFOX（媒体），学童不应该被强迫“在没有完整数据的情况下注射什么东西”。
-
-“我在这里抗议这项命令，因为我们不认为我们应该在宗教上、伦理上或道德上接受它”，萨蓬吉安说。
-
-洛杉矶联合学区（LAUSD）、Placentia Yorba Linda联合学区（PYLUSD）等地的家长也参与抗议，抗议意见基本围绕人们需要选择权以及疫苗安全性的顾虑。
-
-纽森强制要求学童接种 COVID-19 疫苗的计划收到了不同的回应，西弗吉尼亚州州长吉姆·贾斯特斯 (Jim Justice)在10月3日宣布，他绝不可能做同样的事情。
-
-新闻来源：[**Thousands of California Parents Join in Statewide Walkout Against Vaccine Mandate for Students**](https://www.ntd.com/thousands-of-california-parents-join-in-statewide-walkout-against-vaccine-mandate-for-students_690513.html)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

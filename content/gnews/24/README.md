@@ -2,32 +2,35 @@
 ---
 
 
-## 德国联邦银行行长魏德曼辞职
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1606087/)
+## 航运拥堵加剧 全球面临供应链危机
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1606155/)
 
-信息来源： 德国法兰克福报网页版
+作者：宁文静
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/jens-weidmann.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-图片来源： FAZ
 
-延斯·魏德曼（Jens Weidmann）希望在今年年底提前终止合同。他说是个人原因。
+根据南加州海洋交易所发布的数据，加州海岸目前约有百艘货船，近百万个装满货物的集装箱在等待卸货，有些船只已经在近海等待了40天之久。美国最主要港口洛杉矶港和长滩港已根据拜登政府指令，于本月14日开启了每周7天、每天24小时的全天候作业，以缓解消费品供应链的紧张局面。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-20-at-9.21.24-PM.png)
+然而，随着万圣节与圣诞节的临近，运送节日货物的船只又会加剧港口的堵塞。这些支付了10倍运费的集装箱货物幸运地躲过了近期中共大规模的限电措施，却遭遇了港口卸货的瓶颈。
 
-自2011年起担任德国联邦银行行长的延斯·魏德曼已要求联邦总统弗兰克·瓦尔特·施泰因迈尔在今年年底提前终止自己的合同。魏德曼为此列举了个人原因。”我得出的结论是，超过10年的时间是德国联邦银行开始新篇章的最好时机。 对我个人也是最好的。
+而今，中共病毒让全球制造业陷入困顿，疫苗强制令正在引发各行各业不愿接种的人们努力抗争，社会劳动力严重短缺。过去数十年，全球供应链已经形成了一套完整的分工机制，如今航运物流环节出现了断裂，就会产生蝴蝶效应。最坏的情况还远远没有到来。
+(本文仅代表作者观点)
 
-欧洲央行行长克里斯蒂娜-拉加德和央行理事会的同事们就最近的战略讨论感谢魏德曼。 对已经达成的通胀目标做出的评估以及由此引起的可能的负面影响， 魏德曼做出了自己的努力， 并同意更加关注金融稳定风险， 但是拒绝了魏德曼的调高通货膨胀率的目标的提议。
+参考链接：[As Many As Half A Million Shipping Containers Could Be Waiting Off Ports Of LA, Long Beach](https://losangeles.cbslocal.com/2021/10/04/shipping-containers-waiting-ports-los-angeles-long-beach/#click=https://t.co/0LjIWlkL6O)
 
-尽管如此，魏德曼决定的背后可能是对欧洲央行领导层长期失去影响力的失望，在他看来，欧洲央行不仅在货币政策方面走向了错误的方向。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-货币政策中的异议在魏德曼的话中变得很清楚：对于货币政策来说，不要片面地看待通货紧缩风险，但也不要忽视透视通货膨胀风险，这将是决定性的。只有当货币联盟的监管框架继续确保行动和责任的统一，只有当货币政策尊重其狭隘的任务，不被财政政策或金融市场所左右时，以稳定为导向的货币政策才有可能在长期内实现。”魏德曼说：”这仍然是我坚定的个人信念，货币政策的独立性也非常重要。
+总编：木白 
+编辑：馬可波羅
+校正/发稿：我不在这里
 
-简评： 德国联邦银行行长辞职， 无论是什么原因， 对于德国的经济政策和欧洲经济政策都增加了不确定性。 欧洲所面临的经济困难是否就此开始逐渐显露， 只有时间才可以告诉我们。 但是，德国联邦银行行长的重要性， 从他辞呈直接递交给德国总统这一点上， 就可以体现。 要知道， 德国大选后确定总理人选后， 也是要由总统任命的。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-原文链接： [https://www.faz.net/aktuell/wirtschaft/bundesbankpraesident-jens-weidmann-tritt-vorzeitig-zurueck-17593571.html](https://www.faz.net/aktuell/wirtschaft/bundesbankpraesident-jens-weidmann-tritt-vorzeitig-zurueck-17593571.html)
-
-免责声明：本文观点只代表作者， 与Gnews平台无关
-
-编辑发布： Shuizhuyu
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

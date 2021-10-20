@@ -2,33 +2,56 @@
 ---
 
 
-## 郭文贵先生倾力打造灭共单曲《沧海一声啸》
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1606357/)
+## 马云王健林潘石屹等上市公司高管隐瞒刑事调查欺诈投资者
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1606430/)
 
-作者：AlexZ
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-纽约当地时间10月16日下午5时左右，郭文贵先生携手三位音乐制作人唐平、威廉王、QMay再次走进录音棚，共同打造灭共单曲《沧海一声啸》。同时，郭先生也在GTV直播上与战友们分享了歌曲录制的整个过程。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/v2-d63f41bf812dde19c875e3e4ce079600_720w_副本.jpg)
+据郭文贵先生2021年10月20日大直播——
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-14.jpeg)
+好，咱们今天是10月20号，文贵与一队美女帅哥战友我们今天的大直播，讲到关于马云的问题，我们用今天的直播希望来记载今天中国最重要的一个历史的时刻，我说的这个时间点没有什么惊天动地的消息，你记住很快你会验证。
 
-事实上，《沧海一声啸》是2020年中共病毒大爆发期间，由唐平、威廉王为郭先生创作的第一支个人单曲。歌曲当时在网络上一经发布，随即在中共国内产生了巨大反响。为此，中共曾一度封杀该曲。此次郭先生与三位音乐人再度联手，为这首歌曲注入新的力量。
+第一条，我上次直播说的江志成被抓和江志成被放，记住江志成是2020年被抓过两次，而且马上被释放，包括吴征、包括马云也曾经被抓也被问话，那时候的王健林是我们第一个爆出王健林被抓的，这几个电商。
 
-众所周知，郭先生的另外七支灭共单曲广受全球战友的喜爱与支持，在今年8月几经霸屏多国iTunes排行榜榜首。相信郭先生这次倾力打造的全新版《沧海一声啸》势必在全球音乐榜上掀起一股新的灭共浪潮。
+大家记住这个关键点，他们那个时候被抓的时候，Rachel你知道他那时候是什么吗？你们知道吗？我说的重点是什么？他是上市公司什么身份？你们记住了吗？你们没有一个人说清楚的，他们是美国上市公司的法人和主席，他是大股东，包括当时王健林有上市公司，Rachel你知道我说的啥意思？你听懂了吗？没听懂吧？你们都没听懂，花王也没听懂。
 
-(本文仅代表作者观点)
+我告诉你这全是刑事犯罪，因为当你是上市公司主席，你任何刑事被调查你必须马上公告，如果不公告，所有在上市上造成的股票损失你都得赔！记住！这是刑事罪！这是诈骗刑事罪！这些一众上市公司包括当时许家印都是被抓起来、被问话、刑事调查，明确就叫刑事调查、配合调查，这些人全都没公告。你像江志成被抓没问题，他不是上市公司的职务，但你马云这些人都是，你包括微信，你包括平安马明哲都在去年发生过，当时的王健林。
 
-参考链接：[2021-10-16 揭秘摇滚巨星郭文贵先生与新中国联邦战友们现场录音实况](https://gtv.org/video/id=616b32f0304e992109b5fdbc)
+好！那么这个我们不说，接下来往下说的事情，2020年的三月份孙力军被抓以后，然后是4月19号宣布，这个时候找马云，发的就是中华人民共和国刑事调查侦查书，不是经济调查，接着又给马云发的是叫经济犯罪调查书，这些马云全都没公布。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+那个时候马云没有啊，记住马云是什么时所谓的自动地离开了上市公司阿里巴巴的所谓的几个法人职务的，大家看一看，这个是都在之前发生的。
 
-总编：Irene木木 
-编辑：Irene木木
-校正/发稿：谐趣园
+从那离开了阿里巴巴的所谓上市公司、控股公司的职务CEO、董事长之后，马云始终还是大股东——大股东之一，大家要记住这个问题，那么接下来我说的这些老板多了，你像那个潘石屹还有张欣，他两口子，现在大家记住，你们要买了潘石屹的SOHO股票，你们还有马云的股票，还有什么王健林的，还有马明哲、马化腾的股票，你们盯住，你们将有历史上最大的赚钱的机会，而且几乎100%赢，几乎是100%赢，你只要在任何你这国家上市，你就100%赢。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+而且你现在也可以回头去买这些上市公司在那个时间段以前的股票，你买了你就可以起诉他，你们现在这个同框同心的七哥直播这几个人，你们就可以组成一个叫诉讼团就可以告他，你像那个潘石屹，他现在是被通缉、他被刑事调查、他被经济犯罪调查是2020年的5月份开始，他没有公告，这叫刑事犯罪。
+
+好，那么2020年的10月1号、2号、3号，就马云这傻叉在配合调查被放出来之后，蚂蚁金服上市，然后被打电话回去，本来从香港上市和上海上市，改成从上海上市把他抓起来，他也没有及时公告，也没有如实公告，这是更多次的金融犯罪、经济犯罪，大家记住这话！记住！
+
+潘石屹两口子那一定要进监狱的，这钱都要被罚光的，包括我旁边的什么GM大楼的股份都得拿走，包括完全掩盖中国政府对他的刑事犯罪的调查的其中一切的手续，都会有人弄出来。而且你们任何人起诉他，律师有合理合法的调查他这些数据，他必须得给。
+
+好，我再说马云，马云从2020年10月3号自己公布被约谈，他不是被约谈，他是刑事调查，从（10月）1、2、3之后出来，拿到公司里边儿，到外面拿自己的金融票据，配合调查，被所谓的被刑事控制、诉讼期间和共产党达成了到外面去把所有钱都拿回来，涉及到谁呢？
+
+他的副手叫于峰，于峰的全家也是被抓的，他二十几个高管全部家人被抓，马云到今天是100%的失去自由状态，100%郭文贵负法律地说，100%！
+
+（以下暂略）
+
+视频协作：天边小面包
+
+撰稿：喜马拉雅的肉夹馍
+
+审核：喜马拉雅的馍夹肉
+
+校对：Maarago
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

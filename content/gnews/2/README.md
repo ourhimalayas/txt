@@ -2,35 +2,44 @@
 ---
 
 
-## 俄克拉荷马州长反对拜登疫苗强制令，称接种是个人自由
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1606392/)
+## 中共派杀手押马云赴西班牙进行国家级操纵股市刑事诈骗
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1606467/)
 
-【评论：】*最近我们看到了很多关于抵制中共病毒疫苗强制接种的积极消息，例如佛罗里达州的莱昂县（Leon County）因违反了佛州的疫苗护照禁令在10月12日被佛州卫生局罚款350万美元 ；德克萨斯州州长格雷格.阿博特（Greg Abbott）表示在德克萨斯州不得有任何实体对任何个人包括雇员和消费者，也包括那些之前感染病毒后康复的患者采取强制疫苗接种的要求；美国众多议员及工作人员和家人服务伊维菌素治愈中共病毒等。好消息不断，有良知和正义的人正在觉醒。*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1409180658462039-594x359_副本.jpg)
+据郭文贵先生2021年10月20日大直播——
 
-据《网关专家》记者 Cassandra Fairbanks，2021年10月14日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-396.png)图片源自thegatewaypundit.com
-俄克拉荷马州州长凯文·斯蒂特 (Kevin Stitt) 宣布，他们将把拜登政府告上法庭，原因是他们计划对拥有 100 名以上员工的企业实施疫苗强制接种。
+现在跟着马云的人是多少人呢？大家记住我今天说的话，看我直播的人，跟着马云在西班牙的20个人来自中国政府，7个是中国的公安部一局还有国家安全部的警察，全是杀手级的、持武器的，所有这些人都是假名，跟当年的海航的王健去普罗旺斯是一个情况，当时的裴楠楠是用的假护照，现在是中央警卫局和公安部的经济侦察局和政保局的杀手级的特警用假身份，但他们是国家公务员，他是中国的军人，用假护照到任何国家都是非法的。
 
-在周四发布的一段视频中，斯蒂特州长表示，“这一行动不仅是联邦政府的越权行为，而且也违反了宪法，接种疫苗与否应该尊重个人选择。”
+大家记住我这话，Rachel听懂了吗？他在任何国家，我们现在有任何老百姓都可以抓捕他，这20个人对马云实施的是一种逮捕和绑架，因为马云家里的母亲、岳父、妻子、儿子还有亲戚28个人是被共产党拘押状态，让马云到香港去处理资产。
 
-斯蒂特在视频中说：“接种疫苗是个人选择。 死板的、一刀切式的静态指令根本不符合我们今天所处的现实。在俄克拉荷马州，病例和住院人数下降了近 50%。 伴随病毒的演变，也出现了科学的治疗方法，包括人们对自然免疫的选择。”
+然后马云飞往西班牙是10月14号申请的，申请的理由是西班牙卖掉自己的游艇和卖掉自己岛上的三大块地，还有在那里必须亲自到西班牙签名的几个控股公司。
 
-斯蒂特补充说：“拜登总统政府不尊重个人自由。我不敢相信我们的总统想要迫使美国人在疫苗和工作之间做出选择。受此影响的不仅仅是统计数据，还包括我们俄克拉荷马州人，他们真正为此担忧，他们或者是勇敢的护士和守护者，或是翘首期盼的父亲和母亲，亦或是应急人员和勇敢执法者。”
+两架飞机到了西班牙，我请告诉大家，你们去查一查谁先爆出马云飞西班牙的，这个网站一定是共产党，第一个这两架飞机怎么飞的？告诉我是什么飞行记录，你怎么知道是飞这个岛？你怎么知道他坐的游艇？为什么你知道信息？这不是记者干的，这是情报机构干的。
 
-司法部长约翰·奥康纳（John O ‘Connor）也谴责了这项即将出台的疫苗强制接种令。
+干的是什么？为什么这么干知道吗？两个目的，让马云到西班牙在绑架状态的情况下去处理自己的物业和资产、游艇，同时放出这个信息是为了抬高整个阿里巴巴上市的股价，抬高之后共产党让马云马上将自己代持和自己股票出手。这是公开的共产党国家级的操纵股市刑事诈骗。
 
-奥康纳在一份声明中说：“一旦联邦紧急状态条例发布，对雇主提出这种非法要求，我们办公室将与全国各地的其他州检察长一道，迅速提起诉讼并寻求禁令，禁止任何实施或强制行为的发生。”
+记住啊！所有全世界的金融机构记住郭文贵今天说的话！10月20号中国共产党和马云在绑架马云28个人和他21个高管的全部家人，20个中国的警察和中纪委、政府官员，包括人民银行，20个人里面7个是来自警察、特警，另外的来自中纪委，还有来自中国的所有人民银行，这些国家政府高官们隐藏公务身份到西班牙去操纵海外媒体，炒作、抬高阿里巴巴的股价，这是公开的国际的刑事操作和犯罪，大家听懂我意思了吗？这是我说的第二个重点。
 
-原文连接[https://www.thegatewaypundit.com/2021/10/watch-oklahoma-governor-stands-bidens-vaccine-mandates-says-shots-personal-choice/](https://www.thegatewaypundit.com/2021/10/watch-oklahoma-governor-stands-bidens-vaccine-mandates-says-shots-personal-choice/)
+（以下暂略）
 
-翻译：洛杉矶盘古农场 – 钢蛋儿
+视频协作：天边小面包
 
-校对：洛杉矶盘古农场 – Mike Li
+撰稿：喜马拉雅的肉夹馍
 
-评论：洛杉矶盘古农场 – 钢蛋儿
+审核：喜马拉雅的馍夹肉
 
-编辑：洛杉矶盘古农场 – Wendy
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+校对：Maarago
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
