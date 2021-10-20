@@ -2,15 +2,31 @@
 ---
 
 
-## 狮城快讯：新加坡被美国列为中共病毒最高危险级别的国家
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1604379/)
+## NIH在7月份已将伊维菌素纳入治疗中共病毒推荐药物
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1604629/)
 
-**撰稿：小坡**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-19-220136.jpg)
-本周一（10月18日）美国疾病控制与预防中心 (CDC) 将其对新加坡的建议级别调整为 4 级，即最高危险级别。 CDC 说：“由于新加坡目前的情况，即使是完全接种疫苗的旅行者也可能感染和传播中共病毒。”
+**撰稿：日本东京方舟农场 北极**
 
-美国国务院周一也发布了类似通知，敦促人们不要轻易前往新加坡。 CDC 使用旅行健康通知，通过四级咨询系统提醒旅行者注意世界各地的健康威胁。 该系统通过考虑近期中共病例数和新病例轨迹等因素对目的地进行分类。
+据网名Daily Beats的用户10月15日发布在盖特(Gettr)上的一段视频显示，NIH（美国国立卫生研究院）在7月8日就已将伊维菌素列为治疗中共病毒的推荐药物，而美国患者和医生却并不知道。
 
-美国CDC的福奇难道不看李显龙的演讲吗？我们都和病毒共存了，新加坡一直都是按照福奇老人家的指导一路走过来的啊，不让吃羟氯喹，疫苗一针不行两针，两针不行，再加强针，而且绝大多数都是打的你们美国CDC推荐的疫苗啊。如今我们每天几千人感染，全都是美国CDC和辉瑞的功劳啊！怎么还说新加坡“危险”呢？新加坡政府从来都是说我们是控制病毒最好的国家，人死了多少嘛…. 咳咳，好像也不多啊，反正没有像美国鲍威尔将军那么有名的人死了，民众就觉得一点都不危险啊，福奇博士请出来走两步，为啥说我们新加坡危险呢？
+视频中，来自美国的Bryan Ardis医生披露，他每周都会收到很多中共病毒患者及其家属的邮件，均是由于伊维菌素得不到官方批准，导致ICU（重症监护室）医生或医院管理人员无法开具伊维菌素的处方治疗病毒感染。
 
-**[新闻来源](https://www.straitstimes.com/singapore/us-raises-covid-19-travel-alert-for-singapore-to-highest-risk-level)**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/id13047584-504254-scaled.jpg)图片来自于网络
+
+事实上，NIH网站在7月8日更新发布的用治疗中共病毒的推荐药物中，明确列出了伊维菌素及具体使用剂量。
+
+Bryan Ardis医生表示，NIH之所以悄悄将信息放在网站而不通知医院使用，一方面为了确保没人知道，另一方面是为了在以后的法庭上为自己辩解，掩护罪行。
+
+Bryan Ardis医生得出结论说，所有美国医生和医疗机构针对中共病毒的治疗指导都遵循NIH。
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[Ivermectin is listed in nih.com as one of the two medicines to treat Covid-19 patients. Please see the table below.](https://gettr.com/post/pe66me9529)
+
+[Table 2e. Characteristics of Antiviral Agents That Are Approved or Under Evaluation for the Treatment of COVID-19](https://www.covid19treatmentguidelines.nih.gov/tables/table-2e/)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

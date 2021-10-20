@@ -2,31 +2,23 @@
 ---
 
 
-## NIH在7月份已将伊维菌素纳入治疗中共病毒推荐药物
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1604629/)
+## 有声|英国生育率创下新低
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1604931/)
 
-**撰稿：日本东京方舟农场 北极**
+配音：香草山美食部 – 玫瑰园
 
-据网名Daily Beats的用户10月15日发布在盖特(Gettr)上的一段视频显示，NIH（美国国立卫生研究院）在7月8日就已将伊维菌素列为治疗中共病毒的推荐药物，而美国患者和医生却并不知道。
+根据英国国家统计局的官方数据，2020年英国的生育率降至1.58，达到有记录以来的最低水平。 尽管新冠大流行期间，人们大部分时间待在家中，但是2020年英国人口出生率比2019年下降了4.2%，比2001年的前一个历史低点低了3.1%。而且，英国的出生率已经连续五年呈下降趋势。 英国怀孕咨询处指责中共病毒大流行导致的经济不确定性，是生育率大幅下降的原因之一。 大范围接种新冠疫苗也可能会成为导致生育率和出生率下降的因素。英国是最早普及新冠疫苗的国家之一，接种率已接近70%。英国生殖免疫专家发现新冠疫苗导致女性经期紊乱，甚至闭经。大量医学案例证明，孕期女性接种新冠疫苗可导致流产。
 
-视频中，来自美国的Bryan Ardis医生披露，他每周都会收到很多中共病毒患者及其家属的邮件，均是由于伊维菌素得不到官方批准，导致ICU（重症监护室）医生或医院管理人员无法开具伊维菌素的处方治疗病毒感染。
+文字版原文：[英国生育率创下新低](https://gnews.org/zh-hans/1601494/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/id13047584-504254-scaled.jpg)图片来自于网络
+音频处理：喜山必胜Maverick
 
-事实上，NIH网站在7月8日更新发布的用治疗中共病毒的推荐药物中，明确列出了伊维菌素及具体使用剂量。
-
-Bryan Ardis医生表示，NIH之所以悄悄将信息放在网站而不通知医院使用，一方面为了确保没人知道，另一方面是为了在以后的法庭上为自己辩解，掩护罪行。
-
-Bryan Ardis医生得出结论说，所有美国医生和医疗机构针对中共病毒的治疗指导都遵循NIH。
-
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[Ivermectin is listed in nih.com as one of the two medicines to treat Covid-19 patients. Please see the table below.](https://gettr.com/post/pe66me9529)
-
-[Table 2e. Characteristics of Antiviral Agents That Are Approved or Under Evaluation for the Treatment of COVID-19](https://www.covid19treatmentguidelines.nih.gov/tables/table-2e/)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

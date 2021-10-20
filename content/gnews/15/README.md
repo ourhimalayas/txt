@@ -2,49 +2,19 @@
 ---
 
 
-## 西南航空公司改变疫苗接种政策要求
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1605126/)
+## 人权活动人士敦促各界抵制2022年北京冬奥会
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1605241/)
 
-作者：纽约香草山福音部 – Lilian89
+采編：文萊         編譯撰稿：苦尽甜来 (文來）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/抵制冬奧會3.jpg)
+[图片来源](https://www.bbc.com/zhongwen/trad/world-58951668)
 
+据加拿大自媒体【后千禧年】10月19日报道，日前在希腊举行的奥运圣火移交给 2022 年北京冬奥会组织者的仪式中，遭到了大量人权活动人士的抗议，并当场展开了一面西藏旗和写着“反种族灭绝”的横幅。
 
+国际西藏组织负责人在雅典对媒体称，世界再次见证了（国际奥委会）的虚伪，奥运火炬正被移交给一个与所有（奥运）理想都相去甚远的东道国政府，以至于人们似乎生活在一种扭曲的现实中。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+尽管近年来中共对新疆维吾尔族人执行了種族滅絕、对香港抗议者实施了殘害以及最近与台湾的冲突不断升级，但国际奥委会仍在继续制定让北京举办下一届奥运会的计划。
 
+编辑校对：硫酸羟氯喹64
 
-
-据消息称，美国西南航空公司作为联邦承包商，被要求于12月8日前为其雇员完成新冠疫苗的接种任务，在最后期限之前，但没有得到宗教或医疗豁免且未接种疫苗的雇员将开始休无薪假。
-
-![](https://image.cnbcfm.com/api/v1/image/106957804-1633972118499-gettyimages-1346028118-kd1_0204_20211011122343793.jpeg?v=1633972187&amp;w=929&amp;h=523)图片来源：Getty Images
-
-对于这一疫苗强制执行政策，西南航空公司飞行员协会提出了法律诉讼，要求法院“暂时阻止该公司执行联邦规定的新冠病毒疫苗接种政策，直至关于涉嫌违反美国劳动法的诉讼得到解决”。
-
-10月15日，西南航空公司负责运营和接待的高级副总裁史蒂夫-戈德堡和副总裁兼首席人事官朱莉-韦伯写信给员工表示，即便员工的豁免请求在最后期限之前没有得到批准，他们仍然可以继续工作，但需要遵守带口罩和保存社交距离的准则，直到豁免请求得到审查。
-
-为了在世界范围内停止COVID疫苗的接种，我们需要坚定信念、绝不放弃，继续传播疫苗真相，拒绝强制疫苗接种政策。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-[Southwest drops plan to put unvaccinated staff on unpaid leave starting in December](https://www.cnbc.com/2021/10/19/southwest-vaccine-mandate-unpaid-leave-exemptions.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2.jpg](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+[原文链接](https://thepostmillennial.com/human-rights-activists-urge-boycott-of-2022-beijing-winter-olympics-citing-chinas-human-rights-abuses)

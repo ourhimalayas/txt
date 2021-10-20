@@ -2,53 +2,45 @@
 ---
 
 
-## 武汉实验室宣布只雇用中共党员
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1605146/)
+## 澳洲下月推疫苗加强剂，拟普及给所有人群
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1605259/)
 
-作者：Natalie Winters
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-据《国家脉搏》透露，现在人们普遍认为武汉病毒学研究所是导致新冠大流行的罪魁祸首，它正在启动一个由另外七个实验室组成的新网络，其中一些设施专门雇用中共党员。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Approaches-to-solve-distribution-quandaries.jpg)图片来源：clinicaltrialsarena.com
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/CCP.jpeg)
 
-实验室网站上的几个帖子显示了其中一个新设施：江夏实验室的职位空缺。武汉及其实验得到了美国领先机构的资助和支持，例如安东尼·福奇国家过敏和传染病研究所。
+#### 编译：小红帽
 
-“江夏实验室是武汉病毒所牵头的湖北省首批七家湖北实验室之一，”该实验室解释说，其宗旨是“凝聚新发传染病防控领域优势力量，省内外生物安全，打造新一代检测试剂和设备，研发和储备抗病毒疫苗和药物。”
+澳大利亚民众将在11月中旬之前获得中共病毒（COVID-19）疫苗加强剂，联邦卫生部长格雷格·亨特（Greg Hunt）表示，“很可能”向全体民众提供疫苗加强剂。
 
-一个5月17日交于实验室名单第一资格“管理”位置“中国共产党党员，35岁及以下，身体健康。”
+老年护理人员是第一批获得第三针的人，即额外剂量的辉瑞（Pfizer）疫苗。
 
-“具有1年以上公共事务管理和党务工作经验者优先，”申请说明补充道。
+宣布这一消息之际，澳大利亚16岁及以上人群的两剂疫苗接种率超过70%。亨特先生说，周二全国范围又进行了277,000剂疫苗接种，总数达到3320万次。
 
-岗位职责包括“实验室党建日常工作，包括制定工作制度，负责党支部建设和党员日常管理工作，编写和报告各种材料，负责实验室培养建设。”
+16 岁及以上人群的首剂疫苗接种率为85.5%。
 
-8 月 25 日发布的另一份 “人力资源管理” 职位空缺将第一个 “任命条件” 列为 “中国共产党员” 。
+澳大利亚最近开始向严重免疫功能低下的人提供“第三针”。但首席医疗官保罗·凯利（Paul Kelly）教授说，该计划与针对更广泛人群的加强剂不同。
 
-10月14日职位空缺广告已经被发布到武汉病毒网站。
+联邦政府仍在等待治疗用品管理局和澳大利亚免疫技术咨询小组的最终建议。但从11月中旬开始，老年护理人员可能会开始接种疫苗加强剂。
 
-武汉病毒研究所的七个实验室扩建根据《国家脉搏》揭示了该机构如何在中国共产党的直接控制下运作，包括因努力提升“党性”和承诺实现党的目标而获得政权奖励“在共产主义学习期间毫不妥协”。
+这很可能是辉瑞公司的疫苗。亨特先生表示，官员们将在下周初与辉瑞公司会面，但仍在等待莫德纳（Moderna） 或阿斯利康 (AstraZeneca) 的申请，以将他们的疫苗作为加强剂。
 
-据其中文网站称，该实验室举行例行会议，以提高“党性”和“政治觉悟”，包括“迎接中国共产党第十八次全国代表大会”等活动。
+澳大利亚于 2021 年和 2022 年与辉瑞和莫德纳签订了数千万剂疫苗合同。
 
-武汉病毒学研究所连接着中国共产党，也和正值美国国家过敏症和传染病研究所（NIAID）主任安东尼·福奇决定用美国纳税人的钱资助该实验室的决定有关系。
+政府还签订了一份5100万剂诺瓦克斯（Novavax）疫苗的合同，该疫苗已被视为加强剂候选疫苗。但该制造商尚未向澳大利亚监管机构提交申请，因此未获准在澳大利亚使用。
 
-该研究与彼得·达萨克等美国科学家合作进行，重点是操纵类似于新冠的蝙蝠冠状病毒。
+凯利教授和亨特先生强调，他们不会推测未来是否会强制接种第三剂中共病毒疫苗，如在航空旅行或医疗保健等高风险行业工作的情况下。
 
-來源：[https://thenationalpulse.com/exclusive/wuhan-lab-launches-new-lab-for-ccp-members/](https://thenationalpulse.com/exclusive/wuhan-lab-launches-new-lab-for-ccp-members/)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-（文章仅代表作者个人观点）
+**参考新闻：**[Vaccine boosters to begin next month, ‘likely’ for whole population (thenewdaily.com.au)](https://thenewdaily.com.au/news/2021/10/20/covid-boosters-greg-hunt/)
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+***发布：小红帽***
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

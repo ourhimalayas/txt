@@ -2,27 +2,35 @@
 ---
 
 
-## 有声|美国国际开发署启动了1.25亿美元的项目以寻找12000种新病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1604904/)
+## 日本要闻汇编
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1605014/)
 
-配音：香草山美食部 – 玫瑰园
+#### 素材：东京樱花团GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-368.png)[*图片来源*](https://s.rfi.fr/media/display/c6778e3a-2cd9-11ec-8604-005056bfb2b6/w:1280/p:16x9/2021-10-14T053939Z_275327146_RC2H9Q959QAL_RTRMADP_3_JAPAN-ELECTION.webp)
+10月19日汇编
 
-国家脉动10月16日消息，美国国际开发署与华盛顿州立大学和外国合作者启动了一个价值1.25亿美元的新项目，以发现自然界中超过一万种新型病毒
+1、[**朝鲜向日本海发射的弹道导弹或为SLBM**](https://china.kyodonews.net/news/2021/10/b3ed0d3fdeef-2slbm.html)
 
-华盛顿州立大学（WSU）在10月5日宣布，该项目将在五年内收集超过80万个样本。在一份摘要中，该校预计会找到8000到12000个新型病毒，研究人员将对给动物和人类健康构成最大风险的病毒进行筛选和基因组测序，重点是冠状病毒、丝虫病毒和副粘病毒。该项目计划与多达12个非洲、亚洲和拉丁美洲国家合作，在这些国家建立科学能力，利用各国自有的实验室设施，开展大规模的动物监测项目。 WSU尚未确定其外国合作单位，但该校曾和大疆等与中共情报部门相关的技术公司合作进行研究。而美国国际开发署曾经资助生态健康联盟和武汉病毒研究所进行过类似的研究，众所周知，武汉病毒研究所正是中共病毒的来源。
+韩军联合参谋本部19日发布消息称，据推断朝鲜当天上午发射的是短程潜射弹道导弹（SLBM）。据称朝鲜从东部新浦海上向日本海发射了1枚。日本政府分析称发射了2枚。1枚沿不规则轨道飞行约600公里，最高高度约50公里。这是首次确认的类型，可能是新型SLBM。据分析导弹落在日本专属经济区（EEZ）外，未发现遭受损失。
 
-只有在正义力量的监管下，才能使生物研究真正造福人类，呼吁一定要先查清楚本次病毒大流行的起因经过，并对相关责任人进行问责。
+2、[**原油涨价或致家庭年支出增加2.8万日元**](https://china.kyodonews.net/news/2021/10/b8468de59632-28.html)
 
-文字版原文：[美国国际开发署启动了1.25亿美元的项目以寻找12000种新病毒](https://gnews.org/zh-hans/1601546/)
+共同社10月19日消息、原油价格高涨趋于长期化的担忧正在加剧。除了会通过燃料、原材料成本挤压企业和农渔商家等利润外，也有估算认为家庭支出的全年负担将增加约2.8万日元（约合人民币1570元）。政府召开相关阁僚会议开始讨论应对措施。
 
-音频处理：喜山必胜Maverick
+3、[**日本众院选举1051人参加 候选人数创新低**](https://china.kyodonews.net/news/2021/10/e9523ae1e1f6-1051-.html)
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+日本第49届众院选举19日发布公告，共有1051人参选，将争夺小选区和比例代表总计465个议席。候选人数低于现行制度下此前最少的2005年众院选举的1131人。除了增长与分配的问题，朝鲜发射弹道导弹令危机管理应对也成为争论点。
+
+4、[**总务省认定docomo通信故障属“重大事故”**](https://china.kyodonews.net/news/2021/10/ee8f9d6f4734.html)
+
+日本总务省19日透露，已认定NTT docomo大规模手机通信故障属于《电气通信事业法》中的“重大事故”。docomo有必要报告事故原因和防止再次发生的措施。总务省将根据报告内容，探讨是否实施行政指导。
+
+5、[**NTSB就华盛顿地铁事故要求检查川崎重工列车**](https://china.kyodonews.net/news/2021/10/3172ab385e69-ntsb.html)
+
+共同社华盛顿10月19日消息，美国首都华盛顿地铁12日发生日本川崎重工业公司制造的列车脱轨事故，美国国家运输安全委员会（NTSB）18日要求使用川崎重工列车的铁路部门尽快检查车辆。据欧美媒体报道，与脱轨列车相同型号的“7000系”此前多次发现与车轮相关的问题。
+
+（本文只代表个人观点，与Gnews网站无关）
+
+*编辑：东京樱花团 / 文小白*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

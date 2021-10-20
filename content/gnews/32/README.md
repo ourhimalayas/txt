@@ -2,23 +2,30 @@
 ---
 
 
-## 有声|英国生育率创下新低
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1604931/)
+## 纽约州总检察长责令两加密货币交易平台关闭在该州的业务
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1605067/)
 
-配音：香草山美食部 – 玫瑰园
+【**简评】加密货币最吸引人的方面之一是其底层的区块链分类账系统使其无法被黑客入侵。但这并不意味着对加密货币的投资不受欺诈的影响。最近纽约州最高法院关闭的加密货币交易平台之一 Coinseed ，对它的指控其中包括：在纽约未注册的情况下作为商品经纪交易商运营；出售加密代币；在投资者不知情的情况下将所有投资者持有的资产转移到狗狗币中，造成投资者的损失。 。 。**
 
-根据英国国家统计局的官方数据，2020年英国的生育率降至1.58，达到有记录以来的最低水平。 尽管新冠大流行期间，人们大部分时间待在家中，但是2020年英国人口出生率比2019年下降了4.2%，比2001年的前一个历史低点低了3.1%。而且，英国的出生率已经连续五年呈下降趋势。 英国怀孕咨询处指责中共病毒大流行导致的经济不确定性，是生育率大幅下降的原因之一。 大范围接种新冠疫苗也可能会成为导致生育率和出生率下降的因素。英国是最早普及新冠疫苗的国家之一，接种率已接近70%。英国生殖免疫专家发现新冠疫苗导致女性经期紊乱，甚至闭经。大量医学案例证明，孕期女性接种新冠疫苗可导致流产。
+**美国财政部也表示，加密货币的崛起可能影响到美国经济制裁措施的成效。到目前为止，加密货币行业仍旧处于监管的“灰色地带”之中，在这个行业与全球监管机构之间关系日益紧张的形势下，美国监管机构一直都在加大对该行业的监管力度。**
 
-文字版原文：[英国生育率创下新低](https://gnews.org/zh-hans/1601494/)
+**据《突发新闻》记者：Christian Baha，2021年10月18日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl-13.jpg)图片来源：《突发新闻》
+纽约州总检察长利蒂希娅·詹姆斯（Letitia James）办公室周一宣布，该州两家加密货币借贷平台被勒令关闭。
 
-音频处理：喜山必胜Maverick
+此外，还有三家加密货币平台被要求提供有关其业务的信息。
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+詹姆斯说:“与其他所有公司一样，加密货币平台也必须遵守法律。”并断言“今天的行动……发出一个信号，我们将毫不犹豫地采取任何必要的行动，打击任何认为自己凌驾于法律之上的公司。”
+
+**原文连接**：[https://breakingthenews.net/Article/NYC-AG-orders-closure-of-2-crypto-trading-platforms/56551766](https://breakingthenews.net/Article/NYC-AG-orders-closure-of-2-crypto-trading-platforms/56551766)
+
+**(本文评论仅代表个人观点）**
+
+翻译：洛杉矶盘古农场 – 钢蛋儿
+校对：洛杉矶盘古农场 – Mike Li
+评论/编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

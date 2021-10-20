@@ -2,25 +2,20 @@
 ---
 
 
-## 雷军退出上海小米金融公司董事 法定代表人变更
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1605138/)
+## 马云被飞西班牙 下场或惨过王健
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1605258/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/SmBVYZ942IEsIp.jpg)雷军退出上海小米金融公司董事 法定代表人变更 网络图片
-据手机中国10月18日报道，上海小米金融信息服务有限公司发生工商变更，雷军、洪锋、林斌退出公司董事，林世伟任职董事、总经理，法定代表人由洪锋变更为林世伟。
+#### 撰稿：坤霆/萌萌的朋克
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-98.jpg)图片来源：NYP
+10月19日，据马云的《南华早报》报道，马云正在欧洲进行考察旅行，这是他一年多来首次出国旅行。期间将参加一系列商业会议。
 
-上海小米信息公司成立于2015年7月16日，注册资本为3000万元，现由天星数科科技有限公司100%控股。8月25日，小米集团总收入为878亿元，净利润63亿元。在金融科技方面，小米其他增值服务收入达16亿元，包含此业务在内的互联网服务版块收入为70亿元。
+另据香港《东周刊》报导称，马云与一众富豪、科技大佬于10月16日凌晨在香港搭乘两架私人飞机，一前一后飞往西班牙。抵达后，马云与同行好友登上一艘价值超2亿美元的超级游艇，从西班牙东部的伊维萨岛启航出海。
 
-雷军退出了，这一片忠心能不能买条命？拭目以待。下一个是谁？
+但根据郭文贵先生10月19号的盖特爆料，“马云完全是非自由的，正在处理资产中，一切都要脱手，包括股票，把股票抬一抬，把很多东西要出手。江家、曾家、王岐山家危也。”
 
-新闻参考链接：[https://c.m.163.com/news/a/GMJV4KLK051191D6.html?spss=newsapp](https://c.m.163.com/news/a/GMJV4KLK051191D6.html?spss=newsapp)
+原文链接：
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+1. [10月19号：尊敬的战友们好……杰克．马．去西班牙意味着什么？](https://gettr.com/post/peks4hb556)
+2. [Jack Ma flies abroad for the first time in more than a year to Europe](https://www.scmp.com/business/companies/article/3152901/jack-ma-study-tour-agriculture-europe-alibabas-founder-travels)
+3. [马云最新行踪曝光：香港会友后，转飞西班牙度假](https://finance.ifeng.com/c/8ARw0g5UPpS)
