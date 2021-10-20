@@ -2,20 +2,21 @@
 ---
 
 
-## “Let&#8217;s Go Brandon”成美国最火国骂 抗议拜登完美避开审查
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1605305/)
+## 德国右翼媒体集团宣布已完成收购 PLITICO
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1605462/)
 
-#### 编译：花岗岩
+#### 编译：坤霆
 校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/7-12.jpg)图片来源：网络截图
-据美国太阳（The U.S. Sun）网站10月19日报道，川普的前助手杰森·米勒（Jason Miller  ）说，“Let’s Go Brandon”（布兰登加油）这个梗使美国可以在没有审查的情况下抗议拜登政府。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-54.jpg)图片来源：POLITICO
+10月19日德国右翼媒体新闻巨头阿克塞尔·斯普林格（Axel Springer）正式发布公告，集团已完成对美国媒体 POLITICO 的收购。
 
-10月2日，纳斯卡（NASCAR）车手布兰登·布朗在阿拉巴马州的塔拉迪加超速赛道上赢得了他的第一场 Xfinity 系列赛后，米勒组织了带有这一口号的飞机飞越川普集会的活动。在布兰等赛后接受NBC体育记者凯利·斯塔瓦斯特（Kelli Stavast）采访时，现场听到观众高呼 “F\*\*k Joe Biden”，斯塔瓦斯特似乎听错了口号，声称人群在说 “Let’s go Brandon”。
+罗伯特·阿尔布里顿（Robert Allbritton)于2007年创立了Politico。Politico倾向于提供温和的批判性分析。在美国媒体界，政治曾经被认为是一个事实报道的自由新闻网站。 但现在已经大不相同。
 
-从那时起，互联网上的这句话就被炒得沸沸扬扬。许多反对拜登的人把这句话作为他们的新口头禅，制作商品或在体育赛事中高呼。然而，盖特首席执行官米勒声称，这句口号有更重大的意义，它让美国人可以在没有审查的情况下进行抗议。米勒告诉《太阳报》。“布兰登加油”体现了主流媒体与美国人民是多么的脱节。NBC的记者没有听出这句话的真实含义是对失败的拜登政府的抗议，而是进入了“止损”模式，并编造了更多假新闻。
+在德国极端保守的斯普林格的领导下，这种情况将发生变化。
 
-“Let’s go Brandon”允许各地的体育迷行使他们的宪法权利，表达他们的意见，嘲笑假新闻的疯狂，抗议拜登政府而不受审查，这正是他们在GETTR上也能做到的。我们用这架飞机表示我们相信言论自由，而且在游击营销方面，没有人比GETTR更有优势，米勒说，他是众多加入 “Let’s go Brandon”潮流的共和党人之一。
+2014年，Politico（50%）和斯普林格（50%）成立了总部位于布鲁塞尔的分支Politico.eu。斯普林格对 Politico（美国）的接管完成，Politico 将完全属于斯普林格集团。 2015年，斯普林格以3亿美元的价格收购了商业内幕（Business Insider）。2020年底，斯普林格还收购了美国时事提供商早间简报（Morning Brew）。
 
-参议员特德·克鲁兹（Ted Cruz）周日也分享了一段他在棒球比赛中高呼 “Let’s go Brandon”的视频，似乎对总统拜登进行了暗讽。
+参考链接：
 
-新闻来源：[‘FREEDOM’ Let’s Go Brandon allows US to ‘protest Biden without censorship,’ says Trump aide who flew planes with meme on banner](https://www.the-sun.com/news/3889229/lets-go-brandon-jason-miller/)
+1. [Axel Springer Completes Acquisition of POLITICO](https://www.axelspringer.com/en/press-releases/axel-springer-completes-acquisition-of-politico)
+2. [A Right-Wing German News Conglomerate Bought Plitico for a Billion Dollars](https://countercurrents.org/2021/09/a-right-wing-german-news-conglomerate-bought-politico-for-a-billion-dollars/)

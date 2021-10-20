@@ -2,51 +2,59 @@
 ---
 
 
-## 新西兰科罗曼多市市长拒绝辉瑞疫苗，质问：“为什么我们没有伊维菌素？”
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1605773/)
+## 西喜时事新闻简报 — 中共病毒时事篇
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1605818/)
 
-SherryOk水云间
+**编译：西班牙喜悦农场—wenwu**
 
-10月20日，新西兰先驱报再次将科罗曼多市长古迪推上了风口浪尖，新闻标题是：“告诉市长接种疫苗”，古迪（Sandra Goudie）不会接种辉瑞疫苗，也不会说明原因。但是古迪市长质问，如果中共病毒是如此致命的传染病，为什么新西兰没有广泛的治疗方案，为什么没有伊维菌素。
+您若想了解全文报导内容，请点击标题链接
 
-古迪自2016年起担任科罗曼多市的市长，2019年，她曾力排众议，拒绝签署地方政府气候变化宣言，当时55个地方议会已经签署，而她回应说，签署声明是不负责任的，因为委员会不知道它将向纳税人承诺什么。“它的声明将你绑定到你不知道的结果，所以我不会在不知道结果的情况下签署合同。”并指这背后有“难以置信的高度政治势力操作和驱动”，同时碳减排措施的成本将削弱家庭。导致面向贫困人口的食物银行将继续存在
+（爱惜生命 远离疫苗）
 
-在上周奥克兰举行大型超级疫苗接种前，古迪市长就在新西兰先驱报的新闻采访中明确，她不会接种疫苗，并认为强制某些人接种疫苗是“绝对错误的”。古迪说，她的疫苗决定是个人选择的问题，人们应该尊重彼此的意见。
+1. [美国最高法院拒绝停止对缅因州医护人员的疫苗授权](https://www.thegatewaypundit.com/2021/10/us-supreme-court-declines-stop-covid-vax-mandate-maine-healthcare-workers/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip37.png)图片来源：Cristina Laila
+据《门户网》援引[《美联社》](https://apnews.com/article/coronavirus-pandemic-us-supreme-court-health-maine-fb4998e0739214a9b69901c4763e421d)2021年10月19日电，缅因州民主党州长珍妮特·米尔斯 (Janet Mills) 于 8 月宣布，缅因州的医护人员[必须在 10 月 29 日之前全面接种疫苗](https://www.maine.gov/governor/mills/news/mills-administration-provides-more-time-health-care-workers-meet-covid-19-vaccination)；美国最高法院周二（19日）拒绝审理一项旨在（8 月由 Liberty Counsel 代表大约两千名医护人员提起的诉讼），阻止缅因州医护人员强制接种中共病毒（Covid-19）疫苗的紧急上诉。
 
-但是新闻媒体似乎对她的回答仍不满意，昨日的采访显示，记者来到了市长在科罗曼多的家中，询问她为何冒着政治生涯遭受污点的风险，也不愿意接种疫苗。
+在联邦法院和上诉法院犹豫不决后，负责监督第一巡回法院投诉的极左大法官斯蒂芬·布雷耶 (Stephen Breyer) 驳回了紧急上诉，这是美国最高法院首次就全州范围内的中共疫苗授权，进行权衡。
 
-古迪说，她并不是反疫苗者，去年她还接种了流感疫苗，但是对辉瑞疫苗，市长说：“我不会与任何人争论 Pzifer 疫苗，我个人决定选择将什么医疗物质放入我的身体以“。她的丈夫伯纳德（Bernard）更坦率的说明了原因，他说辉瑞不同于以往的疫苗，流感疫苗没关系，这是一种正常的疫苗，但辉瑞完全不一样。”“我已经被关于辉瑞的故事震惊了，特别是听到有人的父亲在接种两天后死去的事情。”
+2. [武汉实验室宣布只雇用中共党员](https://thenationalpulse.com/exclusive/wuhan-lab-launches-new-lab-for-ccp-members/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip38.png)图片来源：The National Pulse
+据《国家脉动》2021年10月19日电，现在人们普遍[认为](https://thenationalpulse.com/breaking/ex-cdc-chief-covid-lab-theory/)武汉病毒研究所是导致中共病毒（COVID-19）大流行的罪魁祸首，它正在启动一个由另外七个实验室组成的新网络，其中一些实验室设施（[湖北江夏实验室基建人力资源招聘启事](https://archive.ph/71oYH#selection-799.0-799.16)）专门雇用中共党员（“具有1年以上公共事务管理和党务工作经验者优先，”申请说明补充道）；8 月 25 日[发布](http://www.whiov.cas.cn/zp/202108/t20210825_6168612.html)的另一份“人力资源招聘”职位空缺将第一个“任命条件”列为“中国共产党员”；10 月 14 日是武毒所网站[最近](http://www.whiov.cas.cn/zp/202110/t20211014_6222411.html)职位![Image]()空缺所发布的时间。
 
-新闻先驱报的记者称伯纳德所援引的网站接种疫苗不良反应网站，是不实信息来源。伯纳德提到的不同，指的是辉瑞公司疫苗是一种mRNA 疫苗这一事实，它通过向细胞传递如何使 Covid 刺突蛋白对抗疾病的指令来发挥作用。报道称阴谋论者声称 mRNA 疫苗以某种方式改变基因，导致“转基因人类”的产生。
+在武汉病毒研究所扩建7个实验室之前，《国家脉动》 [揭示](https://thenationalpulse.com/exclusive/wuhan-lab-scrubs-ccp-awards-ties/)了武毒所在中共的控制下举行例行会议，以提高“党性”和“政治觉悟”，包括“迎接中国共产党第十八次全国代表大会”、承诺实现党的目标而获得政权奖励；武汉病毒研究所对中国共产党关系的承诺也正值，美国国家过敏症和传染病研究所（NIAID）主任安东尼·福奇决定用美国纳税人的钱[资助](https://thenationalpulse.com/breaking/fauci-researcher-describes-gof-collaboration-with-wuhan/)武毒所实验室的决定之际，而且搞出了类似中共病毒的研究。
 
-Thames-Coromandel 市长 Sandra Goudie
+3. [哇！川普总统就科林·鲍威尔发表声明——不退缩](https://www.thegatewaypundit.com/2021/10/wow-president-trump-releases-statement-colin-powell-not-hold-back/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip39.png)图片来源：Jim Hofe
+据《门户网》2021年10月19日电，在科林·鲍威尔 (Colin Powell) 去世 24 小时后（19日），美国前总统川普发表了关于这位前国务卿的[声明](https://twitter.com/realLizUSA/status/1450455394107727878?s=20)：“很高兴看到在伊拉克问题上犯了大错的科林·鲍威尔，以及著名的所谓大规模杀伤性武器，被谎言媒体如此漂亮地报道其怎么死亡的（打了两针疫苗）。希望有一天我也会这样。他是一个典型的RINO，即使是这样，也总是第一个攻击其他共和党人。他犯了很多错误，但无论如何，愿他安息！”
 
-古迪市长一如既往的态度坚决，她说“我正在树立一个支持选择自由的榜样，”她指出，在3000多公众给她的信息回复中，很多人最大的担忧是他们没有发言权，他们很担心，他们很害怕，他们担心正在新西兰发生的事情。
+4. [华盛顿州的足球教练在拒绝疫苗授权后被解雇，并失去了320万美元收入](https://www.insider.com/washington-state-football-coach-nick-rolovich-fired-covid-vaccine-2021-10)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip40.png)图片来源：Kelly Mclaughlin
+据《内幕信息》2021年10月19日电，华盛顿州立大学拥有320万美元橄榄球教练Nick Rolovich在拒绝接种中共病毒（COVID-19）疫苗后（违反了拜登疫苗授权），周一（18日）被学校解雇；华盛顿州州长 Jay Inslee 要求所有州政府雇员，包括高等教育机构的雇员，都要接种 COVID-19 疫苗。
 
-“我真的很失望……我们没有各种各样的疫苗……我们没有各种各样的治疗方法。特别是“为什么我们没有伊维菌素？” 广为人知的动物驱虫药，作为 Covid-19 的治疗方法一直是热烈讨论的主题。（评论，而伊维菌素在日本和印度的成功使用为结束大流行带来了希望）。但是卫生部认为它是一种“无效的治疗方法”，世界卫生组织不推荐。（评论，这完全不是科学的态度）。
+华盛顿州立大学体育总监 Pat Chun 的声明如下：“对于我们的橄榄球项目来说，这是令人沮丧的一天；我们的优先事项一直是并将继续是我们队中年轻人的健康和福祉。我们橄榄球队的领导层充满了有个性、无私和坚韧的年轻人，我们相信这些同样的属性将有助于指导这个疫苗授权项目，向前发展。”
 
-古迪市长说“我不会成为所有人民在这个问题上的领导者，但我肯定会在代表一种观点方面发挥领导作用……关于自由选择的权利，关于一项基本权利权利法案。”
+5. [美国国土安全部部长马约卡斯（Mayorkas）的中共病毒检测呈阳性](https://www.foxnews.com/politics/dhs-secretary-mayorkas-tests-positive-covid-19-days-after-biden-event)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip41.png)图片来源：**Benjamin Applebaum**
+据《福克斯》2021年10月19日电，[美国国土安全部](https://www.foxnews.com/politics/dhs-restarting-remain-in-mexico-policy-tent-courts)周二证实，[国土安全部](https://www.foxnews.com/politics/dhs-restarting-remain-in-mexico-policy-tent-courts)部长亚历杭德罗·马约卡斯 (Alejandro Mayorkas) 的中共病毒（COVID-19）检测呈阳性——就在他与[拜登总统](https://www.foxnews.com/category/person/joe-biden)一起参加活动几天后；国土安全部发言人[说](https://twitter.com/MCatronDHS/status/1450541751249346569?s=20)：“马约卡斯国务卿仅出现轻度拥堵；他已接种了全面疫苗，并将根据 CDC 和医疗建议进行隔离和在家工作。”
 
-作为一个不使用脸书（ Facebook ）的人，她声称自从她向Stuff承认她没有接种过疫苗以来，并没有看到太多的虐待。（评论，所以生活在主流媒体中的人最受困扰）。但是 “一些人的刻薄和行为方式令人震惊。我们是如何尊重他人及其选择和意见的呢？”
+此外，[如上图](https://www.flickr.com/photos/dhsgov/51602154957/)显示，在户外活动期间，马约卡斯曾一度站在拜登和第一夫人吉尔·拜登的身边，没有戴口罩；近几个月来，拜登政府对南部边境危机的处理使马约卡斯成为人们关注的焦点；该政府因将移民释放到内陆之前而没有对非法移民进行病毒检测受到抨击；拜登对此的回复是一直在尽力了。
 
-“我尊重他们，他们也应该尊重我的选择“， “我不是在以某种方式说服人们，选择权在他们手中。当然，除非他们被强制执行，而且我只是对正在进行的强制执行以及因为拒绝接种疫苗失去工作的人数感到震惊——我们有军队人员、教师、医护人员、消防员——我认为这一切都错了，非常非常错误，”古迪说。
+6. [西雅图警察面临疫苗授权截止日期，不得不对市政府发起集体诉讼](https://www.foxnews.com/us/seattle-police-officers-vaccine-mandate-deadline-costly-litigation)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip42.png)图片来源：美聯社照片/Ted S. Warren
+据《福克斯》2021年10月19日电，拒绝在周一（18日）截止日期前接种[COVID-19](https://www.foxnews.com/category/health/infectious-disease/coronavirus)疫苗的约 200 名[西雅图](https://www.foxnews.com/category/us/seattle)[警察](https://www.foxnews.com/category/us/crime/police-and-law-enforcement)可能会对西雅图市提起诉讼，以防止他们大规模解雇；在周一截止日期前，西雅图警察协会主席迈克索兰表示，西雅图警察局在过去 18 个月内已经失去了大约 300 名警察，他预计下周将再次出现“大规模外逃”。
 
-上周，政府宣布，在健康和残疾部门从事“高风险”工作的每个人都必须在 10 月 30 日之前接种第一剂疫苗，并在 12 月 1 日之前全面接种疫苗，但目前尚不清楚消防员是否会被包括在内。
+国家警察协会发言人 Betsy Brantner Smith 是一名退休警官，她表示：“在西雅图警察局，没有人比这些警察更被错误地诋毁（去年的黑命贵发生后要求取消警察经费）；你可以回到CHOP/CHAZ并继续前进。这只是以珍妮市长为首的拜登政府已经在给这些陷入困境的警察施加的又一件事。我知道一个事实，很多西雅图警察正在寻找其他工作，不管是在执法部门之外，还是在其他地区的职业中。另外，这个肮脏又可悲的西雅图选民是必须决定他们要改变这个城市的发展方向。还有，那些不得不留下的人，因为他们的职业生涯已经结束，他们想得到他们的养老金，或者他们不想搬出华盛顿州，他们将避免那些可能让他们与他们的行政部门发生冲突的活动。所以他们不会像以前那样积极地预防犯罪。他们只会成为反应者和报告者，因为市长已经非常努力地打击他们的士气，我不认为她的前任们会有什么不同。”
 
-“事实是，无论您是否接种疫苗，我们中的任何人都可能感染 Covid。”对于一些政治对手评价她不接种疫苗，会传播疾病，对其他人是一种危险的评论，古迪大笑起来，“只有当你不附和主流舆论的时候你是危险的，突然之间，你变成危险分子。真的吗？我的意思是，让我休息一下。
+与此同时，一名华盛顿州巡警周五拍摄了自己的照片，称这是他在拒绝接种中共疫苗后的最后一次值班，并向华盛顿州民主党州长Jay Inslee发出了措辞强烈的信息。史密斯质疑西雅图市长珍妮·杜尔坎（Jenny Durkan）和市议会所期望的结局是什么，因为华盛顿州最大的城市西雅图一直受到”失控的暴力犯罪”的困扰。最后，西雅图警察协会主席迈克索兰表示，他们不会在周一面临立即解雇，而是会先收到“Loudermill听证会”的通知，可以在正式离职前陈述他们反对接种中共疫苗的理由。这个城市的犯罪率正在激增。我们的社区要求有更多的警察来接听911电话，而事实上，由于政客们的政治操作，我们已经失去了近350名警察。
 
-“我不会传播疾病，就像你一样。恶劣的舆论试图将我放到，承担所有人可能感染病毒的责任人的位置。”
+据《[国会山](https://thehill.com/policy/healthcare/577245-chicago-says-unvaccinated-police-risk-losing-jobs-retirement-benefits?rl=1)》2021年10月18日电，芝加哥市长[洛丽·莱特富特](https://thehill.com/people/lori-lightfoot)(D)[8 月宣布](https://thehill.com/homenews/state-watch/569394-chicago-becomes-latest-city-to-require-vaccinations-for-city-workers) ，包括警察在内的所有城市雇员都需要在 10 月 15 日之前接种疫苗；根据该命令，芝加哥警察兄弟会主席[约翰·卡坦扎拉](https://thehill.com/person/john-catanzara)（[John Catanzara）](https://thehill.com/person/john-catanzara)呼吁他的警官无视这一命令：“就中共疫苗而言，我已经非常明确地表明了我的身份，但我不相信市政府有权将其强制要求任何人——更不用说关于你的病史的信息了。”
 
-她至少接受 Covid 是一种致命疾病吗？记者提问
+为此，芝加哥市长起诉了卡坦扎拉，结果是法官裁定其不能在公开建议人们有权力不打疫苗，这是一种误导，因为不会对政府的命令有任何影响；警官接种疫苗的最后期限是周五，一旦该市收集到有多少警官遵守规定的信息，多达一半的芝加哥普通警察可能会面临纪律处分（失去工作和退休福利等）。
 
-“嗯，它已经杀死了一些人，是的。我同意评论员所说的恐惧因素有时是需要的。”
+（文章仅代表作者观点，与GNWES无关）
 
-“如果它那样致命，为什么我们在新西兰没有我们应该拥有的广泛治疗方法？为什么我们没有伊维菌素？”
+* * *
 
-明年她会再次竞选市长吗？她犹豫不决。
+***发稿：信心满满***
 
-“如果有人惹我生气，我可能会说，’嘿，我回来了，宝贝’。”
-
-当然，这将归结为选民。
-
-[新闻链接](https://www.stuff.co.nz/national/health/coronavirus/126714541/tell-the-mayor-to-get-vaccinated-sandra-goudie-wont-take-the-pfizer-vaccine-and-wont-say-why)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
