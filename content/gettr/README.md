@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/20/2021 12:38 PM (UTC)`
+
+喜币上市话虚拟币；疫苗灾难谈青蒿素；打土豪分田地抢钱；没自由不安全反水。
+![img](https://media.gettr.com/group26/origin/2021/10/20/12/a2ef64a5-550c-8b73-39cf-cf7304fc447c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 10/20/2021 4:04 AM (UTC)`
 
 10/19/2021 Miles Guo’s GETTR: The US and CCP’s Social Security are different in terms of whether the government is responsible for the losses in the investments, whether all the illnesses are covered, and if the pensions are truly insured. The social security of the Communist China is purely a scam, and the hospitals are the places where patients are murdered, with their money being robbed.<br/><br/>10/19/2021 文贵盖特：中美社保的区别在于政府对赔钱负不负责、是否覆盖所有的疾病以及养老金是否有真正的保险；在中共国，社保就是骗局，而医院是杀人和抢钱的地方！
@@ -288,13 +295,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 11月15号：刚接了一个战友的电话把我笑晕了……天助新中国联邦。
 ![img](https://media.gettr.com/group6/getter/2021/10/15/23/23/eeeeca4b-c9e2-9873-ccd2-17e837c56e80/3aa8e27b9c9c4bebe2fa86e7755bc8eb.GIF)
-
----
-
-`@miles 10/15/2021 8:43 PM (UTC)`
-
-10/15/2021 Miles Guo’s GETTR: The most crucial thing for the New Federal State of China and the Whistleblowers’ Movement is not to forget about any fellow fighters. I will always strive to make sure the fellow fighters’ contributions get the respect and rewards they deserve, and let them live a better life. The New Federal State of China has given everyone a hope that can be fulfilled within a certain period of time instead of the CCP’s lies such as the so-called “China dream”<br/><br/>10/15/2021 文贵盖特：新中国联邦和爆料革命最重要的是不忘记任何一个战友，文贵会永远努力让战友们的付出得到应有的尊重和回报，让他们过上更好的生活；新中国联邦带给大家能兑现的希望，而非中共所谓“中国梦”的欺骗<br/>
-![img](https://media.gettr.com/group34/getter/2021/10/15/20/43/d795e309-b702-4209-acea-d49bd29c1837/out.jpg)
 
 ---
 

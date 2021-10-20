@@ -2,32 +2,23 @@
 ---
 
 
-## 菲律宾Ayala Corp.将收购澳大利亚可再生能源公司所有权
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1605784/)
+## 针下亡魂｜英国 34 岁妈妈接种疫苗 10 日后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1605901/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/AC.jpg)图片来源：esquiremag.ph
-#### 编译：小红帽
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 20/10/2021**
 
-AC能源公司（AC Energy）–由亿万富翁海梅·佐贝尔·德·阿亚拉（Jaime Zobel de Ayala）所拥有的阿亚拉公司（Ayala Corp.）的子公司，已同意完全拥有其澳大利亚可再生能源公司的所有权。这家菲律宾历史最悠久的企业集团正加大投资力度，以成为东南亚最大的上市可再生能源平台。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
 
-根据交易，AC能源公司将以2.43 亿美元的价格向合作伙伴UPC可再生能源亚太控股公司（UPC Renewables Asia Pacific Holdings）和UPC可再生能源公司(UPC Renewables )的首席执行官安东·罗纳(Anton Rohner)收购澳大利亚UPC/AC可再生能源公司 ( UPC/AC Renewables Australia)剩余的51.6% 股权，该公司在周二向菲律宾证券交易所发表的一份声明中表示。
+【英国】罗瑟勒姆一名 34 岁的女士 Kimberley Lockwood 在接种阿斯利康 COVID-19 疫苗后的第十日，因颅内出血（ICH）而死亡。Kimberley 是两个小朋友的妈妈，本身患有特发性颅内高压（IIH），但一直透过药物控制的很好，并且，考虑是否接受疫苗前，曾询问过多位医生，得到的答案是，疫苗对 IIH 患者安全。
 
-收购完成后，需获得监管部门的批准，其中包括澳大利亚外国投资审查委员会的同意。AC能源公司将拥有澳大利亚UPC/AC可再生能源公司的100%所有权。
+因此，Kimberley 3 月 14 日接种了疫苗，两天后出现了类似流感的症状和剧烈头痛，甚至视力都开始出现模糊，立即被送往医院诊治。10日后，即 3 月 24 日， Kimberley 的丈夫接到电话，请他去医院见妻子最后一面，因为他的妻子脑部出血，已经无法救治。
 
-自 2018 年成立以来，澳大利亚UPC/AC可再生能源公司已在新南威尔士州、塔斯马尼亚州、维多利亚州和南澳大利亚州开发了超过8,000兆瓦的可再生能源项目。该公司目前正在新英格兰建造一个520兆瓦的太阳能发电场。
+Kimberley 的丈夫表示，“前一晚，太太对我说，明天会做个腰椎穿刺的手术，不用担心，明天就能回家了，结果，她再也回不来了。”他续指，暂时没有更多时间，探究妻子的真正死因，唯有等待尸检结果。“我是个体经营者，所以如果我不工作，我就赚不到钱，我还要照顾两个孩子，他们一个 13 岁，一个 6 岁，妻子的离开对我们是相当沉痛的打击。”
 
-AC能源公司已在澳大利亚、印度、印度尼西亚、菲律宾和越南建立了约2,600兆瓦的可归属容量，并计划到2025年前将容量翻一番，达到5,000兆瓦。对这些项目的投资，将帮助AC能源公司实现其成为东南亚最大的上市可再生能源平台的目标，董事长费尔南多·佐贝尔·德·阿亚拉(Fernando Zobel de Ayala)在公司最新的年报中表示。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/40-1.jpg)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+来源｜[个案040](https://www.dailymail.co.uk/news/article-9478665/Mother-two-34-rare-condition-dies-10-days-getting-AstraZeneca-jab.html)
 
-**参考新闻：**[Philippines’ Ayala Corp. Unit To Take Full Ownership Of Australian Renewable Energy Venture In $243 Million Deal (forbes.com)](https://www.forbes.com/sites/jonathanburgos/2021/10/20/philippines-ayala-corp-unit-to-take-full-ownership-of-australian-renewable-energy-venture-in-243-million-deal/?sh=164ccb7243f4)
+* * *
 
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//
