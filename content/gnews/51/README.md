@@ -2,30 +2,41 @@
 ---
 
 
-## 纽约州总检察长责令两加密货币交易平台关闭在该州的业务
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1605067/)
+## 疫苗全接种的美国土安全部长病毒检测阳性
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1605110/)
 
-【**简评】加密货币最吸引人的方面之一是其底层的区块链分类账系统使其无法被黑客入侵。但这并不意味着对加密货币的投资不受欺诈的影响。最近纽约州最高法院关闭的加密货币交易平台之一 Coinseed ，对它的指控其中包括：在纽约未注册的情况下作为商品经纪交易商运营；出售加密代币；在投资者不知情的情况下将所有投资者持有的资产转移到狗狗币中，造成投资者的损失。 。 。**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**美国财政部也表示，加密货币的崛起可能影响到美国经济制裁措施的成效。到目前为止，加密货币行业仍旧处于监管的“灰色地带”之中，在这个行业与全球监管机构之间关系日益紧张的形势下，美国监管机构一直都在加大对该行业的监管力度。**
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/D-1.jpg)thekycker.com
+极力推广疫苗强制接种的拜登内阁，在全接种的情况下有人中招，中共病毒检测呈阳性，他就是奉拜登之命把美国南部边境搞得一团糟的国土安全部长马约卡斯（Mayorkas）。
 
-**据《突发新闻》记者：Christian Baha，2021年10月18日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl-13.jpg)图片来源：《突发新闻》
-纽约州总检察长利蒂希娅·詹姆斯（Letitia James）办公室周一宣布，该州两家加密货币借贷平台被勒令关闭。
+《塔克·卡尔森团队》（Team Tucker Carlson）发表文章，题目是，“与拜登会面后几天，国土安全部长马约卡斯在全面接种疫苗情况下，中共病毒检测呈阳性”。
 
-此外，还有三家加密货币平台被要求提供有关其业务的信息。
+全文如下：
 
-詹姆斯说:“与其他所有公司一样，加密货币平台也必须遵守法律。”并断言“今天的行动……发出一个信号，我们将毫不犹豫地采取任何必要的行动，打击任何认为自己凌驾于法律之上的公司。”
+国土安全部周二（10月19日）证实，国土安全部长亚历杭德罗·马约卡斯（Alejandro Mayorkas）中共病毒检测呈阳性——就在他与拜登一起参加活动几天后。
 
-**原文连接**：[https://breakingthenews.net/Article/NYC-AG-orders-closure-of-2-crypto-trading-platforms/56551766](https://breakingthenews.net/Article/NYC-AG-orders-closure-of-2-crypto-trading-platforms/56551766)
+国土安全部发言人告诉《福克斯新闻》，在周二早上马约卡斯检测呈阳性后，正在进行联系人追踪。
 
-**(本文评论仅代表个人观点）**
+国土安全部发言人说：“马约卡斯部长只经历了轻微的充血，他已经完全接种了疫苗，他将按照CDC指导和医疗建议进行隔离并在家工作。”
 
-翻译：洛杉矶盘古农场 – 钢蛋儿
-校对：洛杉矶盘古农场 – Mike Li
-评论/编辑：洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+这一诊断是在马约卡斯周六（10月16日）与拜登一起出席了在美国国会大厦举行的第40届年度国家和平官员纪念仪式（the 40th Annual National Peace Officers’ Memorial Service）之后作出的，虽然不清楚这两人有怎样的接触，但拜登在活动中提到了马约卡斯的名字。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+拜登说：“感谢国土安全部长马约卡斯来到这里，感谢你为我们所做的出色工作，非常非常感谢，这是一项艰巨的工作。”
+
+此外，活动的图像显示，在户外活动期间，马约卡斯曾一度站在拜登和第一夫人吉尔·拜登的身边，没有戴口罩。
+
+最近几个月，拜登政府在处理南部边境危机时，马约卡斯一直备受关注。在7月和8月，遭遇了超过200,000名移民——由于中共病毒的风险，政府一直在有限地使用第42条公共卫生保护措施遣返移民。
+
+然而，政府因将移民放行到内地而受到批评，他们通常没有进行病毒检测，拜登挑选的海关和边境保护局负责人克里斯·马格纳斯（Chris Magnus）周二（10月19日）告诉立法者，他承诺确保被放行的移民在进入美国之前接受测试。
+
+（原文完）
+
+看你拜登怎样解释，相信内阁成员会有很好的防中共病毒医疗条件，马约卡斯是你的DHS部长，重要内阁成员，是不是要再打几针？继续配合邪恶的阴谋集团，全国强制打5针，从内阁开始！
+
+（文章仅代表作者个人观点）
+
+原文链接：
+
+[https://teamtuckercarlson.com/news/fully-vaccinated-dhs-chief-mayorkas-tests-positive-for-covid-days-after-meeting-with-biden/](https://teamtuckercarlson.com/news/fully-vaccinated-dhs-chief-mayorkas-tests-positive-for-covid-days-after-meeting-with-biden/)

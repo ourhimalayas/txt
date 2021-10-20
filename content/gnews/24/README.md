@@ -2,21 +2,26 @@
 ---
 
 
-## 水灾后的缺粮已显现
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1605959/)
+## 某院高管：日本第三针疫苗注射不包含医生、教师和护士
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1605968/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ert.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2020%252F0723%252Fcb60327ej00qdx9os003ec000xc00m8m.jpg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FFI8F64690539BX8Z.html&amp;tbnid=yeDumOu9LhDj1M&amp;vet=12ahUKEwjQnuj12djzAhU0JaYKHZ7qCk8QMygEegUIARClAQ..i&amp;docid=qV86qo8WQz1e3M&amp;w=650&amp;h=434&amp;itg=1&amp;q=%E8%BF%9B%E5%8F%A3%E5%B0%8F%E9%BA%A6&amp;ved=2ahUKEwjQnuj12djzAhU0JaYKHZ7qCk8QMygEegUIARClAQ)
-中国新闻网哈尔滨10月19日电，黑龙江省对俄农业产业协会19日发布消息，中粮集团从俄罗斯进口的667吨小麦抵达黑河口岸，于19日脱箱卸到当地海关监管库。这是中共国首次成规模地从俄罗斯远东地区进口小麦，这打开了中俄农业合作的一个新渠道。
+**记者：日本东京方舟农场 风雨之中
+作者：日本东京方舟农场 文顺**
 
-据黑龙江省对俄农业产业协会秘书处一位负责人介绍，自从20世纪90年代，黑龙江开始开展中俄农业合作以来，这是进口小麦数量最大的一次。
+10月20日，日本东京某大型综合医院，一位不愿具名的高级管理人员告诉方舟农场GETTR团队记者，日本医师会近期发布的重要通知称，第三针疫苗注射将不含医生、教师和护士。这位医院高管还透露：“这个通知不允许复印、拍照，只能本院医师阅读，而且这份通知只下达到大型医院一级。”
 
-小麦是中国人最重要的口粮之一，进口667顿的小麦，俨然成为规模？中共国是世界上最大的小麦生产国，整个中共国都有种植小麦的产区。从北到南，小麦的主产区一直都有分布。之所以要进口小麦，是南北水灾造成的严重损失，粮食危机在不久的未来一定会显现。
+这位高管表示，医师会如此诡异的举动只能说明疫苗确实对人体有害。他说：“如果疫苗有效并无副作用，医生、护士和教师这些短期内不可补充的关键岗位理应首先接种，这样才能确保这些岗位人员充足，尤其是在现在医疗岗位人员紧缺的情况下，更应该得到优先保护。”
 
-消息来源：[中国首次成规模进口俄罗斯小麦 667吨小麦运抵中国口岸](https://me.mbd.baidu.com/r/v2oTGESPZu?f=cp&amp;rs=1846487702&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=7212c7f377841973)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/119183302_whatsubject.jpg)图片来自于网络
 
-(文章仅代表作者本人观点，与GNEWS无关)
+“但是这个通知排除了这些岗位，只能说明疫苗确实存在很严重的问题，尤其是第三针接种，”他补充说：“之前我已经听说过很多注射疫苗后致死的案例，但作为医生，没有充足数据的情况下只能认为这些案例都属于个案。”
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+他接着说：“但现在看来，疫苗副作用问题确实很严重，而且政府及医药公司正在将老百姓作为实验品进行试验。”
+
+他强调：“目前日本采用的疫苗都是经过了特批程序，也就是说没有任何一种类型的疫苗完成了完整的临床试验！”
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+* * *
+
+*校对：Ranting 发布：Ranting*

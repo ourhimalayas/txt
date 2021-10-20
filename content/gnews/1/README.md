@@ -2,30 +2,35 @@
 ---
 
 
-## 有声|中共国经济崩溃式下滑
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1606138/)
+## 华盛顿州美式足球教练因拒绝接种新冠疫苗而被解雇
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1606196/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-中（共）国经济在7月至9月的季度中比去年同期增长了4.9%，是一年来最慢的速度，比分析师预测的要差。这比前一季度的增长速度要慢得多，当时的增长速度接近8%，这表明复苏正在减弱。
+作者：蓝天大海
 
-受到电力短缺、Covid-19的爆发、房地产行业的债务危机，和来自中共北京对一些行业的打压……这些正在给中（共）国的经济造成损失。一位专家说，这些情况可能会抑制今年余下时间的增长，不应低估。世界第二大经济体近几个月来面临着一系列挑战。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-另外，中共北京扩大对各行业的最大的公司进行打压，从大科技到游戏到网络再到教育部门……例如：阿里巴巴、腾讯、美团、嘀嘀打车、新东方等。中（共）国一些最大的公司正面临着旨在社会转型的政策遏制。中（共）国政府公布了一个五年计划，表明这种打压将会持续多年。
 
-如图所示，如此激烈的波动幅度，在世界经济史上是非常罕见的。这样失速般的暴跌之后暴涨，之后再度失速般的暴跌，除了显示出其经济完全失去动力，并且各方都对经济前景非常悲观之外。这种曲线波幅，往往预示着该国政府的政权不稳，正在失去对经济的掌控力。
 
-2019年，文贵先生就预告：阿里巴巴马云肯定会完蛋，中（共）国大科技公司肯定会完蛋；中（共）国的房地产业、金融业和保险业肯定会完蛋……现在中（共）国的整个经济环境，完美的印证了这与文贵先生的预测——中（共）国的经济正在逐步崩塌中，无可避免，无可救药。
+据每日邮报10月19日报道，华盛顿州立大学橄榄球教练——尼克·罗洛维奇，因拒绝接种疫苗而被解雇。尼克教练年薪三百万美元，是该州收入最高的政府雇员之一。同时被解雇的还有同一球队的助理教练。尼克教练是一名天主教徒。上周六，尼克提交了宗教豁免的申请，但并没有获得批准。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1020AM（1、3、5、6、8）視頻備用.002.jpeg)
+随着爆料革命对中共病毒及毒疫苗的不断揭露，越来越多的人们已经认识到了真相，开始反对疫苗强制接种。不久前，美国天主教维加诺大主教在一次讲话中说：强推试验性疫苗是反人类重罪，是全球范围对人类有计划的大屠杀。而今，罗洛维奇教练放弃三百万年薪，确选择拒绝接种疫苗，其勇气令人敬佩。
 
-文字版原文：[中共国经济崩溃式下滑](https://gnews.org/zh-hans/1603680/)
+生命对于自己只有一次，健康的活着就是最大的赢家。
+(本文仅代表作者观点)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
+参考链接：[Washington State football coach Nick Rolovich is FIRED from his $3m-a-year job for refusing to get COVID vaccine after his application for a religious exemption was denied](https://gnews.org/wp-admin/post-new.php?lang=zh-hans)
+
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Irene木木 
+编辑：正义的小新
+校正/发稿：我不在这里
+
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
