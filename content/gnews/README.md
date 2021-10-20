@@ -15,131 +15,131 @@
 
 ---
 
-### [10/20/2021文贵直播: 中共中共利用马云进行国家级股市操纵、刑事诈骗](/content/gnews/1/README.md)
+### [疫苗还是天然免疫？史蒂文·佩莱奇博士谈新冠疫苗的真实功效](/content/gnews/1/README.md)
+ ` MG FARM`
+
+### [10/20/2021文贵直播: 中共中共利用马云进行国家级股市操纵、刑事诈骗](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [文贵爆料10/20：中共通过马云等人在西方金融市场布下三个超级核弹](/content/gnews/2/README.md)
+### [文贵爆料10/20：中共通过马云等人在西方金融市场布下三个超级核弹](/content/gnews/3/README.md)
  ` 秘密翻译组-原创组`
 
-### [呼吸系统治疗师呼吁：闭嘴！不要对选择不接种疫苗的人说三道四！](/content/gnews/3/README.md)
+### [什么是石墨烯？我们如何运用石墨烯？石墨烯给未来带来哪些可能？](/content/gnews/4/README.md)
  ` 加拿大多伦多枫叶农场视频组`
 
-### [辉瑞儿童疫苗：白宫内应“极速”的疫苗接种计划](/content/gnews/4/README.md)
+### [MD共和党国会议员：伊维菌素可以治疗中共病毒](/content/gnews/5/README.md)
  ` wenwu`
 
-### [美参议院外委会通过《南中国海和东中国海制裁法案》](/content/gnews/5/README.md)
- ` 日本东京方舟农场`
+### [呼吸系统治疗师呼吁：闭嘴！不要对选择不接种疫苗的人说三道四！](/content/gnews/6/README.md)
+ ` 加拿大多伦多枫叶农场视频组`
 
-### [郭文贵：企业大股东马云等人被抓，没有发公告！](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共国汽油“第20次”涨价](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [CNN承认对伊维菌素治疗中共病毒的报道失实](/content/gnews/8/README.md)
- ` 日本东京方舟农场`
-
-### [中共病毒溯源：承认自然起源可获百万美元](/content/gnews/9/README.md)
+### [辉瑞儿童疫苗：白宫内应“极速”的疫苗接种计划](/content/gnews/7/README.md)
  ` wenwu`
 
-### [DC每日热点1020](/content/gnews/10/README.md)
+### [美参议院外委会通过《南中国海和东中国海制裁法案》](/content/gnews/8/README.md)
+ ` 日本东京方舟农场`
+
+### [郭文贵：企业大股东马云等人被抓，没有发公告！](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共国汽油“第20次”涨价](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [CNN承认对伊维菌素治疗中共病毒的报道失实](/content/gnews/11/README.md)
+ ` 日本东京方舟农场`
+
+### [中共病毒溯源：承认自然起源可获百万美元](/content/gnews/12/README.md)
+ ` wenwu`
+
+### [DC每日热点1020](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共打击煤炭市场炒作，控制城市夜景亮化](/content/gnews/11/README.md)
+### [中共打击煤炭市场炒作，控制城市夜景亮化](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄罗斯创纪录的死亡人数](/content/gnews/12/README.md)
+### [俄罗斯创纪录的死亡人数](/content/gnews/15/README.md)
  ` Charlie`
 
-### [白宫公布针对5-11岁儿童的疫苗计划](/content/gnews/13/README.md)
+### [白宫公布针对5-11岁儿童的疫苗计划](/content/gnews/16/README.md)
  ` Charlie`
 
-### [柳叶刀追溯新冠起源人員因声称病毒是自然产生的而获得 100 万美元的中国奖](/content/gnews/14/README.md)
+### [柳叶刀追溯新冠起源人員因声称病毒是自然产生的而获得 100 万美元的中国奖](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [辉瑞公司对其COVID疫苗来源的紧张表现揭开了一个恐怖的故事](/content/gnews/15/README.md)
+### [辉瑞公司对其COVID疫苗来源的紧张表现揭开了一个恐怖的故事](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [前CDC主任揭完全接种疫苗者死亡的惊人数据](/content/gnews/16/README.md)
+### [前CDC主任揭完全接种疫苗者死亡的惊人数据](/content/gnews/19/README.md)
  ` HimalayaRussia`
 
-### [在美国检测到新的传染型德尔塔变异株](/content/gnews/17/README.md)
+### [在美国检测到新的传染型德尔塔变异株](/content/gnews/20/README.md)
  ` wenwu`
 
-### [郭文贵直播摘要和音频 2021.10.20](/content/gnews/18/README.md)
+### [郭文贵直播摘要和音频 2021.10.20](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [让历史告诉未来](/content/gnews/19/README.md)
+### [让历史告诉未来](/content/gnews/22/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [JCCF对安大略省疫苗护照授权发起法律挑战](/content/gnews/20/README.md)
+### [JCCF对安大略省疫苗护照授权发起法律挑战](/content/gnews/23/README.md)
  ` MG FARM`
 
-### [文贵爆料10/20喜币与其他虚拟币的六点区别 将革掉所有法币的命](/content/gnews/21/README.md)
+### [文贵爆料10/20喜币与其他虚拟币的六点区别 将革掉所有法币的命](/content/gnews/24/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共国社保骗局：只有社保基金，没有社保制度](/content/gnews/22/README.md)
+### [中共国社保骗局：只有社保基金，没有社保制度](/content/gnews/25/README.md)
  ` 纽约香草山MOS01`
 
-### [加拿大建筑公司拒绝执行疫苗任务](/content/gnews/23/README.md)
+### [加拿大建筑公司拒绝执行疫苗任务](/content/gnews/26/README.md)
  ` MG FARM`
 
-### [郭文贵Gettr/GTV双直播测试摘要和音频 2021.10.18](/content/gnews/24/README.md)
+### [郭文贵Gettr/GTV双直播测试摘要和音频 2021.10.18](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [华盛顿州立大学橄榄球主教练因拒绝接种疫苗被解雇](/content/gnews/25/README.md)
+### [华盛顿州立大学橄榄球主教练因拒绝接种疫苗被解雇](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [焦点：全球汽车产销量暴跌的背后是大危机！](/content/gnews/26/README.md)
+### [焦点：全球汽车产销量暴跌的背后是大危机！](/content/gnews/29/README.md)
  ` 军迷wilson`
 
-### [官方称欧金中拒捕并自杀身亡 网友质疑](/content/gnews/27/README.md)
+### [官方称欧金中拒捕并自杀身亡 网友质疑](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [马云江志成马明哲马化腾等企业家是中共经济超限战工具](/content/gnews/28/README.md)
+### [马云江志成马明哲马化腾等企业家是中共经济超限战工具](/content/gnews/31/README.md)
  ` NewFOC`
 
-### [我担心医生的信誉下降](/content/gnews/29/README.md)
+### [我担心医生的信誉下降](/content/gnews/32/README.md)
  ` MG FARM`
 
-### [马云在处理的财产大概三千多笔,蔡崇信洗掉马去75%的钱](/content/gnews/30/README.md)
+### [马云在处理的财产大概三千多笔,蔡崇信洗掉马去75%的钱](/content/gnews/33/README.md)
  ` NewFOC`
 
-### [被中共派杀手控制的马云将来要么被杀要么送到监狱去](/content/gnews/31/README.md)
+### [被中共派杀手控制的马云将来要么被杀要么送到监狱去](/content/gnews/34/README.md)
  ` NewFOC`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/32/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/35/README.md)
  ` wenwu`
 
-### [中共派杀手押马云赴西班牙进行国家级操纵股市刑事诈骗](/content/gnews/33/README.md)
+### [中共派杀手押马云赴西班牙进行国家级操纵股市刑事诈骗](/content/gnews/36/README.md)
  ` NewFOC`
 
-### [墙内要闻汇编](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [马云王健林潘石屹等上市公司高管隐瞒刑事调查欺诈投资者](/content/gnews/35/README.md)
- ` NewFOC`
-
-### [蜜蜂在哭泣](/content/gnews/36/README.md)
+### [蜜蜂在哭泣](/content/gnews/37/README.md)
  ` HimalayaRussia`
 
-### [日本要闻汇编](/content/gnews/37/README.md)
+### [日本要闻汇编](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄克拉荷马州长反对拜登疫苗强制令，称接种是个人自由](/content/gnews/38/README.md)
+### [俄克拉荷马州长反对拜登疫苗强制令，称接种是个人自由](/content/gnews/39/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国国土安全部部长马约卡斯新冠检测结果呈阳性](/content/gnews/39/README.md)
+### [美国国土安全部部长马约卡斯新冠检测结果呈阳性](/content/gnews/40/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [【#G时新闻】 全新GTV新闻播报、时事访谈《枫叶快讯》](/content/gnews/40/README.md)
+### [【#G时新闻】 全新GTV新闻播报、时事访谈《枫叶快讯》](/content/gnews/41/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [有声|中共国经济崩溃式下滑](/content/gnews/41/README.md)
+### [有声|中共国经济崩溃式下滑](/content/gnews/42/README.md)
  ` MOSREC`
-
-### [10/19/2021 文贵直播：文贵并非医学专业人士，但文贵传递给大家的是那些参与中共生物武器研究的科学家、中国的医学人士和从国内逃出来的科学家们所说的话](/content/gnews/42/README.md)
- ` 秘密翻译组-北美组`
 
 ### [美国会再就港疆人权问题举行听证会 加快推进港人避风港法案](/content/gnews/43/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
