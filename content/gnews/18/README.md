@@ -2,48 +2,21 @@
 ---
 
 
-## 共产党输就输在“私”心太大-简评中共“斩龙头”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1605384/)
+## 北京实施多项调整允许外资投入VPN服务
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1605412/)
 
-作者：纽约香草山教育部 – 文斗
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-共产党，把“共”字吹出了花，共产主义、共同富裕、命运共同体……
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/234-2.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.vpnpicks.com%2Fwp-content%2Fuploads%2F2020%2F07%2Fhow-to-bypass-great-firewall.jpg&amp;imgrefurl=https%3A%2F%2Fwww.vpnpicks.com%2Fbest-vpn-for-china-cn%2F&amp;tbnid=Sz1n3QRS4Z7ILM&amp;vet=12ahUKEwjxraLm_9fzAhUIwJQKHZghCdkQMygBegUIARCgAQ..i&amp;docid=F-vyKZugZOMbgM&amp;w=795&amp;h=625&amp;q=%E7%BF%BB%E5%A2%99%E6%A2%AF%E5%AD%90&amp;ved=2ahUKEwjxraLm_9fzAhUIwJQKHZghCdkQMygBegUIARCgAQ#imgrc=Sz1n3QRS4Z7ILM&amp;imgdii=Aa-lcb6mbWt2EM)
+中共国政府近日向北京市开绿灯，允许该市向外资开放中国国内互联网虚拟专用网业务（VPN）、允许外商从事除了台湾外的境外游、鼓励外商投资成教培训机构等。这显然释放出中共国要继续推进对外开放的信号。据财新等媒体报道，中共国务院10月18日发文调整多项规定在北京市的实施，继续推动外资进入电信增值业务等领域。
 
-把一切好话都贴在自己脸上，为人民服务、伟大的、光荣的、正确的……
+报道称，中共国将继续推动互联网虚拟专用网络服务（IP-VPN）、互联网接入服务等电信增值服务的开放。根据2020年7月开始实施的《外商投资准入特别管理措施（负面清单）（2020年版）》，限于中共国入世承诺开放的电信业务，增值电信业务的外资股比不超过50%，基础电信业务必须由中方控股。
 
-口炮震天响，利益家族却行着一党之私、一己之私。一切行为都是为了权、钱、性、名……自私自利至极！
+在中国，VPN服务被广泛用来绕过中国的防火墙、连接到海外服务器，很多在中国运营的跨国公司都依赖这项服务。报道指出，虽然中国政府允许公司们寻求特别批准，以使用VPN访问在中国被封锁的外网，但同时当局也一直在打击未经许可提供VPN服务的供应商。
 
-共产主义，名义上伟光正、无私心，实际私心最大的就是共产党人。习大神高调标榜“我将无我”，实际上他的“我”最大，要一统天下，为成就个人帝位不顾生灵涂炭。
+信息来源：德国之声中文网
 
-中共斩龙头换玉琮改风水，老杂毛以为斩的是郭文贵的盘古龙头。其内心之阴暗、之下作与旧时乡村老妇“扎小人”毫无二致，令人不齿。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-![img](https://media.gettr.com/group49/getter/2021/10/18/13/59/bd6cbe68-fd8c-9c59-7d9c-d995bf7bd855/ce77b0fdf375ae3fd4a3e19ce963b859.jpg)
-
-斩龙头改风水从个人行为上看，就是一干所谓的“国家领导人”，靠权势用非法手段肆意抢夺民间企业家财富，还搞封建迷信活动。从组织行为上看，就是口口声声共产主义、唯物主义的中国共产党，实际是一个没有信仰、无视法治、道德沦丧的卑鄙黑帮。
-
-相较之下，反倒是益发展现出郭先生之“无我”。早在盘古建成之时，郭先生就说过盘古不再属于他个人。“盘古大观封顶那天，我在大会上讲话，从现在起，这个楼就不是郭文贵的，也不是盘古的了，它是属于全中国人民的。”（2018年9月3日，郭先生直播）
-
-近看昨天10月18日，郭先生谈到中共把盘古龙头改玉琮时，丝毫没有言及个人得失，反倒是谈笑风生，玉琮、玉璧、玉钺、秘堂……各种典故信手拈来，从宇宙新纪元、从中国国运的角度稍微透露了点“天机”，再次振奋人心，其淡然、其从容、其境界，令人钦佩。
-
-盘古是属于全中国人民，盘古是中国的盘古，盘古龙头是中国的龙头。现在中共斩龙头改玉琮，妄图改变自己灭亡的定数，不料想是自毁长城，其实改的是中国国运，是“开天辟地，建立新天地，共产党玩完了。” 一切都是中共自己作的。中共逆天而行，用谎言骗得天下，用“假、大、空”维持统治，但一切虚妄终将幻灭。人间正道是沧桑，正道主义终将光耀世界，面对“真、善、狠”，进退失据的中共“输”就是必然，输在“假”，输在“私”！
-
-素材来源：[https://gettr.com/post/pehq2z0831](https://gettr.com/post/pehq2z0831)（郭先生盖特）
-
-**本文谨代表作者观点**
-
-![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
-
-**校对/发稿：童谣**
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

@@ -2,35 +2,23 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月19日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1605372/)
+## 房产税，拙劣的骗局
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1605407/)
 
-作者：香草山翻译部
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/10/v2_e97d4d6794614dfa92a0763d5bf62d27_img_000.jpg)[图片来源](https://www.36kr.com/p/1641832906753)
+据中共官媒10月19日新闻报道，今年多地出现空前严格的楼市调控举措，房产税信号越来越明显，很多人相信未来征税的逻辑可能出现变化，北上广深等一线城市的市场投资和投机者，开始逐步抛售房源，规避房产税。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
+近期，许多多套房持有者抛售房源，宁愿赔付违约金，也要提前解约将房屋出售。北京和广州近期二手房挂牌量激增。炒房致富的时代已经结束。
 
+专家称，房地产税，其一，有助于增加二手房和租赁房市场流动性，促进资源合理配置；其二，可以作为地方税收的重要补充；其三，以高收入人群为目标，有助于实现共同富裕。
 
+该报道只得出一个结论，国内房地产市场急剧动荡的原因，是房产税政策。房子和土地都是党所有，房产税不过是新一轮割韭菜的手段，想用它掩盖房地产市场的崩塌，只能欺骗掩耳盗铃，不愿清醒的受害者。
 
+信息来源：[房产税渐行渐近 一线城市炒房客已提前抢跑](https://www.yicai.com/news/101202453.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1019text-SC.png)
-文章仅代表作者本人观点，与Gnews无关
+(文章仅代表作者本人观点，与GNEWS无关)
 
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：
-
-晚GTV新闻访谈: [https://gtv.org/broadcast/watch/616f6267304e992109b7c68e](https://gtv.org/broadcast/watch/616f6267304e992109b7c68e)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://紐約香草山農場%20%20|%20GTV-香草山之聲%20紐約香草山農場GTV-%20|%20MOS%20TALK%20香草山訪談%20紐約香草山農場%20|%20GETTR%20紐約香草山農場%20｜YouTube%20歡迎加入香草山農場%20%20|%20Discord)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

@@ -15,92 +15,92 @@
 
 ---
 
-### [日本科学家们吐心声言及中共千人计划(之四)](/content/gnews/1/README.md)
+### [女儿接种疫苗后死亡， 河南母亲遭捕](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [相关文件披露，辉瑞向澳洲政府索要疫苗的秘密预付款](/content/gnews/2/README.md)
+ ` 走进澳洲`
+
+### [应对中朝和印太局势，日法召开外交和防务部门级会议。年内举行外长防长2+2磋商](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [法国亿万富翁爆料全球影子政府（一）](/content/gnews/2/README.md)
+### [日本科学家们吐心声言及中共千人计划(之四)](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [法国亿万富翁爆料全球影子政府（一）](/content/gnews/5/README.md)
  ` 澳喜农场`
 
-### [幣圈新聞動態：Gclubs年費可通過喜交所賬戶支付](/content/gnews/3/README.md)
+### [幣圈新聞動態：Gclubs年費可通過喜交所賬戶支付](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [DC大中华时事：赵立坚称美国的民主灯塔已崩塌](/content/gnews/4/README.md)
+### [DC大中华时事：赵立坚称美国的民主灯塔已崩塌](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [COVID-19最新情报｜专家分析指“九成疫苗不良事件被瞒报”](/content/gnews/5/README.md)
+### [COVID-19最新情报｜专家分析指“九成疫苗不良事件被瞒报”](/content/gnews/8/README.md)
  ` G&#124;News TAIWAN`
 
-### [每日快报：美众议员警告可能输掉与中共的&#8221;新冷战&#8221;](/content/gnews/6/README.md)
+### [每日快报：美众议员警告可能输掉与中共的&#8221;新冷战&#8221;](/content/gnews/9/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：说&#8221;人话 &#8220;的原日本【朝日新闻】记者稻垣えみこ](/content/gnews/7/README.md)
+### [秘翻在线：说&#8221;人话 &#8220;的原日本【朝日新闻】记者稻垣えみこ](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共通过深度参与拉美和加勒比地区国家的基础设施建设入侵美国后院](/content/gnews/8/README.md)
+### [中共通过深度参与拉美和加勒比地区国家的基础设施建设入侵美国后院](/content/gnews/11/README.md)
  ` 首尔天池农场`
 
-### [你相信欧金中会自杀吗](/content/gnews/9/README.md)
+### [你相信欧金中会自杀吗](/content/gnews/12/README.md)
  ` 银河勇气之星`
 
-### [COVID-19最新情报｜美国国土安全部长确诊 已完成两剂疫苗接种](/content/gnews/10/README.md)
+### [COVID-19最新情报｜美国国土安全部长确诊 已完成两剂疫苗接种](/content/gnews/13/README.md)
  ` G&#124;News TAIWAN`
 
-### [127名华盛顿州警员因抵制强制疫苗而被解雇](/content/gnews/11/README.md)
+### [127名华盛顿州警员因抵制强制疫苗而被解雇](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [德国右翼媒体集团宣布已完成收购 PLITICO](/content/gnews/12/README.md)
+### [德国右翼媒体集团宣布已完成收购 PLITICO](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加拿大医疗体系名存实亡](/content/gnews/13/README.md)
+### [加拿大医疗体系名存实亡](/content/gnews/16/README.md)
  ` 纽约香草山MOS02`
 
-### [文·贵天成——文贵先生谈“江志成”（四）](/content/gnews/14/README.md)
+### [文·贵天成——文贵先生谈“江志成”（四）](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [北京实施多项调整允许外资投入VPN服务](/content/gnews/15/README.md)
+### [北京实施多项调整允许外资投入VPN服务](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [房产税，拙劣的骗局](/content/gnews/16/README.md)
+### [房产税，拙劣的骗局](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [COVID-19最新情报｜英国又现最强变异毒株—Delta 亚变种 AY.4.2](/content/gnews/17/README.md)
+### [COVID-19最新情报｜英国又现最强变异毒株—Delta 亚变种 AY.4.2](/content/gnews/20/README.md)
  ` G&#124;News TAIWAN`
 
-### [共产党输就输在“私”心太大-简评中共“斩龙头”](/content/gnews/18/README.md)
+### [共产党输就输在“私”心太大-简评中共“斩龙头”](/content/gnews/21/README.md)
  ` 纽约香草山MOS02`
 
-### [GTV新闻访谈简报|2021年10月19日晚](/content/gnews/19/README.md)
+### [GTV新闻访谈简报|2021年10月19日晚](/content/gnews/22/README.md)
  ` 纽约香草山MOS01`
 
-### [英国官方数据很讽刺：自然免疫与两剂疫苗的效果一致](/content/gnews/20/README.md)
+### [英国官方数据很讽刺：自然免疫与两剂疫苗的效果一致](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [在北京冬奥火种采集（圣火）仪式上，西藏示威者举旗抗议](/content/gnews/21/README.md)
+### [在北京冬奥火种采集（圣火）仪式上，西藏示威者举旗抗议](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [马云现身西班牙，被迫处理代持资产](/content/gnews/22/README.md)
+### [马云现身西班牙，被迫处理代持资产](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [美参议院外委会通过 《南中国海和东中国海制裁法案》](/content/gnews/23/README.md)
+### [美参议院外委会通过 《南中国海和东中国海制裁法案》](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [朝鲜试射潜艇弹道导弹 强势表态核谈判](/content/gnews/24/README.md)
+### [朝鲜试射潜艇弹道导弹 强势表态核谈判](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [“Let&#8217;s Go Brandon”成美国最火国骂 抗议拜登完美避开审查](/content/gnews/25/README.md)
+### [“Let&#8217;s Go Brandon”成美国最火国骂 抗议拜登完美避开审查](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [NBA 球员接种新冠疫苗后职业生涯受阻，新歌“Let&#8217;s Go Brandon”遭受警告](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [雅典娜时报-第087期](/content/gnews/27/README.md)
+### [雅典娜时报-第087期](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
-
-### [完全接种疫苗的美国土安全部长确诊感染中共病毒](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [加拿大医院取消未注射新冠疫苗者的就医资格](/content/gnews/29/README.md)
- ` 纽约香草山MOS01`
 
 ### [微软：比尔•盖茨桃色电邮确有其事](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
