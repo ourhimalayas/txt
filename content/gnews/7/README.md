@@ -2,49 +2,53 @@
 ---
 
 
-## 西南航空公司改变疫苗接种政策要求
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1605126/)
+## 武汉实验室宣布只雇用中共党员
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1605146/)
 
-作者：纽约香草山福音部 – Lilian89
+作者：Natalie Winters
 
+据《国家脉搏》透露，现在人们普遍认为武汉病毒学研究所是导致新冠大流行的罪魁祸首，它正在启动一个由另外七个实验室组成的新网络，其中一些设施专门雇用中共党员。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/CCP.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+实验室网站上的几个帖子显示了其中一个新设施：江夏实验室的职位空缺。武汉及其实验得到了美国领先机构的资助和支持，例如安东尼·福奇国家过敏和传染病研究所。
 
+“江夏实验室是武汉病毒所牵头的湖北省首批七家湖北实验室之一，”该实验室解释说，其宗旨是“凝聚新发传染病防控领域优势力量，省内外生物安全，打造新一代检测试剂和设备，研发和储备抗病毒疫苗和药物。”
 
+一个5月17日交于实验室名单第一资格“管理”位置“中国共产党党员，35岁及以下，身体健康。”
 
-据消息称，美国西南航空公司作为联邦承包商，被要求于12月8日前为其雇员完成新冠疫苗的接种任务，在最后期限之前，但没有得到宗教或医疗豁免且未接种疫苗的雇员将开始休无薪假。
+“具有1年以上公共事务管理和党务工作经验者优先，”申请说明补充道。
 
-![](https://image.cnbcfm.com/api/v1/image/106957804-1633972118499-gettyimages-1346028118-kd1_0204_20211011122343793.jpeg?v=1633972187&amp;w=929&amp;h=523)图片来源：Getty Images
+岗位职责包括“实验室党建日常工作，包括制定工作制度，负责党支部建设和党员日常管理工作，编写和报告各种材料，负责实验室培养建设。”
 
-对于这一疫苗强制执行政策，西南航空公司飞行员协会提出了法律诉讼，要求法院“暂时阻止该公司执行联邦规定的新冠病毒疫苗接种政策，直至关于涉嫌违反美国劳动法的诉讼得到解决”。
+8 月 25 日发布的另一份 “人力资源管理” 职位空缺将第一个 “任命条件” 列为 “中国共产党员” 。
 
-10月15日，西南航空公司负责运营和接待的高级副总裁史蒂夫-戈德堡和副总裁兼首席人事官朱莉-韦伯写信给员工表示，即便员工的豁免请求在最后期限之前没有得到批准，他们仍然可以继续工作，但需要遵守带口罩和保存社交距离的准则，直到豁免请求得到审查。
+10月14日职位空缺广告已经被发布到武汉病毒网站。
 
-为了在世界范围内停止COVID疫苗的接种，我们需要坚定信念、绝不放弃，继续传播疫苗真相，拒绝强制疫苗接种政策。
+武汉病毒研究所的七个实验室扩建根据《国家脉搏》揭示了该机构如何在中国共产党的直接控制下运作，包括因努力提升“党性”和承诺实现党的目标而获得政权奖励“在共产主义学习期间毫不妥协”。
 
-（本文仅代表作者观点）
+据其中文网站称，该实验室举行例行会议，以提高“党性”和“政治觉悟”，包括“迎接中国共产党第十八次全国代表大会”等活动。
 
-参考阅读：
+武汉病毒学研究所连接着中国共产党，也和正值美国国家过敏症和传染病研究所（NIAID）主任安东尼·福奇决定用美国纳税人的钱资助该实验室的决定有关系。
 
-[Southwest drops plan to put unvaccinated staff on unpaid leave starting in December](https://www.cnbc.com/2021/10/19/southwest-vaccine-mandate-unpaid-leave-exemptions.html)
+该研究与彼得·达萨克等美国科学家合作进行，重点是操纵类似于新冠的蝙蝠冠状病毒。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+來源：[https://thenationalpulse.com/exclusive/wuhan-lab-launches-new-lab-for-ccp-members/](https://thenationalpulse.com/exclusive/wuhan-lab-launches-new-lab-for-ccp-members/)
 
-***编辑/校对/发稿：Irene木木***
+（文章仅代表作者个人观点）
 
-**更多资讯，更多关注**
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+**关注我们**
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+Discord 账号
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2.jpg](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

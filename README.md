@@ -15,107 +15,107 @@
 
 ---
 
-### [因拒绝接种疫苗 洛斯阿拉莫斯实验室顶级核科学家被解雇](/content/gnews/1/README.md)
- ` 小象`
-
-### [众议员迈克·加西亚:美国对中共国 的过度依赖在我们当前面临的供应链危机中起了作用](/content/gnews/2/README.md)
- ` 美国政要直译推`
-
-### [德国自民党批评中共国使用纳粹语言](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [武汉实验室宣布只雇用中共党员](/content/gnews/4/README.md)
- ` MG FARM`
-
-### [雷军退出上海小米金融公司董事 法定代表人变更](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [真实版《鱿鱼游戏》：中国每周上千器官被悄悄活摘](/content/gnews/6/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [西南航空公司改变疫苗接种政策要求](/content/gnews/7/README.md)
- ` 纽约香草山MOS01`
-
-### [除非完全接种疫苗，否则德约科维奇将无缘澳网赛事](/content/gnews/8/README.md)
- ` 走进澳洲`
-
-### [韩运载火箭“世界”号正式进入发射准备阶段](/content/gnews/9/README.md)
- ` 首尔天池农场`
-
-### [加拿大人在新冠期间负债累累，生活质量恶化](/content/gnews/10/README.md)
- ` MG FARM`
-
-### [疫苗全接种的美国土安全部长病毒检测阳性](/content/gnews/11/README.md)
- ` HimalayaRussia`
-
-### [《蓝枫法律》第二十九期 喜币白皮书解读（一）](/content/gnews/12/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [纽约州总检察长责令两加密货币交易平台关闭在该州的业务](/content/gnews/13/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [加拉赫议员：中共正在上演“斯普特尼克危机”](/content/gnews/14/README.md)
- ` HimalayaRussia`
-
-### [前国务卿鲍威尔完全接种疫苗，周一死于 COVID-19 并发症](/content/gnews/15/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [Eglise医生来谈青蒿素的副作用](/content/gnews/16/README.md)
- ` Itana`
-
-### [感谢信](/content/gnews/17/README.md)
- ` MG FARM`
-
-### [日本要闻汇编](/content/gnews/18/README.md)
+### [美国国土安全部部长，注射疫苗后仍感染中共病毒](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【小雨专栏】在路上(036）——野鸡篇](/content/gnews/19/README.md)
- ` 温哥华扬帆农场`
+### [中俄军舰首次联合通过日本津轻海峡](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [10/19/2021 文贵盖特：在中共国，社保就是骗局，而医院是杀人和抢钱的地方](/content/gnews/20/README.md)
- ` 秘密翻译组-北美组`
+### [美官方或批准“混合搭配”疫苗加强接种方案](/content/gnews/3/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
 
-### [福建莆田恶性杀人伤人案件引发的思考](/content/gnews/21/README.md)
+### [因拒绝接种疫苗 洛斯阿拉莫斯实验室顶级核科学家被解雇](/content/gnews/4/README.md)
+ ` 小象`
+
+### [众议员迈克·加西亚:美国对中共国 的过度依赖在我们当前面临的供应链危机中起了作用](/content/gnews/5/README.md)
+ ` 美国政要直译推`
+
+### [德国自民党批评中共国使用纳粹语言](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [武汉实验室宣布只雇用中共党员](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [雷军退出上海小米金融公司董事 法定代表人变更](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [真实版《鱿鱼游戏》：中国每周上千器官被悄悄活摘](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [青蒿素的药物动力学以及青蒿素保健品简介](/content/gnews/22/README.md)
- ` 纽约香草山MOS03`
+### [西南航空公司改变疫苗接种政策要求](/content/gnews/10/README.md)
+ ` 纽约香草山MOS01`
 
-### [10/18/2021 文贵直播：中共社保基金内幕](/content/gnews/23/README.md)
+### [除非完全接种疫苗，否则德约科维奇将无缘澳网赛事](/content/gnews/11/README.md)
+ ` 走进澳洲`
+
+### [韩运载火箭“世界”号正式进入发射准备阶段](/content/gnews/12/README.md)
+ ` 首尔天池农场`
+
+### [加拿大人在新冠期间负债累累，生活质量恶化](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [有声|英国生育率创下新低](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [有声|中共一旦武攻台湾，美军3分钟铲平其军事基地](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [莫斯科举办阿富汗问题会议](/content/gnews/26/README.md)
+### [疫苗全接种的美国土安全部长病毒检测阳性](/content/gnews/14/README.md)
  ` HimalayaRussia`
 
-### [有声|美国国际开发署启动了1.25亿美元的项目以寻找12000种新病毒](/content/gnews/27/README.md)
- ` MOSREC`
+### [《蓝枫法律》第二十九期 喜币白皮书解读（一）](/content/gnews/15/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [2021/10/17 文贵先生直播精要](/content/gnews/28/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [纽约州总检察长责令两加密货币交易平台关闭在该州的业务](/content/gnews/16/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年10月18日郭文贵先生直播（盖特直播测试）全文字版](/content/gnews/29/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
+### [加拉赫议员：中共正在上演“斯普特尼克危机”](/content/gnews/17/README.md)
+ ` HimalayaRussia`
 
-### [台湾战争恐惧飙升之际，中共国警告美国和加拿大不要“制造麻烦”](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [前国务卿鲍威尔完全接种疫苗，周一死于 COVID-19 并发症](/content/gnews/18/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [〖信仰之声】宁失一眼，不失全身](/content/gnews/31/README.md)
+### [Eglise医生来谈青蒿素的副作用](/content/gnews/19/README.md)
+ ` Itana`
+
+### [感谢信](/content/gnews/20/README.md)
+ ` MG FARM`
+
+### [日本要闻汇编](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【小雨专栏】在路上(036）——野鸡篇](/content/gnews/22/README.md)
+ ` 温哥华扬帆农场`
+
+### [10/19/2021 文贵盖特：在中共国，社保就是骗局，而医院是杀人和抢钱的地方](/content/gnews/23/README.md)
+ ` 秘密翻译组-北美组`
+
+### [福建莆田恶性杀人伤人案件引发的思考](/content/gnews/24/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [青蒿素的药物动力学以及青蒿素保健品简介](/content/gnews/25/README.md)
  ` 纽约香草山MOS03`
 
-### [2021/10/19文贵先生盖特精要](/content/gnews/32/README.md)
+### [10/18/2021 文贵直播：中共社保基金内幕](/content/gnews/26/README.md)
+ ` MG FARM`
+
+### [有声|英国生育率创下新低](/content/gnews/27/README.md)
+ ` MOSREC`
+
+### [有声|中共一旦武攻台湾，美军3分钟铲平其军事基地](/content/gnews/28/README.md)
+ ` MOSREC`
+
+### [莫斯科举办阿富汗问题会议](/content/gnews/29/README.md)
+ ` HimalayaRussia`
+
+### [有声|美国国际开发署启动了1.25亿美元的项目以寻找12000种新病毒](/content/gnews/30/README.md)
+ ` MOSREC`
+
+### [2021/10/17 文贵先生直播精要](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [被海航收购的法兰克福哈恩机场资不抵债](/content/gnews/33/README.md)
- ` Shuizhuyu`
+### [2021年10月18日郭文贵先生直播（盖特直播测试）全文字版](/content/gnews/32/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [拜登提案将允许美国国税局监视每个在职美国人的银行记录](/content/gnews/34/README.md)
- ` MG FARM`
+### [台湾战争恐惧飙升之际，中共国警告美国和加拿大不要“制造麻烦”](/content/gnews/33/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [〖信仰之声】宁失一眼，不失全身](/content/gnews/34/README.md)
+ ` 纽约香草山MOS03`
 
 ### [佛蒙特州超过四分之三中共病毒死亡病例是全接种疫苗人群](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
