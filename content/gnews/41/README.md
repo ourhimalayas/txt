@@ -2,38 +2,59 @@
 ---
 
 
-## 疫苗灾情｜美国 35 岁疫苗拥趸孕期接种后致新生儿夭折
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1605744/)
+## 西南航空在员工抗议后对疫苗接种政策做出重大改变
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1605787/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 20/10/2021**
+**编译:JennyBall**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip36.png)图片来源：Dillon Burroughs
 
-【美国】华盛顿一名拥有公共卫生硕士学位的 35 岁女性 Amanda Makulec 在孕期接种 COVID-19 疫苗后，导致她 21 个月大的新生儿突然死亡。这是又一个怀孕后接种疫苗的不幸事件。
+西南航空公司已结束了原来的计划，在 12 月 8 日截止日期之后，让申请宗教或医疗豁免COVID-19 疫苗授权的未接种疫苗的员处以无薪假期。
 
-Amanda 一直以来都是新冠疫苗的拥趸，同时亦是美国民主党的坚定支持者，她会逐字逐句反驳一切质疑疾病控制中心、主流媒体的每一个观点。因此，尽管 Amanda 2020 年 11 月左右得知自己怀孕，即将迎来第二个孩子，她仍然选择于 3 月 17 日接受了第一针 mRNA 疫苗，并按时接受第二针注射。
+据 CNBC 报道，西南航空的运营和酒店高级副总裁史蒂夫·戈德伯格（Steve Goldberg）和副总裁兼首席人事官朱莉·韦伯（Julie Weber）周五就此事致信员工。
 
-7月中旬，Amanda 生下一个小男孩，并在社交平台分享了自己在孕期接种疫苗并顺利产子的实例，更谈及自己孕期及哺乳期接种疫苗后，可让婴儿“分享母亲的免疫保护”。
+新的变化将允许西南航空公司的员工在 11 月 24 日之前完全接种疫苗，或申请医疗或宗教豁免。如果员工的豁免在 12 月 8 日之前未获批准，则员工可以继续工作，同时遵守口罩和保持距离准则，直到请求得到批准。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-loves-vaxx.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-vaxx1.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-Sept-18.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-J-and-J-defense.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-echo1.png)
+据报道这封信写道：“这与之前传达的内容有所不同。 最初，我们表示这些员工将无薪休假，现在情况不再如此”。
 
+**（评论：自由从来不是免费的！我们现在的权利，是先父写在《独立宣言》要保护我们的；是无数英勇的先辈用生命换来的；是需要我们这样抗争才能保护自己和我们后代的权利！）**
 
-之后，Amanda 开始经常宣传及鼓励大家接种疫苗，多条贴文都特意标注 #GetVaccined 标签。
+除非获得豁免，否则属于联邦承包商的西南航空公司，须在 12 月 8 日之前遵守拜登政府的冠状病毒疫苗规定。
 
-可惜，最不幸的事还是发生了，9 月 27 日，她在推特发文指，“昨天，我 2 1/2 个月大的男婴『突然意外去世』。”但当出现有多人在评论区留言指“疫苗是导致悲剧的主要原因”时，她很快就锁住了自己的账户。
+**（评论：为什么不遵守宪法：我的身体我做主？再说了，总统的行政令成文了吗？）**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-baby-dies.png)
+周一，数百名西南航空公司现任和前员工，聚集在该公司达拉斯总部外，抗议疫苗规定。
 
-**小编有话说**：虽然该个案中的当事人有“咎由自取”之嫌，惟希望读者不要就这个问题嘲讽当事人，痛失孩子已是莫大伤害，任何一个疫苗灾难的背后，最该被斥责和批判的，是蓄意用疫苗杀害普通民众的少数权贵阶层。
+据 KTVT-TV 报道，工人们举着标语，上面写着“终止疫苗授权”、“自由而不是强迫”和“不要疫苗要工作”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/39-1.jpg)
+该集合的既定目标是为医疗自由而战。
 
-来源｜[个案039](https://thecovidblog.com/2021/10/02/amanda-makulec-35-year-old-washington-d-c-woman-gloats-of-being-vaccinated-pregnant-breastfeeding-newborn-son-dies-at-two-half-months/)
+“欢迎所有相信医疗自由的人聚集在西南航空公司总部外，”该活动的 Facebook 传单说。 “最重要的是，我们希望回到西南航空热情好客的核心，让所有员工都感到受到欢迎、关心和赞赏。”
+
+据 CNBC 报道，西南航空在 10 月 9 日至 10 日的周末期间，取消了 1,800 多个航班。当时，该航空公司的一位女发言人否认了航班取消与对疫苗强制执行的抗议有关的指控。
+
+“这是不准确的，”她谈到西南地区员工“请假”的报道时说。 “有很多毫无根据的谣言和猜测在流传。”
+
+**（评论：这让我们想到中共处理问题的方法：辟谣！但凡是中共辟的谣，就做实了那就是真相。所以中共才要在辟谣之后解决掉提出问题的人！美国的政客和精英学的真快啊！）**
+
+不管最近的取消情况如何，员工都认为：冠状病毒疫苗不应成为就业的必要条件。
+
+德克萨斯州总检察长肯·帕克斯顿（Ken Paxton）出席了周一的抗议活动。据 KDFW 报道，他说，针对该授权采取法律行动是不可避免的。
+
+“我们已经在计划我们的诉讼，”他说。 “我已经在与其他州合作。 我向你保证：我们会为你而战。 我们将根据宪法做一切事情。”
+
+德州共和党州长格雷格·阿博特（Greg Abbott） 最近签署了一项行政命令，禁止德州的任何实体强制执行疫苗任务。
+
+**（评论：政府强加的疫苗授权，无论是从宪法还是现行法律的角度，都是站不住脚的。只有人们起来，用法律的武器才能更有力地保护我们的权利，保护我们的家人，保护我们的健康和生命！欣慰还有像德州总检察长帕克斯顿这样正义的司法官，和州长阿博特这样为民办事的官员！）**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**参考资料：**[westernjournal.com] [Southwest Airlines Makes Major Change to Vaccination Policy After Uprising by Employees](https://www.westernjournal.com/southwest-airlines-makes-major-change-vaccination-policy-uprising-employees/?utm_source=Email&amp;utm_medium=newsletter-WJ&amp;utm_campaign=dailyam&amp;utm_content=western-journal&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
 
 * * *
 
-他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)
