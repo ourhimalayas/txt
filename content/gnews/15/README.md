@@ -2,49 +2,19 @@
 ---
 
 
-## 华盛顿州立大学橄榄球主教练因拒绝接种疫苗被解雇
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1606593/)
+## 让历史告诉未来
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1606640/)
 
-作者：纽约香草山农场 – 雪梨
+中国人民从清末开始争取宪政改革。1898年的 “戊戌变法”只持续了短短的103天便胎死腹中。“庚子事变” 后的 “清廷立宪” 搞出了 “皇族内阁”, 引发辛亥革命结束清廷。辛亥革命曾经给中国人打开一道门缝，射进一丝宪政民主的光芒，随着袁世凯复辟称帝，这道光芒一闪而过迅速消逝在历史的荒漠中。其后宋教仁的 “责任内阁制”和陈炯明的“联省自治”都没有成功。孙中山先生提出军政、训政和宪政三阶段，北伐胜利后，蒋介石在中国实行一党训政，但抗日战争的爆发中断了中国可能的民主进程。1948年国民党准备正式开启宪政时代，由于内战的原因又一次中断。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+人类历史上最大的政治灾难就是百年来共产红魔在中国大陆的滋生、蔓延、肆虐和扩张。孙中山先生毕生最大的过错是提出 “以俄为师” 、“联俄联共”，从此中共象病毒一样一发不可收拾。在蒋公全力围剿逃亡到延安的中共的时候，”西安事变”和抗战的爆发让中共逃出天生。抗战结束后，美国左派政客放弃了对蒋公的援助，而苏俄却全力援助中共，导致蒋公失去大陆败走台湾。在七十年代初中共因为文革而面临经济崩溃之际，美国为了对抗苏联而同中共结盟。8964中共屠杀学生和平民遭到全世界孤立的时候，又是美国为了遏制苏联而放过中共。苏联解体后，美国给予中共永久最惠国待遇，促成中共加入WTO并举办2008年奥运会，从此中共获得巨额美元顺差，跃升为全球第二大经济体。
 
+中共就是打着马列主义歪理邪说的幌子，披着儒家文化温情脉脉的外衣，实际上是一个集哲学上的辩证唯物主义无神论、经济上的公有制和政治上的商鞅驭民五术为一体的邪魔怪胎，集古今中外邪恶之大成。中共靠暴力和谎言起家，以革命的名义杀人，以公有制的名义掠财，以改革的名义分赃，以开放和全球化的名义祸害全球。中共不仅奴役中国人民，还用蓝金黄的超限战手段在全球大肆渗透扩张，令人发指的是，中共蓄意制造和投放中共病毒这个超限生物武器，致使全球一亿五千多万人感染，三百多万人失去生命！中共政权是人类社会有史以来最邪恶的政体，是人类社会最大的毒瘤！
 
+2020年6月4日郭文贵先生领导的新中国联邦登上历史舞台，《新中国联邦宣言》秉承了《大宪章》和《独立宣言》的宪政民主思想，明确提出未来新中国实行一人一票、三权分立的联邦制宪政民主政体，用法律保障中国人的基本权利。新中国联邦在人类历史上第一次明确提出以灭共为首要目标并为之付诸行动！《新中国联邦宣言》将同《大宪章》和《独立宣言》一样具有崇高的历史地位，《大宪章》开创了人类历史上第一个宪政民主政体，《独立宣言》奠定了美国两个半世纪的繁荣和强大，是当今全球自由民主的灯塔和基石，《新中国联邦宣言》将解放中国大陆十四亿奴隶，拔除中共这个危害人类的最大毒瘤！
 
+亲爱的战友们，新中国联邦的横空出世是苍天对中国人和全人类的眷顾。文贵先生咬破手指发誓灭共的一瞬间，自由女神的天空闪耀光芒，这是上天的旨意，天佑中华，天佑人类！一个新的时代已经开启，新中国的曙光就在眼前，她是饥渴难耐的沙漠旅人眼前闪亮的一片绿洲，她是夏日午后闷热的天空中炸响的一声惊雷，她是大洪水泛滥时代的诺亚方舟，让我们张开双臂拥抱她！亲爱的战友们，让我们张开双臂拥抱我们的新中国联邦！
 
+作者：三票先生| 翻译：Aruth | 校对：tonyj / Kelly |配音：Anna 贵贵/ 文骑士
 
-周一，华盛顿州立大学体育总监帕特·春和校长柯克·舒尔茨在新闻发布会上宣布，因未按照州政府规定的、于本周一前完成新冠疫苗接种，该校橄榄球主教练尼克·罗洛维奇，及四名助理教练被解雇。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1256-1.jpg)图片来源：[lifesitenews.com](https://www.lifesitenews.com/news/major-university-fires-head-football-coach-over-vax-refusal-after-rejecting-exemption-request/?utm_source=top_news&amp;utm_campaign=usa)
-
-据悉，罗洛维奇年薪超过300万美元，是工资最高的州政府雇员，合同预计到2025年结束。7月，他曾发表推文，明确表示不会接种疫苗；并于10月9日提交宗教豁免申请，但遭到拒绝。
-
-本月12日，因拒绝接种疫苗，NBA球星凯里·欧文被篮网队禁赛，引发球迷和媒体的广泛关注和讨论。虽完成疫苗接种，美国加州佐治亚大学体育专业学生肖恩·库恩，仍感染新冠病毒，并于近期去世。且因接种毒针疫苗，导致病毒感染，甚至死亡的案例层出不穷。如果政府继续强制执行接种令，欧文等体育界有影响力人物的挺身而出，将激发更多的人探究和了解疫苗真相。
-
-（本文仅代表作者观点）
-
-**参考阅读：**
-
-1. [Head football coach at Washington State University denied religious exemption for COVID shot, gets fired – LifeSite (lifesitenews.com)](https://www.lifesitenews.com/news/major-university-fires-head-football-coach-over-vax-refusal-after-rejecting-exemption-request/?utm_source=top_news&amp;utm_campaign=usa)
-2. [Washington State fires football coach Nick Rolovich, 4 assistants for refusing state-mandated COVID-19 vaccine (espn.com)](https://www.espn.com/college-football/story/_/id/32426315/nick-rolovich-washington-state-football-coach-refusing-state-mandated-covid-19-vaccine-source-says)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
-
-校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+视频制作：无名氏 /小腾腾说 |编辑&发布：黎明的光芒

@@ -2,34 +2,37 @@
 ---
 
 
-## 马云在处理的财产大概三千多笔,蔡崇信洗掉马去75%的钱
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1606523/)
+## 郭文贵Gettr/GTV双直播测试摘要和音频 2021.10.18
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1606594/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/7617-icqznha8812694_副本.jpg)
-据郭文贵先生2021年10月20日大直播——
+摘要撰稿人： 文俊
 
-我再告诉大家现在马云在干什么，马云处理的资产有涉及多少笔呢？大概3000多笔。在美国最重要的人物大家知道是谁吗？叫蔡崇信，蔡崇信你可以来告我，你不来告我你是王八蛋，就买了洋基队的美国的最牛的所谓来自台湾的蔡崇信，蔡崇信买的洋基队的钱几十亿美元的钱，还有刚刚的在我对面就纽约的Central Park220号——最牛的、全曼哈顿最贵的房子，对面是15号，是当年的海航买的，还有对面157号是王岐山买的，已经都卖完了。这个上面最顶楼5楼，5层最高2.5亿美元成交的是马云的房子，不是蔡崇信的，现在要求全部都得卖掉。
+音频提供者： 左媛
 
-蔡崇信所有持有的财富75%都是马云的，这涉及到什么都知道了吗？大家知道什么意思吗？微蓝知道吗？这叫洗钱，这叫洗钱，不如实地在美国政府、税务局和在美国交易当中如实披露最终受益人这是洗钱，蔡崇信涉嫌洗钱，蔡崇信洗掉了马云的75%的钱。
 
-视频协作：天边小面包
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-20-at-1.52.09-PM.png)
 
-撰稿：喜马拉雅的肉夹馍
 
-审核：喜马拉雅的馍夹肉
+### 视频：
 
-校对：Maarago
+[视频链接：](https://gettr.com/streaming/pejgy3dc01)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+### 音频：
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+### 摘要：
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+1. 资本没有祖国，但是有主人啊，中国人的钱要还给中国人
+2. 虚拟货币区块链和金融区块链是两回事，比特币金融不区块链是不安全的，喜币金融区块链 安全 便捷 合法
+3. 中国人是没有社保的“中国是社保基金不是社保制度”基金赔了就赔了
+4. 中国社保第一条大病等死 小病分等级 治死不治活
+5. 中国医院是盈利机构
+6. 中国人洗脑不是我们能说清楚的，七哥家人打两针、担心七哥没钱、担心七哥没钱打疫苗
+7. 社保基金投了平安，平安倒了就没有了
+8. 老领导相信疫苗 打两针 突发心脏病去世
+9. 七哥英国朋友，打三针高纯度250克疫苗，有反应
+10. 高纯度（250克）疫苗每针等于80-100亿分子
+11. 长岛哥：后补喜币不一定是联盟代持
+12. GTV KYC被拒审核一月时间，长岛：可能正常耐心等待
+13. 美加日KYC没时候开始，长岛：根据每个国家政策，应该日本是最快的
+14. 长岛哥：小额三千起步，低于三千，除非老战友 有贡献 农场审核
+15. GTV 30号重建会不会延期，长岛哥：个人认为可能会延期，具体看GTV投资联盟公告

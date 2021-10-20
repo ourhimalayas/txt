@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/20/2021 9:25 PM (UTC)`
+
+👍👍👍👍👍👍👍😍😍😍😍😍
+> `@globalalliance 10/20/2021 5:16 PM (UTC)`<br/>欢迎战友们加入喜马拉雅联盟全球农场：<br/><br/>美国华盛顿DC农场<br/>DC农场申请表: https://forms.gle/otvo4C5reWcQSKE18 <br/>农场负责人：阿丙，WhatsApp +1 404 512 1394 <br/>美国纽约香草山农场<br/>Discord 群组: https://discord.gg/ChqXAHd <br/>农场负责人：长岛伟哥，DIscord： 长岛伟哥#1466<br/>美国洛杉矶盘古农场<br/>Discord 群组: https://discord.gg/3MpgyFjF <br/>农场负责人：美国小李，Discord：美国小李#3727 <br/>美国波士顿五月花农场<br/>Discord 群组: https://discord.gg/Tg7YCtMP9j  <br/>农场负责人：如水，Discord：如水#6458<br/>加拿大多伦多枫叶农场<br/>Discord 群组: https://discord.gg/Cpz33sS <br/>农场负责人：文枫，Discord ：xmlyca(文枫)#0947<br/>加拿大温哥华圆成农场<br/>Discord 群组: https://discord.gg/JpnfF7T  <br/>农场负责人：卡丽熙，WhatsApp:+1 613 434‑9162<br/>加拿大温哥华扬帆农场<br/>Discord 群组: https://discord.gg/r9tYf3HKTn <br/>农场负责人：飞翔的小鸟，Discord: 飞翔的小鸟#8679<br/>加拿大温哥华英里准农场<br/>Discord 群组: https://discord.gg/nj93f7kh   <br/>农场负责人：郭七郎，Discord ：郭七郎#3226<br/>日本东京樱花团农场<br/>Discord 群组: https://discord.gg/YGTPfxs <br/>农场负责人：马拉多纳，Discord: 马拉多纳#2266<br/>
+![img](https://media.gettr.com/group48/getter/2021/10/20/17/32ed2235-0360-a41e-1091-6d12192a47b5/8539fe2d94597a7df57d9199da2ed52c.jpg)
+
+---
+
 `@miles 10/20/2021 8:26 PM (UTC)`
 
 10/20/2021 Miles Guo: The CCP is committing a fraud by manipulating the stock market using Jack Ma at the state level. With all the families of Jack Ma and his right-hand man, Yu Feng, being held hostages, Jack Ma was coerced by the CCP to go to Spain to sell his land, yacht, and holding companies to bring up Alibaba’s stock price to help the CCP profit. The 20 people accompanying Jack Ma are in fact the killer-level special police or civil servants, and all of them are holding fake identity paperwork<br/><br/>10/20/2021文贵直播: 中共利用马云进行国家级股市操纵、刑事诈骗；马云和副手于峰全家被绑架，被中共胁迫到西班牙变卖土地、游艇和控股公司，变相抬高阿里巴巴股价，助中共获利。马云随行的20人实为杀手级特警和公务员，用的都是假证件。<br/>
@@ -288,13 +296,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 10月15号：尊敬的战友们好……非常的抱歉，很多战友给我发的信息没办法一一回复，我只能在这里，简单给大家统一回复一下，谢谢。
 ![img](https://media.gettr.com/group10/getter/2021/10/16/00/12/e1f9451d-fbe9-849a-3ed5-2bb83f9157ca/out.jpg)
-
----
-
-`@miles 10/15/2021 11:29 PM (UTC)`
-
-10月15号：共产党这种低级的下三滥的手段……体现在各个方方面面，从把龙头变成鸟头……又要在海外，哭闹到处发红头文件，为了喜币上市．下发，禁止全国14亿国人买虚拟货币……荒唐至极……【七哥您好! 向您汇报一件昨天发生在老椅子群的事情，有个战友叫firenew的，忽然在群里说要G club退款，等了一个多月还没退成，找农场不同意还把他踢了。我们都告诉他G club卡早就说过不能退的。<br/><br/>然后继续谈下来，发现他破绽很多，就是要钱，说没钱吃饭了，他投资了40万椅子，还有几万G1，捐款也不少，说现在穷得要等钱开饭。还可以把喜币配额给我们，我们都觉得还有两星期喜币上市，现在转让喜币配额不是疯了吗？<br/><br/>最后大家商量不如把他的配额买了，这样他就有钱，有战友马上表示愿意5万全部收购他的配额，26万多的喜币配额，这么便宜他竟然同意了，还要他原来的香草山农场义工做第三方完成交易。凑巧，那时候已经是纽约半夜三点，找不到人。<br/><br/>然后大家慢慢聊，发现更多破绽，他似乎连什么时候投G TV，喜币的特点都不懂。还扯什么狗币，然后私信战友攻击喜币。这时候基本能确定这个账号被控制了，然后迟些时候，有战友发现这个号已经一年左右没在群里活动了。基本能完全确定，这个战友已经被中共抓了，账号可能被手下办案的狗腿子控制，想向战友骗点钱。】<br/><br/>
-![img](https://media.gettr.com/group7/getter/2021/10/15/23/e9358afa-2613-29ad-f85d-2942a32cfae3/f6620dddcc726eeb86f070f0ddc39fae.jpg)
 
 ---
 

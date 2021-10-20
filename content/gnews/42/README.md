@@ -2,21 +2,44 @@
 ---
 
 
-## 水灾后的缺粮已显现
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1605959/)
+## 强推疫苗令生效 导致美国大面积裁员
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1606017/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ert.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2020%252F0723%252Fcb60327ej00qdx9os003ec000xc00m8m.jpg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FFI8F64690539BX8Z.html&amp;tbnid=yeDumOu9LhDj1M&amp;vet=12ahUKEwjQnuj12djzAhU0JaYKHZ7qCk8QMygEegUIARClAQ..i&amp;docid=qV86qo8WQz1e3M&amp;w=650&amp;h=434&amp;itg=1&amp;q=%E8%BF%9B%E5%8F%A3%E5%B0%8F%E9%BA%A6&amp;ved=2ahUKEwjQnuj12djzAhU0JaYKHZ7qCk8QMygEegUIARClAQ)
-中国新闻网哈尔滨10月19日电，黑龙江省对俄农业产业协会19日发布消息，中粮集团从俄罗斯进口的667吨小麦抵达黑河口岸，于19日脱箱卸到当地海关监管库。这是中共国首次成规模地从俄罗斯远东地区进口小麦，这打开了中俄农业合作的一个新渠道。
+**By:秘翻新闻**
 
-据黑龙江省对俄农业产业协会秘书处一位负责人介绍，自从20世纪90年代，黑龙江开始开展中俄农业合作以来，这是进口小麦数量最大的一次。
+***2021-10-20***
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/1020-2.jpg)](https://gtv.org/broadcast/watch/616fd971304e992109b7f4be)点击图片观看视频
+**新闻摘要:**
 
-小麦是中国人最重要的口粮之一，进口667顿的小麦，俨然成为规模？中共国是世界上最大的小麦生产国，整个中共国都有种植小麦的产区。从北到南，小麦的主产区一直都有分布。之所以要进口小麦，是南北水灾造成的严重损失，粮食危机在不久的未来一定会显现。
+1.（中共国)北京丰台区变疫区 身穿防护服人员入驻
 
-消息来源：[中国首次成规模进口俄罗斯小麦 667吨小麦运抵中国口岸](https://me.mbd.baidu.com/r/v2oTGESPZu?f=cp&amp;rs=1846487702&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=7212c7f377841973)
+2.（中共国)大陆疫情蔓延致多地封管 A股旅游板块普跌
 
-(文章仅代表作者本人观点，与GNEWS无关)
+3.  中共国停滞性通膨风险上升 第四季经济或持续放缓
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+4.  中共国湖北坠楼学生家长讨真相被警察暴力执法
+
+5. 朝鲜囚犯拼死逃出中共国监狱
+
+6. 英国确诊人数攀升 发现超强变种病毒AY.4.2 比Delta强15％
+
+7.  中俄海军舰艇联合航行穿越日本海峡
+
+8.  台湾立陶宛将进行双边贸易论坛
+
+9.  中印军长级会议谈崩 谈判内幕曝光
+
+10. 美国国土安全部部长 检测出中共病毒
+
+11.  强推疫苗令生效 导致美国大面积裁员
+
+12.  中共已在拉美和加勒比地区投资了1400亿美元
+
+**GTV链接：**[https://gtv.org/broadcast/watch/616fd971304e992109b7f4be](https://gtv.org/broadcast/watch/616fd971304e992109b7f4be)
+
+发布: 文橙
+
+* * *
+
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)

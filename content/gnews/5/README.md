@@ -2,61 +2,39 @@
 ---
 
 
-## 辉瑞公司对其COVID疫苗来源的紧张表现揭开了一个恐怖的故事
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1606703/)
+## 中共病毒溯源：承认自然起源可获百万美元
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1606789/)
 
-据《网关专家》助理编辑2021 年 10 月 13 日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-18.png)图片来自网络
-直到现在还鲜为人知的这个故事，至少应该使任何员工提出的基于良心的免受雇主或政府强制疫苗接种的宗教豁免申请得到批准。
+编译：西班牙喜悦农场–wenwu
 
-10 月 6 日，在詹姆斯·奥基夫（ James O’Keefe ）的“真理计划”（ Project Veritas ，简称PV ）的帮助下，辉瑞的一名举报人在其泄露的内部电子邮件中透露 — 用 PV 的话说 — 公司高管“告诉员工们，对在中共病毒疫苗实验室测试中使用了人类胎儿组织保守秘密。”（Gnews译文链接：[https://gnews.org/zh-hans/1588521/](https://gnews.org/zh-hans/1588521/)）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-2-12.jpg)图片来源：thenationalpulse.com
 
-曝光视频引用了该公司全球高级研究主管的一封电子邮件，承认“一个或多个起源可追溯到人类胎儿组织的细胞系已用于与疫苗计划相关的实验室测试。” 该公司的首席科学官将所涉及的细胞系明确为“ HEK293T 细胞，（它们）最终来自于流产的胎儿。”
+Malik Peiris 博士曾在《柳叶刀》医学杂志的 COVID-19 起源调查委员会任职，他的研究在于帮助中共关于中共病毒（COVID-19）自然起源的错误说法，并因此获得了中共国的”诺贝尔奖”。
 
-至少基于下面三个原因，辉瑞拒绝披露其疫苗来源似乎是无法解释的。
+Peiris 是[一名](https://thenationalpulse.com/news/lancet-scrubs-entire-covid-origins-team/)在香港工作的斯里兰卡病毒学家，他是领导[现已解散的](https://www.wsj.com/articles/covid-19-panel-of-scientists-investigating-origins-of-virus-is-disbanded-11632571202)《柳叶刀》调查 COVID-19 起源的12 位科学家之一。虽然该工作组已不再列在该医学期刊的网站上，因为它因与武汉病毒研究所的广泛[利益冲突](https://thenationalpulse.com/exclusive/lancets-jeffrey-sachs-covid-commission-chair-ccp-ties/)而被迫解散，但[存档](https://web.archive.org/web/20210126092406/https:/covid19commission.org/origins-of-the-pandemic)网页显示 Peiris [参与](https://web.archive.org/web/20210623213920/https:/covid19commission.org/malik-peiris)了这项工作。
 
-首先，（去年）12 月，鉴于中共病毒大流行所带来的紧急状况，天主教会的神圣信仰教理部表示，“接种在研究和生产过程中使用了来自流产的胎儿细胞系的中共病毒疫苗在道德上是可以接受的。” 在非紧急情况下，这种行为将被视为罪孽深重的“邪恶合作”，但教理部表示教皇方济各“审查”了他们的工作并“下令发布”。
+在 Peiris 在工作组任职之后，中国共产党将 2021 年未来科学奖中的生命科学奖（称为中共国的“诺贝尔奖”）[授予](http://www.futureprize.org/en/laureates/detail/54.html)了他。这是中共国的最高科学荣誉，还[伴随着](https://www.thestandard.com.hk/section-news/section/4/234120/HKU-medicine-profs-win-'China's-Nobel-Prize') 100 万美元的奖金，最终由[百度](https://qz.com/1708662/chinese-tech-giants-tools-of-the-communist-party-us-official/)、[高瓴](https://thenationalpulse.com/politics/tiktok-ccp-investor/)资本（Hillhouse Capital）和[红杉](https://thenationalpulse.com/news/revealed-lincoln-project-donors-include-romneys-bain-capital-ccp-linked-secquioa/)资本(Sequoia Capital China）等多家与中共有关的公司[资助](http://www.futureprize.org/en/nomination.html)（支付）。
 
-其次，人类胎儿组织研究虽然存在争议（如上所述），但自 1930 年代以来一直在进行，据说“帮助开发了针对多种疾病的疫苗，包括脊髓灰质炎、麻疹、腮腺炎、风疹、甲肝乙肝，带状疱疹和狂犬病。”
+国营[媒体](https://www.globaltimes.cn/page/202109/1234039.shtml)《环球时报》声称，该奖项是为了表彰他“发现 SARS-CoV-1 是 2003 年全球 SARS 爆发的病原体，对防治 COVID-19 和新兴的传染病具有重要影响。” Peiris 与合著者袁国勇（Kwok-Yung Yuen）等4人分享了该奖项（如下图）。
 
-第三，辉瑞所说的细胞系 HEK293 已经存在了近半个世纪，并且得到了广泛应用。仅举众多例子中的一个：“许多用于治疗精神分裂症和躁郁症等精神疾病的抗精神病药物”被认为应归功于 HEK293 细胞。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-3-9.png)图片来源：thenationalpulse.com
 
-有人会认为，这三个因素，尤其是教皇事实上的祝福，应该促使辉瑞宣扬、至少强烈捍卫 HEK293 细胞系的使用，这可作为人类胎儿组织研究带来的科学进步的另一个光辉典范。
+在接受中国共产党管理的媒体机构的独家采访时，袁[断言](https://island.lk/lankas-malik-peiris-shares-chinas-nobel-prize-of-usd-1-mn-with-yuen/)：“这不仅是在中共国最重要的奖项之一，也是国际上最重要的奖项之一。”
 
-HEK293 的获得在各个方面上的残暴细节（直到最近，很大程度上都没有公开）解释了该公司的深切不安。与近半个世纪以来的误传和混淆相反，HEK293 的生产并非如常人所理解的那样来自“堕胎”。
+Peiris 的研究受到奖项评审员的称赞，称其在追踪 COVID-19 起源方面发挥了不可或缺的作用，评审员王晓东指出，“由于他们的贡献，中共国科学家能够快速确定中共病毒（COVID-19）大流行的原因。” 很显然，港大的这项研究支持了中国共产党的[虚假](https://thenationalpulse.com/exclusive/wuhan-lab-erases-nih-ties-gof-research/)叙述，即 COVID-19 是自然形成的，而不是从实验室逃逸出来的。
 
-最近的一项进展证实了这一点。
+正如《环球时报》所解释的那样，Peiris 的研究有助于“支持 SARS-CoV-2 的蝙蝠起源”：
 
-八月，匹兹堡大学做出了一项可怕坦白。医学进步中心在该大学对《信息自由法案》问询回应之前不得不寻求“司法观察”的帮助，该中心解释说学校的 GUDMAP 计划（全名：泌尿生殖系统发展分子解剖学项目），在地区的“计划生育组织”堕胎提供者的帮助下，“允许一些具有生存能力的婴儿活着面世，然后通过切掉他们的肾脏来杀死他们。”
+当被问及他们的发现如何影响人们对 COVID-19 病因的理解时，袁解释说，由于他和他的团队在 2005 年发现马蹄蝠是 SARS-CoV-1 的天然动物宿主（祖先），他们认为 SARS- CoV-2 “在跳入人类之前，也从蝙蝠传播到了另一种哺乳动物。”
 
-阅读这篇文章的任何人肯定同意，一旦婴儿活着分娩，杀死它就不应被视为堕胎。杀死一个活生生的分娩婴儿是教科书般的杀婴行为。
+此外，SARS-CoV-2 在蝙蝠和人类肠道器官中复制得很好，这进一步支持了 SARS-CoV-2 的蝙蝠起源，他说。
 
-匹兹堡大学的研究人员和“计划生育组织”不得不借助于这种可怕的屠杀，因为这是获取某些可用身体器官（尤其是肾脏）的最佳方式，也可能是唯一方法。获取有活力的肾脏需要持续的血流，这需要心脏持续跳动，这反过来又要求做肾脏移除时，婴儿在子宫外还是活着的（或至少几乎都要是活着的）。
+（文章仅代表作者观点与GNEWS无关）
 
-HEK293 细胞系创建于 1970 年代初期。在匹兹堡大学坦白前几个月，一位非常有洞察力和尽责的作家安娜玛丽亚·卡迪纳利 ( AnnaMaria Cardinalli ) 在 1 月份的《危机杂志》(Crisis Magazine) 上详细说明了其起源的该死真相：
+**新闻来源：**[thenationalpulse][Lancet COVID Origins Investigator Wins $1 Million Chinese Prize For Claiming Virus Developed Naturally.](https://thenationalpulse.com/exclusive/lancet-covid-investigator-wins-china-nobel-prize/) | 作者：Natalie Winters｜发布时间：2021年10月20日
 
-…要获得一个有活力的胚胎肾，必须将足够健康且肾脏发育充分的足够大的孩子，活着从子宫中取出（通常是通过剖腹产手术方式），然后切掉他们的肾脏。这必须在没有对孩子进行麻醉的情况下进行，否则会降低器官的活​​力。
+* * *
 
-… 对一个不想要的孩子的故意杀害（ HEK 293 案例是一个小女孩）以这种残酷方式发生，就是为了获取她的器官进行研究。摘取她的器官是她死亡的直接原因，在此之前，她是一个子宫外的活着的孩子。
+*发稿：信心的选择*
 
-卡迪纳利女士在电子邮件采访中表示，根据她自己与医学专家的讨论和“理性判断”，在她看来，“我们真正谈论的是明显的杀婴，而不是堕胎。” 在她的文章中，她还表示她担心“教皇方济各和退位教皇本笃十六世在接种疫苗时，可能不知道这些信息。”
-
-自 HEK293 发明以来的几十年里，两位最直接参与的科学家，亚历克斯·范德埃布（ Alex van der Eb ）博士和富兰克林·格雷厄姆（ Franklin Graham ）博士在解释该细胞系的起源时一直含糊其辞。
-
-在 2006 年 FDA 会议（第 81 页）的抄本草稿中可见，范德埃布博士声称“胎儿的肾脏可能是在 1972 年获得的。确切的数据已经不得而知。据我所知，胎儿是完全正常的。没有任何问题。我不知道堕胎的原因。我当时可能知道情况，但它丢失了，所有这些信息都没了。”
-
-格雷厄姆说：“ HEK293 胎儿细胞的确切来源不清楚。它们可能来自一个自然流产或选择性堕胎。”
-
-卡迪纳利在写她的文章时并不知道格雷厄姆可能的“流产”猜测，她断言“自然流产不可能导致 HEK293 细胞系（因为肾脏不能在短暂的摘取窗口期后仍然保持活力）。” 格雷厄姆博士对一些看似不可能的事情进行了推测，这令人深思。
-
-无论两位科学家的记忆力能否有所提高，都很难想象，他们如何能把自己的工作描述为与卡迪纳利所描述的，以及匹兹堡大学的声明所证实的内容不同的东西。
-
-当然，欢迎他们尝试（编造）。
-
-与此同时，一个雇主或政府实体基于一种靠杀婴获得的疫苗，试图强迫个人接种，否则就失去工作或丧失其他权利，这是丝毫不可理喻的。
-
-【本文仅代表作者个人观点，与Gnews 无关】
-
-原文链接：[https://www.thegatewaypundit.com/2021/10/exclusive-pfizers-nervousness-covid-vaccines-origins-conceals-horror-story/](https://www.thegatewaypundit.com/2021/10/exclusive-pfizers-nervousness-covid-vaccines-origins-conceals-horror-story/)
-
-翻译：JS709｜校对：Nick｜编辑&发布：黎明的光芒
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)

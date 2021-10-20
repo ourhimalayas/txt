@@ -2,44 +2,45 @@
 ---
 
 
-## 中共派杀手押马云赴西班牙进行国家级操纵股市刑事诈骗
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1606467/)
+## 官方称欧金中拒捕并自杀身亡 网友质疑
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1606570/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1409180658462039-594x359_副本.jpg)
-据郭文贵先生2021年10月20日大直播——
+作者：纽约香草山文艺部 – 宁文静
 
-现在跟着马云的人是多少人呢？大家记住我今天说的话，看我直播的人，跟着马云在西班牙的20个人来自中国政府，7个是中国的公安部一局还有国家安全部的警察，全是杀手级的、持武器的，所有这些人都是假名，跟当年的海航的王健去普罗旺斯是一个情况，当时的裴楠楠是用的假护照，现在是中央警卫局和公安部的经济侦察局和政保局的杀手级的特警用假身份，但他们是国家公务员，他是中国的军人，用假护照到任何国家都是非法的。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-大家记住我这话，Rachel听懂了吗？他在任何国家，我们现在有任何老百姓都可以抓捕他，这20个人对马云实施的是一种逮捕和绑架，因为马云家里的母亲、岳父、妻子、儿子还有亲戚28个人是被共产党拘押状态，让马云到香港去处理资产。
 
-然后马云飞往西班牙是10月14号申请的，申请的理由是西班牙卖掉自己的游艇和卖掉自己岛上的三大块地，还有在那里必须亲自到西班牙签名的几个控股公司。
 
-两架飞机到了西班牙，我请告诉大家，你们去查一查谁先爆出马云飞西班牙的，这个网站一定是共产党，第一个这两架飞机怎么飞的？告诉我是什么飞行记录，你怎么知道是飞这个岛？你怎么知道他坐的游艇？为什么你知道信息？这不是记者干的，这是情报机构干的。
 
-干的是什么？为什么这么干知道吗？两个目的，让马云到西班牙在绑架状态的情况下去处理自己的物业和资产、游艇，同时放出这个信息是为了抬高整个阿里巴巴上市的股价，抬高之后共产党让马云马上将自己代持和自己股票出手。这是公开的共产党国家级的操纵股市刑事诈骗。
 
-记住啊！所有全世界的金融机构记住郭文贵今天说的话！10月20号中国共产党和马云在绑架马云28个人和他21个高管的全部家人，20个中国的警察和中纪委、政府官员，包括人民银行，20个人里面7个是来自警察、特警，另外的来自中纪委，还有来自中国的所有人民银行，这些国家政府高官们隐藏公务身份到西班牙去操纵海外媒体，炒作、抬高阿里巴巴的股价，这是公开的国际的刑事操作和犯罪，大家听懂我意思了吗？这是我说的第二个重点。
+据大陆[搜狐网](https://m.sohu.com/a/495799157_180220/?pvid=000115_3w_a)18日的报道，当日莆田市公安局秀屿分局发出通报，一周前发生两死三伤的恶性杀人案件嫌疑人欧金中，拒捕并畏罪自杀，经抢救无效死亡。
 
-（以下暂略）
+网友质疑之前有消息称欧已被警方抓获，为什么几个小时后就变成畏罪自杀？为什么不在逃亡的数天内，从容了断？这些问题，恐怕永远成了谜。
 
-视频协作：天边小面包
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1255-希望之声.jpg)[图片来源](https://www.bannedbook.org/bnews/comments/20211019/1640424.html): bannedbook.org（希望之声制图）
 
-撰稿：喜马拉雅的肉夹馍
+欧金中一怒行凶，理应接受法律的制裁。但即刻死，与经过法庭审判后再死，有着天壤之别。我们只能猜测，欧苟活了七天，原本可能希望有机会申诉自己多年遭受恶邻欺压，指责警方、媒体、信访部门不作为，最后再认罪伏法。死罪难逃，中间审理的过程就显得很多余，不如免掉法院审判的环节，节省公共资源，也立刻堵上悠悠众口。
 
-审核：喜马拉雅的馍夹肉
+欧金中死了，担心该案件继续引起社会强烈反响的中共当局松了一口气。不出三天，这件事就会消失得无影无踪。就像杨改兰，如果没有郭先生一直耿耿于怀的提醒，又有几个人能记得她呢？只有灭掉共产党，重建法治民主保障型社会体系，这些小人物才有生路。
 
-校对：Maarago
+（本文仅代表作者观点）
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+编辑/校对/发稿：小鹿
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+**更多资讯，更多关注**
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
