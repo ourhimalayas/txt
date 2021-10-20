@@ -2,34 +2,49 @@
 ---
 
 
-## 马云在处理的财产大概三千多笔,蔡崇信洗掉马去75%的钱
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1606523/)
+## 华盛顿州立大学橄榄球主教练因拒绝接种疫苗被解雇
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1606593/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/7617-icqznha8812694_副本.jpg)
-据郭文贵先生2021年10月20日大直播——
+作者：纽约香草山农场 – 雪梨
 
-我再告诉大家现在马云在干什么，马云处理的资产有涉及多少笔呢？大概3000多笔。在美国最重要的人物大家知道是谁吗？叫蔡崇信，蔡崇信你可以来告我，你不来告我你是王八蛋，就买了洋基队的美国的最牛的所谓来自台湾的蔡崇信，蔡崇信买的洋基队的钱几十亿美元的钱，还有刚刚的在我对面就纽约的Central Park220号——最牛的、全曼哈顿最贵的房子，对面是15号，是当年的海航买的，还有对面157号是王岐山买的，已经都卖完了。这个上面最顶楼5楼，5层最高2.5亿美元成交的是马云的房子，不是蔡崇信的，现在要求全部都得卖掉。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-蔡崇信所有持有的财富75%都是马云的，这涉及到什么都知道了吗？大家知道什么意思吗？微蓝知道吗？这叫洗钱，这叫洗钱，不如实地在美国政府、税务局和在美国交易当中如实披露最终受益人这是洗钱，蔡崇信涉嫌洗钱，蔡崇信洗掉了马云的75%的钱。
 
-视频协作：天边小面包
 
-撰稿：喜马拉雅的肉夹馍
 
-审核：喜马拉雅的馍夹肉
 
-校对：Maarago
+周一，华盛顿州立大学体育总监帕特·春和校长柯克·舒尔茨在新闻发布会上宣布，因未按照州政府规定的、于本周一前完成新冠疫苗接种，该校橄榄球主教练尼克·罗洛维奇，及四名助理教练被解雇。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1256-1.jpg)图片来源：[lifesitenews.com](https://www.lifesitenews.com/news/major-university-fires-head-football-coach-over-vax-refusal-after-rejecting-exemption-request/?utm_source=top_news&amp;utm_campaign=usa)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+据悉，罗洛维奇年薪超过300万美元，是工资最高的州政府雇员，合同预计到2025年结束。7月，他曾发表推文，明确表示不会接种疫苗；并于10月9日提交宗教豁免申请，但遭到拒绝。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+本月12日，因拒绝接种疫苗，NBA球星凯里·欧文被篮网队禁赛，引发球迷和媒体的广泛关注和讨论。虽完成疫苗接种，美国加州佐治亚大学体育专业学生肖恩·库恩，仍感染新冠病毒，并于近期去世。且因接种毒针疫苗，导致病毒感染，甚至死亡的案例层出不穷。如果政府继续强制执行接种令，欧文等体育界有影响力人物的挺身而出，将激发更多的人探究和了解疫苗真相。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+（本文仅代表作者观点）
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+**参考阅读：**
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+1. [Head football coach at Washington State University denied religious exemption for COVID shot, gets fired – LifeSite (lifesitenews.com)](https://www.lifesitenews.com/news/major-university-fires-head-football-coach-over-vax-refusal-after-rejecting-exemption-request/?utm_source=top_news&amp;utm_campaign=usa)
+2. [Washington State fires football coach Nick Rolovich, 4 assistants for refusing state-mandated COVID-19 vaccine (espn.com)](https://www.espn.com/college-football/story/_/id/32426315/nick-rolovich-washington-state-football-coach-refusing-state-mandated-covid-19-vaccine-source-says)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+
+校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

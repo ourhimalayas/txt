@@ -2,17 +2,27 @@
 ---
 
 
-## 文贵焦点10/20 喜币将成为世界金融回归真正货币职能的唯一性虚拟币
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1606324/)
+## GTV新闻访谈简报|2021年10月20日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1606349/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/WhatsApp-Image-2021-10-20-at-9.22.16-AM.jpeg)ttutu’p图片
-全球金融体系正面临颠覆性大变局，万众瞩目的喜币即将上市，这个高度创意的金融工具引起无数争议和猜想。核心创意人，新中国联邦创始人郭文贵先生就此给公众进行了深入浅出的分享。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
 
-文贵先生和大直播的几位嘉宾从最基本的定义和概念着手轻松地进行了探讨。什么是法币，什么是货币；什么是暗网，什么是深网；什么是去中心化，什么是非中心化…非常通俗易懂地阐述了喜币和同类项产品、工具的本质不同。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-20.png)
+文章仅代表作者本人观点，与Gnews无关
 
-喜币不仅仅是可衡量、可查询、可交易、可流通的加密货币。更重要的是：只要在第一天实现一件商品交易，买到一张俱乐部卡，就意味着，它在诞生之日起就空前地成为广域货币。必将深刻地影响世界的经济金融生活。
+视频参看：2021.10.20早GTV新闻访谈
 
-【原文链接】https://gtv.org/broadcast/watch/61700c08304e992109b806ef
+[https://gtv.org/broadcast/watch/61700bf7304e992109b806dc](https://gtv.org/broadcast/watch/61700bf7304e992109b806dc)
 
-校对发布：Shifter
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

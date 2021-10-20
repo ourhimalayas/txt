@@ -2,22 +2,24 @@
 ---
 
 
-## 疫苗接种者因其免疫系统受损恐难对抗呼吸道病毒威胁
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1606274/)
+## 美国国土安全部部长马约卡斯新冠检测结果呈阳性
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1606325/)
 
-采编：风云小哥     编撰：文明(添草灭共)
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/10/下载-6-edited.jpg)图片来源：网络
+当地时间10月19日，美国国土安全部新闻发言人表示，部长马约卡斯在当天早间的新冠检测结果呈阳性。
+据报道，马约卡斯已经接种了新冠疫苗，目前症状较轻。他将根据疾控中心指导意见，立即进行隔离并居家办公。密切接触者追踪程序正在进行中。
+此外，马约卡斯原定将与美国国务卿布林肯一道前往哥伦比亚，目前该行程已经取消。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/d-edited.png)图片来源：thegatewaypundit
+另据报道，美国土安全部长检测阳性， 日前曾无口罩站拜登身边。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-29.jpg)
+**评：疫苗从最初开始的预防感染，到预防重症，再到预防死亡，进而发展到几个月之后又要打加强针。从前国务卿鲍威尔的死亡到现任国土安全部长马约卡斯的感染病毒，再次戳破了疫苗谎言**。为了您自己和家人的健康，请拒绝疫苗。并关注Gnews，G-TV & Gettr。
 
+文章和来源：[https://www.usnews.com/news/us/articles/2021-10-19/us-homeland-security-secretary-tests-positive-for-covid-19-media](https://www.usnews.com/news/us/articles/2021-10-19/us-homeland-security-secretary-tests-positive-for-covid-19-media)
 
-据【网关专家】10月19日报道，来自美国医疗前线的斯特拉医生最近接受该媒体采访时提出警告：由于接种“新冠病毒疫苗”后，群体的免疫系统将极有可能遭到破坏，无法充分抵抗呼吸道类病毒，而需要使用“羟氯喹”和“维生素”来度过这个冬季。并认为，由于该疫苗对人体RNA进行重新编码来永久持续产生刺突蛋白，因此人体免疫系统在其刺激下不断去对抗该恶性物质，自然免疫力经长期消耗会越来越弱直至完全丧失。
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
 
-此前斯特拉医生曾在2020年宣布了“羟氯喹”可以有效防治冠状病毒，但该言论却遭到主流媒体与大型医药公司的强力打压。对此，该医生表示：新冠病毒疫情犹如“特洛伊木马”，目的是为了强制人们接种破坏人体自然免疫力的疫苗，并用全球医疗暴政取代自由意志。而大规模的盲从必将导致大规模的种族灭绝！
+编辑/发布：LILY
 
-（以上内容仅代表原文信息和作者个人观点）
-
-* * *
-
-校对，编辑，发稿：硫酸羟氯喹64
-
-[原文链接：](https://www.thegatewaypundit.com/2021/10/exclusive-dr-stella-immanuel-vaccinated-must-medicate-hydroxychloroquine-vitamins-survive-winter-wild-virus-video/)
+20211020
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)

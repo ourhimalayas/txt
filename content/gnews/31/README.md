@@ -2,26 +2,35 @@
 ---
 
 
-## 中共许下的谎言
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1606106/)
+## 航运拥堵加剧 全球面临供应链危机
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1606155/)
 
-作者：东京樱花团｜ 阿恩
-![](https://lh3.googleusercontent.com/1LTXF8Rq7jz7qaEEkHHVmdQKjwHe-7PRrXkuBIKrSy1KJ5FukaxTjYJ8f_aJ4p2UmJSEuo82O2zNKsULTjsRJ9TeDcyEL8volo59rnhyn8CcrIBdXMCXRYFmm0sCZReFj7UF91AO=s1600)
-[图片来源](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/690760/%E5%85%AC%E5%B1%8B%E4%B8%89%E5%B9%B4%E4%B8%8A%E6%A8%93%E7%84%A1%E6%9C%9F-%E9%99%B3%E5%B8%86%E6%8C%87%E7%9B%AE%E6%A8%99%E7%84%A1%E8%AE%8A%E6%83%9F%E6%96%99%E9%81%94%E6%A8%99%E9%9C%80%E6%99%82-%E6%9C%80%E5%A4%9A20%E5%B9%B4%E5%8F%AF%E5%81%9A%E5%88%B0)
+作者：宁文静
 
-十多年前的香港，经济繁荣社会稳定人民富庶楼价适中，香港人的置业欲强烈，私楼和居屋（港府的福利房）的售卖热火朝天；基层市民对公屋的选择也有更多的要求，大部分人选择轮候市区的公屋（港府的廉租房），太旧的公屋和凶宅空置率较高，如果选择轮候新界的公屋，等候的时间一般在3年左右。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-随着热钱不断进入香港的楼市，私楼的价格飙升，带动居屋价格一路攀升，香港人辛苦工作多年预备首付，却发现薪资根本追不上楼价的升幅，许多香港人，尤其是年轻人退出置业大军，进入轮候公屋的行列，很多单身年轻人也未雨绸缪毕业就申请公屋，虽然单身人士等候的时间长达十年之久，但这几个平方的面积也是有瓦遮头的保障。
 
-中共暴政集权香港后，摇旗呐喊要解决港人住房问题，打土豪却将资产划入中共囊中，分田地却全部被中共私有化，旧区重建迫使原居民失去谋生的产业和住宅，农地收回毁原住民良田和家园，绿化带建楼毁生态平衡，湿地改造毁掉生灵……林郑月娥的《施政报告》没有一处是为解决住房问题的，全部的规划和投资都是支持中共的大湾区计划。今年10.1的时候中联办骆惠宁“探访”劏房户，嘘寒问暖誓要拯救港人于水生火热的劏房中。今日运输及房屋局局长陈帆在立法会上指，3年上楼的轮候目标需要十几至二十年才可以做到。
 
-试问人生有多少个二十年，中共最拿手的就是谎言、恐吓和杀人，它用这三招挟制了中国同胞七十年，须知水能载舟也能覆舟，中国同胞应知自己拥有推翻暴政的能力，放眼全球民主国家的人民力量，那个政府不惧怕，这也是中共要高筑防火墙的目的之一。
+根据南加州海洋交易所发布的数据，加州海岸目前约有百艘货船，近百万个装满货物的集装箱在等待卸货，有些船只已经在近海等待了40天之久。美国最主要港口洛杉矶港和长滩港已根据拜登政府指令，于本月14日开启了每周7天、每天24小时的全天候作业，以缓解消费品供应链的紧张局面。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-20-at-9.21.24-PM.png)
+然而，随着万圣节与圣诞节的临近，运送节日货物的船只又会加剧港口的堵塞。这些支付了10倍运费的集装箱货物幸运地躲过了近期中共大规模的限电措施，却遭遇了港口卸货的瓶颈。
 
-反逃犯条例运动中手无寸铁的香港市民已经令中共恐惧，香港人要秉承牺牲者的信念，用不妥协不放弃的行动共同铸就瓦解中共政权的利剑。
+而今，中共病毒让全球制造业陷入困顿，疫苗强制令正在引发各行各业不愿接种的人们努力抗争，社会劳动力严重短缺。过去数十年，全球供应链已经形成了一套完整的分工机制，如今航运物流环节出现了断裂，就会产生蝴蝶效应。最坏的情况还远远没有到来。
+(本文仅代表作者观点)
 
-资料来源：[公屋三年上樓無期　陳帆指目標無變惟料達標需時：最多20年可做到](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/690760/%E5%85%AC%E5%B1%8B%E4%B8%89%E5%B9%B4%E4%B8%8A%E6%A8%93%E7%84%A1%E6%9C%9F-%E9%99%B3%E5%B8%86%E6%8C%87%E7%9B%AE%E6%A8%99%E7%84%A1%E8%AE%8A%E6%83%9F%E6%96%99%E9%81%94%E6%A8%99%E9%9C%80%E6%99%82-%E6%9C%80%E5%A4%9A20%E5%B9%B4%E5%8F%AF%E5%81%9A%E5%88%B0)
+参考链接：[As Many As Half A Million Shipping Containers Could Be Waiting Off Ports Of LA, Long Beach](https://losangeles.cbslocal.com/2021/10/04/shipping-containers-waiting-ports-los-angeles-long-beach/#click=https://t.co/0LjIWlkL6O)
 
-（本文只代表个人观点，与Gnews网站无关）
-*校对：东京樱花团 / 平安卿卿*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：木白 
+编辑：馬可波羅
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
