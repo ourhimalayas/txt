@@ -2,19 +2,45 @@
 ---
 
 
-## 人权活动人士敦促各界抵制2022年北京冬奥会
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1605241/)
+## 美国西南航空公司将于12月起允许未接种疫苗的员工继续工作
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1605286/)
 
-采編：文萊         編譯撰稿：苦尽甜来 (文來）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/抵制冬奧會3.jpg)
-[图片来源](https://www.bbc.com/zhongwen/trad/world-58951668)
+栏目记者/责任编辑：Zion文恩
 
-据加拿大自媒体【后千禧年】10月19日报道，日前在希腊举行的奥运圣火移交给 2022 年北京冬奥会组织者的仪式中，遭到了大量人权活动人士的抗议，并当场展开了一面西藏旗和写着“反种族灭绝”的横幅。
 
-国际西藏组织负责人在雅典对媒体称，世界再次见证了（国际奥委会）的虚伪，奥运火炬正被移交给一个与所有（奥运）理想都相去甚远的东道国政府，以至于人们似乎生活在一种扭曲的现实中。
 
-尽管近年来中共对新疆维吾尔族人执行了種族滅絕、对香港抗议者实施了殘害以及最近与台湾的冲突不断升级，但国际奥委会仍在继续制定让北京举办下一届奥运会的计划。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-编辑校对：硫酸羟氯喹64
 
-[原文链接](https://thepostmillennial.com/human-rights-activists-urge-boycott-of-2022-beijing-winter-olympics-citing-chinas-human-rights-abuses)
+
+当地时间10月19日，美国西南航空公司公布消息称，将从 12 月起，允许已申请宗教或医疗豁免，但尚未获得批准的未接种疫苗员工继续工作，直至申请获批；此外，该公司将允许未接种疫苗且申请豁免遭拒的员工，在适当的防护措施下继续工作，并寻求替代方案。
+
+西南航空公司和属于联邦航空服务承包商，此前曾拥护拜登政府的新冠疫苗接种政策，要求其员工在 12 月 8 日前接种“中共病毒”疫苗，除非他们因医疗或宗教原因获得豁免；豁免遭拒的员工将于11月24日起无薪休假。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-99.jpg)
+由于该强制疫苗接种政策引发员工的普遍反感，西南航空一度出现内部危机——在10月8日至12日期间，大量员工不满强制疫苗接种政策而罢工，导致两千五百多个航班被迫取消。面对内部危机和萧条的市场形势，西南航空最终做出了妥协。
+
+参考链接：
+[Southwest drops plan to put unvaccinated staff on unpaid leave starting in December](https://www.cnbc.com/2021/10/19/southwest-vaccine-mandate-unpaid-leave-exemptions.html)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+新闻访谈终审：Ryan
+编辑/校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

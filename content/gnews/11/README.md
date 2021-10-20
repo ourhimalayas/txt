@@ -2,10 +2,10 @@
 ---
 
 
-## 美国联邦通信委员会（FCC）专员希望对中国无人机制造商大疆进行新的限制审查
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1605269/)
+## NBA 球员接种新冠疫苗后职业生涯受阻，新歌“Let&#8217;s Go Brandon”遭受警告
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1605304/)
 
-作者: 文仁
+栏目记者/责任编辑：AsG諾雅
 
 
 
@@ -13,20 +13,26 @@
 
 
 
-据【路透】华盛顿报道 10 月 19 日 – 美国联邦通信委员会 (FCC) 一名共和党成员周二表示，他希望美国电信监管机构开始对中共国无人机制造商深圳大疆创新科技有限公司实施新的限制措施。大疆应该被加入所谓的“调查名单”，该名单将禁止使用美国普遍服务基金的资金购买其设备。
+The Expose10月19日报道，26岁的 NBA球员布兰登-古德温在接种新冠疫苗后出现血栓问题，导致其赛季提前结束，但NBA警告他保持沉默。
 
-今年 3 月，根据 2019 年旨在保护美国通信网络的法律，美国联邦通信委员会将五家中国公司列为对国家安全构成威胁。它们是华为，中兴通讯，海能达通信、杭州海康威视，和浙江大华科技有限公司。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-107.jpg)
-2019 年 5 月，美国国土安全部警告美国公司注意中共国制造的无人机对公司数据的风险。12月，大疆被美国商务部列入美国政府经济黑名单。2020 年 1 月，美国内政部表示将停飞其由约 800 架中共国制造的无人机组成的机队，并早些时候停止了内政部对此类无人机的额外采购。FCC 官员说“大疆无人机和这些系统上的监控技术正在收集大量敏感数据——从关键基础设施的高分辨率图像到面部识别技术和可以测量个人体温和心率的远程传感器”，联邦通信委员会与国家安全机构协商后还应该考虑是否有其它实体需要进行更严格的审查。
+在游戏视频平台Twitch上发布的一段视频中，古德温表示，接种疫苗后不久，就开始出现持续的背部疼痛，他在比赛中感到非常疲惫，而且从未完全康复。医生诊断是血栓导致的，这一切都发生在一个月的时间里。接种疫苗之前古德温非常健康，他肯定地说，就是疫苗结束了他的赛季。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-64.jpg)
+古德温本可以成为老鹰队的一个出色的长期合约球员，但打疫苗后，因为需要服用血液稀释剂，他不被允许继续打球，即使在他的健康状况改善后，仍然被球队拒绝重返赛场。
+
+说唱歌手洛萨-亚历山大以他的故事创作了流行新歌“Let’s Go Brandon”，该歌曲在上周末的苹果音乐嘻哈和说唱排行榜上飙升，逼近iTunes上全美嘻哈排名的首位，并且开始在TikTok上疯传，收到了超过50万个赞。但却被TikTok警告含有 “骚扰和欺凌”的“内容违规”而面临被删除的可能。
+
+主流媒体和商业集团对毒疫苗危害的掩盖和压制正在被越来越多民众看到，这些恶行都将在不久的将来被审判。
 
 参考链接：
-[U.S. FCC commissioner wants new restrictions review for Chinese dronemaker DJI](https://www.reuters.com/technology/us-fcc-commissioner-wants-new-restrictions-review-chinese-dronemaker-dji-2021-10-19/)
+1. [NBA Player Who Suffered Blood Clots After Covid-19 Vaccine Said League Told Him to Stay Quiet](https://theexpose.uk/2021/10/19/nba-player-who-suffered-blood-clots-after-covid-19-vaccine-said-league-told-him-to-stay-quiet/)
+2. [TikTok Threatens to Censor ‘Let’s Go Brandon’ Song For “Harassment and Bullying”](https://www.infowars.com/posts/tiktok-threatens-to-censor-lets-go-brandon-song-for-harassment-and-bullying/)
+3. [Ex Atlanta Hawks guard Brandon Goodwin finds new NBA home](https://soaringdownsouth.com/2021/10/17/atlanta-hawks-brandon-goodwin-knicks/)
 
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-新闻访谈终审：Ryan
+新闻访谈终审：鬼五
 编辑/校对/发稿：为真不破20
 
 **更多资讯，更多关注**

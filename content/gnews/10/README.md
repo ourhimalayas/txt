@@ -2,45 +2,24 @@
 ---
 
 
-## 美国西南航空公司将于12月起允许未接种疫苗的员工继续工作
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1605286/)
+## 朝鲜试射潜艇弹道导弹 强势表态核谈判
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1605322/)
 
-栏目记者/责任编辑：Zion文恩
+#### 编译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-51.jpg)图片来源：网络截图
+美联社10月19日首尔报道，朝鲜周二发射了至少一枚弹道导弹，韩国军方说该导弹发射可能是为从潜艇发射所设计的，这可能是朝鲜军方自拜登当上美国总统以来最强势的表现。
 
+这枚导弹发射发生在美国证实重启与朝鲜的核谈判后数小时。这也重点表现出朝鲜在停止外交努力期间在继续扩张其军事能力。
 
+韩国联席主席在一份声明中说他们检测到朝鲜发射了一枚短程导弹而且很可能是从新浦港东部附近的潜艇发射的弹道导弹，军方正在密切分析这次发射。韩国军方说导弹是在海中发射的，但没有说这个发射是在海面上的发射台还是从水下潜艇发射的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+日本军方说最初分析认为朝鲜发射了二枚弹道导弹，日本首相岸田文雄说专家们正在检查是否出自潜水艇。他因此中止了本月为立法选举的造势旅行已回到东京，他要求政府开始修改国家安全战略方案以适应不断增加的来自朝鲜的威胁，包括针对朝鲜军事目标的先发制人的打击能力。
 
+韩国官员们召开了国家安全委员会会议，表达了对此事的“深切的遗憾”。一个强烈的韩国反应可能会激怒朝鲜，在韩国批评朝鲜扩大其常规军事力量时，朝鲜就指责了首尔的虚伪。
 
+联合国秘书长安东尼奥·曼努埃尔对此表示担忧并呼吁朝鲜领导人遵守联合国安理会决议，重启外交努力以维护和平以及实现朝鲜半岛的无核化目标。
 
-当地时间10月19日，美国西南航空公司公布消息称，将从 12 月起，允许已申请宗教或医疗豁免，但尚未获得批准的未接种疫苗员工继续工作，直至申请获批；此外，该公司将允许未接种疫苗且申请豁免遭拒的员工，在适当的防护措施下继续工作，并寻求替代方案。
+美国印太司令说朝鲜最近的导弹发射并不能构成对美国在该地区人员和同盟者的紧迫性威胁。
 
-西南航空公司和属于联邦航空服务承包商，此前曾拥护拜登政府的新冠疫苗接种政策，要求其员工在 12 月 8 日前接种“中共病毒”疫苗，除非他们因医疗或宗教原因获得豁免；豁免遭拒的员工将于11月24日起无薪休假。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-99.jpg)
-由于该强制疫苗接种政策引发员工的普遍反感，西南航空一度出现内部危机——在10月8日至12日期间，大量员工不满强制疫苗接种政策而罢工，导致两千五百多个航班被迫取消。面对内部危机和萧条的市场形势，西南航空最终做出了妥协。
-
-参考链接：
-[Southwest drops plan to put unvaccinated staff on unpaid leave starting in December](https://www.cnbc.com/2021/10/19/southwest-vaccine-mandate-unpaid-leave-exemptions.html)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-新闻访谈终审：Ryan
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+新闻来源： [North Korea tests possible submarine missile amid tensions](https://apnews.com/article/donald-trump-seoul-south-korea-north-korea-joint-chiefs-of-staff-62456fab450ce5bba766a8307cf06af4)

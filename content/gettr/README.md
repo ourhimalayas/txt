@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/20/2021 4:04 AM (UTC)`
+
+10/19/2021 Miles Guo’s GETTR: The US and CCP’s Social Security are different in terms of whether the government is responsible for the losses in the investments, whether all the illnesses are covered, and if the pensions are truly insured. The social security of the Communist China is purely a scam, and the hospitals are the places where patients are murdered, with their money being robbed.<br/><br/>10/19/2021 文贵盖特：中美社保的区别在于政府对赔钱负不负责、是否覆盖所有的疾病以及养老金是否有真正的保险；在中共国，社保就是骗局，而医院是杀人和抢钱的地方！
+![img](https://media.gettr.com/group14/getter/2021/10/20/04/04/b092f6d6-ff77-d340-6f34-9bd541b6f203/out.jpg)
+
+---
+
+`@miles 10/20/2021 4:00 AM (UTC)`
+
+10/19/2021 Miles Guo’s GETTR: Jack Ma has completely lost his freedom even he’s “running around” in Spain; those so-called successful people who has no guts to fight against the CCP by claiming they love and attribute filial piety to their family won’t be better off than Wang Jian, Bo Xilai or Zhou Yongkang; only the NFSC and the Whistleblowers’ Movement can rescue you!<br/>
+![img](https://media.gettr.com/group17/getter/2021/10/20/04/00/88775a6c-17ef-6258-b401-3564d4bba507/out.jpg)
+
+---
+
 `@miles 10/19/2021 3:28 PM (UTC)`
 
 10/18/2021 Miles Guo: Money has its owners - the money that belongs to the Chinese shouldn’t be taken away! In the Communist China, 0.001% or even 0.00001% of the Chinese people possess the same amount of wealth as the remaining 99.999% of the people; There is no one responsible for Bitcoin, which decentralizes responsibilities.<br/><br/>10/18/2021 文贵直播：金钱是有主人的- 属于中国人民的钱不能被他人夺走！在中共国，0.001%甚至0.00001%的人拥有着和剩下99.999%的人同等的财富；比特币没人负责，因为责任被去中心化<br/>
@@ -281,20 +295,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 10/15/2021 Miles Guo’s GETTR: The most crucial thing for the New Federal State of China and the Whistleblowers’ Movement is not to forget about any fellow fighters. I will always strive to make sure the fellow fighters’ contributions get the respect and rewards they deserve, and let them live a better life. The New Federal State of China has given everyone a hope that can be fulfilled within a certain period of time instead of the CCP’s lies such as the so-called “China dream”<br/><br/>10/15/2021 文贵盖特：新中国联邦和爆料革命最重要的是不忘记任何一个战友，文贵会永远努力让战友们的付出得到应有的尊重和回报，让他们过上更好的生活；新中国联邦带给大家能兑现的希望，而非中共所谓“中国梦”的欺骗<br/>
 ![img](https://media.gettr.com/group34/getter/2021/10/15/20/43/d795e309-b702-4209-acea-d49bd29c1837/out.jpg)
-
----
-
-`@miles 10/15/2021 1:40 PM (UTC)`
-
-10月15号：尊敬的战友们好，你们健身了吗？传播疫苗解药，C C P病毒的真相了吗？一切都已经开始！
-![img](https://media.gettr.com/group39/getter/2021/10/15/13/39/2d497f51-9fd9-fcbe-3dbb-64b0adf00945/out.jpg)
-
----
-
-`@miles 10/15/2021 12:19 AM (UTC)`
-
-10月14号：尊敬的战友们好，明天10月15号，没有大直播。17号，星期天上午9点．7哥和战友们继续我们的大直播，一切都已经开始。🔥🔥🔥🌹🌹🌹
-![img](https://media.gettr.com/group29/getter/2021/10/15/00/601fcbdf-bef2-00c1-4857-09c8fb52e4cd/c0bbce8ef2cbac284b9b81e5e01cbe86.jpg)
 
 ---
 
