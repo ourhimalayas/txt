@@ -2,34 +2,25 @@
 ---
 
 
-## 跨党派议员提交法案，抗击中共&#8221;经济霸凌&#8221;
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1604204/)
+## 中共国透过“运动式执法”强化新疆基层统治力
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1604313/)
 
-作者：飞虹
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-105.jpg)（图片来源于本文链接）
+澳大利亚战略政策研究所 (Australian Strategic Policy Institute)周二 (10月19日)发布一份新疆报告，揭露了中共国政府在新疆如何透过“运动式执法”的治理模式来迫害与打压维吾尔人与其他少数民族。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这份报告引用了上千个从新疆泄漏出来的警察报告以及其他官方文件，发现中共国政府在新疆所运用的治理模式，与毛泽东时代推动的“运动式执法”有许多相似之处。报告作者写道，除了之前已揭露的大规模关押与强迫劳动之外，新疆当地居民还会被强迫参与所谓的“政治性剧场”，包含公判大会、揭批、宣示、政令宣导课程以及喊口号。
 
+澳大利亚战略政策研究所的研究员还发现，中共国政府在新疆迫害维吾尔人的过程中，透过推动5种关键政策将共产党的党政系统深入到维吾尔人的生活中。这5个关键政策包含了在社区设置警务室、推动网格化管理、推广访惠聚、建立“三位一体工作机制”以及推动“十户联防”。
 
+研究员在报告中写道：“这些政策赋予了新疆的社区和村干部特殊的权力，让他们可以对居民的行动和情绪进行监控，从而制造令人害怕的氛围。一名维吾尔族青少年在社交媒体上发表关于对生活无望的帖子，就会被认为是对区域稳定造成威胁，也让他成为当地警察的目标。”
 
-10月15日，美国众议院外交事务委员会、亚太小组委员会主席 贝拉 发布一份媒体新闻稿，历数了中共过去十多年来对各国采取“经济报复与胁迫”的例子，将中共的这类行径称为“经济霸凌”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1019-AM-（1-3）.006.jpeg)
-贝拉是来自加州的民主党众议员，她联合密苏里州共和党议员瓦格纳，及其跨党派议员共同提交了名为《反中国经济胁迫法》的法案，并积极推动成立一个跨部门工作组，应对和反抗中共对美国政府、企业、组织和个人的”经济霸凌”。
+消息来源：
 
-近年来，美国国会两院两党议员在涉及新疆、香港、台湾的问题上，已经针对中共暴政陆续推出一系列法案。表明在党派分歧严重的美国国会，对中共政府采取强硬立场已经日益成为两党共识。
-(本文仅代表作者观点)
+[澳智库：中国透过“运动式执法”强化新疆基层统治力](https://www.dw.com/zh/%E6%BE%B3%E6%99%BA%E5%BA%93%E4%B8%AD%E5%9B%BD%E9%80%8F%E8%BF%87%E8%BF%90%E5%8A%A8%E5%BC%8F%E6%89%A7%E6%B3%95%E5%BC%BA%E5%8C%96%E6%96%B0%E7%96%86%E5%9F%BA%E5%B1%82%E7%BB%9F%E6%B2%BB%E5%8A%9B/a-59544446)
 
-参考链接：[美跨党派议员提出对抗中国经济胁迫的法案](https://www.voachinese.com/a/US-congressmen-china-economic-coercion-20211018/6275850.html)
+(文章仅代表作者本人观点，与GNEWS无关)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-新闻访谈终审：文龙
-编辑/校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

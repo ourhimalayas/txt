@@ -2,41 +2,54 @@
 ---
 
 
-## 疫苗全接种的美国土安全部长病毒检测阳性
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1605110/)
+## 除非完全接种疫苗，否则德约科维奇将无缘澳网赛事
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1605122/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+#### 【**雅****典娜快讯】，紧贴时事脉搏**
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/D-1.jpg)thekycker.com
-极力推广疫苗强制接种的拜登内阁，在全接种的情况下有人中招，中共病毒检测呈阳性，他就是奉拜登之命把美国南部边境搞得一团糟的国土安全部长马约卡斯（Mayorkas）。
+#### **编译报导：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-11.jpg)
+图片来源：7 News
 
-《塔克·卡尔森团队》（Team Tucker Carlson）发表文章，题目是，“与拜登会面后几天，国土安全部长马约卡斯在全面接种疫苗情况下，中共病毒检测呈阳性”。
+如果世界排名第一的网球运动员诺瓦克·德约科维奇没有完全接种疫苗，他将不能参加明年的澳网比赛。
 
-全文如下：
+10月20日，维多利亚州移民部长亚历克斯·霍克周三早上证实，任何希望在今年夏天参加澳大利亚比赛的体育明星都需要接种两剂TGA批准的疫苗。
 
-国土安全部周二（10月19日）证实，国土安全部长亚历杭德罗·马约卡斯（Alejandro Mayorkas）中共病毒检测呈阳性——就在他与拜登一起参加活动几天后。
+“我们的健康建议是，当我们开放边境时，每个来到澳大利亚的人都必须接种双重疫苗，”霍克先生告诉媒体。
 
-国土安全部发言人告诉《福克斯新闻》，在周二早上马约卡斯检测呈阳性后，正在进行联系人追踪。
+本周二，州长丹尼尔·安德鲁斯曾表示，未接种疫苗的网球运动员不会获得进入阿德利亚的签证。随即霍克先生发出了直言不讳的信息，如果运动员不接种疫苗将面临隔离（两周），而接种疫苗的球员则不会。
 
-国土安全部发言人说：“马约卡斯部长只经历了轻微的充血，他已经完全接种了疫苗，他将按照CDC指导和医疗建议进行隔离并在家工作。”
+“我认为未接种疫苗的网球运动员不会获得进入这个国家的签证”，他说：“如果他们确实获得了签证，他们可能需要隔离几周，而其他球员则不必。”
 
-这一诊断是在马约卡斯周六（10月16日）与拜登一起出席了在美国国会大厦举行的第40届年度国家和平官员纪念仪式（the 40th Annual National Peace Officers’ Memorial Service）之后作出的，虽然不清楚这两人有怎样的接触，但拜登在活动中提到了马约卡斯的名字。
+“我不认为任何其他（不接种疫苗）网球运动员、高尔夫球手或一级方程式赛车手会获得签证来这里。”
 
-拜登说：“感谢国土安全部长马约卡斯来到这里，感谢你为我们所做的出色工作，非常非常感谢，这是一项艰巨的工作。”
+“疫苗并不关心你的网球排名是多少，或者你赢得了多少个大满贯。对不起，病毒也不在乎。”
 
-此外，活动的图像显示，在户外活动期间，马约卡斯曾一度站在拜登和第一夫人吉尔·拜登的身边，没有戴口罩。
+“职业体育列入是（疫苗）授权工作清单的一部分，运动员必须接种双倍剂量的疫苗。”
 
-最近几个月，拜登政府在处理南部边境危机时，马约卡斯一直备受关注。在7月和8月，遭遇了超过200,000名移民——由于中共病毒的风险，政府一直在有限地使用第42条公共卫生保护措施遣返移民。
+世界排名第一的德约科维奇已连续四次获得澳网冠军，他拒绝透露他是否接种了疫苗。本周早些时候告诉塞尔维亚媒体，这是个人“私事”。
 
-然而，政府因将移民放行到内地而受到批评，他们通常没有进行病毒检测，拜登挑选的海关和边境保护局负责人克里斯·马格纳斯（Chris Magnus）周二（10月19日）告诉立法者，他承诺确保被放行的移民在进入美国之前接受测试。
+“事情就是这样，我仍然不知道我是否会去墨尔本，”德约科维奇说。
 
-（原文完）
+“不会透露我是否接种过疫苗的状态，这是私事，这个询问是不恰当的。”
 
-看你拜登怎样解释，相信内阁成员会有很好的防中共病毒医疗条件，马约卡斯是你的DHS部长，重要内阁成员，是不是要再打几针？继续配合邪恶的阴谋集团，全国强制打5针，从内阁开始！
+“我当然想去，澳大利亚是我最成功的大满贯赛事。我想参加比赛，我热爱这项运动，而且我仍然充满动力。”
 
-（文章仅代表作者个人观点）
+“我正在关注澳网的情况……我相信今年会有很多限制，但我怀疑会有太多变化。”
 
-原文链接：
+在2021年澳网公开赛上，德约科维奇公开批评澳大利亚政府强制运动员隔离两周。
 
-[https://teamtuckercarlson.com/news/fully-vaccinated-dhs-chief-mayorkas-tests-positive-for-covid-days-after-meeting-with-biden/](https://teamtuckercarlson.com/news/fully-vaccinated-dhs-chief-mayorkas-tests-positive-for-covid-days-after-meeting-with-biden/)
+德约科维奇去年感染了新冠病毒，并因举办一场导致其他人感染病毒的派对而受到广泛批评。
+
+(本文仅代表作者个人观点，与Gnews 无关)
+
+原文链接：[Australian Open 2022: Novak Djokovic vaccination stance, not allowed into Australia, tennis news | news.com.au — Australia’s leading news site](https://www.news.com.au/sport/tennis/world-no1-novak-djokovic-wont-be-allowed-to-play-at-australian-open-unless-vaccinated/news-story/2651ce6d7b93feb61adb3995cb203325)
+
+**编辑****/发布：文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
