@@ -2,30 +2,22 @@
 ---
 
 
-## 有声|中共国经济崩溃式下滑
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1606138/)
+## 疫苗接种者因其免疫系统受损恐难对抗呼吸道病毒威胁
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1606274/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-中（共）国经济在7月至9月的季度中比去年同期增长了4.9%，是一年来最慢的速度，比分析师预测的要差。这比前一季度的增长速度要慢得多，当时的增长速度接近8%，这表明复苏正在减弱。
+采编：风云小哥     编撰：文明(添草灭共)
 
-受到电力短缺、Covid-19的爆发、房地产行业的债务危机，和来自中共北京对一些行业的打压……这些正在给中（共）国的经济造成损失。一位专家说，这些情况可能会抑制今年余下时间的增长，不应低估。世界第二大经济体近几个月来面临着一系列挑战。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/d-edited.png)图片来源：thegatewaypundit
 
-另外，中共北京扩大对各行业的最大的公司进行打压，从大科技到游戏到网络再到教育部门……例如：阿里巴巴、腾讯、美团、嘀嘀打车、新东方等。中（共）国一些最大的公司正面临着旨在社会转型的政策遏制。中（共）国政府公布了一个五年计划，表明这种打压将会持续多年。
 
-如图所示，如此激烈的波动幅度，在世界经济史上是非常罕见的。这样失速般的暴跌之后暴涨，之后再度失速般的暴跌，除了显示出其经济完全失去动力，并且各方都对经济前景非常悲观之外。这种曲线波幅，往往预示着该国政府的政权不稳，正在失去对经济的掌控力。
+据【网关专家】10月19日报道，来自美国医疗前线的斯特拉医生最近接受该媒体采访时提出警告：由于接种“新冠病毒疫苗”后，群体的免疫系统将极有可能遭到破坏，无法充分抵抗呼吸道类病毒，而需要使用“羟氯喹”和“维生素”来度过这个冬季。并认为，由于该疫苗对人体RNA进行重新编码来永久持续产生刺突蛋白，因此人体免疫系统在其刺激下不断去对抗该恶性物质，自然免疫力经长期消耗会越来越弱直至完全丧失。
 
-2019年，文贵先生就预告：阿里巴巴马云肯定会完蛋，中（共）国大科技公司肯定会完蛋；中（共）国的房地产业、金融业和保险业肯定会完蛋……现在中（共）国的整个经济环境，完美的印证了这与文贵先生的预测——中（共）国的经济正在逐步崩塌中，无可避免，无可救药。
+此前斯特拉医生曾在2020年宣布了“羟氯喹”可以有效防治冠状病毒，但该言论却遭到主流媒体与大型医药公司的强力打压。对此，该医生表示：新冠病毒疫情犹如“特洛伊木马”，目的是为了强制人们接种破坏人体自然免疫力的疫苗，并用全球医疗暴政取代自由意志。而大规模的盲从必将导致大规模的种族灭绝！
 
-文字版原文：[中共国经济崩溃式下滑](https://gnews.org/zh-hans/1603680/)
+（以上内容仅代表原文信息和作者个人观点）
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
+
+校对，编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://www.thegatewaypundit.com/2021/10/exclusive-dr-stella-immanuel-vaccinated-must-medicate-hydroxychloroquine-vitamins-survive-winter-wild-virus-video/)

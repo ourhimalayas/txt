@@ -2,49 +2,42 @@
 ---
 
 
-## 华盛顿州立大学橄榄球主教练因拒绝接种疫苗被解雇
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1606593/)
+## 郭文贵直播摘要和音频 2021.10.20
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1606642/)
 
-作者：纽约香草山农场 – 雪梨
+摘要撰稿人： 文俊
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
-
-
+音频提供者：左媛
 
 
-
-周一，华盛顿州立大学体育总监帕特·春和校长柯克·舒尔茨在新闻发布会上宣布，因未按照州政府规定的、于本周一前完成新冠疫苗接种，该校橄榄球主教练尼克·罗洛维奇，及四名助理教练被解雇。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1256-1.jpg)图片来源：[lifesitenews.com](https://www.lifesitenews.com/news/major-university-fires-head-football-coach-over-vax-refusal-after-rejecting-exemption-request/?utm_source=top_news&amp;utm_campaign=usa)
-
-据悉，罗洛维奇年薪超过300万美元，是工资最高的州政府雇员，合同预计到2025年结束。7月，他曾发表推文，明确表示不会接种疫苗；并于10月9日提交宗教豁免申请，但遭到拒绝。
-
-本月12日，因拒绝接种疫苗，NBA球星凯里·欧文被篮网队禁赛，引发球迷和媒体的广泛关注和讨论。虽完成疫苗接种，美国加州佐治亚大学体育专业学生肖恩·库恩，仍感染新冠病毒，并于近期去世。且因接种毒针疫苗，导致病毒感染，甚至死亡的案例层出不穷。如果政府继续强制执行接种令，欧文等体育界有影响力人物的挺身而出，将激发更多的人探究和了解疫苗真相。
-
-（本文仅代表作者观点）
-
-**参考阅读：**
-
-1. [Head football coach at Washington State University denied religious exemption for COVID shot, gets fired – LifeSite (lifesitenews.com)](https://www.lifesitenews.com/news/major-university-fires-head-football-coach-over-vax-refusal-after-rejecting-exemption-request/?utm_source=top_news&amp;utm_campaign=usa)
-2. [Washington State fires football coach Nick Rolovich, 4 assistants for refusing state-mandated COVID-19 vaccine (espn.com)](https://www.espn.com/college-football/story/_/id/32426315/nick-rolovich-washington-state-football-coach-refusing-state-mandated-covid-19-vaccine-source-says)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-20-at-2.19.13-PM.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+### 视频：
 
-校对/发稿：小鹿
+[视频链接：](https://gtv.org/video/id=61700c08304e992109b806ee)
 
+### 音频：
 
+### 摘要：
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+1. 10·17大直播影响，堪比 419，核弹级别
+2. 去中心化，就是去中间代理人
+3. 法币是特定区域 强迫你使用 代表你劳动力 不承诺任何金银兑现承诺
+4. 比特币是技术去中心化
+5. 深网6万亿 暗网3万亿 比特币有暗网和深网的市场
+6. 区块链虚拟币就是法币，法币不和金银挂钩，不承诺兑现，有区域性
+7. 货币是可兑现 实物金银挂钩
+8. 喜币和黄金挂钩，随时兑现，没有区域限制。喜币是全人类唯一的真正的虚拟货币
+9. 没有经过第三方，就是去中心化，现金就是最早的去中心化
+10. 比特币是技术去中心化，责任去中心化，不可找 不可查 暗网使用 犯罪 洗钱工具
+11. 喜币恰恰相反，技术去中心化，责任不去中心化，它从第一天就有负责人 就有法人 有公司 有地址 有事你可以找
+12. 喜币 有事实交易 大家会来喜联储开通账户 自己就是银行
+13. 任何一个人 如果拿到喜币某地代理权 那杰克马都不算啥了
+14. 江志成 2020.5月被抓两次 ，马云 2020.3月被抓，他们都是上市公司主席，这些都没有公告，都属于刑事诈骗罪
+15. 马云100%失去自由，20名杀手级特警绑架状态
+16. 共产党正在用，江志成，马云，王健林等1万多个企业家，对西方发动“经济犯罪超限战 ”
+17. 宋平对习说：三马乱华 穷人都爱戴你 但所有的企业界知识界法律界都盼着你死
+18. 20大以前，习要杀一大批人
+19. 所有青蒿素哌喹不在推荐！特别是广东产的青蒿素哌喹 ，战友们不要再使用
+20. 怎么联系?可以通过农场和联盟委联系七哥
