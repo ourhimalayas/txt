@@ -2,26 +2,35 @@
 ---
 
 
-## 美国会再就港疆人权问题举行听证会 加快推进港人避风港法案
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1606108/)
+## 航运拥堵加剧 全球面临供应链危机
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1606155/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/57466043_303-2.jpg)马林诺夫斯基(小图)愿拆细法案以求更快通过保护港人法案 2021年10月20日 © 直播截图
+作者：宁文静
 
-**编辑摘要：**10月19日，美国国会及行政当局中国委员会再就香港和新疆人权问题召开听证会，多名议员均呼吁拜登政府采取更多措施以协助和保障日益受压的港人和维吾尔人，并呼吁国会加快通过为逃离当地人士提供保护的法案。
-
-中国委员会主席、参议员马凯利(Jeff Merkley)在听证会指明，中共国不单只持续打压港人和维吾尔人，更想方设法把在他国寻求保护的相关人士遣返回华，对香港，就是拘捕流亡海外港人或禁止他们离境，期望此次听证会能推动为港、疆受迫害者提供庇护的法案在国会通过。
-
-新闻参考链接：[美国会再就港疆人权问题举行听证会 议员促加快通过港人避风港法案](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211020-%E7%BE%8E%E5%9B%BD%E4%BC%9A%E5%86%8D%E5%B0%B1%E6%B8%AF%E7%96%86%E4%BA%BA%E6%9D%83%E9%97%AE%E9%A2%98%E4%B8%BE%E8%A1%8C%E5%90%AC%E8%AF%81%E4%BC%9A-%E8%AE%AE%E5%91%98%E4%BF%83%E5%8A%A0%E5%BF%AB%E9%80%9A%E8%BF%87%E6%B8%AF%E4%BA%BA%E9%81%BF%E9%A3%8E%E6%B8%AF%E6%B3%95%E6%A1%88)
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+根据南加州海洋交易所发布的数据，加州海岸目前约有百艘货船，近百万个装满货物的集装箱在等待卸货，有些船只已经在近海等待了40天之久。美国最主要港口洛杉矶港和长滩港已根据拜登政府指令，于本月14日开启了每周7天、每天24小时的全天候作业，以缓解消费品供应链的紧张局面。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-20-at-9.21.24-PM.png)
+然而，随着万圣节与圣诞节的临近，运送节日货物的船只又会加剧港口的堵塞。这些支付了10倍运费的集装箱货物幸运地躲过了近期中共大规模的限电措施，却遭遇了港口卸货的瓶颈。
+
+而今，中共病毒让全球制造业陷入困顿，疫苗强制令正在引发各行各业不愿接种的人们努力抗争，社会劳动力严重短缺。过去数十年，全球供应链已经形成了一套完整的分工机制，如今航运物流环节出现了断裂，就会产生蝴蝶效应。最坏的情况还远远没有到来。
+(本文仅代表作者观点)
+
+参考链接：[As Many As Half A Million Shipping Containers Could Be Waiting Off Ports Of LA, Long Beach](https://losangeles.cbslocal.com/2021/10/04/shipping-containers-waiting-ports-los-angeles-long-beach/#click=https://t.co/0LjIWlkL6O)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：木白 
+编辑：馬可波羅
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
