@@ -2,33 +2,26 @@
 ---
 
 
-## 秘翻在线：数以千计的加州家长参加抗议活动　反对强制给学生接种疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1606078/)
+## 美国会再就港疆人权问题举行听证会 加快推进港人避风港法案
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1606108/)
 
-#### 翻译撰稿：文斗
+![](https://assets.gnews.org/wp-content/uploads/2021/10/57466043_303-2.jpg)马林诺夫斯基(小图)愿拆细法案以求更快通过保护港人法案 2021年10月20日 © 直播截图
 
-数以千计的加州家长、学生和教师周一参加了全州范围的缺课抗议游行，抗议加文·纽森(Gavin Newsom)决定强制所有公立和私立学校的学生接种中共病毒疫苗。
+**编辑摘要：**10月19日，美国国会及行政当局中国委员会再就香港和新疆人权问题召开听证会，多名议员均呼吁拜登政府采取更多措施以协助和保障日益受压的港人和维吾尔人，并呼吁国会加快通过为逃离当地人士提供保护的法案。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/as46df465sa1g561tr56h1ytj56j.png)2021年10月18日，亨廷顿海滩码头抗议现场。(图片来源：Vanessa Serna/The Epoch Times)
+中国委员会主席、参议员马凯利(Jeff Merkley)在听证会指明，中共国不单只持续打压港人和维吾尔人，更想方设法把在他国寻求保护的相关人士遣返回华，对香港，就是拘捕流亡海外港人或禁止他们离境，期望此次听证会能推动为港、疆受迫害者提供庇护的法案在国会通过。
 
-民主党人纽森本月早些时候宣布，一旦疫苗获得联邦食品和药物管理局(FDA)的全面批准，将对7至12年级的学童进行疫苗接种，使加州成为第一个实施此类要求的州。
+新闻参考链接：[美国会再就港疆人权问题举行听证会 议员促加快通过港人避风港法案](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211020-%E7%BE%8E%E5%9B%BD%E4%BC%9A%E5%86%8D%E5%B0%B1%E6%B8%AF%E7%96%86%E4%BA%BA%E6%9D%83%E9%97%AE%E9%A2%98%E4%B8%BE%E8%A1%8C%E5%90%AC%E8%AF%81%E4%BC%9A-%E8%AE%AE%E5%91%98%E4%BF%83%E5%8A%A0%E5%BF%AB%E9%80%9A%E8%BF%87%E6%B8%AF%E4%BA%BA%E9%81%BF%E9%A3%8E%E6%B8%AF%E6%B3%95%E6%A1%88)
 
-到目前为止，FDA只对12至15岁的人给予紧急授权，纽森的最新疫苗要求预计将于2022年1月或2022学年开始时生效。
+* * *
 
-反对这些措施的加利福尼亚人蜂拥到加州国会大厦的台阶上，举着写有“我的身体，我的选择 ”和“我的孩子不会接受科学实验来让你感觉安全 ”的标牌。
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-全州许多家长让他们的孩子离开学校参加集会，希望他们的缺课能向州政府官员传递一个信息。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-萨克拉门托一位母亲，32岁的肯德尔·拉默(Kendall Ramer)告诉美联社，她让她的两个孩子离开小学去参加集会，并补充说，一旦纽森的疫苗授权生效，她和她的丈夫计划转为在家教育。
 
-她说：“每个人都应该能够做出自己的选择，选择对他们有利的东西。”
+编辑：【英国伦敦喜庄园编辑部】
 
-洛杉矶联合学区雇员霍维克·萨蓬吉安（Hovik Saponghian）告诉SkyFOX（媒体），学童不应该被强迫“在没有完整数据的情况下注射什么东西”。
-
-“我在这里抗议这项命令，因为我们不认为我们应该在宗教上、伦理上或道德上接受它”，萨蓬吉安说。
-
-洛杉矶联合学区（LAUSD）、Placentia Yorba Linda联合学区（PYLUSD）等地的家长也参与抗议，抗议意见基本围绕人们需要选择权以及疫苗安全性的顾虑。
-
-纽森强制要求学童接种 COVID-19 疫苗的计划收到了不同的回应，西弗吉尼亚州州长吉姆·贾斯特斯 (Jim Justice)在10月3日宣布，他绝不可能做同样的事情。
-
-新闻来源：[**Thousands of California Parents Join in Statewide Walkout Against Vaccine Mandate for Students**](https://www.ntd.com/thousands-of-california-parents-join-in-statewide-walkout-against-vaccine-mandate-for-students_690513.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

@@ -2,33 +2,37 @@
 ---
 
 
-## 郭文贵先生倾力打造灭共单曲《沧海一声啸》
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1606357/)
+## 日本要闻汇编
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1606394/)
 
-作者：AlexZ
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-纽约当地时间10月16日下午5时左右，郭文贵先生携手三位音乐制作人唐平、威廉王、QMay再次走进录音棚，共同打造灭共单曲《沧海一声啸》。同时，郭先生也在GTV直播上与战友们分享了歌曲录制的整个过程。
+#### 素材：东京樱花团｜GNEWS组
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-14.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2020日本.png)[*图片来源*](https://s.wsj.net/public/resources/images/S1-FP509_asiavi_M_20200406075833.jpg)
 
-事实上，《沧海一声啸》是2020年中共病毒大爆发期间，由唐平、威廉王为郭先生创作的第一支个人单曲。歌曲当时在网络上一经发布，随即在中共国内产生了巨大反响。为此，中共曾一度封杀该曲。此次郭先生与三位音乐人再度联手，为这首歌曲注入新的力量。
+**10月20日汇编**
 
-众所周知，郭先生的另外七支灭共单曲广受全球战友的喜爱与支持，在今年8月几经霸屏多国iTunes排行榜榜首。相信郭先生这次倾力打造的全新版《沧海一声啸》势必在全球音乐榜上掀起一股新的灭共浪潮。
+1、[**选战聚焦医疗和重振经济 探讨能源政策**](https://china.kyodonews.net/news/2021/10/7571b7935ffa--.html)
 
-(本文仅代表作者观点)
+共同社20日消息，日本众院选举的政策讨论中，构建能应对新冠疫情的医疗体制、重振因疫情受挫的经济成为焦点。各党围绕“增长与分配”展开论战。朝着实现去碳化社会，包括核电站应有模式在内的能源政策也受到考验。
 
-参考链接：[2021-10-16 揭秘摇滚巨星郭文贵先生与新中国联邦战友们现场录音实况](https://gtv.org/video/id=616b32f0304e992109b5fdbc)
+2、[**日本电产EV专用马达畅销 中国10款车采用**](https://china.kyodonews.net/news/2021/10/2a1470bfeb0c-ev-10.html)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+日本电产公司面向电动汽车（EV）的驱动马达E-Axle订单正在增加。E-Axle是实现马达和齿轮等一体化的驱动系统。日本电产14日发布消息称，中国大型车企的高端汽车决定采用等，搭载该产品的EV在中国达到共计10款。
 
-总编：Irene木木 
-编辑：Irene木木
-校正/发稿：谐趣园
+3、[**对日本印象“不好”的中国人升至66%**](https://china.kyodonews.net/news/2021/10/70b859022627-66.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+日本民间非营利团体“言论NPO”和中国国际出版集团20日公布了在两国实施的联合民意调查结果。其中回答对日本印象“不好”的中国人较去年上升13.2个百分点至66.1%，出现了恶化。言论NPO称原因是美中对立激化和历史问题等。对中国印象“不好”的日本人增加1.2个百分点至90.9%。约半数列举的理由是中国公务船驶入尖阁诸岛（中国称钓鱼岛）附近。
+
+4、[**谷歌推出自研芯片的新款智能手机**](https://china.kyodonews.net/news/2021/10/ce6bcb8f655b-28.html)
+
+据共同社消息，美国谷歌的日本法人将于28日推出自家品牌的新款智能手机“Pixel 6”和“Pixel 6 Pro”。其特点是谷歌首次自主研发的作为智能手机大脑的半导体芯片。使用人工智能（AI）的翻译和摄像头功能也得到加强。
+
+5、[**四艘中国公务船一度驶入尖阁日本领海**](https://china.kyodonews.net/news/2021/10/f07c84b0d031-4.html)
+
+共同社消息，日本第11管区海上保安总部（那霸）称，20日上午10点前后起，4艘中国海警局船只相继驶入尖阁诸岛（中国称钓鱼岛）附近的日本领海，上午11点35分左右起驶出领海，进入外侧的毗连区。据称，周围没有日本渔船航行。这是继9月19日后再次有中国公务船驶入尖阁附近领海。
+
+（本文只代表个人观点，与Gnews网站无关）
+
+*编辑：东京樱花团 / 文小白
+发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-6.png)
