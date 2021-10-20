@@ -2,33 +2,35 @@
 ---
 
 
-## 加拿大建筑公司拒绝执行疫苗任务
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1606598/)
+## JCCF对安大略省疫苗护照授权发起法律挑战
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1606631/)
 
-作者：Adam Soos
+作者： Dakota Christensen
+
+该[司法中心的宪法自由](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.jccf.ca/) （JCCF）已经对[安大略省的疫苗护照任务](https://www-rebelnews-com.translate.goog/breaking_doug_ford_announces_vaccine_passports_for_on?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)在安大略省高级法院提出了宪法挑战。
+
+法律挑战是代表八名安大略省公民提出的，他们正面临安大略省政府的不公正待遇，他们只是为了行使他们的宪章权利和自由，选择不接种一剂或多剂新冠疫苗。
+
+以下是参加 JCCF 宪法挑战的八名申请人中的四个例子：
+
+- 莎拉·兰姆来自基奇纳。她因第一剂新冠疫苗而遭受严重不良反应，并已决定不接种第二剂。兰姆一直无法获得疫苗护照的豁免。安大略省政府[表示](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;nui=1&amp;u=https://toronto.ctvnews.ca/ontario-confirms-there-are-only-two-valid-medical-exemptions-from-covid-19-vaccines-1.5572833)，只有在极其有限的情况下才会接受疫苗护照的豁免。
+- 莎拉·哈吉是一位拥有护理和公共卫生学位的准妈妈。哈吉担心新冠疫苗可能对她自己和她未出生的孩子产生不利影响，因此她选择不接种疫苗。
+- 埃文·克拉延布林克是一名护理人员，他决定在是否注射新冠疫苗之前，他将等待有关新冠疫苗效果的进一步数据。克拉延布林克 先生也有宗教信仰，即他允许对自己的身体做的事情最终要向上帝负责。
+- 山姆·萨布林是渥太华一名 29 岁的健身房老板。萨布林先生行使他的宪章通过不采取新冠疫苗的身体自主权，同时也拒绝否认顾客进入到基于疫苗接种的状态他的健身房。他毫无歧视地欢迎所有人。
 
 
+所有参加挑战的申请人都担心政府强制接种疫苗会被作为允许他们简单过日常生活的条件。
 
-惠登建设集团首席执行官戴维·惠登发布了一份关于强制接种疫苗的通讯公告，引起了很多人的关注。
+JCCF 的律师豪尔赫·皮内达说： “加拿大最高法院认定， 宪章保护身体自主权和知情同意权，这是法律，这是无可争议的。” “疫苗护照是一种破坏宪章并使其保护变得毫无意义且无耻的企图。”
 
-我们将在下面提供完整的信件供您参考，让您了解内容：
+“安大略疫苗护照本身是一种胁迫工具，迫使个人接受医疗干预，这违背了他们的意愿和他们自己最佳的判断，”皮内达补充道。“这不仅在道德上是错误的，而且也是非法的。当我们到达法院时，我们将敦促他们看到这些疫苗的强制要求，因为他们真正做了什么——这剥夺了公民对自己的医疗保健做出明智决定的长期权利。”
 
-*“在咨询法律顾问后，我们的立场是当前和提议的疫苗强制执行违反了联邦、省和国际层面的法律。因此，在他们经受住加拿大最高法院要求的**“**法律测试**”**之前，*惠登建设集团*不支持也不会遵守目前提出的拟议疫苗授权和**/**或政策。”*
-
-在过去的几个月里，我们已经习惯了公告和新闻稿，因为坏消息主要是针对未接种疫苗的员工或场地人员的。这是少数几家公司公开发表正式声明并拒绝参与疫苗任务之一，直到它们在法庭上得到适当的测试。
-
-惠登先生在信中继续澄清，任何与惠登建设集团签订合同并寻求实施疫苗授权的客户都将对所涉及的任何成本承担财务责任，因为他们将实施合同的重大变更。此外，他坚持认为，任何疫苗护照政策阻止当前或未来工作继续进行的企业都将被追究违反合同的责任。
-
-乍一看，这一切都像是在谈生意。但实际上，这是为保护员工生计而进行的初步抗议。要是有更多的企业如此热衷于维护员工的权利就好了。
-
-來源：[https://www.rebelnews.com/construction\_company\_refusing\_to\_enforce\_vaccine\_mandate](https://www.rebelnews.com/construction_company_refusing_to_enforce_vaccine_mandate)
+來源：[https://www.rebelnews.com/jccf\_launches\_legal\_challenge\_against\_ontario\_vaccine\_passport\_mandate](https://www.rebelnews.com/jccf_launches_legal_challenge_against_ontario_vaccine_passport_mandate)
 
 （文章仅代表作者个人观点）
 
 **免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
 [![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-
 欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
 **关注我们**

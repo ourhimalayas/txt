@@ -2,27 +2,33 @@
 ---
 
 
-## 俄罗斯请求六国协助调查纳粹的种族灭绝行为
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1606326/)
+## 郭文贵先生倾力打造灭共单曲《沧海一声啸》
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1606357/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+作者：AlexZ
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+纽约当地时间10月16日下午5时左右，郭文贵先生携手三位音乐制作人唐平、威廉王、QMay再次走进录音棚，共同打造灭共单曲《沧海一声啸》。同时，郭先生也在GTV直播上与战友们分享了歌曲录制的整个过程。
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/h.jpg)whitespaceonline.org
-美东时间10月20日俄媒报道，俄罗斯总检察院发言人安德烈∙伊万诺夫表示，“俄罗斯已向德国、加拿大、拉脱维亚、波兰、美国和爱沙尼亚发出法律援助请求，以调查二战伟大卫国战争期间纳粹德军对苏联人民的种族灭绝行为。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-14.jpeg)
 
-伊万诺夫强调，“根据《俄罗斯刑事诉讼法》第453条和俄罗斯联邦的国际条约规定，已向德国、加拿大、拉脱维亚、波兰、美国和爱沙尼亚的主管当局发出法律援助请求。”
+事实上，《沧海一声啸》是2020年中共病毒大爆发期间，由唐平、威廉王为郭先生创作的第一支个人单曲。歌曲当时在网络上一经发布，随即在中共国内产生了巨大反响。为此，中共曾一度封杀该曲。此次郭先生与三位音乐人再度联手，为这首歌曲注入新的力量。
 
-他指出，一些国家已经向调查提供了所要求的信息。
+众所周知，郭先生的另外七支灭共单曲广受全球战友的喜爱与支持，在今年8月几经霸屏多国iTunes排行榜榜首。相信郭先生这次倾力打造的全新版《沧海一声啸》势必在全球音乐榜上掀起一股新的灭共浪潮。
 
-伊万诺夫还称，“正在对居住在各国的前纳粹德国军人进行检查，以确认其是否参与了在伟大卫国战争时期对苏联国民的种族大屠杀。”
+(本文仅代表作者观点)
 
-在俄联邦安全局解密了二战期间发生的在叶伊斯克大规模杀害儿童的材料后，俄罗斯于2019年开启了种族灭绝法律草案。这些文件说，纳粹向克拉斯诺达尔地区派出了一支装备有移动毒气室的宪兵队，该宪兵队于1942年10月在一家孤儿院进行了大规模屠杀，214名儿童成为受害者。
+参考链接：[2021-10-16 揭秘摇滚巨星郭文贵先生与新中国联邦战友们现场录音实况](https://gtv.org/video/id=616b32f0304e992109b5fdbc)
 
-居住在安大略省滑铁卢市的党卫军翻译赫尔穆特∙奥伯兰德（Helmut Oberlander）是该案的一名嫌疑人。据俄罗斯调查委员会称，在德国投降后，奥伯兰德设法逃避了初步调查，逃脱了惩罚。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-2020年3月，德国检察院要求俄罗斯当局提供这位前翻译参与大规模谋杀儿童的证据。2021年9月23日，奥伯兰德在面临审判之前就在加拿大去世。
+总编：Irene木木 
+编辑：Irene木木
+校正/发稿：谐趣园
 
-参考链接：
-
-[https://www.rbc.ru/rbcfreenews/616f7b4c9a794718eef826ff](https://www.rbc.ru/rbcfreenews/616f7b4c9a794718eef826ff)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

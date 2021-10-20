@@ -2,37 +2,35 @@
 ---
 
 
-## 中共社保基金实为一千亿，96%给了中共退休干部
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1606342/)
+## 俄克拉荷马州长反对拜登疫苗强制令，称接种是个人自由
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1606392/)
 
-作者：正义的小新
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-文贵先生在18日的直播中谈及了中共国的社保问题。
+【评论：】*最近我们看到了很多关于抵制中共病毒疫苗强制接种的积极消息，例如佛罗里达州的莱昂县（Leon County）因违反了佛州的疫苗护照禁令在10月12日被佛州卫生局罚款350万美元 ；德克萨斯州州长格雷格.阿博特（Greg Abbott）表示在德克萨斯州不得有任何实体对任何个人包括雇员和消费者，也包括那些之前感染病毒后康复的患者采取强制疫苗接种的要求；美国众多议员及工作人员和家人服务伊维菌素治愈中共病毒等。好消息不断，有良知和正义的人正在觉醒。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide8-7.jpeg)
+据《网关专家》记者 Cassandra Fairbanks，2021年10月14日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-396.png)图片源自thegatewaypundit.com
+俄克拉荷马州州长凯文·斯蒂特 (Kevin Stitt) 宣布，他们将把拜登政府告上法庭，原因是他们计划对拥有 100 名以上员工的企业实施疫苗强制接种。
 
-据文贵先生爆料，中共全国社保基金总额，名义上有两千五百亿美元，实则仅余一千亿美元。这当中，有96%的社保金都给了中共的退休党员干部。
+在周四发布的一段视频中，斯蒂特州长表示，“这一行动不仅是联邦政府的越权行为，而且也违反了宪法，接种疫苗与否应该尊重个人选择。”
 
-文贵先生指出，中共退休的党员干部目前大约有1.3亿。也就是说，中国十四亿人中除了中共党员干部的家人外，剩下的13亿百姓只能得到全国社保的4%。
+斯蒂特在视频中说：“接种疫苗是个人选择。 死板的、一刀切式的静态指令根本不符合我们今天所处的现实。在俄克拉荷马州，病例和住院人数下降了近 50%。 伴随病毒的演变，也出现了科学的治疗方法，包括人们对自然免疫的选择。”
 
-此外，文贵先生还提到，中共国并没有社保制度，只有社保基金。而社保基金是法人机构，自负盈亏。中共社保基金最早的法人是车峰的岳父、原中国银行行长戴相龙。后来，车峰说服戴相龙，以骗取社保基金来投资上市公司。另据郭先生指出，平安集团如今拿走了全中国社保基金的45%。一旦平安集团暴雷，这些钱将再无法追回。
+斯蒂特补充说：“拜登总统政府不尊重个人自由。我不敢相信我们的总统想要迫使美国人在疫苗和工作之间做出选择。受此影响的不仅仅是统计数据，还包括我们俄克拉荷马州人，他们真正为此担忧，他们或者是勇敢的护士和守护者，或是翘首期盼的父亲和母亲，亦或是应急人员和勇敢执法者。”
 
-中国的老百姓本来就没有钱，还要将钱给社保基金。但社保基金盈利与否，都要由老百姓承担后果。到头来，受苦的还是老百姓。
+司法部长约翰·奥康纳（John O ‘Connor）也谴责了这项即将出台的疫苗强制接种令。
 
-(本文仅代表作者观点)
+奥康纳在一份声明中说：“一旦联邦紧急状态条例发布，对雇主提出这种非法要求，我们办公室将与全国各地的其他州检察长一道，迅速提起诉讼并寻求禁令，禁止任何实施或强制行为的发生。”
 
-参考链接：[2021年10月18日郭文贵先生直播（盖特直播测试）全文字版](https://gnews.org/zh-hans/1604880/)
+原文连接[https://www.thegatewaypundit.com/2021/10/watch-oklahoma-governor-stands-bidens-vaccine-mandates-says-shots-personal-choice/](https://www.thegatewaypundit.com/2021/10/watch-oklahoma-governor-stands-bidens-vaccine-mandates-says-shots-personal-choice/)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+翻译：洛杉矶盘古农场 – 钢蛋儿
 
-总编：Irene木木 
-编辑：Irene木木
-校正/发稿：谐趣园
+校对：洛杉矶盘古农场 – Mike Li
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+评论：洛杉矶盘古农场 – 钢蛋儿
+
+编辑：洛杉矶盘古农场 – Wendy
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

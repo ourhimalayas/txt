@@ -2,17 +2,37 @@
 ---
 
 
-## 文贵焦点10/20 喜币将成为世界金融回归真正货币职能的唯一性虚拟币
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1606324/)
+## 中共社保基金实为一千亿，96%给了中共退休干部
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1606342/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/WhatsApp-Image-2021-10-20-at-9.22.16-AM.jpeg)ttutu’p图片
-全球金融体系正面临颠覆性大变局，万众瞩目的喜币即将上市，这个高度创意的金融工具引起无数争议和猜想。核心创意人，新中国联邦创始人郭文贵先生就此给公众进行了深入浅出的分享。
+作者：正义的小新
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+文贵先生在18日的直播中谈及了中共国的社保问题。
 
-文贵先生和大直播的几位嘉宾从最基本的定义和概念着手轻松地进行了探讨。什么是法币，什么是货币；什么是暗网，什么是深网；什么是去中心化，什么是非中心化…非常通俗易懂地阐述了喜币和同类项产品、工具的本质不同。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide8-7.jpeg)
 
-喜币不仅仅是可衡量、可查询、可交易、可流通的加密货币。更重要的是：只要在第一天实现一件商品交易，买到一张俱乐部卡，就意味着，它在诞生之日起就空前地成为广域货币。必将深刻地影响世界的经济金融生活。
+据文贵先生爆料，中共全国社保基金总额，名义上有两千五百亿美元，实则仅余一千亿美元。这当中，有96%的社保金都给了中共的退休党员干部。
 
-【原文链接】https://gtv.org/broadcast/watch/61700c08304e992109b806ef
+文贵先生指出，中共退休的党员干部目前大约有1.3亿。也就是说，中国十四亿人中除了中共党员干部的家人外，剩下的13亿百姓只能得到全国社保的4%。
 
-校对发布：Shifter
+此外，文贵先生还提到，中共国并没有社保制度，只有社保基金。而社保基金是法人机构，自负盈亏。中共社保基金最早的法人是车峰的岳父、原中国银行行长戴相龙。后来，车峰说服戴相龙，以骗取社保基金来投资上市公司。另据郭先生指出，平安集团如今拿走了全中国社保基金的45%。一旦平安集团暴雷，这些钱将再无法追回。
+
+中国的老百姓本来就没有钱，还要将钱给社保基金。但社保基金盈利与否，都要由老百姓承担后果。到头来，受苦的还是老百姓。
+
+(本文仅代表作者观点)
+
+参考链接：[2021年10月18日郭文贵先生直播（盖特直播测试）全文字版](https://gnews.org/zh-hans/1604880/)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Irene木木 
+编辑：Irene木木
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
