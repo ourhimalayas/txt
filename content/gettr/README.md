@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/20/2021 11:32 PM (UTC)`
+
+10/20/2021 Miles Guo: Half of the 20 people accompanying Jack Ma who are supposed to watch over him have been bribed by him. Jack Ma will either be killed by the Jiang family like how Wang Jian was murdered or be sent to a certain European country instead of the US and Japan. If neither is the case, then the shares of Alibaba held by Jack Ma will definitely be sold off after the share price goes up, which means the fraud is successful. But Jack Ma will end up either being killed or sent to jail<br/><br/>10/20/2021 文贵直播: 监视马云的20名随行人员中的一半被他收买，马云要么是被江家像弄死王健一样弄死他；要么会被送往美日之外的欧洲某国。若两种情况均未发生，马云在阿里巴巴的持股定会在股票大涨后被抛售，诈骗成功。但最终他要么被杀，要么被送进监狱。<br/>
+![img](https://media.gettr.com/group14/getter/2021/10/20/23/32/cf0a6ac1-4b9e-e97b-3911-3b953a1b3a5d/out.jpg)
+
+---
+
 `@miles 10/20/2021 11:05 PM (UTC)`
 
 10/20/2021 Miles Guo: Jack Ma is handling about 3000 assets, with Joe Tasi helping him launder 75% of his money. By pushing the “great economic revolution”, the CCP attempts to strengthen its reign, wage an economic unrestricted warfare against Europe and the US, and plunder the entire world’s wealth<br/><br/>10/20/2021文贵直播：马云正在处理大概3000多笔的资产，蔡崇信帮马云洗掉了他75%的钱；中共妄图通过搞经济大革命来强化统治、对欧美等国发动经济超限战并掠夺全球财富。<br/>
@@ -289,13 +296,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 10/15/2021 Miles Guo’s GETTR: The CCP does not allow the Lao Baixing to purchase cryptocurrencies, while itself can buy whatever crypto it wants and nobody dares to ask! Only if the CCP is taken down will there be a relatively objective and fair social system<br/><br/>10/15/2021 文贵盖特：共产党不许老百姓买虚拟币，而它自己却爱咋买咋买，无人敢管！只有消灭中共，才能有相对客观公平的社会制度<br/>
 ![img](https://media.gettr.com/group25/getter/2021/10/16/01/11/7cd279cc-1521-a288-d8df-25fa787f0187/out.jpg)
-
----
-
-`@miles 10/16/2021 12:12 AM (UTC)`
-
-10月15号：尊敬的战友们好……非常的抱歉，很多战友给我发的信息没办法一一回复，我只能在这里，简单给大家统一回复一下，谢谢。
-![img](https://media.gettr.com/group10/getter/2021/10/16/00/12/e1f9451d-fbe9-849a-3ed5-2bb83f9157ca/out.jpg)
 
 ---
 
