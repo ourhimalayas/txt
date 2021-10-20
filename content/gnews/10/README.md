@@ -2,20 +2,32 @@
 ---
 
 
-## 州长害怕逃跑了
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1605660/)
+## 菲律宾Ayala Corp.将收购澳大利亚可再生能源公司所有权
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1605784/)
 
-撰稿：文雨
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-10.jpg)图片来自网络截图
-今天在电视上看到了一张恐惧的脸，Michael Gunner北领地州长！一周前州长强硬地在电视上宣布了凡是从事与公众接触的职业，都必须在11月13日完成第一剂新冠疫苗的接种，否则将失去工作。而雇佣他们的雇主一经发现违反规定，将面临5000澳元的罚款，他的政策宣布后导致了上周六在州政府门前的大规模抗议，很多反疫苗团体和人们聚集在此，愤怒的人群高喊着口号，也有人将州长家的地址发布到了网上⋯⋯
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/AC.jpg)图片来源：esquiremag.ph
+#### 编译：小红帽
 
-面对抗议的人们，州长周六就命令他的夫人和孩子离开了家，他说他感到了威胁，他感到了害怕。其实这位州长的恐惧已由来已久，早在今年九月，他就命令州议会升级在他家对他家人的固定人员保护，他说他家庭的私人保安系统存在被跟踪的风险，由此可见，州长早已恐惧之极！
+AC能源公司（AC Energy）–由亿万富翁海梅·佐贝尔·德·阿亚拉（Jaime Zobel de Ayala）所拥有的阿亚拉公司（Ayala Corp.）的子公司，已同意完全拥有其澳大利亚可再生能源公司的所有权。这家菲律宾历史最悠久的企业集团正加大投资力度，以成为东南亚最大的上市可再生能源平台。
 
-这次疫苗并非强制，为何州长有如此大权力以他的命令让不接种的人失去工作，失去饭碗？这就是变相强制！正是州长的所做所为先让人们感到了不安全，让人们失去了希望，让人们无法再忍受下去，才使得矛盾上升得如此激烈，这次轮到州长慌神了！其次，州长是本地民众选举产生，而在本地为民的一个堂堂州长却要用纳税人的钱去加强他家的安保系统，这也是在这新闻里读到不可思议的内容。看来推广疫苗接种，在澳洲这片土地上，政客们的丑态百出。
+根据交易，AC能源公司将以2.43 亿美元的价格向合作伙伴UPC可再生能源亚太控股公司（UPC Renewables Asia Pacific Holdings）和UPC可再生能源公司(UPC Renewables )的首席执行官安东·罗纳(Anton Rohner)收购澳大利亚UPC/AC可再生能源公司 ( UPC/AC Renewables Australia)剩余的51.6% 股权，该公司在周二向菲律宾证券交易所发表的一份声明中表示。
 
-参考来源：
+收购完成后，需获得监管部门的批准，其中包括澳大利亚外国投资审查委员会的同意。AC能源公司将拥有澳大利亚UPC/AC可再生能源公司的100%所有权。
 
-[https://www.abc.net.au/news/2021-10-19/nt-chief-minister-michael-gunner-address-anti-vaccine-protest/100550236](https://www.abc.net.au/news/2021-10-19/nt-chief-minister-michael-gunner-address-anti-vaccine-protest/100550236)
+自 2018 年成立以来，澳大利亚UPC/AC可再生能源公司已在新南威尔士州、塔斯马尼亚州、维多利亚州和南澳大利亚州开发了超过8,000兆瓦的可再生能源项目。该公司目前正在新英格兰建造一个520兆瓦的太阳能发电场。
 
-(本文纯属个人观点，与Gnews无关)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+AC能源公司已在澳大利亚、印度、印度尼西亚、菲律宾和越南建立了约2,600兆瓦的可归属容量，并计划到2025年前将容量翻一番，达到5,000兆瓦。对这些项目的投资，将帮助AC能源公司实现其成为东南亚最大的上市可再生能源平台的目标，董事长费尔南多·佐贝尔·德·阿亚拉(Fernando Zobel de Ayala)在公司最新的年报中表示。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Philippines’ Ayala Corp. Unit To Take Full Ownership Of Australian Renewable Energy Venture In $243 Million Deal (forbes.com)](https://www.forbes.com/sites/jonathanburgos/2021/10/20/philippines-ayala-corp-unit-to-take-full-ownership-of-australian-renewable-energy-venture-in-243-million-deal/?sh=164ccb7243f4)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

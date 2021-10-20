@@ -2,26 +2,23 @@
 ---
 
 
-## 雅典娜时报-第087期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1605297/)
+## 房产税，拙劣的骗局
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1605407/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/10/v2_e97d4d6794614dfa92a0763d5bf62d27_img_000.jpg)[图片来源](https://www.36kr.com/p/1641832906753)
+据中共官媒10月19日新闻报道，今年多地出现空前严格的楼市调控举措，房产税信号越来越明显，很多人相信未来征税的逻辑可能出现变化，北上广深等一线城市的市场投资和投机者，开始逐步抛售房源，规避房产税。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
+近期，许多多套房持有者抛售房源，宁愿赔付违约金，也要提前解约将房屋出售。北京和广州近期二手房挂牌量激增。炒房致富的时代已经结束。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/201-1.png)
+专家称，房地产税，其一，有助于增加二手房和租赁房市场流动性，促进资源合理配置；其二，可以作为地方税收的重要补充；其三，以高收入人群为目标，有助于实现共同富裕。
 
+该报道只得出一个结论，国内房地产市场急剧动荡的原因，是房产税政策。房子和土地都是党所有，房产税不过是新一轮割韭菜的手段，想用它掩盖房地产市场的崩塌，只能欺骗掩耳盗铃，不愿清醒的受害者。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/202-1.png)
+信息来源：[房产税渐行渐近 一线城市炒房客已提前抢跑](https://www.yicai.com/news/101202453.html)
 
+(文章仅代表作者本人观点，与GNEWS无关)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-***发布：小红帽***
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

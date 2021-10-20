@@ -2,21 +2,31 @@
 ---
 
 
-## 德国右翼媒体集团宣布已完成收购 PLITICO
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1605462/)
+## COVID-19最新情报｜专家分析指“九成疫苗不良事件被瞒报”
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1605574/)
 
-#### 编译：坤霆
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-54.jpg)图片来源：POLITICO
-10月19日德国右翼媒体新闻巨头阿克塞尔·斯普林格（Axel Springer）正式发布公告，集团已完成对美国媒体 POLITICO 的收购。
+**台湾宝岛农场 zhong / 发布日期 20/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_0.jpg)
+据相关统计数据，过去疫苗不良反应仅百分之一被通报，并记录到“疫苗不良事件通报系统(VAERS)”，原因可能是接种者没有意识到不良反应是接种疫苗导致，又或者难以证明不良反应与疫苗接种有因过关系。
 
-罗伯特·阿尔布里顿（Robert Allbritton)于2007年创立了Politico。Politico倾向于提供温和的批判性分析。在美国媒体界，政治曾经被认为是一个事实报道的自由新闻网站。 但现在已经大不相同。
+自疫苗问世以来，被授权在市面上施打的疫苗，都经过政府相关部门的背书，称“疫苗为安全、有效”。然而，新冠疫苗导致的死伤数量，已经远超过新冠病毒本身。（新冠病毒致死率约百分之一，Delta变种致死率约4%）
 
-在德国极端保守的斯普林格的领导下，这种情况将发生变化。
+- 相关：[彼得·麦卡洛医师：新冠疫苗是人类历史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
 
-2014年，Politico（50%）和斯普林格（50%）成立了总部位于布鲁塞尔的分支Politico.eu。斯普林格对 Politico（美国）的接管完成，Politico 将完全属于斯普林格集团。 2015年，斯普林格以3亿美元的价格收购了商业内幕（Business Insider）。2020年底，斯普林格还收购了美国时事提供商早间简报（Morning Brew）。
 
-参考链接：
+#### 新冠疫苗死伤，难以估计
 
-1. [Axel Springer Completes Acquisition of POLITICO](https://www.axelspringer.com/en/press-releases/axel-springer-completes-acquisition-of-politico)
-2. [A Right-Wing German News Conglomerate Bought Plitico for a Billion Dollars](https://countercurrents.org/2021/09/a-right-wing-german-news-conglomerate-bought-politico-for-a-billion-dollars/)
+据原文作者表示，若死者在接种新冠疫苗后一小时内死亡，医院方会进行 PCR 测试，尝试通过 PCR 测试来判断是否属于确诊病毒致死。然而，这种情形下进行PCR 测试，几乎都会得到假阳性结果。院方也会依照 PCR 测试的假阳性，宣告死者因“接种疫苗尚未达两周，属于未接种疫苗，感染新冠病毒致死”。
+
+甚至有死者在几天前刚接种实验阶段的新冠疫苗后死亡，医院将死者一个月前的PCR 测试阳性结果纳入考量，判定死者因为接种疫苗未足两周属于未接种疫苗，本身因新冠病毒致死。
+
+依照[英国政府对辉瑞疫苗接种的相关统计数据](https://www.ukcolumn.org/video/analysis-of-us-vaers-vaccine-adverse-reactions-data-by-biostatistician-christine-cotton-part)，接种辉瑞疫苗后产生不良反应的案例，有些几乎是立即发生，或是在短短几天内发生。不良反应包含心脏病、流产、败血症、瘫痪、中风、带状疱疹、确诊新冠病毒、耳聋、失明和精神障碍（朊病毒）。
+
+这些疫苗不良反应的发生是因为接种新冠疫苗后，血液中将会有数十亿个刺突蛋白，将导致血栓出现。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/6-10.jpg)
+
+* * *
+
+新闻来源｜[Natural News](https://www.naturalnews.com/)
+声明｜转译仅供参考，一切以原文为主
