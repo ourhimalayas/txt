@@ -2,54 +2,16 @@
 ---
 
 
-## 郭文贵先生2020年5月23日：中共不灭人类将面临生存灾难
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1605238/)
+## 完全接种疫苗的美国土安全部长确诊感染中共病毒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1605293/)
 
-**整理/剪辑：**尕鱼儿
-**编辑：**翼族
+#### 编译：坤霆
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-63.jpg)图片来源：网络截图
+10月19日公民自由社（Citizen Free Press）报道，美国国土安全部在推特上宣布，已经完成疫苗接种的国土安全部长马约卡斯（Mayorkas）是在周二（19日）早上进行出行前的例行检测时确诊中共病毒。
 
+据悉，美国总统拜登和第一夫人吉尔上周六与马约卡斯一起出席了在国会大厦外举行的全国维护和平执法人员纪念活动。
 
+白宫说，拜登三周前已接种中共病毒疫苗加强针，他和马约卡斯是在超过48小时前接触，而且地点是在户外，拜登暴露在病毒中的风险不高。
 
-【**编者按：**当香港人民英勇抗争的时候，世界沉寂，今天这一幕又在全世界各地上演，因为一切灾难的根源都是中国共产党。如果不消灭共产党，人类将面临生存的灾难，全世界都会变成香港！】
-
-这世界怎么了？ 
-究竟因为什么？
-这一切 
-都是因为中国共产党
-美国人和全世界人民
-如果还不能明白这个真相的话
-还没有下决心干掉共产党的话
-还不去彻底地下定决心
-放弃掉你短视的利益
-被几个利益集团绑架
-干灭共产党的话
-人类将面临着生存的灾难
-全世界都会变成香港
-不论是美国 不论是法国
-不论是英国 不论是欧洲
-你们的老婆你们的女儿
-就会像香港的
-陈彦霖的妈妈和陈彦霖一样
-被强奸被轮奸最后全部被杀害
-你们不信 咱们还走着看
-这就是我给美国人民给全世界人民
-发出来的三年以来一直的声音
-世界正在被共产党的黑暗所笼罩
-你准备好了吗？
-如果没有准备好 你等着付代价吧
-如果你准备好了 只有一条路
-干掉共产党
-你才能让你的老婆你的妈妈
-你的女儿不被强奸不被轮奸
-你的儿子你的哥哥兄弟
-不被人家鸡奸和杀害
-
-（视频文字内容仅代表作者个人观点，与GNEWS无关）
-
-*发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原文链接：[Fully Vaccinated Mayorkas tests positive for Covid….](https://citizenfreepress.com/breaking/fully-vaccinated-mayorkas-tests-positive-for-covid/)

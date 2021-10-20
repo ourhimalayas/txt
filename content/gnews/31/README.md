@@ -2,26 +2,20 @@
 ---
 
 
-## 微信承认秘密扫描用户的照片
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1605228/)
+## 中共加速毁灭民族文化 实施种族灭绝计划
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1605230/)
 
-作者：文一
+作者：文仁
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-【国家脉动】10 月 18 日报道，微信承认经常性地秘密扫描用户图片信息，该操作可以在用户并未打开应用程序的情况下完成。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture6-4.jpg)
-业内著名人士 Hacklous 曝光说，不仅由中共控制的微信如此，中共控制的其它应用程序，如 QQ 应用程序、拥有 9 亿月活跃用户的在线购物平台淘宝等，也经常性地秘密扫描用户照片。
+【美国之音】10 月 19 日报道，中国正在加速少数民族的汉化和同化步伐。中共国务院 9 月底透过《中国儿童发展纲要（2021-2030 年）》的发布，正式宣布要对少数民族儿童加大中文和汉语的推广力度。专家表示，此举等同宣告要灭绝少数民族的语言和文化，恐引发西藏、内蒙及新疆等民族的强力反弹。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture7-3.jpg)
+在这份最新版的《中国儿童发展纲要》中，“少数民族”一词已经完全销声匿迹。其中攸关《儿童与教育》的章节，原有的“尊重和保障少数民族儿童使用本民族语言接受教育的权利”等条文已被删除，取而代之的是要“加大国家通用语言文字推广力度”等措词。也就是说，未来少数民族的儿童只能读中文、说汉语，不再使用属于自己民族的母语。
 
-此事件曝光再次引发用户对中共控制的应用程序侵犯隐私的担忧。
-
-另据【Hindustan Times】科技网报道，早在川普时期已经命令禁止下载微信和抖音，虽然现任总统拜登撤回了相关一系列行政令，但命令商务部审查这些应用程序所带来的安全问题，并要求上周四之前提交可行性方案以防止外国政府控制的公司获取美国数据。
-
-据悉，商务部已于上周二提交了方案。
+中共祭出民族同化的大旗，其结果就是少数民族的文化将荡然无存。实际就是中共加速其毁灭民族文化、实施种族灭绝的疯狂计划。
 
 （本文仅代表作者观点）
 
-参考链接：
-1. [微信承认秘密扫描用户的照片](https://thenationalpulse.com/news/wechat-admits-to-scanning-photos/)
-2. [微信承认秘密扫描用户的照片](https://tech.hindustantimes.com/tech/news/tiktok-wechat-ban-us-agency-submits-recommendations-on-protecting-app-data-to-white-house-71634118259793.html)
+参考链接：[中共加速毁灭民族文化 实施种族灭绝计划](https://www.voachinese.com/a/China-formalizes-its-aim-at-assimilating-ethnic-minorities-20211019/6275307.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 

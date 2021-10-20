@@ -2,41 +2,36 @@
 ---
 
 
-## 国际要闻汇编
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1605198/)
+## 微信承认秘密扫描用户的照片
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1605228/)
 
-#### 素材：东京樱花团｜GNEWS组
+作者：文一
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+【国家脉动】10 月 18 日报道，微信承认经常性地秘密扫描用户图片信息，该操作可以在用户并未打开应用程序的情况下完成。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture6-4.jpg)
+业内著名人士 Hacklous 曝光说，不仅由中共控制的微信如此，中共控制的其它应用程序，如 QQ 应用程序、拥有 9 亿月活跃用户的在线购物平台淘宝等，也经常性地秘密扫描用户照片。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/guoji1020.png)[*图片来源*](https://gdb.voanews.com/38040E45-AB9B-4207-91D9-8D7666175856_cx0_cy10_cw0_w1597_n_r1_st.jpg)
+此事件曝光再次引发用户对中共控制的应用程序侵犯隐私的担忧。
 
-**10月20日汇编**
+另据【Hindustan Times】科技网报道，早在川普时期已经命令禁止下载微信和抖音，虽然现任总统拜登撤回了相关一系列行政令，但命令商务部审查这些应用程序所带来的安全问题，并要求上周四之前提交可行性方案以防止外国政府控制的公司获取美国数据。
 
-１、[**中国加速民族同化步伐 藏蒙疆人恐强力反弹**](https://www.voachinese.com/a/China-formalizes-its-aim-at-assimilating-ethnic-minorities-20211019/6275307.html)
+据悉，商务部已于上周二提交了方案。
 
-据美国之音消息，中国正在加速少数民族的汉化和同化步伐。国务院9月底透过《中国儿童发展纲要(2021-2030年)》的发布，正式宣布要对少数民族儿童加大中文和汉语的推广力度。专家表示，此举等同宣告要灭绝少数民族的语言和文化，恐引发西藏、内蒙及新疆等民族的强力反弹。 在这份最新版的《中国儿童发展纲要》中，“少数民族”一词已经完全销声匿迹。其中攸关《儿童与教育》的章节，包含“尊重和保障少数民族儿童使用本民族语言接受教育的权利”等条文已被删除，取而代之的是，要“加大国家通用语言文字推广力度”等措词。也就是说，未来少数民族的儿童只能读中文、说汉语，不再使用属于母语的族语。
+（本文仅代表作者观点）
 
-2、[**中俄印或不参加气候峰会 白宫表示将持续努力**](https://www.voachinese.com/a/climate-summit-build-back-better-20211019/6277460.html)
+参考链接：
+1. [微信承认秘密扫描用户的照片](https://thenationalpulse.com/news/wechat-admits-to-scanning-photos/)
+2. [微信承认秘密扫描用户的照片](https://tech.hindustantimes.com/tech/news/tiktok-wechat-ban-us-agency-submits-recommendations-on-protecting-app-data-to-white-house-71634118259793.html)
 
-联合国气候峰会将于10月31日在苏格兰格拉斯哥登场，世界上三大主要碳排放国中国、俄罗斯与印度的领导人可能不出席，对此白宫表示许多国家领袖或因为新冠疫情考量不出席，不过通过其他方式同样可以达成对抗气候变化的努力。对于正在国会讨论的法案当中的气候变化项目可能被排除，白宫表示将持续努力。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-4.png)
 
-3、[**美国通信官员要求将大疆无人机列入管制清单**](https://www.voachinese.com/a/fcc-wants-new-review-of-china-drones-20211019/6277268.html)
+新闻访谈终审：Q大哥
+编辑/校对/审核：Hetangyuese
 
-美国联邦通信委员会（FCC）共和党籍专员卡尔（Brendan Carr）周二（19日）说，他希望委员会开始对中国大疆创新科技公司（DJI Technology Co）采取新的限制措施。大疆创新科技是世界上最大的无人机制造商。卡尔说，联邦通信委员会应该采取措施，将大疆创新科技列入委员会的管制清单，禁止使用“电信普遍服务基金”（Universal Service Fund）的资金购买其设备。
-
-4、[**奥运圣火采集之际 人权活动人士再次呼吁抵制北京冬奥会**](https://www.voachinese.com/a/activists-urge-Beijing-Olympics-boycott-over-human-rights-concerns-20211019/6276682.html)
-
-人权活动人士周二（19日）在雅典举行记者会，再次呼吁各国政府和运动员抵制2022年北京冬季奥运会，否则就是他们指控北京进行的“种族灭绝”行为的帮凶。北京将在明年2月4日至20日举办冬季奥运会。但是随着奥运日期的临近，中国在新疆、西藏和香港等地侵犯人权的行为越来越受到人权团体和活动人士的关注和抨击。美联社引述国际西藏网络（International Tibet Network）执行主任曼迪·麦基翁（Mandie McKeown）在记者会上的发言说，“我们再次目睹（国际奥委会的）虚伪”，“他们把奥运火炬交给一个完全不尊重奥运理想的主办国政府，就好像我们生活在一个扭曲的世界中一样。”
-
-5、[**海航控股的德国机场破产 重组遇阻**](https://www.aboluowang.com/2021/1020/1661617.html)
-
-德国之声报道，中国海航集团2017年收购了大部分股权的德国莱法州哈恩机场日前传出破产的消息。这座机场早年曾是驻德美军的军用机场，美军撤出后，90年代末由莱法州政府接管，并开始运营客机，但在2014年出现严重亏损。莱法州于2017年将机场82.5%的股份售予海航集团。在新冠爆发前的2019年，该机场客流量为150万，也是重要的货运中转基地。但直到近日，当地法院宣布该机场资不抵债，宣布破产。
-
-6、[**遭中共报复 爱立信计划削减中国业务**](https://www.aboluowang.com/2021/1020/1661544.html)
-
-瑞典爱立信周二（19日）宣布，公司计划减少在中国的业务。瑞典禁止中国华为在该国销售5G设备，使爱立信遭到中方报复，导致该公司在中国的销售额大幅下降。不过，该公司在美国等地所获得的5G合同抵销了在中国的损失。爱立信报告称，由于公司在全球大部分地区的5G设备销售强劲，第三季度核心收益好于预期，抵消了中国大陆市场份额的损失以及全球供应链问题的打击。瑞典在2020年加入美、英、澳行列，禁止该国5G网络使用华为公司和中兴通讯所提供的设备。
-
-（本文只代表个人观点，与Gnews网站无关）
-
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / 野猫*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-7.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1.png)

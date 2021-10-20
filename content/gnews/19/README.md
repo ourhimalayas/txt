@@ -2,24 +2,35 @@
 ---
 
 
-## 朝鲜试射潜艇弹道导弹 强势表态核谈判
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1605322/)
+## GTV新闻访谈简报|2021年10月19日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1605372/)
 
-#### 编译：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-51.jpg)图片来源：网络截图
-美联社10月19日首尔报道，朝鲜周二发射了至少一枚弹道导弹，韩国军方说该导弹发射可能是为从潜艇发射所设计的，这可能是朝鲜军方自拜登当上美国总统以来最强势的表现。
+作者：香草山翻译部
 
-这枚导弹发射发生在美国证实重启与朝鲜的核谈判后数小时。这也重点表现出朝鲜在停止外交努力期间在继续扩张其军事能力。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
 
-韩国联席主席在一份声明中说他们检测到朝鲜发射了一枚短程导弹而且很可能是从新浦港东部附近的潜艇发射的弹道导弹，军方正在密切分析这次发射。韩国军方说导弹是在海中发射的，但没有说这个发射是在海面上的发射台还是从水下潜艇发射的。
 
-日本军方说最初分析认为朝鲜发射了二枚弹道导弹，日本首相岸田文雄说专家们正在检查是否出自潜水艇。他因此中止了本月为立法选举的造势旅行已回到东京，他要求政府开始修改国家安全战略方案以适应不断增加的来自朝鲜的威胁，包括针对朝鲜军事目标的先发制人的打击能力。
 
-韩国官员们召开了国家安全委员会会议，表达了对此事的“深切的遗憾”。一个强烈的韩国反应可能会激怒朝鲜，在韩国批评朝鲜扩大其常规军事力量时，朝鲜就指责了首尔的虚伪。
 
-联合国秘书长安东尼奥·曼努埃尔对此表示担忧并呼吁朝鲜领导人遵守联合国安理会决议，重启外交努力以维护和平以及实现朝鲜半岛的无核化目标。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1019text-SC.png)
+文章仅代表作者本人观点，与Gnews无关
 
-美国印太司令说朝鲜最近的导弹发射并不能构成对美国在该地区人员和同盟者的紧迫性威胁。
+校对：Stay文苑
 
-新闻来源： [North Korea tests possible submarine missile amid tensions](https://apnews.com/article/donald-trump-seoul-south-korea-north-korea-joint-chiefs-of-staff-62456fab450ce5bba766a8307cf06af4)
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：
+
+晚GTV新闻访谈: [https://gtv.org/broadcast/watch/616f6267304e992109b7c68e](https://gtv.org/broadcast/watch/616f6267304e992109b7c68e)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://紐約香草山農場%20%20|%20GTV-香草山之聲%20紐約香草山農場GTV-%20|%20MOS%20TALK%20香草山訪談%20紐約香草山農場%20|%20GETTR%20紐約香草山農場%20｜YouTube%20歡迎加入香草山農場%20%20|%20Discord)

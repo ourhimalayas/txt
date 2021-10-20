@@ -2,45 +2,20 @@
 ---
 
 
-## 澳洲下月推疫苗加强剂，拟普及给所有人群
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1605259/)
+## “Let&#8217;s Go Brandon”成美国最火国骂 抗议拜登完美避开审查
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1605305/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 编译：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/7-12.jpg)图片来源：网络截图
+据美国太阳（The U.S. Sun）网站10月19日报道，川普的前助手杰森·米勒（Jason Miller  ）说，“Let’s Go Brandon”（布兰登加油）这个梗使美国可以在没有审查的情况下抗议拜登政府。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Approaches-to-solve-distribution-quandaries.jpg)图片来源：clinicaltrialsarena.com
+10月2日，纳斯卡（NASCAR）车手布兰登·布朗在阿拉巴马州的塔拉迪加超速赛道上赢得了他的第一场 Xfinity 系列赛后，米勒组织了带有这一口号的飞机飞越川普集会的活动。在布兰等赛后接受NBC体育记者凯利·斯塔瓦斯特（Kelli Stavast）采访时，现场听到观众高呼 “F\*\*k Joe Biden”，斯塔瓦斯特似乎听错了口号，声称人群在说 “Let’s go Brandon”。
 
+从那时起，互联网上的这句话就被炒得沸沸扬扬。许多反对拜登的人把这句话作为他们的新口头禅，制作商品或在体育赛事中高呼。然而，盖特首席执行官米勒声称，这句口号有更重大的意义，它让美国人可以在没有审查的情况下进行抗议。米勒告诉《太阳报》。“布兰登加油”体现了主流媒体与美国人民是多么的脱节。NBC的记者没有听出这句话的真实含义是对失败的拜登政府的抗议，而是进入了“止损”模式，并编造了更多假新闻。
 
-#### 编译：小红帽
+“Let’s go Brandon”允许各地的体育迷行使他们的宪法权利，表达他们的意见，嘲笑假新闻的疯狂，抗议拜登政府而不受审查，这正是他们在GETTR上也能做到的。我们用这架飞机表示我们相信言论自由，而且在游击营销方面，没有人比GETTR更有优势，米勒说，他是众多加入 “Let’s go Brandon”潮流的共和党人之一。
 
-澳大利亚民众将在11月中旬之前获得中共病毒（COVID-19）疫苗加强剂，联邦卫生部长格雷格·亨特（Greg Hunt）表示，“很可能”向全体民众提供疫苗加强剂。
+参议员特德·克鲁兹（Ted Cruz）周日也分享了一段他在棒球比赛中高呼 “Let’s go Brandon”的视频，似乎对总统拜登进行了暗讽。
 
-老年护理人员是第一批获得第三针的人，即额外剂量的辉瑞（Pfizer）疫苗。
-
-宣布这一消息之际，澳大利亚16岁及以上人群的两剂疫苗接种率超过70%。亨特先生说，周二全国范围又进行了277,000剂疫苗接种，总数达到3320万次。
-
-16 岁及以上人群的首剂疫苗接种率为85.5%。
-
-澳大利亚最近开始向严重免疫功能低下的人提供“第三针”。但首席医疗官保罗·凯利（Paul Kelly）教授说，该计划与针对更广泛人群的加强剂不同。
-
-联邦政府仍在等待治疗用品管理局和澳大利亚免疫技术咨询小组的最终建议。但从11月中旬开始，老年护理人员可能会开始接种疫苗加强剂。
-
-这很可能是辉瑞公司的疫苗。亨特先生表示，官员们将在下周初与辉瑞公司会面，但仍在等待莫德纳（Moderna） 或阿斯利康 (AstraZeneca) 的申请，以将他们的疫苗作为加强剂。
-
-澳大利亚于 2021 年和 2022 年与辉瑞和莫德纳签订了数千万剂疫苗合同。
-
-政府还签订了一份5100万剂诺瓦克斯（Novavax）疫苗的合同，该疫苗已被视为加强剂候选疫苗。但该制造商尚未向澳大利亚监管机构提交申请，因此未获准在澳大利亚使用。
-
-凯利教授和亨特先生强调，他们不会推测未来是否会强制接种第三剂中共病毒疫苗，如在航空旅行或医疗保健等高风险行业工作的情况下。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Vaccine boosters to begin next month, ‘likely’ for whole population (thenewdaily.com.au)](https://thenewdaily.com.au/news/2021/10/20/covid-boosters-greg-hunt/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[‘FREEDOM’ Let’s Go Brandon allows US to ‘protest Biden without censorship,’ says Trump aide who flew planes with meme on banner](https://www.the-sun.com/news/3889229/lets-go-brandon-jason-miller/)
