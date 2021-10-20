@@ -2,21 +2,32 @@
 ---
 
 
-## 德国右翼媒体集团宣布已完成收购 PLITICO
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1605462/)
+## 法国亿万富翁爆料全球影子政府（一）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1605605/)
 
-#### 编译：坤霆
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-54.jpg)图片来源：POLITICO
-10月19日德国右翼媒体新闻巨头阿克塞尔·斯普林格（Axel Springer）正式发布公告，集团已完成对美国媒体 POLITICO 的收购。
+撰稿：喜国公民
 
-罗伯特·阿尔布里顿（Robert Allbritton)于2007年创立了Politico。Politico倾向于提供温和的批判性分析。在美国媒体界，政治曾经被认为是一个事实报道的自由新闻网站。 但现在已经大不相同。
+视频制作：今年必胜
+视频来自网络
+法国亿万富翁菲利普·阿吉利尔，最近通过Stew Peters的节目向全世界爆料，世界上存在着一个与各国官方政府密切合作的影子政府。
 
-在德国极端保守的斯普林格的领导下，这种情况将发生变化。
+这个影子政府非常强大，比任何国家的民选政府都要强大。影子政府可以为新政府起草议程，把地缘政治直接与世界上的军事干预联系起来，并控制和操纵世界各国政府的政策。例如， 影子政府控制着美国政府行政部门、国会、参议院和最高法院。
 
-2014年，Politico（50%）和斯普林格（50%）成立了总部位于布鲁塞尔的分支Politico.eu。斯普林格对 Politico（美国）的接管完成，Politico 将完全属于斯普林格集团。 2015年，斯普林格以3亿美元的价格收购了商业内幕（Business Insider）。2020年底，斯普林格还收购了美国时事提供商早间简报（Morning Brew）。
+影子政府由一群在世界各地非常富有的，有影响力的人组成。有能力超常的亿万富翁在背后支持。
 
-参考链接：
+在民选政府中工作的人员，有些人知道，也有些人不知道影子政府的存在。美国现任总统拜登，由于过去50年里一直从政，他对影子政府相当熟悉。
 
-1. [Axel Springer Completes Acquisition of POLITICO](https://www.axelspringer.com/en/press-releases/axel-springer-completes-acquisition-of-politico)
-2. [A Right-Wing German News Conglomerate Bought Plitico for a Billion Dollars](https://countercurrents.org/2021/09/a-right-wing-german-news-conglomerate-bought-politico-for-a-billion-dollars/)
+美国前任总统特朗普是个例外。正是由于这个原因，影子政府正在为特朗普总统提供一个机会，让他加入影子政府，让幕后的事情完全透明和公开。
+
+影子政府拥有世界上4个数据库，收集了世界上所发生事件的真相。
+
+阿吉利尔提到，他曾在2014年，被一个国家的总统问到，是否愿意参与一项涉及到盖茨基金会在非洲的工作。该工作与将在2020年发生的一个事件有关。阿吉利尔拒绝了该总统的请求。
+
+当被问道，这个将在2020年发生的事件是否是新冠病毒世界大流行时，阿吉利尔说，是有一个将在2020年发生的叫做新冠病毒的议程，但，阿吉利尔并没有参与其中。
+
+虽然这听起来像一部电影，像是虚构的。但阿吉利尔说，这确实是真实的。他站出来爆料的目的，就是让世人了解幕后发生的事情。
+
+(本文纯属个人观点，与Gnews无关)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
