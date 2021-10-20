@@ -2,17 +2,49 @@
 ---
 
 
-## 韩运载火箭“世界”号正式进入发射准备阶段
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1605118/)
+## 西南航空公司改变疫苗接种政策要求
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1605126/)
 
-韩国首尔天池农场——追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/10/WhatsApp-Image-2021-10-20-at-08.58.05.jpeg)图片来源：KBS新闻视频
-据韩国KBS新闻10月20日的报道 韩国科学技术信息通信部和韩国航空宇宙研究院20日宣称，由国内自主研制的“世界”号运载火箭今天正式进入发射准备阶段。
+作者：纽约香草山福音部 – Lilian89
 
-“世界”号完全由韩国自主研发研制，火箭全长47.2米、约重200吨。可以把1.5吨的人造卫星送上距离地面600～800千米的近地轨道。该火箭的75吨和7吨级推力液体发动机和推进器全部研制完毕，第一、第二、第三级助推器的性能也已得到验证。
 
-韩国政府为了确保运载火箭“世界”号发射任务取得圆满成功，政府、军方、警察和地方政府等11个部门于9月30日在位于全罗南道的罗老宇航中心实施综合训练，对其周边进行车辆和人员的限流，确保途经的船舶和飞机安全，并做好了恐怖袭击和灾难情况的应对。
 
-与脐带塔连接将于当天（20日）进行，明天（21日）将加助推进剂进行测试，确认燃料及氧化剂是否会堵塞和泄露。最有可能在21日16时左右首次试发。但如果气象条件和技术发生问题，将会把日期变更在22日至28日之间。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
 
-[新闻来源](https://youtu.be/bq4I2f4zVkI)
+
+
+据消息称，美国西南航空公司作为联邦承包商，被要求于12月8日前为其雇员完成新冠疫苗的接种任务，在最后期限之前，但没有得到宗教或医疗豁免且未接种疫苗的雇员将开始休无薪假。
+
+![](https://image.cnbcfm.com/api/v1/image/106957804-1633972118499-gettyimages-1346028118-kd1_0204_20211011122343793.jpeg?v=1633972187&amp;w=929&amp;h=523)图片来源：Getty Images
+
+对于这一疫苗强制执行政策，西南航空公司飞行员协会提出了法律诉讼，要求法院“暂时阻止该公司执行联邦规定的新冠病毒疫苗接种政策，直至关于涉嫌违反美国劳动法的诉讼得到解决”。
+
+10月15日，西南航空公司负责运营和接待的高级副总裁史蒂夫-戈德堡和副总裁兼首席人事官朱莉-韦伯写信给员工表示，即便员工的豁免请求在最后期限之前没有得到批准，他们仍然可以继续工作，但需要遵守带口罩和保存社交距离的准则，直到豁免请求得到审查。
+
+为了在世界范围内停止COVID疫苗的接种，我们需要坚定信念、绝不放弃，继续传播疫苗真相，拒绝强制疫苗接种政策。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+[Southwest drops plan to put unvaccinated staff on unpaid leave starting in December](https://www.cnbc.com/2021/10/19/southwest-vaccine-mandate-unpaid-leave-exemptions.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2.jpg](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)

@@ -2,49 +2,25 @@
 ---
 
 
-## 西南航空公司改变疫苗接种政策要求
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1605126/)
+## 雷军退出上海小米金融公司董事 法定代表人变更
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1605138/)
 
-作者：纽约香草山福音部 – Lilian89
+![](https://assets.gnews.org/wp-content/uploads/2021/10/SmBVYZ942IEsIp.jpg)雷军退出上海小米金融公司董事 法定代表人变更 网络图片
+据手机中国10月18日报道，上海小米金融信息服务有限公司发生工商变更，雷军、洪锋、林斌退出公司董事，林世伟任职董事、总经理，法定代表人由洪锋变更为林世伟。
 
+上海小米信息公司成立于2015年7月16日，注册资本为3000万元，现由天星数科科技有限公司100%控股。8月25日，小米集团总收入为878亿元，净利润63亿元。在金融科技方面，小米其他增值服务收入达16亿元，包含此业务在内的互联网服务版块收入为70亿元。
 
+雷军退出了，这一片忠心能不能买条命？拭目以待。下一个是谁？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+新闻参考链接：[https://c.m.163.com/news/a/GMJV4KLK051191D6.html?spss=newsapp](https://c.m.163.com/news/a/GMJV4KLK051191D6.html?spss=newsapp)
 
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-
-据消息称，美国西南航空公司作为联邦承包商，被要求于12月8日前为其雇员完成新冠疫苗的接种任务，在最后期限之前，但没有得到宗教或医疗豁免且未接种疫苗的雇员将开始休无薪假。
-
-![](https://image.cnbcfm.com/api/v1/image/106957804-1633972118499-gettyimages-1346028118-kd1_0204_20211011122343793.jpeg?v=1633972187&amp;w=929&amp;h=523)图片来源：Getty Images
-
-对于这一疫苗强制执行政策，西南航空公司飞行员协会提出了法律诉讼，要求法院“暂时阻止该公司执行联邦规定的新冠病毒疫苗接种政策，直至关于涉嫌违反美国劳动法的诉讼得到解决”。
-
-10月15日，西南航空公司负责运营和接待的高级副总裁史蒂夫-戈德堡和副总裁兼首席人事官朱莉-韦伯写信给员工表示，即便员工的豁免请求在最后期限之前没有得到批准，他们仍然可以继续工作，但需要遵守带口罩和保存社交距离的准则，直到豁免请求得到审查。
-
-为了在世界范围内停止COVID疫苗的接种，我们需要坚定信念、绝不放弃，继续传播疫苗真相，拒绝强制疫苗接种政策。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-[Southwest drops plan to put unvaccinated staff on unpaid leave starting in December](https://www.cnbc.com/2021/10/19/southwest-vaccine-mandate-unpaid-leave-exemptions.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2.jpg](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
