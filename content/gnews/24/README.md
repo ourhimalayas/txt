@@ -2,15 +2,39 @@
 ---
 
 
-## 白宫公布针对5-11岁儿童的疫苗计划
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1606722/)
+## CNN承认对伊维菌素治疗中共病毒的报道失实
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1606790/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10201.jpg)图片来自网络
-白宫公布了为 5 至 11 岁儿童接种疫苗的计划，该计划现在必须获得 FDA 的授权。据称，美国政府已获得足够的疫苗来为大约 2800 万儿童接种疫苗，该行动将涉及超过 25,000 名儿科医生、数百个甚至位于该国最偏远地区的医疗中心以及数万家药店。
+**撰稿：日本东京方舟农场 北极**
 
-免责申明：本文只代表译者观点，与Gnews无关
+10月14日，据秘密翻译组在盖特转发的一段视频，CNN（有线电视新闻网）首席医学记者桑杰·古普塔（Sanjay Gupta）向美国网红播客乔·罗根(Joe Rogan)道歉，承认CNN曾在伊维菌素治疗中共病毒的报道中向观众撒谎。
 
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/10/20/covid-casa-bianca-svela-piano-vaccini-a-bimbi-5-11-anni\_7cab68b3-2f6a-48dc-992c-9e5741e864be.html](https://www.ansa.it/sito/notizie/topnews/2021/10/20/covid-casa-bianca-svela-piano-vaccini-a-bimbi-5-11-anni_7cab68b3-2f6a-48dc-992c-9e5741e864be.html)
+据GNEWS报道，9月1日，罗根在Instagram上告知1300万粉丝自己感染了中共病毒，并且已使用包括伊维菌素在内的处方药三天，目前病情恢复迅速。随后CNN等媒体就此事大肆炒作，嘲笑罗根居然服用马驱虫药治疗中共病毒，全然不顾早在7月8日NIH（美国国立卫生研究院）就将伊维菌素列入推荐用药的事实。
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/id13047584-504254-scaled.jpg)图片来自于网络
+
+视频中，CNN首席医学记者桑杰·古普塔做客乔·罗根的节目，主持人毫不客气地向桑杰·古普塔施压，让他解释为什么CNN不顾事实，继续宣扬他服用马驱虫药来治疗中共病毒。
+
+最终古普塔承认CNN对此事的报道失实。
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[Sanjay Gupta admitted on podcast that CNN lied about ivermectin](https://gettr.com/post/peaemp1b32)
+
+
+
+> [乔·罗根感染冠状病毒，用伊维菌素治疗](https://gnews.org/zh-hans/1507052/)
+
+
+
+
+
+> [NIH在7月份已将伊维菌素纳入治疗中共病毒推荐药物](https://gnews.org/zh-hans/1604629/)
+
+
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

@@ -2,39 +2,37 @@
 ---
 
 
-## 中共病毒溯源：承认自然起源可获百万美元
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1606789/)
+## 辉瑞儿童疫苗：白宫内应“极速”的疫苗接种计划
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1606816/)
 
 编译：西班牙喜悦农场–wenwu
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-2-12.jpg)图片来源：thenationalpulse.com
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-4-8.png)图片来源：zerohedge.com
 
-Malik Peiris 博士曾在《柳叶刀》医学杂志的 COVID-19 起源调查委员会任职，他的研究在于帮助中共关于中共病毒（COVID-19）自然起源的错误说法，并因此获得了中共国的”诺贝尔奖”。
+拜登政府周三公布了其计划“快速”为大约 2800 万名 5-11 岁儿童接种疫苗，等待美国食品和药物管理局 (FDA) 的批准。
 
-Peiris 是[一名](https://thenationalpulse.com/news/lancet-scrubs-entire-covid-origins-team/)在香港工作的斯里兰卡病毒学家，他是领导[现已解散的](https://www.wsj.com/articles/covid-19-panel-of-scientists-investigating-origins-of-virus-is-disbanded-11632571202)《柳叶刀》调查 COVID-19 起源的12 位科学家之一。虽然该工作组已不再列在该医学期刊的网站上，因为它因与武汉病毒研究所的广泛[利益冲突](https://thenationalpulse.com/exclusive/lancets-jeffrey-sachs-covid-commission-chair-ccp-ties/)而被迫解散，但[存档](https://web.archive.org/web/20210126092406/https:/covid19commission.org/origins-of-the-pandemic)网页显示 Peiris [参与](https://web.archive.org/web/20210623213920/https:/covid19commission.org/malik-peiris)了这项工作。
+接种中共疫苗–并[不能阻止](https://www.zerohedge.com/covid-19/white-house-details-plan-quickly-vaccinate-28m-children-age-5-11)中共病毒（Covid-19）的传播。据美联社（AP)[报道](https://apnews.com/article/coronavirus-pandemic-business-health-coronavirus-vaccine-bf6e5c8725aca6c757b129dad8f96926)，白宫预计美国食品和药物管理局（FDA）将在几周内授权为儿童注射辉瑞公司的中共疫苗–听起来像打一针后不会感染或死于中共病毒：
 
-在 Peiris 在工作组任职之后，中国共产党将 2021 年未来科学奖中的生命科学奖（称为中共国的“诺贝尔奖”）[授予](http://www.futureprize.org/en/laureates/detail/54.html)了他。这是中共国的最高科学荣誉，还[伴随着](https://www.thestandard.com.hk/section-news/section/4/234120/HKU-medicine-profs-win-'China's-Nobel-Prize') 100 万美元的奖金，最终由[百度](https://qz.com/1708662/chinese-tech-giants-tools-of-the-communist-party-us-official/)、[高瓴](https://thenationalpulse.com/politics/tiktok-ccp-investor/)资本（Hillhouse Capital）和[红杉](https://thenationalpulse.com/news/revealed-lincoln-project-donors-include-romneys-bain-capital-ccp-linked-secquioa/)资本(Sequoia Capital China）等多家与中共有关的公司[资助](http://www.futureprize.org/en/nomination.html)（支付）。
+“联邦监管机构将在未来两周内举行会议，权衡给孩子们打疫苗的好处，此前的漫长研究旨在确保疫苗的安全性；预计 CDC 定于 11 月 2 日[至](https://apnews.com/article/coronavirus-pandemic-science-health-coronavirus-vaccine-centers-for-disease-control-and-prevention-84ff9189e142536f90940366bcfa3f22)3 日举行的疾病控制和预防中心咨询会议之后，而且正式批准后的数小时内，[将开始向全国各地的供应商运送药物](https://apnews.com/article/coronavirus-pandemic-science-health-coronavirus-vaccine-centers-for-disease-control-and-prevention-84ff9189e142536f90940366bcfa3f22)，以及注射幼儿所需的较小针头，几天内（极速）将准备好大规模投入孩子们的怀抱。”——AP
 
-国营[媒体](https://www.globaltimes.cn/page/202109/1234039.shtml)《环球时报》声称，该奖项是为了表彰他“发现 SARS-CoV-1 是 2003 年全球 SARS 爆发的病原体，对防治 COVID-19 和新兴的传染病具有重要影响。” Peiris 与合著者袁国勇（Kwok-Yung Yuen）等4人分享了该奖项（如下图）。
+根据该公告，白宫已经为注册需要疫苗的幼儿的儿科医生和初级保健医生提供了足够的2.5万多剂疫苗，而美国国现在有足够的辉瑞公司疫苗为大约2800万（即将符合条件的儿童）接种中共疫苗，这意味着这不会像我们10个月前看到的那样缓慢推出，当时剂量和能力问题意味着成年人必须等待。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-3-9.png)图片来源：thenationalpulse.com
+与此同时，白宫正在推出一项**“**广告**”**活动，以试图说服父母和孩子相信中共疫苗是安全和有效的。根据该报告，“拜登政府相信值得信赖的使徒——教育工作者、医生和社区领袖——就是那些宣传接种中共疫苗是至关重要的（受益者）。”
 
-在接受中国共产党管理的媒体机构的独家采访时，袁[断言](https://island.lk/lankas-malik-peiris-shares-chinas-nobel-prize-of-usd-1-mn-with-yuen/)：“这不仅是在中共国最重要的奖项之一，也是国际上最重要的奖项之一。”
+“中共病毒也扰乱了我们孩子的生活。它使学校变得更加困难，它扰乱了他们与朋友和家人见面的能力，它使青少年体育更具挑战性，“外科医生 Vivek Murthy 博士在周三向 *NBC* 发表的一份声明中说。“让我们的孩子接种中共疫苗，我们才有保护他们的前景，这也是让所有的小孩子恢复过去正常日子和社交活动的方法。”
 
-Peiris 的研究受到奖项评审员的称赞，称其在追踪 COVID-19 起源方面发挥了不可或缺的作用，评审员王晓东指出，“由于他们的贡献，中共国科学家能够快速确定中共病毒（COVID-19）大流行的原因。” 很显然，港大的这项研究支持了中国共产党的[虚假](https://thenationalpulse.com/exclusive/wuhan-lab-erases-nih-ties-gof-research/)叙述，即 COVID-19 是自然形成的，而不是从实验室逃逸出来的。
+据 Murthy 称，拜登政府正在将疫苗授权（拒绝接种疫苗必将接受惩罚）的问题留给学校、地方和州官员。
 
-正如《环球时报》所解释的那样，Peiris 的研究有助于“支持 SARS-CoV-2 的蝙蝠起源”：
+“当涉及学校要求时，这些决定是由地方和州做出的，”Murthy 说：“你已经看到一些地方和州正谈论对儿童的疫苗要求。我认为考虑提高这些疫苗接种率是合理的。这也与我们为其他儿童疫苗所做的工作一致，比如麻疹、腮腺炎、小儿麻痹症。”
 
-当被问及他们的发现如何影响人们对 COVID-19 病因的理解时，袁解释说，由于他和他的团队在 2005 年发现马蹄蝠是 SARS-CoV-1 的天然动物宿主（祖先），他们认为 SARS- CoV-2 “在跳入人类之前，也从蝙蝠传播到了另一种哺乳动物。”
-
-此外，SARS-CoV-2 在蝙蝠和人类肠道器官中复制得很好，这进一步支持了 SARS-CoV-2 的蝙蝠起源，他说。
+美国政府已经购买了 6500 万剂辉瑞儿科中共疫苗——预计其中区别就是，含有成人和青少年剂量的三分之一。FDA 的独立咨询委员会将于 10 月 26 日召开会议，考虑授权辉瑞为 5-11 岁儿童接种中共疫苗。
 
 （文章仅代表作者观点与GNEWS无关）
 
-**新闻来源：**[thenationalpulse][Lancet COVID Origins Investigator Wins $1 Million Chinese Prize For Claiming Virus Developed Naturally.](https://thenationalpulse.com/exclusive/lancet-covid-investigator-wins-china-nobel-prize/) | 作者：Natalie Winters｜发布时间：2021年10月20日
+**新闻来源：**[zerohedge][White House Details Plan To “Quickly” Vaccinate 28M Children Age 5-11](https://www.zerohedge.com/covid-19/white-house-details-plan-quickly-vaccinate-28m-children-age-5-11) | 作者：TYLER DURDEN｜发布时间：2021年10月20日
 
 * * *
 
 *发稿：信心的选择*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
