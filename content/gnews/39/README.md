@@ -2,28 +2,37 @@
 ---
 
 
-## 美房屋建筑商协会CEO：供应链是住房市场迫在眉睫的危机
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1608072/)
+## 文贵先生谈喜币与法币、货币的关系
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1608203/)
 
-【简评：】***2021年新开工建筑许可证下降7.7%，房屋开工率下降1.6%，多户家庭开工率下降18.3%。房地产相关数据比预期的要差得多，这些数据也显示了房屋需求端的萎缩。***
+作者：纽约香草山教育部– 正义的小新
 
-据《布赖特巴特新闻网》记者：IAN HANCHETT，2021年10月18日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2599.png)图片来源：《布赖特巴特新闻网》
-美国全国房屋建筑商协会(National Association of Home Builders)首席执行官杰里·霍华德(Jerry Howard)周一在《福克斯商业新闻网》的《瓦尼专题》节目中表示，“如果我们不尽快解决供应链问题，它将成为一个大问题，这是一个迫在眉睫的危机。”霍华德还表示，我们正在考虑将房价上涨“至少几千美元，这取决于你在哪里以及你在谈论什么（房屋）产品。”
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-霍华德说:“如果我们不尽快解决供应链问题，它将成为一个大问题。从木材，到石膏板，到混凝土，再到家电的供应，都有三到四个月的延迟，因为这些产品都在全国各地港口的船上。这是一场迫在眉睫的危机。”
+关于法币、货币与比特币、喜币之间的区别和联系，文贵先生在周三的大直播中做了详细的解读。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/数字货币-1.jpg)
+文贵先生提及，货币是金、银等具体物质。而法币，则是在某个区域内，政府强制使用的、代表生产力及剩余价值的衡量价值券。因此，政府发行法币的核心，就是不能用其来兑换任何金银。直至虚拟货币的出现，改变了货币发行的规则和权利。
 
-他补充说，“显然，时间就是金钱，耽误的越长，房价就会越高。现在，我们预计房价至少要涨几千美元，这取决于你在哪里，你谈论的是什么产品。正如您在之前的租赁市场报告中所说，住房负担能力是个问题。现在，这已经成为首次购房者市场的一个问题。这对房地产和经济来说都不是好兆头。”
+文贵先生强调，虚拟货币去中心化的根本目的在于去除第三方代理人，即去除政府发行货币的权利和规则。另外，虚拟币的代码不可篡改、不可造假，所以在长链数据中，时间戳及交易数据均不能被更改，所有交易账本应对所有人开放。
 
-原文连接：[https://www.breitbart.com/clips/2021/10/18/natl-association-of-home-builders-ceo-supply-chain-a-looming-crisis-for-housing-market/](https://www.breitbart.com/clips/2021/10/18/natl-association-of-home-builders-ceo-supply-chain-a-looming-crisis-for-housing-market/)
+至于比特币，文贵先生指出，比特币是技术“去中心化”，责任“去中心化”，且不可找、不可查，因而在暗网中被用来作为犯罪洗钱的工具。而喜币则恰恰相反——喜币是技术“去中心化”，责任“中心化”，从喜币诞生的第一天起就有法人对其负责。加之全人类有史以来，只有喜联储可以作为人类历史上唯一的生产力，能不受国家主权范围的限制，且与黄金量化挂钩。
 
-（本文评论仅代表个人观点）
+文贵先生点名，喜币“去中心化”的技术，使其不可被追踪、不可被剥夺，再加上其法币、货币化的属性，这就是它优于其他任何虚拟货币的力量。
+(本文仅代表作者观点)
 
-翻译：洛杉矶盘古农场 – 钢蛋儿
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 明子
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+参考链接：[2021年10月20日 文贵大直播： (1). 喜币是最真实干净的革命性货币，喜支付的商业历史性意义](https://gtv.org/broadcast/watch/61700c08304e992109b806ef)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Irene木木 
+编辑：Irene木木
+校正/发稿：Fei
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

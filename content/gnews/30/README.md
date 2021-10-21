@@ -2,37 +2,59 @@
 ---
 
 
-## 阿里巴巴等中共上市公司恐面临外国投资者集体诉讼
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1608154/)
+## 数千加州家长“散步”抗议，反对学生疫苗强制令
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1608274/)
 
-作者：纽约香草山文艺部 – 宁文静
+翻译：Lulumi
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/California-vaccine-mandate-protest-e1634654436920-900x506-1.jpeg)2021年10月18日，在加州亨廷顿海滩，数百名家长、教师和学生在亨廷顿海滩码头附近集会，作为全州 “罢工”的一部分，谴责加州对K-12学生的COVID-19疫苗强制令。(Vanessa Serna/The Epoch Times)
 
+数以千计的加州家长参加了全州性的罢工，反对对学生的疫苗授权。
 
+数以千计的加州家长、学生和教师周一参加了全州范围内的游行，抗议加文·纽森(Gavin Newsom)决定强制所有公立和私立学校的学生接种COVID-19疫苗。
 
-在10月20日的大直播中，郭文贵先生进一步揭开了马云，其所谓飞往西班牙“度假”的面纱。郭先生提到，马云并未充分披露被中共当局刑事调查的事实，如果因此给外国投资者造成损失，恐将面临他们的集体诉讼。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1021AM（1-9）視頻備用.001.jpeg)
-此前，马云先是宣布卸任阿里巴巴集团董事局主席，但继续担任集团董事会成员。随后，马云甚至辞去了集团董事的职务。 即便如此，去年4月，中共仍旧给马云发放了“刑事调查侦查书”以及 “经济犯罪调查书”。此后，马云便处于间歇性失踪状态。
+民主党人纽森本月早些时候宣布，一旦疫苗获得联邦食品和药物管理局（FDA）的全面批准，将对7至12年级的学童进行疫苗接种，使加州成为第一个实施此类要求的州。
 
-据悉，这些调查均发生在马云仍然担任阿里大股东期间，因此构成了上市公司、重大事项未向公众披露的事实。 此外，潘石屹、王健林、马明哲、许家印等中共企业家都存在类似隐瞒欺诈的行为。
+到目前为止，FDA只对12至15岁的人给予紧急授权（意味着疫苗公司和**FDA**对疫苗副作用不承担任何责任）。纽森的最新疫苗强制令预计将于2022年1月或2022学年开始时生效。
 
-在法律健全、金融监管有效的民主国家体系中，一旦这类暗箱操作的中概股公司，给社会养老与保障基金、或者普通投资者造成严重损失，巨额的赔付将令这些公司岌岌可危。
-(本文仅代表作者观点)
+反对这些措施的加利福尼亚人，蜂拥到加州国会大厦的台阶上，举着写有 “我的身体，我的选择”和 “我的孩子不会成为让你感到安全的科学实验品”的标志。
 
-参考链接：[2021年10月20日 文贵大直播：(2). 马云在被进行刑事调查时没有及时如实公告，马云在西班牙操纵股价，蔡中信的房子是马云的，他洗掉了马云75%的钱;](https://gtv.org/video/id=61700c08304e992109b806ee)
+全州许多家长让他们的孩子离开学校参加集会，希望他们的缺课能向州政府官员传递拒绝疫苗的信息。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+一位萨克拉门托的母亲，32岁的肯德尔·拉默（Kendall Ramer）告诉美联社，她让她的两个孩子离开小学去参加集会，并补充说，一旦纽森的疫苗强制令生效，她和她的丈夫计划转为在家教育。
 
-总编：Irene木木 
-编辑：Irene木木
-校正/发稿：我不在这里
+她说：“每个人都应该能够自己选择对自己有利的东西”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+洛杉矶联合学区雇员霍维克·萨蓬吉安（Hovik Saponghian）告诉SkyFOX，学童不应该被强迫 “在没有完整数据的情况下注射未知的东西”。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+萨蓬吉安说：“我在这里抗议这项强制令，因为我们不认为我们应该在宗教上、伦理上或道德上接受它”。
+
+洛杉矶联合学区（LAUSD）的家长里马·姆希特兰（Rima Mkhitran）告诉新闻媒体，她参加集会是因为 “我们希望我们的孩子和我们的老师有选择权”。
+
+她说：“作为一名家长，我认为我有权利和其他家长一起为我们的孩子站出来。”
+
+洛杉矶区家长娜拉·瓦尔达雷扬（Nara Vardaresyan）补充说：“我不想为我的孩子接种疫苗，因为他们还太小。没有任何研究显示疫苗长期的影响。我们应该等上几年。”
+
+数百名家长和学生也聚集在最近的Placentia Yorba Linda联合学区（PYLUSD）董事会会议上，表达他们对中共病毒COVID-19疫苗任务的反对。
+
+Placentia学区的克里斯汀·莫滕森（Kristen Mortensen）对《大纪元时报》说：“疫苗太新了，不应该给我们100%的孩子注射，我们需要有一个选择。”
+
+该区两个学生的父亲里克补充说：“我在这里为我孩子的权利和我们县的所有孩子站出来。他们不应该被注射一些还没有长期研究的东西。”
+
+纽森强制要求学童接种中共病毒COVID-19疫苗的计划得到了不同的反馈，西弗吉尼亚州州长吉姆·贾斯蒂斯在10月3日宣布，他“没有可能”做同样的事情。
+
+共和党人贾斯蒂斯告诉哥伦比亚广播公司的 “面向全国”节目：“从疫苗强制令的角度来看，我不相信任何强加于我们自由的东西。我已经一次又一次的说过了，我不知道我还得说多少次。”
+
+“但从我们孩子的角度来看，我仍将以各种方式鼓励，因为我真的相信，我们接种疫苗的人越多，死亡的人就越少。与此同时，我们仍然要坚持我们是谁。”
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**参考资料：**[ntd][Thousands of California Parents Join in Statewide Walkout Against Vaccine Mandate for Students](https://www.ntd.com/thousands-of-california-parents-join-in-statewide-walkout-against-vaccine-mandate-for-students_690513.html)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)

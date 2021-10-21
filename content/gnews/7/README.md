@@ -2,25 +2,20 @@
 ---
 
 
-## 汽油煤油价格高涨，电力、天然气上涨1000日元以上
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1608334/)
+## 加拿大下议院通过对所有议员的疫苗强制接种令
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1608489/)
 
-#### 撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-13.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fzh-cn.learn.canva.com%2Fwp-content%2Fuploads%2Fsites%2F17%2F2019%2F12%2F%25E6%25B6%25A8%25E4%25BB%25B7%25E9%2580%259A%25E7%259F%25A5%25EF%25BC%258C%25E4%25B8%258D%25E4%25BC%259A%25E8%25AE%25A9%25E4%25BA%25BA%25E5%258F%258D%25E6%2584%259F%25E7%259A%2584%25E5%25B0%258F%25E6%258A%2580%25E5%25B7%25A7-%25E5%25B0%2581%25E9%259D%25A2.png&amp;imgrefurl=https%3A%2F%2Fwww.canva.cn%2Flearn%2Fnotice-of-price-rise%2F&amp;tbnid=NFNvOkA1xC_ecM&amp;vet=12ahUKEwj4uafjzNvzAhXvyIsBHY3gA10QMygLegUIARC4AQ..i&amp;docid=lWhCqo6aWjMCaM&amp;w=900&amp;h=383&amp;q=%E6%B6%A8%E4%BB%B7&amp;hl=zh-CN&amp;ved=2ahUKEwj4uafjzNvzAhXvyIsBHY3gA10QMygLegUIARC4AQ)
-日本共同通信10月20日报道，12家主要的电力公司、4家主要的天然气公司将在12月份上调家庭用电、燃气的价格。由于原油和液化天然气价格随世界经济复苏而飞涨，东京、中部和冲绳的标准家庭电价将较1月份上涨1000日元以上。
+编译撰稿：硫酸羟氯喹64
 
-汽油和煤油价格也在上涨，这在冬季供暖需求上升时将给家庭带来经济压力。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a1-edited.jpg)图片来源：后千禧年
 
-电力和天然气公司已连续4个月上涨价格。与11月相比，冲绳电力的价格涨幅最大，单位价格约为141日元。中部电力公司是127日元、中国电力公司是120日元、东京电力公司是114 日元。
 
-信息来源：
+据加拿大自媒体《后千禧年》10月19日报道，加拿大最高领导层已经决定，所有议会议员和相关工作人员如果想进入下议院辖区内，则都必须接种“新冠病毒疫苗”。
 
-[電気ガス、千円超値上がりも　年初比、ガソリン灯油高騰](https://news.yahoo.co.jp/articles/9e30b20ae0ea37e478f19f1c4eb3840bacb9d8a6)
+这项于10月19日被制定的“疫苗强制接种令”明确规定：进入下议院的每个人，包括国会议员等都必须在11月22日之前接种该疫苗。该限制令将适用于任何希望进入下议院辖区的人士，包括议员及其工作人员、政治研究办公室雇员、行政部门雇员、议会记者席成员、议会商务访客、承包商和顾问等。
 
-[日本汽油价格创7年来新高](https://gnews.org/zh-hans/1590983/)
+此前，加拿大首席卫生官谭咏诗曾无奈表示：很难也很复杂在联邦机构层面统一实施该“疫苗强制接种令”。对此，总理特鲁多指出：该疫苗授权令被集体通过是一次“民主的胜利”。加拿大议会将于11月22日恢复工作。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+（以上内容仅代表原文信息和作者个人观点）
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+[原文链接：](https://thepostmillennial.com/house-of-commons-to-adopt-vaccine-mandate-for-mps)

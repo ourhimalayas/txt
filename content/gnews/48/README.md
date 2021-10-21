@@ -2,61 +2,36 @@
 ---
 
 
-## FDA 表示不再购买流产胎儿的细胞组织
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1607833/)
+## 杀人放火金腰带
+` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1608000/)
 
-**编译：西班牙喜悦农场–wenwu**
+By：银河勇气星｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-67.jpg)图片来源：网路
+国内的私人企业家被共产党处置得有多惨？以马云为例子，被拿着假护照的部队人员，一行20多人，绑到西班牙，去处理自己的海外资产，全部拿回来孝敬给共产党。并把此类消息作为美国上市公司阿里巴巴的风向舆情吹到了媒体上，对美国持股人进行诈骗，哄抬股价。不仅马云，潘石屹张欣夫妇被通缉，王健林柳传志董文标都被抓了。阿里巴巴被抓的还有20多个高管呢，每个身价都不菲。接下来都是和马云同样的操作模式。很像很多年前的王健一样。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip46.png)Jason Armond : Los Angeles Times via Getty Images
+很多在美国上市的公司，一旦其负责人处于官司中，是一定要发一个公开的函，或者是要告诉美国政府，自己被调查。如果没有这样一个公开的通知，那好了，刑事犯罪条目已成立。七哥在直播中讲到的无数个企业家，都是国内耳熟能详，底下一堆人哭哭啼啼要叫爸爸，大大的人物，在被中共发出刑事调查以后，都没吱声。可惜了，这些人一点法律常识都没有。或者有法律常识，但是全部徘徊在侥幸边缘。
 
-美国食品和药物管理局(FDA)周五向 Daily Caller News Foundation 保证，自 2018 年以来，它没有签订任何“购买人类胎儿组织”的合同。
+之前一直认为国内这么大的企业家，他们怎么就不知道习要抓他们呢？怎么就没有准备好退路呢？原来，他们一直谋划着要杀掉习，并且以为自己一定会成功。一个正常健康的法治社会，任何人都可以去谋求政治，川普做了那么多年的商人，谋求多年，心愿达成，做上了美国总统。同理的，马云，潘石屹，董文标，王健林这些国内的私人企业家，也是有合理地谋求政治的诉求，社会发展的必然。但是共产党这里，不允许你图谋政治图谋皇位，若放在古代，你想谋求朕的皇位，你就算是我的亲儿子，也要杀你。皇帝就是天子，天子就是天之子，作为天的儿子来管理老百姓的。历朝历代的天子，都无比相信自己就是天的儿子，无论做什么淫乱后宫，乱杀臣民，驭民之术，都觉得理所应当。当代的天之子习，甚至要向天续个五百年，五百年太短，想要千秋万代，心里想想也不行，得写进宪法里。不写进宪法里，如何让现世知道，如何让后世知道。现世不知，后世不闻，如何千秋万代？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-102.jpg)图片：骄子
+在文贵先生开始爆料的时候，相信很多国内的有些资格的企业家，心里都这么想过，文贵是不是想自己做新中国的大总统？因为这确实是有钱私人企业家的共同谋求。别说他们了，就连哪些伪类们，那些在国外天天管人伸手要饭的人都这么想，而英文媒体一开始对新中国联邦的报道都是“海外流亡政府”。不得不说，有的时候政治蛋糕确实比经济蛋糕甜，尤其受众是国内老百姓的时候。在中共国，哪个人不管你是谁，想赚钱你要先给政府送钱，越做越大最后做成了马云，那你就替老杂毛替私生子代持资产，做白手套。你要是不送钱，光想靠自己挣钱，那你稍微有点钱，共产党就给你各种使绊子，你随随便便就可以把身家全部搭进去。所以像马云这样的企业家，他一定要谋求政治，马明哲那都搞的是政治，政治商人。商业模式这些东西，老杂毛又不懂，骗一骗权力可以谋求多大的财富，马云急红了眼。
 
-FDA 的回应是在《司法观察》获得的[**文件**](https://www.judicialwatch.org/press-releases/new-fda-records-humanized-mice/)发布后作出的，该[**文件**](https://www.judicialwatch.org/press-releases/new-fda-records-humanized-mice/)显示 FDA 曾采购了人类胎儿器官、组织和头颅用于涉及“人源化小鼠”的研究。《司法观察》的[**先前文件**](https://www.judicialwatch.org/press-releases/fda-humanized-mice/)显示，FDA 要求采购“新鲜且从未冷冻”的胎儿器官清单。[（相关：未密封的发票显示，计划生育协会向一家细胞组织公司支付了近 2.5 万美元的胎儿部位商品费用）](https://dailycaller.com/2020/04/14/planned-parenthood-david-daleiden-stemexpress-fetal-body-parts-payments-lawsuit/)
+能够想象到的就是，文贵先生在海外爆料，这些国内的私人企业家在策划着习出事儿。讲老实话，这些私人企业家都是要回报的，政治回报。所以直到文贵先生从2017年开始爆料至今，他们一直认为文贵先生和他们的诉求一样，推翻习，自己上去做皇帝，他们认为文贵先生是他们的竞争者。这些私人企业家看不上爆料革命，真得，像马云，人都快死了，还在侥幸，觉得自己能活，不然他买通身边一半人干什么。也可以说中国人不团结，不团结那是历来深刻的原因，孙中山在海外不是还被自己的同胞追杀嘛。可是现在不是那个时候了，中国人是可以团结的，不说别的，新中国联邦这么多农场用来干什么的。尤其心痛的是阿里巴巴的20多个高管，家人都被抓，你能比马云能耐吗？文贵先生向这些私人企业家喊话，真心希望你们能够站出来揭发共产党的邪恶，如果真心想要终结这个邪恶体制，早早联系了，如果就是想自己做独裁，喊了也白喊，能救他的命他觉得你要害他，人和人的距离有时候就是这么遥远。
 
-“我已经做了 23 年了。我们从 FDA 和我们的其他诉讼中获得的这些文件……它们是我生来见过的最糟糕的文件，”《司法观察》主席汤姆·菲顿（Tom Fitton）周五告诉 Daily Caller News Foundation Friday。“我生来见过的最令人不安就是这文件了。”
+杀人放火金腰带，那是独裁制度的专利，你违法，你杀人，给你奖励，让你上瘾。你觉得恨但你离不开，那毕竟不是人应该呆的地方。新中国联邦要创造一个新人类聚集的空间，虽然每天都在看新中国联邦，看爆料革命看七哥，有些地方是真得看不懂的。只能区分出和以前的不同，至于一些全新的理念，真得需要时间来理解。
 
-在周五给 DCNF 的一份声明中，FDA 并未否认购买未出生婴儿的身体部位（商品），并淡化了其对人类胎儿组织的使用，称其仅用于“对了解药物和疫苗的安全性至关重要的情况，且无法通过其他方式来实现。”
 
-“自 2018 年以来，FDA 没有签订任何购买人类胎儿组织的合同，”FDA 告诉 DCNF，并补充说“之前涉及人类胎儿组织的研究仅占 FDA 总研究的很小一部分。”
-
-《司法观察》通过 2019 年信息自由法案 (FOIA)对美国卫生与公共局 (HHS)[提起的诉讼](https://www.judicialwatch.org/press-releases/judicial-watch-sues-health-and-human-services-for-documents-on-human-fetal-tissue-used-in-humanized-mice-testing/)，获得了这些跨越 2012 年和 2013 年的通信。[（相关：计划生育协会的员工作证，她想以每人 750 美元的价格出售胎儿肝脏）](https://dailycaller.com/2019/12/09/planned-parenthood-tram-nguyen-fetal-livers/)
-
-《司法观察》的诉讼要求 FDA 与人类胎儿组织供应商 Advanced Bioscience Resources (ABR) 之间的所有通信和文件，这些文件涉及拟用于人源化小鼠研究的人类胎儿组织——研究人员[将](https://www.niaid.nih.gov/research/humanized-mouse-model-workshop)未发育的人类组织细胞植入活体小鼠体内的过程。
-
-根据《司法观察》报道，一家联邦法院[随后命令](https://www.judicialwatch.org/wp-content/uploads/2021/03/JW-v-HHS-order-00876.pdf) HHS 公布更多关于流产胎儿组织收获的信息，并[表示](https://www.judicialwatch.org/press-releases/aborted-fetuses-information/)“有理由质疑”这些交易是否违反了禁止销售胎儿器官的联邦法律。
-
-胎儿组织已被[用于](https://chancellor.ucsf.edu/blog/response-administrations-actions-fetal-tissue-research)一些为寻求治疗方法的[研究项目](https://senate.universityofcalifornia.edu/_files/reports/rm-jn-mb-restrictions-fetal-tissue-research.pdf)，包括阿尔茨海默氏症、脊髓损伤、眼疾和艾滋病毒，但宗教和反堕胎倡导者认为这种做法是不道德的，因为胎儿组织来自流产的婴儿。 [（相关：胎儿组织研究对医学至关重要吗？专家是这样说的）](https://dailycaller.com/2019/06/07/fetal-tissue-research/)
-
-在前美国总统唐纳德·川普(Donald Trump)执政期间，HHS [对](https://dailycaller.com/2019/06/05/trump-cancel-fetal-tissue-research-government-funding/)由美国政府资助的涉及[选择性流产胎儿组织的](https://dailycaller.com/2018/08/17/planned-parenthood-video-abortions/)研究[进行](https://dailycaller.com/2019/06/05/trump-cancel-fetal-tissue-research-government-funding/)了为期九个月的审查 ，最终 HHS 在 2019 年 7 月禁止 NIH 内部研究团队使用胎儿组织。
-
-值得一提的是，拜登政府在今年 4 月份[撤销了](https://dailycaller.com/2021/04/16/joe-biden-roe-v-wade-department-of-health-and-human-services-donald-trump/?filter_by=popular&amp;p=374&amp;page=66&amp;ref=hexometer)这项禁令。
-
-“所以现在拜登政府的 FDA 正在为制造中共疫苗而选择使用未出生人类的部分商品，并为之辩护，”Fitton 对 DCNF 说。“这就是他们要干的事情？”
-
-“很少有美国人会支持将未出生人类的遗骸切碎用于科学研究，使用他们的器官，出售他们的头颅，用于FDA和他们的研究人员想做的任何弗兰肯斯坦实验，”Fitton 对 DCNF 说。”这是野蛮行为。应该进行刑事调查，以弄清是否像法院所建议的那样，违反了禁止销售胎儿器官以谋取暴利的法律。”
-
-美国计划生育协会（The Planned Parenthood Federation of America）一再为自己的[指控辩护](https://dailycaller.com/2020/04/14/planned-parenthood-david-daleiden-stemexpress-fetal-body-parts-payments-lawsuit/)，就是关于其出售人类胎儿组织的指控。该组织[公开](https://www.wsj.com/articles/planned-parenthood-stops-taking-reimbursements-for-fetal-tissue-1444744800)承认他们因为销售胎儿组织获得了报酬，但他们只承认用来报销费用（没有利润，可能吗？），随后表示他们将不再接受报销费用（资金来源被隐藏了）。
-
-像大卫·达莱登 (David Daleiden，如下图) 这样的反堕胎倡导人士[此前曾指出](https://www.foxnews.com/politics/pittsburgh-live-fetus-organs)，一些未出生的婴儿在摘取器官时可能会出现心脏活动，这表明这些婴儿可能还活着。FDA 没有立即回应关于这一点的评论请求。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip45.png)
-
-**简评：**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip47.png)
-
-**一则相关[报道](https://www.judicialwatch.org/in-the-news/new-records-aborted-babies/)。有新记录[显示](https://www.lifenews.com/2021/09/14/new-records-show-obama-admin-purchased-aborted-babies-heads-for-515-each/)，奥巴马政府以每个 515 美元的价格购买了流产婴儿的头部。**
-
-**《司法观察》于2021年9月15日宣布，其收到了美国食品和药物管理局 (FDA) 的 [198 页](https://www.judicialwatch.org/documents/jw-v-hhs-fda-humanized-mice-may-2021-00876/)记录和通讯，涉及“[人性化小鼠](https://www.ewtn.com/catholicism/library/fetal-experimentation-frankenstein-revisited-9610)”（HM）对人类胎儿头部、器官和组织的研究，包括与人类流产胎儿组织提供商 Advanced Bioscience Resources 的通讯和合同(ABR)。**
-
-**这对华人的冲击是很大的，因为华人经历过毛时代的“计划生育”，这导致了5亿华人的婴儿流产死亡。那么在疫情大流行的当下，您还相信这里面没有利润吗？我们要好好去想想。当然，也包括了中共疫苗。**
-
-（文章仅代表作者观点与GNEWS无关）
-
-**新闻来源**：[dailycaller.com] | [FDA Says It Does Not Buy Fetal Tissue — Any More](https://dailycaller.com/2021/09/17/fda-aborted-fetal-tissue-humanized-mice/)| 作者：MARY MARGARET OLOHAN｜发布时间：2021年9月17日｜
 
 * * *
 
-***发稿：信心满满***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
+（文章内容仅代表作者观点）
+
+
+
+作者：骄子
+审核：兵嫂、天雷滚滚
+发布：骄子
+
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/欢迎战友回家.jpeg)
