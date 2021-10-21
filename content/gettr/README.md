@@ -17,10 +17,10 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 10/21/2021 12:40 AM (UTC)`
+`@miles 10/21/2021 12:41 AM (UTC)`
 
-直播测试 Livestream Testing
-![img](https://media.gettr.com/group11/origin/2021/10/21/00/d7becfd8-7ba0-f70c-789d-f7e23eb16a4f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+10/20/2021 Miles Guo: When Jack Ma, Bruno Wu, Wang Jianlin, Peter Ma, and Pan Shiyi were arrested, they were legal representatives, chairmen, or shareholders of the companies listed in the US. Alvin Jiang was arrested twice in 2020. According to U.S. law, failure to announce the chairman of a listed company is under investigation is a criminal offense and the company is liable for stock losses. Any shareholder has the right to sue and will win 100% for sure. Jack Ma is suspected of multiple economic crimes of failure to disclose the changes in the IPO. Pan Shiyi and his wife will surely go to jail<br/><br/>10/20/2021文贵直播： 马云、吴征、王健林、许家印、马明哲、潘石屹等人被抓时都是美国上市公司法人、主席或股东，江志成在2020年两次被抓；美国法律规定，隐瞒上市公司主席被调查属刑事犯罪，该公司要承担股票损失。任何持有这些股票的股民都有权起诉，且100%会赢。马云还涉嫌多次隐瞒上市信息变更的经济犯罪；潘石屹两口子一定会进监狱<br/>
+![img](https://media.gettr.com/group23/getter/2021/10/21/00/41/0af03106-73de-de1a-9aa6-5cb3da763d56/out.jpg)
 
 ---
 
