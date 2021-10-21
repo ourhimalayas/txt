@@ -2,110 +2,40 @@
 ---
 
 
-## 江志成气数已尽，将死于非命
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1609313/)
+## NIH打脸福奇，承认武汉病毒研究所进行功能增强试验
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1609354/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/555-wzywl-2.jpg)
-[https://gtv.org/video/id=6170da38c1d11973d3c5fae7](https://gtv.org/video/id=6170da38c1d11973d3c5fae7)
+**撰稿：日本东京方舟农场 北极**
 
-**郭文贵：**
-**Miles Guo：**
+10月20日，NIH（国家卫生研究院）首席副主任致信众议院监督委员会詹姆斯·科默（James Comer），承认NIH批准并资助了纽约生态健康联盟和武汉病毒研究所，对蝙蝠冠状病毒进行功能增强试验。
 
-我见过这个风水先生
-I’ve seen the feng shui master
+据布赖特巴特报道，NIH首席副主任劳伦斯·塔巴克（Lawrence A. Tabak）博士在致众议院监督委员会詹姆斯·科默（James Comer）的信中说，NIH资助了2018-2019年期间纽约生态健康联盟与武汉病毒研究所合作的一项研究，该研究包括对蝙蝠冠状病毒基因组测序，同时还测试了”蝙蝠冠状病毒的刺突蛋白是否能够与人源化小鼠的ACE2受体结合”的试验。而后者正是病毒功能增强试验，它提高了蝙蝠冠状病毒对人体的致病性。
 
-我说这个共产党干掉令计划的儿子
-I said Chinese Communist Party killed the son of Jihua Ling
+![](https://assets.gnews.org/wp-content/uploads/2021/10/w1280-p4x3-2021-02-18T202805Z_159612348_RC28VL9CU65H_RTRMADP_3_HEALTH-CORONAVIRUS-FAUCI.jpg)图片来自于网络
 
-干掉令谷以后
-After killing Gu Ling
+另据 GNEWS 7月25日报道，参议员兰德·保罗（Rand Paul）曾两次在国会质疑福奇是否资助了纽约生态健康联盟和武汉病毒研究所的功能增强试验，均遭对方否认。
 
-他们会带来什么样的代价，
-what price the CCP will pay
+*注：本文仅代表作者观点，与 Gnews无关*
 
-他说：颠倒乾坤
-he said: the world will turn upside down
+*参考链接：*
 
-我说到底是江家干的？
-I asked: was the Jiang family did it?
+[NIH Contradicts Fauci, Admits Funding Gain-of-Function Research at Wuhan Lab](https://www.breitbart.com/politics/2021/10/20/nih-contradicts-fauci-admits-funding-gain-of-function-research-at-wuhan-lab/)
 
-还是那个谁家干的？咱就不说了
-Or who did it? Let’s not talk about it
 
-他说，绝对是江家干的
-He said it was definitely the Jiang family did it
 
-我说好. 我说我从来不相信你们这些
-I said ok. I said I never trust your Feng shui masters
+> [参议员兰德·保罗，福奇的撒谎行为来自于精英主义](https://gnews.org/zh-hans/1421026/)
 
-这些风水大师们（我）从来不信，但是我问
-I never believe in these Fengshui masters, but I’ll consult
 
-因为你能佐证我的正确性与不正确性
-cause it will corroborate my correctness and incorrectness
 
-你给我预测预测， He gave me a prediction,
 
-其中就预测一道
-one of predictions is
 
-他说江家的孙子江志成活不长
-Jiang Zhicheng, the grandson of the Jiang family, would not live long
+> NIH corrects untruthful assertions by NIH Director Collins and NIAID Director Fauci that NIH had not funded gain-of-function research in Wuhan.
+> 
+> NIH states that EcoHealth Alliance violated Terms and Conditions of NIH grant AI110964. [pic.twitter.com/cFOtJlRoWl](https://t.co/cFOtJlRoWl)
+> — Richard H. Ebright (@R\_H\_Ebright) [October 20, 2021](https://twitter.com/R_H_Ebright/status/1450947395508858880?ref_src=twsrc%5Etfw)
 
-我说为什么？
-I asked why?
 
-他说：江家这次动手干掉令谷,下的命令就是老江干的
-He said: the order to kill Gu Ling is from Jiang Zemin
 
-而且江家儿子江绵恒，还有他的孙子江志成，都将为此付出代价
-And Jiang’s son, Jiang Mianheng, and his grandson, Jiang Zhicheng, will all pay the price for this
+* * *
 
-他说：这就是轮回报应
-He said: This is karmic reincarnation
-
-所以江志成这小子，只谈恋爱不结婚
-So Alvin Jiang, only romantic relationships does not marry
-
-而且这小子生活中你见过这个人, 这个叫毛毛
-I’ve seen this guy in life. His nicknamed is Maomao
-
-绝对他长不了
-He will never last long
-
-所有，最后江家如何为此付出代价
-How the Jiang family pay the price for this？
-
-就现在看来他的PK，他越来越没有机会
-Just look at his struggle now, he has less and less chance
-
-江是不行了，他是个象征性的
-Jiang Zemin is too old. He is just a symbol
-
-江绵恒，江绵康，江志成在军队的势力是巨大的
-Jiang Mianheng, Jiang Miankang, Alvin Jiang’s power in the army is huge
-
-但是我觉得是越来越渺茫
-But I think their chance is getting slim
-
-———————————————————
-
-**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1446500426283503616?s=24](https://twitter.com/se1y7cblljselva/status/1446500426283503616?s=24)
-
-Date:10/18/2021
-原视频标题:
-Alvin Jiang’s fate is over, he will die in the end
-原视频日期：2021/10/07
-任务编号：KC186（2477）
-视频时间段 : 0:00-1:48
-
-英听校: 洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校: 洛杉矶盘古农场 – Freeearth
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*编辑：文顺 校对：Ranting 发布：Ranting*
