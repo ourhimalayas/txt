@@ -2,61 +2,29 @@
 ---
 
 
-## 监督委员会共和党:彼得·打杂客向美国政府隐藏资金被批准用于武毒所的功能增强研究
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1607071/)
+## 世贸组织对华贸易政策审议 美澳代表各提不满
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1607249/)
 
-监督委员会共和党： 7月28日国家卫生研究院表示“没有资金被批准用于武毒所的功能增强研究” 显然他们被骗了。 NIH 今天证实，EcoHealth （健康生态联盟）和 WIV 对蝙蝠冠状病毒进行了功能增强研究。 彼得·打杂客与 EcoHealth 向美国政府隐藏了它。 【附该委员会写给美国卫生与公共服务部的信】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16347862711.png)*世贸组织日内瓦总部门口 © 路透社图片*
+据法广电台10月20日报道，从20日开始，中共国接受自2001年加入世贸组织以来第八次为期三天的贸易政策审议。美国代表称，中共国的产业政策“扭曲竞争环境”，华盛顿将试图说服中共国作出有需要的改变。澳大利亚指责北京对该国采取经济胁迫措施，破坏了国际社会对中共国的信心。
 
+美国还指责中共国其他的不公平贸易行为。澳大利亚则承受了众多的中共国破坏性措施。这些措施已经严重限制或终止了澳大利亚十几种商品的贸易，提高了全球商界对中共国市场的风险和不确定性。澳大利亚指责中共国对澳商品实施限制是为了报复政治争端。
 
+中共国一向无视国际规则，一切的贸易行为都与政治和利益挂钩。为了报复某个国家，哪怕自身利益受损也要打击对方，不惜两败俱伤。因为中共不需要对国家和人民负责，劳民伤财也不在话下。中共存在一天，国际社会就无规则可循。
 
-> 🚨🚨🚨
-> 
-> July 28th NIH says “no NIAID funding was approved for Gain of Function research at the WIV.”
->  
-> Obviously, they were lied to.
->  
-> NIH confirmed today EcoHealth and the WIV conducted GOF research on bat coronaviruses.
->  [@PeterDaszak](https://twitter.com/PeterDaszak?ref_src=twsrc%5Etfw) with EcoHealth hid it from the USG. [pic.twitter.com/Ou3ZLKto0L](https://t.co/Ou3ZLKto0L)
-> — Oversight Committee Republicans (@GOPoversight) [October 20, 2021](https://twitter.com/GOPoversight/status/1450934193177903105?ref_src=twsrc%5Etfw)
+新闻参考链接：[https://t.co/k07Hu2yHbl?amp=1](https://t.co/k07Hu2yHbl?amp=1)
 
+编辑：胖丁
 
+* * *
 
-众议员杰克·伯格曼： 我们必须坚决反对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)。最新的高超音速试验只是中共国危险行为的另一个例子。 这种威胁是真实的，而且现在正在发生。 拜登政府需要向中共国和世界其他地区表明，我们不会允许这种类型的侵略。
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-
-
-> We must stand firm against China. The latest hypersonic tests are just another example of dangerous behavior from China. 
-> 
-> This threat is real, and it’s happening now.
-> 
-> The Biden Admin. needs to show China, and the rest of the world, we will NOT allow this type of aggression.
-> — Rep. Jack Bergman (@RepJackBergman) [October 20, 2021](https://twitter.com/RepJackBergman/status/1450816719090593798?ref_src=twsrc%5Etfw)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-众议院外交事务委员会共和党： 众议员麦克考尔在福克斯美国报道 [@AmericaRpts](https://twitter.com/AmericaRpts) 节目上说：“这是一个最先进的，危险的武器体系，我们无法自我防卫…这是给美国和盟友们的一个起床号角。“（链接为评论中共国的导弹测试震惊美国情报界）
-
-
-
-> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw) on [@AmericaRpts](https://twitter.com/AmericaRpts?ref_src=twsrc%5Etfw): "This is the most advanced, dangerous weapon system that we cannot defend ourselves from…This is a wake up call for the United States and our allies." 
->  
-> WATCH⬇️ [pic.twitter.com/A6LAKHALPd](https://t.co/A6LAKHALPd)
-> — House Foreign Affairs GOP (@HouseForeignGOP) [October 20, 2021](https://twitter.com/HouseForeignGOP/status/1450832587795181577?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特： 感谢联邦通信委员会（FCC）的委员 [@BrendanCarrFCC](https://twitter.com/BrendanCarrFCC) 站出来。大疆（DJI）是对我们国家安全的威胁，无论任何情况下，美国都不应使用 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 制造的无人机。（转推该委员推，呼吁将大疆加入到FCC的名单中，后者收集大量敏感数据，从美国关键基础设施的图像到感应体温和心率）
-
-
-
-> Thank you for standing up [@BrendanCarrFCC](https://twitter.com/BrendanCarrFCC?ref_src=twsrc%5Etfw). DJI is a threat to our national security, and under no circumstance should the U.S. use drones made by Communist China. [https://t.co/mU8zmgSqwi](https://t.co/mU8zmgSqwi)
-> — Rick Scott (@SenRickScott) [October 20, 2021](https://twitter.com/SenRickScott/status/1450810094652899334?ref_src=twsrc%5Etfw)
-
-
-
-参议员乔什·霍利： 在乔拜登的供应链危机当中，我们是时候采取强硬的行动，终结我们对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和其他外国的依赖。我正发起立法，要求我们的关键产品和供应确实应由美国制造。【转fox财经，参议员霍利法案针对供应链紧缩，要求在美国生产 50% 的商品价值】
-
-
-
-> In the midst of Joe Biden’s supply chain crisis, it’s time we took bold action to end our dependence on [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) and other foreign nations. I’m introducing legislation to require that our critical goods and supplies actually be made in America [https://t.co/6PttaOsROv](https://t.co/6PttaOsROv)
-> — Josh Hawley (@HawleyMO) [October 20, 2021](https://twitter.com/HawleyMO/status/1450816077525618692?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

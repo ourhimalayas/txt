@@ -2,23 +2,27 @@
 ---
 
 
-## 拜登表达对中共高超音速导弹的担忧
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1607189/)
+## 绿地控股负债累累，销售大跌，评级下调，陷入困境
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1607286/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Unknown-7.jpg) 绿地控股负债累累，销售大跌，评级下调，陷入困境 网络图片
+据大话房地产10月20日报道，随着广州恒大集团破产倒闭，另一家房地产巨头上海绿地控股集团截止到6月30日，账面负债1.23万亿，还有1557.58亿担保金，外加135.8亿商业承兑汇票。债务总额接近1.4万亿。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/B-5.jpg)anews.com.tr
-日本共同社报道，美国总统拜登10月20日表达了对中共高超音速武器的担忧。
+上海绿地9月份的销售额215亿元，相比2020年同期，下降幅度达55.5%。相比1.23万亿的债务，销售房子无法回笼资金偿还。10月15日，国际著名信用评级机构标准普尔，将上海绿地控股集团的信用评级下调至“B+”，展望是“负面”。10月18日，另外一个国际评级机构—穆迪，也把上海绿地控股集团的企业家族评级，从Ba1下调到Ba2。
 
-英国《金融时报》16日报道说，北京今年8月测试了一枚可携带核弹头的高超音速导弹。报道指出，中共军方发射了绕地球飞行的导弹，并向目标快速飞去。中共否认了这一报道，称这是一次常规测试，目的是验证重复利用航天器的技术。
+上海绿地以“产业勾地”起家，投资建造了很多大城市的超高层地标建筑群，需要庞大的资金量。而在购买土地时，上海绿地能够接受较高的商住比例。因为商业项目多，回款速度慢，导致拖欠各种款项，被债权人告上法庭，被业主维权的的例子此起彼伏。
 
-白宫新闻秘书珍·普萨基（Jen Psaki）告诉记者，她不会对具体报道发表评论，但“总的来说，我们已经明确表达了我们的担忧。”她补充说，对中共继续追求的军事能力的担忧是通过“外交渠道”提出的。
+上海绿地控股集团风光不再，像广州恒大一样陷入困境。中共虚假的房地产市场进入多米诺骨牌的连锁期，依次倒塌，最后会把中共经济彻底拖垮，中共灭亡也进入倒计时。
 
-美国国防高级研究计划局(U.S. Defense Advanced Research Projects Agency)今年9月表示，他们已经测试了一种高超音速武器，速度超过音速的5倍。援引自路透社报道，这是美国自2013年以来首次成功测试这种类型的武器。
+新闻参考链接：[https://c.m.163.com/news/a/GMP0TRJQ0535KAWB.html?spss=newsapp](https://c.m.163.com/news/a/GMP0TRJQ0535KAWB.html?spss=newsapp)
 
-爆料革命和新中国联邦创始人郭文贵先生曾透露美国军方情报，在不启用核武器的情况下，美国军方认为全面定点摧毁中共国所有军事设施的预估时间为3分钟。如此来推测，拜登的担忧仅是官方的外交表达。
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-参考链接：
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[https://english.kyodonews.net/news/2021/10/0a9364b09756-biden-expresses-concerns-over-chinas-hypersonic-missiles.html](https://english.kyodonews.net/news/2021/10/0a9364b09756-biden-expresses-concerns-over-chinas-hypersonic-missiles.html)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

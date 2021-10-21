@@ -2,93 +2,68 @@
 ---
 
 
-## 房地产倒塌中共会更加猛烈地打台湾
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1606937/)
+## 发展加密货币和区块链社区，澳洲特别委员提出12项建议
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1607017/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/12-a71ie-wzywl.jpg)
-[https://gtv.org/video/id=616fb15dd2e2b8174877521b](https://gtv.org/video/id=616fb15dd2e2b8174877521b)
+## 编译报导：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-13.jpg)
+图片来源：Financial Review
 
-**郭文贵**
-**Miles Guo**
+**背景介绍**：
 
-那么另外一个兄弟姐妹们要看到房地产，为啥我们要再谈房地产
-Then the another one, brothers and sisters, you need to look at the real estate, so why do we have to talk about real estate again?
+近期，全球加密货币领域蓬勃兴旺，比特币、以太坊、币安（ADA）和其他代币的反弹让加密货币市场的价值突破了2万亿美元（折合2.7万亿澳元）。这块大蛋糕显然也进入了澳大利亚监管部门的法眼。澳洲议会的金融和科技委员会近日出台报告，就澳洲大力发展加密货币和建立区块链社区提出了一系列建议，力求在全球加密货币的竞相发展的大潮中占得先机。
 
-房地产等倒塌一定会导致共产党，更加猛烈地打台湾
-The collapse of real estate and others will definitely cause the Communist Party to attack Taiwan more violently
+10月21日，加密货币龙头比特币单价已达63000美元，1020郭先生大直播提出，在全世界法币普遍失去信用的前提下，新中国联邦的喜币主动回归“布雷顿森林体系”，与20%黄金和美元挂钩，在加密货币领域已经站在了一个很高的起点，而我们的喜交所注册地就在澳大利亚。现在澳洲政府正在密集酝酿各项政策，以促进加密货币交易。本月底喜币上市正逢其时，郭先生的超前布局让全球的新中国联邦战友享受了一把“扶摇直上”的幸福时光。
 
-为什么这么说，知道吗？因为房地产的倒塌，
-You know why I talk about this way? Because of the collapse of real estate
+**译文：**
 
-最大的受害者就是江家、曾家、朱家、王岐山家
-the biggest victims of real estate are Jiang family, Zeng family, Zhu family, and Wang Qishan family
+澳大利亚金融和科技特别委员会向联邦政府提出了12项建议，以发展本地的加密货币和区块链发展社区，加强对投资者的保护，并鼓励各大银行支持这一新兴行业。以下为建议：
 
-所有的倒塌的问题（是）这钱去哪了？现在习也蒙了
-All the questions about the collapse is where the money go? Now even Xi is stunned too
+1. 为数字货币交易所建立市场许可制度，包括财政部主导下的资本充足率、审计和责任人测试。
 
-老看我们直播报告，到底咱这些钱去哪了
-He read our live broadcast report all the time, and in the end where our money went?
+2. 2. 在财政部主导下，建立一个具有最低标准的数字资产保管或存管制度。
 
-65万亿的房地产，十几万亿所谓的互联网产业，将近100万亿的金融产业
-65 trillion dollars real estate, more than a trillion dollars so-called Internet in-dustry, nearly 100 trillion dollars financial industry
+3、开展”代币摸底 “工作，通过财政部并参考其他监管机构和专家的意见，确定描述澳大利亚各种类型数字资产代币的最佳方式。
 
-中国共产党咱们给它算算账，20年前加入WTO
-Let’s calculate it for the CCP when they joined the WTO 20 years ago
+4. 建立一个新的去中心化的自治组织公司结构。
 
-一共150万亿美元也好，100万亿美元也好，所有扩张出来的财富都去哪了
-Whether it’s a total of 150 trillion US dollars or 100 trillion US dollars, where did all the expanded wealth go?
+5.澄清反洗钱和反恐融资法规，以确保它们符合目的，不会破坏创新。
 
-习也懵叉了，这时候我告诉你，
-Xi is also stunned, this time I will tell you,
+6.修改资本利得税制度，使得数字资产交易只有在真正导致可明确定义的资本收益或损失时才会产生资本利得税事项。
 
-老百姓的房产倒塌导致的房产倒，保险必然倒，保险倒，银行一定倒
-the collapse of Laobaixing’s property will lead to the collapse of the real estate industry, insurance has to collapse, insurance collapses, banks must also follow the fall
+7. 修改相关法律，使在澳大利亚从事数字资产”开采”和相关活动的企业，如果自己为这些活动采购可再生能源，便可以获得10%的公司税折扣。
 
-银行倒，信托也得倒，那么就是粮食供应链一定倒，
-bank collapses, the trust also has to collapse, then the food supply chain must collapse
+8. 让财政部牵头对澳大利亚中央银行零售数字货币的可行性进行政策审查。
 
-这个时候全世界（都在）问，钱去哪了？全中国人
-At this time, the whole world all asked where did all the Chinese people’s mon-ey go?
+9. 竞争与消费者委员会（ACCC）对外币兑换服务供应的调查建议，在明年6月前实施一项计划，解决银行的尽职调查要求。
 
-这时候你去想想，最想转移目标的人是谁呀
-At this time, think about who is the person wants to shift the target most?
+10.为已经去银行化的企业制定一个明确的程序。这项工作应围绕澳大利亚金融投诉局，为有执照的实体提供相应服务。
 
-是王岐山、江志成、曾庆红、朱镕基，这些最有钱的家族
-It’s Wang Qishan, Jiang Zhicheng, Zeng Qinghong, Zhu Rongji, these the richest families
+【备注：澳大利亚金融投诉局（AFCA）主要为消费者和小企业提供公平、自由和独立的金融投诉纠纷解决方案。】
 
-打台湾，大家都变成了全部小粉红
-Attack Taiwan, everyone becomes “Patriotic Little Pink”
+11. 要求澳大利亚储备银行根据斯科特·法雷尔（Scott Farrell）的报告，为新的支付平台制定共同的接入要求，以减少支付业务对主要银行提供服务的依赖。
 
-你们没有意识到这个事对台湾多危险，一打台湾，一了结了
-You didn’t realize that this thing is so dangerous for Taiwan, once there is war against Taiwan, it’s all over
+【备注：斯科特·法雷尔是是一位在金融市场和金融系统法领域专家，为澳洲和亚洲的市场参与者、交易所、清算和支付系统、监管机构和政府提供咨询。】
 
-甚至马上换新版人民币，不叫人民币了，叫什么币都有可能
-Even change to new version of RMB right away, may not call RMB, what it may call?
+12. 建立全球市场激励机制，在明年年底前取代离岸银行单位制度。
 
-也可能跟九指妖叫撒币，也可能叫路大脑币，是吧
-It may also be called Sa coin with the nine-finger witch, or it may be called LuDe coin, right?
+【备注：2021年3月17日，联邦政府提出了《法案》，即将废除离岸银行单位(**OBU**)制度。】
 
-也可能叫蛇妖币都有可能
-It may also be called Snake Witch Coin
+（文中观点仅代表作者个人观点，与Gnews平台无关）
 
-———————————————————
+参考链接：
 
-**原视频接:**[https://twitter.com/se1y7cblljselva/status/1449361751544254466?s=24](https://twitter.com/se1y7cblljselva/status/1449361751544254466?s=24)
+1、[Crypto regulation: The 12-point plan (afr.com)](https://www.afr.com/companies/financial-services/the-12-point-plan-to-bring-crypto-to-the-fore-20211020-p591kt)
 
-Date:10/17/2021
-原视频标题:
-The CCP will attack Taiwan even more violently when their real estate market collapses
-原视频日期：2021/10/13
-任务编号：KC179（2570）
-视频时间段 : 0:00-2:04
+2、[KWM | Scott Farrell](https://www.kwm.com/en/au/people/scott-farrell)
 
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+**发布：文泓**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+####
