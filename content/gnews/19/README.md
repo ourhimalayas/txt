@@ -2,27 +2,45 @@
 ---
 
 
-## 绿地控股负债累累，销售大跌，评级下调，陷入困境
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1607286/)
+## 美国国防部呼吁加大稀土开采力度 反制中共垄断供应链
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1607300/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Unknown-7.jpg) 绿地控股负债累累，销售大跌，评级下调，陷入困境 网络图片
-据大话房地产10月20日报道，随着广州恒大集团破产倒闭，另一家房地产巨头上海绿地控股集团截止到6月30日，账面负债1.23万亿，还有1557.58亿担保金，外加135.8亿商业承兑汇票。债务总额接近1.4万亿。
-
-上海绿地9月份的销售额215亿元，相比2020年同期，下降幅度达55.5%。相比1.23万亿的债务，销售房子无法回笼资金偿还。10月15日，国际著名信用评级机构标准普尔，将上海绿地控股集团的信用评级下调至“B+”，展望是“负面”。10月18日，另外一个国际评级机构—穆迪，也把上海绿地控股集团的企业家族评级，从Ba1下调到Ba2。
-
-上海绿地以“产业勾地”起家，投资建造了很多大城市的超高层地标建筑群，需要庞大的资金量。而在购买土地时，上海绿地能够接受较高的商住比例。因为商业项目多，回款速度慢，导致拖欠各种款项，被债权人告上法庭，被业主维权的的例子此起彼伏。
-
-上海绿地控股集团风光不再，像广州恒大一样陷入困境。中共虚假的房地产市场进入多米诺骨牌的连锁期，依次倒塌，最后会把中共经济彻底拖垮，中共灭亡也进入倒计时。
-
-新闻参考链接：[https://c.m.163.com/news/a/GMP0TRJQ0535KAWB.html?spss=newsapp](https://c.m.163.com/news/a/GMP0TRJQ0535KAWB.html?spss=newsapp)
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山农场-007
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-11.jpg)
+本月19日，在“北美关键矿物日”大会上，国防部产业政策办公室的丹妮尔·米勒说，美国及其盟国需要扩大稀土的开采和加工。米勒直指中共限制稀土出口的政策。她说，全球供应链面临蓄意干预的风险；美国生产“战略与关键矿物”，是增加全球供应链韧性的一个必要条件。她例举了美国正在开发的稀土项目，意图表明五角大楼是一个“有耐心的战略投资者”。美国希望与盟国矿业公司建立可持续性的合作，加速供应链从成本导向转为价值观导向。
+
+在制造用于武器和电动汽车的特制磁体时，稀土金属不可或缺。中共目前在稀土生产领域占据龙头地位。
+
+参考链接：[美国国防部呼吁加大稀土开采力度 反制中共垄断供应链](https://www.voachinese.com/a/us-needs-more-mines-to-boost-rare-earths-supply-chain-pentagon-says-20211019/6277856.html)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：飞虹
+编辑：山本不惑
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)

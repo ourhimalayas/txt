@@ -2,43 +2,22 @@
 ---
 
 
-## 新疆人权犯罪主犯王君正升任西藏一把手
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1607304/)
+## 英媒再爆中国新武器试验细节 拜登表示忧心
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1607325/)
 
-作者：澳喜农场 – 在远方
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-398.png)[图片来源](https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E5%86%8D%E7%88%86%E4%B8%AD%E5%9B%BD%E6%96%B0%E6%AD%A6%E5%99%A8%E8%AF%95%E9%AA%8C%E7%BB%86%E8%8A%82-%E6%8B%9C%E7%99%BB%E8%A1%A8%E7%A4%BA%E5%BF%A7%E5%BF%83/a-59539212)
+英媒《金融时报》再披露中共国今年夏天进行了两次高超音速武器试验。虽然美国军方至今未证实相关信息，但当局已多次发出警告，中共国毁灭性武器发展可能失控。
 
+《金融时报》周四 (10月21日)再报道，中共国军方在今年夏天进行了两次高超音速武器试验，据4位熟悉美国情报评估的人士称，第一次是在7月27日，中共军方发射了一枚火箭，使用“部分轨道轰击 ”系统，首次推动具有核能力的“高超音速滑翔器”绕地球飞行。第二次，也是《金融时报》早前收到信息报道，中共国在8月13日进行了第二次高超音速试验。
 
+熟悉7月份第一次试验的3个人说，这次试验令五角大楼和美国情报部门震惊，因为中共国成功地展示了一种全新的武器能力，但他们拒绝详细说明细节。一位人士说，政府的科学家正努力理解这项美国目前不具备的能力，并补充说，中共国的成就似乎“违背了物理学规律”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+自《金融时报》披露这一事件以来，太空和导弹专家一直在讨论中国的试验。蒙特雷米德尔伯里国际研究学院的核武器专家刘易斯(Jeffrey Lewis)说，中共国似乎已经开发了一项新的创新，但强调需要保持一定程度的怀疑态度。白宫在20日拒绝发表评论。美国政府官员，包括国防部长奥斯汀，都拒绝证实或否认这一试验的存在，表示该试验仍属机密。中共国驻华盛顿大使馆至今同样拒绝发表评论。
 
+信息来源： [英媒再爆中国新武器试验细节 拜登表示忧心](https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E5%86%8D%E7%88%86%E4%B8%AD%E5%9B%BD%E6%96%B0%E6%AD%A6%E5%99%A8%E8%AF%95%E9%AA%8C%E7%BB%86%E8%8A%82-%E6%8B%9C%E7%99%BB%E8%A1%A8%E7%A4%BA%E5%BF%A7%E5%BF%83/a-59539212)
 
-
-中共前新疆政法委书记、自治区党委副书记王君正，10月19日被宣布升任西藏党委书记。王君正由于直接参与了新疆近年来严重迫害人权的行动，是受到西方制裁最多的中共官员。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-19.jpg)
-联合国专家及一些独立学者提供的大量证据显示，中共自2016年起，关押了至少100万维吾尔族和其他少数民族穆斯林，对他们进行洗脑和强迫劳动，并禁止他们从事宗教活动。
-
-2021年3月22日，美国财政部根据全球马格尼茨基人权问责法，对新疆自治区副书记兼新疆生产建设兵团党委书记王君正，和新疆公安厅厅长陈明国进行制裁，指控他们是严重践踏人权和从事腐败的涉案人员。2021年3月，欧盟、英国和加拿大也宣布制裁新疆党委副书记王君正等4人和一家实体。
-
-参考链接：[新疆人权犯罪主犯王君正升任西藏一把手](https://www.voachinese.com/a/China-promotes-most-sanctioned-official-to-Tibetan-party-chief-20211019/6277106.html)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：木白
-编辑：飞虹
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

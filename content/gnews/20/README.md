@@ -2,46 +2,24 @@
 ---
 
 
-## “真”“善”“狠”，新中国联邦核心理念
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1607252/)
+## 纽约市市长宣布强制中共病毒疫苗规定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1607294/)
 
-作者：香草山农场 – 恩永存
+#### 翻译：Grace
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-40.jpg)图片来源：网络截图
+据纽约市的官方网站10月20日报道，纽约市市长，比尔.德.布拉西奥（Bill de Blasio），今天宣布了一项针对所有市政工作人员的中共病毒疫苗规定。该规定强制要求所有的市政府雇员，必须在10月29日之前，注射中共病毒疫苗。
 
+报道称，没有在该限期之前接种中共病毒疫苗的员工，将被安排无薪休假，直到他们向上司出示中共病毒疫苗接种证明。而从今天开始到10月29日星期五下午5点为止， 至少打了一针的市政府的员工，将在他们的工资中获得额外的500美元奖金。
 
+卫生专员Dave Chokshi博士签署了这一项专员令后，就确定了这项规定, 这意味着大约16.05万名的纽约市员工就要受到强制疫苗规定的管制。然而，受此规定影响的71%的工人已经接受了至少一剂疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+据报道，教育部（DOE）和纽约市卫生和医院（H+H）的工作人员自9月下旬已经开始执行了疫苗接种规定；今天，教育部和H+H的疫苗接种率分别为96%和95%。
 
+新的规定在11月1日对整个市政工作人员生效，包括所有纽约警察局、联邦调查局和纽约市警察局的雇员。
 
+惩教署(DOC)的文职雇员和被分配到医疗机构的军警人员也立即受制于这项规定。由于该市正在努力解决莱克斯岛（Rikers Island）目前的人员配置情况，惩教署的其他军警人员将于12月1开始执行强制中共病毒疫苗的规定。
 
-郭文贵先生10月19日再次申明，新中国联邦的核心理念是“真”“善”“狠”。
+据报道，纽约市政府将立即开始与受影响的工会进行谈判。
 
-19日上午，GTV与盖特做同步测试。其间，一名伪类在盖特留言中，故意为难主持人。郭先生立即要求维护人员删除留言，并屏蔽此用户。郭先生还说：伪类账号一定要全部删除，一个也不留。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-6.jpg)
-郭先生表示，他最先提出“真善狠”三个字。新中国联邦的正道主义就是唯真不破，法律根据就是真理，所以是“真”；新中国联邦人以博爱善待他人，做个善良的人，因此有“善”；新中国联邦人喜爱公义，就必须恨恶罪恶，依法惩冶恶人，当然就得“狠”。“真”是理论原则，“善”是做人原则，“狠”是做事原则。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-100.jpg)
-参考链接：
-[郭先生2021年10月18日盖特直播测试](https://gettr.com/streaming/pejgy3dc01)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：木白
-编辑：山本不惑
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[**新闻来源：**https://www1.nyc.gov/office-of-the-mayor/news/698-21/mayor-de-blasio-vaccine-mandate-new-york-city-workforce](https://www1.nyc.gov/office-of-the-mayor/news/698-21/mayor-de-blasio-vaccine-mandate-new-york-city-workforce)

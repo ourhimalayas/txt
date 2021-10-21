@@ -2,55 +2,52 @@
 ---
 
 
-## 医生指出“抖音”可能是导致少女抽搐的原因
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1607350/)
+## COVID-19最新情报｜政府不愿让人民知道的是 医院正充斥着新冠疫苗接种者
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1607356/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-399.png)
-自从冠状病毒大流行开始以来，世界各地的少女纷纷出现在医生办公室，她们出现了新的抽搐症（身体抽搐和秽语），医生们认为，这可能是由中共国开发的社交媒体应用程序“抖音”引起的。
+**台灣寶島農場 zhong｜發布日期/ 21/10/2021 **
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1.jpg)
+#### 住院患者高达9成完全接种新冠疫苗
 
-经过几个月对患者的研究和相互咨询，美国、加拿大、澳大利亚和英国顶级儿科医院的专家们怀疑，这些女孩一直在社交媒体平台“抖音”上观看视频。
+據[报导](https://aaronsiri.substack.com/p/whistleblower-fda-and-cdc-ignore-3e2)，美国医生助理黛博拉．康拉德（Deborah Conrad）为了住院病患的身体健康，开始仔细的追踪每位住院治疗的病患，发现高达九成住院治疗患者是“完全接种疫苗”。
 
-报告补充说，最近的医学期刊文章还说，医生认为，这些女孩一直在观看自称患有图雷特综合症的抖音网红的视频。
+康拉德表示：她所在的医院服务于一个社区，仅不到一半的人口接种了新冠疫苗。但在同一时间段内，住院治疗的病患“高达9成”被记录为完全接种疫苗。
 
-虽然这些病例尚未在全国范围内进行追踪，但全国各地的儿童运动障碍中心都报告称，有患有类似抽搐的少女大量出现。
+这些病患因多种原因住院治疗，不完全是感染新冠病毒，很多年轻人发生了这个年纪不应该发生的健康问题。还有许多人虽然不是在接种新冠疫苗后短时间住院，但在数月后也是因为发生健康问题而住院治疗。
 
-例如，在辛辛那提儿童医院医疗中心，专门研究小儿运动障碍和图雷特综合征的神经学家唐纳德·吉尔伯特说，自2020年3月以来，他每个月都会看到大约十名新的患有抽动症的青少年。吉尔伯特指出，在此之前，他的诊所最多每个月只能看到一个患者。
+#### 康拉德联系卫生当局被忽视，通报VAERS被医院禁止
 
-德克萨斯儿童医院报告称，自2020年3月以来，约有60名青少年患有这样的抽搐症，并补充说医生过去每年会看到一两个病例。
+在康拉德发现到住院病患发生不寻常的健康问题而住院治疗后，可能是接种新冠疫苗导致。有人认为，院方在发现这情形会通报监管单位审查，但事实上康拉德亲自联系相关单位被忽视。康拉德所服务的机构，也代康拉德向 CDC 和 FDA 联系，并未得到回应。
 
-芝加哥拉什大学医学中心表示，仅在今年3月至6月之间，它就已经看到20名患有这种抽动症的患者。去年，医疗中心全年只接待了10个。
+- 相关：[COVID-19最新情报｜美律师控诉 政府掩盖4.5万例疫苗死亡案例兼 强制民众接种](https://gnews.org/zh-hant/1607140/)
 
-医生们还指出，大多数经历这种抽搐发作的青少年，之前都被诊断为焦虑或抑郁。而这种焦虑或抑郁很可能由冠状病毒大流行带来的或恶化的。吉尔伯特补充说，心理压力的身体症状，可以而且确实以患者在其他人身上看到的方式表现出来。
 
-根据美国国家神经疾病和中风研究所的数据，功能性神经系统障碍 (FND) ，是指一组由大脑功能异常引起的常见神经运动障碍，这些障碍与潜在疾病无关。
+更糟糕的是，医院竟然禁止康拉德为病患通报到疫苗不良事件通报系统(VAERS)。
+（[完整采访](https://thehighwire.com/videos/these-patients-deserve-to-be-heard-vaers-whistleblower/)）
 
-医生说这种抽搐可以解除，并建议进行认知行为疗法，以及几周内不要使用抖音。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/https___bucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com_public_images_6518a506-b543-4f08-afcc-8a0bb648f578_232x298.png)致 CDC 和 FDA 的完整信函
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/https___bucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com_public_images_8deb6e33-a219-4dde-97a7-0b6cbf4a97e4_205x265.png)与医院的来信交流
 
-科普知识：什么是图雷特综合征？
 
-图雷特综合征是一种神经系统疾病，定义为重复的、不自主的运动和发声，称为抽动。该病症以Georges Gilles de la Tourette 博士的名字命名。
 
-抽动秽语综合征的症状会对一个人生活的所有方面产生负面影响。抽动秽语综合征通常在儿童时期被诊断出，但也可能在晚年开始。
 
-儿童抽动症通常在青春期或成年早期后减少，而较小比例的人必须在成年期和整个成年期处理这种疾病。
+[致 CDC 和 FDA 的完整信函](https://assets.gnews.org/wp-content/uploads/2021/10/Letter-Re-First-Hand-Account-of-Covid-19-Vaccine-Injuries-and-Underreporting-to-VAERS-1.pdf)[下載](https://assets.gnews.org/wp-content/uploads/2021/10/Letter-Re-First-Hand-Account-of-Covid-19-Vaccine-Injuries-and-Underreporting-to-VAERS-1.pdf)
 
-学龄前儿童可能会出现图雷特综合症，老年人也会如此。男性接受诊断的可能性是女性的三到四倍，所有种族都可能受影响。
 
-原文链接：[https://www.breitbart.com/tech/2021/10/19/doctors-point-to-tiktok-as-possible-cause-of-tic-development-in-teen-girls/](https://www.breitbart.com/tech/2021/10/19/doctors-point-to-tiktok-as-possible-cause-of-tic-development-in-teen-girls/)
 
-翻译：希望
+[与医院的来信交流](https://assets.gnews.org/wp-content/uploads/2021/10/Letter-exchange-with-Rochester-Hospital.pdf)[下載](https://assets.gnews.org/wp-content/uploads/2021/10/Letter-exchange-with-Rochester-Hospital.pdf)
 
-PR：Julia Win
 
+
+#### 医院充斥完全接种疫苗的病患，未接种者仍健康
+
+在给  ​​FDA 和 CDC 其他高级官员的一封信中，Siri 代表康拉德解释了有关在位于纽约的医院中发现的所有细节。其中最引人注目的是“医疗机构在推行大规模接种疫苗后，变得更加繁忙，因为新冠疫苗接种，现在床位都用完了”。
+
+Siri于信中表示：更令人不安的是许多住院治疗患者在接种疫苗数月后出现并发症，目前医院“于接种新冠疫苗后”平均收治的病患比去年“病毒大流行期间还要多”。
+
+哈佛医学院由 AHRQ 资助的一项大型研究发现，“只有不到 1% 的疫苗不良事件被报告给 VAERS”。这只会让医院变得更糟，医院拒绝将与新冠病毒疫苗相关的伤害和死亡记录在其中。CDC和VAERS对接种新冠疫苗后的过敏反应少报是最严重的，因为大多数过敏反应是发生在接种疫苗后30分钟内。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/8-4.jpg)
 * * *
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+新闻来源｜[Natural News](https://pandemic.news/2021-10-19-fda-cdc-90percent-covid-hospitalizations-fully-vaccinated.html#)
+声明｜转译仅供参考，一切以原文为主
