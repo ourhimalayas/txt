@@ -15,97 +15,97 @@
 
 ---
 
-### [DC每日热点1021](/content/gnews/1/README.md)
+### [外媒跟踪马云在西班牙的行踪](/content/gnews/1/README.md)
+ ` Shuizhuyu`
+
+### [一名多伦多警官自由集会上发表讲话——现在她可能失业](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [DC每日热点1021](/content/gnews/3/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国国立卫生研究院承认福奇对武汉实验室的功能增益基金撒谎](/content/gnews/2/README.md)
+### [美国国立卫生研究院承认福奇对武汉实验室的功能增益基金撒谎](/content/gnews/4/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [贪婪是爆料革命战友的大敌](/content/gnews/3/README.md)
+### [贪婪是爆料革命战友的大敌](/content/gnews/5/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [NIH(福奇）:美国纳税人资助了WIV的SARS-CoV-2](/content/gnews/4/README.md)
+### [NIH(福奇）:美国纳税人资助了WIV的SARS-CoV-2](/content/gnews/6/README.md)
  ` wenwu`
 
-### [加拿大魁省计划在儿童接种新冠病毒疫苗后解除紧急状态](/content/gnews/5/README.md)
+### [加拿大魁省计划在儿童接种新冠病毒疫苗后解除紧急状态](/content/gnews/7/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [中国的“干旱”是一个事实，世界将受到影响。现在剩下的就是让他们改变他们的模式](/content/gnews/6/README.md)
+### [中国的“干旱”是一个事实，世界将受到影响。现在剩下的就是让他们改变他们的模式](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [安大略省政府/大型制药公司的利益冲突？](/content/gnews/7/README.md)
+### [安大略省政府/大型制药公司的利益冲突？](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [美国NBA球星因公开支持西藏而遭中共打压](/content/gnews/8/README.md)
+### [美国NBA球星因公开支持西藏而遭中共打压](/content/gnews/10/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [马来西亚和菲律宾就中共国在南海的持续入侵表示抗议](/content/gnews/9/README.md)
+### [马来西亚和菲律宾就中共国在南海的持续入侵表示抗议](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国的“幽灵”城市的问题](/content/gnews/10/README.md)
+### [中共国的“幽灵”城市的问题](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [家庭反洗脑序列：第31篇 今年的冬天很难过](/content/gnews/11/README.md)
+### [家庭反洗脑序列：第31篇 今年的冬天很难过](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【小雨专栏】在路上——零食篇](/content/gnews/12/README.md)
+### [【小雨专栏】在路上——零食篇](/content/gnews/14/README.md)
  ` 温哥华扬帆农场`
 
-### [2021年10月20日郭文贵先生直播全文字版](/content/gnews/13/README.md)
+### [2021年10月20日郭文贵先生直播全文字版](/content/gnews/15/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [10/20/2021文贵直播：习近平得知马云、江志成等人要除掉他，所以他绝对不会对这些人手软](/content/gnews/14/README.md)
+### [10/20/2021文贵直播：习近平得知马云、江志成等人要除掉他，所以他绝对不会对这些人手软](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [CN铁路员工因拒绝接种疫苗而面临工作危机](/content/gnews/15/README.md)
+### [CN铁路员工因拒绝接种疫苗而面临工作危机](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [纽约警察工会将起诉纽约市疫苗强制令](/content/gnews/16/README.md)
+### [纽约警察工会将起诉纽约市疫苗强制令](/content/gnews/18/README.md)
  ` HimalayaRussia`
 
-### [川普总统宣布将推出“真相社交”](/content/gnews/17/README.md)
+### [川普总统宣布将推出“真相社交”](/content/gnews/19/README.md)
  ` HimalayaRussia`
 
-### [北京操纵好莱坞 用所谓正面形象欺骗世界](/content/gnews/18/README.md)
+### [北京操纵好莱坞 用所谓正面形象欺骗世界](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [去中心化社交媒体的优势和未来](/content/gnews/19/README.md)
+### [去中心化社交媒体的优势和未来](/content/gnews/21/README.md)
  ` 纽约香草山MOS03`
 
-### [NIH向国会提交更正信函证明福奇宣誓后撒谎](/content/gnews/20/README.md)
+### [NIH向国会提交更正信函证明福奇宣誓后撒谎](/content/gnews/22/README.md)
  ` HimalayaRussia`
 
-### [正道主义的喜马拉雅币将闪闪发光](/content/gnews/21/README.md)
+### [正道主义的喜马拉雅币将闪闪发光](/content/gnews/23/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [未来全球能源转型或将严重波及影响加拿大](/content/gnews/22/README.md)
+### [未来全球能源转型或将严重波及影响加拿大](/content/gnews/24/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [宋平直言习近平:马云马明哲马化腾三马乱华,富人盼习死](/content/gnews/23/README.md)
+### [宋平直言习近平:马云马明哲马化腾三马乱华,富人盼习死](/content/gnews/25/README.md)
  ` NewFOC`
 
-### [孙力军去年暗杀未果，习近平反扑大抓捕](/content/gnews/24/README.md)
+### [孙力军去年暗杀未果，习近平反扑大抓捕](/content/gnews/26/README.md)
  ` 波士顿五月花农场`
 
-### [香港80亿港币国安“专项基金”独立审计 但年报未详](/content/gnews/25/README.md)
+### [香港80亿港币国安“专项基金”独立审计 但年报未详](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [GTV新闻访谈简报|2021年10月21日早](/content/gnews/26/README.md)
+### [GTV新闻访谈简报|2021年10月21日早](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [没有G系列一分股从灭共到现在五六年,七哥钱都哪来的](/content/gnews/27/README.md)
+### [没有G系列一分股从灭共到现在五六年,七哥钱都哪来的](/content/gnews/29/README.md)
  ` NewFOC`
 
-### [外贸困顿，广交会成“内销会”](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [国土安全部长参加拜登活动两天后被测新冠阳性](/content/gnews/29/README.md)
+### [国土安全部长参加拜登活动两天后被测新冠阳性](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [财新网被“封口”](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本要闻汇编 10月21日](/content/gnews/31/README.md)
+### [财新网被“封口”](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [中共国的荒唐事](/content/gnews/32/README.md)

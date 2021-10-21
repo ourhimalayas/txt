@@ -2,53 +2,55 @@
 ---
 
 
-## 中国的“干旱”是一个事实，世界将受到影响。现在剩下的就是让他们改变他们的模式
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1609024/)
+## NIH(福奇）:美国纳税人资助了WIV的SARS-CoV-2
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1609027/)
 
-**编译：蚂蚁兄弟**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip50.png)图片来源：motorpasion.com
-在恒大危机反映了房地产行业的情况之后又发生了前所未有的能源崩溃，在确认经济增长放缓之后，欧洲经济分析家们将目光聚焦在了中国。
+编译：西班牙喜悦农场–wenwu
 
-由于这种爆炸性的事件组合，“世界工厂”经济已经从今年第二季度的增长近9%，到2021年第三季度的增长不到5%。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-10-5.png)
 
-按季度计算，中共国经济与上一季度相比只增长了0.2%，而彭博社等经济专家的预期为0.5%。而由于中共国已经占到全球GDP的18%以上（按购买力平价计算），中国的这种增长和复苏的放缓反映在全球GDP经济复苏的停滞上。
+NIH 一名高级官员在周三（20日）的一封信中承认，美国纳税人资助了武汉（WIV）的蝙蝠冠状病毒[的功能增强性研究](https://www.nationalreview.com/2021/08/americans-deserve-the-truth-about-gain-of-function-research-and-the-wuhan-lab/)，并透露将美国国立卫生研究院的资金输送给武汉病毒研究所的美国非营利组织–生态健康联盟（EcoHealth Alliance），其掩盖了这项生物武器研究的工作。
 
-中国前所未有的能源危机开始蔓延到世界其他地区，其根源主要在中、澳的政治因素，但也因全球煤炭和天然气价格的暴涨而加剧。
+NIH 的 Lawrence A. Tabak 在给国会众议员 James Comer (R., Ky.) 的[信](https://twitter.com/R_H_Ebright/status/1450947395508858880)中引用了一项“有限的实验”，该实验旨在测试“曾在中国流向的自然起源的蝙蝠冠状病毒的尖峰蛋白是否能够与小鼠模型中的人类ACE2受体结合。” 感染了改良版蝙蝠病毒的实验室小鼠比感染未改良版蝙蝠病毒的小鼠“病情更重”。
 
-因此，北京正被迫对其经济模式进行强制改变，开始寻求长期的可持续性模式，但当下产生的后果是：正如我们已经看到的，短期增长将受到严重影响。
+这一启示证明了共和党参议员[兰德·保罗是正确的](https://www.nationalreview.com/news/rand-paul-accuses-fauci-of-lying-to-congress-about-gain-of-function-research-funding/)，他在 5 月和 7 月就功能增强问题在国会作证时，与国家过敏和传染病研究所所长（NIAID）安东尼·福奇进行了激烈的辩论。在第二次听证会上，保罗指责福奇误导国会（在听证会上撒谎），否认美国曾资助武汉病毒研究所的功能增强研究。
 
-中共国的几个省份继续实行能源消费配给，当局确保这种情况将持续到今年年底。这影响到各行各业的生产，也将影响到整个经济活动。
+功能增强研究涉及从动物身上提取病毒，并在实验室中对它们进行人工改造，使其对人类可以更容易传播或对人类致命。
 
-根据9月份的活动数据，经济专家报（El Economista）的报道和德国商业银行分析师的说法，工业生产同比增长3.1%，而前一个月为5.3%，反映了能源短缺造成的伤害。今年前三季度，固定资产投资同比增速放缓至7.3%，低于前值8.9%。
+为了与福奇拒绝使用“功能增强”的观点保持一致，Tabak 回避了使用这个术语，尽管他描述的工作与其常见的定义完全匹配。
 
-另一方面，尽管零售业的表现好于预期，年率为4.4%，但这一趋势显然已经失去了动力，这表明国内消费也在缓和，家庭支出也在减缓。
+[The Intercept](https://theintercept.com/2021/10/01/nih-bat-coronavirus-grant-ecohealth-alliance/) 获得的一份先前未公布的，并曾向 NIAID 提交的生态健康联盟[拨款提案](https://www.nationalreview.com/news/internal-documents-further-contradict-faucis-gain-of-function-research-denials/)，已经被曝光。武汉病毒研究所的总拨款中有59.9万美元用于旨在使病毒更具危险性 和/或 传染性的研究。
 
-据牛津经济研究院的分析师Tommy Wu认为，最大的问题将来自于房地产行业，他预测房地产行业将继续其放缓趋势。
+罗格斯大学生物安全专家兼化学和化学生物学教授理查德·埃布赖特（Dr. Richard Ebright）博士此前曾 [反驳](https://www.nationalreview.com/news/internal-documents-further-contradict-faucis-gain-of-function-research-denials/)福奇的说法，即美国国立卫生研究院“过去没有，现在也没有资助武汉病毒研究所（WIV）的功能增强研究”，并对此打上“[明显是假的](https://www.nationalreview.com/news/biosafety-expert-explains-why-faucis-nih-gain-of-function-testimony-was-demonstrably-false/)”标签。
 
-我们回看，在2020年，中国的出口占世界出口率的15%：这个数额类似于德国、日本和荷兰的总和。若铁和铜等期货原材料上涨，则会被转嫁给生产者产品价格投入，世界将开始从中国进口通货膨胀。
+Ebright 告诉《国家评论》，NIH 资助的 WIV 的工作“概括”了功能增强性研究的定义，这种生物武器的研究涉及“增强的潜在大流行病原体 (PPP)”或那些“由于增强病原体的传播性 和/或 病原体的毒力而产生的。”
 
-鉴于全球在生产层面和销售方面对这个亚洲巨人的工业依赖，中共国正在酝酿的变化最终将全面影响全球。就拿一些事实和数字来说吧。在生产方面，欧洲在2020年进口了5万辆“中国制造”的汽车，到2025年这一数字应该上升到50万辆。
+除了承认 WIV 正在使用 NIH 资金进行功能增强性研究外，Tabak 还透露，EcoHealth 未能遵守其在拨款项下的报告责任。EcoHealth 被要求在出现某些可能增加与研究有关的危险的情况下提交”二次审查”。因此，当武汉（WIV）的研究人员成功地将一种天然蝙蝠冠状病毒与小鼠体内的人类 AC2 受体结合时，他们应该通知 NIH，但他们没有这样做。
 
-但这一趋势与其说与Aiways、Lynk & Co等中国品牌的到来有关，不如说与西方制造商选择中国作为其一些新车型（如新雪铁龙C5-X）的生产基地有关。对中国的依赖也体现在销售方面：它是许多欧洲制造商，如大众、宝马等的第一大市场。
+根据 Tabak 的说法，Eco Health 现在有五天时间向 NIH 提交与该奖项项目相关的“任何和所有未发表的数据”，以达到合规目的。
 
-因此，如果中国的能源危机恶化，通货膨胀继续上升，消费就会下降，这可能对整个欧洲的汽车工业产生非常严厉的后果。
+该文件的其余部分试图证明 2014-2018 年 NIH 资助实验中使用的天然蝙蝠冠状病毒“在进化上与 SARS-CoV-2 相差几十年”，仅共享 96-97% 的基因组。
 
 **简评：**
 
-**作为全世界供应链中重要的一环的中共国已经绑架了世界经济。从中共国加入WTO的那一天开始，中共就已经开始了它绑架全球经济的计划。而中共国依靠的是剥削和压榨中国百姓的血汗，来维系着它的统治和对外的输出。虚假的经济数据、外汇的管制、汇率的操纵、惊人的企业外债……这一切终将有一天会被“戳破”。而这一天已然即将来临，世界的经济也已经走到了崩溃的边缘。**
+**据2021年10月1日《The Intercept》报道，总部位于美国的非营利组织生态健康联盟于 2020 年 9 月（也就是说，晚了两年多时间）向其资助者美国国立卫生研究院提交了该报告，而该组织因与中共国合作伙伴的合作而陷入争议。The Intercept 通过《信息自由法》[诉讼](https://theintercept.com/document/2021/09/09/the-intercept-v-national-institutes-of-health/)[获得了该报告](https://theintercept.com/2021/09/06/new-details-emerge-about-coronavirus-research-at-chinese-lab/)以及赠款提案和其他文件；NIH 和 EcoHealth Alliance 都没有对报告的日期提供解释，也没有回答 The Intercept 提出的关于该报告的另一个版本是否已按时提交的问题，如果是，该版本可能以何种方式被修改。**
 
-**无论西方的经济学家们如何分析，他们不会知道中共内部的真实情况，他们更不可能在这些由中共提供的虚假数据面前预测未来的走向。**
+**该年度报告描述了 WIV 小组从 2017 年 6 月到 2018 年 5 月的工作，其中包括利用现有蝙蝠冠状病毒的不同部分创造新病毒，并将它们插入中共国武汉实验室的人源化小鼠中。这项工作由 NIH 的国家过敏和传染病研究所（NIAID）监督，该研究所是由 Anthony Fauci 领导。**
 
-**全世界的经济灾难不可避免的即将到来。**
+**Dr. Richard Ebright 对此事件在[推特上](https://twitter.com/R_H_Ebright/status/1450947395508858880?s=20)如此表示（附两个NIH图）：“NIH 纠正了该机构主任 Collins 和 NIAID 主任 Fauci，关于 NIH 没有资助武汉的功能增强研究的不实之词；NIH 指出，EcoHealth Alliance 违反了 NIH 拨款 AI110964 的条款和条件；NIH 在 2018 年收到相关文件，并在 2020 年和 2021 年再次审查这些文件。”**
 
-（文章仅代表作者观点，与GNEWS无关）
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-12-4.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-13-3.png)
 
-**新闻来源**：[motorpasion.com] [El frenazo en seco de China es un hecho y el mundo se resentirá. Ahora sólo queda que cambien de modelo](https://www.motorpasion.com/industria/frenazo-seco-china-hecho-mundo-se-resentira-ahora-solo-queda-que-cambien-modelo)
+
+**所以，这位博士的总结如下（原推文）：NIH—具体而言，Collins、Fauci 和 Lawrence A. Tabak — 都在向美国国会撒谎，也向媒体撒谎，更向公众撒谎。是明知故犯。是故意的。是明目张胆地。一个受资助者可以违反 NIH 资助的条款和条件多少次，而不受到惩罚？(显然，如果受资助者是生态健康联盟，这个数字至少是四次）**
+
+（文章仅代表作者观点与GNEWS无关）
+
+**新闻来源：**[nationalreview][NIH Admits to Funding Gain-of-Function Research in Wuhan, Says EcoHealth Violated Reporting Requirements](https://www.nationalreview.com/news/nih-admits-to-funding-gain-of-function-research-in-wuhan-says-ecohealth-violated-reporting-requirements/) |作者：CAROLINE DOWNEY｜发布时间：2021年10月21日
 
 * * *
 
-***审核：Aires的星
-校对：阿伯塔
-发布：信心满满***
+*发稿：信心的选择*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
