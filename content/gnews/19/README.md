@@ -2,24 +2,31 @@
 ---
 
 
-## 加拿大通货膨胀率飙升至历来最高点
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1606908/)
+## GTV新闻访谈简报|2021年10月20日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1606929/)
 
-原文采编：文莱      编译撰稿：文所未闻
+作者：香草山翻译部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/t-edited.jpg)图片来源：后千禧年
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
 
 
-据加拿大自媒体《后千禧年》10月20日报道，加拿大统计局于当天公布报告指出，该国9月份消费者价格指数同比增长4.4%，达到2003年2月以来的最高点。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1020text-SC.png)
+文章仅代表作者本人观点，与Gnews无关
 
-与去年同期相比，主要商品价格均有大幅上涨，其中，运输类上涨9.1%，同时带动了其他类别商品价格的上涨。例如，肉类上涨近10%，是自2015年来最大涨幅；而汽油价格则暴涨32.8%。
+校对：Stay文苑
 
-加拿大统计局的该报告称：消费者需求激增，供应链瓶颈，新冠病毒疫情的不确定性等是该国物价上涨的主要原因。
+编辑：Stay文苑
 
-（以上内容仅代表原文信息和作者个人观点）
+发稿：Stay文苑
 
-* * *
+视频参看：[晚GTV新闻访谈](https://gtv.org/broadcast/watch/6170b40283e948708d049ff1)
 
-校对，编辑，发稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
 
-[原文链接：](https://thepostmillennial.com/food-gasoline-see-dramatic-spike-in-prices-as-annual-inflation-rate-hits-4-4-percent)
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
