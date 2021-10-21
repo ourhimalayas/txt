@@ -2,34 +2,36 @@
 ---
 
 
-## 辉瑞儿童疫苗：白宫内应“极速”的疫苗接种计划
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1606816/)
+## MD共和党国会议员：伊维菌素可以治疗中共病毒
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1606838/)
 
-编译：西班牙喜悦农场–wenwu
+翻译：西班牙喜悦农场–wenwu
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-4-8.png)图片来源：zerohedge.com
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-6-8.png)图片来源：finance.sina.cn
 
-拜登政府周三公布了其计划“快速”为大约 2800 万名 5-11 岁儿童接种疫苗，等待美国食品和药物管理局 (FDA) 的批准。
+一位来自[马里兰州](https://www.foxnews.com/category/us/us-regions/northeast/maryland)的[共和党](https://www.foxnews.com/category/politics/house-of-representatives/republicans)国会议员也是一名执业医师，他说他给感染中共病毒的患者开了伊维菌素药物，用于治疗中共病毒（COVID-19）的早期阶段。
 
-接种中共疫苗–并[不能阻止](https://www.zerohedge.com/covid-19/white-house-details-plan-quickly-vaccinate-28m-children-age-5-11)中共病毒（Covid-19）的传播。据美联社（AP)[报道](https://apnews.com/article/coronavirus-pandemic-business-health-coronavirus-vaccine-bf6e5c8725aca6c757b129dad8f96926)，白宫预计美国食品和药物管理局（FDA）将在几周内授权为儿童注射辉瑞公司的中共疫苗–听起来像打一针后不会感染或死于中共病毒：
+代表马里兰州第一个国会选区的美国众议员安迪·哈里斯（Andy Harris）在给[Fox 5 DC 的](https://www.fox5dc.com/news/maryland-rep-andy-harris-prescribes-ivermectin-to-patient-diagnosed-with-covid-19)一份声明中说：“我曾开出伊维菌素作为早期治疗 COVID 的方法。”
 
-“联邦监管机构将在未来两周内举行会议，权衡给孩子们打疫苗的好处，此前的漫长研究旨在确保疫苗的安全性；预计 CDC 定于 11 月 2 日[至](https://apnews.com/article/coronavirus-pandemic-science-health-coronavirus-vaccine-centers-for-disease-control-and-prevention-84ff9189e142536f90940366bcfa3f22)3 日举行的疾病控制和预防中心咨询会议之后，而且正式批准后的数小时内，[将开始向全国各地的供应商运送药物](https://apnews.com/article/coronavirus-pandemic-science-health-coronavirus-vaccine-centers-for-disease-control-and-prevention-84ff9189e142536f90940366bcfa3f22)，以及注射幼儿所需的较小针头，几天内（极速）将准备好大规模投入孩子们的怀抱。”——AP
+哈里斯曾是约翰·霍普金斯医院的医生、海军预备役的医疗官，以及在来到国会之前是一名州参议员。他目前仍然在马里兰州伊斯顿的纪念医院做兼职工作。他是马里兰州在国会中唯一的共和党代表。 在此之前，美国各地至少有超过24起医疗诉讼，其中许多是最近几周，人们试图迫使医院向感染 COVID 的亲人提供伊维菌素，这是一种寄生虫药物，保守派评论员将其作为一种治疗中共病毒的方法推广。即使如此，伊维菌素仍未经 FDA 授权或批准用于预防或治疗 COVID-19。根据疾病控制和预防中心 (CDC) 最近的健康咨询，伊维菌素滥用和过量服用在大流行期间攀升，正如人们就伊维菌素相关毒性向毒物控制中心发出的呼吁所表明的那样。
 
-根据该公告，白宫已经为注册需要疫苗的幼儿的儿科医生和初级保健医生提供了足够的2.5万多剂疫苗，而美国国现在有足够的辉瑞公司疫苗为大约2800万（即将符合条件的儿童）接种中共疫苗，这意味着这不会像我们10个月前看到的那样缓慢推出，当时剂量和能力问题意味着成年人必须等待。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-5-8.png)
 
-与此同时，白宫正在推出一项**“**广告**”**活动，以试图说服父母和孩子相信中共疫苗是安全和有效的。根据该报告，“拜登政府相信值得信赖的使徒——教育工作者、医生和社区领袖——就是那些宣传接种中共疫苗是至关重要的（受益者）。”
+2021 年 9 月 9 日星期四，佐治亚州一家药房里，药剂师在后台工作时，一盒伊维菌素出现在药房里。 （上图是美联社照片/迈克·斯图尔特）
 
-“中共病毒也扰乱了我们孩子的生活。它使学校变得更加困难，它扰乱了他们与朋友和家人见面的能力，它使青少年体育更具挑战性，“外科医生 Vivek Murthy 博士在周三向 *NBC* 发表的一份声明中说。“让我们的孩子接种中共疫苗，我们才有保护他们的前景，这也是让所有的小孩子恢复过去正常日子和社交活动的方法。”
+马里兰大学海岸地区卫生局在提供给[WBAL-TV 的](https://www.wbaltv.com/article/andy-harris-prescribes-ivermectin-as-treatment-for-early-covid-19/38008064#)一份声明中说：“安迪·哈里斯博士没有被马里兰大学医疗系统或马里兰大学（UM）海岸地区卫生局聘为医生；哈里斯博士与一个独立的医师团体签订合同，该医师团体为海岸地区卫生局（UM SRH）医院提供麻醉和其他医疗服务。医院与提供特定临床服务的团体签订合同，是整个医疗行业的普遍做法。”
 
-据 Murthy 称，拜登政府正在将疫苗授权（拒绝接种疫苗必将接受惩罚）的问题留给学校、地方和州官员。
+该声明继续表示：“伊维菌素未经 FDA 授权或批准用于预防或治疗 COVID-19，并且尚未证明对这些适应症是安全或有效的；美国国立卫生研究院 (NIH，福奇) COVID-19 治疗指导小组还确定，目前没有足够的数据推荐伊维菌素用于早期治疗 COVID-19。”
 
-“当涉及学校要求时，这些决定是由地方和州做出的，”Murthy 说：“你已经看到一些地方和州正谈论对儿童的疫苗要求。我认为考虑提高这些疫苗接种率是合理的。这也与我们为其他儿童疫苗所做的工作一致，比如麻疹、腮腺炎、小儿麻痹症。”
+[2020 年 6 月的一项研究](https://www.sciencedirect.com/science/article/pii/S0166354220302011)表明，单剂量的伊维菌素可在 24 小时内将细胞中 COVID 的病毒载量减少 99.8%，并发现“伊维菌素是体外的 COVID-19 致病病毒（SARS-CoV-2）的抑制剂。*”*
 
-美国政府已经购买了 6500 万剂辉瑞儿科中共疫苗——预计其中区别就是，含有成人和青少年剂量的三分之一。FDA 的独立咨询委员会将于 10 月 26 日召开会议，考虑授权辉瑞为 5-11 岁儿童接种中共疫苗。
+医院出于利益对该诉讼进行了反击，并称他们的护理标准不允许他们给病人服用一种尚未被批准，可用于中共病毒并或可能造成伤害的药物，而且允许外行人和法官推翻医学专家（福奇）的意见，本身是一条危险的道路。
+
+据 WBAL-TV 报道，美国药剂师协会和美国医学协会在 9 月发表声明称，这两个组织都“强烈反对在临床试验之外订购、开具或分发伊维菌素以早期预防或治疗 COVID-19”。
 
 （文章仅代表作者观点与GNEWS无关）
 
-**新闻来源：**[zerohedge][White House Details Plan To “Quickly” Vaccinate 28M Children Age 5-11](https://www.zerohedge.com/covid-19/white-house-details-plan-quickly-vaccinate-28m-children-age-5-11) | 作者：TYLER DURDEN｜发布时间：2021年10月20日
+**新闻来源：**[foxnews][Maryland U.S. Rep. Andy Harris prescribes ivermectin to patient to treat COVID-19](https://www.foxnews.com/politics/maryland-gop-congressman-prescribes-ivermectin-covid-19-patient) | 作者：Danielle Wallace｜发布时间：2021年10月20日｜封面图来源：(Stefani Reynolds/Bloomberg via Getty Images)
 
 * * *
 
