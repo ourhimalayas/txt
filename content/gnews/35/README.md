@@ -2,37 +2,41 @@
 ---
 
 
-## 国际要闻汇编
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1607573/)
+## 司法部官员：疫苗宗教豁免权只给正直的美国人
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1607822/)
 
-#### 素材：东京樱花团｜GNEWS组
+**编译：西班牙喜悦农场–wenwu**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip43.png)图片来源：Tyler Durden
+拜登司法部的一名律师被录音录像，驳斥了美国人声称（有权）对中共病毒（Covid-19）疫苗进行宗教豁免的诚意。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/guoji1021.png)[*图片来源*](https://gdb.voanews.com/5F0E2680-7FB9-42CB-8CA8-EC33AC52CF89_w1597_n_r1_st.jpg)
+在[Human Events](https://humanevents.com/)高级编辑杰克·波索别克（Jack Posobiec）报道的 9 月泄露的电话中，可以听到司法部律师马蒂·莱德曼（Marty Lederman）与拜登政府就如何打击疫苗宗教豁免请求，以制定阻止美国人绕过拜登疫苗全面授权的战略。
 
-**10月21日汇编**
+根据莱德曼的说法，“有一些案例。例如，在目前进行针对纽约州的疫苗案件中，[托马斯·莫尔协会](https://thomasmoresociety.org/)（Thomas More Society）代表一群医生和护士，他们声称，如果（纽约政府）与堕胎的邪恶行为合作，他们将犯下严重的罪行。他们怎么会这样做？他们声称，目前主流的三大疫苗，要么在中共疫苗本身中含有通过堕胎获得的胎儿细胞；要么在辉瑞公司和 Moderna 公司的案例中，他们的中共疫苗是用被流产的胎儿细胞进行测试的，甚至与之前测试的联系，这表明疫苗制药厂以被宗教所禁止的手段与恶魔做交易。”
 
-1、[**疫苗覆盖率破8成 新加坡单日死亡创新高**](https://www.aboluowang.com/2021/1021/1662214.html)
+“我不想说得太绝对，但我相信，这种说法对于政府机构来说是很难成功地被承认（圣经约伯记），这是不正直的或不虔诚的，即使如此。即使我们假设这些说法中的许多都是不正直的，或者是正直而不虔诚的。疫苗宗教豁免权的申请仍是您可能要面对的最常见的状况，也就是说您有必要把雇员的主张作为一个既定事实。”
 
-据新加坡《联合早报》报导，当地卫生部门昨晚通报20日的疫情，共新增3862人确诊。新加坡的疫苗覆盖率已经超过8成，从8月开始也逐步松绑防疫措施，这样“与病毒共存”的防疫策略，不但让新加坡的确诊数在19日达到新高，病殁数在20日创下“疫情爆发以来最高纪录”。
+“并不总是这样，对吧，但一些医院已经开始给出的一个回应是，’你知道Tylenol、Tums和Preparation H，这些也都是用流产的胎儿细胞系进行测试的。’我希望员工会说’好吧，我之前是不知道的，但现在你告诉我了，我也会停止使用这些产品的’。”
 
-2、[**“不能信任中国承诺” 美驻华大使被提名人伯恩斯强硬表态**](https://www.voachinese.com/a/us-china-ambassador-burns-confirmation-hearing-20211020/6279475.html)
+“然后我们将针对’一旦雇员表明了反堕胎疫苗这点，美国政府必须做什么’。在这里，基本上有一个令人信服的利益，显然，保持我们的劳动力和与我们互动的公众免受中共病毒的影响。”
 
-美国总统拜登提名的新任驻中国大使人选伯恩斯（Nicolas Burns）周三（20日）在参议院外交关系委员会上，对中国近来在印太地区各种咄咄逼人的行动作出强硬表态，称美中关系已经发生“根本性的变化”。他说，如果人事案获得确认，他有信心美国能证明中国宣称的“东升西降”说法是错误的。这位职业外交官还说，在台湾问题上，“不能相信中国作出的任何承诺”。
+经过进一步研究，Posobiec 得出的结论是，拜登政府怀疑美国人的信仰是否真诚，他们声称美国人如此反对堕胎以至于他们不想从堕胎细胞中受益。事实上，这不仅是因为他们不认为美国人的信仰是正直的，而且在某种程度上，美国政府正试图规划绕过这些基于信仰的主张的战略部署。
 
-3、[**拜登对中国发展高超音速导弹感到关切**](https://www.voachinese.com/a/US-china-hypersonic-missiles-20211020/6279427.html)
+正如 [The Post Millennial](https://thepostmillennial.com/breaking-leaked-audio-doj-sincerity-religious-exemptions)的 Libby Emmons 所指出的：
 
-美国总统拜登周三（20日）表示，他对中国的高超音速导弹感到关切。几天前，英国的《金融时报》报道说，北京测试了一种可携带核弹头的高超音速滑翔武器。
+自拜登上任以来，堕胎和天主教问题一直是激烈争论的焦点，因为这位天主教总统声称他支持堕胎。《华盛顿邮报》甚至说反对堕胎的天主教徒是“[右翼”](https://thepostmillennial.com/washington-post-blasted-for-referring-to-catholics-who-oppose-abortion-as-right-wing)。
 
-4、[**对抗中国（共）威胁是今后10年战略重点**](https://www.voachinese.com/a/china-nato-military-weapon-20211020/6278944.html)
+当被问及拜登总统对堕胎的立场时，白宫新闻秘书 Jen Psaki [声称他的信仰是他个人问题](https://thepostmillennial.com/watch-psaki-dodges-question-on-bidens-stance-on-abortion-and-his-faith-saying-its-personal)，至于他如何调和他的宗教观点和他的灵粮，以及他支持堕胎的立场，她无权回答。
 
-北大西洋公约组织(NATO)秘书长斯托尔滕贝格（Jens Stoltenberg）近日在接受《金融时报》采访时指出，北约的战略中心将向中国转移，这意味着北约对其中国战略的重大反思，拉近了该联盟与美国的立场，扩大了双方对抗中国威胁的合作空间。
+“乔·拜登是一个坚定的信仰者，正如他几天前指出的那样，这是个人问题。他几乎每个周末都去教堂。他甚至在我们出国旅行的时候，独自去做礼拜。但这对他来说是个人的事，他不会把信仰问题政治化，我们也不会评论天主教会的内部运作，” Psaki 说。在此之前，一些美国天主教主教因为拜登总统公开支持堕胎的立场而呼吁拒绝为他举行圣餐仪式。
 
-5、[**中美公司签署巨额液化天然气供应协议**](https://www.aboluowang.com/2021/1021/1662060.html)
+除了试图破坏美国人在选择是否接种中共疫苗方面的宗教自由之外，本届政府还试图[迫使天主教医院进行变性手术，](https://thepostmillennial.com/biden-admin-seeks-to-force-religious-doctors-to-perform-gender-transition-surgery)并以“性别正确”（政治正确）的方式来治疗性别障碍症患者。
 
-美国能源部网站的文件说，中国国营石油公司中石化（Sinopec）上个月与美国Venture Global公司签署了两项20年的协议，每年一共提供4百万吨液化天然气。这将是最大一笔液化天然气贸易协议。这次签署的协议也让中国从美国进口的液化天然气总量在去年310万吨的基础上增加一倍。
+（文章仅代表作者观点与GNEWS无关）
 
-（本文只代表个人观点，与Gnews网站无关）
+**新闻来源**：[zerohedge.com ]| [Leaked Audio: DOJ Official Doesn’t Think Americans ‘Sincere’ Over Religious Exemptions](https://www.zerohedge.com/political/leaked-audio-doj-official-doesnt-think-americans-sincere-over-religious-exemptions)| 作者：TYLER DURDEN｜发布时间：2021年10月20日｜
 
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / 野猫*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-7.png)
+* * *
+
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)

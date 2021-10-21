@@ -2,61 +2,50 @@
 ---
 
 
-## FDA 表示不再购买流产胎儿的细胞组织
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1607833/)
+## 台经济考察组于“光复节”前访问东欧三国刺激中共
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1608002/)
 
-**编译：西班牙喜悦农场–wenwu**
+#### 作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-13.png)[*图片来源*](https://www3.nhk.or.jp/news/html/20211021/K10013315791_2110210458_2110210459_01_04.jpg)
+**台湾经贸考察团于20日晚于光复节前访东欧三国。 这体现了台湾不惧中共 “反人类罪” 政权威胁，但中共只要存续一天，他仍具有随时威胁台湾的能力。 对此，中共无耻地宣称，台湾回到祖国怀抱就是“台湾光复”。这一举措令台湾此行凶多吉少。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip46.png)Jason Armond : Los Angeles Times via Getty Images
+据NHK21日消息称，“[台湾部长率领的经济考察组于20日晚启程前往斯洛伐克等三个国家](https://www3.nhk.or.jp/news/html/20211021/k10013315791000.html?utm_int=nsearch_contents_search-items_001)。”加强对台关系的运动在欧洲继续进行，预计中方会反对。
 
-美国食品和药物管理局(FDA)周五向 Daily Caller News Foundation 保证，自 2018 年以来，它没有签订任何“购买人类胎儿组织”的合同。
+台湾经贸考察团成员共66人，其中除几名政府官员。作为从事IT和精密机械公司的企业家也随行访问。该团将于10月30日前正式访问斯洛伐克、捷克、立陶宛，商讨扩大贸易投资，特别是[拜登政府期待的供应链](https://www.voachinese.com/a/us-taiwan-china-supply-chain-chips-20210129/5757650.html)问题。
 
-FDA 的回应是在《司法观察》获得的[**文件**](https://www.judicialwatch.org/press-releases/new-fda-records-humanized-mice/)发布后作出的，该[**文件**](https://www.judicialwatch.org/press-releases/new-fda-records-humanized-mice/)显示 FDA 曾采购了人类胎儿器官、组织和头颅用于涉及“人源化小鼠”的研究。《司法观察》的[**先前文件**](https://www.judicialwatch.org/press-releases/fda-humanized-mice/)显示，FDA 要求采购“新鲜且从未冷冻”的胎儿器官清单。[（相关：未密封的发票显示，计划生育协会向一家细胞组织公司支付了近 2.5 万美元的胎儿部位商品费用）](https://dailycaller.com/2020/04/14/planned-parenthood-david-daleiden-stemexpress-fetal-body-parts-payments-lawsuit/)
+- ***延展阅读：***[***台湾企业因出口地变动或生产转移急需调整供应链***](https://www.jetro.go.jp/biz/areareports/special/2019/1201/03063e03b4d39ad6.html)
 
-“我已经做了 23 年了。我们从 FDA 和我们的其他诉讼中获得的这些文件……它们是我生来见过的最糟糕的文件，”《司法观察》主席汤姆·菲顿（Tom Fitton）周五告诉 Daily Caller News Foundation Friday。“我生来见过的最令人不安就是这文件了。”
 
-在周五给 DCNF 的一份声明中，FDA 并未否认购买未出生婴儿的身体部位（商品），并淡化了其对人类胎儿组织的使用，称其仅用于“对了解药物和疫苗的安全性至关重要的情况，且无法通过其他方式来实现。”
+该消息称，去年参议院主席访问台湾时，捷克正准备与立陶宛设立新的外交机构。
 
-“自 2018 年以来，FDA 没有签订任何购买人类胎儿组织的合同，”FDA 告诉 DCNF，并补充说“之前涉及人类胎儿组织的研究仅占 FDA 总研究的很小一部分。”
+“此外，欧盟9月宣布了印太战略，其中规定加强与台湾的经济关系，目前正在采取措施加强与台湾的关系。”而“[台湾与立陶宛政府也达成共识，同意于今年下半年相设代表处，为我国在中东欧及波海地区打开一扇新的经贸机会之窗](https://www.rfi.fr/tw/%E5%9C%8B%E9%9A%9B/20210914-%E5%8F%B0%E7%81%A3%E5%A4%A7%E5%9E%8B%E7%B6%93%E8%B2%BF%E6%8A%95%E8%B3%87%E8%80%83%E5%AF%9F%E5%9C%98%E5%B0%87%E8%A8%AA%E4%B8%AD%E6%9D%B1%E6%AD%903%E5%9C%8B)”。
 
-《司法观察》通过 2019 年信息自由法案 (FOIA)对美国卫生与公共局 (HHS)[提起的诉讼](https://www.judicialwatch.org/press-releases/judicial-watch-sues-health-and-human-services-for-documents-on-human-fetal-tissue-used-in-humanized-mice-testing/)，获得了这些跨越 2012 年和 2013 年的通信。[（相关：计划生育协会的员工作证，她想以每人 750 美元的价格出售胎儿肝脏）](https://dailycaller.com/2019/12/09/planned-parenthood-tram-nguyen-fetal-livers/)
+另据消息称，台湾在经济、贸易相关战略目的是期待“[由民主国家建立全球供应链](https://jp.taiwantoday.tw/news.php?unit=148,149,150,151,152&amp;post=207739)。”
 
-《司法观察》的诉讼要求 FDA 与人类胎儿组织供应商 Advanced Bioscience Resources (ABR) 之间的所有通信和文件，这些文件涉及拟用于人源化小鼠研究的人类胎儿组织——研究人员[将](https://www.niaid.nih.gov/research/humanized-mouse-model-workshop)未发育的人类组织细胞植入活体小鼠体内的过程。
+中共国对上述外交事件一直耿耿于怀。据[澎湃新闻](https://m.thepaper.cn/newsDetail_forward_9009694)网透漏，中捷双边关系自毛泽东时期以来充满着各种波折和起伏，不停地陷于“巨大期望——极度失望”的循环怪圈中。
 
-根据《司法观察》报道，一家联邦法院[随后命令](https://www.judicialwatch.org/wp-content/uploads/2021/03/JW-v-HHS-order-00876.pdf) HHS 公布更多关于流产胎儿组织收获的信息，并[表示](https://www.judicialwatch.org/press-releases/aborted-fetuses-information/)“有理由质疑”这些交易是否违反了禁止销售胎儿器官的联邦法律。
+- ***延展阅读：***[***深刻汲取台湾高雄“城中城”大楼火灾教训 国务院安委办、应急管理部部署加强消防安全工作***](https://www.emerinfo.cn/2021-10/20/c_1211412461.htm)
 
-胎儿组织已被[用于](https://chancellor.ucsf.edu/blog/response-administrations-actions-fetal-tissue-research)一些为寻求治疗方法的[研究项目](https://senate.universityofcalifornia.edu/_files/reports/rm-jn-mb-restrictions-fetal-tissue-research.pdf)，包括阿尔茨海默氏症、脊髓损伤、眼疾和艾滋病毒，但宗教和反堕胎倡导者认为这种做法是不道德的，因为胎儿组织来自流产的婴儿。 [（相关：胎儿组织研究对医学至关重要吗？专家是这样说的）](https://dailycaller.com/2019/06/07/fetal-tissue-research/)
 
-在前美国总统唐纳德·川普(Donald Trump)执政期间，HHS [对](https://dailycaller.com/2019/06/05/trump-cancel-fetal-tissue-research-government-funding/)由美国政府资助的涉及[选择性流产胎儿组织的](https://dailycaller.com/2018/08/17/planned-parenthood-video-abortions/)研究[进行](https://dailycaller.com/2019/06/05/trump-cancel-fetal-tissue-research-government-funding/)了为期九个月的审查 ，最终 HHS 在 2019 年 7 月禁止 NIH 内部研究团队使用胎儿组织。
+自1949年10月，捷克是东欧和中欧各国中最早承认中华人民共和国的五个国家之一。曾作为苏联的一员，朝鲜战争爆发后，两国关系更近。之后两国在分歧与合作中并存。直到2008年奥运会，捷克外长反对在中国召开，两国出现明显分歧。捷克主要在人权问题上一直反对中共国。但仍然羞答答地“坚持一个中国”原则。
 
-值得一提的是，拜登政府在今年 4 月份[撤销了](https://dailycaller.com/2021/04/16/joe-biden-roe-v-wade-department-of-health-and-human-services-donald-trump/?filter_by=popular&amp;p=374&amp;page=66&amp;ref=hexometer)这项禁令。
+自中共发动生物战以来，一切都变了。捷克等中东欧五小国也意识到了，只有不惧威胁，高举民主价值观，才敢于拒绝所谓“巨大的中国市场”的诱惑。
 
-“所以现在拜登政府的 FDA 正在为制造中共疫苗而选择使用未出生人类的部分商品，并为之辩护，”Fitton 对 DCNF 说。“这就是他们要干的事情？”
+可见，捷克等国仍然在逆境中与台湾握手，也是看到了中共这个庞然怪兽即将倒下的趋势，作出这样决定才不失为明智之举。
 
-“很少有美国人会支持将未出生人类的遗骸切碎用于科学研究，使用他们的器官，出售他们的头颅，用于FDA和他们的研究人员想做的任何弗兰肯斯坦实验，”Fitton 对 DCNF 说。”这是野蛮行为。应该进行刑事调查，以弄清是否像法院所建议的那样，违反了禁止销售胎儿器官以谋取暴利的法律。”
+- ***延展阅读：***[***对中国有“血海深仇”？捷克和立陶宛的挑衅，自然是背后有人指使***](https://3g.163.com/dy/article/GJROGS5R055271UB.html)
 
-美国计划生育协会（The Planned Parenthood Federation of America）一再为自己的[指控辩护](https://dailycaller.com/2020/04/14/planned-parenthood-david-daleiden-stemexpress-fetal-body-parts-payments-lawsuit/)，就是关于其出售人类胎儿组织的指控。该组织[公开](https://www.wsj.com/articles/planned-parenthood-stops-taking-reimbursements-for-fetal-tissue-1444744800)承认他们因为销售胎儿组织获得了报酬，但他们只承认用来报销费用（没有利润，可能吗？），随后表示他们将不再接受报销费用（资金来源被隐藏了）。
 
-像大卫·达莱登 (David Daleiden，如下图) 这样的反堕胎倡导人士[此前曾指出](https://www.foxnews.com/politics/pittsburgh-live-fetus-organs)，一些未出生的婴儿在摘取器官时可能会出现心脏活动，这表明这些婴儿可能还活着。FDA 没有立即回应关于这一点的评论请求。
+当然，只要中共政权存续一天，他在国际社会仍然被视为“合法政府”，尽管头顶一个“反人类罪”罪名，它仍然具有随时威胁台湾的能力。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip45.png)
+与此同时，台湾即将于25日迎来“光复节”，对此，[中共新华社20日无耻地宣称](http://www.news.cn/2021-10/20/c_1127977867.htm)，“海峡两岸民间交流基地授牌仪式20日举办。”并称，“来自台湾学者和义勇队后人相聚浙江金华，纪念台湾光复纪念日。”
 
-**简评：**
+声称，“76年前，中国人民取得了抗日战争的伟大胜利，台湾回到祖国怀抱。台湾光复，意味着台湾同胞摆脱了被殖民统治、被欺凌奴役的悲惨历史。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip47.png)
+2021年10月21日
 
-**一则相关[报道](https://www.judicialwatch.org/in-the-news/new-records-aborted-babies/)。有新记录[显示](https://www.lifenews.com/2021/09/14/new-records-show-obama-admin-purchased-aborted-babies-heads-for-515-each/)，奥巴马政府以每个 515 美元的价格购买了流产婴儿的头部。**
+（本文只代表个人观点，与Gnews网站无关）
 
-**《司法观察》于2021年9月15日宣布，其收到了美国食品和药物管理局 (FDA) 的 [198 页](https://www.judicialwatch.org/documents/jw-v-hhs-fda-humanized-mice-may-2021-00876/)记录和通讯，涉及“[人性化小鼠](https://www.ewtn.com/catholicism/library/fetal-experimentation-frankenstein-revisited-9610)”（HM）对人类胎儿头部、器官和组织的研究，包括与人类流产胎儿组织提供商 Advanced Bioscience Resources 的通讯和合同(ABR)。**
-
-**这对华人的冲击是很大的，因为华人经历过毛时代的“计划生育”，这导致了5亿华人的婴儿流产死亡。那么在疫情大流行的当下，您还相信这里面没有利润吗？我们要好好去想想。当然，也包括了中共疫苗。**
-
-（文章仅代表作者观点与GNEWS无关）
-
-**新闻来源**：[dailycaller.com] | [FDA Says It Does Not Buy Fetal Tissue — Any More](https://dailycaller.com/2021/09/17/fda-aborted-fetal-tissue-humanized-mice/)| 作者：MARY MARGARET OLOHAN｜发布时间：2021年9月17日｜
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

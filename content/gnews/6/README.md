@@ -2,34 +2,27 @@
 ---
 
 
-## 波音公司员工示威抗议强制接种疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1608012/)
+## 拜登政府公布5至11岁儿童中共病毒疫苗接种计划
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1608086/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/boeing.jpg)图片来源：aljazeera.com
-#### 编译：小红帽
+#### 撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/10/r.jpg)（图片来源于本文链接）
+白宫周三宣布，预计未来几周，美国5至11岁的儿童将可以开始接种辉瑞公司中共病毒疫苗。目前已经储备充分的辉瑞儿童疫苗可以完成2800万名5至11岁儿童的接种，待美国食品药品监督管理局（FDA）和美国疾病控制与预防中心（CDC）批准，联邦政府将立即开始向各州分发辉瑞中共病毒儿童疫苗。
 
-周三，波音公司的员工于伯克利的前总部对面参加了一场示威活动，以表达他们对疫苗接种要求的不满。
+据悉，FDA和CDC将分别于10月26日和11月2日至3日审核辉瑞儿童疫苗的使用建议。到目前为止，辉瑞公司的16岁以上的成人疫苗已经得到完全授权，12至15岁的青少年疫苗处于紧急授权使用状态。
 
-波音员工最近收到了即将实施疫苗接种要求的通知。
+根据最新一份民调，在12岁以下儿童的父母中，有55%的父母表示他们将接种新冠疫苗，有45%的父母表示，他们不会接种。相对应的是，儿童疫苗强制令也很快成为一个党派议题，民主党对儿童疫苗持支持或开放态度，而共和党则对此坚决反对。
 
-“我们被告知必须在12月8日之前接种疫苗，”示威者蒂姆·布洛克（Tim Block ）表示。 “我们还没有被告知12月8日之后会发生什么。”
+爆料革命和文贵先生早已反复强调，所有的中共病毒疫苗均是毒疫苗，将引发血栓、心梗、脑梗、肛梗等致命疾病。并用最基本的常识告诉世界，病毒来源和病毒情况都没搞清楚，疫苗是如何做出来的？
 
-波音公司员工克里斯·西格 (Chris Seager) 表示，是否接种疫苗应该是个人的决定。这不应该成为就业的一个条件。
+人们应该随时警惕的是，当一件商品免费的时候，其实你就是商品。
 
-该授权源于一项影响联邦工作人员和国防承包商的联邦命令。
+消息来源：
 
-波音公司回应Fox 2的评论请求，并发表声明称：“波音公司致力于为我们的员工维持一个安全的工作环境，促进全球员工的健康和安全是我们价值观的基础，也是我们每天的核心优先事项。”
+[“小针管、不排队、不会哭” ，拜登政府公布5至11岁儿童新冠疫苗接种计划](https://www.yicai.com/news/101204313.html)
 
-一些员工告诉Fox 2，他们将寻求宗教豁免。示威者表示，他们准备在未来举行更多的抗议活动。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Demonstrators protest vaccine requirement at Boeing (fox2now.com)](https://fox2now.com/news/missouri/demonstrators-protest-vaccine-requirement-at-boeing/)
-
-***发布：小红帽*****更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

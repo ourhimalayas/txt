@@ -2,38 +2,20 @@
 ---
 
 
-## 盖特平台再次进行Live Streaming直播测试
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1607563/)
+## 【玫瑰看新闻】第187期 币圈新闻
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1607774/)
 
-作者：纽约香草山教育部 – Delilah小胖
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国东部时间周一晚间，盖特平台再次进行了Live streaming直播测试。本次测试依旧由郭文贵先生领衔进行。参与本次直播测试的，还有盖特大V用户长岛哥、正义小Sarah和Rachel等。
+[涨破6万6000美元 比特币改写新高纪录](https://www.cnbeta.com/articles/tech/1192889.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-1-9.jpg)
+据法新社报道，基金管理公司ProShares的比特币策略ETF（ProShares Bitcoin Strategy ETF）昨天在纽约证券交易所（NYSE）挂牌交易，代码为BITO，这项加密货币市场引颈企盼的盛事，推升比特币攀涨。加密货币行业周二迎来一个重要分水岭，美国第一支与比特币相关的交易所交易基金（ETF）上市，首日成交额创下历史次高记录。这只BITO，周二上涨约4.9%至41.94美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/0-2.png)
+比特币在伦敦已经飙涨至新高价位6万6976美元，直逼6万7000美元关卡。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-2-5.jpg)
+比特币曾在周三创下了66943.50美元的历史新高。根据CoinDesk的数据，最新的涨势将比特币今年迄今的收益率推高到122%。在未来几周，可能会有更多基于比特币期货的ETF在美国亮相，为美国加密货币投资者提供了参与所谓的”现金和套利”策略的可能性。
 
-本次Live Streaming直播测试，共进行了1小时39分钟，吸引了众多盖特用户的在线观看。直播测试效果良好，画面清晰流畅，各项基本功能如点赞、互动留言和转发等运行良好。
+[参考链接](https://www.rfi.fr/cn/%E6%B6%A8%E7%A0%B46%E4%B8%876000%E7%BE%8E%E5%85%83-%E6%AF%94%E7%89%B9%E5%B8%81%E6%94%B9%E5%86%99%E6%96%B0%E9%AB%98%E7%BA%AA%E5%BD%95)
 
-据悉，盖特直播功能，将于近期推出。郭先生在直播中号召广大的盖特用户，在盖特上多多开展直播活动，尤其是英文直播，以传播病毒及疫苗真相。
+【文章仅限作者个人观点 不代表GNEWS平台】
 
-新闻链接：[https://gettr.com/post/pejgy3dc01](https://gettr.com/post/pejgy3dc01)
-
-**本文谨代表作者观点**
-
-![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
-
-**总编：Irene木木/正义的小新**
-
-**校对/发稿：童谣**
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+审核校对：Barry Jack
+上传排版：F

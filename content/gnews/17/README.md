@@ -2,36 +2,34 @@
 ---
 
 
-## 郭文贵先生2021年10月20日对全世界政府和投资者的警告
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1607868/)
+## 波音公司员工示威抗议强制接种疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1608012/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot_副本-20.jpg)
-据[2021年10月20日 文贵大直播： 喜币是最真实干净的革命性货币，喜支付的商业历史性意义；马云在被进行刑事调查时没有及时如实公告，马云在西班牙操纵股价，蔡中信的房子是马云的，他洗掉了马云75%的钱；江志城的投资都和马云有关联，都是刑事犯罪；呼吁企业家与新中国联邦合作，一起灭共](https://gtv.org/video/id=61700c08304e992109b806ee)时间点2：27：41——
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/boeing.jpg)图片来源：aljazeera.com
+#### 编译：小红帽
 
-共产党在全世界的经济犯罪、超限战，现在已经无人能停下，共产党对全世界的威胁已经无人可以避免，只有新中国联邦、爆料革命让全世界知道真相。华尔街你这3000个基金，如果你看了郭文贵爆料，你不采取措施，你就是欺骗，你就是犯罪。
+周三，波音公司的员工于伯克利的前总部对面参加了一场示威活动，以表达他们对疫苗接种要求的不满。
 
-我已经告诉你们，所有中国上万名企业家的家人是被绑架、边控、威胁状态，你们应该给每个人按照美国法律发函——你是否在自由状态？你是否家人失去自由？你是否被中国政府刑事调查？如果这些信息没有告诉你，你们都是共犯，都是犯罪。
+波音员工最近收到了即将实施疫苗接种要求的通知。
 
-这是今天郭文贵直播向全世界各国政府、所有投资中共国的和通过香港和各种结构、投资结构、投资中国的各机构和各国家政府发出的警告。保护你们国家人民的养老金、退休金和你们国家人民的资产安全，应该把所有投资中国的人的所有的个人安全和合作者的安全性和真实性，完全通过法律了解固定化，否则你们将非常惨，将面临你们国家的人民的审判。
+“我们被告知必须在12月8日之前接种疫苗，”示威者蒂姆·布洛克（Tim Block ）表示。 “我们还没有被告知12月8日之后会发生什么。”
 
-（以下暂略）
+波音公司员工克里斯·西格 (Chris Seager) 表示，是否接种疫苗应该是个人的决定。这不应该成为就业的一个条件。
 
-撰稿：喜马拉雅的肉夹馍
+该授权源于一项影响联邦工作人员和国防承包商的联邦命令。
 
-审核：喜马拉雅的馍夹肉
+波音公司回应Fox 2的评论请求，并发表声明称：“波音公司致力于为我们的员工维持一个安全的工作环境，促进全球员工的健康和安全是我们价值观的基础，也是我们每天的核心优先事项。”
 
-校对：Maarago
+一些员工告诉Fox 2，他们将寻求宗教豁免。示威者表示，他们准备在未来举行更多的抗议活动。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**参考新闻：**[Demonstrators protest vaccine requirement at Boeing (fox2now.com)](https://fox2now.com/news/missouri/demonstrators-protest-vaccine-requirement-at-boeing/)
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+***发布：小红帽*****更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
