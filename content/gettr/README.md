@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/21/2021 5:43 PM (UTC)`
+
+10/20/2021 Miles Guo: Xi Jinping has known that Jack Ma, Alvin Jiang and others plotted to get rid of him, so he will never show any mercy on them! Fu Zhenghua knew that he was bound to be sentenced to death, so he would make a confession of other peoples’ crimes. Anyone who thinks he can escape by chance will find his doom!<br/><br/>10/20/2021 文贵直播: 习近平得知马云、江志成等人要除掉他，所以他绝对不会对这些人手软。傅政华知道自己必死无疑，定会把所有相关的人都供出来。在国内幻想侥幸的人不会有好下场!
+![img](https://media.gettr.com/group45/getter/2021/10/21/17/43/aa30fcb9-d084-a07f-0a19-2cab299331e3/out.jpg)
+
+---
+
 `@miles 10/21/2021 4:21 PM (UTC)`
 
 10月21号：尊敬的战友们好……虚拟货币时代的到来……和世界经济的危机……将诞生新的金融体系和金融帝国。共产党的内部的斗争腥风血雨，随时出大事儿。
@@ -289,13 +296,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 10/17/2021 Miles Guo: During the CCP virus epidemic in Wuhan, Xi didn’t go to Wuhan because he was told Sun Lijun, Wang Like, and others were going to assassinate him. So, Xi immediately sent people to investigate it, had Sun Lijun taken to Shuanggui, put Meng Jianzhu and Wang Qishan under house arrest. It turned out Alvin Jiang was found to be involved in it.<br/><br/>10/17/2021 文贵直播：2020年武汉疫情期间，习没去武汉是因其得知孙力军和王立科等人要杀他，于是习马上派人去查，双规了孙力军，软禁了孟建柱和王岐山，最后发现这跟江志成有关<br/>
 ![img](https://media.gettr.com/group12/getter/2021/10/17/17/54/db815dbf-64d5-3e26-7721-d1a312660a65/out.jpg)
-
----
-
-`@miles 10/17/2021 12:34 PM (UTC)`
-
-疫苗青蒿素轰动全球；金融大危机促生变革
-![img](https://media.gettr.com/group49/origin/2021/10/17/12/3a157294-9363-5719-d4ee-a9afb97d8bbb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

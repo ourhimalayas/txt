@@ -2,29 +2,27 @@
 ---
 
 
-## 外贸困顿，广交会成“内销会”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1608641/)
+## GTV新闻访谈简报|2021年10月21日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1608694/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-103.jpg)
-[图片来源](https://www.chinahot.org/zhihu/387855/%E7%AC%AC130%E5%B1%86%E5%BB%A3%E4%BA%A4%E6%9C%83%E4%BE%86%E4%BA%86%2010%E6%9C%8815%E6%97%A5%E5%BB%A3%E5%B7%9E%E9%96%8B%E5%B9%95_%E5%8F%83%E5%B1%95.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
 
-10月19日下午，为期5天的第130届广交会落幕。展会期间，有近400家企业向广州海关表达了出口转内销的强烈意愿。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-21.png)
+文章仅代表作者本人观点，与Gnews无关
 
-“希望通过广交会这个平台，在稳住海外订单的同时，更多地拓展国内市场”。广州蒙娜丽莎卫浴股份有限公司成立于2012年，是卫浴行业知名企业，产品出口到北美、欧洲、中东、东南亚等地。
+视频参看：2021.10.21早GTV新闻访谈
 
-广东凌丰家居用品股份有限公司表示，“对于习惯于只负责生产加工、不负责分销渠道这一发展模式的外贸企业来说，从外贸转型拓展国内市场面临很大的挑战。”数据显示，今年以来，截至10月上旬，广州海关为866家加工贸易企业办理了内销手续。
+[https://gtv.org/video/id=61715d3583e948708d055705](https://gtv.org/video/id=61715d3583e948708d055705)
 
-创办于1957年[春季](https://zh.wikipedia.org/wiki/%E6%98%A5%E5%AD%A3)的“广交会”，是中共国目前规模最大、成交效果最好的国际贸易展会，也被称为中共国外贸的“风向标”和“晴雨表”。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-受全球疫情对国际贸易的持续影响，众多加工贸易企业面临原材料价格大增、汇率波动变大、国际运费暴涨等巨大压力，对外的竞争力丧失，被迫转向国内市场。加之，当前中共国内经济急转直下和消费严重萎靡，又进一步加重了市场的风险和不确定性，外贸企业危矣！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
 
-信息来源：
-
-[广交会：近400家企业有意出口转内销](https://news.dayoo.com/guangzhou/202110/20/139995_54087355.htm)
-
-免责声明：文章仅代表作者本人观点，与GNEWS无关
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

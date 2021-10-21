@@ -2,29 +2,32 @@
 ---
 
 
-## 玉璧、玉钺及玉琮的寓意
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1608460/)
+## 缅因最高法院驳回反对强制医疗人员接种疫苗政策的诉求
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1608477/)
 
-作者：香草山农场教育部– 晓仙女
+作者：纽约香草山福音部 –lilian89
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月18日，郭文贵先生透过盖特视频，分享了“玉璧“、”玉钺“和”玉琮“的寓意。
+据美联社消息称，10月19日，最高法院拒绝审理缅因州一项医护人员反对实施新冠疫苗要求的紧急上诉。此前，最高法院也驳回了纽约市教师和印第安纳大学师生拒绝新冠疫苗接种政策的要求。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-15.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-12.jpeg)
 
-事实上，“玉璧、玉钺和玉琮”，是中国夏朝良渚文化的代表。其中玉璧象征财富的权利；玉钺象征军事的权利；而玉琮，严格讲叫宇宙的王权。
+然而，虽然副大法官布雷耶驳回了缅因州的紧急上诉，但随着该州疫苗接种任务的时间推移，他仍给上诉者留下了再次尝试的大门。
 
-中共将盘古建筑物顶部的龙头拆除，整个建筑物将呈现出一个方方正正形状。郭文贵先生称之为“玉琮”，是总统权力的象征。郭先生表示，玉琮是代表上天来人间传达旨意的，是解开地球和星系和太阳系的密码。因此，盘古的建筑有着深厚的密码渊源。至于喜币的发行，就是玉璧。另外，郭先生又暗示，即将发生的激烈斗争就是玉钺。
+据悉，缅因州的疫苗接种政策由民主党州长珍妮特-米尔斯制定，当中要求医院和疗养院的工作人员接种新冠疫苗，否则他们将失去工作。因此，数十名医护人员已经选择辞职，这也导致缅因州中央医疗中心的护士严重短缺，同时影响了该州的公共医疗情况。
 
-而盘古的龙头被去掉后，呈现出群龙无首的状态，恰恰就是玉琮的出现。 如今，玉璧、玉钺、玉琮按着顺序出现，必定是开天辟地的新纪元。
+为此，自由律师事务所代表两千多名不想被强迫接种新冠疫苗的医护人员，向缅因州的联邦法院提起诉讼。
+
+事实上，这也印证了郭先生曾在直播中提及的，疫苗灾难将使人们对政府、法律、宗教有一个重新的认识。
 
 (本文仅代表作者观点)
 
-参考链接：[郭文贵先生2021年10月18日盖特视频（9分42秒）全文字版](https://gnews.org/zh-hans/1603484/)
+参考链接：[Supreme Court declines to block Maine health care workers vaccine mandate](https://www.axios.com/vaccine-mandate-maine-supreme-court-903eb829-313b-4c2e-bab6-d1160a365ebf.html)
+[Supreme Court won’t stop vaccines for Maine health workers](https://www.usatoday.com/story/news/politics/2021/10/19/supreme-court-wont-stop-vaccines-maine-health-workers/8528787002/)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
 总编：Irene木木 
-编辑：山本不惑
+编辑：Kathy（文艺）
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

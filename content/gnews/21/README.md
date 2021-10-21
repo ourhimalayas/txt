@@ -2,35 +2,21 @@
 ---
 
 
-## 比特币和勒索赎金双创新高
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1608512/)
+## 秘翻在线：疫苗歧视已经蔓延到了宗教领域
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1608535/)
 
-作者：纽约香草山 – 文一
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据美国电视新闻网报道，首个与比特币相关的基金交易已于10月19日推出，为此，比特币在20日上午跃升至历史新高。
+#### 撰稿翻译：Hakunamatata
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-33.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1s3ad1f32153sda4g56rg23rtg123tioie.png)**图片来源：Rebel News**
 
-然而，美国财政部金融犯罪执法网络表示，以比特币为交易手段的勒索和其他犯罪案件屡见不鲜，相关案件勒索金额高达52亿美元，且此类案件在近十年间持续上升。
+新不伦瑞克牧师因未执行没有顺从中共病毒防疫的规定，他允许未接种疫苗的民众进入而被捕，新不伦瑞克省政府希望法庭将菲尔牧师监禁。
 
-对此，郭文贵先生在10月20日的大直播强调，比特币是一个犯罪、洗钱的工具，其只能在暗网中流通。因此，比特币是一种使用去中心化技术的中心化假币。与之相对的，即将上市的喜币有负责人及法人，与黄金锚定且与美元直接挂钩，其未来的价值以及在全球经济体系中起到的作用将不可估量。
+10月12日(星期三)下午，卫生部长向新不伦瑞克圣约翰礼拜堂家庭教会的菲尔·哈钦斯牧师发出了一份动议通知。 该通知要求哈钦斯因涉嫌违反十月八日的临时禁令而出庭接受聆讯。之前的命令要求哈钦斯遵守《新不伦瑞克公共卫生法》(New Brunswick Public Health Act)和修订后的强制命令(the Revised Mandatory order)，其中要求他的神堂(His Tabernacle)强制教众佩戴口罩。
 
-(本文仅代表作者观点)
+根据该法案，对于每一个教堂和其他的信仰场所，所有者、占用者和管理人员都必须采取一切责任步骤，确保在每次室内信仰聚会时，场地内的每个人都接种了全面的中共病毒疫苗。对于婚礼、葬礼和社交聚会以外的聚会，业主、占用人、经营者可以选择在场所内佩戴口罩、场所容量不超过50%、人员距离不超过两米、不唱歌、每个出席的人都要被记录下来，包括排号和座位号，这些记录会被移交给公共卫生官员。
 
-参考链接：[Bitcoin ransomware payments amount to a whopping $5.2B says the US Treasury Department](https://www.crypto-news-flash.com/bitcoin-ransomware-payments-amount-to-a-whopping-5-2b-says-the-us-treasury-department/)
-[Owner of nonprofit science lab for children admits running secret bitcoin money-laundering operation for drug dealers](https://www.msn.com/en-us/news/crime/owner-of-nonprofit-science-lab-for-children-admits-running-secret-bitcoin-money-laundering-operation-for-drug-dealers/ar-AAPJ8ua)
-[2021年10月20日郭先生直播速记](https://gnews.org/zh-hans/1606278/)
+卫生部的动议要求法院裁定哈钦斯藐视法庭命令，并向法院提出“如果他再次不遵守同意令和法院认为必要的任何其他命令”法院必须监禁哈钦斯。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+该动议还要求对教会作为一个实体进行制裁。
 
-总编：Irene木木 
-编辑：Irene木木
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+原文链接：[**New Brunswick pastor arrested for not enforcing COVID rules, allowing in unvaccinated congregants**](https://www.rebelnews.com/new_brunswick_pastor_arrested_for_not_enforcing_covid_rules_allowing_in_unvaccinated_congregants)
