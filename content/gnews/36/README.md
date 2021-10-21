@@ -2,7 +2,20 @@
 ---
 
 
-## 10/20/2021文贵直播：美国法律规定，隐瞒上市公司主席被调查属刑事犯罪，该公司要承担股票损失
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1607035/)
+## 雅典娜时报-第088期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1607046/)
 
-秘密翻译组-北美组
+#### **《雅典娜时报》汇聚全球新闻时事**
+
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/10/221.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/211-1.png)
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+***发布：小红帽***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

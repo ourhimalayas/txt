@@ -2,24 +2,45 @@
 ---
 
 
-## 纽约市市长宣布强制中共病毒疫苗规定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1607294/)
+## 美国国防部呼吁加大稀土开采力度 反制中共垄断供应链
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1607300/)
 
-#### 翻译：Grace
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-40.jpg)图片来源：网络截图
-据纽约市的官方网站10月20日报道，纽约市市长，比尔.德.布拉西奥（Bill de Blasio），今天宣布了一项针对所有市政工作人员的中共病毒疫苗规定。该规定强制要求所有的市政府雇员，必须在10月29日之前，注射中共病毒疫苗。
+作者：纽约香草山农场-007
 
-报道称，没有在该限期之前接种中共病毒疫苗的员工，将被安排无薪休假，直到他们向上司出示中共病毒疫苗接种证明。而从今天开始到10月29日星期五下午5点为止， 至少打了一针的市政府的员工，将在他们的工资中获得额外的500美元奖金。
 
-卫生专员Dave Chokshi博士签署了这一项专员令后，就确定了这项规定, 这意味着大约16.05万名的纽约市员工就要受到强制疫苗规定的管制。然而，受此规定影响的71%的工人已经接受了至少一剂疫苗。
 
-据报道，教育部（DOE）和纽约市卫生和医院（H+H）的工作人员自9月下旬已经开始执行了疫苗接种规定；今天，教育部和H+H的疫苗接种率分别为96%和95%。
 
-新的规定在11月1日对整个市政工作人员生效，包括所有纽约警察局、联邦调查局和纽约市警察局的雇员。
 
-惩教署(DOC)的文职雇员和被分配到医疗机构的军警人员也立即受制于这项规定。由于该市正在努力解决莱克斯岛（Rikers Island）目前的人员配置情况，惩教署的其他军警人员将于12月1开始执行强制中共病毒疫苗的规定。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-据报道，纽约市政府将立即开始与受影响的工会进行谈判。
 
-[**新闻来源：**https://www1.nyc.gov/office-of-the-mayor/news/698-21/mayor-de-blasio-vaccine-mandate-new-york-city-workforce](https://www1.nyc.gov/office-of-the-mayor/news/698-21/mayor-de-blasio-vaccine-mandate-new-york-city-workforce)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-11.jpg)
+本月19日，在“北美关键矿物日”大会上，国防部产业政策办公室的丹妮尔·米勒说，美国及其盟国需要扩大稀土的开采和加工。米勒直指中共限制稀土出口的政策。她说，全球供应链面临蓄意干预的风险；美国生产“战略与关键矿物”，是增加全球供应链韧性的一个必要条件。她例举了美国正在开发的稀土项目，意图表明五角大楼是一个“有耐心的战略投资者”。美国希望与盟国矿业公司建立可持续性的合作，加速供应链从成本导向转为价值观导向。
+
+在制造用于武器和电动汽车的特制磁体时，稀土金属不可或缺。中共目前在稀土生产领域占据龙头地位。
+
+参考链接：[美国国防部呼吁加大稀土开采力度 反制中共垄断供应链](https://www.voachinese.com/a/us-needs-more-mines-to-boost-rare-earths-supply-chain-pentagon-says-20211019/6277856.html)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：飞虹
+编辑：山本不惑
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
