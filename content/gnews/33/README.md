@@ -2,44 +2,23 @@
 ---
 
 
-## 有声| 宁失一眼，不失全身
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1607360/)
+## 大流行紧急情况又回到了 4 个欧盟国家
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1607479/)
 
-配音：香草山香港部-文凯琳
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10211.jpg)图片来自网络
+现在至少有 4 个欧盟国家的 冠状(中共)病毒再次成为紧急情况，传染病和死亡人数呈上升趋势，医院面临压力。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+最令人担忧的情况之一是在罗马尼亚，星期一，冠状(中共)病毒造成的死亡人数为 574 人（在 1900 万居民中），这是该国自大流行开始以来的创纪录水平。
 
+罗马尼亚一家殡仪馆的总裁告诉路透社，公司正在努力寻找棺材：“有些家庭在两周内埋葬了多达四个人”。保加利亚的死亡人数也在激增：最新公告称，一天之内有 214 人死亡（约 700 万人），这也是自大流行开始以来的最高的死亡率。
 
+尽管欧盟的疫苗接种率达到了欧盟平均水平，但是立陶宛也在努力应对令人担忧的死亡人数增加。邻国拉脱维亚实施了为期 4 周的封锁，这是第一个再次实施此类限制的欧盟国家。
 
+感染人数的增加令人担忧。在捷克共和国和斯洛伐克，每日新增病例处于去年 3 月的水平。在波兰，最新公报自 5 月以来首次每天报告超过 5,000 例新病例。
 
+免责申明：本文只代表译者观点，与Gnews无关
 
+原文链接：[https://europa.today.it/attualita/torna-emergenza-covid-ue.html#\_ga=2.2806579.2037763293.1634583631-145009575.1615972944](https://europa.today.it/attualita/torna-emergenza-covid-ue.html#_ga=2.2806579.2037763293.1634583631-145009575.1615972944)
 
-
-文贵先生最近两天直播说到许多，如马云之流的中国“企业家”被中共绑架着到海外，为中共拿回他们帮中共代持的隐藏在海外的，从中国人民那里抢劫而来的财富。许多“企业家”竟然相信中共的承诺:只要为中共拿回这些钱，中共就给他们和他们的家人一条生路，不灭口他们。
-
-可是，中共的话能信吗？人怎能去相信一个公然鼓吹无神论的杀人组织的承诺？如果历史让我们学到了任何东西，那就是:中共从来不信守它的任何承诺。对中共效忠的问题的关键在于:你效忠的对象随时准备背叛你，甚至杀了你。
-
-
-
-原文 链接：[【信仰之声】宁失一眼，不失全身](https://gnews.org/zh-hans/1604848/)
-
-
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+责任编辑/发布：意大利达芬奇农场   萧亦

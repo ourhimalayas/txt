@@ -2,62 +2,37 @@
 ---
 
 
-## COVID-19最新情报｜政府荒谬地将COVID-19扩散归咎于未接种疫苗族群
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1607569/)
+## Woolworth首席执行官要求所有员工接种疫苗否则将被解雇
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1607765/)
 
-**台灣寶島農場 zhong｜發布日期/ 21/10/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_0.jpg)
-#### 荒谬！美国拜登政府将新冠病毒扩散归咎于未接种疫苗者
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/woolworths-counter-westfield-myb_a316.jpg)
+图片来源：mybusiness.com.au
+####  编译：小红帽
 
-10月14日在*[Brighteon.TV](https://brighteon.tv/)*播出的“[Byline Anew](https://www.brighteon.com/3e753f32-ab69-437b-b05f-89d795d82518)”节目中，主持人 Fior Hernandez清楚说明了“美国政府如何将新冠病毒扩散，归咎于未接种疫苗族群”，以及如何过宣传手段侵害美国人民受美国宪法保障的自由权利。
+天空新闻商业编辑罗斯格林·伍德（Ross Greenwood）表示，Woolworths首席执行官布拉德·班杜奇（Brad Banducci）周四就疫苗接种的问题，向他的员工发出了“非常直白的信息”。
 
-总结而言，该节目主持人认为政府以及新冠疫苗支持者，通过片面的解释定性“未接种新冠疫苗者，是破坏政府解决新冠疫情的努力”。
+此前，这家超市巨头已宣布在澳大利亚1,200多家零售店实施员工疫苗接种计划。
 
-#### 政府闭口不提的替代性疗法：药物预防、治疗方案
+首都领地、北领地、新南威尔士州、维多利亚州和西澳大利亚州的17万名员工被要求在2022年1月31日前完全接种中共病毒（ COVID-19）疫苗。
 
-各领域专业人士，不论是流行疾病、心脏病或医学领域，都尝试向公众传达“存在替代疗法”，可以取代任何疫苗。然而，这些人士的努力，却被恶意审查、曲解，并承受着冷嘲热讽。
+南澳大利亚、昆士兰和塔斯马尼亚的员工需要在2022年3 月31日前接种两剂疫苗。
 
-（读者请扪心自问，你曾想过新冠病毒可药物防治吗？还是完全听从政府“片面的资讯”）
+班杜奇先生说，那些没有合理理由不接受疫苗接种的人将被解雇。
 
-- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/)
-- 相关：[新冠病毒预防、治疗方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
-- 相关：印度德里使用伊维菌素，确诊病例下降97%
-- 相关：[Zev Zelenko 博士](https://www.wnd.com/2020/03/doctor-treated-350-coronavirus-patients-100-success/)在(2020年) 4 月份[告訴 WND](https://www.wnd.com/2020/03/doctor-treated-350-coronavirus-patients-100-success/)，他利用药物已经治疗了 350 名新冠确诊者，且成功率达 100%
+“有趣的是，负责大多数零售工人的工会—SBA，支持让人们接种疫苗的提议，”格林伍德先生告诉澳大利亚天空新闻。
 
+“SBA只是想确定那些选择不接种疫苗的人有合理的理由，且公司有良好的流程。”
 
-#### 政府带头歧视未接种疫苗群体
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-9月，美国拜登总统宣布了最新的强制接种命令，下令拥有100名以上员工的雇主，必须强制要求员工接种新冠疫苗。
+**参考新闻：**[Woolworth CEO had a ‘fairly blunt message’ for staff regarding vaccination (msn.com)](https://www.msn.com/en-au/news/other/woolworth-ceo-had-a-fairly-blunt-message-for-staff-regarding-vaccination/ar-AAPMa7C?ocid=msedgntp)
 
-**拜登总统公开表示，对“未接种疫苗的群体”一直很有耐心，但这些未接种疫苗“少数族群”将会造成巨大的伤害，而且他们正在“造成很大的伤害”。**
+***发布：小红帽***
 
-拜登总统发言重点在于，未接种疫苗在美国社会是少数，未接种疫苗者可能承受多数暴力（疫苗歧视）。且拜登总统在毫**无科学数据**的前提下，称“未接种疫苗者，正在造成巨大的伤害”，但事实上接种疫苗的人正充斥着医院。
-
-- 相关：[COVID-19最新情报｜美前国务卿接种疫苗后染疫身亡 疫苗防重症破功？死于疫苗？](https://gnews.org/zh-hant/1603625/)
-- 相关：[针下亡魂｜美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hant/1607432/)
-- 相关：[COVID-19最新情报｜政府不愿让人民知道的是 医院正充斥着新冠疫苗接种者](https://gnews.org/zh-hant/1607201/)
-
-
-[*Brighteon.TV*](https://brighteon.tv/)主持人 Bryan Ardis指出，指责未接种疫苗的人正在成为歧视的另一种方式。“政府想让家人与家人对立，这就是他们正在做的事情。未接种疫苗的人将受到不平等对待、羞辱、歧视。”
-
-現在[已经有许多公司行号宣布将遵循拜登总统的强制接种命令](https://qz.com/2042743/do-mandatory-vaccines-violate-human-rights/)，要求员工强制接种疫苗才能继续工作。但拜登总统的强制疫苗命令，也引起巨大的法律争议。
-
-拒绝接种疫苗的自由可能是出于个人、意识形态或宗教原因，而那些担心疫苗安全的人可能会担心自己免受伤害的权利。
-
-- 相关：[COVID-19最新情报｜拜登授权雇主强制员工接种的命令，违宪！](https://gnews.org/zh-hant/1603790/)
-- 相关：[COVID-19最新情报｜美参议员Ted Cruz：拜登授权强制接种疫苗 侵害人权](https://gnews.org/zh-hant/1603791/)
-
-
-在具有便宜、有效、安全的药物预防、治疗方案的情形下，新冠疫苗者已经被多个科研机构、政府单位确定不具有“预防效力”仅具有“防止重症”效果的前提下，许多“完全接种者”发生“突破性感染”，完全接种者发生许多健康问题并充斥着美国医疗机构。
-
-这样的情形下，政府将病毒扩散的责任，归咎到“未接种疫苗群体”是何等荒谬。
-
-- 相关：[瑞典研究显示完全接种疫苗后，抗体将在三个月后急剧下降](https://gnews.org/zh-hant/1576453/)
-- 相关：[疫苗与ADE效应](https://www.chop.edu/centers-programs/vaccine-education-center/vaccine-safety/antibody-dependent-enhancement-and-vaccines)
-- 相关：2021/02/24，便有[研究指出SARS-CoV-2 抗体具有ADE风险](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7943455/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/9-1.jpg)
-* * *
-
-新闻来源｜[Natural News](https://pandemic.news/2021-10-20-biden-blames-unvaccinated-americans-for-covid-spread.html#https://pandemic.news/2021-10-20-biden-blames-unvaccinated-americans-for-covid-spread.html#)
-声明｜转译仅供参考，一切以原文为主
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

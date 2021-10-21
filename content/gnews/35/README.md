@@ -2,25 +2,21 @@
 ---
 
 
-## 静冈大学前副校长：疫苗是杀人武器
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1607355/)
+## 针下亡魂｜美国 36 岁医学博士接种疫苗后一个月死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1607440/)
 
-#### 撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/12-10.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fchinese.aljazeera.net%2Fwp-content%2Fuploads%2F2021%2F03%2F%25D9%2584%25D9%2582%25D8%25A7%25D8%25AD-22.jpg%3Fresize%3D570%252C380&amp;imgrefurl=https%3A%2F%2Fchinese.aljazeera.net%2Fopinions%2Fjournalist-column%2F2021%2F3%2F30%2F%25E6%2581%2590%25E6%2580%2596%25E4%25BA%25A4%25E6%2598%2593%25E4%25BA%25BA%25E4%25BB%25AC%25E4%25B8%25BA%25E4%25BD%2595%25E6%258B%2592%25E7%25BB%259D%25E6%258E%25A5%25E7%25A7%258D%25E6%2596%25B0%25E5%2586%25A0%25E7%2596%25AB%25E8%258B%2597&amp;tbnid=hDGpei_AofCieM&amp;vet=12ahUKEwi2ptrMz9rzAhUgxIsBHazhCA8QMygbegQIARBI..i&amp;docid=1jV786Znb5RlNM&amp;w=570&amp;h=380&amp;q=%E7%96%AB%E8%8B%97%E6%98%AF%E6%9D%80%E4%BA%BA%E6%AD%A6%E5%99%A8&amp;ved=2ahUKEwi2ptrMz9rzAhUgxIsBHazhCA8QMygbegQIARBI)
-日本东京新闻20日报道静冈大学前副校长、人文社会科学学院的男教授给学生发邮件称，“美国参议院宣布中共病毒是谎言，因此疫苗有害无用。”内容犹如阴谋论，校方认为这封邮件有问题，称其“作为教育行为是不合适的”，并口头警告了男教授。
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 21/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
+【美国】田纳西州一名 36 岁的医生 Barton Williams 博士，在接种完第二剂 COVID-19 疫苗之后的一个月左右，因多系统炎症综合征（MIS-A）而死亡。
 
-据该学院称，这位男教授给六月初上课的学生群发了一封电子邮件。其中援引美国前总统的话说：“主谋已被特朗普领导的正义军逮捕。日本也将很快开始大规模逮捕其合作者，并停止接种疫苗。”该邮件还呼吁大家：“黎明即将来临，请广泛传播。”
+MIS-A 是一种有免疫系统攻击身体导致多系统器官衰竭引起的疾病，是一种罕见病。
 
-院长口头告诫“观点和主张完全是个人观点”，男教授承诺以后不会在校内信息系统或课堂传播疫苗信息。 6月下旬，院长通过电子邮件通知系里的学生，并敦促他们如果感到不安或苦恼，请与系里联系。
+目前，美国疾病控制与预防中心（CDC）正在调查 Barton 博士死因，据其中一名参与者，Stephen Threlkeld 博士表示，“没有直接证据证明是疫苗导致了死亡，只能说，似乎每个被查出患有『MIS-A』的患者，都曾经接种过疫苗。”
 
-东京新闻向静冈大学主页上公布的地址发送了一封电子邮件，想与这位男教授交谈，但是没有收到回复。通过这所大学的公共关系办公室要求接受采访，但是负责人回答说：“无法接受采访。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/42-3.jpg)
 
-据学生说，这位男教授在课堂上也说过，“新冠疫苗是一种杀人的武器。”7月下旬，他呼吁参加考试的 100 多名学生不要接种新冠疫苗。院长让该教授注意自己的言行后，学生们都惊呆了。一位男学生（19岁）说：“感觉（那位教授）还在宣传中。但是，我想没有哪个学生真正接受它。”
+来源｜[个案042](https://childrenshealthdefense.org/defender/doctor-dies-second-dose-covid-vaccine/)
 
-信息来源：[「新型コロナは嘘」「ワクチンは殺害兵器」静岡大元副学長が学生らに“陰謀論”　大学側が口頭注意](https://www.tokyo-np.co.jp/article/137834?rct=coronavirus)
+* * *
 
-(文章仅代表作者本人观点，与GNEWS无关)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//
