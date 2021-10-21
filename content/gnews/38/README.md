@@ -2,21 +2,38 @@
 ---
 
 
-## 秘翻在线：辉煌不在的广交会是中共经济即将崩溃的最佳写照
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1608444/)
+## 缅因最高法院驳回反对强制医疗人员接种疫苗政策的诉求
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1608477/)
 
-**撰稿：Ping**
+作者：纽约香草山福音部 –lilian89
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据美联社消息称，10月19日，最高法院拒绝审理缅因州一项医护人员反对实施新冠疫苗要求的紧急上诉。此前，最高法院也驳回了纽约市教师和印第安纳大学师生拒绝新冠疫苗接种政策的要求。
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unnamed-11.jpg)图片来源：经济参考报
-中共媒体报道，10月19日下午，为期5天的第130届广交会落幕。今年的广交会可谓异常的冷淡，虽然中共媒体大肆宣传交易“火爆”，但是这次疫情后的第一次实体展览会，只有15个国家和地区的92家企业参加，而2019前历年的广交会都是两百多个国家来参展，实在是今非昔比。作为出口为主的民营企业，因为疫情和全球经济的各种原因，近400家企业向广州海关表达了出口转内销的意愿。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-12.jpeg)
 
-由此可以看出，以外贸为主的企业销售很多都陷入了困境。这样的企业，面对目前的国内形势，韭菜们被割了一茬又一茬，现在连根几乎都要挖出来了，老百姓早都捂住钱包不敢消费了，靠内销解决产能过剩和销路问题，根本是杯水车薪。
+然而，虽然副大法官布雷耶驳回了缅因州的紧急上诉，但随着该州疫苗接种任务的时间推移，他仍给上诉者留下了再次尝试的大门。
 
-中共国目前勉强维持的外贸经济，也是靠拉拢被蓝金黄的一带一路国家，出台所谓针对性政策来维稳外贸企业的。曾经中共国第一大贸易伙伴国美国已经悄悄地被东盟取代，中共国对拉丁美洲、非洲进出口增速也明显增高。
+据悉，缅因州的疫苗接种政策由民主党州长珍妮特-米尔斯制定，当中要求医院和疗养院的工作人员接种新冠疫苗，否则他们将失去工作。因此，数十名医护人员已经选择辞职，这也导致缅因州中央医疗中心的护士严重短缺，同时影响了该州的公共医疗情况。
 
-这从侧面也印证了中共与发达欧美国家经济脱钩，逐渐成为事实。众所周知，中共病毒的全球大流行，终结了全世界最幸福的时代，也因此改变了人们传统的生活方式。世界性的经济危机一触即发，人们生活水平必将大倒退。全球购买力都将急剧下降，原材料成本暴涨，疫苗危机引发的供应链中断等，这些因素都会让中共国的外贸出口彻底进入寒冬。
+为此，自由律师事务所代表两千多名不想被强迫接种新冠疫苗的医护人员，向缅因州的联邦法院提起诉讼。
 
-广交会的辉煌已经一去不复返了。
+事实上，这也印证了郭先生曾在直播中提及的，疫苗灾难将使人们对政府、法律、宗教有一个重新的认识。
 
-**[新闻来源](https://news.dayoo.com/guangzhou/202110/20/139995_54087355.htm)**
+(本文仅代表作者观点)
+
+参考链接：[Supreme Court declines to block Maine health care workers vaccine mandate](https://www.axios.com/vaccine-mandate-maine-supreme-court-903eb829-313b-4c2e-bab6-d1160a365ebf.html)
+[Supreme Court won’t stop vaccines for Maine health workers](https://www.usatoday.com/story/news/politics/2021/10/19/supreme-court-wont-stop-vaccines-maine-health-workers/8528787002/)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Irene木木 
+编辑：Kathy（文艺）
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,23 +2,45 @@
 ---
 
 
-## 纽约警察工会将起诉纽约市疫苗强制令
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1608786/)
+## 马来西亚和菲律宾就中共国在南海的持续入侵表示抗议
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1609008/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+编译：蚂蚁兄弟
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/N-9.jpg)nypost.com
-NETBREAKING 10月20日 援引自美联社报道，纽约市最大的警察工会——警察慈善协会（Police Benevolent Association，PBA）20日表示，他们将起诉纽约市对警察、消防员和其他市政工作人员实施的疫苗强制令。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/117742260_mediaitem117742259.png)MAXAR发布的卫星图片显示，中国渔船聚集在牛轭礁周围（www.bbc.com）
 
-纽约市长白思豪(Bill de Blasio) 20日宣布了疫苗政策，称警察、消防员和其他未接种中共病毒疫苗的城市工作人员，必须在11月1日前完成至少一剂疫苗的接种，否则将被安排无薪休假。
+马来西亚和菲律宾政府周四猛烈抨击中共当局，他们认为中共当局“不断入侵南中国海”，而这三个国家在那里有领土争端。
 
-警察慈善协会认为接种疫苗与否是“个人医疗决定”。 协会主席帕特里克·林奇(Patrick Lynch)在一份声明中说：“既然市政府已经采取行动单方面强制执行命令，我们将采取法律行动保护我们的成员的权利。”
+菲律宾外交部对中共国船只在该地区的“挑衅”行为提出抗议，并有证据显示中共国对在该地区进行“合法工作”的菲律宾军队使用“警报器、喇叭和无线电警告”。
 
-早在今年8月，《纽约邮报》曾报道过，警察慈善协会（Police Benevolent Association）主席帕特里克·林奇(Patrick Lynch)在一封电子邮件中写道：“如果纽约市试图强制要求PBA成员接种疫苗，我们将采取法律行动捍卫成员做出此类个人医疗决定的权利。” 当时纽约市政府还没有表示是否会试图对包括警察在内的其他市工作人员强制实施疫苗接种的规定。”
+据彭博社报道：“这些挑衅性的行动威胁到南海的和平、秩序和安全，是中共国违背国际法下的义务的行为”。
 
-希望更多正义的力量可以勇敢站出来反抗，以停止这场疫苗灾难。
+近几个月来，由于马尼拉继续抗议中共国船只在该地区的非法停靠，两国之间的紧张关系一直在上升。菲律宾政府也得到了美国的支持。
 
-参考链接：
+马来西亚外交部长赛福鼎-阿卜杜拉警告说，“该地区的中共国船只的存在在不断的增加”。马来西亚本月早些时候召见了中共国驻马来西亚大使，抗议这些船只出现在其领海的地方。
 
-[https://net-breaking.com/2021/10/20/nypds-largest-union-plans-to-sue-city-over-covid-vaccine-mandate/](https://net-breaking.com/2021/10/20/nypds-largest-union-plans-to-sue-city-over-covid-vaccine-mandate/)
+总理伊斯梅尔-萨布里警告说，只要该地区存在“威胁”，就不会有“接触”。“我已经记不清有多少次就这个问题向中共国抗议了”他说，“我们将继续以外交方式来谈判”。
+
+然而，中共国政府在周四的新闻发布会上重申了它的立场。“中国在这一领域的立场是一贯而明确的”。外交部发言人王维斌说。“我们的部队在捍卫我们的权利时遵循了国际法”。他坚持说：“这是合法的、正当的。”
+
+**简评：**
+
+**“合法”这个词汇在中共的“字典”中似乎不存在，因为中共国本就“没有法”，中共向来是一党治国的。这一点，无疑在其对外政策和关系上体现的淋漓尽致。任何的“法律”，对中共来说只是一纸空文。**
+
+**在对待他国关系上，遇到强国，便利用“蓝金黄”手段，坑蒙骗加勾兑。遇到东南亚的小国，便各种挑衅和武力示威。**
+
+**南海问题已经持续了几年，对于“无法无天”的中共来说，加之现在推行的“战狼”外交，它的面目已经被全世界逐渐认清。**
+
+**中共不除，亚洲不得安宁，世界不得安宁。**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**参考资料：**[europapress][Malasia y Filipinas arremeten contra China por sus continuas “incursiones” en el mar de China Meridional](https://www.europapress.es/internacional/noticia-malasia-filipinas-arremeten-contra-china-continuas-incursiones-mar-china-meridional-20211021140014.html)
+
+* * *
+
+*审核：Aries的星*
+*校对：信心满满*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)

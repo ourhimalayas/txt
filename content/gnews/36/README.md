@@ -2,22 +2,35 @@
 ---
 
 
-## 铸铜墙铁壁的围城
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1608451/)
+## In-N-Out汉堡被迫关闭旧金山一家顶级分店
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1608497/)
 
-#### 作者：东京樱花团｜阿恩
-![](https://assets.gnews.org/wp-content/uploads/2021/10/关长.png)
-香港曾是国际都市，吸引过国际热钱，带来过西方的自由民主，一百多年的共融下，香港成为中西经济文化和政治的交汇点，可惜这来之不易的繁华已被中共集权暴政顷刻砸碎，如今的香港只是邪恶中共要挟全球的政治筹码而已。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月19日，旧金山In-N-Out汉堡被迫关闭了一家顶级分店。旧金山卫生部门指，该餐厅的员工“未能阻止无疫苗证明的顾客进入店内”，因而下令关闭该餐厅。
 
-今日中共新任命的海关关长慷慨激昂地要为中共在香港筑起铜墙铁壁，维护中共政权的安全，今后所有进出海关的人和货将会被严密审查，慎防内部消息流出和外部势力渗透。据悉，中共已与Facebook 、Instagram、Whatsapp等社交平台勾兑获取私人信息，并黑掉多个表达民主自由思潮的网站，信息的网络防火墙已在香港高筑。如今对货物和人也要筑起防火墙，将香港人完全囚禁于此。之后会有更多的香港人被中共以勾结外国势力的罪名抓捕，也会有更多的外国人被中共以危害国家安全的罪名全球通缉。一个国家的政权由人民选出来，如今人民却成为政权的囚犯，这就是发生在中共国长达七十年的笑话。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-10.jpeg)
 
-不仅如此，新关长还要加强与内地口岸的管制，杜绝走私活动破坏中共对外国实施的贸易限制。 中共海关历来都对进口货物征收高税，美其名曰保护国有产业，高关税导致进口货品在内地的售价居高不下，所有的成本均转嫁倒同胞身上，中共就这样堂而皇之地吸食人民的血。香港对进口货物都采取免税政策，吸引大量水客从香港分拆进口物品走私入内地销售。外国产品在国内畅销，中共却不能收取高额的税收，吸血管道被走私集团切断，因此中共当局对走私活动恨之入骨，多年的打击却收效甚微，只因海关内部人员也与走私集团合作互惠利益。虽然走私物品被走私集团和海关人员分去了部分利益，但供应到内地市场的价格仍然比中共税后的价格要低廉，加上进口产品的性价比远远高于国产货，走私货非常受同胞青睐。今日的香港在中共暴政下，海关的重要工作就是对走私活动进行更严厉的打击，当局甚至不惜利用殉职同僚渲染海关执法者的仇恨。中共政权为了国际上的面子，总要以牺牲人民的利益为代价。目前全国范围内的电荒和煤荒，企业无法正常生产，人民挨冻，物价飞涨，就是中共为了面子拒绝进口质优价廉澳洲煤的结果。六十年代所谓的“三年饥荒”，中共国不但不开仓放粮，还打肿脸充胖子将大量将粮食供应给那些国际穷兄弟，造成人吃人的惨剧。对香港内陆口岸的管制将进一步切断内地同胞物资的供应，缺衣少食的同胞们最终无力反抗暴政，这是中共最想看到的。
+In-N-Out汉堡公司首席法律顾问温辛格随后发布声明称，当地监管部门“不但要求餐厅在显著位置张贴告示，让顾客提供新冠疫苗接种证明，而且要求餐厅员工负责检查每一位客人的接种证明，以及带有照片的身份证明文件。”温辛格表示，In-N-out汉堡拒绝“成为任何政府机构的疫苗警察，因为这是不合理的、肆意的、不安全的行为”。
 
-中共这个邪恶的政权不仅将人民的血吸食殆尽，还要裹挟全民的生命为它的政治利益作为代价，体制内同胞的命运也不过如此。这样的政权不值得中国同胞再为它的千秋万代载舟，同胞们需在气力尚存的时候集结起来，瞬间将它倾覆。
+今年8月底以来，加州、纽约州陆续实施的疫苗证明，将已接种新冠疫苗的民众与未接种的进一步区隔开来。
 
-新闻来源：[**何珮珊称将致力维护国家安全提升口岸通关能力**](https://news.rthk.hk/rthk/ch/component/k2/1616255-20211021.htm)
+据悉，为数不少的餐饮业备受影响，In-N-Out汉堡并非单独个案。
 
-（本文只代表个人观点，与Gnews网站无关）
+(本文仅代表作者观点)
 
-*校对、发布：东京樱花团 / 野猫*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/樱花团-2.jpg)
+参考链接：[San Francisco Shuts Down In-N-Out Burger For Refusing To Be “Vaccination Police For Government”](https://www.zerohedge.com/political/san-francisco-shuts-down-n-out-burger-refusing-be-vaccination-police-government)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Irene木木 
+编辑：山本不惑
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

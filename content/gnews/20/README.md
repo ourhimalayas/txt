@@ -2,49 +2,45 @@
 ---
 
 
-## 中共国的荒唐事
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1608600/)
+## 香港80亿港币国安“专项基金”独立审计 但年报未详
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1608712/)
 
-作者: 纽约香草山农场-新世界的一员
+![](https://assets.gnews.org/wp-content/uploads/2021/10/102101-1.jpg)香港保安局局长邓炳强。 照片：Selina Cheneg/香港自由新聞
+来自《香港自由新闻》2021年10月20日报道
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-8.jpg)
+**摘要翻译：**
+
+香港政府表示，去年12月指定用途的80亿港元国家安全专项基金的细节不会公开，但该基金的财务报表已由独立审计师审查。
+
+在周三向立法会提交的关于该市被称为“特别基金”的国家安全预算的年度报告中，财政司司长办公室称，该项基金是经行政长官批准，从香港的一般收入中拨款。
+
+报告称，该基金在国家安全委员会秘书处下设有专门的会计和财务部门。该部门的会计和财务政策，以及其财务报表，符合“香港特别行政区政府的既定政策和惯例”，尽管它不受任何现行香港法律的约束。
+
+80亿港元已分配给“未来几年”。
+
+报告称，财政司司长“不会透露有关该基金使用的更多细节”，但表示已根据《国家安全法》和《香港审计准则》进行了“独立审计”。
+
+“独立审计师对财务报表发表了无保留意见的审计意见，”这意味着审计师认为政府公平恰当地呈现了财务报表。
+
+报告中没有关于独立审计涵盖的时间段的信息。
+
+**简评：**
+
+不透明的审计报告，香港正在快速的变成一个一国一制的中国城市。
+
+新闻链接： [Hong Kong’s HK$8 billion national security ‘Special Fund’ is independently audited, but annual report gives no details](https://hongkongfp.com/2021/10/20/hong-kongs-hk8-billion-national-security-special-fund-is-independently-audited-but-annual-report-gives-no-details/)
+
+***编辑: **希望*
+
+***校对: **感恩*
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-
-
-今天翻看公众号，翻出了新京报2020年4月16日的一篇报道。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/17-2.png)
-据当地人举报，在黑龙江林甸耕地经常看到一俩停在二运附近招揽嫖客的犯罪车辆。接到举报后，当地民警于4月16号对其突击检查，发现车内一对男女正在进行非法嫖娼交易。民警当场将其抓获。经审问，原来是一起老婆在车内接客卖淫，老公帮妻子拉客放风的荒唐事。
-
-在中(共)国恶劣的生存环境下，这样荒唐的事真是可笑又可悲。更令笔者感叹的是，这个案例还不是个别现象！ 笔者就曾跟一名女子同桌麻将，亲眼目睹她当着她老公的面和一个男人打电话，男的问他是否想他，那女子嗲着声音说想他，更是毫无顾忌的跟那个男人打了十几分钟打情骂俏的电话。她老公居然视而不见，丝毫不在意他人的看法。当她老公离开后，她的小姐妹责怪她太轻视老公。那女子竟然说，他自己不赚钱还问我要生活费，有什么脸说？有本事自己赚点钱来养她，更声称她孩子的书本费都是靠她支付。她的小姐妹接着说，当心他去嫖。那女的说，他没有钱去嫖娼。从那以后，我再也没有跟这一对夫妻说过话。
-
-当时笔者只是感觉这女子不要脸，她老公没骨气，现在仔细一想，其根源还在于中共的恶魔体制！在共产党的奴役下，大家普遍工资收入少、生活开支大。老百姓想找个养家的工作不易，找个能赚钱的工作更难！对此，很多人索性就不工作，麻将馆里抱着这种想法的人还不是个例。
-
-一个国家，男的没有了志气，女的没有了羞耻心，这样的国家还有救吗？人只有在良好的社会制度环境下才有好的人品。谁不喜欢活得有尊严？活出尊严？只有没有了共产党的剥削和邪恶统治，建立一个相对公平公正，有法制的、透明的社会体制，老百姓才会有相对公平的付出和回报，其日子自然就好过。如果谁都可以挺直腰板做人，还有什么理由不灭共？
-
-中共不灭，国无宁日，恶党不除，民不聊生！
-
-（本文仅代表作者观点）
-
-参考链接: [https://mp.weixin.qq.com/s/zqZZDBkzX9yWab81adoF2Q](https://mp.weixin.qq.com/s/zqZZDBkzX9yWab81adoF2Q)
-
-校对/编辑/发稿: Amanda艾曼达
-
-终审：飞虹
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-7.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-8.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
