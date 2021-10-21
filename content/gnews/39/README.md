@@ -2,41 +2,54 @@
 ---
 
 
-## 司法部官员：疫苗宗教豁免权只给正直的美国人
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1607822/)
+## 中国的企业家只有共同除掉共产主义的恶魔体制才有未来
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1607993/)
 
-**编译：西班牙喜悦农场–wenwu**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip43.png)图片来源：Tyler Durden
-拜登司法部的一名律师被录音录像，驳斥了美国人声称（有权）对中共病毒（Covid-19）疫苗进行宗教豁免的诚意。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/集结号-1536x864_副本.jpg)
+据[2021年10月20日 文贵大直播： 喜币是最真实干净的革命性货币，喜支付的商业历史性意义；马云在被进行刑事调查时没有及时如实公告，马云在西班牙操纵股价，蔡中信的房子是马云的，他洗掉了马云75%的钱；江志城的投资都和马云有关联，都是刑事犯罪；呼吁企业家与新中国联邦合作，一起灭共](https://gtv.org/video/id=61700c08304e992109b806ee)时间点2：14：55——
 
-在[Human Events](https://humanevents.com/)高级编辑杰克·波索别克（Jack Posobiec）报道的 9 月泄露的电话中，可以听到司法部律师马蒂·莱德曼（Marty Lederman）与拜登政府就如何打击疫苗宗教豁免请求，以制定阻止美国人绕过拜登疫苗全面授权的战略。
+那么现在中国现在有第二个问题我们就来了，所有中国的经济界企业界，你想合法在中国经营有多难，几乎不可能，那就像你一个人要活下去，那你要生存下去，你那个环境就没有给你生存的环境，那你有选择吗？——没选择。
 
-根据莱德曼的说法，“有一些案例。例如，在目前进行针对纽约州的疫苗案件中，[托马斯·莫尔协会](https://thomasmoresociety.org/)（Thomas More Society）代表一群医生和护士，他们声称，如果（纽约政府）与堕胎的邪恶行为合作，他们将犯下严重的罪行。他们怎么会这样做？他们声称，目前主流的三大疫苗，要么在中共疫苗本身中含有通过堕胎获得的胎儿细胞；要么在辉瑞公司和 Moderna 公司的案例中，他们的中共疫苗是用被流产的胎儿细胞进行测试的，甚至与之前测试的联系，这表明疫苗制药厂以被宗教所禁止的手段与恶魔做交易。”
+那你走了今天这条路，我们必须要明白，它必然的路没有习近平有李近平，王岐山上去比他更狠，孟建柱上去那你们这些人早就成了已经是灰尘了——更狠，相信我的话。孙力军上去，你们祖宗八辈儿的坟都给你掘了，傅政华上去，我们这些人早就没了——更坏。
 
-“我不想说得太绝对，但我相信，这种说法对于政府机构来说是很难成功地被承认（圣经约伯记），这是不正直的或不虔诚的，即使如此。即使我们假设这些说法中的许多都是不正直的，或者是正直而不虔诚的。疫苗宗教豁免权的申请仍是您可能要面对的最常见的状况，也就是说您有必要把雇员的主张作为一个既定事实。”
+这个国家只会让邪恶、只会让恶魔成为中国的所谓的权力的中心者，所以今天我们大家要明白，只有共同的除掉共产党这个恶魔的体制，我们才有未来。
 
-“并不总是这样，对吧，但一些医院已经开始给出的一个回应是，’你知道Tylenol、Tums和Preparation H，这些也都是用流产的胎儿细胞系进行测试的。’我希望员工会说’好吧，我之前是不知道的，但现在你告诉我了，我也会停止使用这些产品的’。”
+今天所有人都是牺牲品，如果大家不在这个问题上考虑这个，那你就完蛋了。话又说过来，中国私人企业家说那太遥远了，我们现在要活着，既不想失去钱，还想过着像马云这种天天到澳门嫖娼的日子、吸毒的日子，而且全世界喊他马爸爸，许家印喊他什么许大大是吧？
 
-“然后我们将针对’一旦雇员表明了反堕胎疫苗这点，美国政府必须做什么’。在这里，基本上有一个令人信服的利益，显然，保持我们的劳动力和与我们互动的公众免受中共病毒的影响。”
+我告诉大家，今天你们这些人的下场，咱先说就现在，好，不说推翻共产党，你也没这个种，你们家人被绑架了，马云、于峰，我请问你，你现在按照共产党的要求，你完全把海外的钱全拿回去，然后你也回去，然后接受共产党说终生软禁、不杀你，你觉得能发声吗？共产党在历史上的地主包括所有的高官的许诺，有一个兑现的吗？他能拯救你的家人吗？答案你自己知道。
 
-经过进一步研究，Posobiec 得出的结论是，拜登政府怀疑美国人的信仰是否真诚，他们声称美国人如此反对堕胎以至于他们不想从堕胎细胞中受益。事实上，这不仅是因为他们不认为美国人的信仰是正直的，而且在某种程度上，美国政府正试图规划绕过这些基于信仰的主张的战略部署。
+我告诉所有这些中国成功的企业家，还有今天面临这种风险的人，我个人给你个建议，因为这几天我这快疯了，前天大直播完，你们没有想，我没办法回，我都不知道是谁——无数我手机，大概一个小时，我就得清一次内容。
 
-正如 [The Post Millennial](https://thepostmillennial.com/breaking-leaked-audio-doj-sincerity-religious-exemptions)的 Libby Emmons 所指出的：
+为啥我把你们刚才今天开会打印出来了，因为它老清除我找不回去，我信息不清除它就死机了，我都不知道是谁来问我怎么看待、怎么问的问题，我告诉大家我这是集体回答。
 
-自拜登上任以来，堕胎和天主教问题一直是激烈争论的焦点，因为这位天主教总统声称他支持堕胎。《华盛顿邮报》甚至说反对堕胎的天主教徒是“[右翼”](https://thepostmillennial.com/washington-post-blasted-for-referring-to-catholics-who-oppose-abortion-as-right-wing)。
+就像我昨天在盖特上说的，任何一个成为中国家庭中心的人物，不管你什么辈分，因为你的经济的发展或者你出了名了，你成为家里的经济生存的中心，受到这次所谓的政治打压和所谓的经济犯罪调查的时候，你只有一个选择——和共产党干下去！
 
-当被问及拜登总统对堕胎的立场时，白宫新闻秘书 Jen Psaki [声称他的信仰是他个人问题](https://thepostmillennial.com/watch-psaki-dodges-question-on-bidens-stance-on-abortion-and-his-faith-saying-its-personal)，至于他如何调和他的宗教观点和他的灵粮，以及他支持堕胎的立场，她无权回答。
+为什么呢？你的家人是因为你有了尊严、有了荣耀、有了物质的生活，也因为你染上这个大祸，因为你才有尊严、安全和希望，也因为你染上了祸。
 
-“乔·拜登是一个坚定的信仰者，正如他几天前指出的那样，这是个人问题。他几乎每个周末都去教堂。他甚至在我们出国旅行的时候，独自去做礼拜。但这对他来说是个人的事，他不会把信仰问题政治化，我们也不会评论天主教会的内部运作，” Psaki 说。在此之前，一些美国天主教主教因为拜登总统公开支持堕胎的立场而呼吁拒绝为他举行圣餐仪式。
+现在如果你答应给共产党这个要求，把全家人作为肉票之后，配合共产党把所有的钱弄回去，然后你自动地进监狱或者自动受软禁。我可以告诉大家，你们每个人都会成为家人的痛苦，而且直到把家人折磨死而已，一起被痛苦而死。
 
-除了试图破坏美国人在选择是否接种中共疫苗方面的宗教自由之外，本届政府还试图[迫使天主教医院进行变性手术，](https://thepostmillennial.com/biden-admin-seeks-to-force-religious-doctors-to-perform-gender-transition-surgery)并以“性别正确”（政治正确）的方式来治疗性别障碍症患者。
+那么你第二个问题，良知——说你孝敬，为了家人好，保护家人，不能自私，你这是王八蛋的懦弱的想法，你的家人只有在你安全、健康、更快乐的情况下，家人才能持续他的尊严和物质美好的生活。在这个问题上你一点都不犹豫，也不能犹豫，如果家人不能理解这个，他不配做你的家人。
 
-（文章仅代表作者观点与GNEWS无关）
+所以你只有路一条——跟共产党干下去。你跟共产党干下去，你家人可能是获得自由和安全，还能继续享受他的尊严和别人对你家里的仰视，和享受国内那种物质生活下的攀比后的愉悦吧。否则你将永远，你就是万骨灰，啥都不是，我给你们的建议。所以很多人给我发信息，我在这回复你们。
 
-**新闻来源**：[zerohedge.com ]| [Leaked Audio: DOJ Official Doesn’t Think Americans ‘Sincere’ Over Religious Exemptions](https://www.zerohedge.com/political/leaked-audio-doj-official-doesnt-think-americans-sincere-over-religious-exemptions)| 作者：TYLER DURDEN｜发布时间：2021年10月20日｜
+（以下暂略）
 
-* * *
+撰稿：喜马拉雅的肉夹馍
 
-***发稿：信心满满***
+审核：喜马拉雅的馍夹肉
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
+校对：Maarago
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

@@ -2,24 +2,23 @@
 ---
 
 
-## 女孩接种疫苗死亡，母亲维权被殴打，消声，拘留
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1607942/)
+## 航空业的中共病毒疫苗危机
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1608056/)
 
-视频&文章：澳洲天好蓝
+#### 翻译：奮鬥
+校对：枳实
+字幕/剪辑：蛮吉
 
-12岁的李博艺于今年8月10在河南省濮阳市南乐县城关镇卫生院站接种了ccp病毒疫苗，接种2天后就开始发高烧，到医院检查出有脓毒败血症，粒细胞缺乏症，中毒性脑病，颅内感染等十余种并发症，8月28日去世,然而李博艺在6月25日体检，以及7月20的抽血检查都显示各项指标正常，说明孩子没有基础性疾病。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16348085741.png)
-健康的小孩怎么可能突然就得了这么严重的病呢？这其中没有其它额外因素，唯一的原因就是她接种了ccp病毒疫苗，因为ccp病毒疫苗里面充满了刺突蛋白，引起自身免疫异常,可能引起免疫系统崩溃导致感染。
+美国航空业的中共病毒疫苗危机：飞行员在飞行中死亡，乘客在航班上发病，员工在睡梦中死亡，机场酒店神秘的急救……
 
-接种短短两天，就突然出现恶性的病症，任何有常识，有正常判断的人都能明白是疫苗引起的，李博艺的母亲蒋艳红当然明白了是疫苗的问题，蒋艳红也开始为自己女儿讨公道，维权，但是中共国根本没有法律，而且本身ccp病毒和疫苗都是中共的阴谋，中共是不会承认是疫苗引起的！蒋艳红根本没有一个门路为自己的孩子讨会公道。
+发布：枳实
 
-结局是注定，在蒋艳红维权的过程中，南乐县卫健委指使手下对她进行了殴打，而且至今为止指使人没有受到任何法律追究，同时村委会主任也打电话威逼利诱，叫她不要和外国媒体联系，不要再传播卫健委打人视频，给她几十万这件事就了结了，这也表明中共心虚，怕此事被国外媒体曝光。
+完整视频链接: [Sources: VAXXED Delta Pilot DIES IN-FLIGHT, Emergency Landing Required](https://rumble.com/vnlwi9-sources-vaxxed-delta-pilot-dies-in-flight-emergency-landing-required.html)
 
-昨天蒋艳红的微博还能看到，今天21日已经在被封了，南乐县公安局已经在10月16日下发了拘留通知书，所谓根据《中（共）华人民共和国刑事诉讼法》第八十二条规定， 认定蒋艳红为寻衅滋事罪，并把她进行了刑事拘留。寻衅滋事罪本来就是一个说不清道不明的罪，是个箩筐罪，什么事都可以往里面装，特别是你不顺着中共的利益的时候就给你定上。中共向来不会通过法律解决提出问题的人，而是通过专制手段解决提出问题的人，因为中共国根本就没法律。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 
-（本文只代表作者个人观点,与Gnews 无关）
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

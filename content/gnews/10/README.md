@@ -2,24 +2,33 @@
 ---
 
 
-## 玩弄 &#8220;定时炸弹 &#8220;的朝鲜升级警告美国
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1608098/)
+## 灭共才是中共国企业家们唯一的出路
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1608180/)
 
-信息来源： 德国NTV 媒体网页版
+作者：撰稿：纽约香草山 – AlexZ
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/261203740.jpg)
+郭文贵先生在20日的大直播中多次向中共国的企业家们呼吁，唯有勇敢站出来，才能保护自己和家人的安全；唯有推翻这个邪恶的体质，才能赢得尊重和美好的未来。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1021AM（1-9）視頻備用.002.jpeg)
+事实上，中共的民营企业家们没有一个是安全的。近几年，为了与西方开展经济超限战，中共对国内的企业家绑架控制、危及家人，让他们能够继续为其捞钱续命。但最终，他们都会沦为中共内斗的政治牺牲品。
 
+为此，郭先生在直播中提出，希望国内的企业家们跟新中国联邦各个农场联系。其原因在于，爆料革命、新中国联邦有能力协调全世界80多个国家为他们提供便利，保证他们家人的安全。因此，只要他们能和各国当地政府合作，揭穿、揭发共产党在当地的技术、经济和军事超限战，为推翻共产党助力；或只要他们能与新中国联邦合作，坚定地、坚决地承认新中国联邦宣言，新中国联邦会提供一切可能的帮助。
+(本文仅代表作者观点)
 
-图片来源： DPA
+参考链接：[2021年10月20日 文贵大直播： (4). 呼吁企业家与新中国联邦合作，一起灭共](https://gtv.org/video/id=61700c08304e992109b806ee)
 
-10月19日朝鲜再次进行导弹试验，使联合国安理会召开闭门会议。这种反应让平壤的政府一点也不高兴，朝鲜希望美国必须预期 “严重后果”。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-在美国和联合国（UN）对最新的导弹发射进行谴责后，朝鲜威胁说“会有更严重的严重后果”。平壤外交部发言人批评华盛顿政府采取了 “极具挑衅性的步骤”，美国称这次试验违反了联合国安理会决议，威胁到该地区的和平与稳定。朝鲜威胁：“如果美国和安理会选择采取不适当的行动，可能会面临更严重和严峻的后果，朝鲜警告美国不要玩弄一颗定时炸弹”。朝鲜认为， 它的试验潜射导弹不是针对美国的，并批评联合国安理会和美国对导弹试验的反应是无稽之谈，导弹试验是朝鲜加强自卫的合法计划。朝鲜外交部发言人说：“美国谴责我们开发和测试他们已经拥有或正在开发的相同武器系统，这显然是双重标准。他还对美国政府最近关于不敌视朝鲜的声明提出质疑。”
+总编：Irene木木 
+编辑：Irene木木
+校正/发稿：我不在这里
 
-原文链接：[https://www.n-tv.de/politik/Nordkorea-warnt-USA-vor-Eskalation-article22878408.html](https://www.n-tv.de/politik/Nordkorea-warnt-USA-vor-Eskalation-article22878408.html)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-免责声明：本文观点只代表作者， 与Gnews平台无关
-
-编辑发布： Shuizhuyu
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

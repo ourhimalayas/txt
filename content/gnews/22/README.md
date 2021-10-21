@@ -2,34 +2,24 @@
 ---
 
 
-## 波音公司员工示威抗议强制接种疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1608012/)
+## 玩弄 &#8220;定时炸弹 &#8220;的朝鲜升级警告美国
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1608098/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/boeing.jpg)图片来源：aljazeera.com
-#### 编译：小红帽
+信息来源： 德国NTV 媒体网页版
 
-周三，波音公司的员工于伯克利的前总部对面参加了一场示威活动，以表达他们对疫苗接种要求的不满。
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
 
-波音员工最近收到了即将实施疫苗接种要求的通知。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/261203740.jpg)
 
-“我们被告知必须在12月8日之前接种疫苗，”示威者蒂姆·布洛克（Tim Block ）表示。 “我们还没有被告知12月8日之后会发生什么。”
 
-波音公司员工克里斯·西格 (Chris Seager) 表示，是否接种疫苗应该是个人的决定。这不应该成为就业的一个条件。
+图片来源： DPA
 
-该授权源于一项影响联邦工作人员和国防承包商的联邦命令。
+10月19日朝鲜再次进行导弹试验，使联合国安理会召开闭门会议。这种反应让平壤的政府一点也不高兴，朝鲜希望美国必须预期 “严重后果”。
 
-波音公司回应Fox 2的评论请求，并发表声明称：“波音公司致力于为我们的员工维持一个安全的工作环境，促进全球员工的健康和安全是我们价值观的基础，也是我们每天的核心优先事项。”
+在美国和联合国（UN）对最新的导弹发射进行谴责后，朝鲜威胁说“会有更严重的严重后果”。平壤外交部发言人批评华盛顿政府采取了 “极具挑衅性的步骤”，美国称这次试验违反了联合国安理会决议，威胁到该地区的和平与稳定。朝鲜威胁：“如果美国和安理会选择采取不适当的行动，可能会面临更严重和严峻的后果，朝鲜警告美国不要玩弄一颗定时炸弹”。朝鲜认为， 它的试验潜射导弹不是针对美国的，并批评联合国安理会和美国对导弹试验的反应是无稽之谈，导弹试验是朝鲜加强自卫的合法计划。朝鲜外交部发言人说：“美国谴责我们开发和测试他们已经拥有或正在开发的相同武器系统，这显然是双重标准。他还对美国政府最近关于不敌视朝鲜的声明提出质疑。”
 
-一些员工告诉Fox 2，他们将寻求宗教豁免。示威者表示，他们准备在未来举行更多的抗议活动。
+原文链接：[https://www.n-tv.de/politik/Nordkorea-warnt-USA-vor-Eskalation-article22878408.html](https://www.n-tv.de/politik/Nordkorea-warnt-USA-vor-Eskalation-article22878408.html)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+免责声明：本文观点只代表作者， 与Gnews平台无关
 
-**参考新闻：**[Demonstrators protest vaccine requirement at Boeing (fox2now.com)](https://fox2now.com/news/missouri/demonstrators-protest-vaccine-requirement-at-boeing/)
-
-***发布：小红帽*****更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑发布： Shuizhuyu

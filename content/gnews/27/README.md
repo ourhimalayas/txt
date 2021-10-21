@@ -2,54 +2,21 @@
 ---
 
 
-## 中国的企业家只有共同除掉共产主义的恶魔体制才有未来
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1607993/)
+## 美驻华大使提名人伯恩斯：在台湾问题上不能信任中国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1608059/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/集结号-1536x864_副本.jpg)
-据[2021年10月20日 文贵大直播： 喜币是最真实干净的革命性货币，喜支付的商业历史性意义；马云在被进行刑事调查时没有及时如实公告，马云在西班牙操纵股价，蔡中信的房子是马云的，他洗掉了马云75%的钱；江志城的投资都和马云有关联，都是刑事犯罪；呼吁企业家与新中国联邦合作，一起灭共](https://gtv.org/video/id=61700c08304e992109b806ee)时间点2：14：55——
+#### 撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-111.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fs.rfi.fr%2Fmedia%2Fdisplay%2Fb6424a64-befc-11eb-857a-005056bff430%2Fw%3A1280%2Fp%3A16x9%2Fbes_0.webp&amp;imgrefurl=https%3A%2F%2Fwww.rfi.fr%2Fcn%2F%25E4%25B8%25AD%25E5%259B%25BD%2F20210527-%25E7%25BE%258E%25E5%259B%25BD%25E9%25A9%25BB%25E5%258D%258E%25E5%25A4%25A7%25E4%25BD%25BF%25E6%2588%2596%25E6%259C%2589%25E8%25B0%25B1%25E4%25BA%2586-%25E6%258B%259C%25E7%2599%25BB%25E9%2580%2589%25E4%25B8%25AD-%25E9%25B9%25B0%25E6%25B4%25BE-%25E4%25BC%25AF%25E6%2581%25A9%25E6%2596%25AF&amp;tbnid=ngDvEwkJVKYtvM&amp;vet=12ahUKEwin95HTvtrzAhXtxosBHV2OBFUQMygDegUIARCgAQ..i&amp;docid=dwpHvyVwnS2J6M&amp;w=1280&amp;h=720&amp;q=%E5%B0%BC%E5%8F%A4%E6%8B%89%E6%96%AF%C2%B7%E4%BC%AF%E6%81%A9%E6%96%AF&amp;ved=2ahUKEwin95HTvtrzAhXtxosBHV2OBFUQMygDegUIARCgAQ#imgrc=ngDvEwkJVKYtvM&amp;imgdii=IFgy8li97U-mWM)
+法国国际广播电台10月21日报道，美驻华大使提名人尼古拉斯·伯恩斯在周三参议院听证会上谈到台湾局势称，不能相信中共政府，美国的责任是继续为台湾提供军备以加强其防御，让台湾成为中共强硬的对手。
 
-那么现在中国现在有第二个问题我们就来了，所有中国的经济界企业界，你想合法在中国经营有多难，几乎不可能，那就像你一个人要活下去，那你要生存下去，你那个环境就没有给你生存的环境，那你有选择吗？——没选择。
+伯恩斯是一位资历深厚的老牌外交官，星期三，在参院听证会上，他非常严厉地谴责中共政权，对日本、印度、越南、菲律宾等国家进行侵略，恐吓澳大利亚，威胁亲近台湾的立陶宛。他表示，中共在新疆的种族灭绝、在西藏的暴力行为、对香港自治和自由的镇压以及对台湾的霸凌都必须停止。他总结说：中共朋友很少，没有真正的盟友。
 
-那你走了今天这条路，我们必须要明白，它必然的路没有习近平有李近平，王岐山上去比他更狠，孟建柱上去那你们这些人早就成了已经是灰尘了——更狠，相信我的话。孙力军上去，你们祖宗八辈儿的坟都给你掘了，傅政华上去，我们这些人早就没了——更坏。
+信息来源：
 
-这个国家只会让邪恶、只会让恶魔成为中国的所谓的权力的中心者，所以今天我们大家要明白，只有共同的除掉共产党这个恶魔的体制，我们才有未来。
+[拜登提名驻华大使伯恩斯姿态强硬：在台湾问题上不能信任中国](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211020-%E6%8B%9C%E7%99%BB%E6%8F%90%E5%90%8D%E9%A9%BB%E5%8D%8E%E5%A4%A7%E4%BD%BF%E4%BC%AF%E6%81%A9%E6%96%AF%E5%A7%BF%E6%80%81%E5%BC%BA%E7%A1%AC-%E5%9C%A8%E5%8F%B0%E6%B9%BE%E9%97%AE%E9%A2%98%E4%B8%8A%E4%B8%8D%E8%83%BD%E4%BF%A1%E4%BB%BB%E4%B8%AD%E5%9B%BD)
 
-今天所有人都是牺牲品，如果大家不在这个问题上考虑这个，那你就完蛋了。话又说过来，中国私人企业家说那太遥远了，我们现在要活着，既不想失去钱，还想过着像马云这种天天到澳门嫖娼的日子、吸毒的日子，而且全世界喊他马爸爸，许家印喊他什么许大大是吧？
+(文章仅代表作者本人观点，与GNEWS无关)
 
-我告诉大家，今天你们这些人的下场，咱先说就现在，好，不说推翻共产党，你也没这个种，你们家人被绑架了，马云、于峰，我请问你，你现在按照共产党的要求，你完全把海外的钱全拿回去，然后你也回去，然后接受共产党说终生软禁、不杀你，你觉得能发声吗？共产党在历史上的地主包括所有的高官的许诺，有一个兑现的吗？他能拯救你的家人吗？答案你自己知道。
-
-我告诉所有这些中国成功的企业家，还有今天面临这种风险的人，我个人给你个建议，因为这几天我这快疯了，前天大直播完，你们没有想，我没办法回，我都不知道是谁——无数我手机，大概一个小时，我就得清一次内容。
-
-为啥我把你们刚才今天开会打印出来了，因为它老清除我找不回去，我信息不清除它就死机了，我都不知道是谁来问我怎么看待、怎么问的问题，我告诉大家我这是集体回答。
-
-就像我昨天在盖特上说的，任何一个成为中国家庭中心的人物，不管你什么辈分，因为你的经济的发展或者你出了名了，你成为家里的经济生存的中心，受到这次所谓的政治打压和所谓的经济犯罪调查的时候，你只有一个选择——和共产党干下去！
-
-为什么呢？你的家人是因为你有了尊严、有了荣耀、有了物质的生活，也因为你染上这个大祸，因为你才有尊严、安全和希望，也因为你染上了祸。
-
-现在如果你答应给共产党这个要求，把全家人作为肉票之后，配合共产党把所有的钱弄回去，然后你自动地进监狱或者自动受软禁。我可以告诉大家，你们每个人都会成为家人的痛苦，而且直到把家人折磨死而已，一起被痛苦而死。
-
-那么你第二个问题，良知——说你孝敬，为了家人好，保护家人，不能自私，你这是王八蛋的懦弱的想法，你的家人只有在你安全、健康、更快乐的情况下，家人才能持续他的尊严和物质美好的生活。在这个问题上你一点都不犹豫，也不能犹豫，如果家人不能理解这个，他不配做你的家人。
-
-所以你只有路一条——跟共产党干下去。你跟共产党干下去，你家人可能是获得自由和安全，还能继续享受他的尊严和别人对你家里的仰视，和享受国内那种物质生活下的攀比后的愉悦吧。否则你将永远，你就是万骨灰，啥都不是，我给你们的建议。所以很多人给我发信息，我在这回复你们。
-
-（以下暂略）
-
-撰稿：喜马拉雅的肉夹馍
-
-审核：喜马拉雅的馍夹肉
-
-校对：Maarago
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

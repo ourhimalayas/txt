@@ -2,46 +2,20 @@
 ---
 
 
-## 中共黑客组织大肆盗取全球手机用户数据
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1607301/)
+## 【玫瑰看新闻】第187期 币圈新闻
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1607774/)
 
-作者：纽约香草山农场  007
+[涨破6万6000美元 比特币改写新高纪录](https://www.cnbeta.com/articles/tech/1192889.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-1-9.jpg)
+据法新社报道，基金管理公司ProShares的比特币策略ETF（ProShares Bitcoin Strategy ETF）昨天在纽约证券交易所（NYSE）挂牌交易，代码为BITO，这项加密货币市场引颈企盼的盛事，推升比特币攀涨。加密货币行业周二迎来一个重要分水岭，美国第一支与比特币相关的交易所交易基金（ETF）上市，首日成交额创下历史次高记录。这只BITO，周二上涨约4.9%至41.94美元。
 
+比特币在伦敦已经飙涨至新高价位6万6976美元，直逼6万7000美元关卡。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-2-5.jpg)
+比特币曾在周三创下了66943.50美元的历史新高。根据CoinDesk的数据，最新的涨势将比特币今年迄今的收益率推高到122%。在未来几周，可能会有更多基于比特币期货的ETF在美国亮相，为美国加密货币投资者提供了参与所谓的”现金和套利”策略的可能性。
 
+[参考链接](https://www.rfi.fr/cn/%E6%B6%A8%E7%A0%B46%E4%B8%876000%E7%BE%8E%E5%85%83-%E6%AF%94%E7%89%B9%E5%B8%81%E6%94%B9%E5%86%99%E6%96%B0%E9%AB%98%E7%BA%AA%E5%BD%95)
 
+【文章仅限作者个人观点 不代表GNEWS平台】
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
-
-
-
-10月19日，美国网络安全公司CrowdStrike表示，一个与中共有关联的黑客组织“LightBasin”，至少从2016年开始，潜入世界各地的移动网络，并使用迄今为止发现的最复杂的工具，从运营商那里获取用户的通话记录和短信。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture5-3.jpg)
-长期以来，电信公司一直是黑客攻击的首要目标。CrowdStrike公司高级副总裁梅尔斯表示，这些攻击与中共有关联，包括使用依赖汉语拼音语音版本的密码学，以及与中共政府先前的攻击类似的技术。这些程序可以不引人注意地检索特定数据。
-
-美国国土安全部分管机构表示，已收到相关报告内容，会持续与美国电信商合作，防止黑客攻击。美国财政部周二强调，美国与其盟国合作打击网络攻击的重要性。
-
-参考链接：[中共黑客组织大肆盗取全球手机用户数据](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211019-%E7%BE%8E%E7%BD%91%E7%BB%9C%E5%AE%89%E5%85%A8%E5%85%AC%E5%8F%B8-%E4%B8%8E%E4%B8%AD%E5%9B%BD%E6%9C%89%E5%85%B3%E7%9A%84%E9%BB%91%E5%AE%A2%E7%BB%84%E7%BB%87%E6%BD%9C%E5%85%A5%E5%85%A8%E7%90%83%E7%A7%BB%E5%8A%A8%E7%BD%91%E7%BB%9C%E8%8E%B7%E5%8F%96%E9%80%9A%E8%AF%9D%E8%AE%B0%E5%BD%95)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：木白
-编辑：珈沅
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+审核校对：Barry Jack
+上传排版：F
