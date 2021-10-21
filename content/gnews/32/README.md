@@ -2,39 +2,23 @@
 ---
 
 
-## NIH向国会提交更正信函证明福奇宣誓后撒谎
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1608741/)
+## 纽约警察工会将起诉纽约市疫苗强制令
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1608786/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+俄罗斯莫斯科喀秋莎农场  银河
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/F-1.jpg)thekycker.com
-老贼福奇在中共病毒疫情期间当众撒谎、国会撒谎已是惯例，追责中共病毒溯源过程中，他宣誓条件下撒谎也是常态，一再否认向武毒所的功能增强研究项目提供了资金。阴谋集团一直在为老贼撑腰，试图蒙混过关，但是，与邪恶争斗的也大有人在，一定要有说法！
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/N-9.jpg)nypost.com
+NETBREAKING 10月20日 援引自美联社报道，纽约市最大的警察工会——警察慈善协会（Police Benevolent Association，PBA）20日表示，他们将起诉纽约市对警察、消防员和其他市政工作人员实施的疫苗强制令。
 
-美国国家卫生研究院（NIH）昨天（10月20日）向国会提交了信函，更正了老贼福奇及科林斯以前的虚假陈述。
+纽约市长白思豪(Bill de Blasio) 20日宣布了疫苗政策，称警察、消防员和其他未接种中共病毒疫苗的城市工作人员，必须在11月1日前完成至少一剂疫苗的接种，否则将被安排无薪休假。
 
-《门道专家》发表文章，题目“美国国家卫生研究院（NIH）今天更正了科林斯（Collins）和福奇（Fauci）的虚假陈述——NIH确实为武汉功能增强研究提供了资金——福奇宣誓条件下撒了谎”。
+警察慈善协会认为接种疫苗与否是“个人医疗决定”。 协会主席帕特里克·林奇(Patrick Lynch)在一份声明中说：“既然市政府已经采取行动单方面强制执行命令，我们将采取法律行动保护我们的成员的权利。”
 
-“美国国家卫生研究院”（NIH）主任科林斯和“国家过敏和传染病研究所”（NIAID）主任福奇都声称，NIH没有资助武汉的功能增强研究，今天我们发现他们撒谎了。
+早在今年8月，《纽约邮报》曾报道过，警察慈善协会（Police Benevolent Association）主席帕特里克·林奇(Patrick Lynch)在一封电子邮件中写道：“如果纽约市试图强制要求PBA成员接种疫苗，我们将采取法律行动捍卫成员做出此类个人医疗决定的权利。” 当时纽约市政府还没有表示是否会试图对包括警察在内的其他市工作人员强制实施疫苗接种的规定。”
 
-福奇在与参议员兰德·保罗（Rand Paul）谈话时宣誓，他否认国家卫生研究院资助了武汉功能增强研究项目。
+希望更多正义的力量可以勇敢站出来反抗，以停止这场疫苗灾难。
 
-今天（10月20日），国家卫生研究院向美国众议院提供了一份文件，声称国家卫生研究院确实为武汉的功能增强研究提供了资金。
+参考链接：
 
-文章附上了一篇推文，推文中称，“NIH纠正了NIH主任科林斯和NIAID主任福奇关于NIH没有资助武汉功能增强研究的不实声明。
-
-NIH表示，生态健康联盟（EcoHealth Alliance）违反了NIH授权AI110964的条款和条件。”
-
-（推文附上了国家卫生研究院10月20日致众议院的信函）
-
-看来福奇和科林斯该被抓了，他们陷入了困境。
-
-（原文完）
-
-罪恶在进一步地暴露，纳税人每年用40多万美金供养的老贼福奇（当然，另一个老贼科林斯的俸禄也不低），撒谎成性，配合邪恶集团制造了中共病毒的蔓延，继而推出了更恶毒的配套手段，疫苗接种。一剂不够两剂，两剂不成再来加强剂，真该千刀万剐！
-
-（文章只代表作者本人观点）
-
-原文链接：
-
-[https://www.thegatewaypundit.com/2021/10/breaking-nih-today-corrects-false-statements-directors-collins-fauci-nih-fund-gain-function-research-wuhan/](https://www.thegatewaypundit.com/2021/10/breaking-nih-today-corrects-false-statements-directors-collins-fauci-nih-fund-gain-function-research-wuhan/)
+[https://net-breaking.com/2021/10/20/nypds-largest-union-plans-to-sue-city-over-covid-vaccine-mandate/](https://net-breaking.com/2021/10/20/nypds-largest-union-plans-to-sue-city-over-covid-vaccine-mandate/)
