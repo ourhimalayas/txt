@@ -2,29 +2,46 @@
 ---
 
 
-## 世贸组织对华贸易政策审议 美澳代表各提不满
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1607249/)
+## “真”“善”“狠”，新中国联邦核心理念
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1607252/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16347862711.png)*世贸组织日内瓦总部门口 © 路透社图片*
-据法广电台10月20日报道，从20日开始，中共国接受自2001年加入世贸组织以来第八次为期三天的贸易政策审议。美国代表称，中共国的产业政策“扭曲竞争环境”，华盛顿将试图说服中共国作出有需要的改变。澳大利亚指责北京对该国采取经济胁迫措施，破坏了国际社会对中共国的信心。
-
-美国还指责中共国其他的不公平贸易行为。澳大利亚则承受了众多的中共国破坏性措施。这些措施已经严重限制或终止了澳大利亚十几种商品的贸易，提高了全球商界对中共国市场的风险和不确定性。澳大利亚指责中共国对澳商品实施限制是为了报复政治争端。
-
-中共国一向无视国际规则，一切的贸易行为都与政治和利益挂钩。为了报复某个国家，哪怕自身利益受损也要打击对方，不惜两败俱伤。因为中共不需要对国家和人民负责，劳民伤财也不在话下。中共存在一天，国际社会就无规则可循。
-
-新闻参考链接：[https://t.co/k07Hu2yHbl?amp=1](https://t.co/k07Hu2yHbl?amp=1)
-
-编辑：胖丁
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：香草山农场 – 恩永存
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+郭文贵先生10月19日再次申明，新中国联邦的核心理念是“真”“善”“狠”。
+
+19日上午，GTV与盖特做同步测试。其间，一名伪类在盖特留言中，故意为难主持人。郭先生立即要求维护人员删除留言，并屏蔽此用户。郭先生还说：伪类账号一定要全部删除，一个也不留。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-6.jpg)
+郭先生表示，他最先提出“真善狠”三个字。新中国联邦的正道主义就是唯真不破，法律根据就是真理，所以是“真”；新中国联邦人以博爱善待他人，做个善良的人，因此有“善”；新中国联邦人喜爱公义，就必须恨恶罪恶，依法惩冶恶人，当然就得“狠”。“真”是理论原则，“善”是做人原则，“狠”是做事原则。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-100.jpg)
+参考链接：
+[郭先生2021年10月18日盖特直播测试](https://gettr.com/streaming/pejgy3dc01)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：木白
+编辑：山本不惑
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

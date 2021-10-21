@@ -2,24 +2,43 @@
 ---
 
 
-## 纽约市市长宣布强制中共病毒疫苗规定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1607294/)
+## 新疆人权犯罪主犯王君正升任西藏一把手
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1607304/)
 
-#### 翻译：Grace
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-40.jpg)图片来源：网络截图
-据纽约市的官方网站10月20日报道，纽约市市长，比尔.德.布拉西奥（Bill de Blasio），今天宣布了一项针对所有市政工作人员的中共病毒疫苗规定。该规定强制要求所有的市政府雇员，必须在10月29日之前，注射中共病毒疫苗。
+作者：澳喜农场 – 在远方
 
-报道称，没有在该限期之前接种中共病毒疫苗的员工，将被安排无薪休假，直到他们向上司出示中共病毒疫苗接种证明。而从今天开始到10月29日星期五下午5点为止， 至少打了一针的市政府的员工，将在他们的工资中获得额外的500美元奖金。
 
-卫生专员Dave Chokshi博士签署了这一项专员令后，就确定了这项规定, 这意味着大约16.05万名的纽约市员工就要受到强制疫苗规定的管制。然而，受此规定影响的71%的工人已经接受了至少一剂疫苗。
 
-据报道，教育部（DOE）和纽约市卫生和医院（H+H）的工作人员自9月下旬已经开始执行了疫苗接种规定；今天，教育部和H+H的疫苗接种率分别为96%和95%。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-新的规定在11月1日对整个市政工作人员生效，包括所有纽约警察局、联邦调查局和纽约市警察局的雇员。
 
-惩教署(DOC)的文职雇员和被分配到医疗机构的军警人员也立即受制于这项规定。由于该市正在努力解决莱克斯岛（Rikers Island）目前的人员配置情况，惩教署的其他军警人员将于12月1开始执行强制中共病毒疫苗的规定。
 
-据报道，纽约市政府将立即开始与受影响的工会进行谈判。
+中共前新疆政法委书记、自治区党委副书记王君正，10月19日被宣布升任西藏党委书记。王君正由于直接参与了新疆近年来严重迫害人权的行动，是受到西方制裁最多的中共官员。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-19.jpg)
+联合国专家及一些独立学者提供的大量证据显示，中共自2016年起，关押了至少100万维吾尔族和其他少数民族穆斯林，对他们进行洗脑和强迫劳动，并禁止他们从事宗教活动。
 
-[**新闻来源：**https://www1.nyc.gov/office-of-the-mayor/news/698-21/mayor-de-blasio-vaccine-mandate-new-york-city-workforce](https://www1.nyc.gov/office-of-the-mayor/news/698-21/mayor-de-blasio-vaccine-mandate-new-york-city-workforce)
+2021年3月22日，美国财政部根据全球马格尼茨基人权问责法，对新疆自治区副书记兼新疆生产建设兵团党委书记王君正，和新疆公安厅厅长陈明国进行制裁，指控他们是严重践踏人权和从事腐败的涉案人员。2021年3月，欧盟、英国和加拿大也宣布制裁新疆党委副书记王君正等4人和一家实体。
+
+参考链接：[新疆人权犯罪主犯王君正升任西藏一把手](https://www.voachinese.com/a/China-promotes-most-sanctioned-official-to-Tibetan-party-chief-20211019/6277106.html)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：木白
+编辑：飞虹
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)

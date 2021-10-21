@@ -2,26 +2,21 @@
 ---
 
 
-## 美国会再就港疆人权问题举行听证会 加快推进港人避风港法案
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1606108/)
+## 水灾后的缺粮已显现
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1605959/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/57466043_303-2.jpg)马林诺夫斯基(小图)愿拆细法案以求更快通过保护港人法案 2021年10月20日 © 直播截图
+#### 撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ert.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2020%252F0723%252Fcb60327ej00qdx9os003ec000xc00m8m.jpg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FFI8F64690539BX8Z.html&amp;tbnid=yeDumOu9LhDj1M&amp;vet=12ahUKEwjQnuj12djzAhU0JaYKHZ7qCk8QMygEegUIARClAQ..i&amp;docid=qV86qo8WQz1e3M&amp;w=650&amp;h=434&amp;itg=1&amp;q=%E8%BF%9B%E5%8F%A3%E5%B0%8F%E9%BA%A6&amp;ved=2ahUKEwjQnuj12djzAhU0JaYKHZ7qCk8QMygEegUIARClAQ)
+中国新闻网哈尔滨10月19日电，黑龙江省对俄农业产业协会19日发布消息，中粮集团从俄罗斯进口的667吨小麦抵达黑河口岸，于19日脱箱卸到当地海关监管库。这是中共国首次成规模地从俄罗斯远东地区进口小麦，这打开了中俄农业合作的一个新渠道。
 
-**编辑摘要：**10月19日，美国国会及行政当局中国委员会再就香港和新疆人权问题召开听证会，多名议员均呼吁拜登政府采取更多措施以协助和保障日益受压的港人和维吾尔人，并呼吁国会加快通过为逃离当地人士提供保护的法案。
+据黑龙江省对俄农业产业协会秘书处一位负责人介绍，自从20世纪90年代，黑龙江开始开展中俄农业合作以来，这是进口小麦数量最大的一次。
 
-中国委员会主席、参议员马凯利(Jeff Merkley)在听证会指明，中共国不单只持续打压港人和维吾尔人，更想方设法把在他国寻求保护的相关人士遣返回华，对香港，就是拘捕流亡海外港人或禁止他们离境，期望此次听证会能推动为港、疆受迫害者提供庇护的法案在国会通过。
+小麦是中国人最重要的口粮之一，进口667顿的小麦，俨然成为规模？中共国是世界上最大的小麦生产国，整个中共国都有种植小麦的产区。从北到南，小麦的主产区一直都有分布。之所以要进口小麦，是南北水灾造成的严重损失，粮食危机在不久的未来一定会显现。
 
-新闻参考链接：[美国会再就港疆人权问题举行听证会 议员促加快通过港人避风港法案](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211020-%E7%BE%8E%E5%9B%BD%E4%BC%9A%E5%86%8D%E5%B0%B1%E6%B8%AF%E7%96%86%E4%BA%BA%E6%9D%83%E9%97%AE%E9%A2%98%E4%B8%BE%E8%A1%8C%E5%90%AC%E8%AF%81%E4%BC%9A-%E8%AE%AE%E5%91%98%E4%BF%83%E5%8A%A0%E5%BF%AB%E9%80%9A%E8%BF%87%E6%B8%AF%E4%BA%BA%E9%81%BF%E9%A3%8E%E6%B8%AF%E6%B3%95%E6%A1%88)
+消息来源：[中国首次成规模进口俄罗斯小麦 667吨小麦运抵中国口岸](https://me.mbd.baidu.com/r/v2oTGESPZu?f=cp&amp;rs=1846487702&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=7212c7f377841973)
 
-* * *
+(文章仅代表作者本人观点，与GNEWS无关)
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
