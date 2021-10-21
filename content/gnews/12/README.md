@@ -2,23 +2,21 @@
 ---
 
 
-## 航空业的中共病毒疫苗危机
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1608056/)
+## 俄中伊与塔利班共同发布联合声明
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1608078/)
 
-#### 翻译：奮鬥
-校对：枳实
-字幕/剪辑：蛮吉
+#### 撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/10/43-1.png)（图片来源于本文链接）
+10月20日，俄罗斯举行阿富汗问题会议，与会的俄罗斯、中共国、伊朗、巴基斯坦、印度和中亚国家与塔利班代表一致同意，加强在阿富汗的安全合作，并发表一份联合声明。声明的核心是，认可塔利班上台掌权，各国在阿富汗安全事务上需与塔利班进行合作。
 
-美国航空业的中共病毒疫苗危机：飞行员在飞行中死亡，乘客在航班上发病，员工在睡梦中死亡，机场酒店神秘的急救……
+俄罗斯外长拉夫罗夫表示，要实现阿富汗和平稳定，必须组建一个真正包容政府，并赞扬塔利班为此所做的努力。俄罗斯阿富汗问题特使卡布洛夫表示，希望塔利班能满足国际社会对包容及基本人权的要求。而讽刺的是，俄罗斯在2003年将塔利班定为恐怖组织，根据俄国法律，与恐怖组织接触将受惩罚。
 
-发布：枳实
+信息来源：
 
-完整视频链接: [Sources: VAXXED Delta Pilot DIES IN-FLIGHT, Emergency Landing Required](https://rumble.com/vnlwi9-sources-vaxxed-delta-pilot-dies-in-flight-emergency-landing-required.html)
+[俄罗斯”阿富汗问题会议”：塔利班准备与俄、中及伊朗合作](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211020-%E4%BF%84%E7%BD%97%E6%96%AF-%E9%98%BF%E5%AF%8C%E6%B1%97%E9%97%AE%E9%A2%98%E4%BC%9A%E8%AE%AE-%E5%A1%94%E5%88%A9%E7%8F%AD%E5%87%86%E5%A4%87%E4%B8%8E%E4%BF%84-%E4%B8%AD%E5%8F%8A%E4%BC%8A%E6%9C%97%E5%90%88%E4%BD%9C)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+(文章仅代表作者本人观点，与GNEWS无关)
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

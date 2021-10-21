@@ -2,36 +2,24 @@
 ---
 
 
-## 郭文贵先生2021年10月20日对全世界政府和投资者的警告
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1607868/)
+## 女孩接种疫苗死亡，母亲维权被殴打，消声，拘留
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1607942/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot_副本-20.jpg)
-据[2021年10月20日 文贵大直播： 喜币是最真实干净的革命性货币，喜支付的商业历史性意义；马云在被进行刑事调查时没有及时如实公告，马云在西班牙操纵股价，蔡中信的房子是马云的，他洗掉了马云75%的钱；江志城的投资都和马云有关联，都是刑事犯罪；呼吁企业家与新中国联邦合作，一起灭共](https://gtv.org/video/id=61700c08304e992109b806ee)时间点2：27：41——
+视频&文章：澳洲天好蓝
 
-共产党在全世界的经济犯罪、超限战，现在已经无人能停下，共产党对全世界的威胁已经无人可以避免，只有新中国联邦、爆料革命让全世界知道真相。华尔街你这3000个基金，如果你看了郭文贵爆料，你不采取措施，你就是欺骗，你就是犯罪。
+12岁的李博艺于今年8月10在河南省濮阳市南乐县城关镇卫生院站接种了ccp病毒疫苗，接种2天后就开始发高烧，到医院检查出有脓毒败血症，粒细胞缺乏症，中毒性脑病，颅内感染等十余种并发症，8月28日去世,然而李博艺在6月25日体检，以及7月20的抽血检查都显示各项指标正常，说明孩子没有基础性疾病。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16348085741.png)
+健康的小孩怎么可能突然就得了这么严重的病呢？这其中没有其它额外因素，唯一的原因就是她接种了ccp病毒疫苗，因为ccp病毒疫苗里面充满了刺突蛋白，引起自身免疫异常,可能引起免疫系统崩溃导致感染。
 
-我已经告诉你们，所有中国上万名企业家的家人是被绑架、边控、威胁状态，你们应该给每个人按照美国法律发函——你是否在自由状态？你是否家人失去自由？你是否被中国政府刑事调查？如果这些信息没有告诉你，你们都是共犯，都是犯罪。
+接种短短两天，就突然出现恶性的病症，任何有常识，有正常判断的人都能明白是疫苗引起的，李博艺的母亲蒋艳红当然明白了是疫苗的问题，蒋艳红也开始为自己女儿讨公道，维权，但是中共国根本没有法律，而且本身ccp病毒和疫苗都是中共的阴谋，中共是不会承认是疫苗引起的！蒋艳红根本没有一个门路为自己的孩子讨会公道。
 
-这是今天郭文贵直播向全世界各国政府、所有投资中共国的和通过香港和各种结构、投资结构、投资中国的各机构和各国家政府发出的警告。保护你们国家人民的养老金、退休金和你们国家人民的资产安全，应该把所有投资中国的人的所有的个人安全和合作者的安全性和真实性，完全通过法律了解固定化，否则你们将非常惨，将面临你们国家的人民的审判。
+结局是注定，在蒋艳红维权的过程中，南乐县卫健委指使手下对她进行了殴打，而且至今为止指使人没有受到任何法律追究，同时村委会主任也打电话威逼利诱，叫她不要和外国媒体联系，不要再传播卫健委打人视频，给她几十万这件事就了结了，这也表明中共心虚，怕此事被国外媒体曝光。
 
-（以下暂略）
+昨天蒋艳红的微博还能看到，今天21日已经在被封了，南乐县公安局已经在10月16日下发了拘留通知书，所谓根据《中（共）华人民共和国刑事诉讼法》第八十二条规定， 认定蒋艳红为寻衅滋事罪，并把她进行了刑事拘留。寻衅滋事罪本来就是一个说不清道不明的罪，是个箩筐罪，什么事都可以往里面装，特别是你不顺着中共的利益的时候就给你定上。中共向来不会通过法律解决提出问题的人，而是通过专制手段解决提出问题的人，因为中共国根本就没法律。
 
-撰稿：喜马拉雅的肉夹馍
+（本文只代表作者个人观点,与Gnews 无关）
 
-审核：喜马拉雅的馍夹肉
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-校对：Maarago
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

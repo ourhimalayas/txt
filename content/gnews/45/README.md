@@ -2,57 +2,21 @@
 ---
 
 
-## 有声| 每日读经 ：马太福音（5:3-12）论福
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1607387/)
+## 秘翻在线：美商务部出台新规将限制向中、俄等国出售黑客工具
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1607495/)
 
-配音：香草山福音部-Daxia
+#### 翻译/撰稿：zzballack
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+#### 校对：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-400.png) 图片来源：threatpost
+据《国会山报》（The Hill）10月20日报道，美国商务部的工业和安全局（Bureau of Industry and Security）10月20日发布了一项临时最终规定，将对某些网络安全项目的出口、再出口或转让进行控制。
 
+根据新规，美国公司和任何销售美国制造的网络软件的公司在向被归类为“国家安全或大规模杀伤性武器关注国”或已经受到武器禁运的外国政府，以及位于俄罗斯或中共国的任何买家、包括中间商出售黑客工具时都需要获得许可证。
 
+该规定写道：“这些工具需要受到管控，因为它们可能被用于监视、间谍活动或其它破坏、拒绝、降低网络或网络设备性能的行动。”
 
+美国商务部部长吉娜·雷蒙多(Gina Raimondo)10月20日在一份声明中说：“美国致力于与我们的多边伙伴合作，阻止某些技术的传播，这些技术可能被用于恶意威胁网络安全和人权活动。”
 
+在公众征求意见期结束后，这些规定将在90天内最终生效。
 
-
-
-**3**.“虚心的人有福了，因为天国是他们的。
-
-**4**.哀恸的人有福了，因为他们必得安慰。
-
-**5**.温柔的人有福了，因为他们必承受地土。
-
-**6**.饥渴慕义的人有福了，因为他们必得饱足。
-
-**7**.怜恤人的人有福了，因为他们必蒙怜恤。
-
-**8**.清心的人有福了，因为他们必得见　神。
-
-**9**.使人和睦的人有福了，因为他们必称为　神的儿子。
-
-**10**.为义受逼迫的人有福了，因为天国是他们的。
-
-**11**.人若因我辱骂你们，逼迫你们，捏造各样坏话毁谤你们，你们就有福了。
-
-**12**.应当欢喜快乐，因为你们在天上的赏赐是大的。在你们以前的先知，人也是这样逼迫他们。”
-
-
-
-
-
-
-
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+新闻来源：[Commerce Department cracks down on sale of hacking products to foreign governments](https://thehill.com/policy/cybersecurity/577587-commerce-department-cracks-down-on-sale-of-hacking-products-to-foreign)
