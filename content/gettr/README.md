@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/21/2021 3:34 AM (UTC)`
+
+10/20/2021 Miles Guo: It may be okay for entrepreneurs like Jack Ma to seek some power, but the essence of the Communist China is the evil dictatorship of the CCP - No matter who is in power, no one else is allowed to compete for power. Without eradicating the CCP’s evil system, no one can have a future<br/><br/>10/20/2021 文贵直播：马云这样的企业家图谋权利可能也无可厚非，但中共国本质是共产党的邪恶独裁，无论谁在台上都不允许他人窥视权力，不铲除中共恶魔体制，所有人都没有未来<br/>
+![img](https://media.gettr.com/group39/getter/2021/10/21/03/34/3f153533-8f1d-c707-6730-f9437a1ce823/out.jpg)
+
+---
+
 `@miles 10/21/2021 12:41 AM (UTC)`
 
 10/20/2021 Miles Guo: When Jack Ma, Bruno Wu, Wang Jianlin, Peter Ma, and Pan Shiyi were arrested, they were legal representatives, chairmen, or shareholders of the companies listed in the US. Alvin Jiang was arrested twice in 2020. According to U.S. law, failure to announce the chairman of a listed company is under investigation is a criminal offense and the company is liable for stock losses. Any shareholder has the right to sue and will win 100% for sure. Jack Ma is suspected of multiple economic crimes of failure to disclose the changes in the IPO. Pan Shiyi and his wife will surely go to jail<br/><br/>10/20/2021文贵直播： 马云、吴征、王健林、许家印、马明哲、潘石屹等人被抓时都是美国上市公司法人、主席或股东，江志成在2020年两次被抓；美国法律规定，隐瞒上市公司主席被调查属刑事犯罪，该公司要承担股票损失。任何持有这些股票的股民都有权起诉，且100%会赢。马云还涉嫌多次隐瞒上市信息变更的经济犯罪；潘石屹两口子一定会进监狱<br/>
@@ -289,13 +296,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 10月16号：这是不同的战友发来的有关吃药一些反应，不管任何情况下大家吃药都应该遵医嘱吃药。【七哥您好，我一般不打扰您，但是这事儿得跟您说下，太感谢爆料革命了，真的太牛了。 这是我表哥，人在墙内，他也是我们战友。他患有牛皮癣许多年了，那些天咱们谈青蒿素的时候我突然想到，他这个病也是基因性免疫性疾病，我推测青蒿素可能有用，让他一试，刚吃第一天的时候他说感觉患病处有点发麻说不出的感觉，他还有点怕想停掉，我对他说，如果青蒿素没有用你应该是没有任何感觉，但如果是只有患病处有感觉，这恰恰体现了青蒿素直击目标的靶向作用，跟它对付亲铁元素的癌细胞是一个意思。然后他又吃了几天，这不，刚刚跟我反馈情况。激动坏了把我们。哈哈哈！太牛了，七哥！🙏🙏👇👇 根哥，我跟您上次反应青蒿素哌喹片这个事，我想再详细跟您说说，大概一个月左右前，我开始让身边的人吃疫苗解药，四个人吃完了一个疗程。青蒿素哌喹片七天的疗程，VC1000mg,D3,5000单位，锌50mg，吃完五天后开始发热气短，进了医院，肺部大面积感染，血氧80多，动脉血气30.40，急性心脏衰竭，二型呼吸衰竭，治疗三天后肺部感染继续紧张很快，转进大医院ICU，现在才刚出院。五天前我一个家人吃完一个星期量；第二天有点感冒症状；第三天开始胸闷气短，去了医院，检查初步诊断；一型呼吸衰竭，肺部感染，急性心脏衰竭，血氧80多，：动脉血气最低30最高60。现在有点好转，根哥我想跳楼的心都有了，总共五个人吃了，有一个人只吃了两天，我叫暂时不要吃了，其他两个人目前没事。我在喜币群里问了几次，有好几个战友，跟我私信说的有三个，吃完发高烧，昨晚几个战友说也是肺炎，有的住了几天院，有一个和我说的类似急性心衰，气短，我让吃药的人都是打了两针疫苗的，我只是希望你们能记录我反应的问题，能帮助更多打了疫苗解毒的人。】
 ![img](https://media.gettr.com/group47/getter/2021/10/16/14/43/577b3ebf-a619-d817-13c6-4dc9a7ea288f/5484f38bad06084b924064a6894eea69.jpg)
-
----
-
-`@miles 10/16/2021 2:07 PM (UTC)`
-
-10月16号：尊敬的战友们好，你们健身了吗？过去的两天又发生了很多很多的大事情，有关话题，我在这里简单说一下，明天大直播中再详细向战友们报告！
-![img](https://media.gettr.com/group22/getter/2021/10/16/14/07/cf90edd4-3ea0-6eb3-95f4-156a8b114015/out.jpg)
 
 ---
 
