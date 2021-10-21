@@ -2,37 +2,37 @@
 ---
 
 
-## 国际要闻汇编
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1607573/)
+## Woolworth首席执行官要求所有员工接种疫苗否则将被解雇
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1607765/)
 
-#### 素材：东京樱花团｜GNEWS组
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/woolworths-counter-westfield-myb_a316.jpg)
+图片来源：mybusiness.com.au
+####  编译：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/guoji1021.png)[*图片来源*](https://gdb.voanews.com/5F0E2680-7FB9-42CB-8CA8-EC33AC52CF89_w1597_n_r1_st.jpg)
+天空新闻商业编辑罗斯格林·伍德（Ross Greenwood）表示，Woolworths首席执行官布拉德·班杜奇（Brad Banducci）周四就疫苗接种的问题，向他的员工发出了“非常直白的信息”。
 
-**10月21日汇编**
+此前，这家超市巨头已宣布在澳大利亚1,200多家零售店实施员工疫苗接种计划。
 
-1、[**疫苗覆盖率破8成 新加坡单日死亡创新高**](https://www.aboluowang.com/2021/1021/1662214.html)
+首都领地、北领地、新南威尔士州、维多利亚州和西澳大利亚州的17万名员工被要求在2022年1月31日前完全接种中共病毒（ COVID-19）疫苗。
 
-据新加坡《联合早报》报导，当地卫生部门昨晚通报20日的疫情，共新增3862人确诊。新加坡的疫苗覆盖率已经超过8成，从8月开始也逐步松绑防疫措施，这样“与病毒共存”的防疫策略，不但让新加坡的确诊数在19日达到新高，病殁数在20日创下“疫情爆发以来最高纪录”。
+南澳大利亚、昆士兰和塔斯马尼亚的员工需要在2022年3 月31日前接种两剂疫苗。
 
-2、[**“不能信任中国承诺” 美驻华大使被提名人伯恩斯强硬表态**](https://www.voachinese.com/a/us-china-ambassador-burns-confirmation-hearing-20211020/6279475.html)
+班杜奇先生说，那些没有合理理由不接受疫苗接种的人将被解雇。
 
-美国总统拜登提名的新任驻中国大使人选伯恩斯（Nicolas Burns）周三（20日）在参议院外交关系委员会上，对中国近来在印太地区各种咄咄逼人的行动作出强硬表态，称美中关系已经发生“根本性的变化”。他说，如果人事案获得确认，他有信心美国能证明中国宣称的“东升西降”说法是错误的。这位职业外交官还说，在台湾问题上，“不能相信中国作出的任何承诺”。
+“有趣的是，负责大多数零售工人的工会—SBA，支持让人们接种疫苗的提议，”格林伍德先生告诉澳大利亚天空新闻。
 
-3、[**拜登对中国发展高超音速导弹感到关切**](https://www.voachinese.com/a/US-china-hypersonic-missiles-20211020/6279427.html)
+“SBA只是想确定那些选择不接种疫苗的人有合理的理由，且公司有良好的流程。”
 
-美国总统拜登周三（20日）表示，他对中国的高超音速导弹感到关切。几天前，英国的《金融时报》报道说，北京测试了一种可携带核弹头的高超音速滑翔武器。
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-4、[**对抗中国（共）威胁是今后10年战略重点**](https://www.voachinese.com/a/china-nato-military-weapon-20211020/6278944.html)
+**参考新闻：**[Woolworth CEO had a ‘fairly blunt message’ for staff regarding vaccination (msn.com)](https://www.msn.com/en-au/news/other/woolworth-ceo-had-a-fairly-blunt-message-for-staff-regarding-vaccination/ar-AAPMa7C?ocid=msedgntp)
 
-北大西洋公约组织(NATO)秘书长斯托尔滕贝格（Jens Stoltenberg）近日在接受《金融时报》采访时指出，北约的战略中心将向中国转移，这意味着北约对其中国战略的重大反思，拉近了该联盟与美国的立场，扩大了双方对抗中国威胁的合作空间。
+***发布：小红帽***
 
-5、[**中美公司签署巨额液化天然气供应协议**](https://www.aboluowang.com/2021/1021/1662060.html)
-
-美国能源部网站的文件说，中国国营石油公司中石化（Sinopec）上个月与美国Venture Global公司签署了两项20年的协议，每年一共提供4百万吨液化天然气。这将是最大一笔液化天然气贸易协议。这次签署的协议也让中国从美国进口的液化天然气总量在去年310万吨的基础上增加一倍。
-
-（本文只代表个人观点，与Gnews网站无关）
-
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / 野猫*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-7.png)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,62 +2,43 @@
 ---
 
 
-## COVID-19最新情报｜政府荒谬地将COVID-19扩散归咎于未接种疫苗族群
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1607569/)
+## COVID-19最新情报｜英国年轻人死亡率开始激增 多数为男性 死于心脏骤停
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1607730/)
 
-**台灣寶島農場 zhong｜發布日期/ 21/10/2021**
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期****/ 21/10/2021**
+
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_0.jpg)
-#### 荒谬！美国拜登政府将新冠病毒扩散归咎于未接种疫苗者
 
-10月14日在*[Brighteon.TV](https://brighteon.tv/)*播出的“[Byline Anew](https://www.brighteon.com/3e753f32-ab69-437b-b05f-89d795d82518)”节目中，主持人 Fior Hernandez清楚说明了“美国政府如何将新冠病毒扩散，归咎于未接种疫苗族群”，以及如何过宣传手段侵害美国人民受美国宪法保障的自由权利。
+英媒消息（21日），根据英国国家统计局 2021 年 5 月 1 日至 2021 年 9 月 17 日期间，英格兰和威尔士地区的死亡数据显示，**15-19 岁年龄段的死亡率增长高出往年同期水平的 16% 至 47%（见下表），超额死亡的人数中以男性居多。另外，20-29 岁年龄组亦同样出现类似情况**。
 
-总结而言，该节目主持人认为政府以及新冠疫苗支持者，通过片面的解释定性“未接种新冠疫苗者，是破坏政府解决新冠疫情的努力”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/clare-image-1.png)上表以 2020 年为基准对比，下表则使用 2015-2019 年的均值
 
-#### 政府闭口不提的替代性疗法：药物预防、治疗方案
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/clare-image-2.png)男性死亡率较往年同期最高
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/clare-image-3.png)女性死亡率低于2020年同期水平
 
-各领域专业人士，不论是流行疾病、心脏病或医学领域，都尝试向公众传达“存在替代疗法”，可以取代任何疫苗。然而，这些人士的努力，却被恶意审查、曲解，并承受着冷嘲热讽。
+相同时期内 15-19 岁年龄组男女死亡率趋势
+#### **因失去知覺、心臟驟停而呼叫救護車的次數增高**
 
-（读者请扪心自问，你曾想过新冠病毒可药物防治吗？还是完全听从政府“片面的资讯”）
+另據英國急救中心數據，自 2021 年 5 月開始，因心臟驟停、呼吸困難等原因而呼叫救護車的數量明顯增加，在增長趨勢開始的同一時間，恰逢英國政府大量推出疫苗接種計劃。
 
-- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/)
-- 相关：[新冠病毒预防、治疗方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
-- 相关：印度德里使用伊维菌素，确诊病例下降97%
-- 相关：[Zev Zelenko 博士](https://www.wnd.com/2020/03/doctor-treated-350-coronavirus-patients-100-success/)在(2020年) 4 月份[告訴 WND](https://www.wnd.com/2020/03/doctor-treated-350-coronavirus-patients-100-success/)，他利用药物已经治疗了 350 名新冠确诊者，且成功率达 100%
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/clare-image-5.png)a
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/clare-image-6.png)b
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/clare-image-7.png)c
 
+图a,b,c分别显示因心脏骤停a、失去知觉b、受冷或受热c而呼叫救护车的次数
+#### **分析：异常死亡增势与疫苗导致的心肌炎风险有关**
 
-#### 政府带头歧视未接种疫苗群体
+有分析指，稍有常识的人都知道，15-29 岁年龄组的死亡率激增是一件极不正常的事，因为该年龄组的死亡并不常见，尤其超额死亡人数偏以男性为主，故认为，这种偏向年轻男性的死亡增势可能与因疫苗导致的心肌炎风险有关，因心肌炎偏向于男性。
 
-9月，美国拜登总统宣布了最新的强制接种命令，下令拥有100名以上员工的雇主，必须强制要求员工接种新冠疫苗。
+#### **心肌炎：普通心肌炎五年后的总死亡率高达五成**
 
-**拜登总统公开表示，对“未接种疫苗的群体”一直很有耐心，但这些未接种疫苗“少数族群”将会造成巨大的伤害，而且他们正在“造成很大的伤害”。**
+纵观现有资讯，最普遍常见的疫苗风险就是心肌炎。其实，心肌炎是一种严重的心脏疾病，急性心肌炎与致命性心律失常相关，而即使慢性心肌炎，都因为肌细胞的不可替代性，被公认是导致心力衰竭和相关死亡的主因。
 
-拜登总统发言重点在于，未接种疫苗在美国社会是少数，未接种疫苗者可能承受多数暴力（疫苗歧视）。且拜登总统在毫**无科学数据**的前提下，称“未接种疫苗者，正在造成巨大的伤害”，但事实上接种疫苗的人正充斥着医院。
+最重要的是，Covid-19 疫苗所引起的心肌炎由于致病因的特殊性，不属于前两者，因此该种心肌炎的预后目前尚不明朗。然而，**就目前文献数据来看，罹患心肌炎一年后的总死亡率为 20%，五年后为 44% 至 56%**。
 
-- 相关：[COVID-19最新情报｜美前国务卿接种疫苗后染疫身亡 疫苗防重症破功？死于疫苗？](https://gnews.org/zh-hant/1603625/)
-- 相关：[针下亡魂｜美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hant/1607432/)
-- 相关：[COVID-19最新情报｜政府不愿让人民知道的是 医院正充斥着新冠疫苗接种者](https://gnews.org/zh-hant/1607201/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10-2.jpg)
 
-
-[*Brighteon.TV*](https://brighteon.tv/)主持人 Bryan Ardis指出，指责未接种疫苗的人正在成为歧视的另一种方式。“政府想让家人与家人对立，这就是他们正在做的事情。未接种疫苗的人将受到不平等对待、羞辱、歧视。”
-
-現在[已经有许多公司行号宣布将遵循拜登总统的强制接种命令](https://qz.com/2042743/do-mandatory-vaccines-violate-human-rights/)，要求员工强制接种疫苗才能继续工作。但拜登总统的强制疫苗命令，也引起巨大的法律争议。
-
-拒绝接种疫苗的自由可能是出于个人、意识形态或宗教原因，而那些担心疫苗安全的人可能会担心自己免受伤害的权利。
-
-- 相关：[COVID-19最新情报｜拜登授权雇主强制员工接种的命令，违宪！](https://gnews.org/zh-hant/1603790/)
-- 相关：[COVID-19最新情报｜美参议员Ted Cruz：拜登授权强制接种疫苗 侵害人权](https://gnews.org/zh-hant/1603791/)
-
-
-在具有便宜、有效、安全的药物预防、治疗方案的情形下，新冠疫苗者已经被多个科研机构、政府单位确定不具有“预防效力”仅具有“防止重症”效果的前提下，许多“完全接种者”发生“突破性感染”，完全接种者发生许多健康问题并充斥着美国医疗机构。
-
-这样的情形下，政府将病毒扩散的责任，归咎到“未接种疫苗群体”是何等荒谬。
-
-- 相关：[瑞典研究显示完全接种疫苗后，抗体将在三个月后急剧下降](https://gnews.org/zh-hant/1576453/)
-- 相关：[疫苗与ADE效应](https://www.chop.edu/centers-programs/vaccine-education-center/vaccine-safety/antibody-dependent-enhancement-and-vaccines)
-- 相关：2021/02/24，便有[研究指出SARS-CoV-2 抗体具有ADE风险](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7943455/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/9-1.jpg)
 * * *
 
-新闻来源｜[Natural News](https://pandemic.news/2021-10-20-biden-blames-unvaccinated-americans-for-covid-spread.html#https://pandemic.news/2021-10-20-biden-blames-unvaccinated-americans-for-covid-spread.html#)
-声明｜转译仅供参考，一切以原文为主
+新闻来源｜[伦敦时报](https://www.londontimes.live/health/recent-deaths-in-young-people-in-england-and-wales/)
+声明｜ 以上观点仅代表作者

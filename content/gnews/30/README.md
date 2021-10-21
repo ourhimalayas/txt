@@ -2,43 +2,55 @@
 ---
 
 
-## 新疆人权犯罪主犯王君正升任西藏一把手
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1607304/)
+## 医生指出“抖音”可能是导致少女抽搐的原因
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1607350/)
 
-作者：澳喜农场 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-399.png)
+自从冠状病毒大流行开始以来，世界各地的少女纷纷出现在医生办公室，她们出现了新的抽搐症（身体抽搐和秽语），医生们认为，这可能是由中共国开发的社交媒体应用程序“抖音”引起的。
+
+经过几个月对患者的研究和相互咨询，美国、加拿大、澳大利亚和英国顶级儿科医院的专家们怀疑，这些女孩一直在社交媒体平台“抖音”上观看视频。
+
+报告补充说，最近的医学期刊文章还说，医生认为，这些女孩一直在观看自称患有图雷特综合症的抖音网红的视频。
+
+虽然这些病例尚未在全国范围内进行追踪，但全国各地的儿童运动障碍中心都报告称，有患有类似抽搐的少女大量出现。
+
+例如，在辛辛那提儿童医院医疗中心，专门研究小儿运动障碍和图雷特综合征的神经学家唐纳德·吉尔伯特说，自2020年3月以来，他每个月都会看到大约十名新的患有抽动症的青少年。吉尔伯特指出，在此之前，他的诊所最多每个月只能看到一个患者。
+
+德克萨斯儿童医院报告称，自2020年3月以来，约有60名青少年患有这样的抽搐症，并补充说医生过去每年会看到一两个病例。
+
+芝加哥拉什大学医学中心表示，仅在今年3月至6月之间，它就已经看到20名患有这种抽动症的患者。去年，医疗中心全年只接待了10个。
+
+医生们还指出，大多数经历这种抽搐发作的青少年，之前都被诊断为焦虑或抑郁。而这种焦虑或抑郁很可能由冠状病毒大流行带来的或恶化的。吉尔伯特补充说，心理压力的身体症状，可以而且确实以患者在其他人身上看到的方式表现出来。
+
+根据美国国家神经疾病和中风研究所的数据，功能性神经系统障碍 (FND) ，是指一组由大脑功能异常引起的常见神经运动障碍，这些障碍与潜在疾病无关。
+
+医生说这种抽搐可以解除，并建议进行认知行为疗法，以及几周内不要使用抖音。
+
+科普知识：什么是图雷特综合征？
+
+图雷特综合征是一种神经系统疾病，定义为重复的、不自主的运动和发声，称为抽动。该病症以Georges Gilles de la Tourette 博士的名字命名。
+
+抽动秽语综合征的症状会对一个人生活的所有方面产生负面影响。抽动秽语综合征通常在儿童时期被诊断出，但也可能在晚年开始。
+
+儿童抽动症通常在青春期或成年早期后减少，而较小比例的人必须在成年期和整个成年期处理这种疾病。
+
+学龄前儿童可能会出现图雷特综合症，老年人也会如此。男性接受诊断的可能性是女性的三到四倍，所有种族都可能受影响。
+
+原文链接：[https://www.breitbart.com/tech/2021/10/19/doctors-point-to-tiktok-as-possible-cause-of-tic-development-in-teen-girls/](https://www.breitbart.com/tech/2021/10/19/doctors-point-to-tiktok-as-possible-cause-of-tic-development-in-teen-girls/)
+
+翻译：希望
+
+PR：Julia Win
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
-
-中共前新疆政法委书记、自治区党委副书记王君正，10月19日被宣布升任西藏党委书记。王君正由于直接参与了新疆近年来严重迫害人权的行动，是受到西方制裁最多的中共官员。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-19.jpg)
-联合国专家及一些独立学者提供的大量证据显示，中共自2016年起，关押了至少100万维吾尔族和其他少数民族穆斯林，对他们进行洗脑和强迫劳动，并禁止他们从事宗教活动。
-
-2021年3月22日，美国财政部根据全球马格尼茨基人权问责法，对新疆自治区副书记兼新疆生产建设兵团党委书记王君正，和新疆公安厅厅长陈明国进行制裁，指控他们是严重践踏人权和从事腐败的涉案人员。2021年3月，欧盟、英国和加拿大也宣布制裁新疆党委副书记王君正等4人和一家实体。
-
-参考链接：[新疆人权犯罪主犯王君正升任西藏一把手](https://www.voachinese.com/a/China-promotes-most-sanctioned-official-to-Tibetan-party-chief-20211019/6277106.html)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：木白
-编辑：飞虹
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

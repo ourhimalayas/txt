@@ -2,23 +2,46 @@
 ---
 
 
-## 拜登表达对中共高超音速导弹的担忧
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1607189/)
+## “真”“善”“狠”，新中国联邦核心理念
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1607252/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+作者：香草山农场 – 恩永存
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/B-5.jpg)anews.com.tr
-日本共同社报道，美国总统拜登10月20日表达了对中共高超音速武器的担忧。
 
-英国《金融时报》16日报道说，北京今年8月测试了一枚可携带核弹头的高超音速导弹。报道指出，中共军方发射了绕地球飞行的导弹，并向目标快速飞去。中共否认了这一报道，称这是一次常规测试，目的是验证重复利用航天器的技术。
 
-白宫新闻秘书珍·普萨基（Jen Psaki）告诉记者，她不会对具体报道发表评论，但“总的来说，我们已经明确表达了我们的担忧。”她补充说，对中共继续追求的军事能力的担忧是通过“外交渠道”提出的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-美国国防高级研究计划局(U.S. Defense Advanced Research Projects Agency)今年9月表示，他们已经测试了一种高超音速武器，速度超过音速的5倍。援引自路透社报道，这是美国自2013年以来首次成功测试这种类型的武器。
 
-爆料革命和新中国联邦创始人郭文贵先生曾透露美国军方情报，在不启用核武器的情况下，美国军方认为全面定点摧毁中共国所有军事设施的预估时间为3分钟。如此来推测，拜登的担忧仅是官方的外交表达。
 
+郭文贵先生10月19日再次申明，新中国联邦的核心理念是“真”“善”“狠”。
+
+19日上午，GTV与盖特做同步测试。其间，一名伪类在盖特留言中，故意为难主持人。郭先生立即要求维护人员删除留言，并屏蔽此用户。郭先生还说：伪类账号一定要全部删除，一个也不留。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-6.jpg)
+郭先生表示，他最先提出“真善狠”三个字。新中国联邦的正道主义就是唯真不破，法律根据就是真理，所以是“真”；新中国联邦人以博爱善待他人，做个善良的人，因此有“善”；新中国联邦人喜爱公义，就必须恨恶罪恶，依法惩冶恶人，当然就得“狠”。“真”是理论原则，“善”是做人原则，“狠”是做事原则。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-100.jpg)
 参考链接：
+[郭先生2021年10月18日盖特直播测试](https://gettr.com/streaming/pejgy3dc01)
 
-[https://english.kyodonews.net/news/2021/10/0a9364b09756-biden-expresses-concerns-over-chinas-hypersonic-missiles.html](https://english.kyodonews.net/news/2021/10/0a9364b09756-biden-expresses-concerns-over-chinas-hypersonic-missiles.html)
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：木白
+编辑：山本不惑
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

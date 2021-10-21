@@ -2,44 +2,31 @@
 ---
 
 
-## 有声| 宁失一眼，不失全身
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1607360/)
+## 2021/10/20 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1607471/)
 
-配音：香草山香港部-文凯琳
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-
-
-
-
-文贵先生最近两天直播说到许多，如马云之流的中国“企业家”被中共绑架着到海外，为中共拿回他们帮中共代持的隐藏在海外的，从中国人民那里抢劫而来的财富。许多“企业家”竟然相信中共的承诺:只要为中共拿回这些钱，中共就给他们和他们的家人一条生路，不灭口他们。
-
-可是，中共的话能信吗？人怎能去相信一个公然鼓吹无神论的杀人组织的承诺？如果历史让我们学到了任何东西，那就是:中共从来不信守它的任何承诺。对中共效忠的问题的关键在于:你效忠的对象随时准备背叛你，甚至杀了你。
+1. 10月11日，安徽合肥一商户称，商铺被商场强拆，千万珠宝不知去向。
+2. 10月17日四川成都，女子网购银酒杯，收货时被宝宝意外摔碎，居然是瓷的，还配着国检证书。
+3. 10月18日，传湖北麻城一石材厂老板扣工人一千块钱工资，工人一怒之下开装载机”捣毁”了整个工厂！
+4. 湖北 武汉，被圈养的业主？业主集体拒交物业费，被物业强制换电表，限缴电费！一次只能充10元电费。
+5. 某毛肚加工厂清洗一幕！食品安全问题严重,脏乱差。
+6. 近日，网友拍摄上海复旦大学附属肿瘤医院人人满为患。拍摄者质疑为什么那么多人患癌。
+7. 中共房地产的质量普遍堪忧，中共房地产骗局下的劣质房产。
+8. 10月18日，合肥父子满身灰尘奔赴机场，知情人：他大儿子在工厂里死了。
+9. 10月16日 海南三亚， 一辆轿车飞速冲入海中！车尾有撞击痕迹，车内男子被救后口吐大量白沫。
+10. 10月16日 吉林舒兰，冒雪在农田劳作的农民。
+11. 某大学院长吐槽“让农民（工）返乡创业”政策：“农业已是负收益，你有病还是他有病？怎么不让你爹去？”中共国政策：故意用身份标签限制百姓。
 
 
+* * *
 
-原文 链接：[【信仰之声】宁失一眼，不失全身](https://gnews.org/zh-hans/1604848/)
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

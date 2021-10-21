@@ -2,27 +2,23 @@
 ---
 
 
-## 绿地控股负债累累，销售大跌，评级下调，陷入困境
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1607286/)
+## 疫苗灾情｜澳洲 30 岁夫妇接种疫苗后相继出现心脏疾病
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1607321/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Unknown-7.jpg) 绿地控股负债累累，销售大跌，评级下调，陷入困境 网络图片
-据大话房地产10月20日报道，随着广州恒大集团破产倒闭，另一家房地产巨头上海绿地控股集团截止到6月30日，账面负债1.23万亿，还有1557.58亿担保金，外加135.8亿商业承兑汇票。债务总额接近1.4万亿。
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 21/10/2021**
 
-上海绿地9月份的销售额215亿元，相比2020年同期，下降幅度达55.5%。相比1.23万亿的债务，销售房子无法回笼资金偿还。10月15日，国际著名信用评级机构标准普尔，将上海绿地控股集团的信用评级下调至“B+”，展望是“负面”。10月18日，另外一个国际评级机构—穆迪，也把上海绿地控股集团的企业家族评级，从Ba1下调到Ba2。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpg)
 
-上海绿地以“产业勾地”起家，投资建造了很多大城市的超高层地标建筑群，需要庞大的资金量。而在购买土地时，上海绿地能够接受较高的商住比例。因为商业项目多，回款速度慢，导致拖欠各种款项，被债权人告上法庭，被业主维权的的例子此起彼伏。
+【澳洲】一对 30 岁左右的夫妇在接种辉瑞 COVID-19 疫苗后不久，相继出现心脏问题。
 
-上海绿地控股集团风光不再，像广州恒大一样陷入困境。中共虚假的房地产市场进入多米诺骨牌的连锁期，依次倒塌，最后会把中共经济彻底拖垮，中共灭亡也进入倒计时。
+Daniel Shep 在接受完第一剂之后就出现胸口痛，而他的太太，则是 10 月 16 日打完第二针之后的第二日，出现严重胸痛，经医院诊断后，这对平时有良好运动习惯的年轻夫妇，丈夫 Daniel 患上心包炎，太太则患上心肌炎。
 
-新闻参考链接：[https://c.m.163.com/news/a/GMP0TRJQ0535KAWB.html?spss=newsapp](https://c.m.163.com/news/a/GMP0TRJQ0535KAWB.html?spss=newsapp)
+**Daniel 将自己的经历在社交媒体上分享出来，提醒其他人警惕新冠疫苗的风险。**
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/41-1.jpg)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+来源｜个案041
 
+* * *
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//｜//[美国 35 岁疫苗拥趸孕期接种后致新生儿夭折](https://gnews.org/zh-hans/1605744/)//
