@@ -2,27 +2,20 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月21日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1608694/)
+## 正道主义的喜马拉雅币将闪闪发光
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1608740/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
+采编撰稿：Spirit         校对编辑：硫酸羟氯喹64
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-21.png)
-文章仅代表作者本人观点，与Gnews无关
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a3.jpg)图片来源：GNEWS
 
-视频参看：2021.10.21早GTV新闻访谈
 
-[https://gtv.org/video/id=61715d3583e948708d055705](https://gtv.org/video/id=61715d3583e948708d055705)
+10月20日，郭文贵先生在当天的直播节目中阐释了法币和货币的区别，以及加密货币【喜马拉雅币】的巨大潜在价值和光明发展前景。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+文贵先生指出：全球法币就是各国政府强制发行，代表其社会生产力并限定在某个区域内使用的一种物质衡量价值券。它是强迫代表每个人的生产力和剩余价值及用来交换物资的币券。此外，由于政府发行的法币即不承诺兑换任何物质包括金银，也不代表衡量任何物资之价值，因此它没有任何信用。所以说，采用去中心化技术的法币，将让世界再次掉入现代化的金融陷阱。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+文贵先生进一步强调：喜币诞生的第一天就是有价值的货币。而且，全人类有史以来，只有喜联储能把人类的生产力在不受国家主权范围限制下，将喜币法定量化并使其成为与20%黄金挂钩的加密货币。同时，由于该币使用了去中心化的区块链技术而使得任何人都无法对其追踪、剥夺和窃取。再加上喜币与生俱来的法币和货币化属性，因此该币将成为今后世界上最牛最牛的力量。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（以上内容仅代表原视频信息和作者个人观点）
+
+[直播链接：](https://gtv.org/video/id=61700c08304e992109b806ee)

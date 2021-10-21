@@ -2,24 +2,31 @@
 ---
 
 
-## 有声|西南航空公司改变疫苗接种政策要求
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1608458/)
+## 比特币和勒索赎金双创新高
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1608512/)
 
-配音：香草山香港部-文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据消息称，美国西南航空公司作为联邦承包商，被要求于12月8日前为其雇员完成新冠疫苗的接种任务，在最后期限之前，但没有得到宗教或医疗豁免且未接种疫苗的雇员将开始休无薪假。
+作者：纽约香草山 – 文一
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据美国电视新闻网报道，首个与比特币相关的基金交易已于10月19日推出，为此，比特币在20日上午跃升至历史新高。
 
-对于这一疫苗强制执行政策，西南航空公司飞行员协会提出了法律诉讼，要求法院“暂时阻止该公司执行联邦规定的新冠病毒疫苗接种政策，直至关于涉嫌违反美国劳动法的诉讼得到解决”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-33.jpeg)
 
-10月15日，西南航空公司负责运营和接待的高级副总裁史蒂夫-戈德堡和副总裁兼首席人事官朱莉-韦伯写信给员工表示，即便员工的豁免请求在最后期限之前没有得到批准，他们仍然可以继续工作，但需要遵守带口罩和保存社交距离的准则，直到豁免请求得到审查。
+然而，美国财政部金融犯罪执法网络表示，以比特币为交易手段的勒索和其他犯罪案件屡见不鲜，相关案件勒索金额高达52亿美元，且此类案件在近十年间持续上升。
 
-为了在世界范围内停止COVID疫苗的接种，我们需要坚定信念、绝不放弃，继续传播疫苗真相，拒绝强制疫苗接种政策。
+对此，郭文贵先生在10月20日的大直播强调，比特币是一个犯罪、洗钱的工具，其只能在暗网中流通。因此，比特币是一种使用去中心化技术的中心化假币。与之相对的，即将上市的喜币有负责人及法人，与黄金锚定且与美元直接挂钩，其未来的价值以及在全球经济体系中起到的作用将不可估量。
 
-文字版原文：[西南航空公司改变疫苗接种政策要求](https://gnews.org/zh-hans/1605126/)
+(本文仅代表作者观点)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
+参考链接：[Bitcoin ransomware payments amount to a whopping $5.2B says the US Treasury Department](https://www.crypto-news-flash.com/bitcoin-ransomware-payments-amount-to-a-whopping-5-2b-says-the-us-treasury-department/)
+[Owner of nonprofit science lab for children admits running secret bitcoin money-laundering operation for drug dealers](https://www.msn.com/en-us/news/crime/owner-of-nonprofit-science-lab-for-children-admits-running-secret-bitcoin-money-laundering-operation-for-drug-dealers/ar-AAPJ8ua)
+[2021年10月20日郭先生直播速记](https://gnews.org/zh-hans/1606278/)
+
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Irene木木 
+编辑：Irene木木
+校正/发稿：谐趣园
+
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)

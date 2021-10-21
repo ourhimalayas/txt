@@ -2,36 +2,35 @@
 ---
 
 
-## 法国亿万富翁爆料全球影子政府（四）反恐军事干预成为利益输送的渠道
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1608406/)
+## In-N-Out汉堡被迫关闭旧金山一家顶级分店
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1608497/)
 
-翻译：Gradient
-视频/字幕：澳洲天好蓝
-[法国亿万富翁爆料全球影子政府（一）](https://gnews.org/zh-hans/1605605/)
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月19日，旧金山In-N-Out汉堡被迫关闭了一家顶级分店。旧金山卫生部门指，该餐厅的员工“未能阻止无疫苗证明的顾客进入店内”，因而下令关闭该餐厅。
 
-[法国亿万富翁爆料全球影子政府（二）](https://gnews.org/zh-hant/1607763/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-10.jpeg)
 
-[法国亿万富翁爆料全球影子政府（三）](https://gnews.org/zh-hans/1607905/)
+In-N-Out汉堡公司首席法律顾问温辛格随后发布声明称，当地监管部门“不但要求餐厅在显著位置张贴告示，让顾客提供新冠疫苗接种证明，而且要求餐厅员工负责检查每一位客人的接种证明，以及带有照片的身份证明文件。”温辛格表示，In-N-out汉堡拒绝“成为任何政府机构的疫苗警察，因为这是不合理的、肆意的、不安全的行为”。
 
-法国亿万富翁菲利普·阿吉利尔（Philippe Argillier），最近选择了自媒体主持人Stew Peters的节目向全世界爆料，世界上存在著一个与各国官方政府密切合作的影子政府。
+今年8月底以来，加州、纽约州陆续实施的疫苗证明，将已接种新冠疫苗的民众与未接种的进一步区隔开来。
 
-从2001年11月起，他前后购买了四个大型数据库，第一次购买是在9/11之后两个月。这些信息似乎是针对深层政府（Deep State）参与者或他所谓的影子政府（Shadow Government ) 或者平行政府（parallel government）的大量妥协信息，包括主要银行、公司和妥协的政府。
+据悉，为数不少的餐饮业备受影响，In-N-Out汉堡并非单独个案。
 
-当下这个影子政府的迫切目标是 “让世界回归人性”，实现政府的透明化。他希望传递给比尔·盖茨和巴菲特一个的信息，一个决绝的信号，比尔·盖茨和巴菲特只有两个选择：第一个选择：加入他的新主张“让世界回归以人为本”！第二个选择：走开，别挡道！没有第三个选择！
+(本文仅代表作者观点)
 
-同时，这段视频里菲利普·阿吉利尔揭秘了川普一系列停战协议触动了利益集团的奶酪，断了打着反恐战争名义赚大钱的财路。
+参考链接：[San Francisco Shuts Down In-N-Out Burger For Refusing To Be “Vaccination Police For Government”](https://www.zerohedge.com/political/san-francisco-shuts-down-n-out-burger-refusing-be-vaccination-police-government)
 
-在访谈中主持人提到，事实上总体而言，人们是反对那些鼓吹军事干预的好战精英分子的，例如乔治.W.布什，他就是通过战争行为向军火产业输送利益，同时也装满了自己及家人的钱包，同时也享受到了一些特别的好处。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-而现在，新的利益渠道必须被发掘，比尔盖茨现在有关CCP病毒的行动（疫苗）实际上就是备选方案之一。
+总编：Irene木木 
+编辑：山本不惑
+校正/发稿：谐趣园
 
-法国富豪坦白，以9.11事件为契机发动的伊拉克战争，其宣战理由——伊拉克拥有核武器——在开战后不久便被证明是不成立的。同时阿吉利尔认为，在以反恐名义开展某些军事行动前，双方并没有进行有效的谈判（因为发动战争的主要推手其实是利益，而不是真相），此后越发猖獗的恐怖主义行为就是在这样的压力下逐渐发展猖獗起来的。而最终受害的，其实还是各国的平民百姓。
-
-阿吉利尔补充说，他可以确认大部分打着反恐旗号的军事行动，其主要原因并非出于打击恐怖主义，而是基于经济原因。
-
-主持人认为，这样的所谓影子政府或平行政府，就是由一批为自己利益服务的人所管理的。在他们眼中只有两个阶级：精英通知者以及从属阶级——后者只有两种选择：要么听话，要么消失。
-
-（本文纯属个人观点，与Gnews无关）
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
