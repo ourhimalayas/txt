@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/21/2021 4:21 PM (UTC)`
+
+10月21号：尊敬的战友们好……虚拟货币时代的到来……和世界经济的危机……将诞生新的金融体系和金融帝国。共产党的内部的斗争腥风血雨，随时出大事儿。
+![img](https://media.gettr.com/group19/getter/2021/10/21/16/a4944e4e-fc4c-3149-f7c5-3108dfba301a/out.jpg)
+
+---
+
 `@miles 10/21/2021 7:04 AM (UTC)`
 
 10/20/2021 Miles Guo: My message to the Chinese entrepreneurs - In the face of the CCP’s political repression and so-called economic crime investigations, your only choice is to fight against the CCP to the end!<br/><br/><br/>10/20/2021 文贵直播：文贵向国内企业家喊话：面对共产党的政治打压和所谓的经济犯罪调查的时候，你们唯一的选择就是和中共对抗<br/>
@@ -289,13 +296,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 疫苗青蒿素轰动全球；金融大危机促生变革
 ![img](https://media.gettr.com/group49/origin/2021/10/17/12/3a157294-9363-5719-d4ee-a9afb97d8bbb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 10/17/2021 3:14 AM (UTC)`
-
-10/16/2021 Miles Guo’s GETTR: Jiang Zemin, Zeng Qinghong, Meng Jianzhu, Han Zheng, and Wang Qishan have no no choice but to fight against Xi Jinping! Only the US and Japan can grant safety to those who got out of the CCP’s system. Tomorrow I will drop a bombshell on the CCP’s military that will freak the CCP’s officers out. Even the CCP’s National Security Commission, which is equivalent to the KGB, has said that what I talked about has now proved to be true.<br/><br/>10/16/2021 文贵盖特：江、曾、孟、韩、王现已无路可走，将对习反戈一击！只有美、日能让中共体制内逃出来的人有安全；明天将爆会让中共军官们吓尿裤子的军事大料；中共版克格勃 - 国安委称，文贵说的话现在都被证明是真的！<br/>
-![img](https://media.gettr.com/group41/getter/2021/10/17/03/14/8c08e9d0-dd4c-5cfc-706e-861ff4fac885/out.jpg)
 
 ---
 
