@@ -2,93 +2,44 @@
 ---
 
 
-## 房地产倒塌中共会更加猛烈地打台湾
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1606937/)
+## 大直播7·24——宋平对习近平面授机宜
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1606982/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/12-a71ie-wzywl.jpg)
-[https://gtv.org/video/id=616fb15dd2e2b8174877521b](https://gtv.org/video/id=616fb15dd2e2b8174877521b)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/24_7_templete.png)
+**整理：**BENJ1、翼族
+**编辑：**翼族
 
-**郭文贵**
-**Miles Guo**
+【**编者按：**《7·24专题系列》是配合郭文贵先生每期大直播的内容，以最快的速度将郭文贵先生直播中提到的人与事进行一定深度的挖掘，在24小时内发布相关主题的文章，方便观众和读者进一步了解其中相关的内容。】
 
-那么另外一个兄弟姐妹们要看到房地产，为啥我们要再谈房地产
-Then the another one, brothers and sisters, you need to look at the real estate, so why do we have to talk about real estate again?
+2021年10月20日大直播，郭文贵先生提到中共元老宋平对习近平面授机宜，简要内容如下（感谢小飞象的速记）：
 
-房地产等倒塌一定会导致共产党，更加猛烈地打台湾
-The collapse of real estate and others will definitely cause the Communist Party to attack Taiwan more violently
+“都想当曾国藩，马云、马明哲、马化腾都想当曾国藩，导致习近平去找宋平，这事怎么能发生呢？马云竟然想推翻体制，王力科想杀我，孟建柱、孙力军居然策反一局……宋平跟他说，三马乱华不是今天，只要马明哲、马化腾、马云出现的地方就是所有中国人跟随的地方，代表了经济力量、国际化、现在、未来、互联网。宋平给习上了课，宋平跟他说，所有的企业界、上海的经济家、还有知识界、法律界都盼着你出事。大家听懂这个话，宋平老人家，佩服，政治智慧非同一般，他经常去盘古聊天，也帮过我忙。老人家到现在还说，不管你们怎么说，郭文贵不是一般人，想想他的过去，再说他的未来。我们俩是对立的，他是共产党，我是新中国联邦，但是老头智慧不一般。文化、知识、法律界都等着习出事。习说，你真的这么觉得吗，我觉得全国人民对我怎么样，很天真。宋平家里，跟着宋平很多年的（人）跟我是老乡，一生未婚照顾老人家。宋平说，没错，穷人都希望你在，还给你立雕像，你是穷人的代表，但除了穷人之外都希望你出事。**（宋平）这话，今天这个爆料是最核心的！**中国完全阶级化了，穷人都想习好，中国所有有产的阶级、文化界、法律界、房地产都想习嘎嘣了，这个事多大！所有经济不健康核心的问题，假、骗、偷，就是中国出现明显阶级化。”
 
-为什么这么说，知道吗？因为房地产的倒塌，
-You know why I talk about this way? Because of the collapse of real estate
+据[维基百科](https://zh.wikipedia.org/wiki/%E5%AE%8B%E5%B9%B3)，宋平（1917年4月30日－），原名宋延平，男，汉族，山东省莒县人，清华大学化学系毕业，大学学历，中华人民共和国政治家。1936年春参加革命工作，1937年12月加入中国共产党，1938年至1947年第二次国共合作期间，担任五大书记之一周恩来的政治秘书。1977年至1981年在任中共甘肃省委书记期间，大力提拔、举荐时任甘肃省建委副主任的胡锦涛，为其日后出任中共中央总书记成为中共第四代领导人打下了基础，因此，被媒体称为“中国政坛最大伯乐”。改革开放后历任国家计划委员会主任、国务委员和中共中央组织部部长等职。六四事件发生后，1989年6月24日被增选为中共中央政治局常委，一举成为正国级党和国家领导人。1992年10月19日退休。他是目前在世前党和国家领导人中最年长的。
 
-最大的受害者就是江家、曾家、朱家、王岐山家
-the biggest victims of real estate are Jiang family, Zeng family, Zhu family, and Wang Qishan family
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/SP1.jpg)图片来源：SecretChina
 
-所有的倒塌的问题（是）这钱去哪了？现在习也蒙了
-All the questions about the collapse is where the money go? Now even Xi is stunned too
 
-老看我们直播报告，到底咱这些钱去哪了
-He read our live broadcast report all the time, and in the end where our money went?
+作为“中共八老”之一，宋平对中共邓小平时代后政局的影响深远。陆媒曾称，宋平在任甘肃省委书记期间，大力提拔、举荐胡锦涛，为胡成为中共总书记打下了基础。港媒则称，宋平是胡的“恩师”。
 
-65万亿的房地产，十几万亿所谓的互联网产业，将近100万亿的金融产业
-65 trillion dollars real estate, more than a trillion dollars so-called Internet in-dustry, nearly 100 trillion dollars financial industry
+在任中共甘肃省委书记期间，宋平曾提拔时任甘肃省建委副主任的胡锦涛。胡于1974年调任甘肃省建委秘书，随后升任甘肃省建委副主任，共青团甘肃省委书记。宋平卸任政治局常委前，还曾以中共十四大人事安排小组的名义，向邓小平提议提拔胡锦涛为新一届政治局常委。
 
-中国共产党咱们给它算算账，20年前加入WTO
-Let’s calculate it for the CCP when they joined the WTO 20 years ago
+同时宋平也是习近平的“造王者”和“恩师”。宋平与习近平渊源颇深，宋平和习近平的父亲习仲勋曾共事过。在习仲勋担任国务院副总理兼秘书长时，宋平是中共国家计委副主任，工作上联系密切。
 
-一共150万亿美元也好，100万亿美元也好，所有扩张出来的财富都去哪了
-Whether it’s a total of 150 trillion US dollars or 100 trillion US dollars, where did all the expanded wealth go?
+同时宋平也是早年提拔温家宝的人。当时温家宝与胡锦涛几乎同时期在甘肃工作。温家宝1979年9月出任甘肃省地质局担任地矿处副处长。1980年温家宝升任甘肃省地质局副局长。后来得到时任甘肃省省委书记宋平的推荐，1980年下半年温家宝被推荐到地矿部政策研究室，1983年10月升任副部长，1985年被任命为中共中央办公厅第一副主任。
 
-习也懵叉了，这时候我告诉你，
-Xi is also stunned, this time I will tell you,
+郭文贵先生在近期一次直播中谈到2022年冬奥会时也曾提到宋平，内容如下：“但是有很多党内的人，像江、曾，像张德江、李长春、宋平，听说若干人包括姜海洋，都给习写信，说建议中共中央由于2022年冬奥会还要想办法举办成功，这是解决世界国际形势对我们不利的环境，要争取成功召开2022年冬季奥运会。这个冬奥会很重要，在这之前不要对台湾有动作，建议还是给台湾施压，让台湾内部乱，把它经济上、民生上、社会状态上弄乱。这一说，习还是挺听的，就是冬季奥运会还是要搞……”
 
-老百姓的房产倒塌导致的房产倒，保险必然倒，保险倒，银行一定倒
-the collapse of Laobaixing’s property will lead to the collapse of the real estate industry, insurance has to collapse, insurance collapses, banks must also follow the fall
+另外，郭文贵先生在2019年10月1日直播中说：“天安门上所有人要求是必须到场的，中央通知是必须到场。胆敢不到场的就两种原因，一个是实在是病了到不了场，一个是被抓了想来来不了。未来你会看到很多政治端倪。另外一个我听说，宋平本来是不来的，最后也来了。**宋平不来，我这个习家军的法制性不够。**这个宋平是最老的，在里边是最老一代了，那不行。军队里边的几个老同志几乎都没来，除了抓的抓死的死，活着的几个核心人物都没来。”
 
-银行倒，信托也得倒，那么就是粮食供应链一定倒，
-bank collapses, the trust also has to collapse, then the food supply chain must collapse
+中共政治既是黑帮政治，也是老人政治。毫无疑问，中共现存最元老的人物就是宋平，他在中共政坛依然有着不可替代的影响力。
 
-这个时候全世界（都在）问，钱去哪了？全中国人
-At this time, the whole world all asked where did all the Chinese people’s mon-ey go?
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-这时候你去想想，最想转移目标的人是谁呀
-At this time, think about who is the person wants to shift the target most?
+*发布：翼族*
 
-是王岐山、江志成、曾庆红、朱镕基，这些最有钱的家族
-It’s Wang Qishan, Jiang Zhicheng, Zeng Qinghong, Zhu Rongji, these the richest families
-
-打台湾，大家都变成了全部小粉红
-Attack Taiwan, everyone becomes “Patriotic Little Pink”
-
-你们没有意识到这个事对台湾多危险，一打台湾，一了结了
-You didn’t realize that this thing is so dangerous for Taiwan, once there is war against Taiwan, it’s all over
-
-甚至马上换新版人民币，不叫人民币了，叫什么币都有可能
-Even change to new version of RMB right away, may not call RMB, what it may call?
-
-也可能跟九指妖叫撒币，也可能叫路大脑币，是吧
-It may also be called Sa coin with the nine-finger witch, or it may be called LuDe coin, right?
-
-也可能叫蛇妖币都有可能
-It may also be called Snake Witch Coin
-
-———————————————————
-
-**原视频接:**[https://twitter.com/se1y7cblljselva/status/1449361751544254466?s=24](https://twitter.com/se1y7cblljselva/status/1449361751544254466?s=24)
-
-Date:10/17/2021
-原视频标题:
-The CCP will attack Taiwan even more violently when their real estate market collapses
-原视频日期：2021/10/13
-任务编号：KC179（2570）
-视频时间段 : 0:00-2:04
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

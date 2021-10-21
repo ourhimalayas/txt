@@ -2,41 +2,39 @@
 ---
 
 
-## 前CDC主任揭完全接种疫苗者死亡的惊人数据
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1606691/)
+## 中共病毒溯源：承认自然起源可获百万美元
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1606789/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+编译：西班牙喜悦农场–wenwu
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/C-6.jpg)newsoftheday.net
-爆料革命战友不会忘记，当阴谋集团打压中共病毒溯源的关键时刻，川普总统的美国疾病控制和预防中心（CDC）主任罗伯特·雷德菲尔德（Robert Redfield）勇敢地站出来，直指中共病毒来自武汉实验室，随后才有《华尔街日报》曝出武汉病毒研究所有早期患病的研究人员，掀起了追责中共的新一轮浪潮，重压之下的拜登装模作样地演出下令90天出报告的丑剧。之后，文贵先生引领的爆料革命向纵深发展，指出中共病毒、疫苗是阴谋集团攻击世界、控制世界的连环手段，正在世界觉醒之际，罗伯特·雷德菲尔德主任又有新的举动。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-2-12.jpg)图片来源：thenationalpulse.com
 
-《塔克·卡尔森团队》（Team Tucker Carlson）10月20日发表文章，题目“前疾病预防控制中心主任提供了关于完全接种中共病毒疫苗者死亡的惊人统计数据”。
+Malik Peiris 博士曾在《柳叶刀》医学杂志的 COVID-19 起源调查委员会任职，他的研究在于帮助中共关于中共病毒（COVID-19）自然起源的错误说法，并因此获得了中共国的”诺贝尔奖”。
 
-全文如下：
+Peiris 是[一名](https://thenationalpulse.com/news/lancet-scrubs-entire-covid-origins-team/)在香港工作的斯里兰卡病毒学家，他是领导[现已解散的](https://www.wsj.com/articles/covid-19-panel-of-scientists-investigating-origins-of-virus-is-disbanded-11632571202)《柳叶刀》调查 COVID-19 起源的12 位科学家之一。虽然该工作组已不再列在该医学期刊的网站上，因为它因与武汉病毒研究所的广泛[利益冲突](https://thenationalpulse.com/exclusive/lancets-jeffrey-sachs-covid-commission-chair-ccp-ties/)而被迫解散，但[存档](https://web.archive.org/web/20210126092406/https:/covid19commission.org/origins-of-the-pandemic)网页显示 Peiris [参与](https://web.archive.org/web/20210623213920/https:/covid19commission.org/malik-peiris)了这项工作。
 
-前疾病控制和预防中心主任罗伯特·雷德菲尔德星期一（10月18日）下午在接受《福克斯新闻》采访时说，最近在马里兰州死于中共病毒的人中，40%以上已经接种了疫苗。
+在 Peiris 在工作组任职之后，中国共产党将 2021 年未来科学奖中的生命科学奖（称为中共国的“诺贝尔奖”）[授予](http://www.futureprize.org/en/laureates/detail/54.html)了他。这是中共国的最高科学荣誉，还[伴随着](https://www.thestandard.com.hk/section-news/section/4/234120/HKU-medicine-profs-win-'China's-Nobel-Prize') 100 万美元的奖金，最终由[百度](https://qz.com/1708662/chinese-tech-giants-tools-of-the-communist-party-us-official/)、[高瓴](https://thenationalpulse.com/politics/tiktok-ccp-investor/)资本（Hillhouse Capital）和[红杉](https://thenationalpulse.com/news/revealed-lincoln-project-donors-include-romneys-bain-capital-ccp-linked-secquioa/)资本(Sequoia Capital China）等多家与中共有关的公司[资助](http://www.futureprize.org/en/nomination.html)（支付）。
 
-罗伯特主任在回应前国务卿科林·鲍威尔（Colin Powell）的死因时说：“很多时候，人们可能会觉得完全接种疫苗人的死亡是一件罕见的事情，我碰巧是马里兰州州长霍根（Hogan）的高级顾问，在过去6-8周里，马里兰州死亡的人中有40%以上都接种了疫苗。”
+国营[媒体](https://www.globaltimes.cn/page/202109/1234039.shtml)《环球时报》声称，该奖项是为了表彰他“发现 SARS-CoV-1 是 2003 年全球 SARS 爆发的病原体，对防治 COVID-19 和新兴的传染病具有重要影响。” Peiris 与合著者袁国勇（Kwok-Yung Yuen）等4人分享了该奖项（如下图）。
 
-在鲍威尔死于病毒并发症时，他还在与一种降低了免疫力的血癌作斗争，根据马里兰州卫生部的统计，该州65.7%的成年人已经接种了疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-3-9.png)图片来源：thenationalpulse.com
 
-摘自《华尔街日报》：
+在接受中国共产党管理的媒体机构的独家采访时，袁[断言](https://island.lk/lankas-malik-peiris-shares-chinas-nobel-prize-of-usd-1-mn-with-yuen/)：“这不仅是在中共国最重要的奖项之一，也是国际上最重要的奖项之一。”
 
-知情人士说，美国食品和药物管理局（FDA）正在采取行动，很快将允许人们接受不同于第一次接种中共病毒疫苗剂量的强化注射。
+Peiris 的研究受到奖项评审员的称赞，称其在追踪 COVID-19 起源方面发挥了不可或缺的作用，评审员王晓东指出，“由于他们的贡献，中共国科学家能够快速确定中共病毒（COVID-19）大流行的原因。” 很显然，港大的这项研究支持了中国共产党的[虚假](https://thenationalpulse.com/exclusive/wuhan-lab-erases-nih-ties-gof-research/)叙述，即 COVID-19 是自然形成的，而不是从实验室逃逸出来的。
 
-一位知情人士说，FDA不会推荐任何加强剂，但会允许人们接种不同于他们第一次施打的疫苗加强剂。
+正如《环球时报》所解释的那样，Peiris 的研究有助于“支持 SARS-CoV-2 的蝙蝠起源”：
 
-知情人士说，美国食品和药物管理局（FDA）正在尽快地寻求混合施打授权，以及相应的匹配方式，据知情人士透露，FDA预计本周还将批准莫德纳和强生公司的疫苗加强剂。
+当被问及他们的发现如何影响人们对 COVID-19 病因的理解时，袁解释说，由于他和他的团队在 2005 年发现马蹄蝠是 SARS-CoV-1 的天然动物宿主（祖先），他们认为 SARS- CoV-2 “在跳入人类之前，也从蝙蝠传播到了另一种哺乳动物。”
 
-雷德菲尔德在唐纳德·川普任总统期间当任CDC主任，目前担任马里兰州共和党州长拉里·霍根的顾问。他发表上述言论之际，拜登政府正在继续推动加强剂疫苗的施打，而食品和药物管理局正在批准不同公司的混合疫苗加强剂。
+此外，SARS-CoV-2 在蝙蝠和人类肠道器官中复制得很好，这进一步支持了 SARS-CoV-2 的蝙蝠起源，他说。
 
-（全文完）
+（文章仅代表作者观点与GNEWS无关）
 
-黑暗时刻还是有良知官员的，罗伯特·雷德菲尔德便是其中一个，正是这样人的存在，美国才有希望。正义力量必将阴谋集团彻底消灭！
+**新闻来源：**[thenationalpulse][Lancet COVID Origins Investigator Wins $1 Million Chinese Prize For Claiming Virus Developed Naturally.](https://thenationalpulse.com/exclusive/lancet-covid-investigator-wins-china-nobel-prize/) | 作者：Natalie Winters｜发布时间：2021年10月20日
 
-（文章仅代表作者个人观点）
+* * *
 
-原文链接：
+*发稿：信心的选择*
 
-[https://teamtuckercarlson.com/news/former-cdc-director-gives-alarming-statistic-on-fully-vaccinated-covid-deaths/](https://teamtuckercarlson.com/news/former-cdc-director-gives-alarming-statistic-on-fully-vaccinated-covid-deaths/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)

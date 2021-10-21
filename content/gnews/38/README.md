@@ -2,17 +2,17 @@
 ---
 
 
-## 俄罗斯创纪录的死亡人数
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1606750/)
+## 郭文贵：企业大股东马云等人被抓，没有发公告！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1606802/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10202-1.png)图片来自网路
-在最近几周由于冠状(中共)病毒造成的感染和死亡人数创纪录性的增加之后，俄罗斯普京总统已批准了一项迷你封锁的提议，规定从 10 月 30 日至 11 月 7 日停工一周，以试图阻止冠状(中共)病毒感染的传播。
+#### 撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-39.jpg)（图片源自GTV）
+10月20日郭文贵先生在大直播中说：马云等多个中共国上市公司大股东，被按照刑事犯罪抓捕。按照规定，上市公司大股东刑事犯罪，需要公告。可是，相关公司均未予以公告，因此，其股票拥有者，可以向企业提出赔偿。
 
-普京在电视讲话中敦促人们接种疫苗，根据莫斯科政府任命的监测该国大流行进展的工作组发布的数据，在过去的 24 小时内，已有 1,028死亡。
+（信息源自GTV）
 
-免责申明：本文只代表译者观点，与Gnews无关
+(文章仅代表作者本人观点，与GNEWS无关)
 
-原文链接：[https://www.today.it/mondo/russia-mini-lockdown.html](https://www.today.it/mondo/russia-mini-lockdown.html)
-
-责任编辑/发布：意大利达芬奇农场   萧亦
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

@@ -2,45 +2,93 @@
 ---
 
 
-## 马云很可能在西班牙会追随王健而去
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1606898/)
+## 房地产倒塌中共会更加猛烈地打台湾
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1606937/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/马1-e1634770233745.png)图片来源：美国新闻网
+![](https://assets.gnews.org/wp-content/uploads/2021/10/12-a71ie-wzywl.jpg)
+[https://gtv.org/video/id=616fb15dd2e2b8174877521b](https://gtv.org/video/id=616fb15dd2e2b8174877521b)
 
+**郭文贵**
+**Miles Guo**
 
-**作者：**顺其自然
-**编辑：**Candy
+那么另外一个兄弟姐妹们要看到房地产，为啥我们要再谈房地产
+Then the another one, brothers and sisters, you need to look at the real estate, so why do we have to talk about real estate again?
 
-10月19日早报.com报道：深陷监管风暴的阿里巴巴创办人马云行踪备受关注。本月12日有报道指出：他在香港会友后，港媒最新消息称，马云上周六已飞往西班牙，目前正身处在他自己的超级游艇上，跟一班富豪朋友度假。
+房地产等倒塌一定会导致共产党，更加猛烈地打台湾
+The collapse of real estate and others will definitely cause the Communist Party to attack Taiwan more violently
 
-据《东周刊》报道，马云是在上周六凌晨在香港乘夜机出发飞往西班牙，同行还有多名富豪好友及科技界大亨，分乘两部私人飞机，一前一后前往。
+为什么这么说，知道吗？因为房地产的倒塌，
+You know why I talk about this way? Because of the collapse of real estate
 
-报道还说：马云日前现身西班牙，又旋即登上一艘超级游艇，与同行好友出海度假。据悉，他们是从西班牙东部的伊维萨岛启航。据了解，马云短暂留港期间，行程排得密密麻麻。知情人士透露：他曾经与友人去粉岭高球会打球，亦先后与多名香港富豪及商业伙伴密会。“他们有没有洽谈生意大计不得而知，但马云在港期间，饭局几乎一个接一个，更不时与出席的朋友打扑克和唱K。”据悉其中一个饭局，是在皇朝会私人会所设宴。
+最大的受害者就是江家、曾家、朱家、王岐山家
+the biggest victims of real estate are Jiang family, Zeng family, Zhu family, and Wang Qishan family
 
+所有的倒塌的问题（是）这钱去哪了？现在习也蒙了
+All the questions about the collapse is where the money go? Now even Xi is stunned too
 
+老看我们直播报告，到底咱这些钱去哪了
+He read our live broadcast report all the time, and in the end where our money went?
 
-消息人士透露：马云自去年10月，旗下蚂蚁集团上市计划被叫停后，市场即盛传他被“禁止出境”，在大陆亦只能作有限度活动，因此他本月首次在香港露面，令财经界十分瞩目。如今转飞欧洲，让“松绑”消息进一步传开，加上阿里巴巴股价谷底反弹，外界预计马云接受连串整改接近完成，其“禁令”或获得解除。
+65万亿的房地产，十几万亿所谓的互联网产业，将近100万亿的金融产业
+65 trillion dollars real estate, more than a trillion dollars so-called Internet in-dustry, nearly 100 trillion dollars financial industry
 
-对于此次马云去西班牙，郭先生在10月19日的盖特小视频中说：杰克马跑西班牙接客去了。看阿里巴巴股票，如果你们有一个人相信杰克马去西班牙是自由的，那你就傻了。杰克马完全没有自由，杰克马是完全没自由的处理资产中。一切都要脱手，江家，曾家，王岐山家，孟建柱家危也，看他们怎么弄吧。杰克马不是一般的惨，郭先生担心杰克马也跟王健一样，被弄个跳墙死。
+中国共产党咱们给它算算账，20年前加入WTO
+Let’s calculate it for the CCP when they joined the WTO 20 years ago
 
-在生死面前，在邪恶面前，中国没有男人，没有勇气，没有智者，还给自己找理由说什么为了所谓的家人。在中国成功人士的家族，这个家族的核心人物，带领家族成功的人活着，你的家族有尊严，有安全；也会有痛苦，会受到胁迫，这是你的家族要付出的代价。若这个核心人物死了，这个家族的其他人就没有尊严，没有价值，没有希望，他们的一生都是灾难。因此作为这个家族的核心成员，只有这个核心成员活着，族人和家人才有希望；不能让你的家人成为你的肉票，那是在害家人，勇敢的向威胁家人，朋友，亲人的说不！挥出你的拳头，即使输了，都不枉活一世；如果你跪下来，只是早晚让你怎么死，你家人如何死的问题。王健以及N个中国的大人物不都这下场吗？薄熙来、周永康，如何？只有灭了共产党，你才能活下去；只有新中国联邦，爆料革命能救你。
+一共150万亿美元也好，100万亿美元也好，所有扩张出来的财富都去哪了
+Whether it’s a total of 150 trillion US dollars or 100 trillion US dollars, where did all the expanded wealth go?
 
-听了郭先生这段话，我就感觉他不只是在对马云喊话，也是在对那些个在海外处理资产的私人企业家喊话。虽然那些人在做生意过程中，和中共勾兑或者勾结做了很多的恶，如果他们现在能站出来，能和爆料革命及郭先生站在一起，一起揭露共产党的邪恶，把他们知道的所有的秘密说出来，为灭掉中共做出他们的贡献，那老百姓一定会原谅他们，也一定会他们视为英雄；因为毕竟由于他们站出来，可以让共产党早些灭亡，中国老百姓也可以少受一些苦难，而他们还有可能有机会活着，他们的家族也有可能活着。
+习也懵叉了，这时候我告诉你，
+Xi is also stunned, this time I will tell you,
 
-但是，如果因为他们的家人在国内全都被绑架了，连同岳父岳母，他们受制于被绑架控制的家人，然后按照习近平共产党的指示，把所有在海外的资产拿回去，不敢爆料，那么他可能是王健的下场，叶简明的下场，肖建华的下场，车峰的下场！看看连退休的原财政部部长金人庆最后都是自焚死。金人庆不也把所有的资产都退回去了吗？之前中共不也保证退回资产可以保他不死吗？结果又如何呢？
+老百姓的房产倒塌导致的房产倒，保险必然倒，保险倒，银行一定倒
+the collapse of Laobaixing’s property will lead to the collapse of the real estate industry, insurance has to collapse, insurance collapses, banks must also follow the fall
 
-我知道郭先生说的这段话是对他们在喊话，但是我现在有个疑虑：就是杰克马也好，或者是其他在外边儿处理资产，往回拿资产的那些企业家也好，他们的身边都跟着几十个，至少要有四五十个警察，国安、国保，他们怎么能逃脱？就像当初我们看王建一样，在郭先生放的王建的视频中，我们知道，连王健的最信任的保健医生，都是杀他的人，王健旁边都已经布满了全要杀他的人，当时王建想跑也跑不了。
+银行倒，信托也得倒，那么就是粮食供应链一定倒，
+bank collapses, the trust also has to collapse, then the food supply chain must collapse
 
-现在在外边处理资产的这些企业家旁边都跟着四五十人，怎么能逃掉？这些跟着的人，在国内的家人肯定也是受控制的。他们也不敢私自把这些企业家给放走了，而且旁边不是一个人，是四五十个人。那这四五十个全都买通了，那也是一件极难的事情。
+这个时候全世界（都在）问，钱去哪了？全中国人
+At this time, the whole world all asked where did all the Chinese people’s mon-ey go?
 
-所以杰克马这次是凶多吉少了，很可能在把资产全部处理完之后，就跟着王健去了。可怜一代中国人喊了那么多年的马爸爸，最后很可能会落得个这么凄惨的下场。马云这些年干了很多坏事是肯定的，虽然不一定有孙力军、孟建柱多，但就这么窝窝囊囊地死了，也是可惜了他的才能。
+这时候你去想想，最想转移目标的人是谁呀
+At this time, think about who is the person wants to shift the target most?
 
-**发布：**Candy
+是王岐山、江志成、曾庆红、朱镕基，这些最有钱的家族
+It’s Wang Qishan, Jiang Zhicheng, Zeng Qinghong, Zhu Rongji, these the richest families
 
-**YouTube链接**：[闲聊澳洲](https://www.youtube.com/channel/UCPxB0vpNpmHN0hORXK4gj2A)
-**GTV频道：**[墨尔本雅典娜农场AthenaFarm](https://gtv.org/video/id=6153fecc42a8af3151a72e5b)
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+打台湾，大家都变成了全部小粉红
+Attack Taiwan, everyone becomes “Patriotic Little Pink”
+
+你们没有意识到这个事对台湾多危险，一打台湾，一了结了
+You didn’t realize that this thing is so dangerous for Taiwan, once there is war against Taiwan, it’s all over
+
+甚至马上换新版人民币，不叫人民币了，叫什么币都有可能
+Even change to new version of RMB right away, may not call RMB, what it may call?
+
+也可能跟九指妖叫撒币，也可能叫路大脑币，是吧
+It may also be called Sa coin with the nine-finger witch, or it may be called LuDe coin, right?
+
+也可能叫蛇妖币都有可能
+It may also be called Snake Witch Coin
+
+———————————————————
+
+**原视频接:**[https://twitter.com/se1y7cblljselva/status/1449361751544254466?s=24](https://twitter.com/se1y7cblljselva/status/1449361751544254466?s=24)
+
+Date:10/17/2021
+原视频标题:
+The CCP will attack Taiwan even more violently when their real estate market collapses
+原视频日期：2021/10/13
+任务编号：KC179（2570）
+视频时间段 : 0:00-2:04
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
