@@ -2,13 +2,9 @@
 ---
 
 
-## 西媒头条 — 第92期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1608524/)
+## 屠呦呦说青蒿素除治疗疟疾外，还有很多功效，应物尽其用
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1608578/)
 
-**制作：蚂蚁兄弟**
+03/23/2017 屠呦呦说青蒿素除治疗疟疾外，还有很多功效：“我也很愿意物尽其用。”
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1021.001.jpeg)
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

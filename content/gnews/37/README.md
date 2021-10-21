@@ -2,20 +2,35 @@
 ---
 
 
-## 加拿大下议院通过对所有议员的疫苗强制接种令
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1608489/)
+## 比特币和勒索赎金双创新高
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1608512/)
 
-编译撰稿：硫酸羟氯喹64
+作者：纽约香草山 – 文一
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据美国电视新闻网报道，首个与比特币相关的基金交易已于10月19日推出，为此，比特币在20日上午跃升至历史新高。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a1-edited.jpg)图片来源：后千禧年
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-33.jpeg)
 
+然而，美国财政部金融犯罪执法网络表示，以比特币为交易手段的勒索和其他犯罪案件屡见不鲜，相关案件勒索金额高达52亿美元，且此类案件在近十年间持续上升。
 
-据加拿大自媒体《后千禧年》10月19日报道，加拿大最高领导层已经决定，所有议会议员和相关工作人员如果想进入下议院辖区内，则都必须接种“新冠病毒疫苗”。
+对此，郭文贵先生在10月20日的大直播强调，比特币是一个犯罪、洗钱的工具，其只能在暗网中流通。因此，比特币是一种使用去中心化技术的中心化假币。与之相对的，即将上市的喜币有负责人及法人，与黄金锚定且与美元直接挂钩，其未来的价值以及在全球经济体系中起到的作用将不可估量。
 
-这项于10月19日被制定的“疫苗强制接种令”明确规定：进入下议院的每个人，包括国会议员等都必须在11月22日之前接种该疫苗。该限制令将适用于任何希望进入下议院辖区的人士，包括议员及其工作人员、政治研究办公室雇员、行政部门雇员、议会记者席成员、议会商务访客、承包商和顾问等。
+(本文仅代表作者观点)
 
-此前，加拿大首席卫生官谭咏诗曾无奈表示：很难也很复杂在联邦机构层面统一实施该“疫苗强制接种令”。对此，总理特鲁多指出：该疫苗授权令被集体通过是一次“民主的胜利”。加拿大议会将于11月22日恢复工作。
+参考链接：[Bitcoin ransomware payments amount to a whopping $5.2B says the US Treasury Department](https://www.crypto-news-flash.com/bitcoin-ransomware-payments-amount-to-a-whopping-5-2b-says-the-us-treasury-department/)
+[Owner of nonprofit science lab for children admits running secret bitcoin money-laundering operation for drug dealers](https://www.msn.com/en-us/news/crime/owner-of-nonprofit-science-lab-for-children-admits-running-secret-bitcoin-money-laundering-operation-for-drug-dealers/ar-AAPJ8ua)
+[2021年10月20日郭先生直播速记](https://gnews.org/zh-hans/1606278/)
 
-（以上内容仅代表原文信息和作者个人观点）
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-[原文链接：](https://thepostmillennial.com/house-of-commons-to-adopt-vaccine-mandate-for-mps)
+总编：Irene木木 
+编辑：Irene木木
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,21 +2,38 @@
 ---
 
 
-## 意大利那波里家庭医生尽管打了两剂疫苗,最后还是死于新冠病毒
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1608470/)
+## 缅因最高法院驳回反对强制医疗人员接种疫苗政策的诉求
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1608477/)
 
-#### 翻译/整理： 意大利罗马达芬奇农场           小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Schermata-2021-10-21-alle-16.20.28.png)
-图像来源：今日那波里
+作者：纽约香草山福音部 –lilian89
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据美联社消息称，10月19日，最高法院拒绝审理缅因州一项医护人员反对实施新冠疫苗要求的紧急上诉。此前，最高法院也驳回了纽约市教师和印第安纳大学师生拒绝新冠疫苗接种政策的要求。
 
-那波里医学界沉浸在悲哀之中，他们失去了贝尓纳尔多•克措利诺医生。虽然他已经注射了两剂疫苗， 但他还是死于新冠。他住了一个月的医院，但是在这场与新冠的斗争中， 他还是输掉了。他所属的意大利最大的医生合作团体之一（ MediCoop Vesevo）的主席保罗•德•利果洛医生在他个人的社交媒体上对贝尔纳尔多的去世深感悲痛。他为死去的同事而哭泣，这是第364位因新冠而失去生命的医生。他感到有责任要大声地呐喊来表达他的痛苦，他的苦恼及担心。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-12.jpeg)
 
-德•利果洛大夫继续写到“ 我们还看到周围有这么多鲁莽的人在抗议，不打疫苗， 他们否认死于新冠病毒的可能性，我个人也曾认为这一屠宰现象已经结束了，尤其是打了两剂疫苗以后。 贝尔纳尔多医生在医院里与该死的新冠病毒抗争了一个月之久，在他的病情急转直下之前，我曾多次与他通话。 我们现在看到了这样一个确认的事实： 即使是注射了两剂疫苗，还会得冠状病毒，受到死亡的威胁。这并不是偶然的，所以我们开始注射第三剂疫苗，我们继续让人们保持谨慎的态度。即使打了两剂疫苗也不能放松警惕。与新冠病毒的斗争并没有结束。今天我们在战场上输了，那儿留下了我们战士的尸体。”
+然而，虽然副大法官布雷耶驳回了缅因州的紧急上诉，但随着该州疫苗接种任务的时间推移，他仍给上诉者留下了再次尝试的大门。
 
-可悲的是众多的医生还是寄希望于中共病毒疫苗， 他们还没意识到疫苗会引起ADE效应，会更快地杀死他们的朋友及同事，他们还在强调打第三剂疫苗的必要性。他们不仅自己率先去注射毒疫苗， 还会鼓励他们的家人和病人去注射, 可见疫苗将带来的灾难普遍还没有被人们所认识。
+据悉，缅因州的疫苗接种政策由民主党州长珍妮特-米尔斯制定，当中要求医院和疗养院的工作人员接种新冠疫苗，否则他们将失去工作。因此，数十名医护人员已经选择辞职，这也导致缅因州中央医疗中心的护士严重短缺，同时影响了该州的公共医疗情况。
 
-原文链接：https://www.napolitoday.it/cronaca/medico-vaccinato-morto-covid-ercolano.html
+为此，自由律师事务所代表两千多名不想被强迫接种新冠疫苗的医护人员，向缅因州的联邦法院提起诉讼。
 
-免责声明：本文只代表个人观点，与GNEWS 平台无关
+事实上，这也印证了郭先生曾在直播中提及的，疫苗灾难将使人们对政府、法律、宗教有一个重新的认识。
 
-编辑发布：Xiao baige
+(本文仅代表作者观点)
+
+参考链接：[Supreme Court declines to block Maine health care workers vaccine mandate](https://www.axios.com/vaccine-mandate-maine-supreme-court-903eb829-313b-4c2e-bab6-d1160a365ebf.html)
+[Supreme Court won’t stop vaccines for Maine health workers](https://www.usatoday.com/story/news/politics/2021/10/19/supreme-court-wont-stop-vaccines-maine-health-workers/8528787002/)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Irene木木 
+编辑：Kathy（文艺）
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

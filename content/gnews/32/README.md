@@ -2,21 +2,49 @@
 ---
 
 
-## 秘翻在线：疫苗歧视已经蔓延到了宗教领域
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1608535/)
+## 中共国的荒唐事
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1608600/)
 
-#### 撰稿翻译：Hakunamatata
+作者: 纽约香草山农场-新世界的一员
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1s3ad1f32153sda4g56rg23rtg123tioie.png)**图片来源：Rebel News**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-8.jpg)
 
-新不伦瑞克牧师因未执行没有顺从中共病毒防疫的规定，他允许未接种疫苗的民众进入而被捕，新不伦瑞克省政府希望法庭将菲尔牧师监禁。
 
-10月12日(星期三)下午，卫生部长向新不伦瑞克圣约翰礼拜堂家庭教会的菲尔·哈钦斯牧师发出了一份动议通知。 该通知要求哈钦斯因涉嫌违反十月八日的临时禁令而出庭接受聆讯。之前的命令要求哈钦斯遵守《新不伦瑞克公共卫生法》(New Brunswick Public Health Act)和修订后的强制命令(the Revised Mandatory order)，其中要求他的神堂(His Tabernacle)强制教众佩戴口罩。
 
-根据该法案，对于每一个教堂和其他的信仰场所，所有者、占用者和管理人员都必须采取一切责任步骤，确保在每次室内信仰聚会时，场地内的每个人都接种了全面的中共病毒疫苗。对于婚礼、葬礼和社交聚会以外的聚会，业主、占用人、经营者可以选择在场所内佩戴口罩、场所容量不超过50%、人员距离不超过两米、不唱歌、每个出席的人都要被记录下来，包括排号和座位号，这些记录会被移交给公共卫生官员。
 
-卫生部的动议要求法院裁定哈钦斯藐视法庭命令，并向法院提出“如果他再次不遵守同意令和法院认为必要的任何其他命令”法院必须监禁哈钦斯。
 
-该动议还要求对教会作为一个实体进行制裁。
+今天翻看公众号，翻出了新京报2020年4月16日的一篇报道。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/17-2.png)
+据当地人举报，在黑龙江林甸耕地经常看到一俩停在二运附近招揽嫖客的犯罪车辆。接到举报后，当地民警于4月16号对其突击检查，发现车内一对男女正在进行非法嫖娼交易。民警当场将其抓获。经审问，原来是一起老婆在车内接客卖淫，老公帮妻子拉客放风的荒唐事。
 
-原文链接：[**New Brunswick pastor arrested for not enforcing COVID rules, allowing in unvaccinated congregants**](https://www.rebelnews.com/new_brunswick_pastor_arrested_for_not_enforcing_covid_rules_allowing_in_unvaccinated_congregants)
+在中(共)国恶劣的生存环境下，这样荒唐的事真是可笑又可悲。更令笔者感叹的是，这个案例还不是个别现象！ 笔者就曾跟一名女子同桌麻将，亲眼目睹她当着她老公的面和一个男人打电话，男的问他是否想他，那女子嗲着声音说想他，更是毫无顾忌的跟那个男人打了十几分钟打情骂俏的电话。她老公居然视而不见，丝毫不在意他人的看法。当她老公离开后，她的小姐妹责怪她太轻视老公。那女子竟然说，他自己不赚钱还问我要生活费，有什么脸说？有本事自己赚点钱来养她，更声称她孩子的书本费都是靠她支付。她的小姐妹接着说，当心他去嫖。那女的说，他没有钱去嫖娼。从那以后，我再也没有跟这一对夫妻说过话。
+
+当时笔者只是感觉这女子不要脸，她老公没骨气，现在仔细一想，其根源还在于中共的恶魔体制！在共产党的奴役下，大家普遍工资收入少、生活开支大。老百姓想找个养家的工作不易，找个能赚钱的工作更难！对此，很多人索性就不工作，麻将馆里抱着这种想法的人还不是个例。
+
+一个国家，男的没有了志气，女的没有了羞耻心，这样的国家还有救吗？人只有在良好的社会制度环境下才有好的人品。谁不喜欢活得有尊严？活出尊严？只有没有了共产党的剥削和邪恶统治，建立一个相对公平公正，有法制的、透明的社会体制，老百姓才会有相对公平的付出和回报，其日子自然就好过。如果谁都可以挺直腰板做人，还有什么理由不灭共？
+
+中共不灭，国无宁日，恶党不除，民不聊生！
+
+（本文仅代表作者观点）
+
+参考链接: [https://mp.weixin.qq.com/s/zqZZDBkzX9yWab81adoF2Q](https://mp.weixin.qq.com/s/zqZZDBkzX9yWab81adoF2Q)
+
+校对/编辑/发稿: Amanda艾曼达
+
+终审：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-7.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-8.jpg)
