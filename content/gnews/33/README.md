@@ -2,12 +2,44 @@
 ---
 
 
-## GETTR首席执行官杰森·米勒声明
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1607331/)
+## 有声| 宁失一眼，不失全身
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1607360/)
 
-![竞选顾问杰森·米勒（Jason Miller）表示： 川普团队希望在1月6日提出“具体证据” – GNEWS](https://assets.gnews.org/wp-content/uploads/2021/01/16095015751.png)[图片来源](https://assets.gnews.org/wp-content/uploads/2021/01/16095015751.png)
-关于前总统唐纳德·川普宣布成立川普媒体与技术团队一事，新自由媒体社交平台首席执行官杰森·米勒发表以下声明:
+配音：香草山香港部-文凯琳
 
-“祝贺川普总统再次加入社交媒体！现在，Facebook和Twitter将失去更多的市场份额。川普总统一直是一个很好的交易人，但我们却无法就此达成共识。准备好迎接盖特即将推出的新平台功能：盖特直播、GVision短视频和我们的盖特支付系统功能。令人兴奋的新功能将为我们的全球客户提供更好的用户体验。开始下载吧!”
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-2021年10月20日发布
+
+
+
+
+
+
+文贵先生最近两天直播说到许多，如马云之流的中国“企业家”被中共绑架着到海外，为中共拿回他们帮中共代持的隐藏在海外的，从中国人民那里抢劫而来的财富。许多“企业家”竟然相信中共的承诺:只要为中共拿回这些钱，中共就给他们和他们的家人一条生路，不灭口他们。
+
+可是，中共的话能信吗？人怎能去相信一个公然鼓吹无神论的杀人组织的承诺？如果历史让我们学到了任何东西，那就是:中共从来不信守它的任何承诺。对中共效忠的问题的关键在于:你效忠的对象随时准备背叛你，甚至杀了你。
+
+
+
+原文 链接：[【信仰之声】宁失一眼，不失全身](https://gnews.org/zh-hans/1604848/)
+
+
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

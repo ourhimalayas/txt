@@ -2,38 +2,14 @@
 ---
 
 
-## 盖特平台再次进行Live Streaming直播测试
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1607563/)
+## 中共媒体再提习近平谋划推动粤港澳大湾区建设
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1607622/)
 
-作者：纽约香草山教育部 – Delilah小胖
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国东部时间周一晚间，盖特平台再次进行了Live streaming直播测试。本次测试依旧由郭文贵先生领衔进行。参与本次直播测试的，还有盖特大V用户长岛哥、正义小Sarah和Rachel等。
+韩国首尔天池农场——虎眼　　校对/上传——无明逆流
+![](https://assets.gnews.org/wp-content/uploads/2021/10/WhatsApp-Image-2021-10-21-at-15.49.48.jpeg)（图片来源网络）
+早在10月6日的特区立法会上，香港特区行政长官林郑月娥就在她的第五份施政报告中提出，将实施《北部都会区发展策略》，构建“双城三圈”的发展格局，把香港北部改造成活力十足的地区；以促进深港密切合作。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/0-2.png)
+粤港澳大湾区建设是中共蓄谋已久的一个国家重点、重大谋划项目，目的是通过深圳连通港澳的交通地理，把控香港的经济，逐渐把中国的行政管理模式慢慢移植到香港社会，再用温水煮青蛙的方式把中国社会的人文生态融入进香港。
 
-本次Live Streaming直播测试，共进行了1小时39分钟，吸引了众多盖特用户的在线观看。直播测试效果良好，画面清晰流畅，各项基本功能如点赞、互动留言和转发等运行良好。
-
-据悉，盖特直播功能，将于近期推出。郭先生在直播中号召广大的盖特用户，在盖特上多多开展直播活动，尤其是英文直播，以传播病毒及疫苗真相。
-
-新闻链接：[https://gettr.com/post/pejgy3dc01](https://gettr.com/post/pejgy3dc01)
-
-**本文谨代表作者观点**
-
-![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
-
-**总编：Irene木木/正义的小新**
-
-**校对/发稿：童谣**
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共媒体再提习近平谋划推动粤港澳建设计划，就是在为中共政治势力控制香港做加速推进的指示。再加上港府内部的外围党员林郑月娥在香港内部与共产党的联动。香港正在快速的变成一个一国一制的中国城市。
+(本文仅代表作者个人观点)

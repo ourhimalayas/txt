@@ -2,33 +2,36 @@
 ---
 
 
-## “真”“善”“狠”，新中国联邦核心理念
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1607252/)
+## 中共黑客组织大肆盗取全球手机用户数据
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1607301/)
 
-作者：香草山农场 – 恩永存
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+作者：纽约香草山农场  007
 
 
 
-郭文贵先生10月19日再次申明，新中国联邦的核心理念是“真”“善”“狠”。
 
-19日上午，GTV与盖特做同步测试。其间，一名伪类在盖特留言中，故意为难主持人。郭先生立即要求维护人员删除留言，并屏蔽此用户。郭先生还说：伪类账号一定要全部删除，一个也不留。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-6.jpg)
-郭先生表示，他最先提出“真善狠”三个字。新中国联邦的正道主义就是唯真不破，法律根据就是真理，所以是“真”；新中国联邦人以博爱善待他人，做个善良的人，因此有“善”；新中国联邦人喜爱公义，就必须恨恶罪恶，依法惩冶恶人，当然就得“狠”。“真”是理论原则，“善”是做人原则，“狠”是做事原则。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-100.jpg)
-参考链接：
-[郭先生2021年10月18日盖特直播测试](https://gettr.com/streaming/pejgy3dc01)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
+
+
+
+10月19日，美国网络安全公司CrowdStrike表示，一个与中共有关联的黑客组织“LightBasin”，至少从2016年开始，潜入世界各地的移动网络，并使用迄今为止发现的最复杂的工具，从运营商那里获取用户的通话记录和短信。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture5-3.jpg)
+长期以来，电信公司一直是黑客攻击的首要目标。CrowdStrike公司高级副总裁梅尔斯表示，这些攻击与中共有关联，包括使用依赖汉语拼音语音版本的密码学，以及与中共政府先前的攻击类似的技术。这些程序可以不引人注意地检索特定数据。
+
+美国国土安全部分管机构表示，已收到相关报告内容，会持续与美国电信商合作，防止黑客攻击。美国财政部周二强调，美国与其盟国合作打击网络攻击的重要性。
+
+参考链接：[中共黑客组织大肆盗取全球手机用户数据](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211019-%E7%BE%8E%E7%BD%91%E7%BB%9C%E5%AE%89%E5%85%A8%E5%85%AC%E5%8F%B8-%E4%B8%8E%E4%B8%AD%E5%9B%BD%E6%9C%89%E5%85%B3%E7%9A%84%E9%BB%91%E5%AE%A2%E7%BB%84%E7%BB%87%E6%BD%9C%E5%85%A5%E5%85%A8%E7%90%83%E7%A7%BB%E5%8A%A8%E7%BD%91%E7%BB%9C%E8%8E%B7%E5%8F%96%E9%80%9A%E8%AF%9D%E8%AE%B0%E5%BD%95)
 
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
 总编：木白
-编辑：山本不惑
-校对/发稿：为真不破20
+编辑：珈沅
+校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
 
@@ -41,7 +44,4 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)

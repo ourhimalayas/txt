@@ -2,22 +2,43 @@
 ---
 
 
-## NASA 与波音签署太空站通勤合约
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1607293/)
+## 新疆人权犯罪主犯王君正升任西藏一把手
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1607304/)
 
-#### 翻译：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-66.jpg)图片来源：网络截图
-美国合众国际社10月20日报道，美国航空航天局（NASA）周三在其官方网站发出正式要求，寻找能在2027年为航天员提供进入国际太空站的交通器具。
+作者：澳喜农场 – 在远方
 
-太空探索公司（Space X）已于2020年5月提供了载人龙船舱，而波音公司也握有这个合同，但当时波音公司实施合同时晚了4年。因为当时波音公司正在为解决星际航线航天器问题而困扰。
 
-NASA在新近的要求中陈述：“根据使命要求，NASA可以只购买一个座位，或多个座位，或整个航班。”
 
-在NASA的推文中显示：NASA和波音太空公司在星际航线服务模块推进器系统的氧化剂分离阀调查问题上有了进展，团队正在做将于2022年上半年发射的第二次轨道飞行实验方面的工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-Space X 和波音公司于2014年获得了几十亿美元的合同以提供12次去太空站的旅行。而第三家供应商，内华达山脉公司（SNC）也获得了资金可以开发其所提出的梦想追逐飞行器。
 
-NASA新的要求并没有阻止Space X 和波音公司继续从NASA获得合同以提供其商业旅行的项目，但NASA可能包含了新的提供者。
 
-#### 新闻来源： [NASA looks beyond SpaceX, Boeing contracts for space station commutes](https://www.upi.com/Science_News/2021/10/20/NASA-Commercial-Crew-launch/2531634762986/)
+中共前新疆政法委书记、自治区党委副书记王君正，10月19日被宣布升任西藏党委书记。王君正由于直接参与了新疆近年来严重迫害人权的行动，是受到西方制裁最多的中共官员。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-19.jpg)
+联合国专家及一些独立学者提供的大量证据显示，中共自2016年起，关押了至少100万维吾尔族和其他少数民族穆斯林，对他们进行洗脑和强迫劳动，并禁止他们从事宗教活动。
+
+2021年3月22日，美国财政部根据全球马格尼茨基人权问责法，对新疆自治区副书记兼新疆生产建设兵团党委书记王君正，和新疆公安厅厅长陈明国进行制裁，指控他们是严重践踏人权和从事腐败的涉案人员。2021年3月，欧盟、英国和加拿大也宣布制裁新疆党委副书记王君正等4人和一家实体。
+
+参考链接：[新疆人权犯罪主犯王君正升任西藏一把手](https://www.voachinese.com/a/China-promotes-most-sanctioned-official-to-Tibetan-party-chief-20211019/6277106.html)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：木白
+编辑：飞虹
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)

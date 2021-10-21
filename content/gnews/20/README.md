@@ -2,31 +2,38 @@
 ---
 
 
-## 2021/10/20 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1607471/)
+## 盖特平台再次进行Live Streaming直播测试
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1607563/)
 
-1. 10月11日，安徽合肥一商户称，商铺被商场强拆，千万珠宝不知去向。
-2. 10月17日四川成都，女子网购银酒杯，收货时被宝宝意外摔碎，居然是瓷的，还配着国检证书。
-3. 10月18日，传湖北麻城一石材厂老板扣工人一千块钱工资，工人一怒之下开装载机”捣毁”了整个工厂！
-4. 湖北 武汉，被圈养的业主？业主集体拒交物业费，被物业强制换电表，限缴电费！一次只能充10元电费。
-5. 某毛肚加工厂清洗一幕！食品安全问题严重,脏乱差。
-6. 近日，网友拍摄上海复旦大学附属肿瘤医院人人满为患。拍摄者质疑为什么那么多人患癌。
-7. 中共房地产的质量普遍堪忧，中共房地产骗局下的劣质房产。
-8. 10月18日，合肥父子满身灰尘奔赴机场，知情人：他大儿子在工厂里死了。
-9. 10月16日 海南三亚， 一辆轿车飞速冲入海中！车尾有撞击痕迹，车内男子被救后口吐大量白沫。
-10. 10月16日 吉林舒兰，冒雪在农田劳作的农民。
-11. 某大学院长吐槽“让农民（工）返乡创业”政策：“农业已是负收益，你有病还是他有病？怎么不让你爹去？”中共国政策：故意用身份标签限制百姓。
+作者：纽约香草山教育部 – Delilah小胖
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国东部时间周一晚间，盖特平台再次进行了Live streaming直播测试。本次测试依旧由郭文贵先生领衔进行。参与本次直播测试的，还有盖特大V用户长岛哥、正义小Sarah和Rachel等。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/0-2.png)
 
-* * *
+本次Live Streaming直播测试，共进行了1小时39分钟，吸引了众多盖特用户的在线观看。直播测试效果良好，画面清晰流畅，各项基本功能如点赞、互动留言和转发等运行良好。
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+据悉，盖特直播功能，将于近期推出。郭先生在直播中号召广大的盖特用户，在盖特上多多开展直播活动，尤其是英文直播，以传播病毒及疫苗真相。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+新闻链接：[https://gettr.com/post/pejgy3dc01](https://gettr.com/post/pejgy3dc01)
 
+**本文谨代表作者观点**
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**总编：Irene木木/正义的小新**
+
+**校对/发稿：童谣**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
