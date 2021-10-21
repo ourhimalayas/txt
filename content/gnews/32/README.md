@@ -2,45 +2,39 @@
 ---
 
 
-## 香港80亿港币国安“专项基金”独立审计 但年报未详
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1608712/)
+## NIH向国会提交更正信函证明福奇宣誓后撒谎
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1608741/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/102101-1.jpg)香港保安局局长邓炳强。 照片：Selina Cheneg/香港自由新聞
-来自《香港自由新闻》2021年10月20日报道
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**摘要翻译：**
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/F-1.jpg)thekycker.com
+老贼福奇在中共病毒疫情期间当众撒谎、国会撒谎已是惯例，追责中共病毒溯源过程中，他宣誓条件下撒谎也是常态，一再否认向武毒所的功能增强研究项目提供了资金。阴谋集团一直在为老贼撑腰，试图蒙混过关，但是，与邪恶争斗的也大有人在，一定要有说法！
 
-香港政府表示，去年12月指定用途的80亿港元国家安全专项基金的细节不会公开，但该基金的财务报表已由独立审计师审查。
+美国国家卫生研究院（NIH）昨天（10月20日）向国会提交了信函，更正了老贼福奇及科林斯以前的虚假陈述。
 
-在周三向立法会提交的关于该市被称为“特别基金”的国家安全预算的年度报告中，财政司司长办公室称，该项基金是经行政长官批准，从香港的一般收入中拨款。
+《门道专家》发表文章，题目“美国国家卫生研究院（NIH）今天更正了科林斯（Collins）和福奇（Fauci）的虚假陈述——NIH确实为武汉功能增强研究提供了资金——福奇宣誓条件下撒了谎”。
 
-报告称，该基金在国家安全委员会秘书处下设有专门的会计和财务部门。该部门的会计和财务政策，以及其财务报表，符合“香港特别行政区政府的既定政策和惯例”，尽管它不受任何现行香港法律的约束。
+“美国国家卫生研究院”（NIH）主任科林斯和“国家过敏和传染病研究所”（NIAID）主任福奇都声称，NIH没有资助武汉的功能增强研究，今天我们发现他们撒谎了。
 
-80亿港元已分配给“未来几年”。
+福奇在与参议员兰德·保罗（Rand Paul）谈话时宣誓，他否认国家卫生研究院资助了武汉功能增强研究项目。
 
-报告称，财政司司长“不会透露有关该基金使用的更多细节”，但表示已根据《国家安全法》和《香港审计准则》进行了“独立审计”。
+今天（10月20日），国家卫生研究院向美国众议院提供了一份文件，声称国家卫生研究院确实为武汉的功能增强研究提供了资金。
 
-“独立审计师对财务报表发表了无保留意见的审计意见，”这意味着审计师认为政府公平恰当地呈现了财务报表。
+文章附上了一篇推文，推文中称，“NIH纠正了NIH主任科林斯和NIAID主任福奇关于NIH没有资助武汉功能增强研究的不实声明。
 
-报告中没有关于独立审计涵盖的时间段的信息。
+NIH表示，生态健康联盟（EcoHealth Alliance）违反了NIH授权AI110964的条款和条件。”
 
-**简评：**
+（推文附上了国家卫生研究院10月20日致众议院的信函）
 
-不透明的审计报告，香港正在快速的变成一个一国一制的中国城市。
+看来福奇和科林斯该被抓了，他们陷入了困境。
 
-新闻链接： [Hong Kong’s HK$8 billion national security ‘Special Fund’ is independently audited, but annual report gives no details](https://hongkongfp.com/2021/10/20/hong-kongs-hk8-billion-national-security-special-fund-is-independently-audited-but-annual-report-gives-no-details/)
+（原文完）
 
-***编辑: **希望*
+罪恶在进一步地暴露，纳税人每年用40多万美金供养的老贼福奇（当然，另一个老贼科林斯的俸禄也不低），撒谎成性，配合邪恶集团制造了中共病毒的蔓延，继而推出了更恶毒的配套手段，疫苗接种。一剂不够两剂，两剂不成再来加强剂，真该千刀万剐！
 
-***校对: **感恩*
+（文章只代表作者本人观点）
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+原文链接：
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[https://www.thegatewaypundit.com/2021/10/breaking-nih-today-corrects-false-statements-directors-collins-fauci-nih-fund-gain-function-research-wuhan/](https://www.thegatewaypundit.com/2021/10/breaking-nih-today-corrects-false-statements-directors-collins-fauci-nih-fund-gain-function-research-wuhan/)

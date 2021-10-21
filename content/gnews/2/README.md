@@ -2,25 +2,26 @@
 ---
 
 
-## 有声|加拿大医疗体系名存实亡
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1609155/)
+## 处于通胀焦虑中的投资者争相进入加密货币市场
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1609227/)
 
-配音：香草山美食部 – 玫瑰园
+采编撰稿：军迷Wilson     校对编辑：硫酸羟氯喹64
 
-据加拿大CTV的多次报道，在新冠疫情的影响下，加拿大各省的公立医院陆续拟下就医和探视新规，拒绝接待所有未注射疫苗者，不伦病情轻重，不伦何种病症。这让未注射疫苗的患者处于两难境地，或注射毒疫苗以便就医，或无医可就，拖延病情，导致更坏的结果。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-2-edited.jpg)图片来源：GNEWS
 
-也有很多网友表示，此规则不光广泛用于公立医院，乃至普通家庭医生现都拒绝接受和看诊未种疫苗者。这种不符合逻辑的操作让全世界乍舌，更让医院的传染科，加拿大的医疗体系形同虚设。
 
-文字版原文：[加拿大医疗体系名存实亡](https://gnews.org/zh-hans/1605457/)
+据【金融时报】10月21日报道，随着全球通货膨胀日渐加剧，越来越多的投资者选择抛售部分传统的抗通胀贵金属黄金，转而投资新兴的加密货币市场。
 
-音频处理：喜山必胜Maverick
+据悉，全球最大的黄金基金GLD的投资者，今年已抛售了逾100亿美元的黄金，其他类似基金也一直在被减持。黄金价格已从6月份高位下跌了9.3%。而比特币价格则在本周达到创纪录6.7万美元的单价。
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+相关调查显示：业界普遍认为加密货币例如比特币有对冲通胀的潜力，这使其在主流加密资产市场上更受欢迎。并导致欧美大部分对冲基金的客户都要求加密货币在其投资组合中绝对应占一席之地。
+
+另一方面，支持专注黄金的投资者则认为，由于比特币历史短，价格波动大，因此，其作为通胀对冲工具并不可靠。同时相信，面对通胀加剧，金价已准备好了大幅上涨。
+
+简评：
+
+处于通胀焦虑中的人们，如果发现了即将于本月底上市的加密货币【喜马拉雅币】，那么他们的问题将迎刃而解，因为喜币同时克服了比特币和黄金的所有缺陷，而且被全球最强大的正义资本和平民力量所加持，因而该加密货币是最稳健和最具潜力的投资工具。
+
+(以上内容仅代表原文信息和作者个人观点)
+
+[原文链接：](http://www.ftchinese.com/interactive/51281?full=y&amp;gift_id=0f211a837a36a7b3293f438cdce2c864b2472020)
