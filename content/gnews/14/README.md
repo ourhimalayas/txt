@@ -2,21 +2,28 @@
 ---
 
 
-## 美驻华大使提名人伯恩斯：在台湾问题上不能信任中国
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1608059/)
+## 美房屋建筑商协会CEO：供应链是住房市场迫在眉睫的危机
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1608072/)
 
-#### 撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-111.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fs.rfi.fr%2Fmedia%2Fdisplay%2Fb6424a64-befc-11eb-857a-005056bff430%2Fw%3A1280%2Fp%3A16x9%2Fbes_0.webp&amp;imgrefurl=https%3A%2F%2Fwww.rfi.fr%2Fcn%2F%25E4%25B8%25AD%25E5%259B%25BD%2F20210527-%25E7%25BE%258E%25E5%259B%25BD%25E9%25A9%25BB%25E5%258D%258E%25E5%25A4%25A7%25E4%25BD%25BF%25E6%2588%2596%25E6%259C%2589%25E8%25B0%25B1%25E4%25BA%2586-%25E6%258B%259C%25E7%2599%25BB%25E9%2580%2589%25E4%25B8%25AD-%25E9%25B9%25B0%25E6%25B4%25BE-%25E4%25BC%25AF%25E6%2581%25A9%25E6%2596%25AF&amp;tbnid=ngDvEwkJVKYtvM&amp;vet=12ahUKEwin95HTvtrzAhXtxosBHV2OBFUQMygDegUIARCgAQ..i&amp;docid=dwpHvyVwnS2J6M&amp;w=1280&amp;h=720&amp;q=%E5%B0%BC%E5%8F%A4%E6%8B%89%E6%96%AF%C2%B7%E4%BC%AF%E6%81%A9%E6%96%AF&amp;ved=2ahUKEwin95HTvtrzAhXtxosBHV2OBFUQMygDegUIARCgAQ#imgrc=ngDvEwkJVKYtvM&amp;imgdii=IFgy8li97U-mWM)
-法国国际广播电台10月21日报道，美驻华大使提名人尼古拉斯·伯恩斯在周三参议院听证会上谈到台湾局势称，不能相信中共政府，美国的责任是继续为台湾提供军备以加强其防御，让台湾成为中共强硬的对手。
+【简评：】***2021年新开工建筑许可证下降7.7%，房屋开工率下降1.6%，多户家庭开工率下降18.3%。房地产相关数据比预期的要差得多，这些数据也显示了房屋需求端的萎缩。***
 
-伯恩斯是一位资历深厚的老牌外交官，星期三，在参院听证会上，他非常严厉地谴责中共政权，对日本、印度、越南、菲律宾等国家进行侵略，恐吓澳大利亚，威胁亲近台湾的立陶宛。他表示，中共在新疆的种族灭绝、在西藏的暴力行为、对香港自治和自由的镇压以及对台湾的霸凌都必须停止。他总结说：中共朋友很少，没有真正的盟友。
+据《布赖特巴特新闻网》记者：IAN HANCHETT，2021年10月18日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2599.png)图片来源：《布赖特巴特新闻网》
+美国全国房屋建筑商协会(National Association of Home Builders)首席执行官杰里·霍华德(Jerry Howard)周一在《福克斯商业新闻网》的《瓦尼专题》节目中表示，“如果我们不尽快解决供应链问题，它将成为一个大问题，这是一个迫在眉睫的危机。”霍华德还表示，我们正在考虑将房价上涨“至少几千美元，这取决于你在哪里以及你在谈论什么（房屋）产品。”
 
-信息来源：
+霍华德说:“如果我们不尽快解决供应链问题，它将成为一个大问题。从木材，到石膏板，到混凝土，再到家电的供应，都有三到四个月的延迟，因为这些产品都在全国各地港口的船上。这是一场迫在眉睫的危机。”
 
-[拜登提名驻华大使伯恩斯姿态强硬：在台湾问题上不能信任中国](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211020-%E6%8B%9C%E7%99%BB%E6%8F%90%E5%90%8D%E9%A9%BB%E5%8D%8E%E5%A4%A7%E4%BD%BF%E4%BC%AF%E6%81%A9%E6%96%AF%E5%A7%BF%E6%80%81%E5%BC%BA%E7%A1%AC-%E5%9C%A8%E5%8F%B0%E6%B9%BE%E9%97%AE%E9%A2%98%E4%B8%8A%E4%B8%8D%E8%83%BD%E4%BF%A1%E4%BB%BB%E4%B8%AD%E5%9B%BD)
+他补充说，“显然，时间就是金钱，耽误的越长，房价就会越高。现在，我们预计房价至少要涨几千美元，这取决于你在哪里，你谈论的是什么产品。正如您在之前的租赁市场报告中所说，住房负担能力是个问题。现在，这已经成为首次购房者市场的一个问题。这对房地产和经济来说都不是好兆头。”
 
-(文章仅代表作者本人观点，与GNEWS无关)
+原文连接：[https://www.breitbart.com/clips/2021/10/18/natl-association-of-home-builders-ceo-supply-chain-a-looming-crisis-for-housing-market/](https://www.breitbart.com/clips/2021/10/18/natl-association-of-home-builders-ceo-supply-chain-a-looming-crisis-for-housing-market/)
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+（本文评论仅代表个人观点）
+
+翻译：洛杉矶盘古农场 – 钢蛋儿
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

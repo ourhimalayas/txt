@@ -2,54 +2,61 @@
 ---
 
 
-## 墙内热点新闻
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1607831/)
+## FDA 表示不再购买流产胎儿的细胞组织
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1607833/)
 
-撰稿人：Microkevin   金融商贸部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-401.png)
-图片来自网络
+**编译：西班牙喜悦农场–wenwu**
 
-**沈阳一饭店发生爆炸**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip46.png)Jason Armond : Los Angeles Times via Getty Images
 
-10月21日8时20分，沈阳市和平区太原南街一饭店发生爆炸，爆炸冲击导致3人死亡，33人受伤，很多车辆被损坏。店里玻璃全部震碎。不知道是否还会有更多的伤亡会被爆出来。
+美国食品和药物管理局(FDA)周五向 Daily Caller News Foundation 保证，自 2018 年以来，它没有签订任何“购买人类胎儿组织”的合同。
 
-作者简评：全网都是这件事的报道。我们且观续发展，目前还没有知情者和相关人发声，我认为最好不要看官方新闻机构的消息，要密切关注是否有受害者家属和相关人等在微博爆料。
+FDA 的回应是在《司法观察》获得的[**文件**](https://www.judicialwatch.org/press-releases/new-fda-records-humanized-mice/)发布后作出的，该[**文件**](https://www.judicialwatch.org/press-releases/new-fda-records-humanized-mice/)显示 FDA 曾采购了人类胎儿器官、组织和头颅用于涉及“人源化小鼠”的研究。《司法观察》的[**先前文件**](https://www.judicialwatch.org/press-releases/fda-humanized-mice/)显示，FDA 要求采购“新鲜且从未冷冻”的胎儿器官清单。[（相关：未密封的发票显示，计划生育协会向一家细胞组织公司支付了近 2.5 万美元的胎儿部位商品费用）](https://dailycaller.com/2020/04/14/planned-parenthood-david-daleiden-stemexpress-fetal-body-parts-payments-lawsuit/)
 
-**兰州一中学在做心理健康调查时，居然要求学生填家庭收入。而官方解释牵强**
+“我已经做了 23 年了。我们从 FDA 和我们的其他诉讼中获得的这些文件……它们是我生来见过的最糟糕的文件，”《司法观察》主席汤姆·菲顿（Tom Fitton）周五告诉 Daily Caller News Foundation Friday。“我生来见过的最令人不安就是这文件了。”
 
-9月2日网民反映兰州市某中学下发的心理健康档案中竟有一栏“家庭年收入”。另外，还有新生报到则要除年收入外，另外采集家长工作单位和职务。
+在周五给 DCNF 的一份声明中，FDA 并未否认购买未出生婴儿的身体部位（商品），并淡化了其对人类胎儿组织的使用，称其仅用于“对了解药物和疫苗的安全性至关重要的情况，且无法通过其他方式来实现。”
 
-10月20日，兰州市西固区委回复称，学校于9月2日为初一新生下发学生心理健康档案，表中确有“经济状况(家庭年收入)”一项，但班主任明确告知学生“经济状况(家庭年收入)”栏为选填项目，学生及家长自主选择是否填写。该校每年均要对入校新生建立心理健康档案。该学校于9月2日为初一新生下发学生心理健康档案，表中确有“经济状况(家庭年收入)”一项，但班主任明确告知学生“经济状况(家庭年收入)”栏为选填项目，学生及家长自主选择是否填写；心理档案作为全面掌握学生心理健康的重要依据，由学校心理咨询室教师负责专门收装，专人保管，确保学生及家长的个人信息安全。
+“自 2018 年以来，FDA 没有签订任何购买人类胎儿组织的合同，”FDA 告诉 DCNF，并补充说“之前涉及人类胎儿组织的研究仅占 FDA 总研究的很小一部分。”
 
-作者简评：我想问问，心理健康和家庭收入有关系么？专人保管就不泄露了么？世界上Big tech的社交媒体哪个不是信息专人保管，不一样被ccp拿到手么。“选填项”就是你窥探人家隐私的合理借口么？你们的解释也太牵强了吧！想干啥我们都猜的到。两种可能性，第一，有些别有用心的人想用人家的人脉关系为自己办事，是跑关系的敲门砖。第二，有些想当土匪的，绑票一般不都是先踩点看谁家有钱对吧？您这张表一发下去连踩点的步骤都省了，是吧？
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-402.png)
-**中国人民银行科技司原司长王永红被查**
+《司法观察》通过 2019 年信息自由法案 (FOIA)对美国卫生与公共局 (HHS)[提起的诉讼](https://www.judicialwatch.org/press-releases/judicial-watch-sues-health-and-human-services-for-documents-on-human-fetal-tissue-used-in-humanized-mice-testing/)，获得了这些跨越 2012 年和 2013 年的通信。[（相关：计划生育协会的员工作证，她想以每人 750 美元的价格出售胎儿肝脏）](https://dailycaller.com/2019/12/09/planned-parenthood-tram-nguyen-fetal-livers/)
 
-据中央纪委国家监委驻中国人民银行纪检监察组、山西省纪委监委10月20日通报：中国人民银行科技司原司长王永红涉嫌严重违纪违法，目前正在接受纪律审查和监察调查。
+《司法观察》的诉讼要求 FDA 与人类胎儿组织供应商 Advanced Bioscience Resources (ABR) 之间的所有通信和文件，这些文件涉及拟用于人源化小鼠研究的人类胎儿组织——研究人员[将](https://www.niaid.nih.gov/research/humanized-mouse-model-workshop)未发育的人类组织细胞植入活体小鼠体内的过程。
 
-作者简评：不知道是哪家的人又被哪家给斗下去了。估计在二十大之前这种事少不了。且看江派、习派斗如何发展。无论如何我相信都是我们新中国联邦赢。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-403.png)
-图片来自网络
+根据《司法观察》报道，一家联邦法院[随后命令](https://www.judicialwatch.org/wp-content/uploads/2021/03/JW-v-HHS-order-00876.pdf) HHS 公布更多关于流产胎儿组织收获的信息，并[表示](https://www.judicialwatch.org/press-releases/aborted-fetuses-information/)“有理由质疑”这些交易是否违反了禁止销售胎儿器官的联邦法律。
 
-**美国17岁男孩用气枪指警察 被连开12枪当场击毙**
+胎儿组织已被[用于](https://chancellor.ucsf.edu/blog/response-administrations-actions-fetal-tissue-research)一些为寻求治疗方法的[研究项目](https://senate.universityofcalifornia.edu/_files/reports/rm-jn-mb-restrictions-fetal-tissue-research.pdf)，包括阿尔茨海默氏症、脊髓损伤、眼疾和艾滋病毒，但宗教和反堕胎倡导者认为这种做法是不道德的，因为胎儿组织来自流产的婴儿。 [（相关：胎儿组织研究对医学至关重要吗？专家是这样说的）](https://dailycaller.com/2019/06/07/fetal-tissue-research/)
 
-一名17岁的男孩16日晚上被佛罗里达州塔彭斯普林斯市警察射杀。这名少年曾用空气动力弹丸枪指着警察，警察多次开枪将其射杀。
+在前美国总统唐纳德·川普(Donald Trump)执政期间，HHS [对](https://dailycaller.com/2019/06/05/trump-cancel-fetal-tissue-research-government-funding/)由美国政府资助的涉及[选择性流产胎儿组织的](https://dailycaller.com/2018/08/17/planned-parenthood-video-abortions/)研究[进行](https://dailycaller.com/2019/06/05/trump-cancel-fetal-tissue-research-government-funding/)了为期九个月的审查 ，最终 HHS 在 2019 年 7 月禁止 NIH 内部研究团队使用胎儿组织。
 
-当地警方表示，警方当天接到了多个报警电话，称有人向路人挥舞一支“军用步枪”。塔彭斯普林斯警察局长杰弗里称：当警察到达时，亚历山大·金举起气枪并指向警察。警方后来向亚历山大开了12枪。亚历山大被击中多处，并被送往当地医院，在那里他被宣布死亡。
+值得一提的是，拜登政府在今年 4 月份[撤销了](https://dailycaller.com/2021/04/16/joe-biden-roe-v-wade-department-of-health-and-human-services-donald-trump/?filter_by=popular&amp;p=374&amp;page=66&amp;ref=hexometer)这项禁令。
 
-作者简评：收录这篇新闻的目的是想让读者有个常识。在合法拥枪的国家，涉及到枪支的问题要谨慎再谨慎。无论大人还是孩子对待枪支都要无比的理智，否则您就不配用枪支去捍卫您的权利。七哥直播时也说过，在美国任何人都不能拿枪指着警察或者拿枪对公众造成威胁，否则会有意想不到的后果。如果以后新中国联邦可以合法拥枪的话不要发生这样的悲剧。
+“所以现在拜登政府的 FDA 正在为制造中共疫苗而选择使用未出生人类的部分商品，并为之辩护，”Fitton 对 DCNF 说。“这就是他们要干的事情？”
 
-（本文纯属个人观点与G news无关）
+“很少有美国人会支持将未出生人类的遗骸切碎用于科学研究，使用他们的器官，出售他们的头颅，用于FDA和他们的研究人员想做的任何弗兰肯斯坦实验，”Fitton 对 DCNF 说。”这是野蛮行为。应该进行刑事调查，以弄清是否像法院所建议的那样，违反了禁止销售胎儿器官以谋取暴利的法律。”
 
-参考文献：
+美国计划生育协会（The Planned Parenthood Federation of America）一再为自己的[指控辩护](https://dailycaller.com/2020/04/14/planned-parenthood-david-daleiden-stemexpress-fetal-body-parts-payments-lawsuit/)，就是关于其出售人类胎儿组织的指控。该组织[公开](https://www.wsj.com/articles/planned-parenthood-stops-taking-reimbursements-for-fetal-tissue-1444744800)承认他们因为销售胎儿组织获得了报酬，但他们只承认用来报销费用（没有利润，可能吗？），随后表示他们将不再接受报销费用（资金来源被隐藏了）。
 
-[https://www.163.com/dy/article/GMR4OL2I0514D3UH.html](https://www.163.com/dy/article/GMR4OL2I0514D3UH.html)
+像大卫·达莱登 (David Daleiden，如下图) 这样的反堕胎倡导人士[此前曾指出](https://www.foxnews.com/politics/pittsburgh-live-fetus-organs)，一些未出生的婴儿在摘取器官时可能会出现心脏活动，这表明这些婴儿可能还活着。FDA 没有立即回应关于这一点的评论请求。
 
-[https://www.163.com/dy/article/GMQS20240514R9P4.html](https://www.163.com/dy/article/GMQS20240514R9P4.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip45.png)
 
-[https://finance.sina.com.cn/money/bank/gsdt/2021-10-20/doc-iktzscyy0744907.shtml](https://finance.sina.com.cn/money/bank/gsdt/2021-10-20/doc-iktzscyy0744907.shtml)
+**简评：**
 
-[https://new.qq.com/omn/20211020/20211020A0AR1X00.html](https://new.qq.com/omn/20211020/20211020A0AR1X00.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip47.png)
 
-*审核、编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+**一则相关[报道](https://www.judicialwatch.org/in-the-news/new-records-aborted-babies/)。有新记录[显示](https://www.lifenews.com/2021/09/14/new-records-show-obama-admin-purchased-aborted-babies-heads-for-515-each/)，奥巴马政府以每个 515 美元的价格购买了流产婴儿的头部。**
+
+**《司法观察》于2021年9月15日宣布，其收到了美国食品和药物管理局 (FDA) 的 [198 页](https://www.judicialwatch.org/documents/jw-v-hhs-fda-humanized-mice-may-2021-00876/)记录和通讯，涉及“[人性化小鼠](https://www.ewtn.com/catholicism/library/fetal-experimentation-frankenstein-revisited-9610)”（HM）对人类胎儿头部、器官和组织的研究，包括与人类流产胎儿组织提供商 Advanced Bioscience Resources 的通讯和合同(ABR)。**
+
+**这对华人的冲击是很大的，因为华人经历过毛时代的“计划生育”，这导致了5亿华人的婴儿流产死亡。那么在疫情大流行的当下，您还相信这里面没有利润吗？我们要好好去想想。当然，也包括了中共疫苗。**
+
+（文章仅代表作者观点与GNEWS无关）
+
+**新闻来源**：[dailycaller.com] | [FDA Says It Does Not Buy Fetal Tissue — Any More](https://dailycaller.com/2021/09/17/fda-aborted-fetal-tissue-humanized-mice/)| 作者：MARY MARGARET OLOHAN｜发布时间：2021年9月17日｜
+
+* * *
+
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
