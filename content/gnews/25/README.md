@@ -2,39 +2,39 @@
 ---
 
 
-## 中共病毒溯源：承认自然起源可获百万美元
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1606789/)
+## MD共和党国会议员：伊维菌素可以治疗中共病毒
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1606838/)
 
-编译：西班牙喜悦农场–wenwu
+翻译：西班牙喜悦农场–wenwu
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-2-12.jpg)图片来源：thenationalpulse.com
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-6-8.png)图片来源：finance.sina.cn
 
-Malik Peiris 博士曾在《柳叶刀》医学杂志的 COVID-19 起源调查委员会任职，他的研究在于帮助中共关于中共病毒（COVID-19）自然起源的错误说法，并因此获得了中共国的”诺贝尔奖”。
+一位来自[马里兰州](https://www.foxnews.com/category/us/us-regions/northeast/maryland)的[共和党](https://www.foxnews.com/category/politics/house-of-representatives/republicans)国会议员也是一名执业医师，他说他给感染中共病毒的患者开了伊维菌素药物，用于治疗中共病毒（COVID-19）的早期阶段。
 
-Peiris 是[一名](https://thenationalpulse.com/news/lancet-scrubs-entire-covid-origins-team/)在香港工作的斯里兰卡病毒学家，他是领导[现已解散的](https://www.wsj.com/articles/covid-19-panel-of-scientists-investigating-origins-of-virus-is-disbanded-11632571202)《柳叶刀》调查 COVID-19 起源的12 位科学家之一。虽然该工作组已不再列在该医学期刊的网站上，因为它因与武汉病毒研究所的广泛[利益冲突](https://thenationalpulse.com/exclusive/lancets-jeffrey-sachs-covid-commission-chair-ccp-ties/)而被迫解散，但[存档](https://web.archive.org/web/20210126092406/https:/covid19commission.org/origins-of-the-pandemic)网页显示 Peiris [参与](https://web.archive.org/web/20210623213920/https:/covid19commission.org/malik-peiris)了这项工作。
+代表马里兰州第一个国会选区的美国众议员安迪·哈里斯（Andy Harris）在给[Fox 5 DC 的](https://www.fox5dc.com/news/maryland-rep-andy-harris-prescribes-ivermectin-to-patient-diagnosed-with-covid-19)一份声明中说：“我曾开出伊维菌素作为早期治疗 COVID 的方法。”
 
-在 Peiris 在工作组任职之后，中国共产党将 2021 年未来科学奖中的生命科学奖（称为中共国的“诺贝尔奖”）[授予](http://www.futureprize.org/en/laureates/detail/54.html)了他。这是中共国的最高科学荣誉，还[伴随着](https://www.thestandard.com.hk/section-news/section/4/234120/HKU-medicine-profs-win-'China's-Nobel-Prize') 100 万美元的奖金，最终由[百度](https://qz.com/1708662/chinese-tech-giants-tools-of-the-communist-party-us-official/)、[高瓴](https://thenationalpulse.com/politics/tiktok-ccp-investor/)资本（Hillhouse Capital）和[红杉](https://thenationalpulse.com/news/revealed-lincoln-project-donors-include-romneys-bain-capital-ccp-linked-secquioa/)资本(Sequoia Capital China）等多家与中共有关的公司[资助](http://www.futureprize.org/en/nomination.html)（支付）。
+哈里斯曾是约翰·霍普金斯医院的医生、海军预备役的医疗官，以及在来到国会之前是一名州参议员。他目前仍然在马里兰州伊斯顿的纪念医院做兼职工作。他是马里兰州在国会中唯一的共和党代表。 在此之前，美国各地至少有超过24起医疗诉讼，其中许多是最近几周，人们试图迫使医院向感染 COVID 的亲人提供伊维菌素，这是一种寄生虫药物，保守派评论员将其作为一种治疗中共病毒的方法推广。即使如此，伊维菌素仍未经 FDA 授权或批准用于预防或治疗 COVID-19。根据疾病控制和预防中心 (CDC) 最近的健康咨询，伊维菌素滥用和过量服用在大流行期间攀升，正如人们就伊维菌素相关毒性向毒物控制中心发出的呼吁所表明的那样。
 
-国营[媒体](https://www.globaltimes.cn/page/202109/1234039.shtml)《环球时报》声称，该奖项是为了表彰他“发现 SARS-CoV-1 是 2003 年全球 SARS 爆发的病原体，对防治 COVID-19 和新兴的传染病具有重要影响。” Peiris 与合著者袁国勇（Kwok-Yung Yuen）等4人分享了该奖项（如下图）。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-5-8.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-3-9.png)图片来源：thenationalpulse.com
+2021 年 9 月 9 日星期四，佐治亚州一家药房里，药剂师在后台工作时，一盒伊维菌素出现在药房里。 （上图是美联社照片/迈克·斯图尔特）
 
-在接受中国共产党管理的媒体机构的独家采访时，袁[断言](https://island.lk/lankas-malik-peiris-shares-chinas-nobel-prize-of-usd-1-mn-with-yuen/)：“这不仅是在中共国最重要的奖项之一，也是国际上最重要的奖项之一。”
+马里兰大学海岸地区卫生局在提供给[WBAL-TV 的](https://www.wbaltv.com/article/andy-harris-prescribes-ivermectin-as-treatment-for-early-covid-19/38008064#)一份声明中说：“安迪·哈里斯博士没有被马里兰大学医疗系统或马里兰大学（UM）海岸地区卫生局聘为医生；哈里斯博士与一个独立的医师团体签订合同，该医师团体为海岸地区卫生局（UM SRH）医院提供麻醉和其他医疗服务。医院与提供特定临床服务的团体签订合同，是整个医疗行业的普遍做法。”
 
-Peiris 的研究受到奖项评审员的称赞，称其在追踪 COVID-19 起源方面发挥了不可或缺的作用，评审员王晓东指出，“由于他们的贡献，中共国科学家能够快速确定中共病毒（COVID-19）大流行的原因。” 很显然，港大的这项研究支持了中国共产党的[虚假](https://thenationalpulse.com/exclusive/wuhan-lab-erases-nih-ties-gof-research/)叙述，即 COVID-19 是自然形成的，而不是从实验室逃逸出来的。
+该声明继续表示：“伊维菌素未经 FDA 授权或批准用于预防或治疗 COVID-19，并且尚未证明对这些适应症是安全或有效的；美国国立卫生研究院 (NIH，福奇) COVID-19 治疗指导小组还确定，目前没有足够的数据推荐伊维菌素用于早期治疗 COVID-19。”
 
-正如《环球时报》所解释的那样，Peiris 的研究有助于“支持 SARS-CoV-2 的蝙蝠起源”：
+[2020 年 6 月的一项研究](https://www.sciencedirect.com/science/article/pii/S0166354220302011)表明，单剂量的伊维菌素可在 24 小时内将细胞中 COVID 的病毒载量减少 99.8%，并发现“伊维菌素是体外的 COVID-19 致病病毒（SARS-CoV-2）的抑制剂。*”*
 
-当被问及他们的发现如何影响人们对 COVID-19 病因的理解时，袁解释说，由于他和他的团队在 2005 年发现马蹄蝠是 SARS-CoV-1 的天然动物宿主（祖先），他们认为 SARS- CoV-2 “在跳入人类之前，也从蝙蝠传播到了另一种哺乳动物。”
+医院出于利益对该诉讼进行了反击，并称他们的护理标准不允许他们给病人服用一种尚未被批准，可用于中共病毒并或可能造成伤害的药物，而且允许外行人和法官推翻医学专家（福奇）的意见，本身是一条危险的道路。
 
-此外，SARS-CoV-2 在蝙蝠和人类肠道器官中复制得很好，这进一步支持了 SARS-CoV-2 的蝙蝠起源，他说。
+据 WBAL-TV 报道，美国药剂师协会和美国医学协会在 9 月发表声明称，这两个组织都“强烈反对在临床试验之外订购、开具或分发伊维菌素以早期预防或治疗 COVID-19”。
 
 （文章仅代表作者观点与GNEWS无关）
 
-**新闻来源：**[thenationalpulse][Lancet COVID Origins Investigator Wins $1 Million Chinese Prize For Claiming Virus Developed Naturally.](https://thenationalpulse.com/exclusive/lancet-covid-investigator-wins-china-nobel-prize/) | 作者：Natalie Winters｜发布时间：2021年10月20日
+**新闻来源：**[foxnews][Maryland U.S. Rep. Andy Harris prescribes ivermectin to patient to treat COVID-19](https://www.foxnews.com/politics/maryland-gop-congressman-prescribes-ivermectin-covid-19-patient) | 作者：Danielle Wallace｜发布时间：2021年10月20日｜封面图来源：(Stefani Reynolds/Bloomberg via Getty Images)
 
 * * *
 
 *发稿：信心的选择*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)

@@ -2,41 +2,19 @@
 ---
 
 
-## 柳叶刀追溯新冠起源人員因声称病毒是自然产生的而获得 100 万美元的中国奖
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1606719/)
+## 中共国汽油“第20次”涨价
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1606794/)
 
-作者： Natalie Winters
+#### 撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-108.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp1-tt.byteimg.com%2Forigin%2Fpgc-image%2F898570c315a74e8890ed4549fa6f31e9%3Ffrom%3Dpc&amp;imgrefurl=https%3A%2F%2Fsunnews.cc%2Ffinances%2F269609.html&amp;tbnid=nlB72pLRL6FZ-M&amp;vet=10CAQQMyhlahcKEwjw1KTLldnzAhUAAAAAHQAAAAAQAg..i&amp;docid=AJK-qUDSX-qgAM&amp;w=1079&amp;h=839&amp;itg=1&amp;q=%E7%BB%A7%E7%BB%AD%E6%B6%A8%E4%BB%B7&amp;ved=0CAQQMyhlahcKEwjw1KTLldnzAhUAAAAAHQAAAAAQAg)
+10月20日网易新闻报道，由于受国际油价继续小幅上涨，国内油价“第20次”调价，将在本周五晚上12时开启（10月22日24时），油价将再次上调，当前统计涨幅已超过2毛，国际油价不断上涨，涨幅会继续增大，10月18日，第6个工作日，国内油价周期统计，累计上调280元/吨，折算为上调0.22—0.24元/升，50升计算将多花11元左右，调价时间为10月22日24时！
 
-曾在《柳叶刀》医学杂志的新冠起源调查委员会任职的马利克·佩里斯博士因研究肯定了中国共产党关于新冠自然发展的错误叙述而获得了中国的“诺贝尔奖”。
+随着国际油价上涨，中共国加油站闻风而动提前放风涨价，能源短缺已成为中共国严重问题，煤价、油价都正在上扬，与之相联系的电价、取暖费等也将上涨。在这种情况下，保障民生显得异常重要，在中共独裁者体制下的国人从来都是用来榨取奴役的，从未考虑过民生问题。
 
-佩里斯是一名在香港工作的斯里兰卡病毒学家，他是领导现已解散的 《柳叶刀》调查新冠起源的12 位科学家之一。虽然该工作组不再列在医学杂志的网站上，因为它因与武汉病毒研究所的广泛利益冲突而被迫解散，但存档网页显示佩里斯参与了这项工作。
+消息来源：[今年第20次上涨，油价又要变](https://mo.mbd.baidu.com/r/v1VUT46DIc?f=cp&amp;rs=2883152522&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0554fe7e6e8e554c)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Prize.jpeg)
+(文章仅代表作者本人观点，与GNEWS无关)
 
-佩里斯在工作组任职之后，中国共产党在 2021 年未来科学奖中授予他生命科学奖 – 被称为中国的“诺贝尔奖”。中国最高科学荣誉伴随着100万美元的奖金，由百度、高瓴资本和红杉资本中国等多家与中共有关的公司资助。
-
-国营媒体环球时报声称该奖项是为他“奖励他在2003年发现全球非典疫情的病原体SARS-COV-1，在打击新冠和新发传染病的影响。” 佩里斯与合著者袁国勇分享了该奖项。
-
-在接受中国共产党经营媒体机构的独家采访时，袁国勇说“这不仅是在中国而且在国际上最重要的奖项之一。”
-
-佩里斯的研究受到奖项评审员的称赞，称其在追踪新冠起源方面发挥了不可或缺的作用，评审员王晓东指出，“由于他们的贡献，中国科学家能够快速确定新冠大流行的原因。” 该研究支持了中国共产党的虚假叙述，即 新冠是自然形成的，而不是从实验室逃逸。
-
-來源：https://thenationalpulse.com/exclusive/lancet-covid-investigator-wins-china-nobel-prize/
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

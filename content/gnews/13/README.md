@@ -2,45 +2,139 @@
 ---
 
 
-## 马云很可能在西班牙会追随王健而去
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1606898/)
+## 人要有常识，别贪婪，更不能忘乎所以
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1606957/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/马1-e1634770233745.png)图片来源：美国新闻网
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ss-11-ai3v8-bokl7.jpg)
+[https://gtv.org/video/id=616fb274d2e2b81748775256](https://gtv.org/video/id=616fb274d2e2b81748775256)
 
+这不今天我们讲那么多题目
+Hoy hablamos tantos temas
 
-**作者：**顺其自然
-**编辑：**Candy
+希望战友们回去以后, 记住啊
+Compañeros luchadores, espero cuando regresen recuerden
 
-10月19日早报.com报道：深陷监管风暴的阿里巴巴创办人马云行踪备受关注。本月12日有报道指出：他在香港会友后，港媒最新消息称，马云上周六已飞往西班牙，目前正身处在他自己的超级游艇上，跟一班富豪朋友度假。
+在GETTR上一定以英文为主
+En GETTR debe estar principalmente en inglés
 
-据《东周刊》报道，马云是在上周六凌晨在香港乘夜机出发飞往西班牙，同行还有多名富豪好友及科技界大亨，分乘两部私人飞机，一前一后前往。
+还有加英文字幕, 否则少推
+Y agregar subtítulos en inglés o sino no lo compartan
 
-报道还说：马云日前现身西班牙，又旋即登上一艘超级游艇，与同行好友出海度假。据悉，他们是从西班牙东部的伊维萨岛启航。据了解，马云短暂留港期间，行程排得密密麻麻。知情人士透露：他曾经与友人去粉岭高球会打球，亦先后与多名香港富豪及商业伙伴密会。“他们有没有洽谈生意大计不得而知，但马云在港期间，饭局几乎一个接一个，更不时与出席的朋友打扑克和唱K。”据悉其中一个饭局，是在皇朝会私人会所设宴。
+另外一个
+Otra cosa
 
+在没有谈疫苗的不被封杀的, 赶快上YouTube
+Si no has hablado de las vacunas, y no te han bloqueado, entonces súbelo en YouTube
 
+把所有这一段都加上字幕, 各种语言
+Agregar subtítulos de todo tipo de idiomas en esta parte
 
-消息人士透露：马云自去年10月，旗下蚂蚁集团上市计划被叫停后，市场即盛传他被“禁止出境”，在大陆亦只能作有限度活动，因此他本月首次在香港露面，令财经界十分瞩目。如今转飞欧洲，让“松绑”消息进一步传开，加上阿里巴巴股价谷底反弹，外界预计马云接受连串整改接近完成，其“禁令”或获得解除。
+第三个
+Tercero
 
-对于此次马云去西班牙，郭先生在10月19日的盖特小视频中说：杰克马跑西班牙接客去了。看阿里巴巴股票，如果你们有一个人相信杰克马去西班牙是自由的，那你就傻了。杰克马完全没有自由，杰克马是完全没自由的处理资产中。一切都要脱手，江家，曾家，王岐山家，孟建柱家危也，看他们怎么弄吧。杰克马不是一般的惨，郭先生担心杰克马也跟王健一样，被弄个跳墙死。
+兄弟姊妹们一定告诉大家, 不要乱吃药
+Debo decirles compañeros luchadores, no tomen medicamentos indiscriminadamente
 
-在生死面前，在邪恶面前，中国没有男人，没有勇气，没有智者，还给自己找理由说什么为了所谓的家人。在中国成功人士的家族，这个家族的核心人物，带领家族成功的人活着，你的家族有尊严，有安全；也会有痛苦，会受到胁迫，这是你的家族要付出的代价。若这个核心人物死了，这个家族的其他人就没有尊严，没有价值，没有希望，他们的一生都是灾难。因此作为这个家族的核心成员，只有这个核心成员活着，族人和家人才有希望；不能让你的家人成为你的肉票，那是在害家人，勇敢的向威胁家人，朋友，亲人的说不！挥出你的拳头，即使输了，都不枉活一世；如果你跪下来，只是早晚让你怎么死，你家人如何死的问题。王健以及N个中国的大人物不都这下场吗？薄熙来、周永康，如何？只有灭了共产党，你才能活下去；只有新中国联邦，爆料革命能救你。
+什么都可以乱吃, 你不要乱吃药
+Pueden comer cualquier cosa, pero no tomen cualquier medicamento
 
-听了郭先生这段话，我就感觉他不只是在对马云喊话，也是在对那些个在海外处理资产的私人企业家喊话。虽然那些人在做生意过程中，和中共勾兑或者勾结做了很多的恶，如果他们现在能站出来，能和爆料革命及郭先生站在一起，一起揭露共产党的邪恶，把他们知道的所有的秘密说出来，为灭掉中共做出他们的贡献，那老百姓一定会原谅他们，也一定会他们视为英雄；因为毕竟由于他们站出来，可以让共产党早些灭亡，中国老百姓也可以少受一些苦难，而他们还有可能有机会活着，他们的家族也有可能活着。
+所以说, 咱今天讲的很多事情
+Por eso, hoy hablamos de tantas cosas
 
-但是，如果因为他们的家人在国内全都被绑架了，连同岳父岳母，他们受制于被绑架控制的家人，然后按照习近平共产党的指示，把所有在海外的资产拿回去，不敢爆料，那么他可能是王健的下场，叶简明的下场，肖建华的下场，车峰的下场！看看连退休的原财政部部长金人庆最后都是自焚死。金人庆不也把所有的资产都退回去了吗？之前中共不也保证退回资产可以保他不死吗？结果又如何呢？
+认真地挖进去
+Excave con cuidado
 
-我知道郭先生说的这段话是对他们在喊话，但是我现在有个疑虑：就是杰克马也好，或者是其他在外边儿处理资产，往回拿资产的那些企业家也好，他们的身边都跟着几十个，至少要有四五十个警察，国安、国保，他们怎么能逃脱？就像当初我们看王建一样，在郭先生放的王建的视频中，我们知道，连王健的最信任的保健医生，都是杀他的人，王健旁边都已经布满了全要杀他的人，当时王建想跑也跑不了。
+把喜币的到来
+Con la llegada de la moneda de Himalaya
 
-现在在外边处理资产的这些企业家旁边都跟着四五十人，怎么能逃掉？这些跟着的人，在国内的家人肯定也是受控制的。他们也不敢私自把这些企业家给放走了，而且旁边不是一个人，是四五十个人。那这四五十个全都买通了，那也是一件极难的事情。
+把整个G系列的这个上升
+El ascenso de toda la seria G
 
-所以杰克马这次是凶多吉少了，很可能在把资产全部处理完之后，就跟着王健去了。可怜一代中国人喊了那么多年的马爸爸，最后很可能会落得个这么凄惨的下场。马云这些年干了很多坏事是肯定的，虽然不一定有孙力军、孟建柱多，但就这么窝窝囊囊地死了，也是可惜了他的才能。
+把共产党走向崩溃的灭亡
+La destrucción y colapso que va dirigiendo el PCCh
 
-**发布：**Candy
+在这之前能传播多少信息传多少信息
+Ante todo esto, trasmitan informaciones mientras puedan
 
-**YouTube链接**：[闲聊澳洲](https://www.youtube.com/channel/UCPxB0vpNpmHN0hORXK4gj2A)
-**GTV频道：**[墨尔本雅典娜农场AthenaFarm](https://gtv.org/video/id=6153fecc42a8af3151a72e5b)
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+在你安全的情况下
+Bajo una condición segura
+
+啥也不要求你, 还是你愿意做的情况下
+No te exijo nada, sólo que estés dispuesto a hacer esto
+
+救更多的人是唯一对你的要求
+Salvar a más personas es lo único que te exijo
+
+然后不要被金钱, 喜币
+Y que el dinero, la moneda de Himalaya
+
+什么G-club. GTV
+G-club, G-TV
+
+不要把你砸晕了
+No te deje mareado
+
+这个东西你不会用好, 它一定要你的命
+Si no manejas bien esta cosa, seguramente puede quitarte la vida
+
+现在就要求七哥帮助你来处理喜币卖给谁了
+Ahora estás exigiendo a mi para ayudarte a vender la moneda de Himalaya
+
+你真有人说, 我帮你
+Si realmente hay alguien que diga eso, yo te ayudo
+
+能帮你卖喜币的人, 你想想
+La persona que pueda ayudarte a vender la moneda de Himalaya, piensa
+
+他能帮你卖喜币, 你认识他吗
+Él puede ayudar a venderla, tú lo conoces?
+
+他有啥资格帮你卖喜币啊
+¿ Con qué derecho tiene él para ayudarte a vender la moneda?
+
+他能把你喜币给你骗了, 还害死你呢, 谋财害命呢
+Él puede engañarte con tu moneda y matarte, matarte por el dinero
+
+对不对, 这都有可能
+Es cierto o no, todo es posible
+
+所以说人呐
+Por eso las personas
+
+有常识别贪
+Cuando tengan sentido común, no sean codiciosos
+
+还有享受喜币和既得利益的时候
+Y cuando esten disfrutando de la moneda de Himalaya y de los intereses
+
+别忘乎所以
+Mucho menos olviden de todo
+
+别忘乎所以
+Mucho menos olviden de todo
+
+别把自己折腾没了
+No acaben con ustedes mismos
+
+———————————————————
+
+**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1450095615388446722?s=24](https://twitter.com/se1y7cblljselva/status/1450095615388446722?s=24)
+
+日期: 10/19/2021
+原视频标题：
+Las personas deben tener sentido común, no ser codiciosos y mucho menos olvidarse de todo
+
+原视频日期: 10/18/2021
+任务编号：KC183（2593）
+视频时间段：0:00-1:29
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

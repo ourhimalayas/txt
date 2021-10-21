@@ -2,93 +2,59 @@
 ---
 
 
-## 房地产倒塌中共会更加猛烈地打台湾
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1606937/)
+## 美最高法拒绝了医疗工作者对强制疫苗的挑战
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1607009/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/12-a71ie-wzywl.jpg)
-[https://gtv.org/video/id=616fb15dd2e2b8174877521b](https://gtv.org/video/id=616fb15dd2e2b8174877521b)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**郭文贵**
-**Miles Guo**
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/S-4.jpg)bcnntwo.home.blog
+以极其不爽的心情看完了这则消息，但又不得不承认这就是现实，美国的当下。文贵先生几年的经历，饱尝了美国基层的司法腐败，并断言，中共不灭，美国司法腐败将更加广泛，且向上延伸。最高法院对2020大选舞弊质疑的处理方式（连卷宗都不看，“不予受理”），一定程度反映出最高法院遭渗透的迹象，此次对挑战疫苗强制令的判决，进一步证明最高法院与阴谋集团的同流合污。
 
-那么另外一个兄弟姐妹们要看到房地产，为啥我们要再谈房地产
-Then the another one, brothers and sisters, you need to look at the real estate, so why do we have to talk about real estate again?
+《塔克·卡尔森团队》（Team Tucker Carlson）10月20日傍晚发表文章，题目“最高法院拒绝阻止医疗工作者强制接种疫苗“。
 
-房地产等倒塌一定会导致共产党，更加猛烈地打台湾
-The collapse of real estate and others will definitely cause the Communist Party to attack Taiwan more violently
+全文如下：
 
-为什么这么说，知道吗？因为房地产的倒塌，
-You know why I talk about this way? Because of the collapse of real estate
+美国最高法院周二（10月19日）拒绝阻止缅因州医疗工作人员强制接种疫苗，这可能为全国各地的州政府开了绿灯。
 
-最大的受害者就是江家、曾家、朱家、王岐山家
-the biggest victims of real estate are Jiang family, Zeng family, Zhu family, and Wang Qishan family
+这是最高法院首次介入州一级的强制疫苗接种政策，此前，它拒绝了纽约市教师、印第安纳大学教职员工和学生对强制疫苗令的挑战。
 
-所有的倒塌的问题（是）这钱去哪了？现在习也蒙了
-All the questions about the collapse is where the money go? Now even Xi is stunned too
+斯蒂芬·布雷耶（Stephen Breyer）法官驳回了紧急上诉，但在缅因州的强制接种期限即将到来之际，他敞开了再次尝试的大门，该州将于10月29日开始执行。
 
-老看我们直播报告，到底咱这些钱去哪了
-He read our live broadcast report all the time, and in the end where our money went?
+民主党州长珍妮特·米尔斯（Janet Mills）提出的缅因州疫苗强制措施要求医院和养老院工作人员接种疫苗，否则将面临失业的风险。
 
-65万亿的房地产，十几万亿所谓的互联网产业，将近100万亿的金融产业
-65 trillion dollars real estate, more than a trillion dollars so-called Internet in-dustry, nearly 100 trillion dollars financial industry
+反对者试图阻止这项强制令，但一名联邦法官于10月13日驳回了这一请求。法官说，记录表明，单靠常规检测不足以阻止delta变种的传播。
 
-中国共产党咱们给它算算账，20年前加入WTO
-Let’s calculate it for the CCP when they joined the WTO 20 years ago
+这一决定引发了一系列向美国第一巡回上诉法院和美国最高法院提出的紧急上诉。
 
-一共150万亿美元也好，100万亿美元也好，所有扩张出来的财富都去哪了
-Whether it’s a total of 150 trillion US dollars or 100 trillion US dollars, where did all the expanded wealth go?
+波士顿上诉法院的一个由三名法官组成的小组很快驳回了这一紧急上诉，但快速跟进了更多的辩解。该时间表为下周末开始执行疫苗强制令之前的另一项裁决提供了足够的时间。
 
-习也懵叉了，这时候我告诉你，
-Xi is also stunned, this time I will tell you,
+《自由法律顾问》（the Liberty Counsel）的创始人兼主席马修·斯塔弗（Mat Staver）对疫苗强制政策提出了质疑，他说，最高法院准备在未来几天内考虑“如果我们不能从上诉法院得到合理解释”的情况。
 
-老百姓的房产倒塌导致的房产倒，保险必然倒，保险倒，银行一定倒
-the collapse of Laobaixing’s property will lead to the collapse of the real estate industry, insurance has to collapse, insurance collapses, banks must also follow the fall
+缅因州总检察长办公室拒绝置评。
 
-银行倒，信托也得倒，那么就是粮食供应链一定倒，
-bank collapses, the trust also has to collapse, then the food supply chain must collapse
+《自由法律顾问》8月在缅因州联邦法院提起诉讼，声称代表2000多名不愿被迫接种疫苗的医护人员。
 
-这个时候全世界（都在）问，钱去哪了？全中国人
-At this time, the whole world all asked where did all the Chinese people’s mon-ey go?
+数十名医护人员选择辞职，而位于刘易斯顿（Lewiston）的缅因州中央医疗中心已经因为护士“严重短缺”而减少了一些入院人数，但大多数医疗工作者都遵守了这一规定。
 
-这时候你去想想，最想转移目标的人是谁呀
-At this time, think about who is the person wants to shift the target most?
+州机构誓言要单独与医院和疗养院合作解决这些问题。
 
-是王岐山、江志成、曾庆红、朱镕基，这些最有钱的家族
-It’s Wang Qishan, Jiang Zhicheng, Zeng Qinghong, Zhu Rongji, these the richest families
+乔·拜登（Joe Biden）在9月份实施了一项联邦疫苗强制令，要求所有员工超过100人的公司确保其员工接种疫苗或每周进行一次中共病毒的检测，这项强制令将影响大约1亿美国人，许多团体计划在这项政策生效后立即提出挑战。
 
-打台湾，大家都变成了全部小粉红
-Attack Taiwan, everyone becomes “Patriotic Little Pink”
+拜登在介绍这强制令时说：“我们将保护接种疫苗的工作人员不受未接种疫苗的同事的伤害。”“我们将通过增加全美企业接种疫苗的劳动力比例来减少中共病毒的传播。”
 
-你们没有意识到这个事对台湾多危险，一打台湾，一了结了
-You didn’t realize that this thing is so dangerous for Taiwan, once there is war against Taiwan, it’s all over
+共和党南达科他州州长克里斯蒂·诺姆（Kristi Noem）发誓在拜登宣布这项政策的当天起诉联邦政府，亚利桑那州也已提起诉讼。几天后，24个州的总检察长签署了一封公开信，誓言如果拜登的强制令生效，将采取法律行动。
 
-甚至马上换新版人民币，不叫人民币了，叫什么币都有可能
-Even change to new version of RMB right away, may not call RMB, what it may call?
+“你的计划是灾难性的，适得其反。”该组织在信中写道，“如果你的政府不改变其方针，下面签字的州总检察长将寻求一切可用的法律选择，追究你的责任，维护法治。”
 
-也可能跟九指妖叫撒币，也可能叫路大脑币，是吧
-It may also be called Sa coin with the nine-finger witch, or it may be called LuDe coin, right?
+最高法院（SCOTUS，Supreme Court of the United States）尚未参与拜登的联邦强制令。
 
-也可能叫蛇妖币都有可能
-It may also be called Snake Witch Coin
+（原文完）
 
-———————————————————
+这是阴谋败露前的疯狂，越是这样，越能反映罪恶者的迫不及待以及孤注一掷，等待阴谋曝光是死，作垂死挣扎也是死，都将是死路一条！世人若是觉醒得快些，邪魔被铲除日子能快些到来，战友们加油！
 
-**原视频接:**[https://twitter.com/se1y7cblljselva/status/1449361751544254466?s=24](https://twitter.com/se1y7cblljselva/status/1449361751544254466?s=24)
+（文章只代表作者本人观点）
 
-Date:10/17/2021
-原视频标题:
-The CCP will attack Taiwan even more violently when their real estate market collapses
-原视频日期：2021/10/13
-任务编号：KC179（2570）
-视频时间段 : 0:00-2:04
+原文链接：
 
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[https://teamtuckercarlson.com/news/supreme-court-declines-to-block-vaccine-mandate-for-health-workers/](https://teamtuckercarlson.com/news/supreme-court-declines-to-block-vaccine-mandate-for-health-workers/)

@@ -2,24 +2,21 @@
 ---
 
 
-## 美国国土安全部部长马约卡斯新冠检测结果呈阳性
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1606325/)
+## 水灾后的缺粮已显现
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1605959/)
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/10/下载-6-edited.jpg)图片来源：网络
-当地时间10月19日，美国国土安全部新闻发言人表示，部长马约卡斯在当天早间的新冠检测结果呈阳性。
-据报道，马约卡斯已经接种了新冠疫苗，目前症状较轻。他将根据疾控中心指导意见，立即进行隔离并居家办公。密切接触者追踪程序正在进行中。
-此外，马约卡斯原定将与美国国务卿布林肯一道前往哥伦比亚，目前该行程已经取消。
+#### 撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ert.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2020%252F0723%252Fcb60327ej00qdx9os003ec000xc00m8m.jpg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FFI8F64690539BX8Z.html&amp;tbnid=yeDumOu9LhDj1M&amp;vet=12ahUKEwjQnuj12djzAhU0JaYKHZ7qCk8QMygEegUIARClAQ..i&amp;docid=qV86qo8WQz1e3M&amp;w=650&amp;h=434&amp;itg=1&amp;q=%E8%BF%9B%E5%8F%A3%E5%B0%8F%E9%BA%A6&amp;ved=2ahUKEwjQnuj12djzAhU0JaYKHZ7qCk8QMygEegUIARClAQ)
+中国新闻网哈尔滨10月19日电，黑龙江省对俄农业产业协会19日发布消息，中粮集团从俄罗斯进口的667吨小麦抵达黑河口岸，于19日脱箱卸到当地海关监管库。这是中共国首次成规模地从俄罗斯远东地区进口小麦，这打开了中俄农业合作的一个新渠道。
 
-另据报道，美国土安全部长检测阳性， 日前曾无口罩站拜登身边。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-29.jpg)
-**评：疫苗从最初开始的预防感染，到预防重症，再到预防死亡，进而发展到几个月之后又要打加强针。从前国务卿鲍威尔的死亡到现任国土安全部长马约卡斯的感染病毒，再次戳破了疫苗谎言**。为了您自己和家人的健康，请拒绝疫苗。并关注Gnews，G-TV & Gettr。
+据黑龙江省对俄农业产业协会秘书处一位负责人介绍，自从20世纪90年代，黑龙江开始开展中俄农业合作以来，这是进口小麦数量最大的一次。
 
-文章和来源：[https://www.usnews.com/news/us/articles/2021-10-19/us-homeland-security-secretary-tests-positive-for-covid-19-media](https://www.usnews.com/news/us/articles/2021-10-19/us-homeland-security-secretary-tests-positive-for-covid-19-media)
+小麦是中国人最重要的口粮之一，进口667顿的小麦，俨然成为规模？中共国是世界上最大的小麦生产国，整个中共国都有种植小麦的产区。从北到南，小麦的主产区一直都有分布。之所以要进口小麦，是南北水灾造成的严重损失，粮食危机在不久的未来一定会显现。
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+消息来源：[中国首次成规模进口俄罗斯小麦 667吨小麦运抵中国口岸](https://me.mbd.baidu.com/r/v2oTGESPZu?f=cp&amp;rs=1846487702&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=7212c7f377841973)
 
-编辑/发布：LILY
+(文章仅代表作者本人观点，与GNEWS无关)
 
-20211020
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
