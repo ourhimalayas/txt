@@ -2,23 +2,57 @@
 ---
 
 
-## 疫苗灾情｜澳洲 30 岁夫妇接种疫苗后相继出现心脏疾病
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1607321/)
+## 有声| 每日读经 ：马太福音（5:3-12）论福
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1607387/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 21/10/2021**
+配音：香草山福音部-Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-【澳洲】一对 30 岁左右的夫妇在接种辉瑞 COVID-19 疫苗后不久，相继出现心脏问题。
 
-Daniel Shep 在接受完第一剂之后就出现胸口痛，而他的太太，则是 10 月 16 日打完第二针之后的第二日，出现严重胸痛，经医院诊断后，这对平时有良好运动习惯的年轻夫妇，丈夫 Daniel 患上心包炎，太太则患上心肌炎。
 
-**Daniel 将自己的经历在社交媒体上分享出来，提醒其他人警惕新冠疫苗的风险。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/41-1.jpg)
 
-来源｜个案041
 
-* * *
 
-他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//｜//[美国 35 岁疫苗拥趸孕期接种后致新生儿夭折](https://gnews.org/zh-hans/1605744/)//
+**3**.“虚心的人有福了，因为天国是他们的。
+
+**4**.哀恸的人有福了，因为他们必得安慰。
+
+**5**.温柔的人有福了，因为他们必承受地土。
+
+**6**.饥渴慕义的人有福了，因为他们必得饱足。
+
+**7**.怜恤人的人有福了，因为他们必蒙怜恤。
+
+**8**.清心的人有福了，因为他们必得见　神。
+
+**9**.使人和睦的人有福了，因为他们必称为　神的儿子。
+
+**10**.为义受逼迫的人有福了，因为天国是他们的。
+
+**11**.人若因我辱骂你们，逼迫你们，捏造各样坏话毁谤你们，你们就有福了。
+
+**12**.应当欢喜快乐，因为你们在天上的赏赐是大的。在你们以前的先知，人也是这样逼迫他们。”
+
+
+
+
+
+
+
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

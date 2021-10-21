@@ -2,93 +2,62 @@
 ---
 
 
-## 房地产倒塌中共会更加猛烈地打台湾
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1606937/)
+## 美国研究人员警告称，中共国可能占领台湾以满足其半导体需求
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1607042/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/12-a71ie-wzywl.jpg)
-[https://gtv.org/video/id=616fb15dd2e2b8174877521b](https://gtv.org/video/id=616fb15dd2e2b8174877521b)
+**摘要翻译：**
 
-**郭文贵**
-**Miles Guo**
+美国研究人员警告说，对世界顶级芯片的渴望可能促使北京侵犯台湾。
 
-那么另外一个兄弟姐妹们要看到房地产，为啥我们要再谈房地产
-Then the another one, brothers and sisters, you need to look at the real estate, so why do we have to talk about real estate again?
+作为一个事实上的独立国家，台湾拥有一些世界上最大和最先进的半导体工厂，包括世界上最大的芯片代工制造商台积电（TSMC）。
 
-房地产等倒塌一定会导致共产党，更加猛烈地打台湾
-The collapse of real estate and others will definitely cause the Communist Party to attack Taiwan more violently
+“目前，在集成电路产业，没有一个基地在产能和产量上超过台湾。”一家在美国的研究公司表示（请参考“IC观察”）。 “中共国面对的主要问题，是无法制造满足未来电子系统需求的最先进的IC设备。我们相信，与台湾的统一，是解决这个问题的必要方式。”
 
-为什么这么说，知道吗？因为房地产的倒塌，
-You know why I talk about this way? Because of the collapse of real estate
+本月早些时候，中国领导人习近平发誓要与民主台湾实现统一，以“维护主权”，尽管他并没有控制这个国家（台湾）。
 
-最大的受害者就是江家、曾家、朱家、王岐山家
-the biggest victims of real estate are Jiang family, Zeng family, Zhu family, and Wang Qishan family
+研究人员表示，北京渴望台湾岛上有能力制造世界顶级计算机芯片。
 
-所有的倒塌的问题（是）这钱去哪了？现在习也蒙了
-All the questions about the collapse is where the money go? Now even Xi is stunned too
+中国，作为全球最大的芯片进口国，处于半导体价值链的底部。
 
-老看我们直播报告，到底咱这些钱去哪了
-He read our live broadcast report all the time, and in the end where our money went?
+去年，美国限制对中国电信巨头华为和最大的本土集成电路代工厂中芯国际的出口，“我们对中国如何在未来的集成电路和电子行业中保持竞争力表示质疑”IC Insights表示。
 
-65万亿的房地产，十几万亿所谓的互联网产业，将近100万亿的金融产业
-65 trillion dollars real estate, more than a trillion dollars so-called Internet in-dustry, nearly 100 trillion dollars financial industry
+根据调查结果显示，“中国大陆和台湾合计拥有全球约37%的集成电路产能，几乎是北美的三倍。”
 
-中国共产党咱们给它算算账，20年前加入WTO
-Let’s calculate it for the CCP when they joined the WTO 20 years ago
+当今数以百万计的产品，例如洗衣机、电子产品和战斗机，都依赖计算机微芯片（也称为半导体）作为电子元件。芯片越小，性能越好，但制造需要更先进的技术和设备。
 
-一共150万亿美元也好，100万亿美元也好，所有扩张出来的财富都去哪了
-Whether it’s a total of 150 trillion US dollars or 100 trillion US dollars, where did all the expanded wealth go?
+根据IC Insights的一项研究，只有台湾和韩国可以生产10纳米（不到百分之一微米的芯片）。 数据显示，以台积电为首的台湾拥有全球最先进技术的最大份额（63%），韩国三星则持有剩余的37%。
 
-习也懵叉了，这时候我告诉你，
-Xi is also stunned, this time I will tell you,
+新冠病毒的大流行所导致的全球芯片长期短缺，凸显了台湾在芯片制造中的经济和战略重要性。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/102003.jpg)2020年6月16日，中共国工人在江苏省淮安市的一家工厂制造LED芯片。（STR / AFP）
+根据IC Insights的一份报告，预计到2021年，台湾专业的半导体代工厂将占全球纯代工厂市场总量的近80%。与此同时，研究人员发现台湾公司拥有台湾总集成电路产能的近90%。截至2020年12月，台湾在全球任何国家或地区的产能份额也最大。
 
-老百姓的房产倒塌导致的房产倒，保险必然倒，保险倒，银行一定倒
-the collapse of Laobaixing’s property will lead to the collapse of the real estate industry, insurance has to collapse, insurance collapses, banks must also follow the fall
+“如果中共国试图接管这个岛国，这对台湾经济将是一个灾难，但中共国经济也将受到重创”IC Insight表示。 “问题在于，中国愿意接受短暂的经济损失，以便获取在未来几年内控制世界上最先进的 IC 产能的长期利益。 可期吗？ “
 
-银行倒，信托也得倒，那么就是粮食供应链一定倒，
-bank collapses, the trust also has to collapse, then the food supply chain must collapse
+台积电最近于10月14日宣布，计划于2024年在日本开设新工厂，以满足其对芯片的长期需求。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/102004.jpg)2018年8月31日，台积电标志位于台湾新竹总部。（TyroneSiu/路透社）
+在同一天的虚拟论坛上，欧盟委员会贸易总监表示，欧盟和台湾是天然的合作伙伴，在半导体方面有着共同的价值观。
 
-这个时候全世界（都在）问，钱去哪了？全中国人
-At this time, the whole world all asked where did all the Chinese people’s mon-ey go?
+这家台湾芯片巨头还表示，将在2020年斥资120亿美元在亚利桑那州建设一家工厂，以帮助美国减少关键技术对海外供应链的依赖。台积电说厂房将于 6 月份动工。
 
-这时候你去想想，最想转移目标的人是谁呀
-At this time, think about who is the person wants to shift the target most?
+台积电股价周五上涨逾 3%，因该公司第三季度盈利超过预期，相对大盘上涨 1.3%。
 
-是王岐山、江志成、曾庆红、朱镕基，这些最有钱的家族
-It’s Wang Qishan, Jiang Zhicheng, Zeng Qinghong, Zhu Rongji, these the richest families
+**简评：**
 
-打台湾，大家都变成了全部小粉红
-Attack Taiwan, everyone becomes “Patriotic Little Pink”
+台湾作为高端芯片生产基地，加之关键的地理位置，其战略意义极大，中共垂涎已久。中共国目前即将崩溃的经济，房价，金融，和一系列政治危机，指望依靠侵犯台湾转移矛盾，但他们的军事行动必将被美，日等全世界正义力量所粉碎。
 
-你们没有意识到这个事对台湾多危险，一打台湾，一了结了
-You didn’t realize that this thing is so dangerous for Taiwan, once there is war against Taiwan, it’s all over
+原文链接：[U.S. researchers warn that China could seize Taiwan to meet semiconductor needs](https://securykid.com/u-s-researchers-warn-that-china-could-seize-taiwan-to-meet-semiconductor-needs/)
 
-甚至马上换新版人民币，不叫人民币了，叫什么币都有可能
-Even change to new version of RMB right away, may not call RMB, what it may call?
+***翻译：**Guan Yunchang*
 
-也可能跟九指妖叫撒币，也可能叫路大脑币，是吧
-It may also be called Sa coin with the nine-finger witch, or it may be called LuDe coin, right?
+***校对：**clau*
 
-也可能叫蛇妖币都有可能
-It may also be called Snake Witch Coin
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-———————————————————
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**原视频接:**[https://twitter.com/se1y7cblljselva/status/1449361751544254466?s=24](https://twitter.com/se1y7cblljselva/status/1449361751544254466?s=24)
 
-Date:10/17/2021
-原视频标题:
-The CCP will attack Taiwan even more violently when their real estate market collapses
-原视频日期：2021/10/13
-任务编号：KC179（2570）
-视频时间段 : 0:00-2:04
+编辑：【英国伦敦喜庄园编辑部】
 
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

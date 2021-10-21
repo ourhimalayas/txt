@@ -2,33 +2,32 @@
 ---
 
 
-## 政府打压疫情真相 造成全球健康危机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1607188/)
+## 新疆人权犯罪主犯王君正升任西藏一把手
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1607304/)
 
 作者：澳喜农场 – 在远方
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
 
 
-10月19日，国际特赦组织一份报告说，政府对言论自由的打压，新冠疫情期间大量错误信息的出现，使民众无法获得真相，对全球处理健康危机的能力，造成毁灭性打击。
+中共前新疆政法委书记、自治区党委副书记王君正，10月19日被宣布升任西藏党委书记。王君正由于直接参与了新疆近年来严重迫害人权的行动，是受到西方制裁最多的中共官员。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-19.jpg)
+联合国专家及一些独立学者提供的大量证据显示，中共自2016年起，关押了至少100万维吾尔族和其他少数民族穆斯林，对他们进行洗脑和强迫劳动，并禁止他们从事宗教活动。
 
-报告谴责了中共和俄罗斯政府，用严刑峻法限制言论自由。早在2019年12月，中国医护人员发出疫情警报，却受到中共残酷迫害；2020年2月，中共对发布疫情信息的个人，开展了多达5511项刑事调查。正是真相的缺乏，导致全球近500万人死亡。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-109.jpg)
-报告指出，各国阻止中共病毒和疫情真相的传播，严重侵犯了人权；社交媒体，以及有权力的人，屏蔽真相，对言论自由和健康构成严重威胁；并呼吁彻底改革大型科技公司。
+2021年3月22日，美国财政部根据全球马格尼茨基人权问责法，对新疆自治区副书记兼新疆生产建设兵团党委书记王君正，和新疆公安厅厅长陈明国进行制裁，指控他们是严重践踏人权和从事腐败的涉案人员。2021年3月，欧盟、英国和加拿大也宣布制裁新疆党委副书记王君正等4人和一家实体。
 
-参考链接：
-[国际特赦：对言论自由的攻击与大量错误信息对公共卫生危机带来危险的影响](https://www.voachinese.com/a/amnesty-international-covid-19-freedom-of-expresson-20211019/6277375.html)
+参考链接：[新疆人权犯罪主犯王君正升任西藏一把手](https://www.voachinese.com/a/China-promotes-most-sanctioned-official-to-Tibetan-party-chief-20211019/6277106.html)
 
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
 总编：木白
-编辑：七哩香
-校对/发稿：为真不破20
+编辑：飞虹
+校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
 
@@ -42,6 +41,4 @@
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)

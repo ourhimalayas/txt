@@ -2,13 +2,31 @@
 ---
 
 
-## 呼吸系统治疗师呼吁：闭嘴！不要对选择不接种疫苗的人说三道四！
-` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1606824/)
+## GTV新闻访谈简报|2021年10月20日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1606929/)
 
-文字听写翻译：文所未闻
+作者：香草山翻译部
 
-视频字幕：文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
 
-编辑/发稿：Kent
 
-*免责声明：本文仅代表作者个人观点，与G-NEWS网站无关*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1020text-SC.png)
+文章仅代表作者本人观点，与Gnews无关
+
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[晚GTV新闻访谈](https://gtv.org/broadcast/watch/6170b40283e948708d049ff1)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)

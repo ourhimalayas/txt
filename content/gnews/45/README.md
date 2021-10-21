@@ -2,41 +2,19 @@
 ---
 
 
-## 前CDC主任揭完全接种疫苗者死亡的惊人数据
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1606691/)
+## 中共国汽油“第20次”涨价
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1606794/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+#### 撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-108.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp1-tt.byteimg.com%2Forigin%2Fpgc-image%2F898570c315a74e8890ed4549fa6f31e9%3Ffrom%3Dpc&amp;imgrefurl=https%3A%2F%2Fsunnews.cc%2Ffinances%2F269609.html&amp;tbnid=nlB72pLRL6FZ-M&amp;vet=10CAQQMyhlahcKEwjw1KTLldnzAhUAAAAAHQAAAAAQAg..i&amp;docid=AJK-qUDSX-qgAM&amp;w=1079&amp;h=839&amp;itg=1&amp;q=%E7%BB%A7%E7%BB%AD%E6%B6%A8%E4%BB%B7&amp;ved=0CAQQMyhlahcKEwjw1KTLldnzAhUAAAAAHQAAAAAQAg)
+10月20日网易新闻报道，由于受国际油价继续小幅上涨，国内油价“第20次”调价，将在本周五晚上12时开启（10月22日24时），油价将再次上调，当前统计涨幅已超过2毛，国际油价不断上涨，涨幅会继续增大，10月18日，第6个工作日，国内油价周期统计，累计上调280元/吨，折算为上调0.22—0.24元/升，50升计算将多花11元左右，调价时间为10月22日24时！
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/C-6.jpg)newsoftheday.net
-爆料革命战友不会忘记，当阴谋集团打压中共病毒溯源的关键时刻，川普总统的美国疾病控制和预防中心（CDC）主任罗伯特·雷德菲尔德（Robert Redfield）勇敢地站出来，直指中共病毒来自武汉实验室，随后才有《华尔街日报》曝出武汉病毒研究所有早期患病的研究人员，掀起了追责中共的新一轮浪潮，重压之下的拜登装模作样地演出下令90天出报告的丑剧。之后，文贵先生引领的爆料革命向纵深发展，指出中共病毒、疫苗是阴谋集团攻击世界、控制世界的连环手段，正在世界觉醒之际，罗伯特·雷德菲尔德主任又有新的举动。
+随着国际油价上涨，中共国加油站闻风而动提前放风涨价，能源短缺已成为中共国严重问题，煤价、油价都正在上扬，与之相联系的电价、取暖费等也将上涨。在这种情况下，保障民生显得异常重要，在中共独裁者体制下的国人从来都是用来榨取奴役的，从未考虑过民生问题。
 
-《塔克·卡尔森团队》（Team Tucker Carlson）10月20日发表文章，题目“前疾病预防控制中心主任提供了关于完全接种中共病毒疫苗者死亡的惊人统计数据”。
+消息来源：[今年第20次上涨，油价又要变](https://mo.mbd.baidu.com/r/v1VUT46DIc?f=cp&amp;rs=2883152522&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0554fe7e6e8e554c)
 
-全文如下：
+(文章仅代表作者本人观点，与GNEWS无关)
 
-前疾病控制和预防中心主任罗伯特·雷德菲尔德星期一（10月18日）下午在接受《福克斯新闻》采访时说，最近在马里兰州死于中共病毒的人中，40%以上已经接种了疫苗。
-
-罗伯特主任在回应前国务卿科林·鲍威尔（Colin Powell）的死因时说：“很多时候，人们可能会觉得完全接种疫苗人的死亡是一件罕见的事情，我碰巧是马里兰州州长霍根（Hogan）的高级顾问，在过去6-8周里，马里兰州死亡的人中有40%以上都接种了疫苗。”
-
-在鲍威尔死于病毒并发症时，他还在与一种降低了免疫力的血癌作斗争，根据马里兰州卫生部的统计，该州65.7%的成年人已经接种了疫苗。
-
-摘自《华尔街日报》：
-
-知情人士说，美国食品和药物管理局（FDA）正在采取行动，很快将允许人们接受不同于第一次接种中共病毒疫苗剂量的强化注射。
-
-一位知情人士说，FDA不会推荐任何加强剂，但会允许人们接种不同于他们第一次施打的疫苗加强剂。
-
-知情人士说，美国食品和药物管理局（FDA）正在尽快地寻求混合施打授权，以及相应的匹配方式，据知情人士透露，FDA预计本周还将批准莫德纳和强生公司的疫苗加强剂。
-
-雷德菲尔德在唐纳德·川普任总统期间当任CDC主任，目前担任马里兰州共和党州长拉里·霍根的顾问。他发表上述言论之际，拜登政府正在继续推动加强剂疫苗的施打，而食品和药物管理局正在批准不同公司的混合疫苗加强剂。
-
-（全文完）
-
-黑暗时刻还是有良知官员的，罗伯特·雷德菲尔德便是其中一个，正是这样人的存在，美国才有希望。正义力量必将阴谋集团彻底消灭！
-
-（文章仅代表作者个人观点）
-
-原文链接：
-
-[https://teamtuckercarlson.com/news/former-cdc-director-gives-alarming-statistic-on-fully-vaccinated-covid-deaths/](https://teamtuckercarlson.com/news/former-cdc-director-gives-alarming-statistic-on-fully-vaccinated-covid-deaths/)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

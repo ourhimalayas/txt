@@ -2,38 +2,33 @@
 ---
 
 
-## 疫苗灾情｜美国 35 岁疫苗拥趸孕期接种后致新生儿夭折
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1605744/)
+## 2021/10/19 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1605924/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 20/10/2021**
+**视频内容：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpg)
+1. 突发！10月18日下午，福建福州晋安湖摩天轮发生垮塌。据悉摩天轮耗资13.3亿元，高度超120米
+2. 10月17日，浙江宁波，盲道采用白钢材质，下雨天超级滑，“无脑设计”遭网友吐槽
+3. 10月17日，北京一幼儿园被曝针扎多名孩子
+4. 医院里患者家属正在交钱，手边的旧手机却让人泪目，省吃俭用一辈子进一次医院就要掏空积蓄
+5. 女子为省住宿费，在医院地下车库席地而睡。网友吐槽只有在医院才能真正见到老百姓生活的状态
+6. 网络红人考研教师 张雪峰吐槽保持房价的手段：把村里的学校都拆掉，逼着百姓到县里上学，维持县里房价
+7. 10月18日西藏，男子自驾游发视频吐槽疑似遭服务区“宰客”，8个菜1500，一条鱼竟要600
+8. 10月17日，许昌市城市管理执法支队开展专项行动，对辖区内违规伸缩棚进行统一整治
+9. 湖南长沙一20多岁男子刺死母亲
+10. 据莆田公安消息，莆田2死3伤案嫌犯拒捕并畏罪自杀，抢救无效死亡。嫌犯疑因多年被当地村官打压，蜗居雨棚5年而杀人。当地警方曾悬赏：抓到人给2万，找到尸体给5万
+11. 无脑的路政摄像头,影响视线和安全
 
-【美国】华盛顿一名拥有公共卫生硕士学位的 35 岁女性 Amanda Makulec 在孕期接种 COVID-19 疫苗后，导致她 21 个月大的新生儿突然死亡。这是又一个怀孕后接种疫苗的不幸事件。
-
-Amanda 一直以来都是新冠疫苗的拥趸，同时亦是美国民主党的坚定支持者，她会逐字逐句反驳一切质疑疾病控制中心、主流媒体的每一个观点。因此，尽管 Amanda 2020 年 11 月左右得知自己怀孕，即将迎来第二个孩子，她仍然选择于 3 月 17 日接受了第一针 mRNA 疫苗，并按时接受第二针注射。
-
-7月中旬，Amanda 生下一个小男孩，并在社交平台分享了自己在孕期接种疫苗并顺利产子的实例，更谈及自己孕期及哺乳期接种疫苗后，可让婴儿“分享母亲的免疫保护”。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-loves-vaxx.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-vaxx1.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-Sept-18.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-J-and-J-defense.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-echo1.png)
-
-
-之后，Amanda 开始经常宣传及鼓励大家接种疫苗，多条贴文都特意标注 #GetVaccined 标签。
-
-可惜，最不幸的事还是发生了，9 月 27 日，她在推特发文指，“昨天，我 2 1/2 个月大的男婴『突然意外去世』。”但当出现有多人在评论区留言指“疫苗是导致悲剧的主要原因”时，她很快就锁住了自己的账户。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Amanda-Makulec-baby-dies.png)
-
-**小编有话说**：虽然该个案中的当事人有“咎由自取”之嫌，惟希望读者不要就这个问题嘲讽当事人，痛失孩子已是莫大伤害，任何一个疫苗灾难的背后，最该被斥责和批判的，是蓄意用疫苗杀害普通民众的少数权贵阶层。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/39-1.jpg)
-
-来源｜[个案039](https://thecovidblog.com/2021/10/02/amanda-makulec-35-year-old-washington-d-c-woman-gloats-of-being-vaccinated-pregnant-breastfeeding-newborn-son-dies-at-two-half-months/)
 
 * * *
 
-他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

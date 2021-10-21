@@ -2,19 +2,39 @@
 ---
 
 
-## 中共国汽油“第20次”涨价
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1606794/)
+## MD共和党国会议员：伊维菌素可以治疗中共病毒
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1606838/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-108.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp1-tt.byteimg.com%2Forigin%2Fpgc-image%2F898570c315a74e8890ed4549fa6f31e9%3Ffrom%3Dpc&amp;imgrefurl=https%3A%2F%2Fsunnews.cc%2Ffinances%2F269609.html&amp;tbnid=nlB72pLRL6FZ-M&amp;vet=10CAQQMyhlahcKEwjw1KTLldnzAhUAAAAAHQAAAAAQAg..i&amp;docid=AJK-qUDSX-qgAM&amp;w=1079&amp;h=839&amp;itg=1&amp;q=%E7%BB%A7%E7%BB%AD%E6%B6%A8%E4%BB%B7&amp;ved=0CAQQMyhlahcKEwjw1KTLldnzAhUAAAAAHQAAAAAQAg)
-10月20日网易新闻报道，由于受国际油价继续小幅上涨，国内油价“第20次”调价，将在本周五晚上12时开启（10月22日24时），油价将再次上调，当前统计涨幅已超过2毛，国际油价不断上涨，涨幅会继续增大，10月18日，第6个工作日，国内油价周期统计，累计上调280元/吨，折算为上调0.22—0.24元/升，50升计算将多花11元左右，调价时间为10月22日24时！
+翻译：西班牙喜悦农场–wenwu
 
-随着国际油价上涨，中共国加油站闻风而动提前放风涨价，能源短缺已成为中共国严重问题，煤价、油价都正在上扬，与之相联系的电价、取暖费等也将上涨。在这种情况下，保障民生显得异常重要，在中共独裁者体制下的国人从来都是用来榨取奴役的，从未考虑过民生问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-6-8.png)图片来源：finance.sina.cn
 
-消息来源：[今年第20次上涨，油价又要变](https://mo.mbd.baidu.com/r/v1VUT46DIc?f=cp&amp;rs=2883152522&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0554fe7e6e8e554c)
+一位来自[马里兰州](https://www.foxnews.com/category/us/us-regions/northeast/maryland)的[共和党](https://www.foxnews.com/category/politics/house-of-representatives/republicans)国会议员也是一名执业医师，他说他给感染中共病毒的患者开了伊维菌素药物，用于治疗中共病毒（COVID-19）的早期阶段。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+代表马里兰州第一个国会选区的美国众议员安迪·哈里斯（Andy Harris）在给[Fox 5 DC 的](https://www.fox5dc.com/news/maryland-rep-andy-harris-prescribes-ivermectin-to-patient-diagnosed-with-covid-19)一份声明中说：“我曾开出伊维菌素作为早期治疗 COVID 的方法。”
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+哈里斯曾是约翰·霍普金斯医院的医生、海军预备役的医疗官，以及在来到国会之前是一名州参议员。他目前仍然在马里兰州伊斯顿的纪念医院做兼职工作。他是马里兰州在国会中唯一的共和党代表。 在此之前，美国各地至少有超过24起医疗诉讼，其中许多是最近几周，人们试图迫使医院向感染 COVID 的亲人提供伊维菌素，这是一种寄生虫药物，保守派评论员将其作为一种治疗中共病毒的方法推广。即使如此，伊维菌素仍未经 FDA 授权或批准用于预防或治疗 COVID-19。根据疾病控制和预防中心 (CDC) 最近的健康咨询，伊维菌素滥用和过量服用在大流行期间攀升，正如人们就伊维菌素相关毒性向毒物控制中心发出的呼吁所表明的那样。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-5-8.png)
+
+2021 年 9 月 9 日星期四，佐治亚州一家药房里，药剂师在后台工作时，一盒伊维菌素出现在药房里。 （上图是美联社照片/迈克·斯图尔特）
+
+马里兰大学海岸地区卫生局在提供给[WBAL-TV 的](https://www.wbaltv.com/article/andy-harris-prescribes-ivermectin-as-treatment-for-early-covid-19/38008064#)一份声明中说：“安迪·哈里斯博士没有被马里兰大学医疗系统或马里兰大学（UM）海岸地区卫生局聘为医生；哈里斯博士与一个独立的医师团体签订合同，该医师团体为海岸地区卫生局（UM SRH）医院提供麻醉和其他医疗服务。医院与提供特定临床服务的团体签订合同，是整个医疗行业的普遍做法。”
+
+该声明继续表示：“伊维菌素未经 FDA 授权或批准用于预防或治疗 COVID-19，并且尚未证明对这些适应症是安全或有效的；美国国立卫生研究院 (NIH，福奇) COVID-19 治疗指导小组还确定，目前没有足够的数据推荐伊维菌素用于早期治疗 COVID-19。”
+
+[2020 年 6 月的一项研究](https://www.sciencedirect.com/science/article/pii/S0166354220302011)表明，单剂量的伊维菌素可在 24 小时内将细胞中 COVID 的病毒载量减少 99.8%，并发现“伊维菌素是体外的 COVID-19 致病病毒（SARS-CoV-2）的抑制剂。*”*
+
+医院出于利益对该诉讼进行了反击，并称他们的护理标准不允许他们给病人服用一种尚未被批准，可用于中共病毒并或可能造成伤害的药物，而且允许外行人和法官推翻医学专家（福奇）的意见，本身是一条危险的道路。
+
+据 WBAL-TV 报道，美国药剂师协会和美国医学协会在 9 月发表声明称，这两个组织都“强烈反对在临床试验之外订购、开具或分发伊维菌素以早期预防或治疗 COVID-19”。
+
+（文章仅代表作者观点与GNEWS无关）
+
+**新闻来源：**[foxnews][Maryland U.S. Rep. Andy Harris prescribes ivermectin to patient to treat COVID-19](https://www.foxnews.com/politics/maryland-gop-congressman-prescribes-ivermectin-covid-19-patient) | 作者：Danielle Wallace｜发布时间：2021年10月20日｜封面图来源：(Stefani Reynolds/Bloomberg via Getty Images)
+
+* * *
+
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)

@@ -2,15 +2,20 @@
 ---
 
 
-## 韩国预计下个月初进入“与疫共存”的生活模式
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1606940/)
+## 雅典娜时报-第088期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1607046/)
 
-韩国首尔天池农场——追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/10/WhatsApp-Image-2021-10-21-at-09.14.30.jpeg)图片来源网络
-据韩国news1新闻10月20日的报道 韩国保健福祉部长官权德喆20日在国会保健福祉委员会国政监查会上答问时表示，政府正在考虑从11月1日起尝试“分阶段恢复日常生活模式”。
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-同一天韩国疾病管理厅厅长郑银敬在出席国会保健福祉委员会国政监查会时表示，预计70%的国民将在本月23日到25日之间完成新冠疫苗全程接种。
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/10/221.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/211-1.png)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-专家们表示，虽然现行防疫措施转为“与疫共存”模式，但是近2～3年内恐怕难于重返疫情前的生活，仍然需要保持佩戴口罩，遵守基本防疫守则。为了保护未接种疫苗者，政府今后不但要提升疫苗接种率，也敦促公民遵守佩戴口罩个人等防疫守则，直到生活秩序完全恢复到疫情前。
+***发布：小红帽***
 
-[参考新闻来源](http://naver.me/xB4t7Icj)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
