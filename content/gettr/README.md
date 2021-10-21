@@ -17,10 +17,10 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 10/20/2021 11:46 PM (UTC)`
+`@miles 10/21/2021 12:40 AM (UTC)`
 
-4K测试 4K testing
-![img](https://media.gettr.com/group4/origin/2021/10/20/23/f993d69a-b6f9-60e3-4616-f518453f9927/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+直播测试 Livestream Testing
+![img](https://media.gettr.com/group11/origin/2021/10/21/00/d7becfd8-7ba0-f70c-789d-f7e23eb16a4f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

@@ -2,35 +2,38 @@
 ---
 
 
-## 俄克拉荷马州长反对拜登疫苗强制令，称接种是个人自由
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1606392/)
+## 马云江志成马明哲马化腾等企业家是中共经济超限战工具
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1606549/)
 
-【评论：】*最近我们看到了很多关于抵制中共病毒疫苗强制接种的积极消息，例如佛罗里达州的莱昂县（Leon County）因违反了佛州的疫苗护照禁令在10月12日被佛州卫生局罚款350万美元 ；德克萨斯州州长格雷格.阿博特（Greg Abbott）表示在德克萨斯州不得有任何实体对任何个人包括雇员和消费者，也包括那些之前感染病毒后康复的患者采取强制疫苗接种的要求；美国众多议员及工作人员和家人服务伊维菌素治愈中共病毒等。好消息不断，有良知和正义的人正在觉醒。*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/05438305caf44ed39fccacdaab758b05_副本.jpg)
+据郭文贵先生2021年10月20日大直播——
 
-据《网关专家》记者 Cassandra Fairbanks，2021年10月14日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-396.png)图片源自thegatewaypundit.com
-俄克拉荷马州州长凯文·斯蒂特 (Kevin Stitt) 宣布，他们将把拜登政府告上法庭，原因是他们计划对拥有 100 名以上员工的企业实施疫苗强制接种。
+再一个，最后我再告诉大家马云，我今天负责任地告诉大家，所有马去这跟随马云的20个人当中，涉及到中国的老板、中国的企业家，什么黄有龙、赵薇这都是小人物，主要是江志成，江志成的博裕投资都在哪里？大家看一看：微信、滴滴打车、上海银行、兴业银行，下边涉及到上千个基金，所有的包括抖音、Zoom全部都是他们。
 
-在周四发布的一段视频中，斯蒂特州长表示，“这一行动不仅是联邦政府的越权行为，而且也违反了宪法，接种疫苗与否应该尊重个人选择。”
+那么接下来现在我们大家要想到的问题，在美国融资和上市的像抖音、Zoom, 这样和江志成、马云有关系、有关联的，还有上市公司跟阿里巴巴上市有一切关联的，包括像平安的陆金所跟江志成有关系的，都是被刑事调查的，他有向美国政府申报吗？
 
-斯蒂特在视频中说：“接种疫苗是个人选择。 死板的、一刀切式的静态指令根本不符合我们今天所处的现实。在俄克拉荷马州，病例和住院人数下降了近 50%。 伴随病毒的演变，也出现了科学的治疗方法，包括人们对自然免疫的选择。”
+所有没有向美国政府申报的，将给美国纳税人国家造成损失的，包括在美国融资当中没有如实提供融资条件和文件的，都属于诈骗罪。所以说兄弟姐妹们，现在中共正在以秒，每秒的速度在中国搞一场经济大革命。
 
-斯蒂特补充说：“拜登总统政府不尊重个人自由。我不敢相信我们的总统想要迫使美国人在疫苗和工作之间做出选择。受此影响的不仅仅是统计数据，还包括我们俄克拉荷马州人，他们真正为此担忧，他们或者是勇敢的护士和守护者，或是翘首期盼的父亲和母亲，亦或是应急人员和勇敢执法者。”
+这场经济大革命的目的，主要是加强共产党的领导和统治权力，同时掠夺全世界在中国所有的投资，包括最终的目的是和美国西方发动一场经济的超限战，而发动这场经济超限战用的工具就是马云、江志成、马明哲、马化腾、潘石屹、王健林，像民生的董文标、卢志强，这一堆中国上万名的企业家，作为一个超限战的一个前线人物，最终将把美国和欧洲的养老基金和社会保险基金和美国的股市和经济打垮，这是今天爆料的主题。
 
-司法部长约翰·奥康纳（John O ‘Connor）也谴责了这项即将出台的疫苗强制接种令。
+视频协作：天边小面包
 
-奥康纳在一份声明中说：“一旦联邦紧急状态条例发布，对雇主提出这种非法要求，我们办公室将与全国各地的其他州检察长一道，迅速提起诉讼并寻求禁令，禁止任何实施或强制行为的发生。”
+撰稿：喜马拉雅的肉夹馍
 
-原文连接[https://www.thegatewaypundit.com/2021/10/watch-oklahoma-governor-stands-bidens-vaccine-mandates-says-shots-personal-choice/](https://www.thegatewaypundit.com/2021/10/watch-oklahoma-governor-stands-bidens-vaccine-mandates-says-shots-personal-choice/)
+审核：喜马拉雅的馍夹肉
 
-翻译：洛杉矶盘古农场 – 钢蛋儿
+校对：Maarago
 
-校对：洛杉矶盘古农场 – Mike Li
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-评论：洛杉矶盘古农场 – 钢蛋儿
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-编辑：洛杉矶盘古农场 – Wendy
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

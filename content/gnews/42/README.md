@@ -2,30 +2,24 @@
 ---
 
 
-## 有声|中共国经济崩溃式下滑
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1606138/)
+## 美国国土安全部部长马约卡斯新冠检测结果呈阳性
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1606325/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-中（共）国经济在7月至9月的季度中比去年同期增长了4.9%，是一年来最慢的速度，比分析师预测的要差。这比前一季度的增长速度要慢得多，当时的增长速度接近8%，这表明复苏正在减弱。
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/10/下载-6-edited.jpg)图片来源：网络
+当地时间10月19日，美国国土安全部新闻发言人表示，部长马约卡斯在当天早间的新冠检测结果呈阳性。
+据报道，马约卡斯已经接种了新冠疫苗，目前症状较轻。他将根据疾控中心指导意见，立即进行隔离并居家办公。密切接触者追踪程序正在进行中。
+此外，马约卡斯原定将与美国国务卿布林肯一道前往哥伦比亚，目前该行程已经取消。
 
-受到电力短缺、Covid-19的爆发、房地产行业的债务危机，和来自中共北京对一些行业的打压……这些正在给中（共）国的经济造成损失。一位专家说，这些情况可能会抑制今年余下时间的增长，不应低估。世界第二大经济体近几个月来面临着一系列挑战。
+另据报道，美国土安全部长检测阳性， 日前曾无口罩站拜登身边。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-29.jpg)
+**评：疫苗从最初开始的预防感染，到预防重症，再到预防死亡，进而发展到几个月之后又要打加强针。从前国务卿鲍威尔的死亡到现任国土安全部长马约卡斯的感染病毒，再次戳破了疫苗谎言**。为了您自己和家人的健康，请拒绝疫苗。并关注Gnews，G-TV & Gettr。
 
-另外，中共北京扩大对各行业的最大的公司进行打压，从大科技到游戏到网络再到教育部门……例如：阿里巴巴、腾讯、美团、嘀嘀打车、新东方等。中（共）国一些最大的公司正面临着旨在社会转型的政策遏制。中（共）国政府公布了一个五年计划，表明这种打压将会持续多年。
+文章和来源：[https://www.usnews.com/news/us/articles/2021-10-19/us-homeland-security-secretary-tests-positive-for-covid-19-media](https://www.usnews.com/news/us/articles/2021-10-19/us-homeland-security-secretary-tests-positive-for-covid-19-media)
 
-如图所示，如此激烈的波动幅度，在世界经济史上是非常罕见的。这样失速般的暴跌之后暴涨，之后再度失速般的暴跌，除了显示出其经济完全失去动力，并且各方都对经济前景非常悲观之外。这种曲线波幅，往往预示着该国政府的政权不稳，正在失去对经济的掌控力。
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
 
-2019年，文贵先生就预告：阿里巴巴马云肯定会完蛋，中（共）国大科技公司肯定会完蛋；中（共）国的房地产业、金融业和保险业肯定会完蛋……现在中（共）国的整个经济环境，完美的印证了这与文贵先生的预测——中（共）国的经济正在逐步崩塌中，无可避免，无可救药。
+编辑/发布：LILY
 
-文字版原文：[中共国经济崩溃式下滑](https://gnews.org/zh-hans/1603680/)
-
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+20211020
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)

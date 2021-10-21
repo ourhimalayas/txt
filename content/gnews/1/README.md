@@ -2,90 +2,136 @@
 ---
 
 
-## 房地产倒塌中共会更加猛烈地打台湾
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1606937/)
+## 人要有常识，别贪婪，更不能忘乎所以
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1606957/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/12-a71ie-wzywl.jpg)
-[https://gtv.org/video/id=616fb15dd2e2b8174877521b](https://gtv.org/video/id=616fb15dd2e2b8174877521b)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ss-11-ai3v8-bokl7.jpg)
+[https://gtv.org/video/id=616fb274d2e2b81748775256](https://gtv.org/video/id=616fb274d2e2b81748775256)
 
-**郭文贵**
-**Miles Guo**
+这不今天我们讲那么多题目
+Hoy hablamos tantos temas
 
-那么另外一个兄弟姐妹们要看到房地产，为啥我们要再谈房地产
-Then the another one, brothers and sisters, you need to look at the real estate, so why do we have to talk about real estate again?
+希望战友们回去以后, 记住啊
+Compañeros luchadores, espero cuando regresen recuerden
 
-房地产等倒塌一定会导致共产党，更加猛烈地打台湾
-The collapse of real estate and others will definitely cause the Communist Party to attack Taiwan more violently
+在GETTR上一定以英文为主
+En GETTR debe estar principalmente en inglés
 
-为什么这么说，知道吗？因为房地产的倒塌，
-You know why I talk about this way? Because of the collapse of real estate
+还有加英文字幕, 否则少推
+Y agregar subtítulos en inglés o sino no lo compartan
 
-最大的受害者就是江家、曾家、朱家、王岐山家
-the biggest victims of real estate are Jiang family, Zeng family, Zhu family, and Wang Qishan family
+另外一个
+Otra cosa
 
-所有的倒塌的问题（是）这钱去哪了？现在习也蒙了
-All the questions about the collapse is where the money go? Now even Xi is stunned too
+在没有谈疫苗的不被封杀的, 赶快上YouTube
+Si no has hablado de las vacunas, y no te han bloqueado, entonces súbelo en YouTube
 
-老看我们直播报告，到底咱这些钱去哪了
-He read our live broadcast report all the time, and in the end where our money went?
+把所有这一段都加上字幕, 各种语言
+Agregar subtítulos de todo tipo de idiomas en esta parte
 
-65万亿的房地产，十几万亿所谓的互联网产业，将近100万亿的金融产业
-65 trillion dollars real estate, more than a trillion dollars so-called Internet in-dustry, nearly 100 trillion dollars financial industry
+第三个
+Tercero
 
-中国共产党咱们给它算算账，20年前加入WTO
-Let’s calculate it for the CCP when they joined the WTO 20 years ago
+兄弟姊妹们一定告诉大家, 不要乱吃药
+Debo decirles compañeros luchadores, no tomen medicamentos indiscriminadamente
 
-一共150万亿美元也好，100万亿美元也好，所有扩张出来的财富都去哪了
-Whether it’s a total of 150 trillion US dollars or 100 trillion US dollars, where did all the expanded wealth go?
+什么都可以乱吃, 你不要乱吃药
+Pueden comer cualquier cosa, pero no tomen cualquier medicamento
 
-习也懵叉了，这时候我告诉你，
-Xi is also stunned, this time I will tell you,
+所以说, 咱今天讲的很多事情
+Por eso, hoy hablamos de tantas cosas
 
-老百姓的房产倒塌导致的房产倒，保险必然倒，保险倒，银行一定倒
-the collapse of Laobaixing’s property will lead to the collapse of the real estate industry, insurance has to collapse, insurance collapses, banks must also follow the fall
+认真地挖进去
+Excave con cuidado
 
-银行倒，信托也得倒，那么就是粮食供应链一定倒，
-bank collapses, the trust also has to collapse, then the food supply chain must collapse
+把喜币的到来
+Con la llegada de la moneda de Himalaya
 
-这个时候全世界（都在）问，钱去哪了？全中国人
-At this time, the whole world all asked where did all the Chinese people’s mon-ey go?
+把整个G系列的这个上升
+El ascenso de toda la seria G
 
-这时候你去想想，最想转移目标的人是谁呀
-At this time, think about who is the person wants to shift the target most?
+把共产党走向崩溃的灭亡
+La destrucción y colapso que va dirigiendo el PCCh
 
-是王岐山、江志成、曾庆红、朱镕基，这些最有钱的家族
-It’s Wang Qishan, Jiang Zhicheng, Zeng Qinghong, Zhu Rongji, these the richest families
+在这之前能传播多少信息传多少信息
+Ante todo esto, trasmitan informaciones mientras puedan
 
-打台湾，大家都变成了全部小粉红
-Attack Taiwan, everyone becomes “Patriotic Little Pink”
+在你安全的情况下
+Bajo una condición segura
 
-你们没有意识到这个事对台湾多危险，一打台湾，一了结了
-You didn’t realize that this thing is so dangerous for Taiwan, once there is war against Taiwan, it’s all over
+啥也不要求你, 还是你愿意做的情况下
+No te exijo nada, sólo que estés dispuesto a hacer esto
 
-甚至马上换新版人民币，不叫人民币了，叫什么币都有可能
-Even change to new version of RMB right away, may not call RMB, what it may call?
+救更多的人是唯一对你的要求
+Salvar a más personas es lo único que te exijo
 
-也可能跟九指妖叫撒币，也可能叫路大脑币，是吧
-It may also be called Sa coin with the nine-finger witch, or it may be called LuDe coin, right?
+然后不要被金钱, 喜币
+Y que el dinero, la moneda de Himalaya
 
-也可能叫蛇妖币都有可能
-It may also be called Snake Witch Coin
+什么G-club. GTV
+G-club, G-TV
+
+不要把你砸晕了
+No te deje mareado
+
+这个东西你不会用好, 它一定要你的命
+Si no manejas bien esta cosa, seguramente puede quitarte la vida
+
+现在就要求七哥帮助你来处理喜币卖给谁了
+Ahora estás exigiendo a mi para ayudarte a vender la moneda de Himalaya
+
+你真有人说, 我帮你
+Si realmente hay alguien que diga eso, yo te ayudo
+
+能帮你卖喜币的人, 你想想
+La persona que pueda ayudarte a vender la moneda de Himalaya, piensa
+
+他能帮你卖喜币, 你认识他吗
+Él puede ayudar a venderla, tú lo conoces?
+
+他有啥资格帮你卖喜币啊
+¿ Con qué derecho tiene él para ayudarte a vender la moneda?
+
+他能把你喜币给你骗了, 还害死你呢, 谋财害命呢
+Él puede engañarte con tu moneda y matarte, matarte por el dinero
+
+对不对, 这都有可能
+Es cierto o no, todo es posible
+
+所以说人呐
+Por eso las personas
+
+有常识别贪
+Cuando tengan sentido común, no sean codiciosos
+
+还有享受喜币和既得利益的时候
+Y cuando esten disfrutando de la moneda de Himalaya y de los intereses
+
+别忘乎所以
+Mucho menos olviden de todo
+
+别忘乎所以
+Mucho menos olviden de todo
+
+别把自己折腾没了
+No acaben con ustedes mismos
 
 ———————————————————
 
-**原视频接:**[https://twitter.com/se1y7cblljselva/status/1449361751544254466?s=24](https://twitter.com/se1y7cblljselva/status/1449361751544254466?s=24)
+**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1450095615388446722?s=24](https://twitter.com/se1y7cblljselva/status/1450095615388446722?s=24)
 
-Date:10/17/2021
-原视频标题:
-The CCP will attack Taiwan even more violently when their real estate market collapses
-原视频日期：2021/10/13
-任务编号：KC179（2570）
-视频时间段 : 0:00-2:04
+日期: 10/19/2021
+原视频标题：
+Las personas deben tener sentido común, no ser codiciosos y mucho menos olvidarse de todo
 
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+原视频日期: 10/18/2021
+任务编号：KC183（2593）
+视频时间段：0:00-1:29
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)

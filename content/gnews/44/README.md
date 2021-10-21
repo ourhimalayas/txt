@@ -2,21 +2,30 @@
 ---
 
 
-## 水灾后的缺粮已显现
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1605959/)
+## 有声|中共国经济崩溃式下滑
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1606138/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ert.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2020%252F0723%252Fcb60327ej00qdx9os003ec000xc00m8m.jpg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FFI8F64690539BX8Z.html&amp;tbnid=yeDumOu9LhDj1M&amp;vet=12ahUKEwjQnuj12djzAhU0JaYKHZ7qCk8QMygEegUIARClAQ..i&amp;docid=qV86qo8WQz1e3M&amp;w=650&amp;h=434&amp;itg=1&amp;q=%E8%BF%9B%E5%8F%A3%E5%B0%8F%E9%BA%A6&amp;ved=2ahUKEwjQnuj12djzAhU0JaYKHZ7qCk8QMygEegUIARClAQ)
-中国新闻网哈尔滨10月19日电，黑龙江省对俄农业产业协会19日发布消息，中粮集团从俄罗斯进口的667吨小麦抵达黑河口岸，于19日脱箱卸到当地海关监管库。这是中共国首次成规模地从俄罗斯远东地区进口小麦，这打开了中俄农业合作的一个新渠道。
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+中（共）国经济在7月至9月的季度中比去年同期增长了4.9%，是一年来最慢的速度，比分析师预测的要差。这比前一季度的增长速度要慢得多，当时的增长速度接近8%，这表明复苏正在减弱。
 
-据黑龙江省对俄农业产业协会秘书处一位负责人介绍，自从20世纪90年代，黑龙江开始开展中俄农业合作以来，这是进口小麦数量最大的一次。
+受到电力短缺、Covid-19的爆发、房地产行业的债务危机，和来自中共北京对一些行业的打压……这些正在给中（共）国的经济造成损失。一位专家说，这些情况可能会抑制今年余下时间的增长，不应低估。世界第二大经济体近几个月来面临着一系列挑战。
 
-小麦是中国人最重要的口粮之一，进口667顿的小麦，俨然成为规模？中共国是世界上最大的小麦生产国，整个中共国都有种植小麦的产区。从北到南，小麦的主产区一直都有分布。之所以要进口小麦，是南北水灾造成的严重损失，粮食危机在不久的未来一定会显现。
+另外，中共北京扩大对各行业的最大的公司进行打压，从大科技到游戏到网络再到教育部门……例如：阿里巴巴、腾讯、美团、嘀嘀打车、新东方等。中（共）国一些最大的公司正面临着旨在社会转型的政策遏制。中（共）国政府公布了一个五年计划，表明这种打压将会持续多年。
 
-消息来源：[中国首次成规模进口俄罗斯小麦 667吨小麦运抵中国口岸](https://me.mbd.baidu.com/r/v2oTGESPZu?f=cp&amp;rs=1846487702&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=7212c7f377841973)
+如图所示，如此激烈的波动幅度，在世界经济史上是非常罕见的。这样失速般的暴跌之后暴涨，之后再度失速般的暴跌，除了显示出其经济完全失去动力，并且各方都对经济前景非常悲观之外。这种曲线波幅，往往预示着该国政府的政权不稳，正在失去对经济的掌控力。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+2019年，文贵先生就预告：阿里巴巴马云肯定会完蛋，中（共）国大科技公司肯定会完蛋；中（共）国的房地产业、金融业和保险业肯定会完蛋……现在中（共）国的整个经济环境，完美的印证了这与文贵先生的预测——中（共）国的经济正在逐步崩塌中，无可避免，无可救药。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+文字版原文：[中共国经济崩溃式下滑](https://gnews.org/zh-hans/1603680/)
+
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

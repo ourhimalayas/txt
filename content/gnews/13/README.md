@@ -2,31 +2,39 @@
 ---
 
 
-## 美参议院外委会通过《南中国海和东中国海制裁法案》
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1606803/)
+## MD共和党国会议员：伊维菌素可以治疗中共病毒
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1606838/)
 
-**撰稿：日本东京方舟农场 子辰**
+翻译：西班牙喜悦农场–wenwu
 
-10月19日，美国参议院外交事务委员会通过了跨党派的《2021年南中国海和东中国海制裁法案》。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-6-8.png)图片来源：finance.sina.cn
 
-据VOA报道，该法案对中共在南中国海有争议地区的建设和发展项目进行了制裁，包括填海造岛、灯塔建设、移动通信服务基站建设、电力和燃料供应设施建设或民用基础设施建设等。根据法案，在这些海域使用船只和飞机行使中共主权的中国人，都将受到制裁。制裁措施包括冻结这些人在美国或由美国人控制的财产，不得入境美国或吊销现有签证等。
+一位来自[马里兰州](https://www.foxnews.com/category/us/us-regions/northeast/maryland)的[共和党](https://www.foxnews.com/category/politics/house-of-representatives/republicans)国会议员也是一名执业医师，他说他给感染中共病毒的患者开了伊维菌素药物，用于治疗中共病毒（COVID-19）的早期阶段。
 
-法案还禁止美国政府出版办公室出版任何把南中国海和东中国海称为中共的一部分的文件；禁止为在这些海域的某些投资提供便利；不承认中共对这些海域的主权宣称；并禁止对某些承认中共对这些海域拥有主权的国家提供援助等。
+代表马里兰州第一个国会选区的美国众议员安迪·哈里斯（Andy Harris）在给[Fox 5 DC 的](https://www.fox5dc.com/news/maryland-rep-andy-harris-prescribes-ivermectin-to-patient-diagnosed-with-covid-19)一份声明中说：“我曾开出伊维菌素作为早期治疗 COVID 的方法。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211020230508.png)图片来自于网络
+哈里斯曾是约翰·霍普金斯医院的医生、海军预备役的医疗官，以及在来到国会之前是一名州参议员。他目前仍然在马里兰州伊斯顿的纪念医院做兼职工作。他是马里兰州在国会中唯一的共和党代表。 在此之前，美国各地至少有超过24起医疗诉讼，其中许多是最近几周，人们试图迫使医院向感染 COVID 的亲人提供伊维菌素，这是一种寄生虫药物，保守派评论员将其作为一种治疗中共病毒的方法推广。即使如此，伊维菌素仍未经 FDA 授权或批准用于预防或治疗 COVID-19。根据疾病控制和预防中心 (CDC) 最近的健康咨询，伊维菌素滥用和过量服用在大流行期间攀升，正如人们就伊维菌素相关毒性向毒物控制中心发出的呼吁所表明的那样。
 
-据报道，该法案于今年5月17日由发起人佛罗里达州的共和党籍联邦参议员马可·鲁比奥（Marco Rubio）和马里兰州的民主党籍联邦参议员本·卡丁（Ben Cardin）在参议员推出。鲁比奥是参议院情报特别委员会副主席，也是参议院外交委员会的高级成员。卡丁是参议院外交委员会负责国务院管理的小组委员会的主席。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-5-8.png)
 
-鲁比奥在声明中说，“对自由开放的印太地区来说，没有比中共及其治下的共军更大的威胁了，”他说，“美国在该地区的经济和国家安全利益面临的风险是真实的。在中共继续非法控制南中国海和东中国海的时候，美国则需要更多的工具来对抗中共”。
+2021 年 9 月 9 日星期四，佐治亚州一家药房里，药剂师在后台工作时，一盒伊维菌素出现在药房里。 （上图是美联社照片/迈克·斯图尔特）
 
-卡丁参议员说，“中共在南中国海和东中国海的咄咄逼人的行为不能不受遏制”。他补充说，“我们的法案发出了一个强有力的跨党派讯息，即美国将捍卫商务自由流动和航行自由，捍卫我们盟友的主权，并促进依照国际法以和平外交的方式解决争端。”
+马里兰大学海岸地区卫生局在提供给[WBAL-TV 的](https://www.wbaltv.com/article/andy-harris-prescribes-ivermectin-as-treatment-for-early-covid-19/38008064#)一份声明中说：“安迪·哈里斯博士没有被马里兰大学医疗系统或马里兰大学（UM）海岸地区卫生局聘为医生；哈里斯博士与一个独立的医师团体签订合同，该医师团体为海岸地区卫生局（UM SRH）医院提供麻醉和其他医疗服务。医院与提供特定临床服务的团体签订合同，是整个医疗行业的普遍做法。”
 
-*注：本文仅代表作者观点，与 Gnews无关*
+该声明继续表示：“伊维菌素未经 FDA 授权或批准用于预防或治疗 COVID-19，并且尚未证明对这些适应症是安全或有效的；美国国立卫生研究院 (NIH，福奇) COVID-19 治疗指导小组还确定，目前没有足够的数据推荐伊维菌素用于早期治疗 COVID-19。”
 
-*参考链接：*
+[2020 年 6 月的一项研究](https://www.sciencedirect.com/science/article/pii/S0166354220302011)表明，单剂量的伊维菌素可在 24 小时内将细胞中 COVID 的病毒载量减少 99.8%，并发现“伊维菌素是体外的 COVID-19 致病病毒（SARS-CoV-2）的抑制剂。*”*
 
-[美参议院外委会通过《南中国海和东中国海制裁法案》](https://www.voachinese.com/a/Senate-bill-south-china-sea-east-china-sea-20211019/6277474.html)
+医院出于利益对该诉讼进行了反击，并称他们的护理标准不允许他们给病人服用一种尚未被批准，可用于中共病毒并或可能造成伤害的药物，而且允许外行人和法官推翻医学专家（福奇）的意见，本身是一条危险的道路。
+
+据 WBAL-TV 报道，美国药剂师协会和美国医学协会在 9 月发表声明称，这两个组织都“强烈反对在临床试验之外订购、开具或分发伊维菌素以早期预防或治疗 COVID-19”。
+
+（文章仅代表作者观点与GNEWS无关）
+
+**新闻来源：**[foxnews][Maryland U.S. Rep. Andy Harris prescribes ivermectin to patient to treat COVID-19](https://www.foxnews.com/politics/maryland-gop-congressman-prescribes-ivermectin-covid-19-patient) | 作者：Danielle Wallace｜发布时间：2021年10月20日｜封面图来源：(Stefani Reynolds/Bloomberg via Getty Images)
 
 * * *
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
