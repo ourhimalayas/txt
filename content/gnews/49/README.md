@@ -2,18 +2,16 @@
 ---
 
 
-## 水灾后的缺粮已显现
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1605959/)
+## 中共国汽油“第20次”涨价
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1606794/)
 
 #### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ert.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2020%252F0723%252Fcb60327ej00qdx9os003ec000xc00m8m.jpg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FFI8F64690539BX8Z.html&amp;tbnid=yeDumOu9LhDj1M&amp;vet=12ahUKEwjQnuj12djzAhU0JaYKHZ7qCk8QMygEegUIARClAQ..i&amp;docid=qV86qo8WQz1e3M&amp;w=650&amp;h=434&amp;itg=1&amp;q=%E8%BF%9B%E5%8F%A3%E5%B0%8F%E9%BA%A6&amp;ved=2ahUKEwjQnuj12djzAhU0JaYKHZ7qCk8QMygEegUIARClAQ)
-中国新闻网哈尔滨10月19日电，黑龙江省对俄农业产业协会19日发布消息，中粮集团从俄罗斯进口的667吨小麦抵达黑河口岸，于19日脱箱卸到当地海关监管库。这是中共国首次成规模地从俄罗斯远东地区进口小麦，这打开了中俄农业合作的一个新渠道。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-108.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp1-tt.byteimg.com%2Forigin%2Fpgc-image%2F898570c315a74e8890ed4549fa6f31e9%3Ffrom%3Dpc&amp;imgrefurl=https%3A%2F%2Fsunnews.cc%2Ffinances%2F269609.html&amp;tbnid=nlB72pLRL6FZ-M&amp;vet=10CAQQMyhlahcKEwjw1KTLldnzAhUAAAAAHQAAAAAQAg..i&amp;docid=AJK-qUDSX-qgAM&amp;w=1079&amp;h=839&amp;itg=1&amp;q=%E7%BB%A7%E7%BB%AD%E6%B6%A8%E4%BB%B7&amp;ved=0CAQQMyhlahcKEwjw1KTLldnzAhUAAAAAHQAAAAAQAg)
+10月20日网易新闻报道，由于受国际油价继续小幅上涨，国内油价“第20次”调价，将在本周五晚上12时开启（10月22日24时），油价将再次上调，当前统计涨幅已超过2毛，国际油价不断上涨，涨幅会继续增大，10月18日，第6个工作日，国内油价周期统计，累计上调280元/吨，折算为上调0.22—0.24元/升，50升计算将多花11元左右，调价时间为10月22日24时！
 
-据黑龙江省对俄农业产业协会秘书处一位负责人介绍，自从20世纪90年代，黑龙江开始开展中俄农业合作以来，这是进口小麦数量最大的一次。
+随着国际油价上涨，中共国加油站闻风而动提前放风涨价，能源短缺已成为中共国严重问题，煤价、油价都正在上扬，与之相联系的电价、取暖费等也将上涨。在这种情况下，保障民生显得异常重要，在中共独裁者体制下的国人从来都是用来榨取奴役的，从未考虑过民生问题。
 
-小麦是中国人最重要的口粮之一，进口667顿的小麦，俨然成为规模？中共国是世界上最大的小麦生产国，整个中共国都有种植小麦的产区。从北到南，小麦的主产区一直都有分布。之所以要进口小麦，是南北水灾造成的严重损失，粮食危机在不久的未来一定会显现。
-
-消息来源：[中国首次成规模进口俄罗斯小麦 667吨小麦运抵中国口岸](https://me.mbd.baidu.com/r/v2oTGESPZu?f=cp&amp;rs=1846487702&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=7212c7f377841973)
+消息来源：[今年第20次上涨，油价又要变](https://mo.mbd.baidu.com/r/v1VUT46DIc?f=cp&amp;rs=2883152522&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0554fe7e6e8e554c)
 
 (文章仅代表作者本人观点，与GNEWS无关)
 

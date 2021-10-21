@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/21/2021 7:04 AM (UTC)`
+
+10/20/2021 Miles Guo: My message to the Chinese entrepreneurs - In the face of the CCP’s political repression and so-called economic crime investigations, your only choice is to fight against the CCP to the end!<br/><br/><br/>10/20/2021 文贵直播：文贵向国内企业家喊话：面对共产党的政治打压和所谓的经济犯罪调查的时候，你们唯一的选择就是和中共对抗<br/>
+![img](https://media.gettr.com/group29/getter/2021/10/21/07/04/0aaebfd5-989c-e89a-6283-097d0a13ede0/out.jpg)
+
+---
+
 `@miles 10/21/2021 6:05 AM (UTC)`
 
 10/20/2021 Miles Guo: Mr. Miles Guo has sent a vital message to the Chinese entrepreneurs and their families, that the NFSC can provide all the help they need with two conditions: 1. Cooperate with local governments to expose all unrestricted warfares that the CCP is conducting around the world; 2. Work with the Whistleblowers' Movement to take down the CCP, and resolutely recognize the Declaration of the NFSC. Mr. Miles Guo warns all the institutions and governments worldwide who have invested in Communist China to protect the assets of their countries and their people, and routinely conduct legal due diligence regarding the safety and authenticity of those who have been invested in the Communist China.<br/><br/>10/20/2021 文贵直播：郭先生正告国内企业家及其家人，仅需满足两个条件，新中国联邦可给予一切帮助<br/>
@@ -289,13 +296,6 @@ October 17, 2021, this is the material sent last year about Wang Qishan and Meng
 
 10/16/2021 Miles Guo’s GETTR: Jiang Zemin, Zeng Qinghong, Meng Jianzhu, Han Zheng, and Wang Qishan have no no choice but to fight against Xi Jinping! Only the US and Japan can grant safety to those who got out of the CCP’s system. Tomorrow I will drop a bombshell on the CCP’s military that will freak the CCP’s officers out. Even the CCP’s National Security Commission, which is equivalent to the KGB, has said that what I talked about has now proved to be true.<br/><br/>10/16/2021 文贵盖特：江、曾、孟、韩、王现已无路可走，将对习反戈一击！只有美、日能让中共体制内逃出来的人有安全；明天将爆会让中共军官们吓尿裤子的军事大料；中共版克格勃 - 国安委称，文贵说的话现在都被证明是真的！<br/>
 ![img](https://media.gettr.com/group41/getter/2021/10/17/03/14/8c08e9d0-dd4c-5cfc-706e-861ff4fac885/out.jpg)
-
----
-
-`@miles 10/16/2021 10:24 PM (UTC)`
-
-10/16/2021 Miles Guo’s GETTR: The New Federal State of China is changing the world by revealing the truth about the COVID vaccines!<br/><br/>10/16/2021 文贵盖特：通过疫苗真相的揭露，新中国联邦正在撬动着地球！
-![img](https://media.gettr.com/group6/getter/2021/10/16/22/24/65595d90-fa6e-dc91-b03a-93ba0c57d4b2/out.jpg)
 
 ---
 
