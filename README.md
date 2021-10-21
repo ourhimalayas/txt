@@ -15,146 +15,146 @@
 
 ---
 
-### [COVID-19最新情报｜政府荒谬地将COVID-19扩散归咎于未接种疫苗族群](/content/gnews/1/README.md)
+### [大直播7·24——谁第一个爆出马云出行西班牙](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【玫瑰看新闻】第187期 国际热点新闻](/content/gnews/2/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [【玫瑰看新闻】第187期 新中国联邦新闻](/content/gnews/3/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [国际要闻汇编](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [COVID-19最新情报｜政府荒谬地将COVID-19扩散归咎于未接种疫苗族群](/content/gnews/5/README.md)
  ` G&#124;News TAIWAN`
 
-### [秘翻在线：日本厚生省表示将发表一部中共病毒后遗症指南](/content/gnews/2/README.md)
+### [秘翻在线：美国前总统川普将推出自己的社交媒体TRUTH Social](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加州数千家长参加全州罢工，抗议学校强制接种疫苗的要求](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [盖特平台再次进行Live Streaming直播测试](/content/gnews/7/README.md)
+ ` 纽约香草山MOS02`
 
-### [秘翻在线：美商务部出台新规将限制向中、俄等国出售黑客工具](/content/gnews/4/README.md)
+### [秘翻在线：日本厚生省表示将发表一部中共病毒后遗症指南](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [摩洛哥禁止与德国、荷兰和英国的航班](/content/gnews/5/README.md)
- ` Charlie`
-
-### [大流行紧急情况又回到了 4 个欧盟国家](/content/gnews/6/README.md)
- ` Charlie`
-
-### [2021/10/20 墙内世界](/content/gnews/7/README.md)
+### [加州数千家长参加全州罢工，抗议学校强制接种疫苗的要求](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [针下亡魂｜美国 36 岁医学博士接种疫苗后一个月死亡](/content/gnews/8/README.md)
+### [秘翻在线：美商务部出台新规将限制向中、俄等国出售黑客工具](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [摩洛哥禁止与德国、荷兰和英国的航班](/content/gnews/11/README.md)
+ ` Charlie`
+
+### [大流行紧急情况又回到了 4 个欧盟国家](/content/gnews/12/README.md)
+ ` Charlie`
+
+### [2021/10/20 墙内世界](/content/gnews/13/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [针下亡魂｜美国 36 岁医学博士接种疫苗后一个月死亡](/content/gnews/14/README.md)
  ` G&#124;News TAIWAN`
 
-### [共产党又拿班农先生的“被捕”生事了](/content/gnews/9/README.md)
+### [共产党又拿班农先生的“被捕”生事了](/content/gnews/15/README.md)
  ` 银河勇气之星`
 
-### [中共国以饥饿营销法配合世卫组织执行HPV疫苗计划或引发又一个灾难](/content/gnews/10/README.md)
+### [中共国以饥饿营销法配合世卫组织执行HPV疫苗计划或引发又一个灾难](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共拟立法禁止网络地址自动切换系统](/content/gnews/11/README.md)
+### [中共拟立法禁止网络地址自动切换系统](/content/gnews/17/README.md)
  ` G-NEWS TAIWAN`
 
-### [有声| 每日读经 ：马太福音（5:3-12）论福](/content/gnews/12/README.md)
+### [有声| 每日读经 ：马太福音（5:3-12）论福](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [日媒：“共同富裕”是第二次“文化大革命”](/content/gnews/13/README.md)
+### [日媒：“共同富裕”是第二次“文化大革命”](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声| 宁失一眼，不失全身](/content/gnews/14/README.md)
+### [有声| 宁失一眼，不失全身](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [COVID-19最新情报｜政府不愿让人民知道的是 医院正充斥着新冠疫苗接种者](/content/gnews/15/README.md)
+### [COVID-19最新情报｜政府不愿让人民知道的是 医院正充斥着新冠疫苗接种者](/content/gnews/21/README.md)
  ` G&#124;News TAIWAN`
 
-### [静冈大学前副校长：疫苗是杀人武器](/content/gnews/16/README.md)
+### [静冈大学前副校长：疫苗是杀人武器](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [医生指出“抖音”可能是导致少女抽搐的原因](/content/gnews/17/README.md)
+### [医生指出“抖音”可能是导致少女抽搐的原因](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共政权是违背神道的魔鬼政权](/content/gnews/18/README.md)
+### [中共政权是违背神道的魔鬼政权](/content/gnews/24/README.md)
  ` 纽约香草山MOS03`
 
-### [灭共之后，中美是人类的未来](/content/gnews/19/README.md)
+### [灭共之后，中美是人类的未来](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [GETTR首席执行官杰森·米勒声明](/content/gnews/20/README.md)
+### [GETTR首席执行官杰森·米勒声明](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵精品视频-中共“十月革命”腥风血雨](/content/gnews/21/README.md)
+### [郭文贵精品视频-中共“十月革命”腥风血雨](/content/gnews/27/README.md)
  ` 澳喜农场`
 
-### [英媒再爆中国新武器试验细节 拜登表示忧心](/content/gnews/22/README.md)
+### [英媒再爆中国新武器试验细节 拜登表示忧心](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫苗灾情｜澳洲 30 岁夫妇接种疫苗后相继出现心脏疾病](/content/gnews/23/README.md)
+### [疫苗灾情｜澳洲 30 岁夫妇接种疫苗后相继出现心脏疾病](/content/gnews/29/README.md)
  ` G&#124;News TAIWAN`
 
-### [新疆人权犯罪主犯王君正升任西藏一把手](/content/gnews/24/README.md)
+### [新疆人权犯罪主犯王君正升任西藏一把手](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [中共黑客组织大肆盗取全球手机用户数据](/content/gnews/25/README.md)
+### [中共黑客组织大肆盗取全球手机用户数据](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [美国国防部呼吁加大稀土开采力度 反制中共垄断供应链](/content/gnews/26/README.md)
+### [美国国防部呼吁加大稀土开采力度 反制中共垄断供应链](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [纽约市市长宣布强制中共病毒疫苗规定](/content/gnews/27/README.md)
+### [纽约市市长宣布强制中共病毒疫苗规定](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [NASA 与波音签署太空站通勤合约](/content/gnews/28/README.md)
+### [NASA 与波音签署太空站通勤合约](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [绿地控股负债累累，销售大跌，评级下调，陷入困境](/content/gnews/29/README.md)
+### [绿地控股负债累累，销售大跌，评级下调，陷入困境](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [“真”“善”“狠”，新中国联邦核心理念](/content/gnews/30/README.md)
+### [“真”“善”“狠”，新中国联邦核心理念](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [愛爾蘭小鎮99.7%完全接種疫苗，現爆發大規模新冠疫情](/content/gnews/31/README.md)
+### [愛爾蘭小鎮99.7%完全接種疫苗，現爆發大規模新冠疫情](/content/gnews/37/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [世贸组织对华贸易政策审议 美澳代表各提不满](/content/gnews/32/README.md)
+### [世贸组织对华贸易政策审议 美澳代表各提不满](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [比特币ETF纽交易所上市，助推比特币价格大涨](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [4艘中共海警船侵入日本尖阁列岛周边海域](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [爱尔兰小镇99.7%完全接种疫苗，现爆发大规模新冠疫情](/content/gnews/35/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [突发，沈阳和平区太原南街发生爆炸](/content/gnews/36/README.md)
+### [突发，沈阳和平区太原南街发生爆炸](/content/gnews/39/README.md)
  ` 首尔天池农场`
 
-### [拜登表达对中共高超音速导弹的担忧](/content/gnews/37/README.md)
+### [拜登表达对中共高超音速导弹的担忧](/content/gnews/40/README.md)
  ` HimalayaRussia`
 
-### [政府打压疫情真相 造成全球健康危机](/content/gnews/38/README.md)
- ` GTV新闻访谈`
-
-### [COVID-19最新情报｜美律师控诉 政府掩盖4.5万例疫苗死亡案例兼 强制民众接种](/content/gnews/39/README.md)
+### [COVID-19最新情报｜美律师控诉 政府掩盖4.5万例疫苗死亡案例兼 强制民众接种](/content/gnews/41/README.md)
  ` G&#124;News TAIWAN`
 
-### [美国研究人员警告称，中共国可能占领台湾以满足其半导体需求](/content/gnews/40/README.md)
+### [美国研究人员警告称，中共国可能占领台湾以满足其半导体需求](/content/gnews/42/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [10/20/2021文贵直播：美国法律规定，隐瞒上市公司主席被调查属刑事犯罪，该公司要承担股票损失](/content/gnews/41/README.md)
+### [10/20/2021文贵直播：美国法律规定，隐瞒上市公司主席被调查属刑事犯罪，该公司要承担股票损失](/content/gnews/43/README.md)
  ` 秘密翻译组-北美组`
 
-### [美最高法拒绝了医疗工作者对强制疫苗的挑战](/content/gnews/42/README.md)
+### [美最高法拒绝了医疗工作者对强制疫苗的挑战](/content/gnews/44/README.md)
  ` HimalayaRussia`
 
-### [10/20/2021文贵直播：马云最终他要么被杀，要么被送进监狱](/content/gnews/43/README.md)
+### [10/20/2021文贵直播：马云最终他要么被杀，要么被送进监狱](/content/gnews/45/README.md)
  ` 秘密翻译组-北美组`
 
-### [10/20/2021文贵直播：中共妄图通过搞经济大革命来强化统治、对欧美等国发动经济超限战并掠夺全球财富](/content/gnews/44/README.md)
+### [10/20/2021文贵直播：中共妄图通过搞经济大革命来强化统治、对欧美等国发动经济超限战并掠夺全球财富](/content/gnews/46/README.md)
  ` 秘密翻译组-北美组`
 
-### [人要有常识，别贪婪，更不能忘乎所以](/content/gnews/45/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [绑架状态下马云远赴西班牙处理资产，沦为中共经济超限战工具](/content/gnews/46/README.md)
+### [绑架状态下马云远赴西班牙处理资产，沦为中共经济超限战工具](/content/gnews/47/README.md)
  ` YALUN 亚伦`
-
-### [GTV新闻访谈简报|2021年10月20日晚](/content/gnews/47/README.md)
- ` 纽约香草山MOS01`
 
 ### [阻止中共病毒感染病人获得救命药的人 纽伦堡大审判等着他们](/content/gnews/48/README.md)
  ` 喜马拉雅-华盛顿DC农场`

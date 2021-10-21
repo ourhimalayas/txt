@@ -2,33 +2,32 @@
 ---
 
 
-## “真”“善”“狠”，新中国联邦核心理念
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1607252/)
+## 新疆人权犯罪主犯王君正升任西藏一把手
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1607304/)
 
-作者：香草山农场 – 恩永存
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+作者：澳喜农场 – 在远方
 
 
 
-郭文贵先生10月19日再次申明，新中国联邦的核心理念是“真”“善”“狠”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-19日上午，GTV与盖特做同步测试。其间，一名伪类在盖特留言中，故意为难主持人。郭先生立即要求维护人员删除留言，并屏蔽此用户。郭先生还说：伪类账号一定要全部删除，一个也不留。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-6.jpg)
-郭先生表示，他最先提出“真善狠”三个字。新中国联邦的正道主义就是唯真不破，法律根据就是真理，所以是“真”；新中国联邦人以博爱善待他人，做个善良的人，因此有“善”；新中国联邦人喜爱公义，就必须恨恶罪恶，依法惩冶恶人，当然就得“狠”。“真”是理论原则，“善”是做人原则，“狠”是做事原则。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-100.jpg)
-参考链接：
-[郭先生2021年10月18日盖特直播测试](https://gettr.com/streaming/pejgy3dc01)
+
+
+中共前新疆政法委书记、自治区党委副书记王君正，10月19日被宣布升任西藏党委书记。王君正由于直接参与了新疆近年来严重迫害人权的行动，是受到西方制裁最多的中共官员。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-19.jpg)
+联合国专家及一些独立学者提供的大量证据显示，中共自2016年起，关押了至少100万维吾尔族和其他少数民族穆斯林，对他们进行洗脑和强迫劳动，并禁止他们从事宗教活动。
+
+2021年3月22日，美国财政部根据全球马格尼茨基人权问责法，对新疆自治区副书记兼新疆生产建设兵团党委书记王君正，和新疆公安厅厅长陈明国进行制裁，指控他们是严重践踏人权和从事腐败的涉案人员。2021年3月，欧盟、英国和加拿大也宣布制裁新疆党委副书记王君正等4人和一家实体。
+
+参考链接：[新疆人权犯罪主犯王君正升任西藏一把手](https://www.voachinese.com/a/China-promotes-most-sanctioned-official-to-Tibetan-party-chief-20211019/6277106.html)
 
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
 总编：木白
-编辑：山本不惑
-校对/发稿：为真不破20
+编辑：飞虹
+校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
 
@@ -42,6 +41,4 @@
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
