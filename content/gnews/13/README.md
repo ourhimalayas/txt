@@ -2,15 +2,7 @@
 ---
 
 
-## 西媒头条 — 第91期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1608498/)
+## 10/17/2021文贵直播：体制内的任何人都可能是共产党的下一个受害者,试图和共产党合作来换取自由的企业家最终逃不过被杀害的命运
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1608549/)
 
-制作：蚂蚁兄弟
-
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1020.001.jpeg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

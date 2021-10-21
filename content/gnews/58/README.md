@@ -2,55 +2,34 @@
 ---
 
 
-## 焦点：全球汽车产销量暴跌的背后是大危机！
-` 军迷wilson` [轉載自GNews](https://gnews.org/zh-hans/1606589/)
+## 纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1534601/)
 
-#### 加拿大多伦多枫叶农场  军迷Wilson 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1634148901155.jpg)来源：https://m.soundofhope.org/post/554868
-布雷顿森林体系解体后，脱离了黄金锚定束缚的美元等西方货币，进入了一个在人类货币史上前所未有的竞争性超发。这些被印出来的廉价资本在全球化的旗号下到处泛滥，制造了巨大的经济泡沫、贫富差距和国际矛盾。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-CN.jpg)
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-当初这些资本进入中共国等低收入国家，和当地的权贵和廉价劳动力结合，将廉价商品销往全世界，因此西方的实业备受价格冲击而严重空心化。而实业才是真正产生财富的部门，几十年来的经济“脱实向虚”，导致西方主要国家的财政不断恶化，全球的资源和产业链也产生了错配。
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
 
-汽车产业是当今世界名符其实的支柱产业，涉及生产、流通、售后三大环节，在各个制造业中产值最大、产业链最长，对芯片等技术及[经济](http://www.china-cer.com.cn/)的影响最大。全球每年的汽车产量近一亿辆，保有量超 10 亿辆。在主要经济体中汽车业对就业、税收及零售的占比均达到10%以上。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-001-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-002-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-003-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-004-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-005-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-006-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-007-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-008-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-009-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-010-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-011-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-012-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-013-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-014-scaled.jpg)
 
-由于中共病毒疫情对汽车产业链的破坏叠加高通胀导致的消费水平下降， 汽车业正在遭受前所未有的重创。据日经新闻18日报道，芯片等汽车零部件短缺等合并因素导致汽车产销量连续三个月暴跌。
 
-其中美国、中国、欧洲、日本四大市场今年7、8、9月份销量分别下滑10％，16％，26％，显示全球新车销量呈加速下降趋势，刚刚脱离欧盟的英国情况也很严重，9月销量下滑了34%。这是中共病毒疫情爆发以来首次出现如此严峻的形势。
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-“中国汽车工业协会”报告国内9月新车销量下降20％（这个数据明显是假的）。产经新闻报道9月丰田和本田在中共囯的销量分别大幅下滑36%、28％。相比之下，囯内汽车销量已先于美欧日下滑，其产销量下降幅度不会比美欧日更低。
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
 
-在美国8月汽车产销量公布仅两天后的9月2日，摩根士丹利立即下调了美国三季度GDP预期，从之前预计的6.5%猛砍至仅2.9%。至此，人们自然会问，如果汽车产量继续下降会怎样？
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-那么问题来了，汽车产销量还会继续下滑吗？下滑的后果是什么？
-
-以上数据显示，中共病毒疫情对全球产业链的破坏威力刚刚显现，如果杀人疫苗的致命副作用在未来数月内大规模爆发，全球经济受到的打击将是毁灭性的。但这并不是世界经济遭受的全部威胁，还有更深层次的结构性破坏因素，在暗暗推动全球经济大崩溃时刻的到来。
-
-美元脱离金本位（其它货币以美元为锚）后西方有了廉价资本，苏联解体后以基辛格为首的西方政客和垄断资本错误地排除了意识形态方面的禁忌，挥舞着大把美元贪婪地开启了全球化，由于急于打开中国市场，他们让不符合相关标准和不怀好意的中共囯加入了世贸组织。
-
-外界一直认为，中共国一般商品出口占到全球总出口额的一半，迅速成为全球产业链中最重要的一部分，是因为中共通过使用奴隶劳工和出口补贴，制造廉价商品进行不正当竞争来实现的，但他们勿略了两个最关键的因素: 中国的人口红利和煤炭资源被过度、野蛮利用，才是中共囯能够持续向全球输出通缩的根本原因。
-
-就国家而言，中国的煤炭储量排位仅为第四名，占全球煤炭储量13.3％，但中共囯的煤炭产量长期排在第一。储量排在前三的美国占23.2%，俄罗斯占15.1％，澳大利亚占比14％，印度占比10.3％排在第五。
-
-煤炭储量排在第四和第五名的中共国和印度，燃煤发电占总用电量的比例高达约70%，这两个人口大囯的一般商品出口占了全球的一大半，比如高耗能的钢材，中共国的产量是全球产量的57.1%，印度的钢产量排在第二。
-![world trade organisation, india exports, export subsidy, india export subsidy, trade, market, EXIM](https://images.financialexpress.com/2018/03/export-1.jpg)来源：https://www.financialexpress.com/opinion/us-challenge-to-indias-export-subsidies-why-it-is-time-for-new-trade-paradigm/1100497/
-至今年8月，中共的出口补贴近1.1万亿元人民币。长期以来，低人力成本、廉价能源和政府补贴共同制造了中共国的廉价商品，支持了制造业产能的不断扩张。这实际上是中国的子宫经济（人口红利）、煤炭资源和环境污染对出口形成了源源不断的补贴。
-
-西方由于产业外迁、税源流失也深受其害：财政收入不断萎缩，民众收入扣除通胀因素后不断下降，唯一得利的是中共盗国贼及其裙带、西方垄断资本、腐败政客、和中共狼狈为奸的黑暗势力。
-
-中共将赚取的大把美元全部拿来干坏事：在国际市场上不断购买大宗商品投入到房地产和铁公基，从自己一手制造的泡沫中牟取暴利，这就是“中国的房地产是用美元堆砌起来”的缘故，是劳工血汗、几亿年才形成的有限煤炭资源以及西方政客无节制的资本输出共同造就了这个邪恶的“繁荣”。
-
-中共还利用手中的大把美元蓝金黄全世界输出共产主义，搞注定失败的一带一路，穷兵黩武和对内高压等，由此产生的巨额费用全部来自对人民的压榨，因此绝大多数人未富先老或沦为房奴。而这种杀鸡取卵的手段使市场消费能力不断消失，加速了经济的癌症化。
-
-中国、印度等低收入国家几十年来向全世界输出廉价商品，实际上等于输出通缩，即使所有国家都在滥发货币，通胀率与能源价格也大多在低位徘徊，但这种现象正在发生根本性逆转。
-
-郭文贵先生指出，中国的人均工业电耗是美国的约8倍，而这些就是用来制造廉价出口商品的。国内煤炭开采量占总用量的90%，有10%依靠进口，今年以来动力煤价格上涨近3倍，表明中共国的煤炭产能及外汇储备均趋于枯竭，已经发生能源危机：当电价不断提高时，就会有大量产能退出市场，从而出现供需失衡造成的通胀，并加剧供应链断裂，形成骨牌效应。同时中共国实际人口已降至10亿人以下，人口红利已经消失。
-
-也就是说，原来的全球通缩因素不存在了，并开始全部转化为通胀因素，这才是全球产业链断裂和恶性通胀必然发生和到来的最底层逻辑，叠加中共病毒、杀人疫苗、全球军备竞赛、被动大量印钞等等因素，当前的通胀压力和汽车产量下降只不过是危机爆发前的部分先行指标，原本已经存在巨大泡沫的全球经济，在各种负能量的联合作用下，能不崩溃吗？
-
-参考来源：
-
-[全球新车销量9月锐减26％ 日经中文网](https://cn.nikkei.com/industry/icar/46375-2021-10-18-10-41-39.html)
-
-[汽车市场增长乏力 缘何日系车销量逆势而上？](https://www.ahstainglass.com/m/jctj/detail/20190829/1000200033136821567045627263303993_1.html)
-
-（文章仅代表作者观点，与GNEWS无关）
++4

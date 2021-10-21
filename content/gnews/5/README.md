@@ -2,35 +2,45 @@
 ---
 
 
-## 日本要闻汇编 10月21日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1608602/)
+## 香港80亿港币国安“专项基金”独立审计 但年报未详
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1608712/)
 
-#### 素材：东京樱花团｜GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/102101-1.jpg)香港保安局局长邓炳强。 照片：Selina Cheneg/香港自由新聞
+来自《香港自由新闻》2021年10月20日报道
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/日本1021.png)[*图片来源*](https://s.yimg.com/uu/api/res/1.2/DscdHTAa0E1EjyqOn3TbHg--~B/aD0xMDY3O3c9MTYwMDthcHBpZD15dGFjaHlvbg--/https://s.yimg.com/uu/api/res/1.2/eubTNBwt2Kdgz_RcNGl5hw--~B/aD0xMDY3O3c9MTYwMDthcHBpZD15dGFjaHlvbg--/https://media.zenfs.com/zh-tw/youthdailynews_517/e83fb76381faa5dc71d39d87a7abdb72)
+**摘要翻译：**
 
-1、[**选情调查显示自民党有望确保众院单独过半**](https://china.kyodonews.net/news/2021/10/6eb24ecf8642.html)
+香港政府表示，去年12月指定用途的80亿港元国家安全专项基金的细节不会公开，但该基金的财务报表已由独立审计师审查。
 
-共同社21日消息，关于日本第49届众院选举，共同社19、20日两日以全国17.4万选民为对象实施电话调查，以了解发布公告后的初期选情。对于465个额定议席，自民党虽有望确保单独过半数（233），但不确定能否维持公告前的276个议席。
+在周三向立法会提交的关于该市被称为“特别基金”的国家安全预算的年度报告中，财政司司长办公室称，该项基金是经行政长官批准，从香港的一般收入中拨款。
 
-2、[**日本今冬可避免电力和燃气短缺**](https://china.kyodonews.net/news/2021/10/70b02432b2b3.html)
+报告称，该基金在国家安全委员会秘书处下设有专门的会计和财务部门。该部门的会计和财务政策，以及其财务报表，符合“香港特别行政区政府的既定政策和惯例”，尽管它不受任何现行香港法律的约束。
 
-日本经济产业省21日举行首次官民联络会议，就防备冬季电力和燃气供应紧张、避免液化天然气（LNG）短缺的应对措施展开磋商。电力巨头在会上报告称，LNG库存为过去5年最高水平。经产省预计今冬可以避免供应紧张。不过为防备超出预想的需求扩大等，会上确认将继续监控库存动向。
+80亿港元已分配给“未来几年”。
 
-3、[**全球企业品牌价值榜丰田维持第七名**](https://china.kyodonews.net/news/2021/10/d9e9f87a9aec.html)
+报告称，财政司司长“不会透露有关该基金使用的更多细节”，但表示已根据《国家安全法》和《香港审计准则》进行了“独立审计”。
 
-美国咨询公司“Interbrand”21日发布了在全球开展业务的企业2021年品牌价值排行榜。日企中有7家进入前100名，排名最靠前的是第7位的丰田汽车，与上年相同。美国苹果公司连续9年位居榜首。日企中仅次于丰田的是本田，排名第25位。游戏业务良好的索尼集团从上年的第51位大幅上升至第41位。日产汽车与上年相同，排名第59位。任天堂在新冠疫情中抓住了在家玩游戏机的需求，排名升至第70位（上年为第76位）。佳能则因居家办公普及导致面向办公室的复合机需求减少，排名下滑至第79位（上年为第71位）。松下也下滑3位至第88位。
+“独立审计师对财务报表发表了无保留意见的审计意见，”这意味着审计师认为政府公平恰当地呈现了财务报表。
 
-4、[**韩国在野党党首拟23日登上竹岛**](https://china.kyodonews.net/news/2021/10/92d9ac23813d-23.html)
+报告中没有关于独立审计涵盖的时间段的信息。
 
-韩国保守派最大在野党“国民力量党”21日透露了党首李俊锡23日登上竹岛（韩国称独岛）的计划。如果实行，必将招致坚持“竹岛是日本固有领土”立场的日本政府的抗议。韩国明年3月将举行下届总统大选，李俊锡的登上竹岛计划也可能意在促进保守支持群体的团结。
+**简评：**
 
-5、[**候任美驻日大使听证会强调日美同盟重要性**](https://china.kyodonews.net/news/2021/10/0f508ae494e5.html)
+不透明的审计报告，香港正在快速的变成一个一国一制的中国城市。
 
-美国总统拜登提名为下一任驻日大使的前芝加哥市长拉姆･伊曼纽尔（61岁）20日在面向人事任命的参院外交委员会听证会上答辩，批评中国试图离间日美。他称“美国战略是通过团结实现安保，地区的团结建立在日美同盟之上”，强调了日美同盟的重要性。他明确表示，屡次发射导弹的朝鲜问题“是最优先课题之一”。
+新闻链接： [Hong Kong’s HK$8 billion national security ‘Special Fund’ is independently audited, but annual report gives no details](https://hongkongfp.com/2021/10/20/hong-kongs-hk8-billion-national-security-special-fund-is-independently-audited-but-annual-report-gives-no-details/)
 
-（本文只代表个人观点，与Gnews网站无关）
+***编辑: **希望*
 
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / 野猫*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-8.png)
+***校对: **感恩*
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

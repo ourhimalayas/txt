@@ -2,24 +2,31 @@
 ---
 
 
-## 有声|西南航空公司改变疫苗接种政策要求
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1608458/)
+## In-N-Out汉堡被迫关闭旧金山一家顶级分店
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1608497/)
 
-配音：香草山香港部-文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据消息称，美国西南航空公司作为联邦承包商，被要求于12月8日前为其雇员完成新冠疫苗的接种任务，在最后期限之前，但没有得到宗教或医疗豁免且未接种疫苗的雇员将开始休无薪假。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月19日，旧金山In-N-Out汉堡被迫关闭了一家顶级分店。旧金山卫生部门指，该餐厅的员工“未能阻止无疫苗证明的顾客进入店内”，因而下令关闭该餐厅。
 
-对于这一疫苗强制执行政策，西南航空公司飞行员协会提出了法律诉讼，要求法院“暂时阻止该公司执行联邦规定的新冠病毒疫苗接种政策，直至关于涉嫌违反美国劳动法的诉讼得到解决”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-10.jpeg)
 
-10月15日，西南航空公司负责运营和接待的高级副总裁史蒂夫-戈德堡和副总裁兼首席人事官朱莉-韦伯写信给员工表示，即便员工的豁免请求在最后期限之前没有得到批准，他们仍然可以继续工作，但需要遵守带口罩和保存社交距离的准则，直到豁免请求得到审查。
+In-N-Out汉堡公司首席法律顾问温辛格随后发布声明称，当地监管部门“不但要求餐厅在显著位置张贴告示，让顾客提供新冠疫苗接种证明，而且要求餐厅员工负责检查每一位客人的接种证明，以及带有照片的身份证明文件。”温辛格表示，In-N-out汉堡拒绝“成为任何政府机构的疫苗警察，因为这是不合理的、肆意的、不安全的行为”。
 
-为了在世界范围内停止COVID疫苗的接种，我们需要坚定信念、绝不放弃，继续传播疫苗真相，拒绝强制疫苗接种政策。
+今年8月底以来，加州、纽约州陆续实施的疫苗证明，将已接种新冠疫苗的民众与未接种的进一步区隔开来。
 
-文字版原文：[西南航空公司改变疫苗接种政策要求](https://gnews.org/zh-hans/1605126/)
+据悉，为数不少的餐饮业备受影响，In-N-Out汉堡并非单独个案。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
+(本文仅代表作者观点)
+
+参考链接：[San Francisco Shuts Down In-N-Out Burger For Refusing To Be “Vaccination Police For Government”](https://www.zerohedge.com/political/san-francisco-shuts-down-n-out-burger-refusing-be-vaccination-police-government)
+
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Irene木木 
+编辑：山本不惑
+校正/发稿：谐趣园
+
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)

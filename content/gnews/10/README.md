@@ -2,21 +2,22 @@
 ---
 
 
-## 秘翻在线：疫苗歧视已经蔓延到了宗教领域
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1608535/)
+## 财新网被“封口”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1608622/)
 
-#### 撰稿翻译：Hakunamatata
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-113.jpg)
+[图片来源](https://www.blackeep.com/6112.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1s3ad1f32153sda4g56rg23rtg123tioie.png)**图片来源：Rebel News**
+德国之声中文网21日报道，10月20日中共国家网信办公布了最新版《互联网新闻信息稿源单位名单》，而所谓的“敢言”媒体财新网并未被纳入这份名单，理由是“不再符合条件、日常表现不佳、缺乏影响力”。
 
-新不伦瑞克牧师因未执行没有顺从中共病毒防疫的规定，他允许未接种疫苗的民众进入而被捕，新不伦瑞克省政府希望法庭将菲尔牧师监禁。
+财新网被移除出“白名单”，这意味着未来读者只能通过财新网页或者手机应用程序获取财新网刊登的新闻内容，而无法在其他综合性新闻网站获取来自财新的报道。彭博社也分析指出，北京当局此举将削弱财新网的影响力。
 
-10月12日(星期三)下午，卫生部长向新不伦瑞克圣约翰礼拜堂家庭教会的菲尔·哈钦斯牧师发出了一份动议通知。 该通知要求哈钦斯因涉嫌违反十月八日的临时禁令而出庭接受聆讯。之前的命令要求哈钦斯遵守《新不伦瑞克公共卫生法》(New Brunswick Public Health Act)和修订后的强制命令(the Revised Mandatory order)，其中要求他的神堂(His Tabernacle)强制教众佩戴口罩。
+正值中共内斗的关键时期，作为王岐山喉舌的财新网被局部封杀，这是中共内部传递出的一种信号，处于深水区的政治斗争已处于白热化阶段。鹿死谁手，我们拭目以待。
 
-根据该法案，对于每一个教堂和其他的信仰场所，所有者、占用者和管理人员都必须采取一切责任步骤，确保在每次室内信仰聚会时，场地内的每个人都接种了全面的中共病毒疫苗。对于婚礼、葬礼和社交聚会以外的聚会，业主、占用人、经营者可以选择在场所内佩戴口罩、场所容量不超过50%、人员距离不超过两米、不唱歌、每个出席的人都要被记录下来，包括排号和座位号，这些记录会被移交给公共卫生官员。
+消息来源：[财新网被中国最新版信息稿源“白名单”除名](https://www.dw.com/zh/%E8%B4%A2%E6%96%B0%E7%BD%91%E8%A2%AB%E4%B8%AD%E5%9B%BD%E6%9C%80%E6%96%B0%E7%89%88%E4%BF%A1%E6%81%AF%E7%A8%BF%E6%BA%90%E7%99%BD%E5%90%8D%E5%8D%95%E9%99%A4%E5%90%8D/a-59572811)
 
-卫生部的动议要求法院裁定哈钦斯藐视法庭命令，并向法院提出“如果他再次不遵守同意令和法院认为必要的任何其他命令”法院必须监禁哈钦斯。
-
-该动议还要求对教会作为一个实体进行制裁。
-
-原文链接：[**New Brunswick pastor arrested for not enforcing COVID rules, allowing in unvaccinated congregants**](https://www.rebelnews.com/new_brunswick_pastor_arrested_for_not_enforcing_covid_rules_allowing_in_unvaccinated_congregants)
+免责声明：文章仅代表作者本人观点，与GNEWS无关
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/10/樱花团-1.jpg)

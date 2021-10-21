@@ -2,37 +2,59 @@
 ---
 
 
-## 文贵先生谈喜币与法币、货币的关系
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1608203/)
+## 数千加州家长“散步”抗议，反对学生疫苗强制令
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1608274/)
 
-作者：纽约香草山教育部– 正义的小新
+翻译：Lulumi
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/California-vaccine-mandate-protest-e1634654436920-900x506-1.jpeg)2021年10月18日，在加州亨廷顿海滩，数百名家长、教师和学生在亨廷顿海滩码头附近集会，作为全州 “罢工”的一部分，谴责加州对K-12学生的COVID-19疫苗强制令。(Vanessa Serna/The Epoch Times)
 
-关于法币、货币与比特币、喜币之间的区别和联系，文贵先生在周三的大直播中做了详细的解读。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/数字货币-1.jpg)
-文贵先生提及，货币是金、银等具体物质。而法币，则是在某个区域内，政府强制使用的、代表生产力及剩余价值的衡量价值券。因此，政府发行法币的核心，就是不能用其来兑换任何金银。直至虚拟货币的出现，改变了货币发行的规则和权利。
+数以千计的加州家长参加了全州性的罢工，反对对学生的疫苗授权。
 
-文贵先生强调，虚拟货币去中心化的根本目的在于去除第三方代理人，即去除政府发行货币的权利和规则。另外，虚拟币的代码不可篡改、不可造假，所以在长链数据中，时间戳及交易数据均不能被更改，所有交易账本应对所有人开放。
+数以千计的加州家长、学生和教师周一参加了全州范围内的游行，抗议加文·纽森(Gavin Newsom)决定强制所有公立和私立学校的学生接种COVID-19疫苗。
 
-至于比特币，文贵先生指出，比特币是技术“去中心化”，责任“去中心化”，且不可找、不可查，因而在暗网中被用来作为犯罪洗钱的工具。而喜币则恰恰相反——喜币是技术“去中心化”，责任“中心化”，从喜币诞生的第一天起就有法人对其负责。加之全人类有史以来，只有喜联储可以作为人类历史上唯一的生产力，能不受国家主权范围的限制，且与黄金量化挂钩。
+民主党人纽森本月早些时候宣布，一旦疫苗获得联邦食品和药物管理局（FDA）的全面批准，将对7至12年级的学童进行疫苗接种，使加州成为第一个实施此类要求的州。
 
-文贵先生点名，喜币“去中心化”的技术，使其不可被追踪、不可被剥夺，再加上其法币、货币化的属性，这就是它优于其他任何虚拟货币的力量。
-(本文仅代表作者观点)
+到目前为止，FDA只对12至15岁的人给予紧急授权（意味着疫苗公司和**FDA**对疫苗副作用不承担任何责任）。纽森的最新疫苗强制令预计将于2022年1月或2022学年开始时生效。
 
-参考链接：[2021年10月20日 文贵大直播： (1). 喜币是最真实干净的革命性货币，喜支付的商业历史性意义](https://gtv.org/broadcast/watch/61700c08304e992109b806ef)
+反对这些措施的加利福尼亚人，蜂拥到加州国会大厦的台阶上，举着写有 “我的身体，我的选择”和 “我的孩子不会成为让你感到安全的科学实验品”的标志。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+全州许多家长让他们的孩子离开学校参加集会，希望他们的缺课能向州政府官员传递拒绝疫苗的信息。
 
-总编：Irene木木 
-编辑：Irene木木
-校正/发稿：Fei
+一位萨克拉门托的母亲，32岁的肯德尔·拉默（Kendall Ramer）告诉美联社，她让她的两个孩子离开小学去参加集会，并补充说，一旦纽森的疫苗强制令生效，她和她的丈夫计划转为在家教育。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+她说：“每个人都应该能够自己选择对自己有利的东西”。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+洛杉矶联合学区雇员霍维克·萨蓬吉安（Hovik Saponghian）告诉SkyFOX，学童不应该被强迫 “在没有完整数据的情况下注射未知的东西”。
+
+萨蓬吉安说：“我在这里抗议这项强制令，因为我们不认为我们应该在宗教上、伦理上或道德上接受它”。
+
+洛杉矶联合学区（LAUSD）的家长里马·姆希特兰（Rima Mkhitran）告诉新闻媒体，她参加集会是因为 “我们希望我们的孩子和我们的老师有选择权”。
+
+她说：“作为一名家长，我认为我有权利和其他家长一起为我们的孩子站出来。”
+
+洛杉矶区家长娜拉·瓦尔达雷扬（Nara Vardaresyan）补充说：“我不想为我的孩子接种疫苗，因为他们还太小。没有任何研究显示疫苗长期的影响。我们应该等上几年。”
+
+数百名家长和学生也聚集在最近的Placentia Yorba Linda联合学区（PYLUSD）董事会会议上，表达他们对中共病毒COVID-19疫苗任务的反对。
+
+Placentia学区的克里斯汀·莫滕森（Kristen Mortensen）对《大纪元时报》说：“疫苗太新了，不应该给我们100%的孩子注射，我们需要有一个选择。”
+
+该区两个学生的父亲里克补充说：“我在这里为我孩子的权利和我们县的所有孩子站出来。他们不应该被注射一些还没有长期研究的东西。”
+
+纽森强制要求学童接种中共病毒COVID-19疫苗的计划得到了不同的反馈，西弗吉尼亚州州长吉姆·贾斯蒂斯在10月3日宣布，他“没有可能”做同样的事情。
+
+共和党人贾斯蒂斯告诉哥伦比亚广播公司的 “面向全国”节目：“从疫苗强制令的角度来看，我不相信任何强加于我们自由的东西。我已经一次又一次的说过了，我不知道我还得说多少次。”
+
+“但从我们孩子的角度来看，我仍将以各种方式鼓励，因为我真的相信，我们接种疫苗的人越多，死亡的人就越少。与此同时，我们仍然要坚持我们是谁。”
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**参考资料：**[ntd][Thousands of California Parents Join in Statewide Walkout Against Vaccine Mandate for Students](https://www.ntd.com/thousands-of-california-parents-join-in-statewide-walkout-against-vaccine-mandate-for-students_690513.html)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)
