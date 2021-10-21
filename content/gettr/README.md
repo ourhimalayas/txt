@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/21/2021 5:57 PM (UTC)`
+
+10月21号：我的乖乖哟……
+![img](https://media.gettr.com/group41/getter/2021/10/21/17/cf601883-ff07-7f8c-e915-3d95ccf12002/799bee6ae0eb660c13377db6c2edf76d.jpg)
+
+---
+
 `@miles 10/21/2021 5:43 PM (UTC)`
 
 10/20/2021 Miles Guo: Xi Jinping has known that Jack Ma, Alvin Jiang and others plotted to get rid of him, so he will never show any mercy on them! Fu Zhenghua knew that he was bound to be sentenced to death, so he would make a confession of other peoples’ crimes. Anyone who thinks he can escape by chance will find his doom!<br/><br/>10/20/2021 文贵直播: 习近平得知马云、江志成等人要除掉他，所以他绝对不会对这些人手软。傅政华知道自己必死无疑，定会把所有相关的人都供出来。在国内幻想侥幸的人不会有好下场!
@@ -289,13 +296,6 @@ Tu Youyou said Artemisia annua has many other efficacies besides treating malari
 
 October 17, 2021, this is the material sent last year about Wang Qishan and Meng Jianzhu, UBS Bank, and the Swiss AMAC company robbed our Trust fund's aircraft, which Youtube deleted at that time! When we look back to this video today, it means so much. We'll present evidence that this aircraft renovation company's alleged terrorist money laundering links to various terrorist groups in Syria during our bathroom breaks and bring it to trial under international law【October 10, 2020, this is the chairman of AMAC aircraft renovation company from Lebanon, together with Meng Hongwei, UBS bank, and HNA; he planned this appalling scam and robbery! This is our 12 years' work to build this one of a kind aircraft, and I paid $110 million on this project…】
 ![img](https://media.gettr.com/group13/getter/2021/10/17/19/05/a217148e-5b98-a3fa-dac8-0b58a77174e4/9fcd81d957ac5e60bd269f901d205b1d.jpg)
-
----
-
-`@miles 10/17/2021 5:54 PM (UTC)`
-
-10/17/2021 Miles Guo: During the CCP virus epidemic in Wuhan, Xi didn’t go to Wuhan because he was told Sun Lijun, Wang Like, and others were going to assassinate him. So, Xi immediately sent people to investigate it, had Sun Lijun taken to Shuanggui, put Meng Jianzhu and Wang Qishan under house arrest. It turned out Alvin Jiang was found to be involved in it.<br/><br/>10/17/2021 文贵直播：2020年武汉疫情期间，习没去武汉是因其得知孙力军和王立科等人要杀他，于是习马上派人去查，双规了孙力军，软禁了孟建柱和王岐山，最后发现这跟江志成有关<br/>
-![img](https://media.gettr.com/group12/getter/2021/10/17/17/54/db815dbf-64d5-3e26-7721-d1a312660a65/out.jpg)
 
 ---
 
