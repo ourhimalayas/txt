@@ -2,66 +2,61 @@
 ---
 
 
-## 维加诺大主教给意大利的里雅斯特人民的致辞
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1607790/)
+## FDA 表示不再购买流产胎儿的细胞组织
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1607833/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_4023-1200x1600-1-700x420-3.jpg)维加诺大主教 Archbishop Mgr. Carlo Maria Viganò 网络图片
+**编译：西班牙喜悦农场–wenwu**
 
-2021年10月18日 传道者圣路加福音者
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip46.png)Jason Armond : Los Angeles Times via Getty Images
 
-亲爱的朋友们，我怀着深深的忧虑关注着港口工人的和平抗议，他们在过去几天里呼吁，反对强迫每个工人持有健康证的非法规定，该证明需要通过接种”实验性基因血清”，或每48小时进行一次鼻拭子检查才能获得。
+美国食品和药物管理局(FDA)周五向 Daily Caller News Foundation 保证，自 2018 年以来，它没有签订任何“购买人类胎儿组织”的合同。
 
-亲爱的朋友们，你们已经明白，所谓的疫苗仍然处于实验阶段，我们并不知道它将带来的长期影响。几周以来，我们已经累计出越来越多的不良反应，甚至死亡，而卫生部门在与媒体合谋下-正试图通过把它们归类为突发性疾病来掩盖。我们都是试验动物，是被制药公司的机构僕人进行大规模试验的对象。你也知道，疫苗不能保证免疫力，它并不能避免我们感染他人，亦不能保护我们免受感染。同时你也知道，鼻拭子的可靠性极低，因为它们不是为诊断目的而设计的。
+FDA 的回应是在《司法观察》获得的[**文件**](https://www.judicialwatch.org/press-releases/new-fda-records-humanized-mice/)发布后作出的，该[**文件**](https://www.judicialwatch.org/press-releases/new-fda-records-humanized-mice/)显示 FDA 曾采购了人类胎儿器官、组织和头颅用于涉及“人源化小鼠”的研究。《司法观察》的[**先前文件**](https://www.judicialwatch.org/press-releases/fda-humanized-mice/)显示，FDA 要求采购“新鲜且从未冷冻”的胎儿器官清单。[（相关：未密封的发票显示，计划生育协会向一家细胞组织公司支付了近 2.5 万美元的胎儿部位商品费用）](https://dailycaller.com/2020/04/14/planned-parenthood-david-daleiden-stemexpress-fetal-body-parts-payments-lawsuit/)
 
-然而，如果雇员们不屈服于这种卑鄙的勒索，他们就不能工作，不能得到他们的工资，也不能得到产假和健康福利，他们想通过这种方式迫使你接种疫苗，或者证明没有被病毒感染，并且这种病毒还没有被任何实验室——我再说一遍：没有任何—分离出来，只是测序。我欢迎任何人来反驳我。
+“我已经做了 23 年了。我们从 FDA 和我们的其他诉讼中获得的这些文件……它们是我生来见过的最糟糕的文件，”《司法观察》主席汤姆·菲顿（Tom Fitton）周五告诉 Daily Caller News Foundation Friday。“我生来见过的最令人不安就是这文件了。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20180826T1030-19652-CNS-VIGANO-TESTIMONY-MCCARRICK-1.png)
+在周五给 DCNF 的一份声明中，FDA 并未否认购买未出生婴儿的身体部位（商品），并淡化了其对人类胎儿组织的使用，称其仅用于“对了解药物和疫苗的安全性至关重要的情况，且无法通过其他方式来实现。”
 
-对天生的自由、公民和宪法权利、言论自由与和平抗议权利的侵犯，已经成为一个公权力胁迫和勒索的工具，该权力机构不再保障公民的健康和福祉，而是以精神大流行病为借口，想把人们变成奴隶。控制的奴隶，服务的奴隶，他们的一举一动、每次购买、每次交易、每次活动都要被追踪。同时请别感到惊讶：他们这几个月来所做的一切——如果没有人阻止他们的话，在接下来的几个月他们会继续这样做——已经被明确地招示。从利用大流行病疫情的紧急情况来实施新形式的控制，到呼吁生态紧急情况来禁止我们驾驶汽车、购买某些产品、使用电力或暖气。
+“自 2018 年以来，FDA 没有签订任何购买人类胎儿组织的合同，”FDA 告诉 DCNF，并补充说“之前涉及人类胎儿组织的研究仅占 FDA 总研究的很小一部分。”
 
-在他们的项目中，他们想摧毁我们的世界、我们的文化、我们的宗教、我们的生活方式、工作方式、我们彼此之间的关系。我们必须成为没有批判性判断力的机器人，成为他们跨国公司的顾客，成为他们公司的低薪奴隶，没有权利，没有保障，没有社会福利，也没有自由。
+《司法观察》通过 2019 年信息自由法案 (FOIA)对美国卫生与公共局 (HHS)[提起的诉讼](https://www.judicialwatch.org/press-releases/judicial-watch-sues-health-and-human-services-for-documents-on-human-fetal-tissue-used-in-humanized-mice-testing/)，获得了这些跨越 2012 年和 2013 年的通信。[（相关：计划生育协会的员工作证，她想以每人 750 美元的价格出售胎儿肝脏）](https://dailycaller.com/2019/12/09/planned-parenthood-tram-nguyen-fetal-livers/)
 
-你们中的一些人——主要是那些最近加入这次抗议活动的人——可能认为我所说的只是阴谋论者的定论。有人天真地认为，这次疫情——其造成的死亡几乎完全是由于禁止遵循有效的治疗方案造成的——只是由于无能或无准备的人管理不善所造成的。但事实并非如此。那些谈论病例减少和北欧国家缺乏绿色通行证的人忽视了，在几个月内，丹麦将强制实行数字身份证，通过它，每个公民的信息都将被保存在一个包含有他们的身份证、护照、社会保险代码、健康卡、疫苗接种状况和银行账户的文件中。如果封锁和宵禁没有发生；如果口罩没有被强制使用，那只是因为这些国家已经完全全球化，公民被大重启的意识形态所教化，且准备好植入皮下微芯片。在瑞典，微芯片已经在自愿的基础上被激活，它被用来打开家门或启动汽车。在北欧国家，网上购物、骑手、电子支付已经成为现实，且有一段时间了。但在意大利却不是这样：直到2020年2月，不管是谁想吃披萨，都可以在附近的餐馆点餐，不需要使用任何应用程序。
+《司法观察》的诉讼要求 FDA 与人类胎儿组织供应商 Advanced Bioscience Resources (ABR) 之间的所有通信和文件，这些文件涉及拟用于人源化小鼠研究的人类胎儿组织——研究人员[将](https://www.niaid.nih.gov/research/humanized-mouse-model-workshop)未发育的人类组织细胞植入活体小鼠体内的过程。
 
-这就是为什么在意大利、西班牙、葡萄牙，以及所有具有天主教传统的国家——那些被一些人认为不发达的国家——他们不得不利用疫情紧急情况：它不得不迫使我们取缔我们的生活方式——一种和睦的生活方式，由人际关系、问候、拥抱、谈话和思想交流构成的方式——并通过技术、物联网、不通人情的应用程序的使用取而代之，而这些应用程序会跟踪我们买什么、何时、何处、以何种价格、用何种付款方式。他们想知道我们在社交媒体上写了什么，我们在家里通过Alexa和谷歌说了什么，我们在Kindle上喜欢读什么，在Netflix上看什么电影，在Spotify上听什么音乐。
+根据《司法观察》报道，一家联邦法院[随后命令](https://www.judicialwatch.org/wp-content/uploads/2021/03/JW-v-HHS-order-00876.pdf) HHS 公布更多关于流产胎儿组织收获的信息，并[表示](https://www.judicialwatch.org/press-releases/aborted-fetuses-information/)“有理由质疑”这些交易是否违反了禁止销售胎儿器官的联邦法律。
 
-他们知道我们去哪里，因为我们的汽车、手机、手表、iPad，甚至我们的包和衣服都与互联网相连。他们想知道你的心跳，你的血压，你的血糖水平，显然还有你已经打了或必须接种几针疫苗及哪些疫苗。他们还想控制你的生殖周期，决定你是否可以生育以及何时生育。他们知道你赚了多少钱，花了多少钱，怎么花的，你见了谁，你坐了哪些运输工具。
+胎儿组织已被[用于](https://chancellor.ucsf.edu/blog/response-administrations-actions-fetal-tissue-research)一些为寻求治疗方法的[研究项目](https://senate.universityofcalifornia.edu/_files/reports/rm-jn-mb-restrictions-fetal-tissue-research.pdf)，包括阿尔茨海默氏症、脊髓损伤、眼疾和艾滋病毒，但宗教和反堕胎倡导者认为这种做法是不道德的，因为胎儿组织来自流产的婴儿。 [（相关：胎儿组织研究对医学至关重要吗？专家是这样说的）](https://dailycaller.com/2019/06/07/fetal-tissue-research/)
 
-在意大利，这种情况比其他地方发生得更慢。感谢上帝，有像你们这样的和其他许多公民一样的人，明白接种疫苗是一个借口，必将把你拴起来，强迫你做你不愿意做的事情，否则你将不能工作，不能旅行，不能吃饭。
+在前美国总统唐纳德·川普(Donald Trump)执政期间，HHS [对](https://dailycaller.com/2019/06/05/trump-cancel-fetal-tissue-research-government-funding/)由美国政府资助的涉及[选择性流产胎儿组织的](https://dailycaller.com/2018/08/17/planned-parenthood-video-abortions/)研究[进行](https://dailycaller.com/2019/06/05/trump-cancel-fetal-tissue-research-government-funding/)了为期九个月的审查 ，最终 HHS 在 2019 年 7 月禁止 NIH 内部研究团队使用胎儿组织。
 
-他们不在乎自己是否违反了法律。他们不在乎他们是否违反了宪法且不受惩罚，更不用说上帝的法则了。除了他们的主人，他们谁都不怕。政治阶层——目前的整个政治阶层，从多数派到反对派——完全屈从于一个控制了政府、金融、医疗、媒体、大公司、执法、司法的独裁势力。而教会阶层也不例外，他们自己也是新世界秩序的附庸。
+值得一提的是，拜登政府在今年 4 月份[撤销了](https://dailycaller.com/2021/04/16/joe-biden-roe-v-wade-department-of-health-and-human-services-donald-trump/?filter_by=popular&amp;p=374&amp;page=66&amp;ref=hexometer)这项禁令。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/maxresdefault-3.jpg)维加诺大主教 Archbishop Mgr. Carlo Maria Viganò 网络图片
+“所以现在拜登政府的 FDA 正在为制造中共疫苗而选择使用未出生人类的部分商品，并为之辩护，”Fitton 对 DCNF 说。“这就是他们要干的事情？”
 
-亲爱的朋友们，你们的抗议比看起来要重要得多。因为你们抗议的不仅仅是一种卑鄙的勒索，即你们必须在工资和通行证的使用之间做出选择；而还有对一整套意识形态的反对，反对一股试图明确地将自己强加于人的、得到媒体和政界无条件支持的不露面的独裁势力。一股从未经人选举产生的势力，这正是它认为民主选举和人民代表的作用都没有必要的原因，因为它已经收买了他们，并对他们进行了敲诈。
+“很少有美国人会支持将未出生人类的遗骸切碎用于科学研究，使用他们的器官，出售他们的头颅，用于FDA和他们的研究人员想做的任何弗兰肯斯坦实验，”Fitton 对 DCNF 说。”这是野蛮行为。应该进行刑事调查，以弄清是否像法院所建议的那样，违反了禁止销售胎儿器官以谋取暴利的法律。”
 
-今天早上，你们被人用消防栓、催泪瓦斯和警棍从港口大门抛之在外。这些工具是用来打击暴力罪犯的，而不是用于那些看到自己的工资和自由受到威胁的和平家庭和诚实工人身上的。你们被警察指控，而这些警察自身也在经受绿色通行证的荒谬性，因为他们中的一些人也没有这一通行证。我希望你们和平而沉着的回应能让他们反思自己的所作所为，反思对他们宣誓过的宪法的背叛，反思他们所服从的暴君。
+美国计划生育协会（The Planned Parenthood Federation of America）一再为自己的[指控辩护](https://dailycaller.com/2020/04/14/planned-parenthood-david-daleiden-stemexpress-fetal-body-parts-payments-lawsuit/)，就是关于其出售人类胎儿组织的指控。该组织[公开](https://www.wsj.com/articles/planned-parenthood-stops-taking-reimbursements-for-fetal-tissue-1444744800)承认他们因为销售胎儿组织获得了报酬，但他们只承认用来报销费用（没有利润，可能吗？），随后表示他们将不再接受报销费用（资金来源被隐藏了）。
 
-我敦促你们不要诉诸暴力，但同时也不要让自己被银行和制药公司提名的统治者所吓倒，因为只要有人害怕、服从、低头和默默忍受，他们的权力就会持续。如果你们每个人都能以和平的方式坚定地抵制这种不可容忍的权力滥用，这场怪诞的闹剧将不可避免地溃散，所有支持它的奴才和临时工也将随之而去。抵抗一个滥用权力、违背其成立目的的当局，不仅是合法的，而且是正确和恰当的；正如反对极权主义和任何形式的独裁统治的斗争是正确和恰当的。请记住，你们都是基督徒，你们的父亲和母亲把信仰和价值观传给你们，使我们亲爱的祖国成为文明、文化、艺术和立业的灯塔。那些曾为意大利献出了自己的生命，捍卫了意大利的主权和独立的人们，正从天堂注视着你们，并期待着同样的激烈，同样的勇气，同样的荣誉。请记住你们的大主教安东尼奥•桑廷先生，他在法西斯、纳粹和共产党面前挺身而出。让我们捍卫我们的身份，我们的宗教，我们的价值观，我们的孩子，我们所爱的人，我们的工作，我们的炉灶。
+像大卫·达莱登 (David Daleiden，如下图) 这样的反堕胎倡导人士[此前曾指出](https://www.foxnews.com/politics/pittsburgh-live-fetus-organs)，一些未出生的婴儿在摘取器官时可能会出现心脏活动，这表明这些婴儿可能还活着。FDA 没有立即回应关于这一点的评论请求。
 
-同时我请求你们：不要被那些人的挑衅所迷惑，他们只想找借口把这个国家变成一个受共济会、比尔德伯格集团、罗马俱乐部、三边委员会、世界经济论坛、世界卫生组织以及所有这些无名无姓的阴谋者奴役的政权。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip45.png)
 
-你们的武器，一个可怕和最强大的武器，必须是神圣的念珠。向最神圣的圣母祈祷，与你亲爱的人、你的孩子和你的兄弟姐妹一起向她祈祷；抓住受祝福的念珠！让我们一起请求圣母玛利亚，格里萨山女王，以及在圣玛丽大教堂中备受崇敬的安康圣母，来拯救我们的意大利，保护它，解放它。
+**简评：**
 
-带着信心祈祷吧，它将会击溃并不可阻挡地击败我们的敌人。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip47.png)
 
-我祝福你们所有人，向你们保证我的祈祷，并请求、乞求你们把所有的希望倾注于最神圣的圣母，我们的女士，我们的母亲，基督徒的帮助。
+**一则相关[报道](https://www.judicialwatch.org/in-the-news/new-records-aborted-babies/)。有新记录[显示](https://www.lifenews.com/2021/09/14/new-records-show-obama-admin-purchased-aborted-babies-heads-for-515-each/)，奥巴马政府以每个 515 美元的价格购买了流产婴儿的头部。**
 
-万福玛利亚! 耶稣基督万岁!
+**《司法观察》于2021年9月15日宣布，其收到了美国食品和药物管理局 (FDA) 的 [198 页](https://www.judicialwatch.org/documents/jw-v-hhs-fda-humanized-mice-may-2021-00876/)记录和通讯，涉及“[人性化小鼠](https://www.ewtn.com/catholicism/library/fetal-experimentation-frankenstein-revisited-9610)”（HM）对人类胎儿头部、器官和组织的研究，包括与人类流产胎儿组织提供商 Advanced Bioscience Resources 的通讯和合同(ABR)。**
 
-卡洛•玛利亚•维加诺，大主教
+**这对华人的冲击是很大的，因为华人经历过毛时代的“计划生育”，这导致了5亿华人的婴儿流产死亡。那么在疫情大流行的当下，您还相信这里面没有利润吗？我们要好好去想想。当然，也包括了中共疫苗。**
 
-（由一位意大利裔爆料革命支持者翻译）
+（文章仅代表作者观点与GNEWS无关）
+
+**新闻来源**：[dailycaller.com] | [FDA Says It Does Not Buy Fetal Tissue — Any More](https://dailycaller.com/2021/09/17/fda-aborted-fetal-tissue-humanized-mice/)| 作者：MARY MARGARET OLOHAN｜发布时间：2021年9月17日｜
 
 * * *
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+***发稿：信心满满***
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
