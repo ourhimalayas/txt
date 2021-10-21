@@ -2,49 +2,27 @@
 ---
 
 
-## 国土安全部长参加拜登活动两天后被测新冠阳性
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1608630/)
+## GTV新闻访谈简报|2021年10月21日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1608694/)
 
-编译：**Lulumi**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-405.png)图片来源： ntd.com
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-21.png)
+文章仅代表作者本人观点，与Gnews无关
 
-2021年5月13日，在华盛顿，国土安全部部长亚历杭德罗·马约卡斯在参议院国土安全和政府事务委员会的听证会上作证。(Graeme Jennings/Pool via AP)
+视频参看：2021.10.21早GTV新闻访谈
 
-国土安全部（DHS）发言人玛莎·埃斯皮诺萨（Marsha Espinosa）说，马约尔卡斯 “今天上午在接受了作为常规旅行前协议一部分的测试后，对COVID-19病毒检测呈阳性。”
+[https://gtv.org/video/id=61715d3583e948708d055705](https://gtv.org/video/id=61715d3583e948708d055705)
 
-埃斯皮诺萨补充说：“我们正在进行接触追踪。马约尔卡斯只经历了轻微的充血；他完全接种了疫苗，并将根据美国疾病控制和预防中心的协议和医疗建议在家中隔离和工作。”
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-这一诊断是在马约尔卡斯周日与总统拜登一起出席在国会大厦举行的年度全国和平官员纪念仪式后作出的。目前还不清楚这两个人是否彼此有密切接触。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
 
-拜登在活动中说：“致国土安全部部长马约尔卡斯，感谢你来到这里，感谢你为我们所做的伟大工作。非常、非常感谢你。这是一份艰难的工作。”
-
-国土安全部在网上公布的照片显示，马约尔卡斯站在离第一夫人吉尔·拜登不到一英尺的地方，后者站在总统旁边。根据这些照片，人们还看到马约尔卡斯站在联邦调查局局长克里斯托弗·雷的旁边。
-
-拜登夫妇接种了COVID-19疫苗，这是一种由CCP（中共）释放的病毒。78岁的拜登总统几周前接种了他的第三剂COVID-19疫苗。
-
-61岁的马约尔卡斯原定与国务卿安东尼·布林肯一起前往哥伦比亚，但现在只能在家里。
-
-美国疾病控制和预防中心（CDC）将COVID-19突破性病例描述为完全接种的个人，其测试结果呈阳性。
-
-据他的家人说，84岁的前国务卿兼陆军将军科林·鲍威尔本周早些时候因中共病毒COVID-19的并发症而去世。他完全接种了疫苗，但也在接受血癌的治疗。
-
-其他几位备受瞩目的华盛顿官员报告了突破性的CCP病毒病例，包括国务院发言人内德·普莱斯（Ned Price）和参议员林赛·格雷厄姆（Lindsey Graham）。格雷厄姆在8月初成为第一个检测出阳性的接种过疫苗的参议员。
-
-在众议院，纽约州民主党的约瑟夫·莫雷勒（Joseph Morelle）和佛罗里达州民主党的达伦·索托也接种了疫苗，他们在最近几天检测出阳性。
-
-上个月，在数千名主要是海地的非法移民在德克萨斯州德尔里约的一座桥下聚集并扎营后，马约卡斯受到了相当大的抨击。9月下旬，该部长证实，约有12000名海地人被释放到美国内陆。
-
-而上周，德克萨斯州公共安全部和国土安全部向《边境报告》证实，这两个机构预计可能会有更多的数千名非法移民涌入，据说他们正在墨西哥聚集形成一个大篷车，并正在向北挺进。
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**资料参考**：[ntd.com] [Homeland Security Secretary Tests Positive for COVID-19 Two Days After Event With Bidens](https://www.ntd.com/homeland-security-secretary-tests-positive-for-covid-19_690676.html)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
