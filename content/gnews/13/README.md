@@ -2,29 +2,45 @@
 ---
 
 
-## 外贸困顿，广交会成“内销会”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1608641/)
+## 香港80亿港币国安“专项基金”独立审计 但年报未详
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1608712/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-103.jpg)
-[图片来源](https://www.chinahot.org/zhihu/387855/%E7%AC%AC130%E5%B1%86%E5%BB%A3%E4%BA%A4%E6%9C%83%E4%BE%86%E4%BA%86%2010%E6%9C%8815%E6%97%A5%E5%BB%A3%E5%B7%9E%E9%96%8B%E5%B9%95_%E5%8F%83%E5%B1%95.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/102101-1.jpg)香港保安局局长邓炳强。 照片：Selina Cheneg/香港自由新聞
+来自《香港自由新闻》2021年10月20日报道
 
-10月19日下午，为期5天的第130届广交会落幕。展会期间，有近400家企业向广州海关表达了出口转内销的强烈意愿。
+**摘要翻译：**
 
-“希望通过广交会这个平台，在稳住海外订单的同时，更多地拓展国内市场”。广州蒙娜丽莎卫浴股份有限公司成立于2012年，是卫浴行业知名企业，产品出口到北美、欧洲、中东、东南亚等地。
+香港政府表示，去年12月指定用途的80亿港元国家安全专项基金的细节不会公开，但该基金的财务报表已由独立审计师审查。
 
-广东凌丰家居用品股份有限公司表示，“对于习惯于只负责生产加工、不负责分销渠道这一发展模式的外贸企业来说，从外贸转型拓展国内市场面临很大的挑战。”数据显示，今年以来，截至10月上旬，广州海关为866家加工贸易企业办理了内销手续。
+在周三向立法会提交的关于该市被称为“特别基金”的国家安全预算的年度报告中，财政司司长办公室称，该项基金是经行政长官批准，从香港的一般收入中拨款。
 
-创办于1957年[春季](https://zh.wikipedia.org/wiki/%E6%98%A5%E5%AD%A3)的“广交会”，是中共国目前规模最大、成交效果最好的国际贸易展会，也被称为中共国外贸的“风向标”和“晴雨表”。
+报告称，该基金在国家安全委员会秘书处下设有专门的会计和财务部门。该部门的会计和财务政策，以及其财务报表，符合“香港特别行政区政府的既定政策和惯例”，尽管它不受任何现行香港法律的约束。
 
-受全球疫情对国际贸易的持续影响，众多加工贸易企业面临原材料价格大增、汇率波动变大、国际运费暴涨等巨大压力，对外的竞争力丧失，被迫转向国内市场。加之，当前中共国内经济急转直下和消费严重萎靡，又进一步加重了市场的风险和不确定性，外贸企业危矣！
+80亿港元已分配给“未来几年”。
 
-信息来源：
+报告称，财政司司长“不会透露有关该基金使用的更多细节”，但表示已根据《国家安全法》和《香港审计准则》进行了“独立审计”。
 
-[广交会：近400家企业有意出口转内销](https://news.dayoo.com/guangzhou/202110/20/139995_54087355.htm)
+“独立审计师对财务报表发表了无保留意见的审计意见，”这意味着审计师认为政府公平恰当地呈现了财务报表。
 
-免责声明：文章仅代表作者本人观点，与GNEWS无关
+报告中没有关于独立审计涵盖的时间段的信息。
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+**简评：**
+
+不透明的审计报告，香港正在快速的变成一个一国一制的中国城市。
+
+新闻链接： [Hong Kong’s HK$8 billion national security ‘Special Fund’ is independently audited, but annual report gives no details](https://hongkongfp.com/2021/10/20/hong-kongs-hk8-billion-national-security-special-fund-is-independently-audited-but-annual-report-gives-no-details/)
+
+***编辑: **希望*
+
+***校对: **感恩*
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

@@ -2,27 +2,50 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月21日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1608694/)
+## 宋平直言习近平:马云马明哲马化腾三马乱华,富人盼习死
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1608718/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/616b9d68eb6d2_副本.png)
+据[2021年10月20日 文贵大直播： 喜币是最真实干净的革命性货币，喜支付的商业历史性意义；马云在被进行刑事调查时没有及时如实公告，马云在西班牙操纵股价，蔡中信的房子是马云的，他洗掉了马云75%的钱；江志城的投资都和马云有关联，都是刑事犯罪；呼吁企业家与新中国联邦合作，一起灭共](https://gtv.org/video/id=61700c08304e992109b806ee)时间1：47：07——
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-21.png)
-文章仅代表作者本人观点，与Gnews无关
+你都想当曾国藩，马云、马明哲、马化腾都想当曾国藩，导致了习近平坐在那里，听说习近平去找宋平去了，宋平院里他说，这事怎么能发生呢？宋老，我还真没想到这个马云竟然他们想推翻这个体制？我还不敢想，王立科想杀我！孟建柱、孙力军、王岐山竟然给我策划那么大一局！宋平半天给他说了一句，他说三马乱华呀！已经不是今天了。
 
-视频参看：2021.10.21早GTV新闻访谈
+哇塞，习吓得，什么叫三马乱华呀？咱们老说五胡乱华。三马乱华，他说这个你看看只要马明哲、马化腾、马云出现的地方，他说是所有中国人所有跟随的地方，三马代表了一切！代表着经济的力量、国际化、现在和未来和互联网。——很好地给习上了一个课。
 
-[https://gtv.org/video/id=61715d3583e948708d055705](https://gtv.org/video/id=61715d3583e948708d055705)
+三马是七哥2017年七哥爆料开始到现在的，习他没有人相信，没有相信。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+好！还有一个，人家宋平跟他说，他说你现在你觉得还有什么说法吗？——还有说法。他告诉习，他说所有的企业界、上海的经济家还有知识界、法律界都盼着你出事儿呢！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+大家听懂这个话，宋平老人家，佩服！我多次跟老人家喝酒交流，这个，你别看咱打倒共产党，但是宋平的政治智慧那非同一般。他经常去盘古我们聊天，也帮过我忙，老人家到现在到处还说我，不管你们怎么说，郭文贵绝非一般人，在什么时代都不是一般人。而且谁一骂我的时候，说你们去想想郭文贵的过去，再说郭文贵未来能干什么吧！
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+因为他了解我的过去，我们俩是对立的，他是共产党，我们是新中国联邦。但是从个人来讲这个老头不简单，他这话你想想提到点子上了。江浙人，中国的所有的企业家，所有的文化知识界、法律界，都等着习死，等着习出事儿呢！
+
+欸，习呀，他说你真这么觉得吗？他说我觉得全国人民对我怎么样怎么样，哎呀，说了很多，他真很天真，真很天真，习呀。这些人跟我讲的时候，当场在现场的就是宋平的家里面跟了他多少年的，这个都知道，习也都知道，我不怕暴露他，她跟我是老乡，一生未婚就照顾他老人家。
+
+她说习当时还很天真地给宋老解释，我受到什么爱戴，宋平说，没错！穷人都希望你在，穷人都说你好还给你立雕像呢！你是穷人的代表。除了穷人之外，都希望你出事儿！
+
+哇塞这话！兄弟姐妹们，今天这个爆料这是最核心的，中国已经是完全阶级化了，穷人希望习近平好，中国所有的有产阶级和文化阶级、法律界、私人企业家、金融界，什么这些房地产商都想习嘎嘣儿了。听懂了吧？这事大吧？这事儿有多大，这个事你去验证去吧。
+
+刚才你去看去吧，这就是花王，好花之王我的兄弟，你念了这里边的核心，所有这些不健康的经济、所有这些问题的核心的问题——假、骗、偷，就是中国已经出现明显的阶级化，都是玩假的，更加地夸张。
+
+（以下暂略）
+
+撰稿：喜马拉雅的肉夹馍
+
+审核：喜马拉雅的馍夹肉
+
+校对：Maarago
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

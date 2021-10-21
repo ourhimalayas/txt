@@ -15,130 +15,130 @@
 
 ---
 
-### [纽约警察工会将起诉纽约市疫苗强制令](/content/gnews/1/README.md)
+### [【小雨专栏】在路上——零食篇](/content/gnews/1/README.md)
+ ` 温哥华扬帆农场`
+
+### [10/20/2021文贵直播：习近平得知马云、江志成等人要除掉他，所以他绝对不会对这些人手软](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [CN铁路员工因拒绝接种疫苗而面临工作危机](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [纽约警察工会将起诉纽约市疫苗强制令](/content/gnews/4/README.md)
  ` HimalayaRussia`
 
-### [川普总统宣布将推出“真相社交”](/content/gnews/2/README.md)
+### [川普总统宣布将推出“真相社交”](/content/gnews/5/README.md)
  ` HimalayaRussia`
 
-### [北京操纵好莱坞 用所谓正面形象欺骗世界](/content/gnews/3/README.md)
+### [北京操纵好莱坞 用所谓正面形象欺骗世界](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [去中心化社交媒体的优势和未来](/content/gnews/4/README.md)
+### [去中心化社交媒体的优势和未来](/content/gnews/7/README.md)
  ` 纽约香草山MOS03`
 
-### [NIH向国会提交更正信函证明福奇宣誓后撒谎](/content/gnews/5/README.md)
+### [NIH向国会提交更正信函证明福奇宣誓后撒谎](/content/gnews/8/README.md)
  ` HimalayaRussia`
 
-### [正道主义的喜马拉雅币将闪闪发光](/content/gnews/6/README.md)
+### [正道主义的喜马拉雅币将闪闪发光](/content/gnews/9/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [未来全球能源转型或将严重波及影响加拿大](/content/gnews/7/README.md)
+### [未来全球能源转型或将严重波及影响加拿大](/content/gnews/10/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [宋平直言习近平:马云马明哲马化腾三马乱华,富人盼习死](/content/gnews/8/README.md)
+### [宋平直言习近平:马云马明哲马化腾三马乱华,富人盼习死](/content/gnews/11/README.md)
  ` NewFOC`
 
-### [孙力军去年暗杀未果，习近平反扑大抓捕](/content/gnews/9/README.md)
+### [孙力军去年暗杀未果，习近平反扑大抓捕](/content/gnews/12/README.md)
  ` 波士顿五月花农场`
 
-### [香港80亿港币国安“专项基金”独立审计 但年报未详](/content/gnews/10/README.md)
+### [香港80亿港币国安“专项基金”独立审计 但年报未详](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [GTV新闻访谈简报|2021年10月21日早](/content/gnews/11/README.md)
+### [GTV新闻访谈简报|2021年10月21日早](/content/gnews/14/README.md)
  ` 纽约香草山MOS01`
 
-### [没有G系列一分股从灭共到现在五六年,七哥钱都哪来的](/content/gnews/12/README.md)
+### [没有G系列一分股从灭共到现在五六年,七哥钱都哪来的](/content/gnews/15/README.md)
  ` NewFOC`
 
-### [外贸困顿，广交会成“内销会”](/content/gnews/13/README.md)
+### [外贸困顿，广交会成“内销会”](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国土安全部长参加拜登活动两天后被测新冠阳性](/content/gnews/14/README.md)
+### [国土安全部长参加拜登活动两天后被测新冠阳性](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [财新网被“封口”](/content/gnews/15/README.md)
+### [财新网被“封口”](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本要闻汇编 10月21日](/content/gnews/16/README.md)
+### [日本要闻汇编 10月21日](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [屠呦呦说青蒿素除治疗疟疾外，还有很多功效，应物尽其用](/content/gnews/17/README.md)
+### [中共国的荒唐事](/content/gnews/20/README.md)
+ ` 纽约香草山MOS03`
+
+### [屠呦呦说青蒿素除治疗疟疾外，还有很多功效，应物尽其用](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [10/17/2021文贵直播：体制内的任何人都可能是共产党的下一个受害者,试图和共产党合作来换取自由的企业家最终逃不过被杀害的命运](/content/gnews/18/README.md)
+### [10/17/2021文贵直播：体制内的任何人都可能是共产党的下一个受害者,试图和共产党合作来换取自由的企业家最终逃不过被杀害的命运](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [七哥说— 第22期](/content/gnews/19/README.md)
+### [七哥说— 第22期](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [银河快讯：数字家电出货量同比下降；家庭用电及天然气价格比年初上涨](/content/gnews/20/README.md)
+### [银河快讯：数字家电出货量同比下降；家庭用电及天然气价格比年初上涨](/content/gnews/24/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [秘翻在线：疫苗歧视已经蔓延到了宗教领域](/content/gnews/21/README.md)
+### [秘翻在线：疫苗歧视已经蔓延到了宗教领域](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西媒头条 — 第92期](/content/gnews/22/README.md)
+### [西媒头条 — 第92期](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [比特币和勒索赎金双创新高](/content/gnews/23/README.md)
+### [比特币和勒索赎金双创新高](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [西媒头条 — 第91期](/content/gnews/24/README.md)
+### [西媒头条 — 第91期](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [In-N-Out汉堡被迫关闭旧金山一家顶级分店](/content/gnews/25/README.md)
+### [In-N-Out汉堡被迫关闭旧金山一家顶级分店](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [加拿大下议院通过对所有议员的疫苗强制接种令](/content/gnews/26/README.md)
+### [加拿大下议院通过对所有议员的疫苗强制接种令](/content/gnews/30/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [西媒头条 — 第90期](/content/gnews/27/README.md)
+### [西媒头条 — 第90期](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [缅因最高法院驳回反对强制医疗人员接种疫苗政策的诉求](/content/gnews/28/README.md)
+### [缅因最高法院驳回反对强制医疗人员接种疫苗政策的诉求](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [意大利那波里家庭医生尽管打了两剂疫苗,最后还是死于新冠病毒](/content/gnews/29/README.md)
+### [意大利那波里家庭医生尽管打了两剂疫苗,最后还是死于新冠病毒](/content/gnews/33/README.md)
  ` xiaobaige`
 
-### [玉璧、玉钺及玉琮的寓意](/content/gnews/30/README.md)
+### [玉璧、玉钺及玉琮的寓意](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [有声|西南航空公司改变疫苗接种政策要求](/content/gnews/31/README.md)
+### [有声|西南航空公司改变疫苗接种政策要求](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [铸铜墙铁壁的围城](/content/gnews/32/README.md)
+### [铸铜墙铁壁的围城](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [10/21/21 香港快讯 新西宣誓邝俊宇等 16 人无效 至今 326 民主派议员失议席](/content/gnews/33/README.md)
+### [10/21/21 香港快讯 新西宣誓邝俊宇等 16 人无效 至今 326 民主派议员失议席](/content/gnews/37/README.md)
  ` 英喜-粵語組`
 
-### [秘翻在线：辉煌不在的广交会是中共经济即将崩溃的最佳写照](/content/gnews/34/README.md)
+### [秘翻在线：辉煌不在的广交会是中共经济即将崩溃的最佳写照](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [法国亿万富翁爆料全球影子政府（四）反恐军事干预成为利益输送的渠道](/content/gnews/35/README.md)
+### [法国亿万富翁爆料全球影子政府（四）反恐军事干预成为利益输送的渠道](/content/gnews/39/README.md)
  ` 澳喜农场`
 
-### [秘翻在线：中共声称将打造世界一流稀土企业](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [正道主义的喜币闪闪发光](/content/gnews/37/README.md)
+### [正道主义的喜币闪闪发光](/content/gnews/40/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [为什么只有爆料革命才能让中国走向真正的民主](/content/gnews/38/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [加密货币基金交易推动比特币升至历史高位](/content/gnews/39/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [盐野义制药和第一三共将要开始国产疫苗的最后阶段试验](/content/gnews/40/README.md)
+### [盐野义制药和第一三共将要开始国产疫苗的最后阶段试验](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国很多航空公司雇员宁愿失业也不愿打疫苗（粤语配音）](/content/gnews/41/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [10/13郭文贵直播：胡舒立和马云分别是南普陀会议指定的中共事实上的“宣传部长”和“财政部长”（粤语配音）](/content/gnews/42/README.md)
+### [美国很多航空公司雇员宁愿失业也不愿打疫苗（粤语配音）](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [数千加州家长“散步”抗议，反对学生疫苗强制令](/content/gnews/43/README.md)
