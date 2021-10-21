@@ -2,9 +2,13 @@
 ---
 
 
-## 10/11郭文贵盖特：全球大罢工反对强制打疫苗（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1608210/)
+## 西站出品（之）&#8211;七哥讲堂
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1608249/)
 
-10/11/2021 郭文贵盖特：全球大罢工反对强制打疫苗；世上三样权力最重要：货币权、媒体和军队；对于习纪念辛亥革命讲话，整个世界不是故意喂料、带风向、就是保持沉默。
+制作：蚂蚁兄弟
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**什么是区块链（摘自于10月5日大直播）**
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)

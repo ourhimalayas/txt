@@ -2,227 +2,81 @@
 ---
 
 
-## 每日快报：白宫公布详细计划为5至11岁儿童接种疫苗
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1608084/)
+## 币圈新闻动态：喜联储有流通性后很快就会成为银行和金融机构
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1608104/)
 
-*作者：*文零
+*喜马拉雅华盛顿DC 编辑：aQ*
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
 
-# ***今日摘要***
 
-1. [白宫公布详细计划为 5至11岁儿童接种疫苗](https://thehill.com/homenews/administration/577525-white-house-details-plans-for-vaccinating-children-ages-5-to-11)
-2. [纽约市要求所有公职人员接种COVID-19疫苗](https://www.foxbusiness.com/lifestyle/new-york-city-to-require-covid-19-vaccinations-for-all-public-employees#&amp;_intcmp=hp1r_4,hp1r)
-3. [21名芝加哥警察因拒绝透露COVID-19疫苗状态而处于无薪状态](https://www.washingtonexaminer.com/news/21-chicago-police-officers-on-no-pay-status-for-refusing-to-disclose-covid-19-vaccine-status)
-4. [扎克为了试图摆脱丑闻，拟将Facebook官方公司更名为“元界”](https://www.zerohedge.com/technology/facebook-launches-major-corporate-rebrand-metaverse-zuck-tries-move-scandals)
-5. [Joe Rogan：谷歌正在整理搜索引擎结果以隐藏与疫苗相关的伤害信息](https://www.thegatewaypundit.com/2021/10/joe-rogan-google-curating-search-engine-results-hide-info-vaccine-related-injuries/)
 
+## 每日一问
 
-# 重要事件
 
-- **10.20. The Hill：[白宫公布详细计划为5至11岁儿童接种疫苗；White House details plans for vaccinating children ages 5 to 11](https://thehill.com/homenews/administration/577525-white-house-details-plans-for-vaccinating-children-ages-5-to-11)**
 
 
-白宫周三公布了为5至11岁儿童接种疫苗的计划，等待美国食品和药物管理局在未来几周内批准。分配计划将依靠儿科医生、社区卫生中心、学校和药房来让父母和孩子放心，而不是在最初为成人推出时使用的大规模疫苗接种点。
 
-政府表示正在与儿童医院协会建立合作伙伴关系，与全国100多个儿童医院系统合作，在11月和日历年年底建立疫苗接种点。根据情况说明书，“父母知道并相信儿童医院可以满足他们孩子的医疗需求，这些疫苗接种工作也不例外。儿科医生、儿科专家、护士和团队成员将在为孩子服务的可信赖、家庭友好的环境中每天为孩子接种疫苗。”
+“喜币是子弹，喜支付是枪”，战友们计划如何开疆扩土？
 
-拜登政府表示，它已经购买了足够的疫苗，可以为全国2800万5至11岁的儿童接种疫苗。细节是在10月26日FDA顾问小组会议讨论儿科疫苗的授权之前公布的。如果专家组建议授权，FDA可能会在几天后做出裁决，这将为疾病控制和预防中心在11月初就儿科剂量提出建议扫清道路。根据情况说明书，该疫苗将采用更小的包装形式，这将使医生办公室和其他较小的社区提供者更容易使用。疫苗将储存在10剂小瓶中，并包装在每箱10瓶的纸箱中。根据一份管理情况说明书，为了防止其变质，疫苗可以在标准冷藏温度下储存长达10周，在超低温下储存6个月。该疫苗还将附带提供者为儿童服务所需的所有辅助用品，包括较小的针头。该计划将在很大程度上依赖各州、部落和领地来帮助顺利实施。 为此，联邦紧急事务管理局(FEMA)正在向各州提供全额资金，以支持疫苗接种操作和外展活动——包括设立地点、采购设备和用品来储存和管理疫苗。FEMA还将提供往返疫苗接种地点的交通服务，并将帮助进行公共宣传，如公共服务公告和翻译服务。
 
-- ** 10.20. FOX NEWS：[纽约市要求所有公职人员接种COVID-19疫苗；New York City to require COVID-19 vaccinations for all public employees](https://www.foxbusiness.com/lifestyle/new-york-city-to-require-covid-19-vaccinations-for-all-public-employees#&amp;_intcmp=hp1r_4,hp1r)**
 
 
-纽约市将要求其所有市政工作人员接种 Covid-19 疫苗，从而消除测试和加入具有类似任务的州和地方政府团体的选择。
 
-一位女发言人表示，市长比尔·德布拉西奥(Bill de Blasio)计划周三宣布一项命令，这意味着大约46,000名城市工人需要在10月29日之前接种第一针，否则可能会失业。据官方估计，新规定涵盖160,500名工人，其中约71%已部分或完全接种疫苗。该市表示，70%的警察和60%的消防部门人员至少接种了一针。这位女发言人说，不合规的员工将休无薪假，市政厅官员计划在未来几天与工会就接下来的程序进行谈判。该市已经要求为教育和公共医疗保健工作者接种疫苗。在全市学校系统的16.7万名员工中，96%的员工遵守了规定。这位女发言人说，纽约市大约8,000名惩教人员将面临更晚的最后期限，即12月1日。该市一直在努力维持其赖克斯岛监狱综合设施的人员配备水平。民主党人德布拉西奥先生在一份声明中说：“城市工人每天都受到鼓舞。”“现在是他们一劳永逸地向他们的城市展示摆脱这种流行病的道路的时候了。”
+## 喜马拉雅交易所要闻
 
-一些州和地方政府正在推动对公职人员进行疫苗接种，以提高接种水平。其他地区包括德克萨斯州，已经通过了对此类要求的禁令。许多州和城市要求其员工在没有测试选项的情况下接种疫苗的截止日期最近几天已经到来。这些地方的政府现在正在采取措施处理数千名未遵守规定的员工。有些人已经辞职或被解雇，有些人被休假，有些人已经获得了长达数月的延期以备不时之需。许多未接种疫苗的人在执法、消防和惩教机构工作。是否解雇此类员工的问题尤其具有挑战性，因为许多政府（如私营企业）已经在努力招聘和留住员工。出于医疗或宗教原因，通常允许豁免。
 
-在芝加哥，警察局长戴维·布朗(David Brown)周二在新闻发布会上表示，在该市10月15日的截止日期前，该部门67%的员工报告了他们是否接种了疫苗，而全市范围内的这一比例为79%。芝加哥员工接种疫苗的截止日期是12月下旬。布朗先生说，城市管理人员正在与不遵守规定的工人举行一对一的会议。到目前为止，他们已经会见了数百名军官和文职雇员，其中21人已休无薪假。“我们发誓要保护社区中的这些人。将这种病毒带入他们的家将违背我们的誓言，”布朗先生说。
 
-在旧金山，民主党市长London Breed周二表示，35,000名市政工作人员中有96%接种了疫苗，该市正在对396名未遵守该市规定的案件进行听证。旧金山警察局长比尔·斯科特在接受采访时表示，如果该部门失去一些拒绝接种疫苗的警官，它将填补该部门内部的空缺。“这将是一个打击，”他说，“我们不想失去任何人。”洛杉矶曾要求其53,168名市政雇员在周三之前接种疫苗或寻求豁免。根据周二公布的一项提案，市政府官员正在考虑将截止日期延长至12月18日。市长办公室公布的数据显示，70%的城市雇员报告已接种疫苗，9%未接种疫苗，另有18%未提供他们的疫苗接种。城市数据显示，截至周二，洛杉矶消防部门员工中约有58%已接种了疫苗。超过800名消防员提交了文件，称他们打算起诉该市推翻这一授权。
 
-拜登总统在9月宣布，联邦雇员必须在11月22日之前完全接种疫苗，否则将面临纪律处分，直至解雇。劳工部的职业安全与健康管理局正在制定规则，要求拥有100名或更多员工的公司的私营部门工人接种疫苗或定期接受Covid-19检测。
 
-- **10.20. Washington Examiner: [21名芝加哥警察因拒绝透露COVID-19疫苗状态而处于无薪状态;21 Chicago police officers on no-pay status for refusing to disclose COVID-19 vaccine status](https://www.washingtonexaminer.com/news/21-chicago-police-officers-on-no-pay-status-for-refusing-to-disclose-covid-19-vaccine-status)**
+- 文贵先生10月20日直播消息，喜联储有流通性后很快就会成为银行和金融机构。各农场未来拥有喜币和喜支付的代理人，战友会成为富可敌国的人，战友会成为永恒的罗斯柴尔德。
+- 联盟20日答疑再次提醒，Gclubs年费目前若不能缴纳只是会限制打折服务。只要随后缴交即可恢复功能。Gclubs以后会开通喜交所账户以及其它支付方式，请大家稍安勿躁。
 
 
-21名芝加哥警察因拒绝透露他们是否已按照城市规定接种了COVID-19疫苗而处于无薪状态。芝加哥警察局局长大卫·布朗在周二的新闻发布会上宣布了这一消息。布朗说，在芝加哥警察局的所有12,770名员工中，67.7%已验证他们是否已接种疫苗或将接受每周两次的测试，其中82%的验证已接种COVID-19疫苗，据芝加哥太阳时报，“这个过程显然非常情绪化。”布朗说，“我们给了他们时间，并尽我们所能向他们解释违反疫苗规定的严重性。”尽管将这些警官置于无薪状态，但布朗表示，这21名警官仍然可以选择遵守规定并报告他们是否接种了疫苗。该授权于周五生效，要求公职人员出示疫苗接种证明或每周接受两次检测。
 
-除了政治风暴之外，芝加哥警察兄弟会主席约翰·卡坦扎拉上周敦促警察不要透露他们的疫苗接种情况，因为该市无法强制要求披露“关于您的病史的信息”。一名法官命令卡坦扎拉停止公开声明，敦促官员无视疫苗规定，芝加哥市长Lori Lightfoot谴责FOP和卡坦扎拉，指责他们试图“煽动叛乱”。芝加哥警察局周日发送了一份备忘录，提醒警察接种COVID-19疫苗，警告不遵守规定的人不仅可能面临解雇，而且其退休福利也会受到威胁。
 
-- **10.20. Zero Hedge:[扎克为了试图摆脱丑闻，拟将Facebook官方公司更名为“元界”；Facebook Launches Major Corporate Rebrand To “Metaverse” As Zuck Tries To Move On From Scandals](https://www.zerohedge.com/technology/facebook-launches-major-corporate-rebrand-metaverse-zuck-tries-move-scandals)**
 
 
-在宣布计划在欧洲雇用10,000名工人（尽管即将达成的全球公司税收协议可能会大大增加其公司的税收负担）开始构建Facebook Metaverse之后——在微软或Roblox之前，或者——甚至更糟——一些好斗的新人之前，可以击败他们-Facebook刚刚向Verge泄露了大量独家新闻。
+## 新闻动态
 
-在某种程度上，此举类似于谷歌在2015年将母公司更名为“Alphabet”（而且，在某种程度上，这家以前被称为Blackwater的国防承包商多年来多次更名，以帮助摆脱声誉损害）这家社交媒体巨头决定“重塑品牌”并将其官方公司名称从“Facebook”更改为与“元界”有关的名称。为了与我们上面提到的“品牌重塑”主题保持一致，Facebook（扎克伯格）的一些高级消息人士告诉Verge，该决定旨在“表明这家科技巨头的雄心壮志，不仅以社交媒体和所有随之而来的弊病而闻名”。即将到来的更名，首席执行官马克·扎克伯格计划在10月28日公司年度Connect会议上谈论，但可能会更早公布，旨在表明这家科技巨头的雄心壮志，不仅以社交媒体和所有随之而来的弊病而闻名，品牌重塑可能会将蓝色Facebook应用程序定位为母公司旗下的众多产品之一，该公司负责监管Instagram、WhatsApp、Oculus等组织。Facebook的一位发言人拒绝对这个故事发表评论。当然，如果不分享有关此泄露公告的时间的一些说明，我们就会失职。Facebook试图公开摆脱其社交媒体支柱的尝试发生在：
 
-1) 一段时间以来，反垄断监管机构一直试图拆分公司；
 
-2)告密者弗朗西斯·豪根(Frances Haugen)在泄露的文件和国会证词中的爆炸性声明仅出现了几周；
 
-3)就在昨天，民主党参议员沃伦和布朗要求该公司停止其在美国和危地马拉之间提供几乎免费汇款的稳定币试点项目。
 
-即使没有欧洲的新员工，Facebook也已经拥有10,000多名员工制造AR眼镜，扎克伯格认为这些眼镜最终会像智能手机一样无处不在。7月，他告诉The Verge，在接下来的几年里，“我们将有效地从人们认为我们主要是一家社交媒体公司转变为一家元界公司。”但这是Verge报告中真正的关键线：“品牌重塑还可以进一步将扎克伯格关注的未来工作与Facebook目前对其社交平台今天的运营方式进行的严格审查分开。”至于扎克所说的话，他在夏天告诉Verge，元界“将成为一个重点，我认为这将成为互联网发展方式下一章的重要组成部分在移动互联网之后。”扎克伯格今年夏天告诉The Verge的Casey Newton，“而且我认为这也将成为我们公司的下一个重要篇章，在这一领域真正加倍努力。”换句话说：Facebook正在摆脱过去涉及其社交媒体平台的所有丑闻——无论是反垄断，还是管理层几乎没有采取任何措施来阻止世界各地的人口贩运，或者少女在Instagram上对自己感觉不好的证据。扎克正式结束谈论它。因此，甚至不要尝试将他拖到国会面前进行另一次听证会。但别担心，因为对于扎克来说，他最喜欢的新痴迷已经有很多新的批评要回答了。周二晚上，Twitter和Square首席执行官杰克·多尔西(Jack Dorsey)发布了一条推文，暗示Facebook的元宇宙将像科幻小说作家想象的30年前一样“反乌托邦”。至于新名称可能是什么，我们想会有很多猜测。
+1. Cointelegraph报道，根据DeFiL lama的数据，现在有超过2,338.8亿美元的价值锁定在各区块链网络的协议中。目前，AAVE以187.9亿美元领先，Curve以179.7亿美元的锁定价值位居第二。由于比特币价格的飙升，WBTC现在在TVL方面排名第四，在DeFi领域部署了145.1亿美元的价值。
+2. Btcmanager报道，Santiment数据显示，随着价格上涨，排名前10的以太坊非交易所鲸鱼地址正在购买更多的以太坊。鲸鱼行动可能是为年底预测的5,000美元以太坊价格做准备。
+3. 10月21日信息，据Cryptoslam最新数据显示，生成艺术NFT平台ArtBlocks交易总额突破10亿美元，创下历史新高，目前为1,000,312,428美元。ArtBlocks是一个专注于策划可编程生成艺术作品的平台，这些作品通常使用p5.js进行编程，p5.js是一个允许创造性编码的JavaScript库，脚本存储在链上。
+4. 10月21日信息，在比特币价格创下历史新高后，股价最受比特币价格影响的加密矿业股周三飙升。总部位于加拿大的比特币矿商Hive Blockchain（HIVE）在矿业股中表现最好，上涨超过7%。
+5. CoinDesk报道，投资银行BTIG将西联汇款（Western Union）的评级由“买入”下调为“中性”。BTIG表示，该公司的汇款平台可能面临来自Facebook新数字汇款应用程序Novi等免费替代产品的压力。BTIG分析师Mark Palmer也看到了Strike服务带来的竞争，该服务利用比特币区块链上的闪电网络进行免费汇款。
+6. 10月20日消息，资管公司VanEck推出的比特币期货ETF已获美国证券交易委员会（SEC）批准，SEC已允许该公司在10月23日之后推出该基金，交易将在生效日期后尽快开始，或就将于下周开始交易。该ETF为继ProShares推出的比特币期货ETF之后第二个被SEC批准上市的比特币期货ETF。 
+7. 10月21日信息，区块链开发平台Alchemy周三发布的一份新报告显示，Polygon生态系统正在迅速扩展，并且越来越独立于以太坊。根据该报告，该链上现在有3,000个应用程序，而去年仅为30个。此外，Alchemy在Polygon链上进行建立的团队数量环比增加了145%。
+8. 格隆汇报道，新娱科控股附属公司罗城仫佬族自治县顶联科技（国际）有限公司与DefinerLimited订立了谅解备忘录，据此，顶联及Definer同意于中国境外的游戏及区块链服务方面进行合作及探索潜在机遇。Definer为一间于英属处女群岛注册成立的公司，主要研究及应用适用于区块链服务的技术。
+9. 10月21日信息，V神（Vitalik Buterin）再次从他的公共钱包中发送了几种他从未要求获得的以狗为主题的模因代币。值得注意的是，V神将大部分代币发送给了去中心化交易所Uniswap，包括300万亿个jejudoge、超过223万亿个kishuinu、3,700亿个babyshiba和大约120万亿个huskytoken。
+10. Coindesk报道，Valkyrie周三提交一份生效后的招股说明书，这表明其比特币ETF已经清除了最终的监管障碍。该ETF将以“BTF”代码在纳斯达克交易。Valkyrie是第三家获得美国证券交易委员会批准的投资公司，也是第一家获得相关批准的加密货币公司。
+11. 10月21日信息，英国税务海关总署（HMRC）正准备向加密货币投资者发出信函，鼓励他们仔细检查他们是否已为其加密货币投资缴纳了正确的税款。该机构表示，所谓的“助推函”旨在具有“教育意义”。
+12. Business Insider报道，摩根士丹利暂缓向客户提供比特币ETF。
+13. Finextra报道，Unstoppable Finance宣布520万美元的种子轮融资。包括Speedinvest、Inflection、Backed、Cadenza、Discovery Ventures、Fabric Ventures、Rockaway Blockchain Fund，Centrifuge和Fractal参投。
+14. 链闻报道，区块链风险投资基金A&T Capital确认，已经完成一期基金首轮7,000万美元募资，其有限合伙人主要包括金融科技集团、企业家以及风险基金的合伙人。A&T Capital基金表示，计划在2021年底前完成本期共1亿美元的募资。
+15. 10月21日信息，英国加密货币初创公司Copper正在筹集高达5亿美元的资金。这笔投资将使Copper的估值超过10亿美元，使其成为独角兽。据称，该公司预计将在年底前宣布融资，但该轮融资尚未结束，也没有指定主要投资者。此外，Copper最近宣布任命前英国财政大臣Philip Hammond为高级顾问。
+16. 10月20日消息，资产管理规模超过15亿美元的加密指数基金管理公司Bitwise Asset Management宣布推出Bitwise Polygon Fund，该基金旨在通过专业管理的投资工具让合格投资者接触MATIC。
+17. Finextra报道，加密资产数据和软件供应商Lukka宣布已经收购Blox Finance。Lukka已经收购了Blox的加密货币会计和财务数据管理软件业务，包括Blox区块链节点基础设施和知识产权。这笔交易扩大了Lukka的数据管理软件的足迹，并增加了公司的覆盖范围。
+18. 南华早报报道，腾讯计划通过组建一个国际化团队来建立一个新工作室，该团队将为互联网的下一阶段开发高级游戏，从而更加专注于元宇宙生态的开发。据悉，腾讯最近向其全球员工发出了一封内部信函，表示将在TiMi Studio Group下建立一个新的“F1”工作室，该工作室将涉及中国、美国、加拿大和新加坡的员工。
+19. Decrypt报道，Dapper Labs宣布Flow社区验证器现在运行着区块链网络总节点的68%，Flow是“完全开放并由社区控制的”，该公司运行的活跃共识节点不到维护权益证明网络的三分之一。
+20. 10月20日消息，跨链永续衍生品协议Antimatter宣布推出Antimatter DAO，Antimatter将其称之为一个衍生品狂热者俱乐部和链上创新衍生品应用的协作工作场所，具有包括链上治理、资金管理、学术资源共享和新模型实验在内的功能。目前Antimatter DAO成员包括Polychain Capital普通合伙人Tekin Salimi、Terraform Labs联合创始人兼首席执行官Do Kwon、孙宇晨、Alameda Research Ventures的合伙人Brian Lee等。
+21. Cointelegraph报道，自动做市商协议MonoX现已于Ethereum和Ploygon主网上线。MonoX Protocol是创新性自动做市商协议，可以使用单一代币创建流动性池，在协议中自动生成与vCASH的虚拟交易对。大大节省额外资金，提升资本效率的同时降低费用并减少非永久性损失。
+22. 10月21日信息，ShibaInu（SHIB）已上线Robinhood的竞争对手、交易应用程序Public。这家总部位于纽约的在线经纪公司于10月初增加了对加密货币的支持，首先支持了比特币、以太坊、莱特币、狗狗币和其他几种山寨币。
+23. 10月20日消息，DeFi风险分级协议Saffron V2版本上线以太坊主网，目前已开放存款功能，此外，挖矿奖励将在10月24日之前暂停，届时是否重新启动挖矿奖励将由治理投票决定。V2版本前端目前支持Metamask、Coinbase Wallet、Fortmatic和Wallet Connect四种钱包。Saffron团队表示，目前持有V1版本LP代币的用户依然可以在V1版本中解除质押。
+24. 10月21日信息，允许ADA持有者选择Project Catalyst Fund 6获胜者的投票活动将于2021年10月21日UTC时间10:00结束。共711个产品向Project Catalyst投票门户提交了他们的提案。此前的一次Project Catalyst共267个项目参与。
+25. 10月21日信息，Tether回应了做空研究公司Hindenburg Research旨在获取可以揭示Tether支撑细节的赏金计划。Tether表示：“Hindenburg Research只是可悲的为了获得关注，他们不仅试图诋毁Tether，还试图诋毁整个加密运动。Tether憎恶并谴责他们的行为和动机。”
+26. CoinDesk报道，卖空研究公司Hindenburg Research将提供高达100万美元的悬赏金，以获取可以揭示稳定币Tether支撑细节的信息。该公司表示，它对Tether的美元支撑“持怀疑态度”，并正在启动Hindenburg Tether赏金计划，以鼓励人们搜索此前未公开的相关细节。
+27. CoinDesk报道，针对美国参议员呼吁Facebook停止推出Diem和Novi一事，稳定币项目Diem回应称，参议员们误解了“Diem和Facebook之间的关系”，同时也与Novi钱包试点撇清关系。“Diem不是Facebook。我们是一个独立的组织，Facebook的Novi只是Diem协会二十多个成员之一。
+28. 10月21日信息，太平洋投资管理公司（Pimco）的首席投资官Daniel Ivascyn证实，该投资巨头正考虑开始进行现货加密货币交易。Ivascyn称，该公司通过与加密相关的证券与市场接触，现在正在考虑“交易某些加密货币，作为其趋势跟踪策略或量化导向策略的一部分，随后将在基本面做更多的工作”。
+29. 华尔街日报报道，咨询公司Activate联合创始人及CEO Michael Wolf周三表示，致力于建设元宇宙的科技公司必须首先掌握电子游戏各个方面的能力，未来可能会有科技巨头将顶级游戏公司收入囊中。他表示电子游戏正在演变成元宇宙平台，这将从根本上改变人们的交流互动方式。
+30. 新浪报道，摩根大通的策略师Nikolaos Panigirtzoglou认为，推动比特币创下历史新高的是通胀担忧，而不是首只比特币期货ETF引发的热情。该策略师的观点与该行CEO杰米•戴蒙不同，戴蒙最近刚刚说过，他认为比特币毫无价值，并质疑比特币的供应上限是否真的只有2,100万枚。
 
-- **10.20.Gateway Pundit:[Joe Rogan：谷歌正在整理搜索引擎结果以隐藏与疫苗相关的伤害信息; Joe Rogan: Google Is Curating Search Engine Results to Hide Info On Vaccine-Related injuries](https://www.thegatewaypundit.com/2021/10/joe-rogan-google-curating-search-engine-results-hide-info-vaccine-related-injuries/)**
 
 
-播客明星乔·罗根(Joe Rogan)认为，谷歌显然在歪曲其搜索引擎结果，并“隐藏信息”围绕疫苗相关伤害和冠状病毒大流行。“看，如果我想找到死于疫苗相关伤害的人的具体案例，我必须去Duck Duck Go,我没有在谷歌上找到它们。”罗根在最近的一次采访中告诉前纽约时报记者亚历克斯·贝伦森。前纽约时报记者贝伦森描述了他因质疑主流媒体关于COVID的叙述而受到的强烈反对，促使罗根提请注意主流媒体在他吹捧伊维菌素是COVID的有效治疗方法后对他发起的诽谤运动。
 
-“这一切的根源是什么？什么是公牛的中心\*\*\*？……特别是在我的情况下。”他说，“他们说，’马驱虫剂’。”“比如为什么？谁在这样做？”贝伦森认为，诋毁和谴责治疗病毒药物的支持者的努力得到了充足的资金。“有些民意调查者正在关注焦点小组，”他说，“当他们谈论‘马驱虫剂’时，有人每月要花费几百万美元或其他任何东西来确保，哦，这不是针对人类，而是针对动物。他们正在测试所有这些语言，这就是它听起来如此相似的原因之一。”
 
-“这也是我不再使用Google搜索内容的原因之一。他们正在做一些事情来管理信息。比如，如果我想找到死于疫苗相关伤害的人的具体案例，我必须去Duck Duck Go。我没有在谷歌上找到它们，”罗根感叹道。“我想——这太疯狂了。你们在隐瞒信息。我正在寻找非常具体的人和非常具体的案例，并且——我正在访问CDC网站，我收到了关于疫苗“安全”和“有效”的虚假信息的文章，在大多数情况下，它们就像花生一样在大多数情况下是安全有效的。”
-
-上周，美国有线电视新闻网的首席医学记者桑杰·古普塔博士承认，他的网络宣传了一项毫无根据的阴谋，声称罗根正在服用马匹驱虫剂。然而，古普塔的承认导致该网络加倍努力玷污罗根的声誉。 谷歌对COVID信息的审查是在该公司的执行官Jen Gennai被Veritas项目曝光之后，该公司讨论了这家科技公司在2020年大选之前阻止下一次“川普局势”的综合计划。
-
-# 每日文贵说
-![](https://himalayawashingtondc.org/wp-content/uploads/2021/10/2021-10-20-1-1024x576.jpg)
-# 更多要闻链接
-
-1. [法官驳回佛罗里达一位丈夫试图强迫医院使用伊维菌素治疗COVID](https://www.newsmax.com/us/florida-palm-beach-covid-ivermectin/2021/10/20/id/1041249/)
-2. [众议院国会大厦骚乱事件调查委员会表决启动针对班农的蔑视国会指控](https://www.voachinese.com/a/house-january-6-inquiry-votes-to-hold-bannon-in-contempt/6277904.html)
-3. [武汉实验室宣布其新网络只雇用中共党员](https://thenationalpulse.com/exclusive/wuhan-lab-launches-new-lab-for-ccp-members/)
-4. [随着马云访问欧洲，中国科技股飙升](https://www.zerohedge.com/markets/beaten-down-china-tech-stocks-surge-jack-ma-visits-europe)
-5. [朝鲜确认潜艇发射新型弹道导弹](https://www.reuters.com/world/asia-pacific/nkorea-says-it-conducted-successful-missile-test-submarine-kcna-2021-10-19/)
-
-
-# 每日推特文摘
-
-
-
-When the CCP sanctioned me, it sent a message: if you dare to defend Americans and protect their sovereignty and freedom, they’ll punish you personally.
-
-I wear that sanction like a badge of honor.
-
-中共制裁我的时候，传达了一个信息：如果你敢捍卫美国人并保护他们的主权和自由，他们（中共）就会亲自惩罚你。
-
-我像佩戴荣誉徽章一样佩戴这种制裁。
-
-
-
-
-
-> When the CCP sanctioned me, it sent a message: if you dare to defend Americans and protect their sovereignty and freedom, they’ll punish you personally. 
-> 
-> I wear that sanction like a badge of honor.
-> — Mike Pompeo (@mikepompeo) [October 20, 2021](https://twitter.com/mikepompeo/status/1450929718434275330?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-千亿社保：
-
-仅有4%给10亿老百姓用！
-
-96%给共产党！
-
-全国近2万个干休所！
-
-谁是中国人民的敌人？
-
-
-
-
-
-> 千亿社保：
-> 仅有4%给10亿老百姓用！
-> 96%给共产党！
-> 全国近2万个干休所！
-> 
-> 谁是中国人民的敌人？ [pic.twitter.com/cp4wT0oz0N](https://t.co/cp4wT0oz0N)
-> — 三文鱼.10 (@Salmon\_Ten) [October 20, 2021](https://twitter.com/Salmon_Ten/status/1450630581314744330?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-马云真跑喽～ 又让郭先生预料到了 马云跑路是否意味着江家灭习的开始呢？ 习总危矣啊
-
-
-
-
-
-> 马云真跑喽～
-> 又让郭先生预料到了
-> 马云跑路是否意味着江家灭习的开始呢？
-> 习总危矣啊🙈 [pic.twitter.com/POounR3ip3](https://t.co/POounR3ip3)
-> — 草根小哥（新号） (@caogenxiaogex) [October 19, 2021](https://twitter.com/caogenxiaogex/status/1450415864239439884?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-新加坡新增3994人确诊病毒，再创单日新高。 昨日再有7人死亡，包括5男2女，其中4人已经完成接种疫苗。
-
-
-
-
-
-> 新加坡新增3994人確診病毒，再創單日新高。
-> 昨日再有7人死亡，包括5男2女，其中4人已經完成接種疫苗。 [pic.twitter.com/K7jeNAe1OK](https://t.co/K7jeNAe1OK)
-> — 澳喜要闻 (@ahnewsfeed) [October 20, 2021](https://twitter.com/ahnewsfeed/status/1450649048931717124?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-骗子的承诺，哪一条兑现了？
-
-
-
-
-
-> 騙子的承諾，哪一條兑現了？ [pic.twitter.com/XQ6z2YxcL1](https://t.co/XQ6z2YxcL1)
-> — mc文艺 (@mc64122225) [October 20, 2021](https://twitter.com/mc64122225/status/1450708156762394631?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-美国土安全部长检测阳性 日前曾无口罩站拜登身边
-
-
-
-
-
-> 美国土安全部长检测阳性 日前曾无口罩站拜登身边 [pic.twitter.com/YtK7Io3l9o](https://t.co/YtK7Io3l9o)
-> — 约翰 (@JohnDoe1284495) [October 19, 2021](https://twitter.com/JohnDoe1284495/status/1450606230326562819?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-看这架势，中共也知道毒苗灾难即将大爆发，无法掩盖，所以现在就开始吹风！ 到时候所有死于毒苗的，都可以算作是死于变异病毒感染，反正死亡证明都是它们来开的！
-
-
-
-
-
-> 看这架势，中共也知道毒苗灾难即将大爆发，无法掩盖，所以现在就开始吹风！
-> 
-> 到时候所有死于毒苗的，都可以算作是死于变异病毒感染，反正死亡证明都是它们来开的！😱😱😱 [pic.twitter.com/nIGM8EhHHz](https://t.co/nIGM8EhHHz)
-> — 危船愚夫（澳喜特战旅） (@OAtxBKAdTP6KIEz) [October 20, 2021](https://twitter.com/OAtxBKAdTP6KIEz/status/1450724543723573251?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-*编辑：文零
-审核发布：文顾*
+*编辑：aQ
+发布：文顾*
