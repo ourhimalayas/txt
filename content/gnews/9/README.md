@@ -2,38 +2,34 @@
 ---
 
 
-## 缅因最高法院驳回反对强制医疗人员接种疫苗政策的诉求
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1608477/)
+## 银河快讯：数字家电出货量同比下降；家庭用电及天然气价格比年初上涨
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1608540/)
 
-作者：纽约香草山福音部 –lilian89
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据美联社消息称，10月19日，最高法院拒绝审理缅因州一项医护人员反对实施新冠疫苗要求的紧急上诉。此前，最高法院也驳回了纽约市教师和印第安纳大学师生拒绝新冠疫苗接种政策的要求。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-63.png)[图片来源](http://www.qicaihongqiao.com/)
+**1.****日本ODA项目2000亿日元资金滞留在JICA**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-12.jpeg)
+[据共同社10月21日报道，日本财务省20日在财政制度等审议会的小组会上就政府开发援助（ODA）进行了讨论。相继有委员要求妥善管理外务省面向发展中国家实施的无偿资金援助的预算执行状况。无偿资金援助是ODA的一环，基于日本与相关国家的政府间协议实施。外务省把确保的预算支付给JICA，根据当地的基础设施建设进度，由JICA向对方国家提供资金。外务省2020年度向JICA支付了746亿日元。另一方面，对方国家治安恶化及政变等原因导致项目滞后，在JICA越积越多的资金到2020年度末达到共计1960亿日元，涉及310个项目。](https://tchina.kyodonews.net/news/2021/10/e7e3dcfd2ffb-oda2000jica.html)
 
-然而，虽然副大法官布雷耶驳回了缅因州的紧急上诉，但随着该州疫苗接种任务的时间推移，他仍给上诉者留下了再次尝试的大门。
+**2.****日本众院选举有1051名候选人**
 
-据悉，缅因州的疫苗接种政策由民主党州长珍妮特-米尔斯制定，当中要求医院和疗养院的工作人员接种新冠疫苗，否则他们将失去工作。因此，数十名医护人员已经选择辞职，这也导致缅因州中央医疗中心的护士严重短缺，同时影响了该州的公共医疗情况。
+[据共同社报道，日本第49届众院选举19日发布公告，共有1051人参选，将争夺小选区和比例代表总计465个议席。候选人数低于现行制度下此前最少的2005年众院选举的1131人。除了增长与分配的问题，朝鲜发射弹道导弹令危机管理应对也成为争论点。朝野9个政党的党首等朝着31日的投计票全面展开论战。以立宪民主、共产两党为中心的在野党在逾210个小选区推举统一候选人，将与执政的自民、公明两党进行对决。](https://tchina.kyodonews.net/news/2021/10/e9523ae1e1f6-1051-.html)
 
-为此，自由律师事务所代表两千多名不想被强迫接种新冠疫苗的医护人员，向缅因州的联邦法院提起诉讼。
+**3.****九月数字家电的出货量同比下降26%**
 
-事实上，这也印证了郭先生曾在直播中提及的，疫苗灾难将使人们对政府、法律、宗教有一个重新的认识。
+[据NHK 10月20日报道，上个月数字家用电器的国内出货量连续第三个月下降，比去年同月下降超过26%，根据日本电子和信息技术产业协会（JEITA）的数据，上个月日本数字家电的出货量共计899亿日元，比去年同月下降26.8%。按产品划分，电视等 “视频设备 “为452亿日元，下降19.9%；扬声器等 “音频相关设备 “为63亿日元，下降14.3%。此外，”汽车相关设备”，如汽车导航系统，下降了35%，至385亿日元。](https://www3.nhk.or.jp/news/html/20211020/k10013315101000.html?utm_int=news-business_contents_list-items_010)
 
-(本文仅代表作者观点)
+**4.****恒大集团未能出售其子公司的股份**
 
-参考链接：[Supreme Court declines to block Maine health care workers vaccine mandate](https://www.axios.com/vaccine-mandate-maine-supreme-court-903eb829-313b-4c2e-bab6-d1160a365ebf.html)
-[Supreme Court won’t stop vaccines for Maine health workers](https://www.usatoday.com/story/news/politics/2021/10/19/supreme-court-wont-stop-vaccines-maine-health-workers/8528787002/)
+[据NHK 10月21日报道，中国房地产巨头恒大集团旗下的一家物业管理公司周三宣布，它未能达成向另一家物业公司出售股份的协议。收购公司称，它已同意以约200亿港元，或约2900亿日元的价格购买该公司50.1%的股份，但交易条款没有达成一致。由于谈判，恒大集团的股票在香港证券交易所暂停交易，但预计将于21日恢复。恒大集团自9月23日以来一直面临着一系列美元债券的利息支付期限，但它解释说目前处于30天的宽限期。](https://www3.nhk.or.jp/news/html/20211021/k10013315801000.html?utm_int=news-business_contents_list-items_004)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**5.****东京都协调解除餐饮店缩短营业时间要求**
 
-总编：Irene木木 
-编辑：Kathy（文艺）
-校正/发稿：谐趣园
+[据共同社10月20日报道，关于日本东京都要求酒类提供时间最晚至晚上8点、以及最晚晚上9点打烊的缩短营业时间要求，19日采访相关人士获悉，已朝着到本月24日结束的方向进行调整。预计21日召开的东京都监测会议上将根据专家意见做出最终决定。东京都考虑到有必要在疫情反弹得到抑制的形势下重启经济活动，对于未获认证的店铺，也在协调部分放宽目前要求的自行避免提供酒类和营业时间最晚到晚上8点的举措。](https://tchina.kyodonews.net/news/2021/10/4d0128886053.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**6.****家庭用电及天然气价格与年初相比上涨了1000多日元**
+
+[据共同社10月20日报道，与11月相比，10家主要电力公司和4家主要城市燃气公司预计将在12月提高家庭用电和燃气价格。 随着全球经济的复苏，原油和液化天然气（LNG）的价格急剧上升，与1月份的水平相比，东京、中部和冲绳的电力公司将为一个标准家庭提价超过1000日元。这是连续第四个月所有电力和天然气公司都提高了价格，预计冲绳电力公司将提高价格最多，与11月相比提高约141日元。](https://news.yahoo.co.jp/articles/9e30b20ae0ea37e478f19f1c4eb3840bacb9d8a6)
+
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：帆間知津

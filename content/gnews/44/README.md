@@ -2,28 +2,21 @@
 ---
 
 
-## 美房屋建筑商协会CEO：供应链是住房市场迫在眉睫的危机
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1608072/)
+## 俄中伊与塔利班共同发布联合声明
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1608078/)
 
-【简评：】***2021年新开工建筑许可证下降7.7%，房屋开工率下降1.6%，多户家庭开工率下降18.3%。房地产相关数据比预期的要差得多，这些数据也显示了房屋需求端的萎缩。***
+#### 撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/10/43-1.png)（图片来源于本文链接）
+10月20日，俄罗斯举行阿富汗问题会议，与会的俄罗斯、中共国、伊朗、巴基斯坦、印度和中亚国家与塔利班代表一致同意，加强在阿富汗的安全合作，并发表一份联合声明。声明的核心是，认可塔利班上台掌权，各国在阿富汗安全事务上需与塔利班进行合作。
 
-据《布赖特巴特新闻网》记者：IAN HANCHETT，2021年10月18日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2599.png)图片来源：《布赖特巴特新闻网》
-美国全国房屋建筑商协会(National Association of Home Builders)首席执行官杰里·霍华德(Jerry Howard)周一在《福克斯商业新闻网》的《瓦尼专题》节目中表示，“如果我们不尽快解决供应链问题，它将成为一个大问题，这是一个迫在眉睫的危机。”霍华德还表示，我们正在考虑将房价上涨“至少几千美元，这取决于你在哪里以及你在谈论什么（房屋）产品。”
+俄罗斯外长拉夫罗夫表示，要实现阿富汗和平稳定，必须组建一个真正包容政府，并赞扬塔利班为此所做的努力。俄罗斯阿富汗问题特使卡布洛夫表示，希望塔利班能满足国际社会对包容及基本人权的要求。而讽刺的是，俄罗斯在2003年将塔利班定为恐怖组织，根据俄国法律，与恐怖组织接触将受惩罚。
 
-霍华德说:“如果我们不尽快解决供应链问题，它将成为一个大问题。从木材，到石膏板，到混凝土，再到家电的供应，都有三到四个月的延迟，因为这些产品都在全国各地港口的船上。这是一场迫在眉睫的危机。”
+信息来源：
 
-他补充说，“显然，时间就是金钱，耽误的越长，房价就会越高。现在，我们预计房价至少要涨几千美元，这取决于你在哪里，你谈论的是什么产品。正如您在之前的租赁市场报告中所说，住房负担能力是个问题。现在，这已经成为首次购房者市场的一个问题。这对房地产和经济来说都不是好兆头。”
+[俄罗斯”阿富汗问题会议”：塔利班准备与俄、中及伊朗合作](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211020-%E4%BF%84%E7%BD%97%E6%96%AF-%E9%98%BF%E5%AF%8C%E6%B1%97%E9%97%AE%E9%A2%98%E4%BC%9A%E8%AE%AE-%E5%A1%94%E5%88%A9%E7%8F%AD%E5%87%86%E5%A4%87%E4%B8%8E%E4%BF%84-%E4%B8%AD%E5%8F%8A%E4%BC%8A%E6%9C%97%E5%90%88%E4%BD%9C)
 
-原文连接：[https://www.breitbart.com/clips/2021/10/18/natl-association-of-home-builders-ceo-supply-chain-a-looming-crisis-for-housing-market/](https://www.breitbart.com/clips/2021/10/18/natl-association-of-home-builders-ceo-supply-chain-a-looming-crisis-for-housing-market/)
+(文章仅代表作者本人观点，与GNEWS无关)
 
-（本文评论仅代表个人观点）
-
-翻译：洛杉矶盘古农场 – 钢蛋儿
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 明子
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

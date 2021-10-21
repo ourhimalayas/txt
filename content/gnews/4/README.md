@@ -2,35 +2,22 @@
 ---
 
 
-## 比特币和勒索赎金双创新高
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1608512/)
+## 财新网被“封口”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1608622/)
 
-作者：纽约香草山 – 文一
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据美国电视新闻网报道，首个与比特币相关的基金交易已于10月19日推出，为此，比特币在20日上午跃升至历史新高。
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-113.jpg)
+[图片来源](https://www.blackeep.com/6112.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-33.jpeg)
+德国之声中文网21日报道，10月20日中共国家网信办公布了最新版《互联网新闻信息稿源单位名单》，而所谓的“敢言”媒体财新网并未被纳入这份名单，理由是“不再符合条件、日常表现不佳、缺乏影响力”。
 
-然而，美国财政部金融犯罪执法网络表示，以比特币为交易手段的勒索和其他犯罪案件屡见不鲜，相关案件勒索金额高达52亿美元，且此类案件在近十年间持续上升。
+财新网被移除出“白名单”，这意味着未来读者只能通过财新网页或者手机应用程序获取财新网刊登的新闻内容，而无法在其他综合性新闻网站获取来自财新的报道。彭博社也分析指出，北京当局此举将削弱财新网的影响力。
 
-对此，郭文贵先生在10月20日的大直播强调，比特币是一个犯罪、洗钱的工具，其只能在暗网中流通。因此，比特币是一种使用去中心化技术的中心化假币。与之相对的，即将上市的喜币有负责人及法人，与黄金锚定且与美元直接挂钩，其未来的价值以及在全球经济体系中起到的作用将不可估量。
+正值中共内斗的关键时期，作为王岐山喉舌的财新网被局部封杀，这是中共内部传递出的一种信号，处于深水区的政治斗争已处于白热化阶段。鹿死谁手，我们拭目以待。
 
-(本文仅代表作者观点)
+消息来源：[财新网被中国最新版信息稿源“白名单”除名](https://www.dw.com/zh/%E8%B4%A2%E6%96%B0%E7%BD%91%E8%A2%AB%E4%B8%AD%E5%9B%BD%E6%9C%80%E6%96%B0%E7%89%88%E4%BF%A1%E6%81%AF%E7%A8%BF%E6%BA%90%E7%99%BD%E5%90%8D%E5%8D%95%E9%99%A4%E5%90%8D/a-59572811)
 
-参考链接：[Bitcoin ransomware payments amount to a whopping $5.2B says the US Treasury Department](https://www.crypto-news-flash.com/bitcoin-ransomware-payments-amount-to-a-whopping-5-2b-says-the-us-treasury-department/)
-[Owner of nonprofit science lab for children admits running secret bitcoin money-laundering operation for drug dealers](https://www.msn.com/en-us/news/crime/owner-of-nonprofit-science-lab-for-children-admits-running-secret-bitcoin-money-laundering-operation-for-drug-dealers/ar-AAPJ8ua)
-[2021年10月20日郭先生直播速记](https://gnews.org/zh-hans/1606278/)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编：Irene木木 
-编辑：Irene木木
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+免责声明：文章仅代表作者本人观点，与GNEWS无关
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/10/樱花团-1.jpg)
