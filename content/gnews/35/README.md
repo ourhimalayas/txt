@@ -2,34 +2,30 @@
 ---
 
 
-## 美国立法者表示，不能信任Facebook管理加密货币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1609566/)
+## 中共疫情最新动态解读
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1609719/)
 
-据《路透社》作者：Kanishka Singh，2021年10月19日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-409-e1634865832689.png)在这张2020年4月17日拍摄的图片插图中，一个3D打印的Facebook标志和加密货币的代表物呈现在一块主板上。图片来源：路透社/Dado Ruvic
-《路透社》10月19日 —— 一群美国立法者表示，不能信任脸书（Facebook）公司管理加密货币，并敦促该社交媒体平台，立即停止其周二推出的名为Novi的加密货币钱包的小型试点。
+撰稿：喜妈
 
-美国民主党参议员Brian Schatz、Sherrod Brown、Richard Blumenthal、Elizabeth Warren和Tina Smith对Facebook两年来推出加密货币和数字钱包的努力表示了反对。
+中共最近通过环球网报道，“河北、宁夏、甘肃三地”新发确诊，“本轮疫情已涉及8省份”。笔者对此可是非常奇怪，然而又特别能够理解。为什么呢？当然，这样的疫情动态：一半本身就是中共国疫情没有真正控制的事实表现，一半是中共要借这些疫情动态做一些假文章。此话如何认识呢？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1634870409.jpg)（来自网络截图）
+首先，说这样的不断突发和延续传染的疫情，是事实。这个应该是没有什么争议的。因为，中共的疫情从武汉最早开始发生到现在为止，整个动态都充满了作假，充满了谎言。不论是控制还失控，里面都是各种假消息。也就是说，中共的疫情，有等于无，没有什么可信度和可参考的价值。唯一可用的，就是不断地用来作为和爆料革命验证的反面教材，参照读物。中共的的疫情一比一个假，中共的疫情通报和动态完全没有意义；爆料革命资讯一比一个准，爆料革命的各种情报和预测，全都是正确。
 
-“Facebook再次在激进的时间表上推行数字货币计划，并且已经启动了一个支付基础设施网络的试点，尽管这些计划与实际的金融监管环境不符。”参议员在给Facebook首席执行官马克·扎克伯格的信中写道。
+其次，中共的疫情因为总是假，总是骗，那么就无法控制，无法结束，无法消灭，那么就要有人背锅，有人不断制造疫情，不断地引发各地的爆发和确诊出现，才能说得过去啊。因此，这也就造成了大家，不断读到中共国的各种新闻，包括传播到世界媒体有关中共国的各种新闻都是，各地的疫情频现，时有发生。骗子的谎言，就是这样，越是弥天大谎，越是要想得周全，越是因为心虚，因为害怕，而越发要编织得特别巨大丰满。这么一看，反而又进一步说明他们做假就做过头了；过头了之后，一验证，就露馅。
 
-参议员们写道：“当Facebook现有的管理风险和保证消费者安全的能力被证明完全不足时，不能信任它管理支付系统或数字货币。”
+因为，他们现在还在报道因为“三地”引发至少涉及“八个”省市的疫情，那么我们可以想见，中共号称之前的“清零”疫情战果，就是假的，就是经不起推敲的。他们就是捏着鼻子哄眼睛，把前一波的鸡血打了，现在包不住了，就又找个理由，把原因推到当事人身上，说是这些人造成疫情。本身就没有消灭的病毒，在已经都全员注射了疫苗的中共国，你的这些当事人又是从哪里染病的呢？
 
-参议员们的这封信表明，即使是Facebook的加密货币钱包的小规模试点也将面临立法者和监管机构的审查，他们之前已经针对Facebook提出了反垄断和其他问题的担忧。
+同时，笔者有理由怀疑，不知道这些新发的疫情动态，是不是中共国经济衰退，继续要从草民身上刮油，搜刮财富呢。或者，这些疫情，又可以名正言顺地给中共所利用，再次制造健康危机，让已经都打过疫苗的人继续打加强针，继续地进行他们需要的各种控制。或者，他们还有其他的政治上的派系斗争的需要，要在这些地方对相关的人员和派系力量进行限制和打压。
 
-Novi公司的一位发言人说：“我们期待着Facebook对委员会的来信作出回应。”
+总之，我们被爆料革命启智，中共国的各种宣传，从来不会被我们简单地理解，也从来不会让我们接受。我们就看他们怎么疯狂地用舆论来服务邪恶，看他们怎么演戏。可是这个戏最终会演不下去，这个戏，开场就是一个笑话。中共的任何宣传都是一个荒唐的存在，就是一个虚无。任何人要真相，请看爆料革命的分享足矣。
 
-Facebook在2019年6月公布了一个加密货币项目，作为扩展到电子商务和全球支付的努力的一部分。
+（本文纯属个人观点，与Gnews无关）
 
-但该项目立即遭到全球政策制定者的激烈反对，他们担心这可能会削弱他们对货币系统的控制，助长犯罪，并损害用户的隐私。
+参考消息：
 
-12月，为了重新获得监管部门的批准，该项目被重新命名，其范围进一步缩减为单一美元支持的数字货币。
+[https://china.huanqiu.com/article/45FMfqkiHzA](https://china.huanqiu.com/article/45FMfqkiHzA)
 
-文章来源:[https://www.reuters.com/technology/us-lawmakers-say-facebook-cannot-be-trusted-manage-cryptocurrency-2021-10-19/?taid=616f6d987778c400018e7b7b&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/technology/us-lawmakers-say-facebook-cannot-be-trusted-manage-cryptocurrency-2021-10-19/?taid=616f6d987778c400018e7b7b&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对/编辑：洛杉矶盘古农场 – 明子
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉磯盤古農場歡迎您加入:(或點擊上方圖片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

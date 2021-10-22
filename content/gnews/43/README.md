@@ -2,40 +2,44 @@
 ---
 
 
-## NIH打脸福奇，承认武汉病毒研究所进行功能增强试验
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1609354/)
+## 习不敌党内阻力，全国征房地产税难落地
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1609373/)
 
-**撰稿：日本东京方舟农场 北极**
-
-10月20日，NIH（国家卫生研究院）首席副主任致信众议院监督委员会詹姆斯·科默（James Comer），承认NIH批准并资助了纽约生态健康联盟和武汉病毒研究所，对蝙蝠冠状病毒进行功能增强试验。
-
-据布赖特巴特报道，NIH首席副主任劳伦斯·塔巴克（Lawrence A. Tabak）博士在致众议院监督委员会詹姆斯·科默（James Comer）的信中说，NIH资助了2018-2019年期间纽约生态健康联盟与武汉病毒研究所合作的一项研究，该研究包括对蝙蝠冠状病毒基因组测序，同时还测试了”蝙蝠冠状病毒的刺突蛋白是否能够与人源化小鼠的ACE2受体结合”的试验。而后者正是病毒功能增强试验，它提高了蝙蝠冠状病毒对人体的致病性。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/w1280-p4x3-2021-02-18T202805Z_159612348_RC28VL9CU65H_RTRMADP_3_HEALTH-CORONAVIRUS-FAUCI.jpg)图片来自于网络
-
-另据 GNEWS 7月25日报道，参议员兰德·保罗（Rand Paul）曾两次在国会质疑福奇是否资助了纽约生态健康联盟和武汉病毒研究所的功能增强试验，均遭对方否认。
-
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[NIH Contradicts Fauci, Admits Funding Gain-of-Function Research at Wuhan Lab](https://www.breitbart.com/politics/2021/10/20/nih-contradicts-fauci-admits-funding-gain-of-function-research-at-wuhan-lab/)
+作者：东京樱花团 – 修文
 
 
 
-> [参议员兰德·保罗，福奇的撒谎行为来自于精英主义](https://gnews.org/zh-hans/1421026/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
 
 
 
 
-> NIH corrects untruthful assertions by NIH Director Collins and NIAID Director Fauci that NIH had not funded gain-of-function research in Wuhan.
-> 
-> NIH states that EcoHealth Alliance violated Terms and Conditions of NIH grant AI110964. [pic.twitter.com/cFOtJlRoWl](https://t.co/cFOtJlRoWl)
-> — Richard H. Ebright (@R\_H\_Ebright) [October 20, 2021](https://twitter.com/R_H_Ebright/status/1450947395508858880?ref_src=twsrc%5Etfw)
+据多家媒体报道，近日，习近平推行全国性房地产税、以缓解税源枯竭的计划，遭遇了中共内部罕见的强大阻力。计划开征房地产税的试点城市，也从30个降至10个，并采取争议较小的替代方案，基本上倒退回20世纪90年代末期住房改革的“双轨制”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture22-4.jpg)
+习近平此前指派副总理韩正负责此项推行计划。向多个部门征求意见，却遭强烈反对。迫使韩正以影响甚广为由，建议习暂时不要广泛推动房地产税。
 
+党内对习近平扩大征收房地产税的计划，普遍给予负面回应。知情人士说，党员普遍拥有超过一套房产。疫情持续之下，经济和收入同时下滑，党员也不能例外。房地产税全面铺开会增加家庭交税支出，增加自己负担。关乎切身利益时，即便是“习核心”的提议也会遇到激烈反对。
 
+参考链接：[习不敌党内阻力，全国征房地产税难落地](https://news.ltn.com.tw/news/world/paper/1479879)
 
-* * *
+（本文仅代表作者观点）
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：飞虹 
+编辑：飞虹 
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)

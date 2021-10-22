@@ -2,19 +2,47 @@
 ---
 
 
-## 秘翻在线：北九州市大规模增加辉瑞疫苗接种
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1609847/)
+## 澳洲特别委员提出12项加密货币发展建议
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1609943/)
 
-撰稿：待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/画像1-18.png)（图片源自本文链接）
-10月21日【九州朝日放送】消息：北九州市已经宣布，将增加辉瑞疫苗的接种，以防中共病毒的扩散。
+作者：走进澳洲，文泓
 
-虽然从下个月开始的预约，只有莫德纳公司的疫苗可供预订。但是，北九州市将开始在小仓北区和八幡西区与火车站直接相连的地方提供辉瑞公司的疫苗接种，其原因是，非常罕见的年轻男性在接种莫德纳疫苗后出现心肌炎病例的报告很多。因此，这一追加措施，将优先考虑十到二十几岁的男性。
 
-北九州市符合条件人群的疫苗接种率为76%，而且越是年轻群体，接种率越低。北九州市市长北桥在新闻发布会上说：”我们希望重点向十到二十几岁的男性提供接种疫苗种类的选择机会，并希望通过增加配额提高接种率”。
 
-[信息源](https://news.yahoo.co.jp/articles/8f5920dda941b16d6945f5f39ba1cac704d322f8)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-是不是有种明知山有虎，偏向虎山行的感觉？
 
-（文章仅代表作者个人观点）
+
+据雅典娜农场引述Financial Review10月20日的消息，澳大利亚金融和科技特别委员会向联邦政府提出了12项建议，以发展本地的加密货币和区块链社区。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-105.jpg)
+建议包括，为数字货币交易所建立市场许可制度；建立一个具有最低标准的数字资产保管或存管制度；开展“代币摸底”工作，确定澳大利亚数字资产代币的最佳方式；建立新的去中心化组织机构；澄清反洗钱和反恐融资法规，以令法规不会破坏创新； 修改资本利得税制度；修改法律，鼓励在澳大利亚从事数字资产”开采”和相关活动的企业；审查澳大利亚中央银行数字货币零售的可行性；要求澳大利亚储备银行根据斯科特·法雷尔（Scott Farrell）的报告，为新的支付平台制定共同的接入要求；建立全球市场激励机制，在明年年底前取代离岸银行单位制度。
+
+在全球加密货币领域蓬勃兴旺之际，相关规范的研究和出台，将为喜币的良好运作提供更好的发展空间。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-12.jpg)
+参考链接：
+1.[The 12-point plan to bring crypto to the fore](https://www.afr.com/companies/financial-services/the-12-point-plan-to-bring-crypto-to-the-fore-20211020-p591kt)
+2. [Scott Farrell](https://www.kwm.com/en/au/people/scott-farrell)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：飞虹
+编辑：山本不惑
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

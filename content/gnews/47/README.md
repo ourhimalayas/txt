@@ -2,29 +2,40 @@
 ---
 
 
-## 强奸法治！律师“妄议”将被处罚
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1609151/)
+## NIH打脸福奇，承认武汉病毒研究所进行功能增强试验
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1609354/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/231-1.jpg)[图片来源](http://china.cnr.cn/gdgg/20211021/t20211021_525639178.shtml)
-（全国律师协会副会长蒋敏对《规则》进行解读）
+**撰稿：日本东京方舟农场 北极**
 
-近日，中华全国律师协会，制定了《中华全国律师协会关于禁止违规炒作案件的规则（试行）》。
+10月20日，NIH（国家卫生研究院）首席副主任致信众议院监督委员会詹姆斯·科默（James Comer），承认NIH批准并资助了纽约生态健康联盟和武汉病毒研究所，对蝙蝠冠状病毒进行功能增强试验。
 
-规则明确了律师、律师事务所对中共和国家重大决策部署、公共事件、涉法问题等发表评论以及在公共平台发表评论意见应当遵循的原则及边界、红线等，并对律师事务所、律师协会管理责任及处罚作出规定。
+据布赖特巴特报道，NIH首席副主任劳伦斯·塔巴克（Lawrence A. Tabak）博士在致众议院监督委员会詹姆斯·科默（James Comer）的信中说，NIH资助了2018-2019年期间纽约生态健康联盟与武汉病毒研究所合作的一项研究，该研究包括对蝙蝠冠状病毒基因组测序，同时还测试了”蝙蝠冠状病毒的刺突蛋白是否能够与人源化小鼠的ACE2受体结合”的试验。而后者正是病毒功能增强试验，它提高了蝙蝠冠状病毒对人体的致病性。
 
-规则明确，律师、律师事务所违反本规则，应当根据行业规范给予相应纪律处分；同时，就加强律师协会行业处分与司法行政机关行政处罚工作衔接作了规定。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/w1280-p4x3-2021-02-18T202805Z_159612348_RC28VL9CU65H_RTRMADP_3_HEALTH-CORONAVIRUS-FAUCI.jpg)图片来自于网络
 
-全国律协副会长蒋敏表示，少数律师热衷借助网络自媒体平台就案（事）件发表不当言论，披露案情，违规炒作案件，严重损害了律师行业的形象和声誉。规则的出台，是深化律师行业突出问题专项治理、推进行业规范健康发展的重要举措。
+另据 GNEWS 7月25日报道，参议员兰德·保罗（Rand Paul）曾两次在国会质疑福奇是否资助了纽约生态健康联盟和武汉病毒研究所的功能增强试验，均遭对方否认。
 
-律师是一个国家法制和司法的重要组成部分。中共以官办机构“全国律协”的名义，给全国律师定下专业言论的红线和边界，并成功地设定了“妄议”的罪与罚。可以说，中共又一次用行动，简单粗暴地强奸了法制和整个律师行业。
+*注：本文仅代表作者观点，与 Gnews无关*
 
-信息来源：
+*参考链接：*
 
-[全国律协出台规则加强律师行业自律\_蒋敏](https://www.sohu.com/a/496219687_267106)
+[NIH Contradicts Fauci, Admits Funding Gain-of-Function Research at Wuhan Lab](https://www.breitbart.com/politics/2021/10/20/nih-contradicts-fauci-admits-funding-gain-of-function-research-at-wuhan-lab/)
 
-(本文只代表作者观点，与GNews网站无关)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)
+
+> [参议员兰德·保罗，福奇的撒谎行为来自于精英主义](https://gnews.org/zh-hans/1421026/)
+
+
+
+
+
+> NIH corrects untruthful assertions by NIH Director Collins and NIAID Director Fauci that NIH had not funded gain-of-function research in Wuhan.
+> 
+> NIH states that EcoHealth Alliance violated Terms and Conditions of NIH grant AI110964. [pic.twitter.com/cFOtJlRoWl](https://t.co/cFOtJlRoWl)
+> — Richard H. Ebright (@R\_H\_Ebright) [October 20, 2021](https://twitter.com/R_H_Ebright/status/1450947395508858880?ref_src=twsrc%5Etfw)
+
+
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

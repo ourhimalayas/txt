@@ -2,35 +2,25 @@
 ---
 
 
-## 他的竞选官米勒说：特朗普正式宣布再度竞选总统
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1609821/)
+## 恒大集团无法出售旗下公司的股票
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1609902/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10224.png)[图片来源](https://www.asahi.com/articles/photo/AS20211021001829.html?iref=pc_photo_gallery_prev_arrow)
-据《[朝日新闻](https://www.asahi.com/articles/ASPBP563LPBMUHBI03D.html%0a%0a)》22日消息称：美国前总统特朗普最亲密的助手杰森·米勒18日在接受本报记者采访时证实， 特朗普先生将会在 2022年 11 月中期选举后再度参与总统竞选。
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-57.png)（图片来源于本文链接）
+朝日新闻10月21日报道，陷入危机的中国房地产巨头中国恒大集团20日宣布，无法出售旗下的房地产管理公司恒大物业集团的股份。一直在谈判出售给香港的一家房地产公司，但表示无法就条件达成一致，所以终止了谈判。
 
-米勒特别强调说：我相信特朗普先生在2024年总统大选中的表现将“是一匹烈马。”
+该发表称，与香港房地产巨头合生创展集团旗下的一家公司进行了商讨，以200亿港元（约合3000亿日元）的价格出售恒大物业集团已发行股份的50.1%。然而，条件并未达成一致，谈判于13日结束。在港股市场，因出售股份须经有关部门批准等原因，恒大物业的股份自本月4日起停牌。
 
-此外，米勒先生推出的社交媒体“[GETTER](https://www.gettr.com/post/peubg31f76)”的用户数量在日本迅速增加，成为继美国之后全球第二大用户，他表示将很快访问日本。
+急于将资产变现的恒大，于9月29日宣布，将旗下地区性银行的股份出售给国有企业用于筹集资金。这次的股份出售也作为“缓解手头流动性问题的措施之一”进行了谈判，但谈判失败将使恒大的现金流变得更加困难。
 
-- ***延展阅读：***[***中共庆祝在中国执政100年，批评者强调党不是人民***](https://www.eureporter.co/world/china-2/2021/07/01/as-ccp-celebrates-100-years-of-rule-in-china-its-critics-emphasize-the-party-is-not-the-people/)**。**
+恒大无法支付9月23日、29日、10月11日的美元债利息，债务违约的可能性加大。20日的发表中说，“如果我们不能按期偿还债务，不能继续向债权人借款，将对未来产生严重和不利的影响。”截至6月底，恒大的总债务为19665亿元人民币（约合35万亿日元），看来仍需寻求出售资产以度过商业危机。
 
+信息来源：
 
-米勒先生是Getter的首席执行官，他深度参与特朗普先生选举战略，成为特朗普最亲密的人。
+[恒大集団　傘下企業の株式売却できず](https://news.yahoo.co.jp/articles/6106524e01db59466af38d3e26e86f8d59e1819e)
 
-关注2020年美国大选的人都知道，前总统特朗普的推特账号罕见地被封杀，这是发生在崇尚言论自由的国家。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-不仅如此，随着COVID19大流行的攻击，人们很快意识到，社交媒体一旦被垄断，言论自由不仅成为空谈，而且严重影响一个国家的政治走向，使你真实的声音发不出来。
-
-- ***延展阅读：***[***GETTR是否与反共运动有关***](https://firstdraftnews.org/articles/is-gettr-tied-to-the-anti-ccp-movement/)***？***
-
-
-这一切的始作俑者就是中国共产党和科技公司的全球勾兑导致。在此前提下，GETTER应运而生，它由灭共者领袖[郭文贵先生创办](https://www.wsj.com/articles/ex-trump-adviser-jason-miller-new-social-app-gettr-backed-by-guo-wengui-tied-foundation-11625199130)，它的首要任务是为全球敢于发声的人提供自由言论的平台，并致力于对抗中国共产党的霸权。其口号是[TakeDowntheCCP](https://www.amazon.co.jp/Take-Down-CCP-Explicit-Miles/dp/B08HJ3ZV9T)。
-
-2021年10月22日
-
-（本文只代表个人观点，与Gnews网站无关）
-
-*校对：东京樱花团 / 平安卿卿*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

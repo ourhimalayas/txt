@@ -2,44 +2,23 @@
 ---
 
 
-## 澳大利亚新南威尔士州要求企业对雇员接种疫苗的不良反应承担责任
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610010/)
+## 大阪环球影城突发停电，过山车停在顶部
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1610199/)
 
-作者/编辑/总编：纽约香草山农场 – 飞虹
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/10/121-3.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimages.cdn.uniqueway.com%2Fuploads%2F2016%2F07%2Fae08d2fb-8a73-4a73-a414-8351c70d061c.jpg&amp;imgrefurl=https%3A%2F%2Fwww.uniqueway.com%2Fcountries_pois%2FoOL4jkO8.html&amp;tbnid=Fwz1Ye46dGN5NM&amp;vet=12ahUKEwjA7s2urN3zAhVbcH0KHa3kBxoQMygBegUIARCqAQ..i&amp;docid=GSnONvkGjjyhJM&amp;w=3400&amp;h=2416&amp;q=%E5%A4%A7%E9%98%AA%E7%8E%AF%E7%90%83%E5%BD%B1%E5%9F%8E&amp;ved=2ahUKEwjA7s2urN3zAhVbcH0KHa3kBxoQMygBegUIARCqAQ)
+日本环球影城位于大阪市高花区，由于突发停电，过山车停在铁轨最高点附近，乘客正坐在过山车中。
 
+据日本环球影城称，10月22日下午0点45分左右，停电导致公园内所有设施停运。其中，过山车停在铁轨顶部附近，乘客正坐在过山车中。目前，工作人员正在通过铁轨营救乘客。
 
+据关西电力公司称，日本环球影城所在的此花区和港区的520栋房屋停电，正在调查停电原因。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+信息来源：
 
+[ＵＳＪでジェットコースター停止　停電発生](https://news.yahoo.co.jp/articles/343aac1e04bfe82c74aad646008fe18b8adfdd07)
 
+(文章仅代表作者本人观点，与GNEWS无关)
 
-据零对冲10月19日的消息，澳大利亚的新南威尔士州地方政府刚刚颁布了一项法律，规定强制执行新冠疫苗接种的雇主，现在要对雇员所遭受的任何不良反应负责，即使员工不再为他们工作，这些雇主也必须在其余生中向员工支付赔偿。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-10.jpg)
-一些雇主就此项新规咨询了保险公司，保险公司明确表示，他们不会对未经测试的产品进行保险。
-
-政府向企业施压，迫使雇主要求员工接种疫苗，而保险公司却拒绝提供保险服务。而随着疫苗副作用的逐渐显现，这些企业将因此背负庞大的债务。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-72.jpg)
-参考链接：
-[Businesses’s In New South Wales (NSW) Will Be Held Accountable](https://www.zerohedge.com/news/2021-10-19/businessess-new-south-wales-nsw-will-be-held-accountable)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

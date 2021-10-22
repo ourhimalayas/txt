@@ -2,44 +2,38 @@
 ---
 
 
-## 中共利用企业家向世界发动金融超限战
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1609368/)
+## 美国准备计划为5-11岁儿童接种COVID-19疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1609437/)
 
-作者：香草山农场-雪梨
+**据《路透社》作者：Susan Heavey and Jeff Mason，2021年10月21日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wzywl-2.jpg)图片源于路透社
+华盛顿，10月20日（路透社）：拜登政府周三概述了其计划，即一旦COVID-19疫苗被授权用于5至11岁的美国儿童，政府将在繁忙的假日季节之前准备好剂量并准备好地点。
 
+与最初推出COVID-19疫苗时使用的大规模疫苗接种中心不同，白宫表示，它正在努力在全国100多个儿童医院系统以及医生办公室、药房和可能的学校设立诊所。
 
+白宫表示，如果辉瑞公司（PFE.N）和BioNTech SE的疫苗赢得了美国食品和药物管理局的广泛授权，该计划旨在确保快速和公平的疫苗分配。
+美国食品和药物管理局官员正在审查辉瑞公司/BioNTech公司的申请，该公司的外部顾问小组定于10月26日对其为年幼儿童提供的2剂量疫苗进行授权。美国食品和药物管理局通常遵循其顾问小组的建议，但其顾问小组并不建议为年幼儿童提供疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+美国疾病控制和预防中心（CDC）的顾问们将在11月2日和11月3日的会议上对该疫苗的建议进行权衡，以帮助其主任做出最终决定。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ac3wg-w10z6-1.jpg)2021年9月29日，美国密歇根州南菲尔德的疫苗诊所里，装满辉瑞-生物技术公司疫苗的注射器放在桌子上。 REUTERS/Emily Elconin
+白宫COVID反应协调员杰夫·赞茨(Jeff Zients)告诉记者：“如果美国食品和药物管理局和疾病预防控制中心授权使用该疫苗，我们将准备好注射疫苗。”他补充说，政府已准备好1500万剂疫苗运往全国各地，在接下来的几周内还会有数百万剂。
+一旦获得授权，美国将有大约2800万儿童有资格接受美国第一种针对年幼儿童的COVID-19疫苗。辉瑞公司/生物技术公司的疫苗已经提供给12-17岁的儿童，这两家公司仍在为5岁以下的儿童研究。
 
+赞茨说，政府已经与辉瑞公司合作，修改了儿科剂量的包装，使其更容易为儿童所用，包括提供较小的针头。
 
+虽然儿童因COVID-19而死亡的比率较低，但许多人面临疾病和长期症状，目前仍在研究之中。许多对COVID-19疫苗犹豫不决或反对的成年人，甚至一些没有反对自己接种疫苗的人，预计会抵制给他们的孩子注射疫苗。
 
-10月20日，郭文贵先生震撼爆料，为巩固领导和统治世界的权力，中共在利用马云等国内上万名企业家，向世界发动一场经济超限战。
+疾病预防控制中心主任罗谢尔·瓦伦斯基（Rochelle Walensky）博士告诉记者，即使在为儿童推出疫苗时，该机构也将继续建议在学校佩戴口罩。
 
-早在2018年12月，郭先生就提到，阿里巴巴、华为、平安、腾讯等公司都是披着名企身份的军工企业。这些企业不仅是国内金融界重点扶持和保护的对象，企业领导人还享有军队的专属编号和外交特权。中共通过这些企业，成功地渗透美国金融业、通信业、大数据等核心领域，掌控世界主流媒体。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture11-6.jpg)
-世界已逐渐认识到，中共国所谓的“军民融合”，实际上是中共打着国际合作的幌子，窃取西方成果为中共军方所用。而马云、马明哲等上市公司主席和主要股东，在被中共刑事调查期间，没有依法进行公告，且通过媒体舆论，操纵股价，掠夺全世界的财富。
+瓦伦斯基说，美国的COVID-19病例的七天平均数下降了大约16%，每天约75,500例。住院治疗的七天平均数下降了约11%，达到每天约6000人，每天死亡的七天平均数下降了约3%，达到1200人。
 
-近二十年来，通过蓝金黄美国和欧洲的政界和金融界，中共国和西方经济早已深度融合。当前世界经济面临崩溃之际，郭先生向世界发出警示，中共发起的经济超限战，目的就是打垮美国和欧洲的养老基金、退休基金和股票市场。
+**原文连接**：[https://www.reuters.com/world/us/white-house-lay-out-plan-vaccinate-kids-ages-5-11-nbc-news-2021-10-20/](https://www.reuters.com/world/us/white-house-lay-out-plan-vaccinate-kids-ages-5-11-nbc-news-2021-10-20/)
 
-参考链接：[中共利用企业家向世界发动金融超限战](https://gtv.org/video/id=61700c08304e992109b806ee)
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：飞虹 
-编辑：飞虹 
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
