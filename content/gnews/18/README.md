@@ -2,31 +2,47 @@
 ---
 
 
-## 新冠感染防治方案详解
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1609900/)
+## 澳洲特别委员提出12项加密货币发展建议
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1609943/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-7.jpg)
+作者：走进澳洲，文泓
 
-作者: 纽约香草山医疗部 – 圣母院钟声等
 
-本详解是由新中国联邦香草山农场医疗部的Église(圣母院钟声)医生和战友们根据郭文贵先生爆料，参照FLCCC, Zelenko, Fareed及McCulough方案翻译，并综合众多对该方案提问后，以简明，易懂的方式列举出几种不同需要的预防/治疗药物用法。该详解仅供参考，因为个体差异，药物效果不一。如有不适，使用者应向自己的医生咨询。对方案有疑问的，请先咨询再决定如何用药，如个人错误使用药物或剂量，Gettr, 香草山农场医疗部均不承担法律责任。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/新冠预防-1-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/感染轻-中症治疗-1-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/补充事项-1-scaled.jpg)
-审稿：圣母院钟声
 
-编辑：圣母院钟声
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-发稿：圣母院钟声
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-6.jpg)
+
+据雅典娜农场引述Financial Review10月20日的消息，澳大利亚金融和科技特别委员会向联邦政府提出了12项建议，以发展本地的加密货币和区块链社区。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-105.jpg)
+建议包括，为数字货币交易所建立市场许可制度；建立一个具有最低标准的数字资产保管或存管制度；开展“代币摸底”工作，确定澳大利亚数字资产代币的最佳方式；建立新的去中心化组织机构；澄清反洗钱和反恐融资法规，以令法规不会破坏创新； 修改资本利得税制度；修改法律，鼓励在澳大利亚从事数字资产”开采”和相关活动的企业；审查澳大利亚中央银行数字货币零售的可行性；要求澳大利亚储备银行根据斯科特·法雷尔（Scott Farrell）的报告，为新的支付平台制定共同的接入要求；建立全球市场激励机制，在明年年底前取代离岸银行单位制度。
+
+在全球加密货币领域蓬勃兴旺之际，相关规范的研究和出台，将为喜币的良好运作提供更好的发展空间。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-12.jpg)
+参考链接：
+1.[The 12-point plan to bring crypto to the fore](https://www.afr.com/companies/financial-services/the-12-point-plan-to-bring-crypto-to-the-fore-20211020-p591kt)
+2. [Scott Farrell](https://www.kwm.com/en/au/people/scott-farrell)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：飞虹
+编辑：山本不惑
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-7.jpg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

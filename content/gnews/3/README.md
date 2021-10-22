@@ -2,23 +2,27 @@
 ---
 
 
-## 大阪环球影城突发停电，过山车停在顶部
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1610199/)
+## 推崇全民疫苗政策的青年男子接种疫苗后在疫苗站外倒地
+` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1610266/)
 
-#### 撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/121-3.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimages.cdn.uniqueway.com%2Fuploads%2F2016%2F07%2Fae08d2fb-8a73-4a73-a414-8351c70d061c.jpg&amp;imgrefurl=https%3A%2F%2Fwww.uniqueway.com%2Fcountries_pois%2FoOL4jkO8.html&amp;tbnid=Fwz1Ye46dGN5NM&amp;vet=12ahUKEwjA7s2urN3zAhVbcH0KHa3kBxoQMygBegUIARCqAQ..i&amp;docid=GSnONvkGjjyhJM&amp;w=3400&amp;h=2416&amp;q=%E5%A4%A7%E9%98%AA%E7%8E%AF%E7%90%83%E5%BD%B1%E5%9F%8E&amp;ved=2ahUKEwjA7s2urN3zAhVbcH0KHa3kBxoQMygBegUIARCqAQ)
-日本环球影城位于大阪市高花区，由于突发停电，过山车停在铁轨最高点附近，乘客正坐在过山车中。
+他们说要接种疫苗
 
-据日本环球影城称，10月22日下午0点45分左右，停电导致公园内所有设施停运。其中，过山车停在铁轨顶部附近，乘客正坐在过山车中。目前，工作人员正在通过铁轨营救乘客。
+如何？你知道我的意思
 
-据关西电力公司称，日本环球影城所在的此花区和港区的520栋房屋停电，正在调查停电原因。
+必须要打疫苗
 
-信息来源：
+你得做你该做的，你知道我在说什么吗？
 
-[ＵＳＪでジェットコースター停止　停電発生](https://news.yahoo.co.jp/articles/343aac1e04bfe82c74aad646008fe18b8adfdd07)
+打这该死的针，这是必要的，明白吗？
 
-(文章仅代表作者本人观点，与GNEWS无关)
+你必须打针，否则你就会死掉。。。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+文字听写翻译：Kent
+
+视频字幕：Kent
+
+编辑/发稿：Kent
+
+发布: 风云小哥
+
+免责声明：本文仅代表作者个人观点，与G-NEWS网站无关

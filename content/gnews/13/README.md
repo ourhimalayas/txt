@@ -2,47 +2,36 @@
 ---
 
 
-## 澳洲特别委员提出12项加密货币发展建议
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1609943/)
+## 比特币价值暴跌 87%，投资者的一分钟噩梦
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1610101/)
 
-作者：走进澳洲，文泓
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/29-sep-3.jpg)图片来源：bitcoinist.com
+#### 编译：小红帽
 
+比特币投资者昨晚受到了惊吓，当下流行的加密货币–比特币的价值暴跌了 87%。
 
+昨晚，在交易平台Binance.US上，比特币在不到一分钟的时间内从接近历史记录的65,815美元跌至8,200美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+价格很快恢复到接近其原始价值，随后，Binance承认系统发生了故障。
 
+该公司在给商业内幕(Markets Insider)的一份声明中表示：“我们的一位机构交易员向我们表示，他们的交易算法存在错误，这似乎是造成抛售的原因。”
 
+此前，**币安（Binance）首席执行官赵长鹏警告称，加密货币会出现极端波动。**
 
-据雅典娜农场引述Financial Review10月20日的消息，澳大利亚金融和科技特别委员会向联邦政府提出了12项建议，以发展本地的加密货币和区块链社区。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-105.jpg)
-建议包括，为数字货币交易所建立市场许可制度；建立一个具有最低标准的数字资产保管或存管制度；开展“代币摸底”工作，确定澳大利亚数字资产代币的最佳方式；建立新的去中心化组织机构；澄清反洗钱和反恐融资法规，以令法规不会破坏创新； 修改资本利得税制度；修改法律，鼓励在澳大利亚从事数字资产”开采”和相关活动的企业；审查澳大利亚中央银行数字货币零售的可行性；要求澳大利亚储备银行根据斯科特·法雷尔（Scott Farrell）的报告，为新的支付平台制定共同的接入要求；建立全球市场激励机制，在明年年底前取代离岸银行单位制度。
+“预计未来几个月加密货币的波动性会非常大，”赵先生（也被称为 CZ）在推特写道。
 
-在全球加密货币领域蓬勃兴旺之际，相关规范的研究和出台，将为喜币的良好运作提供更好的发展空间。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-12.jpg)
-参考链接：
-1.[The 12-point plan to bring crypto to the fore](https://www.afr.com/companies/financial-services/the-12-point-plan-to-bring-crypto-to-the-fore-20211020-p591kt)
-2. [Scott Farrell](https://www.kwm.com/en/au/people/scott-farrell)
+**尽管摩根大通首席执行官杰米·戴蒙（Jamie Dimon）仍继续批评加密货币，称比特币“一文不值”，**但一些投资者现在预测比特币会有更大的涨幅。
 
-（本文仅代表作者观点）
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+**参考新闻：**[Rough minute for Bitcoin investors as value plummets 87 per cent (msn.com)](https://www.msn.com/en-au/news/world/rough-minute-for-bitcoin-investors-as-value-plummets-87-per-cent/ar-AAPOBdy?ocid=msedgdhp&amp;pc=U531)
 
-总编：飞虹
-编辑：山本不惑
-校对/发稿：为真不破20
+***发布：小红帽***
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
