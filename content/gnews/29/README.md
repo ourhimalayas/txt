@@ -2,27 +2,32 @@
 ---
 
 
-## 川普宣布将推出社交媒体 “真相社交”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610869/)
+## 美英经济学家预警，2008年金融危机或将重现
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610890/)
 
-作者：纽约香草山教育部 – 正义的小新
+作者：纽约香草山农场 007
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月20日，美国前总统川普宣布，即将推出名为“真相社交”的社交媒体平台。
+近日，美国达特茅斯学院经济学教授布兰奇弗劳尔和伦敦大学定量社会科学教授布莱森联合发布论文警告称，一项关键消费指数显示，美国的经济正在陷入衰退，情况可能与2008年金融危机一样严重。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-19.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-19.jpeg)
 
-据消息称，该平台将于今年11月开始测试，预计将在2022年完成第一季度的全面推出，将作为新成立的“川普媒体与技术集团”TMTG的一部分。
+事实上，美国民众的收入预测、就业状况，以及未来经济预期，根据密西根大学与世界大型企业联合会的消费者预期指数可见一斑。2021年，有两项指数分别下滑了18.4和25.3个百分点；而在2008年全球金融危机时，这两个指数则分别下跌了21和19个百分点。经济学家指出，自上世纪八十年代以来，每次美国经济衰退，这两项指数都会下滑超过10个百分点。
 
-就前总统川普宣布成立川普媒体与技术团队一事，盖特首席执行官杰森·米勒先生发表声明称，“祝贺川普总统再次加入社交媒体！川普总统一直是很好交往的生意人，但我们却无法就加入盖特达成共识。”
+此前，郭文贵先生曾多次警示世界，由于西方经济被中共绑架，加之中共房地产泡沫的破裂、中共病毒和疫苗生化战带来的灾难，世界经济恐将崩塌。
+
+在这场经济大劫难和世界大变革中，最大的赢家将是新中国联邦的G系列，它将成为世界经济的诺亚方舟。
 
 (本文仅代表作者观点)
 
-参考链接：[Mastodon’s Founder Says Trump’s New Social Network Is Just Mastodon](https://www.vice.com/en/article/5dgm5k/truth-social-is-mastodon-trump)
+参考链接：[专家警告：美国经济陷入衰退 2008年金融危机或重现](https://www.rfi.fr/cn/美洲/20211020-专家警告-美国经济陷入衰退-2008年金融危机或重现)
+[关于新世界和不远的未来](https://gnews.org/zh-hans/301071/)
+[全文字版2021年8月23日郭文贵先生G-TV直播](https://gnews.org/zh-hans/1489502/)
+[2021年9月21日郭文贵先生中秋直播全文字版](https://gnews.org/zh-hans/1548507/)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-总编：Irene木木 
-编辑：Irene木木
+总编：Ivy001 
+编辑：珈沅
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
