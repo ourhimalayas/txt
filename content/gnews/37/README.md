@@ -2,28 +2,39 @@
 ---
 
 
-## 美商务部禁止向中俄出口黑客技术
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1609312/)
+## NIH打脸福奇，承认武汉病毒研究所进行功能增强试验
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1609354/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+**撰稿：日本东京方舟农场 北极**
 
-据德国之声10月21日报道，美国商务部出台新出口管制规定：除非取得许可，不得向中俄等国出口黑客软件和设备。该项规定旨在反对滥用技术侵犯人权或进行其他恶意网络活动，确保美国公司不会助长独裁主义行为。
+10月20日，NIH（国家卫生研究院）首席副主任致信众议院监督委员会詹姆斯·科默（James Comer），承认NIH批准并资助了纽约生态健康联盟和武汉病毒研究所，对蝙蝠冠状病毒进行功能增强试验。
 
-据悉，美国商务部日前发布的一项新的出口管制规定，旨在遏制向中共国和俄罗斯等国家出口黑客技术。这项规定近些年一直被搁置。
+据布赖特巴特报道，NIH首席副主任劳伦斯·塔巴克（Lawrence A. Tabak）博士在致众议院监督委员会詹姆斯·科默（James Comer）的信中说，NIH资助了2018-2019年期间纽约生态健康联盟与武汉病毒研究所合作的一项研究，该研究包括对蝙蝠冠状病毒基因组测序，同时还测试了”蝙蝠冠状病毒的刺突蛋白是否能够与人源化小鼠的ACE2受体结合”的试验。而后者正是病毒功能增强试验，它提高了蝙蝠冠状病毒对人体的致病性。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/58894420_303.jpg)图片来自于网络
+![](https://assets.gnews.org/wp-content/uploads/2021/10/w1280-p4x3-2021-02-18T202805Z_159612348_RC28VL9CU65H_RTRMADP_3_HEALTH-CORONAVIRUS-FAUCI.jpg)图片来自于网络
 
-美国商务部发表声明说，”美国反对滥用技术侵犯人权或进行其他恶意网络活动，这些新规则将确保美国公司不会助长独裁主义行为。”
-
-这项规定将在90天后生效，届时美国各企业除非获得商务部工业与安全局许可，否则不得向中共国、俄罗斯等国家出售任何黑客软件及设备。
-
-据此前美国政府的数据显示，仅在2021年上半年，华盛顿就获知总共高达5.9亿美元的勒索软件相关付款，超过了前十年的总额。
+另据 GNEWS 7月25日报道，参议员兰德·保罗（Rand Paul）曾两次在国会质疑福奇是否资助了纽约生态健康联盟和武汉病毒研究所的功能增强试验，均遭对方否认。
 
 *注：本文仅代表作者观点，与 Gnews无关*
 
 *参考链接：*
 
-[美国政府将禁止向中国和俄罗斯出口黑客技术](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD%E6%94%BF%E5%BA%9C%E5%B0%86%E7%A6%81%E6%AD%A2%E5%90%91%E4%B8%AD%E5%9B%BD%E5%92%8C%E4%BF%84%E7%BD%97%E6%96%AF%E5%87%BA%E5%8F%A3%E9%BB%91%E5%AE%A2%E6%8A%80%E6%9C%AF/a-59576838)
+[NIH Contradicts Fauci, Admits Funding Gain-of-Function Research at Wuhan Lab](https://www.breitbart.com/politics/2021/10/20/nih-contradicts-fauci-admits-funding-gain-of-function-research-at-wuhan-lab/)
+
+
+
+> [参议员兰德·保罗，福奇的撒谎行为来自于精英主义](https://gnews.org/zh-hans/1421026/)
+
+
+
+
+
+> NIH corrects untruthful assertions by NIH Director Collins and NIAID Director Fauci that NIH had not funded gain-of-function research in Wuhan.
+> 
+> NIH states that EcoHealth Alliance violated Terms and Conditions of NIH grant AI110964. [pic.twitter.com/cFOtJlRoWl](https://t.co/cFOtJlRoWl)
+> — Richard H. Ebright (@R\_H\_Ebright) [October 20, 2021](https://twitter.com/R_H_Ebright/status/1450947395508858880?ref_src=twsrc%5Etfw)
+
+
 
 * * *
 

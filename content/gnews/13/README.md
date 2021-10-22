@@ -2,24 +2,30 @@
 ---
 
 
-## GETTR首席执行官杰森·米勒的声明
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1609640/)
+## 中共疫情最新动态解读
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1609719/)
 
-作者：秘密翻译组
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-新中国联邦秘密翻译组10月20日报道，关于前总统唐纳德·川普宣布成立川普媒体与技术团队一事，新自由媒体社交平台Gettr首席执行官杰森·米勒先生发表以下声明:
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image_1634868650.783.jpg.png)
-“祝贺川普总统再次加入社交媒体！现在，Facebook和Twitter将失去更多的市场份额。川普总统一直是一个很好的交易人，但我们却无法就此达成共识。准备好迎接盖特即将推出的新平台功能：盖特直播、GVision短视频和我们的盖特支付系统功能。令人兴奋的新功能将为我们的全球客户提供更好的用户体验。开始下载吧!”
+撰稿：喜妈
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+中共最近通过环球网报道，“河北、宁夏、甘肃三地”新发确诊，“本轮疫情已涉及8省份”。笔者对此可是非常奇怪，然而又特别能够理解。为什么呢？当然，这样的疫情动态：一半本身就是中共国疫情没有真正控制的事实表现，一半是中共要借这些疫情动态做一些假文章。此话如何认识呢？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1634870409.jpg)（来自网络截图）
+首先，说这样的不断突发和延续传染的疫情，是事实。这个应该是没有什么争议的。因为，中共的疫情从武汉最早开始发生到现在为止，整个动态都充满了作假，充满了谎言。不论是控制还失控，里面都是各种假消息。也就是说，中共的疫情，有等于无，没有什么可信度和可参考的价值。唯一可用的，就是不断地用来作为和爆料革命验证的反面教材，参照读物。中共的的疫情一比一个假，中共的疫情通报和动态完全没有意义；爆料革命资讯一比一个准，爆料革命的各种情报和预测，全都是正确。
 
-编辑：飞虹
-校正/发稿：Fei797
+其次，中共的疫情因为总是假，总是骗，那么就无法控制，无法结束，无法消灭，那么就要有人背锅，有人不断制造疫情，不断地引发各地的爆发和确诊出现，才能说得过去啊。因此，这也就造成了大家，不断读到中共国的各种新闻，包括传播到世界媒体有关中共国的各种新闻都是，各地的疫情频现，时有发生。骗子的谎言，就是这样，越是弥天大谎，越是要想得周全，越是因为心虚，因为害怕，而越发要编织得特别巨大丰满。这么一看，反而又进一步说明他们做假就做过头了；过头了之后，一验证，就露馅。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+因为，他们现在还在报道因为“三地”引发至少涉及“八个”省市的疫情，那么我们可以想见，中共号称之前的“清零”疫情战果，就是假的，就是经不起推敲的。他们就是捏着鼻子哄眼睛，把前一波的鸡血打了，现在包不住了，就又找个理由，把原因推到当事人身上，说是这些人造成疫情。本身就没有消灭的病毒，在已经都全员注射了疫苗的中共国，你的这些当事人又是从哪里染病的呢？
+
+同时，笔者有理由怀疑，不知道这些新发的疫情动态，是不是中共国经济衰退，继续要从草民身上刮油，搜刮财富呢。或者，这些疫情，又可以名正言顺地给中共所利用，再次制造健康危机，让已经都打过疫苗的人继续打加强针，继续地进行他们需要的各种控制。或者，他们还有其他的政治上的派系斗争的需要，要在这些地方对相关的人员和派系力量进行限制和打压。
+
+总之，我们被爆料革命启智，中共国的各种宣传，从来不会被我们简单地理解，也从来不会让我们接受。我们就看他们怎么疯狂地用舆论来服务邪恶，看他们怎么演戏。可是这个戏最终会演不下去，这个戏，开场就是一个笑话。中共的任何宣传都是一个荒唐的存在，就是一个虚无。任何人要真相，请看爆料革命的分享足矣。
+
+（本文纯属个人观点，与Gnews无关）
+
+参考消息：
+
+[https://china.huanqiu.com/article/45FMfqkiHzA](https://china.huanqiu.com/article/45FMfqkiHzA)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
