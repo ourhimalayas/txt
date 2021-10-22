@@ -2,31 +2,23 @@
 ---
 
 
-## 新西兰总理在疫情新闻发布会上被地震惊了一下
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1610112/)
+## 大阪环球影城突发停电，过山车停在顶部
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1610199/)
 
-翻译撰稿：Jenny
-视频节选自推特
-新西兰总理杰辛达·阿德恩（Jacinda Ardern）在COVID-19疫情及疫苗新闻发布会时，发生了里氏5.9级地震，她的发言被打断。地震发生时间为：新西兰时间早10：58分。
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/10/121-3.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimages.cdn.uniqueway.com%2Fuploads%2F2016%2F07%2Fae08d2fb-8a73-4a73-a414-8351c70d061c.jpg&amp;imgrefurl=https%3A%2F%2Fwww.uniqueway.com%2Fcountries_pois%2FoOL4jkO8.html&amp;tbnid=Fwz1Ye46dGN5NM&amp;vet=12ahUKEwjA7s2urN3zAhVbcH0KHa3kBxoQMygBegUIARCqAQ..i&amp;docid=GSnONvkGjjyhJM&amp;w=3400&amp;h=2416&amp;q=%E5%A4%A7%E9%98%AA%E7%8E%AF%E7%90%83%E5%BD%B1%E5%9F%8E&amp;ved=2ahUKEwjA7s2urN3zAhVbcH0KHa3kBxoQMygBegUIARCqAQ)
+日本环球影城位于大阪市高花区，由于突发停电，过山车停在铁轨最高点附近，乘客正坐在过山车中。
 
-北岛今早发生地震时的录像在社交媒体上被分享，显示总理在回到提问时间之前有短暂的紧张。
+据日本环球影城称，10月22日下午0点45分左右，停电导致公园内所有设施停运。其中，过山车停在铁轨顶部附近，乘客正坐在过山车中。目前，工作人员正在通过铁轨营救乘客。
 
-**“对不起，有点分心，”她对一位正在提问的记者说，因为震感开始了。”你介意重复一下问题吗？”**
+据关西电力公司称，日本环球影城所在的此花区和港区的520栋房屋停电，正在调查停电原因。
 
-GeoNet报告说，5.9级地震发生在北岛中部陶马鲁努伊西南30公里处，深度为210公里。超过24,000人回应GeoNet，揭示了他们对地震的感受程度，其中24人报告说是 “极端”，而近3000人说是 “中度”。
+信息来源：
 
-人们在社交媒体上分享了他们对另一场地震的感受和反应，一位Twitter用户写道。”我喜欢在新西兰我们是如何与地震打交道的……我想每个猕猴桃都会停顿2秒钟来评估’这是不是一个下降和潜水’，然后继续他们的一天”。
+[ＵＳＪでジェットコースター停止　停電発生](https://news.yahoo.co.jp/articles/343aac1e04bfe82c74aad646008fe18b8adfdd07)
 
-“安卓警报已经毁了惠灵顿最喜欢的’风或地震’游戏，”另一位写道。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-另一个人在推特上说，他们在克赖斯特彻奇感受到了 “非常缓慢的隆隆声”。
-
-“我在汉密尔顿感觉不到它，但我的手机上有一个警报，说是有轻度地震，20秒后，灯光开始晃动”。
-
-新西兰自从新馆疫情开始后，总感染人数和死亡人数在全球范围都属于极低的状况，但他们的封锁措施全球瞩目。　今年8月17日，新西兰曾因发现一例新冠病例而全国封城，堪称全球最严格的防疫响应措施。
-（本文纯属个人观点。与Gnews无关）
-
-[新闻来源：](https://www.skynews.com.au/world-news/new-zealand-prime-minister-jacinda-arderns-covid-update-rocked-by-59-magnitude-earthquake/news-story/cace0edca2f51c68635ccfd2a30e0c61)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

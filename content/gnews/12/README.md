@@ -2,30 +2,23 @@
 ---
 
 
-## 欧洲43个国家谴责中共对维吾尔人的人权侵犯行为
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1610496/)
+## 中共连续调控煤价 或加速能源危机
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1610525/)
 
-信息来源： 德国法兰克福报网页版
+#### 撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-58.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fx0.ifengimg.com%2Fucms%2F2021_22%2F3AD6D01469E4B55839135C9B6995BC9C52D8793E_size273_w600_h333.png&amp;imgrefurl=https%3A%2F%2Ffinance.ifeng.com%2Fc%2F86XIR3JgSk5&amp;tbnid=VadXK4PyfWz9EM&amp;vet=12ahUKEwja74vVyN3zAhURKnIKHVTTBRgQMygKegUIARCuAQ..i&amp;docid=-JUgDCOXvG5GYM&amp;w=600&amp;h=333&amp;itg=1&amp;q=%E4%BB%B7%E6%A0%BC%E8%B0%83%E6%8E%A7&amp;ved=2ahUKEwja74vVyN3zAhURKnIKHVTTBRgQMygKegUIARCuAQ)
+继19日、20日，10月21日晚间，中共国家发改委再发文表示将加强煤炭价格监管，打击所谓的煤价炒作。今日，动力煤主力合约再次跌停，报1365.0元/吨，相比数日前最高点跌幅达30%。
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
+发改委的调控方式相当简单粗暴，第一，于期货市场暂停交易和强制减仓；第二，于现货市场直接停止竞价交易；第三，要求四大煤炭集团（国家能源集团煤炭经营公司、中煤集团、晋能控股集团和内蒙古伊泰集团）作出限价保供承诺；第四，查处市面上的囤积涨价行为。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/ein-haftlager-in-der.jpg)
+当前，国际能源价格普涨，货运价格飙升，劳动力供给失衡的情况下，严重依靠国际电煤供给的中共国能通过控制国内市场而独善其身？众多理论和实践都证明，限价政策只会出现供给减少的情况，这更会加剧中共国的停电限电情况，加速能源危机的到来。
 
+消息来源：
 
-图片来源： 美联社
+[发改委连续三天发文表态加强监管，煤价或重回绿色区间？](https://www.yicai.com/news/101205186.html)
 
-德国和其他40多个国家谴责中国对新疆地区维吾尔人的人权侵犯，其中包括。”法国联合国大使尼古拉·德·里维埃（Nicolas De Rivière）10月21日在联合国大会人权委员会上宣读的一份联合声明说：“中共在新疆存在普遍和系统的侵犯人权行为包括酷刑、强制绝育、性暴力”。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-43个相关国家的一份附带声明说：”可信的报告表明，存在一个庞大的’政治再教育’营地网络，有超过一百万人被任意拘留。北京必须允许联合国观察员，特别是联合国人权负责人米歇尔-巴切莱特不受阻碍地进入受影响地区。除了欧洲国家之外，美国、加拿大、日本、土耳其、利比里亚和洪都拉斯也是该宣言的签署国。
-
-根据人权活动家的估计，大约有100万穆斯林少数民族成员被关押在新疆。北京政府指责维吾尔族团体搞分裂主义和恐怖主义。批评者提到了再教育营，在那里，维吾尔人将通过有时是残酷的手段与共产党保持一致。北京称其为职业培训机构，囚犯们自愿参加。
-
-在联合国人权委员会，中国的盟友古巴发表了一份声明，声明得到了62个国家的支持。在声明中，这些国家批评说，不应该干涉北京的内政。中国驻联合国大使张军在发言中作出了愤怒的反应，谈到了 “毫无根据的指控 “和 “谎言”：”你们无权决定什么是中国人民的权利，更无权教训中国，将人权问题政治化和工具化。”
-
-对于联合国人权专员可能进行的访问，张军说与联合国的磋商仍在进行。”我要重申，这次访问应该是一次友好的访问，而不是一次假定有罪的所谓调查。这对中国来说是不可接受的。” 联合国高级专员曾宣布了一份关于新疆的联合国正式报告，她至今仍被拒绝访问新疆。
-
-原文链接： [https://www.faz.net/aktuell/politik/ausland/uiguren-menschenrechtsverletzung-china-von-43-laendern-verurteilt-17597136.html](https://www.faz.net/aktuell/politik/ausland/uiguren-menschenrechtsverletzung-china-von-43-laendern-verurteilt-17597136.html)
-
-免责声明：本文观点只代表作者， 与Gnews平台无关
-
-编辑发布： Shuizhuyu
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

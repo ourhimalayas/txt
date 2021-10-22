@@ -2,23 +2,40 @@
 ---
 
 
-## 中共连续调控煤价 或加速能源危机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1610525/)
+## 新州的儿童返校前被突击安排接种疫苗
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1610542/)
 
-#### 撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-58.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fx0.ifengimg.com%2Fucms%2F2021_22%2F3AD6D01469E4B55839135C9B6995BC9C52D8793E_size273_w600_h333.png&amp;imgrefurl=https%3A%2F%2Ffinance.ifeng.com%2Fc%2F86XIR3JgSk5&amp;tbnid=VadXK4PyfWz9EM&amp;vet=12ahUKEwja74vVyN3zAhURKnIKHVTTBRgQMygKegUIARCuAQ..i&amp;docid=-JUgDCOXvG5GYM&amp;w=600&amp;h=333&amp;itg=1&amp;q=%E4%BB%B7%E6%A0%BC%E8%B0%83%E6%8E%A7&amp;ved=2ahUKEwja74vVyN3zAhURKnIKHVTTBRgQMygKegUIARCuAQ)
-继19日、20日，10月21日晚间，中共国家发改委再发文表示将加强煤炭价格监管，打击所谓的煤价炒作。今日，动力煤主力合约再次跌停，报1365.0元/吨，相比数日前最高点跌幅达30%。
+#### 【**雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Untitled.jpg)图片来源：resources0.news.com.au
+#### 编译：小红帽
 
-发改委的调控方式相当简单粗暴，第一，于期货市场暂停交易和强制减仓；第二，于现货市场直接停止竞价交易；第三，要求四大煤炭集团（国家能源集团煤炭经营公司、中煤集团、晋能控股集团和内蒙古伊泰集团）作出限价保供承诺；第四，查处市面上的囤积涨价行为。
+澳大利亚新南威尔士州卫生局将在本周末举行中共病毒（COVID-19）疫苗接种突击行动，目标是剩余22.9%的12至15岁尚未接种第一剂疫苗的儿童。
 
-当前，国际能源价格普涨，货运价格飙升，劳动力供给失衡的情况下，严重依靠国际电煤供给的中共国能通过控制国内市场而独善其身？众多理论和实践都证明，限价政策只会出现供给减少的情况，这更会加剧中共国的停电限电情况，加速能源危机的到来。
+全州40多家诊所将为周一返校的孩子们提供无需预约的辉瑞（Pfizer）疫苗接种服务。
 
-消息来源：
+新南威尔士州12至15岁的儿童中，约有46.08%已完全接种疫苗，77.11%人至少接种了一剂疫苗。
 
-[发改委连续三天发文表态加强监管，煤价或重回绿色区间？](https://www.yicai.com/news/101205186.html)
+新南威尔士州副首席卫生官玛丽安·盖尔（Marianne Gale）周五敦促家长和孩子们在返校时“保持警惕”。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+她在一段录制的视频中说：“如果我们的孩子出现哪怕最轻微的症状，一定不要去上学，最重要的是去做个中共病毒测试，并待在家里，直到得到阴性结果为止。”
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+下周，新南威尔士州的学校将自6月以来首次实现全校上课。幼儿园、1年级和12年级的学生于10月18日返回教室。其他年级组将从周一开始返回教室。
+
+截至周四，在新南威尔士州16岁以上的成年人中， 92.8%的人接种了一剂疫苗，83.7%的人接种了两剂疫苗。
+
+与此同时，新南威尔士州陆续解除封锁。澳洲航空将召回停职的员工，并重新启动往返悉尼的国际旅行。
+
+周五，新南威尔士州州长多米尼克·佩罗特(Dominic Perrottet)在悉尼机场发表讲话，宣布新州正处于“复苏的跑道”上。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Kids vax blitz ahead of NSW school return (msn.com)](https://www.msn.com/en-au/news/australia/kids-vax-blitz-ahead-of-nsw-school-return/ar-AAPNBiw?ocid=msedgntp)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
