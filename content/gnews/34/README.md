@@ -2,71 +2,36 @@
 ---
 
 
-## 9 月英瑞 COVID 死亡多数是“完全接种疫苗者”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1610467/)
+## 马云和他的帝国
+` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1610546/)
 
-**编译：JennyBall**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip52.png)图片来源：sirtravelalot / Shutterstock.com
-《生活新闻》（LifeSiteNews）——政府数据显示，上个月瑞典和英国的 COVID-19 死亡人数中，“完全接种”的人占了绝大多数，而其他西方国家的突破性病例和死亡人数也在增加。
+**文：银河勇气星｜骄子**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/7E370C4C-C8CC-42FA-B353-DC7A9AC227DA_cx0_cy10_cw0_w1023_r1_s.jpg)图源：网路
+看这标题，这要是放在早几年，2017年七哥爆料之前，这妥妥的是媒体的热门备选标题。说到媒体就不得不提王岐山钦定的民间宣传部长财新胡舒立。无奈，最近财新被从《互联网新闻信息稿源名单》撤下来了。这个所谓的名单，是网信办出的一个名单，类似一个通行牌照，你若是在互联网上发布文字类信息、新闻稿，你要先取得发送的权利。也是在这两天，墙内的公众号和应用程序也纳入了这个牌照下面，如果不符合要求，尤其转发量过高的，那有可能面临的风险里，账号关停是最基本的，后面可能面临处罚，严重点可能刑拘。对于言论自由的打压，共产党会下死手。因为自由言论存在，共产党就得死。
 
-据《瑞典日报》（[Svenska Dagbladet](https://www.svd.se/forskare-ser-en-vikande-vaccineffekt-i-sverige)）报道，瑞典公共卫生局本月早些时候报告称，9 月 1 日至 24 日期间，70% 的 COVID-19 死亡病例发生在“完全接种疫苗”的人群中。在此期间，瑞典[记录](https://ourworldindata.org/explorers/coronavirus-data-explorer?zoomToSelection=true&amp;time=2020-03-01..latest&amp;facet=none&amp;pickerSort=desc&amp;pickerMetric=total_cases&amp;hideControls=true&amp;Metric=Confirmed+deaths&amp;Interval=Cumulative&amp;Relative+to+Population=false&amp;Align+outbreaks=false&amp;country=~SWE)了大约 130 例致命的 COVID 病例。
+国内有很多公众号，可以养一个10-20人的公司。更有甚者做到了公司估值上亿，例如早期风靡公众号的咪蒙。在账号被迫关停以后，尝试了各种转型，但是现在没有一点点水花了。据说原来的公司现在运营着好几个大号，但是都不如咪蒙那个号的影响力。不谈咪蒙文章如何带风向，起码最基本的是作为一个原创者，她得到的收入只能是从品牌的广告展示上，还不是硬性插入的广告板块，而是整版文章都是为这个品牌服务的软文。不得不说早期的咪蒙确实有写一些有深度的文字，那都过去了。她后面专业为品牌来写软文，这种赚钱方式就是，品牌让你写什么你就得写什么，国内管这个叫“甲方爸爸”，无处不在的爸爸，大大文化。谁给钱就管谁叫爹。跪下叫躺着叫，各种姿势叫爹。真正的亲爹哪个不是对孩子爱都来不及，哪有这样虐待自己孩子的？
 
-“这仍然主要是关于老年人，但疫苗专家仍然认为，瑞典的疫苗保护有下降的趋势，”《瑞典日报》[报道](https://www.svd.se/forskare-ser-en-vikande-vaccineffekt-i-sverige-jo2m)。
+说回马云，马云和他的帝国。他的帝国叫做阿里巴巴。阿里巴巴不知道是谁给他起的名字，一点不吉利，原版是“阿里巴巴与四十大盗”，把后面的四十大盗抹掉就没有了是吗？可以代持的啊。马云你后面给多少个共产党的常委和私生子当白手套，四十个少数了吧？马云当时也是在中国大饭店门口哭哭啼啼，非要认江家做亲爹。和咪蒙一样，有了认来的亲爹，亲爹让你干嘛你就得干嘛。马云是很成功的商人，拥有了自己的帝国，媒体上他都可以来给别人做爹了。就到这个程度上了，他现在被绑到西班牙了，他的亲爹救不了他。为什么一开始不独立一点非要认爹？中共这个体制教导他一定要认个爹。这种庞大的帝国，看似坚硬无比，但是弱点太突出了，过于高度集权，只要拿住这个弱点，这个帝国灰飞烟灭。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/9aaaeb43cc404897881692e7575c0dd2.jpeg)阿里巴巴与四十大盗 / 图源：网路
+马云的支付宝在国内风靡的时候，仿佛一夜之间无人不知无人不晓。大多数人认可了这种新型的现代付款方式。纸币的缺点就是不好找零，找钱要浪费时间，拿钱放钱要浪费空间，节省空间和时间，只要拿着手机装了支付宝，就节省了四肢节省了脑子。那些到月底要靠点钞机才能结算的营业额，钱数多一些更要浪费掉财务很多人的时间的模式都过去了，现在只需要在支付宝的帐本里看一下，对一下账目，就清晰了很多了。给多少老百姓带去了方便和效率，让普通人亲身体验了科技。但是支付宝的弱点也太突出了，支付宝必须绑银行卡，背后就是中共国的银行。众所周知银行都是集权严重的体系，尤其共产党的银行，贪腐严重，董文标偷储户的钱那都是家常。如果像FB一样，断电几分钟，账户的钱全部被偷了，也不是不可能的事情。就算不断电，银行没了，支付宝是个啥？
 
-接种疫苗死亡人数上升的可能原因包括，“距离最早疫苗接种已经有一段时间了，疫苗覆盖率已经增加，限制已经放宽，以及 Delta 菌株出现，”微生物学研究员法尔希德·贾拉万（ Farshid Jalalvand ）告诉该报。
+喜联储有喜美元，后面还会有喜日元，喜欧元。喜币链接的这些日常生活的法币，而不是某个银行。法币的公信力在政府，除非政府破产了这些币会消失。就算政府都消失了，但是喜联储还有喜币，还有20%的黄金，并且是每年都会购买的黄金。往小了说，区块链不可追踪的技术，把时间空间和私密安全都集中在了这个手机上。这短短的几行字，哪个都是支付宝做不到的攀不上的。不在一个量级，没办法做比较。媒体敢称马云的帝国，可能是因为认爹文化吧。他这个帝国感觉是世袭制文化，谁职位高都可以自己封自己做个什么爹，只要爹成立了，那爹的帝国就尽在咫尺。
 
-然而，在卫生官员于 6 月初缩减限制措施后，瑞典的死亡人数[大幅下降](https://ourworldindata.org/explorers/coronavirus-data-explorer?zoomToSelection=true&amp;time=2020-03-01..latest&amp;facet=none&amp;pickerSort=desc&amp;pickerMetric=total_cases&amp;hideControls=true&amp;Metric=Confirmed+deaths&amp;Interval=7-day+rolling+average&amp;Relative+to+Population=false&amp;Align+outbreaks=false&amp;country=~SWE)，但在整个 7 月和 8 月期间，这个斯堪的纳维亚国家几乎没有报告 COVID 死亡人数。到 9 月中旬，死亡人数再次开始攀升，届时[将近 75%](https://www.reuters.com/world/europe/sweden-ramp-up-vaccination-efforts-jab-drive-slows-2021-09-15/)的 16 岁以上瑞典人“完全接种了疫苗”。
+神话故事《阿里巴巴与四十大盗》的结局蛮好的，阿里巴巴把四十大盗全都杀了，把巨额财宝全部分给了周围的村民，从此以后和妻子过着平静的生活。七哥早给他喊过话了，看他怎么选吧。
 
-尽管瑞典开展了大规模疫苗接种运动，但最近感染人数激增，导致瑞典高级护理居民中 COVID-19 病例数达到自 2 月以来的最高值。
 
-瑞典当局上周宣布的新测试协议，极有可能使突破性病例在任何情况下都不会成为未来数据报告的一个因素。周四，公共卫生局宣布，有冠状病毒症状的**“**完全接种**”**疫苗的人将被免除检测要求，几天后该机构披露了接种疫苗后COVID死亡人数激增的情况。
-
-英国：**70% **的** COVID **死亡病人**“**完全接种了疫苗**”**
-
-英国卫生当局最近公布的数据表明，英国也出现了类似的突破性激增。
-
-英国卫生安全局 (UKHSA) 于 10 月 7 日发布的[一份报告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1023849/Vaccine_surveillance_report_-_week_40.pdf)指出，英国 9 月份的大多数 COVID-19 死亡病人都属于“完全接种疫苗”的人群，大多数住院病例也是如此。英国的[疫苗接种率](https://coronavirus.data.gov.uk/details/vaccinations)与瑞典几乎相同。
-
-根据**UKHSA **的数据，在**9 **月**6 **日至**10 **月**3 **日期间，**70% **的致命**COVID **病例发生在完全接种疫苗的情况下，**“**完全接种**”**疫苗的人中，有**2,281 **人死亡，而在阳性测试后的**28 **天内未接种疫苗的人中，只有**611 **人死亡。**98**人死亡的部分接种疫苗的人。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip53.png)
-
-《曝光》（The Exposé）[观察](https://theexpose.uk/2021/10/08/80-percent-covid-deaths-september-england-were-vaccinated/)到，“完全接种疫苗”的英国人，因 COVID-19 死亡人数比 8 月份急剧增加。英格兰公共卫生部[上个月报告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1016465/Vaccine_surveillance_report_-_week_36.pdf)称，在 8 月 9 日至 9 月 5 日期间死于冠状病毒的人，未接种疫苗有** 600 **人死亡，而接种两剂疫苗的有** 1,659 **人死亡。
-
-UKSHA 的最新数据还显示，在住院治疗中，接种疫苗的患者 COVID-19占主导地位。9 月 6 日至 10 月 3 日期间，有 3,910 名“完全接种疫苗”的人因 COVID 入院，而未接种疫苗的患者约有 2,400 名。全部或部分接种疫苗的人数约占 COVID 相关住院总人数的 64%。
-
-英国 COVID-19 突破性死亡人数的上升，反映出包括美国在内的其他疫苗接种率高的国家的趋势。
-
-国防部 9 月份的一份报告发现，到 8 月 7 日，大约 60% 因 COVID 住院的老年医疗保险患者已“完全接种疫苗”。佛蒙特州是美国接种疫苗最多的州，上个月也报告，该州 9 月份死于冠状病毒的人数中有 76% 是完全接种疫苗的。
-
-在马里兰州，超过 85% 的成年人现在至少接种了一剂 COVID 疫苗，最近大约三分之一的病毒死亡涉及“完全接种疫苗”的人。
-
-前CDC主任、马里兰州州长拉里·霍根（Larry Hogan）的高级顾问罗伯特·雷德菲尔德（Robert Redfield）博士，本周在接受采访时表示：**“**在过去的六到八周里，马里兰州超过**40% **的死者接种了疫苗，**”** 福克斯新闻：马里兰州卫生部报告说，突破性死亡人数接近总数的 30%。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip54.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip55.png)
-
-**评论：无论赞成还是反对疫苗，都强调科学依据。译者赞同，我们从文章中的官方数据看，有歪曲、双重检测标准和数据缩水，用正常的逻辑思维能得出什么结论呢？**
-
-**瑞典卫生官员说， 6 月初缩减限制措施后，瑞典的死亡人数大幅下降！但到了75% 的 16 岁以上瑞典人“完全接种了疫苗”的 9 月中旬，死亡人数再次开始攀升！即使没有了严厉剥夺人权自由的限制措施，死亡人数都在下降。**
-
-**如果“疫苗”真的是保护我们不受Covid病毒，人们应该期待随着接种人数的增加，死亡率应该进一步下降，不是吗？为什么达到75%接种率了，死亡人数飙升？英国70% 的 COVID 死亡病人“完全接种了疫苗”？**
-
-**微生物学研究员所表达的接种疫苗死亡人数上升的原因，用正常的逻辑思维来看就是：疫苗的保护作用随着时间而减弱，但疫苗的副作用则随着时间而递增，从而催发出新的病毒，无论叫Delta还是Alfa。这很自然得出结论：疫苗是伤害和死亡的原因！**
-
-**得出了结论就要问了：为什么政府和医疗专家那么不顾事实地，不顾人民生命地还在强推疫苗？**
-
-**就是政府和CDC也没有否认，他们违宪强制人们接种的，叫做“疫苗”的东西，仍然在试验阶段！为什么试验的药品要普及？常理何在？事出无常必有妖！**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**新闻来源**：[lifesitenews.com][‘Fully vaccinated’ were the majority of COVID deaths in Sweden, UK in September](https://www.lifesitenews.com/news/fully-vaccinated-people-now-the-majority-of-covid-deaths-in-uk-sweden/)
 
 * * *
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)
+***文章内容仅代表作者观点***
+
+
+
+作者：骄子
+审核：兵嫂、天雷滚滚
+发布：骄子
+
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家.jpeg)

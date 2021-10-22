@@ -2,42 +2,149 @@
 ---
 
 
-## 特鲁多宣布加拿大正式实行联邦疫苗护照
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610659/)
+## 风吹草动
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1610767/)
 
-作者：纽约香草山文艺部 – 宁文静
+– 喜玛拉雅美东香草山农场 –
+– 劲风不忘本初 劲草行动笃定 –
+– 善用喜币 善用喜支付就是在行动 –
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-
-10月21日，加拿大总理特鲁多在例行记者会上表示，加拿大将启用新冠疫苗接种的联邦证明系统，最快将于当天在一些地区生效。特鲁多声称，全国13个省份和地区一致同意加入该系统。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1022AM（1、2）視頻備用.002.jpeg)
-据悉，加拿大疫苗护照会显示持有人的姓名、出生日期、疫苗接种历史、包括接种的时间、次数和剂量、以及一个健康卡的二维码，以便民众在加拿大境内及国际旅行时予以出示。
-
-此前，加拿大部分地区已经启用了省级疫苗接种证明，作为餐厅、健身房与影院等非必要场所的进入资格证。 如今，特鲁多枉顾加拿大各地反对强制新冠疫苗接种的声音、和对政府践踏人权的抗议浪潮，执意将疫苗护照正式落地，进一步压缩了未接种疫苗人员的活动空间，迫使他们寸步难行。
-
-正如郭先生所说：黑暗已经降临。
-(本文仅代表作者观点)
-
-参考链接：
-
-1. [纽约警察工会将起诉纽约市疫苗强制令](https://gnews.org/zh-hans/1608786/)
-2. [127名华盛顿州警员因抵制强制疫苗而被解雇](https://gnews.org/zh-hans/1605463/)
-3. [俄克拉荷马州长反对拜登疫苗强制令，称接种是个人自由](https://gnews.org/zh-hant/1606393/)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/FCI8Gm-WEAYFXp3.jpeg)图片来源：UK喜庄园
 
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**作者：**澄道来了、正道主义小草
+**编辑：**翼族
 
-总编：Irene木木 
-编辑：Kathy文艺
-校正/发稿：我不在这里
+危机一步步逼近
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+紧跟七哥哥莫忘
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+寻山远农庄是在
+
+归避风险
+
+共战友相聚不止
+
+自身保全
+
+727
+
+“吼出灭共舞”
+
+全球示威
+
+在行动
+
+101
+
+“十一终共”
+
+全球大游行
+
+在行动
+
+做直播
+
+“揭真相 线上线下”
+
+劲风劲草
+
+在行动
+
+G系列
+
+“隔空灭共”
+
+虽屡遭阻挠
+
+在行动
+
+不妥协不仅是
+
+在救家人
+
+不妥协更是在
+
+拯救自身
+
+七哥喊话
+
+人在西班牙马云要动
+
+“三马乱华”的
+
+一众人等更要动
+
+抉择新中国联邦
+
+机不可失
+
+唯一活路
+
+七哥呼吁
+
+人在世界各地战友要动
+
+“金融革命”之
+
+用喜币支付第一条内裤
+
+“喜pay”签约
+
+改变世界
+
+源于“指”尖
+
+货币就是去中心化
+
+“流水钱币”最终得益于
+
+自由与民主
+
+钱是有主人的
+
+法币不止是流通性受控
+
+“利益集团”衷情的一定是
+
+权力与独裁
+
+双猫双币破局正道
+
+“品牌代理”已成
+
+历史教科书
+
+夏平女士经历
+
+喻示着
+
+喜支付前景无限
+
+“黄金交易”也将
+
+窥豹一斑
+
+“猫本公司”历史一瞬
+
+演义着
+
+喜币新时代传奇
+
+初衷灭共不泯
+
+风吹草动不止
+
+@ 工作间 作战室
+@ 正道主义小草
+@ 澄道来了
+@ 爱动爱议码10211
+
+**发布：**Janek
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
