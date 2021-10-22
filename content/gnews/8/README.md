@@ -2,17 +2,24 @@
 ---
 
 
-## 拜登：美国将保卫台湾不受中(共)国影响
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1610298/)
+## 美国家卫生院承认资助功能增强冠状病毒试验
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1610443/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1022-1.jpg)图片来自futuribles
-10 月 21 日 – 美国总统乔拜登在 CNN 的一场辩论中说到：美国将保护台湾免受中(共)国的任何侵略。
+#### 撰稿：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-73.jpg)图片来源：网络截图
+零对冲网10月21日报道，一名美国国家卫生研究院（NIH）高级官员于周三的一封信中承认了美国资助了在中共武汉进行的“功能增强”试验，并由美国一家非盈利组织—-环境健康联盟进行操作，该联盟由彼得·达萨克领导，该联盟“没有报告”他们已经构建了嵌合的蝙蝠冠状病毒，而这个病毒很可能感染人类。
 
-在拜登谈到保卫台北免受北京可能发动的袭击时说：“我们对此有承诺，美国已经就保护加拿大和欧洲的北约盟国做出了神圣的承诺，这同样也适用于日本、韩国和台湾”。
+在一封NIH主管副主任劳伦斯·塔巴克写给肯塔基州众议院的信中，他引述一种“限制性实验”以确定“存在于中国自然界的蝙蝠病毒上的刺突蛋白是否能结合到小鼠模型上的人类ACE2受体上”，根据这封信，拟人化的小鼠在感染了经改造过的蝙蝠病毒后变得比暴露于未经改造过的同样的蝙蝠病毒的小鼠更加病态。
 
-免责申明：本文只代表译者观点，与Gnews无关
+而达萨克并未报告这个发现，已经给达萨克限期5天按照NIH经费要求上报“任何和所有未发表的实验数据以及工作日志”。
 
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/10/22/biden-gli-usa-difenderanno-taiwan-dalla-cina\_c0c0896e-7e7d-4328-9fa1-1ea85e78dc53.html](https://www.ansa.it/sito/notizie/topnews/2021/10/22/biden-gli-usa-difenderanno-taiwan-dalla-cina_c0c0896e-7e7d-4328-9fa1-1ea85e78dc53.html)
+罗格斯大学理事会化学教授理查德·艾布赖特在推特上总结：NIH纠正了NIH主任柯林和国家过敏和传染病研究院（NIAID)福奇的所谓NIH没有资助武汉进行功能增强试验的不真实的断言。他的引述文件显示NIH声明环境健康联盟违反了NIH经费A110964的条款和条件。2018年NIH收到了相关文件，并于2020年和2021年审阅，NIH, 特别是柯林，福奇和塔巴克对国会，媒体和公众故意地明目张胆地撒谎了！
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+当今年七月福奇在国会作证时，肯塔基州共和党参议员兰徳·保罗指控他资助中共武汉做功能增强试验时，福奇反而称兰徳撒谎，而这些材料证明兰徳·保罗是正确的！
+
+该文章列出了NIH文件第5页和第293页文件显示了嵌合病毒和小鼠感染情况，也列出了一些相关人物：达萨克，石正丽，巴利克等16人。
+
+总而言之，大量的证据证明福奇和他老板弗朗西斯·柯林撒谎了，NIH明知其资助了功能增强的研究。
+
+新闻来源： [NIH Admits Funding Gain-Of-Function COVID Experiments; Gives EcoHealth Five Days To Report Data](https://www.zerohedge.com/covid-19/nih-admits-funding-gain-function-covid-experiments-gives-ecohealth-five-days-report)

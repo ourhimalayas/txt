@@ -2,47 +2,25 @@
 ---
 
 
-## 澳洲特别委员提出12项加密货币发展建议
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1609943/)
+## 胡舒立创办的财新网被从网络新闻稿源名单剔除
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1610177/)
 
-作者：走进澳洲，文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/10/id13318507-1021-DJY-450x300-1.jpg)胡舒立创办的财新网被从网络新闻稿源名单剔除 网络图片
+据法广电台10月22号报道，北京当局10月20日公布新版“互联网新闻信息稿源单位名单”，将网路新闻采用范围限制在1358个新闻稿源单位，均属党媒官媒范畴。著名媒体人胡舒立创办的《财新网》被移出网络新闻稿源名单。
 
+2016年中共国国家网信办限定的新闻稿源名单，还包括财新网。这次财新网被剔除，虽然暂时不影响其日常运作，但中共国所有网络新闻平台及媒体，将不被允许引用或转载财新网的任何新闻。
 
+胡舒立10月2日在微博贴出一篇谈论饮食且配有猪头照片的文字，被怀疑另有所指。北京当局将财新网从稿源名单移除，表明“任何媒体都不能在党之上”。在中共国，党是谁呢？谁是党的代表呢？纵然胡舒立是一条忠心耿耿的狗，替主人撕咬他人、看家护院。在中共的绞肉机体制下，连狗带主人，最后连同整个机制都会一起毁灭。人不能幸免的时候，狗也同样。如果不想当狗，就站起来推翻这个体制，做一个堂堂正正的人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+新闻参考链接：[https://www.rfi.fr/cn/中国/20211021-胡舒立创办的财新网被从网络新闻稿源名单剔除](https://www.rfi.fr/cn/中国/20211021-胡舒立创办的财新网被从网络新闻稿源名单剔除)
 
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-
-据雅典娜农场引述Financial Review10月20日的消息，澳大利亚金融和科技特别委员会向联邦政府提出了12项建议，以发展本地的加密货币和区块链社区。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-105.jpg)
-建议包括，为数字货币交易所建立市场许可制度；建立一个具有最低标准的数字资产保管或存管制度；开展“代币摸底”工作，确定澳大利亚数字资产代币的最佳方式；建立新的去中心化组织机构；澄清反洗钱和反恐融资法规，以令法规不会破坏创新； 修改资本利得税制度；修改法律，鼓励在澳大利亚从事数字资产”开采”和相关活动的企业；审查澳大利亚中央银行数字货币零售的可行性；要求澳大利亚储备银行根据斯科特·法雷尔（Scott Farrell）的报告，为新的支付平台制定共同的接入要求；建立全球市场激励机制，在明年年底前取代离岸银行单位制度。
-
-在全球加密货币领域蓬勃兴旺之际，相关规范的研究和出台，将为喜币的良好运作提供更好的发展空间。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-12.jpg)
-参考链接：
-1.[The 12-point plan to bring crypto to the fore](https://www.afr.com/companies/financial-services/the-12-point-plan-to-bring-crypto-to-the-fore-20211020-p591kt)
-2. [Scott Farrell](https://www.kwm.com/en/au/people/scott-farrell)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：飞虹
-编辑：山本不惑
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

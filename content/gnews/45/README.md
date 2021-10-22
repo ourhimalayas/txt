@@ -2,48 +2,38 @@
 ---
 
 
-## 美驻华大使提名人对中共强硬表态
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1609372/)
+## 美国准备计划为5-11岁儿童接种COVID-19疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1609437/)
 
-作者：纽约香草山农场  007
+**据《路透社》作者：Susan Heavey and Jeff Mason，2021年10月21日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wzywl-2.jpg)图片源于路透社
+华盛顿，10月20日（路透社）：拜登政府周三概述了其计划，即一旦COVID-19疫苗被授权用于5至11岁的美国儿童，政府将在繁忙的假日季节之前准备好剂量并准备好地点。
 
+与最初推出COVID-19疫苗时使用的大规模疫苗接种中心不同，白宫表示，它正在努力在全国100多个儿童医院系统以及医生办公室、药房和可能的学校设立诊所。
 
+白宫表示，如果辉瑞公司（PFE.N）和BioNTech SE的疫苗赢得了美国食品和药物管理局的广泛授权，该计划旨在确保快速和公平的疫苗分配。
+美国食品和药物管理局官员正在审查辉瑞公司/BioNTech公司的申请，该公司的外部顾问小组定于10月26日对其为年幼儿童提供的2剂量疫苗进行授权。美国食品和药物管理局通常遵循其顾问小组的建议，但其顾问小组并不建议为年幼儿童提供疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+美国疾病控制和预防中心（CDC）的顾问们将在11月2日和11月3日的会议上对该疫苗的建议进行权衡，以帮助其主任做出最终决定。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ac3wg-w10z6-1.jpg)2021年9月29日，美国密歇根州南菲尔德的疫苗诊所里，装满辉瑞-生物技术公司疫苗的注射器放在桌子上。 REUTERS/Emily Elconin
+白宫COVID反应协调员杰夫·赞茨(Jeff Zients)告诉记者：“如果美国食品和药物管理局和疾病预防控制中心授权使用该疫苗，我们将准备好注射疫苗。”他补充说，政府已准备好1500万剂疫苗运往全国各地，在接下来的几周内还会有数百万剂。
+一旦获得授权，美国将有大约2800万儿童有资格接受美国第一种针对年幼儿童的COVID-19疫苗。辉瑞公司/生物技术公司的疫苗已经提供给12-17岁的儿童，这两家公司仍在为5岁以下的儿童研究。
 
+赞茨说，政府已经与辉瑞公司合作，修改了儿科剂量的包装，使其更容易为儿童所用，包括提供较小的针头。
 
+虽然儿童因COVID-19而死亡的比率较低，但许多人面临疾病和长期症状，目前仍在研究之中。许多对COVID-19疫苗犹豫不决或反对的成年人，甚至一些没有反对自己接种疫苗的人，预计会抵制给他们的孩子注射疫苗。
 
+疾病预防控制中心主任罗谢尔·瓦伦斯基（Rochelle Walensky）博士告诉记者，即使在为儿童推出疫苗时，该机构也将继续建议在学校佩戴口罩。
 
+瓦伦斯基说，美国的COVID-19病例的七天平均数下降了大约16%，每天约75,500例。住院治疗的七天平均数下降了约11%，达到每天约6000人，每天死亡的七天平均数下降了约3%，达到1200人。
 
-10月20日，拜登提名的美驻华大使候选人尼古拉斯·伯恩斯，在参议院听证会上展示了对中共的强硬立场。他说，中共在新疆的种族灭绝、在西藏的侵权、对香港自治与自由的打压、对台湾的霸凌，必须停止。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture33-3.jpg)
-他反对中共所采取的破坏台海现状的行动，谴责了中共军机进入台湾防空识别区。并表示，在台湾问题上，绝对不能相信中共；美国必须维持美国在印太的军事地位，并向台湾出售更多武器，阻止中共对台湾动武。
+**原文连接**：[https://www.reuters.com/world/us/white-house-lay-out-plan-vaccinate-kids-ages-5-11-nbc-news-2021-10-20/](https://www.reuters.com/world/us/white-house-lay-out-plan-vaccinate-kids-ages-5-11-nbc-news-2021-10-20/)
 
-伯恩斯还强调，美国必须调查新冠病毒的来源。对全世界封锁真相的中国必需向全世界解释答病毒起源的问题。
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-伯恩斯是职业外交官出身，曾担任驻北约大使。他于今年2月曾表示，美中关系是民主与威权的较量，并在多个场合呼吁，建立国际联盟对中共施压。
-
-参考链接：
-1. [美驻华大使提名人对中共强硬表态](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211020-%E6%8B%9C%E7%99%BB%E6%8F%90%E5%90%8D%E9%A9%BB%E5%8D%8E%E5%A4%A7%E4%BD%BF%E4%BC%AF%E6%81%A9%E6%96%AF%E5%A7%BF%E6%80%81%E5%BC%BA%E7%A1%AC-%E5%9C%A8%E5%8F%B0%E6%B9%BE%E9%97%AE%E9%A2%98%E4%B8%8A%E4%B8%8D%E8%83%BD%E4%BF%A1%E4%BB%BB%E4%B8%AD%E5%9B%BD%20https://www.voachinese.com/a/us-china-ambassador-nomiee-burns-takes-tough-line-on-dealing-with-beijing-20211020/6278745.html)
-2. [美驻华大使提名人对中共强硬表态](https://www.voachinese.com/a/Nicholas-burns-ambassador-to-China-Rahm-Emanuel-japan-20210820/6010760.html)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：飞虹
-编辑：馬可波羅
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

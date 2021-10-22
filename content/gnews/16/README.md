@@ -2,25 +2,17 @@
 ---
 
 
-## 胡舒立创办的财新网被从网络新闻稿源名单剔除
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1610177/)
+## 美国最后一次高超音速导弹试验失败
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1610360/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/id13318507-1021-DJY-450x300-1.jpg)胡舒立创办的财新网被从网络新闻稿源名单剔除 网络图片
-据法广电台10月22号报道，北京当局10月20日公布新版“互联网新闻信息稿源单位名单”，将网路新闻采用范围限制在1358个新闻稿源单位，均属党媒官媒范畴。著名媒体人胡舒立创办的《财新网》被移出网络新闻稿源名单。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10222.jpg)图片来自俄罗斯卫星通讯社
+10 月 21 日 – 美国在高超音速导弹竞赛中遭受了挫折，这使得它落后于中(共)国和俄罗斯。五角大楼实际上已经承认在阿拉斯加进行的最后一次试验失败了。
 
-2016年中共国国家网信办限定的新闻稿源名单，还包括财新网。这次财新网被剔除，虽然暂时不影响其日常运作，但中共国所有网络新闻平台及媒体，将不被允许引用或转载财新网的任何新闻。
+用于使导弹超过音速的火箭出现故障，导致发射受到影响。最近几周，莫斯科和北京分别进行了名为“莫斯科锆石”和“长征”的高超音速导弹的试验均取得了成功。
 
-胡舒立10月2日在微博贴出一篇谈论饮食且配有猪头照片的文字，被怀疑另有所指。北京当局将财新网从稿源名单移除，表明“任何媒体都不能在党之上”。在中共国，党是谁呢？谁是党的代表呢？纵然胡舒立是一条忠心耿耿的狗，替主人撕咬他人、看家护院。在中共的绞肉机体制下，连狗带主人，最后连同整个机制都会一起毁灭。人不能幸免的时候，狗也同样。如果不想当狗，就站起来推翻这个体制，做一个堂堂正正的人。
+免责申明：本文只代表译者观点，与Gnews无关
 
-新闻参考链接：[https://www.rfi.fr/cn/中国/20211021-胡舒立创办的财新网被从网络新闻稿源名单剔除](https://www.rfi.fr/cn/中国/20211021-胡舒立创办的财新网被从网络新闻稿源名单剔除)
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/10/22/smacco-per-gli-usa-fallito-ultimo-test-missile-ipersonico\_6df680a9-7602-418c-bf22-2ac8f037ae8e.html](https://www.ansa.it/sito/notizie/topnews/2021/10/22/smacco-per-gli-usa-fallito-ultimo-test-missile-ipersonico_6df680a9-7602-418c-bf22-2ac8f037ae8e.html)
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+责任编辑/发布：意大利达芬奇农场   萧亦

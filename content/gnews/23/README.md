@@ -2,44 +2,31 @@
 ---
 
 
-## 澳大利亚新南威尔士州要求企业对雇员接种疫苗的不良反应承担责任
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610010/)
+## 2021/10/21 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1610207/)
 
-作者/编辑/总编：纽约香草山农场 – 飞虹
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-据零对冲10月19日的消息，澳大利亚的新南威尔士州地方政府刚刚颁布了一项法律，规定强制执行新冠疫苗接种的雇主，现在要对雇员所遭受的任何不良反应负责，即使员工不再为他们工作，这些雇主也必须在其余生中向员工支付赔偿。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-10.jpg)
-一些雇主就此项新规咨询了保险公司，保险公司明确表示，他们不会对未经测试的产品进行保险。
-
-政府向企业施压，迫使雇主要求员工接种疫苗，而保险公司却拒绝提供保险服务。而随着疫苗副作用的逐渐显现，这些企业将因此背负庞大的债务。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-72.jpg)
-参考链接：
-[Businesses’s In New South Wales (NSW) Will Be Held Accountable](https://www.zerohedge.com/news/2021-10-19/businessess-new-south-wales-nsw-will-be-held-accountable)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+1. 突发严重事故！沈阳一饭店燃气爆炸 ，现场建筑和车辆损失严重。
+2. 航拍沈阳爆炸街道，现场瓦砾遍地。对于中共官方声称的死亡和伤亡人数持严重怀疑态度。掩盖是中共政府一贯的作风。
+3. 沈阳市和平区南七马路爆炸现场街道的视频。
+4. 官方称莆田杀人嫌疑犯拒捕而死，网友集体不相信，纷纷要求公布执法录像。
+5. 同期莆田爆出另一恶霸事件，恶霸故意把巨石堵住家门口，七八十老人每天得爬着出门！可见地方事件隐患严重。
+6. 多地取暖用煤价格涨超2倍 冬季临近，中国大陆北方百姓取暖问题值得严切关注！
+7. 10月14日，甘肃张掖，网曝百余老人滞留景区无人管。
+8. 10月19日，安徽滁州，某学校保安意图没收学生外卖被发现。  学校的“垄断”食堂是谁的蛋糕？
+9. 谁给了中共国的国企违约合同的权力？活儿干完了却拿不到钱，数百工人向中铁十五局讨薪数月未果。
+10. 10月20日 河北张家口，15岁男生遭老师殴打后颅内血肿。涉事老师声称是学生自己造成的。目前，涉事老师只是被学校暂时停职处罚。
+11. 面向市场的食品为什么无法保障安全？政府监管去哪里了？卖肉小贩拍视频教大家如何避免买到病猪肉。
 
 
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

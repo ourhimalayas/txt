@@ -2,40 +2,42 @@
 ---
 
 
-## NIH打脸福奇，承认武汉病毒研究所进行功能增强试验
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1609354/)
+## 美国商务部出台新规 限制向中俄出售网络安全产品
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1609371/)
 
-**撰稿：日本东京方舟农场 北极**
-
-10月20日，NIH（国家卫生研究院）首席副主任致信众议院监督委员会詹姆斯·科默（James Comer），承认NIH批准并资助了纽约生态健康联盟和武汉病毒研究所，对蝙蝠冠状病毒进行功能增强试验。
-
-据布赖特巴特报道，NIH首席副主任劳伦斯·塔巴克（Lawrence A. Tabak）博士在致众议院监督委员会詹姆斯·科默（James Comer）的信中说，NIH资助了2018-2019年期间纽约生态健康联盟与武汉病毒研究所合作的一项研究，该研究包括对蝙蝠冠状病毒基因组测序，同时还测试了”蝙蝠冠状病毒的刺突蛋白是否能够与人源化小鼠的ACE2受体结合”的试验。而后者正是病毒功能增强试验，它提高了蝙蝠冠状病毒对人体的致病性。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/w1280-p4x3-2021-02-18T202805Z_159612348_RC28VL9CU65H_RTRMADP_3_HEALTH-CORONAVIRUS-FAUCI.jpg)图片来自于网络
-
-另据 GNEWS 7月25日报道，参议员兰德·保罗（Rand Paul）曾两次在国会质疑福奇是否资助了纽约生态健康联盟和武汉病毒研究所的功能增强试验，均遭对方否认。
-
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[NIH Contradicts Fauci, Admits Funding Gain-of-Function Research at Wuhan Lab](https://www.breitbart.com/politics/2021/10/20/nih-contradicts-fauci-admits-funding-gain-of-function-research-at-wuhan-lab/)
+作者：纽约香草山农场  007
 
 
 
-> [参议员兰德·保罗，福奇的撒谎行为来自于精英主义](https://gnews.org/zh-hans/1421026/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
 
 
+10月20日，美国商务部宣布新规定，美国公司，和任何销售美国制造的网络软件的公司，在向某些外国政府，及位于中共国或俄罗斯的任何买家、包括中间商 出售黑客工具时，都需要获得许可证。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture44-2.jpg)
+商务部表示：“美国政府反对滥用技术来侵犯人权，或进行其它恶意的网络活动，这些新规定将有助于确保美国公司不会助长威权行为。”《联邦公报》关于规定的摘要说：“这些工具需要受到管控，因为可能被用于监视、间谍活动，或其它破坏、拒阻或降低 网络或网络设备性能的行动。”
 
+来自中俄的黑客攻击，已成为网络安全的最大威胁。美国国家安全局主管不久前表示，由中共发起的网络袭击，数量要远超其他国家的总和。而美国是网络安全产品的领先者，这些规定的生效，将切断最先进的网络技术，有力压制中俄猖獗的黑客项目。
 
-> NIH corrects untruthful assertions by NIH Director Collins and NIAID Director Fauci that NIH had not funded gain-of-function research in Wuhan.
-> 
-> NIH states that EcoHealth Alliance violated Terms and Conditions of NIH grant AI110964. [pic.twitter.com/cFOtJlRoWl](https://t.co/cFOtJlRoWl)
-> — Richard H. Ebright (@R\_H\_Ebright) [October 20, 2021](https://twitter.com/R_H_Ebright/status/1450947395508858880?ref_src=twsrc%5Etfw)
+参考链接：[美国商务部出台新规 限制向中俄出售网络安全产品](https://www.voachinese.com/a/US-commerce-department-china-russia-cybersecurity-20211020/6278962.html)
 
+（本文仅代表作者观点）
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-* * *
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)

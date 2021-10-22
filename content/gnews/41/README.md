@@ -2,34 +2,27 @@
 ---
 
 
-## 美国立法者表示，不能信任Facebook管理加密货币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1609566/)
+## 美国政府将禁止向中共国和俄罗斯出口黑客技术
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1609780/)
 
-据《路透社》作者：Kanishka Singh，2021年10月19日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-409-e1634865832689.png)在这张2020年4月17日拍摄的图片插图中，一个3D打印的Facebook标志和加密货币的代表物呈现在一块主板上。图片来源：路透社/Dado Ruvic
-《路透社》10月19日 —— 一群美国立法者表示，不能信任脸书（Facebook）公司管理加密货币，并敦促该社交媒体平台，立即停止其周二推出的名为Novi的加密货币钱包的小型试点。
+#### 撰稿：东京樱花团/ 上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-71.jpg)（图片来源与本文链接）
+美国商务部出台新出口管制规定：除非取得许可，不得向中俄等国出口黑客软件和设备。该项规定旨在反对滥用技术侵犯人权或进行其他恶意网络活动，确保美国公司不会助长独裁主义行为。
 
-美国民主党参议员Brian Schatz、Sherrod Brown、Richard Blumenthal、Elizabeth Warren和Tina Smith对Facebook两年来推出加密货币和数字钱包的努力表示了反对。
+周三（10月20日），美国商务部发布一项新的出口管制规定，旨在遏制向中国和俄罗斯等国家出口黑客技术。此前，这项规定被搁置多年。这项规定将在90天后生效，届时美国各企业除非获得商务部工业与安全局许可，否则不得向中国、俄罗斯等国家出售任何黑客软件及设备。
 
-“Facebook再次在激进的时间表上推行数字货币计划，并且已经启动了一个支付基础设施网络的试点，尽管这些计划与实际的金融监管环境不符。”参议员在给Facebook首席执行官马克·扎克伯格的信中写道。
+美国商务部发表声明说，“美国反对滥用技术侵犯人权或进行其他恶意网络活动，这些新规则将确保美国公司不会助长独裁主义行为。”此前几天，美国政府的数据显示，仅在2021年上半年，华盛顿就获知总共高达5.9亿美元的勒索软件相关付款，超过了前十年的总额。美国财政部报告说，这一数字也比2020年全年金融机构披露的此类付款金额高42%。而且，有明显的迹象显示，真正的交易可能是数十亿美元。
 
-参议员们写道：“当Facebook现有的管理风险和保证消费者安全的能力被证明完全不足时，不能信任它管理支付系统或数字货币。”
+根据美国商务部的这项新规，在向被认为”涉及国家安全或大规模杀伤性武器的国家”，或已经被武器禁运的地方销售黑客技术时，需要获得专门的许可证。美国和以色列一直是国际市场上黑客技术与网络安全产品的主要销售方。
 
-参议员们的这封信表明，即使是Facebook的加密货币钱包的小规模试点也将面临立法者和监管机构的审查，他们之前已经针对Facebook提出了反垄断和其他问题的担忧。
+美国商务部的这项新规已经酝酿了多年，试图在网络防御技术的合法使用与犯罪利用之间取得平衡。由于技术的复杂性，以及用途的混合，加上还要区分政府使用、正当防御性使用和私人使用，这些规则可能制定得相当复杂。
 
-Novi公司的一位发言人说：“我们期待着Facebook对委员会的来信作出回应。”
+信息来源：
 
-Facebook在2019年6月公布了一个加密货币项目，作为扩展到电子商务和全球支付的努力的一部分。
+[美国政府将禁止向中国和俄罗斯出口黑客技术](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD%E6%94%BF%E5%BA%9C%E5%B0%86%E7%A6%81%E6%AD%A2%E5%90%91%E4%B8%AD%E5%9B%BD%E5%92%8C%E4%BF%84%E7%BD%97%E6%96%AF%E5%87%BA%E5%8F%A3%E9%BB%91%E5%AE%A2%E6%8A%80%E6%9C%AF/a-59576838)
 
-但该项目立即遭到全球政策制定者的激烈反对，他们担心这可能会削弱他们对货币系统的控制，助长犯罪，并损害用户的隐私。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-12月，为了重新获得监管部门的批准，该项目被重新命名，其范围进一步缩减为单一美元支持的数字货币。
-
-文章来源:[https://www.reuters.com/technology/us-lawmakers-say-facebook-cannot-be-trusted-manage-cryptocurrency-2021-10-19/?taid=616f6d987778c400018e7b7b&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/technology/us-lawmakers-say-facebook-cannot-be-trusted-manage-cryptocurrency-2021-10-19/?taid=616f6d987778c400018e7b7b&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对/编辑：洛杉矶盘古农场 – 明子
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉磯盤古農場歡迎您加入:(或點擊上方圖片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
