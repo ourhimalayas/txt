@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/22/2021 9:47 PM (UTC)`
+
+10/22/2021 Miles Guo: The CCP has got control of Trump by using money means that the CCP still cares about him. Why do the CCP’s despicable tactics of threatening and bribery in Europe and the US always work? ARC, a subsidiary of PAG, served as the financial advisor for the acquisition of Giga Energy, and Bruno Wu signed the contract on behalf of Giga Energy. Such inextricably linked facts have proved the CCP’s conspiracy to frame and attack me via PAG controlled by Bruno Wu<br/><br/>10/22/2021 文贵直播：中共用资本拿下川普说明中共还在乎他，中共在欧美大肆威胁和收买的Low招儿为何屡屡奏效？太平联盟旗下的瑞寰资本是集兆嘉收购项目的顾问，吴征代表集兆嘉签字，如此环环相扣的事实恰恰佐证中共通过吴征操控的太平联盟来诬告、攻击文贵的阴谋<br/><br/>
+![img](https://media.gettr.com/group33/getter/2021/10/22/21/47/683220aa-6af8-ba3e-d489-27f0c933ca65/out.jpg)
+
+---
+
 `@miles 10/22/2021 8:55 PM (UTC)`
 
 太平洋联盟亚洲机会基金和郭文贵先生已经在纽约州法院就8800万美元的诉讼进行了四年，Christopher Gradel创立了太平洋联盟集团有限公司，他是ARC Capital Holding Ltd的非执行董事，ARC Group Limited担任Giga Energy的财务顾问，并宣布与运鸿集团执行最终股份交易，吴征在幕后牵线，他的公司阳光七星集团和他的弟弟Bing Wu 还有Samuel Nunberg(川普的政治顾问,之前告郭文贵先生诽谤)都是Giga Energy公司的股东。在SEC文件上吴征，杨澜是这笔交易的代表。运鸿的首席执行官同时也是Digital World Acquisition的首席执行官(Patrick Orlando)，该公司目前正在与Trump Media合并
@@ -291,13 +298,6 @@ Tu Youyou said Artemisia annua has many other efficacies besides treating malari
 
 10/17/2021 Miles Guo: Bank of Beijing is a hidden catastrophe… The Whistleblowers Movement has gained great prestige in the party by exposing a series of truths<br/><br/>10/17/2021 文贵直播：北京银行是个大雷... 爆料革命通过曝光一系列真相已经在党内赢得了非常高的的威信
 ![img](https://media.gettr.com/group16/getter/2021/10/18/22/44/4e64d969-7b74-aee9-46d4-af4801ceb03d/out.jpg)
-
----
-
-`@miles 10/18/2021 10:43 PM (UTC)`
-
-17/10/2021 Miles Guo: Yang Jiechi must be the next one to be arrested... Yang Jiechi and Wang Yi could have defected at any time if not for fear of harming their families<br/><br/>17/10/2021 文贵直播：下一个抓的一定是杨洁篪... 若非担心祸及家人杨洁篪、王毅随时可能叛逃出国
-![img](https://media.gettr.com/group44/getter/2021/10/18/22/43/b4648bc6-379f-45f0-82c7-c00d34c20a88/out.jpg)
 
 ---
 
