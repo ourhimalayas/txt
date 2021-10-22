@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/22/2021 11:20 PM (UTC)`
+
+Statement about Artemisinins, SARS-CoV2 and related topics<br/><br/>关于青蒿素及 SARS-CoV-2 的声明<br/>
+![img](https://media.gettr.com/group8/getter/2021/10/22/23/20/19488e55-c87b-ca95-fb27-2566946450bb/7796246461ff1ea2840fb0f5fababc04.jpg)
+
+---
+
 `@miles 10/22/2021 10:27 PM (UTC)`
 
 10/22/2021 Miles Guo: The period from CCP's 6th Plenary Session to the 20th National Congress is the most dangerous time for Xi; both the Xi faction and the Jiang faction want to eliminate each other; the CCP’s 6th Plenary Session is the time of their final showdown, whether Xi can remain in power or not is full of uncertainty<br/><br/>10/22/2021 文贵直播：六中全会至二十大期间，习面临最大危险；习江两派都想置对方于死地，六中全会是最后摊牌时刻，习能否能连任充满不确定性<br/>
@@ -289,13 +296,6 @@ Tu Youyou said Artemisia annua has many other efficacies besides treating malari
 
 10/17/2021 Miles Guo: Standing Committee Members are all returning the money. He calls for the CCP male members and entrepreneurs to have courage<br/><br/>10/17/2021 文贵直播：中共常委们都正在把钱往回交。请党内，企业家有良知的男人有点勇气
 ![img](https://media.gettr.com/group3/getter/2021/10/18/22/50/a916ed1f-c101-ca0b-10a4-33f8a4e8964b/out.jpg)
-
----
-
-`@miles 10/18/2021 10:44 PM (UTC)`
-
-10/17/2021 Miles Guo: Bank of Beijing is a hidden catastrophe… The Whistleblowers Movement has gained great prestige in the party by exposing a series of truths<br/><br/>10/17/2021 文贵直播：北京银行是个大雷... 爆料革命通过曝光一系列真相已经在党内赢得了非常高的的威信
-![img](https://media.gettr.com/group16/getter/2021/10/18/22/44/4e64d969-7b74-aee9-46d4-af4801ceb03d/out.jpg)
 
 ---
 

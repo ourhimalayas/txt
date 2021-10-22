@@ -2,21 +2,23 @@
 ---
 
 
-## 一落千丈的疫苗有效率
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1611545/)
+## 中共力推数字人民币冬奥会场景试点，冬奥会成数字人民币展示会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1611550/)
 
-#### 翻译：奮鬥
-校对：枳实
-字幕/剪辑：蛮吉
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/23-7.jpg)[图片来源](https://m.yicai.com/news/101033731.html)
+中共人民银行金融研究所副所长莫万贵10月22日在2021金融街论坛年会政策发布专场活动上表示，人民银行将全力支持冬奥支付环境建设，稳妥推进数字人民币冬奥场景试点，加快推动数字人民币试点工作实现场景全覆盖。
 
-本视频生动的总结了以福奇为代表的科学“宗教裁判所”自从中共病毒疫苗推出以来前后不一的对疫苗有效率的保证和描述。某些无良科学家，对数据捏扁揉圆，肆意扭曲，欺骗大众，本视频用简单的按照时间线排列的数据对照，揭穿了他们的谎言。
+莫万贵表示，稳妥推进数字人民币试点，构建面向冬奥会场景的数字人民币全生命周期管理、应用和服务体系，冬奥场景已落地35.9万个，实现交通出行、餐饮住宿、购物消费、旅游观光等七大类场景全覆盖。下一步，人民银行将全力支持冬奥支付环境建设，稳妥推进数字人民币冬奥场景试点，加快推动数字人民币试点工作实现场景全覆盖。
 
-发布：枳实
+数字人民币是中共对内解决经济危机、强化社会管控，对外狙击美元、掌控世界的关键武器。中共将北京冬奥会作为数字人民币应用落地的重要节点，就是希望通过借助冬奥会这个国际盛会的契机，来向全世界宣传展示数字人民币，目的是促进和加速数字人民币国际化。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+信息来源：
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[央行莫万贵：稳妥推进数字人民币冬奥场景试点](https://finance.sina.com.cn/roll/2021-10-22/doc-iktzqtyu2964133.shtml)
+
+(文章仅代表作者本人观点，与GNEWS无关)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
