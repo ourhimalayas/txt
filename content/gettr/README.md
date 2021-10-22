@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/22/2021 8:45 PM (UTC)`
+
+The Pacific Alliance Asia Opportunities Fund and Mr. Guo Wengui have been fighting in New York state court for four years over $88 million.Christopher Gradel founded Pacific Alliance Group Ltd, and he is a Non-Executive Director of ARC Capital Holding, ARC Group Ltd is acting as the financial advisor to Giga Energy, and Yunhong International and Giga Energy Inc, announced Execution of Definitive share exchange, Bruno Wu company’s Sun Seven stars group, his brother Bing Wu, and Samuel Nunberg (political advisor of Trump and sued Guo Wengui for defamation) are shareholders of Giga Energy. On SEC report Bruno Wu is the representative of this deal. The CEO of Yunhong who is also the CEO of Digital World (Patrick Orlando), which is now merging with Trump Media.
+![img](https://media.gettr.com/group18/getter/2021/10/22/20/1d595219-4927-c02a-b5d9-7773f3bf61e3/746ad7aa8d1fba20c23ccbdb69b7450e.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@pandarolling 10/22/2021 12:08 PM (UTC)`
@@ -291,12 +298,6 @@ Tu Youyou said Artemisia annua has many other efficacies besides treating malari
 
 直播测试
 ![img](https://media.gettr.com/group4/origin/2021/10/18/22/74a5860d-b85f-3d5c-1e5f-9ea844d77323/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 10/18/2021 6:13 PM (UTC)`
-
-10月18日：鲍威尔绝对死于疫苗，而不是死于病毒，所有的这些媒体都在撒谎。<br/><br/>他们在掩盖什么？恐惧什么？<br/><br/>https://twitter.com/Reuters/status/1450101932299857928?s=08 七哥您好! 路透社的新闻非常明确，他是打完两针疫苗，fully vaccinated的。
 
 ---
 
