@@ -15,122 +15,122 @@
 
 ---
 
-### [10/22/2021国际财经快讯：美国公布应对金融气候风险蓝图；澳央行要求“先买后付”公司取消附加费禁令](/content/gnews/1/README.md)
+### [用心良苦，喜币与黄金挂钩，七哥为喜币铸造坚实的黄金底座](/content/gnews/1/README.md)
+ ` 纽约香草山MOS02`
+
+### [文贵爆料（10/22）：中共潜艇在台湾海域多个地点“冒头”](/content/gnews/2/README.md)
+ ` 秘密翻译组-原创组`
+
+### [10/22/2021国际财经快讯：美国公布应对金融气候风险蓝图；澳央行要求“先买后付”公司取消附加费禁令](/content/gnews/3/README.md)
  ` 秘密翻译组金融团队`
 
-### [10月22日 澳喜要闻今日摘要](/content/gnews/2/README.md)
- ` 澳喜农场`
-
-### [美NIH承认资助了武汉实验室的增强功能实验](/content/gnews/3/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [关于“全球疫情仍存在反弹的风险”观点的分析](/content/gnews/4/README.md)
- ` 澳喜农场`
-
-### [10/12郭文贵盖特：中共经济超限战将对全世界造成严重后果（粤语配音）](/content/gnews/5/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [DC大中华时事：中共发布中国联合国合作立场文件](/content/gnews/6/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [墙内要闻汇编 10月22日](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [猎巫行动——《解放军报》鼓励中共国民众互相监督 举报间谍](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [英国12岁以上儿童接种新冠疫苗以来，死亡率骤升](/content/gnews/9/README.md)
- ` GTV新闻访谈`
-
-### [美国国家卫生研究院承认资助中共武毒所功能增强性研究](/content/gnews/10/README.md)
- ` GTV新闻访谈`
-
-### [特鲁多宣布加拿大正式实行联邦疫苗护照](/content/gnews/11/README.md)
- ` GTV新闻访谈`
-
-### [中共学校强制洗脑教育](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [开发m-RNA疫苗的萨诺菲-安万特公司(Sanofi-Aventis)早在疫情爆发前就已获得中共冠状病毒本身及所有相关事物的专利权](/content/gnews/13/README.md)
- ` MG 澳喜农场多语组`
-
-### [喜币是最安全的系统铸就万众期待的聚宝盆](/content/gnews/14/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [事出反常的乙型链球菌感染](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文·贵天成——文贵先生谈“孙力军”（九）](/content/gnews/16/README.md)
+### [风吹草动](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [马云，你已经被包围了&#8230;&#8230;](/content/gnews/17/README.md)
+### [10月22日 澳喜要闻今日摘要](/content/gnews/5/README.md)
+ ` 澳喜农场`
+
+### [美NIH承认资助了武汉实验室的增强功能实验](/content/gnews/6/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [关于“全球疫情仍存在反弹的风险”观点的分析](/content/gnews/7/README.md)
+ ` 澳喜农场`
+
+### [10/12郭文贵盖特：中共经济超限战将对全世界造成严重后果（粤语配音）](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [DC大中华时事：中共发布中国联合国合作立场文件](/content/gnews/9/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [墙内要闻汇编 10月22日](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [猎巫行动——《解放军报》鼓励中共国民众互相监督 举报间谍](/content/gnews/11/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [英国12岁以上儿童接种新冠疫苗以来，死亡率骤升](/content/gnews/12/README.md)
+ ` GTV新闻访谈`
+
+### [美国国家卫生研究院承认资助中共武毒所功能增强性研究](/content/gnews/13/README.md)
+ ` GTV新闻访谈`
+
+### [特鲁多宣布加拿大正式实行联邦疫苗护照](/content/gnews/14/README.md)
+ ` GTV新闻访谈`
+
+### [中共学校强制洗脑教育](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [开发m-RNA疫苗的萨诺菲-安万特公司(Sanofi-Aventis)早在疫情爆发前就已获得中共冠状病毒本身及所有相关事物的专利权](/content/gnews/16/README.md)
+ ` MG 澳喜农场多语组`
+
+### [喜币是最安全的系统铸就万众期待的聚宝盆](/content/gnews/17/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [事出反常的乙型链球菌感染](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文·贵天成——文贵先生谈“孙力军”（九）](/content/gnews/19/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [马云，你已经被包围了&#8230;&#8230;](/content/gnews/20/README.md)
  ` 银河勇气之星`
 
-### [马斯特登的创始人说川普的新社交网络就是马斯特登](/content/gnews/18/README.md)
+### [马斯特登的创始人说川普的新社交网络就是马斯特登](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [马云和他的帝国](/content/gnews/19/README.md)
+### [半中心化加密货币的猜想](/content/gnews/22/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [马云和他的帝国](/content/gnews/23/README.md)
  ` 骄子`
 
-### [新州的儿童返校前被突击安排接种疫苗](/content/gnews/20/README.md)
+### [新州的儿童返校前被突击安排接种疫苗](/content/gnews/24/README.md)
  ` 走进澳洲`
 
-### [日本要闻汇编](/content/gnews/21/README.md)
+### [日本要闻汇编](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [贝卢斯科尼是否计划登上意大利的总统宝座](/content/gnews/22/README.md)
+### [贝卢斯科尼是否计划登上意大利的总统宝座](/content/gnews/26/README.md)
  ` Shuizhuyu`
 
-### [中共连续调控煤价 或加速能源危机](/content/gnews/23/README.md)
+### [中共连续调控煤价 或加速能源危机](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共坚决反对欧洲议会通过涉台报告](/content/gnews/24/README.md)
+### [中共坚决反对欧洲议会通过涉台报告](/content/gnews/28/README.md)
  ` 儒为`
 
-### [医学杂志《柳叶刀》改行成为气候专家　变成穿着红色大褂的小丑](/content/gnews/25/README.md)
+### [医学杂志《柳叶刀》改行成为气候专家　变成穿着红色大褂的小丑](/content/gnews/29/README.md)
  ` 小象`
 
-### [欧洲43个国家谴责中共对维吾尔人的人权侵犯行为](/content/gnews/26/README.md)
+### [欧洲43个国家谴责中共对维吾尔人的人权侵犯行为](/content/gnews/30/README.md)
  ` Shuizhuyu`
 
-### [大量媒体人反抗公司 抵制疫苗接种](/content/gnews/27/README.md)
+### [大量媒体人反抗公司 抵制疫苗接种](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [9 月英瑞 COVID 死亡多数是“完全接种疫苗者”](/content/gnews/28/README.md)
+### [9 月英瑞 COVID 死亡多数是“完全接种疫苗者”](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [拜登承诺会保卫台湾](/content/gnews/29/README.md)
+### [拜登承诺会保卫台湾](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [广州出现“跳楼一口价”特价房 中共国房地产业雪崩在即](/content/gnews/30/README.md)
+### [广州出现“跳楼一口价”特价房 中共国房地产业雪崩在即](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西媒头条 — 第93期](/content/gnews/31/README.md)
+### [西媒头条 — 第93期](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [樱花灭共诗——卜算子•玻璃心](/content/gnews/32/README.md)
+### [樱花灭共诗——卜算子•玻璃心](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国家卫生院承认资助功能增强冠状病毒试验](/content/gnews/33/README.md)
+### [美国家卫生院承认资助功能增强冠状病毒试验](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [独家得悉马云日前飞抵西班牙的东周网与共产党是啥关系](/content/gnews/34/README.md)
+### [独家得悉马云日前飞抵西班牙的东周网与共产党是啥关系](/content/gnews/38/README.md)
  ` NewFOC`
 
-### [币圈新闻动态：喜联储10月20日新发行300,000,000枚HDO](/content/gnews/35/README.md)
+### [每日快报：美国立卫生研究院承认福奇撒了谎](/content/gnews/39/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [澳洲两大超市巨头宣布对全员进行强制疫苗接种](/content/gnews/36/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [每日快报：美国立卫生研究院承认福奇撒了谎](/content/gnews/37/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [银河快讯：松下将退出欧洲电视生产；日本将关注中俄海军舰艇活动](/content/gnews/38/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [至暗时刻，中国企业家该何去何从？](/content/gnews/39/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [健康强壮的体育教练接种疫苗后仍感染](/content/gnews/40/README.md)
  ` 加拿大多伦多枫叶农场视频组`

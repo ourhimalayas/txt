@@ -2,21 +2,36 @@
 ---
 
 
-## 中共学校强制洗脑教育
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1610652/)
+## 英国12岁以上儿童接种新冠疫苗以来，死亡率骤升
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610661/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-118.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2F5b0988e595225.cdn.sohucs.com%2Fimages%2F20180513%2Fd0bcbc2011174d57b79a44719436995e.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F231419151_249695&amp;tbnid=GqkqTgH513vnZM&amp;vet=12ahUKEwiA_ZuW9N3zAhXhnUsFHQHTDt8QMygAegUIARCbAQ..i&amp;docid=UjRuRJ2NhiEm3M&amp;w=723&amp;h=482&amp;q=%E6%B4%97%E8%84%91&amp;ved=2ahUKEwiA_ZuW9N3zAhXhnUsFHQHTDt8QMygAegUIARCbAQ)
-教育部网站10月22日消息，各省、自治区、直辖市教育厅（教委），新疆生产建设兵团教育局，部属各高等学校、部省合建各高等学校：国家教材委员会印发了《“党的领导”相关内容进大中小学课程教材指南》，这是首次就“党的领导”相关内容一体化融入大中小学课程教材作出的整体设计，是在大中小学进一步加强“党的领导”教育的重要举措，对于深入推进习近平新时代中国特色社会主义思想进教材进课堂进头脑具有重大意义。
+作者：香草山农场教育部-晓仙女
 
-人的品性基本上取决于他成长过程的两个主要因素：一是成长环境，二是思想教育。中共独裁国从幼小就被强制洗脑灌脑，头脑里唯一的就是共产党的虚无思想，要把国人思想武装成为红卫兵思维。要警惕土共绑架国人，要揭露中共的假恶丑，只有中共灭亡才能把被洗脑的国人拯救出来。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-消息来源：
 
-[国家教材委：“党的领导”相关内容进大中小学课程教材](https://mr.mbd.baidu.com/r/v8mmFt3WsU?f=cp&amp;rs=1417448640&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=b4addbcddabeccfe)
 
-(文章仅代表作者本人观点，与GNEWS无关)
+10月20日，BREAKING NEWS网站提到，根据英国国家统计局的数据，自从政府提供儿童用新冠疫苗以来，英国儿童的死亡人数比五年来的平均水平提高了52%。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1022AM（1、2）視頻備用.001.jpeg)
+数据显示，自9月开始，绝大多数感染新冠病毒的病例都来自于接种疫苗的人。而对于12岁以上的儿童来说，超过80%的新冠死亡病例均发生在疫苗接种者中。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+对此，英格兰首席医疗官克里斯和他的同事们认为，为12岁以上的儿童接种新冠疫苗是一个彻头彻尾的谎言。同时，当地医学和医疗保健产品监管机构公开承认，他们怀疑心肌炎和心包炎是辉瑞和莫德纳新冠疫苗的潜在副作用。
+
+尽管如此，12岁以上的英国儿童仍在接受实验性新冠疫苗的注射。讽刺的是，英国当局花了数十亿纳税人的钱推出了一项不必要的疫苗接种计划，已经杀死了它应该保护的人。
+(本文仅代表作者观点)
+
+参考链接：[根据国家统计局的数据，自提供Covid-19疫苗以来，儿童死亡人数比5年平均水平高52%，而此前则下降了14%。](https://gettr.com/post/peoxf74a00)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编/编辑：Irene木木
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
