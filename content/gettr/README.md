@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/22/2021 12:36 PM (UTC)`
+
+文贵大直播 六中全会定调明年二十大   大企业家境房地产大事   谁操纵股票大鳄割韭菜   社交媒体变化盖特在腾飞
+![img](https://media.gettr.com/group36/origin/2021/10/22/12/d8eb5ca1-aeac-d62e-b1c1-c0abd271f8f9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 10/22/2021 12:52 AM (UTC)`
 
 10/21/2021 Miles Guo’s GETTR: Jack Ma is in a very bad situation, and his ambitions won’t be fulfilled; With the world’s economy going down and the outbreak of the COVID vaccine disaster plus the soaring prices due to excessive printing of money, no one will trust fiat currencies anymore. So, what type of currency really belongs to you? Although we‘re in a great era, please make sure to prevent the CCP virus and don’t get the COVID jabs!<br/><br/>10/21/2021 文贵盖特：马云处境很惨，他的野心将无法实现；随着世界经济下滑和疫苗灾难的爆发，疯狂印钞导致物价飞涨，无人再信法币，什么样的钱才属于你？我们虽处在一个伟大的时代，但请大家防病毒、不打疫苗！<br/>
@@ -290,13 +297,6 @@ Tu Youyou said Artemisia annua has many other efficacies besides treating malari
 
 2021年10月17号，这是去年发出的有关被王岐山和孟建柱．UBS银行和瑞士的这家AMAC公司黑掉了我们基金的飞机的视频，当时被YOUTUBE 删掉了！今天我们再回看这个视频的时候意义重大。接下来我们会在上厕所的时间把这家飞机装修公司的涉嫌恐怖主义洗黑钱和叙利亚的各个恐怖组织联系的证据推出来，让他接受国际上法律的审判。【2018年10月10日：这个来自黎巴嫩的(马黑地)是AMAC飞机装修公司的主席！他与UBS银行孟宏伟．海航一起共同策划了这起骇人听闻的诈骗抢劫案！这是我们十二年的心血．我付出了一亿一千万现金创造的世界上唯一的中式厨房！用碳纤维．莲花的图腾．爱马仕特制皮革．用中国五行风水概念世界级唯一以中国元素的现代空中艺术品！我会专门直播详细介绍盗国贼是如何操纵这一切的！】
 ![img](https://media.gettr.com/group8/getter/2021/10/18/01/03/405202fc-6d3b-857e-b9c2-fedcc09c64ab/out.jpg)
-
----
-
-`@miles 10/18/2021 12:43 AM (UTC)`
-
-10/17/2021 Miles Guo: Revisit the CCP’s real estate sector - Just Ping An alone, it took way over RMB 9 trillion; Peter Ma (Mingzhe) became the No. 1 godfather in the Communist China via bribery; The CCP’s economy is really a mess, and even the CCDI or the special investigation team has no idea about the actual amount of money involved<br/><br/>10/17/2021文贵直播：再谈中共国房地产 - 仅平安就干掉了9万多亿人民币，马明哲通过行贿成为中共国的大瓢把子；中共烂账真的是一笔糊涂账，连中纪委、专案组对真实数字都毫无概念<br/>
-![img](https://media.gettr.com/group15/getter/2021/10/18/00/43/c82515a1-d4d1-6d57-aaed-cfa9e9b968fa/out.jpg)
 
 ---
 
