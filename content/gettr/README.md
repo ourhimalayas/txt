@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/22/2021 5:39 PM (UTC)`
+
+Background Information on Yunhong Group (2) 运鸿集团的背景 （二） 
+![img](https://media.gettr.com/group5/getter/2021/10/22/17/38/13a5d291-5d16-3db8-a1ed-0e4f2fde7d1f/571064e645f43e66ecf28c70bc653ce3.jpg)
+
+---
+
+`@miles 10/22/2021 5:33 PM (UTC)`
+
+Background information on Yunhong Group（1） 运鸿集团的背景（ 一） 
+![img](https://media.gettr.com/group13/getter/2021/10/22/17/33/1c7decac-fe7a-0442-e045-f1c98043ce58/4eed4c33bcfb751c04bdb5fabad1f8b8.jpg)
+
+---
+
 `@miles 10/22/2021 5:17 PM (UTC)`
 
 Securities And Exchange Commission Form 8-K; Yunhong International (“Yunhong”) intends to hold presentations for certain of its shareholders, as well as other investors who may be interested in purchasing Yunhong’s securities in connection with Yunhong’s proposed business combination with Giga Energy Inc. (“Giga Energy”), as described in this report.  In the document, Bruno Wu is the representative, and Li Yubao is the Chariman of the Yunhong Internationl. Patrick Orlando is the CEO of Yunhong International.      如本报告所述，运鸿国际(以下简称“运鸿”)打算为其某些股东以及其他可能有兴趣购买运鸿与千兆能源公司(以下简称“千兆能源”)拟议业务合并相关的证券的投资者举行陈述<br/><br/>吴征作为代表签署的文件，李玉保为运鸿国际董事长。帕特里克·奥兰多是运鸿国际的首席执行官
@@ -283,20 +297,6 @@ Tu Youyou said Artemisia annua has many other efficacies besides treating malari
 
 10月18号：神秘的世界不．神秘的人类，神秘的宇宙，有着无穷无尽的我们未知的力量，这事预义太大了👍👍👍👍👍👍👍👍
 ![img](https://media.gettr.com/group10/getter/2021/10/18/14/47/039a63f0-e31f-28a1-dc7a-b527c7c773c5/out.jpg)
-
----
-
-`@miles 10/18/2021 1:59 PM (UTC)`
-
-10月18日：把龙头给斩了．祭出了真正的能量场．力量的代表……神秘．力量．宇宙的中心．秘堂之力的秘诀．秘码．玉琮。天意啊天意啊天意啊天意啊，天助我新中国联邦呀……共产党真的完球蛋喽！🙏🙏🙏🙏🙏🙏🙏🙏🙏变成了当初1999年第一个方案的概念．玉(宇宙的祖宗)琮．这是天意啊，这是象征龙及万物万力的统治者。变来变去成了政治军事．财富．权力．的最高象征．天意啊天意啊，天生盘古无人可以改变。<br/><br/>【玉琮因造型奇特精巧、寓意神秘而著称于世。尤其是1986年在余杭反山、瑶山大墓中出土的玉琮上发现雕琢精细、令人叹为观止的“神徽”后，更为中外学者所瞩目，激起了人们去揭示其蕴含奥秘的热情。玉琮遂成为一项世界性的研究课题。玉琮：良渚文化权力的象征<br/><br/>距今5300-4300年的良渚文化时期，就已经出现了玉琮。因此，玉琮被认为是良渚先民首创的，玉琮是神权的象征，也是良渚文明非常典型的玉器。内圆外方的形状，反映出良渚先民“天圆地方”的宇宙观。】
-![img](https://media.gettr.com/group49/getter/2021/10/18/13/59/bd6cbe68-fd8c-9c59-7d9c-d995bf7bd855/ce77b0fdf375ae3fd4a3e19ce963b859.jpg)
-
----
-
-`@miles 10/18/2021 7:17 AM (UTC)`
-
-17/10/2021 Miles Guo： Tu Youyou believes that Artemisinin can cure the most common diseases like AIDS, cancer, diabetes etc. It can potentially change humankind’s fate!<br/><br/>17/10/2021 文贵直播： 屠呦呦相信青蒿素一定会把艾滋病、癌症以及糖尿病等人类最常见的病都解决了。这个药很可能会改变人类的命运！
-![img](https://media.gettr.com/group14/getter/2021/10/18/07/17/bdf52275-be97-9b08-99f7-ee23f3f1585a/out.jpg)
 
 ---
 
