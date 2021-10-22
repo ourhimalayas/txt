@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/22/2021 12:09 AM (UTC)`
+
+10/21/2021 Miles Guo’s GETTR: The 6th Plenary Session of the CCP’s Central Committee will cause massive arrests and deaths; No one will be safe unless the CCP is taken down; The day that Chinese people will own the land and the wealth that should belong to them is coming! So many people in Beijing want to eliminate Xi Jinping, and the accidents during the CCP’s internal struggles can happen at any time. The CCP will collapse rapidly!<br/><br/>10/21/2021 文贵盖特：此次六中全会将有多人被抓、被杀；不灭共，谁也不会安全；中国人拥有自己的土地和财富的日子将很快到来！北京有太多人要干掉习近平，内斗随时将有意外发生，中共将在弹指间脆断！<br/>
+![img](https://media.gettr.com/group13/getter/2021/10/22/00/09/e82b9d30-80f7-1635-7926-76bcc43720d0/out.jpg)
+
+---
+
+`@miles 10/22/2021 12:03 AM (UTC)`
+
+Every day is a Fashion Show, and a the world is your runway. G Fashion’s New Collection is coming soon.    每天都是一场时装秀，世界就是你的舞台. G Fashion 的新系列即将推出 ！♥️♥️♥️🔥🔥🔥🔥✌️✌️✌️#Gfashion @DDNYC 
+![img](https://media.gettr.com/group46/getter/2021/10/22/00/03/4baf78fc-e2f0-760d-cd6c-f5107ca3dbe4/out.jpg)
+
+---
+
 `@miles 10/21/2021 5:57 PM (UTC)`
 
 10月21号：我的乖乖哟……
@@ -282,20 +296,6 @@ Tu Youyou said Artemisia annua has many other efficacies besides treating malari
 
 10/17/2021 Miles Guo: On or about October 2, 2020, a historical arrest took place in the Communist China, with nearly 60,000 people being arrested. Xi Jinping even had no idea how much money was seized. Xi has not come out or seen anyone since then. Because he had never expected that Wang Qishan, Meng Jianzhu and others were going to kill him. Xi ordered to deal with the Chinese entrepreneurs in the same way as how the HNA case was handled - arrest them, kidnap their family, and force them to move their oversea assets back<br/><br/>10/17/2021文贵直播：2020年10月2日左右，中共国发生了一场历史性的大抓捕，近6万人被抓，习甚至不清楚多少钱被查封；习此后再未出门见人，因为他做梦都没想到王岐山、孟建柱等人要谋害他；习下令采用处理海航的模式针对国内企业家 - 抓捕他们、绑架其家人并逼迫其将海外资产转回国<br/>
 ![img](https://media.gettr.com/group30/getter/2021/10/17/23/43/e629c1f0-7132-c080-0dd7-537b8df3f02d/out.jpg)
-
----
-
-`@miles 10/17/2021 10:21 PM (UTC)`
-
-10/17/2021 Miles Guo: Before Ant Group’s IPO, Sun Lijun confessed that Jack Ma’s boss was Alvin Jiang and that he had hidden and laundered a gigantic sum of money, which Xi Jinping was dumbfounded. Jack Ma was immediately tricked back to mainland China and got arrested, with the Ant Group’s IPO being cancelled<br/><br/>10/17/2021 文贵直播：孙力军在去年初蚂蚁金服上市前供出马云替背后老板江志成藏钱和洗钱，涉及了天量资金，习对此很震惊，马云被立刻骗回大陆并被逮捕，蚂蚁金服上市流产<br/>
-![img](https://media.gettr.com/group48/getter/2021/10/17/22/21/92a4784a-63a8-1294-7204-c04a5f78293d/out.jpg)
-
----
-
-`@miles 10/17/2021 7:05 PM (UTC)`
-
-October 17, 2021, this is the material sent last year about Wang Qishan and Meng Jianzhu, UBS Bank, and the Swiss AMAC company robbed our Trust fund's aircraft, which Youtube deleted at that time! When we look back to this video today, it means so much. We'll present evidence that this aircraft renovation company's alleged terrorist money laundering links to various terrorist groups in Syria during our bathroom breaks and bring it to trial under international law【October 10, 2020, this is the chairman of AMAC aircraft renovation company from Lebanon, together with Meng Hongwei, UBS bank, and HNA; he planned this appalling scam and robbery! This is our 12 years' work to build this one of a kind aircraft, and I paid $110 million on this project…】
-![img](https://media.gettr.com/group13/getter/2021/10/17/19/05/a217148e-5b98-a3fa-dac8-0b58a77174e4/9fcd81d957ac5e60bd269f901d205b1d.jpg)
 
 ---
 
