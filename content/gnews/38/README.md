@@ -2,36 +2,31 @@
 ---
 
 
-## 比特币价值暴跌 87%，投资者的一分钟噩梦
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1610101/)
+## 新西兰总理在疫情新闻发布会上被地震惊了一下
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1610112/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/29-sep-3.jpg)图片来源：bitcoinist.com
-#### 编译：小红帽
+翻译撰稿：Jenny
+视频节选自推特
+新西兰总理杰辛达·阿德恩（Jacinda Ardern）在COVID-19疫情及疫苗新闻发布会时，发生了里氏5.9级地震，她的发言被打断。地震发生时间为：新西兰时间早10：58分。
 
-比特币投资者昨晚受到了惊吓，当下流行的加密货币–比特币的价值暴跌了 87%。
+北岛今早发生地震时的录像在社交媒体上被分享，显示总理在回到提问时间之前有短暂的紧张。
 
-昨晚，在交易平台Binance.US上，比特币在不到一分钟的时间内从接近历史记录的65,815美元跌至8,200美元。
+**“对不起，有点分心，”她对一位正在提问的记者说，因为震感开始了。”你介意重复一下问题吗？”**
 
-价格很快恢复到接近其原始价值，随后，Binance承认系统发生了故障。
+GeoNet报告说，5.9级地震发生在北岛中部陶马鲁努伊西南30公里处，深度为210公里。超过24,000人回应GeoNet，揭示了他们对地震的感受程度，其中24人报告说是 “极端”，而近3000人说是 “中度”。
 
-该公司在给商业内幕(Markets Insider)的一份声明中表示：“我们的一位机构交易员向我们表示，他们的交易算法存在错误，这似乎是造成抛售的原因。”
+人们在社交媒体上分享了他们对另一场地震的感受和反应，一位Twitter用户写道。”我喜欢在新西兰我们是如何与地震打交道的……我想每个猕猴桃都会停顿2秒钟来评估’这是不是一个下降和潜水’，然后继续他们的一天”。
 
-此前，**币安（Binance）首席执行官赵长鹏警告称，加密货币会出现极端波动。**
+“安卓警报已经毁了惠灵顿最喜欢的’风或地震’游戏，”另一位写道。
 
-“预计未来几个月加密货币的波动性会非常大，”赵先生（也被称为 CZ）在推特写道。
+另一个人在推特上说，他们在克赖斯特彻奇感受到了 “非常缓慢的隆隆声”。
 
-**尽管摩根大通首席执行官杰米·戴蒙（Jamie Dimon）仍继续批评加密货币，称比特币“一文不值”，**但一些投资者现在预测比特币会有更大的涨幅。
+“我在汉密尔顿感觉不到它，但我的手机上有一个警报，说是有轻度地震，20秒后，灯光开始晃动”。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+新西兰自从新馆疫情开始后，总感染人数和死亡人数在全球范围都属于极低的状况，但他们的封锁措施全球瞩目。　今年8月17日，新西兰曾因发现一例新冠病例而全国封城，堪称全球最严格的防疫响应措施。
+（本文纯属个人观点。与Gnews无关）
 
-**参考新闻：**[Rough minute for Bitcoin investors as value plummets 87 per cent (msn.com)](https://www.msn.com/en-au/news/world/rough-minute-for-bitcoin-investors-as-value-plummets-87-per-cent/ar-AAPOBdy?ocid=msedgdhp&amp;pc=U531)
+[新闻来源：](https://www.skynews.com.au/world-news/new-zealand-prime-minister-jacinda-arderns-covid-update-rocked-by-59-magnitude-earthquake/news-story/cace0edca2f51c68635ccfd2a30e0c61)
 
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
