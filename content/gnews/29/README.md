@@ -2,35 +2,37 @@
 ---
 
 
-## 美国国家卫生研究院承认资助中共武毒所功能增强性研究
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610660/)
+## 墙内要闻汇编 10月22日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1610668/)
 
-作者：纽约香草山农场-蓝天大海
+素材：东京樱花团｜GNEWS组
+![](https://lh4.googleusercontent.com/YEXLTJqnQmYOqmRbMpS52RCz1tHyu-cLAP5mOLH4wI5abcOH57LMTz81mDHryrTd4dJIJQaxKFwwHkihSKwWIXFfCv0gSKGWawN5n7bB_WZIrvY2k6GKv0dtWbvcErp8-ZRMOGhr=s1600)[*图片来源*](https://i.ytimg.com/vi/yhIQ5JBRAKQ/maxresdefault.jpg)
+1、[**李云迪被取消中国音乐家协会会员资格**](https://www.aboluowang.com/2021/1022/1662640.html)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月21日晚，中共北京市公安局朝阳分局官微通报称，39岁的李云迪因嫖娼已被该分局行政拘留。随后传出李云迪的相关作品已“全网下架”，连他在节目《披荆斩棘的哥哥》中的相关介绍和镜头都被打马赛克或直接删除。当晚，中国音乐家协会发声明称，经中国音乐家协会秘书长办公室研究决定，取消李云迪会员资格。目前，李云迪微博个人认证仅剩国际钢琴家，之前的重庆政协常委、全国青联常委、香港青联副主席认证全被删除。不过有网民质疑，中共是否在利用李云迪事件转移焦点。
 
+2、[**河北15岁男学生遭班主任动私刑颅内出血、头骨骨折**](https://www.aboluowang.com/2021/1022/1662536.html)
 
+河北省张家口一名15岁男学生今年9月份考上柯棣华医学中等专业学校，没想到开学才过2天，学校安排新生前往石家庄某军训基地进行入学军训，当时学生在操场等待分配房间时被雨淋湿，男学生为此在与朋友抱怨时辱骂了老师，还不小心将语音讯息传到班级群组，惹怒张姓班主任与其丈夫、范姓男老师。根据男学生母亲指称，班主任与其丈夫相当不满儿子作为，并将其叫到教师宿舍中，接着殴打他将近50分钟，不仅对他拳打脚踢，还手持拖把棍不断猛力敲打男学生头部。男学生送医后被诊断出右额硬膜外血肿、右额脑挫裂伤、右额骨骨折、左耳骨膜穿孔、左手指骨折、全身多处瘀青等，为了清除颅内血块，还必须进行开颅手术，但颅内血肿已经造成周围脑组织严重压迫，神经已受不可逆之伤害。
 
-10月20日，美国国家卫生研究院首席副主任 劳伦斯-塔巴克 在一封信件中承认，美国资助了中共在武汉病毒研究所进行的所谓“功能增强性”研究，但与此相关的生态健康联盟并没有报告过，该项研究创造了一种可以感染人类的冠状病毒。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-22-at-7.57.54-PM.png)
-事实上，在新冠病毒溯源的过程中，美国国家卫生研究院是否曾资助过武毒所一直是舆论关注的焦点。为此，国会曾多次举行听证，并对福奇等相关人士进行调查。 但对于这些调查与追责，福奇本人则一概采取否认态度，甚至声称攻击他就是攻击科学。
+3、[**湖北工人被扣薪“开堆高机”砸厂 老板损失上百万**](https://www.aboluowang.com/2021/1022/1662365.html)
 
-而今，劳伦斯的证词，毫无疑问地给了公众一个明确的答案。美国前国务卿 蓬佩奥在盖特上对此发表评论称，福奇 博士对美国人民不诚实，关于功能增强研究，仍有更多的疑问需要他回答。对此，参议员 汤姆-科顿 也表示，应该在法律允许范围内对福奇进行调查并起诉。
-(本文仅代表作者观点)
+据《澎湃新闻》报道，当地的强安德晟石业公司疑似扣押工人1千多元人民币，当晚工人就气得跳上堆高机砸厂，把整个石材工厂闹得天翻地覆，现场已完成的、半成品的石板杂乱的散落一地，连作业机具也被破坏得不少，甚至工厂大门也遭直接撞坏，损失高达上百万人民币。
 
-参考链接：[NIH Admits Funding Gain-Of-Function COVID Experiments; Gives EcoHealth Five Days To Report Data](https://www.zerohedge.com/covid-19/nih-admits-funding-gain-function-covid-experiments-gives-ecohealth-five-days-report)
+4、[**中共一架歼-10战机迫降郑州 驾驶员跳伞逃生**](https://www.aboluowang.com/2021/1022/1662652.html)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+10月22日，一位军事迷“新‧二七部队军事杂谈”推特爆料，当日上午，中共一架战机歼-10因故迫降在河南郑州市金水区周庄村贾鲁河河岸，附近正在钓鱼的几位民众亲眼目睹了该军机迫降的过程。爆料称飞机驾驶员已经跳伞逃生。
 
-总编：Irene木木 
-编辑：kathy文艺
-校正/发稿：我不在这里
+5、[**质疑《长津湖》 大陆知名媒体人罗昌平被批捕**](https://www.aboluowang.com/2021/1022/1662707.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+10月22日，中共海南省检察院通报称，罗昌平被中共海南省三亚市城郊检察院，以涉嫌侵害英雄烈士名誉、荣誉罪对批捕。罗昌平曾任《新京报》核心报导记者、深度报导部主编，《财经》杂志副主编兼任《LENS视觉》杂志副主编。他于10月6日在新浪微博发帖质疑电影《长津湖》：“半个世纪之后国人少有反思这场战争的正义性，就像当年的沙雕连不会怀疑上峰的‘英明决策’。”罗昌平将剧中的“冰雕连”称为“沙雕连”，而“沙雕”的意思是“愚蠢、无脑”。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+6、[**拖欠工程款 大陆女星王珞丹被强制执行**](https://www.aboluowang.com/2021/1022/1662642.html)
+
+法院公开信息显示，该案件案由为建设工程施工合同纠纷。原告方诉称，王珞丹购买的昌平区某别墅进行改造，在未取得国有土地使用证、建设用地规划许可证及建设工程许可证的情况下，由其父亲王卫星代表王珞丹将该工程发包给原告，双方于2012年12月5日签订了《工程施工合同》，工程完工后，王珞丹方迟迟未组织验收。王珞丹方则认为对方工程质量不合格。裁判结果为原告与王卫星于2012年12月5日签订的《工程施工合同》无效；王珞丹、王卫星于本判决生效后十日内连带支付原告工程款30.96万元等。
+
+（本文只代表个人观点，与Gnews网站无关）
+
+*编辑：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%A8%B1%E8%8A%B1%E5%9B%A2-1.jpg)

@@ -2,39 +2,33 @@
 ---
 
 
-## 用心良苦，喜币与黄金挂钩，七哥为喜币铸造坚实的黄金底座
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1610809/)
+## 川普宣布将推出社交媒体 “真相社交”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610869/)
 
-作者：纽约香草山健身部 – Jack Li文阳
+作者：纽约香草山教育部 – 正义的小新
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-货币在人类历史上曾与金、银等特定的物质挂钩，但货币发展到现在，全世界各国的货币法币，已经没有一个再与金银挂钩了，法币不再承诺兑换金、银等等价物。各国可以滥用随意印钞的权利，政府可以按需操纵通胀，随时给老百姓手中的钞票兑水，降低其购买力，让老百姓不知不觉中任由国家宰割。
+10月20日，美国前总统川普宣布，即将推出名为“真相社交”的社交媒体平台。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/050302.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-19.jpeg)
 
-文贵先生把喜币设计成与黄金挂钩，在虚拟货币领域上，开创了先河。喜币公司承诺会用20%来购买黄金，就是要把喜币的最低价值用黄金来量化。这样，喜币的底价将不会被跌穿，这就是郭先生这个设计的天才之处。喜币每年发行十亿个币，从第二年起，新发行的喜币将按照市场价格来发行。也就是意味着喜币从第二年起，因为价格的增长，喜币公司增持的黄金将以倍数增加，若干年后，黄金的增幅更会达到几何级数，黄金与币价相互促进，从而极大的助推喜币的市场价格。这就是郭先生忠告战友要抓稳喜币，不要一年两年三年就卖掉的原因。另外，因为喜币有黄金的加持，也将极大的增强持有者的信心，从而促进了喜币在商品市场上的流通使用，从而让喜币的价格更上一层楼。
+据消息称，该平台将于今年11月开始测试，预计将在2022年完成第一季度的全面推出，将作为新成立的“川普媒体与技术集团”TMTG的一部分。
 
-还有，文贵先生先生说喜币有最大的自由度，其中一个原因就是因为其与黄金的挂钩，因此，喜币可以无视金融组织和法币的影响和约束，来达到相当大程度的自由流通。
+就前总统川普宣布成立川普媒体与技术团队一事，盖特首席执行官杰森·米勒先生发表声明称，“祝贺川普总统再次加入社交媒体！川普总统一直是很好交往的生意人，但我们却无法就加入盖特达成共识。”
 
-喜币设计的先进性，使其在信用上超越了现阶段的所有法币和虚拟币，注定它必将成为人类争相持有的货币。
+(本文仅代表作者观点)
 
-参考链接：
-[2021年10月20日 文贵大直播： 喜币是最真实干净的革命性货币，喜支付的商业历史性意义](https://gtv.org/video/id=61700c08304e992109b806ee)
+参考链接：[Mastodon’s Founder Says Trump’s New Social Network Is Just Mastodon](https://www.vice.com/en/article/5dgm5k/truth-social-is-mastodon-trump)
 
-**本文谨代表作者观点**
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
-
-**校对/发稿：童谣**
+总编：Irene木木 
+编辑：Irene木木
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

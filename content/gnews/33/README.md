@@ -2,40 +2,42 @@
 ---
 
 
-## 喜币是最安全的系统铸就万众期待的聚宝盆
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1610602/)
+## 特鲁多宣布加拿大正式实行联邦疫苗护照
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610659/)
 
-**By:秘翻新视野**
+作者：纽约香草山文艺部 – 宁文静
 
-***2021-10-22***
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/IMAGE-2021-10-21-094146.jpg)](https://gtv.org/video/id=617229a583e948708d05939d)点击图片可看完整视频
-**本期节目特意邀请木兰与大家分享[喜币上市](https://gtv.org/video/id=617229a583e948708d05939d)的好消息**
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-并为您揭开虚拟币的神秘面纱
 
-深入探究喜币的来龙去脉
 
-为什么虚拟币的系统最安全?
+10月21日，加拿大总理特鲁多在例行记者会上表示，加拿大将启用新冠疫苗接种的联邦证明系统，最快将于当天在一些地区生效。特鲁多声称，全国13个省份和地区一致同意加入该系统。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1022AM（1、2）視頻備用.002.jpeg)
+据悉，加拿大疫苗护照会显示持有人的姓名、出生日期、疫苗接种历史、包括接种的时间、次数和剂量、以及一个健康卡的二维码，以便民众在加拿大境内及国际旅行时予以出示。
 
-加密货币已经成为这个时代的大势所趋。
+此前，加拿大部分地区已经启用了省级疫苗接种证明，作为餐厅、健身房与影院等非必要场所的进入资格证。 如今，特鲁多枉顾加拿大各地反对强制新冠疫苗接种的声音、和对政府践踏人权的抗议浪潮，执意将疫苗护照正式落地，进一步压缩了未接种疫苗人员的活动空间，迫使他们寸步难行。
 
-比特币如何成为洗钱的工具?匿名，去中心化，不受政府监管，成为藏匿资产进行非法交易的温床和土壤。
+正如郭先生所说：黑暗已经降临。
+(本文仅代表作者观点)
 
-喜币有别于其他虚拟币的特殊之处：天才的设计理念，强大的技术支持，弥补加密货币的种种漏洞。
+参考链接：
 
-是怎样的历史大背景造就了喜币?灭共的目标把我们凝聚在一起，病毒疫苗的灾难，导致未来人口减少，经济大衰退的必然发生，未来很多的不确定因素，形成了现在关键的历史时刻。
+1. [纽约警察工会将起诉纽约市疫苗强制令](https://gnews.org/zh-hans/1608786/)
+2. [127名华盛顿州警员因抵制强制疫苗而被解雇](https://gnews.org/zh-hans/1605463/)
+3. [俄克拉荷马州长反对拜登疫苗强制令，称接种是个人自由](https://gnews.org/zh-hant/1606393/)
 
-在人类社会大变革中，喜币如何脱引而出?新能源的使用，产业的重组，财富的重新分配，G系列和喜币的横空出世必将在大变革中扭转乾坤。
 
-喜币喜联储和G系列又肩负着怎样的历史使命?在一个即将崩溃的腐烂的系统中，为大家提供避风港，运用最先进优质的那部分技术和资源来创造出一个新兴的系统。让善良正义有智慧的人们（最后能够在疫苗灾难中存活下来的人们），可以继续在这个更加美好完善公平透明的系统中，过上更加有质量有尊严的富裕生活，这是神给未来的人最大的恩赐。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-**请移步[GTV](https://gtv.org/video/id=617229a583e948708d05939d)观看更加详细的解说:**
+总编：Irene木木 
+编辑：Kathy文艺
+校正/发稿：我不在这里
 
-**GTV链接**:[https://gtv.org/video/id=617229a583e948708d05939d](https://gtv.org/video/id=617229a583e948708d05939d)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-*发布:星星*
-
-* * *
-
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/IMAGE-2021-08-12-195949.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

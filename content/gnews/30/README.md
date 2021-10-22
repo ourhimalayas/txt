@@ -2,42 +2,30 @@
 ---
 
 
-## 特鲁多宣布加拿大正式实行联邦疫苗护照
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610659/)
+## 猎巫行动——《解放军报》鼓励中共国民众互相监督 举报间谍
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1610662/)
 
-作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/10/worldbank_malpassdavid_ahmajunaid_alemaheyumengistu_102619getty-13.jpg)网络图片
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**编辑摘要：**据法国国际广播电台10月22日报道，中共军媒《解放军报》官方微博帐号“钧正平工作室”发帖呼吁中共国老百姓举报外国间谍，声称：“维护国家安全，我们唯有相信人民、依靠人民，需要‘朝阳大妈’，也需要‘捞铜渔民’，打一场反间防谍的人民战争，才能让间谍寸步难行，无所遁形！”
+
+美国有线电视新闻网（CNN）指出，中共国新一轮反间防谍的宣传战有可能加剧已经泛滥的政治猎巫行动。由于中共国政府对“国家安全”的定义粗犷而又模糊，任何被认为“不爱国”的人都有被举报为“间谍”的风险。
+
+报导指出：自从习近平鼓动民族主义，打压民主、自由和司法独立等所谓“西方价值”以来，中共国网络上自由派的言论已被赶尽杀绝，在中共国社媒上，立场略显自由开放的发言者常常被斥责为“叛徒”，甚至是为外国效劳的“间谍”。至于在中共国工作的外国记者和非政府组织雇员看起来就更像“间谍”。
+
+这条新闻一出，简直令人不寒而栗。中共国目前内忧外患，中共内斗趋于白热化，权力越来越不稳。此举的真实目的就是利用当年文革的“枫桥模式”，发动“群众斗群众”，让民众互相监督，人人为敌，强化中共对全社会和全体人民的集权控制。这种开历史倒车的方式无异于饮鸩止渴，既不可能为中共续命，又会给无辜的百姓带来无限的伤害。
+
+阅读新闻原文：[政治猎巫——CNN批评解放军报鼓励中国民众举报外国间谍](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211021-%E6%94%BF%E6%B2%BB%E7%8C%8E%E5%B7%AB-cnn%E6%89%B9%E8%AF%84%E8%A7%A3%E6%94%BE%E5%86%9B%E6%8A%A5%E9%BC%93%E5%8A%B1%E4%B8%AD%E5%9B%BD%E6%B0%91%E4%BC%97%E4%B8%BE%E6%8A%A5%E5%A4%96%E5%9B%BD%E9%97%B4%E8%B0%8D)
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-10月21日，加拿大总理特鲁多在例行记者会上表示，加拿大将启用新冠疫苗接种的联邦证明系统，最快将于当天在一些地区生效。特鲁多声称，全国13个省份和地区一致同意加入该系统。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1022AM（1、2）視頻備用.002.jpeg)
-据悉，加拿大疫苗护照会显示持有人的姓名、出生日期、疫苗接种历史、包括接种的时间、次数和剂量、以及一个健康卡的二维码，以便民众在加拿大境内及国际旅行时予以出示。
-
-此前，加拿大部分地区已经启用了省级疫苗接种证明，作为餐厅、健身房与影院等非必要场所的进入资格证。 如今，特鲁多枉顾加拿大各地反对强制新冠疫苗接种的声音、和对政府践踏人权的抗议浪潮，执意将疫苗护照正式落地，进一步压缩了未接种疫苗人员的活动空间，迫使他们寸步难行。
-
-正如郭先生所说：黑暗已经降临。
-(本文仅代表作者观点)
-
-参考链接：
-
-1. [纽约警察工会将起诉纽约市疫苗强制令](https://gnews.org/zh-hans/1608786/)
-2. [127名华盛顿州警员因抵制强制疫苗而被解雇](https://gnews.org/zh-hans/1605463/)
-3. [俄克拉荷马州长反对拜登疫苗强制令，称接种是个人自由](https://gnews.org/zh-hant/1606393/)
-
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编：Irene木木 
-编辑：Kathy文艺
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
