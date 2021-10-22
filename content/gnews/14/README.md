@@ -2,38 +2,44 @@
 ---
 
 
-## 中共猛烈抨击欧盟支持改善与台湾关系的决议
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1609540/)
+## 英国国会议员和同行呼吁议会的养老基金，停止中共国投资
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1609619/)
 
-#### 【**雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/EU-Taiwan-1.jpg)图片来源：schengenvisainfo.com
-#### 编译：小红帽
+据《卫报》作者：Patrick Wintour，2021年10月19日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-415-e1634868650416.png)图片来源：《卫报》
 
-在欧盟代表以压倒性投票赞成加强与台湾的关系，并开始与台湾达成投资协议后，中共国外交部对欧盟进行了猛烈抨击。
+（英国）137名立法者致信敦促基金放弃持有被指控侵犯人权或与中共国政府有关联的公司的股份。
 
-周四，中共国外交部发言人汪文斌重申，北京反对任何外国势力对台湾的影响，中共国认为台湾是中共国领土不可分割的一部分。
+**一个由超过137名议员组成的跨党派团体，包括117名议员，呼吁议会的养老基金从涉嫌严重侵犯人权的中共国公司或与中共国国家有关的机构中撤资。**
 
-周四上午，欧盟立法者投票通过了一项决议，该决议将使欧盟开始与台湾达成投资协议并深化关系。
+签名者包括影子外交大臣丽莎·南迪（Lisa Nandy），以及前保守党内阁部长利亚姆·福克斯（Liam Fox）、伊恩·邓肯·史密斯（Iain Duncan Smith）和诺曼·泰比特（Norman Tebbit）。其他人包括自由民主党外交事务发言人莱拉·莫兰和影子外交部长斯蒂芬·金诺克。保守党议员大卫·阿梅斯也是签名者，这是他在周五去世前最后的政治行为之一。
 
-汪文斌称，欧洲议会议员必须立即停止发表任何有损中共国主权言论和任何损害领土完整的行为。
+在给基金受托人写信之前，维权组织“香港观察”的研究发现，议会供款养老基金有290万英镑投资于中国电子商务公司阿里巴巴，90万英镑投资于科技集团腾讯，以及投资于中国建设银行和中石化，即化工和石油公司。
 
-“我们警告有关方面不要低估中共国人民捍卫国家主权和领土完整的决心和能力，”汪文斌补充说。
+信中指出，“除了是中国最大的两家科技公司外，阿里巴巴和腾讯还经常与中共国国家合作，通过‘长城’维持互联网审查制度，并向政府提供监视软件的专利，这些软件已被用于对付维吾尔人。”
 
-周四，欧盟立法者以580票对26票通过一项不具约束力的决议，要求欧盟委员会“紧急开始对与台湾的双边投资协议进行影响评估、公众咨询和范围界定”。
+信中强调，作为“中共国国有企业的最大资金来源”，中共国国有银行“在过去十年里在英国购买了大量的战略基础设施”。
 
-该决议还要求欧盟驻台北贸易办事处更名为欧盟驻台湾办事处。
+作者声称，“鉴于中共国对英国议员实施的制裁”，对中共国股票的投资是有问题的。
 
-欧盟曾与北京当局达成类似的投资协议，但由于关系恶化，该协议被搁置。
+3 月，中共国政府对五名国会议员进行了制裁，以报复英国政府制裁涉嫌参与虐待维吾尔穆斯林的一群中共官员。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+在发出取消投资的呼吁之前，上议院和下议院的议长还在9月禁止中共国大使进入议会与所有党派交谈。下议院还在3月投票支持一项动议，将中共国对新疆维吾尔族的迫害称为“种族灭绝”。
 
-**参考新闻：**[China condemns EU after European lawmakers resoundingly back resolution to improve ties with Taiwan — RT World News](https://www.rt.com/news/538057-china-eu-taiwan-trade-deal/)
+一群国会议员的工作人员也就养老基金问题写信给法通保险集团公司（Legal and General）。
 
-***发布：小红帽***
+工党议员西奥本·麦克唐纳（Siobhain McDonagh）是主要的签名者，也是财政部特别委员会的成员。他说，“当世界上出现了如此压倒性的严重侵犯人权的证据时，没有人可以视而不见。”
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+“但我们也必须扪心自问，同谋意味着什么，这就是为什么我得知我们自己的养老基金投资于与国家关系密切的中共国机构时感到震惊。如果我们旁观，历史会谴责我们不可饶恕的懦弱，并问那些当权者为什么不采取行动。温馨的话语根本不够，因为这一次没有人可以说他们不知道。”
+
+香港观察的高级政策顾问和报告的共同作者山姆·古德曼（Sam Goodman）说，“如果推动道德投资和使英国成为环境和社会治理的世界领导者是有意义的，那么国会议员必须确保他们自己的养老金不被投资于破坏人权的公司，并再次考虑提出立法来监管这个行业。”
+
+原文连接：[https://amp.theguardian.com/politics/2021/oct/19/drop-chinese-investments-mps-and-peers-tell-parliaments-pension-fund?\_\_twitter\_impression=true](https://amp.theguardian.com/politics/2021/oct/19/drop-chinese-investments-mps-and-peers-tell-parliaments-pension-fund?__twitter_impression=true)
+
+翻译：洛杉矶盘古农场 – TrueSky
+
+校对/编辑：洛杉矶盘古农场 – 明子
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉磯盤古農場歡迎您加入:(或點擊上方圖片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

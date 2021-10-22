@@ -2,37 +2,40 @@
 ---
 
 
-## 2021/10/21文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1609274/)
+## NIH打脸福奇，承认武汉病毒研究所进行功能增强试验
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1609354/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/102105.png)[盖特链接](https://gettr.com/post/pesll02868)
-最近来要喜币的人太多太多，最近要拯救的人也太多太多了。大家要知道，如果不从根本上灭掉共产党，这些都是杯水车薪，没有用的！
+**撰稿：日本东京方舟农场 北极**
 
-喜币七哥真的没有了，完全是依照你原来做出的贡献、法治基金的捐款和给G系列的投资。希望大家可以理解。
+10月20日，NIH（国家卫生研究院）首席副主任致信众议院监督委员会詹姆斯·科默（James Comer），承认NIH批准并资助了纽约生态健康联盟和武汉病毒研究所，对蝙蝠冠状病毒进行功能增强试验。
 
-国内的经济：房地产房子卖不出去，银行的钱取不出来，到处断水断电。马上召开的六中全会，一开会就要抓人。中纪委到中国25个金融机构的巡视名单，那是要死很多人的，最终目标是要抓郭树清和另外几个银行行长的，包括已经退休的一些行长，例如：新华人寿的康典、民生的董文标；国开行、发展银行、亚洲投行、平安。因为都是王岐山的人，一个都不会放过，这个绞肉机的体制，谁都不会是安全的。只有灭了共产党，土地是人民的，谁也不能拿走，所有银行欠款都清除，因为这一切本来就是属于人民的。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/102103.png)
-随着“习一神”对台的入侵和党内部的斗争，意外随时可能发生。现在的北京城，想干掉习的人太多了，谁都不知道下一秒会发生什么事情，所有独裁体制倒塌的时刻都是瞬间倾倒的！
+据布赖特巴特报道，NIH首席副主任劳伦斯·塔巴克（Lawrence A. Tabak）博士在致众议院监督委员会詹姆斯·科默（James Comer）的信中说，NIH资助了2018-2019年期间纽约生态健康联盟与武汉病毒研究所合作的一项研究，该研究包括对蝙蝠冠状病毒基因组测序，同时还测试了”蝙蝠冠状病毒的刺突蛋白是否能够与人源化小鼠的ACE2受体结合”的试验。而后者正是病毒功能增强试验，它提高了蝙蝠冠状病毒对人体的致病性。
 
-马云想自由很难，搞一个‘云锋基金’到处洗钱，还想统治中国人民，干掉习，统治全世界，绝不可能！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/w1280-p4x3-2021-02-18T202805Z_159612348_RC28VL9CU65H_RTRMADP_3_HEALTH-CORONAVIRUS-FAUCI.jpg)图片来自于网络
 
-美国和世界的经济面临巨大的挑战一定会下行，疫苗灾难在明年的5月前会显现。这个时候什么样的钱值钱，那可要搞明白，10天内，喜币就将上市了。听说在暗网和币圈都有赌喜币上市后的价格的，大量的人准备接受喜币。被批准的EDF(虚拟货币的交易平台)，比特币就涨到了6万多，但总会归零，因为非法。最终，美国一定会承认虚拟货币的使用，与传统发币共同存在，加强监管。昨天直播中把法币和货币、去中心化的币和中心化的体制搞清楚。去中心化的币和中心化的体制才是安全长久的，可以被全面监管，减少非法性。
+另据 GNEWS 7月25日报道，参议员兰德·保罗（Rand Paul）曾两次在国会质疑福奇是否资助了纽约生态健康联盟和武汉病毒研究所的功能增强试验，均遭对方否认。
 
-这几天亚洲的大宗物品、汽车、芯片各种涨价，稍后产生的经济泡沫会对所有的法币造成巨大的冲击和伤害。法币本质就是一个信用，当法币乱印的时候，信用丧失，那还有谁用呢？！
+*注：本文仅代表作者观点，与 Gnews无关*
 
-真正的战友们，伟大的时代与我们共同并进，我们是幸福的！务必小心病毒，小心疫苗！明早见吧，周五、周日大直播。
+*参考链接：*
 
-***听写**：阿甘*
-
-***校对: **小雨*
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[NIH Contradicts Fauci, Admits Funding Gain-of-Function Research at Wuhan Lab](https://www.breitbart.com/politics/2021/10/20/nih-contradicts-fauci-admits-funding-gain-of-function-research-at-wuhan-lab/)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+> [参议员兰德·保罗，福奇的撒谎行为来自于精英主义](https://gnews.org/zh-hans/1421026/)
+
+
+
+
+
+> NIH corrects untruthful assertions by NIH Director Collins and NIAID Director Fauci that NIH had not funded gain-of-function research in Wuhan.
+> 
+> NIH states that EcoHealth Alliance violated Terms and Conditions of NIH grant AI110964. [pic.twitter.com/cFOtJlRoWl](https://t.co/cFOtJlRoWl)
+> — Richard H. Ebright (@R\_H\_Ebright) [October 20, 2021](https://twitter.com/R_H_Ebright/status/1450947395508858880?ref_src=twsrc%5Etfw)
+
+
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

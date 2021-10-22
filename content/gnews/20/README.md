@@ -2,45 +2,34 @@
 ---
 
 
-## 川普媒体Truth Social何去何从
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1609459/)
+## 美国立法者表示，不能信任Facebook管理加密货币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1609566/)
 
-**【雅典娜观察】与您一起洞察世界**
+据《路透社》作者：Kanishka Singh，2021年10月19日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-409-e1634865832689.png)在这张2020年4月17日拍摄的图片插图中，一个3D打印的Facebook标志和加密货币的代表物呈现在一块主板上。图片来源：路透社/Dado Ruvic
+《路透社》10月19日 —— 一群美国立法者表示，不能信任脸书（Facebook）公司管理加密货币，并敦促该社交媒体平台，立即停止其周二推出的名为Novi的加密货币钱包的小型试点。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/1634782463654.jpg)图片来源：Axios
+美国民主党参议员Brian Schatz、Sherrod Brown、Richard Blumenthal、Elizabeth Warren和Tina Smith对Facebook两年来推出加密货币和数字钱包的努力表示了反对。
 
+“Facebook再次在激进的时间表上推行数字货币计划，并且已经启动了一个支付基础设施网络的试点，尽管这些计划与实际的金融监管环境不符。”参议员在给Facebook首席执行官马克·扎克伯格的信中写道。
 
-**整理/编辑：**翼族
+参议员们写道：“当Facebook现有的管理风险和保证消费者安全的能力被证明完全不足时，不能信任它管理支付系统或数字货币。”
 
-美国时间10月20日（周三），川普总统宣布计划推出一个名为Truth Social（真相社交）的社交媒体平台，该平台计划于2022年初推出。川普在一份声明中说：“很高兴，我很快就会分享我对Truth Social的想法，并开始反击大型科技公司。”
+参议员们的这封信表明，即使是Facebook的加密货币钱包的小规模试点也将面临立法者和监管机构的审查，他们之前已经针对Facebook提出了反垄断和其他问题的担忧。
 
-川普在周三的新闻稿中宣布了这一消息，称该平台将向“受邀用户”开放，并于11月推出测试版，并计划在明年年初向更广泛的公众开放。Truth Social属于一家名为 Trump Media & Technology Group（川普媒体与科技集团）的企业的产品，该集团是通过与Digital World Acquisition Corp（数字世界收获公司，2020年成立于美国佛罗里达州）合并创建的。
+Novi公司的一位发言人说：“我们期待着Facebook对委员会的来信作出回应。”
 
-尽管Truth Social网站直到今年晚些时候才正式推出，但用户已经找到了在该网站上创建帐户的方法。通过访问发现，不同用户截取的屏幕截图显示，该站点在外观上与Mastodon（乳齿象，一个类似Twitter的分布式项目）非常相似。
+Facebook在2019年6月公布了一个加密货币项目，作为扩展到电子商务和全球支付的努力的一部分。
 
-Mastodon几乎复刻了Twitter大多数的功能，用户可以在Mastodon上进行注册、登录、发TOOT（类似“发推”，中文译作“嘟嘟”）、转发、回复和关注，并及时得到通知。像Twitter一样，Mastodon也提供了非常丰富的API（应用程序接口），用户可以自行开发APP，或者集成其它服务。
+但该项目立即遭到全球政策制定者的激烈反对，他们担心这可能会削弱他们对货币系统的控制，助长犯罪，并损害用户的隐私。
 
-与Twitter非常不同的一点，Mastodon是一个开源项目，允许用户创建自己的服务器，不同服务器之间的用户可以毫无隔阂地交流，这和电子邮件系统非常相似。A服务器上注册的用户可以自由地关注B服务器上注册的另个用户，发“嘟嘟”@对方并且及时得到回复和通知。
+12月，为了重新获得监管部门的批准，该项目被重新命名，其范围进一步缩减为单一美元支持的数字货币。
 
-目前Mastodon的旗舰服务器mastodon.social上有超过5万名用户，100多万条“嘟嘟”。而Pixiv官方搭建的服务器http://pawoo.net上则有超过14万的用户，250多万条“嘟嘟”。除此之外，还有其它若干大型服务器和成百上千个中小服务器，它们一同构成了Mastodon的网络，Mastodon各个网络上的用户无论注册在哪个服务器都可以互相自由交流。
+文章来源:[https://www.reuters.com/technology/us-lawmakers-say-facebook-cannot-be-trusted-manage-cryptocurrency-2021-10-19/?taid=616f6d987778c400018e7b7b&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/technology/us-lawmakers-say-facebook-cannot-be-trusted-manage-cryptocurrency-2021-10-19/?taid=616f6d987778c400018e7b7b&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-周四，Mastodon的创始人兼首席开发人员尤金·洛奇科（Eugen Rochko）在一封电子邮件中对川普的Truth Social进行评论道：“根据我所看到的截图，它（Truth Social）绝对是基于Mastodon项目的”。洛奇科指出，Truth Social错误消息的一张截图使用的就是默认的乳齿象项目的吉祥物。
+翻译：洛杉矶盘古农场 – Mike Li
+校对/编辑：洛杉矶盘古农场 – 明子
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉磯盤古農場歡迎您加入:(或點擊上方圖片）
 
-但在Truth Social网站的使用条款中，Truth Social称其“所有源代码”都是专有的，而这很可能会违反Mastodon的许可证。
-
-一个新的社交媒体使用开源代码虽然可以很快推出一个试用的版本，但却存在一个最大的隐患：无论增加一个功能或者修改一个bug，都需要很长的时间，出了问题也非常难以维护。如果不是该项开源项目的核心人员进行管理的话，基本不太可能持续运行，所以川普总统的Truth Social离实际使用还有很遥远的距离。
-
-而且根据开源项目的证书要求，Truth Social任何的改动也需要开源，这将是一个非常大的安全隐患，更不能声明这是自己的知识产权。毫无疑问，在IT科技界，完全自主代码是非常困难的一项挑战，需要达到工业级标准，需要创新，合法合规，流畅体验，亿级用户，安全稳定，大量资金储备，远大的远景，而这些都是川普媒体公司的Truth Social所要面对的问题。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考链接：**[Mastodon’s Founder Says Trump’s New Social Network Is Just Mastodon](https://www.vice.com/en/article/5dgm5k/truth-social-is-mastodon-trump)
-[什么？你没听说 Mastodon？](https://zhuanlan.zhihu.com/p/26878606)
-
-*发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

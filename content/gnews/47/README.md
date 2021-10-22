@@ -2,24 +2,45 @@
 ---
 
 
-## 盐野义制药和第一三共将要开始国产疫苗的最后阶段试验
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1608323/)
+## 香港80亿港币国安“专项基金”独立审计 但年报未详
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1608712/)
 
-#### 撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-24.png)（图片源自本文链接）
-10月21日时事通讯社消息：盐野义制药21日宣布，已经开始了正在开发的中共病毒疫苗的中期临床试验。最后阶段的临床试验也将在今年年底前开始，目的是在明年3月开始投放使用。同一天，第一三共公司也宣布，计划在今年年底前开始最后阶段临床试验，在实际使用国产疫苗方面取得进展。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/102101-1.jpg)香港保安局局长邓炳强。 照片：Selina Cheneg/香港自由新聞
+来自《香港自由新闻》2021年10月20日报道
 
-盐野义制药的中期临床试验将在大约3000人身上测试该疫苗的安全性和有效性。因为只在疫苗接种比较迅速的日本招募受试者会很困难，预计最终阶段的临床试验将主要在海外进行。
+**摘要翻译：**
 
-第一三共公司将于11月开始中期临床试验，目的是在明年年底前实现疫苗的商业化，然后进入最终阶段试验。在试验的最后阶段，该公司正考虑将接种疫苗后的抗体量与现有疫苗进行比较，以观其性能是否逊色。
+香港政府表示，去年12月指定用途的80亿港元国家安全专项基金的细节不会公开，但该基金的财务报表已由独立审计师审查。
 
-值得注意的是，盐野义制药是中国平安保险的合作伙伴。第一三共在中共国开展业务已有三十多年，并且在上海、北京都有子公司。
+在周三向立法会提交的关于该市被称为“特别基金”的国家安全预算的年度报告中，财政司司长办公室称，该项基金是经行政长官批准，从香港的一般收入中拨款。
 
-信息源：
-[国産ワクチン、最終治験へ　塩野義と第一三共](https://news.yahoo.co.jp/articles/3c4dd8dc9d2baea26538d8ea1dabaae4ac5cbe83)
+报告称，该基金在国家安全委员会秘书处下设有专门的会计和财务部门。该部门的会计和财务政策，以及其财务报表，符合“香港特别行政区政府的既定政策和惯例”，尽管它不受任何现行香港法律的约束。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+80亿港元已分配给“未来几年”。
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+报告称，财政司司长“不会透露有关该基金使用的更多细节”，但表示已根据《国家安全法》和《香港审计准则》进行了“独立审计”。
+
+“独立审计师对财务报表发表了无保留意见的审计意见，”这意味着审计师认为政府公平恰当地呈现了财务报表。
+
+报告中没有关于独立审计涵盖的时间段的信息。
+
+**简评：**
+
+不透明的审计报告，香港正在快速的变成一个一国一制的中国城市。
+
+新闻链接： [Hong Kong’s HK$8 billion national security ‘Special Fund’ is independently audited, but annual report gives no details](https://hongkongfp.com/2021/10/20/hong-kongs-hk8-billion-national-security-special-fund-is-independently-audited-but-annual-report-gives-no-details/)
+
+***编辑: **希望*
+
+***校对: **感恩*
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
