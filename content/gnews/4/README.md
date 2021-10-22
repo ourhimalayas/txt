@@ -2,19 +2,31 @@
 ---
 
 
-## 秘翻在线：北九州市大规模增加辉瑞疫苗接种
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1609847/)
+## 新冠感染防治方案详解
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1609900/)
 
-撰稿：待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/画像1-18.png)（图片源自本文链接）
-10月21日【九州朝日放送】消息：北九州市已经宣布，将增加辉瑞疫苗的接种，以防中共病毒的扩散。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-7.jpg)
 
-虽然从下个月开始的预约，只有莫德纳公司的疫苗可供预订。但是，北九州市将开始在小仓北区和八幡西区与火车站直接相连的地方提供辉瑞公司的疫苗接种，其原因是，非常罕见的年轻男性在接种莫德纳疫苗后出现心肌炎病例的报告很多。因此，这一追加措施，将优先考虑十到二十几岁的男性。
+作者: 纽约香草山医疗部 – 圣母院钟声等
 
-北九州市符合条件人群的疫苗接种率为76%，而且越是年轻群体，接种率越低。北九州市市长北桥在新闻发布会上说：”我们希望重点向十到二十几岁的男性提供接种疫苗种类的选择机会，并希望通过增加配额提高接种率”。
+本详解是由新中国联邦香草山农场医疗部的Église(圣母院钟声)医生和战友们根据郭文贵先生爆料，参照FLCCC, Zelenko, Fareed及McCulough方案翻译，并综合众多对该方案提问后，以简明，易懂的方式列举出几种不同需要的预防/治疗药物用法。该详解仅供参考，因为个体差异，药物效果不一。如有不适，使用者应向自己的医生咨询。对方案有疑问的，请先咨询再决定如何用药，如个人错误使用药物或剂量，Gettr, 香草山农场医疗部均不承担法律责任。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/新冠预防-1-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/感染轻-中症治疗-1-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/补充事项-1-scaled.jpg)
+审稿：圣母院钟声
 
-[信息源](https://news.yahoo.co.jp/articles/8f5920dda941b16d6945f5f39ba1cac704d322f8)
+编辑：圣母院钟声
 
-是不是有种明知山有虎，偏向虎山行的感觉？
+发稿：圣母院钟声
 
-（文章仅代表作者个人观点）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-6.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-7.jpg)

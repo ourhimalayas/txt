@@ -2,31 +2,52 @@
 ---
 
 
-## 新冠感染防治方案详解
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1609900/)
+## 谈判施压各国政府，辉瑞供货合同附加霸王条款
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1609924/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-7.jpg)
+#### 翻译：月映万川
 
-作者: 纽约香草山医疗部 – 圣母院钟声等
+#### 编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan1-5.jpg)
+图片来源：EPR & Star
 
-本详解是由新中国联邦香草山农场医疗部的Église(圣母院钟声)医生和战友们根据郭文贵先生爆料，参照FLCCC, Zelenko, Fareed及McCulough方案翻译，并综合众多对该方案提问后，以简明，易懂的方式列举出几种不同需要的预防/治疗药物用法。该详解仅供参考，因为个体差异，药物效果不一。如有不适，使用者应向自己的医生咨询。对方案有疑问的，请先咨询再决定如何用药，如个人错误使用药物或剂量，Gettr, 香草山农场医疗部均不承担法律责任。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/新冠预防-1-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/感染轻-中症治疗-1-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/补充事项-1-scaled.jpg)
-审稿：圣母院钟声
+根据一份未经涂改的泄露文件显示，辉瑞制药使用它的强权来“转移风险并最大化利润”。这份文件是被一个消费者权益保护组织“公共公民”获取的。
 
-编辑：圣母院钟声
+【备注：公共公民组织（Public Citizen）是一个非营利性、进步的消费者权益倡导组织和智囊团，总部位于美国华盛顿特区。】
 
-发稿：圣母院钟声
+在与各国政府的新冠疫苗谈判中，辉瑞制药被指控欺凌与勒索各国政府。而辉瑞这些肮脏手段都是以秘密的形式完成的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-6.jpg)
+新合同显示，**辉瑞采取非常强硬的立场来以最小的风险来获取最大的利润。**
 
-**更多资讯，更多关注**
+曝光这一文件的公共公民组织的研究员詹恩·里维兹说：**“这些合同中持续的把辉瑞制药的利益放在公共卫生安全之上。”**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+辉瑞制药的发言人莎朗·卡斯缇欧说，这些保密条款是“商业合同中的标准化流程”，“其目的是帮助双方建立信任关系，同时包含在谈判和最终合同中，这也保护了商业机密。”
 
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+由于辉瑞公司的诉求和秘密合同谈判，乔·拜登和许多民主党官员强制实施了新冠疫苗的接种政策，其结果是（不接种疫苗的）美国人正在失去他们的工作。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+公共公民发现所有的合同中的共同主题都包括，**不仅要求合同保密，另外也有要阻止捐赠辉瑞疫苗的条款；（双方）争端在秘密的仲裁法庭解决；辉瑞公司能够改变（合同）关键决定性的条款，包括交货日期；要求以公共资产作为抵押**。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+一些专家看过辉瑞制药与外国政府制定的合同条款，都认为辉瑞的一些条款是“显失公平”的。在与巴西、智利、哥伦比亚和多米尼加共和国的合同中，这些国家放弃了“（辉瑞）对其任何资产的预防性扣押的豁免权”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-7.jpg)
+佐治亚大学公共健康法教授，劳伦斯·戈斯汀说，“这样的条款就如同辉瑞公司要求美国用科罗拉多大峡谷作为抵押物一样。”
+
+辉瑞公司不承认这样的逻辑。“辉瑞从来不干预并且绝对也不想干预他国的外交、军事或者文化标志性的资产”，卡斯缇欧说：“任何与这一政策背道而驰的解读都是不负责任且具有误导性的。”
+
+一些过分的合同要求似乎减缓了一些国家的疫苗推广速度。至少有两个国家从与辉瑞的谈判桌上离开，并且公开批评辉瑞公司的（不合理）合同条款。然而，这两个国家最后还是与辉瑞达成了协议。
+
+在与巴西、智利、哥伦比亚、多米尼加共和国和秘鲁的合同中，辉瑞要求这些政府签订一份文件，去确保“明确与不可撤销地对可能或在将来可能（发生）的抵押资产扣押时放弃豁免权。”前四个国家也被要求签署一份对于“预防性”扣押资产的豁免协议。
+
+**在合同中，公共公民发现辉瑞要求各国政府“对有关于辉瑞疫苗的知识产权的诉讼、索赔、法律行动、要求，以及损害所有的成本与费用进行赔偿，辩护，并且不能损害辉瑞的利益。”**
+
+（以上文章仅代表作者个人观点，与Gnews平台无关）
+
+原文链接：[Leaked Contracts Reveal Pfizer Used its Power to “Shift Risk and Maximize Profits” in Negotiations with Governments (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/10/leaked-contracts-reveal-pfizer-used-power-shift-risk-maximize-profits-negotiations-governments/)
+
+**发布：文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
