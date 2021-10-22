@@ -2,20 +2,56 @@
 ---
 
 
-## 雅典娜时报-第089期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1609463/)
+## 澳洲三大银行同一天宣布强制疫苗接种
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1609541/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+#### 编译发布：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan1-4.jpg)
+图片来源：SBS Punjabi & Sydney Criminal
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-54.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/a4e6423513503738.png)
-（文章内容仅代表作者个人观点，与GNEWS无关）
+10月22日，澳大利亚的三家大银行正在强制要求员工接种新冠疫苗，即使是在一些病毒零感染的州。
 
-***发布：小红帽***
+周四，联邦银行、西太平洋银行和昆士兰银行在全国范围内宣布了针对员工的新疫苗规则。此举预计将影响这三家金融机构的87000名员工。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+按照各州的要求，这三家金融机构都有不同的最后期限，特别是在维州，该州对包括银行业在内的许多行业都强制要求接种疫苗。
+
+另两家大银行，澳新银行和国民银行，迄今为止没有迹象表明发布疫苗任务，除了州一级政府对它们的要求。
+
+本周早些时候，维州政府宣布，在该州重新开放后，员工必须在10月15日之前接种第一剂新冠疫苗，在11月26日之前接种第二剂，才能参加大多数工作场所的工作。
+
+在全国拥有48900名员工的联邦银行将在11月26日之前为其维州的员工全面接种疫苗；来自新州和首都领地的联邦银行的员工必须在12月1日前完成接种；北领地的员工必须在12月24日前完成双重接种。
+
+在西太平洋银行，新州、维州和首都领地的员工必须在12月1日前完成疫苗接种；其他州的所有员工将被要求在2022年2月1日之前完全接种疫苗，才能进入他们的工作场所。
+
+据报道，西太平洋银行在澳大利亚各地有36000名员工。
+
+西太平洋银行首席执行官彼得·金说：“自新南威尔士州的疫情在6月开始以来，我们的3800多名员工被要求隔离，280多个分支机构关闭和重新开放，都大大影响了运营。”
+
+“很明显，保证我们员工安全并为我们的客户保持营业的最佳方式是让人们接种疫苗。”
+
+据报道，拥有约2000名员工的昆士兰银行也发布了一项公告。
+
+“我们将采取全国性和分阶段的方法，确保我们的员工和与我们一起工作的人都接种疫苗，”昆士兰银行一位发言人说。
+
+这些规定不仅适用于他们的员工，而且作为进入任何银行分支机构的条件，也适用于任何承包商、供应商或供货商。
+
+发言人补充说：“我们将与我们的员工协商，以确保他们有足够和合理的时间为任何新的规定做准备。”
+
+此前，向员工发出的一项调查显示，90%以上的人已经接种了疫苗，或有计划这样做，而且大多数人希望要求所有员工都接种疫苗。
+
+上周，脸书上泄露的一封信显示，零售巨头Best & Less将把未接种疫苗的顾客排除在其新州的门店之外。
+
+澳航集团首席执行官艾伦·乔伊斯也证实，随着澳洲准备在圣诞节前重新开放一些国际航线，澳航将强制要求所有乘坐海外航班的乘客接种新冠疫苗。
+
+赌博业巨头皇冠公司不仅为其20000名员工强制接种新冠疫苗，可能还要求其数百万客户强制接种疫苗。
+
+新闻链接：[Commbank, Westpac and BOQ announce mandatory Covid-19 vaccines for workers | news.com.au — Australia’s leading news site](https://www.news.com.au/finance/work/at-work/commbank-westpac-and-boq-announce-mandatory-covid19-vaccines-for-workers/news-story/8a415759120ab958138dcc328a5d144a)
+
+**编辑****/发布：文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,108 +2,52 @@
 ---
 
 
-## 马云被骗回国同天，江志成被抓
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1609286/)
+## 英国医学博士分析如果疫苗含有磁化纳米分子会对脑部造成什么样的影响（上）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1609348/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ac3wg-w10z6.jpg)
-[https://gtv.org/video/id=6170d906c1d11973d3c5f995](https://gtv.org/video/id=6170d906c1d11973d3c5f995)
+翻译/视频字幕：一灯一智
+视频选自Telegram
+我紧急分享以下关于COVID19疫苗实验性注射可能造成伤害和死亡的猜想，希望能够以某种方式帮助阻止疫苗注射造成的大规模种族灭绝的企图，我不相信这是意外事件并将解释原因。
 
-**郭文贵**
-**Miles Guo**
+我是一名英国医学博士。
 
-你说这时候马云已经到香港了，明天上市啦，
-At that time, Jack Ma has arrived in Hong Kong and the Ant Group will be listed tomorrow
+我的猜想是实验性的mRNA COVID19疫苗含有一种附着在mRNA上的磁化纳米粒子，它能穿过血脑屏障，然后被吸附到大脑，特别是脑中线结构上。
 
-你知道他们一个干什么，打电话说是我亲自给马云打个电话，
-You know what were they doing? Make a phone call, and called Jack Ma myself
+我进一步猜想，在磁化mRNA进入大脑的过程中，局部温度受到来自人造网络（如水凝胶）的电磁场辐射的影响。
 
-马云啊，我们现在觉得你应该在上海先上（市）
-Hi Jack Ma, we now think you should list the Ant Group in Shanghai’s market first
+现在我将解释为什么我提出这个猜想
 
-他说为什么呢？他说这个对股票更有帮助，我们研究过
-Jack asked why? “We have studied that this is more helpful for stocks value”
+自2021年4月-5月以来，世界各地数以千计的报告显示，这些人被注射了辉瑞-生物技术公司或Moderna COVID19实验性疫苗之后，他们现在发现手臂上被注射的一个特定区域已经变得有磁性。有这些新出现的状况，显然需要紧急调查。
 
-我们组织上还是希望你能成功的，
-Our communist party organization still hope you can succeed
+调查结果倾向显示注射过两针的人比注射过一针的人有更强的磁性，这种影响似乎是极其局部的，而且在最初的几周到一个月的某个时间点上最强。
 
-大家记住啊，就在上市的前一天前两天，我忘了
-Remember everyone, just one or two days before the listing day, I forgot
+但也可能情况并非如此，因为这种影响是磁性的，而不是金属性的，你可以看到钕磁铁的错误磁极贴在皮肤上时会翻转，而正确的磁极则紧贴在皮肤上。有些病人当磁铁靠近时他们体内有感觉，有些人更常见的情况是在那些注射疫苗两针的人身上有足够的磁性，金属物体会粘在手臂上并留在那里。
 
-你记住，王岐山当天讲话要对市场进行加强金管
-Remember, Wang Qishan’s speech on that day was about strengthening finan-cial regulation
+我曾亲眼见过这种情况，甚至出现有大型餐具可以黏附在一些病人身上的情况。体型似乎有影响，它决定了从皮肤上多容易获得这种磁性，到目前为止，在肌肉发达或身材苗条的人身上似乎更强，而那些手臂上有更多脂肪组织的人弱一些
 
-你们记得了吗？当天马云讲话反对严管，市场归市场，记住了吗？
-Do you remember? On the same day, Jack Ma spoke against strict regulation, the market belongs to the market, remember that?
+。但这只是一些数字，这与以前的流感疫苗接种显示出相关性，特别是在同一年。
 
-就在他打电话前三小时，所有网络上王岐山的加强金管全部删除
-Just three hours before he called, Wang Qishan’s strengthening financial regula-tion speech was deleted from all networks
+在这一点上需要注意的是，一些主流媒体如BBC、路透社都在广泛地抹黑这种磁性，受这一现象影响的人正在被进行事实核查。事实上，只是我现在和你讲这些就足以让我备受冷落和攻击。
 
-而马云全在那，你知道马云兴奋了
-And Jack Ma’s still there, you know Jack Ma was so excited
+值得注意的是，(mRNA疫苗)列出的成分不包括任何金属或磁性颗粒。然而，这种非磁性纳米技术确实存在，在过去5年甚至15年里，在动物和细胞体外进行了大量研究。另外，在写这篇文章时，公共信息显示，辉瑞-生物技术公司和Moderna公司都使用了ACE2突刺蛋白。它们是由一家名为Akron Biosystems的公司制造的。
 
-大家对我的这个（观点）被支持啊
-“Everyone supports me now”
+他们的图示还显示了mRNA在磁化纳米颗粒内的存在，该纳米颗粒被用于开发辉瑞公司的疫苗。因此，从这些信息看来
 
-你看，他们把王岐山都删了，你这个是对的
-You see, they even deleted Wang Qishan’s speech, you are right
+，在mRNA疫苗的注射过程中，一些磁性可能已经通过某种方式转移到体内。
 
-像当年骗车峰回去一样，你要签字，我马云投你5000亿，一模一样啊
-Just like when they lied to Che Feng to go back, you have to sign the paper, and Jack Ma invested you 500 billion dollars, exactly the same
+癌症治疗已经在使用磁性纳米颗粒，但与自由基的部分产生过一些问题。我猜测这种磁化的mRNA可以穿越血脑屏障并在那里造成伤害。原因有很多种。
 
-马云坐着飞机就回去了，飞机从这个香港起飞上去，军机就跟上去了
-Jack Ma took the plane and went back. The plane once took off from Hong Kong, and the military plane followed right away
+首先回顾一下来自英国黄卡系统的数据库。
 
-马云知道完了，直接抓，抓多少人知道吗？
-Jack Ma knew it’s over, do you know how many people were arrested directly?
+关于COVID19实验性疫苗的副作用非常普遍，一个例子是贝尔麻痹症。这是一种面部神经麻痹，导致一侧脸部无力和下垂，在阅读本文时，仅在英国的黄卡系统中，就有597例贝尔麻痹症，还有387例被列为面瘫的病例，这些大多数只是在系统中报告的病例，只是实际副作用数量的1%到10%。
 
-高管公司第一波300多人，300多人的家人有涉及到2000多人
-There are more than 300 executives in the first wave of arrest, and more than 2,000 family members are involved in the family of these 300 people
+值得注意的是，疫苗造成很多其他的副作用已被报告，包括从大脑深层中线结构中出现的颅神经损伤，特别是脑干。
 
-同一天，江志成被抓捕
-On the same day, Alvin Jiang was arrested
+待续……
 
-同一天，史玉柱，什么柳传志滴滴打车
-On the same day, Shi Yuzhu, and DiDi’s Liu Chuanzhi
+[英国医学博士分析如果疫苗含有磁化纳米分子会对脑部造成什么养的影响（下）](https://gnews.org/zh-hans/1609470/)
 
-所有的这些老板包括平安的马明哲，包括平安的高管
-All these entrepreneurs include Ping An’s Ma Mingzhe, including Ping An’s ex-ecutives
+（本文纯属个人观点，与Gnews 无关）
 
-当天整个就是个血洗，也就是大家记住就是去年的10月份
-The whole day was a massacre, that is, everyone remembers, it was October last year
-
-就是10月2号3号4号的时候，用他的话说，是中国的一场历史性的
-It was October 2nd, 3rd, 4th, in his words, it was a historic event in China
-
-就像十月革命一样的，全国上下都在抓人
-Just like the Russian October Revolution, people were arrested all over the country
-
-他说抓到什么程度，家里的司机和保姆的家人全部边控
-How far did the arrest go？ the drivers and the nannies’ family members were all border controlled by the police
-
-他说我们光那一天下边控下了将近6万人
-He said that we controlled nearly 60,000 people on that day
-
-我们银行查封的账号，他说100多万个
-He said more than 1 million bank accounts were blocked
-
-———————————————————
-
-**原视频接:**[https://twitter.com/se1y7cblljselva/status/1450024870918586368?s=24](https://twitter.com/se1y7cblljselva/status/1450024870918586368?s=24)
-
-Date:10/19/2021
-原视频标题:
-Jack Ma was deceived to return to China, on the same day that Jiang Zhicheng was arrested
-原视频日期：2021/10/17
-任务编号：KC185（2596）
-视频时间段 : 0:00-2:18
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

@@ -2,108 +2,63 @@
 ---
 
 
-## 江志成气数已尽，将死于非命
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1609313/)
+## 有争议的药物伊维菌素将在埃尔帕索进行临床试验
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1609387/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/555-wzywl-2.jpg)
-[https://gtv.org/video/id=6170da38c1d11973d3c5fae7](https://gtv.org/video/id=6170da38c1d11973d3c5fae7)
+**评论：在全球应中共病毒死亡人数达到近五百万之际，在全球完整接种疫苗38%之际，在第三针疫苗开始接种之际，在郭文贵先生爆料：“Dr. Zelenko: (大胡子医生）公布使用伊维菌素可治愈中共病毒”2个多月以后，对伊维菌素的临床试验姗姗来迟，亡羊补牢 犹未迟也。
+伊维菌素疗效临床试验，是一种科学的负责的态度；而全球接种未经三期临床试验的疫苗，更像是把全人类当作小白鼠。我们需要的是让科学服务人类，而不是让科学绑架人类，更不应该以科学之名对人类实施阴谋！**
 
-**郭文贵：**
-**Miles Guo：**
+**据《kdvr.com》作者：Christina Aguayo，2021年10月18日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wzywl-1.jpg)图片源自kdvr.com
+德克萨斯州埃尔帕索（KTSM）—随着围绕使用伊维菌素治疗COVID-19的争议在全国范围内升温，位于埃尔帕索的德克萨斯理工大学健康科学中心将进行随机对照临床试验，测试包括伊维菌素在内的四种不同药物的疗效。
 
-我见过这个风水先生
-I’ve seen the feng shui master
+德克萨斯理工大学健康科学中心已获得美国国家卫生研究院授予的170万美元，用于开展这些临床试验。正在进行试验的Edward Michelson博士对被选为试验地点之一感到非常荣幸。
 
-我说这个共产党干掉令计划的儿子
-I said Chinese Communist Party killed the son of Jihua Ling
+“在德克萨斯理工大学和大学医学中心，我们非常幸运地被邀请参加由美国国立卫生研究院赞助的名为ACTIV-6的COVID-19患者的临床试验。”
 
-干掉令谷以后
-After killing Gu Ling
+人用伊维菌素已经被用于治疗由寄生虫引起的疾病，它不能与动物形式的药物相混淆。 Michaelson说，他们对该药物的研究将在给病人的剂量方面非常精确。
 
-他们会带来什么样的代价，
-what price the CCP will pay
+“其中一种研究药物是伊维菌素，正如你所提到的，它在新闻中出现的次数不少。我们使用的将是人用版本，我们将根据人的体重调整剂量，所以这将与人们在互联网上购买的动物用伊维菌素，以及不注意剂量的方式有所不同”
 
-他说：颠倒乾坤
-he said: the world will turn upside down
+在人们开始服用动物形式的药物来治疗COVID-19之后，伊维菌素受到了全国的关注。动物药物的使用促使FDA发出警告，告诉人们停止服用为动物制造的药物。
 
-我说到底是江家干的？
-I asked: was the Jiang family did it?
+根据c19Ivermectin.com，已经进行了63项试验，涉及625名科学家和近5万名患者，他们说其中一些试验显示了积极的结果。然而，Michelson说，还需要进行更多的研究。
 
-还是那个谁家干的？咱就不说了
-Or who did it? Let’s not talk about it
+“关键是数字。在某些情况下，你需要非常大的数据来证明该药物是有效的。已经有了研究，但结果是好坏参半，所以我认为美国国家卫生研究院希望一劳永逸地解决这个问题。”
 
-他说，绝对是江家干的
-He said it was definitely the Jiang family did it
+Michelson说，很高兴能够把这项临床试验带到太阳城，他说：“病人将帮助他们自己，但同时他们也在通过参与帮助社区和整个国家，这样我们就能最终得到关于药物是否有助于COVID-19患者的答案。”
 
-我说好. 我说我从来不相信你们这些
-I said ok. I said I never trust your Feng shui masters
+两项试验都将是双盲研究，这意味着一半患者将接受药物，另一半将接受安慰剂。医生和病人都不会知道病人接受哪一种。
 
-这些风水大师们（我）从来不信，但是我问
-I never believe in these Fengshui masters, but I’ll consult
+**ACTIV-6试验**
 
-因为你能佐证我的正确性与不正确性
-cause it will corroborate my correctness and incorrectness
+第一个试验，即ACTIV-6，将测试伊维菌素，以及其他三种药物。该研究将侧重于不必住院的病人。整个埃尔帕索和新墨西哥州南部的患者将有资格加入。
+Michelson说：“一旦我们识别出COVID-19阳性的病人，但他们的情况足以呆在家里，我们将与他们联系，讨论该试验，如果他们感兴趣，将引导他们到一个网站，在那里他们可以签署同意书。”
 
-你给我预测预测， He gave me a prediction,
+同意参与的患者将从一家全国性药店收到他们的药物，这将确保他们和他们的医生都不知道他们是否收到了药物或安慰剂。然后他们将在14至28天的时间里报告他们的症状。
 
-其中就预测一道
-one of predictions is
+Michelson希望在下个月开始在ACTIV-6试验中招募病人。在全国范围内，NIH的目标是招募15,000名患者，但在埃尔帕索的目标是招募400名。
 
-他说江家的孙子江志成活不长
-Jiang Zhicheng, the grandson of the Jiang family, would not live long
+Michelson说：“艾尔帕索人有机会获得属于国家临床试验的治疗，这一事实很重要。像这样的研究使社区受益，因为它使他们有机会成为尖端医学研究的一部分。”
 
-我说为什么？
-I asked why?
+**本地试验**
 
-他说：江家这次动手干掉令谷,下的命令就是老江干的
-He said: the order to kill Gu Ling is from Jiang Zemin
+第二项试验将测试消炎药色甘酸，这是一种廉价的普通药物，用于治疗眼睛和鼻腔过敏以及哮喘症状。目前，它可以作为雾化液或眼药水使用，这都需要处方，或者作为非处方的鼻腔喷雾。
 
-而且江家儿子江绵恒，还有他的孙子江志成，都将为此付出代价
-And Jiang’s son, Jiang Mianheng, and his grandson, Jiang Zhicheng, will all pay the price for this
+Michelson设计了这项研究，因为色甘酸能减少肺部的炎症，而COVID-19就是这样引起严重疾病的。他在UMC看到了传闻中的证据，即色甘酸的鼻腔喷雾配方可能对治疗COVID-19患者有效。
 
-他说：这就是轮回报应
-He said: This is karmic reincarnation
+他说：“色甘酸需要在受控环境中进行测试，如果事实证明它是有效的，那么它就可以作为一种家庭治疗方法使用。而且由于它价格低廉，它也将是发展中国家和低收入地区的一个最佳选择”。
 
-所以江志成这小子，只谈恋爱不结婚
-So Alvin Jiang, only romantic relationships does not marry
+Michelson希望在他的色甘酸研究中招募60名病人。前10名将接受该药物并观察其有效性，以确保没有不良副作用。接下来的50名患者将在双盲试验中进行观察，其中一半接受安慰剂。
 
-而且这小子生活中你见过这个人, 这个叫毛毛
-I’ve seen this guy in life. His nicknamed is Maomao
+**原文连接：**[https://kdvr.com/news/coronavirus/ivermectin-clinical-trials-continue-to-investigate-use-as-covid-19-treatment/](https://kdvr.com/news/coronavirus/ivermectin-clinical-trials-continue-to-investigate-use-as-covid-19-treatment/)
 
-绝对他长不了
-He will never last long
+（**本文评论仅代表个人观点）**
 
-所有，最后江家如何为此付出代价
-How the Jiang family pay the price for this？
-
-就现在看来他的PK，他越来越没有机会
-Just look at his struggle now, he has less and less chance
-
-江是不行了，他是个象征性的
-Jiang Zemin is too old. He is just a symbol
-
-江绵恒，江绵康，江志成在军队的势力是巨大的
-Jiang Mianheng, Jiang Miankang, Alvin Jiang’s power in the army is huge
-
-但是我觉得是越来越渺茫
-But I think their chance is getting slim
-
-———————————————————
-
-**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1446500426283503616?s=24](https://twitter.com/se1y7cblljselva/status/1446500426283503616?s=24)
-
-Date:10/18/2021
-原视频标题:
-Alvin Jiang’s fate is over, he will die in the end
-原视频日期：2021/10/07
-任务编号：KC186（2477）
-视频时间段 : 0:00-1:48
-
-英听校: 洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校: 洛杉矶盘古农场 – Freeearth
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – 心照
+编辑：洛杉矶盘古农场 – 心照
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

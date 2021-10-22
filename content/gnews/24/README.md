@@ -2,37 +2,110 @@
 ---
 
 
-## 2021/10/21文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1609274/)
+## 江志成气数已尽，将死于非命
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1609313/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/102105.png)[盖特链接](https://gettr.com/post/pesll02868)
-最近来要喜币的人太多太多，最近要拯救的人也太多太多了。大家要知道，如果不从根本上灭掉共产党，这些都是杯水车薪，没有用的！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/555-wzywl-2.jpg)
+[https://gtv.org/video/id=6170da38c1d11973d3c5fae7](https://gtv.org/video/id=6170da38c1d11973d3c5fae7)
 
-喜币七哥真的没有了，完全是依照你原来做出的贡献、法治基金的捐款和给G系列的投资。希望大家可以理解。
+**郭文贵：**
+**Miles Guo：**
 
-国内的经济：房地产房子卖不出去，银行的钱取不出来，到处断水断电。马上召开的六中全会，一开会就要抓人。中纪委到中国25个金融机构的巡视名单，那是要死很多人的，最终目标是要抓郭树清和另外几个银行行长的，包括已经退休的一些行长，例如：新华人寿的康典、民生的董文标；国开行、发展银行、亚洲投行、平安。因为都是王岐山的人，一个都不会放过，这个绞肉机的体制，谁都不会是安全的。只有灭了共产党，土地是人民的，谁也不能拿走，所有银行欠款都清除，因为这一切本来就是属于人民的。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/102103.png)
-随着“习一神”对台的入侵和党内部的斗争，意外随时可能发生。现在的北京城，想干掉习的人太多了，谁都不知道下一秒会发生什么事情，所有独裁体制倒塌的时刻都是瞬间倾倒的！
+我见过这个风水先生
+I’ve seen the feng shui master
 
-马云想自由很难，搞一个‘云锋基金’到处洗钱，还想统治中国人民，干掉习，统治全世界，绝不可能！
+我说这个共产党干掉令计划的儿子
+I said Chinese Communist Party killed the son of Jihua Ling
 
-美国和世界的经济面临巨大的挑战一定会下行，疫苗灾难在明年的5月前会显现。这个时候什么样的钱值钱，那可要搞明白，10天内，喜币就将上市了。听说在暗网和币圈都有赌喜币上市后的价格的，大量的人准备接受喜币。被批准的EDF(虚拟货币的交易平台)，比特币就涨到了6万多，但总会归零，因为非法。最终，美国一定会承认虚拟货币的使用，与传统发币共同存在，加强监管。昨天直播中把法币和货币、去中心化的币和中心化的体制搞清楚。去中心化的币和中心化的体制才是安全长久的，可以被全面监管，减少非法性。
+干掉令谷以后
+After killing Gu Ling
 
-这几天亚洲的大宗物品、汽车、芯片各种涨价，稍后产生的经济泡沫会对所有的法币造成巨大的冲击和伤害。法币本质就是一个信用，当法币乱印的时候，信用丧失，那还有谁用呢？！
+他们会带来什么样的代价，
+what price the CCP will pay
 
-真正的战友们，伟大的时代与我们共同并进，我们是幸福的！务必小心病毒，小心疫苗！明早见吧，周五、周日大直播。
+他说：颠倒乾坤
+he said: the world will turn upside down
 
-***听写**：阿甘*
+我说到底是江家干的？
+I asked: was the Jiang family did it?
 
-***校对: **小雨*
+还是那个谁家干的？咱就不说了
+Or who did it? Let’s not talk about it
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+他说，绝对是江家干的
+He said it was definitely the Jiang family did it
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+我说好. 我说我从来不相信你们这些
+I said ok. I said I never trust your Feng shui masters
 
+这些风水大师们（我）从来不信，但是我问
+I never believe in these Fengshui masters, but I’ll consult
 
-编辑：【英国伦敦喜庄园编辑部】
+因为你能佐证我的正确性与不正确性
+cause it will corroborate my correctness and incorrectness
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+你给我预测预测， He gave me a prediction,
+
+其中就预测一道
+one of predictions is
+
+他说江家的孙子江志成活不长
+Jiang Zhicheng, the grandson of the Jiang family, would not live long
+
+我说为什么？
+I asked why?
+
+他说：江家这次动手干掉令谷,下的命令就是老江干的
+He said: the order to kill Gu Ling is from Jiang Zemin
+
+而且江家儿子江绵恒，还有他的孙子江志成，都将为此付出代价
+And Jiang’s son, Jiang Mianheng, and his grandson, Jiang Zhicheng, will all pay the price for this
+
+他说：这就是轮回报应
+He said: This is karmic reincarnation
+
+所以江志成这小子，只谈恋爱不结婚
+So Alvin Jiang, only romantic relationships does not marry
+
+而且这小子生活中你见过这个人, 这个叫毛毛
+I’ve seen this guy in life. His nicknamed is Maomao
+
+绝对他长不了
+He will never last long
+
+所有，最后江家如何为此付出代价
+How the Jiang family pay the price for this？
+
+就现在看来他的PK，他越来越没有机会
+Just look at his struggle now, he has less and less chance
+
+江是不行了，他是个象征性的
+Jiang Zemin is too old. He is just a symbol
+
+江绵恒，江绵康，江志成在军队的势力是巨大的
+Jiang Mianheng, Jiang Miankang, Alvin Jiang’s power in the army is huge
+
+但是我觉得是越来越渺茫
+But I think their chance is getting slim
+
+———————————————————
+
+**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1446500426283503616?s=24](https://twitter.com/se1y7cblljselva/status/1446500426283503616?s=24)
+
+Date:10/18/2021
+原视频标题:
+Alvin Jiang’s fate is over, he will die in the end
+原视频日期：2021/10/07
+任务编号：KC186（2477）
+视频时间段 : 0:00-1:48
+
+英听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校: 洛杉矶盘古农场 – Freeearth
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
