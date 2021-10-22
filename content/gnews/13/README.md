@@ -2,35 +2,30 @@
 ---
 
 
-## 美国国家卫生研究院承认资助中共武毒所功能增强性研究
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610660/)
+## 猎巫行动——《解放军报》鼓励中共国民众互相监督 举报间谍
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1610662/)
 
-作者：纽约香草山农场-蓝天大海
+![](https://assets.gnews.org/wp-content/uploads/2021/10/worldbank_malpassdavid_ahmajunaid_alemaheyumengistu_102619getty-13.jpg)网络图片
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**编辑摘要：**据法国国际广播电台10月22日报道，中共军媒《解放军报》官方微博帐号“钧正平工作室”发帖呼吁中共国老百姓举报外国间谍，声称：“维护国家安全，我们唯有相信人民、依靠人民，需要‘朝阳大妈’，也需要‘捞铜渔民’，打一场反间防谍的人民战争，才能让间谍寸步难行，无所遁形！”
+
+美国有线电视新闻网（CNN）指出，中共国新一轮反间防谍的宣传战有可能加剧已经泛滥的政治猎巫行动。由于中共国政府对“国家安全”的定义粗犷而又模糊，任何被认为“不爱国”的人都有被举报为“间谍”的风险。
+
+报导指出：自从习近平鼓动民族主义，打压民主、自由和司法独立等所谓“西方价值”以来，中共国网络上自由派的言论已被赶尽杀绝，在中共国社媒上，立场略显自由开放的发言者常常被斥责为“叛徒”，甚至是为外国效劳的“间谍”。至于在中共国工作的外国记者和非政府组织雇员看起来就更像“间谍”。
+
+这条新闻一出，简直令人不寒而栗。中共国目前内忧外患，中共内斗趋于白热化，权力越来越不稳。此举的真实目的就是利用当年文革的“枫桥模式”，发动“群众斗群众”，让民众互相监督，人人为敌，强化中共对全社会和全体人民的集权控制。这种开历史倒车的方式无异于饮鸩止渴，既不可能为中共续命，又会给无辜的百姓带来无限的伤害。
+
+阅读新闻原文：[政治猎巫——CNN批评解放军报鼓励中国民众举报外国间谍](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211021-%E6%94%BF%E6%B2%BB%E7%8C%8E%E5%B7%AB-cnn%E6%89%B9%E8%AF%84%E8%A7%A3%E6%94%BE%E5%86%9B%E6%8A%A5%E9%BC%93%E5%8A%B1%E4%B8%AD%E5%9B%BD%E6%B0%91%E4%BC%97%E4%B8%BE%E6%8A%A5%E5%A4%96%E5%9B%BD%E9%97%B4%E8%B0%8D)
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-10月20日，美国国家卫生研究院首席副主任 劳伦斯-塔巴克 在一封信件中承认，美国资助了中共在武汉病毒研究所进行的所谓“功能增强性”研究，但与此相关的生态健康联盟并没有报告过，该项研究创造了一种可以感染人类的冠状病毒。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-22-at-7.57.54-PM.png)
-事实上，在新冠病毒溯源的过程中，美国国家卫生研究院是否曾资助过武毒所一直是舆论关注的焦点。为此，国会曾多次举行听证，并对福奇等相关人士进行调查。 但对于这些调查与追责，福奇本人则一概采取否认态度，甚至声称攻击他就是攻击科学。
-
-而今，劳伦斯的证词，毫无疑问地给了公众一个明确的答案。美国前国务卿 蓬佩奥在盖特上对此发表评论称，福奇 博士对美国人民不诚实，关于功能增强研究，仍有更多的疑问需要他回答。对此，参议员 汤姆-科顿 也表示，应该在法律允许范围内对福奇进行调查并起诉。
-(本文仅代表作者观点)
-
-参考链接：[NIH Admits Funding Gain-Of-Function COVID Experiments; Gives EcoHealth Five Days To Report Data](https://www.zerohedge.com/covid-19/nih-admits-funding-gain-function-covid-experiments-gives-ecohealth-five-days-report)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编：Irene木木 
-编辑：kathy文艺
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

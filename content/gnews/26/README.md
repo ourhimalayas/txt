@@ -2,28 +2,40 @@
 ---
 
 
-## 贝卢斯科尼是否计划登上意大利的总统宝座
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1610527/)
+## 新州的儿童返校前被突击安排接种疫苗
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1610542/)
 
-信息来源： 德国法兰克福报网页版
+#### 【**雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Untitled.jpg)图片来源：resources0.news.com.au
+#### 编译：小红帽
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
+澳大利亚新南威尔士州卫生局将在本周末举行中共病毒（COVID-19）疫苗接种突击行动，目标是剩余22.9%的12至15岁尚未接种第一剂疫苗的儿童。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/sieht-sich-in-guter-form.jpg)
+全州40多家诊所将为周一返校的孩子们提供无需预约的辉瑞（Pfizer）疫苗接种服务。
 
+新南威尔士州12至15岁的儿童中，约有46.08%已完全接种疫苗，77.11%人至少接种了一剂疫苗。
 
-图片来源： FAZ
+新南威尔士州副首席卫生官玛丽安·盖尔（Marianne Gale）周五敦促家长和孩子们在返校时“保持警惕”。
 
-意大利总统马塔雷拉的任期将于2022年2月到期。西尔维奥·贝卢斯科尼目前正在参加国内外的许多约会，这一事实加剧了人们对这位85岁的政治家未来计划的猜测。
+她在一段录制的视频中说：“如果我们的孩子出现哪怕最轻微的症状，一定不要去上学，最重要的是去做个中共病毒测试，并待在家里，直到得到阴性结果为止。”
 
-西尔维奥-贝卢斯科尼离开罗马长达八个月之久。他于周二晚间回到首都，并立即邀请人们参加第二天的意大利中右翼政党峰会。与后法西斯主义 “意大利兄弟 “的乔治亚·梅洛尼、马泰奥·萨尔维尼的右翼民族主义Lega的会面是在他的新住所，罗马东南部阿皮亚大街的格兰德别墅举行的。
+下周，新南威尔士州的学校将自6月以来首次实现全校上课。幼儿园、1年级和12年级的学生于10月18日返回教室。其他年级组将从周一开始返回教室。
 
-这是为了巩固三党的联盟。这一联盟最近因萨尔维尼和梅洛尼之间激烈的领导权之争而变得紧张，并在地方选举中受到了痛苦的责备：在最重要的大都市，中左翼候选人战胜了来自右翼的挑战者。
+截至周四，在新南威尔士州16岁以上的成年人中， 92.8%的人接种了一剂疫苗，83.7%的人接种了两剂疫苗。
 
-简评： 备受争议的贝卢斯科尼希望能够调节意大利各党之间的矛盾， 是他最近试图努力的方向。也让外界猜测他想重回政治舞台，担当意大利的总统。 但是以他85岁的高龄， 个人观点都不适合再次担当政治重任。
+与此同时，新南威尔士州陆续解除封锁。澳洲航空将召回停职的员工，并重新启动往返悉尼的国际旅行。
 
-原文链接： [https://www.faz.net/aktuell/politik/ausland/italien-spekulation-ueber-plan-von-berlusconi-im-praesidentenamt-17596243.html](https://www.faz.net/aktuell/politik/ausland/italien-spekulation-ueber-plan-von-berlusconi-im-praesidentenamt-17596243.html)
+周五，新南威尔士州州长多米尼克·佩罗特(Dominic Perrottet)在悉尼机场发表讲话，宣布新州正处于“复苏的跑道”上。
 
-免责声明：本文观点只代表作者， 与Gnews平台无关
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-编辑发布： Shuizhuyu
+**参考新闻：**[Kids vax blitz ahead of NSW school return (msn.com)](https://www.msn.com/en-au/news/australia/kids-vax-blitz-ahead-of-nsw-school-return/ar-AAPNBiw?ocid=msedgntp)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
