@@ -2,38 +2,19 @@
 ---
 
 
-## 美英经济学家预警，2008年金融危机或将重现
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610890/)
+## 文贵爆料 10/22 不能有幻想 灭共一定靠自己的实力
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1610966/)
 
-作者：纽约香草山农场 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，美国达特茅斯学院经济学教授布兰奇弗劳尔和伦敦大学定量社会科学教授布莱森联合发布论文警告称，一项关键消费指数显示，美国的经济正在陷入衰退，情况可能与2008年金融危机一样严重。
+采稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Pictur的e1.png)图片来源：GTV、GETTR
+2021年10月22日新中国联邦大直播郭文贵先生对美国前总统川普先生重返媒体但没有加入盖特一事表示，灭共不能有幻想寄托在他人身上，灭共要靠新中国联邦自身实力。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-19.jpeg)
+郭文贵先生谈到目前双方最终的结果是盖特投资人的决定。对盖特真正实现跨越党派的国际媒体是一件大好事。因为在所有和川普先生谈合作的公司中，盖特是唯一一家不需要他投入还给他投资的媒体，尽管很多人不理解。但最终无论今天的结果各界如何评论，无论川普先生对幕后的杨澜、吴征多么天真，新中国联邦从未把个人恩怨置于我们的信仰之上，依旧会支持、帮助灭共的朋友。
 
-事实上，美国民众的收入预测、就业状况，以及未来经济预期，根据密西根大学与世界大型企业联合会的消费者预期指数可见一斑。2021年，有两项指数分别下滑了18.4和25.3个百分点；而在2008年全球金融危机时，这两个指数则分别下跌了21和19个百分点。经济学家指出，自上世纪八十年代以来，每次美国经济衰退，这两项指数都会下滑超过10个百分点。
+同时，郭先生回顾从爆料革命第一天开始就指出的灭共理念：不要指望川普总统，不要指望美国，消灭中共要靠爆料革命、新中国联邦的实力。
 
-此前，郭文贵先生曾多次警示世界，由于西方经济被中共绑架，加之中共房地产泡沫的破裂、中共病毒和疫苗生化战带来的灾难，世界经济恐将崩塌。
+郭先生既轻松又坚定地告诉他的战友们，杨澜、吴征的背叛和懦弱、坏，毁了众多的中外企业家，包括江志成、马云等。面对共产党，任何贪婪和天真，都会付出惨重的代价。但灭共，不能有任何幻想，一定靠自己的实力。
 
-在这场经济大劫难和世界大变革中，最大的赢家将是新中国联邦的G系列，它将成为世界经济的诺亚方舟。
+【原文链接】https://gtv.org/broadcast/watch/6172b02683e948708d05c1ba
 
-(本文仅代表作者观点)
-
-参考链接：[专家警告：美国经济陷入衰退 2008年金融危机或重现](https://www.rfi.fr/cn/美洲/20211020-专家警告-美国经济陷入衰退-2008年金融危机或重现)
-[关于新世界和不远的未来](https://gnews.org/zh-hans/301071/)
-[全文字版2021年8月23日郭文贵先生G-TV直播](https://gnews.org/zh-hans/1489502/)
-[2021年9月21日郭文贵先生中秋直播全文字版](https://gnews.org/zh-hans/1548507/)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编：Ivy001 
-编辑：珈沅
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对发布：Shifter
