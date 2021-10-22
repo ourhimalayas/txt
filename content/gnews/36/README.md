@@ -2,55 +2,29 @@
 ---
 
 
-## NIH(福奇）:美国纳税人资助了WIV的SARS-CoV-2
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1609027/)
+## 强奸法治！律师“妄议”将被处罚
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1609151/)
 
-编译：西班牙喜悦农场–wenwu
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/231-1.jpg)[图片来源](http://china.cnr.cn/gdgg/20211021/t20211021_525639178.shtml)
+（全国律师协会副会长蒋敏对《规则》进行解读）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-10-5.png)
+近日，中华全国律师协会，制定了《中华全国律师协会关于禁止违规炒作案件的规则（试行）》。
 
-NIH 一名高级官员在周三（20日）的一封信中承认，美国纳税人资助了武汉（WIV）的蝙蝠冠状病毒[的功能增强性研究](https://www.nationalreview.com/2021/08/americans-deserve-the-truth-about-gain-of-function-research-and-the-wuhan-lab/)，并透露将美国国立卫生研究院的资金输送给武汉病毒研究所的美国非营利组织–生态健康联盟（EcoHealth Alliance），其掩盖了这项生物武器研究的工作。
+规则明确了律师、律师事务所对中共和国家重大决策部署、公共事件、涉法问题等发表评论以及在公共平台发表评论意见应当遵循的原则及边界、红线等，并对律师事务所、律师协会管理责任及处罚作出规定。
 
-NIH 的 Lawrence A. Tabak 在给国会众议员 James Comer (R., Ky.) 的[信](https://twitter.com/R_H_Ebright/status/1450947395508858880)中引用了一项“有限的实验”，该实验旨在测试“曾在中国流向的自然起源的蝙蝠冠状病毒的尖峰蛋白是否能够与小鼠模型中的人类ACE2受体结合。” 感染了改良版蝙蝠病毒的实验室小鼠比感染未改良版蝙蝠病毒的小鼠“病情更重”。
+规则明确，律师、律师事务所违反本规则，应当根据行业规范给予相应纪律处分；同时，就加强律师协会行业处分与司法行政机关行政处罚工作衔接作了规定。
 
-这一启示证明了共和党参议员[兰德·保罗是正确的](https://www.nationalreview.com/news/rand-paul-accuses-fauci-of-lying-to-congress-about-gain-of-function-research-funding/)，他在 5 月和 7 月就功能增强问题在国会作证时，与国家过敏和传染病研究所所长（NIAID）安东尼·福奇进行了激烈的辩论。在第二次听证会上，保罗指责福奇误导国会（在听证会上撒谎），否认美国曾资助武汉病毒研究所的功能增强研究。
+全国律协副会长蒋敏表示，少数律师热衷借助网络自媒体平台就案（事）件发表不当言论，披露案情，违规炒作案件，严重损害了律师行业的形象和声誉。规则的出台，是深化律师行业突出问题专项治理、推进行业规范健康发展的重要举措。
 
-功能增强研究涉及从动物身上提取病毒，并在实验室中对它们进行人工改造，使其对人类可以更容易传播或对人类致命。
+律师是一个国家法制和司法的重要组成部分。中共以官办机构“全国律协”的名义，给全国律师定下专业言论的红线和边界，并成功地设定了“妄议”的罪与罚。可以说，中共又一次用行动，简单粗暴地强奸了法制和整个律师行业。
 
-为了与福奇拒绝使用“功能增强”的观点保持一致，Tabak 回避了使用这个术语，尽管他描述的工作与其常见的定义完全匹配。
+信息来源：
 
-[The Intercept](https://theintercept.com/2021/10/01/nih-bat-coronavirus-grant-ecohealth-alliance/) 获得的一份先前未公布的，并曾向 NIAID 提交的生态健康联盟[拨款提案](https://www.nationalreview.com/news/internal-documents-further-contradict-faucis-gain-of-function-research-denials/)，已经被曝光。武汉病毒研究所的总拨款中有59.9万美元用于旨在使病毒更具危险性 和/或 传染性的研究。
+[全国律协出台规则加强律师行业自律\_蒋敏](https://www.sohu.com/a/496219687_267106)
 
-罗格斯大学生物安全专家兼化学和化学生物学教授理查德·埃布赖特（Dr. Richard Ebright）博士此前曾 [反驳](https://www.nationalreview.com/news/internal-documents-further-contradict-faucis-gain-of-function-research-denials/)福奇的说法，即美国国立卫生研究院“过去没有，现在也没有资助武汉病毒研究所（WIV）的功能增强研究”，并对此打上“[明显是假的](https://www.nationalreview.com/news/biosafety-expert-explains-why-faucis-nih-gain-of-function-testimony-was-demonstrably-false/)”标签。
+(本文只代表作者观点，与GNews网站无关)
 
-Ebright 告诉《国家评论》，NIH 资助的 WIV 的工作“概括”了功能增强性研究的定义，这种生物武器的研究涉及“增强的潜在大流行病原体 (PPP)”或那些“由于增强病原体的传播性 和/或 病原体的毒力而产生的。”
-
-除了承认 WIV 正在使用 NIH 资金进行功能增强性研究外，Tabak 还透露，EcoHealth 未能遵守其在拨款项下的报告责任。EcoHealth 被要求在出现某些可能增加与研究有关的危险的情况下提交”二次审查”。因此，当武汉（WIV）的研究人员成功地将一种天然蝙蝠冠状病毒与小鼠体内的人类 AC2 受体结合时，他们应该通知 NIH，但他们没有这样做。
-
-根据 Tabak 的说法，Eco Health 现在有五天时间向 NIH 提交与该奖项项目相关的“任何和所有未发表的数据”，以达到合规目的。
-
-该文件的其余部分试图证明 2014-2018 年 NIH 资助实验中使用的天然蝙蝠冠状病毒“在进化上与 SARS-CoV-2 相差几十年”，仅共享 96-97% 的基因组。
-
-**简评：**
-
-**据2021年10月1日《The Intercept》报道，总部位于美国的非营利组织生态健康联盟于 2020 年 9 月（也就是说，晚了两年多时间）向其资助者美国国立卫生研究院提交了该报告，而该组织因与中共国合作伙伴的合作而陷入争议。The Intercept 通过《信息自由法》[诉讼](https://theintercept.com/document/2021/09/09/the-intercept-v-national-institutes-of-health/)[获得了该报告](https://theintercept.com/2021/09/06/new-details-emerge-about-coronavirus-research-at-chinese-lab/)以及赠款提案和其他文件；NIH 和 EcoHealth Alliance 都没有对报告的日期提供解释，也没有回答 The Intercept 提出的关于该报告的另一个版本是否已按时提交的问题，如果是，该版本可能以何种方式被修改。**
-
-**该年度报告描述了 WIV 小组从 2017 年 6 月到 2018 年 5 月的工作，其中包括利用现有蝙蝠冠状病毒的不同部分创造新病毒，并将它们插入中共国武汉实验室的人源化小鼠中。这项工作由 NIH 的国家过敏和传染病研究所（NIAID）监督，该研究所是由 Anthony Fauci 领导。**
-
-**Dr. Richard Ebright 对此事件在[推特上](https://twitter.com/R_H_Ebright/status/1450947395508858880?s=20)如此表示（附两个NIH图）：“NIH 纠正了该机构主任 Collins 和 NIAID 主任 Fauci，关于 NIH 没有资助武汉的功能增强研究的不实之词；NIH 指出，EcoHealth Alliance 违反了 NIH 拨款 AI110964 的条款和条件；NIH 在 2018 年收到相关文件，并在 2020 年和 2021 年再次审查这些文件。”**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-12-4.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-13-3.png)
-
-
-**所以，这位博士的总结如下（原推文）：NIH—具体而言，Collins、Fauci 和 Lawrence A. Tabak — 都在向美国国会撒谎，也向媒体撒谎，更向公众撒谎。是明知故犯。是故意的。是明目张胆地。一个受资助者可以违反 NIH 资助的条款和条件多少次，而不受到惩罚？(显然，如果受资助者是生态健康联盟，这个数字至少是四次）**
-
-（文章仅代表作者观点与GNEWS无关）
-
-**新闻来源：**[nationalreview][NIH Admits to Funding Gain-of-Function Research in Wuhan, Says EcoHealth Violated Reporting Requirements](https://www.nationalreview.com/news/nih-admits-to-funding-gain-of-function-research-in-wuhan-says-ecohealth-violated-reporting-requirements/) |作者：CAROLINE DOWNEY｜发布时间：2021年10月21日
-
-* * *
-
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)
