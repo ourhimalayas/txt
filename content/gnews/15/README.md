@@ -2,28 +2,23 @@
 ---
 
 
-## 反对强制令的年轻人说：政府没有权利强制我们做任何我们不想做的事情
-` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1610011/)
+## 大阪环球影城突发停电，过山车停在顶部
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1610199/)
 
-Covid 19，大流行，已经结束了，我们不再关心了，想要疫苗的人，他们已经得到了，不想要疫苗的人，我们还是得不到。
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/10/121-3.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimages.cdn.uniqueway.com%2Fuploads%2F2016%2F07%2Fae08d2fb-8a73-4a73-a414-8351c70d061c.jpg&amp;imgrefurl=https%3A%2F%2Fwww.uniqueway.com%2Fcountries_pois%2FoOL4jkO8.html&amp;tbnid=Fwz1Ye46dGN5NM&amp;vet=12ahUKEwjA7s2urN3zAhVbcH0KHa3kBxoQMygBegUIARCqAQ..i&amp;docid=GSnONvkGjjyhJM&amp;w=3400&amp;h=2416&amp;q=%E5%A4%A7%E9%98%AA%E7%8E%AF%E7%90%83%E5%BD%B1%E5%9F%8E&amp;ved=2ahUKEwjA7s2urN3zAhVbcH0KHa3kBxoQMygBegUIARCqAQ)
+日本环球影城位于大阪市高花区，由于突发停电，过山车停在铁轨最高点附近，乘客正坐在过山车中。
 
-一切都不会改变，我不会等待Fauci博士或Joe Biden或WHO的许可，你不能统治我，我不是你的臣民，我是一个自由国家的自由公民，你没有权利告诉我该做什么。
+据日本环球影城称，10月22日下午0点45分左右，停电导致公园内所有设施停运。其中，过山车停在铁轨顶部附近，乘客正坐在过山车中。目前，工作人员正在通过铁轨营救乘客。
 
-在这个国家，我们人民掌握着权力，政府没有权力要求我做任何事情，任何雇主也没有权力。
+据关西电力公司称，日本环球影城所在的此花区和港区的520栋房屋停电，正在调查停电原因。
 
-你看，你可以整天强制要求别人做什么，我们不在乎，我们会把整个事情关闭，你想保持经济运行？ 你最好不要强制要求注射疫苗，你想保持你的私人企业开张？ 你最好不要强制要求注射疫苗，用50%的员工经营企业有什么乐趣？
+信息来源：
 
-因为人们已经站起来了，他们已经厌倦了被那些无权告诉他们该做什么的人所左右。
-我们正在夺回我们的国家。不管你提出什么样的任务，我们都会无视它。
+[ＵＳＪでジェットコースター停止　停電発生](https://news.yahoo.co.jp/articles/343aac1e04bfe82c74aad646008fe18b8adfdd07)
 
-你们可以拿着你们的任务，你们的疫苗，你们的口罩，你们的护照，你们可以把它们都塞进你们的集体屁眼里，因为我们不在乎。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-文字听写翻译：Kent
-
-视频字幕：Kent
-
-编辑/发稿：Kent
-
-发布：风云小哥
-
-免责声明：本文仅代表作者个人观点，与G-NEWS网站无关
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
