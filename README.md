@@ -15,106 +15,106 @@
 
 ---
 
-### [拜登称，如果中共国发动攻击，美国承诺保卫台湾](/content/gnews/1/README.md)
+### [【文炬拾字】马云的生死抉择](/content/gnews/1/README.md)
+ ` 温哥华扬帆农场`
+
+### [2021/10/20 文贵先生直播精要](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国警告中共国不要在台湾附近进行危险的军事行动](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [NBA球员穿“自由西藏”鞋上场，中共国切断了直播](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [文贵爆料10/22 灭共后新中国联邦将开启星际文明新纪元](/content/gnews/4/README.md)
+### [文贵爆料10/22 中共六中全会最重要两件事是体制和台湾问题](/content/gnews/3/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共国将《财新》从认可媒体中剔除，以遏制其影响力](/content/gnews/5/README.md)
+### [联合国在新疆问题上向中共摊牌，而其矢口否认](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [43国联合发表声明 要求中共准许专家入新疆调查](/content/gnews/6/README.md)
- ` 日本东京方舟农场`
-
-### [习近平的政敌“密谋反对他”以阻止其连任](/content/gnews/7/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [多国在WTO贸易审查会上指责中共不公平贸易行为](/content/gnews/8/README.md)
- ` 日本东京方舟农场`
-
-### [【修罗短评】马云，爆料革命为你续了命，为何不再为自己搏一搏？](/content/gnews/9/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [10/22/2021 文贵直播：中共用资本拿下川普说明中共还在乎他](/content/gnews/10/README.md)
- ` 秘密翻译组-北美组`
-
-### [喜币是去除世界乱像根源的方法](/content/gnews/11/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [加密货币侵蚀了美国经济制裁的有效性](/content/gnews/12/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [加拿大安大略省计划明年3月取消疫苗护照](/content/gnews/13/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [那些因疫苗要求而被解雇的人“没有资格获得失业金”](/content/gnews/14/README.md)
- ` MG FARM`
-
-### [中共外交部发言人反驳美方“保卫台湾”之说](/content/gnews/15/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [DC每日热点1022](/content/gnews/16/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [七哥一周聊：重回布莱顿森林体系和金本位，G系列是战友的未来](/content/gnews/17/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [前意大利航空空服员脱下制服抗议](/content/gnews/18/README.md)
- ` MG FARM`
-
-### [七哥一周聊：为什么要研究柯蒂斯·李梅将军？](/content/gnews/19/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [文贵爆料 10/22：吴征向中央报告：川普总统已被拿下](/content/gnews/20/README.md)
- ` 秘密翻译组-原创组`
-
-### [习劲抓多行行长 郭树清在劫难逃](/content/gnews/21/README.md)
- ` 墨尔本雅典娜农场`
-
-### [进退两难，如今马云生不如死](/content/gnews/22/README.md)
- ` 波士顿五月花农场`
-
-### [文贵先生向华尔街经理发出预警](/content/gnews/23/README.md)
- ` 波士顿五月花农场`
-
-### [秘翻在线：财新被除名　胡舒立去哪了？](/content/gnews/24/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：中共国沈阳爆炸平民殒命的噩耗不及娱乐圈嫖娼新闻火爆](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [加拿大魁省有44%的家长完全同意为5至11岁的儿童接种疫苗](/content/gnews/26/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [文贵视角:未来社交媒体就是人类的最高统治权](/content/gnews/27/README.md)
- ` 秘密翻译组-原创组`
-
-### [拜登确认美国随时准备在中共进攻时保卫台湾](/content/gnews/28/README.md)
+### [伯克斯的证词证实武毒所正进行美支持的研究](/content/gnews/5/README.md)
  ` HimalayaRussia`
 
-### [星期五“幽默”：“科学”解释疫苗功效](/content/gnews/29/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [拜登称，如果中共国发动攻击，美国承诺保卫台湾](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [皮埃尔·科里博士：伊维菌素是新冠病毒危机的解决方案](/content/gnews/30/README.md)
- ` MG 澳喜农场多语组`
+### [英国警告中共国不要在台湾附近进行危险的军事行动](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [GTV新闻访谈简报|2021年10月22日早](/content/gnews/31/README.md)
- ` 纽约香草山MOS01`
+### [NBA球员穿“自由西藏”鞋上场，中共国切断了直播](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [文贵爆料 10/22 不能有幻想 灭共一定靠自己的实力](/content/gnews/32/README.md)
+### [文贵爆料10/22 灭共后新中国联邦将开启星际文明新纪元](/content/gnews/9/README.md)
  ` 秘密翻译组-原创组`
 
-### [恒大物业交易戛然而止，中共房地产寒冬才刚刚开始](/content/gnews/33/README.md)
- ` GTV新闻访谈`
+### [中共国将《财新》从认可媒体中剔除，以遏制其影响力](/content/gnews/10/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [第130届广交会闭幕](/content/gnews/34/README.md)
+### [43国联合发表声明 要求中共准许专家入新疆调查](/content/gnews/11/README.md)
+ ` 日本东京方舟农场`
+
+### [习近平的政敌“密谋反对他”以阻止其连任](/content/gnews/12/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [多国在WTO贸易审查会上指责中共不公平贸易行为](/content/gnews/13/README.md)
+ ` 日本东京方舟农场`
+
+### [【修罗短评】马云，爆料革命为你续了命，为何不再为自己搏一搏？](/content/gnews/14/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [10/22/2021 文贵直播：中共用资本拿下川普说明中共还在乎他](/content/gnews/15/README.md)
+ ` 秘密翻译组-北美组`
+
+### [喜币是去除世界乱像根源的方法](/content/gnews/16/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [加密货币侵蚀了美国经济制裁的有效性](/content/gnews/17/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [加拿大安大略省计划明年3月取消疫苗护照](/content/gnews/18/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [那些因疫苗要求而被解雇的人“没有资格获得失业金”](/content/gnews/19/README.md)
+ ` MG FARM`
+
+### [中共外交部发言人反驳美方“保卫台湾”之说](/content/gnews/20/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [DC每日热点1022](/content/gnews/21/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [七哥一周聊：重回布莱顿森林体系和金本位，G系列是战友的未来](/content/gnews/22/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [前意大利航空空服员脱下制服抗议](/content/gnews/23/README.md)
+ ` MG FARM`
+
+### [七哥一周聊：为什么要研究柯蒂斯·李梅将军？](/content/gnews/24/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [文贵爆料 10/22：吴征向中央报告：川普总统已被拿下](/content/gnews/25/README.md)
+ ` 秘密翻译组-原创组`
+
+### [习劲抓多行行长 郭树清在劫难逃](/content/gnews/26/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [进退两难，如今马云生不如死](/content/gnews/27/README.md)
+ ` 波士顿五月花农场`
+
+### [文贵先生向华尔街经理发出预警](/content/gnews/28/README.md)
+ ` 波士顿五月花农场`
+
+### [加拿大魁省有44%的家长完全同意为5至11岁的儿童接种疫苗](/content/gnews/29/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [文贵视角:未来社交媒体就是人类的最高统治权](/content/gnews/30/README.md)
+ ` 秘密翻译组-原创组`
+
+### [拜登确认美国随时准备在中共进攻时保卫台湾](/content/gnews/31/README.md)
+ ` HimalayaRussia`
+
+### [星期五“幽默”：“科学”解释疫苗功效](/content/gnews/32/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [GTV新闻访谈简报|2021年10月22日早](/content/gnews/33/README.md)
+ ` 纽约香草山MOS01`
+
+### [恒大物业交易戛然而止，中共房地产寒冬才刚刚开始](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
 ### [疫苗灾情｜意大利 18 岁少年接种疫苗2周内突患罕见病](/content/gnews/35/README.md)

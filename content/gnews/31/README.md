@@ -2,25 +2,23 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月22日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1610990/)
+## 拜登确认美国随时准备在中共进攻时保卫台湾
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1611034/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-412.png)
+俄罗斯莫斯科喀秋莎农场 星河
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-24.png)
-文章仅代表作者本人观点，与Gnews无关
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/B-6.jpg)new.in-24.com
+美东时间10月22日报道，美国总统乔∙拜登在与选民交流中表示，“如果中共可能对台湾发动攻击，华盛顿将站出来保卫这个岛国。”
 
-视频参看：2021.10.22早GTV新闻访谈 [http://\[email protected\]](http://Gettr@MosTrans)
+当被问及如果中共进攻台湾，美国是否愿意保卫台湾时，美国领导人回答，“是的，我们有义务这样做。”
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+然而，拜登补充称，“美国并不寻求与中共国进行冷战，但是美国会坚定自己的立场。我与习近平谈话的次数比与任何其他世界领导人都多。你可能会听到，拜登想与中共国展开一场新的冷战。但我不希望与中共国发生冷战。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+当天早些时候，拜登反驳了中共国对美国的具有军事优势。拜登总统强调，“中共国、俄罗斯和世界其他国家都知道，我们拥有世界历史上最强大的武装力量。不要担心他们（其他国家）能够超过我们。”
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+最近以来，中共解放军战机多架次多次进入台湾“西南防空识别区”（ADIZ）。台湾敦促北京停止“不负责任的挑衅行为”。
+
+参考链接：
+
+[https://www.rbc.ru/rbcfreenews/61721b169a794705eafefb7f](https://www.rbc.ru/rbcfreenews/61721b169a794705eafefb7f)
