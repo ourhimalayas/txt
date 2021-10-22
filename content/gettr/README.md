@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@pandarolling 10/22/2021 12:08 PM (UTC)`
+
+Prince Charles lends encouragement to a group of vaccinated grocers, then one drops dead!查尔斯王子对一群接种疫苗的杂货商给予鼓励，然后有一个人死了!
+![img](https://media.gettr.com/group20/getter/2021/10/22/12/08/5d63fab1-359f-a28f-bcd2-8c662e752319/out.jpg)
+
+---
+
 `@miles 10/22/2021 5:49 PM (UTC)`
 
 Background Information on Yunhong Group (4) 运鸿集团的背景（四） 
@@ -288,15 +297,6 @@ Tu Youyou said Artemisia annua has many other efficacies besides treating malari
 `@miles 10/18/2021 6:13 PM (UTC)`
 
 10月18日：鲍威尔绝对死于疫苗，而不是死于病毒，所有的这些媒体都在撒谎。<br/><br/>他们在掩盖什么？恐惧什么？<br/><br/>https://twitter.com/Reuters/status/1450101932299857928?s=08 七哥您好! 路透社的新闻非常明确，他是打完两针疫苗，fully vaccinated的。
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@wsmartin218 10/15/2021 2:36 PM (UTC)`
-
-@jasonmillerindc @gavinwax Need #GETTR threads!!<br/><br/>Don't want need!
-> `@wsmartin218 10/15/2021 2:27 PM (UTC)`<br/>All of this to say: DO NOT think Democrats have come around on the border crisis all of a sudden.<br/><br/>Mass illegal immigration is the outcome Democrats WANT. They will not seriously act to stop mass illegal immigration.<br/><br/>We have to remove them from power if we want the it to stop.
 
 ---
 

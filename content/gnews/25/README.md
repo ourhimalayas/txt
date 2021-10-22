@@ -2,17 +2,25 @@
 ---
 
 
-## 新冠病毒感染在欧洲的增加
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1610941/)
+## GTV新闻访谈简报|2021年10月22日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1610990/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10225.jpeg)图片来自Huffinton post
-欧洲有超过 100 万新感染病例和 18000 新死亡病例，是世界上唯一一个大流行趋势恶化的地区。根据世界卫生组织（WHO）的最新数据，与上周相比，新冠病毒病例增加了 7%，死亡率保持稳定。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-412.png)
 
-57% 的欧洲国家每周新增病例数有所增加。比利时卫生部长弗兰克·范登布鲁克警告说，我们必须为第四波做好准备，他预计感染和住院人数将急剧增加。部长说要求所有人都必须团结一致，以遏制新冠病毒大流行的第四波。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-24.png)
+文章仅代表作者本人观点，与Gnews无关
 
-免责申明：本文只代表译者观点，与Gnews无关
+视频参看：2021.10.22早GTV新闻访谈 [http://\[email protected\]](http://Gettr@MosTrans)
 
-原文链接：[https://europa.today.it/attualita/europa-contagi-aumentano.html#\_ga=2.3266355.2037763293.1634583631-145009575.1615972944](https://europa.today.it/attualita/europa-contagi-aumentano.html#_ga=2.3266355.2037763293.1634583631-145009575.1615972944)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

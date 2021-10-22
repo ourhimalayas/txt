@@ -2,32 +2,32 @@
 ---
 
 
-## 第130届广交会闭幕
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610901/)
+## 恒大物业交易戛然而止，中共房地产寒冬才刚刚开始
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610953/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：香草山农场商业部– Bronx Bombers
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月19日，为时5天的第130届广交会闭幕。据官方统计，大约七千八百家企业进场参展，另有2.6万家企业和全球采购商网上参展。
+香港时间10月20日晚，中国恒大、恒大物业以及合生创展同时发布公告称，中国恒大向合生创展出让恒大物业股权的交易宣告终止，三者的股票将于21日起复牌。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-16.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-13.jpeg)
 
-自疫情以来，广交会已经实行了三次云展览，而本届则是首次重开实体展馆。据报道称，实体展馆的面积为40万平方米。但从现场的一些视频可以看出，亲自到场的客商寥寥无几，而大型展馆在此衬托之下就显得更加冷清。另外，中共媒体对今年广交会的报道也少之又少。有消息称，实体到馆的外商只有92家，分别来自15个国家和地区。
+此前，由于恒大集团债务危机的爆发，其在房产销售旺季的成交量大幅下降、流动性危机加剧，恒大本想依靠此次出让解决当下的危机现状，却不想该计划业已流产。据悉，在11月初，恒大将有2.77亿美金的债务应付利息到期。
 
-广交会的官网从2020年以来就没有再更新过成交额。回顾历届广交会，其最高成交额出现在2008年的春交会，之后的数字则一路下滑。
+虽然中共一些高层对外表示，恒大只是个案且危机可控，但恒大作为触发中共房地产崩塌的第一张多米诺骨牌，其冲击力已波及其他地产公司。
 
-事实上，广交会一直都是中共国外贸的“晴雨表”。有评论指，除了疫情的影响外，不可控的政治风险、限电限产的能源短缺，以及供应链中运输环节的断裂，都成为采购商不得不考虑的因素。“中国制造”的冬天已经到来。
+事实上，中共的虚假经济大多来源于房地产行业，而随着房地产企业的不断爆雷，本就脆弱的中共经济终将崩塌，也必将导致中共的加速灭亡。
+
+但文贵先生在直播中多次示警，中共房地产暴雷不仅冲击中共国的金融业和保险业，还收割了美国、欧洲和日本等发达国家的退休金以及社会养老金。房地产是中共控制西方国家的又一经济手段。
 
 (本文仅代表作者观点)
 
-参考链接：[安全有序、创新高效、精彩纷呈 第130届广交会落幕](http://finance.people.com.cn/n1/2021/1020/c1004-32259003.html)
-[习近平治下的广交会，不须解释。](https://twitter.com/645pr0rozt8cwa7/status/1449147039183360004?s=21)
-[第130届广交会圆满落幕](https://news.dayoo.com/guangzhou/202110/20/139995_54086294.htm)
-[https://www.cantonfair.org.cn/about/deal-stats](https://www.cantonfair.org.cn/about/deal-stats)
+参考链接：[深夜突发！恒大不卖了：刚宣布终止200亿交易！更有偿债大消息来了](https://finance.sina.com.cn/chanjing/gsnews/2021-10-21/doc-iktzqtyu2631498.shtml)
+[https://c.m.163.com/news/a/GMP0TRJQ0535KAWB.html?spss=newsapp](https://c.m.163.com/news/a/GMP0TRJQ0535KAWB.html?spss=newsapp)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-总编：Irene木木 
-编辑：山本不惑
+总编：Ivy001 
+编辑：Kathy文艺
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
