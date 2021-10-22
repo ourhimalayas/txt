@@ -2,110 +2,76 @@
 ---
 
 
-## 江志成气数已尽，将死于非命
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1609313/)
+## 比特币不断挑战新纪录，华尔街再掀加密货币狂潮
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1609396/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/555-wzywl-2.jpg)
-[https://gtv.org/video/id=6170da38c1d11973d3c5fae7](https://gtv.org/video/id=6170da38c1d11973d3c5fae7)
+#### **翻译：大海无量**
 
-**郭文贵：**
-**Miles Guo：**
+#### **编辑****/评论：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-14.jpg)
+图片来源：Cryptoknwmics **& **Time For Himalaya
 
-我见过这个风水先生
-I’ve seen the feng shui master
+**文章导读：**
 
-我说这个共产党干掉令计划的儿子
-I said Chinese Communist Party killed the son of Jihua Ling
+随着10月19日美国证券行业第一只加密货币ETF的成功推出，比特币价格创出了历史新高，华尔街资本追逐加密货币的热情高涨。我们对于加密货币仅仅一知半解，本文总结了几个观点非常有借鉴意义：
 
-干掉令谷以后
-After killing Gu Ling
+1、加密货币是一种财富的储存，是对多年来（政府）强力推动通货膨胀威胁的风险对冲；
 
-他们会带来什么样的代价，
-what price the CCP will pay
+2、通过不可伪造的代币或不可替代的代币（NFTs），一个全新的加密经济圈已经形成；
 
-他说：颠倒乾坤
-he said: the world will turn upside down
+3、去中心化金融（DeFi）的生态系统，它允许人们彼此直接借贷、交易和购买保险，而无需使用银行等第三方中介机构。
 
-我说到底是江家干的？
-I asked: was the Jiang family did it?
+当全球黑暗势力制造病毒和疫苗危机，大重置、经济停滞、金融危机、主权货币超发等，恰恰成就了今日加密货币的时代大潮。承蒙郭先生的超前布局，10月底喜币上市，新中国联邦战友们个个都是弄潮儿。
 
-还是那个谁家干的？咱就不说了
-Or who did it? Let’s not talk about it
+**译文：**
 
-他说，绝对是江家干的
-He said it was definitely the Jiang family did it
+美国时间10月20日，比特币又上冲到一个全新的记录，首次突破66,000美元。在美国成功推出首个加密货币交易所交易基金（ETF）之后，人们对加密货币有更大的接受度，市场的乐观情绪激增。
 
-我说好. 我说我从来不相信你们这些
-I said ok. I said I never trust your Feng shui masters
+在加密货币交易的十多年历史中，与重要图表水平相关的大幅波动一直都很常见。
 
-这些风水大师们（我）从来不信，但是我问
-I never believe in these Fengshui masters, but I’ll consult
+“这是一个验证的时刻，”加密货币咨询公司玛卡拉（Makara）的联合创始人兼首席执行官杰西·普罗德曼说：“这不再是这个资产类别是否继续存在的问题，这在更广泛的数字资产类别的历史上是一个真正有意义的标志。”
 
-因为你能佐证我的正确性与不正确性
-cause it will corroborate my correctness and incorrectness
+ProShares比特币策略ETF目前市场需求继续激增，周三（澳大利亚时间周四）换手超过2900万股，这相当于超过12亿美元的交易量。
 
-你给我预测预测， He gave me a prediction,
+美东时间10月19日在纽约上市的与比特币挂钩的ETF，已成为有记录以来交易量第二大的基金。
 
-其中就预测一道
-one of predictions is
+目前，比特币在疫情大流行时代所具有的流动性和投机性，以及在机构投资者更广泛介入的预期浪潮中攀升至最新高位。
 
-他说江家的孙子江志成活不长
-Jiang Zhicheng, the grandson of the Jiang family, would not live long
+比特币一路走势并不不稳定：6月，在对其能源消耗的批评和中共国对加密货币的打击下，该代币暴跌至30,000美元以下。然后它开始恢复，部分原因是加密货币行业消化了中共国的不利因素。
 
-我说为什么？
-I asked why?
+在所有加密货币价格飙升中，华尔街机构的许多部门对比特币在金融中的作用持有深深的怀疑态度。证券监管机构正在加强对加密货币的审查，美国政府有效地阻止了币库（Coinbase Global）的一个比特币借贷项目。
 
-他说：江家这次动手干掉令谷,下的命令就是老江干的
-He said: the order to kill Gu Ling is from Jiang Zemin
+也有批评者对于（比特币）因资产的稀缺性使其具有长期价值说法表示怀疑，因其作为交换单位使用（货币属性）增长较为缓慢。
 
-而且江家儿子江绵恒，还有他的孙子江志成，都将为此付出代价
-And Jiang’s son, Jiang Mianheng, and his grandson, Jiang Zhicheng, will all pay the price for this
+比特币在纽约交易时段最高上涨至66,976美元，使其今年的涨幅达到近130%。按市值计算，这种最大的数字货币去年上涨了300%以上，在2018年暴跌73%之后，2019年上涨了95%。
 
-他说：这就是轮回报应
-He said: This is karmic reincarnation
+据彭博情报公司的分析师称，ProShares ETF周二首次亮相，成交额近10亿美元，在首日交易中仅次于贝莱德碳基金，后者因种子前投资（初创风险投资）而排名靠前。
 
-所以江志成这小子，只谈恋爱不结婚
-So Alvin Jiang, only romantic relationships does not marry
+Valkyrie投资公司的首席执行官认为，是美国推出的比特币ETF期货为其推波助澜。而该公司已经申请设立期货基金。
 
-而且这小子生活中你见过这个人, 这个叫毛毛
-I’ve seen this guy in life. His nicknamed is Maomao
+“交易员和投资者可能认为现货比特币ETF是（发现）圣杯的前兆，他们的乐观情绪正以惊人的速度涌入最大的加密货币，所有资金都在从市场的各个角落进入交易。”
 
-绝对他长不了
-He will never last long
+比特币最大的支持者支持一项有争议的论点，**即虚拟货币是一种财富的储存，也是对多年来（政府）强力推动通货膨胀威胁的风险对冲。**
 
-所有，最后江家如何为此付出代价
-How the Jiang family pay the price for this？
+华尔街对于加密货币的热情正在增加。纽约梅隆银行、高盛和摩根士丹利等公司都在提供加密货币相关服务。索罗斯基金管理公司的首席投资官道恩·菲茨帕特里克说，她的公司持有一些代币，而加密货币“已经成为主流”。
 
-就现在看来他的PK，他越来越没有机会
-Just look at his struggle now, he has less and less chance
+当然，还有很长的路要走。例如，天桥资本创始人安东尼·斯卡拉姆齐说，虽然在大约10%的金融服务公司掀起了加密货币的“狂潮”，但绝大多数人尚对这种资产类别犹豫不决。
 
-江是不行了，他是个象征性的
-Jiang Zemin is too old. He is just a symbol
+在过去的几年里，**通过不可伪造的代币或不可替代的代币（****NFTs）——允许数字艺术品和收藏品的持有者追踪所有权**——已经成为人们关注的焦点。**一个全新的加密经济已经形成。**
 
-江绵恒，江绵康，江志成在军队的势力是巨大的
-Jiang Mianheng, Jiang Miankang, Alvin Jiang’s power in the army is huge
+**去中心化金融（****DeFi）——生态系统也是如此，它允许人们彼此直接借贷、交易和购买保险，而无需使用银行等第三方中介机构。**
 
-但是我觉得是越来越渺茫
-But I think their chance is getting slim
+比特币价格新记录正赶上它的诞生之日——数字代币在2008年万圣节诞生，由一个名叫中本聪的人发表了一篇研究论文。
 
-———————————————————
+这篇论文题为“比特币：一个点对点的电子现金系统”。根据网站CoinMarketCap.com的数据，它的诞生引燃了一场数字货币革命，导致了超过12000种其他代币的出现。加密货币目前总市值超过2.5万亿美元。
 
-**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1446500426283503616?s=24](https://twitter.com/se1y7cblljselva/status/1446500426283503616?s=24)
+（文中观点仅代表作者个人观点，与Gnews平台无关）
 
-Date:10/18/2021
-原视频标题:
-Alvin Jiang’s fate is over, he will die in the end
-原视频日期：2021/10/07
-任务编号：KC186（2477）
-视频时间段 : 0:00-1:48
+**发布：文泓**
 
-英听校: 洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校: 洛杉矶盘古农场 – Freeearth
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

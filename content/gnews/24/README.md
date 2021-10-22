@@ -2,50 +2,27 @@
 ---
 
 
-## 一名多伦多警官自由集会上发表讲话——现在她可能失业
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1609105/)
+## 有声|依旧以假治国, 受灾减产变成“大丰收”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1609190/)
 
-作者：David Menzies
-翻译：HimaCoby （MG Farm)
+配音：香草山美食部 – 玫瑰园
 
+自由时报消息，中共河南省副省長武国定曾在9月底向媒体表示，由于连遭暴雨和水灾，导致各行各业损失惨重。特别是农业，河南本来是墙内产粮大省，但全境农田、农作物受灾面积达1515万亩，今年秋粮肯定会减产。
 
+但是不到一个月，官方口径就转向改为宣传河南今年秋粮“大丰收”。其中央视财经本月13日引述农业部数据称，中国秋粮已收获完成超过一半，”降雨”没有改变秋粮丰收得局势。当地农民普遍表达质疑和愤怒， 称政府不提受灾减产，“秋收还没有结束，专家已经计算出增产二百亿吨，简直是在做中国梦”。几十年过去，中共依然是这种大跃进式套路以假治国，用“大丰收”谎言，掩盖水灾造成的粮食减产，只求维稳。
 
-从各方面来看，警探阿德里安娜·吉尔维西是一位出色的警察。但她现在发现自己正在接受多伦多警察局的内部调查。
+虽然官媒强调粮食丰收，但根据中共海关的数据显示，今年1到4月粮食进口量比去年同期增加高达57.8% ! 天灾可以躲过，人祸却无法避免，数据表明，墙内大范围粮荒已经出现势头 。
 
-她涉嫌犯罪？
+文字版原文：[依旧以假治国, 受灾减产变成“大丰收”](https://gnews.org/zh-hans/1604203/)
 
-9 月 18 日，她在自己的时间和不穿制服的情况下在多伦多皇后公园举行的自由集会上发表讲话。
+音频处理：喜山必胜Maverick
 
-然而，显然，根据多伦多警察局的说法，这样做可能“损害服务的声誉”。
-
-但为什么？是吉尔维西不被允许拥护她的*宪章*权利，例如言论自由和表达自由？
-
-这真的违反了《*警察服务法》*吗？因为她是警察，她会永远保持 24/7 闭嘴吗？
-
-那些反对永无止境的封锁、戴口罩以及最近的疫苗护照的人肯定会喜欢吉尔维西。她认为，暴力镇压和平抗议的执法人员实际上违反了他们的誓言——这是吉尔维西说她永远不会做的事情。
-
-然而，因为采取这种有原则的立场，她面临的后果、潜在的惩罚是无休止的？这很离谱。
-
-事实上，她被告知这些指控如果得到证实，将构成违反《*警察服务法》*，甚至可能导致指控。
-
-这是不对的。多伦多警察局需要更多像阿德里安娜·吉尔维西这样的警官而不是更少。
-
-來源：[https://www.rebelnews.com/toronto\_police\_officer\_spoke\_out\_freedom\_rally\_now\_she\_might\_lose\_her\_job](https://www.rebelnews.com/toronto_police_officer_spoke_out_freedom_rally_now_she_might_lose_her_job)
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

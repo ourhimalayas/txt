@@ -17,6 +17,21 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/22/2021 12:52 AM (UTC)`
+
+10/21/2021 Miles Guo’s GETTR: Jack Ma is in a very bad situation, and his ambitions won’t be fulfilled; With the world’s economy going down and the outbreak of the COVID vaccine disaster plus the soaring prices due to excessive printing of money, no one will trust fiat currencies anymore. So, what type of currency really belongs to you? Although we‘re in a great era, please make sure to prevent the CCP virus and don’t get the COVID jabs!<br/><br/>10/21/2021 文贵盖特：马云处境很惨，他的野心将无法实现；随着世界经济下滑和疫苗灾难的爆发，疯狂印钞导致物价飞涨，无人再信法币，什么样的钱才属于你？我们虽处在一个伟大的时代，但请大家防病毒、不打疫苗！<br/>
+![img](https://media.gettr.com/group15/getter/2021/10/22/00/52/55aecaef-2107-2043-260f-da5a7bf34eb9/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@jasonmillerindc 10/22/2021 12:34 AM (UTC)`
+
+#GETTR sign-ups are up 70.47% today! 👀
+
+---
+
 `@miles 10/22/2021 12:09 AM (UTC)`
 
 10/21/2021 Miles Guo’s GETTR: The 6th Plenary Session of the CCP’s Central Committee will cause massive arrests and deaths; No one will be safe unless the CCP is taken down; The day that Chinese people will own the land and the wealth that should belong to them is coming! So many people in Beijing want to eliminate Xi Jinping, and the accidents during the CCP’s internal struggles can happen at any time. The CCP will collapse rapidly!<br/><br/>10/21/2021 文贵盖特：此次六中全会将有多人被抓、被杀；不灭共，谁也不会安全；中国人拥有自己的土地和财富的日子将很快到来！北京有太多人要干掉习近平，内斗随时将有意外发生，中共将在弹指间脆断！<br/>
@@ -282,20 +297,6 @@ Tu Youyou said Artemisia annua has many other efficacies besides treating malari
 
 10/17/2021 Miles Guo: Revisit the CCP’s real estate sector - Just Ping An alone, it took way over RMB 9 trillion; Peter Ma (Mingzhe) became the No. 1 godfather in the Communist China via bribery; The CCP’s economy is really a mess, and even the CCDI or the special investigation team has no idea about the actual amount of money involved<br/><br/>10/17/2021文贵直播：再谈中共国房地产 - 仅平安就干掉了9万多亿人民币，马明哲通过行贿成为中共国的大瓢把子；中共烂账真的是一笔糊涂账，连中纪委、专案组对真实数字都毫无概念<br/>
 ![img](https://media.gettr.com/group15/getter/2021/10/18/00/43/c82515a1-d4d1-6d57-aaed-cfa9e9b968fa/out.jpg)
-
----
-
-`@miles 10/18/2021 12:31 AM (UTC)`
-
-10/17/2021 Miles Guo: The Taiwanese who are afraid of wars and the entrepreneurs of the Communist China terrified by nationalization have bought lots of properties in Japan; My buddy who used to work for the CCDI and fled to Japan had already hidden many properties over there. This buddy pointed out that my revelation regarding artemisinin being the antidote once again changed the world and that artemisinin is the secret of the Communist China<br/><br/>10/17/2021 文贵直播：怕打仗的台湾人和恐惧国有化的中共国企业家在日本大量买房；从中纪委逃到日本的哥们早就在日本藏匿了大量房产，他指出，文贵说出青蒿素是解药再一次改变了世界，青蒿素是中共国的秘密！<br/>
-![img](https://media.gettr.com/group8/getter/2021/10/18/00/31/d115562d-8649-c6df-de97-a8f653eadba1/out.jpg)
-
----
-
-`@miles 10/17/2021 11:43 PM (UTC)`
-
-10/17/2021 Miles Guo: On or about October 2, 2020, a historical arrest took place in the Communist China, with nearly 60,000 people being arrested. Xi Jinping even had no idea how much money was seized. Xi has not come out or seen anyone since then. Because he had never expected that Wang Qishan, Meng Jianzhu and others were going to kill him. Xi ordered to deal with the Chinese entrepreneurs in the same way as how the HNA case was handled - arrest them, kidnap their family, and force them to move their oversea assets back<br/><br/>10/17/2021文贵直播：2020年10月2日左右，中共国发生了一场历史性的大抓捕，近6万人被抓，习甚至不清楚多少钱被查封；习此后再未出门见人，因为他做梦都没想到王岐山、孟建柱等人要谋害他；习下令采用处理海航的模式针对国内企业家 - 抓捕他们、绑架其家人并逼迫其将海外资产转回国<br/>
-![img](https://media.gettr.com/group30/getter/2021/10/17/23/43/e629c1f0-7132-c080-0dd7-537b8df3f02d/out.jpg)
 
 ---
 
