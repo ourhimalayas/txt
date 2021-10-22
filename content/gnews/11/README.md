@@ -2,44 +2,42 @@
 ---
 
 
-## 马斯特登的创始人说川普的新社交网络就是马斯特登
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1610560/)
+## 特鲁多宣布加拿大正式实行联邦疫苗护照
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610659/)
 
-评语：***使用这个开源代码最大的问题，虽然很快有一个Demo的东西，但离实际使用还差相当的远，要加一个东西，改一个东西的时间会非常的长，出了问题非常难维护，因为如果没有找到这个开源项目的核心人员来管理的话，基本就是不太可能。而且根据这个开源的许可证的要求，他们所有的改动也需要开源，这样是一个非常大的安全隐患。 同时，不能声明这是自己的知识产权。 总的来说，就是开始快乐，后患无穷。***
+作者：纽约香草山文艺部 – 宁文静
 
-据《www.vice.com》作者：Joseph Cox，2021年10月21日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2633.png)图片：Sean Rayford/Stringer, Mastodon
-前总统唐纳德-川普的新社交网络“Truth Social”似乎是流行社交网络代码库马斯特登的一个明显的伪装分叉。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-尽管该网站在今年晚些时候才正式推出，但用户已经找到了在该网站上创建账户的方法。在这种情况下，不同用户拍摄的截图显示该网站在外观上与马斯特登非常相似。
 
-马斯特登的创始人和主要开发者Eugen Rochko在一封电子邮件中告诉董事会，“根据我看到的截图，它绝对是基于马斯特登的。他指着Truth Social的一张错误信息截图，其中使用的是默认的马斯特登大象吉祥物。
 
-“嗯，这看起来很熟悉，”马斯特登推特账户在推特上回应Daily Dot记者Mikael Thalen发布的一张他设法以唐纳德.川普的名义注册的Truth Social账户的截图。Rochko告诉董事会，这张Truth Social的截图“看起来和马斯特登的用户界面一模一样，有灯光主题”。
-另一张截图显示，Truth Social登录界面的HTML仍然明确提到了马斯特登。
+10月21日，加拿大总理特鲁多在例行记者会上表示，加拿大将启用新冠疫苗接种的联邦证明系统，最快将于当天在一些地区生效。特鲁多声称，全国13个省份和地区一致同意加入该系统。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1022AM（1、2）視頻備用.002.jpeg)
+据悉，加拿大疫苗护照会显示持有人的姓名、出生日期、疫苗接种历史、包括接种的时间、次数和剂量、以及一个健康卡的二维码，以便民众在加拿大境内及国际旅行时予以出示。
 
-马斯特登是一款开源软件，人们可以用它来创建自己的社交网络。该平台的时间线风格类似于Twitter。而一些人为了获得社交网络的体验，远离更成熟的大科技公司，转而使用马斯特登。
+此前，加拿大部分地区已经启用了省级疫苗接种证明，作为餐厅、健身房与影院等非必要场所的进入资格证。 如今，特鲁多枉顾加拿大各地反对强制新冠疫苗接种的声音、和对政府践踏人权的抗议浪潮，执意将疫苗护照正式落地，进一步压缩了未接种疫苗人员的活动空间，迫使他们寸步难行。
 
-当右翼平台Gab使用马斯特登时，马斯特登发表声明说：“马斯特登完全反对Gab的项目和理念，它试图将种族主义的内容货币化和平台化，同时掩盖在言论自由的旗帜下。马斯特登仍然致力于站出来反对仇恨言论；例如，我们的新服务器契约意味着我们只在joinmastodon.org上列出那些致力于主动调节反对种族主义、性别歧视和变性恐惧症的服务器。” 一些Mastodon iOS和Android应用程序的开发者也阻止用户登录Gab。
+正如郭先生所说：黑暗已经降临。
+(本文仅代表作者观点)
 
-在其网站上，Truth Social说它是“美国的’大帐篷’社交媒体平台，鼓励开放、自由和诚实的全球对话，不歧视政治意识形态”。该网站的使用条款包括一个条款，说用户不能“在我们看来，贬低、玷污或以其他方式损害我们或网站”。
+参考链接：
 
-它的条款还说，Truth Social的“所有源代码”是专有的。这可能触犯了马斯特登自己的许可证。
+1. [纽约警察工会将起诉纽约市疫苗强制令](https://gnews.org/zh-hans/1608786/)
+2. [127名华盛顿州警员因抵制强制疫苗而被解雇](https://gnews.org/zh-hans/1605463/)
+3. [俄克拉荷马州长反对拜登疫苗强制令，称接种是个人自由](https://gnews.org/zh-hant/1606393/)
 
-“最主要的是，马斯特登是自由软件，根据AGPLv3许可证发布，所以任何人都可以使用它—只要他们遵守许可证。许可证的主要部分是向公众提供源代码和对其进行的任何修改，”Rochko告诉董事会。Truth Social说它的代码是专有的，“这将是一个问题，因为这将表明违反了许可证规定，”Rochko补充说。
 
-Truth Social背后的公司Trump Media & Technology Group没有对评论请求作出回应。
-Rochko补充说：“如果你想知道我对川普的个人看法，我无法忍受这个家伙。”
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-文章点评仅代表个人观点
+总编：Irene木木 
+编辑：Kathy文艺
+校正/发稿：我不在这里
 
-原文连接：[https://www.vice.com/en/article/5dgm5k/truth-social-is-mastodon-trump](https://www.vice.com/en/article/5dgm5k/truth-social-is-mastodon-trump)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 滴水穿石
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
