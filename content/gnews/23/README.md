@@ -2,15 +2,33 @@
 ---
 
 
-## 文贵爆料（10/22）：中共潜艇在台湾海域多个地点“冒头”
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1610800/)
+## 川普宣布将推出社交媒体 “真相社交”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610869/)
 
-#### 撰稿：萌萌的朋克（秘翻 Gnews 原创组）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-6.jpeg)
-郭文贵先生在2021年10月22日的大直播开篇即爆出重磅——中共潜艇在台湾海域多个地点“冒头”。
+作者：纽约香草山教育部 – 正义的小新
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月20日，美国前总统川普宣布，即将推出名为“真相社交”的社交媒体平台。
 
-2021年10月22日，台湾当地时间 20:40 左右，共军潜水艇在台湾东部、东北部、东南部的东海海域多个地点“冒头”——既是对台湾的威慑，也是对国际社会的嚣张叫板。郭先生形象地把此举比喻为“流氓在大街上走着走路把裤子脱下来了，露出生殖器一样……”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-19.jpeg)
 
-这个消息对于日军、美军而言，意味着共军可能会有更加疯狂的、进一步的行动；对于中共内部，则体现了其内斗加剧、欲利用武统台湾转移全世界对重要问题（例如，病毒溯源、新疆大屠杀、中共国房地产崩盘等）的注意力。
+据消息称，该平台将于今年11月开始测试，预计将在2022年完成第一季度的全面推出，将作为新成立的“川普媒体与技术集团”TMTG的一部分。
 
-新闻来源：[六中全会定调明年二十大](https://gettr.com/streaming/pevzuhc748)
+就前总统川普宣布成立川普媒体与技术团队一事，盖特首席执行官杰森·米勒先生发表声明称，“祝贺川普总统再次加入社交媒体！川普总统一直是很好交往的生意人，但我们却无法就加入盖特达成共识。”
+
+(本文仅代表作者观点)
+
+参考链接：[Mastodon’s Founder Says Trump’s New Social Network Is Just Mastodon](https://www.vice.com/en/article/5dgm5k/truth-social-is-mastodon-trump)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Irene木木 
+编辑：Irene木木
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

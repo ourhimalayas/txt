@@ -2,38 +2,17 @@
 ---
 
 
-## 第130届广交会闭幕
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610901/)
+## 新冠病毒感染在欧洲的增加
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1610941/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月19日，为时5天的第130届广交会闭幕。据官方统计，大约七千八百家企业进场参展，另有2.6万家企业和全球采购商网上参展。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10225.jpeg)图片来自Huffinton post
+欧洲有超过 100 万新感染病例和 18000 新死亡病例，是世界上唯一一个大流行趋势恶化的地区。根据世界卫生组织（WHO）的最新数据，与上周相比，新冠病毒病例增加了 7%，死亡率保持稳定。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-16.jpeg)
+57% 的欧洲国家每周新增病例数有所增加。比利时卫生部长弗兰克·范登布鲁克警告说，我们必须为第四波做好准备，他预计感染和住院人数将急剧增加。部长说要求所有人都必须团结一致，以遏制新冠病毒大流行的第四波。
 
-自疫情以来，广交会已经实行了三次云展览，而本届则是首次重开实体展馆。据报道称，实体展馆的面积为40万平方米。但从现场的一些视频可以看出，亲自到场的客商寥寥无几，而大型展馆在此衬托之下就显得更加冷清。另外，中共媒体对今年广交会的报道也少之又少。有消息称，实体到馆的外商只有92家，分别来自15个国家和地区。
+免责申明：本文只代表译者观点，与Gnews无关
 
-广交会的官网从2020年以来就没有再更新过成交额。回顾历届广交会，其最高成交额出现在2008年的春交会，之后的数字则一路下滑。
+原文链接：[https://europa.today.it/attualita/europa-contagi-aumentano.html#\_ga=2.3266355.2037763293.1634583631-145009575.1615972944](https://europa.today.it/attualita/europa-contagi-aumentano.html#_ga=2.3266355.2037763293.1634583631-145009575.1615972944)
 
-事实上，广交会一直都是中共国外贸的“晴雨表”。有评论指，除了疫情的影响外，不可控的政治风险、限电限产的能源短缺，以及供应链中运输环节的断裂，都成为采购商不得不考虑的因素。“中国制造”的冬天已经到来。
-
-(本文仅代表作者观点)
-
-参考链接：[安全有序、创新高效、精彩纷呈 第130届广交会落幕](http://finance.people.com.cn/n1/2021/1020/c1004-32259003.html)
-[习近平治下的广交会，不须解释。](https://twitter.com/645pr0rozt8cwa7/status/1449147039183360004?s=21)
-[第130届广交会圆满落幕](https://news.dayoo.com/guangzhou/202110/20/139995_54086294.htm)
-[https://www.cantonfair.org.cn/about/deal-stats](https://www.cantonfair.org.cn/about/deal-stats)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编：Irene木木 
-编辑：山本不惑
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+责任编辑/发布：意大利达芬奇农场   萧亦
