@@ -2,25 +2,13 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月22日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1610990/)
+## 文贵视角:未来社交媒体就是人类的最高统治权
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1611044/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-412.png)
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/p-4.jpg)
+郭文贵先生在10月22日的直播中提到，像脸书、谷歌、推特等靠广告费、卖个人数据的社交媒体不可能有未来的，因为它们有原罪。社交媒体必须得到世界上宗教信仰绝大多数人的认可，不会再在政治上分左派、右派，人类会有共同的信仰。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-24.png)
-文章仅代表作者本人观点，与Gnews无关
+未来全人类的信仰会利用社交媒体作为传播工具，金融交易也倚赖安全可靠的社交媒体。当社交媒体成为传播人类统一的宗教信仰，没有甚么台湾、大陆、香港等领土的概念，国家的概念将不再存在。人类会有共同的平台、共同的经济及共同的精神境界。
 
-视频参看：2021.10.22早GTV新闻访谈 [http://\[email protected\]](http://Gettr@MosTrans)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+“社交媒体比核武器还要厉害！因为它可以同时让五千万个家庭受到影响，而没有一个核武器可以直接影响五千万个人！”文贵先生说。”未来的社交媒体力量极大，实际上就是人类最高统治权。”
