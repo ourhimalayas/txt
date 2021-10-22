@@ -2,24 +2,35 @@
 ---
 
 
-## 盐野义制药和第一三共将要开始国产疫苗的最后阶段试验
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1608323/)
+## In-N-Out汉堡被迫关闭旧金山一家顶级分店
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1608497/)
 
-#### 撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-24.png)（图片源自本文链接）
-10月21日时事通讯社消息：盐野义制药21日宣布，已经开始了正在开发的中共病毒疫苗的中期临床试验。最后阶段的临床试验也将在今年年底前开始，目的是在明年3月开始投放使用。同一天，第一三共公司也宣布，计划在今年年底前开始最后阶段临床试验，在实际使用国产疫苗方面取得进展。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月19日，旧金山In-N-Out汉堡被迫关闭了一家顶级分店。旧金山卫生部门指，该餐厅的员工“未能阻止无疫苗证明的顾客进入店内”，因而下令关闭该餐厅。
 
-盐野义制药的中期临床试验将在大约3000人身上测试该疫苗的安全性和有效性。因为只在疫苗接种比较迅速的日本招募受试者会很困难，预计最终阶段的临床试验将主要在海外进行。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-10.jpeg)
 
-第一三共公司将于11月开始中期临床试验，目的是在明年年底前实现疫苗的商业化，然后进入最终阶段试验。在试验的最后阶段，该公司正考虑将接种疫苗后的抗体量与现有疫苗进行比较，以观其性能是否逊色。
+In-N-Out汉堡公司首席法律顾问温辛格随后发布声明称，当地监管部门“不但要求餐厅在显著位置张贴告示，让顾客提供新冠疫苗接种证明，而且要求餐厅员工负责检查每一位客人的接种证明，以及带有照片的身份证明文件。”温辛格表示，In-N-out汉堡拒绝“成为任何政府机构的疫苗警察，因为这是不合理的、肆意的、不安全的行为”。
 
-值得注意的是，盐野义制药是中国平安保险的合作伙伴。第一三共在中共国开展业务已有三十多年，并且在上海、北京都有子公司。
+今年8月底以来，加州、纽约州陆续实施的疫苗证明，将已接种新冠疫苗的民众与未接种的进一步区隔开来。
 
-信息源：
-[国産ワクチン、最終治験へ　塩野義と第一三共](https://news.yahoo.co.jp/articles/3c4dd8dc9d2baea26538d8ea1dabaae4ac5cbe83)
+据悉，为数不少的餐饮业备受影响，In-N-Out汉堡并非单独个案。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+(本文仅代表作者观点)
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+参考链接：[San Francisco Shuts Down In-N-Out Burger For Refusing To Be “Vaccination Police For Government”](https://www.zerohedge.com/political/san-francisco-shuts-down-n-out-burger-refusing-be-vaccination-police-government)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Irene木木 
+编辑：山本不惑
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

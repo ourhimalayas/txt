@@ -2,110 +2,52 @@
 ---
 
 
-## 江志成气数已尽，将死于非命
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1609313/)
+## 英国医学博士分析如果疫苗含有磁化纳米分子会对脑部造成什么样的影响（上）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1609348/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/555-wzywl-2.jpg)
-[https://gtv.org/video/id=6170da38c1d11973d3c5fae7](https://gtv.org/video/id=6170da38c1d11973d3c5fae7)
+翻译/视频字幕：一灯一智
+视频选自Telegram
+我紧急分享以下关于COVID19疫苗实验性注射可能造成伤害和死亡的猜想，希望能够以某种方式帮助阻止疫苗注射造成的大规模种族灭绝的企图，我不相信这是意外事件并将解释原因。
 
-**郭文贵：**
-**Miles Guo：**
+我是一名英国医学博士。
 
-我见过这个风水先生
-I’ve seen the feng shui master
+我的猜想是实验性的mRNA COVID19疫苗含有一种附着在mRNA上的磁化纳米粒子，它能穿过血脑屏障，然后被吸附到大脑，特别是脑中线结构上。
 
-我说这个共产党干掉令计划的儿子
-I said Chinese Communist Party killed the son of Jihua Ling
+我进一步猜想，在磁化mRNA进入大脑的过程中，局部温度受到来自人造网络（如水凝胶）的电磁场辐射的影响。
 
-干掉令谷以后
-After killing Gu Ling
+现在我将解释为什么我提出这个猜想
 
-他们会带来什么样的代价，
-what price the CCP will pay
+自2021年4月-5月以来，世界各地数以千计的报告显示，这些人被注射了辉瑞-生物技术公司或Moderna COVID19实验性疫苗之后，他们现在发现手臂上被注射的一个特定区域已经变得有磁性。有这些新出现的状况，显然需要紧急调查。
 
-他说：颠倒乾坤
-he said: the world will turn upside down
+调查结果倾向显示注射过两针的人比注射过一针的人有更强的磁性，这种影响似乎是极其局部的，而且在最初的几周到一个月的某个时间点上最强。
 
-我说到底是江家干的？
-I asked: was the Jiang family did it?
+但也可能情况并非如此，因为这种影响是磁性的，而不是金属性的，你可以看到钕磁铁的错误磁极贴在皮肤上时会翻转，而正确的磁极则紧贴在皮肤上。有些病人当磁铁靠近时他们体内有感觉，有些人更常见的情况是在那些注射疫苗两针的人身上有足够的磁性，金属物体会粘在手臂上并留在那里。
 
-还是那个谁家干的？咱就不说了
-Or who did it? Let’s not talk about it
+我曾亲眼见过这种情况，甚至出现有大型餐具可以黏附在一些病人身上的情况。体型似乎有影响，它决定了从皮肤上多容易获得这种磁性，到目前为止，在肌肉发达或身材苗条的人身上似乎更强，而那些手臂上有更多脂肪组织的人弱一些
 
-他说，绝对是江家干的
-He said it was definitely the Jiang family did it
+。但这只是一些数字，这与以前的流感疫苗接种显示出相关性，特别是在同一年。
 
-我说好. 我说我从来不相信你们这些
-I said ok. I said I never trust your Feng shui masters
+在这一点上需要注意的是，一些主流媒体如BBC、路透社都在广泛地抹黑这种磁性，受这一现象影响的人正在被进行事实核查。事实上，只是我现在和你讲这些就足以让我备受冷落和攻击。
 
-这些风水大师们（我）从来不信，但是我问
-I never believe in these Fengshui masters, but I’ll consult
+值得注意的是，(mRNA疫苗)列出的成分不包括任何金属或磁性颗粒。然而，这种非磁性纳米技术确实存在，在过去5年甚至15年里，在动物和细胞体外进行了大量研究。另外，在写这篇文章时，公共信息显示，辉瑞-生物技术公司和Moderna公司都使用了ACE2突刺蛋白。它们是由一家名为Akron Biosystems的公司制造的。
 
-因为你能佐证我的正确性与不正确性
-cause it will corroborate my correctness and incorrectness
+他们的图示还显示了mRNA在磁化纳米颗粒内的存在，该纳米颗粒被用于开发辉瑞公司的疫苗。因此，从这些信息看来
 
-你给我预测预测， He gave me a prediction,
+，在mRNA疫苗的注射过程中，一些磁性可能已经通过某种方式转移到体内。
 
-其中就预测一道
-one of predictions is
+癌症治疗已经在使用磁性纳米颗粒，但与自由基的部分产生过一些问题。我猜测这种磁化的mRNA可以穿越血脑屏障并在那里造成伤害。原因有很多种。
 
-他说江家的孙子江志成活不长
-Jiang Zhicheng, the grandson of the Jiang family, would not live long
+首先回顾一下来自英国黄卡系统的数据库。
 
-我说为什么？
-I asked why?
+关于COVID19实验性疫苗的副作用非常普遍，一个例子是贝尔麻痹症。这是一种面部神经麻痹，导致一侧脸部无力和下垂，在阅读本文时，仅在英国的黄卡系统中，就有597例贝尔麻痹症，还有387例被列为面瘫的病例，这些大多数只是在系统中报告的病例，只是实际副作用数量的1%到10%。
 
-他说：江家这次动手干掉令谷,下的命令就是老江干的
-He said: the order to kill Gu Ling is from Jiang Zemin
+值得注意的是，疫苗造成很多其他的副作用已被报告，包括从大脑深层中线结构中出现的颅神经损伤，特别是脑干。
 
-而且江家儿子江绵恒，还有他的孙子江志成，都将为此付出代价
-And Jiang’s son, Jiang Mianheng, and his grandson, Jiang Zhicheng, will all pay the price for this
+待续……
 
-他说：这就是轮回报应
-He said: This is karmic reincarnation
+[英国医学博士分析如果疫苗含有磁化纳米分子会对脑部造成什么养的影响（下）](https://gnews.org/zh-hans/1609470/)
 
-所以江志成这小子，只谈恋爱不结婚
-So Alvin Jiang, only romantic relationships does not marry
+（本文纯属个人观点，与Gnews 无关）
 
-而且这小子生活中你见过这个人, 这个叫毛毛
-I’ve seen this guy in life. His nicknamed is Maomao
-
-绝对他长不了
-He will never last long
-
-所有，最后江家如何为此付出代价
-How the Jiang family pay the price for this？
-
-就现在看来他的PK，他越来越没有机会
-Just look at his struggle now, he has less and less chance
-
-江是不行了，他是个象征性的
-Jiang Zemin is too old. He is just a symbol
-
-江绵恒，江绵康，江志成在军队的势力是巨大的
-Jiang Mianheng, Jiang Miankang, Alvin Jiang’s power in the army is huge
-
-但是我觉得是越来越渺茫
-But I think their chance is getting slim
-
-———————————————————
-
-**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1446500426283503616?s=24](https://twitter.com/se1y7cblljselva/status/1446500426283503616?s=24)
-
-Date:10/18/2021
-原视频标题:
-Alvin Jiang’s fate is over, he will die in the end
-原视频日期：2021/10/07
-任务编号：KC186（2477）
-视频时间段 : 0:00-1:48
-
-英听校: 洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校: 洛杉矶盘古农场 – Freeearth
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

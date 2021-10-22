@@ -2,37 +2,108 @@
 ---
 
 
-## 2021/10/21文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1609274/)
+## 马云被骗回国同天，江志成被抓
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1609286/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/102105.png)[盖特链接](https://gettr.com/post/pesll02868)
-最近来要喜币的人太多太多，最近要拯救的人也太多太多了。大家要知道，如果不从根本上灭掉共产党，这些都是杯水车薪，没有用的！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ac3wg-w10z6.jpg)
+[https://gtv.org/video/id=6170d906c1d11973d3c5f995](https://gtv.org/video/id=6170d906c1d11973d3c5f995)
 
-喜币七哥真的没有了，完全是依照你原来做出的贡献、法治基金的捐款和给G系列的投资。希望大家可以理解。
+**郭文贵**
+**Miles Guo**
 
-国内的经济：房地产房子卖不出去，银行的钱取不出来，到处断水断电。马上召开的六中全会，一开会就要抓人。中纪委到中国25个金融机构的巡视名单，那是要死很多人的，最终目标是要抓郭树清和另外几个银行行长的，包括已经退休的一些行长，例如：新华人寿的康典、民生的董文标；国开行、发展银行、亚洲投行、平安。因为都是王岐山的人，一个都不会放过，这个绞肉机的体制，谁都不会是安全的。只有灭了共产党，土地是人民的，谁也不能拿走，所有银行欠款都清除，因为这一切本来就是属于人民的。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/102103.png)
-随着“习一神”对台的入侵和党内部的斗争，意外随时可能发生。现在的北京城，想干掉习的人太多了，谁都不知道下一秒会发生什么事情，所有独裁体制倒塌的时刻都是瞬间倾倒的！
+你说这时候马云已经到香港了，明天上市啦，
+At that time, Jack Ma has arrived in Hong Kong and the Ant Group will be listed tomorrow
 
-马云想自由很难，搞一个‘云锋基金’到处洗钱，还想统治中国人民，干掉习，统治全世界，绝不可能！
+你知道他们一个干什么，打电话说是我亲自给马云打个电话，
+You know what were they doing? Make a phone call, and called Jack Ma myself
 
-美国和世界的经济面临巨大的挑战一定会下行，疫苗灾难在明年的5月前会显现。这个时候什么样的钱值钱，那可要搞明白，10天内，喜币就将上市了。听说在暗网和币圈都有赌喜币上市后的价格的，大量的人准备接受喜币。被批准的EDF(虚拟货币的交易平台)，比特币就涨到了6万多，但总会归零，因为非法。最终，美国一定会承认虚拟货币的使用，与传统发币共同存在，加强监管。昨天直播中把法币和货币、去中心化的币和中心化的体制搞清楚。去中心化的币和中心化的体制才是安全长久的，可以被全面监管，减少非法性。
+马云啊，我们现在觉得你应该在上海先上（市）
+Hi Jack Ma, we now think you should list the Ant Group in Shanghai’s market first
 
-这几天亚洲的大宗物品、汽车、芯片各种涨价，稍后产生的经济泡沫会对所有的法币造成巨大的冲击和伤害。法币本质就是一个信用，当法币乱印的时候，信用丧失，那还有谁用呢？！
+他说为什么呢？他说这个对股票更有帮助，我们研究过
+Jack asked why? “We have studied that this is more helpful for stocks value”
 
-真正的战友们，伟大的时代与我们共同并进，我们是幸福的！务必小心病毒，小心疫苗！明早见吧，周五、周日大直播。
+我们组织上还是希望你能成功的，
+Our communist party organization still hope you can succeed
 
-***听写**：阿甘*
+大家记住啊，就在上市的前一天前两天，我忘了
+Remember everyone, just one or two days before the listing day, I forgot
 
-***校对: **小雨*
+你记住，王岐山当天讲话要对市场进行加强金管
+Remember, Wang Qishan’s speech on that day was about strengthening finan-cial regulation
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+你们记得了吗？当天马云讲话反对严管，市场归市场，记住了吗？
+Do you remember? On the same day, Jack Ma spoke against strict regulation, the market belongs to the market, remember that?
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+就在他打电话前三小时，所有网络上王岐山的加强金管全部删除
+Just three hours before he called, Wang Qishan’s strengthening financial regula-tion speech was deleted from all networks
 
+而马云全在那，你知道马云兴奋了
+And Jack Ma’s still there, you know Jack Ma was so excited
 
-编辑：【英国伦敦喜庄园编辑部】
+大家对我的这个（观点）被支持啊
+“Everyone supports me now”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+你看，他们把王岐山都删了，你这个是对的
+You see, they even deleted Wang Qishan’s speech, you are right
+
+像当年骗车峰回去一样，你要签字，我马云投你5000亿，一模一样啊
+Just like when they lied to Che Feng to go back, you have to sign the paper, and Jack Ma invested you 500 billion dollars, exactly the same
+
+马云坐着飞机就回去了，飞机从这个香港起飞上去，军机就跟上去了
+Jack Ma took the plane and went back. The plane once took off from Hong Kong, and the military plane followed right away
+
+马云知道完了，直接抓，抓多少人知道吗？
+Jack Ma knew it’s over, do you know how many people were arrested directly?
+
+高管公司第一波300多人，300多人的家人有涉及到2000多人
+There are more than 300 executives in the first wave of arrest, and more than 2,000 family members are involved in the family of these 300 people
+
+同一天，江志成被抓捕
+On the same day, Alvin Jiang was arrested
+
+同一天，史玉柱，什么柳传志滴滴打车
+On the same day, Shi Yuzhu, and DiDi’s Liu Chuanzhi
+
+所有的这些老板包括平安的马明哲，包括平安的高管
+All these entrepreneurs include Ping An’s Ma Mingzhe, including Ping An’s ex-ecutives
+
+当天整个就是个血洗，也就是大家记住就是去年的10月份
+The whole day was a massacre, that is, everyone remembers, it was October last year
+
+就是10月2号3号4号的时候，用他的话说，是中国的一场历史性的
+It was October 2nd, 3rd, 4th, in his words, it was a historic event in China
+
+就像十月革命一样的，全国上下都在抓人
+Just like the Russian October Revolution, people were arrested all over the country
+
+他说抓到什么程度，家里的司机和保姆的家人全部边控
+How far did the arrest go？ the drivers and the nannies’ family members were all border controlled by the police
+
+他说我们光那一天下边控下了将近6万人
+He said that we controlled nearly 60,000 people on that day
+
+我们银行查封的账号，他说100多万个
+He said more than 1 million bank accounts were blocked
+
+———————————————————
+
+**原视频接:**[https://twitter.com/se1y7cblljselva/status/1450024870918586368?s=24](https://twitter.com/se1y7cblljselva/status/1450024870918586368?s=24)
+
+Date:10/19/2021
+原视频标题:
+Jack Ma was deceived to return to China, on the same day that Jiang Zhicheng was arrested
+原视频日期：2021/10/17
+任务编号：KC185（2596）
+视频时间段 : 0:00-2:18
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
