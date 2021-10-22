@@ -2,38 +2,19 @@
 ---
 
 
-## 美英经济学家预警，2008年金融危机或将重现
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610890/)
+## 价格上涨：从意大利面到面包
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1610906/)
 
-作者：纽约香草山农场 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，美国达特茅斯学院经济学教授布兰奇弗劳尔和伦敦大学定量社会科学教授布莱森联合发布论文警告称，一项关键消费指数显示，美国的经济正在陷入衰退，情况可能与2008年金融危机一样严重。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10224.jpg)图片来自Affari Italiani
+通货膨胀狂奔，食品价格飞涨，生活成本开始上升。原材料危机和能源成本对食品的零售价格产生了直接影响，如今市场摊位、超市和食品店的价格大幅上涨。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-19.jpeg)
+昨天，意大利央行行长伊格纳齐奥·维斯科 (Ignazio Visco) 在储蓄日的讲话中说到在欧元区原材料和中间产品的采购出现了困难，意大利也开始感受到供应瓶颈的影响。
 
-事实上，美国民众的收入预测、就业状况，以及未来经济预期，根据密西根大学与世界大型企业联合会的消费者预期指数可见一斑。2021年，有两项指数分别下滑了18.4和25.3个百分点；而在2008年全球金融危机时，这两个指数则分别下跌了21和19个百分点。经济学家指出，自上世纪八十年代以来，每次美国经济衰退，这两项指数都会下滑超过10个百分点。
+根据收集到的数据和行业组织的投诉，水果和蔬菜是增长最快的食品。原材料行业的紧张局势，首先是面粉，然后导致意大利主要城市的面包价格上涨了 10%，面食价格上涨了 30%，而牛奶和肉类的平均涨幅为 +5% .甚至葡萄酒和饮料也有上涨的风险，因为与玻璃、纸张、木材增加相关的装瓶成本更高。
 
-此前，郭文贵先生曾多次警示世界，由于西方经济被中共绑架，加之中共房地产泡沫的破裂、中共病毒和疫苗生化战带来的灾难，世界经济恐将崩塌。
+免责申明：本文只代表译者观点，与Gnews无关
 
-在这场经济大劫难和世界大变革中，最大的赢家将是新中国联邦的G系列，它将成为世界经济的诺亚方舟。
+原文链接：[https://www.today.it/economia/aumento-prezzo-prodotti-alimentari.html](https://www.today.it/economia/aumento-prezzo-prodotti-alimentari.html)
 
-(本文仅代表作者观点)
-
-参考链接：[专家警告：美国经济陷入衰退 2008年金融危机或重现](https://www.rfi.fr/cn/美洲/20211020-专家警告-美国经济陷入衰退-2008年金融危机或重现)
-[关于新世界和不远的未来](https://gnews.org/zh-hans/301071/)
-[全文字版2021年8月23日郭文贵先生G-TV直播](https://gnews.org/zh-hans/1489502/)
-[2021年9月21日郭文贵先生中秋直播全文字版](https://gnews.org/zh-hans/1548507/)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编：Ivy001 
-编辑：珈沅
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+责任编辑/发布：意大利达芬奇农场   萧亦

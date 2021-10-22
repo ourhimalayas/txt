@@ -2,21 +2,19 @@
 ---
 
 
-## 5000 人的欧盟军队
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1610949/)
+## 发生在美国的警报因素
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1610955/)
 
 翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10226.jpg)图片来自pochestorie.corriere.it
-这样一个依靠 5000 名士兵的“特设联盟”的系统将被称为“欧盟干预力量”，其本质上是一种加强合作的形式,欧洲防务由此诞生,或者至少是欧洲军队的第一个分支。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10227-1.jpg)图片来自bbc.com
+在马萨诸塞州，应州长的要求，国民警卫队被用来驾驶校车，现在白宫甚至在考虑用国民警卫队来弥补卡车司机短缺的可能性：这是破坏美国各地货物配送物流链的关键点之一。
 
-根据上周三在联盟和北约国防部长峰会前夕提交的最新草案，委员会主席乌尔苏拉·冯德莱恩于 9 月启动了该程序，将等待 11 月底由所谓的大型委员会审查，然后预计 2022 年 3 月欧洲理事会将最终批准。
+随着圣诞节的来临，缺乏微芯片和集装箱船运输货物的瓶颈，洛杉矶和长滩的港口每周 7 天 24 小时保持开放，以便让等待在港口外的数十艘船只上岸，这将会持续到年末假期之后。
 
-整个防御架构基于与北约的合作和预防的概念,特别是关于所谓的混合威胁。在草案中，虽然俄罗斯和中(共)国没有明确提及，但暗示是明显的。
-
-这支特遣队必须在 2025 年之前准备就绪，并将由 5000 支部队组成。指挥中心将设在布鲁塞尔。它的前提是与大西洋公约的合作，以及不让印度洋-太平洋地处于无人防守的可能性。
+在过去的几天里，另一个警报因素又增加了：一些食品在一些地方开始用完，随之是更高的价格：因为巴西这个美国的主要生产国和出口国遭受了极端干旱的打击。科罗拉多学校缺少牛奶不是因为奶牛罢工，而是因为没有用于单剂量包装的特殊纸箱。猪肉也有类似的故事：它并不缺乏，但无法分发，因为没有出售它的聚苯乙烯托盘。另一方面，由于美国人饮食习惯的改变，鸡肉的问题在于产品的真正稀缺。现在又出现了卫生纸、罐头食品和冷冻食品再次快速销完现象。
 
 免责申明：本文只代表译者观点，与Gnews无关
 
-原文链接：[https://www.repubblica.it/esteri/2021/10/21/news/cinquemila\_uomini\_e\_uno\_scudo\_spaziale\_nasce\_la\_prima\_difesa\_europea-323243674/?ref=RHTP-VS-I287621970-P12-S2-T1](https://www.repubblica.it/esteri/2021/10/21/news/cinquemila_uomini_e_uno_scudo_spaziale_nasce_la_prima_difesa_europea-323243674/?ref=RHTP-VS-I287621970-P12-S2-T1)
+原文链接：[https://www.corriere.it/america-cina/2021/10/20/processo-benzema-ha-ricattato-amico-48beb63c-317d-11ec-8ced-72436ce4862e.shtml](https://www.corriere.it/america-cina/2021/10/20/processo-benzema-ha-ricattato-amico-48beb63c-317d-11ec-8ced-72436ce4862e.shtml)
 
 责任编辑/发布：意大利达芬奇农场   萧亦
