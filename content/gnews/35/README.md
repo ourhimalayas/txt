@@ -2,12 +2,44 @@
 ---
 
 
-## 中国多地出现新增病毒感染 ，一列车已发现15例病毒感染者
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1609928/)
+## 澳大利亚新南威尔士州要求企业对雇员接种疫苗的不良反应承担责任
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610010/)
 
-韩国首尔天池农场——虎眼　　校对/上传——无明逆流
-![](https://assets.gnews.org/wp-content/uploads/2021/10/e50a-018150b9a35060a6b7a81fd76e1406ed.jpg)
-近日，中国多地出现新一轮的疫情反弹。据中国甘肃卫健委发布的通报显示，10月15日至21日搭乘D2746列车的旅游团已发现13宗感染病例，已涉及中国10个省市。
-公开资料显示，D2746次列车是一趟由甘肃玉门开往兰州站的列车。根据10月21日甘肃陇南市病毒疫情办公室发布的通告显示，新增的6名确诊患者中，4名70岁以上的老年感染者搭乘过这班列车，都属于该次列车同一旅行团。加上21日青海海东市确认的感染患者，该次列车上已有13人确认感染。
+作者/编辑/总编：纽约香草山农场 – 飞虹
 
-截至10月22日，已新增两例阳性病例，一对夫妻被确诊，曾在之前乘坐D2746次列车去兰州游玩。目前，该列车先后已发现15宗阳性感染病例。
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+据零对冲10月19日的消息，澳大利亚的新南威尔士州地方政府刚刚颁布了一项法律，规定强制执行新冠疫苗接种的雇主，现在要对雇员所遭受的任何不良反应负责，即使员工不再为他们工作，这些雇主也必须在其余生中向员工支付赔偿。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-10.jpg)
+一些雇主就此项新规咨询了保险公司，保险公司明确表示，他们不会对未经测试的产品进行保险。
+
+政府向企业施压，迫使雇主要求员工接种疫苗，而保险公司却拒绝提供保险服务。而随着疫苗副作用的逐渐显现，这些企业将因此背负庞大的债务。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-72.jpg)
+参考链接：
+[Businesses’s In New South Wales (NSW) Will Be Held Accountable](https://www.zerohedge.com/news/2021-10-19/businessess-new-south-wales-nsw-will-be-held-accountable)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

@@ -2,47 +2,33 @@
 ---
 
 
-## 澳洲特别委员提出12项加密货币发展建议
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1609943/)
+## 中共国“自干五”博主：民族主义的“爱国”网红
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1610092/)
 
-作者：走进澳洲，文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/10/121091634_china_nationalist_weibo_influencer_illustration_1_v2.jpg)中共国“自干五”博主：民族主义的“爱国”网红 网络图片
+据BBC中文网10月21日报道，一位名叫“孤烟暮蝉”、拥有640万微博粉丝的博主时常在中共国的社交媒体微博上发布有关热点时政和社会话题的帖文和影片，抨击美国并宣扬爱国主义。她自称为“自干五”。在中共国，“五毛”曾是对网评员的贬义称呼，用来讽刺政府雇佣的水军每发一帖能赚五毛钱。“自干五”即“自带干粮的五毛”。 区别是，她是“自愿”发帖的博主。
 
+在中共国社交媒体上，像“孤烟暮蝉”一样的“自干五”还有很多，该群体的崛起与中共国近年的民族主义浪潮密切相关。他们会用尖刻的语言对西方国家和媒体口诛笔伐。对女权主义、LGBTQ到民主和人权，再到西方思想对中共国社会的“侵蚀”等诸多方面发声。
 
+这些“自干五”攻击的目标包括被视为支持“分裂主义”的人，比如台湾和香港的民主运动人士以及活动家、中共国国内的“公知”和专家们。包括记录武汉新冠疫情的作家方方，武汉新冠爆发封城后在网上寻求帮助的居民和在郑州洪水后悼念亡者的亲属，还有知名医生张文宏。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+这些账号每天可以发布几十个简短但情绪化的帖子，迅速传播，形成一种快餐民族主义。许多“自干五”很年轻，在充满爱国主义和自豪感的教育中长大，并接受了关于民族屈辱的历史教育。他们反外又亲华，强调中国文化和身份的重要，两种情绪交织在一起呈爆炸式发酵。
 
+中共对普通民众的网络监控日趋严格，微博和微信上的敏感内容经常被消失，而这些“自干五”博主却异军突起。目前尚不清楚这些“自干五”是否与中共政府有直接联系，但一些人已被地方政府邀请参加活动，或授予荣誉称号。“孤烟暮蝉”曾参加山东烟台市政府组织的活动和官媒中青网举办的演讲，并在今年7月被广东省任命为“广东网络文明宣传大使”之一。
 
+当局也会通过让“自干五”做演讲为其做意识形态工作，推动这些博主成为成功的偶像和（宣传）的榜样。许多网红利用这个机会获利。这些爱国网红可能没有直接从国家拿到报酬，但他们可通过官方媒体扩大影响并发展为自己的个人品牌，从广告或付费内容中获得收入。通常一个拥有100多万粉丝的微博账户每年可以赚取几百万人民币。
 
-据雅典娜农场引述Financial Review10月20日的消息，澳大利亚金融和科技特别委员会向联邦政府提出了12项建议，以发展本地的加密货币和区块链社区。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-105.jpg)
-建议包括，为数字货币交易所建立市场许可制度；建立一个具有最低标准的数字资产保管或存管制度；开展“代币摸底”工作，确定澳大利亚数字资产代币的最佳方式；建立新的去中心化组织机构；澄清反洗钱和反恐融资法规，以令法规不会破坏创新； 修改资本利得税制度；修改法律，鼓励在澳大利亚从事数字资产”开采”和相关活动的企业；审查澳大利亚中央银行数字货币零售的可行性；要求澳大利亚储备银行根据斯科特·法雷尔（Scott Farrell）的报告，为新的支付平台制定共同的接入要求；建立全球市场激励机制，在明年年底前取代离岸银行单位制度。
+当中共盗国贼集团与西方国家关系紧张时，中国人民就是中共最强大的保护伞。中共会在国内呼吁爱国主义、民族主义，鼓励不明真相的民众站起来攻击美国和西方国家，宣传所谓的敌人亡我之心不死，洗脑普通的民众成为中共的挡箭牌。这些拿着小喇叭整天为残暴独裁的中共高唱赞歌的小粉红，其实也活得胆战心惊。口若悬河之时，稍有一个不留神，一句口误，轻则封号，失去赚钱的平台，重则消失得无影无踪，连一点痕迹都不会留下。中共的体制下，不管你是唱赞歌还是闭口不言，都不会给你带来安全，每个人都会随时遭遇灭顶之灾。
 
-在全球加密货币领域蓬勃兴旺之际，相关规范的研究和出台，将为喜币的良好运作提供更好的发展空间。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-12.jpg)
-参考链接：
-1.[The 12-point plan to bring crypto to the fore](https://www.afr.com/companies/financial-services/the-12-point-plan-to-bring-crypto-to-the-fore-20211020-p591kt)
-2. [Scott Farrell](https://www.kwm.com/en/au/people/scott-farrell)
+新闻参考链接：[https://www.bbc.com/zhongwen/simp/chinese-news-58950461?at\_medium=RSS&at\_campaign=KARANGA](https://www.bbc.com/zhongwen/simp/chinese-news-58950461?at_medium=RSS&amp;at_campaign=KARANGA)
 
-（本文仅代表作者观点）
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：飞虹
-编辑：山本不惑
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

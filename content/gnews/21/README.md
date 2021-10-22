@@ -2,23 +2,17 @@
 ---
 
 
-## 秘翻在线：美众议院表决认定班农藐视国会
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1610242/)
+## 拜登：美国将保卫台湾不受中(共)国影响
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1610298/)
 
-#### 翻译/撰稿：zzballack
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1022-1.jpg)图片来自futuribles
+10 月 21 日 – 美国总统乔拜登在 CNN 的一场辩论中说到：美国将保护台湾免受中(共)国的任何侵略。
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/10/https___d1e00ek4ebabms.cloudfront.net_production_027c89ad-d8ea-48c9-9c36-de5a0672ffe7.jpg)图片来源：福布斯
-据《路透社》（Reuters）10月22日报道，美国国会众议院10月21日经过投票表决后，支持以藐视国会的罪名起诉前任总统川普的长期顾问史蒂夫·班农(Steve Bannon)先生，因班农抗拒由调查1月6日美国国会大厦受袭事件的特别委员会发出的传票。
+在拜登谈到保卫台北免受北京可能发动的袭击时说：“我们对此有承诺，美国已经就保护加拿大和欧洲的北约盟国做出了神圣的承诺，这同样也适用于日本、韩国和台湾”。
 
-在民主党掌控的众议院，这一藐视国会指控的决议以229赞成、202票反对获得通过，其中丽兹·切尼（Liz Cheney）和亚当·金辛格（Adam Kinzinger）等九名共和党议员投了赞成票。该决议在获得众议院议长南希·佩洛西（Nancy Pelosi）签署后将被递交至美国司法部，后者将就是否起诉作出决定。藐视国会罪可能被判处罚款和最多12个月的监禁。
+免责申明：本文只代表译者观点，与Gnews无关
 
-近年来，美国司法部没有对转来的其他藐视指控采取行动。美国司法部长梅里克·加兰 (Merrick Garland) 10月21日早些时候在众议院司法委员会举行的监督听证会上说，如果众议院投票赞成就班农藐视国会提起指控，司法部将秉持一贯的做法，即根据相关事实和适用的法律做出符合起诉原则的决定。
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/10/22/biden-gli-usa-difenderanno-taiwan-dalla-cina\_c0c0896e-7e7d-4328-9fa1-1ea85e78dc53.html](https://www.ansa.it/sito/notizie/topnews/2021/10/22/biden-gli-usa-difenderanno-taiwan-dalla-cina_c0c0896e-7e7d-4328-9fa1-1ea85e78dc53.html)
 
-1月6日事件专门委员会（Jan. 6 committee）曾向班农发出传票，但班农拒绝传票中有关搜索文件和提供证词的要求，理由是川普坚持认为他的通信应受行政特权法原则的保护。
-
-这件事情涉及美国两党之争，所以不多评价。但是美国政坛应把精力放在对外御敌上，尤其是中共。在中共病毒肆虐、疫苗伤害数不胜数，而且中共在高超音速导弹上有了新的突破，并准备对西方发起金融战的情况下，美国的经济和国家安全岌岌可危。中共乐见美国两党内部争斗、彼此互耗。拜登政府如果延续对中共的软弱绥靖政策只会让其愈加猖狂。
-
-美国的沦陷令人唏嘘。从川普上任之后一系列荒唐无果的弹劾案，到针对班农先生的打着法律幌子的政治迫害，每一个心怀正义的人都应该发出愤怒的呐喊！班农先生，美国爱国者、真正的英雄、新中国联邦的缔造者、中国人民真正的朋友，我们永远站在你身后！！
-
-新闻来源：[U.S. House holds Trump ally Bannon in contempt, seeks prosecution](https://www.reuters.com/world/us/us-house-edges-toward-contempt-charges-against-trump-aide-bannon-2021-10-21/)
+责任编辑/发布：意大利达芬奇农场   萧亦

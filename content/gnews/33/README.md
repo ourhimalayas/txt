@@ -2,29 +2,36 @@
 ---
 
 
-## 909万毕业生涌入社会，青年失业率创新高
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1609994/)
+## 比特币价值暴跌 87%，投资者的一分钟噩梦
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1610101/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/de9b4256da5e4a7c9d6c53acc89abd28.jpg)909万毕业生涌入社会，青年失业率创新高 网络图片
-据大学府10月20日报道，2020年有874万大学毕业生进入社会，2021年猛增到909万人，预计2022年会接近千万人。但是2019年，中共国有超过100万家企业倒闭，2020年注销的企业数量达到80万家。2021年估计更严重，因为中共国政府打压教培行业，超过14万家教培企业注销，千万从业者失业。
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/29-sep-3.jpg)图片来源：bitcoinist.com
+#### 编译：小红帽
 
-2021年上半年城镇失业率5.2%，仅新增就业者698万人，甚至不及当年毕业的大学生数量多。16-24岁的青年人在2021年7月份失业率上涨到16.2%，比6月份提高了0.8%，而6月份又比5月份上升1.6个百分点，失业率也是逐月攀升的。截至2020年末，就业人口达到7.5亿，再加上909万毕业生，整个就业人口已经达到7.6亿人，但是就业岗位远远不足。截至2021年7月，有2亿人没有稳定的工作。
+比特币投资者昨晚受到了惊吓，当下流行的加密货币–比特币的价值暴跌了 87%。
 
-就业形势严峻迫使有些毕业生选择“躲避”。2021年只有56.9%的大学毕业生就业，有42.5%的人首选国有企业，44%的人选择规模在500-9999人的中型企业。15.8%选择了自由职业，12.8%选择慢就业，9.5%选择考研读博。
+昨晚，在交易平台Binance.US上，比特币在不到一分钟的时间内从接近历史记录的65,815美元跌至8,200美元。
 
-毕业即失业，是中共国就业市场的一个特点。中共国的吸血体制决定了不可能有普遍存在且良性发展的企业可供年轻人选择。中共国最稳定的行业是公务员，加上当下社会就业形势每况愈下，便出现了大量毕业生涌入到考公行列的现象，可以借着政府的淫威盘剥百姓。最挣钱的行业是能帮助盗国贼家族洗钱的各种金融机构、银行及国有企业。普通百姓家的孩子即使上了大学，没有关系和经济的支撑，在社会上也很难有生存的空间。很多大学毕业生不得不放弃专业，选择送外卖、跑出租糊口。
+价格很快恢复到接近其原始价值，随后，Binance承认系统发生了故障。
 
-中共制造并释放冠状病毒后，加上疫苗灾难，全球经济遭到了致命的打击，处在崩溃的边缘，尤其是中共国。因为能源短缺和外汇枯竭，即将到来的冬天会格外寒冷。墙内的民众，为了你们的孩子能吃得饱穿得暖，有一份可以生存的工作，站起来推翻中共，这是未来你们的孩子能够生存下去唯一的选择。
+该公司在给商业内幕(Markets Insider)的一份声明中表示：“我们的一位机构交易员向我们表示，他们的交易算法存在错误，这似乎是造成抛售的原因。”
 
-新闻参考链接：[https://c.m.163.com/news/a/GMNHEJN00552CPEQ.html?spss=newsapp](https://c.m.163.com/news/a/GMNHEJN00552CPEQ.html?spss=newsapp)
+此前，**币安（Binance）首席执行官赵长鹏警告称，加密货币会出现极端波动。**
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+“预计未来几个月加密货币的波动性会非常大，”赵先生（也被称为 CZ）在推特写道。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+**尽管摩根大通首席执行官杰米·戴蒙（Jamie Dimon）仍继续批评加密货币，称比特币“一文不值”，**但一些投资者现在预测比特币会有更大的涨幅。
 
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-编辑：【英国伦敦喜庄园编辑部】
+**参考新闻：**[Rough minute for Bitcoin investors as value plummets 87 per cent (msn.com)](https://www.msn.com/en-au/news/world/rough-minute-for-bitcoin-investors-as-value-plummets-87-per-cent/ar-AAPOBdy?ocid=msedgdhp&amp;pc=U531)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
