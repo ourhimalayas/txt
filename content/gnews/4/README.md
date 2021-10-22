@@ -2,31 +2,29 @@
 ---
 
 
-## 新冠感染防治方案详解
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1609900/)
+## 909万毕业生涌入社会，青年失业率创新高
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1609994/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-7.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/de9b4256da5e4a7c9d6c53acc89abd28.jpg)909万毕业生涌入社会，青年失业率创新高 网络图片
+据大学府10月20日报道，2020年有874万大学毕业生进入社会，2021年猛增到909万人，预计2022年会接近千万人。但是2019年，中共国有超过100万家企业倒闭，2020年注销的企业数量达到80万家。2021年估计更严重，因为中共国政府打压教培行业，超过14万家教培企业注销，千万从业者失业。
 
-作者: 纽约香草山医疗部 – 圣母院钟声等
+2021年上半年城镇失业率5.2%，仅新增就业者698万人，甚至不及当年毕业的大学生数量多。16-24岁的青年人在2021年7月份失业率上涨到16.2%，比6月份提高了0.8%，而6月份又比5月份上升1.6个百分点，失业率也是逐月攀升的。截至2020年末，就业人口达到7.5亿，再加上909万毕业生，整个就业人口已经达到7.6亿人，但是就业岗位远远不足。截至2021年7月，有2亿人没有稳定的工作。
 
-本详解是由新中国联邦香草山农场医疗部的Église(圣母院钟声)医生和战友们根据郭文贵先生爆料，参照FLCCC, Zelenko, Fareed及McCulough方案翻译，并综合众多对该方案提问后，以简明，易懂的方式列举出几种不同需要的预防/治疗药物用法。该详解仅供参考，因为个体差异，药物效果不一。如有不适，使用者应向自己的医生咨询。对方案有疑问的，请先咨询再决定如何用药，如个人错误使用药物或剂量，Gettr, 香草山农场医疗部均不承担法律责任。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/新冠预防-1-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/感染轻-中症治疗-1-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/补充事项-1-scaled.jpg)
-审稿：圣母院钟声
+就业形势严峻迫使有些毕业生选择“躲避”。2021年只有56.9%的大学毕业生就业，有42.5%的人首选国有企业，44%的人选择规模在500-9999人的中型企业。15.8%选择了自由职业，12.8%选择慢就业，9.5%选择考研读博。
 
-编辑：圣母院钟声
+毕业即失业，是中共国就业市场的一个特点。中共国的吸血体制决定了不可能有普遍存在且良性发展的企业可供年轻人选择。中共国最稳定的行业是公务员，加上当下社会就业形势每况愈下，便出现了大量毕业生涌入到考公行列的现象，可以借着政府的淫威盘剥百姓。最挣钱的行业是能帮助盗国贼家族洗钱的各种金融机构、银行及国有企业。普通百姓家的孩子即使上了大学，没有关系和经济的支撑，在社会上也很难有生存的空间。很多大学毕业生不得不放弃专业，选择送外卖、跑出租糊口。
 
-发稿：圣母院钟声
+中共制造并释放冠状病毒后，加上疫苗灾难，全球经济遭到了致命的打击，处在崩溃的边缘，尤其是中共国。因为能源短缺和外汇枯竭，即将到来的冬天会格外寒冷。墙内的民众，为了你们的孩子能吃得饱穿得暖，有一份可以生存的工作，站起来推翻中共，这是未来你们的孩子能够生存下去唯一的选择。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-6.jpg)
+新闻参考链接：[https://c.m.163.com/news/a/GMNHEJN00552CPEQ.html?spss=newsapp](https://c.m.163.com/news/a/GMNHEJN00552CPEQ.html?spss=newsapp)
 
-**更多资讯，更多关注**
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+编辑：【英国伦敦喜庄园编辑部】
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-7.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

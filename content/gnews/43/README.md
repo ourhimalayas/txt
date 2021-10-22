@@ -2,27 +2,40 @@
 ---
 
 
-## 有声|英国中学接种计划后多地爆发猝死病例
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1609197/)
+## NIH打脸福奇，承认武汉病毒研究所进行功能增强试验
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1609354/)
 
-配音：香草山美食部 – 玫瑰园
+**撰稿：日本东京方舟农场 北极**
 
-位于英格兰埃塞克斯郡的约翰国王中学，所有的人都沉浸在巨大的悲痛和惊恐不安中。周一10月18日，校长通过信件公告了一条讣告， 12年级的一名少年，在无预兆的情况下于睡梦中死亡。此时距离毒针接种队进驻该学校，执行新冠疫苗计划不足两周。
+10月20日，NIH（国家卫生研究院）首席副主任致信众议院监督委员会詹姆斯·科默（James Comer），承认NIH批准并资助了纽约生态健康联盟和武汉病毒研究所，对蝙蝠冠状病毒进行功能增强试验。
 
-上周二，位于莱斯特郡Moat学校的一名11岁女孩因突发心脏骤停昏倒，虽然空中救援直升机和救护车很快抵达，但女孩不久后就去世了。随后该市 议会 召开了紧急会议，从10月14起，训练有素的辅导员将在各学校临阵以待，为可能突发的事件提供援助。
+据布赖特巴特报道，NIH首席副主任劳伦斯·塔巴克（Lawrence A. Tabak）博士在致众议院监督委员会詹姆斯·科默（James Comer）的信中说，NIH资助了2018-2019年期间纽约生态健康联盟与武汉病毒研究所合作的一项研究，该研究包括对蝙蝠冠状病毒基因组测序，同时还测试了”蝙蝠冠状病毒的刺突蛋白是否能够与人源化小鼠的ACE2受体结合”的试验。而后者正是病毒功能增强试验，它提高了蝙蝠冠状病毒对人体的致病性。
 
-短短几个月，英美国家已出现多起青少年突发死亡的悲惨事件，而与此同时，辉瑞制药却在向FDA 和其他国家药监局施压，快速推进为低龄儿童接种新冠疫苗。9月中旬主媒已为下一轮屠戮做足了铺垫。邪恶集团最快将于万圣节期间，将死亡魔爪伸向5至11岁儿童。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/w1280-p4x3-2021-02-18T202805Z_159612348_RC28VL9CU65H_RTRMADP_3_HEALTH-CORONAVIRUS-FAUCI.jpg)图片来自于网络
 
-文字版原文：[英国中学接种计划后多地爆发猝死病例](https://gnews.org/zh-hans/1604537/)
+另据 GNEWS 7月25日报道，参议员兰德·保罗（Rand Paul）曾两次在国会质疑福奇是否资助了纽约生态健康联盟和武汉病毒研究所的功能增强试验，均遭对方否认。
 
-音频处理：喜山必胜Maverick
+*注：本文仅代表作者观点，与 Gnews无关*
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*参考链接：*
+
+[NIH Contradicts Fauci, Admits Funding Gain-of-Function Research at Wuhan Lab](https://www.breitbart.com/politics/2021/10/20/nih-contradicts-fauci-admits-funding-gain-of-function-research-at-wuhan-lab/)
+
+
+
+> [参议员兰德·保罗，福奇的撒谎行为来自于精英主义](https://gnews.org/zh-hans/1421026/)
+
+
+
+
+
+> NIH corrects untruthful assertions by NIH Director Collins and NIAID Director Fauci that NIH had not funded gain-of-function research in Wuhan.
+> 
+> NIH states that EcoHealth Alliance violated Terms and Conditions of NIH grant AI110964. [pic.twitter.com/cFOtJlRoWl](https://t.co/cFOtJlRoWl)
+> — Richard H. Ebright (@R\_H\_Ebright) [October 20, 2021](https://twitter.com/R_H_Ebright/status/1450947395508858880?ref_src=twsrc%5Etfw)
+
+
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

@@ -2,32 +2,42 @@
 ---
 
 
-## 美国立法者表示，不能信任Facebook管理加密货币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1609566/)
+## 英国国会议员和同行呼吁议会的养老基金，停止中共国投资
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1609619/)
 
-据《路透社》作者：Kanishka Singh，2021年10月19日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-409-e1634865832689.png)在这张2020年4月17日拍摄的图片插图中，一个3D打印的Facebook标志和加密货币的代表物呈现在一块主板上。图片来源：路透社/Dado Ruvic
-《路透社》10月19日 —— 一群美国立法者表示，不能信任脸书（Facebook）公司管理加密货币，并敦促该社交媒体平台，立即停止其周二推出的名为Novi的加密货币钱包的小型试点。
+据《卫报》作者：Patrick Wintour，2021年10月19日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-415-e1634868650416.png)图片来源：《卫报》
 
-美国民主党参议员Brian Schatz、Sherrod Brown、Richard Blumenthal、Elizabeth Warren和Tina Smith对Facebook两年来推出加密货币和数字钱包的努力表示了反对。
+（英国）137名立法者致信敦促基金放弃持有被指控侵犯人权或与中共国政府有关联的公司的股份。
 
-“Facebook再次在激进的时间表上推行数字货币计划，并且已经启动了一个支付基础设施网络的试点，尽管这些计划与实际的金融监管环境不符。”参议员在给Facebook首席执行官马克·扎克伯格的信中写道。
+**一个由超过137名议员组成的跨党派团体，包括117名议员，呼吁议会的养老基金从涉嫌严重侵犯人权的中共国公司或与中共国国家有关的机构中撤资。**
 
-参议员们写道：“当Facebook现有的管理风险和保证消费者安全的能力被证明完全不足时，不能信任它管理支付系统或数字货币。”
+签名者包括影子外交大臣丽莎·南迪（Lisa Nandy），以及前保守党内阁部长利亚姆·福克斯（Liam Fox）、伊恩·邓肯·史密斯（Iain Duncan Smith）和诺曼·泰比特（Norman Tebbit）。其他人包括自由民主党外交事务发言人莱拉·莫兰和影子外交部长斯蒂芬·金诺克。保守党议员大卫·阿梅斯也是签名者，这是他在周五去世前最后的政治行为之一。
 
-参议员们的这封信表明，即使是Facebook的加密货币钱包的小规模试点也将面临立法者和监管机构的审查，他们之前已经针对Facebook提出了反垄断和其他问题的担忧。
+在给基金受托人写信之前，维权组织“香港观察”的研究发现，议会供款养老基金有290万英镑投资于中国电子商务公司阿里巴巴，90万英镑投资于科技集团腾讯，以及投资于中国建设银行和中石化，即化工和石油公司。
 
-Novi公司的一位发言人说：“我们期待着Facebook对委员会的来信作出回应。”
+信中指出，“除了是中国最大的两家科技公司外，阿里巴巴和腾讯还经常与中共国国家合作，通过‘长城’维持互联网审查制度，并向政府提供监视软件的专利，这些软件已被用于对付维吾尔人。”
 
-Facebook在2019年6月公布了一个加密货币项目，作为扩展到电子商务和全球支付的努力的一部分。
+信中强调，作为“中共国国有企业的最大资金来源”，中共国国有银行“在过去十年里在英国购买了大量的战略基础设施”。
 
-但该项目立即遭到全球政策制定者的激烈反对，他们担心这可能会削弱他们对货币系统的控制，助长犯罪，并损害用户的隐私。
+作者声称，“鉴于中共国对英国议员实施的制裁”，对中共国股票的投资是有问题的。
 
-12月，为了重新获得监管部门的批准，该项目被重新命名，其范围进一步缩减为单一美元支持的数字货币。
+3 月，中共国政府对五名国会议员进行了制裁，以报复英国政府制裁涉嫌参与虐待维吾尔穆斯林的一群中共官员。
 
-文章来源:[https://www.reuters.com/technology/us-lawmakers-say-facebook-cannot-be-trusted-manage-cryptocurrency-2021-10-19/?taid=616f6d987778c400018e7b7b&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/technology/us-lawmakers-say-facebook-cannot-be-trusted-manage-cryptocurrency-2021-10-19/?taid=616f6d987778c400018e7b7b&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+在发出取消投资的呼吁之前，上议院和下议院的议长还在9月禁止中共国大使进入议会与所有党派交谈。下议院还在3月投票支持一项动议，将中共国对新疆维吾尔族的迫害称为“种族灭绝”。
 
-翻译：洛杉矶盘古农场 – Mike Li
+一群国会议员的工作人员也就养老基金问题写信给法通保险集团公司（Legal and General）。
+
+工党议员西奥本·麦克唐纳（Siobhain McDonagh）是主要的签名者，也是财政部特别委员会的成员。他说，“当世界上出现了如此压倒性的严重侵犯人权的证据时，没有人可以视而不见。”
+
+“但我们也必须扪心自问，同谋意味着什么，这就是为什么我得知我们自己的养老基金投资于与国家关系密切的中共国机构时感到震惊。如果我们旁观，历史会谴责我们不可饶恕的懦弱，并问那些当权者为什么不采取行动。温馨的话语根本不够，因为这一次没有人可以说他们不知道。”
+
+香港观察的高级政策顾问和报告的共同作者山姆·古德曼（Sam Goodman）说，“如果推动道德投资和使英国成为环境和社会治理的世界领导者是有意义的，那么国会议员必须确保他们自己的养老金不被投资于破坏人权的公司，并再次考虑提出立法来监管这个行业。”
+
+原文连接：[https://amp.theguardian.com/politics/2021/oct/19/drop-chinese-investments-mps-and-peers-tell-parliaments-pension-fund?\_\_twitter\_impression=true](https://amp.theguardian.com/politics/2021/oct/19/drop-chinese-investments-mps-and-peers-tell-parliaments-pension-fund?__twitter_impression=true)
+
+翻译：洛杉矶盘古农场 – TrueSky
+
 校对/编辑：洛杉矶盘古农场 – 明子
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉磯盤古農場歡迎您加入:(或點擊上方圖片）
