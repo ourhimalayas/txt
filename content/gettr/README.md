@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/22/2021 3:44 PM (UTC)`
+
+10月22号：发通缉令的前奏……
+![img](https://media.gettr.com/group32/getter/2021/10/22/15/419dcd24-fec4-7782-ecfb-acaed1b76ce0/e26fafccd71b0060bd26b53b078d65e3.jpg)
+
+---
+
 `@miles 10/22/2021 12:36 PM (UTC)`
 
 文贵大直播 六中全会定调明年二十大   大企业家境房地产大事   谁操纵股票大鳄割韭菜   社交媒体变化盖特在腾飞
@@ -290,13 +297,6 @@ Tu Youyou said Artemisia annua has many other efficacies besides treating malari
 
 10/17/2021 Miles Guo: Alvin Jiang was abducted in Singapore and sent back to the Communist China right in front of the Jiang family, and he was required to bring back all his assets from overseas. The investigation on Fu Zhenghua shows that the CCP can enforce laws and carry out operations in Canada as if they are in the Communist China<br/><br/>10/17/2021 文贵直播：江志成是当着江家的面从新加坡被绑架回中共国的，他被要求从海外拿回所有的财产；对傅政华的调查反映出中共在加拿大的“执法”跟其在国内执法没什么两样！<br/>
 ![img](https://media.gettr.com/group45/getter/2021/10/18/02/24/dfa93c53-4547-24c7-5dd1-ecd53971e2fa/out.jpg)
-
----
-
-`@miles 10/18/2021 1:03 AM (UTC)`
-
-2021年10月17号，这是去年发出的有关被王岐山和孟建柱．UBS银行和瑞士的这家AMAC公司黑掉了我们基金的飞机的视频，当时被YOUTUBE 删掉了！今天我们再回看这个视频的时候意义重大。接下来我们会在上厕所的时间把这家飞机装修公司的涉嫌恐怖主义洗黑钱和叙利亚的各个恐怖组织联系的证据推出来，让他接受国际上法律的审判。【2018年10月10日：这个来自黎巴嫩的(马黑地)是AMAC飞机装修公司的主席！他与UBS银行孟宏伟．海航一起共同策划了这起骇人听闻的诈骗抢劫案！这是我们十二年的心血．我付出了一亿一千万现金创造的世界上唯一的中式厨房！用碳纤维．莲花的图腾．爱马仕特制皮革．用中国五行风水概念世界级唯一以中国元素的现代空中艺术品！我会专门直播详细介绍盗国贼是如何操纵这一切的！】
-![img](https://media.gettr.com/group8/getter/2021/10/18/01/03/405202fc-6d3b-857e-b9c2-fedcc09c64ab/out.jpg)
 
 ---
 
