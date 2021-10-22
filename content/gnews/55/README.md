@@ -2,34 +2,21 @@
 ---
 
 
-## 波音公司员工示威抗议强制接种疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1608012/)
+## 美驻华大使提名人伯恩斯：在台湾问题上不能信任中国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1608059/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/boeing.jpg)图片来源：aljazeera.com
-#### 编译：小红帽
+#### 撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-111.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fs.rfi.fr%2Fmedia%2Fdisplay%2Fb6424a64-befc-11eb-857a-005056bff430%2Fw%3A1280%2Fp%3A16x9%2Fbes_0.webp&amp;imgrefurl=https%3A%2F%2Fwww.rfi.fr%2Fcn%2F%25E4%25B8%25AD%25E5%259B%25BD%2F20210527-%25E7%25BE%258E%25E5%259B%25BD%25E9%25A9%25BB%25E5%258D%258E%25E5%25A4%25A7%25E4%25BD%25BF%25E6%2588%2596%25E6%259C%2589%25E8%25B0%25B1%25E4%25BA%2586-%25E6%258B%259C%25E7%2599%25BB%25E9%2580%2589%25E4%25B8%25AD-%25E9%25B9%25B0%25E6%25B4%25BE-%25E4%25BC%25AF%25E6%2581%25A9%25E6%2596%25AF&amp;tbnid=ngDvEwkJVKYtvM&amp;vet=12ahUKEwin95HTvtrzAhXtxosBHV2OBFUQMygDegUIARCgAQ..i&amp;docid=dwpHvyVwnS2J6M&amp;w=1280&amp;h=720&amp;q=%E5%B0%BC%E5%8F%A4%E6%8B%89%E6%96%AF%C2%B7%E4%BC%AF%E6%81%A9%E6%96%AF&amp;ved=2ahUKEwin95HTvtrzAhXtxosBHV2OBFUQMygDegUIARCgAQ#imgrc=ngDvEwkJVKYtvM&amp;imgdii=IFgy8li97U-mWM)
+法国国际广播电台10月21日报道，美驻华大使提名人尼古拉斯·伯恩斯在周三参议院听证会上谈到台湾局势称，不能相信中共政府，美国的责任是继续为台湾提供军备以加强其防御，让台湾成为中共强硬的对手。
 
-周三，波音公司的员工于伯克利的前总部对面参加了一场示威活动，以表达他们对疫苗接种要求的不满。
+伯恩斯是一位资历深厚的老牌外交官，星期三，在参院听证会上，他非常严厉地谴责中共政权，对日本、印度、越南、菲律宾等国家进行侵略，恐吓澳大利亚，威胁亲近台湾的立陶宛。他表示，中共在新疆的种族灭绝、在西藏的暴力行为、对香港自治和自由的镇压以及对台湾的霸凌都必须停止。他总结说：中共朋友很少，没有真正的盟友。
 
-波音员工最近收到了即将实施疫苗接种要求的通知。
+信息来源：
 
-“我们被告知必须在12月8日之前接种疫苗，”示威者蒂姆·布洛克（Tim Block ）表示。 “我们还没有被告知12月8日之后会发生什么。”
+[拜登提名驻华大使伯恩斯姿态强硬：在台湾问题上不能信任中国](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211020-%E6%8B%9C%E7%99%BB%E6%8F%90%E5%90%8D%E9%A9%BB%E5%8D%8E%E5%A4%A7%E4%BD%BF%E4%BC%AF%E6%81%A9%E6%96%AF%E5%A7%BF%E6%80%81%E5%BC%BA%E7%A1%AC-%E5%9C%A8%E5%8F%B0%E6%B9%BE%E9%97%AE%E9%A2%98%E4%B8%8A%E4%B8%8D%E8%83%BD%E4%BF%A1%E4%BB%BB%E4%B8%AD%E5%9B%BD)
 
-波音公司员工克里斯·西格 (Chris Seager) 表示，是否接种疫苗应该是个人的决定。这不应该成为就业的一个条件。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-该授权源于一项影响联邦工作人员和国防承包商的联邦命令。
-
-波音公司回应Fox 2的评论请求，并发表声明称：“波音公司致力于为我们的员工维持一个安全的工作环境，促进全球员工的健康和安全是我们价值观的基础，也是我们每天的核心优先事项。”
-
-一些员工告诉Fox 2，他们将寻求宗教豁免。示威者表示，他们准备在未来举行更多的抗议活动。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Demonstrators protest vaccine requirement at Boeing (fox2now.com)](https://fox2now.com/news/missouri/demonstrators-protest-vaccine-requirement-at-boeing/)
-
-***发布：小红帽*****更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

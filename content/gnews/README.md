@@ -15,112 +15,112 @@
 
 ---
 
-### [对世界各国政府机构和华尔街的基金的警告](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [新冠感染防治方案详解](/content/gnews/1/README.md)
+ ` 纽约香草山MOS03`
 
-### [日本医护人员或将面临超过中共病毒的风险被接种第三针](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭文贵先生2021年10月21日盖特视频（9分47秒）全文字版](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [他的竞选官米勒说：特朗普正式宣布再度竞选总统](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭文贵先生10月20日大直播概要](/content/gnews/5/README.md)
+### [文贵先生：比特币一定会消亡、喜币白皮书的价值以及喜币同喜美元挂钩的意义](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国政府将禁止向中共国和俄罗斯出口黑客技术](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中国私人企业家支持新中国联邦是唯一出路](/content/gnews/7/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [财新网被中国最新版信息稿源“白名单”除名](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美法土等43国在联合国发表联合声明 对中共打压维吾尔人表示关切](/content/gnews/9/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共窃取外国技术并单方面毁约实例一](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2021年10月21日郭先生盖特 — 视频盖特1「9分47秒」](/content/gnews/11/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [澳洲航空提前开放国际旅行，要求旅客完全接种疫苗](/content/gnews/12/README.md)
- ` 走进澳洲`
-
-### [中共疫情最新动态解读](/content/gnews/13/README.md)
- ` 澳喜农场`
-
-### [爆料革命对全世界的公告](/content/gnews/14/README.md)
+### [习近平即将要发动穷人斗地主杀土豪](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [国际要闻汇编](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [10月21日 澳喜要闻今日摘要](/content/gnews/16/README.md)
- ` 澳喜农场`
-
-### [为何完全接种疫苗的人仍然死于中共病毒？](/content/gnews/17/README.md)
- ` 澳喜农场`
-
-### [GETTR首席执行官杰森·米勒的声明](/content/gnews/18/README.md)
- ` GTV新闻访谈`
-
-### [英国国会议员和同行呼吁议会的养老基金，停止中共国投资](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [对抗政府的强制疫苗护照是我们捍卫自己民主自由的重中之重](/content/gnews/20/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [美国NBA球星点名谴责习近平残暴统治西藏](/content/gnews/21/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [西南航空由于航班取消 本月损失七千五百万美元](/content/gnews/22/README.md)
+### [秘翻在线：北九州市大规模增加辉瑞疫苗接种](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国NIH承认资助中共武毒所的病毒功能增强研究](/content/gnews/23/README.md)
+### [对世界各国政府机构和华尔街的基金的警告](/content/gnews/5/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [日本医护人员或将面临超过中共病毒的风险被接种第三针](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北海道新增中共病毒感染人数连续7天上涨](/content/gnews/24/README.md)
+### [郭文贵先生2021年10月21日盖特视频（9分47秒）全文字版](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国立法者表示，不能信任Facebook管理加密货币](/content/gnews/25/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [他的竞选官米勒说：特朗普正式宣布再度竞选总统](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳洲三大银行同一天宣布强制疫苗接种](/content/gnews/26/README.md)
+### [郭文贵先生10月20日大直播概要](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共猛烈抨击欧盟支持改善与台湾关系的决议](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
+### [美国政府将禁止向中共国和俄罗斯出口黑客技术](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [聚焦：中共订购巨量美国天然气](/content/gnews/28/README.md)
- ` 丁过`
+### [中国私人企业家支持新中国联邦是唯一出路](/content/gnews/11/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [10/21/2021 文贵盖特：北京有太多人要干掉习近平，内斗随时将有意外发生，中共将在弹指间脆断！](/content/gnews/29/README.md)
- ` 秘密翻译组-北美组`
+### [财新网被中国最新版信息稿源“白名单”除名](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [GTV新闻访谈简报|2021年10月21日晚](/content/gnews/30/README.md)
- ` 纽约香草山MOS01`
+### [美法土等43国在联合国发表联合声明 对中共打压维吾尔人表示关切](/content/gnews/13/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国医学博士分析如果疫苗含有磁化纳米分子会对脑部造成什么样的影响（下）](/content/gnews/31/README.md)
+### [中共窃取外国技术并单方面毁约实例一](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2021年10月21日郭先生盖特 — 视频盖特1「9分47秒」](/content/gnews/15/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [澳洲航空提前开放国际旅行，要求旅客完全接种疫苗](/content/gnews/16/README.md)
+ ` 走进澳洲`
+
+### [中共疫情最新动态解读](/content/gnews/17/README.md)
  ` 澳喜农场`
 
-### [雅典娜时报-第089期](/content/gnews/32/README.md)
+### [爆料革命对全世界的公告](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [川普媒体Truth Social何去何从](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
+### [国际要闻汇编](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国准备计划为5-11岁儿童接种COVID-19疫苗](/content/gnews/34/README.md)
+### [10月21日 澳喜要闻今日摘要](/content/gnews/20/README.md)
+ ` 澳喜农场`
+
+### [为何完全接种疫苗的人仍然死于中共病毒？](/content/gnews/21/README.md)
+ ` 澳喜农场`
+
+### [GETTR首席执行官杰森·米勒的声明](/content/gnews/22/README.md)
+ ` GTV新闻访谈`
+
+### [英国国会议员和同行呼吁议会的养老基金，停止中共国投资](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [比特币不断挑战新纪录，华尔街再掀加密货币狂潮](/content/gnews/35/README.md)
+### [对抗政府的强制疫苗护照是我们捍卫自己民主自由的重中之重](/content/gnews/24/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [美国NBA球星点名谴责习近平残暴统治西藏](/content/gnews/25/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [西南航空由于航班取消 本月损失七千五百万美元](/content/gnews/26/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国NIH承认资助中共武毒所的病毒功能增强研究](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [北海道新增中共病毒感染人数连续7天上涨](/content/gnews/28/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国立法者表示，不能信任Facebook管理加密货币](/content/gnews/29/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共猛烈抨击欧盟支持改善与台湾关系的决议](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有争议的药物伊维菌素将在埃尔帕索进行临床试验](/content/gnews/36/README.md)
+### [聚焦：中共订购巨量美国天然气](/content/gnews/31/README.md)
+ ` 丁过`
+
+### [10/21/2021 文贵盖特：北京有太多人要干掉习近平，内斗随时将有意外发生，中共将在弹指间脆断！](/content/gnews/32/README.md)
+ ` 秘密翻译组-北美组`
+
+### [GTV新闻访谈简报|2021年10月21日晚](/content/gnews/33/README.md)
+ ` 纽约香草山MOS01`
+
+### [英国医学博士分析如果疫苗含有磁化纳米分子会对脑部造成什么样的影响（下）](/content/gnews/34/README.md)
+ ` 澳喜农场`
+
+### [川普媒体Truth Social何去何从](/content/gnews/35/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国准备计划为5-11岁儿童接种COVID-19疫苗](/content/gnews/36/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [NIH打脸福奇，承认武汉病毒研究所进行功能增强试验](/content/gnews/37/README.md)
@@ -171,36 +171,39 @@
 ### [10/21/2021 国际财经快讯：日本汽油价格连续7周上涨，7年来最高水平; 加密货币行业有了为其量身定制的美国制裁令合规指引](/content/gnews/52/README.md)
  ` 秘密翻译组金融团队`
 
-### [俄中伊与塔利班共同发布联合声明](/content/gnews/53/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美驻华大使提名人伯恩斯：在台湾问题上不能信任中国](/content/gnews/54/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [波音公司员工示威抗议强制接种疫苗](/content/gnews/55/README.md)
+### [大直播7·24——谁是虞锋](/content/gnews/53/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【玫瑰看新闻】第187期 币圈新闻](/content/gnews/56/README.md)
+### [俄中伊与塔利班共同发布联合声明](/content/gnews/54/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美驻华大使提名人伯恩斯：在台湾问题上不能信任中国](/content/gnews/55/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [波音公司员工示威抗议强制接种疫苗](/content/gnews/56/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【玫瑰看新闻】第187期 币圈新闻](/content/gnews/57/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [让雇主承担疫苗接种不良后果，资助科学界为政府代言](/content/gnews/57/README.md)
+### [让雇主承担疫苗接种不良后果，资助科学界为政府代言](/content/gnews/58/README.md)
  ` 走进澳洲`
 
-### [COVID-19最新情报｜政府不愿让人民知道的是 医院正充斥着新冠疫苗接种者](/content/gnews/58/README.md)
+### [COVID-19最新情报｜政府不愿让人民知道的是 医院正充斥着新冠疫苗接种者](/content/gnews/59/README.md)
  ` G&#124;News TAIWAN`
 
-### [白宫计划为2800万5-11岁儿童“快速”接种疫苗](/content/gnews/59/README.md)
+### [白宫计划为2800万5-11岁儿童“快速”接种疫苗](/content/gnews/60/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [阻止中共病毒感染病人获得救命药的人 纽伦堡大审判等着他们](/content/gnews/60/README.md)
+### [阻止中共病毒感染病人获得救命药的人 纽伦堡大审判等着他们](/content/gnews/61/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [焦点：全球汽车产销量暴跌的背后是大危机！](/content/gnews/61/README.md)
+### [焦点：全球汽车产销量暴跌的背后是大危机！](/content/gnews/62/README.md)
  ` 军迷wilson`
 
-### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/62/README.md)
+### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/63/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/63/README.md)
+### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/64/README.md)
  ` 秘密翻译组-北美组`
 

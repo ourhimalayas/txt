@@ -2,16 +2,24 @@
 ---
 
 
-## 西南航空由于航班取消 本月损失七千五百万美元
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1609598/)
+## GETTR首席执行官杰森·米勒的声明
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1609640/)
 
-#### 编译：沙子最怕你不理它
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-69.jpg)图片来源：网络截图
-据合众国际社（UPI）10月21日报道，周四的西南航空收益报告显示受本月初的多天航班延迟和取消的影响，该公司损失了7千5百万美元。
+作者：秘密翻译组
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新中国联邦秘密翻译组10月20日报道，关于前总统唐纳德·川普宣布成立川普媒体与技术团队一事，新自由媒体社交平台Gettr首席执行官杰森·米勒先生发表以下声明:
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image_1634868650.783.jpg.png)
+“祝贺川普总统再次加入社交媒体！现在，Facebook和Twitter将失去更多的市场份额。川普总统一直是一个很好的交易人，但我们却无法就此达成共识。准备好迎接盖特即将推出的新平台功能：盖特直播、GVision短视频和我们的盖特支付系统功能。令人兴奋的新功能将为我们的全球客户提供更好的用户体验。开始下载吧!”
 
-西南航空第三季度总收入比2020年同期增长了161%，但比2019年倒数第二季度的数字低17%。该公司第三季度的净收入为446亿美元，这比许多专家预期的要多。然而该公司称，尽管随着中共病毒病例的下降该公司最近基本收入趋势情况有所改善，但它预计由于第三季度预订速度放缓，估计将对第四季度运营收入产生约1亿美元的负面影响。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-“10月的运营收入包括两个阻力——估计有40万美元的负面影响来自于变种的中共病毒，以及本月早些时候因运营挑战而取消航班的估计7千5百万美元的负面影响。这家经济型航空公司表示，大部分费用来自客户退款、取消航班的收入损失和未指明的“善意行为”
+编辑：飞虹
+校正/发稿：Fei797
 
-新闻来源：[Southwest says it lost $75 million over flight cancellations this month](https://www.upi.com/Top_News/US/2021/10/21/southwest-airlines-cancellations-cost/2161634817742/)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
