@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/22/2021 10:27 PM (UTC)`
+
+10/22/2021 Miles Guo: The period from CCP's 6th Plenary Session to the 20th National Congress is the most dangerous time for Xi; both the Xi faction and the Jiang faction want to eliminate each other; the CCP’s 6th Plenary Session is the time of their final showdown, whether Xi can remain in power or not is full of uncertainty<br/><br/>10/22/2021 文贵直播：六中全会至二十大期间，习面临最大危险；习江两派都想置对方于死地，六中全会是最后摊牌时刻，习能否能连任充满不确定性<br/>
+![img](https://media.gettr.com/group47/getter/2021/10/22/22/27/26ec9981-c52f-b1f6-3841-bbf4773ccf6a/out.jpg)
+
+---
+
 `@miles 10/22/2021 9:47 PM (UTC)`
 
 10/22/2021 Miles Guo: The CCP has got control of Trump by using money means that the CCP still cares about him. Why do the CCP’s despicable tactics of threatening and bribery in Europe and the US always work? ARC, a subsidiary of PAG, served as the financial advisor for the acquisition of Giga Energy, and Bruno Wu signed the contract on behalf of Giga Energy. Such inextricably linked facts have proved the CCP’s conspiracy to frame and attack me via PAG controlled by Bruno Wu<br/><br/>10/22/2021 文贵直播：中共用资本拿下川普说明中共还在乎他，中共在欧美大肆威胁和收买的Low招儿为何屡屡奏效？太平联盟旗下的瑞寰资本是集兆嘉收购项目的顾问，吴征代表集兆嘉签字，如此环环相扣的事实恰恰佐证中共通过吴征操控的太平联盟来诬告、攻击文贵的阴谋<br/><br/>
@@ -35,15 +42,6 @@
 
 The Pacific Alliance Asia Opportunities Fund and Mr. Guo Wengui have been fighting in New York state court for four years over $88 million.Christopher Gradel founded Pacific Alliance Group Ltd, and he is a Non-Executive Director of ARC Capital Holding, ARC Group Ltd is acting as the financial advisor to Giga Energy, and Yunhong International and Giga Energy Inc, announced Execution of Definitive share exchange, Bruno Wu company’s Sun Seven stars group, his brother Bing Wu, and Samuel Nunberg (political advisor of Trump and sued Guo Wengui for defamation) are shareholders of Giga Energy. On SEC report Bruno Wu is the representative of this deal. The CEO of Yunhong who is also the CEO of Digital World (Patrick Orlando), which is now merging with Trump Media.
 ![img](https://media.gettr.com/group18/getter/2021/10/22/20/1d595219-4927-c02a-b5d9-7773f3bf61e3/746ad7aa8d1fba20c23ccbdb69b7450e.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@pandarolling 10/22/2021 12:08 PM (UTC)`
-
-Prince Charles lends encouragement to a group of vaccinated grocers, then one drops dead!查尔斯王子对一群接种疫苗的杂货商给予鼓励，然后有一个人死了!
-![img](https://media.gettr.com/group20/getter/2021/10/22/12/08/5d63fab1-359f-a28f-bcd2-8c662e752319/out.jpg)
 
 ---
 

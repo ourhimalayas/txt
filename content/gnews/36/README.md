@@ -2,15 +2,25 @@
 ---
 
 
-## 文贵爆料（10/22）：中共潜艇在台湾海域多个地点“冒头”
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1610800/)
+## GTV新闻访谈简报|2021年10月22日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1610990/)
 
-#### 撰稿：萌萌的朋克（秘翻 Gnews 原创组）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-6.jpeg)
-郭文贵先生在2021年10月22日的大直播开篇即爆出重磅——中共潜艇在台湾海域多个地点“冒头”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-412.png)
 
-2021年10月22日，台湾当地时间 20:40 左右，共军潜水艇在台湾东部、东北部、东南部的东海海域多个地点“冒头”——既是对台湾的威慑，也是对国际社会的嚣张叫板。郭先生形象地把此举比喻为“流氓在大街上走着走路把裤子脱下来了，露出生殖器一样……”
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-24.png)
+文章仅代表作者本人观点，与Gnews无关
 
-这个消息对于日军、美军而言，意味着共军可能会有更加疯狂的、进一步的行动；对于中共内部，则体现了其内斗加剧、欲利用武统台湾转移全世界对重要问题（例如，病毒溯源、新疆大屠杀、中共国房地产崩盘等）的注意力。
+视频参看：2021.10.22早GTV新闻访谈 [http://\[email protected\]](http://Gettr@MosTrans)
 
-新闻来源：[六中全会定调明年二十大](https://gettr.com/streaming/pevzuhc748)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
