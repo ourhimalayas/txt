@@ -2,35 +2,28 @@
 ---
 
 
-## 特鲁多宣布加拿大正式实行联邦疫苗护照
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610659/)
+## 美国国家卫生研究院承认资助中共武毒所功能增强性研究
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610660/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山农场-蓝天大海
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-10月21日，加拿大总理特鲁多在例行记者会上表示，加拿大将启用新冠疫苗接种的联邦证明系统，最快将于当天在一些地区生效。特鲁多声称，全国13个省份和地区一致同意加入该系统。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1022AM（1、2）視頻備用.002.jpeg)
-据悉，加拿大疫苗护照会显示持有人的姓名、出生日期、疫苗接种历史、包括接种的时间、次数和剂量、以及一个健康卡的二维码，以便民众在加拿大境内及国际旅行时予以出示。
+10月20日，美国国家卫生研究院首席副主任 劳伦斯-塔巴克 在一封信件中承认，美国资助了中共在武汉病毒研究所进行的所谓“功能增强性”研究，但与此相关的生态健康联盟并没有报告过，该项研究创造了一种可以感染人类的冠状病毒。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-22-at-7.57.54-PM.png)
+事实上，在新冠病毒溯源的过程中，美国国家卫生研究院是否曾资助过武毒所一直是舆论关注的焦点。为此，国会曾多次举行听证，并对福奇等相关人士进行调查。 但对于这些调查与追责，福奇本人则一概采取否认态度，甚至声称攻击他就是攻击科学。
 
-此前，加拿大部分地区已经启用了省级疫苗接种证明，作为餐厅、健身房与影院等非必要场所的进入资格证。 如今，特鲁多枉顾加拿大各地反对强制新冠疫苗接种的声音、和对政府践踏人权的抗议浪潮，执意将疫苗护照正式落地，进一步压缩了未接种疫苗人员的活动空间，迫使他们寸步难行。
-
-正如郭先生所说：黑暗已经降临。
+而今，劳伦斯的证词，毫无疑问地给了公众一个明确的答案。美国前国务卿 蓬佩奥在盖特上对此发表评论称，福奇 博士对美国人民不诚实，关于功能增强研究，仍有更多的疑问需要他回答。对此，参议员 汤姆-科顿 也表示，应该在法律允许范围内对福奇进行调查并起诉。
 (本文仅代表作者观点)
 
-参考链接：
-
-1. [纽约警察工会将起诉纽约市疫苗强制令](https://gnews.org/zh-hans/1608786/)
-2. [127名华盛顿州警员因抵制强制疫苗而被解雇](https://gnews.org/zh-hans/1605463/)
-3. [俄克拉荷马州长反对拜登疫苗强制令，称接种是个人自由](https://gnews.org/zh-hant/1606393/)
-
+参考链接：[NIH Admits Funding Gain-Of-Function COVID Experiments; Gives EcoHealth Five Days To Report Data](https://www.zerohedge.com/covid-19/nih-admits-funding-gain-function-covid-experiments-gives-ecohealth-five-days-report)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
 总编：Irene木木 
-编辑：Kathy文艺
+编辑：kathy文艺
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**

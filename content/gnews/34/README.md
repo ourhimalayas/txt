@@ -2,21 +2,42 @@
 ---
 
 
-## 中共学校强制洗脑教育
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1610652/)
+## 特鲁多宣布加拿大正式实行联邦疫苗护照
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610659/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-118.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2F5b0988e595225.cdn.sohucs.com%2Fimages%2F20180513%2Fd0bcbc2011174d57b79a44719436995e.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F231419151_249695&amp;tbnid=GqkqTgH513vnZM&amp;vet=12ahUKEwiA_ZuW9N3zAhXhnUsFHQHTDt8QMygAegUIARCbAQ..i&amp;docid=UjRuRJ2NhiEm3M&amp;w=723&amp;h=482&amp;q=%E6%B4%97%E8%84%91&amp;ved=2ahUKEwiA_ZuW9N3zAhXhnUsFHQHTDt8QMygAegUIARCbAQ)
-教育部网站10月22日消息，各省、自治区、直辖市教育厅（教委），新疆生产建设兵团教育局，部属各高等学校、部省合建各高等学校：国家教材委员会印发了《“党的领导”相关内容进大中小学课程教材指南》，这是首次就“党的领导”相关内容一体化融入大中小学课程教材作出的整体设计，是在大中小学进一步加强“党的领导”教育的重要举措，对于深入推进习近平新时代中国特色社会主义思想进教材进课堂进头脑具有重大意义。
+作者：纽约香草山文艺部 – 宁文静
 
-人的品性基本上取决于他成长过程的两个主要因素：一是成长环境，二是思想教育。中共独裁国从幼小就被强制洗脑灌脑，头脑里唯一的就是共产党的虚无思想，要把国人思想武装成为红卫兵思维。要警惕土共绑架国人，要揭露中共的假恶丑，只有中共灭亡才能把被洗脑的国人拯救出来。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-消息来源：
 
-[国家教材委：“党的领导”相关内容进大中小学课程教材](https://mr.mbd.baidu.com/r/v8mmFt3WsU?f=cp&amp;rs=1417448640&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=b4addbcddabeccfe)
 
-(文章仅代表作者本人观点，与GNEWS无关)
+10月21日，加拿大总理特鲁多在例行记者会上表示，加拿大将启用新冠疫苗接种的联邦证明系统，最快将于当天在一些地区生效。特鲁多声称，全国13个省份和地区一致同意加入该系统。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1022AM（1、2）視頻備用.002.jpeg)
+据悉，加拿大疫苗护照会显示持有人的姓名、出生日期、疫苗接种历史、包括接种的时间、次数和剂量、以及一个健康卡的二维码，以便民众在加拿大境内及国际旅行时予以出示。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+此前，加拿大部分地区已经启用了省级疫苗接种证明，作为餐厅、健身房与影院等非必要场所的进入资格证。 如今，特鲁多枉顾加拿大各地反对强制新冠疫苗接种的声音、和对政府践踏人权的抗议浪潮，执意将疫苗护照正式落地，进一步压缩了未接种疫苗人员的活动空间，迫使他们寸步难行。
+
+正如郭先生所说：黑暗已经降临。
+(本文仅代表作者观点)
+
+参考链接：
+
+1. [纽约警察工会将起诉纽约市疫苗强制令](https://gnews.org/zh-hans/1608786/)
+2. [127名华盛顿州警员因抵制强制疫苗而被解雇](https://gnews.org/zh-hans/1605463/)
+3. [俄克拉荷马州长反对拜登疫苗强制令，称接种是个人自由](https://gnews.org/zh-hant/1606393/)
+
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Irene木木 
+编辑：Kathy文艺
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
