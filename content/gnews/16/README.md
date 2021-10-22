@@ -2,149 +2,31 @@
 ---
 
 
-## 风吹草动
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1610767/)
+## 疫苗灾情｜意大利 18 岁少年接种疫苗2周内突患罕见病
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1610841/)
 
-– 喜玛拉雅美东香草山农场 –
-– 劲风不忘本初 劲草行动笃定 –
-– 善用喜币 善用喜支付就是在行动 –
+**撰文/ 台湾宝岛农场 天滅中共****｜发布日期/ 22/10/2021**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/FCI8Gm-WEAYFXp3.jpeg)图片来源：UK喜庄园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpg)
 
+【意大利】一名 18 岁的少年 Riccardo Ventre 在接种辉瑞 COVID-19 疫苗后的第 15 日被确诊患上格林·巴利综合征（GBS）。
 
-**作者：**澄道来了、正道主义小草
-**编辑：**翼族
+原本 Riccardo 以及他的家人都不愿意接受疫苗，直至 Riccardo 届满 18 周岁，他打工的地方要求他必须接种疫苗，他才无奈于 9 月 28 日打了第一针。
 
-危机一步步逼近
+不幸的是，几日后，他的身体就开始出现多种症状，尤其腿部剧烈疼痛，Riccardo 的家人将他紧急送院诊治，最后被诊断患有 GBS。
 
-紧跟七哥哥莫忘
+目前，他被困在病床上，他已经无法自行站起来。Riccardo 感到悲观，他对母亲说，他的结局可能会非常糟糕，要么完全康复，要么永远这样。
 
-寻山远农庄是在
+据[查询](https://www.christopherreeve.org/zh/international/top-paralysis-topics-in-chinese/guillain-barr%C3%A9-syndrome)，格林·巴利综合征 (Guillain-Barré syndrome) 是一种人体免疫系统攻击部分外周神经系统的疾病。这是一种罕见疾病，发生在患者出现呼吸道或胃肠道受病毒感染的数天或数周后，手术或接种疫苗后亦偶尔会引发该症。该疾病的首发症状包括不同程度的虚弱或腿部的麻刺感，然后这种虚弱和异常感觉会扩散到上臂及上半身。
 
-归避风险
+最糟糕的情形是，随着症状一直加剧，直至肌肉完全丧失功能，患者完全瘫痪，累及心脏部位时，不排除需要戴人工呼吸机辅助。不过，也有不少严重格林-巴利综合征的患者最后康复的案例。
 
-共战友相聚不止
+![](https://assets.gnews.org/wp-content/uploads/2021/10/43-2.jpg)
 
-自身保全
+来源｜[个案043](https://www.sanremonews.it/2021/10/21/leggi-notizia/argomenti/cronaca/articolo/sanremo-15-giorni-dopo-il-vaccino-ricoverato-per-sindrome-neuorologica-asl-indagini-in-corso-su-p.html)
 
-727
+* * *
 
-“吼出灭共舞”
+他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//｜//[美国 35 岁疫苗拥趸孕期接种后致新生儿夭折](https://gnews.org/zh-hans/1605744/)//｜//[澳洲 30 岁夫妇接种疫苗后相继出现心脏疾病](https://gnews.org/zh-hans/1607321/)//
 
-全球示威
-
-在行动
-
-101
-
-“十一终共”
-
-全球大游行
-
-在行动
-
-做直播
-
-“揭真相 线上线下”
-
-劲风劲草
-
-在行动
-
-G系列
-
-“隔空灭共”
-
-虽屡遭阻挠
-
-在行动
-
-不妥协不仅是
-
-在救家人
-
-不妥协更是在
-
-拯救自身
-
-七哥喊话
-
-人在西班牙马云要动
-
-“三马乱华”的
-
-一众人等更要动
-
-抉择新中国联邦
-
-机不可失
-
-唯一活路
-
-七哥呼吁
-
-人在世界各地战友要动
-
-“金融革命”之
-
-用喜币支付第一条内裤
-
-“喜pay”签约
-
-改变世界
-
-源于“指”尖
-
-货币就是去中心化
-
-“流水钱币”最终得益于
-
-自由与民主
-
-钱是有主人的
-
-法币不止是流通性受控
-
-“利益集团”衷情的一定是
-
-权力与独裁
-
-双猫双币破局正道
-
-“品牌代理”已成
-
-历史教科书
-
-夏平女士经历
-
-喻示着
-
-喜支付前景无限
-
-“黄金交易”也将
-
-窥豹一斑
-
-“猫本公司”历史一瞬
-
-演义着
-
-喜币新时代传奇
-
-初衷灭共不泯
-
-风吹草动不止
-
-@ 工作间 作战室
-@ 正道主义小草
-@ 澄道来了
-@ 爱动爱议码10211
-
-**发布：**Janek
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+声明｜本文观点仅为转述来源

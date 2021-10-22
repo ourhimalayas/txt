@@ -2,21 +2,30 @@
 ---
 
 
-## 中共学校强制洗脑教育
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1610652/)
+## 猎巫行动——《解放军报》鼓励中共国民众互相监督 举报间谍
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1610662/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-118.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2F5b0988e595225.cdn.sohucs.com%2Fimages%2F20180513%2Fd0bcbc2011174d57b79a44719436995e.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F231419151_249695&amp;tbnid=GqkqTgH513vnZM&amp;vet=12ahUKEwiA_ZuW9N3zAhXhnUsFHQHTDt8QMygAegUIARCbAQ..i&amp;docid=UjRuRJ2NhiEm3M&amp;w=723&amp;h=482&amp;q=%E6%B4%97%E8%84%91&amp;ved=2ahUKEwiA_ZuW9N3zAhXhnUsFHQHTDt8QMygAegUIARCbAQ)
-教育部网站10月22日消息，各省、自治区、直辖市教育厅（教委），新疆生产建设兵团教育局，部属各高等学校、部省合建各高等学校：国家教材委员会印发了《“党的领导”相关内容进大中小学课程教材指南》，这是首次就“党的领导”相关内容一体化融入大中小学课程教材作出的整体设计，是在大中小学进一步加强“党的领导”教育的重要举措，对于深入推进习近平新时代中国特色社会主义思想进教材进课堂进头脑具有重大意义。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/worldbank_malpassdavid_ahmajunaid_alemaheyumengistu_102619getty-13.jpg)网络图片
 
-人的品性基本上取决于他成长过程的两个主要因素：一是成长环境，二是思想教育。中共独裁国从幼小就被强制洗脑灌脑，头脑里唯一的就是共产党的虚无思想，要把国人思想武装成为红卫兵思维。要警惕土共绑架国人，要揭露中共的假恶丑，只有中共灭亡才能把被洗脑的国人拯救出来。
+**编辑摘要：**据法国国际广播电台10月22日报道，中共军媒《解放军报》官方微博帐号“钧正平工作室”发帖呼吁中共国老百姓举报外国间谍，声称：“维护国家安全，我们唯有相信人民、依靠人民，需要‘朝阳大妈’，也需要‘捞铜渔民’，打一场反间防谍的人民战争，才能让间谍寸步难行，无所遁形！”
 
-消息来源：
+美国有线电视新闻网（CNN）指出，中共国新一轮反间防谍的宣传战有可能加剧已经泛滥的政治猎巫行动。由于中共国政府对“国家安全”的定义粗犷而又模糊，任何被认为“不爱国”的人都有被举报为“间谍”的风险。
 
-[国家教材委：“党的领导”相关内容进大中小学课程教材](https://mr.mbd.baidu.com/r/v8mmFt3WsU?f=cp&amp;rs=1417448640&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=b4addbcddabeccfe)
+报导指出：自从习近平鼓动民族主义，打压民主、自由和司法独立等所谓“西方价值”以来，中共国网络上自由派的言论已被赶尽杀绝，在中共国社媒上，立场略显自由开放的发言者常常被斥责为“叛徒”，甚至是为外国效劳的“间谍”。至于在中共国工作的外国记者和非政府组织雇员看起来就更像“间谍”。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+这条新闻一出，简直令人不寒而栗。中共国目前内忧外患，中共内斗趋于白热化，权力越来越不稳。此举的真实目的就是利用当年文革的“枫桥模式”，发动“群众斗群众”，让民众互相监督，人人为敌，强化中共对全社会和全体人民的集权控制。这种开历史倒车的方式无异于饮鸩止渴，既不可能为中共续命，又会给无辜的百姓带来无限的伤害。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+阅读新闻原文：[政治猎巫——CNN批评解放军报鼓励中国民众举报外国间谍](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211021-%E6%94%BF%E6%B2%BB%E7%8C%8E%E5%B7%AB-cnn%E6%89%B9%E8%AF%84%E8%A7%A3%E6%94%BE%E5%86%9B%E6%8A%A5%E9%BC%93%E5%8A%B1%E4%B8%AD%E5%9B%BD%E6%B0%91%E4%BC%97%E4%B8%BE%E6%8A%A5%E5%A4%96%E5%9B%BD%E9%97%B4%E8%B0%8D)
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
