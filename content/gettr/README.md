@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/22/2021 8:55 PM (UTC)`
+
+太平洋联盟亚洲机会基金和郭文贵先生已经在纽约州法院就8800万美元的诉讼进行了四年，Christopher Gradel创立了太平洋联盟集团有限公司，他是ARC Capital Holding Ltd的非执行董事，ARC Group Limited担任Giga Energy的财务顾问，并宣布与运鸿集团执行最终股份交易，吴征在幕后牵线，他的公司阳光七星集团和他的弟弟Bing Wu 还有Samuel Nunberg(川普的政治顾问,之前告郭文贵先生诽谤)都是Giga Energy公司的股东。在SEC文件上吴征，杨澜是这笔交易的代表。运鸿的首席执行官同时也是Digital World Acquisition的首席执行官(Patrick Orlando)，该公司目前正在与Trump Media合并
+![img](https://media.gettr.com/group31/getter/2021/10/22/20/55/11c11404-faf1-6bd4-8aa3-b3c74d52538c/2ab73ea961f0ccf0730eef26a6a7ce67.jpg)
+
+---
+
 `@miles 10/22/2021 8:45 PM (UTC)`
 
 The Pacific Alliance Asia Opportunities Fund and Mr. Guo Wengui have been fighting in New York state court for four years over $88 million.Christopher Gradel founded Pacific Alliance Group Ltd, and he is a Non-Executive Director of ARC Capital Holding, ARC Group Ltd is acting as the financial advisor to Giga Energy, and Yunhong International and Giga Energy Inc, announced Execution of Definitive share exchange, Bruno Wu company’s Sun Seven stars group, his brother Bing Wu, and Samuel Nunberg (political advisor of Trump and sued Guo Wengui for defamation) are shareholders of Giga Energy. On SEC report Bruno Wu is the representative of this deal. The CEO of Yunhong who is also the CEO of Digital World (Patrick Orlando), which is now merging with Trump Media.
@@ -291,13 +298,6 @@ Tu Youyou said Artemisia annua has many other efficacies besides treating malari
 
 17/10/2021 Miles Guo: Yang Jiechi must be the next one to be arrested... Yang Jiechi and Wang Yi could have defected at any time if not for fear of harming their families<br/><br/>17/10/2021 文贵直播：下一个抓的一定是杨洁篪... 若非担心祸及家人杨洁篪、王毅随时可能叛逃出国
 ![img](https://media.gettr.com/group44/getter/2021/10/18/22/43/b4648bc6-379f-45f0-82c7-c00d34c20a88/out.jpg)
-
----
-
-`@miles 10/18/2021 10:38 PM (UTC)`
-
-直播测试
-![img](https://media.gettr.com/group4/origin/2021/10/18/22/74a5860d-b85f-3d5c-1e5f-9ea844d77323/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
