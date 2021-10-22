@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/22/2021 5:49 PM (UTC)`
+
+Background Information on Yunhong Group (4) 运鸿集团的背景（四） 
+![img](https://media.gettr.com/group39/getter/2021/10/22/17/49/57e15ad8-f2e7-117d-422e-fa8bda6e38c8/6fb25459e00e2463c7c7a246a61204b7.jpg)
+
+---
+
+`@miles 10/22/2021 5:42 PM (UTC)`
+
+Background Information on Yunhong Group (3) 运鸿集团的背景（三） 
+![img](https://media.gettr.com/group39/getter/2021/10/22/17/41/622d3704-6c1c-2d46-d9c9-7d4523e03727/8dee995501b398516a3b3b1e36904df2.jpg)
+
+---
+
 `@miles 10/22/2021 5:39 PM (UTC)`
 
 Background Information on Yunhong Group (2) 运鸿集团的背景 （二） 
@@ -283,20 +297,6 @@ Tu Youyou said Artemisia annua has many other efficacies besides treating malari
 
 @jasonmillerindc @gavinwax Need #GETTR threads!!<br/><br/>Don't want need!
 > `@wsmartin218 10/15/2021 2:27 PM (UTC)`<br/>All of this to say: DO NOT think Democrats have come around on the border crisis all of a sudden.<br/><br/>Mass illegal immigration is the outcome Democrats WANT. They will not seriously act to stop mass illegal immigration.<br/><br/>We have to remove them from power if we want the it to stop.
-
----
-
-`@miles 10/18/2021 3:24 PM (UTC)`
-
-10月18日：愿战友们一定谨遵医嘱用药，从目前的情况看，国内的青蒿素的质量和国外的青蒿素的质量差距很大，青蒿素和青蒿素哌奎片一定要分清楚。【我已得到不少战友要求咨询，多是关于国内家人用青蒿素哌喹解疫苗毒而至高热的主诉。问下来，似乎都有先前服用硫酸羟氯奎预防病毒感染的用药史。这两个药均含喹宁成分，不能同时服用。且硫酸羟氯奎的药物半衰期长达52天，就是说要等停用羟氯奎20来天后，才能开始青蒿素哌喹的解毒疗程。这是我根据这两种药的药物代谢动力学做出的逻辑推断，尚无实验数据证明该论点。】
-![img](https://media.gettr.com/group6/getter/2021/10/18/15/08a6141a-846b-0195-64b7-35cc29ca57be/45e5c4bd449354aa91681aa2bc9046cb.jpg)
-
----
-
-`@miles 10/18/2021 2:47 PM (UTC)`
-
-10月18号：神秘的世界不．神秘的人类，神秘的宇宙，有着无穷无尽的我们未知的力量，这事预义太大了👍👍👍👍👍👍👍👍
-![img](https://media.gettr.com/group10/getter/2021/10/18/14/47/039a63f0-e31f-28a1-dc7a-b527c7c773c5/out.jpg)
 
 ---
 
