@@ -2,22 +2,41 @@
 ---
 
 
-## 拜登提名的驻华大使：北京是美国和民主世界“最大的威胁”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1611675/)
+## 中共若“全面”入侵台湾，美国的军队将参与保卫
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1611707/)
 
-#### 翻译：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-78.jpg)图片来源：网络截图
-零对冲10月22日报道，拜登总统提名的美国新任驻华大使于周三的听证会上抨击中共北京政府，称这个亚洲国家对美国是“最大的威胁”。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-尼古拉斯·彭斯是前驻北约大使，他在参议院外交委员会上说：“中共国是我们国家和民主世界安全的最大的威胁。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/120090359_whatsubject.jpg)
 
-这个听证会的主要主题是台湾问题，彭斯要求美国更多地支持这个岛国，他说：“美国能做的最重要的事是加深我们的安全合作，我们的责任是让台湾更强大而不被击溃。”
 
-彭斯说美国比中共国更有优越性因为华盛顿比北京有更多的同盟者，他说：“他们虽然很强但很少朋友，他们没有真正的同盟者。“
 
-他说中共国与印度的边境问题，在南中国海与越南，菲律宾有争议，在东海与日本有争议，他们还恐吓澳大利亚，甚至最近的立陶宛，中共在新疆的种族屠杀，虐待西藏人，对香港自治与自由的扼杀，和对台湾的欺负，这些都是不公正的，必须制止它。
+图片来源：BBC
 
-形成同盟是拜登政府针对中共国的战略方针，彭斯说：“想想我们的战略优势，我们有29个同盟，如加拿大，欧洲和北约，我们在印太地区的同盟者，这是我们的优势。”
 
-新闻来源： [Biden’s China Ambassador Pick Says Beijing Is “Greatest Threat” To US & The “Democratic World”](https://www.zerohedge.com/geopolitical/bidens-pick-ambassador-china-says-beijing-greatest-threat-us-democratic-world)
+#### 编译：小红帽
+
+美国总统乔·拜登（Joe Biden）首次公开承诺，如果中共国对台湾领空日益咄咄逼人的入侵引发一场热战，美国将军事参与保卫台湾。
+
+“是的，我们承诺这样做，”拜登周四在美国有线电视新闻网（CNN）市政厅被问及美国是否会来保卫台湾时说，台湾正面临来自北京当局越来越大的军事和政治压力，要求接受中共国的主权。
+
+尽管法律要求美国向台湾提供自卫手段，但它长期以来一直对是否会进行军事干预以保护该岛采取“战略模糊”政策。
+
+拜登总统的回应现在已经将以前的外交忽悠变成了坚定的承诺，进一步加剧了美国与北京政权之间的摩擦。
+
+拜登总统表示，人们不应该担心华盛顿的军事实力，因为“中共国、俄罗斯和世界其他地区都知道我们是世界历史上最强大的军队。
+
+台湾国防部长邱国正本月表示，台湾与中共国之间的军事紧张局势处于40多年来最严重的水平，并补充说中共国将有能力在2025年发动“全面”入侵。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Joe Biden lays it for China: Attack Taiwan and you have the US to deal with (thenewdaily.com.au)](https://thenewdaily.com.au/news/world/us-news/2021/10/22/biden-warning-to-china/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
