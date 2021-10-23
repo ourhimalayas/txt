@@ -2,27 +2,33 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月23日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1613121/)
+## 大主教宣布：天主教军队可拒绝中共病毒疫苗
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1613167/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-413.png)
+翻译: 波士顿五月花  时空旅行者
+![](https://assets.gnews.org/wp-content/uploads/2021/10/大主教宣布：天主教军队可拒绝中共病毒疫苗-1.jpg)https://www.defenseone.com/policy/2021/10/us-army-scrutinizing-itself-must-change-swiftly-face-china-secretary-says/186009/
+美国军方大主教在一份支持寻求宗教豁免的服役人员的新声明中宣布：无论疫苗在制造或测试中是否使用了与堕胎胎儿相关的成分，美国天主教军队应允许服役人员基于良心而拒绝接种中共病毒疫苗。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-25.png)
-文章仅代表作者本人观点，与Gnews无关
+美国军事服务大主教蒂姆 · 布罗利奥（Timothy P. Broglio）在周二发布的一份声明中表示：“如果接种疫苗违反良心的神圣性，那么任何人都不应被迫接受中共病毒疫苗。”
 
-视频参看：2021.10.23早GTV新闻访谈
+布罗利奥此前曾支持拜登总统对美国军队的强制疫苗接种令，引用了教会的指导意见：“在没有其他疫苗选择的情况下，允许天主教徒接受甚至来自堕胎胎儿组织的疫苗。” 在新的声明中，他表示：虽然他仍然鼓励追随者和军队接种疫苗，但一些军队已经开始质疑教会允许接种疫苗的行为是否超过了他们出于良心的反对。
 
-[https://gtv.org/broadcast/watch/61740028eadeb11f5e79ad55](https://gtv.org/broadcast/watch/61740028eadeb11f5e79ad55)
+虽然教皇认为接种中共病毒疫苗无罪，但布罗利奥强调了“良心的神圣性”。 如果疫苗违反了个人良心的神圣性，则不应强迫他们接种疫苗。 这与大主教之前在管区内的声明有所不同。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+布罗里奥在信中说：“拒绝提供宗教便利，或对出于良心，真诚提出反对意见的人采取惩罚性或不利的人事行动，将违反联邦法律，在道德上应受到谴责。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+美国国防部长奥斯汀在今年 8 月宣布疫苗将很快成为强制性的措施。国防部表示，每个军事服务部门将自行确定宗教豁免。五角大楼发言人柯比当时表示：“任何强制性疫苗都有宗教豁免的可能性，我们会通过一个流程，从医学和指挥的视角为个人提供使用宗教豁免的建议。每个请求都将被单独处理和审查——即便他们刚刚成为天主教徒。”美国陆军外科医生斯科特 · 丁格表示： “从指挥官、当地牧师、直至陆军部都提供咨询服务。这些宗教豁免申请最终汇集到医生办公室。我会做审查。”
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+在周二于华盛顿特区举行的美国陆军协会的年会上，陆军部长克里斯汀·沃穆斯被问到的第二个问题便是：军队是否可以获得疫苗豁免？ 他的回答是肯定的，但他随后强调了该部门需要接种疫苗的原因。沃穆斯认为：“这是一个事关健康安全和准备工作的问题。” 陆军参谋长詹姆斯·麦康维尔将军说，陆军现役部队91% 的军人都接种了疫苗。
+
+布罗利奥在信中最后说到：拒绝接种中共病毒疫苗的人必须通过戴口罩、保持社交距离和定期检测等方式继续为社区从事公益事业。一旦出现“非源自堕胎胎儿细胞”的疫苗，军队应对接受疫苗持开放态度。
+
+（文章仅代表作者本人观点，与GNews 无关）
+
+新闻来源：[Catholic Troops Can Refuse COVID Vaccine, Archbishop Declares](https://www.defenseone.com/policy/2021/10/catholic-troops-can-refuse-covid-vaccine-archbishop-declares/186056/)
+
+* * *
+
+*素材来源：时空旅行者*
+
+*编辑**& 发布：jamie(文胤)*
