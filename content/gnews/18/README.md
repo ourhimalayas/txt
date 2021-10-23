@@ -2,9 +2,7 @@
 ---
 
 
-## 芝加哥一半的警察可能会因为强制疫苗而离职
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1612197/)
-
-10/18/2021 芝加哥一半的警察可能会因为强制疫苗而离职。
+## 澳航工作人员为反抗强制疫苗接种而面临失业
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1612231/)
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

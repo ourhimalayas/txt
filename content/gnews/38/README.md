@@ -2,20 +2,43 @@
 ---
 
 
-## 澳大利亚超市巨头强制工人接种疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1611871/)
+## 西班牙的银行准备提供加密货币服务
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1611901/)
 
-#### 编译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-109.jpg)图片来源：网络截图
-据零对冲10月22日报道，随着澳大利亚继续放宽对中共病毒的限制，该国的三家主要连锁超市——Woolworths，客澳市（Coles）和奥乐齐（Aldi）——正准备按照“不打针就没工作”的原则，强迫迫澳大利亚各地的30万工人 接种疫苗。但是这些超市仍然欢迎未接种疫苗的顾客，尽管澳大利亚政府显然已经以挨饿作为威胁，试图迫使人们接受疫苗。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-伍尔沃斯公司打算把1月31日作为新南威尔士州、维多利亚州、澳大利亚首都地区、北领地和西澳大利亚州全面接种疫苗的最后期限，而昆士兰州、南澳大利亚州和塔斯马尼亚州的最后期限将是3月31日。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/bank-of-spain.jpg)
 
-尽管澳大利亚为消灭中共病毒做出了种种努力，但是病例继续攀升，迫使澳大利亚政府最终放弃对该国的经济造成了巨大损失的封锁措施。墨尔本的封锁措施已经以某种形式实施了245天，使其成为世界上封锁持续时间最长的城市。
 
-有趣的是，其他澳大利亚杂货店和连锁店已经决定采取不同的做法。凯马特（Kmart），塔吉特（Target）和邦宁（Bunnings）五金连锁店的所有者西农集团（Wesfarmers）不会强制要求现有员工接种，因为该公司认为现在接种率非常高，强迫自己的工人接种疫苗根本没有意义。
 
-他们中有足够多的人已经接种了疫苗，或者计划自愿接种疫苗。在这一点上，权威的科学家们终于承认，“群体免疫”的概念现在是一个神话。从现在开始，中共病毒很可能会在人类群体中流行下去。
+图片来源：centralbanking.com
 
-新闻来源：[“No Jab, No Job” – Aussie Supermarkets Demands 300K Workers Must Get Vaccinated Or Find Work Elsewhere](https://www.zerohedge.com/covid-19/no-jab-no-job-aussie-supermarkets-demands-300k-workers-must-get-vaccinated-or-find-work)
+
+#### 编译：小红帽
+
+西班牙的银行正准备向其客户提供加密货币服务，但因为中央银行缺乏明确指示，让银行感到沮丧。
+
+西班牙银行（Spanish Banks）曾在6月份表示，将为希望注册并使用加密货币服务的实体提供指示。
+
+西班牙报纸《El Pais》周二报道称，相应的登记处将于10月29日开始运作，但银行仍在等待指示。
+
+该登记处旨在打击洗钱，至于是否是为被监管的金融机构而设计的，至今还不确定。
+
+监管咨询公司finReg360的合伙人格洛丽亚·埃尔南德斯·阿勒 (Gloria Hernández Aler) 表示：“银行要求这些实体通过所施加的条款是没有意义的，因为他们已经受到直接监管。”
+
+“然而，银行通知这些实体，将提供这种类型的服务确实有道理，而且这些实体可能会改变洗钱的政策，以使其适应加密资产的动态。”
+
+据《El Pais》报道，由于缺乏中央银行的明确指示，几家大型金融机构的合规部门已着手研究客户是否必须注册才能提供加密服务。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Spanish Banks Are Preparing to Offer Crypto Services: Report (coindesk.com)](https://www.coindesk.com/policy/2021/10/22/spanish-banks-are-preparing-to-offer-crypto-services-report/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
