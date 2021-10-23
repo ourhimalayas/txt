@@ -2,27 +2,28 @@
 ---
 
 
-## 克里姆林宫称北约的本质是对抗而非和平
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1613029/)
+## 有声|中共黑客组织大肆盗取全球手机用户数据
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1613050/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/n.png)socialpost.news
-美东时间10月23日报道，俄罗斯总统发言人德米特里∙佩斯科夫表示，俄方从未对北约抱有任何幻想，该联盟采取遏制俄罗斯的战略证实了俄罗斯削减官方对话的步骤的正确性。
 
-佩斯科夫强调，“我们知道这个联盟的本质，这正是对这个本质的确认。这个联盟不是为和平而建立的，这个联盟是为对抗而建立的。它是为对抗而构思、设计和组装的。它正在履行其职能。”
+10月19日，美国网络安全公司CrowdStrike表示，一个与中共有关联的黑客组织“LightBasin”，至少从2016年开始，潜入世界各地的移动网络，并使用迄今为止发现的最复杂的工具，从运营商那里获取用户的通话记录和短信。
 
-佩斯科夫还表示，布鲁塞尔的行动“以最生动的方式证实了俄罗斯的决定是正确的”。根本不需要对话，在这样的条件下，北约的这种概念再次证实了这一点。
+长期以来，电信公司一直是黑客攻击的首要目标。CrowdStrike公司高级副总裁梅尔斯表示，这些攻击与中共有关联，包括使用依赖汉语拼音语音版本的密码学，以及与中共政府先前的攻击类似的技术。这些程序可以不引人注意地检索特定数据。
 
-10月18日，俄罗斯外交部宣布暂停俄罗斯常驻北约代表团的工作。此外，北约驻莫斯科的军事联络处和联盟的信息处也停止了活动。俄罗斯外交部明确指出，俄罗斯将通过驻比利时大使与北约沟通。
+美国国土安全部分管机构表示，已收到相关报告内容，会持续与美国电信商合作，防止黑客攻击。美国财政部周二强调，美国与其盟国合作打击网络攻击的重要性。
 
-在北约削减了俄罗斯代表团的工作人员数量后，俄罗斯当局才采取了这样的决定。北约决定驱逐8名外交官，因为他们涉嫌与俄罗斯情报部门合作。与此同时，联盟又取消了两个职位。 因此，俄罗斯常驻北约代表团的人数已减少到10名员工。斯托尔滕贝格说，此举与特定事件无关，是由于莫斯科的“恶意活动加剧”而做出的。
+文字版原文：[中共黑客组织大肆盗取全球手机用户数据](https://gnews.org/zh-hans/1607301/)
 
-之前联盟成员国就“欧洲-大西洋空间的威慑和防御概念”达成一致，这是一个战略计划，以防御俄罗斯同时在几个方面的潜在攻击。尽管对中共国的关注度越来越高，这个概念重申了联盟的主要目标还是遏制俄罗斯。制定的战略旨在为波罗的海和黑海地区的同时攻击做准备，其中可能包括核打击、入侵计算机网络和从太空攻击。
-
-（本文仅代表作者个人观点）
-
-参考链接：
-
-[https://www.rbc.ru/politics/22/10/2021/617287769a794728a798d499](https://www.rbc.ru/politics/22/10/2021/617287769a794728a798d499)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

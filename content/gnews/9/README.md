@@ -2,28 +2,35 @@
 ---
 
 
-## 有声|中共国社保骗局：只有社保基金，没有社保制度
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1613035/)
+## CDC：可能改变中共病毒疫苗“全接种”的定义
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1613057/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-郭文贵先生在10月18日盖特直播测试中爆料：中共国的社保制度是个骗局。中共国只有社保基金，没有社保制度。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-中共国社保基金是由原社保基金主席、前人民银行行长戴相龙2008年创立的。既然是基金机构，法人负责自负盈亏，所以它根本就不是为老百姓设立的社保制度。王岐山曾警告戴相龙说：“你要是让中国人有了社保，那中国人会把你吃掉的。中国人要是吃饱了，是要吃人的。”
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/V-3.jpg)abcnews.go.com
+在人们的印象中，通常将接受过两剂疫苗接种的情况认作“全接种”，现在又出现了“加强剂”（booster），于是人们就糊涂了，既然是“全接种”，咋又出来“加强”了呢？怎样向公众解释？CDC在阴谋集团的诱逼下，置全民智商于不顾，竟然要修改“全接种”的定义？世界荒唐到了如此境地！
 
-目前，中国人的社保基金实际总共有1000亿美元，其中96%以政府划拨的方式专供1.3亿共产党员的退休干部及其家人、亲戚享有，13亿的老百姓只能享受4%的社保基金。另外，中共国的社保基金自成立起，就定下了“大病等死，小病分级，药和病要分开”的制度。也就是说，中共国的医院是营利机构，为了利益，他们希望把老百姓“治死”而非“治好”。更重要的是，中共国的养老基金完全没有健全的保险体系做保障，因此从根本上讲，中共国的医院是杀人、抢钱的地方。
+《新闻纵横》发表文章，题目是，“美国疾病控制与预防中心（CDC）：中共病毒疫苗接种定义可能改变”。
 
-所以，中共国的社保就是个骗局。即使你买了，钱也是没有保障的。它是为极少数特权阶层服务的，普通老百姓都是任人宰割的牛羊，在中共国常人无法想象的黑暗中艰难生存。
+全文如下：
 
-文字版原文：[中共国社保骗局：只有社保基金，没有社保制度](https://gnews.org/zh-hans/1606608/)
+拜登政府官员周五（10月22日）敦促符合条件的美国人进行中共病毒疫苗加强剂的接种，疾病控制和预防中心负责人表示，可能会更新其关于什么是全面疫苗接种的定义。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+目前，在美国，如果有两剂辉瑞（BioNTech）或莫德纳（Moderna Inc）疫苗，或一剂强生疫苗，则被视为完全接种疫苗。
+
+疾病预防控制中心主任罗谢尔·瓦伦斯基（Rochelle Walensky）告诉记者：“我们还没有改变‘完全接种’的定义，我们将继续研究这个问题，我们可能需要在未来更新‘完全接种’的定义。”
+
+她说：“如果你有资格申请加强剂，那就去拿你的加强剂，我们会继续跟进。”
+
+（原文完）
+
+拜登政府的官员们还应该继续补充，那些公司赚得还不够，还可能会有“加强”的1剂、2剂、3剂，修改定义将会是常态，我们会积极配合那些阴谋集团，直到把那些唤不醒的人扎透！
+
+罪恶不灭，天理不容！
+
+（文章仅代表作者个人观点）
+
+原文链接：
+
+[https://www.newsmax.com/health/health-news/covid-vaccinated-definition-booster/2021/10/22/id/1041630/](https://www.newsmax.com/health/health-news/covid-vaccinated-definition-booster/2021/10/22/id/1041630/)
