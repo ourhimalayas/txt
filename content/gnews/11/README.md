@@ -2,38 +2,43 @@
 ---
 
 
-## 22日晚八时许中共命令马云回国,马云赖在西班牙不想回
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1611864/)
+## 欧洲议会高票通过历史上首份“欧台政治合作报告”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1611948/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/id13318065-000_9Q34RM-450x321_副本.jpg)
-据[2021年10月22日 文贵大直播：马云为什么在西班牙而不敢回香港；吴征成功拿下川普，共产党已经控制了川普；习的行为都是个人恩怨造成的；中共六中全会会发生什么，会有什么结果；G系列是让共产党最害怕的](https://gtv.org/video/id=6172b02683e948708d05c1b9)时间点27：36——
+作者：纽约香草山农场 007
 
-**郭文贵先生：**马云也就在一个小时前，马云同志第二次跟随他的二十几个人在那天直播之后，前天直播完以后，换了十几个，我在直播中说了，他的二十几个人已经都被收买了一半。现在换了一拨人，马上要他回去，马上要回去，现在马云赖着不走——两周的时间要在西班牙。
 
-他并不在船上，我告诉大家马云并不在船上，那船是忽悠你的，马云并不在船上！他在哪七哥分分钟钟知道，听说让他回去，他赖着不想回。
 
-提出各种条件——我得把船卖了吧！我得把西班牙的这几个地卖了哇！云峰基金几个合作伙伴给我约好了在西班牙玛尤卡（注：根据郭先生发音写成，未必代表正确的写法）见面呢！我还有德国那个公司，还有日本的公司，我得把股份在这块签约呀！我得跟孙正义在这见面呐！
 
-就是马云就不想回香港，哈哈。可见香港在马云眼里边已经是地狱了，是吧？他宁可呆在西班牙也不愿呆在香港去，这是大家看到这是另外一个。
 
-（以下暂略）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
 
-撰稿：喜马拉雅的肉夹馍；
 
-审核：喜马拉雅的馍夹肉；
 
-校对：Maarago
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+10月21日，欧洲议会以580:26，压倒性通过历史上首份 “欧盟-台湾政治关系与合作”报告，呼吁欧盟全面提升与台湾的关系。台湾方面表示，这是民主的一大胜利，是台欧关系新的里程碑。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-20.jpg)
+该报告就欧盟与台湾关系提出了36项具体建议，包括：欧盟强化与台湾的政治及经济关系，鼓励欧盟及会员国与台湾进行包含最高层级的互动，严重关切中共对台湾的军事恫吓，启动双边投资协定谈判准备工作，将欧盟驻台办事处更名为“欧盟驻台湾办事处”，在半导体等产业进行合作等。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+多位议员强调：这是历史性的投票，要告诉中共“阻止民主进程的努力是徒劳的”；台湾是华人民主的典范；在中共极权主义政权越来越狂妄的时候，“我们必须采取民主攻势”。 欧洲议会发布声明称，台湾是欧盟的重要合作伙伴和民主盟友，欧盟将保护台湾的民主，中共不能单方面改变台海现状，不能违背台湾公民的意愿。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+(本文仅代表作者观点)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+参考链接：
+1. [欧洲议会高票通过历史上首份“欧台政治合作报告”](https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20211021-%E6%AC%A7%E6%B4%B2%E8%AE%AE%E4%BC%9A%E9%AB%98%E7%A5%A8%E9%80%9A%E8%BF%87%E9%A6%96%E4%BB%BD%E6%B6%89%E5%8F%B0-%E6%94%BF%E6%B2%BB%E5%85%B3%E7%B3%BB%E4%B8%8E%E5%90%88%E4%BD%9C-%E6%8A%A5%E5%91%8A)
+2. [欧洲议会高票通过历史上首份“欧台政治合作报告”](https://www.voachinese.com/a/EU-lawmakers-push-for-closer-ties-with-Taiwan-drawing-Chinese-anger-20211021/6280048.html)
+3. [欧洲议会高票通过历史上首份“欧台政治合作报告”](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211021-%E6%AC%A7%E6%B4%B2%E8%AE%AE%E4%BC%9A-%E6%AC%A7%E5%8F%B0%E5%85%B3%E7%B3%BB%E6%8A%A5%E5%91%8A-%E5%8F%B0%E6%B9%BE%E7%A7%B0%E6%98%AF-%E6%B0%91%E4%B8%BB%E4%B8%80%E5%A4%A7%E8%83%9C%E5%88%A9-%E5%8C%97%E4%BA%AC%E6%8F%90%E5%87%BA-%E4%B8%A5%E6%AD%A3%E4%BA%A4%E6%B6%89)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+总编/编辑：雪梨
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

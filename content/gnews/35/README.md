@@ -2,46 +2,21 @@
 ---
 
 
-## 未接种疫苗护士面临解雇，上诉联邦法院要求紧急干预
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1611600/)
+## 关于青蒿素及 SARS-CoV-2 的声明
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1611674/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### **新中国联邦，爆料革命**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/新中国联邦国旗.png)
+(1) “中共病毒”—— SARS-CoV-2 病毒及其疫苗是中国共产党 (CCP) 投向全人类的超限生物武器。中共罔顾人类底线，在全世界范围内散播病毒；之后又与邪恶资本沆瀣一气，不遗余力的推销其匆忙研发的有害疫苗，并伙同世界各黑暗势力和各国“影子政府“推行强制接种的政策。病毒疫苗使得全人类正在遭受史无前例的健康威胁。新中国联邦是全世界唯一一个以情报和事实为基础，揭露真相，反对接种 SARS-CoV-2 疫苗的群体。
 
-#### 翻译：4mi
+(2) 青蒿素是 SARS-CoV-2 及其疫苗的解药。这是中共内部多位参与该病毒研发与防治的科学家和医生，在承担巨大人身安全风险的情况下，通过“爆料革命”向外界传递的关乎人类生死存亡的情报。
 
-#### 校对/编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-15.jpg)图片来源：Nursing Standard
-10月22日，一群未接种疫苗的护士已经将澳大利亚维多利亚州最大的卫生服务机构之一——莫纳什卫生局告上了法庭，以防止他们因未接种新冠疫苗而被解雇。
+(3) 当下，由于青蒿素用于 SARS-CoV-2 防治的相关研究和临床资料十分有限，再加上不同个人之间的差异，比如遗传背景、健康状况、基础疾病等，都大大增加了用药时必须要针对个人考虑的各种因素；鉴于此，我们暂时无法提供统一的用药标准。
 
-周五，昆士兰护士职业协会组织也在联邦法院发起了紧急法庭诉讼，有多名护士寻求法院颁布禁令以阻止他们受到纪律处分。
+(4) 先前有关青蒿素的建议，是我们综合各方信息和重要情报后，在医药专家的指导下汇总所得出。旨在普及教育，传播信息——以期促进感染患者的康复、消弭接种疫苗后的严重不良反应，但不能作为医嘱或用药指导。请勿因为阅读了我们的建议而忽视专业的医疗建议。
 
-根据维多利亚州政府的命令，医护人员必须出示自己已经打了第一针疫苗证明，才能上班。
+(5) 与此同时，中共也正在不遗余力地抹黑青蒿素类药物及其生产厂家。因此，为慎重起见，我们暂时不对任何一款青蒿素的产品及其生产企业进行推荐或评价。
 
-代表这群护士的大律师尼克·费雷特（Nick Ferret）告诉法庭，至少有两人已被告知令人担心的纪律处分程序。
-
-费雷特先生说：“他们被威胁说，除了一个非常有限的内部交流圈子，如果他们与其他任何人讨论这个问题，就会被解雇。”
-
-但莫纳什卫生局的马修·福莱特（Matthew Follett）说，今天没有打算终止与任何人雇佣关系。
-
-福莱特先生说，卫生局曾要求这些护士与他们谈论具体的情况，但护士们没有合作。
-
-法庭被告知，莫纳什卫生局正在遵循某个程序，以确保其员工接受疫苗接种。
-
-虽然莫纳什卫生局没有说最后的结果是什么，但据代表卫生局的福莱特先生说，一个可能的结果是解雇。
-
-此事已被推迟到今年11月1日进行（法庭）听证。
-
-（文中仅代表作者个人观点，与Gnews平台无关）
-
-新闻链接：
-
-[Federal Court: Unvaccinated nurses facing sack launch Federal Court action | news.com.au — Australia’s leading news site](https://www.news.com.au/national/queensland/news/unvaccinated-nurses-facing-potential-sacking-ask-federal-court-to-intervene/news-story/a9c68acfb2f75376ce7b385adc5e0cee)
-
-**编辑/发布：文泓**
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+(6) 我们强调，在使用任何药物或膳食补充剂之前，请一定结合自身的客观情况，向家庭医生、专科医生以及药剂师咨询，听取他们的意见；用药时请遵医嘱，切勿在没有专业指导下擅自用药或停药。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-44.jpg)
+信息来源：[郭文贵先生盖特](https://gettr.com/post/pewvu17629)

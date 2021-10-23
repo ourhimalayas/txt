@@ -2,48 +2,31 @@
 ---
 
 
-## 造谣美国龙虾为新冠源头，中共水军现形
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1611921/)
+## 中共国现放假停工潮 PVC 6个交易日跌停3次！
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1612085/)
 
-作者：东京樱花团 – 修文
+![](https://assets.gnews.org/wp-content/uploads/2021/10/下载-5-1.jpg)
+据全国能源信息平台10月22日报道，10月20日，国网江西电力供用电部、国网江西电力调度控制中心联合发布《关于做好高耗能企业轮停及有序用电工作的通知》。当前面临用电缺口，为保障民生、重要用户用电，全省将于10月21日起，每日早高峰10:00-11:45、晚高峰17:00-20:00期间，实施高能耗企业用户轮停。此前，江西省315千伏安及以上的钢铁、建材、有色、化工等高耗能企业全部列入轮停方案。
 
+要求涉及2652户的高耗能企业根据负荷大小和所在地区分成7个轮停组别，按不同级别对应开五停二、开四停三、开三停四等。对于擅自超限额的用户责令整改，两次不到位的停止供电。江浙大多数制造企业已经再次经历限电限产，广东、重庆、成都等多地的企业也陆续发出停产放假通知。
 
+伴随着部分省份限电限产，PVC市场行情仍然在下跌。PVC五型价格最低已经接近1万2了，还有进一步下跌趋势。6个交易日跌停3次。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+中共对全世界发动的超限战导致了中共国老百姓成为了最大的受害者，在即将到来的冬日，无论企业还是个人都要在能源缺乏的情况下忍受饥寒交迫的漫漫长夜，中共国的老百姓，还要忍受到几时呢？全世界的人民还要忍受中共多久呢？中共一日不灭，人道灾难不断。
 
+新闻参考链接：[https://c.m.163.com/news/a/GMT7C2UV05509P99.html?spss=newsapp](https://c.m.163.com/news/a/GMT7C2UV05509P99.html?spss=newsapp)
 
+编辑：胖丁
 
-据NBC 10月21日报导，英国牛津大学专精假消息的研究员Marcel Schliebs发现，中共外交官和数百个推特帐号，近期密集散布假消息，称新冠病毒很可能是在2019年11月，通过运往武汉海鲜市场的缅因州龙虾，从美国传到中国。
+* * *
 
-这是中共最新散布的阴谋论，已被翻译成多种语言，由五百多个支持中共的推特帐号，每天上午规律地发布，其中包含一部分假账号。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-7.jpg)
-美国某智库专精假消息的专家也指出，这是中共在疫情爆发后，再一次企图将新冠起源栽赃给美国，混淆视听。
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-中共驻英大使馆发言人依旧不承认传播假消息。但网络是有记忆的，作恶终会留下痕迹。中共今日的障眼法都会成为将来的认罪书。
-
-参考链接：
-[謠言瞎扯武肺來自美國龍蝦 牛津學者發現疑大量中國假帳號帶風向](https://news.ltn.com.tw/news/world/breakingnews/3712543)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编/编辑：飞虹
-编辑：雪梨
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

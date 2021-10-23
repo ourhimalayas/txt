@@ -2,48 +2,60 @@
 ---
 
 
-## 因NBA球员坎特发表支持西藏自由言论 中共封杀凯尔特人队
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1611909/)
+## 吴征报告成功拿下川普成功用强奸案和太盟官司拿下七哥
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1612048/)
 
-作者：纽约香草山农场 – 007
+![](https://assets.gnews.org/wp-content/uploads/2021/10/571064e645f43e66ecf28c70bc653ce3_副本.jpg)
+据[2021年10月22日 文贵大直播：马云为什么在西班牙而不敢回香港；吴征成功拿下川普，共产党已经控制了川普；习的行为都是个人恩怨造成的；中共六中全会会发生什么，会有什么结果；G系列是让共产党最害怕的](https://gtv.org/video/id=6172b02683e948708d05c1b9)时间点30：54——
 
+**郭文贵先生：**第三个刚才是川普总统的事儿，川普总统，我发给你们那个，刚才我发给了我们的墨镜，这我也发给咱群里面了。
 
+哇噻！刚才有一个特别重要的一个咱们战友说，哎呀，七哥，这是上天帮咱呐！我说为什么呀？他说吴征刚给我们写的报告，说我们已经成功拿下川普总统了，我们有绝对的信心向组织，你看我承诺的吧，我帮助你们用强奸案干掉郭文贵，我用太平洋官司的事情、前FBI高官干掉郭文贵，我现在又成功地拿下了川普总统，用SPAC这种就是所谓的空白空壳公司上市。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+就是中国的所谓的风控上市公司，你就是现在巴黎、文耀说，你看看我现在发展了一种内裤，是不是啊？保证你可以什么什么不用吃避孕药了，然后我就可以上市。谁信你就买我的，不信拉倒，这就叫空白空壳上市公司，在美国叫SPAC。
 
+那你川普总统说你看我未来可能有100亿个粉丝，我就上去了，上去以后那就青藤也买，老班长也买，老班长找几个托儿买，一看股票涨上去了，然后再chua~就跑了是吧，这叫空壳空头公司。
 
+那么这个背后的是谁呢？叫中运鸿，大家知道武汉的这个王八蛋，还有个美国叫Patrick（注：Patrick Orlando），背后就是吴征，就是吴征！然后给中央报告，你看我们很成功了！我们现在很成功了！
 
-美国当地时间10月20日晚间，美国NBA著名中锋球员 埃内斯·坎特 谴责中共在西藏的暴行后，腾讯正式封杀坎特所属的波士顿凯尔特人队，停止直播该球队的所有比赛。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-123.jpg)
-现年29岁的坎特，是土耳其裔穆斯林，出生于瑞士。被中共当局封杀前，坎特穿着印有西藏流亡精神领袖达赖喇嘛肖像的T恤衫在推特上发布视频，呼吁世界关注西藏问题，并称习近平是“残暴的独裁者”，谴责中共政府对西藏的残暴统治，呼吁“让西藏自由”。坎特也曾在2019年公开支持香港的民主运动。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-6.jpg)
-中共外交部在21日的例行记者会上，指责坎特“博眼球”。同时，中共煽动网民对坎特展开了痛骂，目前，他的名字已被微博封禁。而前国务卿蓬佩奥发表推文，称赞坎特为西藏挺身而出，直面中共，是真正的勇气。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.2-3.jpg)
-参考链接：
-1. [NBA球员坎特发表支持西藏自由言论后 中国封杀凯尔特人队](https://www.voachinese.com/a/chinese-broadcaster-blocked-celtics-over-kanter-comments-20211021/6280592.html)
-2.[@EnesKanter： More than 150 Tibetan people have burned themselves alive!! — hoping that such an act would raise more awareness about Tibet. I stand with my Tibetan brothers and sisters, and I support their calls for Freedom.](https://twitter.com/eneskanter/status/1450963678413705224?s=12)
-3. [Dear Brutal Dictator XI JINPING and the Chinese Government Tibet belongs to the Tibetan people!](https://twitter.com/eneskanter/status/1450869180283203589?s=12)
-4. [@mikepompeo： Good on @EnesKanter for standing up to the CCP and speaking truth to power. This is what real courage looks like.](https://twitter.com/mikepompeo/status/1451280302517723139?s=12)
+我可以告诉大家，川普总统那个基金总共拿了不到500万美元，总共500万美元，他对外说可能我会拿到8亿美元。他为什么呢？吴征就找了一个公司说如果是低于了3亿美元，我给你3亿，就这吴征就跟当年在查尔斯王子认识一样，叫那个我的哥们邓永锵去了，说我要捐你100万磅，见完面喝完了、拍完照片了，然后说一百万我给你股票，最后给股票是那个什么那个雅致的股票，就是你给我股票吗？股票也不给了，最后是我有两件老家具给你。最后川普总统估计能弄两件古董家具啊，刷了油漆的古董家具，估计得要青藤帮他刷去，这就这结局。
 
-（本文仅代表作者观点）
+最重要的是什么？他给中共这个报告说能拿下，中共一片欢呼啊，就刚才我在直播前这信息，你想想一片欢呼，七哥，我们这一片欢呼，说这回把川普彻底拿下，捏在手里了，蛋子儿让咱捏住了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+战友们为啥这个战友说对自然是好事呢？2016年川普当上总统，2017年吴征要把老婆送给班农，要单独在班农卧室采访班农，是吧？大家记住这是班农自己说的吧？跟他的几个合作伙伴游说要川普总统遣返七哥，还有什么Higginbotham，是吧？还有一堆的Elliott Broidy这些人，这件事情吴征现在还没被调查呢！是吧？
 
-总编/编辑：雪梨
-校对/发稿：为真不破20
+但是这一回这就是轮回，轮回呀！他现在欺骗美国前总统，现在又搞了这么一个诈骗，吴征是美国公民，现在我们给他所有的案子就不来美国，不要脸这个家伙，他不来美国！一，他真来不了美国，共产党让他来不了，他一直被控制；二，他不想来美国，但是这回事儿他最终会暴露的。
 
-**更多资讯，更多关注**
+据我所知不低于10家大媒体在调查这件事背后，调查完以后，结果是共产党控制了川普总统——前美国总统，还有一个最有希望再回白宫的美国总统，那就帮咱，吴征必须面对司法和国会议员的调查，这个弹药全引到吴征那儿去了，好不好，是吧？这是一个。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+最重要的事情，这次SPAC已经公开了，没有人能停止这种丑闻。这对爆料革命是个什么概念？这就像川普总统加入盖特一样，我非常非常佩服我们的背后投资者，你们要对咱们的投资机构要有信心，——一分股权不能给，你爱来就来。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+我们所知道的是，过去一年多来给川普总统做了presentation的三十几家，全是让川普总统付钱的，没有一个给川普总统付钱的，只有盖特承诺给他付钱，但是付的钱是多少？不能超过1亿美元。这一亿美元是根据川普总统的关注量，最低保1亿美元，但一分股份没有。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+现在川普总统得到了3亿美元的承诺，还有85%的股份，叫吴征Bruno Wu直冲过去了，那当然盖特不能给了。那么这回好了，现在吴征是共产党派来的，中运鸿是绝对共产党的情报机构，而且在美国制造虚假文件。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+那么在这种情况下，这就成了一个国际政治事件了，他们越炒作盖特越有人关注，而且最重要的是所有投资者都不同意川普总统加入这个平台，因为他来之后的80%可能性把盖特的数据给你关掉，而且一半世界的人不喜欢这个盖特平台，这个风险是很大的！说实在话，一直支持川普Jason Miller先生是他的前办公室的人，但是谁也不愿意冒着风险，现在好了，不用来了，也不用冒着风险了。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+而且盖特将成为一个绝对的没有政治原则、一个全社交媒体的平台，而且川普总统给我们做个大广告，是吧，而且更重要的现在事情川普总统真的这是个错误的选择，这对他的政治生涯是致命的，全是假的，Bruno Wu，所以这是大好消息。
 
+（以下暂略）
 
+撰稿：喜马拉雅的肉夹馍；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
