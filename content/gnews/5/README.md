@@ -2,27 +2,28 @@
 ---
 
 
-## 樱花灭共诗——岛危（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1612736/)
+## 有声|美国国家卫生研究院承认资助中共武毒所功能增强性研究
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1612837/)
 
-撰稿：东京樱花团/曲非烟
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/岛危（新韵）1.png)
 
-岛中危覆卵，
+10月20日，美国国家卫生研究院首席副主任 劳伦斯-塔巴克 在一封信件中承认，美国资助了中共在武汉病毒研究所进行的所谓“功能增强性”研究，但与此相关的生态健康联盟并没有报告过，该项研究创造了一种可以感染人类的冠状病毒。
 
-岛外铁鱼潜。
+事实上，在新冠病毒溯源的过程中，美国国家卫生研究院是否曾资助过武毒所一直是舆论关注的焦点。为此，国会曾多次举行听证，并对福奇等相关人士进行调查。 但对于这些调查与追责，福奇本人则一概采取否认态度，甚至声称攻击他就是攻击科学。
 
-不治临敌策，
+而今，劳伦斯的证词，毫无疑问地给了公众一个明确的答案。美国前国务卿 蓬佩奥在盖特上对此发表评论称，福奇 博士对美国人民不诚实，关于功能增强研究，仍有更多的疑问需要他回答。对此，参议员 汤姆-科顿 也表示，应该在法律允许范围内对福奇进行调查并起诉。
 
-徒闻洒壮言。
+文字版原文：[美国国家卫生研究院承认资助中共武毒所功能增强性研究](https://gnews.org/zh-hans/1610660/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/岛危（新韵）2.png)
-
-（免责声明：文章仅代表作者本人观点，与GNEWS无关）
-
-插图：东京樱花团/闪闪
-校对：东京樱花团/知了知了
-发布：东京樱花团/老黑
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

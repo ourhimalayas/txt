@@ -2,39 +2,21 @@
 ---
 
 
-## 盖特未来规划中的三个&#8221;七分之一”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612593/)
+## 秘翻在线：脸书正面临着一系列掩盖事实的指控
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1612634/)
 
-作者：纽约香草山农场 – Delilah小胖
+#### 翻译撰稿：Hakunamatata
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/zuckerberg14364phearing.jpg)
 
+据周五的一个报告显示，一名新的举报人提出指控，称Facebook管理层将利润都放在了遏制社交媒体平台上仇恨言论和虚假信息的传播上面。
 
+据《华盛顿邮报》报道，这名举报人是前脸书（Facebook）员工，也是该公司信用部门的成员，他在提交给美国证券交易委员会的一份证词中提出了上述指控。据称，这些指控证实了另一名前脸书（Facebook）员工弗朗西斯·豪根(Frances Haugen)最近提出的许多指控。本月早些时候，豪根在国会山就该公司的做法发表了谴责证词。
 
-10月22日，郭文贵先生透露了盖特未来发展的三个“七分之一”规划。
+这名新的举报人表示，由于担心时任总统唐纳德·川普(Donald Trump)会做出政治反击以及该公司的底线受到损害，脸书（Facebook）的官员往往对公众问题内容的担忧漠不关心，要不就是极力削弱回应。 这份日期为10月13日的宣誓书详细描述了2017年的一起事件。据称，脸书一名公关高管在其中否认了公众对俄罗斯干预2016年大选的强烈反应的担忧。脸书的公关官员塔克·邦兹说，这只是昙花一现。一些立法者会生气的，几周后，他们就会转向其他领域。与此同时，我们在地下室印钞票，我们很好。
 
-所谓三个七分之一，首先是未来全世界七分之一的人会使用盖特；其次，全世界社交媒体中最有影响力的人，有七分之一来到盖特；第三，每天全世界有价值的新闻、最重要的信息，有七分之一源自盖特。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1023AM-（123-）視頻备用-2.001.jpeg)
-郭先生预计，盖特实现第一个七分之一，会是在明年的十一月，具体的时间可能是2022年11月11日。之所以设定在这个时间点，是基于三方面的预判：包括习近平可能熬不过明年五月，疫苗灾难将摧毀现有社交媒体大佬的话语控制权，还有就是共产党2025年前必定终结。
+新举报人的身份尚未公开披露。 《华盛顿邮报》获得的一份声明中，脸书女发言人艾琳·麦克派克却表示：“在《华盛顿邮报》的背后的过去五年里，《华盛顿邮报》和《纽约时报》一直在激烈地竞争，在深度报道复杂的故事中，它们的记者能找到多少可靠的消息来源。这开创了一个危险的先例，就把整个故事都挂在一个来源上，在没有任何明显证据的情况下就提出了广泛的主张。”
 
-郭先生说，G系列的支付系统HPay下月即将上线。任何商家只要愿意，都可以采用HPay提供的付款服务。另外，盖特的支付系统也计划将于明年5月份左右上线。
+在最新的指控浮出水面之际，脸书正面临着立法者对其商业行为前所未有的批评。《华尔街日报》和其他媒体发表的谴责性媒体报道详细描述了脸书的内部文件，显示高管们知道该平台正在对公众造成的伤害。《华尔街日报》的系列报道基于豪根提供的文件，他是曾经呼吁国会监管脸书的人之一。
 
-郭先生很肯定地表示，纵然有若干变数，但不管怎么变，全人类最大的赢家就是G系列，包含喜联储、喜美元、喜币和盖特、GTV、G Fashion以及GClub。
-(本文仅代表作者观点)
-
-参考链接：[2021年10月22日 文贵大直播](https://gtv.org/video/id=6172b02683e948708d05c1b9)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编：Jack Li文阳
-编辑：山本不惑
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+原文链接：[**New Facebook whistleblower claims execs downplayed Russian interference, hate speech: report**](https://www.foxbusiness.com/technology/new-facebook-whistleblower-russian-interference-hate-speech)

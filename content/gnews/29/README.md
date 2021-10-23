@@ -2,42 +2,39 @@
 ---
 
 
-## 班农专访1: 毕生致力于铲除中共
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1612501/)
+## 盖特未来规划中的三个&#8221;七分之一”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612593/)
 
-**简评：**
+作者：纽约香草山农场 – Delilah小胖
 
-作为新中国联邦的共同创始人，并因此被中共视为头号敌人，在美国历史上成为第一个被中共制裁的美国人，班农先生深感骄傲，视为凭生获得的最高荣誉。班农先生毕生致力于彻底铲除中共，让中国人民和底层的小人物获得真正的自由。
-
-GTV视频链接：[班农专访Q-1: 毕生致力于铲除中共](https://gtv.org/video/id=617252c4c1d11973d3c6b941)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-**视频字幕：**
+10月22日，郭文贵先生透露了盖特未来发展的三个“七分之一”规划。
 
-**主持人Winston：**郭文贵先生在周日直播时说，一位中共高官透露, 您是中共的头号敌人，其次是皮特·纳瓦罗和迈克·彭佩奥。这是中共给你的最大荣誉吗？此刻在中共国广为流传的消息，说你已经被逮捕了。
+所谓三个七分之一，首先是未来全世界七分之一的人会使用盖特；其次，全世界社交媒体中最有影响力的人，有七分之一来到盖特；第三，每天全世界有价值的新闻、最重要的信息，有七分之一源自盖特。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1023AM-（123-）視頻备用-2.001.jpeg)
+郭先生预计，盖特实现第一个七分之一，会是在明年的十一月，具体的时间可能是2022年11月11日。之所以设定在这个时间点，是基于三方面的预判：包括习近平可能熬不过明年五月，疫苗灾难将摧毀现有社交媒体大佬的话语控制权，还有就是共产党2025年前必定终结。
 
-**班农先生：**这是最大的荣誉勋章。另一个荣誉勋章，是作为历史上第一位被中共制裁的美国人，发生在川普总统离开，拜登政府上台四分钟后。
+郭先生说，G系列的支付系统HPay下月即将上线。任何商家只要愿意，都可以采用HPay提供的付款服务。另外，盖特的支付系统也计划将于明年5月份左右上线。
 
-但我认为其中一部分原因，不仅仅是我过去几年与郭文贵一起合作支持中国的老百姓。特別是作为新中国联邦的共同创始人之一，我将其作为一枚荣誉徽章。
+郭先生很肯定地表示，纵然有若干变数，但不管怎么变，全人类最大的赢家就是G系列，包含喜联储、喜美元、喜币和盖特、GTV、G Fashion以及GClub。
+(本文仅代表作者观点)
 
-我是中国共产党的死敌，我是中国人民、中国老百姓和小人物永远的支持者。所以我对此感到非常荣幸。
+参考链接：[2021年10月22日 文贵大直播](https://gtv.org/video/id=6172b02683e948708d05c1b9)
 
-中共应该明白一些事。我不仅没有在监狱里，而且我生命的每一天，我都全神专注于永久铲除、摧毁中国共产党。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/班农专访.jpg)
-***编辑：【英国伦敦喜庄园编辑部】***
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-*视频字幕：*雨中漫步 *| 听写：*云岭 *| 翻译：* Dasy *| 校对：*Roberts *| 简评/文字整理/编辑：*胖丁 *| Page：Daoiii*
+总编：Jack Li文阳
+编辑：山本不惑
+校正/发稿：我不在这里
 
-* * *
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

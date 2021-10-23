@@ -2,42 +2,29 @@
 ---
 
 
-## Truth Social 的中资背景运营商运鸿国际浮出水面
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612594/)
+## 美国被封杀NBA球员坎特再发视频声援维吾尔人
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1612638/)
 
-作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/10/篮球坎特-1024x567-1.jpg)美国被封杀NBA球员坎特再发视频声援维吾尔人 网络图片
+据美国之音10月23日报道，美国职业篮球联赛（NBA）波士顿凯尔特人队中锋埃内斯·坎特（Enes Kanter）继之前发布视频谴责中共党魁习近平是“残暴的独裁者”并呼吁“让西藏自由”的视频后，22日再发新视频，谴责中共国迫害维吾尔人和其他穆斯林少数民族。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+今年29岁的坎特是土耳其裔，一直反对土耳其总统埃尔多安。他被土耳其政府通缉并吊销护照，他的家人在土耳其遭到监禁和迫害。坎特发布视频后，中共社交媒体对他发起攻击，腾讯转播商随后停止对坎特所在球队的比赛进行直播。美国政府23日对NBA被封杀表示关切。
 
+自2016年以来，中共当局一直被指控对大约100万维吾尔族和其他穆斯林少数民族实施种族灭绝。22日，美国、法国等43个国家发表联合声明，对中共国政府打压维吾尔表示关切。土耳其今年首次加入这份声明。然而，一些与中共国关系密切的穆斯林国家，包括沙特阿拉伯和巴基斯坦，没有加入联合声明。
 
+中共国是NBA的重要国际市场，但NBA与中共国的关系自2019年10月以来受到冲击。休斯顿火箭队经理达雷尔·莫雷支持香港民主抗议，在中共国掀起了对NBA和火箭队的抵制。中共是典型的敢做不敢当，攻击他人可以，自己承受不了一点质疑，动辄就会煽动被洗脑的国民发起抵制或者攻击。群众运动是中共夺取政权的基础，在中共国，不只是维吾尔人，所有的中国人都被迫害，不久的将来墙民必然在苦痛中醒来并彻底推翻中共。
 
-10月22日，郭文贵先生在大直播中爆料称，川普新上市的社交媒体平台Truth Social，其背后已经有中资运营商染指。
+新闻参考链接：[https://t.co/Dx6x2n6gjL?amp=1](https://t.co/Dx6x2n6gjL?amp=1)
 
-在纳斯达克上市的数字世界收购公司DWAC当天出现暴涨，原因系关联了川普启动的Truth Social新媒体。DWAC在技术上通过SPAC模式，和川普媒体完成合并。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1023AM-（123-）視頻备用-2.002.jpeg)
-文贵先生指出，DWAC的首席执行官Patrick Orlando，同时是运鸿国际的CEO。美国证监会的文件显示，川普总统的新媒体也将由运鸿国际的CEO运营。
+* * *
 
-据悉，运鸿国际是一家在开曼群岛注册的合法空白支票公司，而运鸿国际的母公司是总部位于武汉的运鸿集团。郭先生展示的一份文件中显示，10月份 Giga Energy与运鸿国际并购的时候，运鸿董事局主席李玉宝签字，见证人是吴征。
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-DWAC今日盘前已经暴涨80%，盘中涨幅一度超过400%，数次触发熔断。简体中文的财经媒体对此多有报道。
-(本文仅代表作者观点)
-
-参考链接：
-
-1. [运鸿集团的背景(一)](https://gettr.com/post/pevxvi087d)
-2. [2021年10月22日 文贵大直播](https://gtv.org/video/id=6172b02683e948708d05c1b9)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+编辑：【英国伦敦喜庄园编辑部】
 
-总编：Jack Li文阳
-编辑：山本不惑
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

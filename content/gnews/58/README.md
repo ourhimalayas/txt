@@ -2,21 +2,34 @@
 ---
 
 
-## 对世界各国政府机构和华尔街的基金的警告
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1609837/)
+## 纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1534601/)
 
-所有投资中共国的各国政府机构保护你们国家人民的养老金、退休金和你们国家人民的资产安全。应该把所有投资中国的人的所有的个人安全和合作者的安全性和真实性完全通过法律了解固定化，否则你们将非常惨，将面临你们国家的人民的审判。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-CN.jpg)
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-**【郭先生直播摘要】****2021.10.20****对世界各国政府机构和华尔街的基金的警告**
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
 
-**郭先生：**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-001-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-002-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-003-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-004-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-005-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-006-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-007-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-008-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-009-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-010-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-011-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-012-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-013-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-014-scaled.jpg)
 
-我可以告诉你们， 不信你们可以试试。在过去的半年内我想你们都知道， 新中国联救了多少人。 我们即使到北京城，除了中南坑我们进不去， 救人绝对做不到，除了中南坑我们进不去，救人绝对做不到。 在天安门上我都能把你救出来， 你在天安门城楼上我都能把你救出来。 在全世界上没有一个地方我们做不到的，只要想救你。如果你们需要我们拯救你。你必须前提答应这个我们不要你一分钱。
 
-我不要你做任何贡献，更不会让你跟我们双修，马云这小个双修也不行啊。 我们只要求你和当地的政府合作因为我们是救你的条件。 还有承认新中国联邦宣言灭共， 就这么简单。 我们给你提供一个正常人的生活的物质条件， 你想过豪华生活。 那什么私人飞机那不可能， 正常人的生活， 保证你安全。 这就是今天直播重中之重。
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-共产党在全世界的经济犯罪超限战， 现在已经无人能停下。共产党对全世界的威胁已经无人能避免，只有新中国联邦爆料革命让全世界知道真相。华尔街你这3000个基金，如果你看了郭文贵爆料，你不采取措施你就是欺骗，你就是犯罪。我已经告诉你们。所有中国上万名企业家的家人是被绑架、边控、威胁状态。 你们应该给每个人，按照美国法律方法， 你是否在自由状态， 你是否家人失去了自由。你是否被中国政府刑事调查。 如果这个信息没有告诉你， 你们都是共犯都是犯罪。
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
 
-这是今天郭文贵直播， 向全世界各国政府， 所有投资中共国的和通过香港和各种结构投资结构。 投资中国的各机构和各个国家政府发出的警告， 保护你们国家人民的养老金、退休金和你们国家人民的资产安全应该把所有投资中国的人的，所有的个人安全和合作者的安全性和真实性。 完全通过法律了解固定化， 否则你们将非常惨，将面临你们国家的人民的审判。 这就是今天直播。以上两条，对着国内的，很多企业家问我话的回答。 还有一个我的对全世界的公告， 爆料革命新中国联邦。
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-视频剪辑：北方信使 |听写：三分|翻译：三分|校对：烟波浩淼|字幕+视频制作：小蜜蜂 |编辑+发布：黎明的光芒
++4
