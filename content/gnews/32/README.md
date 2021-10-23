@@ -2,31 +2,39 @@
 ---
 
 
-## 法国利用流感疫苗捆绑推行新冠疫苗第三针
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612900/)
+## 现代医疗体系本身就像一个巨大的魔窟
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1612906/)
 
-作者：澳喜农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月22日，法国开始了今年的季节性流感疫苗接种，同时，法国政府竟然鼓励接种流感疫苗的民众同步注射新冠疫苗第三针。数据显示，流感疫苗的接种人群主要是65岁以上的老人和孕妇，还包括哮喘、糖尿病、心力衰竭，以及艾滋病的患者。
+**作者:** 88JJ
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1465.png)图片来源：GNEWS
+WHO、学术团体、药品生产企业自上而下的组织，以厚生省的评分原则为优先，生命是第二、第三。他们像现代毒气室一样向世界各地的人体发送疫苗（刺突蛋白）。在日本，疫苗接种也从老年人和医务人员传播到普通大众。关于这种疫苗的身份以及它带给因疫苗而死的人遍体鳞伤！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-21.jpeg)
+当我偶尔阅读批评海外有关新冠疫苗的文章时，有时会看到“这不是疫苗，而是基因疗法”这句话。但是，“治疗”就是治愈，所以如果给健康人接种，就不是这样子了。
 
-法国健康部卫生署长杰罗姆·所罗门辩称，上述民众具有同时严重感染新冠病毒和严重流感的风险。 但是，新冠疫苗副作用的大量事实证明，恰恰正是这些老年人和具有基础疾病的人员，在接种过新冠疫苗后的致死风险非常高。法国政府无视新冠疫苗风险，与流感疫苗捆绑式宣传，强势推行新冠疫苗第三针。
+在昨天的加拿大一篇媒体文章中提到“这些不是疫苗，它们只是peplomer传输系统。”它既不是疫苗也不是基因疗法。我认为这只是“一种将刺突蛋白发送到体内的装置”。刺突蛋白对人体来说是一种强大的毒素，它没有任何优点，它是用可怕的术语写的，对人体甚至没有帮助的可能性。
 
-(本文仅代表作者观点)
+从这个意义上来说，将这种东西强行注入人体，类似于二战历史文字中提及的毒气室之类的东西，只不过引入的方式很巧妙，与时俱进了。
 
-参考链接：[法国流感疫苗今开打 卫生部鼓励左右膀臂同时进行的打第3剂新冠疫苗](https://www.rfi.fr/cn/法国/20211022-法国流感疫苗今开打-卫生部鼓励左右膀臂同时进行的打第3剂新冠疫苗)
+这就是为什么我要介绍加拿大全球研究的一篇文章，其中指出“这些是peplomer传输系统”。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+这篇文章引用了其他媒体的许多内容，包括peplomers的有害影响。文章中还提到了一位曾被加拿大当局资助研发新冠疫苗的学者，将在下一篇文章中进行介绍。
 
-总编：Ivy001 
-编辑：Ivy001
-校正/发稿：谐趣园
+mRNA疫苗的开发者告诉媒体，“我们犯了一个错误。它只是一种毒素。”研究人员从辉瑞公司的从日本泄露的绝密动物试验文件中了解到了这一点。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**评**：跟西方国家类似，日本的政客也假装为民众的安危考虑，欺骗愚弄民众并收割民意。其实在他们政客和资本家眼里只有经济利益，完全抛弃把人性至上，人命关天的原则。在日本，由医生组成的日本医师协会明明知道治疗中共病毒的有效药物，但却弃之不用，完全跟大医药公司勾结，竭力夸大疫苗接种的重要性。
+
+今天疫苗接种对人类造成的伤害已经远超新冠病毒，全世界即将来临的疫苗灾害将导致接种者大量死亡或伤残。我们爆料革命和新中国联邦战友们，是全球唯一全力传播CCP病毒及其疫苗真相、青藁素和伊维菌素救命神药，拯救全球人类的群体，应当竭尽自己的力量，把真相传播出去，以尽可能多地拯救人类。
+
+原文：[http://blog.nihon-syakai.net/blog/2021/06/12452.html?g=131106](http://blog.nihon-syakai.net/blog/2021/06/12452.html?g=131106)
+
+编辑：卢卡斯
+
+发布：Lily
+
+20211023
+
+
+| 欢迎加入温哥华圆成农场！ |
+| --- |
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
