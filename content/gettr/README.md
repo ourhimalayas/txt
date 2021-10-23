@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/23/2021 9:59 PM (UTC)`
+
+“Behind the Scenes with GFASHION: Greatness in Motion”  G Fashion的幕后 #Gfashion @DDNYC  
+![img](https://media.gettr.com/group45/getter/2021/10/23/21/59/454974ec-ff43-35b7-cd9b-53eebc044ccd/out.jpg)
+
+---
+
 `@miles 10/23/2021 9:20 PM (UTC)`
 
 10月23号：尊敬的战友们好．太多战友发来各种信息，文贵确实无法一一回复，有些问题等明天24号上午9:00的与战友们的大直播中，回答亲爱的兄弟姐妹们……一切都已经开始！
@@ -289,13 +296,6 @@ Every day is a Fashion Show, and a the world is your runway. G Fashion’s New C
 
 10月19号：尊敬的战友们好……杰克．马．去西班牙意味着什么？
 ![img](https://media.gettr.com/group19/getter/2021/10/19/14/06/8776f6fd-5e02-b93b-b059-49830990c483/out.jpg)
-
----
-
-`@miles 10/19/2021 4:39 AM (UTC)`
-
-Tu Youyou said Artemisia annua has many other efficacies besides treating malaria: “I hope it can reach its full potential.”<br/><br/>屠呦呦说青蒿素除治疗疟疾外，还有很多功效：“我也很愿意物尽其用。”<br/>
-![img](https://media.gettr.com/group16/getter/2021/10/19/04/39/173dc3b9-6777-a76e-ad70-e5b1cb9bb87b/out.jpg)
 
 ---
 
