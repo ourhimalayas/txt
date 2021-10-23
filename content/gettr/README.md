@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/23/2021 9:20 PM (UTC)`
+
+10月23号：尊敬的战友们好．太多战友发来各种信息，文贵确实无法一一回复，有些问题等明天24号上午9:00的与战友们的大直播中，回答亲爱的兄弟姐妹们……一切都已经开始！
+![img](https://media.gettr.com/group39/getter/2021/10/23/21/20/8123a4eb-f67a-56e2-325a-fa08bee25ae3/out.jpg)
+
+---
+
 `@miles 10/23/2021 4:01 PM (UTC)`
 
 10/22/2021 Miles Guo: It would be impossible for Bruno Wu to do all these evil things without Yang Lan’s sex seductions who is one of the CCP’s top class agents. We, the people of the New Federal State of China, must give up illusions and rely on our own strength.<br/><br/>10/22/2021 文贵直播：吴征干的坏事都离不开杨澜找钥匙，杨澜是中共最高级的“燕子”之一。我们新中国联邦人不要有幻想，一定要靠自己的实力！<br/><br/>
@@ -289,13 +296,6 @@ Every day is a Fashion Show, and a the world is your runway. G Fashion’s New C
 
 Tu Youyou said Artemisia annua has many other efficacies besides treating malaria: “I hope it can reach its full potential.”<br/><br/>屠呦呦说青蒿素除治疗疟疾外，还有很多功效：“我也很愿意物尽其用。”<br/>
 ![img](https://media.gettr.com/group16/getter/2021/10/19/04/39/173dc3b9-6777-a76e-ad70-e5b1cb9bb87b/out.jpg)
-
----
-
-`@miles 10/19/2021 4:30 AM (UTC)`
-
-10/17/2021 Mile Guo: Anyone in the CCP system could be the next victim of the CCP, and entrepreneurs who try to cooperate with CCP in exchange for freedom won’t escape the fate of being killed at last<br/><br/>10/17/2021 文贵直播：体制内的任何人都可能是共产党的下一个受害者，试图和共产党合作来换取自由的企业家最终逃不过被杀害的命运<br/>
-![img](https://media.gettr.com/group9/getter/2021/10/19/04/30/8503dc0e-896e-4580-e36b-d6662e93a8ca/out.jpg)
 
 ---
 
