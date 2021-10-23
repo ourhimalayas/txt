@@ -2,36 +2,43 @@
 ---
 
 
-## 德国国防部长：西方团结对付中共，关系人类安全
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1611846/)
+## 西班牙的银行准备提供加密货币服务
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1611901/)
 
-作者：纽约香草山农场 – 007
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/bank-of-spain.jpg)
 
-10月21日，在北约防长会议前，德国国防部长卡伦·鲍尔接受媒体采访时表示，欧洲不应脱离美国和北约发展防务能力，欧洲和美国需要更紧密的合作。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-80.jpg)
-她的表态，是提醒一些高级官员，比如法国总统马克龙，警惕中共政权的危险性。自上月澳英美达成三边安全协议后，马克龙以此为由，推销其加大欧盟独立防务能力的论点。卡伦·鲍尔认为，法国要做的是与美国对话，考虑到中共给欧洲带来的挑战，需要西方的全部力量团结起来。
 
-卡伦·鲍尔表示，“北约将不得不越来越关注中共国”，当前最重要的事情是要认识到，“如何与中共打交道的问题，远远超出了国家利益的问题”。她说：“从大局来说，它关系到世界秩序和我们的生活方式 将如何被塑造并可能在未来被改变的问题。”
 
-据媒体报道，中共不遗余力，蓝金黄某些国家政客，分化和离间美国与欧盟的关系。卡伦鲍尔并进一步揭示，中共极权主义，已经威胁到世界的安全、西方的民主和自由。她呼吁，西方国家必须超越国家利益，团结起来对抗中共政权。
+图片来源：centralbanking.com
 
-(本文仅代表作者观点)
 
-参考链接：
-[德防长：北约将不得不越来越关注中国 警告欧洲不要脱离美国和北约](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20211021-%E5%BE%B7%E5%9B%BD%E9%98%B2%E9%95%BF-%E5%8C%97%E7%BA%A6%E5%B0%86%E4%B8%8D%E5%BE%97%E4%B8%8D%E8%B6%8A%E6%9D%A5%E8%B6%8A%E5%85%B3%E6%B3%A8%E4%B8%AD%E5%9B%BD-%E8%AD%A6%E5%91%8A%E6%AC%A7%E6%B4%B2%E4%B8%8D%E8%A6%81%E8%84%B1%E7%A6%BB%E7%BE%8E%E5%9B%BD%E5%92%8C%E5%8C%97%E7%BA%A6)
+#### 编译：小红帽
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+西班牙的银行正准备向其客户提供加密货币服务，但因为中央银行缺乏明确指示，让银行感到沮丧。
 
-总编/编辑：飞虹
-校对/发稿：Fei797
+西班牙银行（Spanish Banks）曾在6月份表示，将为希望注册并使用加密货币服务的实体提供指示。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+西班牙报纸《El Pais》周二报道称，相应的登记处将于10月29日开始运作，但银行仍在等待指示。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+该登记处旨在打击洗钱，至于是否是为被监管的金融机构而设计的，至今还不确定。
+
+监管咨询公司finReg360的合伙人格洛丽亚·埃尔南德斯·阿勒 (Gloria Hernández Aler) 表示：“银行要求这些实体通过所施加的条款是没有意义的，因为他们已经受到直接监管。”
+
+“然而，银行通知这些实体，将提供这种类型的服务确实有道理，而且这些实体可能会改变洗钱的政策，以使其适应加密资产的动态。”
+
+据《El Pais》报道，由于缺乏中央银行的明确指示，几家大型金融机构的合规部门已着手研究客户是否必须注册才能提供加密服务。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Spanish Banks Are Preparing to Offer Crypto Services: Report (coindesk.com)](https://www.coindesk.com/policy/2021/10/22/spanish-banks-are-preparing-to-offer-crypto-services-report/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
