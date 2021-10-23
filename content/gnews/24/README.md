@@ -2,27 +2,24 @@
 ---
 
 
-## 财新胡舒立已被习近平报复
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1612729/)
+## 有声|美国国防部呼吁加大稀土开采力度 反制中共垄断供应链
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1612776/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/GettyImages-97628778-1.jpeg)**图片来源：新唐人**
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+本月19日，在“北美关键矿物日”大会上，国防部产业政策办公室的丹妮尔·米勒说，美国及其盟国需要扩大稀土的开采和加工。米勒直指中共限制稀土出口的政策。她说，全球供应链面临蓄意干预的风险；美国生产“战略与关键矿物”，是增加全球供应链韧性的一个必要条件。她例举了美国正在开发的稀土项目，意图表明五角大楼是一个“有耐心的战略投资者”。美国希望与盟国矿业公司建立可持续性的合作，加速供应链从成本导向转为价值观导向。
 
+在制造用于武器和电动汽车的特制磁体时，稀土金属不可或缺。中共目前在稀土生产领域占据龙头地位。
 
-**作者: 顺其自然**
-**编辑: MSGZ**
+文字版原文：[美国国防部呼吁加大稀土开采力度 反制中共垄断供应链](https://gnews.org/zh-hans/1607300/)
 
-在中共的十八大之后，《财新传媒》几乎成了习近平和王岐山的反腐风向标。习王打虎每到关键时刻，《财新传媒》就会有独家的消息，但前两天，中共网信办公布了一份新闻信息源“白名单”，白名单”是中共网信办发布的新闻信息源名单，是自2016年以来的首次更新。其中包含了大约1300多家媒体、政府机构和社交媒体账户。只有列入“白名单”的媒体，网络新闻平台才可以转载，如果使用其它资源将被依法处置。
-
-让外界关注的是，在这次的“白名单”中没有出现“财新网”。而这次的名单数量，是2016年时的4倍。虽然数量多了，但是多次独家报导重大新闻的财新网却被踢出。中共网信办称，名单中的媒体都是“坚持正确政治方向”的。这就让人联想到前段时间，财新的掌舵人胡舒立发出过一张被认为是在讽刺习近平的“猪头”图片。这也让人怀疑，可能是照片招来了习近平的愤怒。
-
-现在习近平不让胡舒立发声，把她冷冻起来了。还有一个原因就是，财新胡舒立的最大靠山王岐山已经失势。这和之前的任志强、董宏被抓，都能印证这一点。更重要的是，习近平和王岐山已然是两个阵营。失去了保护伞、又是当政派的异己，财新没有了利用价值。如果还是如以前敢言，自然就成了的眼中钉，成为被整肃的对象。所以财新胡舒立的未来结局取决于习近平与王岐山进一步内斗的结果。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**发布**: Janek
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

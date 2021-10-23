@@ -2,37 +2,29 @@
 ---
 
 
-## 11月中共六中全会将作关键决定
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612596/)
+## 美国被封杀NBA球员坎特再发视频声援维吾尔人
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1612638/)
 
-作者：纽约香草山农场教育部 – 正义的小新
+![](https://assets.gnews.org/wp-content/uploads/2021/10/篮球坎特-1024x567-1.jpg)美国被封杀NBA球员坎特再发视频声援维吾尔人 网络图片
+据美国之音10月23日报道，美国职业篮球联赛（NBA）波士顿凯尔特人队中锋埃内斯·坎特（Enes Kanter）继之前发布视频谴责中共党魁习近平是“残暴的独裁者”并呼吁“让西藏自由”的视频后，22日再发新视频，谴责中共国迫害维吾尔人和其他穆斯林少数民族。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+今年29岁的坎特是土耳其裔，一直反对土耳其总统埃尔多安。他被土耳其政府通缉并吊销护照，他的家人在土耳其遭到监禁和迫害。坎特发布视频后，中共社交媒体对他发起攻击，腾讯转播商随后停止对坎特所在球队的比赛进行直播。美国政府23日对NBA被封杀表示关切。
+
+自2016年以来，中共当局一直被指控对大约100万维吾尔族和其他穆斯林少数民族实施种族灭绝。22日，美国、法国等43个国家发表联合声明，对中共国政府打压维吾尔表示关切。土耳其今年首次加入这份声明。然而，一些与中共国关系密切的穆斯林国家，包括沙特阿拉伯和巴基斯坦，没有加入联合声明。
+
+中共国是NBA的重要国际市场，但NBA与中共国的关系自2019年10月以来受到冲击。休斯顿火箭队经理达雷尔·莫雷支持香港民主抗议，在中共国掀起了对NBA和火箭队的抵制。中共是典型的敢做不敢当，攻击他人可以，自己承受不了一点质疑，动辄就会煽动被洗脑的国民发起抵制或者攻击。群众运动是中共夺取政权的基础，在中共国，不只是维吾尔人，所有的中国人都被迫害，不久的将来墙民必然在苦痛中醒来并彻底推翻中共。
+
+新闻参考链接：[https://t.co/Dx6x2n6gjL?amp=1](https://t.co/Dx6x2n6gjL?amp=1)
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-郭文贵先生在22日的大直播中，深刻解读了十九届六中全会的意义。
-
-文贵先生提到，中共十九届六中全会，最核心的将是决定中共国社会到底走什么制度的问题：是北朝鲜化，还是走向国际化。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1023AM-（123-）視頻备用-2.003.jpeg)
-据内部战友爆料，王沪宁主力推进企业公有化、杜绝私人企业家，并计划实施文革2.0，王也因此成为全党最被憎恨的第二个人。而习近平绝对支持经济完全国有化，特别是在媒体、能源、基础设施、金融等领域，绝不允许私人企业参与。私人企业只能做血汗工厂，出钱、出力有份，但不能有利润。
-
-历史上，中共的六中全会通常聚焦意识形态、党建等问题，并有可能议定下届党代会的召开日期。 历史上曾有两次重要的六中全会：六届六中全会开启毛时代，规定中共中央要“以毛泽东为首”；十一届六中全会彻底否认文革，形成了以邓为核心的领导集体。
-(本文仅代表作者观点)
-
-参考链接：[2021年10月22日 文贵大直播](https://gtv.org/video/id=6172b02683e948708d05c1b9)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编：Irene木木
-编辑：山本不惑
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

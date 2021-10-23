@@ -2,22 +2,42 @@
 ---
 
 
-## 澳大利亚人到了为自己而战的时刻
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1612558/)
+## Truth Social 的中资背景运营商运鸿国际浮出水面
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612594/)
 
-翻译：文蕾
+作者：纽约香草山文艺部 – 宁文静
 
-AustraliaONE党首、前澳大利亚陆军特种部队中校Riccardo Bosi在最近的访谈中指出，那些允许和协助外国势力干涉内政的政客们，是明显的叛国者。我们将有我们自己的纽伦堡审判，对那些严重的叛国者实施死刑和终身监禁，不予假释.
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-他说，澳大利亚已经没有自己的法律了，一位司法人员竟然说因为总理没有尽力推行全球议程，我们需要联合国进驻澳大利亚。而所谓的联合国军队就是外国势力，他们都是穿着制服的打手和强奸犯，他首先想到的就是中共国的军队。
 
-当澳大利亚面临外国势力侵入时，我们必须自己站起来，如果我们只是等待别人来帮我们，他们是不会来的。战争就是这样的，你必须去争取你的权利，我们要去争取我们的权利。这将是澳大利亚人有史以来第一次在自己的国土上为自己而战，虽然这对普通人来说是难以接受的，因为他们一直认为战争都是在别的国家是别人的事。
 
-但是，我们不能等待其他人，那样我们会输掉战争。
+10月22日，郭文贵先生在大直播中爆料称，川普新上市的社交媒体平台Truth Social，其背后已经有中资运营商染指。
 
-（文章仅代表作者观点，与Gnews无关）
+在纳斯达克上市的数字世界收购公司DWAC当天出现暴涨，原因系关联了川普启动的Truth Social新媒体。DWAC在技术上通过SPAC模式，和川普媒体完成合并。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1023AM-（123-）視頻备用-2.002.jpeg)
+文贵先生指出，DWAC的首席执行官Patrick Orlando，同时是运鸿国际的CEO。美国证监会的文件显示，川普总统的新媒体也将由运鸿国际的CEO运营。
 
-视频&字幕&发布：Runaway
+据悉，运鸿国际是一家在开曼群岛注册的合法空白支票公司，而运鸿国际的母公司是总部位于武汉的运鸿集团。郭先生展示的一份文件中显示，10月份 Giga Energy与运鸿国际并购的时候，运鸿董事局主席李玉宝签字，见证人是吴征。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+DWAC今日盘前已经暴涨80%，盘中涨幅一度超过400%，数次触发熔断。简体中文的财经媒体对此多有报道。
+(本文仅代表作者观点)
+
+参考链接：
+
+1. [运鸿集团的背景(一)](https://gettr.com/post/pevxvi087d)
+2. [2021年10月22日 文贵大直播](https://gtv.org/video/id=6172b02683e948708d05c1b9)
+
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Jack Li文阳
+编辑：山本不惑
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

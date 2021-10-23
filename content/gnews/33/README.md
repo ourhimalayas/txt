@@ -2,21 +2,19 @@
 ---
 
 
-## 秘翻在线：脸书正面临着一系列掩盖事实的指控
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1612634/)
+## 中共国已容不下说真话的人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1612692/)
 
-#### 翻译撰稿：Hakunamatata
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-429.png)[图片来源](http://nyceducator.com/2012/09/what-do-you-do-when-truth-doesnt-matter.html)
+新浪财经报道，近日河北省临漳县5名学生家长涉嫌寻衅滋事被刑拘，因参与反映学校食堂卫生问题，其中1人被批捕，4人取保候审。当地教育部门发出声明称，涉事学校不存在食堂卫生问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/zuckerberg14364phearing.jpg)
+家长吐槽学校食堂卫生条件差，就被当地公安机关刑拘、逮捕，这都是流氓行为。当地教育部门给出的解释是“图片、视频与事实严重不符，涉嫌造谣！”孩子拉肚子，作为家长怀疑食堂卫生条件不好合情合理，不解决问题，却解决提出问题的人。在中共国官商勾结造成的各种灾难，各种纠纷层出不穷，因举报人各种被杀，各种消失无影无踪的事件每天都在发生。防民之口，甚于防川，川壅而溃，伤人必多，民亦如之。
 
-据周五的一个报告显示，一名新的举报人提出指控，称Facebook管理层将利润都放在了遏制社交媒体平台上仇恨言论和虚假信息的传播上面。
+消息来源：[媒体：5名家长反映学校食堂卫生问题被刑拘](https://cj.sina.cn/article/norm_detail?url=http%3A%2F%2Ffinance.sina.cn%2F2021-10-23%2Fdetail-iktzqtyu3121112.d.html&amp;autocallup=no&amp;isfromsina=yes)
 
-据《华盛顿邮报》报道，这名举报人是前脸书（Facebook）员工，也是该公司信用部门的成员，他在提交给美国证券交易委员会的一份证词中提出了上述指控。据称，这些指控证实了另一名前脸书（Facebook）员工弗朗西斯·豪根(Frances Haugen)最近提出的许多指控。本月早些时候，豪根在国会山就该公司的做法发表了谴责证词。
+（文章仅代表作者本人观点，与GNEWS无关）
 
-这名新的举报人表示，由于担心时任总统唐纳德·川普(Donald Trump)会做出政治反击以及该公司的底线受到损害，脸书（Facebook）的官员往往对公众问题内容的担忧漠不关心，要不就是极力削弱回应。 这份日期为10月13日的宣誓书详细描述了2017年的一起事件。据称，脸书一名公关高管在其中否认了公众对俄罗斯干预2016年大选的强烈反应的担忧。脸书的公关官员塔克·邦兹说，这只是昙花一现。一些立法者会生气的，几周后，他们就会转向其他领域。与此同时，我们在地下室印钞票，我们很好。
-
-新举报人的身份尚未公开披露。 《华盛顿邮报》获得的一份声明中，脸书女发言人艾琳·麦克派克却表示：“在《华盛顿邮报》的背后的过去五年里，《华盛顿邮报》和《纽约时报》一直在激烈地竞争，在深度报道复杂的故事中，它们的记者能找到多少可靠的消息来源。这开创了一个危险的先例，就把整个故事都挂在一个来源上，在没有任何明显证据的情况下就提出了广泛的主张。”
-
-在最新的指控浮出水面之际，脸书正面临着立法者对其商业行为前所未有的批评。《华尔街日报》和其他媒体发表的谴责性媒体报道详细描述了脸书的内部文件，显示高管们知道该平台正在对公众造成的伤害。《华尔街日报》的系列报道基于豪根提供的文件，他是曾经呼吁国会监管脸书的人之一。
-
-原文链接：[**New Facebook whistleblower claims execs downplayed Russian interference, hate speech: report**](https://www.foxbusiness.com/technology/new-facebook-whistleblower-russian-interference-hate-speech)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)

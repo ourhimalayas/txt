@@ -2,36 +2,39 @@
 ---
 
 
-## 强制新冠疫苗政策下的美国各界
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612935/)
+## 前线医生：医院阻止报告疫苗副作用
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1612971/)
 
-俄罗斯莫斯科喀秋莎农场 – 银河/秘密翻译组 – Grace/洛杉矶盘古农场 – 钢蛋儿
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-431.png)
-据相关消息报道，华盛顿州巡逻队于10月19日宣布，根据华盛顿州的强制疫苗政策，有127名工作人员因拒绝接种新冠疫苗而被解雇。
+**撰稿：日本东京方舟农场 海星**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-21.jpeg)
+据《每日曝光》10月21日报导，纽约联合纪念医疗中心的医生黛博拉·康拉德（Deborah Conrad）披露，在她提出要将医生们反馈的疫苗不良反应向VAERS报告时，遭到医院的制止。
 
-而对于遍及全美的疫苗接种令，10月20日，纽约市最大的警察工会——警察慈善协会表示，将起诉纽约市对警察、消防员和其他市政工作人员实施的疫苗强制令。警察慈善协会认为，接种疫苗与否应由“个人医疗决定”。
+黛博拉·康拉德医生在纽约联合纪念医疗中心工作时，发现约有90%的入院病人接种了疫苗。她表示，这些病人因各种原因入院，包括但不限于病毒感染，其中多数是年轻人，并有许多人出现异常或意外，而且都是在接种疫苗数月后入院的。
 
-早在10月14日，俄克拉荷马州州长凯文·斯蒂特宣布，由于新冠疫苗的强制接种令，他们将把联邦政府告上法庭。斯蒂特认为，政府此举不尊重个人自由，且有违宪法，属越权行为。
+康拉德亲自治疗了至少5名接种疫苗后6周内出现深静脉血栓或肺血栓的患者。此外，仅在一天之内，她就有4名患者在疫苗接种后一周内突然患上双侧肺炎。
 
-对于已知有害的疫苗及强制推行疫苗的政府，希望越来越多正义的力量可以勇敢站出来反抗，以停止这场疫苗灾难。
+此外，她还观察到接种疫苗后的人也会出现中风、大出血、自身免疫性肝炎、晕厥、心律失常、癫痫、胆囊炎等症状。
 
-(本文仅代表作者观点)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/119183302_whatsubject-1.jpg)图片来自于网络
 
-参考链接：[纽约警察工会将起诉纽约市疫苗强制令](https://gnews.org/zh-hans/1608786/)
-[127名华盛顿州警员因抵制强制疫苗而被解雇](https://gnews.org/zh-hans/1605463/)
-[俄克拉荷馬州長反對拜登疫苗強制令，稱接種是個人自由](https://gnews.org/zh-hant/1606393/)
+康拉德表示，她将上述情况如实告诉了医院，并且提出将其他医生反馈的疫苗不良反应一起向VAERS报告时，医院却指示她只能上报她自己的患者情况，不能上报其他医生的患者。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+于是，康拉德在四周内向VAERS提交了50份疫苗不良反应的报告，其中包括4例死亡，然而医院的首席质量官却表示，她没有从其他地方听到过这样的报告，也没有从另一家医院听到过类似的报告。这意味着如果康拉德医生不提交这些报告，就没有人会提交。
 
-编辑：Kathy（文艺）/圣母院钟声/正义的小新
-校正/发稿：谐趣园
+康拉德的代表律师Aaron Siri表示，医院告诉康拉德，作为临床医生和部门领导要支持医院对疫苗的做法，而向VAERS提交报告显然与医院的政策相悖。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+Siri于7月19日代表康拉德给CDC和FDA发了一封信，信中说：“医院没有对医疗服务提供者进行VAERS培训，鼓励他们有效和持续地提交疫苗不良反应的报告，反而积极地阻止医生们这样做，这种现象令人震惊。”
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+
+
+> [Hospital whistleblower says she was not allowed to report adverse reactions to the Covid-19 vaccines suffered by patients](https://theexpose.uk/2021/10/21/hospital-whistleblower-says-she-was-not-allowed-to-report-adverse-reactions-to-the-covid-19-vaccines-suffered-by-patients/)
+
+
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*
