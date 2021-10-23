@@ -2,56 +2,60 @@
 ---
 
 
-## NIH坐实资助武毒所，福奇国会作证在撒谎
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1611971/)
+## 吴征报告成功拿下川普成功用强奸案和太盟官司拿下七哥
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1612048/)
 
-**翻译：Lindaxxoo
-编辑：MSGZ/文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/571064e645f43e66ecf28c70bc653ce3_副本.jpg)
+据[2021年10月22日 文贵大直播：马云为什么在西班牙而不敢回香港；吴征成功拿下川普，共产党已经控制了川普；习的行为都是个人恩怨造成的；中共六中全会会发生什么，会有什么结果；G系列是让共产党最害怕的](https://gtv.org/video/id=6172b02683e948708d05c1b9)时间点30：54——
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/10.23-1.png)图片来源 Marjorie Greene
+**郭文贵先生：**第三个刚才是川普总统的事儿，川普总统，我发给你们那个，刚才我发给了我们的墨镜，这我也发给咱群里面了。
 
+哇噻！刚才有一个特别重要的一个咱们战友说，哎呀，七哥，这是上天帮咱呐！我说为什么呀？他说吴征刚给我们写的报告，说我们已经成功拿下川普总统了，我们有绝对的信心向组织，你看我承诺的吧，我帮助你们用强奸案干掉郭文贵，我用太平洋官司的事情、前FBI高官干掉郭文贵，我现在又成功地拿下了川普总统，用SPAC这种就是所谓的空白空壳公司上市。
 
-美国时间9月8日，参议员兰德·保罗再次指责安东尼·福奇博士7月份在参议院作证宣誓时在撒谎，当时他声称美国国立卫生研究院（NIH）没有资助在中国武汉进行的有争议的功能增益研究。“令人惊讶的是——福奇又撒谎了”，参议员保罗在推特上说：“关于他的机构资助武汉的新型冠状病毒研究，我的观点是正确的。”
+就是中国的所谓的风控上市公司，你就是现在巴黎、文耀说，你看看我现在发展了一种内裤，是不是啊？保证你可以什么什么不用吃避孕药了，然后我就可以上市。谁信你就买我的，不信拉倒，这就叫空白空壳上市公司，在美国叫SPAC。
 
-此前，新闻机构《拦截》获得的最新发布文件显示，NIH向美国生态健康联盟提供了310万美元的拨款。其中近60万美元的资金直接流向武汉病毒研究所，用于研究蝙蝠冠状病毒。
+那你川普总统说你看我未来可能有100亿个粉丝，我就上去了，上去以后那就青藤也买，老班长也买，老班长找几个托儿买，一看股票涨上去了，然后再chua~就跑了是吧，这叫空壳空头公司。
 
-7月，福奇博士告诉参议院，NIH确实为研究蝙蝠冠状病毒提供了资金，但是这笔钱并没有资助危险的功能增益研究。功能增益是指“以增加致病性、传播性或宿主范围的方式改变一个生物体或疾病”的医学研究。
+那么这个背后的是谁呢？叫中运鸿，大家知道武汉的这个王八蛋，还有个美国叫Patrick（注：Patrick Orlando），背后就是吴征，就是吴征！然后给中央报告，你看我们很成功了！我们现在很成功了！
 
-然而在900页的文件被公布后——罗格斯大学的一位分子生物学家说，（福奇）声称该研究没有被定义为功能增益是“不真实的”。
+我可以告诉大家，川普总统那个基金总共拿了不到500万美元，总共500万美元，他对外说可能我会拿到8亿美元。他为什么呢？吴征就找了一个公司说如果是低于了3亿美元，我给你3亿，就这吴征就跟当年在查尔斯王子认识一样，叫那个我的哥们邓永锵去了，说我要捐你100万磅，见完面喝完了、拍完照片了，然后说一百万我给你股票，最后给股票是那个什么那个雅致的股票，就是你给我股票吗？股票也不给了，最后是我有两件老家具给你。最后川普总统估计能弄两件古董家具啊，刷了油漆的古董家具，估计得要青藤帮他刷去，这就这结局。
 
-“这些文件清楚地表明，美国国立卫生研究院院长弗朗西斯·柯林斯和美国过敏和传染病研究所（NIAID）主任安东尼·福奇的断言——NIH不支持在武汉病毒研究所进行功能增益研究或潜在的大流行病原体增强研究，是不真实的。”理查德·埃布莱特发推。
+最重要的是什么？他给中共这个报告说能拿下，中共一片欢呼啊，就刚才我在直播前这信息，你想想一片欢呼，七哥，我们这一片欢呼，说这回把川普彻底拿下，捏在手里了，蛋子儿让咱捏住了。
 
-“材料显示，2014年和2019年NIH对美国生态健康联盟的拨款与武汉病毒研究所的分包合同，资助了2014-2017年生效的联邦政策中定义的功能增益研究和2017年至今生效的联邦政策中定义的潜在大流行病原体增强（研究）。”
+战友们为啥这个战友说对自然是好事呢？2016年川普当上总统，2017年吴征要把老婆送给班农，要单独在班农卧室采访班农，是吧？大家记住这是班农自己说的吧？跟他的几个合作伙伴游说要川普总统遣返七哥，还有什么Higginbotham，是吧？还有一堆的Elliott Broidy这些人，这件事情吴征现在还没被调查呢！是吧？
 
-“这些材料证实，拨款支持在武汉构建新型嵌合SARS相关冠状病毒，将一种冠状病毒的刺突蛋白基因与另一种冠状病毒的遗传信息相结合，并证实所产生的病毒可能感染人体细胞。”
+但是这一回这就是轮回，轮回呀！他现在欺骗美国前总统，现在又搞了这么一个诈骗，吴征是美国公民，现在我们给他所有的案子就不来美国，不要脸这个家伙，他不来美国！一，他真来不了美国，共产党让他来不了，他一直被控制；二，他不想来美国，但是这回事儿他最终会暴露的。
 
-文件还显示，武汉大学动物实验中心对具有人类细胞受体的基因工程小鼠进行了单独研究。
+据我所知不低于10家大媒体在调查这件事背后，调查完以后，结果是共产党控制了川普总统——前美国总统，还有一个最有希望再回白宫的美国总统，那就帮咱，吴征必须面对司法和国会议员的调查，这个弹药全引到吴征那儿去了，好不好，是吧？这是一个。
 
-陈丽娜也是一为分子生物学家，她评估了这些文件和研究蝙蝠冠状病毒的严重性。
+最重要的事情，这次SPAC已经公开了，没有人能停止这种丑闻。这对爆料革命是个什么概念？这就像川普总统加入盖特一样，我非常非常佩服我们的背后投资者，你们要对咱们的投资机构要有信心，——一分股权不能给，你爱来就来。
 
-“在这份提案中，他们实际上指出，他们知道这项工作的风险有多大”，她说：“他们一直在谈论人们可能会被咬伤，而且他们保留了每个被咬伤的人的记录。”
+我们所知道的是，过去一年多来给川普总统做了presentation的三十几家，全是让川普总统付钱的，没有一个给川普总统付钱的，只有盖特承诺给他付钱，但是付的钱是多少？不能超过1亿美元。这一亿美元是根据川普总统的关注量，最低保1亿美元，但一分股份没有。
 
-“生态健康联盟有这些记录吗？如果没有，他们怎么能排除与研究有关的事故呢？”
+现在川普总统得到了3亿美元的承诺，还有85%的股份，叫吴征Bruno Wu直冲过去了，那当然盖特不能给了。那么这回好了，现在吴征是共产党派来的，中运鸿是绝对共产党的情报机构，而且在美国制造虚假文件。
 
-【备注：陈丽娜（Alina Chan）是一位加拿大分子生物学家，在麻省理工学院和哈佛大学博德研究所从事基因治疗和细胞工程。她主张中共病毒是实验室泄漏。】
+那么在这种情况下，这就成了一个国际政治事件了，他们越炒作盖特越有人关注，而且最重要的是所有投资者都不同意川普总统加入这个平台，因为他来之后的80%可能性把盖特的数据给你关掉，而且一半世界的人不喜欢这个盖特平台，这个风险是很大的！说实在话，一直支持川普Jason Miller先生是他的前办公室的人，但是谁也不愿意冒着风险，现在好了，不用来了，也不用冒着风险了。
 
-10月20日，NIH院长柯林斯和NIAID主任福奇都声称NIH没有资助武汉的功能增益研究。今天我们发现他们撒谎了。
+而且盖特将成为一个绝对的没有政治原则、一个全社交媒体的平台，而且川普总统给我们做个大广告，是吧，而且更重要的现在事情川普总统真的这是个错误的选择，这对他的政治生涯是致命的，全是假的，Bruno Wu，所以这是大好消息。
 
-NIAID主任福奇博士在与参议员兰德·保罗谈话时是宣过誓的。他否认NIH资助了武汉的功能增益研究。今天，NIH向美国众议院提供了一份文件，声称NIH确实资助了武汉的功能增益研究。看来福奇和科林斯有麻烦了。
+（以下暂略）
 
-（文中仅代表作者个人观点，与Gnews平台无关）
+撰稿：喜马拉雅的肉夹馍；
 
-参考链接：
-1、[BREAKING: NIH Today Corrects False Statements by Directors Collins and Fauci – the NIH Did Fund Gain-of-Function Research in Wuhan – Fauci Lied Under Oath (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/10/breaking-nih-today-corrects-false-statements-directors-collins-fauci-nih-fund-gain-function-research-wuhan/)
+审核：喜马拉雅的馍夹肉；
 
-2、[‘](https://www.heraldsun.com.au/news/world/fauci-lied-new-documents-on-lab-leak-theory-released/video/571210fba43fdce386bc16291880c204)[Fauci lied’: New documents on lab leak theory released | Herald Sun](https://www.heraldsun.com.au/news/world/fauci-lied-new-documents-on-lab-leak-theory-released/video/571210fba43fdce386bc16291880c204)
+校对：Maarago
 
-3、[They called it a conspiracy theory. But Alina Chan tweeted life into the idea that the virus came from a lab. | MIT Technology Review](https://www.technologyreview.com/2021/06/25/1027140/lab-leak-alina-chan/)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-发布i：文武全才
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
