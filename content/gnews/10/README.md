@@ -2,42 +2,33 @@
 ---
 
 
-## FDA在其文件中承认COVID-19疫苗无法提供免疫力
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1612390/)
+## 国际要闻汇编 10月23日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1612427/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 素材：东京樱花团｜GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-1-5.png)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1023/20211023122310928.jpg)
+1、[**美军出动死神无人机 击毙盖达高阶头目**](https://www.aboluowang.com/2021/1023/1663119.html)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/https___d1e00ek4ebabms.cloudfront.net_production_55d687f2-0197-48a0-a2f6-125068e0d578.jpg)
+美军中央司令部发言人里格斯比在声明中说：“美军今天(22日)在叙利亚西北部发动空袭，击毙盖达高阶头目马塔尔（Abdul Hamid al-Matar）。”他说，美军是出动一架MQ-9无人机，目前已知没有其他人员伤亡。里格斯比说：“铲除这名盖达高阶领袖，将能破坏这个恐怖组织进一步密谋发动全球攻击的能力。”
 
+2、[**防疫解封夜店涌人潮 英国出现神秘“针戳犯”受害者被刺就昏**](https://www.aboluowang.com/2021/1023/1662939.html)
 
+英国7月19日解除防疫限制，酒吧夜店恢复人潮，近来各地却出现多件“针刺”事件，受害者回报感觉被针戳到，不久后就头昏、或失去意识，怀疑是被偷偷注射镇定剂或药物。英国内政大臣芭特尔要求警方提供最新报告，逾30所大学团体呼吁学生暂时别上夜店，直到店家可以加强保护措施。诺丁汉郡警方周五（10/22）证实，本月有15例类似报案，上月有32例，目前已经逮捕两名嫌犯。英格兰西约克郡近日也有1例，苏格兰爱丁堡、格拉斯哥、丹地也各有数起通报。
 
-图片来源：Andrew Kelly/Reuters
+3、[**挖隧道、在实验室种大麻，两名华人被捕**](https://www.aboluowang.com/2021/1023/1662933.html)
 
+10月20日，西班牙国民警卫队在巴利亚多利德市Zaratán郊区发现一个工业仓库，那里存在一个大型大麻“实验室”，其设备价值高达25万欧元以上。该实验室由两名华人24小时看管，目前他们已经被捕。据悉，两名涉案华人在仓库内部和外面的街道之间挖掘了一条隧道，一边能够将非法的大麻“实验室”灯光折射出仓库，从而方便掩饰他们的非法行为。不过，他们并没有成功，由于高电能消耗最终还是引起了警方的注意，并最终发现并逮捕了他们。
 
-#### 编译：小红帽
+4、[**俄罗斯炸药工厂爆炸 轰天巨响！酿16死、1人失踪**](https://www.aboluowang.com/2021/1023/1662823.html)
 
-安东尼·福奇博士[Dr. Anthony Fauci上个月在主流媒体上不知所措](https://www.realclearpolitics.com/video/2021/09/10/fauci_natural_immunity_vs_vaccine_for_covid-19_needs_to_be_discussed_seriously.html)，无法解释为什么从疫苗获得的免疫力优于一般疾病的自然免疫力。
+俄罗斯一间工业级炸药工厂周五（22日）发生爆炸，死亡人数目前已知至少增至16人，尚有1人下落不明。整间工厂厂房几乎被夷为平地。事发工厂位在莫斯科东南方200公里的利珊市，当时员工正开始上班，有人启动机械之后，就传出爆炸。消防人员获报抵达现场抢救，但现场厂房几乎被炸得夷为平地，建筑物焦黑一片。当局起初表示15人死亡，之后再说有1名男子送医后因为严重烧伤不治。目前仍有1人下落不明，救援人员“仍在找寻他”。
 
-大型制药公司比任何人都更清楚，有效的营销取决于让消费者相信他们有巨大的需求，而唯独你满足这一需求。但是，如果消费者并没有真正的需求，并且他们意识到这点，那么游戏就结束了。如果消费者意识到假中共病毒（COVID-19）疫苗提供假的中共病毒免疫力，他们就不会想接种疫苗。
+5、[**入世20年 中共国在世贸审议遭遇严厉抨击**](https://www.voachinese.com/a/us-allies-face-off-china-wto-review-20211022/6282503.html)
 
-看看辉瑞（Pfizer）或食品药品监督管理局(FDA）都承认这一点。一切都记录在这份美国食品和药物管理局文件中，题为“疫苗和相关生物产品咨询委员会会议[，2021年9月17日|FDA 简报文件| COMIRNATY（中共病毒疫苗，mRNA）](https://www.fda.gov/media/152176/download)的加强剂许可申请。”文件承认，与没有接种疫苗的安慰剂受试者相比，接种疫苗的研究对象感染中共病毒的人数更多。换句话说，**疫苗增加了你感染中共病毒的机会！**
+美国和主要盟国这个星期在世界贸易组织(WTO)举行的第八次对华贸易政策审议上严厉抨击中国的不公正贸易政策，称中国通过大量使用工业补贴和其他不公正做法破坏了基于规则的全球贸易体系。在10月20日的首日审议中，共有50个世贸组织成员代表发言，大多对中国在过去20年的贸易做法提出批评。今年恰逢中国加入世贸组织20周年。
 
-以下是第22页的确切引述：
+（本文只代表个人观点，与Gnews网站无关）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/FDA.jpg)图片来源：https://www.fda.gov/media/152176/download
-
-
-用通俗易懂的话来说，1,000人中约有70人接种辉瑞-生物技术公司的疫苗（BNT162b2，在COMIRNATY之前根据紧急使用授权[EUA]制定的配方）感染了中共病毒，而接种安慰剂的1,000人中只有约51 人感染了中共病毒。因此，**疫苗不仅没有提高免疫力，反而降低了免疫力。疫苗给了疫苗接种者虚假的中共病毒免疫力。**
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Fake COVID Immunity: Sources Show COVID Vaxxed Get COVID More (thefreedomarticles.com)](https://thefreedomarticles.com/official-narrative-fake-covid-vaccine-gives-you-fake-covid-immunity/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*编辑：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
