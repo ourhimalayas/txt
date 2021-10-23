@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/23/2021 2:08 AM (UTC)`
+
+10/22/2021 Miles Guo: Bruno Wu reported to the CCP confidently that he has successfully got control of President Trump. Why is it good for our Whistleblowers’ Movement and the New Federal State of China? Because Bruno Wu will face the inquiries from the DOJ and the Congress as he orchestrated a scam to render President Trump under the CCP’s control<br/><br/>10/22/2021 文贵直播：吴征信心满满地给中共报告，称已经成功拿下川普总统；为啥这对咱爆料革命、新中国联邦是件好事？吴征用诈骗让中共控制了川普总统，所以他将面临司法和国会议员的调查<br/>
+![img](https://media.gettr.com/group2/getter/2021/10/23/02/08/69ab126b-d59d-5230-843c-97e9a7c3e4fc/out.jpg)
+
+---
+
 `@miles 10/22/2021 11:58 PM (UTC)`
 
 10/22/2021 Miles Guo: The core issues of the 6th Plenary Session of the CCP’s Central Committee are: 1) eliminating the private entrepreneurs and the complete nationalization of the economy; and 2) when to invade Taiwan? This meeting will determine the future of the Communist China - to become another North Korea or return to the rule of the 9 CCP Politburo Standing Committee Members. Xi has the final say in choosing his successor<br/><br/>10/22/2021 文贵直播：中共此次六中全会最重要的议题是：1) 消灭私营企业家、经济上完全国有化；2) 何时打台湾；这次会议将决定中共国的未来走向是北朝鲜化，还是回归”九龙治水”；在继承人的问题上，习说了算<br/>
@@ -289,13 +296,6 @@ Tu Youyou said Artemisia annua has many other efficacies besides treating malari
 
 10/18/2021 Miles Guo’s GETTR: It’s karma! Both Pan Shiyi and Zhang Xin, who pushed to repatriate me, are now wanted by the CCP! When taking the artemisinin-piperaquine tablets and artemisinin, please consult the doctors first and be very cautious! We will have a key person provide more information on taking artemisinin<br/><br/>10/18/2021 文贵盖特：当年推动遣返文贵的潘石屹和张欣遭到报应，二人均被中共通缉；在服用青蒿素哌喹片和青蒿素时，请大家遵从医嘱，务必小心！我们将联系重要人士提供更多关于服用青蒿素的信息<br/>
 ![img](https://media.gettr.com/group34/getter/2021/10/18/22/56/b1f28994-ba6b-10bb-73e5-511132784536/out.jpg)
-
----
-
-`@miles 10/18/2021 10:54 PM (UTC)`
-
-10/18/2021 Miles Guo’s GETTR: The Jade Cong, Jade Yue Axe, and Jade Bi of the Liangzhu Culture dating back over 5,000 years are the symbols of separation of powers; Although the Chinese dragon head structure of the Pangu Plaza has been destroyed by the CCP, it implies the Communist China is like a group of dragons without the lead, and this is exactly what Jade Cong means - CCP, you are finished!<br/><br/>10/18/2021 文贵盖特：5000多年前良渚文化的玉琮、玉钺、玉璧象征着三权分立；盘古龙头虽被中共毁掉，但这意味着中共国群龙无首，群龙无首就叫玉琮 - 中共，你完蛋了！<br/>
-![img](https://media.gettr.com/group24/getter/2021/10/18/22/54/39409712-ab05-8fc5-8243-5eece349b080/out.jpg)
 
 ---
 
