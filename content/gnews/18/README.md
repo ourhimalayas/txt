@@ -2,34 +2,42 @@
 ---
 
 
-## 银河快讯：动物权利成为日本大选关键议题；软银将与LINE合并
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1612369/)
+## FDA在其文件中承认COVID-19疫苗无法提供免疫力
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1612390/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-71.png)[图片来源](https://www.dwnews.com/)
-**1.****厚劳省将国保费提高3万日元**
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-[据朝日新闻10月22日报道，日本厚生劳动省（MHLW）周三宣布，计划从明年起将自营职业者的国民健康保险（NHI）保费年度上限将从目前的99万日元提高到3万日元。 它将适用于年收入约为1140万日元以上的单人家庭，或占总数的1.58%。 此前，上限设定为年收入至少为1100万日元的家庭。增加的资金将用于支付医疗费用，包括20,000日元的基本金额和10,000日元用于支持老年人的医疗系统。](https://news.yahoo.co.jp/articles/736db150df02e1420a1cda6828f414ac3ad41f9e)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/https___d1e00ek4ebabms.cloudfront.net_production_55d687f2-0197-48a0-a2f6-125068e0d578.jpg)
 
-**2.****日本八大汽车制造商将汽车产量削减至130万辆**
 
-[据读卖新闻10月22日报道，根据日产的新减产计划，10月和11月的全球产量将比计划水平减少约30%。 该公司没有给出具体的单位数量。 该公司表示，由于半导体的短缺和东南亚汽车零部件生产的停滞，它无法获得组装成品汽车所需的零部件。 7月底，日产公司表示，它预计本财年将总共减产25万辆汽车，而且根据日产公司一位高管的说法，由于东南亚的感染情况，”很有可能进一步下滑”。 减产将进一步继续。除日产外，还有七家公司也因同样的原因而减产。 本月15日，丰田宣布将11月的全球产量在计划基础上削减10万-15万辆，自8月以来已宣布多次减产，将全年的生产计划从930万辆降至900万辆左右。](https://news.yahoo.co.jp/articles/1e3e7f7a4e651248acb4a5670a29d6f88104a35d)
 
-**3.****动物权利成为日本大选的关键议题**
+图片来源：Andrew Kelly/Reuters
 
-[据共同社 10月22日报道，主要反对党日本立宪民主党呼吁增加动物经销商的责任，并加强对虐待行为的惩罚。它还承诺制定关于动物福利的立法，并建立一个从虐待动物的主人手中夺走宠物的制度。自民党的联盟伙伴提出了将涵盖社会福利和动物保护的政策结合起来，如帮助老年人与宠物共存。该党还呼吁促进宠物的护理工作。有宠物的集体宿舍引起了人们的关注，因为它们显然有助于治疗居民的疾病，同时减少安乐死的动物数量。根据环境部的数据，日本在2019财年宰杀了大约33000只猫和狗。](https://english.kyodonews.net/news/2021/10/923ca0f9eb1d-animal-rights-becomes-key-issue-in-japans-general-election.html)
 
-**4.****日本政府争取到2030年将可再生能源增加一倍**
+#### 编译：小红帽
 
-[据共同社 10月22日报道，日本政府周五批准了其最新的能源计划，该计划为到2050年实现碳中和的目标制定了路线图，寻求在十年内将可再生能源在国内发电中的现有比例提高一倍。政府的目标是在2030财年使可再生能源占总发电量的36%至38%，比去年3月结束的2019财年的18%多出一倍以上。根据该计划，2030财年核电的比例将是20至22。2019财年的数字是6%，因为在2011年大地震和海啸引发的福岛核灾难之后，全国各地的许多核电站仍然处于停产状态，因为有更严格的安全规则。](https://english.kyodonews.net/news/2021/10/4807fcb35ffd-japan-govt-oks-energy-plan-aims-to-double-renewables-by-2030.html)
+安东尼·福奇博士[Dr. Anthony Fauci上个月在主流媒体上不知所措](https://www.realclearpolitics.com/video/2021/09/10/fauci_natural_immunity_vs_vaccine_for_covid-19_needs_to_be_discussed_seriously.html)，无法解释为什么从疫苗获得的免疫力优于一般疾病的自然免疫力。
 
-**5.****学者们敦促日本重新开始向外国学生发放签证**
+大型制药公司比任何人都更清楚，有效的营销取决于让消费者相信他们有巨大的需求，而唯独你满足这一需求。但是，如果消费者并没有真正的需求，并且他们意识到这点，那么游戏就结束了。如果消费者意识到假中共病毒（COVID-19）疫苗提供假的中共病毒免疫力，他们就不会想接种疫苗。
 
-[据共同社 10月22日报道，来自美国、日本、英国和其他国家大学的650多名学者和学生星期四呼吁日本政府恢复发放学生和研究人员签证。由日本ICU基金会执行董事领导的一群学者、专业人士和学生向日本驻纽约总领事山内宽治提交了一份请愿书，警告说对新签证的禁令 “已经侵蚀了日本教育机构的全球关系和声誉”。签署呼吁书的人包括来自美国哈佛大学、普林斯顿大学和哥伦比亚大学，日本的国际基督教大学、庆应大学和京都大学，以及英国的卡迪夫大学等知名学术机构的教授和学生。](https://english.kyodonews.net/news/2021/10/079e6e0f12a9-scholars-urge-japan-to-restart-issuing-visas-to-foreign-students.html)
+看看辉瑞（Pfizer）或食品药品监督管理局(FDA）都承认这一点。一切都记录在这份美国食品和药物管理局文件中，题为“疫苗和相关生物产品咨询委员会会议[，2021年9月17日|FDA 简报文件| COMIRNATY（中共病毒疫苗，mRNA）](https://www.fda.gov/media/152176/download)的加强剂许可申请。”文件承认，与没有接种疫苗的安慰剂受试者相比，接种疫苗的研究对象感染中共病毒的人数更多。换句话说，**疫苗增加了你感染中共病毒的机会！**
 
-**6.****软银将与LINE移动合并**
+以下是第22页的确切引述：
 
-[据ImpressWatch 10月22日报道，在10月22日的董事会会议上，软银决定与其全资子公司LINE移动合并。合并协议计划于10月22日签署，生效日期为2022年3月1日。通过吸收合并，以软银为存续公司，LINE移动将被解散，但软银将继续提供LINE移动的MVNO服务。软银表示，由于是与全资子公司的合并，吸收型合并对其综合业绩的影响可以忽略不计。](https://news.yahoo.co.jp/articles/9d513307d572cd1014ab16531b07f0fe2bbfae5a)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/FDA.jpg)图片来源：https://www.fda.gov/media/152176/download
 
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：Windfish
+
+用通俗易懂的话来说，1,000人中约有70人接种辉瑞-生物技术公司的疫苗（BNT162b2，在COMIRNATY之前根据紧急使用授权[EUA]制定的配方）感染了中共病毒，而接种安慰剂的1,000人中只有约51 人感染了中共病毒。因此，**疫苗不仅没有提高免疫力，反而降低了免疫力。疫苗给了疫苗接种者虚假的中共病毒免疫力。**
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Fake COVID Immunity: Sources Show COVID Vaxxed Get COVID More (thefreedomarticles.com)](https://thefreedomarticles.com/official-narrative-fake-covid-vaccine-gives-you-fake-covid-immunity/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
