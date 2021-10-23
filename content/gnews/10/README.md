@@ -2,9 +2,9 @@
 ---
 
 
-## 华盛顿州巡逻警因拒绝接种中共病毒疫苗而离职
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1612095/)
+## 芝加哥一半的警察可能会因为强制疫苗而离职
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1612197/)
 
-10/18/2021 一名工作了22年的华盛顿州巡逻警因拒绝接种中共病毒疫苗而离职。
+10/18/2021 芝加哥一半的警察可能会因为强制疫苗而离职。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

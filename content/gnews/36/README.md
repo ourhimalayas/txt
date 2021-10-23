@@ -2,20 +2,28 @@
 ---
 
 
-## 雅典娜时报-第090期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1611727/)
+## 秘翻在线：电子邮件显示 劳登县校长知晓性侵犯事件
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1611807/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+#### 撰稿：Grace
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-108.jpg)
+据Newsmax10月22日报道，一封新发布的电子邮件显示，劳登县公立学校（Loudoun County Public Schools）校长斯科特.齐格勒（Scott Ziegler）知道去年5月在弗吉尼亚州石桥中学(Stone Bridge High School)的女厕所里一名穿裙子的男孩对一名女孩进行了性侵犯，尽管他当时说他对这起占据全国头条的报道事件 “毫不知情”。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/10/43-2.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/44-1.png)
-（文章内容仅代表作者个人观点，与GNEWS无关）
+齐格勒在5月28日发给学校董事会成员的一封名为 “学校的机密事件”的电子邮件中说：“今天下午，一名女学生声称一名男学生在厕所里对她进行了性侵犯”，但在6月22日的学校董事会会议上，他却说在厕所里没有发生过侵犯行为。
 
-***发布：小红帽***
+他在6月说：“掠夺者变性学生或人根本不存在。”他还说：“我们没有任何发生在我们的洗手间的攻击的记录”。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+斯科特·史密斯（Scott Smith）是那个说自己遭到性侵犯的女孩的父亲，他听到了齐格勒的评论之后大发雷霆，在会议上被捕。
+
+史密斯上周告诉Newsmax：“我不得不在学校制造混乱，以引起足够的关注，让警察来帮助我的女儿，因为我没有从SRO（学校资源官员）或校长那里得到我需要的帮助。”
+
+齐格勒上周表示道歉，说劳登县公立学校（LCPS）未能提供一个安全的环境。他还说，当他说没有发生过攻击事件时，他是误解了董事会成员贝丝.巴茨(Beth Barts)的问题。
+
+他说：“首先，让我对有关家庭和学生说–我为你们感到心痛，我很抱歉，我们未能提供我们渴望提供的安全、欢迎和肯定的环境。”
+
+他补充说：“我很遗憾我的评论有误导性，我为这个错误给家庭带来的困扰道歉。我应该向董事会成员巴茨提出澄清性问题，以了解她问题的根源，而不是假设她的意思。我今后会做得更好。”
+
+据报道，学校董事会没有得到具体的细节或涉及的人的名字，该案件正在被劳登县警长办公室调查。
+
+**新闻来源：**[Email Shows Loudoun County Schools Chief Knew About Sexual Assault](https://www.newsmax.com/newsfront/virginia-sexual-assault-schools/2021/10/22/id/1041661/)

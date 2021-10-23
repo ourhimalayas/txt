@@ -2,36 +2,31 @@
 ---
 
 
-## 43国在联合国发表声明对中共镇压维吾尔人表示关切
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1611949/)
+## 2021/10/22 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1612132/)
 
-作者：澳喜农场 – 在远方
+1. 莆田杀人嫌犯欧某死后，网友欲探望其家人。所在的上林村不让通行，进不去。
+2. 出入莆田上林村需要专门证件。
+3. 10月21日，黑龙江哈尔滨市安化街75号失火并发生爆炸，消防员正在现场进行处置画面。
+4. 沈阳爆炸现场两男子头部受伤互相搀扶。（同一天中国北方多起爆炸）
+5. 网传10月22日，郑州贾鲁河，一架歼十战斗机坠毁。
+6. 10月20日，浙江嘉兴。西安女子乌镇旅游入住1日后被赶出酒店，当地防疫办：最新防疫政策。出现疫情政府只会粗暴一刀切。
+7. 10月20日，中国某地交警路口拦截冲红灯摩托车，导致其摔倒。
+8. 货车司机因车身有“货拉拉”三字，被城管以张贴广告为由罚款。“不贴公司罚，贴了城管罚”。处处受气的个体运营者。
+9. 10月17日，河南郑州，一动物园售票处拒收现金。
+10. 近日上海，女子为植物人丈夫办残疾证，被要求“必须植物人本人来”，工作人员：没有上门评残的规定。
+11. 10月14日江西赣州，女子在市场买的小葱疑似有染色情况，网友：为保鲜泡了“蓝矾”。化学添加剂浸泡下的中共国。
 
 
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-10月23日，美、法、土耳其等43个国家在联合国发表正式声明，对中共国境内维吾尔人和其他穆斯林突厥民族的境况表示关切。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-19.jpg)
-法国常驻联合国代表古拉斯·代·里维耶尔大使说：“中共对新疆穆斯林存在整体性和系统性的迫害，包括侵犯人权、酷刑折磨、强迫劳动、性暴力和强迫把子女分开等。中共还对民众实施大面积监控，群众的宗教、行动、表达自由以及维吾尔文化则受到严厉的限制。”
-
-土耳其、利比亚、斯威士兰是首次参与。各国共同呼吁派驻联合国人权事务高级专员前往新疆调查。
-
-(本文仅代表作者观点)
-
-参考链接：[43国在联合国发表声明对中共镇压维吾尔人表示关切](https://www.voachinese.com/a/growing-numbers-of-nations-criticize-china-treatment-of-uyghurs-20211021/6281065.html)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编/编辑：木白
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
