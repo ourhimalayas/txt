@@ -2,31 +2,29 @@
 ---
 
 
-## 拜登承认会保护台湾 美军铲平中共军事基地只需3分钟
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612949/)
+## G7国家就数字贸易与数据达成共识
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1612995/)
 
-作者：澳喜农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月21日，美国总统拜登在采访时表示，“一旦中共发动攻击，美国承诺会保护台湾。”
+**撰稿：日本东京方舟农场 Kevin wang**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-18.jpeg)
+据中央社10月23日报道，G7国家的贸易首长在伦敦对管理跨境数据使用与数字贸易的原则达成共识。这项突破将使数千亿美元的国际商业自由化。
 
-早10月17日，郭文贵先生就在直播中爆料，美国的专业人士明确答复，如果共产党直接攻打台湾的话，美军是会出手的，一旦美军出手日本也一定会出手。其中最令人惊讶的是，把共产党所有100%的军事基地铲平，包括空中与陆地的军事设施，美军单独行动只需要3分钟，如果日本单独作战也只需要5分钟。
+报道称，这些原则将涵盖公开的数字市场、跨境数据流动、劳工、消费者与企业的保障措施、数字贸易系统与公平且具包容性的全球管理体系。
 
-(本文仅代表作者观点)
+根据政府对官方数据的研究，光在英国，2019年透过远程完成的贸易总额达3260亿英镑（约新台币12.5兆元），相当于英国所有贸易额的1/4。
 
-参考链接：[Biden says United States would come to Taiwan’s defense](https://www.reuters.com/world/asia-pacific/biden-says-united-states-would-come-taiwans-defense-2021-10-22/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021-10-22t095432z1362658952rc2xeq9k9542819642.jpg)图片来自于网络
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+但由于各国管理客户个资使用的规则不同，可对数字贸易构成严重障碍，对中小型企业而言尤其如此，因为对这些企业而言，遵守的法规繁杂且成本高昂。当天达成的协议是降低这些障碍的第一步，可能促成编撰出关于数字贸易的共同规章手册。
 
-总编：Ivy001
-编辑：Ivy001
-校正/发稿：谐趣园
+根据WEF研究报告指出，以数据为基础的数字贸易发展，其本质具备四种属性，包含数字商品与服务、以数字方式交付的实体商品与服务、实体商品与服务贸易的数字化育者(digital enablers)，以及新兴的数字技术AI和区块链等。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[G7國家取得突破性進展 就數位貿易與數據達成共識](https://www.cna.com.tw/news/aopl/202110230168.aspx)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

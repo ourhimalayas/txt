@@ -2,42 +2,19 @@
 ---
 
 
-## Truth Social 的中资背景运营商运鸿国际浮出水面
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612594/)
+## 秘翻在线：这个报道中提到的法案恐怕会令日本人吃惊
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1612674/)
 
-作者：纽约香草山文艺部 – 宁文静
+撰稿：待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/画像1-19.png)[图片来源](http://www.news.cn/politics/2021-10/23/c_1127988845.htm)
+日本电视早间新闻10月23日播报的消息称：中共国通过“家庭要培养孩子爱党、爱国的情操”之法案。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共国的议会–全国人民代表大会通过了一项法案，要求在家里 “严加管教”，以培养孩子正确的生活习惯和对中国共产党的热爱之心。23日，全国人民代表大会常务委员会通过了 “家庭教育促进法案”，其中概述了对父母在家中 “管教孩子 “的要求。
 
+它法案指出，父母 有责任在家中教育子女，必须防止未成年子女沉迷于网络，培养孩子从小养成良好的生活习惯、学习习惯、保证休息和锻炼身体。父母在家庭里应培养孩子爱党、爱国、热爱社会主义，提高孩子捍卫国家统一和民族凝聚力的意识。
 
+[信息源](https://news.yahoo.co.jp/articles/4edd544d1fdd8bae0460d70df11f9ee701211484)
 
-10月22日，郭文贵先生在大直播中爆料称，川普新上市的社交媒体平台Truth Social，其背后已经有中资运营商染指。
+中共把这种”强加于人”、”利用家长有意识的洗脑未成年人”之可笑的行径，理所当然的作为法案推出来实施。笔者在日本生活很多年了，知道日本是自由的国度，更知道这种事是令日本国民无法理解，甚至被笑话的。看到这样的报道，想必他（她）们应该会很吃惊!
 
-在纳斯达克上市的数字世界收购公司DWAC当天出现暴涨，原因系关联了川普启动的Truth Social新媒体。DWAC在技术上通过SPAC模式，和川普媒体完成合并。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1023AM-（123-）視頻备用-2.002.jpeg)
-文贵先生指出，DWAC的首席执行官Patrick Orlando，同时是运鸿国际的CEO。美国证监会的文件显示，川普总统的新媒体也将由运鸿国际的CEO运营。
-
-据悉，运鸿国际是一家在开曼群岛注册的合法空白支票公司，而运鸿国际的母公司是总部位于武汉的运鸿集团。郭先生展示的一份文件中显示，10月份 Giga Energy与运鸿国际并购的时候，运鸿董事局主席李玉宝签字，见证人是吴征。
-
-DWAC今日盘前已经暴涨80%，盘中涨幅一度超过400%，数次触发熔断。简体中文的财经媒体对此多有报道。
-(本文仅代表作者观点)
-
-参考链接：
-
-1. [运鸿集团的背景(一)](https://gettr.com/post/pevxvi087d)
-2. [2021年10月22日 文贵大直播](https://gtv.org/video/id=6172b02683e948708d05c1b9)
-
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编：Jack Li文阳
-编辑：山本不惑
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（文章仅代表作者个人观点）
