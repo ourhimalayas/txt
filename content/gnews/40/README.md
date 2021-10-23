@@ -2,28 +2,48 @@
 ---
 
 
-## 秘翻在线：电子邮件显示 劳登县校长知晓性侵犯事件
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1611807/)
+## 造谣美国龙虾为新冠源头，中共水军现形
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1611921/)
 
-#### 撰稿：Grace
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-108.jpg)
-据Newsmax10月22日报道，一封新发布的电子邮件显示，劳登县公立学校（Loudoun County Public Schools）校长斯科特.齐格勒（Scott Ziegler）知道去年5月在弗吉尼亚州石桥中学(Stone Bridge High School)的女厕所里一名穿裙子的男孩对一名女孩进行了性侵犯，尽管他当时说他对这起占据全国头条的报道事件 “毫不知情”。
+作者：东京樱花团 – 修文
 
-齐格勒在5月28日发给学校董事会成员的一封名为 “学校的机密事件”的电子邮件中说：“今天下午，一名女学生声称一名男学生在厕所里对她进行了性侵犯”，但在6月22日的学校董事会会议上，他却说在厕所里没有发生过侵犯行为。
 
-他在6月说：“掠夺者变性学生或人根本不存在。”他还说：“我们没有任何发生在我们的洗手间的攻击的记录”。
 
-斯科特·史密斯（Scott Smith）是那个说自己遭到性侵犯的女孩的父亲，他听到了齐格勒的评论之后大发雷霆，在会议上被捕。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-史密斯上周告诉Newsmax：“我不得不在学校制造混乱，以引起足够的关注，让警察来帮助我的女儿，因为我没有从SRO（学校资源官员）或校长那里得到我需要的帮助。”
 
-齐格勒上周表示道歉，说劳登县公立学校（LCPS）未能提供一个安全的环境。他还说，当他说没有发生过攻击事件时，他是误解了董事会成员贝丝.巴茨(Beth Barts)的问题。
 
-他说：“首先，让我对有关家庭和学生说–我为你们感到心痛，我很抱歉，我们未能提供我们渴望提供的安全、欢迎和肯定的环境。”
+据NBC 10月21日报导，英国牛津大学专精假消息的研究员Marcel Schliebs发现，中共外交官和数百个推特帐号，近期密集散布假消息，称新冠病毒很可能是在2019年11月，通过运往武汉海鲜市场的缅因州龙虾，从美国传到中国。
 
-他补充说：“我很遗憾我的评论有误导性，我为这个错误给家庭带来的困扰道歉。我应该向董事会成员巴茨提出澄清性问题，以了解她问题的根源，而不是假设她的意思。我今后会做得更好。”
+这是中共最新散布的阴谋论，已被翻译成多种语言，由五百多个支持中共的推特帐号，每天上午规律地发布，其中包含一部分假账号。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-7.jpg)
+美国某智库专精假消息的专家也指出，这是中共在疫情爆发后，再一次企图将新冠起源栽赃给美国，混淆视听。
 
-据报道，学校董事会没有得到具体的细节或涉及的人的名字，该案件正在被劳登县警长办公室调查。
+中共驻英大使馆发言人依旧不承认传播假消息。但网络是有记忆的，作恶终会留下痕迹。中共今日的障眼法都会成为将来的认罪书。
 
-**新闻来源：**[Email Shows Loudoun County Schools Chief Knew About Sexual Assault](https://www.newsmax.com/newsfront/virginia-sexual-assault-schools/2021/10/22/id/1041661/)
+参考链接：
+[謠言瞎扯武肺來自美國龍蝦 牛津學者發現疑大量中國假帳號帶風向](https://news.ltn.com.tw/news/world/breakingnews/3712543)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编/编辑：飞虹
+编辑：雪梨
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

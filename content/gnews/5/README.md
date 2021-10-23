@@ -2,79 +2,42 @@
 ---
 
 
-## 币圈新闻动态：H-pay即将于下月推出
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1612349/)
+## FDA在其文件中承认COVID-19疫苗无法提供免疫力
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1612390/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
-
-
-
-## 每日一问
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/https___d1e00ek4ebabms.cloudfront.net_production_55d687f2-0197-48a0-a2f6-125068e0d578.jpg)
 
 
 
+图片来源：Andrew Kelly/Reuters
 
 
-选择，时也，命也？
+#### 编译：小红帽
+
+安东尼·福奇博士[Dr. Anthony Fauci上个月在主流媒体上不知所措](https://www.realclearpolitics.com/video/2021/09/10/fauci_natural_immunity_vs_vaccine_for_covid-19_needs_to_be_discussed_seriously.html)，无法解释为什么从疫苗获得的免疫力优于一般疾病的自然免疫力。
+
+大型制药公司比任何人都更清楚，有效的营销取决于让消费者相信他们有巨大的需求，而唯独你满足这一需求。但是，如果消费者并没有真正的需求，并且他们意识到这点，那么游戏就结束了。如果消费者意识到假中共病毒（COVID-19）疫苗提供假的中共病毒免疫力，他们就不会想接种疫苗。
+
+看看辉瑞（Pfizer）或食品药品监督管理局(FDA）都承认这一点。一切都记录在这份美国食品和药物管理局文件中，题为“疫苗和相关生物产品咨询委员会会议[，2021年9月17日|FDA 简报文件| COMIRNATY（中共病毒疫苗，mRNA）](https://www.fda.gov/media/152176/download)的加强剂许可申请。”文件承认，与没有接种疫苗的安慰剂受试者相比，接种疫苗的研究对象感染中共病毒的人数更多。换句话说，**疫苗增加了你感染中共病毒的机会！**
+
+以下是第22页的确切引述：
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/FDA.jpg)图片来源：https://www.fda.gov/media/152176/download
 
 
+用通俗易懂的话来说，1,000人中约有70人接种辉瑞-生物技术公司的疫苗（BNT162b2，在COMIRNATY之前根据紧急使用授权[EUA]制定的配方）感染了中共病毒，而接种安慰剂的1,000人中只有约51 人感染了中共病毒。因此，**疫苗不仅没有提高免疫力，反而降低了免疫力。疫苗给了疫苗接种者虚假的中共病毒免疫力。**
 
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
+**参考新闻：**[Fake COVID Immunity: Sources Show COVID Vaxxed Get COVID More (thefreedomarticles.com)](https://thefreedomarticles.com/official-narrative-fake-covid-vaccine-gives-you-fake-covid-immunity/)
 
-## 喜马拉雅交易所要闻
+***发布：小红帽***
 
-
-
-
-
-- 文贵先生10月22日大直播消息，1）H-pay即将于下个月推出；2）GETTR Pay暂计划于2022年5月前推出。
-
-
-
-
-
-
-## 新闻动态
-
-
-
-
-
-1. Cointelegraph报道，开源区块链分析公司Moonstream发布报告称，发现约17%的地址控制了以太坊上超过80%的NFT。该报告于10月21日发布，对2021年4月1日至9月25日期间以太坊区块链上超过700万笔NFT交易进行了分析。报告发现，鲸鱼、非交易平台和交易所占据了所有地址的16.71%，拥有以太坊上80.98%的NFT。
-2. 彭博社报道，Fundstrat在周三发布一份报告称，比特币超过6.5万美元后的初始上行目标是72,500美元左右，然后是8.9万美元，人们认为，随着比特币突破之前的高点，这一水平肯定触手可及。此前有很多人预测今年年底比特币将达到10万美元，包括BitMEX首席执行官Alexander Hoptner。
-3. 10月22日消息，Coinbase近几个月大幅加强了游说工作。2021年第三季度，Coinbase已成为加密领域最大的游说支出者之一。Coinbase的内部游说业务和这些合同的加总使Coinbase第三季度的游说总支出达到795,000美元。
-4. 10月22日消息，数字银行公司Q2 Holdings周五表示，FiveStar银行和UNIFY金融信用社将率先通过与机构级比特币经纪商NYDIG的合作，为其客户提供购买、出售和持有比特币的能力。这种伙伴关系将允许日常银行和信用合作社客户交易和持有比特币，而避免使用交易所。
-5. 10月22日消息，Valkyrie比特币期货交易所交易基金（ETF）周五在纳斯达克上市，截至当天交易结束时的交易额接近8,000万美元。根据彭博社的数据，该ETF开盘价为25美元，当日收盘价为24.16美元。
-6. GlobeNewsWire报道，加密货币、区块链和数字资产技术公司Net Savings Link（场外交易代码：NSAV）今天宣布已签署意向书收购一家领先的加密货币交易所51%的股份。该交易所的24小时交易量超过6亿美元。
-7. 彭博社报道，韩国最大的在线支付服务公司Kakao Pay Corp.在将股价定为9万韩元后，将通过首尔IPO募集1.53万亿韩元（13亿美元）。据悉，Kakao Pay计划以每股6-9万韩元出售1700万股股票，并最终定在了价格区间的最高点。
-8. 10月22日消息，加密资产管理机构Valkyrie的比特币期货ETF已在纳斯达克上市交易，交易代码为BTF，开盘价25.5美元。
-9. Cointelegraph报道，Play-to-Earn（P2E）链游“Fancy Birds”近日获得种子轮融资。该游戏将在大约一个月后推出，有望复制2013年手机游戏“Flappy Bird”的成功。
-10. 10月22日消息，加密货币P2P交易平台Chatex获得Polygon旗下DeFi基金Defi For All的投资，并将后者的技术引入到生态系统中，旨在为用户带来无缝、安全和即时的交易。同时，在该基金的支持下，Chatex还集成了Curve和AAVE等项目。
-11. 10月22日消息，为庆祝1024程序员节，腾讯NFT平台幻核与腾讯课堂联合发售霸符系列NFT。据悉，本次活动将发行5种NFT，每种类型500枚，共计2500枚。该系列NFT的存储全部基于至信链，且全部通过抽取形式发售。幻核方面表示，抽取到金霸符的用户可兑换限量版NFT，而集齐5款普通NFT的用户可获得定制T恤。
-12. 10月22日消息，为帮助玩家通过用户生成内容（UGC）从游戏中获利，微软已于本周向开发者推出“Azure Play Fab”，在这套UGC系统的加持下，游戏制作者将拥有“用于托管游戏市场的、经过实战测试的解决方案”，微软允许内容创作者将自己的内容包出售给其他《我的世界》游戏玩家，从而为创作者开辟了一条货币化路径。
-13. 10月22日消息，Newave Capital宣布投资基于以太坊核心概念的第2层链上聚合器New ERA。
-14. 官方消息，Kraken将于UTC时间10月26日15:30上线Bifrost（BNC），目前已开放BNC充提。
-15. 官方消息，Trusted computing（TCP）宣布在NFT领域进行多项开发，综合数据隐私属性推出NFT市场平台、NFT挖矿、NFT生成工具等。
-16. 10月22日消息，Bancor社区通过提案将vBNT销毁速率从10%提升到15%，并已在协议更新。这导致BNT以更快的速度锁定在协议中，通过每次交换增加协议控制的流动性。
-17. 10月22日消息，波卡生态项目达尔文（Darwinia Network）正式宣布参与之后的波卡卡槽竞拍，将于近期发布有关众贷的详细公告。
-18. 10月22日消息，由Y Combinator前总裁Sam Altman、Alex Blania和Max Novendstern共同创立的Worldcoin项目更新了进展，该项目正在部分地区进行实地测试，几个月之后将进行全球发布，项目目前的估值为10亿美元。
-19. Coindesk报道，美国钨企Midwest Tungsten Service正在拍卖一个与该公司有史以来最大的钨立方体相连的NFT。这个钨立方体长约14英寸，重约1784磅。OpenSea的竞标将于周五开始，根据OpenSea的介绍，该NFT授予其持有者每年一次的超密度立方体访问权。
-20. Cointelegraph报道，周四，在迈阿密热火队对密尔沃基雄鹿队的赛季揭幕赛中，FTX向坐在FTX Arena某一区域的每位观众赠送了500美元的加密货币。除了加密货币，体育场内的每一位球迷都收到了一件带有二维码的T恤，扫描该二维码可以访问独家的“开幕之夜FTX Arena NFT”。
-21. Decrypt报道，钨立方NFT通过出售方块的移动数字图像获得了484个SOL（现在价值96,000美元），宣布将其第一个交易日的版税给予加密货币智囊团。据称，每个钨方块NFT都有一个实体钨方块的支持。
-22. 10月22日消息，加拿大科技公司Chain Safe推出基于Rust语言的Filecoin客户端Forest。目前Forest在Filecoin主网发布了alpha测试版本，Forest Rust客户端能够同步和验证Filecoin网络，也可以作为Filecoin网络上的一个替代客户端来查询状态。该测试版已修复了16个被Sigma Prime审计出来的漏洞，目前正在等待最终的审计报告。
-23. 10月22日消息，Yield Guild Games（YGG）公布包含SAFTs和NFT资产在内的最新财务管理情况。截至2021年9月30日，YGG包含流动性代币、锁定的DeFi代币和NFT在内的资产总价值约为8.46亿美元，大部分增值归因于YGG代币价格增长。
-24. Coindesk报道，Binance.US的总法律顾问Christopher Robins在任职仅七个月后已离职。根据声明，Robins将在该公司担任兼职角色。
-25. Politico报道，美国货币监理署（OCC）曾在特朗普任期决定允许银行代表客户交易加密货币。这一从未公开的决定可以为银行在炙手可热的虚拟货币市场上开展一系列活动打开大门。
-26. Ambcrypto报道，印度证券交易委员会（SEBI）在其发布的通知中宣布禁止与不受监管的工具（包括加密货币）有关的投资建议。在10月21日的通知中，SEBI注意到，有一些注册投资顾问通过平台交易包括数字货币等不受监管的产品而从事非法活动。SEBI还警告说，所有注册投资顾问需要”避免从事这种不受监管的活动”。
-27. Bitcoin.com报道，俄罗斯石油公司提议在其开采的油田旁边组织挖矿加密货币，可以利用石油开采过程中释放的多余气体提供动力，否则这些气体就会被浪费掉。目前俄罗斯各部门和央行正在审查该项目，并且工业和贸易部要求数字发展部和央行对此想法提供反馈，专家分析，该项目审查合格后可能会吸引大量外国投资者。
-28. Bitcoin.com报道，西班牙银行BBVA有兴趣并且正在为直接向客户提供加密资产做准备，根据新规定，西班牙银行必须制定一份虚拟资产服务商和托管公司名单，但这些机构并不确定他们是否需要申请，监管咨询公司Finreg的合伙人Gloria Hernández Aler表示：银行必须通过标准所强加的要求是没有意义的，然而对他们来说，需要改变他们的洗钱政策是有意义的。
-29. Therecord报道，安全公司Profero的首席执行官兼联合创始人Omri Segev Moyal称，在黑客组织REvil遭到执法部门打击后，Darkside和Black Matter勒索软件的运营商已经转移了大量比特币，他认为这些比特币仍被其控制，并准备洗钱或兑现。
-
-
-
-
-
-*编辑：aQ
-发布：文顾*
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

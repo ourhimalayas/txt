@@ -2,31 +2,20 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月22日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1611695/)
+## 澳大利亚超市巨头强制工人接种疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1611871/)
 
-作者：香草山翻译部
+#### 编译：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-109.jpg)图片来源：网络截图
+据零对冲10月22日报道，随着澳大利亚继续放宽对中共病毒的限制，该国的三家主要连锁超市——Woolworths，客澳市（Coles）和奥乐齐（Aldi）——正准备按照“不打针就没工作”的原则，强迫迫澳大利亚各地的30万工人 接种疫苗。但是这些超市仍然欢迎未接种疫苗的顾客，尽管澳大利亚政府显然已经以挨饿作为威胁，试图迫使人们接受疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-413.png)
+伍尔沃斯公司打算把1月31日作为新南威尔士州、维多利亚州、澳大利亚首都地区、北领地和西澳大利亚州全面接种疫苗的最后期限，而昆士兰州、南澳大利亚州和塔斯马尼亚州的最后期限将是3月31日。
 
+尽管澳大利亚为消灭中共病毒做出了种种努力，但是病例继续攀升，迫使澳大利亚政府最终放弃对该国的经济造成了巨大损失的封锁措施。墨尔本的封锁措施已经以某种形式实施了245天，使其成为世界上封锁持续时间最长的城市。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1022text-SC.png)
-文章仅代表作者本人观点，与Gnews无关
+有趣的是，其他澳大利亚杂货店和连锁店已经决定采取不同的做法。凯马特（Kmart），塔吉特（Target）和邦宁（Bunnings）五金连锁店的所有者西农集团（Wesfarmers）不会强制要求现有员工接种，因为该公司认为现在接种率非常高，强迫自己的工人接种疫苗根本没有意义。
 
-校对：Stay文苑
+他们中有足够多的人已经接种了疫苗，或者计划自愿接种疫苗。在这一点上，权威的科学家们终于承认，“群体免疫”的概念现在是一个神话。从现在开始，中共病毒很可能会在人类群体中流行下去。
 
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[晚GTV新闻访谈](https://gtv.org/broadcast/watch/6173571eeadeb11f5e79135d)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
+新闻来源：[“No Jab, No Job” – Aussie Supermarkets Demands 300K Workers Must Get Vaccinated Or Find Work Elsewhere](https://www.zerohedge.com/covid-19/no-jab-no-job-aussie-supermarkets-demands-300k-workers-must-get-vaccinated-or-find-work)

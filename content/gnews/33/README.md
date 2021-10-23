@@ -2,56 +2,60 @@
 ---
 
 
-## NIH坐实资助武毒所，福奇国会作证在撒谎
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1611971/)
+## 医生可以拒绝未接种疫苗的病人吗？
+` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1612175/)
 
-**翻译：Lindaxxoo
-编辑：MSGZ/文泓**
+将未接种疫苗的顾客拒之门外，有人说这很公平，但将寻求医疗服务的未接种疫苗的病人拒之门外，生物伦理学家Kerry Bowman说这是个坏主意。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/10.23-1.png)图片来源 Marjorie Greene
+我认为从伦理学的角度来看，这是一个可怕的先例，如果他们因认为病人做了一个错误的决定而拒绝提供医疗，我们就说在改写医学伦理，改写人权。
+
+一些医生说，他们的员工拒绝进行器官移植，因为会担心安全问题，因为未接种疫苗的病人死亡的风险更高。
+
+我们询问了每个省的医生和外科医师学院，他们是否收到过加拿大病人关于被拒绝治疗的投诉。
+
+安大略省说他们有68起，包括对缺乏当面护理的担忧，新不伦瑞克省说不到5起，新斯科舍省有1-2起，不列颠哥伦比亚省没有投诉，但听到了担忧，阿尔伯塔省没有追踪这一数据，马尼托巴省、魁北克省、萨斯喀彻温省和爱德华王子岛省不能透露，纽芬兰省在截止日期前没有给我答复。
+
+代表加拿大医疗监管机构的国家组织通过电子邮件告诉我，因病人的利益而取消手术是该医疗机构的临床决策。
+
+然而，联合会表示，医生有其道德义务，因此不能拒绝为未接种疫苗的病人看病，他们应该寻找替代方案，比如将病人安排在最后，这样就可以减少与其他易感染病人的接触。
+
+在加拿大，我们还没有听说过特别的案例，当然，我们也和那些担心被拒绝服务的人谈过这个问题。
+
+律师Andrew Monkhouse说，如果你在安大略省被拒绝治疗，你可以向人权法庭提出申诉，但这样的官司不好打，但如果你因为被拒绝而出现健康问题，这可能被认为是违反了《权利和自由宪章》，你可以向法院起诉。
+
+Monkhouse说，医生可能不会拒绝为病人提供治疗，因为他们想避免被向省级监管机构投诉，但这些投诉是否真的带来反响是另一回事。
+
+听写翻译字幕： kent
+
+发布：风云小哥
 
 
-美国时间9月8日，参议员兰德·保罗再次指责安东尼·福奇博士7月份在参议院作证宣誓时在撒谎，当时他声称美国国立卫生研究院（NIH）没有资助在中国武汉进行的有争议的功能增益研究。“令人惊讶的是——福奇又撒谎了”，参议员保罗在推特上说：“关于他的机构资助武汉的新型冠状病毒研究，我的观点是正确的。”
+> *免责声明：尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。*
 
-此前，新闻机构《拦截》获得的最新发布文件显示，NIH向美国生态健康联盟提供了310万美元的拨款。其中近60万美元的资金直接流向武汉病毒研究所，用于研究蝙蝠冠状病毒。
 
-7月，福奇博士告诉参议院，NIH确实为研究蝙蝠冠状病毒提供了资金，但是这笔钱并没有资助危险的功能增益研究。功能增益是指“以增加致病性、传播性或宿主范围的方式改变一个生物体或疾病”的医学研究。
+* * *
 
-然而在900页的文件被公布后——罗格斯大学的一位分子生物学家说，（福奇）声称该研究没有被定义为功能增益是“不真实的”。
+更多加拿大枫叶农场的频道，请关注：
 
-“这些文件清楚地表明，美国国立卫生研究院院长弗朗西斯·柯林斯和美国过敏和传染病研究所（NIAID）主任安东尼·福奇的断言——NIH不支持在武汉病毒研究所进行功能增益研究或潜在的大流行病原体增强研究，是不真实的。”理查德·埃布莱特发推。
+- [GTV: 喜马拉雅加拿大多伦多枫叶农场](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
+- [GTV: 加拿大枫叶农场蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
+- [GTV: 多伦多枫叶财经频道](https://gtv.org/user/5f359954313eaf1e3716cfc1)
+- [喜马拉雅加拿大多伦多枫叶农场discord](https://discord.gg/Cpz33sS)
+- [加拿大多伦多枫叶农场 on GETTR](https://gettr.com/user/torontofarmcn)
 
-“材料显示，2014年和2019年NIH对美国生态健康联盟的拨款与武汉病毒研究所的分包合同，资助了2014-2017年生效的联邦政策中定义的功能增益研究和2017年至今生效的联邦政策中定义的潜在大流行病原体增强（研究）。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_MPL_banner.png)
 
-“这些材料证实，拨款支持在武汉构建新型嵌合SARS相关冠状病毒，将一种冠状病毒的刺突蛋白基因与另一种冠状病毒的遗传信息相结合，并证实所产生的病毒可能感染人体细胞。”
+> *免责声明：尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。*
 
-文件还显示，武汉大学动物实验中心对具有人类细胞受体的基因工程小鼠进行了单独研究。
 
-陈丽娜也是一为分子生物学家，她评估了这些文件和研究蝙蝠冠状病毒的严重性。
+* * *
 
-“在这份提案中，他们实际上指出，他们知道这项工作的风险有多大”，她说：“他们一直在谈论人们可能会被咬伤，而且他们保留了每个被咬伤的人的记录。”
+更多加拿大枫叶农场的频道，请关注：
 
-“生态健康联盟有这些记录吗？如果没有，他们怎么能排除与研究有关的事故呢？”
+- [GTV: 喜马拉雅加拿大多伦多枫叶农场](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
+- [GTV: 加拿大枫叶农场蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
+- [GTV: 多伦多枫叶财经频道](https://gtv.org/user/5f359954313eaf1e3716cfc1)
+- [喜马拉雅加拿大多伦多枫叶农场discord](https://discord.gg/Cpz33sS)
+- [加拿大多伦多枫叶农场 on GETTR](https://gettr.com/user/torontofarmcn)
 
-【备注：陈丽娜（Alina Chan）是一位加拿大分子生物学家，在麻省理工学院和哈佛大学博德研究所从事基因治疗和细胞工程。她主张中共病毒是实验室泄漏。】
-
-10月20日，NIH院长柯林斯和NIAID主任福奇都声称NIH没有资助武汉的功能增益研究。今天我们发现他们撒谎了。
-
-NIAID主任福奇博士在与参议员兰德·保罗谈话时是宣过誓的。他否认NIH资助了武汉的功能增益研究。今天，NIH向美国众议院提供了一份文件，声称NIH确实资助了武汉的功能增益研究。看来福奇和科林斯有麻烦了。
-
-（文中仅代表作者个人观点，与Gnews平台无关）
-
-参考链接：
-1、[BREAKING: NIH Today Corrects False Statements by Directors Collins and Fauci – the NIH Did Fund Gain-of-Function Research in Wuhan – Fauci Lied Under Oath (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/10/breaking-nih-today-corrects-false-statements-directors-collins-fauci-nih-fund-gain-function-research-wuhan/)
-
-2、[‘](https://www.heraldsun.com.au/news/world/fauci-lied-new-documents-on-lab-leak-theory-released/video/571210fba43fdce386bc16291880c204)[Fauci lied’: New documents on lab leak theory released | Herald Sun](https://www.heraldsun.com.au/news/world/fauci-lied-new-documents-on-lab-leak-theory-released/video/571210fba43fdce386bc16291880c204)
-
-3、[They called it a conspiracy theory. But Alina Chan tweeted life into the idea that the virus came from a lab. | MIT Technology Review](https://www.technologyreview.com/2021/06/25/1027140/lab-leak-alina-chan/)
-
-发布i：文武全才
-
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_MPL_banner.png)
