@@ -2,35 +2,26 @@
 ---
 
 
-## CDC：可能改变中共病毒疫苗“全接种”的定义
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1613057/)
+## 有声|美国商务部出台新规 限制向中俄出售网络安全产品
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1613070/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+配音：香草山香港部 – 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月20日，美国商务部宣布新规定，美国公司，和任何销售美国制造的网络软件的公司，在向某些外国政府，及位于中共国或俄罗斯的任何买家、包括中间商 出售黑客工具时，都需要获得许可证。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/V-3.jpg)abcnews.go.com
-在人们的印象中，通常将接受过两剂疫苗接种的情况认作“全接种”，现在又出现了“加强剂”（booster），于是人们就糊涂了，既然是“全接种”，咋又出来“加强”了呢？怎样向公众解释？CDC在阴谋集团的诱逼下，置全民智商于不顾，竟然要修改“全接种”的定义？世界荒唐到了如此境地！
+商务部表示：“美国政府反对滥用技术来侵犯人权，或进行其它恶意的网络活动，这些新规定将有助于确保美国公司不会助长威权行为。”《联邦公报》关于规定的摘要说：“这些工具需要受到管控，因为可能被用于监视、间谍活动，或其它破坏、拒阻或降低 网络或网络设备性能的行动。”
 
-《新闻纵横》发表文章，题目是，“美国疾病控制与预防中心（CDC）：中共病毒疫苗接种定义可能改变”。
+来自中俄的黑客攻击，已成为网络安全的最大威胁。美国国家安全局主管不久前表示，由中共发起的网络袭击，数量要远超其他国家的总和。而美国是网络安全产品的领先者，这些规定的生效，将切断最先进的网络技术，有力压制中俄猖獗的黑客项目。
 
-全文如下：
+文字版原文：[美国商务部出台新规 限制向中俄出售网络安全产品](https://gnews.org/zh-hans/1609371/)
 
-拜登政府官员周五（10月22日）敦促符合条件的美国人进行中共病毒疫苗加强剂的接种，疾病控制和预防中心负责人表示，可能会更新其关于什么是全面疫苗接种的定义。
-
-目前，在美国，如果有两剂辉瑞（BioNTech）或莫德纳（Moderna Inc）疫苗，或一剂强生疫苗，则被视为完全接种疫苗。
-
-疾病预防控制中心主任罗谢尔·瓦伦斯基（Rochelle Walensky）告诉记者：“我们还没有改变‘完全接种’的定义，我们将继续研究这个问题，我们可能需要在未来更新‘完全接种’的定义。”
-
-她说：“如果你有资格申请加强剂，那就去拿你的加强剂，我们会继续跟进。”
-
-（原文完）
-
-拜登政府的官员们还应该继续补充，那些公司赚得还不够，还可能会有“加强”的1剂、2剂、3剂，修改定义将会是常态，我们会积极配合那些阴谋集团，直到把那些唤不醒的人扎透！
-
-罪恶不灭，天理不容！
-
-（文章仅代表作者个人观点）
-
-原文链接：
-
-[https://www.newsmax.com/health/health-news/covid-vaccinated-definition-booster/2021/10/22/id/1041630/](https://www.newsmax.com/health/health-news/covid-vaccinated-definition-booster/2021/10/22/id/1041630/)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,28 +2,35 @@
 ---
 
 
-## 有声|特鲁多宣布加拿大正式实行联邦疫苗护照
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1612946/)
+## 中共病毒导致男性的精子数量锐减
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1612948/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-10月21日，加拿大总理特鲁多在例行记者会上表示，加拿大将启用新冠疫苗接种的联邦证明系统，最快将于当天在一些地区生效。特鲁多声称，全国13个省份和地区一致同意加入该系统。
+**撰稿：日本东京方舟农场 北极**
 
-据悉，加拿大疫苗护照会显示持有人的姓名、出生日期、疫苗接种历史、包括接种的时间、次数和剂量、以及一个健康卡的二维码，以便民众在加拿大境内及国际旅行时予以出示。
+10月8日，澳喜农场多语组发布在盖特的视频片段，法国遗传学家亚历山德拉∙亨里昂“·考德（Alexandra Henrion-Caude）警告说，中共病毒导致男性的精子数量锐减，注射疫苗可能会改变男性的生育能力。
 
-此前，加拿大部分地区已经启用了省级疫苗接种证明，作为餐厅、健身房与影院等非必要场所的进入资格证。 如今，特鲁多枉顾加拿大各地反对强制新冠疫苗接种的声音、和对政府践踏人权的抗议浪潮，执意将疫苗护照正式落地，进一步压缩了未接种疫苗人员的活动空间，迫使他们寸步难行。
+亚历山德拉披露，医疗小组对12名有中共病毒患病史的死者进行了尸检，观察到睾丸组织发生了非常明显的病变。这个结果解释了早前的发现，他们曾发现中共病毒患病史的男性精子数量明显减少。
 
-正如郭先生所说：黑暗已经降临。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211023171530.png)图片来自于网络
 
-文字版原文：[特鲁多宣布加拿大正式实行联邦疫苗护照](https://gnews.org/zh-hans/1610659/)
+令人困惑的是，在所有精液样品中并未检测到病毒。这意味着导致精子数量下降的只有两种可能性，第一，是刺突蛋白导致了一系列连锁反应；第二，中共病毒对睾丸组织的其他致病反应。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据此，她呼吁不要注射中共疫苗，因为疫苗也可导致男性生育能力下降。
+
+方舟农场10月14日发表在Gnews的文章也证实了该信息，文章表示，新冠疫苗对人体免疫系统产生严重的破坏力，导致免疫力明显下降，从而发生中共病毒突破性感染。早前在以色列和近期在台湾发生的疫苗接种造成更多中共病毒感染就是证明。
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[法国遗传学家亚历山德拉∙亨里昂-考德：我们不知道他们（接种疫苗者）是否能够生孩子。 法国遗传学家研究发现，新冠病毒导致男性的精子数量锐减，注射疫苗可能会改变男孩子的生育能力，也会导致女性月经紊乱，影响人类生殖功能。](https://gettr.com/post/pdiojzc596)
+
+
+
+> [新冠疫苗破坏了免疫系统，造成突破性感染](https://gnews.org/zh-hans/1594800/)
+
+
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*
