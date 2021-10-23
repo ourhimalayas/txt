@@ -2,28 +2,40 @@
 ---
 
 
-## 有声|中共国社保骗局：只有社保基金，没有社保制度
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1613035/)
+## 佛罗里达州总检察阿什利穆迪警告该州“不会容忍”疫苗强制令
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1613074/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-郭文贵先生在10月18日盖特直播测试中爆料：中共国的社保制度是个骗局。中共国只有社保基金，没有社保制度。
+**圆成新闻组**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-23-121027-edited.png)图片来源：网络
+本周五来自BREITBART NEWS布莱特巴特新闻的报道：
 
-中共国社保基金是由原社保基金主席、前人民银行行长戴相龙2008年创立的。既然是基金机构，法人负责自负盈亏，所以它根本就不是为老百姓设立的社保制度。王岐山曾警告戴相龙说：“你要是让中国人有了社保，那中国人会把你吃掉的。中国人要是吃饱了，是要吃人的。”
+佛罗里达州总检察长阿什利·穆迪 (Ashley Moody) 周四警告说，阳光之州将“不会容忍”疫苗规定，并发誓要与州长罗恩·德桑蒂斯 (Ron DeSantis) 一起对抗联邦政府的强制性法令和前所未有的权力攫取。
 
-目前，中国人的社保基金实际总共有1000亿美元，其中96%以政府划拨的方式专供1.3亿共产党员的退休干部及其家人、亲戚享有，13亿的老百姓只能享受4%的社保基金。另外，中共国的社保基金自成立起，就定下了“大病等死，小病分级，药和病要分开”的制度。也就是说，中共国的医院是营利机构，为了利益，他们希望把老百姓“治死”而非“治好”。更重要的是，中共国的养老基金完全没有健全的保险体系做保障，因此从根本上讲，中共国的医院是杀人、抢钱的地方。
+州长 DeSantis 在总检察长穆迪、州公共卫生最高执行官与权威发言人-外科医生约瑟夫·拉达波 (Joseph Ladapo) 和其他人的陪同下，在佛罗里达州克利尔沃特宣布他呼吁召开一次特别会议，以立法保护佛罗里达人免受地方、企业和联邦政府强加的疫苗强制要求。
 
-所以，中共国的社保就是个骗局。即使你买了，钱也是没有保障的。它是为极少数特权阶层服务的，普通老百姓都是任人宰割的牛羊，在中共国常人无法想象的黑暗中艰难生存。
+穆迪在州长之后发表讲话，宣布该州已在奥兰治县采取法律行动，特别是“为受影响的应急救护医务人员挺身而出”。
 
-文字版原文：[中共国社保骗局：只有社保基金，没有社保制度](https://gnews.org/zh-hans/1606608/)
+她说：“你知道， 就在我们现在讲话的时候，这个国家和佛罗里达州都有人被迫将文件上传到一个数据库，以证明他们已经接种了疫苗。”
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“想一想。 我们在美利坚合众国，美国的自由州，由于联邦政府的此项规定，我们有些人不得不将文件上传到数据库中。 这在佛罗里达州不会被容忍或接受，”她在掌声中说道。
+
+穆迪发誓，她和德桑蒂斯将“尽一切可能”“反击这些非法和不明智的疫苗强制令”。
+
+这位官员指出，从经济角度来看，疫苗规定是荒谬的，因为随着经济陷入困境，通货膨胀严重，这将导致全国“数千”工人的流失。
+
+她说，“当我们在全国范围内看到执法人员和急救人员出现前所未有的空缺时，急救人员被迫辞职。”
+
+“这是危险的、缺乏周密考量，我无法相信像美利坚合众国这样的自由国家的领导人会支持这样的事情，”她补充说，“历史上从来没有任何美国总统授权 对全国人民强制打疫苗。”
+
+“所以我们将继续在法庭上反击，”她说，并承诺佛罗里达州官员将继续得到人民的支持。
+
+原文链接：[https://www.breitbart.com/politics/2021/10/22/florida-ag-ashley-moody-warns-vaccine-mandates-will-not-be-tolerated-in-the-state/](https://www.breitbart.com/politics/2021/10/22/florida-ag-ashley-moody-warns-vaccine-mandates-will-not-be-tolerated-in-the-state/)
+
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+
+翻译：真北007
+
+编辑/发布：LILY
+
+20211023
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
