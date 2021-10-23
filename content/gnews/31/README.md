@@ -2,43 +2,31 @@
 ---
 
 
-## 西班牙的银行准备提供加密货币服务
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1611901/)
+## 中共国现放假停工潮 PVC 6个交易日跌停3次！
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1612085/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/下载-5-1.jpg)
+据全国能源信息平台10月22日报道，10月20日，国网江西电力供用电部、国网江西电力调度控制中心联合发布《关于做好高耗能企业轮停及有序用电工作的通知》。当前面临用电缺口，为保障民生、重要用户用电，全省将于10月21日起，每日早高峰10:00-11:45、晚高峰17:00-20:00期间，实施高能耗企业用户轮停。此前，江西省315千伏安及以上的钢铁、建材、有色、化工等高耗能企业全部列入轮停方案。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/bank-of-spain.jpg)
+要求涉及2652户的高耗能企业根据负荷大小和所在地区分成7个轮停组别，按不同级别对应开五停二、开四停三、开三停四等。对于擅自超限额的用户责令整改，两次不到位的停止供电。江浙大多数制造企业已经再次经历限电限产，广东、重庆、成都等多地的企业也陆续发出停产放假通知。
+
+伴随着部分省份限电限产，PVC市场行情仍然在下跌。PVC五型价格最低已经接近1万2了，还有进一步下跌趋势。6个交易日跌停3次。
+
+中共对全世界发动的超限战导致了中共国老百姓成为了最大的受害者，在即将到来的冬日，无论企业还是个人都要在能源缺乏的情况下忍受饥寒交迫的漫漫长夜，中共国的老百姓，还要忍受到几时呢？全世界的人民还要忍受中共多久呢？中共一日不灭，人道灾难不断。
+
+新闻参考链接：[https://c.m.163.com/news/a/GMT7C2UV05509P99.html?spss=newsapp](https://c.m.163.com/news/a/GMT7C2UV05509P99.html?spss=newsapp)
+
+编辑：胖丁
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-图片来源：centralbanking.com
-
-
-#### 编译：小红帽
-
-西班牙的银行正准备向其客户提供加密货币服务，但因为中央银行缺乏明确指示，让银行感到沮丧。
-
-西班牙银行（Spanish Banks）曾在6月份表示，将为希望注册并使用加密货币服务的实体提供指示。
-
-西班牙报纸《El Pais》周二报道称，相应的登记处将于10月29日开始运作，但银行仍在等待指示。
-
-该登记处旨在打击洗钱，至于是否是为被监管的金融机构而设计的，至今还不确定。
-
-监管咨询公司finReg360的合伙人格洛丽亚·埃尔南德斯·阿勒 (Gloria Hernández Aler) 表示：“银行要求这些实体通过所施加的条款是没有意义的，因为他们已经受到直接监管。”
-
-“然而，银行通知这些实体，将提供这种类型的服务确实有道理，而且这些实体可能会改变洗钱的政策，以使其适应加密资产的动态。”
-
-据《El Pais》报道，由于缺乏中央银行的明确指示，几家大型金融机构的合规部门已着手研究客户是否必须注册才能提供加密服务。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Spanish Banks Are Preparing to Offer Crypto Services: Report (coindesk.com)](https://www.coindesk.com/policy/2021/10/22/spanish-banks-are-preparing-to-offer-crypto-services-report/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

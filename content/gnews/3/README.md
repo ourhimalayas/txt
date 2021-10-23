@@ -2,9 +2,9 @@
 ---
 
 
-## 中共正通过把我们绑在一起做为武器来毁掉我们
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1612255/)
+## 旧金山120名警察因强制疫苗离职，报警电话恐无人接听
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1612326/)
 
-10/19/2021 弗兰克·加夫尼：中共国到了崩溃的地步，他们正在通过把我们绑在一起，做为武器来毁掉我们。
+10/18/2021 旧金山120名警察因强制疫苗离职，有些报警电话恐无人接听。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

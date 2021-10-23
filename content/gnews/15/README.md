@@ -2,25 +2,34 @@
 ---
 
 
-## 疫苗灾情｜比利时 22 岁自行车手接种疫苗后心力衰竭 职业生涯被迫结束
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1612160/)
+## 澳大利亚两针疫苗接种率已超过70%
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1612219/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 23/10/2021**
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image1-3.jpg)图片：澳喜农场 森森
+根据澳洲9 News的最新报道，目前澳大利亚全国范围内的两针疫苗接种率已经达到71.67%，总人数大约为1480万人。接种一剂疫苗的比率更是超过86%，大约涵盖了1780万人口。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpg)
+其中新南威尔士州和首都地区的两剂疫苗接种率已经超过80%，分别为83.73%和85.13%。而一剂疫苗接种率均已超过90%，分别为92.83%和98.44%。
 
-【比利时】科尔特马克一名 22 岁的自行车手 Greg Luyssen 因接种 COVID-19 疫苗而出现心脏问题，被迫提早结束自己的职业生涯。
+维多利亚州的两剂疫苗接种率也在不久之前超过了70%，州政府认为有望在不久之后达到90%的两剂疫苗接种率门槛，并仍然坚持疫苗接种者将不会发展为重症或死亡案例的观点。
 
-原本希望毕生致力于骑自行车的 Greg 在接种完第二针疫苗后，身体出现不适，在九月初一场比赛中，心脏难以负荷，被迫中途退赛。
+不过就在维多利亚州解封首日，便又出现2189位新增病例，使得该州现存病例超过23,000人。
 
-他表示，“当时，我感到胸口承受着巨大的压力，这太糟糕了，我不得不离开比赛，去医院诊治，最后好被确诊为心力衰竭。其实在接种第二针之后，我多次无缘无故地发烧，但我从未想过这之间的关系。现在进一步的测试表明，我的心肌受到了影响，我的身体对高强度活动无法耐受。”
+澳大利亚其它地区，例如南澳大利亚和西澳大利亚，两剂疫苗接种率也已分别突破60%和55%，表示均有一般以上当地居民完成了疫苗接种。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/45-2.jpg)
+笔者认为，疫苗接种和封城措施实际上都未能有效遏制澳洲部分地区严重的疫情。许多人其实已经发现了这一点，但是他们仍然选择接种疫苗，因为当前的解封政策对于未接种疫苗者来说并不适用。
 
-来源｜[个案045](https://wielerverhaal.com/2021/09/15/belofterenner-uit-adinkerke-moet-onmiddellijk-stoppen-na-hartspierfalen-ze-denken-dat-coronavaccin-de-oorzaak-is/)
+为了统治者施舍的那一点点自由而放弃抗争，这是非常危险的信号，通往奴役之路的大门往往就在这时缓缓敞开。不久前对辉瑞员工的暗访其实也揭露了这一点，即通过给未注射疫苗者的生活增加不便，迫使人们放弃反抗接受疫苗。
 
-* * *
+然而一旦注射疫苗，我们便将自己完全出卖了。当第三针、第四针，或是其它邪恶荒唐的政令接踵而至，那时枷锁已经牢牢套在我们的身上，再想挣脱也为时已晚。
 
-他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//｜//[美国 35 岁疫苗拥趸孕期接种后致新生儿夭折](https://gnews.org/zh-hans/1605744/)//｜//[澳洲 30 岁夫妇接种疫苗后相继出现心脏疾病](https://gnews.org/zh-hans/1607321/)//｜//[意大利 18 岁少年接种疫苗2周内突患罕见病](https://gnews.org/zh-hans/1610841/)//
+（本文纯属个人观点，与Gnews无关）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+
+新闻参考链接：
+
+[澳洲第九新闻（一）](https://www.9news.com.au/national/coronavirus-vaccine-rollout-australia-state-by-state-guide-covid19-vaccination-rates-single-dose-double-doses-explainer/abacde8f-d35e-45ee-83bc-069ede212ecf)
+
+[澳洲第九新闻（二）](https://www.9news.com.au/national/victoria-coronavirus-lockdown-melbourne-celebrates-as-restrictions-finally-eased/5b66fbe2-1a5d-4c4a-beef-243412272ffa)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

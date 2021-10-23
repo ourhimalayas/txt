@@ -2,48 +2,45 @@
 ---
 
 
-## 因NBA球员坎特发表支持西藏自由言论 中共封杀凯尔特人队
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1611909/)
+## 运鸿李玉保有多少身家
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1612086/)
 
-作者：纽约香草山农场 – 007
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/107.jpg)图片来源：澎湃新闻
 
 
+【**编者按：**《7·24专题系列》是配合郭文贵先生每期大直播的内容，以最快的速度将郭文贵先生直播中提到的人与事进行一定深度的挖掘，在24小时内发布相关主题的文章，方便观众和读者进一步了解其中相关的内容。】
 
-美国当地时间10月20日晚间，美国NBA著名中锋球员 埃内斯·坎特 谴责中共在西藏的暴行后，腾讯正式封杀坎特所属的波士顿凯尔特人队，停止直播该球队的所有比赛。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-123.jpg)
-现年29岁的坎特，是土耳其裔穆斯林，出生于瑞士。被中共当局封杀前，坎特穿着印有西藏流亡精神领袖达赖喇嘛肖像的T恤衫在推特上发布视频，呼吁世界关注西藏问题，并称习近平是“残暴的独裁者”，谴责中共政府对西藏的残暴统治，呼吁“让西藏自由”。坎特也曾在2019年公开支持香港的民主运动。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-6.jpg)
-中共外交部在21日的例行记者会上，指责坎特“博眼球”。同时，中共煽动网民对坎特展开了痛骂，目前，他的名字已被微博封禁。而前国务卿蓬佩奥发表推文，称赞坎特为西藏挺身而出，直面中共，是真正的勇气。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.2-3.jpg)
-参考链接：
-1. [NBA球员坎特发表支持西藏自由言论后 中国封杀凯尔特人队](https://www.voachinese.com/a/chinese-broadcaster-blocked-celtics-over-kanter-comments-20211021/6280592.html)
-2.[@EnesKanter： More than 150 Tibetan people have burned themselves alive!! — hoping that such an act would raise more awareness about Tibet. I stand with my Tibetan brothers and sisters, and I support their calls for Freedom.](https://twitter.com/eneskanter/status/1450963678413705224?s=12)
-3. [Dear Brutal Dictator XI JINPING and the Chinese Government Tibet belongs to the Tibetan people!](https://twitter.com/eneskanter/status/1450869180283203589?s=12)
-4. [@mikepompeo： Good on @EnesKanter for standing up to the CCP and speaking truth to power. This is what real courage looks like.](https://twitter.com/mikepompeo/status/1451280302517723139?s=12)
+**整理：**翼族、BENJ1
+**编辑：**翼族
 
-（本文仅代表作者观点）
+运鸿李玉保，男，汉族，1982年1月出生，吉林省舒兰人，1997年参加工作，北京大学投融资与资本战略研修班毕业（其实就是没有正经的文凭）。李玉保“毕业”后在家乡经营农副产品，之后注册成立湖北运鸿光能发电技发展有限公司（后改名为湖北运鸿能源集团股份有限公司）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+李玉保在快手上自称“东方阿保”，一直很努力地想红起来，他多次在快手的直播间自称年收入200多个亿,，旗下三家上市公司市值上万亿。李玉保实际上确实拥有三家上市公司，分别是运鸿国际、CTIB和香港美固科技。
 
-总编/编辑：雪梨
-校对/发稿：为真不破20
+运鸿国际在国内的名称是中国运鸿控股有限公司，前身是2013年3月李玉保注册成立的湖北运鸿光能发电技术发展有限公司，李玉保目前担任运鸿国际董事局主席。但实际上运鸿国际是一家空白支票上市公司。
 
-**更多资讯，更多关注**
+在美国有一种称为特殊目的的收购公司，英文是Special Purpose Acquisition Companies，简称SPAC。这类公司并没有明确的营业计划和资产，只有现金，通过IPO上市募集资金，上市之后的目的是在一定时间内（一般为24个月）去寻找优质的公司，然后利用自身资金去投资，也被称为“空白支票”公司（blank cheque company），因为上市招股书中不透露任何具体商业计划、潜在合并或收购的对象，投资人默认管理团队会用他们的钱去投资有潜力的好企业。由于没有资产或者历史业绩，SPAC只能通过管理团队的声誉来吸引投资者去购买没有任何业绩记录公司的股票，空白支票公司对于投资者的风险比起传统公司相对较大。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+而运鸿国际正是这样一家SPAC公司，以它发行的股本来看运鸿国际的总市值只有9千万美元不到，以目前的汇率换算6亿人民币还不到。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+2020年1月李玉保正式签署收购美国公司CTI Industries Corporation，其总市值为1230多万美元，8千万人民币还不到。李玉保占股58%。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+李玉保拥有的第三家上市公司为香港美固科技，总市值1.9亿港元。根据该家香港上市公司的公告， 运鸿只支付了六百万左右人民币的订金，但一直未确定具体收购股份的金额，如果全收购的话需要支付一亿多人民币。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+三家所谓的上市公司，李玉保拥有的总市值加一起居然只有7亿左右人民币不到。而且股票市值7亿并不代表其真正具有7亿的价值，因为股票一般都会由于各种虚假的消息和业绩被市场高估，所以运鸿一点都不高大上，而李玉保居然在快手上表示自己跟阿里的资产市值6万亿是一样的，他虽然没有那么多资产，但他市值6万亿，自称固定资产1万5千个亿。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+另外李玉保在中文世界还有一大串名头（除了粗体部分可以不用细看），分别是：中欧经济合作与人文交流工作委员会执行副主席、全国工商联人才交流服务中心湖北院士专家科技服务站站长、中国民营经济国际合作商会主席团主席、中国管理科学研究院学术委员、中国管理科学研究院光谷生物肽研究中心主任、彰武人民政府高级经济顾问、现任联合国可持续发展健康伙伴关系组织委员会主席、中欧经济合作与人文交流工作委员会执行副主席、中国运鸿控股有限公司董事局主席、美国主板上市公司CTI工业（CTIB）董事、中国法学会会员、**中共中央党校学员**。2019 年 11 月，被授予为国际科学与和平周“和平使者”荣誉称号。
 
+由此可见李玉保和吴征完全就是一个套路，除了骗还是骗，只不过这次骗得更大而已！但李玉保唯一没有骗人的，就是他是中共中央党校的学员。
 
+**参考链接：**[快手东方阿保李玉保身价有多少钱? 运鸿集团市值多少亿?](http://www.caijingym.com/gupiao/22008.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+*发布：翼族*
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

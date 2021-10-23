@@ -2,9 +2,9 @@
 ---
 
 
-## 班农作战室：中共国即将内爆
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1612242/)
+## 加密货币不仅可以保存财富，还是对金融压制的反抗
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1612306/)
 
-10/19/2021 自由大学商学院院长戴夫·布拉特在班农作战室：中共国即将内爆。
+10/20/2021 马克·杰夫托维克：作为替代性的价值存储，加密货币不仅可以保存财富，还是对金融压制的反抗。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

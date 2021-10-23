@@ -2,31 +2,25 @@
 ---
 
 
-## 中共国现放假停工潮 PVC 6个交易日跌停3次！
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1612085/)
+## 疫苗灾情｜比利时 22 岁自行车手接种疫苗后心力衰竭 职业生涯被迫结束
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1612160/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/下载-5-1.jpg)
-据全国能源信息平台10月22日报道，10月20日，国网江西电力供用电部、国网江西电力调度控制中心联合发布《关于做好高耗能企业轮停及有序用电工作的通知》。当前面临用电缺口，为保障民生、重要用户用电，全省将于10月21日起，每日早高峰10:00-11:45、晚高峰17:00-20:00期间，实施高能耗企业用户轮停。此前，江西省315千伏安及以上的钢铁、建材、有色、化工等高耗能企业全部列入轮停方案。
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 23/10/2021**
 
-要求涉及2652户的高耗能企业根据负荷大小和所在地区分成7个轮停组别，按不同级别对应开五停二、开四停三、开三停四等。对于擅自超限额的用户责令整改，两次不到位的停止供电。江浙大多数制造企业已经再次经历限电限产，广东、重庆、成都等多地的企业也陆续发出停产放假通知。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpg)
 
-伴随着部分省份限电限产，PVC市场行情仍然在下跌。PVC五型价格最低已经接近1万2了，还有进一步下跌趋势。6个交易日跌停3次。
+【比利时】科尔特马克一名 22 岁的自行车手 Greg Luyssen 因接种 COVID-19 疫苗而出现心脏问题，被迫提早结束自己的职业生涯。
 
-中共对全世界发动的超限战导致了中共国老百姓成为了最大的受害者，在即将到来的冬日，无论企业还是个人都要在能源缺乏的情况下忍受饥寒交迫的漫漫长夜，中共国的老百姓，还要忍受到几时呢？全世界的人民还要忍受中共多久呢？中共一日不灭，人道灾难不断。
+原本希望毕生致力于骑自行车的 Greg 在接种完第二针疫苗后，身体出现不适，在九月初一场比赛中，心脏难以负荷，被迫中途退赛。
 
-新闻参考链接：[https://c.m.163.com/news/a/GMT7C2UV05509P99.html?spss=newsapp](https://c.m.163.com/news/a/GMT7C2UV05509P99.html?spss=newsapp)
+他表示，“当时，我感到胸口承受着巨大的压力，这太糟糕了，我不得不离开比赛，去医院诊治，最后好被确诊为心力衰竭。其实在接种第二针之后，我多次无缘无故地发烧，但我从未想过这之间的关系。现在进一步的测试表明，我的心肌受到了影响，我的身体对高强度活动无法耐受。”
 
-编辑：胖丁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/45-2.jpg)
+
+来源｜[个案045](https://wielerverhaal.com/2021/09/15/belofterenner-uit-adinkerke-moet-onmiddellijk-stoppen-na-hartspierfalen-ze-denken-dat-coronavaccin-de-oorzaak-is/)
 
 * * *
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//｜//[美国 35 岁疫苗拥趸孕期接种后致新生儿夭折](https://gnews.org/zh-hans/1605744/)//｜//[澳洲 30 岁夫妇接种疫苗后相继出现心脏疾病](https://gnews.org/zh-hans/1607321/)//｜//[意大利 18 岁少年接种疫苗2周内突患罕见病](https://gnews.org/zh-hans/1610841/)//
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)

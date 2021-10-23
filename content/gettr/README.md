@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/23/2021 7:50 AM (UTC)`
+
+10/22/2021 Miles Guo: The CCP will cease to exist by 2025, and I won’t participate in politics in the new China. The purpose for the CCP’s recent military operations such as the PLA submarines surfacing from underwater is to prepare for the war against Taiwan. Anyone who is still competing for territories, pushing nationalism and dictatorship will inevitably be eliminated!<br/><br/>10/22/2021 文贵直播：2025年将没有中共，届时文贵也不会从政；中共最近的潜艇露头等军事行动都是为了打台湾；任何仍在争夺领土、推行民族主义和独裁的人必将被灭！<br/>
+![img](https://media.gettr.com/group3/getter/2021/10/23/07/50/35b008a6-2a5b-667e-60b5-9ae5ec28c69b/out.jpg)
+
+---
+
 `@miles 10/23/2021 2:08 AM (UTC)`
 
 10/22/2021 Miles Guo: Bruno Wu reported to the CCP confidently that he has successfully got control of President Trump. Why is it good for our Whistleblowers’ Movement and the New Federal State of China? Because Bruno Wu will face the inquiries from the DOJ and the Congress as he orchestrated a scam to render President Trump under the CCP’s control<br/><br/>10/22/2021 文贵直播：吴征信心满满地给中共报告，称已经成功拿下川普总统；为啥这对咱爆料革命、新中国联邦是件好事？吴征用诈骗让中共控制了川普总统，所以他将面临司法和国会议员的调查<br/>
@@ -289,13 +296,6 @@ Tu Youyou said Artemisia annua has many other efficacies besides treating malari
 
 10/18/2021 Miles Guo’s GETTR: The original design of the Pangu Plaza was in the shape of a Jade Cong, which was switched to the Chinese dragon’s head due to the Liu Zhihua case. After Wang Qishan removed the dragon’s head, the Pangu Plaza was restored to the shape of a Jade Cong, which symbolizes the arrival of a new era - it’s just like how Pangu created heaven and earth! Think about it, what will it look like if the Jade Yue Axe is placed in the middle of Jade Bi?<br/><br/>10/18/2021 文贵盖特：盘古最初的设计就是玉琮，但由于刘志华案而改为龙头；王岐山拿掉盘古的龙头后，盘古竟然恢复了玉琮的设计；而这玉琮象征着新时代的到来，即盘古开天地！大家想想，把玉璧中间放上玉钺会是什么？<br/>
 ![img](https://media.gettr.com/group35/getter/2021/10/19/01/25/429ced6c-4455-d6cc-a76f-d8bf7030069f/out.jpg)
-
----
-
-`@miles 10/18/2021 10:56 PM (UTC)`
-
-10/18/2021 Miles Guo’s GETTR: It’s karma! Both Pan Shiyi and Zhang Xin, who pushed to repatriate me, are now wanted by the CCP! When taking the artemisinin-piperaquine tablets and artemisinin, please consult the doctors first and be very cautious! We will have a key person provide more information on taking artemisinin<br/><br/>10/18/2021 文贵盖特：当年推动遣返文贵的潘石屹和张欣遭到报应，二人均被中共通缉；在服用青蒿素哌喹片和青蒿素时，请大家遵从医嘱，务必小心！我们将联系重要人士提供更多关于服用青蒿素的信息<br/>
-![img](https://media.gettr.com/group34/getter/2021/10/18/22/56/b1f28994-ba6b-10bb-73e5-511132784536/out.jpg)
 
 ---
 
