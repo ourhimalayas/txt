@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/22/2021 11:58 PM (UTC)`
+
+10/22/2021 Miles Guo: The core issues of the 6th Plenary Session of the CCP’s Central Committee are: 1) eliminating the private entrepreneurs and the complete nationalization of the economy; and 2) when to invade Taiwan? This meeting will determine the future of the Communist China - to become another North Korea or return to the rule of the 9 CCP Politburo Standing Committee Members. Xi has the final say in choosing his successor<br/><br/>10/22/2021 文贵直播：中共此次六中全会最重要的议题是：1) 消灭私营企业家、经济上完全国有化；2) 何时打台湾；这次会议将决定中共国的未来走向是北朝鲜化，还是回归”九龙治水”；在继承人的问题上，习说了算<br/>
+![img](https://media.gettr.com/group32/getter/2021/10/22/23/58/d228c64f-8904-95a1-e8a0-d1e8948d7879/out.jpg)
+
+---
+
 `@miles 10/22/2021 11:20 PM (UTC)`
 
 Statement about Artemisinins, SARS-CoV2 and related topics<br/><br/>关于青蒿素及 SARS-CoV-2 的声明<br/>
@@ -289,13 +296,6 @@ Tu Youyou said Artemisia annua has many other efficacies besides treating malari
 
 10/18/2021 Miles Guo’s GETTR: The Jade Cong, Jade Yue Axe, and Jade Bi of the Liangzhu Culture dating back over 5,000 years are the symbols of separation of powers; Although the Chinese dragon head structure of the Pangu Plaza has been destroyed by the CCP, it implies the Communist China is like a group of dragons without the lead, and this is exactly what Jade Cong means - CCP, you are finished!<br/><br/>10/18/2021 文贵盖特：5000多年前良渚文化的玉琮、玉钺、玉璧象征着三权分立；盘古龙头虽被中共毁掉，但这意味着中共国群龙无首，群龙无首就叫玉琮 - 中共，你完蛋了！<br/>
 ![img](https://media.gettr.com/group24/getter/2021/10/18/22/54/39409712-ab05-8fc5-8243-5eece349b080/out.jpg)
-
----
-
-`@miles 10/18/2021 10:50 PM (UTC)`
-
-10/17/2021 Miles Guo: Standing Committee Members are all returning the money. He calls for the CCP male members and entrepreneurs to have courage<br/><br/>10/17/2021 文贵直播：中共常委们都正在把钱往回交。请党内，企业家有良知的男人有点勇气
-![img](https://media.gettr.com/group3/getter/2021/10/18/22/50/a916ed1f-c101-ca0b-10a4-33f8a4e8964b/out.jpg)
 
 ---
 
