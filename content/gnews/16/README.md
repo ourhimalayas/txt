@@ -2,21 +2,23 @@
 ---
 
 
-## 一落千丈的疫苗有效率
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1611545/)
+## 万众瞩目 迎接喜币上市宣传片
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1611555/)
 
-#### 翻译：奮鬥
-校对：枳实
-字幕/剪辑：蛮吉
+加拿大多伦多枫叶农场凯路团队 雪原伞出品
 
-本视频生动的总结了以福奇为代表的科学“宗教裁判所”自从中共病毒疫苗推出以来前后不一的对疫苗有效率的保证和描述。某些无良科学家，对数据捏扁揉圆，肆意扭曲，欺骗大众，本视频用简单的按照时间线排列的数据对照，揭穿了他们的谎言。
+公币，母币，双币合一
 
-发布：枳实
+责任中心化，技术区块链化
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+财富，尊严， 安全，未来
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新世界，新秩序，新视野，新格局，新中国联邦
+
+灭共是我们新中国联邦人的使命，是正义的需要！
+
+Take down the CCP！
+
+* * *
+
+*编辑&上传：文所未闻*
