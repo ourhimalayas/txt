@@ -2,42 +2,28 @@
 ---
 
 
-## Truth Social 的中资背景运营商运鸿国际浮出水面
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612594/)
+## 朝鲜抨击美国支持台湾 称其“企图扼杀两个社会主义国家”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1612599/)
 
-作者：纽约香草山文艺部 – 宁文静
+撰稿：东京樱花团/上善若水
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/朝鲜抨击美国支持台湾.png)[图片来源](https://newsbeezer.com/hongkong/%E9%9F%A9%E7%BA%A2%E4%B8%8E%E7%BE%8E%E6%9C%9D%E8%B0%88%E5%88%A4%E5%8A%A0%E5%85%A5%E4%B8%AD%E5%9B%BD%E5%AE%BD%E5%AE%B9-%E7%BB%8F%E6%B5%8E%E8%BF%9E%E7%BB%93%E7%BB%8F%E6%B5%8E%E7%BD%91/)
 
+周六（10月23日）朝鲜外务省副相朴明浩指责拜登政府因为对台湾的“鲁莽”支持加剧了中美军事紧张局势，并表示美国在该地区日益强化的军事存在对朝鲜构成了潜在威胁。朴明浩批评美国派遣军舰驶过台湾海峡并向台湾提供武器系统升级和军事训练。朴明浩说，朝鲜认为台海问题完全是中共国的内部事务。美国“轻率地插手”这一问题，有可能触动“朝鲜半岛的微妙局势”。
 
+10月21日，美国总统拜登出席CNN电视节目，表示如果中共国发动攻击，美国将会防卫台湾。这与美国在是否干预中共攻击台湾问题上一贯维持的“战略模糊”政策明显不同。但是白宫发言人普萨基（Jen Psaki）后来表示，美国并没有改变对台政策，拜登亦没有宣布任何变化。
 
-10月22日，郭文贵先生在大直播中爆料称，川普新上市的社交媒体平台Truth Social，其背后已经有中资运营商染指。
+“众所周知，美国军队及其在（韩国）的军事基地是用来向中共国施压的，美国及其卫星国的庞大力量正在向台湾海峡聚集，随时可能投入到针对朝鲜的军事行动中，”朴明浩说，以美国为首的“敌对势力 ”在该地区不断强化的军事存在是基于一种“蹩脚的断言”，即朝鲜和中共国会在台湾和朝鲜半岛制造麻烦。朴明浩说，“这一现实证明，美国企图扼杀我国和中共国这两个社会主义国家，以维持其霸主地位。”
 
-在纳斯达克上市的数字世界收购公司DWAC当天出现暴涨，原因系关联了川普启动的Truth Social新媒体。DWAC在技术上通过SPAC模式，和川普媒体完成合并。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1023AM-（123-）視頻备用-2.002.jpeg)
-文贵先生指出，DWAC的首席执行官Patrick Orlando，同时是运鸿国际的CEO。美国证监会的文件显示，川普总统的新媒体也将由运鸿国际的CEO运营。
+华盛顿和平壤之间的核谈判已经停滞了两年多时间。谈判的障碍在于，朝鲜希望减轻以美国为首的国际社会对朝鲜的大规模制裁，来换取朝鲜采取措施减少其核武器计划。
 
-据悉，运鸿国际是一家在开曼群岛注册的合法空白支票公司，而运鸿国际的母公司是总部位于武汉的运鸿集团。郭先生展示的一份文件中显示，10月份 Giga Energy与运鸿国际并购的时候，运鸿董事局主席李玉宝签字，见证人是吴征。
+消息来源：
 
-DWAC今日盘前已经暴涨80%，盘中涨幅一度超过400%，数次触发熔断。简体中文的财经媒体对此多有报道。
-(本文仅代表作者观点)
+[朝鲜抨击美国支持台湾 称其“企图扼杀两个社会主义国家”](https://www.dw.com/zh/%E6%9C%9D%E9%B2%9C%E6%8A%A8%E5%87%BB%E7%BE%8E%E5%9B%BD%E6%94%AF%E6%8C%81%E5%8F%B0%E6%B9%BE-%E7%A7%B0%E5%85%B6%E4%BC%81%E5%9B%BE%E6%89%BC%E6%9D%80%E4%B8%A4%E4%B8%AA%E7%A4%BE%E4%BC%9A%E4%B8%BB%E4%B9%89%E5%9B%BD%E5%AE%B6/a-59603744)
 
-参考链接：
+（免责声明：文章仅代表作者本人观点，与GNEWS无关）
 
-1. [运鸿集团的背景(一)](https://gettr.com/post/pevxvi087d)
-2. [2021年10月22日 文贵大直播](https://gtv.org/video/id=6172b02683e948708d05c1b9)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/老黑*
 
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编：Jack Li文阳
-编辑：山本不惑
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)

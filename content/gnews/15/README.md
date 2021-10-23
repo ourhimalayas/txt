@@ -2,44 +2,39 @@
 ---
 
 
-## 班农专访7: 台湾渗透严重，确保不让亲共者走到前台
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1612567/)
+## 盖特未来规划中的三个&#8221;七分之一”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612593/)
 
-**简评：**
+作者：纽约香草山农场 – Delilah小胖
 
-中共党魁习近平一直想要武力夺取台湾。新中国联邦的郭文贵先生之前警告称，台湾被中共严重渗透。在火战之前，中共会开展网络和信息战，台湾应该力图确保亲共者不要走到前台。台湾拥有先进的芯片设计和制造产业，西方从实用角度出发也应该保护台湾，但美国政府现在有很多胆小懦弱、渎职无能的人不会真正地采取行动来保护台湾。
-
-[GTV视频链接](https://gtv.org/video/id=6172c47bc1d11973d3c6d07a)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-**视频字幕：**
+10月22日，郭文贵先生透露了盖特未来发展的三个“七分之一”规划。
 
-**主持人TCC：**几个月前，一位台湾将军要求台湾军队在“中共登陆”的日子来到时加入“支持统一”的中共军队。我认为每个国家的精英都有类似的问题。作为市井小民的代言人，你对台湾人民有什么建议？
+所谓三个七分之一，首先是未来全世界七分之一的人会使用盖特；其次，全世界社交媒体中最有影响力的人，有七分之一来到盖特；第三，每天全世界有价值的新闻、最重要的信息，有七分之一源自盖特。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1023AM-（123-）視頻备用-2.001.jpeg)
+郭先生预计，盖特实现第一个七分之一，会是在明年的十一月，具体的时间可能是2022年11月11日。之所以设定在这个时间点，是基于三方面的预判：包括习近平可能熬不过明年五月，疫苗灾难将摧毀现有社交媒体大佬的话语控制权，还有就是共产党2025年前必定终结。
 
-**班农先生：**我认为台湾人现在必须开始思考他们面临的渗透问题。现在我说的是中共将如何做到这一点。请记住，在我们陷入火战之前，他们将尝试做的是网络和信息战。
+郭先生说，G系列的支付系统HPay下月即将上线。任何商家只要愿意，都可以采用HPay提供的付款服务。另外，盖特的支付系统也计划将于明年5月份左右上线。
 
-我认为他们已经渗透到台湾社会中人们知道这一点。郭文贵爆料郭台铭，郭台铭几年前曾试图竞选国民党的总统初选。文贵爆出中共对台湾的渗透。我觉得台湾人应该注意那些在前面带风向的人。中共的走狗们会说: 要统一， 我们应该成为中共国的一部分， 我们不希望外国势力干涉，等等。
+郭先生很肯定地表示，纵然有若干变数，但不管怎么变，全人类最大的赢家就是G系列，包含喜联储、喜美元、喜币和盖特、GTV、G Fashion以及GClub。
+(本文仅代表作者观点)
 
-台湾的自由民主运动将像攀登一座艰难的山峰。他们在世界各地都有盟友，特别是很多人现在明白，由于先进的芯片设计制造业，西方从实用主义的角度也有必要真正保卫台湾。
+参考链接：[2021年10月22日 文贵大直播](https://gtv.org/video/id=6172b02683e948708d05c1b9)
 
-但是我认为台湾人首先要做的就是，确保不要让很多亲中共者的声音走到前台。在此危难时刻，走到前台的应该是真正相信自由的人。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-我相信危机时刻即将到来。我相信危机的焦点将是激烈的信息、心理和网络战。我想这会先发生。然后，我相信中共最终会发动一场火战，试图获得控制。
+总编：Jack Li文阳
+编辑：山本不惑
+校正/发稿：我不在这里
 
-我现在唯一担心的是，美国政府中这么多无能、不称职的人，不会做出应有的行动来真正捍卫台湾和台湾人民的自由。这是我现在所担心的。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/班农专访.jpg)
-*视频字幕：云岭 | 翻译：TCC | 校对： Roberts | 简评/文字整理/编辑：胖丁*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

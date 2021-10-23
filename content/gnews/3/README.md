@@ -2,19 +2,19 @@
 ---
 
 
-## 秘翻在线：华为支付民主党顶级说客50万美元游说白宫
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1612649/)
+## 中共国已容不下说真话的人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1612692/)
 
-#### 翻译撰稿：zzballack
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-429.png)[图片来源](http://nyceducator.com/2012/09/what-do-you-do-when-truth-doesnt-matter.html)
+新浪财经报道，近日河北省临漳县5名学生家长涉嫌寻衅滋事被刑拘，因参与反映学校食堂卫生问题，其中1人被批捕，4人取保候审。当地教育部门发出声明称，涉事学校不存在食堂卫生问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/104806557-GettyImages-482860979-tony-podesta-1.jpg)
+家长吐槽学校食堂卫生条件差，就被当地公安机关刑拘、逮捕，这都是流氓行为。当地教育部门给出的解释是“图片、视频与事实严重不符，涉嫌造谣！”孩子拉肚子，作为家长怀疑食堂卫生条件不好合情合理，不解决问题，却解决提出问题的人。在中共国官商勾结造成的各种灾难，各种纠纷层出不穷，因举报人各种被杀，各种消失无影无踪的事件每天都在发生。防民之口，甚于防川，川壅而溃，伤人必多，民亦如之。
 
-据《每日来电》（Daily Caller）10月22日报道，CNBC报道称，根据10月20日提交的游说披露表，中共科技巨头华为第三季度向资深民主党说客、希拉里‧克林顿（Hillary Clinton）2016年竞选活动主席约翰·波德斯塔（John Podesta）的兄弟托尼‧波德斯塔（Tony Podesta）支付了50万美元酬劳，用于在7月至9月期间就与电信服务和受影响的贸易问题对白宫进行游说。
+消息来源：[媒体：5名家长反映学校食堂卫生问题被刑拘](https://cj.sina.cn/article/norm_detail?url=http%3A%2F%2Ffinance.sina.cn%2F2021-10-23%2Fdetail-iktzqtyu3121112.d.html&amp;autocallup=no&amp;isfromsina=yes)
 
-前总统川普于2019年5月将华为列入贸易黑名单。限制它获得美国的芯片和技术。此外，联邦通信委员会（FCC）在2020年将华为定为国家安全威胁，因为它“与中共和中共军方关系密切。”司法部还在2019年1月指控华为犯有13项欺诈罪，并在2020年2月指控华为共谋窃取商业机密。
+（文章仅代表作者本人观点，与GNEWS无关）
 
-一位白宫官员10月21日在被问及波德斯塔的游说活动时回复说：“华为仍然受到贸易限制。拜登总统和本届政府认为，由华为等不值得信赖的供应商生产的数字基础设施设备，对美国、我们的盟友和合作伙伴的安全构成威胁，针对华为的出口管制仍然存在。我们致力于使用全部工具来保证我们和盟友的安全。我们正在就华为带来的风险进行接触，有几十个国家和运营商已经做出决定，将华为排除在他们的5G网络之外。而且，我们预计这一趋势将继续。”
-
-华为2020年共投入47万美元进行游说，但2021年前三个季度，华为的游说支出已经超过100万美元。
-
-新闻来源：[**Tony Podesta Raked In $500,000 To Lobby White House For Blacklisted Chinese Telecom Giant**](https://dailycaller.com/2021/10/22/tony-podesta-lobby-white-house-huawei-500000/)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
