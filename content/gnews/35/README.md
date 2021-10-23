@@ -2,37 +2,37 @@
 ---
 
 
-## 传“字节跳动”IPO或将再推延，疑似牵涉江志成案件
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1612513/)
+## 11月中共六中全会将作关键决定
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612596/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-59.png)[图片来源](https://www.cnbeta.com/articles/tech/1109545.htm)
-中关村在线10月22日消息，近日，知情人士透露，因监管不确定性，字节跳动可能将上市计划推迟到 2022 年年底。
+作者：纽约香草山农场教育部 – 正义的小新
 
-一位消息人士称，字节跳动是全球最大的独角兽，一些私人投资者对其估值为 4000 亿美元，其上市计划不太可能在明年秋天前获得批准。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-这是字节跳动公司今年继4月和7月以来第3次推迟IPO计划。
 
-今年4月15日，据网上爆料，知情人士透露，字节跳动已经启动了部分主要业务进行IPO的准备工作，其中包括抖音。该公司正与顾问就上市事宜开展工作，可能选择在港或在美上市。知情人士称，该公司正在考虑将抖音、今日头条和西瓜视频等国内资产进行上市。其中一名知情人士说，涉及海外资产的TikTok可能会进行单独上市。
 
-4月23日晚间，字节跳动在一则声明中表示：近期有不少关于公司上市的消息，在此声明：经过认真研究，认为公司暂不具备上市条件，目前无上市计划。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tr.png)
-7月7日，媒体报道称，TikTok母公司字节跳动可能会推迟首次公开招股（IPO），并可能面临估值下调。对此，字节跳动否认称目前暂不具备上市条件，目前无上市计划。
+郭文贵先生在22日的大直播中，深刻解读了十九届六中全会的意义。
 
-郭文贵先生在10月17日GTV直播中爆料，习近平在今年3月从新加坡抓捕江志成后，为进一步调查案件，又派人对柳传志、张一鸣等人及企业进行了调查。现在来看，这与今年5月张一鸣突然卸任字节跳动公司的全部职务都相互关联。
+文贵先生提到，中共十九届六中全会，最核心的将是决定中共国社会到底走什么制度的问题：是北朝鲜化，还是走向国际化。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1023AM-（123-）視頻备用-2.003.jpeg)
+据内部战友爆料，王沪宁主力推进企业公有化、杜绝私人企业家，并计划实施文革2.0，王也因此成为全党最被憎恨的第二个人。而习近平绝对支持经济完全国有化，特别是在媒体、能源、基础设施、金融等领域，绝不允许私人企业参与。私人企业只能做血汗工厂，出钱、出力有份，但不能有利润。
 
-当前，中共内斗已经围绕“二十大”全面展开，值此十九届六中全会召开在即之时，作为江志成关联企业的字节跳动又再次曝出IPO计划延后消息，其原因不言自明。
+历史上，中共的六中全会通常聚焦意识形态、党建等问题，并有可能议定下届党代会的召开日期。 历史上曾有两次重要的六中全会：六届六中全会开启毛时代，规定中共中央要“以毛泽东为首”；十一届六中全会彻底否认文革，形成了以邓为核心的领导集体。
+(本文仅代表作者观点)
 
-信息来源：
+参考链接：[2021年10月22日 文贵大直播](https://gtv.org/video/id=6172b02683e948708d05c1b9)
 
-[传字节跳动IPO或将推迟至2022年底\_上市计划](https://www.sohu.com/a/496619176_114822)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-[传字节跳动IPO将推迟字节跳动：暂无上市计划](https://www.dsb.cn/152485.html)
+总编：Irene木木
+编辑：山本不惑
+校正/发稿：我不在这里
 
-[传字节跳动已启动部分主要业务IPO准备工作，估值或达4000亿美元- 富豪](https://www.forbeschina.com/billionaires/54880)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-(文章仅代表作者本人观点，与GNEWS无关)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

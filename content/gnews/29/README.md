@@ -2,39 +2,19 @@
 ---
 
 
-## 盖特未来规划中的三个&#8221;七分之一”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612593/)
+## 秘翻在线：这个报道中提到的法案恐怕会令日本人吃惊
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1612674/)
 
-作者：纽约香草山农场 – Delilah小胖
+撰稿：待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/画像1-19.png)[图片来源](http://www.news.cn/politics/2021-10/23/c_1127988845.htm)
+日本电视早间新闻10月23日播报的消息称：中共国通过“家庭要培养孩子爱党、爱国的情操”之法案。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共国的议会–全国人民代表大会通过了一项法案，要求在家里 “严加管教”，以培养孩子正确的生活习惯和对中国共产党的热爱之心。23日，全国人民代表大会常务委员会通过了 “家庭教育促进法案”，其中概述了对父母在家中 “管教孩子 “的要求。
 
+它法案指出，父母 有责任在家中教育子女，必须防止未成年子女沉迷于网络，培养孩子从小养成良好的生活习惯、学习习惯、保证休息和锻炼身体。父母在家庭里应培养孩子爱党、爱国、热爱社会主义，提高孩子捍卫国家统一和民族凝聚力的意识。
 
+[信息源](https://news.yahoo.co.jp/articles/4edd544d1fdd8bae0460d70df11f9ee701211484)
 
-10月22日，郭文贵先生透露了盖特未来发展的三个“七分之一”规划。
+中共把这种”强加于人”、”利用家长有意识的洗脑未成年人”之可笑的行径，理所当然的作为法案推出来实施。笔者在日本生活很多年了，知道日本是自由的国度，更知道这种事是令日本国民无法理解，甚至被笑话的。看到这样的报道，想必他（她）们应该会很吃惊!
 
-所谓三个七分之一，首先是未来全世界七分之一的人会使用盖特；其次，全世界社交媒体中最有影响力的人，有七分之一来到盖特；第三，每天全世界有价值的新闻、最重要的信息，有七分之一源自盖特。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1023AM-（123-）視頻备用-2.001.jpeg)
-郭先生预计，盖特实现第一个七分之一，会是在明年的十一月，具体的时间可能是2022年11月11日。之所以设定在这个时间点，是基于三方面的预判：包括习近平可能熬不过明年五月，疫苗灾难将摧毀现有社交媒体大佬的话语控制权，还有就是共产党2025年前必定终结。
-
-郭先生说，G系列的支付系统HPay下月即将上线。任何商家只要愿意，都可以采用HPay提供的付款服务。另外，盖特的支付系统也计划将于明年5月份左右上线。
-
-郭先生很肯定地表示，纵然有若干变数，但不管怎么变，全人类最大的赢家就是G系列，包含喜联储、喜美元、喜币和盖特、GTV、G Fashion以及GClub。
-(本文仅代表作者观点)
-
-参考链接：[2021年10月22日 文贵大直播](https://gtv.org/video/id=6172b02683e948708d05c1b9)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编：Jack Li文阳
-编辑：山本不惑
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（文章仅代表作者个人观点）

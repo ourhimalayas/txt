@@ -2,24 +2,35 @@
 ---
 
 
-## 有声|美国国防部呼吁加大稀土开采力度 反制中共垄断供应链
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1612776/)
+## 中共病毒导致男性的精子数量锐减
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1612948/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-本月19日，在“北美关键矿物日”大会上，国防部产业政策办公室的丹妮尔·米勒说，美国及其盟国需要扩大稀土的开采和加工。米勒直指中共限制稀土出口的政策。她说，全球供应链面临蓄意干预的风险；美国生产“战略与关键矿物”，是增加全球供应链韧性的一个必要条件。她例举了美国正在开发的稀土项目，意图表明五角大楼是一个“有耐心的战略投资者”。美国希望与盟国矿业公司建立可持续性的合作，加速供应链从成本导向转为价值观导向。
+**撰稿：日本东京方舟农场 北极**
 
-在制造用于武器和电动汽车的特制磁体时，稀土金属不可或缺。中共目前在稀土生产领域占据龙头地位。
+10月8日，澳喜农场多语组发布在盖特的视频片段，法国遗传学家亚历山德拉∙亨里昂“·考德（Alexandra Henrion-Caude）警告说，中共病毒导致男性的精子数量锐减，注射疫苗可能会改变男性的生育能力。
 
-文字版原文：[美国国防部呼吁加大稀土开采力度 反制中共垄断供应链](https://gnews.org/zh-hans/1607300/)
+亚历山德拉披露，医疗小组对12名有中共病毒患病史的死者进行了尸检，观察到睾丸组织发生了非常明显的病变。这个结果解释了早前的发现，他们曾发现中共病毒患病史的男性精子数量明显减少。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211023171530.png)图片来自于网络
+
+令人困惑的是，在所有精液样品中并未检测到病毒。这意味着导致精子数量下降的只有两种可能性，第一，是刺突蛋白导致了一系列连锁反应；第二，中共病毒对睾丸组织的其他致病反应。
+
+据此，她呼吁不要注射中共疫苗，因为疫苗也可导致男性生育能力下降。
+
+方舟农场10月14日发表在Gnews的文章也证实了该信息，文章表示，新冠疫苗对人体免疫系统产生严重的破坏力，导致免疫力明显下降，从而发生中共病毒突破性感染。早前在以色列和近期在台湾发生的疫苗接种造成更多中共病毒感染就是证明。
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[法国遗传学家亚历山德拉∙亨里昂-考德：我们不知道他们（接种疫苗者）是否能够生孩子。 法国遗传学家研究发现，新冠病毒导致男性的精子数量锐减，注射疫苗可能会改变男孩子的生育能力，也会导致女性月经紊乱，影响人类生殖功能。](https://gettr.com/post/pdiojzc596)
+
+
+
+> [新冠疫苗破坏了免疫系统，造成突破性感染](https://gnews.org/zh-hans/1594800/)
+
+
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

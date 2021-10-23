@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/23/2021 3:45 PM (UTC)`
+
+<br/>10月23号：尊敬的战友们好，你们健身了吗？传播C C P病毒真相……和疫苗解药了吗？今天的时间安排问题……七哥不能录制视频了……非常非常的抱歉！
+![img](https://media.gettr.com/group28/getter/2021/10/23/15/45/18c6bd98-1547-afb2-88c0-c0105681abc1/out.jpg)
+
+---
+
 `@miles 10/23/2021 7:50 AM (UTC)`
 
 10/22/2021 Miles Guo: The CCP will cease to exist by 2025, and I won’t participate in politics in the new China. The purpose for the CCP’s recent military operations such as the PLA submarines surfacing from underwater is to prepare for the war against Taiwan. Anyone who is still competing for territories, pushing nationalism and dictatorship will inevitably be eliminated!<br/><br/>10/22/2021 文贵直播：2025年将没有中共，届时文贵也不会从政；中共最近的潜艇露头等军事行动都是为了打台湾；任何仍在争夺领土、推行民族主义和独裁的人必将被灭！<br/>
@@ -289,13 +296,6 @@ Tu Youyou said Artemisia annua has many other efficacies besides treating malari
 
 10月18号：我的天哪，这青蒿素比黄金都贵重呀……，我们伟大的战友．Eglise钟声．太棒了。【Sigma-Aldrich 化工试剂公司原料价格    50毫克精炼青蒿素 $1160 (100%) <br/>                                                                100毫克精炼青蒿素 $ 81.8 (98%)<br/>2%原料青蒿素的不同，价格差了14倍。所以那些号称每粒胶囊中含100-450mg 98%青蒿素的保健品，仅就价钱，就不可能是他们声称的<br/><br/>不, 2%的纯度差异, 造成价格28倍的猛增. 这2%的差异是关键!! 治疗药物可能用的是100%纯精炼青蒿素,而保健品用的原料是便宜的98%原料青蒿素.】
 ![img](https://media.gettr.com/group45/getter/2021/10/19/01/35/96bd9b24-c110-e568-6f2b-23f5f6782e2a/f63a9a7d55a4abfb62cd0861f9f23063.jpg)
-
----
-
-`@miles 10/19/2021 1:25 AM (UTC)`
-
-10/18/2021 Miles Guo’s GETTR: The original design of the Pangu Plaza was in the shape of a Jade Cong, which was switched to the Chinese dragon’s head due to the Liu Zhihua case. After Wang Qishan removed the dragon’s head, the Pangu Plaza was restored to the shape of a Jade Cong, which symbolizes the arrival of a new era - it’s just like how Pangu created heaven and earth! Think about it, what will it look like if the Jade Yue Axe is placed in the middle of Jade Bi?<br/><br/>10/18/2021 文贵盖特：盘古最初的设计就是玉琮，但由于刘志华案而改为龙头；王岐山拿掉盘古的龙头后，盘古竟然恢复了玉琮的设计；而这玉琮象征着新时代的到来，即盘古开天地！大家想想，把玉璧中间放上玉钺会是什么？<br/>
-![img](https://media.gettr.com/group35/getter/2021/10/19/01/25/429ced6c-4455-d6cc-a76f-d8bf7030069f/out.jpg)
 
 ---
 

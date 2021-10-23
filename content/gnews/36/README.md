@@ -2,42 +2,42 @@
 ---
 
 
-## 班农专访1: 毕生致力于铲除中共
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1612501/)
+## Truth Social 的中资背景运营商运鸿国际浮出水面
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612594/)
 
-**简评：**
+作者：纽约香草山文艺部 – 宁文静
 
-作为新中国联邦的共同创始人，并因此被中共视为头号敌人，在美国历史上成为第一个被中共制裁的美国人，班农先生深感骄傲，视为凭生获得的最高荣誉。班农先生毕生致力于彻底铲除中共，让中国人民和底层的小人物获得真正的自由。
-
-GTV视频链接：[班农专访Q-1: 毕生致力于铲除中共](https://gtv.org/video/id=617252c4c1d11973d3c6b941)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-**视频字幕：**
+10月22日，郭文贵先生在大直播中爆料称，川普新上市的社交媒体平台Truth Social，其背后已经有中资运营商染指。
 
-**主持人Winston：**郭文贵先生在周日直播时说，一位中共高官透露, 您是中共的头号敌人，其次是皮特·纳瓦罗和迈克·彭佩奥。这是中共给你的最大荣誉吗？此刻在中共国广为流传的消息，说你已经被逮捕了。
+在纳斯达克上市的数字世界收购公司DWAC当天出现暴涨，原因系关联了川普启动的Truth Social新媒体。DWAC在技术上通过SPAC模式，和川普媒体完成合并。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1023AM-（123-）視頻备用-2.002.jpeg)
+文贵先生指出，DWAC的首席执行官Patrick Orlando，同时是运鸿国际的CEO。美国证监会的文件显示，川普总统的新媒体也将由运鸿国际的CEO运营。
 
-**班农先生：**这是最大的荣誉勋章。另一个荣誉勋章，是作为历史上第一位被中共制裁的美国人，发生在川普总统离开，拜登政府上台四分钟后。
+据悉，运鸿国际是一家在开曼群岛注册的合法空白支票公司，而运鸿国际的母公司是总部位于武汉的运鸿集团。郭先生展示的一份文件中显示，10月份 Giga Energy与运鸿国际并购的时候，运鸿董事局主席李玉宝签字，见证人是吴征。
 
-但我认为其中一部分原因，不仅仅是我过去几年与郭文贵一起合作支持中国的老百姓。特別是作为新中国联邦的共同创始人之一，我将其作为一枚荣誉徽章。
+DWAC今日盘前已经暴涨80%，盘中涨幅一度超过400%，数次触发熔断。简体中文的财经媒体对此多有报道。
+(本文仅代表作者观点)
 
-我是中国共产党的死敌，我是中国人民、中国老百姓和小人物永远的支持者。所以我对此感到非常荣幸。
+参考链接：
 
-中共应该明白一些事。我不仅没有在监狱里，而且我生命的每一天，我都全神专注于永久铲除、摧毁中国共产党。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/班农专访.jpg)
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*视频字幕：*雨中漫步 *| 听写：*云岭 *| 翻译：* Dasy *| 校对：*Roberts *| 简评/文字整理/编辑：*胖丁 *| Page：Daoiii*
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+1. [运鸿集团的背景(一)](https://gettr.com/post/pevxvi087d)
+2. [2021年10月22日 文贵大直播](https://gtv.org/video/id=6172b02683e948708d05c1b9)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+总编：Jack Li文阳
+编辑：山本不惑
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,27 +2,31 @@
 ---
 
 
-## 财新胡舒立已被习近平报复
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1612729/)
+## 法国利用流感疫苗捆绑推行新冠疫苗第三针
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612900/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/GettyImages-97628778-1.jpeg)**图片来源：新唐人**
+作者：澳喜农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月22日，法国开始了今年的季节性流感疫苗接种，同时，法国政府竟然鼓励接种流感疫苗的民众同步注射新冠疫苗第三针。数据显示，流感疫苗的接种人群主要是65岁以上的老人和孕妇，还包括哮喘、糖尿病、心力衰竭，以及艾滋病的患者。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-21.jpeg)
 
-**作者: 顺其自然**
-**编辑: MSGZ**
+法国健康部卫生署长杰罗姆·所罗门辩称，上述民众具有同时严重感染新冠病毒和严重流感的风险。 但是，新冠疫苗副作用的大量事实证明，恰恰正是这些老年人和具有基础疾病的人员，在接种过新冠疫苗后的致死风险非常高。法国政府无视新冠疫苗风险，与流感疫苗捆绑式宣传，强势推行新冠疫苗第三针。
 
-在中共的十八大之后，《财新传媒》几乎成了习近平和王岐山的反腐风向标。习王打虎每到关键时刻，《财新传媒》就会有独家的消息，但前两天，中共网信办公布了一份新闻信息源“白名单”，白名单”是中共网信办发布的新闻信息源名单，是自2016年以来的首次更新。其中包含了大约1300多家媒体、政府机构和社交媒体账户。只有列入“白名单”的媒体，网络新闻平台才可以转载，如果使用其它资源将被依法处置。
+(本文仅代表作者观点)
 
-让外界关注的是，在这次的“白名单”中没有出现“财新网”。而这次的名单数量，是2016年时的4倍。虽然数量多了，但是多次独家报导重大新闻的财新网却被踢出。中共网信办称，名单中的媒体都是“坚持正确政治方向”的。这就让人联想到前段时间，财新的掌舵人胡舒立发出过一张被认为是在讽刺习近平的“猪头”图片。这也让人怀疑，可能是照片招来了习近平的愤怒。
+参考链接：[法国流感疫苗今开打 卫生部鼓励左右膀臂同时进行的打第3剂新冠疫苗](https://www.rfi.fr/cn/法国/20211022-法国流感疫苗今开打-卫生部鼓励左右膀臂同时进行的打第3剂新冠疫苗)
 
-现在习近平不让胡舒立发声，把她冷冻起来了。还有一个原因就是，财新胡舒立的最大靠山王岐山已经失势。这和之前的任志强、董宏被抓，都能印证这一点。更重要的是，习近平和王岐山已然是两个阵营。失去了保护伞、又是当政派的异己，财新没有了利用价值。如果还是如以前敢言，自然就成了的眼中钉，成为被整肃的对象。所以财新胡舒立的未来结局取决于习近平与王岐山进一步内斗的结果。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+总编：Ivy001 
+编辑：Ivy001
+校正/发稿：谐趣园
 
-**发布**: Janek
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](https://www.gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

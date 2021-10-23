@@ -2,26 +2,28 @@
 ---
 
 
-## 日本爱知县用餐券诱惑年轻人接种疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1612709/)
+## 有声|美英经济学家预警，2008年金融危机或将重现
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1612862/)
 
-撰稿：东京樱花团/待命（文晓）
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+近日，美国达特茅斯学院经济学教授布兰奇弗劳尔和伦敦大学定量社会科学教授布莱森联合发布论文警告称，一项关键消费指数显示，美国的经济正在陷入衰退，情况可能与2008年金融危机一样严重。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/日本爱知县用餐券诱惑年轻人接种疫苗.png)（图片源于本文链接）
+事实上，美国民众的收入预测、就业状况，以及未来经济预期，根据密西根大学与世界大型企业联合会的消费者预期指数可见一斑。2021年，有两项指数分别下滑了18.4和25.3个百分点；而在2008年全球金融危机时，这两个指数则分别下跌了21和19个百分点。经济学家指出，自上世纪八十年代以来，每次美国经济衰退，这两项指数都会下滑超过10个百分点。
 
-日本雅虎网站10月22日消息：爱知县宣布向20,000名接种疫苗的年轻人发放价值10,000日元的餐券后，已收到了超过100,000人次的申请。
+此前，郭文贵先生曾多次警示世界，由于西方经济被中共绑架，加之中共房地产泡沫的破裂、中共病毒和疫苗生化战带来的灾难，世界经济恐将崩塌。
 
-为了促进年轻人接种新冠状病毒疫苗，爱知县独自开展一项活动，在10月底之前，对至少接种一剂疫苗的2万名20～30岁的县内居民发放1万日元的餐券。可以通过该县的专门网站申请，申请时必须附上疫苗接种证书或其它证明文件的图片。
+在这场经济大劫难和世界大变革中，最大的赢家将是新中国联邦的G系列，它将成为世界经济的诺亚方舟。
 
-县政府称，自9月底开始接受申请以来，截至10月21日已有100,108人提出申请。这意味着该县有9.1%的已完成第一针疫苗接种的年轻人提出了申请。申请的受理将于11月30日截止，当选者将在12月初通过电子邮件得到通知。
+文字版原文：[美英经济学家预警，2008年金融危机或将重现](https://gnews.org/zh-hans/1610890/)
 
-[信息源](https://news.yahoo.co.jp/articles/fa7b2d986fdb59fdb6895e1fed76ac6477556bcd)
-
-（图片源自本文链接）
-
-（文章仅代表作者个人观点）
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/老黑
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
