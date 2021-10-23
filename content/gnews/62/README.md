@@ -2,34 +2,117 @@
 ---
 
 
-## 纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1534601/)
+## 中共国以饥饿营销法配合世卫组织执行HPV疫苗计划或引发又一个灾难
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1607423/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-CN.jpg)
-[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
+**撰稿**：柯亭（秘翻原创组）
 
-[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
+**校对**： 卡拉马佐夫姐姐
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211021-中共国以饥饿营销法配合世卫组织执行HPV疫苗计划或引发又一个灾难.jpg)
+**图片来源：**[**谷歌**](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwomenscarefl.com%2Fwp-content%2Fuploads%2Fhpv-vaccine.jpg&amp;imgrefurl=https%3A%2F%2Fwomenscarefl.com%2Fhealth-library-item%2Ftypes-of-hpv-vaccines%2F&amp;tbnid=GAtGmTKS-9WW1M&amp;vet=12ahUKEwihkMHv4tnzAhUErXIEHaMpCskQMygcegUIARCJAg..i&amp;docid=3RW6xmtOOlM3zM&amp;w=900&amp;h=507&amp;itg=1&amp;q=hpv%20vaccine%20pictures&amp;ved=2ahUKEwihkMHv4tnzAhUErXIEHaMpCskQMygcegUIARCJAg)** **
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-001-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-002-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-003-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-004-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-005-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-006-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-007-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-008-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-009-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-010-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-011-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-012-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-013-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-014-scaled.jpg)
+**一****、****邪恶中共即将推行HPV疫苗在适龄女孩****群体****的大规模接种**
 
+据[《中共国经济网》10月18日报道](http://www.ce.cn/xwzx/gnsz/gdxw/202110/18/t20211018_37002849.shtml)，近日，不少市民致电长江日报新闻热线反映，想接种预防宫颈癌的九价HPV疫苗，但一直预约不上。记者调查发现，由于该疫苗供应紧张，仅水果湖街社区卫生服务中心一个接种点，就有近3万人排队等待。报道说：湖北省宫颈癌防治中心从2019年底开放九价HPV疫苗摇号，截至目前已推出16期，每期提供100到300个名额，相对于庞大的接种需求显得杯水车薪。在首期摇号中，一度出现12,227人竞争150个名额的场面，中签率1.23%，堪比打新股。
 
-[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
+据[《网易》10月18日报道](https://www.163.com/dy/article/GMKAR9LL0534LWQM.html)，10月17日，北京万泰生物药业全资子公司厦门万泰收到世界卫生组织（WHO）出具的公函，确认其二价人乳头瘤病毒疫苗馨可宁（HPV Bivalent, Cecolin）通过了世卫组织预认证（WHO PQ认证），这是首个获得该认证的中共国产宫颈癌疫苗产品。据报道，内蒙古鄂尔多斯市准格尔旗是中共国HPV疫苗免费接种的第一个试点，2020年8月1日起为13～18岁女性免费接种二价HPV疫苗，目前接种率已达到84.19%；厦门市曾发布《厦门市国产2价HPV疫苗接种实施方案的通知》，决定在2020-2022年期间为厦门市适龄在校女生提供国产2价HPV疫苗并实施自愿免费接种；10月13日，济南市对全市试点工作进行再部署、再动员、再培训，推动在校七年级适龄女孩HPV疫苗免费接种、适龄妇女宫颈癌筛查等任务落实落地。
 
-[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
+据[《搜狐网》10月18日报道](https://3g.k.sohu.com/t/n561787396)，为积极推进2030年消除宫颈癌目标，在四川省红十字基金会的捐助下，汶川县从10月15日开始开展9至14岁女童HPV疫苗捐赠接种工作。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**以上报道显示，中共国在****以饥饿营销法****成功造成HPV疫苗“一苗难求”的氛围下，同时借自产****馨可宁HPV疫苗获世卫组织预认证之机，准备推动大规模的HPV疫苗接种，**也不排除向其它国家推广的可能。
 
-+4
+据[《雪球网》2020年8月8日报道](https://xueqiu.com/6988275545/156133336)，馨可宁HPV疫苗的生产商万泰生物的第一大股东是养生堂，股权结构看到实际控制人是钟睒睒，钟睒睒也是万泰生物和养生堂的董事长，对公司直接持股20.21%，并通过养生堂间接持股63.35%，合计持股比例占发行前总股本的83.56%。钟睒睒旗下有另一家知名公司农夫山泉。据[《百度百家号》8月28日报道](https://baijiahao.baidu.com/s?id=1709320812507605898&amp;wfr=spider&amp;for=pc)，福布斯实时富豪榜显示，钟睒睒以689亿美元的身家力压马化腾、黄峥以及马云，稳居福布斯中国富豪榜第一位，重回中国首富宝座。
+
+**二****、****世卫组织以消灭宫颈癌为名筹划实施****大规模HPV疫苗接种计划**
+
+2020年11月17日，世卫组织开启题为《**全世界有史以来首次承诺消灭一种癌症****：**加速消除宫颈癌全球战略正式启动》的[新闻发布会](https://www.who.int/zh/news-room/events/detail/2020/11/17/default-calendar/launch-of-the-global-strategy-to-accelerate-the-elimination-of-cervical-cancer)，主要声明内容有：
+
+**1. ****宫颈癌是一种全世界可以真正消除的癌症：现在行动，正当其时。**在世卫组织总干事谭德塞于2018年5月发出行动呼吁后，194个国家共同商定，决心终结这一可防可治的癌症带来的不必要痛苦。全世界已经有了必要的工具，仅仅需要将这些工具变得能够获得。
+
+**2. ****世界卫生大会于2020年8月通过决议，呼吁消除宫颈癌，并通过一项战略来具体实施。**这有力证明了各方对这一重要目标的巨大兴趣，即使在中共病毒大流行的背景下，世界各国都支持这一重要优先事项。
+
+**3. ****世卫组织在第七十三届世界卫生大会闭幕后，于2020年11月17日纪念这一历史性宣告，并正式启动消除战略。**由于当前的大流行，该活动将以在线方式举行，并由世卫组织高层领导主持。澳大利亚政府将正式担任共同发起国。
+
+世界卫生大会[2020年8月3日通过的11.4议程](https://apps.who.int/gb/ebwha/pdf_files/WHA73/A73_R2-ch.pdf)是《加速消除作为公共卫生问题的宫颈癌的全球战略及其相关2020-2030年目标和具体目标》，强调宫颈癌预防等有效干预措施有助于实现《2030 年可持续发展议程》不可分割的目标和具体目标，特别是目 标 1（在全世界消除一切形式的贫困）、目标 3（确保健康的生活方式，促进各年龄段人群的福祉）、目标 5（实现性别平等，增强所有妇女和女童的权能）和目标 10（减少国家内部和国家之间的不平等）。
+
+**三****、****世卫组织关于HPV疫苗的答疑**
+
+**之前，世卫组织批准的三款HPV疫苗分别是：默沙东（Merck Sharp & Dohme）公司的加达西尔（Gardasil）和加达西尔9（Gardasil 9），以及葛兰素史克公司的赛瓦里克斯（Cervarix）。世卫组织HPV****疫苗****网页将**[“Q&A答疑”链接](https://www.euro.who.int/__data/assets/pdf_file/0003/427017/WHO-HPV-QA.pdf)**到欧洲分部。据介绍，HPV 疫苗含有病毒样颗粒和其他常见的构成物，包括有微量的佐剂（硫酸铝****，****帮助增强身体的免疫反应****）****、矿物质盐（L-组氨酸、聚山梨醇酯 80 和硼酸钠）和水；病毒颗粒是HPV病毒的蛋白质外壳，不含病毒的遗传物质。答疑说，所列三种 HPV 疫苗对致癌 HPV病毒感染的保护率均超过 99%；研究表明，免疫力至少可以维持10年，但也可能长达几十年。**
+
+据答疑，世卫组织全球疫苗安全咨询委员会 （GACVS）自2007年至2017年6月一直在评估HPV疫苗的安全性数据，没有发现严重的不良反应；像所有其他疫苗一样，过敏反应（每百万剂量中有 1.7 例的严重过敏反应）和晕厥（昏厥）是可能的，但很少见。GACVS 认为 HPV 疫苗非常安全（extremely safe）。欧洲药品管理局（EMA）也进行了独立评估并得出结论认为 HPV疫苗是安全有效的 。
+
+答疑说，与其他疫苗和药物一样，HPV 疫苗通常具有轻微的副作用，例如疼痛（80%的概率）、发红和/或注射部位肿胀（30%的概率）、头痛或轻度发烧（10%的概率）； 这些通常持续几个小时到一天。有发生晕倒的情况，但原因是压力或焦虑，而不是疫苗所致。罕见的情况有，接种疫苗几分钟后发生严重过敏反应导致呼吸困难（即过敏性休克）。
+
+答疑说，没有关于任何长期副作用的可信证据。有病例报告假设一系列罕见且知之甚少的疾病，如卵巢早衰 (POF)、体位性心动过速综合征 (POTS) 和复杂的区域性疼痛综合征 (CRPS) 可能由 HPV 疫苗引起。 这些报告缺乏科学性和流行病学方面的可信度，也没有提供足够的证据表明疫苗和这些疾病两者之间存在因果关系。只有日本暂停推广HPV疫苗，尽管日本的专家委员会和全世界所有受人尊敬的科学团体都没有发现有证据表明疫苗是导致这些情况的原因。
+
+答疑说，HPV疫苗不仅不会影响生育能力，而且确实有助于保护女性的健康和生育能力。2006年第一个HPV疫苗获得许可之前的临床试验以及自 2006 年以来的安全监测和研究已证实该疫苗不会对女性造成任何生殖问题。事实上，HPV 疫苗通过预防HPV病毒引起的宫颈癌癌前病变来保护生育能力。 宫颈癌癌前病变的手术治疗会使女性更难怀孕，怀孕期间的手术可能导致早产和胎儿丢失。宫颈癌的治疗（切除子宫颈和子宫、化疗和/或放疗）会导致女性无法生育。
+
+**四、越来越多的美国学生家长对HPV****疫苗的****安全性存疑**
+
+据[6月28日jamanetwork.com](https://jamanetwork.com/journals/jamapediatrics/fullarticle/2781108)报道，美国全国免疫调查-青少年 (NIS-Teen)的数据显示，因安全顾虑（safety concerns）或不良反应（adverse effects）而拒绝接种HPV疫苗的青少年比例连年不断上升，且越升越快；从2008年5.3%、2015年的12.9%，升至2019年的26.2%。
+
+该网站[9月27日的另一个报告](https://jamanetwork.com/journals/jamanetworkopen/fullarticle/2784272?utm_source=For_The_Media&amp;utm_medium=referral&amp;utm_campaign=ftm_links&amp;utm_term=091721)，交叉分析了2015年至2018年全国免疫调查 (NIS) 和疫苗不良事件报告系统 (VAERS) 的相关数据，发现因对 HPV 疫苗的安全顾虑而不考虑让孩子接种的父母人数比例不断增加，从2015年的13.0%增加到2018年的23.4%；但同期，接种HPV疫苗引起的非严重副作用和严重副作用的发生率并没有明显增加。VAERS的数据显示，2015年每接种10万剂HPV疫苗有44.7例副作用事件；2018年每接种10万剂HPV疫苗有29.4例不良事件。其中，每接种10万剂HPV疫苗导致残疾（disability）的，2015年至2018年每年都有0.5例；导致生命危险（life-threatening conditions）或死亡（death）的，2015年至2017年每年有0.3例，2018年有0.2例。但这些严重不良事件数据，都显著高于世卫组织在答疑中所声称的“每百万剂量中有 1.7 例的严重过敏反应（未提及生命危险和死亡）”。另外，本次中共病毒疫苗毒针实际造成的伤害数量据估计高于VAERS实际登记的数量至少10倍以上；说明VAERS登记的HPV疫苗伤害病例数，必须放大若干倍数，才可能接近实际受伤害病例数。
+
+**五、因受HPV疫苗严重伤害****正在****求助的13个病例**
+
+10月18日，在gofundme.com平台用“HPV Vaccine”搜索，可以发现如下因接种HPV疫苗而受严重伤害的13个病例；所列日期，是该病例在该筹款平台建立网页的日期。
+
+[病例1#](https://www.gofundme.com/f/jaden-healing?qid=6af9112601357f9b850045c93ab55461)，2019年1月6日，Jaden，女。2015年1月接种HPV疫苗。2015-2016年，被诊断如下疾病：纤维肌痛、慢性局部疼痛综合征 (CRPS)、胃轻瘫、自主神经功能障碍、体位性心动过速综合征 (POTS) 和桥本甲状腺炎。
+
+[病例2#](https://www.gofundme.com/f/callie-mae-needs-a-service-dog-so-its-safe-for-her?qid=6af9112601357f9b850045c93ab55461)，2021年1月1日，Callie，23岁，女。进入青春期时在学校接种HPV疫苗后，不定期癫痫发作。
+
+[病例3#](https://www.gofundme.com/f/medical-alert-dog-due-to-vaccine-injury-for-alice?qid=6af9112601357f9b850045c93ab55461)，2021年7月8日，Alice，女。2020年8月因医生的错误而接种HPV疫苗。造成的损害包括体位性心动过速综合征（POTS）、Ehlers-Danlos 综合征 (EDS)、自身免疫性疾病、风湿病和 肥大细胞活化综合征 (MCAS) ，生活不能自理。没有律师愿意接手这个案例。
+
+[病例4#](https://www.gofundme.com/f/supporting-steph039s-fight?qid=1111a25627c62e49d0f3a0a2790e0609)，2018年10月30日，Stephanie，女。18岁时接种Gardasil HPV疫苗，然后HPV检测阳性。25岁时被诊断为宫颈癌2期，5个月后被诊断为3B期；29岁时被诊断为乳腺癌1A期。
+
+[病例5#](https://www.gofundme.com/f/funeral-expense-for-colton-berrett?qid=1111a25627c62e49d0f3a0a2790e0609)，2018年1月6日，Colton，男。几年前接种HPV疫苗，因而改变了他的一生。不能走路，双肺、颈部、右臂功能减退，需要借助呼吸器呼吸。
+
+[病例6#](https://www.gofundme.com/f/the-linden-method-recovery-retreat?qid=1111a25627c62e49d0f3a0a2790e0609)，2020年10月30日，Chloe，女。7.5年以前的2013年，在接种HPV疫苗后，被诊断为体位性心动过速综合征（POTS）、Ehlers-Danlos 综合征 (EDS)。
+
+[病例7#](https://www.gofundme.com/f/ashleys-vaxx-journey?qid=0be30f010fe077fb05d91fd78ff701bc)，2019年11月16日，Ashley，12岁，女。2019年11月7日，接种4针疫苗包括Gardisil HPV、Menacwy、Tdap和Flu疫苗，随即出现虚弱、晕眩、刺痛、身体麻木、呕吐等症状，护士觉得是对Gardasil HPV疫苗的过敏反应，在医生诊室留置约2小时后离开。11月8日，出现手臂抽筋、脖子刺痛、嘴唇肿胀、关节痛等症状，不得不去急诊室就诊。11月9日，出现行走困难等格林-巴雷综合征（Guillain-Barré Syndrome）症状。11月15日，心率191-123。
+
+[病例8#](https://www.gofundme.com/f/kamerons-kause?qid=0be30f010fe077fb05d91fd78ff701bc)，2017年6月20日，Kameron，女。2014年15岁，看医生时被建议接种HPV疫苗，当时母亲表示再等等；11月份去看妇科医生，再次被建议接种HPV疫苗，同意接种了Gardisil HPV疫苗。2个月后的2015年1月份出现手振颤，直至7月份，日趋严重。后来9月份被诊断为特发性震颤综合征（Essential Tremor Syndrome），10月份出现癫痫发作。后来又被诊断有体位性心动过速综合征（POTS）。
+
+[病例9#](https://www.gofundme.com/f/HelpMelissaHeal?qid=6c5df93c56be0379298e2efba4c739fd)，2018年11月10日，Melissa，女。2010年接种HPV疫苗后致免疫系统功能损害。2016年被诊断有晚期莱姆病（lyme disease）、多种合并感染和自主神经系统损伤，2018年被诊断有体位性心动过速综合征（POTS）。每月须支付医疗费用$4K-$8K。
+
+[病例10#](https://www.gofundme.com/f/help-tyler?qid=6c5df93c56be0379298e2efba4c739fd)，2013年10月26日，Tyler，女。2年以前在一次常规看医生的时候被建议接种HPV疫苗。2012年4月12日接种了一个三针序列的第一针，下周开始有慢性头痛；当年夏季因疼痛、恶心和呕吐多次住院治疗。因不知道这些症状是否与HPV疫苗有关，2012年8月15日接种了第二针。然后开始出现严重的颈部和背部疼痛，有时会辐射到胳膊和腿、失眠、持续恶心、头晕、慢性疲劳和偏头痛以及慢性日常头痛；被诊断患有纤维肌痛。多次就医住院治疗，但没有查出引发疾病的原因。医生针对纤维肌痛的各种治疗，没有疗效。
+
+[病例11#](https://www.gofundme.com/f/lets-get-maddy-running-those-bases-again?qid=6c5df93c56be0379298e2efba4c739fd)，2020年9月17日，Maddy，女。2018年1月接种HPV疫苗，随后出现皮疹和多个关节疼痛。在 2018 年 8 月做了一次简单的脊柱手术，但后来变成了 3 次脊柱手术，并在 2018 年 11 月至 2019 年 1 月期间发生为期6 周的脊液漏，直到 MRI检查发现该脊液漏。后来一直有头痛和脊柱疼痛，多次住院治疗，被诊断有肾上腺功能不全。2020年8月14日出现病危。后来的各种检查，发现有肾上腺衰竭、阿狄森氏症（Addison’s）、体位性心动过速综合征（POTS）、贫血、手术失败引起的背痛、脂肪肝等。
+
+[病例12#](https://www.gofundme.com/f/HelpChloeLiveAgain?qid=6c5df93c56be0379298e2efba4c739fd)，2017年4月28日，Chloe，20岁，女。2010年接种Gardasil HPV疫苗，导致自主神经系统（ANS）严重损伤，2016年曾昏迷9分钟。伤害表现有：持续性麻痹、极端肥大细胞反应、缺氧、晕厥、支气管痉挛、水肿、循环不良、无法忍受气候/天气的变化、出汗过多、癫痫发作、短期记忆和言语丧失、反复感染、失眠等。
+
+[病例13#](https://www.gofundme.com/f/HPV-vaccine?qid=6c5df93c56be0379298e2efba4c739fd)，2015年12月13日，Aoife，16岁，女。2011年9月12日接种HPV疫苗第一针，1天后出现感冒样症状且持续了10天，有幻觉，不能被触碰；当时其母亲（一名护士）怀疑是病毒感染。2011年11月14日接种第二针，几小时后，出现与上次类似的症状，也持续了10天。此后，不断发生复发性感染；虽然不断就医治疗，但病情继续恶化。
+
+**六、HPV疫苗在爱尔兰、丹麦、日本造成严重伤害的情况**
+
+Aoife的母亲柯比女士（Fiona Kirby）2015年10月向爱尔兰（Ireland）高等法院提起讼诉，要求取消HPV疫苗的授权（License）。柯比女士介绍说，2015年10月她启动这个案件时有关联的女孩是90人，而到了12月这个数字增长到了200人。
+
+柯比女士还介绍了丹麦（Denmark）的情况。丹麦与爱尔兰人口相当，截至2015年6月底，有1,586个女孩报告了因接种HPV疫苗而发生的副作用，其中543例有严重损害。丹麦因此指定5个诊所，专门治疗这些HPV疫苗受害者。2015年10月24日，丹麦政府拨款90万英镑，用于独立调查HPV疫苗副作用情况。
+
+世卫组织关于[HPV疫苗的答疑](https://www.euro.who.int/__data/assets/pdf_file/0003/427017/WHO-HPV-QA.pdf)中，最后特别提到日本的如下情况。
+
+在日本，地市政府于 2010 年为女孩引入了HPV疫苗接种，并于2013 年4月将该疫苗列入国家免疫计划。起初，接种率达到 70%。然而，在2013 年6月，因媒体报道的未经证实的接种HPV疫苗的副作用（如慢性区域疼痛综合征 (CRPS) 和其他症状），日本政府暂停了对接种HPV疫苗的倡议。此后，接种率下降到1%。
+
+2013 年、2014 年、2015 年、以及 2017 年 6 月，世卫组织全球疫苗安全咨询委员会（GACVS）对这些不良事件进行了调查后，表示没有证据表明HPV 疫苗和慢性区域疼痛综合征之间存在因果关系。 GACVS 认为 HPV 疫苗非常安全（extremely safe）。2018 年 2 月，一项日本研究报告称，将未接种疫苗的女孩和接种疫苗的女孩分组比较，多种症状的发生率没有差异。
+
+鉴于宫颈癌的高死亡率，日本预防接种促进专家委员会等专家组继续积极建议恢复接种 HPV 疫苗。2017年7月，世卫组织报告了日本宫颈癌死亡率从1995 年到 2005 年增长了 3.4%，预计从2005 年到 2015 年增长 5.9%。虽然HPV 疫苗在日本可以随时启用，但迄今为止日本政府仍然暂停倡议接种。
+
+世卫组织全球疫苗安全咨询委员会（GACVS） 表示，由于日本政府基于微弱证据做出的政策决定，将会导致重大伤害；因为对于那些本来可以用疫苗来预防的HPV相关的癌症，日本的年轻女性成为易感人群。
+
+**七、****世卫组织****没有证据表明接种HPV 疫苗和不患宫颈癌之间存在因果关系**
+
+2019年5月21日，[childrenshealthdefense.org](https://childrenshealthdefense.org/news/25-reasons-to-avoid-the-gardasil-vaccine/)网站发表了不接种Gardasil HPV疫苗的25个理由。其中第17条特别强调，即使假设疫苗有效，因接种 Gardasil HPV疫苗而导致自身免疫性疾病的可能性，也要比因接种有效疫苗而避免因宫颈癌而死亡的可能性，高 1,000 倍。
+
+在查阅以上所列的HPV疫苗受害者的经历时，心情非常压抑。她们都是花季少女，受HPV疫苗伤害之前，活泼好动爱好广泛，天真而满怀梦想。然而，就是接种了那个传说可以预防宫颈癌的“疫苗”，断送了她们前途，甚至终身生活在残疾中，生活不能自理。
+
+令人诟病的是那些顶着高贵职业光环的医生们。当他们建议信任他们的正常人接种HPV疫苗时，难道他们对造成这些损害的可能性毫不知情吗？与[Gnews之前报道](https://gnews.org/zh-hans/1545287/)的中共病毒疫苗毒针伤害者经历的情况一样，当这些伤害者就医时，接诊的医生很少会联想到这些伤害与接种疫苗有关；所给予的治疗大多数都无效果，让这些被伤害者经历更多的痛苦。病例3#经历的没有律师愿意接手介入诉讼的案例说明，现有的法律和程序，让受伤害者处于弱势。
+
+显然，以上世卫组织关于HPV疫苗副作用的答疑，充满了强词夺理和故意隐瞒的成分。直觉告诉我们，世卫组织关于“日本宫颈癌死亡率从1995 年到 2005 年增长了 3.4%且预计从2005 年到 2015 年增长 5.9%”的报告结论是错误的或虚构的。因为，从1995年到2015年的20年间，日本对于宫颈癌的早期预防、早期发现、早期治疗以及综合预防和治疗的知识、能力、技术、以及普及性等方面，应该是在不断提升。因此，这一特定癌症的真实准确死亡率，应该是呈下降趋势，才是符合常识。
+
+世卫组织武断地得出“**宫颈癌是一种全世界可以真正消除的癌症**”这一结论的两个前提判断缺乏科学证据，即：宫颈癌是因感染HPV病毒而引发的，HPV疫苗可以预防感染HPV病毒。因为很多人都会感染HPV病毒，但并不必然引发宫颈癌；另一方面，接种了HPV疫苗者，依然有人会患宫颈癌。借用世卫组织的思路，可以予以回击说：没有证据表明接种HPV 疫苗和不患宫颈癌之间存在绝对因果关系。以上所列病例4#，18岁接种HPV疫苗，25岁就被确诊宫颈癌，29岁被确诊乳腺癌；说明HPV疫苗不仅不能预防宫颈癌，而且可能是引发宫颈癌和乳腺癌的致病原因。
+
+自2019年底中共病毒疫情爆发以来，世卫组织与邪恶中共狼狈为奸的表现，已经告诉我们世卫组织是不可信任的。在已知中共病毒疫苗毒针已造成巨大伤害的情况下，世卫组织依然不遗余力筹集大量资金[执行Covax计划](https://gnews.org/zh-hans/1576212/)，向中低收入经济体的20多亿人民推行接种中共病毒疫苗毒针，其邪恶性质已经昭然若揭。
+
+这一次，邪恶中共再次正式出场，配合世卫组织执行已谋划多年的HPV疫苗计划，将会造成又一场灾难吗？
+
+（文章仅代表作者本人观点）

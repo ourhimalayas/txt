@@ -2,38 +2,17 @@
 ---
 
 
-## 恒大物业交易戛然而止，中共房地产寒冬才刚刚开始
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1610953/)
+## 文贵爆料 10/22：吴征向中央报告：川普总统已被拿下
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1611221/)
 
-作者：香草山农场商业部– Bronx Bombers
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-香港时间10月20日晚，中国恒大、恒大物业以及合生创展同时发布公告称，中国恒大向合生创展出让恒大物业股权的交易宣告终止，三者的股票将于21日起复牌。
+撰稿：Ermat【㊙️翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Pictur的e1.png)
+这世界风云变幻，只要心存一丝贪欲，便会被表面奢华、耀眼的光辉所迷惑，前总统川普也未能幸免。郭文贵先生在10月22日的大直播中说，吴征向中央报告，已经利用空壳公司成功拿下川普。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-13.jpeg)
+一位战友说，吴征刚给中央写的报告说，我们已经成功拿下川普总统，我们有绝对的信心向组织承诺。空壳公司上市就是中国的所谓的风控上市公司。上去以后找些托让股票涨上去，然后就跑了。这叫空壳、空头公司。那么这个背后的是谁呢？是钟远红，是吴征啊，然后给中央报告我们成功了，我们现在很成功。我会告诉大家，川普总统的那个基金总共拿了不到五百万美元。他对外说可能我会拿到八亿美元，为什么呢？吴征找了一个公司，说如果是低于了三亿美元，我给你三亿，就像当年骗查尔斯王子一样，这就是结局。最重要的是什么？中共一片欢呼啊。这就是捏住了对方的软肋。
 
-此前，由于恒大集团债务危机的爆发，其在房产销售旺季的成交量大幅下降、流动性危机加剧，恒大本想依靠此次出让解决当下的危机现状，却不想该计划业已流产。据悉，在11月初，恒大将有2.77亿美金的债务应付利息到期。
+吴征现在搞了这么一个诈骗公司来欺骗美国前总统。吴征是美国公民，却不敢来美国。但是这件事让他最暴露了。据我所知，不低于十家大媒体正在调查此事。调查完以后，就知道了共产党控制了川普总统。他是最有希望再回白宫的美国总统。那么吴征就必须面对司法和国会议员的调查。
 
-虽然中共一些高层对外表示，恒大只是个案且危机可控，但恒大作为触发中共房地产崩塌的第一张多米诺骨牌，其冲击力已波及其他地产公司。
+参考链接：
 
-事实上，中共的虚假经济大多来源于房地产行业，而随着房地产企业的不断爆雷，本就脆弱的中共经济终将崩塌，也必将导致中共的加速灭亡。
-
-但文贵先生在直播中多次示警，中共房地产暴雷不仅冲击中共国的金融业和保险业，还收割了美国、欧洲和日本等发达国家的退休金以及社会养老金。房地产是中共控制西方国家的又一经济手段。
-
-(本文仅代表作者观点)
-
-参考链接：[深夜突发！恒大不卖了：刚宣布终止200亿交易！更有偿债大消息来了](https://finance.sina.com.cn/chanjing/gsnews/2021-10-21/doc-iktzqtyu2631498.shtml)
-[https://c.m.163.com/news/a/GMP0TRJQ0535KAWB.html?spss=newsapp](https://c.m.163.com/news/a/GMP0TRJQ0535KAWB.html?spss=newsapp)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编：Ivy001 
-编辑：Kathy文艺
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[2021年10月22日 文贵大直播](https://gtv.org/video/id=6172b02683e948708d05c1b9)

@@ -2,25 +2,19 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月22日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1610990/)
+## 中共外交部发言人反驳美方“保卫台湾”之说
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1611268/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-412.png)
+撰稿：西枫westca
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-24.png)
-文章仅代表作者本人观点，与Gnews无关
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unnamed-12.jpg)图片来源：外交部网站
+环球网10月22日报道，中共外交部发言人汪文斌在记者会上对于美国总统拜登称“美国会为保卫台湾而对抗中国”之说表示，台湾是中共领土不可分割的一部分，台湾问题纯属中国内政，不容任何外来干涉。任何人不要低估中国人民捍卫国家主权和领土完整决心、坚定意志和强大能量，不要站在14亿中国人民的对立面。不要向“台独”分裂势力发出任何错误信号，以免严重损害中美关系和台海和平稳定。
 
-视频参看：2021.10.22早GTV新闻访谈 [http://\[email protected\]](http://Gettr@MosTrans)
+21日，英国国防大臣也称，“解放军军机侵扰台湾防空识别区很危险，而且有可能引爆冲突”，同天欧洲议会首份“欧盟-台湾政治关系与合作报告”通过，全面提升与台湾的关系。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+近日来，由于中共军机高频率、多架次侵入台湾防空识别区，造成了世界各国对台湾现状的担忧。各国政府纷纷表态，支持台湾民主政府。给中共当局带来一定压力。若其一意孤行，武力侵台，一定会受到世界正义力量的回击。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+**新闻来源：**
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[美国领导人宣称美国会为“保卫台湾”对抗中国，外交部回应：不要站在14亿中国人民的对立面！ (huanqiu.com)](https://3w.huanqiu.com/a/5e93e2/45H5lg2Wiq4?agt=11)
