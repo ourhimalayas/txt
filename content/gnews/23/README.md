@@ -2,31 +2,25 @@
 ---
 
 
-## 拜登承认会保护台湾 美军铲平中共军事基地只需3分钟
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612949/)
+## 台湾女星梁家榕接种疫苗后出现严重副作用
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1612990/)
 
-作者：澳喜农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月21日，美国总统拜登在采访时表示，“一旦中共发动攻击，美国承诺会保护台湾。”
+**撰稿：日本东京方舟农场 Kevin wang**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-18.jpeg)
+据TVBS新闻网10月22日报导，台湾女星梁家榕20日在脸书发布贴文表示，在接种第一剂辉瑞疫苗后出现头痛、腹泻等严重副作用。
 
-早10月17日，郭文贵先生就在直播中爆料，美国的专业人士明确答复，如果共产党直接攻打台湾的话，美军是会出手的，一旦美军出手日本也一定会出手。其中最令人惊讶的是，把共产党所有100%的军事基地铲平，包括空中与陆地的军事设施，美军单独行动只需要3分钟，如果日本单独作战也只需要5分钟。
+据报道，出道多年的女星梁家榕在接种第一剂BNT疫苗后，原本以为50岁的年龄不会产生严重副作用，却没想到反应超乎想象，打完疫苗非常难受！
 
-(本文仅代表作者观点)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211022175404-050e9261.jpg)图片来自于网络
 
-参考链接：[Biden says United States would come to Taiwan’s defense](https://www.reuters.com/world/asia-pacific/biden-says-united-states-would-come-taiwans-defense-2021-10-22/)
+梁家榕表示，打完BNT疫苗后第1个小时出现疲倦，头胀反应，4个小时之后严重头痛，第2天还有反胃及轻微腹泻。梁家榕说：“手臂疼痛、身体酸痛、轻微发烧，通通中奖！”因此已连续2天躺在床上，且一定得吃止痛药才能缓解头痛。她也询问网友“有人打第一剂辉瑞，跟我一样超难受吗？”
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+*注：本文仅代表作者观点，与 Gnews无关*
 
-总编：Ivy001
-编辑：Ivy001
-校正/发稿：谐趣园
+*参考链接：*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[梁家榕打BNT躺2天！　醫曝「嚴重副作用」：快去醫院](https://news.tvbs.com.tw/life/1615225)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

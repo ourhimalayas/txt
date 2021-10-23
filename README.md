@@ -15,140 +15,140 @@
 
 ---
 
-### [中共国的能源危机有可能阻碍国际经济（二）](/content/gnews/1/README.md)
+### [中共国撕毁了能源规则书以解决其燃”煤”之急](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [总理宣布起飞](/content/gnews/2/README.md)
+ ` 澳喜农场`
+
+### [郭先生：全世界越来越多的人感受到了疫苗的威胁 但媒体就不让谈论疫苗的副作用](/content/gnews/3/README.md)
+ ` MG 澳喜农场多语组`
+
+### [中共国的能源危机有可能阻碍国际经济（二）](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国的能源危机有可能阻碍国际经济（一）](/content/gnews/2/README.md)
+### [中共国的能源危机有可能阻碍国际经济（一）](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [强制疫苗可能给美国军方带来危害](/content/gnews/3/README.md)
+### [强制疫苗可能给美国军方带来危害](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [DC每日热点1023](/content/gnews/4/README.md)
+### [DC每日热点1023](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [大主教宣布：天主教军队可拒绝中共病毒疫苗](/content/gnews/5/README.md)
+### [大主教宣布：天主教军队可拒绝中共病毒疫苗](/content/gnews/8/README.md)
  ` 波士顿五月花农场`
 
-### [美共和党议员致信IOC 重申推迟北京冬奥会的紧急呼吁](/content/gnews/6/README.md)
+### [美共和党议员致信IOC 重申推迟北京冬奥会的紧急呼吁](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年10月22日郭文贵先生直播全文字版](/content/gnews/7/README.md)
+### [2021年10月22日郭文贵先生直播全文字版](/content/gnews/10/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [10/23/21国内经济财经周报：接客马现身西班牙；节后蔬菜价格疯长](/content/gnews/8/README.md)
+### [10/23/21国内经济财经周报：接客马现身西班牙；节后蔬菜价格疯长](/content/gnews/11/README.md)
  ` 秘密翻译组金融团队`
 
-### [GTV新闻访谈简报|2021年10月23日早](/content/gnews/9/README.md)
+### [GTV新闻访谈简报|2021年10月23日早](/content/gnews/12/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|美驻华大使提名人对中共强硬表态](/content/gnews/10/README.md)
+### [有声|美驻华大使提名人对中共强硬表态](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [佛罗里达州总检察阿什利穆迪警告该州“不会容忍”疫苗强制令](/content/gnews/11/README.md)
+### [佛罗里达州总检察阿什利穆迪警告该州“不会容忍”疫苗强制令](/content/gnews/14/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有声|美国商务部出台新规 限制向中俄出售网络安全产品](/content/gnews/12/README.md)
+### [有声|美国商务部出台新规 限制向中俄出售网络安全产品](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [CDC：可能改变中共病毒疫苗“全接种”的定义](/content/gnews/13/README.md)
+### [CDC：可能改变中共病毒疫苗“全接种”的定义](/content/gnews/16/README.md)
  ` HimalayaRussia`
 
-### [有声|中共黑客组织大肆盗取全球手机用户数据](/content/gnews/14/README.md)
+### [有声|中共黑客组织大肆盗取全球手机用户数据](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [有声|中共国社保骗局：只有社保基金，没有社保制度](/content/gnews/15/README.md)
+### [有声|中共国社保骗局：只有社保基金，没有社保制度](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [克里姆林宫称北约的本质是对抗而非和平](/content/gnews/16/README.md)
+### [克里姆林宫称北约的本质是对抗而非和平](/content/gnews/19/README.md)
  ` HimalayaRussia`
 
-### [10/23/2021国际财经快讯：华尔街關注科技巨头下周公布收益；美联储缩表在即](/content/gnews/17/README.md)
+### [10/23/2021国际财经快讯：华尔街關注科技巨头下周公布收益；美联储缩表在即](/content/gnews/20/README.md)
  ` 秘密翻译组金融团队`
 
-### [有声|用心良苦，喜币与黄金挂钩，七哥为喜币铸造坚实的黄金底座](/content/gnews/18/README.md)
+### [有声|用心良苦，喜币与黄金挂钩，七哥为喜币铸造坚实的黄金底座](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [G7国家就数字贸易与数据达成共识](/content/gnews/19/README.md)
+### [G7国家就数字贸易与数据达成共识](/content/gnews/22/README.md)
  ` 日本东京方舟农场`
 
-### [台湾女星梁家榕接种疫苗后出现严重副作用](/content/gnews/20/README.md)
+### [台湾女星梁家榕接种疫苗后出现严重副作用](/content/gnews/23/README.md)
  ` 日本东京方舟农场`
 
-### [前线医生：医院阻止报告疫苗副作用](/content/gnews/21/README.md)
+### [前线医生：医院阻止报告疫苗副作用](/content/gnews/24/README.md)
  ` 日本东京方舟农场`
 
-### [前辉瑞首席科学家：中共病毒疫苗危害女性生殖系统](/content/gnews/22/README.md)
+### [前辉瑞首席科学家：中共病毒疫苗危害女性生殖系统](/content/gnews/25/README.md)
  ` 日本东京方舟农场`
 
-### [拜登承认会保护台湾 美军铲平中共军事基地只需3分钟](/content/gnews/23/README.md)
+### [拜登承认会保护台湾 美军铲平中共军事基地只需3分钟](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [中共病毒导致男性的精子数量锐减](/content/gnews/24/README.md)
+### [中共病毒导致男性的精子数量锐减](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [有声|特鲁多宣布加拿大正式实行联邦疫苗护照](/content/gnews/25/README.md)
+### [有声|特鲁多宣布加拿大正式实行联邦疫苗护照](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [强制新冠疫苗政策下的美国各界](/content/gnews/26/README.md)
+### [强制新冠疫苗政策下的美国各界](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [现代医疗体系本身就像一个巨大的魔窟](/content/gnews/27/README.md)
+### [现代医疗体系本身就像一个巨大的魔窟](/content/gnews/30/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有声|青蒿素实用问答](/content/gnews/28/README.md)
+### [有声|青蒿素实用问答](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [法国利用流感疫苗捆绑推行新冠疫苗第三针](/content/gnews/29/README.md)
+### [法国利用流感疫苗捆绑推行新冠疫苗第三针](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [李云迪嫖娼事件背后的中共舆情维稳动机](/content/gnews/30/README.md)
+### [李云迪嫖娼事件背后的中共舆情维稳动机](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|美英经济学家预警，2008年金融危机或将重现](/content/gnews/31/README.md)
+### [有声|美英经济学家预警，2008年金融危机或将重现](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [有声|美国国家卫生研究院承认资助中共武毒所功能增强性研究](/content/gnews/32/README.md)
+### [有声|美国国家卫生研究院承认资助中共武毒所功能增强性研究](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [10/23/21 香港快讯 教育局将到中小学协助设计国安课程 未来收生不足学校或杀校](/content/gnews/33/README.md)
+### [10/23/21 香港快讯 教育局将到中小学协助设计国安课程 未来收生不足学校或杀校](/content/gnews/36/README.md)
  ` 英喜-粵語組`
 
-### [习近平根本没智慧才使王立科孙力军这些小滥仔折腾十年](/content/gnews/34/README.md)
+### [习近平根本没智慧才使王立科孙力军这些小滥仔折腾十年](/content/gnews/37/README.md)
  ` NewFOC`
 
-### [有声|美国国防部呼吁加大稀土开采力度 反制中共垄断供应链](/content/gnews/35/README.md)
+### [有声|美国国防部呼吁加大稀土开采力度 反制中共垄断供应链](/content/gnews/38/README.md)
  ` MOSREC`
 
-### [江泽民家族十年没干掉习近平,邓小平家族是一帮政治骗子](/content/gnews/36/README.md)
- ` NewFOC`
-
-### [世上竟有如此枯燥乏味之人](/content/gnews/37/README.md)
+### [世上竟有如此枯燥乏味之人](/content/gnews/39/README.md)
  ` 骄子`
 
-### [10/22/2021 文贵直播：任何仍在争夺领土、推行民族主义和独裁的人必将被灭！](/content/gnews/38/README.md)
- ` 秘密翻译组-北美组`
-
-### [财新胡舒立已被习近平报复](/content/gnews/39/README.md)
+### [财新胡舒立已被习近平报复](/content/gnews/40/README.md)
  ` 墨尔本雅典娜农场`
 
-### [林郑月娥董建华和卖台贼基本都是江派都盼习近平出事](/content/gnews/40/README.md)
+### [林郑月娥董建华和卖台贼基本都是江派都盼习近平出事](/content/gnews/41/README.md)
  ` NewFOC`
 
-### [秘翻在线 : 当中共侵略台湾之时，就是中共的丧钟敲起之时](/content/gnews/41/README.md)
+### [秘翻在线 : 当中共侵略台湾之时，就是中共的丧钟敲起之时](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：这个报道中提到的法案恐怕会令日本人吃惊](/content/gnews/42/README.md)
+### [秘翻在线：这个报道中提到的法案恐怕会令日本人吃惊](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国被封杀NBA球员坎特再发视频声援维吾尔人](/content/gnews/43/README.md)
+### [美国被封杀NBA球员坎特再发视频声援维吾尔人](/content/gnews/44/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [展望未来，我此起彼伏](/content/gnews/44/README.md)
+### [展望未来，我此起彼伏](/content/gnews/45/README.md)
  ` 银河勇气之星`
-
-### [澳大利亚人到了为自己而战的时刻](/content/gnews/45/README.md)
- ` 澳喜农场`
 
 ### [国际要闻汇编 10月23日](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

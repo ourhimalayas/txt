@@ -2,30 +2,25 @@
 ---
 
 
-## 强制新冠疫苗政策下的美国各界
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612935/)
+## 拜登承认会保护台湾 美军铲平中共军事基地只需3分钟
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612949/)
 
-俄罗斯莫斯科喀秋莎农场 – 银河/秘密翻译组 – Grace/洛杉矶盘古农场 – 钢蛋儿
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-431.png)
-据相关消息报道，华盛顿州巡逻队于10月19日宣布，根据华盛顿州的强制疫苗政策，有127名工作人员因拒绝接种新冠疫苗而被解雇。
+作者：澳喜农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月21日，美国总统拜登在采访时表示，“一旦中共发动攻击，美国承诺会保护台湾。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-21.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-18.jpeg)
 
-而对于遍及全美的疫苗接种令，10月20日，纽约市最大的警察工会——警察慈善协会表示，将起诉纽约市对警察、消防员和其他市政工作人员实施的疫苗强制令。警察慈善协会认为，接种疫苗与否应由“个人医疗决定”。
-
-早在10月14日，俄克拉荷马州州长凯文·斯蒂特宣布，由于新冠疫苗的强制接种令，他们将把联邦政府告上法庭。斯蒂特认为，政府此举不尊重个人自由，且有违宪法，属越权行为。
-
-对于已知有害的疫苗及强制推行疫苗的政府，希望越来越多正义的力量可以勇敢站出来反抗，以停止这场疫苗灾难。
+早10月17日，郭文贵先生就在直播中爆料，美国的专业人士明确答复，如果共产党直接攻打台湾的话，美军是会出手的，一旦美军出手日本也一定会出手。其中最令人惊讶的是，把共产党所有100%的军事基地铲平，包括空中与陆地的军事设施，美军单独行动只需要3分钟，如果日本单独作战也只需要5分钟。
 
 (本文仅代表作者观点)
 
-参考链接：[纽约警察工会将起诉纽约市疫苗强制令](https://gnews.org/zh-hans/1608786/)
-[127名华盛顿州警员因抵制强制疫苗而被解雇](https://gnews.org/zh-hans/1605463/)
-[俄克拉荷馬州長反對拜登疫苗強制令，稱接種是個人自由](https://gnews.org/zh-hant/1606393/)
+参考链接：[Biden says United States would come to Taiwan’s defense](https://www.reuters.com/world/asia-pacific/biden-says-united-states-would-come-taiwans-defense-2021-10-22/)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-编辑：Kathy（文艺）/圣母院钟声/正义的小新
+总编：Ivy001
+编辑：Ivy001
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
