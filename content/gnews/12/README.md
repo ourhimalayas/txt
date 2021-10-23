@@ -2,25 +2,25 @@
 ---
 
 
-## COVID-19最新情报｜最新研究：新冠疫苗对群体免疫或防止传播没有贡献
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1612353/)
+## 秘翻在线：疫苗生产商为占领市场赚取巨利而相互攻讦
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1612383/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 23/10/2021**
+#### 撰稿：彩虹
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_0.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-2-16.jpg)图片来源：雅虎新闻
+10月15日，《华尔街日报》（The Wall Street Journal）发布的文章显示，在欧洲，借用疫苗导致心肌炎的风险，媒体、政府和疫苗生产商相互利用和攻讦，让世界不明真相的人们进一步成为试验品、牺牲品和利润来源。
 
-《欧洲流行病学杂志》日前发布一篇最新研究发现，**“新冠疫苗对群体免疫或降低病毒传播没有贡献。”**
+报道说，继四个北欧国家上周加强了反对给年轻成年人注射莫德纳（Moderna）疫苗的立场后，美国食品和药物管理局(FDA)再次审视注射莫德纳疫苗的年轻男性中出现这种心肌炎疾病的风险，特别是和那些接受了辉瑞公司(Pfizer Inc.)和（德国）拜恩泰科（BioNTech SE）疫苗的人进行对比。
 
-研究人员对全球 168 个国家及美国 2947 个县的数据进行分析，**得出结论是**，较高的疫苗接种率不仅与较少的 COVID-19 确诊病例无关，而且，没有任何明显证据显示，COVID-19 病例数会随接种率的提高而减少，相反，越是完全疫苗接种率比例高的地方，每 100 万人中，COVID-19 确诊病例数就越高。
+截至目前，监管机构还没有确定该疫苗是否存在较高风险。但指出心肌炎风险是疫苗制造商、监管机构和公共卫生机构最新关注到的疫苗并发症，并且此前阿斯利康公司（AstraZeneca PLC）和强生公司（Johnson & Johnson）推出的疫苗还导致了一种罕见的血液凝固情况。
 
-研究以加利福尼亚州为例，这是美国新冠确诊率最低的地区之一，但同时，疫苗接种率也相对较低。与之形成鲜明对比的就是佛蒙特州，该州 65 岁及以上完全接种两剂疫苗的比例高达 99.9%， 18 至 64 岁的比例亦高达 74% 。但是，最近，佛蒙特州为整个病毒大流行刷新了单日确诊病例的新纪录，该州的各大医院目前挤满了因感染新冠病毒而求诊住院的人。
+根据FDA的决定，随着美国扩大疫苗推广范围，辉瑞公司的疫苗可能成为青少年和儿童的接种的首选。但是，莫德纳首席医疗官保罗伯顿（Paul Burton）在接受采访时说：“我认为人们可以放心，mRNA疫苗的心肌炎风险很低，在不同（公司）产品之间相比（风险）似乎是差不多的。”他说莫德纳公司已经要求北欧国家提供数据。同时，莫德纳首席执行官斯特凡·班赛尔（Stéphane Bancel）接受采访时，称该公司疫苗带来的好处大于坏处。
 
-有分析指，各国政府当局从一段时间之前，就开始停止宣传疫苗可以防止病毒传播，而是改口说，疫苗可以有效降低再次感染病毒之后的重症及死亡的发生率，**该分析认为，“大家似乎忘记，COVID-19 最大的威胁不是高死亡率，而是高传染性。”**
+文章指出，少数注射了辉瑞疫苗和莫德纳疫苗的人被报告出现心肌炎的情况，而这两种疫苗都使用了相同的mRNA技术。对此，为美国疾病控制和预防中心（CDC）提供咨询的健康专家说，两者之间似乎存在着联系。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/14-6.jpg)
+与此同时，FDA的一位官员为该局提供咨询的疫苗专家小组介绍说，根据来自于几个美国健康索赔数据来源的初步信息，表明在注射了第二针mRNA疫苗后，心肌炎和心包炎的发病率在18至25岁的男性中是最高的。并且，FDA的分析也没有发现莫德纳疫苗和辉瑞疫苗在导致心肌炎发病率上有明显差异。
 
-新闻来源｜[研究论文](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC8481107/) / [FEE](https://fee.org/articles/vaccination-rates-not-linked-to-lower-covid-rates-epidemiology-paper-finds)
+**新闻来源**
 
-* * *
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
+[FDA Delays Moderna Covid-19 Vaccine for Adolescents to Review Rare Myocarditis Side Effect](https://www.wsj.com/articles/fda-delays-moderna-covid-19-vaccine-for-adolescents-to-review-rare-myocarditis-side-effect-11634315159)

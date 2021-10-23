@@ -2,9 +2,9 @@
 ---
 
 
-## 芝加哥一半的警察可能会因为强制疫苗而离职
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1612197/)
+## 班农作战室：中共国即将内爆
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1612242/)
 
-10/18/2021 芝加哥一半的警察可能会因为强制疫苗而离职。
+10/19/2021 自由大学商学院院长戴夫·布拉特在班农作战室：中共国即将内爆。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
