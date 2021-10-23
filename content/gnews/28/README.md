@@ -2,36 +2,21 @@
 ---
 
 
-## NBA球员穿“自由西藏”鞋上场，中共国切断了直播
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1611405/)
+## 一落千丈的疫苗有效率
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1611545/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/000_1L4081-4.jpg)网络图片
+#### 翻译：奮鬥
+校对：枳实
+字幕/剪辑：蛮吉
 
-台北（台湾新闻）。据报道，周三（10月20日）晚上，直言不讳的波士顿凯尔特人队中锋埃内斯·坎特穿着一双印有“自由西藏”字样的运动鞋，参加了一场NBA比赛，导致中共国视频流媒体平台腾讯切断了直播。
+本视频生动的总结了以福奇为代表的科学“宗教裁判所”自从中共病毒疫苗推出以来前后不一的对疫苗有效率的保证和描述。某些无良科学家，对数据捏扁揉圆，肆意扭曲，欺骗大众，本视频用简单的按照时间线排列的数据对照，揭穿了他们的谎言。
 
-坎特在麦迪逊广场花园对阵纽约尼克斯队的比赛中穿着这双鞋，他在赛前发了一条给中共国领导人习近平的推特。“亲爱的独裁者习近平和中共国政府，”他写道，“西藏属于藏族人民。”
+发布：枳实
 
-“西藏人民的基本权利和自由是不存在的，”坎特在附带的视频中说，同时他穿着一件印有达赖喇嘛照片的衬衫。“不允许他们自由学习和学习自己的语言和文化，甚至不允许西藏人民自由地进行礼拜。”
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 
-他补充说：“我在这里发出我的声音，反对中共国政府的残暴统治下在西藏发生的事情。”据报道，坎特的行动在中共国社交媒体上引发了民族主义者的强烈反对。
-
-自2019年以来，NBA与中共国的关系一直不稳定，当时休斯顿火箭队时任总经理达里尔·莫雷 (Daryl Morey) 发推文支持香港的抗议活动。尽管莫雷很快删除了他的推文，但要阻止中共国互联网上的民族主义风暴为时已晚，而且该国的国有电视广播公司自那以后，在大多数情况下都令联赛停播。
-
-坎特原籍土耳其，是土耳其总统雷杰普·埃尔多安的主要批评者，曾就各种人权问题发表过意见。根据坎特的说法，这位土耳其领导人一直要求以虚假指控引渡这名篮球运动员，甚至让特工在其他国家追捕他。
-
-新闻链接：
-
-[NBA player wears ‘Free Tibet’ shoes to game, China cuts livestream](https://www.taiwannews.com.tw/en/news/4321792)
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
