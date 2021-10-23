@@ -2,36 +2,28 @@
 ---
 
 
-## 43国在联合国发表声明对中共镇压维吾尔人表示关切
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1611949/)
+## 文贵爆料（10/22）：川普创建自有社交媒体平台系被吴征蛊惑
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1612254/)
 
-作者：澳喜农场 – 在远方
+#### 撰稿：Grace（秘翻 Gnews 原创组）
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-6.jpeg)
+据郭先生在2021年10月22日在直播中爆料，中共双面间谍吴征向中共报告说，“我们已经成功拿下川普总统”。
 
+川普在10月20日宣布，他将在11月推出一个新的社交媒体平台。但这个社交媒体的背后是吴征。吴征把川普的这一决定给中央报告说“我们成功了”。
 
+郭先生在直播中爆料说，川普的基金从吴征开的空头公司，总共拿了不到五百万美元。但是郭先生认为，川普可能会对外说他拿到了八亿美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
+当郭先生说到川普与盖特（Gettr）的关系时， 郭先生直言：“我非常佩服我们的背后投资者，你们要对咱们的投资机构要有信心。”
 
+郭先生解析说，在谈判的过程中，盖特的投资者坚持不给川普一分股权。而且，在过去的一年多来，给川普总统做了演讲的三十几家公司，全是让川普总统付钱的，没有一个是给川普总统付钱的，只有盖特承诺给川普付钱。
 
+“但是付的钱是多少？不能超过一亿美元。这一亿美元是根据川普总统的关注量，最低保一亿美元，但一分股份没有。现在川普总统得到了三亿美元的承诺，还有百分之八十五的股份，”郭先生补充道。
 
-10月23日，美、法、土耳其等43个国家在联合国发表正式声明，对中共国境内维吾尔人和其他穆斯林突厥民族的境况表示关切。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-19.jpg)
-法国常驻联合国代表古拉斯·代·里维耶尔大使说：“中共对新疆穆斯林存在整体性和系统性的迫害，包括侵犯人权、酷刑折磨、强迫劳动、性暴力和强迫把子女分开等。中共还对民众实施大面积监控，群众的宗教、行动、表达自由以及维吾尔文化则受到严厉的限制。”
+因为盖特不能接受这样的谈判条件，所以川普就直接冲向了吴征开的空头公司。但是，郭先生预言，川普和吴征的这一次合作可能会成为一个国际政治事件。
 
-土耳其、利比亚、斯威士兰是首次参与。各国共同呼吁派驻联合国人权事务高级专员前往新疆调查。
+郭先生坚信，川普不加入盖特平台，反而有利于盖特“成为一个绝对的，没有政治原则，一个全社交媒体的平台”，川普总统做的这个选择是错误的，这会对他自己的政治生涯是致命的。
 
-(本文仅代表作者观点)
+新闻来源：[2021年10月22日大直播](https://www.gtv.org/video/id=6172b02683e948708d05c1b9)
 
-参考链接：[43国在联合国发表声明对中共镇压维吾尔人表示关切](https://www.voachinese.com/a/growing-numbers-of-nations-criticize-china-treatment-of-uyghurs-20211021/6281065.html)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编/编辑：木白
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（本文仅代表作者个人观点）

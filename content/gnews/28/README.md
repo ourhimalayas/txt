@@ -2,42 +2,19 @@
 ---
 
 
-## FDA在其文件中承认COVID-19疫苗无法提供免疫力
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1612390/)
+## 中共通过《家庭教育促进法》要求今后须依法带娃
+` 儒为` [轉載自GNews](https://gnews.org/zh-hans/1612431/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：意大利达芬奇农场-儒为
+![](https://assets.gnews.org/wp-content/uploads/2021/10/家庭促进法.jpeg)封面来源：网络图片
+中新网北京2021年10月23日，十三届全国人大常委会第三十一次会议23日表决通过家庭教育促进法。新法将于2022年1月1日起施行。法律明确，未成年人的父母或者其他监护人负责实施家庭教育。国家和社会为家庭教育提供指导、支持和服务。中共这种“两点一线”式教育结构，看似是减轻义务教育阶段孩子的负担，实则是把孩子固化在两个牢笼里，通过学校和家庭对孩子进行洗脑填鸭式教育，免受外在各种信息的影响，尤其是最不可控的来自网络的影响，这样就可以让孩子被洗脑的更加彻底。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/https___d1e00ek4ebabms.cloudfront.net_production_55d687f2-0197-48a0-a2f6-125068e0d578.jpg)
+中共打着减轻义务教育阶段学生作业负担和校外培训负担“双减”要求的幌子，既赢得家长和孩子的认同，同时又实现邪恶的洗脑目的。法律规定，县级以上地方人民政府应当加强监督管理，党政同责又一次彰显。未成年人的父母或者其他监护人应当合理安排未成年人学习、休息、娱乐和体育锻炼的时间，避免加重未成年人学习负担，预防未成年人沉迷网络。中共把家长也纳入监管和洗脑自己孩子的重要环节，家政同责也被提上法律层面，这真的是太邪恶了！
 
+全国人大常委会法工委社会法室主任郭林茂指出，该法改变家庭只是学生课堂的延伸、家长只是学校老师助理的状况，彰显家庭教育的重要地位和作用，将家庭教育从学校教育的附庸地位解放出来，真正实现学校教育和家庭教育相互配合。这是多么无耻的说法，中共让你把自己孩子培养成“爹亲娘亲不如党亲”，中共让你把自己孩子培养成合格的血肉长城和韭菜，还要说这都是为你好、为你的孩子好。明明是强制、明明是恶法，但国内大多数无知的老百姓还是会欣然接受，并且感谢，既可怜又悲哀。
 
+（文章仅代表作者本人观点）
 
-图片来源：Andrew Kelly/Reuters
+新闻来源：🔗[家庭教育促进法表决通过 呼应“双减”要求促进未成年人健康成长](http://www.chinanews.com/gn/2021/10-23/9593255.shtml)
 
-
-#### 编译：小红帽
-
-安东尼·福奇博士[Dr. Anthony Fauci上个月在主流媒体上不知所措](https://www.realclearpolitics.com/video/2021/09/10/fauci_natural_immunity_vs_vaccine_for_covid-19_needs_to_be_discussed_seriously.html)，无法解释为什么从疫苗获得的免疫力优于一般疾病的自然免疫力。
-
-大型制药公司比任何人都更清楚，有效的营销取决于让消费者相信他们有巨大的需求，而唯独你满足这一需求。但是，如果消费者并没有真正的需求，并且他们意识到这点，那么游戏就结束了。如果消费者意识到假中共病毒（COVID-19）疫苗提供假的中共病毒免疫力，他们就不会想接种疫苗。
-
-看看辉瑞（Pfizer）或食品药品监督管理局(FDA）都承认这一点。一切都记录在这份美国食品和药物管理局文件中，题为“疫苗和相关生物产品咨询委员会会议[，2021年9月17日|FDA 简报文件| COMIRNATY（中共病毒疫苗，mRNA）](https://www.fda.gov/media/152176/download)的加强剂许可申请。”文件承认，与没有接种疫苗的安慰剂受试者相比，接种疫苗的研究对象感染中共病毒的人数更多。换句话说，**疫苗增加了你感染中共病毒的机会！**
-
-以下是第22页的确切引述：
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/FDA.jpg)图片来源：https://www.fda.gov/media/152176/download
-
-
-用通俗易懂的话来说，1,000人中约有70人接种辉瑞-生物技术公司的疫苗（BNT162b2，在COMIRNATY之前根据紧急使用授权[EUA]制定的配方）感染了中共病毒，而接种安慰剂的1,000人中只有约51 人感染了中共病毒。因此，**疫苗不仅没有提高免疫力，反而降低了免疫力。疫苗给了疫苗接种者虚假的中共病毒免疫力。**
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Fake COVID Immunity: Sources Show COVID Vaxxed Get COVID More (thefreedomarticles.com)](https://thefreedomarticles.com/official-narrative-fake-covid-vaccine-gives-you-fake-covid-immunity/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*编辑/校对/发稿：意大利达芬奇农场-儒为*
