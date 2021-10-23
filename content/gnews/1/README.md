@@ -2,29 +2,33 @@
 ---
 
 
-## 房产税正式试点，或成压垮房地产的最后一根稻草
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1613477/)
+## 有声|拜登政府因疫苗强制令面临大规模集体诉讼
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1613537/)
 
-#### 撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-27.png)[图片来源](http://www.unsuv.com/news/zhanhui/16-08/26/11071.html)
-10月23日，中共国人代会授权开展房地产税改革试点工作。要点如下：
+配音：香草山美食部 – 玫瑰园
 
-1、征税对象：居住用和非居住用等各类房地产，不包括依法拥有的农村宅基地及其上住宅。土地使用权人、房屋所有权人为房地产税的纳税人。
+10月15日，包括海豹突击队、陆军特种部队和海军、空军军官、联邦雇员和联邦文职承包商在内的24名原告，于美国佛罗里达州中区法院，正式对拜登政府提起诉讼，要求法院发布临时限制令，暂停强制接种疫苗，并最终发布禁令，阻止五角大楼继续执行该行政命令。
 
-2、适用法律：《中华人民共和国房产税暂行条例》、《中华人民共和国城镇土地使用税暂行条例》
+国防部长劳埃德·奥斯汀、国土安全部长亚历杭德罗·马约卡斯和拜登总统均被列为被告。
 
-3、规则制定：国务院制定房地产税试点具体办法，地方政府制定具体实施细则。
+目前上市使用的三种疫苗，均通过流产胎儿干细胞开发而来，仅从该点出发，宗教人士有权获得豁免。但实际上大部分原告仍遭到被解雇、诉诸军事法庭或惩罚的威胁。这一做法严重侵犯了宪法第一修正案赋予公民宗教自由的权利。
 
-4、实施办法：试点期限为五年，试点过程中及时总结试点经验，条件成熟时，及时制定法律。
+此外，新冠疫苗根本没有通过批准，仅得到市场紧急使用，人们有拒绝接种的自由和权利。
 
-中共国房地产市场供远大于求，各大房企均面临极其严重的债务危机，此时推出房产税，将对市场预期产生重大影响，或是压垮房地产市场的最后一根稻草。
+两个月前，两名美军士兵已将国防部官员诉诸法院。随着限期临近，觉醒的美国军人纷纷拿起法律的武器，坚决捍卫自己的权利。
 
-消息来源：
+随着疫苗真相的大力传播，民众逐渐觉醒，政府和联邦卫生机构面临更多的质疑和指控，同时，诉讼也将朝着有利于原告期望的方向推进。
 
-[全国人民代表大会常务委员会关于授权国务院在部分地区开展房地产税改革试点工作的决定](http://www.gov.cn/xinwen/2021-10/23/content_5644480.htm)
+文字版原文：[拜登政府因疫苗强制令面临大规模集体诉讼](https://gnews.org/zh-hans/1602078/)
 
-(文章仅代表作者本人观点，与GNEWS无关)
+音频处理：喜山必胜Maverick
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

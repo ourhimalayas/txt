@@ -2,25 +2,28 @@
 ---
 
 
-## 台湾女星梁家榕接种疫苗后出现严重副作用
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1612990/)
+## 有声|中共黑客组织大肆盗取全球手机用户数据
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1613050/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
 
-据TVBS新闻网10月22日报导，台湾女星梁家榕20日在脸书发布贴文表示，在接种第一剂辉瑞疫苗后出现头痛、腹泻等严重副作用。
 
-据报道，出道多年的女星梁家榕在接种第一剂BNT疫苗后，原本以为50岁的年龄不会产生严重副作用，却没想到反应超乎想象，打完疫苗非常难受！
+10月19日，美国网络安全公司CrowdStrike表示，一个与中共有关联的黑客组织“LightBasin”，至少从2016年开始，潜入世界各地的移动网络，并使用迄今为止发现的最复杂的工具，从运营商那里获取用户的通话记录和短信。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20211022175404-050e9261.jpg)图片来自于网络
+长期以来，电信公司一直是黑客攻击的首要目标。CrowdStrike公司高级副总裁梅尔斯表示，这些攻击与中共有关联，包括使用依赖汉语拼音语音版本的密码学，以及与中共政府先前的攻击类似的技术。这些程序可以不引人注意地检索特定数据。
 
-梁家榕表示，打完BNT疫苗后第1个小时出现疲倦，头胀反应，4个小时之后严重头痛，第2天还有反胃及轻微腹泻。梁家榕说：“手臂疼痛、身体酸痛、轻微发烧，通通中奖！”因此已连续2天躺在床上，且一定得吃止痛药才能缓解头痛。她也询问网友“有人打第一剂辉瑞，跟我一样超难受吗？”
+美国国土安全部分管机构表示，已收到相关报告内容，会持续与美国电信商合作，防止黑客攻击。美国财政部周二强调，美国与其盟国合作打击网络攻击的重要性。
 
-*注：本文仅代表作者观点，与 Gnews无关*
+文字版原文：[中共黑客组织大肆盗取全球手机用户数据](https://gnews.org/zh-hans/1607301/)
 
-*参考链接：*
-
-[梁家榕打BNT躺2天！　醫曝「嚴重副作用」：快去醫院](https://news.tvbs.com.tw/life/1615225)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

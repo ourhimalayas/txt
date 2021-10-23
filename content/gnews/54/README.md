@@ -2,33 +2,56 @@
 ---
 
 
-## 惊爆！美政府技术管制“放水”，华为和中芯国际获上千亿美元出口许可
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1611546/)
+## NIH坐实资助武毒所，福奇国会作证在撒谎
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1611971/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-121.jpg)[图片来源](https://finance.sina.com.cn/china/2018-11-19/doc-ihnyuqhi3229878.shtml)
-财联社10月22日电，美国国会周四听证会透出信息，华为与中芯国际虽被列入美国贸易黑名单，但去年11月至今年4月间，华为和中芯国际获得合计价值上千亿美元的美国技术出口许可。
+**翻译：Lindaxxoo
+编辑：MSGZ/文泓**
 
-据文件显示，同意供应商销货给华为的出口许可有113份，价值610亿美元；此外，还有188份价值近420亿美元的出口许可，对中芯国际放行。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/10.23-1.png)图片来源 Marjorie Greene
 
-数据还显示，10份许可证申请中有超过 9 份被授予中芯国际供应商，而同期向华为发货的申请中有 69% 获得批准。
 
-美国联邦众议院外交事务委员会（Foreign AffairsCommittee）5月从商务部（Commerce Department.获得上述资料。委员会今天表决通过共和党首席议员麦考尔（Michael McCaul）的要求，发布上述许可数据的请求。
+美国时间9月8日，参议员兰德·保罗再次指责安东尼·福奇博士7月份在参议院作证宣誓时在撒谎，当时他声称美国国立卫生研究院（NIH）没有资助在中国武汉进行的有争议的功能增益研究。“令人惊讶的是——福奇又撒谎了”，参议员保罗在推特上说：“关于他的机构资助武汉的新型冠状病毒研究，我的观点是正确的。”
 
-美国商务部强调，涉及华为和中芯国际的许可证申请是根据特朗普政府制定并由拜登政府维护的政策处理的。
+此前，新闻机构《拦截》获得的最新发布文件显示，NIH向美国生态健康联盟提供了310万美元的拨款。其中近60万美元的资金直接流向武汉病毒研究所，用于研究蝙蝠冠状病毒。
 
-对此，华为拒绝置评，而中芯国际没有回应置评请求。
+7月，福奇博士告诉参议院，NIH确实为研究蝙蝠冠状病毒提供了资金，但是这笔钱并没有资助危险的功能增益研究。功能增益是指“以增加致病性、传播性或宿主范围的方式改变一个生物体或疾病”的医学研究。
 
-据悉，大多数授予的许可证并未授权运送敏感物品。在此期间为华为批准的 113 份许可证中，有 80 份是针对非敏感项目，对于中芯国际来说，188 份中有121 份是针对非敏感项目，而许可证通常有效期为四年。
+然而在900页的文件被公布后——罗格斯大学的一位分子生物学家说，（福奇）声称该研究没有被定义为功能增益是“不真实的”。
 
-此次美国商务部被曝出在技术出口管制方面对中共放水，这对于广大爆料革命战友而言，毫不意外。中共对美国的渗透和蓝金黄，加上美国社会对中共的幻想和认知的天真，特别是美国政客的短视和对于自身利益的过度追求，导致美国对于中共长期姑息养奸。当前，全世界都面临即将全面爆发的中共病毒疫苗灾难，以及中共金融核爆，如果美国继续患得患失，纵容中共，其还将付出更大的代价。
+“这些文件清楚地表明，美国国立卫生研究院院长弗朗西斯·柯林斯和美国过敏和传染病研究所（NIAID）主任安东尼·福奇的断言——NIH不支持在武汉病毒研究所进行功能增益研究或潜在的大流行病原体增强研究，是不真实的。”理查德·埃布莱特发推。
 
-信息来源：
+“材料显示，2014年和2019年NIH对美国生态健康联盟的拨款与武汉病毒研究所的分包合同，资助了2014-2017年生效的联邦政策中定义的功能增益研究和2017年至今生效的联邦政策中定义的潜在大流行病原体增强（研究）。”
 
-[重磅消息！美国同意供应商销货给华为的出口许可，价值610亿美元\_中芯国际](https://www.sohu.com/a/496545015_639898?spm=smpc.author.fd-d.13.1634860800032Zw5NOp7&amp;_trans_=000115_3w_a)
+“这些材料证实，拨款支持在武汉构建新型嵌合SARS相关冠状病毒，将一种冠状病毒的刺突蛋白基因与另一种冠状病毒的遗传信息相结合，并证实所产生的病毒可能感染人体细胞。”
 
-(文章仅代表作者本人观点，与GNEWS无关)
+文件还显示，武汉大学动物实验中心对具有人类细胞受体的基因工程小鼠进行了单独研究。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+陈丽娜也是一为分子生物学家，她评估了这些文件和研究蝙蝠冠状病毒的严重性。
+
+“在这份提案中，他们实际上指出，他们知道这项工作的风险有多大”，她说：“他们一直在谈论人们可能会被咬伤，而且他们保留了每个被咬伤的人的记录。”
+
+“生态健康联盟有这些记录吗？如果没有，他们怎么能排除与研究有关的事故呢？”
+
+【备注：陈丽娜（Alina Chan）是一位加拿大分子生物学家，在麻省理工学院和哈佛大学博德研究所从事基因治疗和细胞工程。她主张中共病毒是实验室泄漏。】
+
+10月20日，NIH院长柯林斯和NIAID主任福奇都声称NIH没有资助武汉的功能增益研究。今天我们发现他们撒谎了。
+
+NIAID主任福奇博士在与参议员兰德·保罗谈话时是宣过誓的。他否认NIH资助了武汉的功能增益研究。今天，NIH向美国众议院提供了一份文件，声称NIH确实资助了武汉的功能增益研究。看来福奇和科林斯有麻烦了。
+
+（文中仅代表作者个人观点，与Gnews平台无关）
+
+参考链接：
+1、[BREAKING: NIH Today Corrects False Statements by Directors Collins and Fauci – the NIH Did Fund Gain-of-Function Research in Wuhan – Fauci Lied Under Oath (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/10/breaking-nih-today-corrects-false-statements-directors-collins-fauci-nih-fund-gain-function-research-wuhan/)
+
+2、[‘](https://www.heraldsun.com.au/news/world/fauci-lied-new-documents-on-lab-leak-theory-released/video/571210fba43fdce386bc16291880c204)[Fauci lied’: New documents on lab leak theory released | Herald Sun](https://www.heraldsun.com.au/news/world/fauci-lied-new-documents-on-lab-leak-theory-released/video/571210fba43fdce386bc16291880c204)
+
+3、[They called it a conspiracy theory. But Alina Chan tweeted life into the idea that the virus came from a lab. | MIT Technology Review](https://www.technologyreview.com/2021/06/25/1027140/lab-leak-alina-chan/)
+
+发布i：文武全才
+
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

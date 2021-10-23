@@ -2,28 +2,29 @@
 ---
 
 
-## 有声|特鲁多宣布加拿大正式实行联邦疫苗护照
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1612946/)
+## G7国家就数字贸易与数据达成共识
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1612995/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-10月21日，加拿大总理特鲁多在例行记者会上表示，加拿大将启用新冠疫苗接种的联邦证明系统，最快将于当天在一些地区生效。特鲁多声称，全国13个省份和地区一致同意加入该系统。
+**撰稿：日本东京方舟农场 Kevin wang**
 
-据悉，加拿大疫苗护照会显示持有人的姓名、出生日期、疫苗接种历史、包括接种的时间、次数和剂量、以及一个健康卡的二维码，以便民众在加拿大境内及国际旅行时予以出示。
+据中央社10月23日报道，G7国家的贸易首长在伦敦对管理跨境数据使用与数字贸易的原则达成共识。这项突破将使数千亿美元的国际商业自由化。
 
-此前，加拿大部分地区已经启用了省级疫苗接种证明，作为餐厅、健身房与影院等非必要场所的进入资格证。 如今，特鲁多枉顾加拿大各地反对强制新冠疫苗接种的声音、和对政府践踏人权的抗议浪潮，执意将疫苗护照正式落地，进一步压缩了未接种疫苗人员的活动空间，迫使他们寸步难行。
+报道称，这些原则将涵盖公开的数字市场、跨境数据流动、劳工、消费者与企业的保障措施、数字贸易系统与公平且具包容性的全球管理体系。
 
-正如郭先生所说：黑暗已经降临。
+根据政府对官方数据的研究，光在英国，2019年透过远程完成的贸易总额达3260亿英镑（约新台币12.5兆元），相当于英国所有贸易额的1/4。
 
-文字版原文：[特鲁多宣布加拿大正式实行联邦疫苗护照](https://gnews.org/zh-hans/1610659/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021-10-22t095432z1362658952rc2xeq9k9542819642.jpg)图片来自于网络
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+但由于各国管理客户个资使用的规则不同，可对数字贸易构成严重障碍，对中小型企业而言尤其如此，因为对这些企业而言，遵守的法规繁杂且成本高昂。当天达成的协议是降低这些障碍的第一步，可能促成编撰出关于数字贸易的共同规章手册。
+
+根据WEF研究报告指出，以数据为基础的数字贸易发展，其本质具备四种属性，包含数字商品与服务、以数字方式交付的实体商品与服务、实体商品与服务贸易的数字化育者(digital enablers)，以及新兴的数字技术AI和区块链等。
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[G7國家取得突破性進展 就數位貿易與數據達成共識](https://www.cna.com.tw/news/aopl/202110230168.aspx)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

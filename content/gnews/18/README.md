@@ -2,27 +2,55 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月23日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1613121/)
+## 强制疫苗可能给美国军方带来危害
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1613379/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-413.png)
+[军事危机](https://gnews.org/zh-hans/tag/%e5%86%9b%e4%ba%8b%e5%8d%b1%e6%9c%ba/)[强制疫苗](https://gnews.org/zh-hans/tag/%e5%bc%ba%e5%88%b6%e7%96%ab%e8%8b%97/)
+[![秘密翻译组G-Translators](https://assets.gnews.org/wp-content/uploads/ultimatemember/72/profile_photo-190x190.png?1635001708)](https://gnews.org/zh-hans/author/mimifanyizu/)
+[秘密翻譯組G-Translators](https://gnews.org/zh-hans/author/mimifanyizu/) 22秒前
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-25.png)
-文章仅代表作者本人观点，与Gnews无关
+撰稿：西枫westca
 
-视频参看：2021.10.23早GTV新闻访谈
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unnamed-13.jpg)图片来源：网络截屏
+当前危机委员会日前召开了以 “强制军队疫苗：国家安全灾难为”主题的研讨会。
 
-[https://gtv.org/broadcast/watch/61740028eadeb11f5e79ad55](https://gtv.org/broadcast/watch/61740028eadeb11f5e79ad55)
+由于国防部的COVID-19强制疫苗命令的影响，可能会破坏美国的军事准备状态，一场国家安全灾难迫在眉睫。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+据美国之音报道，截至10月中旬，约有五分之一的美国军人—数十万士兵还没有接种过第一剂疫苗，距离军方规定的第一个疫苗接种日期还不到三周，该日期因军种而异。拒绝接种疫苗的军人将面临严重的后果，包括被阻止部署、解除指挥、不光彩地退伍，甚至被送上军事法庭。9月，有新闻报道，近25%的海豹突击队成员未接种疫苗，并面临停职。而且，在一份未经证实的报告中，22名美国F-22军机飞行员和16名B-52飞机的机组人员因Covid-19强制疫苗而离职，军方对此予以否认。美国军人正在公开谴责这项命令，他们抛下了几十年的职业生涯、应得的权利和退休金而被迫辞职。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+有些人出于宗教原因拒绝接种疫苗；其他人则不相信疫苗是安全的。许多人已经从病毒中恢复过来，并声称具有自然免疫力。有些人曾在1998-2000年期间被军方强制的实验性炭疽疫苗所伤害。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+虽然有宗教和医疗方面的豁免，但却很难获得。对于那些拒绝接种疫苗或寻求豁免的高级指挥官最有可能被降职和其他严重处罚。
+
+同时，在政府自己的自愿性疫苗不良事件报告系统（VAERS）中，遭受严重副作用影响的人的名单继续增加。认为自己受到疫苗伤害的受害者经常被负责调查其索赔的机构和机关忽视、审查，并被指控散布错误信息。目前，欧洲国家为了应对以前健康的年轻男子和男孩接种疫苗后发生心肌炎的报告，正在取消为30岁以下人群的疫苗接种。
+
+当前危机委员会的专家小组成员将讨论这些规定如何对美国军人、军事准备和国家安全构成灾难性的风险。
+
+参与会议的人员包括：
+
+雷吉·利特尔：主席，无国界妇女权利;，停止 Vax 护照联席主席
+弗兰克·加夫：当前中国危机委员会副主席：停止 Vax 护照联席主席
+斯蒂芬·哈特菲尔博士，
+美国陆军传染病医学研究所前NRC高级研究助理项目博士，伦敦政策分析
+中心高级研究员。
+
+主题演讲：疫苗不应被强制
+
+史蒂夫·基尔希，Covid-19早期治疗基金（CETF）创始人，硅谷慈善家
+主题演讲：VAERS和疫苗对美国军人潜在危害
+
+杰克·波索比奇 前美国海军情报官员
+主题演讲：强制疫苗对美国军事准备的影响
+
+罗伯特·马内斯美国空军上校
+主题演讲：空军强制疫苗：当时和现在
+
+查尔斯 “萨姆” 法迪斯，前美国陆军军官，中央情报局前秘密服务官员
+
+主题演讲：强制作为控制的手段
+
+美国陆军中将威廉伊金（雷特）
+主题演讲：在国家安全受到损害时，军队的领导人在哪里？
+
+**新闻来源：[https://www.lifezette.com/2021/10/military-vaccine-mandates-a-national-security-catastrophe/](https://www.lifezette.com/2021/10/military-vaccine-mandates-a-national-security-catastrophe/)**
