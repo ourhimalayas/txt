@@ -2,28 +2,39 @@
 ---
 
 
-## 有声|特鲁多宣布加拿大正式实行联邦疫苗护照
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1612946/)
+## 前线医生：医院阻止报告疫苗副作用
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1612971/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-10月21日，加拿大总理特鲁多在例行记者会上表示，加拿大将启用新冠疫苗接种的联邦证明系统，最快将于当天在一些地区生效。特鲁多声称，全国13个省份和地区一致同意加入该系统。
+**撰稿：日本东京方舟农场 海星**
 
-据悉，加拿大疫苗护照会显示持有人的姓名、出生日期、疫苗接种历史、包括接种的时间、次数和剂量、以及一个健康卡的二维码，以便民众在加拿大境内及国际旅行时予以出示。
+据《每日曝光》10月21日报导，纽约联合纪念医疗中心的医生黛博拉·康拉德（Deborah Conrad）披露，在她提出要将医生们反馈的疫苗不良反应向VAERS报告时，遭到医院的制止。
 
-此前，加拿大部分地区已经启用了省级疫苗接种证明，作为餐厅、健身房与影院等非必要场所的进入资格证。 如今，特鲁多枉顾加拿大各地反对强制新冠疫苗接种的声音、和对政府践踏人权的抗议浪潮，执意将疫苗护照正式落地，进一步压缩了未接种疫苗人员的活动空间，迫使他们寸步难行。
+黛博拉·康拉德医生在纽约联合纪念医疗中心工作时，发现约有90%的入院病人接种了疫苗。她表示，这些病人因各种原因入院，包括但不限于病毒感染，其中多数是年轻人，并有许多人出现异常或意外，而且都是在接种疫苗数月后入院的。
 
-正如郭先生所说：黑暗已经降临。
+康拉德亲自治疗了至少5名接种疫苗后6周内出现深静脉血栓或肺血栓的患者。此外，仅在一天之内，她就有4名患者在疫苗接种后一周内突然患上双侧肺炎。
 
-文字版原文：[特鲁多宣布加拿大正式实行联邦疫苗护照](https://gnews.org/zh-hans/1610659/)
+此外，她还观察到接种疫苗后的人也会出现中风、大出血、自身免疫性肝炎、晕厥、心律失常、癫痫、胆囊炎等症状。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/119183302_whatsubject-1.jpg)图片来自于网络
+
+康拉德表示，她将上述情况如实告诉了医院，并且提出将其他医生反馈的疫苗不良反应一起向VAERS报告时，医院却指示她只能上报她自己的患者情况，不能上报其他医生的患者。
+
+于是，康拉德在四周内向VAERS提交了50份疫苗不良反应的报告，其中包括4例死亡，然而医院的首席质量官却表示，她没有从其他地方听到过这样的报告，也没有从另一家医院听到过类似的报告。这意味着如果康拉德医生不提交这些报告，就没有人会提交。
+
+康拉德的代表律师Aaron Siri表示，医院告诉康拉德，作为临床医生和部门领导要支持医院对疫苗的做法，而向VAERS提交报告显然与医院的政策相悖。
+
+Siri于7月19日代表康拉德给CDC和FDA发了一封信，信中说：“医院没有对医疗服务提供者进行VAERS培训，鼓励他们有效和持续地提交疫苗不良反应的报告，反而积极地阻止医生们这样做，这种现象令人震惊。”
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+
+
+> [Hospital whistleblower says she was not allowed to report adverse reactions to the Covid-19 vaccines suffered by patients](https://theexpose.uk/2021/10/21/hospital-whistleblower-says-she-was-not-allowed-to-report-adverse-reactions-to-the-covid-19-vaccines-suffered-by-patients/)
+
+
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*
