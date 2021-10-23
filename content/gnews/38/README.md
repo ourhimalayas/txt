@@ -2,24 +2,41 @@
 ---
 
 
-## 马利克博士获得中共奖赏 因研究支持新冠病毒自然起源说
-` 小象` [轉載自GNews](https://gnews.org/zh-hans/1611607/)
+## 中共若“全面”入侵台湾，美国的军队将参与保卫
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1611707/)
 
-国家脉动记者娜塔莉在10月20日撰文发表：
- 曾在《柳叶刀》医学杂志的 COVID-19 起源调查委员会任职的 Malik Peiris 博士，因研究肯定了中国共产党关于 COVID-19 自然起源论而获得了中国的“诺贝尔奖”。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-Peiris是一名在香港工作的斯里兰卡病毒学家，他是领导现已解散的《柳叶刀》调查 COVID-19 起源的12位科学家之一。虽然该工作组不再列在该医学期刊的网站上，因与武汉病毒研究所的广泛利益冲突而被迫解散，但存档网页显示 Peiris参与了这项工作。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/120090359_whatsubject.jpg)
 
-Peiris 在工作组任职之后，中国共产党在2021年“未来科学奖”中授予他生命科学奖 ，该奖项被称为是中国的“诺贝尔奖”。中共的奖励包括国家最高科学荣誉以及100万美元的奖金，由百度、高瓴资本和红杉资本中国等多家与中共有关的公司资助。
 
-中共党媒环球时报声称该奖项是因为他的研究“为全球非典疫情的病原体SARS-COV-1的主要发现于2003年，在打击COVID-19和新发传染病的影响。” Peiris与合著者 Kwok-Yung Yuen分享了该奖项。
 
-在接受中国共产党经营的媒体机构的独家采访时，袁说“这不仅是在中国，而且在国际上也是最重要的奖项之一。”
+图片来源：BBC
 
-Peiris的研究受到奖项评审员的称赞，称其在追踪COVID-19起源方面发挥了不可或缺的作用，评审员王晓东指出，“由于他们的贡献，中国科学家能够快速确定COVID-19大流行的原因。” 该研究认为COVID-19是自然形成的，而不是从实验室逃逸出来的。当被问及他们的发现如何影响人们对 COVID-19 病因的理解时，袁解释说，由于他和他的团队在2005年发现马蹄蝠是祖先SARS-CoV-1的天然动物宿主，他们认为SARS- CoV-2“在跳入人类之前也从蝙蝠传播到另一种哺乳动物。”
 
-此外，SARS-CoV-2 在蝙蝠和人类肠道器官中复制得很好，这进一步支持了 SARS-CoV-2 的蝙蝠起源，他说。
+#### 编译：小红帽
 
-\*文章仅代表作者观点\*
- 翻译&编辑： 洛杉矶盘古农场–蓝精灵
- 原文：https://thenationalpulse.com/exclusive/lancet-covid-investigator-wins-china-nobel-prize/
+美国总统乔·拜登（Joe Biden）首次公开承诺，如果中共国对台湾领空日益咄咄逼人的入侵引发一场热战，美国将军事参与保卫台湾。
+
+“是的，我们承诺这样做，”拜登周四在美国有线电视新闻网（CNN）市政厅被问及美国是否会来保卫台湾时说，台湾正面临来自北京当局越来越大的军事和政治压力，要求接受中共国的主权。
+
+尽管法律要求美国向台湾提供自卫手段，但它长期以来一直对是否会进行军事干预以保护该岛采取“战略模糊”政策。
+
+拜登总统的回应现在已经将以前的外交忽悠变成了坚定的承诺，进一步加剧了美国与北京政权之间的摩擦。
+
+拜登总统表示，人们不应该担心华盛顿的军事实力，因为“中共国、俄罗斯和世界其他地区都知道我们是世界历史上最强大的军队。
+
+台湾国防部长邱国正本月表示，台湾与中共国之间的军事紧张局势处于40多年来最严重的水平，并补充说中共国将有能力在2025年发动“全面”入侵。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Joe Biden lays it for China: Attack Taiwan and you have the US to deal with (thenewdaily.com.au)](https://thenewdaily.com.au/news/world/us-news/2021/10/22/biden-warning-to-china/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

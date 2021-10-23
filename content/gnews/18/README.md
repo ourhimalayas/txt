@@ -2,30 +2,38 @@
 ---
 
 
-## 德国国防部长：西方团结对付中共，关系人类安全
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1611846/)
+## 欧洲议会高票通过历史上首份“欧台政治合作报告”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1611948/)
 
-作者：纽约香草山农场 – 007
+作者：纽约香草山农场 007
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-10月21日，在北约防长会议前，德国国防部长卡伦·鲍尔接受媒体采访时表示，欧洲不应脱离美国和北约发展防务能力，欧洲和美国需要更紧密的合作。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-80.jpg)
-她的表态，是提醒一些高级官员，比如法国总统马克龙，警惕中共政权的危险性。自上月澳英美达成三边安全协议后，马克龙以此为由，推销其加大欧盟独立防务能力的论点。卡伦·鲍尔认为，法国要做的是与美国对话，考虑到中共给欧洲带来的挑战，需要西方的全部力量团结起来。
 
-卡伦·鲍尔表示，“北约将不得不越来越关注中共国”，当前最重要的事情是要认识到，“如何与中共打交道的问题，远远超出了国家利益的问题”。她说：“从大局来说，它关系到世界秩序和我们的生活方式 将如何被塑造并可能在未来被改变的问题。”
 
-据媒体报道，中共不遗余力，蓝金黄某些国家政客，分化和离间美国与欧盟的关系。卡伦鲍尔并进一步揭示，中共极权主义，已经威胁到世界的安全、西方的民主和自由。她呼吁，西方国家必须超越国家利益，团结起来对抗中共政权。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
+
+
+
+
+
+10月21日，欧洲议会以580:26，压倒性通过历史上首份 “欧盟-台湾政治关系与合作”报告，呼吁欧盟全面提升与台湾的关系。台湾方面表示，这是民主的一大胜利，是台欧关系新的里程碑。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-20.jpg)
+该报告就欧盟与台湾关系提出了36项具体建议，包括：欧盟强化与台湾的政治及经济关系，鼓励欧盟及会员国与台湾进行包含最高层级的互动，严重关切中共对台湾的军事恫吓，启动双边投资协定谈判准备工作，将欧盟驻台办事处更名为“欧盟驻台湾办事处”，在半导体等产业进行合作等。
+
+多位议员强调：这是历史性的投票，要告诉中共“阻止民主进程的努力是徒劳的”；台湾是华人民主的典范；在中共极权主义政权越来越狂妄的时候，“我们必须采取民主攻势”。 欧洲议会发布声明称，台湾是欧盟的重要合作伙伴和民主盟友，欧盟将保护台湾的民主，中共不能单方面改变台海现状，不能违背台湾公民的意愿。
 
 (本文仅代表作者观点)
 
 参考链接：
-[德防长：北约将不得不越来越关注中国 警告欧洲不要脱离美国和北约](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20211021-%E5%BE%B7%E5%9B%BD%E9%98%B2%E9%95%BF-%E5%8C%97%E7%BA%A6%E5%B0%86%E4%B8%8D%E5%BE%97%E4%B8%8D%E8%B6%8A%E6%9D%A5%E8%B6%8A%E5%85%B3%E6%B3%A8%E4%B8%AD%E5%9B%BD-%E8%AD%A6%E5%91%8A%E6%AC%A7%E6%B4%B2%E4%B8%8D%E8%A6%81%E8%84%B1%E7%A6%BB%E7%BE%8E%E5%9B%BD%E5%92%8C%E5%8C%97%E7%BA%A6)
+1. [欧洲议会高票通过历史上首份“欧台政治合作报告”](https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20211021-%E6%AC%A7%E6%B4%B2%E8%AE%AE%E4%BC%9A%E9%AB%98%E7%A5%A8%E9%80%9A%E8%BF%87%E9%A6%96%E4%BB%BD%E6%B6%89%E5%8F%B0-%E6%94%BF%E6%B2%BB%E5%85%B3%E7%B3%BB%E4%B8%8E%E5%90%88%E4%BD%9C-%E6%8A%A5%E5%91%8A)
+2. [欧洲议会高票通过历史上首份“欧台政治合作报告”](https://www.voachinese.com/a/EU-lawmakers-push-for-closer-ties-with-Taiwan-drawing-Chinese-anger-20211021/6280048.html)
+3. [欧洲议会高票通过历史上首份“欧台政治合作报告”](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211021-%E6%AC%A7%E6%B4%B2%E8%AE%AE%E4%BC%9A-%E6%AC%A7%E5%8F%B0%E5%85%B3%E7%B3%BB%E6%8A%A5%E5%91%8A-%E5%8F%B0%E6%B9%BE%E7%A7%B0%E6%98%AF-%E6%B0%91%E4%B8%BB%E4%B8%80%E5%A4%A7%E8%83%9C%E5%88%A9-%E5%8C%97%E4%BA%AC%E6%8F%90%E5%87%BA-%E4%B8%A5%E6%AD%A3%E4%BA%A4%E6%B6%89)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-总编/编辑：飞虹
-校对/发稿：Fei797
+总编/编辑：雪梨
+校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -33,5 +41,4 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
