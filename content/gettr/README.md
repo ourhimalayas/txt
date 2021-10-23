@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/23/2021 4:01 PM (UTC)`
+
+10/22/2021 Miles Guo: It would be impossible for Bruno Wu to do all these evil things without Yang Lan’s sex seductions who is one of the CCP’s top class agents. We, the people of the New Federal State of China, must give up illusions and rely on our own strength.<br/><br/>10/22/2021 文贵直播：吴征干的坏事都离不开杨澜找钥匙，杨澜是中共最高级的“燕子”之一。我们新中国联邦人不要有幻想，一定要靠自己的实力！<br/><br/>
+![img](https://media.gettr.com/group24/getter/2021/10/23/16/01/f4677b8c-f83f-0c86-6b80-3084b87473b6/out.jpg)
+
+---
+
 `@miles 10/23/2021 3:45 PM (UTC)`
 
 <br/>10月23号：尊敬的战友们好，你们健身了吗？传播C C P病毒真相……和疫苗解药了吗？今天的时间安排问题……七哥不能录制视频了……非常非常的抱歉！
@@ -289,13 +296,6 @@ Tu Youyou said Artemisia annua has many other efficacies besides treating malari
 
 10/17/2021 Mile Guo: Anyone in the CCP system could be the next victim of the CCP, and entrepreneurs who try to cooperate with CCP in exchange for freedom won’t escape the fate of being killed at last<br/><br/>10/17/2021 文贵直播：体制内的任何人都可能是共产党的下一个受害者，试图和共产党合作来换取自由的企业家最终逃不过被杀害的命运<br/>
 ![img](https://media.gettr.com/group9/getter/2021/10/19/04/30/8503dc0e-896e-4580-e36b-d6662e93a8ca/out.jpg)
-
----
-
-`@miles 10/19/2021 1:35 AM (UTC)`
-
-10月18号：我的天哪，这青蒿素比黄金都贵重呀……，我们伟大的战友．Eglise钟声．太棒了。【Sigma-Aldrich 化工试剂公司原料价格    50毫克精炼青蒿素 $1160 (100%) <br/>                                                                100毫克精炼青蒿素 $ 81.8 (98%)<br/>2%原料青蒿素的不同，价格差了14倍。所以那些号称每粒胶囊中含100-450mg 98%青蒿素的保健品，仅就价钱，就不可能是他们声称的<br/><br/>不, 2%的纯度差异, 造成价格28倍的猛增. 这2%的差异是关键!! 治疗药物可能用的是100%纯精炼青蒿素,而保健品用的原料是便宜的98%原料青蒿素.】
-![img](https://media.gettr.com/group45/getter/2021/10/19/01/35/96bd9b24-c110-e568-6f2b-23f5f6782e2a/f63a9a7d55a4abfb62cd0861f9f23063.jpg)
 
 ---
 
