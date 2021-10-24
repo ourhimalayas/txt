@@ -16,6 +16,10 @@
 ---
 ## 頁面 20/36 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [36](/content/README-36.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年7月31日 乱聊上海西郊宾馆 开启CCP死亡第二战场](/content/2019/08/20190802-6690690952476016345.md)
+
+[文字版：7月29日 共产党已经进入倒计时](/content/2019/07/20190730-277183401038624152.md)
+
 [文字版：7月26日 江志成這個小鱉孫 和孫立軍最近在乾啥？](/content/2019/07/20190730-643602008810576333.md)
 
 [文字版：2019年7月25日 请战友们记住7月21号7月23号7月24号7月25号 一切都是刚刚开始](/content/2019/07/20190728-6395183003803536442.md)
@@ -61,10 +65,6 @@
 [文字版2019-06-29郭文貴先生直播【G20有….協議  爆料革命大勝】](/content/2019/06/20190630-3604984578617941887.md)
 
 [文字版：6月26日郭文贵先生直播：谈香港游行的中共黑手，东南西北四方围剿中共正在收网](/content/2019/06/20190627-3104653818463071254.md)
-
-[文字版：6月25日文貴報平安6月25日从香港的成功抗议行动，和近几天共产党的统一宣传口径，让我们看到了过去两年爆料革命所面临的挑战！](/content/2019/06/20190625-920777833882255491.md)
-
-[翻译美国对伊朗实施制裁的行政命令](/content/2019/06/20190625-2187152093709329841.md)
 
 
 ## 頁面 20/36 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [36](/content/README-36.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
