@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/24/2021 9:23 PM (UTC)`
+
+10/24/2021 Miles Guo: DWAC, which merged with President Trump’s TMTG, was belong to Bruno Wu; Behind President Trump’s SPAC deal are the people like Bruno Wu, Samuel Nunberg, Richard Frankel, who are exactly the same guys attempting to repatriate me and framing me by using the Boxun case, the rape case involving Ma Rui, and the PAG case<br/><br/>10/24/2021 文贵直播：并购川普总统TMTG的DWAC来自于吴征，川普总统SPAC上市的背后涉及了吴征、Samuel Nunberg、Richard Frankel等人，他们恰恰正是以前要遣返文贵并用博讯的案子、马蕊强奸案和太平联盟的案子构陷的文贵的人<br/>
+![img](https://media.gettr.com/group14/getter/2021/10/24/21/23/e8e4b9b8-340f-12a5-e18d-2dc8c4e7b9cb/out.jpg)
+
+---
+
 `@miles 10/24/2021 6:05 PM (UTC)`
 
 Digital World Acquisition Group and Yunhong International<br/><br/>https://gnews.org/zh-hans/1615085/<br/><br/>数码世界收购集团（DWAC）与运鸿国际的关系<br/><br/>https://gnews.org/zh-hans/1614850/
@@ -286,13 +293,6 @@ Every day is a Fashion Show, and a the world is your runway. G Fashion’s New C
 
 10/20/2021 Miles Guo: When Jack Ma, Bruno Wu, Wang Jianlin, Peter Ma, and Pan Shiyi were arrested, they were legal representatives, chairmen, or shareholders of the companies listed in the US. Alvin Jiang was arrested twice in 2020. According to U.S. law, failure to announce the chairman of a listed company is under investigation is a criminal offense and the company is liable for stock losses. Any shareholder has the right to sue and will win 100% for sure. Jack Ma is suspected of multiple economic crimes of failure to disclose the changes in the IPO. Pan Shiyi and his wife will surely go to jail<br/><br/>10/20/2021文贵直播： 马云、吴征、王健林、许家印、马明哲、潘石屹等人被抓时都是美国上市公司法人、主席或股东，江志成在2020年两次被抓；美国法律规定，隐瞒上市公司主席被调查属刑事犯罪，该公司要承担股票损失。任何持有这些股票的股民都有权起诉，且100%会赢。马云还涉嫌多次隐瞒上市信息变更的经济犯罪；潘石屹两口子一定会进监狱<br/>
 ![img](https://media.gettr.com/group23/getter/2021/10/21/00/41/0af03106-73de-de1a-9aa6-5cb3da763d56/out.jpg)
-
----
-
-`@miles 10/20/2021 11:32 PM (UTC)`
-
-10/20/2021 Miles Guo: Half of the 20 people accompanying Jack Ma who are supposed to watch over him have been bribed by him. Jack Ma will either be killed by the Jiang family like how Wang Jian was murdered or be sent to a certain European country instead of the US and Japan. If neither is the case, then the shares of Alibaba held by Jack Ma will definitely be sold off after the share price goes up, which means the fraud is successful. But Jack Ma will end up either being killed or sent to jail<br/><br/>10/20/2021 文贵直播: 监视马云的20名随行人员中的一半被他收买，马云要么是被江家像弄死王健一样弄死他；要么会被送往美日之外的欧洲某国。若两种情况均未发生，马云在阿里巴巴的持股定会在股票大涨后被抛售，诈骗成功。但最终他要么被杀，要么被送进监狱。<br/>
-![img](https://media.gettr.com/group14/getter/2021/10/20/23/32/cf0a6ac1-4b9e-e97b-3911-3b953a1b3a5d/out.jpg)
 
 ---
 
