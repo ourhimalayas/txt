@@ -2,44 +2,35 @@
 ---
 
 
-## 美议员致函国际奥委会重申推迟北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1613828/)
+## 视频| 爆料革命不要指望任何人帮我们灭共包括川普
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1613914/)
 
-作者：澳喜农场 – 在远方
+制作：香草山视频部
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-10月21日，美国国会及行政当局中国委员会参议员，马可·鲁比奥, 和众议员克里斯·史密斯，致函国际奥委会重申，推迟第24届北京冬奥会的呼吁。信中敦促国际奥委会，禁止中共国家队参赛，并表示撤销奥委会此前所谓“在所有全球政治问题上保持中立”的决定。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-83.jpg)
-信中说，当中共正在积极进行种族灭绝时，奥委会应当拒绝给与北京举办奥运会的荣誉。因为反对种族灭绝是一个道德决定，而不是一个政治决定，当涉及到道德决定的责任时，国际奥委会没有豁免权。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-11.jpg)
-参考链接：
-[美共和党议员致信IOC，重申推迟北京冬奥会的紧急呼吁](https://www.voachinese.com/a/Rubio-smith-ioc-beijing-winter-olympics-20211022/6282501.html)
 
-（本文仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-总编：Ivy001
-编辑：Kathy文艺
-校对/发稿：为真不破20
+
+我们从爆料革命开始到现在，所有人很多人都把希望寄托在川普总统身上，我从第一天说过，我无数次被骂，我说永远不要指望川普总统，也不要指望美国，更不要指望任何人帮我们灭共，那就是我们过去70年付出的代价，包括台湾同胞，永远不要指望美国保护你让你台湾安全，那是绝对是天真的，我说过伊拉克，我说过所有的国家，这就是永远要相信，我们要靠自己，不要靠第三方，已经证明了，那么川普总统当时要把我遣返，所有他身边的人都是要伤害我的人，我们从来没有在意过，我没有把个人的恩怨置于我们的信仰和理想之上，即使到今天到现在，刚才我给团队说，任何人不要反川普总统，全力支持他，就是因为他还和共产党挠搭两下子，是不是，挠搭两下子，但是从他第一天上台我就告诉过大家，我在马阿拉歌直播，我对所有人说过，川普总统绝不是真心， 也没有这个种，也没有这个胆敢灭共产党， 也没想过，他骨子里面怕习近平、怕普京、怕埃尔多安，这不是我说的，他的战略顾问班农，所有他身边的人都这么说，没有人反对我这个看法过，彼得纳瓦罗也都知道，对吧？
+
+
+
+*发稿：雪梨*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

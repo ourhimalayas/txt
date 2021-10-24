@@ -2,40 +2,45 @@
 ---
 
 
-## 医学专家认为：COVID-19大流行故意制造恐惧进而推广疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1614010/)
+## 班农专访4: 全球供应链断裂，物价暴涨
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1614088/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**简评：**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Drs.-Ardis-and-McCullough-Talk-About-COVID-Driven-Fear-in-the-Medical-Profession-e1635015548401.jpg)
+美国人会在未来几周内看到食品价格暴涨。由于中共病毒和疫苗造成的灾难，全球供应链处在崩溃的边缘。很多供应链上的工作人员因为拒绝接受疫苗而离职，导致物流系统停滞，继而推动了所有成本暴涨。加上能源短缺，民主党的绿色新政继续推高物价。但是最惨的还属中共国老百姓，因为房地产市场的崩溃导致他们的财富被洗劫一空。即将来临的冬天，他们会在食品不足、断水断电中煎熬。
 
-
-
-图片来源：humansarefree.com
+[GTV视频链接](https://gtv.org/video/id=6173a036247c5a3f908eaa0b)
 
 
-#### 编译：小红帽
 
-几位医学专家在10月20日Brighteon.TV的“The Dr. Ardis Show”节目中谈到，中共病毒 (COVID-19)大流行主要是由恐惧驱动的，而制造恐惧是为了推动对中共病毒疫苗的支持。
+**视频字幕：**
 
-布莱恩·阿迪斯（Bryan Ardis）博士认为，中共病毒“并不像你通过媒体被引导的那样危险或可怕。彼得·麦卡洛（Peter McCullough）博士详细阐述了恐惧在推动支持疫苗叙述中的作用。
+主持人：Gristedes and D’Agostino食品主席，约翰-卡特斯马蒂提斯说，美国人会在未来几周内看到食品价格暴涨。本月英国食品和饮料加工业也报出了价格锐涨。你认为这里的根本原因是什么？
 
-由中共病毒驱使的恐惧不仅在公众中蔓延，而且渗透到医学界。很多的医生非常害怕，甚至不敢走出家门或办公室去看诊。麦卡洛就曾谴责许多政府的中共病毒应对措施，称这些措施使民众“处于恐惧、隔离和绝望之中”。
+班农先生：根本原因有两方面。
 
-美国已经失去了“在医疗权威中谁为医疗做出贡献的意识”。疾病控制和预防中心 (CDC) 、食品和药物管理局 (FDA) 和美国国立卫生研究院已经超越了他们的界限，以至于以忽略其他有效治疗方法，只建议了一个标准的中共病毒治疗方法。
+第一，生产成本激增，不仅包括来自中国的供应链，也包括欧美内部的供应链。要知道，现在盛行的是即时存货系统，也就是一种财务技术，让大公司不需要长时间保持大量存货。所有库存都是随用随到。比如牛奶直接从奶源到装罐，然后直接销售。所有的环节都非常精确。
 
-麦卡洛感叹：“我们看到在医疗决策中，信托关系的侵蚀和共同决策被完全放弃。患者对他们在治疗中没有发言权感到愤怒。当他们被拒绝接受适当的药物治疗时，他们当然会感到愤怒。”
+由于中共病毒，尤其是强制疫苗的影响，文贵早就警告我们这一切都将发生。也就是大家看到的物流体系的崩溃。为什么？因为物流体系里很多重要的人员，包括卡车司机、飞行员、仓库人员，还有门店零售，他们很多人都是MAGA支持者，他们不打算接种疫苗。他们并不是反对疫苗，而是受马龙博士（mRNA疫苗技术发明人）启示。他们没有得到想要的信息。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+我认为文贵在这方面是最牛的。但在英文世界里，没人能够说服他们接受疫苗。尤其是自然免疫力（更优秀）。文贵在硫酸羟氯喹和伊维菌素上太对了。还有世界各地的专家（都支持这些老药）。
 
-**参考新闻：**[Drs. Ardis and McCullough talk about COVID-driven fear in the medical profession – Brighteon.TV – NaturalNews.com](https://www.naturalnews.com/2021-10-22-ardis-and-mccullough-covid-fear-medical-profession.html)
+但最根本的是，天然免疫力比疫苗优秀20倍。所以人们拒绝疫苗，造成了供应链的坍塌。然而拜登政府的种种糟糕政策加剧了灾难。所以无论在英国还是美国，人们看到的是成本推动的通货膨胀。物流系统的崩溃推动了所有成本暴涨。
 
-**
-*****发布：小红帽***
+此外还有货运问题。所以我们即将迎来一个苦涩的节假期，空荡的货架、高涨的商品价格和燃料价格，因为民主党的绿色新政会继续推动物价。然而与中国百姓即将遭受的苦难相比，这一切都显得苍白了。这个冬天对中国百姓来说会是绝对残酷的。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+首先，房产市场崩溃，他们会失去自己的积蓄，因为他们投资了房产。中国资产升值的时代结束了，虽然中共尝试着缓慢泄压，但我认为它会迅速崩溃。要知道，随着资产升值的放缓，中国百姓的财富会被洗劫一空，因为他们把太多钱投入了房产，以为房价会不断攀升，但这是不可能的。所以现在是恶性循环，只能变得更遭。
+
+尽管英国和西欧的这个冬天会很遭，但仍然无法与中国的情况相提并论。那里的油价也会失控。更重要的是，就像在美国，人们不得不将更多的可支配收入耗费在天然气和汽油上，因为价格失控，但最起码在美国还能买得到这些东西。在中国，可怜的中国百姓将面临能源短缺、断电断热，只能在家里挨冻。
+[![](https://spark.adobe.com/page/ZoKBTUGw4BNgf/images/a126c348-b436-4f61-b608-5ad22cff9a0f.png?asset_id=97aee942-c3db-42f0-871b-ccab84a9de0f&amp;img_etag=%2210b729b8d584521311d0c78293ebdcfd%22&amp;size=2560)](https://spark.adobe.com/page/ZoKBTUGw4BNgf/images/a126c348-b436-4f61-b608-5ad22cff9a0f.png?asset_id=97aee942-c3db-42f0-871b-ccab84a9de0f&amp;img_etag=%2210b729b8d584521311d0c78293ebdcfd%22&amp;size=1024)
+*字幕/听写：云岭 | 翻译：Wade | PR：Roberts |简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://spark.adobe.com/page/ZoKBTUGw4BNgf/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/ZoKBTUGw4BNgf/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
