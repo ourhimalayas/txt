@@ -2,21 +2,9 @@
 ---
 
 
-## 文贵爆料10/24 吴征等中共情报势力正给川普新媒体设置刑事犯罪陷阱
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1614820/)
+## 数码世界收购集团（DWAC）与运鸿国际的关系
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1614850/)
 
-撰稿：回响【秘翻原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-24-at-11.20.23-AM.png)图片来源：GTV、GETTR
-爆料革命发起人、新中国联邦创始人郭文贵先生在10月24日大直播中开篇就爆出会对世界造成重大冲击波的大事件：共产党特务吴征等通过推出川普新媒体TRUTH Social对美国前总统进行构陷的惊天阴谋！
-
-郭先生用事实和数字揭示了美国上市公司SPAC从 9月2号上市至今一系列异常数字背后的诡异行为，并用详实的调查资料展示了背后11家投资机构的来龙去脉：除了3家是美国、加拿大的基金公司，其余全部是中共控制的！！！
-
-郭先生郑重告知公众：SPAC运作TRUTH Social背后整个行动目的，是对盖特极度恐惧并欲除之而后快的中国共产党。中共相关情报机构阻止川普进入盖特并破坏盖特，主要利用内幕交易和操纵股市，包括制造不实数据和文件等违法欺诈手段，使得美国前总统川普先生或许面临刑事犯罪的诉讼，导致川普总统面临重大政治风险，甚至其整个家族陷入灾难。而且中共意图让爆料革命、新中国联邦去攻击川普。
-
-同时首次重磅爆出：幕后协调整个中共情报相关机构进行操作的中共间谍吴征（美国身份）2019年就被美国FBI刑事调查。
-
-最后郭文贵先生强调，爆出整个事件的目的， 是因为爆料革命最在乎的就是灭共事业！是要让世界知道共产党对盖特的恐惧！同时要让世界知道共产党的邪恶及其在DWAC(Digital World Acquisition Crop)投资行动的真正目的。
-
-【视频链接】https://gtv.org/broadcast/watch/617551cfeadeb11f5e79f5d6
-
-校对发布：Shifter
+#### 秘密翻译组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-115.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/4-64.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/6-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/7-17.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/8-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/10-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/12-14.jpg)
+[全文](https://assets.gnews.org/wp-content/uploads/2021/10/Digital-World-Acquisition-Group-Yunhong-.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/10/Digital-World-Acquisition-Group-Yunhong-.pdf)

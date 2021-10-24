@@ -2,17 +2,29 @@
 ---
 
 
-## 秘翻在线:芝加哥比萨店因人力不足被迫关闭
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1614380/)
+## 中共军媒煽动民众抓美国间谍
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1614426/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/AZ-4.jpg)
-图片:网路
+作者：澳喜农场- 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共军媒《解放军报》17日在微博发帖，煽动墙内老百姓开展所谓反间防谍“人民战争”， 号召民众学习‘朝阳大妈’和’捞铜渔民’而努力抓间谍。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-64.png)
+所谓朝阳大妈指的是，中共政府最基层组织居委会中的中老年妇女，她们兼任政府在居民日常生活中的耳目；而捞铜渔民则是指，在南中国海尾随美军考察船，捞取考察船放出的水文探测潜水器，然后上交中共的渔民。
 
-根据《零对冲》引述《内幕》杂志的最新报导，一家总部位于芝加哥的比萨店因为人力短缺而被迫关闭。10月17日，位于西城的”煤火”披萨店( Coalfire Pizza)老板戴夫·博诺米(Dave Bonomi)在Twitter上写道：”只是因为没有足够的人力，我们今天停止营业。在近15年的比萨店营业经验，这个现象从未发生过。”他说。戴夫指出，中共病毒大流行之后的人力短缺难以想像。
+由于美国中情局新成立了中共国任务中心，这让共产党感到高度紧张，而中共一贯善于使用群众运动的方式，来排查、监督和打击异议人士，或者被中共定义为敌对分子的人，却美其名曰“人民战争”。美国有线电视新闻网认为，中共新一轮反间防谍宣传战有可能加剧政治猎巫行动，任何被认为不爱中共国的人，都有被举报为“间谍”的风险。
 
-“煤火”披萨店是美国缺乏人力的一个缩影，一些独立企业未来会发现人力短缺的严重性，即便中共病毒大流行之后，恢复正常营业的餐馆和企业仍然不得不因此关门关门。
+校对/发稿：海阔天空1
 
-“打过疫苗的人基本上会有很大的健康问题，服务生奇货可居，人工相对昂贵难寻，将来去餐厅吃饭是十分昂贵的。”文贵先生在直播中曾经提及，人类即将面临的是中共病毒疫苗之后人力短缺、通货膨胀及经济萎缩的次生灾难，如何预作准备及防患未然，是人类面临生存的一大考验。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1.jpeg)
 
-消息来源:[Chicago Pizzeria Forced To Close Due To Labor Shortage](http://撰稿:牛小妹)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

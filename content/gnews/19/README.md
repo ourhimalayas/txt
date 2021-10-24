@@ -2,23 +2,25 @@
 ---
 
 
-## 拜登承诺协防台湾，引中共强硬回应
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1614811/)
+## 美联储称强制疫苗加剧供应链危机
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1614839/)
 
-作者：香草山农场 – 遍地开花
+作者：美东香草山农场 – 文真
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国总统拜登公开表示，美国对协助台湾防卫有承诺，随即引发中共国的强烈回应
+美联储最新一份褐皮书报告称，疫苗强制令正在损害就业，影响供应链危机，并推高物价。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-19.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-36.jpeg)
 
-拜登10月21日在巴尔的摩的一个媒体活动时表示，如果台湾受到中共国攻击，美国将施以援手。这次拜登首次公开表示军事手段干涉，引发外界强烈关注。
+总统拜登在九月份要求全美企业，凡是规模在百人以上的，都要让员工接种疫苗或提交和核酸报告。因总统行政令，很多公司强迫员工接种疫苗，导致不愿接受强制疫苗政策的员工被迫辞职，或者罢工。西南航空公司员工大规模罢工，令一千多航班取消。芝加哥和巴尔的摩等城市的警察和消防员，很大一部分人可能会因为拒绝接种而失去工作。
 
-中共忘图裹挟14亿老百姓，既有战狼汪文斌狂妄警告：任何人都不要站到中共的对立面。白宫发言人在本周五的新闻发布会上再次强调，美国的政策没有改变，美国将继续协助台湾保持其足够的自卫能力。郭文贵先生也在直播中爆料，美国的专业人士明确答复，如果共产党直接攻打台湾的话，美军是会出手的。
+美联储的褐皮书称，儿童保育问题和强制疫苗是造成企业员工离职的主要原因。因疫苗强制令解雇员工的公司和机构，面临人手的问题。由于缺少仓库工人和卡车司机，使货物滞留在港口，无法及时运输到各地，也导致港口船舶因不能卸载，而无法返航。硬件设备和医疗用品也出现紧缺。鱼肉禽蛋的零售价格已经被2020年上涨10%。商店货架出现过往少有的空架状况。
+
+美联储主席鲍威尔似乎表示了更加强烈的缩表意愿。美联储也可能加快升息的步伐，下一次会议决定加息的几率已经超过八成。
 
 (本文仅代表作者观点)
 
-参考链接: [拜登又承诺“保卫台湾”，白宫再度“灭火”，中方回应了！](https://www.163.com/dy/article/GMU8TFEI05508U92.html)
-[白宫重申不改变对台政策 专家认为拜登口误](https://www.dw.com/zh/白宫重申不改变对台政策-专家认为拜登口误/a-59604511)
+参考链接：[Federal Reserve: Vaccine Mandates Hurting Employment, Exasperating Supply Chain Crisis](https://www.breitbart.com/economy/2021/10/21/federal-reserve-vaccine-mandates-hurting-employment-exasperating-supply-chain-crisis/)
+[Powell Says Worsening Supply Side Constraints Raise Inflation Risks](https://www.breitbart.com/economy/2021/10/22/powell-inflation-risks/)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 

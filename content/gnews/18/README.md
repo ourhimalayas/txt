@@ -2,34 +2,19 @@
 ---
 
 
-## 美国CDC可能更改疫苗“完全接种”的定义
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1614816/)
+## 文贵视角:川普总统陷入极度危机之中
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1614840/)
 
-作者：俄罗斯莫斯科喀秋莎农场 – 仰望七星
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-由于“加强针”的出现，所谓“完全接种”的定义可能被更改。拜登政府官员本周五敦促符合条件的美国人接种中共病毒疫苗的加强针。疾病控制和预防中心负责人表示，可能会更新其关于“全面疫苗接种”的定义。
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/AZ-5.jpg)
+郭文贵先生在10月24日的直播中爆料，吴征与杨澜等中共相关特务肆无忌惮，掩藏吴征早已在2019年就处于被FBI调查刑事犯罪之中，利用11个基金，从事内线交易，给予川普总统3亿美金及相当大的股份，蛊惑川普总统卖掉自己的IP，与有中共背景的公司合作成立媒体公司。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-14.jpeg)
+**新中国联邦永不攻击川普总统**
 
-目前，在美国，如果打完两剂辉瑞或两针莫德纳疫苗，又或打了一剂强生疫苗，都被视为完全接种。疾病预防控制中心主任罗谢尔·瓦伦斯基说：目前还没有改变相关定义，但他也表示，将继续研究，并可能需要在未来更新‘完全接种’的定义。”她同时还鼓励民众打第三剂加强针。
+“共产党最希望的就是新中国联邦人攻击川普总统，我们绝对不能攻击川普总统。”郭文贵先生说。川普目前面临很大的危机，首先是吴征等人利用空壳公司，上下其手百般阻挠川普加入盖特，使得川普失去可能爆发的政治影响力；接下来，由于拥有绝对的股权，川普很可能因为吴征等共产党的操作，陷入内线、内幕交易、操纵股市、欺骗美国股民、甚至是伪造文件等罪名。共产党同时会制造无数个诉讼案件，让川普疲于奔命，导致川普失去2022年的议员资格选举。除此之外，川普甚至可能背上刑事罪，不但一分钱拿不到，全家族都可能身陷囹圄。
 
-可见，不久的将来，3针也将不够用了，疫苗护照也不能用了，需要第4甚至第5针，才能达到所谓“完全接种”的状态。多少人将因此失去生命。文贵先生多次提醒，疫苗灾难还没有真正开始，留给人类的时间真的不多了。
+**只有真相，才能让川普认清现实**
 
-(本文仅代表作者观点)
+“接下来，被共产党炒作的公司股价下周预计将大跌，然后或许有人会在炒作，股价再上来一些。”文贵先生预测。川普很快会发现自己手上的钱是烫手山芋，因为所有买股票的人，一旦卖了股票，发现是因为中共操纵股票而赔钱，必定提起诉讼，而且这些钱很多是川普的MAGA(MAKE AMERICA GREAT AGAIN)的死忠支持者。
 
-参考链接：[CDC：可能改变中共病毒疫苗“全接种”的定义](https://gnews.org/zh-hans/1613057/)
-[CDC: Definition of Full Vaccination for COVID-19 May Change](Definition%20of%20Full%20Vaccination%20for%20COVID-19%20May%20Change)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编：山本不惑
-编辑：正义的小新
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共在不到一百小时之内骗走美国人数十亿美金，用的是虚假文件、欺诈的手段，这是炸裂开的刑事犯罪！川普认清事实之后，才能深刻体会中共的经济及法律超限战是如何的低劣与邪恶。”真相，才是帮助川普的最好方法!”文贵先生说。

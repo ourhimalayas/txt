@@ -2,10 +2,31 @@
 ---
 
 
-## DWAC的11个合格机构买家或机构认可投资者
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1614568/)
+## 香港马拉松发生多人受伤，赛前强制选手接种疫苗
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1614763/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-130-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/2-113-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0003-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0004-1-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0005-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0006-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0007-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0008-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0009-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0010-scaled.jpg)
+**撰稿：日本东京方舟农场 海星**
 
+10月24日，在香港举行的马拉松比赛中发生多人受伤，在赛前主办方要求所有选手必须完成接种两剂中共病毒疫苗方可参赛。
 
-[全文](https://assets.gnews.org/wp-content/uploads/2021/10/11-investors-to-Digital-World-.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/10/11-investors-to-Digital-World-.pdf)
+据《中时新闻网》报导，香港医管局表示，截至今早11点，马拉松比赛中共有10名选手身体不适送医，伤者9男1女，年龄32至87岁，其中5人病情严重、2人稳定，2人已出院，另有1人生命垂危，正在律敦治医院治疗中。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/id13321499-2110212208191538-600x400-1.jpg)图片来自于网络
+
+根据资料，这场比赛中有445名选手受伤，原因包括发烧，扭伤及抽筋等。
+
+另据《大纪元》报导，所有参赛选手必须完成两剂疫苗接种，并且要于赛前72小时完成病毒检测，结果阴性才可出赛。在接受病毒检测后，亦要戴上识别手带，直至比赛结束后才可取下。
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[香港馬拉松今開跑 400人受傷 10人送醫1命危](https://www.chinatimes.com/realtimenews/20211024001861-260409?chdtv)
+
+[渣馬至少23人不適送院　其中1人危殆　有跑手終點前暈倒](https://hk.on.cc/hk/bkn/cnt/news/20211024/bkn-20211024104127788-1024_00822_001.html)
+
+[香港渣马参赛者昨起领取选手包](https://www.epochtimes.com/gb/21/10/22/n13321493.htm)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*
