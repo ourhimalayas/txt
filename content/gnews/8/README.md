@@ -2,46 +2,34 @@
 ---
 
 
-## 郭文贵直播摘要和音频2021.10.22
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1614683/)
+## 美国CDC可能更改疫苗“完全接种”的定义
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1614816/)
 
-摘要撰稿人：文俊
+作者：俄罗斯莫斯科喀秋莎农场 – 仰望七星
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+由于“加强针”的出现，所谓“完全接种”的定义可能被更改。拜登政府官员本周五敦促符合条件的美国人接种中共病毒疫苗的加强针。疾病控制和预防中心负责人表示，可能会更新其关于“全面疫苗接种”的定义。
 
-音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-14.jpeg)
 
+目前，在美国，如果打完两剂辉瑞或两针莫德纳疫苗，又或打了一剂强生疫苗，都被视为完全接种。疾病预防控制中心主任罗谢尔·瓦伦斯基说：目前还没有改变相关定义，但他也表示，将继续研究，并可能需要在未来更新‘完全接种’的定义。”她同时还鼓励民众打第三剂加强针。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-24-at-10.08.39-AM.png)
+可见，不久的将来，3针也将不够用了，疫苗护照也不能用了，需要第4甚至第5针，才能达到所谓“完全接种”的状态。多少人将因此失去生命。文贵先生多次提醒，疫苗灾难还没有真正开始，留给人类的时间真的不多了。
 
+(本文仅代表作者观点)
 
-### 视频：
+参考链接：[CDC：可能改变中共病毒疫苗“全接种”的定义](https://gnews.org/zh-hans/1613057/)
+[CDC: Definition of Full Vaccination for COVID-19 May Change](Definition%20of%20Full%20Vaccination%20for%20COVID-19%20May%20Change)
 
-[视频链接：](https://gtv.org/video/id=6172b02683e948708d05c1b9)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-### 音频：
+总编：山本不惑
+编辑：正义的小新
+校正/发稿：谐趣园
 
-### 摘要：
-
-1. 东海 台湾东部 中共潜水艇冒头了
-2. 马云不在船上，赖在西班牙不回香港
-3. 川普总统 选择了中共吴征忽悠钓鱼的社交媒体合作，是最大的失误
-4. 台湾同胞“永远不要指望美国保护你”
-5. 杨澜被二部定义为“最高级的燕子”
-6. 调查孙力军 马云 马化腾 马明哲第一个供出他们的就是吴征
-7. 王沪宁现在是全党最恨的人，主张回到文化大革命，习绝对支持
-8. 六中全会决定20大走向，六中全会有没有动作，这几天很重要
-9. 习继承人，一定是习说的算
-10. 习从未跳出家族矛盾，他对邓的恨是骨子里的，会否定邓的一切，一定会闭关锁国
-11. 吴征带着王立科在伦敦就是坐着大卫的车
-12. 香港没有广东帮，香港主语是上海话
-13. 六中全会到20大之前 习是最危险的时候
-14. 人类还搞 争土地 搞独裁 一定会被消灭
-15. 新能源材料，生物科技，避免第三次极限战争，地球已经不是安全之地，外太空技术，这才是新型国家的未来—新中国联邦
-16. 华盛顿是共济会的
-17. 社交媒体未来是金融工具和信仰工具
-18. 某会（共济会）绝密文件2030年：低碳产业占全球4分之一，太空移民的开始，生育不限男女，拥有共同的信仰，金融统一（不会超过十家金融机构）
-19. 星链计划：下一个计划太空链
-20. 盖特pay不会超过明年5月份上线，H Pay下个月就可以上
-21. 盖特实现三个1/7目标：（一）全世界1/7的人，10亿人使用 gettr （二）全世界1/7高净值客户使用 gettr （三）1/7最有价值的信息来自gettr 。
-22. 青蒿素绝对是病毒解药，可以解疫苗的毒
-23. 不要攻击川普总统，咱们强大了，川普总统2-3次敲我们的门
-24. 文贵先生马上开会，主要是了解马云资产变化和银行战友掌握了盗国贼转帐信息
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

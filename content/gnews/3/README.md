@@ -2,34 +2,25 @@
 ---
 
 
-## 拜登承诺协防台湾，引中共强硬回应
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1614811/)
+## 土耳其开始从美国采购F-16战机
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1614852/)
 
-作者：香草山农场 – 遍地开花
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国总统拜登公开表示，美国对协助台湾防卫有承诺，随即引发中共国的强烈回应
+俄罗斯莫斯科喀秋莎农场 GVBG伊万
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-19.jpeg)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/F-2.jpg)currentnewnews.com
+美东时间10月24日消息，土耳其国防部长胡卢西∙阿卡尔表示，“土耳其已开始从美国购买F-16战斗机。”
 
-拜登10月21日在巴尔的摩的一个媒体活动时表示，如果台湾受到中共国攻击，美国将施以援手。这次拜登首次公开表示军事手段干涉，引发外界强烈关注。
+阿卡尔称，“采购F-16的技术工作已经开始，我们正在跟进。土耳其国防力量的加强也意味着北约的加强”。
 
-中共忘图裹挟14亿老百姓，既有战狼汪文斌狂妄警告：任何人都不要站到中共的对立面。白宫发言人在本周五的新闻发布会上再次强调，美国的政策没有改变，美国将继续协助台湾保持其足够的自卫能力。郭文贵先生也在直播中爆料，美国的专业人士明确答复，如果共产党直接攻打台湾的话，美军是会出手的。
+安卡拉最初向美国订购了100多架新一代战斗机F-35，但在土耳其采购俄罗斯S-400“凯旋”防空系统后，华盛顿拒绝出售飞机。该国以25亿美元收购了该系统的四个部门，并于2017年12月达成协议。
 
-(本文仅代表作者观点)
+美国多次对土耳其与俄罗斯的交易表示不满。2020年12月，华盛顿对土耳其国防工业局及其负责人伊斯梅尔·德米尔购买S-400实施制裁。
 
-参考链接: [拜登又承诺“保卫台湾”，白宫再度“灭火”，中方回应了！](https://www.163.com/dy/article/GMU8TFEI05508U92.html)
-[白宫重申不改变对台政策 专家认为拜登口误](https://www.dw.com/zh/白宫重申不改变对台政策-专家认为拜登口误/a-59604511)
+2021年10月中旬，土耳其总统埃尔多安表示，华盛顿建议土耳其购买F-16战斗机作为对F-35采购计划投资的补偿。据他说，土耳其为美国拒绝交付的飞机支付了14亿美元，提议用这笔钱从美国购买新的F-16，并对土耳其现有的F-16进行现代化改造。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+（文章仅代表作者个人观点）
 
-总编：Ivy001
-编辑：山本不惑
-校正/发稿：谐趣园
+参考链接：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://www.rbc.ru/rbcfreenews/6173e0a09a7947059d2fcf50](https://www.rbc.ru/rbcfreenews/6173e0a09a7947059d2fcf50)

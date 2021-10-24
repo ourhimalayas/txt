@@ -2,31 +2,36 @@
 ---
 
 
-## 香港马拉松发生多人受伤，赛前强制选手接种疫苗
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1614763/)
+## 美联储称强制疫苗加剧供应链危机
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1614839/)
 
-**撰稿：日本东京方舟农场 海星**
+作者：美东香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美联储最新一份褐皮书报告称，疫苗强制令正在损害就业，影响供应链危机，并推高物价。
 
-10月24日，在香港举行的马拉松比赛中发生多人受伤，在赛前主办方要求所有选手必须完成接种两剂中共病毒疫苗方可参赛。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-36.jpeg)
 
-据《中时新闻网》报导，香港医管局表示，截至今早11点，马拉松比赛中共有10名选手身体不适送医，伤者9男1女，年龄32至87岁，其中5人病情严重、2人稳定，2人已出院，另有1人生命垂危，正在律敦治医院治疗中。
+总统拜登在九月份要求全美企业，凡是规模在百人以上的，都要让员工接种疫苗或提交和核酸报告。因总统行政令，很多公司强迫员工接种疫苗，导致不愿接受强制疫苗政策的员工被迫辞职，或者罢工。西南航空公司员工大规模罢工，令一千多航班取消。芝加哥和巴尔的摩等城市的警察和消防员，很大一部分人可能会因为拒绝接种而失去工作。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/id13321499-2110212208191538-600x400-1.jpg)图片来自于网络
+美联储的褐皮书称，儿童保育问题和强制疫苗是造成企业员工离职的主要原因。因疫苗强制令解雇员工的公司和机构，面临人手的问题。由于缺少仓库工人和卡车司机，使货物滞留在港口，无法及时运输到各地，也导致港口船舶因不能卸载，而无法返航。硬件设备和医疗用品也出现紧缺。鱼肉禽蛋的零售价格已经被2020年上涨10%。商店货架出现过往少有的空架状况。
 
-根据资料，这场比赛中有445名选手受伤，原因包括发烧，扭伤及抽筋等。
+美联储主席鲍威尔似乎表示了更加强烈的缩表意愿。美联储也可能加快升息的步伐，下一次会议决定加息的几率已经超过八成。
 
-另据《大纪元》报导，所有参赛选手必须完成两剂疫苗接种，并且要于赛前72小时完成病毒检测，结果阴性才可出赛。在接受病毒检测后，亦要戴上识别手带，直至比赛结束后才可取下。
+(本文仅代表作者观点)
 
-*注：本文仅代表作者观点，与 Gnews无关*
+参考链接：[Federal Reserve: Vaccine Mandates Hurting Employment, Exasperating Supply Chain Crisis](https://www.breitbart.com/economy/2021/10/21/federal-reserve-vaccine-mandates-hurting-employment-exasperating-supply-chain-crisis/)
+[Powell Says Worsening Supply Side Constraints Raise Inflation Risks](https://www.breitbart.com/economy/2021/10/22/powell-inflation-risks/)
 
-*参考链接：*
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-[香港馬拉松今開跑 400人受傷 10人送醫1命危](https://www.chinatimes.com/realtimenews/20211024001861-260409?chdtv)
+总编：Ivy001
+编辑：山本不惑
+校正/发稿：谐趣园
 
-[渣馬至少23人不適送院　其中1人危殆　有跑手終點前暈倒](https://hk.on.cc/hk/bkn/cnt/news/20211024/bkn-20211024104127788-1024_00822_001.html)
-
-[香港渣马参赛者昨起领取选手包](https://www.epochtimes.com/gb/21/10/22/n13321493.htm)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
