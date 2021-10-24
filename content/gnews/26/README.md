@@ -2,57 +2,49 @@
 ---
 
 
-## 恒大地产大王许家印到底是只剩下半条命还是魂飞魄散？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1613713/)
+## 澳大利亚将在11月8日全国推广第三针疫苗
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1613757/)
 
-####  作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-17.png)[图片来源](https://www.asahi.com/articles/photo/AS20211021002089.html)
-**恒大集团危机的消息以令人震惊的速度传遍全球。不熟悉中共国“白手套”的人一直在问，“如此繁荣的巨头公司为何陷入危机？”著名灭共领袖郭文贵先生警告说：如果恒大爆雷，全世界金融市场将崩塌。**
+翻译/撰稿：Jenny
+![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_1773.jpg)网络截图
+据《Sky News》快讯，关于COVID-19疫苗的加强针，澳大利亚预计从11月8日开始进行强化针的注射，老年护理机构的居民和工作人员将成为首批接受第三针疫苗注射的人群。
 
-据朝日新闻23日《[追寻震惊世界的35万亿日元负债的中国地产大王的半个人生](https://www.asahi.com/articles/ASPBM5T15PBCUHBI01K.html)》一文消息称： 恒大集团高层实况如“中国版雷曼冲击？”这会令人担忧对全球经济的衰退造成的威胁。消息认为，在“9月中旬，中国房地产巨头恒大集团遭遇金融危机的消息以令人震惊的头条传遍全球。”[**阅读更多**](https://jp.wsj.com/articles/chinese-developer-defaults-pile-up-as-evergrande-contagion-spreads-11634842810)
+COVID-19疫苗的加强针将在大约两周后在澳大利亚全国推广。  在收到辉瑞公司的申请后，治疗用品管理局TAG（Therapeutic Goods Administration）将于周一开会审议国家的加强剂计划，澳大利亚免疫技术咨询小组也是审批过程的一部分。
 
-这是创始人许家印和中国恒大集团真实形象的写照：中共国恒大负债总债务约为35万亿日元。（实际上连带效应牵涉到“几十年来的几十万亿”）[**阅读更多**](https://www.asahi.com/articles/ASPBQ7DZSPBQULFA02W.html)
+阿斯利康和Moderna还没有提交实施疫苗增效剂的申请。
 
-日本开始意识到，“如果负债累累的恒大破产，可能会发展成金融不稳定，导致2008年世界一团糟。这些担忧加剧了，世界已经做好了准备。”
+“如果TGA和ATAGI对加强剂提供正式批准，我们预计将在11月8日之前准备好开始我们的加强剂计划，”副首席医疗官Michael Kidd教授周六说。”甚至可能会更早一点开始，但让我们等待，看看未来几天会发生什么。
 
-另据报道：截至22日，陷入危机的中国房地产巨头恒大继续在走钢丝，刚刚获得23天的宽限期支付了以美元计价公司债券的利息后。[避免了立即违约](https://www.asahi.com/articles/ASPBQ6QNVPBQULFA00M.html)，但29日又一期公司债的宽限期再次临近。[**阅读更多**](https://www.asahi.com/articles/ASPBQ3J8ZPBQULFA007.html)
+[而事实是我们澳大利亚的卫生部长Greg·Hunt主动致信要请辉瑞提出申请。](https://www.sbs.com.au/chinese/mandarin/zh-hans/audio/queensland-premier-wants-updated-information-on-covid-19-and-children?cid=lang:socialshare:twitter%20via%20@SBSRadio)
 
-该报记者“立即从该局所在的上海飞到南方的广东省。抵达深圳市中心的恒大总部大楼前，民警手持盾牌戒备森严。”看到的是：
+美国CDC 的主任则表示，“CDC 对“完全接种”的定义暂时没有变化，因为不是每个人都符合加强接种的条件，她补充说，“我们将来可能需要更新我们对“完全接种”的定义。”
 
-*一周前，购买恒大公寓和金融产品的人冲进总部大厅抗议。*
+评论：**这种全球同一步调，同一策略的强推疫苗的行为确实令人发指，罔顾各国因接种疫苗引发的非正常死亡比率直线上升的事实，依然加快速度强推“完全接种“。接种疫苗年龄组越来越低，针数也越来越多。**
 
-*恒大2020年销售额为5072亿元（约合9万亿日元）。远远超过日本五家主要房地产公司的总销售额。*
+辉瑞疫苗儿童临床试验成功的消息一度占据了各大媒体头版头条。澳大利亚卫生部长Greg·Hunt，曾于9月22日致信辉瑞澳洲公司的负责人Anne Harris，邀请辉瑞公司向澳洲治疗用品管理局（TGA）申请为**5**至**11**岁的儿童接种辉瑞疫苗。
 
-这引起了该报记者的疑惑：“如此繁荣的巨头公司为何陷入危机？我充满了我不明白的事情。”“考虑到这一点，我决定前往他在九月下旬出生和长大的河南农村。”
+**前美国食品及药物管理局（Food and Drug Administration）主管，现辉瑞董事会成员，斯科特·戈特利布 （Scott Gottlieb）博士告诉CNBC： 他认为针对11岁以下儿童的紧急使用许可将于年底前下达。同时他还表示疫苗可能将最终在5岁以下儿童中被获批使用。**
 
-*经过乡间小路和玉米地后*
+目前除以色列以外大多数国家为两针。9月，由于担心变异病毒，以色列，英，德，法甚至不顾WHO的反对意见，率先推出加强针，随后新加坡等国家跟进。
 
-*我从省会郑州的机场上车。下高速公路后，乡间小路继续前行。*
+**谁该打第3针？最讽刺的是世卫组织WHO的建议：免疫功能低下族群，与完整接种国药、科兴疫苗的60岁以上长者，应追加施打第3剂疫苗。**
 
-*路面很差，连续几天的雨导致一些地方积存了泥水。*
+我们不禁想问，一个没有获得任何国家级卫生级监管部门的疫苗凭什么这么理直气壮的强推？
 
-*一望无际的玉米地。*
 
-*大约两个半小时后，我到了许的父母家就在这里。*
 
-*该报记者称：“两个便衣中年男子在车里”（中共国保人员）*
+> CDC 老大说CDC 对“完全接种”的定义暂时没有变化，因为不是每个人都符合加强接种的条件，但补充说，“我们将来可能需要更新我们对“完全接种”的定义。”
+> 
+> 划重点：我们将会重新定义 [pic.twitter.com/5v1e6OdQjr](https://t.co/5v1e6OdQjr)
+> — Chris (@Chris69927664) [October 24, 2021](https://twitter.com/Chris69927664/status/1452097321034915844?ref_src=twsrc%5Etfw)
 
-该报记者后续消息待续。相信日本媒体在中共国的监视下进行的实地采访不会有很是消息被允许爆出来。正如郭文贵先生（ Miles）所言：
 
-*今天的恒大就是，今天我救你，我就得救所有人，我不救你，****所有人都成为我的灾难****，那怎么办呢？所以，内部决定，地方的事，地方来解决，中央的事，中央来解决。他们想****把恒大给肢解了，各部委承担这所有责任****。*（[1:38.37时段](https://gtv.org/video/id=614c897242a8af3151a3c790)）
 
-熟悉中国共产党的人对此并不惊讶，因为中共政府本身就不是负责任的政府。正如朝日新闻记者所担心的那样，这会引发中国版雷曼时刻。对此，郭先生接着说：
+（本文纯属个人观点，与Gnews无关）
 
-*几十万亿给盖住，只对江家、曾家、孟家有利。盖得住吗？盖不住，所以，第一个、房地产的资金池子、所有的保险业，像平安保险、民生银行、招商银行等等一定是瞬间崩塌。这就是其他银行也爆雷，所有影子机构完蛋。*
+[引用文章链接：](https://www.sbs.com.au/chinese/mandarin/zh-hans/audio/queensland-premier-wants-updated-information-on-covid-19-and-children?cid=lang:socialshare:twitter%20via%20@SBSRadio)
 
-*上述恒大事件连锁爆雷后，就引爆到国际上去了。美联储吓得直哆嗦啊！日本财务大臣一天打四次电话。找中国的郭树清，说你们能不能把他捂住，需要我们做什么？什么都可以谈。欧元会出大问题。大家记住，如果恒大暴雷，所有经融市场，钱就像烧纸一样。一下子都没了。全世界经融市场崩塌。最可怕的是，当经融市场崩塌的时候，连比特币、火币也都会抛。*（[1:40.17 时段](https://www.gettr.com/post/pc2qvcb37b)）
+[Sky New 文章链接：](https://www.skynews.com.au/australia-news/coronavirus/covid19-vaccine-booster-shots-expected-from-november-8-aged-care-residents-and-staff-among-first-to-get-the-extra-jab/news-story/313913d2ae0256b8047b9f00ff2fe9b6)
 
-恒大究竟什么时候断掉最后一口气？炸裂全球金融市场？郭先生补充说道：[恒大事件要撑到（中共明年）20大前，甚至撑到打台湾前](https://gtv.org/video/id=614c897242a8af3151a3c790)（2:00 时段）。
-
-2021年10月23日
-
-（本文只代表个人观点，与Gnews网站无关）
-
-*校对：东京樱花团 / 文小白*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

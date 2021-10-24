@@ -2,21 +2,32 @@
 ---
 
 
-## G7发联合声明：从全球供应链中消除强迫劳动
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1613678/)
+## 太空文明时代 将在灭共之后开启
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1613701/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：纽约香草山农场教育部 – 正义的小新
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
+根据10月20日郭文贵先生直播，无人驾驶汽车等低碳产业，将在2030年以前，成为占全球经济四分之一的经济载体；自2030年起，人类将探索更多外太空，并开始外星球移民计划。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture7-5.jpg)
+人类未来所有在一起的群体，均是有着共同的信仰，共同品质的精子、卵子、DNA库。全世界的货币和金融，也将完全统一化，在未来，所谓法币可能不会超过10个，甚至没有。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/U.png)renecassin.org
-10月22日七国集团（G7）贸易部长会议上，七国集团首次发表了“从全球供应链中消除强迫劳动”的联合声明， 七国集团含蓄地批评中共国针对新疆维吾尔族穆斯林的强迫劳动。
+未来的人类，将更加全球化、安全化、健康化。而最早能享受生物科技的群体、在全球受尊重的群体，能到外太空免费旅行的群体，拥有独立自主货币的群体，非GCLUB拥有者、喜联储、喜币拥有者莫属。
 
-七国集团(G7)贸易部长会议反对强迫劳动，并表达了对“在全球供应链中使用任何形式的强迫劳动，包括国家支持的、对弱势群体及少数民族进行强迫劳动”表示关切。联合声明指出，全世界大约有2500万人遭受强迫劳动，并敦促各国、机构和企业共同努力。
+2025年以后，人类再回看现在，会觉得是个笑话。但是2025年以前，还需要战友们的具体行动——消灭共产党。
 
-这一联合声明没有点名提及中共，但在声明中含蓄指向新疆维吾尔自治区的人权问题和强迫劳动问题。七国集团成员国表示共同关切，其背景是希望藉此表示该集团成员国将团结一致要求中共国方面就相关问题进行改善。
+(本文仅代表作者观点)
 
-七国集团(包括英国、加拿大、法国、德国、意大利、日本和美国)以及欧盟也就数字贸易的原则达成了一致，并表示他们“反对数字保护主义和威权主义”。在另一份文件中，他们呼吁解决“跨境数据流动的不合理障碍”，“同时继续解决隐私、数据保护、知识产权保护和安全问题”。
+参考链接：[太空文明时代 将在灭共之后开启](https://gtv.org/video/id=6172b02683e948708d05c1b9)
 
-参考链接：
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-[https://english.kyodonews.net/news/2021/10/af63c3d6f1d5-g-7-voice-concern-over-forced-labor-amid-chinas-treatment-of-uyghurs.html](https://english.kyodonews.net/news/2021/10/af63c3d6f1d5-g-7-voice-concern-over-forced-labor-amid-chinas-treatment-of-uyghurs.html)
+总编/编辑：Ivy001
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,49 +2,40 @@
 ---
 
 
-## 澳大利亚将在11月8日全国推广第三针疫苗
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1613757/)
+## 台湾和美国在重要周年纪念日前讨论联合国参与的问题
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1613783/)
 
-翻译/撰稿：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_1773.jpg)网络截图
-据《Sky News》快讯，关于COVID-19疫苗的加强针，澳大利亚预计从11月8日开始进行强化针的注射，老年护理机构的居民和工作人员将成为首批接受第三针疫苗注射的人群。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-COVID-19疫苗的加强针将在大约两周后在澳大利亚全国推广。  在收到辉瑞公司的申请后，治疗用品管理局TAG（Therapeutic Goods Administration）将于周一开会审议国家的加强剂计划，澳大利亚免疫技术咨询小组也是审批过程的一部分。
-
-阿斯利康和Moderna还没有提交实施疫苗增效剂的申请。
-
-“如果TGA和ATAGI对加强剂提供正式批准，我们预计将在11月8日之前准备好开始我们的加强剂计划，”副首席医疗官Michael Kidd教授周六说。”甚至可能会更早一点开始，但让我们等待，看看未来几天会发生什么。
-
-[而事实是我们澳大利亚的卫生部长Greg·Hunt主动致信要请辉瑞提出申请。](https://www.sbs.com.au/chinese/mandarin/zh-hans/audio/queensland-premier-wants-updated-information-on-covid-19-and-children?cid=lang:socialshare:twitter%20via%20@SBSRadio)
-
-美国CDC 的主任则表示，“CDC 对“完全接种”的定义暂时没有变化，因为不是每个人都符合加强接种的条件，她补充说，“我们将来可能需要更新我们对“完全接种”的定义。”
-
-评论：**这种全球同一步调，同一策略的强推疫苗的行为确实令人发指，罔顾各国因接种疫苗引发的非正常死亡比率直线上升的事实，依然加快速度强推“完全接种“。接种疫苗年龄组越来越低，针数也越来越多。**
-
-辉瑞疫苗儿童临床试验成功的消息一度占据了各大媒体头版头条。澳大利亚卫生部长Greg·Hunt，曾于9月22日致信辉瑞澳洲公司的负责人Anne Harris，邀请辉瑞公司向澳洲治疗用品管理局（TGA）申请为**5**至**11**岁的儿童接种辉瑞疫苗。
-
-**前美国食品及药物管理局（Food and Drug Administration）主管，现辉瑞董事会成员，斯科特·戈特利布 （Scott Gottlieb）博士告诉CNBC： 他认为针对11岁以下儿童的紧急使用许可将于年底前下达。同时他还表示疫苗可能将最终在5岁以下儿童中被获批使用。**
-
-目前除以色列以外大多数国家为两针。9月，由于担心变异病毒，以色列，英，德，法甚至不顾WHO的反对意见，率先推出加强针，随后新加坡等国家跟进。
-
-**谁该打第3针？最讽刺的是世卫组织WHO的建议：免疫功能低下族群，与完整接种国药、科兴疫苗的60岁以上长者，应追加施打第3剂疫苗。**
-
-我们不禁想问，一个没有获得任何国家级卫生级监管部门的疫苗凭什么这么理直气壮的强推？
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/120090359_whatsubject.jpg)
 
 
 
-> CDC 老大说CDC 对“完全接种”的定义暂时没有变化，因为不是每个人都符合加强接种的条件，但补充说，“我们将来可能需要更新我们对“完全接种”的定义。”
-> 
-> 划重点：我们将会重新定义 [pic.twitter.com/5v1e6OdQjr](https://t.co/5v1e6OdQjr)
-> — Chris (@Chris69927664) [October 24, 2021](https://twitter.com/Chris69927664/status/1452097321034915844?ref_src=twsrc%5Etfw)
+图片来源：BBC
 
 
+#### 编译：小红帽
 
-（本文纯属个人观点，与Gnews无关）
+美国国务院在10月23日星期六晚间发表的一份声明说，美国和台湾官员周五举行了虚拟会议，“讨论的重点是支持台湾有意义地参与联合国的能力”。这发生在中共国主席习近平发表讲话以纪念中共国加入联合国50周年的前几天。
 
-[引用文章链接：](https://www.sbs.com.au/chinese/mandarin/zh-hans/audio/queensland-premier-wants-updated-information-on-covid-19-and-children?cid=lang:socialshare:twitter%20via%20@SBSRadio)
+美国与会者重申了美国对台湾有意义参与世界卫生组织和联合国气候变化框架公约的承诺，并讨论了如何突出台湾有能力在广泛的问题上做出贡献。
 
-[Sky New 文章链接：](https://www.skynews.com.au/australia-news/coronavirus/covid19-vaccine-booster-shots-expected-from-november-8-aged-care-residents-and-staff-among-first-to-get-the-extra-jab/news-story/313913d2ae0256b8047b9f00ff2fe9b6)
+美国国务院表示，与会人员包括国务院负责国际组织的代理首席副助理国务卿雨果·延（Hugo Yon）、中共国、台湾和蒙古事务副助理国务卿里克·沃特斯（Rick Waters），以及台湾驻华盛顿副大使王良宇。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+台湾外交部感谢美国的“坚定支持”。
+
+中共国称台湾是它的一个省，因此中共国拥有在国际上代表台湾的唯一权利。台北的民选政府说只有它有这个权利。
+
+近期，中共国加大了政治和军事压力，迫使台湾接受中共国主权。台湾说它是一个独立的国家，如果中共国发动攻击，台湾将进行自卫。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Taiwan, US discuss UN participation ahead of key anniversary (rappler.com)](https://www.rappler.com/world/global-affairs/taiwan-united-states-discuss-un-participation)**
+*****发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,12 +2,16 @@
 ---
 
 
-## 视频| 与中共国之战：是否比我们预计得更近？
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1613902/)
+## 视频| 杨澜是中共最高级的”燕子“
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1613928/)
 
 制作：香草山视频部
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
+
+
 
 
 

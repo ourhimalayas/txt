@@ -2,42 +2,45 @@
 ---
 
 
-## 中共新任香港官员：澳洲龙虾威胁国家安全
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1613703/)
+## 立法者希望推迟北京2022年奥运会，并禁止中国队参赛
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1613733/)
 
-作者：纽约香草山农场 007
+![](https://assets.gnews.org/wp-content/uploads/2021/10/9e90bfa8a3884db78f4f9247ba5c4fee-1.jpeg)
+来自美国《新闻中心》2021年10月22日报道
+
+佛罗里达州共和党参议员马可·卢比奥(Marco Rubio)和新泽西州众议员克里斯·史密斯(Chris Smith)，是国会中共国问题执行委员会中排名第一的共和党人，周四致函国际奥委会，呼吁该组织推迟2022年北京奥运会，并因中共国政府有关种族灭绝的报道而禁止该国代表团参赛。
+
+美国指责中共国对新疆西部地区的维吾尔人实施种族灭绝。
+
+在针对维吾尔人人权的指控中，有报道称，他们被围捕并被关进“再教育”营地，在中共政府的羁押下遭到虐待和强奸。
+
+距奥运会开幕还有四个月的时间，国际奥委会正面临一些赞助商的强烈反对，因为面对中共可能犯下的暴行，他们没有采取更多行动。
+
+“我们的责任是举办奥运会，这对世界来说是一件了不起的事情，”国际奥委会发言人马克·亚当斯在7月份告诉美联社。“这是我们的责任。解决这一问题是其他国家的责任，而不是我们的责任。包括一直非常支持奥运会的联合国和各国政府。鉴于奥运会的多元化参与，国际奥委会必须保持中立。”
+
+卢比奥和史密斯在信中说：“关于北京如何背叛《奥林匹克宪章》和国际奥委会道德准则的精神，还有很多，但这一点无需赘述。”“国际奥委会知道需要做什么，因为国际奥委会以前做过。国际奥委会在2019年因服用兴奋剂而禁止俄罗斯队参赛，为期四年。由于腐败问题，国际奥委会在2012年禁止了印度队。国际奥委会在2000年禁止了阿富汗队参赛，部分原因是塔利班对妇女和女孩的歧视。
+
+“如果这些类型的不当行为是禁止一支球队参加奥运会的理由，那么对种族灭绝肯定更有理由做出同样的回应。”
+
+简评：1936年在德国柏林举行的类似的奥运会，这对阿道夫·希特勒的第三帝国来说是一个巨大的宣传意外，使其获得了不正当的国际声望、合法性和可信度。
+
+而如今在新疆，少数民族受害者中至少有一百万人被关押在几十个集中营，有些集中营中充斥着火葬场。他们在那里被洗脑、被强奸、被强行堕胎和绝育、被折磨、被摘取器官并被迫从事奴役劳动。国际社会应紧急努力，将2022年冬奥会迁移到另一个场地，为中共的种族灭绝奥运会提供一个自由奥运会的替代方案。
+
+新闻链接：[https://www.newsmax.com/newsfront/olympics-beijing-uyghurs-genocide/2021/10/22/id/1041672/](https://www.newsmax.com/newsfront/olympics-beijing-uyghurs-genocide/2021/10/22/id/1041672/)
+
+翻译/简评：希望
+
+PR：Julia Win
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
-
-
-
-香港新任海关关长何佩珊，10月21日宣誓就职后会见媒体时表示，将优先关注澳大利亚龙虾问题，叫嚣走私龙虾“破坏中共国针对澳洲的贸易限制”，打击走私龙虾是“维护中共国安全的重要工作”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture10-1.jpg)
-针对何佩珊的上述妄言，澳洲贸易部长发言人22日表示，澳洲龙虾卖到香港完全符合进口国的规定。另外，世贸组织正在审议 澳洲就中共的贸易限制措施提出的申诉。
-
-自去年中澳关系加剧恶化以来，中共违背双方签署的中澳自由贸易协定，以检疫检查为借口，采取上不了台面的贸易限制和制裁措施，阻止包括岩龙虾在内的多种澳洲产品进口。
-
-何佩珊一上任就向中共表忠心，把民生食品拔至危害国家安全的高度。中共官媒环球网舆论配合，当天报道称，何佩珊的首要工作是维护国家安全和防范恐怖主义。中共的威权暴政，已完全渗入香港各个领域。
-
-(本文仅代表作者观点)
-
-参考链接：
-1.[中共新任香港官员：澳洲龙虾威胁国家安全](https://www.voachinese.com/a/Australia-asks-why-Hong-Kong-considers-lobsters-national-security-risk-20211022/6281453.html)
-2.[中共新任香港官员：澳洲龙虾威胁国家安全](https://news.mingpao.com/pns/%e6%b8%af%e8%81%9e/article/20211022/s00002/1634839812979/%e6%b5%b7%e9%97%9c%e6%96%b0%e9%97%9c%e9%95%b7-%e9%a6%96%e5%8b%99%e7%b6%ad%e8%ad%b7%e5%9c%8b%e5%ae%89-%e4%bd%95%e7%8f%ae%e7%8f%8a%e7%a8%b1%e6%89%93%e6%93%8a%e3%80%8c%e8%bb%9f%e5%b0%8d%e6%8a%97%e3%80%8d-%e6%8f%90%e9%98%b2%e6%9b%b8%e5%88%8a%e6%bb%b2%e5%8d%b1%e5%ae%b3%e4%bf%a1%e6%81%af%e6%b5%81%e5%85%a5)
-3. [中共新任香港官员：澳洲龙虾威胁国家安全](https://china.huanqiu.com/article/45GF5YNCXBG)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-编辑：珈沅
-总编：珈沅
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
