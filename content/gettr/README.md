@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/24/2021 12:09 AM (UTC)`
+
+10/22/2021 Miles Guo: Xi’s investigation on the 25 financial institutions sounds like a big deal, but it won’t make a difference. Instead, this has effectively united those who want to eliminate Xi; Xi is following Mao Zedong’s same old path and is being fooled by his subordinates such that he believes that the people of Taiwan welcome him; Without the constraints of the system, any leader can turn into a devil!<br/><br/>10/22/2021 文贵直播：习对25家金融股机构的调查雷声大雨点小，这反而将想灭习的人团结在一起；习重走了毛的老路且被手下人忽悠，竟认为台湾人民欢迎他；没有制度约束的领导人都会成魔！<br/>
+![img](https://media.gettr.com/group25/getter/2021/10/24/00/09/e16f5a44-10bd-51da-6f14-3bab0bbdd423/out.jpg)
+
+---
+
+`@miles 10/24/2021 12:06 AM (UTC)`
+
+10/22/2021 Miles Guo: The world will undergo a major change after next May; The CCP won’t be able to sustain its Great Firewall, and it is uncertain as to whether Xi can survive until the 20th Party Congress; Whoever is still relying upon the CCP is doomed; It’s easy to deceive Xi, who knows very little about the world, with his mentality remaining in the initial stage of the Culture Revolution <br/><br/>10/22/2021 文贵直播：明年五月份后世界将大变；中共的防火墙会撑不住，习能否撑到20大是个大变数；谁现在还依靠着中共将是死路一条；习很容易被骗，他对世界的认知是很低的，他的思维还停留在文革初期<br/>
+![img](https://media.gettr.com/group25/getter/2021/10/24/00/06/f28b4c28-6b2e-4370-61f6-2aaf2fb02be0/out.jpg)
+
+---
+
 `@miles 10/23/2021 9:59 PM (UTC)`
 
 “Behind the Scenes with GFASHION: Greatness in Motion”  G Fashion的幕后 #Gfashion @DDNYC  
@@ -282,20 +296,6 @@ Every day is a Fashion Show, and a the world is your runway. G Fashion’s New C
 
 10/18/2021 Miles Guo: Money has its owners - the money that belongs to the Chinese shouldn’t be taken away! In the Communist China, 0.001% or even 0.00001% of the Chinese people possess the same amount of wealth as the remaining 99.999% of the people; There is no one responsible for Bitcoin, which decentralizes responsibilities.<br/><br/>10/18/2021 文贵直播：金钱是有主人的- 属于中国人民的钱不能被他人夺走！在中共国，0.001%甚至0.00001%的人拥有着和剩下99.999%的人同等的财富；比特币没人负责，因为责任被去中心化<br/>
 ![img](https://media.gettr.com/group28/getter/2021/10/19/15/28/ef09daca-8f02-5380-12b3-e5dfae356cd1/out.jpg)
-
----
-
-`@miles 10/19/2021 3:24 PM (UTC)`
-
-10/18/2021 Miles Guo: Revealing the CCP’s evil social security! The total amount of money in the National Social Security Fund in the Communist China is only about 100 billion USD, with 96% of the fund allocated to the CCP’s retired cadres and their families. The Lao Baixing can only access the remaining 4%<br/><br/>10/18/2021 文贵直播：起底邪恶的中共社保！中共国的社保基金总额只有1000多亿美元，其中96%被分给1.3亿共产党的退休干部及其家人，老百姓只有能分到剩下的4%<br/>
-![img](https://media.gettr.com/group14/getter/2021/10/19/15/24/3f40c1f3-1f08-b78c-c34e-9e5367e1c4a6/out.jpg)
-
----
-
-`@miles 10/19/2021 2:06 PM (UTC)`
-
-10月19号：尊敬的战友们好……杰克．马．去西班牙意味着什么？
-![img](https://media.gettr.com/group19/getter/2021/10/19/14/06/8776f6fd-5e02-b93b-b059-49830990c483/out.jpg)
 
 ---
 
