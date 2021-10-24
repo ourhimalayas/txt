@@ -2,9 +2,10 @@
 ---
 
 
-## 10/14郭文贵盖特：我们强大力量的背后是无数战友在传播真相（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1614441/)
+## DWAC的11个合格机构买家或机构认可投资者
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1614568/)
 
-10/14/2021 郭文贵盖特：新中国联邦、爆料革命通过以(疫)苗灭共和解药灭共，拯救了无数人，使全世界把中国人和中共分开，我们强大力量的背后是无数战友在传播真相！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-130-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/2-113-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0003-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0004-1-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0005-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0006-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0007-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0008-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0009-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0010-scaled.jpg)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+[全文](https://assets.gnews.org/wp-content/uploads/2021/10/11-investors-to-Digital-World-.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/10/11-investors-to-Digital-World-.pdf)

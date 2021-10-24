@@ -2,35 +2,36 @@
 ---
 
 
-## 维多利亚州挑战疫苗强制令，112名原告加入诉讼
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1613979/)
+## 儿童疫苗未获FDA批准，拜登政府仍“快速”推广
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1614025/)
 
-#### 翻译：月映万川
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-#### 编辑：文泓
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/eae33eb1-f6a4-47b2-b9d4-af3b05a9b2bf-scared_child_getting_shot.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-75.png)
 
-**图片来源：ABCNews**
-10月23日，在澳大利亚维多利亚州，由一位教师和她的丈夫发起的对政府强制接种疫苗令的法律挑战，目前已有112名原告加入诉讼中。
 
-他们分别来自于不同职业，其中包括52名授权工人，20多个雇主团体和17名医疗健康员工。其中，一些护士、一名警官、一名司法部官员和一名外科医生已经宣誓作证。
+图片来源：usatoday.com
 
-原告向维州最高法院提交的修订文件，指控首席卫生官布雷特·萨顿和其他卫生官僚对于包括在医疗、教育和建筑领域在内的许多行业强制执行疫苗接种令。而这一行为违反了维州的《人权宪章》。
 
-与新南威尔士州上周曾试图推翻政府强制疫苗令未获成功不同，《维多利亚州人权宪章》规定了公民（身份）、政治和文化权利，并在一定程度上保护了这些权利不受政府限制。
+#### 编译：小红帽
 
-目前的这一新的诉讼试图改变安德鲁斯政府的“不接种，没工作”政策。按照人权宪章，萨顿教授的这一政策是以非法形式侵犯了基本人权。
+拜登政府周三公布了其计划“快速”为大约2,800万名5-11岁的儿童接种中共病毒（Covid-19）疫苗，尽管这款疫苗未获得美国食品和药物管理局 (FDA) 的批准。【注：这是[美国食品和药物管理局的文件](https://www.fda.gov/media/151710/download)，证明向儿童推行的中共病毒疫苗未获批准。】
 
-迪肯大学法学讲师布鲁斯·陈博士说，此案的关键节点在于，卫生部能否提供有效的证据表明，相应的强制疫苗政策是必要的，并且考虑到了人权。新州挑战的败诉，是因为那里并没有相类似的人权宪章。
+白宫表示，这种（不能阻止中共病毒传播的）疫苗将在儿科医生、当地药房，甚至可能在学校提供。
 
-迄今为止，在大流行期间唯一的一次人权独立调查就是，去年维多利亚仲裁机构发现，政府封锁墨尔本廉租公屋的时，发生明确的违反人权的行为。
+根据公告，白宫已获得足够的资金，可以为已经签署疫苗接种协议的儿科医生和初级保健医生提供超过25,000剂疫苗，而美国现在有足够的辉瑞（Pfizer）疫苗为大约2,800万儿童接种。
 
-（文中观点仅代表作者个人观点，与Gnews平台无关）
+与此同时，白宫正在推出一项“广告”活动，以说服父母和孩子相信中共病毒疫苗是安全有效的。
 
-原文链接: [Vaccine mandate challenge expands to more than 100 plaintiffs (theage.com.au)](https://www.theage.com.au/national/victoria/vaccine-mandate-challenge-expands-to-more-than-100-plaintiffs-20211022-p5928e.html)
+最重要的是，美国疾病管制与预防中心（CDC）负责人罗谢尔·瓦伦斯基 (Rochelle Walensky)表示，即使疫苗已获准用于儿童，她仍会建议儿童在学校戴口罩。
 
-发布： 文泓
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Biden Administration Details Plan to ‘Quickly’ Vaccinate 28 Million Children Age 5-11, Even Though the Jab is NOT APPROVED and Doesn’t Prevent Transmission (humansarefree.com)](https://humansarefree.com/2021/10/biden-administration-details-plan-to-quickly-vaccinate-28-million-children-age-5-11-even-though-the-jab-doesnt-prevent-transmission.html)
+
+**
+*****发布：小红帽***
 
 **更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

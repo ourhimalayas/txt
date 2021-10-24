@@ -2,17 +2,30 @@
 ---
 
 
-## “说说你的看法– 老百姓真的脱贫了？” 第06期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1614199/)
+## 中共国人大，授权国务院，试点开征房地产税
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1614229/)
 
-制作：蚂蚁兄弟
+作者：纽约香草山文艺部 – 宁文静
 
-中国的外表似乎已被中共“打扮”得光彩夺目，中共把它那“铸就百年辉煌”的海市蜃楼展现给世界的同时，在它那光怪陆离、浮华于世的外表背后，那几亿贫困人口的真实生活，才是这个国家的实际现状。以下一段段网络留言，真真正正的记录下了中国大多数人生活的现状。希望这一切能被世界看到，希望这一切能够让每一个人深思……
-![](https://assets.gnews.org/wp-content/uploads/2021/10/pobre6-7.001-scaled.jpeg)
-（文章仅代表作者本人观点，与Gnews无关）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-* * *
 
-*发稿：信心的选择*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1024AM（1-3.003.jpeg)
+10月23日，第十三届中共国人民代表大会作出决定，授权国务院在部分地区，开展房地产税改革试点工作。试点地区的房地产税征税对象，为居住用和非居住用等各类房地产，不包括依法拥有的农村宅基地及其住宅。土地使用权人与房屋所有权人，为房地产税的纳税人。试点期限为五年。目前没有公布试行地区。
+(本文仅代表作者观点)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)
+参考链接：[全国人大授权国务院试点开征房地产税](http://m.eeo.com.cn/2021/1023/508620.shtml)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

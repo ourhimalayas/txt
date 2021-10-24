@@ -2,35 +2,126 @@
 ---
 
 
-## DC大中华时事：甘肃采取熔断措施暂停旅游活动
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1614384/)
+## 台湾宝岛出品：疫苗灾害专辑
+` 中共病毒专栏` [轉載自GNews](https://gnews.org/zh-hans/1614423/)
 
-*编辑：西北风 / 作图：*信正
+- 撰文/ 台湾宝岛农场 天滅中共
+- 专辑整理：中共病毒小组
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpeg)
 
-#   墙国妄语每日驳
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/47-1.jpg)](https://gnews.org/zh-hans/1612160/)法国 22 岁男子接种疫苗 10 小时后死亡
 
-### 10.24.2021
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/46.jpeg)](https://gnews.org/zh-hans/1613769/)美国 45 岁 FBI 探员接种疫苗24小时内死亡
 
-[时代如何问，中国如何答\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/china/20211024/2457599.shtml)
 
-***简评：*一个伟大民族文明史，观念也就是他的价值取向决定了这个民族的道路,中国文明文化内核是群体意识，西方文明文化内核是个体意识。无论那个民族在文明的起点上我们是相同的，但在价值取向上的差异决定了我们文明发展道路的不同，中国西周起我们选择了制礼做乐，礼乐文明伦理道德治国，古西腊文明选择了科学和艺术，古罗马文明选择了法律和宗教。内核区别在于华夏是群体意识，古西腊、罗马的西方是个体意识，这是个时代文明分水岭，也是现在和未来分析解决一切问题的关键。中国自鸦片战争起就不断尝试华夏文明转型，但一个文明的转型成功不但需要空间更需要时间，清未到民国华夏大地内忧外患，没有和平稳定的大环境中西文明怎么可能溶合对接，而更激进的对华夏文明彻底否定颠覆性的辛亥革命浪潮不但救不了中国，反而使共产红祸有了可乘之机进入华夏大地祸害中华百年。共产红祸只能是对现有文明摧毁和毁灭，这是它的本质。我们未来的中国需要就像郭先生讲的，和西方签订千年合平协定，日本是我们学习的榜样。如果现在一味像中共这样继续祸害中华大地下去，结局历史已经告诉了我们答案，辛亥革命一声枪响，中华大地注定兵祸连连，也不会再有结局。**
 
-### 10.24.2021
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/44-1.jpeg)](https://gnews.org/zh-hans/1612091/)格鲁吉亚 27 岁女护士接种疫苗一日后死亡
 
-[美媒：ETF推出后 比特币价格飙升突破6.6万美元\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/finance/20211022/2457448.shtml)
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/1-124.jpeg)](https://gnews.org/zh-hans/1607440/)美国 36 岁医学博士接种疫苗后一个月死亡
 
-***简评：*资本主义经济货币才是王座上的皇冠，是真正的王者。自文艺复兴之后随着资本的兴起发展，货币的主导权定价权是由政府控制还是私人控制才是西方资本主义社会最主要矛盾斗争的焦点。争斗结果目前我们看到美联储是私人拥有，美元是世界通用储备货币。也只有美元的支撑，美国才能称霸全球。加密数字货币将主导未来货币形态，从黄金到纸质货币到现在加密数字货币，本身就是一场货币的革命。两种货币形态的变革牵扯到利益的转换的争斗将是空前的。现在喜币即将上市，我们内心当然激动期待，不仅仅是我们拥有喜币的财富的增长，我们也要看到我们喜币也能够走到历史舞台的中央，我们也终于有了在牌桌出牌的资格。但我们也应该意识到，当你期待喜币百倍的增长，也要意识到同时面对百倍的风险，风险来自于中共，风险也来自于两种货币体系利益争夺的震荡。以平常心看待，因为只有灭了中共一切才有可能。**
 
-### 10.24.201
 
-[甘肃采取熔断措施暂停旅游活动 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/china/20211024/2457582.shtml)
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/40-1.jpeg)](https://gnews.org/zh-hans/1605901/)英国 34 岁妈妈接种疫苗 10 日后死亡
 
-***简评：*中国现在东西南北到处封城封社区，冠状病毒是中共自己施放的生化武器，它不仅危害世界，也危害国内。病毒只是制造恐惧的抓手，真正目的是毒疫苗。问题是现在全中囯老百姓该打的疫苗都打了，冠状病毒也已快二年了一直就存在，现在中共到外封城封小区，而且当地政府雷厉风行，不计成本后果。结合当前中共国内经济形势，中共显然是在做经济和社会一旦失控，更多的是在做提前演练。中共的行为也说明了中共危局的加重。**
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/38-1.jpeg)](https://gnews.org/zh-hans/1603945/)葡萄牙 18 岁女大学生接种疫苗5日后死亡
 
-#   港台资讯
-![](https://media.discordapp.net/attachments/858887785507323904/901656554951036978/DC_10.23-1.jpg?width=1040&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/901656583598141510/DC_10.23-2.jpg?width=1040&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/901656672454459392/DC_10.23-3.jpg?width=1040&amp;height=586)
-*编辑：*西北风
-*作图：信正
-发布：文顾*
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/37-1.jpeg)](https://gnews.org/zh-hans/1603893/)意大利 18 岁排球运动员接种疫苗27日后死亡
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/36-1.jpeg)](https://gnews.org/zh-hans/1601721/)中国 12 岁少女接种疫苗 7 日后死亡
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/35-1.jpeg)](https://gnews.org/zh-hans/1601320/)希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/32-2.jpeg)](https://gnews.org/zh-hans/1599033/)意大利 18 岁女学生接种疫苗10日后死亡
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/31-1.jpeg)](https://gnews.org/zh-hans/1598913/)法国 16 岁少女接种疫苗 5 日后死亡
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/30-1.jpeg)](https://gnews.org/zh-hans/1597702/)新加坡 44 岁指挥家接种疫苗七周后死亡
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/29-1.jpg)](https://gnews.org/zh-hans/1597333/)科威特 48 岁著名男星接种疫苗两周后死亡
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/28-1.jpeg)](https://gnews.org/zh-hans/1596153/)美国 21 岁医科生接种疫苗1日后死亡
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/27-2.jpeg)](https://gnews.org/zh-hans/1593122/)巴西 13 岁男孩接种疫苗 6 周后死亡
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/24-2.jpeg)](https://gnews.org/zh-hans/1589503/)法国 24 岁男医科生接种疫苗 10 日后死亡
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/21-3.jpeg)](https://gnews.org/zh-hans/1582909/)意大利 14 岁女孩接种疫苗两日后昏迷 现已离世
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/20-1.jpeg)](https://gnews.org/zh-hans/1582698/)韩国 20 岁女学生接种疫苗12日后死亡
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/19-2.jpeg)](https://gnews.org/zh-hans/1581220/)美国 16 岁少年接种疫苗 5 日后死亡
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/14-2.jpeg)](https://gnews.org/zh-hans/1578774/)加拿大 17 岁曲棍球运动员接种疫苗两周后死亡
+
+
+
+
+* * *
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpeg)
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/45-2.jpeg)](https://gnews.org/zh-hans/1612160/)比利时 22 岁自行车手接种疫苗后心力衰竭 职业生涯被迫结束
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/43-2.jpeg)](https://gnews.org/zh-hans/1610841/)意大利 18 岁少年接种疫苗2周内突患罕见病
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/41-1.jpeg)](https://gnews.org/zh-hans/1607321/)澳洲 30 岁夫妇接种疫苗后相继出现心脏疾病
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/39-1.jpeg)](https://gnews.org/zh-hans/1605744/)美国 35 岁疫苗拥趸孕期接种后致新生儿夭折
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/34-7.jpeg)](https://gnews.org/zh-hans/1601146/)意大利 25 岁女明星接种疫苗后患上心包炎
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/33-2.jpeg)](https://gnews.org/zh-hans/1599126/)英国 58 岁前世界冠军接种疫苗后截肢保命
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/26-2.jpeg)](https://gnews.org/zh-hans/1593082/)NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/22-3.jpeg)](https://gnews.org/zh-hans/1589436/)美国 47 岁教育学硕士接种疫苗后双腿截肢
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/212_1.jpeg)](https://gnews.org/zh-hans/1585176/)德国 28 岁女演员接种疫苗后几乎毁容
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/212_0.jpeg)](https://gnews.org/zh-hans/1585160/)澳洲 29 岁知名女星接种疫苗后患上心包炎
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/18-2.jpeg)](https://gnews.org/zh-hans/1580961/)加拿大 22 岁女医护接种疫苗后瘫痪
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/17-1.jpeg)](https://gnews.org/zh-hans/1579390/)希腊 65 岁男演员接种疫苗后因血栓而中风入院
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/16.jpeg)](https://gnews.org/zh-hans/1578815/)法国 13 岁男孩接种疫苗10日后失明
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/11-3.jpg)](https://gnews.org/zh-hans/1574393/)爱尔兰 28 岁医科女学生接种疫苗后瘫痪
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/8-1.jpg)](https://gnews.org/zh-hans/1572298/)美国 16 岁少女接种疫苗后神经损伤
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/6.jpg)](https://gnews.org/zh-hans/1570258/)法国 32 岁铁人三项运动员接种疫苗后致肺栓塞
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/1-9.jpg)](https://gnews.org/zh-hans/1568652/)英国 29 岁创意总监接种疫苗后瘫痪

@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/24/2021 2:14 PM (UTC)`
+
+Eleven Qualified Institutional Buyers or Institutional Accredited Investors of DWAC<br/><br/>https://gnews.org/1614670/<br/><br/>DWAC的11个合格机构买家或机构认可投资者<br/><br/>https://gnews.org/zh-hans/1614568/
+
+---
+
 `@miles 10/24/2021 12:30 PM (UTC)`
 
 2021年10月24日 文贵大直播：详解SPAC上市公司结构； 最新疫苗伤亡与反疫苗； 许家印海外借贷利息怎么还
@@ -289,13 +295,6 @@ Every day is a Fashion Show, and a the world is your runway. G Fashion’s New C
 
 10/19/2021 Miles Guo’s GETTR: The US and CCP’s Social Security are different in terms of whether the government is responsible for the losses in the investments, whether all the illnesses are covered, and if the pensions are truly insured. The social security of the Communist China is purely a scam, and the hospitals are the places where patients are murdered, with their money being robbed.<br/><br/>10/19/2021 文贵盖特：中美社保的区别在于政府对赔钱负不负责、是否覆盖所有的疾病以及养老金是否有真正的保险；在中共国，社保就是骗局，而医院是杀人和抢钱的地方！
 ![img](https://media.gettr.com/group14/getter/2021/10/20/04/04/b092f6d6-ff77-d340-6f34-9bd541b6f203/out.jpg)
-
----
-
-`@miles 10/20/2021 4:00 AM (UTC)`
-
-10/19/2021 Miles Guo’s GETTR: Jack Ma has completely lost his freedom even he’s “running around” in Spain; those so-called successful people who has no guts to fight against the CCP by claiming they love and attribute filial piety to their family won’t be better off than Wang Jian, Bo Xilai or Zhou Yongkang; only the NFSC and the Whistleblowers’ Movement can rescue you!<br/>
-![img](https://media.gettr.com/group17/getter/2021/10/20/04/00/88775a6c-17ef-6258-b401-3564d4bba507/out.jpg)
 
 ---
 
