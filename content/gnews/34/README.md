@@ -2,49 +2,126 @@
 ---
 
 
-## 煤炭价高与中共国的电力危机
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1614378/)
+## 台湾宝岛出品：疫苗灾害专辑
+` 中共病毒专栏` [轉載自GNews](https://gnews.org/zh-hans/1614423/)
 
-摘要：煤炭供应短缺正将燃料价格推至历史高位，而中共国，因不满去年秋天澳大利亚要求对中共病毒的来源进行独立调查，而对澳大利亚实施了非官方禁令，停止澳大利亚煤炭的进口。煤炭供应减少和成本激增导致中共国的电力短缺，其规模是十多年来从未见过的，打击了工业，并促使一些城市关闭交通灯以节约电力。中共政府的做法损人不利己，专制体制下的老百姓磨难重重。
+- 撰文/ 台湾宝岛农场 天滅中共
+- 专辑整理：中共病毒小组
 
-作者: Opal
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021-10-24-OPAL.jpg)[图片来源](https://www.wsj.com)
-据《华尔街日报》报道，煤炭供应短缺正将燃料价格推至历史高位，并暴露出全球经济摆脱其最重要且污染严重的能源之一所面临的挑战。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpeg)
 
-作为全球基准的澳大利亚纽卡斯尔(Newcastle) 动力煤的交易价格为每吨202美元，比2019年底高出三倍。全球煤炭产量约占世界电力总量的40%，比疫情前的水平低大约5%。
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/47-1.jpg)](https://gnews.org/zh-hans/1612160/)法国 22 岁男子接种疫苗 10 小时后死亡
 
-在欧洲，煤炭和其他能源资源的价格上涨，打击了工厂的产出，推动了家庭能源账单的增加。亚洲的主要煤炭进口国，包括日本和韩国，正在争相确保供应。
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/46.jpeg)](https://gnews.org/zh-hans/1613769/)美国 45 岁 FBI 探员接种疫苗24小时内死亡
 
-在中国，供应减少和成本激增导致电力短缺，其规模是十多年来从未见过的，打击了工业，并促使一些城市关闭交通灯以节约电力。中国是世界第二大经济体，也是最大的煤炭消费国，是当前紧缩的核心。由于中国政府一直在寻求实现其气候目标，它允许煤炭库存减少。此外，中共国去年因为外交争论而停止了澳大利亚煤炭的进口，这一决定的影响仍在重新划分全球煤炭供应链，将新的买家吸引到澳大利亚，并促使中国冒险到拉丁美洲、非洲和欧洲去寻找替代供应商。
 
-一直以来，每逢讲到能源，我们都是关注原油，而原油这一大众商品，因为国际政治军事的风云变幻，以及页岩油革命，而导致价格几番沉浮。但煤炭一直以来，依然是主要的能源之一。煤矿挖采方便，储存成本低，所以价格便宜，缺点是污染严重，不环保。
 
-煤炭按它的含碳量从高到低，大致可分为四种：无烟煤（Anthracite）、烟煤(Bituminous)、次烟煤(Subbituminous) 和褐煤 (Lignite) 。煤炭的含碳量越高，产热能就越高，无烟煤由于在地下形成的年代久，含碳量最高，主要是工业生产用煤，特别是用于金属业加工中。烟煤等煤炭用来发电以及炼焦煤等。
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/44-1.jpeg)](https://gnews.org/zh-hans/1612091/)格鲁吉亚 27 岁女护士接种疫苗一日后死亡
 
-世界上最大两个煤炭出口国是澳大利亚和印度尼西亚，都是每年4亿 吨，有的年度，澳大利亚跃居第一大出口国，印尼排名第二；有的年度印尼成为第一大出口国，澳大利亚屈居第二，因为他们的出口量比较接近。相比澳大利亚，印尼的出产的煤炭质量没有那么好，澳大利亚的煤炭因为含碳量高、纯度高，成为世界上品质最高的煤炭之一，通常用作金属加工中的炼焦煤。
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/1-124.jpeg)](https://gnews.org/zh-hans/1607440/)美国 36 岁医学博士接种疫苗后一个月死亡
 
-中共国是世界第二大经济体，也是最大的煤炭消费国，一直以来澳大利亚煤炭的三分之一到一半的量是运往中共国的， 每年大概8500万公吨煤炭。而在去年秋天，由于澳大利亚要求对中共病毒的来源进行独立调查，这就惹怒了中共政府，中共政府对其实施了非官方禁令，停止澳大利亚煤炭的进口。一时间澳大利亚确实有点懵，毕竟一直出口给中共国，交易的一整套环节都做熟做顺了。比如说煤矿把煤炭挖出来后，运到码头，装上散货船，运往中共国，澳大利亚卖家提交发票、品质证书、重量单、租船提单等等，中共国买家按照合同规定，即期付款，或者一个月后或者两个月后付款。这种大宗商品的交易，金额非常大，双方互相之间都已经建立信任，一下子断了，那一时半会儿再去找新的买家，没那么容易，需要时间。好在，煤炭供应紧张，需求大与供给。皇帝的女儿不愁嫁，韩国在2021年上半年对澳大利亚煤炭的需求增加了56%，日本增加了65%。印度7月进口的澳大利亚冶金煤（用于炼钢）同比增长近一倍，扩大了今年年初以来的趋势，尽管其供应仍在短缺。
 
-而这边的中共国，发生十年来面临的最严重的电力危机。一半以上的省份都在实行电力配给，扰乱了数千万人的日常生活。电梯被关闭，商店的营业时间缩短，工厂不得不减少营业时间和电力消耗。一些省份经历了彻底的停电。同时，自从中共国开始从疫情封锁中恢复以来，9月份的工业产出首次出现下降。
 
-直接原因是，中国仍然高度依赖煤炭，煤炭提供了该国70%的发电量。支付给发电机的电价由中央政府监管，而煤炭价格则由市场决定。当煤炭价格上涨时，除非监管机构提高电价，否则煤电厂继续供电就没有经济意义。然后，电厂可以通过声称自己有技术故障或未能购买到运行所需的煤炭来避免亏损发电。而之前中共政府为达到碳排放目标，它允许煤炭库存减少，再加上国内经济已经很糟糕，这些都是原因之一。
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/40-1.jpeg)](https://gnews.org/zh-hans/1605901/)英国 34 岁妈妈接种疫苗 10 日后死亡
 
-煤炭的库存在减少，自己的产煤跟不上，最大的煤炭省份山西发生水灾，生产中断，当然中共国也在寻找新买家，但并不顺利。中共国试图锁定印度尼西亚煤炭的采购，其中大部分是全球市场越来越避开的低等级煤炭。但是阵阵暴雨扰乱了供应。致使8月份印尼对中国的煤炭出口量按月下降。中共国还转向远近的国家–有些国家的距离是澳大利亚的两倍以上。前8个月，从俄罗斯进口的煤炭同比增长了约一倍，达到2100万公吨。在此期间，从美国进口的煤炭翻了两番，达到570万吨。
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/38-1.jpeg)](https://gnews.org/zh-hans/1603945/)葡萄牙 18 岁女大学生接种疫苗5日后死亡
 
-中共国这样的作法真的是损人不利己，和它当年对美国打的大豆牌，如出一辙。当年川普总统在位时2018年，中共国对一项完全依赖从美国进口的粮食大豆加征25%的关税呢。他们不去考虑，如果进口税上调，进口大豆的价格就上涨，也带动豆粕的价格上涨，以及养殖的家畜价格上涨，导致物价上涨，会严重影响老百姓的生活呀。
 
-CCP毫无底线，不管老百姓死活，就想用大豆牌打掉川普总统的票仓，因为粮食作物都产于中西部，都是深红州，力挺川普总统的。如果Iowa的农民卖不掉大豆，损失惨重，不就反川了吗？这是CCP的最终目的。
 
-中共国不买美国的大豆，但粮食作物紧缺，要吃啊，没办法，只能从巴西进口，价格比美国的要贵得多，但巴西的大豆产量不够，它又向美国进口，再卖给中国，就是说，巴西一转身，成为二道贩子，赚取中间差价。
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/37-1.jpeg)](https://gnews.org/zh-hans/1603893/)意大利 18 岁排球运动员接种疫苗27日后死亡
 
-这和现在的做法何其相似？为了报复奥大利亚，停止进口澳大利亚的煤炭。却又转向其他国家购买煤炭，据说现在又开始悄悄地向澳大利亚购买煤炭了。
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/36-1.jpeg)](https://gnews.org/zh-hans/1601721/)中国 12 岁少女接种疫苗 7 日后死亡
 
-当然中共政府一再承诺，要应对气候变化、减排，而且最终要摆脱煤炭。这个确实没有错，但要有序啊，要在足够的零碳发电能力到位的前提下，再向不受燃料价格影响的零碳能源过渡， 不能搞一刀切，要一步一步来，统筹安排，保证工业用电，也要保证居民用电，要考虑到老百姓的生活。 限电、断电，老百姓怎么过冬啊，特别是北方很冷的。生活在这个体制下的老百姓，要遭受这么多的磨难，远的不说，就说近的，中共病毒、强打疫苗、水灾、断电，等等，太多的磨难，而这个根源就是专制的中共体制，是时候应该瓦解了。
 
-（本文仅代表作者个人观点）
 
-参考：
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/35-1.jpeg)](https://gnews.org/zh-hans/1601320/)希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡
 
-[https://www.wsj.com/articles/coal-shortages-push-up-prices-weigh-on-economies-11633525885](https://www.wsj.com/articles/coal-shortages-push-up-prices-weigh-on-economies-11633525885https://foreignpolicy.com/2021/10/07/china-energy-crisis-electricity-coal-pricing-renewables/)
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/32-2.jpeg)](https://gnews.org/zh-hans/1599033/)意大利 18 岁女学生接种疫苗10日后死亡
 
-[https://foreignpolicy.com/2021/10/07/china-energy-crisis-electricity-coal-pricing-renewables/](https://www.wsj.com/articles/coal-shortages-push-up-prices-weigh-on-economies-11633525885https://foreignpolicy.com/2021/10/07/china-energy-crisis-electricity-coal-pricing-renewables/)
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/31-1.jpeg)](https://gnews.org/zh-hans/1598913/)法国 16 岁少女接种疫苗 5 日后死亡
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/30-1.jpeg)](https://gnews.org/zh-hans/1597702/)新加坡 44 岁指挥家接种疫苗七周后死亡
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/29-1.jpg)](https://gnews.org/zh-hans/1597333/)科威特 48 岁著名男星接种疫苗两周后死亡
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/28-1.jpeg)](https://gnews.org/zh-hans/1596153/)美国 21 岁医科生接种疫苗1日后死亡
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/27-2.jpeg)](https://gnews.org/zh-hans/1593122/)巴西 13 岁男孩接种疫苗 6 周后死亡
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/24-2.jpeg)](https://gnews.org/zh-hans/1589503/)法国 24 岁男医科生接种疫苗 10 日后死亡
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/21-3.jpeg)](https://gnews.org/zh-hans/1582909/)意大利 14 岁女孩接种疫苗两日后昏迷 现已离世
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/20-1.jpeg)](https://gnews.org/zh-hans/1582698/)韩国 20 岁女学生接种疫苗12日后死亡
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/19-2.jpeg)](https://gnews.org/zh-hans/1581220/)美国 16 岁少年接种疫苗 5 日后死亡
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/14-2.jpeg)](https://gnews.org/zh-hans/1578774/)加拿大 17 岁曲棍球运动员接种疫苗两周后死亡
+
+
+
+
+* * *
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpeg)
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/45-2.jpeg)](https://gnews.org/zh-hans/1612160/)比利时 22 岁自行车手接种疫苗后心力衰竭 职业生涯被迫结束
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/43-2.jpeg)](https://gnews.org/zh-hans/1610841/)意大利 18 岁少年接种疫苗2周内突患罕见病
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/41-1.jpeg)](https://gnews.org/zh-hans/1607321/)澳洲 30 岁夫妇接种疫苗后相继出现心脏疾病
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/39-1.jpeg)](https://gnews.org/zh-hans/1605744/)美国 35 岁疫苗拥趸孕期接种后致新生儿夭折
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/34-7.jpeg)](https://gnews.org/zh-hans/1601146/)意大利 25 岁女明星接种疫苗后患上心包炎
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/33-2.jpeg)](https://gnews.org/zh-hans/1599126/)英国 58 岁前世界冠军接种疫苗后截肢保命
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/26-2.jpeg)](https://gnews.org/zh-hans/1593082/)NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/22-3.jpeg)](https://gnews.org/zh-hans/1589436/)美国 47 岁教育学硕士接种疫苗后双腿截肢
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/212_1.jpeg)](https://gnews.org/zh-hans/1585176/)德国 28 岁女演员接种疫苗后几乎毁容
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/212_0.jpeg)](https://gnews.org/zh-hans/1585160/)澳洲 29 岁知名女星接种疫苗后患上心包炎
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/18-2.jpeg)](https://gnews.org/zh-hans/1580961/)加拿大 22 岁女医护接种疫苗后瘫痪
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/17-1.jpeg)](https://gnews.org/zh-hans/1579390/)希腊 65 岁男演员接种疫苗后因血栓而中风入院
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/16.jpeg)](https://gnews.org/zh-hans/1578815/)法国 13 岁男孩接种疫苗10日后失明
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/11-3.jpg)](https://gnews.org/zh-hans/1574393/)爱尔兰 28 岁医科女学生接种疫苗后瘫痪
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/8-1.jpg)](https://gnews.org/zh-hans/1572298/)美国 16 岁少女接种疫苗后神经损伤
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/6.jpg)](https://gnews.org/zh-hans/1570258/)法国 32 岁铁人三项运动员接种疫苗后致肺栓塞
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/1-9.jpg)](https://gnews.org/zh-hans/1568652/)英国 29 岁创意总监接种疫苗后瘫痪

@@ -2,27 +2,27 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月24日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1614872/)
+## 因制裁俄罗斯公民需到波兰华沙申请美国签证
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1614962/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-412.png)
+俄罗斯莫斯科喀秋莎农场 GVBG伊万
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-26.png)
-文章仅代表作者本人观点，与Gnews无关
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/U-2.jpg)gettyimages.co.uk
+10月24日据俄媒报道，美国国务院网站公布的一份文件显示，他们将想要获得美国签证的俄罗斯公民列为无家可归者类别，字面意思是“无家可归的民族”。该文件称，俄罗斯公民可以在波兰的华沙申请美国签证。
 
-视频参看：2021.10.24早GTV新闻访谈
+这一类别包括那些在美国没有领事馆的国家的公民，或者由于政治局势不稳定，不允许美国外交官处理签证申请的国家的公民。除俄罗斯外，该名单还包括古巴、厄立特里亚、伊朗、利比亚、索马里、南苏丹、叙利亚、委内瑞拉和也门。
 
-[https://gtv.org/broadcast/watch/61755165eadeb11f5e79f579](https://gtv.org/broadcast/watch/61755165eadeb11f5e79f579)
+今年5月，在美国对俄罗斯实施新一轮制裁措施后，包括驱逐10名俄罗斯外交官和其他限制措施，俄罗斯政府公布了一份被认为不友好的国家名单，其中包括美国和捷克共和国。该文件限制了这些国家驻俄罗斯大使馆雇用俄罗斯人的能力。8月初，美国大使馆报告说，领事工作人员的人数不得不减少75%。由于在俄罗斯缺乏工作人员，使馆还建议俄罗斯人到其他国家的美国大使馆申请非移民签证。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+到9月底，美驻俄大使馆领事处只有一个人在工作。俄罗斯美国商会 (AmCham) 负责人亚历克西斯·罗济安科 (Alexis Rodzianko) 表示，另有 5 人已获得签证，预计将在一个月内抵达。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+8月初，俄罗斯驻美国大使阿纳托利·安东诺夫宣布美国当局要求24名俄罗斯外交官离境。安东诺夫指出，由于美国“突然收紧”了获得签证的程序，外交官将在没有替代者抵达的情况下返回俄罗斯。据他介绍，华盛顿打算通过推迟过期签证的延期来“驱逐”俄外交部的工作人员。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+随后，俄罗斯驻纽约副总领事维亚切斯拉夫·斯拉夫金说由于美国拒绝向俄罗斯外交官发放签证，领事馆的工作人员减少了几乎三倍。
+
+10月中旬，美国副国务卿维多利亚·纽兰前往俄罗斯与外交部和总统府会晤。主要议题之一是两国大使馆的工作。在相互减少和驱逐外交官后，美国大使馆停止向俄罗斯人发放签证。
+
+（文章仅代表作者个人观点）
+
+参考链接：[https://www.rbc.ru/politics/24/10/2021/61749f919a794730e19c7435?from=from\_main\_1](https://www.rbc.ru/politics/24/10/2021/61749f919a794730e19c7435?from=from_main_1)

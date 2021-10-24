@@ -2,126 +2,25 @@
 ---
 
 
-## 台湾宝岛出品：疫苗灾害专辑
-` 中共病毒专栏` [轉載自GNews](https://gnews.org/zh-hans/1614423/)
+## 秘翻在线：专家强调北京如何将侵犯人权变成一种产业
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1614525/)
 
-- 撰文/ 台湾宝岛农场 天滅中共
-- 专辑整理：中共病毒小组
+#### 翻译撰稿：Hakunamatata
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/robert-destrsdo-1asdf200x833-700x420-1.jpg)Photo by ANDREW CABALLERO-REYNOLDS/AFP via Getty Images
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/47-1.jpg)](https://gnews.org/zh-hans/1612160/)法国 22 岁男子接种疫苗 10 小时后死亡
+美国国务院(State Department)一位前官员说，中国共产党已经成为利用其侵犯人权行为牟利的专家了。他指出，中共政府将奴隶劳动甚至是被杀害者的身体部位完全商业化。前负责民主、人权和劳工事务的助理国务卿罗伯特・德斯特罗(Robert Destro)表示：中共领导人将追究任何可能对其统治构成挑战的人和事。
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/46.jpeg)](https://gnews.org/zh-hans/1613769/)美国 45 岁 FBI 探员接种疫苗24小时内死亡
+德斯特罗10月18日在哈德逊研究所的座谈会上说，中共是提取专家，他们将一切货币化，从国家资源到你的肝脏，榨取的，胁迫的，压制的，入侵的，这是德斯特罗在描述中国共产党(CCP)时选择的四个词。
 
+关于宗教。德斯特罗说，在中共国人们受到的打击尤其严重，他举例指出，法轮功团体的转变就是一个例子。法轮功于1992年被引入中共国东北城市长春，最早期得到了国家的大力支持，通过口头迅速传播。据官方估计，当时法轮功已经吸引了7000多万信徒。到了1999年7月，当局撤回了所有这些支持，并发起了一场全国性的运动，试图消灭这些组织。德斯特罗说，直到今天，中共依然视法轮功为一个对他们威胁的存在。一些调查认为，这些法轮功的信徒是北京工业化强制器官摘取运动的主要受害者。从被监禁的医生身上提取器官，然后以数万美元的价格出售，这是一种不可能有任何幸存者的可怕医疗过程。
 
+在奥地利维也纳，法轮功练习者举行了“割取被监禁练习者器官”的示威活动。2018年10月1日，奥地利从中共国进口了人体器官。华盛顿法轮功协会的联络主任Sean Lin说：中共政府利用了警察系统、司法系统、医疗系统，来共同实现这一利润链，如果他们找到匹配的人，他们就可以去你家里以任何名义逮捕你并摘取你的器官。据德斯特罗称，中共政权出售自己人民的器官的可怕做法，使其与有组织的犯罪集团没有什么不同。他还曾担任西藏问题特别协调员，他观察到同样的剥削政策正在青藏高原和中共国其他地方执行。他说，西藏一直是中共的一个关键试验场，在那里，邪恶的权肆无忌惮地实施了镇压。这是通过开采该地区的矿产，迫使当地人在文化上融入占人口多数的汉人的做法，迫使西藏精神领袖达赖喇嘛流亡，并将该地区变成一个无处不在被监视的地方。该地区具有极其重要的地缘战略和环境意义，既是推进“一带一路”基础设施项目的门户，也是中共国亚洲与邻国的重要水资源来源。被称为“世界屋脊”的高原高度，也增加了其在向全球投射军事力量方面的战略价值。他说:如果你把导弹放在高原顶上，你就能击中世界上的任何东西。
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/44-1.jpeg)](https://gnews.org/zh-hans/1612091/)格鲁吉亚 27 岁女护士接种疫苗一日后死亡
+在新疆，类似的场景也在上演。在西部偏远地区，估计有100万维吾尔人被关押在一个拘留营网络中，当局称这是“反恐”行动的一部分。美国国际宗教自由委员会(U.S. Commission on International Religious Freedom)副主席、维吾尔族美国律师努里・特克尔(Nury Turkel)表示，该表现出了绝对的无情，对中国共产党来说，任何有组织的宗教、任何宗教活动或信仰都被视为一种威胁。他们被视为对中国共产党生存的威胁。据智库全球政策中心(Center for Global Policy)称，新疆地区供应了中国85%的棉花，以及世界约五分之一的棉花供应，其中很大一部分是因为受到了中共政权强迫劳动的原因。在新疆难民营的维吾尔族妇女看到她们的宝贝头发被剃掉了。据《大纪元时报》采访的幸存者说，其中一些头发后来成了编织和其他美容产品的原料，这些产品后来在美国销售。
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/1-124.jpeg)](https://gnews.org/zh-hans/1607440/)美国 36 岁医学博士接种疫苗后一个月死亡
+逃到美国的法轮功练习者此前告诉《大纪元时报》，在中共国各地的监狱里，玩具、人造花、化妆品和衣服只是囚犯被迫每天长时间苦力干活的部分物品，通常很少几乎都没有薪酬。专家们说，这些政权侵犯人权的影响不会仅限于中共国的边境。随着中共在全球供应链中扮演的重要角色，该政权毫不犹豫地运用其经济力量回击西方的批评，并让美国企业屈服于自己的意志。今年初，中共国政府带头抵制主要的国际服装品牌，这些品牌试图在产品中避免使用新疆棉，导致十几个时装品牌失去了它们的中国品牌大使。
 
+哈德逊研究所宗教自由专家尼娜・谢伊(Nina Shea)是该小组的主持人，她指出，当川普政府对中共国商品征收关税时，在中共国印刷了数千万本圣经的美国圣经出版商，却一边站在北京游说华盛顿反对这项措施，这是中共国自觉地与自由民主模式竞争的另一种生活和存在的模式。谢伊和德斯特罗说：中共宗教界的困境值得美国更加关注。
 
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/40-1.jpeg)](https://gnews.org/zh-hans/1605901/)英国 34 岁妈妈接种疫苗 10 日后死亡
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/38-1.jpeg)](https://gnews.org/zh-hans/1603945/)葡萄牙 18 岁女大学生接种疫苗5日后死亡
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/37-1.jpeg)](https://gnews.org/zh-hans/1603893/)意大利 18 岁排球运动员接种疫苗27日后死亡
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/36-1.jpeg)](https://gnews.org/zh-hans/1601721/)中国 12 岁少女接种疫苗 7 日后死亡
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/35-1.jpeg)](https://gnews.org/zh-hans/1601320/)希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/32-2.jpeg)](https://gnews.org/zh-hans/1599033/)意大利 18 岁女学生接种疫苗10日后死亡
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/31-1.jpeg)](https://gnews.org/zh-hans/1598913/)法国 16 岁少女接种疫苗 5 日后死亡
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/30-1.jpeg)](https://gnews.org/zh-hans/1597702/)新加坡 44 岁指挥家接种疫苗七周后死亡
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/29-1.jpg)](https://gnews.org/zh-hans/1597333/)科威特 48 岁著名男星接种疫苗两周后死亡
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/28-1.jpeg)](https://gnews.org/zh-hans/1596153/)美国 21 岁医科生接种疫苗1日后死亡
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/27-2.jpeg)](https://gnews.org/zh-hans/1593122/)巴西 13 岁男孩接种疫苗 6 周后死亡
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/24-2.jpeg)](https://gnews.org/zh-hans/1589503/)法国 24 岁男医科生接种疫苗 10 日后死亡
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/21-3.jpeg)](https://gnews.org/zh-hans/1582909/)意大利 14 岁女孩接种疫苗两日后昏迷 现已离世
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/20-1.jpeg)](https://gnews.org/zh-hans/1582698/)韩国 20 岁女学生接种疫苗12日后死亡
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/19-2.jpeg)](https://gnews.org/zh-hans/1581220/)美国 16 岁少年接种疫苗 5 日后死亡
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/14-2.jpeg)](https://gnews.org/zh-hans/1578774/)加拿大 17 岁曲棍球运动员接种疫苗两周后死亡
-
-
-
-
-* * *
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpeg)
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/45-2.jpeg)](https://gnews.org/zh-hans/1612160/)比利时 22 岁自行车手接种疫苗后心力衰竭 职业生涯被迫结束
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/43-2.jpeg)](https://gnews.org/zh-hans/1610841/)意大利 18 岁少年接种疫苗2周内突患罕见病
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/41-1.jpeg)](https://gnews.org/zh-hans/1607321/)澳洲 30 岁夫妇接种疫苗后相继出现心脏疾病
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/39-1.jpeg)](https://gnews.org/zh-hans/1605744/)美国 35 岁疫苗拥趸孕期接种后致新生儿夭折
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/34-7.jpeg)](https://gnews.org/zh-hans/1601146/)意大利 25 岁女明星接种疫苗后患上心包炎
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/33-2.jpeg)](https://gnews.org/zh-hans/1599126/)英国 58 岁前世界冠军接种疫苗后截肢保命
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/26-2.jpeg)](https://gnews.org/zh-hans/1593082/)NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/22-3.jpeg)](https://gnews.org/zh-hans/1589436/)美国 47 岁教育学硕士接种疫苗后双腿截肢
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/212_1.jpeg)](https://gnews.org/zh-hans/1585176/)德国 28 岁女演员接种疫苗后几乎毁容
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/212_0.jpeg)](https://gnews.org/zh-hans/1585160/)澳洲 29 岁知名女星接种疫苗后患上心包炎
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/18-2.jpeg)](https://gnews.org/zh-hans/1580961/)加拿大 22 岁女医护接种疫苗后瘫痪
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/17-1.jpeg)](https://gnews.org/zh-hans/1579390/)希腊 65 岁男演员接种疫苗后因血栓而中风入院
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/16.jpeg)](https://gnews.org/zh-hans/1578815/)法国 13 岁男孩接种疫苗10日后失明
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/11-3.jpg)](https://gnews.org/zh-hans/1574393/)爱尔兰 28 岁医科女学生接种疫苗后瘫痪
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/8-1.jpg)](https://gnews.org/zh-hans/1572298/)美国 16 岁少女接种疫苗后神经损伤
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/6.jpg)](https://gnews.org/zh-hans/1570258/)法国 32 岁铁人三项运动员接种疫苗后致肺栓塞
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/1-9.jpg)](https://gnews.org/zh-hans/1568652/)英国 29 岁创意总监接种疫苗后瘫痪
+原文链接：** [‘They Will Monetize Everything’: Experts Highlight How Beijing Has Turned Rights Abuses Into an Industry](https://www.theepochtimes.com/they-will-monetize-everything-experts-highlight-how-beijing-has-turned-rights-abuses-into-an-industry_4064929.html)**
