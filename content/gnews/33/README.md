@@ -2,31 +2,34 @@
 ---
 
 
-## 香港马拉松发生多人受伤，赛前强制选手接种疫苗
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1614763/)
+## 美国CDC可能更改疫苗“完全接种”的定义
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1614816/)
 
-**撰稿：日本东京方舟农场 海星**
+作者：俄罗斯莫斯科喀秋莎农场 – 仰望七星
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+由于“加强针”的出现，所谓“完全接种”的定义可能被更改。拜登政府官员本周五敦促符合条件的美国人接种中共病毒疫苗的加强针。疾病控制和预防中心负责人表示，可能会更新其关于“全面疫苗接种”的定义。
 
-10月24日，在香港举行的马拉松比赛中发生多人受伤，在赛前主办方要求所有选手必须完成接种两剂中共病毒疫苗方可参赛。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-14.jpeg)
 
-据《中时新闻网》报导，香港医管局表示，截至今早11点，马拉松比赛中共有10名选手身体不适送医，伤者9男1女，年龄32至87岁，其中5人病情严重、2人稳定，2人已出院，另有1人生命垂危，正在律敦治医院治疗中。
+目前，在美国，如果打完两剂辉瑞或两针莫德纳疫苗，又或打了一剂强生疫苗，都被视为完全接种。疾病预防控制中心主任罗谢尔·瓦伦斯基说：目前还没有改变相关定义，但他也表示，将继续研究，并可能需要在未来更新‘完全接种’的定义。”她同时还鼓励民众打第三剂加强针。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/id13321499-2110212208191538-600x400-1.jpg)图片来自于网络
+可见，不久的将来，3针也将不够用了，疫苗护照也不能用了，需要第4甚至第5针，才能达到所谓“完全接种”的状态。多少人将因此失去生命。文贵先生多次提醒，疫苗灾难还没有真正开始，留给人类的时间真的不多了。
 
-根据资料，这场比赛中有445名选手受伤，原因包括发烧，扭伤及抽筋等。
+(本文仅代表作者观点)
 
-另据《大纪元》报导，所有参赛选手必须完成两剂疫苗接种，并且要于赛前72小时完成病毒检测，结果阴性才可出赛。在接受病毒检测后，亦要戴上识别手带，直至比赛结束后才可取下。
+参考链接：[CDC：可能改变中共病毒疫苗“全接种”的定义](https://gnews.org/zh-hans/1613057/)
+[CDC: Definition of Full Vaccination for COVID-19 May Change](Definition%20of%20Full%20Vaccination%20for%20COVID-19%20May%20Change)
 
-*注：本文仅代表作者观点，与 Gnews无关*
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-*参考链接：*
+总编：山本不惑
+编辑：正义的小新
+校正/发稿：谐趣园
 
-[香港馬拉松今開跑 400人受傷 10人送醫1命危](https://www.chinatimes.com/realtimenews/20211024001861-260409?chdtv)
-
-[渣馬至少23人不適送院　其中1人危殆　有跑手終點前暈倒](https://hk.on.cc/hk/bkn/cnt/news/20211024/bkn-20211024104127788-1024_00822_001.html)
-
-[香港渣马参赛者昨起领取选手包](https://www.epochtimes.com/gb/21/10/22/n13321493.htm)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

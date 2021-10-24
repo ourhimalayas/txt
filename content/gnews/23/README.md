@@ -2,9 +2,27 @@
 ---
 
 
-## 数码世界收购集团（DWAC）与运鸿国际的关系
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1614850/)
+## 俄国防部长称北约在俄边境部署部队是军事挑衅
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1614886/)
 
-#### 秘密翻译组
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-115.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/4-64.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/6-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/7-17.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/8-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/10-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/12-14.jpg)
-[全文](https://assets.gnews.org/wp-content/uploads/2021/10/Digital-World-Acquisition-Group-Yunhong-.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/10/Digital-World-Acquisition-Group-Yunhong-.pdf)
+俄罗斯莫斯科喀秋莎农场 星河
+
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/N-10.jpg)farsnews.ir
+美东时间10月24日报道，俄罗斯国防部长谢尔盖∙绍伊古（Sergei Shoigu）在回应德国国防部长安妮格雷特∙克兰普-卡伦鲍尔（Annegret Kramp-Karrenbauer）时表示，北约联盟正在将部队拉向俄罗斯边境，这是军事挑衅。
+
+绍伊古强调，“北约这么做对德国和欧洲来说是怎样的结局，德国国防部长肯定很清楚。欧洲的安全只能是共同的，首先要做的就是不侵犯俄罗斯的利益。但今天这恰恰是北约没有准备好就这个问题同俄罗斯进行平等对话。”
+
+绍伊古认为，在阿富汗，世界正在应对北约军事联盟的遏制计划导致的灾难。
+
+德国国防部长卡伦鲍尔在前一天谈到了对俄罗斯的威慑战略。她说，北约必须向俄罗斯表明愿意使用军事手段来应对俄罗斯的威胁。德国国防部长警告说，任何人甚至不应考虑攻击波罗的海国家或黑海的北约成员。
+
+卡伦鲍尔在4月份称，俄罗斯的行动威胁到了欧洲安全。她指出，在她看来，俄罗斯的政策是与西方相反的不自由、反民主的。这位部长还提到了“可以到达德国”的俄罗斯导弹系统，她说这违反了现有的武器协议。
+
+俄罗斯则表示，北约对平等对话和合作不感兴趣。
+
+（文章仅代表作者个人观点）
+
+参考链接：
+
+[https://www.rbc.ru/politics/23/10/2021/6173fa289a79470934721ba7?from=from\_main\_7](https://www.rbc.ru/politics/23/10/2021/6173fa289a79470934721ba7?from=from_main_7)
