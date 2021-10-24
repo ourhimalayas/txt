@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/24/2021 6:05 PM (UTC)`
+
+Digital World Acquisition Group and Yunhong International<br/><br/>https://gnews.org/zh-hans/1615085/<br/><br/>数码世界收购集团（DWAC）与运鸿国际的关系<br/><br/>https://gnews.org/zh-hans/1614850/
+
+---
+
 `@miles 10/24/2021 3:29 PM (UTC)`
 
 疫苗的灾难
@@ -287,13 +293,6 @@ Every day is a Fashion Show, and a the world is your runway. G Fashion’s New C
 
 10/20/2021 Miles Guo: Half of the 20 people accompanying Jack Ma who are supposed to watch over him have been bribed by him. Jack Ma will either be killed by the Jiang family like how Wang Jian was murdered or be sent to a certain European country instead of the US and Japan. If neither is the case, then the shares of Alibaba held by Jack Ma will definitely be sold off after the share price goes up, which means the fraud is successful. But Jack Ma will end up either being killed or sent to jail<br/><br/>10/20/2021 文贵直播: 监视马云的20名随行人员中的一半被他收买，马云要么是被江家像弄死王健一样弄死他；要么会被送往美日之外的欧洲某国。若两种情况均未发生，马云在阿里巴巴的持股定会在股票大涨后被抛售，诈骗成功。但最终他要么被杀，要么被送进监狱。<br/>
 ![img](https://media.gettr.com/group14/getter/2021/10/20/23/32/cf0a6ac1-4b9e-e97b-3911-3b953a1b3a5d/out.jpg)
-
----
-
-`@miles 10/20/2021 11:05 PM (UTC)`
-
-10/20/2021 Miles Guo: Jack Ma is handling about 3000 assets, with Joe Tasi helping him launder 75% of his money. By pushing the “great economic revolution”, the CCP attempts to strengthen its reign, wage an economic unrestricted warfare against Europe and the US, and plunder the entire world’s wealth<br/><br/>10/20/2021文贵直播：马云正在处理大概3000多笔的资产，蔡崇信帮马云洗掉了他75%的钱；中共妄图通过搞经济大革命来强化统治、对欧美等国发动经济超限战并掠夺全球财富。<br/>
-![img](https://media.gettr.com/group3/getter/2021/10/20/23/05/20f74439-e449-0ae1-3d49-25a37fe3b0da/out.jpg)
 
 ---
 
