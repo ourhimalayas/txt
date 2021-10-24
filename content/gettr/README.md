@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/24/2021 12:30 PM (UTC)`
+
+2021年10月24日 文贵大直播：详解SPAC上市公司结构； 最新疫苗伤亡与反疫苗； 许家印海外借贷利息怎么还
+![img](https://media.gettr.com/group11/origin/2021/10/24/12/0f8ed26c-2613-c37b-1e53-10e2c981f8a4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 10/24/2021 12:09 AM (UTC)`
 
 10/22/2021 Miles Guo: Xi’s investigation on the 25 financial institutions sounds like a big deal, but it won’t make a difference. Instead, this has effectively united those who want to eliminate Xi; Xi is following Mao Zedong’s same old path and is being fooled by his subordinates such that he believes that the people of Taiwan welcome him; Without the constraints of the system, any leader can turn into a devil!<br/><br/>10/22/2021 文贵直播：习对25家金融股机构的调查雷声大雨点小，这反而将想灭习的人团结在一起；习重走了毛的老路且被手下人忽悠，竟认为台湾人民欢迎他；没有制度约束的领导人都会成魔！<br/>
@@ -289,13 +296,6 @@ Every day is a Fashion Show, and a the world is your runway. G Fashion’s New C
 
 10/19/2021 Miles Guo’s GETTR: Jack Ma has completely lost his freedom even he’s “running around” in Spain; those so-called successful people who has no guts to fight against the CCP by claiming they love and attribute filial piety to their family won’t be better off than Wang Jian, Bo Xilai or Zhou Yongkang; only the NFSC and the Whistleblowers’ Movement can rescue you!<br/>
 ![img](https://media.gettr.com/group17/getter/2021/10/20/04/00/88775a6c-17ef-6258-b401-3564d4bba507/out.jpg)
-
----
-
-`@miles 10/19/2021 3:28 PM (UTC)`
-
-10/18/2021 Miles Guo: Money has its owners - the money that belongs to the Chinese shouldn’t be taken away! In the Communist China, 0.001% or even 0.00001% of the Chinese people possess the same amount of wealth as the remaining 99.999% of the people; There is no one responsible for Bitcoin, which decentralizes responsibilities.<br/><br/>10/18/2021 文贵直播：金钱是有主人的- 属于中国人民的钱不能被他人夺走！在中共国，0.001%甚至0.00001%的人拥有着和剩下99.999%的人同等的财富；比特币没人负责，因为责任被去中心化<br/>
-![img](https://media.gettr.com/group28/getter/2021/10/19/15/28/ef09daca-8f02-5380-12b3-e5dfae356cd1/out.jpg)
 
 ---
 
