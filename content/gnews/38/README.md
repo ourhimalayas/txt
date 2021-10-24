@@ -2,25 +2,24 @@
 ---
 
 
-## 土耳其开始从美国采购F-16战机
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1614852/)
+## 中共病毒疫苗,污染物,独立分析,独立分析发现中共病毒疫苗存在可疑成分或污染物
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1614876/)
 
-俄罗斯莫斯科喀秋莎农场 GVBG伊万
+**听写/翻译：Lish
+校对/编辑：枳实
+字幕/剪辑：蛮吉**
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/F-2.jpg)currentnewnews.com
-美东时间10月24日消息，土耳其国防部长胡卢西∙阿卡尔表示，“土耳其已开始从美国购买F-16战斗机。”
+学者对莫德纳疫苗进行了独立分析，在其中发现了各种可疑成分，其尺寸明显远远大于疫苗声称的成分脂质纳米颗粒，他认为，需要对新冠疫苗的成分和纯度做进一步调查。
 
-阿卡尔称，“采购F-16的技术工作已经开始，我们正在跟进。土耳其国防力量的加强也意味着北约的加强”。
+**视频链接：**[ANALYSIS OF MODERNA VACCINE VIAL SHOWS MYSTERY ROD-LIKE OBJECTS & “WIDE SPECTRUM OF STRUCTURES”](https://www.bitchute.com/video/G3HMHxLlbQEW/)
 
-安卡拉最初向美国订购了100多架新一代战斗机F-35，但在土耳其采购俄罗斯S-400“凯旋”防空系统后，华盛顿拒绝出售飞机。该国以25亿美元收购了该系统的四个部门，并于2017年12月达成协议。
+（文章仅代表作者观点，与GNEWS无关）
 
-美国多次对土耳其与俄罗斯的交易表示不满。2020年12月，华盛顿对土耳其国防工业局及其负责人伊斯梅尔·德米尔购买S-400实施制裁。
+**发布：**Janek
 
-2021年10月中旬，土耳其总统埃尔多安表示，华盛顿建议土耳其购买F-16战斗机作为对F-35采购计划投资的补偿。据他说，土耳其为美国拒绝交付的飞机支付了14亿美元，提议用这笔钱从美国购买新的F-16，并对土耳其现有的F-16进行现代化改造。
-
-（文章仅代表作者个人观点）
-
-参考链接：
-
-[https://www.rbc.ru/rbcfreenews/6173e0a09a7947059d2fcf50](https://www.rbc.ru/rbcfreenews/6173e0a09a7947059d2fcf50)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,17 +2,22 @@
 ---
 
 
-## 文贵焦点10/24 不要陪葬许家印房地产 国内疫苗伤亡惊人
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1615040/)
+## 香草山翻译部周刊|2021年10月24日第19期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1615138/)
 
-撰稿：大仙鹤【秘翻原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-24-at-1.00.32-PM-1.png)图片来源：GTV、GETTR
-2021年10月24日新中国联邦大直播中，郭文贵先生表示国内房地产无法继续下去。国内20-65岁之间注射新冠疫苗者生育怪胎很多。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-413.png)
 
-如果中国房地产还能持续下去，许家印、马名哲、董文标、红旗、上海银行等企业能够继续下去，见了文贵可以杀无赦。文贵不希望大家继续投资他们，因为恒大在2020年香港转钱的时候，许家印就劝其小女友卖房。在荷兰、丹麦、意大利替许家印藏钱的人，在几个月以前就把钱变成了瑞郎，把自己的东西低价卖掉，以七到八折的价格卖给自己亲近的人。现在共产党连钱加东西往回拿。文贵拒绝他们投资喜币。许家印在售卖57号的老窝办公室，卖自己藏的东西。 马云不敢回国，他不在船上，因为马云担心自己回去将不能再出来。沾了吴征的人，没有一个好下场。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/text-CN-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-关于国内打疫苗，内部医疗人士爆出：80%的死亡是血栓的原因，20到65岁之间，生育的怪胎很多。香港养和医院的死亡人数惊人，尤其是孕妇难产死亡。文贵再三呼吁不要打疫苗。
+编辑： Lakers
+发稿： Lakers
 
-校对发布：Shifter
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
 
-来源链接：https://gettr.com/streaming/pf2ptd1c68
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
