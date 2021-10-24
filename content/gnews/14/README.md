@@ -2,9 +2,22 @@
 ---
 
 
-## 10/13郭文贵直播：中美之间必有一战，导致世界排华升级（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1614386/)
+## 樱花灭共诗——疯卷（新韵）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1614391/)
 
-10/13/2021 郭文贵直播：中美之间必有一战，其根本原因在于中共的经济──房地产将彻底崩溃、中共将停止购买美债并无法偿还欠西方的债务；中美一旦开战，排华必将升级！
+撰稿：东京樱花团/曲非烟
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-437.png)
+风魔席卷后，
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+江外缀残云。
+
+天象万千化，
+
+俱晴来岁春。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-438.png)
+（文章仅代表作者本人观点，与GNEWS无关）
+
+*插图：东京樱花团/闪闪
+校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)

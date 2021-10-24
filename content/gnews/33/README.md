@@ -2,33 +2,54 @@
 ---
 
 
-## 中共国在世贸审议遭到50多个成员严厉抨击
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1614228/)
+## 各方督促加州港进入紧急状态以应对塞港
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1614233/)
 
-作者：澳喜农场 在远方
+**编译：聖地香港**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip61.png)洛杉矶港。图片来源：Getty Images网，Robyn Beck/AFP
+- 加利福尼亚州的一位货运老板表示，官员们应该对堵塞的港口实施紧急状态。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+- 周一，等待进入洛杉矶和长滩港口的船只数量创下历史新高。
 
 
+- 专家表示，解决危机需要供应链的各方通力合作。
 
-10月20日，在世界贸易组织第八次对华贸易政策审议上，美国等50多个成员代表发言，严厉抨击中共国的不公正贸易政策，谴责中共通过大量使用工业补贴，和其他不公正做法，破坏了基于规则的全球贸易体系。与会中共代表则全盘推诿，否认指责。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1024AM（1-3.002.jpeg)
-在世贸组织的法律顾问，佩特罗思·马维里迪斯对此解释说，对于世贸组织未能涵盖的新领域，中共正好钻了空子。现在各成员国越来越意识到，问题的症结所在是，世贸组织的有关规则，以及中国签署的入世议定书，已不够涵盖和解决它们在21世纪面临的与中国的贸易争端。据专业人士说，中共入世20年来，无视基于自由市场的世贸精神，对原有的国际贸易规则以及已经签订的协议，肆意践踏。
-(本文仅代表作者观点)
 
-参考链接：[入世20年 中国在世贸审议遭遇严厉抨击](https://www.voachinese.com/a/us-allies-face-off-china-wto-review-20211022/6282503.html)
+南加州一位货运老板说，官员们应该对堵塞的港口实施紧急状态，以缓解港口的拥堵。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+在接受福克斯新闻采访时，加州卡车运输协会首席执行官Shawn Yadon表示，供应链中包括船运、卡车、铁路及仓储在内的每个环节都需要采取行动解决危机，其他专家也认为应该如此。
 
-总编：Ivy001
-编辑：Kathy文艺
-校正/发稿：我不在这里
+海事交易所的数据显示，周一，洛杉矶和长滩的港口创下了100 艘漂浮在海岸外等待卸货的船只的新记录。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+Yadon在福克斯商业新闻中称，包括货车运输在内的供应链劳动力短缺导致了这场 “完美风暴”席卷港口。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+他补充说：“我认为加利福尼亚必须考虑进入紧急状态了。”
+
+在周一等待的 100 艘船中，97 艘集装箱船的货物可能会错过假日购物季。
+
+海事交易所的负责人 Kip Louttit 本周告诉本站（Insider），在大流行之前，港口的最高记录是 17 艘船等待抛锚停泊。
+
+已在码头堆放数周的集装箱正在等待卸货，但码头工人和货车司机的短缺导致这一期限无限延长。
+
+这一记录产生的前几天，白宫已经宣布洛杉矶港将追随其邻居长滩港的步伐转向全天候作业。
+
+本周，美国卡车运输协会的负责人告诉CNN，目前卡车司机缺口是八万，也创下历史新高。
+
+**评论：**
+
+**看这种新闻十分无语，社会运行缺少任何一环都可能导致停摆，例如澳洲卡车司机罢工导致超市无货可卖等等。同时全球各地都在做着头痛医头脚痛医脚的事情，整个世界因为中共病毒，因为疫苗已经产生了多少的问题，却少有人去寻求根源的解决方案。**
+
+**新中国联邦、爆料革命早早为世界指明了方向，找共产党要解药，共产党有解药。如果一直放任左手拿病毒、右手拿疫苗和解药的恶霸横行乡里，类似的社会问题只会越积越多，直至某天“君之疾在骨髓，司命之所属，无奈何也”。**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**参考资料：**[businessinsider.com] [The shipping crisis in California is now so bad that officials should consider declaring a state of emergency, the head of the California Trucking Association says](https://www.businessinsider.com/supply-chain-state-of-emergency-california-ports-2021-10)
+
+* * *
+
+***审核: 文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)
