@@ -186,9 +186,12 @@
 ### [NIH坐实资助武毒所，福奇国会作证在撒谎](/content/gnews/57/README.md)
  ` 墨尔本雅典娜农场`
 
-### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/58/README.md)
+### [半中心化加密货币的猜想](/content/gnews/58/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/59/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/59/README.md)
+### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/60/README.md)
  ` 秘密翻译组-北美组`
 
