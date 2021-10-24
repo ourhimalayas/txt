@@ -2,10 +2,27 @@
 ---
 
 
-## DWAC的11个合格机构买家或机构认可投资者
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1614568/)
+## NBA球员坎特再发视频，谴责中共、声援维吾尔人
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1614717/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-130-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/2-113-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0003-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0004-1-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0005-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0006-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0007-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0008-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0009-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0010-scaled.jpg)
+**撰稿：日本东京方舟农场 幽蘭自得**
 
+据德国之声10月24日报道，美国职业篮球联赛（NBA）的波士顿凯尔特人队中锋埃内斯·坎特在推特上又发布了一个新视频，谴责中共对维吾尔人和其他穆斯林少数民族的人权迫害。两天前，他因在一个类似的视频中谴责中共压制藏族人被中共国封杀。
 
-[全文](https://assets.gnews.org/wp-content/uploads/2021/10/11-investors-to-Digital-World-.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/10/11-investors-to-Digital-World-.pdf)
+坎特在推文中写道，“狠心的独裁者习近平和中国共产党。我在全世界面前点你们的名。关闭奴工营并释放维吾尔人民！现在就停止种族灭绝！”
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211024161640.png)图片来自于网络
+
+他在这则推文所附的视频上说：“此时此刻，种族灭绝正在发生，——就在我讲这段话的时刻，酷刑、强奸、强迫堕胎和绝育、拆散家庭、任意拘押、集中营、政治再教育、强迫劳动此刻正发生在中国西北的新疆地区180多万维吾尔人身上。”
+
+坎特本星期在社交媒体上发声支持西藏自由后，中共媒体对他进行痛骂，腾讯对其进行封杀，该体育平台下架了所有关于凯尔特人队的比赛情况。
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[美国对中国封杀NBA球队表关切 球员坎特再发视频声援维吾尔人](https://www.voachinese.com/a/China-us-NBA-boston-celtics-kanter-20211022/6281997.html)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

@@ -2,28 +2,30 @@
 ---
 
 
-## 美国CDC可能更改疫苗“完全接种”的定义
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1614816/)
+## 美联储称强制疫苗加剧供应链危机
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1614839/)
 
-作者：俄罗斯莫斯科喀秋莎农场 – 仰望七星
+作者：美东香草山农场 – 文真
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-由于“加强针”的出现，所谓“完全接种”的定义可能被更改。拜登政府官员本周五敦促符合条件的美国人接种中共病毒疫苗的加强针。疾病控制和预防中心负责人表示，可能会更新其关于“全面疫苗接种”的定义。
+美联储最新一份褐皮书报告称，疫苗强制令正在损害就业，影响供应链危机，并推高物价。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-14.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-36.jpeg)
 
-目前，在美国，如果打完两剂辉瑞或两针莫德纳疫苗，又或打了一剂强生疫苗，都被视为完全接种。疾病预防控制中心主任罗谢尔·瓦伦斯基说：目前还没有改变相关定义，但他也表示，将继续研究，并可能需要在未来更新‘完全接种’的定义。”她同时还鼓励民众打第三剂加强针。
+总统拜登在九月份要求全美企业，凡是规模在百人以上的，都要让员工接种疫苗或提交和核酸报告。因总统行政令，很多公司强迫员工接种疫苗，导致不愿接受强制疫苗政策的员工被迫辞职，或者罢工。西南航空公司员工大规模罢工，令一千多航班取消。芝加哥和巴尔的摩等城市的警察和消防员，很大一部分人可能会因为拒绝接种而失去工作。
 
-可见，不久的将来，3针也将不够用了，疫苗护照也不能用了，需要第4甚至第5针，才能达到所谓“完全接种”的状态。多少人将因此失去生命。文贵先生多次提醒，疫苗灾难还没有真正开始，留给人类的时间真的不多了。
+美联储的褐皮书称，儿童保育问题和强制疫苗是造成企业员工离职的主要原因。因疫苗强制令解雇员工的公司和机构，面临人手的问题。由于缺少仓库工人和卡车司机，使货物滞留在港口，无法及时运输到各地，也导致港口船舶因不能卸载，而无法返航。硬件设备和医疗用品也出现紧缺。鱼肉禽蛋的零售价格已经被2020年上涨10%。商店货架出现过往少有的空架状况。
+
+美联储主席鲍威尔似乎表示了更加强烈的缩表意愿。美联储也可能加快升息的步伐，下一次会议决定加息的几率已经超过八成。
 
 (本文仅代表作者观点)
 
-参考链接：[CDC：可能改变中共病毒疫苗“全接种”的定义](https://gnews.org/zh-hans/1613057/)
-[CDC: Definition of Full Vaccination for COVID-19 May Change](Definition%20of%20Full%20Vaccination%20for%20COVID-19%20May%20Change)
+参考链接：[Federal Reserve: Vaccine Mandates Hurting Employment, Exasperating Supply Chain Crisis](https://www.breitbart.com/economy/2021/10/21/federal-reserve-vaccine-mandates-hurting-employment-exasperating-supply-chain-crisis/)
+[Powell Says Worsening Supply Side Constraints Raise Inflation Risks](https://www.breitbart.com/economy/2021/10/22/powell-inflation-risks/)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-总编：山本不惑
-编辑：正义的小新
+总编：Ivy001
+编辑：山本不惑
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

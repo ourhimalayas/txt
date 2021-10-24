@@ -2,26 +2,21 @@
 ---
 
 
-## 有声|43国在联合国发表声明对中共镇压维吾尔人表示关切
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1614803/)
+## 文贵爆料10/24 吴征等中共情报势力正给川普新媒体设置刑事犯罪陷阱
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1614820/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-10月23日，美、法、土耳其等43个国家在联合国发表正式声明，对中共国境内维吾尔人和其他穆斯林突厥民族的境况表示关切。
+撰稿：回响【秘翻原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-24-at-11.20.23-AM.png)图片来源：GTV、GETTR
+爆料革命发起人、新中国联邦创始人郭文贵先生在10月24日大直播中开篇就爆出会对世界造成重大冲击波的大事件：共产党特务吴征等通过推出川普新媒体TRUTH Social对美国前总统进行构陷的惊天阴谋！
 
-法国常驻联合国代表古拉斯·代·里维耶尔大使说：“中共对新疆穆斯林存在整体性和系统性的迫害，包括侵犯人权、酷刑折磨、强迫劳动、性暴力和强迫把子女分开等。中共还对民众实施大面积监控，群众的宗教、行动、表达自由以及维吾尔文化则受到严厉的限制。”
+郭先生用事实和数字揭示了美国上市公司SPAC从 9月2号上市至今一系列异常数字背后的诡异行为，并用详实的调查资料展示了背后11家投资机构的来龙去脉：除了3家是美国、加拿大的基金公司，其余全部是中共控制的！！！
 
-土耳其、利比亚、斯威士兰是首次参与。各国共同呼吁派驻联合国人权事务高级专员前往新疆调查。
+郭先生郑重告知公众：SPAC运作TRUTH Social背后整个行动目的，是对盖特极度恐惧并欲除之而后快的中国共产党。中共相关情报机构阻止川普进入盖特并破坏盖特，主要利用内幕交易和操纵股市，包括制造不实数据和文件等违法欺诈手段，使得美国前总统川普先生或许面临刑事犯罪的诉讼，导致川普总统面临重大政治风险，甚至其整个家族陷入灾难。而且中共意图让爆料革命、新中国联邦去攻击川普。
 
-文字版原文：[43国在联合国发表声明对中共镇压维吾尔人表示关切](https://gnews.org/zh-hans/1611949/)
+同时首次重磅爆出：幕后协调整个中共情报相关机构进行操作的中共间谍吴征（美国身份）2019年就被美国FBI刑事调查。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+最后郭文贵先生强调，爆出整个事件的目的， 是因为爆料革命最在乎的就是灭共事业！是要让世界知道共产党对盖特的恐惧！同时要让世界知道共产党的邪恶及其在DWAC(Digital World Acquisition Crop)投资行动的真正目的。
+
+【视频链接】https://gtv.org/broadcast/watch/617551cfeadeb11f5e79f5d6
+
+校对发布：Shifter
