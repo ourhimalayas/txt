@@ -2,31 +2,27 @@
 ---
 
 
-## 美光科技计划70亿美元广岛建厂，或将是撤离中共国的前兆
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1613488/)
+## 有声|比特币和勒索赎金双创新高
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1613544/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/12-13.jpg)[图片来源](https://asia.nikkei.com/Business/Tech/Semiconductors/Micron-challenges-Samsung-s-dominance-in-memory-market)
-财联社10月20日讯，据日本当地行业媒体报道，国际存储芯片巨头美光科技（Micron）计划在日本广岛市新建一座DRAM芯片厂，同样有望拿到日本政府的大额补贴。
+配音：香草山美食部 – 玫瑰园
 
-其实美光科技在东广岛市已经有一座工厂并配有研究设施，主要生产传输速度稍慢一些的NAND记忆芯片。报道称公司计划在现有工厂附近采购地皮，预计新工厂的投资将达到6000-8000亿日元（约合52-70亿美元）。
+据美国电视新闻网报道，首个与比特币相关的基金交易已于10月19日推出，为此，比特币在20日上午跃升至历史新高。
 
-这一动向也与日本政府极力推动半导体产业国内“闭环”的努力有关。在今年六月经产省的报告中，日本政府将确保半导体产业增长称为“国家项目”，拔高到与确保食品和能源安全同样的高度。虽然日本目前仍坐拥全球数量最多的芯片生产设施，但近百座工厂无法生产足够多的高端半导体产品，所以日本目前进口半导体的比例仍高达六成。
+然而，美国财政部金融犯罪执法网络表示，以比特币为交易手段的勒索和其他犯罪案件屡见不鲜，相关案件勒索金额高达52亿美元，且此类案件在近十年间持续上升。
 
-据悉美光的新工厂将在2024年投入运营，旨在满足中长期数据中心及其他应用的需求。包含商业伙伴在内，新工厂预期将创造2000-3000个就业岗位。虽然具体的事项仍未官宣，但美光科技的大手笔投资背后离不开日本政府的大额补贴。
+对此，郭文贵先生在10月20日的大直播强调，比特币是一个犯罪、洗钱的工具，其只能在暗网中流通。因此，比特币是一种使用去中心化技术的中心化假币。与之相对的，即将上市的喜币有负责人及法人，与黄金锚定且与美元直接挂钩，其未来的价值以及在全球经济体系中起到的作用将不可估量。
 
-反观在中共国的发展，自2007年3月21日西安工厂落成投产以来，美光科技在中共国的营收不断增长。据公开数据，美光科技2017财年在中共国的营收约为103.88亿美元，低于三星的253.86亿美元、高于海力士的89.08亿美元。
+文字版原文：[比特币和勒索赎金双创新高](https://gnews.org/zh-hans/1608512/)
 
-随着2018年开始的中美贸易战，中共动用国家权力打击美光科技在中共国的发展。2018年5月31日，中国反垄断机构对三星、海力士、美光位于北京、上海、深圳的办公室展开突然调查。2018年7月3日，福州中级法院裁定对美光科技发出“诉中禁令”，美国部分闪存SSD和内存条DRAM将暂时遭禁止在中国销售。
+音频处理：喜山必胜Maverick
 
-当前，中共政治、经济和社会形势急转直下，外资外企撤离潮兴起。可以说，美光科技在日本建立新工厂，既有日本政府半导体产业政策的引导作用，更有美光科技为规避中共国的风险和不确定性而做的提前准备。
-
-信息来源：
-
-[日本半导体招商努力新进展：美光科技将投资70亿美元建厂](https://finance.sina.com.cn/stock/usstock/c/2021-10-20/doc-iktzscyy0758454.shtml)
-
-(文章仅代表作者本人观点，与GNEWS无关)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

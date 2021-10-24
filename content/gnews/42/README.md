@@ -2,35 +2,31 @@
 ---
 
 
-## 中共病毒导致男性的精子数量锐减
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1612948/)
+## 拜登承认会保护台湾 美军铲平中共军事基地只需3分钟
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612949/)
 
-**撰稿：日本东京方舟农场 北极**
+作者：澳喜农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月21日，美国总统拜登在采访时表示，“一旦中共发动攻击，美国承诺会保护台湾。”
 
-10月8日，澳喜农场多语组发布在盖特的视频片段，法国遗传学家亚历山德拉∙亨里昂“·考德（Alexandra Henrion-Caude）警告说，中共病毒导致男性的精子数量锐减，注射疫苗可能会改变男性的生育能力。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-18.jpeg)
 
-亚历山德拉披露，医疗小组对12名有中共病毒患病史的死者进行了尸检，观察到睾丸组织发生了非常明显的病变。这个结果解释了早前的发现，他们曾发现中共病毒患病史的男性精子数量明显减少。
+早10月17日，郭文贵先生就在直播中爆料，美国的专业人士明确答复，如果共产党直接攻打台湾的话，美军是会出手的，一旦美军出手日本也一定会出手。其中最令人惊讶的是，把共产党所有100%的军事基地铲平，包括空中与陆地的军事设施，美军单独行动只需要3分钟，如果日本单独作战也只需要5分钟。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211023171530.png)图片来自于网络
+(本文仅代表作者观点)
 
-令人困惑的是，在所有精液样品中并未检测到病毒。这意味着导致精子数量下降的只有两种可能性，第一，是刺突蛋白导致了一系列连锁反应；第二，中共病毒对睾丸组织的其他致病反应。
+参考链接：[Biden says United States would come to Taiwan’s defense](https://www.reuters.com/world/asia-pacific/biden-says-united-states-would-come-taiwans-defense-2021-10-22/)
 
-据此，她呼吁不要注射中共疫苗，因为疫苗也可导致男性生育能力下降。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-方舟农场10月14日发表在Gnews的文章也证实了该信息，文章表示，新冠疫苗对人体免疫系统产生严重的破坏力，导致免疫力明显下降，从而发生中共病毒突破性感染。早前在以色列和近期在台湾发生的疫苗接种造成更多中共病毒感染就是证明。
+总编：Ivy001
+编辑：Ivy001
+校正/发稿：谐趣园
 
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[法国遗传学家亚历山德拉∙亨里昂-考德：我们不知道他们（接种疫苗者）是否能够生孩子。 法国遗传学家研究发现，新冠病毒导致男性的精子数量锐减，注射疫苗可能会改变男孩子的生育能力，也会导致女性月经紊乱，影响人类生殖功能。](https://gettr.com/post/pdiojzc596)
-
-
-
-> [新冠疫苗破坏了免疫系统，造成突破性感染](https://gnews.org/zh-hans/1594800/)
-
-
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

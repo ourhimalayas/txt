@@ -2,7 +2,29 @@
 ---
 
 
-## 郭先生：全世界越来越多的人感受到了疫苗的威胁 但媒体就不让谈论疫苗的副作用
-` MG 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1613413/)
+## 有声|阿里巴巴等中共上市公司恐面临外国投资者集体诉讼
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1613461/)
 
-全世界越来越多的人开始反对疫苗，但所有的媒体都选择了沉默，邪恶的势力企图控制世界。从中也体现出了喜美元，喜币，G-TV，Gnews和GETTR的重要性
+配音：香草山美食部 – 玫瑰园
+
+在10月20日的大直播中，郭文贵先生进一步揭开了马云，其所谓飞往西班牙“度假”的面纱。郭先生提到，马云并未充分披露被中共当局刑事调查的事实，如果因此给外国投资者造成损失，恐将面临他们的集体诉讼。
+
+此前，马云先是宣布卸任阿里巴巴集团董事局主席，但继续担任集团董事会成员。随后，马云甚至辞去了集团董事的职务。 即便如此，去年4月，中共仍旧给马云发放了“刑事调查侦查书”以及 “经济犯罪调查书”。此后，马云便处于间歇性失踪状态。
+
+据悉，这些调查均发生在马云仍然担任阿里大股东期间，因此构成了上市公司、重大事项未向公众披露的事实。 此外，潘石屹、王健林、马明哲、许家印等中共企业家都存在类似隐瞒欺诈的行为。
+
+在法律健全、金融监管有效的民主国家体系中，一旦这类暗箱操作的中概股公司，给社会养老与保障基金、或者普通投资者造成严重损失，巨额的赔付将令这些公司岌岌可危。
+
+文字版原文：[阿里巴巴等中共上市公司恐面临外国投资者集体诉讼](https://gnews.org/zh-hans/1608154/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,31 +2,29 @@
 ---
 
 
-## 拜登承认会保护台湾 美军铲平中共军事基地只需3分钟
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612949/)
+## 前辉瑞首席科学家：中共病毒疫苗危害女性生殖系统
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1612962/)
 
-作者：澳喜农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月21日，美国总统拜登在采访时表示，“一旦中共发动攻击，美国承诺会保护台湾。”
+**撰稿：日本东京方舟农场 北极**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-18.jpeg)
+10月19日，喜马拉雅战鹰团（Himalaya Hawk Squad）在盖特（Getrr）上发布的一段视频中，前辉瑞首席科学家麦克·伊顿（Michael Yeadon）博士发出警告表示，中共病毒疫苗危害女性生殖系统健康。
 
-早10月17日，郭文贵先生就在直播中爆料，美国的专业人士明确答复，如果共产党直接攻打台湾的话，美军是会出手的，一旦美军出手日本也一定会出手。其中最令人惊讶的是，把共产党所有100%的军事基地铲平，包括空中与陆地的军事设施，美军单独行动只需要3分钟，如果日本单独作战也只需要5分钟。
+麦克· 伊顿博士于2011年之前在辉瑞公司药物研发部门任职首席科学家兼副总裁。他透露，日本药品监督局曾给实验鼠注射辉瑞生产的新冠疫苗，发现老鼠卵巢中的疫苗残留浓度至少是其他组织的20倍。该研究主要针对疫苗在体内的药代动力学，即身体如何吸收、扩散和排泄疫苗产物。
 
-(本文仅代表作者观点)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/الادعاءات-التي-تستهدف-بيل-غيتس-تتهمه-بالاستفادة-من-وباء-كورونا-مثل-شخصية.jpeg)图片来自于网络
 
-参考链接：[Biden says United States would come to Taiwan’s defense](https://www.reuters.com/world/asia-pacific/biden-says-united-states-would-come-taiwans-defense-2021-10-22/)
+伊顿博士解释，虽然现在还没在人体进行这类实验，但根据毒理学的原则，如果没有任何人体数据与已知老鼠研究相矛盾，可以据此对人体做出同样假设。疫苗在卵巢聚集时表达出病毒刺突蛋白，诱导自身抗体破坏卵巢组织。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+伊顿博士还表示，他与德国的医生向欧洲药品管理局提交了申请，对15名接种辉瑞疫苗的怀孕妇女做血液学检测。检测结果发现，在接种疫苗的第1-4天，针对胎盘的抗体滴度增加了2.5-3倍，即增加了250-300%。
 
-总编：Ivy001
-编辑：Ivy001
-校正/发稿：谐趣园
+伊顿博士分析说，疫苗诱导出的免疫反应可能会攻击孕妇的胎盘。虽然结果还不确定，但他看过文献，患自身免疫疾病的孕妇在第一阶段流产比例很高。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[Dr. Michael Yeadon:](https://gettr.com/post/pekmhd84d5)[#vaccinesideeffects](https://gettr.com/hashtag/%23vaccinesideeffects)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

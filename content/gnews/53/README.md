@@ -2,9 +2,9 @@
 ---
 
 
-## 数名美军士兵可能因为拒绝接种疫苗而被军队开除
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1612268/)
+## 加密货币不仅可以保存财富，还是对金融压制的反抗
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1612306/)
 
-10/19/2021 数名美军士兵发布视频说他们因为拒绝疫苗强制接种令而可能被军队开除。
+10/20/2021 马克·杰夫托维克：作为替代性的价值存储，加密货币不仅可以保存财富，还是对金融压制的反抗。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
