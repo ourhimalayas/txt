@@ -2,29 +2,29 @@
 ---
 
 
-## 有声|阿里巴巴等中共上市公司恐面临外国投资者集体诉讼
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1613461/)
+## 房产税正式试点，或成压垮房地产的最后一根稻草
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1613477/)
 
-配音：香草山美食部 – 玫瑰园
+#### 撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-27.png)[图片来源](http://www.unsuv.com/news/zhanhui/16-08/26/11071.html)
+10月23日，中共国人代会授权开展房地产税改革试点工作。要点如下：
 
-在10月20日的大直播中，郭文贵先生进一步揭开了马云，其所谓飞往西班牙“度假”的面纱。郭先生提到，马云并未充分披露被中共当局刑事调查的事实，如果因此给外国投资者造成损失，恐将面临他们的集体诉讼。
+1、征税对象：居住用和非居住用等各类房地产，不包括依法拥有的农村宅基地及其上住宅。土地使用权人、房屋所有权人为房地产税的纳税人。
 
-此前，马云先是宣布卸任阿里巴巴集团董事局主席，但继续担任集团董事会成员。随后，马云甚至辞去了集团董事的职务。 即便如此，去年4月，中共仍旧给马云发放了“刑事调查侦查书”以及 “经济犯罪调查书”。此后，马云便处于间歇性失踪状态。
+2、适用法律：《中华人民共和国房产税暂行条例》、《中华人民共和国城镇土地使用税暂行条例》
 
-据悉，这些调查均发生在马云仍然担任阿里大股东期间，因此构成了上市公司、重大事项未向公众披露的事实。 此外，潘石屹、王健林、马明哲、许家印等中共企业家都存在类似隐瞒欺诈的行为。
+3、规则制定：国务院制定房地产税试点具体办法，地方政府制定具体实施细则。
 
-在法律健全、金融监管有效的民主国家体系中，一旦这类暗箱操作的中概股公司，给社会养老与保障基金、或者普通投资者造成严重损失，巨额的赔付将令这些公司岌岌可危。
+4、实施办法：试点期限为五年，试点过程中及时总结试点经验，条件成熟时，及时制定法律。
 
-文字版原文：[阿里巴巴等中共上市公司恐面临外国投资者集体诉讼](https://gnews.org/zh-hans/1608154/)
+中共国房地产市场供远大于求，各大房企均面临极其严重的债务危机，此时推出房产税，将对市场预期产生重大影响，或是压垮房地产市场的最后一根稻草。
 
-音频处理：喜山必胜Maverick
+消息来源：
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[全国人民代表大会常务委员会关于授权国务院在部分地区开展房地产税改革试点工作的决定](http://www.gov.cn/xinwen/2021-10/23/content_5644480.htm)
+
+(文章仅代表作者本人观点，与GNEWS无关)
+
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

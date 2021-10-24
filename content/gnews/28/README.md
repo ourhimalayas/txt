@@ -2,31 +2,27 @@
 ---
 
 
-## 应对中共潜艇威胁，美在日建立反潜战中心
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1613473/)
+## 有声|澳大利亚新南威尔士州要求企业对雇员接种疫苗的不良反应承担责任
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1613481/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-61.png)[图片来源](https://www.voachinese.com/a/japan-sounds-alarm-after-spotting-chinese-war-ships-in-its-territorial-waters-20210913/6224814.html)
-中共环球网近日报道，美国第七舰队10月15日在横须贺海军基地列装一套“最先进”的潜艇追踪模拟训练器，同时启用反潜战中心投入训练使用，此举针对中共潜艇威胁的意味明显。
+配音：香草山美食部 – 玫瑰园
 
-据悉，该反潜战模拟训练器，名为“虚拟操作员训练师”，是目前美国海军最先进的反潜战模拟训练器，可提供逼真的界面，模拟追踪潜艇的实际过程。模拟器可以使用来自美军部队水面舰艇和潜艇在现实中的数据来模拟真实世界的场景，以增加学员实战般的沉浸感。比如，可以输入美国海军一线舰艇部队追踪潜艇的真实数据。
+据零对冲10月19日的消息，澳大利亚的新南威尔士州地方政府刚刚颁布了一项法律，规定强制执行新冠疫苗接种的雇主，现在要对雇员所遭受的任何不良反应负责，即使员工不再为他们工作，这些雇主也必须在其余生中向员工支付赔偿。
 
-该模拟训练器拥有多个版本的系统，可以模拟不同的舰载设备追踪潜艇的场景，以及模拟各种版本的反潜作战系统。比如，模拟美海军驱逐舰上携带的“宙斯盾”作战系统。模拟训练器可提供6个坐席进行同时训练，下步还可升级至12个坐席。
+一些雇主就此项新规咨询了保险公司，保险公司明确表示，他们不会对未经测试的产品进行保险。
 
-位于横须贺的反潜战中心，是美军规划的全球七个反潜战模拟训练中心之一，是继珍珠港、圣迭戈基地之后，第三个建成的。同时，也是美海军在西太平地区第二个建成的反潜战追踪模拟训练器。
+政府向企业施压，迫使雇主要求员工接种疫苗，而保险公司却拒绝提供保险服务。而随着疫苗副作用的逐渐显现，这些企业将因此背负庞大的债务。
 
-今年以来，随着中共对台作战越发按奈不住的冲动，中共潜艇在东海、南海等海域的活动也愈发频繁和，甚至做出种种让人瞠目结舌的疯狂举动。10月2日，中共潜艇还与美国海军“海狼”级攻击型核潜艇之一“康涅狄格”号（SSN-22）发生相撞。
+文字版原文：[澳大利亚新南威尔士州要求企业对雇员接种疫苗的不良反应承担责任](https://gnews.org/zh-hans/1610010/)
 
-10月22日，郭文贵先生爆料，中共潜艇当日晚间在东海和台湾的东部、东北部、东南部等海域多次“露头”，赤裸裸地向世界宣扬“武力”和对台作战的决心。
+音频处理：喜山必胜Maverick
 
-当前，中共二十大的内斗压力，以及社会、经济等一系列的危机，都在加剧中共对台作战的疯狂。面对中共的疯狂，美国在日本建成反潜作战中心其指向已经非常明显。
-
-信息来源：
-
-[美国核潜艇刚出事，就在中国周边建反潜战中心，明显针对解放军](https://www.youtube.com/watch?v=ImamFLchY3g)
-
-(文章仅代表作者本人观点，与GNEWS无关)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
