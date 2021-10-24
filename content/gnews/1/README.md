@@ -2,31 +2,17 @@
 ---
 
 
-## COVID-19最新情报｜Podcast巨头：Google掩盖疫苗致死相关资讯！
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1614138/)
+## “说说你的看法– 老百姓真的脱贫了？” 第06期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1614199/)
 
-**台灣寶島農場 zhong｜發布日期/ 24/10/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
-乔·罗根在Podcast（播客）拥有许多粉丝，近日他发表了关于Google浏览器恶意掩盖新冠疫苗致死的相关消息，他只有利用其他浏览器才可以搜索到关于疫苗致死的相关内容。
+制作：蚂蚁兄弟
 
-他受到记者采访时，他已经不使用Google，因为Google正在尝试阻止用户接触正确的资讯。他举“伊维菌素”为例，伊维菌素已经被美国相关单位认证为有效治疗药物，然而Google只会让用户看到“兽用伊维菌素，或错误剂量导致副作用”的相关讯息。
-
-- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
-- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
-
-
-“我必须要使用Duck Duck Go，才可以搜索到疫苗伤害、致死的具体案例，使用Google是不可能搜索到的”罗根这样么说。
-
-
-
-> Joe Rogan says he stopped using Google to search things because they are hiding information [pic.twitter.com/BzNzi70kop](https://t.co/BzNzi70kop)
-> — An0maly (@LegendaryEnergy) [October 18, 2021](https://twitter.com/LegendaryEnergy/status/1449956233411133441?ref_src=twsrc%5Etfw)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16-4.jpg)
-
-新闻来源｜[Natural News](https://www.naturalnews.com/2021-10-22-joe-rogan-accuses-google-of-hiding-information.html)
+中国的外表似乎已被中共“打扮”得光彩夺目，中共把它那“铸就百年辉煌”的海市蜃楼展现给世界的同时，在它那光怪陆离、浮华于世的外表背后，那几亿贫困人口的真实生活，才是这个国家的实际现状。以下一段段网络留言，真真正正的记录下了中国大多数人生活的现状。希望这一切能被世界看到，希望这一切能够让每一个人深思……
+![](https://assets.gnews.org/wp-content/uploads/2021/10/pobre6-7.001-scaled.jpeg)
+（文章仅代表作者本人观点，与Gnews无关）
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
+
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)
