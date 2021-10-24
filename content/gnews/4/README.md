@@ -2,49 +2,57 @@
 ---
 
 
-## 澳大利亚将在11月8日全国推广第三针疫苗
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1613757/)
+## 美国驻华大使候选人，在种族灭绝和台湾问题上与中共政府冲突
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1613830/)
 
-翻译/撰稿：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_1773.jpg)网络截图
-据《Sky News》快讯，关于COVID-19疫苗的加强针，澳大利亚预计从11月8日开始进行强化针的注射，老年护理机构的居民和工作人员将成为首批接受第三针疫苗注射的人群。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16350528041.png)*拜登总统提名的驻华大使尼古拉斯·伯恩斯（Nicholas Burns）在参议院外交关系委员会出庭时承诺对北京采取强硬立场*
+来自英国《每日邮报》10月20日的报道
 
-COVID-19疫苗的加强针将在大约两周后在澳大利亚全国推广。  在收到辉瑞公司的申请后，治疗用品管理局TAG（Therapeutic Goods Administration）将于周一开会审议国家的加强剂计划，澳大利亚免疫技术咨询小组也是审批过程的一部分。
+拜登总统提名的美国驻华大使的候选人周三与中共政府发生冲突，并承诺如果他被确认担任该职位，他将直言不讳地批评中共国的侵犯人权行为和咄咄逼人的外交政策。
 
-阿斯利康和Moderna还没有提交实施疫苗增效剂的申请。
+尼古拉斯.伯恩斯（Nicholas Burns）在参议院的确认听证会上采取了强硬的立场，他说美国应该扩大对台湾的武器销售，并要求中共政府结束对新疆维吾尔人的种族灭绝。
 
-“如果TGA和ATAGI对加强剂提供正式批准，我们预计将在11月8日之前准备好开始我们的加强剂计划，”副首席医疗官Michael Kidd教授周六说。”甚至可能会更早一点开始，但让我们等待，看看未来几天会发生什么。
+拜登政府面临压力，需要采取更多措施来遏制中共国日益增长的对全球和地区的野心。
 
-[而事实是我们澳大利亚的卫生部长Greg·Hunt主动致信要请辉瑞提出申请。](https://www.sbs.com.au/chinese/mandarin/zh-hans/audio/queensland-premier-wants-updated-information-on-covid-19-and-children?cid=lang:socialshare:twitter%20via%20@SBSRadio)
+现年65岁的伯恩斯是一名职业外交官，曾任美国驻北约大使，他还被问及对台湾问题的立场.台湾是一个自治的岛屿，担心中共国试图强迫台湾与大陆统一。
 
-美国CDC 的主任则表示，“CDC 对“完全接种”的定义暂时没有变化，因为不是每个人都符合加强接种的条件，她补充说，“我们将来可能需要更新我们对“完全接种”的定义。”
+他说，华盛顿将其对台湾的“一个中国”政策与反对中共政府破坏该岛目前地位的任何举动结合起来，是正确的。
 
-评论：**这种全球同一步调，同一策略的强推疫苗的行为确实令人发指，罔顾各国因接种疫苗引发的非正常死亡比率直线上升的事实，依然加快速度强推“完全接种“。接种疫苗年龄组越来越低，针数也越来越多。**
+共和党人和民主党人均同意有必要在台湾、香港和新疆问题上向中共政府施压。
 
-辉瑞疫苗儿童临床试验成功的消息一度占据了各大媒体头版头条。澳大利亚卫生部长Greg·Hunt，曾于9月22日致信辉瑞澳洲公司的负责人Anne Harris，邀请辉瑞公司向澳洲治疗用品管理局（TGA）申请为**5**至**11**岁的儿童接种辉瑞疫苗。
+人权倡导者称，中共国对待维吾尔族穆斯林的做法是“种族灭绝”，拜登政府接受了这种描述，但中共国对此表示反对。
 
-**前美国食品及药物管理局（Food and Drug Administration）主管，现辉瑞董事会成员，斯科特·戈特利布 （Scott Gottlieb）博士告诉CNBC： 他认为针对11岁以下儿童的紧急使用许可将于年底前下达。同时他还表示疫苗可能将最终在5岁以下儿童中被获批使用。**
+伯恩斯在开场白中阐明了强硬立场，列举了中共国的侵略行为。
 
-目前除以色列以外大多数国家为两针。9月，由于担心变异病毒，以色列，英，德，法甚至不顾WHO的反对意见，率先推出加强针，随后新加坡等国家跟进。
+他说：“中共一直是沿喜马拉雅边境对印度的侵略者；是在南中国海对越南、菲律宾和其他国家的侵略者；在东中国海对日本侵略；并发起了针对澳大利亚和立陶宛的恐吓运动。”
 
-**谁该打第3针？最讽刺的是世卫组织WHO的建议：免疫功能低下族群，与完整接种国药、科兴疫苗的60岁以上长者，应追加施打第3剂疫苗。**
+他说：“中共在新疆的种族灭绝和西藏的暴行、扼杀香港的自治和自由，以及对台湾的霸凌都是不公正的，必须停止。”
 
-我们不禁想问，一个没有获得任何国家级卫生级监管部门的疫苗凭什么这么理直气壮的强推？
+但他也指出了中共政府的弱点。
+
+他指出：“虽然中共国有很多优势，但它也面临着巨大的人口、经济和政治方面的挑战。”
+
+他说：“我们应该对我们自己的优势有信心，包括我们的科技能力、世界一流的大学和研究机构、我们的军事力量、我们在外交和政府部门的一流的外交使团，特别是我们与中共政府的行动截然相反的价值观。”
+
+他在接受《每日邮报》采访时说：“拜登总统必须强烈谴责这种恶意行为，并采取更强硬的立场，以保护我们的国土和国家安全。”
+
+简评：美国驻华大使这个职位，是自去年10月川普任职末期就开始空缺。现拜登政府提名的准驻华大使尼古拉斯·伯恩斯，在国会听证会上对华的强硬态度。触动了中共的神经。中共官媒《环球时报》用嚣张的标题直接写“伯恩斯驻中，肯定碰钉子”。网上评论也是：拜登政府又跪了；伯恩斯到北京，总有一款药适合他；伯恩斯应该和中国人一起开一家社交媒体公司等等，来调侃伯恩斯。因此，伯恩斯上任前对中共当局的强势，是造势还是真的秀肌肉，这需要时间来验证。
+
+新闻链接：[https://www.dailymail.co.uk/news/article-10112329/Bidens-nominee-U-S-ambassador-China-demands-Beijing-end-genocide-Xinjiang.html](https://www.dailymail.co.uk/news/article-10112329/Bidens-nominee-U-S-ambassador-China-demands-Beijing-end-genocide-Xinjiang.html)
+
+翻译：Brianchow
+
+PR：Julia Win
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-> CDC 老大说CDC 对“完全接种”的定义暂时没有变化，因为不是每个人都符合加强接种的条件，但补充说，“我们将来可能需要更新我们对“完全接种”的定义。”
-> 
-> 划重点：我们将会重新定义 [pic.twitter.com/5v1e6OdQjr](https://t.co/5v1e6OdQjr)
-> — Chris (@Chris69927664) [October 24, 2021](https://twitter.com/Chris69927664/status/1452097321034915844?ref_src=twsrc%5Etfw)
-
-
-
-（本文纯属个人观点，与Gnews无关）
-
-[引用文章链接：](https://www.sbs.com.au/chinese/mandarin/zh-hans/audio/queensland-premier-wants-updated-information-on-covid-19-and-children?cid=lang:socialshare:twitter%20via%20@SBSRadio)
-
-[Sky New 文章链接：](https://www.skynews.com.au/australia-news/coronavirus/covid19-vaccine-booster-shots-expected-from-november-8-aged-care-residents-and-staff-among-first-to-get-the-extra-jab/news-story/313913d2ae0256b8047b9f00ff2fe9b6)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

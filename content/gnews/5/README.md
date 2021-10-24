@@ -2,45 +2,44 @@
 ---
 
 
-## 立法者希望推迟北京2022年奥运会，并禁止中国队参赛
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1613733/)
+## 美议员致函国际奥委会重申推迟北京冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1613828/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/9e90bfa8a3884db78f4f9247ba5c4fee-1.jpeg)
-来自美国《新闻中心》2021年10月22日报道
-
-佛罗里达州共和党参议员马可·卢比奥(Marco Rubio)和新泽西州众议员克里斯·史密斯(Chris Smith)，是国会中共国问题执行委员会中排名第一的共和党人，周四致函国际奥委会，呼吁该组织推迟2022年北京奥运会，并因中共国政府有关种族灭绝的报道而禁止该国代表团参赛。
-
-美国指责中共国对新疆西部地区的维吾尔人实施种族灭绝。
-
-在针对维吾尔人人权的指控中，有报道称，他们被围捕并被关进“再教育”营地，在中共政府的羁押下遭到虐待和强奸。
-
-距奥运会开幕还有四个月的时间，国际奥委会正面临一些赞助商的强烈反对，因为面对中共可能犯下的暴行，他们没有采取更多行动。
-
-“我们的责任是举办奥运会，这对世界来说是一件了不起的事情，”国际奥委会发言人马克·亚当斯在7月份告诉美联社。“这是我们的责任。解决这一问题是其他国家的责任，而不是我们的责任。包括一直非常支持奥运会的联合国和各国政府。鉴于奥运会的多元化参与，国际奥委会必须保持中立。”
-
-卢比奥和史密斯在信中说：“关于北京如何背叛《奥林匹克宪章》和国际奥委会道德准则的精神，还有很多，但这一点无需赘述。”“国际奥委会知道需要做什么，因为国际奥委会以前做过。国际奥委会在2019年因服用兴奋剂而禁止俄罗斯队参赛，为期四年。由于腐败问题，国际奥委会在2012年禁止了印度队。国际奥委会在2000年禁止了阿富汗队参赛，部分原因是塔利班对妇女和女孩的歧视。
-
-“如果这些类型的不当行为是禁止一支球队参加奥运会的理由，那么对种族灭绝肯定更有理由做出同样的回应。”
-
-简评：1936年在德国柏林举行的类似的奥运会，这对阿道夫·希特勒的第三帝国来说是一个巨大的宣传意外，使其获得了不正当的国际声望、合法性和可信度。
-
-而如今在新疆，少数民族受害者中至少有一百万人被关押在几十个集中营，有些集中营中充斥着火葬场。他们在那里被洗脑、被强奸、被强行堕胎和绝育、被折磨、被摘取器官并被迫从事奴役劳动。国际社会应紧急努力，将2022年冬奥会迁移到另一个场地，为中共的种族灭绝奥运会提供一个自由奥运会的替代方案。
-
-新闻链接：[https://www.newsmax.com/newsfront/olympics-beijing-uyghurs-genocide/2021/10/22/id/1041672/](https://www.newsmax.com/newsfront/olympics-beijing-uyghurs-genocide/2021/10/22/id/1041672/)
-
-翻译/简评：希望
-
-PR：Julia Win
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：澳喜农场 – 在远方
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+10月21日，美国国会及行政当局中国委员会参议员，马可·鲁比奥, 和众议员克里斯·史密斯，致函国际奥委会重申，推迟第24届北京冬奥会的呼吁。信中敦促国际奥委会，禁止中共国家队参赛，并表示撤销奥委会此前所谓“在所有全球政治问题上保持中立”的决定。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-83.jpg)
+信中说，当中共正在积极进行种族灭绝时，奥委会应当拒绝给与北京举办奥运会的荣誉。因为反对种族灭绝是一个道德决定，而不是一个政治决定，当涉及到道德决定的责任时，国际奥委会没有豁免权。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-11.jpg)
+参考链接：
+[美共和党议员致信IOC，重申推迟北京冬奥会的紧急呼吁](https://www.voachinese.com/a/Rubio-smith-ioc-beijing-winter-olympics-20211022/6282501.html)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：Ivy001
+编辑：Kathy文艺
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

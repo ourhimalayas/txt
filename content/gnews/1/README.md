@@ -2,40 +2,26 @@
 ---
 
 
-## 台湾和美国在重要周年纪念日前讨论联合国参与的问题
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1613783/)
+## 针下亡魂｜法国 22 岁男子接种疫苗 10 小时后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1613864/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 24/10/2021**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/120090359_whatsubject.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
 
+【法国】塞特一名 22 岁的男子 Maxim Beltra 在接种辉瑞 COVID-19 疫苗 10 小时后死亡。Maxim 在当地一间啤酒厂工作，于 7 月 26 日下午 2 时打了第一针疫苗，当晚就过世。
 
+该啤酒厂在其官方账户上发布了 Maxim 的死讯，并向他的家人致以慰问，同时，还在最后特别指出“政府比冠状病毒更可怕。”
 
-图片来源：BBC
+![](https://assets.gnews.org/wp-content/uploads/2021/10/xMaxime-Beltra-1.jpg.pagespeed.ic_.JwYQoGCm04.jpeg)
 
+Maxim 的父亲 Frédéric Beltra 在社交平台分享了儿子的不幸经历，他表示“他是我唯一的儿子，他死于一种未经适当测试的实验性疫苗，注射后仅仅九个小时，剧烈的过敏性休克就杀死了他。我的儿子是因为想和朋友去希腊度假，他才被迫接受疫苗的。”
 
-#### 编译：小红帽
+最后，他还怒斥道，“所有拼命推销实验性疫苗的，你们都是罪犯，这背后的勾结、腐败令人噁心。我的儿子死于疫苗，你们就是杀人凶手，你们这些腐败罪犯，你们很清楚自己在做什么！”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/47-1.jpg)
+来源｜[个案047](https://www.facebook.com/brasserielasiesta/posts/4368000606597946)
 
-美国国务院在10月23日星期六晚间发表的一份声明说，美国和台湾官员周五举行了虚拟会议，“讨论的重点是支持台湾有意义地参与联合国的能力”。这发生在中共国主席习近平发表讲话以纪念中共国加入联合国50周年的前几天。
+* * *
 
-美国与会者重申了美国对台湾有意义参与世界卫生组织和联合国气候变化框架公约的承诺，并讨论了如何突出台湾有能力在广泛的问题上做出贡献。
-
-美国国务院表示，与会人员包括国务院负责国际组织的代理首席副助理国务卿雨果·延（Hugo Yon）、中共国、台湾和蒙古事务副助理国务卿里克·沃特斯（Rick Waters），以及台湾驻华盛顿副大使王良宇。
-
-台湾外交部感谢美国的“坚定支持”。
-
-中共国称台湾是它的一个省，因此中共国拥有在国际上代表台湾的唯一权利。台北的民选政府说只有它有这个权利。
-
-近期，中共国加大了政治和军事压力，迫使台湾接受中共国主权。台湾说它是一个独立的国家，如果中共国发动攻击，台湾将进行自卫。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Taiwan, US discuss UN participation ahead of key anniversary (rappler.com)](https://www.rappler.com/world/global-affairs/taiwan-united-states-discuss-un-participation)**
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)

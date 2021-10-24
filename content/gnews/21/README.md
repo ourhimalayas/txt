@@ -2,27 +2,21 @@
 ---
 
 
-## 有声|华盛顿州立大学橄榄球主教练因拒绝接种疫苗被解雇
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1613603/)
+## G7发联合声明：从全球供应链中消除强迫劳动
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1613678/)
 
-配音：香草山美食部 – 玫瑰园
+俄罗斯莫斯科喀秋莎农场   银河
 
-周一，华盛顿州立大学体育总监帕特·春和校长柯克·舒尔茨在新闻发布会上宣布，因未按照州政府规定的、于本周一前完成新冠疫苗接种，该校橄榄球主教练尼克·罗洛维奇，及四名助理教练被解雇。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/U.png)renecassin.org
+10月22日七国集团（G7）贸易部长会议上，七国集团首次发表了“从全球供应链中消除强迫劳动”的联合声明， 七国集团含蓄地批评中共国针对新疆维吾尔族穆斯林的强迫劳动。
 
-据悉，罗洛维奇年薪超过300万美元，是工资最高的州政府雇员，合同预计到2025年结束。7月，他曾发表推文，明确表示不会接种疫苗；并于10月9日提交宗教豁免申请，但遭到拒绝。
+七国集团(G7)贸易部长会议反对强迫劳动，并表达了对“在全球供应链中使用任何形式的强迫劳动，包括国家支持的、对弱势群体及少数民族进行强迫劳动”表示关切。联合声明指出，全世界大约有2500万人遭受强迫劳动，并敦促各国、机构和企业共同努力。
 
-本月12日，因拒绝接种疫苗，NBA球星凯里·欧文被篮网队禁赛，引发球迷和媒体的广泛关注和讨论。虽完成疫苗接种，美国加州佐治亚大学体育专业学生肖恩·库恩，仍感染新冠病毒，并于近期去世。且因接种毒针疫苗，导致病毒感染，甚至死亡的案例层出不穷。如果政府继续强制执行接种令，欧文等体育界有影响力人物的挺身而出，将激发更多的人探究和了解疫苗真相。
+这一联合声明没有点名提及中共，但在声明中含蓄指向新疆维吾尔自治区的人权问题和强迫劳动问题。七国集团成员国表示共同关切，其背景是希望藉此表示该集团成员国将团结一致要求中共国方面就相关问题进行改善。
 
-文字版原文：[华盛顿州立大学橄榄球主教练因拒绝接种疫苗被解雇](https://gnews.org/zh-hans/1606593/)
+七国集团(包括英国、加拿大、法国、德国、意大利、日本和美国)以及欧盟也就数字贸易的原则达成了一致，并表示他们“反对数字保护主义和威权主义”。在另一份文件中，他们呼吁解决“跨境数据流动的不合理障碍”，“同时继续解决隐私、数据保护、知识产权保护和安全问题”。
 
-音频处理：喜山必胜Maverick
+参考链接：
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://english.kyodonews.net/news/2021/10/af63c3d6f1d5-g-7-voice-concern-over-forced-labor-amid-chinas-treatment-of-uyghurs.html](https://english.kyodonews.net/news/2021/10/af63c3d6f1d5-g-7-voice-concern-over-forced-labor-amid-chinas-treatment-of-uyghurs.html)
