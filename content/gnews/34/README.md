@@ -2,33 +2,40 @@
 ---
 
 
-## 秘翻在线：以色列医生和科学家就本国官方疫苗数据的可靠性和合法性提出严重关切
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1613986/)
+## 儿童疫苗未获FDA批准，拜登政府仍“快速”推广
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1614025/)
 
-**编译：花岗岩**
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-24-144633.jpg)
-据美国前线医生组织的网站10月22日报道，一个由医生、律师、科学家和研究人员组成的独立的以色列团体-职业道德前线就美国食品和药物管理局（FDA）即将进行的关于对5-11岁儿童注射中共病毒疫苗的讨论向其提出建议，对以色列官方中共病毒疫苗数据的可靠性和合法性表示严重关切。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/eae33eb1-f6a4-47b2-b9d4-af3b05a9b2bf-scared_child_getting_shot.jpg)
 
-在辉瑞生物技术公司中共病毒疫苗的安全性和有效性方面，以色列国被视为“世界实验室”，来自以色列的数据和信息在有关中共病毒疫苗接种政策的关键决策过程中起着关键作用。该团体向FDA传达了一个警告信息，并指出以色列有关辉瑞生物技术公司的中共病毒疫苗数据的可靠性存在潜在缺陷，并伴随着许多重大法律和道德违规行为， 所以它不应该被用于做出有关中共病毒疫苗的任何关键决定。
 
-美国前线医生（AFLDS）采访了海法大学和赖希曼大学健康和风险交流讲师亚法·希尔·拉兹（ Dr. Yaffa Shir Raz）博士，他是这封信的作者之一，讲述了他们的发现和结论。
 
-1.缺乏一个公开和透明的不良事件（AE）报告收集系统，与西方国家的普遍标准相反，以色列没有适当的、透明的AEs报告系统，如美国的VAERS系统，可供公众使用，因此也没有对中共病毒疫苗使用后发生的AEs进行适当的跟踪。
+图片来源：usatoday.com
 
-2.医疗专业人员不良事件报告系统的严重缺陷。以色列的医生和医疗团队在试图向卫生部报告辉瑞生物技术公司中共病毒疫苗接种后的AE时，遇到了巨大的障碍。由于这些巨大的困难，以色列的医护人员对AEs的报告严重不足，AEs只在特殊情况下才被报告。目前获得的医生证词也表明，报告的AE没有被公开宣传，甚至有些报告与医生向卫生部报告的严重不良事件（SAE）的证词不一致。
 
-3. 数据失真。最近，关于卫生部提交的数据被扭曲的两个严重事件被曝光。
+#### 编译：小红帽
 
-第一件事是卫生部不但没有审查并回复处理数千名公民关于他们在接种疫苗后遭受的AE，包括SAE对卫生部帖子的回复，而是删除了其中约一半的内容，并声称疫苗是完全安全的。
+拜登政府周三公布了其计划“快速”为大约2,800万名5-11岁的儿童接种中共病毒（Covid-19）疫苗，尽管这款疫苗未获得美国食品和药物管理局 (FDA) 的批准。【注：这是[美国食品和药物管理局的文件](https://www.fda.gov/media/151710/download)，证明向儿童推行的中共病毒疫苗未获批准。】
 
-第二个事件发生在大约两周前。根据卫生部的数据，以色列科罗纳危机公共应急委员会（PECC）成员进行的分析表明，辉瑞生物技术公司的中共病毒第三期疫苗剂量效力远远低于其所声称的。在PECC的分析报告发布后的24小时内，相关的数据历史被完全改写了。PECC发布了原始数据和 “纠正 ”后的数据截图。
+白宫表示，这种（不能阻止中共病毒传播的）疫苗将在儿科医生、当地药房，甚至可能在学校提供。
 
-4. 数据收集过程中的法律和道德违规行为。不仅来自以色列的有关辉瑞生物技术公司中共病毒疫苗的安全性和有效性的数据明显不可靠，而且收集方法也声称既不合法也不道德。辉瑞生物技术公司的中共病毒疫苗是在未经以色列民众知情同意的情况下进行的，这明显违反了纽伦堡法典规则、病人权利法案和以色列卫生部关于人体临床试验的指令。此外，以色列公民在接种疫苗方面面临巨大的压力，几乎到了被胁迫的地步。
+根据公告，白宫已获得足够的资金，可以为已经签署疫苗接种协议的儿科医生和初级保健医生提供超过25,000剂疫苗，而美国现在有足够的辉瑞（Pfizer）疫苗为大约2,800万儿童接种。
 
-根据以色列卫生部前首席执行官赫兹“·列维 （Hezi Levi）教授在2021年7月5日发表的声明，第三次疫苗接种行动是一项实验，需要得到负责批准以色列人体医学实验的赫尔辛基委员会的批准，但这种批准从未被签发。此外，第三针疫苗操作仅指免疫力低下的人群，因此在健康人中，尤其是在年轻的健康人中，更不符合伦理，因为这些人被证明是心肌炎的高危人群。
+与此同时，白宫正在推出一项“广告”活动，以说服父母和孩子相信中共病毒疫苗是安全有效的。
 
-以色列职业道德前线在给FDA的通知中总结道，根据二战后确立的公认观念，以非法和不道德的方式获得的实验结果不应该被依赖，因此以色列报告的数据可靠性存在重大疑点，对其使用可能具有误导性，从而扰乱与辉瑞生物技术公司中共病毒疫苗有关的决策过程。该组织恳请委员会考虑他们的紧急警告，并在涉及以色列关于辉瑞生物技术公司中共病毒疫苗安全性和有效性的数据时采取最大的预防措施。
+最重要的是，美国疾病管制与预防中心（CDC）负责人罗谢尔·瓦伦斯基 (Rochelle Walensky)表示，即使疫苗已获准用于儿童，她仍会建议儿童在学校戴口罩。
 
-**新闻来源：**[BREAKING: Israeli physicians, scientists advise FDA of ‘severe concerns’ regarding reliability and legality of official Israeli COVID vaccine data](https://americasfrontlinedoctors.org/2/frontlinenews/breaking-israeli-physicians-scientists-advise-fda-of-severe-concerns-regarding-reliability-and-legality-of-official-israeli-covid-vaccine-data/)
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Biden Administration Details Plan to ‘Quickly’ Vaccinate 28 Million Children Age 5-11, Even Though the Jab is NOT APPROVED and Doesn’t Prevent Transmission (humansarefree.com)](https://humansarefree.com/2021/10/biden-administration-details-plan-to-quickly-vaccinate-28-million-children-age-5-11-even-though-the-jab-doesnt-prevent-transmission.html)
+
+**
+*****发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,19 +2,41 @@
 ---
 
 
-## 秘翻在线：NIH官网悄悄地更改了功能增强研究的定义
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1614007/)
+## 班农专访2: 保守党会赢得2022年中期大选
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1614062/)
 
-####  翻译/撰稿：zzballack
+**简评：**
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-433.png)图片来源：MedPage Today
-据《真正美国之声》（Real America’s Voice）10月24日报道，退役海军军官杰里米·雷德芬（Jeremy Redfern）10月23日发推说，美国国立卫生研究院（NIH）在其官方网站上悄悄地改变了对“功能增强（GOF）”研究的关键定义，这引起了人们的极大关注。NIH最近因为被曝光资助了中共国武汉病毒研究所有争议的研究遭到严格审查。
+当保守党人放弃时，就是世界末日。拜登政府的支持率已经跌到谷底，少数党领袖麦卡锡说，没有共和党人投票是因为不合法。郭文贵先生每天通过GTV、GNews和爆料革命做的事与班农先生的《战斗室》很像，很大一部分是关于中国共产党和老百姓的。这是一场坚持不懈、值得拥有的战斗，每天都在进步，最终必会赢得胜利。因此《战斗室》和班农先生一直被攻击。
 
-根据网页档案显示，今年10月19日之前，NIH在其官网上把“功能增强”实验定义为“一种修改生物制剂的研究，使其赋予该制剂新的或增强的特点。这种研究带来了生物安全风险，必须仔细管理这些风险。获得NIH资金支持的这部分GOF研究只能在受到严格监督、能提供恰当的生物安全和生物安保措施的实验室进行，以帮助保护研究人员免受感染并防止微生物释放到环境中。”
+[GTV视频链接](https://gtv.org/video/id=61739c03247c5a3f908ea5d1)
 
-但是，修改后的最新版本定义从根本上大大淡化了功能增强研究的概念，相反主要聚焦于“增强潜在的大流行病原体（enhanced potential pandemic pathogen）”，或称为ePPP研究。NIH官网称，“虽然ePPP研究是一种所谓的‘功能增强’研究，但是绝大多数的GOF研究并不涉及ePPP，所以不在涉及ePPP的研究所需的监管范围之内。”
 
-杰里米·雷德芬在在推特上表示，GOF的定义页面看起来在过去两三天内被重新编辑。该页面指出，它的“上一次审查”是在10月20日。但它没有对此做出解释，也没有提到它被编辑过。
 
-新闻来源：[NIH quietly rewrites ‘gain-of-function’ definition amid greater scrutiny of controversial research](https://americasvoice.news/justthenews/nih-quietly-rewrites-gain-function-definition-amid-greater-scrutiny/)
+**视频字幕：**
+
+**主持人Winston**：一个国会调查1月6日事件的委员会咄咄逼人地针对你，这是否标志着为中期选战打响了第一枪？
+
+**班农先生**：对于每天观看《战斗室》节目的中国人民、海外华人观众, 我认为最重要的是，拜登政权是非法的。我们知道他们没有赢得2020年大选，而川普总统赢了。我们从 2020年11月4日凌晨开始就指出其非法性。我们非常自豪为此所做的工作。
+
+记住，当这个城市的每个保守党人都放弃时，就是世界末日。这些激进民主党人将永远统治，并与中共合作，这世界就完了。我们说，不，绝不能这样。那些老百姓、美国弱势群体以及“让美国再次伟大的运动”为此进行了許多抗爭。我们只要每天坐下来揭露真相，事情就会好起来。
+
+现在，如果你看任何地方、任何主题的民调和人口统计数据，拜登政权已经完全崩溃，完全崩溃。而我们在上升，我们将在2022年大获全胜。委员会少数党领袖凯文·麦卡锡今天出来说，不是班农，沒有共和党人投票的原因，是因为它完全不合法，就是非法委员会。这是他说的，不是我，他是国会的资深成员之一。
+
+所以我的工作与文贵很像。文贵有他独到的行事之“法”，包括他每天在GTV、GNews和爆料革命上做的工作。我们有《战斗室》的工作, 很大一部分内容是关于中国共产党和老百姓的。没有什么能让我脱离我的工作重点。我们每天都在赢，而且我们将在2022大获全胜
+
+关于这个，我想说的最后一件事，特别是对于我们的中国观众，对于那些刚接触西方的人来说，民主伴随着巨大的责任。你必须每天努力，因为你拥有它并不意味着一切都会很美妙。这是一种磨练。这是每天的磨练。这是一种值得的磨练，因为它给了你自由的可能性，宗教自由、结社自由、言论自由。
+
+这就是为什么这是一场值得拥有的战斗。所以现在我们正在赢得胜利。我们比以往任何时候都提升得更高。这就是他们要最大限度地专注于摧毁《战斗室》和摧毁我的原因。
+[![](https://spark.adobe.com/page/k7761Vom9HRQP/images/a126c348-b436-4f61-b608-5ad22cff9a0f.png?asset_id=97aee942-c3db-42f0-871b-ccab84a9de0f&amp;img_etag=%2210b729b8d584521311d0c78293ebdcfd%22&amp;size=2560)](https://spark.adobe.com/page/k7761Vom9HRQP/images/a126c348-b436-4f61-b608-5ad22cff9a0f.png?asset_id=97aee942-c3db-42f0-871b-ccab84a9de0f&amp;img_etag=%2210b729b8d584521311d0c78293ebdcfd%22&amp;size=1024)
+*字幕/听写：云岭* *| 翻译：Dasy* *| PR：Wade* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://spark.adobe.com/page/k7761Vom9HRQP/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/k7761Vom9HRQP/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)

@@ -2,61 +2,120 @@
 ---
 
 
-## 班农专访9: 习近平下台，中国和平演变胜过战争
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1614117/)
+## 江志成的白手套马云藏大量海外资产，令习震惊
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1614143/)
 
-**简评：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-63.png)
+[https://gtv.org/video/id=6173b297247c5a3f908ebca2](https://gtv.org/video/id=6173b297247c5a3f908ebca2)
 
-中共测试了一种可携带核武器的新式超音速导弹，但中共刻意隐瞒这一成就。这一次对台湾发出警告。在过去的三四年里，郭文贵先生持续向西方输出一种概念：中国共产党不等于中国人。民调显示，如今80%-90%的美国人反对CCP，美国人也开始明白什么是超限战，知道中共是对整个世界构成了威胁。美国、印度、澳大利亚、日本和英国等国家应该联合起来，共同对抗中共和保护台湾。
+**郭文贵
+Miles Guo**
 
-班农先生喊话中共党魁习近平。如果想实现中国统一，习近平应该主动下台，中国和平演变成民主国家，人人享有自由，并团结海外的2.5亿华人。在自由的国度里，海外华人兴旺发达，各行各业出类拔萃。这要远远胜过牺牲很多人、只为了占领一个几千万人口的小岛台湾。
+记住啊，为啥我刚才问你们这个时间点
+Remember, why did I just ask you this time point
 
-[GTV视频链接](https://gtv.org/video/id=61741a49247c5a3f908f0ea9)
+这位战友告诉我，把我笑坏了，
+This comrade-in-arms told me that it made me laugh so badly
 
+10月3号它是在哪上市，你知道吗？蚂蚁金服，
+do you know where Ant Financial was listed on October 3rd?
 
+它是在香港上市，然后再在上海上市
+it was listed in Hong Kong, and then back to Shanghai
 
-**视频字幕：**
+在这之前，马云已经实际上被限制出境了，出境要报备
+Prior to this, Jack Ma had actually been restricted from leaving the country, and he had to report before leaving the country
 
-**主持人Nina**：中共国测试了一种可携带核武器的高超音速导弹，令拜登政府震惊。奇怪的是，中共现在试图淡化这一成就，称这只是一个“航天器”。
+你家人出，你不能出，你出，你家人不能出
+Your family member go abroad, you can’t go with them, and you go abroad, your family can’t go with you
 
-你认为中共为什么要隐藏这一不凡的成就？这会如何影响美国应对中共侵略（台湾）的战略？
+但那一次，马云觉得没事儿，也都谈完了
+But at that time, Jack Ma felt all right, and the negotiations was over
 
-**班农先生**：这是个很好的问题。
+你该怎么上市，怎么上市，
+Go public, just do it
 
-我认为第一点，因为测试非常成功，甚至CCP自己都没有意识到会如此成功。它像一个小小的炸弹，在美国引起不小的反应。请记住，民调反映，反对CCP的美国人大概有80%-90%。为什么呢？因为郭文贵来到西方后我与他一起工作，他一直在说，你们西方人不明白，共产党不是中国，不是中国人民。你们的敌人是中国共产党，这完全正确的。
+马云就约好了说你看，明天香港上市，
+Jack Ma made an arrangement and said, it was going to be listing in Hong Kong tomorrow
 
-在过去的3-4年，这个概念的改变对美国人民产生了深远影响。他们在观察，尤其在观察中共。他们明白了什么是“超限战”。这也是《战斗室》可以做强做大的其中一个原因。 因为在G-News、GTV和郭文贵的帮助下，我们可以传递出这样深刻的见解。
+那天是星期一，星期二就在香港上市10月3号，
+It was Monday, and it was listed in Hong Kong on October 3rd on Tuesday
 
-这次导弹测试成功的程度，关于中共为什么会去找个藉口退一步，我是这么认为的。很明显，在最开始的时候，我们的情报部门对此感到很吃惊。之后他们说：“我们早就知道这件事发生了。”不是因为中共测试的方式，是他们被打了个措手不及。
+你看我对时间没概念，这个我记得很清楚啊
+You see I have no concept about time, but I remember this very clearly
 
-这显示出我们情报部门的软弱。 我总是说，我们的情报部门太糟糕了，简直是笑话。他们总是错过信息，尤其错过中共的每一个重要进展。现在，我们可以从两方面来理解。一方面是中共的渗透，他们内部有为共产党效力的人。我想这种事已经发生了，我们必须去审视它。
+就是他告诉我的，说，星期二完了，回到上海，在上海再敲锣，两次
+That’s what he told me and said that after Tuesday then go back to Shanghai, and ring bell again in Shanghai, twice
 
-华盛顿DC的每一个部门（向共产党）的妥协是非常严重的。《国家脉动》的娜塔莉·温特斯和拉希姆·卡萨姆做了出色的工作，每天曝光这类事实。另外一个方面纯粹是无能。在过去三四十年的历史中，我们的军事行动都基于非常糟糕的情报。这是让人震惊的时刻。
+这时候孙力军在里面挺不住了，交代了，说马云所有的股份给江志成的
+in the meanwhile, Sun Lijun couldn’t stand it anymore, so he confessed that Jack Ma was the surrogacy all the share holders for Alvin Jiang
 
-《每日邮报》是全世界最流行的网站，里面充满了明星的八卦、谋杀和小道消息。但是他们有时候也有不得不报道的重要信息，这次测试的新闻几乎占据了《每日邮报》整个周末的头条。他们知道这一消息的意义，尤其在台湾和南中国海局势紧张的情况下。所以，这一时间点是中共精心策划的。
+给江家、曾家，还有孟（建柱），还有王岐山
+Jiang’s family, Zeng’s family, Meng’s family, and also Wang Qishan
 
-也许测试太成功了、太令人惊讶了，他们想让西方继续沉睡，尽管这一次成功肯定对尤其是对台湾发出了警告。除非西方，我的意思是印度、澳大利亚、美国、日本和英国团结起来，表現出保护台湾和南中国海绝不退让的决心。
+怎么代持的，然后交代了马明哲怎么回事
+How did he hold it, and then explained the secret of Ma Mingzhe
 
-由于（中共国）的困境和欺骗，国内金融危机随时可以引起的崩塌，历史上最低的制造业增长，房地产市场的萧条，影子银行也处于崩溃的边缘，寒冷和物质缺乏的冬天近在眼前。实话说，严冬季节的春节也不好过，没有燃料，或者燃料贵到能花光你所有的钱，没有食物。
+然后告诉了马明哲，平安保险，多少钱在地产里面
+then he revealed Ma Mingzhe’s Ping An Insurance, how much money was in the real estate
 
-人们会想，为什么我们被如此奴役却得不到回报？所有这些聚集在一起，使得中共不得不把人们的视线转移到他们所谓的合法性的来源，也就是统一他们所说的中国人民收复台湾。对于这个问题我想说的最后一点，是直接对习近平主席喊话。
+保险资金出了多少，大概是9万亿
+How much insurance funds have been spent？It’s about 9 trillion yuan
 
-我知道习近平和他的情报团队看你们的节目，看文贵的直播，看《战斗室》。你一直说（中共）的合法性在于中国人民和中国的统一。台湾的人口我不太清楚，4000-6000万。
+就平安间接直接投入到房地产的9万亿和移出多少钱
+Regarding the 9 trillion yuan that Ping An directly invested in real estate and how much money it was moved out
 
-全世界有2亿5000万海外华人生活在各个安全和相对安全的国家。他们大部分在西方兴旺发达，包括澳大利亚和日本。为什么不统一所有的中国人呢？为什么不统一他们？别只考虑几千万台湾人，考虑考虑被你的屠杀政策赶出国门的2.5亿海外华人。如果你想团结中国人民，最简单的方法不是打台湾，那样会杀死中国人，也会杀死美国人，但是主要是中国人。
+然后美国的马云的代持人是谁，然后吴征怎么马云那里拿走了70亿美元
+Then who is Jack Ma’s holder in the United States, and how did Bruno Wu take away 7 billion US dollars from Jack Ma
 
-最好的统一方法是，你自动下台，将中国变成平民主义国家，让中国老百姓自由公平地选择自己的领袖。让中国人民拥有法治，言论自由；拥有自由，让他们拥有在西方拥有的一切利益，看他们在西方多么兴旺。有了那些最基本的自由，他们非常兴旺。
+通过吴征，你们看到那个 Ideanomics 公司,一个就34亿啊
+Through Bruno Wu, just one time they took away about 3.4 billion dollars from that Ideanomics company
 
-如果你想要统一中国人民，让海外华人回到中国，或者让国内的人民走向世界，自由旅行，最好的办法是你下台。如果你立刻下台，对于中国人民的自由，利益和统一就做出更大的贡献，大于攻打台湾。攻打台湾，只会死很多中国人。
-[![](https://spark.adobe.com/page/LSdBQHrplLCue/images/a126c348-b436-4f61-b608-5ad22cff9a0f.png?asset_id=97aee942-c3db-42f0-871b-ccab84a9de0f&amp;img_etag=%2210b729b8d584521311d0c78293ebdcfd%22&amp;size=2560)](https://spark.adobe.com/page/LSdBQHrplLCue/images/a126c348-b436-4f61-b608-5ad22cff9a0f.png?asset_id=97aee942-c3db-42f0-871b-ccab84a9de0f&amp;img_etag=%2210b729b8d584521311d0c78293ebdcfd%22&amp;size=1024)
-*字幕：nights*｜*听写：云岭 | 翻译：Roberts* *| PR：Wade* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+其它几个10亿，8亿的，包括这个腾讯音乐这些
+Several others, they took 1 billion dollars, 800 million dollars, including Tencent Music
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+吴征是帮助孟建柱，帮助孙力军拿走的钱
+Bruno Wu took those money away for helping Meng Jianzhu and Sun Lijun
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+然后马云又如何在美国，记住啊蔡崇信 记得一个叫蔡崇信的吧
+and how is Jack Ma in the United States, remember Joseph Tsai, remember the guy named Joseph Tsai?
 
+多牛，买洋基，然后刚刚又在我对面买了房子
+super, buy Brooklyn Nets and then just bought a house across from me
 
-*编辑：【英国伦敦喜庄园编辑部】*
-[![](https://spark.adobe.com/page/LSdBQHrplLCue/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/LSdBQHrplLCue/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+全美国有史以来最贵的房子，公寓2.5亿
+It was 250 million dollars most expensive apartments in U.S. history
+
+所有的这些房子包括在这个海外的170个项目
+All these houses are included in this 170 overseas projects
+
+都是马云藏的钱，洗的钱，背后老板主要是江志成
+It’s all the money hidden by Jack Ma, the money laundered, and the boss behind it is mainly Alvin Jiang
+
+这钱可真是大了去了，当时报给习，习傻了
+The money is really huge, it was reported to Xi at the time and Xi was stunned
+
+注：
+2018年4月13日，蔡崇信經美國職籃NBA理事會一致同意，以10億美元（約78.46億港元）收購布魯克林籃網隊49%股權，且有權在三年內買進該球隊的控制性股權。
+2019年8月15日，蔡崇信與俄羅斯億萬富豪米哈伊爾·普羅霍羅夫（Mikhail Prokhorov）簽署協議，以13.5億美元（約105.91億港元）收購後者持有的NBA布魯克林籃網隊剩餘51%股份，成為這支紐約球隊的大老闆。
+
+郭先生提到的洋基是口误
+
+* * *
+
+Date:10/22/2021
+原视频标题:江志成的白手套马云藏大量海外资产，令习震惊
+Jiang Zhicheng’s white glove Jack Ma has hided a large amount of overseas assets, it shocked Xi
+原视频日期：2021/10/17
+原视频链接:[https://twitter.com/se1y7cblljselva/status/1450298819271299074?s=24](https://twitter.com/se1y7cblljselva/status/1450298819271299074?s=24)
+任务编号：2605
+视频时间段 : 0:00-2:19
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

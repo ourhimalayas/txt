@@ -2,36 +2,123 @@
 ---
 
 
-## COVID-19最新情报｜新变种肆虐 英国疫情持续反弹 辉瑞借势拟推更多疫苗
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1614136/)
+## 世界上两大力量会诞生
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1614159/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 24/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-28.png)
+[https://gtv.org/video/id=6174c83f247c5a3f908f3b6f](https://gtv.org/video/id=6174c83f247c5a3f908f3b6f)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_0.jpg)
+这个疫苗的这种后果太严重了
+La consecuencia de esta vacuna es muy grave
 
-本周较早时间，本栏报导了关于英国病毒学家的最近发现，一种从变种毒株 Delta 变异而成的亚变种病毒株** AY.4.2 **正在英国快速传播，其传染性较 Delta 高出 10% 至 15%，相信是自疫情以来最具传染性的病毒株，专家呼吁各界保持警惕。
+但是经过疫苗灾难几年后
+Pero luego del desastre de las vacunas, años después
 
-#### **本周 英国成为世界上 COVID-19 死亡人数最高的五个国家之一**
+经过消灭共产党后
+Luego de eliminar al Partido Comunista
 
-整整一周，英国的新冠病毒疫情持续反弹，周六公布的数字显示，英国单日新增 44985 人确诊，死亡个案新增 135 宗，英国过去一星期累计超过 33 万人确诊，比之前一星期增加 15%，死亡个案亦攀升百分之12，这一数据令英国成为世界上 COVID-19 死亡人数最高的五个国家之一。英国政府衞生顾问指，当局应要考虑为恢复部分防疫措施做好准备，否则可能要在圣诞节再度封城。
+世界上两大力量会诞生
+Dos grandes fuerzas serán nacidas en este mundo
 
-#### **专家忧新变种 AY.4.2 不容易应对**
+中国人会成为世界上创新能力最强的国家
+Los chinos se convertirán en el país más innovador del mundo
 
-英国临床专家发现，被称为 AY.4.2 的 Delta 亚变种与英国越来越来多的确诊案例有关，相信AY.4.2 可能是导致病例数增加的一个可能因素，根据英国卫生安全局(UKHSA) 的说法，AY.4.2 包括尖峰突变 A222V 和 Y145H，截至 9 月 27 日，AY.4.2 至少占所有生成序列的 6%，而且呈上升趋势。伦敦帝国理工学院免疫学教授 Danny Altmann 呼吁必须严密监测 AY.4.2 的发展。
+美国始终是世界上最牛的帝国
+Estados Unidos siempre será el mejor imperio del mundo
 
-#### **辉瑞董事：更多的疫苗以应对更新的变种病毒 **
+那一定是的
+Eso es seguro
 
-前任 FDA 专员，现任辉瑞董事会成员 Scott Gottlieb 上周末在推特贴文指，AY.4.2 可能具有“部分免疫逃逸”，而这就是早前希望民众注射加强针的原因。
+那么接下来什么时代呢?
+¿Entonces después qué Era se aproxima?
 
-不过，他认为，公众毋需感到担心，因为识别新的病毒变体是关键，而这方面辉瑞有“强大的工具”。这意味着，随着新冠病毒不断变种，人们应该不断的接受更多疫苗。
+大家要看到
+Todos verán
 
-#### **最新研究：越是疫苗接种率比例高的地方，COVID-19 的确诊病例数就越高**
+人类现在生存的地球上, 所有的能源污染
+Los seres humanos que viven en este planeta tierra, todas las contaminaciones energéticas
 
-实际上，在这波疫情反弹之前，英国完成二剂疫苗接种的比例已经接近六成五，而且，最新研究显示，“新冠病毒对群体免疫或降低病毒传播方面没有任何贡献。”相反，越是完全疫苗接种率比例高的地方，每 100 万人中，COVID-19 确诊病例数就越高。
+所有的资源
+Todos los recursos
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/15-5.jpg)
+一切问题就是电
+Todos los problemas es por la electricidad
 
-新闻来源｜[CNBC](https://www.cnbc.com/2021/10/20/uk-doctors-call-for-return-of-covid-restrictions-new-mutation-watched.html)  / [NationalLife](https://nationalfile.com/pfizer-board-member-reveals-new-ay-4-covid-delta-plus-variant-which-could-require-even-more-vaccines/)
+就曾经在这个楼里待过
+Así como me he quedado aquí en este edificio
+
+在隔壁楼上的爱迪生发明了电灯一样
+En el edificio de al lado, Edison, inventó la luz eléctrica
+
+这个电灯拯救了人类
+Esta luz eléctrica salvó a la humanidad
+
+电是人类的一切的麻烦
+La electricidad es el origen de todos los problemas
+
+那么现在随着电瓶车(发展), 随着人类的这个核电的开发
+Y ahora con el desarrollo del vehículo de batería y la energía nuclear humana
+
+未来绿色能源安全的核电是美国最牛的
+El futuro de la energía verde y la energía nuclear segura, EE. UU será el mejor en eso
+
+就很小的核电
+Así como la energía nuclear más pequeña
+
+就像那潜水艇用的那个核电一样
+Al igual que la energía nuclear utilizada por el submarino
+
+航空母舰一样
+Como un portaviones
+
+未来的就是便携式的核电装置
+En el futuro será una central nuclear portátil
+
+会绝对彻底消灭煤炭石油的(发)电
+Eliminará absolutamente la generación de energía a base de carbón y petróleo
+
+这使美国(成为)最大的未来的一个国家赢家
+Esto hará que EE. UU se convierta en el ganador de un país
+
+就是绿色能源
+Es la energía verde
+
+更重要的绿色能源的百分之八九十来自哪里呢?
+Y lo más importante, de ¿dónde proviene el 80-90% de la energía verde?
+
+有光的地方, 有太阳的地方就有电
+Los sitios que tengan luz y sol habrá electricidad
+
+而且很快美国会有巨大的进步
+Y pronto EE. UU habrá un gran avance
+
+就是未来这核电厂
+Es el futuro de la central nuclear
+
+能源煤炭污染用电都没有了
+La contaminación del carbón para la energía por uso de electricidad desaparecerá
+
+美国在绿色能源上会领先全球
+Estados Unidos liderará el mundo con energía verde
+
+所以美国还是第一的
+Por eso EE. UU seguirá siendo el número 1
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
+
+日期: 10/22/2021
+原视频标题：世界上两大力量会诞生
+Nacerá dos grandes fuerzas en el mundo
+原视频日期: 10/19/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1450299056207499267?s=24](https://twitter.com/se1y7cblljselva/status/1450299056207499267?s=24)
+任务编号：2603
+视频时间段：0:00-1:34
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
