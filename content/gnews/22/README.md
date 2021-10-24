@@ -2,50 +2,27 @@
 ---
 
 
-## 马云并非邮轮度假，且试图以处理资产为由继续逗留西班牙
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1613792/)
+## 北归燕
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1613835/)
 
-作者：波士顿五月花农场 – 葛朗台太太
+#### 撰稿/插图：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/10/12-8.png)
+一年四季，春天是最令人向往的季节。春暖花开，生机盎然，憋了一个冬天，一切都是那么的新鲜，到处都充满着希望和向往。敞开的希望，难抑的激情，奔放的豪迈，怀春的季节，一切都是那么的自然。
 
+初化的春泥偶尔也会溅满踏青的白鞋，为实让人兴致大扫。邪恶的本质在于让你恶心。光明贵在纯净，越纯越亮；最忌污渍，有污便昏暗，一着不慎，便招致祸患。是故，自古以来英雄必洁身自好。
 
+然而有英雄必有陷阱，破不了陷阱与谎言又何来英雄。自古英雄难过美人关。共匪“蓝金黄”便是充分利用了人性的弱点，创造一切看似美好，自然的场景，引无数英雄竞折腰，不可为不高。唯有智慧圆满方能无懈可击，非大圣之人难以为之。生而为人，大多欲求满满，是故处处被动牵扯，难以成大事。成大事者必当知“无欲则刚”的道理。中国民间传言，只要他有欲望，有想法，没有拿不下的。这也正是中国几十年来上演的一出出正邪较量之根本。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+然而惊奇的是就是在这个污浊不堪的大染缸，竟有出污泥而不染者。爆料革命逆世而来，虽混浊而不迷失，虽艰难而不忘做人之根本，在当今恶世，确实为人类世界带来一股清流，带来一股希望。为真不破，不断强大，不断成长，必将成就人类美好的新世界。
 
+知性，美丽，大方，才识过人，这几乎是对女人的最高褒奖。就是这样一个女人，其背后又有多少让人叹为观止的故事。“杨澜被定为总参二部有史以来‘最高级的燕子’之一”这是郭文贵先生对这位家喻户晓女人的最高评价。一个女人做到如此完美，实为罕见。
 
+然而完美背后总有“谎言”，自从文贵先生爆出钥匙澜后，爆料革命战友几乎家喻户晓。然而这个世界仍然在疯狂。钥匙澜的功力也是越来越高，钓的大鱼也是一个比一个牛，人性的弱点在邪恶面前被无限放大。
 
-近日，中共多家媒体报道，马云正在西班牙自己的邮轮上休闲度假。但根据郭文贵先生情报，马云到西班牙其实是在中共特务的监督下，处理自己代持的盗国贼的资产，而且，马云并不在这艘邮轮上。报道邮轮只是为了转移公众注意力。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-126.jpg)
-中共要求马云处理完资产马上回国，在得知马云已买通部分绑架自己的特务后，便在美东时间10月22日早上，将马云身边的二十几个人替换掉了十几个。这已是中共第二次替换。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-7.jpg)
-但是，马云以处理海外资产为由，要求继续逗留西班牙两周时间。看来马云已经充分意识到潜藏在身边的危险，希望寻找各种可能的机会进行化解。
+正道主义任重道远，人们不仅要智慧圆满，更要破除私欲，做到“无欲则刚”才能正确识别邪恶陷阱并能抵御各种诱惑。
 
-爆料革命时刻掌握着马云行踪的准确情报，会为大家持续报道。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.2-4.jpg)
-参考链接：
-1. [云锋基金虞锋：聚焦三大领域助力产业升级](https://baike.baidu.com/reference/8917146/7509yu6TY7_fmewc_HidJ_QVC0QZzS3hg0oeBl8ZA4_xfF9VSLRTmhknL5-9Ahx1vfnbn_FR_RGmgw8KuNRRNh27LESMrmEahmJxcmlMbNur)
-2. [虞锋 （现任云锋基金联合创始人和主席）](https://baike.baidu.com/item/%E8%99%9E%E9%94%8B/2681189)
-3. [Yunfeng Capital](https://en.wikipedia.org/wiki/Yunfeng_Capital)
+(文章仅代表作者本人观点，与GNEWS无关)
 
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：童谣
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

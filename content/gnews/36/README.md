@@ -2,33 +2,42 @@
 ---
 
 
-## 郭文贵先生2021年10月23日盖特视频（4分53秒）全文字版
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1613685/)
+## 中共新任香港官员：澳洲龙虾威胁国家安全
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1613703/)
 
-#### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Snipaste_2021-10-24_09-32-04.png)
-战友们好！兄弟姐妹们，十三档做四十五分钟。哇塞，太夸张了。这种出汗的感觉太好了。
+作者：纽约香草山农场 007
 
-明天早上大直播，很多兄弟姐妹们给我发信息，太多的信息了，没办法一一的回，非常抱歉！明天上午九点大直播，还有很多兄弟姐妹们给我发信息，关于换喜币的事，七哥现在不方便说，去找农场，找联盟委员会。
 
-然后昨天和今天在南海东海发生的事情，感谢了兄弟姐妹们，你发了这么绝密的信息，非常感谢！
 
-然后香港银行的事儿，还有这些基金签的保密合同。赎回合同和第三方担保太重要了！这让我知道，为什么许家印，所谓的玩的这个延缓的……
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
 
-七哥的这几首歌听完正好四十八分钟，听一遍。所以说我这信息没法回，兄弟姐妹们明天直播中聊，明天希望大家大胆留言，我们明天主播、主持人会尽量问我问题，回答大家的问题。我们的主持人也会从现在起收集更多的信息，但是要注意很多是卧底的，故意捣乱的，也看到啊，现在从盖特上，GTV上很多都是卧底的，就让你回答错问题，别上人家当。包括青蒿素，青蒿素绝对是解药，青蒿素绝对救人命。大家要记住啊，但是用法要靠医嘱。
 
-兄弟姐妹们，（汗）太多了，这浑身是汗，当汗流浃背，流到你鞋里边儿的时候，你听着鞋里边咯吱咯吱响的，这种出完汗，就像欺民贼说的浇的水，浇水的感觉真好。
 
-今天这个运动，马上还有四十秒结束，总共做了七十分钟吧，然后再做其他的，还有这个各关节的运动，然后做腹拉器。
+香港新任海关关长何佩珊，10月21日宣誓就职后会见媒体时表示，将优先关注澳大利亚龙虾问题，叫嚣走私龙虾“破坏中共国针对澳洲的贸易限制”，打击走私龙虾是“维护中共国安全的重要工作”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture10-1.jpg)
+针对何佩珊的上述妄言，澳洲贸易部长发言人22日表示，澳洲龙虾卖到香港完全符合进口国的规定。另外，世贸组织正在审议 澳洲就中共的贸易限制措施提出的申诉。
 
-兄弟姐妹们，你们很多很多问题，由于法律问题我不能回答，但是有些问题我明天会在直播中回答，特别是关于喜币的，明天我们这个主要是谈共产党的经济危机，还有现在和世界上这些吸中国人民血几十年的，所谓的对冲基金，还有明天我们谈谈，到底川普总统的这个SPAC 跟Bruno Wu吴征这对冲基金啥关系。大家绝对能学到很多很多东西，以后你们都会成为投资专家，对冲专家。
+自去年中澳关系加剧恶化以来，中共违背双方签署的中澳自由贸易协定，以检疫检查为借口，采取上不了台面的贸易限制和制裁措施，阻止包括岩龙虾在内的多种澳洲产品进口。
 
-STOP，哦天哪，九英里才不到四千大卡，我的老天爷，怎么回事这是，行了，明天见。
+何佩珊一上任就向中共表忠心，把民生食品拔至危害国家安全的高度。中共官媒环球网舆论配合，当天报道称，何佩珊的首要工作是维护国家安全和防范恐怖主义。中共的威权暴政，已完全渗入香港各个领域。
 
-稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
+(本文仅代表作者观点)
 
-[郭文贵先生10月23日盖特](https://gettr.com/post/pezll0b96f)
+参考链接：
+1.[中共新任香港官员：澳洲龙虾威胁国家安全](https://www.voachinese.com/a/Australia-asks-why-Hong-Kong-considers-lobsters-national-security-risk-20211022/6281453.html)
+2.[中共新任香港官员：澳洲龙虾威胁国家安全](https://news.mingpao.com/pns/%e6%b8%af%e8%81%9e/article/20211022/s00002/1634839812979/%e6%b5%b7%e9%97%9c%e6%96%b0%e9%97%9c%e9%95%b7-%e9%a6%96%e5%8b%99%e7%b6%ad%e8%ad%b7%e5%9c%8b%e5%ae%89-%e4%bd%95%e7%8f%ae%e7%8f%8a%e7%a8%b1%e6%89%93%e6%93%8a%e3%80%8c%e8%bb%9f%e5%b0%8d%e6%8a%97%e3%80%8d-%e6%8f%90%e9%98%b2%e6%9b%b8%e5%88%8a%e6%bb%b2%e5%8d%b1%e5%ae%b3%e4%bf%a1%e6%81%af%e6%b5%81%e5%85%a5)
+3. [中共新任香港官员：澳洲龙虾威胁国家安全](https://china.huanqiu.com/article/45GF5YNCXBG)
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑：珈沅
+总编：珈沅
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

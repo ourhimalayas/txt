@@ -2,40 +2,27 @@
 ---
 
 
-## 中共内斗加剧，“攻打台湾”成为转移世界视线的工具
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1613702/)
+## 针下亡魂｜美国 45 岁 FBI 探员接种疫苗24小时内死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1613769/)
 
-作者：波士顿五月花农场 – 葛朗台太太
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 24/10/2021**
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
+【美国】亚利桑那州一名 45 岁的男子 Geoffrey Young 在接种辉瑞 COVID-19 疫苗后不到 24 小时内死亡。
 
+Geoffrey 是联邦调查局的一名探员，他于 4 月 17 日接种了第一针疫苗。不久， Geoffrey 出现了一系列症状，包括头痛和噁心，唯有卧床休息，当时他和他的太太都认为这是打完疫苗后正常副作用。
 
-据郭文贵先生爆料，美东时间10月22日大约早上8点35分，中共多支潜水艇蓄意浮出水面，出现在台湾东部、东南部、东北部等海域。美国和日本政府也已经得到此情报，并且推断中共在台海地区将会有更加疯狂的行动。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture9.jpg)
-潜水艇浮出水面，在军事上是严重的挑衅行为，也是中共的惯用伎俩。根据日本媒体NHK，早在2018年1月12日，中共潜艇就曾在中共国东海的公海上浮出水面，并挂起中共国国旗。
+可惜，就在几个小时后，当太太 Ona 再次进入卧室察看丈夫身体状况时，发现丈夫脸色发青，伸出的一只手臂悬在床沿，人已经没有呼吸。
 
-随着中共内斗逐渐加剧，中共高层惯常利用“攻打台湾”，对内消解经济崩溃、政治矛盾激化的事实，对外转移世界对病毒、疫苗生物超限战的注意力。而根据郭先生的情报和推断，如若中共攻打台湾，媒体人陈文茜，无良政客洪秀柱、朱立伦等卖台贼，一定会同中共里应外合，控制台湾的媒体、政界等。
+Ona 用影片的方式将此事件发布在社交平台 Instagram 上，她表示“我丈夫非常相信自由，以至于他每天都认真工作以捍卫我们的自由，并随时准备为我们的自由而战。他相信科学，他去打了针。他还笑着告诉我，Ona，别担心，几百万人都打完了，都很好，会没事的。”
 
-郭先生已经多次警告台湾同胞做好最坏的打算，采取各种措施保障自己的安全。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/46.jpg)
 
-(本文仅代表作者观点)
+来源｜[个案046](https://www.instagram.com/p/CTAQyF5l1oN/)
 
-参考链接：
-1. [中共内斗加剧，“攻打台湾”成为转移世界视线的工具](https://gtv.org/video/id=6172b02683e948708d05c1b9)
-2. [中共内斗加剧，“攻打台湾”成为转移世界视线的工具](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20180115-%E4%B8%AD%E5%9B%BD%E5%85%88%E8%BF%9B%E6%A0%B8%E6%BD%9C%E8%89%87%E9%9A%90%E7%A7%98%E4%B8%8B%E6%B0%B4-%E5%90%91%E5%8F%B0%E6%B9%BE%E5%92%8C%E6%97%A5%E6%9C%AC%E6%96%BD%E5%8E%8B)
-3. [中共内斗加剧，“攻打台湾”成为转移世界视线的工具](https://bnn.co/news/gb/pubvp/2018/01/201801141644.shtml)
+* * *
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//
 
-编辑：飞虹
-总编：童谣
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)

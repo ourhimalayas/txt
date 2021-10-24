@@ -2,45 +2,23 @@
 ---
 
 
-## NBA知名穆斯林球员坎特为西藏人发声后，再为新疆人站台
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1613815/)
+## 秘翻在线：日本大选对中共病毒感染者采用无障碍投票
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1613883/)
 
-作者：纽约香草山信息部 – 6zero4
+撰稿：待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/画像1-20.png)(图片源自本文链接)
+日本每日新闻10月24日消息：本次，是中共病毒蔓延以来的第一次日本大选。为此，一项特别的法律于6月生效，允许在选举期间被感染者居家或在接受治疗的地方通过邮寄方式投票。[你的众议院选举]
 
+这种特殊的邮政投票系统已经用于地方选举，但使用该系统的人数相当少，对地方选举委员会的采访时，发现了一些问题。
 
+在7月的东京都议会选举中，有110人使用该服务，居家或在接受治疗的地方的2000多人中,仅有110人使用；在兵库县长选举中，只有一人使用，而在仙台市长选举中，没有人使用。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+为了防止感染，在索取选票和邮寄选票时，必须将装有必要文件的密封信封装在有拉链的透明箱子里，并对表面进行消毒，然后邮寄出去。每次执行前都要洗手和消毒，还建议使用口罩和一次性手套。这些麻烦很可能成为投票的障碍。
 
+早稻田大学比较政治学教授、日本选举协会会长池谷知明说：宣传是必须得有的，除此之外，有必要建立一种制度，使全国各地对居家或在某处接受治疗的人提供统一的帮助，包括使用收集和交付公司，以便对居家接受治疗的人的帮助不会在选举管理层面出现差异。在很痛苦的发烧状态下实施很复杂的投票操作真的有困难，但选举是表达人民意愿的宝贵机会，我希望这个方法能够得到充分利用。
 
+[信息源](https://news.yahoo.co.jp/articles/dfe3717158fb08038b41f454ef84a964eb005e4f?page=1)
 
-昨天，本台报道了出生在瑞士的土耳其籍，波士顿凯尔特人队NBA知名球员坎特，10月21日发推为西藏人民发声，抨击中共政府，并称习近平为“野蛮的独裁者”，强调西藏属于西藏人民，遭遇了中共的诬蔑和诽谤，中共还在国内禁止了凯尔特人队所有比赛的转播。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-13.jpg)
-第二天，坎特又穿上印有“维吾尔人的自由”T恤再次发推，声援新疆同胞，对习近平和中共的抨击更为激烈： “我在全世界面前呼唤你，关闭奴隶劳改集中营，释放维族人！立即停止种族灭绝！”并称习近平为“无情的独裁者”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/2.3-4.jpg)
-每年业务价值10亿美元的NBA，是中共国民众最喜爱的体育赛事之一，中共国观众是该赛事转播在线流量的主要贡献者，因此经常被中共拿来作为要挟和控制美国体育界的棋子。但即便是中共肆无忌惮的威胁、恫吓和封杀，也挡不住如坎特等正义人士对它的不懈揭露与抨击！
+通过上次的美国大选，应该还有一些人，有更必要的这里没讲的担心吧?
 
-参考链接：
-[After China Blocked Celtics Games, Kanter Re-Ups: Demands “Heartless Dictator” Xi Stop Uyghur “Genocide” Now](https://www.zerohedge.com/geopolitical/china-bans-streaming-all-boston-celtics-games-enes-kanter-demands-beijing-free-tibet)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+（文章仅代表作者个人观点）
