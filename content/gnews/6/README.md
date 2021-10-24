@@ -2,123 +2,67 @@
 ---
 
 
-## 世界上两大力量会诞生
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1614159/)
+## 文·贵天成——文贵先生谈“马云”（九）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1614200/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-28.png)
-[https://gtv.org/video/id=6174c83f247c5a3f908f3b6f](https://gtv.org/video/id=6174c83f247c5a3f908f3b6f)
+**整理：BENJ1
+编辑：李易通**
 
-这个疫苗的这种后果太严重了
-La consecuencia de esta vacuna es muy grave
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_2536.jpg)图片来源：雅典娜设计组（精灵蓝）
 
-但是经过疫苗灾难几年后
-Pero luego del desastre de las vacunas, años después
 
-经过消灭共产党后
-Luego de eliminar al Partido Comunista
+**往期回顾：**
+[文·贵天成——文贵先生谈“马云”（一）](https://gnews.org/zh-hans/1611703/)
+[文·贵天成——文贵先生谈“马云”（二）](https://gnews.org/zh-hans/1611834/)
+[文·贵天成——文贵先生谈“马云”（三）](https://gnews.org/zh-hans/1611836/)
+[文·贵天成——文贵先生谈“马云”（四）](https://gnews.org/zh-hans/1611880/)
+[文·贵天成——文贵先生谈“马云”（五）](https://gnews.org/zh-hans/1612653/)
+[文·贵天成——文贵先生谈“马云”（六）](https://gnews.org/zh-hans/1613697/)
+[文·贵天成——文贵先生谈“马云”（七）](https://gnews.org/zh-hans/1613780/)
+[文·贵天成——文贵先生谈“马云”（八）](https://gnews.org/zh-hans/1613780/)
 
-世界上两大力量会诞生
-Dos grandes fuerzas serán nacidas en este mundo
+**郭文贵先生2018年11月13日视频：**
 
-中国人会成为世界上创新能力最强的国家
-Los chinos se convertirán en el país más innovador del mundo
+马云当年上蹿下跳，花巨资在美国到处公关，和吴征杨澜这两个烂货合作，要把郭文贵给遣返。马云和吴征，你们现在拍一拍你们的良心窝子，郭文贵的爆料，最大的受益者就是你们。然而你们当年却伤害我，你们这帮畜生，咱们的事绝不拉倒。
 
-美国始终是世界上最牛的帝国
-Estados Unidos siempre será el mejor imperio del mundo
+**郭文贵先生2018年12月08日视频：**
 
-那一定是的
-Eso es seguro
+大家好好看一看， 这个张首晟和马云是什么关系？和贵州的大数据什么关系？和上海科技大学什么关系？好好看看。别扯复旦大学，扯复旦大学干什么？咱说上海科技大学、清华大学。
 
-那么接下来什么时代呢?
-¿Entonces después qué Era se aproxima?
+**郭文贵先生2018年12月29日谈马建案：**
 
-大家要看到
-Todos verán
+吴征搞出了马蕊强奸案，找美联社第一个登出来，然后又找了Roger Stone(罗杰·斯通)在美国媒体造谣，还有一个叫NewsBest的美国媒体也开始造谣，让这些西方媒体诬陷郭文贵。然后又跟刘特佐一起去游说美国政府，要把郭文贵遣返。被游说的人中，包括当时在白宫的STEVE 班农先生，还有STEVE WYNN等一系列的人。所有参与游说的人，包括马云，包括几十个美国重要人士，中共在后面提供巨大的资源支持，这个力量是超出想象的。吴征先生打着是彭丽媛女士的好朋友的旗号，然后还说跟习近平先生是好哥们，王岐山是他的Partner(合伙人)，孟建柱是他的家里人，孙力军是他的小老弟，俨然他代表全中国了，代表所有的权力了。
 
-人类现在生存的地球上, 所有的能源污染
-Los seres humanos que viven en este planeta tierra, todas las contaminaciones energéticas
+**郭文贵先生2019年4月20日视频:**
 
-所有的资源
-Todos los recursos
+郭台铭的发财是建立在穷苦老百姓身上的，是靠偷盗的美国技术，他是美国技术的偷盗者；共产党也是偷盗了美国的技术，偷取了中国人民的财富；马云也是偷走了不知多少年轻人的未来和生命，竟然还顶着拯救世界的英雄的头衔，实际是靠偷走的美国亚马逊公司的技术发展起来的。他们的成功都是靠偷和骗，还有和共产党这个独裁执政体制完全成为一体，结果就导致了今天的悲哀。
 
-一切问题就是电
-Todos los problemas es por la electricidad
+西方的世界都是在以法、以真的基础上来建立人类的文明和财富，而共产党和郭台铭和马云全部都是靠骗、靠关系、靠掠夺，但是现在这帮骗子却要影响世界，你不觉得是悲哀吗？而且更悲哀的CCP这个大偷，还没人管。
 
-就曾经在这个楼里待过
-Así como me he quedado aquí en este edificio
+现在郭台铭是世界上最大的技术盗窃犯。为什么我老把他和马云放在在一起说呢？他俩在川普总统刚刚当选就跑到美国来了，马云承诺为美国创造100万个工作岗位，给了吗？郭台铭承诺100亿美元投资，投了吗？100亿美元减到20亿，20亿又减到到3亿美元，马云从承诺完就不来美国了。这两个人全是共产党的超级骗子、超级小偷、超级政治玩家。这就是回答你问的为什么习近平要见郭台铭，为什么达沃斯论坛要让马云去。因为他们都是共产党培养的枪。
 
-在隔壁楼上的爱迪生发明了电灯一样
-En el edificio de al lado, Edison, inventó la luz eléctrica
+**郭文贵先生2019年4月21日直播： **
 
-这个电灯拯救了人类
-Esta luz eléctrica salvó a la humanidad
+很多人问，文贵你为什么要挑战李嘉诚，为什么要挑战马云，为什么要挑战郭台铭？这个问题很深刻，马云装神弄鬼，欺骗孩子，欺骗天下，卖假货，搞商业诈骗。大家去看看马云过去的历史和他说过的话，有几句话是真的？你看看当年他怎么骗的雅虎，你看看当年他怎么骗的软银。如果大家能听到当事人说的心里话，你们会震惊的。这些人不就是背靠着共产党，背靠着江家还有几个盗国贼家族，携盗国贼而令天下诸才子臣服吗？这不就是耍流氓嘛！
 
-电是人类的一切的麻烦
-La electricidad es el origen de todos los problemas
+很多孩子们问我，郭叔怎么致富？郭叔不愿意给你们讲真相，讲了真相你就不置业了，你就搞革命了。还有，孩子们当你们知道这些真相以后，你们就很难再相信在你们成长当中大人和老师跟你们说过的那些话。所谓的正能量，都是骗能量，都是骗能量。你接受不了的。像那马云，你看他过去说的话，你看看他当年怎么成长的，没有政治他屁毛都不是。
 
-那么现在随着电瓶车(发展), 随着人类的这个核电的开发
-Y ahora con el desarrollo del vehículo de batería y la energía nuclear humana
+**郭文贵先生2019年5月25日视频：**
 
-未来绿色能源安全的核电是美国最牛的
-El futuro de la energía verde y la energía nuclear segura, EE. UU será el mejor en eso
+当北京高院上星期要把盘古的写字楼以53000的价格在淘宝和京东进行网上拍卖的时候，这就是依法抢劫。53000这样的价格，旁边的一个最低售价的房子都要13万每平米。当盗国贼家族要把盘古这个写字楼都给拿掉的时候，我不在乎，不在乎这些财富，但是他们在光天化日之下公然抢劫，视老百姓的智商如零，我感到痛恨。
 
-就很小的核电
-Así como la energía nuclear más pequeña
+**郭文贵先生2019年6月28日视频：**
 
-就像那潜水艇用的那个核电一样
-Al igual que la energía nuclear utilizada por el submarino
+马云是商业领域的大骗子，有本书写到马云要么就是骗子，要么就是天才。马云是太典型了，孙正义和雅虎杨致远被他给骗蒙了。我告诉你们，如果没有政治帮助垄断，哪有什么马云？哪有什么腾讯？包括平安集团的马明哲。
 
-航空母舰一样
-Como un portaviones
+马云是靠金融牌照，这个金融牌照只是表面现象。说实在话，马云真正靠的是英语的优势，这使他能够里外骗。懂英语的孙正义听不懂共产党的事，共产党听不懂英语的事，他从中间一说，这叫英语优势的Agent，马云就这样骗成功了。大家知道马云现在干什么呢？马云最近潜心修学，学习中国哲学，然后学道教、道学，偶尔学学佛学。这是马云最近干的事儿，因为他被弄出公司董事局了。
 
-未来的就是便携式的核电装置
-En el futuro será una central nuclear portátil
+我告诉大家，说马云卖假货这位战友告诉我，百度就是靠不付费的音乐和卖假广告再加垄断搞起来的，马云是靠卖假货，打了一个中英文差，然后完全复制再加垄断，这些条件具备，还敢这么干，你又有英语条件，你又找上这么一个江家，江绵恒、江志成，你想不发都不行。即使你天天对着墙说你恨钱，钱都砸妳。一个14亿人的国家，一个皇帝，家里边让你去当白手套去，然后把市场门儿给关上，让你自己玩儿，再不赚钱你就是傻子，我们家Snow给它这权力它都能成千亿富豪。
 
-会绝对彻底消灭煤炭石油的(发)电
-Eliminará absolutamente la generación de energía a base de carbón y petróleo
+**发布：**Janek
 
-这使美国(成为)最大的未来的一个国家赢家
-Esto hará que EE. UU se convierta en el ganador de un país
-
-就是绿色能源
-Es la energía verde
-
-更重要的绿色能源的百分之八九十来自哪里呢?
-Y lo más importante, de ¿dónde proviene el 80-90% de la energía verde?
-
-有光的地方, 有太阳的地方就有电
-Los sitios que tengan luz y sol habrá electricidad
-
-而且很快美国会有巨大的进步
-Y pronto EE. UU habrá un gran avance
-
-就是未来这核电厂
-Es el futuro de la central nuclear
-
-能源煤炭污染用电都没有了
-La contaminación del carbón para la energía por uso de electricidad desaparecerá
-
-美国在绿色能源上会领先全球
-Estados Unidos liderará el mundo con energía verde
-
-所以美国还是第一的
-Por eso EE. UU seguirá siendo el número 1
-
-* * *
-
-日期: 10/22/2021
-原视频标题：世界上两大力量会诞生
-Nacerá dos grandes fuerzas en el mundo
-原视频日期: 10/19/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1450299056207499267?s=24](https://twitter.com/se1y7cblljselva/status/1450299056207499267?s=24)
-任务编号：2603
-视频时间段：0:00-1:34
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

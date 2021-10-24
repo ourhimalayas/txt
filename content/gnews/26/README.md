@@ -2,40 +2,41 @@
 ---
 
 
-## 医学专家认为：COVID-19大流行故意制造恐惧进而推广疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1614010/)
+## 班农专访2: 保守党会赢得2022年中期大选
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1614062/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**简评：**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Drs.-Ardis-and-McCullough-Talk-About-COVID-Driven-Fear-in-the-Medical-Profession-e1635015548401.jpg)
+当保守党人放弃时，就是世界末日。拜登政府的支持率已经跌到谷底，少数党领袖麦卡锡说，没有共和党人投票是因为不合法。郭文贵先生每天通过GTV、GNews和爆料革命做的事与班农先生的《战斗室》很像，很大一部分是关于中国共产党和老百姓的。这是一场坚持不懈、值得拥有的战斗，每天都在进步，最终必会赢得胜利。因此《战斗室》和班农先生一直被攻击。
 
-
-
-图片来源：humansarefree.com
+[GTV视频链接](https://gtv.org/video/id=61739c03247c5a3f908ea5d1)
 
 
-#### 编译：小红帽
 
-几位医学专家在10月20日Brighteon.TV的“The Dr. Ardis Show”节目中谈到，中共病毒 (COVID-19)大流行主要是由恐惧驱动的，而制造恐惧是为了推动对中共病毒疫苗的支持。
+**视频字幕：**
 
-布莱恩·阿迪斯（Bryan Ardis）博士认为，中共病毒“并不像你通过媒体被引导的那样危险或可怕。彼得·麦卡洛（Peter McCullough）博士详细阐述了恐惧在推动支持疫苗叙述中的作用。
+**主持人Winston**：一个国会调查1月6日事件的委员会咄咄逼人地针对你，这是否标志着为中期选战打响了第一枪？
 
-由中共病毒驱使的恐惧不仅在公众中蔓延，而且渗透到医学界。很多的医生非常害怕，甚至不敢走出家门或办公室去看诊。麦卡洛就曾谴责许多政府的中共病毒应对措施，称这些措施使民众“处于恐惧、隔离和绝望之中”。
+**班农先生**：对于每天观看《战斗室》节目的中国人民、海外华人观众, 我认为最重要的是，拜登政权是非法的。我们知道他们没有赢得2020年大选，而川普总统赢了。我们从 2020年11月4日凌晨开始就指出其非法性。我们非常自豪为此所做的工作。
 
-美国已经失去了“在医疗权威中谁为医疗做出贡献的意识”。疾病控制和预防中心 (CDC) 、食品和药物管理局 (FDA) 和美国国立卫生研究院已经超越了他们的界限，以至于以忽略其他有效治疗方法，只建议了一个标准的中共病毒治疗方法。
+记住，当这个城市的每个保守党人都放弃时，就是世界末日。这些激进民主党人将永远统治，并与中共合作，这世界就完了。我们说，不，绝不能这样。那些老百姓、美国弱势群体以及“让美国再次伟大的运动”为此进行了許多抗爭。我们只要每天坐下来揭露真相，事情就会好起来。
 
-麦卡洛感叹：“我们看到在医疗决策中，信托关系的侵蚀和共同决策被完全放弃。患者对他们在治疗中没有发言权感到愤怒。当他们被拒绝接受适当的药物治疗时，他们当然会感到愤怒。”
+现在，如果你看任何地方、任何主题的民调和人口统计数据，拜登政权已经完全崩溃，完全崩溃。而我们在上升，我们将在2022年大获全胜。委员会少数党领袖凯文·麦卡锡今天出来说，不是班农，沒有共和党人投票的原因，是因为它完全不合法，就是非法委员会。这是他说的，不是我，他是国会的资深成员之一。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+所以我的工作与文贵很像。文贵有他独到的行事之“法”，包括他每天在GTV、GNews和爆料革命上做的工作。我们有《战斗室》的工作, 很大一部分内容是关于中国共产党和老百姓的。没有什么能让我脱离我的工作重点。我们每天都在赢，而且我们将在2022大获全胜
 
-**参考新闻：**[Drs. Ardis and McCullough talk about COVID-driven fear in the medical profession – Brighteon.TV – NaturalNews.com](https://www.naturalnews.com/2021-10-22-ardis-and-mccullough-covid-fear-medical-profession.html)
+关于这个，我想说的最后一件事，特别是对于我们的中国观众，对于那些刚接触西方的人来说，民主伴随着巨大的责任。你必须每天努力，因为你拥有它并不意味着一切都会很美妙。这是一种磨练。这是每天的磨练。这是一种值得的磨练，因为它给了你自由的可能性，宗教自由、结社自由、言论自由。
 
-**
-*****发布：小红帽***
+这就是为什么这是一场值得拥有的战斗。所以现在我们正在赢得胜利。我们比以往任何时候都提升得更高。这就是他们要最大限度地专注于摧毁《战斗室》和摧毁我的原因。
+[![](https://spark.adobe.com/page/k7761Vom9HRQP/images/a126c348-b436-4f61-b608-5ad22cff9a0f.png?asset_id=97aee942-c3db-42f0-871b-ccab84a9de0f&amp;img_etag=%2210b729b8d584521311d0c78293ebdcfd%22&amp;size=2560)](https://spark.adobe.com/page/k7761Vom9HRQP/images/a126c348-b436-4f61-b608-5ad22cff9a0f.png?asset_id=97aee942-c3db-42f0-871b-ccab84a9de0f&amp;img_etag=%2210b729b8d584521311d0c78293ebdcfd%22&amp;size=1024)
+*字幕/听写：云岭* *| 翻译：Dasy* *| PR：Wade* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://spark.adobe.com/page/k7761Vom9HRQP/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/k7761Vom9HRQP/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)

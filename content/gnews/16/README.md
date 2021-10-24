@@ -2,23 +2,31 @@
 ---
 
 
-## 秘翻在线:检察官接受指控 卫生官员故意杀害病人以推广中共病毒疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1614094/)
+## COVID-19最新情报｜Podcast巨头：Google掩盖疫苗致死相关资讯！
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1614138/)
 
-#### 翻译/撰稿：zzballack
+**台灣寶島農場 zhong｜發布日期/ 24/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+乔·罗根在Podcast（播客）拥有许多粉丝，近日他发表了关于Google浏览器恶意掩盖新冠疫苗致死的相关消息，他只有利用其他浏览器才可以搜索到关于疫苗致死的相关内容。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-2-4.png)图片来源：NBC News
-据《红声传媒》（Red Voice Media）10月21日报道，我们至今仍不知道中共病毒的真正起源。有人认为，制造中共病毒的目的是为了摧毁所有英语国家的自由。因为在任何说英语的地方，仅为了遏制一种对大多数人来说几乎是零风险的病毒，就摧毁了持续了数个世纪的自由。
+他受到记者采访时，他已经不使用Google，因为Google正在尝试阻止用户接触正确的资讯。他举“伊维菌素”为例，伊维菌素已经被美国相关单位认证为有效治疗药物，然而Google只会让用户看到“兽用伊维菌素，或错误剂量导致副作用”的相关讯息。
 
-在加拿大，警察会在复活节关闭教堂服务。在澳大利亚，人们被禁止离开该国或跨越州界，并历经了多轮严厉的封锁。当局强迫人们下载手机应用程序，以确认他们的所在之地与其所说的相符。警察甚至会上前检查你的咖啡杯，以确保它真的装有咖啡，才能允许你在外面脱下你的口罩。然后是英国，那里发生的一些事情是最可怕的。
+- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
+- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
 
-就像美国的纽约州一样，英国的“第一波”中共病毒疫情也极为致命。2020年4月和5月，养老护理机构的死亡人数远超官方数据统计。但那里的老人是死于中共病毒还是死于政府的不当行为？现在已被证实的一件事情是，英国护理机构的医生在疫情爆发期间对其护理的所有病人实行了全面的“拒绝急救（Do not resuscitate，DNR）”命令。你没听错，他们没有做任何事情来救治病人，只是在病人停止呼吸的时候决定让他们死去。
 
-现在，所有这些事情都在调查中。有证据表明，数以千计的病人在入院时几乎立即被下达了拒绝急救命令。这些命令可能是专门给那些在某些方面有残疾的病人，比如智力障碍。并不难明白发生了什么。英国的医生、卫生管理人员甚至有可能是政府官员决定让弱者和不受欢迎的人死去，而不是试图拯救他们。
+“我必须要使用Duck Duck Go，才可以搜索到疫苗伤害、致死的具体案例，使用Google是不可能搜索到的”罗根这样么说。
 
-但如果还有比这更可怕的事情呢？
 
-AJ·罗伯茨（AJ Roberts）是一位在英国军队服役了15年的老兵。他说他有关于英国前卫生大臣马特·汉考克 (Matt Hancock)的罪证。他说，在汉考克的领导下，英国的社会主义医保系统命令护理机构给病人使用咪达唑仑 (Midazolam)和吗啡 (Morphine)等药物。这些药物非但没有挽救病人的生命，反而导致了他们的死亡。这些由政府导致的死亡随后被归咎于中共病毒，并被用来迫使公众强制戴口罩、普及疫苗接种和推行其他独裁措施。
 
-新闻来源：[“Vaccine” Murder Charges Accepted by Prosecutors, Officials Intentionally Killed Patients](https://www.redvoicemedia.com/2021/10/vaccine-murder-charges-accepted-by-prosecutors-officials-intentionally-killed-patients/)
+> Joe Rogan says he stopped using Google to search things because they are hiding information [pic.twitter.com/BzNzi70kop](https://t.co/BzNzi70kop)
+> — An0maly (@LegendaryEnergy) [October 18, 2021](https://twitter.com/LegendaryEnergy/status/1449956233411133441?ref_src=twsrc%5Etfw)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16-4.jpg)
+
+新闻来源｜[Natural News](https://www.naturalnews.com/2021-10-22-joe-rogan-accuses-google-of-hiding-information.html)
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)

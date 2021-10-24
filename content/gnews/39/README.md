@@ -2,48 +2,45 @@
 ---
 
 
-## 民调显示，77%的美国人认为脸书和推特正在伤害民众
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1613863/)
+## 美国CDC表示将重新定义完全接种疫苗的标准
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1613903/)
 
-作者：纽约香草山农场 – 007
+作者：香草山教育部- Naughty（文行）
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/gnews-logo.jpeg)
 
 
 
-据美国昆尼皮亚克大学10月20日公布的一项民意调查结果显示，77%的美国人表示脸书和推特等社交媒体的弊大于利。
+疾病控制和预防中心（CDC）主任Rochelle Walensky10月22日表示，随着新冠疫苗加强针的日益普及，美国可能会改变未来全面接种疫苗含义的定义。
 
-该大学民意调查分析师评价说，这个结果对脸书等社交媒体来说，是一记响亮的耳光，美国人认为它们正在伤害民众。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-60.jpg)
-本月早些时候，脸书内部举报人弗朗西斯·豪根在国会作证时称，脸书一直在暗箱运作，伤害儿童，制造分裂及破坏民主，以牺牲公众利益来賺取巨额利润。她认为，社交媒体不应该获得免费通行证，因为他们现在正在用我们的安全为其买单。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture-16.jpg)
-据豪根披露，脸书故意向公众、美国政府和世界各国政府隐藏重要信息。她呼吁国会采取必要行动。听证会上，两党参议员一致认为脸书需要改革。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-46.jpg)
-参考链接：
-[民调：77% 的美国人认为脸书和推特弊大于利](https://www.rfi.fr/cn/%E7%BE%8E%E6%B4%B2/20211022-%E6%B0%91%E8%B0%83-77-%E7%9A%84%E7%BE%8E%E5%9B%BD%E4%BA%BA%E8%AE%A4%E4%B8%BA%E8%84%B8%E4%B9%A6%E5%92%8C%E6%8E%A8%E7%89%B9%E5%BC%8A%E5%A4%A7%E4%BA%8E%E5%88%A9)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-35.jpg)
 
-（本文仅代表作者观点）
+她告诉记者：“我们尚未更改‘完全接种疫苗’的定义。我们将继续关注这一点。我们未来可能需要更新对‘完全接种疫苗’的定义。”她说，如果您有资格获得加强针，请继续接种，我们将继续跟进。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+那些同时接种了辉瑞-BioNTech和Moderna疫苗或一剂强生疫苗的人将获得完全疫苗接种状态。
 
-总编：童谣
-编辑：珈沅
-校对/发稿：为真不破20
+白宫冠状病毒应对协调员杰夫·齐根特斯指出，超过70万人有资格接受加强针注射，并补充说：“在未来几个月内，超过1亿美国人将有资格获得接种加强针资格。”
+
+Zients说：“除了使用辉瑞疫苗外，还有60万多万人使用Moderna和J&J接种疫苗。”
+
+疾病预防控制中心数据显示，66.2%的美国人口接种了一剂COVID-19疫苗，而57.2%的人接种了两剂疫苗。大约6%的人接种了加强针。
+
+随着世界各地的疫苗危机在社交媒体尤其是盖特平台被广泛揭露传播，有越来越多的人加入到了反对疫苗接种的队伍，在全球掀起了抵抗疫苗接种浪潮。
+
+这次美国重新定义完全接种疫苗标准显然又是想通过行政手段迫使人们接种更多疫苗。作为正道主义的笃信者和践行者，爆料革命的战友们应该更加积极行动起来，利用盖特等一系列社交媒体平台努力传播疫苗真相，唤醒更多的人们认清邪恶势力疫苗杀人的真相，团结一切追求正义的力量让邪恶势力的阴谋破产。
+
+校对/发稿：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
