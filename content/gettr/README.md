@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/24/2021 3:24 PM (UTC)`
+
+投资川普媒体的SPAC人物关系结构解读
+![img](https://media.gettr.com/group42/getter/2021/10/24/15/0a429079-8b10-ef8d-4f14-4c74d2538b00/6535a1160fda04a223c11c7c0f14e285.jpg)
+
+---
+
+`@miles 10/24/2021 3:20 PM (UTC)`
+
+恒大偿还外债利息得延期，意味着什么？
+![img](https://media.gettr.com/group24/getter/2021/10/24/15/2c3e2235-a8a9-4b14-a1eb-37cb037292a6/49ab0c8826c8820fca10be29e449d6bc.jpg)
+
+---
+
 `@miles 10/24/2021 2:14 PM (UTC)`
 
 Eleven Qualified Institutional Buyers or Institutional Accredited Investors of DWAC<br/><br/>https://gnews.org/1614670/<br/><br/>DWAC的11个合格机构买家或机构认可投资者<br/><br/>https://gnews.org/zh-hans/1614568/
@@ -281,20 +295,6 @@ Every day is a Fashion Show, and a the world is your runway. G Fashion’s New C
 👍👍👍👍👍👍👍😍😍😍😍😍
 > `@globalalliance 10/20/2021 5:16 PM (UTC)`<br/>欢迎战友们加入喜马拉雅联盟全球农场：<br/><br/>美国华盛顿DC农场<br/>DC农场申请表: https://forms.gle/otvo4C5reWcQSKE18 <br/>农场负责人：阿丙，WhatsApp +1 404 512 1394 <br/>美国纽约香草山农场<br/>Discord 群组: https://discord.gg/ChqXAHd <br/>农场负责人：长岛伟哥，DIscord： 长岛伟哥#1466<br/>美国洛杉矶盘古农场<br/>Discord 群组: https://discord.gg/3MpgyFjF <br/>农场负责人：美国小李，Discord：美国小李#3727 <br/>美国波士顿五月花农场<br/>Discord 群组: https://discord.gg/Tg7YCtMP9j  <br/>农场负责人：如水，Discord：如水#6458<br/>加拿大多伦多枫叶农场<br/>Discord 群组: https://discord.gg/Cpz33sS <br/>农场负责人：文枫，Discord ：xmlyca(文枫)#0947<br/>加拿大温哥华圆成农场<br/>Discord 群组: https://discord.gg/JpnfF7T  <br/>农场负责人：卡丽熙，WhatsApp:+1 613 434‑9162<br/>加拿大温哥华扬帆农场<br/>Discord 群组: https://discord.gg/r9tYf3HKTn <br/>农场负责人：飞翔的小鸟，Discord: 飞翔的小鸟#8679<br/>加拿大温哥华英里准农场<br/>Discord 群组: https://discord.gg/nj93f7kh   <br/>农场负责人：郭七郎，Discord ：郭七郎#3226<br/>日本东京樱花团农场<br/>Discord 群组: https://discord.gg/YGTPfxs <br/>农场负责人：马拉多纳，Discord: 马拉多纳#2266<br/>
 ![img](https://media.gettr.com/group48/getter/2021/10/20/17/32ed2235-0360-a41e-1091-6d12192a47b5/8539fe2d94597a7df57d9199da2ed52c.jpg)
-
----
-
-`@miles 10/20/2021 8:26 PM (UTC)`
-
-10/20/2021 Miles Guo: The CCP is committing a fraud by manipulating the stock market using Jack Ma at the state level. With all the families of Jack Ma and his right-hand man, Yu Feng, being held hostages, Jack Ma was coerced by the CCP to go to Spain to sell his land, yacht, and holding companies to bring up Alibaba’s stock price to help the CCP profit. The 20 people accompanying Jack Ma are in fact the killer-level special police or civil servants, and all of them are holding fake identity paperwork<br/><br/>10/20/2021文贵直播: 中共利用马云进行国家级股市操纵、刑事诈骗；马云和副手于峰全家被绑架，被中共胁迫到西班牙变卖土地、游艇和控股公司，变相抬高阿里巴巴股价，助中共获利。马云随行的20人实为杀手级特警和公务员，用的都是假证件。<br/>
-![img](https://media.gettr.com/group13/getter/2021/10/20/20/26/c0797a4e-fba8-90e2-bd79-c19438695b03/out.jpg)
-
----
-
-`@miles 10/20/2021 4:04 AM (UTC)`
-
-10/19/2021 Miles Guo’s GETTR: The US and CCP’s Social Security are different in terms of whether the government is responsible for the losses in the investments, whether all the illnesses are covered, and if the pensions are truly insured. The social security of the Communist China is purely a scam, and the hospitals are the places where patients are murdered, with their money being robbed.<br/><br/>10/19/2021 文贵盖特：中美社保的区别在于政府对赔钱负不负责、是否覆盖所有的疾病以及养老金是否有真正的保险；在中共国，社保就是骗局，而医院是杀人和抢钱的地方！
-![img](https://media.gettr.com/group14/getter/2021/10/20/04/04/b092f6d6-ff77-d340-6f34-9bd541b6f203/out.jpg)
 
 ---
 
