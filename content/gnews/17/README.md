@@ -2,29 +2,27 @@
 ---
 
 
-## 房产税正式试点，或成压垮房地产的最后一根稻草
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1613477/)
+## 有声|澳洲特别委员提出12项加密货币发展建议
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1613516/)
 
-#### 撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-27.png)[图片来源](http://www.unsuv.com/news/zhanhui/16-08/26/11071.html)
-10月23日，中共国人代会授权开展房地产税改革试点工作。要点如下：
+配音：香草山美食部 – 玫瑰园
 
-1、征税对象：居住用和非居住用等各类房地产，不包括依法拥有的农村宅基地及其上住宅。土地使用权人、房屋所有权人为房地产税的纳税人。
+据雅典娜农场引述Financial Review10月20日的消息，澳大利亚金融和科技特别委员会向联邦政府提出了12项建议，以发展本地的加密货币和区块链社区。
 
-2、适用法律：《中华人民共和国房产税暂行条例》、《中华人民共和国城镇土地使用税暂行条例》
+建议包括，为数字货币交易所建立市场许可制度；建立一个具有最低标准的数字资产保管或存管制度；开展“代币摸底”工作，确定澳大利亚数字资产代币的最佳方式；建立新的去中心化组织机构；澄清反洗钱和反恐融资法规，以令法规不会破坏创新； 修改资本利得税制度；修改法律，鼓励在澳大利亚从事数字资产”开采”和相关活动的企业；审查澳大利亚中央银行数字货币零售的可行性；要求澳大利亚储备银行根据斯科特·法雷尔（Scott Farrell）的报告，为新的支付平台制定共同的接入要求；建立全球市场激励机制，在明年年底前取代离岸银行单位制度。
 
-3、规则制定：国务院制定房地产税试点具体办法，地方政府制定具体实施细则。
+在全球加密货币领域蓬勃兴旺之际，相关规范的研究和出台，将为喜币的良好运作提供更好的发展空间。
 
-4、实施办法：试点期限为五年，试点过程中及时总结试点经验，条件成熟时，及时制定法律。
+文字版原文：[澳洲特别委员提出12项加密货币发展建议](https://gnews.org/zh-hans/1609943/)
 
-中共国房地产市场供远大于求，各大房企均面临极其严重的债务危机，此时推出房产税，将对市场预期产生重大影响，或是压垮房地产市场的最后一根稻草。
+音频处理：喜山必胜Maverick
 
-消息来源：
-
-[全国人民代表大会常务委员会关于授权国务院在部分地区开展房地产税改革试点工作的决定](http://www.gov.cn/xinwen/2021-10/23/content_5644480.htm)
-
-(文章仅代表作者本人观点，与GNEWS无关)
-
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

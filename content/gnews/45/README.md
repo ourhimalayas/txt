@@ -2,31 +2,35 @@
 ---
 
 
-## 法国利用流感疫苗捆绑推行新冠疫苗第三针
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612900/)
+## 中共病毒导致男性的精子数量锐减
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1612948/)
 
-作者：澳喜农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月22日，法国开始了今年的季节性流感疫苗接种，同时，法国政府竟然鼓励接种流感疫苗的民众同步注射新冠疫苗第三针。数据显示，流感疫苗的接种人群主要是65岁以上的老人和孕妇，还包括哮喘、糖尿病、心力衰竭，以及艾滋病的患者。
+**撰稿：日本东京方舟农场 北极**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-21.jpeg)
+10月8日，澳喜农场多语组发布在盖特的视频片段，法国遗传学家亚历山德拉∙亨里昂“·考德（Alexandra Henrion-Caude）警告说，中共病毒导致男性的精子数量锐减，注射疫苗可能会改变男性的生育能力。
 
-法国健康部卫生署长杰罗姆·所罗门辩称，上述民众具有同时严重感染新冠病毒和严重流感的风险。 但是，新冠疫苗副作用的大量事实证明，恰恰正是这些老年人和具有基础疾病的人员，在接种过新冠疫苗后的致死风险非常高。法国政府无视新冠疫苗风险，与流感疫苗捆绑式宣传，强势推行新冠疫苗第三针。
+亚历山德拉披露，医疗小组对12名有中共病毒患病史的死者进行了尸检，观察到睾丸组织发生了非常明显的病变。这个结果解释了早前的发现，他们曾发现中共病毒患病史的男性精子数量明显减少。
 
-(本文仅代表作者观点)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211023171530.png)图片来自于网络
 
-参考链接：[法国流感疫苗今开打 卫生部鼓励左右膀臂同时进行的打第3剂新冠疫苗](https://www.rfi.fr/cn/法国/20211022-法国流感疫苗今开打-卫生部鼓励左右膀臂同时进行的打第3剂新冠疫苗)
+令人困惑的是，在所有精液样品中并未检测到病毒。这意味着导致精子数量下降的只有两种可能性，第一，是刺突蛋白导致了一系列连锁反应；第二，中共病毒对睾丸组织的其他致病反应。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+据此，她呼吁不要注射中共疫苗，因为疫苗也可导致男性生育能力下降。
 
-总编：Ivy001 
-编辑：Ivy001
-校正/发稿：谐趣园
+方舟农场10月14日发表在Gnews的文章也证实了该信息，文章表示，新冠疫苗对人体免疫系统产生严重的破坏力，导致免疫力明显下降，从而发生中共病毒突破性感染。早前在以色列和近期在台湾发生的疫苗接种造成更多中共病毒感染就是证明。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[法国遗传学家亚历山德拉∙亨里昂-考德：我们不知道他们（接种疫苗者）是否能够生孩子。 法国遗传学家研究发现，新冠病毒导致男性的精子数量锐减，注射疫苗可能会改变男孩子的生育能力，也会导致女性月经紊乱，影响人类生殖功能。](https://gettr.com/post/pdiojzc596)
+
+
+
+> [新冠疫苗破坏了免疫系统，造成突破性感染](https://gnews.org/zh-hans/1594800/)
+
+
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*
