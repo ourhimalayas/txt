@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/24/2021 3:29 PM (UTC)`
+
+疫苗的灾难
+![img](https://media.gettr.com/group2/getter/2021/10/24/15/29/b9b52458-697e-babf-4aa9-563f6c207a6c/956a4e949acaaafad8f38c0374f8db5d.jpg)
+
+---
+
 `@miles 10/24/2021 3:24 PM (UTC)`
 
 投资川普媒体的SPAC人物关系结构解读
@@ -287,14 +294,6 @@ Every day is a Fashion Show, and a the world is your runway. G Fashion’s New C
 
 10/20/2021 Miles Guo: Jack Ma is handling about 3000 assets, with Joe Tasi helping him launder 75% of his money. By pushing the “great economic revolution”, the CCP attempts to strengthen its reign, wage an economic unrestricted warfare against Europe and the US, and plunder the entire world’s wealth<br/><br/>10/20/2021文贵直播：马云正在处理大概3000多笔的资产，蔡崇信帮马云洗掉了他75%的钱；中共妄图通过搞经济大革命来强化统治、对欧美等国发动经济超限战并掠夺全球财富。<br/>
 ![img](https://media.gettr.com/group3/getter/2021/10/20/23/05/20f74439-e449-0ae1-3d49-25a37fe3b0da/out.jpg)
-
----
-
-`@miles 10/20/2021 9:25 PM (UTC)`
-
-👍👍👍👍👍👍👍😍😍😍😍😍
-> `@globalalliance 10/20/2021 5:16 PM (UTC)`<br/>欢迎战友们加入喜马拉雅联盟全球农场：<br/><br/>美国华盛顿DC农场<br/>DC农场申请表: https://forms.gle/otvo4C5reWcQSKE18 <br/>农场负责人：阿丙，WhatsApp +1 404 512 1394 <br/>美国纽约香草山农场<br/>Discord 群组: https://discord.gg/ChqXAHd <br/>农场负责人：长岛伟哥，DIscord： 长岛伟哥#1466<br/>美国洛杉矶盘古农场<br/>Discord 群组: https://discord.gg/3MpgyFjF <br/>农场负责人：美国小李，Discord：美国小李#3727 <br/>美国波士顿五月花农场<br/>Discord 群组: https://discord.gg/Tg7YCtMP9j  <br/>农场负责人：如水，Discord：如水#6458<br/>加拿大多伦多枫叶农场<br/>Discord 群组: https://discord.gg/Cpz33sS <br/>农场负责人：文枫，Discord ：xmlyca(文枫)#0947<br/>加拿大温哥华圆成农场<br/>Discord 群组: https://discord.gg/JpnfF7T  <br/>农场负责人：卡丽熙，WhatsApp:+1 613 434‑9162<br/>加拿大温哥华扬帆农场<br/>Discord 群组: https://discord.gg/r9tYf3HKTn <br/>农场负责人：飞翔的小鸟，Discord: 飞翔的小鸟#8679<br/>加拿大温哥华英里准农场<br/>Discord 群组: https://discord.gg/nj93f7kh   <br/>农场负责人：郭七郎，Discord ：郭七郎#3226<br/>日本东京樱花团农场<br/>Discord 群组: https://discord.gg/YGTPfxs <br/>农场负责人：马拉多纳，Discord: 马拉多纳#2266<br/>
-![img](https://media.gettr.com/group48/getter/2021/10/20/17/32ed2235-0360-a41e-1091-6d12192a47b5/8539fe2d94597a7df57d9199da2ed52c.jpg)
 
 ---
 

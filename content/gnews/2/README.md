@@ -2,27 +2,34 @@
 ---
 
 
-## NBA球员坎特再发视频，谴责中共、声援维吾尔人
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1614717/)
+## 美国CDC可能更改疫苗“完全接种”的定义
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1614816/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+作者：俄罗斯莫斯科喀秋莎农场 – 仰望七星
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+由于“加强针”的出现，所谓“完全接种”的定义可能被更改。拜登政府官员本周五敦促符合条件的美国人接种中共病毒疫苗的加强针。疾病控制和预防中心负责人表示，可能会更新其关于“全面疫苗接种”的定义。
 
-据德国之声10月24日报道，美国职业篮球联赛（NBA）的波士顿凯尔特人队中锋埃内斯·坎特在推特上又发布了一个新视频，谴责中共对维吾尔人和其他穆斯林少数民族的人权迫害。两天前，他因在一个类似的视频中谴责中共压制藏族人被中共国封杀。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-14.jpeg)
 
-坎特在推文中写道，“狠心的独裁者习近平和中国共产党。我在全世界面前点你们的名。关闭奴工营并释放维吾尔人民！现在就停止种族灭绝！”
+目前，在美国，如果打完两剂辉瑞或两针莫德纳疫苗，又或打了一剂强生疫苗，都被视为完全接种。疾病预防控制中心主任罗谢尔·瓦伦斯基说：目前还没有改变相关定义，但他也表示，将继续研究，并可能需要在未来更新‘完全接种’的定义。”她同时还鼓励民众打第三剂加强针。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211024161640.png)图片来自于网络
+可见，不久的将来，3针也将不够用了，疫苗护照也不能用了，需要第4甚至第5针，才能达到所谓“完全接种”的状态。多少人将因此失去生命。文贵先生多次提醒，疫苗灾难还没有真正开始，留给人类的时间真的不多了。
 
-他在这则推文所附的视频上说：“此时此刻，种族灭绝正在发生，——就在我讲这段话的时刻，酷刑、强奸、强迫堕胎和绝育、拆散家庭、任意拘押、集中营、政治再教育、强迫劳动此刻正发生在中国西北的新疆地区180多万维吾尔人身上。”
+(本文仅代表作者观点)
 
-坎特本星期在社交媒体上发声支持西藏自由后，中共媒体对他进行痛骂，腾讯对其进行封杀，该体育平台下架了所有关于凯尔特人队的比赛情况。
+参考链接：[CDC：可能改变中共病毒疫苗“全接种”的定义](https://gnews.org/zh-hans/1613057/)
+[CDC: Definition of Full Vaccination for COVID-19 May Change](Definition%20of%20Full%20Vaccination%20for%20COVID-19%20May%20Change)
 
-*注：本文仅代表作者观点，与 Gnews无关*
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-*参考链接：*
+总编：山本不惑
+编辑：正义的小新
+校正/发稿：谐趣园
 
-[美国对中国封杀NBA球队表关切 球员坎特再发视频声援维吾尔人](https://www.voachinese.com/a/China-us-NBA-boston-celtics-kanter-20211022/6281997.html)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,17 +2,22 @@
 ---
 
 
-## 秘翻在线:芝加哥比萨店因人力不足被迫关闭
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1614380/)
+## 樱花灭共诗——疯卷（新韵）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1614391/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/AZ-4.jpg)
-图片:网路
+撰稿：东京樱花团/曲非烟
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-437.png)
+风魔席卷后，
 
-根据《零对冲》引述《内幕》杂志的最新报导，一家总部位于芝加哥的比萨店因为人力短缺而被迫关闭。10月17日，位于西城的”煤火”披萨店( Coalfire Pizza)老板戴夫·博诺米(Dave Bonomi)在Twitter上写道：”只是因为没有足够的人力，我们今天停止营业。在近15年的比萨店营业经验，这个现象从未发生过。”他说。戴夫指出，中共病毒大流行之后的人力短缺难以想像。
+江外缀残云。
 
-“煤火”披萨店是美国缺乏人力的一个缩影，一些独立企业未来会发现人力短缺的严重性，即便中共病毒大流行之后，恢复正常营业的餐馆和企业仍然不得不因此关门关门。
+天象万千化，
 
-“打过疫苗的人基本上会有很大的健康问题，服务生奇货可居，人工相对昂贵难寻，将来去餐厅吃饭是十分昂贵的。”文贵先生在直播中曾经提及，人类即将面临的是中共病毒疫苗之后人力短缺、通货膨胀及经济萎缩的次生灾难，如何预作准备及防患未然，是人类面临生存的一大考验。
+俱晴来岁春。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-438.png)
+（文章仅代表作者本人观点，与GNEWS无关）
 
-消息来源:[Chicago Pizzeria Forced To Close Due To Labor Shortage](http://撰稿:牛小妹)
+*插图：东京樱花团/闪闪
+校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)

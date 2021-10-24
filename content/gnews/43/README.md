@@ -2,40 +2,31 @@
 ---
 
 
-## 儿童疫苗未获FDA批准，拜登政府仍“快速”推广
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1614025/)
+## COVID-19最新情报｜Podcast巨头：Google掩盖疫苗致死相关资讯！
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1614138/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**台灣寶島農場 zhong｜發布日期/ 24/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+乔·罗根在Podcast（播客）拥有许多粉丝，近日他发表了关于Google浏览器恶意掩盖新冠疫苗致死的相关消息，他只有利用其他浏览器才可以搜索到关于疫苗致死的相关内容。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/eae33eb1-f6a4-47b2-b9d4-af3b05a9b2bf-scared_child_getting_shot.jpg)
+他受到记者采访时，他已经不使用Google，因为Google正在尝试阻止用户接触正确的资讯。他举“伊维菌素”为例，伊维菌素已经被美国相关单位认证为有效治疗药物，然而Google只会让用户看到“兽用伊维菌素，或错误剂量导致副作用”的相关讯息。
+
+- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
+- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
+
+
+“我必须要使用Duck Duck Go，才可以搜索到疫苗伤害、致死的具体案例，使用Google是不可能搜索到的”罗根这样么说。
 
 
 
-图片来源：usatoday.com
+> Joe Rogan says he stopped using Google to search things because they are hiding information [pic.twitter.com/BzNzi70kop](https://t.co/BzNzi70kop)
+> — An0maly (@LegendaryEnergy) [October 18, 2021](https://twitter.com/LegendaryEnergy/status/1449956233411133441?ref_src=twsrc%5Etfw)
 
 
-#### 编译：小红帽
 
-拜登政府周三公布了其计划“快速”为大约2,800万名5-11岁的儿童接种中共病毒（Covid-19）疫苗，尽管这款疫苗未获得美国食品和药物管理局 (FDA) 的批准。【注：这是[美国食品和药物管理局的文件](https://www.fda.gov/media/151710/download)，证明向儿童推行的中共病毒疫苗未获批准。】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16-4.jpg)
 
-白宫表示，这种（不能阻止中共病毒传播的）疫苗将在儿科医生、当地药房，甚至可能在学校提供。
+新闻来源｜[Natural News](https://www.naturalnews.com/2021-10-22-joe-rogan-accuses-google-of-hiding-information.html)
 
-根据公告，白宫已获得足够的资金，可以为已经签署疫苗接种协议的儿科医生和初级保健医生提供超过25,000剂疫苗，而美国现在有足够的辉瑞（Pfizer）疫苗为大约2,800万儿童接种。
-
-与此同时，白宫正在推出一项“广告”活动，以说服父母和孩子相信中共病毒疫苗是安全有效的。
-
-最重要的是，美国疾病管制与预防中心（CDC）负责人罗谢尔·瓦伦斯基 (Rochelle Walensky)表示，即使疫苗已获准用于儿童，她仍会建议儿童在学校戴口罩。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Biden Administration Details Plan to ‘Quickly’ Vaccinate 28 Million Children Age 5-11, Even Though the Jab is NOT APPROVED and Doesn’t Prevent Transmission (humansarefree.com)](https://humansarefree.com/2021/10/biden-administration-details-plan-to-quickly-vaccinate-28-million-children-age-5-11-even-though-the-jab-doesnt-prevent-transmission.html)
-
-**
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)

@@ -2,126 +2,40 @@
 ---
 
 
-## 台湾宝岛出品：疫苗灾害专辑
-` 中共病毒专栏` [轉載自GNews](https://gnews.org/zh-hans/1614423/)
+## 我与青蒿的不解之缘
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1614500/)
 
-- 撰文/ 台湾宝岛农场 天滅中共
-- 专辑整理：中共病毒小组
+作者：AN 英国伦敦喜庄园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpeg)
+摘要：每到夏天暑湿季节，我总会生一场大病：头痛、发烧、无力、胸闷气短、全身痛，身上像压上了大铅块般，不想挪动半步，好像连喘气的力气也没有了。每当这时，母亲就会到野外去，掐两大把新鲜的绿绿的黄花蒿回来。
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/47-1.jpg)](https://gnews.org/zh-hans/1612160/)法国 22 岁男子接种疫苗 10 小时后死亡
+![](https://assets.gnews.org/wp-content/uploads/2021/10/000_1L4081-10.jpg)网络图片
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/46.jpeg)](https://gnews.org/zh-hans/1613769/)美国 45 岁 FBI 探员接种疫苗24小时内死亡
+郭先生最近的爆料，揭开了一个一直被中共雪藏的关于青蒿素的巨大秘密——青蒿素除了可以治疗疟疾，还能治疗中共病毒，甚至是治疗癌症和糖尿病等。青蒿素还有可能就是打开人类长寿秘诀的钥匙，对此我深信不疑。
 
+2015年，当屠呦呦凭借青蒿素获得诺贝尔奖时，我曾多次上网查询“青蒿”到底是什么植物，但每次都很失望，因为网上根本没有正确的关于青蒿的图片，仅有的几张图片也是模模糊糊，根本看不清是何方神物。六年过去了，当郭先生说出青蒿素是中共雪藏的神药时，我也终于从网上查到了青蒿的真面目——原来青蒿又叫黄花蒿！多年来一直让我疑惑不解的青蒿的神秘面纱终于揭开了。
 
+其实，从我有记忆起，就与青蒿结下了不解之缘。
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/44-1.jpeg)](https://gnews.org/zh-hans/1612091/)格鲁吉亚 27 岁女护士接种疫苗一日后死亡
+在我的老家，人们把青蒿也就是黄花蒿叫“黄蒿”。 黄蒿长大后的植株蓬松硕大，是最普通不过的野草了，漫山遍野随处可见。我之所以对黄花蒿记忆深刻，是因为在我小时候，黄花蒿是我的救命药。上世纪六七十年代的中国，物质贫乏、缺衣少药。那时的我身体虚弱，每到夏天暑湿季节，我总会生一场大病：头痛、发烧、无力、胸闷气短、全身疼痛，身上像压了大铅块般，不想挪动半步，好像连喘气的力气也没有了。每当这时，母亲就会到野外去，掐两大把新鲜的绿绿的黄花蒿回来，找一只大碗倒上高度白酒。母亲让我脱掉外衣躺在床上的凉席上，她用黄花蒿的嫩尖蘸高度白酒，从我的脸部开始，用黄花蒿从头搓到脚，基本上是全身搓一遍。黄花蒿经白酒在人身上一揉搓，满屋子里充满了黄花蒿和白酒的浓浓的味道。等全身搓完了，母亲会轻轻地将残留在我身体上的黄花蒿碎屑除去，让我睡一觉，等睡醒后，全身的疼痛与不适一扫而光，满血复活。几乎每年夏天，我都要重复一次黄花蒿的洗礼，一直到十年前才停止。其实现在想起来，每当我必须要用黄花蒿祛除身体的疾病时，那个症状跟中共病毒患者的症状，倒有几分相似。
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/1-124.jpeg)](https://gnews.org/zh-hans/1607440/)美国 36 岁医学博士接种疫苗后一个月死亡
+当屠呦呦获诺奖时，我怎么也查不到青蒿是什么植物，还以为青蒿是艾蒿之类的，没想到居然是屡次治疗我疾病的黄花蒿！当郭先生公布青蒿素是治疗中共病毒和祛除疫苗之毒的解药以后，不久就有人说青蒿素带来了肺炎之类的严重疾病，也不知是在带风向还是在混肴视听。我立刻怀疑这些人要么是买到了假药，要么就是别有用心地帮助中共造谣的，中共不想让平民百姓用很便宜的药来治疗中共病毒才是真。
 
+黄花蒿本来就是野草，虽然不能像某些野菜那样可食，但也从没听说过有毒，而且我从小一直在用；不仅我用，我的家人在夏天有类似的病症时，还在用这个偏方治疗。好在不久之后，郭先生就在直播和盖特上告诉战友们不要用中共国生产的青蒿素药品，怕中共在药上掺假来荼毒百姓，总算没让青蒿素背黑锅！这次，郭先生又及时戳穿了中共的阴谋诡计——中共的老杂毛们向来把好东西据为己有，捂得严严实实的不想让老百姓知道；他们自己天天想长生不老，却希望老百姓早点死去，那样就不用支付早已被盗国贼盗空的养老金了……
 
+正如屠呦呦所说的，青蒿素就是上帝送给人类的最好的礼物，此言不虚，可惜能知道并理解这句话的人不多。郭先生再次把青蒿素这个上帝的礼物的秘密告诉全世界，能听到这个好消息并相信的人，首先就是我们这些一路追求正义、一路跟随郭先生和爆料革命的新中国联邦人，单就这一件事，我们已是被上帝眷顾的最幸运的人了。
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/40-1.jpeg)](https://gnews.org/zh-hans/1605901/)英国 34 岁妈妈接种疫苗 10 日后死亡
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/38-1.jpeg)](https://gnews.org/zh-hans/1603945/)葡萄牙 18 岁女大学生接种疫苗5日后死亡
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/37-1.jpeg)](https://gnews.org/zh-hans/1603893/)意大利 18 岁排球运动员接种疫苗27日后死亡
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/36-1.jpeg)](https://gnews.org/zh-hans/1601721/)中国 12 岁少女接种疫苗 7 日后死亡
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/35-1.jpeg)](https://gnews.org/zh-hans/1601320/)希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/32-2.jpeg)](https://gnews.org/zh-hans/1599033/)意大利 18 岁女学生接种疫苗10日后死亡
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/31-1.jpeg)](https://gnews.org/zh-hans/1598913/)法国 16 岁少女接种疫苗 5 日后死亡
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/30-1.jpeg)](https://gnews.org/zh-hans/1597702/)新加坡 44 岁指挥家接种疫苗七周后死亡
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/29-1.jpg)](https://gnews.org/zh-hans/1597333/)科威特 48 岁著名男星接种疫苗两周后死亡
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/28-1.jpeg)](https://gnews.org/zh-hans/1596153/)美国 21 岁医科生接种疫苗1日后死亡
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/27-2.jpeg)](https://gnews.org/zh-hans/1593122/)巴西 13 岁男孩接种疫苗 6 周后死亡
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/24-2.jpeg)](https://gnews.org/zh-hans/1589503/)法国 24 岁男医科生接种疫苗 10 日后死亡
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/21-3.jpeg)](https://gnews.org/zh-hans/1582909/)意大利 14 岁女孩接种疫苗两日后昏迷 现已离世
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/20-1.jpeg)](https://gnews.org/zh-hans/1582698/)韩国 20 岁女学生接种疫苗12日后死亡
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/19-2.jpeg)](https://gnews.org/zh-hans/1581220/)美国 16 岁少年接种疫苗 5 日后死亡
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/14-2.jpeg)](https://gnews.org/zh-hans/1578774/)加拿大 17 岁曲棍球运动员接种疫苗两周后死亡
-
-
-
+校对：仙女儿-文善 / 审核：X-Wing飞得更高
 
 * * *
 
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpeg)
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/45-2.jpeg)](https://gnews.org/zh-hans/1612160/)比利时 22 岁自行车手接种疫苗后心力衰竭 职业生涯被迫结束
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/43-2.jpeg)](https://gnews.org/zh-hans/1610841/)意大利 18 岁少年接种疫苗2周内突患罕见病
-
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/41-1.jpeg)](https://gnews.org/zh-hans/1607321/)澳洲 30 岁夫妇接种疫苗后相继出现心脏疾病
+编辑：【英国伦敦喜庄园编辑部】
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/39-1.jpeg)](https://gnews.org/zh-hans/1605744/)美国 35 岁疫苗拥趸孕期接种后致新生儿夭折
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/34-7.jpeg)](https://gnews.org/zh-hans/1601146/)意大利 25 岁女明星接种疫苗后患上心包炎
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/33-2.jpeg)](https://gnews.org/zh-hans/1599126/)英国 58 岁前世界冠军接种疫苗后截肢保命
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/26-2.jpeg)](https://gnews.org/zh-hans/1593082/)NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/22-3.jpeg)](https://gnews.org/zh-hans/1589436/)美国 47 岁教育学硕士接种疫苗后双腿截肢
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/212_1.jpeg)](https://gnews.org/zh-hans/1585176/)德国 28 岁女演员接种疫苗后几乎毁容
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/212_0.jpeg)](https://gnews.org/zh-hans/1585160/)澳洲 29 岁知名女星接种疫苗后患上心包炎
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/18-2.jpeg)](https://gnews.org/zh-hans/1580961/)加拿大 22 岁女医护接种疫苗后瘫痪
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/17-1.jpeg)](https://gnews.org/zh-hans/1579390/)希腊 65 岁男演员接种疫苗后因血栓而中风入院
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/16.jpeg)](https://gnews.org/zh-hans/1578815/)法国 13 岁男孩接种疫苗10日后失明
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/11-3.jpg)](https://gnews.org/zh-hans/1574393/)爱尔兰 28 岁医科女学生接种疫苗后瘫痪
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/8-1.jpg)](https://gnews.org/zh-hans/1572298/)美国 16 岁少女接种疫苗后神经损伤
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/6.jpg)](https://gnews.org/zh-hans/1570258/)法国 32 岁铁人三项运动员接种疫苗后致肺栓塞
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/1-9.jpg)](https://gnews.org/zh-hans/1568652/)英国 29 岁创意总监接种疫苗后瘫痪
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
