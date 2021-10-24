@@ -2,26 +2,22 @@
 ---
 
 
-## 中共墙内一周内爆炸事件汇总
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1615009/)
+## 香草山翻译部周刊|2021年10月24日第19期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1615138/)
 
-撰稿：自由战士
-![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-25-030116-2.png)（图片来自网络）
-中共国墙内在过去一周内，接二连三发生爆炸事件，是天灾还是人祸呢? 我们下面先看一下这些触目惊心的墙内简报：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-413.png)
 
-1.（德国之声中文网）10月24日凌晨5时，中（共）国大连市一居民楼发生燃气爆炸事故，现明火已被扑灭，搜救工作已结束。中（共）国媒体报道，事故造成2人死亡，7人受伤。事故原因正在调查中。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/text-CN-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-2.据沈阳市和平区委宣传部官方微博 @和平发布最新消息， 21日8时20分，沈阳市和平区太原南街222号发生爆炸，引爆冲击导致附近楼体受损，现场一辆公交车被波及。目前，事故已造成3人死亡，30余人受伤，事故调查及后续救援工作正在进行中
-![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-25-030331.png)（图片来自网络）
-3.据南京消防通报，24日15时54分，南京消防119接到报警：江宁区将军大道29号南京航空航天大学将军路校区一实验室发生爆燃，共造成2人死亡，9人受![图像]()伤。事故原因正在调查中。目前，现场救援工作已全部结束。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/249-2.png)（图片来自网络）
-综上，我们可以看到多次发生爆炸事件，但是类似煤气爆炸事件在过去不止出现过一次，每次过后，新闻媒体都是敷衍报道后，就没有了下文，是政府不作为，还是对事件的检讨不深刻，导致灾难一次次发生呢？政府不反思，百姓不关注。大家感觉事情没有发生在自己身边，就不会去关心。同时墙内中共媒体，每次发生了灾难性事件后，会同时让一个娱乐花边新闻霸屏热搜，某明星离婚，某明星出轨，某明星嫖娼之类的娱乐新闻，让大家的焦点聚焦到这些娱乐至死的所谓热点上，让灾难的新闻被淹没。这种轻车熟路的甩锅方案，让中共的政府部门运用的如火纯青，也就导致了一次次的灾难的重演，中共不灭，下一次的灾难也许就是你我。
+编辑： Lakers
+发稿： Lakers
 
-（文中观点只代表个人观点）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
 
-*发稿：MG1*
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

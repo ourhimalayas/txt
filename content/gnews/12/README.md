@@ -2,22 +2,25 @@
 ---
 
 
-## 加拿大安省拟出新规定取消移民入职门槛
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1615259/)
+## 有声|法国利用流感疫苗捆绑推行新冠疫苗第三针
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1615295/)
 
-采编、撰稿：文明(添草灭共)     校对编辑：硫酸羟氯喹64
+配音：香草山美食部 – 玫瑰园
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/an-edited.jpg)安省劳工部长：蒙特
+10月22日，法国开始了今年的季节性流感疫苗接种，同时，法国政府竟然鼓励接种流感疫苗的民众同步注射新冠疫苗第三针。数据显示，流感疫苗的接种人群主要是65岁以上的老人和孕妇，还包括哮喘、糖尿病、心力衰竭，以及艾滋病的患者。
 
+法国健康部卫生署长杰罗姆·所罗门辩称，上述民众具有同时严重感染新冠病毒和严重流感的风险。 但是，新冠疫苗副作用的大量事实证明，恰恰正是这些老年人和具有基础疾病的人员，在接种过新冠疫苗后的致死风险非常高。法国政府无视新冠疫苗风险，与流感疫苗捆绑式宣传，强势推行新冠疫苗第三针。
 
-据加拿大【环球邮报】10月21日报道，安大略省政府将出台一项新法，规定符合某些行业和专业条件的移民可直接就业，并取消了以往必须具备“安省工作经验”的入职限制。
+文字版原文：[法国利用流感疫苗捆绑推行新冠疫苗第三针](https://gnews.org/zh-hans/1612900/)
 
-据悉，该新法规目的是为了结束安省移民就业中存在的诸多不合理现象，即合格的移民带着该省急需的工作技能，但因在短期内无法积累所需的工作时间以获得相关就业证书，而被迫从事其他领域低工资和低技能要求的工作。
+音频处理：喜山必胜Maverick
 
-报道详细指出，被取消限制的30多个行业和专业包含工程师、发型师、金属板工人、水管工、教师、财务会计等。安省劳工部长蒙特表示，新法如果通过，该省劳动力持续短缺状况将有望好转。
-
-（以上内容仅代表原文信息和作者个人观点）
-
-校对编辑，发稿：硫酸羟氯喹64
-
-[原文链接：](https://www.theglobeandmail.com/politics/article-ontario-to-remove-work-certification-barrier-for-immigrants/)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
