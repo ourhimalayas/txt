@@ -2,31 +2,52 @@
 ---
 
 
-## 美联储称强制疫苗加剧供应链危机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1614839/)
+## 方兴未艾的先买后付 Buy Now Pay Later
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1614871/)
 
-作者：美东香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美联储最新一份褐皮书报告称，疫苗强制令正在损害就业，影响供应链危机，并推高物价。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/news-logo-6.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-36.jpeg)
+作者：香草山金融部- Opal
 
-总统拜登在九月份要求全美企业，凡是规模在百人以上的，都要让员工接种疫苗或提交和核酸报告。因总统行政令，很多公司强迫员工接种疫苗，导致不愿接受强制疫苗政策的员工被迫辞职，或者罢工。西南航空公司员工大规模罢工，令一千多航班取消。芝加哥和巴尔的摩等城市的警察和消防员，很大一部分人可能会因为拒绝接种而失去工作。
 
-美联储的褐皮书称，儿童保育问题和强制疫苗是造成企业员工离职的主要原因。因疫苗强制令解雇员工的公司和机构，面临人手的问题。由于缺少仓库工人和卡车司机，使货物滞留在港口，无法及时运输到各地，也导致港口船舶因不能卸载，而无法返航。硬件设备和医疗用品也出现紧缺。鱼肉禽蛋的零售价格已经被2020年上涨10%。商店货架出现过往少有的空架状况。
 
-美联储主席鲍威尔似乎表示了更加强烈的缩表意愿。美联储也可能加快升息的步伐，下一次会议决定加息的几率已经超过八成。
+据CNBC报道，由于供应链受阻、制造业受限。几周来，头条新闻一直在向购物者传达一个明确的信息。这个假日季节要尽早购物。在过去几年中，赶早的购物者可能会转向分期付款计划，以预订节日礼物，并在一段时间内支付购买的费用。但是许多零售商， 包括美国最大的沃尔玛已经取消或缩减了这些计划。原因之一是购物者有了新的工具来分散付款， 这就是先买后付计划 (Buy Now Pay Later, BNPL)。
 
-(本文仅代表作者观点)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Pic-2.jpg)
 
-参考链接：[Federal Reserve: Vaccine Mandates Hurting Employment, Exasperating Supply Chain Crisis](https://www.breitbart.com/economy/2021/10/21/federal-reserve-vaccine-mandates-hurting-employment-exasperating-supply-chain-crisis/)
-[Powell Says Worsening Supply Side Constraints Raise Inflation Risks](https://www.breitbart.com/economy/2021/10/22/powell-inflation-risks/)
+零售商很乐意力推先买后付计划。销售点贷款对零售商来说很容易管理，而且研究表明，这些选择会带来更大的购物篮和更高的客户忠诚度。加拿大皇家银行资本市场（RBC Capital Markets）估计，BNPL选项将零售业的转换率提高了20%至30%，并将平均票据规模提高了30%至50%。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+先买后付计划到底怎么操作呢？购物网站和金融科技公司合作，由这些金融科技公司提供 “现付 “付款计划。现在比较火的贷款公司有：Affirm，Afterpay 和Klarna等公司。比方说Macy百货店购物网站，去年10月，它开始和 Klarna这家瑞典的金融科技公司Fintech合作，给消费者所购的价值介于$10 — $1,000的货物提供分期付款；当你把所需要的货物放入购物篮中，如果选择Klarna 付款计划，当然，你在Klarna网站申请开立账户，提供它所需的个人信息，多数情况下它会立马批给你。通常它会告诉你，你的货款拆分成4笔支付，不加利息，也没有手续费。根据不同的购物品种，被拆分的4笔付款的金额可能是一样的金额，也可能第一笔款/首付的金额比其他剩下的几笔款项金额高；第1笔款是在货物发运后支付，剩下的3笔款项会每隔两个星期会被自动扣款支付。这里的2个星期支付的周期是和西方国家雇主支付员工薪水的周期是一致的。比如说美国，有的雇主是每个月付一次薪水，也有的是每星期付一次，但是多数的雇主是每两星期付一次薪水。所以付薪日，消费者情绪很高昂，乐意买买买。所以这些金融科技公司推出的计划，也是考虑到大众的消费习惯、西方人的文化等等。
 
-总编：Ivy001
-编辑：山本不惑
-校正/发稿：谐趣园
+有的零售商和澳大利亚的Afterpay公司，或者和总部在加州旧金山的Affirm公司合作，选用它们的计划，虽然每个计划都有不同之处–从付款次数到具体条款–但关键的相似之处是承诺在相对较短的时间内进行少量的等额付款，而且没有隐藏费用。通常情况下，这些计划是没有利息的。
+
+大家肯定会问，没有利息，不收手续费，也没有隐藏费用，这些金融科技公司吃什么？他们怎么盈利呢？首先他们是收取零售商/店家的费用，包括安装/设置费、月费，还有每单交易的1.5-5%的费用；其次，如果消费者按时付款的，确实是没有费用、没有利息，但是如果消费者延误付款，这些金融科技公司对每一笔延误支付的款项，就会收取$10美元的滞纳金；如果到了月结单的最后一天，还没有支付的话，他们就会加收 20%左右的利息。
+
+任何事物都有利有弊，我们要辩证地看待。
+
+【优点】：
+
+先付后买对于商家来说，该选项也增加了零售商和消费者之间的信任，导致了 “增量销售、更高的平均购买量和更高的购买频率 “。Affirm夸口说，其商家客户报告说，当消费者选择使用其BNPL计划而不是其他付款方式时，平均订单价值增加了85%。Klarna的商户基地报告说，当购物者分四次付款时，平均订单价值增加了45%。购物者还可以选择在30天内免息全额支付，或者对于大额购买，获得6至36个月的月供融资，年利率在0%至29.9%之间。
+
+那么对于消费者来说，分期付款给了消费者选择和便利。先买后付对年轻的购物者特别有吸引力，特别是Z世代和千禧一代消费者。而在那些无法获得信贷，或者由于各种原因不想用信用卡购买的消费者中更受欢迎。对于那些使用借记卡的人来说，通过先买后付延长免息付款时间的潜力是很诱人的，最终诱人到足以推动转换。生活中我们也会有过这样的经历，自己的信用卡也刷了很多，而手上没有足够的现金，资金都卡在股票里，或者定期存款还没到期，等等，各种原因吧，手头很紧，却又非常急需这物品，这个时候，先买后付这计划就是雪中送炭，等于说是调了头寸。
+
+【缺点】：
+
+在管理预算方面确实挺好的，但是如果这样会将消费者引向更大的债务陷阱的话，那这个就会变成很大的一个问题。所以，尽管BNPL的接受度很高，但也不是一个神奇的解决方案，它只是一种不同的信贷，还是需要消费者管控好自己的预算，管理好自己的财务。
+
+（本文仅代表作者个人观点）
+
+参考：
+
+[https://www.cnbc.com/2021/09/25/why-retailers-are-embracing-buy-now-pay-later-financing-services.html](https://www.cnbc.com/2021/09/25/why-retailers-are-embracing-buy-now-pay-later-financing-services.html)
+
+图片来源：
+
+[https://whiplash.com](https://whiplash.com)
+
+编辑/审核/发稿：遵从内心
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1.jpeg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -34,4 +55,3 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

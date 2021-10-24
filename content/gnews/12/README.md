@@ -2,31 +2,34 @@
 ---
 
 
-## 香港马拉松发生多人受伤，赛前强制选手接种疫苗
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1614763/)
+## 拜登承诺协防台湾，引中共强硬回应
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1614811/)
 
-**撰稿：日本东京方舟农场 海星**
+作者：香草山农场 – 遍地开花
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国总统拜登公开表示，美国对协助台湾防卫有承诺，随即引发中共国的强烈回应
 
-10月24日，在香港举行的马拉松比赛中发生多人受伤，在赛前主办方要求所有选手必须完成接种两剂中共病毒疫苗方可参赛。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-19.jpeg)
 
-据《中时新闻网》报导，香港医管局表示，截至今早11点，马拉松比赛中共有10名选手身体不适送医，伤者9男1女，年龄32至87岁，其中5人病情严重、2人稳定，2人已出院，另有1人生命垂危，正在律敦治医院治疗中。
+拜登10月21日在巴尔的摩的一个媒体活动时表示，如果台湾受到中共国攻击，美国将施以援手。这次拜登首次公开表示军事手段干涉，引发外界强烈关注。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/id13321499-2110212208191538-600x400-1.jpg)图片来自于网络
+中共忘图裹挟14亿老百姓，既有战狼汪文斌狂妄警告：任何人都不要站到中共的对立面。白宫发言人在本周五的新闻发布会上再次强调，美国的政策没有改变，美国将继续协助台湾保持其足够的自卫能力。郭文贵先生也在直播中爆料，美国的专业人士明确答复，如果共产党直接攻打台湾的话，美军是会出手的。
 
-根据资料，这场比赛中有445名选手受伤，原因包括发烧，扭伤及抽筋等。
+(本文仅代表作者观点)
 
-另据《大纪元》报导，所有参赛选手必须完成两剂疫苗接种，并且要于赛前72小时完成病毒检测，结果阴性才可出赛。在接受病毒检测后，亦要戴上识别手带，直至比赛结束后才可取下。
+参考链接: [拜登又承诺“保卫台湾”，白宫再度“灭火”，中方回应了！](https://www.163.com/dy/article/GMU8TFEI05508U92.html)
+[白宫重申不改变对台政策 专家认为拜登口误](https://www.dw.com/zh/白宫重申不改变对台政策-专家认为拜登口误/a-59604511)
 
-*注：本文仅代表作者观点，与 Gnews无关*
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-*参考链接：*
+总编：Ivy001
+编辑：山本不惑
+校正/发稿：谐趣园
 
-[香港馬拉松今開跑 400人受傷 10人送醫1命危](https://www.chinatimes.com/realtimenews/20211024001861-260409?chdtv)
-
-[渣馬至少23人不適送院　其中1人危殆　有跑手終點前暈倒](https://hk.on.cc/hk/bkn/cnt/news/20211024/bkn-20211024104127788-1024_00822_001.html)
-
-[香港渣马参赛者昨起领取选手包](https://www.epochtimes.com/gb/21/10/22/n13321493.htm)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

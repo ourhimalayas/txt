@@ -2,27 +2,23 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月24日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1614872/)
+## 文贵爆料24/10： 中共用空壳公司设计川普的目的是想干掉川普
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1614914/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-412.png)
+撰稿：Skagen【㊙️翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211024-e1635093619937.jpg)
+郭文贵先生在2021年10月24日的大直播揭露中共用空壳公司SPAC设计川普的几个原因：
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-26.png)
-文章仅代表作者本人观点，与Gnews无关
+核心的原因是中共绝对不能让川普加入GETTR，从而让川普总统丧失未来的大选；加入盖特就意味着川普一定会赢得2022中期选举，就会成为未来的共和党，成为参众两院的发言人，就如今天的Nancy Pelosi这样的house man。2022川普赢，意味着2024年川普回白宫基本定局。
 
-视频参看：2021.10.24早GTV新闻访谈
+第二，股市绝对不能有内幕交易，只要有内部交易就是刑事罪，在DWAC上市后的交易几乎都在十一家基金里边中间转来，这十一家基金，除了三家是美国和加拿大基金之外，其他全是共产党的。这种内部交易操纵市场肯定会受到SEC调查，怀疑内线交易，怀疑操作市场，川普总统就会被刑事调查，终生将无法再参与政治选举。
 
-[https://gtv.org/broadcast/watch/61755165eadeb11f5e79f579](https://gtv.org/broadcast/watch/61755165eadeb11f5e79f579)
+第三，共产党囤积的2.96亿的基金，提前放在了川普总统的信托基金，购买了涉案公司的4000万股的91.3%。MAGA投资者大量追随，目前公司的市值已经被炒作到了100多亿美元。休市的时候市值只有2亿多美元。实际被洗走了50亿-80亿美元。创下了 SPAC 被吸走资金最快的记录 。川普总统必须面对MAGA的所有投资者，川普总统最终只能买买买各种社交媒体，只有1%的成功的可能性。最后如果涉及的企业和中共有一点关系，川普如何面对追随者？还会提名竞选总统和议员吗？这次事件挣到的钱会去用在哪里？将引发美国两党内战，做是中共最想看到的。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+最后，郭先生说，爆料革命战友不攻击川普总统，我们揭露真相的目的就是揭发共产党的邪恶，灭掉共产党这个邪恶的体制 。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+（文章只代表作者个人观点）
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+参考来源：
+
+1.2021年10月24号大直播
