@@ -2,56 +2,52 @@
 ---
 
 
-## NIH坐实资助武毒所，福奇国会作证在撒谎
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1611971/)
+## 林郑月娥董建华和卖台贼基本都是江派都盼习近平出事
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1612711/)
 
-**翻译：Lindaxxoo
-编辑：MSGZ/文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/554455.jpg)
+据[2021年10月22日 文贵大直播：马云为什么在西班牙而不敢回香港；吴征成功拿下川普，共产党已经控制了川普；习的行为都是个人恩怨造成的；中共六中全会会发生什么，会有什么结果；G系列是让共产党最害怕的](https://gtv.org/video/id=6172b02683e948708d05c1b9)时间点1：06：31——
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/10.23-1.png)图片来源 Marjorie Greene
+**郭文贵先生：**说到这的时候，我再跟你讲，吴征，你知道为啥大卫兄弟是好兄弟吗？当年四年前，2017年吴征带着中国一票公安人员去伦敦，坐的车就是咱们大卫兄弟开的车，大卫兄弟在车上把他所有的全程的录话都给他录下来了，当时发给了我。
 
+我第一次爆料啊，爆大卫的料，你说大卫是不是兄弟，所以很多人来跟我说大卫有问题的时候，你们不知道的大卫和七哥之间的关系，吴征那个时候去到的那些带着去公安局访问英国，你知道是干什么吗？吴征当时其中的人就是有王力科手下和王力科。
 
-美国时间9月8日，参议员兰德·保罗再次指责安东尼·福奇博士7月份在参议院作证宣誓时在撒谎，当时他声称美国国立卫生研究院（NIH）没有资助在中国武汉进行的有争议的功能增益研究。“令人惊讶的是——福奇又撒谎了”，参议员保罗在推特上说：“关于他的机构资助武汉的新型冠状病毒研究，我的观点是正确的。”
+而且到现在习都不知道，当时调查习的姐姐的孩子，叫吴拉菲，口天吴，拉菲就是拉菲酒的拉菲，是他姐的个儿子，吴拉菲的姐姐，我们先不说，嫁给了英国人，吴征就让人调查他，到现在习都不知道。
 
-此前，新闻机构《拦截》获得的最新发布文件显示，NIH向美国生态健康联盟提供了310万美元的拨款。其中近60万美元的资金直接流向武汉病毒研究所，用于研究蝙蝠冠状病毒。
+那个时候，咱就知道，江派是要干掉习，对江家所有的事情、江家的一举一动都要盯着他。而且就在那个时候，我们就开始了解他们想干什么。
 
-7月，福奇博士告诉参议院，NIH确实为研究蝙蝠冠状病毒提供了资金，但是这笔钱并没有资助危险的功能增益研究。功能增益是指“以增加致病性、传播性或宿主范围的方式改变一个生物体或疾病”的医学研究。
+那么反过来说了，今天的习大部分在那否定邓的路线的时候，一定会闭关锁国，他不闭关锁国他无法实现，这是个政治上就是瞒天过海，你瞒天才能过海，你不瞒天你怎么过海呀？过海是政治目的，但是一定要瞒天，他一定要是把这个政治问题，他一定闭关锁国，同时他不闭关锁国，江家这些人在海外的资产和安全是没有办法，还有这些中国的1%的人拥有90%的财富，怎么可能你不闭关锁国？怎么达到自己的目的呢？所以答案是肯定的，你说的都是对的，一定会！
 
-然而在900页的文件被公布后——罗格斯大学的一位分子生物学家说，（福奇）声称该研究没有被定义为功能增益是“不真实的”。
+更重要的是你要看到两个条件，就是江家的，你看今天所有的习弄得江派的这些大佬、私人企业家几乎90%以上都是江浙人、江派的，上海帮拥有了香港的90%，这点你们不怀疑吧？在上海讲上海话的，上海话，上海话，上海尼（上海话说上海人，下同），上海尼。
 
-“这些文件清楚地表明，美国国立卫生研究院院长弗朗西斯·柯林斯和美国过敏和传染病研究所（NIAID）主任安东尼·福奇的断言——NIH不支持在武汉病毒研究所进行功能增益研究或潜在的大流行病原体增强研究，是不真实的。”理查德·埃布莱特发推。
+董建华、梁振英、林郑月娥，所有香港的几个，现在那几个，什么律政司司长，前律政司司长，现律政司司长，前警察头儿，现警察头儿，哪个不是上海帮？
 
-“材料显示，2014年和2019年NIH对美国生态健康联盟的拨款与武汉病毒研究所的分包合同，资助了2014-2017年生效的联邦政策中定义的功能增益研究和2017年至今生效的联邦政策中定义的潜在大流行病原体增强（研究）。”
+你见有山西帮吗？粤、广东帮还有存在的吗？人家李嘉诚是广东人，但李嘉诚是本质人家老婆家全是上海帮，你给我讲讲郭家，两个郭家、几大家族哪个不是上海帮？恒生家族哪个不是上海帮？香港没有广东帮，香港的粤语不是最流行的，香港的主语是上海语，上海话，上海尼，你想想在整个香港什么情况，那习是为什么要干掉行香港？
 
-“这些材料证实，拨款支持在武汉构建新型嵌合SARS相关冠状病毒，将一种冠状病毒的刺突蛋白基因与另一种冠状病毒的遗传信息相结合，并证实所产生的病毒可能感染人体细胞。”
+反过来又说了，台湾被蓝金黄的人是谁蓝金黄的？不是习，他没这个脑子，他没这个智慧，是人家杨洁篪，是人家中纪委十八局和十一局、十三局，所有这是江家的军队，包括当时的总政联络部，包括统战部，那全都是江派。在卖台贼里边90%以上的全都是江派的.
 
-文件还显示，武汉大学动物实验中心对具有人类细胞受体的基因工程小鼠进行了单独研究。
+那你去想想习你有啥跟人家折腾的，是不是？你想拿回台湾，你想拿回香港，没有一个香港、台湾的就是跟江家合作不等着习出事儿的。这就像昨天和前天我跟上海的这些人联系，包括这些马云的哥们，他说我们现在最大的希望七哥，一、你能成功；二、谁把习给做掉。
 
-陈丽娜也是一为分子生物学家，她评估了这些文件和研究蝙蝠冠状病毒的严重性。
+（以下暂略）
 
-“在这份提案中，他们实际上指出，他们知道这项工作的风险有多大”，她说：“他们一直在谈论人们可能会被咬伤，而且他们保留了每个被咬伤的人的记录。”
+撰稿：喜马拉雅的肉夹馍；
 
-“生态健康联盟有这些记录吗？如果没有，他们怎么能排除与研究有关的事故呢？”
+审核：喜马拉雅的馍夹肉；
 
-【备注：陈丽娜（Alina Chan）是一位加拿大分子生物学家，在麻省理工学院和哈佛大学博德研究所从事基因治疗和细胞工程。她主张中共病毒是实验室泄漏。】
+校对：Maarago
 
-10月20日，NIH院长柯林斯和NIAID主任福奇都声称NIH没有资助武汉的功能增益研究。今天我们发现他们撒谎了。
+（文章内容仅代表作者个人观点）
 
-NIAID主任福奇博士在与参议员兰德·保罗谈话时是宣过誓的。他否认NIH资助了武汉的功能增益研究。今天，NIH向美国众议院提供了一份文件，声称NIH确实资助了武汉的功能增益研究。看来福奇和科林斯有麻烦了。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-（文中仅代表作者个人观点，与Gnews平台无关）
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-参考链接：
-1、[BREAKING: NIH Today Corrects False Statements by Directors Collins and Fauci – the NIH Did Fund Gain-of-Function Research in Wuhan – Fauci Lied Under Oath (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/10/breaking-nih-today-corrects-false-statements-directors-collins-fauci-nih-fund-gain-function-research-wuhan/)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-2、[‘](https://www.heraldsun.com.au/news/world/fauci-lied-new-documents-on-lab-leak-theory-released/video/571210fba43fdce386bc16291880c204)[Fauci lied’: New documents on lab leak theory released | Herald Sun](https://www.heraldsun.com.au/news/world/fauci-lied-new-documents-on-lab-leak-theory-released/video/571210fba43fdce386bc16291880c204)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-3、[They called it a conspiracy theory. But Alina Chan tweeted life into the idea that the virus came from a lab. | MIT Technology Review](https://www.technologyreview.com/2021/06/25/1027140/lab-leak-alina-chan/)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-发布i：文武全才
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

@@ -2,39 +2,36 @@
 ---
 
 
-## 大直播7·24——谁是虞锋
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1608115/)
+## 美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1531510/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/848fe039-93a0-454c-89e8-11c1bb54cd86-1.jpg)
+根据《1933 年证券法》第8A 条启动停终程序行政令、作出结论及实施停终令
 
-图片来源：Geepark.net
-**整理：**BENJ1、翼族
-**编辑：**翼族
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/1-4.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/2-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/3-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/4-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/5-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/6-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/7-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/8-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/9-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/10.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/11-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/12.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/13.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/14.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/15.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/16.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/17.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/18.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/19.jpeg)
 
-【**编者按：**《7·24专题系列》是配合郭文贵先生每期大直播的内容，以最快的速度将郭文贵先生直播中提到的人与事进行一定深度的挖掘，在24小时内发布相关主题的文章，方便观众和读者进一步了解其中相关的内容。】
 
-2021年10月20日郭文贵先生大直播中爆料了马云的副手虞锋，大致内容如下：“马云从2020年10月3号自己公布被约谈，他不是约谈，他是被刑事调查，从10.3之后屡次出来到公司里、到外面拿金融票据。所谓在诉讼期间，和共产党达成了把所有钱拿回来的协议。**马云的副手叫虞锋，虞锋全家都被抓**，马云二十几个高管全部被抓，马云到今天是百分百地失去自由的状态，百分百，现在跟着马云在西班牙的20个人都来自中国政府，7个是中国公安部一局还有国家安全部的警察，全是杀手级、持武器的，全都是假名，和当年海航去普罗旺斯（杀王健）是一个情况。现在是中央警卫局和公安部的，经济侦察局和政保局杀手级的特警，用的是假身份。他们是国家公务员、中国军人，用假护照到任何国家都是非法的，任何老百姓都可以抓捕他们，这二十人对马云实施了逮捕和绑架，因为马云母亲、岳父、妻子、孩子28人被共产党拘押，让马云去处理资产。马云飞往西班牙是10月14号申请的，申请的理由是去西班牙卖掉自己的游艇和自己岛上的三大块地，还有必须他亲自去签名的几个控股公司。”
+[中文PDF版：](https://assets.gnews.org/wp-content/uploads/2021/09/SEC-order_20210913_中文翻译-V2.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/SEC-order_20210913_中文翻译-V2.pdf)
 
-随后又再次提到虞锋，郭先生爆料说：“马云、虞锋头两天在德国，**当时有人建议在德国把虞锋做掉**，但是钱没弄回去，所以就没弄死他。”
+[原版英文PDF：](https://assets.gnews.org/wp-content/uploads/2021/09/33-10979-1-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/33-10979-1-1.pdf)
 
-关于马云和虞锋创立的云锋基金，郭先生在直播中说：“郭文贵在镁光灯下创造的财富超过马云100次，能买阿里巴巴1000次，**云锋基金都是和我合作**，更别说马明哲……中国企业家比我有钱是不可能的，我不图你钱，也不会跟你搞双修。我们只有一样——希望你安全，站出来反对共产党，让中国人知道互相残杀都是没有未来的，不管你怎么斗，都要有法治、有规矩！”
 
-据公开资料显示，上海云锋投资管理有限公司（简称“云锋基金”）成立于2010年初，是以阿里巴巴董事局主席马云和聚众传媒创始人虞锋的名字命名而成，并联合一批行业的“成功”企业家和“成功”创业者共同发起创立的私募基金，包括：巨人网络董事长史玉柱、新希望集团董事长刘永好、银泰投资董事长沈国军、新奥集团董事长王玉锁、分众传媒董事局主席江南春、深圳迈瑞医疗董事长徐航、易居中国董事局主席周忻、中国动向董事长陈义红、五星电器创始人汪建国、七匹狼创始人周少雄、九阳股份董事长王旭宁、优孚控股总裁张幼才等10多位企业家。
 
-云锋基金总部设在上海，并在香港、北京和杭州等城市设分支机构。其宗旨是除了投入资金外，把各自的创业经验与企业分享，在发展战略、组织管理、品牌建设等方面帮助企业更好发展，关注年轻的企业家，创造下一代的，培育未来有影响力的企业。目前云锋基金旗下拥有多支美元基金、人民币基金和专项基金。
-
-云锋基金主要涉足互联网、医疗、大文娱、金融、物流与消费等领域云锋基金成立于2010年，致力于成就面向未来的优秀企业，陪伴企业共同创造长期价值，共建美好未来。云锋基金关注硬科技、企业服务、绿色能源、现代农业、生物科技、消费等领域，和创业企业一起推动技术创新与可持续发展，助力产业重塑与升级。
-
-虞锋，1963年出生于上海，1982年考入复旦大学哲学系， 1991年取得复旦大学哲学硕士学位，2002年取得中欧国际工商学院EMBA学位。现任云锋基金联合创始人和主席，云锋金融集团主席兼非执行董事。2019年10月10日，胡润百富榜排名第244位，财富值150亿元人民币。 2019年10月29日，入选“2019年中国最具影响力的30位投资人” 榜单。 2020年2月26日，以150亿元人民币财富名列《2020世茂深港国际中心·胡润全球富豪榜》第1303位。
-
-由此可见，虞锋自从搭上了马云和江家以后，青云直上，但也从此给自己播下了的悲剧的种子。今天无论是马云还是虞锋，都已深陷中共最凶险的政治斗争之中，凶多吉少！
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-发布：翼族
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
++21

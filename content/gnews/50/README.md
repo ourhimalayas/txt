@@ -2,31 +2,44 @@
 ---
 
 
-## COVID-19最新情报｜Podcast巨头：Google掩盖疫苗致死相关资讯！
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1614138/)
+## 习近平的“房产税”将打击奄奄一息的中共国楼市
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1614195/)
 
-**台灣寶島農場 zhong｜發布日期/ 24/10/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
-乔·罗根在Podcast（播客）拥有许多粉丝，近日他发表了关于Google浏览器恶意掩盖新冠疫苗致死的相关消息，他只有利用其他浏览器才可以搜索到关于疫苗致死的相关内容。
+#### 作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-18.png)[*图片来源*](https://s.rfi.fr/media/display/ec4ee5be-3444-11ec-ae36-005056a90284/w:1280/p:16x9/204ccf3a762bbd25b7606fd4487882cc8b4c137c5bf3c4f221f70d681bd2dfbe.webp)
+**习近平的“不动产税”的本质即命运共同体化的“共产共妻”制。这显然是剑指中共中央所有高官和政治局家族利益。包括港、澳和未来台湾的家族利益在内。**
 
-他受到记者采访时，他已经不使用Google，因为Google正在尝试阻止用户接触正确的资讯。他举“伊维菌素”为例，伊维菌素已经被美国相关单位认证为有效治疗药物，然而Google只会让用户看到“兽用伊维菌素，或错误剂量导致副作用”的相关讯息。
+据《[朝日新闻](https://www.asahi.com/articles/ASPBS24JGPBRULFA00H.html)》24日消息称：中共国决定试行“不动产税”，即日本的财产税。文章指出中共很可能会在明年中国共产党代会上推出该项致命的政策——不动产税——摩络「末日之刃」。这是习近平愚蠢的想法，他想看到所谓“共同富裕”的局面在中共国实现——乌托邦现象。
 
-- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
-- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
+该消息认为，不动产税在中共国摇摇欲坠的房地产市场危机管理中进行，而反对房产税在中国根深蒂固，同时还存在经济进一步降温的风险。此消息一出，“习近平的能力受到质疑”的声音更加强烈。
 
-
-“我必须要使用Duck Duck Go，才可以搜索到疫苗伤害、致死的具体案例，使用Google是不可能搜索到的”罗根这样么说。
+- *延展阅读：*[***中国部分城市开征房产税 督促纠正房地产差距***](https://www.nikkei.com/article/DGXZQOGM233QN0T21C21A0000000/)
 
 
+“然而，中国政府官员中有一种观点认为它不会实现。”“党内有许多高官不喜欢对他们的房地产征税。”理由是，房产税直接是革了富人和官员的命。穷人一般不会拥有过剩房产。“不过，都是习亲自指导房产税”的推行，这已经势在必行。
 
-> Joe Rogan says he stopped using Google to search things because they are hiding information [pic.twitter.com/BzNzi70kop](https://t.co/BzNzi70kop)
-> — An0maly (@LegendaryEnergy) [October 18, 2021](https://twitter.com/LegendaryEnergy/status/1449956233411133441?ref_src=twsrc%5Etfw)
+另据中共国新华社消息证实，习近平在《求是》杂志新近发表的《扎实推动共同富裕》这篇重要文章中明确提出：“[现在，已经到了扎实推动共同富裕的历史阶段](http://www.qstheory.cn/wp/2021-10/23/c_1127987582.htm)”。而凤凰财经给出了一个“[大致的时间节点——2021年内有新进展，2025年前有望迎来开征](https://finance.ifeng.com/c/8AZtk8rigzh)”。
+
+- ***延展阅读：***[***中国出台“房地产税”旨在缩小因过度开发而导致的价格上涨的差距***](https://news.yahoo.co.jp/articles/035612e06d3699287eb7f183273ca96ceb565556)
 
 
+一种令人错愕的想法是，外界对中共国仍旧持有所谓合法政府的看法，这完全是天真的想法。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16-4.jpg)
+不动产税是基于自由市场经济主体下推行的，就像日本那样，为的是控制楼市泡沫。而在中共国极权统治体制下，这已经沦落为家族财富控制，任何效仿西方的政策都是将民间所有财富集中在统治家族手中，比如医院市场化。
 
-新闻来源｜[Natural News](https://www.naturalnews.com/2021-10-22-joe-rogan-accuses-google-of-hiding-information.html)
+习的“不动产税”即蒋介石时期讽刺的“共产共妻”政策，这显然是剑指腐败高官和所有公务员以及富豪们，甚至涉及中共中央所有政治局委员的家族利益。包括港、澳家族利益都在被剥夺中。[**阅读更多**](https://www.yomiuri.co.jp/economy/20211024-OYT1T50007/)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
+- ***延展阅读：***[***“共产公妻”谣言在中国的生成与早期流布***](http://www.qstheory.cn/llqikan/2019-02/12/c_1124104897.htm)
+
+
+了解中共国内幕的[郭文贵先生9月17日说过](https://www.youtube.com/watch?v=2-OAZz60tP0)，“就是庞氏骗局，中国有2 5亿人卷入，这是国家金融灾难，世界灾难。（与恒大相关的130多家银行、150多家金融机构都是假的资产）”
+
+不仅如此，“恒大就是中共金融界的COVID-19，它可以传给绿地、融创等地产企业。他们就会染上病毒。”这直接燃烧到“中共国3万亿外汇储备，除了美国国债和自己存银行里的钱，现在剩7千亿可以支配的资金，你说，共产党到底是负资产还是正资产？”
+
+2021年10月24日
+
+（本文只代表个人观点，与Gnews网站无关）
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

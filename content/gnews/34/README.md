@@ -2,26 +2,25 @@
 ---
 
 
-## 有声|43国在联合国发表声明对中共镇压维吾尔人表示关切
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1614803/)
+## 土耳其开始从美国采购F-16战机
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1614852/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-10月23日，美、法、土耳其等43个国家在联合国发表正式声明，对中共国境内维吾尔人和其他穆斯林突厥民族的境况表示关切。
+俄罗斯莫斯科喀秋莎农场 GVBG伊万
 
-法国常驻联合国代表古拉斯·代·里维耶尔大使说：“中共对新疆穆斯林存在整体性和系统性的迫害，包括侵犯人权、酷刑折磨、强迫劳动、性暴力和强迫把子女分开等。中共还对民众实施大面积监控，群众的宗教、行动、表达自由以及维吾尔文化则受到严厉的限制。”
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/F-2.jpg)currentnewnews.com
+美东时间10月24日消息，土耳其国防部长胡卢西∙阿卡尔表示，“土耳其已开始从美国购买F-16战斗机。”
 
-土耳其、利比亚、斯威士兰是首次参与。各国共同呼吁派驻联合国人权事务高级专员前往新疆调查。
+阿卡尔称，“采购F-16的技术工作已经开始，我们正在跟进。土耳其国防力量的加强也意味着北约的加强”。
 
-文字版原文：[43国在联合国发表声明对中共镇压维吾尔人表示关切](https://gnews.org/zh-hans/1611949/)
+安卡拉最初向美国订购了100多架新一代战斗机F-35，但在土耳其采购俄罗斯S-400“凯旋”防空系统后，华盛顿拒绝出售飞机。该国以25亿美元收购了该系统的四个部门，并于2017年12月达成协议。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国多次对土耳其与俄罗斯的交易表示不满。2020年12月，华盛顿对土耳其国防工业局及其负责人伊斯梅尔·德米尔购买S-400实施制裁。
+
+2021年10月中旬，土耳其总统埃尔多安表示，华盛顿建议土耳其购买F-16战斗机作为对F-35采购计划投资的补偿。据他说，土耳其为美国拒绝交付的飞机支付了14亿美元，提议用这笔钱从美国购买新的F-16，并对土耳其现有的F-16进行现代化改造。
+
+（文章仅代表作者个人观点）
+
+参考链接：
+
+[https://www.rbc.ru/rbcfreenews/6173e0a09a7947059d2fcf50](https://www.rbc.ru/rbcfreenews/6173e0a09a7947059d2fcf50)

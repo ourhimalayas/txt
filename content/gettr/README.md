@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/24/2021 9:29 PM (UTC)`
+
+10/24/2021 Miles Guo: Bruno Wu is under criminal investigation in the US, so he and Yang Lan will end up in a more miserable way than Wang Jian. President Trump’s SPAC will end up in an absurd, comical, and catastrophic manner, and his relationship with the Whistleblowers’ Movement and GETTR will turn out to be way better than expected!<br/><br/>10/24/2021 文贵直播：吴征在美被刑事调查，他和杨澜的结局将比王健更惨；川普总统的SPAC将以荒唐、滑稽和灾难性的结果结束；川普总统跟爆料革命和盖特的关系会比我们想象得更好！<br/>
+![img](https://media.gettr.com/group32/getter/2021/10/24/21/29/134e3d60-2432-7a93-64a6-8659a92b553c/out.jpg)
+
+---
+
 `@miles 10/24/2021 9:23 PM (UTC)`
 
 10/24/2021 Miles Guo: DWAC, which merged with President Trump’s TMTG, was belong to Bruno Wu; Behind President Trump’s SPAC deal are the people like Bruno Wu, Samuel Nunberg, Richard Frankel, who are exactly the same guys attempting to repatriate me and framing me by using the Boxun case, the rape case involving Ma Rui, and the PAG case<br/><br/>10/24/2021 文贵直播：并购川普总统TMTG的DWAC来自于吴征，川普总统SPAC上市的背后涉及了吴征、Samuel Nunberg、Richard Frankel等人，他们恰恰正是以前要遣返文贵并用博讯的案子、马蕊强奸案和太平联盟的案子构陷的文贵的人<br/>
@@ -286,13 +293,6 @@ Every day is a Fashion Show, and a the world is your runway. G Fashion’s New C
 
 10/20/2021 Miles Guo: It may be okay for entrepreneurs like Jack Ma to seek some power, but the essence of the Communist China is the evil dictatorship of the CCP - No matter who is in power, no one else is allowed to compete for power. Without eradicating the CCP’s evil system, no one can have a future<br/><br/>10/20/2021 文贵直播：马云这样的企业家图谋权利可能也无可厚非，但中共国本质是共产党的邪恶独裁，无论谁在台上都不允许他人窥视权力，不铲除中共恶魔体制，所有人都没有未来<br/>
 ![img](https://media.gettr.com/group39/getter/2021/10/21/03/34/3f153533-8f1d-c707-6730-f9437a1ce823/out.jpg)
-
----
-
-`@miles 10/21/2021 12:41 AM (UTC)`
-
-10/20/2021 Miles Guo: When Jack Ma, Bruno Wu, Wang Jianlin, Peter Ma, and Pan Shiyi were arrested, they were legal representatives, chairmen, or shareholders of the companies listed in the US. Alvin Jiang was arrested twice in 2020. According to U.S. law, failure to announce the chairman of a listed company is under investigation is a criminal offense and the company is liable for stock losses. Any shareholder has the right to sue and will win 100% for sure. Jack Ma is suspected of multiple economic crimes of failure to disclose the changes in the IPO. Pan Shiyi and his wife will surely go to jail<br/><br/>10/20/2021文贵直播： 马云、吴征、王健林、许家印、马明哲、潘石屹等人被抓时都是美国上市公司法人、主席或股东，江志成在2020年两次被抓；美国法律规定，隐瞒上市公司主席被调查属刑事犯罪，该公司要承担股票损失。任何持有这些股票的股民都有权起诉，且100%会赢。马云还涉嫌多次隐瞒上市信息变更的经济犯罪；潘石屹两口子一定会进监狱<br/>
-![img](https://media.gettr.com/group23/getter/2021/10/21/00/41/0af03106-73de-de1a-9aa6-5cb3da763d56/out.jpg)
 
 ---
 
