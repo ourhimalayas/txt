@@ -2,10 +2,10 @@
 ---
 
 
-## 马云并非邮轮度假，且试图以处理资产为由继续逗留西班牙
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1613792/)
+## 美议员致函国际奥委会重申推迟北京冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1613828/)
 
-作者：波士顿五月花农场 – 葛朗台太太
+作者：澳喜农场 – 在远方
 
 
 
@@ -13,25 +13,19 @@
 
 
 
-近日，中共多家媒体报道，马云正在西班牙自己的邮轮上休闲度假。但根据郭文贵先生情报，马云到西班牙其实是在中共特务的监督下，处理自己代持的盗国贼的资产，而且，马云并不在这艘邮轮上。报道邮轮只是为了转移公众注意力。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-126.jpg)
-中共要求马云处理完资产马上回国，在得知马云已买通部分绑架自己的特务后，便在美东时间10月22日早上，将马云身边的二十几个人替换掉了十几个。这已是中共第二次替换。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-7.jpg)
-但是，马云以处理海外资产为由，要求继续逗留西班牙两周时间。看来马云已经充分意识到潜藏在身边的危险，希望寻找各种可能的机会进行化解。
-
-爆料革命时刻掌握着马云行踪的准确情报，会为大家持续报道。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.2-4.jpg)
+10月21日，美国国会及行政当局中国委员会参议员，马可·鲁比奥, 和众议员克里斯·史密斯，致函国际奥委会重申，推迟第24届北京冬奥会的呼吁。信中敦促国际奥委会，禁止中共国家队参赛，并表示撤销奥委会此前所谓“在所有全球政治问题上保持中立”的决定。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-83.jpg)
+信中说，当中共正在积极进行种族灭绝时，奥委会应当拒绝给与北京举办奥运会的荣誉。因为反对种族灭绝是一个道德决定，而不是一个政治决定，当涉及到道德决定的责任时，国际奥委会没有豁免权。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-11.jpg)
 参考链接：
-1. [云锋基金虞锋：聚焦三大领域助力产业升级](https://baike.baidu.com/reference/8917146/7509yu6TY7_fmewc_HidJ_QVC0QZzS3hg0oeBl8ZA4_xfF9VSLRTmhknL5-9Ahx1vfnbn_FR_RGmgw8KuNRRNh27LESMrmEahmJxcmlMbNur)
-2. [虞锋 （现任云锋基金联合创始人和主席）](https://baike.baidu.com/item/%E8%99%9E%E9%94%8B/2681189)
-3. [Yunfeng Capital](https://en.wikipedia.org/wiki/Yunfeng_Capital)
+[美共和党议员致信IOC，重申推迟北京冬奥会的紧急呼吁](https://www.voachinese.com/a/Rubio-smith-ioc-beijing-winter-olympics-20211022/6282501.html)
 
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-总编：童谣
-编辑：飞虹
+总编：Ivy001
+编辑：Kathy文艺
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

@@ -2,39 +2,19 @@
 ---
 
 
-## 维多利亚州挑战疫苗强制令，112名原告加入诉讼
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1613979/)
+## 秘翻在线：NIH官网悄悄地更改了功能增强研究的定义
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1614007/)
 
-#### 翻译：月映万川
+####  翻译/撰稿：zzballack
 
-#### 编辑：文泓
+#### 校对：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-433.png)图片来源：MedPage Today
+据《真正美国之声》（Real America’s Voice）10月24日报道，退役海军军官杰里米·雷德芬（Jeremy Redfern）10月23日发推说，美国国立卫生研究院（NIH）在其官方网站上悄悄地改变了对“功能增强（GOF）”研究的关键定义，这引起了人们的极大关注。NIH最近因为被曝光资助了中共国武汉病毒研究所有争议的研究遭到严格审查。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-75.png)
+根据网页档案显示，今年10月19日之前，NIH在其官网上把“功能增强”实验定义为“一种修改生物制剂的研究，使其赋予该制剂新的或增强的特点。这种研究带来了生物安全风险，必须仔细管理这些风险。获得NIH资金支持的这部分GOF研究只能在受到严格监督、能提供恰当的生物安全和生物安保措施的实验室进行，以帮助保护研究人员免受感染并防止微生物释放到环境中。”
 
-**图片来源：ABCNews**
-10月23日，在澳大利亚维多利亚州，由一位教师和她的丈夫发起的对政府强制接种疫苗令的法律挑战，目前已有112名原告加入诉讼中。
+但是，修改后的最新版本定义从根本上大大淡化了功能增强研究的概念，相反主要聚焦于“增强潜在的大流行病原体（enhanced potential pandemic pathogen）”，或称为ePPP研究。NIH官网称，“虽然ePPP研究是一种所谓的‘功能增强’研究，但是绝大多数的GOF研究并不涉及ePPP，所以不在涉及ePPP的研究所需的监管范围之内。”
 
-他们分别来自于不同职业，其中包括52名授权工人，20多个雇主团体和17名医疗健康员工。其中，一些护士、一名警官、一名司法部官员和一名外科医生已经宣誓作证。
+杰里米·雷德芬在在推特上表示，GOF的定义页面看起来在过去两三天内被重新编辑。该页面指出，它的“上一次审查”是在10月20日。但它没有对此做出解释，也没有提到它被编辑过。
 
-原告向维州最高法院提交的修订文件，指控首席卫生官布雷特·萨顿和其他卫生官僚对于包括在医疗、教育和建筑领域在内的许多行业强制执行疫苗接种令。而这一行为违反了维州的《人权宪章》。
-
-与新南威尔士州上周曾试图推翻政府强制疫苗令未获成功不同，《维多利亚州人权宪章》规定了公民（身份）、政治和文化权利，并在一定程度上保护了这些权利不受政府限制。
-
-目前的这一新的诉讼试图改变安德鲁斯政府的“不接种，没工作”政策。按照人权宪章，萨顿教授的这一政策是以非法形式侵犯了基本人权。
-
-迪肯大学法学讲师布鲁斯·陈博士说，此案的关键节点在于，卫生部能否提供有效的证据表明，相应的强制疫苗政策是必要的，并且考虑到了人权。新州挑战的败诉，是因为那里并没有相类似的人权宪章。
-
-迄今为止，在大流行期间唯一的一次人权独立调查就是，去年维多利亚仲裁机构发现，政府封锁墨尔本廉租公屋的时，发生明确的违反人权的行为。
-
-（文中观点仅代表作者个人观点，与Gnews平台无关）
-
-原文链接: [Vaccine mandate challenge expands to more than 100 plaintiffs (theage.com.au)](https://www.theage.com.au/national/victoria/vaccine-mandate-challenge-expands-to-more-than-100-plaintiffs-20211022-p5928e.html)
-
-发布： 文泓
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[NIH quietly rewrites ‘gain-of-function’ definition amid greater scrutiny of controversial research](https://americasvoice.news/justthenews/nih-quietly-rewrites-gain-function-definition-amid-greater-scrutiny/)
