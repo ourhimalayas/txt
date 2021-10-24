@@ -2,33 +2,27 @@
 ---
 
 
-## 日本要闻汇编 10月23日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1613457/)
+## 有声|澳大利亚新南威尔士州要求企业对雇员接种疫苗的不良反应承担责任
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1613481/)
 
-#### 素材：东京樱花团｜GNEWS
-![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-16.png)图片来源
-1、[**日美关系国际会议 岸田表态强化同盟**](https://china.kyodonews.net/news/2021/10/2114c24b44fe--.html)
+配音：香草山美食部 – 玫瑰园
 
-日本首相岸田文雄23日向在东京举行的日美关系相关国际会议发去视频寄语，对强化日美同盟表明积极态度。考虑到朝鲜持续开发核与导弹、中国海警船驶入尖阁诸岛（中国称钓鱼岛）附近等情况，岸田还强调“岸田内阁将开展以同盟为核心的坚定的外交”。
+据零对冲10月19日的消息，澳大利亚的新南威尔士州地方政府刚刚颁布了一项法律，规定强制执行新冠疫苗接种的雇主，现在要对雇员所遭受的任何不良反应负责，即使员工不再为他们工作，这些雇主也必须在其余生中向员工支付赔偿。
 
-2、[**37万外国人无法入境 8旬老人成雇用对象**](https://www.aboluowang.com/2021/1023/1662929.html)
+一些雇主就此项新规咨询了保险公司，保险公司明确表示，他们不会对未经测试的产品进行保险。
 
-据《日本经济新闻》10月21日报道，日本官员透露，移民部门出入国在留管理厅截至本月1日，有37.1万人因为边境防疫没能进入日本。此外，由于少子化和老龄化加剧，劳动力短缺成为日本近年来的难题。据《日经新闻报道》，家用电器连锁店野岛电器从本月起开始雇用80岁以上的劳动者。
+政府向企业施压，迫使雇主要求员工接种疫苗，而保险公司却拒绝提供保险服务。而随着疫苗副作用的逐渐显现，这些企业将因此背负庞大的债务。
 
-3、[**东京呼吁未登记外国人接种疫苗**](https://www3.nhk.or.jp/nhkworld/zh/news/329042/)
+文字版原文：[澳大利亚新南威尔士州要求企业对雇员接种疫苗的不良反应承担责任](https://gnews.org/zh-hans/1610010/)
 
-据日本NHK消息，东京都政府设在涩谷区“NHK涩谷友谊剧场”和千代田区“行幸地下疫苗接种中心”的两处接种点，呼吁因短期滞留等而未进行居民登记的都内外国人也向所在地地方政府申请接种券，前往接种点进行接种，无需预约。接种对象须满12岁，在东京都居住或工作、上学，另外，还须出示所在地地方政府送交的接种券和驾照等可确认本人身份的证件。
+音频处理：喜山必胜Maverick
 
-4、[**日本年轻人要求政府应对全球变暖**](https://china.kyodonews.net/news/2021/10/ff20e859205e.html)
-
-要求强化全球变暖对策的日本年轻人22日聚集到东京霞关的经济产业省前，举着写有“气候危机”、“现在就行动”的标语牌进行抗议。这是在《联合国气候变化框架公约》第26次缔约方会议（COP26）31日开幕前的全球年轻人集体抗议行动的一部分。
-
-5、[**众院选举女性候选人占17.7% 不达政府目标**](https://china.kyodonews.net/news/2021/10/65b9ff4650d9-177-.html)
-
-共同社23日消息，19日发布公告的众院选举共有1051名候选人，其中女性为186人。此次众院选举是日本实施要求政党尽可能做到候选人数男女均等的法律后的首次选举，所有候选人中的女性比例仅为17.7%。按政党来看，执政的自民党和公明党均处于较低水平。远远不及日本政府提出的到2025年实现女性候选人比例达35%的目标。
-
-（本文只代表个人观点，与Gnews网站无关）
-
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

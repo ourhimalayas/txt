@@ -2,40 +2,29 @@
 ---
 
 
-## 佛罗里达州总检察阿什利穆迪警告该州“不会容忍”疫苗强制令
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1613074/)
+## 美共和党议员致信IOC 重申推迟北京冬奥会的紧急呼吁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1613159/)
 
-**圆成新闻组**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-23-121027-edited.png)图片来源：网络
-本周五来自BREITBART NEWS布莱特巴特新闻的报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/102308.jpg)
+**编辑摘要：**
 
-佛罗里达州总检察长阿什利·穆迪 (Ashley Moody) 周四警告说，阳光之州将“不会容忍”疫苗规定，并发誓要与州长罗恩·德桑蒂斯 (Ron DeSantis) 一起对抗联邦政府的强制性法令和前所未有的权力攫取。
+据自由亚洲电台10月23日报道，美国国会及行政当局中国委员会(CECC)的两名资深共和党成员——参议员马可·鲁比奥(Marco Rubio)和众议员克里斯·史密斯(Chris Smith)21日致函国际奥委会(IOC)，重申他们要求推迟第24届冬季奥运会的紧急呼吁。
 
-州长 DeSantis 在总检察长穆迪、州公共卫生最高执行官与权威发言人-外科医生约瑟夫·拉达波 (Joseph Ladapo) 和其他人的陪同下，在佛罗里达州克利尔沃特宣布他呼吁召开一次特别会议，以立法保护佛罗里达人免受地方、企业和联邦政府强加的疫苗强制要求。
+信函中还敦促国际奥委会禁止中华人民共和国国家队参赛，并表示拒绝接受国际奥委会此前“在所有全球政治问题上保持中立”的决定。因为反对种族灭绝是一个道德决定，而不是一个政治决定，当涉及到道德决定的责任时，国际奥委会没有豁免权。
 
-穆迪在州长之后发表讲话，宣布该州已在奥兰治县采取法律行动，特别是“为受影响的应急救护医务人员挺身而出”。
+新闻参考链接：[美共和党议员致信IOC 重申推迟北京冬奥会的紧急呼吁](https://www.rfa.org/mandarin/Xinwen/5-10232021103450.html)
 
-她说：“你知道， 就在我们现在讲话的时候，这个国家和佛罗里达州都有人被迫将文件上传到一个数据库，以证明他们已经接种了疫苗。”
+*编辑：【英国伦敦喜庄园编辑部】*
 
-“想一想。 我们在美利坚合众国，美国的自由州，由于联邦政府的此项规定，我们有些人不得不将文件上传到数据库中。 这在佛罗里达州不会被容忍或接受，”她在掌声中说道。
+* * *
 
-穆迪发誓，她和德桑蒂斯将“尽一切可能”“反击这些非法和不明智的疫苗强制令”。
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-这位官员指出，从经济角度来看，疫苗规定是荒谬的，因为随着经济陷入困境，通货膨胀严重，这将导致全国“数千”工人的流失。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-她说，“当我们在全国范围内看到执法人员和急救人员出现前所未有的空缺时，急救人员被迫辞职。”
 
-“这是危险的、缺乏周密考量，我无法相信像美利坚合众国这样的自由国家的领导人会支持这样的事情，”她补充说，“历史上从来没有任何美国总统授权 对全国人民强制打疫苗。”
+编辑：【英国伦敦喜庄园编辑部】
 
-“所以我们将继续在法庭上反击，”她说，并承诺佛罗里达州官员将继续得到人民的支持。
-
-原文链接：[https://www.breitbart.com/politics/2021/10/22/florida-ag-ashley-moody-warns-vaccine-mandates-will-not-be-tolerated-in-the-state/](https://www.breitbart.com/politics/2021/10/22/florida-ag-ashley-moody-warns-vaccine-mandates-will-not-be-tolerated-in-the-state/)
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-翻译：真北007
-
-编辑/发布：LILY
-
-20211023
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

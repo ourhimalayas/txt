@@ -2,27 +2,27 @@
 ---
 
 
-## 克里姆林宫称北约的本质是对抗而非和平
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1613029/)
+## GTV新闻访谈简报|2021年10月23日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1613121/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-413.png)
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/n.png)socialpost.news
-美东时间10月23日报道，俄罗斯总统发言人德米特里∙佩斯科夫表示，俄方从未对北约抱有任何幻想，该联盟采取遏制俄罗斯的战略证实了俄罗斯削减官方对话的步骤的正确性。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-25.png)
+文章仅代表作者本人观点，与Gnews无关
 
-佩斯科夫强调，“我们知道这个联盟的本质，这正是对这个本质的确认。这个联盟不是为和平而建立的，这个联盟是为对抗而建立的。它是为对抗而构思、设计和组装的。它正在履行其职能。”
+视频参看：2021.10.23早GTV新闻访谈
 
-佩斯科夫还表示，布鲁塞尔的行动“以最生动的方式证实了俄罗斯的决定是正确的”。根本不需要对话，在这样的条件下，北约的这种概念再次证实了这一点。
+[https://gtv.org/broadcast/watch/61740028eadeb11f5e79ad55](https://gtv.org/broadcast/watch/61740028eadeb11f5e79ad55)
 
-10月18日，俄罗斯外交部宣布暂停俄罗斯常驻北约代表团的工作。此外，北约驻莫斯科的军事联络处和联盟的信息处也停止了活动。俄罗斯外交部明确指出，俄罗斯将通过驻比利时大使与北约沟通。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-在北约削减了俄罗斯代表团的工作人员数量后，俄罗斯当局才采取了这样的决定。北约决定驱逐8名外交官，因为他们涉嫌与俄罗斯情报部门合作。与此同时，联盟又取消了两个职位。 因此，俄罗斯常驻北约代表团的人数已减少到10名员工。斯托尔滕贝格说，此举与特定事件无关，是由于莫斯科的“恶意活动加剧”而做出的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
 
-之前联盟成员国就“欧洲-大西洋空间的威慑和防御概念”达成一致，这是一个战略计划，以防御俄罗斯同时在几个方面的潜在攻击。尽管对中共国的关注度越来越高，这个概念重申了联盟的主要目标还是遏制俄罗斯。制定的战略旨在为波罗的海和黑海地区的同时攻击做准备，其中可能包括核打击、入侵计算机网络和从太空攻击。
-
-（本文仅代表作者个人观点）
-
-参考链接：
-
-[https://www.rbc.ru/politics/22/10/2021/617287769a794728a798d499](https://www.rbc.ru/politics/22/10/2021/617287769a794728a798d499)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

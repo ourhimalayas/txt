@@ -2,31 +2,27 @@
 ---
 
 
-## 拜登承认会保护台湾 美军铲平中共军事基地只需3分钟
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612949/)
+## 克里姆林宫称北约的本质是对抗而非和平
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1613029/)
 
-作者：澳喜农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月21日，美国总统拜登在采访时表示，“一旦中共发动攻击，美国承诺会保护台湾。”
+俄罗斯莫斯科喀秋莎农场 星河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-18.jpeg)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/n.png)socialpost.news
+美东时间10月23日报道，俄罗斯总统发言人德米特里∙佩斯科夫表示，俄方从未对北约抱有任何幻想，该联盟采取遏制俄罗斯的战略证实了俄罗斯削减官方对话的步骤的正确性。
 
-早10月17日，郭文贵先生就在直播中爆料，美国的专业人士明确答复，如果共产党直接攻打台湾的话，美军是会出手的，一旦美军出手日本也一定会出手。其中最令人惊讶的是，把共产党所有100%的军事基地铲平，包括空中与陆地的军事设施，美军单独行动只需要3分钟，如果日本单独作战也只需要5分钟。
+佩斯科夫强调，“我们知道这个联盟的本质，这正是对这个本质的确认。这个联盟不是为和平而建立的，这个联盟是为对抗而建立的。它是为对抗而构思、设计和组装的。它正在履行其职能。”
 
-(本文仅代表作者观点)
+佩斯科夫还表示，布鲁塞尔的行动“以最生动的方式证实了俄罗斯的决定是正确的”。根本不需要对话，在这样的条件下，北约的这种概念再次证实了这一点。
 
-参考链接：[Biden says United States would come to Taiwan’s defense](https://www.reuters.com/world/asia-pacific/biden-says-united-states-would-come-taiwans-defense-2021-10-22/)
+10月18日，俄罗斯外交部宣布暂停俄罗斯常驻北约代表团的工作。此外，北约驻莫斯科的军事联络处和联盟的信息处也停止了活动。俄罗斯外交部明确指出，俄罗斯将通过驻比利时大使与北约沟通。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+在北约削减了俄罗斯代表团的工作人员数量后，俄罗斯当局才采取了这样的决定。北约决定驱逐8名外交官，因为他们涉嫌与俄罗斯情报部门合作。与此同时，联盟又取消了两个职位。 因此，俄罗斯常驻北约代表团的人数已减少到10名员工。斯托尔滕贝格说，此举与特定事件无关，是由于莫斯科的“恶意活动加剧”而做出的。
 
-总编：Ivy001
-编辑：Ivy001
-校正/发稿：谐趣园
+之前联盟成员国就“欧洲-大西洋空间的威慑和防御概念”达成一致，这是一个战略计划，以防御俄罗斯同时在几个方面的潜在攻击。尽管对中共国的关注度越来越高，这个概念重申了联盟的主要目标还是遏制俄罗斯。制定的战略旨在为波罗的海和黑海地区的同时攻击做准备，其中可能包括核打击、入侵计算机网络和从太空攻击。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（本文仅代表作者个人观点）
+
+参考链接：
+
+[https://www.rbc.ru/politics/22/10/2021/617287769a794728a798d499](https://www.rbc.ru/politics/22/10/2021/617287769a794728a798d499)

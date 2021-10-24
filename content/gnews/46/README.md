@@ -2,36 +2,29 @@
 ---
 
 
-## 强制新冠疫苗政策下的美国各界
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1612935/)
+## 前辉瑞首席科学家：中共病毒疫苗危害女性生殖系统
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1612962/)
 
-俄罗斯莫斯科喀秋莎农场 – 银河/秘密翻译组 – Grace/洛杉矶盘古农场 – 钢蛋儿
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-431.png)
-据相关消息报道，华盛顿州巡逻队于10月19日宣布，根据华盛顿州的强制疫苗政策，有127名工作人员因拒绝接种新冠疫苗而被解雇。
+**撰稿：日本东京方舟农场 北极**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-21.jpeg)
+10月19日，喜马拉雅战鹰团（Himalaya Hawk Squad）在盖特（Getrr）上发布的一段视频中，前辉瑞首席科学家麦克·伊顿（Michael Yeadon）博士发出警告表示，中共病毒疫苗危害女性生殖系统健康。
 
-而对于遍及全美的疫苗接种令，10月20日，纽约市最大的警察工会——警察慈善协会表示，将起诉纽约市对警察、消防员和其他市政工作人员实施的疫苗强制令。警察慈善协会认为，接种疫苗与否应由“个人医疗决定”。
+麦克· 伊顿博士于2011年之前在辉瑞公司药物研发部门任职首席科学家兼副总裁。他透露，日本药品监督局曾给实验鼠注射辉瑞生产的新冠疫苗，发现老鼠卵巢中的疫苗残留浓度至少是其他组织的20倍。该研究主要针对疫苗在体内的药代动力学，即身体如何吸收、扩散和排泄疫苗产物。
 
-早在10月14日，俄克拉荷马州州长凯文·斯蒂特宣布，由于新冠疫苗的强制接种令，他们将把联邦政府告上法庭。斯蒂特认为，政府此举不尊重个人自由，且有违宪法，属越权行为。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/الادعاءات-التي-تستهدف-بيل-غيتس-تتهمه-بالاستفادة-من-وباء-كورونا-مثل-شخصية.jpeg)图片来自于网络
 
-对于已知有害的疫苗及强制推行疫苗的政府，希望越来越多正义的力量可以勇敢站出来反抗，以停止这场疫苗灾难。
+伊顿博士解释，虽然现在还没在人体进行这类实验，但根据毒理学的原则，如果没有任何人体数据与已知老鼠研究相矛盾，可以据此对人体做出同样假设。疫苗在卵巢聚集时表达出病毒刺突蛋白，诱导自身抗体破坏卵巢组织。
 
-(本文仅代表作者观点)
+伊顿博士还表示，他与德国的医生向欧洲药品管理局提交了申请，对15名接种辉瑞疫苗的怀孕妇女做血液学检测。检测结果发现，在接种疫苗的第1-4天，针对胎盘的抗体滴度增加了2.5-3倍，即增加了250-300%。
 
-参考链接：[纽约警察工会将起诉纽约市疫苗强制令](https://gnews.org/zh-hans/1608786/)
-[127名华盛顿州警员因抵制强制疫苗而被解雇](https://gnews.org/zh-hans/1605463/)
-[俄克拉荷馬州長反對拜登疫苗強制令，稱接種是個人自由](https://gnews.org/zh-hant/1606393/)
+伊顿博士分析说，疫苗诱导出的免疫反应可能会攻击孕妇的胎盘。虽然结果还不确定，但他看过文献，患自身免疫疾病的孕妇在第一阶段流产比例很高。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+*注：本文仅代表作者观点，与 Gnews无关*
 
-编辑：Kathy（文艺）/圣母院钟声/正义的小新
-校正/发稿：谐趣园
+*参考链接：*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[Dr. Michael Yeadon:](https://gettr.com/post/pekmhd84d5)[#vaccinesideeffects](https://gettr.com/hashtag/%23vaccinesideeffects)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*
