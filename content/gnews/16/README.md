@@ -2,57 +2,45 @@
 ---
 
 
-## 恒大地产大王许家印到底是只剩下半条命还是魂飞魄散？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1613713/)
+## NBA知名穆斯林球员坎特为西藏人发声后，再为新疆人站台
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1613815/)
 
-####  作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-17.png)[图片来源](https://www.asahi.com/articles/photo/AS20211021002089.html)
-**恒大集团危机的消息以令人震惊的速度传遍全球。不熟悉中共国“白手套”的人一直在问，“如此繁荣的巨头公司为何陷入危机？”著名灭共领袖郭文贵先生警告说：如果恒大爆雷，全世界金融市场将崩塌。**
+作者：纽约香草山信息部 – 6zero4
 
-据朝日新闻23日《[追寻震惊世界的35万亿日元负债的中国地产大王的半个人生](https://www.asahi.com/articles/ASPBM5T15PBCUHBI01K.html)》一文消息称： 恒大集团高层实况如“中国版雷曼冲击？”这会令人担忧对全球经济的衰退造成的威胁。消息认为，在“9月中旬，中国房地产巨头恒大集团遭遇金融危机的消息以令人震惊的头条传遍全球。”[**阅读更多**](https://jp.wsj.com/articles/chinese-developer-defaults-pile-up-as-evergrande-contagion-spreads-11634842810)
 
-这是创始人许家印和中国恒大集团真实形象的写照：中共国恒大负债总债务约为35万亿日元。（实际上连带效应牵涉到“几十年来的几十万亿”）[**阅读更多**](https://www.asahi.com/articles/ASPBQ7DZSPBQULFA02W.html)
 
-日本开始意识到，“如果负债累累的恒大破产，可能会发展成金融不稳定，导致2008年世界一团糟。这些担忧加剧了，世界已经做好了准备。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-另据报道：截至22日，陷入危机的中国房地产巨头恒大继续在走钢丝，刚刚获得23天的宽限期支付了以美元计价公司债券的利息后。[避免了立即违约](https://www.asahi.com/articles/ASPBQ6QNVPBQULFA00M.html)，但29日又一期公司债的宽限期再次临近。[**阅读更多**](https://www.asahi.com/articles/ASPBQ3J8ZPBQULFA007.html)
 
-该报记者“立即从该局所在的上海飞到南方的广东省。抵达深圳市中心的恒大总部大楼前，民警手持盾牌戒备森严。”看到的是：
 
-*一周前，购买恒大公寓和金融产品的人冲进总部大厅抗议。*
+昨天，本台报道了出生在瑞士的土耳其籍，波士顿凯尔特人队NBA知名球员坎特，10月21日发推为西藏人民发声，抨击中共政府，并称习近平为“野蛮的独裁者”，强调西藏属于西藏人民，遭遇了中共的诬蔑和诽谤，中共还在国内禁止了凯尔特人队所有比赛的转播。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-13.jpg)
+第二天，坎特又穿上印有“维吾尔人的自由”T恤再次发推，声援新疆同胞，对习近平和中共的抨击更为激烈： “我在全世界面前呼唤你，关闭奴隶劳改集中营，释放维族人！立即停止种族灭绝！”并称习近平为“无情的独裁者”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/2.3-4.jpg)
+每年业务价值10亿美元的NBA，是中共国民众最喜爱的体育赛事之一，中共国观众是该赛事转播在线流量的主要贡献者，因此经常被中共拿来作为要挟和控制美国体育界的棋子。但即便是中共肆无忌惮的威胁、恫吓和封杀，也挡不住如坎特等正义人士对它的不懈揭露与抨击！
 
-*恒大2020年销售额为5072亿元（约合9万亿日元）。远远超过日本五家主要房地产公司的总销售额。*
+参考链接：
+[After China Blocked Celtics Games, Kanter Re-Ups: Demands “Heartless Dictator” Xi Stop Uyghur “Genocide” Now](https://www.zerohedge.com/geopolitical/china-bans-streaming-all-boston-celtics-games-enes-kanter-demands-beijing-free-tibet)
 
-这引起了该报记者的疑惑：“如此繁荣的巨头公司为何陷入危机？我充满了我不明白的事情。”“考虑到这一点，我决定前往他在九月下旬出生和长大的河南农村。”
+（本文仅代表作者观点）
 
-*经过乡间小路和玉米地后*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-*我从省会郑州的机场上车。下高速公路后，乡间小路继续前行。*
+总编/编辑：飞虹
+校对/发稿：为真不破20
 
-*路面很差，连续几天的雨导致一些地方积存了泥水。*
+**更多资讯，更多关注**
 
-*一望无际的玉米地。*
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*大约两个半小时后，我到了许的父母家就在这里。*
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-*该报记者称：“两个便衣中年男子在车里”（中共国保人员）*
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-该报记者后续消息待续。相信日本媒体在中共国的监视下进行的实地采访不会有很是消息被允许爆出来。正如郭文贵先生（ Miles）所言：
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-*今天的恒大就是，今天我救你，我就得救所有人，我不救你，****所有人都成为我的灾难****，那怎么办呢？所以，内部决定，地方的事，地方来解决，中央的事，中央来解决。他们想****把恒大给肢解了，各部委承担这所有责任****。*（[1:38.37时段](https://gtv.org/video/id=614c897242a8af3151a3c790)）
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-熟悉中国共产党的人对此并不惊讶，因为中共政府本身就不是负责任的政府。正如朝日新闻记者所担心的那样，这会引发中国版雷曼时刻。对此，郭先生接着说：
 
-*几十万亿给盖住，只对江家、曾家、孟家有利。盖得住吗？盖不住，所以，第一个、房地产的资金池子、所有的保险业，像平安保险、民生银行、招商银行等等一定是瞬间崩塌。这就是其他银行也爆雷，所有影子机构完蛋。*
 
-*上述恒大事件连锁爆雷后，就引爆到国际上去了。美联储吓得直哆嗦啊！日本财务大臣一天打四次电话。找中国的郭树清，说你们能不能把他捂住，需要我们做什么？什么都可以谈。欧元会出大问题。大家记住，如果恒大暴雷，所有经融市场，钱就像烧纸一样。一下子都没了。全世界经融市场崩塌。最可怕的是，当经融市场崩塌的时候，连比特币、火币也都会抛。*（[1:40.17 时段](https://www.gettr.com/post/pc2qvcb37b)）
-
-恒大究竟什么时候断掉最后一口气？炸裂全球金融市场？郭先生补充说道：[恒大事件要撑到（中共明年）20大前，甚至撑到打台湾前](https://gtv.org/video/id=614c897242a8af3151a3c790)（2:00 时段）。
-
-2021年10月23日
-
-（本文只代表个人观点，与Gnews网站无关）
-
-*校对：东京樱花团 / 文小白*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

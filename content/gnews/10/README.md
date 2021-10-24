@@ -2,40 +2,84 @@
 ---
 
 
-## 台湾和美国在重要周年纪念日前讨论联合国参与的问题
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1613783/)
+## 封城的日子
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1613882/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：孤岛小米
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2432.png)（图片来自网络截图）
+电视里播着新闻，州长每日例行记者会，向州民提供新冠疫情最新的讯息。老婆准时地守在电视机旁，认真聆听。这是我们家每天唯一开电视的时间；更准确地说，这是我们家唯一开电视的时候。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/120090359_whatsubject.jpg)
+听着家中充满英语的话语声，总有一种奇妙的陌生感。尽管我们住在澳洲，推开门出去，左邻右舍都说英文，但家中经常只能听见普通话，只能听见老婆的话。我划着手机，故作忙碌，对电视新闻里的更新，蛮不关心。
 
+「你知道接下来不打疫苗，你没法工作，甚至也不给你补贴了吗？」老婆说着。「不可能。」我说得很硬，心里确没个底。
 
+「为什么不可能？我微信群里的人都这么说，你以为你是谁？比医生专家还懂？」「你还在相信网络看来的阴谋论？真是头脑坏掉！」
 
-图片来源：BBC
+「嫁给你这种头脑坏掉的废物，我真是瞎了眼，倒八辈子霉了！」
 
+老婆连珠炮的批评声盖过电视，恢复我熟悉的家里的声音，让我也不禁寻思自问，那时怎么就能让你嫁给我了？
 
-#### 编译：小红帽
+那时是一个你的一双美丽深邃的大眼看着我会发亮的时代；
 
-美国国务院在10月23日星期六晚间发表的一份声明说，美国和台湾官员周五举行了虚拟会议，“讨论的重点是支持台湾有意义地参与联合国的能力”。这发生在中共国主席习近平发表讲话以纪念中共国加入联合国50周年的前几天。
+那时是一个我打网球打到忘了时间，让你在图书馆等我六个小时的时代；
 
-美国与会者重申了美国对台湾有意义参与世界卫生组织和联合国气候变化框架公约的承诺，并讨论了如何突出台湾有能力在广泛的问题上做出贡献。
+那时是一个没有微信，只有MSN Messenger的时代。
 
-美国国务院表示，与会人员包括国务院负责国际组织的代理首席副助理国务卿雨果·延（Hugo Yon）、中共国、台湾和蒙古事务副助理国务卿里克·沃特斯（Rick Waters），以及台湾驻华盛顿副大使王良宇。
+那时，我们各自怀抱梦想，远道重来，齐聚澳洲，比肩学习。在有点历史破旧感的教室里，塞满了近百位学生，我看见了一头乌黑秀发的你，认真地听着讲台上的发言，手里握着笔飞快地做着笔记。透过新结交的南京来的哥们Wayne透过新结交的沈阳的同学Nancy发来了你的MSN之后，我们开始认识，相见，到现在结婚十三年，带上两个曾经视为与众不同，现在看来没有不同的小孩。
 
-台湾外交部感谢美国的“坚定支持”。
+「反正，我约了下周打疫苗了，你要不要也预约一下，趁现在还有机会打辉瑞？」
 
-中共国称台湾是它的一个省，因此中共国拥有在国际上代表台湾的唯一权利。台北的民选政府说只有它有这个权利。
+「哪家我都不打。别再说了，我绝对不打疫苗的。」
 
-近期，中共国加大了政治和军事压力，迫使台湾接受中共国主权。台湾说它是一个独立的国家，如果中共国发动攻击，台湾将进行自卫。
+「你不打疫苗，要是把病毒带回家害小孩得病怎么办？我也不想打，但是，我不像你，我总是瞻前顾后，权衡利弊，做两手准备。你怎么可以这么不负责任！」
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+我默不作声，别过了脸，想避开那双不再发亮，只剩怨恨与责难的眼睛的注视。
 
-**参考新闻：**[Taiwan, US discuss UN participation ahead of key anniversary (rappler.com)](https://www.rappler.com/world/global-affairs/taiwan-united-states-discuss-un-participation)**
-*****发布：小红帽***
+「王八蛋！」儿子Alex像鹦鹉学舌一样，学着他娘语气对着他笼里的宠物鸟打着招呼。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+「凭什么？」
+
+「扇你巴掌！」
+
+九岁的Alex，没老人家带，普通话说不上几句，这几句倒是说得特别到位。但他说得最好的一句，能够把他娘的神韵掌握得惟妙惟肖的，总能打破僵局，让我噗嗤失声一笑的是这句，
+
+「你不要学你爹！」
+
+「Alex你闭嘴，没你的事，给我去做你的数学题！那个Will一天做三份，你一天做不到半份，还错一堆，怎么考OC，真是没救了！」
+
+Alex天真烂漫，转身看着我的意思，看我双手合十暗拜了一下，感谢他帮我转移炮火，对我做个鬼脸，一溜烟跑了。
+
+「你给回来！Georgia呢？你去把你弟弟抓回来做题！」
+
+「哦！」
+
+女儿惫懒走出房间，迷懵的眼睛告诉我她又沉迷着ipad上的讯息。
+
+「Georgia来。」我振作起当父亲的威严喊着。
+
+“From now on, you are not going to stay in your bedroom during the day, okay?”
+
+“Why?” Georgia怯怯地问着。
+
+我看着曾经老是怕生躲我身后，现在尽管透着底气不足，竟然开始质疑我说的话，有些惊诧，但说教这事，还难不倒我。
+
+“Because the sole purpose of your bedroom is for you to rest.”
+
+“You are not going to stay in your bedroom reading on your ipad all day long. ”
+
+“You are not going to ignore your families.”
+
+“Now go get Alex and set up the desk and get some work done.”
+
+看着女儿领着我的旨意离去，我对自己满意地点点头，转头发现老婆已关了电视，回到房间，低着头，划着手机，看着微信群里各种更新。
+
+我轻轻叹了口气，也回到了自己的手机。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/244.png)（图片来自网络截图）
+（文章仅代表作者个人观点）
+
+*发稿：MG1*
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

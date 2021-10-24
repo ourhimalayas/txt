@@ -2,15 +2,34 @@
 ---
 
 
-## 文贵爆料（10/22）：中共潜艇在台湾海域多个地点“冒头”
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1610800/)
+## 纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1534601/)
 
-#### 撰稿：萌萌的朋克（秘翻 Gnews 原创组）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-6.jpeg)
-郭文贵先生在2021年10月22日的大直播开篇即爆出重磅——中共潜艇在台湾海域多个地点“冒头”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-CN.jpg)
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-2021年10月22日，台湾当地时间 20:40 左右，共军潜水艇在台湾东部、东北部、东南部的东海海域多个地点“冒头”——既是对台湾的威慑，也是对国际社会的嚣张叫板。郭先生形象地把此举比喻为“流氓在大街上走着走路把裤子脱下来了，露出生殖器一样……”
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
 
-这个消息对于日军、美军而言，意味着共军可能会有更加疯狂的、进一步的行动；对于中共内部，则体现了其内斗加剧、欲利用武统台湾转移全世界对重要问题（例如，病毒溯源、新疆大屠杀、中共国房地产崩盘等）的注意力。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-001-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-002-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-003-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-004-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-005-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-006-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-007-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-008-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-009-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-010-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-011-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-012-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-013-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-014-scaled.jpg)
 
-新闻来源：[六中全会定调明年二十大](https://gettr.com/streaming/pevzuhc748)
+
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
+
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
++4

@@ -2,27 +2,21 @@
 ---
 
 
-## 有声|盖特平台再次进行Live Streaming直播测试
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1613558/)
+## G7发联合声明：从全球供应链中消除强迫劳动
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1613678/)
 
-配音：香草山美食部 – 玫瑰园
+俄罗斯莫斯科喀秋莎农场   银河
 
-美国东部时间周一晚间，盖特平台再次进行了Live streaming直播测试。本次测试依旧由郭文贵先生领衔进行。参与本次直播测试的，还有盖特大V用户长岛哥、正义小Sarah和Rachel等。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/U.png)renecassin.org
+10月22日七国集团（G7）贸易部长会议上，七国集团首次发表了“从全球供应链中消除强迫劳动”的联合声明， 七国集团含蓄地批评中共国针对新疆维吾尔族穆斯林的强迫劳动。
 
-本次Live Streaming直播测试，共进行了1小时39分钟，吸引了众多盖特用户的在线观看。直播测试效果良好，画面清晰流畅，各项基本功能如点赞、互动留言和转发等运行良好。
+七国集团(G7)贸易部长会议反对强迫劳动，并表达了对“在全球供应链中使用任何形式的强迫劳动，包括国家支持的、对弱势群体及少数民族进行强迫劳动”表示关切。联合声明指出，全世界大约有2500万人遭受强迫劳动，并敦促各国、机构和企业共同努力。
 
-据悉，盖特直播功能，将于近期推出。郭先生在直播中号召广大的盖特用户，在盖特上多多开展直播活动，尤其是英文直播，以传播病毒及疫苗真相。
+这一联合声明没有点名提及中共，但在声明中含蓄指向新疆维吾尔自治区的人权问题和强迫劳动问题。七国集团成员国表示共同关切，其背景是希望藉此表示该集团成员国将团结一致要求中共国方面就相关问题进行改善。
 
-文字版原文：[盖特平台再次进行Live Streaming直播测试](https://gnews.org/zh-hans/1607563/)
+七国集团(包括英国、加拿大、法国、德国、意大利、日本和美国)以及欧盟也就数字贸易的原则达成了一致，并表示他们“反对数字保护主义和威权主义”。在另一份文件中，他们呼吁解决“跨境数据流动的不合理障碍”，“同时继续解决隐私、数据保护、知识产权保护和安全问题”。
 
-音频处理：喜山必胜Maverick
+参考链接：
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://english.kyodonews.net/news/2021/10/af63c3d6f1d5-g-7-voice-concern-over-forced-labor-amid-chinas-treatment-of-uyghurs.html](https://english.kyodonews.net/news/2021/10/af63c3d6f1d5-g-7-voice-concern-over-forced-labor-amid-chinas-treatment-of-uyghurs.html)
