@@ -2,25 +2,27 @@
 ---
 
 
-## 歼16出局伊朗进口采购！中共军机实力仍远输其“俄爹”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1613500/)
+## 有声|澳洲智库ASPI公布新报告：新疆模式正被内地效仿
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1613530/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/54.png)[图片来源](https://inf.news/zh-cn/military/7abd38ba9a7d80a519e853f568792c55.html?__cf_chl_jschl_tk__=pmd_QggKPJ59DM2F7s1mjuFW.ieo0.v530lWs37H1EKEegU-1635007136-0-gqNtZGzNApCjcnBszQk9)
-环球时报旗下“枢密院十号”网易官方账号10月23日报道，伊朗迈赫尔通讯社报道称，前几天抵达莫斯科的伊朗武装部队参谋长穆罕默德·巴盖里少将证实，伊朗已签订了从俄罗斯联邦购买国防设备的合同，包括俄罗斯制造的战斗机、教练机和武装直升机。这也基本意味着中共外贸型歼-16战机的出局。
+配音：香草山美食部 – 玫瑰园
 
-由于巴盖里少将没有提及采购武器的具体型号，结合伊朗军方的现实需要，预计是苏-30SM或苏-35战斗机、雅克-130教练机和卡-52、米-28武装直升机等机型。
+10月19日，澳大利亚战略政策研究所(ASPI)发布标题为《镇压的结构》的报告，列举了170多个近年来参与治理新疆的中共各级党、政、军和混合行政机关，揭露了中共政府于新疆推行“种族灭绝”的来龙去脉和具体操作情况。
 
-前期，鉴于歼-10系列战机是单发中型战机，且对伊朗的吸引力有所不足，中共一直将歼-16战机作为主力机型向伊朗进行推销。再参照伊朗方面自用的西方武装直升机的习惯和经验，中共还向伊朗配套推销其具有美国黑鹰直升机血统的直8、直10系列直升机。
+报告指出，中共政府认定“恐怖主义势力”、“极端主义势力”和“分离主义势力”为造成新疆不稳定的“三股势力”。但这实际上是中共维稳的借口，以此对新疆进行严加管控，对维稳对象进行残酷的蹂躏和屠戮。
 
-国际军贸市场的竞争，除了看政治和利益关系之外，武器装备自身的战技性能、采购价格和维修保障等综合要素就成了硬条件。而脱胎于苏-30MK2的歼-16，暂不论其与苏-30MK2这种血统上的“父子”关系，就其发动机和航电系统等仍离不开俄罗斯的支持，可以说，歼16在国际军贸市场与俄罗斯相比，毫无竞争力可言。
+该报告还强调是，中共在新疆的维稳手段正在被内地的其他省份和地区效仿。例如香港的“反恐”部门，就曾派人前往新疆受训，学习当地政府监控民众的手段。
 
-信息来源：
+文字版原文：[澳洲智库ASPI公布新报告：新疆模式正被内地效仿](https://gnews.org/zh-hans/1609919/)
 
-[伊朗战机进口大单定了！中国歼16本是最佳选择，但为何没被选中？](https://www.163.com/dy/article/GN0INMV50552G199.html)
+音频处理：喜山必胜Maverick
 
-(文章仅代表作者本人观点，与GNEWS无关)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

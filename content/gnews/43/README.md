@@ -2,35 +2,29 @@
 ---
 
 
-## CDC：可能改变中共病毒疫苗“全接种”的定义
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1613057/)
+## 美共和党议员致信IOC 重申推迟北京冬奥会的紧急呼吁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1613159/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/102308.jpg)
+**编辑摘要：**
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/V-3.jpg)abcnews.go.com
-在人们的印象中，通常将接受过两剂疫苗接种的情况认作“全接种”，现在又出现了“加强剂”（booster），于是人们就糊涂了，既然是“全接种”，咋又出来“加强”了呢？怎样向公众解释？CDC在阴谋集团的诱逼下，置全民智商于不顾，竟然要修改“全接种”的定义？世界荒唐到了如此境地！
+据自由亚洲电台10月23日报道，美国国会及行政当局中国委员会(CECC)的两名资深共和党成员——参议员马可·鲁比奥(Marco Rubio)和众议员克里斯·史密斯(Chris Smith)21日致函国际奥委会(IOC)，重申他们要求推迟第24届冬季奥运会的紧急呼吁。
 
-《新闻纵横》发表文章，题目是，“美国疾病控制与预防中心（CDC）：中共病毒疫苗接种定义可能改变”。
+信函中还敦促国际奥委会禁止中华人民共和国国家队参赛，并表示拒绝接受国际奥委会此前“在所有全球政治问题上保持中立”的决定。因为反对种族灭绝是一个道德决定，而不是一个政治决定，当涉及到道德决定的责任时，国际奥委会没有豁免权。
 
-全文如下：
+新闻参考链接：[美共和党议员致信IOC 重申推迟北京冬奥会的紧急呼吁](https://www.rfa.org/mandarin/Xinwen/5-10232021103450.html)
 
-拜登政府官员周五（10月22日）敦促符合条件的美国人进行中共病毒疫苗加强剂的接种，疾病控制和预防中心负责人表示，可能会更新其关于什么是全面疫苗接种的定义。
+*编辑：【英国伦敦喜庄园编辑部】*
 
-目前，在美国，如果有两剂辉瑞（BioNTech）或莫德纳（Moderna Inc）疫苗，或一剂强生疫苗，则被视为完全接种疫苗。
+* * *
 
-疾病预防控制中心主任罗谢尔·瓦伦斯基（Rochelle Walensky）告诉记者：“我们还没有改变‘完全接种’的定义，我们将继续研究这个问题，我们可能需要在未来更新‘完全接种’的定义。”
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-她说：“如果你有资格申请加强剂，那就去拿你的加强剂，我们会继续跟进。”
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-（原文完）
 
-拜登政府的官员们还应该继续补充，那些公司赚得还不够，还可能会有“加强”的1剂、2剂、3剂，修改定义将会是常态，我们会积极配合那些阴谋集团，直到把那些唤不醒的人扎透！
+编辑：【英国伦敦喜庄园编辑部】
 
-罪恶不灭，天理不容！
-
-（文章仅代表作者个人观点）
-
-原文链接：
-
-[https://www.newsmax.com/health/health-news/covid-vaccinated-definition-booster/2021/10/22/id/1041630/](https://www.newsmax.com/health/health-news/covid-vaccinated-definition-booster/2021/10/22/id/1041630/)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

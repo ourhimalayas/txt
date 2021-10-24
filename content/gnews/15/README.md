@@ -2,27 +2,7 @@
 ---
 
 
-## 有声|习不敌党内阻力，全国征房地产税难落地
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1613616/)
+## 10/22/2021 文贵直播：习对25家金融股机构的调查雷声大雨点小，这反而将想灭习的人团结在一起
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1613641/)
 
-配音：香草山香港部 – 文凯琳
-
-据多家媒体报道，近日，习近平推行全国性房地产税、以缓解税源枯竭的计划，遭遇了中共内部罕见的强大阻力。计划开征房地产税的试点城市，也从30个降至10个，并采取争议较小的替代方案，基本上倒退回20世纪90年代末期住房改革的“双轨制”。
-
-习近平此前指派副总理韩正负责此项推行计划。向多个部门征求意见，却遭强烈反对。迫使韩正以影响甚广为由，建议习暂时不要广泛推动房地产税。
-
-党内对习近平扩大征收房地产税的计划，普遍给予负面回应。知情人士说，党员普遍拥有超过一套房产。疫情持续之下，经济和收入同时下滑，党员也不能例外。房地产税全面铺开会增加家庭交税支出，增加自己负担。关乎切身利益时，即便是“习核心”的提议也会遇到激烈反对。
-
-文字版原文：[习不敌党内阻力，全国征房地产税难落地](https://gnews.org/zh-hans/1609373/)
-
-音频处理：喜山必胜Maverick
-
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+秘密翻译组-北美组
