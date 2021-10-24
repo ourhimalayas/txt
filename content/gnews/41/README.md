@@ -2,45 +2,40 @@
 ---
 
 
-## 美国CDC表示将重新定义完全接种疫苗的标准
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1613903/)
+## 儿童疫苗未获FDA批准，拜登政府仍“快速”推广
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1614025/)
 
-作者：香草山教育部- Naughty（文行）
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/gnews-logo.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/eae33eb1-f6a4-47b2-b9d4-af3b05a9b2bf-scared_child_getting_shot.jpg)
 
 
 
-疾病控制和预防中心（CDC）主任Rochelle Walensky10月22日表示，随着新冠疫苗加强针的日益普及，美国可能会改变未来全面接种疫苗含义的定义。
+图片来源：usatoday.com
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-35.jpg)
 
-她告诉记者：“我们尚未更改‘完全接种疫苗’的定义。我们将继续关注这一点。我们未来可能需要更新对‘完全接种疫苗’的定义。”她说，如果您有资格获得加强针，请继续接种，我们将继续跟进。
+#### 编译：小红帽
 
-那些同时接种了辉瑞-BioNTech和Moderna疫苗或一剂强生疫苗的人将获得完全疫苗接种状态。
+拜登政府周三公布了其计划“快速”为大约2,800万名5-11岁的儿童接种中共病毒（Covid-19）疫苗，尽管这款疫苗未获得美国食品和药物管理局 (FDA) 的批准。【注：这是[美国食品和药物管理局的文件](https://www.fda.gov/media/151710/download)，证明向儿童推行的中共病毒疫苗未获批准。】
 
-白宫冠状病毒应对协调员杰夫·齐根特斯指出，超过70万人有资格接受加强针注射，并补充说：“在未来几个月内，超过1亿美国人将有资格获得接种加强针资格。”
+白宫表示，这种（不能阻止中共病毒传播的）疫苗将在儿科医生、当地药房，甚至可能在学校提供。
 
-Zients说：“除了使用辉瑞疫苗外，还有60万多万人使用Moderna和J&J接种疫苗。”
+根据公告，白宫已获得足够的资金，可以为已经签署疫苗接种协议的儿科医生和初级保健医生提供超过25,000剂疫苗，而美国现在有足够的辉瑞（Pfizer）疫苗为大约2,800万儿童接种。
 
-疾病预防控制中心数据显示，66.2%的美国人口接种了一剂COVID-19疫苗，而57.2%的人接种了两剂疫苗。大约6%的人接种了加强针。
+与此同时，白宫正在推出一项“广告”活动，以说服父母和孩子相信中共病毒疫苗是安全有效的。
 
-随着世界各地的疫苗危机在社交媒体尤其是盖特平台被广泛揭露传播，有越来越多的人加入到了反对疫苗接种的队伍，在全球掀起了抵抗疫苗接种浪潮。
+最重要的是，美国疾病管制与预防中心（CDC）负责人罗谢尔·瓦伦斯基 (Rochelle Walensky)表示，即使疫苗已获准用于儿童，她仍会建议儿童在学校戴口罩。
 
-这次美国重新定义完全接种疫苗标准显然又是想通过行政手段迫使人们接种更多疫苗。作为正道主义的笃信者和践行者，爆料革命的战友们应该更加积极行动起来，利用盖特等一系列社交媒体平台努力传播疫苗真相，唤醒更多的人们认清邪恶势力疫苗杀人的真相，团结一切追求正义的力量让邪恶势力的阴谋破产。
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-校对/发稿：飞虹
+**参考新闻：**[Biden Administration Details Plan to ‘Quickly’ Vaccinate 28 Million Children Age 5-11, Even Though the Jab is NOT APPROVED and Doesn’t Prevent Transmission (humansarefree.com)](https://humansarefree.com/2021/10/biden-administration-details-plan-to-quickly-vaccinate-28-million-children-age-5-11-even-though-the-jab-doesnt-prevent-transmission.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+**
+*****发布：小红帽***
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

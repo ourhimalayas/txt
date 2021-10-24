@@ -2,31 +2,30 @@
 ---
 
 
-## COVID-19最新情报｜Podcast巨头：Google掩盖疫苗致死相关资讯！
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1614138/)
+## 中共国人大，授权国务院，试点开征房地产税
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1614229/)
 
-**台灣寶島農場 zhong｜發布日期/ 24/10/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
-乔·罗根在Podcast（播客）拥有许多粉丝，近日他发表了关于Google浏览器恶意掩盖新冠疫苗致死的相关消息，他只有利用其他浏览器才可以搜索到关于疫苗致死的相关内容。
+作者：纽约香草山文艺部 – 宁文静
 
-他受到记者采访时，他已经不使用Google，因为Google正在尝试阻止用户接触正确的资讯。他举“伊维菌素”为例，伊维菌素已经被美国相关单位认证为有效治疗药物，然而Google只会让用户看到“兽用伊维菌素，或错误剂量导致副作用”的相关讯息。
-
-- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
-- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-“我必须要使用Duck Duck Go，才可以搜索到疫苗伤害、致死的具体案例，使用Google是不可能搜索到的”罗根这样么说。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1024AM（1-3.003.jpeg)
+10月23日，第十三届中共国人民代表大会作出决定，授权国务院在部分地区，开展房地产税改革试点工作。试点地区的房地产税征税对象，为居住用和非居住用等各类房地产，不包括依法拥有的农村宅基地及其住宅。土地使用权人与房屋所有权人，为房地产税的纳税人。试点期限为五年。目前没有公布试行地区。
+(本文仅代表作者观点)
 
+参考链接：[全国人大授权国务院试点开征房地产税](http://m.eeo.com.cn/2021/1023/508620.shtml)
 
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-> Joe Rogan says he stopped using Google to search things because they are hiding information [pic.twitter.com/BzNzi70kop](https://t.co/BzNzi70kop)
-> — An0maly (@LegendaryEnergy) [October 18, 2021](https://twitter.com/LegendaryEnergy/status/1449956233411133441?ref_src=twsrc%5Etfw)
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：我不在这里
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16-4.jpg)
-
-新闻来源｜[Natural News](https://www.naturalnews.com/2021-10-22-joe-rogan-accuses-google-of-hiding-information.html)
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

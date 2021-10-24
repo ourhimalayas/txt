@@ -2,123 +2,32 @@
 ---
 
 
-## 世界上两大力量会诞生
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1614159/)
+## 李云迪嫖娼被抓跟吃瓜群众的高潮
+` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1614262/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-28.png)
-[https://gtv.org/video/id=6174c83f247c5a3f908f3b6f](https://gtv.org/video/id=6174c83f247c5a3f908f3b6f)
+By：银河勇气星｜天雷滚滚
+视频来源：网路
+这两天，整个中共国网络被一个叫李云迪的钢琴王子因嫖娼被查获给刷屏了。一时间，那些在山西水灾、沈阳爆炸、疫苗灾难、欧金中被自杀事件中集体失声的媒体突然高潮，高调对其口诛笔伐，比李云迪嫖娼时还high。还有那个不要脸的央视，也对他的行为进行了点评，称其自作孽不可活，才艺不是护身符。原本他有四个头衔的社交账号，一夜之间给撤了三个，除了“国际钢琴家”的头衔，其他的如“重庆政协常委”“全国青联常委”“香港青联副主席”的头衔全部下架。墙倒众人推，恩师发声斥责，各大学校撤下用他励志的头像。甚至连钢琴家艺术协会也将他第一时间除名，向全世界表明要与他划清界线。
 
-这个疫苗的这种后果太严重了
-La consecuencia de esta vacuna es muy grave
+我不赞成成婚外恋，我也不赞成卖淫嫖娼，但闹得和六七十年代抓阶级斗争一样，对其游街示众，无论是大小媒体还是吃瓜群众，站在道德制高点对其穷追猛打，感觉这来路不对呀。
 
-但是经过疫苗灾难几年后
-Pero luego del desastre de las vacunas, años después
+不知道李云迪得罪了哪位大神，也不清楚中共是否借李云迪放烟幕弹，在暗度陈仓。那些带节奏的媒体我们就不说了，他们已经彻底沦陷，完全共产党化，别想从他们的嘴巴里听到一句实话，他们的存在，是媒体人的耻辱。
 
-经过消灭共产党后
-Luego de eliminar al Partido Comunista
+我只为吃瓜群众感到悲哀。
 
-世界上两大力量会诞生
-Dos grandes fuerzas serán nacidas en este mundo
+一个弹钢琴的，解决生理需要，没偷你家妻子儿女，你义愤填膺的，站在道德制高点进行煽风点火，欧金中的被自杀了，不见你发声；山西水灾了，也没见你转一个视频，甚至可能还冷嘲热讽过。单位领导与你的美女同事私通，侵犯你权益了，也没见你发声。李云迪一嫖娼，你装成道德婊，跟官媒一起起哄，认为他罪大恶极，巴不得把他下面的小鸡鸡给割了示众，才过瘾。但助纣为虐的吃瓜群众似乎故意忘了一个逻辑：一个曾经在第14届肖邦国际钢琴比赛中获得金奖连续五次上央视表演的艺术家，粉丝何其多，只要玩下潜规则，不会怀疑很多粉丝飞蛾扑火一样的奔来吧，还需要花钱买笑吗？比起这些公权力的肆意妄为，他可以说是干净得一尘不染。说到底，这些吃瓜群众只是一个懦夫，跟这些媒体一样，听党指挥，党让咬谁就咬谁，因为没有风险，所以咬的时候还不忘拍个视频，传到群里，证明他咬得有多起劲，说不定可以邀功请赏，主子给他丢一块骨头渣吃吃。说白了，这种人就是个孬种，有一个贱到骨头里的奴性思想。
 
-中国人会成为世界上创新能力最强的国家
-Los chinos se convertirán en el país más innovador del mundo
+还有一种吃瓜群众是无知和愚蠢。李云迪只是一个艺术家，被带节奏的媒体一煽情，他们就不加思索地跟风。从来不去想一下，你认识他是因为他是个钢琴家，还是他是个完人。你如果是个音乐爱好者，你关心的是他的琴弹得好不好，管他离过几次婚，谈过几次恋爱。如果一定要把艺术和道德挂起钩来，古来能有完人吗？白居易八十多了，还“一树梨花压海棠”，去糟蹋一个黄花大姑娘，他老子还和他妈妈是亲㽒舅关系呢，在你们眼里不成乱伦了吗？是不是要学秦始皇，焚了他的书去？至于柳永流连烟花巷陌，虽然被那个皇帝鄙视让他去填词，能妨碍他的词流传千古，还被众多歌伎青睐，他死后还集资搞了一个柳七会？如果说远了，那瞎子阿炳嫖娼得了烟柳病致死呢，你去把他的《二泉映月》下架呀。贝多芬、肖邦几个艺术家没嫖过娼，还有梵高，据说还把自己的耳朵割了去送给妓女。如果按照你们的说法，嫖娼是天下第一恶事，他们的作品都得全数下架，那么世界的艺术史可要长满荒草了。还有那个一路演讲一路嫖娼的马丁·路德金的尸体也要从坟墓里挖出来进行鞭尸，以儆效尤。
 
-美国始终是世界上最牛的帝国
-Estados Unidos siempre será el mejor imperio del mundo
-
-那一定是的
-Eso es seguro
-
-那么接下来什么时代呢?
-¿Entonces después qué Era se aproxima?
-
-大家要看到
-Todos verán
-
-人类现在生存的地球上, 所有的能源污染
-Los seres humanos que viven en este planeta tierra, todas las contaminaciones energéticas
-
-所有的资源
-Todos los recursos
-
-一切问题就是电
-Todos los problemas es por la electricidad
-
-就曾经在这个楼里待过
-Así como me he quedado aquí en este edificio
-
-在隔壁楼上的爱迪生发明了电灯一样
-En el edificio de al lado, Edison, inventó la luz eléctrica
-
-这个电灯拯救了人类
-Esta luz eléctrica salvó a la humanidad
-
-电是人类的一切的麻烦
-La electricidad es el origen de todos los problemas
-
-那么现在随着电瓶车(发展), 随着人类的这个核电的开发
-Y ahora con el desarrollo del vehículo de batería y la energía nuclear humana
-
-未来绿色能源安全的核电是美国最牛的
-El futuro de la energía verde y la energía nuclear segura, EE. UU será el mejor en eso
-
-就很小的核电
-Así como la energía nuclear más pequeña
-
-就像那潜水艇用的那个核电一样
-Al igual que la energía nuclear utilizada por el submarino
-
-航空母舰一样
-Como un portaviones
-
-未来的就是便携式的核电装置
-En el futuro será una central nuclear portátil
-
-会绝对彻底消灭煤炭石油的(发)电
-Eliminará absolutamente la generación de energía a base de carbón y petróleo
-
-这使美国(成为)最大的未来的一个国家赢家
-Esto hará que EE. UU se convierta en el ganador de un país
-
-就是绿色能源
-Es la energía verde
-
-更重要的绿色能源的百分之八九十来自哪里呢?
-Y lo más importante, de ¿dónde proviene el 80-90% de la energía verde?
-
-有光的地方, 有太阳的地方就有电
-Los sitios que tengan luz y sol habrá electricidad
-
-而且很快美国会有巨大的进步
-Y pronto EE. UU habrá un gran avance
-
-就是未来这核电厂
-Es el futuro de la central nuclear
-
-能源煤炭污染用电都没有了
-La contaminación del carbón para la energía por uso de electricidad desaparecerá
-
-美国在绿色能源上会领先全球
-Estados Unidos liderará el mundo con energía verde
-
-所以美国还是第一的
-Por eso EE. UU seguirá siendo el número 1
+我们现在正处在被刻意道德化的疯子一样的环境中，正常的人只能选择缄默，否则，会被真疯和装疯卖傻的人挫骨扬灰。而这个疯人院的制造者和策划者就是中国共产党。
 
 * * *
 
-日期: 10/22/2021
-原视频标题：世界上两大力量会诞生
-Nacerá dos grandes fuerzas en el mundo
-原视频日期: 10/19/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1450299056207499267?s=24](https://twitter.com/se1y7cblljselva/status/1450299056207499267?s=24)
-任务编号：2603
-视频时间段：0:00-1:34
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+（文章内容仅代表作者观点）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+作者：天雷滚滚
+审核：兵嫂、骄子
+发布：骄子
+
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/欢迎战友回家-2.jpeg)

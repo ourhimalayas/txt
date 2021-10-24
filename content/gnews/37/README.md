@@ -2,19 +2,31 @@
 ---
 
 
-## 秘翻在线：NIH官网悄悄地更改了功能增强研究的定义
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1614007/)
+## COVID-19最新情报｜Podcast巨头：Google掩盖疫苗致死相关资讯！
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1614138/)
 
-####  翻译/撰稿：zzballack
+**台灣寶島農場 zhong｜發布日期/ 24/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+乔·罗根在Podcast（播客）拥有许多粉丝，近日他发表了关于Google浏览器恶意掩盖新冠疫苗致死的相关消息，他只有利用其他浏览器才可以搜索到关于疫苗致死的相关内容。
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-433.png)图片来源：MedPage Today
-据《真正美国之声》（Real America’s Voice）10月24日报道，退役海军军官杰里米·雷德芬（Jeremy Redfern）10月23日发推说，美国国立卫生研究院（NIH）在其官方网站上悄悄地改变了对“功能增强（GOF）”研究的关键定义，这引起了人们的极大关注。NIH最近因为被曝光资助了中共国武汉病毒研究所有争议的研究遭到严格审查。
+他受到记者采访时，他已经不使用Google，因为Google正在尝试阻止用户接触正确的资讯。他举“伊维菌素”为例，伊维菌素已经被美国相关单位认证为有效治疗药物，然而Google只会让用户看到“兽用伊维菌素，或错误剂量导致副作用”的相关讯息。
 
-根据网页档案显示，今年10月19日之前，NIH在其官网上把“功能增强”实验定义为“一种修改生物制剂的研究，使其赋予该制剂新的或增强的特点。这种研究带来了生物安全风险，必须仔细管理这些风险。获得NIH资金支持的这部分GOF研究只能在受到严格监督、能提供恰当的生物安全和生物安保措施的实验室进行，以帮助保护研究人员免受感染并防止微生物释放到环境中。”
+- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
+- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
 
-但是，修改后的最新版本定义从根本上大大淡化了功能增强研究的概念，相反主要聚焦于“增强潜在的大流行病原体（enhanced potential pandemic pathogen）”，或称为ePPP研究。NIH官网称，“虽然ePPP研究是一种所谓的‘功能增强’研究，但是绝大多数的GOF研究并不涉及ePPP，所以不在涉及ePPP的研究所需的监管范围之内。”
 
-杰里米·雷德芬在在推特上表示，GOF的定义页面看起来在过去两三天内被重新编辑。该页面指出，它的“上一次审查”是在10月20日。但它没有对此做出解释，也没有提到它被编辑过。
+“我必须要使用Duck Duck Go，才可以搜索到疫苗伤害、致死的具体案例，使用Google是不可能搜索到的”罗根这样么说。
 
-新闻来源：[NIH quietly rewrites ‘gain-of-function’ definition amid greater scrutiny of controversial research](https://americasvoice.news/justthenews/nih-quietly-rewrites-gain-function-definition-amid-greater-scrutiny/)
+
+
+> Joe Rogan says he stopped using Google to search things because they are hiding information [pic.twitter.com/BzNzi70kop](https://t.co/BzNzi70kop)
+> — An0maly (@LegendaryEnergy) [October 18, 2021](https://twitter.com/LegendaryEnergy/status/1449956233411133441?ref_src=twsrc%5Etfw)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16-4.jpg)
+
+新闻来源｜[Natural News](https://www.naturalnews.com/2021-10-22-joe-rogan-accuses-google-of-hiding-information.html)
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)

@@ -2,34 +2,123 @@
 ---
 
 
-## 银河快讯：G7制止对维吾尔人强迫劳动；中俄首次在日本海等地联合巡航
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1614017/)
+## 世界上两大力量会诞生
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1614159/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-76.png)[图片来源](https://www.dwnews.com/)
-**1.****七国集团同意消除对维吾尔人的强迫劳动**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-28.png)
+[https://gtv.org/video/id=6174c83f247c5a3f908f3b6f](https://gtv.org/video/id=6174c83f247c5a3f908f3b6f)
 
-[据共同社 10月23日报道，七国的贸易部长周五同意消除强迫劳动，并对国家的这种针对少数民族的做法表示关切，这是对中共国对待新疆维吾尔人的隐晦批评。“我们申明，在基于规则的多边贸易体系中没有强迫劳动的位置”，部长们在英国主持的虚拟会议后发表的联合声明中说，他们对“国家支持的弱势群体和少数民族强迫劳动”表示关切。在七国集团关于这个问题的第一份联合声明中指出，全世界约有2500万人遭受强迫劳动，并敦促各国、机构和企业共同努力，“从全球供应链中消除强迫劳动”。](https://english.kyodonews.net/news/2021/10/af63c3d6f1d5-g-7-voice-concern-over-forced-labor-amid-chinas-treatment-of-uyghurs.html)
+这个疫苗的这种后果太严重了
+La consecuencia de esta vacuna es muy grave
 
-**2.****日本选民投票重视经济政策**
+但是经过疫苗灾难几年后
+Pero luego del desastre de las vacunas, años después
 
-[据共同社 10月23日报道，共同社在31日投计票的日本众院选举前对全国100名选民实施的问卷调查显示，关于决定投票对象时重视的课题，有最多的38人选择了“经济形势和就业、劳动政策”。有74人回答称切实感受到新冠疫情对生活和经济的影响，超过7成。关于投票时重视的课题，排在经济和就业政策之后的依次为，医疗领域新冠对策11人、灾后重建和防灾对策8人、少子化对策7人。](https://tchina.kyodonews.net/news/2021/10/1f483fa9ffbb--7.html)
+经过消灭共产党后
+Luego de eliminar al Partido Comunista
 
-**3.****在世界各地的日本大使馆和领事馆举行众议院投票**
+世界上两大力量会诞生
+Dos grandes fuerzas serán nacidas en este mundo
 
-[据NHK 10月23日报道，将于本月31日举行的众议院选举的海外投票现在正在世界各地的日本大使馆和领事馆进行。根据日本外务省的数据，截至今年8月，有96,000人在海外选举登记册上登记。在这次众议院选举中，投票将在226个地点举行，包括日本在世界各地的大使馆和领事馆。在大使馆和其他地点进行的海外投票的时间因地区而异，最迟在25日结束，之后投票被运送到日本，并在31日开放。](https://www3.nhk.or.jp/news/html/20211023/k10013318291000.html?utm_int=news-international_contents_list-items_010)
+中国人会成为世界上创新能力最强的国家
+Los chinos se convertirán en el país más innovador del mundo
 
-**4.****中共国和俄罗斯宣布首次在日本海等地区进行的联合海军巡逻行动**
+美国始终是世界上最牛的帝国
+Estados Unidos siempre será el mejor imperio del mundo
 
-[据NHK 10月23日报道，中共国国防部宣布，本月17日至23日，两国舰艇首次在日本海、西太平洋和东中国海水域进行联合巡逻。俄罗斯国防部还说，这些舰艇“首次通过津轻海峡作为其活动的一部分”。包括驱逐舰在内的总共10艘海军舰艇和来自中共国和俄罗斯海军的6架舰载直升机参加了这次行动，俄罗斯国防部还公布了一些录像资料。](https://www3.nhk.or.jp/news/html/20211023/k10013319261000.html?utm_int=news-international_contents_list-items_003)
+那一定是的
+Eso es seguro
 
-**5.****众院选举女性候选人比例仅17.7% 远不及政府目标**
+那么接下来什么时代呢?
+¿Entonces después qué Era se aproxima?
 
-[据共同社 10月23日报道，此次众院选举是日本实施要求政党尽可能做到候选人数男女均等的法律后的首次选举，所有候选人中的女性比例仅为17.7%，与4年前的众院选举持平。远远不及日本政府提出的到2025年实现女性候选人比例达35%的目标。19日发布公告的众院选举共有1051名候选人，其中女性为186人。各政党的女性候选人比例为，自民党9.8%（33人），公明党7.5%（4人）。第一大在野党的立宪民主党也较低，仅18.3%（44人）。](https://tchina.kyodonews.net/news/2021/10/65b9ff4650d9-177-.html)
+大家要看到
+Todos verán
 
-**6.****日本9月消费者物价指数上升0.1%**
+人类现在生存的地球上, 所有的能源污染
+Los seres humanos que viven en este planeta tierra, todas las contaminaciones energéticas
 
-[据共同社 10月23日报道，日本总务省公布的9月全国消费者物价指数（2020年为100，生鲜食品除外）为99.8，比上年同期上升0.1%。这是该指数在2020年3月后时隔近1年半首次转增。手机资费降价，但原油价格高涨导致电费和汽油涨价。进入10月后，标准汽油价格创下7年来新高，煤油也升至6年零11个月高位，能源价格持续高涨。按各个种类来看，手机资费下降44.8%，另一方面电费上涨4.1%。煤油和汽油分别上涨20.2%和16.5%。包括电费和汽油等在内的“能源”上涨7.4%，创下2年零10个月最大涨幅。住宿费上涨43.1%。](https://tchina.kyodonews.net/news/2021/10/6e844d9a9dea-901.html)
+所有的资源
+Todos los recursos
 
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：Windfish
+一切问题就是电
+Todos los problemas es por la electricidad
+
+就曾经在这个楼里待过
+Así como me he quedado aquí en este edificio
+
+在隔壁楼上的爱迪生发明了电灯一样
+En el edificio de al lado, Edison, inventó la luz eléctrica
+
+这个电灯拯救了人类
+Esta luz eléctrica salvó a la humanidad
+
+电是人类的一切的麻烦
+La electricidad es el origen de todos los problemas
+
+那么现在随着电瓶车(发展), 随着人类的这个核电的开发
+Y ahora con el desarrollo del vehículo de batería y la energía nuclear humana
+
+未来绿色能源安全的核电是美国最牛的
+El futuro de la energía verde y la energía nuclear segura, EE. UU será el mejor en eso
+
+就很小的核电
+Así como la energía nuclear más pequeña
+
+就像那潜水艇用的那个核电一样
+Al igual que la energía nuclear utilizada por el submarino
+
+航空母舰一样
+Como un portaviones
+
+未来的就是便携式的核电装置
+En el futuro será una central nuclear portátil
+
+会绝对彻底消灭煤炭石油的(发)电
+Eliminará absolutamente la generación de energía a base de carbón y petróleo
+
+这使美国(成为)最大的未来的一个国家赢家
+Esto hará que EE. UU se convierta en el ganador de un país
+
+就是绿色能源
+Es la energía verde
+
+更重要的绿色能源的百分之八九十来自哪里呢?
+Y lo más importante, de ¿dónde proviene el 80-90% de la energía verde?
+
+有光的地方, 有太阳的地方就有电
+Los sitios que tengan luz y sol habrá electricidad
+
+而且很快美国会有巨大的进步
+Y pronto EE. UU habrá un gran avance
+
+就是未来这核电厂
+Es el futuro de la central nuclear
+
+能源煤炭污染用电都没有了
+La contaminación del carbón para la energía por uso de electricidad desaparecerá
+
+美国在绿色能源上会领先全球
+Estados Unidos liderará el mundo con energía verde
+
+所以美国还是第一的
+Por eso EE. UU seguirá siendo el número 1
+
+* * *
+
+日期: 10/22/2021
+原视频标题：世界上两大力量会诞生
+Nacerá dos grandes fuerzas en el mundo
+原视频日期: 10/19/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1450299056207499267?s=24](https://twitter.com/se1y7cblljselva/status/1450299056207499267?s=24)
+任务编号：2603
+视频时间段：0:00-1:34
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
