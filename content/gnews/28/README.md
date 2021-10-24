@@ -2,25 +2,10 @@
 ---
 
 
-## 秘翻在线：专家强调北京如何将侵犯人权变成一种产业
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1614525/)
+## DWAC的11个合格机构买家或机构认可投资者
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1614568/)
 
-#### 翻译撰稿：Hakunamatata
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-130-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/2-113-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0003-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0004-1-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0005-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0006-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0007-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0008-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0009-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0010-scaled.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/robert-destrsdo-1asdf200x833-700x420-1.jpg)Photo by ANDREW CABALLERO-REYNOLDS/AFP via Getty Images
 
-美国国务院(State Department)一位前官员说，中国共产党已经成为利用其侵犯人权行为牟利的专家了。他指出，中共政府将奴隶劳动甚至是被杀害者的身体部位完全商业化。前负责民主、人权和劳工事务的助理国务卿罗伯特・德斯特罗(Robert Destro)表示：中共领导人将追究任何可能对其统治构成挑战的人和事。
-
-德斯特罗10月18日在哈德逊研究所的座谈会上说，中共是提取专家，他们将一切货币化，从国家资源到你的肝脏，榨取的，胁迫的，压制的，入侵的，这是德斯特罗在描述中国共产党(CCP)时选择的四个词。
-
-关于宗教。德斯特罗说，在中共国人们受到的打击尤其严重，他举例指出，法轮功团体的转变就是一个例子。法轮功于1992年被引入中共国东北城市长春，最早期得到了国家的大力支持，通过口头迅速传播。据官方估计，当时法轮功已经吸引了7000多万信徒。到了1999年7月，当局撤回了所有这些支持，并发起了一场全国性的运动，试图消灭这些组织。德斯特罗说，直到今天，中共依然视法轮功为一个对他们威胁的存在。一些调查认为，这些法轮功的信徒是北京工业化强制器官摘取运动的主要受害者。从被监禁的医生身上提取器官，然后以数万美元的价格出售，这是一种不可能有任何幸存者的可怕医疗过程。
-
-在奥地利维也纳，法轮功练习者举行了“割取被监禁练习者器官”的示威活动。2018年10月1日，奥地利从中共国进口了人体器官。华盛顿法轮功协会的联络主任Sean Lin说：中共政府利用了警察系统、司法系统、医疗系统，来共同实现这一利润链，如果他们找到匹配的人，他们就可以去你家里以任何名义逮捕你并摘取你的器官。据德斯特罗称，中共政权出售自己人民的器官的可怕做法，使其与有组织的犯罪集团没有什么不同。他还曾担任西藏问题特别协调员，他观察到同样的剥削政策正在青藏高原和中共国其他地方执行。他说，西藏一直是中共的一个关键试验场，在那里，邪恶的权肆无忌惮地实施了镇压。这是通过开采该地区的矿产，迫使当地人在文化上融入占人口多数的汉人的做法，迫使西藏精神领袖达赖喇嘛流亡，并将该地区变成一个无处不在被监视的地方。该地区具有极其重要的地缘战略和环境意义，既是推进“一带一路”基础设施项目的门户，也是中共国亚洲与邻国的重要水资源来源。被称为“世界屋脊”的高原高度，也增加了其在向全球投射军事力量方面的战略价值。他说:如果你把导弹放在高原顶上，你就能击中世界上的任何东西。
-
-在新疆，类似的场景也在上演。在西部偏远地区，估计有100万维吾尔人被关押在一个拘留营网络中，当局称这是“反恐”行动的一部分。美国国际宗教自由委员会(U.S. Commission on International Religious Freedom)副主席、维吾尔族美国律师努里・特克尔(Nury Turkel)表示，该表现出了绝对的无情，对中国共产党来说，任何有组织的宗教、任何宗教活动或信仰都被视为一种威胁。他们被视为对中国共产党生存的威胁。据智库全球政策中心(Center for Global Policy)称，新疆地区供应了中国85%的棉花，以及世界约五分之一的棉花供应，其中很大一部分是因为受到了中共政权强迫劳动的原因。在新疆难民营的维吾尔族妇女看到她们的宝贝头发被剃掉了。据《大纪元时报》采访的幸存者说，其中一些头发后来成了编织和其他美容产品的原料，这些产品后来在美国销售。
-
-逃到美国的法轮功练习者此前告诉《大纪元时报》，在中共国各地的监狱里，玩具、人造花、化妆品和衣服只是囚犯被迫每天长时间苦力干活的部分物品，通常很少几乎都没有薪酬。专家们说，这些政权侵犯人权的影响不会仅限于中共国的边境。随着中共在全球供应链中扮演的重要角色，该政权毫不犹豫地运用其经济力量回击西方的批评，并让美国企业屈服于自己的意志。今年初，中共国政府带头抵制主要的国际服装品牌，这些品牌试图在产品中避免使用新疆棉，导致十几个时装品牌失去了它们的中国品牌大使。
-
-哈德逊研究所宗教自由专家尼娜・谢伊(Nina Shea)是该小组的主持人，她指出，当川普政府对中共国商品征收关税时，在中共国印刷了数千万本圣经的美国圣经出版商，却一边站在北京游说华盛顿反对这项措施，这是中共国自觉地与自由民主模式竞争的另一种生活和存在的模式。谢伊和德斯特罗说：中共宗教界的困境值得美国更加关注。
-
-原文链接：** [‘They Will Monetize Everything’: Experts Highlight How Beijing Has Turned Rights Abuses Into an Industry](https://www.theepochtimes.com/they-will-monetize-everything-experts-highlight-how-beijing-has-turned-rights-abuses-into-an-industry_4064929.html)**
+[全文](https://assets.gnews.org/wp-content/uploads/2021/10/11-investors-to-Digital-World-.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/10/11-investors-to-Digital-World-.pdf)

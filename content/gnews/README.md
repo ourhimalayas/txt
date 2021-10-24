@@ -15,26 +15,26 @@
 
 ---
 
-### [中共墙内一周内爆炸事件汇总](/content/gnews/1/README.md)
+### [文贵焦点10/24 不要陪葬许家印房地产 国内疫苗伤亡惊人](/content/gnews/1/README.md)
+ ` 秘密翻译组-原创组`
+
+### [中共墙内一周内爆炸事件汇总](/content/gnews/2/README.md)
  ` 澳喜农场`
 
-### [文贵爆料24/10：大厦将倾——许家印的恒大帝国即将崩塌](/content/gnews/2/README.md)
+### [文贵爆料24/10：大厦将倾——许家印的恒大帝国即将崩塌](/content/gnews/3/README.md)
  ` 秘密翻译组-原创组`
 
-### [文贵爆料10/24 吴征 2019年被FBI刑事调查将搅动美国政济司法腐败大曝光](/content/gnews/3/README.md)
+### [文贵爆料10/24 吴征 2019年被FBI刑事调查将搅动美国政济司法腐败大曝光](/content/gnews/4/README.md)
  ` 秘密翻译组-原创组`
 
-### [因制裁俄罗斯公民需到波兰华沙申请美国签证](/content/gnews/4/README.md)
+### [因制裁俄罗斯公民需到波兰华沙申请美国签证](/content/gnews/5/README.md)
  ` HimalayaRussia`
 
-### [疾病预防控制中心在Covid-19疫苗的安全性方面对世界撒谎(二)](/content/gnews/5/README.md)
+### [疾病预防控制中心在Covid-19疫苗的安全性方面对世界撒谎(二)](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [疾病预防控制中心在Covid-19疫苗的安全性方面对世界撒谎(一)](/content/gnews/6/README.md)
+### [疾病预防控制中心在Covid-19疫苗的安全性方面对世界撒谎(一)](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [文贵爆料24/10： 中共用空壳公司设计川普的目的是想干掉川普](/content/gnews/7/README.md)
- ` 秘密翻译组-原创组`
 
 ### [俄国防部长称北约在俄边境部署部队是军事挑衅](/content/gnews/8/README.md)
  ` HimalayaRussia`
@@ -51,56 +51,56 @@
 ### [土耳其开始从美国采购F-16战机](/content/gnews/12/README.md)
  ` HimalayaRussia`
 
-### [文贵视角:川普总统陷入极度危机之中](/content/gnews/13/README.md)
+### [数码世界收购集团（DWAC）与运鸿国际的关系](/content/gnews/13/README.md)
  ` 秘密翻译组-原创组`
 
-### [美联储称强制疫苗加剧供应链危机](/content/gnews/14/README.md)
+### [文贵视角:川普总统陷入极度危机之中](/content/gnews/14/README.md)
+ ` 秘密翻译组-原创组`
+
+### [美联储称强制疫苗加剧供应链危机](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [美国众议院草拟遏制双类股票的法案](/content/gnews/15/README.md)
+### [美国众议院草拟遏制双类股票的法案](/content/gnews/16/README.md)
  ` 纽约香草山MOS02`
 
-### [文贵爆料10/24 吴征等中共情报势力正给川普新媒体设置刑事犯罪陷阱](/content/gnews/16/README.md)
+### [文贵爆料10/24 吴征等中共情报势力正给川普新媒体设置刑事犯罪陷阱](/content/gnews/17/README.md)
  ` 秘密翻译组-原创组`
 
-### [美国CDC可能更改疫苗“完全接种”的定义](/content/gnews/17/README.md)
+### [美国CDC可能更改疫苗“完全接种”的定义](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [拜登承诺协防台湾，引中共强硬回应](/content/gnews/18/README.md)
+### [拜登承诺协防台湾，引中共强硬回应](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [有声|43国在联合国发表声明对中共镇压维吾尔人表示关切](/content/gnews/19/README.md)
+### [有声|43国在联合国发表声明对中共镇压维吾尔人表示关切](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [2021年10月24日郭文贵先生大直播速记](/content/gnews/20/README.md)
+### [2021年10月24日郭文贵先生大直播速记](/content/gnews/21/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [玉琮是宇宙万物的密码，万物生于此也灭于此](/content/gnews/21/README.md)
+### [玉琮是宇宙万物的密码，万物生于此也灭于此](/content/gnews/22/README.md)
  ` G-NEWS TAIWAN`
 
-### [香港马拉松发生多人受伤，赛前强制选手接种疫苗](/content/gnews/22/README.md)
+### [香港马拉松发生多人受伤，赛前强制选手接种疫苗](/content/gnews/23/README.md)
  ` 日本东京方舟农场`
 
-### [NBA球员坎特再发视频，谴责中共、声援维吾尔人](/content/gnews/23/README.md)
+### [NBA球员坎特再发视频，谴责中共、声援维吾尔人](/content/gnews/24/README.md)
  ` 日本东京方舟农场`
 
-### [福奇被曝资助“令人发指”的幼犬活体实验](/content/gnews/24/README.md)
+### [福奇被曝资助“令人发指”的幼犬活体实验](/content/gnews/25/README.md)
  ` 日本东京方舟农场`
 
-### [郭文贵直播摘要和音频2021.10.22](/content/gnews/25/README.md)
+### [郭文贵直播摘要和音频2021.10.22](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [10/24/21 香港快讯 银行公会更新文件 指若客户因国安案被捕 银行必须披露相关资产](/content/gnews/26/README.md)
+### [10/24/21 香港快讯 银行公会更新文件 指若客户因国安案被捕 银行必须披露相关资产](/content/gnews/27/README.md)
  ` 英喜-粵語組`
 
-### [DWAC的11个合格机构买家或机构认可投资者](/content/gnews/27/README.md)
+### [DWAC的11个合格机构买家或机构认可投资者](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：专家强调北京如何将侵犯人权变成一种产业](/content/gnews/28/README.md)
+### [秘翻在线：专家强调北京如何将侵犯人权变成一种产业](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [我与青蒿的不解之缘](/content/gnews/29/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [美国的短缺经济是因为让中共控制了供应链（粤语配音）](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

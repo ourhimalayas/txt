@@ -2,36 +2,19 @@
 ---
 
 
-## 美联储称强制疫苗加剧供应链危机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1614839/)
+## 文贵视角:川普总统陷入极度危机之中
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1614840/)
 
-作者：美东香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美联储最新一份褐皮书报告称，疫苗强制令正在损害就业，影响供应链危机，并推高物价。
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/AZ-5.jpg)
+郭文贵先生在10月24日的直播中爆料，吴征与杨澜等中共相关特务肆无忌惮，掩藏吴征早已在2019年就处于被FBI调查刑事犯罪之中，利用11个基金，从事内线交易，给予川普总统3亿美金及相当大的股份，蛊惑川普总统卖掉自己的IP，与有中共背景的公司合作成立媒体公司。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-36.jpeg)
+**新中国联邦永不攻击川普总统**
 
-总统拜登在九月份要求全美企业，凡是规模在百人以上的，都要让员工接种疫苗或提交和核酸报告。因总统行政令，很多公司强迫员工接种疫苗，导致不愿接受强制疫苗政策的员工被迫辞职，或者罢工。西南航空公司员工大规模罢工，令一千多航班取消。芝加哥和巴尔的摩等城市的警察和消防员，很大一部分人可能会因为拒绝接种而失去工作。
+“共产党最希望的就是新中国联邦人攻击川普总统，我们绝对不能攻击川普总统。”郭文贵先生说。川普目前面临很大的危机，首先是吴征等人利用空壳公司，上下其手百般阻挠川普加入盖特，使得川普失去可能爆发的政治影响力；接下来，由于拥有绝对的股权，川普很可能因为吴征等共产党的操作，陷入内线、内幕交易、操纵股市、欺骗美国股民、甚至是伪造文件等罪名。共产党同时会制造无数个诉讼案件，让川普疲于奔命，导致川普失去2022年的议员资格选举。除此之外，川普甚至可能背上刑事罪，不但一分钱拿不到，全家族都可能身陷囹圄。
 
-美联储的褐皮书称，儿童保育问题和强制疫苗是造成企业员工离职的主要原因。因疫苗强制令解雇员工的公司和机构，面临人手的问题。由于缺少仓库工人和卡车司机，使货物滞留在港口，无法及时运输到各地，也导致港口船舶因不能卸载，而无法返航。硬件设备和医疗用品也出现紧缺。鱼肉禽蛋的零售价格已经被2020年上涨10%。商店货架出现过往少有的空架状况。
+**只有真相，才能让川普认清现实**
 
-美联储主席鲍威尔似乎表示了更加强烈的缩表意愿。美联储也可能加快升息的步伐，下一次会议决定加息的几率已经超过八成。
+“接下来，被共产党炒作的公司股价下周预计将大跌，然后或许有人会在炒作，股价再上来一些。”文贵先生预测。川普很快会发现自己手上的钱是烫手山芋，因为所有买股票的人，一旦卖了股票，发现是因为中共操纵股票而赔钱，必定提起诉讼，而且这些钱很多是川普的MAGA(MAKE AMERICA GREAT AGAIN)的死忠支持者。
 
-(本文仅代表作者观点)
-
-参考链接：[Federal Reserve: Vaccine Mandates Hurting Employment, Exasperating Supply Chain Crisis](https://www.breitbart.com/economy/2021/10/21/federal-reserve-vaccine-mandates-hurting-employment-exasperating-supply-chain-crisis/)
-[Powell Says Worsening Supply Side Constraints Raise Inflation Risks](https://www.breitbart.com/economy/2021/10/22/powell-inflation-risks/)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编：Ivy001
-编辑：山本不惑
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共在不到一百小时之内骗走美国人数十亿美金，用的是虚假文件、欺诈的手段，这是炸裂开的刑事犯罪！川普认清事实之后，才能深刻体会中共的经济及法律超限战是如何的低劣与邪恶。”真相，才是帮助川普的最好方法!”文贵先生说。

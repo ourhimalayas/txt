@@ -2,28 +2,28 @@
 ---
 
 
-## 拜登承诺协防台湾，引中共强硬回应
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1614811/)
+## 美国CDC可能更改疫苗“完全接种”的定义
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1614816/)
 
-作者：香草山农场 – 遍地开花
+作者：俄罗斯莫斯科喀秋莎农场 – 仰望七星
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国总统拜登公开表示，美国对协助台湾防卫有承诺，随即引发中共国的强烈回应
+由于“加强针”的出现，所谓“完全接种”的定义可能被更改。拜登政府官员本周五敦促符合条件的美国人接种中共病毒疫苗的加强针。疾病控制和预防中心负责人表示，可能会更新其关于“全面疫苗接种”的定义。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-19.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-14.jpeg)
 
-拜登10月21日在巴尔的摩的一个媒体活动时表示，如果台湾受到中共国攻击，美国将施以援手。这次拜登首次公开表示军事手段干涉，引发外界强烈关注。
+目前，在美国，如果打完两剂辉瑞或两针莫德纳疫苗，又或打了一剂强生疫苗，都被视为完全接种。疾病预防控制中心主任罗谢尔·瓦伦斯基说：目前还没有改变相关定义，但他也表示，将继续研究，并可能需要在未来更新‘完全接种’的定义。”她同时还鼓励民众打第三剂加强针。
 
-中共忘图裹挟14亿老百姓，既有战狼汪文斌狂妄警告：任何人都不要站到中共的对立面。白宫发言人在本周五的新闻发布会上再次强调，美国的政策没有改变，美国将继续协助台湾保持其足够的自卫能力。郭文贵先生也在直播中爆料，美国的专业人士明确答复，如果共产党直接攻打台湾的话，美军是会出手的。
+可见，不久的将来，3针也将不够用了，疫苗护照也不能用了，需要第4甚至第5针，才能达到所谓“完全接种”的状态。多少人将因此失去生命。文贵先生多次提醒，疫苗灾难还没有真正开始，留给人类的时间真的不多了。
 
 (本文仅代表作者观点)
 
-参考链接: [拜登又承诺“保卫台湾”，白宫再度“灭火”，中方回应了！](https://www.163.com/dy/article/GMU8TFEI05508U92.html)
-[白宫重申不改变对台政策 专家认为拜登口误](https://www.dw.com/zh/白宫重申不改变对台政策-专家认为拜登口误/a-59604511)
+参考链接：[CDC：可能改变中共病毒疫苗“全接种”的定义](https://gnews.org/zh-hans/1613057/)
+[CDC: Definition of Full Vaccination for COVID-19 May Change](Definition%20of%20Full%20Vaccination%20for%20COVID-19%20May%20Change)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-总编：Ivy001
-编辑：山本不惑
+总编：山本不惑
+编辑：正义的小新
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
