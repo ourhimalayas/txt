@@ -2,9 +2,10 @@
 ---
 
 
-## 美国的短缺经济是因为让中共控制了供应链（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1614448/)
+## DWAC的11个合格机构买家或机构认可投资者
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1614568/)
 
-10/11/2021 美国的短缺经济是因为让中共控制了供应链，这个犯罪组织在过去70年里杀害了超过4亿中国人。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-130-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/2-113-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0003-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0004-1-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0005-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0006-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0007-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0008-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0009-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0010-scaled.jpg)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+[全文](https://assets.gnews.org/wp-content/uploads/2021/10/11-investors-to-Digital-World-.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/10/11-investors-to-Digital-World-.pdf)
