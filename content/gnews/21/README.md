@@ -2,79 +2,123 @@
 ---
 
 
-## 企业搜集疫苗护照信息，隐私泄漏可能导致高管入狱
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1614142/)
+## 世界上两大力量会诞生
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1614159/)
 
-#### **翻译：月映万川**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-28.png)
+[https://gtv.org/video/id=6174c83f247c5a3f908f3b6f](https://gtv.org/video/id=6174c83f247c5a3f908f3b6f)
 
-#### **编辑：****MSGZ/文泓**
+这个疫苗的这种后果太严重了
+La consecuencia de esta vacuna es muy grave
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-78.png)
+但是经过疫苗灾难几年后
+Pero luego del desastre de las vacunas, años después
 
-**图片来源：大纪元& Austin Children Alliance**
-**文章导读：**
+经过消灭共产党后
+Luego de eliminar al Partido Comunista
 
-澳大利亚政府正在强推疫苗护照，虽然各州政府力度各有不同，然而要求全行业接种疫苗已经是不争的事实。每个雇主公司按照政府政策安排，要求雇员提供疫苗护照信息交企业存档。今天澳洲的信息专家提出，企业的这种做法可能违法了《隐私法》。因疫苗护照上有受法律保护的个人健康识别码（IHI）。如果企业对个人隐私数据处理不当，（高管）可能会受到包括监禁在内的惩罚。
+世界上两大力量会诞生
+Dos grandes fuerzas serán nacidas en este mundo
 
-当前澳洲政府以疫情紧急状态的名义扩张行政权力，各种侵犯公民隐私现象情况已开始抬头。譬如，现在消费者去各个场所都需要扫码（类似墙内健康码）。早在2018年澳洲就出台法律，让政府机构以预防犯罪的名义对个人进行互联网监控。本文提到的疫苗护照泄漏个人隐私现象，可能只是澳洲社会冰山一角。
+中国人会成为世界上创新能力最强的国家
+Los chinos se convertirán en el país más innovador del mundo
 
-**译文：**
+美国始终是世界上最牛的帝国
+Estados Unidos siempre será el mejor imperio del mundo
 
-专家警告称，从客户或员工那里收集新冠疫苗接种证书，会给企业带来严重的法律和网络安全风险，如果数据处理不当，这些企业将面临诉讼、巨额罚款甚至行政监禁。
+那一定是的
+Eso es seguro
 
-对于已经储存了政府颁发的员工或者客户的疫苗证明企业来说，风险是很大的。专家建议搜索他们的电子邮件或人力资源系统并删除图像，或者至少删除证书上的突出敏感信息。因为这些敏感信息会给企业带来“数据安全的痛苦世界”。
+那么接下来什么时代呢?
+¿Entonces después qué Era se aproxima?
 
-澳大利亚的疫苗证书被专家们认为不应该存在。作为州和联邦政府摆脱大流行封锁的一部分，**他们要求企业在允许客户和员工进入其场所之前要检查他们是否接种了疫苗。**
+大家要看到
+Todos verán
 
-新南威尔士州前副隐私专员安娜·约翰斯顿说，**收集接种疫苗信息的企业正在存储（员工）健康信息，这很可能是第一次使得这些企业受《隐私法》监管，而该法要求他们采取“合理步骤”保护这些信息。**
+人类现在生存的地球上, 所有的能源污染
+Los seres humanos que viven en este planeta tierra, todas las contaminaciones energéticas
 
-约翰斯顿女士说，更糟糕的是，**联邦政府的证书中含有一个独特的标识符，称为个人健康识别码（****IHI），它受其法律的保护，具有更严格的数据安全要求，如果一项数据处理不当，可能会受到包括监禁在内的惩罚。**
+所有的资源
+Todos los recursos
 
-她说，与税务档案号码一样，IHI是政府使用的最敏感的数据。以医疗保健为目的，它可以对澳大利亚人进行独特的识别，远不同于私人医疗保险号码，该号码可以由家庭成员共享。它是如此敏感，当它在2010年提出，政府为它配备了自己的隐私立法，《医疗保健识别码法》**。**
+一切问题就是电
+Todos los problemas es por la electricidad
 
-她说：“在疫苗接种证明上包括IHI，而这个证明需要向健身房、理发店和餐馆以及我们的雇主和顾客展示，这是联邦政府的一个可怕的错误。”
+就曾经在这个楼里待过
+Así como me he quedado aquí en este edificio
 
-著名网络安全论坛CISO Lens的创始人詹姆斯•特纳表示，**这是政府造成的一个糟糕的数据安全问题。**
+在隔壁楼上的爱迪生发明了电灯一样
+En el edificio de al lado, Edison, inventó la luz eléctrica
 
-“我真的感同身受。小企业没有自己的**信息安全官员**告诉他们该怎么保护这些记录，同时也没有专职信息审核官告诉他们该怎么做。他们也没有任何明确的线索，来告知他们如何使用和披露IHI。**如果企业违反这些规则，这会使他们面临民事和刑事处罚。”**
+这个电灯拯救了人类
+Esta luz eléctrica salvó a la humanidad
 
-即便对于拥有首席信息运营官（CISO）大企业而言，处理疫苗接种证书也已成为一个主要问题。
+电是人类的一切的麻烦
+La electricidad es el origen de todos los problemas
 
-一个问题是，许多企业要求他们的员工和客户通过电子邮件发送疫苗接种证明的图片，而这些图片会显示IHI。
+那么现在随着电瓶车(发展), 随着人类的这个核电的开发
+Y ahora con el desarrollo del vehículo de batería y la energía nuclear humana
 
-“正如我们从人们将信用卡信息存储在电子邮件系统中时所了解到的，这类信息很容易泄露，”特纳说。
+未来绿色能源安全的核电是美国最牛的
+El futuro de la energía verde y la energía nuclear segura, EE. UU será el mejor en eso
 
-另一家大型公司Optus表示，它非常谨慎地对待员工的疫苗接种证明，只将其存储在员工的个人档案中，而这里也包括存储了其他敏感数据（如薪酬应享权利）。
+就很小的核电
+Así como la energía nuclear más pequeña
 
-Optus发言人说：“这些信息只能由少数人力资源专家核实，而不能由员工经理或其他领导核实。”
+就像那潜水艇用的那个核电一样
+Al igual que la energía nuclear utilizada por el submarino
 
-澳大利亚最大的人力资源软件提供商之一Nimbus表示，它已竭尽努力确保，**如果员工被要求上传疫苗接种证书的图片，则图像上传是加密的，并且以加密格式存储在人力资源数据库中。**
+航空母舰一样
+Como un portaviones
 
-Nimbus的创始人兼首席执行官格兰特•库斯坦斯表示，处理因需要存储疫苗信息而提出的技术和合规问题“很复杂，除非你拥有解决所有这些问题的技术，否则你将会手足无措的，这是毫无疑问的。”
+未来的就是便携式的核电装置
+En el futuro será una central nuclear portátil
 
-约翰斯顿女士说，即使企业解决了与存储员工和客户疫苗接种数据所附带的严重合规问题，或者即使政府选择忽视合规问题。而合规问题只是首先存在的问题，他们还需要担心另一个问题。
+会绝对彻底消灭煤炭石油的(发)电
+Eliminará absolutamente la generación de energía a base de carbón y petróleo
 
-**“疫苗接种证明包括您的姓名、出生日期和****IHI。这是在暗网上访问某人的医疗保险记录所需的三个要素，”她说**
+这使美国(成为)最大的未来的一个国家赢家
+Esto hará que EE. UU se convierta en el ganador de un país
 
-她说，不必存储证书，只需要简单地审阅，可以是通过Zoom等视频通话，然后只存储有关日期和时间以及由谁看到的信息。（如果）企业必须存储证书，他们应该要求员工和客户首先对其进行编辑。让他们打印出来，并且把IHI涂黑，然后扫描它，并发送它。作为一个企业，如果你不是医疗保健提供者，你真的应该避免有任何人的IHI记录。”
+就是绿色能源
+Es la energía verde
 
-“如果您不是合法使用IHI的医疗保健系统的一部分，那就是整个世界的数据安全之痛。而如果你是健身房、理发店或航空公司，你就不需要IHI了，”她说。
+更重要的绿色能源的百分之八九十来自哪里呢?
+Y lo más importante, de ¿dónde proviene el 80-90% de la energía verde?
 
-澳大利亚信息专员办公室表示，**企业还应该考虑，一旦不再需要接种疫苗数据，他们将如何销毁收集的任何疫苗接种数据。**
+有光的地方, 有太阳的地方就有电
+Los sitios que tengan luz y sol habrá electricidad
 
-“任何疫苗接种信息都必须安全收集和存储。访问应仅限于业务中需要查看它的员工，最好将此信息存储在单独的记录或数据库中，以获取其他业务信息。”
+而且很快美国会有巨大的进步
+Y pronto EE. UU habrá un gran avance
 
-“这将有助于限制访问，使企业在不再需要时更容易销毁信息，”信息专员发言人说。
+就是未来这核电厂
+Es el futuro de la central nuclear
 
-（文中仅代表作者个人观点，与Gnews平台无关）
+能源煤炭污染用电都没有了
+La contaminación del carbón para la energía por uso de electricidad desaparecerá
 
-原文链接: [Vaccine mandate challenge expands to more than 100 plaintiffs (theage.com.au)](https://www.theage.com.au/national/victoria/vaccine-mandate-challenge-expands-to-more-than-100-plaintiffs-20211022-p5928e.html)
+美国在绿色能源上会领先全球
+Estados Unidos liderará el mundo con energía verde
 
-发布： 文泓
+所以美国还是第一的
+Por eso EE. UU seguirá siendo el número 1
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+* * *
+
+日期: 10/22/2021
+原视频标题：世界上两大力量会诞生
+Nacerá dos grandes fuerzas en el mundo
+原视频日期: 10/19/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1450299056207499267?s=24](https://twitter.com/se1y7cblljselva/status/1450299056207499267?s=24)
+任务编号：2603
+视频时间段：0:00-1:34
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

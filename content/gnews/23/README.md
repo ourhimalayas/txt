@@ -2,47 +2,120 @@
 ---
 
 
-## 杨改兰和杨澜
-` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1614137/)
+## 江志成的白手套马云藏大量海外资产，令习震惊
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1614143/)
 
-文｜银河勇气星骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-127.jpg)图片：骄子
-杨改兰，死者。2016年8月26日下午，本身一贫如洗的家庭又被迫失去了低保，杨改兰绝望到亲手杀死自己的4个孩子，然后自杀。没过多久，杨改兰的丈夫也自杀去世了。全家惨死。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-63.png)
+[https://gtv.org/video/id=6173b297247c5a3f908ebca2](https://gtv.org/video/id=6173b297247c5a3f908ebca2)
 
-杨澜，活人。总参二部有史以来最高级的燕子，一天能找十几次钥匙。没有子宫，没有后患，没有后代。老公吴征，性无能，因彼此捆绑，杨澜的功劳总要给吴征算一半。实则吴征连个垃圾都不是。
+**郭文贵
+Miles Guo**
 
-一个杨改兰，一个杨澜，区别仅仅是中间多了一个“改”字，命运也随着改变了，不仅是个人，全家的命运都改变了。由生命改为死命。兰是小草，诗里不是有写吗“野火烧不尽，春风吹又生”，小草是生生不息的，可是杨改兰这样的人怎么就自杀了呢？在中共国这样的国家，就连生命力最顽强的小草都选择自戕，这块土地中毒如此之深，连一株小草都无法生存，更何况参天大树呢？杨澜的澜是波澜壮阔的澜，用来形容水或者大海的，大海是最初孕育生命的摇篮，人类的子宫里，胎儿在未出生前一直生活在羊水里。这么一个美好的名字，而它的主人杨澜没有子宫，可能因为找钥匙频率过多的缘故，杨澜的子宫被摘掉了。
+记住啊，为啥我刚才问你们这个时间点
+Remember, why did I just ask you this time point
 
+这位战友告诉我，把我笑坏了，
+This comrade-in-arms told me that it made me laugh so badly
 
+10月3号它是在哪上市，你知道吗？蚂蚁金服，
+do you know where Ant Financial was listed on October 3rd?
 
+它是在香港上市，然后再在上海上市
+it was listed in Hong Kong, and then back to Shanghai
 
+在这之前，马云已经实际上被限制出境了，出境要报备
+Prior to this, Jack Ma had actually been restricted from leaving the country, and he had to report before leaving the country
 
+你家人出，你不能出，你出，你家人不能出
+Your family member go abroad, you can’t go with them, and you go abroad, your family can’t go with you
 
-> **我爱透了这个世界，世界不爱我**
-> 胡畔《麦子》
+但那一次，马云觉得没事儿，也都谈完了
+But at that time, Jack Ma felt all right, and the negotiations was over
 
+你该怎么上市，怎么上市，
+Go public, just do it
 
-从历史来看，女人的选择往往决定着一个国家乃至一个人类的命运。女人的选择包括，选择和什么样的基因结合，生出什么样的孩子，如何把孩子养大。看起来就是简单的谈恋爱结婚生子养大孩子，是最简单的人伦之路。这和国家什么关系，因为那些推动国家发展的人，他们也都是人啊，也都有母亲。孟母三迁，孟母搬家的行为造就了一代大思想家孟子，孟子的思想确实影响了当时的国家。习一神当年被下放，躲在地窖里吃茄子一直吃到现在听到茄子就要吐，还被拖拉机撞过几次差点撞死。当时偷偷摸摸跑回家，母亲二话不说就把他赶出家门。习一神做了皇帝，处处表现出的是一个皇帝的暴虐无道，随意停电，到处撒币，为了面子不顾老百姓死活。从受虐者变成了施虐者，和他母亲当年那么对待他，有很大的关系。反过来看七哥的母亲，七哥当年在清丰看守所，母亲心里忐忑。但是母亲一直对七嫂和孩子特别好，好好过着日子。他们都以为七哥不会回来了，结果不久以后七哥居然就回来了。当时8964那个事情，不比当年文化大革命影响范围小，人斗人，到处举报人，几乎一直延续到现在。很多参加游行的学生，后来出狱很多年都被自己的同学监视一言一行，那么那些和家里“划清界限”的学生，被自己的家人放弃的游行学生，肯定也不在少数。七哥的母亲和七嫂却从未放弃，铸就了今天的七哥。七哥后来还讲，自己要灭共，和母亲说，每次都把母亲吓到，后来心里郁闷就喝酒，喝完酒就和母亲大哭，母亲都懂他的痛苦。
+马云就约好了说你看，明天香港上市，
+Jack Ma made an arrangement and said, it was going to be listing in Hong Kong tomorrow
 
-后来2017年七哥开始爆料灭共，母亲被共产党气死，吓死。七哥的母亲当年说过，和七哥灭共的战友，一定会和七哥一样的遭遇，连累到母亲，连累到家人。所以七哥每次爆料都非常谨慎，lou住不说很多事情，大部分都是为了保护战友。往小了说，这是人性，一定要保护战友和家人，这是一份情谊；往大了说，这是新中国联邦的基石，我们有办法有能力保护战友，保护战友的家人。这可不可以说是女人的选择决定了一部分人类的命运？
+那天是星期一，星期二就在香港上市10月3号，
+It was Monday, and it was listed in Hong Kong on October 3rd on Tuesday
 
-毛贼东以前说女人是半边天，剩下半边天是啥？男人？那意思就是男女各是半边天，男女平等？但事实却是，不管你给女人什么，你都会得到更多回报。你给她一个精子，她给你一个孩子。你给她一个房子，她给你一个家。你给她一堆食材，她你一顿美餐。你给她一个微笑，她给你整颗心。她会使你给她的东西放大和倍增。女人根本不是和男人平等的。最聪明的农场主更加会利用女性牛仔，因为她们吃的是男性食物的一半，但是干的活是男性牛仔的一倍。
+你看我对时间没概念，这个我记得很清楚啊
+You see I have no concept about time, but I remember this very clearly
 
-说回杨澜和杨改兰，他们都是在幼年受到母亲冷落的习一神统治下的女性，两个女人，一个活人，一个死者，一个美貌大方做着皮肉勒索生意苟且偷生于世，一个一贫如洗被逼到无法生活遂决意一死，看起来是截然不同的命运，但在习一神这里，俩人的命运殊途同归。但并不是不能改，希望杨改兰下一世投身到美利坚这样的国家，希望杨澜，澜不是大海吗，浪子回头金不换，七哥直播说杨澜生活中的那种果敢和决断，和屏幕上完全不一样。王岐山今天说要来灭共，那他就是我的战友，何况杨澜呢？
+就是他告诉我的，说，星期二完了，回到上海，在上海再敲锣，两次
+That’s what he told me and said that after Tuesday then go back to Shanghai, and ring bell again in Shanghai, twice
 
-希望以后不要有杨改兰这样的悲惨女性，同样也不要有杨澜这样的高级燕子。
+这时候孙力军在里面挺不住了，交代了，说马云所有的股份给江志成的
+in the meanwhile, Sun Lijun couldn’t stand it anymore, so he confessed that Jack Ma was the surrogacy all the share holders for Alvin Jiang
+
+给江家、曾家，还有孟（建柱），还有王岐山
+Jiang’s family, Zeng’s family, Meng’s family, and also Wang Qishan
+
+怎么代持的，然后交代了马明哲怎么回事
+How did he hold it, and then explained the secret of Ma Mingzhe
+
+然后告诉了马明哲，平安保险，多少钱在地产里面
+then he revealed Ma Mingzhe’s Ping An Insurance, how much money was in the real estate
+
+保险资金出了多少，大概是9万亿
+How much insurance funds have been spent？It’s about 9 trillion yuan
+
+就平安间接直接投入到房地产的9万亿和移出多少钱
+Regarding the 9 trillion yuan that Ping An directly invested in real estate and how much money it was moved out
+
+然后美国的马云的代持人是谁，然后吴征怎么马云那里拿走了70亿美元
+Then who is Jack Ma’s holder in the United States, and how did Bruno Wu take away 7 billion US dollars from Jack Ma
+
+通过吴征，你们看到那个 Ideanomics 公司,一个就34亿啊
+Through Bruno Wu, just one time they took away about 3.4 billion dollars from that Ideanomics company
+
+其它几个10亿，8亿的，包括这个腾讯音乐这些
+Several others, they took 1 billion dollars, 800 million dollars, including Tencent Music
+
+吴征是帮助孟建柱，帮助孙力军拿走的钱
+Bruno Wu took those money away for helping Meng Jianzhu and Sun Lijun
+
+然后马云又如何在美国，记住啊蔡崇信 记得一个叫蔡崇信的吧
+and how is Jack Ma in the United States, remember Joseph Tsai, remember the guy named Joseph Tsai?
+
+多牛，买洋基，然后刚刚又在我对面买了房子
+super, buy Brooklyn Nets and then just bought a house across from me
+
+全美国有史以来最贵的房子，公寓2.5亿
+It was 250 million dollars most expensive apartments in U.S. history
+
+所有的这些房子包括在这个海外的170个项目
+All these houses are included in this 170 overseas projects
+
+都是马云藏的钱，洗的钱，背后老板主要是江志成
+It’s all the money hidden by Jack Ma, the money laundered, and the boss behind it is mainly Alvin Jiang
+
+这钱可真是大了去了，当时报给习，习傻了
+The money is really huge, it was reported to Xi at the time and Xi was stunned
+
+注：
+2018年4月13日，蔡崇信經美國職籃NBA理事會一致同意，以10億美元（約78.46億港元）收購布魯克林籃網隊49%股權，且有權在三年內買進該球隊的控制性股權。
+2019年8月15日，蔡崇信與俄羅斯億萬富豪米哈伊爾·普羅霍羅夫（Mikhail Prokhorov）簽署協議，以13.5億美元（約105.91億港元）收購後者持有的NBA布魯克林籃網隊剩餘51%股份，成為這支紐約球隊的大老闆。
+
+郭先生提到的洋基是口误
 
 * * *
 
+Date:10/22/2021
+原视频标题:江志成的白手套马云藏大量海外资产，令习震惊
+Jiang Zhicheng’s white glove Jack Ma has hided a large amount of overseas assets, it shocked Xi
+原视频日期：2021/10/17
+原视频链接:[https://twitter.com/se1y7cblljselva/status/1450298819271299074?s=24](https://twitter.com/se1y7cblljselva/status/1450298819271299074?s=24)
+任务编号：2605
+视频时间段 : 0:00-2:19
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-（文章内容仅代表作者观点）
-
-
-
-作者：骄子
-审核：兵嫂
-发布：骄子
-
-
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/欢迎战友回家.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

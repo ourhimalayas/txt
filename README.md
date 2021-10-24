@@ -15,128 +15,128 @@
 
 ---
 
-### [苹果会不会是最后一个留在中国的美国科技巨头？](/content/gnews/1/README.md)
+### [千里之外炸裂版](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [文·贵天成——文贵先生谈“马云”（十）](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [CCP病毒起源和BioNTech老总的市场误判](/content/gnews/2/README.md)
+### [日本要闻汇编 10月24日](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [人与兽的距离，只隔着一个潘多拉盒子](/content/gnews/3/README.md)
+### [苹果会不会是最后一个留在中国的美国科技巨头？](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [CCP病毒起源和BioNTech老总的市场误判](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [人与兽的距离，只隔着一个潘多拉盒子](/content/gnews/6/README.md)
  ` 银河勇气之星`
 
-### [制造恐怖，阻民自救！中共刑拘向确诊病例出售退热止咳药品药店负责人](/content/gnews/4/README.md)
+### [制造恐怖，阻民自救！中共刑拘向确诊病例出售退热止咳药品药店负责人](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [李云迪嫖娼被抓跟吃瓜群众的高潮](/content/gnews/5/README.md)
+### [李云迪嫖娼被抓跟吃瓜群众的高潮](/content/gnews/8/README.md)
  ` 银河勇气之星`
 
-### [纽约警察工会表示将采取法律行动反对疫苗接种授权](/content/gnews/6/README.md)
+### [纽约警察工会表示将采取法律行动反对疫苗接种授权](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [国际要闻汇编 10月24日](/content/gnews/7/README.md)
+### [国际要闻汇编 10月24日](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [各方督促加州港进入紧急状态以应对塞港](/content/gnews/8/README.md)
+### [各方督促加州港进入紧急状态以应对塞港](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [两新研究表明槲皮素可以用于治愈 COVID-19](/content/gnews/9/README.md)
+### [两新研究表明槲皮素可以用于治愈 COVID-19](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [墙内一个普通战友的心路历程](/content/gnews/10/README.md)
+### [墙内一个普通战友的心路历程](/content/gnews/13/README.md)
  ` 澳喜农场`
 
-### [墙内要闻汇编 10月24日](/content/gnews/11/README.md)
+### [墙内要闻汇编 10月24日](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文·贵天成——文贵先生谈“马云”（九）](/content/gnews/12/README.md)
+### [文·贵天成——文贵先生谈“马云”（九）](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“说说你的看法– 老百姓真的脱贫了？” 第06期](/content/gnews/13/README.md)
+### [“说说你的看法– 老百姓真的脱贫了？” 第06期](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [习近平的“房产税”将打击奄奄一息的中共国楼市](/content/gnews/14/README.md)
+### [习近平的“房产税”将打击奄奄一息的中共国楼市](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [G时评：最大的“敌人”就是自己](/content/gnews/15/README.md)
+### [G时评：最大的“敌人”就是自己](/content/gnews/18/README.md)
  ` GISELLE`
 
-### [“说说你的看法– 老百姓真的脱贫了？” 第05期](/content/gnews/16/README.md)
+### [“说说你的看法– 老百姓真的脱贫了？” 第05期](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [现场快报：东京涩谷爆发反对疫苗护照大游行](/content/gnews/17/README.md)
+### [现场快报：东京涩谷爆发反对疫苗护照大游行](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [世界上两大力量会诞生](/content/gnews/18/README.md)
+### [世界上两大力量会诞生](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年10月23日郭先生盖特 — 视频盖特1「4分53秒」](/content/gnews/19/README.md)
+### [2021年10月23日郭先生盖特 — 视频盖特1「4分53秒」](/content/gnews/22/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [江志成的白手套马云藏大量海外资产，令习震惊](/content/gnews/20/README.md)
+### [江志成的白手套马云藏大量海外资产，令习震惊](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [企业搜集疫苗护照信息，隐私泄漏可能导致高管入狱](/content/gnews/21/README.md)
+### [企业搜集疫苗护照信息，隐私泄漏可能导致高管入狱](/content/gnews/24/README.md)
  ` 走进澳洲`
 
-### [COVID-19最新情报｜Podcast巨头：Google掩盖疫苗致死相关资讯！](/content/gnews/22/README.md)
+### [COVID-19最新情报｜Podcast巨头：Google掩盖疫苗致死相关资讯！](/content/gnews/25/README.md)
  ` G&#124;News TAIWAN`
 
-### [杨改兰和杨澜](/content/gnews/23/README.md)
+### [杨改兰和杨澜](/content/gnews/26/README.md)
  ` 骄子`
 
-### [COVID-19最新情报｜新变种肆虐 英国疫情持续反弹 辉瑞借势拟推更多疫苗](/content/gnews/24/README.md)
+### [COVID-19最新情报｜新变种肆虐 英国疫情持续反弹 辉瑞借势拟推更多疫苗](/content/gnews/27/README.md)
  ` G&#124;News TAIWAN`
 
-### [中共部分地区开展房地产税改革试点工作](/content/gnews/25/README.md)
+### [中共部分地区开展房地产税改革试点工作](/content/gnews/28/README.md)
  ` 儒为`
 
-### [班农专访9: 习近平下台，中国和平演变胜过战争](/content/gnews/26/README.md)
+### [班农专访9: 习近平下台，中国和平演变胜过战争](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农专访10: 中共希望发动战争来转移国内危机](/content/gnews/27/README.md)
+### [班农专访10: 中共希望发动战争来转移国内危机](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线:检察官接受指控 卫生官员故意杀害病人以推广中共病毒疫苗](/content/gnews/28/README.md)
+### [秘翻在线:检察官接受指控 卫生官员故意杀害病人以推广中共病毒疫苗](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [班农专访8: 美国训练台湾军事人员](/content/gnews/29/README.md)
+### [班农专访8: 美国训练台湾军事人员](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农专访4: 全球供应链断裂，物价暴涨](/content/gnews/30/README.md)
+### [班农专访4: 全球供应链断裂，物价暴涨](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共最近为什么反复强调“西柏坡精神”？](/content/gnews/31/README.md)
- ` 澳喜农场`
-
-### [班农专访2: 保守党会赢得2022年中期大选](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [币圈新闻动态：HCN和HDO交易记录都可以在Etherscan网站查看](/content/gnews/33/README.md)
+### [币圈新闻动态：HCN和HDO交易记录都可以在Etherscan网站查看](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [儿童疫苗未获FDA批准，拜登政府仍“快速”推广](/content/gnews/34/README.md)
+### [儿童疫苗未获FDA批准，拜登政府仍“快速”推广](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [银河快讯：G7制止对维吾尔人强迫劳动；中俄首次在日本海等地联合巡航](/content/gnews/35/README.md)
+### [银河快讯：G7制止对维吾尔人强迫劳动；中俄首次在日本海等地联合巡航](/content/gnews/36/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [秘翻在线：NIH官网悄悄地更改了功能增强研究的定义](/content/gnews/36/README.md)
+### [秘翻在线：NIH官网悄悄地更改了功能增强研究的定义](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [东南亚一周新闻回顾（2021年10月16日-22日）](/content/gnews/37/README.md)
+### [东南亚一周新闻回顾（2021年10月16日-22日）](/content/gnews/38/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [维多利亚州挑战疫苗强制令，112名原告加入诉讼](/content/gnews/38/README.md)
+### [维多利亚州挑战疫苗强制令，112名原告加入诉讼](/content/gnews/39/README.md)
  ` 走进澳洲`
 
-### [联合国不应成为北京的工具](/content/gnews/39/README.md)
+### [联合国不应成为北京的工具](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国CDC表示将重新定义完全接种疫苗的标准](/content/gnews/40/README.md)
+### [美国CDC表示将重新定义完全接种疫苗的标准](/content/gnews/41/README.md)
  ` 纽约香草山MOS02`
-
-### [视频| 与中共国之战：是否比我们预计得更近？](/content/gnews/41/README.md)
- ` MOSREC`
 
 ### [民调显示，77%的美国人认为脸书和推特正在伤害民众](/content/gnews/42/README.md)
  ` GTV新闻访谈`

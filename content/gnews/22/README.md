@@ -2,31 +2,21 @@
 ---
 
 
-## COVID-19最新情报｜Podcast巨头：Google掩盖疫苗致死相关资讯！
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1614138/)
+## 2021年10月23日郭先生盖特 — 视频盖特1「4分53秒」
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1614153/)
 
-**台灣寶島農場 zhong｜發布日期/ 24/10/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
-乔·罗根在Podcast（播客）拥有许多粉丝，近日他发表了关于Google浏览器恶意掩盖新冠疫苗致死的相关消息，他只有利用其他浏览器才可以搜索到关于疫苗致死的相关内容。
+听写：洛杉矶盘古农场 — Antsee-GTV
 
-他受到记者采访时，他已经不使用Google，因为Google正在尝试阻止用户接触正确的资讯。他举“伊维菌素”为例，伊维菌素已经被美国相关单位认证为有效治疗药物，然而Google只会让用户看到“兽用伊维菌素，或错误剂量导致副作用”的相关讯息。
+Video link: [https://gettr.com/post/pezll0b96f](https://gettr.com/post/pezll0b96f)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/F608403F-67D0-4EE1-A829-125D2B005F15.png)
+战友们好！兄弟姐妹们：十三档…四十五分钟…哇噻…太夸张了。这种出汗的感觉太好了！
 
-- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
-- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
+明天早上大直播。很多兄弟姐妹们给我发信息，太多信息了没办法一一回。非常抱歉。明天上午9点大直播。还有很多兄弟姐妹们给我发信息关于喜币的事儿，7哥现在不方便说，请找农场和联盟委员会。然后昨天、今天在南海和东海发生的事情，感谢了兄弟姐妹们，你们发来了这么绝密的信息…非常感谢！然后香港的银行的事儿，还有这些基金签的保密合同 — 赎回合同和第三方担保 — 太重要了！这让我知道为什么许家印所谓的玩儿的这个延缓的「把戏」。
 
+7哥这几首歌听完正好48分钟 — 听一遍。我这信息没法回，兄弟姐妹们，明天直播中聊。明天希望大家大胆留言，我们明天的主播、主持人可以尽量问我问题；我回答大家的问题。我们的主持人也会从现在起搜集更多的信息，但要注意，很多是卧底的，故意捣乱的。也看到现在从GETTR上，G-TV上很多都是卧底的，就让你回答错问题。别上当了！包括青蒿素 — 青蒿素绝对是解药，青蒿素绝对救人命…大家要记住。但是用法什么的要靠医嘱，兄弟姐妹们。
 
-“我必须要使用Duck Duck Go，才可以搜索到疫苗伤害、致死的具体案例，使用Google是不可能搜索到的”罗根这样么说。
+哇喔…这浑身是汗，当汗流浃背流到你鞋里边的时候，你听到我这双鞋里边“咯吱—咯吱”响了吗？这种出完汗 — “浇的水”…“浇水”的感觉真好。今天这个运动算「做到位了」…马上还有40秒结束，总共做了70分钟，然后再做其它的，还有各关节的运动，然后做“腹拉器”。
 
+兄弟姐妹们，你们很多很多问题由于法律问题我不能回答。但是有些问题我明天会在直播中回答，特别是关于喜币的。明天我们主要谈共产党的经济危机，还有现在和世界上这些吸中国人民血几十年的所谓的对冲基金。还有明天我们谈谈到底川普总统这个SPAC (a special purpose aquisition company) 跟Bruno Wu — 吴征这对冲基金啥关系啊？大家绝对能学很多很多东西，以后你们都会成为投资专家，对冲专家。
 
-
-> Joe Rogan says he stopped using Google to search things because they are hiding information [pic.twitter.com/BzNzi70kop](https://t.co/BzNzi70kop)
-> — An0maly (@LegendaryEnergy) [October 18, 2021](https://twitter.com/LegendaryEnergy/status/1449956233411133441?ref_src=twsrc%5Etfw)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16-4.jpg)
-
-新闻来源｜[Natural News](https://www.naturalnews.com/2021-10-22-joe-rogan-accuses-google-of-hiding-information.html)
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
+天呐！9英里！才不到4000大卡，我的老天爷，怎么回事儿这是？！行了，明天见。

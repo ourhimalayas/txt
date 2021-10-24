@@ -2,123 +2,61 @@
 ---
 
 
-## 世界上两大力量会诞生
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1614159/)
+## G时评：最大的“敌人”就是自己
+` GISELLE` [轉載自GNews](https://gnews.org/zh-hans/1614191/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-28.png)
-[https://gtv.org/video/id=6174c83f247c5a3f908f3b6f](https://gtv.org/video/id=6174c83f247c5a3f908f3b6f)
+**作者/图片设计：Giselle**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/303.png)
+1
 
-这个疫苗的这种后果太严重了
-La consecuencia de esta vacuna es muy grave
+美好的世界，存在于想象之中；
 
-但是经过疫苗灾难几年后
-Pero luego del desastre de las vacunas, años después
+美好的生活，存在于感恩之中。
 
-经过消灭共产党后
-Luego de eliminar al Partido Comunista
+2
 
-世界上两大力量会诞生
-Dos grandes fuerzas serán nacidas en este mundo
+法国哲学家萨特认为“他人即地狱”。
 
-中国人会成为世界上创新能力最强的国家
-Los chinos se convertirán en el país más innovador del mundo
+意即：当你死亡之后，你将被定格在他人的视野里，再也无法抵挡他们对你的解读，哪怕再不公正，你也无能为力……
 
-美国始终是世界上最牛的帝国
-Estados Unidos siempre será el mejor imperio del mundo
+多么狭隘的哲学观啊！
 
-那一定是的
-Eso es seguro
+人都死了，何必在乎他人的评价？
 
-那么接下来什么时代呢?
-¿Entonces después qué Era se aproxima?
+活着的时候，他人的评价尚且不重要，死亡之后，就更不重要了。
 
-大家要看到
-Todos verán
+庸众历来重视他人的看法，胜过重视自己的想法。
 
-人类现在生存的地球上, 所有的能源污染
-Los seres humanos que viven en este planeta tierra, todas las contaminaciones energéticas
+他人不是地狱，他人是你的镜子。
 
-所有的资源
-Todos los recursos
+你透过“镜子”，认清自己，了解生命的意义。
 
-一切问题就是电
-Todos los problemas es por la electricidad
+你短暂的一生，只需要对造物主负责，对你的灵魂负责，而不必在乎任何人的评价。
 
-就曾经在这个楼里待过
-Así como me he quedado aquí en este edificio
+3
 
-在隔壁楼上的爱迪生发明了电灯一样
-En el edificio de al lado, Edison, inventó la luz eléctrica
+哲学家霍布斯认为：对死亡的恐惧以及不安全感，会使人们将自由拱手相让。
 
-这个电灯拯救了人类
-Esta luz eléctrica salvó a la humanidad
+他做到了。
 
-电是人类的一切的麻烦
-La electricidad es el origen de todos los problemas
+在本次疫苗大屠杀当中，他的这一观点，被黑暗势力发挥利用到了极致。
 
-那么现在随着电瓶车(发展), 随着人类的这个核电的开发
-Y ahora con el desarrollo del vehículo de batería y la energía nuclear humana
+在无限放大的死亡恐慌之中，备受病毒煎熬的民众，像溺水的人终于抓到了救命的稻草，接受了死亡的毒针。
 
-未来绿色能源安全的核电是美国最牛的
-El futuro de la energía verde y la energía nuclear segura, EE. UU será el mejor en eso
+悲剧不会结束，除非人们真的了解死亡的真相。
 
-就很小的核电
-Así como la energía nuclear más pequeña
+只有认清死亡的真相、消除对死亡的恐惧，才能真正获得自由。
 
-就像那潜水艇用的那个核电一样
-Al igual que la energía nuclear utilizada por el submarino
+4
 
-航空母舰一样
-Como un portaviones
+你最大的“敌人”，就是你自己，你的肉身在物质世界里形成的“贪嗔痴慢疑”。
 
-未来的就是便携式的核电装置
-En el futuro será una central nuclear portátil
+我们怎么能忘记自己的使命呢？
 
-会绝对彻底消灭煤炭石油的(发)电
-Eliminará absolutamente la generación de energía a base de carbón y petróleo
+这个世界一切的糟糕乱象，皆是因为我们忘记了自己的使命，我们在物质世界里迷失了方向，忘记了自己此行的目的。
 
-这使美国(成为)最大的未来的一个国家赢家
-Esto hará que EE. UU se convierta en el ganador de un país
+你将在这短暂的一生里，体验战胜这些“敌人”的快乐，并在这个过程中收获智慧、勇敢、节制等美德，体验爱与被爱的神奇与美妙。
 
-就是绿色能源
-Es la energía verde
+你将不虚此行，成为造物主的骄傲。
 
-更重要的绿色能源的百分之八九十来自哪里呢?
-Y lo más importante, de ¿dónde proviene el 80-90% de la energía verde?
-
-有光的地方, 有太阳的地方就有电
-Los sitios que tengan luz y sol habrá electricidad
-
-而且很快美国会有巨大的进步
-Y pronto EE. UU habrá un gran avance
-
-就是未来这核电厂
-Es el futuro de la central nuclear
-
-能源煤炭污染用电都没有了
-La contaminación del carbón para la energía por uso de electricidad desaparecerá
-
-美国在绿色能源上会领先全球
-Estados Unidos liderará el mundo con energía verde
-
-所以美国还是第一的
-Por eso EE. UU seguirá siendo el número 1
-
-* * *
-
-日期: 10/22/2021
-原视频标题：世界上两大力量会诞生
-Nacerá dos grandes fuerzas en el mundo
-原视频日期: 10/19/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1450299056207499267?s=24](https://twitter.com/se1y7cblljselva/status/1450299056207499267?s=24)
-任务编号：2603
-视频时间段：0:00-1:34
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+（文章内容仅代表作者个人观点）

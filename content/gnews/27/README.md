@@ -2,37 +2,36 @@
 ---
 
 
-## 班农专访10: 中共希望发动战争来转移国内危机
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1614101/)
+## COVID-19最新情报｜新变种肆虐 英国疫情持续反弹 辉瑞借势拟推更多疫苗
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1614136/)
 
-**简评：**
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ 24/10/2021**
 
-中共国内人道灾难不断，病毒、疫苗、能源短缺、物价暴涨、人民挨冻受饿，加上房地产市场的崩溃导致老百姓的财富被洗劫一空。中共执政70年，老百姓的日子苦不堪言，社会矛盾日益严重。为了转移国内危机，中共情愿一边侵略台湾，一边与印度开战，借煽动国内民族主义情绪发动战争来转移视线。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_0.jpg)
 
-[GTV视频链接](https://gtv.org/video/id=6174055e247c5a3f908f069c)
+本周较早时间，本栏报导了关于英国病毒学家的最近发现，一种从变种毒株 Delta 变异而成的亚变种病毒株** AY.4.2 **正在英国快速传播，其传染性较 Delta 高出 10% 至 15%，相信是自疫情以来最具传染性的病毒株，专家呼吁各界保持警惕。
 
+#### **本周 英国成为世界上 COVID-19 死亡人数最高的五个国家之一**
 
+整整一周，英国的新冠病毒疫情持续反弹，周六公布的数字显示，英国单日新增 44985 人确诊，死亡个案新增 135 宗，英国过去一星期累计超过 33 万人确诊，比之前一星期增加 15%，死亡个案亦攀升百分之12，这一数据令英国成为世界上 COVID-19 死亡人数最高的五个国家之一。英国政府衞生顾问指，当局应要考虑为恢复部分防疫措施做好准备，否则可能要在圣诞节再度封城。
 
-**视频字幕：**
+#### **专家忧新变种 AY.4.2 不容易应对**
 
-主持人Winston：说到开战，最近的中印谈判又失败了，使得两国紧张局势加剧，中印两国在争议地区集结了军队。中共继续在全世界孤立自己，你认为有没有这种可能，如果中共决定入侵台湾，会同时与印度开战？
+英国临床专家发现，被称为 AY.4.2 的 Delta 亚变种与英国越来越来多的确诊案例有关，相信AY.4.2 可能是导致病例数增加的一个可能因素，根据英国卫生安全局(UKHSA) 的说法，AY.4.2 包括尖峰突变 A222V 和 Y145H，截至 9 月 27 日，AY.4.2 至少占所有生成序列的 6%，而且呈上升趋势。伦敦帝国理工学院免疫学教授 Danny Altmann 呼吁必须严密监测 AY.4.2 的发展。
 
-班农先生：我认为他们很愿意两边开战。我认为主要摩擦会在台湾和南中国海，但是我认为他们相信他们已经包围了印度，因为他们有缅甸的情况。他们在西北部有伊朗、巴基斯坦、还有新的恐怖组织基地阿富汗作边界。
+#### **辉瑞董事：更多的疫苗以应对更新的变种病毒 **
 
-我想你们看过他们最近贴出的对印度军队侮辱性的照片。我认为，中共国正准备在西侧和东侧两翼进行作战。
+前任 FDA 专员，现任辉瑞董事会成员 Scott Gottlieb 上周末在推特贴文指，AY.4.2 可能具有“部分免疫逃逸”，而这就是早前希望民众注射加强针的原因。
 
-记住，军队自身会这样选择吗？也许不会。但是，这是将人们的视线从没有供暖的冬天转移开的好办法。还有什么好办法让人们不去关注中共执政70年后，人民的肚子还在挨饿？他们生活在世界上最恶劣的环境，他们最没有自由。他们受冻挨饿，钱也被假房地产商骗走了。与印度开战，在南中国海与西方开战，还有什么好办法比这个更能转移人民的视线？
+不过，他认为，公众毋需感到担心，因为识别新的病毒变体是关键，而这方面辉瑞有“强大的工具”。这意味着，随着新冠病毒不断变种，人们应该不断的接受更多疫苗。
 
-我认为印度西北部的克什米尔不仅是产生摩擦的地方，我想那里更是火战的爆发地。认为中共正在推动这一战争的爆发，因为为了他们超级民族主义的利益，使人们忽略他们连最基本的工作都没有做好，人民餐桌上没有食物，炉灶中没有热气。他们想把人民的视线从这些事情上引开。
-[![](https://spark.adobe.com/page/qApOkIKfNgWle/images/a126c348-b436-4f61-b608-5ad22cff9a0f.png?asset_id=97aee942-c3db-42f0-871b-ccab84a9de0f&amp;img_etag=%2210b729b8d584521311d0c78293ebdcfd%22&amp;size=2560)](https://spark.adobe.com/page/qApOkIKfNgWle/images/a126c348-b436-4f61-b608-5ad22cff9a0f.png?asset_id=97aee942-c3db-42f0-871b-ccab84a9de0f&amp;img_etag=%2210b729b8d584521311d0c78293ebdcfd%22&amp;size=1024)
-*字幕*：*free20200604* |*听写：云岭 | 翻译：Roberts* *| PR：致良知 | 简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+#### **最新研究：越是疫苗接种率比例高的地方，COVID-19 的确诊病例数就越高**
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+实际上，在这波疫情反弹之前，英国完成二剂疫苗接种的比例已经接近六成五，而且，最新研究显示，“新冠病毒对群体免疫或降低病毒传播方面没有任何贡献。”相反，越是完全疫苗接种率比例高的地方，每 100 万人中，COVID-19 确诊病例数就越高。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/15-5.jpg)
 
+新闻来源｜[CNBC](https://www.cnbc.com/2021/10/20/uk-doctors-call-for-return-of-covid-restrictions-new-mutation-watched.html)  / [NationalLife](https://nationalfile.com/pfizer-board-member-reveals-new-ay-4-covid-delta-plus-variant-which-could-require-even-more-vaccines/)
 
-*编辑：【英国伦敦喜庄园编辑部】*
-[![](https://spark.adobe.com/page/qApOkIKfNgWle/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/qApOkIKfNgWle/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
