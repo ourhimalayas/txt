@@ -2,45 +2,57 @@
 ---
 
 
-## NBA知名穆斯林球员坎特为西藏人发声后，再为新疆人站台
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1613815/)
+## 美国驻华大使候选人，在种族灭绝和台湾问题上与中共政府冲突
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1613830/)
 
-作者：纽约香草山信息部 – 6zero4
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16350528041.png)*拜登总统提名的驻华大使尼古拉斯·伯恩斯（Nicholas Burns）在参议院外交关系委员会出庭时承诺对北京采取强硬立场*
+来自英国《每日邮报》10月20日的报道
+
+拜登总统提名的美国驻华大使的候选人周三与中共政府发生冲突，并承诺如果他被确认担任该职位，他将直言不讳地批评中共国的侵犯人权行为和咄咄逼人的外交政策。
+
+尼古拉斯.伯恩斯（Nicholas Burns）在参议院的确认听证会上采取了强硬的立场，他说美国应该扩大对台湾的武器销售，并要求中共政府结束对新疆维吾尔人的种族灭绝。
+
+拜登政府面临压力，需要采取更多措施来遏制中共国日益增长的对全球和地区的野心。
+
+现年65岁的伯恩斯是一名职业外交官，曾任美国驻北约大使，他还被问及对台湾问题的立场.台湾是一个自治的岛屿，担心中共国试图强迫台湾与大陆统一。
+
+他说，华盛顿将其对台湾的“一个中国”政策与反对中共政府破坏该岛目前地位的任何举动结合起来，是正确的。
+
+共和党人和民主党人均同意有必要在台湾、香港和新疆问题上向中共政府施压。
+
+人权倡导者称，中共国对待维吾尔族穆斯林的做法是“种族灭绝”，拜登政府接受了这种描述，但中共国对此表示反对。
+
+伯恩斯在开场白中阐明了强硬立场，列举了中共国的侵略行为。
+
+他说：“中共一直是沿喜马拉雅边境对印度的侵略者；是在南中国海对越南、菲律宾和其他国家的侵略者；在东中国海对日本侵略；并发起了针对澳大利亚和立陶宛的恐吓运动。”
+
+他说：“中共在新疆的种族灭绝和西藏的暴行、扼杀香港的自治和自由，以及对台湾的霸凌都是不公正的，必须停止。”
+
+但他也指出了中共政府的弱点。
+
+他指出：“虽然中共国有很多优势，但它也面临着巨大的人口、经济和政治方面的挑战。”
+
+他说：“我们应该对我们自己的优势有信心，包括我们的科技能力、世界一流的大学和研究机构、我们的军事力量、我们在外交和政府部门的一流的外交使团，特别是我们与中共政府的行动截然相反的价值观。”
+
+他在接受《每日邮报》采访时说：“拜登总统必须强烈谴责这种恶意行为，并采取更强硬的立场，以保护我们的国土和国家安全。”
+
+简评：美国驻华大使这个职位，是自去年10月川普任职末期就开始空缺。现拜登政府提名的准驻华大使尼古拉斯·伯恩斯，在国会听证会上对华的强硬态度。触动了中共的神经。中共官媒《环球时报》用嚣张的标题直接写“伯恩斯驻中，肯定碰钉子”。网上评论也是：拜登政府又跪了；伯恩斯到北京，总有一款药适合他；伯恩斯应该和中国人一起开一家社交媒体公司等等，来调侃伯恩斯。因此，伯恩斯上任前对中共当局的强势，是造势还是真的秀肌肉，这需要时间来验证。
+
+新闻链接：[https://www.dailymail.co.uk/news/article-10112329/Bidens-nominee-U-S-ambassador-China-demands-Beijing-end-genocide-Xinjiang.html](https://www.dailymail.co.uk/news/article-10112329/Bidens-nominee-U-S-ambassador-China-demands-Beijing-end-genocide-Xinjiang.html)
+
+翻译：Brianchow
+
+PR：Julia Win
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-昨天，本台报道了出生在瑞士的土耳其籍，波士顿凯尔特人队NBA知名球员坎特，10月21日发推为西藏人民发声，抨击中共政府，并称习近平为“野蛮的独裁者”，强调西藏属于西藏人民，遭遇了中共的诬蔑和诽谤，中共还在国内禁止了凯尔特人队所有比赛的转播。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-13.jpg)
-第二天，坎特又穿上印有“维吾尔人的自由”T恤再次发推，声援新疆同胞，对习近平和中共的抨击更为激烈： “我在全世界面前呼唤你，关闭奴隶劳改集中营，释放维族人！立即停止种族灭绝！”并称习近平为“无情的独裁者”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/2.3-4.jpg)
-每年业务价值10亿美元的NBA，是中共国民众最喜爱的体育赛事之一，中共国观众是该赛事转播在线流量的主要贡献者，因此经常被中共拿来作为要挟和控制美国体育界的棋子。但即便是中共肆无忌惮的威胁、恫吓和封杀，也挡不住如坎特等正义人士对它的不懈揭露与抨击！
-
-参考链接：
-[After China Blocked Celtics Games, Kanter Re-Ups: Demands “Heartless Dictator” Xi Stop Uyghur “Genocide” Now](https://www.zerohedge.com/geopolitical/china-bans-streaming-all-boston-celtics-games-enes-kanter-demands-beijing-free-tibet)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
