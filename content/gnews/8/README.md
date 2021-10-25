@@ -2,19 +2,33 @@
 ---
 
 
-## 秘翻在线： 渤海银行任意挪用储户28亿存款引众怒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1616915/)
+## 郭文贵先生大直播再谈疫苗大屠杀
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1616935/)
 
-**撰稿：葛大饼**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-25-230905.jpg)图片来源： 鼓掌财经
-根据2021年10月25日网易报道，济民可信集团的两家子公司—山禾药业与恒生制药意外发现自己存在渤海银行的33亿元，有28亿被用于为另外一家与自己毫无关系的公司—华业石化提供贷款质押担保。
+作者：纽约香草山农场 – 蓝天大海
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在10月24日的大直播中揭露：中共释放病毒只是手段，而借疫苗实行大屠杀，才是中共制造这场灾难的真实目的。
 
-之后山禾药业和恒生制药曾尝试支取存款，银行均无法提供存款。更让人惊讶的是，渤海银行希望能够允许银行继续用山禾药业5亿元存款，为华业石化从渤海银行贷款提供存单质押，甚至要挟客户如果选择报警不同意为华业石化提供贷款质押担保，那么山禾药业和恒生制药的这28亿存单会冻结彻底无法取出。更加令人瞠目结舌的是，华业石化最终未能在还款日偿还贷款，渤海银行南京分行不但没有保护存款人的利益，还继续强行划扣了恒生制药4.5亿元存款。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-38.jpeg)
 
-事件曝光后，渤海银行南京分行不得不发表声明，将会依法寻求司法解决，并承诺，一如既往维护客户合法权益，保障客户资金安全，维护金融秩序稳定。
+中共和黑暗势力勾结，首先利用病毒制造恐慌、死亡以及经济危机；勾结利用政客，控制各国政府；再由中共十个家族参股控制的大型制药公司，生产毒疫苗；并垄断全球的主流媒体和社交媒体的话语权。掩盖病毒真相，强制接种疫苗。
 
-渤海银行和渤海金控是什么关系？郭先生说过海航的上面就是渤海金控，渤海金控是中共蓝金黄的一个大平台，渤海金控用中国人资产补血盗国贼海外私生子女、间谍网。
+其目的之一，是让老年人大量死亡，金融界亏掉的养老金就不用兑付了；目的之二，是有计划的种族谋杀，接种率最高的犹太人首当其冲，其次是加拿大人和美国人。目的之三，是消灭精英，接种疫苗最多的精英是律师、会计师、明星、运动员和公务员等。由于这些人聪明、专业，且追求民主、自由和法制，解决掉这些人，就可以更好的控制其他人了。这就是中共与黑暗势力企图统治人类的邪恶计划。
 
-中共国的银行是老百姓不折不扣的吸血管子,在中共国没有法治，只有消灭这个体制，老百姓才能拿回属于自己的财产。
+(本文仅代表作者观点)
 
-**[新闻来源](https://c.m.163.com/news/a/GN4SMDIA0001899O.html?spss=today-news-hotrank)**
+参考链接：[https://gettr.com/streaming/pf2ptd1c68](https://gettr.com/streaming/pf2ptd1c68)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

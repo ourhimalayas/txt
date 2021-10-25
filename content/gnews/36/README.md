@@ -2,9 +2,9 @@
 ---
 
 
-## 通用汽车员工离开工作岗位游行抗议疫苗强制政策
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1616414/)
+## 接种疫苗是个人选择，不应让人们在就业和疫苗间做选择
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1616418/)
 
-2021年10月22日，通用汽车员工离开工作岗位游行抗议疫苗强制政策。
+10/21/2021 爱荷华州长金·瑞诺斯明确表示接种疫苗是个人选择，不应让人们在就业和疫苗之间做出选择。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

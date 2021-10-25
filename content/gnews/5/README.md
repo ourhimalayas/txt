@@ -2,33 +2,31 @@
 ---
 
 
-## 郭文贵先生大直播再谈疫苗大屠杀
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1616935/)
+## 蓬佩奧国务卿：中共有预谋地撕裂国际秩序
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1617009/)
 
-作者：纽约香草山农场 – 蓝天大海
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在10月24日的大直播中揭露：中共释放病毒只是手段，而借疫苗实行大屠杀，才是中共制造这场灾难的真实目的。
+**撰稿：日本东京方舟农场 海星**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-38.jpeg)
+10月25日，据盖特（gettr）网友Andy发布的一段视频，美国国务卿迈克·蓬佩奧（Mike Pompeo）在世界知识论坛（World Knowledge Forum）上演讲时表示，中共国被一群强盗所领导，并且这群强盗正在有预谋地撕裂国际秩序。
 
-中共和黑暗势力勾结，首先利用病毒制造恐慌、死亡以及经济危机；勾结利用政客，控制各国政府；再由中共十个家族参股控制的大型制药公司，生产毒疫苗；并垄断全球的主流媒体和社交媒体的话语权。掩盖病毒真相，强制接种疫苗。
+蓬佩奧国务卿在演讲中说，“我们目前能看到世界上出现了三个裂痕，这些裂痕都是由中共造成的，并且将会导致整个世界的和平被摧毁。”
 
-其目的之一，是让老年人大量死亡，金融界亏掉的养老金就不用兑付了；目的之二，是有计划的种族谋杀，接种率最高的犹太人首当其冲，其次是加拿大人和美国人。目的之三，是消灭精英，接种疫苗最多的精英是律师、会计师、明星、运动员和公务员等。由于这些人聪明、专业，且追求民主、自由和法制，解决掉这些人，就可以更好的控制其他人了。这就是中共与黑暗势力企图统治人类的邪恶计划。
+他进一步解释道，第一个裂痕是由中共释放的病毒传播至全世界而引发的，即中共运用谎言掩盖武汉实验室释放病毒的事实，并且操控WHO，让其在病毒问题上对中共卑躬屈膝，也显示出其内部的腐败。时至今日武汉实验室仍在运行，本来国家级实验室应该证明病毒的出处、阻止疫情爆发，并查看病毒基因组以及疫情起点，但如今却使全世界数百万人丧生并且还在继续造成伤害以及给每个人带来负担。
 
-(本文仅代表作者观点)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/000_1QR3K3-600x400-1.jpg)图片来自于网络
 
-参考链接：[https://gettr.com/streaming/pf2ptd1c68](https://gettr.com/streaming/pf2ptd1c68)
+第二个裂痕是由中共提出的一带一路项目引发的，即引诱发展中国家以基础建设为名目签下债务造成腐败。而且协议中的条款并没有国际上所要求的那么透明，并且明确要求债务违约国出让其国家资产，为了偿还中共出借的债务这些国家可能会以国家资产作为抵押。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+第三个裂痕是由中共想要取代美国的野心而引发的。比如中共撕毁了本该被遵守至2047年的中英联合声明，这份声明清楚地写在了1895年的联合国宪章之内，就是要将香港作为中共国的一个特别行政区让香港享有高度自治的同时，才会让中共获得香港的市场和其自由的果实。如今看到香港的惨状以及中共对其之前承诺过的义务表现出的轻蔑态度，不会再相信中共国所签的任何正式文件会得到执行。
 
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：谐趣园
+蓬佩奧国务卿最后强调：“中共正在有预谋地撕裂整个国际秩序，它就是个强盗政权，中共国就是被一群盗贼所领导。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[20211024蓬佩奧國務卿在Wolrd Knowledge Forum的演講](https://gettr.com/post/pf49hc950a)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*
