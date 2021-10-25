@@ -2,33 +2,41 @@
 ---
 
 
-## 郭文贵先生大直播再谈疫苗大屠杀
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1616935/)
+## 郭文贵先生：便携式核反应堆是美国下一代绿色能源
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1616945/)
 
-作者：纽约香草山农场 – 蓝天大海
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在10月24日的大直播中揭露：中共释放病毒只是手段，而借疫苗实行大屠杀，才是中共制造这场灾难的真实目的。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-15.png)
+10月17日，郭文贵先生在GTV大直播中透露，随着核电技术的开发，在未来绿色能源和安全的核电方面美国是最牛的。以后便携式核电会将煤炭发电消灭，还有80、90%的绿色能源来自有光的地方，有太阳的地方就有电。便携式核电和太阳能发电将是美国下一代的绿色能源，而美国也将继续领先全球。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-38.jpeg)
+据有关公开信息，目前，美国军方和民营商业公司都在进行便携式核反应堆的研发。
 
-中共和黑暗势力勾结，首先利用病毒制造恐慌、死亡以及经济危机；勾结利用政客，控制各国政府；再由中共十个家族参股控制的大型制药公司，生产毒疫苗；并垄断全球的主流媒体和社交媒体的话语权。掩盖病毒真相，强制接种疫苗。
+美联社10月21日消息，美国空军已选择阿拉斯加州内陆的一个艾尔森基地部署其第一座微型核反应堆。据费尔班克斯电视台 KTVF称，艾尔森空军基地在2019年开始的一个项目中被选中，当时《国防授权法案》要求在2027年之前确定开发和运行微型核反应器的潜在地点。美国空军负责环境、安全和基础设施的副助理部长马克·科雷尔在一份声明中说，“这项技术有可能提供真正的能源保障”，而艾尔森基地现有的能源基础设施和气候条件，为验证其可行性提供了完美的位置。科雷尔称，微型核反应器是一种确保能源供应弹性和可靠性的有前途的技术，特别适合为艾尔森等偏远军事基地供电和供暖。据报道，这种微型核反应堆的商业所有者和许可将是美国核管理委员会。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-13.png)
+[图片来源](https://www.163.com/dy/article/GMRCB4KI0514R9OJ.html?f=post2020_dy_recommends)
 
-其目的之一，是让老年人大量死亡，金融界亏掉的养老金就不用兑付了；目的之二，是有计划的种族谋杀，接种率最高的犹太人首当其冲，其次是加拿大人和美国人。目的之三，是消灭精英，接种疫苗最多的精英是律师、会计师、明星、运动员和公务员等。由于这些人聪明、专业，且追求民主、自由和法制，解决掉这些人，就可以更好的控制其他人了。这就是中共与黑暗势力企图统治人类的邪恶计划。
+据美国《陆军时报》7月20日报道，美国军方正再次探索便携式陆基核反应堆。2021年5月，美国国防部为新项目申请了6000万美元，准备在5年内设计并建造一个可安装在卡车上的小型便携式核反应堆，它可以在几天内启动和关闭以进行运输，可以空运到偏远地区和战区。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-49.jpg)
+（可机动部署小型核反应堆概念图）
 
-(本文仅代表作者观点)
+[图片来源](http://www.xinhuanet.com/mil/2021-07/22/c_1211252080.htm)
 
-参考链接：[https://gettr.com/streaming/pf2ptd1c68](https://gettr.com/streaming/pf2ptd1c68)
+此外，美国国家航空航天局（NASA），以及美国初创公司Radiat等军队、国家机构和民营企业都在进行便携式核反应堆的研发。限于篇幅，笔者不再对有关新闻进行具体援引。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+由此可见，美国军方和民间都在发力便携式核反应堆的研发，并且已经到了临近商用的阶段。
 
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：谐趣园
+郭文贵先生每次的直播信息量极大，除以爆料革命、新中国联邦当前的灭共使命为主线之外，还兼有对当前和未来科技发展的诸多信息，值得广大战友一起深入学习和研究。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+信息来源：
+
+[美军要重启小型便携式核反应堆美媒告诫：记住这段失败历史](http://www.xinhuanet.com/mil/2021-07/22/c_1211252080.htm)
+
+[不怕再次发生核事故？美空军将在阿拉斯加艾尔森基地部署微型核反应堆](https://www.163.com/dy/article/GMRCB4KI0514R9OJ.html?f=post2020_dy_recommends)
+
+[前SpaceX工程师正在建造廉价的便携式核反应堆](https://byteclicks.com/28240.html)
+
+免责声明：文章仅代表作者本人观点，与GNEWS无关
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-9.png)
