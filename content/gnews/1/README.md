@@ -2,63 +2,28 @@
 ---
 
 
-## 中国的未来都在由习一人决定
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1616270/)
+## 香港难逃粮食危机
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1616303/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2648.png)
-[https://gtv.org/video/id=6176262e247c5a3f908fad16](https://gtv.org/video/id=6176262e247c5a3f908fad16)
+作者：东京樱花团｜阿恩
+![](https://assets.gnews.org/wp-content/uploads/2021/10/香港难逃粮食危机.png)[*图片来源*](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/691451/%E5%85%A8%E7%90%83%E4%BE%9B%E6%87%89%E9%8F%88%E5%A4%A7%E6%B7%B7%E4%BA%82-%E7%BD%90%E9%A0%AD%E5%95%86%E6%9C%83%E6%86%82%E7%89%A9%E5%83%B9%E7%BA%8C%E5%8D%87-%E8%B1%86%E8%B1%89%E9%AF%AA%E9%AD%9A50%E8%9A%8A%E9%83%BD%E8%B2%B7%E5%94%94%E5%88%B0)
+香港曾经是全球自由贸易的港口，各国的物资都可以免税进入香港，各码头日夜不停地从货轮上卸下大量集装箱，再由货柜车运往各地。香港人一直享受免税进口商品，收入颇丰的香港人在食材方面也是非常挑剔，大米一定要吃香米，产地主要是泰国和越南；肉类要吃新鲜屠宰的，猪牛鸡主要由内地供应；水产要吃游水的（活的），主要供应有本地捕捞和进口生猛海鲜。
 
-**郭文贵
-Miles Guo**
+国安恶法下和中共病毒肆虐闭港多时，香港失业率攀升，港人收入捉襟见肘。内地连年天灾加人祸，许多地方颗粒无收，中共一早将东南亚各国的粮食订购一空，严重破坏了香港大米的供应链，据悉，香港大米的售价不断上涨，泰国米的价格已升幅七成。
 
-跟你们讲今天谈这个六中全会的时候，
-today when we talk about the Sixth Plenary Session of the Central Committee of the Communist Party of China
+内地养殖业遭病毒摧残供应大减，供港猪牛价格翻番，许多港人不堪重负转而购买廉价的巴西冰冻猪肉和牛肉。中共内部供应短缺，借口缓和与美国的关系，加大了采购力度，近几个月进口美国牛肉的数量已超过7亿美元。美国国内疫情加剧，毒疫苗造成国内政治局势不稳定，物价飞涨，因此减少了对香港的牛肉供应，与此同时巴西爆发疯牛症，暂停牛肉供港。
 
-六中全会是中国的未来的是北朝鲜化
-The Sixth Plenary Session of the Central Committee is the future of China’s North Koreanization
+中共与外国政府交恶，用“禁止进口”的自残方法“伤害”外国的经济利益，港人餐桌上难再见到生猛的进口海产，近日内地进口的淡水鱼含恶菌乙型链球菌，已导致八十多人入院，多人死亡，港人对淡水鱼已避之而不及，能选择的只有本地海产，但捕捞又有休渔期的限制，而且香港附近的水域污染日趋严重已无鱼可捞，渔民需要进入更远的公海作业，燃油成本激增，加上今年秋季台风增多，出海作业风险大增，所有的成本都会转嫁到食品的价格上。
 
-还是走向国际化，那么既然经济决定了这个以后
-or still going internationalization, so now that the economy determines it in the future
+综上所述，今年末起，香港人的生活将百上加斤。香港人生活质量每况愈下，与中共的暴政脱不了干系，香港人是否也要进入“吃三年草”的悲惨岁月！
 
-那就是北朝鲜的金氏家族权力化，还是所谓的共产党过去的九龙治水化
-That is just like the power of the Kim family in North Korea, or the so-called Communist Party’s “Nine Dragons Rule the Water” in the past
+被中共奴役了七十二年的同胞们怎么还能在一个视人命为草芥的政权下苟活？何不乘力气尚未被耗尽，膝盖仍不屈的时候奋起推翻邪恶的中共政权，将做人和生存的机会留给后代！
 
-不存在民主法治啊，不就这么简单吗
-There is no democracy and the rule of law choice at all, isn’t it that simple?
+**新闻来源：**[**全球供应链大混乱 罐头商会忧物价续升：豆豉鲮鱼50蚊都买唔到**](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/691451/%E5%85%A8%E7%90%83%E4%BE%9B%E6%87%89%E9%8F%88%E5%A4%A7%E6%B7%B7%E4%BA%82-%E7%BD%90%E9%A0%AD%E5%95%86%E6%9C%83%E6%86%82%E7%89%A9%E5%83%B9%E7%BA%8C%E5%8D%87-%E8%B1%86%E8%B1%89%E9%AF%AA%E9%AD%9A50%E8%9A%8A%E9%83%BD%E8%B2%B7%E5%94%94%E5%88%B0)
 
-再一个就是继承人，谁说了算的问题
-The other one is the heir, the question of who has the power
+（本文只代表个人观点，与Gnews网站无关）
 
-没有想的不可能跟任何人讨论，不可能任何讨论
-Impossible to discuss with anyone, impossible to discuss at all
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 /老黑*
 
-一定是习说了算，那谁要想试图想跟他讨论一定会被消灭
-Xi must have the final words, then anyone who tries to discuss with him will be wiped out
-
-那消灭的方式是什么，
-What is the way to eliminate it?
-
-最好的方式对中国人很幸运的是毛泽东当年发动的文化大革命
-The best way for the Chinese is lucky to be the Cultural Revolution initiated by Mao Zedong.
-
-最坏的方式就是斯大林的时代的到来
-The worst way is the arrival of Stalin’s era in China
-
-* * *
-
-Date:10/23/2021
-原视频标题:中国的未来都在由习一人决定
-China’s future is determined by Xi alone
-原视频日期：2021/10/22
-原视频接:[https://twitter.com/se1y7cblljselva/status/1451901265026318341?s=24](https://twitter.com/se1y7cblljselva/status/1451901265026318341?s=24)
-任务编号：KC193（2648）
-视频时间段 : 0:00-1:01
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)

@@ -2,56 +2,96 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“马云”（十二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1616228/)
+## 共产党绑架马云在海外抬高股价，公开欺骗全世界这是国家级刑事犯罪
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1616241/)
 
-#### **整理：BENJ1**
-**编辑：Kelly**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2625.png)
+[https://gtv.org/video/id=617625c5247c5a3f908face8](https://gtv.org/video/id=617625c5247c5a3f908face8)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/f66314a7-104c-42cd-82cc-6e72684fdc44.jpg)图片来源：雅典娜设计组（精灵蓝）
+**郭文贵
+Miles Guo**
 
+让马云到西班牙在绑架状态的情况下，去处理自己的物业和资产及游艇
+Jack Ma went to Spain under the condition of kidnapping and forced to deal with his own property, assets and yachts
 
-**往期回顾：**
-[文·贵天成——文贵先生谈“马云”（一）](https://gnews.org/zh-hans/1611703/)
-[文·贵天成——文贵先生谈“马云”（二）](https://gnews.org/zh-hans/1611834/)
-[文·贵天成——文贵先生谈“马云”（三）](https://gnews.org/zh-hans/1611836/)
-[文·贵天成——文贵先生谈“马云”（四）](https://gnews.org/zh-hans/1611880/)
-[文·贵天成——文贵先生谈“马云”（五）](https://gnews.org/zh-hans/1612653/)
-[文·贵天成——文贵先生谈“马云”（六）](https://gnews.org/zh-hans/1613697/)
-[文·贵天成——文贵先生谈“马云”（七）](https://gnews.org/zh-hans/1613780/)
-[文·贵天成——文贵先生谈“马云”（八）](https://gnews.org/zh-hans/1613780/)
-[文·贵天成——文贵先生谈“马云”（九）](https://gnews.org/zh-hans/1614200/)
-[文·贵天成——文贵先生谈“马云”（十）](https://gnews.org/zh-hans/1614334/)
-[文·贵天成——文贵先生谈“马云”（十一）](https://gnews.org/zh-hans/1616205/)
+同时放出这个信息，是为了抬高整个阿里巴巴上市的股价
+At the same time, this message is sent out to hype the stock price up of the entire Alibaba listing
 
-**郭文贵先生2020****年11****月7****日直播第一段：**
+抬高之后，共产党让马云马上将自己代持（的）和自己的股票出手
+After hyping the price up, the Communist Party will force Jack Ma to immediately sell his holding stocks and his own stocks
 
-马云他就是世界上真正最大的骗子，他的未来被国际审判，被中国人审判，这已经不容怀疑。他的结局比肖建华、比安邦还会惨，因为他是一个国际上的政治、经济，以及是一个利用大数据违法犯罪、换取和盗国贼交易的这么一个红色的商人。他对世界人民的伤害、他对中国人民的伤害，他对所有人的伤害，远远超出了一个所谓商业家的价值。我在以前的视频中说过，在资本主义社会里边儿，真正的有价值的、给社会带来文明的，那是叫企业家，那是有创造性的。那么商人就是膨胀剂，他只是个膨胀作用，增加了流通而已。马云就是一个出色的商人，但是他出色商人的背后，实际上是与政治勾结、盗取别人隐私，助长盗国贼统治和压迫14亿人民，甚至是影响全世界的安全为代价的。结果，马云现在所做的事非常简单。从他参与的各种大数据和他所有的蚂蚁金服和阿里巴巴，和在世界上和这些政治头头们、领导们联络，他在执行着中国以商养情、以商统西、同时以商掩盖整个情报系统的这个目的。这是他马云真正的身份。
+这是公开的, 共产党国家级的，操纵股市刑事诈骗
+This is public, communist party state-level, and criminal fraud manipulating the stock market
 
-而且马云运用这些身份获得了中国政治上的保护，同时在政治上又得到了输送利益的各个利益集团(所谓中国法律上)的认可。马云一切都是为了自己的利益和安全，他下边有着大数据库以及蚂蚁金服——这样具有侵略性的金融、情报和大数据，是对西方和全世界的统治和控制，这个渗透对西方的破坏力是无法想象。接下来，马云的事情将成为全世界关注的焦点。随着事情的发展，大家会真正地看到他们这些人会成为全世界人人喊打的过街老鼠！一切都是刚刚开始，马云的野心不会得逞。咱们拭目以待，谢谢！
+记住啊，所有全世界的金融机构，记住郭文贵今天说的话
+Remember, this is to all financial institutions in the world, remember what Miles Guo said today
 
-**郭文贵先生2020****年11****月7****日直播第二段：**
+10月20号，中国共产党和马云在绑架马云（全家）28人和他的21个高管的全部家人
+On October 20th, the Chinese Communist Party had kidnapped Jack Ma’s 28 family members and all the family members of his 21 executives
 
-我早就说了，2018年就说了，最后的马云，一定比王健死得还惨。王健死了，他老婆孩子现在还活着呢，苟且偷生。马云死的时候，他老婆孩子都活不了，因为共产党一定让他灭口，一定给他灭口的。因为马云他本人，他一定有侥幸心理。比如我到那个位置，我也可能有侥幸心理，好像这家伙全世界联合国都给我身份啦，我还不安全吗？人类上最可悲的就是侥幸。别拿自己太当回事儿，千万别侥幸。这一百多斤的物理上存在的肉体，是很脆弱的。
+20个中国的警察和中纪委政府官员，包括人民银行，
+There’re 20 Chinese polices and the Central Commission for Discipline Inspection, including the People’s Bank of China
 
-马云以为那钱，能使鬼推磨，也能使磨推鬼。钱有时候真的管万能，它不是什么都能，它不是亿能，绝对不是什么都可能。最后，蚂蚁金服到谁家，谁灭马云，灭马云，把全家董事全灭掉，一个都不给他留。我在2018说了。相比同样的问题，叶简明、安邦吴小晖、王健林。最早2017年我就说过，这都得进去，都得破产。王健林还出国么，咋不出国了啊？——你们都是共产党待宰的羔羊，只是方式、形式、时间，它杀你全家(还是)杀你个人。还有大家要想到，为什么许家印现在让他活着啊？许家印啥都会没有，跟马云一样惨，只是时间的问题。
+20个人里边，7个是来自警察特警，另外的来自中纪委
+Among the 20 kidnappers, 7 are from special police forces, and the others are from the Central Commission for Discipline Inspection
 
-**郭文贵先生2020****年11****月8****日直播：**
+还有来自中国所有的人民银行，这些国家政府高官们
+and from all the People’s Bank of China, these senior government officials
 
-蚂蚁金服是谁，是马云骗国内的那些老百姓。他代表的就是，蚂蚁金服是给那些政治局老常委分配的利益，这个陆金所，这个平安集团是给现任常委，这几个大佬分的利益。但是你别忘了现任常委吃不饱，他想把宇宙太阳都吃下来，他觉得蚂蚁金服我也得弄。蚂蚁金服和安邦都弄啥，安邦到美国来的任务，跟共产党承诺的，是要有一部分的共和党的人，他是要拿下的，包括川普总统周边的人。陆金所是干嘛的，就是拿下美国老的那些总统家族，这个你们都明白了，他们都有分配的，叶简明干副总统拜登。
+隐藏公务身份到西班牙去操作海外媒体，炒作抬高阿里巴巴的股价
+were hiding their official status and went to Spain to manipulate overseas media, hype up Alibaba’s share price
 
-**郭文贵先生2021****年1****月20****日直播：**
+这是公开的国际的刑事操作和犯罪，这20个人，我知道每个人的名字
+This is an openly international criminal operation and crime, and I know everyone’s name of these 20 special forces
 
-我们过去几年唤醒了，包括习王政府（的恶政）唤醒了党内的人士、唤醒了中国人民、唤醒了中国的企业家。你看看马云又出来表演去了，他最终跟王健一样、跟陈峰一样，死无葬身之地。最可怕的，人在死之前，还让你表演表演，还不如王健呢，给一下子就拉倒了。中共历史上多少人？叶简明出来表演好几次呢，直接扔河里面去了，是吧？所以说兄弟姐妹们，现在不要看任何人在台上闹得欢，最后上天、万佛万神一定给他拉清单。正义必胜，是不是你坚信的？人类是不是有主人？有没有万佛万神？这是你是不是你坚信的？如果是你坚信的，不要看这一时一点一事，正义正在向我们走来，谁都挡不住！而且，它有助于我们灭共运动。
+我知道每个人的身份，我知道他们每个人的家庭背景
+I know the identity of each of them, I know the family background of each of them
 
-**郭文贵先生2021****年1****月31****日直播：**
+他们的家人也是被绑架的，怕他们跟马云串通
+Their family members were also kidnapped to be hostages because officials were afraid that they would collude with Jack Ma
 
-共产党它就耍流氓找出一个没毛儿的逗逗啊什么的一帮人来嘚瑟，胡扯呢，你以为你是共产党呢。杀了赖小民、杀了叶简明、抓了马云，让马云坐在铁椅子上，然后戴上脚镣手铐让马云三天不睡觉，然后把两万亿的蚂蚁金服的钱捐出去，然后叫马云把海外的所有房子、房产、股票全都说清楚，都签下白纸黑字，然后你去拿去。
+但是我可以负责任的，今天第三个告诉大家，
+But I can be responsible to say, I will tell you today, the third one is
 
-***发布：小红帽***
+这20个绑架马云的所有来自中国各部门的，让马云在海外处置资产的人
+these 20 people who kidnapped Jack Ma came from various departments in China and will force Jack Ma dispose of assets overseas
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+几乎一半已经被马云给贿赂了，如果马云失控，
+Almost half of them have been bribed by Jack Ma if Jack Ma loses control
+
+那就是马云被这20个中收买的12个人给放出来了
+That is if Jack Ma was released by the 12 out of 20 people who was bought them
+
+如果马云被杀，那就是这20个人走的无间道
+If Jack Ma is killed, that is, there are undercover agents of the Jiang family in these 20 people
+
+代表江家把马云做掉，如果这两样都没发生，
+On behalf of the Jiang family for killing Jack Ma, if these two thing won’t happen
+
+股价大家记住涨完以后，马云的股票一定会被卖，
+everyone remember that after the stock price arises, Jack Ma’s stock will definitely be sold
+
+会大量的抛售, 诈骗成功，
+There will be a lot of selling out, and the fraud will be successful
+
+但最后的结局，他还是回到那两个要么被杀，要么送到监狱去
+But in the final outcome, he still returns to those two ends, and was either killed or sent to prison
+
+* * *
+
+Date:10/23/2021
+原视频标题:共产党绑架马云在海外抬高股价，公开欺骗全世界这是国家级刑事犯罪
+The Communist Party kidnapped Jack Ma in order to hype overseas stock price up and openly deceive the world, this is a national criminal offense
+原视频日期：2021/20/17
+原视频接:[https://twitter.com/se1y7cblljselva/status/1451147347019190273?s=24](https://twitter.com/se1y7cblljselva/status/1451147347019190273?s=24)
+任务编号：KC192（2625）
+视频时间段 : 0:00-2:08
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

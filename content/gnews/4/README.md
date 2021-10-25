@@ -2,25 +2,63 @@
 ---
 
 
-## 秘翻在线：证据确凿，参议员兰德·保罗要求拜登政府解雇福奇
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1616245/)
+## 中国的未来都在由习一人决定
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1616270/)
 
-####  撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2648.png)
+[https://gtv.org/video/id=6176262e247c5a3f908fad16](https://gtv.org/video/id=6176262e247c5a3f908fad16)
 
-#### 责编：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-449.png)图片来源：纽约邮报
-10月24日，《新闻极限》和《国会山报》分别针对参议员兰德·保罗(Rand Paul)要求拜登政府解雇福奇的新闻进行了报道。
+**郭文贵
+Miles Guo**
 
-根据报道，周日，保罗议员接受了HBO 和Axios的联合采访，他说：“即使（不考虑）其他原因，仅仅是因为缺乏判断力，拜登政府就应该解雇福奇。福奇可能永远不会承认撒谎，他将继续散布谣言，并试图绕过真相，掩盖真相。”
+跟你们讲今天谈这个六中全会的时候，
+today when we talk about the Sixth Plenary Session of the Central Committee of the Communist Party of China
 
-在呼吁解雇福奇之前，美国国立卫生研究院（NIH）的首席副院长劳伦斯·塔巴克（Lawrence Tabak）上周给众议院能源和商业委员会的排名成员凯西·麦克莫里斯·罗杰斯（Cathy McMorris Rodgers）议员写了一封信，信中披露了有关NIH给彼得·达萨克（Peter Dasaka）的生态健康联盟拨款的新细节，指该联盟在武汉病毒学研究所进行了一项病毒增强性实验。
+六中全会是中国的未来的是北朝鲜化
+The Sixth Plenary Session of the Central Committee is the future of China’s North Koreanization
 
-根据这封信，未公布的数据显示，感染了一种蝙蝠冠状病毒的实验室小鼠比感染了另一种蝙蝠冠状病毒的小鼠更容易生病。
+还是走向国际化，那么既然经济决定了这个以后
+or still going internationalization, so now that the economy determines it in the future
 
-对此，保罗说：“在信中，他们承认，是的，这些病毒确实获得了功能增强，它们变得更加危险。所以他们创造了一种自然界中不存在的病毒，使其变得更加危险，这就是病毒功能性增强。现在他们试图通过说这是一个意想不到的结果来为其辩护，我不确定我是否相信这一点。想想看，你把一个未知的病毒，与另一个病毒结合起来，你就得到了一个超级病毒。你不知道它是获得了功能还是失去了功能，这就是实验的内容，但我不知道谁能争辩说这不是获得（增强）功能的研究”。
+那就是北朝鲜的金氏家族权力化，还是所谓的共产党过去的九龙治水化
+That is just like the power of the Kim family in North Korea, or the so-called Communist Party’s “Nine Dragons Rule the Water” in the past
 
-**新闻来源**
+不存在民主法治啊，不就这么简单吗
+There is no democracy and the rule of law choice at all, isn’t it that simple?
 
-[Rand Paul calls for Fauci’s firing over ‘lack of judgment’](https://thehill.com/homenews/senate/578239-rand-paul-calls-for-faucis-firing-over-lack-of-judgment)
+再一个就是继承人，谁说了算的问题
+The other one is the heir, the question of who has the power
 
-[Sen. Paul Calls for Fauci’s Firing: Americans ‘Very Disturbed at How Much He’s Lied’](https://www.newsmax.com/politics/anthony-fauci-rand-paul-gain-of-function/2021/10/24/id/1041785/)
+没有想的不可能跟任何人讨论，不可能任何讨论
+Impossible to discuss with anyone, impossible to discuss at all
+
+一定是习说了算，那谁要想试图想跟他讨论一定会被消灭
+Xi must have the final words, then anyone who tries to discuss with him will be wiped out
+
+那消灭的方式是什么，
+What is the way to eliminate it?
+
+最好的方式对中国人很幸运的是毛泽东当年发动的文化大革命
+The best way for the Chinese is lucky to be the Cultural Revolution initiated by Mao Zedong.
+
+最坏的方式就是斯大林的时代的到来
+The worst way is the arrival of Stalin’s era in China
+
+* * *
+
+Date:10/23/2021
+原视频标题:中国的未来都在由习一人决定
+China’s future is determined by Xi alone
+原视频日期：2021/10/22
+原视频接:[https://twitter.com/se1y7cblljselva/status/1451901265026318341?s=24](https://twitter.com/se1y7cblljselva/status/1451901265026318341?s=24)
+任务编号：KC193（2648）
+视频时间段 : 0:00-1:01
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

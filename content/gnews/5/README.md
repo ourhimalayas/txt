@@ -2,92 +2,181 @@
 ---
 
 
-## 共产党绑架马云在海外抬高股价，公开欺骗全世界这是国家级刑事犯罪
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1616241/)
+## 新中国联邦拯救中国企业家的两个条件
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1616263/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2625.png)
-[https://gtv.org/video/id=617625c5247c5a3f908face8](https://gtv.org/video/id=617625c5247c5a3f908face8)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2626.png)
+[https://gtv.org/video/id=6176251c247c5a3f908facad](https://gtv.org/video/id=6176251c247c5a3f908facad)
 
 **郭文贵
 Miles Guo**
 
-让马云到西班牙在绑架状态的情况下，去处理自己的物业和资产及游艇
-Jack Ma went to Spain under the condition of kidnapping and forced to deal with his own property, assets and yachts
+我可以告诉中国所有的企业家
+I can tell all entrepreneurs in China
 
-同时放出这个信息，是为了抬高整个阿里巴巴上市的股价
-At the same time, this message is sent out to hype the stock price up of the entire Alibaba listing
+爆料革命新中国联邦
+The whistleblowers and the New Federal States of China
 
-抬高之后，共产党让马云马上将自己代持（的）和自己的股票出手
-After hyping the price up, the Communist Party will force Jack Ma to immediately sell his holding stocks and his own stocks
+可以协调全世界超过80个国家
+can coordinate with more than 80 countries around the world
 
-这是公开的, 共产党国家级的，操纵股市刑事诈骗
-This is public, communist party state-level, and criminal fraud manipulating the stock market
+来给你们提供方便
+to provide you convenience
 
-记住啊，所有全世界的金融机构，记住郭文贵今天说的话
-Remember, this is to all financial institutions in the world, remember what Miles Guo said today
+我们可以保证你们私人企业家的家人
+and we can guarantee that all private entrepreneurs’ families
 
-10月20号，中国共产党和马云在绑架马云（全家）28人和他的21个高管的全部家人
-On October 20th, the Chinese Communist Party had kidnapped Jack Ma’s 28 family members and all the family members of his 21 executives
+还有你们到了这些国家（后）
+and you when arrive to these countries
 
-20个中国的警察和中纪委政府官员，包括人民银行，
-There’re 20 Chinese polices and the Central Commission for Discipline Inspection, including the People’s Bank of China
+我们给你提供所有的合法的
+we will provide you with all legal assistance
 
-20个人里边，7个是来自警察特警，另外的来自中纪委
-Among the 20 kidnappers, 7 are from special police forces, and the others are from the Central Commission for Discipline Inspection
+政府和法律界的帮助
+from the government and the legal profession
+我们就要求你两个条件
+We only ask you to comply with two requirements:
 
-还有来自中国所有的人民银行，这些国家政府高官们
-and from all the People’s Bank of China, these senior government officials
+第一个和当地政府合作
+The first one is to cooperate with the local government
 
-隐藏公务身份到西班牙去操作海外媒体，炒作抬高阿里巴巴的股价
-were hiding their official status and went to Spain to manipulate overseas media, hype up Alibaba’s share price
+揭穿、揭发、审判
+to reveal, expose, and judge
 
-这是公开的国际的刑事操作和犯罪，这20个人，我知道每个人的名字
-This is an openly international criminal operation and crime, and I know everyone’s name of these 20 special forces
+共产党在西方的经济超限战、技术超限战
+the Communist Party’s unrestricted warfare in the Western on economy, technology
 
-我知道每个人的身份，我知道他们每个人的家庭背景
-I know the identity of each of them, I know the family background of each of them
+政治超限战、军事超限战、情报超限战
+politics, military, and intel
 
-他们的家人也是被绑架的，怕他们跟马云串通
-Their family members were also kidnapped to be hostages because officials were afraid that they would collude with Jack Ma
+推翻共产党，这是第一个
+and to overthrow the Communist Party. This is the first one (requirement)
 
-但是我可以负责任的，今天第三个告诉大家，
-But I can be responsible to say, I will tell you today, the third one is
+第二个
+Secondly,
 
-这20个绑架马云的所有来自中国各部门的，让马云在海外处置资产的人
-these 20 people who kidnapped Jack Ma came from various departments in China and will force Jack Ma dispose of assets overseas
+我们让你配合的
+we will ask you to cooperate
 
-几乎一半已经被马云给贿赂了，如果马云失控，
-Almost half of them have been bribed by Jack Ma if Jack Ma loses control
+只要是你们能和我们合作的
+as long as you can cooperate with us
 
-那就是马云被这20个中收买的12个人给放出来了
-That is if Jack Ma was released by the 12 out of 20 people who was bought them
+你们必须要坚定地、坚决地
+you must firmly and resolutely
 
-如果马云被杀，那就是这20个人走的无间道
-If Jack Ma is killed, that is, there are undercover agents of the Jiang family in these 20 people
+承认《新中国联邦宣言》
+recognize the “The New Federal State of China Declaration”
 
-代表江家把马云做掉，如果这两样都没发生，
-On behalf of the Jiang family for killing Jack Ma, if these two thing won’t happen
+我们给你一切可能的帮助
+We will provide you all possible help
 
-股价大家记住涨完以后，马云的股票一定会被卖，
-everyone remember that after the stock price arises, Jack Ma’s stock will definitely be sold
+信不信由你
+believe it or not, it’s up to you
 
-会大量的抛售, 诈骗成功，
-There will be a lot of selling out, and the fraud will be successful
+我不相信除了新中国联邦
+I believe no one else but the New Federal State of China
 
-但最后的结局，他还是回到那两个要么被杀，要么送到监狱去
-But in the final outcome, he still returns to those two ends, and was either killed or sent to prison
+还有任何人能给你提供这个帮助的
+can provide you with this help
+
+我可以告诉你们
+I can tell you that
+
+不信你们可以试试
+you can try if you don’t believe it
+
+在过去的半年内，我想你们都知道
+I think you all know that in the past six months
+
+新中国联邦救了多少人
+how many people have been saved by the New Federal State of China
+
+我们即使到北京城
+We can even go to Beijing
+
+除了中南坑我们进不去
+except the Zhongnanhai(the Chinese version of US White House)
+
+救人绝对做不到啊
+we are absolutely not able to take people out from there
+
+在天安门上我都把你救出来
+But we are able to get you out although you stuck in the Tiananmen Square
+
+你在天安门城楼上
+at the Tiananmen tower
+
+我都能把你救出来
+We still can save you
+
+在全世界上没有一个地方我们做不到的
+There is nowhere in the world that we cannot do that
+
+只要想救你
+as long as we are willing to save you
+
+如果你们需要我们拯救你
+If you need us to save you
+
+你必须前提答应这个（指以上两个条件）
+you must agree to this (referring to the above two conditions)
+
+我们不要你一分钱
+We don’t need a penny from you
+
+我们不要你做任何贡献
+we don’t need you to make any contributions
+
+更不会让你跟我们双修
+we won’t need you to have sex with us
+
+（调侃：这马云这小个双修也不行啊，呵）
+(teasing Jack Ma’s sexual life)
+
+我们只要求你和当地的政府合作
+We only ask you to cooperate with the local government
+
+因为(这是）我们救你的条件
+because (this) is the requirement that we will save you
+
+还有承认新中国联邦，灭共
+as well as to recognize the New Federal State of China and destroy the Communist Party
+
+就这么简单
+It’s that simple
+
+我们给你们提供一个正常人的生活的物质条件
+We will provide you with material conditions for living as people in general
+
+你想过什么豪华生活
+You want to live a luxurious life
+
+那什么私人飞机
+with that private jet
+
+那不可能
+It is impossible
+
+正常人的生活
+It will be a normal life like other people
+
+保证你安全
+ensuring your safety
+
+这就是今天直播重点中之重
+This is the top priority of today’s live broadcast
 
 * * *
 
-Date:10/23/2021
-原视频标题:共产党绑架马云在海外抬高股价，公开欺骗全世界这是国家级刑事犯罪
-The Communist Party kidnapped Jack Ma in order to hype overseas stock price up and openly deceive the world, this is a national criminal offense
-原视频日期：2021/20/17
-原视频接:[https://twitter.com/se1y7cblljselva/status/1451147347019190273?s=24](https://twitter.com/se1y7cblljselva/status/1451147347019190273?s=24)
-任务编号：KC192（2625）
-视频时间段 : 0:00-2:08
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
+Date: 10/21/2021
+原视频标题: 新中国联邦拯救中国企业家的两个条件
+The two Conditions that the New Federal State of China Rescues Chinese Entrepreneurs
+原视频日期：2021/10/20
+原视频链接: [https://twitter.com/se1y7cblljselva/status/1451146697661292551?s=24](https://twitter.com/se1y7cblljselva/status/1451146697661292551?s=24)
+任务编号：KC191（2626）
+视频时间段 : 0:00-2:09
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
 翻译终校：洛杉矶盘古农场 – Mike Li
 字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
