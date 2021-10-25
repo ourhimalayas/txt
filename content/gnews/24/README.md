@@ -2,27 +2,31 @@
 ---
 
 
-## 美国海军部长称日美同盟“特别重要”，意在回应中俄舰队联合巡航
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1616976/)
+## 盖特用户逼近300万，已经成为真正的全球媒体平台
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1617051/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/6-10.png)
-[图片来源](https://www.chinatimes.com/realtimenews/20211021000632-260407?chdtv)
+作者：纽约香草山农场 – Delilah小胖
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月24日，盖特首席执行官杰森·米勒先生在接受澳洲媒体采访时说，盖特用户不会因为在政治问题上发表意见而被“置于数字监狱”。
 
-日本共同社10月25日电，正在日本访问的美国海军部长卡洛斯·德尔·托罗25日举行了与日美媒体的电话记者会。他强调“维持印度太平洋地区的和平与安全，对两国而言是共同目标”，要实现日美倡导的“自由开放的印度太平洋”，“日美同盟将发挥特别重要的作用”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-23.jpeg)
 
-关于中共和俄罗斯对“自由开放的印度太平洋”表示关切，德尔·托罗指出：“所有国家都应遵守国际法律和秩序。”关于中俄共10艘海军舰艇穿过津轻海峡的提问，他没有直接回答。
+米勒先生表示，盖特自今年7月4日推出以来“像火箭一样起飞”，已经拥有近300万用户。其中美国本土客户占47%，美国以外的客户占53%，因此，盖特成为真正的全球媒体平台。
 
-此外，德尔·托罗还表示重视日美澳印的“四边机制”（Quad）。
+(本文仅代表作者观点)
 
-德尔·托罗生于古巴哈瓦那，在美国纽约市长大，毕业于美国海军学院。他历任导弹驱逐舰舰长和国防部干部等，今年8月就任海军部长。
+参考链接：[New free speech app GETTR won’t put users in ‘digital jail’ for speaking their minds](https://www.skynews.com.au/opinion/outsiders/new-free-speech-app-gettr-wont-put-users-in-digital-jail-for-speaking-their-minds/video/bb3cc4507e39c15cce065758348f6fc3)
 
-面对近日中共联合俄罗斯舰队巡航以敲打日台的举动，美国海军部长及时明确地对日美同盟关系和作用进行表态，回应中俄的意味十分明显。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-信息来源：[美国海军部长称日美同盟“特别重要”](https://china.kyodonews.net/news/2021/10/548dd0a53e73.html)
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：谐趣园
 
-免责声明：文章仅代表作者本人观点，与GNEWS无关
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/25/2021 8:34 PM (UTC)`
+
+10/25/2021 Miles Guo’s GETTR: Xi Jinping is secretly visiting the five countries including Qatar. What does that mean? It indicates that he has taken down Wang Qishan, Meng Jianzhu, Alvin Jiang, and Jack Ma in the Communist China. The point is, Xi visited Qatar first to make secret deals in addition to doing a show for the neighboring countries<br/><br/>10/25/2021 文贵盖特：习近平秘访卡特尔等五国，这说明了什么？说明习已在国内干倒了王岐山、孟建柱、江志成和马云；重点是习首站访问卡塔尔，除了演戏给周边国家看，还有私下勾兑
+![img](https://media.gettr.com/group26/getter/2021/10/25/20/34/4d3586ef-d641-cdfe-b6c8-15f4d3dc237d/out.jpg)
+
+---
+
 `@miles 10/25/2021 4:15 PM (UTC)`
 
 10月25号：MPs of the EU held a conference to oppose the vaccine mandate in the Union<br/>欧盟的议员们开会反对在欧盟内推行强制接种疫苗政策
@@ -286,13 +293,6 @@ Background Information on Yunhong Group (2) 运鸿集团的背景 （二）
 
 Background information on Yunhong Group（1） 运鸿集团的背景（ 一） 
 ![img](https://media.gettr.com/group13/getter/2021/10/22/17/33/1c7decac-fe7a-0442-e045-f1c98043ce58/4eed4c33bcfb751c04bdb5fabad1f8b8.jpg)
-
----
-
-`@miles 10/22/2021 5:17 PM (UTC)`
-
-Securities And Exchange Commission Form 8-K; Yunhong International (“Yunhong”) intends to hold presentations for certain of its shareholders, as well as other investors who may be interested in purchasing Yunhong’s securities in connection with Yunhong’s proposed business combination with Giga Energy Inc. (“Giga Energy”), as described in this report.  In the document, Bruno Wu is the representative, and Li Yubao is the Chariman of the Yunhong Internationl. Patrick Orlando is the CEO of Yunhong International.      如本报告所述，运鸿国际(以下简称“运鸿”)打算为其某些股东以及其他可能有兴趣购买运鸿与千兆能源公司(以下简称“千兆能源”)拟议业务合并相关的证券的投资者举行陈述<br/><br/>吴征作为代表签署的文件，李玉保为运鸿国际董事长。帕特里克·奥兰多是运鸿国际的首席执行官
-![img](https://media.gettr.com/group12/getter/2021/10/22/17/17/bf0c4432-3212-5ec8-64b9-afd78fbe64dd/af0fb148f68ab0a576a8c112e77aeeca.jpg)
 
 ---
 

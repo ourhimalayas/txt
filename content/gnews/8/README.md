@@ -2,46 +2,33 @@
 ---
 
 
-## 意大利疫苗接种绿色通行证和梵蒂冈工人的新冠规则
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1617365/)
+## 郭先生披露：中共设金融陷阱谋害川普
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1617430/)
 
-作者：Rebelnews
-翻译：HimaCoby
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Italy.png)
+10月24日，郭文贵先生在GTV大直播中披露，中共对美国前总统川普设置金融陷阱。
 
-在最近的埃兹拉黎凡特秀节目中，埃兹拉与意大利罗马大纪元时报的记者布雷迪尔进行了交谈。
+据郭先生爆料，中共在美代理人吴征用SPAC公司以2.96亿美元购买川普总统的IP，并在很短的时间内公布上市。上市后SPAC从一开始的一千手到后来的六百万手的交易几乎都是在11家基金中转来转去。不但这种内部交易、操纵市场的行为意味着川普总统100%会受到SEC调查，更重要的是这11家基金中的9家都是中共的基金。
 
-以下是布雷关于如何为意大利人推出冠状病毒限制的一些话：
+郭先生还披露，SPAC公司上市后因为这11家基金的大买大进，使其股价最高达到174美元/股。支持川普总统的MAGA组织还有一些投机的人看到股票高涨时大量跟进，但没想到的是股票涨到174美元/股后，瞬间回到94美元/股，而在周五关闭市场时更是回到了45美元/股。这期间中共的几家基金则用最短的时间洗走了这些人的钱，高达50亿到80亿美元。
 
-“如果你说，梵蒂冈爆发了疫情并在那里发生了潜在的诉讼……你知道，梵蒂冈必须处理很多这些，它必须领导作为宗教领袖帶领世界。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10.25_1.jpg)图片来自于网络
 
-“教皇方济各在疫苗问题上一直很直接，他认为接种疫苗是为了共同利益，他没有声称，或者他没有支持梵蒂冈本身为工人强制接种疫苗。”
+郭先生揭露，中共设置金融陷阱的第一个核心目的是为了阻止川普总统加入盖特；第二个目的是让川普总统被刑事调查，从而使川普终生无法再参与政治选举；第三个目的则是利用这个金融陷进干掉大量的川普总统的跟随者。
 
-“你可以申请豁免，这在梵蒂冈正在发生，但在大多数情况下，在梵蒂冈工作或为梵蒂冈工作的人都接种了疫苗。”
+郭先生分析说，如果川普加入盖特就意味着他一定会赢得2022年的中期选举，成为共和党在参众两院的发言人。而且川普一旦赢得了2022，那2024年的总统大选唾手可得。因此，中共要设计阻止川普总统加入盖特甚至无法参选。同时还计划把川普多年的跟随者、现任盖特CEO的Jason Millerx先生也从盖特移开。
 
-“但在意大利，真正的问题是……对于许多拥有全民医疗保健的国家来说，这是一个非常大的问题，不像在美国，出于医疗目的你仍然有一些隐私，而在欧洲你没有。当你有全民医疗保健。政府支付你的医疗保健费用，并反过来访问你的记录。所以这就是政府一直在监督疫苗的方式……”
+郭先生预测，在周一开盘到之后的两三周，SPAC股票可能回到10-20美金之间，最后跌破10美金。这中间会有人往上抬，担抬上去的结果是再掉下去。这个时候川普总统就会发现他手里的钱烫手了，也会发现其中的法律问题。而民主党会在一个月以后蓄集能量全面行动，准备在2022中期选举中充分地利用吴征和共产党送来的这个武器，而共和党内部的反川者也会充分的利用这个武器。
 
-这只是埃兹拉黎凡特秀的摘录，请点击视频了解更多资讯。
+郭先生补充说，到时美国两党一定会因此产生激烈的斗争，但这正是中国共产党最想看到的局面。
 
+[10/24/2021 文贵直播：三个原因为什么中共给川普设金融陷阱](https://www.gettr.com/post/pf4ihi2d38)
 
+[10/24/2021 Miles Guo: The stock price of DWAC was going up and down at the fastest speed in the shortest period of time, because of the CCP’s funds doing insider trading and manipulating the stock market. The MAGA supporters and blue collars have been swindled, and the amount of money laundered away is between 5 and 8 billion USD](https://www.gettr.com/post/pf4x28ae57)
 
-來源：[https://www.rebelnews.com/italy\_vaccination\_green\_pass\_covid\_rules\_for\_vatican\_workers](https://www.rebelnews.com/italy_vaccination_green_pass_covid_rules_for_vatican_workers)
+[10/24/2021 文贵直播：川普总统的政敌将给他制造麻烦，而蓬佩奥会更有优势；不论你买了多少DWAC股票，只要它的股价下跌，你就可以起诉它，且大概率能得到大量赔偿](https://www.gettr.com/post/pf47g69055)
 
-（文章仅代表作者个人观点）
+* * *
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+*编辑：文顺 校对：Ranting 发布：Ranting*
