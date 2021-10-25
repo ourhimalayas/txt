@@ -2,39 +2,44 @@
 ---
 
 
-## 全球各地通过罢工和法律手段反对疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1617069/)
+## 苹果应中国政府要求下架圣经相关应用程序
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1617258/)
 
-作者：美东香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月22日下午，在美国通用电气公司纽约州总部，超过两百名员工因疫苗强制令举行短暂罢工，并游行抗议。通用电气被要求必须遵守总统行政令，即要求所有美国员工在12月8日前全面接种中共新冠病毒疫苗，否则，他们将失去工作。 10月21日，通用电气南卡罗来纳州分公司，也有数十名员工，在公司举行了同样的抗议活动。许多员工表示，他们希望能自由决定是否要接种疫苗。 据悉，工会计划代表七百余名通用电气的员工，与公司领导层举行会议，希望双方都能提出解决方案。
+作者：Abhishek Pratap
+翻译：Himasally
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-16.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/apple.jpeg)
 
-10月22日，美国亚利桑那州申请临时限制令，用以阻止联邦政府的疫苗强制令。美国亚利桑那州总检察长马克-布尔诺维奇发表声明称，疫苗强制令是美国历史上，对个人自由、联邦制，以及权力分立的最大侵犯之一。在一份与临时限制令同时提交的修正申诉中写道，疫苗强制令侵犯了工人的宪法权利，剥夺他们拒绝疫苗的权利。
+宗教实体指责苹果与中国共产党政府的宗教迫害合作，删除了在 iPhone 和 iPad 应用平台苹果商店上向中国用户提供的相关圣经应用程序。
 
-10月23日，在澳大利亚维多利亚州，有112名不同职业的澳大利亚公民，向维州最高法院提交诉讼，指控首席卫生官布雷特·萨顿，以及其他卫生官僚，违反了维州的《人权宪章》——对许多行业强制执行疫苗接种令，其中包括医疗、教育、运输和建筑等行业。按照《维州人权宪章》，卫生部的这一政策是以非法形式，侵犯了维州人民的基本人权。
+根据苹果审查简介, “苹果审查” 意译为“Apple Censorship”），它监控世界各地苹果商店中应用程序的审查，该公司提取了有关圣经和穆斯林圣书古兰经的应用程序。
 
-(本文仅代表作者观点)
+“在苹果，所有的宗教都是一样的：圣经和古兰经中的应用程序最近都从中文应用程序商店下架了，”10 月 12 日的帖子道。
 
-参考链接：
-1）[https://gettr.com/post/pey4fe5b7c](https://gettr.com/post/pey4fe5b7c)
-2）[GE workers protest vaccine mandate](https://wnyt.com/capital-region-comeback/ge-general-electric-workers-protest-vaccine-mandate-coronavirus-covid-19-schenectady/6277770/)
-3）[200+ GE employees, union members stage walk-out in Schenectady Friday protesting vaccine mandate](https://www.news10.com/news/local-news/200-ge-employees-union-members-stage-walk-out-in-schenectady-friday-protesting-vaccine-mandate/)
-4）[Arizona seeks temporary restraining order to stop Biden vaccine mandate](https://www.fox10phoenix.com/news/arizona-seeks-temporary-restraining-order-to-stop-biden-vaccine-mandate)
-5）[Arizona Requests Temporary Restraining Order to Halt Biden Vaccine Mandate](https://www.breitbart.com/health/2021/10/23/arizona-requests-temporary-restraining-order-to-halt-biden-vaccine-mandate/)
-6）[维多利亚州挑战疫苗强制令，112名原告加入诉讼](https://gnews.org/zh-hans/1613979/)
+该配置文件还报告说，自今年 9 月 30 日以来，至少有九个具有宗教内容的应用程序已从商店中删除。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+美国伊斯兰关系委员会（凯尔）代表爱德华·艾哈迈德·米切尔在接受基督教广播新闻采访时指责苹果配合中国政府的宗教迫害政策，并呼吁修改该决定。
 
-总编：Jack Li文阳，正义的小新
-编辑：Delilah小胖，山本不惑，Ivy001
-校正/发稿：谐趣园
+“通过遵守中国共产党的命令，从其在中国的平台上删除圣经和古兰经应用程序，苹果正在助长该国的宗教迫害，包括对维吾尔穆斯林的种族灭绝。这需要被改正，” 福尔国立主任说。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+针对R7的报道，苹果新闻办公室表示，该公司不会就此事发表评论。
+
+來源：[https://playcrazygame.com/2021/10/23/apple-drops-bible-apps-at-chinese-governments-request-news/](https://playcrazygame.com/2021/10/23/apple-drops-bible-apps-at-chinese-governments-request-news/)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
