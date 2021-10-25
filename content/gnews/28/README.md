@@ -2,17 +2,22 @@
 ---
 
 
-## 美台高官会晤，讨论台湾重返国际舞台
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1615229/)
+## 加拿大安省拟出新规定取消移民入职门槛
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1615259/)
 
-撰稿：西枫westca
+采编、撰稿：文明(添草灭共)     校对编辑：硫酸羟氯喹64
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20210402000653.jpg)图片来源：chinatimes.com
-据《南华早报》10月24日报道，美国国务院在周日发布的一份声明中说，来自美国国务院和台湾外交部“高级代表”在周五讨论了“扩大台湾在联合国和其他国际论坛上的参与， 并允许台湾“有意义的”参加联合国的计划。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/an-edited.jpg)安省劳工部长：蒙特
 
-声明说，“讨论的重点是支持台湾有意义地参与联合国事务的能力，并为解决全球挑战贡献其宝贵的专业知识，包括全球公共卫生、环境和气候变化、发展援助、技术标准和经济合作。”美国与会者重申了美国对台湾有意义地参与世界卫生组织和联合国气候变化框架公约的承诺，并讨论了如何强调台湾有能力在广泛的问题上做出贡献。
 
-在中共战狼政策四处露头，加强对台湾的政治和军事压力下，在习近平欲发布演讲、纪念中共在联合国获得席位50周年前夕，美国国务院公布这个消息，无疑是向外界显示提升美国与台湾关系的信号，令中共在欲武力侵台之际，不得不三思而后行。
+据加拿大【环球邮报】10月21日报道，安大略省政府将出台一项新法，规定符合某些行业和专业条件的移民可直接就业，并取消了以往必须具备“安省工作经验”的入职限制。
 
-**新闻来源：**[US and Taiwanese officials meet to discuss ‘meaningful’ UN role for island | South China Morning Post (scmp.com)](https://www.scmp.com/news/china/politics/article/3153515/us-and-taiwanese-officials-meet-discuss-meaningful-un-role?module=perpetual_scroll&amp;pgtype=article&amp;campaign=3153515)
+据悉，该新法规目的是为了结束安省移民就业中存在的诸多不合理现象，即合格的移民带着该省急需的工作技能，但因在短期内无法积累所需的工作时间以获得相关就业证书，而被迫从事其他领域低工资和低技能要求的工作。
+
+报道详细指出，被取消限制的30多个行业和专业包含工程师、发型师、金属板工人、水管工、教师、财务会计等。安省劳工部长蒙特表示，新法如果通过，该省劳动力持续短缺状况将有望好转。
+
+（以上内容仅代表原文信息和作者个人观点）
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://www.theglobeandmail.com/politics/article-ontario-to-remove-work-certification-barrier-for-immigrants/)
