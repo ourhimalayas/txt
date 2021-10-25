@@ -2,35 +2,19 @@
 ---
 
 
-## 澳洲漫画家发表与天安门事件对比的反疫苗漫画后失业
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1616046/)
+## 香港：国际特赦组织将关闭其办事处
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1616159/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10252.jpg)图片来自AM730
+10 月 25 日 – 国际特赦组织认输并宣布将关闭其在香港的办事处，因为中共国在去年年底对前英国殖民地实施的国家安全法对工作人员构成威胁。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/mahua.png)图片来源：Instagram
+董事会主席 Anjhula Mya Singh Bais 说：“这个勉强的决定是在香港《国家安全法》的指导下做出的，这使得该市的人权组织无法在时刻担心政府严厉报复的情况下自由工作”。
 
+国际特赦组织在香港设有两个办事处，其中一个在当地负责前英国殖民地的人权状况，另一个在东亚和东南亚以及太平洋地区开展研究活动。香港当地办事处将于 10 月 31 日关闭，地区办事处将在 2021 年底前搬迁。
 
-#### 编译：小红帽
+免责申明：本文只代表译者观点，与Gnews无关
 
-一位著名的澳大利亚漫画家表示，他在一幅新漫画中将天安门广场的抗议活动与中共病毒（Covid-19） 疫苗的强制接种规定相提并论后，失去了在墨尔本一家报社的重要职位。
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/10/25/hong-kong-amnesty-international-chiudera-i-suoi-uffici\_95fb3463-cc98-4bde-aec6-a4f1760327e0.html](https://www.ansa.it/sito/notizie/topnews/2021/10/25/hong-kong-amnesty-international-chiudera-i-suoi-uffici_95fb3463-cc98-4bde-aec6-a4f1760327e0.html)
 
-漫画家迈克尔·勒尼格（Michael Leunig）有时被称为澳大利亚“活着的国宝”，他透露，在发表了一幅批评政府强制接种疫苗的政治漫画后，他被迫离开了《时代报》（The Age）社论版的职位。
-
-这副政治漫画是一部反强制接种疫苗的漫画，是对标志性的“坦克人”照片的改编。勒尼格的漫画展示了一名男子盯着一辆坦克，坦克的主炮被注射器取代。
-
-虽然他的漫画被《时代报》拒绝了，但勒尼格在Instagram上发表了这幅漫画，引发了疫苗强制接种支持者的强烈反对。
-
-“天安门广场的形象经常在世界各地的漫画中被用作查理·卓别林式的隐喻，即压倒性的力量遇上无辜和无力的人。在我看来，在世界上封锁最严重的城市提出这个问题是足够公平的，”这位漫画家说，他指的是墨尔本，在封锁262天后，墨尔本创造了中共病毒封锁时间最长的记录。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Australian ‘national treasure’ cartoonist loses job after comparing vaccine mandates to Tiananmen Square crackdown — RT World News](https://www.rt.com/news/538348-tiananmen-vaccine-mandate-cartoonist/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+责任编辑/发布：意大利达芬奇农场   萧亦

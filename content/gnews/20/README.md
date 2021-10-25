@@ -2,18 +2,17 @@
 ---
 
 
-## 中共为加入CPTPP表示将放宽政府采购规则
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1616047/)
+## 中共国部署老战机改装无人机
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1616164/)
 
-#### 翻译：坤霆
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-66.jpg)图片来源：网络截图
-10月25日日经新闻报道，本月早些时候，中共财政部在一份官方通知中告诉地方政府，只要外国拥有的供应商的产品在中共国制造，“必须确保他们公平参与政府采购的权利”。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10253.jpg)
+在中共国的军队里没有什么是需要被扔掉的。他们已经将旧的 J6 战斗机（俄罗斯米格 19 的版本）变成了无人机，这些无人机可用于“饱和”敌方雷达防御系统，也可用于进行导弹攻击。东部司令部发布了其中一架飞机的照片，而国防新闻网站重新发布了行星实验室卫星图像，显示了一个基地，那里有许多飞机。
 
-这些指示的发布时间是中共国在9月宣布加入《跨太平洋合作伙伴关系全面进步协议》（CPTPP）后发布的，这表明北京正在为谈判奠定基础，谈判将考验其开放经济的意愿。
+另外，至少有 50 辆车将被改装并部署在距离台湾 257 英里（约 500 公里）的连城和兴宁的基地中。
 
-该通知允许对“与国家安全或秘密有关的采购计划”进行例外处理，因此这些指示将给市场准入带来多大的改善尚不清楚。国家安全的模糊界限也可能给当局如何实施规则引入任意性因素。
+免责申明：本文只代表译者观点，与Gnews无关
 
-在中共国，外国商业界人士欢迎这一通知，认为这是朝着正确方向迈出的一步，但他们表示他们需要时间看看在实践中会发生什么。日本政府消息人士表示，“中国达到CPTPP设定的高标准至关重要。不可能有让步，比如中国有很多例外。”
+原文链接：[https://www.corriere.it/america-cina/2021/10/22/isola-stretta-le-due-superpotenze-f9a95680-330f-11ec-a09a-b9f5a5e6bd67.shtml](https://www.corriere.it/america-cina/2021/10/22/isola-stretta-le-due-superpotenze-f9a95680-330f-11ec-a09a-b9f5a5e6bd67.shtml)
 
-原文链接：[China moves to ease rules on government procurement for CPTPP](https://asia.nikkei.com/Economy/Trade/China-moves-to-ease-rules-on-government-procurement-for-CPTPP)
+责任编辑/发布：意大利达芬奇农场   萧亦

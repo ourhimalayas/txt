@@ -2,56 +2,185 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“马云”（十二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1616228/)
+## 新中国联邦拯救中国企业家的两个条件
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1616263/)
 
-#### **整理：BENJ1**
-**编辑：Kelly**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2626.png)
+[https://gtv.org/video/id=6176251c247c5a3f908facad](https://gtv.org/video/id=6176251c247c5a3f908facad)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/f66314a7-104c-42cd-82cc-6e72684fdc44.jpg)图片来源：雅典娜设计组（精灵蓝）
+**郭文贵
+Miles Guo**
 
+我可以告诉中国所有的企业家
+I can tell all entrepreneurs in China
 
-**往期回顾：**
-[文·贵天成——文贵先生谈“马云”（一）](https://gnews.org/zh-hans/1611703/)
-[文·贵天成——文贵先生谈“马云”（二）](https://gnews.org/zh-hans/1611834/)
-[文·贵天成——文贵先生谈“马云”（三）](https://gnews.org/zh-hans/1611836/)
-[文·贵天成——文贵先生谈“马云”（四）](https://gnews.org/zh-hans/1611880/)
-[文·贵天成——文贵先生谈“马云”（五）](https://gnews.org/zh-hans/1612653/)
-[文·贵天成——文贵先生谈“马云”（六）](https://gnews.org/zh-hans/1613697/)
-[文·贵天成——文贵先生谈“马云”（七）](https://gnews.org/zh-hans/1613780/)
-[文·贵天成——文贵先生谈“马云”（八）](https://gnews.org/zh-hans/1613780/)
-[文·贵天成——文贵先生谈“马云”（九）](https://gnews.org/zh-hans/1614200/)
-[文·贵天成——文贵先生谈“马云”（十）](https://gnews.org/zh-hans/1614334/)
-[文·贵天成——文贵先生谈“马云”（十一）](https://gnews.org/zh-hans/1616205/)
+爆料革命新中国联邦
+The whistleblowers and the New Federal States of China
 
-**郭文贵先生2020****年11****月7****日直播第一段：**
+可以协调全世界超过80个国家
+can coordinate with more than 80 countries around the world
 
-马云他就是世界上真正最大的骗子，他的未来被国际审判，被中国人审判，这已经不容怀疑。他的结局比肖建华、比安邦还会惨，因为他是一个国际上的政治、经济，以及是一个利用大数据违法犯罪、换取和盗国贼交易的这么一个红色的商人。他对世界人民的伤害、他对中国人民的伤害，他对所有人的伤害，远远超出了一个所谓商业家的价值。我在以前的视频中说过，在资本主义社会里边儿，真正的有价值的、给社会带来文明的，那是叫企业家，那是有创造性的。那么商人就是膨胀剂，他只是个膨胀作用，增加了流通而已。马云就是一个出色的商人，但是他出色商人的背后，实际上是与政治勾结、盗取别人隐私，助长盗国贼统治和压迫14亿人民，甚至是影响全世界的安全为代价的。结果，马云现在所做的事非常简单。从他参与的各种大数据和他所有的蚂蚁金服和阿里巴巴，和在世界上和这些政治头头们、领导们联络，他在执行着中国以商养情、以商统西、同时以商掩盖整个情报系统的这个目的。这是他马云真正的身份。
+来给你们提供方便
+to provide you convenience
 
-而且马云运用这些身份获得了中国政治上的保护，同时在政治上又得到了输送利益的各个利益集团(所谓中国法律上)的认可。马云一切都是为了自己的利益和安全，他下边有着大数据库以及蚂蚁金服——这样具有侵略性的金融、情报和大数据，是对西方和全世界的统治和控制，这个渗透对西方的破坏力是无法想象。接下来，马云的事情将成为全世界关注的焦点。随着事情的发展，大家会真正地看到他们这些人会成为全世界人人喊打的过街老鼠！一切都是刚刚开始，马云的野心不会得逞。咱们拭目以待，谢谢！
+我们可以保证你们私人企业家的家人
+and we can guarantee that all private entrepreneurs’ families
 
-**郭文贵先生2020****年11****月7****日直播第二段：**
+还有你们到了这些国家（后）
+and you when arrive to these countries
 
-我早就说了，2018年就说了，最后的马云，一定比王健死得还惨。王健死了，他老婆孩子现在还活着呢，苟且偷生。马云死的时候，他老婆孩子都活不了，因为共产党一定让他灭口，一定给他灭口的。因为马云他本人，他一定有侥幸心理。比如我到那个位置，我也可能有侥幸心理，好像这家伙全世界联合国都给我身份啦，我还不安全吗？人类上最可悲的就是侥幸。别拿自己太当回事儿，千万别侥幸。这一百多斤的物理上存在的肉体，是很脆弱的。
+我们给你提供所有的合法的
+we will provide you with all legal assistance
 
-马云以为那钱，能使鬼推磨，也能使磨推鬼。钱有时候真的管万能，它不是什么都能，它不是亿能，绝对不是什么都可能。最后，蚂蚁金服到谁家，谁灭马云，灭马云，把全家董事全灭掉，一个都不给他留。我在2018说了。相比同样的问题，叶简明、安邦吴小晖、王健林。最早2017年我就说过，这都得进去，都得破产。王健林还出国么，咋不出国了啊？——你们都是共产党待宰的羔羊，只是方式、形式、时间，它杀你全家(还是)杀你个人。还有大家要想到，为什么许家印现在让他活着啊？许家印啥都会没有，跟马云一样惨，只是时间的问题。
+政府和法律界的帮助
+from the government and the legal profession
+我们就要求你两个条件
+We only ask you to comply with two requirements:
 
-**郭文贵先生2020****年11****月8****日直播：**
+第一个和当地政府合作
+The first one is to cooperate with the local government
 
-蚂蚁金服是谁，是马云骗国内的那些老百姓。他代表的就是，蚂蚁金服是给那些政治局老常委分配的利益，这个陆金所，这个平安集团是给现任常委，这几个大佬分的利益。但是你别忘了现任常委吃不饱，他想把宇宙太阳都吃下来，他觉得蚂蚁金服我也得弄。蚂蚁金服和安邦都弄啥，安邦到美国来的任务，跟共产党承诺的，是要有一部分的共和党的人，他是要拿下的，包括川普总统周边的人。陆金所是干嘛的，就是拿下美国老的那些总统家族，这个你们都明白了，他们都有分配的，叶简明干副总统拜登。
+揭穿、揭发、审判
+to reveal, expose, and judge
 
-**郭文贵先生2021****年1****月20****日直播：**
+共产党在西方的经济超限战、技术超限战
+the Communist Party’s unrestricted warfare in the Western on economy, technology
 
-我们过去几年唤醒了，包括习王政府（的恶政）唤醒了党内的人士、唤醒了中国人民、唤醒了中国的企业家。你看看马云又出来表演去了，他最终跟王健一样、跟陈峰一样，死无葬身之地。最可怕的，人在死之前，还让你表演表演，还不如王健呢，给一下子就拉倒了。中共历史上多少人？叶简明出来表演好几次呢，直接扔河里面去了，是吧？所以说兄弟姐妹们，现在不要看任何人在台上闹得欢，最后上天、万佛万神一定给他拉清单。正义必胜，是不是你坚信的？人类是不是有主人？有没有万佛万神？这是你是不是你坚信的？如果是你坚信的，不要看这一时一点一事，正义正在向我们走来，谁都挡不住！而且，它有助于我们灭共运动。
+政治超限战、军事超限战、情报超限战
+politics, military, and intel
 
-**郭文贵先生2021****年1****月31****日直播：**
+推翻共产党，这是第一个
+and to overthrow the Communist Party. This is the first one (requirement)
 
-共产党它就耍流氓找出一个没毛儿的逗逗啊什么的一帮人来嘚瑟，胡扯呢，你以为你是共产党呢。杀了赖小民、杀了叶简明、抓了马云，让马云坐在铁椅子上，然后戴上脚镣手铐让马云三天不睡觉，然后把两万亿的蚂蚁金服的钱捐出去，然后叫马云把海外的所有房子、房产、股票全都说清楚，都签下白纸黑字，然后你去拿去。
+第二个
+Secondly,
 
-***发布：小红帽***
+我们让你配合的
+we will ask you to cooperate
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+只要是你们能和我们合作的
+as long as you can cooperate with us
+
+你们必须要坚定地、坚决地
+you must firmly and resolutely
+
+承认《新中国联邦宣言》
+recognize the “The New Federal State of China Declaration”
+
+我们给你一切可能的帮助
+We will provide you all possible help
+
+信不信由你
+believe it or not, it’s up to you
+
+我不相信除了新中国联邦
+I believe no one else but the New Federal State of China
+
+还有任何人能给你提供这个帮助的
+can provide you with this help
+
+我可以告诉你们
+I can tell you that
+
+不信你们可以试试
+you can try if you don’t believe it
+
+在过去的半年内，我想你们都知道
+I think you all know that in the past six months
+
+新中国联邦救了多少人
+how many people have been saved by the New Federal State of China
+
+我们即使到北京城
+We can even go to Beijing
+
+除了中南坑我们进不去
+except the Zhongnanhai(the Chinese version of US White House)
+
+救人绝对做不到啊
+we are absolutely not able to take people out from there
+
+在天安门上我都把你救出来
+But we are able to get you out although you stuck in the Tiananmen Square
+
+你在天安门城楼上
+at the Tiananmen tower
+
+我都能把你救出来
+We still can save you
+
+在全世界上没有一个地方我们做不到的
+There is nowhere in the world that we cannot do that
+
+只要想救你
+as long as we are willing to save you
+
+如果你们需要我们拯救你
+If you need us to save you
+
+你必须前提答应这个（指以上两个条件）
+you must agree to this (referring to the above two conditions)
+
+我们不要你一分钱
+We don’t need a penny from you
+
+我们不要你做任何贡献
+we don’t need you to make any contributions
+
+更不会让你跟我们双修
+we won’t need you to have sex with us
+
+（调侃：这马云这小个双修也不行啊，呵）
+(teasing Jack Ma’s sexual life)
+
+我们只要求你和当地的政府合作
+We only ask you to cooperate with the local government
+
+因为(这是）我们救你的条件
+because (this) is the requirement that we will save you
+
+还有承认新中国联邦，灭共
+as well as to recognize the New Federal State of China and destroy the Communist Party
+
+就这么简单
+It’s that simple
+
+我们给你们提供一个正常人的生活的物质条件
+We will provide you with material conditions for living as people in general
+
+你想过什么豪华生活
+You want to live a luxurious life
+
+那什么私人飞机
+with that private jet
+
+那不可能
+It is impossible
+
+正常人的生活
+It will be a normal life like other people
+
+保证你安全
+ensuring your safety
+
+这就是今天直播重点中之重
+This is the top priority of today’s live broadcast
+
+* * *
+
+Date: 10/21/2021
+原视频标题: 新中国联邦拯救中国企业家的两个条件
+The two Conditions that the New Federal State of China Rescues Chinese Entrepreneurs
+原视频日期：2021/10/20
+原视频链接: [https://twitter.com/se1y7cblljselva/status/1451146697661292551?s=24](https://twitter.com/se1y7cblljselva/status/1451146697661292551?s=24)
+任务编号：KC191（2626）
+视频时间段 : 0:00-2:09
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
