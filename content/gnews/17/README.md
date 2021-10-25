@@ -2,23 +2,40 @@
 ---
 
 
-## 文贵爆料 24/10：左拳是病毒，右拳是疫苗
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1615330/)
+## 阿拉巴马州总检察长向拜登疫苗强制令说不
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1615402/)
 
-撰稿：Ermat【㊙️翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-24-at-1.00.32-PM-2.png)
-病毒只是左刺拳，疫苗才是隐藏在后的右手重拳。在10月24日的大直播中，郭文贵先生说，病毒不是目的，只是手段，而疫苗才是这场灾难真正的目的。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-七哥在2020年1月2号说，这场共产党的病毒灾难是有意识的、长期的积累的结果。在美国已经研发成熟的冠状病毒生化武器，后来被共产党通过“蓝、金、黄”获得，尝试用在香港运动和美国军人到武汉的军运会上，就是要释放病毒，停止香港运动，打台湾、制造国际恐怖，有计划的和黑暗势力相勾结，以达到统治全人类的目的。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/A-9.jpg)al.com
+阿拉巴马州总检察长史蒂夫·马歇尔（Steve Marshall）表示，我将在法庭上挑战拜登的联邦-承包商（federal-contractor）疫苗强制令，以下是我的声明：
 
-死亡、经济疲软、供应链打断，所有挪用的养老基金不能兑现，老人死掉，还不了的债不用还，世界格局只认可他们的同流合污。首先是辉瑞制药，这个全世界最大的药厂在不超过10个家族的控制中。全美所有媒体在4个半家族的控制中。全人类社交媒体在2个半家族的控制中。在全世界1%的人拥有和99%的人同样的财富。
+阿拉巴马州总检察长
+史蒂夫·马歇尔
 
-这一次对种族有计划的谋杀中，现在最惨是犹太人，然后很有可能是加拿大人，然后是美国人。中招最厉害是律师、会计师、明星、运动员和国家公务员。这些人被干掉以后，就解决了人类太聪明、太专业的问题。加拿大、日本、以色列完全没有末日感。
+联邦政府最近与阿拉巴马州的一些州机构和部门进行了沟通，表示它们受拜登的联邦承包商疫苗政策的约束，因此必须强制要求其雇员接种疫苗。
 
-今天你没有看到疫苗灾难，疫苗灾难根本没发生。绝大多数人没觉醒，疫苗的觉醒远远没有开始，疫苗的次生灾害远远没有开始，不是仅仅货物供应链的短缺，不是芯片的短缺，是所有将要发生在你生活的事。
+我想向阿拉巴马州人民保证，我的办公室将与这种侵犯个人自由、联邦制和分权的卑鄙行为作斗争。
 
-郭先生强调，病毒不是目的，只是手段，而疫苗才是这场灾难真正的目的。
+我们将在法庭上挑战拜登的联邦承包商疫苗强制令，我将尽我所能，在12月8日联邦规定的最后期限之前解决这一问题。
 
-参考链接：
+（签名）
 
-[2021年10月24日 文贵大直播](https://gtv.org/video/id=617551cfeadeb11f5e79f5d5)
+言简意赅的声明，马歇尔总检察长一语中的，这是侵犯自由的卑鄙行径，我们必须与之斗争。州长们、州总检察长们、州议员们，起来，向邪恶说不，否则将会有更多的无辜者遭受阴谋集团迫害。
+
+声明文字整理：
+
+ALABAMA ATTORNEY GENERAL
+
+STEVE MARSHALL
+
+The federal government has recently communicated to a number of state agencies and institutions in Alabama that they are subject to President Biden’s federal-contractor vaccine mandate and must therefore, force their employees to be vaccinated.
+
+I want to assure the people of Alabama that my office will fight this contemptible infringement upon individual liberty, federalism, and the separation of powers.
+
+We will be challenging President Bidens federal-contractor vaccine mandate in court, and I will do everything in my power to resolve this matter before the federally dictated deadline of December 8.
+
+（文章仅代表作者个人观点）
+
+原文链接：[https://twitter.com/AGSteveMarshall/status/1451701843311087617](https://twitter.com/AGSteveMarshall/status/1451701843311087617)

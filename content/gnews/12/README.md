@@ -2,40 +2,24 @@
 ---
 
 
-## 阿拉巴马州总检察长向拜登疫苗强制令说不
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1615402/)
+## 加拿大未接种者或将无法获得失业补助
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1615426/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+原文采编：青青  编译撰稿：文所未闻
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/A-9.jpg)al.com
-阿拉巴马州总检察长史蒂夫·马歇尔（Steve Marshall）表示，我将在法庭上挑战拜登的联邦-承包商（federal-contractor）疫苗强制令，以下是我的声明：
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a1-1.jpg)图片来源：CBC
 
-阿拉巴马州总检察长
-史蒂夫·马歇尔
 
-联邦政府最近与阿拉巴马州的一些州机构和部门进行了沟通，表示它们受拜登的联邦承包商疫苗政策的约束，因此必须强制要求其雇员接种疫苗。
+据加拿大《CTV新闻》10月22日报道，根据联邦政府的最新指导方针，因拒绝接种“新冠病毒疫苗”而失去工作的雇员可能将没有资格领取失业救济金。
 
-我想向阿拉巴马州人民保证，我的办公室将与这种侵犯个人自由、联邦制和分权的卑鄙行为作斗争。
+[加拿大就业和社会发展部]表示，如果雇员因不遵守“新冠病毒疫苗”接种规定而被停职或解雇，那么其雇主可以表明该雇员是辞职、请假或因故被遣散。而在此情况下，该雇员可能失去其向政府申请失业金资格。目前，该部门已就此规定向各雇主发出了通知，以此指导他们填写其雇员的就业记录。
 
-我们将在法庭上挑战拜登的联邦承包商疫苗强制令，我将尽我所能，在12月8日联邦规定的最后期限之前解决这一问题。
+同时，加拿大许多省级政府已在其医疗保健机构和学校等引入了“强制性疫苗接种”政策。联邦政府及其监管行业也将要求其所有雇员接种该疫苗。同时，一些其他非政府管辖的公司雇主也引入了该“疫苗强制接种”政策。
 
-（签名）
+（以上内容仅代表原文信息和作者个人观点）
 
-言简意赅的声明，马歇尔总检察长一语中的，这是侵犯自由的卑鄙行径，我们必须与之斗争。州长们、州总检察长们、州议员们，起来，向邪恶说不，否则将会有更多的无辜者遭受阴谋集团迫害。
+* * *
 
-声明文字整理：
+校对编辑，发稿：硫酸羟氯喹64
 
-ALABAMA ATTORNEY GENERAL
-
-STEVE MARSHALL
-
-The federal government has recently communicated to a number of state agencies and institutions in Alabama that they are subject to President Biden’s federal-contractor vaccine mandate and must therefore, force their employees to be vaccinated.
-
-I want to assure the people of Alabama that my office will fight this contemptible infringement upon individual liberty, federalism, and the separation of powers.
-
-We will be challenging President Bidens federal-contractor vaccine mandate in court, and I will do everything in my power to resolve this matter before the federally dictated deadline of December 8.
-
-（文章仅代表作者个人观点）
-
-原文链接：[https://twitter.com/AGSteveMarshall/status/1451701843311087617](https://twitter.com/AGSteveMarshall/status/1451701843311087617)
+[原文链接：](https://www.ctvnews.ca/politics/workers-who-resist-vaccine-mandates-may-not-be-eligible-for-ei-according-to-feds-1.5634553)

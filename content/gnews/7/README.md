@@ -2,24 +2,58 @@
 ---
 
 
-## 加拿大未接种者或将无法获得失业补助
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1615426/)
+## 第780军事情报旅：中共国 政府正在使用“各种各样”的手段 有些是非法的 来窃取商业机密
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1615502/)
 
-原文采编：青青  编译撰稿：文所未闻
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a1-1.jpg)图片来源：CBC
+第780军事情报旅(网络)： 美国发出警告说，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府正在使用“各种各样”的手段 (有些是非法的) 来窃取商业机密。【附cyberscoop 上的文章链接】
 
 
-据加拿大《CTV新闻》10月22日报道，根据联邦政府的最新指导方针，因拒绝接种“新冠病毒疫苗”而失去工作的雇员可能将没有资格领取失业救济金。
 
-[加拿大就业和社会发展部]表示，如果雇员因不遵守“新冠病毒疫苗”接种规定而被停职或解雇，那么其雇主可以表明该雇员是辞职、请假或因故被遣散。而在此情况下，该雇员可能失去其向政府申请失业金资格。目前，该部门已就此规定向各雇主发出了通知，以此指导他们填写其雇员的就业记录。
+> US warns that Chinese government is using 'wide variety' of methods, some illegal, to steal trade secrets [https://t.co/Z0h770nhwJ](https://t.co/Z0h770nhwJ) [@CyberScoopNews](https://twitter.com/CyberScoopNews?ref_src=twsrc%5Etfw)
+> — 780th Military Intelligence Brigade (Cyber) (@780thC) [October 23, 2021](https://twitter.com/780thC/status/1451893258750210049?ref_src=twsrc%5Etfw)
 
-同时，加拿大许多省级政府已在其医疗保健机构和学校等引入了“强制性疫苗接种”政策。联邦政府及其监管行业也将要求其所有雇员接种该疫苗。同时，一些其他非政府管辖的公司雇主也引入了该“疫苗强制接种”政策。
 
-（以上内容仅代表原文信息和作者个人观点）
 
-* * *
+众议员马乔里泰勒格林： 是时候通过我的 [#解雇福奇](https://twitter.com/hashtag/%E8%A7%A3%E9%9B%87%E7%A6%8F%E5%A5%87?src=hashtag_click) 法案了。 他资助杀害了百万人生命的生物武器的制造，和残忍的折磨小狗的试验，这些都是恶魔才干得出的事。 这个变态还做了些什么？ 福奇必须被解雇，调查，和逮捕。
 
-校对编辑，发稿：硫酸羟氯喹64
 
-[原文链接：](https://www.ctvnews.ca/politics/workers-who-resist-vaccine-mandates-may-not-be-eligible-for-ei-according-to-feds-1.5634553)
+
+> It’s time to pass my [#FireFauci](https://twitter.com/hashtag/FireFauci?src=hash&amp;ref_src=twsrc%5Etfw) Act.
+> 
+> Funding the creation of a bioweapon that has killed millions of people and cruel experiments that torture puppies are the things only a monster could do.
+> 
+> What else has this psychopath done?
+> 
+> Fauci must be fired, investigated, and arrested.
+> — Marjorie Taylor Greene 🇺🇸 (@mtgreenee) [October 24, 2021](https://twitter.com/mtgreenee/status/1452265654581669888?ref_src=twsrc%5Etfw)
+
+
+
+众议员布莱恩·马斯特： 当俄罗斯和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在庆祝时，你就知道有些事情已经大错特错了。 【路透社报道：普京说，拜登让美军从阿富汗撤出是正确的】
+
+
+
+> When Russia and China are celebrating, you know something has gone terribly wrong.[https://t.co/lshuJaB3eZ](https://t.co/lshuJaB3eZ)
+> — Rep. Brian Mast (@RepBrianMast) [October 23, 2021](https://twitter.com/RepBrianMast/status/1451960106825011204?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·沃尔茨： 多年来，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 一直在偷窃和刺探我们的公司和大学，从我们的眼皮底下窃取我们的研究和技术。 随着他们发展高超音速导弹储备 (这是一种我们无法防御的先发制人的战略武器)，现在它来咬我们了。 【附福克斯商业玛丽亚采访沃尔茨议员的视频，谈中共国的威胁】
+
+
+
+> For years, the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) has stolen & spied on our corporations & universities, stealing our research & technology from under our noses.
+> 
+> Now it's coming to bite us as they develop their hypersonic missile stockpile – a first strike strategic weapon that we cannot defend against. [pic.twitter.com/1tPevJKOuP](https://t.co/1tPevJKOuP)
+> — Rep. Mike Waltz (@michaelgwaltz) [October 23, 2021](https://twitter.com/michaelgwaltz/status/1451947523904614404?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·沃尔茨： (白宫发言人) 珍·普萨基和拜登政府认为可以用欢迎竞争来打发 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的高超音速导弹发展。 她错了。他们不是在和我们竞争，他们想主宰我们。这是 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的人造卫星时刻 (美国需要警醒)，而我们没有导弹来阻止他们。 【附沃尔茨议员接受福克斯商业采访，谈中共国的威胁】
+
+
+
+> Jen Psaki and the Biden Admin think it's okay to dismiss China's hypersonic missile development by welcoming the competition.
+> 
+> She's wrong. They aren't competing with us, they want to dominate us. This is the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s Sputnik Moment AND we don't have the missiles to stop them. [pic.twitter.com/rcUlfu4XIM](https://t.co/rcUlfu4XIM)
+> — Rep. Mike Waltz (@michaelgwaltz) [October 23, 2021](https://twitter.com/michaelgwaltz/status/1451933910494027791?ref_src=twsrc%5Etfw)
