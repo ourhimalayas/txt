@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/25/2021 3:05 PM (UTC)`
+
+10月24号：Covid vaccine can’t stop transmission and there has been a concerted effort to prevent the truth of the vaccine from receiving the attention<br/>佛罗里达州医务总监： 疫苗不能阻止病毒传播， 一直有一股力量阻止疫苗副作用真相的传播
+![img](https://media.gettr.com/group2/getter/2021/10/25/15/05/e4f77f41-1d4d-7a20-cd72-32f310cfa39a/out.jpg)
+
+---
+
 `@miles 10/25/2021 2:38 PM (UTC)`
 
 10月24号：绝密绝密绝密．习近平在共产党的六中全会前的．五国秘密外访，说明了什么？有什么样的内外政治目的？
@@ -285,13 +292,6 @@ Transportation solutions provider Giga Energy Inc is going public through a merg
 
 10月22号：发通缉令的前奏……
 ![img](https://media.gettr.com/group32/getter/2021/10/22/15/419dcd24-fec4-7782-ecfb-acaed1b76ce0/e26fafccd71b0060bd26b53b078d65e3.jpg)
-
----
-
-`@miles 10/22/2021 12:36 PM (UTC)`
-
-文贵大直播 六中全会定调明年二十大   大企业家境房地产大事   谁操纵股票大鳄割韭菜   社交媒体变化盖特在腾飞
-![img](https://media.gettr.com/group36/origin/2021/10/22/12/d8eb5ca1-aeac-d62e-b1c1-c0abd271f8f9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
