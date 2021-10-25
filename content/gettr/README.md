@@ -17,6 +17,21 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/25/2021 4:15 PM (UTC)`
+
+10月25号：MPs of the EU held a conference to oppose the vaccine mandate in the Union<br/>欧盟的议员们开会反对在欧盟内推行强制接种疫苗政策
+![img](https://media.gettr.com/group40/getter/2021/10/25/16/15/1138462d-e0cd-9924-a158-2a1771fa948d/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@drmaria 10/25/2021 4:10 PM (UTC)`
+
+https://wabcradio.com/episode/uncovering-the-truth-10-24-2021/   Listen to our latest Sunday show. @RudyGiuliani defends Anderson Cooper
+
+---
+
 `@miles 10/25/2021 3:05 PM (UTC)`
 
 10月24号：Covid vaccine can’t stop transmission and there has been a concerted effort to prevent the truth of the vaccine from receiving the attention<br/>佛罗里达州医务总监： 疫苗不能阻止病毒传播， 一直有一股力量阻止疫苗副作用真相的传播
@@ -278,20 +293,6 @@ Background information on Yunhong Group（1） 运鸿集团的背景（ 一）
 
 Securities And Exchange Commission Form 8-K; Yunhong International (“Yunhong”) intends to hold presentations for certain of its shareholders, as well as other investors who may be interested in purchasing Yunhong’s securities in connection with Yunhong’s proposed business combination with Giga Energy Inc. (“Giga Energy”), as described in this report.  In the document, Bruno Wu is the representative, and Li Yubao is the Chariman of the Yunhong Internationl. Patrick Orlando is the CEO of Yunhong International.      如本报告所述，运鸿国际(以下简称“运鸿”)打算为其某些股东以及其他可能有兴趣购买运鸿与千兆能源公司(以下简称“千兆能源”)拟议业务合并相关的证券的投资者举行陈述<br/><br/>吴征作为代表签署的文件，李玉保为运鸿国际董事长。帕特里克·奥兰多是运鸿国际的首席执行官
 ![img](https://media.gettr.com/group12/getter/2021/10/22/17/17/bf0c4432-3212-5ec8-64b9-afd78fbe64dd/af0fb148f68ab0a576a8c112e77aeeca.jpg)
-
----
-
-`@miles 10/22/2021 5:02 PM (UTC)`
-
-Transportation solutions provider Giga Energy Inc is going public through a merger with blank-check company Yunhong International in a deal valued at up to $7.35 billion<br/><br/>Yunhong International went public in a $60 million IPO in February last year.<br/><br/>ARC Group Limited was the financial adviser to Giga Energy for the merger deal.<br/><br/><br/>运输解决方案提供商千兆能源公司(Giga Energy Inc)将通过与空白支票公司运鸿国际(Yunhong International)的合并上市，交易价值高达73.5亿美元<br/><br/>去年2月，运鸿国际首次公开募股融资6,000万美元。<br/><br/>ARC Group Limited是Giga Energy公司并购交易的财务顾问
-![img](https://media.gettr.com/group37/getter/2021/10/22/17/02/cd229ade-ebf7-c111-d093-7b43278a19bf/d9c8c3368883dcca305e852a1baabfb1.jpg)
-
----
-
-`@miles 10/22/2021 3:44 PM (UTC)`
-
-10月22号：发通缉令的前奏……
-![img](https://media.gettr.com/group32/getter/2021/10/22/15/419dcd24-fec4-7782-ecfb-acaed1b76ce0/e26fafccd71b0060bd26b53b078d65e3.jpg)
 
 ---
 
