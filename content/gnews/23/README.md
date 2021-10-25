@@ -2,185 +2,33 @@
 ---
 
 
-## 新中国联邦拯救中国企业家的两个条件
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1616263/)
+## 习近平意识到新中国联邦将取代中共政权
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1616314/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2626.png)
-[https://gtv.org/video/id=6176251c247c5a3f908facad](https://gtv.org/video/id=6176251c247c5a3f908facad)
+作者：东京樱花团｜捆绑CCP一千年
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/习近平意识到新中国联邦将取代中共政权.png)[*图片来源*](http://www.news.cn/world/2021-10/24/c_1127990353.htm)
 
-我可以告诉中国所有的企业家
-I can tell all entrepreneurs in China
+习近平发威，要挟联合国“修正国际秩序”。日、美、英、法等43国在联大发联合声明反对中共在新疆犯下反人类罪；随即，以古巴为主的62个国家声明支持中国反人类政府。但郭文贵先生透露： “联合国和欧洲议会现正式开始研究新中国联邦是否能代表中国”。
 
-爆料革命新中国联邦
-The whistleblowers and the New Federal States of China
+据《[朝日新闻](https://www.asahi.com/?iref=pc_gnavi)》25日17时消息称：习近平于25日在北京出席中共国恢复联合国合法席位50周年纪念会议并发表重要讲话，表示需要一个“[强大的联合国和全球治理的改革](https://www.asahi.com/articles/ASPBT52YTPBTUHBI00W.html)”，同时强调为了“保护权力”，需要“真正的联合国多边主义必须实践”，并强调说：“愿意通过联合国来修正国际秩序。”
 
-可以协调全世界超过80个国家
-can coordinate with more than 80 countries around the world
+该消息援引中共国[新华社](http://www.news.cn/world/2021-10/24/c_1127990353.htm)消息指出，“自1990年以来，中国已向近30项联合国维和行动派出维和人员5万余人次，是联合国维和行动中派出维和人员最多的国家。其出资的会费仅次于美国。”
 
-来给你们提供方便
-to provide you convenience
+- ***延展阅读：***[***联合国：欧美再批新疆人权 新增17国支持中国***](https://www.dw.com/zh/%E8%81%94%E5%90%88%E5%9B%BD%E6%AC%A7%E7%BE%8E%E5%86%8D%E6%89%B9%E6%96%B0%E7%96%86%E4%BA%BA%E6%9D%83-%E6%96%B0%E5%A2%9E17%E5%9B%BD%E6%94%AF%E6%8C%81%E4%B8%AD%E5%9B%BD/a-59583872)
+- ***延展阅读：***[***43国发声明吁中国尊重新疆人权***](https://www.rfa.org/mandarin/Xinwen/wul1022a-10222021035117.html)
 
-我们可以保证你们私人企业家的家人
-and we can guarantee that all private entrepreneurs’ families
 
-还有你们到了这些国家（后）
-and you when arrive to these countries
+同时谈到了，自从美国前川普政府明确了自己的优先方向后，中国提出了“以联合国为中心的国际秩序和多边主义”。重申了领导者的立场。
 
-我们给你提供所有的合法的
-we will provide you with all legal assistance
+不过，值得关注的是，“21日，日、美、英、法等43个国家在联大委员会发表联合声明，对维吾尔人人权状况表示关切[，以古巴为主的62个国家发表联合声明支持的中共国](http://news.xhby.net/index/202110/t20211022_7279449.shtml)。”可见，有中国提供资金支持的发展中国家来对抗美欧压力的举措正在加紧。
 
-政府和法律界的帮助
-from the government and the legal profession
-我们就要求你两个条件
-We only ask you to comply with two requirements:
+看起来，联合国在面对中共国的局面是43比62，但主要文明大国都知道发生了什么。中共国依旧自嗨地认为把持联合国话语权，但郭文贵先生透露（4:22.17 时段）： “[联合国和欧洲议会现在正式开始研究新中国联邦是否能成为一股政治力量代表中国人](https://gtv.org/video/id=61599f5b304e992109ae6927)”。
 
-第一个和当地政府合作
-The first one is to cooperate with the local government
+2021年10月25日
 
-揭穿、揭发、审判
-to reveal, expose, and judge
+（本文只代表个人观点，与Gnews网站无关）
 
-共产党在西方的经济超限战、技术超限战
-the Communist Party’s unrestricted warfare in the Western on economy, technology
-
-政治超限战、军事超限战、情报超限战
-politics, military, and intel
-
-推翻共产党，这是第一个
-and to overthrow the Communist Party. This is the first one (requirement)
-
-第二个
-Secondly,
-
-我们让你配合的
-we will ask you to cooperate
-
-只要是你们能和我们合作的
-as long as you can cooperate with us
-
-你们必须要坚定地、坚决地
-you must firmly and resolutely
-
-承认《新中国联邦宣言》
-recognize the “The New Federal State of China Declaration”
-
-我们给你一切可能的帮助
-We will provide you all possible help
-
-信不信由你
-believe it or not, it’s up to you
-
-我不相信除了新中国联邦
-I believe no one else but the New Federal State of China
-
-还有任何人能给你提供这个帮助的
-can provide you with this help
-
-我可以告诉你们
-I can tell you that
-
-不信你们可以试试
-you can try if you don’t believe it
-
-在过去的半年内，我想你们都知道
-I think you all know that in the past six months
-
-新中国联邦救了多少人
-how many people have been saved by the New Federal State of China
-
-我们即使到北京城
-We can even go to Beijing
-
-除了中南坑我们进不去
-except the Zhongnanhai(the Chinese version of US White House)
-
-救人绝对做不到啊
-we are absolutely not able to take people out from there
-
-在天安门上我都把你救出来
-But we are able to get you out although you stuck in the Tiananmen Square
-
-你在天安门城楼上
-at the Tiananmen tower
-
-我都能把你救出来
-We still can save you
-
-在全世界上没有一个地方我们做不到的
-There is nowhere in the world that we cannot do that
-
-只要想救你
-as long as we are willing to save you
-
-如果你们需要我们拯救你
-If you need us to save you
-
-你必须前提答应这个（指以上两个条件）
-you must agree to this (referring to the above two conditions)
-
-我们不要你一分钱
-We don’t need a penny from you
-
-我们不要你做任何贡献
-we don’t need you to make any contributions
-
-更不会让你跟我们双修
-we won’t need you to have sex with us
-
-（调侃：这马云这小个双修也不行啊，呵）
-(teasing Jack Ma’s sexual life)
-
-我们只要求你和当地的政府合作
-We only ask you to cooperate with the local government
-
-因为(这是）我们救你的条件
-because (this) is the requirement that we will save you
-
-还有承认新中国联邦，灭共
-as well as to recognize the New Federal State of China and destroy the Communist Party
-
-就这么简单
-It’s that simple
-
-我们给你们提供一个正常人的生活的物质条件
-We will provide you with material conditions for living as people in general
-
-你想过什么豪华生活
-You want to live a luxurious life
-
-那什么私人飞机
-with that private jet
-
-那不可能
-It is impossible
-
-正常人的生活
-It will be a normal life like other people
-
-保证你安全
-ensuring your safety
-
-这就是今天直播重点中之重
-This is the top priority of today’s live broadcast
-
-* * *
-
-Date: 10/21/2021
-原视频标题: 新中国联邦拯救中国企业家的两个条件
-The two Conditions that the New Federal State of China Rescues Chinese Entrepreneurs
-原视频日期：2021/10/20
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1451146697661292551?s=24](https://twitter.com/se1y7cblljselva/status/1451146697661292551?s=24)
-任务编号：KC191（2626）
-视频时间段 : 0:00-2:09
-英听校： 洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)

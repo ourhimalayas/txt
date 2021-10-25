@@ -2,10 +2,23 @@
 ---
 
 
-## DWAC的11个合格机构买家或机构认可投资者
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1614568/)
+## 文贵爆料24/10： 中共用空壳公司设计川普的目的是想干掉川普
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1614914/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-130-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/2-113-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0003-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0004-1-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0005-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0006-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0007-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0008-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0009-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0010-scaled.jpg)
+撰稿：Skagen【㊙️翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211024-e1635093619937.jpg)
+郭文贵先生在2021年10月24日的大直播揭露中共用空壳公司SPAC设计川普的几个原因：
 
+核心的原因是中共绝对不能让川普加入GETTR，从而让川普总统丧失未来的大选；加入盖特就意味着川普一定会赢得2022中期选举，就会成为未来的共和党，成为参众两院的发言人，就如今天的Nancy Pelosi这样的house man。2022川普赢，意味着2024年川普回白宫基本定局。
 
-[全文](https://assets.gnews.org/wp-content/uploads/2021/10/11-investors-to-Digital-World-.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/10/11-investors-to-Digital-World-.pdf)
+第二，股市绝对不能有内幕交易，只要有内部交易就是刑事罪，在DWAC上市后的交易几乎都在十一家基金里边中间转来，这十一家基金，除了三家是美国和加拿大基金之外，其他全是共产党的。这种内部交易操纵市场肯定会受到SEC调查，怀疑内线交易，怀疑操作市场，川普总统就会被刑事调查，终生将无法再参与政治选举。
+
+第三，共产党囤积的2.96亿的基金，提前放在了川普总统的信托基金，购买了涉案公司的4000万股的91.3%。MAGA投资者大量追随，目前公司的市值已经被炒作到了100多亿美元。休市的时候市值只有2亿多美元。实际被洗走了50亿-80亿美元。创下了 SPAC 被吸走资金最快的记录 。川普总统必须面对MAGA的所有投资者，川普总统最终只能买买买各种社交媒体，只有1%的成功的可能性。最后如果涉及的企业和中共有一点关系，川普如何面对追随者？还会提名竞选总统和议员吗？这次事件挣到的钱会去用在哪里？将引发美国两党内战，做是中共最想看到的。
+
+最后，郭先生说，爆料革命战友不攻击川普总统，我们揭露真相的目的就是揭发共产党的邪恶，灭掉共产党这个邪恶的体制 。
+
+（文章只代表作者个人观点）
+
+参考来源：
+
+1.2021年10月24号大直播

@@ -2,141 +2,185 @@
 ---
 
 
-## 突发：自愿接受辉瑞疫苗试验 13 岁女孩受伤又遭审查
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1616203/)
+## 新中国联邦拯救中国企业家的两个条件
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1616263/)
 
-编译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2626.png)
+[https://gtv.org/video/id=6176251c247c5a3f908facad](https://gtv.org/video/id=6176251c247c5a3f908facad)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-447.png)图片来源：creativedestructionmedia.com
+**郭文贵
+Miles Guo**
 
-康卡斯特的律师在最后一刻取消了她最初接受的 30 秒电视广告。
+我可以告诉中国所有的企业家
+I can tell all entrepreneurs in China
 
-母亲将于周二在 FDA 会议上作证
+爆料革命新中国联邦
+The whistleblowers and the New Federal States of China
 
-2019 年，辉瑞在广告上花费了 24 亿美元
+可以协调全世界超过80个国家
+can coordinate with more than 80 countries around the world
 
-“我等了 7 个月让辉瑞或 FDA 承认我女儿发生的情况，但他们没有。他们试图忽视她的伤势。有了这些广告，她终于有机会与他们共处一室，让他们看到，听到她的声音。”
+来给你们提供方便
+to provide you convenience
 
-华盛顿特区，2021 年 10 月 23 日——[一则新的电视广告](https://vimeo.com/638197470)聚焦 13 岁的麦迪·德·加雷（Maddie de Garay）与辉瑞疫苗相关的伤害，在周四最初接受了该广告后，于周五下午被康卡斯特的律师取消。该广告原定在 FDA 的 VRBPAC 会议之前和期间多次播放，该会议关于辉瑞COVID-19 疫苗推向 5-11 岁儿童的数据**。**
+我们可以保证你们私人企业家的家人
+and we can guarantee that all private entrepreneurs’ families
 
-尽管几乎没有公开，但公众可以向 FDA 提交公众意见，以参加 10 月 26 日举行的针对 5-11 岁儿童的辉瑞数据 VRBPAC 会议。可在此处找到提交公众意见的链接：[here.](https://www.regulations.gov/search?filter=FDA-2021-N-1088)
+还有你们到了这些国家（后）
+and you when arrive to these countries
 
-*广告的脚本如下：*
+我们给你提供所有的合法的
+we will provide you with all legal assistance
 
-*这是麦迪**——**她* *13**岁，想成为一名儿科护士。*
+政府和法律界的帮助
+from the government and the legal profession
+我们就要求你两个条件
+We only ask you to comply with two requirements:
 
-*当* *COVID**疫苗可用时，她自愿进行试验。* *她说她想帮助其他孩子。*
+第一个和当地政府合作
+The first one is to cooperate with the local government
 
-*这是她现在。*
+揭穿、揭发、审判
+to reveal, expose, and judge
 
-*像她这样的人有成千上万。他们被* *FDA**和媒体忽视了。当他们说这是安全的时，她相信了。*
+共产党在西方的经济超限战、技术超限战
+the Communist Party’s unrestricted warfare in the Western on economy, technology
 
-*她挺身而出帮助美国，* [*但 谁会为麦迪挺身而出？*](https://vimeo.com/638197470)
+政治超限战、军事超限战、情报超限战
+politics, military, and intel
 
-*麦迪的母亲斯蒂芬妮在过去的两次选举中投票给民主党，她讲述了这则广告。*
+推翻共产党，这是第一个
+and to overthrow the Communist Party. This is the first one (requirement)
 
-“她想帮助别人，帮助世界恢复正常，”斯蒂芬妮说。“她现在已经失去了走路的能力，她的所有营养都依赖于 NG 管。”
+第二个
+Secondly,
 
-2021 年 3 月，在她第二次接种辉瑞疫苗两个月后，治疗*麦迪*的新医生问她的“焦虑”情况。麦迪直视他们的眼睛说：“我以前没有焦虑，现在也没有焦虑，除了不再相信我的医生。”
+我们让你配合的
+we will ask you to cooperate
 
-“她于 1 月 20 日接种了疫苗，半夜来到我们的房间，她说她感觉不舒服，无法入睡。 她等了 8 个月也没有得到辉瑞、FDA 和 CDC 的承认，甚至没有收到任何人的确认，没有收到一封电子邮件、一个电话或一条短信。没有。至少通过这则广告，我们知道 麦迪将与决策者一起在同一个房间里，如果这可以帮助未来的无辜儿童不会成为辉瑞 Covid 疫苗伤害的受害者，那么这在我们看来就是一场胜利。”
+只要是你们能和我们合作的
+as long as you can cooperate with us
 
-“我等了 7 个月让辉瑞或 FDA 承认我女儿发生了什么事，但他们没有。他们试图忽视她的伤势。 有了这些广告，她终于有机会与他们共处一室，被他们看到，听到她的声音。”
+你们必须要坚定地、坚决地
+you must firmly and resolutely
 
-尽管几乎没有公开，但公众可以向 FDA 提交公众意见，以参加 10 月 26 日举行的针对 5-11 岁儿童的辉瑞数据 VRBPAC 会议。
+承认《新中国联邦宣言》
+recognize the “The New Federal State of China Declaration”
 
-该视频只是名为“未被承认的——疫苗的受害者”系列中的一个。是由非营利组织疫苗安全研究基金会组织的全国教育工作的一个组成部分。
+我们给你一切可能的帮助
+We will provide you all possible help
 
-根据 FDA 和 CDC 的说法，政府记录疫苗造成的伤害和死亡的唯一方法，是通过自我报告或医疗保健专业报告，称为疫苗不良事件报告系统或 VAERS 的网站。根据由 FDA 和 CDC 监督的 VAERS 的说法，有：
+信不信由你
+believe it or not, it’s up to you
 
-- 13,627 例注射 COVID 疫苗后报告死亡/ 22,501 VAERS 报告死亡总数，
-- 55,821 例注射 COVID 疫苗后报告住院/ 133,592 VAERS 报告住院总数，
-- 623,341 份注射COVID 疫苗不良事件报告
+我不相信除了新中国联邦
+I believe no one else but the New Federal State of China
 
+还有任何人能给你提供这个帮助的
+can provide you with this help
 
-麦迪自愿参加辉瑞针对 12-15 岁儿童的试验，并于20年12月30日接种了第一剂，并于 2011 年 1 月 20 日接种了第二剂。今年 5 月，辉瑞疫苗不受阻碍地获批用于 12-15 岁儿童，不能再忽视她，确认她接种了疫苗。
+我可以告诉你们
+I can tell you that
 
-在辉瑞试验中，麦迪的症状几乎是在第二次注射后立即出现的。例如，根据医疗记录和她母亲的文件，麦迪在 12 小时内经历了：
+不信你们可以试试
+you can try if you don’t believe it
 
-• 发烧 101-102华氏度
+在过去的半年内，我想你们都知道
+I think you all know that in the past six months
 
-• 上下脊椎到颈部的电击
+新中国联邦救了多少人
+how many people have been saved by the New Federal State of China
 
-• 手指/手在触摸时变白、肿胀并且冰冷
+我们即使到北京城
+We can even go to Beijing
 
-• 心动过速（她说她的心脏感觉像是从脖子里被撕裂了一样）
+除了中南坑我们进不去
+except the Zhongnanhai(the Chinese version of US White House)
 
-• 严重腹痛
+救人绝对做不到啊
+we are absolutely not able to take people out from there
 
-• 全身肌肉/神经疼痛和痉挛——你无法触摸她的任何地方，她说躺下甚至会痛
+在天安门上我都把你救出来
+But we are able to get you out although you stuck in the Tiananmen Square
 
-• 她脚趾向上弯着腰走路
+你在天安门城楼上
+at the Tiananmen tower
 
-• 严重头痛
+我都能把你救出来
+We still can save you
 
-• 恶心
+在全世界上没有一个地方我们做不到的
+There is nowhere in the world that we cannot do that
 
-• 尿液中有血
+只要想救你
+as long as we are willing to save you
 
-• CRP 为 2.90
+如果你们需要我们拯救你
+If you need us to save you
 
-**在接下来的 ****3 ****个月里，她的病情继续下降，并出现了以下症状：**
+你必须前提答应这个（指以上两个条件）
+you must agree to this (referring to the above two conditions)
 
-• 无法行走
+我们不要你一分钱
+We don’t need a penny from you
 
-• 腰部以下失去知觉
+我们不要你做任何贡献
+we don’t need you to make any contributions
 
-• 癫痫
+更不会让你跟我们双修
+we won’t need you to have sex with us
 
-• 抽搐/昏倒
+（调侃：这马云这小个双修也不行啊，呵）
+(teasing Jack Ma’s sexual life)
 
-• 恶心、呕吐、吞咽困难，并最终无法吞咽任何液体或固体（现在她仍然拥有的 Ng 管吸收营养）
+我们只要求你和当地的政府合作
+We only ask you to cooperate with the local government
 
-• 胃轻瘫，她住院清理大便堵塞
+因为(这是）我们救你的条件
+because (this) is the requirement that we will save you
 
-• 尿潴留需要导尿管，这在今天仍然是问题
+还有承认新中国联邦，灭共
+as well as to recognize the New Federal State of China and destroy the Communist Party
 
-• 脑雾、单词混淆、记忆力减退
+就这么简单
+It’s that simple
 
-• 全身肌肉无力，以至于她甚至无法自己洗澡
+我们给你们提供一个正常人的生活的物质条件
+We will provide you with material conditions for living as people in general
 
-• 失去颈部控制和肌肉痉挛
+你想过什么豪华生活
+You want to live a luxurious life
 
-• 手臂上全是皮疹
+那什么私人飞机
+with that private jet
 
-• 白舌
+那不可能
+It is impossible
 
-• 喉咙痛
+正常人的生活
+It will be a normal life like other people
 
-• 注射部位的手臂骨痛
+保证你安全
+ensuring your safety
 
-• 脚脱皮
-
-• 头部脱皮
-
-• 回流，营养甚至通过她的 Ng 管倒流
-
-• 体重增加（只吃饲料，没有暴饮暴食）
-
-• 月经量大时有血块
-
-• 无法出汗或控制体温
-
-**评论：**
-
-**七八个月前，在麦迪第一次电视曝光无法自理时，爆料革命已经将麦迪妈妈声泪俱下的视频翻译成各种语言，向人们揭露疫苗的惨痛伤害。但辉瑞和CDC，FDA这些热衷强制疫苗的“医疗专家”却对主动参加试验的麦迪，8个月之久视若空气。你们向无辜的孩子们推这些毒药“疫苗”依据的是什么？如果麦迪是你们CDC， FDA的女儿，孙女儿，你们还会像对待麦迪这样一个主动为了世界而勇敢参加试验的孩子一样吗？你们希望自己的孩子孙子们像麦迪一样毁了一生吗？**
-
-**从未见到哪种政府让自己的人民充当药商试验的老鼠，还免除药商的任何责任！麦迪说她再也不相信她的医生，人民再也不会相信这些所谓的专家和独裁的政府！**
-
-**CDC，FDA, Fauci, 政府，任何强制疫苗的人，都难逃法律的惩罚，上帝的惩罚，世世代代后人对你们的惩罚！**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**参考资料**：[creativedestructionmedia.com] [BREAKING: COMCAST CENSORS VAX INJURED 13-YR.-OLD GIRL WHO VOLUNTEERED FOR PFIZER TRIAL](//creativedestructionmedia.com/news/business/2021/10/23/breaking-comcast-censors-vax-injured-13-yr-old-girl-who-volunteered-for-pfizer-trial/O%20VOLUNTEERED%20FOR%20PFIZER%20TRIAL)
+这就是今天直播重点中之重
+This is the top priority of today’s live broadcast
 
 * * *
 
-*审核：文乐 
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
+Date: 10/21/2021
+原视频标题: 新中国联邦拯救中国企业家的两个条件
+The two Conditions that the New Federal State of China Rescues Chinese Entrepreneurs
+原视频日期：2021/10/20
+原视频链接: [https://twitter.com/se1y7cblljselva/status/1451146697661292551?s=24](https://twitter.com/se1y7cblljselva/status/1451146697661292551?s=24)
+任务编号：KC191（2626）
+视频时间段 : 0:00-2:09
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

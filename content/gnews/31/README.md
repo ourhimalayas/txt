@@ -2,27 +2,63 @@
 ---
 
 
-## 中共央行：大宗商品计价是数字人民币国际化的重要突破领域
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1616216/)
+## 中国的未来都在由习一人决定
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1616270/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-137.jpg)[图片来源](http://finance.sina.com.cn/zl/bank/2019-03-29/zl-ihsxncvh6436943.shtml)
-证券时报网讯，10月24日，中国人民银行国际司司长朱隽在第三届上海外滩金融峰会的《2021·径山报告》发布会上进行视频演讲指出，新形势下“一带一路”建设亟需扩大人民币使用，这是抓住机遇、迎接挑战的关键。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2648.png)
+[https://gtv.org/video/id=6176262e247c5a3f908fad16](https://gtv.org/video/id=6176262e247c5a3f908fad16)
 
-朱隽说，从机遇角度来说，新兴市场和发展中国家在全球经贸体系中的地位不断提升，中国与“一带一路”经贸联系日益紧密，同时，数字经济成为新的潜在合作领域。但是，疫情的冲击更为明显，债务问题也值得更多关注。
+**郭文贵
+Miles Guo**
 
-发言中她表示，大宗商品是人民币贸易计价有望取得突破的重要领域，同时，发展人民币贸易融资有助于人民币贸易计价结算。对此，可以重点发展开发性金融，充分发挥出口信贷的作用，并且大力发展股权投资。
+跟你们讲今天谈这个六中全会的时候，
+today when we talk about the Sixth Plenary Session of the Central Committee of the Communist Party of China
 
-推动大宗商品的人民币计价一直是中共人民币国际化战略的重要手段。
+六中全会是中国的未来的是北朝鲜化
+The Sixth Plenary Session of the Central Committee is the future of China’s North Koreanization
 
-根据郭文贵先生爆料，为狙击美元，中共在全球加大对石油等大宗商品的掌控，今年已与中东阿联酋等国家签订5000亿美元的石油订单，并将以人民币或数字人民币计价，同时还将联合俄罗斯、伊朗以及非洲等国家力推数字人民币的落地使用。可以预计，中美在大宗商品领域的计价之争还将愈演愈烈。
+还是走向国际化，那么既然经济决定了这个以后
+or still going internationalization, so now that the economy determines it in the future
 
-信息来源：
+那就是北朝鲜的金氏家族权力化，还是所谓的共产党过去的九龙治水化
+That is just like the power of the Kim family in North Korea, or the so-called Communist Party’s “Nine Dragons Rule the Water” in the past
 
-[央行国际司朱隽：大宗商品是人民币贸易计价突破的重要领域](https://finance.sina.com.cn/roll/2021-10-24/doc-iktzqtyu3259879.shtml)
+不存在民主法治啊，不就这么简单吗
+There is no democracy and the rule of law choice at all, isn’t it that simple?
 
-(文章仅代表作者本人观点，与GNEWS无关)
+再一个就是继承人，谁说了算的问题
+The other one is the heir, the question of who has the power
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+没有想的不可能跟任何人讨论，不可能任何讨论
+Impossible to discuss with anyone, impossible to discuss at all
+
+一定是习说了算，那谁要想试图想跟他讨论一定会被消灭
+Xi must have the final words, then anyone who tries to discuss with him will be wiped out
+
+那消灭的方式是什么，
+What is the way to eliminate it?
+
+最好的方式对中国人很幸运的是毛泽东当年发动的文化大革命
+The best way for the Chinese is lucky to be the Cultural Revolution initiated by Mao Zedong.
+
+最坏的方式就是斯大林的时代的到来
+The worst way is the arrival of Stalin’s era in China
+
+* * *
+
+Date:10/23/2021
+原视频标题:中国的未来都在由习一人决定
+China’s future is determined by Xi alone
+原视频日期：2021/10/22
+原视频接:[https://twitter.com/se1y7cblljselva/status/1451901265026318341?s=24](https://twitter.com/se1y7cblljselva/status/1451901265026318341?s=24)
+任务编号：KC193（2648）
+视频时间段 : 0:00-1:01
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
