@@ -2,185 +2,34 @@
 ---
 
 
-## 新中国联邦拯救中国企业家的两个条件
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1616263/)
+## 有法治的地方
+` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1616275/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2626.png)
-[https://gtv.org/video/id=6176251c247c5a3f908facad](https://gtv.org/video/id=6176251c247c5a3f908facad)
+By：银河勇气星｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/10/rules-g81e0eee80_1920.jpg)图源：网路
+这几次大直播，七哥给我们普及了不少法律常识。比如，美股上市公司的CEO/负责人，当你被刑事调查，或者像共产党的“双规”以后，必须不能捂着，一定要有一个正式的通告发出来，要告知美国政府，你惹了官司。如果没有告知，股民还在持有本公司的股票，造成损失的，可以向法庭提起诉讼，告他欺诈。还有就是短时间操纵股市上上下下起伏特别大的，股民有权利诉讼该公司在操弄股市，4人以上就可以是集体诉讼，这种官司赢的几率非常大，不管是买了一股还是几股，都可以让他赔钱赔到倾家荡产。
 
-**郭文贵
-Miles Guo**
+如果这事儿发生在中共国是什么样的？三字经回答：割韭菜。中共国不知道从什么时候突然开始流行炒股票了，自从开始流行炒股了，市面上就出现了各种各样的大师，什么K线财经大师，什么神算子，水浅王八多，遍地是大哥。大师的收费标准一般都是，提前你要给他一份钱，简单来说叫指导费。他指导你买哪一支，你就买哪一支，赚了分他一半，不赚不赔持平，赔了他不会管你的，不管你是赚是赔，他那个指导费是稳赚的。如果一个人是所谓的“股神”，他如何提前知道哪一支能够赚到钱？他舍得把自己的赚钱之道传授给别人吗？K线到底是用来忽悠谁的？
 
-我可以告诉中国所有的企业家
-I can tell all entrepreneurs in China
+![](https://assets.gnews.org/wp-content/uploads/2021/10/DkD1qazWwAAmmFQ.jpg)中共国的金融难民 / 图源：网路
 
-爆料革命新中国联邦
-The whistleblowers and the New Federal States of China
+这种所谓的“股神”、“大师”，通俗意义上来讲也是agent。有个关于淘金的故事，是这样讲的：说某地发现了大金矿，淘金者兴冲冲跑过去很多人。去淘金的人越来越多，后面去的人几乎都挖不到金子了。而挖到金子的都是前几位跑过去的人，赚到了很多。这件事里，还有一种人是稳赚不赔的，那就是发现金矿的地方荒无人烟，人们需要乘船进去开采，采到金子也要船只运出去。运输成为淘金热中必不可少的中间工具，无论有没有金子，总有人要进去，总有人要出去，所以船只运输稳赚不赔。这个船只和那些个“股神”比起来，是具有真正的作用的，它是一个必备的过程。可那些“股神”，天天看K线的大师，他们没有任何真正的作用，他们依然稳赚不赔。除了天天撒谎骗人，他们还有啥别的长处没有？而国内可怜的炒股人，也不能说可怜。国内炒股的人，按理说其实都有点投机心理，本来他们可能都是想去买彩票的，因为买彩票经过了那么多年的发展，规则变得透明而普遍化，中了就是中了，中了几个就是几个（除了彩票的那些高官在后面内定谁中奖，或者贪腐那些另说），彩票的中奖概率太低了。而股票玩法就多了，可以赚多可以赚少，K线，走势，买入，加仓，这些个名词看起来陌生，越是专业词汇越容易让那些“股神”发挥那张三寸不烂之舌，什么话都能说出个因为所以来。普通股民被骗得一愣一愣的，你受骗了，你去报警，民警会告诉你那是你自找的，不会给你任何解决方案。钱被骗了就是骗了，谁让你钱多，你活该被骗。更有甚者，钱被骗了，明明就是那个大师让他买了赔钱的那一支，他还要哭哭啼啼回来又另外找个股神来骗他。
 
-可以协调全世界超过80个国家
-can coordinate with more than 80 countries around the world
+![](https://assets.gnews.org/wp-content/uploads/2021/10/400b4b81ba1c4d6b94914cae636080f8.jpg)图源：网路
 
-来给你们提供方便
-to provide you convenience
+但事实上是，中共国本身都是诈骗起家的，假骗偷是他们炉火纯青的技能，股市这种又怎么能脱离假骗偷呢？国内那些被割韭菜的股民们，在股市输了以后甚至把跳楼这样的事情编成段子。股市价格波动能把人给逼到跳楼，这不是操纵股市这是干什么？法律上来说，完全可以去告他，告到他倾家荡产。这是正常法治社会国家的老百姓的做法，而中共国的老百姓，没有法律，没有地方说理去。韭菜割了就割了，记得去年几个大基金没有如期兑付，老百姓拉着横幅到他们楼下，没有得到任何解决，极有可能还被维稳了，你的钱就是被套在里面不给你取。基金不给你兑付，也不让你卖掉，银行也不让你取钱，出去拉横幅抗议还会受到生命威胁。这就是在中共国没有法治的情况下，一个普通老百姓，生命安全，财产安全，最基本的人权，没有任何保障。
 
-我们可以保证你们私人企业家的家人
-and we can guarantee that all private entrepreneurs’ families
+为什么国家从来没有告诉老百姓什么是金融？因为老百姓一旦知道金融是什么，那谁还会被国家政府机构牵着鼻子骗？中共国已经从诈骗中国老百姓，到诈骗美国老百姓了，还是打着川普总统反共的幌子，让支持川普总统反共的老百姓的钱全部被这个SPAC公司洗走了。共产党太疯狂了，简直太不可理喻了。美国是有法律的，人类是有正道主义的力量的。
 
-还有你们到了这些国家（后）
-and you when arrive to these countries
-
-我们给你提供所有的合法的
-we will provide you with all legal assistance
-
-政府和法律界的帮助
-from the government and the legal profession
-我们就要求你两个条件
-We only ask you to comply with two requirements:
-
-第一个和当地政府合作
-The first one is to cooperate with the local government
-
-揭穿、揭发、审判
-to reveal, expose, and judge
-
-共产党在西方的经济超限战、技术超限战
-the Communist Party’s unrestricted warfare in the Western on economy, technology
-
-政治超限战、军事超限战、情报超限战
-politics, military, and intel
-
-推翻共产党，这是第一个
-and to overthrow the Communist Party. This is the first one (requirement)
-
-第二个
-Secondly,
-
-我们让你配合的
-we will ask you to cooperate
-
-只要是你们能和我们合作的
-as long as you can cooperate with us
-
-你们必须要坚定地、坚决地
-you must firmly and resolutely
-
-承认《新中国联邦宣言》
-recognize the “The New Federal State of China Declaration”
-
-我们给你一切可能的帮助
-We will provide you all possible help
-
-信不信由你
-believe it or not, it’s up to you
-
-我不相信除了新中国联邦
-I believe no one else but the New Federal State of China
-
-还有任何人能给你提供这个帮助的
-can provide you with this help
-
-我可以告诉你们
-I can tell you that
-
-不信你们可以试试
-you can try if you don’t believe it
-
-在过去的半年内，我想你们都知道
-I think you all know that in the past six months
-
-新中国联邦救了多少人
-how many people have been saved by the New Federal State of China
-
-我们即使到北京城
-We can even go to Beijing
-
-除了中南坑我们进不去
-except the Zhongnanhai(the Chinese version of US White House)
-
-救人绝对做不到啊
-we are absolutely not able to take people out from there
-
-在天安门上我都把你救出来
-But we are able to get you out although you stuck in the Tiananmen Square
-
-你在天安门城楼上
-at the Tiananmen tower
-
-我都能把你救出来
-We still can save you
-
-在全世界上没有一个地方我们做不到的
-There is nowhere in the world that we cannot do that
-
-只要想救你
-as long as we are willing to save you
-
-如果你们需要我们拯救你
-If you need us to save you
-
-你必须前提答应这个（指以上两个条件）
-you must agree to this (referring to the above two conditions)
-
-我们不要你一分钱
-We don’t need a penny from you
-
-我们不要你做任何贡献
-we don’t need you to make any contributions
-
-更不会让你跟我们双修
-we won’t need you to have sex with us
-
-（调侃：这马云这小个双修也不行啊，呵）
-(teasing Jack Ma’s sexual life)
-
-我们只要求你和当地的政府合作
-We only ask you to cooperate with the local government
-
-因为(这是）我们救你的条件
-because (this) is the requirement that we will save you
-
-还有承认新中国联邦，灭共
-as well as to recognize the New Federal State of China and destroy the Communist Party
-
-就这么简单
-It’s that simple
-
-我们给你们提供一个正常人的生活的物质条件
-We will provide you with material conditions for living as people in general
-
-你想过什么豪华生活
-You want to live a luxurious life
-
-那什么私人飞机
-with that private jet
-
-那不可能
-It is impossible
-
-正常人的生活
-It will be a normal life like other people
-
-保证你安全
-ensuring your safety
-
-这就是今天直播重点中之重
-This is the top priority of today’s live broadcast
+这一路走来真是不可思议，共产党每走一步都是一个大坑。果然上天要其灭亡，必先使其疯狂。
 
 * * *
 
-Date: 10/21/2021
-原视频标题: 新中国联邦拯救中国企业家的两个条件
-The two Conditions that the New Federal State of China Rescues Chinese Entrepreneurs
-原视频日期：2021/10/20
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1451146697661292551?s=24](https://twitter.com/se1y7cblljselva/status/1451146697661292551?s=24)
-任务编号：KC191（2626）
-视频时间段 : 0:00-2:09
-英听校： 洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+***文章内容仅代表作者观点***
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+作者：骄子
+审核：兵嫂、天雷滚滚
+发布：骄子
+
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/欢迎战友回家-2.jpeg)

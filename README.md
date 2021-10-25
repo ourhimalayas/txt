@@ -15,73 +15,73 @@
 
 ---
 
-### [香港难逃粮食危机](/content/gnews/1/README.md)
+### [川普的新社交媒体颇具争议，因其非常党派化](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [习近平意识到新中国联邦将取代中共政权](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西站出品（之）– 七哥讲堂（II）](/content/gnews/2/README.md)
+### [香港难逃粮食危机](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [西站出品（之）– 七哥讲堂（II）](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有法治的地方](/content/gnews/3/README.md)
+### [有法治的地方](/content/gnews/5/README.md)
  ` 银河勇气之星`
 
-### [中国的未来都在由习一人决定](/content/gnews/4/README.md)
+### [中国的未来都在由习一人决定](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新中国联邦拯救中国企业家的两个条件](/content/gnews/5/README.md)
+### [新中国联邦拯救中国企业家的两个条件](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文·贵天成——文贵先生谈“马云”（十四）](/content/gnews/6/README.md)
+### [文·贵天成——文贵先生谈“马云”（十四）](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：证据确凿，参议员兰德·保罗要求拜登政府解雇福奇](/content/gnews/7/README.md)
+### [大直播7·24——良渚文化和玉琮](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [秘翻在线：证据确凿，参议员兰德·保罗要求拜登政府解雇福奇](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [共产党绑架马云在海外抬高股价，公开欺骗全世界这是国家级刑事犯罪](/content/gnews/8/README.md)
+### [共产党绑架马云在海外抬高股价，公开欺骗全世界这是国家级刑事犯罪](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文·贵天成——文贵先生谈“马云”（十三）](/content/gnews/9/README.md)
+### [文·贵天成——文贵先生谈“马云”（十三）](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [世卫首席专家：疫苗不是万灵丹](/content/gnews/10/README.md)
+### [世卫首席专家：疫苗不是万灵丹](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文·贵天成——文贵先生谈“马云”（十二）](/content/gnews/11/README.md)
+### [文·贵天成——文贵先生谈“马云”（十二）](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新华社发文“十问中国经济”， 中共十九届六中全会路线之争已摆到明面](/content/gnews/12/README.md)
+### [新华社发文“十问中国经济”， 中共十九届六中全会路线之争已摆到明面](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共央行：大宗商品计价是数字人民币国际化的重要突破领域](/content/gnews/13/README.md)
+### [中共央行：大宗商品计价是数字人民币国际化的重要突破领域](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西南航空飞行员接受采访，抗议疫苗强制令](/content/gnews/14/README.md)
+### [西南航空飞行员接受采访，抗议疫苗强制令](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文·贵天成——文贵先生谈“马云”（十一）](/content/gnews/15/README.md)
+### [文·贵天成——文贵先生谈“马云”（十一）](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [读欧洲议会简报-欧中关系处在充满挑战的时期（二）](/content/gnews/16/README.md)
+### [读欧洲议会简报-欧中关系处在充满挑战的时期（二）](/content/gnews/19/README.md)
  ` 澳喜农场`
 
-### [突发：自愿接受辉瑞疫苗试验 13 岁女孩受伤又遭审查](/content/gnews/17/README.md)
+### [突发：自愿接受辉瑞疫苗试验 13 岁女孩受伤又遭审查](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [10月25日 澳喜要闻摘要](/content/gnews/18/README.md)
+### [10月25日 澳喜要闻摘要](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [COVID-19最新情报｜澳洲数据显示 新冠疫苗推行 死亡率不降反升](/content/gnews/19/README.md)
+### [COVID-19最新情报｜澳洲数据显示 新冠疫苗推行 死亡率不降反升](/content/gnews/22/README.md)
  ` G&#124;News TAIWAN`
 
-### [中共国网络爱国军](/content/gnews/20/README.md)
- ` Charlie`
-
-### [雅虎也离开了苹果数字商店](/content/gnews/21/README.md)
- ` Charlie`
-
-### [中共推动《无线电频谱资源法》纳入立法规划](/content/gnews/22/README.md)
- ` 儒为`
-
-### [中共国部署老战机改装无人机](/content/gnews/23/README.md)
+### [中共国网络爱国军](/content/gnews/23/README.md)
  ` Charlie`
 
 ### [143 名俄勒冈州居民接种辉瑞疫苗后因 COVID-19 而死亡](/content/gnews/24/README.md)
@@ -90,37 +90,37 @@
 ### [南卡联邦法官拒绝阻止强制接种限制令](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共为加入CPTPP表示将放宽政府采购规则](/content/gnews/26/README.md)
+### [喜币——中国人为全世界打造的诺亚方舟](/content/gnews/26/README.md)
+ ` 首尔天池农场`
+
+### [中共为加入CPTPP表示将放宽政府采购规则](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳洲漫画家发表与天安门事件对比的反疫苗漫画后失业](/content/gnews/27/README.md)
+### [澳洲漫画家发表与天安门事件对比的反疫苗漫画后失业](/content/gnews/28/README.md)
  ` 走进澳洲`
 
-### [“紧急状态”是中共释放的中共病毒疫情加重信号](/content/gnews/28/README.md)
+### [“紧急状态”是中共释放的中共病毒疫情加重信号](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [喜币即将上市 具有最佳增值潜力](/content/gnews/29/README.md)
+### [喜币即将上市 具有最佳增值潜力](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [文贵视角（10/24）父母家庭是我们的根 吴征杨澜的生活如地狱](/content/gnews/30/README.md)
+### [文贵视角（10/24）父母家庭是我们的根 吴征杨澜的生活如地狱](/content/gnews/31/README.md)
  ` 秘密翻译组-原创组`
 
-### [福奇国家卫生院官网偷偷将“功能增强”内容删除](/content/gnews/31/README.md)
+### [福奇国家卫生院官网偷偷将“功能增强”内容删除](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [强生和辉瑞疫苗中的纳米颗粒会持续增长从而形成血栓](/content/gnews/32/README.md)
+### [强生和辉瑞疫苗中的纳米颗粒会持续增长从而形成血栓](/content/gnews/33/README.md)
  ` 澳喜农场`
 
-### [10/20郭文贵直播：正告国内企业家仅需满足两个条件，新中国联邦可给予一切帮助（粤语配音）](/content/gnews/33/README.md)
+### [10/20郭文贵直播：正告国内企业家仅需满足两个条件，新中国联邦可给予一切帮助（粤语配音）](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [10/17郭文贵直播：下一个抓的一定是杨洁篪（粤语配音）](/content/gnews/34/README.md)
+### [10/17郭文贵直播：下一个抓的一定是杨洁篪（粤语配音）](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [10/17郭文贵直播：江志成是当着江家的面从新加坡被绑架回中共国的（粤语配音）](/content/gnews/35/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [10/17郭文贵直播：再谈中共国房地产（粤语配音）](/content/gnews/36/README.md)
+### [10/17郭文贵直播：江志成是当着江家的面从新加坡被绑架回中共国的（粤语配音）](/content/gnews/36/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [秘翻在线：盖特（GETTR）是澳大利亚人发声的希望](/content/gnews/37/README.md)

@@ -2,58 +2,63 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“马云”（十四）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1616252/)
+## 中国的未来都在由习一人决定
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1616270/)
 
-#### 整理：BENJ1
-编辑：李易通
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2648.png)
+[https://gtv.org/video/id=6176262e247c5a3f908fad16](https://gtv.org/video/id=6176262e247c5a3f908fad16)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_2536.jpg)图片来源：雅典娜设计组（精灵蓝）
+**郭文贵
+Miles Guo**
 
+跟你们讲今天谈这个六中全会的时候，
+today when we talk about the Sixth Plenary Session of the Central Committee of the Communist Party of China
 
-**往期回顾：**
-[文·贵天成——文贵先生谈“马云”（一）](https://gnews.org/zh-hans/1611703/)
-[文·贵天成——文贵先生谈“马云”（二）](https://gnews.org/zh-hans/1611834/)
-[文·贵天成——文贵先生谈“马云”（三）](https://gnews.org/zh-hans/1611836/)
-[文·贵天成——文贵先生谈“马云”（四）](https://gnews.org/zh-hans/1611880/)
-[文·贵天成——文贵先生谈“马云”（五）](https://gnews.org/zh-hans/1612653/)
-[文·贵天成——文贵先生谈“马云”（六）](https://gnews.org/zh-hans/1613697/)
-[文·贵天成——文贵先生谈“马云”（七）](https://gnews.org/zh-hans/1613780/)
-[文·贵天成——文贵先生谈“马云”（八）](https://gnews.org/zh-hans/1613780/)
-[文·贵天成——文贵先生谈“马云”（九）](https://gnews.org/zh-hans/1614200/)
-[文·贵天成——文贵先生谈“马云”（十）](https://gnews.org/zh-hans/1614334/)
-[文·贵天成——文贵先生谈“马云”（十一）](https://gnews.org/zh-hans/1616205/)
-[文·贵天成——文贵先生谈“马云”（十二）](https://gnews.org/zh-hans/1616228/)
-[文·贵天成——文贵先生谈“马云”（十三）](https://gnews.org/zh-hans/1616237/)
+六中全会是中国的未来的是北朝鲜化
+The Sixth Plenary Session of the Central Committee is the future of China’s North Koreanization
 
-**郭文贵先生****2021****年****2****月****27****日盖特：**
+还是走向国际化，那么既然经济决定了这个以后
+or still going internationalization, so now that the economy determines it in the future
 
-关于蚂蚁金服，听说江家的态度非常明确：绝对不允许习拿走，必须让马云自由，必须让蚂蚁金服回到本质，因为马云的东西就是江家的。
+那就是北朝鲜的金氏家族权力化，还是所谓的共产党过去的九龙治水化
+That is just like the power of the Kim family in North Korea, or the so-called Communist Party’s “Nine Dragons Rule the Water” in the past
 
-**郭文贵先生****2021****年****2****月****28****日直播：**
+不存在民主法治啊，不就这么简单吗
+There is no democracy and the rule of law choice at all, isn’t it that simple?
 
-还有一个，世界上最奇葩的一个规则就是我们中国的马云同志创造的，叫同股不同权。什么叫同股不同权？我是一股，你是一万股，你不是有一万股的权力，而我有一股但我可能有十万股的权力，说白了我不管有多少股权，但控制权在我手里边，这就叫同股不同权。即使是在美国这种法制国家，纳斯达克也给他让了路，香港最后也默默地答应了他，可见江家势力之大，这才叫江湖。
+再一个就是继承人，谁说了算的问题
+The other one is the heir, the question of who has the power
 
-**郭文贵先生****2021****年****3****月****5****日直播：**
+没有想的不可能跟任何人讨论，不可能任何讨论
+Impossible to discuss with anyone, impossible to discuss at all
 
-虽然我没跟马云合作，但我告诉马云的律师，我让他告诉Jack Ma：第一条，不要混到有一天真的吃饭都没得吃的时候，连司机都没有的时候，那样就惨了，最起码积点德，在海外有人能借给他钱花。第二，在海外买点真正的金融产品，不管任何情况发生，至少家里人有口饭吃。现在Jack Ma连跟他生孩子的那个女人的房租钱都缴不起，虽然他买了很多房子，澳门有房子，香港也有房子，日本也有他的房子，他现在到了美国、加拿大就没房子了，因为他当时没有合法身份，只能从拉斯维格斯住一段时间，又从旧金山住一段时间。但最终共产党都得给你收了，它会想尽一切办法把你的房子都弄走。但凡你马云有点智慧，你去买点CCP拿不走的资产。比如说你做一些金融产品，你像那个以色列，有很多可以提现的黄金的、白银的、钻石的证券，比如说好的股票投资项目，像GTV这种股票，谁也拿不走的，我说你弄一些，任何情况下你家人最起码有饭吃。
+一定是习说了算，那谁要想试图想跟他讨论一定会被消灭
+Xi must have the final words, then anyone who tries to discuss with him will be wiped out
 
-**郭文贵先生****2021****年****4****月****15****日直播：**
+那消灭的方式是什么，
+What is the way to eliminate it?
 
-我之前说过，马云还有可能出来进进出出，最后“啪”给放了，大家别想黄色的事儿，你别一听就想黄色，我知道你们在想黄色。
+最好的方式对中国人很幸运的是毛泽东当年发动的文化大革命
+The best way for the Chinese is lucky to be the Cultural Revolution initiated by Mao Zedong.
 
-共产党要用马云，我最早告诉大家的。共产党在2018年底都已经告诉马云，你出国的话，你老婆孩子必须在家，不管你老婆孩子得不得癌症都得在国内；你待在国内你老婆孩子可以出国，反正你全家不能一次出国。现在虽然共产党把马云的东西拿走了，但马云在全世界的影响力还在，所以共产党还得让马云出去骗钱去。这个世界太可怕了，即使把你给绑架了、强奸了、鸡奸了、轮奸完了，还得拿你的家人做人质，再把你放出去拉客人去。
+最坏的方式就是斯大林的时代的到来
+The worst way is the arrival of Stalin’s era in China
 
-让他出现在俄罗斯，俄罗斯是谁能控制的？共产党啊。怎么不让他先来纽约呢？为什么先让他去俄罗斯露露脸儿？就像那次露露脸出出视频一样，下次也可能去巴基斯坦、马来西亚，让刘特佐陪着，是吧？再出出镜。你让马云来美国是吧？让大家觉得马云是真自由了。他来美国、英国才是真自由，去其他国家都不算数，去意大利都不算数，去达沃斯论坛那里带着70个厨师，那就更不算数了是吧？这就是共产党。
+* * *
 
-马云这几万亿且得死人呢，早着呢。那得让马云进进出出，进去出来，”啪”给他放了，进去出来、进去出来，“啪”给他放了。三秒啊，超过三秒，进去出来两秒，放了，三秒。马云大概得30秒进去出来、进去出来，露露面、出出视频、消失了，“嚓”又出来了，到俄罗斯了；“唰”又回去了，“唰”又出来了，杨雄死了，“嚓”又回来了，“嚓”又出来了，到欧洲某国了；“嚓、嚓、嚓”蚂蚁金服没了，“嚓、嚓、唰”阿里巴巴没了；“嚓、嚓、嚓”杨雄死了，“嚓、嚓、嚓”江绵恒死了，这真是挺可怕的！
+Date:10/23/2021
+原视频标题:中国的未来都在由习一人决定
+China’s future is determined by Xi alone
+原视频日期：2021/10/22
+原视频接:[https://twitter.com/se1y7cblljselva/status/1451901265026318341?s=24](https://twitter.com/se1y7cblljselva/status/1451901265026318341?s=24)
+任务编号：KC193（2648）
+视频时间段 : 0:00-1:01
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-但是就那么几个家族，共产党就能操纵一个国家就像操纵马云一样，而中国人就信：你看马云没事了，马云没事了。比如我上海的某个做信托的哥们儿跟我说：“七哥，马云绝对出来了，我今天看见他了，没事儿了。”我就给他发了一个七哥的emoji，我说：“你太棒了。”我能说啥呀？我说你傻？那说太棒了，希望马云一路走好，多进进出出。马云未来就是个死亡机器，进一次死人、出一次死人、进一次死人、出一次死人，最后自己死掉，就这么简单。整个中国十四亿人，就被愚蠢的共产党这么愚昧着。
-
-***发布：小红帽***
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

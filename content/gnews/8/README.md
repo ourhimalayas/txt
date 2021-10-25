@@ -2,96 +2,58 @@
 ---
 
 
-## 共产党绑架马云在海外抬高股价，公开欺骗全世界这是国家级刑事犯罪
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1616241/)
+## 文·贵天成——文贵先生谈“马云”（十四）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1616252/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2625.png)
-[https://gtv.org/video/id=617625c5247c5a3f908face8](https://gtv.org/video/id=617625c5247c5a3f908face8)
+#### 整理：BENJ1
+编辑：李易通
 
-**郭文贵
-Miles Guo**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_2536.jpg)图片来源：雅典娜设计组（精灵蓝）
 
-让马云到西班牙在绑架状态的情况下，去处理自己的物业和资产及游艇
-Jack Ma went to Spain under the condition of kidnapping and forced to deal with his own property, assets and yachts
 
-同时放出这个信息，是为了抬高整个阿里巴巴上市的股价
-At the same time, this message is sent out to hype the stock price up of the entire Alibaba listing
+**往期回顾：**
+[文·贵天成——文贵先生谈“马云”（一）](https://gnews.org/zh-hans/1611703/)
+[文·贵天成——文贵先生谈“马云”（二）](https://gnews.org/zh-hans/1611834/)
+[文·贵天成——文贵先生谈“马云”（三）](https://gnews.org/zh-hans/1611836/)
+[文·贵天成——文贵先生谈“马云”（四）](https://gnews.org/zh-hans/1611880/)
+[文·贵天成——文贵先生谈“马云”（五）](https://gnews.org/zh-hans/1612653/)
+[文·贵天成——文贵先生谈“马云”（六）](https://gnews.org/zh-hans/1613697/)
+[文·贵天成——文贵先生谈“马云”（七）](https://gnews.org/zh-hans/1613780/)
+[文·贵天成——文贵先生谈“马云”（八）](https://gnews.org/zh-hans/1613780/)
+[文·贵天成——文贵先生谈“马云”（九）](https://gnews.org/zh-hans/1614200/)
+[文·贵天成——文贵先生谈“马云”（十）](https://gnews.org/zh-hans/1614334/)
+[文·贵天成——文贵先生谈“马云”（十一）](https://gnews.org/zh-hans/1616205/)
+[文·贵天成——文贵先生谈“马云”（十二）](https://gnews.org/zh-hans/1616228/)
+[文·贵天成——文贵先生谈“马云”（十三）](https://gnews.org/zh-hans/1616237/)
 
-抬高之后，共产党让马云马上将自己代持（的）和自己的股票出手
-After hyping the price up, the Communist Party will force Jack Ma to immediately sell his holding stocks and his own stocks
+**郭文贵先生****2021****年****2****月****27****日盖特：**
 
-这是公开的, 共产党国家级的，操纵股市刑事诈骗
-This is public, communist party state-level, and criminal fraud manipulating the stock market
+关于蚂蚁金服，听说江家的态度非常明确：绝对不允许习拿走，必须让马云自由，必须让蚂蚁金服回到本质，因为马云的东西就是江家的。
 
-记住啊，所有全世界的金融机构，记住郭文贵今天说的话
-Remember, this is to all financial institutions in the world, remember what Miles Guo said today
+**郭文贵先生****2021****年****2****月****28****日直播：**
 
-10月20号，中国共产党和马云在绑架马云（全家）28人和他的21个高管的全部家人
-On October 20th, the Chinese Communist Party had kidnapped Jack Ma’s 28 family members and all the family members of his 21 executives
+还有一个，世界上最奇葩的一个规则就是我们中国的马云同志创造的，叫同股不同权。什么叫同股不同权？我是一股，你是一万股，你不是有一万股的权力，而我有一股但我可能有十万股的权力，说白了我不管有多少股权，但控制权在我手里边，这就叫同股不同权。即使是在美国这种法制国家，纳斯达克也给他让了路，香港最后也默默地答应了他，可见江家势力之大，这才叫江湖。
 
-20个中国的警察和中纪委政府官员，包括人民银行，
-There’re 20 Chinese polices and the Central Commission for Discipline Inspection, including the People’s Bank of China
+**郭文贵先生****2021****年****3****月****5****日直播：**
 
-20个人里边，7个是来自警察特警，另外的来自中纪委
-Among the 20 kidnappers, 7 are from special police forces, and the others are from the Central Commission for Discipline Inspection
+虽然我没跟马云合作，但我告诉马云的律师，我让他告诉Jack Ma：第一条，不要混到有一天真的吃饭都没得吃的时候，连司机都没有的时候，那样就惨了，最起码积点德，在海外有人能借给他钱花。第二，在海外买点真正的金融产品，不管任何情况发生，至少家里人有口饭吃。现在Jack Ma连跟他生孩子的那个女人的房租钱都缴不起，虽然他买了很多房子，澳门有房子，香港也有房子，日本也有他的房子，他现在到了美国、加拿大就没房子了，因为他当时没有合法身份，只能从拉斯维格斯住一段时间，又从旧金山住一段时间。但最终共产党都得给你收了，它会想尽一切办法把你的房子都弄走。但凡你马云有点智慧，你去买点CCP拿不走的资产。比如说你做一些金融产品，你像那个以色列，有很多可以提现的黄金的、白银的、钻石的证券，比如说好的股票投资项目，像GTV这种股票，谁也拿不走的，我说你弄一些，任何情况下你家人最起码有饭吃。
 
-还有来自中国所有的人民银行，这些国家政府高官们
-and from all the People’s Bank of China, these senior government officials
+**郭文贵先生****2021****年****4****月****15****日直播：**
 
-隐藏公务身份到西班牙去操作海外媒体，炒作抬高阿里巴巴的股价
-were hiding their official status and went to Spain to manipulate overseas media, hype up Alibaba’s share price
+我之前说过，马云还有可能出来进进出出，最后“啪”给放了，大家别想黄色的事儿，你别一听就想黄色，我知道你们在想黄色。
 
-这是公开的国际的刑事操作和犯罪，这20个人，我知道每个人的名字
-This is an openly international criminal operation and crime, and I know everyone’s name of these 20 special forces
+共产党要用马云，我最早告诉大家的。共产党在2018年底都已经告诉马云，你出国的话，你老婆孩子必须在家，不管你老婆孩子得不得癌症都得在国内；你待在国内你老婆孩子可以出国，反正你全家不能一次出国。现在虽然共产党把马云的东西拿走了，但马云在全世界的影响力还在，所以共产党还得让马云出去骗钱去。这个世界太可怕了，即使把你给绑架了、强奸了、鸡奸了、轮奸完了，还得拿你的家人做人质，再把你放出去拉客人去。
 
-我知道每个人的身份，我知道他们每个人的家庭背景
-I know the identity of each of them, I know the family background of each of them
+让他出现在俄罗斯，俄罗斯是谁能控制的？共产党啊。怎么不让他先来纽约呢？为什么先让他去俄罗斯露露脸儿？就像那次露露脸出出视频一样，下次也可能去巴基斯坦、马来西亚，让刘特佐陪着，是吧？再出出镜。你让马云来美国是吧？让大家觉得马云是真自由了。他来美国、英国才是真自由，去其他国家都不算数，去意大利都不算数，去达沃斯论坛那里带着70个厨师，那就更不算数了是吧？这就是共产党。
 
-他们的家人也是被绑架的，怕他们跟马云串通
-Their family members were also kidnapped to be hostages because officials were afraid that they would collude with Jack Ma
+马云这几万亿且得死人呢，早着呢。那得让马云进进出出，进去出来，”啪”给他放了，进去出来、进去出来，“啪”给他放了。三秒啊，超过三秒，进去出来两秒，放了，三秒。马云大概得30秒进去出来、进去出来，露露面、出出视频、消失了，“嚓”又出来了，到俄罗斯了；“唰”又回去了，“唰”又出来了，杨雄死了，“嚓”又回来了，“嚓”又出来了，到欧洲某国了；“嚓、嚓、嚓”蚂蚁金服没了，“嚓、嚓、唰”阿里巴巴没了；“嚓、嚓、嚓”杨雄死了，“嚓、嚓、嚓”江绵恒死了，这真是挺可怕的！
 
-但是我可以负责任的，今天第三个告诉大家，
-But I can be responsible to say, I will tell you today, the third one is
+但是就那么几个家族，共产党就能操纵一个国家就像操纵马云一样，而中国人就信：你看马云没事了，马云没事了。比如我上海的某个做信托的哥们儿跟我说：“七哥，马云绝对出来了，我今天看见他了，没事儿了。”我就给他发了一个七哥的emoji，我说：“你太棒了。”我能说啥呀？我说你傻？那说太棒了，希望马云一路走好，多进进出出。马云未来就是个死亡机器，进一次死人、出一次死人、进一次死人、出一次死人，最后自己死掉，就这么简单。整个中国十四亿人，就被愚蠢的共产党这么愚昧着。
 
-这20个绑架马云的所有来自中国各部门的，让马云在海外处置资产的人
-these 20 people who kidnapped Jack Ma came from various departments in China and will force Jack Ma dispose of assets overseas
+***发布：小红帽***
 
-几乎一半已经被马云给贿赂了，如果马云失控，
-Almost half of them have been bribed by Jack Ma if Jack Ma loses control
-
-那就是马云被这20个中收买的12个人给放出来了
-That is if Jack Ma was released by the 12 out of 20 people who was bought them
-
-如果马云被杀，那就是这20个人走的无间道
-If Jack Ma is killed, that is, there are undercover agents of the Jiang family in these 20 people
-
-代表江家把马云做掉，如果这两样都没发生，
-On behalf of the Jiang family for killing Jack Ma, if these two thing won’t happen
-
-股价大家记住涨完以后，马云的股票一定会被卖，
-everyone remember that after the stock price arises, Jack Ma’s stock will definitely be sold
-
-会大量的抛售, 诈骗成功，
-There will be a lot of selling out, and the fraud will be successful
-
-但最后的结局，他还是回到那两个要么被杀，要么送到监狱去
-But in the final outcome, he still returns to those two ends, and was either killed or sent to prison
-
-* * *
-
-Date:10/23/2021
-原视频标题:共产党绑架马云在海外抬高股价，公开欺骗全世界这是国家级刑事犯罪
-The Communist Party kidnapped Jack Ma in order to hype overseas stock price up and openly deceive the world, this is a national criminal offense
-原视频日期：2021/20/17
-原视频接:[https://twitter.com/se1y7cblljselva/status/1451147347019190273?s=24](https://twitter.com/se1y7cblljselva/status/1451147347019190273?s=24)
-任务编号：KC192（2625）
-视频时间段 : 0:00-2:08
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
