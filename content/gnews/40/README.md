@@ -2,34 +2,31 @@
 ---
 
 
-## 加拿大强制公务员接种疫苗涉侵犯隐私，联邦专员介入调查
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1617016/)
+## 盖特用户逼近300万，已经成为真正的全球媒体平台
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1617051/)
 
-蒙特利尔皇家山战友团 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/10/19819278-635x357-1.jpg)图片来源：RCI
-根据《CBC新闻》10月23 日报道，联邦隐私专员特里安Daniel Therrien周五在一份声明中说，他们正在调查强制公务员接种疫苗的隐私权问题。
+作者：纽约香草山农场 – Delilah小胖
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月24日，盖特首席执行官杰森·米勒先生在接受澳洲媒体采访时说，盖特用户不会因为在政治问题上发表意见而被“置于数字监狱”。
 
-自由党政府本月早些时候宣布，核心公务员必须接种COVID-19疫苗，否则最早将于11月15日面临停职停薪。特鲁多上周还宣布，各省和联邦政府已就国内和国际旅行的新国家疫苗护照达成一致。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-23.jpeg)
 
-隐私专员特里安说，在过去几个月里，他的办公室与联邦官员就旅行的标准化疫苗接种证明倡议进行了 “建设性的讨论”。
+米勒先生表示，盖特自今年7月4日推出以来“像火箭一样起飞”，已经拥有近300万用户。其中美国本土客户占47%，美国以外的客户占53%，因此，盖特成为真正的全球媒体平台。
 
-特里安说：“最近几天，我们办公室收到了一些与政府对联邦公务员的COVID-19疫苗接种要求有关的投诉。因此，我们将调查隐私原则在这种情况下的应用”。
+(本文仅代表作者观点)
 
-特里安指出，“在我们完成调查之前，提供结论是不合适的。疫苗护照可能会提供重大的公共卫生利益，但仍然是特殊措施。只有在仔细考虑了隐私和其他人权原则之后，才应该实施这些措施”。
+参考链接：[New free speech app GETTR won’t put users in ‘digital jail’ for speaking their minds](https://www.skynews.com.au/opinion/outsiders/new-free-speech-app-gettr-wont-put-users-in-digital-jail-for-speaking-their-minds/video/bb3cc4507e39c15cce065758348f6fc3)
 
-特鲁多强制联邦公务员、加拿大皇家骑警以及航空和铁路旅行者在月底前接种疫苗。保守党则表示反对对国会议员实行强制性疫苗规则的 “秘密 “行动。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-今年5月，专员特里安和其全国各地的同行认为，尊重有关个人信息的法律和原则必须指导引入疫苗接种证明，这可以使人们顺利过渡到大流行病后的生活。在联合声明中，联邦、省和地区的隐私专员指出，为了证明其合理性，疫苗护照必须是实现其预期的公共卫生目的所必需的，而且其在实现目标方面的有效性应该是基于证据的。与该举措相关的隐私风险必须与目的相称，个人信息收集有限，数据仅用于预期目标，并且该计划必须有一个到期日。
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：谐趣园
 
-特里安周五说”政府已经向我们提供了与这些标准中的每一项有关的信息“。
-
-如果政府提供了真实的信息，就没有证据支持强制疫苗的措施。我们持续关注其调查后公布的结果。
-
-（以上内容仅代表原文信息和作者个人观点）
-
-原文链接：
-[https://www.cbc.ca/amp/1.6222622](https://www.cbc.ca/amp/1.6222622)、
-
-* * *
-
-发稿 Spirit
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

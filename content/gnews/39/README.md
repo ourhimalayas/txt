@@ -2,17 +2,43 @@
 ---
 
 
-## 秘翻在线：习近平自2020年1月18日后首次出国门？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1617030/)
+## 中共国多地接连发生爆炸事故
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1617062/)
 
-**撰稿：四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-26-002843.jpg)
-据10月25日中共国外交部发言人汪文斌在记者会上确定，中共国外长王毅将于10月25日至26日访问卡塔尔，并于10月27日至29日访问希腊、塞尔维亚、阿尔巴尼亚和意大利。
+作者：美东香草山农场 – 山本不惑
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日来，中共国从北到南多个城市，接连发生爆炸事故。
 
-汪文斌在谈及此次访问的目的和考虑时表示，卡塔尔是中东海湾地区重要国家，也是中共国在中东海湾地区重要的能源、经贸合作伙伴，并在阿富汗等地区热点问题上有独特作用和影响。希腊、塞尔维亚、阿尔巴尼亚和意大利是中共国在欧洲的重要合作伙伴，是“一带一路”在欧洲的重要参与国家。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-20.jpeg)
 
-郭文贵先生的情报说这次习近平会悄悄和王毅一同出访这五国，很可能说明国内和江派的政治斗争已告一段落，用此次出行向即将召开的二十大和全党证明其有能力领导中共国，让中东和欧洲也都臣服于中共国的威逼利诱之下，使习可以顺利继续他的第三个五年任期。
+10月21日上午，辽宁沈阳市和平区的一家餐厅发生爆炸。当地出动多台殡仪馆车辆、消防车及120急救车。现场目击者称，爆炸升起的烟尘像一朵蘑菇云。爆炸威力巨大，严重波及整个街区。事故已造成4人死亡、3人重伤、44人轻伤。
 
-但是习近平超过600天不出国露真身也有种猜测是他的身体每况愈下，很多政治对手都希望他健康出事。因此习这次是否真的能用出国来证明自己的身体状况良好，并为顺利召开二十大铺平道路，还有很多变数值得观察，我们也将继续跟踪报道这次出访的情况。
+10月23日晚上，内蒙阿拉善盟发生爆炸。造成4人死亡、1人重伤、2人轻伤。爆炸发生地点位于，巴音敖包工业园区、蒙古中高化工有限公司的氧化车间。
 
-**[新闻来源](http://www.chinanews.com/gn/2021/10-25/9594719.shtml)**
+10月24日早上，辽宁大连瓦房店的一栋民居发生燃气爆炸。视频显示，爆炸引发了大火。事故造成2死7伤。不久前，在9月11日，大连市普兰店区一住户家中液化气罐泄漏并引发爆炸，造成8死5伤。
+
+10月24日下午，江苏南京航空航天大学的实验室发生爆炸，现场一度出现白色蘑菇云。爆炸发生地，位于材料科学与技术学院的实验楼。目击者称，现场两度传出爆炸声。事故已造成2死9伤。
+
+目前，关于这些爆炸案件的处理措施，中共官方没有任何后续报道。
+
+(本文仅代表作者观点)
+
+参考链接：
+1）[沈阳一饭店爆炸致4死47伤 事发区域此前发生过两次爆炸](https://news.sina.com.cn/c/2021-10-22/doc-iktzscyy1033489.shtml)
+2）[内蒙古阿拉善一化工厂爆炸已致4死3伤](http://www.news.cn/local/2021-10/23/c_1127987775.htm)
+3）[大连再发生燃气爆炸，2人死亡](https://www.dw.com/zh/大连再发生燃气爆炸2人死亡/a-59603728)
+4）[南京航空航天大学一实验室爆燃致2人死，有人听到不止一次爆炸声](https://news.sina.com.cn/c/2021-10-24/doc-iktzqtyu3315231.shtml)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：正义的小新
+编辑：文真 
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
