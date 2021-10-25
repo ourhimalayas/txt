@@ -2,29 +2,40 @@
 ---
 
 
-## 中共国5G基站建设放缓，日本零部件企业转向欧美
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1615377/)
+## 阿拉巴马州总检察长向拜登疫苗强制令说不
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1615402/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/12-13.png)[图片来源](https://www.8kcine.com/1949.html)
-日经新闻网10月22日消息，由于中共5G基站建设正在放缓，住友电气工业等日本零部件厂商将增加欧美的开发人员，推进拓展欧美市场。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-中国国家统计局的数据显示，1～8月的移动通信基站零部件的产量同比减少53％，按有数据的月份来看，连续11个月下滑。据统计，中共国占到全球通性基站市场的逾6成份额，零部件的产量与基站的建设动向基本成正比例。对日本的零部件厂商而言，大客户中共国的减速构成打击。村田制作所会长村田恒夫表示，“防止通信故障的零部件的需求正在下滑”。日本一家大型通信零部件企业则透露，“自2020年夏季起，多个面向中国华为技术的项目告吹”。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/A-9.jpg)al.com
+阿拉巴马州总检察长史蒂夫·马歇尔（Steve Marshall）表示，我将在法庭上挑战拜登的联邦-承包商（federal-contractor）疫苗强制令，以下是我的声明：
 
-住友电工将在2021财年（截至2022年3月）内把荷兰等欧美的开发人员数量翻一番。此举是为了能迅速将客户的要求体现到开发中。该公司用于5G基站的美国半导体工厂9月投产。目前，从住友电工的基站零部件的海外营收来看，中共国占9成。力争在5年后把欧美的比例从1成提高至5成。
+阿拉巴马州总检察长
+史蒂夫·马歇尔
 
-此外，日本电气硝子最早将于2022年成立专注于欧美的营业团队。该公司的光纤零部件有9成是面向中共国的工厂，今后将致力于欧美市场。
+联邦政府最近与阿拉巴马州的一些州机构和部门进行了沟通，表示它们受拜登的联邦承包商疫苗政策的约束，因此必须强制要求其雇员接种疫苗。
 
-东京大学社会科学研究所的丸川知雄教授表示，“一有变动就转向欧美的态度是中国无法接受的。日企需要制定在中国国内完成采购和制造等以中美供应链脱钩为前提的战略”。
+我想向阿拉巴马州人民保证，我的办公室将与这种侵犯个人自由、联邦制和分权的卑鄙行为作斗争。
 
-当前，中美产业链脱钩的实质动作不断加速，进一步带动其他西方国家与中共的脱钩，加之中共经济的持续恶化，越来外资外企必将从中共国市场转向或者撤离。
+我们将在法庭上挑战拜登的联邦承包商疫苗强制令，我将尽我所能，在12月8日联邦规定的最后期限之前解决这一问题。
 
-信息来源：
+（签名）
 
-[日本基站零部件企业开始转向欧美 (日经中文网)](https://cn.nikkei.com/industry/itelectric-appliance/46412-2021-10-21-05-00-27.html)
+言简意赅的声明，马歇尔总检察长一语中的，这是侵犯自由的卑鄙行径，我们必须与之斗争。州长们、州总检察长们、州议员们，起来，向邪恶说不，否则将会有更多的无辜者遭受阴谋集团迫害。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+声明文字整理：
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+ALABAMA ATTORNEY GENERAL
+
+STEVE MARSHALL
+
+The federal government has recently communicated to a number of state agencies and institutions in Alabama that they are subject to President Biden’s federal-contractor vaccine mandate and must therefore, force their employees to be vaccinated.
+
+I want to assure the people of Alabama that my office will fight this contemptible infringement upon individual liberty, federalism, and the separation of powers.
+
+We will be challenging President Bidens federal-contractor vaccine mandate in court, and I will do everything in my power to resolve this matter before the federally dictated deadline of December 8.
+
+（文章仅代表作者个人观点）
+
+原文链接：[https://twitter.com/AGSteveMarshall/status/1451701843311087617](https://twitter.com/AGSteveMarshall/status/1451701843311087617)

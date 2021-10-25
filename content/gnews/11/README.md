@@ -2,18 +2,19 @@
 ---
 
 
-## 中共为加入CPTPP表示将放宽政府采购规则
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1616047/)
+## 中共国网络爱国军
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1616185/)
 
-#### 翻译：坤霆
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-66.jpg)图片来源：网络截图
-10月25日日经新闻报道，本月早些时候，中共财政部在一份官方通知中告诉地方政府，只要外国拥有的供应商的产品在中共国制造，“必须确保他们公平参与政府采购的权利”。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10255.jpg)图片来自New highland Vision
+他们称自己是“自带干粮”的人，并自诩为中共国网络的骑士，因为他们反对任何冒犯中共国的人，并且和“五毛党”一起花时间无情地攻击任何胆敢批评当局的那些美国人和欧洲人、日本人和韩国人。
 
-这些指示的发布时间是中共国在9月宣布加入《跨太平洋合作伙伴关系全面进步协议》（CPTPP）后发布的，这表明北京正在为谈判奠定基础，谈判将考验其开放经济的意愿。
+这个群体现在在所有国际论坛表现得非常的明显，这场盛大的运动得到了党的批准，那就意味着它有更深层次的意义。它在新生代中如野火般蔓延，教导人们如果不这样，那就不是“地道的中国人”。妇女权利、人权、民主、多元文化等这些无国界问题均被被拒绝、批评和蔑视，被认为是腐蚀中共国社会纯洁性的制度。
 
-该通知允许对“与国家安全或秘密有关的采购计划”进行例外处理，因此这些指示将给市场准入带来多大的改善尚不清楚。国家安全的模糊界限也可能给当局如何实施规则引入任意性因素。
+在这些目标背后，我们只想看到一个，那就是对西方仇外心理已经重新开始规范什么是合法或不合法。习近平被认为是一位拥有帝王般巨大权力的新掌舵者，就像毛一样。他想将这个国家带回世界的中心，而现在看到的是，亚洲的未来从未如此不确定。
 
-在中共国，外国商业界人士欢迎这一通知，认为这是朝着正确方向迈出的一步，但他们表示他们需要时间看看在实践中会发生什么。日本政府消息人士表示，“中国达到CPTPP设定的高标准至关重要。不可能有让步，比如中国有很多例外。”
+免责申明：本文只代表译者观点，与Gnews无关
 
-原文链接：[China moves to ease rules on government procurement for CPTPP](https://asia.nikkei.com/Economy/Trade/China-moves-to-ease-rules-on-government-procurement-for-CPTPP)
+原文链接：[https://www.corriere.it/america-cina/2021/10/22/isola-stretta-le-due-superpotenze-f9a95680-330f-11ec-a09a-b9f5a5e6bd67.shtml](https://www.corriere.it/america-cina/2021/10/22/isola-stretta-le-due-superpotenze-f9a95680-330f-11ec-a09a-b9f5a5e6bd67.shtml)
+
+责任编辑/发布：意大利达芬奇农场   萧亦
