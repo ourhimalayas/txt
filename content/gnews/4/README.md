@@ -2,62 +2,68 @@
 ---
 
 
-## 沾吴征者死,川普会发现手里的钱烫手民主党谋定而后动
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1615834/)
+## 老实人记
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1615891/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/yanglan_meituigaogen-2-768x1024_副本.jpg)
-据[**2021****年10月24日 文贵大直播：与川普公司合并的SPAC公司DWAC背后的11家投资机构与中共的关系，这场交易是以共产党情报为背景进行的连环操作，涉嫌多项内幕交易和犯罪的惊天的计划，让川普总统处在极度危险之中；我们永远支持川普总统，呼吁全世界不要被共产党利用**](https://gtv.org/video/id=617551cfeadeb11f5e79f5d5)时间点1：17：05——
+作者：X-Wing飞得更高（英喜农场）
+[![](https://spark.adobe.com/page/3Mfw29OH0rtm6/images/18255741-F427-48E7-9FB9-CA0548BAD50E.png?asset_id=5ED5058E-DC2D-4CAE-B8C7-9735EAB84780&amp;size=1024)](https://spark.adobe.com/page/3Mfw29OH0rtm6/images/18255741-F427-48E7-9FB9-CA0548BAD50E.png?asset_id=5ED5058E-DC2D-4CAE-B8C7-9735EAB84780&amp;size=1024)网络图片
+说起福建莆田，首先映入大家脑海的可能就是方言“大湖建”，其次可能是莆田系承包医院（魏泽西之死）。而过去一两周，莆田再次成为媒体焦点，这次却是因为一桩杀人案。
 
-**郭文贵先生：**然后我要告诉大家一个重磅的猛料，从来没说过，今天告诉你们，（大家鼓掌），吴征回美国了，现在鼓掌、脱衣服，不脱不播了。
+10月10日，福建莆田发生了一起2死3伤的重大刑案。嫌犯疑是一个名字叫欧金中的中年男人，他似乎有冤难伸，多年向政府部门求助无果，最终，对邻居一家引爆杀机。之后墙内网友几乎一面倒地同情这名逃逸中的嫌犯，并质疑基层政府不作为。
+[![](https://spark.adobe.com/page/3Mfw29OH0rtm6/images/2CA9AB9A-4A66-4170-9926-1403A1FBEE73.jpg?asset_id=0723AD30-7AB2-4130-8152-7528D7398B82&amp;size=2560)](https://spark.adobe.com/page/3Mfw29OH0rtm6/images/2CA9AB9A-4A66-4170-9926-1403A1FBEE73.jpg?asset_id=0723AD30-7AB2-4130-8152-7528D7398B82&amp;size=750)网络图片
+欧金中杀人逃走后，当地官方发布奇葩悬赏通告——发现欧金中踪迹者奖2万，发现尸体者奖5万！结果没过几天，欧金中“畏罪自杀” 。
 
-**Jessica****：**Rosemary，Rosemary。
+欧金中不过是一介草民，因为他无权、无势，又无任何背景，建房无端受阻，向政府申诉求助了多年，却没有一个官员关注或协助解决问题，反而长期受到“村霸”的欺凌。如今，多年的积怨终于把他逼成了杀人犯，他的案情特别是“畏罪自杀”的细节也突然莫名其妙地成了“国家机密”。
 
-（Rosemary配合大家，脱外套）
+据同村的村民说，欧金中是一个老实人，性格温和，三十年前还救过一个孩童的性命。老实人一般都很能忍，遭遇欺凌，通常就选择忍一忍。可是任何人的忍耐力都是有限度的，一旦被欺负得太过厉害，超越了可承载的极限，必然导致忍无可忍而最终爆发，而老实人的爆发力也是非常可怕的。
 
-**郭文贵先生：**Rosemary脱了，人家穿着大皮袄来的，为啥Jessica你太坏了，为啥你不脱，你让人家脱。谢谢Rosemary，脱了更好，脱了更好看。
+欧金中一家几代人过去五年无处栖身，到处上访伸冤而不得，这个老实人的耐性实际上算很强了。反映问题无人理睬，走投无路，还遭遇欺侮，只有被逼上梁山一条路。
 
-我告诉大家，这是从来没有说过的，吴征在2019年就被美国FBI刑事调查，我今天公开说的，这是我要负一切责任。2019年吴征就已经被美国FBI包括他和中共的大概七八个人将近十个人全部FBI、美国司法部刑事调查。
+老实人遭遇欺凌的事时有发生，曾经引发公众大讨论的弱势者杀人事件且影响较大的包括：2008年，北京游客杨佳挥刀杀死六名上海虹口区公安分局警察；2009年，沈阳街头小贩夏俊峰用切香肠小刀刺死野蛮执法的城管；2018年，陕西汉中退役武警张扣扣隐忍22年后为母报仇杀死三人；2021年，上海复旦大学海龟青年教师姜文华因受歧视和面临被解聘而割喉学院党委书记等。
 
-你知道这意味着什么吗？吴征是美国公民，不回美国接受刑事调查。所以从那一天起，他再也没回过美国，不接受美国的刑事调查，逃离美国，而且跟他的合伙人就是FBI的Frank，他们还操纵着PAG的官司，和律师和法官和各方面操纵美国司法。
+这些事件都与社会不公和法治不彰有关：老实人受到不公平待遇，申诉无门，找不到说法，实在被逼得没有退路了。
+[![](https://spark.adobe.com/page/3Mfw29OH0rtm6/images/34C5FB5D-6AF3-46A9-BA89-3DBB604F9800.jpg?asset_id=12244AA2-BFC9-4794-B3C0-084CCEA1FF61&amp;size=2560)](https://spark.adobe.com/page/3Mfw29OH0rtm6/images/34C5FB5D-6AF3-46A9-BA89-3DBB604F9800.jpg?asset_id=12244AA2-BFC9-4794-B3C0-084CCEA1FF61&amp;size=595)网络图片
+弱势群体也需要有生活和情感出路，自古如此，不断打压、欺负老实人，逼人太甚就是自掘坟墓，否则就不会有官逼民反陈胜吴广了。
 
-更重要的，在刑事犯罪调查期间，他签署大量的这样上市文件并没有披露，也没向川普总统披露，包括他老婆杨澜，包括他弟弟吴斌，包括李玉忠，所有这些都是刑事犯罪中的刑事犯罪。
+当老实人的正常上访方式得不到合理说法，便不得不挥刀讨个说法，难道不是制度和体制之恶吗？
 
-川普总统这个Deal SPAC，他是过不去了，吴征是罪上加罪。共产党现在把他抓了四次保释出来，就是让他继续攻击爆料革命和攻击文贵、马蕊强奸案和太平联盟的所谓的虚假签字案，然后又炮制了这个川普总统的这次SPAC，攻击盖特，这是给所谓的这叫投名状，要立功。
+杀人者欧金中获得的普遍同情，反映了老百姓心里面对基层政权和黑恶势力的不满，其实是对CCP这个政权的彻底失望，是对这个社会缺少公平正义的强烈不满的一种反应。
 
-但最终他会把华尔街，他会把整个参与的基金和律师事务所和川普总统这些人都会推向法官，甚至推上刑事调查，这个结果咱花多少钱都要不来，因为在美国是讲法律、讲证据的，你不把这些事情展现给美国公众，没有人相信你。
+奉劝鹰犬走卒们，不要欺负老实人！
 
-我们这次吴征完全肆无忌惮地、没有任何顾忌的把太平联盟、瑞寰资本，所有跟我们案子相关的人FBI的Frank、杨澜、吴斌，所有的人推向了一个平台，包括强奸案等这些过去所有的案子。
+*文章仅代表作者个人观点，与GNews无关*
 
-这对美国我们爆料革命的所有过去发生的对我们的法律超限战和G-TV虚假投诉，和我们正在进行的各种金融机构的虚假投诉和他控制美国财富、欺骗美国这些上万个、几万个老百姓的财富，而且是利用了美国川普总统。
+**欢迎阅读作者更多文章：**
 
-美国的政治斗争的，这是一个火药桶，这两个会拿这个东西互相斗，最后帮助我们所做不到的，最后把事实和真相还原于美国社会，会把Higginbotham、司法部的案子、Elliott Broidy、Steve Wynn，大家知道当时Steve Wynn死在谁手里？死在共产党吴征的手里。Elliott Broidy死他手里，这么多人都因为吴征的折腾死在手里，现在又来一拨，这叫吴征死，沾吴征者就灭。
+- [神剧记— 观《长津湖》有感2](https://gnews.org/zh-hans/1584981/)
+- [大PIAN记 – 观《长津湖》有感](https://gnews.org/zh-hans/1577735/)
+- [“编程随想”记](https://gnews.org/zh-hans/1329681/)
+- [屈冤记](https://gnews.org/zh-hans/1320686/)
+- [三生记](https://gnews.org/zh-hans/1313836/)
+- [掀锅盖记](https://gnews.org/zh-hans/1313748/)
+- [躺平记](https://gnews.org/zh-hans/1287846/)
+- [青白记](https://gnews.org/zh-hans/1285104/)
+- [少年记](https://gnews.org/zh-hans/1256998/)
+- [双城记（2）——上海](https://gnews.org/zh-hans/1254539/)
+- [骑墙记](https://gnews.org/zh-hans/1249247/)
+- [双城记（1）——City记](https://gnews.org/zh-hans/1238353/)
+- [价值观记（2）——发丧(sāng)记](https://gnews.org/zh-hans/1248903/)
+- [价值观记（1）](https://gnews.org/zh-hans/1232036/)
+- [巴别塔记](https://gnews.org/zh-hans/1195801/)
+- [BULLY记](https://gnews.org/zh-hans/1188970/)
+- [无冕记](https://gnews.org/zh-hans/1180655/)
+- [点火记](https://gnews.org/zh-hans/1176727/)
+- [如雷记](https://gnews.org/zh-hans/1164914/)
+- [石头记](https://gnews.org/zh-hans/1156293/)
+- [钉子记](https://gnews.org/zh-hans/614837/)
 
-唯一逃出来的就是班农先生，是吧，没有接受杨澜找钥匙，现在成了我们的战略，剩下的所有跟吴征的都完了，这一次跟吴征合作的全完了。PAG所有这些人，Chris，所有这些人都得完！谁拿到这个钱的终生将彻底结束，咱走着看！
 
-我判断，开盘星期一明天，到下两三周，股票可能回到十美金到二十美金之间，最后都跌破十美金。然后这中间会有人往上抬，担抬下去的结果再掉下去。
+***编辑：【英国伦敦喜庄园编辑部】***
 
-然后就是开始川普总统就开始发现他手里的钱烫手了，然后他会发现法律问题了，然后民主党会在一个月以后蓄集能量全面行动，准备在2022充分地利用吴征共产党送来的这个武器，内部的共和党的反川者也会充分的利用这个武器。我们永远不要掺和美国的政治斗争，我们永远支持川普总统。
+*校对：仙女儿-文善 | 审核：文明明 | PAGE：彼岸花*
 
-（以下暂略）
+- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[![](https://spark.adobe.com/page/3Mfw29OH0rtm6/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)](https://spark.adobe.com/page/3Mfw29OH0rtm6/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)

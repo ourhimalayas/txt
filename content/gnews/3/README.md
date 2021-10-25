@@ -2,74 +2,58 @@
 ---
 
 
-## 10.24大直播，不要把自我拯救希望交给别人，要靠自己
-` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1615835/)
+## 最好的帮助是让川普总统知道真相,我们会帮他也担心他
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1615893/)
 
-我为在纽约、欧洲、亚洲的战友，建几个最困难时期，最困难时期就是灭日，泰坦尼克号沉船那样的情况
+![](https://assets.gnews.org/wp-content/uploads/2021/10/捕获_副本-14.png)
+据[**2021****年10月24日 文贵大直播：与川普公司合并的SPAC公司DWAC背后的11家投资机构与中共的关系，这场交易是以共产党情报为背景进行的连环操作，涉嫌多项内幕交易和犯罪的惊天的计划，让川普总统处在极度危险之中；我们永远支持川普总统，呼吁全世界不要被共产党利用**](https://gtv.org/video/id=617551cfeadeb11f5e79f5d5)时间点1：25：22——
 
-给G系列投资者，全球重大贡献的战友提供救助，我们能提供有电，有基本的饭，有基本救命的药的庇护所，会是短期的帮助，无法做到中长期
+**郭文贵先生：**我觉得川普总统，咱们别太高看自己，人家川普总统不见得觉得像你们觉得七哥、爆料革命那么了不起，千万别这样，咱别犯了路大脑袋、蛇妖闫的病拯救全人类、他已经掌握了全世界媒体话语权了，是吧？咱千万别这样。
 
-任何人在那样的情况下无法保证提供中长期的救助，不要把自我拯救希望交给别人，只能靠自己
+人家就不一定说就像你们想象七哥说的话真像个有用的屁一样，不见得！话又说了，我们还有利益冲突的是不是？人家觉得你是想让人家加入盖特，对吧？包括你能满足人家川普总统的要求，川普总统多次开会对我们的约翰、对我们战友多次去开会又给签字又啥的。
 
-我唯一个人建议上国内的人，你如果没有足够的生存能力，出国更惨，出国没有钱和语言都寸步难行没，在国内，就搬到农村去，任何时候，别打疫苗，别染上病毒，预备足够的伊维菌素，地塞米松，羟氯喹，青蒿素。
+而且我们盖特给他的两个手机就是盖特，他一直在用，就很多战友说那个Trmup45（注：疑似POTUS 45 [\[email protected\]](/cdn-cgi/l/email-protection)[45Statements](https://gettr.com/user/45statements)）那个，那就是川普总统，是约翰亲自交给他手里边了，我们给准备的新手机，就是盖特他一直在用，喜欢的不得了，那个就是他，但是他不能公布嘛，一公布就……，因为他把自己的IP身份已经卖给了SPAC了，他不能公布嘛！
 
-I’m building a few shelters for fellow fighters in New York
+那么这些都是的，那么川普总统对我们是很友好的，但是你不能说人家给你友好，说人家给我三个亿我不要，我要你一个亿还有条件的，你凭啥呀？是吧？那么我们我们没有资格说拯救人家，我们也没这么说。
 
-Europe and Asia for the most difficult times
+但是我们也没有像大家想像的告诉他（关于）共产党，我们都没有这么做，因为这对我们来讲，跟西方人打交道，这是不合时宜的，因为你有利益冲突。
 
-the most difficult times being the end of days
+还有战友包括Nick说你会不会救川普总统，别高看我自己，我们先把自己救了才能救川普，人家川普总统说，欸，我需要你的意见的时候，这时候你说啥都可以，人家不需要你在这扯着嗓子喊，是不是啊？我这有更好的包子，我这有更好的肉，你这是啥呀，对不对？你这不是有毛病吗？
 
-like the sinking of the Titanic
+你像那九指妖天天出售自由、民主，她一定是有目的的，她想骗你的钱。你想路大脑袋一弄就是重磅！重磅！你还记得路大脑袋在将近4个月120天说的90天吗？90天！90天！90天！什么贝雷帽什么的，他都是有目的的！
 
-We can provide a shelter with electricity
+我告诉大家还有个当时我说的90天，其中有三件事都是当时没有发生的，其中一个川普总统当时就明确地说，10月3号以前他会加入的，而且明确我需要这个平台，而且他说这个SPAC他觉得不放心，他也不放心，所以那个时候也是包含这一个，包含有一个民主党的未来的总统最重要的人也加入到咱们盖特的，后来是因为川普总统没决定加入，我们就把他的事儿给停下来了。
 
-basic food, basic life-saving medicine
+第三个，就是我们希望川普总统进不进来加入之后，我们希望SPAC发生以后，我们才任命新的盖特主席和盖特整个董事会成员，大家拭目以待，你看川普总统不来以后看谁来，是吧！你们走着看。
 
-but it will be a short-term help
+我们都做了仁至义尽，让川普总统和他的家人和团队相信我们是仁义的。而且我们没有任何，今天就川普总统说，欸，你给我现在这一个亿，同等条件回来——一分都不会有！
 
-not a medium or long-term help
+我们支持他，他今天再回来，今天投资者在20号就决定川普再回来一毛钱都没有，更不可能有股份，而且就这也不一定让他回来，为什么？盖特最担心的事情是受到了因为他回来，这些数据中心会把我们关掉，很多服务商都不给你服务，这是很大的事儿！草根小哥在这，对吧？越来越深刻。世界就这么几家，这事风险是巨大的。
 
-No one can guarantee medium to long term support
+我到现在我不相信川普总统，第一他怎么可能造出来一个平台，让他买，买完平台以后谁当他的服务商，有人买了当他的服务商。据我所知，他找出来团队来管理，让川普总统达到他的那个目的，成为川普社交媒体，我几乎认为这不可能的，在2024年以前不可能的，这些不可能如果都能发生也可能川普总统是超人啊，很了不起啊，我们祝愿它发生，我们希望它发生，如果能帮助它发生，我们一分钱回报没有地可以支持她。
 
-in a situation like that
+但是我们由于盖特和咱们的G-TV都有N个战友投资和机构投资者，不是任何人可以决定的，为了避免川普总统加入的风险，我们一定选择回避这种风险，但是我们可以无偿地帮助，这都是会的。所以说我们不要攻击川普总统，我们会帮他，但是我们也担心他。我们唯一做的所谓的你们说帮川普总统，让他知道真相就是最好的帮他。
 
-don’t leave the hope of saving yourself
+（以下暂略）
 
-in the hands of others, it’s up to you
+撰稿：喜马拉雅的肉夹馍；
 
-My only personal advice to people in the China
+审核：喜马拉雅的馍夹肉；
 
-is that if you don’t have enough to survive
+校对：Maarago；
 
-it’s worse to go abroad
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-without money and the ability to speak other languages
-it will be hard to get around
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-in China, move to the countryside
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-at all times, don’t get vaccinated, don’t get the virus
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-have enough Ivermectin, Dexamethasone
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-Hydroxychloroquine and Artemisinin
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-听写/翻译/字幕添加：kent
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-发布：风云小哥
-
-
-> *免责声明：尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。*
-
-
-* * *
-
-更多加拿大枫叶农场的频道，请关注：
-
-- [GTV: 喜马拉雅加拿大多伦多枫叶农场](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
-- [GTV: 加拿大枫叶农场蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
-- [GTV: 多伦多枫叶财经频道](https://gtv.org/user/5f359954313eaf1e3716cfc1)
-- [喜马拉雅加拿大多伦多枫叶农场discord](https://discord.gg/Cpz33sS)
-- [加拿大多伦多枫叶农场 on GETTR](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_MPL_banner.png)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

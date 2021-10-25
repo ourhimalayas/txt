@@ -2,40 +2,47 @@
 ---
 
 
-## 阿拉巴马州总检察长向拜登疫苗强制令说不
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1615402/)
+## 美媒称中共以“反垄断”监管科技产业将改变投资估算的分析
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1615464/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+撰稿：喜妈
+![](https://assets.gnews.org/wp-content/uploads/2021/10/064433EF-4BFD-4F02-A3AE-B214D30489C3.jpeg)图片选自网络
+美国有名的科技媒体动点科技（TechCrunch) 最近长篇报道，笔者不是行业专家，可是在这篇文章中，发现了一些有趣而重要的信息，希望和大家分享一下。该报道认为，中共体制下，“监管”成了其科技领域近来的热门词汇。文章认为，中共的官僚们“似乎正在发出一个信号”，“反垄断”会成为“重组”在中共国的“互联网公司与消费者”、“供应商和国家”的一种方式。报道从中共政府业已进行的对阿里巴巴和美团等公司巨额罚款的事件，认为：中共国科技产业会有一番市场份额的重整，从而也将“迅速改变了投资者如何对世界上一些增长最快的公司进行估值的计算方式”。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/A-9.jpg)al.com
-阿拉巴马州总检察长史蒂夫·马歇尔（Steve Marshall）表示，我将在法庭上挑战拜登的联邦-承包商（federal-contractor）疫苗强制令，以下是我的声明：
+文章指出，中共领导人将那些在中共国“最有价值的公司视为超大型巨头”，认为这些企业的“主导地位威胁到其经济和社会的长期健康”。因此，中共最近用“反垄断”整治这些领先互联网公司。报道引用熟悉中共国情况的权威人士分析指出：“有效的监管需要在消费者保护、商家利益和平台经济之间走钢丝。” 很多目前在此动向下的投资意向，都因为中共国存在的“反垄断”，同时还有“更广泛的监管浪潮”，让投资者“重新考虑他们在中共国的战略”。
 
-阿拉巴马州总检察长
-史蒂夫·马歇尔
+这个动态会导致很多如并购、评测风险、衡量计算持续的盈利能力等都变得“难以捉摸”。而“最令投资者担忧的是，他们在中共国的投资退出的窗口有限”。“除了增加交易审查使并购变得更加困难之外，IPO 的监管障碍也在出现”；“越来越多的监管机构位于官僚层级的更下方”，“如果他们认为有必要，他们有权干预 IPO”。
 
-联邦政府最近与阿拉巴马州的一些州机构和部门进行了沟通，表示它们受拜登的联邦承包商疫苗政策的约束，因此必须强制要求其雇员接种疫苗。
+此外，市场监管总局“被赋予更高的地位”，“它很可能也有权决定是否以及如何允许公司上市”。那么，对那些“希望进行首次公开​​募股的投资者来说”，“退出的道路上有越来越多的检查站，这些检查站的标准似乎越来越严格”。文章最后认为，对于外国和国内公司而言，在中共国赚钱“随心所欲的日子正在迅速成为过去，而反垄断是迫使这种转变发生的有力工具”。
 
-我想向阿拉巴马州人民保证，我的办公室将与这种侵犯个人自由、联邦制和分权的卑鄙行为作斗争。
+笔者提到，我们不是行业权威，也没有相关从业经验，很多该报道的专业性的投资分析，我自己也看不到极为精辟的地方。可是就是从一个普通的民众，也能够从本文的行业动态分析中，体会到，中共正在用一切可能的手段，进行在科技和媒体行业的激烈斗争。这个斗争既说明中共市场上的蛋糕已经不多了，可分的寥寥，那么在并没有太多成长性和市场已经一片沉寂的前提下，从中南坑的老杂毛们的既得利益中搜刮和抢夺，就看谁的拳头硬，谁的机巧本事多，谁更会盘算。
 
-我们将在法庭上挑战拜登的联邦承包商疫苗强制令，我将尽我所能，在12月8日联邦规定的最后期限之前解决这一问题。
+这个不断在泡沫经济、虚假推高、疫情压力、国际波澜中的中共科技市场，可是有很多的“好戏”要上演。看不懂经济，不明白投资，读不懂术语，都没关系。老百姓关心的是，垄断早已形成，垄断也从来就有，现在反垄断的说法出来，整治的出发，就是派系斗争的激烈表现。这个时间节点，出现的阿里巴巴，出现的美团，还有滴滴的事，顺丰的传闻等，啥都不是简单，啥都不是那个你能读到的表面。
 
-（签名）
+好的是，爆料革命战友可以读到一点表面下的文章，嗅得出一些别样的味道。那是被真相所教育出来的一种逻辑和理性判断，在这个文章的话题下就是：反垄断又是一个借口，整治派系斗争中的对手，搜刮已经分配好的既得利益，重整“河山”为我所用。
 
-言简意赅的声明，马歇尔总检察长一语中的，这是侵犯自由的卑鄙行径，我们必须与之斗争。州长们、州总检察长们、州议员们，起来，向邪恶说不，否则将会有更多的无辜者遭受阴谋集团迫害。
+从该报道，笔者还看到一点，就是中共号称要推行“反垄断”，会导致海外投资的收益估算出现偏差。这里很有文章哦。一是说明，海外投资会陷入一团迷云，那么可否理解为，从中共国要想拿回去的无论是赚的钱还是自己的本，都会有问题了。二是说明，那些中共出口转内销的所谓“海外”投资客，其实就是自己的本家人，那些人的钱，也不好拿回去，也拿不到了呢？
 
-声明文字整理：
+总之，这些东西，懂行的人，了解行业深度资讯的人，应该比我们更加有体会。可是，用我们通过爆料革命形成的建立在中共长期邪恶的行为模式上，可以推断，这些东西，背后有蹊跷。前方有陷阱，是不是投资者，是不是行业精英，都要小心。
 
-ALABAMA ATTORNEY GENERAL
+本文纯属个人观点，与Gnews无关
 
-STEVE MARSHALL
+参考消息：
 
-The federal government has recently communicated to a number of state agencies and institutions in Alabama that they are subject to President Biden’s federal-contractor vaccine mandate and must therefore, force their employees to be vaccinated.
+The rapidly changing investor calculus on China’s tech giants
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
 
-I want to assure the people of Alabama that my office will fight this contemptible infringement upon individual liberty, federalism, and the separation of powers.
 
-We will be challenging President Bidens federal-contractor vaccine mandate in court, and I will do everything in my power to resolve this matter before the federally dictated deadline of December 8.
+> [The rapidly changing investor calculus on China’s tech giants](https://techcrunch.com/2021/10/23/the-rapidly-changing-investor-calculus-on-chinas-tech-giants/)
 
-（文章仅代表作者个人观点）
 
-原文链接：[https://twitter.com/AGSteveMarshall/status/1451701843311087617](https://twitter.com/AGSteveMarshall/status/1451701843311087617)
+
+
+
+> [The rapidly changing investor calculus on China’s tech giants](https://techcrunch.com/2021/10/23/the-rapidly-changing-investor-calculus-on-chinas-tech-giants/)
+
+
+
+
+
+> [The rapidly changing investor calculus on China’s tech giants](https://techcrunch.com/2021/10/23/the-rapidly-changing-investor-calculus-on-chinas-tech-giants/)

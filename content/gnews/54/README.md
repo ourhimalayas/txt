@@ -2,34 +2,52 @@
 ---
 
 
-## 文贵爆料（10/24）：吴征操纵了川普社媒公司与 DWAC 的合并上市
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1614788/)
+## 杰克·多尔西：美国和世界的“恶性通货膨胀”将很快发生
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1615089/)
 
-#### 撰稿：萌萌的朋克（秘翻 Gnews 原创组）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-24-at-11.20.23-AM.png)
-郭文贵先生在2021年10月24日的大直播中爆料，2021年9月2日才上市的数码世界（Digital World Acquisition Corp./DWAC）——一家特殊目的并购公司（Special Purpose Acquisition Company/SPAC）——自本周一（20月18日）交易开始活跃，但交易量也不过 1300 手左右（10 股/手），收盘价不到 10 美金/股，周二和周三分别为 40000 多手和 60000 多手，放量有限。而在川普（Donald Trump）于周三宣布川普媒体与技术集团（Trump Media and Technology Group/TMTG）将与 DWAC 合并，并会创建一个全新的社交媒体平台 TRUTH Social 后，DWAC 股价一飞冲天，周四交易量猛增至 40 多万手，收盘价较前一交易日狂飙356.83%！周五交易手数更是突破了 60 万，盘中一度冲至 174 美元/股，最终收涨 107.03%，报收 94.2 美元/股。更加诡异的是，收市后两小时，DWAC 的场外交易价格已狂泻至 45 美元/股。
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2021/10/106915554-1626988283647-jack2.jpg)Twitter 首席执行官兼 Square 联合创始人兼首席执行官杰克·多尔西于 2021 年 6 月 4 日在佛罗里达州迈阿密马纳会议中心举行的 2021 年比特币大会上发表讲话。
+马可·贝罗 | 法新社 | 盖蒂图片社
+推特联合创始人杰克·多尔西对美国不断升级的通货膨胀发表了看法，称事情将变得相当糟糕。
 
-这顿猛如虎的操作背后，究竟都有哪些公司的参与？郭先生给出了答案——11 家与吴征有关的公司（其中8家完全由中共控制），并在直播中展示了这些公司的[文件](https://gnews.org/zh-hans/1614568/)。它们分别是：
+“恶性通货膨胀将改变一切”，多尔西周五晚上在推特上说，“它正在发生”。
 
-1. 拉德克里夫资本管理有限公司（Radcliffe Capital Management, L.P.）
-2. 迈泰奥拉资本合伙⼈有限责任公司（Meteora Capital Partners, LP/Glazer Capital LLC 的⼦公司）
-3. Castle Greek Strategies (以及与 Castle Greek 有关的成分基金)
-4. The K2 Principal Fund L.P.
-5. Context Partners Master Fund LP
-6. BoothBay Absolute Return Strategies, LP (或其子公司 Boothbay Diversified Alpha Master Fund Management LLC)
-7. 由少林资本管理有限公司（Shaolin Capital Management, LLC）管理的投资基金和账号
-8. 哈德逊湾基⾦有限公司（Hudson Bay Master Fund Ltd.）及/或其附属公司
-9. 萨巴资本旗舰基金（Saba Capital Master Capital Fund, Ltd.），萨巴资本第二旗舰基金（Saba Capital Master Capital Fund II, LP） 和萨巴资本 SPAC 机遇有限公司（Saba Capital SPAC Opportunities, Ltd.）
-10. D. E. Shaw Valence Portfolios, L.L.C.
-11. Yakira Capital Management, Inc
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-3-10.png)推特链接：[twitter.com](https://twitter.com/jack/status/1451733913961783299?s=20)
 
+这条推文是在美国消费者价格通胀率接近30年高点的情况下发出的，人们越来越担心问题可能比决策者预期的还要严重。
 
-郭先生表示，这些公司大手笔买进卖出，完全是内幕交易和股市操纵，与抢劫无异，其中涉及的数据、文件造假更将使川普面临巨大的刑事、政治风险，而这一切都是出于中共对盖特、对爆料革命的恐惧。
+周五，美联储主席杰罗姆·鲍威尔承认，通胀压力“可能会比之前预期的持续时间更长”，他指出，通胀压力可能会持续到“明年”。这位央行领导人补充说，他预计美联储很快就会开始缩减，其为帮助经济而提供的非常规措施。批评者认为这些措施激起了通货膨胀的运行。
 
-DWAC 的大股东瑞寰资本（Arc Capital）背后是吴征、杨澜控制的集兆嘉（Giga Energy），及其它中共政治局委员的家属，都是中共的情报机器。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-25-010229.jpg)
-班农前手下、帮助吴征在弗罗里达游说遣返郭先生的塞缪尔·纳恩伯格（Samuel Nunberg）， 运鸿国际 CEO 及 DWAC CEO 帕特里克·奥兰多（Patrick Orlando），前 FBI 高管、郭先生前安保公司 T&M 合伙人、吴征多家公司的合伙人理查德·弗兰克尔（Richard Frankel）和太平联盟（PAG）联合创始人高天乐（Chris Gradel）则是参与这场洗劫美国人财富的惊天骗局的“美方代表”，他们也全部参与了对郭先生的各种缠讼，换言之，截至目前，郭先生所有官司的幕后黑手都是吴征。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/集兆嘉部分重要股东.png)
-然而，吴征怕是做梦都没想到，FBI 2019 年就已经启动了对他的刑事调查。
+除了监督一个拥有2.06亿日活跃用户的社交媒体平台外，多尔西还是一个强有力的比特币倡导者。他曾表示，他与多尔西共同创办的借记卡和信用卡处理平台Square，正在考虑进入加密货币的开采。Square也拥有一些比特币，并为其交易提供便利。
 
-（本文仅代表作者个人观点）
+在回应用户评论时，多尔西周五补充说，他看到通货膨胀问题在全球范围内升级。“它很快就会在美国发生，所以全世界都会发生”，他在推特上说。
+
+多西目前既是Twitter的CEO，也是Square的CEO。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-4-9.png)推特链接：[twitter.com](https://twitter.com/oviosu/status/1451735320349736962?s=20)
+
+呼吁加快通货膨胀是一回事，但对一些人来说，多西使用恶性通货膨胀这个词可能会让人感到惊讶。恶性通货膨胀是一种价格迅速上涨的状况，可能会毁掉货币并使整个经济体崩溃。
+
+亿万富翁投资者保罗·图德·琼斯(Paul Tudor Jones)和其他人已经呼吁进入通货膨胀的上升期。琼斯在本周早些时候告诉CNBC，他拥有一些比特币，并将其视为一种良好的通货膨胀对冲。
+
+“很明显，加密货币有一席之地。显然，目前它在与黄金的竞争中获胜”，琼斯周三说。
+
+但大多数主要投资者并没有像多尔西那样，走到呼吁恶性通货膨胀的地步。
+
+**简评：**
+
+**世界的经济灾难已经不可避免。归其原因一定会追溯到中共所释放的冠状病毒所带来的超限战及疫苗灾难。世界的经济格局和经济秩序也将彻底改写。大的投资者及企业家，都已经看到了经济即将崩溃的预兆。数字加密货币似乎成为了保存财富的避风港。但是很多人没有看到的是，现今流通的加密货币都是去中心化的，并且这些加密货币并未和任何保障性的贵金属或其他挂钩。本已经是“罪犯天堂”的比特币，在未来是否能真正的让人保有财富，这一切都是未知。**
+
+**而然，中心化的、锚定黄金的“喜币”，即将上市。“喜币”的构建和保障设计，才是人们保障财富的真正未来。**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**参考资料：**[cnbc][Twitter and Square CEO Jack Dorsey says ‘hyperinflation’ will happen soon in the U.S. and the world](https://www.cnbc.com/2021/10/23/twitter-and-square-ceo-jack-dorsey-says-hyperinflation-will-happen-soon-in-the-us-and-the-world.html)
+
+* * *
+
+*审核：Aries的星*
+*校对：信心满满*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)

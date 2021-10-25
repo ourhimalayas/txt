@@ -2,25 +2,43 @@
 ---
 
 
-## 央行发布《征信业务管理办法》 ：个人交易、社交、上网痕迹等都将纳入监管
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1615692/)
+## 前政府发言人呼吁脸书CEO辞职
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1615723/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-57-1.jpg)央行发布《征信业务管理办法》 ：个人交易、社交、上网痕迹等都将纳入监管 网络图片
-据周到上海消息，央行近日发布了《征信业务管理办法》，自2022年1月1日起施行。《办法》包含信用信息采集、整理、保存、加工、提供、使用和安全等内容。央行方面表示，《办法》对依法从严加强征信监管，保障信息主体合法权益和信息安全，促进征信业市场化、法治化和科技化发展具有积极意义。
-
-《办法》还将征信替代数据应用纳入监管。包括个人的交易、社交、上网痕迹等
-
-新闻参考链接：[https://www.163.com/dy/article/GM1VE9PF0514A42S.html](https://www.163.com/dy/article/GM1VE9PF0514A42S.html)
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山农场 – 童谣
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
+
+
+
+随着更多知情人士揭露脸书传播虚假信息的事实，10月23日，前美国总统奥巴马财政部的一位发言人，卡拉-阿莱莫呼吁脸书CEO马克-扎克伯格辞职。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture30-3.jpg)
+继脸书内幕吹哨人弗朗西斯-豪根站出来之后，又一位匿名证人对脸书进行指控，当前两位证人的说法一致。这位新证人宣誓书中，有一句引人注目的话，即脸书未能迅速采取行动来帮助遏制种族杀戮，令这位前雇员感到十分痛苦。
+
+阿莱莫称，“面对虚假信息，扎克伯格没有尝试做任何事情。很明显，扎克伯格缺乏解决这些问题的道德或能力”。面对一系列指控，脸书CEO唯一想到的方式就是修改公司的名字。对此，Jason Miller先生在盖特中表示，公众已经失去了对该网络的信任，扎克伯格想通过修改公司名称来度过危机，不会起到任何作用。
+
+参考链接：[前政府发言人呼吁脸书CEO辞职](https://www.gettr.com/post/peza2q30f2)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：童谣
+编辑：程万里
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)

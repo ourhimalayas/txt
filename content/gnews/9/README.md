@@ -2,47 +2,74 @@
 ---
 
 
-## 维多利亚州州长暗示，不打第三针取消疫苗护照
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1615777/)
+## 10.24大直播，不要把自我拯救希望交给别人，要靠自己
+` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1615835/)
 
-#### 翻译：月映万川
+我为在纽约、欧洲、亚洲的战友，建几个最困难时期，最困难时期就是灭日，泰坦尼克号沉船那样的情况
 
-#### 编辑：文泓
+给G系列投资者，全球重大贡献的战友提供救助，我们能提供有电，有基本的饭，有基本救命的药的庇护所，会是短期的帮助，无法做到中长期
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-18.jpg)
+任何人在那样的情况下无法保证提供中长期的救助，不要把自我拯救希望交给别人，只能靠自己
 
-**图片来源：European Pharmaceutical Review**
-不久之后，澳大利亚维多利亚州居民将会被要求打新冠疫苗加强针，或者面临失去他们完全接种后享有自由的后果。
+我唯一个人建议上国内的人，你如果没有足够的生存能力，出国更惨，出国没有钱和语言都寸步难行没，在国内，就搬到农村去，任何时候，别打疫苗，别染上病毒，预备足够的伊维菌素，地塞米松，羟氯喹，青蒿素。
 
-在周日新闻发布会上，维多利亚州安德鲁斯州长宣称，未来对于已接种人群来讲，“维持你的完全疫苗接种身份是你需要考虑的”。同时，他也警告未接种疫苗者，至少到2023年你才能够参与到“疫苗经济”中来。
+I’m building a few shelters for fellow fighters in New York
 
-此番言论，是在周一州长将与医疗监管部门讨论是否需要把第三剂疫苗加强针推向公众时做出的。据称，这一决定最早可在本周末开始实施。
+Europe and Asia for the most difficult times
 
-**澳大利亚药监局与联邦疫苗咨询委员会（****ATAGI****）正在考虑在****6****个月后为第二针疫苗接种者施打加强针。**
+the most difficult times being the end of days
 
-如果疫苗加强针政策通过的话，澳大利亚将成为继以色列以后，世界第二个要求施打加强针的国家。
+like the sinking of the Titanic
 
-目前澳大利亚多个州均要求使用疫苗护照来获得室内用餐、理发和健身房健身等公共服务。
+We can provide a shelter with electricity
 
-在周日晚上的一份声明中表示，联邦政府“已经表明，一旦澳大利亚药监局和疫苗咨询委员会考虑并批准在澳大利亚使用疫苗加强针，国家就会马上启动疫苗加强针项目”。
+basic food, basic life-saving medicine
 
-联邦卫生部长亨特指出，“我们的疫苗供应充足，分发能力强大，并足以让每一个选择这样做的澳大利亚人得到他们的加强针来更新完全接种身份。”
+but it will be a short-term help
 
-目前，新南威尔士州已经在等待疫苗咨询委员会（ATAGI）关于加强针的进一步的指导意见，并且联邦政府也会继续审核这个问题。
+not a medium or long-term help
 
-**亨特部长在本月早些时候也拒绝排除需要疫苗加强针来维持你的疫苗护照有效性的可能。**而且，他也表示，不会排除对某些特定行业进行要求施打加强针来维持疫苗护照的可能性。
+No one can guarantee medium to long term support
 
-澳大利疫苗咨询委员会（ATAGI）正在积极的研究是否需要加强针。在未来的几周，ATAGI会以临床为参照，给出是否需要第三针的建议，以及施打加强针的间隔问题。
+in a situation like that
 
-（文中观点仅代表作者个人观点，与Gnews平台无关）
+don’t leave the hope of saving yourself
 
-原文链接：[Covid booster shots to be required in Victoria to keep vaccine passport | news.com.au — Australia’s leading news site](https://www.news.com.au/lifestyle/health/health-problems/your-six-months-is-up-daniel-andrews-hints-boosters-will-be-needed-to-keep-fully-vaccinated-freedoms/news-story/9fe6ec45f4d9530ab438f339598b1cb9)
+in the hands of others, it’s up to you
 
-**发布：文泓**
+My only personal advice to people in the China
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+is that if you don’t have enough to survive
+
+it’s worse to go abroad
+
+without money and the ability to speak other languages
+it will be hard to get around
+
+in China, move to the countryside
+
+at all times, don’t get vaccinated, don’t get the virus
+
+have enough Ivermectin, Dexamethasone
+
+Hydroxychloroquine and Artemisinin
+
+听写/翻译/字幕添加：kent
+
+发布：风云小哥
+
+
+> *免责声明：尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。*
+
+
+* * *
+
+更多加拿大枫叶农场的频道，请关注：
+
+- [GTV: 喜马拉雅加拿大多伦多枫叶农场](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
+- [GTV: 加拿大枫叶农场蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
+- [GTV: 多伦多枫叶财经频道](https://gtv.org/user/5f359954313eaf1e3716cfc1)
+- [喜马拉雅加拿大多伦多枫叶农场discord](https://discord.gg/Cpz33sS)
+- [加拿大多伦多枫叶农场 on GETTR](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_MPL_banner.png)
