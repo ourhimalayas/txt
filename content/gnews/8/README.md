@@ -2,46 +2,41 @@
 ---
 
 
-## 在公检法的那些日子
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1615724/)
+## 疫苗加强剂在澳大利亚即将获得批准
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1615762/)
 
-作者：纽约香草山福音部 – Dogflight
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/COVID-19-vaccine-booster_iStock-1334441038_2021-08_Hero_1336x614.jpg)
 
 
 
-还有几天我将告別在法律服务中心服务的日子，今天依然有新的死者家属前来寻求法律援助。在这些日子里，我目睹了太多的死者家属前来咨询，死者们死亡的特征都是猝死，我个人认为死者们都有可能接种了疫苗。死者的家属们却不知道这有可能是疫苗造成他们的亲人逝去的，家属们前来咨询的目的都是认为死者是死于工伤的，认为政府能主持公道，为死者讨回应得的公道。在我这个清醒的人眼里，这显得既可悲又可恨。我希望神擦去他们一切的眼泪，不再有死亡，也不再有悲哀、哭号、疼痛，因为以前的事都过去了。
+图片来源：ncoa.org
 
 
+#### 编译：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20211025.jpg)[图片来源](https://cdn.trt.net.tr/images/xlarge/rectangle/0195/2d9b/8472/60f3e8a244f1b.jpg?time=1634650647)
+澳大利亚民众在接种第二剂中共病毒（ COVID-19）疫苗后六个月就可以开始接种疫苗加强剂。
 
+澳大利亚疫苗推广负责人约翰·弗里温（John Frewen）表示，该国的疫苗咨询小组将很快公布有关加强剂的建议。
 
+“我们现在只是在等待最终的医疗建议，”弗里温周一告诉《九号台》（Nine Network）。“我们预计他们会建议人们在6至12个月之间考虑接种加强剂。辉瑞（Pfizer）和 莫德纳（Moderna）等 mRNA 疫苗将主要用于加强剂的接种。”
 
-家属们来到这里，表情上都显得有深沉的打击，眼泪都咽不下。昨天的丈夫、父亲和儿子还能说说笑笑，怎么今天就像冷冷的冰雨一样……看着家属们一脸的茫然，不知所措，我真想问他们一个问题：“死者是不是已经接种了新冠疫苗……”可我放弃了，在没有充分的证据前，在墙内，在借口中，我没有勇气说出口。我感觉自己像彼得不认主一样。
+在全国范围内，73%的16岁及以上符合条件的人已经完全接种了疫苗，而近87%的人已经接种了第一剂疫苗。
 
-我与提供援助律师交流过，他们认为每年都有这种情况，只是今年不知为什么显得多一些案件。当我对他们说出疫苗的真相，他们都觉得匪夷所思，不敢相信一个政府会这样对待自己的国民，也对我所说的半信半疑。当然，在没有充分的证据前，律师是不可能相信任何一个人所说的，也许在天亮前不可能有这种证据。
+国家免疫研究和监测中心主任克里斯汀·马卡尼（Kristine Macartney）教授告诉澳大利亚广播公司（ABC）：“这就是大多数国家现在已经采取的做法”。
 
-我就像一个旁人一样见证著这些事的发生，可我又无力去改变。我深知这些有良知的律师在共匪的法律框架下，也是充分展现著人性的关怀，展现著自己的专业，用他们自己的良知和专业为死者家属讨得应得的权益。在这些日子里，我唯一感到欣慰的是我说服了一些打了新冠疫苗的律师下了单，买了青蒿素。也许他们能感受到真光，也许他们能吃下解药，继续用他们的良知和专业服务中国人，也许我们能再一次在七芒星旗下相会。愿神怜悯他们，保守他们，阿门！
+一旦加强剂获得批准，从事老年护理、残疾护理和一线卫生工作者的澳大利亚人将成为首批接种强化剂的人。
 
-（本文仅代表作者个人观点）
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
+**参考新闻：**[Approval for virus booster shots imminent (msn.com)](https://www.msn.com/en-au/news/australia/approval-for-virus-booster-shots-imminent/ar-AAPTXXL?ocid=msedgntphdr&amp;pfr=1)
 
+***发布：小红帽***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct.jpg)
-
-
-
-编辑/校对/发稿：武裝的羔羊
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

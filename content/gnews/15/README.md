@@ -2,25 +2,45 @@
 ---
 
 
-## 央行发布《征信业务管理办法》 ：个人交易、社交、上网痕迹等都将纳入监管
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1615692/)
+## 中共人大常委会重申坚决反对、抵制和防止西方“宪政”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1615721/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-57-1.jpg)央行发布《征信业务管理办法》 ：个人交易、社交、上网痕迹等都将纳入监管 网络图片
-据周到上海消息，央行近日发布了《征信业务管理办法》，自2022年1月1日起施行。《办法》包含信用信息采集、整理、保存、加工、提供、使用和安全等内容。央行方面表示，《办法》对依法从严加强征信监管，保障信息主体合法权益和信息安全，促进征信业市场化、法治化和科技化发展具有积极意义。
-
-《办法》还将征信替代数据应用纳入监管。包括个人的交易、社交、上网痕迹等
-
-新闻参考链接：[https://www.163.com/dy/article/GM1VE9PF0514A42S.html](https://www.163.com/dy/article/GM1VE9PF0514A42S.html)
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山农场 – 文徬
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture20-2.jpg)
+当地时间10月23日上午，中共人大常委会委员长栗战书，主持十三届人大常委会，第三十一次会议闭幕会，强调共党对人大的全过程领导，坚决反对、抵制和防止西方所谓“宪政”、多党竞选、三权鼎立、两院制、司法独立的侵蚀影响。
+
+按照中共宪法文本，全国人大被宣称为国家最高权力机关，但人大实为共产党的工具，地位低下。栗战书指出，常委会会议将 学习贯彻习近平 在中央人大工作会议上的重要讲话和会议精神 列为首要议程。其最高政治原则为坚持共党的集中统一和全面领导，维护党魁权威。
+
+参考链接：[中共人大常委会重申坚决反对、抵制和防止西方“宪政”](http://www.npc.gov.cn/npc/kgfb/202110/389a65facc584c74995d9bd971389cc1.shtml)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：童谣
+编辑：童谣
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)

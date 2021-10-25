@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/25/2021 5:42 AM (UTC)`
+
+The relationship analysis of the characters in SPAC that merged with Trump media
+![img](https://media.gettr.com/group4/getter/2021/10/25/05/d1c00c19-a782-d10f-8fb8-5fc40c68e6e0/3063b664ec2a92930dc150bbf02de565.jpg)
+
+---
+
 `@miles 10/25/2021 4:14 AM (UTC)`
 
 10/24/2021 Miles Guo: The CCP lured President Trump into the trap of stock price manipulation and fraud in an attempt to terminate his political career and to even send his whole family to jail. We shall reveal the evil deeds of the CCP, wake up all walks of life in America, and save President Trump rather than criticize him<br/><br/>10/24/2021 文贵直播：中共诱骗川普总统掉入操纵股价和欺诈的陷阱，从而终结其政治生涯，甚至害其全家锒铛入狱；我们要揭发中共恶行、唤醒美国各界，要拯救川普总统而非批评。<br/>
@@ -286,13 +293,6 @@ Transportation solutions provider Giga Energy Inc is going public through a merg
 `@jasonmillerindc 10/22/2021 12:34 AM (UTC)`
 
 #GETTR sign-ups are up 70.47% today! 👀
-
----
-
-`@miles 10/22/2021 12:09 AM (UTC)`
-
-10/21/2021 Miles Guo’s GETTR: The 6th Plenary Session of the CCP’s Central Committee will cause massive arrests and deaths; No one will be safe unless the CCP is taken down; The day that Chinese people will own the land and the wealth that should belong to them is coming! So many people in Beijing want to eliminate Xi Jinping, and the accidents during the CCP’s internal struggles can happen at any time. The CCP will collapse rapidly!<br/><br/>10/21/2021 文贵盖特：此次六中全会将有多人被抓、被杀；不灭共，谁也不会安全；中国人拥有自己的土地和财富的日子将很快到来！北京有太多人要干掉习近平，内斗随时将有意外发生，中共将在弹指间脆断！<br/>
-![img](https://media.gettr.com/group13/getter/2021/10/22/00/09/e82b9d30-80f7-1635-7926-76bcc43720d0/out.jpg)
 
 ---
 

@@ -2,40 +2,29 @@
 ---
 
 
-## 阿拉巴马州总检察长向拜登疫苗强制令说不
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1615402/)
+## 中共官媒大力鼓吹“智造”有何用意？
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1615440/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+撰稿：喜妈
+![](https://assets.gnews.org/wp-content/uploads/2021/10/7635235E-389A-4CBC-AFD4-9D8F8D52AEE2.jpeg)图片选自网络截图
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/A-9.jpg)al.com
-阿拉巴马州总检察长史蒂夫·马歇尔（Steve Marshall）表示，我将在法庭上挑战拜登的联邦-承包商（federal-contractor）疫苗强制令，以下是我的声明：
+最近，中共的官媒大力鼓吹“智造”，认为“从中国制造到中国智造”，中共国“科技实力实现跨越式发展，产业结构不断优化升级”，这个中共国典型的“宏大”叙事模式，笔者相信很多人都嗅出一点熟悉的配方，极为熟悉的味道。根据我们从爆料革命得知的各种中共管理水平，可以知道一点：中共越宣传的事情，就说明它越是欠缺；中共越强调，越是说明它自己是没有底气的。
 
-阿拉巴马州总检察长
-史蒂夫·马歇尔
+笔者认为，“中国制造”本身就是对中国人民的一种盘剥和压榨，长期以来，是中国人民的血汗通过劳动密集型的各种加工业，为中共赚回来各种外汇。中共自己根本不会在意人民的健康和福祉，他们只是粗放性的任由老百姓长年累月地付出辛苦的劳作，以低廉的劳动力价值和成本为中共和西方各国财富积累做出贡献。现在，由于中共的无耻和荒唐，自大和狂妄，不断破坏世界贸易的规范和基本法则，不断地挑起各种贸易冲突和矛盾，最终，就连这些粗放经营模式都不可维持。
 
-联邦政府最近与阿拉巴马州的一些州机构和部门进行了沟通，表示它们受拜登的联邦承包商疫苗政策的约束，因此必须强制要求其雇员接种疫苗。
+事实上，“中国制造”本身并不值得骄傲，因为这种模式使得中国人民长期处于被剥夺财富权力和创造能力的程度。中共的目的并不是为了民族的长远未来和人民的利益。中共把一个靠巨大人口红利基础上的经济总量进行各种包装，营造出来极为宏伟壮阔的经济强国图景；可是稍稍有点理智和常识的人都知道：除了总量，人均呢？
 
-我想向阿拉巴马州人民保证，我的办公室将与这种侵犯个人自由、联邦制和分权的卑鄙行为作斗争。
+中共的各种国家财富和经济发展的美好描述，一到人均就现形。从有了爆料革命开始，一边是民众越来越多地在真相下苏醒，一边是中共闭着眼睛撒谎，假装什么都看不见，只是不断给自己和墙国人民画饼。最新的各种统计数字都是一层层地被处理、修订、包装，最后让大众看到。可是，有什么用处呢？
 
-我们将在法庭上挑战拜登的联邦承包商疫苗强制令，我将尽我所能，在12月8日联邦规定的最后期限之前解决这一问题。
+从经不起推敲的“中国制造”，从还有很多诟病的“中国制造”，现在中共居然还更加在疫情压力、西方脱钩和爆料革命真相不断的传送中，更加浮夸到吹嘘自己的“中国智造”。首先是，它还想捆绑中共和中国在一起。它还想自己牢牢地死死地抱着中国人民的大腿不放，因为有这个在它的屁股底下，它就认为自己还能扳回一局，还能劫后余生。之前，也许它还能办到，如同它在历次的人民反抗斗争中被它狡猾的表演救回小命。可是，有了爆料革命，中共的底裤都被扒拉下来，哪里还有机会给它再欺骗下去。
 
-（签名）
+让民众清楚认识到，中共姑且连“中国制造”的幻景都不可维持，“中国智造”更是痴人说梦是非常重要的。由于“中国制造”已经没有各种事实和依据再拿出来说，中共只好就一条道走到底，干脆说自己高科技领先全世界了。反正牛皮吹上天，老百姓习惯了接受中共编织的信息，能够捱过一天就算一天。中共对老百姓的管理，就是泼皮无赖的表现。可这就是中共作为一个非法存在和集权专制必然的无知和狂妄，简单和不负责任。中共自己什么都不创造和生产，都是剥削老百姓，从“制造”到“智造”，没有坚实的技术基础，根本办不到。吹牛的人，不懂得牛皮光吹，总是要破的。我们就看，它怎么吹，牛皮怎么破。中共必灭就是这个道理。
 
-言简意赅的声明，马歇尔总检察长一语中的，这是侵犯自由的卑鄙行径，我们必须与之斗争。州长们、州总检察长们、州议员们，起来，向邪恶说不，否则将会有更多的无辜者遭受阴谋集团迫害。
+本文纯属个人观点，与Gnews无关
 
-声明文字整理：
+参考消息：
 
-ALABAMA ATTORNEY GENERAL
+以真实体验描绘中国智造之美（全面小康画卷）
 
-STEVE MARSHALL
-
-The federal government has recently communicated to a number of state agencies and institutions in Alabama that they are subject to President Biden’s federal-contractor vaccine mandate and must therefore, force their employees to be vaccinated.
-
-I want to assure the people of Alabama that my office will fight this contemptible infringement upon individual liberty, federalism, and the separation of powers.
-
-We will be challenging President Bidens federal-contractor vaccine mandate in court, and I will do everything in my power to resolve this matter before the federally dictated deadline of December 8.
-
-（文章仅代表作者个人观点）
-
-原文链接：[https://twitter.com/AGSteveMarshall/status/1451701843311087617](https://twitter.com/AGSteveMarshall/status/1451701843311087617)
+[http://ent.people.com.cn/n1/2021/1024/c1012-32262303.html](http://ent.people.com.cn/n1/2021/1024/c1012-32262303.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

@@ -2,47 +2,49 @@
 ---
 
 
-## 维多利亚州州长暗示，不打第三针取消疫苗护照
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1615777/)
+## 全新社交媒体GETTR不会将用户关进“数字监狱”
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1615832/)
 
-#### 翻译：月映万川
+#### 编译报道：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan1-7.jpg)**图片来源：Sky News**
+10月24日，澳大利亚天空新闻“局外人”栏目采访盖特（GETTR）首席执行官杰森·米勒。这位唐纳德·川普的前顾问说，盖特是一款全新言论自由的社交媒体应用，我们的用户不会因为在政治问题上说出自己的想法而被“关进数字监狱”。
 
-#### 编辑：文泓
+米勒先生告诉天空新闻：“我们的独特之处在于，第一，我们不会因为任何人的政治信仰，而取消或审查或取消平台（资格）或将其算法化。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-18.jpg)
+“与此同时，我们也有一个积极和强大的修改政策，为了使这两者相辅相成，我们也确保平台不出现非法内容。”
 
-**图片来源：European Pharmaceutical Review**
-不久之后，澳大利亚维多利亚州居民将会被要求打新冠疫苗加强针，或者面临失去他们完全接种后享有自由的后果。
+“例如，你不能用身体伤害（自残）来威胁别人，或者你不能使用种族或宗教亵渎的字眼……我们确保监控（平台）环境，让使用者感到安全。”
 
-在周日新闻发布会上，维多利亚州安德鲁斯州长宣称，未来对于已接种人群来讲，“维持你的完全疫苗接种身份是你需要考虑的”。同时，他也警告未接种疫苗者，至少到2023年你才能够参与到“疫苗经济”中来。
+米勒先生说，自7月4日推出以来，这款应用程序“像火箭一样起飞”，已经拥有近300万用户。
 
-此番言论，是在周一州长将与医疗监管部门讨论是否需要把第三剂疫苗加强针推向公众时做出的。据称，这一决定最早可在本周末开始实施。
+他说：“我们的美国客户群约占我们整个全球客户群的47%，美国以外的客户群占53%，所以盖特确实已成为一个全球平台。”
 
-**澳大利亚药监局与联邦疫苗咨询委员会（****ATAGI****）正在考虑在****6****个月后为第二针疫苗接种者施打加强针。**
+当天，米勒先生同步在盖特留言：
 
-如果疫苗加强针政策通过的话，澳大利亚将成为继以色列以后，世界第二个要求施打加强针的国家。
+今天，很高兴加入澳大利亚天空新闻网的“局外人”节目!
 
-目前澳大利亚多个州均要求使用疫苗护照来获得室内用餐、理发和健身房健身等公共服务。
+哇！新的更新：盖特人数与川普总统上周宣布他的新公司（成立）之前相比，现在注册人数继续增加一倍多。
 
-在周日晚上的一份声明中表示，联邦政府“已经表明，一旦澳大利亚药监局和疫苗咨询委员会考虑并批准在澳大利亚使用疫苗加强针，国家就会马上启动疫苗加强针项目”。
+我对澳大利亚（用户）的预测？
 
-联邦卫生部长亨特指出，“我们的疫苗供应充足，分发能力强大，并足以让每一个选择这样做的澳大利亚人得到他们的加强针来更新完全接种身份。”
+看看今天的新注册（人数）领跑者：
 
-目前，新南威尔士州已经在等待疫苗咨询委员会（ATAGI）关于加强针的进一步的指导意见，并且联邦政府也会继续审核这个问题。
+美国：37%，澳大利亚：20%；巴西：15%。
 
-**亨特部长在本月早些时候也拒绝排除需要疫苗加强针来维持你的疫苗护照有效性的可能。**而且，他也表示，不会排除对某些特定行业进行要求施打加强针来维持疫苗护照的可能性。
+在过去24小时内，盖特在澳大利亚的App Store上连续跃升了109个位置！！！
 
-澳大利疫苗咨询委员会（ATAGI）正在积极的研究是否需要加强针。在未来的几周，ATAGI会以临床为参照，给出是否需要第三针的建议，以及施打加强针的间隔问题。
+我们开工吧！！！
 
-（文中观点仅代表作者个人观点，与Gnews平台无关）
+（以上仅代表作者个人观点，与Gnews平台无关）
 
-原文链接：[Covid booster shots to be required in Victoria to keep vaccine passport | news.com.au — Australia’s leading news site](https://www.news.com.au/lifestyle/health/health-problems/your-six-months-is-up-daniel-andrews-hints-boosters-will-be-needed-to-keep-fully-vaccinated-freedoms/news-story/9fe6ec45f4d9530ab438f339598b1cb9)
+参考链接：
 
-**发布：文泓**
+1、[New free speech app GETTR won’t put users in ‘digital jail’ for speaking their minds | Sky News Australia](https://www.skynews.com.au/opinion/outsiders/new-free-speech-app-gettr-wont-put-users-in-digital-jail-for-speaking-their-minds/video/bb3cc4507e39c15cce065758348f6fc3)
 
-**更多资讯，请关注：****
+2、[Jason Miller on GETTR](https://gettr.com/user/jasonmillerindc)
+
+**发布：文泓更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+﻿
