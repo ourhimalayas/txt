@@ -2,20 +2,27 @@
 ---
 
 
-## 加拿大魁省家长反对儿童接种新冠病毒疫苗
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1615299/)
+## 有声|欧洲议会高票通过历史上首份“欧台政治合作报告”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1615306/)
 
-编译撰稿：Spirit       校对编辑：硫酸羟氯喹64
+配音：香草山美食部 – 玫瑰园
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/t-edited.png)图片来源：CBC
+10月21日，欧洲议会以580:26，压倒性通过历史上首份 “欧盟-台湾政治关系与合作”报告，呼吁欧盟全面提升与台湾的关系。台湾方面表示，这是民主的一大胜利，是台欧关系新的里程碑。
 
+该报告就欧盟与台湾关系提出了36项具体建议，包括：欧盟强化与台湾的政治及经济关系，鼓励欧盟及会员国与台湾进行包含最高层级的互动，严重关切中共对台湾的军事恫吓，启动双边投资协定谈判准备工作，将欧盟驻台办事处更名为“欧盟驻台湾办事处”，在半导体等产业进行合作等。
 
-据[加拿大广播公司]10月21日新闻报道，[魁北克国家公共卫生研究所]的一项在10月1日至13日进行的调查结果显示，该省约有四分之一的家长反对当局对5-11岁年龄段儿童接种“新冠病毒疫苗”。
+多位议员强调：这是历史性的投票，要告诉中共“阻止民主进程的努力是徒劳的”；台湾是华人民主的典范；在中共极权主义政权越来越狂妄的时候，“我们必须采取民主攻势”。 欧洲议会发布声明称，台湾是欧盟的重要合作伙伴和民主盟友，欧盟将保护台湾的民主，中共不能单方面改变台海现状，不能违背台湾公民的意愿。
 
-在被调查者中，约22%的父母反对为他们年幼的子女接种该疫苗，5%的人不太同意接种该疫苗，还有10%的人不确定是否需要接种。而另一方面，约44%的家长则完全同意魁省政府的该疫苗接种计划 ，有19%的人勉强同意。
+文字版原文：[欧洲议会高票通过历史上首份“欧台政治合作报告”](https://gnews.org/zh-hans/1611948/)
 
-[魁北克省卫生部]近几周来一直通过学校与家长联系，以确定为该年龄段的65万名幼儿注射“新冠病毒疫苗”的首选方案。
+音频处理：喜山必胜Maverick
 
-（以上内容仅代表原文信息和作者个人观点）
-
-[原文链接：](https://www.cbc.ca/amp/1.6219515)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,19 +2,22 @@
 ---
 
 
-## 文贵爆料24/10：都是钱惹的祸——3亿美金和20亿欧元的故事
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1615122/)
+## 香草山翻译部周刊|2021年10月24日第19期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1615138/)
 
-撰稿：Ermat【㊙️翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-24-at-1.00.32-PM-2.png)
-无论你多么英明神武，就算你是天上的神仙，中共也会挖好一坑，等着你下凡人间。郭文贵先生在10月24日的大直播中，讲述川普总统因3亿美金，落入圈套、以身涉险，及许家印的手下要汇给他20亿欧元的故事。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-413.png)
 
-徐家印的手下跟我联系说，我们账上大概有二十多亿欧，现在准备投你们的G系列，怎么样？我说，你钱汇出来之日，你在国内的家人绝对全家都会被抓，不要冒这个险。他说那不可能，他还存有幻想呢。我告诉他，我们不要你这个钱，我们有全世界最严格的kyc。最后都说到啥程度了？郭先生，你给我打一欠条，我就说钱借给你。我告诉你，全世界不会有任何人，只打一个欠条就汇给你二十亿欧元。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/text-CN-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-你看川普总统为了三亿美元，就这样冒险，就完全迷失了方向。一个美国总统啊，一个以反共出名的总统，结果加入了由共产党全面设计的，一群刑事犯罪分子操作的一个惊天骗局。在钱面前、在色面前、在权力面前，能挺得住的人，太少了。
+编辑： Lakers
+发稿： Lakers
 
-郭先生最后重申，我们绝对不能攻击川普总统。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
 
-参考链接：
-
-[2021年10月24日 文贵大直播](https://gtv.org/video/id=617551cfeadeb11f5e79f5d5)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

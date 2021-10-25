@@ -2,29 +2,34 @@
 ---
 
 
-## 前辉瑞首席科学家：中共病毒疫苗危害女性生殖系统
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1612962/)
+## 纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1534601/)
 
-**撰稿：日本东京方舟农场 北极**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-CN.jpg)
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-10月19日，喜马拉雅战鹰团（Himalaya Hawk Squad）在盖特（Getrr）上发布的一段视频中，前辉瑞首席科学家麦克·伊顿（Michael Yeadon）博士发出警告表示，中共病毒疫苗危害女性生殖系统健康。
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
 
-麦克· 伊顿博士于2011年之前在辉瑞公司药物研发部门任职首席科学家兼副总裁。他透露，日本药品监督局曾给实验鼠注射辉瑞生产的新冠疫苗，发现老鼠卵巢中的疫苗残留浓度至少是其他组织的20倍。该研究主要针对疫苗在体内的药代动力学，即身体如何吸收、扩散和排泄疫苗产物。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-001-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-002-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-003-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-004-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-005-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-006-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-007-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-008-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-009-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-010-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-011-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-012-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-013-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-014-scaled.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/الادعاءات-التي-تستهدف-بيل-غيتس-تتهمه-بالاستفادة-من-وباء-كورونا-مثل-شخصية.jpeg)图片来自于网络
 
-伊顿博士解释，虽然现在还没在人体进行这类实验，但根据毒理学的原则，如果没有任何人体数据与已知老鼠研究相矛盾，可以据此对人体做出同样假设。疫苗在卵巢聚集时表达出病毒刺突蛋白，诱导自身抗体破坏卵巢组织。
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-伊顿博士还表示，他与德国的医生向欧洲药品管理局提交了申请，对15名接种辉瑞疫苗的怀孕妇女做血液学检测。检测结果发现，在接种疫苗的第1-4天，针对胎盘的抗体滴度增加了2.5-3倍，即增加了250-300%。
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
 
-伊顿博士分析说，疫苗诱导出的免疫反应可能会攻击孕妇的胎盘。虽然结果还不确定，但他看过文献，患自身免疫疾病的孕妇在第一阶段流产比例很高。
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[Dr. Michael Yeadon:](https://gettr.com/post/pekmhd84d5)[#vaccinesideeffects](https://gettr.com/hashtag/%23vaccinesideeffects)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
++4

@@ -2,22 +2,29 @@
 ---
 
 
-## 加拿大退休基金欲引入加密数字货币投资
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1615319/)
+## 有声|造谣美国龙虾为新冠源头，中共水军现形
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1615323/)
 
-采编：青青      编译撰稿：文明(添草灭共)
+配音：香草山美食部 – 玫瑰园
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/bitcoin2.jpg)图片来源：YH
+据NBC 10月21日报导，英国牛津大学专精假消息的研究员Marcel Schliebs发现，中共外交官和数百个推特帐号，近期密集散布假消息，称新冠病毒很可能是在2019年11月，通过运往武汉海鲜市场的缅因州龙虾，从美国传到中国。
 
+这是中共最新散布的阴谋论，已被翻译成多种语言，由五百多个支持中共的推特帐号，每天上午规律地发布，其中包含一部分假账号。
 
-据【雅虎新闻】10月21日报道，作为加拿大投资管理服务公司之一的[财富之路公司]，近期试图将“加密货币投资项目”引入其退休基金经营计划之中。
+美国某智库专精假消息的专家也指出，这是中共在疫情爆发后，再一次企图将新冠起源栽赃给美国，混淆视听。
 
-目前，随着比特币价格飙升至新高，更多投资者开始关注争议性较大的加密货币市场。为此，[财富之路公司]建议那些正在使用该公司平台进行团体退休计划投资的数百名雇主，应鼓励他们的员工将其不超过3%的资金投入到比特币和以太坊等加密货币市场中。
+中共驻英大使馆发言人依旧不承认传播假消息。但网络是有记忆的，作恶终会留下痕迹。中共今日的障眼法都会成为将来的认罪书。
 
-同时，该公司也承认，由于目前加密数字货币市场的波动性较大，因此设置3%的比例上限以控制投资风险。一旦今后其价格趋涨，退休投资组合将自动提高加密数字货币原有的投资配置比例，并将相关收益变现后重新分配到股票或债券等更稳定的投资项目中。
+文字版原文：[造谣美国龙虾为新冠源头，中共水军现形](https://gnews.org/zh-hans/1611921/)
 
-（以上内容仅代表原文信息和作者个人观点）
+音频处理：喜山必胜Maverick
 
-校对编辑，发稿：硫酸羟氯喹64
-
-[原文链接：](https://ca.finance.yahoo.com/news/canadian-crypto-investingworkplace-retirement-plans-113605829.html)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
