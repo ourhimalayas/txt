@@ -2,43 +2,50 @@
 ---
 
 
-## 中共国多地接连发生爆炸事故
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1617062/)
+## 阿尔伯塔省修改了牧师蒂姆·斯蒂芬斯的文件发布
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1617077/)
 
-作者：美东香草山农场 – 山本不惑
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日来，中共国从北到南多个城市，接连发生爆炸事故。
+作者：Sheila Gunn Reid
+翻译：Himasally
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-20.jpeg)
 
-10月21日上午，辽宁沈阳市和平区的一家餐厅发生爆炸。当地出动多台殡仪馆车辆、消防车及120急救车。现场目击者称，爆炸升起的烟尘像一朵蘑菇云。爆炸威力巨大，严重波及整个街区。事故已造成4人死亡、3人重伤、44人轻伤。
 
-10月23日晚上，内蒙阿拉善盟发生爆炸。造成4人死亡、1人重伤、2人轻伤。爆炸发生地点位于，巴音敖包工业园区、蒙古中高化工有限公司的氧化车间。
+我们有一个全新的信息文件访问权限，向你展示关于蒂姆斯蒂芬斯牧师被捕和监禁的信息。
 
-10月24日早上，辽宁大连瓦房店的一栋民居发生燃气爆炸。视频显示，爆炸引发了大火。事故造成2死7伤。不久前，在9月11日，大连市普兰店区一住户家中液化气罐泄漏并引发爆炸，造成8死5伤。
+坏消息是，我只能向你展示 18 页的内容。
 
-10月24日下午，江苏南京航空航天大学的实验室发生爆炸，现场一度出现白色蘑菇云。爆炸发生地，位于材料科学与技术学院的实验楼。目击者称，现场两度传出爆炸声。事故已造成2死9伤。
+现在，对于可能不知道的人来说，蒂姆斯蒂芬斯牧师一直受到公共卫生当局的骚扰。阿尔伯塔省卡尔加里锦绣浸信会教堂对此事也很困扰，当时该教堂没有拒绝会众以满足政府不断变化的容量限制和新冠对崇拜场所的限制。
 
-目前，关于这些爆炸案件的处理措施，中共官方没有任何后续报道。
+警察在礼拜期间进入教堂并逮捕了蒂姆，不是一次而是两次，第一次是在周日礼拜之后，然后是在他的孩子面前，当时他被关押在卡尔加里监狱数周。
 
-(本文仅代表作者观点)
+蒂姆牧师的事件由宪法自由司法中心的律师代理。我们的团队几乎从一开始就在锦绣浸信会教堂那里。
 
-参考链接：
-1）[沈阳一饭店爆炸致4死47伤 事发区域此前发生过两次爆炸](https://news.sina.com.cn/c/2021-10-22/doc-iktzscyy1033489.shtml)
-2）[内蒙古阿拉善一化工厂爆炸已致4死3伤](http://www.news.cn/local/2021-10/23/c_1127987775.htm)
-3）[大连再发生燃气爆炸，2人死亡](https://www.dw.com/zh/大连再发生燃气爆炸2人死亡/a-59603728)
-4）[南京航空航天大学一实验室爆燃致2人死，有人听到不止一次爆炸声](https://news.sina.com.cn/c/2021-10-24/doc-iktzqtyu3315231.shtml)
+所以很自然地，我想知道是谁做出了折磨锦绣浸信会会众的决定，让无辜的斯蒂芬斯的孩子们终生受到创伤，因为他们看到他们的父亲因开设教堂的罪行而被戴上手铐带走。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+通过调查蒂姆牧师的待遇，我没有得到巨额账单或巨大的延误，我得到了一些同样令人沮丧但同样激励的消息。我将保持好我的奇心继续调查。
 
-总编：正义的小新
-编辑：文真 
-校正/发稿：谐趣园
+我确实收到了 18 页的电子邮件。但是这些页面都被编辑了。这里几乎没有什么可看的。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+我们正在上诉，我们会上诉，直到我们收到全部文件，我们可以向你展示关于蒂姆牧师的言论和计划。
+
+但不断的上诉是昂贵的，我们有一名研究人员为他们归档并为我们处理文书工作，最终可以帮助我们得到所有信息。
+
+來源：[https://www.rebelnews.com/alberta\_redacts\_entire\_pastor\_tim\_stephens\_document\_release](https://www.rebelnews.com/alberta_redacts_entire_pastor_tim_stephens_document_release)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

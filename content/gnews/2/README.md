@@ -2,25 +2,44 @@
 ---
 
 
-## 特斯拉市值史上首达万亿规模
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1617240/)
+## 苹果应中国政府要求下架圣经相关应用程序
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1617258/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+作者：Abhishek Pratap
+翻译：Himasally
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/T-9.jpg)celebritynetworth.com
-美东时间10月25日报道，交易数据显示，截至莫斯科时间19:39，特斯拉股价上涨9.75%至998.38美元。特斯拉是第五家市值超过一万亿美元的美国公司。除此以外，万亿俱乐部还包括苹果、微软、亚马逊和Alphabet（谷歌的母公司）。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/apple.jpeg)
 
-这家由伊隆∙马斯克（Elon Musk）创立的公司收到了来自美国汽车租赁巨头赫兹公司(Hertz)的最大一笔电动汽车订单 – 10万辆，赫兹四个月前已摆脱破产程序。赫兹发言人马克∙菲尔兹表示，大部分的订单是Model 3电动汽车。他补充说，赫兹公司的客户将从11月起能够租用特斯拉汽车。
+宗教实体指责苹果与中国共产党政府的宗教迫害合作，删除了在 iPhone 和 iPad 应用平台苹果商店上向中国用户提供的相关圣经应用程序。
 
-根据交易条款，特斯拉必须在2022年底前完成整个订单。因此，电动汽车将占赫兹全球车队份额的20%以上。该公司的客户将可以使用特斯拉的充电网络，赫兹自己也计划建立自己的电动汽车充电基础设施。
+根据苹果审查简介, “苹果审查” 意译为“Apple Censorship”），它监控世界各地苹果商店中应用程序的审查，该公司提取了有关圣经和穆斯林圣书古兰经的应用程序。
 
-最便宜的轿车特斯拉Model 3的价格约为44000美元。如果考虑到整个订单是针对这一车型，赫兹的订单可能为特斯拉带来约44亿美元。
+“在苹果，所有的宗教都是一样的：圣经和古兰经中的应用程序最近都从中文应用程序商店下架了，”10 月 12 日的帖子道。
 
-研究公司JATO Dynamics称，Model 3电动汽车是9月份欧洲最畅销的汽车，超过了装有内燃机的竞争对手，这一消息也使特斯拉的股票受到鼓舞。
+该配置文件还报告说，自今年 9 月 30 日以来，至少有九个具有宗教内容的应用程序已从商店中删除。
 
-特斯拉现在有两个工厂生产电动汽车，一个在中共国上海，一个在美国加州。尽管在部件交付方面存在一些问题，但这个世界上最昂贵的汽车制造商在第三季度交付了创纪录的241300辆电动汽，之前的纪录是今年第二季度的201250辆电动汽车。
+美国伊斯兰关系委员会（凯尔）代表爱德华·艾哈迈德·米切尔在接受基督教广播新闻采访时指责苹果配合中国政府的宗教迫害政策，并呼吁修改该决定。
 
-参考链接：
+“通过遵守中国共产党的命令，从其在中国的平台上删除圣经和古兰经应用程序，苹果正在助长该国的宗教迫害，包括对维吾尔穆斯林的种族灭绝。这需要被改正，” 福尔国立主任说。
 
-[https://quote.rbc.ru/news/article/6176c8e69a7947c6d23a77f7?from=from\_main\_4](https://quote.rbc.ru/news/article/6176c8e69a7947c6d23a77f7?from=from_main_4)
+针对R7的报道，苹果新闻办公室表示，该公司不会就此事发表评论。
+
+來源：[https://playcrazygame.com/2021/10/23/apple-drops-bible-apps-at-chinese-governments-request-news/](https://playcrazygame.com/2021/10/23/apple-drops-bible-apps-at-chinese-governments-request-news/)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

@@ -2,29 +2,44 @@
 ---
 
 
-## 中共国5G基站建设放缓，日本零部件企业转向欧美
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1615377/)
+## 11 月 8 日起接种COVID-19疫苗成澳洲教师就业条件
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1615680/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/12-13.png)[图片来源](https://www.8kcine.com/1949.html)
-日经新闻网10月22日消息，由于中共5G基站建设正在放缓，住友电气工业等日本零部件厂商将增加欧美的开发人员，推进拓展欧美市场。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-中国国家统计局的数据显示，1～8月的移动通信基站零部件的产量同比减少53％，按有数据的月份来看，连续11个月下滑。据统计，中共国占到全球通性基站市场的逾6成份额，零部件的产量与基站的建设动向基本成正比例。对日本的零部件厂商而言，大客户中共国的减速构成打击。村田制作所会长村田恒夫表示，“防止通信故障的零部件的需求正在下滑”。日本一家大型通信零部件企业则透露，“自2020年夏季起，多个面向中国华为技术的项目告吹”。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/3000-scaled.jpeg)
 
-住友电工将在2021财年（截至2022年3月）内把荷兰等欧美的开发人员数量翻一番。此举是为了能迅速将客户的要求体现到开发中。该公司用于5G基站的美国半导体工厂9月投产。目前，从住友电工的基站零部件的海外营收来看，中共国占9成。力争在5年后把欧美的比例从1成提高至5成。
 
-此外，日本电气硝子最早将于2022年成立专注于欧美的营业团队。该公司的光纤零部件有9成是面向中共国的工厂，今后将致力于欧美市场。
 
-东京大学社会科学研究所的丸川知雄教授表示，“一有变动就转向欧美的态度是中国无法接受的。日企需要制定在中国国内完成采购和制造等以中美供应链脱钩为前提的战略”。
+图片来源：apnews.com
 
-当前，中美产业链脱钩的实质动作不断加速，进一步带动其他西方国家与中共的脱钩，加之中共经济的持续恶化，越来外资外企必将从中共国市场转向或者撤离。
 
-信息来源：
+#### 编译：小红帽
 
-[日本基站零部件企业开始转向欧美 (日经中文网)](https://cn.nikkei.com/industry/itelectric-appliance/46412-2021-10-21-05-00-27.html)
+澳大利亚新南威尔士州教育部长莎拉·米切尔（Sarah Mitchell）表示，11月8日之后接种中共病毒（COVID-19）疫苗是教师的一个就业条件，政府“不会为此道歉”。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+“我们只需要看看在11月8日截止日期前数据向我们展示了什么，”米切尔告诉澳大利亚天空新闻。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+“这是11月8日之后的一个就业条件。 如果您想在学校担任教学职位，则需要接种中共病毒疫苗。这是为了保护我们学生和教职员工的健康和安全，我们不会为此道歉。”
+
+周一，新南威尔士州预计有数十万学生重返课堂，2至11年级将恢复面对面教学。
+
+新南威尔士州州长多米尼克·佩罗特（Dominic Perrottet）上周日证实，到目前为止，95%的学校教职员工都宣布他们已全面接种中共病毒疫苗。
+
+新南威尔士州教师联合会主席安吉洛·加夫列拉托斯（Angelo Gavrielatos）表示，根据这一比例，将短缺3000名教师。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：****
+**1、[Teachers being vaccinated a ‘condition of employment’ from November 8 | Sky News Australia](https://www.skynews.com.au/australia-news/coronavirus/teachers-being-vaccinated-a-condition-of-employment-from-november-8/video/6a982cc90ff1476e0d2c3e5f7af692c1)
+2、[NSW records 296 new cases as concerns raised over teacher vaccinations (9news.com.au)](https://www.9news.com.au/national/nsw-coronavirus-daily-cases-october-24-thousands-of-teachers-still-not-vaccinated-as-students-return-to-classrooms-tomorrow/b71d1444-d5b8-4640-a086-24fd5b546828)
+
+**
+*****发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
