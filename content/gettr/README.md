@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/25/2021 7:13 AM (UTC)`
+
+10/24/2021 Miles Guo: The CCP virus is the means, while the COVID vaccine disaster is the real goal; the CCP is helping the evil forces to implement their plans of global domination; a handful of families are controlling the world's wealth, as well as those pharmaceutical companies and media outlets; the COVID vaccine is the tool for a planned global genocide, and the vaccine disaster has not yet begun!<br/><br/>10/24/2021 文贵直播：中共病毒是手段，而疫苗灾难才是真正目的；中共正在帮黑暗势力推进统治全球的计划；全世界财富、制药和媒体都被极少数家族控制着；疫苗是有计划的种族大屠杀，而疫苗灾难仍尚未开始！<br/>
+![img](https://media.gettr.com/group38/getter/2021/10/25/07/13/0c343f8e-ad18-dc8b-57de-bc02a49eb193/out.jpg)
+
+---
+
 `@miles 10/25/2021 6:38 AM (UTC)`
 
 10/24/2021 Miles Guo: The CCP uses unrestricted economic warfare against President Trump, but we must not attack him since that is what the CCP wanted the most<br/><br/>10/24/2021 文贵直播：中共对川普总统使用了经济超限战，但我们一定不要攻击川普总统，因为这是中共最想要的
@@ -285,14 +292,6 @@ Transportation solutions provider Giga Energy Inc is going public through a merg
 
 10/21/2021 Miles Guo’s GETTR: Jack Ma is in a very bad situation, and his ambitions won’t be fulfilled; With the world’s economy going down and the outbreak of the COVID vaccine disaster plus the soaring prices due to excessive printing of money, no one will trust fiat currencies anymore. So, what type of currency really belongs to you? Although we‘re in a great era, please make sure to prevent the CCP virus and don’t get the COVID jabs!<br/><br/>10/21/2021 文贵盖特：马云处境很惨，他的野心将无法实现；随着世界经济下滑和疫苗灾难的爆发，疯狂印钞导致物价飞涨，无人再信法币，什么样的钱才属于你？我们虽处在一个伟大的时代，但请大家防病毒、不打疫苗！<br/>
 ![img](https://media.gettr.com/group15/getter/2021/10/22/00/52/55aecaef-2107-2043-260f-da5a7bf34eb9/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@jasonmillerindc 10/22/2021 12:34 AM (UTC)`
-
-#GETTR sign-ups are up 70.47% today! 👀
 
 ---
 
