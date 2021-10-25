@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/25/2021 6:38 AM (UTC)`
+
+10/24/2021 Miles Guo: The CCP uses unrestricted economic warfare against President Trump, but we must not attack him since that is what the CCP wanted the most<br/><br/>10/24/2021 文贵直播：中共对川普总统使用了经济超限战，但我们一定不要攻击川普总统，因为这是中共最想要的
+![img](https://media.gettr.com/group30/getter/2021/10/25/06/38/bed09e41-4b47-8d44-6bfa-d7946de6c70c/out.jpg)
+
+---
+
 `@miles 10/25/2021 5:42 AM (UTC)`
 
 The relationship analysis of the characters in SPAC that merged with Trump media
@@ -56,13 +63,6 @@ With his new platform, Trump may bring his supporters back to the social media w
 
 10/24/2021 Miles Guo: The stock price of DWAC was going up and down at the fastest speed in the shortest period of time, because of the CCP’s funds doing insider trading and manipulating the stock market. The MAGA supporters and blue collars have been swindled, and the amount of money laundered away is between 5 and 8 billion USD<br/><br/>10/24/2021 文贵直播：DWAC的股价在最短时间内以最快速度大涨大跌，背后全是中共的基金在进行内幕交易和操纵股市，他们割了MAGA支持者和蓝领们的韭菜，洗走了50到80亿美元的钱！<br/>
 ![img](https://media.gettr.com/group8/getter/2021/10/25/02/31/7f2ca60d-7ae9-07c9-4fc8-afa3c2922389/out.jpg)
-
----
-
-`@miles 10/25/2021 2:27 AM (UTC)`
-
-10/24/2021 Miles Guo: The CCP uses unrestricted economic warfare against President Trump, but we must not attack him since that is what the CCP wanted the most<br/><br/>10/24/2021 文贵直播：中共对川普总统使用了经济超限战，但我们绝对不能攻击川普总统，因为这是中共最想要的
-![img](https://media.gettr.com/group25/getter/2021/10/25/02/27/3fa19d7a-af23-04ef-3466-00d77162a460/out.jpg)
 
 ---
 

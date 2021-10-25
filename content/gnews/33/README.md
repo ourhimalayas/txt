@@ -2,20 +2,20 @@
 ---
 
 
-## 加拿大“新冠病毒疫苗”护照恐将危害隐私安全
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1615472/)
+## 雅典娜时报-第092期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1615537/)
 
-编译撰稿：文莱         校对编辑：硫酸羟氯喹64
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a2-1-edited.jpg)图片来源：TRUENORTH
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/10/47.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/48-2.png)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
+***发布：小红帽***
 
-据加拿大自媒体【真北方】10月23日报道，安大略省前信息和隐私专员安博士对该省政府将利用“新冠病毒疫苗”接种证的二维码，来对其居民进行监视行动的可能性做出了警告。
-
-安博士明确表示，该省已接种“新冠病毒疫苗”者会因为该疫苗护照的二维码，而暴露其实时地理位置等具体数据，并且政府可以通过该数据得到这些人的个人隐私信息。
-
-据悉，安省的该疫苗护照实时数据收集模式，将创建一个全球数字基础的监控系统。虽然有专家指出，该系统不会受到网络攻击或外国实体的滥用，但此前曾有黑客组织已警告过魁北克省政府，声称他们能够通过该系统中的漏洞访问包括省长勒戈在内的多位知名政客的私人信息数据。
-
-（以上内容仅代表原文信息和作者个人观点）
-
-[原文链接：](https://tnc.news/2021/10/23/vaccine-passes-are-a-road-to-global-surveillance-says-former-privacy-commissioner/)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

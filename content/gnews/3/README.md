@@ -2,37 +2,74 @@
 ---
 
 
-## 国际要闻汇编 10月25日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1615801/)
+## 10.24大直播，不要把自我拯救希望交给别人，要靠自己
+` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1615835/)
 
-#### 素材：东京樱花团｜GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-441.png)[*图片来源*](https://gdb.voanews.com/153308F9-A055-4828-BC6E-CF056B890EC6_cx0_cy5_cw0_w1597_n_r1_st.jpg)
-1、[**股价两天涨800% 川普媒体科技借壳上市**](https://www.aboluowang.com/2021/1025/1663675.html)
+我为在纽约、欧洲、亚洲的战友，建几个最困难时期，最困难时期就是灭日，泰坦尼克号沉船那样的情况
 
-特殊目的收购公司（SPAC）“数位世界并购”（DWAC）将收购美国前总统川普旗下拟推出新社交媒体的“川普媒体科技集团”，使其借壳上市，DWAC股价连两日大涨逾800%，22日收盘报94.2美元。
+给G系列投资者，全球重大贡献的战友提供救助，我们能提供有电，有基本的饭，有基本救命的药的庇护所，会是短期的帮助，无法做到中长期
 
-2、[**美台工作组会议，美重申支持台湾入世卫和联合国气候变化框架公约**](https://www.voachinese.com/a/us-taiwan-meeting-on-international-organizations-20211023/6283253.html)
+任何人在那样的情况下无法保证提供中长期的救助，不要把自我拯救希望交给别人，只能靠自己
 
-美国务院周六（23日）发布媒体通知说，10月22日，美国在台协会和驻美国台北经济文化代表处召集美国国务院和台湾外交部的高级代表就台湾参与联合国和其它国际论坛举行了一次视频论坛。讨论重点是支持台湾有意义地参与联合国并对处理全球挑战贡献其宝贵专业技能的能力，包括全球公共卫生、环境和气候变化、开发援助、技术标准和经济合作。美国与会代表重申美国致力于台湾有意义地参与世界卫生组织和联合国气候变化框架公约，讨论了突出台湾对广泛议题努力做出贡献能力的方法。
+我唯一个人建议上国内的人，你如果没有足够的生存能力，出国更惨，出国没有钱和语言都寸步难行没，在国内，就搬到农村去，任何时候，别打疫苗，别染上病毒，预备足够的伊维菌素，地塞米松，羟氯喹，青蒿素。
 
-3、[**英国外相指不能过于依赖中国**](https://www.voachinese.com/a/uk-foreign-secretary-suggests-china-plays-no-role-in-key-uk-infrastructure-20211023/6282798.html)
+I’m building a few shelters for fellow fighters in New York
 
-英国外相特拉斯（Liz Truss）接受英国《每日电讯报》（Daily Telegraph）访问，指中国是英国的重要贸易伙伴，但重要的是关系不能变得过于依赖。特拉斯指，英方不可以在包括核电厂和5G网络的关键基础建设上过于依赖中国，而应该寻求与“思维接近”的伙伴共同建设。特拉斯的言论显示，即使英国不会将中国投资拒于门外，但中方只能在非战略领域投资。
+Europe and Asia for the most difficult times
 
-4、[**中国公司欲承包泰国水利项目 人权人士表示反对**](https://www.voachinese.com/a/china-shows-interest-in-a-thailand-water-project/6283640.html)
+the most difficult times being the end of days
 
-据美国之音消息，泰国的一个备受争议的调水项目引起了一家中国大型公司的兴趣，泰国政府计划向前推进这项计划。国家环境委员会于9月批准了一项重要的尤姆河引水工程的环境影响评估报告。国家环境委员会此前曾两次拒绝该项目的评估，最近一次是在2019年12月。一家未具名的中国公司愿意自费在四年内，而不是预计的七年内，以略高于21亿美元估计价格一半的造价建造该项目。几周后，9月份的情况出现了转机。泰国的人权组织已经在反对该项目，担心新水库将淹没村庄，以及地下管道将连根拔起的保护森林。
+like the sinking of the Titanic
 
-5、[**刚果叫停所有可疑伐木许可 中企受冲击**](https://www.aboluowang.com/2021/1025/1663667.html)
+We can provide a shelter with electricity
 
-非洲国家刚果（金）近日下令重新审计所有伐木合同，并在全球年度气候峰会（COP26）之前暂停所有可疑的特许权，再次对中国企业造成冲击。刚果政府表示，此举旨在配合联合国气候变迁规范，以消除非法合同或导致该国丢失10亿美元国际资金的风险。刚果盆地拥有仅次于亚马逊的世界第二大雨林，面积达3.75亿公顷。据统计，刚果金有三分之二的木材销往中国，特别是红木。然而这种木材已被国际组织列为非法采伐和盗木贸易的主要目标之一。
+basic food, basic life-saving medicine
 
-6、[**美南加州24日起同区电话也须拨区号共十个数字**](https://www.aboluowang.com/2021/1025/1663610.html)
+but it will be a short-term help
 
-周日（24日）开始，美国南加州区域电话号码是562、626、949和951的居民，在拨打电话时都需要先拨区号，也就是他们即使是打电话给相同区号的人，前面一样要先拨区号，即要拨“十个数字”（10-digit dialing），电话才能够接通。有些地方并要求在拨三位数的区号前先拨1，尤其是用那些固定电话或有线电话拨号的人。至于大多数的手机，都已经在区号前自动加1了。
+not a medium or long-term help
 
-（本文只代表个人观点，与Gnews网站无关）
+No one can guarantee medium to long term support
 
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+in a situation like that
+
+don’t leave the hope of saving yourself
+
+in the hands of others, it’s up to you
+
+My only personal advice to people in the China
+
+is that if you don’t have enough to survive
+
+it’s worse to go abroad
+
+without money and the ability to speak other languages
+it will be hard to get around
+
+in China, move to the countryside
+
+at all times, don’t get vaccinated, don’t get the virus
+
+have enough Ivermectin, Dexamethasone
+
+Hydroxychloroquine and Artemisinin
+
+听写/翻译/字幕添加：kent
+
+发布：风云小哥
+
+
+> *免责声明：尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。*
+
+
+* * *
+
+更多加拿大枫叶农场的频道，请关注：
+
+- [GTV: 喜马拉雅加拿大多伦多枫叶农场](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
+- [GTV: 加拿大枫叶农场蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
+- [GTV: 多伦多枫叶财经频道](https://gtv.org/user/5f359954313eaf1e3716cfc1)
+- [喜马拉雅加拿大多伦多枫叶农场discord](https://discord.gg/Cpz33sS)
+- [加拿大多伦多枫叶农场 on GETTR](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_MPL_banner.png)
