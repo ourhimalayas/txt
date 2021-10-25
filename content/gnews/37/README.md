@@ -2,17 +2,31 @@
 ---
 
 
-## 秘翻在线：习近平自2020年1月18日后首次出国门？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1617030/)
+## 盖特用户逼近300万，已经成为真正的全球媒体平台
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1617051/)
 
-**撰稿：四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-26-002843.jpg)
-据10月25日中共国外交部发言人汪文斌在记者会上确定，中共国外长王毅将于10月25日至26日访问卡塔尔，并于10月27日至29日访问希腊、塞尔维亚、阿尔巴尼亚和意大利。
+作者：纽约香草山农场 – Delilah小胖
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月24日，盖特首席执行官杰森·米勒先生在接受澳洲媒体采访时说，盖特用户不会因为在政治问题上发表意见而被“置于数字监狱”。
 
-汪文斌在谈及此次访问的目的和考虑时表示，卡塔尔是中东海湾地区重要国家，也是中共国在中东海湾地区重要的能源、经贸合作伙伴，并在阿富汗等地区热点问题上有独特作用和影响。希腊、塞尔维亚、阿尔巴尼亚和意大利是中共国在欧洲的重要合作伙伴，是“一带一路”在欧洲的重要参与国家。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-23.jpeg)
 
-郭文贵先生的情报说这次习近平会悄悄和王毅一同出访这五国，很可能说明国内和江派的政治斗争已告一段落，用此次出行向即将召开的二十大和全党证明其有能力领导中共国，让中东和欧洲也都臣服于中共国的威逼利诱之下，使习可以顺利继续他的第三个五年任期。
+米勒先生表示，盖特自今年7月4日推出以来“像火箭一样起飞”，已经拥有近300万用户。其中美国本土客户占47%，美国以外的客户占53%，因此，盖特成为真正的全球媒体平台。
 
-但是习近平超过600天不出国露真身也有种猜测是他的身体每况愈下，很多政治对手都希望他健康出事。因此习这次是否真的能用出国来证明自己的身体状况良好，并为顺利召开二十大铺平道路，还有很多变数值得观察，我们也将继续跟踪报道这次出访的情况。
+(本文仅代表作者观点)
 
-**[新闻来源](http://www.chinanews.com/gn/2021/10-25/9594719.shtml)**
+参考链接：[New free speech app GETTR won’t put users in ‘digital jail’ for speaking their minds](https://www.skynews.com.au/opinion/outsiders/new-free-speech-app-gettr-wont-put-users-in-digital-jail-for-speaking-their-minds/video/bb3cc4507e39c15cce065758348f6fc3)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

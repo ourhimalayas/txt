@@ -2,44 +2,49 @@
 ---
 
 
-## 苹果应中国政府要求下架圣经相关应用程序
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1617258/)
+## 福奇资助了残忍的小狗实验，让沙蝇活生生地吃掉它们
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1617378/)
 
-作者：Abhishek Pratap
-翻译：Himasally
+【简评：】*福奇之流把自己当作了上帝，一副道貌岸然，用科学遮掩着犯罪。他坚称虐待小狗是科学，推行病毒疫苗，伤害数百万人也是科学！认为那些批评他的人“实际上是在批评科学”。如此狂妄自大，用所谓的“科学”操纵着人们的生命，必将受到追责和审判。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/apple.jpeg)
+据《零对冲》记者：Tyler Durden 2021年10月23日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-453-e1635189272567.png)图片源自：《零对冲》
+据《国会山报》报道，虽然最近人们的注意力集中在安东尼*·*福奇的美国国立卫生研究院（NIH）资助蝙蝠冠状病毒的遗传操作上，但一个两党的立法者小组要求对小狗下药的“病态”实验做出答复。
 
-宗教实体指责苹果与中国共产党政府的宗教迫害合作，删除了在 iPhone 和 iPad 应用平台苹果商店上向中国用户提供的相关圣经应用程序。
+“我们的调查人员表明，**福奇的 NIH 部门将375,800美元赠款的一部分赠送给突尼斯的一个实验室，用于给比格犬下药，并将它们的头锁在装满饥饿沙蝇的网状笼子里，这样昆虫就可以活生生的吃掉它们。”非营利组织白大衣废物项目写道，“他们还连续九个晚上将小猎犬单独关在沙漠的笼子里过夜，用它们作为诱饵来吸引传染性沙蝇。**”
 
-根据苹果审查简介, “苹果审查” 意译为“Apple Censorship”），它监控世界各地苹果商店中应用程序的审查，该公司提取了有关圣经和穆斯林圣书古兰经的应用程序。
+正如《国会山报》的 Christian Spencer 所写：
 
-“在苹果，所有的宗教都是一样的：圣经和古兰经中的应用程序最近都从中文应用程序商店下架了，”10 月 12 日的帖子道。
+*非营利组织《白大衣废物项目》是最早指出美国纳税人的钱被用于资助有争议的武汉病毒学研究所。现在他们已经将目光投向了安东尼·**福奇的另一项与动物测试相关的问题 —— 用引起疾病的寄生虫感染数十只小猎犬，目的是在它们身上测试一种实验性药物。***
 
-该配置文件还报告说，自今年 9 月 30 日以来，至少有九个具有宗教内容的应用程序已从商店中删除。
+*众议院议员（其中大多数是共和党人）希望福奇自己解释，以回应**《**白大衣废物项目**》**提出的涉及给小狗下药的指控。*
 
-美国伊斯兰关系委员会（凯尔）代表爱德华·艾哈迈德·米切尔在接受基督教广播新闻采访时指责苹果配合中国政府的宗教迫害政策，并呼吁修改该决定。
+*根据**《**白大衣废物项目**》**，食品和药物管理局不要求对狗进行药物测试，因此该组织询问为什么需要进行此类测试。*
 
-“通过遵守中国共产党的命令，从其在中国的平台上删除圣经和古兰经应用程序，苹果正在助长该国的宗教迫害，包括对维吾尔穆斯林的种族灭绝。这需要被改正，” 福尔国立主任说。
+*《白大衣废物项目》声称，**在北非突尼斯的一个实验室中使用了 44 只比格犬幼犬，其中一些狗的声带被切除了，据称是为了让科学家们可以在没有尖叫声的情况下工作。***
 
-针对R7的报道，苹果新闻办公室表示，该公司不会就此事发表评论。
+据《国会山报》报道，相关立法者由众议员南希·梅斯 (R-SC) 领导，他在给 NIH 的一封信中表示，声带切除术是“残酷的”，是“应受谴责的滥用纳税人资金的行为”。
 
-來源：[https://playcrazygame.com/2021/10/23/apple-drops-bible-apps-at-chinese-governments-request-news/](https://playcrazygame.com/2021/10/23/apple-drops-bible-apps-at-chinese-governments-request-news/)
+加入梅斯立法者小组的有：辛迪·阿克斯尼 (D-Iowa)、克里夫·本茨 (R-Ore.)、史蒂夫·科恩 (D-Tenn.)、里克·克劳福德 (R-Ark.)、布赖恩·菲茨帕特里克 (R-Pa.)、斯科特·富兰克林 (R-Fla.)、安德鲁·哥巴里奥(RN.Y.)、卡洛斯·吉门内兹(R-Fla.)、吉米·戈麦兹 (D-Calif.)、Josh Gottheimer (DN.J.)、Fred Keller (R-Pa.)、泰德·柳(D-Calif.)、丽萨·马克伦(R-Mich.)、Nicole Malliotakis (RN.Y.)、Brian Mast (R-Fla.)、斯科特·佩里(R-Pa.)、比尔·波西（佛罗里达州共和党）、迈克奎格利（伊利诺伊州民主党）、露西尔罗伊巴尔·阿拉德（加利福尼亚州民主党）、玛丽亚 E.萨拉查（佛罗里达州共和党）、特丽塞维尔（阿拉巴马州民主党）、丹尼尔韦伯斯特（ R-Fla.) 和 Del. Eleanor Holmes Norton (DD.C.) 。
 
-（文章仅代表作者个人观点）
+可笑的是，斯诺普斯将这个故事列为“混合物”，因为“目前尚不清楚NIH国家过敏和传染病研究所 (NIAID) 所长安东尼·福奇博士是否亲自批准了该项目。”
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+因此，责任在哪里……
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+**福奇如何解释这个问题？**
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+**福奇说，攻击针对小狗的酷刑是对科学的攻击。**
 
-**关注我们**
+文章来源：[https://www.zerohedge.com/medical/fauci-funded-cruel-puppy-experiments-where-sand-flies-eat-them-alive-vocal-cords-severed](https://www.zerohedge.com/medical/fauci-funded-cruel-puppy-experiments-where-sand-flies-eat-them-alive-vocal-cords-severed)
 
-Discord 账号
+（本文评论仅代表个人观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+翻译：洛杉矶盘古农场 – Raul
 
-Gettr 账号
+校对：洛杉矶盘古农场 – Mike Li
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+评论/编辑: 洛杉矶盘古农场 – 明子
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

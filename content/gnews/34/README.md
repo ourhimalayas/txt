@@ -2,43 +2,39 @@
 ---
 
 
-## 中共国多地接连发生爆炸事故
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1617062/)
+## 一个与武汉有联系的人让川普的媒体公司上市
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1617078/)
 
-作者：美东香草山农场 – 山本不惑
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日来，中共国从北到南多个城市，接连发生爆炸事故。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-20.jpeg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/P-9.jpg)mailbd.net
+扒一扒上周与“川普媒体和技术集团”（TMTG，Trump Media & Technology Group）签署合并协议（merger agreement）的“数字世界收购公司”（Digital World Acquisition Corp）前台掌门人、CEO帕特里克·奥兰多  (Patrick Orlando)。在股市中，掀起了这么大的风浪，且风浪还在翻滚中，自然要引起人们的关注。
 
-10月21日上午，辽宁沈阳市和平区的一家餐厅发生爆炸。当地出动多台殡仪馆车辆、消防车及120急救车。现场目击者称，爆炸升起的烟尘像一朵蘑菇云。爆炸威力巨大，严重波及整个街区。事故已造成4人死亡、3人重伤、44人轻伤。
+《雅虎》（yahoo）IPO Edge 栏目作为关注者之一，10月21日进行了这样的报道，题目“谁是与武汉有联系的帕特里克·奥兰多？他正在让唐纳德·川普的媒体公司上市。”
 
-10月23日晚上，内蒙阿拉善盟发生爆炸。造成4人死亡、1人重伤、2人轻伤。爆炸发生地点位于，巴音敖包工业园区、蒙古中高化工有限公司的氧化车间。
+全文如下：
 
-10月24日早上，辽宁大连瓦房店的一栋民居发生燃气爆炸。视频显示，爆炸引发了大火。事故造成2死7伤。不久前，在9月11日，大连市普兰店区一住户家中液化气罐泄漏并引发爆炸，造成8死5伤。
+前总统唐纳德·川普周四（10月21日）简短地宣布了他的新媒体公司即将上市后，吸引了华尔街的注意，导致了一家“空壳公司”（SPAC，Special-purpose acquisition company），名为“数字世界收购公司”（DWAC，Digital World Acquisition Corp.）数十亿美元的交易。该公司股价上涨了356%，成交量接近5亿股，这显然是在宣布合并前一直处于休眠状态的DWAC的创纪录表现。
 
-10月24日下午，江苏南京航空航天大学的实验室发生爆炸，现场一度出现白色蘑菇云。爆炸发生地，位于材料科学与技术学院的实验楼。目击者称，现场两度传出爆炸声。事故已造成2死9伤。
+大多数注意力都集中在川普先生和“川普媒体与技术集团”（TMTG）（川普是该集团的主席），对他合作方SPAC的掌舵人却知之甚少。
 
-目前，关于这些爆炸案件的处理措施，中共官方没有任何后续报道。
+帕特里克·奥兰多 (Patrick Orlando)，他是“数字世界” （Digital World ）的首席执行官（CEO）（“数字世界”在今年早些时候筹集3亿美元，到手的资金略少一点），也是另外两个SPAC公司的CEO。使用人工智能研究平台Sentieo搜索的文件显示，奥兰多先生是总部位于迈阿密的“贝内塞尔资本收购公司”（Benessere Capital Acquisition Corp）（股票代码：BENE）的首席执行官，同时也是“贝内塞尔资本有限责任公司”（Benessere Capital，LLC）的首席执行官，该公司是于2012年10月在迈阿密成立的一家投资咨询和投资银行公司。《彭博社》（Bloomberg）最近报道说，贝尼塞尔即将与佛罗里达州的“氢燃料公司”（ECombustible）达成协议，但尚未正式宣布。
 
-(本文仅代表作者观点)
+或许更有趣的是奥兰多先生担任“运鸿国际”（Yunhong International）（股票代码：ZGYH）的首席执行官，这是他担任的另一家SPAC公司的首席执行官。根据美国证券交易委员会（SEC）的文件，“运鸿国际”位于中共国武汉的一座办公楼内，“运鸿集团”（Yunhong Group）也有同样的地址，该集团销售一系列保健品，如“天然脑增强胶囊”（Natural Brain Booster Capsule）和“苦瓜肽”（Bitter Gourd Peptides）。
 
-参考链接：
-1）[沈阳一饭店爆炸致4死47伤 事发区域此前发生过两次爆炸](https://news.sina.com.cn/c/2021-10-22/doc-iktzscyy1033489.shtml)
-2）[内蒙古阿拉善一化工厂爆炸已致4死3伤](http://www.news.cn/local/2021-10/23/c_1127987775.htm)
-3）[大连再发生燃气爆炸，2人死亡](https://www.dw.com/zh/大连再发生燃气爆炸2人死亡/a-59603728)
-4）[南京航空航天大学一实验室爆燃致2人死，有人听到不止一次爆炸声](https://news.sina.com.cn/c/2021-10-24/doc-iktzqtyu3315231.shtml)
+当然，作为SPAC的专家一身兼数职的事情很常见，尽管有人认为如果他们猎杀的是同一个目标会产生冲突。但鉴于奥兰多先生在武汉这样一个不寻常之地的背景，他如何与川普有瓜葛的对我而言仍是个谜。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+奥兰多先生还获得了麻省理工学院的两个学位，此前曾担任糖加工公司“苏克罗罐头国际有限责任公司”（Sucro Can International LLC）的副总裁，据SEC文件显示，他专注于法规遵从性、财务和加工技术。
 
-总编：正义的小新
-编辑：文真 
-校正/发稿：谐趣园
+奥兰多没有用他在彭博社个人资料中列出的gmail地址回复，也没有接听他列出的迈阿密商务电话号码的电话。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（全文完）
+
+看来作者对GTV新闻、GNEWS文章学习得不够，这个帕特里克·奥兰多的背景是中共爪牙吴征和杨澜，他还没有获悉。不管怎样，人们已经开始关注DWAC（Digital World Acquisition Corp.），已经意识到这是一个与中共关联很深的公司。可以想见这事继续发酵，后面要在股市掀起多大的浪，美国政坛因此又会如何云谲波诡？希望川普总统悬崖勒马，及早摆脱邪魔的缠绕。
+
+（文章仅代表作者个人观点）
+
+原文链接：
+
+[https://www.yahoo.com/now/wuhan-linked-patrick-orlando-man-212753165.html](https://www.yahoo.com/now/wuhan-linked-patrick-orlando-man-212753165.html)

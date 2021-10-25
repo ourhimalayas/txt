@@ -2,33 +2,27 @@
 ---
 
 
-## 郭文贵先生大直播再谈疫苗大屠杀
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1616935/)
+## 美国海军部长称日美同盟“特别重要”，意在回应中俄舰队联合巡航
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1616976/)
 
-作者：纽约香草山农场 – 蓝天大海
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在10月24日的大直播中揭露：中共释放病毒只是手段，而借疫苗实行大屠杀，才是中共制造这场灾难的真实目的。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/6-10.png)
+[图片来源](https://www.chinatimes.com/realtimenews/20211021000632-260407?chdtv)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-38.jpeg)
+日本共同社10月25日电，正在日本访问的美国海军部长卡洛斯·德尔·托罗25日举行了与日美媒体的电话记者会。他强调“维持印度太平洋地区的和平与安全，对两国而言是共同目标”，要实现日美倡导的“自由开放的印度太平洋”，“日美同盟将发挥特别重要的作用”。
 
-中共和黑暗势力勾结，首先利用病毒制造恐慌、死亡以及经济危机；勾结利用政客，控制各国政府；再由中共十个家族参股控制的大型制药公司，生产毒疫苗；并垄断全球的主流媒体和社交媒体的话语权。掩盖病毒真相，强制接种疫苗。
+关于中共和俄罗斯对“自由开放的印度太平洋”表示关切，德尔·托罗指出：“所有国家都应遵守国际法律和秩序。”关于中俄共10艘海军舰艇穿过津轻海峡的提问，他没有直接回答。
 
-其目的之一，是让老年人大量死亡，金融界亏掉的养老金就不用兑付了；目的之二，是有计划的种族谋杀，接种率最高的犹太人首当其冲，其次是加拿大人和美国人。目的之三，是消灭精英，接种疫苗最多的精英是律师、会计师、明星、运动员和公务员等。由于这些人聪明、专业，且追求民主、自由和法制，解决掉这些人，就可以更好的控制其他人了。这就是中共与黑暗势力企图统治人类的邪恶计划。
+此外，德尔·托罗还表示重视日美澳印的“四边机制”（Quad）。
 
-(本文仅代表作者观点)
+德尔·托罗生于古巴哈瓦那，在美国纽约市长大，毕业于美国海军学院。他历任导弹驱逐舰舰长和国防部干部等，今年8月就任海军部长。
 
-参考链接：[https://gettr.com/streaming/pf2ptd1c68](https://gettr.com/streaming/pf2ptd1c68)
+面对近日中共联合俄罗斯舰队巡航以敲打日台的举动，美国海军部长及时明确地对日美同盟关系和作用进行表态，回应中俄的意味十分明显。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+信息来源：[美国海军部长称日美同盟“特别重要”](https://china.kyodonews.net/news/2021/10/548dd0a53e73.html)
 
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：谐趣园
+免责声明：文章仅代表作者本人观点，与GNEWS无关
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)
