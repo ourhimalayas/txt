@@ -2,24 +2,31 @@
 ---
 
 
-## 加拿大未接种者或将无法获得失业补助
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1615426/)
+## GTV新闻访谈简报|2021年10月24日晚
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1615526/)
 
-原文采编：青青  编译撰稿：文所未闻
+作者：香草山翻译部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a1-1.jpg)图片来源：CBC
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
 
 
-据加拿大《CTV新闻》10月22日报道，根据联邦政府的最新指导方针，因拒绝接种“新冠病毒疫苗”而失去工作的雇员可能将没有资格领取失业救济金。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1024text-SC.png)
+文章仅代表作者本人观点，与Gnews无关
 
-[加拿大就业和社会发展部]表示，如果雇员因不遵守“新冠病毒疫苗”接种规定而被停职或解雇，那么其雇主可以表明该雇员是辞职、请假或因故被遣散。而在此情况下，该雇员可能失去其向政府申请失业金资格。目前，该部门已就此规定向各雇主发出了通知，以此指导他们填写其雇员的就业记录。
+校对：Stay文苑
 
-同时，加拿大许多省级政府已在其医疗保健机构和学校等引入了“强制性疫苗接种”政策。联邦政府及其监管行业也将要求其所有雇员接种该疫苗。同时，一些其他非政府管辖的公司雇主也引入了该“疫苗强制接种”政策。
+编辑：Stay文苑
 
-（以上内容仅代表原文信息和作者个人观点）
+发稿：Stay文苑
 
-* * *
+视频参看：[晚GTV新闻访谈](https://gtv.org/broadcast/watch/6175fa08eadeb11f5e7a4931)
 
-校对编辑，发稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-10.png)
 
-[原文链接：](https://www.ctvnews.ca/politics/workers-who-resist-vaccine-mandates-may-not-be-eligible-for-ei-according-to-feds-1.5634553)
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)

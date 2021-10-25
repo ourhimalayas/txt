@@ -2,20 +2,12 @@
 ---
 
 
-## 加拿大“新冠病毒疫苗”护照恐将危害隐私安全
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1615472/)
+## 中俄10艘舰艇首次联合通过日本大隅海峡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1615555/)
 
-编译撰稿：文莱         校对编辑：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1025-2-scaled.jpg)
+（文章仅代表作者个人观点，与GNEWS无关）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a2-1-edited.jpg)图片来源：TRUENORTH
-
-
-据加拿大自媒体【真北方】10月23日报道，安大略省前信息和隐私专员安博士对该省政府将利用“新冠病毒疫苗”接种证的二维码，来对其居民进行监视行动的可能性做出了警告。
-
-安博士明确表示，该省已接种“新冠病毒疫苗”者会因为该疫苗护照的二维码，而暴露其实时地理位置等具体数据，并且政府可以通过该数据得到这些人的个人隐私信息。
-
-据悉，安省的该疫苗护照实时数据收集模式，将创建一个全球数字基础的监控系统。虽然有专家指出，该系统不会受到网络攻击或外国实体的滥用，但此前曾有黑客组织已警告过魁北克省政府，声称他们能够通过该系统中的漏洞访问包括省长勒戈在内的多位知名政客的私人信息数据。
-
-（以上内容仅代表原文信息和作者个人观点）
-
-[原文链接：](https://tnc.news/2021/10/23/vaccine-passes-are-a-road-to-global-surveillance-says-former-privacy-commissioner/)
+*编辑：东京樱花团/简报小组*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

@@ -2,22 +2,40 @@
 ---
 
 
-## 加拿大退休基金欲引入加密数字货币投资
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1615319/)
+## 阿拉巴马州总检察长向拜登疫苗强制令说不
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1615402/)
 
-采编：青青      编译撰稿：文明(添草灭共)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/bitcoin2.jpg)图片来源：YH
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/A-9.jpg)al.com
+阿拉巴马州总检察长史蒂夫·马歇尔（Steve Marshall）表示，我将在法庭上挑战拜登的联邦-承包商（federal-contractor）疫苗强制令，以下是我的声明：
 
+阿拉巴马州总检察长
+史蒂夫·马歇尔
 
-据【雅虎新闻】10月21日报道，作为加拿大投资管理服务公司之一的[财富之路公司]，近期试图将“加密货币投资项目”引入其退休基金经营计划之中。
+联邦政府最近与阿拉巴马州的一些州机构和部门进行了沟通，表示它们受拜登的联邦承包商疫苗政策的约束，因此必须强制要求其雇员接种疫苗。
 
-目前，随着比特币价格飙升至新高，更多投资者开始关注争议性较大的加密货币市场。为此，[财富之路公司]建议那些正在使用该公司平台进行团体退休计划投资的数百名雇主，应鼓励他们的员工将其不超过3%的资金投入到比特币和以太坊等加密货币市场中。
+我想向阿拉巴马州人民保证，我的办公室将与这种侵犯个人自由、联邦制和分权的卑鄙行为作斗争。
 
-同时，该公司也承认，由于目前加密数字货币市场的波动性较大，因此设置3%的比例上限以控制投资风险。一旦今后其价格趋涨，退休投资组合将自动提高加密数字货币原有的投资配置比例，并将相关收益变现后重新分配到股票或债券等更稳定的投资项目中。
+我们将在法庭上挑战拜登的联邦承包商疫苗强制令，我将尽我所能，在12月8日联邦规定的最后期限之前解决这一问题。
 
-（以上内容仅代表原文信息和作者个人观点）
+（签名）
 
-校对编辑，发稿：硫酸羟氯喹64
+言简意赅的声明，马歇尔总检察长一语中的，这是侵犯自由的卑鄙行径，我们必须与之斗争。州长们、州总检察长们、州议员们，起来，向邪恶说不，否则将会有更多的无辜者遭受阴谋集团迫害。
 
-[原文链接：](https://ca.finance.yahoo.com/news/canadian-crypto-investingworkplace-retirement-plans-113605829.html)
+声明文字整理：
+
+ALABAMA ATTORNEY GENERAL
+
+STEVE MARSHALL
+
+The federal government has recently communicated to a number of state agencies and institutions in Alabama that they are subject to President Biden’s federal-contractor vaccine mandate and must therefore, force their employees to be vaccinated.
+
+I want to assure the people of Alabama that my office will fight this contemptible infringement upon individual liberty, federalism, and the separation of powers.
+
+We will be challenging President Bidens federal-contractor vaccine mandate in court, and I will do everything in my power to resolve this matter before the federally dictated deadline of December 8.
+
+（文章仅代表作者个人观点）
+
+原文链接：[https://twitter.com/AGSteveMarshall/status/1451701843311087617](https://twitter.com/AGSteveMarshall/status/1451701843311087617)
