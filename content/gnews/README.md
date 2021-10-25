@@ -15,136 +15,136 @@
 
 ---
 
-### [台湾15岁女生接种辉瑞疫苗后死亡](/content/gnews/1/README.md)
+### [全球各地通过罢工和法律手段反对疫苗强制令](/content/gnews/1/README.md)
+ ` GTV新闻访谈`
+
+### [中共国多地接连发生爆炸事故](/content/gnews/2/README.md)
+ ` GTV新闻访谈`
+
+### [盖特用户逼近300万，已经成为真正的全球媒体平台](/content/gnews/3/README.md)
+ ` GTV新闻访谈`
+
+### [台湾15岁女生接种辉瑞疫苗后死亡](/content/gnews/4/README.md)
  ` 日本东京方舟农场`
 
-### [疫苗造成没耳朵没嘴的怪胎和死亡前的痛苦挣扎无法想象](/content/gnews/2/README.md)
+### [疫苗造成没耳朵没嘴的怪胎和死亡前的痛苦挣扎无法想象](/content/gnews/5/README.md)
  ` NewFOC`
 
-### [秘翻在线：习近平自2020年1月18日后首次出国门？](/content/gnews/3/README.md)
+### [秘翻在线：习近平自2020年1月18日后首次出国门？](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加拿大强制公务员接种疫苗涉侵犯隐私，联邦专员介入调查](/content/gnews/4/README.md)
+### [加拿大强制公务员接种疫苗涉侵犯隐私，联邦专员介入调查](/content/gnews/7/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [蓬佩奧国务卿：中共有预谋地撕裂国际秩序](/content/gnews/5/README.md)
+### [蓬佩奧国务卿：中共有预谋地撕裂国际秩序](/content/gnews/8/README.md)
  ` 日本东京方舟农场`
 
-### [美国海军部长称日美同盟“特别重要”，意在回应中俄舰队联合巡航](/content/gnews/6/README.md)
+### [美国海军部长称日美同盟“特别重要”，意在回应中俄舰队联合巡航](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生：便携式核反应堆是美国下一代绿色能源](/content/gnews/7/README.md)
+### [郭文贵先生：便携式核反应堆是美国下一代绿色能源](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生大直播再谈疫苗大屠杀](/content/gnews/8/README.md)
+### [郭文贵先生大直播再谈疫苗大屠杀](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [视频| 中共在美肆无忌惮操纵股市 100小时洗劫美国股民几十亿美元](/content/gnews/9/README.md)
+### [视频| 中共在美肆无忌惮操纵股市 100小时洗劫美国股民几十亿美元](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [视频| 这次事件将彻底葬送川普的政治生涯和他的家族](/content/gnews/10/README.md)
+### [视频| 这次事件将彻底葬送川普的政治生涯和他的家族](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [秘翻在线： 渤海银行任意挪用储户28亿存款引众怒](/content/gnews/11/README.md)
+### [秘翻在线： 渤海银行任意挪用储户28亿存款引众怒](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [GTV新闻访谈简报|2021年10月25日早](/content/gnews/12/README.md)
+### [GTV新闻访谈简报|2021年10月25日早](/content/gnews/15/README.md)
  ` 纽约香草山MOS01`
 
-### [视频| 共产党在美国布下天罗地网，没有一个美国总统能逃脱](/content/gnews/13/README.md)
+### [视频| 共产党在美国布下天罗地网，没有一个美国总统能逃脱](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [视频| 爆料革命千万不要攻击川普总统](/content/gnews/14/README.md)
+### [视频| 爆料革命千万不要攻击川普总统](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [拒绝“平庸的恶”](/content/gnews/15/README.md)
+### [拒绝“平庸的恶”](/content/gnews/18/README.md)
  ` 银河勇气之星`
 
-### [中华民国是如何被逐出联合国的？](/content/gnews/16/README.md)
+### [中华民国是如何被逐出联合国的？](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [沙特宣布到2060年实现零排放目标](/content/gnews/17/README.md)
+### [沙特宣布到2060年实现零排放目标](/content/gnews/20/README.md)
  ` HimalayaRussia`
 
-### [为深化国防合作共同应对中共，日本将给予澳大利亚军队死刑豁免权](/content/gnews/18/README.md)
+### [为深化国防合作共同应对中共，日本将给予澳大利亚军队死刑豁免权](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [银河快讯：日本饲料价格飞涨；卡车销售疲软，连续两年低于前一年](/content/gnews/19/README.md)
+### [银河快讯：日本饲料价格飞涨；卡车销售疲软，连续两年低于前一年](/content/gnews/22/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [联盟工作汇报文字版摘要2021.10.24](/content/gnews/20/README.md)
+### [联盟工作汇报文字版摘要2021.10.24](/content/gnews/23/README.md)
  ` 纽约香草山MOS02`
 
-### [GTV、GETTR将将带领人类走向新高度](/content/gnews/21/README.md)
+### [GTV、GETTR将将带领人类走向新高度](/content/gnews/24/README.md)
  ` 日本东京方舟农场`
 
-### [疫苗灾难来临时不仅仅是供应链短缺用工短缺和芯片短缺](/content/gnews/22/README.md)
+### [疫苗灾难来临时不仅仅是供应链短缺用工短缺和芯片短缺](/content/gnews/25/README.md)
  ` NewFOC`
 
-### [10/25/21 香港快讯 国际特赦组织 指受国安法影响 年底前关闭香港办事处](/content/gnews/23/README.md)
+### [10/25/21 香港快讯 国际特赦组织 指受国安法影响 年底前关闭香港办事处](/content/gnews/26/README.md)
  ` 英喜-粵語組`
 
-### [中共病毒是手段，疫苗才是目的是对种族有计划的谋杀](/content/gnews/24/README.md)
+### [中共病毒是手段，疫苗才是目的是对种族有计划的谋杀](/content/gnews/27/README.md)
  ` NewFOC`
 
-### [10/25/2021国际财经快讯：耶伦称明年通胀将回到2%；美国原油价处于7年来高位](/content/gnews/25/README.md)
+### [10/25/2021国际财经快讯：耶伦称明年通胀将回到2%；美国原油价处于7年来高位](/content/gnews/28/README.md)
  ` 秘密翻译组金融团队`
 
-### [千亿九鼎落幕 市值仅68亿 10年PE白手套路到尽头](/content/gnews/26/README.md)
+### [千亿九鼎落幕 市值仅68亿 10年PE白手套路到尽头](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [马来西亚女子称其母亲在接种第二剂中共病毒疫苗后去世](/content/gnews/27/README.md)
+### [马来西亚女子称其母亲在接种第二剂中共病毒疫苗后去世](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [欧洲各国反疫苗护照游行](/content/gnews/28/README.md)
+### [欧洲各国反疫苗护照游行](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [刚提交一个代表所有军人和联邦雇员抵抗强制疫苗的集体诉讼](/content/gnews/29/README.md)
+### [刚提交一个代表所有军人和联邦雇员抵抗强制疫苗的集体诉讼](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [田纳西州州长比尔·李计划反对拜登政府的疫苗强制令](/content/gnews/30/README.md)
+### [田纳西州州长比尔·李计划反对拜登政府的疫苗强制令](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|中共新任香港官员：澳洲龙虾威胁国家安全](/content/gnews/31/README.md)
+### [有声|中共新任香港官员：澳洲龙虾威胁国家安全](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [世界的灯塔——美国](/content/gnews/32/README.md)
+### [世界的灯塔——美国](/content/gnews/35/README.md)
  ` 骄子`
 
-### [受中共病毒影响，日本上市公司房地产抛售增30%](/content/gnews/33/README.md)
+### [受中共病毒影响，日本上市公司房地产抛售增30%](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：俄亥俄州库亚霍加县九天内有三名法官“意外死亡”](/content/gnews/34/README.md)
+### [秘翻在线：俄亥俄州库亚霍加县九天内有三名法官“意外死亡”](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|中共国在世贸审议遭到50多个成员严厉抨击](/content/gnews/35/README.md)
+### [有声|中共国在世贸审议遭到50多个成员严厉抨击](/content/gnews/38/README.md)
  ` MOSREC`
 
-### [接种疫苗是个人选择，不应让人们在就业和疫苗间做选择](/content/gnews/36/README.md)
+### [接种疫苗是个人选择，不应让人们在就业和疫苗间做选择](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共病毒疫苗造成的死伤比历史上所有疫苗的总和还多](/content/gnews/37/README.md)
+### [中共病毒疫苗造成的死伤比历史上所有疫苗的总和还多](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [通用汽车员工离开工作岗位游行抗议疫苗强制政策](/content/gnews/38/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [川普被吴征重金引诱合作，政治前途暗淡](/content/gnews/39/README.md)
+### [川普被吴征重金引诱合作，政治前途暗淡](/content/gnews/41/README.md)
  ` 波士顿五月花农场`
 
-### [CDC主任承认需要重新定义“完全接种”](/content/gnews/40/README.md)
+### [CDC主任承认需要重新定义“完全接种”](/content/gnews/42/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [安东尼·福奇在资助武毒所功能增强研究上一直在说谎](/content/gnews/41/README.md)
+### [安东尼·福奇在资助武毒所功能增强研究上一直在说谎](/content/gnews/43/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [吴征2019年已被美国FBI刑事调查](/content/gnews/42/README.md)
- ` GTV新闻访谈`
-
-### [投资数字世界收购公司的十一家机构中 八家由中共控制](/content/gnews/43/README.md)
- ` GTV新闻访谈`
-
-### [爆料革命继续起底SPAC的黑箱操作](/content/gnews/44/README.md)
+### [吴征2019年已被美国FBI刑事调查](/content/gnews/44/README.md)
  ` GTV新闻访谈`
 
 ### [有法治的地方](/content/gnews/45/README.md)

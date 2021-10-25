@@ -2,8 +2,8 @@
 ---
 
 
-## 视频| 共产党在美国布下天罗地网，没有一个美国总统能逃脱
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1616890/)
+## 视频| 这次事件将彻底葬送川普的政治生涯和他的家族
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1616916/)
 
 制作：香草山视频部
 
