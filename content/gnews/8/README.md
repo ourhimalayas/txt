@@ -2,33 +2,52 @@
 ---
 
 
-## 郭先生披露：中共设金融陷阱谋害川普
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1617430/)
+## 2021/10/25 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1617482/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+**主播：大卫｜嘉宾：**草根小哥
 
-10月24日，郭文贵先生在GTV大直播中披露，中共对美国前总统川普设置金融陷阱。
+GTV视频链接：[2021-10-25 川普平台背后暴露中共金融超限战 草根大卫两兄弟解读七哥大爆料](https://gtv.org/video/id=6176a0c7eadeb11f5e7a647d)
 
-据郭先生爆料，中共在美代理人吴征用SPAC公司以2.96亿美元购买川普总统的IP，并在很短的时间内公布上市。上市后SPAC从一开始的一千手到后来的六百万手的交易几乎都是在11家基金中转来转去。不但这种内部交易、操纵市场的行为意味着川普总统100%会受到SEC调查，更重要的是这11家基金中的9家都是中共的基金。
 
-郭先生还披露，SPAC公司上市后因为这11家基金的大买大进，使其股价最高达到174美元/股。支持川普总统的MAGA组织还有一些投机的人看到股票高涨时大量跟进，但没想到的是股票涨到174美元/股后，瞬间回到94美元/股，而在周五关闭市场时更是回到了45美元/股。这期间中共的几家基金则用最短的时间洗走了这些人的钱，高达50亿到80亿美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10.25_1.jpg)图片来自于网络
+**板块1–灭共者联盟**
 
-郭先生揭露，中共设置金融陷阱的第一个核心目的是为了阻止川普总统加入盖特；第二个目的是让川普总统被刑事调查，从而使川普终生无法再参与政治选举；第三个目的则是利用这个金融陷进干掉大量的川普总统的跟随者。
+1.彭培奥先生在圣何塞各各他山基督团契香港自由灯塔演讲，虽然有“要饭党”参与，重点关注演讲内容（中共崛起、价值观冲突、人权问题、香港事件）。
 
-郭先生分析说，如果川普加入盖特就意味着他一定会赢得2022年的中期选举，成为共和党在参众两院的发言人。而且川普一旦赢得了2022，那2024年的总统大选唾手可得。因此，中共要设计阻止川普总统加入盖特甚至无法参选。同时还计划把川普多年的跟随者、现任盖特CEO的Jason Millerx先生也从盖特移开。
+2.彭培奥先生瘦身为后期竞选做准备，熟悉国家情报、国家安全，“西点帮”背景，并认可爆料革命的信用，与爆料革命有着一致的价值观–灭共。
 
-郭先生预测，在周一开盘到之后的两三周，SPAC股票可能回到10-20美金之间，最后跌破10美金。这中间会有人往上抬，担抬上去的结果是再掉下去。这个时候川普总统就会发现他手里的钱烫手了，也会发现其中的法律问题。而民主党会在一个月以后蓄集能量全面行动，准备在2022中期选举中充分地利用吴征和共产党送来的这个武器，而共和党内部的反川者也会充分的利用这个武器。
+3.拜登政府一系列行动证明无意灭共，美国在供应链、贸易、疫苗、司法腐败等事件上暴露出问题。
 
-郭先生补充说，到时美国两党一定会因此产生激烈的斗争，但这正是中国共产党最想看到的局面。
+**板块2–川普新媒体事件**
 
-[10/24/2021 文贵直播：三个原因为什么中共给川普设金融陷阱](https://www.gettr.com/post/pf4ihi2d38)
+1.股市韭菜思维–只盯价格，戒韭菜思维–了解研究其公司销售的东西、公司的背景、公司股东、股票持有者、持有者的持股比例、买进卖出时间点。
 
-[10/24/2021 Miles Guo: The stock price of DWAC was going up and down at the fastest speed in the shortest period of time, because of the CCP’s funds doing insider trading and manipulating the stock market. The MAGA supporters and blue collars have been swindled, and the amount of money laundered away is between 5 and 8 billion USD](https://www.gettr.com/post/pf4x28ae57)
+2.川普推出“Truth”社交媒体平台，2021年10月底与SPAC合并推出DWAC公司上市，创造美国股市上涨奇迹。典型“借壳上市”模式–SPAC融资、包装“Truth”利用美国自由经济模式推出DWAC上市，特点：成本低、周期短、迅速套现。
 
-[10/24/2021 文贵直播：川普总统的政敌将给他制造麻烦，而蓬佩奥会更有优势；不论你买了多少DWAC股票，只要它的股价下跌，你就可以起诉它，且大概率能得到大量赔偿](https://www.gettr.com/post/pf47g69055)
+3.吴征“逆增上援”送大礼。吴征控制的“运鸿集团”参与其中，吴征作为被FBI调查涉嫌刑事犯罪的美国人，伪造文件、虚假报告，SEC内部配合过审，将有更多美国金融黑幕爆出，后续持续关注。
 
-* * *
+4.整个事件影响：华尔街资本人人自危、变现资金流向比特币致使其价格创新高、支持“MAGA”的美国人不再信任川普、反对派势力将放大川普在其中操作细节打击川普，顺便扯出中共腐蚀美国行政立法司法的证据。
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**板块3–国际财经**
+
+1.英国国会议员和同行就中共国投资问题对议会养老金进行审查，议会开始发酵推动。鲍里斯约翰逊“政客式混淆概念”称不能“一刀切”中共国投资。应斩断中共国对涉及英国金融体系、司法体系的投资。
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*听写：call me uncle|Pr: 乐禧禧| Page：小六月*
+
+**大卫作战室每周一到周六直播：英国时间13点；美东早8点；盘古20点.**
+
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+
+[![](https://spark.adobe.com/page/GGI7EiHquXb9B/images/a90e0d9b-08ae-41c0-a8a2-82b053736a4e.jpg?asset_id=03cf270f-9326-428a-a462-968d7fe14dee&amp;img_etag=%221daeca2c04053e77ca1ac242e9218160%22&amp;size=2560)](https://spark.adobe.com/page/GGI7EiHquXb9B/images/a90e0d9b-08ae-41c0-a8a2-82b053736a4e.jpg?asset_id=03cf270f-9326-428a-a462-968d7fe14dee&amp;img_etag=%221daeca2c04053e77ca1ac242e9218160%22&amp;size=1024)
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+[![](https://spark.adobe.com/page/GGI7EiHquXb9B/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/GGI7EiHquXb9B/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
