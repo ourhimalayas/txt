@@ -2,29 +2,27 @@
 ---
 
 
-## 沙特宣布到2060年实现零排放目标
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1616839/)
+## GTV新闻访谈简报|2021年10月25日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1616911/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-412.png)
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/S-5.jpg)711web.com
-美东时间10月25日报道，沙特阿拉伯王储穆罕默德∙本∙萨勒曼在一个关于实现沙特绿色倡议（SGI）目标的论坛上表示，“沙特阿拉伯计划到2060年成为一个碳中和国家。”
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-27.png)
+文章仅代表作者本人观点，与Gnews无关
 
-此外，该地区还将减少一半的二氧化碳排放，其目标是到2030年实现这一目标。之前计划每年减少1.3亿吨的排放量，而新计划设想到2030年减少2.78亿吨。
+视频参看：2021.10.25早GTV新闻访谈
 
-总的来说，沙特绿色倡议在这段时间内需要投资超过7000亿里亚尔（约1900亿美元）。王子强调称，“这些举措旨在改变沙特王国能源结构，配给和提高能源生产和使用的效率，以及投资于新能源，包括氢气。”
+[https://gtv.org/broadcast/watch/6176a349eadeb11f5e7a650a](https://gtv.org/broadcast/watch/6176a349eadeb11f5e7a650a)
 
-本∙萨勒曼和沙特能源部长在论坛上表示，“他们将对抗气候变化，但也将继续确保石油市场的稳定。”
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-除了减少排放，沙特阿拉伯还计划种植100亿棵树，增加30%的自然保护区，以及恢复被人类活动破坏的地区。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
 
-周日，另一个中东国家巴林宣布了到2060年将排放量减少到零的目标。
-
-上周，俄罗斯总统普京在俄罗斯能源周论坛上发言时表示，俄罗斯将在2060年前实现碳中和。中共国也制定了同样的目标。美国打算在2050年之前达到这一目标，并在2030年之前将温室气体排放量减半。
-
-(文章仅代表作者个人观点)
-
-参考链接：
-
-[https://www.rbc.ru/technology\_and\_media/24/10/2021/6175941e9a794764f29f0757?from=from\_main\_4](https://www.rbc.ru/technology_and_media/24/10/2021/6175941e9a794764f29f0757?from=from_main_4)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

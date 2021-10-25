@@ -2,33 +2,27 @@
 ---
 
 
-## 视频| 这次事件将彻底葬送川普的政治生涯和他的家族
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1616916/)
+## 美国海军部长称日美同盟“特别重要”，意在回应中俄舰队联合巡航
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1616976/)
 
-制作：香草山视频部
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/6-10.png)
+[图片来源](https://www.chinatimes.com/realtimenews/20211021000632-260407?chdtv)
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+日本共同社10月25日电，正在日本访问的美国海军部长卡洛斯·德尔·托罗25日举行了与日美媒体的电话记者会。他强调“维持印度太平洋地区的和平与安全，对两国而言是共同目标”，要实现日美倡导的“自由开放的印度太平洋”，“日美同盟将发挥特别重要的作用”。
 
+关于中共和俄罗斯对“自由开放的印度太平洋”表示关切，德尔·托罗指出：“所有国家都应遵守国际法律和秩序。”关于中俄共10艘海军舰艇穿过津轻海峡的提问，他没有直接回答。
 
+此外，德尔·托罗还表示重视日美澳印的“四边机制”（Quad）。
 
+德尔·托罗生于古巴哈瓦那，在美国纽约市长大，毕业于美国海军学院。他历任导弹驱逐舰舰长和国防部干部等，今年8月就任海军部长。
 
+面对近日中共联合俄罗斯舰队巡航以敲打日台的举动，美国海军部长及时明确地对日美同盟关系和作用进行表态，回应中俄的意味十分明显。
 
+信息来源：[美国海军部长称日美同盟“特别重要”](https://china.kyodonews.net/news/2021/10/548dd0a53e73.html)
 
+免责声明：文章仅代表作者本人观点，与GNEWS无关
 
-
-
-*发稿：雪梨*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)

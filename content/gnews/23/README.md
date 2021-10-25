@@ -2,28 +2,35 @@
 ---
 
 
-## 有声|中共新任香港官员：澳洲龙虾威胁国家安全
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1616514/)
+## 千亿九鼎落幕 市值仅68亿 10年PE白手套路到尽头
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1616559/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-香港新任海关关长何佩珊，10月21日宣誓就职后会见媒体时表示，将优先关注澳大利亚龙虾问题，叫嚣走私龙虾“破坏中共国针对澳洲的贸易限制”，打击走私龙虾是“维护中共国安全的重要工作”。
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-94.jpg)[图片来源](https://www.sohu.com/a/445504438_698311)
+近期，轰动金融圈的大事，莫过于九鼎吴刚被证监会立案调查。一代PE枭雄吴刚谢幕。
 
-针对何佩珊的上述妄言，澳洲贸易部长发言人22日表示，澳洲龙虾卖到香港完全符合进口国的规定。另外，世贸组织正在审议 澳洲就中共的贸易限制措施提出的申诉。
+今年初，因为操纵股价，九鼎控股被罚没6亿元。吴刚及九鼎集团均遭罚。
 
-自去年中澳关系加剧恶化以来，中共违背双方签署的中澳自由贸易协定，以检疫检查为借口，采取上不了台面的贸易限制和制裁措施，阻止包括岩龙虾在内的多种澳洲产品进口。
+曾经，吴刚的进取行为堪称励志典范。求学上，他从中专生自学成为研究生、北大金融博士，被称为学霸。仕途上，他用5年时间成长为证监会最年轻处长。
 
-何佩珊一上任就向中共表忠心，把民生食品拔至危害国家安全的高度。中共官媒环球网舆论配合，当天报道称，何佩珊的首要工作是维护国家安全和防范恐怖主义。中共的威权暴政，已完全渗入香港各个领域。
+大约是在2007年，吴刚开始创业，与央行当时最年轻处长黄晓捷合伙成立九鼎控股。
 
-文字版原文：[中共新任香港官员：澳洲龙虾威胁国家安全](https://gnews.org/zh-hans/1613703/)
+不到10年，吴刚用惊人的速度搭建了九鼎的金控集团，几乎拿到了全部金融牌照。而马明哲执掌的[中国平安](http://quote.eastmoney.com/unify/r/1.601318)用了28年才聚齐全部金融牌照。借助PE工厂模式，吴刚建立了千亿九鼎帝国。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+然而，2017年，九鼎帝国出现危机，2018年，证监会对九鼎集团立案调查，随之而来的是系列违法违规行为浮出水面。
+
+如今，千亿九鼎集团市值只剩下68亿元，而证监会对吴刚的立案调查刚刚开始。
+
+被罚、被立案调查，似乎意味着吴刚的10年PE枭雄之路走到尽头。
+
+在中共国的资本圈，从来没有真英雄，有的只是白手套。平民子弟出身的吴刚，不管是其入仕升迁还是经商发展的速度都是极其惊人的，并且其发展轨迹都处于权力和资本高度密集的地方。吴刚和九鼎集团的谢幕，如同肖建华和明天系一样，只不过是在重复一个又一个因中共内斗而被绞杀的白手套的故事。
+
+信息来源：
+
+[吴刚10年PE枭雄路到尽头 千亿九鼎落幕市值仅68亿](http://fund.eastmoney.com/a/202110252152423333.html)
+
+(文章仅代表作者本人观点，与GNEWS无关)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

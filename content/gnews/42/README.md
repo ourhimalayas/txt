@@ -2,47 +2,42 @@
 ---
 
 
-## 新华社发文“十问中国经济”， 中共十九届六中全会路线之争已摆到明面
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1616227/)
+## 投资数字世界收购公司的十一家机构中 八家由中共控制
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1616297/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/12-15.jpg)[图片来源](http://www.eeo.com.cn/autozt/7a4a57b2-4e37-bf00-873b-e2d99e7c10b3/)
-新华社24日播发专题文章《十问中国经济》，面对十大社会关切、海内外关注的热点问题，采访权威部门和权威人士作出回应。
+作者：美东香草山农场 文真
 
-为避免稿件篇幅过长，仅将“十问”的问题部分援引如下：
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-一问：如何看待当前经济走势，中国经济后劲何在？
 
-二问：消费投资后劲怎样，扩内需这盘棋该如何下？
 
-三问：外贸“高光时刻”能否持续，如何稳主体稳订单？
+数字世界收购公司在申请上市的文件中，列出了十一家投资机构。郭文贵先生在10月24日的大直播中，展示了这十一家机构的资本构成。除了三家是美国或加拿大的公司以外，其余八家公司全是中共控制的基金。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-25-at-7.52.33-PM.png)
+收购川普科技的SPAC公司-数字世界，来自吴征，其他股东，包括中共姓李的政协委员，以及运鸿集团，全是中共的情报企业。
 
-四问：如何看待供给侧结构性改革，高质量发展之路如何走好？
+CEO克里斯是太平联盟集团的创始人，曾参与对郭文贵先生的法律诉讼超限战。FBI前高管弗兰克，是吴征在美国的合伙人，也是太平联盟案件的调查人。此人不但伪造假信息、假照片，而且多次和吴征一起，策划洗劫美国人的财富。
 
-五问：如何有效应对限电问题，今冬明春如何确保能源安全稳定供应？
+这次，他们再次伙同吴征，同时出现在这场洗劫与抢劫的并购中。背后由鸿运集团提供资金，涉及马云。这是一场中共全面布局操控的金融超限战。
+(本文仅代表作者观点)
 
-六问：全球供应链新一轮重构，中国如何掌握主动权？
+参考链接：
 
-七问：如何看待“做大蛋糕”和“分好蛋糕”，实现共同富裕靠什么？
+1. [2021年10月24日 文贵大直播：与川普公司合并的SPAC公司DWAC背后的11家投资机构与中共的关系，这场交易是以共产党情报为背景进行的连环操作，涉嫌多项内幕交易和犯罪的惊天的计划，让川普总统处在极度危险之中](https://gtv.org/video/id=617551cfeadeb11f5e79f5d5)
+2. [DWAC的11个合格机构买家或机构认可投资](http://DWAC的11个合格机构买家或机构认可投资者)[者](http://DWAC的11个合格机构买家或机构认可投资者)-Gettr
+3. [DWAC的11个合格机构买家或机构认可投资者-GNews](https://gnews.org/zh-hans/1614568/)
 
-八问：如何看待规范部分行业发展，强化反垄断和防止资本无序扩张将带来什么？
 
-九问：巩固拓展脱贫攻坚成果如何有效衔接乡村振兴，全面推进乡村振兴怎样开好局？
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-十问：如何守牢金融防风险底线，怎样处理稳增长和防风险关系？
+总编：正义的小新
+编辑：Kathy文艺
+校正/发稿：我不在这里
 
-从这十个问题本身来看，问题的设计非常精心，既包括中共近年的主要执政政策，又包括当前中共经济和社会所面临的突出问题。从对问题的回答来看，以中共官样文章的套路进行表述，在四平八稳、避重就轻的口气中透露着全面肯定的意味。基本可以肯定，这篇文章是习近平一派在为自己歌功颂德，稳定人心。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-郭文贵先生在2021年10月22日GTV大直播中爆料，中共十九届六中全会是决定中共“二十大”会议走向的会议。十九届六中全、“二十大”，除确定习近平的接班人问题之外，更重要的还有关于中共国的路线之争，即走习近平闭关锁国的北朝鲜路线，还是走江曾王盗国贼模式的改革开放路线。
-
-中共内部有一句话，路线之争是你死我活的斗争。新华社在十九届六中全即将召开之时发布《十问中国经济》专题文章，已经将中共内部的路线之争摊到明面，中共下步的内斗还将继续加剧。
-
-信息来源：
-
-[新华社重磅文章：十问中国经济](https://finance.sina.com.cn/china/2021-10-24/doc-iktzqtyu3315272.shtml)
-
-(文章仅代表作者本人观点，与GNEWS无关)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

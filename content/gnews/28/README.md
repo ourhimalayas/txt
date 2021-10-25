@@ -2,21 +2,28 @@
 ---
 
 
-## 中共病毒也讲“政治”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1616442/)
+## 有声|中共新任香港官员：澳洲龙虾威胁国家安全
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1616514/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-138.jpg)[图片来源](https://pic.baike.soso.com/ugc/baikepic2/9061/20200224163955-773623393_jpeg_600_479_26700.jpg/0)
-截至10月25日16时，全国共有2个高风险地区14个中风险地区，文旅部：跨省旅游严格执行“熔断”本轮疫情发生后，文化和旅游部针对长途跨省旅游主要有两项举措：严格执行跨省旅游经营活动管理“熔断”机制。截至目前，全国中高风险地区分布在北京、内蒙古、贵州、甘肃及宁夏等五省（区、市），相应地，上述五省（区、市）均已暂停跨省旅游经营活动。从10月23日起，全国暂停经营旅游专列业务，本轮疫情涉及13个旅行团或自驾游，新增治愈出院病例30例，解除医学观察的密切接触者687人，重症病例较前一日增加7例。
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+香港新任海关关长何佩珊，10月21日宣誓就职后会见媒体时表示，将优先关注澳大利亚龙虾问题，叫嚣走私龙虾“破坏中共国针对澳洲的贸易限制”，打击走私龙虾是“维护中共国安全的重要工作”。
 
-疫情突然扩散是看天气？还是环境？都不是，是看人“心情”是政治需要，11月8日中共召开19届六中全会召开，中共内部政治斗争不断，以此限制了人员走动，做到了维稳需要，又可以控制各地的平衡。
+针对何佩珊的上述妄言，澳洲贸易部长发言人22日表示，澳洲龙虾卖到香港完全符合进口国的规定。另外，世贸组织正在审议 澳洲就中共的贸易限制措施提出的申诉。
 
-信息来源：
+自去年中澳关系加剧恶化以来，中共违背双方签署的中澳自由贸易协定，以检疫检查为借口，采取上不了台面的贸易限制和制裁措施，阻止包括岩龙虾在内的多种澳洲产品进口。
 
-[31省新增本土确诊35例（涉7省市）10月25日全国疫情最新消息通报](https://3g.163.com/dy/article/GN56KOGF0534J2WY.html)
+何佩珊一上任就向中共表忠心，把民生食品拔至危害国家安全的高度。中共官媒环球网舆论配合，当天报道称，何佩珊的首要工作是维护国家安全和防范恐怖主义。中共的威权暴政，已完全渗入香港各个领域。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+文字版原文：[中共新任香港官员：澳洲龙虾威胁国家安全](https://gnews.org/zh-hans/1613703/)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
