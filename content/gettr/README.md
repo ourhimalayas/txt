@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/25/2021 2:34 AM (UTC)`
+
+10/24/2021 Miles Guo: President Trump’s political opponents will make trouble for him, while Pompeo will be more advantageous. No matter how many shares of DWAC’s stock you bought, you can sue it as long as the stock price plunges, and you are highly likely to receive substantial compensations<br/><br/>10/24/2021 文贵直播：川普总统的政敌将给他制造麻烦，而蓬佩奥会更有优势；不论你买了多少DWAC股票，只要它的股价下跌，你就可以起诉它，且大概率能得到大量赔偿<br/>
+![img](https://media.gettr.com/group36/getter/2021/10/25/02/34/1ec9adc3-c449-aa81-2d32-75b39b8b5991/out.jpg)
+
+---
+
+`@miles 10/25/2021 2:31 AM (UTC)`
+
+10/24/2021 Miles Guo: The stock price of DWAC was going up and down at the fastest speed in the shortest period of time, because of the CCP’s funds doing insider trading and manipulating the stock market. The MAGA supporters and blue collars have been swindled, and the amount of money laundered away is between 5 and 8 billion USD<br/><br/>10/24/2021 文贵直播：DWAC的股价在最短时间内以最快速度大涨大跌，背后全是中共的基金在进行内幕交易和操纵股市，他们割了MAGA支持者和蓝领们的韭菜，洗走了50到80亿美元的钱！<br/>
+![img](https://media.gettr.com/group8/getter/2021/10/25/02/31/7f2ca60d-7ae9-07c9-4fc8-afa3c2922389/out.jpg)
+
+---
+
+`@miles 10/25/2021 2:27 AM (UTC)`
+
+10/24/2021 Miles Guo: The CCP uses unrestricted economic warfare against President Trump, but we must not attack him since that is what the CCP wanted the most<br/><br/>10/24/2021 文贵直播：中共对川普总统使用了经济超限战，但我们绝对不能攻击川普总统，因为这是中共最想要的
+![img](https://media.gettr.com/group25/getter/2021/10/25/02/27/3fa19d7a-af23-04ef-3466-00d77162a460/out.jpg)
+
+---
+
 `@miles 10/25/2021 2:22 AM (UTC)`
 
 10/24/2021 Miles Guo: 3 Reasons Why CCP Set up Financial Trap against Trump<br/><br/>10/24/2021 文贵直播：三个原因为什么中共给川普设金融陷阱
@@ -272,27 +293,6 @@ Every day is a Fashion Show, and a the world is your runway. G Fashion’s New C
 
 10/20/2021 Miles Guo: Xi Jinping has known that Jack Ma, Alvin Jiang and others plotted to get rid of him, so he will never show any mercy on them! Fu Zhenghua knew that he was bound to be sentenced to death, so he would make a confession of other peoples’ crimes. Anyone who thinks he can escape by chance will find his doom!<br/><br/>10/20/2021 文贵直播: 习近平得知马云、江志成等人要除掉他，所以他绝对不会对这些人手软。傅政华知道自己必死无疑，定会把所有相关的人都供出来。在国内幻想侥幸的人不会有好下场!
 ![img](https://media.gettr.com/group45/getter/2021/10/21/17/43/aa30fcb9-d084-a07f-0a19-2cab299331e3/out.jpg)
-
----
-
-`@miles 10/21/2021 4:21 PM (UTC)`
-
-10月21号：尊敬的战友们好……虚拟货币时代的到来……和世界经济的危机……将诞生新的金融体系和金融帝国。共产党的内部的斗争腥风血雨，随时出大事儿。
-![img](https://media.gettr.com/group19/getter/2021/10/21/16/a4944e4e-fc4c-3149-f7c5-3108dfba301a/out.jpg)
-
----
-
-`@miles 10/21/2021 7:04 AM (UTC)`
-
-10/20/2021 Miles Guo: My message to the Chinese entrepreneurs - In the face of the CCP’s political repression and so-called economic crime investigations, your only choice is to fight against the CCP to the end!<br/><br/><br/>10/20/2021 文贵直播：文贵向国内企业家喊话：面对共产党的政治打压和所谓的经济犯罪调查的时候，你们唯一的选择就是和中共对抗<br/>
-![img](https://media.gettr.com/group29/getter/2021/10/21/07/04/0aaebfd5-989c-e89a-6283-097d0a13ede0/out.jpg)
-
----
-
-`@miles 10/21/2021 6:05 AM (UTC)`
-
-10/20/2021 Miles Guo: Mr. Miles Guo has sent a vital message to the Chinese entrepreneurs and their families, that the NFSC can provide all the help they need with two conditions: 1. Cooperate with local governments to expose all unrestricted warfares that the CCP is conducting around the world; 2. Work with the Whistleblowers' Movement to take down the CCP, and resolutely recognize the Declaration of the NFSC. Mr. Miles Guo warns all the institutions and governments worldwide who have invested in Communist China to protect the assets of their countries and their people, and routinely conduct legal due diligence regarding the safety and authenticity of those who have been invested in the Communist China.<br/><br/>10/20/2021 文贵直播：郭先生正告国内企业家及其家人，仅需满足两个条件，新中国联邦可给予一切帮助<br/>
-![img](https://media.gettr.com/group32/getter/2021/10/21/06/05/87921d15-4760-eb28-b8e3-47e65f9c3158/out.jpg)
 
 ---
 
