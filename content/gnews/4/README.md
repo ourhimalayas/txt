@@ -2,49 +2,35 @@
 ---
 
 
-## 喜币即将上市 具有最佳增值潜力
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1615954/)
+## 澳洲漫画家发表与天安门事件对比的反疫苗漫画后失业
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1616046/)
 
-作者：香草山农场教育部 – 四季
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/mahua.png)图片来源：Instagram
 
 
+#### 编译：小红帽
 
-10月24日，郭文贵先生在大直播中介绍，喜美元与美元锚定，是稳定币，喜联储承诺每年会拿出20%的收入购买储备黄金。喜币操作便捷，可随时进出，并可由喜币直接兑换喜美元，都充分体现喜币的保值及安全性。
+一位著名的澳大利亚漫画家表示，他在一幅新漫画中将天安门广场的抗议活动与中共病毒（Covid-19） 疫苗的强制接种规定相提并论后，失去了在墨尔本一家报社的重要职位。
 
-未来，喜币最重要的是要进入流通领域，前景广阔。据对日本市场的初步评估显示，虚拟货币将会占到未来日本市场的30%，即1.5万亿。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-65.jpg)
-郭先生称，喜币是增值潜力最好的虚拟货币。整个喜联储的价值已经被固化。掌握超过一万亿美元资金的国家机构投资者在评估后表示，喜联储的喜币，喜美元是最安全，最可流通，最高信用的货币系统。
+漫画家迈克尔·勒尼格（Michael Leunig）有时被称为澳大利亚“活着的国宝”，他透露，在发表了一幅批评政府强制接种疫苗的政治漫画后，他被迫离开了《时代报》（The Age）社论版的职位。
 
-涉及到喜联储未来的业务，郭先生表示，喜联储未来一定会有保险，贷款业务，并接受G系列之外的流通支付。喜币一定要在全世界成为最好的贷款抵押物。
+这副政治漫画是一部反强制接种疫苗的漫画，是对标志性的“坦克人”照片的改编。勒尼格的漫画展示了一名男子盯着一辆坦克，坦克的主炮被注射器取代。
 
-让我们期待下周喜币的隆重上市**。**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-91.jpg)
-参考链接：
-[2021年10月24日 文贵大直播：与川普公司合并的SPAC公司DWAC背后的11家投资机构与中共的关系，这场交易是以共产党情报为背景进行的连环操作，涉嫌多项内幕交易和犯罪的惊天的计划，让川普总统处在极度危险之中；我们永远支持川普总统，呼吁全世界不要被共产党利用](https://gtv.org/video/id=617551cfeadeb11f5e79f5d5)
+虽然他的漫画被《时代报》拒绝了，但勒尼格在Instagram上发表了这幅漫画，引发了疫苗强制接种支持者的强烈反对。
 
-（本文仅代表作者观点）
+“天安门广场的形象经常在世界各地的漫画中被用作查理·卓别林式的隐喻，即压倒性的力量遇上无辜和无力的人。在我看来，在世界上封锁最严重的城市提出这个问题是足够公平的，”这位漫画家说，他指的是墨尔本，在封锁262天后，墨尔本创造了中共病毒封锁时间最长的记录。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-总编/编辑：童谣
-校对/发稿：为真不破20
+**参考新闻：**[Australian ‘national treasure’ cartoonist loses job after comparing vaccine mandates to Tiananmen Square crackdown — RT World News](https://www.rt.com/news/538348-tiananmen-vaccine-mandate-cartoonist/)
 
-**更多资讯，更多关注**
+***发布：小红帽***
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

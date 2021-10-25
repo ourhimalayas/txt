@@ -2,49 +2,74 @@
 ---
 
 
-## 全新社交媒体GETTR不会将用户关进“数字监狱”
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1615832/)
+## 10.24大直播，不要把自我拯救希望交给别人，要靠自己
+` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1615835/)
 
-#### 编译报道：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan1-7.jpg)**图片来源：Sky News**
-10月24日，澳大利亚天空新闻“局外人”栏目采访盖特（GETTR）首席执行官杰森·米勒。这位唐纳德·川普的前顾问说，盖特是一款全新言论自由的社交媒体应用，我们的用户不会因为在政治问题上说出自己的想法而被“关进数字监狱”。
+我为在纽约、欧洲、亚洲的战友，建几个最困难时期，最困难时期就是灭日，泰坦尼克号沉船那样的情况
 
-米勒先生告诉天空新闻：“我们的独特之处在于，第一，我们不会因为任何人的政治信仰，而取消或审查或取消平台（资格）或将其算法化。
+给G系列投资者，全球重大贡献的战友提供救助，我们能提供有电，有基本的饭，有基本救命的药的庇护所，会是短期的帮助，无法做到中长期
 
-“与此同时，我们也有一个积极和强大的修改政策，为了使这两者相辅相成，我们也确保平台不出现非法内容。”
+任何人在那样的情况下无法保证提供中长期的救助，不要把自我拯救希望交给别人，只能靠自己
 
-“例如，你不能用身体伤害（自残）来威胁别人，或者你不能使用种族或宗教亵渎的字眼……我们确保监控（平台）环境，让使用者感到安全。”
+我唯一个人建议上国内的人，你如果没有足够的生存能力，出国更惨，出国没有钱和语言都寸步难行没，在国内，就搬到农村去，任何时候，别打疫苗，别染上病毒，预备足够的伊维菌素，地塞米松，羟氯喹，青蒿素。
 
-米勒先生说，自7月4日推出以来，这款应用程序“像火箭一样起飞”，已经拥有近300万用户。
+I’m building a few shelters for fellow fighters in New York
 
-他说：“我们的美国客户群约占我们整个全球客户群的47%，美国以外的客户群占53%，所以盖特确实已成为一个全球平台。”
+Europe and Asia for the most difficult times
 
-当天，米勒先生同步在盖特留言：
+the most difficult times being the end of days
 
-今天，很高兴加入澳大利亚天空新闻网的“局外人”节目!
+like the sinking of the Titanic
 
-哇！新的更新：盖特人数与川普总统上周宣布他的新公司（成立）之前相比，现在注册人数继续增加一倍多。
+We can provide a shelter with electricity
 
-我对澳大利亚（用户）的预测？
+basic food, basic life-saving medicine
 
-看看今天的新注册（人数）领跑者：
+but it will be a short-term help
 
-美国：37%，澳大利亚：20%；巴西：15%。
+not a medium or long-term help
 
-在过去24小时内，盖特在澳大利亚的App Store上连续跃升了109个位置！！！
+No one can guarantee medium to long term support
 
-我们开工吧！！！
+in a situation like that
 
-（以上仅代表作者个人观点，与Gnews平台无关）
+don’t leave the hope of saving yourself
 
-参考链接：
+in the hands of others, it’s up to you
 
-1、[New free speech app GETTR won’t put users in ‘digital jail’ for speaking their minds | Sky News Australia](https://www.skynews.com.au/opinion/outsiders/new-free-speech-app-gettr-wont-put-users-in-digital-jail-for-speaking-their-minds/video/bb3cc4507e39c15cce065758348f6fc3)
+My only personal advice to people in the China
 
-2、[Jason Miller on GETTR](https://gettr.com/user/jasonmillerindc)
+is that if you don’t have enough to survive
 
-**发布：文泓更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-﻿
+it’s worse to go abroad
+
+without money and the ability to speak other languages
+it will be hard to get around
+
+in China, move to the countryside
+
+at all times, don’t get vaccinated, don’t get the virus
+
+have enough Ivermectin, Dexamethasone
+
+Hydroxychloroquine and Artemisinin
+
+听写/翻译/字幕添加：kent
+
+发布：风云小哥
+
+
+> *免责声明：尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。*
+
+
+* * *
+
+更多加拿大枫叶农场的频道，请关注：
+
+- [GTV: 喜马拉雅加拿大多伦多枫叶农场](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
+- [GTV: 加拿大枫叶农场蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
+- [GTV: 多伦多枫叶财经频道](https://gtv.org/user/5f359954313eaf1e3716cfc1)
+- [喜马拉雅加拿大多伦多枫叶农场discord](https://discord.gg/Cpz33sS)
+- [加拿大多伦多枫叶农场 on GETTR](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_MPL_banner.png)

@@ -2,59 +2,27 @@
 ---
 
 
-## 10.24大直播，不要把自我拯救希望交给别人，要靠自己
-` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1615835/)
+## 反对强制令的年轻人说：政府没有权利强制我们做任何我们不想做的事情
+` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1615852/)
 
-我为在纽约、欧洲、亚洲的战友，建几个最困难时期，最困难时期就是灭日，泰坦尼克号沉船那样的情况
+Covid 19，大流行，已经结束了，我们不再关心了，想要疫苗的人，他们已经得到了，不想要疫苗的人，我们还是得不到。
 
-给G系列投资者，全球重大贡献的战友提供救助，我们能提供有电，有基本的饭，有基本救命的药的庇护所，会是短期的帮助，无法做到中长期
+一切都不会改变，我不会等待Fauci博士或Joe Biden或WHO的许可，你不能统治我，我不是你的臣民，我是一个自由国家的自由公民，你没有权利告诉我该做什么。
 
-任何人在那样的情况下无法保证提供中长期的救助，不要把自我拯救希望交给别人，只能靠自己
+在这个国家，我们人民掌握着权力，政府没有权力要求我做任何事情，任何雇主也没有权力。
 
-我唯一个人建议上国内的人，你如果没有足够的生存能力，出国更惨，出国没有钱和语言都寸步难行没，在国内，就搬到农村去，任何时候，别打疫苗，别染上病毒，预备足够的伊维菌素，地塞米松，羟氯喹，青蒿素。
+你看，你可以整天强制要求别人做什么，我们不在乎，我们会把整个事情关闭，你想保持经济运行？ 你最好不要强制要求注射疫苗，你想保持你的私人企业开张？ 你最好不要强制要求注射疫苗，用50%的员工经营企业有什么乐趣？
 
-I’m building a few shelters for fellow fighters in New York
+因为人们已经站起来了，他们已经厌倦了被那些无权告诉他们该做什么的人所左右。
+我们正在夺回我们的国家。不管你提出什么样的任务，我们都会无视它。
 
-Europe and Asia for the most difficult times
+你们可以拿着你们的任务，你们的疫苗，你们的口罩，你们的护照，你们可以把它们都塞进你们的集体屁眼里，因为我们不在乎。
 
-the most difficult times being the end of days
+文字听写翻译：Kent
 
-like the sinking of the Titanic
+视频字幕：Kent
 
-We can provide a shelter with electricity
-
-basic food, basic life-saving medicine
-
-but it will be a short-term help
-
-not a medium or long-term help
-
-No one can guarantee medium to long term support
-
-in a situation like that
-
-don’t leave the hope of saving yourself
-
-in the hands of others, it’s up to you
-
-My only personal advice to people in the China
-
-is that if you don’t have enough to survive
-
-it’s worse to go abroad
-
-without money and the ability to speak other languages
-it will be hard to get around
-
-in China, move to the countryside
-
-at all times, don’t get vaccinated, don’t get the virus
-
-have enough Ivermectin, Dexamethasone
-
-Hydroxychloroquine and Artemisinin
-
-听写/翻译/字幕添加：kent
+编辑/发稿：Kent
 
 发布：风云小哥
 

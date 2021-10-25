@@ -2,40 +2,29 @@
 ---
 
 
-## 阿拉巴马州总检察长向拜登疫苗强制令说不
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1615402/)
+## 继续打鸡血！中共官宣2款民用航空涡扇发动机研制进展
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1615382/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/121-4.jpg)[图片来源](http://www.comac.cc/xwzx/hkzx/201611/21/t20161121_4537533.shtml)
+商业经济观察10月23日消息，近日，中国航发集团对外展出了，有关长江1000和长江2000的相关研发进度。长江系列发动机，对外代号CJ，目前长江1000发动机已经进入一个较为成熟的阶段，整机的原型开发机已经进入了最后的试验和相应检测阶段。目前长江2000已经完成了核心机的实验。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-116.jpg)[图片来源](https://www.sohu.com/a/496844465_100123330)
+据悉，中共计划将长江1000涡扇发动机装配到其自行研制的干线客机C919上，从而取代目前C919上进口发动机。目前，C919采用了美法两国组成的CFM公司提供的LEAP-X1C发动机，推力大约为13.7吨左右。由此推断，如果长江1000发动机想要替代该款发动机，应该在推力参数上要基本持平。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-14.png)图片来源
+据消息人士称，目前长江2000已经完成了核心机的实验，这是研制新型涡扇发动机的第一步。下一步将装配成原型机，进行设计和测试工作。根据长江2000民用涡扇发动机在本届珠海航展的模型介绍，其比长江1000体积更小，但是技术更先进，功能更强，推力也更猛，最大推力能达到35吨左右。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/A-9.jpg)al.com
-阿拉巴马州总检察长史蒂夫·马歇尔（Steve Marshall）表示，我将在法庭上挑战拜登的联邦-承包商（federal-contractor）疫苗强制令，以下是我的声明：
+而长江2000涡扇发动机预计将被CR929系列宽体客机。CR929系列是中共与俄罗斯联合开发的，具有双通道的大型宽体客机，预计将在2030年研制完成并首飞，根据爆料称，目前这款飞机的相关部件已经开始进入生产阶段。CR929的动力选项预计还将有以PD14为代表的俄罗斯航空发动机。
 
-阿拉巴马州总检察长
-史蒂夫·马歇尔
+航空发动机是中共航空工业和军事装备的痛点，过去数十年以举国之力投入超过千亿资金，但在技术水平上仍旧远远落后与美欧发达国家，突出表现为质量差和寿命短。
 
-联邦政府最近与阿拉巴马州的一些州机构和部门进行了沟通，表示它们受拜登的联邦承包商疫苗政策的约束，因此必须强制要求其雇员接种疫苗。
+1994年，美国研制的GE90基本型就已经完成适航取证，1995年就正式投入商用。作为民用大涵道比涡扇发动机长江1000、长江2000，即便能够在2025年取得适航证，中共的民用大涵道比涡扇发动机仍然落后美国至少30年！
 
-我想向阿拉巴马州人民保证，我的办公室将与这种侵犯个人自由、联邦制和分权的卑鄙行为作斗争。
+信息来源：
 
-我们将在法庭上挑战拜登的联邦承包商疫苗强制令，我将尽我所能，在12月8日联邦规定的最后期限之前解决这一问题。
+[C919被卡脖子？中国亮出两款发动机\_长江](https://www.sohu.com/a/496844465_100123330)
 
-（签名）
+(文章仅代表作者本人观点，与GNEWS无关)
 
-言简意赅的声明，马歇尔总检察长一语中的，这是侵犯自由的卑鄙行径，我们必须与之斗争。州长们、州总检察长们、州议员们，起来，向邪恶说不，否则将会有更多的无辜者遭受阴谋集团迫害。
-
-声明文字整理：
-
-ALABAMA ATTORNEY GENERAL
-
-STEVE MARSHALL
-
-The federal government has recently communicated to a number of state agencies and institutions in Alabama that they are subject to President Biden’s federal-contractor vaccine mandate and must therefore, force their employees to be vaccinated.
-
-I want to assure the people of Alabama that my office will fight this contemptible infringement upon individual liberty, federalism, and the separation of powers.
-
-We will be challenging President Bidens federal-contractor vaccine mandate in court, and I will do everything in my power to resolve this matter before the federally dictated deadline of December 8.
-
-（文章仅代表作者个人观点）
-
-原文链接：[https://twitter.com/AGSteveMarshall/status/1451701843311087617](https://twitter.com/AGSteveMarshall/status/1451701843311087617)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

@@ -2,49 +2,40 @@
 ---
 
 
-## 拜登集团支持谭德塞连任
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1615441/)
+## 阿拉巴马州总检察长向拜登疫苗强制令说不
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1615402/)
 
 俄罗斯莫斯科喀秋莎农场   仰望七星
 
 编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/T-8.jpg)news.pindula.co.zw
-怯共、亲共、疑似通共的拜登又有协助邪魔中共的新举动，他支持谭德塞连任世卫组织总干事。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/A-9.jpg)al.com
+阿拉巴马州总检察长史蒂夫·马歇尔（Steve Marshall）表示，我将在法庭上挑战拜登的联邦-承包商（federal-contractor）疫苗强制令，以下是我的声明：
 
-《门道专家》10月 24日 发表文章，题目“拜登集团支持世卫组织总干事谭德塞连任，尽管他与恐怖分子和中共有联系，而且中共病毒疫情时表现糟糕”。【1】
+阿拉巴马州总检察长
+史蒂夫·马歇尔
 
-全文如下：
+联邦政府最近与阿拉巴马州的一些州机构和部门进行了沟通，表示它们受拜登的联邦承包商疫苗政策的约束，因此必须强制要求其雇员接种疫苗。
 
-看起来腐败和备受争议的世卫组织总干事谭德塞将继续在世界卫生组织任职，尽管他与恐怖主义和中共有联系，并对在中共国首次发现中共病毒（Covid-19）疫情时谎报假数字推波助澜。
+我想向阿拉巴马州人民保证，我的办公室将与这种侵犯个人自由、联邦制和分权的卑鄙行为作斗争。
 
-我们于2020年3月首次报道过谭德塞，他曾是由恐怖主义政权领导的埃塞俄比亚政府的高级成员，然后，他以某种方式成为中共的傀儡被挑选为世卫组织的头目。当中共病毒首次被报告时，谭德塞用疯狂错误的预测吓坏了全世界，这些预测夸大了关于中共病毒的高死亡率。
+我们将在法庭上挑战拜登的联邦承包商疫苗强制令，我将尽我所能，在12月8日联邦规定的最后期限之前解决这一问题。
 
-现在看来，谭德赛将专注于气候变化。
+（签名）
 
-因此，拜登政权支持谭德塞连任世卫组织总干事也就不足为奇了。《福克斯新闻》报道说，拜登不愿意提出不同的候选人，这让谭德塞继续掌管这个有污点的组织。
+言简意赅的声明，马歇尔总检察长一语中的，这是侵犯自由的卑鄙行径，我们必须与之斗争。州长们、州总检察长们、州议员们，起来，向邪恶说不，否则将会有更多的无辜者遭受阴谋集团迫害。
 
-“世界卫生组织负责人、埃塞俄比亚人谭德塞看来将连任第二届总干事，此前有报道称，尽管他在处理中共病毒疫情方面存在争议，而且与中共关系密切，但没有任何国家会挑战他。
+声明文字整理：
 
-观察家说，人们认为如果美国不去提名，那么美国就失去了发挥影响力的重要机会，而提名截止日期是上月底。
+ALABAMA ATTORNEY GENERAL
 
-在川普政府宣布将终止美国与世卫组织的关系后，拜登在上任初期重新与世卫组织接触。当时，川普之所以终止关系，是因为世卫组织对中共病毒疫情的处理方式、其所谓的亲共偏见以及随后的改革失败等。”
+STEVE MARSHALL
 
-这只是另一个提醒，拜登所做的一切都有助于中共而有害于美国。
+The federal government has recently communicated to a number of state agencies and institutions in Alabama that they are subject to President Biden’s federal-contractor vaccine mandate and must therefore, force their employees to be vaccinated.
 
-（原文完）
+I want to assure the people of Alabama that my office will fight this contemptible infringement upon individual liberty, federalism, and the separation of powers.
 
-笔者悉数过拜登窃位入主白宫以来，怯共、亲共、通共的行为，至少在10月4日的文章中罗列过：
-
-“拜登自上台以来，叫停了唯一的美国官方病毒溯源调查；对香港民主、新疆种族灭绝只是叫喊，出台一些不痛不痒的制裁措施；对抵制北京冬奥会的呼声不闻不问（目前来看，中共举办冬奥会已是大概率事件）；积极配合中共在阿富汗的撤军、将美国人质和武器留给塔利班和中共；解禁了疑似中共间谍唐娟；撤销了对中共偷窃技术人员的起诉；释放了孟晚舟；解除了多项出口限制；恢复了对华为汽车芯片的供应（笔者分析，此举只是个幌子，中共会借用此“通道”为华为提供所需的所有芯片，甚至是整个中共所需的芯片），在中共病毒溯源报告、强制接种疫苗、政治外交等方方面面竭力配合了中共，说拜登政府亲共、通共不为过之！这不，又急于与中共恢复贸易谈判，且批评川普时期的对华贸易政策。” 【2】
-
-后来，向中共写下保证书，出卖了台湾。现在，拜登又为中共在世卫组织的走狗谭德塞续命，罪加一条！
-
-看看美国的现状，依靠中共助力作假登台的拜登有通共行为不难理解，曾经积极反共的川普在小利益面前，经不住身边亲共、通共分子诱导、蒙骗，掉进了中共挖的大坑。笔者仍不认为，这是川普明知资金来路有中共背景之下而进行的冒险举动，用文贵先生的话，只能说明中共渗透能力超群。中共邪恶无所不在，现已到了最后最疯狂的时刻。必须将其铲除，还世界以安宁。
+We will be challenging President Bidens federal-contractor vaccine mandate in court, and I will do everything in my power to resolve this matter before the federally dictated deadline of December 8.
 
 （文章仅代表作者个人观点）
 
-有关链接：
-
-【1】[https://www.thegatewaypundit.com/2021/10/biden-gang-supporting-reelection-director-general-tedros-despite-connections-terrorists-china-terrible-covid-performance/](https://www.thegatewaypundit.com/2021/10/biden-gang-supporting-reelection-director-general-tedros-despite-connections-terrorists-china-terrible-covid-performance/)
-
-【2】[https://gnews.org/zh-hans/1573509/](https://gnews.org/zh-hans/1573509/)
+原文链接：[https://twitter.com/AGSteveMarshall/status/1451701843311087617](https://twitter.com/AGSteveMarshall/status/1451701843311087617)

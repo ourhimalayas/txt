@@ -2,43 +2,23 @@
 ---
 
 
-## 前政府发言人呼吁脸书CEO辞职
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1615723/)
+## 中共：需要考虑能源、粮食安全等等
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1615740/)
 
-作者：纽约香草山农场 – 童谣
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/10/12-14.png)[图片来源](https://news.yahoo.co.jp/articles/658d38df59dc8367cae2ca46567c416943916a25/images/000)
+［北京２４日路透社］本月24日报道，中共公布了到2030年前使二氧化碳排放过峰值、2060年几乎为零的目标的措施纲要，指出减少温室气体的努力需要考虑粮食和能源安全，并呼吁有效应对向环保低碳转型相关的经济风险，以“防止过度反应，并确保安全减少二氧化碳”。
 
+中国正在发生严重的能源短缺，这可能会影响政府减少温室气体排放的努力。第26届联合国气候变化框架公约缔约方大会（COP26）将于31日在英格兰北部格拉斯哥开幕。根据官方新华社发布的一份政府文件指出，中国有必要维持“减少污染和二氧化碳、能源安全、产业供应链安全、粮食安全与人民正常生活的关系”的平衡。
 
+中共国已经开始为即将全面爆发的粮食和能源问题“预热”，大众距离正常生活已经越来越远。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
+信息来源：
 
+[温暖化ガス削減、食料安全保障など考慮する必要＝中国政府指針](https://news.yahoo.co.jp/articles/658d38df59dc8367cae2ca46567c416943916a25)
 
+(文章仅代表作者本人观点，与GNEWS无关)
 
-随着更多知情人士揭露脸书传播虚假信息的事实，10月23日，前美国总统奥巴马财政部的一位发言人，卡拉-阿莱莫呼吁脸书CEO马克-扎克伯格辞职。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture30-3.jpg)
-继脸书内幕吹哨人弗朗西斯-豪根站出来之后，又一位匿名证人对脸书进行指控，当前两位证人的说法一致。这位新证人宣誓书中，有一句引人注目的话，即脸书未能迅速采取行动来帮助遏制种族杀戮，令这位前雇员感到十分痛苦。
-
-阿莱莫称，“面对虚假信息，扎克伯格没有尝试做任何事情。很明显，扎克伯格缺乏解决这些问题的道德或能力”。面对一系列指控，脸书CEO唯一想到的方式就是修改公司的名字。对此，Jason Miller先生在盖特中表示，公众已经失去了对该网络的信任，扎克伯格想通过修改公司名称来度过危机，不会起到任何作用。
-
-参考链接：[前政府发言人呼吁脸书CEO辞职](https://www.gettr.com/post/peza2q30f2)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：童谣
-编辑：程万里
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
