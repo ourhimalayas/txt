@@ -2,31 +2,74 @@
 ---
 
 
-## 世茂集团抛售上海陆家嘴93套房，疑与房产税试点有关
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1615794/)
+## 10.24大直播，不要把自我拯救希望交给别人，要靠自己
+` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1615835/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/21-10.jpg)[图片来源](https://www.bizhizu.com/download/542-8-0x0.html)
-据第一财经10月25日报道，随着中共官宣正式试点房地产税的消息，近日上海房叔一次性抛售93套房产，套现4.5亿元的消息被热炒。经过记者多方采访了解到，这批房源的真正持有方，是房地产开发商世茂集团下属的苏沪区域公司。
+我为在纽约、欧洲、亚洲的战友，建几个最困难时期，最困难时期就是灭日，泰坦尼克号沉船那样的情况
 
-近日一则网传消息十分吸引眼球：上海房叔一次性抛售93套房产，持有28年、房价翻了100倍，如今套现4.5亿元，而且所有房源都在一个小区。
+给G系列投资者，全球重大贡献的战友提供救助，我们能提供有电，有基本的饭，有基本救命的药的庇护所，会是短期的帮助，无法做到中长期
 
-10月15日，周五中午，位于上海浦东陆家嘴板块的“浦城小区”门口突然挤满了房产中介经纪人以及他们带来的看房客。来往有路人驻足询问，便有中介语焉不详地说：“这个小区开盘！”
+任何人在那样的情况下无法保证提供中长期的救助，不要把自我拯救希望交给别人，只能靠自己
 
-一名房产中介告诉记者：“这次是老房新卖，总共接近百套，10月15日中午12点开售，第一天41-49平方米的小户型售罄，第二天64-72平方米的户型也全部售罄。”一名16日去了浦城小区的看房客则表示，房子都是1993年落成的“老破小”，但地段好，均价8.5万/平方米，销售现场确实人挺多，房源当天全部秒光，而她没有抢到房子。
+我唯一个人建议上国内的人，你如果没有足够的生存能力，出国更惨，出国没有钱和语言都寸步难行没，在国内，就搬到农村去，任何时候，别打疫苗，别染上病毒，预备足够的伊维菌素，地塞米松，羟氯喹，青蒿素。
 
-于是接下来，网络上关于浦城小区的消息越来越多。近日在某微博平台上，不断有网友发帖称，打包出售这批房子的是一个上海房叔，房叔1993年就在该小区囤下近百套房子，买入价格只有700元/平方米，结果价格翻了100多倍，现在一次性套现4.5亿元。
+I’m building a few shelters for fellow fighters in New York
 
-但这并非事实。记者通过多方核实获知，浦城小区这批被出售房源，与世茂集团在陆家嘴的投资开发历史有紧密渊源，其实际持有方原本也是世茂苏沪区域公司。
+Europe and Asia for the most difficult times
 
-当前，中共房地产已濒临全面崩塌，中共近日出台的房地产税正式试点政策，更是让原本已现金短缺、融资难的房地产企业雪上加霜。可以预计，继世茂集团之后还将有更多房地产企业加入抛售行列。
+the most difficult times being the end of days
 
-信息来源：
+like the sinking of the Titanic
 
-[上海“神秘房东”抛售93套房？真相是这样的](https://news.sina.com.cn/c/2021-10-25/doc-iktzqtyu3344904.shtml)
+We can provide a shelter with electricity
 
-(文章仅代表作者本人观点，与GNEWS无关)
+basic food, basic life-saving medicine
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+but it will be a short-term help
+
+not a medium or long-term help
+
+No one can guarantee medium to long term support
+
+in a situation like that
+
+don’t leave the hope of saving yourself
+
+in the hands of others, it’s up to you
+
+My only personal advice to people in the China
+
+is that if you don’t have enough to survive
+
+it’s worse to go abroad
+
+without money and the ability to speak other languages
+it will be hard to get around
+
+in China, move to the countryside
+
+at all times, don’t get vaccinated, don’t get the virus
+
+have enough Ivermectin, Dexamethasone
+
+Hydroxychloroquine and Artemisinin
+
+听写/翻译/字幕添加：kent
+
+发布：风云小哥
+
+
+> *免责声明：尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。*
+
+
+* * *
+
+更多加拿大枫叶农场的频道，请关注：
+
+- [GTV: 喜马拉雅加拿大多伦多枫叶农场](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
+- [GTV: 加拿大枫叶农场蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
+- [GTV: 多伦多枫叶财经频道](https://gtv.org/user/5f359954313eaf1e3716cfc1)
+- [喜马拉雅加拿大多伦多枫叶农场discord](https://discord.gg/Cpz33sS)
+- [加拿大多伦多枫叶农场 on GETTR](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_MPL_banner.png)

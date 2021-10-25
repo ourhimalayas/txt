@@ -2,41 +2,37 @@
 ---
 
 
-## 疫苗加强剂在澳大利亚即将获得批准
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1615762/)
+## 国际要闻汇编 10月25日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1615801/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 素材：东京樱花团｜GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-441.png)[*图片来源*](https://gdb.voanews.com/153308F9-A055-4828-BC6E-CF056B890EC6_cx0_cy5_cw0_w1597_n_r1_st.jpg)
+1、[**股价两天涨800% 川普媒体科技借壳上市**](https://www.aboluowang.com/2021/1025/1663675.html)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/COVID-19-vaccine-booster_iStock-1334441038_2021-08_Hero_1336x614.jpg)
+特殊目的收购公司（SPAC）“数位世界并购”（DWAC）将收购美国前总统川普旗下拟推出新社交媒体的“川普媒体科技集团”，使其借壳上市，DWAC股价连两日大涨逾800%，22日收盘报94.2美元。
 
+2、[**美台工作组会议，美重申支持台湾入世卫和联合国气候变化框架公约**](https://www.voachinese.com/a/us-taiwan-meeting-on-international-organizations-20211023/6283253.html)
 
+美国务院周六（23日）发布媒体通知说，10月22日，美国在台协会和驻美国台北经济文化代表处召集美国国务院和台湾外交部的高级代表就台湾参与联合国和其它国际论坛举行了一次视频论坛。讨论重点是支持台湾有意义地参与联合国并对处理全球挑战贡献其宝贵专业技能的能力，包括全球公共卫生、环境和气候变化、开发援助、技术标准和经济合作。美国与会代表重申美国致力于台湾有意义地参与世界卫生组织和联合国气候变化框架公约，讨论了突出台湾对广泛议题努力做出贡献能力的方法。
 
-图片来源：ncoa.org
+3、[**英国外相指不能过于依赖中国**](https://www.voachinese.com/a/uk-foreign-secretary-suggests-china-plays-no-role-in-key-uk-infrastructure-20211023/6282798.html)
 
+英国外相特拉斯（Liz Truss）接受英国《每日电讯报》（Daily Telegraph）访问，指中国是英国的重要贸易伙伴，但重要的是关系不能变得过于依赖。特拉斯指，英方不可以在包括核电厂和5G网络的关键基础建设上过于依赖中国，而应该寻求与“思维接近”的伙伴共同建设。特拉斯的言论显示，即使英国不会将中国投资拒于门外，但中方只能在非战略领域投资。
 
-#### 编译：小红帽
+4、[**中国公司欲承包泰国水利项目 人权人士表示反对**](https://www.voachinese.com/a/china-shows-interest-in-a-thailand-water-project/6283640.html)
 
-澳大利亚民众在接种第二剂中共病毒（ COVID-19）疫苗后六个月就可以开始接种疫苗加强剂。
+据美国之音消息，泰国的一个备受争议的调水项目引起了一家中国大型公司的兴趣，泰国政府计划向前推进这项计划。国家环境委员会于9月批准了一项重要的尤姆河引水工程的环境影响评估报告。国家环境委员会此前曾两次拒绝该项目的评估，最近一次是在2019年12月。一家未具名的中国公司愿意自费在四年内，而不是预计的七年内，以略高于21亿美元估计价格一半的造价建造该项目。几周后，9月份的情况出现了转机。泰国的人权组织已经在反对该项目，担心新水库将淹没村庄，以及地下管道将连根拔起的保护森林。
 
-澳大利亚疫苗推广负责人约翰·弗里温（John Frewen）表示，该国的疫苗咨询小组将很快公布有关加强剂的建议。
+5、[**刚果叫停所有可疑伐木许可 中企受冲击**](https://www.aboluowang.com/2021/1025/1663667.html)
 
-“我们现在只是在等待最终的医疗建议，”弗里温周一告诉《九号台》（Nine Network）。“我们预计他们会建议人们在6至12个月之间考虑接种加强剂。辉瑞（Pfizer）和 莫德纳（Moderna）等 mRNA 疫苗将主要用于加强剂的接种。”
+非洲国家刚果（金）近日下令重新审计所有伐木合同，并在全球年度气候峰会（COP26）之前暂停所有可疑的特许权，再次对中国企业造成冲击。刚果政府表示，此举旨在配合联合国气候变迁规范，以消除非法合同或导致该国丢失10亿美元国际资金的风险。刚果盆地拥有仅次于亚马逊的世界第二大雨林，面积达3.75亿公顷。据统计，刚果金有三分之二的木材销往中国，特别是红木。然而这种木材已被国际组织列为非法采伐和盗木贸易的主要目标之一。
 
-在全国范围内，73%的16岁及以上符合条件的人已经完全接种了疫苗，而近87%的人已经接种了第一剂疫苗。
+6、[**美南加州24日起同区电话也须拨区号共十个数字**](https://www.aboluowang.com/2021/1025/1663610.html)
 
-国家免疫研究和监测中心主任克里斯汀·马卡尼（Kristine Macartney）教授告诉澳大利亚广播公司（ABC）：“这就是大多数国家现在已经采取的做法”。
+周日（24日）开始，美国南加州区域电话号码是562、626、949和951的居民，在拨打电话时都需要先拨区号，也就是他们即使是打电话给相同区号的人，前面一样要先拨区号，即要拨“十个数字”（10-digit dialing），电话才能够接通。有些地方并要求在拨三位数的区号前先拨1，尤其是用那些固定电话或有线电话拨号的人。至于大多数的手机，都已经在区号前自动加1了。
 
-一旦加强剂获得批准，从事老年护理、残疾护理和一线卫生工作者的澳大利亚人将成为首批接种强化剂的人。
+（本文只代表个人观点，与Gnews网站无关）
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Approval for virus booster shots imminent (msn.com)](https://www.msn.com/en-au/news/australia/approval-for-virus-booster-shots-imminent/ar-AAPTXXL?ocid=msedgntphdr&amp;pfr=1)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*编辑：东京樱花团 / 文小白*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

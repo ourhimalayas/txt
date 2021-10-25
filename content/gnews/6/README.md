@@ -2,49 +2,45 @@
 ---
 
 
-## 喜币即将上市 具有最佳增值潜力
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1615954/)
+## 南卡联邦法官拒绝阻止强制接种限制令
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1616118/)
 
-作者：香草山农场教育部 – 四季
+编译**：Lulumi**
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-445.png)图片来源**：**theepochtimes.com
 
+2021年10月12日，在加州Placentia的Placentia Yorba Linda联合学区大楼，家长们聚集在一起，表达他们对学生接种疫苗规定的担忧。(John Fredricks/The Epoch Times)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+一名联邦法官周四拒绝了一项限制令，该限制令将阻止对南卡罗来纳州多达125名城市雇员的疫苗强制接种。
 
+汤姆·费尔南德斯（Tom Fernandez）和他的费尔南德斯律师事务所代表原告，其中100人是第一反应者，他们对查尔斯顿和北查尔斯顿市、查尔斯顿县和圣约翰消防区的强制令规定提出了诉讼。
 
+费尔南德斯告诉《大纪元时报》说：“他们认为，接种疫苗完全是政府的胁迫行为”。“我们在州法院提起诉讼，声称他们受到宪法保护。他们不想要这种疫苗。他们认为拒绝接种是他们的宗教权利。他们认为不接种疫苗是他们的言论自由权、隐私权和身体自主权”。
 
-10月24日，郭文贵先生在大直播中介绍，喜美元与美元锚定，是稳定币，喜联储承诺每年会拿出20%的收入购买储备黄金。喜币操作便捷，可随时进出，并可由喜币直接兑换喜美元，都充分体现喜币的保值及安全性。
+美国南卡罗来纳州地区法院的大卫·诺顿（David Norton）法官在一份声明中说，法院的作用不是强加给雇主的政策，而是“最好地平衡一个大流行病的相互竞争的利益，这个大流行病不仅困扰着这个州或国家，而且困扰着世界，几乎两年了。”
 
-未来，喜币最重要的是要进入流通领域，前景广阔。据对日本市场的初步评估显示，虚拟货币将会占到未来日本市场的30%，即1.5万亿。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-65.jpg)
-郭先生称，喜币是增值潜力最好的虚拟货币。整个喜联储的价值已经被固化。掌握超过一万亿美元资金的国家机构投资者在评估后表示，喜联储的喜币，喜美元是最安全，最可流通，最高信用的货币系统。
+“他在昨天的命令中提出的观点基本上是转述了夜间新闻的谈话要点，”费尔南德斯说。“他们没有实事求是。没有任何实质性的内容。基本上就是在说‘COVID是一个紧急情况，医院都满了。没有可用的呼吸机，而且重症监护室已经没有床位了。”
 
-涉及到喜联储未来的业务，郭先生表示，喜联储未来一定会有保险，贷款业务，并接受G系列之外的流通支付。喜币一定要在全世界成为最好的贷款抵押物。
+费尔南德斯说，他们向法庭提交了当地医院的数据，这些数据显示，中共病毒COVID-19的感染在整个州和全国都在下降，只有不到一半的呼吸机被使用，而在这些呼吸机中，只有7%被中共病毒患者使用。
 
-让我们期待下周喜币的隆重上市**。**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-91.jpg)
-参考链接：
-[2021年10月24日 文贵大直播：与川普公司合并的SPAC公司DWAC背后的11家投资机构与中共的关系，这场交易是以共产党情报为背景进行的连环操作，涉嫌多项内幕交易和犯罪的惊天的计划，让川普总统处在极度危险之中；我们永远支持川普总统，呼吁全世界不要被共产党利用](https://gtv.org/video/id=617551cfeadeb11f5e79f5d5)
+费尔南德斯说，法官选择了这些谈话要点，而不是对警察和消防员的宪法保护。
 
-（本文仅代表作者观点）
+最初，城市雇员必须在11月5日之前接种疫苗，但北查尔斯顿市长凯斯·萨米（Keith Summey）裁决将其延长至11月19日。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+萨米说：“这对于为城市雇员提供一个安全的工作环境，并为我们的公民提供安全和高效的服务至关重要，本市希望，一些原告在阅读了诺顿法官的命令后，现在可能希望遵守疫苗接种政策，以保留就业。”
 
-总编/编辑：童谣
-校对/发稿：为真不破20
+他说，费尔南德斯与之交谈过的许多员工“正在坚持自己的立场”。
 
-**更多资讯，更多关注**
+费尔南德斯说：“我们有一些市长认为只有少数警察和消防员会被解雇，他们会在第一天突然发现，他们的部门缺少很大比例的人员。”
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+（文章仅代表作者观点，与GNEWS无关）
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+**参考资料**：[theepochtimes.com][Federal Judge in South Carolina Denies Restraining Order to Block Vaccine Mandates](https://www.theepochtimes.com/federal-judge-in-south-carolina-denies-restraining-order-to-block-vaccine-mandates_4064033.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-10-24)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+* * *
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-1.jpeg)

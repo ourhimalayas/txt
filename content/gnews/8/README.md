@@ -2,45 +2,35 @@
 ---
 
 
-## 福奇国家卫生院官网偷偷将“功能增强”内容删除
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1615939/)
+## 澳洲漫画家发表与天安门事件对比的反疫苗漫画后失业
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1616046/)
 
-信息采集：guocamole(文金欠)
-作者：纽约香草山农场 – 童谣
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/mahua.png)图片来源：Instagram
 
 
+#### 编译：小红帽
 
-据10月23日Red Voice Media发布的视频显示，福奇领导的国家卫生院（NIH），在承认资助武汉进行“功能增强”实验后，把“功能增强”的内容从其官网中删除。
+一位著名的澳大利亚漫画家表示，他在一幅新漫画中将天安门广场的抗议活动与中共病毒（Covid-19） 疫苗的强制接种规定相提并论后，失去了在墨尔本一家报社的重要职位。
 
-在过去的几天里，至少从2021年10月19日起，美国国家卫生研究院已经完全改变了 他们对潜在大流行病原体“功能增强”研究的定义和表述。在当前的网站中，只能看到“潜在大流行病原体”、“ePPP研究和监督”等内容，而对比19日之前的网站页面，他们完全删除了“功能增强”这个词汇。也删除了有关 美国政府暂停对“功能增强”研究进行资助的部分。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-136.jpg)
-参考链接：
-[Fauci’s NIH Removes ‘Gain of Function’ From Website AFTER Admitting They Funded It In Wuhan \[VIDEOS\]](https://www.redvoicemedia.com/2021/10/faucis-nih-removes-gain-of-function-from-website-after-admitting-they-funded-it-in-wuhan-videos/)
+漫画家迈克尔·勒尼格（Michael Leunig）有时被称为澳大利亚“活着的国宝”，他透露，在发表了一幅批评政府强制接种疫苗的政治漫画后，他被迫离开了《时代报》（The Age）社论版的职位。
 
-（本文仅代表作者观点）
+这副政治漫画是一部反强制接种疫苗的漫画，是对标志性的“坦克人”照片的改编。勒尼格的漫画展示了一名男子盯着一辆坦克，坦克的主炮被注射器取代。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+虽然他的漫画被《时代报》拒绝了，但勒尼格在Instagram上发表了这幅漫画，引发了疫苗强制接种支持者的强烈反对。
 
-总编：童谣
-编辑：程万里
-校对/发稿：为真不破20
+“天安门广场的形象经常在世界各地的漫画中被用作查理·卓别林式的隐喻，即压倒性的力量遇上无辜和无力的人。在我看来，在世界上封锁最严重的城市提出这个问题是足够公平的，”这位漫画家说，他指的是墨尔本，在封锁262天后，墨尔本创造了中共病毒封锁时间最长的记录。
 
-**更多资讯，更多关注**
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**参考新闻：**[Australian ‘national treasure’ cartoonist loses job after comparing vaccine mandates to Tiananmen Square crackdown — RT World News](https://www.rt.com/news/538348-tiananmen-vaccine-mandate-cartoonist/)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+***发布：小红帽***
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
