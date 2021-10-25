@@ -2,12 +2,7 @@
 ---
 
 
-## 南京航空航天大学发生爆炸，造成2死9伤
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1615562/)
+## 10/24/2021 文贵直播：DWAC的股价在最短时间内以最快速度大涨大跌，背后全是中共的基金在进行内幕交易和操纵股市
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1615678/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1025-1-2-scaled.jpg)
-（文章仅代表作者个人观点，与GNEWS无关）
-
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+秘密翻译组-北美组

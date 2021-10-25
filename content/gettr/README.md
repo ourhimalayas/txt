@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/25/2021 3:22 AM (UTC)`
+
+🆘疫苗灾难<br/><br/>【一个在产房工作的护士说婴儿刚生下来的时候看上去很健康，但在48-72小时后死亡，肺出血……都是孕期和哺乳期打了疫苗……<br/>🆘🆘🆘Don’t get Vaccines!!!】
+![img](https://media.gettr.com/group22/getter/2021/10/25/03/22/95f5fb0f-6380-c533-3a21-517a266e5a10/out.jpg)
+
+---
+
 `@miles 10/25/2021 2:40 AM (UTC)`
 
 With his new platform, Trump may bring his supporters back to the social media world. And Gettr, as the global leaders for free speech with advanced technology and crypto future, can take this opportunity to attract and re-energize them.<br/><br/>凭借川普的新平台，川普可能会将他的支持者带回社交媒体世界。 而盖特（Gettr）作为拥有先进技术和加密未来的言论自由的全球领导者，可以借此机会吸引并重新激发他们的活力。
@@ -286,13 +293,6 @@ Transportation solutions provider Giga Energy Inc is going public through a merg
 
 Every day is a Fashion Show, and a the world is your runway. G Fashion’s New Collection is coming soon.    每天都是一场时装秀，世界就是你的舞台. G Fashion 的新系列即将推出 ！♥️♥️♥️🔥🔥🔥🔥✌️✌️✌️#Gfashion @DDNYC 
 ![img](https://media.gettr.com/group46/getter/2021/10/22/00/03/4baf78fc-e2f0-760d-cd6c-f5107ca3dbe4/out.jpg)
-
----
-
-`@miles 10/21/2021 5:57 PM (UTC)`
-
-10月21号：我的乖乖哟……
-![img](https://media.gettr.com/group41/getter/2021/10/21/17/cf601883-ff07-7f8c-e915-3d95ccf12002/799bee6ae0eb660c13377db6c2edf76d.jpg)
 
 ---
 
