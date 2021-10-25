@@ -2,23 +2,44 @@
 ---
 
 
-## 文贵爆料24/10： 中共用空壳公司设计川普的目的是想干掉川普
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1614914/)
+## 11 月 8 日起接种COVID-19疫苗成澳洲教师就业条件
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1615680/)
 
-撰稿：Skagen【㊙️翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20211024-e1635093619937.jpg)
-郭文贵先生在2021年10月24日的大直播揭露中共用空壳公司SPAC设计川普的几个原因：
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-核心的原因是中共绝对不能让川普加入GETTR，从而让川普总统丧失未来的大选；加入盖特就意味着川普一定会赢得2022中期选举，就会成为未来的共和党，成为参众两院的发言人，就如今天的Nancy Pelosi这样的house man。2022川普赢，意味着2024年川普回白宫基本定局。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/3000-scaled.jpeg)
 
-第二，股市绝对不能有内幕交易，只要有内部交易就是刑事罪，在DWAC上市后的交易几乎都在十一家基金里边中间转来，这十一家基金，除了三家是美国和加拿大基金之外，其他全是共产党的。这种内部交易操纵市场肯定会受到SEC调查，怀疑内线交易，怀疑操作市场，川普总统就会被刑事调查，终生将无法再参与政治选举。
 
-第三，共产党囤积的2.96亿的基金，提前放在了川普总统的信托基金，购买了涉案公司的4000万股的91.3%。MAGA投资者大量追随，目前公司的市值已经被炒作到了100多亿美元。休市的时候市值只有2亿多美元。实际被洗走了50亿-80亿美元。创下了 SPAC 被吸走资金最快的记录 。川普总统必须面对MAGA的所有投资者，川普总统最终只能买买买各种社交媒体，只有1%的成功的可能性。最后如果涉及的企业和中共有一点关系，川普如何面对追随者？还会提名竞选总统和议员吗？这次事件挣到的钱会去用在哪里？将引发美国两党内战，做是中共最想看到的。
 
-最后，郭先生说，爆料革命战友不攻击川普总统，我们揭露真相的目的就是揭发共产党的邪恶，灭掉共产党这个邪恶的体制 。
+图片来源：apnews.com
 
-（文章只代表作者个人观点）
 
-参考来源：
+#### 编译：小红帽
 
-1.2021年10月24号大直播
+澳大利亚新南威尔士州教育部长莎拉·米切尔（Sarah Mitchell）表示，11月8日之后接种中共病毒（COVID-19）疫苗是教师的一个就业条件，政府“不会为此道歉”。
+
+“我们只需要看看在11月8日截止日期前数据向我们展示了什么，”米切尔告诉澳大利亚天空新闻。
+
+“这是11月8日之后的一个就业条件。 如果您想在学校担任教学职位，则需要接种中共病毒疫苗。这是为了保护我们学生和教职员工的健康和安全，我们不会为此道歉。”
+
+周一，新南威尔士州预计有数十万学生重返课堂，2至11年级将恢复面对面教学。
+
+新南威尔士州州长多米尼克·佩罗特（Dominic Perrottet）上周日证实，到目前为止，95%的学校教职员工都宣布他们已全面接种中共病毒疫苗。
+
+新南威尔士州教师联合会主席安吉洛·加夫列拉托斯（Angelo Gavrielatos）表示，根据这一比例，将短缺3000名教师。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：****
+**1、[Teachers being vaccinated a ‘condition of employment’ from November 8 | Sky News Australia](https://www.skynews.com.au/australia-news/coronavirus/teachers-being-vaccinated-a-condition-of-employment-from-november-8/video/6a982cc90ff1476e0d2c3e5f7af692c1)
+2、[NSW records 296 new cases as concerns raised over teacher vaccinations (9news.com.au)](https://www.9news.com.au/national/nsw-coronavirus-daily-cases-october-24-thousands-of-teachers-still-not-vaccinated-as-students-return-to-classrooms-tomorrow/b71d1444-d5b8-4640-a086-24fd5b546828)
+
+**
+*****发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
