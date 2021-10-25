@@ -2,25 +2,38 @@
 ---
 
 
-## 秘翻在线：证据确凿，参议员兰德·保罗要求拜登政府解雇福奇
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1616245/)
+## 习近平报私仇否定邓 六中全会后恐猝死于江派手中
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1616295/)
 
-####  撰稿：彩虹       
+作者：秘密翻译组-原创组 Naughty（文行)
 
-#### 责编：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-449.png)图片来源：纽约邮报
-10月24日，《新闻极限》和《国会山报》分别针对参议员兰德·保罗(Rand Paul)要求拜登政府解雇福奇的新闻进行了报道。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-根据报道，周日，保罗议员接受了HBO 和Axios的联合采访，他说：“即使（不考虑）其他原因，仅仅是因为缺乏判断力，拜登政府就应该解雇福奇。福奇可能永远不会承认撒谎，他将继续散布谣言，并试图绕过真相，掩盖真相。”
 
-在呼吁解雇福奇之前，美国国立卫生研究院（NIH）的首席副院长劳伦斯·塔巴克（Lawrence Tabak）上周给众议院能源和商业委员会的排名成员凯西·麦克莫里斯·罗杰斯（Cathy McMorris Rodgers）议员写了一封信，信中披露了有关NIH给彼得·达萨克（Peter Dasaka）的生态健康联盟拨款的新细节，指该联盟在武汉病毒学研究所进行了一项病毒增强性实验。
 
-根据这封信，未公布的数据显示，感染了一种蝙蝠冠状病毒的实验室小鼠比感染了另一种蝙蝠冠状病毒的小鼠更容易生病。
+10月22日，郭文贵先生在直播中讲述了，习近平过去十几年的执政路线，源自他成长过程中，经历的中共家族间的恩怨。习对邓小平的恨，导致他否定邓的一切路线。习执政策略的目的就是要报私仇。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-25-at-7.47.57-PM.png)
+在否定邓的同时，习一定会闭关锁国，以达到瞒天过海，掠夺江派及国内企业家海外财富的目的。现在习处理的江派大佬、私人企业家90%以上都是江浙人。
+对台湾实施“蓝金黄”超限战的全都是江派势力。90%以上的卖台贼，也都是江派。习目前的处境十分孤立。
 
-对此，保罗说：“在信中，他们承认，是的，这些病毒确实获得了功能增强，它们变得更加危险。所以他们创造了一种自然界中不存在的病毒，使其变得更加危险，这就是病毒功能性增强。现在他们试图通过说这是一个意想不到的结果来为其辩护，我不确定我是否相信这一点。想想看，你把一个未知的病毒，与另一个病毒结合起来，你就得到了一个超级病毒。你不知道它是获得了功能还是失去了功能，这就是实验的内容，但我不知道谁能争辩说这不是获得（增强）功能的研究”。
+江派安排吴征调查习家族的一举一动，安排王立科、孙立军伺机刺杀习近平。结果却是这帮人互相推诿，借机骗财。而邓家后人，全都在依赖邓小平的政治遗产，没有一个人有勇气，敢对抗习近平。
 
-**新闻来源**
+这种情况下，习近平如果效仿斯大林，采取更加残酷的手段，反而会让他安全，但习缺乏那样的政治智慧。从六中全会开完，到二十大召开期间，是习近平处境最危险的时候。因为习的一系列举措，让所有人都感到了危险，墙角效应会反逼人们对习出手，习终会被消灭。
+(本文仅代表作者观点)
 
-[Rand Paul calls for Fauci’s firing over ‘lack of judgment’](https://thehill.com/homenews/senate/578239-rand-paul-calls-for-faucis-firing-over-lack-of-judgment)
+参考链接：[2021年10月22日 文贵大直播：(4). 习的行为都是个人恩怨造成的；中共六中全会会发生什么，](https://gtv.org/video/id=6172b02683e948708d05c1b9)
 
-[Sen. Paul Calls for Fauci’s Firing: Americans ‘Very Disturbed at How Much He’s Lied’](https://www.newsmax.com/politics/anthony-fauci-rand-paul-gain-of-function/2021/10/24/id/1041785/)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Kathy文艺
+编辑：文真
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

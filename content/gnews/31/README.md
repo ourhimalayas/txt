@@ -2,63 +2,19 @@
 ---
 
 
-## 中国的未来都在由习一人决定
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1616270/)
+## 狮城快讯：巩俐放弃新加坡国籍恢复中共国国籍表忠心
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1616313/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2648.png)
-[https://gtv.org/video/id=6176262e247c5a3f908fad16](https://gtv.org/video/id=6176262e247c5a3f908fad16)
+**撰稿：小坡**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GongLiCitizenSingaporeG-AFP-420.jpg)
+据《海峡时报》的报道，由于中共国对娱乐圈的大规模清理整肃，很多加入外籍的明星都被列入到演艺黑名单，即“限籍令”，其中包括谢霆锋，巩俐等人。为了可以继续在中共国内开展演艺事业，放弃外国国籍最近成了演艺圈的热点话题。
 
-**郭文贵
-Miles Guo**
+据说上个月谢霆锋刚刚放弃了加拿大国籍，而众所周知的巩俐也是其中之一。巩俐于1996年嫁给新加坡富商黄和祥，声称是为了家人相聚方便，“年轻无知” 于2008年正式入了新加坡籍。不过，两人在2009年离婚后，巩俐也仍然维持著新加坡国籍，并未因婚姻破灭而有更改国籍打算。
 
-跟你们讲今天谈这个六中全会的时候，
-today when we talk about the Sixth Plenary Session of the Central Committee of the Communist Party of China
+这么看来，这次“重回”祖国的怀抱，并非心甘情愿，但是为了所谓响应“党和人民”的号召，巩俐还是选择了迎合中共国官方以及小粉红们的心理预期，被网友盛赞“回家就好”。
 
-六中全会是中国的未来的是北朝鲜化
-The Sixth Plenary Session of the Central Committee is the future of China’s North Koreanization
+说白了，一个国籍，一本护照本来只是一种生活方式的选择，而如今非要与“爱国”绑架在一起。中共高官和权贵家族，哪个不是手里好几本护照随便用，孟晚舟的7本护照就是最经典的例子，讽刺地是爱国粉红们只敢骂“戏子”不敢骂孟晚舟，还把她当作民族英雄，贱兮兮地喊她“华为公主”，恐怕只有这样的极权共产主义国家才会有如此荒诞愚蠢又可笑的思维逻辑。
 
-还是走向国际化，那么既然经济决定了这个以后
-or still going internationalization, so now that the economy determines it in the future
+在新中国联邦人都在憧憬着未来星际漫游，人类无国界的全新宇宙文明诞生之时，可悲的墙内民众还活在一百多年前的义和团时代，再不醒悟真的成了这个时代的牺牲品，加入新中国联邦刻不容缓！
 
-那就是北朝鲜的金氏家族权力化，还是所谓的共产党过去的九龙治水化
-That is just like the power of the Kim family in North Korea, or the so-called Communist Party’s “Nine Dragons Rule the Water” in the past
-
-不存在民主法治啊，不就这么简单吗
-There is no democracy and the rule of law choice at all, isn’t it that simple?
-
-再一个就是继承人，谁说了算的问题
-The other one is the heir, the question of who has the power
-
-没有想的不可能跟任何人讨论，不可能任何讨论
-Impossible to discuss with anyone, impossible to discuss at all
-
-一定是习说了算，那谁要想试图想跟他讨论一定会被消灭
-Xi must have the final words, then anyone who tries to discuss with him will be wiped out
-
-那消灭的方式是什么，
-What is the way to eliminate it?
-
-最好的方式对中国人很幸运的是毛泽东当年发动的文化大革命
-The best way for the Chinese is lucky to be the Cultural Revolution initiated by Mao Zedong.
-
-最坏的方式就是斯大林的时代的到来
-The worst way is the arrival of Stalin’s era in China
-
-* * *
-
-Date:10/23/2021
-原视频标题:中国的未来都在由习一人决定
-China’s future is determined by Xi alone
-原视频日期：2021/10/22
-原视频接:[https://twitter.com/se1y7cblljselva/status/1451901265026318341?s=24](https://twitter.com/se1y7cblljselva/status/1451901265026318341?s=24)
-任务编号：KC193（2648）
-视频时间段 : 0:00-1:01
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**新闻来源**

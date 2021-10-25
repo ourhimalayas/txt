@@ -2,44 +2,33 @@
 ---
 
 
-## 11 月 8 日起接种COVID-19疫苗成澳洲教师就业条件
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1615680/)
+## 受中美关系影响，苹果与宁德时代和比亚迪谈判陷入僵局
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1615769/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/54-1.jpg)[图片来源](https://websetnet.net/ja/%E3%82%A2%E3%83%83%E3%83%97%E3%83%ABicar%E3%83%AA%E3%83%AA%E3%83%BC%E3%82%B9%E6%97%A5%E3%83%87%E3%82%B6%E3%82%A4%E3%83%B3%E4%BE%A1%E6%A0%BC%E3%81%AE%E5%99%82/)
+中国经济网10月25日消息，据外媒报道,三位知情人士透露,苹果公司与中国宁德时代和比亚迪就为苹果电动汽车供应电池而进行的谈判已基本陷入停滞,此前这两家电池制造商拒绝在美国组建团队并建造仅为苹果服务的电池工厂。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/3000-scaled.jpeg)
+知情人士称,宁德时代和比亚迪已经通知苹果,无法满足苹果的要求。但据一位消息人士称,苹果公司并未放弃与宁德时代或比亚迪恢复谈判的希望。
 
+此前有消息称,苹果倾向于在其电动汽车中使用磷酸铁锂(LFP)电池。而在生产成本更低的LFP电池方面,中国电池制造商比竞争对手更先进。通常情况下,相较于使用钴和镍的更贵的锂电池,LFP电池的续航里程更短,能量密度也更低,但宁德时代和比亚迪使用了一种电池组技术提高了LFP电池的性能。
 
+宁德时代是全球最大的电动汽车电池生产商,据一位了解谈判情况的人士称,宁德时代一直不愿在美国建厂,是出于对中美紧张关系以及成本的担忧。此外,由于难以找到足够的专业人才,宁德时代也无法成立一个单独的产品开发团队,专门与苹果公司合作。而比亚迪在加州兰卡斯特已经建有一家磷酸铁锂电池工厂,该公司也拒绝新建专门为苹果供货的工厂和团队。
 
-图片来源：apnews.com
+消息人士还称,苹果方面也在做两手准备。该公司也一直在考虑日本电池制造商,并于本月派遣了一组人员前往日本。据悉,松下是苹果考虑的公司之一。
 
+苹果、比亚迪和松下均拒绝就该报道置评,宁德时代则对相关信息予以否认。“我们正在评估在北美进行本土化生产的机会和可能性。”宁德时代在给路透社的一份声明中表示,“我们拥有一支专业的团队,专门为每一位客户服务。”
 
-#### 编译：小红帽
+知情人士称苹果公司计划在2024年推出一款电动汽车,不过苹果尚未公开披露其计划。
 
-澳大利亚新南威尔士州教育部长莎拉·米切尔（Sarah Mitchell）表示，11月8日之后接种中共病毒（COVID-19）疫苗是教师的一个就业条件，政府“不会为此道歉”。
+由于苹果在科技和工业领域的实力和地位，对于全球企业而言，能够有机会进入苹果的供应链都是重大的机遇和利好。而**宁德时代、比亚迪2家中共国车载电池企业，面对进入苹果供应链的难得机会却出奇一致地表现得拖拖拉拉、犹豫不决，这就不仅仅是对经济利益的盘算，而是有对中共政治形势的考量**。
 
-“我们只需要看看在11月8日截止日期前数据向我们展示了什么，”米切尔告诉澳大利亚天空新闻。
+信息来源：
 
-“这是11月8日之后的一个就业条件。 如果您想在学校担任教学职位，则需要接种中共病毒疫苗。这是为了保护我们学生和教职员工的健康和安全，我们不会为此道歉。”
+[传苹果与中国电池生产商谈判进入僵局 欲寻找松下等日企合作](https://finance.sina.com.cn/stock/usstock/c/2021-10-22/doc-iktzscyy1171103.shtml)
 
-周一，新南威尔士州预计有数十万学生重返课堂，2至11年级将恢复面对面教学。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-新南威尔士州州长多米尼克·佩罗特（Dominic Perrottet）上周日证实，到目前为止，95%的学校教职员工都宣布他们已全面接种中共病毒疫苗。
-
-新南威尔士州教师联合会主席安吉洛·加夫列拉托斯（Angelo Gavrielatos）表示，根据这一比例，将短缺3000名教师。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：****
-**1、[Teachers being vaccinated a ‘condition of employment’ from November 8 | Sky News Australia](https://www.skynews.com.au/australia-news/coronavirus/teachers-being-vaccinated-a-condition-of-employment-from-november-8/video/6a982cc90ff1476e0d2c3e5f7af692c1)
-2、[NSW records 296 new cases as concerns raised over teacher vaccinations (9news.com.au)](https://www.9news.com.au/national/nsw-coronavirus-daily-cases-october-24-thousands-of-teachers-still-not-vaccinated-as-students-return-to-classrooms-tomorrow/b71d1444-d5b8-4640-a086-24fd5b546828)
-
-**
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
