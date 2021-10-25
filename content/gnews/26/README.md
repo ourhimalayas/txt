@@ -2,25 +2,31 @@
 ---
 
 
-## 美主流媒体掩盖[辉瑞公司]疫苗受害儿童真相
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1615421/)
+## GTV新闻访谈简报|2021年10月24日晚
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1615526/)
 
-原文采编：风云小哥 编译撰稿：文所未闻
+作者：香草山翻译部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-2.png)图为辉瑞疫苗受害儿童：麦迪
-图片来源：creativedestructionmedia
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
 
 
-据知名自媒体《标新立异》10月23日报道，美国[康卡斯特电讯公司]律师此前曾在其新闻发布的最后时刻决定，暂时放弃公开播放关于一位[辉瑞公司]实验性“新冠病毒疫苗”受害女孩真相的短片。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1024text-SC.png)
+文章仅代表作者本人观点，与Gnews无关
 
-该短片讲述一位13岁女孩麦迪，在[辉瑞公司]生产首批“新冠病毒病毒疫苗”时，自愿参加了该公司针对12-15岁儿童的该疫苗接种试验。为此，麦迪分别于2020年12月30日和2021年1月20日接种了共2剂该疫苗。但在第二次接种后的12小时内，她开始出现发烧，尿血，肌肉和神经疼痛及痉挛等重症征状；随后，在接下来的3个月内，其病情继续恶化，并出现了诸如全身抽搐，胃痉挛等更多病症。目前， 其腰部以下完全失去知觉而至今都无法行走。
+校对：Stay文苑
 
-根据“美国食品和药物管理局”及“美国疾病控制中心”相关统计数据显示，美国目前已有13,627人因接种“新冠病毒疫苗”而死亡；55,821人因接种该疫苗后染病而需入院治疗以及 623,341份关于接种该疫苗后出现的不良事件报告案例。
+编辑：Stay文苑
 
-（以上内容仅代表原文信息和作者个人观点）
+发稿：Stay文苑
 
-* * *
+视频参看：[晚GTV新闻访谈](https://gtv.org/broadcast/watch/6175fa08eadeb11f5e7a4931)
 
-校对编辑，发稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-10.png)
 
-[原文链接：](https://creativedestructionmedia.com/news/business/2021/10/23/breaking-comcast-censors-vax-injured-13-yr-old-girl-who-volunteered-for-pfizer-trial/)
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)

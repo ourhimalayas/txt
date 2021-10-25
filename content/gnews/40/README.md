@@ -2,17 +2,29 @@
 ---
 
 
-## 美台高官会晤，讨论台湾重返国际舞台
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1615229/)
+## 有声|造谣美国龙虾为新冠源头，中共水军现形
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1615323/)
 
-撰稿：西枫westca
+配音：香草山美食部 – 玫瑰园
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20210402000653.jpg)图片来源：chinatimes.com
-据《南华早报》10月24日报道，美国国务院在周日发布的一份声明中说，来自美国国务院和台湾外交部“高级代表”在周五讨论了“扩大台湾在联合国和其他国际论坛上的参与， 并允许台湾“有意义的”参加联合国的计划。
+据NBC 10月21日报导，英国牛津大学专精假消息的研究员Marcel Schliebs发现，中共外交官和数百个推特帐号，近期密集散布假消息，称新冠病毒很可能是在2019年11月，通过运往武汉海鲜市场的缅因州龙虾，从美国传到中国。
 
-声明说，“讨论的重点是支持台湾有意义地参与联合国事务的能力，并为解决全球挑战贡献其宝贵的专业知识，包括全球公共卫生、环境和气候变化、发展援助、技术标准和经济合作。”美国与会者重申了美国对台湾有意义地参与世界卫生组织和联合国气候变化框架公约的承诺，并讨论了如何强调台湾有能力在广泛的问题上做出贡献。
+这是中共最新散布的阴谋论，已被翻译成多种语言，由五百多个支持中共的推特帐号，每天上午规律地发布，其中包含一部分假账号。
 
-在中共战狼政策四处露头，加强对台湾的政治和军事压力下，在习近平欲发布演讲、纪念中共在联合国获得席位50周年前夕，美国国务院公布这个消息，无疑是向外界显示提升美国与台湾关系的信号，令中共在欲武力侵台之际，不得不三思而后行。
+美国某智库专精假消息的专家也指出，这是中共在疫情爆发后，再一次企图将新冠起源栽赃给美国，混淆视听。
 
-**新闻来源：**[US and Taiwanese officials meet to discuss ‘meaningful’ UN role for island | South China Morning Post (scmp.com)](https://www.scmp.com/news/china/politics/article/3153515/us-and-taiwanese-officials-meet-discuss-meaningful-un-role?module=perpetual_scroll&amp;pgtype=article&amp;campaign=3153515)
+中共驻英大使馆发言人依旧不承认传播假消息。但网络是有记忆的，作恶终会留下痕迹。中共今日的障眼法都会成为将来的认罪书。
+
+文字版原文：[造谣美国龙虾为新冠源头，中共水军现形](https://gnews.org/zh-hans/1611921/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

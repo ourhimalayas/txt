@@ -2,25 +2,23 @@
 ---
 
 
-## 央行发布《征信业务管理办法》 ：个人交易、社交、上网痕迹等都将纳入监管
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1615692/)
+## 中共：需要考虑能源、粮食安全等等
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1615740/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-57-1.jpg)央行发布《征信业务管理办法》 ：个人交易、社交、上网痕迹等都将纳入监管 网络图片
-据周到上海消息，央行近日发布了《征信业务管理办法》，自2022年1月1日起施行。《办法》包含信用信息采集、整理、保存、加工、提供、使用和安全等内容。央行方面表示，《办法》对依法从严加强征信监管，保障信息主体合法权益和信息安全，促进征信业市场化、法治化和科技化发展具有积极意义。
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/10/12-14.png)[图片来源](https://news.yahoo.co.jp/articles/658d38df59dc8367cae2ca46567c416943916a25/images/000)
+［北京２４日路透社］本月24日报道，中共公布了到2030年前使二氧化碳排放过峰值、2060年几乎为零的目标的措施纲要，指出减少温室气体的努力需要考虑粮食和能源安全，并呼吁有效应对向环保低碳转型相关的经济风险，以“防止过度反应，并确保安全减少二氧化碳”。
 
-《办法》还将征信替代数据应用纳入监管。包括个人的交易、社交、上网痕迹等
+中国正在发生严重的能源短缺，这可能会影响政府减少温室气体排放的努力。第26届联合国气候变化框架公约缔约方大会（COP26）将于31日在英格兰北部格拉斯哥开幕。根据官方新华社发布的一份政府文件指出，中国有必要维持“减少污染和二氧化碳、能源安全、产业供应链安全、粮食安全与人民正常生活的关系”的平衡。
 
-新闻参考链接：[https://www.163.com/dy/article/GM1VE9PF0514A42S.html](https://www.163.com/dy/article/GM1VE9PF0514A42S.html)
+中共国已经开始为即将全面爆发的粮食和能源问题“预热”，大众距离正常生活已经越来越远。
 
-* * *
+信息来源：
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+[温暖化ガス削減、食料安全保障など考慮する必要＝中国政府指針](https://news.yahoo.co.jp/articles/658d38df59dc8367cae2ca46567c416943916a25)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+(文章仅代表作者本人观点，与GNEWS无关)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

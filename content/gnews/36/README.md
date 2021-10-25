@@ -2,27 +2,40 @@
 ---
 
 
-## 有声|欧洲议会高票通过历史上首份“欧台政治合作报告”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1615306/)
+## 阿拉巴马州总检察长向拜登疫苗强制令说不
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1615402/)
 
-配音：香草山美食部 – 玫瑰园
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-10月21日，欧洲议会以580:26，压倒性通过历史上首份 “欧盟-台湾政治关系与合作”报告，呼吁欧盟全面提升与台湾的关系。台湾方面表示，这是民主的一大胜利，是台欧关系新的里程碑。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/A-9.jpg)al.com
+阿拉巴马州总检察长史蒂夫·马歇尔（Steve Marshall）表示，我将在法庭上挑战拜登的联邦-承包商（federal-contractor）疫苗强制令，以下是我的声明：
 
-该报告就欧盟与台湾关系提出了36项具体建议，包括：欧盟强化与台湾的政治及经济关系，鼓励欧盟及会员国与台湾进行包含最高层级的互动，严重关切中共对台湾的军事恫吓，启动双边投资协定谈判准备工作，将欧盟驻台办事处更名为“欧盟驻台湾办事处”，在半导体等产业进行合作等。
+阿拉巴马州总检察长
+史蒂夫·马歇尔
 
-多位议员强调：这是历史性的投票，要告诉中共“阻止民主进程的努力是徒劳的”；台湾是华人民主的典范；在中共极权主义政权越来越狂妄的时候，“我们必须采取民主攻势”。 欧洲议会发布声明称，台湾是欧盟的重要合作伙伴和民主盟友，欧盟将保护台湾的民主，中共不能单方面改变台海现状，不能违背台湾公民的意愿。
+联邦政府最近与阿拉巴马州的一些州机构和部门进行了沟通，表示它们受拜登的联邦承包商疫苗政策的约束，因此必须强制要求其雇员接种疫苗。
 
-文字版原文：[欧洲议会高票通过历史上首份“欧台政治合作报告”](https://gnews.org/zh-hans/1611948/)
+我想向阿拉巴马州人民保证，我的办公室将与这种侵犯个人自由、联邦制和分权的卑鄙行为作斗争。
 
-音频处理：喜山必胜Maverick
+我们将在法庭上挑战拜登的联邦承包商疫苗强制令，我将尽我所能，在12月8日联邦规定的最后期限之前解决这一问题。
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（签名）
+
+言简意赅的声明，马歇尔总检察长一语中的，这是侵犯自由的卑鄙行径，我们必须与之斗争。州长们、州总检察长们、州议员们，起来，向邪恶说不，否则将会有更多的无辜者遭受阴谋集团迫害。
+
+声明文字整理：
+
+ALABAMA ATTORNEY GENERAL
+
+STEVE MARSHALL
+
+The federal government has recently communicated to a number of state agencies and institutions in Alabama that they are subject to President Biden’s federal-contractor vaccine mandate and must therefore, force their employees to be vaccinated.
+
+I want to assure the people of Alabama that my office will fight this contemptible infringement upon individual liberty, federalism, and the separation of powers.
+
+We will be challenging President Bidens federal-contractor vaccine mandate in court, and I will do everything in my power to resolve this matter before the federally dictated deadline of December 8.
+
+（文章仅代表作者个人观点）
+
+原文链接：[https://twitter.com/AGSteveMarshall/status/1451701843311087617](https://twitter.com/AGSteveMarshall/status/1451701843311087617)

@@ -2,29 +2,25 @@
 ---
 
 
-## 有声|造谣美国龙虾为新冠源头，中共水军现形
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1615323/)
+## 美主流媒体掩盖[辉瑞公司]疫苗受害儿童真相
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1615421/)
 
-配音：香草山美食部 – 玫瑰园
+原文采编：风云小哥 编译撰稿：文所未闻
 
-据NBC 10月21日报导，英国牛津大学专精假消息的研究员Marcel Schliebs发现，中共外交官和数百个推特帐号，近期密集散布假消息，称新冠病毒很可能是在2019年11月，通过运往武汉海鲜市场的缅因州龙虾，从美国传到中国。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-2.png)图为辉瑞疫苗受害儿童：麦迪
+图片来源：creativedestructionmedia
 
-这是中共最新散布的阴谋论，已被翻译成多种语言，由五百多个支持中共的推特帐号，每天上午规律地发布，其中包含一部分假账号。
 
-美国某智库专精假消息的专家也指出，这是中共在疫情爆发后，再一次企图将新冠起源栽赃给美国，混淆视听。
+据知名自媒体《标新立异》10月23日报道，美国[康卡斯特电讯公司]律师此前曾在其新闻发布的最后时刻决定，暂时放弃公开播放关于一位[辉瑞公司]实验性“新冠病毒疫苗”受害女孩真相的短片。
 
-中共驻英大使馆发言人依旧不承认传播假消息。但网络是有记忆的，作恶终会留下痕迹。中共今日的障眼法都会成为将来的认罪书。
+该短片讲述一位13岁女孩麦迪，在[辉瑞公司]生产首批“新冠病毒病毒疫苗”时，自愿参加了该公司针对12-15岁儿童的该疫苗接种试验。为此，麦迪分别于2020年12月30日和2021年1月20日接种了共2剂该疫苗。但在第二次接种后的12小时内，她开始出现发烧，尿血，肌肉和神经疼痛及痉挛等重症征状；随后，在接下来的3个月内，其病情继续恶化，并出现了诸如全身抽搐，胃痉挛等更多病症。目前， 其腰部以下完全失去知觉而至今都无法行走。
 
-文字版原文：[造谣美国龙虾为新冠源头，中共水军现形](https://gnews.org/zh-hans/1611921/)
+根据“美国食品和药物管理局”及“美国疾病控制中心”相关统计数据显示，美国目前已有13,627人因接种“新冠病毒疫苗”而死亡；55,821人因接种该疫苗后染病而需入院治疗以及 623,341份关于接种该疫苗后出现的不良事件报告案例。
 
-音频处理：喜山必胜Maverick
+（以上内容仅代表原文信息和作者个人观点）
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://creativedestructionmedia.com/news/business/2021/10/23/breaking-comcast-censors-vax-injured-13-yr-old-girl-who-volunteered-for-pfizer-trial/)

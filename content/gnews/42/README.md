@@ -2,49 +2,27 @@
 ---
 
 
-## 福奇的NIH部门部分资助昆虫活吃比格犬实验
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1615144/)
+## 有声|欧洲议会高票通过历史上首份“欧台政治合作报告”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1615306/)
 
-编译：七叶之芒
+配音：香草山美食部 – 玫瑰园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-11-2.jpg)图片来自网络
+10月21日，欧洲议会以580:26，压倒性通过历史上首份 “欧盟-台湾政治关系与合作”报告，呼吁欧盟全面提升与台湾的关系。台湾方面表示，这是民主的一大胜利，是台欧关系新的里程碑。
 
-有报道称，安东尼·福奇博士所在的国家卫生研究院（NIH）部门部分资助了一项昆虫活吃小猎犬的实验，这在国会山引发了两党的愤怒。
+该报告就欧盟与台湾关系提出了36项具体建议，包括：欧盟强化与台湾的政治及经济关系，鼓励欧盟及会员国与台湾进行包含最高层级的互动，严重关切中共对台湾的军事恫吓，启动双边投资协定谈判准备工作，将欧盟驻台办事处更名为“欧盟驻台湾办事处”，在半导体等产业进行合作等。
 
-针对非营利组织“白大褂浪费项目”的一份报告，民主党和共和党人本周都签署了一封信，要求知道为什么国家过敏和传染病研究所–美国国立卫生研究院下属的27个研究所之一–部分资助一项实验，将小猎犬的头关在笼子里，而成群的饥饿沙蝇将它们活活吃掉。
+多位议员强调：这是历史性的投票，要告诉中共“阻止民主进程的努力是徒劳的”；台湾是华人民主的典范；在中共极权主义政权越来越狂妄的时候，“我们必须采取民主攻势”。 欧洲议会发布声明称，台湾是欧盟的重要合作伙伴和民主盟友，欧盟将保护台湾的民主，中共不能单方面改变台海现状，不能违背台湾公民的意愿。
 
-据《国会山报》报道，这些猎犬被感染了“致病的寄生虫，以测试一种实验性药物”。该实验发生在北非突尼斯的一个实验室里，多达44只小猎犬忍受着众议员南希-梅斯（R-S.C.）所说的“残酷”和“应受谴责的滥用纳税人资金”的行为。
+文字版原文：[欧洲议会高票通过历史上首份“欧台政治合作报告”](https://gnews.org/zh-hans/1611948/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-10-4.jpg)图片来源：Anna Moneymaker-Pool/Getty Images 摄
+音频处理：喜山必胜Maverick
 
-为了消除不间断的吠叫，小猎犬的声带也被切除了。
-
-“我们的调查人员表明，Fauci的NIH部门将375,800美元的部分拨款运到突尼斯的一个实验室，给小猎犬下药，并将它们的头锁在装满饥饿的沙蝇的网笼里，以便昆虫能将它们活活吃掉”。“白大褂浪费”项目报告中称，“他们还把小猎犬单独关在沙漠中的笼子里，连续9个晚上，把它们当作诱饵，吸引传染性沙蝇。”
-
-“白大褂浪费”项目声称，美国食品和药物管理局（FDA）不要求对狗进行药物测试。
-
-有23位议员在信件中签署了姓名。
-
-安东尼·福奇博士和美国国家过敏和传染病研究所都没有对“白大褂浪费”项目的报告做出回应。
-
-上周，NIH给众议院监督委员会排名委员James Comer（R-KY）的一封信显示，该研究所确实通过授予生态健康联盟的一笔资金，资助了武汉病毒研究所的功能增益研究。
-
-**简评：**
-
-**狗，是人类最好的朋友之一。尤其在美国，对小狗进行残酷的动物性实验，是人们普遍不能接受的。**
-
-**通过武汉病毒研究所，对病毒进行功能性增强实验；通过突尼斯实验室对小狗进行惨绝人寰的实验。这些美国政府明令禁止的实验，似乎都看到了福奇资助的影子。福奇依旧在用他的狡辩向美国乃至全世界推广着疫苗。打着科学的幌子，想要掌握话语权，而面对接种疫苗后的不良反应，乃至导致死亡的数据，却闭口不谈……**
-
-**也许这个世界上最恶毒的一种人，便是掌握着前沿科学的话语权，却做着最邪恶事情的所谓科学家们。福奇便是这种人！相信他日后一定会遭到应有的审判。**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**参考资料：**[breitbart][Report: Fauci’s NIH Division Partially Funded Insects Eating Beagles Alive](https://www.breitbart.com/politics/2021/10/23/report-faucis-nih-division-partially-funded-insects-eating-beagles-alive/)
-
-* * *
-
-*审核：Aries的星*
-*校对：信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
