@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/25/2021 2:22 AM (UTC)`
+
+10/24/2021 Miles Guo: 3 Reasons Why CCP Set up Financial Trap against Trump<br/><br/>10/24/2021 文贵直播：三个原因为什么中共给川普设金融陷阱
+![img](https://media.gettr.com/group17/getter/2021/10/25/02/22/1ff2ebaf-9b72-b9c4-a2e0-582b60f7da9f/out.jpg)
+
+---
+
 `@miles 10/24/2021 9:29 PM (UTC)`
 
 10/24/2021 Miles Guo: Bruno Wu is under criminal investigation in the US, so he and Yang Lan will end up in a more miserable way than Wang Jian. President Trump’s SPAC will end up in an absurd, comical, and catastrophic manner, and his relationship with the Whistleblowers’ Movement and GETTR will turn out to be way better than expected!<br/><br/>10/24/2021 文贵直播：吴征在美被刑事调查，他和杨澜的结局将比王健更惨；川普总统的SPAC将以荒唐、滑稽和灾难性的结果结束；川普总统跟爆料革命和盖特的关系会比我们想象得更好！<br/>
@@ -286,13 +293,6 @@ Every day is a Fashion Show, and a the world is your runway. G Fashion’s New C
 
 10/20/2021 Miles Guo: Mr. Miles Guo has sent a vital message to the Chinese entrepreneurs and their families, that the NFSC can provide all the help they need with two conditions: 1. Cooperate with local governments to expose all unrestricted warfares that the CCP is conducting around the world; 2. Work with the Whistleblowers' Movement to take down the CCP, and resolutely recognize the Declaration of the NFSC. Mr. Miles Guo warns all the institutions and governments worldwide who have invested in Communist China to protect the assets of their countries and their people, and routinely conduct legal due diligence regarding the safety and authenticity of those who have been invested in the Communist China.<br/><br/>10/20/2021 文贵直播：郭先生正告国内企业家及其家人，仅需满足两个条件，新中国联邦可给予一切帮助<br/>
 ![img](https://media.gettr.com/group32/getter/2021/10/21/06/05/87921d15-4760-eb28-b8e3-47e65f9c3158/out.jpg)
-
----
-
-`@miles 10/21/2021 3:34 AM (UTC)`
-
-10/20/2021 Miles Guo: It may be okay for entrepreneurs like Jack Ma to seek some power, but the essence of the Communist China is the evil dictatorship of the CCP - No matter who is in power, no one else is allowed to compete for power. Without eradicating the CCP’s evil system, no one can have a future<br/><br/>10/20/2021 文贵直播：马云这样的企业家图谋权利可能也无可厚非，但中共国本质是共产党的邪恶独裁，无论谁在台上都不允许他人窥视权力，不铲除中共恶魔体制，所有人都没有未来<br/>
-![img](https://media.gettr.com/group39/getter/2021/10/21/03/34/3f153533-8f1d-c707-6730-f9437a1ce823/out.jpg)
 
 ---
 
