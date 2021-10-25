@@ -2,48 +2,34 @@
 ---
 
 
-## 中共病毒是手段，疫苗才是目的是对种族有计划的谋杀
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1616620/)
+## 为深化国防合作共同应对中共，日本将给予澳大利亚军队死刑豁免权
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1616727/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/c40e99cdd32a8efd34041d753abdfd1d_副本.jpg)
-据[**2021****年10月24日 文贵大直播：与川普公司合并的SPAC公司DWAC背后的11家投资机构与中共的关系，这场交易是以共产党情报为背景进行的连环操作，涉嫌多项内幕交易和犯罪的惊天的计划，让川普总统处在极度危险之中；我们永远支持川普总统，呼吁全世界不要被共产党利用**](https://gtv.org/video/id=617551cfeadeb11f5e79f5d5)时间点2：33：37——
+撰稿：东京樱花团/喜马拉雅的微尘
 
-**郭文贵先生：**我可以告诉大家，我可以负责任告诉大家，你在看我一周前、两周前、三周前所有的疫苗说的事情。病毒不是目的，病毒是手段，疫苗是真正的这场灾难的目的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/为深化国防合作共同应对中共.png)[图片来源](https://www.voachinese.com/a/Japan-launches-first-joint-military-drill-with-US-France-20210511/5886647.html)
 
-七哥2020年1月2号、2020年2月2号我都在直播中说过，这场灾难共产党所有这个所谓病毒绝对就是生化病毒，我再重申一遍：来自中国共产党的生化病毒，不是中国人的，是有意识的长期的积累。
+南华早报10月24日消息，东京即将同意在[日本](https://www.scmp.com/topics/japan?module=inline&amp;pgtype=article)接受训练而被判犯有严重罪行的[澳大利亚](https://www.scmp.com/topics/australia?module=inline&amp;pgtype=article)军队不会面临死刑。该决定将消除两国国防合作协议谈判中的最后一个症结。
 
-这是1969年、1970年在美国已经研发成熟的冠状病毒生化武器，后来被共产党蓝金黄美国，由在美国学习，和美国有人出卖美国技术给了中共。中共把它要尝试用在香港运动和美国到武汉的军人运动会上，就是要释放病毒，而且释放病毒要停止香港运动，对打台湾、制造国际恐怖、有计划地进行它的全人类的和黑暗势力统治人类的整个计划。
+澳大利亚国防部发言人证实，两国正在“继续就互惠准入协议进行谈判”，但拒绝就正在谈判的方面发表评论。发言人说：“该协议将有利于澳大利亚国防军和日本自卫队深化合作，共同维护和促进一个自由、开放、稳定和繁荣的印太地区。”
 
-病毒制造恐慌、死亡、经济萎软，然后把供应链全部打断，同时把世界上金融家希望的所有的养老基金不能兑现的、挪用的，全部老人死掉，金融界认为多余的还不了的债，然后全都不用还，全世界的政治格局，由于黑暗势力和他们之间的合作，只认可他们能同流合污、共同上过床、共同扛过枪，未来还能共同嫖娼的这些所谓政客们。
+东京和堪培拉已就互惠准入协议磋商近六年时间。日本和澳大利亚作为美日印澳“四国协议”成员，一再强调他们对“自由和开放的印度-太平洋”的承诺，以应对中共在印太地区的活动和威胁。目前日澳双方，已经开展了联合海军演习，并且互派军队到彼此领土上进行训练，以熟悉当地情况和增强军队之间的了解。
 
-那么这些统治是什么呢？首先是辉瑞制药、中国的科兴制药、中国的国药，还有瑞士几大制药厂，全世界最大的药厂和全世界的大概200万个专利在不超过10个家族控制着。
+由于日本司法上仍保留死刑，堪培拉一直不愿派遣地面部队到日本进行训练。而澳大利亚已于1985年废除了死刑。
 
-其中体现的手段，全美国的所有媒体在四个半家族控制着，我说这话，我都负法律责任。谁不服谁来告我，谁不告我谁是孙子，全美国的媒体，四个半家族，全人类的社交媒体就两个半家族控制。全世界的财富是1%的人拥有和90%人同样比例的财富。
+去年，在澳大利亚总理斯科特·莫里森和日本当时的领导人菅义伟在东京会面后，澳大利亚广播公司表示，两国政府已同意建立一种机制，以逐案解决问题。该公司表示，该协议的全部细节尚未披露。
 
-而且这一次对种族是有计划地谋杀，现在可能最惨的就可能是对犹太人，然后最惨的很有可能就是加拿大，然后就是美国人，那么这次打病毒中招最厉害的是什么？——律师、会计师、明星、运动员、国家公务员。
+鉴于日本政府的该决定相当于给予澳大利亚军队与美国军队类似的域外法权，恐在日本国内也将引起部分民众反对。
 
-这些人被干掉以后正好解决了现在人类太聪明、太专业、都追求法治民主自由的人类，没有人类的没有律师、没有会计师、没有医生、没有年轻的政治家就剩下了中南坑那些老杂毛，还剩下了今天你看到的加拿大、日本、以色列这些疯狂的、完全没有末日的，完全没有末日感，也没有未来的这帮流氓政客。大家看明白了吗？这就是结局，所以说疫苗灾难、疫苗大屠杀、疫苗的次生灾难，这才是真正的最核心的。
+当前，中共攻打台湾突破第一岛链，主导印太的野心和疯狂已经暴露无遗。日本新首相和新内阁在上台不足一个月的时间，先已就深化日韩、美日韩合作作出明确表态，现又通过作出司法让步来深化日澳国防合作，进一步强化“四国协议”关系，防备和针对中共的态度已经十分明确。
 
-（以下暂略）
+信息来源：
 
-撰稿：喜马拉雅的肉夹馍；
+[Japan on brink of granting death penalty immunity to Australian troops](https://www.scmp.com/week-asia/politics/article/3153255/japan-brink-granting-australian-troops-immunity-death-penalty?module=AI_Recommended_for_you_In-house&amp;pgtype=homepage)
 
-审核：喜马拉雅的馍夹肉；
+（免责声明：文章仅代表作者本人观点，与GNEWS无关）
 
-校对：Maarago；
+*校对：东京樱花团/知了知了
+发布：东京樱花团/老黑*
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
