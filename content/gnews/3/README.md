@@ -2,17 +2,21 @@
 ---
 
 
-## 土耳其：大使被驱逐后里拉崩盘
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1616154/)
+## 雅虎也离开了苹果数字商店
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1616180/)
 
 翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10251.jpg)图片来自alamy.com
-10 月 25 日 — 在土耳其总统雷杰普·塔伊普·埃尔多安 (Recep Tayyip Erdogan) 宣布下令驱逐加拿大、法国、芬兰、丹麦、德国、荷兰、新西兰、挪威、瑞典和美国在内的 10 位西方驻土耳其大使后，土耳其里拉再次创下负面记录。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10254.jpg)图片来自m.kchuhai
+中共国互联网用户失去了他们能够接收来自世界各地未经审查的新闻的最后渠道之一：苹果删除了 Yahoo! Finance ，它发布来自国际媒体的新闻，其中包括一些媒体，如路透社和彭博社。现在它在中共国被屏蔽，因为这违背中共国的审查机制从而激怒了当局，现在政府要求苹果公司将其关闭。
 
-土耳其本国货币一天贬值超过2%，突破1美元兑9.80土耳其里拉和1欧元兑11.40里拉的关口。里拉开市时创下最新的负面记录，据路透社援引消息人士称，土耳其国有银行的贷款利息预计将削减 16%，银行将其参考利率降低 200 个基点。
+从纽约时报到 BBC ，中共国已经屏蔽报纸和电视多年。它已经禁止了所有主要的社交媒体平台：Facebook、谷歌和推特。苹果公司已经在 2019 年从其 Quartz 平台中淘汰了一个关于习近平政府信息的网站。看看苹果的生产和销售数据，就可以很容易地解释史蒂夫乔布斯创立的集团在中共面前的妥协，因为它的产品主要在中共国制造，中共国市场是其 iPhone 的全球第二大市场，仅次于美国。
+
+这个亚洲大国购买的手机比苹果在整个欧洲的总和还要多，而中共国占硅谷集团营业额的五分之一。苹果公司一直坚持认为它必须遵守其运营所在国家/地区的法律，即使这个国家限制公民的自由。
+
+最近几周，苹果公司已经因为删除了九个销售宗教资料的应用程序而受到严厉批评，其中包括古兰经和橄榄树圣经，但苹果没有解释其原因。
 
 免责申明：本文只代表译者观点，与Gnews无关
 
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/10/25/turchia-crollo-lira-dopo-lespulsione-degli-ambasciatori\_05e44037-375d-4160-9689-8541ee427a01.html](https://www.ansa.it/sito/notizie/topnews/2021/10/25/turchia-crollo-lira-dopo-lespulsione-degli-ambasciatori_05e44037-375d-4160-9689-8541ee427a01.html)
+原文链接：[https://www.corriere.it/america-cina/2021/10/22/isola-stretta-le-due-superpotenze-f9a95680-330f-11ec-a09a-b9f5a5e6bd67.shtml](https://www.corriere.it/america-cina/2021/10/22/isola-stretta-le-due-superpotenze-f9a95680-330f-11ec-a09a-b9f5a5e6bd67.shtml)
 
 责任编辑/发布：意大利达芬奇农场   萧亦

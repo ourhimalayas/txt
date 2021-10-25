@@ -2,45 +2,22 @@
 ---
 
 
-## 福奇国家卫生院官网偷偷将“功能增强”内容删除
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1615939/)
+## “紧急状态”是中共释放的中共病毒疫情加重信号
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1616000/)
 
-信息采集：guocamole(文金欠)
-作者：纽约香草山农场 – 童谣
+#### 翻译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-93.jpg)图片来源：网络截图
+零对冲网10月24日报道，任何人如果认为中共病毒疫情正在消退，疫情不会被用来搞万亿美元甚至更多的刺激计划，那么将会经历缓慢痛苦的死亡，上个月，美国的中共病毒感染数明显下降，住院病人和死亡数均明显下降，这个现象使得上周美国银行发出“随着更具传染性的德尔塔变种病毒占主导下的疫情，我们是不是在冬天更难过？看起来可能不是。”这是摩根大通策略师马可·克莱诺维奇10月6日宣称的疫情将要终结的论调。唉，没那么快啊！
 
+上周五，彭博社首次发出“新一波”疫情的警告。指出英国在经过19个月的努力抵挡中共病毒以确保工作机会和正常商业，现在随着冬天的到来，问题越来越多。这个病毒传播很快，就在经济开始回暖时逆流而来。
 
+英国的病例相比其他欧洲国家而言正在加速增加，死亡病例呈现自三月份以来的高峰，英国政府否认他们正在考虑新的封城计划，同时经济增长也在放慢脚步，通货膨胀达到高潮，英国银行预计不久将调高利率，每个家庭都在面临更高的生活支出危机。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+除了英国，中共国的经济也在快速萎缩，能源危机导致商品价格上涨，将使接下来的几个月的生活物价指数达到历史新高。世界第二大经济体将要面临更大的危险，据布隆伯格报道，一个中共国的卫生官员说该国的新感染病例近日明显增加，受到疫情影响的区域还会进一步扩大。
 
+中共国周六报告有26例新确诊病例，其中7例在内蒙古，6例在甘肃，6例在宁夏，4例在北京，1例在河北，1例在湖南，1例在上海。另外有4例无症状感染分别在湖南和云南。
 
+中共国的疫情加上能源危机将会导致工厂停工，结果将会造成供应链短缺，这下拜登政府将不会责怪“要求太多”而是中共国供应不足。但有一点是肯定的：这个冬天的节日东西将会更少而价格将会更高。
 
-据10月23日Red Voice Media发布的视频显示，福奇领导的国家卫生院（NIH），在承认资助武汉进行“功能增强”实验后，把“功能增强”的内容从其官网中删除。
-
-在过去的几天里，至少从2021年10月19日起，美国国家卫生研究院已经完全改变了 他们对潜在大流行病原体“功能增强”研究的定义和表述。在当前的网站中，只能看到“潜在大流行病原体”、“ePPP研究和监督”等内容，而对比19日之前的网站页面，他们完全删除了“功能增强”这个词汇。也删除了有关 美国政府暂停对“功能增强”研究进行资助的部分。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-136.jpg)
-参考链接：
-[Fauci’s NIH Removes ‘Gain of Function’ From Website AFTER Admitting They Funded It In Wuhan \[VIDEOS\]](https://www.redvoicemedia.com/2021/10/faucis-nih-removes-gain-of-function-from-website-after-admitting-they-funded-it-in-wuhan-videos/)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：童谣
-编辑：程万里
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+新闻来源： [“Emergency Mode” – China Warns Covid Outbreak To Worsen In Coming Days](https://www.zerohedge.com/markets/emergency-mode-china-warns-covid-outbreak-worsen-coming-days)
