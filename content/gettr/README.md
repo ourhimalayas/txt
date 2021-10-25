@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/25/2021 2:38 PM (UTC)`
+
+10月24号：绝密绝密绝密．习近平在共产党的六中全会前的．五国秘密外访，说明了什么？有什么样的内外政治目的？
+![img](https://media.gettr.com/group3/getter/2021/10/25/14/38/a35cd0bc-ee03-a6b6-019e-9daa6de1ac5e/out.jpg)
+
+---
+
 `@miles 10/25/2021 7:13 AM (UTC)`
 
 10/24/2021 Miles Guo: The CCP virus is the means, while the COVID vaccine disaster is the real goal; the CCP is helping the evil forces to implement their plans of global domination; a handful of families are controlling the world's wealth, as well as those pharmaceutical companies and media outlets; the COVID vaccine is the tool for a planned global genocide, and the vaccine disaster has not yet begun!<br/><br/>10/24/2021 文贵直播：中共病毒是手段，而疫苗灾难才是真正目的；中共正在帮黑暗势力推进统治全球的计划；全世界财富、制药和媒体都被极少数家族控制着；疫苗是有计划的种族大屠杀，而疫苗灾难仍尚未开始！<br/>
@@ -285,13 +292,6 @@ Transportation solutions provider Giga Energy Inc is going public through a merg
 
 文贵大直播 六中全会定调明年二十大   大企业家境房地产大事   谁操纵股票大鳄割韭菜   社交媒体变化盖特在腾飞
 ![img](https://media.gettr.com/group36/origin/2021/10/22/12/d8eb5ca1-aeac-d62e-b1c1-c0abd271f8f9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 10/22/2021 12:52 AM (UTC)`
-
-10/21/2021 Miles Guo’s GETTR: Jack Ma is in a very bad situation, and his ambitions won’t be fulfilled; With the world’s economy going down and the outbreak of the COVID vaccine disaster plus the soaring prices due to excessive printing of money, no one will trust fiat currencies anymore. So, what type of currency really belongs to you? Although we‘re in a great era, please make sure to prevent the CCP virus and don’t get the COVID jabs!<br/><br/>10/21/2021 文贵盖特：马云处境很惨，他的野心将无法实现；随着世界经济下滑和疫苗灾难的爆发，疯狂印钞导致物价飞涨，无人再信法币，什么样的钱才属于你？我们虽处在一个伟大的时代，但请大家防病毒、不打疫苗！<br/>
-![img](https://media.gettr.com/group15/getter/2021/10/22/00/52/55aecaef-2107-2043-260f-da5a7bf34eb9/out.jpg)
 
 ---
 
