@@ -2,10 +2,25 @@
 ---
 
 
-## DWAC的11个合格机构买家或机构认可投资者
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1614568/)
+## 土耳其开始从美国采购F-16战机
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1614852/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-130-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/2-113-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0003-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0004-1-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0005-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0006-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0007-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0008-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0009-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/0010-scaled.jpg)
+俄罗斯莫斯科喀秋莎农场 GVBG伊万
 
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/F-2.jpg)currentnewnews.com
+美东时间10月24日消息，土耳其国防部长胡卢西∙阿卡尔表示，“土耳其已开始从美国购买F-16战斗机。”
 
-[全文](https://assets.gnews.org/wp-content/uploads/2021/10/11-investors-to-Digital-World-.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/10/11-investors-to-Digital-World-.pdf)
+阿卡尔称，“采购F-16的技术工作已经开始，我们正在跟进。土耳其国防力量的加强也意味着北约的加强”。
+
+安卡拉最初向美国订购了100多架新一代战斗机F-35，但在土耳其采购俄罗斯S-400“凯旋”防空系统后，华盛顿拒绝出售飞机。该国以25亿美元收购了该系统的四个部门，并于2017年12月达成协议。
+
+美国多次对土耳其与俄罗斯的交易表示不满。2020年12月，华盛顿对土耳其国防工业局及其负责人伊斯梅尔·德米尔购买S-400实施制裁。
+
+2021年10月中旬，土耳其总统埃尔多安表示，华盛顿建议土耳其购买F-16战斗机作为对F-35采购计划投资的补偿。据他说，土耳其为美国拒绝交付的飞机支付了14亿美元，提议用这笔钱从美国购买新的F-16，并对土耳其现有的F-16进行现代化改造。
+
+（文章仅代表作者个人观点）
+
+参考链接：
+
+[https://www.rbc.ru/rbcfreenews/6173e0a09a7947059d2fcf50](https://www.rbc.ru/rbcfreenews/6173e0a09a7947059d2fcf50)

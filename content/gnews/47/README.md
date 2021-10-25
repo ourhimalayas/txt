@@ -2,34 +2,25 @@
 ---
 
 
-## 文贵爆料（10/24）：吴征操纵了川普社媒公司与 DWAC 的合并上市
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1614788/)
+## 文贵爆料24/10：中共连环设套川普，DWAC涉嫌多项内幕交易和犯罪
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1614909/)
 
-#### 撰稿：萌萌的朋克（秘翻 Gnews 原创组）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-24-at-11.20.23-AM.png)
-郭文贵先生在2021年10月24日的大直播中爆料，2021年9月2日才上市的数码世界（Digital World Acquisition Corp./DWAC）——一家特殊目的并购公司（Special Purpose Acquisition Company/SPAC）——自本周一（20月18日）交易开始活跃，但交易量也不过 1300 手左右（10 股/手），收盘价不到 10 美金/股，周二和周三分别为 40000 多手和 60000 多手，放量有限。而在川普（Donald Trump）于周三宣布川普媒体与技术集团（Trump Media and Technology Group/TMTG）将与 DWAC 合并，并会创建一个全新的社交媒体平台 TRUTH Social 后，DWAC 股价一飞冲天，周四交易量猛增至 40 多万手，收盘价较前一交易日狂飙356.83%！周五交易手数更是突破了 60 万，盘中一度冲至 174 美元/股，最终收涨 107.03%，报收 94.2 美元/股。更加诡异的是，收市后两小时，DWAC 的场外交易价格已狂泻至 45 美元/股。
+撰稿：Skagen【㊙️翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/川吴关系图.png)
+郭文贵先生在2021年10月24日的大直播揭露与川普公司合并的空壳公司DWAC背后的11家投资机构与中共的关系，这场交易是以共产党情报为背景进行的连环操作，涉嫌多项内幕交易和犯罪的惊天的计划，让川普总统处在极度危险之中。
 
-这顿猛如虎的操作背后，究竟都有哪些公司的参与？郭先生给出了答案——11 家与吴征有关的公司（其中8家完全由中共控制），并在直播中展示了这些公司的[文件](https://gnews.org/zh-hans/1614568/)。它们分别是：
+DWAC这家公司就是来自吴征，其股东包括姓李的中共政协委员和中共情报企业运鸿公司。美方的合作者是Samuel Nunberg(川普的政治顾问，后因犯罪被调查，是遣返郭文贵的重要人物)、DWAC的总裁Patrick Orlando、和吴征关系密切的前FBI高管Frank （联合PAG告郭文贵和GTV信息泄密等都与他有关）、PAG创始人Christopher Gradel，这波人同时出现，是共产党的全面操作。
 
-1. 拉德克里夫资本管理有限公司（Radcliffe Capital Management, L.P.）
-2. 迈泰奥拉资本合伙⼈有限责任公司（Meteora Capital Partners, LP/Glazer Capital LLC 的⼦公司）
-3. Castle Greek Strategies (以及与 Castle Greek 有关的成分基金)
-4. The K2 Principal Fund L.P.
-5. Context Partners Master Fund LP
-6. BoothBay Absolute Return Strategies, LP (或其子公司 Boothbay Diversified Alpha Master Fund Management LLC)
-7. 由少林资本管理有限公司（Shaolin Capital Management, LLC）管理的投资基金和账号
-8. 哈德逊湾基⾦有限公司（Hudson Bay Master Fund Ltd.）及/或其附属公司
-9. 萨巴资本旗舰基金（Saba Capital Master Capital Fund, Ltd.），萨巴资本第二旗舰基金（Saba Capital Master Capital Fund II, LP） 和萨巴资本 SPAC 机遇有限公司（Saba Capital SPAC Opportunities, Ltd.）
-10. D. E. Shaw Valence Portfolios, L.L.C.
-11. Yakira Capital Management, Inc
+第一，核心的原因是中共阻止川普加入GETTR，从而让川普丧失未来的大选。加入盖特就意味着川普一定会赢得2022中期选举，或成为未来的共和党参众两院的发言人。2022川普赢，意味着2024年川普回白宫基本定局。
 
+第二，股市绝对不能有内幕交易，只要有内部交易就是刑事罪，DWAC上市后的交易几乎都在十一家基金里边运作。这种内部交易操纵市场肯定会受到SEC调查，怀疑内线交易，怀疑操作市场，川普总统就会被刑事调查，终生将无法再参与政治选举。
 
-郭先生表示，这些公司大手笔买进卖出，完全是内幕交易和股市操纵，与抢劫无异，其中涉及的数据、文件造假更将使川普面临巨大的刑事、政治风险，而这一切都是出于中共对盖特、对爆料革命的恐惧。
+第三，现在还不知道川普在DWAC的确切股份，川普如拥有DWAC90%股份，就有100%责任，就算只有25%股份，也会成为最重要被告者。这十一家基金公司卖掉2800多万股DWAC股票，即兑出2.96亿美元，提前放在了川普信托基金。DWAC公开上市后，成交量突然放大，股价波动异常，MAGA投资者大量追随，公司的市值已经炒作到了100多亿美元，周五休市的时候市值则只有3.8亿美元，创下了美国空壳公司吸走资金最快记录，实际就是被中共的企业如运鸿的、吴征的、马云的公司洗走了50亿-80亿美元。川普总统必须面对MAGA的所有投资者，如涉及的企业和中共有关系，川普如何面对追随者？还会被提名竞选总统和议员吗？民主党和共和党内反川的人会追踪挣到的钱会去向哪里？这将引发美国两党激战，这是中共最想看到的。
 
-DWAC 的大股东瑞寰资本（Arc Capital）背后是吴征、杨澜控制的集兆嘉（Giga Energy），及其它中共政治局委员的家属，都是中共的情报机器。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-25-010229.jpg)
-班农前手下、帮助吴征在弗罗里达游说遣返郭先生的塞缪尔·纳恩伯格（Samuel Nunberg）， 运鸿国际 CEO 及 DWAC CEO 帕特里克·奥兰多（Patrick Orlando），前 FBI 高管、郭先生前安保公司 T&M 合伙人、吴征多家公司的合伙人理查德·弗兰克尔（Richard Frankel）和太平联盟（PAG）联合创始人高天乐（Chris Gradel）则是参与这场洗劫美国人财富的惊天骗局的“美方代表”，他们也全部参与了对郭先生的各种缠讼，换言之，截至目前，郭先生所有官司的幕后黑手都是吴征。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/集兆嘉部分重要股东.png)
-然而，吴征怕是做梦都没想到，FBI 2019 年就已经启动了对他的刑事调查。
+郭先生提醒爆料革命战友不攻击川普总统，我们揭露真相的目的是揭发共产党的邪恶。我们只在乎两样事，第一跟我们灭共有关系，这些人怕盖特，才有了这场惊天骗取美国人的钱的荒唐游戏。同时让世界知道共产党在美国骗钱是用多么疯狂的招数，多么恐惧川普总统，我们要让美国知道共产党邪恶和真正目的。
 
-（本文仅代表作者个人观点）
+（文章只代表作者个人观点）
+
+参考来源：
+
+1.2021年10月24号大直播
