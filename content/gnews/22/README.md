@@ -2,46 +2,49 @@
 ---
 
 
-## 在公检法的那些日子
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1615724/)
+## 全新社交媒体GETTR不会将用户关进“数字监狱”
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1615832/)
 
-作者：纽约香草山福音部 – Dogflight
+#### 编译报道：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan1-7.jpg)**图片来源：Sky News**
+10月24日，澳大利亚天空新闻“局外人”栏目采访盖特（GETTR）首席执行官杰森·米勒。这位唐纳德·川普的前顾问说，盖特是一款全新言论自由的社交媒体应用，我们的用户不会因为在政治问题上说出自己的想法而被“关进数字监狱”。
 
+米勒先生告诉天空新闻：“我们的独特之处在于，第一，我们不会因为任何人的政治信仰，而取消或审查或取消平台（资格）或将其算法化。
 
+“与此同时，我们也有一个积极和强大的修改政策，为了使这两者相辅相成，我们也确保平台不出现非法内容。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+“例如，你不能用身体伤害（自残）来威胁别人，或者你不能使用种族或宗教亵渎的字眼……我们确保监控（平台）环境，让使用者感到安全。”
 
+米勒先生说，自7月4日推出以来，这款应用程序“像火箭一样起飞”，已经拥有近300万用户。
 
+他说：“我们的美国客户群约占我们整个全球客户群的47%，美国以外的客户群占53%，所以盖特确实已成为一个全球平台。”
 
-还有几天我将告別在法律服务中心服务的日子，今天依然有新的死者家属前来寻求法律援助。在这些日子里，我目睹了太多的死者家属前来咨询，死者们死亡的特征都是猝死，我个人认为死者们都有可能接种了疫苗。死者的家属们却不知道这有可能是疫苗造成他们的亲人逝去的，家属们前来咨询的目的都是认为死者是死于工伤的，认为政府能主持公道，为死者讨回应得的公道。在我这个清醒的人眼里，这显得既可悲又可恨。我希望神擦去他们一切的眼泪，不再有死亡，也不再有悲哀、哭号、疼痛，因为以前的事都过去了。
+当天，米勒先生同步在盖特留言：
 
+今天，很高兴加入澳大利亚天空新闻网的“局外人”节目!
 
+哇！新的更新：盖特人数与川普总统上周宣布他的新公司（成立）之前相比，现在注册人数继续增加一倍多。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20211025.jpg)[图片来源](https://cdn.trt.net.tr/images/xlarge/rectangle/0195/2d9b/8472/60f3e8a244f1b.jpg?time=1634650647)
+我对澳大利亚（用户）的预测？
 
+看看今天的新注册（人数）领跑者：
 
+美国：37%，澳大利亚：20%；巴西：15%。
 
-家属们来到这里，表情上都显得有深沉的打击，眼泪都咽不下。昨天的丈夫、父亲和儿子还能说说笑笑，怎么今天就像冷冷的冰雨一样……看着家属们一脸的茫然，不知所措，我真想问他们一个问题：“死者是不是已经接种了新冠疫苗……”可我放弃了，在没有充分的证据前，在墙内，在借口中，我没有勇气说出口。我感觉自己像彼得不认主一样。
+在过去24小时内，盖特在澳大利亚的App Store上连续跃升了109个位置！！！
 
-我与提供援助律师交流过，他们认为每年都有这种情况，只是今年不知为什么显得多一些案件。当我对他们说出疫苗的真相，他们都觉得匪夷所思，不敢相信一个政府会这样对待自己的国民，也对我所说的半信半疑。当然，在没有充分的证据前，律师是不可能相信任何一个人所说的，也许在天亮前不可能有这种证据。
+我们开工吧！！！
 
-我就像一个旁人一样见证著这些事的发生，可我又无力去改变。我深知这些有良知的律师在共匪的法律框架下，也是充分展现著人性的关怀，展现著自己的专业，用他们自己的良知和专业为死者家属讨得应得的权益。在这些日子里，我唯一感到欣慰的是我说服了一些打了新冠疫苗的律师下了单，买了青蒿素。也许他们能感受到真光，也许他们能吃下解药，继续用他们的良知和专业服务中国人，也许我们能再一次在七芒星旗下相会。愿神怜悯他们，保守他们，阿门！
+（以上仅代表作者个人观点，与Gnews平台无关）
 
-（本文仅代表作者个人观点）
+参考链接：
 
+1、[New free speech app GETTR won’t put users in ‘digital jail’ for speaking their minds | Sky News Australia](https://www.skynews.com.au/opinion/outsiders/new-free-speech-app-gettr-wont-put-users-in-digital-jail-for-speaking-their-minds/video/bb3cc4507e39c15cce065758348f6fc3)
 
+2、[Jason Miller on GETTR](https://gettr.com/user/jasonmillerindc)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct.jpg)
-
-
-
-编辑/校对/发稿：武裝的羔羊
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**发布：文泓更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+﻿

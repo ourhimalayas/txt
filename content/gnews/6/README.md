@@ -2,10 +2,11 @@
 ---
 
 
-## 蓬佩奥国务卿谈中共威胁和中共病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1615875/)
+## 福奇国家卫生院官网偷偷将“功能增强”内容删除
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1615939/)
 
-作者：日本方舟农场 Andy5
+信息采集：guocamole(文金欠)
+作者：纽约香草山农场 – 童谣
 
 
 
@@ -13,20 +14,19 @@
 
 
 
-美前国务卿蓬佩奥在10月22日接受福克斯采访时谈到，中共带来的挑战不是竞争，而是中共完全毫无底线的行为，美国必须明白这不是所谓的激烈竞争。并希望拜登政府能够延续超音速武器和网络安全上的建设。
+据10月23日Red Voice Media发布的视频显示，福奇领导的国家卫生院（NIH），在承认资助武汉进行“功能增强”实验后，把“功能增强”的内容从其官网中删除。
 
-对于中共病毒，蓬佩奥国务卿说，美国很多政府官员包括蝠奇都在撒谎，同时明确了两个事实：1，病毒来自武汉的实验室，2，中共在这两年的时间中还在继续掩盖真相。目前全世界400万人从地球上消失就是共产党所做的恶。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-117.jpg)
-同时，蓬佩奥明确指出WHO也同样该被追责，美国不该重返WHO，以及共产党不能被允许在世界上横冲直撞，更不该加入任何国际组织。尤其是接下来的冬奥会，根本就不该让这种肆意散播病毒、践踏人权的政府举办。
-
+在过去的几天里，至少从2021年10月19日起，美国国家卫生研究院已经完全改变了 他们对潜在大流行病原体“功能增强”研究的定义和表述。在当前的网站中，只能看到“潜在大流行病原体”、“ePPP研究和监督”等内容，而对比19日之前的网站页面，他们完全删除了“功能增强”这个词汇。也删除了有关 美国政府暂停对“功能增强”研究进行资助的部分。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-136.jpg)
 参考链接：
-[@AndySaiKai：20211019四星將軍Keane接受Maria採訪（七哥剛說美國可以3分鐘內打掉CCP軍隊之後）](https://gettr.com/post/pelkap381b)
+[Fauci’s NIH Removes ‘Gain of Function’ From Website AFTER Admitting They Funded It In Wuhan \[VIDEOS\]](https://www.redvoicemedia.com/2021/10/faucis-nih-removes-gain-of-function-from-website-after-admitting-they-funded-it-in-wuhan-videos/)
 
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-总编/编辑：童谣
+总编：童谣
+编辑：程万里
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

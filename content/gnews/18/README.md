@@ -2,41 +2,42 @@
 ---
 
 
-## 疫苗加强剂在澳大利亚即将获得批准
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1615762/)
+## 反对强制令的年轻人说：政府没有权利强制我们做任何我们不想做的事情
+` 加拿大多伦多枫叶农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1615852/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+Covid 19，大流行，已经结束了，我们不再关心了，想要疫苗的人，他们已经得到了，不想要疫苗的人，我们还是得不到。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/COVID-19-vaccine-booster_iStock-1334441038_2021-08_Hero_1336x614.jpg)
+一切都不会改变，我不会等待Fauci博士或Joe Biden或WHO的许可，你不能统治我，我不是你的臣民，我是一个自由国家的自由公民，你没有权利告诉我该做什么。
+
+在这个国家，我们人民掌握着权力，政府没有权力要求我做任何事情，任何雇主也没有权力。
+
+你看，你可以整天强制要求别人做什么，我们不在乎，我们会把整个事情关闭，你想保持经济运行？ 你最好不要强制要求注射疫苗，你想保持你的私人企业开张？ 你最好不要强制要求注射疫苗，用50%的员工经营企业有什么乐趣？
+
+因为人们已经站起来了，他们已经厌倦了被那些无权告诉他们该做什么的人所左右。
+我们正在夺回我们的国家。不管你提出什么样的任务，我们都会无视它。
+
+你们可以拿着你们的任务，你们的疫苗，你们的口罩，你们的护照，你们可以把它们都塞进你们的集体屁眼里，因为我们不在乎。
+
+文字听写翻译：Kent
+
+视频字幕：Kent
+
+编辑/发稿：Kent
+
+发布：风云小哥
 
 
+> *免责声明：尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。*
 
-图片来源：ncoa.org
 
+* * *
 
-#### 编译：小红帽
+更多加拿大枫叶农场的频道，请关注：
 
-澳大利亚民众在接种第二剂中共病毒（ COVID-19）疫苗后六个月就可以开始接种疫苗加强剂。
+- [GTV: 喜马拉雅加拿大多伦多枫叶农场](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
+- [GTV: 加拿大枫叶农场蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
+- [GTV: 多伦多枫叶财经频道](https://gtv.org/user/5f359954313eaf1e3716cfc1)
+- [喜马拉雅加拿大多伦多枫叶农场discord](https://discord.gg/Cpz33sS)
+- [加拿大多伦多枫叶农场 on GETTR](https://gettr.com/user/torontofarmcn)
 
-澳大利亚疫苗推广负责人约翰·弗里温（John Frewen）表示，该国的疫苗咨询小组将很快公布有关加强剂的建议。
-
-“我们现在只是在等待最终的医疗建议，”弗里温周一告诉《九号台》（Nine Network）。“我们预计他们会建议人们在6至12个月之间考虑接种加强剂。辉瑞（Pfizer）和 莫德纳（Moderna）等 mRNA 疫苗将主要用于加强剂的接种。”
-
-在全国范围内，73%的16岁及以上符合条件的人已经完全接种了疫苗，而近87%的人已经接种了第一剂疫苗。
-
-国家免疫研究和监测中心主任克里斯汀·马卡尼（Kristine Macartney）教授告诉澳大利亚广播公司（ABC）：“这就是大多数国家现在已经采取的做法”。
-
-一旦加强剂获得批准，从事老年护理、残疾护理和一线卫生工作者的澳大利亚人将成为首批接种强化剂的人。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Approval for virus booster shots imminent (msn.com)](https://www.msn.com/en-au/news/australia/approval-for-virus-booster-shots-imminent/ar-AAPTXXL?ocid=msedgntphdr&amp;pfr=1)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_MPL_banner.png)

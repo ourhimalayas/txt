@@ -2,29 +2,29 @@
 ---
 
 
-## 有声|造谣美国龙虾为新冠源头，中共水军现形
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1615323/)
+## 中共国5G基站建设放缓，日本零部件企业转向欧美
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1615377/)
 
-配音：香草山美食部 – 玫瑰园
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/12-13.png)[图片来源](https://www.8kcine.com/1949.html)
+日经新闻网10月22日消息，由于中共5G基站建设正在放缓，住友电气工业等日本零部件厂商将增加欧美的开发人员，推进拓展欧美市场。
 
-据NBC 10月21日报导，英国牛津大学专精假消息的研究员Marcel Schliebs发现，中共外交官和数百个推特帐号，近期密集散布假消息，称新冠病毒很可能是在2019年11月，通过运往武汉海鲜市场的缅因州龙虾，从美国传到中国。
+中国国家统计局的数据显示，1～8月的移动通信基站零部件的产量同比减少53％，按有数据的月份来看，连续11个月下滑。据统计，中共国占到全球通性基站市场的逾6成份额，零部件的产量与基站的建设动向基本成正比例。对日本的零部件厂商而言，大客户中共国的减速构成打击。村田制作所会长村田恒夫表示，“防止通信故障的零部件的需求正在下滑”。日本一家大型通信零部件企业则透露，“自2020年夏季起，多个面向中国华为技术的项目告吹”。
 
-这是中共最新散布的阴谋论，已被翻译成多种语言，由五百多个支持中共的推特帐号，每天上午规律地发布，其中包含一部分假账号。
+住友电工将在2021财年（截至2022年3月）内把荷兰等欧美的开发人员数量翻一番。此举是为了能迅速将客户的要求体现到开发中。该公司用于5G基站的美国半导体工厂9月投产。目前，从住友电工的基站零部件的海外营收来看，中共国占9成。力争在5年后把欧美的比例从1成提高至5成。
 
-美国某智库专精假消息的专家也指出，这是中共在疫情爆发后，再一次企图将新冠起源栽赃给美国，混淆视听。
+此外，日本电气硝子最早将于2022年成立专注于欧美的营业团队。该公司的光纤零部件有9成是面向中共国的工厂，今后将致力于欧美市场。
 
-中共驻英大使馆发言人依旧不承认传播假消息。但网络是有记忆的，作恶终会留下痕迹。中共今日的障眼法都会成为将来的认罪书。
+东京大学社会科学研究所的丸川知雄教授表示，“一有变动就转向欧美的态度是中国无法接受的。日企需要制定在中国国内完成采购和制造等以中美供应链脱钩为前提的战略”。
 
-文字版原文：[造谣美国龙虾为新冠源头，中共水军现形](https://gnews.org/zh-hans/1611921/)
+当前，中美产业链脱钩的实质动作不断加速，进一步带动其他西方国家与中共的脱钩，加之中共经济的持续恶化，越来外资外企必将从中共国市场转向或者撤离。
 
-音频处理：喜山必胜Maverick
+信息来源：
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[日本基站零部件企业开始转向欧美 (日经中文网)](https://cn.nikkei.com/industry/itelectric-appliance/46412-2021-10-21-05-00-27.html)
+
+(文章仅代表作者本人观点，与GNEWS无关)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

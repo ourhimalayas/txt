@@ -2,58 +2,44 @@
 ---
 
 
-## 第780军事情报旅：中共国 政府正在使用“各种各样”的手段 有些是非法的 来窃取商业机密
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1615502/)
+## 11 月 8 日起接种COVID-19疫苗成澳洲教师就业条件
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1615680/)
 
-第780军事情报旅(网络)： 美国发出警告说，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府正在使用“各种各样”的手段 (有些是非法的) 来窃取商业机密。【附cyberscoop 上的文章链接】
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-
-
-> US warns that Chinese government is using 'wide variety' of methods, some illegal, to steal trade secrets [https://t.co/Z0h770nhwJ](https://t.co/Z0h770nhwJ) [@CyberScoopNews](https://twitter.com/CyberScoopNews?ref_src=twsrc%5Etfw)
-> — 780th Military Intelligence Brigade (Cyber) (@780thC) [October 23, 2021](https://twitter.com/780thC/status/1451893258750210049?ref_src=twsrc%5Etfw)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/3000-scaled.jpeg)
 
 
 
-众议员马乔里泰勒格林： 是时候通过我的 [#解雇福奇](https://twitter.com/hashtag/%E8%A7%A3%E9%9B%87%E7%A6%8F%E5%A5%87?src=hashtag_click) 法案了。 他资助杀害了百万人生命的生物武器的制造，和残忍的折磨小狗的试验，这些都是恶魔才干得出的事。 这个变态还做了些什么？ 福奇必须被解雇，调查，和逮捕。
+图片来源：apnews.com
 
 
+#### 编译：小红帽
 
-> It’s time to pass my [#FireFauci](https://twitter.com/hashtag/FireFauci?src=hash&amp;ref_src=twsrc%5Etfw) Act.
-> 
-> Funding the creation of a bioweapon that has killed millions of people and cruel experiments that torture puppies are the things only a monster could do.
-> 
-> What else has this psychopath done?
-> 
-> Fauci must be fired, investigated, and arrested.
-> — Marjorie Taylor Greene 🇺🇸 (@mtgreenee) [October 24, 2021](https://twitter.com/mtgreenee/status/1452265654581669888?ref_src=twsrc%5Etfw)
+澳大利亚新南威尔士州教育部长莎拉·米切尔（Sarah Mitchell）表示，11月8日之后接种中共病毒（COVID-19）疫苗是教师的一个就业条件，政府“不会为此道歉”。
 
+“我们只需要看看在11月8日截止日期前数据向我们展示了什么，”米切尔告诉澳大利亚天空新闻。
 
+“这是11月8日之后的一个就业条件。 如果您想在学校担任教学职位，则需要接种中共病毒疫苗。这是为了保护我们学生和教职员工的健康和安全，我们不会为此道歉。”
 
-众议员布莱恩·马斯特： 当俄罗斯和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在庆祝时，你就知道有些事情已经大错特错了。 【路透社报道：普京说，拜登让美军从阿富汗撤出是正确的】
+周一，新南威尔士州预计有数十万学生重返课堂，2至11年级将恢复面对面教学。
 
+新南威尔士州州长多米尼克·佩罗特（Dominic Perrottet）上周日证实，到目前为止，95%的学校教职员工都宣布他们已全面接种中共病毒疫苗。
 
+新南威尔士州教师联合会主席安吉洛·加夫列拉托斯（Angelo Gavrielatos）表示，根据这一比例，将短缺3000名教师。
 
-> When Russia and China are celebrating, you know something has gone terribly wrong.[https://t.co/lshuJaB3eZ](https://t.co/lshuJaB3eZ)
-> — Rep. Brian Mast (@RepBrianMast) [October 23, 2021](https://twitter.com/RepBrianMast/status/1451960106825011204?ref_src=twsrc%5Etfw)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
+**参考新闻：****
+**1、[Teachers being vaccinated a ‘condition of employment’ from November 8 | Sky News Australia](https://www.skynews.com.au/australia-news/coronavirus/teachers-being-vaccinated-a-condition-of-employment-from-november-8/video/6a982cc90ff1476e0d2c3e5f7af692c1)
+2、[NSW records 296 new cases as concerns raised over teacher vaccinations (9news.com.au)](https://www.9news.com.au/national/nsw-coronavirus-daily-cases-october-24-thousands-of-teachers-still-not-vaccinated-as-students-return-to-classrooms-tomorrow/b71d1444-d5b8-4640-a086-24fd5b546828)
 
+**
+*****发布：小红帽***
 
-众议员迈克·沃尔茨： 多年来，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 一直在偷窃和刺探我们的公司和大学，从我们的眼皮底下窃取我们的研究和技术。 随着他们发展高超音速导弹储备 (这是一种我们无法防御的先发制人的战略武器)，现在它来咬我们了。 【附福克斯商业玛丽亚采访沃尔茨议员的视频，谈中共国的威胁】
-
-
-
-> For years, the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) has stolen & spied on our corporations & universities, stealing our research & technology from under our noses.
-> 
-> Now it's coming to bite us as they develop their hypersonic missile stockpile – a first strike strategic weapon that we cannot defend against. [pic.twitter.com/1tPevJKOuP](https://t.co/1tPevJKOuP)
-> — Rep. Mike Waltz (@michaelgwaltz) [October 23, 2021](https://twitter.com/michaelgwaltz/status/1451947523904614404?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·沃尔茨： (白宫发言人) 珍·普萨基和拜登政府认为可以用欢迎竞争来打发 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的高超音速导弹发展。 她错了。他们不是在和我们竞争，他们想主宰我们。这是 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的人造卫星时刻 (美国需要警醒)，而我们没有导弹来阻止他们。 【附沃尔茨议员接受福克斯商业采访，谈中共国的威胁】
-
-
-
-> Jen Psaki and the Biden Admin think it's okay to dismiss China's hypersonic missile development by welcoming the competition.
-> 
-> She's wrong. They aren't competing with us, they want to dominate us. This is the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s Sputnik Moment AND we don't have the missiles to stop them. [pic.twitter.com/rcUlfu4XIM](https://t.co/rcUlfu4XIM)
-> — Rep. Mike Waltz (@michaelgwaltz) [October 23, 2021](https://twitter.com/michaelgwaltz/status/1451933910494027791?ref_src=twsrc%5Etfw)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

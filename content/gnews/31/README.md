@@ -2,30 +2,23 @@
 ---
 
 
-## 樱花灭共诗——七律•祝贺喜币金秋十月上市
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1615681/)
+## 大批学子前线抗疫，呼吁请正确“爱国”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1615747/)
 
-#### 作者：东京樱花团/故乡明月
-![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
-商风送爽好清秋，
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/10/12-15.png)图片来源：本文章
+中共官媒“中国新闻网”10月24日报道，甘肃地区已连续过日新增中共病毒确诊病例，四所高校号召全体医学相关专业高年级学生参与抗疫，共计约有1万多名学生志愿者报名。
 
-佳讯频频碧海浮。
+报道称，兰州大学的志愿招募发布不到5个小时，微信群就达到500人上限。甘肃中医药大学在通知发出一小时内，近3000名教师、学子响应。
 
-万里金元平空取，
+笔者相信，很多学生是有真正的爱国之心，希望拯救同胞，建设国家。但却被中共利用，助纣为虐，或沦为牺牲品，而其中所谓“志愿者”多少是自愿，多少是被迫“自愿”呢？相信中共防火墙推到之后，定会有大批的年轻学子加入新中国联邦，实现真正意义的“爱国”。
 
-一枚喜币合家求。
+信息来源：
 
-休将珠玉遗墙国，
+[万名学生连夜请战，微信群爆满！](https://mp.weixin.qq.com/s/gu_CBC8KW8DlCkndcIVnlA)
 
-应幸沧溟有方舟。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-且待来年秋月朗，
-
-高歌载酒笑湾流。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-133.jpg)
-(本文只代表作者观点，与GNews网站无关)
-
-*插图：东京樱花团/闪闪*
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
