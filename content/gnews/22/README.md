@@ -2,33 +2,63 @@
 ---
 
 
-## COVID-19最新情报｜澳洲数据显示 新冠疫苗推行 死亡率不降反升
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1616193/)
+## 中国的未来都在由习一人决定
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1616270/)
 
-**台灣寶島農場 zhong｜發布日期/ 25/10/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
-#### 澳洲统计局死亡率数据显示，澳洲“从未”爆发新冠大流行
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2648.png)
+[https://gtv.org/video/id=6176262e247c5a3f908fad16](https://gtv.org/video/id=6176262e247c5a3f908fad16)
 
-据英国媒体报导，澳大利亚在2020年3月29日到4月12日死亡率，突然的升高，但升高后的死亡率数据实际上低于五年的平均水准。
+**郭文贵
+Miles Guo**
 
-然而，澳洲推广大规模疫苗接种后，2021年3月开始，死亡率开始上升，2021年4月死亡率已经超过了2020年新冠大流行的时期。（新冠大流行死亡率约是平时的5-50倍，2020 年的死亡率（3.6%）略高于前 5 年的平均水准）
+跟你们讲今天谈这个六中全会的时候，
+today when we talk about the Sixth Plenary Session of the Central Committee of the Communist Party of China
 
-2020年新冠大流行，造成约7万人死亡。然而，在新冠大流行前，每年平均会有6.7万人死亡。
+六中全会是中国的未来的是北朝鲜化
+The Sixth Plenary Session of the Central Committee is the future of China’s North Koreanization
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/4-61-scaled.jpg)澳洲死亡案例相關數據
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Oct-22a.png)兩個死亡高峰：2020/04/05；2021/03-06
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Oct-22b-1.png)
+还是走向国际化，那么既然经济决定了这个以后
+or still going internationalization, so now that the economy determines it in the future
 
+那就是北朝鲜的金氏家族权力化，还是所谓的共产党过去的九龙治水化
+That is just like the power of the Kim family in North Korea, or the so-called Communist Party’s “Nine Dragons Rule the Water” in the past
 
-关于政府为了防疫采取的“限制自由、权利”相关措施，有些人是有效的阻止新冠大流行。但诸多科学家、医生公开反驳说到，这些社交封锁措施只是为了“有效控制病毒传播”，并无法保护个人免于染疫。
+不存在民主法治啊，不就这么简单吗
+There is no democracy and the rule of law choice at all, isn’t it that simple?
 
-澳洲政府在2021年2月中旬，推行大规模接种计划，致10月中旬，总人口数2590万人的澳洲已经接种了3350万剂疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Oct-22d.png)
-澳洲政府统计数据指出，2021/04开始死亡率明显增加，且2020年的死亡率大部分都低于2021年。报导称，2021年死亡数增加与接种疫苗可能有相关，值得注意。
+再一个就是继承人，谁说了算的问题
+The other one is the heir, the question of who has the power
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/17-4.jpg)
+没有想的不可能跟任何人讨论，不可能任何讨论
+Impossible to discuss with anyone, impossible to discuss at all
 
-新闻来源｜[COVID GLOBAL NEWS](https://www.covidglobalnews.live/health/no-pandemic-australia-if-you-believe-there-was-then-you-need-to-ask-why-its-deadly-effect-doubled-after-the-cov-vaxx-roll-out/)
+一定是习说了算，那谁要想试图想跟他讨论一定会被消灭
+Xi must have the final words, then anyone who tries to discuss with him will be wiped out
+
+那消灭的方式是什么，
+What is the way to eliminate it?
+
+最好的方式对中国人很幸运的是毛泽东当年发动的文化大革命
+The best way for the Chinese is lucky to be the Cultural Revolution initiated by Mao Zedong.
+
+最坏的方式就是斯大林的时代的到来
+The worst way is the arrival of Stalin’s era in China
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
+
+Date:10/23/2021
+原视频标题:中国的未来都在由习一人决定
+China’s future is determined by Xi alone
+原视频日期：2021/10/22
+原视频接:[https://twitter.com/se1y7cblljselva/status/1451901265026318341?s=24](https://twitter.com/se1y7cblljselva/status/1451901265026318341?s=24)
+任务编号：KC193（2648）
+视频时间段 : 0:00-1:01
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,25 +2,23 @@
 ---
 
 
-## 央行发布《征信业务管理办法》 ：个人交易、社交、上网痕迹等都将纳入监管
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1615692/)
+## 油价高涨，多地出现“限量售油”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1615773/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-57-1.jpg)央行发布《征信业务管理办法》 ：个人交易、社交、上网痕迹等都将纳入监管 网络图片
-据周到上海消息，央行近日发布了《征信业务管理办法》，自2022年1月1日起施行。《办法》包含信用信息采集、整理、保存、加工、提供、使用和安全等内容。央行方面表示，《办法》对依法从严加强征信监管，保障信息主体合法权益和信息安全，促进征信业市场化、法治化和科技化发展具有积极意义。
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/10/433-1.jpg)[图片来源](https://i.ytimg.com/vi/pgw_biiMNtQ/maxresdefault.jpg)
+据澎湃新闻10月24日报道，油价上涨前夜，多地加油站出现限量受油行为。根据国家发改委消息，新一轮成品油调价于10月22日24时开启，汽油每吨上调300元，柴油每吨上调290元。
 
-《办法》还将征信替代数据应用纳入监管。包括个人的交易、社交、上网痕迹等
+有网友称，因为限量加油，高速路上的油量无法到达下一个服务区，工作人员让其电话投诉，必须多加油；也有网友称，有些加油站不给外地车加油，工作人员则回应，油价上调期间，加油系统会出现暂停运作的现象。
 
-新闻参考链接：[https://www.163.com/dy/article/GM1VE9PF0514A42S.html](https://www.163.com/dy/article/GM1VE9PF0514A42S.html)
+中共国外汇告急，能源短缺是不争的事实，其影响着普通民众的方方面面，这或许只是刚刚开始。
 
-* * *
+信息来源：
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+[涨价前，加油站坐地起价搞“限售”](https://mp.weixin.qq.com/s/Kn_2HAFNU6J9Fg-oZCoRFA)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+(文章仅代表作者本人观点，与GNEWS无关)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

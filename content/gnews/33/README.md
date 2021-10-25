@@ -2,30 +2,33 @@
 ---
 
 
-## 强生和辉瑞疫苗中的纳米颗粒会持续增长从而形成血栓
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1615903/)
+## COVID-19最新情报｜澳洲数据显示 新冠疫苗推行 死亡率不降反升
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1616193/)
 
-撰稿：喜国公民
-视频来自网络
-[Stew Peters 节目](https://www.redvoicemedia.com/2021/10/shocking-dr-carrie-madej-releases-first-look-at-pfizer-vial-contents/)最近采访了Carrie Madej博士，用在显微镜下观察到的强生和辉瑞疫苗中的人工合成物质的活动形态，进一步揭示了新冠疫苗对人类照成的伤害。
+**台灣寶島農場 zhong｜發布日期/ 25/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+#### 澳洲统计局死亡率数据显示，澳洲“从未”爆发新冠大流行
 
-Madej博士在强生疫苗里看到的是一些圆形球体和环状物体。随着时间的推移，这些环状物体会变得越来越薄，并向外扩张，最后，挤压出一些胶状的物质。
+据英国媒体报导，澳大利亚在2020年3月29日到4月12日死亡率，突然的升高，但升高后的死亡率数据实际上低于五年的平均水准。
 
-在球体或环上，有生物体，看起来像一个半透明的物体，来回游动，就像很多机器人在移动。而人类确实有能力制造纳米机器人，可以把100万个纳米机器人放在一个注射器针头里面。
+然而，澳洲推广大规模疫苗接种后，2021年3月开始，死亡率开始上升，2021年4月死亡率已经超过了2020年新冠大流行的时期。（新冠大流行死亡率约是平时的5-50倍，2020 年的死亡率（3.6%）略高于前 5 年的平均水准）
 
-Madej博士建议要对观察到的环状物体做进一步研究，看看它到底是什么。看它们是不是由有机物和合成物组成的。
+2020年新冠大流行，造成约7万人死亡。然而，在新冠大流行前，每年平均会有6.7万人死亡。
 
-无论如何，这些东西被放入人体内是很可怕的。当人类在做这样的事情时，人类的未来是很危险的。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/4-61-scaled.jpg)澳洲死亡案例相關數據
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Oct-22a.png)兩個死亡高峰：2020/04/05；2021/03-06
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Oct-22b-1.png)
 
-辉瑞疫苗中也存在同样的合成物。那些像黑色的石墨或金属的小颗粒，在外力的作用下，凝聚成线，形成像蜘蛛网一样的结构。这种外力可能是光，可能是磁力，也可能是像波一样的脉冲。
 
-所有这些小颗粒会凝聚起来，形成它们自己的神经网络。如果这些小颗粒以这种方式增长的话，它可以堵塞人体的动脉，可以堵塞毛细血管和淋巴管，形成血栓。
+关于政府为了防疫采取的“限制自由、权利”相关措施，有些人是有效的阻止新冠大流行。但诸多科学家、医生公开反驳说到，这些社交封锁措施只是为了“有效控制病毒传播”，并无法保护个人免于染疫。
 
-新冠疫苗中的微粒的这种增长方式，就像淡水水螅。如果你切掉一块水螅，它会重新长出来。如果你把水螅分成许多块，它们都会长成一个新的水螅。
+澳洲政府在2021年2月中旬，推行大规模接种计划，致10月中旬，总人口数2590万人的澳洲已经接种了3350万剂疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Oct-22d.png)
+澳洲政府统计数据指出，2021/04开始死亡率明显增加，且2020年的死亡率大部分都低于2021年。报导称，2021年死亡数增加与接种疫苗可能有相关，值得注意。
 
-很多研究人员都观察到了新冠疫苗中的这些人工合成物质的现象，但很多人选择沉默。担心直言不讳，会失去工作，失去职业。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/17-4.jpg)
 
-(本文纯属个人观点，与Gnews无关)
+新闻来源｜[COVID GLOBAL NEWS](https://www.covidglobalnews.live/health/no-pandemic-australia-if-you-believe-there-was-then-you-need-to-ask-why-its-deadly-effect-doubled-after-the-cov-vaxx-roll-out/)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)

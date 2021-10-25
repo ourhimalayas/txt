@@ -2,13 +2,9 @@
 ---
 
 
-## 西站出品（之）– 七哥讲堂（II）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1616289/)
+## 中共病毒疫苗造成的死伤比历史上所有疫苗的总和还多
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1616416/)
 
-制作：蚂蚁兄弟
+10/21/2021 AFLDS.org网站医学主管瑞恩·克尔博士指出中共病毒疫苗造成的死亡和损伤比过去数十年中其它所有疫苗的总和还要多。
 
-**什么是法币，什么是货币**
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
