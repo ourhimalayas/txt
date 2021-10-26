@@ -2,20 +2,44 @@
 ---
 
 
-## 加拿大自由党政府内阁发生重大人事更迭
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1619542/)
+## 医生因新冠疫苗接种状况而拒绝进行挽救生命的肺移植手术
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1619613/)
 
-编译撰稿：硫酸羟氯喹64
+作者：Alexandra Lavoie
+翻译: HimaBoy
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-13.jpg)图片来源：CBC
 
 
-据加拿大自媒体《后千禧年》10月26日新闻报道，总理特鲁多领导的自由党内阁本周将有令人瞩目的重大人事职务变更，其中包括：哈伊杜卸任卫生部长，阿南德上任国防部长等。
+让我告诉你乔安妮·杜普伊斯和她丈夫西尔万·桑斯卡蒂埃的故事。
 
-据悉，加拿大自由党政府内阁除了本次诸多的人事变动之外，留在原有职位的成员包括：担任副总理兼财政部长的弗里兰、担任交通部长的阿尔加布拉和担任农业部长的克劳德等。
+乔安妮是一名 36 岁的女性，她因囊性纤维化引起的继发性肺部感染住院一个多月。
 
-此外，本次值得关注的内阁人事更迭还包括：原采购部长阿南德成为国防部长，原卫生部长哈伊杜成为土著事务部长，原遗产部长吉尔伯特成为环境部长，原语言和经济发展部长乔利成为外交部长等。
+最近，医生告诉乔安妮，她在肺移植等候名单上排名第八，如果她想要接受移植手术，就必须接种疫苗。
 
-(以上内容仅代表原文信息和作者个人观点)
+由于之前接种过的疫苗会产生明显的副作用，乔安妮不愿意接种新冠疫苗。
 
-[原文链接：](https://thepostmillennial.com/hajdu-out-anand-in-defense-minister-cabinet)
+因此，医生现在已将乔安妮从移植名单中删除，直到她完全接种疫苗为止。
+
+这是无法接受的。我们必须传达这个消息。
+
+人们需要意识到这种拒绝的严重程度。一个女人的生命危在旦夕！
+
+來源：[https://www.rebelnews.com/lung\_transplant\_candidate\_told\_she\_must\_be\_vaccinated\_before\_she\_can\_move\_forward\_with\_the\_procedure](https://www.rebelnews.com/lung_transplant_candidate_told_she_must_be_vaccinated_before_she_can_move_forward_with_the_procedure)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

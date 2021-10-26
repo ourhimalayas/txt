@@ -2,47 +2,44 @@
 ---
 
 
-## 新的言论自由应用在盖特，不会让用户陷入“数字监狱”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1619450/)
+## BC 卫生局有人举报称 50% 的新冠住院患者与新冠病毒无关
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1619550/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/102603.jpg)
-来自澳大利亚《天空新闻》10月24日的报道
-
-**摘要翻译：**
-
-盖特首席执行官、川普的前顾问杰森·米勒表示，新的言论自由应用程序盖特的用户不会因为在政治问题上发表意见而被陷入“数字监狱”。
-
-“我们的独特之处在于：第一，我们不会因为任何人的政治信仰而取消或审查或去平台或算法不存在”，米勒先生告诉澳大利亚天空新闻。
-
-“与此同时，我们也有一个积极稳健的审核政策。为了将这两者结合起来，我们确保不允许非法内容。
-
-“例如，你不能用身体伤害来威胁人们，或者你不能使用种族或宗教亵渎的字眼。”
-
-“我们确保对环境进行监控，以确保人们的安全。”
-
-米勒先生表示，该应用程序自7月4日推出以来“像火箭一样起飞”，已经拥有近300万用户。
-
-“我们的美国客户群约占我们整个全球客户群的47%，美国以外的客户群占53%，所以盖特已经是一个真正的全球化平台。”他说。
-
-**简评： **
-
-爆料革命的战友们都见证了盖特的出生及如火箭般的成长奇迹，也知道盖特如米勒先生所述是一个自由言论的平台。 现在的盖特跟推特和脸书等大科技公司比还是婴儿，所以我们与米勒先生那样的战友一起积极使用和推广盖特，增加盖特的影响能力，让更多的热爱自由民主法治的人们加入这个平台。
-
-新闻链接：[New free speech app GETTR won’t put users in ‘digital jail’ for speaking their minds](https://www.skynews.com.au/opinion/outsiders/new-free-speech-app-gettr-wont-put-users-in-digital-jail-for-speaking-their-minds/video/bb3cc4507e39c15cce065758348f6fc3)
-
-***翻译：**Brianchow*
-
-***校对**：clau*
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：Drea Humphrey
+翻译: HimaBoy
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+“案例，案例，案例。” 这是公共卫生霸主、官僚和官方媒体用来将不合理限制正常化的神奇词。从驱逐老年人到隔离，再到违背健康公民的意愿将他们关押在新冠的监狱中。
+
+但是，如果这一切都是假的或者至少是一半，那么该怎么办呢？
+
+在夏季暂时取消了许多新冠措施后不久，不列颠哥伦比亚省的内陆卫生区是该省最早宣布病例激增的地区之一。当然，这最终是被用来收紧极权主义的限制并进行强制疫苗的接种。
+
+然而，在这份完整的报告中，你会听到卫生局内部的一名举报人说，政府对“新冠住院”的真正定义并不透明。
+
+“这些数字正在被改变以支持他们的议程。” 举报人说。
+
+反叛新闻已经确认了受访者的身份和职位，且同意对个人身份进行保密。
+
+在撒了足够多的谎之后，勇敢的卫生局内部员工决定透露有关住院原因的数据，并说从该卫生区域向公众报告的“新冠住院”中约有 50% 是人无症状并因新冠以外的其他疾病而到医院接受治疗。
+
+來源：[https://www.rebelnews.com/bc\_health\_whistleblower\_says\_50\_per\_cent\_of\_covid\_hospitalizations\_asymptomatic\_unrelated](https://www.rebelnews.com/bc_health_whistleblower_says_50_per_cent_of_covid_hospitalizations_asymptomatic_unrelated)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

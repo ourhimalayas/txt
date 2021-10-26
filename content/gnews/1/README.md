@@ -2,29 +2,48 @@
 ---
 
 
-## 德国慕尼黑汽车游行 呼吁终结中共
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1619611/)
+## 2021/10/26 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1619674/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+**主播**：大卫｜**嘉宾**：舒平风
 
-近日，德国民众在慕尼黑举办了以“终结中共”为主题的汽车游行，目的是提醒德国，不要只顾眼前利益，对中共侵犯人权的罪行采取绥靖政策，并提醒德国民众警惕中共对全世界的威胁和毒害，与之划清界线。
+1. [GTV视频链接第一部分](https://gtv.org/video/id=6177dfeaeadeb11f5e7a9c55)
+2. [GTV视频链接第二部分](https://gtv.org/video/id=6177e52aeadeb11f5e7a9fce)
 
-据大纪元报道，该游行车队23日在警车开道下，穿梭于慕尼黑城，历时两个半小时。游行车辆上有“终结中共”、“中共不等于中国”、“打倒中共恶魔”等大标语。
 
-据悉，在出发地点，许多民众看到大横幅后都在“终结中共”的请愿书上签名。另外，沿途也有很多民众，拍照摄像、向车队招手或竖大拇指。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/id13329054-IMG_9501-600x400-1.jpeg)图片来源：https://www.epochtimes.com/b5/21/10/25/n13329025.htm
 
-据报道，在利益的驱动下，巴伐利亚政治经济界逐渐向中共靠拢，中共国逐渐成为巴伐利亚全球第一大贸易伙伴。而且，巴伐利亚是德国唯一一个给孔子学院提供资金的联邦州。
+**板块1–国内政治**
 
-举办方丹妮拉·达斯卡卢（Daniela Dascalu）女士认为，在巴伐利亚首府慕尼黑进行汽车游行，让人们了解中共对世界的危害，意义重大。
+1. 中共国加入联合国50周年，习近平在会上强调—反对“零和游戏”、反对“霸权强权”、呼吁人类命运共同体。中共实质—流氓匪帮，奉行“胜者王侯败者寇”思维，无治国能力。已在亚洲东南亚国家实行“霸权主义”。
 
-*注：本文仅代表作者观点，与 Gnews无关*
+2. 为习量身打造的大国治理理念目的：对国内—宣传党的先进性，持续洗脑体制内人士和人民；对国际—打造全新文明形象、推进一带一路发展、促使人民币国际化。习近平崇尚毛泽东，习惯“整人”，掌控军队。
 
-*参考链接：*
+3. 习近平秘密出访卡塔尔等国，表明基本控制国内政治局面，搞定政治对手；计划开始在卡塔尔“打扫战场、收拾战利品”（卡塔尔国家主权基金投资德意志银行，均与海航有千丝万缕的关系）；换血当地情报系统，扶植习派信任的人；企图打乱阿联酋、希腊等国与新中国联邦的合作计划。
 
-[組圖：德國民眾慕尼黑汽車遊行 呼籲終結中共](https://www.epochtimes.com/b5/21/10/25/n13329025.htm)
+**板块2–新疆西藏**
 
-* * *
+NBA球员Enes Kanter要求耐克公司停止与中共国“现代奴役制”的合作关系，将引发华尔街相关投资者的恐慌，NBA一系列事件引起美国民众反感中共，恰是宣传爆料革命真相的契机。
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**板块3–军事**
+
+美国司法部公布前美空军战争学院教授69岁张晓明就隐瞒与中共国官员关系认罪。中共长期腐蚀美国司法界、科学界、国土安全部门等，后续可能都将逐渐被揭露。
+
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+
+[![](https://spark.adobe.com/page/oo9mcfLeDAeIs/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://spark.adobe.com/page/oo9mcfLeDAeIs/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://spark.adobe.com/page/oo9mcfLeDAeIs/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/oo9mcfLeDAeIs/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)

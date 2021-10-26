@@ -2,33 +2,54 @@
 ---
 
 
-## 中共欲低价承包泰国水利项目遭当地人权组织强烈反对
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619230/)
+## 四名阿尔伯塔医生就疫苗强制要求起诉阿尔伯塔卫生服务局
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1619418/)
 
-作者：纽约香草山农场 – 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-泰国议员维拉康近日透露，对于泰国备受争议的尤姆河引水工程，由中共控制的北方工业国际公司此前表示，愿意自费在四年内以12亿美元的造价建造该项目。为此，曾两次拒绝该项目评估的泰国政府于上月批准了这一项目的环境影响评估报告。
+作者：Dakota Christensen
+翻译：HimaBoy
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/written-alberta-doctorssueahs.jpg)
 
-当地时间10月25日的消息称，泰国人权组织强烈反对该项目，因担心新水库将淹没村庄，破坏森林，且将对当地克伦土著居民产生不利影响。同时，经评估，此工程“存在严重缺陷”。
+据加拿大广播公司新闻报道，四名阿尔伯塔医生正在对阿尔伯塔卫生服务 (AHS) 及其总裁发起法律挑战，要求其针对卫生当局的强制性工作场所新冠疫苗接种政策。
 
-中共借一带一路之名，蓝金黄当地政客，不惜血本参与基础设施项目，试图进一步扩大在泰国的影响力。对于中共的经济绑架，东南亚国家应提高警惕。
+该诉讼的原告是卡尔加里儿科神经学家埃里克·T·佩恩博士、卡尔加里麻醉师乔安娜·J·莫泽博士、波诺卡家庭医生陈建伟博士和史密斯家庭医生 大卫·洛文博士。
 
-(本文仅代表作者观点)
+这四名医生上周五在卡尔加里法院中心提交了一份索赔声明。在他们的索赔中，医生声称阿尔伯塔卫生服务局强制疫苗接种政策是“不道德和非法的”，等同于一种攻击形式。
 
-参考链接：[中国公司欲承包泰国水利项目 人权环境人士表示反对](https://www.voachinese.com/a/china-shows-interest-in-a-thailand-water-project/6283640.html)
+“在未经患者知情同意的情况下对患者进行的任何医疗程序都构成攻击，” 索赔声明说。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+该诉讼还称，强制性疫苗接种政策相当于推定解雇，因为它改变了合同使原告受到终止或无偿停职的威胁。它还进一步指出，强制性疫苗政策违反了保密性，因为“医生被安排无薪休假的那一刻，他们的状态就会立即显现出来。”
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：谐趣园
+该诉讼进一步指控阿尔伯塔卫生服务局政策侵犯了*《权利和自由宪章》*第 7 条所保障的人身安全*权*。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+原告在卡尔加里的律师杰弗里·拉斯表示，他将在周一提交禁令申请，以迫使阿尔伯塔卫生服务局停止其政策，直到诉讼在法庭上进行审理。
+
+阿尔伯塔卫生服务局于 8 月宣布了强制性疫苗接种政策，要求其所有员工、学生、志愿者和承包商在 10 月 31 日之前提供疫苗接种证明。 上周，阿尔伯塔卫生服务局将所有工人的截止日期延长了一个月，至 11 月 30 日。
+
+阿尔伯塔卫生服务局的一位发言人告诉 *CBC**新闻*，94% 的员工都提交了疫苗接种证明。他还表示对阿尔伯塔卫生服务局的疫苗接种政策充满信心，并表示尚未看到索赔或诉讼声明。
+
+发言人说：“阿尔伯塔卫生服务局对强制免疫政策的有效性充满信心，这是确保我们员工、医生和患者安全的重要工具。”
+
+迄今为止，据报道，有 61 名阿尔伯塔卫生服务局员工因强制接种疫苗政策而辞职。其中包括 31 名临床工作人员，其中 11 名是注册护士。
+
+该诉讼进一步指控阿尔伯塔卫生服务局主席姚薇娜博士、阿尔伯塔省省长杰森·肯尼和其他政府官员发表了“虚假陈述”，称“大流行和医院人满为患应归咎于未接种疫苗的人”。
+
+來源：[https://www.rebelnews.com/alberta\_doctors\_sue\_alberta\_health\_services\_over\_vaccine\_mandate](https://www.rebelnews.com/alberta_doctors_sue_alberta_health_services_over_vaccine_mandate)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

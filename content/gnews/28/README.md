@@ -2,35 +2,31 @@
 ---
 
 
-## SPAC获利，但投资者警告个人崇拜不能取代投资要素
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619206/)
+## 俄大型公司签署该国首个人工智能道德准则
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1619316/)
 
-作者：香草山佛教部 -文一
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据10月24日的消息显示，川普媒体和技术集团在上周收购DWAC之后，其价值已高达82亿美元，而川普本人将拥有合并公司50%以上的股份，价值接近48亿美元。
+俄罗斯莫斯科喀秋莎农场 星河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide8-8.jpeg)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/R-4.jpg)chernayakobra.ru
+美东时间10月26日塔斯社报道，俄人工智能联盟和其他几个组织签署了人工智能道德准则。签字仪式在塔斯社举行，是10月26日在莫斯科举行的首届国际论坛“人工智能的伦理：信任的开始”的一部分。
 
-但相关消息同时指出，川普的新企业面临巨大的阻力，其产品 Truth Social社交媒体平台已经出现了技术问题并被黑客攻击。 该公司CEO随后也评论称，他们没有财务数据和商业计划。
+该准则将成为俄罗斯联邦人工智能项目和《2017-2030年信息社会发展战略》的一部分。
 
-投资经验人士路易斯·纳维利尔在10月25日发文表示，个人崇拜不能取代投资基本要素，并且警告投资者称： DWAC的交易尚未完成，目前仍有告吹可能；同时，投资者很可能在合并案中被重新洗牌；另外， DWAC也可能因政治因素陷入困境；即便合并完成，与竞争对手相比，DWAC的可支配现金微乎其微。因此，路易斯建议避开DWAC的投资，并表示华尔街的疯狂将在DWAC上又一次充分展示。
+它确立了一般的道德原则和行为标准，人工智能领域关系的参与者在他们的活动中以这些原则和行为标准为指导。该准则适用于与人工智能技术的创造（设计、建造、试点）、实施和使用的生命周期所有阶段的道德方面有关的关系，目前俄罗斯立法或其他监管法案没有对这些方面进行监管。
 
-(本文仅代表作者观点)
+该文件分为两部分，主要包括刺激人工智能的发展、提高对人工智能的道德使用的认识、识别人工智能在人类交流和信息安全中的作用等主题。
+
+目前约有20个国家正在研究人工智能的伦理问题。
+
+俄罗斯的准则是由人工智能联盟与俄罗斯政府下属的分析中心和经济发展部一起编写的。加入该守则的编写工作是自愿的。
+
+签署该文件的有Sberbank、Gazprom Neft、Yandex、VK、MTS和俄罗斯直接投资基金，以及Skolkovo、Rostelecom、Rosatom、InfoWatch、CIAN等公司的代表。这是第一次使用移动签名GosKluch来签署协议。
+
+2020年12月，俄罗斯总统弗拉基米尔∙普京呼吁在人工智能领域制定一个内部道德准则。他指出，专业团体和企业参与制定使用人工智能的道德原则很重要。
+
+（文章仅代表作者个人观点）
 
 参考链接：
-1）[‘The Richest He’s Ever Been’: Trump Set To Gain Billions In Net Worth On Moonshot SPAC](https://www.zerohedge.com/political/trump-gains-billions-net-worth-moonshot-spac)
-2）[I’m a Trump supporter, but as an investor I’m wary of the Trump SPAC](https://www.msn.com/en-us/money/companies/i-m-a-trump-supporter-but-as-an-investor-i-m-wary-of-the-trump-spac/ar-AAPVPmB)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://tass.ru/ekonomika/12764611](https://tass.ru/ekonomika/12764611)
