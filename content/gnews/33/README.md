@@ -2,38 +2,57 @@
 ---
 
 
-## 免疫专家：“未接种疫苗的人并不危险，接种疫苗的人对其他人来说是危险的”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1617639/)
+## 瑞典无限期暂停使用莫德纳疫苗，因导致接种者严重心脏病
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1617756/)
 
-编译：七叶之芒
-![](https://americasfrontlinedoctors.org/2/wp-content/uploads/2021/08/crr-1024x568.png)图片来源： americasfrontlinedoctors.org
-世界卫生组织欧洲免疫专家咨询小组,前副主席克里斯蒂安-佩罗内教授昨天说，所有接种过疫苗的人必须在冬季进行隔离，否则有可能患上严重疾病。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/102505-1.jpg)美国莫德纳新冠疫苗。图：路透社
+来自美国《西方杂志》10月24日的报道
 
-佩罗内专门研究热带病学和新出现的传染病。他曾是公共卫生高级委员会传染病专业委员会的主席。
+**摘要翻译：**
 
-这位传染病专家确认了以色列和英国迅速恶化的局势，并表示：“接种疫苗的人应该被隔离，并应与社会隔离。”
+人们对莫德纳疫苗的副作用产生了新的担忧。
 
-他接着说：“未接种疫苗的人并不危险，接种疫苗的人对其他人来说是危险的。现在,在以色列已经证明了这一点–我和以色列的许多医生都有联系–他们有很大的问题，医院里的严重病例都是在接种疫苗的人中出现的，在英国也是如此，更大的疫苗接种计划，也有问题。”
+据英国《每日邮报》报道，瑞典卫生官员现已决定无限期延长对所有31岁以下人群接种莫德纳疫苗的禁令。暂停接种莫德纳疫苗的时间原定于12月1日结束。
 
-据报道，目前在法国的COVID-19大流行病工作组,在收到这一消息后“完全惊慌失措”，担心如果按照专家的指导意见行事，会出现大混乱。
+芬兰、冰岛和丹麦也采取了类似的措施。挪威鼓励30岁以下的男性不要接种莫德纳疫苗，但没有强制要求。
 
-以色列医生科比-哈维夫,告诉13频道新闻，“95%的重病患者都接种了疫苗。完全接种疫苗的人占住院病人的85-90%。我们正在开设越来越多的COVID分支机构。疫苗的有效性正在下降或消失”。
+数月以来，莫德纳疫苗一直受到审查，因为数据显示接种该疫苗的年轻男性患心肌炎和心包炎的风险增加。
 
-**简评**：
+据《华尔街日报》报道，由于担心疾病风险，美国食品和药物管理局做出了决定暂停莫德纳疫苗针对12至17岁人群的注射计划。
 
-**疫苗的灾难正在显现。在西方各国，越来越多的医疗工作者已经开始发现疫苗对人带来的危害。我们虽然不希望疫苗的灾难来临，但是这一切似乎正在不可避免的发生着。**
+据CNBC报道，尽管联邦疾病控制和预防中心周四批准了莫德纳疫苗和强生疫苗的注射，但还是提出了一些警告。
 
-**真心希望世界可以早些觉醒，把这场灾难的损失降到最低。**
+Tom Shimabukuro博士说，无论是莫德纳疫苗或辉瑞疫苗都会增加心肌炎和心包炎的风险，尤其是在接种第二剂疫苗之后。
 
-（文章仅代表作者观点，与GNEWS无关）
+据《每日邮报》报道，数据显示，接种莫德纳疫苗的人比接种辉瑞疫苗的人的风险大13倍。
 
-视频链接：[streamable.com](https://streamable.com/h881fu)
+瑞典公共卫生局表示，未公开数据将莫德纳疫苗与这两种情况联系起来，意味着“心肌炎或心包发炎等副作用的风险增加”。
 
-**参考资料：**[americasfrontlinedoctors.org][Immunization expert: ‘Unvaccinated people are not dangerous; vaccinated people are dangerous for others’](https://americasfrontlinedoctors.org/2/frontlinenews/immunization-expert-unvaccinated-people-are-not-dangerous-vaccinated-people-are-dangerous-for-others/)
+美国食品和药物管理局给予辉瑞公司疫苗全面授权的声明中谈到了对该疫苗的担忧，称“数据表明风险增加，特别是在第二次接种后的7天内。”
+
+**简评： **
+
+从武汉新冠疫情的爆发开始到现在全世界的政府都在强推疫苗，整个过程不断地在欺骗：
+
+疫情发生初期是：不会人传人，天热后就会消失，结果全世界爆发；刚推出新冠疫苗时：说“疫苗可以防新冠”，然后威逼利诱人们去接种疫苗。随着接种人群的数量越多，感染人数也增大，这时对疫苗的说法是“防重症不防轻症”；在中共国但凡有人感染新冠，当地政府是全民连夜检查，疫苗有何作用？现在各国政府又推出加强针，新冠疫情过去发生的每一步都经不起推敲。
+
+爆料革命和新中国联邦传递出的信息正在不断被验证。希望各国的民众尽快觉醒，站出来反对正在作恶的当权者，早点采取正确的新冠治疗措施，让人们回归正常生活。
+
+新闻链接：[Sweden Suspends Moderna Shot Indefinitely After Vaxxed Patients Develop Crippling Heart Condition](https://www.westernjournal.com/sweden-suspends-moderna-shot-indefinitely-vaxxed-patients-develop-crippling-heart-condition/)
+
+***翻译：**Brianchow*
+
+***校对：**clau*
 
 * * *
 
-*审核：Aries的星
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

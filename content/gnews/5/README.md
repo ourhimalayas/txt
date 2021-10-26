@@ -2,28 +2,31 @@
 ---
 
 
-## 有声|吴征2019年已被美国FBI刑事调查
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1618065/)
+## 郭文贵先生曝，习近平密访五国，为“十九届六中全会”加码
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1618133/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-郭文贵先生在10月24日直播中爆料，吴征等近十名中共人员，在2019年已被美国FBI刑事调查。作为美国公民，吴征却不敢回美国，就是逃离刑事调查。
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-31.png)
+郭文贵先生10月24日盖特视频爆料，习近平正在密访卡塔尔、阿尔巴尼亚、塞尔维亚、意大利和希腊5国，31日将结束访问返回中共国。
 
-吴征在刑事调查期间，仍签署大量上市公司文件，但从未对外披露，这样的行为是罪上加罪。
+习近平此次密访的首站是卡塔尔，而之前卡塔尔与德意志银行、海航集团以及杨洁篪都有私下勾兑。习此次访问卡塔尔是出于地缘政治平衡的目的，要演戏给阿联酋、伊朗，甚至整个中东看。
 
-吴征在中共国曾四次被逮捕和保释，中共的目的就是威胁和利用他，继续对爆料革命进行法律超限战。吴征等人操纵的SPAC空壳上市公司，将把华尔街的基金、律师事务所、以及前总统川普，全部卷入刑事调查中。
+习近平访问塞尔维亚、,阿尔巴尼亚的主要目的是以“一带一路”之名，在当地布置军事基地。
 
-郭先生强调，吴征家族，包括太太杨澜和弟弟吴斌，因卷入美国情报和金融犯罪，甚至操纵美国司法，触及美国的根本利益，其下场，一定比王健家族更惨。
+对于希腊，习近平则是要利用延期两国贷款来作为筹码，希望其放弃与新中国联邦的合作。
 
-文字版原文：[吴征2019年已被美国FBI刑事调查](https://gnews.org/zh-hans/1616318/)
+对于意大利，习近平则是亲自出马要将其扶持成欧洲的第二势力，中共希望通过扶持意大利来改变现在由法国、英国和德国主导欧洲的格局。具体做法就是直接用钱把意大利的整个右翼左翼全买下。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+此外，中共还将这5国签署司法合作协议，针对海外华人大搞遣返。
+
+郭文贵先生还透露，此次密访表明习近平在国内已将江、曾、王等上海帮势力基本控制住，但由于尚未百分百控局，因此习只能秘密出访。习近平出访回国后，将会作出几个重大决定，为11月8日召开的十九届六中全会奠定党内的基础。
+
+信息来源：
+
+[郭文贵先生10月24日盖特视频](https://gettr.com/post/pf3w0g8716)
+
+(文章仅代表作者本人观点，与GNEWS无关)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

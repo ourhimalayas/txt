@@ -2,12 +2,24 @@
 ---
 
 
-## 辱共神曲《玻璃心》播放量突破1600万！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1617892/)
+## 美佛州州长要求追责福奇
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1617971/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1026-scaled.jpg)
-（文章仅代表作者个人观点，与GNEWS无关）
+原文采编：文莱      编译撰稿：文所未闻
 
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-8-edited.jpg)图片来源：后千禧年
+
+
+据加拿大自媒体《后千禧年》10月25日报道，美国佛罗里达州州长罗恩当天公开谴责并要求追责福奇及其同僚，长期资助【武汉病毒研究所】对“新冠病毒”进行的各项功能增强性研究。
+
+罗恩对此表示：白宫首席医疗官福奇领导的【美国国家卫生研究院】向中共【武汉病毒研究所】的各项生化试验研究提供了巨额资金。同时，该州长还进一步抨击了由该福奇资助的，在突尼斯对宠物狗进行令人发指的，残酷和非必要的各类动物实验。
+
+该州长随后呼吁道：本着美国纳税人的立场，本着法律和道德的立场，福奇及其同谋应该被严厉追责，并必须被立即解职。
+
+（以上内容仅代表原文信息和作者个人观点）
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://thepostmillennial.com/desantis-fauci-gain-of-function-puppies)

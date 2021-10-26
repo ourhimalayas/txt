@@ -2,24 +2,38 @@
 ---
 
 
-## 加拿大被迫动用军方力量驰援疫情重灾区
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1617884/)
+## 蓬佩奥指出世界面临撕裂的三大原因都源自CCP
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1617967/)
 
-采編：文明     编译撰稿：苦尽甜来 (文來）
+作者：日本方舟农场 – Andy5
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-7.jpg)图片来源：CTV
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+近日，美国前国务卿蓬佩奥出席World Knowledge Forum时指出世界面临撕裂的三大原因都源自中国共产党。一是由于中共撒谎以及联合国对中共卑躬屈膝而造成全世界大流行的中共病毒；二是中共的一带一路项目，其本质就是新型帝国主义；三是中共开始着手取代美国的领导地位，比如在疫情期间中共没有放下报复美国的野心反而让其野心更加膨胀，它们撕毁了本该遵守至2047年的中英联合声明。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-120.jpg)
+蓬佩奥国务卿说，看到香港沦陷以及中共对其之前庄严承诺过的义务表现出的轻蔑态度，每个人都该问自己，中共国所签的哪一个正式文件会得到中共的执行？同时，蓬佩奥国务卿明确指出，中共就是个强盗政权，中共国被一群强盗所领导着。
 
-据加拿大【CTV新聞】10月24 日報道，【加拿大武装部队】表示已准备好向萨斯喀彻温省派遣多达 6 名军方“重症监护”护理人员，他们将被部署到该省各医院内的重症监护病房，以应对该省日益恶化的“新冠病毒”疫情。
+参考链接：
 
-为此，加拿大军方称，在其能力允许的情况下，将为该省内外的“重症监护患者转运”提供医疗用航空运输，并且还可能再派遣一队多功能医疗援助队来弥补目前该省医护人员极度短缺的境况。萨斯喀彻温省公共安全部长布莱尔此前曾表示，联邦政府已批准向该省提供疫情援助的请求，包括军方力量的支持。
+[蓬佩奧國務卿在Wolrd Knowledge Forum的演講](https://gettr.com/post/pf49hc950a)
 
-发文当天，该省新增“新冠病毒”感染病例2,963 宗，较一个月前 9 月 24 日的 4,734 例有大幅下降。在以上病例中，有 285 名感染者需住院治疗，其中有74名患者在重症监护室接受抢救。
+（本文仅代表作者观点）
 
-（以上内容仅代表原文信息和作者个人观点）
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-* * *
+总编/编辑：木白
+校对/发稿：Fei797
 
-校对编辑，发稿：硫酸羟氯喹64
+**更多资讯，更多关注**
 
-[原文链接：](https://www.ctvnews.ca/health/coronavirus/military-to-support-saskatchewan-with-up-to-six-critical-care-nursing-officers-1.5636523)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
