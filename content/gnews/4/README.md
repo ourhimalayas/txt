@@ -2,21 +2,32 @@
 ---
 
 
-## 秘翻在线：NIH被指控资助了虐待猴子的实验
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1618751/)
+## 中共的强制抗疫政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618806/)
 
-#### 翻译撰稿：zzballack
+作者：澳喜农场 在远方
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Snipaste_2021-10-26_19dsa56456d-58-44.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-据《每日邮报》（Daily Mail）10月25日报道，纳税人监督组织“白大褂浪费项目（White Coat Waste Project，WCW）”上周末曝光了美国国立卫生研究院（NIH）下属机构、福奇领导的美国国家过敏和传染病研究所（NIAID）对小猎犬幼犬进行的残忍实验。
 
-其实早在2019年12月，WCW就曾指控NIH在猴子身上进行“怪异的心理学实验”，并在实验中用硫酸、玩具蛇和橡胶蜘蛛折磨猴子。NIH已资助这类实验连续40多年，从2007年起，这些实验就花费了近1亿美元纳税人的钱。
 
-一段被公开的猴子实验录像显示，心烦意乱的灵长类动物被锁在狭小的笼子里，研究人员用橡胶蜘蛛和机械蛇吓唬它们，以观察它们的恐惧本能反应。NIH的科学家们随后切除了它们的部分大脑，或用酸液伤害它们，以“故意加重灵长类动物的恐惧”。在视频中，可以听到一个冷酷
+中共内蒙古额济纳旗于当地时间25日零时宣布封城，当局公告称，禁止居民出户且禁止游客出店，否则将被追究民事和刑事责任。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/p5.001.jpeg)
+据内部战友透露，中共先是研制并释放病毒，造成世界性的灾难，其后又采取了极端严酷的疫情防控措施，动辄封门、封路、封城，任由民众自生自灭，最终导致民怨四起。为了防控疫情，中共国是全世界唯一一个全面阻止公民返国，并禁止疫区病患外出寻求医疗援助的国家。
+(本文仅代表作者观点)
 
-无情的NIH人员开玩笑说：“跳舞的猴子究竟在哪儿？”WCW声称这些被录下的实验发生在马里兰州贝塞斯达的国家心理健康研究所（NIMH）。WCW曾要求NIH向他们提供与灵长类动物的浪费和怪异心理学实验有关的视频和其他材料，但却被拒绝。
+参考链接: [中国新一轮封城抗疫行动 成效与可持续性受考验](https://www.voachinese.com/a/china-braces-for-covid-19-new-lockdowns-20211025/6284255.html)
 
-WCW的调查促使国会指示NIH委托美国国家学院（National Academies）独立研究这类灵长类动物实验的替代方案，而且必须在2020年底前报告其减少和取代灵长类动物实验的努力。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-新闻来源：[**NIH is now accused of spending $100m of taxpayer’s money on torturing lab monkeys with ACID and snakes: DeSantis leads calls for Fauci to quit after he was revealed to have funded horrific testing on beagles**](https://www.dailymail.co.uk/news/article-10129521/NIH-tortured-monkeys-acid-toy-snake-Fauci-faces-calls-resign-dog-torture-tests.html)
+编辑/总编：Irene木木
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

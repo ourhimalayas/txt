@@ -2,9 +2,22 @@
 ---
 
 
-## 10/20郭文贵直播：马云正在处理大概3000多笔的资产（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1618419/)
+## 多国撤回极端疫情控制措施
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1618595/)
 
-10/20/2021郭文贵直播：马云正在处理大概3000多笔的资产，蔡崇信帮马云洗掉了他75%的钱；中共妄图通过搞经济大革命来强化统治、对欧美等国发动经济超限战并掠夺全球财富。
+**翻译：奮鬥
+校对：枳实
+字幕：蛮吉**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+多国改变政策，放松疫苗护照实施。苏格兰和爱尔兰放弃疫苗护照，法国议会投票以压倒性多数驳回疫苗护照。
+
+**视频链接：**[CASCADE OF COUNTRIES WITHDRAW EXTREME COVID MEASURES](https://www.bitchute.com/video/4KiIMEvVVYMC/)
+
+**发布：**Janek
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

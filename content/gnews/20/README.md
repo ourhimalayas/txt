@@ -2,37 +2,36 @@
 ---
 
 
-## 圣地亚哥学生、家长就 COVID-19 疫苗授权起诉区政府
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1618549/)
+## 习近平秘密出访欧亚五国
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618690/)
 
-编译：Jenny Ball
+作者：美东香草山农场 文真
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/San-Diego-Vaccine-Protest-1200x800-700x420-1.jpg)加利福尼亚州圣地亚哥 – 2021 年 9 月 28 日：反疫苗抗议者在圣地亚哥联合学区办公室外举行抗议活动，以抗议强制要求学生接种疫苗。 学区正在举行视频听证会，讨论是否强制要求学生接种至少一剂 COVID 疫苗。（桑迪·赫夫克/盖蒂图片社拍摄）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-圣地亚哥——一名 16 岁的斯克里普斯牧场高中学生和她的父母，于 10 月 22 日对圣地亚哥联合学区提起诉讼，以阻止最近批准的针对 16 岁以上教职员工和学生的 COVID-19 疫苗授权。
 
-约翰、简和吉尔·多伊(John, Jane, and Jill Doe)代表家人，在圣地亚哥联邦法院提起的诉讼——指出高中三年级的她，宗教信仰禁止她接种疫苗。
 
-该学区上个月批准了一项疫苗强制计划，该计划要求所有 16 岁以上的学生，不迟于 12 月 20 日接种第二剂疫苗。16 岁或以上未接种疫苗的学生，将被要求通过远程学习独立学习。该学区的计划允许对任务进行医疗豁免，但不允许宗教或个人信仰豁免。
+10月25日，据郭文贵先生在盖特视频中透露，习近平正在秘密出访五个欧亚国家，包括卡塔尔、阿尔巴尼亚、塞尔维亚、希腊和意大利。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1026-AM-（1-4）.001.jpeg)
+经郭先生分析，习此次秘密出访的政治意图有二：对内，习有信心击败政敌，独裁到底；对外，习此举使为了挑战美国。
 
-根据诉状，吉尔对堕胎的宗教反对阻止了她接受疫苗，因为她说，批准用于紧急使用的三种疫苗，或用于测试疫苗的材料，使用了来自流产胎儿的干细胞系的材料。
+郭先生提及，习此次可以做到秘密出行，说明其已有信心扳倒王岐山、孟建柱、江志成和马云，并通过六中全会奠定其在中共党内的统治地位。再者，习首站访问卡塔尔，因为卡塔尔与德意志银行、海航以及杨洁篪都有勾兑，而且可以利用卡塔尔影响其周围国家以及整个中东。另外，中共正在利用塞尔维亚和阿尔巴尼亚等“一带一路”国家布置军事基地。至于习出访希腊，最关键的目的是为了防止其与新中国联邦合作，二是可以巩固与希腊的码头项目，延期两国贷款问题。而意大利则是中共在欧洲扶植的“第二势力”，为了取代法、英、德在欧洲的地位。
 
-投诉称，吉尔·多伊“要么放弃她的信仰，要么在 SDUSD 参加独立的在线学习。”
+同时，中共还计划与这些国家达成司法合作协议，以便跨境遣返。习这次的出访将于本月31日结束。
+(本文仅代表作者观点)
 
-公共卫生官员表示，虽然过去几十年的胎儿细胞系已用于疫苗研发，但 COVID-19 疫苗不包含流产的胎儿细胞。
+参考链接：[10月24号：绝密绝密绝密．习近平在共产党的六中全会前的．五国秘密外访，说明了什么？有什么样的内外政治目的？](https://gettr.com/post/pf3w0g8716)
 
-本月早些时候，当地家长组织对“让他们（孩子）选择” (Let Them Choose)提起诉讼，指控该地区无权实施疫苗授权。该组织表示，这项授权是“不必要的、非法的，侵犯了学生接受面对面教育的权利，并且存在歧视。”
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-**评论：这项授权不仅是非法的，侵犯了学生接受面对面教育的权利，而且真正在制造歧视。这就是共产主义左派和中共一样，嘴里说一套，行动做一套，他们嘴里批判别人的罪名，都是他们实实在在干着的勾兑。中共最善于制造矛盾，挑动群众斗群众，现在把这一套也输出到了美国和世界各地。希望人们从疫苗血的灾难中认清现实：我们在面临着一场保卫自由的终极之战！**
+编辑：山本不惑
+校正/发稿：我不在这里
 
-**圣地亚哥的学生和家长加油！**
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-（文章仅代表作者观点，与GNEWS无关）
-
-**参考资料：**[theepochtimes][San Diego Student, Parents Sue District Over COVID-19 Vaccine Mandate](https://www.theepochtimes.com/san-diego-student-parents-sue-district-over-covid-19-vaccine-mandate_4066334.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-10-25)
-
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

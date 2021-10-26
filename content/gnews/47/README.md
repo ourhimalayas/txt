@@ -2,34 +2,29 @@
 ---
 
 
-## “香港加油”成为香港马拉松被禁敏感词
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618193/)
+## 暗无天日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1618381/)
 
-作者：澳喜农场 – 在远方
-![This image has an empty alt attribute; its file name is image-40-1-6.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
-24日，在时隔两年八个月之后，渣打香港马拉松赛，在“港版国安法”阴影笼罩下再次举行。港共政府打着“预防及打击恐怖主义活动”的旗号，派出数千警员高压戒备。荒唐的是，一个简单的“香港加油”的双体书法服饰，竟然也成为所谓的“敏感词”而被禁用。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-17.jpg)
-在比赛前，许多选手因为背心或者短裤上，印有竖看为“香港”，横看为“加油”的双体书法，被要求更换服饰，否则不能参赛。如果身上有“香港加油”的纹身，也被要求用胶布遮盖。还有选手透露，有工作人员威胁他们，如果穿有“香港加油”字句的服饰，就“后果自负”。
+#### 撰稿/插图：东京樱花团/ Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/10/12-8.png)
+这是一个什么样的年代，白色恐怖的年代不曾这样过，黑暗统治的时期未曾见过。是什么样的恐怖，让人们如此的迷茫？眼睛是人们心灵的窗口，是连接内心与世界的桥梁，是辨别是非善恶的瞭望塔。一个黑白不分的眼睛，究竟是什么样的力量让他如此？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-123.jpg)
+一个受到惊吓的人要么是闭上眼睛，要么惊恐万分地睁大眼睛。闭上眼睛自然看不到眼睛，睁大眼睛白色眼球会变大，黑色眼球会变小，从未曾见过白色眼球彻底消失。满眼都是黑暗，这是什么样的恐怖？恐怖应该是白色眼球增多才对，我实在想不清楚原由。难道这是极端恐怖过后的一种释然？是无奈绝望后的放弃？无奈，沧桑，麻木，这正是他们想要的！！！
 
-参考链接：[“香港加油”成为香港马拉松被禁敏感词](https://www.voachinese.com/a/hong-kong-marathon-censors-sensitive-slogans-20211024/6283428.html)
+才几年的功夫，这个世界变了，变得让我们感到陌生，说好的民主，说好的自由呢？相反的到处是暴政，到处是极权，一个病毒，一个疫苗让这个世界变得如此暴虐。医疗暴政混合着高科技信息的垄断，一夜之间竟将是非颠倒。
 
-（本文仅代表作者观点）
+善者在麻木，恶者在精进。黑暗势力的阴谋显然不是一朝一夕的事，多少的迹象在十几年、几十年前就有所显露，这是个长久的精心策划。而我们竟一无所知，被一次次的阴谋论辟谣所麻痹，被一次次的计谋所分化。多么的悲哀，信息的局限，认知的不足竟将我们带到如此荒唐的境地。
 
-![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+明辨是非有多难？信息渠道不在我们手里，权力不在我们手里，他们还用各种手段扭曲事实，逼迫我们接受虚假的宣传。我们唯一有的就是仅存在我们内心深处的是非逻辑的判断力，这是正义的火苗。他们还要用疫苗将我们非人类化，利用各种技术手段对人类进行重写。创造一个他们需要的顺从生命。
 
-总编：木白
-编辑：木白
-校对/发稿：Hetangyuese
+人类已经到了最危难的时候，没有抗争必将死亡。失去希望，松开自由的火把，我们的人生就会馅入迷惘，眼睛不再明亮，黑白即将不分，愚昧迟钝就将统治我们。
 
-**更多资讯，更多关注**
+星火可以燎原，但是星火连成片才有希望。善良的人们只有手牵手辨别是非，不再被利益分化，深明大义，才能走向强大战胜邪恶。无欲则刚，在邪恶掌控全球面前，还为利益与邪恶勾兑必将献身火海。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+自古正邪不两立，与恶魔交必遭殃。今天是一个信誉彻底丧失的年代，与邪恶妥协合作已绝无可能，唯有善者认清形势，与邪恶划清界限，深明大义，不为利所诱，不为名所惑，紧紧团结起来，才能带领人们走出这场劫难。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+(文章仅代表作者本人观点，与GNEWS无关)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
