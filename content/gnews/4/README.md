@@ -2,9 +2,13 @@
 ---
 
 
-## 10/17郭文贵直播：2020年武汉疫情期间，习没去武汉是因其得知孙力军等人要刺杀他（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1618416/)
+## 西媒头条 — 第94期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1618421/)
 
-10/17/2021 郭文贵直播：2020年武汉疫情期间，习没去武汉是因其得知孙力军和王立科等人要杀他，于是习马上派人去查，双规了孙力军，软禁了孟建柱和王岐山，最后发现这跟江志成有关。
+**制作：蚂蚁兄弟**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1025-26.001.jpeg)
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)

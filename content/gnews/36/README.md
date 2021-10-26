@@ -2,31 +2,42 @@
 ---
 
 
-## 郭文贵先生曝，习近平密访五国，为“十九届六中全会”加码
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1618133/)
+## “莆田刀客”欧金中前妻遭中共监视居住
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618189/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-31.png)
-郭文贵先生10月24日盖特视频爆料，习近平正在密访卡塔尔、阿尔巴尼亚、塞尔维亚、意大利和希腊5国，31日将结束访问返回中共国。
+作者：澳喜农场 – 在远方
 
-习近平此次密访的首站是卡塔尔，而之前卡塔尔与德意志银行、海航集团以及杨洁篪都有私下勾兑。习此次访问卡塔尔是出于地缘政治平衡的目的，要演戏给阿联酋、伊朗，甚至整个中东看。
 
-习近平访问塞尔维亚、,阿尔巴尼亚的主要目的是以“一带一路”之名，在当地布置军事基地。
 
-对于希腊，习近平则是要利用延期两国贷款来作为筹码，希望其放弃与新中国联邦的合作。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
 
-对于意大利，习近平则是亲自出马要将其扶持成欧洲的第二势力，中共希望通过扶持意大利来改变现在由法国、英国和德国主导欧洲的格局。具体做法就是直接用钱把意大利的整个右翼左翼全买下。
 
-此外，中共还将这5国签署司法合作协议，针对海外华人大搞遣返。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-20.jpg)
+中国民间权益组织“民生观察”，23日引用律师消息称，莆田欧金中被中共宣称自杀身亡后，其前妻欧秀香被中共当局，以“涉嫌包庇罪”为由监视居住，其前妻姐姐的两个儿子、女儿，也因该在事件中所谓涉嫌“散布谣言”而被查。
 
-郭文贵先生还透露，此次密访表明习近平在国内已将江、曾、王等上海帮势力基本控制住，但由于尚未百分百控局，因此习只能秘密出访。习近平出访回国后，将会作出几个重大决定，为11月8日召开的十九届六中全会奠定党内的基础。
+据悉，殁年55岁的欧金中，因被邻居阻拦翻盖旧房，5年求告无门而激情杀人，导致对方2死3伤。在逃亡8日后，中共当局称其在警方围捕下自杀身亡。该事件发生以来，中国网民一边倒对他表示同情，并称之为“莆田刀客”。
 
-信息来源：
+参考链接：
+1. [“莆田刀客”欧金中前妻遭中共监视居住](https://www.rfa.org/mandarin/Xinwen/7-10242021153412.html)
+2. [“莆田刀客”欧金中前妻遭中共监视居住](https://baijiahao.baidu.com/s?id=1713952782832797232&amp;wfr=spider&amp;for=pc)
 
-[郭文贵先生10月24日盖特视频](https://gettr.com/post/pf3w0g8716)
+（本文仅代表作者观点）
 
-(文章仅代表作者本人观点，与GNEWS无关)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+总编：木白
+编辑：木白
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)

@@ -2,26 +2,40 @@
 ---
 
 
-## 2021年10月24日郭文贵先生：吴征家族会比王健惨
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1618137/)
+## 民众质疑沈阳惨烈爆炸伤亡实况（沈阳爆炸续报）
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618191/)
 
-#### 剪辑：玉米地的小蜗牛
+作者：澳喜农场 – 在远方
 
-#### 吴征家族会比王健惨；川普的案件会以滑稽结果收场；川普和新中国联邦的关系会比想象中好。
 
-吴征的被刑事调查这件事情，几乎可以改变中美之间所有过去这些年跟吴征有官司所有的案子。记住我这句话，这事巨大 你们不懂，它很大啊。而且吴征和杨澜和他孩子， 一定会（成为）世界上比王健家族还惨的人。
 
-一 、王健毕竟没骗美国人，他（吴征）骗得全是美国人，而且涉及到美国情报和政治啊。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
 
-那么，同时我告诉大家，川普总统这个SPAC， 最后的结果，是（以）非常的荒唐， 滑稽，和灾难的结果结束的。这一点， 一点都无容置疑。
 
-最后，关于川普总统和爆料革命的关系，和Gettr的关系，会比你想象好得多， 会很滑稽啊，但是会比你想象的好。
 
-***发布：小红帽***
+10月21日，中共辽宁沈阳和平区太原街发生剧烈爆炸。23日晚，当局通报说受爆炸影响的楼宇有86栋，仍在检测剩余的13栋，并对1858户居民和93户商铺签订核查确认，用于赔偿和整修，但仍未确认爆炸是由管道问题还是液化气罐造成。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-12.jpg)
+网上大量的视频和图片显示，此次爆炸威力惊人，蘑菇云高升到百米，现场犹如战场一样惨烈，一片废墟。有楼房被炸成裸楼，窗户等全被炸飞，只剩下水泥框架。现场有许多人受伤，有人伤势严重，急待救治，还有一辆公交车和许多车辆受损。对于中共媒体所称的，到目前为止爆炸造成5人死亡，47人受伤的数字，许多网友纷纷表示强烈质疑。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+参考链接：[民众质疑沈阳惨烈爆炸伤亡实况（沈阳爆炸续报）](https://www.voachinese.com/a/china-shenyang-blast-casualties-and-investigation-20211024/6283359.html)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：木白
+编辑：木白
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)

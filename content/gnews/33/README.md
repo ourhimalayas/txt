@@ -2,48 +2,34 @@
 ---
 
 
-## 郭文贵先生关于喜币的肺腑之言
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1618143/)
+## “香港加油”成为香港马拉松被禁敏感词
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618193/)
 
-**整理：**玉米地小蜗牛
-**编辑、发布：**Candy
-GTV大直播
+作者：澳喜农场 – 在远方
+![This image has an empty alt attribute; its file name is image-40-1-6.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
+24日，在时隔两年八个月之后，渣打香港马拉松赛，在“港版国安法”阴影笼罩下再次举行。港共政府打着“预防及打击恐怖主义活动”的旗号，派出数千警员高压戒备。荒唐的是，一个简单的“香港加油”的双体书法服饰，竟然也成为所谓的“敏感词”而被禁用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-17.jpg)
+在比赛前，许多选手因为背心或者短裤上，印有竖看为“香港”，横看为“加油”的双体书法，被要求更换服饰，否则不能参赛。如果身上有“香港加油”的纹身，也被要求用胶布遮盖。还有选手透露，有工作人员威胁他们，如果穿有“香港加油”字句的服饰，就“后果自负”。
 
-```
-喜币上市以后
-你要就听七哥两句话
-如果涨了需要钱
-就赶快卖
-啊 别犹豫 你别这 别老想着
-需要钱你就卖
-啊 第二 七哥给你建议
-啊 如果你要认为喜币
-不安全 不是好投资的话
-你 任何虚拟币都不要考虑了
-没有比喜币再安全 再增值
-没有任何 我可以负责告诉大家
-这个世界上如果你还想投资说
-合法的 安全的 有最大增长空间的 
-长寿的
-只有喜币
-啊 就这两句话给你们建议
-需要钱你就卖 别傻 卖掉它
-啊 因为不一定财富都是你的 啊 是不是
-到你手里面 你就花么
-然后就记住 要想买虚拟货币
-没有比喜币再稳定 再好 长期的了
-而且告诉大家 它的整个喜联储的价值
-它现在已经被固化了
-就是国家机构的投资者已经认定了是
-这个钱
-100000
-这 这是 得翻几次啊 翻好几次啊 啊
-啊 这是我只能透露这么多 别理解错啦
+参考链接：[“香港加油”成为香港马拉松被禁敏感词](https://www.voachinese.com/a/hong-kong-marathon-censors-sensitive-slogans-20211024/6283428.html)
 
-更多資訊，請關註：
-澳大利亞墨爾本雅典娜農場Twitter：HimalayaAthena
-澳大利亞墨爾本雅典娜農場Gettr：himalayaathena
-澳大利亞墨爾本雅典娜農場YouTube
-澳大利亞墨爾本雅典娜農場Discord
-澳大利亞墨爾本雅典娜農場GTV直播1台
-```
+（本文仅代表作者观点）
+
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：木白
+编辑：木白
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)

@@ -2,31 +2,27 @@
 ---
 
 
-## 针下亡魂｜英国 35 岁女医护接种疫苗三个月后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1618330/)
+## “香港加油”成禁语 马拉松跑手被拒赛
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1618376/)
 
-**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 26/10/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
-***更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）***
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-143.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fs.rfi.fr%2Fmedia%2Fdisplay%2Ff0720630-34df-11ec-8eec-005056bf30b7%2F2021-10-24T011702Z_757379715_RC20GQ9D6LR7_RTRMADP_3_ATHLETICS-HONGKONG%2520%25281%2529.JPG&amp;imgrefurl=https%3A%2F%2Fwww.rfi.fr%2Fcn%2F%25E4%25B8%25AD%25E5%259B%25BD%2F20211024-%25E9%25A6%2599%25E6%25B8%25AF%25E9%25A9%25AC%25E6%258B%2589%25E6%259D%25BE%25E8%25B5%259B%25E4%25BA%25A6-%25E6%259F%2593%25E7%25BA%25A2-%25E9%25A6%2599%25E6%25B8%25AF-%25E5%258A%25A0%25E6%25B2%25B9-%25E5%25AD%2597%25E7%259C%25BC%25E9%2581%25AD%25E6%258C%2587%25E6%25B6%2589%25E6%2594%25BF%25E6%25B2%25BB%25E8%25A2%25AB%25E7%25A6%2581&amp;tbnid=O_TeDAQANYfVfM&amp;vet=12ahUKEwi5r6LJtefzAhXJhksFHWyIAPkQMygAegUIARCZAQ..i&amp;docid=0jet122cFGQHGM&amp;w=2480&amp;h=1627&amp;itg=1&amp;q=%E9%A6%99%E6%B8%AF%E9%A9%AC%E6%8B%89%E6%9D%BE&amp;ved=2ahUKEwi5r6LJtefzAhXJhksFHWyIAPkQMygAegUIARCZAQ)
+在停办两年多后，香港渣打马拉松上周日举行。据香港媒体报道，在今年的渣马赛上，一些跑手因背心或短裤上印有竖看为“香港”，横看为“加油”的双体书法图案，被要求更换服装，否则不能参赛。“香港01”报道，有运动员身上有“香港加油”的纹身，被工作人员要求用胶布遮盖。还有跑手透露，有工作人员声称如果穿回有“香港加油”字样的服饰就后果自负。
 
-【英国】曼彻斯特一名 35 岁的女医护 Rachel McKinney 在接种完辉瑞 COVID-19 疫苗后，经历了两个多月与严重不良反应的搏斗，最终在因多发性硬化症而死亡。
+一些人进场时还被警员搜身、检查、摄像，记录号码牌及身份证号码。据《明报》报道，起跑前，弥敦道一带有数十名警员戒备，至少有两名市民因身上衣服印有“香港加油”的字样被警方截停，并被带到大会的保安检查站要求更换服装。另一位市民试图将衣服反转穿着，但仍被当局拒绝参赛。
 
-按照当地规定，身为医务人员的 Rachel 是首批需要接受新冠疫苗注射的人士。据她的姐姐 Gemma Louise Walls 的回忆，Rachel 在 12 月下旬接种了第一剂疫苗，随后在 1 月接种了第二剂，直到一月，一切都很好。不过，二月份开始，Rachel 就突然说话含糊不清，并有轻微失语症。家人随即怀疑她中风。
+渣马筹委会主席高威林10月18日在赛前简介会时曾说，认为“香港加油”没有问题，但是补充称建议“香港加油”转成“跑手加油”。在赛事结束后的记者会上，高威林在被追问为何不让穿“香港加油”字句服饰的跑手参赛时，只是重申渣打香港马拉松“是一项体育活动，不希望加入任何政治元素”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Gemma-Louise.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Jamie-Lauren-Walls.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Kevin-McKinney.png)
+在香港媒体的推特发布下，很多用户纷纷评论认为这种做法荒唐可笑，“香港加油”都不能说，国安法让渣打马拉松很可笑。这就是现实中的香港，难道不是另一种恐怖？中共已经将香港变成另一个恐怖社会。一个连“香港加油”都能成为禁语的国家还有救吗？四个自信哪里去了？这个国家根本神经衰弱得了被害妄想症。武汉爆发疫情，媒体一片“武汉加油”声，郑州遭遇水灾，媒体一片“郑州加油”声，如今香港举办马拉松，“香港加油”涉嫌违反国安法？
 
+香港三权分立的政治制度在中共国所谓“国安法”非法实施之后，已经丧失殆尽，之前香港的言论自由环境在中共荼毒蹂躏之下，已经荡然无存，可以想象，只要中共政权还存在一天，对香港的自由民主法治的毒害只能是愈演愈烈。
 
-曼彻斯特晚报报导，有一名急救接线员建议带 Rachel 去 Stepping Hill 医院诊治，医生诊断她患有脑部炎症，后来又被转移到索尔福德皇家医院，该院认为她患上了急性播散性脑脊髓炎（ADEM），报导引述家人，怀疑是疫苗造成这一系列的病症，因为“直至 12 月接受疫苗之前，Rachel 一直非常健康。”
+信息来源：
 
-可惜，Rachel 的病情恶化的十分迅速，瘫痪、失语、癫痫、昏迷。由于 COVID-19 的防疫限制，在 Rachel 住院治疗的 46 日期间， 家人不可以见她，他们唯有在 FaceTime 上看着 Rachel 痛苦的煎熬而哭泣。
+[“香港加油”成禁语 马拉松跑手被拒赛](https://www.dw.com/zh/%E9%A6%99%E6%B8%AF%E5%8A%A0%E6%B2%B9%E6%88%90%E7%A6%81%E8%AF%AD-%E9%A9%AC%E6%8B%89%E6%9D%BE%E8%B7%91%E6%89%8B%E8%A2%AB%E6%8B%92%E8%B5%9B/a-59617580)
 
-Rachel 独自对抗病魔战斗了几个星期之后，4 月 13 日她过世了，留下了丈夫 kevin 及两个小朋友——一对 8 岁及 12 岁的儿子，医生的结论是，她不知何故患上了一种罕见的多发性硬化症。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/48_0.jpg)
-来源｜[个案048](https://www.manchestereveningnews.co.uk/news/greater-manchester-news/fit-healthy-everything-live-for-20376989)
+(文章仅代表作者本人观点，与GNEWS无关)
 
-* * *
-
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

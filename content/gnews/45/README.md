@@ -2,12 +2,9 @@
 ---
 
 
-## 辱共神曲《玻璃心》播放量突破1600万！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1617892/)
+## 当危会召开台湾问题紧急研讨会
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1618038/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1026-scaled.jpg)
-（文章仅代表作者个人观点，与GNEWS无关）
+10/21/2021 应对中国当前危机委员会召开了一个台湾问题紧急研讨会，当晚乔·拜登就在CNN上清楚地说：我们要保卫台湾。
 
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

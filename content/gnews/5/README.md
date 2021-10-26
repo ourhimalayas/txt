@@ -2,13 +2,9 @@
 ---
 
 
-## 西媒头条 — 第95期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1618412/)
+## 10/20 郭文贵直播：监视马云的20名随行人员中的一半被他收买（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1618420/)
 
-**制作：蚂蚁兄弟**
+10/20/2021 郭文贵直播：监视马云的20名随行人员中的一半被他收买，马云要么是被江家像弄死王健一样弄死他；要么会被送往美日之外的欧洲某国。若两种情况均未发生，马云在阿里巴巴的持股定会在股票大涨后被抛售，诈骗成功；但最终他要么被杀，要么被送进监狱。
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1025-26.002.jpeg)
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
