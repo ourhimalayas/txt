@@ -2,30 +2,42 @@
 ---
 
 
-## 有声|喜币即将上市 具有最佳增值潜力
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1618078/)
+## “莆田刀客”欧金中前妻遭中共监视居住
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618189/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-10月24日，郭文贵先生在大直播中介绍，喜美元与美元锚定，是稳定币，喜联储承诺每年会拿出20%的收入购买储备黄金。喜币操作便捷，可随时进出，并可由喜币直接兑换喜美元，都充分体现喜币的保值及安全性。
+作者：澳喜农场 – 在远方
 
-未来，喜币最重要的是要进入流通领域，前景广阔。据对日本市场的初步评估显示，虚拟货币将会占到未来日本市场的30%，即1.5万亿。
 
-郭先生称，喜币是增值潜力最好的虚拟货币。整个喜联储的价值已经被固化。掌握超过一万亿美元资金的国家机构投资者在评估后表示，喜联储的喜币，喜美元是最安全，最可流通，最高信用的货币系统。
 
-涉及到喜联储未来的业务，郭先生表示，喜联储未来一定会有保险，贷款业务，并接受G系列之外的流通支付。喜币一定要在全世界成为最好的贷款抵押物。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
 
-让我们期待下周喜币的隆重上市**。**
 
-文字版原文：[喜币即将上市 具有最佳增值潜力](https://gnews.org/zh-hans/1615954/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-20.jpg)
+中国民间权益组织“民生观察”，23日引用律师消息称，莆田欧金中被中共宣称自杀身亡后，其前妻欧秀香被中共当局，以“涉嫌包庇罪”为由监视居住，其前妻姐姐的两个儿子、女儿，也因该在事件中所谓涉嫌“散布谣言”而被查。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+据悉，殁年55岁的欧金中，因被邻居阻拦翻盖旧房，5年求告无门而激情杀人，导致对方2死3伤。在逃亡8日后，中共当局称其在警方围捕下自杀身亡。该事件发生以来，中国网民一边倒对他表示同情，并称之为“莆田刀客”。
+
+参考链接：
+1. [“莆田刀客”欧金中前妻遭中共监视居住](https://www.rfa.org/mandarin/Xinwen/7-10242021153412.html)
+2. [“莆田刀客”欧金中前妻遭中共监视居住](https://baijiahao.baidu.com/s?id=1713952782832797232&amp;wfr=spider&amp;for=pc)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：木白
+编辑：木白
+校对/发稿：Hetangyuese
+
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)

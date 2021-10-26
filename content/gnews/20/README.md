@@ -2,42 +2,25 @@
 ---
 
 
-## 郭文贵先生对新中国联邦人强调“爱”的重要性
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618184/)
+## 26日三菱重工H2A运载火箭第44号发射成功
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1618270/)
 
-作者：纽约香草山农场 – 恩永存
+#### 撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-71.png)
+（图片源自本文链接）
 
+10月26日南日本新闻社报道：H2A在种子岛航天中心成功实现日本版GPS“MICHIBIKI”的连续第38次轨道注入。
 
+三菱重工有限公司（MHI）于26日上午11时19分从南种子町的种子岛航天中心（TNSC）发射了H2A运载火箭第44号（H2A F44），运载准天顶卫星-1（QZS-1）的后续卫星“MICHIBIKI”。 大约28分钟后，卫星被送入预定轨道，发射成功。这是自2005年第七次H2A飞行以来连续第38次成功发射。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
+MICHIBIKI是日本版的星基定位系统（GPS）。它是对美国GPS信号的补充，以提高位置信息的准确性，还提供各种服务，如灾害信息等。在目前运行的四个项目中，第一个已经超过了它的使用寿命。所以，有了本次发射。
 
+44号长53米，重287吨。原定于25日发射，但由于预测天气恶化，发射被推迟了。
 
+[信息源](https://news.yahoo.co.jp/articles/172ec23ec29e643fbf3b8ddee8d0f1450b1fb6f2)
 
-10月24日文贵大直播中，郭文贵先生说：人类生存的价值大部份来自家庭，人最重要的关系就是家庭关系，而家庭中父母就是重中之重。郭先生曾经要求盘古员工必须孝敬父母，做不到就别来上班。一个父母都不尊重的人，说什么郭先生都不会尊重他。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-21.jpg)
-共产党这个魔鬼，毁了家庭，以爹亲娘亲不如党亲来洗脑人民，让人不孝敬父母。造成了太子爷般的儿子、孙子打父母，打爷爷奶奶；媳妇打公公等丧绝人伦之事。这种恶是郭先生决心灭共的最早起因。
+（文章仅代表作者个人观点，与GNEWS无关）
 
-郭先生强调：新中国联邦人，不管你有什么信仰，不把父母和家人放在第一位，不把爱和爱人放在第一位，你永远不会是新中国联邦人。家和万事兴。“和”来源于“爱”，没有“爱”就没有“和”；没有“和”，“家”就站立不住；没有“家”，就没有“国”。因此，“家”是“国”的根本。而“爱”是“家”的根本，因此，没有“爱”就不配做新中国联邦人。
-
-参考链接：[郭文贵先生对新中国联邦人强调“爱”的重要性](https://gettr.com/post/pf2ptd1c68)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：木白
-编辑：木白
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

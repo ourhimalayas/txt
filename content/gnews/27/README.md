@@ -2,26 +2,34 @@
 ---
 
 
-## 有声|中共军媒煽动民众抓美国间谍
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1618110/)
+## “香港加油”成为香港马拉松被禁敏感词
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618193/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-中共军媒《解放军报》17日在微博发帖，煽动墙内老百姓开展所谓反间防谍“人民战争”， 号召民众学习‘朝阳大妈’和’捞铜渔民’而努力抓间谍。
+作者：澳喜农场 – 在远方
+![This image has an empty alt attribute; its file name is image-40-1-6.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
+24日，在时隔两年八个月之后，渣打香港马拉松赛，在“港版国安法”阴影笼罩下再次举行。港共政府打着“预防及打击恐怖主义活动”的旗号，派出数千警员高压戒备。荒唐的是，一个简单的“香港加油”的双体书法服饰，竟然也成为所谓的“敏感词”而被禁用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-17.jpg)
+在比赛前，许多选手因为背心或者短裤上，印有竖看为“香港”，横看为“加油”的双体书法，被要求更换服饰，否则不能参赛。如果身上有“香港加油”的纹身，也被要求用胶布遮盖。还有选手透露，有工作人员威胁他们，如果穿有“香港加油”字句的服饰，就“后果自负”。
 
-所谓朝阳大妈指的是，中共政府最基层组织居委会中的中老年妇女，她们兼任政府在居民日常生活中的耳目；而捞铜渔民则是指，在南中国海尾随美军考察船，捞取考察船放出的水文探测潜水器，然后上交中共的渔民。
+参考链接：[“香港加油”成为香港马拉松被禁敏感词](https://www.voachinese.com/a/hong-kong-marathon-censors-sensitive-slogans-20211024/6283428.html)
 
-由于美国中情局新成立了中共国任务中心，这让共产党感到高度紧张，而中共一贯善于使用群众运动的方式，来排查、监督和打击异议人士，或者被中共定义为敌对分子的人，却美其名曰“人民战争”。美国有线电视新闻网认为，中共新一轮反间防谍宣传战有可能加剧政治猎巫行动，任何被认为不爱中共国的人，都有被举报为“间谍”的风险。
+（本文仅代表作者观点）
 
-文字版原文：[中共军媒煽动民众抓美国间谍](https://gnews.org/zh-hans/1614426/)
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+总编：木白
+编辑：木白
+校对/发稿：Hetangyuese
+
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
