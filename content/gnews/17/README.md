@@ -2,44 +2,27 @@
 ---
 
 
-## 医生因新冠疫苗接种状况而拒绝进行挽救生命的肺移植手术
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1619613/)
+## 有声|全球各地通过罢工和法律手段反对疫苗强制令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1619647/)
 
-作者：Alexandra Lavoie
-翻译: HimaBoy
+配音：香草山美食部 – 玫瑰园
 
+10月22日下午，在美国通用电气公司纽约州总部，超过两百名员工因疫苗强制令举行短暂罢工，并游行抗议。通用电气被要求必须遵守总统行政令，即要求所有美国员工在12月8日前全面接种中共新冠病毒疫苗，否则，他们将失去工作。 10月21日，通用电气南卡罗来纳州分公司，也有数十名员工，在公司举行了同样的抗议活动。许多员工表示，他们希望能自由决定是否要接种疫苗。 据悉，工会计划代表七百余名通用电气的员工，与公司领导层举行会议，希望双方都能提出解决方案。
 
+10月22日，美国亚利桑那州申请临时限制令，用以阻止联邦政府的疫苗强制令。美国亚利桑那州总检察长马克-布尔诺维奇发表声明称，疫苗强制令是美国历史上，对个人自由、联邦制，以及权力分立的最大侵犯之一。在一份与临时限制令同时提交的修正申诉中写道，疫苗强制令侵犯了工人的宪法权利，剥夺他们拒绝疫苗的权利。
 
-让我告诉你乔安妮·杜普伊斯和她丈夫西尔万·桑斯卡蒂埃的故事。
+10月23日，在澳大利亚维多利亚州，有112名不同职业的澳大利亚公民，向维州最高法院提交诉讼，指控首席卫生官布雷特·萨顿，以及其他卫生官僚，违反了维州的《人权宪章》——对许多行业强制执行疫苗接种令，其中包括医疗、教育、运输和建筑等行业。按照《维州人权宪章》，卫生部的这一政策是以非法形式，侵犯了维州人民的基本人权。
 
-乔安妮是一名 36 岁的女性，她因囊性纤维化引起的继发性肺部感染住院一个多月。
+文字版原文：[全球各地通过罢工和法律手段反对疫苗强制令](https://gnews.org/zh-hans/1617069/)
 
-最近，医生告诉乔安妮，她在肺移植等候名单上排名第八，如果她想要接受移植手术，就必须接种疫苗。
+音频处理：喜山必胜Maverick
 
-由于之前接种过的疫苗会产生明显的副作用，乔安妮不愿意接种新冠疫苗。
-
-因此，医生现在已将乔安妮从移植名单中删除，直到她完全接种疫苗为止。
-
-这是无法接受的。我们必须传达这个消息。
-
-人们需要意识到这种拒绝的严重程度。一个女人的生命危在旦夕！
-
-來源：[https://www.rebelnews.com/lung\_transplant\_candidate\_told\_she\_must\_be\_vaccinated\_before\_she\_can\_move\_forward\_with\_the\_procedure](https://www.rebelnews.com/lung_transplant_candidate_told_she_must_be_vaccinated_before_she_can_move_forward_with_the_procedure)
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

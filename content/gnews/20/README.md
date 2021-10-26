@@ -2,29 +2,33 @@
 ---
 
 
-## 世卫组织（WHO）发布最新关于COVID-19会议声明
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1619594/)
+## 大众汽车缺少芯片减产，殃及其供应商
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1619617/)
 
-撰稿：西枫westca
+**撰稿：日本东京方舟农场 海星**
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Z2GUWY4J7RJSHLFPTQG37MWV5M.jpg)图片来源：www.reuters.com
-10月26日WHO发布了第九次关于COVI-19紧急委员会会议的声明。声明指出，COVID-19疫情继续构成“国际关注的突发公共卫生事件”。此会议以视频会议方式在10月22日举行。世卫组织的首次COVID-19紧急委员会于2020年1月22日召开，此后每三个月一次。
+10月25日，《德国之声》发布的一段视频显示，Roeder压模公司因其客户大众汽车缺少芯片减产，正面临着经营的困境。
 
-会议讨论了以下问题：
+Roeder压模公司经理Gerd Roeder表示，作为供应商必须每周供货，但客户没有购货的义务。他进一步解释说，制造的产品已经产生成本，然而大众汽车并不付款购买，导致过去数周销售量接近崩溃。
 
-- SARS-CoV-2的监测工作与挑战；
-- 通过自然感染或疫苗接种获得免疫力以及两者提供的保护；
-- 确认行动内部审查对缔约国通报和加强应对工作的价值；
-- 强调保持对风险知情和多层面的PHSM（公共卫生与社会措施）的重要性。
+视频指出，Roeder压模公司的客户大众汽车目前缺少芯片，生产下调，开工不足，工人们大都情绪低落，均表示情形不是很乐观。
 
+除大众汽车缺少芯片使Roeder压模公司深感困扰之外，这家供应商还缺少原材料铝和镁，它们都由中共提供，但主管该业务的部门已经关闭。Gerd Roeder无奈说，现在已经缩短了工人工作的时间，若情形再不改变，将考虑裁员。
 
-委员会对于非洲区域在应对COVID-19大流行方面所面临的挑战表示关切， 包括其需获得足够的疫苗、诊断和治疗以及收集数据。并认识到大流行病的长期性对人道主义紧急情况、大规模迁移，人口流离失所和其他危机增加了负担。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/S1-LB235_VWHERD_M_20210709115359.jpg)图片来源：https://s.wsj.net/public/resources/images/S1-LB235\_VWHERD\_M\_20210709115359.jpg
 
-委员会建议缔约国应考虑修订其备灾和应对计划以及援助政策，确保能够长期控制这一流行病；保持距离，佩戴口罩、改善室内通风仍是减少病毒传播的关键；此外各国还要对大规模聚集活动的风险进行管理；同时WHO还呼吁，到2021年底使至少40%的各国人口接种疫苗。
+虽然Bosch和Infineon两家生产汽车芯片的大型公司在欧洲建有工厂，但仍无法满足德国的需求。德国的芯片大部分来自台湾、韩国，目前无法供货。
 
-WHO在此次会议根本没有提到COVID-19病毒溯源，也未涉及中共病毒疫苗副作用对人们造成的极大危害，反而呼吁各国加强疫苗接种，其在欺骗民众、掩盖真相的道路上越走越远。
+CT电脑杂志的分析人士称，建造一个最先进的芯片厂需要100亿欧元，所以短期内无法建厂，提供设备的厂家也很少。而且工厂往往依赖一种芯片，因此很难更换供应商或芯片。
 
-**新闻来源：**[Statement on the ninth meeting of the International Health Regulations (2005) Emergency Committee regarding the coronavirus disease (COVID-19) pandemic (who.int)](https://www.who.int/news/item/26-10-2021-statement-on-the-ninth-meeting-of-the-international-health-regulations-%282005%29-emergency-committee-regarding-the-coronavirus-disease-%28covid-19%29-pandemic)
+此外，德国一家当地报纸称，停在汉诺威工业博览会园地的数百辆奔驰货车的车门钥匙里也缺少芯片。
 
-（本文仅代表作者个人观点）
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[缺芯威胁着整个汽车产业](https://www.dw.com/zh/%E7%BC%BA%E8%8A%AF%E5%A8%81%E8%83%81%E7%9D%80%E6%95%B4%E4%B8%AA%E6%B1%BD%E8%BD%A6%E4%BA%A7%E4%B8%9A/av-59619292)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

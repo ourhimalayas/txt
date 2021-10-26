@@ -2,61 +2,139 @@
 ---
 
 
-## 中共要求许家印用个人财富偿还恒大债务
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1619760/)
+## 土地资金等不纳入国家资产，老百姓没有任何福利
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1619824/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/222-f-wzywl.jpg)
+[https://gtv.org/video/id=61783f7e247c5a3f909049b8](https://gtv.org/video/id=61783f7e247c5a3f909049b8)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/H-1.jpg)heisenbergreport.com
-此消息符合习神当今的治国政策。尤其是在新中国联邦的揭露下，了解到盗国贼以及与盗国贼捆绑的利益集团在海外藏匿了如此大的财富，却在国内制造各种危机的情况下，习必须把这些人控制住，把钱弄回来再说。
+中国的光退休所、干休所
+En China con solo las casas de jubilación, y los sitios de descanso para los militares con rango
 
-首先放出此消息的媒体是王岐山好友布隆伯格的《彭博社》，需要花钱才能看到全文，还好有一篇转载的文章，来自《边缘市场》（the edge markets），题目“中共国敦促恒大创始人用个人财富偿还债务”。
+所有的占有的土地和占有的资产
+Todos los terrenos y activos poseídos
 
-全文如下：
+是不计入到国家的资产范围内的
+No son incluidos dentro de los activos del país
 
-北京（10月26日）：据知情人士透露，中共国当局已通知亿万富翁许家印利用个人财富缓解恒大集团不断深化的债务危机。
+它不计入的
+No son contados
 
-知情人士说，北京方面对这位恒大创始人的指示，是在其公司错过了最初的9月23日债券利息兑付日最后期限后发出的。他们在讨论私人问题时要求不要透露姓名，知情人士称，中共国各地政府正在监控恒大银行账户，以确保公司现金用于完成未完工的住房项目，而不是转移支付债权人。
+它不属于
+No pertenece
 
-要求许家印动用自己的财富来偿还恒大的债务，这进一步表明，尽管恒大的危机蔓延到了其他开发商，房地产市场的人气也受到了影响，但北京方面仍不愿安排政府救助。中共习近平主席一直在打击亿万富翁阶层，作为他“共同繁荣”运动的一部分，以减少该国日益严重的贫富差距。
+比如说它不属于房地产
+Por ejemplo, decir que no pertenece a los bienes y raíces
 
-目前尚不清楚许家印的财富是否足够大，流动性是否足以大幅削减恒大的负债。截至6月，恒大的负债已超过3000亿美元，发展商的债券在票面价值上大打折扣，因为投资者做好了准备迎接可能是中共国有史以来最大规模之一的债务重组。
+记帐里面去
+Entrar en la contabilidad
 
-根据彭博亿万富翁指数（Bloomberg Billionaires Index）的评估，许家印的净资产已从2017年峰值时的420亿美元降至约78亿美元，但这一数字仍带有相当大的不确定性。
+它的开支也不算进去
+Sus gastos tampoco son incluidos
 
-许家印的大部分财富来自于他在恒大的控股权，以及他自2009年在香港上市以来从该公司获得的现金股息。根据《彭博社》的计算，由于恒大的慷慨支付，许家印在过去10年中已将约80亿美元收入囊中，目前还不知道许家印是如何将这些股息再投资的。
+它叫什么
+Cómo se llama eso
 
-许家印没有立即回复通过恒大发出的置评请求，中国人民银行（The People’s Bank of China）也没有立即回复置评请求。
+（属于）财政部的整个划拨
+(pertenece) a la asignación completa del Ministerio de Finanzas
 
-上周，恒大将自己从违约的边缘拉了回来，在10月23日宽限期到期前向国际债券持有人支付了8350万美元的利息，这让一些中共国问题观察家感到惊讶，目前尚不清楚这笔资金来自何处。
+财政部划拨是不算这个的
+La asignación del Ministerio de Finanzas no cuenta esto
 
-另外，《路透社》报道称，许家印同意将自己的钱投入一个与债券挂钩的中共国住宅项目，以确保该项目完工，并使债券持有人获得报酬。
+你知道这很夸张吧
+Sabes que esto es una exageración
 
-下一个测试点将是对10月29日到期债券利息的支付，其30天的宽限期即将结束。2022年将出现一堵到期的债务墙，约74亿美元的境内和境外债券即将到期。
+那划拨是在哪儿呢
+Entonces en dónde están las asignaciones
 
-最近几个月，即使许家印将他的电动车和瓶装水公司等曾经受重视的部门的股权挂牌出售，也没有从资产销售中得到什么帮助。
+在中国有多少干休所呢
+Cuántos retiros para los militares con rangos hay en China
 
-恒大地产上周三（10月20日）表示，它取消了出售其物业管理子公司股份的谈判，一位知情人士表示，即使在恒大总部所在地广东省的官员协助促成谈判后，该交易仍告破裂。
+中国有多少个省呢
+Cuántas provincias hay en China
 
-就在一年前，这种支持——以及许家印的富有豪朋友的帮助——足以让该公司度过流动性危机，当时未能为其大陆子公司获得借壳上市。现在，许家印的帝国正在成为习近平主席努力遏制企业集团过度举债和化解房地产市场风险的最大受害者之一。
+中国有多少个县呢
+Cuántos condados hay en China
 
-恒大及其附属公司是通过债务发行、股票销售、银行贷款和影子融资的积极组合而建立起来的，这些融资渠道在打击行动中基本上被切断了。
+大家查一查
+Todos busquen a ver
 
-知情人士称，住房和城乡建设部于8月份指示全国各地的地方子公司监管恒大房地产项目专用托管账户中的资金。知情人士说，在强化监督下，开发商的资金必须首先用于建设，以确保项目的交付。
+中国大概有一万七千个国家（级）的干休所
+En China hay más o menos 17 mil retiros para militares de rango a un nivel nacional
 
-恒大尚未为160万已经支付预付款的购房者完成购房，在购房旺季，其房地产销售暴跌约97%，这进一步削弱了其融资能力。
+一万七千个，不算地方的啊
+Los 17 mil no están dentro de las zonas
 
-该公司的麻烦正在影响更广泛的房地产市场，买家的购买欲望正在消退，9月份，房价开始了6年来的首次下跌。
+不算个省市的
+No cuenta como provincias
 
-中共银行业监管机构上周发誓要继续打压中共国房地产市场，尽管这些政策对负债累累的开发商已经造成了压力，官员们已要求银行再次加快抵押贷款发放的速度，但央行表示，恒大的风险传染是“可控的”，不太可能扩散。
+军队呀、各部委啊
+El ejército, los ministros de cada ministerio
 
-（全文完）
+一万七千个
+17 mil
 
-许家印自己的资产哪里能堵得上这巨大的窟窿？估计利益捆绑者也在助力许，试探习，看看政府是不是真地不救。而习之所以没有法办这些“蛀虫、贪婪企业家”，很大程度还是希望他们在“高点”回笼资金。文贵先生早就预言，恒大是中共国的雷曼兄弟。现在习让恒大撑住，是为了中共内斗的需要。问题是恒大与中共经济的假擀面杖子能那么听话吗？就算许家印听话，他能撑到20大之后吗？
+事实上大概有两万个
+Realmente hay como 20 mil
 
-（文章仅代表作者个人观点）
+这当时统计局统计有两万个
+En aquel momento la Oficina de Estadística hizo un censo de 20 mil
 
-原文链接：
+两万个干休所得编制是多少
+Cuánto es el sistema de ingresos de 20 mil retiros
 
-[https://maa.theedgemarkets.com/article/china-urges-evergrande-founder-pay-debt-personal-wealth-%E2%80%94-sources](https://maa.theedgemarkets.com/article/china-urges-evergrande-founder-pay-debt-personal-wealth-%E2%80%94-sources)
+土地不算钱
+Los terrenos no cuentan como dinero
+
+各种成本都不算
+Ningún tipo de costos cuentan
+
+那都是财政部拨的
+Todos son asignados por el Ministerio de Finanzas
+
+那你说你这社保是
+Entonces tu dices que el seguro social es…
+
+老百姓没有这个待遇啊
+Los ciudadanos no tienen este beneficio
+
+它又不包含的社保基金里面去
+Eso no está incluido dentro del fondo de seguro social
+
+所以当年戴相龙跟我说的一句话
+Por eso Dai Xianglong me dijo una palabra en aquel año
+
+他说文贵啊
+Dijo: Ay Wengui
+
+任何中国人没把社保搞明白的
+No es necesario conversar con ningún chino
+
+你什么都不用跟他聊了
+Que no haya entendido sobre el seguro social
+
+他这个脑子就是有问题了
+El cerebro de esta persona si tiene problemas
+
+———————————————————
+
+**原视频网址**： [https://twitter.com/se1y7cblljselva/status/1451092014993330181?s=24](https://twitter.com/se1y7cblljselva/status/1451092014993330181?s=24)
+
+日期：10/23/2021
+原视频标题：
+Los fondos de los terrenos, entre otros, no están incluidos en los activos nacionales y los ciudadanos no tienen ningún beneficio
+
+原视频日期：10/21/2021
+任务编号：KC196（2623）
+视频时间段：0:00-1:17
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

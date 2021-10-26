@@ -2,47 +2,33 @@
 ---
 
 
-## 新的言论自由应用在盖特，不会让用户陷入“数字监狱”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1619450/)
+## 中国和俄罗斯军舰在太平洋地区进行联合巡逻
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1619510/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/102603.jpg)
-来自澳大利亚《天空新闻》10月24日的报道
+编译：蚂蚁兄弟
 
-**摘要翻译：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/121177415_chinarussianavy2021.jpg)图片来源：bbc.com
 
-盖特首席执行官、川普的前顾问杰森·米勒表示，新的言论自由应用程序盖特的用户不会因为在政治问题上发表意见而被陷入“数字监狱”。
+俄罗斯和中共国海军最近几天已经开始在太平洋地区进行联合巡逻。这两个大国首次合作在世界最大的海洋上航行，此举已被诠释为新版的冷战。
 
-“我们的独特之处在于：第一，我们不会因为任何人的政治信仰而取消或审查或去平台或算法不存在”，米勒先生告诉澳大利亚天空新闻。
+据俄罗斯国防部称，在10月17日至23日期间，两个大国的海军联合在该水域航行。此举引起了日本的警觉，日本确认俄罗斯在将日本海与太平洋分开的津轻海峡进行了演习。
 
-“与此同时，我们也有一个积极稳健的审核政策。为了将这两者结合起来，我们确保不允许非法内容。
+“巡逻队举着俄罗斯和中国的国旗，旨在维护亚太地区的和平与稳定，并保护两国的海上经济活动对象”。俄罗斯国防部在一份声明中说：“作为考察的成员之一，该船队首次通过津轻海峡”。
 
-“例如，你不能用身体伤害来威胁人们，或者你不能使用种族或宗教亵渎的字眼。”
+国际地缘政治的棋盘已经在太平洋地区设置了多年，普京和习近平之间的合作是为了作为对抗美国、英国和澳大利亚之间的军事协定（AUKUS）的一种方式。
 
-“我们确保对环境进行监控，以确保人们的安全。”
+**简评：**
 
-米勒先生表示，该应用程序自7月4日推出以来“像火箭一样起飞”，已经拥有近300万用户。
+**军事方面的示威，作为冷战的一种形式，在很多年中已经没有遇到了。中共国和俄罗斯之间的关系很微妙。在美国政府逐步“示弱”的今天，中俄之间开始了联合的军演。然而，在武力上的威慑是吓不住美国的。美国的强大，不是中俄两国合力便可以对抗的。在人们谈论的热战之外，“超限战”已然在世界全面展开。武力的示威，只不过是“摆摆样子”罢了。经济、金融、疫情、乃至现在所推广的疫苗，才是真正的战场。**
 
-“我们的美国客户群约占我们整个全球客户群的47%，美国以外的客户群占53%，所以盖特已经是一个真正的全球化平台。”他说。
+（文章仅代表作者观点，与GNEWS无关）
 
-**简评： **
-
-爆料革命的战友们都见证了盖特的出生及如火箭般的成长奇迹，也知道盖特如米勒先生所述是一个自由言论的平台。 现在的盖特跟推特和脸书等大科技公司比还是婴儿，所以我们与米勒先生那样的战友一起积极使用和推广盖特，增加盖特的影响能力，让更多的热爱自由民主法治的人们加入这个平台。
-
-新闻链接：[New free speech app GETTR won’t put users in ‘digital jail’ for speaking their minds](https://www.skynews.com.au/opinion/outsiders/new-free-speech-app-gettr-wont-put-users-in-digital-jail-for-speaking-their-minds/video/bb3cc4507e39c15cce065758348f6fc3)
-
-***翻译：**Brianchow*
-
-***校对**：clau*
+**参考资料：**[vozpopuli][Buques de guerra de China y Rusia realizan patrullas conjuntas en el Pacífico](https://www.vozpopuli.com/internacional/buques-guerra-rusia-china-pacifico.html)
 
 * * *
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+*审核：Aries的星*
+*校对：阿伯塔*
+*发布：信心的选择*
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
