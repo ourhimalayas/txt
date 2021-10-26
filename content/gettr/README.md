@@ -130,13 +130,6 @@ With his new platform, Trump may bring his supporters back to the social media w
 
 ---
 
-`@miles 10/25/2021 2:31 AM (UTC)`
-
-10/24/2021 Miles Guo: The stock price of DWAC was going up and down at the fastest speed in the shortest period of time, because of the CCP’s funds doing insider trading and manipulating the stock market. The MAGA supporters and blue collars have been swindled, and the amount of money laundered away is between 5 and 8 billion USD<br/><br/>10/24/2021 文贵直播：DWAC的股价在最短时间内以最快速度大涨大跌，背后全是中共的基金在进行内幕交易和操纵股市，他们割了MAGA支持者和蓝领们的韭菜，洗走了50到80亿美元的钱！<br/>
-![img](https://media.gettr.com/group8/getter/2021/10/25/02/31/7f2ca60d-7ae9-07c9-4fc8-afa3c2922389/out.jpg)
-
----
-
 `@miles 10/25/2021 2:22 AM (UTC)`
 
 10/24/2021 Miles Guo: 3 Reasons Why CCP Set up Financial Trap against Trump<br/><br/>10/24/2021 文贵直播：三个原因为什么中共给川普设金融陷阱
@@ -293,6 +286,13 @@ Statement about Artemisinins, SARS-CoV2 and related topics<br/><br/>关于青蒿
 
 The Pacific Alliance Asia Opportunities Fund and Mr. Guo Wengui have been fighting in New York state court for four years over $88 million.Christopher Gradel founded Pacific Alliance Group Ltd, and he is a Non-Executive Director of ARC Capital Holding, ARC Group Ltd is acting as the financial advisor to Giga Energy, and Yunhong International and Giga Energy Inc, announced Execution of Definitive share exchange, Bruno Wu company’s Sun Seven stars group, his brother Bing Wu, and Samuel Nunberg (political advisor of Trump and sued Guo Wengui for defamation) are shareholders of Giga Energy. On SEC report Bruno Wu is the representative of this deal. The CEO of Yunhong who is also the CEO of Digital World (Patrick Orlando), which is now merging with Trump Media.
 ![img](https://media.gettr.com/group18/getter/2021/10/22/20/1d595219-4927-c02a-b5d9-7773f3bf61e3/746ad7aa8d1fba20c23ccbdb69b7450e.jpg)
+
+---
+
+`@miles 10/22/2021 5:49 PM (UTC)`
+
+Background Information on Yunhong Group (4) 运鸿集团的背景（四） 
+![img](https://media.gettr.com/group39/getter/2021/10/22/17/49/57e15ad8-f2e7-117d-422e-fa8bda6e38c8/6fb25459e00e2463c7c7a246a61204b7.jpg)
 
 ---
 
