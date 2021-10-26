@@ -2,108 +2,46 @@
 ---
 
 
-## 喜悦之旅
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1618952/)
+## COVID-19最新情報｜瑞典、英國新冠死亡案例 集中於「完全接種者」
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1618967/)
 
-作者: 纽约香草山农场-新世界的一员
+**台灣寶島農場 疫情關注組｜發佈日期/ 26/10/2021**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-8.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+
+
+瑞典、英國政府分析數據，發現9月因感染新冠病毒死亡者，絕大多數是完全接種者。這一結論，與西方國家於高疫苗覆蓋率的情形，突破性感染數量激增相符合。
+
+#### 瑞典
+
+[瑞典媒體](https://www.svd.se/forskare-ser-en-vikande-vaccineffekt-i-sverige)報導，公衛部門報告表示9月1日至24日，約[7成（130例）](https://ourworldindata.org/explorers/coronavirus-data-explorer?zoomToSelection=true&amp;time=2020-03-01..latest&amp;facet=none&amp;pickerSort=desc&amp;pickerMetric=total_cases&amp;hideControls=true&amp;Metric=Confirmed+deaths&amp;Interval=Cumulative&amp;Relative+to+Population=false&amp;Align+outbreaks=false&amp;country=~SWE)新冠確診死者是已經完全接種疫苗。報導進一步分析，死亡主要發生在老年族群，但相關人員仍認為瑞典疫苗保護力有下降趨勢。
+
+- 相關：[瑞典研究顯示完全接種疫苗後，抗體將在三個月後急劇下降](https://gnews.org/zh-hant/1576453/)
+- 相關：[疫苗與ADE效應](https://www.chop.edu/centers-programs/vaccine-education-center/vaccine-safety/antibody-dependent-enhancement-and-vaccines)
+
+
+#### 英國
+
+英國衛生部門數據顯示，瑞典情形也在英國發生。[英國、瑞典的疫苗接種率](https://coronavirus.data.gov.uk/details/vaccinations)幾乎相同。
+
+英國衛生安全局 (UKHSA) 於 10 月 7 日發布[報告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1023849/Vaccine_surveillance_report_-_week_40.pdf)，9月份大多數的死亡病例都已經完全接種疫苗。突破性感染而住院治療的病患，也是完全接種者佔多數。UKHSA 的數據顯示，「完全接種疫苗」死亡數量有2281人，遠高於未接種疫苗、部分接種疫苗。
 
 
 
+> Surging [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) in UK with 49,156 new cases and 45 new [#deaths](https://twitter.com/hashtag/deaths?src=hash&amp;ref_src=twsrc%5Etfw) reported on 18 October 2021. 78.9% of all aged 12 and up are DOUBLE VACCINATED. [#Breakthrough](https://twitter.com/hashtag/Breakthrough?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Geoffrey Norman Pain (@FluoridePoison) [October 18, 2021](https://twitter.com/FluoridePoison/status/1450225202353225729?ref_src=twsrc%5Etfw)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Untitled-design-35.png)
-文章被卡新闻被否
-越挫越勇
-永不放弃
-感恩于战友间的互助
-是我一直坚持下去的理由
 
-总是努力着
-总是坚持着
-因为太多的鼓励带来太多的喜悦
-因为太多的被认可萌生太多的动力
-如鱼得水
-那是一种心灵的享受
 
-在中共国一无是处的我
-脱胎换骨般的成为了合格的战士
-同一个天同一个地
-同一个我
-不同的土壤
-不同的教育
-还有那人和人之间的相处之道
-成就了快乐的我
+- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
+- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
+- 相關：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
+- 相關： [COVID-19最新情報｜為何政府「忽視」自然免疫？](https://gnews.org/zh-hant/?p=1610194%28%E5%9C%A8%E6%96%B0%E5%88%86%E9%A0%81%E4%B8%AD%E9%96%8B%E5%95%9F%29)
 
-过去的我不是因为无知
-而是共产幽灵强灌输的思想
-造成了愚昧和无知
-有钱有闲没思想
-井底之蛙天地狭
-美容院
-麻将桌
-自感幸福自骄傲
-自我陶醉自娱乐
-蹉跎岁月南柯梦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/18-6.jpg)
+* * *
 
-新中国联邦鼓励人人做事
-事事都有学习机会
-创造每一个人的学习方式
-努力付出后的被认可肯定
-是一种巨大的进步力量
-所有的鼓励
-像一股强大的推力
-让每一个人发挥内在的潜力
-
-我们的智商没有问题
-有问题的
-是共产党的教育方式
-爹亲娘亲不如党亲
-我们的能力没有问题
-有问题的
-是中共国的人文环境
-比他好的就嫉妒
-嫉妒就挤兑
-不如自己的就鄙视
-鄙视就冷淡
-于是乎
-自卑、懦弱、自我封存
-
-安于平淡、安于现状
-是所有平凡人不知不觉的生活状态
-新中国联邦人
-能者为师
-强者带领
-共同携手
-辅助、培训、鼓励
-每一句共勉
-累积成每一段的进步
-自信、坚强、奋斗不息
-互爱互助共推文明
-
-新中国联邦
-对每一个人都赤诚情意
-爱
-不是大声说出来
-而是用心做出来
-七哥
-感谢您引领我们走向正道主义！
-
-校对/编辑/发稿: Amanda艾曼达
-终审：飞虹
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-4.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-8.jpg)
+新聞來源｜[Natural News](https://www.naturalnews.com/2021-10-25-majority-of-covid-deaths-are-fully-vaccinated.html)
+轉譯｜zhong
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)

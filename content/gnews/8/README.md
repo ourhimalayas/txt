@@ -2,129 +2,47 @@
 ---
 
 
-## 临界点
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1619332/)
+## 新的言论自由应用在盖特，不会让用户陷入“数字监狱”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1619450/)
 
-**– 人类面临存亡线 –
-– 文明逼近临界点 –
-– “保命保财报仇”新解 –**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/102603.jpg)
+来自澳大利亚《天空新闻》10月24日的报道
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/himalaya_7.png)图片来源：雅典娜设计组（小蚂蚁614）
+**摘要翻译：**
+
+盖特首席执行官、川普的前顾问杰森·米勒表示，新的言论自由应用程序盖特的用户不会因为在政治问题上发表意见而被陷入“数字监狱”。
+
+“我们的独特之处在于：第一，我们不会因为任何人的政治信仰而取消或审查或去平台或算法不存在”，米勒先生告诉澳大利亚天空新闻。
+
+“与此同时，我们也有一个积极稳健的审核政策。为了将这两者结合起来，我们确保不允许非法内容。
+
+“例如，你不能用身体伤害来威胁人们，或者你不能使用种族或宗教亵渎的字眼。”
+
+“我们确保对环境进行监控，以确保人们的安全。”
+
+米勒先生表示，该应用程序自7月4日推出以来“像火箭一样起飞”，已经拥有近300万用户。
+
+“我们的美国客户群约占我们整个全球客户群的47%，美国以外的客户群占53%，所以盖特已经是一个真正的全球化平台。”他说。
+
+**简评： **
+
+爆料革命的战友们都见证了盖特的出生及如火箭般的成长奇迹，也知道盖特如米勒先生所述是一个自由言论的平台。 现在的盖特跟推特和脸书等大科技公司比还是婴儿，所以我们与米勒先生那样的战友一起积极使用和推广盖特，增加盖特的影响能力，让更多的热爱自由民主法治的人们加入这个平台。
+
+新闻链接：[New free speech app GETTR won’t put users in ‘digital jail’ for speaking their minds](https://www.skynews.com.au/opinion/outsiders/new-free-speech-app-gettr-wont-put-users-in-digital-jail-for-speaking-their-minds/video/bb3cc4507e39c15cce065758348f6fc3)
+
+***翻译：**Brianchow*
+
+***校对**：clau*
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-**作者：**澄道来了
-**编辑：**翼族
+编辑：【英国伦敦喜庄园编辑部】
 
-能源革命低碳化
-太空科技外星化
-生物内科子宫化
-自媒虚币一统化
-
-“四个化”再强
-若邪共还在
-文明就会一再接受挑战
-
-“四个化”未来
-爆料革命站鳌头
-正道信念七哥永不言败
-
-“保命保财报仇”
-战友新解
-
-“3B”付诸实施
-觉者行动
-
-应急互助组（保命）
-战友自发
-紧随七哥
-提升彼此
-打气活命
-
-时间：
-一年有馀
-范围：
-全球农埸
-战友：
-医药物品
-配备派购
-
-Hpay推广组（保财）
-代理未来
-推广希望
-
-喜币代理无前人
-许可推广虚币魂
-罗斯家族富敌国
-势必为之渊源深
-
-区域性
-行业性
-同步共履
-
-会计师
-虚币师
-互为犄角
-
-家族信讬
-喜币效益
-整合与打理并重
-
-宣讲制度
-讲者设定
-主题与入口同框
-
-理念认可
-达成共识
-愿意尝试
-为首要
-
-现实分享
-趋势引导
-利弊考量
-为次之
-
-成功源于
-多拿一商之家
-多签一主业态
-放大的是千倍效益
-不存在竟争
-（网格倍增原理）
-没有真对手
-（除了自知自识）
-
-灭共铲毐组（报仇）
-一场直播
-一次次战斗
-
-一篇文章
-一排排子弹
-
-GTV
-节目直播
-GNEWS
-文宣表达
-GETTR
-社交媒体
-
-新版“保命保财报仇”
-简称“3B”方案
-战友版
-现实版
-
-人类存亡线
-文明临界点
-
-@ 爱动爱议码10252
-@ 作战室 车上
-@ 澄道来了
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-发布：文武全才
-
-**更多資訊，請關注：**
-[澳大利亞墨爾本雅典娜農場](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亞墨爾本雅典娜農場](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亞墨爾本雅典娜農場](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亞墨爾本雅典娜農場](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
-[澳大利亞墨爾本雅典娜農場](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

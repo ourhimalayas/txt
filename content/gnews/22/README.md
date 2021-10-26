@@ -2,30 +2,33 @@
 ---
 
 
-## 苏丹政变后联合国安理会召开紧急会议
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1619175/)
+## 中共欲低价承包泰国水利项目遭当地人权组织强烈反对
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619230/)
 
-新闻来源：德国法兰克福报网络版
+作者：纽约香草山农场 – 007
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+泰国议员维拉康近日透露，对于泰国备受争议的尤姆河引水工程，由中共控制的北方工业国际公司此前表示，愿意自费在四年内以12亿美元的造价建造该项目。为此，曾两次拒绝该项目评估的泰国政府于上月批准了这一项目的环境影响评估报告。
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-4.jpeg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/gegner-des-putsches-bringen-am-1.jpg)
+当地时间10月25日的消息称，泰国人权组织强烈反对该项目，因担心新水库将淹没村庄，破坏森林，且将对当地克伦土著居民产生不利影响。同时，经评估，此工程“存在严重缺陷”。
 
+中共借一带一路之名，蓝金黄当地政客，不惜血本参与基础设施项目，试图进一步扩大在泰国的影响力。对于中共的经济绑架，东南亚国家应提高警惕。
 
-图片来源： 德新社
+(本文仅代表作者观点)
 
-苏丹发生政变后，联合国安理会希望在星期二的紧急会议上处理这个东非国家的局势。应美国、英国、法国、爱沙尼亚、爱尔兰和挪威的要求，这个最强大的联合国机构预计将在纽约时间下午举行闭门会议。观察员们当天将从萨赫勒地区的联合工作旅行中返回美国。
+参考链接：[中国公司欲承包泰国水利项目 人权环境人士表示反对](https://www.voachinese.com/a/china-shows-interest-in-a-thailand-water-project/6283640.html)
 
-周一早些时候，苏丹的最高军事代表Abdel Fattah al-Burhan将军宣布解除政府中的文职成员, 全国将实行紧急状态。根据新闻部的一份声明，自2019年8月以来与布尔汉共同领导临时政府的总理阿卜杜拉·哈姆杜克被军方成员带到了一个未知的地点。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-据联合国称，军队已经控制了首都喀土穆。机场、桥梁和国家电视台都在武装部队手中，城市的入口被封锁了。
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-联合国苏丹问题特别代表德国的沃尔克·珀特斯（Volker Perthes）说：”这里的路障仍在燃烧，我们可以听到偶尔的枪声，所以随着夜幕降临，当然有可能出现更多的暴力或紧张局势。”他指的是正在进行的针对军队的民主抗议活动。”一些抗议者今天试图进入喀土穆的军队总部。我们随后听到了枪声也看到了伤害，但我们无法确认任何细节。”
-
-德新社记者在当地观察到成千上万的抗议者在喀土穆街头示威，反对军队接管政府。据医生说，在抗议活动中，至少有两人被杀，约80人受伤。几个月来，苏丹一再出现人民要求政治和经济改革的抗议活动。阿尔·布尔汉将军承诺，军队将向民主过渡。他说，目标是在2023年7月的选举后将国家的领导权移交给一个文职政府。
-
-原文链接：[https://www.faz.net/aktuell/politik/ausland/nach-putsch-in-sudan-dringlichkeitssitzung-im-un-sicherheitsrat-17602831.html](https://www.faz.net/aktuell/politik/ausland/nach-putsch-in-sudan-dringlichkeitssitzung-im-un-sicherheitsrat-17602831.html)
-
-免责声明：本文内容仅代表个人观点，与Gnews平台无关。
-
-责任编辑、发布： Shuizhuyu
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
