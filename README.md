@@ -15,80 +15,80 @@
 
 ---
 
-### [加拿大生活美谈 2021-10-21第二十六期](/content/gnews/1/README.md)
- ` canadalifetalk`
-
-### [纽约市政强推疫苗接种遭激烈反抗](/content/gnews/2/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [枪杆子](/content/gnews/3/README.md)
+### [临界点](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本要闻汇编 10月26日](/content/gnews/4/README.md)
+### [俄大型公司签署该国首个人工智能道德准则](/content/gnews/2/README.md)
+ ` HimalayaRussia`
+
+### [墙内要闻汇编 10月26日](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本7成人口已接种两剂中共病毒疫苗](/content/gnews/5/README.md)
+### [加拿大生活美谈 2021-10-21第二十六期](/content/gnews/4/README.md)
+ ` canadalifetalk`
+
+### [纽约市政强推疫苗接种遭激烈反抗](/content/gnews/5/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [枪杆子](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [日本要闻汇编 10月26日](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [赚钱灭共两不误 空壳DWAC来一股](/content/gnews/6/README.md)
+### [日本7成人口已接种两剂中共病毒疫苗](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [赚钱灭共两不误 空壳DWAC来一股](/content/gnews/9/README.md)
  ` 纽约香草山MOS02`
 
-### [房地产税是CCP内斗加剧的表现](/content/gnews/7/README.md)
+### [房地产税是CCP内斗加剧的表现](/content/gnews/10/README.md)
  ` 波士顿五月花农场`
 
-### [青年高失业率引爆“从政”热度，2022年国考报名人数超202万](/content/gnews/8/README.md)
+### [青年高失业率引爆“从政”热度，2022年国考报名人数超202万](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共欲低价承包泰国水利项目遭当地人权组织强烈反对](/content/gnews/9/README.md)
+### [中共欲低价承包泰国水利项目遭当地人权组织强烈反对](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [中共企图以“一国一票”操纵联合国](/content/gnews/10/README.md)
+### [中共企图以“一国一票”操纵联合国](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [SPAC获利，但投资者警告个人崇拜不能取代投资要素](/content/gnews/11/README.md)
+### [SPAC获利，但投资者警告个人崇拜不能取代投资要素](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [苏丹政变后联合国安理会召开紧急会议](/content/gnews/12/README.md)
+### [苏丹政变后联合国安理会召开紧急会议](/content/gnews/15/README.md)
  ` Shuizhuyu`
 
-### [GTV新闻访谈简报|2021年10月26日早](/content/gnews/13/README.md)
+### [GTV新闻访谈简报|2021年10月26日早](/content/gnews/16/README.md)
  ` 纽约香草山MOS01`
 
-### [河北学生家长反映学校食堂问题被刑拘，中共政府忙洗地](/content/gnews/14/README.md)
+### [河北学生家长反映学校食堂问题被刑拘，中共政府忙洗地](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [又一百强房企暴雷！当代置业美元2.5亿债务逾期](/content/gnews/15/README.md)
+### [又一百强房企暴雷！当代置业美元2.5亿债务逾期](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [青岛黄岛区一小吃街发生煤气爆炸事故](/content/gnews/16/README.md)
+### [青岛黄岛区一小吃街发生煤气爆炸事故](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [中共国正在测试高超音速滑翔机吗](/content/gnews/17/README.md)
+### [中共国正在测试高超音速滑翔机吗](/content/gnews/20/README.md)
  ` Shuizhuyu`
 
-### [特殊目的收购公司（SPAC）](/content/gnews/18/README.md)
+### [特殊目的收购公司（SPAC）](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共国疫情扩散 兰州内蒙封城](/content/gnews/19/README.md)
+### [中共国疫情扩散 兰州内蒙封城](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/20/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [10/26/21 香港快讯 林郑下令剔除支联会公司注册 指「结束一党专政」纲领旨在颠覆政权](/content/gnews/21/README.md)
+### [10/26/21 香港快讯 林郑下令剔除支联会公司注册 指「结束一党专政」纲领旨在颠覆政权](/content/gnews/24/README.md)
  ` 英喜-粵語組`
 
-### [新闻述平：为何 “六中全会” 召开在即，习的地盘疫情在扩散](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [莫里森的净零排放目标是一个“骗局”，不是一个计划](/content/gnews/23/README.md)
+### [莫里森的净零排放目标是一个“骗局”，不是一个计划](/content/gnews/25/README.md)
  ` 走进澳洲`
-
-### [暴力雇主的常态化](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳洲防长表示若中共武力犯台将与美国同进退](/content/gnews/25/README.md)
- ` GTV新闻访谈`
 
 ### [COVID-19最新情報｜瑞典、英國新冠死亡案例 集中於「完全接種者」](/content/gnews/26/README.md)
  ` G&#124;News TAIWAN`

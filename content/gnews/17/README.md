@@ -2,28 +2,33 @@
 ---
 
 
-## 中共国正在测试高超音速滑翔机吗
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1619126/)
+## 河北学生家长反映学校食堂问题被刑拘，中共政府忙洗地
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619164/)
 
-新闻来源：德国法兰克福报网络版
+作者：澳喜农场 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据消息称，河北省临漳县一所中学的学生家长反映，该校食堂食物变味、发黑发臭，学生食用后出现腹痛、呕吐的症状。家长在微信群中揭露并引发了更多家长前往学校了解事情真相。随后，当地警方对8名学生家长加以处罚，其中5名家长被控涉嫌寻衅滋事，遭刑事拘留。
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-39.jpeg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/china-ruestet-nuklear-auf.jpg)
+对此，中共政府的做法是其一贯的推诿遮掩。当地时间10 月23日，中共临漳县委宣传部声明称，涉事的中学并未出现学生食物中毒的现象，学生家长发布不实消息，起煽动作用。声明还提及，学校曾临时租用大巴，将全体学生转移到另外一家中学。
 
+(本文仅代表作者观点)
 
-图片来源： FAZ
+参考链接：
+1）[河北5名家长反映学校食堂问题被刑拘 官方：卫生达标未发生食物中毒](https://m.gmw.cn/baijia/2021-10/24/1302650607.html)
+2）[5名学生家长因反映学校食堂卫生问题被刑拘？！官方回应](https://www.thepaper.cn/newsDetail_forward_15057489)
 
-**一种新的武器系统可以躲过美国的导弹防御。北京否认测试高超音速滑翔机，这种滑翔机可以在太空进行攻击。**
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-武器专家赵通（音译）用“繁琐而奇特”描述中国军方在7月和8月进行的两次所谓武器试验。“如果目标是将核弹头送达目标，那是没有效率的“ 赵说。 赵通是卡内基国际和平基金会智囊团， 监测中国的核武器计划的人员。这位科学家认为有关这个高超音速滑翔机的报道只是 “猜测”。
+总编：Irene木木 
+编辑：山本不惑
+校正/发稿：谐趣园
 
-美国情报官员假设中国已经用运载火箭向太空发射了一个具有核能力的高超音速滑翔机。这架滑翔机在飞向目标之前曾部分绕地球飞行，而实际这个滑翔机并没有达到预定目标， 而是距离目标30公里错过了。 军备专家从苏联在20世纪60年代末开发的所谓部分轨道轰炸系统中知道类似的轨迹。所描述的程序也显示出与美国X-37B太空滑翔机的相似之处。中国外交部已经否认了这些报道，而只谈到了对航天器的例行民用测试。
-
-简评： 鉴于最近以来， 中共在台海进行的军事挑衅，各种报道和猜测也甚嚣尘上。 这个有关高超音速滑翔机的报道， 也未必是真实的。中共从来都是真真假假， 虚虚实实， 而假是中共的拿手伎俩。
-
-原文链接：[https://www.faz.net/aktuell/politik/ausland/chinas-nukleare-aufruestung-raketenabwehr-der-usa-als-bedrohung-17601963.html](https://www.faz.net/aktuell/politik/ausland/chinas-nukleare-aufruestung-raketenabwehr-der-usa-als-bedrohung-17601963.html)
-
-免责声明：本文内容仅代表个人观点，与Gnews平台无关。
-
-责任编辑、发布： Shuizhuyu
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
