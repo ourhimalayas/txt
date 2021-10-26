@@ -2,29 +2,27 @@
 ---
 
 
-## 世卫组织（WHO）发布最新关于COVID-19会议声明
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1619594/)
+## 免疫专家：未接种疫苗的人并不危险，接种疫苗的人却很危险
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1619599/)
 
-撰稿：西枫westca
+**撰稿：日本东京方舟农场 子辰**
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Z2GUWY4J7RJSHLFPTQG37MWV5M.jpg)图片来源：www.reuters.com
-10月26日WHO发布了第九次关于COVI-19紧急委员会会议的声明。声明指出，COVID-19疫情继续构成“国际关注的突发公共卫生事件”。此会议以视频会议方式在10月22日举行。世卫组织的首次COVID-19紧急委员会于2020年1月22日召开，此后每三个月一次。
+世界卫生组织欧洲免疫咨询专家组前副总裁克里斯蒂安佩龙教授近期表示，所有接种疫苗的人都必须在冬季隔离，否则可能会患上严重疾病，而未接种疫苗的人对他人并不危险。
 
-会议讨论了以下问题：
+Perronne 教授专门研究热带病理学和新兴传染病，他是公共卫生高级委员会传染病专门委员会主席。
 
-- SARS-CoV-2的监测工作与挑战；
-- 通过自然感染或疫苗接种获得免疫力以及两者提供的保护；
-- 确认行动内部审查对缔约国通报和加强应对工作的价值；
-- 强调保持对风险知情和多层面的PHSM（公共卫生与社会措施）的重要性。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/crr.png)图片来源：https://americasfrontlinedoctors.org/2/frontlinenews/immunization-expert-unvaccinated-people-are-not-dangerous-vaccinated-people-are-dangerous-for-others/
 
+他说，未接种疫苗的人并不危险，但接种疫苗的人对他人是危险的。他解释道：“现在已经在以色列和英国两个国家得到证实。通过与我认识的以色列许多医生的沟通，得知他们遇到了大问题，医院里的重症病例都出现在接种疫苗的人群中。”
 
-委员会对于非洲区域在应对COVID-19大流行方面所面临的挑战表示关切， 包括其需获得足够的疫苗、诊断和治疗以及收集数据。并认识到大流行病的长期性对人道主义紧急情况、大规模迁移，人口流离失所和其他危机增加了负担。
+以色列医生 Kobi Haviv 在第 13 频道新闻中披露，95% 的重病患者都接种了疫苗，完全接种疫苗的人更是占了住院人数的 85-90%。他表示，医院正在开设越来越多的 COVID 分支机构，而疫苗的有效性正在下降或消失。
 
-委员会建议缔约国应考虑修订其备灾和应对计划以及援助政策，确保能够长期控制这一流行病；保持距离，佩戴口罩、改善室内通风仍是减少病毒传播的关键；此外各国还要对大规模聚集活动的风险进行管理；同时WHO还呼吁，到2021年底使至少40%的各国人口接种疫苗。
+*注：本文仅代表作者观点，与 Gnews无关*
 
-WHO在此次会议根本没有提到COVID-19病毒溯源，也未涉及中共病毒疫苗副作用对人们造成的极大危害，反而呼吁各国加强疫苗接种，其在欺骗民众、掩盖真相的道路上越走越远。
+*参考链接：*
 
-**新闻来源：**[Statement on the ninth meeting of the International Health Regulations (2005) Emergency Committee regarding the coronavirus disease (COVID-19) pandemic (who.int)](https://www.who.int/news/item/26-10-2021-statement-on-the-ninth-meeting-of-the-international-health-regulations-%282005%29-emergency-committee-regarding-the-coronavirus-disease-%28covid-19%29-pandemic)
+[Immunization expert: ‘Unvaccinated people are not dangerous; vaccinated people are dangerous for others’](https://americasfrontlinedoctors.org/2/frontlinenews/immunization-expert-unvaccinated-people-are-not-dangerous-vaccinated-people-are-dangerous-for-others/)
 
-（本文仅代表作者个人观点）
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

@@ -2,44 +2,33 @@
 ---
 
 
-## 医生因新冠疫苗接种状况而拒绝进行挽救生命的肺移植手术
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1619613/)
+## 大众汽车缺少芯片减产，殃及其供应商
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1619617/)
 
-作者：Alexandra Lavoie
-翻译: HimaBoy
+**撰稿：日本东京方舟农场 海星**
 
+10月25日，《德国之声》发布的一段视频显示，Roeder压模公司因其客户大众汽车缺少芯片减产，正面临着经营的困境。
 
+Roeder压模公司经理Gerd Roeder表示，作为供应商必须每周供货，但客户没有购货的义务。他进一步解释说，制造的产品已经产生成本，然而大众汽车并不付款购买，导致过去数周销售量接近崩溃。
 
-让我告诉你乔安妮·杜普伊斯和她丈夫西尔万·桑斯卡蒂埃的故事。
+视频指出，Roeder压模公司的客户大众汽车目前缺少芯片，生产下调，开工不足，工人们大都情绪低落，均表示情形不是很乐观。
 
-乔安妮是一名 36 岁的女性，她因囊性纤维化引起的继发性肺部感染住院一个多月。
+除大众汽车缺少芯片使Roeder压模公司深感困扰之外，这家供应商还缺少原材料铝和镁，它们都由中共提供，但主管该业务的部门已经关闭。Gerd Roeder无奈说，现在已经缩短了工人工作的时间，若情形再不改变，将考虑裁员。
 
-最近，医生告诉乔安妮，她在肺移植等候名单上排名第八，如果她想要接受移植手术，就必须接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/S1-LB235_VWHERD_M_20210709115359.jpg)图片来源：https://s.wsj.net/public/resources/images/S1-LB235\_VWHERD\_M\_20210709115359.jpg
 
-由于之前接种过的疫苗会产生明显的副作用，乔安妮不愿意接种新冠疫苗。
+虽然Bosch和Infineon两家生产汽车芯片的大型公司在欧洲建有工厂，但仍无法满足德国的需求。德国的芯片大部分来自台湾、韩国，目前无法供货。
 
-因此，医生现在已将乔安妮从移植名单中删除，直到她完全接种疫苗为止。
+CT电脑杂志的分析人士称，建造一个最先进的芯片厂需要100亿欧元，所以短期内无法建厂，提供设备的厂家也很少。而且工厂往往依赖一种芯片，因此很难更换供应商或芯片。
 
-这是无法接受的。我们必须传达这个消息。
+此外，德国一家当地报纸称，停在汉诺威工业博览会园地的数百辆奔驰货车的车门钥匙里也缺少芯片。
 
-人们需要意识到这种拒绝的严重程度。一个女人的生命危在旦夕！
+*注：本文仅代表作者观点，与 Gnews无关*
 
-來源：[https://www.rebelnews.com/lung\_transplant\_candidate\_told\_she\_must\_be\_vaccinated\_before\_she\_can\_move\_forward\_with\_the\_procedure](https://www.rebelnews.com/lung_transplant_candidate_told_she_must_be_vaccinated_before_she_can_move_forward_with_the_procedure)
+*参考链接：*
 
-（文章仅代表作者个人观点）
+[缺芯威胁着整个汽车产业](https://www.dw.com/zh/%E7%BC%BA%E8%8A%AF%E5%A8%81%E8%83%81%E7%9D%80%E6%95%B4%E4%B8%AA%E6%B1%BD%E8%BD%A6%E4%BA%A7%E4%B8%9A/av-59619292)
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+* * *
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+*编辑：文顺 校对：Ranting 发布：Ranting*

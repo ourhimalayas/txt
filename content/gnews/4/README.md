@@ -2,24 +2,139 @@
 ---
 
 
-## 加拿大卑诗省医护人员揭露医院住院患者黑幕
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1619818/)
+## 土地资金等不纳入国家资产，老百姓没有任何福利
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1619824/)
 
-采编：风云小哥    编译撰稿：苦尽甜来 (文来）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/222-f-wzywl.jpg)
+[https://gtv.org/video/id=61783f7e247c5a3f909049b8](https://gtv.org/video/id=61783f7e247c5a3f909049b8)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/e1f2-knaqvqn5804766.jpg)图片来源：CBC
+中国的光退休所、干休所
+En China con solo las casas de jubilación, y los sitios de descanso para los militares con rango
 
+所有的占有的土地和占有的资产
+Todos los terrenos y activos poseídos
 
-据加拿大自媒体【反叛新闻】10月25日報道，来自卑诗省卫生部的一名内部医护工作人员向该媒体爆料称：目前政府官方报告的因“新冠病毒”感染而住院的病例中有近半数患者与该病毒感染无任何关联。
+是不计入到国家的资产范围内的
+No son incluidos dentro de los activos del país
 
-卑诗省卫生部在今年夏季暂时取消了其多项疫情卫生限制措施后不久，就随即宣布该省为加拿大“新冠病毒”感染病例数激增最快的地区之一。显而易见，政府此举最终被用来加强推行其极权主义的疫情限制措施，并以此对目前各级政府实施的“新冠病毒疫苗”接种政策铺平道路。
+它不计入的
+No son contados
 
-该卫生部举报人表示：当局不仅特意模糊“因新冠病毒感染而住院治疗”的正确定义，而且还利用这些被修改后的住院患者数字来支持其正在实行的各项卫生强制规定。为此，该名勇敢的内部医护人员决定随机汇编有关病患住院原因的数据，并在对比卫生部向公众报告的数字后发现：在以该病毒感染名义住院的患者中，约有50%的人是因为其他疾病而需入院接受治疗。
+它不属于
+No pertenece
 
-（以上内容仅代表原文信息和作者个人观点）
+比如说它不属于房地产
+Por ejemplo, decir que no pertenece a los bienes y raíces
 
-* * *
+记帐里面去
+Entrar en la contabilidad
 
-校对编辑，发稿：硫酸羟氯喹64
+它的开支也不算进去
+Sus gastos tampoco son incluidos
 
-[原文链接：](https://www.rebelnews.com/bc_health_whistleblower_says_50_per_cent_of_covid_hospitalizations_asymptomatic_unrelated)
+它叫什么
+Cómo se llama eso
+
+（属于）财政部的整个划拨
+(pertenece) a la asignación completa del Ministerio de Finanzas
+
+财政部划拨是不算这个的
+La asignación del Ministerio de Finanzas no cuenta esto
+
+你知道这很夸张吧
+Sabes que esto es una exageración
+
+那划拨是在哪儿呢
+Entonces en dónde están las asignaciones
+
+在中国有多少干休所呢
+Cuántos retiros para los militares con rangos hay en China
+
+中国有多少个省呢
+Cuántas provincias hay en China
+
+中国有多少个县呢
+Cuántos condados hay en China
+
+大家查一查
+Todos busquen a ver
+
+中国大概有一万七千个国家（级）的干休所
+En China hay más o menos 17 mil retiros para militares de rango a un nivel nacional
+
+一万七千个，不算地方的啊
+Los 17 mil no están dentro de las zonas
+
+不算个省市的
+No cuenta como provincias
+
+军队呀、各部委啊
+El ejército, los ministros de cada ministerio
+
+一万七千个
+17 mil
+
+事实上大概有两万个
+Realmente hay como 20 mil
+
+这当时统计局统计有两万个
+En aquel momento la Oficina de Estadística hizo un censo de 20 mil
+
+两万个干休所得编制是多少
+Cuánto es el sistema de ingresos de 20 mil retiros
+
+土地不算钱
+Los terrenos no cuentan como dinero
+
+各种成本都不算
+Ningún tipo de costos cuentan
+
+那都是财政部拨的
+Todos son asignados por el Ministerio de Finanzas
+
+那你说你这社保是
+Entonces tu dices que el seguro social es…
+
+老百姓没有这个待遇啊
+Los ciudadanos no tienen este beneficio
+
+它又不包含的社保基金里面去
+Eso no está incluido dentro del fondo de seguro social
+
+所以当年戴相龙跟我说的一句话
+Por eso Dai Xianglong me dijo una palabra en aquel año
+
+他说文贵啊
+Dijo: Ay Wengui
+
+任何中国人没把社保搞明白的
+No es necesario conversar con ningún chino
+
+你什么都不用跟他聊了
+Que no haya entendido sobre el seguro social
+
+他这个脑子就是有问题了
+El cerebro de esta persona si tiene problemas
+
+———————————————————
+
+**原视频网址**： [https://twitter.com/se1y7cblljselva/status/1451092014993330181?s=24](https://twitter.com/se1y7cblljselva/status/1451092014993330181?s=24)
+
+日期：10/23/2021
+原视频标题：
+Los fondos de los terrenos, entre otros, no están incluidos en los activos nacionales y los ciudadanos no tienen ningún beneficio
+
+原视频日期：10/21/2021
+任务编号：KC196（2623）
+视频时间段：0:00-1:17
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

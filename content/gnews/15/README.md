@@ -2,29 +2,48 @@
 ---
 
 
-## 有声|投资数字世界收购公司的十一家机构中 八家由中共控制
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1619657/)
+## 2021/10/26 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1619674/)
 
-配音：香草山美食部 – 玫瑰园
+**主播**：大卫｜**嘉宾**：舒平风
 
-数字世界收购公司在申请上市的文件中，列出了十一家投资机构。郭文贵先生在10月24日的大直播中，展示了这十一家机构的资本构成。除了三家是美国或加拿大的公司以外，其余八家公司全是中共控制的基金。
+1. [GTV视频链接第一部分](https://gtv.org/video/id=6177dfeaeadeb11f5e7a9c55)
+2. [GTV视频链接第二部分](https://gtv.org/video/id=6177e52aeadeb11f5e7a9fce)
 
-收购川普科技的SPAC公司-数字世界，来自吴征，其他股东，包括中共姓李的政协委员，以及运鸿集团，全是中共的情报企业。
 
-CEO克里斯是太平联盟集团的创始人，曾参与对郭文贵先生的法律诉讼超限战。FBI前高管弗兰克，是吴征在美国的合伙人，也是太平联盟案件的调查人。此人不但伪造假信息、假照片，而且多次和吴征一起，策划洗劫美国人的财富。
 
-这次，他们再次伙同吴征，同时出现在这场洗劫与抢劫的并购中。背后由鸿运集团提供资金，涉及马云。这是一场中共全面布局操控的金融超限战。
 
-文字版原文：[投资数字世界收购公司的十一家机构中 八家由中共控制](https://gnews.org/zh-hans/1616297/)
+**板块1–国内政治**
 
-音频处理：喜山必胜Maverick
+1. 中共国加入联合国50周年，习近平在会上强调—反对“零和游戏”、反对“霸权强权”、呼吁人类命运共同体。中共实质—流氓匪帮，奉行“胜者王侯败者寇”思维，无治国能力。已在亚洲东南亚国家实行“霸权主义”。
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2. 为习量身打造的大国治理理念目的：对国内—宣传党的先进性，持续洗脑体制内人士和人民；对国际—打造全新文明形象、推进一带一路发展、促使人民币国际化。习近平崇尚毛泽东，习惯“整人”，掌控军队。
+
+3. 习近平秘密出访卡塔尔等国，表明基本控制国内政治局面，搞定政治对手；计划开始在卡塔尔“打扫战场、收拾战利品”（卡塔尔国家主权基金投资德意志银行，均与海航有千丝万缕的关系）；换血当地情报系统，扶植习派信任的人；企图打乱阿联酋、希腊等国与新中国联邦的合作计划。
+
+**板块2–新疆西藏**
+
+NBA球员Enes Kanter要求耐克公司停止与中共国“现代奴役制”的合作关系，将引发华尔街相关投资者的恐慌，NBA一系列事件引起美国民众反感中共，恰是宣传爆料革命真相的契机。
+
+**板块3–军事**
+
+美国司法部公布前美空军战争学院教授69岁张晓明就隐瞒与中共国官员关系认罪。中共长期腐蚀美国司法界、科学界、国土安全部门等，后续可能都将逐渐被揭露。
+
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+
+[![](https://spark.adobe.com/page/oo9mcfLeDAeIs/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://spark.adobe.com/page/oo9mcfLeDAeIs/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://spark.adobe.com/page/oo9mcfLeDAeIs/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/oo9mcfLeDAeIs/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)

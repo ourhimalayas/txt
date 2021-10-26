@@ -2,33 +2,27 @@
 ---
 
 
-## 大众汽车缺少芯片减产，殃及其供应商
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1619617/)
+## 有声|郭文贵先生大直播再谈疫苗大屠杀
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1619631/)
 
-**撰稿：日本东京方舟农场 海星**
+配音：香草山美食部 – 玫瑰园
 
-10月25日，《德国之声》发布的一段视频显示，Roeder压模公司因其客户大众汽车缺少芯片减产，正面临着经营的困境。
+郭文贵先生在10月24日的大直播中揭露：中共释放病毒只是手段，而借疫苗实行大屠杀，才是中共制造这场灾难的真实目的。
 
-Roeder压模公司经理Gerd Roeder表示，作为供应商必须每周供货，但客户没有购货的义务。他进一步解释说，制造的产品已经产生成本，然而大众汽车并不付款购买，导致过去数周销售量接近崩溃。
+中共和黑暗势力勾结，首先利用病毒制造恐慌、死亡以及经济危机；勾结利用政客，控制各国政府；再由中共十个家族参股控制的大型制药公司，生产毒疫苗；并垄断全球的主流媒体和社交媒体的话语权。掩盖病毒真相，强制接种疫苗。
 
-视频指出，Roeder压模公司的客户大众汽车目前缺少芯片，生产下调，开工不足，工人们大都情绪低落，均表示情形不是很乐观。
+其目的之一，是让老年人大量死亡，金融界亏掉的养老金就不用兑付了；目的之二，是有计划的种族谋杀，接种率最高的犹太人首当其冲，其次是加拿大人和美国人。目的之三，是消灭精英，接种疫苗最多的精英是律师、会计师、明星、运动员和公务员等。由于这些人聪明、专业，且追求民主、自由和法制，解决掉这些人，就可以更好的控制其他人了。这就是中共与黑暗势力企图统治人类的邪恶计划。
 
-除大众汽车缺少芯片使Roeder压模公司深感困扰之外，这家供应商还缺少原材料铝和镁，它们都由中共提供，但主管该业务的部门已经关闭。Gerd Roeder无奈说，现在已经缩短了工人工作的时间，若情形再不改变，将考虑裁员。
+文字版原文：[郭文贵先生大直播再谈疫苗大屠杀](https://gnews.org/zh-hans/1616935/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/S1-LB235_VWHERD_M_20210709115359.jpg)图片来源：https://s.wsj.net/public/resources/images/S1-LB235\_VWHERD\_M\_20210709115359.jpg
+音频处理：喜山必胜Maverick
 
-虽然Bosch和Infineon两家生产汽车芯片的大型公司在欧洲建有工厂，但仍无法满足德国的需求。德国的芯片大部分来自台湾、韩国，目前无法供货。
-
-CT电脑杂志的分析人士称，建造一个最先进的芯片厂需要100亿欧元，所以短期内无法建厂，提供设备的厂家也很少。而且工厂往往依赖一种芯片，因此很难更换供应商或芯片。
-
-此外，德国一家当地报纸称，停在汉诺威工业博览会园地的数百辆奔驰货车的车门钥匙里也缺少芯片。
-
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[缺芯威胁着整个汽车产业](https://www.dw.com/zh/%E7%BC%BA%E8%8A%AF%E5%A8%81%E8%83%81%E7%9D%80%E6%95%B4%E4%B8%AA%E6%B1%BD%E8%BD%A6%E4%BA%A7%E4%B8%9A/av-59619292)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

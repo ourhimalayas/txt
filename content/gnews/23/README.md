@@ -2,26 +2,28 @@
 ---
 
 
-## 免疫专家：未接种疫苗的人并不危险，接种疫苗的人却很危险
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1619599/)
+## 德国慕尼黑汽车游行 呼吁终结中共
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1619611/)
 
-**撰稿：日本东京方舟农场 子辰**
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-世界卫生组织欧洲免疫咨询专家组前副总裁克里斯蒂安佩龙教授近期表示，所有接种疫苗的人都必须在冬季隔离，否则可能会患上严重疾病，而未接种疫苗的人对他人并不危险。
+近日，德国民众在慕尼黑举办了以“终结中共”为主题的汽车游行，目的是提醒德国，不要只顾眼前利益，对中共侵犯人权的罪行采取绥靖政策，并提醒德国民众警惕中共对全世界的威胁和毒害，与之划清界线。
 
-Perronne 教授专门研究热带病理学和新兴传染病，他是公共卫生高级委员会传染病专门委员会主席。
+据大纪元报道，该游行车队23日在警车开道下，穿梭于慕尼黑城，历时两个半小时。游行车辆上有“终结中共”、“中共不等于中国”、“打倒中共恶魔”等大标语。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/crr.png)图片来源：https://americasfrontlinedoctors.org/2/frontlinenews/immunization-expert-unvaccinated-people-are-not-dangerous-vaccinated-people-are-dangerous-for-others/
+据悉，在出发地点，许多民众看到大横幅后都在“终结中共”的请愿书上签名。另外，沿途也有很多民众，拍照摄像、向车队招手或竖大拇指。
 
-他说，未接种疫苗的人并不危险，但接种疫苗的人对他人是危险的。他解释道：“现在已经在以色列和英国两个国家得到证实。通过与我认识的以色列许多医生的沟通，得知他们遇到了大问题，医院里的重症病例都出现在接种疫苗的人群中。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/id13329054-IMG_9501-600x400-1.jpeg)图片来源：https://www.epochtimes.com/b5/21/10/25/n13329025.htm
 
-以色列医生 Kobi Haviv 在第 13 频道新闻中披露，95% 的重病患者都接种了疫苗，完全接种疫苗的人更是占了住院人数的 85-90%。他表示，医院正在开设越来越多的 COVID 分支机构，而疫苗的有效性正在下降或消失。
+据报道，在利益的驱动下，巴伐利亚政治经济界逐渐向中共靠拢，中共国逐渐成为巴伐利亚全球第一大贸易伙伴。而且，巴伐利亚是德国唯一一个给孔子学院提供资金的联邦州。
+
+举办方丹妮拉·达斯卡卢（Daniela Dascalu）女士认为，在巴伐利亚首府慕尼黑进行汽车游行，让人们了解中共对世界的危害，意义重大。
 
 *注：本文仅代表作者观点，与 Gnews无关*
 
 *参考链接：*
 
-[Immunization expert: ‘Unvaccinated people are not dangerous; vaccinated people are dangerous for others’](https://americasfrontlinedoctors.org/2/frontlinenews/immunization-expert-unvaccinated-people-are-not-dangerous-vaccinated-people-are-dangerous-for-others/)
+[組圖：德國民眾慕尼黑汽車遊行 呼籲終結中共](https://www.epochtimes.com/b5/21/10/25/n13329025.htm)
 
 * * *
 

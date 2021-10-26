@@ -2,48 +2,45 @@
 ---
 
 
-## 2021/10/26 大卫作战室直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1619674/)
+## 中共国大使馆涉嫌干预丹麦选举，撕毁候选人海报
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1619690/)
 
-**主播**：大卫｜**嘉宾**：舒平风
+撰稿：Skagen【㊙️翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/bbb.jpg)
+图片：日德兰邮报
 
-1. [GTV视频链接第一部分](https://gtv.org/video/id=6177dfeaeadeb11f5e7a9c55)
-2. [GTV视频链接第二部分](https://gtv.org/video/id=6177e52aeadeb11f5e7a9fce)
+2021年10月26号正值丹麦地区选举即将开始，各大区都在路边公共区域张贴党派候选人大幅海报，突然今天丹麦所有主要媒体开始同时报道同一件事情：
 
+丹麦《政治报》文章标题：《选举海报被撕毁，现在中国大使馆已被举报到警方》
 
+丹麦报纸Berlingske报道标题则最为直接：《哥本哈根候选人向警方举报大使馆撕毁选举海报》
 
+150年历史的Jyllandsposten清晰明白地指出：《政界人士向警方举报在中国大使馆门前的选举海报被盗》
 
-**板块1–国内政治**
+这位政界人士是丹麦冉冉上升的政治新星托马斯·罗登（Thomas Rohden），他是[丹麦中国批判学会](https://kinakritik.dk/)主席，首都地区激进党（Radikale）候选人。上周日托马斯在中共国驻哥本哈根大使馆前悬挂了10张竞选海报，海报的特点是西藏旗旁边有一个微笑的托马斯照片、“停止与中国合作”的竞选口号和激进党的粉红色字体。
 
-1. 中共国加入联合国50周年，习近平在会上强调—反对“零和游戏”、反对“霸权强权”、呼吁人类命运共同体。中共实质—流氓匪帮，奉行“胜者王侯败者寇”思维，无治国能力。已在亚洲东南亚国家实行“霸权主义”。
+当他挂上海报时，中共国大使馆的一些人就出来看了，“我已经能感觉到使馆发生了骚动”, 几个小时后，托马斯的朋友来到了这个地方，看到选举海报不见了。即使不知道目击者，托马斯也想知道幕后黑手是谁。中国大使馆位于根托夫特（Gentofte）一个还没铺好路面的住宅区，“没有人碰巧路过并拉下10张海报，我们不蠢的，我们知道是他们干的。”这位年轻的政治家说。
 
-2. 为习量身打造的大国治理理念目的：对国内—宣传党的先进性，持续洗脑体制内人士和人民；对国际—打造全新文明形象、推进一带一路发展、促使人民币国际化。习近平崇尚毛泽东，习惯“整人”，掌控军队。
+托马斯在周一向警方报告了这起盗窃案，警方证实收到了一份关于在中国大使馆前被身份不明的人盗窃选举海报的报告。
 
-3. 习近平秘密出访卡塔尔等国，表明基本控制国内政治局面，搞定政治对手；计划开始在卡塔尔“打扫战场、收拾战利品”（卡塔尔国家主权基金投资德意志银行，均与海航有千丝万缕的关系）；换血当地情报系统，扶植习派信任的人；企图打乱阿联酋、希腊等国与新中国联邦的合作计划。
+丹麦外交部长Jeppe Kofod周二下午（今天）在一份书面回应中说，他认为大使馆的图片 “表面上令人担忧”，他也在等待警方对此案的结论。他强调，“选举海报和政治表达是我们民主传统的一个核心部分。因此，我也认为，如果原本合法竖立的选举海报因任何原因而被拆除，是非常有问题的。合法竖立的选举海报必须得到尊重，即使人们不同意其信息。我想强调的是，这适用于丹麦的每个人”。
 
-**板块2–新疆西藏**
+托马斯·罗登今年3月份就被情报部门通告他已被中共国监控，他和其他三位批判中共国的人士被限制了行动自由，无法在世界范围内自由旅行。
 
-NBA球员Enes Kanter要求耐克公司停止与中共国“现代奴役制”的合作关系，将引发华尔街相关投资者的恐慌，NBA一系列事件引起美国民众反感中共，恰是宣传爆料革命真相的契机。
+在批评中国的选举海报被移除后，一些丹麦政党希望中国大使出来解释清楚。
 
-**板块3–军事**
+此事显示了中共国大使馆已如惊弓之鸟，龟缩在使馆也就罢了，或来个“强烈抗议“也行，10张海报吓成这样，赤急白脸直接手伸到公共区域干起干预所在国选举的事。撕也好，偷也好，丹麦警察接了案子，是要给丹麦人民一个交代的，现在所有媒体同一时间统一口径揭露真相，政府，议会各党派齐齐上阵，可见丹麦各界对中共国已经是恨到牙根子里了。
 
-美国司法部公布前美空军战争学院教授69岁张晓明就隐瞒与中共国官员关系认罪。中共长期腐蚀美国司法界、科学界、国土安全部门等，后续可能都将逐渐被揭露。
+（文章只代表作者个人观点）
 
-**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+参考来源：
 
-- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
-- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+1. [丹麦年轻政治家罗登： 要一直起诉中共的反人类罪行](https://gnews.org/zh-hans/955103/)
 
-[![](https://spark.adobe.com/page/oo9mcfLeDAeIs/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://spark.adobe.com/page/oo9mcfLeDAeIs/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
-*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
+[2. TV2](https://nyheder.tv2.dk/politik/2021-10-26-valgplakater-fjernet-ved-kinas-ambassade)
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+3. [Berlingske](https://www.berlingske.dk/samfund/kinakritisk-koebenhavnerkandidat-politianmelder-ambassade-for-at-flaa)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+4. [Politiken](https://politiken.dk/indland/art8440740/Kinakritiske-valgplakater-blev-revet-ned-nu-er-ambassade-politianmeldt)
 
-
-*编辑：【英国伦敦喜庄园编辑部】*
-[![](https://spark.adobe.com/page/oo9mcfLeDAeIs/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/oo9mcfLeDAeIs/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+5.[Jyllandsposten](https://jyllands-posten.dk/indland/ECE13400463/politiker-har-politianmeldt-tyveri-af-valgplakater-foran-den-kinesiske-ambassade/)
