@@ -2,12 +2,36 @@
 ---
 
 
-## 群马县8人已全部接种2针疫苗，仍感染中共病毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1617885/)
+## 我什么时候可以在加拿大获得 Starlink 服务？
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1617935/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10._26-scaled.jpg)
-（文章仅代表作者个人观点，与GNEWS无关）
+**翻译：**昔马千羽
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1358.png)图片来源：网络
+Starlink 于 2021 年初在加拿大上市。当您订购 Starlink 时，您会收到一封确认电子邮件，其中包含预计发货时间范围。 您还可以通过登录您的在线帐户来查看此信息。 根据 Starlink 网站，大多数套件会在 2 周内发货。
 
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+Starlink 的本地网站最近上线，承诺在“2021 年中后期”为大多数地址提供服务。 服务是按照“先到先得”的原则提供的，但就可用服务数量或预期客户负载而言，没有真正的迹象表明这真正意味着什么。
+
+Starlink 在加拿大的费用是多少？
+
+Starlink 的单月计划定价为 129 加元，没有规定的数据上限。
+
+然而，还有更多。 您还需要购买接收器设备和硬件，费用为 649 加元加上 65 加元的运输和处理费用。 如果您被选为 Starlink 客户，则必须预先支付设备和运费。
+
+Starlink 在加拿大的速度有多快？
+
+Starlink 正在宣传其服务将能够达到 50Mb/s 到 150Mb/s 的速度，在大多数位置延迟从 20 毫秒到 40 毫秒。 但它还指出，“也会有短暂的完全没有连接的时期。” 从理论上讲，随着 Starlink 随着时间的推移增加其卫星舰队，这将不是一个问题。
+
+但是，与任何无线技术一样，许多因素都会影响您的网络速度，包括环境和网络内的需求。 所以就像一条繁忙的道路，如果有太多的客户试图同时访问互联网，每个人的服务都可能会变得缓慢。 这就是 Starlink 不提供普遍服务的原因之一。
+
+**译者注：**在疫苗灾难爆发后，出现各种错综复杂局面，wifi的保障至关重要，
+
+希望大家密切关注马斯克星链计划的进展，尽早未雨绸缪，多做准备。
+
+新闻链接：[https://www.finder.com/ca/starlink](https://www.finder.com/ca/starlink)
+
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+
+编辑/发布：LILY
+
+20211025
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)

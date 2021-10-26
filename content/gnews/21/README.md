@@ -2,36 +2,45 @@
 ---
 
 
-## 我什么时候可以在加拿大获得 Starlink 服务？
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1617935/)
+## 澳大利亚针对中共的大动作：Telstra收购Digicel Pacific
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1617969/)
 
-**翻译：**昔马千羽
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1358.png)图片来源：网络
-Starlink 于 2021 年初在加拿大上市。当您订购 Starlink 时，您会收到一封确认电子邮件，其中包含预计发货时间范围。 您还可以通过登录您的在线帐户来查看此信息。 根据 Starlink 网站，大多数套件会在 2 周内发货。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-Starlink 的本地网站最近上线，承诺在“2021 年中后期”为大多数地址提供服务。 服务是按照“先到先得”的原则提供的，但就可用服务数量或预期客户负载而言，没有真正的迹象表明这真正意味着什么。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/telstra-shop-sydney.jpg)
 
-Starlink 在加拿大的费用是多少？
 
-Starlink 的单月计划定价为 129 加元，没有规定的数据上限。
 
-然而，还有更多。 您还需要购买接收器设备和硬件，费用为 649 加元加上 65 加元的运输和处理费用。 如果您被选为 Starlink 客户，则必须预先支付设备和运费。
+图片来源：zdnet.com
 
-Starlink 在加拿大的速度有多快？
 
-Starlink 正在宣传其服务将能够达到 50Mb/s 到 150Mb/s 的速度，在大多数位置延迟从 20 毫秒到 40 毫秒。 但它还指出，“也会有短暂的完全没有连接的时期。” 从理论上讲，随着 Starlink 随着时间的推移增加其卫星舰队，这将不是一个问题。
+编译：小红帽
 
-但是，与任何无线技术一样，许多因素都会影响您的网络速度，包括环境和网络内的需求。 所以就像一条繁忙的道路，如果有太多的客户试图同时访问互联网，每个人的服务都可能会变得缓慢。 这就是 Starlink 不提供普遍服务的原因之一。
+澳大利亚电信公司Telstra已同意使用纳税人的18亿美元现金购买太平洋地区最大的电信公司Digicel Pacific，以防止其被中共国拥有。
 
-**译者注：**在疫苗灾难爆发后，出现各种错综复杂局面，wifi的保障至关重要，
+Digicel Pacific的销售额为21亿美元，在巴布亚新几内亚、汤加、斐济、瑙鲁、萨摩亚和瓦努阿图有业务。该公司的出售将于明年完成。
 
-希望大家密切关注马斯克星链计划的进展，尽早未雨绸缪，多做准备。
+大部分费用由澳大利亚政府通过澳大利亚出口金融公司承担，其余费用由Telstra支付。
 
-新闻链接：[https://www.finder.com/ca/starlink](https://www.finder.com/ca/starlink)
+中共国有企业中国移动曾表示有兴趣收购Digicel，但澳大利亚政府不希望该战略资产落入中国共产党之手。
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+在一份联合声明中，澳大利亚外交部长玛丽斯·佩恩（Marise Payne）、贸易部长丹德（Dan Tehan）以及国际发展和太平洋部长泽德·塞塞利亚（ Zed Seselja）表示，澳大利亚政府希望看到该协议的长期回报。
 
-编辑/发布：LILY
+部长们周一表示，此次收购还反映了澳大利亚政府的承诺–支持该地区安全可靠的基础设施的发展。
 
-20211025
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+创办该公司的爱尔兰亿万富翁丹尼斯·奥布赖恩 (Denis O’Brien) 将加入该公司的新董事会。
+
+明年年中完成收购后，Telstra将控制Digicel Pacific100%的股份。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Australia’s big move against China: Telstra buys Digicel Pacific (msn.com)](https://www.msn.com/en-au/news/australia/australia-s-big-move-against-china-telstra-buys-digicel-pacific/ar-AAPUWO7?ocid=msedgntp)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

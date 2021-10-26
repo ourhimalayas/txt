@@ -2,20 +2,24 @@
 ---
 
 
-## 雅典娜时报-第093期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1617793/)
+## 加媒体：中共六中全会行将出台历其史性决议
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1617831/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+原文采编：文莱      编译撰稿：文所未闻
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/10/49.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/50.png)
-（文章内容仅代表作者个人观点，与GNEWS无关）
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-6.jpg)图片来源： VOA
 
-***发布：小红帽***
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据加拿大自媒体《叛逆新闻》10月25日报道，在中共即将召开的《六中全会》会议上，中共核心集团成员将可能通过一项重要决议以彰显习近平的“伟大”领导才能，以及向海外输出中共国模式的所谓“战狼外交路线”。
+
+据中共媒体称，这项决议将涉及到中共党史，包括该政权历史上另外两次标志着其方向性巨大变化的决议。其中一个是在1945年确立了毛泽东领导地位的《中共关于若干历史问题的决议》，另一个是在1981年树立了邓小平统治权威的《关于建国以来党的若干历史问题的决议》。
+
+对此，有中共问题专家分析表示，该《六中全会决议》是党内各主要派别之间权力斗争的结果，同时也标志着其内部巨大分裂和残酷斗争的短暂结束。
+
+（以上内容仅代表原文信息和作者个人观点）
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://www.rebelnews.com/chinese_communist_party_set_to_pass_defiant_resolution_laying_out_foreign_policy)

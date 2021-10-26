@@ -2,38 +2,20 @@
 ---
 
 
-## 蓬佩奥指出世界面临撕裂的三大原因都源自CCP
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1617967/)
+## 为控制全球中共国加大了收集人类基因数据的力度
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1617994/)
 
-作者：日本方舟农场 – Andy5
+采编：Ucool优酷     编译撰稿：硫酸羟氯喹64
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-9-edited.jpg)图片说明：后千禧年
 
-近日，美国前国务卿蓬佩奥出席World Knowledge Forum时指出世界面临撕裂的三大原因都源自中国共产党。一是由于中共撒谎以及联合国对中共卑躬屈膝而造成全世界大流行的中共病毒；二是中共的一带一路项目，其本质就是新型帝国主义；三是中共开始着手取代美国的领导地位，比如在疫情期间中共没有放下报复美国的野心反而让其野心更加膨胀，它们撕毁了本该遵守至2047年的中英联合声明。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-120.jpg)
-蓬佩奥国务卿说，看到香港沦陷以及中共对其之前庄严承诺过的义务表现出的轻蔑态度，每个人都该问自己，中共国所签的哪一个正式文件会得到中共的执行？同时，蓬佩奥国务卿明确指出，中共就是个强盗政权，中共国被一群强盗所领导着。
 
-参考链接：
+据加拿大自媒体《后千禧年》10月23日报道，【美国国家情报局反间谍和安全中心】代理主任奥兰多近日表示，中共国及其他战略对手正在使用一切合法或非法手段来获取美国的高新科技。
 
-[蓬佩奧國務卿在Wolrd Knowledge Forum的演講](https://gettr.com/post/pf49hc950a)
+最近，【美国家安全委员会】的一份最新简报警告称，由于中共国企业间谍通过长期盗取美国公司的技术和知识产权，并以此主导其人工智能等新兴高科技领域的开发，试图获得经济优势，以实现与美国对抗的战略平衡。因此，美国必须做更多工作来确保其“关键技术”，包括量子计算、半导体和新兴生物经济领域等新兴科技的领先地位。
 
-（本文仅代表作者观点）
+据报道，在“新冠病毒”疫情的影响下，人类各项健康数据的价值变得越来越重要。因此，已建立好完善人类基因数据库的国家，将在未来对大流行疾病的治疗方案方面拥有优势。而目前中共当局正在使用一切手段收集世界各地的医疗、健康和人类基因信息，并且在该方面已经获得了明显优势。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+（以上内容仅代表原文信息和作者个人观点）
 
-总编/编辑：木白
-校对/发稿：Fei797
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[原文链接：](https://thepostmillennial.com/china-ramping-up-efforts-to-collect-genetic-data)

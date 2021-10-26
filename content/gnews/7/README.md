@@ -2,26 +2,26 @@
 ---
 
 
-## 有声|中共军媒煽动民众抓美国间谍
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1618110/)
+## 2021年10月24日郭文贵先生：吴征家族会比王健惨
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1618137/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-中共军媒《解放军报》17日在微博发帖，煽动墙内老百姓开展所谓反间防谍“人民战争”， 号召民众学习‘朝阳大妈’和’捞铜渔民’而努力抓间谍。
+#### 剪辑：玉米地的小蜗牛
 
-所谓朝阳大妈指的是，中共政府最基层组织居委会中的中老年妇女，她们兼任政府在居民日常生活中的耳目；而捞铜渔民则是指，在南中国海尾随美军考察船，捞取考察船放出的水文探测潜水器，然后上交中共的渔民。
+#### 吴征家族会比王健惨；川普的案件会以滑稽结果收场；川普和新中国联邦的关系会比想象中好。
 
-由于美国中情局新成立了中共国任务中心，这让共产党感到高度紧张，而中共一贯善于使用群众运动的方式，来排查、监督和打击异议人士，或者被中共定义为敌对分子的人，却美其名曰“人民战争”。美国有线电视新闻网认为，中共新一轮反间防谍宣传战有可能加剧政治猎巫行动，任何被认为不爱中共国的人，都有被举报为“间谍”的风险。
+吴征的被刑事调查这件事情，几乎可以改变中美之间所有过去这些年跟吴征有官司所有的案子。记住我这句话，这事巨大 你们不懂，它很大啊。而且吴征和杨澜和他孩子， 一定会（成为）世界上比王健家族还惨的人。
 
-文字版原文：[中共军媒煽动民众抓美国间谍](https://gnews.org/zh-hans/1614426/)
+一 、王健毕竟没骗美国人，他（吴征）骗得全是美国人，而且涉及到美国情报和政治啊。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+那么，同时我告诉大家，川普总统这个SPAC， 最后的结果，是（以）非常的荒唐， 滑稽，和灾难的结果结束的。这一点， 一点都无容置疑。
+
+最后，关于川普总统和爆料革命的关系，和Gettr的关系，会比你想象好得多， 会很滑稽啊，但是会比你想象的好。
+
+***发布：小红帽***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

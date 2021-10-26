@@ -2,33 +2,38 @@
 ---
 
 
-## 日本要闻汇编 10月25日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1617918/)
+## 蓬佩奥指出世界面临撕裂的三大原因都源自CCP
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1617967/)
 
-#### 素材：东京樱花团｜GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-19.png)[*图片来源*](https://newsstatic.rthk.hk/images/mfile_1613529_1_L_20211005094932.jpg)
-1、[**五个都府县缩时营业结束 经济活动重启**](https://china.kyodonews.net/news/2021/10/e7051397e4dc-5-.html)
+作者：日本方舟农场 – Andy5
 
-共同社25日消息，作为新冠防疫措施在日本埼玉、千叶、东京、神奈川、大阪5个都府县持续实施的餐饮店缩短营业时间要求25日已解除，经济活动全面重启。新增感染人数在全国范围内持续减少趋势，已接种完两剂疫苗的人口比例也接近七成。餐饮店深夜营业预计也将造成人流增加，当务之急是在贯彻防疫措施的同时，为防备疫情再度蔓延确保病床。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-2、[**众院选举候选人重视社交网站 81%使用推特**](https://china.kyodonews.net/news/2021/10/01547c62f2f9--81.html)
+近日，美国前国务卿蓬佩奥出席World Knowledge Forum时指出世界面临撕裂的三大原因都源自中国共产党。一是由于中共撒谎以及联合国对中共卑躬屈膝而造成全世界大流行的中共病毒；二是中共的一带一路项目，其本质就是新型帝国主义；三是中共开始着手取代美国的领导地位，比如在疫情期间中共没有放下报复美国的野心反而让其野心更加膨胀，它们撕毁了本该遵守至2047年的中英联合声明。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-120.jpg)
+蓬佩奥国务卿说，看到香港沦陷以及中共对其之前庄严承诺过的义务表现出的轻蔑态度，每个人都该问自己，中共国所签的哪一个正式文件会得到中共的执行？同时，蓬佩奥国务卿明确指出，中共就是个强盗政权，中共国被一群强盗所领导着。
 
-22日从日本选举信息公司“选举.com”的调查结果获悉，本次众院选举1051名候选人中，使用“推特”的占全体的81%，使用“脸书”的也达到了81%，使用视频网站“YouTube”的有60%，使用照片分享APP“Instagram”的有51%。
+参考链接：
 
-3、[**日经指数因众院选举前景不明收跌0.71%**](https://china.kyodonews.net/news/2021/10/c3160d61ce68-071.html)
+[蓬佩奧國務卿在Wolrd Knowledge Forum的演講](https://gettr.com/post/pf49hc950a)
 
-东京股市25日迎来新的一周，日经指收盘较上周五下跌204.44点，报28600.41点，跌幅为0.71%。24日投计票的参院补选中，执政党和在野党方面一胜一负，众院选举前景不明，导致股市空方占优。
+（本文仅代表作者观点）
 
-4、[**美国海军部长称日美同盟“特别重要”**](https://china.kyodonews.net/news/2021/10/548dd0a53e73.html)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-正在日本访问的美国海军部长卡洛斯·德尔·托罗25日举行了与日美媒体的电话记者会。他强调“维持印度太平洋地区的和平与安全，对两国而言是共同目标”，要实现日美倡导的“自由开放的印度太平洋”，“日美同盟将发挥特别重要的作用”。
+总编/编辑：木白
+校对/发稿：Fei797
 
-5、[**日本开发出刷手指确认疫苗接种证明系统**](https://www3.nhk.or.jp/nhkworld/zh/news/328876/)
+**更多资讯，更多关注**
 
-日本成功研发出一种新冠疫苗接种证明确认系统，只要刷手指就能确认疫苗接种证明。该系统的研发小组表示，希望将来能够在活动会场等处投入实际应用。该系统由日立制作所、鹿岛建设公司和九州大学等组成的小组研发而成。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-（本文只代表个人观点，与Gnews网站无关）
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
