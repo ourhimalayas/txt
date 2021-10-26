@@ -2,24 +2,12 @@
 ---
 
 
-## 加媒体：中共六中全会行将出台历其史性决议
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1617831/)
+## 辱共神曲《玻璃心》播放量突破1600万！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1617892/)
 
-原文采编：文莱      编译撰稿：文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1026-scaled.jpg)
+（文章仅代表作者个人观点，与GNEWS无关）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-6.jpg)图片来源： VOA
-
-
-据加拿大自媒体《叛逆新闻》10月25日报道，在中共即将召开的《六中全会》会议上，中共核心集团成员将可能通过一项重要决议以彰显习近平的“伟大”领导才能，以及向海外输出中共国模式的所谓“战狼外交路线”。
-
-据中共媒体称，这项决议将涉及到中共党史，包括该政权历史上另外两次标志着其方向性巨大变化的决议。其中一个是在1945年确立了毛泽东领导地位的《中共关于若干历史问题的决议》，另一个是在1981年树立了邓小平统治权威的《关于建国以来党的若干历史问题的决议》。
-
-对此，有中共问题专家分析表示，该《六中全会决议》是党内各主要派别之间权力斗争的结果，同时也标志着其内部巨大分裂和残酷斗争的短暂结束。
-
-（以上内容仅代表原文信息和作者个人观点）
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-[原文链接：](https://www.rebelnews.com/chinese_communist_party_set_to_pass_defiant_resolution_laying_out_foreign_policy)
+*编辑：东京樱花团/简报小组*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

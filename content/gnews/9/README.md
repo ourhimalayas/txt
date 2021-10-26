@@ -2,20 +2,12 @@
 ---
 
 
-## 加拿大安省高等法院针对疫苗政策颁布临时禁令
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1617814/)
+## 群马县8人已全部接种2针疫苗，仍感染中共病毒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1617885/)
 
-编译撰稿：文莱      校对编辑：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10._26-scaled.jpg)
+（文章仅代表作者个人观点，与GNEWS无关）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/s-1-edited.jpg)图片来源：REBELNEWS
-
-
-据加拿大自媒体【反叛新闻】10月25日报道，安大略省高等法院已对该省【大学健康系统】试图解雇其尚未接种“新冠病毒疫苗”的员工发出了临时禁令。该系统包括【多伦多综合医院】和【多伦多西部医院】、【玛格丽特公主癌症中心】、【多伦多康复研究所】以及【米切纳教育研究所】等。
-
-安省高等法院法官在其发布的裁决书中提到，原告【大学健康系统】的那些未接种该疫苗员工，由于无法在其个人和家庭环境中冒着挑战当局政策而陷入贫困的巨大风险。为此，他们可能被迫接受违背其个人意愿的做法，因而原告此举将对这些员工造成无法挽回的严重伤害。
-
-据悉，这是安省“新冠病毒疫苗强制接种政策”首次遭到法院的阻止。虽然法官只是根据本案的具体实施情况发布了临时禁令，但它使得该省那些意欲采取强制解雇其未接种该疫苗员工的雇主感到不安，而可能导致其更加关注工作场所在该疫苗接种政策下的便利或豁免请求。
-
-（以上内容仅代表原文信息和作者个人观点）
-
-[原文链接：](https://www.rebelnews.com/ontario_superior_court_issues_interim_injunction_against_toronto_hospital_network_vaccine_mandate)
+*编辑：东京樱花团/简报小组*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

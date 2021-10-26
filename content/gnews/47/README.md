@@ -2,37 +2,33 @@
 ---
 
 
-## 中共国多地接连发生爆炸事故
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1617062/)
+## 全球各地通过罢工和法律手段反对疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1617069/)
 
-作者：美东香草山农场 – 山本不惑
+作者：美东香草山农场 – 文真
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日来，中共国从北到南多个城市，接连发生爆炸事故。
+10月22日下午，在美国通用电气公司纽约州总部，超过两百名员工因疫苗强制令举行短暂罢工，并游行抗议。通用电气被要求必须遵守总统行政令，即要求所有美国员工在12月8日前全面接种中共新冠病毒疫苗，否则，他们将失去工作。 10月21日，通用电气南卡罗来纳州分公司，也有数十名员工，在公司举行了同样的抗议活动。许多员工表示，他们希望能自由决定是否要接种疫苗。 据悉，工会计划代表七百余名通用电气的员工，与公司领导层举行会议，希望双方都能提出解决方案。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-20.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-16.jpeg)
 
-10月21日上午，辽宁沈阳市和平区的一家餐厅发生爆炸。当地出动多台殡仪馆车辆、消防车及120急救车。现场目击者称，爆炸升起的烟尘像一朵蘑菇云。爆炸威力巨大，严重波及整个街区。事故已造成4人死亡、3人重伤、44人轻伤。
+10月22日，美国亚利桑那州申请临时限制令，用以阻止联邦政府的疫苗强制令。美国亚利桑那州总检察长马克-布尔诺维奇发表声明称，疫苗强制令是美国历史上，对个人自由、联邦制，以及权力分立的最大侵犯之一。在一份与临时限制令同时提交的修正申诉中写道，疫苗强制令侵犯了工人的宪法权利，剥夺他们拒绝疫苗的权利。
 
-10月23日晚上，内蒙阿拉善盟发生爆炸。造成4人死亡、1人重伤、2人轻伤。爆炸发生地点位于，巴音敖包工业园区、蒙古中高化工有限公司的氧化车间。
-
-10月24日早上，辽宁大连瓦房店的一栋民居发生燃气爆炸。视频显示，爆炸引发了大火。事故造成2死7伤。不久前，在9月11日，大连市普兰店区一住户家中液化气罐泄漏并引发爆炸，造成8死5伤。
-
-10月24日下午，江苏南京航空航天大学的实验室发生爆炸，现场一度出现白色蘑菇云。爆炸发生地，位于材料科学与技术学院的实验楼。目击者称，现场两度传出爆炸声。事故已造成2死9伤。
-
-目前，关于这些爆炸案件的处理措施，中共官方没有任何后续报道。
+10月23日，在澳大利亚维多利亚州，有112名不同职业的澳大利亚公民，向维州最高法院提交诉讼，指控首席卫生官布雷特·萨顿，以及其他卫生官僚，违反了维州的《人权宪章》——对许多行业强制执行疫苗接种令，其中包括医疗、教育、运输和建筑等行业。按照《维州人权宪章》，卫生部的这一政策是以非法形式，侵犯了维州人民的基本人权。
 
 (本文仅代表作者观点)
 
 参考链接：
-1）[沈阳一饭店爆炸致4死47伤 事发区域此前发生过两次爆炸](https://news.sina.com.cn/c/2021-10-22/doc-iktzscyy1033489.shtml)
-2）[内蒙古阿拉善一化工厂爆炸已致4死3伤](http://www.news.cn/local/2021-10/23/c_1127987775.htm)
-3）[大连再发生燃气爆炸，2人死亡](https://www.dw.com/zh/大连再发生燃气爆炸2人死亡/a-59603728)
-4）[南京航空航天大学一实验室爆燃致2人死，有人听到不止一次爆炸声](https://news.sina.com.cn/c/2021-10-24/doc-iktzqtyu3315231.shtml)
+1）[https://gettr.com/post/pey4fe5b7c](https://gettr.com/post/pey4fe5b7c)
+2）[GE workers protest vaccine mandate](https://wnyt.com/capital-region-comeback/ge-general-electric-workers-protest-vaccine-mandate-coronavirus-covid-19-schenectady/6277770/)
+3）[200+ GE employees, union members stage walk-out in Schenectady Friday protesting vaccine mandate](https://www.news10.com/news/local-news/200-ge-employees-union-members-stage-walk-out-in-schenectady-friday-protesting-vaccine-mandate/)
+4）[Arizona seeks temporary restraining order to stop Biden vaccine mandate](https://www.fox10phoenix.com/news/arizona-seeks-temporary-restraining-order-to-stop-biden-vaccine-mandate)
+5）[Arizona Requests Temporary Restraining Order to Halt Biden Vaccine Mandate](https://www.breitbart.com/health/2021/10/23/arizona-requests-temporary-restraining-order-to-halt-biden-vaccine-mandate/)
+6）[维多利亚州挑战疫苗强制令，112名原告加入诉讼](https://gnews.org/zh-hans/1613979/)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-总编：正义的小新
-编辑：文真 
+总编：Jack Li文阳，正义的小新
+编辑：Delilah小胖，山本不惑，Ivy001
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

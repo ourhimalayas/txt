@@ -2,37 +2,38 @@
 ---
 
 
-## 有声|美国CDC表示将重新定义完全接种疫苗的标准
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1617602/)
+## 免疫专家：“未接种疫苗的人并不危险，接种疫苗的人对其他人来说是危险的”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1617639/)
 
-配音：香草山美食部 – 玫瑰园
+编译：七叶之芒
+![](https://americasfrontlinedoctors.org/2/wp-content/uploads/2021/08/crr-1024x568.png)图片来源： americasfrontlinedoctors.org
+世界卫生组织欧洲免疫专家咨询小组,前副主席克里斯蒂安-佩罗内教授昨天说，所有接种过疫苗的人必须在冬季进行隔离，否则有可能患上严重疾病。
 
-疾病控制和预防中心（CDC）主任Rochelle Walensky10月22日表示，随着新冠疫苗加强针的日益普及，美国可能会改变未来全面接种疫苗含义的定义。
+佩罗内专门研究热带病学和新出现的传染病。他曾是公共卫生高级委员会传染病专业委员会的主席。
 
-她告诉记者：“我们尚未更改‘完全接种疫苗’的定义。我们将继续关注这一点。我们未来可能需要更新对‘完全接种疫苗’的定义。”她说，如果您有资格获得加强针，请继续接种，我们将继续跟进。
+这位传染病专家确认了以色列和英国迅速恶化的局势，并表示：“接种疫苗的人应该被隔离，并应与社会隔离。”
 
-那些同时接种了辉瑞-BioNTech和Moderna疫苗或一剂强生疫苗的人将获得完全疫苗接种状态。
+他接着说：“未接种疫苗的人并不危险，接种疫苗的人对其他人来说是危险的。现在,在以色列已经证明了这一点–我和以色列的许多医生都有联系–他们有很大的问题，医院里的严重病例都是在接种疫苗的人中出现的，在英国也是如此，更大的疫苗接种计划，也有问题。”
 
-白宫冠状病毒应对协调员杰夫·齐根特斯指出，超过70万人有资格接受加强针注射，并补充说：“在未来几个月内，超过1亿美国人将有资格获得接种加强针资格。”
+据报道，目前在法国的COVID-19大流行病工作组,在收到这一消息后“完全惊慌失措”，担心如果按照专家的指导意见行事，会出现大混乱。
 
-Zients说：“除了使用辉瑞疫苗外，还有60万多万人使用Moderna和J&J接种疫苗。”
+以色列医生科比-哈维夫,告诉13频道新闻，“95%的重病患者都接种了疫苗。完全接种疫苗的人占住院病人的85-90%。我们正在开设越来越多的COVID分支机构。疫苗的有效性正在下降或消失”。
 
-疾病预防控制中心数据显示，66.2%的美国人口接种了一剂COVID-19疫苗，而57.2%的人接种了两剂疫苗。大约6%的人接种了加强针。
+**简评**：
 
-随着世界各地的疫苗危机在社交媒体尤其是盖特平台被广泛揭露传播，有越来越多的人加入到了反对疫苗接种的队伍，在全球掀起了抵抗疫苗接种浪潮。
+**疫苗的灾难正在显现。在西方各国，越来越多的医疗工作者已经开始发现疫苗对人带来的危害。我们虽然不希望疫苗的灾难来临，但是这一切似乎正在不可避免的发生着。**
 
-这次美国重新定义完全接种疫苗标准显然又是想通过行政手段迫使人们接种更多疫苗。作为正道主义的笃信者和践行者，爆料革命的战友们应该更加积极行动起来，利用盖特等一系列社交媒体平台努力传播疫苗真相，唤醒更多的人们认清邪恶势力疫苗杀人的真相，团结一切追求正义的力量让邪恶势力的阴谋破产。
+**真心希望世界可以早些觉醒，把这场灾难的损失降到最低。**
 
-文字版原文：[美国CDC表示将重新定义完全接种疫苗的标准](https://gnews.org/zh-hans/1613903/)
+（文章仅代表作者观点，与GNEWS无关）
 
-音频处理：喜山必胜Maverick
+视频链接：[streamable.com](https://streamable.com/h881fu)
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**参考资料：**[americasfrontlinedoctors.org][Immunization expert: ‘Unvaccinated people are not dangerous; vaccinated people are dangerous for others’](https://americasfrontlinedoctors.org/2/frontlinenews/immunization-expert-unvaccinated-people-are-not-dangerous-vaccinated-people-are-dangerous-for-others/)
+
+* * *
+
+*审核：Aries的星
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)

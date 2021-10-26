@@ -2,38 +2,43 @@
 ---
 
 
-## 免疫专家：“未接种疫苗的人并不危险，接种疫苗的人对其他人来说是危险的”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1617639/)
+## 佛罗里达州长呼吁解雇福奇
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1617749/)
 
-编译：七叶之芒
-![](https://americasfrontlinedoctors.org/2/wp-content/uploads/2021/08/crr-1024x568.png)图片来源： americasfrontlinedoctors.org
-世界卫生组织欧洲免疫专家咨询小组,前副主席克里斯蒂安-佩罗内教授昨天说，所有接种过疫苗的人必须在冬季进行隔离，否则有可能患上严重疾病。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-佩罗内专门研究热带病学和新出现的传染病。他曾是公共卫生高级委员会传染病专业委员会的主席。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/D-2.jpg)cybernistas.com
+《门道专家》发表文章，题目“罗恩·德桑蒂斯（Ron DeSantis）州长呼吁解雇‘疯狂科学家’福奇，并对他资助了非法的功能增强研究以及对比格犬（Beagle）虐待进行调查”。
 
-这位传染病专家确认了以色列和英国迅速恶化的局势，并表示：“接种疫苗的人应该被隔离，并应与社会隔离。”
+全文如下：
 
-他接着说：“未接种疫苗的人并不危险，接种疫苗的人对其他人来说是危险的。现在,在以色列已经证明了这一点–我和以色列的许多医生都有联系–他们有很大的问题，医院里的严重病例都是在接种疫苗的人中出现的，在英国也是如此，更大的疫苗接种计划，也有问题。”
+佛罗里达州长罗恩·德桑蒂斯周一（10月25日）要求解雇“疯狂的科学家”福奇，并对其进行调查，因为他资助了武汉的非法功能增强研究，并虐待了比格犬。
 
-据报道，目前在法国的COVID-19大流行病工作组,在收到这一消息后“完全惊慌失措”，担心如果按照专家的指导意见行事，会出现大混乱。
+德桑蒂斯州长星期一（10月25日）举行记者招待会，谈论了佛罗里达州经济改善的情况。在新闻发布会结束时，德桑蒂斯州长回答了发飙记者的提问，（愚蠢的）记者试图攻击州长阻止强制疫苗接种的决定。
 
-以色列医生科比-哈维夫,告诉13频道新闻，“95%的重病患者都接种了疫苗。完全接种疫苗的人占住院病人的85-90%。我们正在开设越来越多的COVID分支机构。疫苗的有效性正在下降或消失”。
+德桑蒂斯州长指出，福奇才是那个应该被攻击的人，因为他资助武汉实验室进行功能增强实验，还虐待狗。
 
-**简评**：
+8月份，《门道专家》记者卡桑德拉·费尔班克斯（Cassandra Fairbanks）独家报道了福奇在突尼斯用比格犬进行的可怕实验。
 
-**疫苗的灾难正在显现。在西方各国，越来越多的医疗工作者已经开始发现疫苗对人带来的危害。我们虽然不希望疫苗的灾难来临，但是这一切似乎正在不可避免的发生着。**
+这篇报道终于在媒体上传开了。
 
-**真心希望世界可以早些觉醒，把这场灾难的损失降到最低。**
+纳税人监督组织“白衣废弃物项目”（White Coat Waste Project）为《门道专家》提供了安东尼·福奇滥用纳税人资金的新例子，他促进了残酷和不必要的狗实验——这次是在突尼斯。
 
-（文章仅代表作者观点，与GNEWS无关）
+该组织发现的文件揭露，由福奇领导的国家卫生研究院分部向突尼斯的实验室拨付了37.58万美元赠款的一部分，用于让比格犬感染寄生虫的实验。
 
-视频链接：[streamable.com](https://streamable.com/h881fu)
+德桑蒂斯州长说：“你不能让疯狂的科学家们像这样跑来跑去扮演‘上帝’，来看看福奇和NIH还在做什么？他们在对小狗做残酷的实验。我真地认为福奇需要被追责……他们所有人都需要被清理掉……”
 
-**参考资料：**[americasfrontlinedoctors.org][Immunization expert: ‘Unvaccinated people are not dangerous; vaccinated people are dangerous for others’](https://americasfrontlinedoctors.org/2/frontlinenews/immunization-expert-unvaccinated-people-are-not-dangerous-vaccinated-people-are-dangerous-for-others/)
+（原文完）
 
-* * *
+德桑蒂斯州长是保守派的政治家，他治下的佛罗里达州一直与福奇的应对中共病毒政策相对抗，拒绝大规模的封锁，虽然一度遭到疑似阴谋集团的“定点照顾”，出现过疫情肆虐的情况，但他坚持不懈地带领佛罗里达州人民与左派抗争，与阴谋集团斗争，使佛罗里达州的经济免遭重创，收获了人心。
 
-*审核：Aries的星
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
+一些麻木愚蠢的记者（不能过早定义为他们是罪恶集团的帮凶），还在替拜登、福奇的疫苗强制政策推波助澜，自然会受到充满智慧的德桑蒂斯州长旗帜鲜明地有力回击：你们说要执行福奇的政策，他是谁？他作恶多端，该接受调查，该受到审判！
+
+给德桑蒂斯州长点赞！
+
+（文章仅代表作者个人观点）
+
+原文链接：
+
+[https://www.thegatewaypundit.com/2021/10/gov-desantis-calls-mad-scientist-fauci-fired-investigated-funding-illegal-gain-function-research-beagle-torture-video/](https://www.thegatewaypundit.com/2021/10/gov-desantis-calls-mad-scientist-fauci-fired-investigated-funding-illegal-gain-function-research-beagle-torture-video/)
