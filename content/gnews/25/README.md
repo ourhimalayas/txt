@@ -2,33 +2,45 @@
 ---
 
 
-## 日本要闻汇编 10月25日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1617918/)
+## 澳大利亚针对中共的大动作：Telstra收购Digicel Pacific
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1617969/)
 
-#### 素材：东京樱花团｜GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-19.png)[*图片来源*](https://newsstatic.rthk.hk/images/mfile_1613529_1_L_20211005094932.jpg)
-1、[**五个都府县缩时营业结束 经济活动重启**](https://china.kyodonews.net/news/2021/10/e7051397e4dc-5-.html)
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-共同社25日消息，作为新冠防疫措施在日本埼玉、千叶、东京、神奈川、大阪5个都府县持续实施的餐饮店缩短营业时间要求25日已解除，经济活动全面重启。新增感染人数在全国范围内持续减少趋势，已接种完两剂疫苗的人口比例也接近七成。餐饮店深夜营业预计也将造成人流增加，当务之急是在贯彻防疫措施的同时，为防备疫情再度蔓延确保病床。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/telstra-shop-sydney.jpg)
 
-2、[**众院选举候选人重视社交网站 81%使用推特**](https://china.kyodonews.net/news/2021/10/01547c62f2f9--81.html)
 
-22日从日本选举信息公司“选举.com”的调查结果获悉，本次众院选举1051名候选人中，使用“推特”的占全体的81%，使用“脸书”的也达到了81%，使用视频网站“YouTube”的有60%，使用照片分享APP“Instagram”的有51%。
 
-3、[**日经指数因众院选举前景不明收跌0.71%**](https://china.kyodonews.net/news/2021/10/c3160d61ce68-071.html)
+图片来源：zdnet.com
 
-东京股市25日迎来新的一周，日经指收盘较上周五下跌204.44点，报28600.41点，跌幅为0.71%。24日投计票的参院补选中，执政党和在野党方面一胜一负，众院选举前景不明，导致股市空方占优。
 
-4、[**美国海军部长称日美同盟“特别重要”**](https://china.kyodonews.net/news/2021/10/548dd0a53e73.html)
+编译：小红帽
 
-正在日本访问的美国海军部长卡洛斯·德尔·托罗25日举行了与日美媒体的电话记者会。他强调“维持印度太平洋地区的和平与安全，对两国而言是共同目标”，要实现日美倡导的“自由开放的印度太平洋”，“日美同盟将发挥特别重要的作用”。
+澳大利亚电信公司Telstra已同意使用纳税人的18亿美元现金购买太平洋地区最大的电信公司Digicel Pacific，以防止其被中共国拥有。
 
-5、[**日本开发出刷手指确认疫苗接种证明系统**](https://www3.nhk.or.jp/nhkworld/zh/news/328876/)
+Digicel Pacific的销售额为21亿美元，在巴布亚新几内亚、汤加、斐济、瑙鲁、萨摩亚和瓦努阿图有业务。该公司的出售将于明年完成。
 
-日本成功研发出一种新冠疫苗接种证明确认系统，只要刷手指就能确认疫苗接种证明。该系统的研发小组表示，希望将来能够在活动会场等处投入实际应用。该系统由日立制作所、鹿岛建设公司和九州大学等组成的小组研发而成。
+大部分费用由澳大利亚政府通过澳大利亚出口金融公司承担，其余费用由Telstra支付。
 
-（本文只代表个人观点，与Gnews网站无关）
+中共国有企业中国移动曾表示有兴趣收购Digicel，但澳大利亚政府不希望该战略资产落入中国共产党之手。
 
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+在一份联合声明中，澳大利亚外交部长玛丽斯·佩恩（Marise Payne）、贸易部长丹德（Dan Tehan）以及国际发展和太平洋部长泽德·塞塞利亚（ Zed Seselja）表示，澳大利亚政府希望看到该协议的长期回报。
+
+部长们周一表示，此次收购还反映了澳大利亚政府的承诺–支持该地区安全可靠的基础设施的发展。
+
+创办该公司的爱尔兰亿万富翁丹尼斯·奥布赖恩 (Denis O’Brien) 将加入该公司的新董事会。
+
+明年年中完成收购后，Telstra将控制Digicel Pacific100%的股份。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Australia’s big move against China: Telstra buys Digicel Pacific (msn.com)](https://www.msn.com/en-au/news/australia/australia-s-big-move-against-china-telstra-buys-digicel-pacific/ar-AAPUWO7?ocid=msedgntp)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

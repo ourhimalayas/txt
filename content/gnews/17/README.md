@@ -2,20 +2,30 @@
 ---
 
 
-## 加拿大联邦专员介入调查“强制公务员接种疫苗计划”
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1618013/)
+## 有声|喜币即将上市 具有最佳增值潜力
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1618078/)
 
-编译撰稿： Spirit            校对编辑：硫酸羟氯喹64
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月24日，郭文贵先生在大直播中介绍，喜美元与美元锚定，是稳定币，喜联储承诺每年会拿出20%的收入购买储备黄金。喜币操作便捷，可随时进出，并可由喜币直接兑换喜美元，都充分体现喜币的保值及安全性。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-1-edited.jpeg)图片来源：CBC
+未来，喜币最重要的是要进入流通领域，前景广阔。据对日本市场的初步评估显示，虚拟货币将会占到未来日本市场的30%，即1.5万亿。
 
+郭先生称，喜币是增值潜力最好的虚拟货币。整个喜联储的价值已经被固化。掌握超过一万亿美元资金的国家机构投资者在评估后表示，喜联储的喜币，喜美元是最安全，最可流通，最高信用的货币系统。
 
-据《加拿大广播公司》10月24 日报道，加拿大联邦隐私专员特里安日前在一份由联邦、各省和地区的隐私专员共同签署的一项联合声明中指出，其所属部门正在调查有关强制政府公务员接种“新冠病毒疫苗”的隐私权问题。
+涉及到喜联储未来的业务，郭先生表示，喜联储未来一定会有保险，贷款业务，并接受G系列之外的流通支付。喜币一定要在全世界成为最好的贷款抵押物。
 
-该调查专员表示，使用“新冠病毒疫苗”护照的规定虽然可能会暂时提供重大的公共卫生利益，但它仍然是特殊措施。联邦政府只有在仔细考虑了个人隐私和其他人权原则之后，才应该实施这些法规。
+让我们期待下周喜币的隆重上市**。**
 
-此外，该联合声明还强调，“疫苗护照计划”必须通过实现其预期的公共卫生目标以证明其合理性，而且其有效性应该是基于事实证据基础之上的。所有与该计划相关的隐私风险必须要与其目标相对称。而且，个人信息和数据的收集都将仅用于实现该疫苗护照计划的预期目标。同时，该计划必须有一个明确的结束日期。
+文字版原文：[喜币即将上市 具有最佳增值潜力](https://gnews.org/zh-hans/1615954/)
 
-（以上内容仅代表原文信息和作者个人观点）
-
-[原文链接：](https://www.cbc.ca/amp/1.6222622)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

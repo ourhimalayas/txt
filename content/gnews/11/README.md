@@ -2,28 +2,26 @@
 ---
 
 
-## 有声|在公检法的那些日子
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1618100/)
+## 2021年10月24日郭文贵先生：吴征家族会比王健惨
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1618137/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-还有几天我将告別在法律服务中心服务的日子，今天依然有新的死者家属前来寻求法律援助。在这些日子里，我目睹了太多的死者家属前来咨询，死者们死亡的特征都是猝死，我个人认为死者们都有可能接种了疫苗。死者的家属们却不知道这有可能是疫苗造成他们的亲人逝去的，家属们前来咨询的目的都是认为死者是死于工伤的，认为政府能主持公道，为死者讨回应得的公道。在我这个清醒的人眼里，这显得既可悲又可恨。我希望神擦去他们一切的眼泪，不再有死亡，也不再有悲哀、哭号、疼痛，因为以前的事都过去了。
+#### 剪辑：玉米地的小蜗牛
 
-家属们来到这里，表情上都显得有深沉的打击，眼泪都咽不下。昨天的丈夫、父亲和儿子还能说说笑笑，怎么今天就像冷冷的冰雨一样……看着家属们一脸的茫然，不知所措，我真想问他们一个问题：“死者是不是已经接种了新冠疫苗……”可我放弃了，在没有充分的证据前，在墙内，在借口中，我没有勇气说出口。我感觉自己像彼得不认主一样。
+#### 吴征家族会比王健惨；川普的案件会以滑稽结果收场；川普和新中国联邦的关系会比想象中好。
 
-我与提供援助律师交流过，他们认为每年都有这种情况，只是今年不知为什么显得多一些案件。当我对他们说出疫苗的真相，他们都觉得匪夷所思，不敢相信一个政府会这样对待自己的国民，也对我所说的半信半疑。当然，在没有充分的证据前，律师是不可能相信任何一个人所说的，也许在天亮前不可能有这种证据。
+吴征的被刑事调查这件事情，几乎可以改变中美之间所有过去这些年跟吴征有官司所有的案子。记住我这句话，这事巨大 你们不懂，它很大啊。而且吴征和杨澜和他孩子， 一定会（成为）世界上比王健家族还惨的人。
 
-我就像一个旁人一样见证著这些事的发生，可我又无力去改变。我深知这些有良知的律师在共匪的法律框架下，也是充分展现著人性的关怀，展现著自己的专业，用他们自己的良知和专业为死者家属讨得应得的权益。在这些日子里，我唯一感到欣慰的是我说服了一些打了新冠疫苗的律师下了单，买了青蒿素。也许他们能感受到真光，也许他们能吃下解药，继续用他们的良知和专业服务中国人，也许我们能再一次在七芒星旗下相会。愿神怜悯他们，保守他们，阿门！
+一 、王健毕竟没骗美国人，他（吴征）骗得全是美国人，而且涉及到美国情报和政治啊。
 
-文字版原文：[在公检法的那些日子](https://gnews.org/zh-hans/1615724/)
+那么，同时我告诉大家，川普总统这个SPAC， 最后的结果，是（以）非常的荒唐， 滑稽，和灾难的结果结束的。这一点， 一点都无容置疑。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+最后，关于川普总统和爆料革命的关系，和Gettr的关系，会比你想象好得多， 会很滑稽啊，但是会比你想象的好。
+
+***发布：小红帽***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

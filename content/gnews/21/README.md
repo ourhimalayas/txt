@@ -2,45 +2,20 @@
 ---
 
 
-## 澳大利亚针对中共的大动作：Telstra收购Digicel Pacific
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1617969/)
+## 加拿大联邦专员介入调查“强制公务员接种疫苗计划”
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1618013/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+编译撰稿： Spirit            校对编辑：硫酸羟氯喹64
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/telstra-shop-sydney.jpg)
-
-
-
-图片来源：zdnet.com
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-1-edited.jpeg)图片来源：CBC
 
 
-编译：小红帽
+据《加拿大广播公司》10月24 日报道，加拿大联邦隐私专员特里安日前在一份由联邦、各省和地区的隐私专员共同签署的一项联合声明中指出，其所属部门正在调查有关强制政府公务员接种“新冠病毒疫苗”的隐私权问题。
 
-澳大利亚电信公司Telstra已同意使用纳税人的18亿美元现金购买太平洋地区最大的电信公司Digicel Pacific，以防止其被中共国拥有。
+该调查专员表示，使用“新冠病毒疫苗”护照的规定虽然可能会暂时提供重大的公共卫生利益，但它仍然是特殊措施。联邦政府只有在仔细考虑了个人隐私和其他人权原则之后，才应该实施这些法规。
 
-Digicel Pacific的销售额为21亿美元，在巴布亚新几内亚、汤加、斐济、瑙鲁、萨摩亚和瓦努阿图有业务。该公司的出售将于明年完成。
+此外，该联合声明还强调，“疫苗护照计划”必须通过实现其预期的公共卫生目标以证明其合理性，而且其有效性应该是基于事实证据基础之上的。所有与该计划相关的隐私风险必须要与其目标相对称。而且，个人信息和数据的收集都将仅用于实现该疫苗护照计划的预期目标。同时，该计划必须有一个明确的结束日期。
 
-大部分费用由澳大利亚政府通过澳大利亚出口金融公司承担，其余费用由Telstra支付。
+（以上内容仅代表原文信息和作者个人观点）
 
-中共国有企业中国移动曾表示有兴趣收购Digicel，但澳大利亚政府不希望该战略资产落入中国共产党之手。
-
-在一份联合声明中，澳大利亚外交部长玛丽斯·佩恩（Marise Payne）、贸易部长丹德（Dan Tehan）以及国际发展和太平洋部长泽德·塞塞利亚（ Zed Seselja）表示，澳大利亚政府希望看到该协议的长期回报。
-
-部长们周一表示，此次收购还反映了澳大利亚政府的承诺–支持该地区安全可靠的基础设施的发展。
-
-创办该公司的爱尔兰亿万富翁丹尼斯·奥布赖恩 (Denis O’Brien) 将加入该公司的新董事会。
-
-明年年中完成收购后，Telstra将控制Digicel Pacific100%的股份。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Australia’s big move against China: Telstra buys Digicel Pacific (msn.com)](https://www.msn.com/en-au/news/australia/australia-s-big-move-against-china-telstra-buys-digicel-pacific/ar-AAPUWO7?ocid=msedgntp)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[原文链接：](https://www.cbc.ca/amp/1.6222622)

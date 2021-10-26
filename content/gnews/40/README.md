@@ -2,45 +2,43 @@
 ---
 
 
-## 让川普媒体上市的那个人在隐瞒经历
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1617650/)
+## 佛罗里达州长呼吁解雇福奇
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1617749/)
 
 俄罗斯莫斯科喀秋莎农场   仰望七星
 
 编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/P-10.jpg)bupox.com
-笔者前一篇文章对正在帮助“川普媒体和技术集团”（TMTG，Trump Media & Technology Group）上市的“数字世界收购公司”（DWAC，Digital World Acquisition Corp）CEO帕特里克·奥兰多 (Patrick Orlando)进行了披露【1】，现在继续揭骗，让美国人了解真相，也让川普总统警觉。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/D-2.jpg)cybernistas.com
+《门道专家》发表文章，题目“罗恩·德桑蒂斯（Ron DeSantis）州长呼吁解雇‘疯狂科学家’福奇，并对他资助了非法的功能增强研究以及对比格犬（Beagle）虐待进行调查”。
 
-美国证券交易委员会（SEC）公布的资料中，在DWAC管理团队部分介绍了奥兰多：“他在25年的职业生涯中曾在金融领域担任过许多行政职务。奥兰多先生的经验涵盖了与“空壳公司”（”SPACs”）有关的所有方面，因为他曾作为高管、赞助商和董事参与过多个SPACs，包括“运鸿国际”（Nasdaq：ZGYH）、贝内塞尔资本收购公司（Nasdaq：BENE）和马奎亚资本收购公司（Nasdaq：MAQC）。奥兰多先生在其职业生涯中建立了广泛的网络，我们相信他在全球范围内的知识和接触将使我们能够找到并吸引潜在的目标。 奥兰多先生自2020年1月以来一直担任“运鸿国际”的首席执行官……”【2】
+全文如下：
 
-看来帕特里克·奥兰多在报给SEC的资料中，把担任“运鸿国际”首席执行官的经历列在了首位，进行了重点炫耀，但是《雅虎财经》（yahoo finance）进行了这样的报道，“奥兰多在武汉的SPAC因信托管理不善而蒙受损失”，文章写道，“运鸿国际”是一家总部位于中共国武汉的实体，于 2020 年初筹集了 6000 万美元，但尚未宣布交易。在去年的美国证券交易委员会备案中出现了罕见的情况，“运鸿国际”透露其信托账户遭受了损失，与任何 SPAC 一样，在 IPO 中筹集的资金旨在安全地存放在短期政府证券中，因此它们通常会赚取少量利息（或在利率降至零时没有利息），并且不应贬值。
+佛罗里达州长罗恩·德桑蒂斯周一（10月25日）要求解雇“疯狂的科学家”福奇，并对其进行调查，因为他资助了武汉的非法功能增强研究，并虐待了比格犬。
 
-但根据“运鸿国际”提交的文件，发现受托人摩根·士丹利（Morgan Stanley）并未投资政府证券，而是投资另一项资产——据推测，该资产本可以提供更好的回报但存在风险。“此后，我们立即采取措施清算此类投资，并将资金仅再投资于信托协议规定的证券类型，”“运鸿国际”的文件称，未实现的亏损总额为 115 万美元，但“运鸿国际”能够弥补部分亏损，并产生了 56.5 万美元的“亏空……”【3】
+德桑蒂斯州长星期一（10月25日）举行记者招待会，谈论了佛罗里达州经济改善的情况。在新闻发布会结束时，德桑蒂斯州长回答了发飙记者的提问，（愚蠢的）记者试图攻击州长阻止强制疫苗接种的决定。
 
-上市前募集的资金存放在较安全的短期政府证券中，至少能有获利，哪怕是微利，也不应该出现亏损。这样的经历，在DWAC官方网站不容易发现。
+德桑蒂斯州长指出，福奇才是那个应该被攻击的人，因为他资助武汉实验室进行功能增强实验，还虐待狗。
 
-再看看DWAC官网对帕特里克·奥兰多的介绍【4】：
+8月份，《门道专家》记者卡桑德拉·费尔班克斯（Cassandra Fairbanks）独家报道了福奇在突尼斯用比格犬进行的可怕实验。
 
-贝内塞尔投资集团创始人兼首席执行官（Founder & CEO of Benessere Investment Group）
-贝内塞尔资本收购公司董事长兼首席执行官（Chairman & CEO of Benessere Capital Acquisition Corp.）
-马奎亚资本收购公司董事（Director of Maquia Capital Acquisition Corp.）
-BT资本市场有限责任公司前结构和金融产品部负责人（Former Head of Structuring & Derivatives BT Capital Markets LLC）
-德意志银行前新兴市场金融产品部主任（Former Director of Emerging Markets Derivatives at Deutsche Bank）
-麻省理工学院机械工程和管理科学学位（Degrees in Mechanical Engineering and Management Science from MIT）
-……
+这篇报道终于在媒体上传开了。
 
-唯独不见总部坐落在武汉“运鸿国际”首席执行官的经历，难道知道美国人现在已经有“谈中共色变”、“谈武汉恐惧”的心态？川普总统，您还不担心？
+纳税人监督组织“白衣废弃物项目”（White Coat Waste Project）为《门道专家》提供了安东尼·福奇滥用纳税人资金的新例子，他促进了残酷和不必要的狗实验——这次是在突尼斯。
 
-DWAC今天的收盘价为83.86美元，较前一个交易日下跌11%。
+该组织发现的文件揭露，由福奇领导的国家卫生研究院分部向突尼斯的实验室拨付了37.58万美元赠款的一部分，用于让比格犬感染寄生虫的实验。
+
+德桑蒂斯州长说：“你不能让疯狂的科学家们像这样跑来跑去扮演‘上帝’，来看看福奇和NIH还在做什么？他们在对小狗做残酷的实验。我真地认为福奇需要被追责……他们所有人都需要被清理掉……”
+
+（原文完）
+
+德桑蒂斯州长是保守派的政治家，他治下的佛罗里达州一直与福奇的应对中共病毒政策相对抗，拒绝大规模的封锁，虽然一度遭到疑似阴谋集团的“定点照顾”，出现过疫情肆虐的情况，但他坚持不懈地带领佛罗里达州人民与左派抗争，与阴谋集团斗争，使佛罗里达州的经济免遭重创，收获了人心。
+
+一些麻木愚蠢的记者（不能过早定义为他们是罪恶集团的帮凶），还在替拜登、福奇的疫苗强制政策推波助澜，自然会受到充满智慧的德桑蒂斯州长旗帜鲜明地有力回击：你们说要执行福奇的政策，他是谁？他作恶多端，该接受调查，该受到审判！
+
+给德桑蒂斯州长点赞！
 
 （文章仅代表作者个人观点）
 
 原文链接：
 
-【1】[https://gnews.org/zh-hans/1617078/](https://gnews.org/zh-hans/1617078/)
-
-【2】[https://www.sec.gov/Archives/edgar/data/0001849635/000110465921111753/tm2124624d5\_s1a.htm](https://www.sec.gov/Archives/edgar/data/0001849635/000110465921111753/tm2124624d5_s1a.htm)
-
-【3】[https://finance.yahoo.com/news/trump-financier-patrick-orlando-wuhan-173332669.html](https://finance.yahoo.com/news/trump-financier-patrick-orlando-wuhan-173332669.html)
-
-【4】[https://www.dwacspac.com/](https://www.dwacspac.com/)
+[https://www.thegatewaypundit.com/2021/10/gov-desantis-calls-mad-scientist-fauci-fired-investigated-funding-illegal-gain-function-research-beagle-torture-video/](https://www.thegatewaypundit.com/2021/10/gov-desantis-calls-mad-scientist-fauci-fired-investigated-funding-illegal-gain-function-research-beagle-torture-video/)
