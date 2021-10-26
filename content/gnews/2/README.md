@@ -2,20 +2,30 @@
 ---
 
 
-## 为控制全球中共国加大了收集人类基因数据的力度
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1617994/)
+## 有声|喜币即将上市 具有最佳增值潜力
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1618078/)
 
-采编：Ucool优酷     编译撰稿：硫酸羟氯喹64
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月24日，郭文贵先生在大直播中介绍，喜美元与美元锚定，是稳定币，喜联储承诺每年会拿出20%的收入购买储备黄金。喜币操作便捷，可随时进出，并可由喜币直接兑换喜美元，都充分体现喜币的保值及安全性。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-9-edited.jpg)图片说明：后千禧年
+未来，喜币最重要的是要进入流通领域，前景广阔。据对日本市场的初步评估显示，虚拟货币将会占到未来日本市场的30%，即1.5万亿。
 
+郭先生称，喜币是增值潜力最好的虚拟货币。整个喜联储的价值已经被固化。掌握超过一万亿美元资金的国家机构投资者在评估后表示，喜联储的喜币，喜美元是最安全，最可流通，最高信用的货币系统。
 
-据加拿大自媒体《后千禧年》10月23日报道，【美国国家情报局反间谍和安全中心】代理主任奥兰多近日表示，中共国及其他战略对手正在使用一切合法或非法手段来获取美国的高新科技。
+涉及到喜联储未来的业务，郭先生表示，喜联储未来一定会有保险，贷款业务，并接受G系列之外的流通支付。喜币一定要在全世界成为最好的贷款抵押物。
 
-最近，【美国家安全委员会】的一份最新简报警告称，由于中共国企业间谍通过长期盗取美国公司的技术和知识产权，并以此主导其人工智能等新兴高科技领域的开发，试图获得经济优势，以实现与美国对抗的战略平衡。因此，美国必须做更多工作来确保其“关键技术”，包括量子计算、半导体和新兴生物经济领域等新兴科技的领先地位。
+让我们期待下周喜币的隆重上市**。**
 
-据报道，在“新冠病毒”疫情的影响下，人类各项健康数据的价值变得越来越重要。因此，已建立好完善人类基因数据库的国家，将在未来对大流行疾病的治疗方案方面拥有优势。而目前中共当局正在使用一切手段收集世界各地的医疗、健康和人类基因信息，并且在该方面已经获得了明显优势。
+文字版原文：[喜币即将上市 具有最佳增值潜力](https://gnews.org/zh-hans/1615954/)
 
-（以上内容仅代表原文信息和作者个人观点）
-
-[原文链接：](https://thepostmillennial.com/china-ramping-up-efforts-to-collect-genetic-data)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

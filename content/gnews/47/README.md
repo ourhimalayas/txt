@@ -2,39 +2,53 @@
 ---
 
 
-## 全球各地通过罢工和法律手段反对疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1617069/)
+## 随着供应链危机继续加剧，美国的航运成本飙升
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1617347/)
 
-作者：美东香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月22日下午，在美国通用电气公司纽约州总部，超过两百名员工因疫苗强制令举行短暂罢工，并游行抗议。通用电气被要求必须遵守总统行政令，即要求所有美国员工在12月8日前全面接种中共新冠病毒疫苗，否则，他们将失去工作。 10月21日，通用电气南卡罗来纳州分公司，也有数十名员工，在公司举行了同样的抗议活动。许多员工表示，他们希望能自由决定是否要接种疫苗。 据悉，工会计划代表七百余名通用电气的员工，与公司领导层举行会议，希望双方都能提出解决方案。
+【简评：】*美国此次供应链危机虽然与疫情之后美国消费需求大增有关，但美国本土制造业产业空心化、产业链严重依赖中国也是造成目前这场供应链危机的根源之一。此外，工人短缺，尤其是卡车司机等工种，正在使危机的情况变得更糟。而这一切也必将使拜登面临巨大的社会民意压力和政治风险。*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-450.png)图片来源：《新闻目标》
+据《新闻目标》记者：[Mary Villareal](https://newstarget.com/author/maryvillarealdw)，2021年10月22日报道：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-16.jpeg)
+目前，将一个集装箱从亚洲运往加利福尼亚的价格为1.7万美元，远远高于一年前的3800美元。东海岸的运费甚至更高，每个集装箱的运费高达2万美元。
 
-10月22日，美国亚利桑那州申请临时限制令，用以阻止联邦政府的疫苗强制令。美国亚利桑那州总检察长马克-布尔诺维奇发表声明称，疫苗强制令是美国历史上，对个人自由、联邦制，以及权力分立的最大侵犯之一。在一份与临时限制令同时提交的修正申诉中写道，疫苗强制令侵犯了工人的宪法权利，剥夺他们拒绝疫苗的权利。
+运费的上涨主要是由于供应链中断，这造成了海港拥堵以及货运公司甚至仓库的巨大问题。据报道，本周有100艘船停泊在加利福尼亚海岸，等待着停靠和卸载集装箱。
 
-10月23日，在澳大利亚维多利亚州，有112名不同职业的澳大利亚公民，向维州最高法院提交诉讼，指控首席卫生官布雷特·萨顿，以及其他卫生官僚，违反了维州的《人权宪章》——对许多行业强制执行疫苗接种令，其中包括医疗、教育、运输和建筑等行业。按照《维州人权宪章》，卫生部的这一政策是以非法形式，侵犯了维州人民的基本人权。
+港口卸货延误也推迟了船只返回亚洲去收集下一批货物，这进一步导致亚洲港口积压，拖慢了美国的货物流动。
 
-(本文仅代表作者观点)
+航运供给一端的震荡与需求一端相关。由于2020年下半年开始的经济复苏，对大宗商品的需求有所增加。
 
-参考链接：
-1）[https://gettr.com/post/pey4fe5b7c](https://gettr.com/post/pey4fe5b7c)
-2）[GE workers protest vaccine mandate](https://wnyt.com/capital-region-comeback/ge-general-electric-workers-protest-vaccine-mandate-coronavirus-covid-19-schenectady/6277770/)
-3）[200+ GE employees, union members stage walk-out in Schenectady Friday protesting vaccine mandate](https://www.news10.com/news/local-news/200-ge-employees-union-members-stage-walk-out-in-schenectady-friday-protesting-vaccine-mandate/)
-4）[Arizona seeks temporary restraining order to stop Biden vaccine mandate](https://www.fox10phoenix.com/news/arizona-seeks-temporary-restraining-order-to-stop-biden-vaccine-mandate)
-5）[Arizona Requests Temporary Restraining Order to Halt Biden Vaccine Mandate](https://www.breitbart.com/health/2021/10/23/arizona-requests-temporary-restraining-order-to-halt-biden-vaccine-mandate/)
-6）[维多利亚州挑战疫苗强制令，112名原告加入诉讼](https://gnews.org/zh-hans/1613979/)
+美国的家具和家用设备支出增加了28%，而机动车辆和零部件增加了31%，以弥补娱乐、食品和饮料以及住宿支出的下降。从服务到制造业的转变对集装箱航运业造成了重大冲击，特别是考虑到其需要在全球范围内运输货物。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+由于风险和违规行为增加了供应链的复杂性，海运成本也变得更高。例如，3月份苏伊士运河的严重拥堵，每一分钟的延误就会造成670万美元的损失。
 
-总编：Jack Li文阳，正义的小新
-编辑：Delilah小胖，山本不惑，Ivy001
-校正/发稿：谐趣园
+问题也不仅仅局限于货运服务。美国码头堆积大量集装箱的部分原因是卡车司机不足，美国卡车运输协会(American Trucking Association)目前缺8万名司机，创历史新高。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+此外，该协会表示，目前对卡车司机的需求比疫情开始前高出30%。然而，即使有足够的卡车司机将集装箱从海港运出，可用的仓库也变得越来越昂贵和稀少，这进一步推高了消费者的成本。
+
+**拜登要求私营企业和港口增加运营时间**
+
+为了应对供应链危机，美国总统乔·拜登要求一些港口延长运营时间。这一要求将使洛杉矶港每周增加60多个小时的运营时间。
+
+他还寻求主要零售商和货运商的帮助，将货物从船上运到工厂。然而，许多终点目的地在夜间关闭，这意味着卡车司机到了早上才能运送集装箱。
+
+在美国西海岸的港口，等待停靠的船只数量创下了历史新高，在船只卸货之前，要排上长达两周的长队。在接下来的几个月里，形势没有缓和的迹象。
+
+Kuehne+Nagel首席执行官特雷夫·特雷泽尔（Detlef ·Trefzger）表示，他们预计供应链危机将持续超过6或12个月。该公司所能做的就是建议客户同意在其他地方抛锚，然后将他们的产品运送到陆上枢纽，或根据需要重新安排船舶。
+
+拜登的计划也可能产生了意想不到的后果，例如卡车司机在海港附近的居民区投放集装箱。
+
+例如，位于加州威尔明顿的UCTI卡车运输公司，因为一次只能容纳65个集装箱，由于空间有限，该公司被迫将空集装箱停放在附近街区的街道上。
+
+原文连接：[https://newstarget.com/2021-10-22-shipping-costs-to-the-us-surge.html](https://newstarget.com/2021-10-22-shipping-costs-to-the-us-surge.html)
+
+（本文评论仅代表个人观点）
+
+翻译/评论：洛杉矶盘古农场 – 钢蛋儿
+
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – 明子
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
