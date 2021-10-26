@@ -2,27 +2,27 @@
 ---
 
 
-## 河北学生家长反映学校食堂问题被刑拘，中共政府忙洗地
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619164/)
+## 中共欲低价承包泰国水利项目遭当地人权组织强烈反对
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619230/)
 
-作者：澳喜农场 在远方
+作者：纽约香草山农场 – 007
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据消息称，河北省临漳县一所中学的学生家长反映，该校食堂食物变味、发黑发臭，学生食用后出现腹痛、呕吐的症状。家长在微信群中揭露并引发了更多家长前往学校了解事情真相。随后，当地警方对8名学生家长加以处罚，其中5名家长被控涉嫌寻衅滋事，遭刑事拘留。
+泰国议员维拉康近日透露，对于泰国备受争议的尤姆河引水工程，由中共控制的北方工业国际公司此前表示，愿意自费在四年内以12亿美元的造价建造该项目。为此，曾两次拒绝该项目评估的泰国政府于上月批准了这一项目的环境影响评估报告。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-39.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-4.jpeg)
 
-对此，中共政府的做法是其一贯的推诿遮掩。当地时间10 月23日，中共临漳县委宣传部声明称，涉事的中学并未出现学生食物中毒的现象，学生家长发布不实消息，起煽动作用。声明还提及，学校曾临时租用大巴，将全体学生转移到另外一家中学。
+当地时间10月25日的消息称，泰国人权组织强烈反对该项目，因担心新水库将淹没村庄，破坏森林，且将对当地克伦土著居民产生不利影响。同时，经评估，此工程“存在严重缺陷”。
+
+中共借一带一路之名，蓝金黄当地政客，不惜血本参与基础设施项目，试图进一步扩大在泰国的影响力。对于中共的经济绑架，东南亚国家应提高警惕。
 
 (本文仅代表作者观点)
 
-参考链接：
-1）[河北5名家长反映学校食堂问题被刑拘 官方：卫生达标未发生食物中毒](https://m.gmw.cn/baijia/2021-10/24/1302650607.html)
-2）[5名学生家长因反映学校食堂卫生问题被刑拘？！官方回应](https://www.thepaper.cn/newsDetail_forward_15057489)
+参考链接：[中国公司欲承包泰国水利项目 人权环境人士表示反对](https://www.voachinese.com/a/china-shows-interest-in-a-thailand-water-project/6283640.html)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-总编：Irene木木 
-编辑：山本不惑
+总编：Irene木木
+编辑：Kathy文艺
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

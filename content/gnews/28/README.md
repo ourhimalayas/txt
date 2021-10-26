@@ -2,47 +2,48 @@
 ---
 
 
-## 新的言论自由应用在盖特，不会让用户陷入“数字监狱”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1619450/)
+## 安大略省高等法院针对多伦多医院系统的强制疫苗政策发布临时禁令
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1619519/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/102603.jpg)
-来自澳大利亚《天空新闻》10月24日的报道
+作者：Dakota Christensen
+翻译：HimaBoy
 
-**摘要翻译：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/UHN.jpg)
 
-盖特首席执行官、川普的前顾问杰森·米勒表示，新的言论自由应用程序盖特的用户不会因为在政治问题上发表意见而被陷入“数字监狱”。
+据多伦多太阳报报道，安大略省高等法院已针对大学健康网络系统试图解雇未接种疫苗的员工政策发出临时禁令。
 
-“我们的独特之处在于：第一，我们不会因为任何人的政治信仰而取消或审查或去平台或算法不存在”，米勒先生告诉澳大利亚天空新闻。
+大学健康网络系统 (UHN) 包括多伦多综合医院和多伦多西部医院、玛格丽特公主癌症中心、多伦多康复研究所和米歇尔教育研究所。
 
-“与此同时，我们也有一个积极稳健的审核政策。为了将这两者结合起来，我们确保不允许非法内容。
+周五下午，六名 UHN 员工向法院提出了一项紧急动议，这是 UHN 设定给那些尚未接种新冠疫苗员工的最后期限。
 
-“例如，你不能用身体伤害来威胁人们，或者你不能使用种族或宗教亵渎的字眼。”
+安大略省高等法院法官肖恩·邓菲在周五发布的一项决定中写道：“申请人造成的伤害可能很严重，是无法挽回的。” “据称，他们中的一些人或所有人可能被迫违背自己的意愿而接种疫苗，因为他们无法在兼顾个人和家庭情况下试图挑战政策而陷入贫困的风险。”
 
-“我们确保对环境进行监控，以确保人们的安全。”
+据称，这是安大略省的疫苗授权第一次受到法院的阻碍。
 
-米勒先生表示，该应用程序自7月4日推出以来“像火箭一样起飞”，已经拥有近300万用户。
+临时禁令并不适用于所有“大约 180 名UHN拒绝接种疫苗的员工”，而仅适用于在动议发起时正在加入法律诉讼的六名原告和其他 19 人.它也不是永久性禁令，而是将授权的效果暂停一周，直到法院可以在周四重新开会。然后法院将决定法院是否对此事具有管辖权，因为 UHN 认为这是一个集体谈判的问题，法院对此没有发言权。
 
-“我们的美国客户群约占我们整个全球客户群的47%，美国以外的客户群占53%，所以盖特已经是一个真正的全球化平台。”他说。
+邓菲法官强调，不应将禁令的发布误认为是对实际授权的判断，并指出“这两个观点可能都有其道理”，并且安大略省法官“需要时间更好地了解情况”。
 
-**简评： **
+一位客户计划将他们的名字添加到原告名单的律师表示，这项禁令可能会产生更广泛的影响。
 
-爆料革命的战友们都见证了盖特的出生及如火箭般的成长奇迹，也知道盖特如米勒先生所述是一个自由言论的平台。 现在的盖特跟推特和脸书等大科技公司比还是婴儿，所以我们与米勒先生那样的战友一起积极使用和推广盖特，增加盖特的影响能力，让更多的热爱自由民主法治的人们加入这个平台。
+“虽然法院仅根据本案的具体事实发布了临时禁令，但它会让安大略省的其他雇主暂停，这些雇主采取了解雇未接种疫苗的员工的政策，” 扎尤娜律师事务所的合伙人瑞安·奥康纳写道。在给多伦多太阳报的电子邮件中： “这也可能导致雇主更加关注工作场所疫苗接种政策下的权衡或豁免请求。”
 
-新闻链接：[New free speech app GETTR won’t put users in ‘digital jail’ for speaking their minds](https://www.skynews.com.au/opinion/outsiders/new-free-speech-app-gettr-wont-put-users-in-digital-jail-for-speaking-their-minds/video/bb3cc4507e39c15cce065758348f6fc3)
+在就此事向《多伦多太阳报》发表的一份声明中，UHN 写道：“少数人在本周晚些时候寻求并收到了临时禁令。在法庭决议之前UHN 对此事没有任何评论。”
 
-***翻译：**Brianchow*
+來源：[https://www.rebelnews.com/ontario\_superior\_court\_issues\_interim\_injunction\_against\_toronto\_hospital\_network\_vaccine\_mandate](https://www.rebelnews.com/ontario_superior_court_issues_interim_injunction_against_toronto_hospital_network_vaccine_mandate)
 
-***校对**：clau*
+（文章仅代表作者个人观点）
 
-* * *
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+**关注我们**
 
+Discord 账号
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

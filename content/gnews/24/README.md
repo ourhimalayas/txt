@@ -2,33 +2,44 @@
 ---
 
 
-## 中国和俄罗斯军舰在太平洋地区进行联合巡逻
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1619510/)
+## BC 卫生局有人举报称 50% 的新冠住院患者与新冠病毒无关
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1619550/)
 
-编译：蚂蚁兄弟
+作者：Drea Humphrey
+翻译: HimaBoy
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/121177415_chinarussianavy2021.jpg)图片来源：bbc.com
 
-俄罗斯和中共国海军最近几天已经开始在太平洋地区进行联合巡逻。这两个大国首次合作在世界最大的海洋上航行，此举已被诠释为新版的冷战。
 
-据俄罗斯国防部称，在10月17日至23日期间，两个大国的海军联合在该水域航行。此举引起了日本的警觉，日本确认俄罗斯在将日本海与太平洋分开的津轻海峡进行了演习。
+“案例，案例，案例。” 这是公共卫生霸主、官僚和官方媒体用来将不合理限制正常化的神奇词。从驱逐老年人到隔离，再到违背健康公民的意愿将他们关押在新冠的监狱中。
 
-“巡逻队举着俄罗斯和中国的国旗，旨在维护亚太地区的和平与稳定，并保护两国的海上经济活动对象”。俄罗斯国防部在一份声明中说：“作为考察的成员之一，该船队首次通过津轻海峡”。
+但是，如果这一切都是假的或者至少是一半，那么该怎么办呢？
 
-国际地缘政治的棋盘已经在太平洋地区设置了多年，普京和习近平之间的合作是为了作为对抗美国、英国和澳大利亚之间的军事协定（AUKUS）的一种方式。
+在夏季暂时取消了许多新冠措施后不久，不列颠哥伦比亚省的内陆卫生区是该省最早宣布病例激增的地区之一。当然，这最终是被用来收紧极权主义的限制并进行强制疫苗的接种。
 
-**简评：**
+然而，在这份完整的报告中，你会听到卫生局内部的一名举报人说，政府对“新冠住院”的真正定义并不透明。
 
-**军事方面的示威，作为冷战的一种形式，在很多年中已经没有遇到了。中共国和俄罗斯之间的关系很微妙。在美国政府逐步“示弱”的今天，中俄之间开始了联合的军演。然而，在武力上的威慑是吓不住美国的。美国的强大，不是中俄两国合力便可以对抗的。在人们谈论的热战之外，“超限战”已然在世界全面展开。武力的示威，只不过是“摆摆样子”罢了。经济、金融、疫情、乃至现在所推广的疫苗，才是真正的战场。**
+“这些数字正在被改变以支持他们的议程。” 举报人说。
 
-（文章仅代表作者观点，与GNEWS无关）
+反叛新闻已经确认了受访者的身份和职位，且同意对个人身份进行保密。
 
-**参考资料：**[vozpopuli][Buques de guerra de China y Rusia realizan patrullas conjuntas en el Pacífico](https://www.vozpopuli.com/internacional/buques-guerra-rusia-china-pacifico.html)
+在撒了足够多的谎之后，勇敢的卫生局内部员工决定透露有关住院原因的数据，并说从该卫生区域向公众报告的“新冠住院”中约有 50% 是人无症状并因新冠以外的其他疾病而到医院接受治疗。
 
-* * *
+來源：[https://www.rebelnews.com/bc\_health\_whistleblower\_says\_50\_per\_cent\_of\_covid\_hospitalizations\_asymptomatic\_unrelated](https://www.rebelnews.com/bc_health_whistleblower_says_50_per_cent_of_covid_hospitalizations_asymptomatic_unrelated)
 
-*审核：Aries的星*
-*校对：阿伯塔*
-*发布：信心的选择*
+（文章仅代表作者个人观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

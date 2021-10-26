@@ -2,33 +2,29 @@
 ---
 
 
-## 大众汽车缺少芯片减产，殃及其供应商
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1619617/)
+## 有声|投资数字世界收购公司的十一家机构中 八家由中共控制
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1619657/)
 
-**撰稿：日本东京方舟农场 海星**
+配音：香草山美食部 – 玫瑰园
 
-10月25日，《德国之声》发布的一段视频显示，Roeder压模公司因其客户大众汽车缺少芯片减产，正面临着经营的困境。
+数字世界收购公司在申请上市的文件中，列出了十一家投资机构。郭文贵先生在10月24日的大直播中，展示了这十一家机构的资本构成。除了三家是美国或加拿大的公司以外，其余八家公司全是中共控制的基金。
 
-Roeder压模公司经理Gerd Roeder表示，作为供应商必须每周供货，但客户没有购货的义务。他进一步解释说，制造的产品已经产生成本，然而大众汽车并不付款购买，导致过去数周销售量接近崩溃。
+收购川普科技的SPAC公司-数字世界，来自吴征，其他股东，包括中共姓李的政协委员，以及运鸿集团，全是中共的情报企业。
 
-视频指出，Roeder压模公司的客户大众汽车目前缺少芯片，生产下调，开工不足，工人们大都情绪低落，均表示情形不是很乐观。
+CEO克里斯是太平联盟集团的创始人，曾参与对郭文贵先生的法律诉讼超限战。FBI前高管弗兰克，是吴征在美国的合伙人，也是太平联盟案件的调查人。此人不但伪造假信息、假照片，而且多次和吴征一起，策划洗劫美国人的财富。
 
-除大众汽车缺少芯片使Roeder压模公司深感困扰之外，这家供应商还缺少原材料铝和镁，它们都由中共提供，但主管该业务的部门已经关闭。Gerd Roeder无奈说，现在已经缩短了工人工作的时间，若情形再不改变，将考虑裁员。
+这次，他们再次伙同吴征，同时出现在这场洗劫与抢劫的并购中。背后由鸿运集团提供资金，涉及马云。这是一场中共全面布局操控的金融超限战。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/S1-LB235_VWHERD_M_20210709115359.jpg)图片来源：https://s.wsj.net/public/resources/images/S1-LB235\_VWHERD\_M\_20210709115359.jpg
+文字版原文：[投资数字世界收购公司的十一家机构中 八家由中共控制](https://gnews.org/zh-hans/1616297/)
 
-虽然Bosch和Infineon两家生产汽车芯片的大型公司在欧洲建有工厂，但仍无法满足德国的需求。德国的芯片大部分来自台湾、韩国，目前无法供货。
+音频处理：喜山必胜Maverick
 
-CT电脑杂志的分析人士称，建造一个最先进的芯片厂需要100亿欧元，所以短期内无法建厂，提供设备的厂家也很少。而且工厂往往依赖一种芯片，因此很难更换供应商或芯片。
-
-此外，德国一家当地报纸称，停在汉诺威工业博览会园地的数百辆奔驰货车的车门钥匙里也缺少芯片。
-
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[缺芯威胁着整个汽车产业](https://www.dw.com/zh/%E7%BC%BA%E8%8A%AF%E5%A8%81%E8%83%81%E7%9D%80%E6%95%B4%E4%B8%AA%E6%B1%BD%E8%BD%A6%E4%BA%A7%E4%B8%9A/av-59619292)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,46 +2,35 @@
 ---
 
 
-## COVID-19最新情報｜瑞典、英國新冠死亡案例 集中於「完全接種者」
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1618967/)
+## SPAC获利，但投资者警告个人崇拜不能取代投资要素
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619206/)
 
-**台灣寶島農場 疫情關注組｜發佈日期/ 26/10/2021**
+作者：香草山佛教部 -文一
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据10月24日的消息显示，川普媒体和技术集团在上周收购DWAC之后，其价值已高达82亿美元，而川普本人将拥有合并公司50%以上的股份，价值接近48亿美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide8-8.jpeg)
 
+但相关消息同时指出，川普的新企业面临巨大的阻力，其产品 Truth Social社交媒体平台已经出现了技术问题并被黑客攻击。 该公司CEO随后也评论称，他们没有财务数据和商业计划。
 
-瑞典、英國政府分析數據，發現9月因感染新冠病毒死亡者，絕大多數是完全接種者。這一結論，與西方國家於高疫苗覆蓋率的情形，突破性感染數量激增相符合。
+投资经验人士路易斯·纳维利尔在10月25日发文表示，个人崇拜不能取代投资基本要素，并且警告投资者称： DWAC的交易尚未完成，目前仍有告吹可能；同时，投资者很可能在合并案中被重新洗牌；另外， DWAC也可能因政治因素陷入困境；即便合并完成，与竞争对手相比，DWAC的可支配现金微乎其微。因此，路易斯建议避开DWAC的投资，并表示华尔街的疯狂将在DWAC上又一次充分展示。
 
-#### 瑞典
+(本文仅代表作者观点)
 
-[瑞典媒體](https://www.svd.se/forskare-ser-en-vikande-vaccineffekt-i-sverige)報導，公衛部門報告表示9月1日至24日，約[7成（130例）](https://ourworldindata.org/explorers/coronavirus-data-explorer?zoomToSelection=true&amp;time=2020-03-01..latest&amp;facet=none&amp;pickerSort=desc&amp;pickerMetric=total_cases&amp;hideControls=true&amp;Metric=Confirmed+deaths&amp;Interval=Cumulative&amp;Relative+to+Population=false&amp;Align+outbreaks=false&amp;country=~SWE)新冠確診死者是已經完全接種疫苗。報導進一步分析，死亡主要發生在老年族群，但相關人員仍認為瑞典疫苗保護力有下降趨勢。
+参考链接：
+1）[‘The Richest He’s Ever Been’: Trump Set To Gain Billions In Net Worth On Moonshot SPAC](https://www.zerohedge.com/political/trump-gains-billions-net-worth-moonshot-spac)
+2）[I’m a Trump supporter, but as an investor I’m wary of the Trump SPAC](https://www.msn.com/en-us/money/companies/i-m-a-trump-supporter-but-as-an-investor-i-m-wary-of-the-trump-spac/ar-AAPVPmB)
 
-- 相關：[瑞典研究顯示完全接種疫苗後，抗體將在三個月後急劇下降](https://gnews.org/zh-hant/1576453/)
-- 相關：[疫苗與ADE效應](https://www.chop.edu/centers-programs/vaccine-education-center/vaccine-safety/antibody-dependent-enhancement-and-vaccines)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：谐趣园
 
-#### 英國
-
-英國衛生部門數據顯示，瑞典情形也在英國發生。[英國、瑞典的疫苗接種率](https://coronavirus.data.gov.uk/details/vaccinations)幾乎相同。
-
-英國衛生安全局 (UKHSA) 於 10 月 7 日發布[報告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1023849/Vaccine_surveillance_report_-_week_40.pdf)，9月份大多數的死亡病例都已經完全接種疫苗。突破性感染而住院治療的病患，也是完全接種者佔多數。UKHSA 的數據顯示，「完全接種疫苗」死亡數量有2281人，遠高於未接種疫苗、部分接種疫苗。
-
-
-
-> Surging [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) in UK with 49,156 new cases and 45 new [#deaths](https://twitter.com/hashtag/deaths?src=hash&amp;ref_src=twsrc%5Etfw) reported on 18 October 2021. 78.9% of all aged 12 and up are DOUBLE VACCINATED. [#Breakthrough](https://twitter.com/hashtag/Breakthrough?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Geoffrey Norman Pain (@FluoridePoison) [October 18, 2021](https://twitter.com/FluoridePoison/status/1450225202353225729?ref_src=twsrc%5Etfw)
-
-
-
-- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
-- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
-- 相關：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
-- 相關： [COVID-19最新情報｜為何政府「忽視」自然免疫？](https://gnews.org/zh-hant/?p=1610194%28%E5%9C%A8%E6%96%B0%E5%88%86%E9%A0%81%E4%B8%AD%E9%96%8B%E5%95%9F%29)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/18-6.jpg)
-* * *
-
-新聞來源｜[Natural News](https://www.naturalnews.com/2021-10-25-majority-of-covid-deaths-are-fully-vaccinated.html)
-轉譯｜zhong
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,20 +2,25 @@
 ---
 
 
-## 加拿大自由党政府内阁发生重大人事更迭
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1619542/)
+## 有声|盖特用户逼近300万，已经成为真正的全球媒体平台
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1619591/)
 
-编译撰稿：硫酸羟氯喹64
+配音：香草山美食部 – 玫瑰园
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-13.jpg)图片来源：CBC
+10月24日，盖特首席执行官杰森·米勒先生在接受澳洲媒体采访时说，盖特用户不会因为在政治问题上发表意见而被“置于数字监狱”。
 
+米勒先生表示，盖特自今年7月4日推出以来“像火箭一样起飞”，已经拥有近300万用户。其中美国本土客户占47%，美国以外的客户占53%，因此，盖特成为真正的全球媒体平台。
 
-据加拿大自媒体《后千禧年》10月26日新闻报道，总理特鲁多领导的自由党内阁本周将有令人瞩目的重大人事职务变更，其中包括：哈伊杜卸任卫生部长，阿南德上任国防部长等。
+文字版原文：[盖特用户逼近300万，已经成为真正的全球媒体平台](https://gnews.org/zh-hans/1617051/)
 
-据悉，加拿大自由党政府内阁除了本次诸多的人事变动之外，留在原有职位的成员包括：担任副总理兼财政部长的弗里兰、担任交通部长的阿尔加布拉和担任农业部长的克劳德等。
+音频处理：喜山必胜Maverick
 
-此外，本次值得关注的内阁人事更迭还包括：原采购部长阿南德成为国防部长，原卫生部长哈伊杜成为土著事务部长，原遗产部长吉尔伯特成为环境部长，原语言和经济发展部长乔利成为外交部长等。
-
-(以上内容仅代表原文信息和作者个人观点)
-
-[原文链接：](https://thepostmillennial.com/hajdu-out-anand-in-defense-minister-cabinet)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
