@@ -2,46 +2,113 @@
 ---
 
 
-## COVID-19最新情報｜瑞典、英國新冠死亡案例 集中於「完全接種者」
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1618967/)
+## 10/26/21 香港快讯 林郑下令剔除支联会公司注册 指「结束一党专政」纲领旨在颠覆政权
+` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1619093/)
 
-**台灣寶島農場 疫情關注組｜發佈日期/ 26/10/2021**
+**搜集****/****整理：卡西欧**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1026fenmian.jpg)
+封面素材：苹果日报资料库
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-26-at-10.01.25-AM.png)
+**1. ****林郑下令剔除支联会公司注册****指「结束一党专政」纲领旨在颠覆政权**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+[据【立场新闻】10月26日讯，成立 32 年、一直争取平反六四的支联会，被港府指控煽动颠覆国家政权罪，上月已经正式解散。特首林郑月娥会同行政会议，今日下令公司注册处将支联会从公司登记册中剔除。指支联会一直坚持和宣扬其五大纲领，包括「结束一党专政」，指控「结束一党专政」的客观涵义，就是结束中国共产党的领导。](https://www.thestandnews.com/politics/林鄭下令剔除支聯會公司註冊-指控結束一黨專政綱領-旨在顛覆政權)
 
+[政府发言人称禁止支联会运作，是对于自由结社和自由发表言论或表达的权利施加的必要和相称限制，以尽量减低支联会可能带来的危害国家安全风险。](https://www.thestandnews.com/politics/林鄭下令剔除支聯會公司註冊-指控結束一黨專政綱領-旨在顛覆政權)
 
-瑞典、英國政府分析數據，發現9月因感染新冠病毒死亡者，絕大多數是完全接種者。這一結論，與西方國家於高疫苗覆蓋率的情形，突破性感染數量激增相符合。
+[支联会清盘人蔡耀昌今日回应指，有关决定当刊宪公告后，即等于支联会遭取缔解散，对于特区政府的决定表示难以理解及遗憾。](https://www.thestandnews.com/politics/林鄭下令剔除支聯會公司註冊-指控結束一黨專政綱領-旨在顛覆政權)
 
-#### 瑞典
+[支联会早前接获保安局局长信件，指支联会涉嫌危害国家安全，拟引用《公司条例》将支联会剔出注册公司名单。支联会公司秘书上月在申述期限届满前回覆称，由于现时支联会全体在任常委均失去人身自由，无法开会全面讨论，因此现阶段难以就有关问题作出详细和逐点回应。](https://www.thestandnews.com/politics/林鄭下令剔除支聯會公司註冊-指控結束一黨專政綱領-旨在顛覆政權)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-26-at-10.01.35-AM.png)
+**2. ****法援改革****大律师公会忧对司法覆核申请人不公**** **
 
-[瑞典媒體](https://www.svd.se/forskare-ser-en-vikande-vaccineffekt-i-sverige)報導，公衛部門報告表示9月1日至24日，約[7成（130例）](https://ourworldindata.org/explorers/coronavirus-data-explorer?zoomToSelection=true&amp;time=2020-03-01..latest&amp;facet=none&amp;pickerSort=desc&amp;pickerMetric=total_cases&amp;hideControls=true&amp;Metric=Confirmed+deaths&amp;Interval=Cumulative&amp;Relative+to+Population=false&amp;Align+outbreaks=false&amp;country=~SWE)新冠確診死者是已經完全接種疫苗。報導進一步分析，死亡主要發生在老年族群，但相關人員仍認為瑞典疫苗保護力有下降趨勢。
+[据【Now新闻台】10月26日讯，政府完成检讨法援制，提出多项改革，将来刑事案件法援申请人不能提名律师，由法援署指派；又收紧大律师每年不可以承接多过三宗司法覆核案。](https://news.now.com/home/local/player?newsId=454562)
 
-- 相關：[瑞典研究顯示完全接種疫苗後，抗體將在三個月後急劇下降](https://gnews.org/zh-hant/1576453/)
-- 相關：[疫苗與ADE效應](https://www.chop.edu/centers-programs/vaccine-education-center/vaccine-safety/antibody-dependent-enhancement-and-vaccines)
+[大律师公会忧虑，当法官当面对双方讼辩人大律师的资历差距，会否影响到法庭最终可以作出正确判决，担心在市民跟政府的司法覆核案中或会构成不公平。希望有更多时间收集会员意见。](https://news.now.com/home/local/player?newsId=454562)
 
+[政府强调，提出的改革都不涉及修例，只是修改行政安排不需要进行大量咨询，同意是「心急做」，回应社会关注。多名建制派议员赞成改革，认为过往机制被滥用。](https://news.now.com/home/local/player?newsId=454562)
 
-#### 英國
+[行政署长郑钟伟：「这个权利不是绝对的，法援署署长有权力及责任施加合理限制，目的是令到有公平审讯。」](https://news.now.com/home/local/player?newsId=454562)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-26-at-10.01.43-AM.png)
+**3. 9.15 ****游行案****陈皓桓认罪****加监一个月**** 5 ****案总刑期**** 22 ****个月**
 
-英國衛生部門數據顯示，瑞典情形也在英國發生。[英國、瑞典的疫苗接種率](https://coronavirus.data.gov.uk/details/vaccinations)幾乎相同。
+[据【立场新闻】10月26日讯，正就 4 宗示威案服刑的前民阵召集人陈皓桓，早前于狱中被加控前年 9.15 港岛游行中明知而参与非法集结。陈今（26 日）于东区裁判法院认罪，「敢做敢认，我认罪」。法庭书记宣读控方案情后，问他是否同意案情。陈一口气回应指：「被人拉我非常之同意；被人两年后告我，我非常之同意。我同意陈同佳未坐监，而我已经在坐监牢。」](https://www.thestandnews.com/court/915-遊行案-陳皓桓認罪敢做敢認)
 
-英國衛生安全局 (UKHSA) 於 10 月 7 日發布[報告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1023849/Vaccine_surveillance_report_-_week_40.pdf)，9月份大多數的死亡病例都已經完全接種疫苗。突破性感染而住院治療的病患，也是完全接種者佔多數。UKHSA 的數據顯示，「完全接種疫苗」死亡數量有2281人，遠高於未接種疫苗、部分接種疫苗。
+[裁判官邓少雄扣除包括延迟检控的减刑因素后，判被告囚 3 个月，其中 1 个月分期执行，即陈被加监 1 个月。连同早前 4 宗示威案刑期，现陈总刑期为囚 22 个月。陈闻判后高叫「多谢法官阁下」。本案为陈皓桓第 2 次被加监。](https://www.thestandnews.com/court/915-遊行案-陳皓桓認罪敢做敢認)
 
+[陈早前涉 4 宗示威案，均已认罪，分别被判囚 10 至 18 个月，其中三案由法官胡雅文判刑的案件，刑期获同期执行，原总刑期为 18 个月。陈于本月判刑的去年 7.1 游行案中，首次被法官游德康加监 3 个月，总刑期增至 21 个月，再因本案加监一个月，总刑期增至 22 个月。他涉案如下：](https://www.thestandnews.com/court/915-遊行案-陳皓桓認罪敢做敢認)
 
+[● 2019.10.01 集会案：判囚 18 个月](https://www.thestandnews.com/court/915-遊行案-陳皓桓認罪敢做敢認)
 
-> Surging [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) in UK with 49,156 new cases and 45 new [#deaths](https://twitter.com/hashtag/deaths?src=hash&amp;ref_src=twsrc%5Etfw) reported on 18 October 2021. 78.9% of all aged 12 and up are DOUBLE VACCINATED. [#Breakthrough](https://twitter.com/hashtag/Breakthrough?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Geoffrey Norman Pain (@FluoridePoison) [October 18, 2021](https://twitter.com/FluoridePoison/status/1450225202353225729?ref_src=twsrc%5Etfw)
+[● 2019.10.20 九龙游行案：判囚 16 个月](https://www.thestandnews.com/court/915-遊行案-陳皓桓認罪敢做敢認)
 
+[● 2020.06.04 集会案：判囚 10 个月](https://www.thestandnews.com/court/915-遊行案-陳皓桓認罪敢做敢認)
 
+[● 2020.07.01 游行案：判囚 12 个月【加监 3 个月】](https://www.thestandnews.com/court/915-遊行案-陳皓桓認罪敢做敢認)
 
-- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
-- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
-- 相關：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
-- 相關： [COVID-19最新情報｜為何政府「忽視」自然免疫？](https://gnews.org/zh-hant/?p=1610194%28%E5%9C%A8%E6%96%B0%E5%88%86%E9%A0%81%E4%B8%AD%E9%96%8B%E5%95%9F%29)
+[● 2019.09.15 游行案：判囚 3 个月【加监 1 个月】](https://www.thestandnews.com/court/915-遊行案-陳皓桓認罪敢做敢認)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/18-6.jpg)
-* * *
+[开庭前，陈皓桓所属政治组织社民连有 3 名成员于庭外声援。](https://www.thestandnews.com/court/915-遊行案-陳皓桓認罪敢做敢認)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-26-at-10.01.51-AM.png)
+**4. ****元朗民主派区议员「清零」****沉豪杰再任主席****望保留区议会**
 
-新聞來源｜[Natural News](https://www.naturalnews.com/2021-10-25-majority-of-covid-deaths-are-fully-vaccinated.html)
-轉譯｜zhong
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
+[据【立场新闻】10月26日讯，元朗区议会经历区议员辞职和 DQ 潮后，议席由原来 45 个，至今仅余 11 人留任，民主派议员更被清零。](https://www.thestandnews.com/politics/a-元朗民主派議員清零-沈豪傑再任主席-倡保留區議會)
+
+[元朗区议会今日（26日）举行大会，在「清一色」建制派议员下，大会重新选出主席，最终由上届元朗区议会主席沉豪杰再度当选。沉豪杰重新执掌元朗区议会后，在其 Facebook 专页发表感言，称 2019 年区议员选举后，区议会变得「泛政治化」，而现时仍留任的区议员都已通过宣誓，「这是中央对区议会乱象的『拨乱反正』和『爱国者治港』的体现」。](https://www.thestandnews.com/politics/a-元朗民主派議員清零-沈豪傑再任主席-倡保留區議會)
+
+[沉豪杰认为，区议会是一个能够贴近民情，反映民意的良好组织，只要完善其组成和制度，区议会是值得保留。惟他在文中未有提出「完善」区议会组成和制度的方法。](https://www.thestandnews.com/politics/a-元朗民主派議員清零-沈豪傑再任主席-倡保留區議會)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-26-at-10.02.00-AM.png)
+**5. ****财委会本年批出**** 3,278 ****亿元拨款****创本届最高**
+
+[据【立场新闻】10月26日讯，第六届立法会任期将于本周六 (30 日)结束，财委会主席陈健波今日（26 日）在财委会总结记者会表示，本年度因没有议员拉布，财委会善用时间、取得「丰硕成果」，48 次、约 127 小时的会议共批出了 120 个项目，涉及 3,278 亿元，尽管开会次数及时数均较上个会期少，但本会期批出金额亦为本届立法会最高。陈健波以「苦尽甘来」形容这五年，又称没想过可以如此顺利。](https://www.thestandnews.com/politics/a_財委會本年批出-3278-億元撥款-創本屆最高-陳健波恍如隔世)
+
+[陈健波表示，除了防疫抗疫基金之外，共批出了 63 项工务工程，涉及 2276 亿，破了历年纪录；另有 57 项非工务工程，涉及 1002 亿，包括注资创科基金及海洋公园发展等。](https://www.thestandnews.com/politics/a_財委會本年批出-3278-億元撥款-創本屆最高-陳健波恍如隔世)
+
+[记者问财委会是否已如「提款机」，陈健波表示不同意，称相信市民监察，故不担心成「提款机」。他又指现时感觉恍如隔世，从未想过会如此顺利。](https://www.thestandnews.com/politics/a_財委會本年批出-3278-億元撥款-創本屆最高-陳健波恍如隔世)
+
+[被问及被问会否角逐连任，陈健波指，如果自己参选又当选，再由当时的议员决定， 而如果议会及香港需要他，会乐意去做。](https://www.thestandnews.com/politics/a_財委會本年批出-3278-億元撥款-創本屆最高-陳健波恍如隔世)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-26-at-10.02.08-AM.png)
+**6. ****为争取与内地通关****林郑宣布取消大部分入境豁免检疫群组**
+
+[据【立场新闻】10月26日讯，行政长官林郑月娥今早 (26 日)出席行政会议前会见传媒，回应记者查询何时香港可与内地通关时表示，特区政府从来非常重视尽快让香港居民回内地免检疫 ，这些努力从来没有松懈，但目前没有定下目标时间，只希望越早越好。](https://www.thestandnews.com/society/為爭取與內地通關-林鄭宣佈取消大部分入境豁免檢疫群組)
+
+[港府早前向中央提出具体通关要求及建议，中央相关部门回馈了意见，港府就中央提出如何令香港防疫工作与内地一致的意见，再次向内地提交了意见，并会落实执行。](https://www.thestandnews.com/society/為爭取與內地通關-林鄭宣佈取消大部分入境豁免檢疫群組)
+
+[林郑透露，往后香港会加紧防疫措施，最近宣布、进入所有政府处所要用安心出行，方便追踪紧密接触者。稍后亦会公布海外或内地进入本港免检疫的谓豁免群组将会取消，只剩一些非常有紧急必要性、与香港日常运作有关的人，譬如跨境货车司机，才可免检疫往来两地。](https://www.thestandnews.com/society/為爭取與內地通關-林鄭宣佈取消大部分入境豁免檢疫群組)
+
+[根据现有安排，从内地、澳门或台湾抵港者，有两七大类、36 个组别的人士可豁免入境后接受强制检疫。](https://www.thestandnews.com/society/為爭取與內地通關-林鄭宣佈取消大部分入境豁免檢疫群組)
+
+[至于由外国到港人士的强制检疫安排，目前有五大类、12 组别人士获豁免。五大类包括对供应香港正常运作或香港的人日常生活所需的物品或服务属必要；对政府事务运作属必要；对保障香港的人的安全或健康属必要等等。这些人包括货船船员、客船船员、金管局、证监会及保监会等执行董事或以上级别的公职人员等等。](https://www.thestandnews.com/society/為爭取與內地通關-林鄭宣佈取消大部分入境豁免檢疫群組)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-26-at-10.02.18-AM.png)
+**7. ****曾对恒大年报发表「无保留意见」****PwC****被查**
+
+[据【大纪元时报】10月26日讯，近日，香港财务汇报局发布公报，就恒大集团有关持续经营的汇报展开调查，包括对恒大2020年度帐目，以及2021年中期帐目的财务报表展开查讯；同时对国际会计师事务所罗兵咸永道（PwC）就恒大2020年度帐目进行的审计展开调查。](https://hk.epochtimes.com/news/2021-10-26/24636761)
+
+[财务汇报局在公报中提到，罗兵咸永道在中国恒大2020年度审计报告中，发表了无保留意见，但并没有提及持续经营的重大不确定性。据此香港财汇局质疑，恒大帐目有没有遵守适用的财务汇报准则，以及罗兵咸永道有没有遵从审计准则。](https://hk.epochtimes.com/news/2021-10-26/24636761)
+
+[引人关注的是，此次被调查的罗兵咸永道（PwC）是国际知名的「四大」会计师事务所之一，其总部位于英国伦敦，业务范围遍及全球一百五十多个国家和地区，包括中国大陆。](https://hk.epochtimes.com/news/2021-10-26/24636761)
+
+[除了恒大以外，罗兵咸永道服务过的中国企业还有很多。在2021年中国市值百强的企业里，其参与审计的公司高达32家。腾讯、阿里、中国平安、中国移动、小米、美团、顺丰、交通银行、中信银行等皆为其服务客户。](https://hk.epochtimes.com/news/2021-10-26/24636761)
+
+[不过，恒大财报的审计问题并不是罗兵咸永道第一次被质疑，瑞幸、海航、苏宁、美国TBW等企业的财报背后都有罗兵咸永道的身影。](https://hk.epochtimes.com/news/2021-10-26/24636761)
+
+[目前，恒大集团的债务危机受到全球金融市场关注。恒大此前披露，截至6月31日，其债务总额为1.97万亿人民币。大致相当于中国国内生产总值的2%。](https://hk.epochtimes.com/news/2021-10-26/24636761)
+
+[10月初，外资摩根大通（JPMorgan Chase）出具报告，指出恒大集团有大量隐藏性债务，占实际总债务的55%，净负债率高于177%，大于报表的100%。](https://hk.epochtimes.com/news/2021-10-26/24636761)
+
+[此前，恒大已连续三次错过还债期限，进一步加剧了市场对中国房地产业债务违约现象蔓延的忧虑。](https://hk.epochtimes.com/news/2021-10-26/24636761)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-26-at-10.02.26-AM.png)
+**8. ****恒指倒跌****93****点****阿里健康发盈警挫****10.9% ****物管股全线下跌**
+
+[据【大纪元时报】10月26日讯，恒生指数今（26日）高开102点，随后乏力向下倒跌，午市反覆，最终低收。全日低位见25,905点，最多曾跌226点，最后收市报26,038点，跌93点，全日成交额录得1,140亿港元。](https://hk.epochtimes.com/news/2021-10-26/21238046)
+
+[阿里健康（00241）发盈警，股价暴跌10.9%，该公司表示截至9月底止半年，将录得不多于3.2亿元人民币亏损净额，去年同期录利润净额2.8亿元人民币。](https://hk.epochtimes.com/news/2021-10-26/21238046)
+
+[物管股全线下挫，世茂服务（00873）跌2.5%、华润万像生活（01209）跌5.4%与越秀服务（06626）跌4.4%等。住建部等上周发布整顿房地产声明，提及针对物业管理业的整改。](https://hk.epochtimes.com/news/2021-10-26/21238046)
+
+[开市前，当代置业（01107）宣布无力支付10月25日到期日2.5亿美元、12.85厘优先票据的本金和利息。内房股应声大跌，佳兆业（01638）跌11.4%、世茂集团（00813）跌7.7%、合生创展（00754）跌5.6%、融创中国（01918）跌4.1%等。](https://hk.epochtimes.com/news/2021-10-26/21238046)
+
+[理文化工（00746，升20.2%）拟开展电池新材料业务。新东方在线（1797）昨宣布停止于大陆经营义务教育阶段学科类校外培训服务，今股价持续偏软，倒退4.6%，其它培训股均报跌。科网股个别发展。](https://hk.epochtimes.com/news/2021-10-26/21238046)
+
+【以上观点仅代表笔者本人 并不代表GNEWS立场】
+
+校对 / 封面合成：文粤 / 发布：流光飞舞

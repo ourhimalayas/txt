@@ -2,28 +2,32 @@
 ---
 
 
-## 疫苗灾情｜英国 40 岁女演员接种疫苗后中风昏迷
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1618638/)
+## 新西兰总理希望将未接种疫苗的公民与接种疫苗的公民隔离
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1618668/)
 
-**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 26/10/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+**翻译编写：** 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ardern-edited.jpg)图片来源：网络
+来自OAN 星期一25日的新闻报道：
 
-【英国】伦敦一名 40 岁的澳籍女演员 Melle Stewart 在接种完阿斯利康 COVID-19 疫苗后引起严重中风，昏迷三周后甦醒，目前她要从学习走路、说话开始，进行漫长而艰难的康复治疗。
+新西兰总理承认疫苗接种证书计划的目标是把人们分成两个群体。
 
-Melle 5 月 24 日接受了第一针疫苗，两周后一天，她忽然倒地不起，被紧急送往医院后，她被诊断出患有血小板减少性血栓症，直接被推进了重症监护病房。
+在周日的一次采访中，总理Jacinda Ardern 被问到她是否试图为那些没有接种疫苗的人争取自由。她毫不犹豫地说，这实际上就是认证的目的。
 
-不久，又发现她的大脑主要静脉有两个巨大的血凝块，因此导致 Melle 严重中风，很快，Melle 就陷于昏迷，三个星期后，即 9 月 8 日，她终于甦醒，被转移到伦敦的一间专科医院进行康复治疗，预计将至少住到 2022 年。
+总理Ardern 指出，这关乎安全，因此接种疫苗的人可以放心，因为他们周围没有未接种疫苗的人。
 
-同时，她仍需继续服用抗凝血和抗癫痫药物，并将需要进一步的手术，从提供的康复照片可以看到，在她的头骨上安装一块钛板，替换在之前手术中移除的部分。
+“对我来说很清楚的是，它们不仅仅是推动疫苗接种的工具。它们是增强信心的工具，”Ardern 声称。 “接种过疫苗的人会想知道他们身边有其他接种过疫苗的人。他们会想知道他们在一个安全的环境中。”
 
-她的丈夫兼演员 Ben Lewis 表示，“太太从未住过医院，是一位相当健康的职业女演员，现在要重新学习如何说话、走路以及如何移动她的右臂和手。”不过，他同时引述太太的意思指“虽然太太几乎死于这并发症，但相信这是十分罕见的，她依然支持大家接种疫苗。”
+新西兰最初对 COVID 采取了完全消除策略，尽管后来证明这在 Delta 变体爆发中是不可能的。 Ardern 表示，在 90% 的符合条件的居民接种疫苗之前，她没有计划解除新西兰的封锁。
 
-小编有话说，衷心希望患者早日康复，亦希望大家慎重接种疫苗，因为再罕有的并发症，当不幸降临，就是 100%。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/49_0.jpg)
-来源｜[个案049](https://www.9news.com.au/national/coronavirus-vaccine-update-australian-actress-melle-stewart-stroke-astrazeneca-covid19-vaccination-backs-jab-exclusive/65ee9209-4a3b-4d86-89da-ac7edc9f702e)
+**点评：**
 
-* * *
+新西兰总理在走一步险棋，有人推特上把此和1930年代德国纳粹剥夺犹太人权利相提并论， 这在当下可能太过。但是如果真的鲁莽地去执行，那么我们会不会看到如上世纪50年代美国公共汽车上座位分区(白人与有色人隔离)的场景呢？ 人类文明 和对文明的认知在倒退吗？另外，这还将更加分化社会成两个阶级， 导致暴力与暴乱。
 
-他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//｜//[美国 35 岁疫苗拥趸孕期接种后致新生儿夭折](https://gnews.org/zh-hans/1605744/)//｜//[澳洲 30 岁夫妇接种疫苗后相继出现心脏疾病](https://gnews.org/zh-hans/1607321/)//｜//[意大利 18 岁少年接种疫苗2周内突患罕见病](https://gnews.org/zh-hans/1610841/)//｜//[比利时 22 岁自行车手接种疫苗后心力衰竭 职业生涯被迫结束](https://gnews.org/zh-hans/1612160/)//
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
+原文链接：[https://www.oann.com/new-zealand-prime-minister-wants-to-segregate-unvaccinated-from-vaccinated-citizens/](https://www.oann.com/new-zealand-prime-minister-wants-to-segregate-unvaccinated-from-vaccinated-citizens/)
+
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+
+编辑/发布：LILY
+
+20211026
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)

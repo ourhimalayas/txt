@@ -2,34 +2,33 @@
 ---
 
 
-## 加拿大皇家骑警的公开信
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1618679/)
+## 佛州表示，疫苗不能阻止病毒扩散但副作用确被阻止传播
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618693/)
 
-**翻译：**昔马千羽
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片16876-edited.png)图片来源：网络
-加拿大皇家骑警提交这封公开信，以表达关切和坚决的立场，反对对加拿大人进行强制的医疗干预。作为执法人员不能凭良心参与执行认为有悖于所保护人的最佳利益的强制规定。
+作者：枫叶农场 文仁
 
-作为加拿大人，我们受宪法保护的自由先于政府，只有在大多数证据证明这种侵犯是合理的、可证明的、并以法律为指导的情况下，才可能被暂时限制。如果在法庭上提出所有可用的证据，我们坚信，政府实施的任务在审查中是站不住脚的。一个完整的调查必须包括充分披露案件的所有事实，甚至是相互矛盾的证据。那么为什么在这个问题上对自由和公开的辩论几乎没有容忍？许多可靠的医学和科学专家正在受到审查。因此，我们有理由对我们被强迫 “遵循 “的 “科学 “表示担忧。我们从未在我们的国家目睹过这样的分裂，这种 “我们与他们 “的感觉将进一步加剧。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-作为执法人员，由于我们的工作性质，我们已经面临较高的压力和精神疾病。这些问题由于我们认为非常不道德、威胁到我们的生计和分裂社会的任务而变得更加复杂-——相当复杂。作为联邦雇员，正在做什么来减轻这种压力？
 
-此外，我们得到什么保证，注射会不会造成短期或长期的副作用？将采取什么措施来确保成员因不良副作用而得到补偿？
 
-警察被期望维护和平，维护法律，并捍卫公共利益。我们坚信，强迫和胁迫的医疗手段破坏了这三者，因此与我们对加拿大人的义务和责任相矛盾。我们仍然忠于《宪章》和《权利法案》，请您派调查员收集声称他们被压制的医疗专业人士（和其他可靠的证人）的陈述，不要使生命处于危险之中。
+近日，佛罗里达州医务总监公开指出，“疫苗不能阻止病毒传播，但一直有一股力量阻止着疫苗副作用真相的传播”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1026-AM-（1-4）.004.jpeg)
+这位医务总监强调说，当疫情开始的时候，舆论告诉公众，疫苗在90%的程度上能够阻止病毒传播。但10个月后的数据显示，疫苗的有效率低于40%。政府试图通过强制疫苗接种来创造一个安全工作环境的做法完全是谎言。同时，从大流行开始到现在，一直都有一股串通好了的力量在阻止有关疫苗副作用的真实信息的传播。但民众需要知道真实信息。
+(本文仅代表作者观点)
 
-请允许我们向所有人公开这些信息，以便公众能够仔细审查并实现知情同意。
+参考链接：[佛罗里达州医务总监： 疫苗不能阻止病毒传播， 一直有一股力量阻止疫苗副作用真相的传播](https://www.gettr.com/post/pf5laa3d51)
 
-**评：**加拿大皇家骑警现在已经有四万多人联名签字拒绝强制疫苗，非常感谢他们为
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-捍卫加拿大人权和自由而做的努力，大家可以到链接的最后签名来支持他们。
+总编：Ivy001
+编辑：山本不惑
+校正/发稿：我不在这里
 
-反观澳洲警察，加拿大皇家骑警太棒了！You’re awesome!
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-原文地址：[https://mounties4freedom.ca](https://mounties4freedom.ca)
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：LILY
-
-20211026
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

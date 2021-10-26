@@ -2,21 +2,24 @@
 ---
 
 
-## 秘翻在线：NIH被指控资助了虐待猴子的实验
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1618751/)
+## 紧急救援人员大规模抗议纽约强制疫苗政策
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1618802/)
 
-#### 翻译撰稿：zzballack
+#### 撰稿：Grace
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-51.jpg)图片来源：CLarionNews
+据新闻周刊（Newsweek）10月25日的报道，数以千计的急救人员封锁了纽约市布鲁克林区的道路，他们抗议该市对市政工人的强制疫苗授权。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Snipaste_2021-10-26_19dsa56456d-58-44.png)
+这些示威者当中有纽约消防局（FDNY）、紧急医疗服务（EMS）、纽约环卫局（SDNY）和纽约警察局（NYPD）的城市工作人员。
 
-据《每日邮报》（Daily Mail）10月25日报道，纳税人监督组织“白大褂浪费项目（White Coat Waste Project，WCW）”上周末曝光了美国国立卫生研究院（NIH）下属机构、福奇领导的美国国家过敏和传染病研究所（NIAID）对小猎犬幼犬进行的残忍实验。
+上周，市长比尔.德布拉西奥(Bill de Blasioa)宣布，常规的中共病毒测试将不再是代替疫苗接种的选择，包括第一反应者在内的城市雇员将在10月29日前至少接种一剂疫苗。
 
-其实早在2019年12月，WCW就曾指控NIH在猴子身上进行“怪异的心理学实验”，并在实验中用硫酸、玩具蛇和橡胶蜘蛛折磨猴子。NIH已资助这类实验连续40多年，从2007年起，这些实验就花费了近1亿美元纳税人的钱。
+报道指出，该市大多数工人只有不到一周的时间来接种中共病毒疫苗，否则就会被无薪休假。
 
-一段被公开的猴子实验录像显示，心烦意乱的灵长类动物被锁在狭小的笼子里，研究人员用橡胶蜘蛛和机械蛇吓唬它们，以观察它们的恐惧本能反应。NIH的科学家们随后切除了它们的部分大脑，或用酸液伤害它们，以“故意加重灵长类动物的恐惧”。在视频中，可以听到一个冷酷
+“如果你选择不打，你有权休无薪假。我们将与你的工会合作，弄清楚接下来会发生什么。但底线是，除非人们接种了疫苗，否则我们不会支付他们的工资，”市长补充说。
 
-无情的NIH人员开玩笑说：“跳舞的猴子究竟在哪儿？”WCW声称这些被录下的实验发生在马里兰州贝塞斯达的国家心理健康研究所（NIMH）。WCW曾要求NIH向他们提供与灵长类动物的浪费和怪异心理学实验有关的视频和其他材料，但却被拒绝。
+据报道，这项任务预计将适用于大约16万名尚未被要求注射疫苗的雇员，雇主正准备面临重大的人员短缺。
 
-WCW的调查促使国会指示NIH委托美国国家学院（National Academies）独立研究这类灵长类动物实验的替代方案，而且必须在2020年底前报告其减少和取代灵长类动物实验的努力。
+截至上周二，纽约警察局的总体疫苗接种率为71%。其他城市工作人员的接种率更低，只有60%的纽约市警察局和联邦调查局的军警人员接受了接种。
 
-新闻来源：[**NIH is now accused of spending $100m of taxpayer’s money on torturing lab monkeys with ACID and snakes: DeSantis leads calls for Fauci to quit after he was revealed to have funded horrific testing on beagles**](https://www.dailymail.co.uk/news/article-10129521/NIH-tortured-monkeys-acid-toy-snake-Fauci-faces-calls-resign-dog-torture-tests.html)
+**新闻来源：**[Emergency Workers Come Out in Force in Mass Protest Against New York Vaccine Mandate](https://www.newsweek.com/hundreds-emergency-workers-block-new-york-roads-protest-against-vaccine-mandate-1642309)

@@ -2,23 +2,45 @@
 ---
 
 
-## 可支配收入，又拖了国家的后腿
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1618866/)
+## 世贸组织将审查中澳葡萄酒争端
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1618925/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-148.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fwww.xinhuanet.com%2Ffortune%2F2018-08%2F09%2F1123245651_15337826023261n.jpg&amp;imgrefurl=http%3A%2F%2Fwww.xinhuanet.com%2Ffortune%2F2018-08%2F09%2Fc_1123245651.htm&amp;tbnid=dTvvqJ04003V5M&amp;vet=12ahUKEwibuqmrkOjzAhUzlUsFHYjmBhoQMygUegUIARDEAQ..i&amp;docid=ikr12hS1UAM6JM&amp;w=640&amp;h=365&amp;q=%E5%8F%AF%E6%94%AF%E9%85%8D%E6%94%B6%E5%85%A5&amp;ved=2ahUKEwibuqmrkOjzAhUzlUsFHYjmBhoQMygUegUIARDEAQ)
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-人民网北京10月25日电，国家统计局网站近日公布了31个省份前三季度居民人均可支配收入情况和人均消费支出情况。其中，9个省份居民人均可支配收入高于全国平均水平，8个省份居民人均消费支出高于全国平均水平。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/14-13.jpg)
 
-国家统计局此前公布的数据显示，前三季度，全国居民人均可支配收入26265元，比上年同期名义增长10.4%；扣除价格因素影响，实际增长9.7%，与GDP增长基本同步。从消费来看，31省份中，8个省份前三季度居民人均消费支出高于全国平均水平，分别是上海、北京、浙江、天津、广东、江苏、福建、重庆。其中，前7个省份超过了2万元，均为东部和沿海地区，来自西部的直辖市重庆紧随其后，居民人均消费支出跑赢全国平均水平，在中西部地区领先。
 
-2020年中国家庭的偿债负担为137.9％，变成纯负债大国，每个国人负债7万元额度何来消费支配？被平均后的收入与支出，不仅是拖了国家的，还有省里的、市里的、县里的……
 
-消息来源：[前三季度各地居民人均可支配收入及消费支出数据出炉](https://mo.mbd.baidu.com/r/vmZ88JjtbG?f=cp&amp;rs=201960695&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=ce315cddfc3b5b0c)
+图片来源：i1.wp.com
 
-免责声明：文章仅代表作者本人观点，与GNEWS无关
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)
+#### 编译：小红帽
+
+世界贸易组织(WTO)成立了一个争端解决小组，以审查中共国对澳大利亚葡萄酒征收的反倾销税。
+
+贸易部长丹·特汉（Dan Tehan）和农业部长大卫·利特普劳德（David Littleproud）回应称，澳大利亚将继续利用世贸组织争端解决机制“大力捍卫”澳大利亚葡萄酒生产商和出口商的利益。
+
+“澳大利亚仍然愿意与中共国进一步讨论，以解决这个问题，”特汉和利特普劳德在周二晚间的一份声明中说。
+
+据路透社报道，该争端解决机构周二在日内瓦举行闭门会议，同意澳大利亚的第二次请求，因为澳大利亚的第一次请求被中共国阻止了。
+
+中共国去年对澳大利亚生产商征收了约200%的关税。
+
+根据中澳自由贸易协定，澳大利亚生产商曾受益于零关税。
+
+近年来，澳大利亚和中共国之间的关系恶化，中共国的申诉清单涵盖外国投资规则、禁止华为参与5G网络以及澳大利亚推动对中共病毒（COVID-19）起源的调查。
+
+随着外交争端的加深，中共国对澳大利亚发起了一系列贸易打击，包括葡萄酒、大麦、棉花、红肉、海鲜、糖、木材和煤炭出口。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[WTO to examine China-Aust wine dispute (msn.com)](https://www.msn.com/en-au/news/australia/wto-to-examine-china-aust-wine-dispute/ar-AAPXYrl?ocid=msedgntp)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

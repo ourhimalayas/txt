@@ -2,45 +2,37 @@
 ---
 
 
-## 世贸组织将审查中澳葡萄酒争端
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1618925/)
+## 新闻述平：为何 “六中全会” 召开在即，习的地盘疫情在扩散
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1619086/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10265.png)[图片来源](https://global.udn.com/global_vision/story/8662/5841422)
+**毫无疑问，COVID19生物武器已成为全球“政治病毒”了，它不仅可以打击他的敌对国，还可以打击政治对手。包括病毒始作俑者中国共产党。不巧的是习的政治版图——西北地区被击中了。且在“六中全会”召开前夕扩散？这次靶目标是习近平吗？**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/14-13.jpg)
+据《[朝日新闻](https://www.asahi.com/articles/ASPBT61FWPBTUHBI007.html)》26日消息，中共国大陆的公民行动正在因 COVID19病毒Delta 菌株的感染的广泛扩散再度受到限制，“部分地区禁止跨省旅游，西北部甘肃省兰州市公共交通暂停。可见此轮疫情扩散不在繁华的东部地区，却选择了西北贫困之地，颇具玩味。
 
+“16日以来，已有11个省、市、自治区发现感染者160余人。” “自从24日北京发现15人感染后，从疫区进城的航班和火车也受到限制。”　不但如此，原计划[北京和武汉的马拉松赛事也被推迟](https://www.163.com/dy/article/GN4FN97U0514DCDB.html)。各地都在加大PCR检测和隔离措施。
 
+此轮疫情多点扩散是在国庆长假后爆发，据转角国际消息称：“根据中国官方的初步调查，已知和10月9日从上海出发的旅行团有密切关系。该7人旅行团途经甘肃、内蒙古、陕西西安等地区旅游，结果在10月18日发现整团7人全员确诊。”[阅读更多](https://global.udn.com/global_vision/story/8662/5841422)。
+![](https://lh6.googleusercontent.com/L_D_3oTS77Z0j_qFJYtyMY-OLqf7iPGy39n45-U1TzRAK_39LExllrfmmIBjOzMe74fgiY9ss7NKxgo9aKapOkVT3G_oZmMmz56afnqrDopF2oMUOPY_acYv3gU_ctZwSR5lqtIP=s1600)[图片来源](https://www.bbc.com/zhongwen/simp/world-59005914)
+自从大流行以来，病毒真相一直被瞒报，尽管如此，随着爆料革命的真相传播，中共释放的生物武器言论甚嚣尘上。但真相仍旧被官方掩盖，这显然变成了政治病毒。
 
-图片来源：i1.wp.com
+中共《非典非自然人制人新种病毒基因武器》一书中自爆，病毒可以定点打击“靶目标人群”，且有效控制。“**所以。该生物武器使用者作为一种有力的（战争）威胁手段，和靶人群高层进行长时间讨价还价**。”不仅如此，还可以进行“个体生物袭击”，其中讲到了某国总统反复患癌症死亡。（见军事医学科学出版社2015年8月第一版 P92 ）
 
+鲜为人知的是，美国前总统川普也曾感染，即便如此，也因无法取证不了了之。
 
-#### 编译：小红帽
+这可以解释什么是“[政治病毒](http://www.china-embassy.or.jp/chn/mtdh/t1899250.htm)”了。它不仅可以打击他的敌对国和某区域，还可以打击他的政治对手。例如，此次疫区包括习的政治版图——西北地区。[（甘肃）阅读更多](http://www.news.cn/yingjijiuyuan/2021-10/26/c_1211420337.htm)。
 
-世界贸易组织(WTO)成立了一个争端解决小组，以审查中共国对澳大利亚葡萄酒征收的反倾销税。
+这就可以反向推测，中共为什么允许在即将于11月8日至11日在北京召开“六中全会”前夕扩散？在这次即将召开的六种全会对习近平和全党命运至关重要。他还牵涉到台湾的命运。[阅读更多](https://www.bbc.com/zhongwen/simp/world-59005914)。
 
-贸易部长丹·特汉（Dan Tehan）和农业部长大卫·利特普劳德（David Littleproud）回应称，澳大利亚将继续利用世贸组织争端解决机制“大力捍卫”澳大利亚葡萄酒生产商和出口商的利益。
+因此，派系斗争的新武器或许是疫情警戒令。它可以更好地控制人群互动，甚至可以对政治对手定点清除。
 
-“澳大利亚仍然愿意与中共国进一步讨论，以解决这个问题，”特汉和利特普劳德在周二晚间的一份声明中说。
+他使疫情在北京蔓延的另一个理由是，距离2022年2月份冬奥会的召开不到4个月。这个敏感时期病毒蔓延。说明这是有人要给习近平施加巨大压力——造成冬奥会北京不能确保安全的恐慌局面，引起国际社会有效的抵制。
 
-据路透社报道，该争端解决机构周二在日内瓦举行闭门会议，同意澳大利亚的第二次请求，因为澳大利亚的第一次请求被中共国阻止了。
+2021年10月26日
 
-中共国去年对澳大利亚生产商征收了约200%的关税。
+（本文只代表个人观点，与Gnews网站无关）
 
-根据中澳自由贸易协定，澳大利亚生产商曾受益于零关税。
-
-近年来，澳大利亚和中共国之间的关系恶化，中共国的申诉清单涵盖外国投资规则、禁止华为参与5G网络以及澳大利亚推动对中共病毒（COVID-19）起源的调查。
-
-随着外交争端的加深，中共国对澳大利亚发起了一系列贸易打击，包括葡萄酒、大麦、棉花、红肉、海鲜、糖、木材和煤炭出口。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[WTO to examine China-Aust wine dispute (msn.com)](https://www.msn.com/en-au/news/australia/wto-to-examine-china-aust-wine-dispute/ar-AAPXYrl?ocid=msedgntp)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*校对：东京樱花团 / 文小白*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)

@@ -2,35 +2,24 @@
 ---
 
 
-## 起底运鸿国际的中共背景
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618692/)
+## 中共国一家银行的分行将一家公司的28亿存款用于但保
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1618756/)
 
-作者：美东香草山教育部-正义的小新
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+撰稿：永遠の小学生文筝
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-12.jpg)网络截图
 
 
-郭文贵先生此前于22日连发多条盖文，爆料运鸿集团的中共背景——运鸿有着深厚的中共背景。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1026-AM-（1-4）.003.jpeg)
-对此，文贵先生在其盖文上展示了诸多新闻截图。新闻称，运鸿集团股份有限公司党支部每周举办一次“每周一学”会议，旨在进一步加强共产党的思想、作风、基层组织和党员队伍的建设。新闻提到，运鸿集团声称，要把“党的精神渗透到人才队伍与企业文化上”。
 
-此外，郭先生还在盖文中提及运鸿的CEO李玉保，他曾帮助布基納法索实现一带一路的共同发展。另外，运鸿集团也曾联合台儿庄区武装部军训教官，组织人员进行拉练活动。 同时，李玉保此人也被郭先生在24日的大直播中再次点名。文贵先生指出，李玉保是中共政协委员，也是吴征收购的DWAC公司的股东之一，二者都是中共的情报头子。
 
-对于运鸿集团的后续跟进报道，我们将持续关注。
-(本文仅代表作者观点)
 
-参考链接：[运鸿集团的背景 （二）](http://】https://gettr.com/post/pewd5a6b5a)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+2021年10月25日，墙内爆出一条新闻，说是渤海银行的南京分行把江西一家企业存的33亿元中的28亿，偷偷用作了其他企业的质押担保。这就相当于一个普通人到银行存了一笔钱，某一天银行突然电话告知，您的理财破产了，但我当时是存的定期啊，手里拿的是定期存单啊。
 
-编辑/总编：Irene木木
-校正/发稿：我不在这里
+江西的一家叫济民可信的企业下属的山禾药业跟恒生制药的28亿元，被渤海银行南京分行用于质押为一家叫华业石化的公司提供担保，而这家华业石化据说是中国石油集团控股公司。就算事情败露，恒生制药存的三笔“新易存”12亿元存款已被质押不能支取，其他的多笔存款恒生制药和山禾药业也已无法支取。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这次挪用存款的事件跟以往不同的是，首先是在未通知的情况下就把一家企业的存款拿来给权力阶层有关联的企业来做担保。能做这种事就说明华业石化原来就是不打算还钱。再来就是相当于一家企业明着对另一家企业抢钱。当前中共国经济已处在金融危机时期了，还不上钱的其他企业会用这一招，用别人的钱来替自己还钱，从平常民间常见的骗局变成企业这个层次的事件。这可能跟中共要对企业家下手也有一定的关系，让企业之间互相掐架，最后再找个背锅的工作人员出来平息这件事。
+
+各种理财把平常人的钱袋子骗光子，下一步就要开始搜刮企业家的钱，总之办法是有多少就能想出多少来，这种事注定会越来越多，没有跟中共脱离就逃不过被收割的命运。自以为有钱就能买平安是幼稚的想法，中共会杀了你再拿走你的钱，凭什么要多留一张吃饭的嘴，多麻烦。
+
+(本文纯属个人观点，与Gnews无关)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

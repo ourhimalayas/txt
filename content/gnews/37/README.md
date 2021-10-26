@@ -2,22 +2,40 @@
 ---
 
 
-## 多国撤回极端疫情控制措施
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1618595/)
+## 震惊！莫得纳称其低剂量疫苗对6至11岁的儿童有效
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1618621/)
 
-**翻译：奮鬥
-校对：枳实
-字幕：蛮吉**
+**By:秘翻新闻**
 
-多国改变政策，放松疫苗护照实施。苏格兰和爱尔兰放弃疫苗护照，法国议会投票以压倒性多数驳回疫苗护照。
+***2021-10-26***
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/1026-2.jpg)](https://gtv.org/broadcast/watch/6177c729eadeb11f5e7a991b)点击图片观看视频
+**新闻摘要:**
 
-**视频链接：**[CASCADE OF COUNTRIES WITHDRAW EXTREME COVID MEASURES](https://www.bitchute.com/video/4KiIMEvVVYMC/)
+1. 中共打压下 新东方宣布停止经营大陆教培服务
 
-**发布：**Janek
+2. 山东科大北门起火 学生被炸醒 小吃街一片废墟
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+3. 民企存渤海银行约4.7亿美元 被挪用作担保
+
+4. 陆外长王毅访卡达 将会塔利班临时政府代表团
+
+5. 共军水下爆破测试 直接点名美军
+
+6. 苏丹政变冲突7死140伤 安理会开紧急会议
+
+7. 震惊！莫得纳称其低剂量疫苗对6至11岁的儿童有效
+
+8. 美国解除旅行禁令 实施国际旅行疫苗规则
+
+9. 纽约市警察局工会就疫苗强制令起诉纽约市
+
+10. Facebook再遭重创 英国主张立法规范社交媒体
+
+**GTV链接：**[https://gtv.org/broadcast/watch/6177c729eadeb11f5e7a991b](https://gtv.org/broadcast/watch/6177c729eadeb11f5e7a991b)
+
+发布: 文橙
+
+* * *
+
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
