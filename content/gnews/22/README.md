@@ -2,46 +2,37 @@
 ---
 
 
-## COVID-19最新情報｜瑞典、英國新冠死亡案例 集中於「完全接種者」
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1618967/)
+## 新闻述平：为何 “六中全会” 召开在即，习的地盘疫情在扩散
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1619086/)
 
-**台灣寶島農場 疫情關注組｜發佈日期/ 26/10/2021**
+作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10265.png)[图片来源](https://global.udn.com/global_vision/story/8662/5841422)
+**毫无疑问，COVID19生物武器已成为全球“政治病毒”了，它不仅可以打击他的敌对国，还可以打击政治对手。包括病毒始作俑者中国共产党。不巧的是习的政治版图——西北地区被击中了。且在“六中全会”召开前夕扩散？这次靶目标是习近平吗？**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+据《[朝日新闻](https://www.asahi.com/articles/ASPBT61FWPBTUHBI007.html)》26日消息，中共国大陆的公民行动正在因 COVID19病毒Delta 菌株的感染的广泛扩散再度受到限制，“部分地区禁止跨省旅游，西北部甘肃省兰州市公共交通暂停。可见此轮疫情扩散不在繁华的东部地区，却选择了西北贫困之地，颇具玩味。
 
+“16日以来，已有11个省、市、自治区发现感染者160余人。” “自从24日北京发现15人感染后，从疫区进城的航班和火车也受到限制。”　不但如此，原计划[北京和武汉的马拉松赛事也被推迟](https://www.163.com/dy/article/GN4FN97U0514DCDB.html)。各地都在加大PCR检测和隔离措施。
 
-瑞典、英國政府分析數據，發現9月因感染新冠病毒死亡者，絕大多數是完全接種者。這一結論，與西方國家於高疫苗覆蓋率的情形，突破性感染數量激增相符合。
+此轮疫情多点扩散是在国庆长假后爆发，据转角国际消息称：“根据中国官方的初步调查，已知和10月9日从上海出发的旅行团有密切关系。该7人旅行团途经甘肃、内蒙古、陕西西安等地区旅游，结果在10月18日发现整团7人全员确诊。”[阅读更多](https://global.udn.com/global_vision/story/8662/5841422)。
+![](https://lh6.googleusercontent.com/L_D_3oTS77Z0j_qFJYtyMY-OLqf7iPGy39n45-U1TzRAK_39LExllrfmmIBjOzMe74fgiY9ss7NKxgo9aKapOkVT3G_oZmMmz56afnqrDopF2oMUOPY_acYv3gU_ctZwSR5lqtIP=s1600)[图片来源](https://www.bbc.com/zhongwen/simp/world-59005914)
+自从大流行以来，病毒真相一直被瞒报，尽管如此，随着爆料革命的真相传播，中共释放的生物武器言论甚嚣尘上。但真相仍旧被官方掩盖，这显然变成了政治病毒。
 
-#### 瑞典
+中共《非典非自然人制人新种病毒基因武器》一书中自爆，病毒可以定点打击“靶目标人群”，且有效控制。“**所以。该生物武器使用者作为一种有力的（战争）威胁手段，和靶人群高层进行长时间讨价还价**。”不仅如此，还可以进行“个体生物袭击”，其中讲到了某国总统反复患癌症死亡。（见军事医学科学出版社2015年8月第一版 P92 ）
 
-[瑞典媒體](https://www.svd.se/forskare-ser-en-vikande-vaccineffekt-i-sverige)報導，公衛部門報告表示9月1日至24日，約[7成（130例）](https://ourworldindata.org/explorers/coronavirus-data-explorer?zoomToSelection=true&amp;time=2020-03-01..latest&amp;facet=none&amp;pickerSort=desc&amp;pickerMetric=total_cases&amp;hideControls=true&amp;Metric=Confirmed+deaths&amp;Interval=Cumulative&amp;Relative+to+Population=false&amp;Align+outbreaks=false&amp;country=~SWE)新冠確診死者是已經完全接種疫苗。報導進一步分析，死亡主要發生在老年族群，但相關人員仍認為瑞典疫苗保護力有下降趨勢。
+鲜为人知的是，美国前总统川普也曾感染，即便如此，也因无法取证不了了之。
 
-- 相關：[瑞典研究顯示完全接種疫苗後，抗體將在三個月後急劇下降](https://gnews.org/zh-hant/1576453/)
-- 相關：[疫苗與ADE效應](https://www.chop.edu/centers-programs/vaccine-education-center/vaccine-safety/antibody-dependent-enhancement-and-vaccines)
+这可以解释什么是“[政治病毒](http://www.china-embassy.or.jp/chn/mtdh/t1899250.htm)”了。它不仅可以打击他的敌对国和某区域，还可以打击他的政治对手。例如，此次疫区包括习的政治版图——西北地区。[（甘肃）阅读更多](http://www.news.cn/yingjijiuyuan/2021-10/26/c_1211420337.htm)。
 
+这就可以反向推测，中共为什么允许在即将于11月8日至11日在北京召开“六中全会”前夕扩散？在这次即将召开的六种全会对习近平和全党命运至关重要。他还牵涉到台湾的命运。[阅读更多](https://www.bbc.com/zhongwen/simp/world-59005914)。
 
-#### 英國
+因此，派系斗争的新武器或许是疫情警戒令。它可以更好地控制人群互动，甚至可以对政治对手定点清除。
 
-英國衛生部門數據顯示，瑞典情形也在英國發生。[英國、瑞典的疫苗接種率](https://coronavirus.data.gov.uk/details/vaccinations)幾乎相同。
+他使疫情在北京蔓延的另一个理由是，距离2022年2月份冬奥会的召开不到4个月。这个敏感时期病毒蔓延。说明这是有人要给习近平施加巨大压力——造成冬奥会北京不能确保安全的恐慌局面，引起国际社会有效的抵制。
 
-英國衛生安全局 (UKHSA) 於 10 月 7 日發布[報告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1023849/Vaccine_surveillance_report_-_week_40.pdf)，9月份大多數的死亡病例都已經完全接種疫苗。突破性感染而住院治療的病患，也是完全接種者佔多數。UKHSA 的數據顯示，「完全接種疫苗」死亡數量有2281人，遠高於未接種疫苗、部分接種疫苗。
+2021年10月26日
 
+（本文只代表个人观点，与Gnews网站无关）
 
-
-> Surging [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) in UK with 49,156 new cases and 45 new [#deaths](https://twitter.com/hashtag/deaths?src=hash&amp;ref_src=twsrc%5Etfw) reported on 18 October 2021. 78.9% of all aged 12 and up are DOUBLE VACCINATED. [#Breakthrough](https://twitter.com/hashtag/Breakthrough?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Geoffrey Norman Pain (@FluoridePoison) [October 18, 2021](https://twitter.com/FluoridePoison/status/1450225202353225729?ref_src=twsrc%5Etfw)
-
-
-
-- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
-- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
-- 相關：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
-- 相關： [COVID-19最新情報｜為何政府「忽視」自然免疫？](https://gnews.org/zh-hant/?p=1610194%28%E5%9C%A8%E6%96%B0%E5%88%86%E9%A0%81%E4%B8%AD%E9%96%8B%E5%95%9F%29)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/18-6.jpg)
-* * *
-
-新聞來源｜[Natural News](https://www.naturalnews.com/2021-10-25-majority-of-covid-deaths-are-fully-vaccinated.html)
-轉譯｜zhong
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
+*校对：东京樱花团 / 文小白*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)

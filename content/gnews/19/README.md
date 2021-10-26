@@ -2,47 +2,25 @@
 ---
 
 
-## 莫里森的净零排放目标是一个“骗局”，不是一个计划
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1619050/)
+## 中共国疫情扩散 兰州内蒙封城
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1619099/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-126.jpg)
+[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp.ivideo.sina.com.cn%2Fvideo%2F426%2F991%2F114%2F426991114.jpg&amp;imgrefurl=https%3A%2F%2Ffinance.sina.com.cn%2Fjjxw%2F2021-10-26%2Fdoc-iktzqtyu3663041.shtml&amp;tbnid=eGBA6LgYRRPEgM&amp;vet=12ahUKEwim7_z1nejzAhVpsksFHbwrAlAQMygSegUIARCrAQ..i&amp;docid=3YcGB8FZvOGnOM&amp;w=1280&amp;h=720&amp;itg=1&amp;q=%E5%8C%97%E4%BA%AC%E7%96%AB%E6%83%85&amp;ved=2ahUKEwim7_z1nejzAhVpsksFHbwrAlAQMygSegUIARCrAQ)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/澳大利亚.png)
+十一黄金周过后的新一轮疫情已经波及11个省份。北京、武汉马拉松比赛纷纷延期，兰州市各类居民小区均实行封闭式管理，内蒙古某旗委书记因防疫不力被免职。
 
+中共国卫健委对外通报称，10月25日0—24时，31个省（自治区、直辖市）和新疆生产建设兵团报告新增确诊病例43例。其中境外输入病例14例，本土病例29例。另外报告新增无症状感染者26例，其中境外输入21例，本土5例。这一轮疫情已经波及11个省份。本土新增确诊病例中包含甘肃6例，均在兰州市。本周二（10月26日），兰州市人民政府发布通告，要求全市各类居民小区均实行封闭式管理，实施出入证管理制度。引起中国最新一波疫情的是新冠病毒德尔塔变异株。从10月17日到今天已经新增198例本土确诊病例。这些新增病例均与十一黄金周中国国内旅游相关。
 
+卫生部门的官员表示，随着检测规模的扩大，确诊病例还会进一步增加。北方多个地区的居民因为疫情所致需要执行严格的居家检疫措施。北京市在周二通报新增3例确诊病例。市内各旅游景点进出还是受到限制，居民们被呼吁无需必要避免离京。昌平区一些出现病例的小区被封闭隔离。原定于10月31日举行的北京马拉松比赛也被推迟。另外，原定于10月24日举行的武汉马拉松也遭遇延期。
 
-图片来源：reuters.com
+现在距离北京冬奥会开幕也仅有100多天的时间，内蒙古额济纳旗委书记陈占云因疫情防控工作中履职尽责和落实不力被免职。截至26日8时，额济纳旗现有本土新冠肺炎确诊病例78例，也是目前中共国内这一波疫情中确诊病例数目最多的地区。此外，10月19日以来中共本土新增病例已有超过一半病例与旅行团传播链有关，多条旅行团传播链的行程共同指向额济纳旗。额济纳旗自25日零时起，对广大居民和游客实行足不出户（店）的居家抗疫措施。
 
+信息来源： [中国疫情继续扩散 内蒙干部因防疫不力被免职](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E7%96%AB%E6%83%85%E7%BB%A7%E7%BB%AD%E6%89%A9%E6%95%A3-%E5%86%85%E8%92%99%E5%B9%B2%E9%83%A8%E5%9B%A0%E9%98%B2%E7%96%AB%E4%B8%8D%E5%8A%9B%E8%A2%AB%E5%85%8D%E8%81%8C/a-59626377)
 
-#### 编译：小红帽
+免责声明：文章仅代表作者本人观点，与GNEWS无关
 
-澳大利亚影子气候变化部长克里斯·鲍恩（ Chris Bowen）表示，莫里森政府今天提供的不是计划，而是在宣布2050年净零排放目标的“骗局”。
-
-周二，总理斯科特·莫里森 (Scott Morrison)正式承诺到2050年实现净零排放目标。
-
-莫里森表示，联邦内阁在周一晚上签署了净零排放目标，并表示政府100%支持这一目标。
-
-“我们今天看到的不是一个计划，而是一个骗局，”鲍恩在周二的媒体发布会上表示。“我们今天得到的只是幻灯片、口号，而不是解决方案。”
-
-商业评论员特里·麦克兰 (Terry McCrann) 则表示，莫里森政府在2050年达到净零排放的计划，已经等于 “承诺在下次选举落败”。
-
-“澳大利亚到2050年实现净零排放目标的计划的有效期大约为六个月，因为我认为政府所做的以及国民党自己所做的，基本上都是致力于在下一次选举中落败，”麦克兰告诉天空新闻主持人。
-
-“他们在上次选举中赢得了昆士兰州的23个席位，他们将背叛所有投票支持他们并投票反对工党碳税的选民，从而失去六个席位。”
-
-“而总理正在做什么，他正试图通过花费数百亿美元来间接征收碳税。”
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**
-1、[Morrison government ‘delivered a scam, not a plan’: Bowen (msn.com)](https://www.msn.com/en-au/news/other/morrison-government-delivered-a-scam-not-a-plan-bowen/ar-AAPXcbW?ocid=msedgntp)
-2、[Coalition has ‘committed to losing the next election’ with net zero plan (msn.com)](https://www.msn.com/en-au/news/other/coalition-has-committed-to-losing-the-next-election-with-net-zero-plan/ar-AAPXId5?ocid=msedgntp)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)

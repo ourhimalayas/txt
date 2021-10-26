@@ -2,38 +2,30 @@
 ---
 
 
-## 青岛黄岛区一小吃街发生煤气爆炸事故
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619134/)
+## 苏丹政变后联合国安理会召开紧急会议
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1619175/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间10月25日凌晨两点，位于青岛的山东科技大学附近的小吃街突发爆燃，该校北门的小吃街陷入一片火海，多栋联排房屋浓烟滚滚。
+新闻来源：德国法兰克福报网络版
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-11.jpeg)
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-据现场救援人员透露，大火可能来自某小吃摊的煤气罐爆炸。据悉，事发地点位于青岛市黄岛区。黄岛开发区消防大队称，火灾未造成人员伤亡。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/gegner-des-putsches-bringen-am-1.jpg)
 
-值得注意的是，中石化位于黄岛区的输油管道曾于2013年11月发生特大爆炸事故，造成62人死亡，136人受伤。
 
-从21日开始的短短数日，沈阳、内蒙阿拉善、大连、南京、青岛等地接二连三地发生爆燃事故，但中共却次次以意外为这些事故划上句号，且并无任何跟进报道告知民众事件的缘由及善后措施。而对于这些事故的后续发展，我们将持续关注。
+图片来源： 德新社
 
-(本文仅代表作者观点)
+苏丹发生政变后，联合国安理会希望在星期二的紧急会议上处理这个东非国家的局势。应美国、英国、法国、爱沙尼亚、爱尔兰和挪威的要求，这个最强大的联合国机构预计将在纽约时间下午举行闭门会议。观察员们当天将从萨赫勒地区的联合工作旅行中返回美国。
 
-参考链接：
-1)[【中国大陆城市连日多处发生爆炸】山東科技大学 北门附近/Shandong Science University nearby blowed up/山東科技大学の北門付近にて爆発が発生した](https://www.youtube.com/watch?app=desktop&amp;v=XalN22vqQtg)
-2)[山东科技大学北门发生火灾 起火原因调查中](https://news.sina.com.cn/sf/society/shbt/2021-10-25/doc-iktzqtyu3458117.shtml)
-3)[2013年青岛输油管道爆炸事故](https://zh.wikipedia.org/wiki/2013年青岛输油管道爆炸事故)
+周一早些时候，苏丹的最高军事代表Abdel Fattah al-Burhan将军宣布解除政府中的文职成员, 全国将实行紧急状态。根据新闻部的一份声明，自2019年8月以来与布尔汉共同领导临时政府的总理阿卜杜拉·哈姆杜克被军方成员带到了一个未知的地点。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+据联合国称，军队已经控制了首都喀土穆。机场、桥梁和国家电视台都在武装部队手中，城市的入口被封锁了。
 
-总编：Irene木木
-编辑：山本不惑
-校正/发稿：谐趣园
+联合国苏丹问题特别代表德国的沃尔克·珀特斯（Volker Perthes）说：”这里的路障仍在燃烧，我们可以听到偶尔的枪声，所以随着夜幕降临，当然有可能出现更多的暴力或紧张局势。”他指的是正在进行的针对军队的民主抗议活动。”一些抗议者今天试图进入喀土穆的军队总部。我们随后听到了枪声也看到了伤害，但我们无法确认任何细节。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+德新社记者在当地观察到成千上万的抗议者在喀土穆街头示威，反对军队接管政府。据医生说，在抗议活动中，至少有两人被杀，约80人受伤。几个月来，苏丹一再出现人民要求政治和经济改革的抗议活动。阿尔·布尔汉将军承诺，军队将向民主过渡。他说，目标是在2023年7月的选举后将国家的领导权移交给一个文职政府。
+
+原文链接：[https://www.faz.net/aktuell/politik/ausland/nach-putsch-in-sudan-dringlichkeitssitzung-im-un-sicherheitsrat-17602831.html](https://www.faz.net/aktuell/politik/ausland/nach-putsch-in-sudan-dringlichkeitssitzung-im-un-sicherheitsrat-17602831.html)
+
+免责声明：本文内容仅代表个人观点，与Gnews平台无关。
+
+责任编辑、发布： Shuizhuyu
