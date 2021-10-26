@@ -2,9 +2,13 @@
 ---
 
 
-## 凭借新平台，川普可能会将他的支持者带回社交媒体世界
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1618382/)
+## 西媒头条 — 第95期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1618412/)
 
-10/21/2021 杰森·米勒：盖特将成为言论自由的全球领导者，还将为全世界人民引入数字货币即加密货币和区块链。
+**制作：蚂蚁兄弟**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1025-26.002.jpeg)
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)

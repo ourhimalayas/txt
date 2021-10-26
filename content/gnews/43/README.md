@@ -2,45 +2,48 @@
 ---
 
 
-## “人权火炬传递”行动 抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618082/)
+## 郭文贵先生关于喜币的肺腑之言
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1618143/)
 
-作者：澳喜农场 – 在远方
+**整理：**玉米地小蜗牛
+**编辑、发布：**Candy
+GTV大直播
 
+```
+喜币上市以后
+你要就听七哥两句话
+如果涨了需要钱
+就赶快卖
+啊 别犹豫 你别这 别老想着
+需要钱你就卖
+啊 第二 七哥给你建议
+啊 如果你要认为喜币
+不安全 不是好投资的话
+你 任何虚拟币都不要考虑了
+没有比喜币再安全 再增值
+没有任何 我可以负责告诉大家
+这个世界上如果你还想投资说
+合法的 安全的 有最大增长空间的 
+长寿的
+只有喜币
+啊 就这两句话给你们建议
+需要钱你就卖 别傻 卖掉它
+啊 因为不一定财富都是你的 啊 是不是
+到你手里面 你就花么
+然后就记住 要想买虚拟货币
+没有比喜币再稳定 再好 长期的了
+而且告诉大家 它的整个喜联储的价值
+它现在已经被固化了
+就是国家机构的投资者已经认定了是
+这个钱
+100000
+这 这是 得翻几次啊 翻好几次啊 啊
+啊 这是我只能透露这么多 别理解错啦
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-10月24日，海外人权组织发起“人权火炬传递”行动，呼吁各国在外交层面抵制北京冬奥会。
-
-该游行由人权组织“现在就说不”发起，从德国汉诺威开始，在英国伦敦、德国柏林、瑞士日内瓦和奥地利维也纳等地，接力传送自制的人权火炬。维吾尔人、藏人和港人组织予以声援，并参与游行。
-
-“现在就说不”创办人Olaf Stando表示，尽管中共在2008年奥运会前曾许诺改善人权状况，但事实证明，新疆维吾尔人、藏人和香港人正遭受迫害，中共国人权状况正在持续恶化。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-121.jpg)
-参考链接：
-[英国伦敦近百人游行 呼吁各国向北京冬奥“说不”](https://www.rfa.org/mandarin/yataibaodao/gangtai/al-10242021161901.html)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编/编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+更多資訊，請關註：
+澳大利亞墨爾本雅典娜農場Twitter：HimalayaAthena
+澳大利亞墨爾本雅典娜農場Gettr：himalayaathena
+澳大利亞墨爾本雅典娜農場YouTube
+澳大利亞墨爾本雅典娜農場Discord
+澳大利亞墨爾本雅典娜農場GTV直播1台
+```

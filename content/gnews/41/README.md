@@ -2,48 +2,42 @@
 ---
 
 
-## 郭文贵先生关于喜币的肺腑之言
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1618143/)
+## “莆田刀客”欧金中前妻遭中共监视居住
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618189/)
 
-**整理：**玉米地小蜗牛
-**编辑、发布：**Candy
-GTV大直播
+作者：澳喜农场 – 在远方
 
-```
-喜币上市以后
-你要就听七哥两句话
-如果涨了需要钱
-就赶快卖
-啊 别犹豫 你别这 别老想着
-需要钱你就卖
-啊 第二 七哥给你建议
-啊 如果你要认为喜币
-不安全 不是好投资的话
-你 任何虚拟币都不要考虑了
-没有比喜币再安全 再增值
-没有任何 我可以负责告诉大家
-这个世界上如果你还想投资说
-合法的 安全的 有最大增长空间的 
-长寿的
-只有喜币
-啊 就这两句话给你们建议
-需要钱你就卖 别傻 卖掉它
-啊 因为不一定财富都是你的 啊 是不是
-到你手里面 你就花么
-然后就记住 要想买虚拟货币
-没有比喜币再稳定 再好 长期的了
-而且告诉大家 它的整个喜联储的价值
-它现在已经被固化了
-就是国家机构的投资者已经认定了是
-这个钱
-100000
-这 这是 得翻几次啊 翻好几次啊 啊
-啊 这是我只能透露这么多 别理解错啦
 
-更多資訊，請關註：
-澳大利亞墨爾本雅典娜農場Twitter：HimalayaAthena
-澳大利亞墨爾本雅典娜農場Gettr：himalayaathena
-澳大利亞墨爾本雅典娜農場YouTube
-澳大利亞墨爾本雅典娜農場Discord
-澳大利亞墨爾本雅典娜農場GTV直播1台
-```
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-20.jpg)
+中国民间权益组织“民生观察”，23日引用律师消息称，莆田欧金中被中共宣称自杀身亡后，其前妻欧秀香被中共当局，以“涉嫌包庇罪”为由监视居住，其前妻姐姐的两个儿子、女儿，也因该在事件中所谓涉嫌“散布谣言”而被查。
+
+据悉，殁年55岁的欧金中，因被邻居阻拦翻盖旧房，5年求告无门而激情杀人，导致对方2死3伤。在逃亡8日后，中共当局称其在警方围捕下自杀身亡。该事件发生以来，中国网民一边倒对他表示同情，并称之为“莆田刀客”。
+
+参考链接：
+1. [“莆田刀客”欧金中前妻遭中共监视居住](https://www.rfa.org/mandarin/Xinwen/7-10242021153412.html)
+2. [“莆田刀客”欧金中前妻遭中共监视居住](https://baijiahao.baidu.com/s?id=1713952782832797232&amp;wfr=spider&amp;for=pc)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：木白
+编辑：木白
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)

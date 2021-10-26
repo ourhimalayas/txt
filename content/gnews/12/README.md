@@ -2,13 +2,9 @@
 ---
 
 
-## 西媒头条 — 第95期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1618412/)
+## 10/20 郭文贵直播：中共利用马云进行国家级股市操纵、刑事诈骗（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1618418/)
 
-**制作：蚂蚁兄弟**
+10/20/2021郭文贵直播：中共利用马云进行国家级股市操纵、刑事诈骗；马云和副手于峰全家被绑架，被中共胁迫到西班牙变卖土地、游艇和控股公司，变相抬高阿里巴巴股价，助中共获利。马云随行的20人实为杀手级特警和公务员，用的都是假证件。
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1025-26.002.jpeg)
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
