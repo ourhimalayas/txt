@@ -2,9 +2,13 @@
 ---
 
 
-## 10/24 郭文贵直播：三个原因为什么中共给川普设金融陷阱
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1618345/)
+## 西媒头条 — 第95期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1618412/)
 
-10/24/2021 郭文贵直播：在DWAC的上市中，中共给川普设下金融陷阱，有三个原因：1)断送他的政治生涯，因为存在内线交易；2)阻止他加入盖特；3)川普的信托拿到2.96亿美金要承担的责任。
+**制作：蚂蚁兄弟**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1025-26.002.jpeg)
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)

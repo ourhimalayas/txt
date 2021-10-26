@@ -2,48 +2,58 @@
 ---
 
 
-## 美核武实验室185名员工因疫苗强制令离职
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1618459/)
+## 抗议者冲击 NBA 比赛 谴责疫苗授权
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1618525/)
 
-**翻译：lulumi**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip65.png)
-*位于新墨西哥州洛斯阿拉莫斯的洛斯阿拉莫斯国家实验室，在一张未注明日期的文件照片中。(The Albuquerque日报，美联社)*
-根据同一天对生产世界上第一枚核弹的新墨西哥州实验室提起的诉讼，由于疫苗强制令期限于10月22日到期，该设施运营商失去了185名员工。
+编译： Jenny Ball
 
-诉讼称，洛斯阿拉莫斯国家实验室（LANL）的另外153名员工被停薪留职，或因获得宗教豁免而正在使用假期工资。有26名员工获得了医疗豁免。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-26-115250.jpg)图片来源：westernjournal.com
 
-诉讼中引用了《洛斯阿拉莫斯记者报》（Los Alamos Reporter）的一篇文章称，这些数字是在10月21日实验室的一次全体员工会议上披露的。
+布鲁克林篮网队球星凯里·欧文（Kyrie Irving），通常并不以保守的政治观点而闻名。 然而，他坚决反对疫苗规定，这使他成了激进左派的对立面。
 
-该实验室雇用了近14000名工人。该设施所有工作的三分之二都集中在武器项目上。该实验室近五分之一的员工拥有博士学位。三联国家安全有限责任公司（Triad National Security LLC）作为联邦政府的承包商经营该综合设施。
+周日，篮网队在纽约布鲁克林巴克莱中心举行的主场揭幕赛期间，一群抗议者聚集在外面，**支持欧文和争取医疗自由的斗争**。
 
-根据一封内部邮件，截至8月23日，当时管理层宣布这项疫苗强制令时，约85%的LANL员工已经接种了中共病毒COVID-19疫苗，美国FDA在同一天完全批准了辉瑞-生物技术公司的疫苗。
+虽然并非所有 NBA 球员都需要接种疫苗，但纽约市的一项规定，禁止[未接种疫苗](https://www.westernjournal.com/uncancelled-espn-reporter-ousted-refusing-vaccine-finds-new-home-conservative-media/?ff_source=Email&amp;ff_medium=WJBreaking&amp;ff_campaign=breaking&amp;ff_content=western-journal)的球员在纽约布鲁克林的巴克莱中心打球。
 
-一个月后，9月20日，LANL总裁托马斯·梅森（Thomas Mason）说，又有1000名员工接种了疫苗。
+这包括欧文，他曾公开表示拒绝接种 COVID-19 疫苗。
 
-LANL没有对评论请求作出回应。
+据 ESPN 报道，欧文本月早些时候说：“这就是我的生活。”“我可以做任何我想做的事，我的身体我做主。
 
-周五提起的诉讼列出了153名员工中的8人，他们因获得疫苗强制令的宗教豁免而被安排休假。
+“现在你要告诉我如何处理我的身体……我们的世界正在发生的事情都与这（疫苗）有关。 我也被看成是不仅仅是个篮球队员的事了。”
 
-诉讼中说：“被告本来已经批准了一些员工的宗教豁免，包括原告和其他未提交诉讼的员工，但却一手批准另一手收回批准，实行一刀切的手段，将那些已经获得宗教豁免的员工置于无限期停薪留职的状态，并剥夺了他们的福利，被告的行为等同于推定解雇”。
+周日，许多同意欧文观点的人出现，抗议疫苗规定使他无法参赛。他们走上街头时高呼“**与凯里站在一起**”。
 
-LANL没有对那些通过先前感染中共病毒而获得自然免疫力的员工给予豁免。一些研究表明，自然免疫力对该中共病毒提供了类似或更好的保护力。根据最近一项同行评议的研究，疫苗的效力随着时间的推移而减弱，需要注射加强针，但自然免疫力至少可以持续一年。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-460.png)
 
-根据诉讼中引用的一份指令，有宗教豁免权的员工在9月9日被告知，他们将被安排无薪休假或 “可以使用休假，直到找到不会给实验室或其他员工带来不适当负担的便利”。
+据福克斯新闻报道，抗议者举着标语，上面写着“不要强制……我的身体，我的选择”和“接种疫苗的人 平等权利”等。
 
-9月20日，LANL将疫苗强制令扩大到在家工作的员工。
+在游行穿过街道后，一些抗议者走向巴克莱中心的门口。 一群欧文支持者涌到球馆入口后被保安拦住。
 
-在整个中共病毒大流行期间，该实验室的员工都戴着口罩，并保持社交距离。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-462.png)
 
-10月15日，一名法官在另一起诉讼中驳回了该实验室114名员工提出的阻止接种疫苗的要求。
+一位不愿透露姓名但告诉 WPIX 她是学校老师的参与者说，**她的担忧不仅是欧文本人。“我必须为我挺身而出。我必须为我儿子挺身而出，”她说。**
+
+在给福克斯新闻的一份声明中，巴克莱中心证实，由于抗议活动，它不得不暂时限制进出，但表示没有未经授权的人进入大楼。
+
+声明说：“巴克莱中心今天暂时关闭，以清除广场正门的抗议者，并确保观众可以安全进入赛场。”
+
+“只有持票的人才能进入大楼，比赛按计划进行。”
+
+篮网队在比赛中不能够使用欧文，这导致以 111-95 输给夏洛特黄蜂队。这个队的全明星凯文·杜兰特（Kevin Durant）得到 38 分，但这还不足以让他的球队取得胜利。
+
+**评论：**
+
+**欧文说：“我也被看成是不仅仅是个篮球队员的事了。”以及不愿透露姓名的学校老师说，她的担忧不仅是欧文本人。“我必须为我挺身而出。 我必须为我儿子挺身而出，”他们都说出了强制疫苗的实质：不仅仅是医疗自由的斗争，这是我们未来自由的斗争！**
+
+**所以文贵先生在10月24日的直播中讲到，现在各国的抗议，远远不是大觉醒，只有人民彻底认清：这关乎到我们的未来和自由，才是真正大觉醒抗议的时刻！传播真相，让那一刻早日到来！**
 
 （文章仅代表作者观点，与GNEWS无关）
 
-**参考资料：**[ntd.com] [185 Employees Leave Los Alamos Nuclear Weapons Lab Due to Vaccine Mandate](https://www.ntd.com/185-employees-leave-los-alamos-nuclear-weapons-lab-due-to-vaccine-mandate_692871.html)
+**参考资料：**[westernjournal.com][Full Court Mess: Fed Up Protesters Storm NBA Game to Condemn Biden’s Hated Vaccine Mandate](https://www.westernjournal.com/full-court-mess-fed-up-protesters-storm-nba-game-to-condemn-bidens-hated-vaccine-mandate/?utm_source=Email&amp;utm_medium=WJBreaking&amp;utm_campaign=breaking&amp;utm_content=western-journal&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
 
 * * *
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
+*审核：文乐
+校对 : 阿伯塔
+发稿: Nuevo唐人*
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)

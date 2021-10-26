@@ -2,45 +2,57 @@
 ---
 
 
-## 让川普媒体上市的那个人在隐瞒经历
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1617650/)
+## 瑞典无限期暂停使用莫德纳疫苗，因导致接种者严重心脏病
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1617756/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/102505-1.jpg)美国莫德纳新冠疫苗。图：路透社
+来自美国《西方杂志》10月24日的报道
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/P-10.jpg)bupox.com
-笔者前一篇文章对正在帮助“川普媒体和技术集团”（TMTG，Trump Media & Technology Group）上市的“数字世界收购公司”（DWAC，Digital World Acquisition Corp）CEO帕特里克·奥兰多 (Patrick Orlando)进行了披露【1】，现在继续揭骗，让美国人了解真相，也让川普总统警觉。
+**摘要翻译：**
 
-美国证券交易委员会（SEC）公布的资料中，在DWAC管理团队部分介绍了奥兰多：“他在25年的职业生涯中曾在金融领域担任过许多行政职务。奥兰多先生的经验涵盖了与“空壳公司”（”SPACs”）有关的所有方面，因为他曾作为高管、赞助商和董事参与过多个SPACs，包括“运鸿国际”（Nasdaq：ZGYH）、贝内塞尔资本收购公司（Nasdaq：BENE）和马奎亚资本收购公司（Nasdaq：MAQC）。奥兰多先生在其职业生涯中建立了广泛的网络，我们相信他在全球范围内的知识和接触将使我们能够找到并吸引潜在的目标。 奥兰多先生自2020年1月以来一直担任“运鸿国际”的首席执行官……”【2】
+人们对莫德纳疫苗的副作用产生了新的担忧。
 
-看来帕特里克·奥兰多在报给SEC的资料中，把担任“运鸿国际”首席执行官的经历列在了首位，进行了重点炫耀，但是《雅虎财经》（yahoo finance）进行了这样的报道，“奥兰多在武汉的SPAC因信托管理不善而蒙受损失”，文章写道，“运鸿国际”是一家总部位于中共国武汉的实体，于 2020 年初筹集了 6000 万美元，但尚未宣布交易。在去年的美国证券交易委员会备案中出现了罕见的情况，“运鸿国际”透露其信托账户遭受了损失，与任何 SPAC 一样，在 IPO 中筹集的资金旨在安全地存放在短期政府证券中，因此它们通常会赚取少量利息（或在利率降至零时没有利息），并且不应贬值。
+据英国《每日邮报》报道，瑞典卫生官员现已决定无限期延长对所有31岁以下人群接种莫德纳疫苗的禁令。暂停接种莫德纳疫苗的时间原定于12月1日结束。
 
-但根据“运鸿国际”提交的文件，发现受托人摩根·士丹利（Morgan Stanley）并未投资政府证券，而是投资另一项资产——据推测，该资产本可以提供更好的回报但存在风险。“此后，我们立即采取措施清算此类投资，并将资金仅再投资于信托协议规定的证券类型，”“运鸿国际”的文件称，未实现的亏损总额为 115 万美元，但“运鸿国际”能够弥补部分亏损，并产生了 56.5 万美元的“亏空……”【3】
+芬兰、冰岛和丹麦也采取了类似的措施。挪威鼓励30岁以下的男性不要接种莫德纳疫苗，但没有强制要求。
 
-上市前募集的资金存放在较安全的短期政府证券中，至少能有获利，哪怕是微利，也不应该出现亏损。这样的经历，在DWAC官方网站不容易发现。
+数月以来，莫德纳疫苗一直受到审查，因为数据显示接种该疫苗的年轻男性患心肌炎和心包炎的风险增加。
 
-再看看DWAC官网对帕特里克·奥兰多的介绍【4】：
+据《华尔街日报》报道，由于担心疾病风险，美国食品和药物管理局做出了决定暂停莫德纳疫苗针对12至17岁人群的注射计划。
 
-贝内塞尔投资集团创始人兼首席执行官（Founder & CEO of Benessere Investment Group）
-贝内塞尔资本收购公司董事长兼首席执行官（Chairman & CEO of Benessere Capital Acquisition Corp.）
-马奎亚资本收购公司董事（Director of Maquia Capital Acquisition Corp.）
-BT资本市场有限责任公司前结构和金融产品部负责人（Former Head of Structuring & Derivatives BT Capital Markets LLC）
-德意志银行前新兴市场金融产品部主任（Former Director of Emerging Markets Derivatives at Deutsche Bank）
-麻省理工学院机械工程和管理科学学位（Degrees in Mechanical Engineering and Management Science from MIT）
-……
+据CNBC报道，尽管联邦疾病控制和预防中心周四批准了莫德纳疫苗和强生疫苗的注射，但还是提出了一些警告。
 
-唯独不见总部坐落在武汉“运鸿国际”首席执行官的经历，难道知道美国人现在已经有“谈中共色变”、“谈武汉恐惧”的心态？川普总统，您还不担心？
+Tom Shimabukuro博士说，无论是莫德纳疫苗或辉瑞疫苗都会增加心肌炎和心包炎的风险，尤其是在接种第二剂疫苗之后。
 
-DWAC今天的收盘价为83.86美元，较前一个交易日下跌11%。
+据《每日邮报》报道，数据显示，接种莫德纳疫苗的人比接种辉瑞疫苗的人的风险大13倍。
 
-（文章仅代表作者个人观点）
+瑞典公共卫生局表示，未公开数据将莫德纳疫苗与这两种情况联系起来，意味着“心肌炎或心包发炎等副作用的风险增加”。
 
-原文链接：
+美国食品和药物管理局给予辉瑞公司疫苗全面授权的声明中谈到了对该疫苗的担忧，称“数据表明风险增加，特别是在第二次接种后的7天内。”
 
-【1】[https://gnews.org/zh-hans/1617078/](https://gnews.org/zh-hans/1617078/)
+**简评： **
 
-【2】[https://www.sec.gov/Archives/edgar/data/0001849635/000110465921111753/tm2124624d5\_s1a.htm](https://www.sec.gov/Archives/edgar/data/0001849635/000110465921111753/tm2124624d5_s1a.htm)
+从武汉新冠疫情的爆发开始到现在全世界的政府都在强推疫苗，整个过程不断地在欺骗：
 
-【3】[https://finance.yahoo.com/news/trump-financier-patrick-orlando-wuhan-173332669.html](https://finance.yahoo.com/news/trump-financier-patrick-orlando-wuhan-173332669.html)
+疫情发生初期是：不会人传人，天热后就会消失，结果全世界爆发；刚推出新冠疫苗时：说“疫苗可以防新冠”，然后威逼利诱人们去接种疫苗。随着接种人群的数量越多，感染人数也增大，这时对疫苗的说法是“防重症不防轻症”；在中共国但凡有人感染新冠，当地政府是全民连夜检查，疫苗有何作用？现在各国政府又推出加强针，新冠疫情过去发生的每一步都经不起推敲。
 
-【4】[https://www.dwacspac.com/](https://www.dwacspac.com/)
+爆料革命和新中国联邦传递出的信息正在不断被验证。希望各国的民众尽快觉醒，站出来反对正在作恶的当权者，早点采取正确的新冠治疗措施，让人们回归正常生活。
+
+新闻链接：[Sweden Suspends Moderna Shot Indefinitely After Vaxxed Patients Develop Crippling Heart Condition](https://www.westernjournal.com/sweden-suspends-moderna-shot-indefinitely-vaxxed-patients-develop-crippling-heart-condition/)
+
+***翻译：**Brianchow*
+
+***校对：**clau*
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

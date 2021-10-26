@@ -2,28 +2,20 @@
 ---
 
 
-## 郭文贵先生对新中国联邦人强调“爱”的重要性
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618184/)
+## “香港加油”成为香港马拉松被禁敏感词
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618193/)
 
-作者：纽约香草山农场 – 恩永存
+作者：澳喜农场 – 在远方
+![This image has an empty alt attribute; its file name is image-40-1-6.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
+24日，在时隔两年八个月之后，渣打香港马拉松赛，在“港版国安法”阴影笼罩下再次举行。港共政府打着“预防及打击恐怖主义活动”的旗号，派出数千警员高压戒备。荒唐的是，一个简单的“香港加油”的双体书法服饰，竟然也成为所谓的“敏感词”而被禁用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-17.jpg)
+在比赛前，许多选手因为背心或者短裤上，印有竖看为“香港”，横看为“加油”的双体书法，被要求更换服饰，否则不能参赛。如果身上有“香港加油”的纹身，也被要求用胶布遮盖。还有选手透露，有工作人员威胁他们，如果穿有“香港加油”字句的服饰，就“后果自负”。
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
-
-
-
-10月24日文贵大直播中，郭文贵先生说：人类生存的价值大部份来自家庭，人最重要的关系就是家庭关系，而家庭中父母就是重中之重。郭先生曾经要求盘古员工必须孝敬父母，做不到就别来上班。一个父母都不尊重的人，说什么郭先生都不会尊重他。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-21.jpg)
-共产党这个魔鬼，毁了家庭，以爹亲娘亲不如党亲来洗脑人民，让人不孝敬父母。造成了太子爷般的儿子、孙子打父母，打爷爷奶奶；媳妇打公公等丧绝人伦之事。这种恶是郭先生决心灭共的最早起因。
-
-郭先生强调：新中国联邦人，不管你有什么信仰，不把父母和家人放在第一位，不把爱和爱人放在第一位，你永远不会是新中国联邦人。家和万事兴。“和”来源于“爱”，没有“爱”就没有“和”；没有“和”，“家”就站立不住；没有“家”，就没有“国”。因此，“家”是“国”的根本。而“爱”是“家”的根本，因此，没有“爱”就不配做新中国联邦人。
-
-参考链接：[郭文贵先生对新中国联邦人强调“爱”的重要性](https://gettr.com/post/pf2ptd1c68)
+参考链接：[“香港加油”成为香港马拉松被禁敏感词](https://www.voachinese.com/a/hong-kong-marathon-censors-sensitive-slogans-20211024/6283428.html)
 
 （本文仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
 总编：木白
 编辑：木白
@@ -40,4 +32,4 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)

@@ -2,27 +2,19 @@
 ---
 
 
-## 中共启动3—11岁儿童疫苗接种
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1618139/)
+## 福奇领导的NIAID资助了对小狗进行的“残忍”实验
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1618192/)
 
-#### 撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-96.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2021%252F0426%252F1d939e06j00qs5zms000yc000eg00aug.jpg%26thumbnail%3D720x540%26quality%3D85%26type%3Djpg&amp;imgrefurl=https%3A%2F%2F3g.163.com%2Fdy%2Farticle%2FG8HCG3IS0550AC9X.html&amp;tbnid=UAHT6LlGte2OQM&amp;vet=12ahUKEwjw2JaCiefzAhUhT3wKHcm_BK8QMygFegUIARC6AQ..i&amp;docid=41_KoeX-RIKJgM&amp;w=520&amp;h=390&amp;itg=1&amp;q=%E5%84%BF%E7%AB%A5%20%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97&amp;ved=2ahUKEwjw2JaCiefzAhUhT3wKHcm_BK8QMygFegUIARC6AQ)
-中共已在多地启动3-11岁儿童中共病毒疫苗接种工作。目前，已有湖北省、海南省、湖南常德、浙江金华等地启动接种，福建、安徽阜阳等地已经将接种提上日程。
+韩国首尔天池农场——zzballack       上传——追着曙光跑
 
-疫苗种类：为3-11岁人群接种的均为灭活疫苗，厂家包括国药中生北京公司、国药中生武汉公司和北京科兴中维公司。
+据《每日邮报》（Daily Mail）10月24日报道，根据纳税人监督组织“白大褂浪费项目（White Coat Waste Project）”通过《信息自由法》获得的文件，美国国家卫生研究院（NIH）的下属部门国家过敏和传染病研究所（NIAID）使用纳税人的钱资助残忍的动物实验。以众议员南希·梅斯 (Nancy Mace)为首的24名立法者现在要求NIAID所长安东尼·福奇（Anthony Fauci）就此做出解释。
 
-接种剂量：2剂次，间隔至少3周，第2剂在8周内接种完成。
+其中最令人不安的一项实验发生在突尼斯的一个研究实验室，实验中小猎犬（Beagle）幼犬被下药，它们的头被关在在装满饥饿的沙蝇的网笼里，以便昆虫能将它们活活吃掉。报告称，“实验人员还连续9个晚上把小猎犬单独关在沙漠中的笼子里，把它们当作诱饵，吸引传染性沙蝇。” 这项实验获得了NIAID 37.5万美元的资助。
 
-接种方式：学校（幼儿园）集体组织接种或自行前往接种点接种，需要注意的是，儿童接种新冠病毒疫苗需要监护人全程陪同，通过医生评估且监护人签署知情同意书后才能接种。
+另外，NIAID在2018年10月至2019年2月期间，资助了加利福尼亚州门洛公园（Menlo Park）国际斯坦福研究所(SRI International) 的动物实验180万美元。实验给总共44只6至8个月大的小猎犬幼犬注射和强行喂食一种实验性药物。实验持续了数周，直到这些小狗被杀死和解剖。更可怕的是，这44只小狗接受了“声带切除术”，这是一种不人道的手术，即割开狗的声带，以消除狗的吠叫、交流、甚至哭泣能力。立法者说：“这种残酷的实验，为了让实验者不必听到小猎犬幼崽痛苦的哭声而割掉小狗的声带。这是对纳税人资金的滥用，应受到谴责。”
 
-处于成长期的3—11岁儿童，自身免疫功能不健全，身体机能不完善，接种有毒疫苗将直接威胁他们的生命安全和身体健康，这就是种族灭绝。
+NIAID还在2020年9月资助了佐治亚大学 (University of Georgia) 42万4455美元，实验通过让小猎犬感染寄生虫来测试不同的治疗方法是否有效，这些动物后来被杀死。
 
-信息来源：
+美国食品药品监督管理局（FDA）说：“虽然文件指出，这些研究的表面目的是“提供具有适当质量和完整性的数据，以支持向FDA和其他监管机构的申请，但并不强制要求在狗身上研究人类药物。”
 
-[多地启动3-11岁儿童新冠疫苗接种，涉及湘鄂浙琼多省份](https://www.thepaper.cn/newsDetail_forward_15064016)
-
-(文章仅代表作者本人观点，与GNEWS无关)
-
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+[原新闻链接](https://www.dailymail.co.uk/news/article-10125599/Fauci-fire-puppy-experiments-utilized-disease-causing-parasites.html)

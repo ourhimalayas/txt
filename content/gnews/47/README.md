@@ -2,32 +2,30 @@
 ---
 
 
-## “人权火炬传递”行动 抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618082/)
+## 民众质疑沈阳惨烈爆炸伤亡实况（沈阳爆炸续报）
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618191/)
 
 作者：澳喜农场 – 在远方
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
 
 
 
-10月24日，海外人权组织发起“人权火炬传递”行动，呼吁各国在外交层面抵制北京冬奥会。
+10月21日，中共辽宁沈阳和平区太原街发生剧烈爆炸。23日晚，当局通报说受爆炸影响的楼宇有86栋，仍在检测剩余的13栋，并对1858户居民和93户商铺签订核查确认，用于赔偿和整修，但仍未确认爆炸是由管道问题还是液化气罐造成。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-12.jpg)
+网上大量的视频和图片显示，此次爆炸威力惊人，蘑菇云高升到百米，现场犹如战场一样惨烈，一片废墟。有楼房被炸成裸楼，窗户等全被炸飞，只剩下水泥框架。现场有许多人受伤，有人伤势严重，急待救治，还有一辆公交车和许多车辆受损。对于中共媒体所称的，到目前为止爆炸造成5人死亡，47人受伤的数字，许多网友纷纷表示强烈质疑。
 
-该游行由人权组织“现在就说不”发起，从德国汉诺威开始，在英国伦敦、德国柏林、瑞士日内瓦和奥地利维也纳等地，接力传送自制的人权火炬。维吾尔人、藏人和港人组织予以声援，并参与游行。
-
-“现在就说不”创办人Olaf Stando表示，尽管中共在2008年奥运会前曾许诺改善人权状况，但事实证明，新疆维吾尔人、藏人和香港人正遭受迫害，中共国人权状况正在持续恶化。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-121.jpg)
-参考链接：
-[英国伦敦近百人游行 呼吁各国向北京冬奥“说不”](https://www.rfa.org/mandarin/yataibaodao/gangtai/al-10242021161901.html)
+参考链接：[民众质疑沈阳惨烈爆炸伤亡实况（沈阳爆炸续报）](https://www.voachinese.com/a/china-shenyang-blast-casualties-and-investigation-20211024/6283359.html)
 
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-总编/编辑：木白
-校对/发稿：为真不破20
+总编：木白
+编辑：木白
+校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
 
@@ -40,7 +38,4 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)

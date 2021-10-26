@@ -2,61 +2,31 @@
 ---
 
 
-## NBA球星埃内斯·坎特呼吁“解放维吾尔族人”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1618213/)
+## 针下亡魂｜英国 35 岁女医护接种疫苗三个月后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1618330/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Maddie-Meyer_Getty-Images-15-640x432-2.jpg)
-来自美国《布赖特巴特》新闻网10月24日的报道
+**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 26/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
+***更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）***
 
-波士顿凯尔特人队中锋埃内斯·坎特（(Enes Kanter)正在加大力度叫板中共国的“残暴的独裁者”，这一次他呼吁他们停止压迫中共国的少数民族维吾尔族人。
+【英国】曼彻斯特一名 35 岁的女医护 Rachel McKinney 在接种完辉瑞 COVID-19 疫苗后，经历了两个多月与严重不良反应的搏斗，最终在因多发性硬化症而死亡。
 
-上周，坎特在10月20日的一段视频中，批评红色中共国对西藏人民的残暴，并谴责中共国对西藏人进行“文化种族灭绝”。他的视频迅速遭到中共国政府的报复，波士顿凯尔特人队的比赛，被立即从中共国的NBA转播合作伙伴腾讯上删除。
+按照当地规定，身为医务人员的 Rachel 是首批需要接受新冠疫苗注射的人士。据她的姐姐 Gemma Louise Walls 的回忆，Rachel 在 12 月下旬接种了第一剂疫苗，随后在 1 月接种了第二剂，直到一月，一切都很好。不过，二月份开始，Rachel 就突然说话含糊不清，并有轻微失语症。家人随即怀疑她中风。
 
-本周末，土生土长的土耳其人坎特加大了对中共国的批评力度，尽管这让NBA付出了代价。周五，坎特发布了另一段视频，呼吁中共国停止压迫维吾尔人。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Gemma-Louise.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Jamie-Lauren-Walls.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Kevin-McKinney.png)
 
-坎特在最新的视频中说：“现在，就在我说出这段话的时候，酷刑、强奸、强迫堕胎、强制绝育、强制隔离、非法拘留、集中营、政治再教育、强迫劳动。” “这一切都正发生在中共国西北部新疆地区超过180万的维吾尔人身上。”
 
-他补充说：维吾尔人是土耳其同宗穆斯林族群，起源于维吾尔地区，”坎特继续说道。“中共国政府一直在采取全面措施镇压维吾尔人，仅仅因为他们信奉自己的宗教、有自己的文化、语言、历史和身份。维吾尔族地区已成为一个露天监狱和充满严密监视的地区，维吾尔族人的自由不复存在。
+曼彻斯特晚报报导，有一名急救接线员建议带 Rachel 去 Stepping Hill 医院诊治，医生诊断她患有脑部炎症，后来又被转移到索尔福德皇家医院，该院认为她患上了急性播散性脑脊髓炎（ADEM），报导引述家人，怀疑是疫苗造成这一系列的病症，因为“直至 12 月接受疫苗之前，Rachel 一直非常健康。”
 
-坎特还指出，CCP正在中共国的集中营奴役哈萨克族、塔吉克族和其他穆斯林少数民族。
+可惜，Rachel 的病情恶化的十分迅速，瘫痪、失语、癫痫、昏迷。由于 COVID-19 的防疫限制，在 Rachel 住院治疗的 46 日期间， 家人不可以见她，他们唯有在 FaceTime 上看着 Rachel 痛苦的煎熬而哭泣。
 
-坎特继续说道：“令人失望的是，当我的穆斯林兄弟姐妹被杀害、被强奸和被折磨时，穆斯林大多数国家的政府和领导人却保持沉默。”
-
-坎特大声质问，为什么那么多穆斯林世界领导人，对中共国境内穆斯林遭受的虐待“保持沉默”。坎特批评的穆斯林世界领导人包括巴基斯坦总理伊姆兰·汗、沙特阿拉伯王储穆罕默德·本·萨勒曼、阿拉伯联合酋长国的首席统治者穆罕默德·本·扎耶德和伊朗总统易卜拉欣·莱西。
-
-“你决定将与中共国的资金和生意往来置于人权之上，这是可耻和可悲的。你们自称是穆斯林，但你们只是在利用这一点作秀。你们根本不关心人民，”坎特说。
-
-这是坎特第二次无视NBA，并公开谈论中共国的虐待行为。在上周的视频中，坎特说，由于中共国的压迫，西藏的人权是“不存在的”。
-
-“残暴的中共国独裁者习近平，我有话要告诉你和你的党羽……解放西藏，”坎特在视频中喊道。“我来这里是为了发出我的声音，并说出西藏正在发生的事情。在中共政府的残暴统治下，西藏人民的基本权利和自由已不存在。”
-
-“不允许他们自由地研究和学习他们的语言和文化。不允许他们自由旅行。不允许他们自由地获取信息。甚至不允许西藏人民自由地进行礼拜，”坎特补充说。“70多年来，西藏僧侣、尼姑、知识分子、作家……以及更多的人被拘留，被送到政治再教育班，遭受酷刑、长时间审讯，甚至被处决，仅仅因为行使你我理所当然应该享有的自由。”
-
-“中共国政府是可耻的。中共国的独裁统治正在抹杀藏人的身份和文化，”坎特继续说道。“西藏的文化种族灭绝令人窒息，以至于超过150人自焚，希望这种可怕的行为，能够唤起人们对西藏境内正在发生的暴行的认知和关注。”
-
-“我不能保持沉默，”坎特坚持说。
-
-坎特还非常直言不讳地反对他的祖国、土耳其的伊斯兰独裁者雷杰普·塔伊普·埃尔多安总统。
-
-简评：
-
-有多少NBA球员因为金钱拜倒在中共脚下，向中共叩头已成潮流的当前，坎特先生站出来为西藏和新疆维吾尔族人呼吁和呐喊，揭露中共当局对西藏和新疆维吾尔族人的暴行。首先我要向坎特先生致敬，佩服他的勇敢，因为他是少数几个敢在NBA反对中共的人之一。坎特先生对中共的谴责如此深刻、有力，热爱和平反对暴政的人们都应该加入他的行列，继续揭露和传播中共对中国人民的暴行和独裁，这些暴行不仅仅发生在西藏和新疆，而是发生在中共国的各个角落。
-
-新闻链接：[https://www.breitbart.com/sports/2021/10/24/nbas-enes-kanter-wont-back-down-on-calls-for-heartless-dictator-china-to-free-the-uyghur-people/](https://www.breitbart.com/sports/2021/10/24/nbas-enes-kanter-wont-back-down-on-calls-for-heartless-dictator-china-to-free-the-uyghur-people/)
-
-翻译/简评：Brianchow
-
-PR：Julia Win
+Rachel 独自对抗病魔战斗了几个星期之后，4 月 13 日她过世了，留下了丈夫 kevin 及两个小朋友——一对 8 岁及 12 岁的儿子，医生的结论是，她不知何故患上了一种罕见的多发性硬化症。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/48_0.jpg)
+来源｜[个案048](https://www.manchestereveningnews.co.uk/news/greater-manchester-news/fit-healthy-everything-live-for-20376989)
 
 * * *
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)

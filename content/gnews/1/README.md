@@ -2,37 +2,26 @@
 ---
 
 
-## 圣地亚哥学生、家长就 COVID-19 疫苗授权起诉区政府
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1618549/)
+## 威胁当今世界和平的重大决定
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1618652/)
 
-编译：Jenny Ball
+新闻来源：德国世界报网络版
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/San-Diego-Vaccine-Protest-1200x800-700x420-1.jpg)加利福尼亚州圣地亚哥 – 2021 年 9 月 28 日：反疫苗抗议者在圣地亚哥联合学区办公室外举行抗议活动，以抗议强制要求学生接种疫苗。 学区正在举行视频听证会，讨论是否强制要求学生接种至少一剂 COVID 疫苗。（桑迪·赫夫克/盖蒂图片社拍摄）
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-圣地亚哥——一名 16 岁的斯克里普斯牧场高中学生和她的父母，于 10 月 22 日对圣地亚哥联合学区提起诉讼，以阻止最近批准的针对 16 岁以上教职员工和学生的 COVID-19 疫苗授权。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Gauck-in-China-auf-Staatsbesuch.jpg)
 
-约翰、简和吉尔·多伊(John, Jane, and Jill Doe)代表家人，在圣地亚哥联邦法院提起的诉讼——指出高中三年级的她，宗教信仰禁止她接种疫苗。
 
-该学区上个月批准了一项疫苗强制计划，该计划要求所有 16 岁以上的学生，不迟于 12 月 20 日接种第二剂疫苗。16 岁或以上未接种疫苗的学生，将被要求通过远程学习独立学习。该学区的计划允许对任务进行医疗豁免，但不允许宗教或个人信仰豁免。
+图片来源： DPA
 
-根据诉状，吉尔对堕胎的宗教反对阻止了她接受疫苗，因为她说，批准用于紧急使用的三种疫苗，或用于测试疫苗的材料，使用了来自流产胎儿的干细胞系的材料。
+五十年前，联合国大会投票反对台湾，投票支持中华人民共和国。 它助长了一场持续至今的冲突——并且目前正在危险地升级。
 
-投诉称，吉尔·多伊“要么放弃她的信仰，要么在 SDUSD 参加独立的在线学习。”
+几个星期以来，北京再次加大对台北的压力。 去年10月，中国战斗机成群结队地侵犯台湾空中交通管制区。 台湾国防部长邱国正近日表示：“目前的情况确实是我从军40多年以来所见过的最危险的情况。”
 
-公共卫生官员表示，虽然过去几十年的胎儿细胞系已用于疫苗研发，但 COVID-19 疫苗不包含流产的胎儿细胞。
+简评：越来越严峻的台海局势已经引起了全世界的注视， 德国这个非常保守的报纸居然也写出了这样的文章。 并表明了让中共国加入联合国助长了一场持续的冲突。
 
-本月早些时候，当地家长组织对“让他们（孩子）选择” (Let Them Choose)提起诉讼，指控该地区无权实施疫苗授权。该组织表示，这项授权是“不必要的、非法的，侵犯了学生接受面对面教育的权利，并且存在歧视。”
+原文链接：[https://www.welt.de/politik/ausland/plus234639436/China-und-Taiwan-Eine-UN-Entscheidung-gefaehrdet-den-Weltfrieden.html](https://www.welt.de/politik/ausland/plus234639436/China-und-Taiwan-Eine-UN-Entscheidung-gefaehrdet-den-Weltfrieden.html)
 
-**评论：这项授权不仅是非法的，侵犯了学生接受面对面教育的权利，而且真正在制造歧视。这就是共产主义左派和中共一样，嘴里说一套，行动做一套，他们嘴里批判别人的罪名，都是他们实实在在干着的勾兑。中共最善于制造矛盾，挑动群众斗群众，现在把这一套也输出到了美国和世界各地。希望人们从疫苗血的灾难中认清现实：我们在面临着一场保卫自由的终极之战！**
+免责声明：本文内容仅代表个人观点，与Gnews平台无关。
 
-**圣地亚哥的学生和家长加油！**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**参考资料：**[theepochtimes][San Diego Student, Parents Sue District Over COVID-19 Vaccine Mandate](https://www.theepochtimes.com/san-diego-student-parents-sue-district-over-covid-19-vaccine-mandate_4066334.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-10-25)
-
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
+责任编辑、发布： Shuizhuyu
