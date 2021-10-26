@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/26/2021 11:22 AM (UTC)`
+
+10月26日：尊敬的战友们好，你们健身了吗？传播C C P病毒真相．和疫苗解药了吗？一切都已经开始！
+![img](https://media.gettr.com/group26/getter/2021/10/26/11/22/260ee6da-4ea1-93a8-ddd6-c10f3ad876b9/out.jpg)
+
+---
+
 `@miles 10/25/2021 11:55 PM (UTC)`
 
 10/25/2021 Miles Guo’s GETTR: The purposes of Xi’s secret trip to the five countries are to control Europe and the Middle East, and to set the tone for the upcoming 6th Plenary Session; The Biden administration will resume the trades and cooperations with the CCP, but that will trigger a strong backlash from the anti-CCP forces! Can Xi make it back safely and attend the meeting without worries?<br/><br/>10/25/2021 文贵盖特：习对五国的秘密访问是为了拿下欧洲和中东并为六中全会奠定基调；拜登政府将与中共恢复贸易与合作，但这将激起反共势力的反弹；习能安全回国并高枕无忧地开会吗？<br/>
@@ -286,13 +293,6 @@ Background Information on Yunhong Group (4) 运鸿集团的背景（四）
 
 Background Information on Yunhong Group (3) 运鸿集团的背景（三） 
 ![img](https://media.gettr.com/group39/getter/2021/10/22/17/41/622d3704-6c1c-2d46-d9c9-7d4523e03727/8dee995501b398516a3b3b1e36904df2.jpg)
-
----
-
-`@miles 10/22/2021 5:39 PM (UTC)`
-
-Background Information on Yunhong Group (2) 运鸿集团的背景 （二） 
-![img](https://media.gettr.com/group5/getter/2021/10/22/17/38/13a5d291-5d16-3db8-a1ed-0e4f2fde7d1f/571064e645f43e66ecf28c70bc653ce3.jpg)
 
 ---
 
