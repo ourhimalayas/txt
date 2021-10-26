@@ -2,129 +2,33 @@
 ---
 
 
-## 临界点
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1619332/)
+## 中国和俄罗斯军舰在太平洋地区进行联合巡逻
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1619510/)
 
-**– 人类面临存亡线 –
-– 文明逼近临界点 –
-– “保命保财报仇”新解 –**
+编译：蚂蚁兄弟
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/himalaya_7.png)图片来源：雅典娜设计组（小蚂蚁614）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/121177415_chinarussianavy2021.jpg)图片来源：bbc.com
 
+俄罗斯和中共国海军最近几天已经开始在太平洋地区进行联合巡逻。这两个大国首次合作在世界最大的海洋上航行，此举已被诠释为新版的冷战。
 
-**作者：**澄道来了
-**编辑：**翼族
+据俄罗斯国防部称，在10月17日至23日期间，两个大国的海军联合在该水域航行。此举引起了日本的警觉，日本确认俄罗斯在将日本海与太平洋分开的津轻海峡进行了演习。
 
-能源革命低碳化
-太空科技外星化
-生物内科子宫化
-自媒虚币一统化
+“巡逻队举着俄罗斯和中国的国旗，旨在维护亚太地区的和平与稳定，并保护两国的海上经济活动对象”。俄罗斯国防部在一份声明中说：“作为考察的成员之一，该船队首次通过津轻海峡”。
 
-“四个化”再强
-若邪共还在
-文明就会一再接受挑战
+国际地缘政治的棋盘已经在太平洋地区设置了多年，普京和习近平之间的合作是为了作为对抗美国、英国和澳大利亚之间的军事协定（AUKUS）的一种方式。
 
-“四个化”未来
-爆料革命站鳌头
-正道信念七哥永不言败
+**简评：**
 
-“保命保财报仇”
-战友新解
+**军事方面的示威，作为冷战的一种形式，在很多年中已经没有遇到了。中共国和俄罗斯之间的关系很微妙。在美国政府逐步“示弱”的今天，中俄之间开始了联合的军演。然而，在武力上的威慑是吓不住美国的。美国的强大，不是中俄两国合力便可以对抗的。在人们谈论的热战之外，“超限战”已然在世界全面展开。武力的示威，只不过是“摆摆样子”罢了。经济、金融、疫情、乃至现在所推广的疫苗，才是真正的战场。**
 
-“3B”付诸实施
-觉者行动
+（文章仅代表作者观点，与GNEWS无关）
 
-应急互助组（保命）
-战友自发
-紧随七哥
-提升彼此
-打气活命
+**参考资料：**[vozpopuli][Buques de guerra de China y Rusia realizan patrullas conjuntas en el Pacífico](https://www.vozpopuli.com/internacional/buques-guerra-rusia-china-pacifico.html)
 
-时间：
-一年有馀
-范围：
-全球农埸
-战友：
-医药物品
-配备派购
+* * *
 
-Hpay推广组（保财）
-代理未来
-推广希望
+*审核：Aries的星*
+*校对：阿伯塔*
+*发布：信心的选择*
 
-喜币代理无前人
-许可推广虚币魂
-罗斯家族富敌国
-势必为之渊源深
-
-区域性
-行业性
-同步共履
-
-会计师
-虚币师
-互为犄角
-
-家族信讬
-喜币效益
-整合与打理并重
-
-宣讲制度
-讲者设定
-主题与入口同框
-
-理念认可
-达成共识
-愿意尝试
-为首要
-
-现实分享
-趋势引导
-利弊考量
-为次之
-
-成功源于
-多拿一商之家
-多签一主业态
-放大的是千倍效益
-不存在竟争
-（网格倍增原理）
-没有真对手
-（除了自知自识）
-
-灭共铲毐组（报仇）
-一场直播
-一次次战斗
-
-一篇文章
-一排排子弹
-
-GTV
-节目直播
-GNEWS
-文宣表达
-GETTR
-社交媒体
-
-新版“保命保财报仇”
-简称“3B”方案
-战友版
-现实版
-
-人类存亡线
-文明临界点
-
-@ 爱动爱议码10252
-@ 作战室 车上
-@ 澄道来了
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-发布：文武全才
-
-**更多資訊，請關注：**
-[澳大利亞墨爾本雅典娜農場](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亞墨爾本雅典娜農場](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亞墨爾本雅典娜農場](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亞墨爾本雅典娜農場](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
-[澳大利亞墨爾本雅典娜農場](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)

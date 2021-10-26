@@ -15,170 +15,170 @@
 
 ---
 
-### [证据表明 COVID-19 疫苗不起作用](/content/gnews/1/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [德国慕尼黑汽车游行 呼吁终结中共](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
 
-### [【信仰之声】千年和平，世界进入“千年和平”](/content/gnews/2/README.md)
- ` 纽约香草山MOS03`
+### [免疫专家：未接种疫苗的人并不危险，接种疫苗的人却很危险](/content/gnews/2/README.md)
+ ` 日本东京方舟农场`
 
-### [安大略省高等法院针对多伦多医院系统的强制疫苗政策发布临时禁令](/content/gnews/3/README.md)
- ` MG FARM`
+### [有声|盖特用户逼近300万，已经成为真正的全球媒体平台](/content/gnews/3/README.md)
+ ` MOSREC`
 
-### [中国和俄罗斯军舰在太平洋地区进行联合巡逻](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [盖特的三个七分之一](/content/gnews/5/README.md)
+### [DC每日热点1026](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [脸书对世界各国分级排序以决定何时干预它们的选举](/content/gnews/6/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [10/26/2021 文贵盖特：社交媒体的绝对垄断导致中共作恶和疫苗的真相被掩盖](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
 
-### [渥太华未接种疫苗警察可将继续工作](/content/gnews/7/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [新的言论自由应用在盖特，不会让用户陷入“数字监狱”](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [苹果将成为中国最后一个美国科技巨头吗？](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [四名阿尔伯塔医生就疫苗强制要求起诉阿尔伯塔卫生服务局](/content/gnews/10/README.md)
+### [BC 卫生局有人举报称 50% 的新冠住院患者与新冠病毒无关](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [临界点](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
+### [证据表明 COVID-19 疫苗不起作用](/content/gnews/7/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [俄大型公司签署该国首个人工智能道德准则](/content/gnews/12/README.md)
- ` HimalayaRussia`
-
-### [墙内要闻汇编 10月26日](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [加拿大生活美谈 2021-10-21第二十六期](/content/gnews/14/README.md)
- ` canadalifetalk`
-
-### [纽约市政强推疫苗接种遭激烈反抗](/content/gnews/15/README.md)
+### [加拿大自由党政府内阁发生重大人事更迭](/content/gnews/8/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [枪杆子](/content/gnews/16/README.md)
- ` 墨尔本雅典娜农场`
-
-### [日本要闻汇编 10月26日](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本7成人口已接种两剂中共病毒疫苗](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [赚钱灭共两不误 空壳DWAC来一股](/content/gnews/19/README.md)
- ` 纽约香草山MOS02`
-
-### [房地产税是CCP内斗加剧的表现](/content/gnews/20/README.md)
- ` 波士顿五月花农场`
-
-### [青年高失业率引爆“从政”热度，2022年国考报名人数超202万](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共欲低价承包泰国水利项目遭当地人权组织强烈反对](/content/gnews/22/README.md)
- ` GTV新闻访谈`
-
-### [中共企图以“一国一票”操纵联合国](/content/gnews/23/README.md)
- ` GTV新闻访谈`
-
-### [SPAC获利，但投资者警告个人崇拜不能取代投资要素](/content/gnews/24/README.md)
- ` GTV新闻访谈`
-
-### [苏丹政变后联合国安理会召开紧急会议](/content/gnews/25/README.md)
- ` Shuizhuyu`
-
-### [GTV新闻访谈简报|2021年10月26日早](/content/gnews/26/README.md)
- ` 纽约香草山MOS01`
-
-### [河北学生家长反映学校食堂问题被刑拘，中共政府忙洗地](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [又一百强房企暴雷！当代置业美元2.5亿债务逾期](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [青岛黄岛区一小吃街发生煤气爆炸事故](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [COVID-19最新情報｜瑞典、英國新冠死亡案例 集中於「完全接種者」](/content/gnews/31/README.md)
- ` G&#124;News TAIWAN`
-
-### [喜悦之旅](/content/gnews/32/README.md)
+### [【信仰之声】千年和平，世界进入“千年和平”](/content/gnews/9/README.md)
  ` 纽约香草山MOS03`
 
-### [全球涨价潮背后的政府剥削](/content/gnews/33/README.md)
+### [安大略省高等法院针对多伦多医院系统的强制疫苗政策发布临时禁令](/content/gnews/10/README.md)
+ ` MG FARM`
+
+### [中国和俄罗斯军舰在太平洋地区进行联合巡逻](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [盖特的三个七分之一](/content/gnews/12/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [脸书对世界各国分级排序以决定何时干预它们的选举](/content/gnews/13/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [渥太华未接种疫苗警察可将继续工作](/content/gnews/14/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [新的言论自由应用在盖特，不会让用户陷入“数字监狱”](/content/gnews/15/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [苹果将成为中国最后一个美国科技巨头吗？](/content/gnews/16/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [四名阿尔伯塔医生就疫苗强制要求起诉阿尔伯塔卫生服务局](/content/gnews/17/README.md)
+ ` MG FARM`
+
+### [临界点](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [10/26/2021国际财经快讯：中美通话讨论双边贸易关系；特斯拉突破1万亿美元市值](/content/gnews/34/README.md)
- ` 秘密翻译组金融团队`
+### [俄大型公司签署该国首个人工智能道德准则](/content/gnews/19/README.md)
+ ` HimalayaRussia`
 
-### [天和人](/content/gnews/35/README.md)
- ` 骄子`
+### [墙内要闻汇编 10月26日](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共产党对川普先生的构陷](/content/gnews/36/README.md)
- ` 银河勇气之星`
+### [加拿大生活美谈 2021-10-21第二十六期](/content/gnews/21/README.md)
+ ` canadalifetalk`
 
-### [文·贵天成——文贵先生谈“马云”（十七）](/content/gnews/37/README.md)
+### [纽约市政强推疫苗接种遭激烈反抗](/content/gnews/22/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [枪杆子](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [企业表示疫苗规定损害就业，并导致劳动力短缺](/content/gnews/38/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [日本要闻汇编 10月26日](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文·贵天成——文贵先生谈“马云”（十六）](/content/gnews/39/README.md)
- ` 墨尔本雅典娜农场`
+### [赚钱灭共两不误 空壳DWAC来一股](/content/gnews/25/README.md)
+ ` 纽约香草山MOS02`
 
-### [疫苗灾情｜英国 40 岁女演员接种疫苗后中风昏迷](/content/gnews/40/README.md)
+### [中共欲低价承包泰国水利项目遭当地人权组织强烈反对](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [中共企图以“一国一票”操纵联合国](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [SPAC获利，但投资者警告个人崇拜不能取代投资要素](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [GTV新闻访谈简报|2021年10月26日早](/content/gnews/29/README.md)
+ ` 纽约香草山MOS01`
+
+### [河北学生家长反映学校食堂问题被刑拘，中共政府忙洗地](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
+
+### [青岛黄岛区一小吃街发生煤气爆炸事故](/content/gnews/31/README.md)
+ ` GTV新闻访谈`
+
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/32/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [COVID-19最新情報｜瑞典、英國新冠死亡案例 集中於「完全接種者」](/content/gnews/33/README.md)
  ` G&#124;News TAIWAN`
 
-### [震惊！莫得纳称其低剂量疫苗对6至11岁的儿童有效](/content/gnews/41/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [喜悦之旅](/content/gnews/34/README.md)
+ ` 纽约香草山MOS03`
 
-### [多国撤回极端疫情控制措施](/content/gnews/42/README.md)
+### [全球涨价潮背后的政府剥削](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [圣地亚哥学生、家长就 COVID-19 疫苗授权起诉区政府](/content/gnews/43/README.md)
+### [10/26/2021国际财经快讯：中美通话讨论双边贸易关系；特斯拉突破1万亿美元市值](/content/gnews/36/README.md)
+ ` 秘密翻译组金融团队`
+
+### [天和人](/content/gnews/37/README.md)
+ ` 骄子`
+
+### [共产党对川普先生的构陷](/content/gnews/38/README.md)
+ ` 银河勇气之星`
+
+### [文·贵天成——文贵先生谈“马云”（十七）](/content/gnews/39/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [企业表示疫苗规定损害就业，并导致劳动力短缺](/content/gnews/40/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [文·贵天成——文贵先生谈“马云”（十六）](/content/gnews/41/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [疫苗灾情｜英国 40 岁女演员接种疫苗后中风昏迷](/content/gnews/42/README.md)
+ ` G&#124;News TAIWAN`
+
+### [震惊！莫得纳称其低剂量疫苗对6至11岁的儿童有效](/content/gnews/43/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [多国撤回极端疫情控制措施](/content/gnews/44/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [圣地亚哥学生、家长就 COVID-19 疫苗授权起诉区政府](/content/gnews/45/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [抗议者冲击 NBA 比赛 谴责疫苗授权](/content/gnews/44/README.md)
+### [抗议者冲击 NBA 比赛 谴责疫苗授权](/content/gnews/46/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日中央行延长货币互换协议，或为日企撤离中共国创造条件](/content/gnews/45/README.md)
+### [日中央行延长货币互换协议，或为日企撤离中共国创造条件](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [韩民间抵制日货运动又起，如何化解对立情绪考验两国政府](/content/gnews/46/README.md)
+### [韩民间抵制日货运动又起，如何化解对立情绪考验两国政府](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际要闻汇编 10月26日](/content/gnews/47/README.md)
+### [国际要闻汇编 10月26日](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [10/20 郭文贵直播：监视马云的20名随行人员中的一半被他收买（粤语配音）](/content/gnews/48/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [10/20郭文贵直播：马云正在处理大概3000多笔的资产（粤语配音）](/content/gnews/49/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [10/20 郭文贵直播：中共利用马云进行国家级股市操纵、刑事诈骗（粤语配音）](/content/gnews/50/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [暗无天日](/content/gnews/51/README.md)
+### [暗无天日](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“香港加油”成禁语 马拉松跑手被拒赛](/content/gnews/52/README.md)
+### [“香港加油”成禁语 马拉松跑手被拒赛](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [迈克·彭佩奥：拜登必须坚守保卫台湾的承诺](/content/gnews/53/README.md)
+### [迈克·彭佩奥：拜登必须坚守保卫台湾的承诺](/content/gnews/52/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [瑞典无限期暂停使用莫德纳疫苗，因导致接种者严重心脏病](/content/gnews/54/README.md)
+### [瑞典无限期暂停使用莫德纳疫苗，因导致接种者严重心脏病](/content/gnews/53/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新东方在线：将停止对义务教育阶段学生提供校外培训业务](/content/gnews/55/README.md)
+### [新东方在线：将停止对义务教育阶段学生提供校外培训业务](/content/gnews/54/README.md)
  ` 秘密翻譯組G-Translators`
+
+### [有声|拜登承诺协防台湾，引中共强硬回应](/content/gnews/55/README.md)
+ ` MOSREC`
 
 ### [报告：中共国政权利用好莱坞来塑造中共的正面形象](/content/gnews/56/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

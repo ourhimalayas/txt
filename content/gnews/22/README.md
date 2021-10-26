@@ -2,33 +2,24 @@
 ---
 
 
-## 中共欲低价承包泰国水利项目遭当地人权组织强烈反对
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619230/)
+## 纽约市政强推疫苗接种遭激烈反抗
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1619279/)
 
-作者：纽约香草山农场 – 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-泰国议员维拉康近日透露，对于泰国备受争议的尤姆河引水工程，由中共控制的北方工业国际公司此前表示，愿意自费在四年内以12亿美元的造价建造该项目。为此，曾两次拒绝该项目评估的泰国政府于上月批准了这一项目的环境影响评估报告。
+采编：青青    编译撰稿：文明(添草灭共)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-4.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-11-edited.jpg)图片来源：后千禧年
 
-当地时间10月25日的消息称，泰国人权组织强烈反对该项目，因担心新水库将淹没村庄，破坏森林，且将对当地克伦土著居民产生不利影响。同时，经评估，此工程“存在严重缺陷”。
 
-中共借一带一路之名，蓝金黄当地政客，不惜血本参与基础设施项目，试图进一步扩大在泰国的影响力。对于中共的经济绑架，东南亚国家应提高警惕。
+据加拿大自媒体【后千禧年】10月25日报道，纽约当天举行了大规模抗议其市政府强推的“新冠病毒疫苗接种授权”示威游行。来自该市政各行业包括消防、警察、急救中心等部门的雇员和其他城市赶来的民众一起参加了本次活动。
 
-(本文仅代表作者观点)
+报道称，激愤的示威者们身着“爱国者”主题的服装走上街头，强烈抗议该市的各项疫情卫生限制令。据悉，此次活动反映了近5万名尚未接种该疫苗的纽约市政雇员反对“该疫苗接种授权”的基本意愿。 
 
-参考链接：[中国公司欲承包泰国水利项目 人权环境人士表示反对](https://www.voachinese.com/a/china-shows-interest-in-a-thailand-water-project/6283640.html)
+此前，纽约市市长德布拉曾发布强制令，要求所有市政雇员无论是否接受过“新冠病毒”感染测试，都必须在10月底前至少接种首剂“新冠病毒疫苗”。否则从11月1日开始，所有拒绝接种者将一律被当局施以无薪休假的处罚。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+（以上内容仅代表原文信息和作者个人观点）
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：谐趣园
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://thepostmillennial.com/breaking-massive-protest-against-vaccine-mandate-held-in-nyc-anti-biden-chants-fill-the-air)

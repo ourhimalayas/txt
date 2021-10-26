@@ -2,35 +2,34 @@
 ---
 
 
-## SPAC获利，但投资者警告个人崇拜不能取代投资要素
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619206/)
+## 日本要闻汇编 10月26日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1619270/)
 
-作者：香草山佛教部 -文一
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据10月24日的消息显示，川普媒体和技术集团在上周收购DWAC之后，其价值已高达82亿美元，而川普本人将拥有合并公司50%以上的股份，价值接近48亿美元。
+#### 素材：东京樱花团GNEWS组
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide8-8.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/日本疫苗接种70.jpg)[图片来源](https://china.kyodonews.net/news/2021/10/d87910ee9631-7-g7.html)
 
-但相关消息同时指出，川普的新企业面临巨大的阻力，其产品 Truth Social社交媒体平台已经出现了技术问题并被黑客攻击。 该公司CEO随后也评论称，他们没有财务数据和商业计划。
+1、[日中两国央行延长货币互换协议](https://china.kyodonews.net/news/2021/10/79f44329d3a4.html)
 
-投资经验人士路易斯·纳维利尔在10月25日发文表示，个人崇拜不能取代投资基本要素，并且警告投资者称： DWAC的交易尚未完成，目前仍有告吹可能；同时，投资者很可能在合并案中被重新洗牌；另外， DWAC也可能因政治因素陷入困境；即便合并完成，与竞争对手相比，DWAC的可支配现金微乎其微。因此，路易斯建议避开DWAC的投资，并表示华尔街的疯狂将在DWAC上又一次充分展示。
+日本央行25日发布消息称，延长与中国人民银行之间在金融危机时相互融通货币的“货币互换协议”，有效期至2024年10月25日。额度为日方2000亿元人民币、中方3.4万亿日元（约合人民币1909亿元），与此前维持相同水平。货币互换协议是在发生金融危机时相互融通货币的机制。
 
-(本文仅代表作者观点)
+2、[日本向海外累计提供约3000万剂新冠疫苗](https://china.kyodonews.net/news/2021/10/f680a6cc048c-3000.html)
 
-参考链接：
-1）[‘The Richest He’s Ever Been’: Trump Set To Gain Billions In Net Worth On Moonshot SPAC](https://www.zerohedge.com/political/trump-gains-billions-net-worth-moonshot-spac)
-2）[I’m a Trump supporter, but as an investor I’m wary of the Trump SPAC](https://www.msn.com/en-us/money/companies/i-m-a-trump-supporter-but-as-an-investor-i-m-wary-of-the-trump-spac/ar-AAPVPmB)
+日本外相茂木敏充26日在记者会上透露，27日将向台湾追加提供30万剂新冠疫苗。茂木透露至此日本向海外总计20个国家和地区提供疫苗达到约3000万剂，强调“供应成绩位列全球第三”。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+3、[日本接种两剂新冠疫苗达70%  居G7前列](https://china.kyodonews.net/news/2021/10/d87910ee9631-7-g7.html)
 
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：谐趣园
+日本政府26日发布的统计结果显示，已接种两剂新冠疫苗的人已达总人口的70.1%。在七国集团（G7）中，与排在第2位的意大利基本持平，略低于第1位加拿大，处于前列。在率先接种的欧美各国，该数据在6成左右，受“7成壁垒”的阻挡，增长乏力。日本则由于对疫情的危机感等，已顺利突破。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+4、[东京-北京论坛 日驻华大使强调青少年交流](https://china.kyodonews.net/news/2021/10/2c70d8b6cb2a.html)
+
+日中两国政商界人士及专家讨论安全保障等的“东京-北京论坛”26日在线召开。日本驻华大使垂秀夫指出，要构建具有建设性的、稳定的日中关系，需要国民的理解和支持，并强调了青少年交流的重要性。论坛发表了敦促两国在广泛领域举行对话的联合声明。
+
+5、[松下展示EV车载新电池 容量增至5倍](https://china.kyodonews.net/news/2021/10/405e4498e11c-ev-5.html)
+
+松下公司25日首次展示了搭载于电动汽车（EV）的新型锂离子电池“4680”的试制品。通过大型化，电池容量增至以往产品的约5倍，目的是削减生产成本。
+
+（本文只代表观点，与Gnews网站无关）
+
+*校对、发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)
