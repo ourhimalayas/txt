@@ -2,45 +2,45 @@
 ---
 
 
-## 世贸组织将审查中澳葡萄酒争端
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1618925/)
+## 澳洲防长表示若中共武力犯台将与美国同进退
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619041/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/14-13.jpg)
+作者：纽约香草山农场医疗部 – 云豹
 
 
 
-图片来源：i1.wp.com
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-#### 编译：小红帽
 
-世界贸易组织(WTO)成立了一个争端解决小组，以审查中共国对澳大利亚葡萄酒征收的反倾销税。
+澳洲国防部长杜登（Peter Dutton）于25日接受澳洲天空新闻（Sky News Australia）访问时表示，如果中共以武力侵犯台湾，澳洲将采取与美国同进退的应对策略。当被问到澳洲是否会与中共发生战争，他回答说这是中共应该回答的问题。
 
-贸易部长丹·特汉（Dan Tehan）和农业部长大卫·利特普劳德（David Littleproud）回应称，澳大利亚将继续利用世贸组织争端解决机制“大力捍卫”澳大利亚葡萄酒生产商和出口商的利益。
+杜登表示，澳洲与美国、英国、加拿大、纽西兰是长期盟友。澳洲与美国、印度、日本也组成「四方安全对话」（Quad）关系；澳洲、美国与东南亚国家协会（ASEAN）也有紧密的合作。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-12.jpg)
+杜登说，澳洲国家安全委员会（National Security Committee）最近6年来，持续在关注中共可能武力犯台的问题。从中共对付香港的方式来看，中共已经决定要进一步对付台湾。而美国已经清楚表达对台湾问题的态度。
 
-“澳大利亚仍然愿意与中共国进一步讨论，以解决这个问题，”特汉和利特普劳德在周二晚间的一份声明中说。
+参考链接：
+[澳洲防長：如中國武力犯台 將與美國同進退](https://www.cna.com.tw/news/firstnews/202110250011.aspx)
 
-据路透社报道，该争端解决机构周二在日内瓦举行闭门会议，同意澳大利亚的第二次请求，因为澳大利亚的第一次请求被中共国阻止了。
+（本文仅代表作者观点）
 
-中共国去年对澳大利亚生产商征收了约200%的关税。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-根据中澳自由贸易协定，澳大利亚生产商曾受益于零关税。
+总编/编辑：木白
+校对/发稿：为真不破20
 
-近年来，澳大利亚和中共国之间的关系恶化，中共国的申诉清单涵盖外国投资规则、禁止华为参与5G网络以及澳大利亚推动对中共病毒（COVID-19）起源的调查。
+**更多资讯，更多关注**
 
-随着外交争端的加深，中共国对澳大利亚发起了一系列贸易打击，包括葡萄酒、大麦、棉花、红肉、海鲜、糖、木材和煤炭出口。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**参考新闻：**[WTO to examine China-Aust wine dispute (msn.com)](https://www.msn.com/en-au/news/australia/wto-to-examine-china-aust-wine-dispute/ar-AAPXYrl?ocid=msedgntp)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-***发布：小红帽***
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

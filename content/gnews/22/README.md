@@ -2,21 +2,46 @@
 ---
 
 
-## 秘翻在线：美国零售业巨头将中共公司的监控技术产品下架
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1618914/)
+## COVID-19最新情報｜瑞典、英國新冠死亡案例 集中於「完全接種者」
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1618967/)
 
-#### 翻译撰稿：zzballack
+**台灣寶島農場 疫情關注組｜發佈日期/ 26/10/2021**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/fsdaf1456sad46f5133rg215tr641g45631a2fds.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-新闻网站 TechCrunch 10月25日报道称，中共的视频监控技术设备生产商Lorex科技和萤石（Ezviz）的产品因人权侵犯问题被美国的零售业巨头家得宝（The Home Depot）和百思买（Best Buy）撤下货架。
 
-视频技术公司Lorex科技是大华股份（Dahua Technology）的子公司，而萤石是海康威视（Hikvision）旗下的视频监控摄像机品牌。总部都设在中共国的大华股份和海康威视在2019年被列入美国政府的经济黑名单，因为这两家公司与中共镇压新疆少数民族的暴行有关。美国政府声称中共严重依赖海康威视、大华股份和其他技术公司提供的监控设备来监视维吾尔人。
+瑞典、英國政府分析數據，發現9月因感染新冠病毒死亡者，絕大多數是完全接種者。這一結論，與西方國家於高疫苗覆蓋率的情形，突破性感染數量激增相符合。
 
-家得宝在一份声明中说，“公司一直致力于维护道德采购的最高标准，当我们注意到这一点时，我们立即停止销售Lorex的产品“。家得宝的一位发言人证实，它也会停止销售萤石的产品。百思买说它正在“终止与Lorex和萤石的关系”。另一家美国零售公司劳氏公司 (Lowe’s)也将Lorex的产品从其货架上撤下。
+#### 瑞典
 
-之前，由于Lorex科技和萤石等大华股份和海康威视的子公司不在制裁范围之内，消费者仍然可以自由地购买其产品。直到上周，Lorex还在其网站上列出家得宝、百思买、劳氏、沃尔玛和开市客 (Costco)是其授权的五个全国零售店。产品被下架后，Lorex在其网站上删除了这五家零售巨头的标志，尽管它仍将这些公司–除了沃尔玛–列为其产品的零售商。沃尔玛和开市客仍然有Lorex和萤石的库存。
+[瑞典媒體](https://www.svd.se/forskare-ser-en-vikande-vaccineffekt-i-sverige)報導，公衛部門報告表示9月1日至24日，約[7成（130例）](https://ourworldindata.org/explorers/coronavirus-data-explorer?zoomToSelection=true&amp;time=2020-03-01..latest&amp;facet=none&amp;pickerSort=desc&amp;pickerMetric=total_cases&amp;hideControls=true&amp;Metric=Confirmed+deaths&amp;Interval=Cumulative&amp;Relative+to+Population=false&amp;Align+outbreaks=false&amp;country=~SWE)新冠確診死者是已經完全接種疫苗。報導進一步分析，死亡主要發生在老年族群，但相關人員仍認為瑞典疫苗保護力有下降趨勢。
 
-世界维吾尔代表大会 (World Uyghur Congress)的主席多里坤·艾沙 (Dolkun Isa) 对美国政府禁止强迫劳动和制裁中共国公司的行动表示欢迎，但他说，“仍然有美国公司直接帮助中共的进一步镇压行为，这是不可接受的。”
+- 相關：[瑞典研究顯示完全接種疫苗後，抗體將在三個月後急劇下降](https://gnews.org/zh-hant/1576453/)
+- 相關：[疫苗與ADE效應](https://www.chop.edu/centers-programs/vaccine-education-center/vaccine-safety/antibody-dependent-enhancement-and-vaccines)
 
-新闻来源：**[US retail giants pull Chinese surveillance tech from shelves](https://techcrunch.com/2021/10/25/lorex-ezviz-pulled-from-shelves/)**
+
+#### 英國
+
+英國衛生部門數據顯示，瑞典情形也在英國發生。[英國、瑞典的疫苗接種率](https://coronavirus.data.gov.uk/details/vaccinations)幾乎相同。
+
+英國衛生安全局 (UKHSA) 於 10 月 7 日發布[報告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1023849/Vaccine_surveillance_report_-_week_40.pdf)，9月份大多數的死亡病例都已經完全接種疫苗。突破性感染而住院治療的病患，也是完全接種者佔多數。UKHSA 的數據顯示，「完全接種疫苗」死亡數量有2281人，遠高於未接種疫苗、部分接種疫苗。
+
+
+
+> Surging [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) in UK with 49,156 new cases and 45 new [#deaths](https://twitter.com/hashtag/deaths?src=hash&amp;ref_src=twsrc%5Etfw) reported on 18 October 2021. 78.9% of all aged 12 and up are DOUBLE VACCINATED. [#Breakthrough](https://twitter.com/hashtag/Breakthrough?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Geoffrey Norman Pain (@FluoridePoison) [October 18, 2021](https://twitter.com/FluoridePoison/status/1450225202353225729?ref_src=twsrc%5Etfw)
+
+
+
+- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
+- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
+- 相關：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
+- 相關： [COVID-19最新情報｜為何政府「忽視」自然免疫？](https://gnews.org/zh-hant/?p=1610194%28%E5%9C%A8%E6%96%B0%E5%88%86%E9%A0%81%E4%B8%AD%E9%96%8B%E5%95%9F%29)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/18-6.jpg)
+* * *
+
+新聞來源｜[Natural News](https://www.naturalnews.com/2021-10-25-majority-of-covid-deaths-are-fully-vaccinated.html)
+轉譯｜zhong
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)

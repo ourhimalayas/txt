@@ -2,32 +2,43 @@
 ---
 
 
-## 中共的强制抗疫政策
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618806/)
+## 中共国在北部封锁数千人以控制不断增长的疫情
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1618885/)
 
-作者：澳喜农场 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/10/marie-bellando-mitjans-b8MpFt6hctY-unsplash-3.jpg)图片来源：Bloomberg NewsCopyright © BloombergQuint
+**摘要翻译:**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+来自《彭博社》10月25日的报道，中共国封锁了一个在该国最近德尔塔变异株爆发中新冠肺炎病例最多的县城，因为该国西北部的首次病毒爆发，迅速蔓延从而导致全国范围内病例的激增。
+
+国家广播公司中央电视台援引一份当地政府的声明报道称，中共国内蒙古地区的一个小县城额济纳旗要求其3.57万名居民从周一开始留在家里，并警告如果有人违反该命令，将承担民事和刑事责任。这个与蒙古接壤的小县城是当前疫情的热点地区，过去一周在大陆发现的150多例感染病例中，有近三分之一发生在该城。
+
+在封锁前一天，中共国国家卫健委官员警告称，疫情在大约一周的时间蔓延到11个省后，还将继续恶化。中共国周一报告了38例新冠病毒感染病例，其中一半发生在内蒙古。
+
+首都北京有十多起新病例可追溯到西北部，北京几乎禁止了来自全国各地任何报告有本土新冠病毒感染病例地区人员的进入。来自这些地区的人如果必须去往北京，则必须提供两天内的新冠病毒检测阴性证明，并接受两周不确定的健康监测。
+
+与此同时，那些少数病例省份，包括北京；西北部的内蒙古、甘肃和宁夏；西南部的贵州已被禁止进行跨省旅游。中共国各地所有与旅游相关的列车服务也被停止，因为当下疫情爆发是由于病毒在旅游团中迅速传播造成的。
+
+不断升级的限制措施凸显出，即使是中共国强大的新冠病毒限制措施在控制高传染性的德尔塔变异株方面也面临挑战。该国是世界上唯一一个仍在寻求根除病毒在本地传播的国家，而同时，从新加坡到澳大利亚，其他所谓的零新冠病毒坚定分子已经转向将该病毒视为流行病。
+
+自5月份德尔塔变异株首次突破严格的边境控制以来，中共国已经成功平息了一系列的病毒爆发。7月和8月的一次爆发终于蔓延到半个中国，迫使中共当局切断病毒热点地区的交通并多次检测当地人口，使感染恢复到零，结果却出现了新的病毒集群。
+
+**简评：**
+
+从中共政府在新冠病毒爆发之初隐瞒疫情，让病毒传遍全世界，到中共国封锁国境不允许国际医学界专家进入武汉进行调查，再到世卫组织时隔一年之后派遣 “专家组”到武汉在中共监视之下开展所谓的新冠病毒溯源调查…… 新闻媒体机构只要稍微用心，就可以通过常识和逻辑分析看得懂中共政权在新冠病毒问题上有不可告人的阴谋。根据我们爆料革命得到的消息，新冠病毒就是中共政权在实验室制造出来的用以攻击全世界的生物武器，中共政权能不再继续放毒就已经是世界的万幸了，它又怎么可能把心思放在用心防疫上？所以我认为如果某家新闻媒体发出宣传中共政权成功防疫之类的新闻，这家媒体不是蠢就是坏。
+
+中共国的新闻都是新华社通稿，并没有丝毫的可信之处，我们有理由怀疑，此次从中共官方传出来的所谓德尔塔变异株爆发的消息，很可能是中共政府为进一步作恶编织出来的谎言，其目的要么是为了在中共国强推其祸害和控制中共国老百姓的毒疫苗，要么就是要以疫情爆发为借口，进一步控制中共国的老百姓，以达到其他不可告人的目的。
+
+新闻链接: [China Locks Down Thousands in North to Contain Growing Outbreak](https://www.bloombergquint.com/onweb/china-locks-down-thousands-in-north-as-delta-outbreak-spreads)
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-中共内蒙古额济纳旗于当地时间25日零时宣布封城，当局公告称，禁止居民出户且禁止游客出店，否则将被追究民事和刑事责任。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/p5.001.jpeg)
-据内部战友透露，中共先是研制并释放病毒，造成世界性的灾难，其后又采取了极端严酷的疫情防控措施，动辄封门、封路、封城，任由民众自生自灭，最终导致民怨四起。为了防控疫情，中共国是全世界唯一一个全面阻止公民返国，并禁止疫区病患外出寻求医疗援助的国家。
-(本文仅代表作者观点)
-
-参考链接: [中国新一轮封城抗疫行动 成效与可持续性受考验](https://www.voachinese.com/a/china-braces-for-covid-19-new-lockdowns-20211025/6284255.html)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-编辑/总编：Irene木木
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
