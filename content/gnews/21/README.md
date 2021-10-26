@@ -2,64 +2,38 @@
 ---
 
 
-## 特殊目的收购公司（SPAC）
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1619115/)
+## 青岛黄岛区一小吃街发生煤气爆炸事故
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619134/)
 
-#### 翻译：沙子最怕你不理它（秘翻原创组）
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-127.jpg)图片来源：网络截图
-**什么是特殊目的收购公司（****Special Purpose Acquisition Company****/****SPAC****）？**
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间10月25日凌晨两点，位于青岛的山东科技大学附近的小吃街突发爆燃，该校北门的小吃街陷入一片火海，多栋联排房屋浓烟滚滚。
 
-SPAC 是为了通过首次公开募股（IPO）募集资金而成立的没有商业业务的公司，其目的是收购或与现有公司合并。SPAC 也被称为“空头支票公司”，它已经存在好几十年了，受欢迎程度近年逐渐飙升。2020年，有247个的 SPAC 成立，募资总额达 800 亿美元。2021年，仅第一季度就有295家新成立的 SPAC，募资总额达到了破纪录的 960 亿美元；相比之下，2010年只有两家 SPAC 上市。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-11.jpeg)
 
-**要点：**
+据现场救援人员透露，大火可能来自某小吃摊的煤气罐爆炸。据悉，事发地点位于青岛市黄岛区。黄岛开发区消防大队称，火灾未造成人员伤亡。
 
-●特殊目的收购公司是通过 IPO 来筹集资金以收购另一家公司
+值得注意的是，中石化位于黄岛区的输油管道曾于2013年11月发生特大爆炸事故，造成62人死亡，136人受伤。
 
-●在 IPO 时，SPAC 尚未开展经营活动，甚至没有明确的收购目标
+从21日开始的短短数日，沈阳、内蒙阿拉善、大连、南京、青岛等地接二连三地发生爆燃事故，但中共却次次以意外为这些事故划上句号，且并无任何跟进报道告知民众事件的缘由及善后措施。而对于这些事故的后续发展，我们将持续关注。
 
-●SPAC 的投资者范围广泛，知名私募基金、名人、普罗大众皆可参与
+(本文仅代表作者观点)
 
-●SPAC 有两年时间完成收购，否则投资款必须退还给投资者
+参考链接：
+1)[【中国大陆城市连日多处发生爆炸】山東科技大学 北门附近/Shandong Science University nearby blowed up/山東科技大学の北門付近にて爆発が発生した](https://www.youtube.com/watch?app=desktop&amp;v=XalN22vqQtg)
+2)[山东科技大学北门发生火灾 起火原因调查中](https://news.sina.com.cn/sf/society/shbt/2021-10-25/doc-iktzqtyu3458117.shtml)
+3)[2013年青岛输油管道爆炸事故](https://zh.wikipedia.org/wiki/2013年青岛输油管道爆炸事故)
 
-**SPAC ****是如何运作的？**
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-SPAC 通常由在特定行业或商业领域拥有专业知识的投资者或赞助商创办，目的是在该领域进行交易。在创建 SPAC 时，创始人有时会想到至少一个收购目标，但他们不会确定该目标，以避免在 IPO 过程中披露太多信息。（这就是为什么他们被称为“空头支票公司”。IPO 投资者通常不知道他们最终将投资的公司）。SPAC在向公众发行股票之前会寻找承销商和机构投资者。
+总编：Irene木木
+编辑：山本不惑
+校正/发稿：谐趣园
 
-SPAC 通过 IPO 募集的资金存入计息信托账户。这些资金不能用于支付，除非是为了完成收购或在SPAC 清算时将钱退还给投资者。SPAC通常有两年时间完成交易或面临清算。在某些情况下，从信托中获得的部分利息可以用作 SPAC 的周转金。收购后，SPAC 通常会在某个主流证券交易所上市。
-
-**SPAC 的优势**
-
-SPAC对计划上市的公司来说有着显著的优势。首先， SPAC 可以让一家公司在几个月内上市，而传统的 IPO 流程是一个艰巨的过程，可能需要六个月到一年多的时间。2020年，SPAC 数量的飙升可部分归因于其上市时间较短。考虑到全球疫情引发的市场波动和不确定性，许多公司选择放弃传统 IPO。
-
-其次，由于 SPAC 进行交易的时间有限，目标公司的拥有者在与 SPAC时更有议溢价空间。此外，被著名金融家和业务高管创建的SPAC收购或与合并，可以为目标公司提供成熟的管理并提高市场知名度。
-
-**SPAC 的风险**
-
-参与 SPAC IPO 的投资者往往对其发起人将来将成功收购或与合适的目标公司合并报以万分期许。监管机构监督力度不够，加上 SPAC 一贯吝于披露信息，意味着散户投资者背负着投资被过度炒作有时甚至会被欺诈的风险。
-
-一旦炒作起来的泡沫消散，投资者从 SPAC 得到的回报可能会远低于预期。高盛（Goldman Sachs）的战略顾问们在2021年9月指出，自2020年初，已有172家 SPAC 完成交易，中位 SPAC 从 IPO 到宣布交易时的表现优于罗素3000指数；但在交易结束后的六个月里，中位 SPAC 的表现比罗素 3000 指数低42个百分点。据复兴资本（Renaissance Capital）战略顾问称，截至2021年9月15日，多达 70% 在当年完成 IPO 的SPAC的交易价格低于10美元。这种令人沮丧的表现意味着一些市场专家警告的 SPAC “泡沫”可能正在破裂。
-
-**SPAC 卷土重来**
-
-近年来 SPAC 备受青睐，尽管 SEC 于2021年4月发布的新会计法规导致今年第二季度的 SPAC 数量环比暴跌。
-
-SPAC IPO 在2019年共募集136亿美元，较 2016 年的 32 亿美元翻了四倍多。但 SPAC 的飞跃是在 2020 年至 2021 年，仅在 2021 年第一季度，就有 295次SPAC IPO共计募集 960 亿美元资金，超越了2020年整年 247家SPAC 募集的 800 亿美元。
-
-在 SPAC 的这段繁荣时期，它们吸引了高盛、瑞士信贷（Credit Suisse）和德意志银行（Deutsche Bank）等大牌承销商，以及退休或半退休的高管。此外，包括艺人和职业运动员在内的许多名人都参与了 SPAC，以至于SEC于2021年3月发布了“投资者警报”，警告投资者不要仅仅基于名人的参与做出与 SPAC 相关的投资决定。2020年，SPAC 占美国新上市公司的 50% 以上。
-
-**轰动性 SPAC 交易范例**
-
-近期最引人注目的一笔 SPAC 交易涉及了理查德·布兰森（Richard Branson）的维珍银河（Virgin Galactic）。风险投资家查马斯·帕里哈皮提亚（Chamath Palihapitiya）的SPAC ——Social Capital Hedosophia Holdings——以8亿美元收购了维珍银河 49% 的股份，随后在2019年上市。
-
-2020年，潘兴广场资本管理对冲基金（Pershing Square Capital Management）的创始人比尔·阿克曼（Bill Ackman）赞助了他自有的、有史以来最大的 SPAC——潘兴广场唐提控股（Pershing Square Tontine Holdings），该公司于2020年7月22日上市，募集了40亿美元。然而，报告显示，2021年8月，阿克曼计划清算该公司。
-
-**为什么一家公司会通过**** ****SPAC**** ****而不是**** IPO**** ****上市？**
-
-节省时间和金钱。IPO 是一个漫长的过程，涉及复杂的监管文件以及与承销商和监管机构长达数月的谈判。这可能会阻碍公司上市的计划，特别是在2020-2021年中共病毒大流行等不确定性因素加剧的时期，投资者们面临着巨大的 IPO 遭冷风险。相比之下，如果一家公司合并或被 SPAC 收购，该公司可以在几个月内上市，顾名思义，SPAC 是一个专门为进行此类收购而存在的实体。与其他非常会压价的的私人股本公司相比，目标公司的所有者也更有可能从收购时间有限的 SPAC 谈得一个较好的价格。
-
-**哪些知名公司通过SPAC上市？**
-
-通过与 SPAC 合并上市的一些最著名的公司有：数字体育娱乐和游戏公司 DraftKings（美国在线博彩龙头）；航空航天和太空旅行公司维珍银河；能源存储创新者QuantumScape（固态电池研发）；以及网上物业交易平台 Opendoor Technologies。
-
-原文链接：[Special Purpose Acquisition Company （SPAC）](https://www.investopedia.com/terms/s/spac.asp)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

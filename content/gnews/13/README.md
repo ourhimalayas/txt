@@ -2,31 +2,23 @@
 ---
 
 
-## 中共企图以“一国一票”操纵联合国
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619220/)
+## 青年高失业率引爆“从政”热度，2022年国考报名人数超202万
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1619242/)
 
-作者：澳喜农场 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中共党魁习近平当地时间25日发表言论称，国际规则只能由联合国193个会员国共同制订，不能由个别国家和国家集团来决定。习近平还向联合国提出“共同”国际关系观，用中共所谓的“构建人类命运共同体”，来替代普世价值。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-10.png)
+[图片来源](https://www.chinanews.com/gn/2021/01-11/9383937.shtml)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9-4.jpeg)
+据中国新闻网10月24日报道，截止10月24日18时，2022年中共国家公务员考试(以下简称“国考”)报名结束。2022年国考拟招录31242人，共16745个岗位。根据中公教育提供的数据，截至10月24日17时30分，2022年国考共有202.6万人报名，较去年同期增长51.4万人；有183.8万人通过审核，较去年同期增长43.5万。
 
-相关人士分析称，中共收买穷国领导人，使其在联合国投票中支持中共。而中共多次指控民主国家的人权问题，但其自身的人权恶行却逃脱了制裁。另一方面，中共也担心，如果美国未能在联合国获得足够支持，将会采取单边外交行动。
+据统计，2022年国考平均竞争比为59∶1，略高于去年同期的54.5∶1。最热职位为西藏自治区邮政管理局阿里地区邮政管理局一级主任科员及以下一职，竞争比为20813∶1。截至10月24日17时30分，仅有127个职位无人报名，约占总职位数的0.76%。
 
-(本文仅代表作者观点)
+近年来随着中共经济急转直下，自2020年中共病毒大流行以来，更是进一步加剧了中共经济的恶化，中小微企业倒闭潮和外资外企撤离潮叠加，导致中共国失业率和失业群体不断扩大。及至今年，随着房地产和金融企业的连续暴雷，又给原本已经十分恶化的就业形势雪上加霜。今年报考2022年国考人数再创新高，直接反映的就是中共社会当前青年群体就业的艰难。
 
-参考链接：[习近平倡议联合国”一国一票”制定规则 学者指美国另组联盟抗衡中国](https://www.rfa.org/mandarin/yataibaodao/zhengzhi/ac-10252021081141.html)
+信息来源：[2022年国考超202万人报名-中新网](http://www.chinanews.com/gn/2021/10-25/9594201.shtml)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+免责声明：文章仅代表作者本人观点，与GNEWS无关
 
-总编：Irene木木
-编辑：山本不惑
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)

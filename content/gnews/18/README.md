@@ -2,27 +2,27 @@
 ---
 
 
-## 又一百强房企暴雷！当代置业美元2.5亿债务逾期
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1619147/)
+## GTV新闻访谈简报|2021年10月26日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1619165/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-14.png)
-[图片来源](http://www.momatek.com/news/36535.jhtml)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-412.png)
 
-10月26日，当代置业发布公告称，公司于10月25日到期的12.85厘优先票据，未能按时偿还票据本金及其应计但未付利息。这笔资金规模2.5亿美元的票据，是目前当代置业5只存续美元债中规模最大的。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-28.png)
+文章仅代表作者本人观点，与Gnews无关
 
-当代置业将此次违约，归因为“预计之外的流动性问题”，而其面临的不利因素包括宏观经济环境、房地产行业环境以及COVID-19疫情等。受此影响，上述票据本金及其应计但未付利息的还款安排，未能于当日达成。
+视频参看：2021.10.26早GTV新闻访谈
 
-自此，当代置业成为继花样年、新力控股等企业后，又一出现债务违约的百强房企。
+[https://gtv.org/broadcast/watch/6177f482eadeb11f5e7aa44b](https://gtv.org/broadcast/watch/6177f482eadeb11f5e7aa44b)
 
-实际上，早在2021中期业绩公告后，当代置业便暴露出毛利率低于行业平均、资产负债率高于行业平均、融资成本上升等流动性风险点。随后，当代置业多次出售股权资产、展期债务以解决流动性问题，但仍未避开违约风暴。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-当前，中共房地产行业面临系统性崩溃，虽然中共为保“二十大”顺利进行而试图通过强力手段来推后暴雷，但终究是按下葫芦浮起瓢，始终无法真正控局。毋庸置疑，中共房地产行业这颗金融核弹的爆炸时间已越来越近。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
 
-[信息来源](https://finance.sina.com.cn/stock/s/2021-10-26/doc-iktzqtyu3591437.shtml)
-
-免责声明：文章仅代表作者本人观点，与GNEWS无关
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/樱花团-2.jpg)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
