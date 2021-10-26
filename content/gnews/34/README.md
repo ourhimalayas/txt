@@ -2,31 +2,55 @@
 ---
 
 
-## 中共企图以“一国一票”操纵联合国
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619220/)
+## 中共国之灭门案
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1619292/)
 
-作者：澳喜农场 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中共党魁习近平当地时间25日发表言论称，国际规则只能由联合国193个会员国共同制订，不能由个别国家和国家集团来决定。习近平还向联合国提出“共同”国际关系观，用中共所谓的“构建人类命运共同体”，来替代普世价值。
+作者: 纽约香草山农场-新世界的一员
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-8.jpg)
 
-相关人士分析称，中共收买穷国领导人，使其在联合国投票中支持中共。而中共多次指控民主国家的人权问题，但其自身的人权恶行却逃脱了制裁。另一方面，中共也担心，如果美国未能在联合国获得足够支持，将会采取单边外交行动。
 
-(本文仅代表作者观点)
 
-参考链接：[习近平倡议联合国”一国一票”制定规则 学者指美国另组联盟抗衡中国](https://www.rfa.org/mandarin/yataibaodao/zhengzhi/ac-10252021081141.html)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-总编：Irene木木
-编辑：山本不惑
-校正/发稿：谐趣园
+10月25日凌晨1时许，继莆田欧金中菜刀杀人案之后，武汉市蔡甸区消泗乡又发生一起灭门命案，该村村干部张某红一家五口被害。犯罪嫌疑人高某辉 (男，39岁，本市人) 持刀行凶致5人死亡、1人受伤后逃跑。逃跑途中致2人死亡。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/18-1-1.png)
+
+据悉，当日6时许，高某辉逃跑至长江大桥后跳桥。有知情人透露，该嫌疑人刚出狱，此次案例或与鱼塘征收有关。目前案件正在进一步搜寻侦办中。 7死1伤，这起极端的灭门惨案，再次震撼了整个网络。
+
+有网友认为，事出必有因！这是官员“平时作威作福，嚣张跋扈”所造成的恶果。甚至，有网友幸灾乐祸说，“看到死的是村官一家我就放心了”。更有网友提醒说，目前地方官员都处于极度的危险之中，千万不要再作恶，否则会面临杀身之祸甚至灭门之祸。因为底层的民众生活越来越艰难，当他们完全没有了活路的时候，他们就会让使得他们没有活路的人也一同走向死路。
+
+国有国法，家有家规。中共集权统治下的社会没有公正的民主法制体制，所以才出现了菜刀大叔殴金中的悲惨事件。而此次案件中的高某辉，又是另一个被体制伤害的可怜人。从某种意义上来说，他们是战士。因为他们代表了那些被社会压迫、被迫触碰法律牺牲的可怜又可敬的人！你不给我个说法，我就奋起反抗给自己讨个说法。这几起灭门案件，充分证明了中共统治下的腐败体制是没有任何公平、法律和规矩可言，人间悲剧及次生灾难无时无刻不在中共国上演。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Untitled-design-38.png)
+
+当一个家庭中的男人总是家暴家庭成员，这就违反了法律，国家就会进行法律干预；当一个国家总是无视人民的基本生存权，并用暴力手段去涂炭人民时，其违反的就是国际法，那么国际上的任何一个国家都可以干预其政；当一个执政党无视法律、罔顾民意、恶意践踏人民时，就是人民奋起反抗推翻它的时候！
+
+中共是所有社会灾难的源头。这个踩着无数尸体、沾染鲜血的红色政权，不仅践踏人权、草菅人命，更是奴役中国人的恶魔！镰刀收割的锋芒，不分国内国外。消灭中共，是救赎人性、人心、人文的基本需求；消灭中共，是还原世界善良、和平、正义之必须！
+
+中共不灭，灾难不止，恶党不除，民不聊生！
+
+（本文仅代表作者观点）
+
+参考链接: [https://www.sohu.com/a/497391908\_113767](https://www.sohu.com/a/497391908_113767)
+
+校对/编辑/发稿: Amanda艾曼达
+
+终审：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-7.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-7.jpg)
