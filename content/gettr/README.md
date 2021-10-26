@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/26/2021 4:35 PM (UTC)`
+
+太好吃了😋😋
+![img](https://media.gettr.com/group12/getter/2021/10/26/16/35/f22e3069-8f8e-6eaf-7d3e-663299903a80/out.jpg)
+
+---
+
+`@miles 10/26/2021 4:32 PM (UTC)`
+
+10月26号：椒麻鸡来啦……
+![img](https://media.gettr.com/group31/getter/2021/10/26/16/32/e1658093-10c3-46a7-c4d8-86c5dfb503d9/out.jpg)
+
+---
+
 `@miles 10/26/2021 2:56 PM (UTC)`
 
 10月26日：尊敬的战后们好……为什么我们的穷人总是一直穷？为什么习近平在北京．江派的人竟然不知道？川普总统的股票为什么暴跌？
@@ -279,20 +293,6 @@ The Pacific Alliance Asia Opportunities Fund and Mr. Guo Wengui have been fighti
 
 Background Information on Yunhong Group (4) 运鸿集团的背景（四） 
 ![img](https://media.gettr.com/group39/getter/2021/10/22/17/49/57e15ad8-f2e7-117d-422e-fa8bda6e38c8/6fb25459e00e2463c7c7a246a61204b7.jpg)
-
----
-
-`@miles 10/22/2021 5:42 PM (UTC)`
-
-Background Information on Yunhong Group (3) 运鸿集团的背景（三） 
-![img](https://media.gettr.com/group39/getter/2021/10/22/17/41/622d3704-6c1c-2d46-d9c9-7d4523e03727/8dee995501b398516a3b3b1e36904df2.jpg)
-
----
-
-`@miles 10/22/2021 5:39 PM (UTC)`
-
-Background Information on Yunhong Group (2) 运鸿集团的背景 （二） 
-![img](https://media.gettr.com/group5/getter/2021/10/22/17/38/13a5d291-5d16-3db8-a1ed-0e4f2fde7d1f/571064e645f43e66ecf28c70bc653ce3.jpg)
 
 ---
 
