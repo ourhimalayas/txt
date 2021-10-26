@@ -2,33 +2,34 @@
 ---
 
 
-## 中共欲低价承包泰国水利项目遭当地人权组织强烈反对
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619230/)
+## 日本要闻汇编 10月26日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1619270/)
 
-作者：纽约香草山农场 – 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-泰国议员维拉康近日透露，对于泰国备受争议的尤姆河引水工程，由中共控制的北方工业国际公司此前表示，愿意自费在四年内以12亿美元的造价建造该项目。为此，曾两次拒绝该项目评估的泰国政府于上月批准了这一项目的环境影响评估报告。
+#### 素材：东京樱花团GNEWS组
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/日本疫苗接种70.jpg)[图片来源](https://china.kyodonews.net/news/2021/10/d87910ee9631-7-g7.html)
 
-当地时间10月25日的消息称，泰国人权组织强烈反对该项目，因担心新水库将淹没村庄，破坏森林，且将对当地克伦土著居民产生不利影响。同时，经评估，此工程“存在严重缺陷”。
+1、[日中两国央行延长货币互换协议](https://china.kyodonews.net/news/2021/10/79f44329d3a4.html)
 
-中共借一带一路之名，蓝金黄当地政客，不惜血本参与基础设施项目，试图进一步扩大在泰国的影响力。对于中共的经济绑架，东南亚国家应提高警惕。
+日本央行25日发布消息称，延长与中国人民银行之间在金融危机时相互融通货币的“货币互换协议”，有效期至2024年10月25日。额度为日方2000亿元人民币、中方3.4万亿日元（约合人民币1909亿元），与此前维持相同水平。货币互换协议是在发生金融危机时相互融通货币的机制。
 
-(本文仅代表作者观点)
+2、[日本向海外累计提供约3000万剂新冠疫苗](https://china.kyodonews.net/news/2021/10/f680a6cc048c-3000.html)
 
-参考链接：[中国公司欲承包泰国水利项目 人权环境人士表示反对](https://www.voachinese.com/a/china-shows-interest-in-a-thailand-water-project/6283640.html)
+日本外相茂木敏充26日在记者会上透露，27日将向台湾追加提供30万剂新冠疫苗。茂木透露至此日本向海外总计20个国家和地区提供疫苗达到约3000万剂，强调“供应成绩位列全球第三”。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+3、[日本接种两剂新冠疫苗达70%  居G7前列](https://china.kyodonews.net/news/2021/10/d87910ee9631-7-g7.html)
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：谐趣园
+日本政府26日发布的统计结果显示，已接种两剂新冠疫苗的人已达总人口的70.1%。在七国集团（G7）中，与排在第2位的意大利基本持平，略低于第1位加拿大，处于前列。在率先接种的欧美各国，该数据在6成左右，受“7成壁垒”的阻挡，增长乏力。日本则由于对疫情的危机感等，已顺利突破。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+4、[东京-北京论坛 日驻华大使强调青少年交流](https://china.kyodonews.net/news/2021/10/2c70d8b6cb2a.html)
+
+日中两国政商界人士及专家讨论安全保障等的“东京-北京论坛”26日在线召开。日本驻华大使垂秀夫指出，要构建具有建设性的、稳定的日中关系，需要国民的理解和支持，并强调了青少年交流的重要性。论坛发表了敦促两国在广泛领域举行对话的联合声明。
+
+5、[松下展示EV车载新电池 容量增至5倍](https://china.kyodonews.net/news/2021/10/405e4498e11c-ev-5.html)
+
+松下公司25日首次展示了搭载于电动汽车（EV）的新型锂离子电池“4680”的试制品。通过大型化，电池容量增至以往产品的约5倍，目的是削减生产成本。
+
+（本文只代表观点，与Gnews网站无关）
+
+*校对、发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)

@@ -2,27 +2,29 @@
 ---
 
 
-## 中共国正在测试高超音速滑翔机吗
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1619126/)
+## 苏丹政变后联合国安理会召开紧急会议
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1619175/)
 
 新闻来源：德国法兰克福报网络版
 
 翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/china-ruestet-nuklear-auf.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/gegner-des-putsches-bringen-am-1.jpg)
 
 
-图片来源： FAZ
+图片来源： 德新社
 
-**一种新的武器系统可以躲过美国的导弹防御。北京否认测试高超音速滑翔机，这种滑翔机可以在太空进行攻击。**
+苏丹发生政变后，联合国安理会希望在星期二的紧急会议上处理这个东非国家的局势。应美国、英国、法国、爱沙尼亚、爱尔兰和挪威的要求，这个最强大的联合国机构预计将在纽约时间下午举行闭门会议。观察员们当天将从萨赫勒地区的联合工作旅行中返回美国。
 
-武器专家赵通（音译）用“繁琐而奇特”描述中国军方在7月和8月进行的两次所谓武器试验。“如果目标是将核弹头送达目标，那是没有效率的“ 赵说。 赵通是卡内基国际和平基金会智囊团， 监测中国的核武器计划的人员。这位科学家认为有关这个高超音速滑翔机的报道只是 “猜测”。
+周一早些时候，苏丹的最高军事代表Abdel Fattah al-Burhan将军宣布解除政府中的文职成员, 全国将实行紧急状态。根据新闻部的一份声明，自2019年8月以来与布尔汉共同领导临时政府的总理阿卜杜拉·哈姆杜克被军方成员带到了一个未知的地点。
 
-美国情报官员假设中国已经用运载火箭向太空发射了一个具有核能力的高超音速滑翔机。这架滑翔机在飞向目标之前曾部分绕地球飞行，而实际这个滑翔机并没有达到预定目标， 而是距离目标30公里错过了。 军备专家从苏联在20世纪60年代末开发的所谓部分轨道轰炸系统中知道类似的轨迹。所描述的程序也显示出与美国X-37B太空滑翔机的相似之处。中国外交部已经否认了这些报道，而只谈到了对航天器的例行民用测试。
+据联合国称，军队已经控制了首都喀土穆。机场、桥梁和国家电视台都在武装部队手中，城市的入口被封锁了。
 
-简评： 鉴于最近以来， 中共在台海进行的军事挑衅，各种报道和猜测也甚嚣尘上。 这个有关高超音速滑翔机的报道， 也未必是真实的。中共从来都是真真假假， 虚虚实实， 而假是中共的拿手伎俩。
+联合国苏丹问题特别代表德国的沃尔克·珀特斯（Volker Perthes）说：”这里的路障仍在燃烧，我们可以听到偶尔的枪声，所以随着夜幕降临，当然有可能出现更多的暴力或紧张局势。”他指的是正在进行的针对军队的民主抗议活动。”一些抗议者今天试图进入喀土穆的军队总部。我们随后听到了枪声也看到了伤害，但我们无法确认任何细节。”
 
-原文链接：[https://www.faz.net/aktuell/politik/ausland/chinas-nukleare-aufruestung-raketenabwehr-der-usa-als-bedrohung-17601963.html](https://www.faz.net/aktuell/politik/ausland/chinas-nukleare-aufruestung-raketenabwehr-der-usa-als-bedrohung-17601963.html)
+德新社记者在当地观察到成千上万的抗议者在喀土穆街头示威，反对军队接管政府。据医生说，在抗议活动中，至少有两人被杀，约80人受伤。几个月来，苏丹一再出现人民要求政治和经济改革的抗议活动。阿尔·布尔汉将军承诺，军队将向民主过渡。他说，目标是在2023年7月的选举后将国家的领导权移交给一个文职政府。
+
+原文链接：[https://www.faz.net/aktuell/politik/ausland/nach-putsch-in-sudan-dringlichkeitssitzung-im-un-sicherheitsrat-17602831.html](https://www.faz.net/aktuell/politik/ausland/nach-putsch-in-sudan-dringlichkeitssitzung-im-un-sicherheitsrat-17602831.html)
 
 免责声明：本文内容仅代表个人观点，与Gnews平台无关。
 

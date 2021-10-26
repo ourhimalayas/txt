@@ -2,25 +2,33 @@
 ---
 
 
-## 中共国疫情扩散 兰州内蒙封城
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1619099/)
+## 河北学生家长反映学校食堂问题被刑拘，中共政府忙洗地
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619164/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-126.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp.ivideo.sina.com.cn%2Fvideo%2F426%2F991%2F114%2F426991114.jpg&amp;imgrefurl=https%3A%2F%2Ffinance.sina.com.cn%2Fjjxw%2F2021-10-26%2Fdoc-iktzqtyu3663041.shtml&amp;tbnid=eGBA6LgYRRPEgM&amp;vet=12ahUKEwim7_z1nejzAhVpsksFHbwrAlAQMygSegUIARCrAQ..i&amp;docid=3YcGB8FZvOGnOM&amp;w=1280&amp;h=720&amp;itg=1&amp;q=%E5%8C%97%E4%BA%AC%E7%96%AB%E6%83%85&amp;ved=2ahUKEwim7_z1nejzAhVpsksFHbwrAlAQMygSegUIARCrAQ)
+作者：澳喜农场 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据消息称，河北省临漳县一所中学的学生家长反映，该校食堂食物变味、发黑发臭，学生食用后出现腹痛、呕吐的症状。家长在微信群中揭露并引发了更多家长前往学校了解事情真相。随后，当地警方对8名学生家长加以处罚，其中5名家长被控涉嫌寻衅滋事，遭刑事拘留。
 
-十一黄金周过后的新一轮疫情已经波及11个省份。北京、武汉马拉松比赛纷纷延期，兰州市各类居民小区均实行封闭式管理，内蒙古某旗委书记因防疫不力被免职。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-39.jpeg)
 
-中共国卫健委对外通报称，10月25日0—24时，31个省（自治区、直辖市）和新疆生产建设兵团报告新增确诊病例43例。其中境外输入病例14例，本土病例29例。另外报告新增无症状感染者26例，其中境外输入21例，本土5例。这一轮疫情已经波及11个省份。本土新增确诊病例中包含甘肃6例，均在兰州市。本周二（10月26日），兰州市人民政府发布通告，要求全市各类居民小区均实行封闭式管理，实施出入证管理制度。引起中国最新一波疫情的是新冠病毒德尔塔变异株。从10月17日到今天已经新增198例本土确诊病例。这些新增病例均与十一黄金周中国国内旅游相关。
+对此，中共政府的做法是其一贯的推诿遮掩。当地时间10 月23日，中共临漳县委宣传部声明称，涉事的中学并未出现学生食物中毒的现象，学生家长发布不实消息，起煽动作用。声明还提及，学校曾临时租用大巴，将全体学生转移到另外一家中学。
 
-卫生部门的官员表示，随着检测规模的扩大，确诊病例还会进一步增加。北方多个地区的居民因为疫情所致需要执行严格的居家检疫措施。北京市在周二通报新增3例确诊病例。市内各旅游景点进出还是受到限制，居民们被呼吁无需必要避免离京。昌平区一些出现病例的小区被封闭隔离。原定于10月31日举行的北京马拉松比赛也被推迟。另外，原定于10月24日举行的武汉马拉松也遭遇延期。
+(本文仅代表作者观点)
 
-现在距离北京冬奥会开幕也仅有100多天的时间，内蒙古额济纳旗委书记陈占云因疫情防控工作中履职尽责和落实不力被免职。截至26日8时，额济纳旗现有本土新冠肺炎确诊病例78例，也是目前中共国内这一波疫情中确诊病例数目最多的地区。此外，10月19日以来中共本土新增病例已有超过一半病例与旅行团传播链有关，多条旅行团传播链的行程共同指向额济纳旗。额济纳旗自25日零时起，对广大居民和游客实行足不出户（店）的居家抗疫措施。
+参考链接：
+1）[河北5名家长反映学校食堂问题被刑拘 官方：卫生达标未发生食物中毒](https://m.gmw.cn/baijia/2021-10/24/1302650607.html)
+2）[5名学生家长因反映学校食堂卫生问题被刑拘？！官方回应](https://www.thepaper.cn/newsDetail_forward_15057489)
 
-信息来源： [中国疫情继续扩散 内蒙干部因防疫不力被免职](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E7%96%AB%E6%83%85%E7%BB%A7%E7%BB%AD%E6%89%A9%E6%95%A3-%E5%86%85%E8%92%99%E5%B9%B2%E9%83%A8%E5%9B%A0%E9%98%B2%E7%96%AB%E4%B8%8D%E5%8A%9B%E8%A2%AB%E5%85%8D%E8%81%8C/a-59626377)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-免责声明：文章仅代表作者本人观点，与GNEWS无关
+总编：Irene木木 
+编辑：山本不惑
+校正/发稿：谐趣园
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

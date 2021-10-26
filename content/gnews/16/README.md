@@ -2,35 +2,47 @@
 ---
 
 
-## SPAC获利，但投资者警告个人崇拜不能取代投资要素
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619206/)
+## 赚钱灭共两不误 空壳DWAC来一股
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1619260/)
 
-作者：香草山佛教部 -文一
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据10月24日的消息显示，川普媒体和技术集团在上周收购DWAC之后，其价值已高达82亿美元，而川普本人将拥有合并公司50%以上的股份，价值接近48亿美元。
+作者：香草山写作组-文斗
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide8-8.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/gnews-logo.jpeg)
 
-但相关消息同时指出，川普的新企业面临巨大的阻力，其产品 Truth Social社交媒体平台已经出现了技术问题并被黑客攻击。 该公司CEO随后也评论称，他们没有财务数据和商业计划。
 
-投资经验人士路易斯·纳维利尔在10月25日发文表示，个人崇拜不能取代投资基本要素，并且警告投资者称： DWAC的交易尚未完成，目前仍有告吹可能；同时，投资者很可能在合并案中被重新洗牌；另外， DWAC也可能因政治因素陷入困境；即便合并完成，与竞争对手相比，DWAC的可支配现金微乎其微。因此，路易斯建议避开DWAC的投资，并表示华尔街的疯狂将在DWAC上又一次充分展示。
 
-(本文仅代表作者观点)
+10月24日，郭先生直播中给广大战友指点了一条发财之道——购买绿帽王吴征的空壳公司Digital World Acquisition Corp( DWAC) 股票，亏损之后通过诉讼索赔。投入不用多，1-10股。目前的市值，一股100元美上下，购买需要最低100最高1000美元，换算成人民币就是700元到7000元的投入，
 
-参考链接：
-1）[‘The Richest He’s Ever Been’: Trump Set To Gain Billions In Net Worth On Moonshot SPAC](https://www.zerohedge.com/political/trump-gains-billions-net-worth-moonshot-spac)
-2）[I’m a Trump supporter, but as an investor I’m wary of the Trump SPAC](https://www.msn.com/en-us/money/companies/i-m-a-trump-supporter-but-as-an-investor-i-m-wary-of-the-trump-spac/ar-AAPVPmB)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-40.jpg)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+按照郭先生的提示，买入后只要价格下跌5%即可卖出，作为遭受损失投资人，就可以拥有索赔的权利，起诉吴征公司的权利。
 
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：谐趣园
+因为作为美国上市公司法人，吴征隐瞒了他被FBI刑事调查、被中共刑事调查的重大事项。
+
+除了时间成本，真正现金投入其实门槛不高，基本上所有战友都有能力参与，当然前提是要有美股的交易账户。
+
+赚钱是一个方面，参与对DWAC的集体诉讼，有更重大的意义。这是新中国联邦人联合作战，发起对中共反超限战的一场战斗。现在买股入场，是战斗前的弹药准备。
+
+战友们通过诉讼，以法灭共，把11家关联公司罚它个倾家荡产。通过推高中共作恶成本，树立一个标杆案例，让中共及其走狗在攻击郭先生、攻击爆料革命和战友时多些顾忌。
+
+郭先生过去一人战一国，孤身应战，令世人敬仰！现在新中国联邦人并肩作战，更让中共胆寒！
+
+钱，我所欲也。灭共，亦我所欲也。
+
+跟随郭先生，快乐灭共，顺便赚钱，岂不美哉？
+
+校对/发稿：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1.jpeg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)

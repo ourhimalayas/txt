@@ -2,27 +2,31 @@
 ---
 
 
-## 又一百强房企暴雷！当代置业美元2.5亿债务逾期
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1619147/)
+## 中共企图以“一国一票”操纵联合国
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619220/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-14.png)
-[图片来源](http://www.momatek.com/news/36535.jhtml)
+作者：澳喜农场 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共党魁习近平当地时间25日发表言论称，国际规则只能由联合国193个会员国共同制订，不能由个别国家和国家集团来决定。习近平还向联合国提出“共同”国际关系观，用中共所谓的“构建人类命运共同体”，来替代普世价值。
 
-10月26日，当代置业发布公告称，公司于10月25日到期的12.85厘优先票据，未能按时偿还票据本金及其应计但未付利息。这笔资金规模2.5亿美元的票据，是目前当代置业5只存续美元债中规模最大的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9-4.jpeg)
 
-当代置业将此次违约，归因为“预计之外的流动性问题”，而其面临的不利因素包括宏观经济环境、房地产行业环境以及COVID-19疫情等。受此影响，上述票据本金及其应计但未付利息的还款安排，未能于当日达成。
+相关人士分析称，中共收买穷国领导人，使其在联合国投票中支持中共。而中共多次指控民主国家的人权问题，但其自身的人权恶行却逃脱了制裁。另一方面，中共也担心，如果美国未能在联合国获得足够支持，将会采取单边外交行动。
 
-自此，当代置业成为继花样年、新力控股等企业后，又一出现债务违约的百强房企。
+(本文仅代表作者观点)
 
-实际上，早在2021中期业绩公告后，当代置业便暴露出毛利率低于行业平均、资产负债率高于行业平均、融资成本上升等流动性风险点。随后，当代置业多次出售股权资产、展期债务以解决流动性问题，但仍未避开违约风暴。
+参考链接：[习近平倡议联合国”一国一票”制定规则 学者指美国另组联盟抗衡中国](https://www.rfa.org/mandarin/yataibaodao/zhengzhi/ac-10252021081141.html)
 
-当前，中共房地产行业面临系统性崩溃，虽然中共为保“二十大”顺利进行而试图通过强力手段来推后暴雷，但终究是按下葫芦浮起瓢，始终无法真正控局。毋庸置疑，中共房地产行业这颗金融核弹的爆炸时间已越来越近。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-[信息来源](https://finance.sina.com.cn/stock/s/2021-10-26/doc-iktzqtyu3591437.shtml)
+总编：Irene木木
+编辑：山本不惑
+校正/发稿：谐趣园
 
-免责声明：文章仅代表作者本人观点，与GNEWS无关
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/樱花团-2.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

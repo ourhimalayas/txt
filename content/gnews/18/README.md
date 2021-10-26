@@ -2,27 +2,23 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月26日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1619165/)
+## 青年高失业率引爆“从政”热度，2022年国考报名人数超202万
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1619242/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-412.png)
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-10.png)
+[图片来源](https://www.chinanews.com/gn/2021/01-11/9383937.shtml)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-28.png)
-文章仅代表作者本人观点，与Gnews无关
+据中国新闻网10月24日报道，截止10月24日18时，2022年中共国家公务员考试(以下简称“国考”)报名结束。2022年国考拟招录31242人，共16745个岗位。根据中公教育提供的数据，截至10月24日17时30分，2022年国考共有202.6万人报名，较去年同期增长51.4万人；有183.8万人通过审核，较去年同期增长43.5万。
 
-视频参看：2021.10.26早GTV新闻访谈
+据统计，2022年国考平均竞争比为59∶1，略高于去年同期的54.5∶1。最热职位为西藏自治区邮政管理局阿里地区邮政管理局一级主任科员及以下一职，竞争比为20813∶1。截至10月24日17时30分，仅有127个职位无人报名，约占总职位数的0.76%。
 
-[https://gtv.org/broadcast/watch/6177f482eadeb11f5e7aa44b](https://gtv.org/broadcast/watch/6177f482eadeb11f5e7aa44b)
+近年来随着中共经济急转直下，自2020年中共病毒大流行以来，更是进一步加剧了中共经济的恶化，中小微企业倒闭潮和外资外企撤离潮叠加，导致中共国失业率和失业群体不断扩大。及至今年，随着房地产和金融企业的连续暴雷，又给原本已经十分恶化的就业形势雪上加霜。今年报考2022年国考人数再创新高，直接反映的就是中共社会当前青年群体就业的艰难。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+信息来源：[2022年国考超202万人报名-中新网](http://www.chinanews.com/gn/2021/10-25/9594201.shtml)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+免责声明：文章仅代表作者本人观点，与GNEWS无关
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)

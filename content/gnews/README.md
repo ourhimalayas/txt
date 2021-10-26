@@ -15,143 +15,143 @@
 
 ---
 
-### [苹果将成为中国最后一个美国科技巨头吗？](/content/gnews/1/README.md)
+### [中国和俄罗斯军舰在太平洋地区进行联合巡逻](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [四名阿尔伯塔医生就疫苗强制要求起诉阿尔伯塔卫生服务局](/content/gnews/2/README.md)
+### [盖特的三个七分之一](/content/gnews/2/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [脸书对世界各国分级排序以决定何时干预它们的选举](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [渥太华未接种疫苗警察可将继续工作](/content/gnews/4/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [新的言论自由应用在盖特，不会让用户陷入“数字监狱”](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [苹果将成为中国最后一个美国科技巨头吗？](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [四名阿尔伯塔医生就疫苗强制要求起诉阿尔伯塔卫生服务局](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [临界点](/content/gnews/3/README.md)
+### [临界点](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄大型公司签署该国首个人工智能道德准则](/content/gnews/4/README.md)
+### [俄大型公司签署该国首个人工智能道德准则](/content/gnews/9/README.md)
  ` HimalayaRussia`
 
-### [墙内要闻汇编 10月26日](/content/gnews/5/README.md)
+### [墙内要闻汇编 10月26日](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大生活美谈 2021-10-21第二十六期](/content/gnews/6/README.md)
+### [加拿大生活美谈 2021-10-21第二十六期](/content/gnews/11/README.md)
  ` canadalifetalk`
 
-### [纽约市政强推疫苗接种遭激烈反抗](/content/gnews/7/README.md)
+### [纽约市政强推疫苗接种遭激烈反抗](/content/gnews/12/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [枪杆子](/content/gnews/8/README.md)
+### [枪杆子](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本要闻汇编 10月26日](/content/gnews/9/README.md)
+### [日本要闻汇编 10月26日](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本7成人口已接种两剂中共病毒疫苗](/content/gnews/10/README.md)
+### [日本7成人口已接种两剂中共病毒疫苗](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [赚钱灭共两不误 空壳DWAC来一股](/content/gnews/11/README.md)
+### [赚钱灭共两不误 空壳DWAC来一股](/content/gnews/16/README.md)
  ` 纽约香草山MOS02`
 
-### [房地产税是CCP内斗加剧的表现](/content/gnews/12/README.md)
+### [房地产税是CCP内斗加剧的表现](/content/gnews/17/README.md)
  ` 波士顿五月花农场`
 
-### [青年高失业率引爆“从政”热度，2022年国考报名人数超202万](/content/gnews/13/README.md)
+### [青年高失业率引爆“从政”热度，2022年国考报名人数超202万](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共欲低价承包泰国水利项目遭当地人权组织强烈反对](/content/gnews/14/README.md)
+### [中共欲低价承包泰国水利项目遭当地人权组织强烈反对](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [中共企图以“一国一票”操纵联合国](/content/gnews/15/README.md)
+### [中共企图以“一国一票”操纵联合国](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [SPAC获利，但投资者警告个人崇拜不能取代投资要素](/content/gnews/16/README.md)
+### [SPAC获利，但投资者警告个人崇拜不能取代投资要素](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [苏丹政变后联合国安理会召开紧急会议](/content/gnews/17/README.md)
+### [苏丹政变后联合国安理会召开紧急会议](/content/gnews/22/README.md)
  ` Shuizhuyu`
 
-### [GTV新闻访谈简报|2021年10月26日早](/content/gnews/18/README.md)
+### [GTV新闻访谈简报|2021年10月26日早](/content/gnews/23/README.md)
  ` 纽约香草山MOS01`
 
-### [河北学生家长反映学校食堂问题被刑拘，中共政府忙洗地](/content/gnews/19/README.md)
+### [河北学生家长反映学校食堂问题被刑拘，中共政府忙洗地](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [又一百强房企暴雷！当代置业美元2.5亿债务逾期](/content/gnews/20/README.md)
+### [又一百强房企暴雷！当代置业美元2.5亿债务逾期](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [青岛黄岛区一小吃街发生煤气爆炸事故](/content/gnews/21/README.md)
+### [青岛黄岛区一小吃街发生煤气爆炸事故](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [中共国正在测试高超音速滑翔机吗](/content/gnews/22/README.md)
+### [中共国正在测试高超音速滑翔机吗](/content/gnews/27/README.md)
  ` Shuizhuyu`
 
-### [特殊目的收购公司（SPAC）](/content/gnews/23/README.md)
- ` 秘密翻译组-原创组`
-
-### [中共国疫情扩散 兰州内蒙封城](/content/gnews/24/README.md)
+### [中共国疫情扩散 兰州内蒙封城](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/25/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [10/26/21 香港快讯 林郑下令剔除支联会公司注册 指「结束一党专政」纲领旨在颠覆政权](/content/gnews/26/README.md)
- ` 英喜-粵語組`
-
-### [COVID-19最新情報｜瑞典、英國新冠死亡案例 集中於「完全接種者」](/content/gnews/27/README.md)
+### [COVID-19最新情報｜瑞典、英國新冠死亡案例 集中於「完全接種者」](/content/gnews/30/README.md)
  ` G&#124;News TAIWAN`
 
-### [数以万计的加拿大医护人员面临被解雇惩罚](/content/gnews/28/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [喜悦之旅](/content/gnews/29/README.md)
+### [喜悦之旅](/content/gnews/31/README.md)
  ` 纽约香草山MOS03`
 
-### [全球涨价潮背后的政府剥削](/content/gnews/30/README.md)
+### [全球涨价潮背后的政府剥削](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [10/26/2021国际财经快讯：中美通话讨论双边贸易关系；特斯拉突破1万亿美元市值](/content/gnews/31/README.md)
+### [10/26/2021国际财经快讯：中美通话讨论双边贸易关系；特斯拉突破1万亿美元市值](/content/gnews/33/README.md)
  ` 秘密翻译组金融团队`
 
-### [天和人](/content/gnews/32/README.md)
+### [天和人](/content/gnews/34/README.md)
  ` 骄子`
 
-### [共产党对川普先生的构陷](/content/gnews/33/README.md)
+### [共产党对川普先生的构陷](/content/gnews/35/README.md)
  ` 银河勇气之星`
 
-### [文·贵天成——文贵先生谈“马云”（十七）](/content/gnews/34/README.md)
+### [文·贵天成——文贵先生谈“马云”（十七）](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [企业表示疫苗规定损害就业，并导致劳动力短缺](/content/gnews/35/README.md)
+### [企业表示疫苗规定损害就业，并导致劳动力短缺](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文·贵天成——文贵先生谈“马云”（十六）](/content/gnews/36/README.md)
+### [文·贵天成——文贵先生谈“马云”（十六）](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年10月24日郭先生盖特 — 视频盖特1「9分22秒」](/content/gnews/37/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [疫苗灾情｜英国 40 岁女演员接种疫苗后中风昏迷](/content/gnews/38/README.md)
+### [疫苗灾情｜英国 40 岁女演员接种疫苗后中风昏迷](/content/gnews/39/README.md)
  ` G&#124;News TAIWAN`
 
-### [震惊！莫得纳称其低剂量疫苗对6至11岁的儿童有效](/content/gnews/39/README.md)
+### [震惊！莫得纳称其低剂量疫苗对6至11岁的儿童有效](/content/gnews/40/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [多国撤回极端疫情控制措施](/content/gnews/40/README.md)
+### [多国撤回极端疫情控制措施](/content/gnews/41/README.md)
  ` 墨尔本雅典娜农场`
 
-### [圣地亚哥学生、家长就 COVID-19 疫苗授权起诉区政府](/content/gnews/41/README.md)
+### [圣地亚哥学生、家长就 COVID-19 疫苗授权起诉区政府](/content/gnews/42/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [抗议者冲击 NBA 比赛 谴责疫苗授权](/content/gnews/42/README.md)
+### [抗议者冲击 NBA 比赛 谴责疫苗授权](/content/gnews/43/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日中央行延长货币互换协议，或为日企撤离中共国创造条件](/content/gnews/43/README.md)
+### [日中央行延长货币互换协议，或为日企撤离中共国创造条件](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [韩民间抵制日货运动又起，如何化解对立情绪考验两国政府](/content/gnews/44/README.md)
+### [韩民间抵制日货运动又起，如何化解对立情绪考验两国政府](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际要闻汇编 10月26日](/content/gnews/45/README.md)
+### [国际要闻汇编 10月26日](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：美国证券交易委员会想尽一切办法加强对稳定币的监管](/content/gnews/46/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [10/20 郭文贵直播：监视马云的20名随行人员中的一半被他收买（粤语配音）](/content/gnews/47/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

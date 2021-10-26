@@ -2,31 +2,25 @@
 ---
 
 
-## 中共企图以“一国一票”操纵联合国
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619220/)
+## 日本7成人口已接种两剂中共病毒疫苗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1619262/)
 
-作者：澳喜农场 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中共党魁习近平当地时间25日发表言论称，国际规则只能由联合国193个会员国共同制订，不能由个别国家和国家集团来决定。习近平还向联合国提出“共同”国际关系观，用中共所谓的“构建人类命运共同体”，来替代普世价值。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/6-11.png)
+日本政府26日发布的统计结果显示，已接种两剂新冠疫苗的人已达总人口的70.1%。在七国集团（G7）中，与排在第2位的意大利基本持平，略低于第1位加拿大。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9-4.jpeg)
+26日公布的政府统计显示，总接种次数为1.8597亿次。已接种两剂的有8879万人，接种率为人口的70.1%。至少接种了1剂的有9718万人，占76.7%。已接种两剂的人从年龄段来看，65岁以上占90.4%，越年轻人群的接种率越低。截至25日公布时，30多岁为60.8%，20多岁为57.0%，12～19岁为47.7%。
 
-相关人士分析称，中共收买穷国领导人，使其在联合国投票中支持中共。而中共多次指控民主国家的人权问题，但其自身的人权恶行却逃脱了制裁。另一方面，中共也担心，如果美国未能在联合国获得足够支持，将会采取单边外交行动。
+据悉，厚生劳动省计划最快于12月开始追加接种第3剂，后续各级政府还计划通过普及接种证明等手段来提高年轻人的接种率。
 
-(本文仅代表作者观点)
+当前，中共疫苗灾难已经在全球不断显现，并已引起越来越广泛的关注和警惕，各种反疫苗运动也在全球不断兴起。日本7成人口的接种率已排在G7国家前列，对于后续即将面临的中共病毒疫苗灾难，着实让人难以想象。
 
-参考链接：[习近平倡议联合国”一国一票”制定规则 学者指美国另组联盟抗衡中国](https://www.rfa.org/mandarin/yataibaodao/zhengzhi/ac-10252021081141.html)
+信息来源：[日本7成人口已接种两剂新冠疫苗居G7前列](https://china.kyodonews.net/news/2021/10/d87910ee9631-7-g7.html)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+信息来源：[日本7成人口已接种两剂新冠疫苗居G7前列](https://china.kyodonews.net/news/2021/10/d87910ee9631-7-g7.html)
 
-总编：Irene木木
-编辑：山本不惑
-校正/发稿：谐趣园
+免责声明：文章仅代表作者本人观点，与GNEWS无关
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)

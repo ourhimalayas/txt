@@ -2,46 +2,28 @@
 ---
 
 
-## COVID-19最新情報｜瑞典、英國新冠死亡案例 集中於「完全接種者」
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1618967/)
+## 中共国正在测试高超音速滑翔机吗
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1619126/)
 
-**台灣寶島農場 疫情關注組｜發佈日期/ 26/10/2021**
+新闻来源：德国法兰克福报网络版
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-
-瑞典、英國政府分析數據，發現9月因感染新冠病毒死亡者，絕大多數是完全接種者。這一結論，與西方國家於高疫苗覆蓋率的情形，突破性感染數量激增相符合。
-
-#### 瑞典
-
-[瑞典媒體](https://www.svd.se/forskare-ser-en-vikande-vaccineffekt-i-sverige)報導，公衛部門報告表示9月1日至24日，約[7成（130例）](https://ourworldindata.org/explorers/coronavirus-data-explorer?zoomToSelection=true&amp;time=2020-03-01..latest&amp;facet=none&amp;pickerSort=desc&amp;pickerMetric=total_cases&amp;hideControls=true&amp;Metric=Confirmed+deaths&amp;Interval=Cumulative&amp;Relative+to+Population=false&amp;Align+outbreaks=false&amp;country=~SWE)新冠確診死者是已經完全接種疫苗。報導進一步分析，死亡主要發生在老年族群，但相關人員仍認為瑞典疫苗保護力有下降趨勢。
-
-- 相關：[瑞典研究顯示完全接種疫苗後，抗體將在三個月後急劇下降](https://gnews.org/zh-hant/1576453/)
-- 相關：[疫苗與ADE效應](https://www.chop.edu/centers-programs/vaccine-education-center/vaccine-safety/antibody-dependent-enhancement-and-vaccines)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/china-ruestet-nuklear-auf.jpg)
 
 
-#### 英國
+图片来源： FAZ
 
-英國衛生部門數據顯示，瑞典情形也在英國發生。[英國、瑞典的疫苗接種率](https://coronavirus.data.gov.uk/details/vaccinations)幾乎相同。
+**一种新的武器系统可以躲过美国的导弹防御。北京否认测试高超音速滑翔机，这种滑翔机可以在太空进行攻击。**
 
-英國衛生安全局 (UKHSA) 於 10 月 7 日發布[報告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1023849/Vaccine_surveillance_report_-_week_40.pdf)，9月份大多數的死亡病例都已經完全接種疫苗。突破性感染而住院治療的病患，也是完全接種者佔多數。UKHSA 的數據顯示，「完全接種疫苗」死亡數量有2281人，遠高於未接種疫苗、部分接種疫苗。
+武器专家赵通（音译）用“繁琐而奇特”描述中国军方在7月和8月进行的两次所谓武器试验。“如果目标是将核弹头送达目标，那是没有效率的“ 赵说。 赵通是卡内基国际和平基金会智囊团， 监测中国的核武器计划的人员。这位科学家认为有关这个高超音速滑翔机的报道只是 “猜测”。
 
+美国情报官员假设中国已经用运载火箭向太空发射了一个具有核能力的高超音速滑翔机。这架滑翔机在飞向目标之前曾部分绕地球飞行，而实际这个滑翔机并没有达到预定目标， 而是距离目标30公里错过了。 军备专家从苏联在20世纪60年代末开发的所谓部分轨道轰炸系统中知道类似的轨迹。所描述的程序也显示出与美国X-37B太空滑翔机的相似之处。中国外交部已经否认了这些报道，而只谈到了对航天器的例行民用测试。
 
+简评： 鉴于最近以来， 中共在台海进行的军事挑衅，各种报道和猜测也甚嚣尘上。 这个有关高超音速滑翔机的报道， 也未必是真实的。中共从来都是真真假假， 虚虚实实， 而假是中共的拿手伎俩。
 
-> Surging [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) in UK with 49,156 new cases and 45 new [#deaths](https://twitter.com/hashtag/deaths?src=hash&amp;ref_src=twsrc%5Etfw) reported on 18 October 2021. 78.9% of all aged 12 and up are DOUBLE VACCINATED. [#Breakthrough](https://twitter.com/hashtag/Breakthrough?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Geoffrey Norman Pain (@FluoridePoison) [October 18, 2021](https://twitter.com/FluoridePoison/status/1450225202353225729?ref_src=twsrc%5Etfw)
+原文链接：[https://www.faz.net/aktuell/politik/ausland/chinas-nukleare-aufruestung-raketenabwehr-der-usa-als-bedrohung-17601963.html](https://www.faz.net/aktuell/politik/ausland/chinas-nukleare-aufruestung-raketenabwehr-der-usa-als-bedrohung-17601963.html)
 
+免责声明：本文内容仅代表个人观点，与Gnews平台无关。
 
-
-- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
-- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
-- 相關：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
-- 相關： [COVID-19最新情報｜為何政府「忽視」自然免疫？](https://gnews.org/zh-hant/?p=1610194%28%E5%9C%A8%E6%96%B0%E5%88%86%E9%A0%81%E4%B8%AD%E9%96%8B%E5%95%9F%29)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/18-6.jpg)
-* * *
-
-新聞來源｜[Natural News](https://www.naturalnews.com/2021-10-25-majority-of-covid-deaths-are-fully-vaccinated.html)
-轉譯｜zhong
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
+责任编辑、发布： Shuizhuyu

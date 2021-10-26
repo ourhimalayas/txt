@@ -2,58 +2,37 @@
 ---
 
 
-## 抗议者冲击 NBA 比赛 谴责疫苗授权
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1618525/)
+## 圣地亚哥学生、家长就 COVID-19 疫苗授权起诉区政府
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1618549/)
 
-编译： Jenny Ball
+编译：Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-26-115250.jpg)图片来源：westernjournal.com
+![](https://assets.gnews.org/wp-content/uploads/2021/10/San-Diego-Vaccine-Protest-1200x800-700x420-1.jpg)加利福尼亚州圣地亚哥 – 2021 年 9 月 28 日：反疫苗抗议者在圣地亚哥联合学区办公室外举行抗议活动，以抗议强制要求学生接种疫苗。 学区正在举行视频听证会，讨论是否强制要求学生接种至少一剂 COVID 疫苗。（桑迪·赫夫克/盖蒂图片社拍摄）
 
-布鲁克林篮网队球星凯里·欧文（Kyrie Irving），通常并不以保守的政治观点而闻名。 然而，他坚决反对疫苗规定，这使他成了激进左派的对立面。
+圣地亚哥——一名 16 岁的斯克里普斯牧场高中学生和她的父母，于 10 月 22 日对圣地亚哥联合学区提起诉讼，以阻止最近批准的针对 16 岁以上教职员工和学生的 COVID-19 疫苗授权。
 
-周日，篮网队在纽约布鲁克林巴克莱中心举行的主场揭幕赛期间，一群抗议者聚集在外面，**支持欧文和争取医疗自由的斗争**。
+约翰、简和吉尔·多伊(John, Jane, and Jill Doe)代表家人，在圣地亚哥联邦法院提起的诉讼——指出高中三年级的她，宗教信仰禁止她接种疫苗。
 
-虽然并非所有 NBA 球员都需要接种疫苗，但纽约市的一项规定，禁止[未接种疫苗](https://www.westernjournal.com/uncancelled-espn-reporter-ousted-refusing-vaccine-finds-new-home-conservative-media/?ff_source=Email&amp;ff_medium=WJBreaking&amp;ff_campaign=breaking&amp;ff_content=western-journal)的球员在纽约布鲁克林的巴克莱中心打球。
+该学区上个月批准了一项疫苗强制计划，该计划要求所有 16 岁以上的学生，不迟于 12 月 20 日接种第二剂疫苗。16 岁或以上未接种疫苗的学生，将被要求通过远程学习独立学习。该学区的计划允许对任务进行医疗豁免，但不允许宗教或个人信仰豁免。
 
-这包括欧文，他曾公开表示拒绝接种 COVID-19 疫苗。
+根据诉状，吉尔对堕胎的宗教反对阻止了她接受疫苗，因为她说，批准用于紧急使用的三种疫苗，或用于测试疫苗的材料，使用了来自流产胎儿的干细胞系的材料。
 
-据 ESPN 报道，欧文本月早些时候说：“这就是我的生活。”“我可以做任何我想做的事，我的身体我做主。
+投诉称，吉尔·多伊“要么放弃她的信仰，要么在 SDUSD 参加独立的在线学习。”
 
-“现在你要告诉我如何处理我的身体……我们的世界正在发生的事情都与这（疫苗）有关。 我也被看成是不仅仅是个篮球队员的事了。”
+公共卫生官员表示，虽然过去几十年的胎儿细胞系已用于疫苗研发，但 COVID-19 疫苗不包含流产的胎儿细胞。
 
-周日，许多同意欧文观点的人出现，抗议疫苗规定使他无法参赛。他们走上街头时高呼“**与凯里站在一起**”。
+本月早些时候，当地家长组织对“让他们（孩子）选择” (Let Them Choose)提起诉讼，指控该地区无权实施疫苗授权。该组织表示，这项授权是“不必要的、非法的，侵犯了学生接受面对面教育的权利，并且存在歧视。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-460.png)
+**评论：这项授权不仅是非法的，侵犯了学生接受面对面教育的权利，而且真正在制造歧视。这就是共产主义左派和中共一样，嘴里说一套，行动做一套，他们嘴里批判别人的罪名，都是他们实实在在干着的勾兑。中共最善于制造矛盾，挑动群众斗群众，现在把这一套也输出到了美国和世界各地。希望人们从疫苗血的灾难中认清现实：我们在面临着一场保卫自由的终极之战！**
 
-据福克斯新闻报道，抗议者举着标语，上面写着“不要强制……我的身体，我的选择”和“接种疫苗的人 平等权利”等。
-
-在游行穿过街道后，一些抗议者走向巴克莱中心的门口。 一群欧文支持者涌到球馆入口后被保安拦住。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-462.png)
-
-一位不愿透露姓名但告诉 WPIX 她是学校老师的参与者说，**她的担忧不仅是欧文本人。“我必须为我挺身而出。我必须为我儿子挺身而出，”她说。**
-
-在给福克斯新闻的一份声明中，巴克莱中心证实，由于抗议活动，它不得不暂时限制进出，但表示没有未经授权的人进入大楼。
-
-声明说：“巴克莱中心今天暂时关闭，以清除广场正门的抗议者，并确保观众可以安全进入赛场。”
-
-“只有持票的人才能进入大楼，比赛按计划进行。”
-
-篮网队在比赛中不能够使用欧文，这导致以 111-95 输给夏洛特黄蜂队。这个队的全明星凯文·杜兰特（Kevin Durant）得到 38 分，但这还不足以让他的球队取得胜利。
-
-**评论：**
-
-**欧文说：“我也被看成是不仅仅是个篮球队员的事了。”以及不愿透露姓名的学校老师说，她的担忧不仅是欧文本人。“我必须为我挺身而出。 我必须为我儿子挺身而出，”他们都说出了强制疫苗的实质：不仅仅是医疗自由的斗争，这是我们未来自由的斗争！**
-
-**所以文贵先生在10月24日的直播中讲到，现在各国的抗议，远远不是大觉醒，只有人民彻底认清：这关乎到我们的未来和自由，才是真正大觉醒抗议的时刻！传播真相，让那一刻早日到来！**
+**圣地亚哥的学生和家长加油！**
 
 （文章仅代表作者观点，与GNEWS无关）
 
-**参考资料：**[westernjournal.com][Full Court Mess: Fed Up Protesters Storm NBA Game to Condemn Biden’s Hated Vaccine Mandate](https://www.westernjournal.com/full-court-mess-fed-up-protesters-storm-nba-game-to-condemn-bidens-hated-vaccine-mandate/?utm_source=Email&amp;utm_medium=WJBreaking&amp;utm_campaign=breaking&amp;utm_content=western-journal&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
-
-* * *
+**参考资料：**[theepochtimes][San Diego Student, Parents Sue District Over COVID-19 Vaccine Mandate](https://www.theepochtimes.com/san-diego-student-parents-sue-district-over-covid-19-vaccine-mandate_4066334.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-10-25)
 
 *审核：文乐
-校对 : 阿伯塔
-发稿: Nuevo唐人*
+校对：信心满满
+发布：信心的选择*
+
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
