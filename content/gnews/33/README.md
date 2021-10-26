@@ -2,9 +2,13 @@
 ---
 
 
-## 10/24/2021 郭文贵直播：中共对川普总统使用了经济超限战
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1618347/)
+## 西媒头条 — 第95期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1618412/)
 
-10/24/2021 郭文贵直播：中共对川普总统使用了经济超限战，但我们不应该攻击他，因为这是中共最想要的。
+**制作：蚂蚁兄弟**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1025-26.002.jpeg)
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)

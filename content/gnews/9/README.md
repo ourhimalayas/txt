@@ -2,37 +2,28 @@
 ---
 
 
-## 圣地亚哥学生、家长就 COVID-19 疫苗授权起诉区政府
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1618549/)
+## 疫苗灾情｜英国 40 岁女演员接种疫苗后中风昏迷
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1618638/)
 
-编译：Jenny Ball
+**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 26/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/San-Diego-Vaccine-Protest-1200x800-700x420-1.jpg)加利福尼亚州圣地亚哥 – 2021 年 9 月 28 日：反疫苗抗议者在圣地亚哥联合学区办公室外举行抗议活动，以抗议强制要求学生接种疫苗。 学区正在举行视频听证会，讨论是否强制要求学生接种至少一剂 COVID 疫苗。（桑迪·赫夫克/盖蒂图片社拍摄）
+【英国】伦敦一名 40 岁的澳籍女演员 Melle Stewart 在接种完阿斯利康 COVID-19 疫苗后引起严重中风，昏迷三周后甦醒，目前她要从学习走路、说话开始，进行漫长而艰难的康复治疗。
 
-圣地亚哥——一名 16 岁的斯克里普斯牧场高中学生和她的父母，于 10 月 22 日对圣地亚哥联合学区提起诉讼，以阻止最近批准的针对 16 岁以上教职员工和学生的 COVID-19 疫苗授权。
+Melle 5 月 24 日接受了第一针疫苗，两周后一天，她忽然倒地不起，被紧急送往医院后，她被诊断出患有血小板减少性血栓症，直接被推进了重症监护病房。
 
-约翰、简和吉尔·多伊(John, Jane, and Jill Doe)代表家人，在圣地亚哥联邦法院提起的诉讼——指出高中三年级的她，宗教信仰禁止她接种疫苗。
+不久，又发现她的大脑主要静脉有两个巨大的血凝块，因此导致 Melle 严重中风，很快，Melle 就陷于昏迷，三个星期后，即 9 月 8 日，她终于甦醒，被转移到伦敦的一间专科医院进行康复治疗，预计将至少住到 2022 年。
 
-该学区上个月批准了一项疫苗强制计划，该计划要求所有 16 岁以上的学生，不迟于 12 月 20 日接种第二剂疫苗。16 岁或以上未接种疫苗的学生，将被要求通过远程学习独立学习。该学区的计划允许对任务进行医疗豁免，但不允许宗教或个人信仰豁免。
+同时，她仍需继续服用抗凝血和抗癫痫药物，并将需要进一步的手术，从提供的康复照片可以看到，在她的头骨上安装一块钛板，替换在之前手术中移除的部分。
 
-根据诉状，吉尔对堕胎的宗教反对阻止了她接受疫苗，因为她说，批准用于紧急使用的三种疫苗，或用于测试疫苗的材料，使用了来自流产胎儿的干细胞系的材料。
+她的丈夫兼演员 Ben Lewis 表示，“太太从未住过医院，是一位相当健康的职业女演员，现在要重新学习如何说话、走路以及如何移动她的右臂和手。”不过，他同时引述太太的意思指“虽然太太几乎死于这并发症，但相信这是十分罕见的，她依然支持大家接种疫苗。”
 
-投诉称，吉尔·多伊“要么放弃她的信仰，要么在 SDUSD 参加独立的在线学习。”
+小编有话说，衷心希望患者早日康复，亦希望大家慎重接种疫苗，因为再罕有的并发症，当不幸降临，就是 100%。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/49_0.jpg)
+来源｜[个案049](https://www.9news.com.au/national/coronavirus-vaccine-update-australian-actress-melle-stewart-stroke-astrazeneca-covid19-vaccination-backs-jab-exclusive/65ee9209-4a3b-4d86-89da-ac7edc9f702e)
 
-公共卫生官员表示，虽然过去几十年的胎儿细胞系已用于疫苗研发，但 COVID-19 疫苗不包含流产的胎儿细胞。
+* * *
 
-本月早些时候，当地家长组织对“让他们（孩子）选择” (Let Them Choose)提起诉讼，指控该地区无权实施疫苗授权。该组织表示，这项授权是“不必要的、非法的，侵犯了学生接受面对面教育的权利，并且存在歧视。”
-
-**评论：这项授权不仅是非法的，侵犯了学生接受面对面教育的权利，而且真正在制造歧视。这就是共产主义左派和中共一样，嘴里说一套，行动做一套，他们嘴里批判别人的罪名，都是他们实实在在干着的勾兑。中共最善于制造矛盾，挑动群众斗群众，现在把这一套也输出到了美国和世界各地。希望人们从疫苗血的灾难中认清现实：我们在面临着一场保卫自由的终极之战！**
-
-**圣地亚哥的学生和家长加油！**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**参考资料：**[theepochtimes][San Diego Student, Parents Sue District Over COVID-19 Vaccine Mandate](https://www.theepochtimes.com/san-diego-student-parents-sue-district-over-covid-19-vaccine-mandate_4066334.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-10-25)
-
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
+他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//｜//[美国 35 岁疫苗拥趸孕期接种后致新生儿夭折](https://gnews.org/zh-hans/1605744/)//｜//[澳洲 30 岁夫妇接种疫苗后相继出现心脏疾病](https://gnews.org/zh-hans/1607321/)//｜//[意大利 18 岁少年接种疫苗2周内突患罕见病](https://gnews.org/zh-hans/1610841/)//｜//[比利时 22 岁自行车手接种疫苗后心力衰竭 职业生涯被迫结束](https://gnews.org/zh-hans/1612160/)//
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)

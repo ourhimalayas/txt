@@ -2,9 +2,13 @@
 ---
 
 
-## 川普总统回归社交媒体无关任何个人，而是事关这场运动
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1618386/)
+## 西媒头条 — 第94期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1618421/)
 
-10/21/2021 盖特首席执行官杰森·米勒：尽管盖特与川普总统没有达成交易，川普总统回归社交媒体是件好事。与任何个人无关，而是事关这场运动。无论如何，脸书和推特已奄奄一息。
+**制作：蚂蚁兄弟**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1025-26.001.jpeg)
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)

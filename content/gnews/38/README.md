@@ -2,31 +2,72 @@
 ---
 
 
-## 针下亡魂｜英国 35 岁女医护接种疫苗三个月后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1618330/)
+## 币圈新闻动态：喜交所发起“ETH价格”有奖竞猜活动
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1618380/)
 
-**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 26/10/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
-***更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）***
+*喜马拉雅华盛顿DC 编辑：aQ*
 
-【英国】曼彻斯特一名 35 岁的女医护 Rachel McKinney 在接种完辉瑞 COVID-19 疫苗后，经历了两个多月与严重不良反应的搏斗，最终在因多发性硬化症而死亡。
-
-按照当地规定，身为医务人员的 Rachel 是首批需要接受新冠疫苗注射的人士。据她的姐姐 Gemma Louise Walls 的回忆，Rachel 在 12 月下旬接种了第一剂疫苗，随后在 1 月接种了第二剂，直到一月，一切都很好。不过，二月份开始，Rachel 就突然说话含糊不清，并有轻微失语症。家人随即怀疑她中风。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Gemma-Louise.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Jamie-Lauren-Walls.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Kevin-McKinney.png)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
 
 
-曼彻斯特晚报报导，有一名急救接线员建议带 Rachel 去 Stepping Hill 医院诊治，医生诊断她患有脑部炎症，后来又被转移到索尔福德皇家医院，该院认为她患上了急性播散性脑脊髓炎（ADEM），报导引述家人，怀疑是疫苗造成这一系列的病症，因为“直至 12 月接受疫苗之前，Rachel 一直非常健康。”
 
-可惜，Rachel 的病情恶化的十分迅速，瘫痪、失语、癫痫、昏迷。由于 COVID-19 的防疫限制，在 Rachel 住院治疗的 46 日期间， 家人不可以见她，他们唯有在 FaceTime 上看着 Rachel 痛苦的煎熬而哭泣。
+## 每日一问
 
-Rachel 独自对抗病魔战斗了几个星期之后，4 月 13 日她过世了，留下了丈夫 kevin 及两个小朋友——一对 8 岁及 12 岁的儿子，医生的结论是，她不知何故患上了一种罕见的多发性硬化症。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/48_0.jpg)
-来源｜[个案048](https://www.manchestereveningnews.co.uk/news/greater-manchester-news/fit-healthy-everything-live-for-20376989)
 
-* * *
 
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
+
+
+男士持币可称为：十币男，百币郎，千币侯，万币公，兆币王；女士持币该如何称呼？
+
+
+
+
+
+## 喜马拉雅交易所要闻
+
+
+
+
+
+- 喜交所发起“ETH价格”有奖竞猜活动，活动截止登记时间为11-01-2021（23:59:00 UTC）。
+
+
+
+
+
+
+## 新闻动态
+
+
+
+
+
+1.SportsProMedia报道，体育社交游戏开发商Green Park Sports完成3,100万美元B轮融资，现有投资者Galaxy Interactive等领投。新资金将用于推进NFT计划和元宇宙愿景。Green Park已与英雄联盟冠军系列赛（LCS）、西甲联赛及NBA达成合作。目前正与Immutable合作创建一个基于以太坊区块链的NFT市场，首次发售预计将于几周内上线。
+2.CoinDesk报道，On Chain Studios在由Andreessen Horowitz(a16z)领投的种子轮融资中筹集了750万美元，用于开发Cryptoys：一种结合数字玩具和游戏的新型不可替代代币(NFT)平台。
+3.CoinDesk报道，NEAR宣布推出8亿美元生态发展捐赠计划，其中2.5亿美元的生态基金将于4年内分配完成；1亿美元将用于区域基金；1亿美元将专门用于初创公司。此外，DeFi将是该计划的重点关注对象，Proximity Labs提供了3.5亿美元的专项资金，新成立的DeFi DAO将管理这些资金，协议将能够通过DeFi DAO申请流动性挖掘项目资金。
+4.10月25日消息，管理超47万亿韩元（约合402亿美元）的韩国教职工互助协会正在寻求投资比特币相关交易平台交易基金（ETF）的计划，这是韩国国内养老基金决定投资加密货币的首例。它计划首先投资与比特币价格挂钩的现货ETF。
+5.Cointelegraph报道，由Elon Musk领导的电动汽车制造巨头特斯拉可能很快会寻求恢复对加密支付的支持。在今年九月提交给美国证券交易委员会(SEC)的季度文件中，特斯拉表示“未来可能会重启加密货币交易的做法”，这表明特斯拉正在考虑恢复使用数字资产交易。
+6.10月25日消息，数字货币交易平台巴克特控股公司(BKKT.N)盘前拉升，涨超40%。万事达(MA.N)计划让银行和商家整合加密货币服务。
+7.10月25日消息，在数字资产平台Bakkt宣布建立了两个合作伙伴关系后，其股价周一上涨约180%，并创下28美元的历史新高。据悉，万事达卡和Bakkt周一早上表示，正在努力允许消费者通过Bakkt提供的托管钱包购买、出售和持有数字资产。Bakkt与Fiserv的合作伙伴关系将允许类似的功能，允许商家扩展他们的加密支付产品。
+8.10月25日消息，支付和金融服务技术解决方案提供商Fiserv今天宣布与数字资产平台Bakkt建立战略关系。Fiserv的广泛功能（包括将资金移入和移出移动钱包的能力）与Bakkt的数字资产平台相结合，将使加密货币和新兴资产类别的实际应用成为可能。
+9.CNBC报道，万事达卡宣布，其支付网络上的数千家银行和数百万商家很快就可以将加密货币整合到他们的产品中。这包括比特币钱包、信用卡和借记卡（可以通过加密货币获得奖励，并可以消费数字资产），以及可以将航空公司或酒店积分转换为比特币的忠诚度计划。
+10.CoinDesk报道，字节跳动公司研发的音频解决方案平台“易颂 Easy Ode”在第八届中国国际版权博览会上受到版权行业关注，据该平台负责人透露，字节跳动通过建立智能电子签约、区块链确权存证等实践，构建了版权保护体系，有效维护了创作者权益。
+11.PRNewswire报道，Stellar发展基金会（SDF）宣布，全球支付技术公司Flutterwave已经在Stellar网络上开通了两条新的欧洲和非洲汇款通道。通过与TEMPO合作，Flutterwave正在利用Stellar网络和Stellar USDC简化非洲的汇款。
+12.Cointelegraph报道，从周一开始，BitGo将为机构级代币持有者提供通过Stacks代币（STX）赚取比特币奖励的能力。STX代币持有者可以通过一个名为Stacking的流程直接在他们的钱包中获得BTC奖励。与其他收益赚取的服务不同，通过Stacking产生的BTC奖励并不基于借贷拍卖，这意味着STX代币持有者不需要出借资金。
+13.官方消息，Poriot公链首个生态应用CrownSwap将于11月3日正式上线，CrownSwap是一个建立在Poriot公链上的，采用主流AMM模型范式的去中心化交易所，CrownSwap首创单边流动性挖矿机制，具有创新的经济激励模型和成熟的技术团队。
+14.官方公告，Solana生态去中心化衍生品交易平台Drift Protocol宣布封闭alpha版本主网现在已经上线。
+15.官方消息，Plato Farm开发者决定在原有HRC-721协议基础之上，在游戏系统NFT生成、官网NFT道具交易、DApp交互等功能上将全面支持ERC-1155协议，该协议预计在11月10日开发完成。
+16.10月26日消息，SushiSwap宣布，Sushi已经部署在Kusama平行链Moonriver，SUSHI和MOVR将用于在即将到来的流动性挖矿计划中激励Kusama的流动性。Sushi已收到25,000个MOVR代币和250万个未来GLMR代币用于初始推出。
+17.10月25日消息，Poriot公链Gas容量总额即将实现突破6,000万，目前市场主流公链gas容量以太坊1,200万，Heco 2,000万，币安6,000万，Poriot公链当下3,000万gas，且Poriot公链gas转账费用将降低至0.0000025ZKGwei/次，转账成本将下降10倍。
+18.10月25日消息，加密支付公司Crypterium的加密钱包获得英国金融行为监管局（FCA）注册许可。
+19.10月25日消息，美国总务管理局周一表示，将在本周举办新的比特币拍卖会。拍卖将于周二上午开始，预计将于周四完成。将拍卖五批，总共包含4.94BTC，目前价值约311,000美元。
+20.10月26日消息，德国北莱茵-威斯特法伦州在获得司法部长Peter Biesenbach的批准后已开始拍卖其没收的215枚比特币，目前价值约1,360万美元。周一共有15场拍卖，拍品价格从0.1枚到10枚BTC不等。目前有人出价为每1枚BTC56,130欧元（65,178美元），比比特币当前的现货价格高出约2%。
+21.10月25日消息，美国SEC主席Gary Gensler今天在接受采访时表示，加密货币尚未纳入“投资者保护范围”这一事实使投资者容易受到这些市场的欺诈和操纵。Gensler称，没有这些保护措施，基本上就是狂野的西部。
+22.10月26日消息，据a16z合伙人Chris Dixon透露，Coinbase NFT平台候补名单注册人数已经突破240万。根据此前披露的细则信息显示，Coinbase NFT平台最初将提供给18岁以上的美国客户，然后在未来推广到国际市场。
+
+
+
+
+
+*编辑：aQ
+发布：文顾*
