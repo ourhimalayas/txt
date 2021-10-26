@@ -2,7 +2,12 @@
 ---
 
 
-## 10/25/2021 文贵直播：习对五国的秘密访问是为了拿下欧洲和中东并为六中全会奠定基调
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1617788/)
+## 辱共神曲《玻璃心》播放量突破1600万！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1617892/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1026-scaled.jpg)
+（文章仅代表作者个人观点，与GNEWS无关）
+
+*编辑：东京樱花团/简报小组*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

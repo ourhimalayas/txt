@@ -2,72 +2,36 @@
 ---
 
 
-## 众议员肯·巴克： 我们必须和台湾站在一起，推广民主，击退中共的侵略
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1617813/)
+## 我什么时候可以在加拿大获得 Starlink 服务？
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1617935/)
 
-众议员肯·巴克： 联合国应该完全地对 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 敞开大门。 我们必须和台湾站在一起，推广民主，击退 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的侵略。【转华尔街日报，联合国应向民主台湾敞开大门】
+**翻译：**昔马千羽
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1358.png)图片来源：网络
+Starlink 于 2021 年初在加拿大上市。当您订购 Starlink 时，您会收到一封确认电子邮件，其中包含预计发货时间范围。 您还可以通过登录您的在线帐户来查看此信息。 根据 Starlink 网站，大多数套件会在 2 周内发货。
 
+Starlink 的本地网站最近上线，承诺在“2021 年中后期”为大多数地址提供服务。 服务是按照“先到先得”的原则提供的，但就可用服务数量或预期客户负载而言，没有真正的迹象表明这真正意味着什么。
 
+Starlink 在加拿大的费用是多少？
 
-> The United Nations should absolutely open its doors for Taiwan. 
-> 
-> We must stand with Taiwan, promote democracy, and push back against CCP aggression.[https://t.co/hQWsydVUMG](https://t.co/hQWsydVUMG)
-> — Rep. Ken Buck (@RepKenBuck) [October 25, 2021](https://twitter.com/RepKenBuck/status/1452616777918255115?ref_src=twsrc%5Etfw)
+Starlink 的单月计划定价为 129 加元，没有规定的数据上限。
 
+然而，还有更多。 您还需要购买接收器设备和硬件，费用为 649 加元加上 65 加元的运输和处理费用。 如果您被选为 Starlink 客户，则必须预先支付设备和运费。
 
+Starlink 在加拿大的速度有多快？
 
-众议院外交委员会共和党： 领袖麦考尔针对最近有关生态健康联盟资助 [#武毒所](https://twitter.com/hashtag/%E6%AD%A6%E6%AF%92%E6%89%80?src=hashtag_click) 的功能增强性研究的报道发表声明，呼吁传唤生态健康联盟的皮特·打杂客(Peter Daszak)。阅读此声明
+Starlink 正在宣传其服务将能够达到 50Mb/s 到 150Mb/s 的速度，在大多数位置延迟从 20 毫秒到 40 毫秒。 但它还指出，“也会有短暂的完全没有连接的时期。” 从理论上讲，随着 Starlink 随着时间的推移增加其卫星舰队，这将不是一个问题。
 
+但是，与任何无线技术一样，许多因素都会影响您的网络速度，包括环境和网络内的需求。 所以就像一条繁忙的道路，如果有太多的客户试图同时访问互联网，每个人的服务都可能会变得缓慢。 这就是 Starlink 不提供普遍服务的原因之一。
 
+**译者注：**在疫苗灾难爆发后，出现各种错综复杂局面，wifi的保障至关重要，
 
-> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw) released a statement in response to recent reports that EcoHealth Alliance was funding gain-of-function research at the WIV, calls for EcoHealth Peter Daszak to be subpoenaed. Read the statement 👇 [https://t.co/TrZYSG3Wg4](https://t.co/TrZYSG3Wg4)
-> — House Foreign Affairs GOP (@HouseForeignGOP) [October 25, 2021](https://twitter.com/HouseForeignGOP/status/1452785434162044931?ref_src=twsrc%5Etfw)
+希望大家密切关注马斯克星链计划的进展，尽早未雨绸缪，多做准备。
 
+新闻链接：[https://www.finder.com/ca/starlink](https://www.finder.com/ca/starlink)
 
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
 
-美前国务卿迈克·蓬佩奥： 我们必须继续要求大型科技公司保持透明度。
+编辑/发布：LILY
 
-
-
-> We must continue to demand transparency from Big Tech companies.
-> — Mike Pompeo (@mikepompeo) [October 25, 2021](https://twitter.com/mikepompeo/status/1452785148152455175?ref_src=twsrc%5Etfw)
-
-
-
-美司法部国家安全司： 前空战学院教授（张晓明，归化中国公民）就与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府官员的关系中做出虚假陈述认罪。 【附司法部官网新闻】
-
-
-
-> Former Air War College Professor Pleads Guilty to Making False Statements About Relationship with Government Official in China[https://t.co/ngFCNrqf5e](https://t.co/ngFCNrqf5e)
-> — National Security Division, U.S. Dept of Justice (@DOJNatSec) [October 25, 2021](https://twitter.com/DOJNatSec/status/1452687688814010372?ref_src=twsrc%5Etfw)
-
-
-
-众议院外交委员会共和党领袖： 麦考尔：”50 年来，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 歪曲了第 2758 号决议，在联合国歧视台湾，这是他们消灭台湾民主和吞并该岛的更大计划的一部分。第 2758 号决议并没有说台湾是 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的一部分。“它没有说中共国可以在联合国面前代表台湾。它没有提到台湾的主权——它甚至不包括台湾这个词。“在（这个决议）通过50周年之际，我敦促其他民主政府共同拒绝 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对这份文件的虚假声明，并根除 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 在联合国官僚机构中植入的这些谎言。” 请在这里看声明全文： 【附麦考尔议员在众议院外交委员会官网发表的声明】
-
-
-
-> "On the 50th anniversary, I urge other democratic governments to collectively reject the CCP’s false claims about this document and to root out these lies that the CCP has embedded throughout the UN bureaucracy.”
-> 
-> READ⬇️ [https://t.co/gDi9GfRICW](https://t.co/gDi9GfRICW)
-> — House Foreign Affairs GOP (@HouseForeignGOP) [October 25, 2021](https://twitter.com/HouseForeignGOP/status/1452724085037928458?ref_src=twsrc%5Etfw)
-
-
-
-参议员兰德·保罗： 福奇博士从不会输！（至少根据他的左翼媒体伙伴们来说）。 福奇的最新“胜利”涉及国家卫生研究院NIH 从其网站上删除“功能增强”的定义。 【转[http://townhall.com](https://t.co/njamfKMua8?amp=1) 报道：国家卫生研究院NIH 悄悄地编辑了关于“功能增強”研究网站的部分内容】福奇博士现在仍坚持认为，只有当实验者事先知道新创造的病毒会获得杀伤力时，这种实验才能称为“功能增强”性实验.嗯……所以你可以把任何未知的蝙蝠病毒与已知冠状病毒的骨干重组，即使你发现它获得了功能，它也不符合功能增强的条件？ 像污泥一样清楚，也像污泥一样黏糊糊的。
-
-
-
-> Dr. Fauci never loses! (At least according to his left wing media buds). Fauci’s latest ‘win’  involves the NIH eliminating ‘gain-of-function’ definition from their website. [https://t.co/d9ajkjCKsB](https://t.co/d9ajkjCKsB)
-> — Senator Rand Paul (@RandPaul) [October 25, 2021](https://twitter.com/RandPaul/status/1452710099575877632?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·加拉格尔新闻办公室： 众议员加拉格尔和众议员迈克尓·麦考尔[@RepMcCaul](https://twitter.com/RepMcCaul) 与中国问题特别小组[@China\_TaskForce](https://twitter.com/China_TaskForce) 的成员们一起呼吁雷蒙多商务部长采取行动，帮助确保源自美国的技术不会支持 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的恶意活动。 在此处阅读有关这封信的更多信息：（附信函及链接）
-
-
-
-> Rep. Gallagher joined [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw) and members of the [@China\_TaskForce](https://twitter.com/China_TaskForce?ref_src=twsrc%5Etfw) in calling on Secretary Raimondo to take actions that help ensure US-derived tech doesn't support the CCP's malign activities. 
-> 
-> Read more about the letter here: [https://t.co/96QvX3GnyQ](https://t.co/96QvX3GnyQ) [pic.twitter.com/fE1mUY78Wu](https://t.co/fE1mUY78Wu)
-> — Rep. Gallagher Press Office (@RepGallagher) [October 25, 2021](https://twitter.com/RepGallagher/status/1452691011919040523?ref_src=twsrc%5Etfw)
+20211025
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
