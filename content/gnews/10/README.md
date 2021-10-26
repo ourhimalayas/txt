@@ -2,45 +2,20 @@
 ---
 
 
-## 澳大利亚针对中共的大动作：Telstra收购Digicel Pacific
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1617969/)
+## 为控制全球中共国加大了收集人类基因数据的力度
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1617994/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+采编：Ucool优酷     编译撰稿：硫酸羟氯喹64
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/telstra-shop-sydney.jpg)
-
-
-
-图片来源：zdnet.com
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-9-edited.jpg)图片说明：后千禧年
 
 
-编译：小红帽
+据加拿大自媒体《后千禧年》10月23日报道，【美国国家情报局反间谍和安全中心】代理主任奥兰多近日表示，中共国及其他战略对手正在使用一切合法或非法手段来获取美国的高新科技。
 
-澳大利亚电信公司Telstra已同意使用纳税人的18亿美元现金购买太平洋地区最大的电信公司Digicel Pacific，以防止其被中共国拥有。
+最近，【美国家安全委员会】的一份最新简报警告称，由于中共国企业间谍通过长期盗取美国公司的技术和知识产权，并以此主导其人工智能等新兴高科技领域的开发，试图获得经济优势，以实现与美国对抗的战略平衡。因此，美国必须做更多工作来确保其“关键技术”，包括量子计算、半导体和新兴生物经济领域等新兴科技的领先地位。
 
-Digicel Pacific的销售额为21亿美元，在巴布亚新几内亚、汤加、斐济、瑙鲁、萨摩亚和瓦努阿图有业务。该公司的出售将于明年完成。
+据报道，在“新冠病毒”疫情的影响下，人类各项健康数据的价值变得越来越重要。因此，已建立好完善人类基因数据库的国家，将在未来对大流行疾病的治疗方案方面拥有优势。而目前中共当局正在使用一切手段收集世界各地的医疗、健康和人类基因信息，并且在该方面已经获得了明显优势。
 
-大部分费用由澳大利亚政府通过澳大利亚出口金融公司承担，其余费用由Telstra支付。
+（以上内容仅代表原文信息和作者个人观点）
 
-中共国有企业中国移动曾表示有兴趣收购Digicel，但澳大利亚政府不希望该战略资产落入中国共产党之手。
-
-在一份联合声明中，澳大利亚外交部长玛丽斯·佩恩（Marise Payne）、贸易部长丹德（Dan Tehan）以及国际发展和太平洋部长泽德·塞塞利亚（ Zed Seselja）表示，澳大利亚政府希望看到该协议的长期回报。
-
-部长们周一表示，此次收购还反映了澳大利亚政府的承诺–支持该地区安全可靠的基础设施的发展。
-
-创办该公司的爱尔兰亿万富翁丹尼斯·奥布赖恩 (Denis O’Brien) 将加入该公司的新董事会。
-
-明年年中完成收购后，Telstra将控制Digicel Pacific100%的股份。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Australia’s big move against China: Telstra buys Digicel Pacific (msn.com)](https://www.msn.com/en-au/news/australia/australia-s-big-move-against-china-telstra-buys-digicel-pacific/ar-AAPUWO7?ocid=msedgntp)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[原文链接：](https://thepostmillennial.com/china-ramping-up-efforts-to-collect-genetic-data)

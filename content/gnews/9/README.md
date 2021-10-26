@@ -2,24 +2,31 @@
 ---
 
 
-## 美佛州州长要求追责福奇
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1617971/)
+## GTV新闻访谈简报|2021年10月25日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1618009/)
 
-原文采编：文莱      编译撰稿：文所未闻
+作者：香草山翻译部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-8-edited.jpg)图片来源：后千禧年
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-413.png)
 
 
-据加拿大自媒体《后千禧年》10月25日报道，美国佛罗里达州州长罗恩当天公开谴责并要求追责福奇及其同僚，长期资助【武汉病毒研究所】对“新冠病毒”进行的各项功能增强性研究。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1025text-SC.png)
+文章仅代表作者本人观点，与Gnews无关
 
-罗恩对此表示：白宫首席医疗官福奇领导的【美国国家卫生研究院】向中共【武汉病毒研究所】的各项生化试验研究提供了巨额资金。同时，该州长还进一步抨击了由该福奇资助的，在突尼斯对宠物狗进行令人发指的，残酷和非必要的各类动物实验。
+校对：Stay文苑
 
-该州长随后呼吁道：本着美国纳税人的立场，本着法律和道德的立场，福奇及其同谋应该被严厉追责，并必须被立即解职。
+编辑：Stay文苑
 
-（以上内容仅代表原文信息和作者个人观点）
+发稿：Stay文苑
 
-* * *
+视频参看：[晚GTV新闻访谈](https://gtv.org/broadcast/watch/61774b8aeadeb11f5e7a7e7c)
 
-校对编辑，发稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
 
-[原文链接：](https://thepostmillennial.com/desantis-fauci-gain-of-function-puppies)
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)

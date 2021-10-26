@@ -2,38 +2,24 @@
 ---
 
 
-## 蓬佩奥指出世界面临撕裂的三大原因都源自CCP
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1617967/)
+## 美佛州州长要求追责福奇
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1617971/)
 
-作者：日本方舟农场 – Andy5
+原文采编：文莱      编译撰稿：文所未闻
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-8-edited.jpg)图片来源：后千禧年
 
-近日，美国前国务卿蓬佩奥出席World Knowledge Forum时指出世界面临撕裂的三大原因都源自中国共产党。一是由于中共撒谎以及联合国对中共卑躬屈膝而造成全世界大流行的中共病毒；二是中共的一带一路项目，其本质就是新型帝国主义；三是中共开始着手取代美国的领导地位，比如在疫情期间中共没有放下报复美国的野心反而让其野心更加膨胀，它们撕毁了本该遵守至2047年的中英联合声明。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-120.jpg)
-蓬佩奥国务卿说，看到香港沦陷以及中共对其之前庄严承诺过的义务表现出的轻蔑态度，每个人都该问自己，中共国所签的哪一个正式文件会得到中共的执行？同时，蓬佩奥国务卿明确指出，中共就是个强盗政权，中共国被一群强盗所领导着。
 
-参考链接：
+据加拿大自媒体《后千禧年》10月25日报道，美国佛罗里达州州长罗恩当天公开谴责并要求追责福奇及其同僚，长期资助【武汉病毒研究所】对“新冠病毒”进行的各项功能增强性研究。
 
-[蓬佩奧國務卿在Wolrd Knowledge Forum的演講](https://gettr.com/post/pf49hc950a)
+罗恩对此表示：白宫首席医疗官福奇领导的【美国国家卫生研究院】向中共【武汉病毒研究所】的各项生化试验研究提供了巨额资金。同时，该州长还进一步抨击了由该福奇资助的，在突尼斯对宠物狗进行令人发指的，残酷和非必要的各类动物实验。
 
-（本文仅代表作者观点）
+该州长随后呼吁道：本着美国纳税人的立场，本着法律和道德的立场，福奇及其同谋应该被严厉追责，并必须被立即解职。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+（以上内容仅代表原文信息和作者个人观点）
 
-总编/编辑：木白
-校对/发稿：Fei797
+* * *
 
-**更多资讯，更多关注**
+校对编辑，发稿：硫酸羟氯喹64
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[原文链接：](https://thepostmillennial.com/desantis-fauci-gain-of-function-puppies)

@@ -2,20 +2,20 @@
 ---
 
 
-## 雅典娜时报-第093期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1617793/)
+## 加拿大安省高等法院针对疫苗政策颁布临时禁令
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1617814/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+编译撰稿：文莱      校对编辑：硫酸羟氯喹64
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/10/49.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/50.png)
-（文章内容仅代表作者个人观点，与GNEWS无关）
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/s-1-edited.jpg)图片来源：REBELNEWS
 
-***发布：小红帽***
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据加拿大自媒体【反叛新闻】10月25日报道，安大略省高等法院已对该省【大学健康系统】试图解雇其尚未接种“新冠病毒疫苗”的员工发出了临时禁令。该系统包括【多伦多综合医院】和【多伦多西部医院】、【玛格丽特公主癌症中心】、【多伦多康复研究所】以及【米切纳教育研究所】等。
+
+安省高等法院法官在其发布的裁决书中提到，原告【大学健康系统】的那些未接种该疫苗员工，由于无法在其个人和家庭环境中冒着挑战当局政策而陷入贫困的巨大风险。为此，他们可能被迫接受违背其个人意愿的做法，因而原告此举将对这些员工造成无法挽回的严重伤害。
+
+据悉，这是安省“新冠病毒疫苗强制接种政策”首次遭到法院的阻止。虽然法官只是根据本案的具体实施情况发布了临时禁令，但它使得该省那些意欲采取强制解雇其未接种该疫苗员工的雇主感到不安，而可能导致其更加关注工作场所在该疫苗接种政策下的便利或豁免请求。
+
+（以上内容仅代表原文信息和作者个人观点）
+
+[原文链接：](https://www.rebelnews.com/ontario_superior_court_issues_interim_injunction_against_toronto_hospital_network_vaccine_mandate)

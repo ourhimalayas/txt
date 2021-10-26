@@ -2,45 +2,33 @@
 ---
 
 
-## 让川普媒体上市的那个人在隐瞒经历
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1617650/)
+## 2021/10/25文贵先生盖特精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1617728/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/102503.png)[盖特直播链接](https://gettr.com/post/pf3w0g8716)
+SPAC股票又涨100了，这就是一种操作，5周过后才会正常，现在都是机构的大额交易，实际上都是在洗钱。可以买几股玩一玩，但别超过10股，别当真，一跌赶紧抛掉，不要长期持有。股票就是个赌局，这种股票就是场骗局。相信最终川普总统会醒过来的。最终安全，生命比钱重要。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/P-10.jpg)bupox.com
-笔者前一篇文章对正在帮助“川普媒体和技术集团”（TMTG，Trump Media & Technology Group）上市的“数字世界收购公司”（DWAC，Digital World Acquisition Corp）CEO帕特里克·奥兰多 (Patrick Orlando)进行了披露【1】，现在继续揭骗，让美国人了解真相，也让川普总统警觉。
+最近，希腊、 阿尔巴尼亚、 塞尔维亚、 卡塔尔、和 意大利这些国家的政府都在问和新中国联邦合作的事情。
 
-美国证券交易委员会（SEC）公布的资料中，在DWAC管理团队部分介绍了奥兰多：“他在25年的职业生涯中曾在金融领域担任过许多行政职务。奥兰多先生的经验涵盖了与“空壳公司”（”SPACs”）有关的所有方面，因为他曾作为高管、赞助商和董事参与过多个SPACs，包括“运鸿国际”（Nasdaq：ZGYH）、贝内塞尔资本收购公司（Nasdaq：BENE）和马奎亚资本收购公司（Nasdaq：MAQC）。奥兰多先生在其职业生涯中建立了广泛的网络，我们相信他在全球范围内的知识和接触将使我们能够找到并吸引潜在的目标。 奥兰多先生自2020年1月以来一直担任“运鸿国际”的首席执行官……”【2】
+昨天，正在飞行中……习正在悄悄地访问这些国家，这些信号表明，在国内习已经把王岐山、 孟建柱 、马云 、江志成给干倒了。首战卡塔尔，杨洁篪在卡塔尔完成了德意志银行与海航的勾兑，中共在中东半岛表面上搞政治平衡，桌子下面对卡塔尔表示感谢。卡塔尔这个女人不简单，嫁给了一位杀掉父亲的人，最后建立整个卡塔尔王国，买下大奢侈品牌，投资世界大企业，黑白两道通吃，现在玩习去了，真不简单，走着看…。 塞尔维亚和阿尔巴尼亚表面上是“一带一路”的一个点，但实际上是在布置军事基地。中共不希望希腊跟我们合作，然后再巩固那些码头，延期两国贷款的问题。扶持意大利，拿下所有的左右派别，让其成为欧洲的第二个主要势力，具有话语权，影响力。现在正在谈‘遣返令’和‘司法协助’，能够遣返华人，以后意大利可能危险了。希腊、塞尔维亚和阿尔巴尼亚都会做‘司法协助’。卡塔尔早就做遣返了。
 
-看来帕特里克·奥兰多在报给SEC的资料中，把担任“运鸿国际”首席执行官的经历列在了首位，进行了重点炫耀，但是《雅虎财经》（yahoo finance）进行了这样的报道，“奥兰多在武汉的SPAC因信托管理不善而蒙受损失”，文章写道，“运鸿国际”是一家总部位于中共国武汉的实体，于 2020 年初筹集了 6000 万美元，但尚未宣布交易。在去年的美国证券交易委员会备案中出现了罕见的情况，“运鸿国际”透露其信托账户遭受了损失，与任何 SPAC 一样，在 IPO 中筹集的资金旨在安全地存放在短期政府证券中，因此它们通常会赚取少量利息（或在利率降至零时没有利息），并且不应贬值。
+针对这些国家的政治决策那绝对就是在挑战美国的，在拜登这届政府下，一定中美关系会恢复、示好、贸易、合作、增加来往，把病毒的问题甩开，这恰恰会加速导致美国内部分裂矛盾加剧，加速事情的发展和变化。2022和2024总统选举会爆发所积累的这些矛盾，是两党派大决战的时刻，这对新中国联邦和灭共是好事。
 
-但根据“运鸿国际”提交的文件，发现受托人摩根·士丹利（Morgan Stanley）并未投资政府证券，而是投资另一项资产——据推测，该资产本可以提供更好的回报但存在风险。“此后，我们立即采取措施清算此类投资，并将资金仅再投资于信托协议规定的证券类型，”“运鸿国际”的文件称，未实现的亏损总额为 115 万美元，但“运鸿国际”能够弥补部分亏损，并产生了 56.5 万美元的“亏空……”【3】
+等31号习访问归来，把几个大合作成功做好，在开“六中全会”前竖立了无比的信心和威严，奠定了稳定统治的基础。很多大事儿正在发生…… 七哥准备好周三和战友们的大直播吧……
 
-上市前募集的资金存放在较安全的短期政府证券中，至少能有获利，哪怕是微利，也不应该出现亏损。这样的经历，在DWAC官方网站不容易发现。
+***听写：**阿甘*
 
-再看看DWAC官网对帕特里克·奥兰多的介绍【4】：
+***校对: **小雨*
 
-贝内塞尔投资集团创始人兼首席执行官（Founder & CEO of Benessere Investment Group）
-贝内塞尔资本收购公司董事长兼首席执行官（Chairman & CEO of Benessere Capital Acquisition Corp.）
-马奎亚资本收购公司董事（Director of Maquia Capital Acquisition Corp.）
-BT资本市场有限责任公司前结构和金融产品部负责人（Former Head of Structuring & Derivatives BT Capital Markets LLC）
-德意志银行前新兴市场金融产品部主任（Former Director of Emerging Markets Derivatives at Deutsche Bank）
-麻省理工学院机械工程和管理科学学位（Degrees in Mechanical Engineering and Management Science from MIT）
-……
+* * *
 
-唯独不见总部坐落在武汉“运鸿国际”首席执行官的经历，难道知道美国人现在已经有“谈中共色变”、“谈武汉恐惧”的心态？川普总统，您还不担心？
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-DWAC今天的收盘价为83.86美元，较前一个交易日下跌11%。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-（文章仅代表作者个人观点）
 
-原文链接：
+编辑：【英国伦敦喜庄园编辑部】
 
-【1】[https://gnews.org/zh-hans/1617078/](https://gnews.org/zh-hans/1617078/)
-
-【2】[https://www.sec.gov/Archives/edgar/data/0001849635/000110465921111753/tm2124624d5\_s1a.htm](https://www.sec.gov/Archives/edgar/data/0001849635/000110465921111753/tm2124624d5_s1a.htm)
-
-【3】[https://finance.yahoo.com/news/trump-financier-patrick-orlando-wuhan-173332669.html](https://finance.yahoo.com/news/trump-financier-patrick-orlando-wuhan-173332669.html)
-
-【4】[https://www.dwacspac.com/](https://www.dwacspac.com/)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

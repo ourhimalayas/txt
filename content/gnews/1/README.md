@@ -2,45 +2,26 @@
 ---
 
 
-## “人权火炬传递”行动 抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618082/)
+## 有声|中共军媒煽动民众抓美国间谍
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1618110/)
 
-作者：澳喜农场 – 在远方
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+中共军媒《解放军报》17日在微博发帖，煽动墙内老百姓开展所谓反间防谍“人民战争”， 号召民众学习‘朝阳大妈’和’捞铜渔民’而努力抓间谍。
 
+所谓朝阳大妈指的是，中共政府最基层组织居委会中的中老年妇女，她们兼任政府在居民日常生活中的耳目；而捞铜渔民则是指，在南中国海尾随美军考察船，捞取考察船放出的水文探测潜水器，然后上交中共的渔民。
 
+由于美国中情局新成立了中共国任务中心，这让共产党感到高度紧张，而中共一贯善于使用群众运动的方式，来排查、监督和打击异议人士，或者被中共定义为敌对分子的人，却美其名曰“人民战争”。美国有线电视新闻网认为，中共新一轮反间防谍宣传战有可能加剧政治猎巫行动，任何被认为不爱中共国的人，都有被举报为“间谍”的风险。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+文字版原文：[中共军媒煽动民众抓美国间谍](https://gnews.org/zh-hans/1614426/)
 
-
-
-10月24日，海外人权组织发起“人权火炬传递”行动，呼吁各国在外交层面抵制北京冬奥会。
-
-该游行由人权组织“现在就说不”发起，从德国汉诺威开始，在英国伦敦、德国柏林、瑞士日内瓦和奥地利维也纳等地，接力传送自制的人权火炬。维吾尔人、藏人和港人组织予以声援，并参与游行。
-
-“现在就说不”创办人Olaf Stando表示，尽管中共在2008年奥运会前曾许诺改善人权状况，但事实证明，新疆维吾尔人、藏人和香港人正遭受迫害，中共国人权状况正在持续恶化。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-121.jpg)
-参考链接：
-[英国伦敦近百人游行 呼吁各国向北京冬奥“说不”](https://www.rfa.org/mandarin/yataibaodao/gangtai/al-10242021161901.html)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编/编辑：木白
-校对/发稿：为真不破20
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

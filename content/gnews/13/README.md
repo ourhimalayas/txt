@@ -2,36 +2,38 @@
 ---
 
 
-## 我什么时候可以在加拿大获得 Starlink 服务？
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1617935/)
+## 蓬佩奥指出世界面临撕裂的三大原因都源自CCP
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1617967/)
 
-**翻译：**昔马千羽
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1358.png)图片来源：网络
-Starlink 于 2021 年初在加拿大上市。当您订购 Starlink 时，您会收到一封确认电子邮件，其中包含预计发货时间范围。 您还可以通过登录您的在线帐户来查看此信息。 根据 Starlink 网站，大多数套件会在 2 周内发货。
+作者：日本方舟农场 – Andy5
 
-Starlink 的本地网站最近上线，承诺在“2021 年中后期”为大多数地址提供服务。 服务是按照“先到先得”的原则提供的，但就可用服务数量或预期客户负载而言，没有真正的迹象表明这真正意味着什么。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-Starlink 在加拿大的费用是多少？
+近日，美国前国务卿蓬佩奥出席World Knowledge Forum时指出世界面临撕裂的三大原因都源自中国共产党。一是由于中共撒谎以及联合国对中共卑躬屈膝而造成全世界大流行的中共病毒；二是中共的一带一路项目，其本质就是新型帝国主义；三是中共开始着手取代美国的领导地位，比如在疫情期间中共没有放下报复美国的野心反而让其野心更加膨胀，它们撕毁了本该遵守至2047年的中英联合声明。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-120.jpg)
+蓬佩奥国务卿说，看到香港沦陷以及中共对其之前庄严承诺过的义务表现出的轻蔑态度，每个人都该问自己，中共国所签的哪一个正式文件会得到中共的执行？同时，蓬佩奥国务卿明确指出，中共就是个强盗政权，中共国被一群强盗所领导着。
 
-Starlink 的单月计划定价为 129 加元，没有规定的数据上限。
+参考链接：
 
-然而，还有更多。 您还需要购买接收器设备和硬件，费用为 649 加元加上 65 加元的运输和处理费用。 如果您被选为 Starlink 客户，则必须预先支付设备和运费。
+[蓬佩奧國務卿在Wolrd Knowledge Forum的演講](https://gettr.com/post/pf49hc950a)
 
-Starlink 在加拿大的速度有多快？
+（本文仅代表作者观点）
 
-Starlink 正在宣传其服务将能够达到 50Mb/s 到 150Mb/s 的速度，在大多数位置延迟从 20 毫秒到 40 毫秒。 但它还指出，“也会有短暂的完全没有连接的时期。” 从理论上讲，随着 Starlink 随着时间的推移增加其卫星舰队，这将不是一个问题。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-但是，与任何无线技术一样，许多因素都会影响您的网络速度，包括环境和网络内的需求。 所以就像一条繁忙的道路，如果有太多的客户试图同时访问互联网，每个人的服务都可能会变得缓慢。 这就是 Starlink 不提供普遍服务的原因之一。
+总编/编辑：木白
+校对/发稿：Fei797
 
-**译者注：**在疫苗灾难爆发后，出现各种错综复杂局面，wifi的保障至关重要，
+**更多资讯，更多关注**
 
-希望大家密切关注马斯克星链计划的进展，尽早未雨绸缪，多做准备。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-新闻链接：[https://www.finder.com/ca/starlink](https://www.finder.com/ca/starlink)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-编辑/发布：LILY
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-20211025
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

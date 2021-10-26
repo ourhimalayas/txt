@@ -2,31 +2,9 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月25日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1618009/)
+## 《在川普时代》有一整章有关羟氯喹本可挽救数百万生命
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1618036/)
 
-作者：香草山翻译部
+10/21/2021 彼得·纳瓦罗：我的新书《在川普时代》即将问世，书中有一整章关于羟氯喹本可以挽救数百万人的生命。内布拉斯加州总检察长道格·彼得森表示，私人医生可以开羟氯喹和伊维菌素来治疗中共病毒。阅读《在川普时代》这本书，您就会明白内布拉斯加州本周所做的事情有多么重要。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-413.png)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1025text-SC.png)
-文章仅代表作者本人观点，与Gnews无关
-
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[晚GTV新闻访谈](https://gtv.org/broadcast/watch/61774b8aeadeb11f5e7a7e7c)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
