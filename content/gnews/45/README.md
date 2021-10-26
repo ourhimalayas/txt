@@ -2,32 +2,32 @@
 ---
 
 
-## “人权火炬传递”行动 抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618082/)
+## 郭文贵先生对新中国联邦人强调“爱”的重要性
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618184/)
 
-作者：澳喜农场 – 在远方
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+作者：纽约香草山农场 – 恩永存
 
 
 
-10月24日，海外人权组织发起“人权火炬传递”行动，呼吁各国在外交层面抵制北京冬奥会。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
 
-该游行由人权组织“现在就说不”发起，从德国汉诺威开始，在英国伦敦、德国柏林、瑞士日内瓦和奥地利维也纳等地，接力传送自制的人权火炬。维吾尔人、藏人和港人组织予以声援，并参与游行。
 
-“现在就说不”创办人Olaf Stando表示，尽管中共在2008年奥运会前曾许诺改善人权状况，但事实证明，新疆维吾尔人、藏人和香港人正遭受迫害，中共国人权状况正在持续恶化。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-121.jpg)
-参考链接：
-[英国伦敦近百人游行 呼吁各国向北京冬奥“说不”](https://www.rfa.org/mandarin/yataibaodao/gangtai/al-10242021161901.html)
+
+10月24日文贵大直播中，郭文贵先生说：人类生存的价值大部份来自家庭，人最重要的关系就是家庭关系，而家庭中父母就是重中之重。郭先生曾经要求盘古员工必须孝敬父母，做不到就别来上班。一个父母都不尊重的人，说什么郭先生都不会尊重他。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-21.jpg)
+共产党这个魔鬼，毁了家庭，以爹亲娘亲不如党亲来洗脑人民，让人不孝敬父母。造成了太子爷般的儿子、孙子打父母，打爷爷奶奶；媳妇打公公等丧绝人伦之事。这种恶是郭先生决心灭共的最早起因。
+
+郭先生强调：新中国联邦人，不管你有什么信仰，不把父母和家人放在第一位，不把爱和爱人放在第一位，你永远不会是新中国联邦人。家和万事兴。“和”来源于“爱”，没有“爱”就没有“和”；没有“和”，“家”就站立不住；没有“家”，就没有“国”。因此，“家”是“国”的根本。而“爱”是“家”的根本，因此，没有“爱”就不配做新中国联邦人。
+
+参考链接：[郭文贵先生对新中国联邦人强调“爱”的重要性](https://gettr.com/post/pf2ptd1c68)
 
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-总编/编辑：木白
-校对/发稿：为真不破20
+总编：木白
+编辑：木白
+校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
 
@@ -40,7 +40,4 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)

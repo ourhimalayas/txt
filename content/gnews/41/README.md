@@ -2,28 +2,20 @@
 ---
 
 
-## “莆田刀客”欧金中前妻遭中共监视居住
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618189/)
+## “香港加油”成为香港马拉松被禁敏感词
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618193/)
 
 作者：澳喜农场 – 在远方
+![This image has an empty alt attribute; its file name is image-40-1-6.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
+24日，在时隔两年八个月之后，渣打香港马拉松赛，在“港版国安法”阴影笼罩下再次举行。港共政府打着“预防及打击恐怖主义活动”的旗号，派出数千警员高压戒备。荒唐的是，一个简单的“香港加油”的双体书法服饰，竟然也成为所谓的“敏感词”而被禁用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-17.jpg)
+在比赛前，许多选手因为背心或者短裤上，印有竖看为“香港”，横看为“加油”的双体书法，被要求更换服饰，否则不能参赛。如果身上有“香港加油”的纹身，也被要求用胶布遮盖。还有选手透露，有工作人员威胁他们，如果穿有“香港加油”字句的服饰，就“后果自负”。
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-20.jpg)
-中国民间权益组织“民生观察”，23日引用律师消息称，莆田欧金中被中共宣称自杀身亡后，其前妻欧秀香被中共当局，以“涉嫌包庇罪”为由监视居住，其前妻姐姐的两个儿子、女儿，也因该在事件中所谓涉嫌“散布谣言”而被查。
-
-据悉，殁年55岁的欧金中，因被邻居阻拦翻盖旧房，5年求告无门而激情杀人，导致对方2死3伤。在逃亡8日后，中共当局称其在警方围捕下自杀身亡。该事件发生以来，中国网民一边倒对他表示同情，并称之为“莆田刀客”。
-
-参考链接：
-1. [“莆田刀客”欧金中前妻遭中共监视居住](https://www.rfa.org/mandarin/Xinwen/7-10242021153412.html)
-2. [“莆田刀客”欧金中前妻遭中共监视居住](https://baijiahao.baidu.com/s?id=1713952782832797232&amp;wfr=spider&amp;for=pc)
+参考链接：[“香港加油”成为香港马拉松被禁敏感词](https://www.voachinese.com/a/hong-kong-marathon-censors-sensitive-slogans-20211024/6283428.html)
 
 （本文仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
 总编：木白
 编辑：木白
@@ -40,4 +32,4 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
