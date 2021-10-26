@@ -2,27 +2,44 @@
 ---
 
 
-## 免疫专家：未接种疫苗的人并不危险，接种疫苗的人却很危险
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1619599/)
+## 医生因新冠疫苗接种状况而拒绝进行挽救生命的肺移植手术
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1619613/)
 
-**撰稿：日本东京方舟农场 子辰**
+作者：Alexandra Lavoie
+翻译: HimaBoy
 
-世界卫生组织欧洲免疫咨询专家组前副总裁克里斯蒂安佩龙教授近期表示，所有接种疫苗的人都必须在冬季隔离，否则可能会患上严重疾病，而未接种疫苗的人对他人并不危险。
 
-Perronne 教授专门研究热带病理学和新兴传染病，他是公共卫生高级委员会传染病专门委员会主席。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/crr.png)图片来源：https://americasfrontlinedoctors.org/2/frontlinenews/immunization-expert-unvaccinated-people-are-not-dangerous-vaccinated-people-are-dangerous-for-others/
+让我告诉你乔安妮·杜普伊斯和她丈夫西尔万·桑斯卡蒂埃的故事。
 
-他说，未接种疫苗的人并不危险，但接种疫苗的人对他人是危险的。他解释道：“现在已经在以色列和英国两个国家得到证实。通过与我认识的以色列许多医生的沟通，得知他们遇到了大问题，医院里的重症病例都出现在接种疫苗的人群中。”
+乔安妮是一名 36 岁的女性，她因囊性纤维化引起的继发性肺部感染住院一个多月。
 
-以色列医生 Kobi Haviv 在第 13 频道新闻中披露，95% 的重病患者都接种了疫苗，完全接种疫苗的人更是占了住院人数的 85-90%。他表示，医院正在开设越来越多的 COVID 分支机构，而疫苗的有效性正在下降或消失。
+最近，医生告诉乔安妮，她在肺移植等候名单上排名第八，如果她想要接受移植手术，就必须接种疫苗。
 
-*注：本文仅代表作者观点，与 Gnews无关*
+由于之前接种过的疫苗会产生明显的副作用，乔安妮不愿意接种新冠疫苗。
 
-*参考链接：*
+因此，医生现在已将乔安妮从移植名单中删除，直到她完全接种疫苗为止。
 
-[Immunization expert: ‘Unvaccinated people are not dangerous; vaccinated people are dangerous for others’](https://americasfrontlinedoctors.org/2/frontlinenews/immunization-expert-unvaccinated-people-are-not-dangerous-vaccinated-people-are-dangerous-for-others/)
+这是无法接受的。我们必须传达这个消息。
 
-* * *
+人们需要意识到这种拒绝的严重程度。一个女人的生命危在旦夕！
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+來源：[https://www.rebelnews.com/lung\_transplant\_candidate\_told\_she\_must\_be\_vaccinated\_before\_she\_can\_move\_forward\_with\_the\_procedure](https://www.rebelnews.com/lung_transplant_candidate_told_she_must_be_vaccinated_before_she_can_move_forward_with_the_procedure)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

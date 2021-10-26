@@ -2,29 +2,27 @@
 ---
 
 
-## SPAC获利，但投资者警告个人崇拜不能取代投资要素
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619206/)
+## 中共欲低价承包泰国水利项目遭当地人权组织强烈反对
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619230/)
 
-作者：香草山佛教部 -文一
+作者：纽约香草山农场 – 007
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据10月24日的消息显示，川普媒体和技术集团在上周收购DWAC之后，其价值已高达82亿美元，而川普本人将拥有合并公司50%以上的股份，价值接近48亿美元。
+泰国议员维拉康近日透露，对于泰国备受争议的尤姆河引水工程，由中共控制的北方工业国际公司此前表示，愿意自费在四年内以12亿美元的造价建造该项目。为此，曾两次拒绝该项目评估的泰国政府于上月批准了这一项目的环境影响评估报告。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide8-8.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-4.jpeg)
 
-但相关消息同时指出，川普的新企业面临巨大的阻力，其产品 Truth Social社交媒体平台已经出现了技术问题并被黑客攻击。 该公司CEO随后也评论称，他们没有财务数据和商业计划。
+当地时间10月25日的消息称，泰国人权组织强烈反对该项目，因担心新水库将淹没村庄，破坏森林，且将对当地克伦土著居民产生不利影响。同时，经评估，此工程“存在严重缺陷”。
 
-投资经验人士路易斯·纳维利尔在10月25日发文表示，个人崇拜不能取代投资基本要素，并且警告投资者称： DWAC的交易尚未完成，目前仍有告吹可能；同时，投资者很可能在合并案中被重新洗牌；另外， DWAC也可能因政治因素陷入困境；即便合并完成，与竞争对手相比，DWAC的可支配现金微乎其微。因此，路易斯建议避开DWAC的投资，并表示华尔街的疯狂将在DWAC上又一次充分展示。
+中共借一带一路之名，蓝金黄当地政客，不惜血本参与基础设施项目，试图进一步扩大在泰国的影响力。对于中共的经济绑架，东南亚国家应提高警惕。
 
 (本文仅代表作者观点)
 
-参考链接：
-1）[‘The Richest He’s Ever Been’: Trump Set To Gain Billions In Net Worth On Moonshot SPAC](https://www.zerohedge.com/political/trump-gains-billions-net-worth-moonshot-spac)
-2）[I’m a Trump supporter, but as an investor I’m wary of the Trump SPAC](https://www.msn.com/en-us/money/companies/i-m-a-trump-supporter-but-as-an-investor-i-m-wary-of-the-trump-spac/ar-AAPVPmB)
+参考链接：[中国公司欲承包泰国水利项目 人权环境人士表示反对](https://www.voachinese.com/a/china-shows-interest-in-a-thailand-water-project/6283640.html)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
 总编：Irene木木
-编辑：Irene木木
+编辑：Kathy文艺
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

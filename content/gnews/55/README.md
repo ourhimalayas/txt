@@ -2,27 +2,17 @@
 ---
 
 
-## 有声|拜登承诺协防台湾，引中共强硬回应
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1617572/)
+## 新东方在线：将停止对义务教育阶段学生提供校外培训业务
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1617586/)
 
-配音：香草山美食部 – 玫瑰园
+撰稿：西枫westca
 
-美国总统拜登公开表示，美国对协助台湾防卫有承诺，随即引发中共国的强烈回应。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unnamed-14.jpg)图片来源：网络图片
+来自搜狐新闻10月25日报道， 新东方在线晚间在港交所公告，宣布将停止中国内地义务教育阶段学科类校外培训服务。预计2021年11末之前生效。
 
-拜登10月21日在巴尔的摩的一个媒体活动时表示，如果台湾受到中共国攻击，美国将施以援手。这次拜登首次公开表示军事手段干涉，引发外界强烈关注。
+新东方教育科技集团是中共国最大的私立教育培训机构，创建于1993年，在2006年于美国纽约交易所上市。新东方在线则在2019年3月于香港交易所挂牌。2021年7月24日，中共国务院发布了“关于进一步减轻义务教育阶段学生作业负担和校外培训负担的意见（简称“双减”），新东方早在8月份就开始关闭多个教学点，改做“美术”、“乐高机器人”等培训项目。此时宣布退出K-2的学科类培训，将面临裁员、提早终止租赁合约、关闭培训中心等一系列对企业带来极大的负面影响的决定。能否成功转型，也是一个极大的未知数。
 
-中共忘图裹挟14亿老百姓，既有战狼汪文斌狂妄警告：任何人都不要站到中共的对立面。白宫发言人在本周五的新闻发布会上再次强调，美国的政策没有改变，美国将继续协助台湾保持其足够的自卫能力。郭文贵先生也在直播中爆料，美国的专业人士明确答复，如果共产党直接攻打台湾的话，美军是会出手的。
+在“双减”政策影响下，教培行业已发生翻天覆地的变化，中共的一纸令下，使得众多中小投资者血本无归，多起培训机构倒闭、数百万从业者对未来工作生涯何去何从？全不在他们的考虑范围之中。 只有推翻这个极权统治，人民才能获得掌握自己命运的权力。
 
-文字版原文：[拜登承诺协防台湾，引中共强硬回应](https://gnews.org/zh-hans/1614811/)
-
-音频处理：喜山必胜Maverick
-
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**新闻来源：**[新东方在线：将停止经营中国内地义务教育阶段学科类校外培训服务](https://www.sohu.com/a/497209097_115479)

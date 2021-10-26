@@ -2,29 +2,29 @@
 ---
 
 
-## 世卫组织（WHO）发布最新关于COVID-19会议声明
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1619594/)
+## 德国慕尼黑汽车游行 呼吁终结中共
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1619611/)
 
-撰稿：西枫westca
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Z2GUWY4J7RJSHLFPTQG37MWV5M.jpg)图片来源：www.reuters.com
-10月26日WHO发布了第九次关于COVI-19紧急委员会会议的声明。声明指出，COVID-19疫情继续构成“国际关注的突发公共卫生事件”。此会议以视频会议方式在10月22日举行。世卫组织的首次COVID-19紧急委员会于2020年1月22日召开，此后每三个月一次。
+近日，德国民众在慕尼黑举办了以“终结中共”为主题的汽车游行，目的是提醒德国，不要只顾眼前利益，对中共侵犯人权的罪行采取绥靖政策，并提醒德国民众警惕中共对全世界的威胁和毒害，与之划清界线。
 
-会议讨论了以下问题：
+据大纪元报道，该游行车队23日在警车开道下，穿梭于慕尼黑城，历时两个半小时。游行车辆上有“终结中共”、“中共不等于中国”、“打倒中共恶魔”等大标语。
 
-- SARS-CoV-2的监测工作与挑战；
-- 通过自然感染或疫苗接种获得免疫力以及两者提供的保护；
-- 确认行动内部审查对缔约国通报和加强应对工作的价值；
-- 强调保持对风险知情和多层面的PHSM（公共卫生与社会措施）的重要性。
+据悉，在出发地点，许多民众看到大横幅后都在“终结中共”的请愿书上签名。另外，沿途也有很多民众，拍照摄像、向车队招手或竖大拇指。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/id13329054-IMG_9501-600x400-1.jpeg)图片来源：https://www.epochtimes.com/b5/21/10/25/n13329025.htm
 
-委员会对于非洲区域在应对COVID-19大流行方面所面临的挑战表示关切， 包括其需获得足够的疫苗、诊断和治疗以及收集数据。并认识到大流行病的长期性对人道主义紧急情况、大规模迁移，人口流离失所和其他危机增加了负担。
+据报道，在利益的驱动下，巴伐利亚政治经济界逐渐向中共靠拢，中共国逐渐成为巴伐利亚全球第一大贸易伙伴。而且，巴伐利亚是德国唯一一个给孔子学院提供资金的联邦州。
 
-委员会建议缔约国应考虑修订其备灾和应对计划以及援助政策，确保能够长期控制这一流行病；保持距离，佩戴口罩、改善室内通风仍是减少病毒传播的关键；此外各国还要对大规模聚集活动的风险进行管理；同时WHO还呼吁，到2021年底使至少40%的各国人口接种疫苗。
+举办方丹妮拉·达斯卡卢（Daniela Dascalu）女士认为，在巴伐利亚首府慕尼黑进行汽车游行，让人们了解中共对世界的危害，意义重大。
 
-WHO在此次会议根本没有提到COVID-19病毒溯源，也未涉及中共病毒疫苗副作用对人们造成的极大危害，反而呼吁各国加强疫苗接种，其在欺骗民众、掩盖真相的道路上越走越远。
+*注：本文仅代表作者观点，与 Gnews无关*
 
-**新闻来源：**[Statement on the ninth meeting of the International Health Regulations (2005) Emergency Committee regarding the coronavirus disease (COVID-19) pandemic (who.int)](https://www.who.int/news/item/26-10-2021-statement-on-the-ninth-meeting-of-the-international-health-regulations-%282005%29-emergency-committee-regarding-the-coronavirus-disease-%28covid-19%29-pandemic)
+*参考链接：*
 
-（本文仅代表作者个人观点）
+[組圖：德國民眾慕尼黑汽車遊行 呼籲終結中共](https://www.epochtimes.com/b5/21/10/25/n13329025.htm)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*
