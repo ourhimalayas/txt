@@ -2,39 +2,24 @@
 ---
 
 
-## 许家印早在2020年就曾私下告知亲信抛售恒大相关资产
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618691/)
+## 中共国一家银行的分行将一家公司的28亿存款用于但保
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1618756/)
 
-作者：美东香草山农场 007
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+撰稿：永遠の小学生文筝
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-12.jpg)网络截图
 
 
-郭文贵先生在10月24日的直播中强调，许家印和恒大，包括中共国的房地产经济都不可能在继续维持下去。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1026-AM-（1-4）.002.jpeg)
-郭先生爆料称，早在2020年，许家印就告知过香港恒生银行持有恒大股票的人尽早卖掉他们手中的股票，且许家印对恒大的未来完全没有信心，他知会身边的朋友尽快卖掉持有的恒大房产。
 
-文贵先生提及，荷兰、丹麦、意大利的几个替许家印在海外藏钱的人员，已经在几个月以前把资产换成了瑞士法郎，或者打折卖给了关系人。其中一个人想用手上的20亿欧元投资喜币，被郭先生拒绝了。另外，许家印的老窝，一所位于纽约57街的房子，经手人试图打五折卖给郭先生。
 
-而今，许家印和恒大的末日已到，其资产正在被变卖并运回中共国。
 
-郭先生呼吁，大众别再对许家印抱有任何幻想，不要与他一起被中共埋葬。
-(本文仅代表作者观点)
 
-参考链接：[2021年10月24日 文贵大直播](https://gtv.org/video/id=617551cfeadeb11f5e79f5d5)
+2021年10月25日，墙内爆出一条新闻，说是渤海银行的南京分行把江西一家企业存的33亿元中的28亿，偷偷用作了其他企业的质押担保。这就相当于一个普通人到银行存了一笔钱，某一天银行突然电话告知，您的理财破产了，但我当时是存的定期啊，手里拿的是定期存单啊。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+江西的一家叫济民可信的企业下属的山禾药业跟恒生制药的28亿元，被渤海银行南京分行用于质押为一家叫华业石化的公司提供担保，而这家华业石化据说是中国石油集团控股公司。就算事情败露，恒生制药存的三笔“新易存”12亿元存款已被质押不能支取，其他的多笔存款恒生制药和山禾药业也已无法支取。
 
-总编：Ivy001
-编辑：珈沅
-校正/发稿：我不在这里
+这次挪用存款的事件跟以往不同的是，首先是在未通知的情况下就把一家企业的存款拿来给权力阶层有关联的企业来做担保。能做这种事就说明华业石化原来就是不打算还钱。再来就是相当于一家企业明着对另一家企业抢钱。当前中共国经济已处在金融危机时期了，还不上钱的其他企业会用这一招，用别人的钱来替自己还钱，从平常民间常见的骗局变成企业这个层次的事件。这可能跟中共要对企业家下手也有一定的关系，让企业之间互相掐架，最后再找个背锅的工作人员出来平息这件事。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+各种理财把平常人的钱袋子骗光子，下一步就要开始搜刮企业家的钱，总之办法是有多少就能想出多少来，这种事注定会越来越多，没有跟中共脱离就逃不过被收割的命运。自以为有钱就能买平安是幼稚的想法，中共会杀了你再拿走你的钱，凭什么要多留一张吃饭的嘴，多麻烦。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+(本文纯属个人观点，与Gnews无关)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

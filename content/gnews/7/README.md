@@ -2,20 +2,23 @@
 ---
 
 
-## 蓬佩奥警告拜登必须信守保卫台湾的承诺
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1618803/)
+## 可支配收入，又拖了国家的后腿
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1618866/)
 
-#### 撰稿：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-97.jpg)图片来源：网络截图
-据Newsmax 10月24日报道，前国务卿迈克·蓬佩奥在周日接受 “猫咪圆桌”（The Cats Roundtable）主持人约翰·卡西马蒂斯采访时说，拜登总统必须信守承诺，保卫台湾不受中共国侵犯。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-148.jpg)
+[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fwww.xinhuanet.com%2Ffortune%2F2018-08%2F09%2F1123245651_15337826023261n.jpg&amp;imgrefurl=http%3A%2F%2Fwww.xinhuanet.com%2Ffortune%2F2018-08%2F09%2Fc_1123245651.htm&amp;tbnid=dTvvqJ04003V5M&amp;vet=12ahUKEwibuqmrkOjzAhUzlUsFHYjmBhoQMygUegUIARDEAQ..i&amp;docid=ikr12hS1UAM6JM&amp;w=640&amp;h=365&amp;q=%E5%8F%AF%E6%94%AF%E9%85%8D%E6%94%B6%E5%85%A5&amp;ved=2ahUKEwibuqmrkOjzAhUzlUsFHYjmBhoQMygUegUIARDEAQ)
 
-蓬佩奥看到拜登总统说，美国有保卫台湾的承诺，他希望他是有意说这句话的。“你不能这样画一条红线。你不能做出这样的声明，而且不是真心的。现在有一种期望，即他将贯彻这一承诺，我希望拜登政府考虑清楚，这不是一个不清楚自己在说什么的总统的随意评论。”
+人民网北京10月25日电，国家统计局网站近日公布了31个省份前三季度居民人均可支配收入情况和人均消费支出情况。其中，9个省份居民人均可支配收入高于全国平均水平，8个省份居民人均消费支出高于全国平均水平。
 
-蓬佩奥还指出，中共国在过去一周半的时间里测试了其高超音速导弹系统，而且习近平主席说，他想首先把台湾“收回保护伞”下，进而扩张到该地区，然后胁迫整个世界。
+国家统计局此前公布的数据显示，前三季度，全国居民人均可支配收入26265元，比上年同期名义增长10.4%；扣除价格因素影响，实际增长9.7%，与GDP增长基本同步。从消费来看，31省份中，8个省份前三季度居民人均消费支出高于全国平均水平，分别是上海、北京、浙江、天津、广东、江苏、福建、重庆。其中，前7个省份超过了2万元，均为东部和沿海地区，来自西部的直辖市重庆紧随其后，居民人均消费支出跑赢全国平均水平，在中西部地区领先。
 
-关于边境非法人数激增的问题，蓬佩奥说拜登不应该偏离前总统川普的成功政策。
+2020年中国家庭的偿债负担为137.9％，变成纯负债大国，每个国人负债7万元额度何来消费支配？被平均后的收入与支出，不仅是拖了国家的，还有省里的、市里的、县里的……
 
-他说：“我们有一项实施了四年的政策，该政策在很大程度上创造了一种模式，人们不会大量跨越我们的边界。这项政策叫‘留在墨西哥’。他们正在谈论重新实施该政策，但天哪，他们为什么要把它毁掉它？为什么要停止这样做？这简直是解释不通。这造成了真正的风险，不仅是对我们谈到的那些年轻人，而且对美国。因为谁知道来的是谁，谁知道这些人最终会去哪里？我们不会有他们的踪迹。当越境的人数如此之多时，这是一种危险。他们会带着武器来，他们会带着毒品来，芬太尼最终会成为这里的一个大问题，因为它。我们必须清理这个问题，不仅在我们的南部边境，而且在我们所有的入境点，机场和我们的北部边境。”
+消息来源：[前三季度各地居民人均可支配收入及消费支出数据出炉](https://mo.mbd.baidu.com/r/vmZ88JjtbG?f=cp&amp;rs=201960695&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=ce315cddfc3b5b0c)
 
-新闻来源：[Mike Pompeo: Biden Must Keep Commitment to Defend Taiwan](https://www.newsmax.com/politics/mikepompeo-catsroundtable-china-taiwan/2021/10/24/id/1041780/)
+免责声明：文章仅代表作者本人观点，与GNEWS无关
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)

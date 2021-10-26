@@ -2,21 +2,20 @@
 ---
 
 
-## 秘翻在线：NIH被指控资助了虐待猴子的实验
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1618751/)
+## 蓬佩奥警告拜登必须信守保卫台湾的承诺
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1618803/)
 
-#### 翻译撰稿：zzballack
+#### 撰稿：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-97.jpg)图片来源：网络截图
+据Newsmax 10月24日报道，前国务卿迈克·蓬佩奥在周日接受 “猫咪圆桌”（The Cats Roundtable）主持人约翰·卡西马蒂斯采访时说，拜登总统必须信守承诺，保卫台湾不受中共国侵犯。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Snipaste_2021-10-26_19dsa56456d-58-44.png)
+蓬佩奥看到拜登总统说，美国有保卫台湾的承诺，他希望他是有意说这句话的。“你不能这样画一条红线。你不能做出这样的声明，而且不是真心的。现在有一种期望，即他将贯彻这一承诺，我希望拜登政府考虑清楚，这不是一个不清楚自己在说什么的总统的随意评论。”
 
-据《每日邮报》（Daily Mail）10月25日报道，纳税人监督组织“白大褂浪费项目（White Coat Waste Project，WCW）”上周末曝光了美国国立卫生研究院（NIH）下属机构、福奇领导的美国国家过敏和传染病研究所（NIAID）对小猎犬幼犬进行的残忍实验。
+蓬佩奥还指出，中共国在过去一周半的时间里测试了其高超音速导弹系统，而且习近平主席说，他想首先把台湾“收回保护伞”下，进而扩张到该地区，然后胁迫整个世界。
 
-其实早在2019年12月，WCW就曾指控NIH在猴子身上进行“怪异的心理学实验”，并在实验中用硫酸、玩具蛇和橡胶蜘蛛折磨猴子。NIH已资助这类实验连续40多年，从2007年起，这些实验就花费了近1亿美元纳税人的钱。
+关于边境非法人数激增的问题，蓬佩奥说拜登不应该偏离前总统川普的成功政策。
 
-一段被公开的猴子实验录像显示，心烦意乱的灵长类动物被锁在狭小的笼子里，研究人员用橡胶蜘蛛和机械蛇吓唬它们，以观察它们的恐惧本能反应。NIH的科学家们随后切除了它们的部分大脑，或用酸液伤害它们，以“故意加重灵长类动物的恐惧”。在视频中，可以听到一个冷酷
+他说：“我们有一项实施了四年的政策，该政策在很大程度上创造了一种模式，人们不会大量跨越我们的边界。这项政策叫‘留在墨西哥’。他们正在谈论重新实施该政策，但天哪，他们为什么要把它毁掉它？为什么要停止这样做？这简直是解释不通。这造成了真正的风险，不仅是对我们谈到的那些年轻人，而且对美国。因为谁知道来的是谁，谁知道这些人最终会去哪里？我们不会有他们的踪迹。当越境的人数如此之多时，这是一种危险。他们会带着武器来，他们会带着毒品来，芬太尼最终会成为这里的一个大问题，因为它。我们必须清理这个问题，不仅在我们的南部边境，而且在我们所有的入境点，机场和我们的北部边境。”
 
-无情的NIH人员开玩笑说：“跳舞的猴子究竟在哪儿？”WCW声称这些被录下的实验发生在马里兰州贝塞斯达的国家心理健康研究所（NIMH）。WCW曾要求NIH向他们提供与灵长类动物的浪费和怪异心理学实验有关的视频和其他材料，但却被拒绝。
-
-WCW的调查促使国会指示NIH委托美国国家学院（National Academies）独立研究这类灵长类动物实验的替代方案，而且必须在2020年底前报告其减少和取代灵长类动物实验的努力。
-
-新闻来源：[**NIH is now accused of spending $100m of taxpayer’s money on torturing lab monkeys with ACID and snakes: DeSantis leads calls for Fauci to quit after he was revealed to have funded horrific testing on beagles**](https://www.dailymail.co.uk/news/article-10129521/NIH-tortured-monkeys-acid-toy-snake-Fauci-faces-calls-resign-dog-torture-tests.html)
+新闻来源：[Mike Pompeo: Biden Must Keep Commitment to Defend Taiwan](https://www.newsmax.com/politics/mikepompeo-catsroundtable-china-taiwan/2021/10/24/id/1041780/)

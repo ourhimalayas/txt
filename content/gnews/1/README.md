@@ -2,34 +2,46 @@
 ---
 
 
-## 共产党对川普先生的构陷
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1618834/)
+## COVID-19最新情報｜瑞典、英國新冠死亡案例 集中於「完全接種者」
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1618967/)
 
-By：银河勇气星｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/10/截屏2021-10-26-下午8.25.45.png)川普先生 / 图源：网路
-我们回到2020年的总统大选，当时川普总统是大热门。从川普总统，班农先生，以及川普的内阁中，纳瓦罗和蓬佩奥等人，在爆料革命这里都受到极高的尊重，很简单，因为他们对共产党的敌对态度。尤其川普总统任期的四年里，两件事让大家对他尊敬，一是没有遣返文贵先生，二是对共产党摆正了严肃的对立态度，贸易战大家都看得到的。
+**台灣寶島農場 疫情關注組｜發佈日期/ 26/10/2021**
 
-记得大选期间，文贵先生说不到最后一秒钟，这事儿不会定下来。同时告诉战友说川普百分之一万会当选。结果也正是这样的，川普确确实实百分之一万当选了总统，真正的选票川普应该比拜登多出来很多。他是名副其实的人民选出来的总统。共产党当然比谁都更加清楚选票的结果，是共产党亲手操纵了假选票，让AI机器人多米尼来选总统，而不是让真正的人民来选。美国大选被多米尼操纵以后，又接连爆出了很多关于多米尼操纵各国选举的事实。综合来看，共产党通过蓝金黄的手段，几乎让全世界有影响力的国家的选举都变成了机选，有些所谓的总统，从某种程度上来说，可能是共产党基因地图里的某个私生子。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-文贵先生还说此次总统大选会以非常滑稽的结果呈现出来。让我们来看看2020年美国总统大选这个选举结果有多滑稽，共产党操作了多少欲盖弥彰，欲加之罪。我们从媒体上看到的有1月6号国会暴乱事件，有1月20号拜登就职演说现场那异常诡异的画面。世界上目前看来最好的国家，美国，他们的总统大选变成了一场骗局，这个骗局滑稽的关键就是，在美国这样言论自由的国家，自由民主的基础即一人一票选总统的秩序，被不讲秩序的共产党在光天化日之下破坏了，而且你讲不出来，你哭不出来，你笑不出来。以至于后来枕头哥在收集到关于总统大选改选票的重要证据的时候，选择爆料的媒体是GTV，选的时间事件是新中国联邦一周年的庆祝宴会上。还有啥比这个更憋屈的？本地美国人自己的总统大选被偷盗了，没地儿说理，捍卫自己的民主自由只能跑到新中国联邦来说，这放在2020年之前，都是其他国家没有自由民主，跑到美国来寻求自由民主的，这大选的滑稽一直蔓延了这么长时间。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-93-2.png)枕头哥在新中国联邦一周年上对总统大选舞弊的实锤暴料 / 图源：网路
+瑞典、英國政府分析數據，發現9月因感染新冠病毒死亡者，絕大多數是完全接種者。這一結論，與西方國家於高疫苗覆蓋率的情形，突破性感染數量激增相符合。
 
-川普总统有多憋屈，自己明明才是真正的民选总统却不被承认，社交媒体还封禁了他的账号。讲老实话，虽然他是做房地产出身的，对虚拟经济不太感冒，但是他的Twitter账号上，仍然能够感受到他的开心，他是喜欢社交媒体的，但不代表他就认为社交媒体具有巨大的力量。而那些个bigtech，背后和共产党合作，对所有人开始了人口普查一样的文革监视操作，比如最近你说出关于打疫苗造成的危害，或者疫苗导致的死亡，对不起你号没了。是总统又如何，号没了连个发声的媒介都没有。这同样是大选的滑稽后遗症。
+#### 瑞典
 
-Gettr上线后，由于CEO Jason作为川普前团队成员的身份，自然吸引来大批的支持川普的老百姓。从另外一个意义上来讲，很多支持川普的人，大部分都是反共的，或者是在其他社交媒体一说话就被封号的人，这可算找到一个不封号的地方了，可以自由表达自己的政治意见。文贵先生爆料说让大家关注的那个和川普有关的号，那个就是川普总统本人，他自己本身是很喜欢Gettr的，用着也非常开心。共产党有多么惧怕川普总统加入Gettr，让吴征开始操纵，把川普总统进行构陷，又在美国的青天白日，自由女神下，不要脸不要腚地又破坏了别人的自由民主，让川普总统的一家人都即将陷入官司的漩涡中。而吴征这个王八蛋，作为美国公民，已经在2019年就被FBI刑事调查了，一直不敢来美国。已经被调查了，还在顶风作案，这么对法律不尊重的人，法律会给他最合适的审判。
+[瑞典媒體](https://www.svd.se/forskare-ser-en-vikande-vaccineffekt-i-sverige)報導，公衛部門報告表示9月1日至24日，約[7成（130例）](https://ourworldindata.org/explorers/coronavirus-data-explorer?zoomToSelection=true&amp;time=2020-03-01..latest&amp;facet=none&amp;pickerSort=desc&amp;pickerMetric=total_cases&amp;hideControls=true&amp;Metric=Confirmed+deaths&amp;Interval=Cumulative&amp;Relative+to+Population=false&amp;Align+outbreaks=false&amp;country=~SWE)新冠確診死者是已經完全接種疫苗。報導進一步分析，死亡主要發生在老年族群，但相關人員仍認為瑞典疫苗保護力有下降趨勢。
 
-善良心软的人跟着文贵先生这一路，从一开始的惊讶愤怒到现在还是惊讶愤怒，但多了很多对共产党的邪恶的理解。像Jason先生，川普先生电话让他回去，他回绝了。他应该早知道那是共产党的背后操纵的结果了。文贵先生说川普先生最后肯定会回来Gettr的，也是非常不可思议的结局。
+- 相關：[瑞典研究顯示完全接種疫苗後，抗體將在三個月後急劇下降](https://gnews.org/zh-hant/1576453/)
+- 相關：[疫苗與ADE效應](https://www.chop.edu/centers-programs/vaccine-education-center/vaccine-safety/antibody-dependent-enhancement-and-vaccines)
 
-新中国联邦不掺合任何政治，但是会给任何不同意见者提供平台。枕头哥那次的爆料，感觉不是在帮川普总统，应该帮了他自己。Jason跟了川普6年，依然放弃了回去和川普再次共事，也是自己的选择。一切事情都在发展中，而一切都不会结束，美国也许只是刚刚开始。
 
+#### 英國
+
+英國衛生部門數據顯示，瑞典情形也在英國發生。[英國、瑞典的疫苗接種率](https://coronavirus.data.gov.uk/details/vaccinations)幾乎相同。
+
+英國衛生安全局 (UKHSA) 於 10 月 7 日發布[報告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1023849/Vaccine_surveillance_report_-_week_40.pdf)，9月份大多數的死亡病例都已經完全接種疫苗。突破性感染而住院治療的病患，也是完全接種者佔多數。UKHSA 的數據顯示，「完全接種疫苗」死亡數量有2281人，遠高於未接種疫苗、部分接種疫苗。
+
+
+
+> Surging [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) in UK with 49,156 new cases and 45 new [#deaths](https://twitter.com/hashtag/deaths?src=hash&amp;ref_src=twsrc%5Etfw) reported on 18 October 2021. 78.9% of all aged 12 and up are DOUBLE VACCINATED. [#Breakthrough](https://twitter.com/hashtag/Breakthrough?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Geoffrey Norman Pain (@FluoridePoison) [October 18, 2021](https://twitter.com/FluoridePoison/status/1450225202353225729?ref_src=twsrc%5Etfw)
+
+
+
+- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
+- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
+- 相關：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
+- 相關： [COVID-19最新情報｜為何政府「忽視」自然免疫？](https://gnews.org/zh-hant/?p=1610194%28%E5%9C%A8%E6%96%B0%E5%88%86%E9%A0%81%E4%B8%AD%E9%96%8B%E5%95%9F%29)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/18-6.jpg)
 * * *
 
-***文章内容仅代表作者观点***
-
-作者：骄子
-审核：兵嫂、天雷滚滚
-发布：骄子
-
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家-1.jpeg)
+新聞來源｜[Natural News](https://www.naturalnews.com/2021-10-25-majority-of-covid-deaths-are-fully-vaccinated.html)
+轉譯｜zhong
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
