@@ -2,20 +2,45 @@
 ---
 
 
-## 数以万计的加拿大医护人员面临被解雇惩罚
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1618956/)
+## 澳洲防长表示若中共武力犯台将与美国同进退
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619041/)
 
-编译撰稿：硫酸羟氯喹64
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-10-edited.jpg)图片来源：CBC
+作者：纽约香草山农场医疗部 – 云豹
 
 
-加拿大自媒体《真北方》10月25日刊文报道，根据该媒体最近进行的全国调查，加拿大各地目前有数以万计的医护人员因未接种“新冠病毒疫苗”而面临被解雇或其他纪律处罚。
 
-该调查数据明确显示，在9月28日至10月25日期间，全加拿大有约26425名护士、医生和其他医疗行业的工作人员可能会因为不遵守其工作场所或省政府制定的各种“新冠病毒”疫情的卫生规定而遭到当局惩罚，包括被解雇或无薪休假。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-此外，该调查结果还发现，在全国各地那些未接种该疫苗的医护工作者中，魁北克省卫生部的人员最多，有15000人面临被停职；其次是卑诗省卫生部，约5,512人面临被解雇。而仅渥太华医院目前就有约318名职员面临无薪休假的境况。
 
-（以上内容仅代表原文信息和作者个人观点）
 
-[原文链接：](https://tnc.news/2021/10/25/so-far-over-26000-healthcare-workers-face-discipline-or-firing-for-being-unvaccinated/)
+澳洲国防部长杜登（Peter Dutton）于25日接受澳洲天空新闻（Sky News Australia）访问时表示，如果中共以武力侵犯台湾，澳洲将采取与美国同进退的应对策略。当被问到澳洲是否会与中共发生战争，他回答说这是中共应该回答的问题。
+
+杜登表示，澳洲与美国、英国、加拿大、纽西兰是长期盟友。澳洲与美国、印度、日本也组成「四方安全对话」（Quad）关系；澳洲、美国与东南亚国家协会（ASEAN）也有紧密的合作。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-12.jpg)
+杜登说，澳洲国家安全委员会（National Security Committee）最近6年来，持续在关注中共可能武力犯台的问题。从中共对付香港的方式来看，中共已经决定要进一步对付台湾。而美国已经清楚表达对台湾问题的态度。
+
+参考链接：
+[澳洲防長：如中國武力犯台 將與美國同進退](https://www.cna.com.tw/news/firstnews/202110250011.aspx)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编/编辑：木白
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

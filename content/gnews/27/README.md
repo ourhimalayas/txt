@@ -2,32 +2,23 @@
 ---
 
 
-## 中共的强制抗疫政策
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618806/)
+## 可支配收入，又拖了国家的后腿
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1618866/)
 
-作者：澳喜农场 在远方
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-148.jpg)
+[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fwww.xinhuanet.com%2Ffortune%2F2018-08%2F09%2F1123245651_15337826023261n.jpg&amp;imgrefurl=http%3A%2F%2Fwww.xinhuanet.com%2Ffortune%2F2018-08%2F09%2Fc_1123245651.htm&amp;tbnid=dTvvqJ04003V5M&amp;vet=12ahUKEwibuqmrkOjzAhUzlUsFHYjmBhoQMygUegUIARDEAQ..i&amp;docid=ikr12hS1UAM6JM&amp;w=640&amp;h=365&amp;q=%E5%8F%AF%E6%94%AF%E9%85%8D%E6%94%B6%E5%85%A5&amp;ved=2ahUKEwibuqmrkOjzAhUzlUsFHYjmBhoQMygUegUIARDEAQ)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+人民网北京10月25日电，国家统计局网站近日公布了31个省份前三季度居民人均可支配收入情况和人均消费支出情况。其中，9个省份居民人均可支配收入高于全国平均水平，8个省份居民人均消费支出高于全国平均水平。
 
+国家统计局此前公布的数据显示，前三季度，全国居民人均可支配收入26265元，比上年同期名义增长10.4%；扣除价格因素影响，实际增长9.7%，与GDP增长基本同步。从消费来看，31省份中，8个省份前三季度居民人均消费支出高于全国平均水平，分别是上海、北京、浙江、天津、广东、江苏、福建、重庆。其中，前7个省份超过了2万元，均为东部和沿海地区，来自西部的直辖市重庆紧随其后，居民人均消费支出跑赢全国平均水平，在中西部地区领先。
 
+2020年中国家庭的偿债负担为137.9％，变成纯负债大国，每个国人负债7万元额度何来消费支配？被平均后的收入与支出，不仅是拖了国家的，还有省里的、市里的、县里的……
 
-中共内蒙古额济纳旗于当地时间25日零时宣布封城，当局公告称，禁止居民出户且禁止游客出店，否则将被追究民事和刑事责任。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/p5.001.jpeg)
-据内部战友透露，中共先是研制并释放病毒，造成世界性的灾难，其后又采取了极端严酷的疫情防控措施，动辄封门、封路、封城，任由民众自生自灭，最终导致民怨四起。为了防控疫情，中共国是全世界唯一一个全面阻止公民返国，并禁止疫区病患外出寻求医疗援助的国家。
-(本文仅代表作者观点)
+消息来源：[前三季度各地居民人均可支配收入及消费支出数据出炉](https://mo.mbd.baidu.com/r/vmZ88JjtbG?f=cp&amp;rs=201960695&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=ce315cddfc3b5b0c)
 
-参考链接: [中国新一轮封城抗疫行动 成效与可持续性受考验](https://www.voachinese.com/a/china-braces-for-covid-19-new-lockdowns-20211025/6284255.html)
+免责声明：文章仅代表作者本人观点，与GNEWS无关
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-编辑/总编：Irene木木
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)

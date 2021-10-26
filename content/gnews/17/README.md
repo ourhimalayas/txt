@@ -2,46 +2,27 @@
 ---
 
 
-## COVID-19最新情報｜瑞典、英國新冠死亡案例 集中於「完全接種者」
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1618967/)
+## 暴力雇主的常态化
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1619046/)
 
-**台灣寶島農場 疫情關注組｜發佈日期/ 26/10/2021**
+作者：东京樱花团｜阿恩
+![](https://lh3.googleusercontent.com/QUdj-YOIratuRFeBGRMm5eJ1mF5aqr0VtM9IOPCtGvHp0PIs4CWz6cF40rVODkAeVEGKXYCriC8CR4ytBvRk3D_3w-oKNrjLm99rUL80TI7rY7rVg6m-k_Sut6tCAeay6_2c7Fi_=s1600)[图片来源](https://www.thestandnews.com/society/ab-%E7%91%AA%E9%BA%97%E9%86%AB%E9%99%A2%E9%87%8D%E5%BB%BA%E5%9C%B0%E7%9B%A4-%E9%80%BE%E7%99%BE%E5%B7%A5%E4%BA%BA%E4%B8%80%E5%BA%A6%E5%A0%B5%E8%B7%AF-%E5%B7%A5%E4%BA%BA%E7%AA%81%E9%81%AD%E8%A7%A3%E5%83%B1-%E7%A7%81%E4%BA%BA%E7%89%A9%E5%93%81%E8%A2%AB%E6%A3%84%E7%BD%AE)
+香港有完善的劳工法保护劳工的权益，无论是本地还是海外劳工，所有在香港合法工作的人，都能得到依法的保障。雇主解雇劳工需要事先与劳工代表协商，有时候劳工处的职员也需要介入，如果仍不能解决，就可上诉至法院，由法官判决。香港有个小额钱债法庭，专门快速审理不超过 75,000 元的金钱申索，许多劳资纠纷都可以通过这个方式得到解决。另外，媒体也是助力，一些工人不满解决方案，就会联系媒体曝光，在舆论的压力下，也能有效地驱动公义的彰显。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+今日的报章刊登了一则暴力解雇的消息，玛丽医院重建地盘的上百名工人今日开工吃了闭门羹，不仅私人物品被弃之门外，还被口头告知因安保理由遭即时解雇，最后每名工人仅赔偿几百至千余元了事。这在从前的香港简直是闻所未闻的奇事，雇主突然大规模解雇工人，不仅要支付高昂的违约金，还要承担法律诉讼的风险，这是得不偿失的举动，为何在中共的暴政管制下，上至政府，下至雇主都魔化了？
 
+香港建筑界的规程一直按英国的行业标准进行规管，香港的桥梁道路等基础设施的建设，以及楼宇大厦的建设都有严格的施工要求和检测程序，定期维护和定点维修的功夫也十分细致，所以香港的建筑工程进度比较缓慢，但极少出现豆腐渣工程。在旧区重建的九龙区有许多百年历史的建筑物屹立，在香港岛更有大量殖民时期坚固的欧式建筑。香港的建筑工人劳力辛苦风险高，在法治盛誉的香港，施工质量是追求的目标，所以工人年资越老越抢手，以致香港建筑界工人的工资一直都十分有吸引力。前些年香港金融界风生水起，吸引了愈来愈多的年轻人从事金融行业，建筑业工人青黄不接，人工也水涨船高。
 
-瑞典、英國政府分析數據，發現9月因感染新冠病毒死亡者，絕大多數是完全接種者。這一結論，與西方國家於高疫苗覆蓋率的情形，突破性感染數量激增相符合。
+由于建筑工人是高风险工种，许多保险项目都不接受他们投保，但由法律强制要求雇主为工人购买足额的劳工保险，保额都是以亿元为单位。这一保障助许多意外事故死伤的工人和家属得到及时的补偿。据悉香港劳工死亡的赔偿金额为36-96个月的收入，死亡年龄越小赔偿的金额越高，按现时建筑工人平均工资估计，死亡赔偿金额平均逾300万港元。
 
-#### 瑞典
+现在的香港被中共的国安恶法、病毒和毒疫苗肆虐，导致百业萧条，失业率大增，更多年轻人投身唯一前景看好的建筑业。不过中共却不愿建筑业的肥肉与港人分享，建制派的议员屡次三番地敦促港府向内地建筑企业开放竞标香港的建设项目，还大赞内地企业人工便宜、施工快。据悉，全港注射毒针的人已逼近七成，建筑工地的工人也有硬性的规定，不打针就要一周自费两检。被注射了毒针的工人有多少能在危机四伏的工地中幸存，又有多少会因为毒针致残而丧失劳动能力，建筑工人短缺的警告一响，港府就会应中共之意广招外劳，再也不需要由香港人建设香港，也不会再出现施工单位与本地劳工的劳资纠纷，社会管理成本骤减。我们可以预见不久之后的香港，施工效力巨增，人工成本跳水，建筑质量糟糕……
 
-[瑞典媒體](https://www.svd.se/forskare-ser-en-vikande-vaccineffekt-i-sverige)報導，公衛部門報告表示9月1日至24日，約[7成（130例）](https://ourworldindata.org/explorers/coronavirus-data-explorer?zoomToSelection=true&amp;time=2020-03-01..latest&amp;facet=none&amp;pickerSort=desc&amp;pickerMetric=total_cases&amp;hideControls=true&amp;Metric=Confirmed+deaths&amp;Interval=Cumulative&amp;Relative+to+Population=false&amp;Align+outbreaks=false&amp;country=~SWE)新冠確診死者是已經完全接種疫苗。報導進一步分析，死亡主要發生在老年族群，但相關人員仍認為瑞典疫苗保護力有下降趨勢。
+同胞们还对中共寄予希望吗？你们手中的血汗钱很快就会被它夺取，你所有的一切都将被中共夺取，你的金钱、你的产业、你的家人、你的健康、你的生命。不要再流连奢望中国梦，只有奋起反抗，不为五斗米折腰。
 
-- 相關：[瑞典研究顯示完全接種疫苗後，抗體將在三個月後急劇下降](https://gnews.org/zh-hant/1576453/)
-- 相關：[疫苗與ADE效應](https://www.chop.edu/centers-programs/vaccine-education-center/vaccine-safety/antibody-dependent-enhancement-and-vaccines)
+信息来源：[瑪麗醫院重建地盤　逾百工人一度堵路　工人：突遭解僱　私人物品被棄置](https://www.thestandnews.com/society/ab-%E7%91%AA%E9%BA%97%E9%86%AB%E9%99%A2%E9%87%8D%E5%BB%BA%E5%9C%B0%E7%9B%A4-%E9%80%BE%E7%99%BE%E5%B7%A5%E4%BA%BA%E4%B8%80%E5%BA%A6%E5%A0%B5%E8%B7%AF-%E5%B7%A5%E4%BA%BA%E7%AA%81%E9%81%AD%E8%A7%A3%E5%83%B1-%E7%A7%81%E4%BA%BA%E7%89%A9%E5%93%81%E8%A2%AB%E6%A3%84%E7%BD%AE)
 
+（本文只代表个人观点，与Gnews网站无关）
 
-#### 英國
-
-英國衛生部門數據顯示，瑞典情形也在英國發生。[英國、瑞典的疫苗接種率](https://coronavirus.data.gov.uk/details/vaccinations)幾乎相同。
-
-英國衛生安全局 (UKHSA) 於 10 月 7 日發布[報告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1023849/Vaccine_surveillance_report_-_week_40.pdf)，9月份大多數的死亡病例都已經完全接種疫苗。突破性感染而住院治療的病患，也是完全接種者佔多數。UKHSA 的數據顯示，「完全接種疫苗」死亡數量有2281人，遠高於未接種疫苗、部分接種疫苗。
-
-
-
-> Surging [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) in UK with 49,156 new cases and 45 new [#deaths](https://twitter.com/hashtag/deaths?src=hash&amp;ref_src=twsrc%5Etfw) reported on 18 October 2021. 78.9% of all aged 12 and up are DOUBLE VACCINATED. [#Breakthrough](https://twitter.com/hashtag/Breakthrough?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Geoffrey Norman Pain (@FluoridePoison) [October 18, 2021](https://twitter.com/FluoridePoison/status/1450225202353225729?ref_src=twsrc%5Etfw)
-
-
-
-- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
-- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
-- 相關：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
-- 相關： [COVID-19最新情報｜為何政府「忽視」自然免疫？](https://gnews.org/zh-hant/?p=1610194%28%E5%9C%A8%E6%96%B0%E5%88%86%E9%A0%81%E4%B8%AD%E9%96%8B%E5%95%9F%29)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/18-6.jpg)
-* * *
-
-新聞來源｜[Natural News](https://www.naturalnews.com/2021-10-25-majority-of-covid-deaths-are-fully-vaccinated.html)
-轉譯｜zhong
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
+*校对：东京樱花团 / 文小白*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
