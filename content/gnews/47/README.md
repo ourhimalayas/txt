@@ -2,26 +2,20 @@
 ---
 
 
-## 民众质疑沈阳惨烈爆炸伤亡实况（沈阳爆炸续报）
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618191/)
+## “香港加油”成为香港马拉松被禁敏感词
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618193/)
 
 作者：澳喜农场 – 在远方
+![This image has an empty alt attribute; its file name is image-40-1-6.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
+24日，在时隔两年八个月之后，渣打香港马拉松赛，在“港版国安法”阴影笼罩下再次举行。港共政府打着“预防及打击恐怖主义活动”的旗号，派出数千警员高压戒备。荒唐的是，一个简单的“香港加油”的双体书法服饰，竟然也成为所谓的“敏感词”而被禁用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-17.jpg)
+在比赛前，许多选手因为背心或者短裤上，印有竖看为“香港”，横看为“加油”的双体书法，被要求更换服饰，否则不能参赛。如果身上有“香港加油”的纹身，也被要求用胶布遮盖。还有选手透露，有工作人员威胁他们，如果穿有“香港加油”字句的服饰，就“后果自负”。
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
-
-
-
-10月21日，中共辽宁沈阳和平区太原街发生剧烈爆炸。23日晚，当局通报说受爆炸影响的楼宇有86栋，仍在检测剩余的13栋，并对1858户居民和93户商铺签订核查确认，用于赔偿和整修，但仍未确认爆炸是由管道问题还是液化气罐造成。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-12.jpg)
-网上大量的视频和图片显示，此次爆炸威力惊人，蘑菇云高升到百米，现场犹如战场一样惨烈，一片废墟。有楼房被炸成裸楼，窗户等全被炸飞，只剩下水泥框架。现场有许多人受伤，有人伤势严重，急待救治，还有一辆公交车和许多车辆受损。对于中共媒体所称的，到目前为止爆炸造成5人死亡，47人受伤的数字，许多网友纷纷表示强烈质疑。
-
-参考链接：[民众质疑沈阳惨烈爆炸伤亡实况（沈阳爆炸续报）](https://www.voachinese.com/a/china-shenyang-blast-casualties-and-investigation-20211024/6283359.html)
+参考链接：[“香港加油”成为香港马拉松被禁敏感词](https://www.voachinese.com/a/hong-kong-marathon-censors-sensitive-slogans-20211024/6283428.html)
 
 （本文仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
 总编：木白
 编辑：木白
@@ -38,4 +32,4 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)

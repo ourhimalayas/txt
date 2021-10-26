@@ -2,13 +2,9 @@
 ---
 
 
-## 西媒头条 — 第95期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1618412/)
+## 10/20郭文贵直播：马云正在处理大概3000多笔的资产（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1618419/)
 
-**制作：蚂蚁兄弟**
+10/20/2021郭文贵直播：马云正在处理大概3000多笔的资产，蔡崇信帮马云洗掉了他75%的钱；中共妄图通过搞经济大革命来强化统治、对欧美等国发动经济超限战并掠夺全球财富。
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1025-26.002.jpeg)
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

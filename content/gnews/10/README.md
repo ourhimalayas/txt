@@ -2,40 +2,28 @@
 ---
 
 
-## 震惊！莫得纳称其低剂量疫苗对6至11岁的儿童有效
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1618621/)
+## 埃尔多安认为自己不断受到阴谋的威胁
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1618663/)
 
-**By:秘翻新闻**
+新闻来源：德国世界报网络版
 
-***2021-10-26***
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/1026-2.jpg)](https://gtv.org/broadcast/watch/6177c729eadeb11f5e7a991b)点击图片观看视频
-**新闻摘要:**
+翻译整理简评： 意大利罗马达芬奇农场  Shuizhuyu
 
-1. 中共打压下 新东方宣布停止经营大陆教培服务
+- ![](https://assets.gnews.org/wp-content/uploads/2021/08/DWO-Teaser-Afghanistan-jpg.jpg)
 
-2. 山东科大北门起火 学生被炸醒 小吃街一片废墟
 
-3. 民企存渤海银行约4.7亿美元 被挪用作担保
+图片来源： DPA
 
-4. 陆外长王毅访卡达 将会塔利班临时政府代表团
+周末，土耳其总统开始了与西方的重大冲突，并想将十名大使赶出该国。但是现在冲突在不断升级。
 
-5. 共军水下爆破测试 直接点名美军
+土耳其总统雷杰普·塔伊普·埃尔多安在周六的演讲中向包括德国和美国在内的十个西方国家的大使提出了批评， 并指责这些外交官根本不了解土耳其也没有资格指挥土耳其。 周一晚上，众所周知，埃尔多安威胁要驱逐西方外交官。
 
-6. 苏丹政变冲突7死140伤 安理会开紧急会议
+此前外交官联合呼吁，要求释放被监禁的发对派奥斯曼卡瓦拉，他被指控控制抗议埃尔多安的活动，这些抗议活动从 2013 年开始就批评埃尔多安。埃尔多安随后表示，他已指示他的外交部长开始驱逐大使。
 
-7. 震惊！莫得纳称其低剂量疫苗对6至11岁的儿童有效
+简评： 独裁统治者从来都害怕听到批评的声音， 土耳其虽然不是名义上独裁政府， 是有选举制度的政府， 但是多年来选举显然是被控制的， 埃尔多安已经执政多年， 也为自己和亲属谋取了巨大的利益。 反对派只要发出声音， 他就采取行动。
 
-8. 美国解除旅行禁令 实施国际旅行疫苗规则
+原文链接：[https://www.welt.de/politik/ausland/article234640550/Tuerkei-Warum-Erdogan-die-Eskalation-des-Botschafter-Streits-ausfallen-laesst.html](https://www.welt.de/politik/ausland/article234640550/Tuerkei-Warum-Erdogan-die-Eskalation-des-Botschafter-Streits-ausfallen-laesst.html)
 
-9. 纽约市警察局工会就疫苗强制令起诉纽约市
+免责声明：本文内容仅代表个人观点，与Gnews平台无关。
 
-10. Facebook再遭重创 英国主张立法规范社交媒体
-
-**GTV链接：**[https://gtv.org/broadcast/watch/6177c729eadeb11f5e7a991b](https://gtv.org/broadcast/watch/6177c729eadeb11f5e7a991b)
-
-发布: 文橙
-
-* * *
-
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+责任编辑、发布： Shuizhuyu

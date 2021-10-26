@@ -2,32 +2,21 @@
 ---
 
 
-## 新西兰总理希望将未接种疫苗的公民与接种疫苗的公民隔离
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1618668/)
+## 秘翻在线：NIH被指控资助了虐待猴子的实验
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1618751/)
 
-**翻译编写：** 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ardern-edited.jpg)图片来源：网络
-来自OAN 星期一25日的新闻报道：
+#### 翻译撰稿：zzballack
 
-新西兰总理承认疫苗接种证书计划的目标是把人们分成两个群体。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Snipaste_2021-10-26_19dsa56456d-58-44.png)
 
-在周日的一次采访中，总理Jacinda Ardern 被问到她是否试图为那些没有接种疫苗的人争取自由。她毫不犹豫地说，这实际上就是认证的目的。
+据《每日邮报》（Daily Mail）10月25日报道，纳税人监督组织“白大褂浪费项目（White Coat Waste Project，WCW）”上周末曝光了美国国立卫生研究院（NIH）下属机构、福奇领导的美国国家过敏和传染病研究所（NIAID）对小猎犬幼犬进行的残忍实验。
 
-总理Ardern 指出，这关乎安全，因此接种疫苗的人可以放心，因为他们周围没有未接种疫苗的人。
+其实早在2019年12月，WCW就曾指控NIH在猴子身上进行“怪异的心理学实验”，并在实验中用硫酸、玩具蛇和橡胶蜘蛛折磨猴子。NIH已资助这类实验连续40多年，从2007年起，这些实验就花费了近1亿美元纳税人的钱。
 
-“对我来说很清楚的是，它们不仅仅是推动疫苗接种的工具。它们是增强信心的工具，”Ardern 声称。 “接种过疫苗的人会想知道他们身边有其他接种过疫苗的人。他们会想知道他们在一个安全的环境中。”
+一段被公开的猴子实验录像显示，心烦意乱的灵长类动物被锁在狭小的笼子里，研究人员用橡胶蜘蛛和机械蛇吓唬它们，以观察它们的恐惧本能反应。NIH的科学家们随后切除了它们的部分大脑，或用酸液伤害它们，以“故意加重灵长类动物的恐惧”。在视频中，可以听到一个冷酷
 
-新西兰最初对 COVID 采取了完全消除策略，尽管后来证明这在 Delta 变体爆发中是不可能的。 Ardern 表示，在 90% 的符合条件的居民接种疫苗之前，她没有计划解除新西兰的封锁。
+无情的NIH人员开玩笑说：“跳舞的猴子究竟在哪儿？”WCW声称这些被录下的实验发生在马里兰州贝塞斯达的国家心理健康研究所（NIMH）。WCW曾要求NIH向他们提供与灵长类动物的浪费和怪异心理学实验有关的视频和其他材料，但却被拒绝。
 
-**点评：**
+WCW的调查促使国会指示NIH委托美国国家学院（National Academies）独立研究这类灵长类动物实验的替代方案，而且必须在2020年底前报告其减少和取代灵长类动物实验的努力。
 
-新西兰总理在走一步险棋，有人推特上把此和1930年代德国纳粹剥夺犹太人权利相提并论， 这在当下可能太过。但是如果真的鲁莽地去执行，那么我们会不会看到如上世纪50年代美国公共汽车上座位分区(白人与有色人隔离)的场景呢？ 人类文明 和对文明的认知在倒退吗？另外，这还将更加分化社会成两个阶级， 导致暴力与暴乱。
-
-原文链接：[https://www.oann.com/new-zealand-prime-minister-wants-to-segregate-unvaccinated-from-vaccinated-citizens/](https://www.oann.com/new-zealand-prime-minister-wants-to-segregate-unvaccinated-from-vaccinated-citizens/)
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：LILY
-
-20211026
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+新闻来源：[**NIH is now accused of spending $100m of taxpayer’s money on torturing lab monkeys with ACID and snakes: DeSantis leads calls for Fauci to quit after he was revealed to have funded horrific testing on beagles**](https://www.dailymail.co.uk/news/article-10129521/NIH-tortured-monkeys-acid-toy-snake-Fauci-faces-calls-resign-dog-torture-tests.html)

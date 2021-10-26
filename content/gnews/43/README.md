@@ -2,45 +2,31 @@
 ---
 
 
-## 迈克·彭佩奥：拜登必须坚守保卫台湾的承诺
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1618241/)
+## 针下亡魂｜英国 35 岁女医护接种疫苗三个月后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1618330/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16352264321.png)
-来自NEWSMAX10月24日的报道，美国前国务卿迈克·彭佩奥说，拜登总统必须信守承诺，保卫台湾免受中共国的攻击。
+**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 26/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
+***更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）***
 
-“我看到拜登总统说我们有保卫台湾的承诺。”彭佩奥周日在约翰·卡西马蒂斯(John Catsimatidis)主持的《猫圆桌会议》（The Cats Roundtable）广播节目中说。
+【英国】曼彻斯特一名 35 岁的女医护 Rachel McKinney 在接种完辉瑞 COVID-19 疫苗后，经历了两个多月与严重不良反应的搏斗，最终在因多发性硬化症而死亡。
 
-“我希望他在说这句话的时候是有意为之的。你不能只是像那样划一条红线。你不能做出那样的陈述又说你没有那个意思。现在人们期望他会兑现这一承诺，我希望拜登政府考虑清楚，这不能仅仅是一位不清楚自己在说什么的总统的随意评论。”
+按照当地规定，身为医务人员的 Rachel 是首批需要接受新冠疫苗注射的人士。据她的姐姐 Gemma Louise Walls 的回忆，Rachel 在 12 月下旬接种了第一剂疫苗，随后在 1 月接种了第二剂，直到一月，一切都很好。不过，二月份开始，Rachel 就突然说话含糊不清，并有轻微失语症。家人随即怀疑她中风。
 
-彭佩奥还指出，中共国在过去的一周半时间内测试了其高超音速导弹系统，习近平主席表示，他希望首先将台湾“重新置于其保护伞之下，然后在该地区进行建设，接下来胁迫整个世界。”
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Gemma-Louise.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Jamie-Lauren-Walls.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Kevin-McKinney.png)
 
-关于越境人数激增的问题，彭佩奥说拜登不应该偏离前总统川普的成功政策。
 
-他说：“我们实行了为期四年的政策，该政策在很大程度上创造了一种模式，在这种模式下，非法移民不会大量越过我们的边境。”
+曼彻斯特晚报报导，有一名急救接线员建议带 Rachel 去 Stepping Hill 医院诊治，医生诊断她患有脑部炎症，后来又被转移到索尔福德皇家医院，该院认为她患上了急性播散性脑脊髓炎（ADEM），报导引述家人，怀疑是疫苗造成这一系列的病症，因为“直至 12 月接受疫苗之前，Rachel 一直非常健康。”
 
-“这种模式被称为‘留在墨西哥’。他们（拜登政府）则正在谈论撤销这种模式，天哪，为什么他们要撕毁它，为什么他们停止这样做，这是无法解释的。这样做不仅对我们谈到的那些年轻人造成风险，也给美国造成了真正的风险。因为谁知道谁过来了，谁知道这些人最终会去哪里？我们找不到他们的踪迹。当越境的人数如此庞大时，这是一种危险。他们会带着武器来，他们会带着毒品来，芬太尼最终会因此而成为美国的一个大问题。我们必须清理干净，不仅在我们的南部边境，而且要在我们所有的入境点、机场和我们的北部边境都要如此。”
+可惜，Rachel 的病情恶化的十分迅速，瘫痪、失语、癫痫、昏迷。由于 COVID-19 的防疫限制，在 Rachel 住院治疗的 46 日期间， 家人不可以见她，他们唯有在 FaceTime 上看着 Rachel 痛苦的煎熬而哭泣。
 
-####  简评：
-
-彭佩奥提到的拜登总统保卫台湾的承诺，是指上周四拜登在美国有线电视新闻网(CNN)组织的一次市政厅活动中发表的一段讲话，该讲话打破了美国长期以来在台湾问题上的“战略模糊”政策，遭到了中共国的抨击，却受到了台湾的赞许。但是拜登政府的白宫发言人在回应拜登以上言论时却表示“总统没有宣布我们的政策有任何变化”。彭佩奥此次要求拜登坚守保卫台湾的承诺，很明显是对拜登及其政府前后表述不一致的一个回应。
-
-彭佩奥的格局在美国如今的政治人物中与众不同，从其在离任国务卿之前，宣布中共政府对新疆维吾尔族犯下了种族灭绝和反人类罪开始，彭佩奥一直利用各式各样的外交机会，提醒美国及世界各国要关注中共政权意欲统治全世界的企图。台湾问题不仅仅是台湾问题，台湾的战略位置影响着美、日、澳等国在亚太地区的战略利益。台湾的科技力量，尤其是台湾先进的半导体技术产业，影响着整个世界的半导体产业安全，如果这些优势被邪恶的中共抢占，世界各国都将受制于中共的淫威，所以，保护台湾从本质上讲也是在保护美日等国在亚太地区的根本利益。美国现任政府非常有必要切实执行拜登所说的保卫台湾的承诺，而不是仅仅停留在外交辞令上。
-
-新闻链接: [https://www.newsmax.com/politics/mikepompeo-catsroundtable-china-taiwan/2021/10/24/id/1041780/](https://www.newsmax.com/politics/mikepompeo-catsroundtable-china-taiwan/2021/10/24/id/1041780/)
-
-翻译/简评：Harvey
-
-PR：Julia Win
+Rachel 独自对抗病魔战斗了几个星期之后，4 月 13 日她过世了，留下了丈夫 kevin 及两个小朋友——一对 8 岁及 12 岁的儿子，医生的结论是，她不知何故患上了一种罕见的多发性硬化症。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/48_0.jpg)
+来源｜[个案048](https://www.manchestereveningnews.co.uk/news/greater-manchester-news/fit-healthy-everything-live-for-20376989)
 
 * * *
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
