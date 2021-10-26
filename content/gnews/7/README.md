@@ -2,45 +2,28 @@
 ---
 
 
-## 世贸组织将审查中澳葡萄酒争端
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1618925/)
+## 中共国正在测试高超音速滑翔机吗
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1619126/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+新闻来源：德国法兰克福报网络版
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/14-13.jpg)
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-
-
-图片来源：i1.wp.com
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/china-ruestet-nuklear-auf.jpg)
 
 
-#### 编译：小红帽
+图片来源： FAZ
 
-世界贸易组织(WTO)成立了一个争端解决小组，以审查中共国对澳大利亚葡萄酒征收的反倾销税。
+**一种新的武器系统可以躲过美国的导弹防御。北京否认测试高超音速滑翔机，这种滑翔机可以在太空进行攻击。**
 
-贸易部长丹·特汉（Dan Tehan）和农业部长大卫·利特普劳德（David Littleproud）回应称，澳大利亚将继续利用世贸组织争端解决机制“大力捍卫”澳大利亚葡萄酒生产商和出口商的利益。
+武器专家赵通（音译）用“繁琐而奇特”描述中国军方在7月和8月进行的两次所谓武器试验。“如果目标是将核弹头送达目标，那是没有效率的“ 赵说。 赵通是卡内基国际和平基金会智囊团， 监测中国的核武器计划的人员。这位科学家认为有关这个高超音速滑翔机的报道只是 “猜测”。
 
-“澳大利亚仍然愿意与中共国进一步讨论，以解决这个问题，”特汉和利特普劳德在周二晚间的一份声明中说。
+美国情报官员假设中国已经用运载火箭向太空发射了一个具有核能力的高超音速滑翔机。这架滑翔机在飞向目标之前曾部分绕地球飞行，而实际这个滑翔机并没有达到预定目标， 而是距离目标30公里错过了。 军备专家从苏联在20世纪60年代末开发的所谓部分轨道轰炸系统中知道类似的轨迹。所描述的程序也显示出与美国X-37B太空滑翔机的相似之处。中国外交部已经否认了这些报道，而只谈到了对航天器的例行民用测试。
 
-据路透社报道，该争端解决机构周二在日内瓦举行闭门会议，同意澳大利亚的第二次请求，因为澳大利亚的第一次请求被中共国阻止了。
+简评： 鉴于最近以来， 中共在台海进行的军事挑衅，各种报道和猜测也甚嚣尘上。 这个有关高超音速滑翔机的报道， 也未必是真实的。中共从来都是真真假假， 虚虚实实， 而假是中共的拿手伎俩。
 
-中共国去年对澳大利亚生产商征收了约200%的关税。
+原文链接：[https://www.faz.net/aktuell/politik/ausland/chinas-nukleare-aufruestung-raketenabwehr-der-usa-als-bedrohung-17601963.html](https://www.faz.net/aktuell/politik/ausland/chinas-nukleare-aufruestung-raketenabwehr-der-usa-als-bedrohung-17601963.html)
 
-根据中澳自由贸易协定，澳大利亚生产商曾受益于零关税。
+免责声明：本文内容仅代表个人观点，与Gnews平台无关。
 
-近年来，澳大利亚和中共国之间的关系恶化，中共国的申诉清单涵盖外国投资规则、禁止华为参与5G网络以及澳大利亚推动对中共病毒（COVID-19）起源的调查。
-
-随着外交争端的加深，中共国对澳大利亚发起了一系列贸易打击，包括葡萄酒、大麦、棉花、红肉、海鲜、糖、木材和煤炭出口。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[WTO to examine China-Aust wine dispute (msn.com)](https://www.msn.com/en-au/news/australia/wto-to-examine-china-aust-wine-dispute/ar-AAPXYrl?ocid=msedgntp)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+责任编辑、发布： Shuizhuyu

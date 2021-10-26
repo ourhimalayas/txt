@@ -2,23 +2,37 @@
 ---
 
 
-## 可支配收入，又拖了国家的后腿
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1618866/)
+## 新闻述平：为何 “六中全会” 召开在即，习的地盘疫情在扩散
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1619086/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-148.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fwww.xinhuanet.com%2Ffortune%2F2018-08%2F09%2F1123245651_15337826023261n.jpg&amp;imgrefurl=http%3A%2F%2Fwww.xinhuanet.com%2Ffortune%2F2018-08%2F09%2Fc_1123245651.htm&amp;tbnid=dTvvqJ04003V5M&amp;vet=12ahUKEwibuqmrkOjzAhUzlUsFHYjmBhoQMygUegUIARDEAQ..i&amp;docid=ikr12hS1UAM6JM&amp;w=640&amp;h=365&amp;q=%E5%8F%AF%E6%94%AF%E9%85%8D%E6%94%B6%E5%85%A5&amp;ved=2ahUKEwibuqmrkOjzAhUzlUsFHYjmBhoQMygUegUIARDEAQ)
+作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10265.png)[图片来源](https://global.udn.com/global_vision/story/8662/5841422)
+**毫无疑问，COVID19生物武器已成为全球“政治病毒”了，它不仅可以打击他的敌对国，还可以打击政治对手。包括病毒始作俑者中国共产党。不巧的是习的政治版图——西北地区被击中了。且在“六中全会”召开前夕扩散？这次靶目标是习近平吗？**
 
-人民网北京10月25日电，国家统计局网站近日公布了31个省份前三季度居民人均可支配收入情况和人均消费支出情况。其中，9个省份居民人均可支配收入高于全国平均水平，8个省份居民人均消费支出高于全国平均水平。
+据《[朝日新闻](https://www.asahi.com/articles/ASPBT61FWPBTUHBI007.html)》26日消息，中共国大陆的公民行动正在因 COVID19病毒Delta 菌株的感染的广泛扩散再度受到限制，“部分地区禁止跨省旅游，西北部甘肃省兰州市公共交通暂停。可见此轮疫情扩散不在繁华的东部地区，却选择了西北贫困之地，颇具玩味。
 
-国家统计局此前公布的数据显示，前三季度，全国居民人均可支配收入26265元，比上年同期名义增长10.4%；扣除价格因素影响，实际增长9.7%，与GDP增长基本同步。从消费来看，31省份中，8个省份前三季度居民人均消费支出高于全国平均水平，分别是上海、北京、浙江、天津、广东、江苏、福建、重庆。其中，前7个省份超过了2万元，均为东部和沿海地区，来自西部的直辖市重庆紧随其后，居民人均消费支出跑赢全国平均水平，在中西部地区领先。
+“16日以来，已有11个省、市、自治区发现感染者160余人。” “自从24日北京发现15人感染后，从疫区进城的航班和火车也受到限制。”　不但如此，原计划[北京和武汉的马拉松赛事也被推迟](https://www.163.com/dy/article/GN4FN97U0514DCDB.html)。各地都在加大PCR检测和隔离措施。
 
-2020年中国家庭的偿债负担为137.9％，变成纯负债大国，每个国人负债7万元额度何来消费支配？被平均后的收入与支出，不仅是拖了国家的，还有省里的、市里的、县里的……
+此轮疫情多点扩散是在国庆长假后爆发，据转角国际消息称：“根据中国官方的初步调查，已知和10月9日从上海出发的旅行团有密切关系。该7人旅行团途经甘肃、内蒙古、陕西西安等地区旅游，结果在10月18日发现整团7人全员确诊。”[阅读更多](https://global.udn.com/global_vision/story/8662/5841422)。
+![](https://lh6.googleusercontent.com/L_D_3oTS77Z0j_qFJYtyMY-OLqf7iPGy39n45-U1TzRAK_39LExllrfmmIBjOzMe74fgiY9ss7NKxgo9aKapOkVT3G_oZmMmz56afnqrDopF2oMUOPY_acYv3gU_ctZwSR5lqtIP=s1600)[图片来源](https://www.bbc.com/zhongwen/simp/world-59005914)
+自从大流行以来，病毒真相一直被瞒报，尽管如此，随着爆料革命的真相传播，中共释放的生物武器言论甚嚣尘上。但真相仍旧被官方掩盖，这显然变成了政治病毒。
 
-消息来源：[前三季度各地居民人均可支配收入及消费支出数据出炉](https://mo.mbd.baidu.com/r/vmZ88JjtbG?f=cp&amp;rs=201960695&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=ce315cddfc3b5b0c)
+中共《非典非自然人制人新种病毒基因武器》一书中自爆，病毒可以定点打击“靶目标人群”，且有效控制。“**所以。该生物武器使用者作为一种有力的（战争）威胁手段，和靶人群高层进行长时间讨价还价**。”不仅如此，还可以进行“个体生物袭击”，其中讲到了某国总统反复患癌症死亡。（见军事医学科学出版社2015年8月第一版 P92 ）
 
-免责声明：文章仅代表作者本人观点，与GNEWS无关
+鲜为人知的是，美国前总统川普也曾感染，即便如此，也因无法取证不了了之。
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)
+这可以解释什么是“[政治病毒](http://www.china-embassy.or.jp/chn/mtdh/t1899250.htm)”了。它不仅可以打击他的敌对国和某区域，还可以打击他的政治对手。例如，此次疫区包括习的政治版图——西北地区。[（甘肃）阅读更多](http://www.news.cn/yingjijiuyuan/2021-10/26/c_1211420337.htm)。
+
+这就可以反向推测，中共为什么允许在即将于11月8日至11日在北京召开“六中全会”前夕扩散？在这次即将召开的六种全会对习近平和全党命运至关重要。他还牵涉到台湾的命运。[阅读更多](https://www.bbc.com/zhongwen/simp/world-59005914)。
+
+因此，派系斗争的新武器或许是疫情警戒令。它可以更好地控制人群互动，甚至可以对政治对手定点清除。
+
+他使疫情在北京蔓延的另一个理由是，距离2022年2月份冬奥会的召开不到4个月。这个敏感时期病毒蔓延。说明这是有人要给习近平施加巨大压力——造成冬奥会北京不能确保安全的恐慌局面，引起国际社会有效的抵制。
+
+2021年10月26日
+
+（本文只代表个人观点，与Gnews网站无关）
+
+*校对：东京樱花团 / 文小白*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)

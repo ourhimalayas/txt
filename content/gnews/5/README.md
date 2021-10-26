@@ -2,45 +2,27 @@
 ---
 
 
-## 澳洲防长表示若中共武力犯台将与美国同进退
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619041/)
+## 又一百强房企暴雷！当代置业美元2.5亿债务逾期
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1619147/)
 
-作者：纽约香草山农场医疗部 – 云豹
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-14.png)
+[图片来源](http://www.momatek.com/news/36535.jhtml)
 
+10月26日，当代置业发布公告称，公司于10月25日到期的12.85厘优先票据，未能按时偿还票据本金及其应计但未付利息。这笔资金规模2.5亿美元的票据，是目前当代置业5只存续美元债中规模最大的。
 
+当代置业将此次违约，归因为“预计之外的流动性问题”，而其面临的不利因素包括宏观经济环境、房地产行业环境以及COVID-19疫情等。受此影响，上述票据本金及其应计但未付利息的还款安排，未能于当日达成。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+自此，当代置业成为继花样年、新力控股等企业后，又一出现债务违约的百强房企。
 
+实际上，早在2021中期业绩公告后，当代置业便暴露出毛利率低于行业平均、资产负债率高于行业平均、融资成本上升等流动性风险点。随后，当代置业多次出售股权资产、展期债务以解决流动性问题，但仍未避开违约风暴。
 
+当前，中共房地产行业面临系统性崩溃，虽然中共为保“二十大”顺利进行而试图通过强力手段来推后暴雷，但终究是按下葫芦浮起瓢，始终无法真正控局。毋庸置疑，中共房地产行业这颗金融核弹的爆炸时间已越来越近。
 
-澳洲国防部长杜登（Peter Dutton）于25日接受澳洲天空新闻（Sky News Australia）访问时表示，如果中共以武力侵犯台湾，澳洲将采取与美国同进退的应对策略。当被问到澳洲是否会与中共发生战争，他回答说这是中共应该回答的问题。
+[信息来源](https://finance.sina.com.cn/stock/s/2021-10-26/doc-iktzqtyu3591437.shtml)
 
-杜登表示，澳洲与美国、英国、加拿大、纽西兰是长期盟友。澳洲与美国、印度、日本也组成「四方安全对话」（Quad）关系；澳洲、美国与东南亚国家协会（ASEAN）也有紧密的合作。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-12.jpg)
-杜登说，澳洲国家安全委员会（National Security Committee）最近6年来，持续在关注中共可能武力犯台的问题。从中共对付香港的方式来看，中共已经决定要进一步对付台湾。而美国已经清楚表达对台湾问题的态度。
+免责声明：文章仅代表作者本人观点，与GNEWS无关
 
-参考链接：
-[澳洲防長：如中國武力犯台 將與美國同進退](https://www.cna.com.tw/news/firstnews/202110250011.aspx)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编/编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/10/樱花团-2.jpg)

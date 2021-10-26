@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/26/2021 2:56 PM (UTC)`
+
+10月26日：尊敬的战后们好……为什么我们的穷人总是一直穷？为什么习近平在北京．江派的人竟然不知道？川普总统的股票为什么暴跌？
+![img](https://media.gettr.com/group37/getter/2021/10/26/14/56/8236aec3-0d48-a91a-6395-80b7113d5be0/out.jpg)
+
+---
+
 `@miles 10/26/2021 11:22 AM (UTC)`
 
 10月26日：尊敬的战友们好，你们健身了吗？传播C C P病毒真相．和疫苗解药了吗？一切都已经开始！
@@ -286,13 +293,6 @@ Background Information on Yunhong Group (3) 运鸿集团的背景（三）
 
 Background Information on Yunhong Group (2) 运鸿集团的背景 （二） 
 ![img](https://media.gettr.com/group5/getter/2021/10/22/17/38/13a5d291-5d16-3db8-a1ed-0e4f2fde7d1f/571064e645f43e66ecf28c70bc653ce3.jpg)
-
----
-
-`@miles 10/22/2021 5:33 PM (UTC)`
-
-Background information on Yunhong Group（1） 运鸿集团的背景（ 一） 
-![img](https://media.gettr.com/group13/getter/2021/10/22/17/33/1c7decac-fe7a-0442-e045-f1c98043ce58/4eed4c33bcfb751c04bdb5fabad1f8b8.jpg)
 
 ---
 

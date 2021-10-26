@@ -15,109 +15,109 @@
 
 ---
 
-### [10/26/21 香港快讯 林郑下令剔除支联会公司注册 指「结束一党专政」纲领旨在颠覆政权](/content/gnews/1/README.md)
- ` 英喜-粵語組`
-
-### [新闻述平：为何 “六中全会” 召开在即，习的地盘疫情在扩散](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [莫里森的净零排放目标是一个“骗局”，不是一个计划](/content/gnews/3/README.md)
- ` 走进澳洲`
-
-### [暴力雇主的常态化](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳洲防长表示若中共武力犯台将与美国同进退](/content/gnews/5/README.md)
+### [SPAC获利，但投资者警告个人崇拜不能取代投资要素](/content/gnews/1/README.md)
  ` GTV新闻访谈`
 
-### [COVID-19最新情報｜瑞典、英國新冠死亡案例 集中於「完全接種者」](/content/gnews/6/README.md)
- ` G&#124;News TAIWAN`
-
-### [世贸组织将审查中澳葡萄酒争端](/content/gnews/7/README.md)
- ` 走进澳洲`
-
-### [秘翻在线：美国零售业巨头将中共公司的监控技术产品下架](/content/gnews/8/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [全球涨价潮背后的政府剥削](/content/gnews/9/README.md)
- ` 墨尔本雅典娜农场`
-
-### [10/26/2021国际财经快讯：中美通话讨论双边贸易关系；特斯拉突破1万亿美元市值](/content/gnews/10/README.md)
- ` 秘密翻译组金融团队`
-
-### [中共国在北部封锁数千人以控制不断增长的疫情](/content/gnews/11/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [天和人](/content/gnews/12/README.md)
- ` 骄子`
-
-### [可支配收入，又拖了国家的后腿](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [共产党对川普先生的构陷](/content/gnews/14/README.md)
- ` 银河勇气之星`
-
-### [武汉一男子持刀行凶，致村支书一家5死1伤后逃跑又致2死](/content/gnews/15/README.md)
- ` 首尔天池农场`
-
-### [秘翻在线：纽约市最大的警察工会就中共病毒疫苗强制令起诉市长](/content/gnews/16/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共的强制抗疫政策](/content/gnews/17/README.md)
- ` GTV新闻访谈`
-
-### [美国出台疫情期间国际旅行要求新细则](/content/gnews/18/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [韩国指责日产和保时捷提交虚假气体排放总量](/content/gnews/19/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [蓬佩奥警告拜登必须信守保卫台湾的承诺](/content/gnews/20/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [紧急救援人员大规模抗议纽约强制疫苗政策](/content/gnews/21/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：老百姓对蔬菜大幅涨价怨声载道，中共国民生渐入寒冬](/content/gnews/22/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共公安部“断流”专案行动限制人员外流](/content/gnews/23/README.md)
- ` 儒为`
-
-### [中共取消描写习近平的书的宣读](/content/gnews/24/README.md)
+### [苏丹政变后联合国安理会召开紧急会议](/content/gnews/2/README.md)
  ` Shuizhuyu`
 
-### [中共国一家银行的分行将一家公司的28亿存款用于但保](/content/gnews/25/README.md)
- ` 澳喜农场`
+### [GTV新闻访谈简报|2021年10月26日早](/content/gnews/3/README.md)
+ ` 纽约香草山MOS01`
 
-### [文·贵天成——文贵先生谈“马云”（十七）](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
+### [河北学生家长反映学校食堂问题被刑拘，中共政府忙洗地](/content/gnews/4/README.md)
+ ` GTV新闻访谈`
 
-### [秘翻在线：中共在卡塔尔会见阿富汗领导人 敦促其同“东伊运”划清界限](/content/gnews/27/README.md)
+### [又一百强房企暴雷！当代置业美元2.5亿债务逾期](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [青岛黄岛区一小吃街发生煤气爆炸事故](/content/gnews/6/README.md)
+ ` GTV新闻访谈`
+
+### [中共国正在测试高超音速滑翔机吗](/content/gnews/7/README.md)
+ ` Shuizhuyu`
+
+### [岸田首相がCOP26に出席すると表明した](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [特殊目的收购公司（SPAC）](/content/gnews/9/README.md)
+ ` 秘密翻译组-原创组`
+
+### [中共国疫情扩散 兰州内蒙封城](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [10/26/21 香港快讯 林郑下令剔除支联会公司注册 指「结束一党专政」纲领旨在颠覆政权](/content/gnews/12/README.md)
+ ` 英喜-粵語組`
+
+### [新闻述平：为何 “六中全会” 召开在即，习的地盘疫情在扩散](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [莫里森的净零排放目标是一个“骗局”，不是一个计划](/content/gnews/14/README.md)
+ ` 走进澳洲`
+
+### [暴力雇主的常态化](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [澳洲防长表示若中共武力犯台将与美国同进退](/content/gnews/16/README.md)
+ ` GTV新闻访谈`
+
+### [COVID-19最新情報｜瑞典、英國新冠死亡案例 集中於「完全接種者」](/content/gnews/17/README.md)
+ ` G&#124;News TAIWAN`
+
+### [数以万计的加拿大医护人员面临被解雇惩罚](/content/gnews/18/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [世贸组织将审查中澳葡萄酒争端](/content/gnews/19/README.md)
+ ` 走进澳洲`
+
+### [秘翻在线：美国零售业巨头将中共公司的监控技术产品下架](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [企业表示疫苗规定损害就业，并导致劳动力短缺](/content/gnews/28/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [佛州表示，疫苗不能阻止病毒扩散但副作用确被阻止传播](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [起底运鸿国际的中共背景](/content/gnews/30/README.md)
- ` GTV新闻访谈`
-
-### [许家印早在2020年就曾私下告知亲信抛售恒大相关资产](/content/gnews/31/README.md)
- ` GTV新闻访谈`
-
-### [习近平秘密出访欧亚五国](/content/gnews/32/README.md)
- ` GTV新闻访谈`
-
-### [文·贵天成——文贵先生谈“马云”（十六）](/content/gnews/33/README.md)
+### [全球涨价潮背后的政府剥削](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加拿大皇家骑警的公开信](/content/gnews/34/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [10/26/2021国际财经快讯：中美通话讨论双边贸易关系；特斯拉突破1万亿美元市值](/content/gnews/22/README.md)
+ ` 秘密翻译组金融团队`
 
-### [新西兰总理希望将未接种疫苗的公民与接种疫苗的公民隔离](/content/gnews/35/README.md)
+### [中共国在北部封锁数千人以控制不断增长的疫情](/content/gnews/23/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [天和人](/content/gnews/24/README.md)
+ ` 骄子`
+
+### [可支配收入，又拖了国家的后腿](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [共产党对川普先生的构陷](/content/gnews/26/README.md)
+ ` 银河勇气之星`
+
+### [中共的强制抗疫政策](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [文·贵天成——文贵先生谈“马云”（十七）](/content/gnews/28/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [企业表示疫苗规定损害就业，并导致劳动力短缺](/content/gnews/29/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [佛州表示，疫苗不能阻止病毒扩散但副作用确被阻止传播](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
+
+### [起底运鸿国际的中共背景](/content/gnews/31/README.md)
+ ` GTV新闻访谈`
+
+### [许家印早在2020年就曾私下告知亲信抛售恒大相关资产](/content/gnews/32/README.md)
+ ` GTV新闻访谈`
+
+### [习近平秘密出访欧亚五国](/content/gnews/33/README.md)
+ ` GTV新闻访谈`
+
+### [文·贵天成——文贵先生谈“马云”（十六）](/content/gnews/34/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [加拿大皇家骑警的公开信](/content/gnews/35/README.md)
  ` 温哥华圆成农场🇨🇦`
 
 ### [疫苗灾情｜英国 40 岁女演员接种疫苗后中风昏迷](/content/gnews/36/README.md)

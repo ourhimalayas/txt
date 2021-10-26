@@ -2,21 +2,32 @@
 ---
 
 
-## 秘翻在线：中共在卡塔尔会见阿富汗领导人 敦促其同“东伊运”划清界限
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1618741/)
+## 中共的强制抗疫政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618806/)
 
-**撰稿：葛大饼**
+作者：澳喜农场 在远方
 
-**编译：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-26-200129.jpg)图片来源：中共外交部网站
-根据2021年10月25日外交部官网报道，国务委员兼外长王毅昨天已到达卡塔尔，并在多哈会见了阿富汗塔利班临时政府代理副总理巴拉达尔。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-王毅表示，中方从不干涉阿内政，并会敦促美西方解除对阿富汗的制裁，中方会提供人道主义物资援助，帮助阿富汗走上良性发展道路，但王毅强调，“东伊运”是被联合国安理会列名的国际恐怖组织，对中共国家安全和领土完整构成现实威胁，也对阿富汗国内稳定和长治久安造成危害，希望塔利班会彻底同“东伊运”等一切恐怖组织划清界限，采取有效措施坚决予以打击。
 
-巴拉达尔表示对华友好政策是阿富汗塔利班的坚定选择，塔利班会重视中方的安全关切，将坚决履行承诺，决不允许任何人、任何势力利用阿领土做危害中国的事情。
 
-在这里简单给大家普及一下“东伊运”的知识，东伊运的全称就是东突厥斯坦伊斯兰运动，这里的“东突厥斯坦“指的就是新疆。2020年10月20日，美国政府时任国务卿蓬配奥决定正式將”东伊运” 从恐怖组织名单上除名，理由是已有十多年来无可信证据可表明东伊运组织仍继续存在。
+中共内蒙古额济纳旗于当地时间25日零时宣布封城，当局公告称，禁止居民出户且禁止游客出店，否则将被追究民事和刑事责任。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/p5.001.jpeg)
+据内部战友透露，中共先是研制并释放病毒，造成世界性的灾难，其后又采取了极端严酷的疫情防控措施，动辄封门、封路、封城，任由民众自生自灭，最终导致民怨四起。为了防控疫情，中共国是全世界唯一一个全面阻止公民返国，并禁止疫区病患外出寻求医疗援助的国家。
+(本文仅代表作者观点)
 
-郭文贵先生曾提过，阿富汗是中亚和南亚最佳的战略要地，中共通过塔利班控制阿富汗，阿富汗与新疆接壤的大风口，是运输美军装备的必经之路。塔利班跟中共全面合作，是中共统治全球计划的一部分。这次选择在卡塔尔见面，想必也是为了完成中共部署军事力量制衡美国，并和中东勾兑的目的。
+参考链接: [中国新一轮封城抗疫行动 成效与可持续性受考验](https://www.voachinese.com/a/china-braces-for-covid-19-new-lockdowns-20211025/6284255.html)
 
-**[新闻来源](https://www.fmprc.gov.cn/web/wjbz_673089/zyhd_673091/t1916840.shtml)**
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/总编：Irene木木
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

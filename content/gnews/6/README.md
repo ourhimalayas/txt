@@ -2,46 +2,38 @@
 ---
 
 
-## COVID-19最新情報｜瑞典、英國新冠死亡案例 集中於「完全接種者」
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1618967/)
+## 青岛黄岛区一小吃街发生煤气爆炸事故
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619134/)
 
-**台灣寶島農場 疫情關注組｜發佈日期/ 26/10/2021**
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间10月25日凌晨两点，位于青岛的山东科技大学附近的小吃街突发爆燃，该校北门的小吃街陷入一片火海，多栋联排房屋浓烟滚滚。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-11.jpeg)
 
+据现场救援人员透露，大火可能来自某小吃摊的煤气罐爆炸。据悉，事发地点位于青岛市黄岛区。黄岛开发区消防大队称，火灾未造成人员伤亡。
 
-瑞典、英國政府分析數據，發現9月因感染新冠病毒死亡者，絕大多數是完全接種者。這一結論，與西方國家於高疫苗覆蓋率的情形，突破性感染數量激增相符合。
+值得注意的是，中石化位于黄岛区的输油管道曾于2013年11月发生特大爆炸事故，造成62人死亡，136人受伤。
 
-#### 瑞典
+从21日开始的短短数日，沈阳、内蒙阿拉善、大连、南京、青岛等地接二连三地发生爆燃事故，但中共却次次以意外为这些事故划上句号，且并无任何跟进报道告知民众事件的缘由及善后措施。而对于这些事故的后续发展，我们将持续关注。
 
-[瑞典媒體](https://www.svd.se/forskare-ser-en-vikande-vaccineffekt-i-sverige)報導，公衛部門報告表示9月1日至24日，約[7成（130例）](https://ourworldindata.org/explorers/coronavirus-data-explorer?zoomToSelection=true&amp;time=2020-03-01..latest&amp;facet=none&amp;pickerSort=desc&amp;pickerMetric=total_cases&amp;hideControls=true&amp;Metric=Confirmed+deaths&amp;Interval=Cumulative&amp;Relative+to+Population=false&amp;Align+outbreaks=false&amp;country=~SWE)新冠確診死者是已經完全接種疫苗。報導進一步分析，死亡主要發生在老年族群，但相關人員仍認為瑞典疫苗保護力有下降趨勢。
+(本文仅代表作者观点)
 
-- 相關：[瑞典研究顯示完全接種疫苗後，抗體將在三個月後急劇下降](https://gnews.org/zh-hant/1576453/)
-- 相關：[疫苗與ADE效應](https://www.chop.edu/centers-programs/vaccine-education-center/vaccine-safety/antibody-dependent-enhancement-and-vaccines)
+参考链接：
+1)[【中国大陆城市连日多处发生爆炸】山東科技大学 北门附近/Shandong Science University nearby blowed up/山東科技大学の北門付近にて爆発が発生した](https://www.youtube.com/watch?app=desktop&amp;v=XalN22vqQtg)
+2)[山东科技大学北门发生火灾 起火原因调查中](https://news.sina.com.cn/sf/society/shbt/2021-10-25/doc-iktzqtyu3458117.shtml)
+3)[2013年青岛输油管道爆炸事故](https://zh.wikipedia.org/wiki/2013年青岛输油管道爆炸事故)
 
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-#### 英國
+总编：Irene木木
+编辑：山本不惑
+校正/发稿：谐趣园
 
-英國衛生部門數據顯示，瑞典情形也在英國發生。[英國、瑞典的疫苗接種率](https://coronavirus.data.gov.uk/details/vaccinations)幾乎相同。
-
-英國衛生安全局 (UKHSA) 於 10 月 7 日發布[報告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1023849/Vaccine_surveillance_report_-_week_40.pdf)，9月份大多數的死亡病例都已經完全接種疫苗。突破性感染而住院治療的病患，也是完全接種者佔多數。UKHSA 的數據顯示，「完全接種疫苗」死亡數量有2281人，遠高於未接種疫苗、部分接種疫苗。
-
-
-
-> Surging [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) in UK with 49,156 new cases and 45 new [#deaths](https://twitter.com/hashtag/deaths?src=hash&amp;ref_src=twsrc%5Etfw) reported on 18 October 2021. 78.9% of all aged 12 and up are DOUBLE VACCINATED. [#Breakthrough](https://twitter.com/hashtag/Breakthrough?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Geoffrey Norman Pain (@FluoridePoison) [October 18, 2021](https://twitter.com/FluoridePoison/status/1450225202353225729?ref_src=twsrc%5Etfw)
-
-
-
-- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
-- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
-- 相關：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
-- 相關： [COVID-19最新情報｜為何政府「忽視」自然免疫？](https://gnews.org/zh-hant/?p=1610194%28%E5%9C%A8%E6%96%B0%E5%88%86%E9%A0%81%E4%B8%AD%E9%96%8B%E5%95%9F%29)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/18-6.jpg)
-* * *
-
-新聞來源｜[Natural News](https://www.naturalnews.com/2021-10-25-majority-of-covid-deaths-are-fully-vaccinated.html)
-轉譯｜zhong
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
