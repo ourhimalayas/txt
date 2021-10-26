@@ -2,19 +2,27 @@
 ---
 
 
-## 福奇领导的NIAID资助了对小狗进行的“残忍”实验
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1618192/)
+## 秘翻在线：大科技公司继续封杀巴西总统关于中共病毒疫苗真相的视频
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1618196/)
 
-韩国首尔天池农场——zzballack       上传——追着曙光跑
+#### 撰稿：彩虹       
 
-据《每日邮报》（Daily Mail）10月24日报道，根据纳税人监督组织“白大褂浪费项目（White Coat Waste Project）”通过《信息自由法》获得的文件，美国国家卫生研究院（NIH）的下属部门国家过敏和传染病研究所（NIAID）使用纳税人的钱资助残忍的动物实验。以众议员南希·梅斯 (Nancy Mace)为首的24名立法者现在要求NIAID所长安东尼·福奇（Anthony Fauci）就此做出解释。
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-458.png)图片来源：德干先驱报
+10月26日，《路透社》发表文章，报道Facebook（脸书）和Youtube（油管）下架巴西总统有关中国病毒疫苗导致更易感染艾滋病的视频，Facebook同时暂停了其官方账号的使用。
 
-其中最令人不安的一项实验发生在突尼斯的一个研究实验室，实验中小猎犬（Beagle）幼犬被下药，它们的头被关在在装满饥饿的沙蝇的网笼里，以便昆虫能将它们活活吃掉。报告称，“实验人员还连续9个晚上把小猎犬单独关在沙漠中的笼子里，把它们当作诱饵，吸引传染性沙蝇。” 这项实验获得了NIAID 37.5万美元的资助。
+在视频中，巴西总统雅伊尔·博尔索纳罗（*Jair Bolsonaro*）说，根据一份报告，英国接受过两剂冠状病毒疫苗的人患艾滋病的速度比预期的更快。
 
-另外，NIAID在2018年10月至2019年2月期间，资助了加利福尼亚州门洛公园（Menlo Park）国际斯坦福研究所(SRI International) 的动物实验180万美元。实验给总共44只6至8个月大的小猎犬幼犬注射和强行喂食一种实验性药物。实验持续了数周，直到这些小狗被杀死和解剖。更可怕的是，这44只小狗接受了“声带切除术”，这是一种不人道的手术，即割开狗的声带，以消除狗的吠叫、交流、甚至哭泣能力。立法者说：“这种残酷的实验，为了让实验者不必听到小猎犬幼崽痛苦的哭声而割掉小狗的声带。这是对纳税人资金的滥用，应受到谴责。”
+对此，Facebook针对封杀直接回复说：“我们的政策不允许声称COVID-19疫苗会杀人或严重伤害人。”而Youtube的回复是：“我们删除了雅伊尔·博尔索纳罗频道的一段视频，因为它违反了我们关于COVID-19的医疗虚假信息政策，因为它指称疫苗不会降低感染该疾病的风险，而且会导致其他传染病。”
 
-NIAID还在2020年9月资助了佐治亚大学 (University of Georgia) 42万4455美元，实验通过让小猎犬感染寄生虫来测试不同的治疗方法是否有效，这些动物后来被杀死。
+另据《国会山报》10月25日报道披露，之前，路透社称曾报道博尔索纳罗7月份在他的YouTube频道上发布了一段视频，其中他建议服用羟氯喹和伊维菌素来治疗中共病毒（COVID-19），但该视频最终被Youtube下架。
 
-美国食品药品监督管理局（FDA）说：“虽然文件指出，这些研究的表面目的是“提供具有适当质量和完整性的数据，以支持向FDA和其他监管机构的申请，但并不强制要求在狗身上研究人类药物。”
+中共病毒疫苗的灾难还没有真正显现，而巴西总统雅伊尔·博尔索纳罗秉持真相，传播真相，遭受国内外世界各地暗黑势力的打压与绞杀，但真相就是真相，它可以被掩盖一时，但永远不可能被证伪。感谢巴西总统的大爱之心与无畏精神。
 
-[原新闻链接](https://www.dailymail.co.uk/news/article-10125599/Fauci-fire-puppy-experiments-utilized-disease-causing-parasites.html)
+这恰恰成为盖特蓬勃发展的大好时机！
+
+**新闻来源**
+
+[Facebook, YouTube take down Bolsonaro video over false vaccine claim](https://www.reuters.com/world/americas/facebook-takes-down-bolsonaro-video-over-false-vaccine-claim-2021-10-25/)
+
+[Facebook removes Bolsonaro video linking coronavirus vaccines to AIDS](https://thehill.com/policy/technology/578353-facebook-removes-bolsonaro-video-linking-coronavirus-vaccines-to-aids)

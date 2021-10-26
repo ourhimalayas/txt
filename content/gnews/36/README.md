@@ -2,42 +2,19 @@
 ---
 
 
-## “莆田刀客”欧金中前妻遭中共监视居住
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618189/)
+## 福奇领导的NIAID资助了对小狗进行的“残忍”实验
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1618192/)
 
-作者：澳喜农场 – 在远方
+韩国首尔天池农场——zzballack       上传——追着曙光跑
 
+据《每日邮报》（Daily Mail）10月24日报道，根据纳税人监督组织“白大褂浪费项目（White Coat Waste Project）”通过《信息自由法》获得的文件，美国国家卫生研究院（NIH）的下属部门国家过敏和传染病研究所（NIAID）使用纳税人的钱资助残忍的动物实验。以众议员南希·梅斯 (Nancy Mace)为首的24名立法者现在要求NIAID所长安东尼·福奇（Anthony Fauci）就此做出解释。
 
+其中最令人不安的一项实验发生在突尼斯的一个研究实验室，实验中小猎犬（Beagle）幼犬被下药，它们的头被关在在装满饥饿的沙蝇的网笼里，以便昆虫能将它们活活吃掉。报告称，“实验人员还连续9个晚上把小猎犬单独关在沙漠中的笼子里，把它们当作诱饵，吸引传染性沙蝇。” 这项实验获得了NIAID 37.5万美元的资助。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
+另外，NIAID在2018年10月至2019年2月期间，资助了加利福尼亚州门洛公园（Menlo Park）国际斯坦福研究所(SRI International) 的动物实验180万美元。实验给总共44只6至8个月大的小猎犬幼犬注射和强行喂食一种实验性药物。实验持续了数周，直到这些小狗被杀死和解剖。更可怕的是，这44只小狗接受了“声带切除术”，这是一种不人道的手术，即割开狗的声带，以消除狗的吠叫、交流、甚至哭泣能力。立法者说：“这种残酷的实验，为了让实验者不必听到小猎犬幼崽痛苦的哭声而割掉小狗的声带。这是对纳税人资金的滥用，应受到谴责。”
 
+NIAID还在2020年9月资助了佐治亚大学 (University of Georgia) 42万4455美元，实验通过让小猎犬感染寄生虫来测试不同的治疗方法是否有效，这些动物后来被杀死。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-20.jpg)
-中国民间权益组织“民生观察”，23日引用律师消息称，莆田欧金中被中共宣称自杀身亡后，其前妻欧秀香被中共当局，以“涉嫌包庇罪”为由监视居住，其前妻姐姐的两个儿子、女儿，也因该在事件中所谓涉嫌“散布谣言”而被查。
+美国食品药品监督管理局（FDA）说：“虽然文件指出，这些研究的表面目的是“提供具有适当质量和完整性的数据，以支持向FDA和其他监管机构的申请，但并不强制要求在狗身上研究人类药物。”
 
-据悉，殁年55岁的欧金中，因被邻居阻拦翻盖旧房，5年求告无门而激情杀人，导致对方2死3伤。在逃亡8日后，中共当局称其在警方围捕下自杀身亡。该事件发生以来，中国网民一边倒对他表示同情，并称之为“莆田刀客”。
-
-参考链接：
-1. [“莆田刀客”欧金中前妻遭中共监视居住](https://www.rfa.org/mandarin/Xinwen/7-10242021153412.html)
-2. [“莆田刀客”欧金中前妻遭中共监视居住](https://baijiahao.baidu.com/s?id=1713952782832797232&amp;wfr=spider&amp;for=pc)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：木白
-编辑：木白
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+[原新闻链接](https://www.dailymail.co.uk/news/article-10125599/Fauci-fire-puppy-experiments-utilized-disease-causing-parasites.html)

@@ -2,13 +2,9 @@
 ---
 
 
-## 西媒头条 — 第95期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1618412/)
+## 10/17/ 郭文贵直播：孙力军在蚂蚁金服上市前供出马云替背后老板江志成洗钱（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1618417/)
 
-**制作：蚂蚁兄弟**
+10/17/2021 郭文贵直播：孙力军在去年初蚂蚁金服上市前供出马云替背后老板江志成藏钱和洗钱，涉及了天量资金，习对此很震惊，马云被立刻骗回大陆并被逮捕，蚂蚁金服上市流产。
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1025-26.002.jpeg)
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
