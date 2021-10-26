@@ -2,26 +2,48 @@
 ---
 
 
-## 有声|中共军媒煽动民众抓美国间谍
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1618110/)
+## 郭文贵先生关于喜币的肺腑之言
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1618143/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-中共军媒《解放军报》17日在微博发帖，煽动墙内老百姓开展所谓反间防谍“人民战争”， 号召民众学习‘朝阳大妈’和’捞铜渔民’而努力抓间谍。
+**整理：**玉米地小蜗牛
+**编辑、发布：**Candy
+GTV大直播
 
-所谓朝阳大妈指的是，中共政府最基层组织居委会中的中老年妇女，她们兼任政府在居民日常生活中的耳目；而捞铜渔民则是指，在南中国海尾随美军考察船，捞取考察船放出的水文探测潜水器，然后上交中共的渔民。
+```
+喜币上市以后
+你要就听七哥两句话
+如果涨了需要钱
+就赶快卖
+啊 别犹豫 你别这 别老想着
+需要钱你就卖
+啊 第二 七哥给你建议
+啊 如果你要认为喜币
+不安全 不是好投资的话
+你 任何虚拟币都不要考虑了
+没有比喜币再安全 再增值
+没有任何 我可以负责告诉大家
+这个世界上如果你还想投资说
+合法的 安全的 有最大增长空间的 
+长寿的
+只有喜币
+啊 就这两句话给你们建议
+需要钱你就卖 别傻 卖掉它
+啊 因为不一定财富都是你的 啊 是不是
+到你手里面 你就花么
+然后就记住 要想买虚拟货币
+没有比喜币再稳定 再好 长期的了
+而且告诉大家 它的整个喜联储的价值
+它现在已经被固化了
+就是国家机构的投资者已经认定了是
+这个钱
+100000
+这 这是 得翻几次啊 翻好几次啊 啊
+啊 这是我只能透露这么多 别理解错啦
 
-由于美国中情局新成立了中共国任务中心，这让共产党感到高度紧张，而中共一贯善于使用群众运动的方式，来排查、监督和打击异议人士，或者被中共定义为敌对分子的人，却美其名曰“人民战争”。美国有线电视新闻网认为，中共新一轮反间防谍宣传战有可能加剧政治猎巫行动，任何被认为不爱中共国的人，都有被举报为“间谍”的风险。
-
-文字版原文：[中共军媒煽动民众抓美国间谍](https://gnews.org/zh-hans/1614426/)
-
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+更多資訊，請關註：
+澳大利亞墨爾本雅典娜農場Twitter：HimalayaAthena
+澳大利亞墨爾本雅典娜農場Gettr：himalayaathena
+澳大利亞墨爾本雅典娜農場YouTube
+澳大利亞墨爾本雅典娜農場Discord
+澳大利亞墨爾本雅典娜農場GTV直播1台
+```

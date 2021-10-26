@@ -2,36 +2,31 @@
 ---
 
 
-## 我什么时候可以在加拿大获得 Starlink 服务？
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1617935/)
+## GTV新闻访谈简报|2021年10月25日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1618009/)
 
-**翻译：**昔马千羽
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1358.png)图片来源：网络
-Starlink 于 2021 年初在加拿大上市。当您订购 Starlink 时，您会收到一封确认电子邮件，其中包含预计发货时间范围。 您还可以通过登录您的在线帐户来查看此信息。 根据 Starlink 网站，大多数套件会在 2 周内发货。
+作者：香草山翻译部
 
-Starlink 的本地网站最近上线，承诺在“2021 年中后期”为大多数地址提供服务。 服务是按照“先到先得”的原则提供的，但就可用服务数量或预期客户负载而言，没有真正的迹象表明这真正意味着什么。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-413.png)
 
-Starlink 在加拿大的费用是多少？
 
-Starlink 的单月计划定价为 129 加元，没有规定的数据上限。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1025text-SC.png)
+文章仅代表作者本人观点，与Gnews无关
 
-然而，还有更多。 您还需要购买接收器设备和硬件，费用为 649 加元加上 65 加元的运输和处理费用。 如果您被选为 Starlink 客户，则必须预先支付设备和运费。
+校对：Stay文苑
 
-Starlink 在加拿大的速度有多快？
+编辑：Stay文苑
 
-Starlink 正在宣传其服务将能够达到 50Mb/s 到 150Mb/s 的速度，在大多数位置延迟从 20 毫秒到 40 毫秒。 但它还指出，“也会有短暂的完全没有连接的时期。” 从理论上讲，随着 Starlink 随着时间的推移增加其卫星舰队，这将不是一个问题。
+发稿：Stay文苑
 
-但是，与任何无线技术一样，许多因素都会影响您的网络速度，包括环境和网络内的需求。 所以就像一条繁忙的道路，如果有太多的客户试图同时访问互联网，每个人的服务都可能会变得缓慢。 这就是 Starlink 不提供普遍服务的原因之一。
+视频参看：[晚GTV新闻访谈](https://gtv.org/broadcast/watch/61774b8aeadeb11f5e7a7e7c)
 
-**译者注：**在疫苗灾难爆发后，出现各种错综复杂局面，wifi的保障至关重要，
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
 
-希望大家密切关注马斯克星链计划的进展，尽早未雨绸缪，多做准备。
+**更多资讯，更多关注**
 
-新闻链接：[https://www.finder.com/ca/starlink](https://www.finder.com/ca/starlink)
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：LILY
-
-20211025
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)

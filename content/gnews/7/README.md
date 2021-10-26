@@ -2,42 +2,27 @@
 ---
 
 
-## 郭文贵先生对新中国联邦人强调“爱”的重要性
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618184/)
+## 秘翻在线：大科技公司继续封杀巴西总统关于中共病毒疫苗真相的视频
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1618196/)
 
-作者：纽约香草山农场 – 恩永存
+#### 撰稿：彩虹       
 
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-458.png)图片来源：德干先驱报
+10月26日，《路透社》发表文章，报道Facebook（脸书）和Youtube（油管）下架巴西总统有关中国病毒疫苗导致更易感染艾滋病的视频，Facebook同时暂停了其官方账号的使用。
 
+在视频中，巴西总统雅伊尔·博尔索纳罗（*Jair Bolsonaro*）说，根据一份报告，英国接受过两剂冠状病毒疫苗的人患艾滋病的速度比预期的更快。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
+对此，Facebook针对封杀直接回复说：“我们的政策不允许声称COVID-19疫苗会杀人或严重伤害人。”而Youtube的回复是：“我们删除了雅伊尔·博尔索纳罗频道的一段视频，因为它违反了我们关于COVID-19的医疗虚假信息政策，因为它指称疫苗不会降低感染该疾病的风险，而且会导致其他传染病。”
 
+另据《国会山报》10月25日报道披露，之前，路透社称曾报道博尔索纳罗7月份在他的YouTube频道上发布了一段视频，其中他建议服用羟氯喹和伊维菌素来治疗中共病毒（COVID-19），但该视频最终被Youtube下架。
 
+中共病毒疫苗的灾难还没有真正显现，而巴西总统雅伊尔·博尔索纳罗秉持真相，传播真相，遭受国内外世界各地暗黑势力的打压与绞杀，但真相就是真相，它可以被掩盖一时，但永远不可能被证伪。感谢巴西总统的大爱之心与无畏精神。
 
-10月24日文贵大直播中，郭文贵先生说：人类生存的价值大部份来自家庭，人最重要的关系就是家庭关系，而家庭中父母就是重中之重。郭先生曾经要求盘古员工必须孝敬父母，做不到就别来上班。一个父母都不尊重的人，说什么郭先生都不会尊重他。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-21.jpg)
-共产党这个魔鬼，毁了家庭，以爹亲娘亲不如党亲来洗脑人民，让人不孝敬父母。造成了太子爷般的儿子、孙子打父母，打爷爷奶奶；媳妇打公公等丧绝人伦之事。这种恶是郭先生决心灭共的最早起因。
+这恰恰成为盖特蓬勃发展的大好时机！
 
-郭先生强调：新中国联邦人，不管你有什么信仰，不把父母和家人放在第一位，不把爱和爱人放在第一位，你永远不会是新中国联邦人。家和万事兴。“和”来源于“爱”，没有“爱”就没有“和”；没有“和”，“家”就站立不住；没有“家”，就没有“国”。因此，“家”是“国”的根本。而“爱”是“家”的根本，因此，没有“爱”就不配做新中国联邦人。
+**新闻来源**
 
-参考链接：[郭文贵先生对新中国联邦人强调“爱”的重要性](https://gettr.com/post/pf2ptd1c68)
+[Facebook, YouTube take down Bolsonaro video over false vaccine claim](https://www.reuters.com/world/americas/facebook-takes-down-bolsonaro-video-over-false-vaccine-claim-2021-10-25/)
 
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：木白
-编辑：木白
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+[Facebook removes Bolsonaro video linking coronavirus vaccines to AIDS](https://thehill.com/policy/technology/578353-facebook-removes-bolsonaro-video-linking-coronavirus-vaccines-to-aids)

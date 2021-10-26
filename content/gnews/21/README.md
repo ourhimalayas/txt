@@ -2,20 +2,45 @@
 ---
 
 
-## 加拿大联邦专员介入调查“强制公务员接种疫苗计划”
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1618013/)
+## “人权火炬传递”行动 抵制北京冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618082/)
 
-编译撰稿： Spirit            校对编辑：硫酸羟氯喹64
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-1-edited.jpeg)图片来源：CBC
+作者：澳喜农场 – 在远方
 
 
-据《加拿大广播公司》10月24 日报道，加拿大联邦隐私专员特里安日前在一份由联邦、各省和地区的隐私专员共同签署的一项联合声明中指出，其所属部门正在调查有关强制政府公务员接种“新冠病毒疫苗”的隐私权问题。
 
-该调查专员表示，使用“新冠病毒疫苗”护照的规定虽然可能会暂时提供重大的公共卫生利益，但它仍然是特殊措施。联邦政府只有在仔细考虑了个人隐私和其他人权原则之后，才应该实施这些法规。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-此外，该联合声明还强调，“疫苗护照计划”必须通过实现其预期的公共卫生目标以证明其合理性，而且其有效性应该是基于事实证据基础之上的。所有与该计划相关的隐私风险必须要与其目标相对称。而且，个人信息和数据的收集都将仅用于实现该疫苗护照计划的预期目标。同时，该计划必须有一个明确的结束日期。
 
-（以上内容仅代表原文信息和作者个人观点）
 
-[原文链接：](https://www.cbc.ca/amp/1.6222622)
+10月24日，海外人权组织发起“人权火炬传递”行动，呼吁各国在外交层面抵制北京冬奥会。
+
+该游行由人权组织“现在就说不”发起，从德国汉诺威开始，在英国伦敦、德国柏林、瑞士日内瓦和奥地利维也纳等地，接力传送自制的人权火炬。维吾尔人、藏人和港人组织予以声援，并参与游行。
+
+“现在就说不”创办人Olaf Stando表示，尽管中共在2008年奥运会前曾许诺改善人权状况，但事实证明，新疆维吾尔人、藏人和香港人正遭受迫害，中共国人权状况正在持续恶化。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-121.jpg)
+参考链接：
+[英国伦敦近百人游行 呼吁各国向北京冬奥“说不”](https://www.rfa.org/mandarin/yataibaodao/gangtai/al-10242021161901.html)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编/编辑：木白
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

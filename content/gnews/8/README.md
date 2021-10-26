@@ -2,35 +2,34 @@
 ---
 
 
-## 辉瑞的秘密疫苗合同揭示了它如何实现利益最大化
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1618151/)
+## “香港加油”成为香港马拉松被禁敏感词
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618193/)
 
-韩国首尔天池农场——zzballack       上传——追着曙光跑
+作者：澳喜农场 – 在远方
+![This image has an empty alt attribute; its file name is image-40-1-6.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
+24日，在时隔两年八个月之后，渣打香港马拉松赛，在“港版国安法”阴影笼罩下再次举行。港共政府打着“预防及打击恐怖主义活动”的旗号，派出数千警员高压戒备。荒唐的是，一个简单的“香港加油”的双体书法服饰，竟然也成为所谓的“敏感词”而被禁用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-17.jpg)
+在比赛前，许多选手因为背心或者短裤上，印有竖看为“香港”，横看为“加油”的双体书法，被要求更换服饰，否则不能参赛。如果身上有“香港加油”的纹身，也被要求用胶布遮盖。还有选手透露，有工作人员威胁他们，如果穿有“香港加油”字句的服饰，就“后果自负”。
 
-据《捍卫者》（The Defender）10月20日报道，非营利组织公共公民 (Public Citizen) 10月19日发布的一份报告称，辉瑞公司利用其在中共病毒疫苗生产上的领先地位，通过与世界各国的秘密合同，“使政府保持沉默，扼制供应，转移风险，并使利益最大化。”
+参考链接：[“香港加油”成为香港马拉松被禁敏感词](https://www.voachinese.com/a/hong-kong-marathon-censors-sensitive-slogans-20211024/6283428.html)
 
-报告作者札尹·里兹维（Zain Rizvi）在一份声明中说：“辉瑞公司通过秘密合同从政府那里获得了一系列令人担忧的特权。全球社会不能允许制药公司继续无法无天。”
+（本文仅代表作者观点）
 
-公共公民组织基于其获得的辉瑞与许多国家政府签署的合同、草案或最终协议，确定了辉瑞在大流行病中使用的六种策略，旨在让公司得利而不是为公共健康服务。
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-1. 保留让政府沉默的权利
-辉瑞要求巴西政府接受了一份“放弃主权豁免权；不对辉瑞的延迟交货进行处罚；同意根据纽约法律的秘密私人仲裁来解决争端；并为辉瑞公司支付民事索赔赔偿”的合同。
+总编：木白
+编辑：木白
+校对/发稿：Hetangyuese
 
-2. 控制捐赠
-报告再次以巴西为例，指出巴西必须首先得到辉瑞的批准，才能接受捐赠或从其他国家购买疫苗。“在未经辉瑞许可的情况下，禁止在巴西境外捐赠、分发、出口或以其他方式运输疫苗。”
+**更多资讯，更多关注**
 
-3. 获得“知识产权豁免”
-辉瑞似乎认识到知识产权对疫苗开发、制造和销售所带来的风险。它利用合同将其可能犯下的任何知识产权侵权行为的责任转移给政府采购者。因此辉瑞可以使用它所喜欢的任何知识产权，而且基本上不用承担后果。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-4. 由私人仲裁员而不是公共法院秘密处理争端
-合同争端由国际商会应用纽约法律而非《国际商会仲裁规则》进行仲裁。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-5. 获得主权国家资产
-辉瑞在一些合同中要求“国家放弃主权豁免权”，使其能够“要求法院使用国家资产作为辉瑞获得仲裁裁决的保证，和/或在政府不付款的情况下使用这些资产来补偿辉瑞。”
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-6. 在关键事务上有决策权
-在供应链短缺的情况下，辉瑞将根据公司决定的原则来调整交付时间表。报告总结说：“绝大多数合同中，辉瑞的利益排在首位。”
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-公共公民组织呼吁世界各国领导人对辉瑞公司的谈判策略进行“反击”，并“控制”其垄断权力。公共公民获取药品项目（Access to Medicines program）的主任彼得·迈巴杜克 (Peter Maybarduk) 指控辉瑞公司“利用各国的绝望情绪”签署影响深远的合同。他说：“我们大多数人在大流行病期间都做出了牺牲。为了保护家人和朋友而保持距离。辉瑞公司却反其道而行之，利用其对稀缺的疫苗资源的控制，从那些几乎没有选择的人那里赢得了特权。”
-
-[原新闻来源](https://childrenshealthdefense.org/defender/covid-vaccine-contracts-pfizer-maximize-profits/)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
