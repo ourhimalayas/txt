@@ -2,20 +2,45 @@
 ---
 
 
-## 加拿大安省和卑诗省将取消大部分疫情卫生限制
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1617945/)
+## 国安法恐怖笼罩，国际特赦组织无奈退出香港
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618062/)
 
-原文采编：风云小哥    编译撰稿：硫酸羟氯喹64
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-3-edited.jpg)图片来源：CBC
+作者：东京樱花团 – 修文
 
 
-据《加拿大广播公司》10月24日新闻报道，安大略省长已宣布计划于3月底前分阶段停止所有“新冠病毒疫情”卫生限制措施。并将从次日起，取消对那些其员工和顾客都已完全接种“新冠病毒疫苗”的餐馆、酒吧和健身房等非必要公共场所的人数限制。
 
-对此，加拿大首席卫生官谭咏诗表示，由于该国近90%的合格居民都已接种了至少一剂“新冠病毒疫苗”，因此，安省和卑诗省政府将同时于10月25日放宽其疫情卫生限制。但该顶级医生同时也警告称：尽管如此，由于目前所有疫苗都尚存缺陷，所以当局可以预期将来会出现因接种该疫苗后可能导致的大量病患。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-此外，在卑诗省所有有组织的活动中，与会者都将被要求戴上口罩，并同时出示该疫苗的接种证明。而安省次日还将取消除餐馆，酒吧和健身房外大多数其他公共场所的人数限制，但这些场所同样必须要求所有顾客出示其“新冠病毒疫苗”的接种证明。
 
-（以上内容仅代表原文信息和作者个人观点）
 
-[原文链接：](https://www.cbc.ca/news/world/coronavirus-covid19-canada-world-oct24-2021-1.6223086)
+10月25日国际特赦组织宣布，中共在香港实施港区国安法后，该组织的行动面临更多限制，故将在十月底关闭香港的本地办事处，并于年底关闭亚太区总部位于香港的办事处。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-141.jpg)
+国际特赦组织主席拜斯指出，香港一直是国际民间社会组织的理想运作地点。但在香港国安法颁布后，人权工会团体遭遇各种打压，显示中共意图消除所有反对声音。在这种恐怖环境下，人权组织实际上已不可能在香港自由地运作。所以在运行四十年后，国际特赦组织无奈选择退出香港。
+
+香港实施国安法以来，已有超过60个政治或公民组织被迫解散。并有人权组织成员被控“煽动颠覆”等罪名。中共恐怖统治下，香港自由名存实亡，香港社会团体逐渐消失。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-8.jpg)
+参考链接：
+[國安法下運作困難 國際特赦組織宣布關閉香港2辦事處](https://news.ltn.com.tw/news/world/breakingnews/3715121)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编/编辑：木白
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

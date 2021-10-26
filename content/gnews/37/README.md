@@ -2,12 +2,31 @@
 ---
 
 
-## 群马县8人已全部接种2针疫苗，仍感染中共病毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1617885/)
+## GTV新闻访谈简报|2021年10月25日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1618009/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10._26-scaled.jpg)
-（文章仅代表作者个人观点，与GNEWS无关）
+作者：香草山翻译部
 
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-413.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1025text-SC.png)
+文章仅代表作者本人观点，与Gnews无关
+
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[晚GTV新闻访谈](https://gtv.org/broadcast/watch/61774b8aeadeb11f5e7a7e7c)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)

@@ -2,26 +2,34 @@
 ---
 
 
-## 2021年10月24日郭文贵先生：吴征家族会比王健惨
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1618137/)
+## “香港加油”成为香港马拉松被禁敏感词
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618193/)
 
-#### 剪辑：玉米地的小蜗牛
+作者：澳喜农场 – 在远方
+![This image has an empty alt attribute; its file name is image-40-1-6.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-6.png)
+24日，在时隔两年八个月之后，渣打香港马拉松赛，在“港版国安法”阴影笼罩下再次举行。港共政府打着“预防及打击恐怖主义活动”的旗号，派出数千警员高压戒备。荒唐的是，一个简单的“香港加油”的双体书法服饰，竟然也成为所谓的“敏感词”而被禁用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-17.jpg)
+在比赛前，许多选手因为背心或者短裤上，印有竖看为“香港”，横看为“加油”的双体书法，被要求更换服饰，否则不能参赛。如果身上有“香港加油”的纹身，也被要求用胶布遮盖。还有选手透露，有工作人员威胁他们，如果穿有“香港加油”字句的服饰，就“后果自负”。
 
-#### 吴征家族会比王健惨；川普的案件会以滑稽结果收场；川普和新中国联邦的关系会比想象中好。
+参考链接：[“香港加油”成为香港马拉松被禁敏感词](https://www.voachinese.com/a/hong-kong-marathon-censors-sensitive-slogans-20211024/6283428.html)
 
-吴征的被刑事调查这件事情，几乎可以改变中美之间所有过去这些年跟吴征有官司所有的案子。记住我这句话，这事巨大 你们不懂，它很大啊。而且吴征和杨澜和他孩子， 一定会（成为）世界上比王健家族还惨的人。
+（本文仅代表作者观点）
 
-一 、王健毕竟没骗美国人，他（吴征）骗得全是美国人，而且涉及到美国情报和政治啊。
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-那么，同时我告诉大家，川普总统这个SPAC， 最后的结果，是（以）非常的荒唐， 滑稽，和灾难的结果结束的。这一点， 一点都无容置疑。
+总编：木白
+编辑：木白
+校对/发稿：Hetangyuese
 
-最后，关于川普总统和爆料革命的关系，和Gettr的关系，会比你想象好得多， 会很滑稽啊，但是会比你想象的好。
+**更多资讯，更多关注**
 
-***发布：小红帽***
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)

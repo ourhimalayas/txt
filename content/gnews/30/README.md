@@ -2,24 +2,30 @@
 ---
 
 
-## 美佛州州长要求追责福奇
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1617971/)
+## 有声|喜币即将上市 具有最佳增值潜力
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1618078/)
 
-原文采编：文莱      编译撰稿：文所未闻
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月24日，郭文贵先生在大直播中介绍，喜美元与美元锚定，是稳定币，喜联储承诺每年会拿出20%的收入购买储备黄金。喜币操作便捷，可随时进出，并可由喜币直接兑换喜美元，都充分体现喜币的保值及安全性。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-8-edited.jpg)图片来源：后千禧年
+未来，喜币最重要的是要进入流通领域，前景广阔。据对日本市场的初步评估显示，虚拟货币将会占到未来日本市场的30%，即1.5万亿。
 
+郭先生称，喜币是增值潜力最好的虚拟货币。整个喜联储的价值已经被固化。掌握超过一万亿美元资金的国家机构投资者在评估后表示，喜联储的喜币，喜美元是最安全，最可流通，最高信用的货币系统。
 
-据加拿大自媒体《后千禧年》10月25日报道，美国佛罗里达州州长罗恩当天公开谴责并要求追责福奇及其同僚，长期资助【武汉病毒研究所】对“新冠病毒”进行的各项功能增强性研究。
+涉及到喜联储未来的业务，郭先生表示，喜联储未来一定会有保险，贷款业务，并接受G系列之外的流通支付。喜币一定要在全世界成为最好的贷款抵押物。
 
-罗恩对此表示：白宫首席医疗官福奇领导的【美国国家卫生研究院】向中共【武汉病毒研究所】的各项生化试验研究提供了巨额资金。同时，该州长还进一步抨击了由该福奇资助的，在突尼斯对宠物狗进行令人发指的，残酷和非必要的各类动物实验。
+让我们期待下周喜币的隆重上市**。**
 
-该州长随后呼吁道：本着美国纳税人的立场，本着法律和道德的立场，福奇及其同谋应该被严厉追责，并必须被立即解职。
+文字版原文：[喜币即将上市 具有最佳增值潜力](https://gnews.org/zh-hans/1615954/)
 
-（以上内容仅代表原文信息和作者个人观点）
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-[原文链接：](https://thepostmillennial.com/desantis-fauci-gain-of-function-puppies)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,66 +2,27 @@
 ---
 
 
-## 美疾控中心咨询委员会确认莫德纳疫苗比辉瑞疫苗更危险
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1618275/)
+## “香港加油”成禁语 马拉松跑手被拒赛
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1618376/)
 
-据《零对冲》作者泰勒·杜登（Tyler Durden）2021年10月21日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/vax.png)图片来自网络
-美国疾病控制与预防中心（CDC） 的独立顾问小组一致投票通过为某些人群推荐莫德纳和强生加强针，并允许人们混合搭配不同针剂。
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-143.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fs.rfi.fr%2Fmedia%2Fdisplay%2Ff0720630-34df-11ec-8eec-005056bf30b7%2F2021-10-24T011702Z_757379715_RC20GQ9D6LR7_RTRMADP_3_ATHLETICS-HONGKONG%2520%25281%2529.JPG&amp;imgrefurl=https%3A%2F%2Fwww.rfi.fr%2Fcn%2F%25E4%25B8%25AD%25E5%259B%25BD%2F20211024-%25E9%25A6%2599%25E6%25B8%25AF%25E9%25A9%25AC%25E6%258B%2589%25E6%259D%25BE%25E8%25B5%259B%25E4%25BA%25A6-%25E6%259F%2593%25E7%25BA%25A2-%25E9%25A6%2599%25E6%25B8%25AF-%25E5%258A%25A0%25E6%25B2%25B9-%25E5%25AD%2597%25E7%259C%25BC%25E9%2581%25AD%25E6%258C%2587%25E6%25B6%2589%25E6%2594%25BF%25E6%25B2%25BB%25E8%25A2%25AB%25E7%25A6%2581&amp;tbnid=O_TeDAQANYfVfM&amp;vet=12ahUKEwi5r6LJtefzAhXJhksFHWyIAPkQMygAegUIARCZAQ..i&amp;docid=0jet122cFGQHGM&amp;w=2480&amp;h=1627&amp;itg=1&amp;q=%E9%A6%99%E6%B8%AF%E9%A9%AC%E6%8B%89%E6%9D%BE&amp;ved=2ahUKEwi5r6LJtefzAhXJhksFHWyIAPkQMygAegUIARCZAQ)
+在停办两年多后，香港渣打马拉松上周日举行。据香港媒体报道，在今年的渣马赛上，一些跑手因背心或短裤上印有竖看为“香港”，横看为“加油”的双体书法图案，被要求更换服装，否则不能参赛。“香港01”报道，有运动员身上有“香港加油”的纹身，被工作人员要求用胶布遮盖。还有跑手透露，有工作人员声称如果穿回有“香港加油”字样的服饰就后果自负。
 
-这与食品药品监督管理局（FDA） 周三晚上的授权一致，该授权表示人们可以改用他们想要的任何疫苗进行加强注射。
+一些人进场时还被警员搜身、检查、摄像，记录号码牌及身份证号码。据《明报》报道，起跑前，弥敦道一带有数十名警员戒备，至少有两名市民因身上衣服印有“香港加油”的字样被警方截停，并被带到大会的保安检查站要求更换服装。另一位市民试图将衣服反转穿着，但仍被当局拒绝参赛。
 
-- 莫德纳的两剂和强生的单剂的加强针可由 65 岁以上的美国人以及 18 岁以上的罹患严重中共病毒风险高或接触病毒的人选用。
-- 莫德纳加强针的剂量将少于其两剂组合，并且将在第三次注射后六个月被允许。
-- 强生将在两个月后被允许。
-- 美国食品和药品管理局周三晚上授权批准，人们可以改用他们想要的任何疫苗进行加强注射。
+渣马筹委会主席高威林10月18日在赛前简介会时曾说，认为“香港加油”没有问题，但是补充称建议“香港加油”转成“跑手加油”。在赛事结束后的记者会上，高威林在被追问为何不让穿“香港加油”字句服饰的跑手参赛时，只是重申渣打香港马拉松“是一项体育活动，不希望加入任何政治元素”。
 
+在香港媒体的推特发布下，很多用户纷纷评论认为这种做法荒唐可笑，“香港加油”都不能说，国安法让渣打马拉松很可笑。这就是现实中的香港，难道不是另一种恐怖？中共已经将香港变成另一个恐怖社会。一个连“香港加油”都能成为禁语的国家还有救吗？四个自信哪里去了？这个国家根本神经衰弱得了被害妄想症。武汉爆发疫情，媒体一片“武汉加油”声，郑州遭遇水灾，媒体一片“郑州加油”声，如今香港举办马拉松，“香港加油”涉嫌违反国安法？
 
-提醒一下，该委员会在 9 月下旬不支持辉瑞为高风险工作人群提供加强剂，但被 CDC 主任罗谢尔·瓦伦斯基（Rochelle Walensky）否决了。
+香港三权分立的政治制度在中共国所谓“国安法”非法实施之后，已经丧失殆尽，之前香港的言论自由环境在中共荼毒蹂躏之下，已经荡然无存，可以想象，只要中共政权还存在一天，对香港的自由民主法治的毒害只能是愈演愈烈。
 
-“我们必须承认我们目前不具有想要的那么多数据。但我们仍必须做出切实的决定，我认为有足够多的数据支持混合搭配及总体上使用加强针，WebMD 首席医疗官约翰·怀特 ( John Whyte ) 告诉 Axios。
+信息来源：
 
-早在 7 月，我们就报道了发表在 JAMA 心脏病学杂志上的一项研究，该研究将美国男性士兵的“急性胸痛”与 mRNA 疫苗联系起来。研究人员发现，这种疼痛是由心肌炎和心包炎引起的，这是两种不同类型的心脏炎症，正如我们现在所知，这是 mRNA 疫苗罕见但危险的副作用。
+[“香港加油”成禁语 马拉松跑手被拒赛](https://www.dw.com/zh/%E9%A6%99%E6%B8%AF%E5%8A%A0%E6%B2%B9%E6%88%90%E7%A6%81%E8%AF%AD-%E9%A9%AC%E6%8B%89%E6%9D%BE%E8%B7%91%E6%89%8B%E8%A2%AB%E6%8B%92%E8%B5%9B/a-59617580)
 
-大约六周后，《华盛顿邮报》公布了一项泄露的加拿大研究数据，该研究声称，接种莫德纳疫苗的患者，比接种辉瑞疫苗有这类危险的副作用（主要发生在年轻男性中）的风险显著更高 。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-现在，在 FDA 蔑视自己的顾问，而批准莫德纳和强生疫苗用于几乎所有美国成年人的加强注射（同时还制定了用于加强注射的疫苗混合搭配指南）一天后，CDC 顾问小组周四召开会议，在审查所有关于安全性和有效性的数据后，终于承认，早先关于与莫德纳疫苗相关的高危警告已经得到证实。
-
-更重要的是，正如下面的幻灯片所示，莫德纳疫苗比辉瑞疫苗在 18-39 岁人群中的罕见心脏病（心肌炎/心包炎）发生率更高。但两者都存在风险，年轻患者（最不需要疫苗）最有可能出现问题。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/s-2.jpg)
-可以肯定的是，CDC 咨询委员会的报告指出，大多数接种疫苗后的心脏炎症病例“通常是轻微的，症状会迅速消失”。但请记住，这是在 40 岁以下的成年患者中，他们感染中共病毒的风险最低（除非他们的免疫系统较弱、肥胖或有任何使他们特别易受伤害的其他问题）。
-
-有关莫德纳与辉瑞风险的直观情况，请查看下面的图表，该表基于北加州凯撒医院收集的数据，已提交给 CDC 的免疫实践咨询委员会。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/m.jpg)
-当然，这些数据不包括接受加强针的患者，尽管一些数据表明加强针会增加罕见副作用的风险（尽管它们确实非常罕见）。
-
-当谈到加强针时，目前尚不清楚莫德纳加强针的心肌炎风险是否也这么高，因为 FDA 和 CDC 要求莫德纳以较低剂量重新配制加强针（因为也有数据显示莫德纳加强针的功效比辉瑞的更持久 ）。
-
-不幸的是，担任中共病毒疫苗安全工作组主席的 ACIP 成员凯普·塔尔博特（Keipp Talbot） 周四告诉他的同僚们，目前无法确定是否会可以通过使用原始计量一半的加强针来降低莫德纳疫苗的风险。
-
-另一位咨询委员会成员表示，她担心向年轻男性提供 mRNA 加强针有危险，也不放心向年轻女性提供强生加强针（接种强生和阿斯利康疫苗与严重的副作用甚至死亡有关）。
-
-最后，在审查了所有安全性和有效性数据后，一位应该是监视周四会议的观察员仍然有一个急迫的问题：mRNA 加强针会提供稳定的加强保护吗？还是说 mRNA 保护本质上就是短暂的？
-
-
-
-> 31. Here's the conclusion slide for the VE presentation. 
-> Another thing I'd like to know: Will mRNA boosters lead to stabilized boosting? Or is mRNA protection inherently short-lived? [@florian\_krammer](https://twitter.com/florian_krammer?ref_src=twsrc%5Etfw)? [@TheBcellArtist](https://twitter.com/TheBcellArtist?ref_src=twsrc%5Etfw)? [@EJohnWherry](https://twitter.com/EJohnWherry?ref_src=twsrc%5Etfw)? [pic.twitter.com/MpPICsHPwH](https://t.co/MpPICsHPwH)
-> — Helen Branswell (@HelenBranswell) [October 21, 2021](https://twitter.com/HelenBranswell/status/1451264817310883840?ref_src=twsrc%5Etfw)
-
-
-
-*回复@HelenBranswell*
-*31. 这是 VE 演示的结论幻灯片。*
-*我想知道的另一件事是：mRNA 加强针会提供稳定的加强保护吗？*
-*还是说 mRNA 保护本质上就是短暂的？*
-*@florian\_krammer？ @TheBcellArtist？ @EJohnWherry？*
-*2021年10月21日*
-
-由于拜登政府因 delta 变体而急于施打加强针（现在，随着 delta-plus 变体的威胁迫在眉睫），看起来我们会一起找出答案。
-
-【本文仅代表作者个人观点，与Gnews 无关】
-
-原文链接：[https://www.zerohedge.com/covid-19/cdc-advisory-committee-quietly-confirms-moderna-jab-significantly-more-dangerous-pfizer](https://www.zerohedge.com/covid-19/cdc-advisory-committee-quietly-confirms-moderna-jab-significantly-more-dangerous-pfizer)
-
-翻译：Nick｜校对：JS709｜编辑&发布：V
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

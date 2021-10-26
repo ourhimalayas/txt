@@ -2,20 +2,26 @@
 ---
 
 
-## 加拿大联邦专员介入调查“强制公务员接种疫苗计划”
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1618013/)
+## 有声|中共军媒煽动民众抓美国间谍
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1618110/)
 
-编译撰稿： Spirit            校对编辑：硫酸羟氯喹64
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+中共军媒《解放军报》17日在微博发帖，煽动墙内老百姓开展所谓反间防谍“人民战争”， 号召民众学习‘朝阳大妈’和’捞铜渔民’而努力抓间谍。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-1-edited.jpeg)图片来源：CBC
+所谓朝阳大妈指的是，中共政府最基层组织居委会中的中老年妇女，她们兼任政府在居民日常生活中的耳目；而捞铜渔民则是指，在南中国海尾随美军考察船，捞取考察船放出的水文探测潜水器，然后上交中共的渔民。
 
+由于美国中情局新成立了中共国任务中心，这让共产党感到高度紧张，而中共一贯善于使用群众运动的方式，来排查、监督和打击异议人士，或者被中共定义为敌对分子的人，却美其名曰“人民战争”。美国有线电视新闻网认为，中共新一轮反间防谍宣传战有可能加剧政治猎巫行动，任何被认为不爱中共国的人，都有被举报为“间谍”的风险。
 
-据《加拿大广播公司》10月24 日报道，加拿大联邦隐私专员特里安日前在一份由联邦、各省和地区的隐私专员共同签署的一项联合声明中指出，其所属部门正在调查有关强制政府公务员接种“新冠病毒疫苗”的隐私权问题。
+文字版原文：[中共军媒煽动民众抓美国间谍](https://gnews.org/zh-hans/1614426/)
 
-该调查专员表示，使用“新冠病毒疫苗”护照的规定虽然可能会暂时提供重大的公共卫生利益，但它仍然是特殊措施。联邦政府只有在仔细考虑了个人隐私和其他人权原则之后，才应该实施这些法规。
-
-此外，该联合声明还强调，“疫苗护照计划”必须通过实现其预期的公共卫生目标以证明其合理性，而且其有效性应该是基于事实证据基础之上的。所有与该计划相关的隐私风险必须要与其目标相对称。而且，个人信息和数据的收集都将仅用于实现该疫苗护照计划的预期目标。同时，该计划必须有一个明确的结束日期。
-
-（以上内容仅代表原文信息和作者个人观点）
-
-[原文链接：](https://www.cbc.ca/amp/1.6222622)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

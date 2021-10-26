@@ -2,44 +2,31 @@
 ---
 
 
-## 维州拟出台新法规，违反公共卫生命令监禁或重罚
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1618205/)
+## 针下亡魂｜英国 35 岁女医护接种疫苗三个月后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1618330/)
 
-#### 编译报导：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan1-11.jpg)**图片来源：ARAB NEWS**
-根据澳大利亚维多利亚州安德鲁斯政府提出的最新流行病法律，被判定“故意和鲁莽地”违反公共卫生命令的人将面临两年监禁或90,000澳元罚款。
+**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 26/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
+***更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）***
 
-周二上午，维州政府提交了《2021年公共卫生和福利修正案（大流行管理）法案》，该法案将消减首席卫生官的权力，**州长拥有宣布大流行的权力，并赋予卫生部长发布公共卫生命令的职责。**
+【英国】曼彻斯特一名 35 岁的女医护 Rachel McKinney 在接种完辉瑞 COVID-19 疫苗后，经历了两个多月与严重不良反应的搏斗，最终在因多发性硬化症而死亡。
 
-卫生部长马丁·弗利表示，新立法的核心是透明决策，而反对党则谴责这是“对民主的不可思议的攻击”。
+按照当地规定，身为医务人员的 Rachel 是首批需要接受新冠疫苗注射的人士。据她的姐姐 Gemma Louise Walls 的回忆，Rachel 在 12 月下旬接种了第一剂疫苗，随后在 1 月接种了第二剂，直到一月，一切都很好。不过，二月份开始，Rachel 就突然说话含糊不清，并有轻微失语症。家人随即怀疑她中风。
 
-一个独立委员会将审查这项关键决定，并在宣布卫生命令后公开（政府）建议。如果一个人不遵守卫生命令并且知道——或应该知道——这会给他人的健康带来“严重风险”，**他们将面临两年监禁或90,000澳元罚款，而企业可能会被罚款455,000澳元。**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Gemma-Louise.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Jamie-Lauren-Walls.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Kevin-McKinney.png)
 
-“在许多方面，就审查、监督、透明度而言，它们都是正确的安排。（政府）与许多不同领域的专家进行了广泛的磋商，”州长安德鲁斯周二上午表示：“重要的是我们要从经验中学习，并且我们已经为下一阶段的新冠疫情生活以及这种病毒的正常化做出了最好的安排。”
 
-“我们需要具体的[大流行期间]法律……来保护我们并保证我们的安全。这是我们的承诺，这就是我们所交付的。”
+曼彻斯特晚报报导，有一名急救接线员建议带 Rachel 去 Stepping Hill 医院诊治，医生诊断她患有脑部炎症，后来又被转移到索尔福德皇家医院，该院认为她患上了急性播散性脑脊髓炎（ADEM），报导引述家人，怀疑是疫苗造成这一系列的病症，因为“直至 12 月接受疫苗之前，Rachel 一直非常健康。”
 
-反对党领袖马修·盖伊指责州长“篡夺”议会，并敦促上议院跨席议员反对该立法。
+可惜，Rachel 的病情恶化的十分迅速，瘫痪、失语、癫痫、昏迷。由于 COVID-19 的防疫限制，在 Rachel 住院治疗的 46 日期间， 家人不可以见她，他们唯有在 FaceTime 上看着 Rachel 痛苦的煎熬而哭泣。
 
-安德鲁斯政府需要立法委员会中三名独立议员的投票才能通过立法。它已经获得了菲奥娜·帕滕（Fiona Patten）、安迪·梅迪克（Andy Meddick）和萨曼莎·拉特南（Samantha Ratnam）的投票，几乎可以保证了该法案的安全通过。
+Rachel 独自对抗病魔战斗了几个星期之后，4 月 13 日她过世了，留下了丈夫 kevin 及两个小朋友——一对 8 岁及 12 岁的儿子，医生的结论是，她不知何故患上了一种罕见的多发性硬化症。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/48_0.jpg)
+来源｜[个案048](https://www.manchestereveningnews.co.uk/news/greater-manchester-news/fit-healthy-everything-live-for-20376989)
 
-本月早些时候，盖伊先生表示，公共卫生命令应该“由部长或州长签署”。周二早上，他说这些决定应该在监督下做出。
+* * *
 
-“讨论的只是政府提案的百分之一，没有人谈及州长在扩张权力，根据他们的意旨来禁止抗议活动或个人（自由），”盖伊先生说。
-
-“从来没有人谈论过法案所提议给与州长如此广泛的权力……在该法案背后，政府罗列了一大堆措施，这些措施完全是非常严酷的。”
-
-该立法将于本周在下议院进行辩论，预计将获得通过。
-
-（文中观点仅代表作者个人观点，与Gnews平台无关）
-
-原文链接：[Victoria COVID: Two-year jail terms loom for health order breaches under pandemic laws (theage.com.au)](https://www.theage.com.au/politics/victoria/two-year-jail-terms-loom-for-health-order-breaches-under-pandemic-laws-20211026-p59349.html?utm_medium=Social&amp;utm_source=Twitter#Echobox=1635217647)
-
-发布：文泓
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)

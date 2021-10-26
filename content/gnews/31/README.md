@@ -2,45 +2,28 @@
 ---
 
 
-## 澳大利亚针对中共的大动作：Telstra收购Digicel Pacific
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1617969/)
+## 有声|吴征2019年已被美国FBI刑事调查
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1618065/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+郭文贵先生在10月24日直播中爆料，吴征等近十名中共人员，在2019年已被美国FBI刑事调查。作为美国公民，吴征却不敢回美国，就是逃离刑事调查。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/telstra-shop-sydney.jpg)
+吴征在刑事调查期间，仍签署大量上市公司文件，但从未对外披露，这样的行为是罪上加罪。
 
+吴征在中共国曾四次被逮捕和保释，中共的目的就是威胁和利用他，继续对爆料革命进行法律超限战。吴征等人操纵的SPAC空壳上市公司，将把华尔街的基金、律师事务所、以及前总统川普，全部卷入刑事调查中。
 
+郭先生强调，吴征家族，包括太太杨澜和弟弟吴斌，因卷入美国情报和金融犯罪，甚至操纵美国司法，触及美国的根本利益，其下场，一定比王健家族更惨。
 
-图片来源：zdnet.com
+文字版原文：[吴征2019年已被美国FBI刑事调查](https://gnews.org/zh-hans/1616318/)
 
-
-编译：小红帽
-
-澳大利亚电信公司Telstra已同意使用纳税人的18亿美元现金购买太平洋地区最大的电信公司Digicel Pacific，以防止其被中共国拥有。
-
-Digicel Pacific的销售额为21亿美元，在巴布亚新几内亚、汤加、斐济、瑙鲁、萨摩亚和瓦努阿图有业务。该公司的出售将于明年完成。
-
-大部分费用由澳大利亚政府通过澳大利亚出口金融公司承担，其余费用由Telstra支付。
-
-中共国有企业中国移动曾表示有兴趣收购Digicel，但澳大利亚政府不希望该战略资产落入中国共产党之手。
-
-在一份联合声明中，澳大利亚外交部长玛丽斯·佩恩（Marise Payne）、贸易部长丹德（Dan Tehan）以及国际发展和太平洋部长泽德·塞塞利亚（ Zed Seselja）表示，澳大利亚政府希望看到该协议的长期回报。
-
-部长们周一表示，此次收购还反映了澳大利亚政府的承诺–支持该地区安全可靠的基础设施的发展。
-
-创办该公司的爱尔兰亿万富翁丹尼斯·奥布赖恩 (Denis O’Brien) 将加入该公司的新董事会。
-
-明年年中完成收购后，Telstra将控制Digicel Pacific100%的股份。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Australia’s big move against China: Telstra buys Digicel Pacific (msn.com)](https://www.msn.com/en-au/news/australia/australia-s-big-move-against-china-telstra-buys-digicel-pacific/ar-AAPUWO7?ocid=msedgntp)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,45 +2,26 @@
 ---
 
 
-## 国安法恐怖笼罩，国际特赦组织无奈退出香港
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1618062/)
+## 2021年10月24日郭文贵先生：吴征家族会比王健惨
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1618137/)
 
-作者：东京樱花团 – 修文
+#### 剪辑：玉米地的小蜗牛
 
+#### 吴征家族会比王健惨；川普的案件会以滑稽结果收场；川普和新中国联邦的关系会比想象中好。
 
+吴征的被刑事调查这件事情，几乎可以改变中美之间所有过去这些年跟吴征有官司所有的案子。记住我这句话，这事巨大 你们不懂，它很大啊。而且吴征和杨澜和他孩子， 一定会（成为）世界上比王健家族还惨的人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+一 、王健毕竟没骗美国人，他（吴征）骗得全是美国人，而且涉及到美国情报和政治啊。
 
+那么，同时我告诉大家，川普总统这个SPAC， 最后的结果，是（以）非常的荒唐， 滑稽，和灾难的结果结束的。这一点， 一点都无容置疑。
 
+最后，关于川普总统和爆料革命的关系，和Gettr的关系，会比你想象好得多， 会很滑稽啊，但是会比你想象的好。
 
-10月25日国际特赦组织宣布，中共在香港实施港区国安法后，该组织的行动面临更多限制，故将在十月底关闭香港的本地办事处，并于年底关闭亚太区总部位于香港的办事处。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-141.jpg)
-国际特赦组织主席拜斯指出，香港一直是国际民间社会组织的理想运作地点。但在香港国安法颁布后，人权工会团体遭遇各种打压，显示中共意图消除所有反对声音。在这种恐怖环境下，人权组织实际上已不可能在香港自由地运作。所以在运行四十年后，国际特赦组织无奈选择退出香港。
+***发布：小红帽***
 
-香港实施国安法以来，已有超过60个政治或公民组织被迫解散。并有人权组织成员被控“煽动颠覆”等罪名。中共恐怖统治下，香港自由名存实亡，香港社会团体逐渐消失。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-8.jpg)
-参考链接：
-[國安法下運作困難 國際特赦組織宣布關閉香港2辦事處](https://news.ltn.com.tw/news/world/breakingnews/3715121)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编/编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
