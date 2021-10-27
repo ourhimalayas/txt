@@ -2,45 +2,62 @@
 ---
 
 
-## FDA专家投票赞成5-11岁儿童疫苗
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1620545/)
+## 别拍了！录像曝光：医院拒绝为新冠病人提供治疗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1620579/)
 
-**编译：西班牙喜悦农场–wenwu**
+编译**：Lulumi**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-473.png)图片来源**：** zerohedge.com
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-478.png)图片来源**：** lifesitenews.com
 
-美国食品和药物管理局（FDA）以17票赞成、1票弃权的结果宣布，该机构建议授权对5至11岁的美国儿童紧急使用辉瑞-生物技术公司（Pfizer-BioNTech）的中共病毒（COVID-19）疫苗。
+亚利桑那州图森市——LifeSiteNews的读者不要错过周三的曝光COVID-19患者被医疗虐待和忽视的在线会议。
 
-据《德克萨斯论坛报》的Karen Brooks Harper报道，这一决定为 FDA的最终授权打开了绿灯，而这次授权儿童疫苗最早可能在周三出台（[如下图](https://twitter.com/kbrooksharper/status/1453094747644604424?s=20)）。
+“录像曝光”将是一个爆炸性的新闻发布会事件，介绍医院高管讨论，限制住院的中共病毒病人的输液和营养的协调计划，压制中共病毒病人在住院期间的所有探视，拒绝提供重要药物等令人震惊的录音。在美国的医院里，被定罪的重刑犯都比中共病毒患者享有更多的权利。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-475.png)
+请在东部时间10月27日星期三中午参加我们的 “别拍了！被拍到的录像…” 视频新闻发布会，由LifeSiteNews和多个直播平台进行直播。如需参与直播，请发电子邮件至 [\[email protected\]](/cdn-cgi/l/email-protection#dd94b3bbb29d89afa8a9b5bbb2af95b8bcb1a9b5f3b2afba)获取链接。
 
-《美联社》曾[表示](https://www.wmbfnews.com/2021/10/26/fda-advisers-endorse-pfizers-covid-19-vaccine-children-ages-5-11/?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=snd&amp;utm_content=wmbf)，FDA 可以直接忽视专家投票组的约束（即使反对也会通过辉瑞疫苗），而一旦获得 FDA 批准，美国疾病控制和预防中心（CDC）将于下周批准辉瑞疫苗的儿童疫苗授权，以及哪些群体应该接受儿童疫苗。
+501(c)(3)公共慈善机构 “健康真相基金会”主席和首席执行官伊丽莎白·李·弗利特(Elizabeth Lee Vliet)医学博士，将主持新闻发布会，律师和患者代言人阿里·舒尔茨(Ali Shultz)会揭露亚利桑那州医院首席执行官们的勾结损害病人的行为。
 
-幼儿的剂量是包含12岁及以上人群剂量的三分之一。值得注意的是，推友（[@Techno\_Fog](https://twitter.com/Techno_Fog/status/1453095851824459776?s=20))在推特上的信息分享表明（如下图）：FDA 的专家们在为所有美国人的5-11岁儿童在美国政府机构权衡美国儿童，所面临的中共病毒的危机问题上不懂孩子们到底有什么危险需要打中共疫苗；美国儿童打了辉瑞疫苗后，可以帮助美国更清楚了解中共疫苗是否对美国儿童产生了威胁（中共病毒的危机对美国人不重要，中共疫苗才是 FDA 需要研究和关注的威胁，并承认美国儿童能否成为政府机构的白老鼠的重要性）。
+宪法和民权律师劳伦·马泰尔（Lauren Martel）将介绍中共病毒患者的虐待行为，对接种疫苗和未接种疫苗的急诊室患者进行PCR测试的不同标准，以及南卡罗来纳州医院导致多名患者死亡的重大医疗护理疏忽。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-476.png)
+舒尔茨和马泰尔是基金会法律顾问委员会的成员，他们与基金会的医疗团队一起在处理医院虐待行为的战壕里工作，因为他们协助那些急于让他们的亲人离开医院以挽救他们的生命的家属。
 
-**简评：**
+LifeSiteNews联合创始人约翰-亨利·韦斯特恩（John-Henry Westen）将作介绍性发言。其他演讲者包括彼得·麦卡洛（Peter McCullough）医生、托马斯·兰兹（Thomas Renz）律师、心理健康专家以及因被拒绝接受所要求的治疗而死亡的病人的家属。
 
-**我们知道德尔塔更易感染儿童，而基本上感染了中共病毒的儿童并不会导致死亡，或者死亡率接近于零。更重要的是，感染中共病毒的患者之所以死亡，医院也有责任，正是由于在政府医疗系统机构淫威下的医院的不作为，像中共一样故意把病人往死里治疗的疫苗商业模式的运营，导致了如今中共病毒的死亡人数的大量产生。印度的北方邦在使用了伊维菌素后，持续出现了零感染，这就是支持对西方医疗系统控诉的铁证。**
+令人震惊的医疗暴政故事表明，中共病毒患者的权利每天都受到侵犯，中共病毒患者如何受到歧视、心理虐待，以及在被剥夺救命护理的同时，被在化学和物理约束下隔离。
 
-**更让人惊掉下巴的是，澳大利亚维多利亚州未来不打疫苗竟然会被关起来。郭文贵先生曾爆料，疫苗灾难还没有开始！希望所有人共同发出自己的声音，停止人类的末路狂奔！**
+真相健康基金会的律师和医生继续揭露医院侵犯人权的可怕行为，包括违反二战后为防止虐待囚犯而制定的日内瓦公约准则。
 
-**以下分享两则签名。**
+1. 强迫所有中共病毒患者使用瑞德西韦，而不顾这种药物对肾脏的损害和死亡的风险。
+2. 限制输液和营养，进一步损害了病人的肺功能和对重要器官的氧气输送。
+3. 操纵和胁迫家属同意病人使用呼吸机，因为这增加了奖励金，为医院创造了巨大的利润。
+4. 拒绝使用抗炎药物，如皮质类固醇，这进一步损害了肺部。
+5. 拒绝提供抗病毒药物、抗生素和治疗剂量的“血液稀释剂”药物。
+6. 拒绝家人、牧师、神父、拉比和律师接触病人。
+7. 用执法部门来拒绝家属、律师和病人自己的医疗授权代理人进入医院场地。
 
-**澳洲的战友可以[点击](https://www.reignitedemocracyaustralia.com.au/STOP-THE-BILL/)，并进入签名。表达您不想因为不打中共疫苗而被关起来的声音。**
 
-**美国的战友可以[点击](https://www.change.org/p/congress-of-the-united-states-do-not-vaccinate-5-11-year-olds?recruiter=1016512074&amp;utm_source=share_petition&amp;utm_medium=twitter&amp;utm_campaign=psf_combo_share_message&amp;utm_term=psf_combo_share_initial&amp;recruited_by_id=53bdb160-0091-11ea-ae95-95181d6329ab&amp;share_bandit_exp=message-31182780-en-US)，并进入签名。表达您不希望给 5-11 岁的孩子接种中共疫苗的声音。**
+还有更多…
 
-（文章仅代表作者观点与GNEWS无关）
+勇敢的医生和护士冒着职业、执照、生计、甚至生命的危险，勇敢地说出这些关键信息，告知公众。
 
-新闻来源: [zerohedge.com][FDA advisers back Pfizer’s COVID-19 vaccine for kids 5 to 11 years old](https://www.cbsnews.com/news/covid-19-vaccine-kids-ages-5-11-fda-advisers-vote/)
+请务必在美国东部时间9月22日星期三中午收听LifeSiteNews.com的直播。
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**参考资料：**[lifesitenews.com][‘Stop the Shot: Caught on Tape’ conference will expose doctors, hospitals that deny care to COVID patients](https://www.lifesitenews.com/news/stop-the-shot-caught-on-tape-conference-will-expose-doctors-hospitals-that-deny-care-to-covid-patients/)
 
 * * *
 
-*发稿 : Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
+*审核：文乐
+校对：信心满满
+发稿：NUEVO唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3.jpeg)
+
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,37 @@
 ---
 
 
-## 疫苗加强剂在澳大利亚获得批准
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1620337/)
+## 欧洲刑警组织对暗网市场实施重大突击检查
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1620415/)
 
 #### **【雅典娜快讯】，紧贴时事脉搏**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/COVID-19-vaccine-booster_iStock-1334441038_2021-08_Hero_1336x614.jpg)圖片來源：ncoa.org
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/2105-TulaneSoPA-CustomBlogGraphics-KG-B-02.jpg)
+
+
+
+图片来源：sopa.tulane.edu
 
 
 #### 编译：小红帽
 
-在澳大利亚医疗监管机构开绿灯后，预计老年护理居民将成为第一批接种中共病毒（COVID-19）疫苗加强剂的人。
+近日，欧盟执法机构欧洲刑警组织对全球两个贩毒和非法产品的暗网市场进行了重大取缔。
 
-周三，治疗用品管理局（TGA）临时批准18岁及以上的澳大利亚人接种辉瑞的疫苗加强剂。
+在美国、德国、英国、意大利、荷兰、法国、瑞士和保加利亚的“黑暗猎人”行动中，一共逮捕了150嫌疑人，其中包括供应商和买家。
 
-总理斯科特·莫里森(Scott Morrison)表示，政府将在下周内敲定扩大推广的计划。
+参与行动的警察缴获了超过4100万美元的现金和加密货币、234公斤毒品和45支枪。
 
-“我们将从老年护理机构开始推广，就像我们在疫苗计划中所做的那样，”他告诉九号台。
+“黑暗猎手”行动源于1月份对黑市具有里程碑意义的行动，黑市是当时世界上最大的暗网非法市场，据称由一名34岁的澳大利亚男子经营，他在德国和丹麦边境附近被捕。
 
-免疫系统严重受损的人已经有资格接种第三针，但最新的建议为普通人群再接种第三针铺平了道路。
+许多嫌疑人被欧洲刑警组织视为“高价值目标”。
 
-治疗用品管理局建议一个人接种第二剂后至少六个月给予接种加强剂。
+在行动期间，意大利当局关闭了DeepSea和Berlusconi暗网市场，这两个暗网市场共拥有超过 10万个非法产品清单。四名管理员被捕，并查获了550万美元的加密货币。
 
-澳大利亚免疫技术咨询小组将很快向政府提供有关加强剂的进一步建议。
-
-著名的流行病学家玛丽-路易斯·麦克劳斯（Mary-Louise McLaws）表示，事实证明第三针的效果很好。
-
-“现在有很好的证据表明，加强剂确实可以增强你的免疫系统，从而提高疫苗的功效，”她告诉九号台。“有很多人将从中受益。”
+欧洲刑警组织的让-菲利普·勒库夫（Jean-Philippe Lecouffe）表示，像今天这样的行动的重点是让在暗网上活动的犯罪分子引起注意。执法界有办法和全球伙伴关系一起揭开他们的面纱，并让他们对自己的非法活动负责，即使是在暗网领域也如此。
 
 （文章内容仅代表作者个人观点，与GNEWS无关）
 
-**参考新闻：** [COVID booster shots approved for Australians (thenewdaily.com.au)](https://thenewdaily.com.au/news/coronavirus/2021/10/27/australia-covid-booster/)
+**参考新闻：**[DeepSea, Berlusconi dark web: Illegal websites hit in major dark web Europol police raid (9news.com.au)](https://www.9news.com.au/national/dark-web-raids-take-down-deepsea-and-berlusconi-marketplaces-150-alleged-suspects-arrested/d2c99823-b63c-47f8-9f37-131e6d38b482)
 
 ***发布：小红帽***
 

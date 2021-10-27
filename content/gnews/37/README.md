@@ -2,46 +2,24 @@
 ---
 
 
-## 欧洲刑警组织对暗网市场实施重大突击检查
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1620415/)
+## 秘翻在线：世界卫生组织为推广疫苗又出新规
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1620546/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+撰稿：待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/画像1-23.png)（图片源自本文链接）
+日本雅虎网站10月27日消息：世界卫生组织（WHO）的咨询机构建议，所谓的 “疫苗护照”，即针对中共病毒感染的疫苗接种证书，不应作为国际旅行的唯一条件。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/2105-TulaneSoPA-CustomBlogGraphics-KG-B-02.jpg)
+世卫组织的中共病毒紧急委员会，在26日（当地时间）的决定中，提到了中共病毒疫苗的有限获取和不平等分配等理由。
 
+紧急委员会还敦促各国承认世界卫生组织提供的紧急使用清单上的所有中共病毒疫苗。到目前为止，世卫组织已经批准了辉瑞、莫德纳、阿斯利康、杨森、国药集团和华卫的中共病毒疫苗的紧急使用。紧急委员会还呼吁提高生产能力和分享疫苗，以实现世卫组织 “在年底前每个国家至少有40%的人口接种疫苗 “的目标。
 
+应急委员会现在已经确定，现在，中共病毒大流行仍然处于 “国际公共卫生紧急情况（PHEIC）”之中，是世卫组织的最高警戒级别，这些建议是本月22日召开的紧急委员会会议的结果。紧急委员会通常每三个月召开一次会议，以评估中共病毒的扩散状况。
 
-图片来源：sopa.tulane.edu
+[信息源](https://news.yahoo.co.jp/articles/efaf1783d7f55740bf6df34dad7cbeb2678aeb93)
 
+世卫组织的这一督促状，将使各个国家的更多人去打疫苗。这会带给人类什么样的后果？
 
-#### 编译：小红帽
-
-近日，欧盟执法机构欧洲刑警组织对全球两个贩毒和非法产品的暗网市场进行了重大取缔。
-
-在美国、德国、英国、意大利、荷兰、法国、瑞士和保加利亚的“黑暗猎人”行动中，一共逮捕了150嫌疑人，其中包括供应商和买家。
-
-参与行动的警察缴获了超过4100万美元的现金和加密货币、234公斤毒品和45支枪。
-
-“黑暗猎手”行动源于1月份对黑市具有里程碑意义的行动，黑市是当时世界上最大的暗网非法市场，据称由一名34岁的澳大利亚男子经营，他在德国和丹麦边境附近被捕。
-
-许多嫌疑人被欧洲刑警组织视为“高价值目标”。
-
-在行动期间，意大利当局关闭了DeepSea和Berlusconi暗网市场，这两个暗网市场共拥有超过 10万个非法产品清单。四名管理员被捕，并查获了550万美元的加密货币。
-
-欧洲刑警组织的让-菲利普·勒库夫（Jean-Philippe Lecouffe）表示，像今天这样的行动的重点是让在暗网上活动的犯罪分子引起注意。执法界有办法和全球伙伴关系一起揭开他们的面纱，并让他们对自己的非法活动负责，即使是在暗网领域也如此。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[DeepSea, Berlusconi dark web: Illegal websites hit in major dark web Europol police raid (9news.com.au)](https://www.9news.com.au/national/dark-web-raids-take-down-deepsea-and-berlusconi-marketplaces-150-alleged-suspects-arrested/d2c99823-b63c-47f8-9f37-131e6d38b482)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+（文章仅代表作者个人观点）
 
  
 

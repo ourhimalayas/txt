@@ -2,49 +2,26 @@
 ---
 
 
-## CDC主任：加强针可能改变“完全接种”的定义
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1620388/)
+## 秘翻在线：川普声明支持巴西总统针对中共病毒疫情的应对
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1620543/)
 
-作者：纽约香草山文艺部 – 宁文静
+#### 撰稿：彩虹    
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+#### 责编：胡天   
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16353214101.png)图片来源：雅虎
+11月26日，《国会山报》发布文章，报道了面对中共病毒造成的全球疫情大流行，前总统川普表达了对巴西总统贾尔·博尔索纳罗（Jair Bolsonaro）对抗中共病毒疫情措施的支持。
 
+周二，由11名成员组成的巴西参议院委员会中的7名参议员投票建议对博尔索纳罗提出9项指控，包括反人类罪和骗子罪。这是世界暗黑势力在巴西发起的针对坚持真相、拯救巴西人民的伟大总统的攻击。
 
+对此，几个小时后，前总统川普在一份声明中说：“在过去的几年里，贾伊尔·博尔索纳罗总统和我已经成为很好的朋友。他热爱巴西人民并为他们努力奋斗，就像我为美国人民所做的一样。巴西很幸运，有一个像贾伊尔·博尔索纳罗这样的人为他们工作。他是一位伟大的总统，绝不会让他的伟大国家的人民失望！”
 
-美国CDC主任Rochelle Walensky周五表示，“完全接种”的定义可能会发生变化。她说，“这取决于加强针的推进情况。请继续申请注射加强针。我们将保持关注。”
+文章披露，根据《纽约时报》获得的一份巴西国会委员会报告，报告指控博尔索纳罗推崇未经证实的中共病毒（COVID-19）疗法，并忽视了与辉瑞等疫苗制造商的沟通。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/6-12.png)
+在接受巴西一家电台采访时，博尔索纳罗对该报告进行了回击，称这些指控是“天方夜谭”。他说：“我不打算讨论这些人的奇思怪想，我不打算讨论这些愚蠢的事情”。
 
-这与她9月下旬 “联邦卫生官员暂时不考虑更改‘完全接种’定义的表态，有了一个急转弯。据悉，这种变化可能源于以色列修改加强针作为疫苗护照的标准。
+**新闻来源**
 
-根据CDC官方数据显示，目前有1.9亿的美国人已完全接种，占总人口的66.3%，其中1250万已经接受了加强针。如果修改了定义，将导致部分此前符合“完全接种”的人失去资格。再加上只打了一针和坚决拒绝接种的人群，有可能意味着三分之二的美国人因为不符合资格而失去外出就餐、乘火车飞机、国际旅游的机会。
-
-加强针会怎样加剧疫苗灾难，难以想象。对宗教、人权的侵蚀，与日俱进。爆料革命向世界揭露黑暗、传递真相，肩负着沉重的历史使命。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-1. [https://covid.cdc.gov/covid-data-tracker/#vaccinations\_vacc-total-admin-rate-total](https://covid.cdc.gov/covid-data-tracker/#vaccinations_vacc-total-admin-rate-total)
-2. [https://rumble.com/vo3sjr-cdc-director-we-have-to-change-the-definition-of-fully-vaccinated-because-o.html](https://rumble.com/vo3sjr-cdc-director-we-have-to-change-the-definition-of-fully-vaccinated-because-o.html)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-3.jpeg)
-
-***编辑/校对：******Ivy001***
-***发稿***：***海阔天空1***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[Trump issues endorsement for Bolsonaro](https://thehill.com/policy/international/americas/578626-trump-issues-endorsement-for-bolsonaro)
 
  
 
