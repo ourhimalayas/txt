@@ -2,23 +2,30 @@
 ---
 
 
-## 因房地产危机中共国经济即将崩塌
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1621613/)
+## GTV新闻访谈简报|2021年10月27日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1621639/)
 
-原文采编：青青   编译撰稿：文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-413.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/aa-edited.jpg)图片来源：NYT
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-29.png)
+文章仅代表作者本人观点，与Gnews无关
 
+视频参看：2021.10.27早GTV新闻访谈
 
-据《纽约时报》10月25日报道，中共当局长期制造的巨大房地产经济泡沫，必将会导致一场摧毁中共国经济以及影响全球贸易的广泛金融危机。
+[https://gtv.org/broadcast/watch/61794596eadeb11f5e7b070b](https://gtv.org/broadcast/watch/61794596eadeb11f5e7b070b)
 
-该报道指出，造成中共国经济崩溃的主要因素包括：人口数量优势的消失以及高储蓄率导致的过度投资等。其中，占中共国经济比重极大的房地产行业，由于其投资现已远超美国在2000年房地产危机顶峰时期的水平，因此，房地产商的巨额债务问题将引发中共国严重的经济灾难。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
 
-校对编辑，发稿：硫酸羟氯喹64
-
-[原文链接：](https://cn.nytimes.com/opinion/20211025/china-bubble-economy/?utm_source=top10-in-article&amp;utm_medium=articlepage&amp;utm_campaign=web)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

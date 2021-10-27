@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/27/2021 10:25 PM (UTC)`
+
+11月27日：感谢玉米地大姐送的漂亮的鲜花💐……
+![img](https://media.gettr.com/group25/getter/2021/10/27/22/25/477ba2f8-4679-c36b-e1e2-d3f3ed9b604f/out.jpg)
+
+---
+
 `@miles 10/27/2021 12:30 PM (UTC)`
 
 2021年10月27日文贵大直播：SPAC忽上忽下何有未来；吴征虚假信息刑事犯罪；基金对赌炒股钓鱼欺骗；盖特言论自由公平竞争
@@ -290,13 +297,6 @@ Eleven Qualified Institutional Buyers or Institutional Accredited Investors of D
 
 Statement about Artemisinins, SARS-CoV2 and related topics<br/><br/>关于青蒿素及 SARS-CoV-2 的声明<br/>
 ![img](https://media.gettr.com/group8/getter/2021/10/22/23/20/19488e55-c87b-ca95-fb27-2566946450bb/7796246461ff1ea2840fb0f5fababc04.jpg)
-
----
-
-`@miles 10/22/2021 10:27 PM (UTC)`
-
-10/22/2021 Miles Guo: The period from CCP's 6th Plenary Session to the 20th National Congress is the most dangerous time for Xi; both the Xi faction and the Jiang faction want to eliminate each other; the CCP’s 6th Plenary Session is the time of their final showdown, whether Xi can remain in power or not is full of uncertainty<br/><br/>10/22/2021 文贵直播：六中全会至二十大期间，习面临最大危险；习江两派都想置对方于死地，六中全会是最后摊牌时刻，习能否能连任充满不确定性<br/>
-![img](https://media.gettr.com/group47/getter/2021/10/22/22/27/26ec9981-c52f-b1f6-3841-bbf4773ccf6a/out.jpg)
 
 ---
 
