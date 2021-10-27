@@ -2,52 +2,46 @@
 ---
 
 
-## 天和人
-` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1618884/)
+## COVID-19最新情報｜瑞典、英國新冠死亡案例 集中於「完全接種者」
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1618967/)
 
-文｜银河勇气星骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_8133.jpg)2020/6/30 北京日晕 图源：网路
-墙内最近好几个地方大爆炸，还有最新一波儿疫情又开始了。疫苗倒地的人就从来没断过。刚刚经历了夏天的大雨和恶意泄洪，好不容易迎来了满是收获喜悦的秋季，本以为会秋高气爽天凉好个秋了，结果很多省市，一秒入冬。2021年的第一场雪，仿佛比往年都来得早，来得太早了。去年南方也是被异常的冰雨袭击，树叶当时都是绿色的，都被冰雨挂满了，远处看着亮晶晶着实好看，实则措不及防给多少人的生活带来了不便。
+**台灣寶島農場 疫情關注組｜發佈日期/ 26/10/2021**
 
-自从2020年疫情开始，经历的极端天气可以说是自我有生以来，没有见过的都在这两年集中看到了。武汉冬天打雷下雪，很多省市连着下大雨，洪灾，冰雨，有那种非常非常震撼的打雷，雷击中了很多标志性的地方，天上有三个太阳，太阳上的白虹，云上的彩虹，各种各样形态变幻无穷的云，日食，日环食，月食，血月，五星联珠，双彩虹，不用掰着手指头都能数出一大堆来。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-老话说“天怒人怨”，这个词最近我在大清末年看到过，清末了，还有男人斩掉生殖器当太监，依然有无数个女人裹小脚，在世界大觉醒的背景下永远有守旧顽固的统治阶级阻止人民的觉醒，严重侵害了人权，人心都变坏了。最近的天怒人怨来自共产党对全人类灭族的威胁，疫苗是所谓的减少人口的真正的武器，生物武器冠状病毒只是一个前奏。然而因为这两样给人类造成的死亡和伤病，墓地遍野，对人类业已形成的全球化链条进行了超量的破坏。人们以往的简单便利生活，被疫苗带来的倒地死亡，和无预警的lockdown，变成了最糟糕的生活方式。比如住公寓的，严重受制于供电供水；人们想进入某些公共场所会被要求疫苗护照。人心惶恐，再加上有些人的心早就是黑的了，共产党勾结了那么多坏人，大环境里仁义礼智信+法律约束的这种模式已经不复存在。天怒和人怨往往是同时的，人心坏了，天气也是有所反应的。
 
-有些天气记录往往反映着地面上人的行为。中国古代的两军交战，天气是最重要的作战参考因素，诸葛亮草船借箭，借东风等，都借助了天气，可以说是诸葛亮的全盛时期。如果说中国古代有神机妙算之人，那么近代中途岛海战美军找不着目标，最关键的时候，太阳突然出现了，太阳照射水雾，形成的彩虹就照在了船上，找着目标了一顿轰炸。这一幕太神奇了，完全可以说是天人合一的存在。日军确实是不正义的，此次战争一定要正义一方（美国）胜利。
+瑞典、英國政府分析數據，發現9月因感染新冠病毒死亡者，絕大多數是完全接種者。這一結論，與西方國家於高疫苗覆蓋率的情形，突破性感染數量激增相符合。
 
-***（以下内容作者不负任何责任）***
+#### 瑞典
 
-以下以“白虹贯日”天象来简要阐述一些天和人的关系。白虹贯日就是平常所说的日晕。如文开头太阳周围有一层圈。
+[瑞典媒體](https://www.svd.se/forskare-ser-en-vikande-vaccineffekt-i-sverige)報導，公衛部門報告表示9月1日至24日，約[7成（130例）](https://ourworldindata.org/explorers/coronavirus-data-explorer?zoomToSelection=true&amp;time=2020-03-01..latest&amp;facet=none&amp;pickerSort=desc&amp;pickerMetric=total_cases&amp;hideControls=true&amp;Metric=Confirmed+deaths&amp;Interval=Cumulative&amp;Relative+to+Population=false&amp;Align+outbreaks=false&amp;country=~SWE)新冠確診死者是已經完全接種疫苗。報導進一步分析，死亡主要發生在老年族群，但相關人員仍認為瑞典疫苗保護力有下降趨勢。
 
-中国古代有和和白虹贯日有关的一些记录，不知道是真假。
+- 相關：[瑞典研究顯示完全接種疫苗後，抗體將在三個月後急劇下降](https://gnews.org/zh-hant/1576453/)
+- 相關：[疫苗與ADE效應](https://www.chop.edu/centers-programs/vaccine-education-center/vaccine-safety/antibody-dependent-enhancement-and-vaccines)
 
-《战国策·魏策四》：“聂政之刺韩傀也，白虹贯日。”
 
-《史记·鲁仲连邹阳列传》：“昔者荆轲慕燕丹之义，白虹贯日，太子畏之。”《列士传》：“荆轲发后，太子相气，见白虹贯日不彻，曰：‘吾事不成矣。’”
+#### 英國
 
-严仲子是战国时期韩国大臣，与国相韩傀结仇。严仲子找到了屠夫聂政来帮他报仇，刺杀韩傀。屠夫聂政为了报答严仲子的知遇之恩，在为母亲守孝后，决意刺杀严的仇人韩傀。刺杀时，白虹贯日，聂政孤身一人杀掉了很多人，终因寡不敌众而刺杀失败，本人死状也极其惨烈。
+英國衛生部門數據顯示，瑞典情形也在英國發生。[英國、瑞典的疫苗接種率](https://coronavirus.data.gov.uk/details/vaccinations)幾乎相同。
 
-荆轲也同样是为了报答燕太子丹的知遇之恩，决定去刺杀秦王政。刺杀当日，出现白虹贯日的天象。荆轲出发以后太子见白虹贯日不彻，曰：刺杀计划可能要失败。事后荆轲刺秦失败。荆轲当场血溅秦王殿。风萧萧兮易水寒，荆轲壮士一去不复还。
+英國衛生安全局 (UKHSA) 於 10 月 7 日發布[報告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1023849/Vaccine_surveillance_report_-_week_40.pdf)，9月份大多數的死亡病例都已經完全接種疫苗。突破性感染而住院治療的病患，也是完全接種者佔多數。UKHSA 的數據顯示，「完全接種疫苗」死亡數量有2281人，遠高於未接種疫苗、部分接種疫苗。
 
-从历史记录来看，出现白虹贯日的条件，1.刺杀对象为当地位高权重之人，且暴虐无道；2.刺客为政治对手派出的平民百姓，且都对刺客有知遇之恩，刺杀行动大部分是为了报恩；3.刺杀行动都未成功，刺客当场死亡。
 
-中共国从2020年开始，白虹贯日天象在各省市屡见不鲜。此类现象发生的时间从年头到年尾都有，以4-8月为频繁。日照多的城市见到的次数多一些。确实从2020年以来，很多省市的官员被调任，官场动荡，老百姓奄奄一息活着，只是迫于共产党在信息上的误导，我们无法知道具体的当天发生了什么。根据七哥的爆料，有些人一直蠢蠢欲动想杀掉习，只是一直懦弱到没有行动。习知道了江派那些人要杀他，也在野心勃勃准备杀掉对方。政治内斗杀心四起，也许有派出刺客去刺杀，但是没有成功。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/FotoJet-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/FotoJet1.jpg)
+> Surging [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) in UK with 49,156 new cases and 45 new [#deaths](https://twitter.com/hashtag/deaths?src=hash&amp;ref_src=twsrc%5Etfw) reported on 18 October 2021. 78.9% of all aged 12 and up are DOUBLE VACCINATED. [#Breakthrough](https://twitter.com/hashtag/Breakthrough?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Geoffrey Norman Pain (@FluoridePoison) [October 18, 2021](https://twitter.com/FluoridePoison/status/1450225202353225729?ref_src=twsrc%5Etfw)
 
-2020和2021年，一小部分日晕 / 图源：网路
-在古代这种现象的出现一般比喻异常的事情发生，比如当权者遇袭，英雄的精诚之心感召天意，说啥的都有，但都离不开一点，当时的社会昏聩，老百姓生活艰难，世道呼唤英雄。当一个社会处处都在呼唤英雄，是这个社会即将终结的前兆，英雄是用来保护人鼓舞人的，人人自危人人恐惧的时代，这个社会必然是不太平的。真正到了危难的时刻，那些站出来的，都是一个一个的普通人。哪里有什么英雄，只有自己做自己的英雄。
 
-天人合一自古就是最神秘最值得探讨的话题，本话题也许会长期更新。
 
+- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
+- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
+- 相關：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
+- 相關： [COVID-19最新情報｜為何政府「忽視」自然免疫？](https://gnews.org/zh-hant/?p=1610194%28%E5%9C%A8%E6%96%B0%E5%88%86%E9%A0%81%E4%B8%AD%E9%96%8B%E5%95%9F%29)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/18-6.jpg)
 * * *
 
-***文章内容仅代表作者观点***
-
-作者：骄子
-审核：兵嫂、天雷滚滚
-发布：骄子
-
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家.jpeg)
+新聞來源｜[Natural News](https://www.naturalnews.com/2021-10-25-majority-of-covid-deaths-are-fully-vaccinated.html)
+轉譯｜zhong
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)

@@ -2,139 +2,22 @@
 ---
 
 
-## 土地资金等不纳入国家资产，老百姓没有任何福利
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1619824/)
+## 秘翻在线 :贝索斯加速布局太空商业时代的行动
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1619907/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/222-f-wzywl.jpg)
-[https://gtv.org/video/id=61783f7e247c5a3f909049b8](https://gtv.org/video/id=61783f7e247c5a3f909049b8)
+撰稿：William
+校对：牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/圖片2.png)
+图片来源：The Verge
 
-中国的光退休所、干休所
-En China con solo las casas de jubilación, y los sitios de descanso para los militares con rango
+根据《零对冲》(Zero Hedge) 的报导,虽然国际空间站(International Space Station)是人类在国之国间最伟大的合作努力成果之一，但却长年缺乏维护保养。为了避免可能发生的严重紧急情况，杰夫·贝佐斯(Jeff Bezos)的蓝色起源(Blue Origin)宣布建立一个自由飞行的空间站，称为轨道礁(Orbital Reef)。
 
-所有的占有的土地和占有的资产
-Todos los terrenos y activos poseídos
+蓝色起源(Blue Origin) 正与埃隆·马斯克的 SpaceX 和其他公司竞争，以确立自己在新兴的航天工业中的先驱地位。不仅仅只是蓝色起源( Blue Origin )的研究人员，轨道礁(Orbital Reef) 允许所有来自工商业以及国际合作夥伴在那里作业。轨道礁(Orbital Reef )同时获得到波音、亚利桑那州立大学以及太空基础设施集团Redwire Space和 Genesis Engineering Solutions 的支持。
 
-是不计入到国家的资产范围内的
-No son incluidos dentro de los activos del país
+该空间站最多可容纳 10 人，设有独立的生活区和开展科学活动。根据蓝色起源( Blue Origin )的说法，空间站将有效地成为太空的复合用途服务园区。该机构已经与另一家私营公司 Axiom 签订合同，开发一个可以与国际空间站对接的空间站。
 
-它不计入的
-No son contados
+近年来，太空科技进展迅速。SpaceX已有能力发射可重复使用的火箭，并于今年9月成功地将四名普通乘客进入地球轨道。现在杰夫·贝佐斯的蓝色起源(Blue Origin)及布兰森的维珍银河(Virgin Galatic)也争相开展太空旅行的商业行动。
 
-它不属于
-No pertenece
+”人类都要进入太空了，中共还想着打台湾? 地球已被污染得十分严重，人类必须寻求新的能源及生机。2025年之后，谈到习近平、马云这些人，就像在谈太平天国一样的可笑!”文贵先生在直播中，明确指出，未来人类的方向必须抛弃旧有的思维，寻求太空的发展是必然也是必要的抉择。
 
-比如说它不属于房地产
-Por ejemplo, decir que no pertenece a los bienes y raíces
-
-记帐里面去
-Entrar en la contabilidad
-
-它的开支也不算进去
-Sus gastos tampoco son incluidos
-
-它叫什么
-Cómo se llama eso
-
-（属于）财政部的整个划拨
-(pertenece) a la asignación completa del Ministerio de Finanzas
-
-财政部划拨是不算这个的
-La asignación del Ministerio de Finanzas no cuenta esto
-
-你知道这很夸张吧
-Sabes que esto es una exageración
-
-那划拨是在哪儿呢
-Entonces en dónde están las asignaciones
-
-在中国有多少干休所呢
-Cuántos retiros para los militares con rangos hay en China
-
-中国有多少个省呢
-Cuántas provincias hay en China
-
-中国有多少个县呢
-Cuántos condados hay en China
-
-大家查一查
-Todos busquen a ver
-
-中国大概有一万七千个国家（级）的干休所
-En China hay más o menos 17 mil retiros para militares de rango a un nivel nacional
-
-一万七千个，不算地方的啊
-Los 17 mil no están dentro de las zonas
-
-不算个省市的
-No cuenta como provincias
-
-军队呀、各部委啊
-El ejército, los ministros de cada ministerio
-
-一万七千个
-17 mil
-
-事实上大概有两万个
-Realmente hay como 20 mil
-
-这当时统计局统计有两万个
-En aquel momento la Oficina de Estadística hizo un censo de 20 mil
-
-两万个干休所得编制是多少
-Cuánto es el sistema de ingresos de 20 mil retiros
-
-土地不算钱
-Los terrenos no cuentan como dinero
-
-各种成本都不算
-Ningún tipo de costos cuentan
-
-那都是财政部拨的
-Todos son asignados por el Ministerio de Finanzas
-
-那你说你这社保是
-Entonces tu dices que el seguro social es…
-
-老百姓没有这个待遇啊
-Los ciudadanos no tienen este beneficio
-
-它又不包含的社保基金里面去
-Eso no está incluido dentro del fondo de seguro social
-
-所以当年戴相龙跟我说的一句话
-Por eso Dai Xianglong me dijo una palabra en aquel año
-
-他说文贵啊
-Dijo: Ay Wengui
-
-任何中国人没把社保搞明白的
-No es necesario conversar con ningún chino
-
-你什么都不用跟他聊了
-Que no haya entendido sobre el seguro social
-
-他这个脑子就是有问题了
-El cerebro de esta persona si tiene problemas
-
-———————————————————
-
-**原视频网址**： [https://twitter.com/se1y7cblljselva/status/1451092014993330181?s=24](https://twitter.com/se1y7cblljselva/status/1451092014993330181?s=24)
-
-日期：10/23/2021
-原视频标题：
-Los fondos de los terrenos, entre otros, no están incluidos en los activos nacionales y los ciudadanos no tienen ningún beneficio
-
-原视频日期：10/21/2021
-任务编号：KC196（2623）
-视频时间段：0:00-1:17
-
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻来源：[Bezos’ Blue Origin Unveils Plans For Commercial Space Station](http://Bezos'%20Blue%20Origin%20Unveils%20Plans%20For%20Commercial%20Space%20Station)

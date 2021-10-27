@@ -2,138 +2,51 @@
 ---
 
 
-## 13亿中国老百姓只能享受社保基金4%的钱
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1619846/)
+## 阿拉斯加州也欢迎未接种疫苗的警察去工作
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1619924/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/222-f-wzywl.jpg)
-[https://gtv.org/video/id=61783f7e247c5a3f909049b8](https://gtv.org/video/id=61783f7e247c5a3f909049b8)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-一定叫外国人能听得懂的话
-Debe ser algo que los extranjeros puedan entender
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/A-10.jpg)golookup.com
+昨天（10月25日）有报道称，佛罗里达州愿为因未接种中共病毒疫苗而失去工作的警察提供工作机会，并支付5000美元的搬迁费，今天《戴维·哈里斯媒体》（DJHJ Media）报道，阿拉斯加州欢迎下岗警察。
 
-你举个例子, 中国14亿人
-Por ejemplo, hay 1.400 millones de personas en China
+文章题目是“阿拉斯加州共和党州长告诉因未接种疫苗而被解雇的警官们，让他们来这个‘最边远州’（The Last Frontier State）工作”。
 
-中国人的社保基金是多少钱, 你知道吗?
-Sabes ¿ cuánto es el fondo de seguro social de los chinos?
+全文如下：
 
-整个社保基金额
-El monto total del fondo de seguro social
+由于专制政客通过强制接种疫苗来对他们的小领地实施暴政，我们的劳动力正在被削弱，许多在中共病毒疫情期间为我们服务和保护我们的专业人员现在发现自己失业了，许多专业人员都是执法人员，这种事情发生在民主党的领地，似乎是有道理的，因为他们一直憎恨警察。
 
-你们查了吗? 社保基金额
-¿ Ustedes investigaron? El monto del seguro social
+一些不像集权封地那样运作的司法管辖区，正在为受暴君迫害的专业人士提供工作机会，其中一个地方是阿拉斯加州，该州现在欢迎那些大胆相信自己有上帝赋予的权利来决定哪些药物可以进入自己体内的警察。
 
-所有社保基金额就是1000亿美元
-Todo el monto de seguro social son 100 mil millones de dólares
+上周，阿拉斯加州共和党州长迈克·邓利维（Mike Dunleavy）将注意力集中在数千名因拒绝接受疫苗接种而失业的警官身上，并表示欢迎警官们来阿拉斯加州执法。
 
-1000亿美元, 记住
-100 mil millones de dólares, recuerden
+这位州长利用社交媒体传达了他的信息。
 
-1000亿美元
-100 mil millones de dólares
+“在全国各地，执法人员都成为攻击目标，甚至因为拒绝接种疫苗或拒绝透露是否接种疫苗而被解雇。阿拉斯加的执法部门邀请你考虑来我们这个第四十九州，以此方式来表示我们对蓝州的回应。”
 
-名义上所说的2500亿
-250 mil millones nominalmente
+这位州长的推特是对《芝加哥论坛报》（the Chicago Tribune）报道的回应，该报道披露，在芝加哥要求所有州雇员接种疫苗或披露其疫苗接种状况后，许多芝加哥的警察没有遵守强制疫苗的规定。
 
-实际上就1000亿美元
-En realidad, son 100 mil millones de dólares
+上周，芝加哥当局宣布，任何拒绝遵守芝加哥民主党市长洛丽·莱特富特（Lori Lightfoot）命令的警察都可能面临纪律处分，包括解雇。
 
-因为社保基金原来主席创始人是车峰的老岳父
-Porque el presidente original y fundador de la Caja de Seguridad Social era el suegro de Che Feng
+阿拉斯加州公共安全部发言人达斯汀·麦克丹尼尔（Dustin McDaniel）说，在过去的一年里，该机构的“警察申请”（lateral trooper applications）有所增加。狱政部（Department of Corrections）女发言人贝特西·霍利（Betsey Holley）表示，1064名狱警职位已填补，还剩下95个职位。
 
-中国银行行长戴相龙
-Dai Xianglong, presidente del Banco de China
+她周四（10月21日）说：“如果你阅读了我们脸书页面上的一些帖子，就会有人在脸书上回复招聘帖子说，‘哦，你们强制接种疫苗吗？’有趣的是人们就是这样想的。但是，如果他们想申请，我们会欢迎他们来申请。”
 
-这个社保基金所谓的2500亿
-El llamado 250 mil millones de este fondo de seguro social
+麦克丹尼尔补充说：“阿拉斯加州的警察部门没有针对中共病毒或强制疫苗接种方面有硬性规定，无论是对本地的、州或联邦机构都没有。我们鼓励任何寻找令人振奋的执法事业的符合资格的求职者考虑来阿拉斯加州警队工作。”
 
-别忘了
-No olviden
+这将在越来越多的红州发生。蓝州由疯狂的人管理，他们希望与未接种疫苗的美国人为敌，甚至损害他们自己州的人口数量。暴君利用疫苗强制令控制他的领地而让这些专业人员失去了工作，这些医生、护士及其他医务人员、警察、消防队员和护理人员纷纷选择离开，许多民主党人管理的城市将遭受损失。
 
-它里边这个总数实际上就是1000多亿
-Dentro de este monto total en realidad son más de 100 mil millones nada mas
+（全文完）
 
-你可以查它的帐
-Puedes revisar su cuenta
+阿拉斯加州的官员意识到，强制疫苗政策是“专制行为”，是一种“暴政”，专制和暴政的结果就是让人民选择“用脚投票”，离开你所管辖的地区。佛罗里达州、阿拉斯加州为这些未接种疫苗的人提供了机会，这是抗击暴政最保守的方式。
 
-它那是叫划拨式的
-Eso se le llama forma de asignar
+如果再能清醒地意识到，这是阴谋、是邪恶集团对人类的一种迫害、一种攻击，或许那些未接种疫苗的人就不是选择离开的问题了。
 
-这个1000多亿的分配权在哪里呢
-¿ Dónde se encuentra esta distribución de más de 100 mil millones?
+大觉醒还没有实现，觉醒后的反击、抗暴、追责更没有开始，还需要我们继续传播真相。
 
-96%的钱是给所有的共产党的退休干部的
-El 96% del dinero es para todos los cuadros retirados del Partido Comunista
+（文章仅代表作者个人观点）
 
-那就是说多少退休的党员呢
-Eso significa ¿ cuántos miembros jubilados del Partido?
+原文链接：
 
-中国有多少呢, 退休老干部, 退休的人(党员)呢
-Cuántos hay en China, los viejos cuadros retirados, los miembros del Partido retirados
-
-中国是大概1.3亿
-China tiene unos 130 millones
-
-1.3亿, 14亿人(中)1.3亿
-130 millones, 130 millones (en medio de) 1.400 millones de personas
-
-全是共产党所有的亲戚家人拿走了96%
-Todos los miembros de los familiares del Partido Comunista tomaron el 96%
-
-那个13亿是干嘛的呢
-Y para qué son estos 1.300 millones
-
-对不起了
-Lo lamento
-
-你只能拿整个(社保基金)的4%
-Solamente puedes tomar el 4% de todo el fondo de seguridad social
-
-那就是100块钱我拿4块钱
-Quiere decir que dentro de los 100 dólares, yo tomo 4 de ellos
-
-你拿96块钱
-Y tú los 96 dólares
-
-养你那些人
-Para mantener a esas personas
-
-你想过这个问题吗?
-¿ Has pensado este problema?
-
-这多简单的事
-Es algo tan secillo
-
-你说哪有一个国家
-Dime, qué país
-
-一个党派拿走96%的社保的钱
-Un partidista toma el 96% del dinero de seguro social
-
-所有的老百姓享受你(社保基金)4%的钱
-Todos los ciudadanos disfruta el 4% del dinero de tu fondo de seguro social
-
-这个不用我说你查一查
-Esto no es necesario que yo diga, tú mismo puedes ir a investigarlo
-
-———————————————————
-
-**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1451039970966134784?s=24](https://twitter.com/se1y7cblljselva/status/1451039970966134784?s=24)
-
-日期：10/26/2021
-原视频标题：
-1.300 millones de chinos sólo pueden disfrutar del 4% del fondo de seguridad social
-原视频日期：10/21/2021
-任务编号：KC197（2624）
-视频时间段：0:00-1:48
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[https://djhjmedia.com/rich/alaska-republican-governor-tells-police-officers-who-were-terminated-over-vaccine-mandates-to-come-to-work-in-the-last-frontier-state/](https://djhjmedia.com/rich/alaska-republican-governor-tells-police-officers-who-were-terminated-over-vaccine-mandates-to-come-to-work-in-the-last-frontier-state/)

@@ -2,48 +2,137 @@
 ---
 
 
-## 市场知道：美联储的下一次救援，将是有史以来规模最大
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1619758/)
+## 土地资金等不纳入国家资产，老百姓没有任何福利
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1619824/)
 
-**据《零对冲》作者：TYLER DURDEN，2021年10月25日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/222-f-wzywl.jpg)
+[https://gtv.org/video/id=61783f7e247c5a3f909049b8](https://gtv.org/video/id=61783f7e247c5a3f909049b8)
 
-“我确实认为现在是缩减的时候了。”杰伊·鲍威尔说。他挣扎着要在他那台华丽的赚钱机器的呼啸声中被听到，墨迹未干的百元美钞从印刷机上飞出，每月1200亿美元。 “但我不认为现在是加息的时候。”美联储主席补充说，他很谨慎，被伯南克的“缩表”困扰着。早在2013年春天，大胡子本，这位拥有太多博士学位的普林斯顿大学教授就暗示，也许，只是有可能，他有可能放慢印钞的速度。
+中国的光退休所、干休所
+En China con solo las casas de jubilación, y los sitios de descanso para los militares con rango
 
-债券价格崩溃了。 10年期债券收益率从1.65%瞬间跳到3.00%。这种情况只有在市场完全惊讶的情况下才会发生 —— 这种情况确实很罕见。市场几乎总是预测政策公告，无论是央行行长还是总统。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/wzywl-5.jpg)图片来源：《零对冲》
-数以百万计的全球交易者和投资者 —— 在智力和哲学上各不相同，高度集中，进行三角测量，权衡，根据他们的信念下注，他们的宝贵资本面临风险，最有才华的人部署了最大的金额，发挥了最大的影响力 —— 产生了人类唯一真正的人工智能。一个超级有机体，既宏伟又无情，对那些反对其裁决的人来说是恶毒的：众人的智慧。
+所有的占有的土地和占有的资产
+Todos los terrenos y activos poseídos
 
-鲍威尔解释说，“我们需要观察，仔细观察，看看经济的发展是否与我们的预期一致，并相应地调整政策。”他尽力用记忆中任何央行行长中最弱的手来玩他职业生涯中赌注最大的赌局。你看，几十年来，不断扩大的全球化，令人惊叹的技术进步和有利的人口统计学等巨大的宏观趋势，共同产生了一个全球通货膨胀的环境。
+是不计入到国家的资产范围内的
+No son incluidos dentro de los activos del país
 
-这使得中央银行家们可以推行越来越积极的货币政策来缓和经济周期。
+它不计入的
+No son contados
 
-现在我们发现自己处于这样一个阶段：央行行长们害怕做出错误的举动，引发股票和债券市场的逆转，这将迫使他们以更大的规模来进行救援。市场知道这一点。而在衡量美联储的试探性时，市场以其无限的智慧嘲弄了美联储，将标准普尔500指数推至历史高位。比特币也是如此。
+它不属于
+No pertenece
 
-1987年：1987年10月19日，股市崩盘。几乎每个人都知道这一点，要求人们解释为什么会发生，他们会告诉你投资组合保险与程序交易相结合，在市场结构中创造了一个结构性的弱点，因此较低的价格产生了更多的销售。有些人可能会指责财政部部长贝克在前一个周日晚上的评论，他们可能是对的，但大多数人都会忘记提到的是，标准普尔500指数在8月25日印出了历史最高点，而在崩盘之前，它以其无限的智慧下跌了16%。
+比如说它不属于房地产
+Por ejemplo, decir que no pertenece a los bienes y raíces
 
-第一次海湾战争。萨达姆于1990年8月2日入侵科威特。石油价格飙升，来自35个国家的联军在该地区集结了部队。 1991年1月16日，他们发动了攻击。美国有线电视新闻网（CNN）的视频图像仍然深深地印在我们的记忆中。那天晚上，石油期货短暂地飙升，然后崩溃了。当天收盘时，价格史无前例地下跌了10.56美元，结算价为21.44美元，比1990年8月1日的收盘价（入侵的前一天）低10美分。作为一个年轻的交易员，我敬畏地看着市场摧毁了那些过度杠杆化的人，他们的结果几乎是肯定的。
+记帐里面去
+Entrar en la contabilidad
 
-1994年的债券大跌。格林斯潘将利率维持在3.00%达17个月之久，这为金融工程师构建高杠杆的负凸产品提供了充足的时间，为那些需要高收益的人提高收益。 1994年2月，美联储的加息震惊了市场。债券价格暴跌，收益率从5.85%飙升至1994年11月的8%。但是，尽管有惊讶的呼声，市场在美联储加息之前就已经开始移动。 10年期的收益率已经嗅到了政策的转变，发出了一个安静的信号，从1993年10月的5.20%的25年低点跃升。
+它的开支也不算进去
+Sus gastos tampoco son incluidos
 
-9-11: 只有在市场处于强劲的牛市趋势时，才会有非常罕见的可怕事情发生。当股票在历史性上涨后突然逆转时，通常是没有明显的原因。不知何故，在某种程度上，人群的智慧往往能感觉到厄运的来临，价格在坏事发生之前就开始下跌。当飞机撞击时，股票从高点下跌了30%，进入了1.5年的熊市。而雷曼破产时，股票从高点下跌23%，进入熊市11个月。如果中国入侵台湾，不太可能发生在历史高点附近。
+它叫什么
+Cómo se llama eso
 
-Covid-19。2020年2月19日，标准普尔500指数创下历史新高。一个月后，它收盘下跌42%。与许多悲剧不同的是，这场大流行病是在股票接近顶点时发生的。即便如此，市场一直在发出信号，表明有些事情不太对劲。标准普尔500指数在2020年1月强劲反弹，但隐含波动率却没有下降。事实上，它略微走高。对于那些吃过苦头，学会真正倾听的人来说，这种信号是“小心”的耳语。市场，以其无限的智慧，是一个不完美的水晶球，但它是我们所拥有的最好的一个。
+（属于）财政部的整个划拨
+(pertenece) a la asignación completa del Ministerio de Finanzas
 
-IPO。 Coinbase于4月14日上市。激动人心的场面非同寻常。比特币在那一天创下了64,899美元的历史新高。对于许多年轻的交易员来说，他们还没有了解到市场将在投机者和他们的钱分开方面有多么可怕的效率，比特币价格的立即下跌是可怕的。三个月后，在一连串的负面新闻和中国禁止加密货币开采/交易的举措之后，比特币的交易价格下跌了55%。本周随着新ETF的上线，它创下了新高。而一旦被这些水平的反转所灼伤，这次的市场心理和交易设置是相当不同的。要吸取新教训。
+财政部划拨是不算这个的
+La asignación del Ministerio de Finanzas no cuenta esto
 
-轶事。市场永远不会错。它产生的价格反映了人类的集体智慧，加权给那些拥有最多风险资本的人。由于资金通常流向那些具有最强能力的人，他们的总赌注所产生的集体判断 —— 反映在市场清算价格中 —— 比以往任何其他预测算法都做得更好。但是，这样一个系统优于其他所有系统并不意味着没有获利的机会。大多数人都犯了一个错误，就是迎着市场走，试图超越预测。他们发现自己周期性的成功是英勇的，令人激动的。但随着时间的推移，赔率会摧毁他们。幸存者通过几十年来研究市场动向，倾听、观察、学习来赚钱。对熟悉的设置做出反应。游戏中最基本的真理是，每个买家都有一个卖家。反之亦然。
+你知道这很夸张吧
+Sabes que esto es una exageración
 
-在你做空之前，了解谁会在未来以较低的价格卖给你。最可靠的未来卖家是那些拥有某样东西的人，尽管基本面消息表明它应该上涨，但它却未能走高。当这种多头因市场开始下滑而变得固执和愤怒时，他们最终会以更低的价格吐出的几率就会大大增加。黄金市场就是这种设置的候选者。人们在恐慌中买了太多的黄金，以保护自己在2008年QE印钞后免受通货膨胀的影响。他们希望他们的孩子最终会以更高的价格从他们那里购买。
+那划拨是在哪儿呢
+Entonces en dónde están las asignaciones
 
-但通货膨胀终于来了，而黄金却不再上涨。现在他们的孩子正在购买数字资产 —— 他们永远不会购买黄金。而这也导致了一个看涨的数字设置。未来创新资产最可靠的买家是那些即使在变化表现出来时也顽固抵制变化的人，他们被困在表现不佳的投资和正在被解救的公司中。
+在中国有多少干休所呢
+Cuántos retiros para los militares con rangos hay en China
 
-因此，他们自然会成为数字资产和它们所代表的基础设施的未来买家。
+中国有多少个省呢
+Cuántas provincias hay en China
 
-**原文连接：**[https://www.zerohedge.com/markets/hedge-fund-cio-market-knows-feds-next-rescue-will-be-biggest-ever](https://www.zerohedge.com/markets/hedge-fund-cio-market-knows-feds-next-rescue-will-be-biggest-ever)
+中国有多少个县呢
+Cuántos condados hay en China
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 明子
+大家查一查
+Todos busquen a ver
+
+中国大概有一万七千个国家（级）的干休所
+En China hay más o menos 17 mil retiros para militares de rango a un nivel nacional
+
+一万七千个，不算地方的啊
+Los 17 mil no están dentro de las zonas
+
+不算个省市的
+No cuenta como provincias
+
+军队呀、各部委啊
+El ejército, los ministros de cada ministerio
+
+一万七千个
+17 mil
+
+事实上大概有两万个
+Realmente hay como 20 mil
+
+这当时统计局统计有两万个
+En aquel momento la Oficina de Estadística hizo un censo de 20 mil
+
+两万个干休所得编制是多少
+Cuánto es el sistema de ingresos de 20 mil retiros
+
+土地不算钱
+Los terrenos no cuentan como dinero
+
+各种成本都不算
+Ningún tipo de costos cuentan
+
+那都是财政部拨的
+Todos son asignados por el Ministerio de Finanzas
+
+那你说你这社保是
+Entonces tu dices que el seguro social es…
+
+老百姓没有这个待遇啊
+Los ciudadanos no tienen este beneficio
+
+它又不包含的社保基金里面去
+Eso no está incluido dentro del fondo de seguro social
+
+所以当年戴相龙跟我说的一句话
+Por eso Dai Xianglong me dijo una palabra en aquel año
+
+他说文贵啊
+Dijo: Ay Wengui
+
+任何中国人没把社保搞明白的
+No es necesario conversar con ningún chino
+
+你什么都不用跟他聊了
+Que no haya entendido sobre el seguro social
+
+他这个脑子就是有问题了
+El cerebro de esta persona si tiene problemas
+
+———————————————————
+
+**原视频网址**： [https://twitter.com/se1y7cblljselva/status/1451092014993330181?s=24](https://twitter.com/se1y7cblljselva/status/1451092014993330181?s=24)
+
+日期：10/23/2021
+原视频标题：
+Los fondos de los terrenos, entre otros, no están incluidos en los activos nacionales y los ciudadanos no tienen ningún beneficio
+
+原视频日期：10/21/2021
+任务编号：KC196（2623）
+视频时间段：0:00-1:17
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

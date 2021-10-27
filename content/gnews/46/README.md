@@ -2,46 +2,34 @@
 ---
 
 
-## COVID-19最新情報｜瑞典、英國新冠死亡案例 集中於「完全接種者」
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1618967/)
+## 墙内要闻汇编 10月26日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1619309/)
 
-**台灣寶島農場 疫情關注組｜發佈日期/ 26/10/2021**
+#### 素材：东京樱花团GNEWS组
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/大陆房企违约.jpg)[图片来源](https://money.udn.com/money/story/5603/5798539)
 
+1、 [当代置业美元债违约 大陆房企违约增至9家](https://www.aboluowang.com/2021/1026/1664367.html)
 
-瑞典、英國政府分析數據，發現9月因感染新冠病毒死亡者，絕大多數是完全接種者。這一結論，與西方國家於高疫苗覆蓋率的情形，突破性感染數量激增相符合。
+10月26日，大陆房企当代置业（中国）有限公司发布公告，10月25日到期优先票据未能按时偿还票据本金及应计利息。另据兴业证券统计，今年，算上当代置业，中资美元债市场上出现违约事件的房企已高达9家，包括泛海控股、花样年、华夏幸福、阳光100中国、天房集团、泰禾集团、新力控股、蓝光发展、当代置业，全部未偿额达280.73亿美元。
 
-#### 瑞典
+2、[中共肺炎疫情扩散至11省](https://www.aboluowang.com/2021/1026/1664234.html)
 
-[瑞典媒體](https://www.svd.se/forskare-ser-en-vikande-vaccineffekt-i-sverige)報導，公衛部門報告表示9月1日至24日，約[7成（130例）](https://ourworldindata.org/explorers/coronavirus-data-explorer?zoomToSelection=true&amp;time=2020-03-01..latest&amp;facet=none&amp;pickerSort=desc&amp;pickerMetric=total_cases&amp;hideControls=true&amp;Metric=Confirmed+deaths&amp;Interval=Cumulative&amp;Relative+to+Population=false&amp;Align+outbreaks=false&amp;country=~SWE)新冠確診死者是已經完全接種疫苗。報導進一步分析，死亡主要發生在老年族群，但相關人員仍認為瑞典疫苗保護力有下降趨勢。
+中共肺炎疫情从10月17日以来短短一周的时间已扩散到北京为首的全中国11个省份，这也让即将在11月召开中共“六中全会”的北京面临政治敏感与疫情蔓延的双重压力。北京市政府25日宣布，在北京的人近期不要出城，进城人员也要出示健康证明。
 
-- 相關：[瑞典研究顯示完全接種疫苗後，抗體將在三個月後急劇下降](https://gnews.org/zh-hant/1576453/)
-- 相關：[疫苗與ADE效應](https://www.chop.edu/centers-programs/vaccine-education-center/vaccine-safety/antibody-dependent-enhancement-and-vaccines)
+3、[北京拒绝港区人大代表参与会议原因曝光](https://www.aboluowang.com/2021/1026/1664380.html)
 
+中共全国人大常委会10月19~23日在北京召开，港区全国人大代表谭耀宗17日对港媒称，由于香港当时出现一宗源头不明的中共病毒（新冠病毒）个案，15日接获北京通知，不批准他与另外3名列席代表出席会议。最新消息称，最重要的原因是会议上会有被视为机密的人事任免事项。
 
-#### 英國
+4、[农民工无工可做 提前出现返乡潮](https://www.aboluowang.com/2021/1025/1663921.html)
 
-英國衛生部門數據顯示，瑞典情形也在英國發生。[英國、瑞典的疫苗接種率](https://coronavirus.data.gov.uk/details/vaccinations)幾乎相同。
+在京、津、冀这些北方工业中心，聚集了冶炼厂、化工、煤矿开采、建筑等行业，提供了较多的农民工职位。今年由于习近平严苛的“能耗双控”政策，为了减少二氧化碳排放量，10月初北方又有26个城市实行“停工令”，这些污染严重的企业被迫停工。在“拉闸限电”和“停工令”的双重制约下，很多农民工无工可做，没有了收入，城市里生活成本又高，从而提前踏上返乡之路。
 
-英國衛生安全局 (UKHSA) 於 10 月 7 日發布[報告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1023849/Vaccine_surveillance_report_-_week_40.pdf)，9月份大多數的死亡病例都已經完全接種疫苗。突破性感染而住院治療的病患，也是完全接種者佔多數。UKHSA 的數據顯示，「完全接種疫苗」死亡數量有2281人，遠高於未接種疫苗、部分接種疫苗。
+5、[武汉村支书一家五口被杀 嫌犯跳江自杀](https://www.aboluowang.com/2021/1026/1664253.html)
 
+10月24日晚间，湖北武汉发生杀人案，39岁武汉男子将蔡甸区罗汉村党支书张某红全家五口杀害，在逃亡中又杀害两人，最后跳江。
 
+（本文只代表观点，与Gnews网站无关）
 
-> Surging [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) in UK with 49,156 new cases and 45 new [#deaths](https://twitter.com/hashtag/deaths?src=hash&amp;ref_src=twsrc%5Etfw) reported on 18 October 2021. 78.9% of all aged 12 and up are DOUBLE VACCINATED. [#Breakthrough](https://twitter.com/hashtag/Breakthrough?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Geoffrey Norman Pain (@FluoridePoison) [October 18, 2021](https://twitter.com/FluoridePoison/status/1450225202353225729?ref_src=twsrc%5Etfw)
-
-
-
-- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
-- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
-- 相關：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
-- 相關： [COVID-19最新情報｜為何政府「忽視」自然免疫？](https://gnews.org/zh-hant/?p=1610194%28%E5%9C%A8%E6%96%B0%E5%88%86%E9%A0%81%E4%B8%AD%E9%96%8B%E5%95%9F%29)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/18-6.jpg)
-* * *
-
-新聞來源｜[Natural News](https://www.naturalnews.com/2021-10-25-majority-of-covid-deaths-are-fully-vaccinated.html)
-轉譯｜zhong
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
+*校对、发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)
