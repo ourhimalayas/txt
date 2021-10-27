@@ -2,29 +2,22 @@
 ---
 
 
-## 被罢免的苏丹总理回家
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1621051/)
+## 秘翻在线：前美空军战争学院教授承认隐瞒与中共官员的关系而被判刑
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1621118/)
 
-新闻来源：德国法兰克福报网络版
+#### 翻译撰稿：zzballack
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2021/10/f1sa65d4f56d1h56tr4j56y4k5uy123d1f.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/abdalla-hamdok-im-august-2019.jpg)
+据《真正美国之声》（Real America’s Voice）10月26日报道，美国司法部10月25日指控阿拉巴马州美国空军战争学院（Air War College）的前文职教授张晓明（音译，Xiaoming Zhang）在回答与一名中共官员的关系时向联邦调查部门作出了虚假和误导性陈述。
 
+司法部在一份声明中说：“从2012年的某个时候开始，张晓明与一名已知是外国官员的上海市政府人员建立了关系。记录显示，从2012年12月到2017年1月，张晓明与该官员大约亲自见面六次，并与他交换了大约40份电子邮件，在这段时期，张晓明意识到这名官员利用或试图利用他们的关系获取他所掌握的敏感信息，并与其他有潜在价值的人进行接触。”
 
-被军事政变推翻的苏丹政府首脑在被军队逮捕后被带回家。前总理办公室说，哈姆多克周二与妻子回到了他的私人住宅。现在尚不清楚哈姆多克是否恢复了行动自由。在这个非洲东北部国家的多个城市，示威者和安全部队发生了冲突。
+司法部说，现年69岁的华裔教授张晓明在空军战争学院拥有保密级的安全许可，每年参加安全培训，并被告知必须报告与可疑外国人的接触以及与外国政府官员的关系。但是即使张晓明意识到那名官员试图从他那里搜集敏感信息后，他也没有报告这一关系。检察官说，张晓明多次试图通过向美国人事管理办公室（Office of Personnel Management）的调查人员做出具有误导性或虚假的陈述，以掩盖他与那名中共官员的关系。
 
-美国国务卿安东尼·布林肯周二致电哈姆多克。美国国务院在华盛顿表示，布林肯“欢迎首相获释”。美国首席外交官呼吁苏丹军队释放所有在政变后被捕的“文职领导人”，并“保证他们的安全”。
+张晓明已对此事供认不违，他将面临最高五年的联邦监禁。
 
-自 2019 年 8 月起与阿尔·布尔汉一起领导过渡政府的被罢免的总理，在周一的政变后最初被拘留在苏丹首席将军阿卜杜勒·法塔赫·布尔汉的家中，理由是为了安全。 阿尔·布尔汉在周二的新闻发布会上说，哈姆多克“和我在一起”。这位前政府首脑“身体健康”。一名军方官员告诉法新社，哈姆多克已“被护送回他在 Kafouri 区的家”。
-
-哈姆多克回家的确切情况是模糊的，尚不清楚他是否被软禁。军队代表说，已在被罢免的政府首脑的房子周围采取了“安全措施”。据哈姆多克的办公室称，他在家中“受到密切监视”。
-
-原文链接：[https://www.faz.net/aktuell/politik/ausland/abgesetzter-ministerpraesident-sudans-wieder-zu-hause-17604649.html](https://www.faz.net/aktuell/politik/ausland/abgesetzter-ministerpraesident-sudans-wieder-zu-hause-17604649.html)
-
-免责声明：本文内容仅代表个人观点，与Gnews平台无关。
-
-责任编辑、发布： Shuizhuyu
+新闻来源：[**Air War College professor admits to lying about relationship with Chinese official**](https://americasvoice.news/justthenews/air-force-professor-admits-lying-about-relationship-chinese-official/)
 
  
 

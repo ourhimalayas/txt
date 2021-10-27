@@ -2,31 +2,41 @@
 ---
 
 
-## 布林肯：鼓励所有联合国成员与美国一起支持台湾参与联合国系统
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1620981/)
+## 退休四星上将希望美国能做出保护台湾的承诺
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1621065/)
 
-编辑摘要：
+作者：日本方舟农场 Andy5
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/acastro_211024_4823_0001.0-2.jpg)资料照片：美国国务卿布林肯在纽约举行的第76届联合国大会场边举行记者会。(2021年9月23日)
-
-据美国之音10月27日报道，美国国务卿布林肯26日在国务院正式发布声明说，美国认为台湾施行透明、对尊重人权及法治尊重的模式，都与联合国价值观一致，台湾已经成为一个民主成功故事。美国支持台湾参与联合国系统，很多联合国成员都视台湾为一个宝贵伙伴及可信赖朋友。美国鼓励所有联合国成员和美国一起，支持台湾参与联合国系统及国际社会，共同解决全球所面临的问题。
-
-北京称已经就美国务卿的讲话向美方提出“严正交涉”。
-
-新闻参考链接：[布林肯：鼓励所有联合国成员与美国一起支持台湾参与联合国系统](https://www.voachinese.com/a/blinken-urged-all-un-memger-states-to-support-taiwans-meaningful-participation-in-the-un-system-20211026/6286756.html)
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+10月26日，美国退休的四星上将杰克-肯尼在接受福克斯新闻的采访时表示，他衷心希望美国能履行保护台湾的承诺。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1027-AM-（1-3、5-8、10）视频备用.001.jpeg)
+杰克提及，美国目前与台湾的关系仍处于战略模糊阶段，但拜登总统毫无疑问地支持台湾，愿意帮助台湾建设军队并提供武器装备及物资，且他多次承诺会保护台湾。为此，杰克希望拜登总统可以落实这一承诺。
+
+同时，美国也一直努力为台湾促成同盟关系，激励日本做出对台的保护承诺，并增强台湾与欧盟的纽带。
+
+杰克谈到，中共，尤其是习近平近期的对台行为极具侵略性。此前，中共还多次做出侵犯人权的行为，包括对香港民主的摧毁和对新疆维吾尔少数民族的暴行。最为重要的是，中共此次在世界范围内释放新冠病毒，造成全球性的灾难。这些都是让西方国家对中共持续提高警戒的要素。
+
+此前，郭先生也在大直播中爆料，美国专业人士明确答复，一旦中共发动对台攻击，美国，协同日本一定会出手助台。
+(本文仅代表作者观点)
+
+参考链接：[2021/10/26退休四星將軍Jack Keane接受Maria採訪摘要](https://gettr.com/post/pf7gb50f52)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/总编：Irene木木 
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

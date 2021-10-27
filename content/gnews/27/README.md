@@ -2,30 +2,48 @@
 ---
 
 
-## 各地柴油紧缺现抢购潮，中共优先保军用
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1621003/)
+## 澳大利亚社论漫画家因创作反强制疫苗漫画被解雇
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1621067/)
 
-撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-159.jpg)
-[图片来源](https://www.aboluowang.com/2021/1027/1664798.html)
+作者：纽约香草山福音部 –lilian89
 
-自由亚洲电台10月27日报道，中共国出现柴油紧缺，部分加油站无柴油供应，各地柴油抢购情况，同时导致大量货车因缺油而无法行驶，造成货品积压。学者认为，柴油是中国海军和远洋货轮的动力，政府首先要满足战略用油储备，同时要满足出口集装箱货轮用油需要。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-继电荒之后，最近一段时期，中共国内出现“柴油荒”。中共财新网报道，很多炼厂减少了炼油的比例，加之9月份全国多地限电等因素造成柴油紧缺，多地加油站限量加油，而这一紧缺现象，或还将持续几个月。报道引述河北石家庄的卡车销售人士称：“现在油价涨得柴油车加不上油了。”还称，当地加油站给卡车限加柴油100升，而整车加满需要1000升左右。安徽阜阳一卡车司机说，“油价特别高，阜阳加油站普遍都不给加油。”，要么只给加100-300元（对应几十升柴油）。
 
-另外，中共国家发改委上周五（22日）宣布新一轮成品油调价，汽油、柴油价格每吨分別提高300元和290元人民币。
 
-柴油在民用领域广泛用作拖拉机、大型汽车、内燃机车及土建、挖掘机、装载机、渔船、柴油发电机组和农用机械的动力。中共在能源上历来都施行“先军后民”的策略，又减少炼油的比例搞所谓的“碳达峰”，全然不顾老百姓。由此，导致物流停运、物价走高，又将使一波司机失业，加之冬天将至，这让百姓怎么活。
+近日，据消息称，澳大利亚社论漫画家——迈克·李优尼格因一副漫画被解雇。
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-27-at-9.46.24-PM.png)
 
-[中国各地柴油紧缺现抢购潮   学者：首先确保中国海军舰船柴油充足](https://www.rfa.org/mandarin/yataibaodao/jingmao/ql1027a-10272021051820.html?utm_medium=proxy&amp;utm_campaign=persagg&amp;utm_source=nthlink&amp;utm_content=title)
+据悉，迈克创作了一幅关于抵制新冠疫苗强制接种的漫画，当中，他将抵抗政府强制性新冠疫苗的行为比作当年天安门广场上的民主斗争。
 
-免责声明：文章仅代表作者本人观点，与GNEWS无关
+但是，《时代报》以包含反疫苗情绪为由，拒绝刊登该副漫画，并因此解雇了迈克。
 
-校对：东京樱花团/
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)
+而今，在西方国家，言论、新闻自由被打压的境况已经逐步显现。这也完全验证了郭先生早在2017年爆料革命之初的警告：主流媒体对言论管制的操控也一定会发生在西方国家每个人的身上，没人能置身度外。
+(本文仅代表作者观点)
+
+参考链接：
+
+1. [Cartoonist Michael Leunig axed from prime spot at The Age over anti-Dan Andrews image](https://www.news.com.au/finance/business/media/cartoonist-michael-leunig-axed-from-prime-spot-at-the-age-over-offensive-vaccine-image/news-story/3b6b99a4101ebe53df58cb21827df0d4)
+2. [High-profile cartoonist Leunig is AXED over cartoon comparing Dan Andrews’ vaccine mandates to the Tiananmen Square massacre](https://www.dailymail.co.uk/news/article-10126303/Cartoonist-Leunig-AXED-cartoon-comparing-Dan-Andrews-vaccine-mandates-Tiananmen-Square.html)
+3. [The Australian cartoonist Leunig got fired for making this cartoon.](https://twitter.com/HiggensWillem/status/1452953551358119939)
+4. [“My Job Is To Challenge The Status Quo!” Michael Leunig Kicks Off After The Age Rejects Anti-Vax Content](https://www.bandt.com.au/my-job-is-to-challenge-the-status-quo-michael-leunig-kicks-off-the-age-over-anti-vax-cartoon/)
+
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/总编：Ivy001
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

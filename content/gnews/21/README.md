@@ -2,39 +2,22 @@
 ---
 
 
-## 拜登签署命令实施新国际旅行疫苗规定
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1621066/)
+## 秘翻在线：疫苗护照实际上可能增加病毒的传播
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1621174/)
 
-作者：澳喜农场 在远方
+#### 翻译撰稿：Hakunamatata
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/153asd1f231sd5g4tr56ht5rh123d1s2.jpg)
 
+一份泄露的政府报告披露，疫苗护照实际上可能会加剧中共病毒的传播，因为人们会因为接种了疫苗去狭窄、通风更差的场所。然而疫苗所含物质会让接种的人们更容易感染新的中共病毒，并且具有严重的副作用， 完全不能有效预防中共病毒的传播。
 
+根据英国数字、文化、媒体和体育部(DCMS)等部门所编制的一份报告，引入了中共病毒疫苗计划实际上可能会产生适得其反的预期效果。 该报告称：“如果疫苗证让一些球迷离开了结构严密、通风良好的体育场馆，这可能会导致他们去没有结构严密、通风差的酒吧，在那里他们可以比在体育场喝更多的酒。“欧洲杯的证据显示，即使英格兰队在国外比赛的时候，与酒吧有关的中共病毒感染事件也出现了激增。”
 
-10月25日，拜登签署了一项新的国际旅行疫苗命令，当中表示，从11月8日起，取消对中共国、印度和欧洲大部分地区的严格旅行限制。但是，新规定中要求，外国的航空旅客需要提供所谓“官方来源”的新冠疫苗接种文件，且最后一剂疫苗的接种时间至少比旅行出发日期早两周。另外，国际航空旅客还必须在起飞前72小时内提供新冠病毒检测阴性的证明。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1027-AM-（1-3、5-8、10）视频备用.004.jpeg)
-虽然全球旅行禁令看似在逐渐解除，但与之并行的是各国政府愈演愈烈的强制新冠疫苗接种政策。而今，这一政策已经影响到民众生活的各个角落。
+据《每日电讯报》报道，“这项政策还将大幅削减使用疫苗护照的活动组织者的营业额，并需要雇佣数千名可能难以提供的新管理员。”在苏格兰尝试引入疫苗护照后，这一过程被称为一场“彻底的灾难”，夜总会的工作人员遭到辱骂，事实证明，这项政策是彻底失败的。许多夜总会决定提前关闭营业，这导致他们损失了40%的客流量，这再次说明该计划将如何让无数利润率为15%的夜总会面临永远的停业。
 
-从另一方面看，美国的航空新规一方面要求旅客接种新冠疫苗，但另一方面仍需他们提供病毒检测阴性证明，这本身就是疫苗不具有效防护作用的体现。
-(本文仅代表作者观点)
+另一个疫苗护照基本上毫无用处的例子是，尽管接种疫苗仍然可以传播病毒，但已不再提供阴性测试作为一种选择。在爱尔兰，去夜总会的人必须接种疫苗才能进去，但随后被告知跳舞时不需要戴口罩，可是大量事实证明，疫苗并不能有效预防中共病毒的传播。
 
-参考链接：[美国总统拜登签署命令 实施新的国际旅行疫苗规定并取消严格限制](https://cn.reuters.com/article/biden-travel-rules-1025-mon-idCNKBS2HG034)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-编辑/总编：Irene木木
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+原文链接：**[Leaked Government Report Finds Vaccine Passports Could Actually Increase Spread of COVID](https://summit.news/2021/10/26/leaked-government-report-finds-vaccine-passports-could-actually-increase-spread-of-covid/)**
 
  
 

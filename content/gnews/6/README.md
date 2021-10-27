@@ -2,12 +2,18 @@
 ---
 
 
-## 澳洲三大连锁超市: 不接种就没工作
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1621256/)
+## 西媒头条 — 第96期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1621435/)
 
-10/25/2021 澳洲三大连锁超市沃尔沃斯、科尔斯和奥乐齐宣布如果没有有效的疫苗豁免书，接种疫苗将成为被雇佣的一个条件。他们做出一致的决定：不接种就没工作。
+制作：蚂蚁兄弟
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1027.001.jpeg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
 
  
 

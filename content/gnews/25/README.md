@@ -2,29 +2,35 @@
 ---
 
 
-## 中共国地方债务达22万亿
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1621018/)
+## 中共的强制抗疫政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1621078/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-133.jpg)
-[图片来源](https://economy.caixin.com/2018-03-12/101219823.html)
+作者：澳喜农场 在远方
 
-10月27日界面新闻报道，上海财经大学高等研究报告，中共国公共财政债务正在迎来到期高峰期，2021年至2026年共有超过22万亿元存量债务到期。面对不断加大的付息压力，地方政府债务存在较高的局部违约风险。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-报告显示，从2021年至2026年，如果考虑城投债，每年存量债务到期额均在4.4万亿元以上。其中，2021年到期额达5.82万亿元，2023年和2024年均为5.6万亿元。据统计，截至10月20日，地方政府债券余额达到28.87万亿元，同比增长13.65%；城投债余额12.55万亿元，同比增长16.68%。两者合计，以地方政府债券形式的显性债务共41.42万亿元，同比增长14.52%。
 
-债务余额超过1.5万亿元的省份有9个，比上年增加3个，依次为江苏（4.46万亿元）、浙江（3.10万亿元）、山东（2.77万亿元）、广东（2.25万亿元）、四川（2.23万亿元）、湖南（1.98万亿元）、湖北（1.70万亿元）、河南（1.58万亿元）和安徽（1.57万亿元）。
 
-中共国这二十年的GDP增长刚好是债务的增长，说明了什么？房企债务违约，地方债违约，原材料价格上涨，楼市被冷冻，连交易税都收不到，中共体制阶级固化，疯狂割国人，无底线压榨的社会格局，将是常态化，就算今晚开始征房产税，也无法弥补这么大的窟窿。
+中共内蒙古额济纳旗于当地时间25日零时宣布封城，当局公告称，禁止居民出户且禁止游客出店，否则将被追究民事和刑事责任。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/PP5.001.jpeg)
+据内部战友透露，中共先是研制并释放病毒，造成世界性的灾难，其后又采取了极端严酷的疫情防控措施，动辄封门、封路、封城，任由民众自生自灭，最终导致民怨四起。为了防控疫情，中共国是全世界唯一一个全面阻止公民返国，并禁止疫区病患外出寻求医疗援助的国家。
+(本文仅代表作者观点)
 
-信息来源：[报告：地方债务迎来到期高峰期，未来五年至少偿还22万亿元](https://mq.mbd.baidu.com/r/vmJNoTlzos?f=cp&amp;rs=3988511939&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=19700efc706c098a)
+参考链接：[中国新一轮封城抗疫行动 成效与可持续性受考验](https://www.voachinese.com/a/china-braces-for-covid-19-new-lockdowns-20211025/6284255.html)
 
-免责声明：文章仅代表作者本人观点，与GNEWS无关
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-9.png)
+编辑/总编：Irene木木
+校正/发稿：我不在这里
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

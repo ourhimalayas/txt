@@ -2,62 +2,28 @@
 ---
 
 
-## 必看 ！全球34位英雄医生专家警告疫苗危险（1）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1620972/)
+## 秘翻在线:印度利用生物辨识系统实现「欧威尔式」集权统治
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1621030/)
 
-字幕翻译：Rosa
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Image-2.jpg)
+图片:网路
 
-撰稿：Jenny
-视频剪辑/字幕：外星人
-请将此视频广泛转发给您的朋友和家人。发送给你的家庭医生, 医院、学校、牧师、市长和其他在你的社区有责任的人也更加重要！
+《一九八四》是英国作家乔治·欧威尔创作的一部反乌托邦小说，重点在探讨政府权力过分伸张的极权主义，其中「欧威尔式」（Orwellian）用于形容官方欺骗、秘密监视的极权主义或独裁状态。
 
-如果我们都分享这个视频，我们就能唤醒人类。我们可以共同阻止腐败，阻止这场疫苗灾难，共同创造一个更加美好的世界。
+**印度2014年实施Aadhaar 的生物识别数字 ID 系統**
 
-注册获取更多信息, 请登录: [https://www.stopworldcontrol.com](https://www.stopworldcontrol.com/)
+根据《零对冲》的报导，Aadhaar 于 2014 年在印度实施，创始人是被称为“班加罗尔的比尔·盖茨”的亿万富翁高科技南丹•尼勒卡尼(Nandan Nilekani) 。在Aadhaar 的数据库中有超过 10 亿印度人，是有史以来最大的生物识别数字 ID 程序。Aadhaar除了作为政府服务的门户，它还跟踪用户在城市之间的移动、就业状况和购买记录。Aadhaar就是一个不折不扣的集权掌控体系。
 
-总结这34名医生或专家的观点，其中：
+根据《零对冲》引用赫芬顿邮报的报导，莫迪政府除了让 Aadhaar 成为人民获得政府服务的必要条件之外，还整合Aadhar所收集到的数据，建立一个“360 度的数据库”，以便自动跟踪公民在城市之间移动、换工作或购买新房产。 2018 年，印度论坛报透过 WhatsApp 的匿名卖家购买几乎所有 Aadhaar 用户的个人信息，该过程仅耗时 10 分钟，成本仅 6 美元 。
 
-**认为疫苗不安全，并反对COVID疫苗的，有全部34名医生和专家，占100%。**
+**Aadhar 利用中共疫苗，成為「歐威爾式」的統治工具**
 
-**认为这个COVID-19疫情不是医学定义的大流行病有21位，占61%**
+2020 年初，当中共病毒(Covid-19) 入侵印度时，尼勒卡尼Nilekani 首先提议使用 Aadhar 作为中共病毒疫苗接种和跟踪计划的工具。他在 2020 年宣布： “我们必须确保获得每个人的疫苗接种日期、疫苗名称、供应商和地点的数字证书 。”
 
-**让我们记住他们的名字**：1.Kelly Madej 2.Andrew Kaufman  3. Hilde de Smet 4.Nils Fosse 5.Mohammad Adil 6.Dolores Cahill 7.Zac Cox 8.Johan Dennis 9.Daniel Cullum 10.Moritz  von der Borch 11.Kevin Corbett 12.Kate Shemirani 13.Barre Lando 14.Borris Dragin 15.Piotr Rubas 16.Natalia Prego Cancelo 17.Kelly Brogan 18.Konstantin Pavlidis 19.Heiko Santelmann 20.Mikael Nordfors 21.Elke de Klerk
+2021 年 7 月，圣母大学技术伦理实验室的伊丽莎白·雷尼里斯( Elizabeth Renieris )在美国众议院金融服务委员会警告说：“印度的 Aadhaar 数字能够跟踪个人在生活各个方面的活动，从就业到医疗保健，再到学校，几乎所有的一切。个人无法在生活的特定领域保持自主权。我认为这确实有问题。我們必須避免構建數字身份系統和相关基礎設施，使得邪惡勢力無法進一步擴展及鞏固監控式的控制。”雷尼里斯堅定地說。
 
-**认为疫苗是用人做实验的有15名，占44%**
-
-**让我们记住他们的名字**： Hilde de Smet，Elizabeth Evans，Dolores Cahill，Johan Dennis，Kate Shemirani，Borris Dragin，Piotr Rubas，Nour De San，Kelly Brogan，Konstantin Pavlidis ，Sherri Tenpenny，Senta Depuydt，Heiko Santelmann， Mikael Nordfors, Elke de Klerk
-
-**明确指出，PCR 测试是错误的手段的有5名**
-
-**让我们记住他们的名字**：Kelly Madej，Anna Forbes，Ralph Sundberg，Barre Lando，Konstantin Pavlidis
-
-**明确指出，疫苗可能改变DNA或是一种种族灭绝行为的有8名**
-
-**让我们记住他们的名字**：Johan Dennis，Kevin Corbett，Kate Shemirani, Konstantin Pavlidis，Sherri Tenpenny，Senta Depuydt, Heiko Santelmann, Elke de Klerk
-
-**Carrie Madej医生，一名来自美国的内科医生**
-
-她拥有自己的诊所，并在两个不同的诊所担任医务主任，在过去的19年里，她还是指导过医学科学生的主治医生。
-
-她说，我要借这个平台告诉人们，应对这个Covid-19疫情，全球目前都在使用检测办法是被称为PCR测试，而这种测试方法从未被指定或就是创造发明出来用于诊断任何感染，这不是我们应该采用的诊断方式。
-
-另外，医院和医生正在为获得经济激励来诊断COVID-19。除此之外，我们有多个实验室错误在世界各地不断发生，表明有更多的结果是假阳性。
-
-我不会接种这个COVID-19疫苗，也不会向我的任何病人推荐COVID-19疫苗。这种疫苗在人类身上是实验性的，因为他们建议使用修改过的信使RNA或修改过的DNA，合成到人体上。这是第一次在人类身上推出这种疫苗。
-
-我们不知道将会有发生什么在我们身上。还有，他们还提议在人类身上使用纳米脂质技术或纳米技术，而这有可能对人类造成伤害，导致很多可怕的后果，我们真的需要在推进此技术之前，调查清楚这一切。
-
-这是我向世界发出的警报！
-
-请接续
-
-（本文纯属个人观点，与G news 无关）
-
-[原视频链接](https://rumble.com/viqn29-worldwide-doctors-warn-for-the-vaccines-must-see.html)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
-
+消息来源:[Public Health Or Private Wealth? How Digital Vaccine Passports Pave Way For Unprecedented Surveillance Capitalism](http://Public%20Health%20Or%20Private%20Wealth?%20How%20Digital%20Vaccine%20Passports%20Pave%20Way%20For%20Unprecedented%20Surveillance%20Capitalism)
 
  
 
