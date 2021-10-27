@@ -2,41 +2,39 @@
 ---
 
 
-## 数百名温哥华岛卫生工作者逾期未接种疫苗被解雇
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1621411/)
+## 渤海银行未经授权质押储户存款28亿
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1621494/)
 
-**翻译：**卢卡斯
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片186787687.png)图片来源：网络
-超过 4,000 多名不列颠哥伦比亚省的医护人员由于未接种疫苗而失业，其中包括数百名温哥华岛的医护人员。
+作者：香草山农场商业部– Bronx Bombers
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间10月25日，据相关媒体消息，江西民企济民可信集团的28亿存款遭渤海银行未经授权挪作第三方质押。济民可信在得知28亿存款被质押而无法调用后，向渤海银行南京分行交涉。随后，渤海银行发公告称，已经向警方报案。
 
-这些在医疗保健机构工作的人员，包括学生、医生、合同工和志愿者，接种疫苗的截止日期是周二（10 月 26 日）。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide8-9.jpeg)
 
-该省卫生部长阿德里安·迪克斯 (Adrian Dix) 在周二的新闻发布会上宣布，所有未接种疫苗的医护人员都应该寻找新工作，因为他们现在失业了。
+消息中提及，早在今年8月19日，济民可信获知有人正在银行柜台冒充该集团人员办理存款质押手续，其后，该集团28亿存款被用于为华业石化提供票据融资担保，后又因华业石化债务问题，导致这28亿存款被冻结。
 
-“我们所有人在这一时刻都非常严肃，因为接种疫苗的要求在我们的医疗保健系统中是绝对必要的，”迪克斯补充说。 “那些目前无法工作的人，今天和未来几天，他们将正式失业。”
+另据报道显示，华业石化公司身份存疑，不仅疑似编造央企子公司的背景，且无法通过其注册地址找到该公司。为此，渤海银行用于办理质押担保的材料也存在造假嫌疑，相关材料中有300多个公章疑似伪造。
 
-根据省级数据，BC 省的绝大多数医护人员确实接种了疫苗，这表明共有 126,343 名工人至少接种了一剂疫苗接种。
+有相关评论指出，渤海银行此次事件看似是存款纠纷，实际是信用问题。一旦其信用崩塌，将会带来连锁反应。加之此前郭先生也曾爆料道，中共银行的坏账率极高，暗箱操作和监守自盗现象屡见不鲜，并无诚信可言。
 
-在这些医护工作者中，119,627 人接种了两剂或更多剂， 2,626 人部分接种了疫苗。 然而，卑诗省的 4,090 名医护人员仍然未接种疫苗。
+参考链接：
+1）[银行圈炸锅！储户28亿存款不知情下遭质押，银行：已报案！存款方股东：啥时候报的警，说出来！](https://finance.sina.com.cn/chanjing/gsnews/2021-10-25/doc-iktzscyy1585769.shtml)
+2）[15楼财经 28亿存款遭莫名质押后续：济民可信六问渤海银行](https://www.163.com/dy/article/GN8GFMSE0514R9KQ.html)
+3）[渤海银行的“骚操作”：江西济民可信损失28亿存款，银行却装无辜](https://sunnews.cc/science/318205.html)
 
-在 温哥华岛医护人员内部，有 678 人没有接种疫苗，仅占 总数为23,000 名工作人员的 3%。这些人包括护士、医生、护理助理和医疗行政部门的工作人员。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-BC 省医生协会主席 Matthew Chow 博士表示，虽然 97% 的在卫生当局经营的医院和诊所工作的医生都接种了疫苗，但该省正在努力扩大疫苗接种范围，以包括那些在私人诊所工作的医生。
+总编：山本不惑
+编辑：山本不惑
+校正/发稿：谐趣园
 
-“作为医疗保健专业人士，我们最终得到了公平的警告，这最终也将适用于私人诊所，”Chow博士说。
-
-迪克斯说，如果现在失业的医护人员确实接种了疫苗，他们就可以重返工作岗位。
-
-**评**：卑诗省政府医疗当局在继续实施医疗暴政，压迫医疗行业执业人员接受毒疫苗接种，并且即将延申到私人诊所从业者。那些出于种种原因已经接种了毒疫苗的医护工作者占了总数的97%，这让医疗当局有了更有理由施行疫苗暴政。这些拒绝接种疫苗医护人员应当勇敢站出来发声，说出他们知道的中共病毒疫苗的真相，唤醒民众反抗医疗暴政。医疗暴政遇到强烈的反抗，并且正义的力量大过黑暗势力的时候，才会妥协退让，直到放弃。
-
-原文：Hundreds of unvaccinated Island Health workers fired for missing deadline
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：LILY
-
-20211027
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

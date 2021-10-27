@@ -2,32 +2,45 @@
 ---
 
 
-## 东亚峰会 美中就海上安全针锋相对
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1621777/)
+## 安大略省可能会解雇 50,000 名教育工作者
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1621831/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+作者：Dakota Christensen
+翻译: HimaBoy
 
-编辑上传   水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/E-4.jpg)japantimes.co.jp
-日本共同社10月27日报道，美国、中共国和日本在周三举行的地区峰会上就海上安全问题针锋相对，美国总统拜登(Joe Biden)和日本首相岸田文雄(Fumio Kishida)自上任以来首次参加了在线会议。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5000.png)
 
-东亚峰会的虚拟会议召开之际，中美之间的紧张关系因南中国海、东海和台湾海峡等问题不断加剧。与此同时，缅甸局势预计将成为东亚峰会的主要议题之一。
+据加拿大新闻社报道，根据安大略省教育部长的说法，如果该部门强制要求接种新冠疫苗，安大略省将有超过 50,000 名教育工作者被解雇。
 
-拜登的出席凸显美国一直渴望恢复其在该地区的影响力，而中共一直在努力加强与东南亚国家联盟(Association of Southeast Asian Nations)的关系。
+教育部长斯蒂芬莱切在回应安大略省新民主党党的问题时表示，强制性疫苗政策将意味着在该省已经面临人员短缺的情况下解雇数万名教育工作者。
 
-日本首相岸田文雄在峰会结束后向其他国家领导人转达了日本在南中国海和东海海上安全问题上的“坚定立场”。他强调关注中共在新疆涉嫌侵犯人权、香港镇压自由以及台湾面临的安全挑战是重要的。
+“我认为我们必须与现实相结合，并确保任何进入我们学校的工作人员都进行双重测试，抗原测试呈阴性，以确保他们的安全，确保我们的学校可以配备人员，并且这些孩子可以继续每天去上学，” 莱切说。
 
-拜登上周说，如果中共对台湾发动攻击，美国将致力于保卫这个自治的民主岛屿，这显然与华盛顿长期以来在这个问题上保持模棱两可的立场的政策相矛盾。
+安大略省超过 85% 的教育人员接种了疫苗，而其余约 15% 的教育人员要么证明没有接种疫苗，要么拒绝透露他们的疫苗接种情况。
 
-中共与四个东盟成员国——文莱、马来西亚、菲律宾和越南——以及台湾在南中国海的领土主张存在冲突。南中国海是全球逾三分之一贸易必经的战略水道。中共还声称对尖阁列岛（Senkakus，中共称其为钓鱼岛）拥有主权。外交事务专家说，岸田文雄对中共不顾日本的抗议，频繁派遣海警船到尖阁列岛附近表示担忧。日本和美国的政治领导人已经确认《日美联合公报》第5条，这意味着，如果日本在那里发生冲突，美国将保护日本。
+大约 50,000 名工人包括教师、教育助理、幼儿教育工作者、校长、董事会工作人员、临时工作人员和监护人，他们要么未接种疫苗，要么不愿透露自己的身份。
 
-东亚峰会包括东盟，包括文莱、柬埔寨、印度尼西亚、老挝、马来西亚、缅甸、菲律宾、新加坡、泰国和越南，以及澳大利亚、中共国、印度、日本、新西兰、俄罗斯、韩国和美国。
+一些教育局，例如多伦多地区教育局，已经制定了自己的更严格的政策，包括终止雇佣合同作为威胁 。
 
-此次，缅甸军事领导人被排除在东亚峰会之外。
+來源：[https://www.rebelnews.com/50\_000\_ontario\_education\_workers\_could\_be\_fired\_if\_vaccines\_mandated\_education\_minister\_says](https://www.rebelnews.com/50_000_ontario_education_workers_could_be_fired_if_vaccines_mandated_education_minister_says)
 
-参考链接：
+（文章仅代表作者个人观点）
 
-[https://english.kyodonews.net/news/2021/10/4625ce59976c-us-china-square-off-over-maritime-security-amid-tensions.html](https://english.kyodonews.net/news/2021/10/4625ce59976c-us-china-square-off-over-maritime-security-amid-tensions.html)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

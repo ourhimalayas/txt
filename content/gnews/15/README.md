@@ -2,72 +2,20 @@
 ---
 
 
-## 川普与SPAC的交易存在三大风险
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1621653/)
+## 文贵视角:SPAC 是中共给新中国联邦的大礼
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1621721/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2675.png)
-[https://gtv.org/video/id=6179367d247c5a3f9090a95e](https://gtv.org/video/id=6179367d247c5a3f9090a95e)
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Image-2-1.jpg)
+郭文贵先生在10月27日的直播中指出，”SPAC 是中共给新中国联邦的大礼”。因为SPAC的出线，正显出GETTR的可贵与优质。
 
-**郭文贵
-Miles Guo**
+**盖特的设计囊括所有社交媒体的年龄层**
 
-我要说到这个，让你们看到这个有多可怕
-I want to talk about this, let you see how terrible this is
+从目前的社交媒体的受众年龄来看，抖音是20-50岁，Instagram是40-65岁，推特是40-65岁，脸书是20-60岁，脸书受众其中的60-70%是40岁。首先，针对抖音20-50岁的受众，盖特推出可以推销自我的15秒的短视频功能。盖特针对Instagram 40-65岁的受众，推出可以展示自我、分享自我的照片功能。针对脸书20-60岁的受众，推出可以容纳700多字的盖文，可以发3分钟的视频。盖特还有私密直播，参加的人必须真名真姓，同时还有打赏功能。譬如大家都喜欢的一个日本的女明星，私密直播会吸引大陆至少五亿的人，如果一个人打赏一块钱，那么就是五亿元。GETTR的影响绝对是核弹级的!
 
-川普总统这个SPAC的交易，它的风险在哪里
-What is the risk of President Trump’s transaction with SPAC?
+**吴征是新中国联邦灭共的功臣**
 
-三件事儿
-Three things
-
-第一个，这里绝对不能有内幕交易，只要有内幕交易就是刑事罪
-First, there is absolutely no insider trade here, as long as there is insider trade, that will be a criminal charge
-
-不用任何怀疑的，大家可以看到，从1000手，1万手，4万手到600万手到交接
-Without any doubt, you can see that from 1,000 hands, 10,000 hands, 40,000 hands to 6 million hands to the handover
-
-几乎都在11家基金中间转来转去，就是我买来买去在这一天
-Almost all of them are going around among the 11 funds, that is they quick buy and sell on that day
-
-这叫内部交易，操纵市场，可以说它100%会受到SEC调查
-This is called insider trade, market manipulation, it will be 100% investigated by the SEC
-
-SEC不查是不可能的，当你这不正常的波动和股票
-It is impossible for the SEC not to investigate, when you have abnormal fluctuations and stocks
-
-而且十几家基金进进出出操作的时候，第一我怀疑你有内线交易
-And when more than a dozen funds are in and out of operations, first I suspect you have insider trade
-
-第二，我就怀疑你操纵市场，
-Second, I suspect that you manipulate the market
-
-这个现在大家可以看，这是不用(怀疑的) 100%
-Everybody can see it, there is no doubt about that
-
-如果要是内部交易，如果要是操纵市场，
-If it’s insider trading and market manipulation
-
-川普总统就成了被刑事调查，终生将无法再参与政治选举
-that president Trump will be under criminal investigation and will not be able to participate in political elections for life
-
-* * *
-
-Date:10/26/2021
-原视频标题: 川普与SPAC的交易存在三大风险
-There are three major risks in Trump’s transaction with SPAC
-原视频日期：2021/10/24
-原视频链接:[https://twitter.com/se1y7cblljselva/status/1452954064761671684?s=24](https://twitter.com/se1y7cblljselva/status/1452954064761671684?s=24)
-任务编号：KC198( 2675)
-视频时间段 : 0:00-1:16
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+吴征利用假、骗、空的手段，运用空壳公司SPAC欺骗川普总统，诈骗MAGA平民百姓的辛苦钱。对于讲究法律的美国而言，2019年即被FBI调查的吴征，除了无法逃脱牢狱之灾，也更凸显GETTR未来在社交媒体的竞争性与多元化。对比之下，GETTR不再被定义为右翼或者任何党派，这是吴征的功劳。而GETTR的团队实力也因为SPAC的空洞更显坚挺。另外盖特的受众是国际化的，而川普总统的受众则是单一的，盖特的影响范围不言而喻。”SPAC的存在，对盖特是好事!吴征绝对是新中国联邦灭共的功臣!”文贵先生在直播中愉快地说。
 
  
 

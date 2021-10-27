@@ -2,27 +2,74 @@
 ---
 
 
-## 加拿大阿尔伯塔省政府因疫苗问题遭受诉讼
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1621578/)
+## 川普与SPAC的交易存在三大风险
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1621653/)
 
-采编：青青    编译撰稿：文莱
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2675.png)
+[https://gtv.org/video/id=6179367d247c5a3f9090a95e](https://gtv.org/video/id=6179367d247c5a3f9090a95e)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/ys-edited.jpg)图片来源：TRUENORTH
+**郭文贵
+Miles Guo**
 
+我要说到这个，让你们看到这个有多可怕
+I want to talk about this, let you see how terrible this is
 
-据加拿大【CTV新闻】10月25日报道，目前，四名阿尔伯塔省的医生正在起诉该省公共卫生服务部及其首席执行官，指控其强推的“新冠病毒疫苗”接种政策不仅违反了医疗程序，在病人未知情和同意下进行，更违背了【信息自由和隐私保护法】以及【加拿大权利和自由宪章】的宗旨。
+川普总统这个SPAC的交易，它的风险在哪里
+What is the risk of President Trump’s transaction with SPAC?
 
-此前，艾尔伯塔省政府曾表示，该省将于11月15日开始，通过使用“疫苗护照”来控制人员流动。为此，卫生部以及许多私营公司都制定了相应的强制性疫苗接种政策。
+三件事儿
+Three things
 
-据悉，随着以上政策的生效，阿尔伯塔省部分产业的失业率将会上升。并且，有关对“强制接种该疫苗”的法律诉讼也将会随之增加。预计不久，加拿大各省人权法庭将因为“疫苗授权”及“疫苗次生”问题而收到大量申诉。
+第一个，这里绝对不能有内幕交易，只要有内幕交易就是刑事罪
+First, there is absolutely no insider trade here, as long as there is insider trade, that will be a criminal charge
+
+不用任何怀疑的，大家可以看到，从1000手，1万手，4万手到600万手到交接
+Without any doubt, you can see that from 1,000 hands, 10,000 hands, 40,000 hands to 6 million hands to the handover
+
+几乎都在11家基金中间转来转去，就是我买来买去在这一天
+Almost all of them are going around among the 11 funds, that is they quick buy and sell on that day
+
+这叫内部交易，操纵市场，可以说它100%会受到SEC调查
+This is called insider trade, market manipulation, it will be 100% investigated by the SEC
+
+SEC不查是不可能的，当你这不正常的波动和股票
+It is impossible for the SEC not to investigate, when you have abnormal fluctuations and stocks
+
+而且十几家基金进进出出操作的时候，第一我怀疑你有内线交易
+And when more than a dozen funds are in and out of operations, first I suspect you have insider trade
+
+第二，我就怀疑你操纵市场，
+Second, I suspect that you manipulate the market
+
+这个现在大家可以看，这是不用(怀疑的) 100%
+Everybody can see it, there is no doubt about that
+
+如果要是内部交易，如果要是操纵市场，
+If it’s insider trading and market manipulation
+
+川普总统就成了被刑事调查，终生将无法再参与政治选举
+that president Trump will be under criminal investigation and will not be able to participate in political elections for life
 
 * * *
 
-校对编辑，发稿：硫酸羟氯喹64
+Date:10/26/2021
+原视频标题: 川普与SPAC的交易存在三大风险
+There are three major risks in Trump’s transaction with SPAC
+原视频日期：2021/10/24
+原视频链接:[https://twitter.com/se1y7cblljselva/status/1452954064761671684?s=24](https://twitter.com/se1y7cblljselva/status/1452954064761671684?s=24)
+任务编号：KC198( 2675)
+视频时间段 : 0:00-1:16
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[原文链接：](https://calgary.ctvnews.ca/4-alberta-doctors-file-lawsuit-against-ahs-over-vaccine-requirement-1.5637496)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-
+ 
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 

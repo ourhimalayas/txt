@@ -2,32 +2,23 @@
 ---
 
 
-## 澳大利亚漫画家因反疫苗被审查
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1621535/)
+## 因房地产危机中共国经济即将崩塌
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1621613/)
 
-**撰稿：日本东京方舟农场 子辰**
+原文采编：青青   编译撰稿：文所未闻
 
-澳大利亚漫画家迈克尔·勒尼格 (Michael Leunig) 因为创作了一部抵制强制性 Covid 疫苗与天安门广场争取民主进行比较的漫画而遭到审查。
-
-该漫画将澳大利亚的疫苗任务与天安门广场大屠杀进行了比较。其中描绘了一个典型的大鼻子人物，面对一辆坦克的轮廓，用注射器代替炮塔。漫画简洁明了，又寓意深刻。强烈的对比效果表达了人民面对强权的无助，同时又极具讽刺意味。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Australian-Political-Artist.jpg)图片来源：https://www.thegatewaypundit.com/2021/10/aussie-cartoonist-fired-comparing-australias-covid-19-mandates-tiananmen-square-massacre/
-
-漫画发出后，他在《时代报》(The Age) 上的主要位置被遭砍杀和审查，同时在墨尔本出版物一版本中提供社论页面卡通的工作被遭解雇。
-
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/aa-edited.jpg)图片来源：NYT
 
 
+据《纽约时报》10月25日报道，中共当局长期制造的巨大房地产经济泡沫，必将会导致一场摧毁中共国经济以及影响全球贸易的广泛金融危机。
 
-> [Aussie Cartoonist Fired After Comparing Australia’s COVID-19 Mandates to the Tiananmen Square massacre](https://www.thegatewaypundit.com/2021/10/aussie-cartoonist-fired-comparing-australias-covid-19-mandates-tiananmen-square-massacre/)
-
-
+该报道指出，造成中共国经济崩溃的主要因素包括：人口数量优势的消失以及高储蓄率导致的过度投资等。其中，占中共国经济比重极大的房地产行业，由于其投资现已远超美国在2000年房地产危机顶峰时期的水平，因此，房地产商的巨额债务问题将引发中共国严重的经济灾难。
 
 * * *
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://cn.nytimes.com/opinion/20211025/china-bubble-economy/?utm_source=top10-in-article&amp;utm_medium=articlepage&amp;utm_campaign=web)
 
  
 
