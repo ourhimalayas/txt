@@ -2,30 +2,28 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月27日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1621639/)
+## 西方外交官称俄可以成为“绿色”融资中心
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1621746/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-413.png)
+俄罗斯莫斯科喀秋莎农场 星河
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-29.png)
-文章仅代表作者本人观点，与Gnews无关
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/U-3.jpg)rawi.ru
+美东时间10月27日报道，得益于气候方面的合作，德国和法国大使认为，30年后，俄罗斯可能通过北溪-2号管道成为氢气供应国，成为世界主要的旅游中心和“绿色”融资中心。
 
-视频参看：2021.10.27早GTV新闻访谈
+德国驻俄大使格扎∙安德烈亚斯∙冯盖尔和法国驻俄罗斯大使皮埃尔∙列维确信，如果俄罗斯认识到气候变化的挑战，抓住机遇，并与其在欧洲和其他地区的伙伴一起作出大胆的政治决定，那么俄罗斯不仅有可能成为可持续能源的主要供应商，而且还有可能成为技术解决方案和科技成就的主要供应商。
 
-[https://gtv.org/broadcast/watch/61794596eadeb11f5e7b070b](https://gtv.org/broadcast/watch/61794596eadeb11f5e7b070b)
+大使们表示，如果俄罗斯抓住合作机会，在30年内，由于其令人印象深刻的原始自然条件和气候多样性，俄罗斯可以成为世界各地游客的主要旅游目的地，乌里扬诺夫斯克和阿斯特拉罕地区可以成为可再生能源的枢纽，库兹巴斯可以从煤炭开采产区转变为科学和绿色工业区，北溪-2号可以为欧洲带来绿色氢，而莫斯科可以成为绿色融资的优秀平台。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+各外交使团团长指出，这样一个未来的基础已经奠定，而欧洲和世界其他地区也正在进行经济体系的转型。外交官们称弗拉基米尔∙普京总统在俄罗斯能源周期间的声明很重要，即俄罗斯将不迟于2060年实现碳中和。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+《联合国气候变化框架公约》第26届缔约方会议(COP26)将于10月31日至11月12日在苏格兰的格拉斯哥(Glasgow)举行。根据联合国的规定，举行这一活动是为了就气候变化问题建立建设性的对话。据联合国网站报道，该会议还将编写一份“关于需要制定综合性粮食政策来应对气候紧急状况的高级别宣言”。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+普京总统将通过视频连接在峰会上发言。俄罗斯驻英国代表团将由副总理阿列克谢∙奥维尔丘克领导。
+
+参考链接：
+
+[https://www.rbc.ru/politics/27/10/2021/6177e9de9a79471fd9d0cda2?from=from\_main\_1](https://www.rbc.ru/politics/27/10/2021/6177e9de9a79471fd9d0cda2?from=from_main_1)
 
  
 

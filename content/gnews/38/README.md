@@ -2,31 +2,37 @@
 ---
 
 
-## 退休四星上将希望美国能做出保护台湾的承诺
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1621065/)
+## 澳大利亚社论漫画家因创作反强制疫苗漫画被解雇
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1621067/)
 
-作者：日本方舟农场 Andy5
+作者：纽约香草山福音部 –lilian89
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-10月26日，美国退休的四星上将杰克-肯尼在接受福克斯新闻的采访时表示，他衷心希望美国能履行保护台湾的承诺。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1027-AM-（1-3、5-8、10）视频备用.001.jpeg)
-杰克提及，美国目前与台湾的关系仍处于战略模糊阶段，但拜登总统毫无疑问地支持台湾，愿意帮助台湾建设军队并提供武器装备及物资，且他多次承诺会保护台湾。为此，杰克希望拜登总统可以落实这一承诺。
+近日，据消息称，澳大利亚社论漫画家——迈克·李优尼格因一副漫画被解雇。
 
-同时，美国也一直努力为台湾促成同盟关系，激励日本做出对台的保护承诺，并增强台湾与欧盟的纽带。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-27-at-9.46.24-PM.png)
 
-杰克谈到，中共，尤其是习近平近期的对台行为极具侵略性。此前，中共还多次做出侵犯人权的行为，包括对香港民主的摧毁和对新疆维吾尔少数民族的暴行。最为重要的是，中共此次在世界范围内释放新冠病毒，造成全球性的灾难。这些都是让西方国家对中共持续提高警戒的要素。
+据悉，迈克创作了一幅关于抵制新冠疫苗强制接种的漫画，当中，他将抵抗政府强制性新冠疫苗的行为比作当年天安门广场上的民主斗争。
 
-此前，郭先生也在大直播中爆料，美国专业人士明确答复，一旦中共发动对台攻击，美国，协同日本一定会出手助台。
+但是，《时代报》以包含反疫苗情绪为由，拒绝刊登该副漫画，并因此解雇了迈克。
+
+而今，在西方国家，言论、新闻自由被打压的境况已经逐步显现。这也完全验证了郭先生早在2017年爆料革命之初的警告：主流媒体对言论管制的操控也一定会发生在西方国家每个人的身上，没人能置身度外。
 (本文仅代表作者观点)
 
-参考链接：[2021/10/26退休四星將軍Jack Keane接受Maria採訪摘要](https://gettr.com/post/pf7gb50f52)
+参考链接：
+
+1. [Cartoonist Michael Leunig axed from prime spot at The Age over anti-Dan Andrews image](https://www.news.com.au/finance/business/media/cartoonist-michael-leunig-axed-from-prime-spot-at-the-age-over-offensive-vaccine-image/news-story/3b6b99a4101ebe53df58cb21827df0d4)
+2. [High-profile cartoonist Leunig is AXED over cartoon comparing Dan Andrews’ vaccine mandates to the Tiananmen Square massacre](https://www.dailymail.co.uk/news/article-10126303/Cartoonist-Leunig-AXED-cartoon-comparing-Dan-Andrews-vaccine-mandates-Tiananmen-Square.html)
+3. [The Australian cartoonist Leunig got fired for making this cartoon.](https://twitter.com/HiggensWillem/status/1452953551358119939)
+4. [“My Job Is To Challenge The Status Quo!” Michael Leunig Kicks Off After The Age Rejects Anti-Vax Content](https://www.bandt.com.au/my-job-is-to-challenge-the-status-quo-michael-leunig-kicks-off-the-age-over-anti-vax-cartoon/)
+
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-编辑/总编：Irene木木 
+编辑/总编：Ivy001
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**

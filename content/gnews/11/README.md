@@ -2,32 +2,25 @@
 ---
 
 
-## 澳大利亚漫画家因反疫苗被审查
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1621535/)
+## 萨斯喀彻温省长承诺不会实施更多疫情控制措施
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1621657/)
 
-**撰稿：日本东京方舟农场 子辰**
+采编：青青        编译撰稿：苦尽甜来 (文来）
 
-澳大利亚漫画家迈克尔·勒尼格 (Michael Leunig) 因为创作了一部抵制强制性 Covid 疫苗与天安门广场争取民主进行比较的漫画而遭到审查。
-
-该漫画将澳大利亚的疫苗任务与天安门广场大屠杀进行了比较。其中描绘了一个典型的大鼻子人物，面对一辆坦克的轮廓，用注射器代替炮塔。漫画简洁明了，又寓意深刻。强烈的对比效果表达了人民面对强权的无助，同时又极具讽刺意味。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Australian-Political-Artist.jpg)图片来源：https://www.thegatewaypundit.com/2021/10/aussie-cartoonist-fired-comparing-australias-covid-19-mandates-tiananmen-square-massacre/
-
-漫画发出后，他在《时代报》(The Age) 上的主要位置被遭砍杀和审查，同时在墨尔本出版物一版本中提供社论页面卡通的工作被遭解雇。
-
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/aaa.jpg)图片来源：CTV
 
 
+据加拿大【CTV新闻】10月25日报道，萨斯喀彻温省省长斯科特于当天新闻发布会宣称，由于涉及到公民自由及人权问题，当局目前暂不采取额外的“新冠病毒”疫情控制措施。
 
-> [Aussie Cartoonist Fired After Comparing Australia’s COVID-19 Mandates to the Tiananmen Square massacre](https://www.thegatewaypundit.com/2021/10/aussie-cartoonist-fired-comparing-australias-covid-19-mandates-tiananmen-square-massacre/)
+该省长对此表示，由于疫情无处不在，因此当局不会实施更多的，可能导致企业倒闭的封锁或限制措施。并希望将政府工作重心逐渐转移到关注和发展该省的经济中来。
 
-
+此外，该省卫生局本月的数据显示，其居民的人均重症监护病房人数超过加拿大其他任何省份。对此，该省首席医疗卫生官坦言，接种“新冠病毒疫苗”将不足以阻止萨斯喀彻温省第四波疫情的蔓延。
 
 * * *
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://regina.ctvnews.ca/saskatchewan-won-t-impose-more-covid-19-measures-premier-scott-moe-1.5637734)
 
  
 

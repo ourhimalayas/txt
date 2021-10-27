@@ -2,36 +2,28 @@
 ---
 
 
-## 中共要求许家印以个人财富偿付恒大债务
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1621453/)
+## 日本或将推进5至11岁的儿童接种新冠疫苗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1621580/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月26日，据消息人士透露，中共当局要求许家印拿出个人财富，以应对越来越严重的债务危机。
+撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-15.png)
+[图片来源](https://news.yahoo.co.jp/articles/51b92a618aebfef41007d05c58d18496246b1238/images/000)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-12.jpeg)
+共同网10月27日报道，美国辉瑞公司正在与日本政府协商，推进5至11岁的儿童接种新冠疫苗。厚生劳动省表示，如果收到申请，将迅速进行审核。美国已经先行一步提出申请，这也将影响日本的审查结果。
 
-据悉，恒大曾于9月下旬未能兑付一笔到期的美元外债利息，随后，中共要求许家印以私人财产偿付。在一个月的宽限期内，恒大筹集了八千三百五十万美金，全额偿还了那笔美元利息，避免了实质违约。然而，恒大另一笔美元外债利息的30天宽限期将于10月29日本周五到期；至2022年，还将有一笔7.4亿美元的在岸和离岸债券到期。
+目前关于辉瑞疫苗的情况，厚生劳动省表示，根据“预防接种法”，12岁以上的人都是”临时接种”对象，大众（除孕妇）有努力的义务去免费接种疫苗。然而，该疫苗对11岁以下的人，是否安全有效，目前尚不清楚，所以这些人不在接种对象范围内。
 
-数据显示，许家印的净资产已经从2017年高峰时期的四百二十亿美元，缩减至如今的大约78亿美元。截至今年6月，恒大的总负债已达3000多亿美元。
+信息来源：
 
-自恒大债务危机爆发以来，中共政府虽严密监控着恒大的银行账户，但其目的是为了确保恒大的现金将被用于未完成的住房项目，而不是用于赔偿支付债权人，包括各种理财产品的受害者。
+[5～11歳接種、日本に申請へ　ファイザーが政府と協議](https://news.yahoo.co.jp/articles/51b92a618aebfef41007d05c58d18496246b1238)
 
-参考链接：[Beijing Tells Evergrande’s Billionaire Founder To Repay The Insolvent Company’s Debts](https://www.zerohedge.com/markets/beijing-tells-evergrandes-billionaire-founder-repay-insolvent-companys-debts)
+免责声明：文章仅代表作者本人观点，与GNEWS无关
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)
 
-总编：山本不惑
-编辑：山本不惑
-校正/发稿：谐趣园
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

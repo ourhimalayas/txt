@@ -2,28 +2,29 @@
 ---
 
 
-## 日本或将推进5至11岁的儿童接种新冠疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1621580/)
+## 有声|郭文贵先生对新中国联邦人强调“爱”的重要性
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1621707/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-15.png)
-[图片来源](https://news.yahoo.co.jp/articles/51b92a618aebfef41007d05c58d18496246b1238/images/000)
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月24日文贵大直播中，郭文贵先生说：人类生存的价值大部份来自家庭，人最重要的关系就是家庭关系，而家庭中父母就是重中之重。郭先生曾经要求盘古员工必须孝敬父母，做不到就别来上班。一个父母都不尊重的人，说什么郭先生都不会尊重他。
 
-共同网10月27日报道，美国辉瑞公司正在与日本政府协商，推进5至11岁的儿童接种新冠疫苗。厚生劳动省表示，如果收到申请，将迅速进行审核。美国已经先行一步提出申请，这也将影响日本的审查结果。
+共产党这个魔鬼，毁了家庭，以爹亲娘亲不如党亲来洗脑人民，让人不孝敬父母。造成了太子爷般的儿子、孙子打父母，打爷爷奶奶；媳妇打公公等丧绝人伦之事。这种恶是郭先生决心灭共的最早起因。
 
-目前关于辉瑞疫苗的情况，厚生劳动省表示，根据“预防接种法”，12岁以上的人都是”临时接种”对象，大众（除孕妇）有努力的义务去免费接种疫苗。然而，该疫苗对11岁以下的人，是否安全有效，目前尚不清楚，所以这些人不在接种对象范围内。
+郭先生强调：新中国联邦人，不管你有什么信仰，不把父母和家人放在第一位，不把爱和爱人放在第一位，你永远不会是新中国联邦人。家和万事兴。“和”来源于“爱”，没有“爱”就没有“和”；没有“和”，“家”就站立不住；没有“家”，就没有“国”。因此，“家”是“国”的根本。而“爱”是“家”的根本，因此，没有“爱”就不配做新中国联邦人。
 
-信息来源：
+文字版原文：[郭文贵先生对新中国联邦人强调“爱”的重要性](https://gnews.org/zh-hans/1618184/)
 
-[5～11歳接種、日本に申請へ　ファイザーが政府と協議](https://news.yahoo.co.jp/articles/51b92a618aebfef41007d05c58d18496246b1238)
-
-免责声明：文章仅代表作者本人观点，与GNEWS无关
-
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)
-
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

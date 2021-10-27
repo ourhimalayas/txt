@@ -2,39 +2,71 @@
 ---
 
 
-## 拜登签署命令实施新国际旅行疫苗规定
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1621066/)
+## 49岁的母亲因注射Covid疫苗导致血栓和中风而不得不坐轮椅
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1621192/)
 
-作者：澳喜农场 在远方
+**编译：七叶之芒**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip77.png)
+*作为凯里-赫特手术的一部分，她被切除了部分头骨，并遭受了 “巨大的中风”，导致她身体的左侧瘫痪（图片：David Poucher）。*
 
+一位罗瑟汉姆的母亲因注射Covid疫苗，而导致脑部血栓和中风，她呼吁政府提供更好的支持。
 
+Kiveton的凯里-赫特（Kerry Hurt），49岁，在4月接种阿斯利康疫苗一周后，脑部形成血块，不得不在谢菲尔德的Hallamshire医院接受救治。
 
-10月25日，拜登签署了一项新的国际旅行疫苗命令，当中表示，从11月8日起，取消对中共国、印度和欧洲大部分地区的严格旅行限制。但是，新规定中要求，外国的航空旅客需要提供所谓“官方来源”的新冠疫苗接种文件，且最后一剂疫苗的接种时间至少比旅行出发日期早两周。另外，国际航空旅客还必须在起飞前72小时内提供新冠病毒检测阴性的证明。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1027-AM-（1-3、5-8、10）视频备用.004.jpeg)
-虽然全球旅行禁令看似在逐渐解除，但与之并行的是各国政府愈演愈烈的强制新冠疫苗接种政策。而今，这一政策已经影响到民众生活的各个角落。
+作为手术的一部分，她的部分头骨被切除，并遭受了“大规模中风”，导致她的身体左侧瘫痪。
 
-从另一方面看，美国的航空新规一方面要求旅客接种新冠疫苗，但另一方面仍需他们提供病毒检测阴性证明，这本身就是疫苗不具有效防护作用的体现。
-(本文仅代表作者观点)
+一周后，她的脑部积水，需要进行另一次挽救生命的手术，在她的头骨中插入一个引流管，这又需要在重症监护室待上三个星期。
 
-参考链接：[美国总统拜登签署命令 实施新的国际旅行疫苗规定并取消严格限制](https://cn.reuters.com/article/biden-travel-rules-1025-mon-idCNKBS2HG034)
+经过近五个月的住院治疗，赫特夫人现在已经回到家中，楼下的区域已经被改造，以便更好地支持她目前的状况。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+医生将并发症归咎于疫苗，赫特夫人的丈夫帕特里克在住院的几个月里一直守在妻子的床边，他强调，他们一家并不是“反疫苗贩子”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip78.png)
+*凯里-赫特与她的儿子卡勒姆（中）和乔丹（图片：David Poucher）*
+他呼吁政府为像他这样的家庭提供更好的支持，但他说：“数以百万计的人得到了帮助，但对于那些遭受痛苦的人来说，他们肯定应该得到他们需要的支持，因为毕竟我们只是为了所有人的利益，而做了我们被要求做的事情。我们是一对健康的夫妇，周末会去走六英里的路，我们没有想到会发生这样的事情。”
 
-编辑/总编：Irene木木
-校正/发稿：我不在这里
+赫特先生补充说，他已经和律师谈过，如何就所发生的事情要求支持或赔偿，但他们不愿意接手他们的案件。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+他说：“政府对很多疫苗的副作用都保密，这正是我们所恼火的。我确实认为它是匆忙通过的。我们不知道血栓，直到后来才知道，但他们没有说他们将为受血栓影响的人做什么。我们知道它救了很多人，但对我们来说它出了问题，他们需要支持我们。”
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+两个孩子的母亲赫特夫人补充说：“我们认为我们接种疫苗是正确的，但显然这一切对我来说都有点变味了。”
 
+赫特夫人一直无法回到她在桑坦德银行的工作岗位上，在家里的治疗花费了4000多英镑，这就是为什么她的兄弟大卫-普彻，建立了一个GoFundMe页面来帮助她和她的丈夫。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip79.png)
+*49岁的凯里-赫特由于她注射的Covid疫苗的不良反应而在医院度过了近五个月的时间（图片：David Poucher）。*
+
+到目前为止，该GoFundMe页面，已经筹集了超过8000英镑，这些钱将用于购买专业设备，以及支付她所需要的持续物理治疗。
+
+赫特夫人还计划进行另一次手术，在那里将插入一块金属板，以代替她头骨的缺失部分。
+
+她说，人们的支持是“惊人的”，并补充说，人们一直在通过她的信箱寄钱来帮忙。
+
+赫特夫人说：“人们是如此善良，如此善良和支持。我们已经被它淹没了。家庭的支持一直是令人难以置信的。没有他们，我们不可能做到这一点。”
+
+Poucher先生说，他的姐姐和姐夫在斗争中的态度是“令人惊讶的”。
+
+他说：“她现在只能坐在轮椅上，每天接受理疗，试图帮助她的左侧恢复一些运动。作为一个家庭，我们很坚强，但凯里（Kerry Hurt）如何处理这样一个毁灭性的情况，实在令人惊讶。她没有抱怨，只是继续生活。”
+
+**简评：**
+
+**没有轰轰烈烈，没有战火纷飞。这就是一个平凡人在接种疫苗之后的悲惨故事。中共发起的超限战，和黑暗势力的疫苗阴谋，就这样悄无声息的毁掉了一个普通家庭。然而，对于疫苗的副作用，却鲜被主流媒体提起。**
+
+**真正的疫苗灾难还未开始，像Kerry Hurt这样的遭遇，只是受疫苗危害的千千万万家庭中的一例。在人们如此相信政府，如此相信科学的时候，政府和科学却做出了这种天理难容的事情。**
+
+**一幕幕惨剧已经证明了，疫苗是有“毒”的！希望全世界的人们快些醒来，拒绝接种疫苗。**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**文章来源**：[examinerlive.co.uk] [Mum, 49, left in a wheelchair after Covid vaccine caused blood clot and stroke](https://www.examinerlive.co.uk/news/local-news/mum-43-left-wheelchair-after-21940979)
+
+* * *
+
+***审核：Aries的星
+校对：信心满满
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
 
  
 

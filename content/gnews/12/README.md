@@ -2,34 +2,72 @@
 ---
 
 
-## 关于联合国第2758号决议的思考
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1621516/)
+## 川普与SPAC的交易存在三大风险
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1621653/)
 
-作者：波士顿五月花  跟随战神
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20211027.jpg)图片来自维基百科
-2021年10月25日，习近平就恢复联合国席位50周年发表了讲话。回顾了中共的“伟大、光荣、正确”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2675.png)
+[https://gtv.org/video/id=6179367d247c5a3f9090a95e](https://gtv.org/video/id=6179367d247c5a3f9090a95e)
 
-正是在1971年10月25日，第二十六届联合国大会上通过了第2758号决议。50年后的今天，让我们在回味一下2758号决议。决议的标题是“恢复中华人民共和国在联合国的合法权利”。
+**郭文贵
+Miles Guo**
 
-注意，关键词是“恢复”。所谓恢复是指原来有，后来因为某种原因失去，现在重新拥有。众所周知，联合国是1945年成立的。1945年的中国不但是联合国成员国，而且是创始国之一和最早在宪章签字的国家。当时在联合国代表中国的是中华民国政府。而中共窃取中国政权的时间是1949年。一个1949年才出生的怪胎，在1945年就有了联合国席位，无论如何在逻辑上是讲不通的。代表中国在联合国行使权利的一直是中华民国。
+我要说到这个，让你们看到这个有多可怕
+I want to talk about this, let you see how terrible this is
 
-从联合国的2758号决议可以看出，国家和政府是不同的概念。政府可以代表国家，但是政府永远不是国家。2758号决议还告诉我们，中国是不同于中共国的。因为中共国成立于1949年，而中国1945年取得联合国席位。中共国从来没有过联合国席位，何来恢复。就连中共自己也承认“中国的联合国席位一直都存在”，但是这个中国不是中共。承认的只是中共政府代表中国在联合国的地位。以前是中华民国代表中国，不久的将来是新中国联邦代表中国。
+川普总统这个SPAC的交易，它的风险在哪里
+What is the risk of President Trump’s transaction with SPAC?
 
-自中共在中国窃取政权以来，不但在国内奴役中国人民，而且把魔爪伸向了世界。不断地输出革命、输出暴力，制造混乱、制造贫穷。并不断给国际社会施加压力，打击中华民国、挤压其生存空间。一直在为取代中华民国不择手段。
+三件事儿
+Three things
 
-网络上有一张照片，是乔冠华仰天狂笑的照片。乔冠华是中共参加联合国大会的代表，当听到2758号决议后，抑制不住内心的兴奋，仰天长笑。不禁让人联想到“大话西游-降魔篇”中的镜头。魔头孙悟空骗唐三藏拔掉了莲花，那朵镇住魔头的莲花，再也没有谁能阻止他跳出五行山。孙悟空一阵狂笑，牙缝里蹦出几个字：“终于上当了”！彼时的乔冠华就是孙悟空的心态，国际社会终于上当了！乔冠华和中共的兴奋可想而知。
+第一个，这里绝对不能有内幕交易，只要有内幕交易就是刑事罪
+First, there is absolutely no insider trade here, as long as there is insider trade, that will be a criminal charge
 
-不得不说，2758号决议给了中共一个可以危害世界的舞台。为今之计，只有世界正义力量团结起来，共同遏制和消灭中共，弥补当初的错误。
+不用任何怀疑的，大家可以看到，从1000手，1万手，4万手到600万手到交接
+Without any doubt, you can see that from 1,000 hands, 10,000 hands, 40,000 hands to 6 million hands to the handover
 
-（文章仅代表作者本人观点，与GNews 无关）
+几乎都在11家基金中间转来转去，就是我买来买去在这一天
+Almost all of them are going around among the 11 funds, that is they quick buy and sell on that day
+
+这叫内部交易，操纵市场，可以说它100%会受到SEC调查
+This is called insider trade, market manipulation, it will be 100% investigated by the SEC
+
+SEC不查是不可能的，当你这不正常的波动和股票
+It is impossible for the SEC not to investigate, when you have abnormal fluctuations and stocks
+
+而且十几家基金进进出出操作的时候，第一我怀疑你有内线交易
+And when more than a dozen funds are in and out of operations, first I suspect you have insider trade
+
+第二，我就怀疑你操纵市场，
+Second, I suspect that you manipulate the market
+
+这个现在大家可以看，这是不用(怀疑的) 100%
+Everybody can see it, there is no doubt about that
+
+如果要是内部交易，如果要是操纵市场，
+If it’s insider trading and market manipulation
+
+川普总统就成了被刑事调查，终生将无法再参与政治选举
+that president Trump will be under criminal investigation and will not be able to participate in political elections for life
 
 * * *
 
-*编辑：文合*
+Date:10/26/2021
+原视频标题: 川普与SPAC的交易存在三大风险
+There are three major risks in Trump’s transaction with SPAC
+原视频日期：2021/10/24
+原视频链接:[https://twitter.com/se1y7cblljselva/status/1452954064761671684?s=24](https://twitter.com/se1y7cblljselva/status/1452954064761671684?s=24)
+任务编号：KC198( 2675)
+视频时间段 : 0:00-1:16
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-*封面：霹雳鼠年*
-
-*发布：吐纳*
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
