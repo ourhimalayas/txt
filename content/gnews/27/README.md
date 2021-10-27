@@ -2,29 +2,50 @@
 ---
 
 
-## 宾夕法尼亚州考虑制定法案 允许居民就审查制度起诉大型科技公司
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1620002/)
+## 六中全会前夕，中共一再强调政治安全，忠诚与服从
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1620061/)
 
-#### 撰稿：Grace
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-71.jpg)图片来源：网络截图
-据大纪元10月26日报道，宾夕法尼亚州的两名参议员正在寻求通过一项法案，允许当地居民起诉那些基于政治或宗教观点审查其账号的内容的社交媒体公司。
+作者：日本方舟农场 – Andy5
 
-参议员道格·马斯特里亚诺Doug Mastriano和斯科特·哈钦森Scott Hutchinson提出了名为《社交媒体责任法案》（Social Media Accountability Act）的州参议院604号法案（state Senate Bill 604），该法案将允许个人起诉Facebook，YouTube和Twitter等大科技社交媒体公司, 对其账号封锁或审查的行为。
 
-该法案的当前版本表明，个人可获得高达75,000美元的赔偿。该法案还要求社交媒体供应商在30天内，明确说明任何封锁或禁用账户的原因，并提供恢复账号的行动方案。
 
-马斯特里亚诺在一份声明中说: “我们的言论自由权利，在第一修正案中得到了明确的体现。这种权利不应该止于社交媒体的公共领域。社交媒体公司正在审查那些说出不同的宗教和政治观点的用户，因为他们触犯了有敏感情绪的大科技寡头。我们的法案将允许宾夕法尼亚州的普通公民起诉，可以要求赔偿高达75,000美元的损失，使这些审查者承担责任。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
 
-哈钦森也发表声明说：“近年来，我们看到了许多对社交媒体用户进行不公平、不一致且往往是片面审查的案例。” “我们立法的目标是确保所有社交媒体用户无论他们的政治和宗教信仰如何，都得到公平对待。”
 
-据报道，该法案已提交给消费者保护和专业许可委员会（Consumer Protection & Professional Licensure Committee），目前正在等待投票。
 
-在今年的5 月，佛罗里达州州长罗恩·德桑蒂斯 Ron DeSantis签署了一项法案，允许公司就审查问题起诉社交媒体公司。
+中共在给20大定调的六中全会前夕，反复强调政治安全，忠诚与服从，凸显出中共对所谓政治安全的不安，印证了郭文贵先生提到的，20大，就是习要给自己继续合法当中共领导人的一个抓手。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture111-2.jpg)
+中共今年在其国庆节前后，分别处理了孙力军和傅振华。到目前为止近四周的时间内，政法委、公安部以及各级党委，都不断传出紧抓政治安全，清理流毒影响，打造忠诚铁军的声音。
 
-佛罗里达州的法案，即参议院法案 7072，重点关注于有可能因社交媒体审查而失去业务的组织。
+约5天前，此声音波及范围已扩展到了教育部。教育部官员称，要将语文教材编写者的政治素质放在第一位，对人员严格政治审核。有墙内网友留言评论，“语文绝对不是汉语”，暗示语文课，俨然成了中共洗脑宣传的工具之一。
 
-**新闻来源：**[**Pennsylvania Considers Bill That Would Allow Residents to Sue Big Tech Over Censorship**](https://www.theepochtimes.com/pennsylvania-considers-bill-that-would-allow-residents-to-sue-big-tech-over-censorship_4067583.html?welcomeuser=1)
+参考链接：
+1. [六中全会前夕，中共一再强调政治安全，忠诚与服从](https://www.163.com/dy/article/GN5PH99505268MTU.html)
+2. [六中全会前夕，中共一再强调政治安全，忠诚与服从](https://new.qq.com/omn/20211025/20211025A010JW00.html)
+3. [六中全会前夕，中共一再强调政治安全，忠诚与服从](https://news.ifeng.com/c/8AZTe09gtQW)
+4. [六中全会前夕，中共一再强调政治安全，忠诚与服从](http://www.gov.cn/xinwen/2021-10/18/content_5643338.htm)
+
+（本文仅代表作者观点）
+
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：Jack Li文阳
+编辑：Kathy文艺
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
  
 

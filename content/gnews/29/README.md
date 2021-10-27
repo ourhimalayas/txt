@@ -2,57 +2,61 @@
 ---
 
 
-## G时评：我可以变老变丑吗？
-` GISELLE` [轉載自GNews](https://gnews.org/zh-hans/1619987/)
+## 格芯公司首次公开发行5500万普通股
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1620059/)
 
-**作者/图片设计：Giselle**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/304.png)
-1
+作者：波士顿五月花农场 – 葛朗台太太
 
-我爱你，所以你不能变老、变丑……
 
-我爱你，但我受不了你变老、变丑时的样子……
 
-这是很多人的逻辑。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-2
 
-我可以变老、变丑吗？
 
-当然。
+10月19日 ，格芯公司宣布，将首次公开发行5500万股的普通股，其中，有3千3百万股由格芯公司提供，另外2200万股由格芯现股东穆巴达拉投资公司提供。消息称，股票首发价格预计为每股42至47美金，预计总共将募集23亿至25亿美元。
 
-你是人，是人就会衰老，没有人躲得过去。
+![](https://cdn.mos.cms.futurecdn.net/UQZKfuqADWAD3h7sEVezMF-320-80.png)图片来源：GlobalFoundries
 
-3
+依据最高发行价和流通股推算，格芯的估值将达250亿美元。据悉，格芯申请在纳斯达克上市，股票代码为“GFS”。至于穆巴达拉投资公司，在出售2200万股票后，其仍将持有格芯89.4%的股份和投票权。
 
-就像被李敖祸害过的大明星胡因梦：
+由BlackRock, Inc.的子公司管理的某些基金和账户、由Columbia Management Investment Advisers LLC与Fidelity Management & Research Company LLC 关联的某些实体、Koch Strategic Platforms LLC的某些附属公司管理的某些基金和账户，以及Qualcomm Incorporated（统称为“基石投资者”）已表示有兴趣在本次发行中以与首次公开发行价格相等的每股价格购买总价约为10.5亿美元的普通股。
 
-他心目中的女神，应该像神仙一样，长生不老，不食人间烟火，她怎么可以便秘呢？她怎么可以在便秘的时候脸憋得通红呢？
+（本文仅代表作者观点）
 
-所以李敖因为胡因梦便秘而离婚了，原因是“她蹲在马桶上，因为便秘脸憋得通红，那个场景实在是太不堪了”！
+参考阅读：
 
-有趣的是，李敖在任何场合从来都不会提起自己也会便秘，甚至腹泻……那种蹲在马桶上、五官狰狞扭曲的场景，一定很“销魂”。
+1. [Form F-1 REGISTRATION STATEMENT UNDER THE SECURITIES ACT OF 1933](https://www.sec.gov/Archives/edgar/data/0001709048/000119312521301511/d192411df1a.htm)
+2. [GlobalFoundries Announces Launch of Initial Public Offering](https://gf.com/press-release/globalfoundries-announces-launch-initial-public-offering)
+3. [Mubadala to Keep Control Over GlobalFoundries After IPO](https://www.tomshardware.com/news/mubadala-to-keep-control-over-globalfoundries-after-ipo)
 
-4
 
-女神也食五谷杂粮，怎么不可以便秘？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
 
-她不但会便秘，还会生病、长皱纹、打嗝、放屁、变老变丑……
+***编辑/校对/发稿：Irene木木***
 
-你与她结婚之前，就应该具备这些常识，离婚之后找这种借口并且公而告之，只能说明你无知龌蹉！
+**更多资讯，更多关注**
 
-所以，这位曾经令林青霞都稍逊一筹的女神，就这样被自己深爱过的男人伤害，演艺事业全毁，最后几近出家。
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-5
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-好莱坞英俊小生李昂纳多发福了，很多人也受不了。李昂纳多也是人，他怎么就不能发福呢？他想不想发福，那是他的权利，就算曾经“帅得惊动党中央”，他也有权利发福。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-假如你真的爱他，你会更在意他是不是开心、快乐、幸福，而不会在意他是否变老、变丑。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-因为人人都会变老、变丑，这是自然规律。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-6
 
-或许你可以用金钱购买别人的青春，用名利引诱年轻美貌的少女，你永远不用和谁保持长久关系，因为青春可以用金钱来交易……但那绝对不是“爱”。
 
-（文章内容仅代表作者个人观点）
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+ 
+
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+
+- [ROL Foundation](https://rolfoundation.org/)
+- [ROL Society](https://rolsociety.org/)
+- [Terms of use](https://gnews.org/terms-of-use-3/)
+- [Privacy Policy](https://gnews.org/privacy-policy/)
