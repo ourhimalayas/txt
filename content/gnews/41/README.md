@@ -2,55 +2,46 @@
 ---
 
 
-## 前国务卿蓬佩奥在媒体发声 拜登总统必须信守承诺，保护台湾
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1620252/)
+## 疫苗加强剂在澳大利亚获得批准
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1620337/)
 
-作者：香草山农场教育部-晓仙女
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/COVID-19-vaccine-booster_iStock-1334441038_2021-08_Hero_1336x614.jpg)圖片來源：ncoa.org
 
 
+#### 编译：小红帽
 
-10月24日，前国务卿迈克尔·蓬佩奥告诉《猫圆桌会议》主持人约翰·卡特西马提迪斯，“我看到拜登总统说，我们致力于保卫台湾。我希望他说出这个想法的时候，他真的是这么想的。现在人们期望他能兑现这一承诺。”
+在澳大利亚医疗监管机构开绿灯后，预计老年护理居民将成为第一批接种中共病毒（COVID-19）疫苗加强剂的人。
 
-蓬佩奥强调，拜登作为美国总统，不应该说一套做一套，不应该在不清楚自己说的是什么的情况下随意做出评论。
+周三，治疗用品管理局（TGA）临时批准18岁及以上的澳大利亚人接种辉瑞的疫苗加强剂。
 
-蓬佩奥还指出：中共在过去10天中测试了高超音速导弹系统，习近平则表示，要首先收复台湾，然后在该地区进行建设，之后就可以胁迫整个世界。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-156.jpg)
-拜登总统在10月20日出席一个媒体活动时表示，如果台湾受到中共攻击，美国将会兑现承诺保卫台湾。但随后白宫发出声明，称拜登总统的讲话并不是美国对台政策改变的信号。这意味着美国对台湾仍会保持一贯的“模糊政策”。
+总理斯科特·莫里森(Scott Morrison)表示，政府将在下周内敲定扩大推广的计划。
 
-蓬佩奥对拜登信守承诺的呼吁，一方面表达了对拜登政府行事风格的批评，另一方面，更表达了对台湾形势的严重关切。
+“我们将从老年护理机构开始推广，就像我们在疫苗计划中所做的那样，”他告诉九号台。
 
-参考链接：
-1. [@mikepompeo 盖特: President Biden said that we have a commitment to defend Taiwan. There’s an expectation now that he will follow through on that commitment, and I hope the Biden Administration will.](https://gettr.com/post/pf73ukee85)
-2. [@Pandarolling 盖特：蓬佩奥能抓住现在病毒真相的核心点，相信他在美国大选中将是强有力的竞选人之一，人类必须面对投毒的ccp否则病毒和疫苗无休止的杀死你！](https://gettr.com/post/pf5qr3db8f)
+免疫系统严重受损的人已经有资格接种第三针，但最新的建议为普通人群再接种第三针铺平了道路。
 
-（本文仅代表作者观点）
+治疗用品管理局建议一个人接种第二剂后至少六个月给予接种加强剂。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+澳大利亚免疫技术咨询小组将很快向政府提供有关加强剂的进一步建议。
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+著名的流行病学家玛丽-路易斯·麦克劳斯（Mary-Louise McLaws）表示，事实证明第三针的效果很好。
 
-**更多资讯，更多关注**
+“现在有很好的证据表明，加强剂确实可以增强你的免疫系统，从而提高疫苗的功效，”她告诉九号台。“有很多人将从中受益。”
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+**参考新闻：** [COVID booster shots approved for Australians (thenewdaily.com.au)](https://thenewdaily.com.au/news/coronavirus/2021/10/27/australia-covid-booster/)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+***发布：小红帽***
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

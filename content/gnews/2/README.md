@@ -2,30 +2,25 @@
 ---
 
 
-## 尼日利亚加入亚投行，中共连续3年吸纳非洲国家成员
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1620655/)
+## 樱花灭共诗——登忧（新韵）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1620723/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
+#### 作者：东京樱花团/曲非烟
+![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
+登高随目望，田淖谷绝收。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-35.png)[图片来源](https://www.bbc.com/zhongwen/trad/business/2016/04/160408_hongkong_aiib_president_jin_speech)
+一破家国梦，再增夙夜忧。
 
-北京时间10月27日，亚洲基础设施投资银行(AIIB)第六届理事会批准尼日利亚加入。至此，亚投行成员已达104个，成员国中来自非洲的国家达到11个，意向成员国9个。
+黍禾惊鲁女，肉糜惯王侯。
 
-亚投行表示，目前已批准的非洲成员占非洲大陆国内生产总值的60%以上，代表了非洲46%以上的人口。非洲开发银行的最新估计表明，非洲大陆的基础设施需求每年达1300亿-1700亿美元，融资缺口在690亿—1080亿美元。
+蔓草衰无际，何方到尽头。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-157.jpg)
+(本文只代表作者观点，与GNews网站无关)
 
-值得一提的是，这也是亚投行连续3年新增非洲国家成员。2020年，亚投行第五届理事会批准利比里亚加入亚投行；2019年亚投行第四届理事会通过贝宁、吉布提和卢旺达等3个非洲国家的申请。
-
-伴随“一带一路”战略而生的亚投行，就是中共以国家为名进行政治经济和军事全面扩张渗透以及“蓝金黄”的工具。
-
-信息来源：
-
-[亚投行“朋友圈”好友扩容至104个：非洲国家尼日利亚加入](https://finance.sina.com.cn/tech/2021-10-27/doc-iktzqtyu3823304.shtml)
-
-(文章仅代表作者本人观点，与GNEWS无关)
-
+*插图：东京樱花团/闪闪*
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

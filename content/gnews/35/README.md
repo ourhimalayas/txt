@@ -2,28 +2,47 @@
 ---
 
 
-## 日本60岁妇女接种中共病毒疫苗入厕猝死
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1620314/)
+## 欧洲刑警组织对暗网市场实施重大突击检查
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1620415/)
 
-#### 撰稿：东京樱花团/闻雨
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-34.png)
-10月26日，日本秋田县由利本荘市发布了一则新闻称，一名60多岁的妇女在25日接种了中共病毒疫苗之后，在大规模接种点的厕所里死亡。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-据该市称，一名清洁工在26日上午9:30左右发现了这位死在接种点儿的厕所里的妇女。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/2105-TulaneSoPA-CustomBlogGraphics-KG-B-02.jpg)
 
-据了解，当天的情况如下，这名女士在25日下午两点多，在大规模接种点儿接受了第一针新冠病毒疫苗接种，等待了15分钟后，进行了第二针的预约，然后去了洗手间，26日早上被发现，但她已经去世了。据说她没有潜在疾病。这位女士接种的是Moderna公司生产的疫苗。目前说她的死亡原因与疫苗接种的因果关系尚不清楚。
 
-一个健健康康的人，接种了新冠病毒疫苗之后就这么突然地死了，这个噩耗是不是来得太突然了？现在不正常的死亡是不是太多了？难道还不应该怀疑这新冠病毒疫苗有问题吗？在没有调查清楚新冠病毒疫苗的危害之前，难道不应该紧急叫停吗？
 
-信息来源：
+图片来源：sopa.tulane.edu
 
-[ワクチン接種後に60代女性が死亡　秋田・由利本荘市](https://www.akt.co.jp/news?sel=20211026-00000006-AKT-3)
 
-(文章仅代表作者本人观点，与GNEWS无关)
+#### 编译：小红帽
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+近日，欧盟执法机构欧洲刑警组织对全球两个贩毒和非法产品的暗网市场进行了重大取缔。
+
+在美国、德国、英国、意大利、荷兰、法国、瑞士和保加利亚的“黑暗猎人”行动中，一共逮捕了150嫌疑人，其中包括供应商和买家。
+
+参与行动的警察缴获了超过4100万美元的现金和加密货币、234公斤毒品和45支枪。
+
+“黑暗猎手”行动源于1月份对黑市具有里程碑意义的行动，黑市是当时世界上最大的暗网非法市场，据称由一名34岁的澳大利亚男子经营，他在德国和丹麦边境附近被捕。
+
+许多嫌疑人被欧洲刑警组织视为“高价值目标”。
+
+在行动期间，意大利当局关闭了DeepSea和Berlusconi暗网市场，这两个暗网市场共拥有超过 10万个非法产品清单。四名管理员被捕，并查获了550万美元的加密货币。
+
+欧洲刑警组织的让-菲利普·勒库夫（Jean-Philippe Lecouffe）表示，像今天这样的行动的重点是让在暗网上活动的犯罪分子引起注意。执法界有办法和全球伙伴关系一起揭开他们的面纱，并让他们对自己的非法活动负责，即使是在暗网领域也如此。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[DeepSea, Berlusconi dark web: Illegal websites hit in major dark web Europol police raid (9news.com.au)](https://www.9news.com.au/national/dark-web-raids-take-down-deepsea-and-berlusconi-marketplaces-150-alleged-suspects-arrested/d2c99823-b63c-47f8-9f37-131e6d38b482)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

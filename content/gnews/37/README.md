@@ -2,27 +2,47 @@
 ---
 
 
-## 拜登总统被众议院议员指控犯有叛国罪并受到正式弹劾指控
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1620289/)
+## 北约就警惕俄罗斯的敌对行动达成协议
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1620393/)
 
-撰稿：喜国公民
-[视频来自网络](https://beckernews.com/articles-of-impeachment-accusing-president-biden-of-treason-have-been-introduced-in-the-house-of-representatives-42650/)
-美国众议院议员马乔里·泰勒格林最近在众议院宣读了她向众议院小组委员会提交的对拜登总统进行弹劾的议案。
+作者：美东香草山农场 – 文真
 
-该弹劾议案指控拜登总统滥用职权，以权谋私，帮助他的儿子亨特·拜登进行商业交易。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
 
-议案还指控拜登总统在南部边境的政策给美国国家安全造成了极其危险的危机。
 
-她还指控拜登总统没有忠实地执行美国总统的职责，没有坚持他的誓言来维护、保护和捍卫美国的宪法，辜负了美国人民。
 
-对拜登总统在阿富汗撤军方面的表现，格林议员认为他可能犯有叛国罪。指控拜登总统拥护美国的敌人，用纳税人资助的美国设备和武器来武装塔利班。指控他抛弃了在阿富汗的美国人。
+这项战略计划全称为《欧洲-大西洋地区的威慑和防御概念》，旨在让北约成员国为来自波罗的海和黑海地区的攻击做好准备。该计划囊括了针对核、太空和网络攻击的措施。计划特别为网络战开发数字技术，提供了10亿美元的种子资金。
 
-这不是格林议员第一次提交针对拜登总统的弹劾议案。她分别在今年1 月和8 月提交议案，指控拜登总统。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/6-18.jpg)
 
-(本文纯属个人观点，与Gnews无关)
+近期，俄罗斯一直在举行军事演习，并在乌克兰边境附近集结了近10万军队，派遣军用飞机侵入北约领空，并开发具有核能力的导弹，包括具有核能力的高超音速巡航导弹。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+北约的新计划，将针对俄罗斯对波罗的海国家上空的侵犯，以及对黑海入侵的增加，起到威慑作用。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+1. [https://www.zerohedge.com/geopolitical/nato-agrees-plan-caution-russia-against-increasing-hostilities](https://www.zerohedge.com/geopolitical/nato-agrees-plan-caution-russia-against-increasing-hostilities)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-4.jpeg)
+
+***编辑/校对：山本不惑***
+***发稿***：***海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

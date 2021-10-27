@@ -2,46 +2,20 @@
 ---
 
 
-## 北约就警惕俄罗斯的敌对行动达成协议
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1620393/)
+## 中方反对欧盟议会代表团访台
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1620554/)
 
-作者：美东香草山农场 – 文真
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10271-1.jpg)图片来自LTN
+10 月 27 日 – 中共国对欧盟议会代表团下周访问台湾表示愤怒，该代表团由法国欧洲议会议员拉斐尔·格鲁克斯曼 (Raphael Glucksmann) 率领。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+中共国驻布鲁塞尔代表在一份说明中写道：“欧洲议会是欧盟的官方机构，如果派欧洲议会议员访台，将严重违反欧盟对“一个中国”原则的承诺，损害中共国的核心利益，损害中欧两方关系的健康发展。 “一个中国”原则是国际关系中公认的准则，具有国际共识，也是中欧建交和双边关系发展的政治基础”。
 
+免责申明：本文只代表译者观点，与Gnews无关
 
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/10/27/cina-contro-la-visita-della-delegazione-parlamento-ue-a-taiwan\_b8358d46-b895-4ccd-b8ba-fd9d33673ada.html](https://www.ansa.it/sito/notizie/topnews/2021/10/27/cina-contro-la-visita-della-delegazione-parlamento-ue-a-taiwan_b8358d46-b895-4ccd-b8ba-fd9d33673ada.html)
 
-这项战略计划全称为《欧洲-大西洋地区的威慑和防御概念》，旨在让北约成员国为来自波罗的海和黑海地区的攻击做好准备。该计划囊括了针对核、太空和网络攻击的措施。计划特别为网络战开发数字技术，提供了10亿美元的种子资金。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/6-18.jpg)
-
-近期，俄罗斯一直在举行军事演习，并在乌克兰边境附近集结了近10万军队，派遣军用飞机侵入北约领空，并开发具有核能力的导弹，包括具有核能力的高超音速巡航导弹。
-
-北约的新计划，将针对俄罗斯对波罗的海国家上空的侵犯，以及对黑海入侵的增加，起到威慑作用。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-1. [https://www.zerohedge.com/geopolitical/nato-agrees-plan-caution-russia-against-increasing-hostilities](https://www.zerohedge.com/geopolitical/nato-agrees-plan-caution-russia-against-increasing-hostilities)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-4.jpeg)
-
-***编辑/校对：山本不惑***
-***发稿***：***海阔天空1***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

@@ -2,38 +2,47 @@
 ---
 
 
-## 疫苗灾情｜美国 13 岁女孩接种疫苗后瘫痪（附影片）
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1620514/)
+## 维加诺大主教：疫苗受害者是被活祭在摩洛神祭坛上的牺牲品
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1620580/)
 
-**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 27/10/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+评论：***新冠病毒是中共研发的生化武器，用投向全球引发大疫情，为的是引入中共及其邪恶集团研发的内有纳米材料石墨烯的新冠疫苗– 其导致接种者在感染新冠病毒后迅速发生ADE效应和其他疾病而突然死亡，这就是维加诺大主教知道的新冠疫苗是魔鬼的印记，也是共产主义及其邪恶势力的杀灭人口进行世界大重启的邪恶计划与行动。***
 
-【美国】一名 13 岁的女孩 Maddie de Garay 在接种完第二剂辉瑞 COVID-19 疫苗之后的 24 小时内，身体出现各种疼痛，并在两个月内迅速恶化，目前，Maddie 腰部以下瘫痪，并且吞咽困难。
+据《新闻目标》(www.newstarget.com)，2021年10月24日编辑报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2664.png)维加诺继续宣称，”疫苗和堕胎的受害者是在摩洛神的祭坛上被牺牲的”。我们正处于一场正义与邪恶的战争中.影子国家和影子教会合谋反人类。
+（文章转载自 BeforeItsNews.com）
+他警告，气候变化–暴政的邪恶即将来临。
+维加诺大主教是一位罕见的敢于说真话的宗教领袖。更难得的是，他真正了解正在发生的（有与影子国家与影子教会勾结的邪恶时暗力量用新冠病毒与疫苗灭杀人的邪恶）事情。
 
-最近有一只由疫苗安全研究基金会（VSRF）赞助的广告影片受到关注，但很快，因触及 FDA 公共谘询委员就辉瑞 BioNTech 将 COVID-19 mRNA 疫苗用于 5 ～11 岁儿童的申请，影片被强行撤下，该片的主人公就是 Maddie。
+他揭露了教皇、大重启、耶稣会、疫苗罪犯、选举盗贼、共济会以及他们反人类的战争。他还警告说，通过mRNA新冠疫苗获得的”魔兽的印记”。
 
-事源 Maddie 的母亲为她报名参加的辉瑞 COVID-19 疫苗的临床试验，在 Maddie 1 月份接受第二针之后，她立即发生了严重的不良反应，腹部、肌肉和神经剧烈疼痛，并在接下来的两个半月内，她先后 3 次住院，情况一次比一次严重，呕吐、血压和心率不稳定、记忆力减退、脑雾、头痛、昏厥以及癫痫，最糟糕的一次，Maddie 试过一天有 20 次的昏厥和癫痫交叉发生。
+影子教会和那些接受501(c)(3)免税的人已经与魔鬼做了交易。他们已经把自己的教众出卖给了影子国家，必须背叛教会。
+维加诺录音带。完整的采访视频
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2664-1.png)维加诺大主教:”疫苗受害者在摩洛神的祭坛上被献祭 (视频)，吉姆-霍夫特(Jim Hoft)报道
+(维加诺大主教: 《疫苗受害者被牺牲在摩洛神的祭坛上》（视频） 作者：Jim HoftArchbishop Vigano: “Vaccine Victims are Sacrificed at the Altar of Moloch” (VIDEO) By Jim Hoft )
+罗伯特·莫伊尼汉(Robert Moynihan)博士最近就天主教会目前的发展情况采访了直言不讳的意大利大主教卡洛斯·玛丽亚·维加诺(Carlos Maria Viganò)。
+维加诺大主教说:
+现在在我看来，我们正面临着社会和宗教两方面的围攻。所谓的紧急大流行病被用作虚假的借口，在世界许多国家同步和协调的方式实施疫苗接种和绿色通行证……。
 
-Maddie 的母亲 Stephanie de Garay 在 6 月份，由参议员 Ron Johnson (R-WI) 组织的一场新闻发布会上表示，Maddie 和她的两个兄弟都参加了辉瑞针对 12 至 15 岁儿童的试验，“因为我们相信科学，所以我们很高兴参加了试验，希望为所有人恢复正常生活而做出一点努力。”
+他们支持这一邪恶计划，甚至谴责那些不接受接种实验性基因血清的人,这种血清具有未知的副作用，不会对病毒产生任何免疫力，更不用说与存在来自流产胎儿的遗传物质有关的道德影响. 对于天主教徒来说，这是拒绝接种疫苗的一个更充分的理由。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-5-1.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-7-1.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-8-1.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-6-1.png)
+我们处在战争中，一场没有公开宣布的战争，不是用常规武器进行的战争，但同样是一场战争……
+这个联盟不是国家和教会之间的联盟, 但它是在深层国家和深层教会之间。
+维加诺大主教接着指出，掌权的精英们能够操纵投票来为自己谋利。
 
+“他们自称是人民的代表，但实际上他们的行为是反对人民的。他们没有任何约束，也没有来自上层的任何限制，因为他们取消了执政者和下层平民权力的神圣来源，因为他们不允许公民选举自己的代表–除非他们确定可以操纵投票来为自己谋利。”
 
-她续指，“我等了 7 个月让辉瑞或 FDA 承认我女儿的遭遇，但他们没有，他们试图忽视我女儿的不幸。有了这次的广告影片，Maddie 终于有机会和他们共处一室，让他们看到，听到 Maddie 的声音，但是他们却要我们噤声。”
+文章点评仅代表个人观点
 
-可惜，不仅是 Maddie 的影片遭到封杀，连这场新闻发布会 ，在参议员 Ron Johnson 上传到推特上不久，就被 Twitter 删除。
+原文连接：[https://www.newstarget.com/2021-10-24-vaccine-victims-sacrificed-at-altar-of-moloch.html](https://www.newstarget.com/2021-10-24-vaccine-victims-sacrificed-at-altar-of-moloch.html)
 
-**最令人愤怒的是，10 月 26 日，美国食品及药物管理局 17 位专家一致同意放宽辉瑞疫苗的接种年龄限制，赞成为五至十一岁儿童接种辉瑞新冠疫苗，并同时认为即使有心肌炎等健康风险，但接种疫苗好处仍然大于风险。**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/50_0.jpg)
-来源｜[个案050](https://www.visiontimes.com/2021/10/25/comcast-pfizer-clinical-trial-youth-vaccine-injury-ad-cancellation.html)
+翻译：洛杉矶盘古农场- TrueSky
+校对：洛杉矶盘古农场 – Freeearth
+评论：洛杉矶盘古农场 – 滴水穿石
+编辑：洛杉矶盘古农场 – 滴水穿石
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-* * *
-
-他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//｜//[美国 35 岁疫苗拥趸孕期接种后致新生儿夭折](https://gnews.org/zh-hans/1605744/)//｜//[澳洲 30 岁夫妇接种疫苗后相继出现心脏疾病](https://gnews.org/zh-hans/1607321/)//｜//[意大利 18 岁少年接种疫苗2周内突患罕见病](https://gnews.org/zh-hans/1610841/)//｜//[比利时 22 岁自行车手接种疫苗后心力衰竭 职业生涯被迫结束](https://gnews.org/zh-hans/1612160/)//｜//[英国 40 岁女演员接种疫苗后中风昏迷](https://gnews.org/zh-hans/1618638/)//
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
