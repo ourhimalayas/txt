@@ -2,31 +2,35 @@
 ---
 
 
-## 布林肯：鼓励所有联合国成员与美国一起支持台湾参与联合国系统
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1620981/)
+## 中共的强制抗疫政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1621078/)
 
-编辑摘要：
+作者：澳喜农场 在远方
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/acastro_211024_4823_0001.0-2.jpg)资料照片：美国国务卿布林肯在纽约举行的第76届联合国大会场边举行记者会。(2021年9月23日)
-
-据美国之音10月27日报道，美国国务卿布林肯26日在国务院正式发布声明说，美国认为台湾施行透明、对尊重人权及法治尊重的模式，都与联合国价值观一致，台湾已经成为一个民主成功故事。美国支持台湾参与联合国系统，很多联合国成员都视台湾为一个宝贵伙伴及可信赖朋友。美国鼓励所有联合国成员和美国一起，支持台湾参与联合国系统及国际社会，共同解决全球所面临的问题。
-
-北京称已经就美国务卿的讲话向美方提出“严正交涉”。
-
-新闻参考链接：[布林肯：鼓励所有联合国成员与美国一起支持台湾参与联合国系统](https://www.voachinese.com/a/blinken-urged-all-un-memger-states-to-support-taiwans-meaningful-participation-in-the-un-system-20211026/6286756.html)
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+中共内蒙古额济纳旗于当地时间25日零时宣布封城，当局公告称，禁止居民出户且禁止游客出店，否则将被追究民事和刑事责任。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/PP5.001.jpeg)
+据内部战友透露，中共先是研制并释放病毒，造成世界性的灾难，其后又采取了极端严酷的疫情防控措施，动辄封门、封路、封城，任由民众自生自灭，最终导致民怨四起。为了防控疫情，中共国是全世界唯一一个全面阻止公民返国，并禁止疫区病患外出寻求医疗援助的国家。
+(本文仅代表作者观点)
+
+参考链接：[中国新一轮封城抗疫行动 成效与可持续性受考验](https://www.voachinese.com/a/china-braces-for-covid-19-new-lockdowns-20211025/6284255.html)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/总编：Irene木木
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

@@ -2,50 +2,27 @@
 ---
 
 
-## 保护儿童健康组织主席警告，若批准儿童疫苗，FDA将被诉讼
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1620272/)
+## 拜登总统被众议院议员指控犯有叛国罪并受到正式弹劾指控
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1620289/)
 
-作者：纽约香草山农场 – 新世界的一员
+撰稿：喜国公民
+[视频来自网络](https://beckernews.com/articles-of-impeachment-accusing-president-biden-of-treason-have-been-introduced-in-the-house-of-representatives-42650/)
+美国众议院议员马乔里·泰勒格林最近在众议院宣读了她向众议院小组委员会提交的对拜登总统进行弹劾的议案。
 
+该弹劾议案指控拜登总统滥用职权，以权谋私，帮助他的儿子亨特·拜登进行商业交易。
 
+议案还指控拜登总统在南部边境的政策给美国国家安全造成了极其危险的危机。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+她还指控拜登总统没有忠实地执行美国总统的职责，没有坚持他的誓言来维护、保护和捍卫美国的宪法，辜负了美国人民。
 
+对拜登总统在阿富汗撤军方面的表现，格林议员认为他可能犯有叛国罪。指控拜登总统拥护美国的敌人，用纳税人资助的美国设备和武器来武装塔利班。指控他抛弃了在阿富汗的美国人。
 
+这不是格林议员第一次提交针对拜登总统的弹劾议案。她分别在今年1 月和8 月提交议案，指控拜登总统。
 
-2021 年 10 月 25 日，保护儿童健康组织主席小罗伯特·肯尼迪和医学博士梅丽尔·纳斯表示， 已致函FDA的每位成员，称如果FDA强制儿童接种新冠疫苗，保护儿童健康组织将对FDA采取法律行动。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-9.jpg)
-辉瑞的研究数据显示，辉瑞疫苗导致的儿童死亡率，是新冠病毒的107 倍。接种新冠疫苗，将引起大龄儿童心脏损伤、癌症，甚至死亡。 据悉，疫苗与相关生物制品咨询委员会将于 10 月 26 日召开会议，决定是否批准辉瑞公司研发的针对 5 至 11 岁儿童的实验性疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-14.jpg)
-参考链接：
-[小RFK警告FDA，如果他们批准为儿童注射疫苗，他将提起诉讼，称COVID对儿童没有风险](https://gettr.com/post/pf6a9a4c4b)
+(本文纯属个人观点，与Gnews无关)
 
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编/编辑：Ivy001
-编辑：雪梨
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

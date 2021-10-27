@@ -2,45 +2,48 @@
 ---
 
 
-## FDA专家投票赞成5-11岁儿童疫苗
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1620545/)
+## 维加诺大主教：疫苗受害者是被活祭在摩洛神祭坛上的牺牲品
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1620580/)
 
-**编译：西班牙喜悦农场–wenwu**
+评论：***新冠病毒是中共研发的生化武器，用投向全球引发大疫情，为的是引入中共及其邪恶集团研发的内有纳米材料石墨烯的新冠疫苗– 其导致接种者在感染新冠病毒后迅速发生ADE效应和其他疾病而突然死亡，这就是维加诺大主教知道的新冠疫苗是魔鬼的印记，也是共产主义及其邪恶势力的杀灭人口进行世界大重启的邪恶计划与行动。***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-473.png)图片来源**：** zerohedge.com
+据《新闻目标》(www.newstarget.com)，2021年10月24日编辑报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2664.png)维加诺继续宣称，”疫苗和堕胎的受害者是在摩洛神的祭坛上被牺牲的”。我们正处于一场正义与邪恶的战争中.影子国家和影子教会合谋反人类。
+（文章转载自 BeforeItsNews.com）
+他警告，气候变化–暴政的邪恶即将来临。
+维加诺大主教是一位罕见的敢于说真话的宗教领袖。更难得的是，他真正了解正在发生的（有与影子国家与影子教会勾结的邪恶时暗力量用新冠病毒与疫苗灭杀人的邪恶）事情。
 
-美国食品和药物管理局（FDA）以17票赞成、1票弃权的结果宣布，该机构建议授权对5至11岁的美国儿童紧急使用辉瑞-生物技术公司（Pfizer-BioNTech）的中共病毒（COVID-19）疫苗。
+他揭露了教皇、大重启、耶稣会、疫苗罪犯、选举盗贼、共济会以及他们反人类的战争。他还警告说，通过mRNA新冠疫苗获得的”魔兽的印记”。
 
-据《德克萨斯论坛报》的Karen Brooks Harper报道，这一决定为 FDA的最终授权打开了绿灯，而这次授权儿童疫苗最早可能在周三出台（[如下图](https://twitter.com/kbrooksharper/status/1453094747644604424?s=20)）。
+影子教会和那些接受501(c)(3)免税的人已经与魔鬼做了交易。他们已经把自己的教众出卖给了影子国家，必须背叛教会。
+维加诺录音带。完整的采访视频
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2664-1.png)维加诺大主教:”疫苗受害者在摩洛神的祭坛上被献祭 (视频)，吉姆-霍夫特(Jim Hoft)报道
+(维加诺大主教: 《疫苗受害者被牺牲在摩洛神的祭坛上》（视频） 作者：Jim HoftArchbishop Vigano: “Vaccine Victims are Sacrificed at the Altar of Moloch” (VIDEO) By Jim Hoft )
+罗伯特·莫伊尼汉(Robert Moynihan)博士最近就天主教会目前的发展情况采访了直言不讳的意大利大主教卡洛斯·玛丽亚·维加诺(Carlos Maria Viganò)。
+维加诺大主教说:
+现在在我看来，我们正面临着社会和宗教两方面的围攻。所谓的紧急大流行病被用作虚假的借口，在世界许多国家同步和协调的方式实施疫苗接种和绿色通行证……。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-475.png)
+他们支持这一邪恶计划，甚至谴责那些不接受接种实验性基因血清的人,这种血清具有未知的副作用，不会对病毒产生任何免疫力，更不用说与存在来自流产胎儿的遗传物质有关的道德影响. 对于天主教徒来说，这是拒绝接种疫苗的一个更充分的理由。
 
-《美联社》曾[表示](https://www.wmbfnews.com/2021/10/26/fda-advisers-endorse-pfizers-covid-19-vaccine-children-ages-5-11/?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=snd&amp;utm_content=wmbf)，FDA 可以直接忽视专家投票组的约束（即使反对也会通过辉瑞疫苗），而一旦获得 FDA 批准，美国疾病控制和预防中心（CDC）将于下周批准辉瑞疫苗的儿童疫苗授权，以及哪些群体应该接受儿童疫苗。
+我们处在战争中，一场没有公开宣布的战争，不是用常规武器进行的战争，但同样是一场战争……
+这个联盟不是国家和教会之间的联盟, 但它是在深层国家和深层教会之间。
+维加诺大主教接着指出，掌权的精英们能够操纵投票来为自己谋利。
 
-幼儿的剂量是包含12岁及以上人群剂量的三分之一。值得注意的是，推友（[@Techno\_Fog](https://twitter.com/Techno_Fog/status/1453095851824459776?s=20))在推特上的信息分享表明（如下图）：FDA 的专家们在为所有美国人的5-11岁儿童在美国政府机构权衡美国儿童，所面临的中共病毒的危机问题上不懂孩子们到底有什么危险需要打中共疫苗；美国儿童打了辉瑞疫苗后，可以帮助美国更清楚了解中共疫苗是否对美国儿童产生了威胁（中共病毒的危机对美国人不重要，中共疫苗才是 FDA 需要研究和关注的威胁，并承认美国儿童能否成为政府机构的白老鼠的重要性）。
+“他们自称是人民的代表，但实际上他们的行为是反对人民的。他们没有任何约束，也没有来自上层的任何限制，因为他们取消了执政者和下层平民权力的神圣来源，因为他们不允许公民选举自己的代表–除非他们确定可以操纵投票来为自己谋利。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-476.png)
+文章点评仅代表个人观点
 
-**简评：**
+原文连接：[https://www.newstarget.com/2021-10-24-vaccine-victims-sacrificed-at-altar-of-moloch.html](https://www.newstarget.com/2021-10-24-vaccine-victims-sacrificed-at-altar-of-moloch.html)
 
-**我们知道德尔塔更易感染儿童，而基本上感染了中共病毒的儿童并不会导致死亡，或者死亡率接近于零。更重要的是，感染中共病毒的患者之所以死亡，医院也有责任，正是由于在政府医疗系统机构淫威下的医院的不作为，像中共一样故意把病人往死里治疗的疫苗商业模式的运营，导致了如今中共病毒的死亡人数的大量产生。印度的北方邦在使用了伊维菌素后，持续出现了零感染，这就是支持对西方医疗系统控诉的铁证。**
+翻译：洛杉矶盘古农场- TrueSky
+校对：洛杉矶盘古农场 – Freeearth
+评论：洛杉矶盘古农场 – 滴水穿石
+编辑：洛杉矶盘古农场 – 滴水穿石
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**更让人惊掉下巴的是，澳大利亚维多利亚州未来不打疫苗竟然会被关起来。郭文贵先生曾爆料，疫苗灾难还没有开始！希望所有人共同发出自己的声音，停止人类的末路狂奔！**
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-**以下分享两则签名。**
-
-**澳洲的战友可以[点击](https://www.reignitedemocracyaustralia.com.au/STOP-THE-BILL/)，并进入签名。表达您不想因为不打中共疫苗而被关起来的声音。**
-
-**美国的战友可以[点击](https://www.change.org/p/congress-of-the-united-states-do-not-vaccinate-5-11-year-olds?recruiter=1016512074&amp;utm_source=share_petition&amp;utm_medium=twitter&amp;utm_campaign=psf_combo_share_message&amp;utm_term=psf_combo_share_initial&amp;recruited_by_id=53bdb160-0091-11ea-ae95-95181d6329ab&amp;share_bandit_exp=message-31182780-en-US)，并进入签名。表达您不希望给 5-11 岁的孩子接种中共疫苗的声音。**
-
-（文章仅代表作者观点与GNEWS无关）
-
-新闻来源: [zerohedge.com][FDA advisers back Pfizer’s COVID-19 vaccine for kids 5 to 11 years old](https://www.cbsnews.com/news/covid-19-vaccine-kids-ages-5-11-fda-advisers-vote/)
-
-* * *
-
-*发稿 : Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
