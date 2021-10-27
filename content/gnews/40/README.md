@@ -2,33 +2,32 @@
 ---
 
 
-## 中共欲低价承包泰国水利项目遭当地人权组织强烈反对
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619230/)
+## 苹果将成为中国最后一个美国科技巨头吗？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1619439/)
 
-作者：纽约香草山农场 – 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-泰国议员维拉康近日透露，对于泰国备受争议的尤姆河引水工程，由中共控制的北方工业国际公司此前表示，愿意自费在四年内以12亿美元的造价建造该项目。为此，曾两次拒绝该项目评估的泰国政府于上月批准了这一项目的环境影响评估报告。
+编译：蚂蚁兄弟
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-464.png)图片来源： sport.es
 
-当地时间10月25日的消息称，泰国人权组织强烈反对该项目，因担心新水库将淹没村庄，破坏森林，且将对当地克伦土著居民产生不利影响。同时，经评估，此工程“存在严重缺陷”。
+曾几何时，美国的科技巨头都汇集在中共国，包括脸书。而今日苹果公司在中共国的巨大存在似乎越来越引人注意。上周，仍然在中国运营的微软宣布，它将关闭其在中国的社交网络LinkedIn。该公司表示，必须遵守中国国家的规定已经变得越来越具有挑战性，所以他们最终放弃了。
 
-中共借一带一路之名，蓝金黄当地政客，不惜血本参与基础设施项目，试图进一步扩大在泰国的影响力。对于中共的经济绑架，东南亚国家应提高警惕。
+苹果公司在国内也有自己的审查问题。英国媒体BBC上周报道说，两个流行的宗教应用程序已从苹果的应用程序商店中删除。后来发现，亚马逊旗下的Audible和雅虎财经应用也被删除。监测App Store的组织说，本月被删除的应用程序有所增加。
 
-(本文仅代表作者观点)
+美国公司在 “科技大打击”中也未能幸免。苹果和微软都意识到，他们的地位比近年来更加脆弱。“中国的长城“一书的作者James Griffiths说：“他们知道他们必须谨慎行事”。
 
-参考链接：[中国公司欲承包泰国水利项目 人权环境人士表示反对](https://www.voachinese.com/a/china-shows-interest-in-a-thailand-water-project/6283640.html)
+**简评：**
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**中共的网络防火墙，封住了国人的嘴，蒙蔽了国人的眼，同时阻碍了整个中国科技和文化的发展。在一个言论和信息不能自由的国度里，在这个信息飞速发展的大数据时代，任何一个互联网的科技公司在中国是没有前途的。**
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：谐趣园
+**中共堵死了中国人发展的道路。**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（文章仅代表作者观点，与GNEWS无关）
+
+**参考资料：**[sport.es][¿Será Apple el último gigante tecnológico estadounidense que quede en China?](https://www.sport.es/es/noticias/tecnologia/sera-apple-ultimo-gigante-tecnologico-12373149)
+
+* * *
+
+*审核：Aires的星
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)

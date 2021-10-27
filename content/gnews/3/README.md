@@ -2,61 +2,105 @@
 ---
 
 
-## 中共国经济可能比想象中更快地“停摆”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1619925/)
+## 六中全会两大核心接班人问题
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1619976/)
 
-编译：蚂蚁兄弟
+![](https://assets.gnews.org/wp-content/uploads/2021/10/333-aw0zs-cgvx6.jpg)
+[https://gtv.org/video/id=6177e499247c5a3f9090226a](https://gtv.org/video/id=6177e499247c5a3f9090226a)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-10-5.jpg)图片来源：大纪元。(LIU JIN/AFP/Getty Images)
+**郭文贵**
+**Miles Guo**
 
-中国经济失去动力的速度可能比投资者想象的要快。习近平的“长期主义”政策减少了对房地产的依赖，并对其他关键部门，如技术、教育、金融等行业进行监管，这一次似乎是认真的，即使经济出现进一步疲软的迹象，这将持续下去，所有这些因素都可能在短期内对经济增长的影响超过预期。
+这次最核心的对习不仅仅是平稳过渡，他想争取连任20大
+This time the core confrontation to Xi is not only a smooth transition, he wants to fight for re-election to the Chinese Communist Party Twenty National People’s Congress
 
-此外，这些措施正在产生一系列后果，可能会因新一轮的中共疫情的爆发而得到加强，这正在限制“亚洲巨人”的生产和经济运作，据彭博社报道。
+很重要的大家没有看到的事情，接下来的20大
+Very important things that everyone didn’t see, the following of the Chinese Communist Party Twenty National People’s Congress
 
-所有这些都导致了对中国经济增长的一连串下调。然而，在所公布的国内生产总值在今年第三季度几乎“冻结”后，情况可能会变得更糟，因为国内生产总值在第三季度只增幅0.2%。
+有一个中国的社会到底走什么制度的问题
+There is a question of what kind the institution is going to be in China society
 
-现在，彭博社的预测是中共国2021年的增长将降低到8.2%，而2022年的目标是增长5.2%。如果增长预期得到实现，中国的GDP将在几十年来首次比西班牙的增长更慢（西班牙2022年增长目标为5.8%）。
+这个比谁当继承人一点都不小，我们很多人疏忽这个问题
+This is no less than who is the heir, many of us neglect this issue
 
-Natixis、美国银行、花旗集团认为，今年的经济扩张不会达到经济学家共识的8.2%的预测。这些金融机构的专家警告说，活动的放缓可能会持续到明年，这可能导致中国的经济增长低于5%。如果不考虑2020年的“大流行年”（中国只增长了2.3%，而世界其他地区都崩溃了），5%的GDP增长率将是三十年来最弱的。
+因为咱内部的战友告诉我说，王沪宁现在几乎是全党最恨的第二个人了
+Because our internal comrades-in-arms told me that Wang Huning is now almost the second most hated person in the party
 
-美国银行的分析师认为，这次的经济结构调整可能是动真格的。政府采取的住房部门去杠杆化、通过重新分配财富，到2060年实现碳中和或使经济更加平均化的政策，虽然从长远来看是有益的，但将对未来几年的增长产生重大影响。“如果是这样，中国的数据流可能会让悲观主义者也感到困惑，我们对这种情况保持警惕态度。”
+王沪宁推广的就是绝对不能有私人企业家，
+Wang Huning promotes that there must be no private entrepreneurs
 
-中共决心改变经济模式，以前的模式一直基于信贷和房地产扩张。尽管近期中国的房地产行业出现了爆炸，但政府正在实施一项试点方案，征收房产税，这将在短期内加剧房地产行业的问题，并削弱GDP的增长。
+绝对要回到文化大革命的2.0版，那么习近平是绝对是支持的
+Definitely going back to 2.0 version of the Cultural Revolution, and Xi Jinping is absolutely supportive
 
-据中共官方新华社报道，中国最高议会决策机构周六表示，房产税试点将开始在一些地区实施。
+就是把所有私人企业全消灭掉，就是完全国有经济化
+It means to wipe out all private sectors, and it means to fully state-owned economy country
 
-该税种可以帮助冷却多年来一直处于“泡沫风险”但尚未破裂的市场中的房产价格。房地产繁荣是该国经济不平衡的主要驱动因素之一，这导致当局采取一些新的措施来提高可负担性。
+特别是在几大领域，媒体、能源、基础设施、金融领域
+Especially in several major fields, such as media, energy, infrastructure, finance
 
-这个已经讨论和分析了一段时间的财产税，可能对房地产活动产生重大影响。法国兴业银行(Societe Generale)的经济学家Kiyong Seong在一份关于此事的说明中指出，这一措施预计将导致2022年地方政府的土地销售收入大幅下降，这可能会迫使央行降低利率以缓解对经济的影响。
+几乎100%不允许私人企业参与，私人企业参与干什么呢
+that almost 100% are not allowed to have private participates, so what can private companies participate?
 
-该税种将适用于城市地区的住宅和非住宅物业及土地所有者。
+就是说有一些加工性大领域，就是出力、出血、出汗
+In other words, there are some areas related to hard laboring, bleeding, and sweat-ing
 
-据路透社报道，对房主征收房产税的这一想法最早出现在2003年，但正是因为担心对房地产需求、住房价格、家庭财富和未来房地产项目的影响而推迟了实施的时间，而中共国的经济在很大程度上依赖于房地产。一些研究声称，房地产可能占中国GDP的近30%。
+没什么利润大领域，也就是叫血汗加工厂
+with small profit, that is called the sweat-processing factory
 
-现在实施房产税可能不是最好的时机，因为现在市场力量本身已经在冷却房产价格。“为了支持脆弱的增长，中共当局应该保持足够的财政支持。反过来，地方政府将需要寻找新的资金来源或增加发债，以弥补这种土地销售收入的下降”。
+同时这个六中全会最重要的对新疆、西藏少数民族
+At the same time, the Sixth Plenary Session of the Central Committee of the Com-munist Party of China is the most important to minorities of Xin Jiang and Tibet
 
-法国兴业银行的专家认为：“房产税试点方案的出台表明，当局正在寻求一种更加平衡的经济方式。”
+那必然涉及到港澳台，港澳已经回来了，就涉及到台
+It must affect Hong Kong, Macao and Taiwan, Hong Kong and Macao have came back, and Taiwan will be affected
 
-现在，中共国的经济正在几个方面同时挣扎。法国兴业银行的代表认为，中共国政府可能会放慢经济发展，而改向发展更可持续的经济转型的步伐，因为它对经济造成了严重的拖累。现在，工业生产正受到9月份能源危机的严重打击。这些专家解释说：“尽管夏季爆发的疫情得到迅速遏制，但消费的恢复却不温不火”。
+这个非常重要啊，那港澳台那就是对台湾就是还是20大以前拿下
+This is very important for Hong Kong, Macao, and whether Taiwan will be taken over before the Chinese Communist Party Twenty National People’s Congress
 
-另一方面，在房产销售放缓的情况下，投资已经疲软，基础设施建设也有很多不足之处。信贷增长也已放缓，使出口成为唯一的亮点。
+还是说近期拿下大问题，基本要定义
+or take over recently, and basically need to decide
 
-如果管控模式的变化继续下去，中国的经济增长将在2021年低于市场共识。然而，最糟糕的情况可能还在后面，2022年的GDP增长将首次自1990年以来低于5%。
+所以说这两个最核心的问题啊，它是涉及到整个六中全会
+So these two core issues are related to the entire Sixth Plenary Session of the Cen-tral Committee
 
-**简评：**
+这两件事说完了，你再说继承人的事儿
+After talking about these two things, you can talk about the heirs
 
-**中共国的经济是一种虚假繁荣的表象。依靠压榨百姓血汗的“世界大工厂”，在加入WTO之后成为了所谓的“亚洲巨人”。然而，财富并没有分配到百姓的手中。中共国所谓的地产经济，只是中共政府吸食百姓血汗的又一工具。中共国的各地方政府的财政收入这些年来主要便是依靠地产行业。然而，地产商巨额的负债，地方政府巨额的负债，中国百姓巨额的“家庭债”，现今都已经显现。开始征收房产税，本质的原因是中共没有钱了，没有钱再去支撑以往的“大撒币”，没有钱再去支撑庞大的地方政府体系。**
+习这两件事说完以后就没有继承人的事了
+After Xi’s done these two things, there will be no heirs issues
 
-**中共所面临的不是经济的衰退，而是经济的全面崩溃。**
+那就是习家继承人了，到底习允许可以讨论继承人的问题
+that heir is the Xi’s family member, or after all that Xi allows to discuss the issue of heirs
 
-（文章仅代表作者观点，与GNEWS无关）
+还是不允许你讨论另一个继承人的问题是到底是习的闺女上
+or not allow you to discuss the issue of another heir? It will be Xi’s daughter?
 
-**参考资料：**[eleconomista.es][La economía de China se podría estar ‘apagando’ más rápido de lo que se cree](https://www.eleconomista.es/economia/noticias/11449325/10/21/La-economia-de-China-se-podria-estar-apagando-mas-rapido-de-lo-que-se-cree.html)
+还是习的家人上，还是习指定人上还是党内所谓党内选举
+or it will be Xi’s family member? or Xi’s designated person? or the so-called intra-party elections in the party?
 
-* * *
+跟你演一演，还得给你画个大饼，5年后再说
+or draw a pie for you, I’ll talk about it in 5 years later, just acting
 
-*审核：Aries的星*
-*校对：阿伯塔*
-*发布：信心的选择*
+但不管如何习得继承人的问题，都会排在这个之后
+But no matter what the heirs issue of Xi, it will be followed after this one
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
+———————————————————
+
+**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1451901568165367816?s=24](https://twitter.com/se1y7cblljselva/status/1451901568165367816?s=24)
+
+Date:10/24/2021
+原视频标题:
+Two core successor issues of the Sixth Plenary Session
+原视频日期：2021/10/22
+任务编号：2647
+视频时间段 : 0:00-2:05
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

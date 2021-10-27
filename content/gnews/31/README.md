@@ -2,26 +2,32 @@
 ---
 
 
-## 免疫专家：未接种疫苗的人并不危险，接种疫苗的人却很危险
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1619599/)
+## 大众汽车缺少芯片减产，殃及其供应商
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1619617/)
 
-**撰稿：日本东京方舟农场 子辰**
+**撰稿：日本东京方舟农场 海星**
 
-世界卫生组织欧洲免疫咨询专家组前副总裁克里斯蒂安佩龙教授近期表示，所有接种疫苗的人都必须在冬季隔离，否则可能会患上严重疾病，而未接种疫苗的人对他人并不危险。
+10月25日，《德国之声》发布的一段视频显示，Roeder压模公司因其客户大众汽车缺少芯片减产，正面临着经营的困境。
 
-Perronne 教授专门研究热带病理学和新兴传染病，他是公共卫生高级委员会传染病专门委员会主席。
+Roeder压模公司经理Gerd Roeder表示，作为供应商必须每周供货，但客户没有购货的义务。他进一步解释说，制造的产品已经产生成本，然而大众汽车并不付款购买，导致过去数周销售量接近崩溃。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/crr.png)图片来源：https://americasfrontlinedoctors.org/2/frontlinenews/immunization-expert-unvaccinated-people-are-not-dangerous-vaccinated-people-are-dangerous-for-others/
+视频指出，Roeder压模公司的客户大众汽车目前缺少芯片，生产下调，开工不足，工人们大都情绪低落，均表示情形不是很乐观。
 
-他说，未接种疫苗的人并不危险，但接种疫苗的人对他人是危险的。他解释道：“现在已经在以色列和英国两个国家得到证实。通过与我认识的以色列许多医生的沟通，得知他们遇到了大问题，医院里的重症病例都出现在接种疫苗的人群中。”
+除大众汽车缺少芯片使Roeder压模公司深感困扰之外，这家供应商还缺少原材料铝和镁，它们都由中共提供，但主管该业务的部门已经关闭。Gerd Roeder无奈说，现在已经缩短了工人工作的时间，若情形再不改变，将考虑裁员。
 
-以色列医生 Kobi Haviv 在第 13 频道新闻中披露，95% 的重病患者都接种了疫苗，完全接种疫苗的人更是占了住院人数的 85-90%。他表示，医院正在开设越来越多的 COVID 分支机构，而疫苗的有效性正在下降或消失。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/S1-LB235_VWHERD_M_20210709115359.jpg)图片来源：https://s.wsj.net/public/resources/images/S1-LB235\_VWHERD\_M\_20210709115359.jpg
+
+虽然Bosch和Infineon两家生产汽车芯片的大型公司在欧洲建有工厂，但仍无法满足德国的需求。德国的芯片大部分来自台湾、韩国，目前无法供货。
+
+CT电脑杂志的分析人士称，建造一个最先进的芯片厂需要100亿欧元，所以短期内无法建厂，提供设备的厂家也很少。而且工厂往往依赖一种芯片，因此很难更换供应商或芯片。
+
+此外，德国一家当地报纸称，停在汉诺威工业博览会园地的数百辆奔驰货车的车门钥匙里也缺少芯片。
 
 *注：本文仅代表作者观点，与 Gnews无关*
 
 *参考链接：*
 
-[Immunization expert: ‘Unvaccinated people are not dangerous; vaccinated people are dangerous for others’](https://americasfrontlinedoctors.org/2/frontlinenews/immunization-expert-unvaccinated-people-are-not-dangerous-vaccinated-people-are-dangerous-for-others/)
+[缺芯威胁着整个汽车产业](https://www.dw.com/zh/%E7%BC%BA%E8%8A%AF%E5%A8%81%E8%83%81%E7%9D%80%E6%95%B4%E4%B8%AA%E6%B1%BD%E8%BD%A6%E4%BA%A7%E4%B8%9A/av-59619292)
 
 * * *
 

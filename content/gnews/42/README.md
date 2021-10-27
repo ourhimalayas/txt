@@ -2,35 +2,34 @@
 ---
 
 
-## SPAC获利，但投资者警告个人崇拜不能取代投资要素
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619206/)
+## 墙内要闻汇编 10月26日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1619309/)
 
-作者：香草山佛教部 -文一
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据10月24日的消息显示，川普媒体和技术集团在上周收购DWAC之后，其价值已高达82亿美元，而川普本人将拥有合并公司50%以上的股份，价值接近48亿美元。
+#### 素材：东京樱花团GNEWS组
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide8-8.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/大陆房企违约.jpg)[图片来源](https://money.udn.com/money/story/5603/5798539)
 
-但相关消息同时指出，川普的新企业面临巨大的阻力，其产品 Truth Social社交媒体平台已经出现了技术问题并被黑客攻击。 该公司CEO随后也评论称，他们没有财务数据和商业计划。
+1、 [当代置业美元债违约 大陆房企违约增至9家](https://www.aboluowang.com/2021/1026/1664367.html)
 
-投资经验人士路易斯·纳维利尔在10月25日发文表示，个人崇拜不能取代投资基本要素，并且警告投资者称： DWAC的交易尚未完成，目前仍有告吹可能；同时，投资者很可能在合并案中被重新洗牌；另外， DWAC也可能因政治因素陷入困境；即便合并完成，与竞争对手相比，DWAC的可支配现金微乎其微。因此，路易斯建议避开DWAC的投资，并表示华尔街的疯狂将在DWAC上又一次充分展示。
+10月26日，大陆房企当代置业（中国）有限公司发布公告，10月25日到期优先票据未能按时偿还票据本金及应计利息。另据兴业证券统计，今年，算上当代置业，中资美元债市场上出现违约事件的房企已高达9家，包括泛海控股、花样年、华夏幸福、阳光100中国、天房集团、泰禾集团、新力控股、蓝光发展、当代置业，全部未偿额达280.73亿美元。
 
-(本文仅代表作者观点)
+2、[中共肺炎疫情扩散至11省](https://www.aboluowang.com/2021/1026/1664234.html)
 
-参考链接：
-1）[‘The Richest He’s Ever Been’: Trump Set To Gain Billions In Net Worth On Moonshot SPAC](https://www.zerohedge.com/political/trump-gains-billions-net-worth-moonshot-spac)
-2）[I’m a Trump supporter, but as an investor I’m wary of the Trump SPAC](https://www.msn.com/en-us/money/companies/i-m-a-trump-supporter-but-as-an-investor-i-m-wary-of-the-trump-spac/ar-AAPVPmB)
+中共肺炎疫情从10月17日以来短短一周的时间已扩散到北京为首的全中国11个省份，这也让即将在11月召开中共“六中全会”的北京面临政治敏感与疫情蔓延的双重压力。北京市政府25日宣布，在北京的人近期不要出城，进城人员也要出示健康证明。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+3、[北京拒绝港区人大代表参与会议原因曝光](https://www.aboluowang.com/2021/1026/1664380.html)
 
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：谐趣园
+中共全国人大常委会10月19~23日在北京召开，港区全国人大代表谭耀宗17日对港媒称，由于香港当时出现一宗源头不明的中共病毒（新冠病毒）个案，15日接获北京通知，不批准他与另外3名列席代表出席会议。最新消息称，最重要的原因是会议上会有被视为机密的人事任免事项。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+4、[农民工无工可做 提前出现返乡潮](https://www.aboluowang.com/2021/1025/1663921.html)
+
+在京、津、冀这些北方工业中心，聚集了冶炼厂、化工、煤矿开采、建筑等行业，提供了较多的农民工职位。今年由于习近平严苛的“能耗双控”政策，为了减少二氧化碳排放量，10月初北方又有26个城市实行“停工令”，这些污染严重的企业被迫停工。在“拉闸限电”和“停工令”的双重制约下，很多农民工无工可做，没有了收入，城市里生活成本又高，从而提前踏上返乡之路。
+
+5、[武汉村支书一家五口被杀 嫌犯跳江自杀](https://www.aboluowang.com/2021/1026/1664253.html)
+
+10月24日晚间，湖北武汉发生杀人案，39岁武汉男子将蔡甸区罗汉村党支书张某红全家五口杀害，在逃亡中又杀害两人，最后跳江。
+
+（本文只代表观点，与Gnews网站无关）
+
+*校对、发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)

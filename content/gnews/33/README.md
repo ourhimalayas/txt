@@ -2,25 +2,29 @@
 ---
 
 
-## 有声|盖特用户逼近300万，已经成为真正的全球媒体平台
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1619591/)
+## 德国慕尼黑汽车游行 呼吁终结中共
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1619611/)
 
-配音：香草山美食部 – 玫瑰园
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-10月24日，盖特首席执行官杰森·米勒先生在接受澳洲媒体采访时说，盖特用户不会因为在政治问题上发表意见而被“置于数字监狱”。
+近日，德国民众在慕尼黑举办了以“终结中共”为主题的汽车游行，目的是提醒德国，不要只顾眼前利益，对中共侵犯人权的罪行采取绥靖政策，并提醒德国民众警惕中共对全世界的威胁和毒害，与之划清界线。
 
-米勒先生表示，盖特自今年7月4日推出以来“像火箭一样起飞”，已经拥有近300万用户。其中美国本土客户占47%，美国以外的客户占53%，因此，盖特成为真正的全球媒体平台。
+据大纪元报道，该游行车队23日在警车开道下，穿梭于慕尼黑城，历时两个半小时。游行车辆上有“终结中共”、“中共不等于中国”、“打倒中共恶魔”等大标语。
 
-文字版原文：[盖特用户逼近300万，已经成为真正的全球媒体平台](https://gnews.org/zh-hans/1617051/)
+据悉，在出发地点，许多民众看到大横幅后都在“终结中共”的请愿书上签名。另外，沿途也有很多民众，拍照摄像、向车队招手或竖大拇指。
 
-音频处理：喜山必胜Maverick
+![](https://assets.gnews.org/wp-content/uploads/2021/10/id13329054-IMG_9501-600x400-1.jpeg)图片来源：https://www.epochtimes.com/b5/21/10/25/n13329025.htm
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据报道，在利益的驱动下，巴伐利亚政治经济界逐渐向中共靠拢，中共国逐渐成为巴伐利亚全球第一大贸易伙伴。而且，巴伐利亚是德国唯一一个给孔子学院提供资金的联邦州。
+
+举办方丹妮拉·达斯卡卢（Daniela Dascalu）女士认为，在巴伐利亚首府慕尼黑进行汽车游行，让人们了解中共对世界的危害，意义重大。
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[組圖：德國民眾慕尼黑汽車遊行 呼籲終結中共](https://www.epochtimes.com/b5/21/10/25/n13329025.htm)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

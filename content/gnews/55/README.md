@@ -2,27 +2,57 @@
 ---
 
 
-## 有声|拜登承诺协防台湾，引中共强硬回应
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1617572/)
+## 瑞典无限期暂停使用莫德纳疫苗，因导致接种者严重心脏病
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1617756/)
 
-配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/102505-1.jpg)美国莫德纳新冠疫苗。图：路透社
+来自美国《西方杂志》10月24日的报道
 
-美国总统拜登公开表示，美国对协助台湾防卫有承诺，随即引发中共国的强烈回应。
+**摘要翻译：**
 
-拜登10月21日在巴尔的摩的一个媒体活动时表示，如果台湾受到中共国攻击，美国将施以援手。这次拜登首次公开表示军事手段干涉，引发外界强烈关注。
+人们对莫德纳疫苗的副作用产生了新的担忧。
 
-中共忘图裹挟14亿老百姓，既有战狼汪文斌狂妄警告：任何人都不要站到中共的对立面。白宫发言人在本周五的新闻发布会上再次强调，美国的政策没有改变，美国将继续协助台湾保持其足够的自卫能力。郭文贵先生也在直播中爆料，美国的专业人士明确答复，如果共产党直接攻打台湾的话，美军是会出手的。
+据英国《每日邮报》报道，瑞典卫生官员现已决定无限期延长对所有31岁以下人群接种莫德纳疫苗的禁令。暂停接种莫德纳疫苗的时间原定于12月1日结束。
 
-文字版原文：[拜登承诺协防台湾，引中共强硬回应](https://gnews.org/zh-hans/1614811/)
+芬兰、冰岛和丹麦也采取了类似的措施。挪威鼓励30岁以下的男性不要接种莫德纳疫苗，但没有强制要求。
 
-音频处理：喜山必胜Maverick
+数月以来，莫德纳疫苗一直受到审查，因为数据显示接种该疫苗的年轻男性患心肌炎和心包炎的风险增加。
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据《华尔街日报》报道，由于担心疾病风险，美国食品和药物管理局做出了决定暂停莫德纳疫苗针对12至17岁人群的注射计划。
+
+据CNBC报道，尽管联邦疾病控制和预防中心周四批准了莫德纳疫苗和强生疫苗的注射，但还是提出了一些警告。
+
+Tom Shimabukuro博士说，无论是莫德纳疫苗或辉瑞疫苗都会增加心肌炎和心包炎的风险，尤其是在接种第二剂疫苗之后。
+
+据《每日邮报》报道，数据显示，接种莫德纳疫苗的人比接种辉瑞疫苗的人的风险大13倍。
+
+瑞典公共卫生局表示，未公开数据将莫德纳疫苗与这两种情况联系起来，意味着“心肌炎或心包发炎等副作用的风险增加”。
+
+美国食品和药物管理局给予辉瑞公司疫苗全面授权的声明中谈到了对该疫苗的担忧，称“数据表明风险增加，特别是在第二次接种后的7天内。”
+
+**简评： **
+
+从武汉新冠疫情的爆发开始到现在全世界的政府都在强推疫苗，整个过程不断地在欺骗：
+
+疫情发生初期是：不会人传人，天热后就会消失，结果全世界爆发；刚推出新冠疫苗时：说“疫苗可以防新冠”，然后威逼利诱人们去接种疫苗。随着接种人群的数量越多，感染人数也增大，这时对疫苗的说法是“防重症不防轻症”；在中共国但凡有人感染新冠，当地政府是全民连夜检查，疫苗有何作用？现在各国政府又推出加强针，新冠疫情过去发生的每一步都经不起推敲。
+
+爆料革命和新中国联邦传递出的信息正在不断被验证。希望各国的民众尽快觉醒，站出来反对正在作恶的当权者，早点采取正确的新冠治疗措施，让人们回归正常生活。
+
+新闻链接：[Sweden Suspends Moderna Shot Indefinitely After Vaxxed Patients Develop Crippling Heart Condition](https://www.westernjournal.com/sweden-suspends-moderna-shot-indefinitely-vaxxed-patients-develop-crippling-heart-condition/)
+
+***翻译：**Brianchow*
+
+***校对：**clau*
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

@@ -2,29 +2,27 @@
 ---
 
 
-## 德国慕尼黑汽车游行 呼吁终结中共
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1619611/)
+## 有声|郭文贵先生大直播再谈疫苗大屠杀
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1619631/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+配音：香草山美食部 – 玫瑰园
 
-近日，德国民众在慕尼黑举办了以“终结中共”为主题的汽车游行，目的是提醒德国，不要只顾眼前利益，对中共侵犯人权的罪行采取绥靖政策，并提醒德国民众警惕中共对全世界的威胁和毒害，与之划清界线。
+郭文贵先生在10月24日的大直播中揭露：中共释放病毒只是手段，而借疫苗实行大屠杀，才是中共制造这场灾难的真实目的。
 
-据大纪元报道，该游行车队23日在警车开道下，穿梭于慕尼黑城，历时两个半小时。游行车辆上有“终结中共”、“中共不等于中国”、“打倒中共恶魔”等大标语。
+中共和黑暗势力勾结，首先利用病毒制造恐慌、死亡以及经济危机；勾结利用政客，控制各国政府；再由中共十个家族参股控制的大型制药公司，生产毒疫苗；并垄断全球的主流媒体和社交媒体的话语权。掩盖病毒真相，强制接种疫苗。
 
-据悉，在出发地点，许多民众看到大横幅后都在“终结中共”的请愿书上签名。另外，沿途也有很多民众，拍照摄像、向车队招手或竖大拇指。
+其目的之一，是让老年人大量死亡，金融界亏掉的养老金就不用兑付了；目的之二，是有计划的种族谋杀，接种率最高的犹太人首当其冲，其次是加拿大人和美国人。目的之三，是消灭精英，接种疫苗最多的精英是律师、会计师、明星、运动员和公务员等。由于这些人聪明、专业，且追求民主、自由和法制，解决掉这些人，就可以更好的控制其他人了。这就是中共与黑暗势力企图统治人类的邪恶计划。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/id13329054-IMG_9501-600x400-1.jpeg)图片来源：https://www.epochtimes.com/b5/21/10/25/n13329025.htm
+文字版原文：[郭文贵先生大直播再谈疫苗大屠杀](https://gnews.org/zh-hans/1616935/)
 
-据报道，在利益的驱动下，巴伐利亚政治经济界逐渐向中共靠拢，中共国逐渐成为巴伐利亚全球第一大贸易伙伴。而且，巴伐利亚是德国唯一一个给孔子学院提供资金的联邦州。
+音频处理：喜山必胜Maverick
 
-举办方丹妮拉·达斯卡卢（Daniela Dascalu）女士认为，在巴伐利亚首府慕尼黑进行汽车游行，让人们了解中共对世界的危害，意义重大。
-
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[組圖：德國民眾慕尼黑汽車遊行 呼籲終結中共](https://www.epochtimes.com/b5/21/10/25/n13329025.htm)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
