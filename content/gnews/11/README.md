@@ -2,50 +2,54 @@
 ---
 
 
-## 六中全会前夕，中共一再强调政治安全，忠诚与服从
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1620061/)
+## 人权组织揭露中共秘密监狱非法关押及酷刑内幕
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1620125/)
 
-作者：日本方舟农场 – Andy5
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
+作者：澳喜农场 – 在远方
 
 
 
-中共在给20大定调的六中全会前夕，反复强调政治安全，忠诚与服从，凸显出中共对所谓政治安全的不安，印证了郭文贵先生提到的，20大，就是习要给自己继续合法当中共领导人的一个抓手。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture111-2.jpg)
-中共今年在其国庆节前后，分别处理了孙力军和傅振华。到目前为止近四周的时间内，政法委、公安部以及各级党委，都不断传出紧抓政治安全，清理流毒影响，打造忠诚铁军的声音。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-约5天前，此声音波及范围已扩展到了教育部。教育部官员称，要将语文教材编写者的政治素质放在第一位，对人员严格政治审核。有墙内网友留言评论，“语文绝对不是汉语”，暗示语文课，俨然成了中共洗脑宣传的工具之一。
 
-参考链接：
-1. [六中全会前夕，中共一再强调政治安全，忠诚与服从](https://www.163.com/dy/article/GN5PH99505268MTU.html)
-2. [六中全会前夕，中共一再强调政治安全，忠诚与服从](https://new.qq.com/omn/20211025/20211025A010JW00.html)
-3. [六中全会前夕，中共一再强调政治安全，忠诚与服从](https://news.ifeng.com/c/8AZTe09gtQW)
-4. [六中全会前夕，中共一再强调政治安全，忠诚与服从](http://www.gov.cn/xinwen/2021-10/18/content_5643338.htm)
+
+总部设在西班牙马德里的人权组织——“保护卫士”于10月初发布了一篇中文报告，题目是《囚禁：在中（共）国指定居所监视居住秘密监狱内》。该文随即引发各界的广泛关注。
+
+![](https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/al-10192021142022.html/@@images/b2c58320-5605-4846-8e34-571eaa2efaed.png)图片来源：保护卫士报告截图
+
+据悉，该报告详细曝光了中共“指定居所监视居住”制度的非法监禁和酷刑折磨问题，并收录了包括香港铜锣湾书店前店长林荣基、前加拿大外交官康明凯等人的经历。
+
+报告披露，自2013年至今，中共以此方式秘密囚禁了近六万人。2016年，“保护卫士”的主任彼得‧达林也曾在中共国被“指定居所监视居住”。他说，这是共产党政府在正式拘捕你之前特设的一个专门系统，可以将人非法关押长达六个月之久。他还补充道，这些都是由警察和安全部门营运的秘密专门场地，被关押人没有权利和家人沟通或者接受法律咨询，基本上等同于人间蒸发。
+
+达林表示，“保护卫士”组织已向联合国相关部门提交报告。据他了解，联合国已经严辞谴责了中共国的相关行为，并准备根据最新证据做进一步行动。
 
 （本文仅代表作者观点）
 
-![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+参考阅读：
 
-总编：Jack Li文阳
-编辑：Kathy文艺
-校对/发稿：Hetangyuese
+[“指定居所监视居住”：法外监禁、酷刑折磨](https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/al-10192021142022.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+***编辑/校对/发稿：Irene木木***
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
  
 

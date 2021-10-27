@@ -2,22 +2,39 @@
 ---
 
 
-## 秘翻在线 :贝索斯加速布局太空商业时代的行动
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1619907/)
+## 联邦通信委员会取消中国电信在美运营资格
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1619994/)
 
-撰稿：William
-校对：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/圖片2.png)
-图片来源：The Verge
+#### 撰稿：billwilliam
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-99.jpg)图片来源：网络截图
+10月26日，美国联邦通信委员会勒令中国电信在60天内停止在美国运营服务，意味着这家中共国企正式被踢出美国。联邦通信委员会公告说此举是为了保护通信基础设施免遭国家安全威胁。联邦通信委员会稍后会公告消费者如何转入其它移动运营商。
 
-根据《零对冲》(Zero Hedge) 的报导,虽然国际空间站(International Space Station)是人类在国之国间最伟大的合作努力成果之一，但却长年缺乏维护保养。为了避免可能发生的严重紧急情况，杰夫·贝佐斯(Jeff Bezos)的蓝色起源(Blue Origin)宣布建立一个自由飞行的空间站，称为轨道礁(Orbital Reef)。
+联邦通信委员会列举六项理由，取消中国电信在美国的经营权，或214法案授权：
 
-蓝色起源(Blue Origin) 正与埃隆·马斯克的 SpaceX 和其他公司竞争，以确立自己在新兴的航天工业中的先驱地位。不仅仅只是蓝色起源( Blue Origin )的研究人员，轨道礁(Orbital Reef) 允许所有来自工商业以及国际合作夥伴在那里作业。轨道礁(Orbital Reef )同时获得到波音、亚利桑那州立大学以及太空基础设施集团Redwire Space和 Genesis Engineering Solutions 的支持。
+- 此命令认为中国电信美国分公司受中共政府的影响、操控，并且会在没有独立司法监督的情况下被迫屈从于中共政府的要求。
+- 自中国电信20年前被授权在美国经营起，该公司被中共政府拥有并控制，严重威胁美国国家安全和正常执法。中共政府可以进入、储存、干扰、或将美国的通信信息绕道其他地方，从而使中共有能力从事间谍或其它危害美国的行为。
+- 联邦通信委员发现中国电信美国分公司缺乏诚信。
+- 其它改革方案不能解决对国家安全和正常执法的担忧。
+- 中国电信美国分公司曾于2007年向行政部门提交过保证信，然而却故意违反信中5项条款中的2项。遵守条约是维持其214法案授权的条件之一。
+- 行政部门提供的未公布的机密证据支持此决议。
 
-该空间站最多可容纳 10 人，设有独立的生活区和开展科学活动。根据蓝色起源( Blue Origin )的说法，空间站将有效地成为太空的复合用途服务园区。该机构已经与另一家私营公司 Axiom 签订合同，开发一个可以与国际空间站对接的空间站。
 
-近年来，太空科技进展迅速。SpaceX已有能力发射可重复使用的火箭，并于今年9月成功地将四名普通乘客进入地球轨道。现在杰夫·贝佐斯的蓝色起源(Blue Origin)及布兰森的维珍银河(Virgin Galatic)也争相开展太空旅行的商业行动。
+美国司法部2020年4月就曾建议联邦通信委员会取消中国电信在美国的运营资格，因为其威胁美国国家安全。今天是正式颁布强制令的日子。而2021年初，纽约证交所曾命令三家中共国电信企业（中国电信、中国移动、中国联通）退市，此后三家企业撤回香港股市。此次的禁制令是对中国电信的进一步打击。
 
-”人类都要进入太空了，中共还想着打台湾? 地球已被污染得十分严重，人类必须寻求新的能源及生机。2025年之后，谈到习近平、马云这些人，就像在谈太平天国一样的可笑!”文贵先生在直播中，明确指出，未来人类的方向必须抛弃旧有的思维，寻求太空的发展是必然也是必要的抉择。
+联邦通信委员会同时也在打击其它的中共通信企业，保护美国国家安全。今年三月，联邦通信委员会展开努力以取消中国联通在美国的运营资格。去年，华为和中兴被定义为国家安全威胁，美国公司不得使用政府款项购买这两家公司的产品（虽然政治勾兑让孟晚舟回到了中共国）。美国仍然在缓步推进与中共国拖钩，只是速度慢了些。
 
-新闻来源：[Bezos’ Blue Origin Unveils Plans For Commercial Space Station](http://Bezos'%20Blue%20Origin%20Unveils%20Plans%20For%20Commercial%20Space%20Station)
+信息来源：
+
+1. [FCC Revokes China Telecom America’s Telecom Services Authority](https://www.fcc.gov/document/fcc-revokes-china-telecom-americas-telecom-services-authority)
+2. [FCC revokes China Telecom America’s authority to operate in US](https://www.msn.com/en-us/news/world/fcc-revokes-china-telecom-america-e2-80-99s-authority-to-operate-in-us/ar-AAPYOM8)
+
+
+ 
+
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+
+- [ROL Foundation](https://rolfoundation.org/)
+- [ROL Society](https://rolsociety.org/)
+- [Terms of use](https://gnews.org/terms-of-use-3/)
+- [Privacy Policy](https://gnews.org/privacy-policy/)

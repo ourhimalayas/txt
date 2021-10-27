@@ -2,32 +2,25 @@
 ---
 
 
-## 苹果将成为中国最后一个美国科技巨头吗？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1619439/)
+## 有声|盖特用户逼近300万，已经成为真正的全球媒体平台
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1619591/)
 
-编译：蚂蚁兄弟
+配音：香草山美食部 – 玫瑰园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-464.png)图片来源： sport.es
+10月24日，盖特首席执行官杰森·米勒先生在接受澳洲媒体采访时说，盖特用户不会因为在政治问题上发表意见而被“置于数字监狱”。
 
-曾几何时，美国的科技巨头都汇集在中共国，包括脸书。而今日苹果公司在中共国的巨大存在似乎越来越引人注意。上周，仍然在中国运营的微软宣布，它将关闭其在中国的社交网络LinkedIn。该公司表示，必须遵守中国国家的规定已经变得越来越具有挑战性，所以他们最终放弃了。
+米勒先生表示，盖特自今年7月4日推出以来“像火箭一样起飞”，已经拥有近300万用户。其中美国本土客户占47%，美国以外的客户占53%，因此，盖特成为真正的全球媒体平台。
 
-苹果公司在国内也有自己的审查问题。英国媒体BBC上周报道说，两个流行的宗教应用程序已从苹果的应用程序商店中删除。后来发现，亚马逊旗下的Audible和雅虎财经应用也被删除。监测App Store的组织说，本月被删除的应用程序有所增加。
+文字版原文：[盖特用户逼近300万，已经成为真正的全球媒体平台](https://gnews.org/zh-hans/1617051/)
 
-美国公司在 “科技大打击”中也未能幸免。苹果和微软都意识到，他们的地位比近年来更加脆弱。“中国的长城“一书的作者James Griffiths说：“他们知道他们必须谨慎行事”。
+音频处理：喜山必胜Maverick
 
-**简评：**
-
-**中共的网络防火墙，封住了国人的嘴，蒙蔽了国人的眼，同时阻碍了整个中国科技和文化的发展。在一个言论和信息不能自由的国度里，在这个信息飞速发展的大数据时代，任何一个互联网的科技公司在中国是没有前途的。**
-
-**中共堵死了中国人发展的道路。**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**参考资料：**[sport.es][¿Será Apple el último gigante tecnológico estadounidense que quede en China?](https://www.sport.es/es/noticias/tecnologia/sera-apple-ultimo-gigante-tecnologico-12373149)
-
-* * *
-
-*审核：Aires的星
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

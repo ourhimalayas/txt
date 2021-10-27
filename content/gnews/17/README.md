@@ -2,29 +2,56 @@
 ---
 
 
-## 宾夕法尼亚州考虑制定法案 允许居民就审查制度起诉大型科技公司
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1620002/)
+## 美参院外委会通过法案，制裁危害南海安全的中共国民众实体
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1620088/)
 
-#### 撰稿：Grace
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-71.jpg)图片来源：网络截图
-据大纪元10月26日报道，宾夕法尼亚州的两名参议员正在寻求通过一项法案，允许当地居民起诉那些基于政治或宗教观点审查其账号的内容的社交媒体公司。
+作者：纽约香草山医疗部 – 云豹
 
-参议员道格·马斯特里亚诺Doug Mastriano和斯科特·哈钦森Scott Hutchinson提出了名为《社交媒体责任法案》（Social Media Accountability Act）的州参议院604号法案（state Senate Bill 604），该法案将允许个人起诉Facebook，YouTube和Twitter等大科技社交媒体公司, 对其账号封锁或审查的行为。
 
-该法案的当前版本表明，个人可获得高达75,000美元的赔偿。该法案还要求社交媒体供应商在30天内，明确说明任何封锁或禁用账户的原因，并提供恢复账号的行动方案。
 
-马斯特里亚诺在一份声明中说: “我们的言论自由权利，在第一修正案中得到了明确的体现。这种权利不应该止于社交媒体的公共领域。社交媒体公司正在审查那些说出不同的宗教和政治观点的用户，因为他们触犯了有敏感情绪的大科技寡头。我们的法案将允许宾夕法尼亚州的普通公民起诉，可以要求赔偿高达75,000美元的损失，使这些审查者承担责任。”
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-哈钦森也发表声明说：“近年来，我们看到了许多对社交媒体用户进行不公平、不一致且往往是片面审查的案例。” “我们立法的目标是确保所有社交媒体用户无论他们的政治和宗教信仰如何，都得到公平对待。”
 
-据报道，该法案已提交给消费者保护和专业许可委员会（Consumer Protection & Professional Licensure Committee），目前正在等待投票。
 
-在今年的5 月，佛罗里达州州长罗恩·德桑蒂斯 Ron DeSantis签署了一项法案，允许公司就审查问题起诉社交媒体公司。
+10月19日，美国参议院外委会通过了由共和党籍参议员卢比欧（Marco Rubio）及民主党籍参议员卡定（Ben Cardin）在5月17日共同提出的跨党派“南海与东海制裁法案”（South China Sea and East China Sea Sanctions Act）。
 
-佛罗里达州的法案，即参议院法案 7072，重点关注于有可能因社交媒体审查而失去业务的组织。
+![](https://imgcdn.cna.com.tw/www/WebPhotos/800/20210104/800x600_736958949142.jpg)图片来源：中央通讯社
 
-**新闻来源：**[**Pennsylvania Considers Bill That Would Allow Residents to Sue Big Tech Over Censorship**](https://www.theepochtimes.com/pennsylvania-considers-bill-that-would-allow-residents-to-sue-big-tech-over-censorship_4067583.html?welcomeuser=1)
+该法案中要求，在法案生效的60天后，美国总统可以制裁涉入开发南海争议海域的中共国个人或实体，牵涉内容涵盖填海造岛、建造灯塔、通讯服务基地台、电力及燃料供应设施、民间基础建设工程等项目。
+
+消息称，该法案授权总统三项可动用的制裁措施，包括可以冻结涉案人在美国的资产、拒绝其入境及撤销现有的签证。
+
+参议院外委会主席梅南德兹（Bob Menendez）表示，这是一部重要的法案，可以支持美方采取强硬措施来对抗中共在南海、东海的侵略行为。 卢比欧呼吁参议院能迅速通过该法案。
+
+接下来，此法案需送交参议院全院审议，如获得通过后，必须再交由众议院审理。 待参众两院都通过并递交总统签署后，该法案才能生效。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+[美參院外委會通過法案 制裁危害南海穩定中（共）國人士](https://www.cna.com.tw/news/firstnews/202110200012.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
  
 

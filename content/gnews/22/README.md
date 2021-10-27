@@ -2,40 +2,55 @@
 ---
 
 
-## 在学校垃圾内容方面，TikTok 将成为国会听证热点
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1619963/)
+## 格芯公司首次公开发行5500万普通股
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1620059/)
 
-*【简评：】TikTok（抖音）是中国字节跳动公司短视频分享平台的海外版，早在去年8月，特朗普总统曾发布对TikTok的封杀令。然而，时隔一年，禁令虽然被撤，但TikTok近日再遇监管危机，被请去参加美国参议院商务委员会关于儿童上网安全的听证会，被质问可能诱导儿童和青少年偷窃或破坏学校设施。毫无疑问，TikTok对社会和儿童日益增长的负面影响不容被忽视，*
+作者：波士顿五月花农场 – 葛朗台太太
 
-据《路透社》记者：Diane Bartz, Sheila Dang和David Shepardson，2021年10月26日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-470.png)2020年9月15日，TikTok的标志在该公司位于美国加利福尼亚州卡尔弗城的美国总部外。图片来源：路透社/Mike Blake
-《路透社》华盛顿10月25日 —— 当TikTok和其他大型社交媒体公司周二出席国会的听证会时，TikTok将面临有关可能诱导儿童和青少年偷窃或破坏学校浴室及其他设施的内容问题。
 
-参议院商务委员会在设定一场以TikTok、Alphabet（GOOGL.O）旗下的YouTube和Snapchat（SNAP.N）为重点的听证会时说，这些流行的应用程序“被滥用于伤害儿童和促进破坏性行为。如在学校的破坏行为、致命的病毒挑战、欺凌、渴吃失调、操纵的影响者营销和诱导行为。”
 
-《路透社》在听证会前审阅了他准备好的证词，TikTok美洲公共政策负责人迈克尔*·*贝克曼说，该公司的审核团队致力于迅速删除任何被称为“狡猾的舔食”的内容。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-TikTok上的“狡猾的舔食”趋势推动了学生从学校偷窃或破坏学校设施。
 
-贝克曼的证词说：“我们最近看到与‘狡猾的舔吃’有关的内容在TikTok和其他平桌子上获得了吸引力，我们的审核团队迅速工作，删脱了这些内容，并重新定向冲签和搜索结果……以阻止这种行为。”
 
-贝克曼补充说，TikTok“就这一违规内容向我们的团队发布了专门的指导意见，并主动检测和删除内容，包括与该趋势相关的视频、标签和音频，包括寻找可能用于躲避版主的拼写变体。”
+10月19日 ，格芯公司宣布，将首次公开发行5500万股的普通股，其中，有3千3百万股由格芯公司提供，另外2200万股由格芯现股东穆巴达拉投资公司提供。消息称，股票首发价格预计为每股42至47美金，预计总共将募集23亿至25亿美元。
 
-Snap Inc的全球公共政策副总裁Jennifer Stout在准备好的证词中说，Snapchat不是为内容的病毒式传播而设计的，而是专注于朋友之间的对话。专业创作的媒体内容和某些在该应用上受到关注的故事都是由版主真人审核的。
+![](https://cdn.mos.cms.futurecdn.net/UQZKfuqADWAD3h7sEVezMF-320-80.png)图片来源：GlobalFoundries
 
-YouTube负责公共事务的副总裁莱斯利*·*米勒(Leslie Miller)声称，该公司努力鼓励健康的生活习惯，并确保儿童只看到适合其年龄的材料。该公司被指控是一个错误信息的宝库，从政治到冠状病毒疫苗都有。
+依据最高发行价和流通股推算，格芯的估值将达250亿美元。据悉，格芯申请在纳斯达克上市，股票代码为“GFS”。至于穆巴达拉投资公司，在出售2200万股票后，其仍将持有格芯89.4%的股份和投票权。
 
-听证会是对两党立法者所认为的大科技公司对竞争、社会和儿童日益增长的负面影响进行的漫长调查的最新部分。
+由BlackRock, Inc.的子公司管理的某些基金和账户、由Columbia Management Investment Advisers LLC与Fidelity Management & Research Company LLC 关联的某些实体、Koch Strategic Platforms LLC的某些附属公司管理的某些基金和账户，以及Qualcomm Incorporated（统称为“基石投资者”）已表示有兴趣在本次发行中以与首次公开发行价格相等的每股价格购买总价约为10.5亿美元的普通股。
 
-原文连接：[https://www.reuters.com/technology/tiktok-be-congressional-hotseat-over-school-trashing-content-2021-10-25/](https://www.reuters.com/technology/tiktok-be-congressional-hotseat-over-school-trashing-content-2021-10-25/)
+（本文仅代表作者观点）
 
-翻译：洛杉矶盘古农场 – TrueSky
+参考阅读：
 
-校对/编辑：洛杉矶盘古农场 – 明子
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉磯盤古農場歡迎您加入:(或點擊上方圖片）
+1. [Form F-1 REGISTRATION STATEMENT UNDER THE SECURITIES ACT OF 1933](https://www.sec.gov/Archives/edgar/data/0001709048/000119312521301511/d192411df1a.htm)
+2. [GlobalFoundries Announces Launch of Initial Public Offering](https://gf.com/press-release/globalfoundries-announces-launch-initial-public-offering)
+3. [Mubadala to Keep Control Over GlobalFoundries After IPO](https://www.tomshardware.com/news/mubadala-to-keep-control-over-globalfoundries-after-ipo)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
  
 

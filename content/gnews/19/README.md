@@ -2,57 +2,54 @@
 ---
 
 
-## G时评：我可以变老变丑吗？
-` GISELLE` [轉載自GNews](https://gnews.org/zh-hans/1619987/)
+## 英国和新西兰首相承认新冠疫苗政策的专政本质
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1620062/)
 
-**作者/图片设计：Giselle**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/304.png)
-1
+作者：纽约香草山信息部 – 诺雅
 
-我爱你，所以你不能变老、变丑……
 
-我爱你，但我受不了你变老、变丑时的样子……
 
-这是很多人的逻辑。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
 
-2
 
-我可以变老、变丑吗？
 
-当然。
+上周五，英国首相约翰逊接受采访时，公开承认，接种两针新冠疫苗并不能防止病毒感染或传播，而政府却仍然向普通民众和学生大力推广第三针加强针。据悉，英国正在考虑建立类似于新西兰、纽约、加利福尼亚等地的疫苗护照制度。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1111.jpg)
+同一天，新西兰总理杰辛达·阿德恩在采访中笑着承认，该国的疫苗认证新系统将创造出严酷的两级社会体系。她进一步表示，在放松限制之前，全国每个地区的90%人口都需要完全接种疫苗。在新西兰，未接种疫苗的人将被限制于参加10人以下的聚会，不能进入餐馆、酒吧和健身房等公共场所。
 
-你是人，是人就会衰老，没有人躲得过去。
+多国官方数据显示，高疫苗接种率并没有防止飙升的新冠病毒确诊率，而且给接种者带来了巨大健康和生命的风险。如班农战斗室所言，疫苗政策揭示出，西方政治领导人实施新冠疫苗政策的真正意图就是专政。
 
-3
+参考链接：
+1. [英国和新西兰首相承认新冠疫苗政策的专政本质](https://rumble.com/vo7hs7-pm-boris-johnson-admits-the-tyrannical-truth-about-the-covid-vaccine.html)
+2. [英国和新西兰首相承认新冠疫苗政策的专政本质](https://thenationalpulse.com/news/new-zealand-pm-calls-for-two-tier-society-as-boris-johnson-admits-vaccine-does-not-slow-spread-of-covid/)
 
-就像被李敖祸害过的大明星胡因梦：
+（本文仅代表作者观点）
 
-他心目中的女神，应该像神仙一样，长生不老，不食人间烟火，她怎么可以便秘呢？她怎么可以在便秘的时候脸憋得通红呢？
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-所以李敖因为胡因梦便秘而离婚了，原因是“她蹲在马桶上，因为便秘脸憋得通红，那个场景实在是太不堪了”！
+总编：飞虹
+编辑：雪梨
+校对/发稿：Hetangyuese
 
-有趣的是，李敖在任何场合从来都不会提起自己也会便秘，甚至腹泻……那种蹲在马桶上、五官狰狞扭曲的场景，一定很“销魂”。
+**更多资讯，更多关注**
 
-4
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-女神也食五谷杂粮，怎么不可以便秘？
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-她不但会便秘，还会生病、长皱纹、打嗝、放屁、变老变丑……
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-你与她结婚之前，就应该具备这些常识，离婚之后找这种借口并且公而告之，只能说明你无知龌蹉！
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-所以，这位曾经令林青霞都稍逊一筹的女神，就这样被自己深爱过的男人伤害，演艺事业全毁，最后几近出家。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-5
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-好莱坞英俊小生李昂纳多发福了，很多人也受不了。李昂纳多也是人，他怎么就不能发福呢？他想不想发福，那是他的权利，就算曾经“帅得惊动党中央”，他也有权利发福。
+ 
 
-假如你真的爱他，你会更在意他是不是开心、快乐、幸福，而不会在意他是否变老、变丑。
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
-因为人人都会变老、变丑，这是自然规律。
-
-6
-
-或许你可以用金钱购买别人的青春，用名利引诱年轻美貌的少女，你永远不用和谁保持长久关系，因为青春可以用金钱来交易……但那绝对不是“爱”。
-
-（文章内容仅代表作者个人观点）
+- [ROL Foundation](https://rolfoundation.org/)
+- [ROL Society](https://rolsociety.org/)
+- [Terms of use](https://gnews.org/terms-of-use-3/)
+- [Privacy Policy](https://gnews.org/privacy-policy/)

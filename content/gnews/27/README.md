@@ -2,19 +2,35 @@
 ---
 
 
-## 辟谣等于自我承认？
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1619919/)
+## 宾夕法尼亚州考虑制定法案 允许居民就审查制度起诉大型科技公司
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1620002/)
 
-韩国首尔天池农场—–梅西 上传——追着曙光跑
+#### 撰稿：Grace
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-71.jpg)图片来源：网络截图
+据大纪元10月26日报道，宾夕法尼亚州的两名参议员正在寻求通过一项法案，允许当地居民起诉那些基于政治或宗教观点审查其账号的内容的社交媒体公司。
 
-[广东新南方青蒿药业公司10月25日在其官方网站发布公告称](http://www.xnfyy.com/xwzx/qiyexinwen/130138.html)：“近日来，在互联网及自媒体上出现了关于我公司生产的青蒿素哌喹片的一系列不实信息，误导广大网民，相关造谣信息已严重侵犯公司声誉。”
+参议员道格·马斯特里亚诺Doug Mastriano和斯科特·哈钦森Scott Hutchinson提出了名为《社交媒体责任法案》（Social Media Accountability Act）的州参议院604号法案（state Senate Bill 604），该法案将允许个人起诉Facebook，YouTube和Twitter等大科技社交媒体公司, 对其账号封锁或审查的行为。
 
-广东新南方青蒿药业公司发布这新闻的时间与郭文贵先生在10月18日的盖特视频中爆料“国内青蒿素的质量和国外青蒿素的质量差距很大，青蒿素和青蒿素哌奎片一定要分清楚”相距很近，加上全世界只有郭先生和新中国联邦在谈青蒿素及有关事项。所以不难推测出，这篇文章中所提及的自媒体就是GTV、Gnews和Getter等G系列媒体平台。
+该法案的当前版本表明，个人可获得高达75,000美元的赔偿。该法案还要求社交媒体供应商在30天内，明确说明任何封锁或禁用账户的原因，并提供恢复账号的行动方案。
 
-[郭先生10月18日盖特](https://gettr.com/post/peihxn8106)：“愿战友们一定谨遵医嘱用药，从目前的情况看，国内的青蒿素的质量和国外的青蒿素的质量差距很大，青蒿素和青蒿素哌奎片一定要分清楚。”
+马斯特里亚诺在一份声明中说: “我们的言论自由权利，在第一修正案中得到了明确的体现。这种权利不应该止于社交媒体的公共领域。社交媒体公司正在审查那些说出不同的宗教和政治观点的用户，因为他们触犯了有敏感情绪的大科技寡头。我们的法案将允许宾夕法尼亚州的普通公民起诉，可以要求赔偿高达75,000美元的损失，使这些审查者承担责任。”
 
-[郭先生10月18日盖特视频](https://gnews.org/zh-hans/1602747/)：“在服用青蒿素哌喹片和青蒿素时，请大家遵从医嘱，务必小心。”
+哈钦森也发表声明说：“近年来，我们看到了许多对社交媒体用户进行不公平、不一致且往往是片面审查的案例。” “我们立法的目标是确保所有社交媒体用户无论他们的政治和宗教信仰如何，都得到公平对待。”
 
-中共国内的官方辟谣新闻往往都是变相承认事实，现在的青蒿素哌喹片的质量很可能有问题，请各位谨慎购买和服用。
+据报道，该法案已提交给消费者保护和专业许可委员会（Consumer Protection & Professional Licensure Committee），目前正在等待投票。
 
-（本文仅代表作者观点，与GNews平台无关）
+在今年的5 月，佛罗里达州州长罗恩·德桑蒂斯 Ron DeSantis签署了一项法案，允许公司就审查问题起诉社交媒体公司。
+
+佛罗里达州的法案，即参议院法案 7072，重点关注于有可能因社交媒体审查而失去业务的组织。
+
+**新闻来源：**[**Pennsylvania Considers Bill That Would Allow Residents to Sue Big Tech Over Censorship**](https://www.theepochtimes.com/pennsylvania-considers-bill-that-would-allow-residents-to-sue-big-tech-over-censorship_4067583.html?welcomeuser=1)
+
+ 
+
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+
+- [ROL Foundation](https://rolfoundation.org/)
+- [ROL Society](https://rolsociety.org/)
+- [Terms of use](https://gnews.org/terms-of-use-3/)
+- [Privacy Policy](https://gnews.org/privacy-policy/)

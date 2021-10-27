@@ -2,39 +2,46 @@
 ---
 
 
-## 全球涨价潮背后的政府剥削
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1618907/)
+## COVID-19最新情報｜瑞典、英國新冠死亡案例 集中於「完全接種者」
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1618967/)
 
-**作者：顺其自然
-编辑：MSGZ**
+**台灣寶島農場 疫情關注組｜發佈日期/ 26/10/2021**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/321-10-800x450-1.jpeg)图片来源：新唐人
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
 
-今年以来，中国煤炭、铜、天然气以及原油等大宗商品价格都出现了大幅上涨。但是与老百姓日常相关的生活用品并没有涨价，但是很多人发现过了个国庆回来，买菜都惊着了，哗的一声全翻倍了，所有的东西全都翻倍了，蔬菜已经开始暴涨。有网友说，他昨晚在菜市场买了一把荠菜，就四颗八块多钱。还有的网友说，他那里是偏僻农村，菜价十元一斤往上，荷兰豆要15元，比肉还要贵。买一根儿黄瓜两块五，另外一个网友说，你一根儿黄瓜才两块五，很便宜啦，我这儿今天黄瓜八块钱一斤，买了两根15块，而且天然气、食用油、面涨的都非常非常多。有网友哀叹，物价这么疯涨，就是钱包儿没涨，还瘪了，消费更难了。我这边有的餐饮店都倒闭了，因为没人去吃饭了。
+瑞典、英國政府分析數據，發現9月因感染新冠病毒死亡者，絕大多數是完全接種者。這一結論，與西方國家於高疫苗覆蓋率的情形，突破性感染數量激增相符合。
 
-这到底是怎么回事呢？我们知道自从拜登上台之后，就大搞刺激政策，使劲的大放水，使得各种大宗物品疯长。像石油、天然气、铁矿石、铜、铝，煤炭，只要你能数得上来的，全部都在疯长，很多制造业企业都已经是快支撑不住了。之前中国的央行没有跟，一直实行的是紧缩策略，一直在承受巨大的外来输入性通胀的压力，坚持了八个月，央行高度收敛了前八个月，九月份终于受不了了，放了一波创记录的洪水。从十月份至今的情况来看，与九月份创记录的洪水差不多。这也是连猪肉都开始由跌转涨的原因。水放的太多了，导致民生产品的价格疯狂上涨。
+#### 瑞典
 
-据美国全国广播公司近日报道，受到美国供应链问题的影响，美国多地学校食堂出现食物、餐具等短缺的现象，引发食堂管理人员的担忧。他们担心如果问题持续得不到解决，学生们的营养将无法得到保障。报道称，近期的一项调查数据显示，有97%的学校营养主管对供应链问题表示担忧，有90%对人员短缺问题表示担忧。根据当地时间10月13日美国劳工部发布的数据，2021年9月美国的消费者价格指数较去年同期上涨5.4%，环比上涨0.4%。同时，9月平均物价中的牛肉、猪肉、鸡蛋等商品价格，与去年同期相比也出现上涨。但涨价只是一方面，由于最近供应链持续紧张，商品短缺也严重影响着人们的日常生活。美国出现这种情况的原因是疫情封锁，劳动力短缺和拜登政府的刺激政策。
+[瑞典媒體](https://www.svd.se/forskare-ser-en-vikande-vaccineffekt-i-sverige)報導，公衛部門報告表示9月1日至24日，約[7成（130例）](https://ourworldindata.org/explorers/coronavirus-data-explorer?zoomToSelection=true&amp;time=2020-03-01..latest&amp;facet=none&amp;pickerSort=desc&amp;pickerMetric=total_cases&amp;hideControls=true&amp;Metric=Confirmed+deaths&amp;Interval=Cumulative&amp;Relative+to+Population=false&amp;Align+outbreaks=false&amp;country=~SWE)新冠確診死者是已經完全接種疫苗。報導進一步分析，死亡主要發生在老年族群，但相關人員仍認為瑞典疫苗保護力有下降趨勢。
 
-现在中国已经已经出现了和美国同样的日常生活用品上涨，未来会不会出现物资短缺呢？看看上世纪80年代末价格闯关导致的超级通货膨胀，人们疯狂的存储一切他们能够储存的物品，食盐、面粉、大米，甚至火柴、肥皂，可想而知，国内的物价这么疯涨下去，很多人又会大量的存储物资了，到那时肯定会出现物资短缺。
+- 相關：[瑞典研究顯示完全接種疫苗後，抗體將在三個月後急劇下降](https://gnews.org/zh-hant/1576453/)
+- 相關：[疫苗與ADE效應](https://www.chop.edu/centers-programs/vaccine-education-center/vaccine-safety/antibody-dependent-enhancement-and-vaccines)
 
-这下中美两国又步调一致了，这不是习近平和拜登非常乐于见到的现象吗？很多人说这波儿物价上涨是由于南方气温突然变冷，以及河南和山西的水灾引起的。不过，这只是其中的一个小原因，最主要的原因还是九月份和十月份央行的大放水。我们知道，老蛮是数据大咖，由于他一直扒中国的各项具体数据，他的微博经常被封，以致于这次他根本就没放具体的数据上来，只说了结论——九、十月份央行大放水。
 
-我们一直在说全球各国债务问题都非常严重，政府的、企业的和个人的，这些政府债务怎么还呢？一种是多收老百姓的税，二是减少政府自己本身的开支，减少政府开支不可能，不增加就已经不错了，这种方法不太可能实行。看看当年春秋时期齐国的管仲是如何解决这个问题的，当时各种都处于战争之中，齐桓公要增加税收，被管仲拦下了。管仲说，民与则喜，夺则怒，民情皆然。先王知其然，故见与之形，不见夺之理。这句话的意思就是很简单，你给东西老百姓就开心，从他那儿拿，他们就发怒，你想增加税收，得通过无形的手段，不能直接加税。得寓税于价，就是价格里包含了税，不让老百姓，看到自己直接纳了税，这样的话，老百姓心理上才能过得去。
+#### 英國
 
-所以全世界各国都采取这种办法来加税，就是拼命的提高商品价格，原本100块钱的东西，收17元的税，17元就被政府拿走了。现在同样的东西长到了200块钱，税就是34，政府就拿走了34块钱。政府通过这种隐形的手段多拿走了老百姓手里的钱，你无形中就变得越来越穷，而政府就可以通过这种办法还债了，因为债务是不变的。另外政府通过这种手段再向社会搜刮一番。
+英國衛生部門數據顯示，瑞典情形也在英國發生。[英國、瑞典的疫苗接種率](https://coronavirus.data.gov.uk/details/vaccinations)幾乎相同。
 
-2千年来的专制王朝实行的一直是外儒内法，就是一直实行的是商鞅那一套。商鞅那一套就是贫民、苦民、疲民、弱民、辱民。如果老百姓有钱了，就会寻求这权利那权利的。只有让他们整天为生计而奔波，他们才会无暇顾及生存以外的权利。所以物价飞涨达到了这两个目的，贫民和苦民，还缓解了债务的问题。但这也是一项技术活，就是怎么样薅羊毛，还要让这个羊感到痛又不能闹，还逃不掉，薅下的羊毛还能顶事儿，这个就是技术官僚儿如何操作的问题了。
+英國衛生安全局 (UKHSA) 於 10 月 7 日發布[報告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1023849/Vaccine_surveillance_report_-_week_40.pdf)，9月份大多數的死亡病例都已經完全接種疫苗。突破性感染而住院治療的病患，也是完全接種者佔多數。UKHSA 的數據顯示，「完全接種疫苗」死亡數量有2281人，遠高於未接種疫苗、部分接種疫苗。
 
-若是通胀太厉害了，老百姓就会闹事，这也是白等政府和习近平政府将要面临的最大挑战。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
 
-**发布：**Janek
+> Surging [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) in UK with 49,156 new cases and 45 new [#deaths](https://twitter.com/hashtag/deaths?src=hash&amp;ref_src=twsrc%5Etfw) reported on 18 October 2021. 78.9% of all aged 12 and up are DOUBLE VACCINATED. [#Breakthrough](https://twitter.com/hashtag/Breakthrough?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Geoffrey Norman Pain (@FluoridePoison) [October 18, 2021](https://twitter.com/FluoridePoison/status/1450225202353225729?ref_src=twsrc%5Etfw)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
+- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
+- 相關：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
+- 相關： [COVID-19最新情報｜為何政府「忽視」自然免疫？](https://gnews.org/zh-hant/?p=1610194%28%E5%9C%A8%E6%96%B0%E5%88%86%E9%A0%81%E4%B8%AD%E9%96%8B%E5%95%9F%29)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/18-6.jpg)
+* * *
+
+新聞來源｜[Natural News](https://www.naturalnews.com/2021-10-25-majority-of-covid-deaths-are-fully-vaccinated.html)
+轉譯｜zhong
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
