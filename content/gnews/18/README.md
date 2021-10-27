@@ -2,26 +2,29 @@
 ---
 
 
-## 美食品药物监管局支持为低龄儿童接种疫苗
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1621683/)
+## 有声|郭文贵先生对新中国联邦人强调“爱”的重要性
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1621707/)
 
-采编：文明    编译撰稿：文明(添草灭共)
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月24日文贵大直播中，郭文贵先生说：人类生存的价值大部份来自家庭，人最重要的关系就是家庭关系，而家庭中父母就是重中之重。郭先生曾经要求盘古员工必须孝敬父母，做不到就别来上班。一个父母都不尊重的人，说什么郭先生都不会尊重他。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/aa-edited.jpeg)图片来源：CBC
+共产党这个魔鬼，毁了家庭，以爹亲娘亲不如党亲来洗脑人民，让人不孝敬父母。造成了太子爷般的儿子、孙子打父母，打爷爷奶奶；媳妇打公公等丧绝人伦之事。这种恶是郭先生决心灭共的最早起因。
 
+郭先生强调：新中国联邦人，不管你有什么信仰，不把父母和家人放在第一位，不把爱和爱人放在第一位，你永远不会是新中国联邦人。家和万事兴。“和”来源于“爱”，没有“爱”就没有“和”；没有“和”，“家”就站立不住；没有“家”，就没有“国”。因此，“家”是“国”的根本。而“爱”是“家”的根本，因此，没有“爱”就不配做新中国联邦人。
 
-据【NBC新闻】10月26日报道，【美国食品和药物监督管理局】专家委员会于当天完成表决，以17票赞成、0票反对、1票弃权的结果支持对该国5至11岁儿童接种【辉瑞公司】产“新冠病毒疫苗”。
+文字版原文：[郭文贵先生对新中国联邦人强调“爱”的重要性](https://gnews.org/zh-hans/1618184/)
 
-此前，辉瑞公司曾表示，该年龄段儿童群体的该疫苗剂量是成人的三分之一，并称该剂量足以发挥其防护作用。专家委员会因此认为，向5至11岁儿童提供该疫苗在预防“新冠病毒”方面的好处大于潜在风险。
-
-目前，美国政府已完全批准该疫苗在16岁及以上群体的接种授权。而对于12至15岁群体，则已批准其可在紧急授权下使用。【美国食品和药物监督管理局】的决定通常遵循其专家委员会意见，一旦被正式批准，该国5至11岁儿童就将开始接种该疫苗。
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-[原文链接：](https://www.nbcnews.com/health/health-news/fda-advisory-panel-oks-pfizer-vaccine-kids-5-11-rcna3726)
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

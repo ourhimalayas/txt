@@ -2,52 +2,126 @@
 ---
 
 
-## 阿拉巴马州州长签署州长令抗击联邦疫苗强制令
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1621722/)
+## 喜联将是全球通用的未来金融系统
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1621747/)
 
-**翻译：** 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Alabama-Gov.-Kay-Ivey-700x420-1-edited.jpg)图片来源：网络
-来自THE EPOCH TIMES 星期二26日的新闻报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2659.png)
+[https://gtv.org/video/id=617937c8247c5a3f9090a9bc](https://gtv.org/video/id=617937c8247c5a3f9090a9bc)
 
-阿拉巴马州州长 凯艾维Kay Ivey (R-共和党) 周一签署了一项行政命令，要求各机构不遵守联邦冠状病毒疫苗的规定。
+郭文贵
+Miles Guo
 
-724 号行政命令宣布“不执行联邦 COVID-19 疫苗接种强制令”立即在全州生效。
+你说到这儿
+When you talk about this
 
-该命令说：“立即生效，州政府行政部门内的任何机构、部门、懂事会、委员会或其他实体不得以州法律的名义对任何企业或个人的违规行为进行处罚。”
+我觉得特别有意思
+I found something very interesting
 
-艾维与周一州长令一起发布的书面声明称，疫苗强制要求“令人发指的使用过度”。
+昨天下午的时候
+Yesterday afternoon
 
-“联邦政府令人发指的过度扩张只是让我们别无选择，只能开始采取行动，这就是我发布此行政命令以对抗这些恶劣的 COVID-19 疫苗强制令的原因。阿拉巴马人——和美国人一样——应该而且必须有选择去卷起袖子打疫苗，一定不是受政府强迫，”艾维写道。
+我跟一个日本的
+I was talking on the phone to a Japanese
 
-“虽然拜登总统嘲笑保护你的自由的想法，但我将继续为阿拉巴马州的企业及其员工而战，”州长补充道。艾维还表示，拜登白宫“再次挫败了”美国人民。
+我一个朋友的孩子通电话
+one of my friend’s child
 
-“如果联邦政府继续强行这些新的联邦法令，那么拜登白宫再次辜负了美国人民。正如我所说，毫无疑问，这将在联邦法院受到挑战，”州长写道。
+他说
+He said: “Uncle Miles,
 
-艾维特别声明，作为州长，她不会强迫任何人接种 COVID-19 疫苗。“我坚决反对与 COVID-19 疫苗相关的联邦指令，坚决反对与 COVID-19 疫苗相关的州指令，简单明了。只要我是你们的州长，阿拉巴马州就不会强迫任何人接种 COVID-19 疫苗，”她写道。
+你给我讲讲这个
+please tell me about
 
-“通过今天的州长令，阿拉巴马州正在明确我们在这个问题上的立场。回应拜登总统，仅有州的法律是不够的。法院是解决这个问题的地方。今天是这场斗争的第一步，但肯定不是最后一步，”艾维补充道。州长在结束声明时指出，她所在州的人民“强烈反对”冠状病毒疫苗的强制要求。
+喜马拉雅币和法币
+Himalayan currency and Fiat currency
 
-“阿拉巴马人压倒性地反对拜登的这些令人发指的命令，我坚定地支持他们，”艾维写道。
+还有一个货币
+and currency
 
-阿拉巴马州加入了之前其他州的类似行动。德克萨斯州州长 Greg Abbott (R) 最近还发布了一项行政命令，反对孤星州 （Lone Star State）的任何“实体”强制执行 COVID-19 疫苗规定或要求提供疫苗接种证明。
+这个之间的不同
+What are the differences between them?”
 
-佛罗里达州州长 Ron DeSantis (R) 最近也就冠状病毒疫苗强制命令发声。他召集州立法者 召开特别会议，审议一项法律，禁止他认为不利于工人和企业的疫苗令。
+他是哈佛
+He is Harvard’s
 
-**点评：**
+最年轻的金融博士
+the youngest Ph.D. in finance
 
-很高兴看到美国越来越多的州长们站起来反对拜登政府的违反宪法的疫苗令，违反美国人民追求自由的强权政治必然是难以行的通。正义的州长们发声与行动将极大地提醒和鼓舞各州人民的反强制疫苗运动。 美国人民绝不希望美国成为像北韩，古巴或中共那样的独裁霸道、反人民的国家。
+日本东京大学
+and the University of Tokyo in Japan
 
-原文链接：[https://www.theepochtimes.com/alabama-governor-signs-order-to-fight-federal-vaccine-mandate\_4069651.html](https://www.theepochtimes.com/alabama-governor-signs-order-to-fight-federal-vaccine-mandate_4069651.html)
+就是最年轻的
+He was the youngest
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+当时所谓的出来的博士
+who claimed Ph.D. in that time
 
-编辑/发布：LILY
+超牛这孩子，他爸跟我很好
+This child is super brilliant, and his father has a good relationship with me
 
-20211027
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+我讲了讲法币、货币
+I described Fiat currency and currency
 
+他跟我讲了一句话
+He simply told me
 
+他说
+He said
 
+我没想到郭叔你这么厉害这么懂
+I didn’t expect Uncle Miles you know that so well
+
+把我笑喷了
+He made me laugh
+
+我说这个喜马拉雅系统
+I said this Himalayan system
+
+是我设计的呀
+was designed by me
+
+他就没想到他郭叔有这么牛
+He had never expected that his Uncle Miles was so awesome
+
+他说
+He said
+
+郭叔
+Uncle Miles
+
+这个事情如果跟你说那样
+if this business as you mentioned
+
+和我了解的一样的话
+were the same as I learned
+
+这个是世界上真正的、人民的
+This would be the truly
+
+为全球通用货币的未来
+universal currency for people to use globally
+
+金融系统
+the future financial system
+
+* * *
+
+Date: 10/25/2021
+原视频标题: 喜联将是全球通用的未来金融系统
+Himalayan Exchange will be the future universal financial system
+原视频日期：2021/10/22
+原视频链接: [https://twitter.com/se1y7cblljselva/status/1452235873328656384?s=24](https://twitter.com/se1y7cblljselva/status/1452235873328656384?s=24)
+任务编号：KC200(2659)
+视频时间段 : 0:00-1:07
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

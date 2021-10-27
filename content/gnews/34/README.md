@@ -2,41 +2,36 @@
 ---
 
 
-## 数百名温哥华岛卫生工作者逾期未接种疫苗被解雇
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1621411/)
+## 中共要求许家印以个人财富偿付恒大债务
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1621453/)
 
-**翻译：**卢卡斯
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片186787687.png)图片来源：网络
-超过 4,000 多名不列颠哥伦比亚省的医护人员由于未接种疫苗而失业，其中包括数百名温哥华岛的医护人员。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月26日，据消息人士透露，中共当局要求许家印拿出个人财富，以应对越来越严重的债务危机。
 
-这些在医疗保健机构工作的人员，包括学生、医生、合同工和志愿者，接种疫苗的截止日期是周二（10 月 26 日）。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-12.jpeg)
 
-该省卫生部长阿德里安·迪克斯 (Adrian Dix) 在周二的新闻发布会上宣布，所有未接种疫苗的医护人员都应该寻找新工作，因为他们现在失业了。
+据悉，恒大曾于9月下旬未能兑付一笔到期的美元外债利息，随后，中共要求许家印以私人财产偿付。在一个月的宽限期内，恒大筹集了八千三百五十万美金，全额偿还了那笔美元利息，避免了实质违约。然而，恒大另一笔美元外债利息的30天宽限期将于10月29日本周五到期；至2022年，还将有一笔7.4亿美元的在岸和离岸债券到期。
 
-“我们所有人在这一时刻都非常严肃，因为接种疫苗的要求在我们的医疗保健系统中是绝对必要的，”迪克斯补充说。 “那些目前无法工作的人，今天和未来几天，他们将正式失业。”
+数据显示，许家印的净资产已经从2017年高峰时期的四百二十亿美元，缩减至如今的大约78亿美元。截至今年6月，恒大的总负债已达3000多亿美元。
 
-根据省级数据，BC 省的绝大多数医护人员确实接种了疫苗，这表明共有 126,343 名工人至少接种了一剂疫苗接种。
+自恒大债务危机爆发以来，中共政府虽严密监控着恒大的银行账户，但其目的是为了确保恒大的现金将被用于未完成的住房项目，而不是用于赔偿支付债权人，包括各种理财产品的受害者。
 
-在这些医护工作者中，119,627 人接种了两剂或更多剂， 2,626 人部分接种了疫苗。 然而，卑诗省的 4,090 名医护人员仍然未接种疫苗。
+参考链接：[Beijing Tells Evergrande’s Billionaire Founder To Repay The Insolvent Company’s Debts](https://www.zerohedge.com/markets/beijing-tells-evergrandes-billionaire-founder-repay-insolvent-companys-debts)
 
-在 温哥华岛医护人员内部，有 678 人没有接种疫苗，仅占 总数为23,000 名工作人员的 3%。这些人包括护士、医生、护理助理和医疗行政部门的工作人员。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-BC 省医生协会主席 Matthew Chow 博士表示，虽然 97% 的在卫生当局经营的医院和诊所工作的医生都接种了疫苗，但该省正在努力扩大疫苗接种范围，以包括那些在私人诊所工作的医生。
+总编：山本不惑
+编辑：山本不惑
+校正/发稿：谐趣园
 
-“作为医疗保健专业人士，我们最终得到了公平的警告，这最终也将适用于私人诊所，”Chow博士说。
-
-迪克斯说，如果现在失业的医护人员确实接种了疫苗，他们就可以重返工作岗位。
-
-**评**：卑诗省政府医疗当局在继续实施医疗暴政，压迫医疗行业执业人员接受毒疫苗接种，并且即将延申到私人诊所从业者。那些出于种种原因已经接种了毒疫苗的医护工作者占了总数的97%，这让医疗当局有了更有理由施行疫苗暴政。这些拒绝接种疫苗医护人员应当勇敢站出来发声，说出他们知道的中共病毒疫苗的真相，唤醒民众反抗医疗暴政。医疗暴政遇到强烈的反抗，并且正义的力量大过黑暗势力的时候，才会妥协退让，直到放弃。
-
-原文：Hundreds of unvaccinated Island Health workers fired for missing deadline
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：LILY
-
-20211027
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
