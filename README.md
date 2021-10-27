@@ -129,29 +129,29 @@
 ### [在学校垃圾内容方面，TikTok 将成为国会听证热点](/content/gnews/38/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共国经济可能比想象中更快地“停摆”](/content/gnews/39/README.md)
+### [伊利诺斯州的护士们赢得了针对疫苗强制令的临时限制令](/content/gnews/39/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共国经济可能比想象中更快地“停摆”](/content/gnews/40/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [阿拉斯加州也欢迎未接种疫苗的警察去工作](/content/gnews/40/README.md)
+### [阿拉斯加州也欢迎未接种疫苗的警察去工作](/content/gnews/41/README.md)
  ` HimalayaRussia`
 
-### [辟谣等于自我承认？](/content/gnews/41/README.md)
+### [辟谣等于自我承认？](/content/gnews/42/README.md)
  ` 首尔天池农场`
 
-### [2021/10/26墙内世界](/content/gnews/42/README.md)
+### [2021/10/26墙内世界](/content/gnews/43/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国海军部长视察日本航母化护卫舰“出云”号，针对中共意味强烈](/content/gnews/43/README.md)
+### [美国海军部长视察日本航母化护卫舰“出云”号，针对中共意味强烈](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [习近平准备为中国经济踩刹车：他有什么计划？](/content/gnews/44/README.md)
+### [习近平准备为中国经济踩刹车：他有什么计划？](/content/gnews/45/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2018月5日13日 郭文贵先生直播：文贵的人生导师之一昨晚上仙鹤而去](/content/gnews/45/README.md)
+### [2018月5日13日 郭文贵先生直播：文贵的人生导师之一昨晚上仙鹤而去](/content/gnews/46/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [中共国大使馆涉嫌干预丹麦选举，撕毁候选人海报](/content/gnews/46/README.md)
- ` 秘密翻译组-原创组`
 
 ### [有声|投资数字世界收购公司的十一家机构中 八家由中共控制](/content/gnews/47/README.md)
  ` MOSREC`
@@ -183,12 +183,12 @@
 ### [瑞典无限期暂停使用莫德纳疫苗，因导致接种者严重心脏病](/content/gnews/56/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [报告：中共国政权利用好莱坞来塑造中共的正面形象](/content/gnews/57/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [文贵爆料24/10：大厦将倾——许家印的恒大帝国即将崩塌](/content/gnews/58/README.md)
+### [文贵爆料24/10：大厦将倾——许家印的恒大帝国即将崩塌](/content/gnews/57/README.md)
  ` 秘密翻译组-原创组`
 
-### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/59/README.md)
+### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/58/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/59/README.md)
+ ` 秘密翻译组-北美组`
 

@@ -2,21 +2,34 @@
 ---
 
 
-## 文贵爆料24/10：大厦将倾——许家印的恒大帝国即将崩塌
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1614968/)
+## 纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1534601/)
 
-撰稿：Ermat【㊙️翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-24-at-1.00.32-PM.png)
-一场风暴来临之前总有很多明显的征兆。郭文贵先生在10月24日的大直播中，讲述了很多实例，预示了许家印的恒大帝国即将轰然倒塌。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-CN.jpg)
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-- 去年2020年，许家印在赚钱的时候，他对香港的恒生银行的人说，你买我们股票了，买了赶快卖。他说，我很相信你炒股的手段，但你就听我的卖了。
-- 徐家印的一个小女明星朋友买了一堆恒大的房子。许家印说，你把这些房子赶快都卖了，打折子也要卖。
-- 徐家印在荷兰、丹麦和意大利的几个替他在外边藏钱的人大概在几个月以前的时候，就把他们东西变成了瑞士币，并且把资产很便宜地卖掉。
-- 在美国，许家印有个很重要的一个办公室，我超级喜欢啊，叫七十七楼的办公室啊，也是徐家印的手下买的，五折要卖给我，他光装修就花了六千万。那真漂亮啊，就在五十七街那个位置啊。你想想，他要但凡有一点希望，他干嘛又把这个这么牛的办公室，那是许家印的老窝啊都要卖掉。
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-001-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-002-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-003-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-004-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-005-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-006-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-007-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-008-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-009-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-010-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-011-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-012-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-013-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-014-scaled.jpg)
 
 
-郭先生说，徐家印对自己的房产和未来都没信心的，你们冲上去还有信心啊，然后现在还要有信心，那你赶快去，这我就不负责任了，是吧？
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-参考链接：
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
 
-[2021年10月24日 文贵大直播](https://gtv.org/video/id=617551cfeadeb11f5e79f5d5)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
++4
