@@ -2,39 +2,45 @@
 ---
 
 
-## 疫苗灾情｜美国 13 岁女孩接种疫苗后瘫痪（附影片）
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1620514/)
+## FDA专家投票赞成5-11岁儿童疫苗
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1620545/)
 
-**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 27/10/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+**编译：西班牙喜悦农场–wenwu**
 
-【美国】一名 13 岁的女孩 Maddie de Garay 在接种完第二剂辉瑞 COVID-19 疫苗之后的 24 小时内，身体出现各种疼痛，并在两个月内迅速恶化，目前，Maddie 腰部以下瘫痪，并且吞咽困难。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-473.png)图片来源**：** zerohedge.com
 
-最近有一只由疫苗安全研究基金会（VSRF）赞助的广告影片受到关注，但很快，因触及 FDA 公共谘询委员就辉瑞 BioNTech 将 COVID-19 mRNA 疫苗用于 5 ～11 岁儿童的申请，影片被强行撤下，该片的主人公就是 Maddie。
+美国食品和药物管理局（FDA）以17票赞成、1票弃权的结果宣布，该机构建议授权对5至11岁的美国儿童紧急使用辉瑞-生物技术公司（Pfizer-BioNTech）的中共病毒（COVID-19）疫苗。
 
-事源 Maddie 的母亲为她报名参加的辉瑞 COVID-19 疫苗的临床试验，在 Maddie 1 月份接受第二针之后，她立即发生了严重的不良反应，腹部、肌肉和神经剧烈疼痛，并在接下来的两个半月内，她先后 3 次住院，情况一次比一次严重，呕吐、血压和心率不稳定、记忆力减退、脑雾、头痛、昏厥以及癫痫，最糟糕的一次，Maddie 试过一天有 20 次的昏厥和癫痫交叉发生。
+据《德克萨斯论坛报》的Karen Brooks Harper报道，这一决定为 FDA的最终授权打开了绿灯，而这次授权儿童疫苗最早可能在周三出台（[如下图](https://twitter.com/kbrooksharper/status/1453094747644604424?s=20)）。
 
-Maddie 的母亲 Stephanie de Garay 在 6 月份，由参议员 Ron Johnson (R-WI) 组织的一场新闻发布会上表示，Maddie 和她的两个兄弟都参加了辉瑞针对 12 至 15 岁儿童的试验，“因为我们相信科学，所以我们很高兴参加了试验，希望为所有人恢复正常生活而做出一点努力。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-475.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-5-1.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-7-1.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-8-1.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-6-1.png)
+《美联社》曾[表示](https://www.wmbfnews.com/2021/10/26/fda-advisers-endorse-pfizers-covid-19-vaccine-children-ages-5-11/?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=snd&amp;utm_content=wmbf)，FDA 可以直接忽视专家投票组的约束（即使反对也会通过辉瑞疫苗），而一旦获得 FDA 批准，美国疾病控制和预防中心（CDC）将于下周批准辉瑞疫苗的儿童疫苗授权，以及哪些群体应该接受儿童疫苗。
 
+幼儿的剂量是包含12岁及以上人群剂量的三分之一。值得注意的是，推友（[@Techno\_Fog](https://twitter.com/Techno_Fog/status/1453095851824459776?s=20))在推特上的信息分享表明（如下图）：FDA 的专家们在为所有美国人的5-11岁儿童在美国政府机构权衡美国儿童，所面临的中共病毒的危机问题上不懂孩子们到底有什么危险需要打中共疫苗；美国儿童打了辉瑞疫苗后，可以帮助美国更清楚了解中共疫苗是否对美国儿童产生了威胁（中共病毒的危机对美国人不重要，中共疫苗才是 FDA 需要研究和关注的威胁，并承认美国儿童能否成为政府机构的白老鼠的重要性）。
 
-她续指，“我等了 7 个月让辉瑞或 FDA 承认我女儿的遭遇，但他们没有，他们试图忽视我女儿的不幸。有了这次的广告影片，Maddie 终于有机会和他们共处一室，让他们看到，听到 Maddie 的声音，但是他们却要我们噤声。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-476.png)
 
-可惜，不仅是 Maddie 的影片遭到封杀，连这场新闻发布会 ，在参议员 Ron Johnson 上传到推特上不久，就被 Twitter 删除。
+**简评：**
 
-**最令人愤怒的是，10 月 26 日，美国食品及药物管理局 17 位专家一致同意放宽辉瑞疫苗的接种年龄限制，赞成为五至十一岁儿童接种辉瑞新冠疫苗，并同时认为即使有心肌炎等健康风险，但接种疫苗好处仍然大于风险。**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/50_0.jpg)
-来源｜[个案050](https://www.visiontimes.com/2021/10/25/comcast-pfizer-clinical-trial-youth-vaccine-injury-ad-cancellation.html)
+**我们知道德尔塔更易感染儿童，而基本上感染了中共病毒的儿童并不会导致死亡，或者死亡率接近于零。更重要的是，感染中共病毒的患者之所以死亡，医院也有责任，正是由于在政府医疗系统机构淫威下的医院的不作为，像中共一样故意把病人往死里治疗的疫苗商业模式的运营，导致了如今中共病毒的死亡人数的大量产生。印度的北方邦在使用了伊维菌素后，持续出现了零感染，这就是支持对西方医疗系统控诉的铁证。**
+
+**更让人惊掉下巴的是，澳大利亚维多利亚州未来不打疫苗竟然会被关起来。郭文贵先生曾爆料，疫苗灾难还没有开始！希望所有人共同发出自己的声音，停止人类的末路狂奔！**
+
+**以下分享两则签名。**
+
+**澳洲的战友可以[点击](https://www.reignitedemocracyaustralia.com.au/STOP-THE-BILL/)，并进入签名。表达您不想因为不打中共疫苗而被关起来的声音。**
+
+**美国的战友可以[点击](https://www.change.org/p/congress-of-the-united-states-do-not-vaccinate-5-11-year-olds?recruiter=1016512074&amp;utm_source=share_petition&amp;utm_medium=twitter&amp;utm_campaign=psf_combo_share_message&amp;utm_term=psf_combo_share_initial&amp;recruited_by_id=53bdb160-0091-11ea-ae95-95181d6329ab&amp;share_bandit_exp=message-31182780-en-US)，并进入签名。表达您不希望给 5-11 岁的孩子接种中共疫苗的声音。**
+
+（文章仅代表作者观点与GNEWS无关）
+
+新闻来源: [zerohedge.com][FDA advisers back Pfizer’s COVID-19 vaccine for kids 5 to 11 years old](https://www.cbsnews.com/news/covid-19-vaccine-kids-ages-5-11-fda-advisers-vote/)
 
 * * *
 
-他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//｜//[美国 35 岁疫苗拥趸孕期接种后致新生儿夭折](https://gnews.org/zh-hans/1605744/)//｜//[澳洲 30 岁夫妇接种疫苗后相继出现心脏疾病](https://gnews.org/zh-hans/1607321/)//｜//[意大利 18 岁少年接种疫苗2周内突患罕见病](https://gnews.org/zh-hans/1610841/)//｜//[比利时 22 岁自行车手接种疫苗后心力衰竭 职业生涯被迫结束](https://gnews.org/zh-hans/1612160/)//｜//[英国 40 岁女演员接种疫苗后中风昏迷](https://gnews.org/zh-hans/1618638/)//
-
+*发稿 : Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

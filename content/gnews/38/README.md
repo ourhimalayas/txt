@@ -2,45 +2,70 @@
 ---
 
 
-## FDA专家投票赞成5-11岁儿童疫苗
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1620545/)
+## COVID-19最新情报｜台湾机师猝逝 机师工会指检疫制度造成
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1620578/)
 
-**编译：西班牙喜悦农场–wenwu**
+**台灣寶島農場 疫情關注組｜發佈日期/ 27/10/2021**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-473.png)图片来源**：** zerohedge.com
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-美国食品和药物管理局（FDA）以17票赞成、1票弃权的结果宣布，该机构建议授权对5至11岁的美国儿童紧急使用辉瑞-生物技术公司（Pfizer-BioNTech）的中共病毒（COVID-19）疫苗。
 
-据《德克萨斯论坛报》的Karen Brooks Harper报道，这一决定为 FDA的最终授权打开了绿灯，而这次授权儿童疫苗最早可能在周三出台（[如下图](https://twitter.com/kbrooksharper/status/1453094747644604424?s=20)）。
+據[台湾媒体](https://www.chinatimes.com/amp/realtimenews/20211027001874-260405)报导，中华航空一名外籍机师于居家检疫后猝逝，该机师家人表示死者经历20天的连续执勤、检疫轮回，曾在途中向亲友表示身心疲倦，于居家检疫结束后突发猝死。航空公司表示，这位机师10月长程航班返台后，依规检疫且三采都是阴性，死因还在调查当中。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-475.png)
+机师猝死的憾事发生，许多机师、空服员也接连对机组员检疫制度表示不满，认为这种检疫制度影响机组员的身心健康，无法好好休息才导致了本次遗憾的发生。
 
-《美联社》曾[表示](https://www.wmbfnews.com/2021/10/26/fda-advisers-endorse-pfizers-covid-19-vaccine-children-ages-5-11/?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=snd&amp;utm_content=wmbf)，FDA 可以直接忽视专家投票组的约束（即使反对也会通过辉瑞疫苗），而一旦获得 FDA 批准，美国疾病控制和预防中心（CDC）将于下周批准辉瑞疫苗的儿童疫苗授权，以及哪些群体应该接受儿童疫苗。
+这位猝死的外籍机师，于2000年进入中华航空744机队任职，年资近21年。对于机师的猝死，机师工会表示机组人员长期以来没有人权、没有自由，不健康的检疫制度已经导致许多组员身心亮起红灯，呼吁防疫指挥中心经过本次机师猝死要改变检疫措施。
 
-幼儿的剂量是包含12岁及以上人群剂量的三分之一。值得注意的是，推友（[@Techno\_Fog](https://twitter.com/Techno_Fog/status/1453095851824459776?s=20))在推特上的信息分享表明（如下图）：FDA 的专家们在为所有美国人的5-11岁儿童在美国政府机构权衡美国儿童，所面临的中共病毒的危机问题上不懂孩子们到底有什么危险需要打中共疫苗；美国儿童打了辉瑞疫苗后，可以帮助美国更清楚了解中共疫苗是否对美国儿童产生了威胁（中共病毒的危机对美国人不重要，中共疫苗才是 FDA 需要研究和关注的威胁，并承认美国儿童能否成为政府机构的白老鼠的重要性）。
+其他：[检疫操! 8天飞2长程 机师“突发性失聪” ｜TVBS新闻](https://www.youtube.com/watch?v=qok0Aqns7LQ)
+其他：[华航空服员爆打AZ疫苗后“眼睛血栓模糊”没医师敢通报副作用| ETtoday生活新闻](https://www.ettoday.net/news/20210513/1980631.htm)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-476.png)
+工會表示這位機師“体格良好”，并归咎猝死于“检疫措施”。
 
-**简评：**
+- 相關：[COVID-19最新情报｜美律师控诉 政府掩盖4.5万例疫苗死亡案例兼 强制民众接种](https://gnews.org/zh-hant/1607140/)
+- 相關：[COVID-19最新情报｜政府荒谬地将COVID-19扩散归咎于未接种疫苗族群](https://gnews.org/zh-hant/1607453/)
 
-**我们知道德尔塔更易感染儿童，而基本上感染了中共病毒的儿童并不会导致死亡，或者死亡率接近于零。更重要的是，感染中共病毒的患者之所以死亡，医院也有责任，正是由于在政府医疗系统机构淫威下的医院的不作为，像中共一样故意把病人往死里治疗的疫苗商业模式的运营，导致了如今中共病毒的死亡人数的大量产生。印度的北方邦在使用了伊维菌素后，持续出现了零感染，这就是支持对西方医疗系统控诉的铁证。**
 
-**更让人惊掉下巴的是，澳大利亚维多利亚州未来不打疫苗竟然会被关起来。郭文贵先生曾爆料，疫苗灾难还没有开始！希望所有人共同发出自己的声音，停止人类的末路狂奔！**
+#### 知情人士呼吁：防疫指挥中心应正视“连续派飞”的危险？
 
-**以下分享两则签名。**
+[报导](https://www.ettoday.net/news/20211026/2109363.htm)称知情人士指出：他过世前两天有跟同事说，每天关在旅馆里面无限期循环，没办法运动，感觉自己身体在退化。
 
-**澳洲的战友可以[点击](https://www.reignitedemocracyaustralia.com.au/STOP-THE-BILL/)，并进入签名。表达您不想因为不打中共疫苗而被关起来的声音。**
+猝死机师的挚友张志豪，向[媒体](https://www.ettoday.net/news/20211026/2109363.htm)透漏他虽然年纪61岁，但是身材壮硕，开朗又健康，猝死的发生应当让“防疫指挥中心”正视“连续派飞”的危险性。
 
-**美国的战友可以[点击](https://www.change.org/p/congress-of-the-united-states-do-not-vaccinate-5-11-year-olds?recruiter=1016512074&amp;utm_source=share_petition&amp;utm_medium=twitter&amp;utm_campaign=psf_combo_share_message&amp;utm_term=psf_combo_share_initial&amp;recruited_by_id=53bdb160-0091-11ea-ae95-95181d6329ab&amp;share_bandit_exp=message-31182780-en-US)，并进入签名。表达您不希望给 5-11 岁的孩子接种中共疫苗的声音。**
+#### 防疫中心回應
 
-（文章仅代表作者观点与GNEWS无关）
+指揮中心副指揮官陳宗彥回應，航空公司應注意機組員的身心狀況。（「排班」不宜過度密集）
 
-新闻来源: [zerohedge.com][FDA advisers back Pfizer’s COVID-19 vaccine for kids 5 to 11 years old](https://www.cbsnews.com/news/covid-19-vaccine-kids-ages-5-11-fda-advisers-vote/)
+#### 疑点：检疫制度相当矛盾
 
+第一疑点：台湾推广大规模疫苗接种，高危险性行业也优先进行完全接种。新冠疫苗的目的为了“预防感染”接种后应“具有免疫力”，为何要求机组员继续隔离检疫？
+
+挥中心若考量国际上突发性感染数量激增，因此怀疑“新冠疫苗不具有预防效力”。若疫苗不预防感染，接种疫苗目的为何？
+
+- 相關：[COVID-19最新情报｜瑞典、英国新冠死亡案例 集中于“完全接种者”](https://gnews.org/zh-hant/?p=1618500)
+- 相關：[瑞典研究显示完全接种疫苗后，抗体将在三个月后急剧下降](https://gnews.org/zh-hant/1576453/)
+- 相關：[COVID-19最新情报｜美前国务卿接种疫苗后染疫身亡 疫苗防重症破功？死于疫苗？](https://gnews.org/zh-hant/1603625/)
+- 相關：[COVID-19最新情报｜政府不愿让人民知道的是 医院正充斥着新冠疫苗接种者](https://gnews.org/zh-hant/1607201/)
+
+
+第二疑点：新冠疫苗效力不确定，为何“忽视自然免疫选项”继续大力推行疫苗接种？
+
+- 相关： [COVID-19最新情报｜为何政府“忽视”自然免疫？](https://gnews.org/zh-hant/?p=1610194%28%E5%9C%A8%E6%96%B0%E5%88%86%E9%A0%81%E4%B8%AD%E9%96%8B%E5%95%9F%29)
+- 相关：[瑞典研究顯示完全接種疫苗後，抗體將在三個月後急劇下降](https://gnews.org/zh-hant/1576453/)
+
+
+第三疑点：为何阻挡“安全、有效、便宜”的药物治疗方案？
+
+- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/)
+- 相关：[新冠病毒预防、治疗方案（](https://vladimirzelenkomd.com/prophylaxis-protocol/)Zev Zelenko 博士）
+- 相关：[印度德里使用伊维菌素，确诊病例下降97%](https://gnews.org/zh-hant/1570870/)
+- 相关：[Zev Zelenko 博士](https://www.wnd.com/2020/03/doctor-treated-350-coronavirus-patients-100-success/)在(2020年) 4 月份[告诉 WND](https://www.wnd.com/2020/03/doctor-treated-350-coronavirus-patients-100-success/)，他利用药物已经治疗了 350 名新冠确诊者，且成功率达 100%。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/19-5.jpg)
 * * *
 
-*发稿 : Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
+撰文｜zhong
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

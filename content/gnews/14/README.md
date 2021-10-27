@@ -2,25 +2,23 @@
 ---
 
 
-## 樱花灭共诗——登忧（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1620723/)
+## 香港活动家“美国船长”成为第二个依《国安法》判罪的人
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1620840/)
 
-#### 作者：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
-登高随目望，田淖谷绝收。
+#### 翻译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-55.jpg)图片来源：网络截图
+据美国合众国际社10月26日报道，香港一位被称为“美国船长”的活动家在抗议时拿着超级英雄盾牌，他已成为香港第二名因为中共出台的令人诟病的国安法下被判有罪。
 
-一破家国梦，再增夙夜忧。
+马骏敏于周一因去年参加二十多次示威游行，喊口号和发表支持香港自治言论而被判煽动国家分裂罪。马先生由地区法院法官陈广池发出传票，陈法官说马先生在示威时说的话有意图煽动国家分裂，他将于11月11日被判决，可能面临入狱高达七年。
 
-黍禾惊鲁女，肉糜惯王侯。
+马先生是国安法下第二个被判有罪的人士，马先生的律师说马先生的活动是想要证明香港还存在自由言论。
 
-蔓草衰无际，何方到尽头。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-157.jpg)
-(本文只代表作者观点，与GNews网站无关)
+另一位活动家唐英杰是第一位国安法下的受害者，他在今年七月被判9年前监禁。
+本周一，大赦国际宣布它将于2021年底关闭在香港的办公室，因为国安法已经使得人权组织已经不能自由地不受政府严重报复恐惧地工作了。
 
-*插图：东京樱花团/闪闪*
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)
+新闻来源： [Hong Kong ‘Captain America’ activist 2nd to be convicted under nat’l security law](https://www.upi.com/Top_News/World-News/2021/10/26/hong-kong-national-security-law-convicted/5451635263718/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
