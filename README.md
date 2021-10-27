@@ -15,131 +15,131 @@
 
 ---
 
-### [澳大利亚漫画家因反疫苗被审查](/content/gnews/1/README.md)
+### [对立面都和江派勾兑是习必定闭关锁国的条件之一](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美食品药物监管局支持为低龄儿童接种疫苗](/content/gnews/2/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [萨斯喀彻温省长承诺不会实施更多疫情控制措施](/content/gnews/3/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [川普与SPAC的交易存在三大风险](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [GTV新闻访谈简报|2021年10月27日早](/content/gnews/5/README.md)
+ ` 纽约香草山MOS01`
+
+### [因房地产危机中共国经济即将崩塌](/content/gnews/6/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [福奇通过疫苗获得巨额利益](/content/gnews/7/README.md)
  ` 日本东京方舟农场`
 
-### [关于联合国第2758号决议的思考](/content/gnews/2/README.md)
+### [日本或将推进5至11岁的儿童接种新冠疫苗](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [加拿大阿尔伯塔省政府因疫苗问题遭受诉讼](/content/gnews/9/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [谁在害怕喜币上市？](/content/gnews/10/README.md)
+ ` 日本东京方舟农场`
+
+### [澳大利亚漫画家因反疫苗被审查](/content/gnews/11/README.md)
+ ` 日本东京方舟农场`
+
+### [关于联合国第2758号决议的思考](/content/gnews/12/README.md)
  ` 波士顿五月花农场`
 
-### [渤海银行未经授权质押储户存款28亿](/content/gnews/3/README.md)
+### [渤海银行未经授权质押储户存款28亿](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [美联邦通信委员会撤销中共电信在美业务授权](/content/gnews/4/README.md)
+### [美联邦通信委员会撤销中共电信在美业务授权](/content/gnews/14/README.md)
  ` 日本东京方舟农场`
 
-### [中共要求许家印以个人财富偿付恒大债务](/content/gnews/5/README.md)
+### [DC大中华时事：许家印卸任恒大地产董事长](/content/gnews/15/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共要求许家印以个人财富偿付恒大债务](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [西媒头条 — 第96期](/content/gnews/6/README.md)
+### [西媒头条 — 第96期](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [数百名温哥华岛卫生工作者逾期未接种疫苗被解雇](/content/gnews/7/README.md)
+### [数百名温哥华岛卫生工作者逾期未接种疫苗被解雇](/content/gnews/18/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [加拿大不列颠哥伦比亚省最近三天内报告了 1,618 例新的 COVID-19 病例，以及 20 例死亡](/content/gnews/8/README.md)
+### [加拿大不列颠哥伦比亚省最近三天内报告了 1,618 例新的 COVID-19 病例，以及 20 例死亡](/content/gnews/19/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [レギュラーガソリンが7年ぶりの高値段](/content/gnews/9/README.md)
+### [《马背英雄》音乐灭共，《玻璃心》站着挣钱](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [《马背英雄》音乐灭共，《玻璃心》站着挣钱](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [佛州州长罗恩·德桑提斯公开反对疫苗强制令](/content/gnews/11/README.md)
+### [佛州州长罗恩·德桑提斯公开反对疫苗强制令](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [10/27/21 香港快讯 剔除支联会公司登记 李家超称『结束一党专政』等于推翻中共](/content/gnews/12/README.md)
+### [10/27/21 香港快讯 剔除支联会公司登记 李家超称『结束一党专政』等于推翻中共](/content/gnews/22/README.md)
  ` 英喜-粵語組`
 
-### [澳洲三大连锁超市: 不接种就没工作](/content/gnews/13/README.md)
+### [澳洲三大连锁超市: 不接种就没工作](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纽约市政工作人员游行抗议中共病毒疫苗强制令](/content/gnews/14/README.md)
+### [纽约市政工作人员游行抗议中共病毒疫苗强制令](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|中共企图以“一国一票”操纵联合国](/content/gnews/15/README.md)
+### [有声|中共企图以“一国一票”操纵联合国](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [杰森·米勒：盖特是自由表达政治观点的完美的地方](/content/gnews/16/README.md)
+### [杰森·米勒：盖特是自由表达政治观点的完美的地方](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|“香港加油”成为香港马拉松被禁敏感词](/content/gnews/17/README.md)
+### [有声|“香港加油”成为香港马拉松被禁敏感词](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [有声|喜悦之旅](/content/gnews/18/README.md)
+### [有声|喜悦之旅](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [49岁的母亲因注射Covid疫苗导致血栓和中风而不得不坐轮椅](/content/gnews/19/README.md)
+### [49岁的母亲因注射Covid疫苗导致血栓和中风而不得不坐轮椅](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|“莆田刀客”欧金中前妻遭中共监视居住](/content/gnews/20/README.md)
+### [有声|“莆田刀客”欧金中前妻遭中共监视居住](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [秘翻在线：疫苗护照实际上可能增加病毒的传播](/content/gnews/21/README.md)
+### [秘翻在线：疫苗护照实际上可能增加病毒的传播](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [家庭反洗脑序列：第32篇 写给我至亲至爱家人的话](/content/gnews/22/README.md)
+### [家庭反洗脑序列：第32篇 写给我至亲至爱家人的话](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：前美空军战争学院教授承认隐瞒与中共官员的关系而被判刑](/content/gnews/23/README.md)
+### [秘翻在线：前美空军战争学院教授承认隐瞒与中共官员的关系而被判刑](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [香港颁布新法 收紧电影审查](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共的强制抗疫政策](/content/gnews/25/README.md)
+### [中共的强制抗疫政策](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [昂山素季否认煽动叛乱指控](/content/gnews/26/README.md)
+### [昂山素季否认煽动叛乱指控](/content/gnews/35/README.md)
  ` Shuizhuyu`
 
-### [澳大利亚社论漫画家因创作反强制疫苗漫画被解雇](/content/gnews/27/README.md)
+### [澳大利亚社论漫画家因创作反强制疫苗漫画被解雇](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [拜登签署命令实施新国际旅行疫苗规定](/content/gnews/28/README.md)
+### [拜登签署命令实施新国际旅行疫苗规定](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [退休四星上将希望美国能做出保护台湾的承诺](/content/gnews/29/README.md)
+### [退休四星上将希望美国能做出保护台湾的承诺](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [被罢免的苏丹总理回家](/content/gnews/30/README.md)
- ` Shuizhuyu`
-
-### [秘翻在线:印度利用生物辨识系统实现「欧威尔式」集权统治](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共国地方债务达22万亿](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线： 原建设银行行长崔滨洲退休后仍被调查并开除党籍](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [各地柴油紧缺现抢购潮，中共优先保军用](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [非法政府共产党](/content/gnews/35/README.md)
+### [非法政府共产党](/content/gnews/39/README.md)
  ` 骄子`
 
-### [COVID-19最新情报｜美CDC数据：818044起不良反应，辉瑞伤害最大](/content/gnews/36/README.md)
+### [COVID-19最新情报｜美CDC数据：818044起不良反应，辉瑞伤害最大](/content/gnews/40/README.md)
  ` G&#124;News TAIWAN`
 
-### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（二十一）](/content/gnews/37/README.md)
- ` 墨尔本雅典娜农场`
-
-### [10/27/2021 国际财经快讯：股市下滑，短期国债收益率随通胀跃升；台湾第三季度因中共病毒大流行致GDP仅增长4%](/content/gnews/38/README.md)
+### [10/27/2021 国际财经快讯：股市下滑，短期国债收益率随通胀跃升；台湾第三季度因中共病毒大流行致GDP仅增长4%](/content/gnews/41/README.md)
  ` 秘密翻译组金融团队`
 
-### [中国反诈骗APP五宗罪](/content/gnews/39/README.md)
- ` 首尔天池农场`
-
-### [2017年4月30日文贵先生第一次直播文字版](/content/gnews/40/README.md)
- ` 澳喜农场`
-
-### [人权组织呼吁抵制北京冬奥会](/content/gnews/41/README.md)
+### [人权组织呼吁抵制北京冬奥会](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [赌喜币](/content/gnews/42/README.md)
- ` 首尔天池农场`
 
 ### [解放军首次进行码头爆炸毁伤试验，或用于反制美针对中共的“分布式作战”](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

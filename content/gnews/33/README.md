@@ -2,22 +2,22 @@
 ---
 
 
-## 秘翻在线： 原建设银行行长崔滨洲退休后仍被调查并开除党籍
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1621007/)
+## 秘翻在线：前美空军战争学院教授承认隐瞒与中共官员的关系而被判刑
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1621118/)
 
-**撰稿：葛大饼**
+#### 翻译撰稿：zzballack
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-27-202507.jpg)
-根据2021年10月26日今日头条报道，中国建设银行浙江省分行原党委书记、行长崔滨洲因严重违纪违法问题被开除党籍。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/f1sa65d4f56d1h56tr4j56y4k5uy123d1f.png)
 
-早在4月25日中央纪委国家监委官网就披露，崔滨洲涉嫌严重违纪违法，目前正接受纪律审查和监察调查。当时崔滨洲已经退休近三年。据当时媒体报道，2012年上半年，浙江中江集团出现债务危机，建行浙江省分行成为牵扯最深的银行贷款方，提供贷款规模约30亿元。
+据《真正美国之声》（Real America’s Voice）10月26日报道，美国司法部10月25日指控阿拉巴马州美国空军战争学院（Air War College）的前文职教授张晓明（音译，Xiaoming Zhang）在回答与一名中共官员的关系时向联邦调查部门作出了虚假和误导性陈述。
 
-新闻称崔滨洲严重违反党的政治纪律、中央八项规定精神，且在党的十八大后不收手，依据《中国共产党纪律处分条例》，《中华人民共和国监察法》等有关规定，给予崔滨洲开除党籍处分，取消其享受的退休待遇，收缴其违纪所得。
+司法部在一份声明中说：“从2012年的某个时候开始，张晓明与一名已知是外国官员的上海市政府人员建立了关系。记录显示，从2012年12月到2017年1月，张晓明与该官员大约亲自见面六次，并与他交换了大约40份电子邮件，在这段时期，张晓明意识到这名官员利用或试图利用他们的关系获取他所掌握的敏感信息，并与其他有潜在价值的人进行接触。”
 
-郭先生提过习近平要抓捕多个银行的行长，退休的也抓，包括人民银行的老大——郭树清。这些都是王岐山的人。中共体制就是个绞肉机，谁也逃不过去。只有灭了共，大家才能安全。
+司法部说，现年69岁的华裔教授张晓明在空军战争学院拥有保密级的安全许可，每年参加安全培训，并被告知必须报告与可疑外国人的接触以及与外国政府官员的关系。但是即使张晓明意识到那名官员试图从他那里搜集敏感信息后，他也没有报告这一关系。检察官说，张晓明多次试图通过向美国人事管理办公室（Office of Personnel Management）的调查人员做出具有误导性或虚假的陈述，以掩盖他与那名中共官员的关系。
 
-**[新闻来源](https://www.toutiao.com/i7023305303194239519/?tt_from=copy_link&amp;utm_campaign=client_share&amp;timestamp=1635258208&amp;app=news_article&amp;utm_source=copy_link&amp;utm_medium=toutiao_ios&amp;use_new_style=1&amp;req_id=202110262223270101511921551F3A8ECE&amp;share_token=A3A66636-68E9-44DB-9193-FB24C0EB2311&amp;group_id=7023305303194239519)**
+张晓明已对此事供认不违，他将面临最高五年的联邦监禁。
+
+新闻来源：[**Air War College professor admits to lying about relationship with Chinese official**](https://americasvoice.news/justthenews/air-force-professor-admits-lying-about-relationship-chinese-official/)
 
  
 

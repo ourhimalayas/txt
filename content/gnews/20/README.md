@@ -2,28 +2,34 @@
 ---
 
 
-## 有声|“莆田刀客”欧金中前妻遭中共监视居住
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1621187/)
+## 《马背英雄》音乐灭共，《玻璃心》站着挣钱
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1621301/)
 
-配音：香草山美食部 – 玫瑰园
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-105.jpg)
+[图片来源](https://stars.udn.com/star/story/10092/5833611)
 
-中国民间权益组织“民生观察”，23日引用律师消息称，莆田欧金中被中共宣称自杀身亡后，其前妻欧秀香被中共当局，以“涉嫌包庇罪”为由监视居住，其前妻姐姐的两个儿子、女儿，也因该在事件中所谓涉嫌“散布谣言”而被查。
+被大陆小粉红称为“辱华先锋”的黄明志与搭档陈芳语合唱歌曲《玻璃心》，播放量上架3日就突破500万，目前已经超过1500万。
 
-据悉，殁年55岁的欧金中，因被邻居阻拦翻盖旧房，5年求告无门而激情杀人，导致对方2死3伤。在逃亡8日后，中共当局称其在警方围捕下自杀身亡。该事件发生以来，中国网民一边倒对他表示同情，并称之为“莆田刀客”。
+台湾《上报》转发《看中国》网站发表的评论《将中共从头辱到脚　站着把钱挣了》，作者子龙认为，《玻璃心》这首歌发挥了中国人对于意境理解的独到之处，整首歌看似描绘热恋情侣之间的生活琐事，但假如一边播放一边按暂停键就会发现每一个画面都有特别设计过，都是给小粉红的最大”馈赠”。
 
-文字版原文：[“莆田刀客”欧金中前妻遭中共监视居住](https://gnews.org/zh-hans/1618189/)
+文章说，在中共的淫威之下，很多立场不坚定之人都与其同流合污，中共也常以人们的饭碗相要挟，如果有悖于中共的意识形态必会影响其生活。别说在大陆的各色人等，就连美国与中共眉来眼去的都不在少数。
 
-音频处理：喜山必胜Maverick
+作者认为，中共的逻辑就是我有钱，想挣钱先跪下，不跪就断财路。但偏偏有人骨头就是硬，黄明志和陈芳语的骨头则格外的硬，他们不但骨头硬还站着把钱挣了，对中共来说是被二人从头辱到脚。
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在今年6月4日，为庆祝新中国联邦成立一周年，郭文贵先生亲自演绎的单曲《马背英雄》在iTunes创造了全球音乐的奇迹，给全世界展示了音乐灭共、文化灭共的力量。4个月后由两位台湾艺人演唱的《玻璃心》又再次爆红全球华人圈，作为一名普通的爆料革命战友，乐见全球音乐灭共、文化灭共运动的兴起。
+
+信息来源：
+
+[墙外文摘：《玻璃心》站着就把钱挣了](https://www.dw.com/zh/%E5%A2%99%E5%A4%96%E6%96%87%E6%91%98%E7%8E%BB%E7%92%83%E5%BF%83%E7%AB%99%E7%9D%80%E5%B0%B1%E6%8A%8A%E9%92%B1%E6%8C%A3%E4%BA%86/a-59610820)
+
+免责声明：文章仅代表作者本人观点，与GNEWS无关
+
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

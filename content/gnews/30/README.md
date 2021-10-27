@@ -2,30 +2,28 @@
 ---
 
 
-## 被罢免的苏丹总理回家
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1621051/)
+## 有声|“莆田刀客”欧金中前妻遭中共监视居住
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1621187/)
 
-新闻来源：德国法兰克福报网络版
+配音：香草山美食部 – 玫瑰园
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+中国民间权益组织“民生观察”，23日引用律师消息称，莆田欧金中被中共宣称自杀身亡后，其前妻欧秀香被中共当局，以“涉嫌包庇罪”为由监视居住，其前妻姐姐的两个儿子、女儿，也因该在事件中所谓涉嫌“散布谣言”而被查。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/abdalla-hamdok-im-august-2019.jpg)
+据悉，殁年55岁的欧金中，因被邻居阻拦翻盖旧房，5年求告无门而激情杀人，导致对方2死3伤。在逃亡8日后，中共当局称其在警方围捕下自杀身亡。该事件发生以来，中国网民一边倒对他表示同情，并称之为“莆田刀客”。
 
+文字版原文：[“莆田刀客”欧金中前妻遭中共监视居住](https://gnews.org/zh-hans/1618189/)
 
-被军事政变推翻的苏丹政府首脑在被军队逮捕后被带回家。前总理办公室说，哈姆多克周二与妻子回到了他的私人住宅。现在尚不清楚哈姆多克是否恢复了行动自由。在这个非洲东北部国家的多个城市，示威者和安全部队发生了冲突。
+音频处理：喜山必胜Maverick
 
-美国国务卿安东尼·布林肯周二致电哈姆多克。美国国务院在华盛顿表示，布林肯“欢迎首相获释”。美国首席外交官呼吁苏丹军队释放所有在政变后被捕的“文职领导人”，并“保证他们的安全”。
-
-自 2019 年 8 月起与阿尔·布尔汉一起领导过渡政府的被罢免的总理，在周一的政变后最初被拘留在苏丹首席将军阿卜杜勒·法塔赫·布尔汉的家中，理由是为了安全。 阿尔·布尔汉在周二的新闻发布会上说，哈姆多克“和我在一起”。这位前政府首脑“身体健康”。一名军方官员告诉法新社，哈姆多克已“被护送回他在 Kafouri 区的家”。
-
-哈姆多克回家的确切情况是模糊的，尚不清楚他是否被软禁。军队代表说，已在被罢免的政府首脑的房子周围采取了“安全措施”。据哈姆多克的办公室称，他在家中“受到密切监视”。
-
-原文链接：[https://www.faz.net/aktuell/politik/ausland/abgesetzter-ministerpraesident-sudans-wieder-zu-hause-17604649.html](https://www.faz.net/aktuell/politik/ausland/abgesetzter-ministerpraesident-sudans-wieder-zu-hause-17604649.html)
-
-免责声明：本文内容仅代表个人观点，与Gnews平台无关。
-
-责任编辑、发布： Shuizhuyu
-
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

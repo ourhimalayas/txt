@@ -2,30 +2,36 @@
 ---
 
 
-## 各地柴油紧缺现抢购潮，中共优先保军用
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1621003/)
+## 中共的强制抗疫政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1621078/)
 
-撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-159.jpg)
-[图片来源](https://www.aboluowang.com/2021/1027/1664798.html)
+作者：澳喜农场 在远方
 
-自由亚洲电台10月27日报道，中共国出现柴油紧缺，部分加油站无柴油供应，各地柴油抢购情况，同时导致大量货车因缺油而无法行驶，造成货品积压。学者认为，柴油是中国海军和远洋货轮的动力，政府首先要满足战略用油储备，同时要满足出口集装箱货轮用油需要。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-继电荒之后，最近一段时期，中共国内出现“柴油荒”。中共财新网报道，很多炼厂减少了炼油的比例，加之9月份全国多地限电等因素造成柴油紧缺，多地加油站限量加油，而这一紧缺现象，或还将持续几个月。报道引述河北石家庄的卡车销售人士称：“现在油价涨得柴油车加不上油了。”还称，当地加油站给卡车限加柴油100升，而整车加满需要1000升左右。安徽阜阳一卡车司机说，“油价特别高，阜阳加油站普遍都不给加油。”，要么只给加100-300元（对应几十升柴油）。
 
-另外，中共国家发改委上周五（22日）宣布新一轮成品油调价，汽油、柴油价格每吨分別提高300元和290元人民币。
 
-柴油在民用领域广泛用作拖拉机、大型汽车、内燃机车及土建、挖掘机、装载机、渔船、柴油发电机组和农用机械的动力。中共在能源上历来都施行“先军后民”的策略，又减少炼油的比例搞所谓的“碳达峰”，全然不顾老百姓。由此，导致物流停运、物价走高，又将使一波司机失业，加之冬天将至，这让百姓怎么活。
+中共内蒙古额济纳旗于当地时间25日零时宣布封城，当局公告称，禁止居民出户且禁止游客出店，否则将被追究民事和刑事责任。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/PP5.001.jpeg)
+据内部战友透露，中共先是研制并释放病毒，造成世界性的灾难，其后又采取了极端严酷的疫情防控措施，动辄封门、封路、封城，任由民众自生自灭，最终导致民怨四起。为了防控疫情，中共国是全世界唯一一个全面阻止公民返国，并禁止疫区病患外出寻求医疗援助的国家。
+(本文仅代表作者观点)
 
-信息来源：
+参考链接：[中国新一轮封城抗疫行动 成效与可持续性受考验](https://www.voachinese.com/a/china-braces-for-covid-19-new-lockdowns-20211025/6284255.html)
 
-[中国各地柴油紧缺现抢购潮   学者：首先确保中国海军舰船柴油充足](https://www.rfa.org/mandarin/yataibaodao/jingmao/ql1027a-10272021051820.html?utm_medium=proxy&amp;utm_campaign=persagg&amp;utm_source=nthlink&amp;utm_content=title)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-免责声明：文章仅代表作者本人观点，与GNEWS无关
+编辑/总编：Irene木木
+校正/发稿：我不在这里
 
-校对：东京樱花团/
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

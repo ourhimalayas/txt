@@ -2,18 +2,23 @@
 ---
 
 
-## 西媒头条 — 第96期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1621435/)
+## 因房地产危机中共国经济即将崩塌
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1621613/)
 
-制作：蚂蚁兄弟
+原文采编：青青   编译撰稿：文所未闻
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/aa-edited.jpg)图片来源：NYT
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1027.001.jpeg)
 
-发稿：信心的选择
+据《纽约时报》10月25日报道，中共当局长期制造的巨大房地产经济泡沫，必将会导致一场摧毁中共国经济以及影响全球贸易的广泛金融危机。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
+该报道指出，造成中共国经济崩溃的主要因素包括：人口数量优势的消失以及高储蓄率导致的过度投资等。其中，占中共国经济比重极大的房地产行业，由于其投资现已远超美国在2000年房地产危机顶峰时期的水平，因此，房地产商的巨额债务问题将引发中共国严重的经济灾难。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://cn.nytimes.com/opinion/20211025/china-bubble-economy/?utm_source=top10-in-article&amp;utm_medium=articlepage&amp;utm_campaign=web)
 
  
 
