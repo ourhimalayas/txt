@@ -2,25 +2,54 @@
 ---
 
 
-## 浅谈关于货币，法币以及对未来的个人理解
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1620844/)
+## COVID-19最新情报｜美CDC数据：818044起不良反应，辉瑞伤害最大
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1620925/)
 
-撰稿人：Microkevin
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-15.jpg)
-自网络截图
+**台灣寶島農場 疫情關注組｜發佈日期/ 27/10/2021**
 
-10月20日七哥大直播讲述一个大家都知道却不是从未深入研究的概念。就是法币和货币的区别。法币和货币的区别：在于法币以国家政府以其强制力发行，在其国家管辖区域内强迫老百姓主观必须承认它可以衡量并代表你的生产价值，并且可以交换一切物质，但政府却不承诺兑换任何物质包括贵重物品金和银，一起只来源于你的主观承认（虽然是政府强制你承认的）法币可以兑换物质。所以法币出了事或破产或经济危机等原因贬值政府是不承担任何责任的也没有人承担任何责任。这就是法币的本质。因此法币根本不是信用货币。而真正的货币是不分区域也不是哪个强权机构强制规定的，而是自发的以一定稀有物质作为锚定（一般以金或银）而发行代表老百姓生产力可以在全世界流通的，代表老百姓生产力的价值的代表物叫货币。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-很可悲的是我们的确生活在一个被少数人利用法币榨取绝大多数人生产价值的流氓时代。自从美元退出布雷顿森林体系成为“所谓的信用美元”，美元兑换黄金的价格至今涨了1300倍这其中的差价去了哪里？肥了谁？本文只是用现行的美元作为一个典型法币例子。各国发行的“所谓信用货币”大抵如此。基本现状都是超发再超发。老百姓的生产价值基本是剥夺再剥夺。
 
-而我们的喜币正是打破这一切现状的最好方式。喜币以去中心化的技术为基础，在初始规则已定且共同遵守前提下，所有人公开账本，所有币都有独特的代码和时间戳，私密不可追溯。但责任是中心化的，有固定的机构做管理和对外解释。并作出法定量化承诺每年购买喜币价值20%的黄金作为储备用以保障货币体系安全。而这个承诺持续未来的至少100年。那么在这未来的100年里如何能够亘古不变的持续执行当初所做的承诺呢？这就需要我们后人有对新中国联邦章程和正道主义信仰的坚持而产生的信用，才能在100年里持续兑现当初所有做出的承诺和规则，继而保持自己的信用。我认为这才是真正的信用货币。
+美国疾病控制与预防中心 (CDC) 上周五发布疫苗不良事件通报系统(VAERS)[统计数据](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=CAT&amp;EVENTS=ON&amp;VAX=COVID19)，自2020 年 12 月 14 日至 2021 年 10 月 15 日，新冠疫苗不良反应通报共“[818044](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=CAT&amp;EVENTS=ON&amp;VAX=COVID19)”起，其中“[17,128 人死亡](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes)、 [122,833 人重傷](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;SERIOUS=ON)”。这份数据，包含了最新发生的[12岁儿童接种辉瑞疫苗后死亡的案例](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1784945)。
 
-我认为，信用来源于信仰，信仰是信用的源动力。人类自古至今，从部落时代到今天的国家时代，所有的契约和法律以及各种成文的和不成文的信用都来自于各民族人民对上天的信仰，对真和善的信仰。这也是为什么七哥总说一个民族要想实现自由，法治和民主没有信仰是不可能的。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/vaers-vaccine-injury-october-22-1536x1132-1.jpg)數據直接來自 [VAERS](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=CAT&amp;EVENTS=ON&amp;VAX=COVID19) ，VAERS 是美國政府出資，用於記錄疫苗不良反應的系統
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/covid-vaccine-doses-by-manufacturer-1.png)至10/15，美國共接種4.061億劑疫苗
 
-在未来生物科技的时代，干细胞科技开放可以自由的做人体器官定向培植，如果没有信仰，人类是不可能正确利用生物科技的。我相信通过G系列和新中国联邦的影响，人类会由现有的“利益至上”为主导的价值观时代重回以“正义和善良”为主导的价值观时代。这样我们才可以迎接下一个星际文明和新能源以及生物科技的时代。
 
-(本文纯属个人观点，与Gnews无关)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+美国境内的通报，共[612125起不良反應](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;STATE=NOTFR)，包含[7848人死亡](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR)、[50025人重傷](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;SERIOUS=ON&amp;STATE=NOTFR)。
+
+#### 美国疫苗不良反应，28%在两天内发生
+
+外媒指出，该不良反应通报数据，约11%（840件）的不良反应是在接种后“[24小時內](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR&amp;V2DCHECKED=ON&amp;V2DHIGH=1)”发生，约15%（1212件）在接种后。发生在接种后“[48小時](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR&amp;V2DCHECKED=ON&amp;V2DHIGH=2)”的疫苗不良反应，占全部数据的28%。
+
+#### 12-17岁年龄段数据分析
+
+根据疫苗不良事件通报系统(VAERS)，12-17岁年龄层在美国共有21921起通报，其中有25人死亡、57份重伤。疫苗导致的不良反应，包含心包炎、心肌炎、血栓等，且96%的伤害来自于接种辉瑞疫苗。
+
+美FDA，于6月公开表明，辉瑞、莫德纳疫苗可能导致心肌炎。然而在知道心肌炎可能的情形下，却在前几周（即5月）批准12-17岁儿童接种辉瑞疫苗。
+
+#### 美国所有年龄段数据分析
+
+1. 死因：19%是心脏疾病（心肌炎、心包炎、血栓）
+2. 性别：54%男性；42%女性；4%未通报性别
+3. 平均死亡年龄：72.7岁
+
+
+- 危及生命的过敏反应：2010件。
+- 血栓：10290件。（约44%来自于辉瑞；36%莫德纳；20%娇生“又称强生”疫苗）
+- 心肌炎、心包炎：2878件。（63%来自辉瑞；33%莫德纳；4%娇生“又称强生”疫苗）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20-3.jpg)
+- 相關：[COVID-19最新情報｜美律師控訴 政府掩蓋4.5萬例疫苗死亡案例兼 強制民眾接種](https://gnews.org/zh-hant/1607140/)
+- 相關：[COVID-19最新情報｜政府不願讓人民知道的是 醫院正充斥著新冠疫苗接種者](https://gnews.org/zh-hant/1607201/)
+
+
+* * *
+
+新聞來源｜[NEW ZEALAND TIMES](https://newzealandtimes.live/health/17000-deaths-reported-after-cov-vaxxines-including-new-report-of-12-year-old-who-died-after-pfizer-vaccine/)
+轉譯｜zhong
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

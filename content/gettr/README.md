@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/27/2021 12:30 PM (UTC)`
+
+2021年10月27日文贵大直播：SPAC忽上忽下何有未来；吴征虚假信息刑事犯罪；基金对赌炒股钓鱼欺骗；盖特言论自由公平竞争
+![img](https://media.gettr.com/group21/origin/2021/10/27/12/0c04a294-1114-c644-ee17-8d394d21165a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@jasonmillerindc 10/27/2021 1:09 AM (UTC)`
@@ -290,13 +297,6 @@ Statement about Artemisinins, SARS-CoV2 and related topics<br/><br/>关于青蒿
 
 10/22/2021 Miles Guo: The period from CCP's 6th Plenary Session to the 20th National Congress is the most dangerous time for Xi; both the Xi faction and the Jiang faction want to eliminate each other; the CCP’s 6th Plenary Session is the time of their final showdown, whether Xi can remain in power or not is full of uncertainty<br/><br/>10/22/2021 文贵直播：六中全会至二十大期间，习面临最大危险；习江两派都想置对方于死地，六中全会是最后摊牌时刻，习能否能连任充满不确定性<br/>
 ![img](https://media.gettr.com/group47/getter/2021/10/22/22/27/26ec9981-c52f-b1f6-3841-bbf4773ccf6a/out.jpg)
-
----
-
-`@miles 10/22/2021 9:47 PM (UTC)`
-
-10/22/2021 Miles Guo: The CCP has got control of Trump by using money means that the CCP still cares about him. Why do the CCP’s despicable tactics of threatening and bribery in Europe and the US always work? ARC, a subsidiary of PAG, served as the financial advisor for the acquisition of Giga Energy, and Bruno Wu signed the contract on behalf of Giga Energy. Such inextricably linked facts have proved the CCP’s conspiracy to frame and attack me via PAG controlled by Bruno Wu<br/><br/>10/22/2021 文贵直播：中共用资本拿下川普说明中共还在乎他，中共在欧美大肆威胁和收买的Low招儿为何屡屡奏效？太平联盟旗下的瑞寰资本是集兆嘉收购项目的顾问，吴征代表集兆嘉签字，如此环环相扣的事实恰恰佐证中共通过吴征操控的太平联盟来诬告、攻击文贵的阴谋<br/><br/>
-![img](https://media.gettr.com/group33/getter/2021/10/22/21/47/683220aa-6af8-ba3e-d489-27f0c933ca65/out.jpg)
 
 ---
 

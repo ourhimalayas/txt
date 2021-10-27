@@ -2,24 +2,62 @@
 ---
 
 
-## 秘翻在线：阿拉巴马州州长签署行政令抵制强制接种疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1620917/)
+## 必看 ！全球34位英雄医生专家警告疫苗危险（1）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1620972/)
 
-#### 翻译撰稿：zzballack
+字幕翻译：Rosa
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/dsa345g4re56g123t1r34h564231gfd321.jpg)
+撰稿：Jenny
+视频剪辑/字幕：外星人
+请将此视频广泛转发给您的朋友和家人。发送给你的家庭医生, 医院、学校、牧师、市长和其他在你的社区有责任的人也更加重要！
 
-据《新唐人》（NTD）10月26日报道，阿拉巴马州州长凯·艾维 (Kay Ivey)本周一（10月25日）签署了第724号行政命令，宣布该州政府机构不得执行联邦政府的中共病毒疫苗强制令，并立即在全州生效。
+如果我们都分享这个视频，我们就能唤醒人类。我们可以共同阻止腐败，阻止这场疫苗灾难，共同创造一个更加美好的世界。
 
-该命令说：“任何机构、部门、董事会、委员会或州政府行政分支内的其他实体不得以州法律的名义寻求对任何不遵守疫苗强制令的企业或个人实施处罚。
+注册获取更多信息, 请登录: [https://www.stopworldcontrol.com](https://www.stopworldcontrol.com/)
 
-除了行政命令，艾维还发布了一个书面声明，谴责疫苗强制令是“无耻的越权行为”。“联邦政府无耻的越权行为使我们别无选择，只能开始采取行动进行反击。这就是为什么我要发布这项行政命令，以反击这些邪恶的疫苗强制令。阿拉巴马人和美国人一样，不应被政府强迫接种疫苗。当拜登总统嘲笑保护你们自由的想法时，我将继续为阿拉巴马州的企业及其员工战斗。如果联邦政府仍执意推行其强制令，毫无疑问它将在联邦法院受到挑战。”
+总结这34名医生或专家的观点，其中：
 
-艾维特别声明说，作为州长，她不会强迫任何人接种中共病毒疫苗。“今天的行政令清楚地表明了阿拉巴马州在这问题上的立场。一项州法律是不够的，还需要在法院是解决这个问题。今天只是这场抗争的一小步，但肯定不是最后一步。阿拉巴马州人民压倒性地反对这项令人愤慨的拜登式强制令，我坚决支持他们。”
+**认为疫苗不安全，并反对COVID疫苗的，有全部34名医生和专家，占100%。**
 
-在艾维州长签署这项行政令之前，已有其他州采取了类似行动。德克萨斯州州长格雷格·阿博特 (Greg Abbott)最近也发布了一项行政命令，反对该州的任何实体执行疫苗强制令或要求提供疫苗接种证明。佛罗里达州州长罗恩·德桑蒂斯 (Ron DeSantis)已经召集该州的立法者召开特别会议，考虑制定一项法律以禁止疫苗强制令，因为他认为强制令会对工人和企业带来风险。
+**认为这个COVID-19疫情不是医学定义的大流行病有21位，占61%**
 
-新闻来源：[**Alabama Governor Signs Order to Fight Federal Vaccine Mandate**](https://www.ntd.com/alabama-governor-signs-order-to-fight-federal-vaccine-mandate_693767.html)
+**让我们记住他们的名字**：1.Kelly Madej 2.Andrew Kaufman  3. Hilde de Smet 4.Nils Fosse 5.Mohammad Adil 6.Dolores Cahill 7.Zac Cox 8.Johan Dennis 9.Daniel Cullum 10.Moritz  von der Borch 11.Kevin Corbett 12.Kate Shemirani 13.Barre Lando 14.Borris Dragin 15.Piotr Rubas 16.Natalia Prego Cancelo 17.Kelly Brogan 18.Konstantin Pavlidis 19.Heiko Santelmann 20.Mikael Nordfors 21.Elke de Klerk
+
+**认为疫苗是用人做实验的有15名，占44%**
+
+**让我们记住他们的名字**： Hilde de Smet，Elizabeth Evans，Dolores Cahill，Johan Dennis，Kate Shemirani，Borris Dragin，Piotr Rubas，Nour De San，Kelly Brogan，Konstantin Pavlidis ，Sherri Tenpenny，Senta Depuydt，Heiko Santelmann， Mikael Nordfors, Elke de Klerk
+
+**明确指出，PCR 测试是错误的手段的有5名**
+
+**让我们记住他们的名字**：Kelly Madej，Anna Forbes，Ralph Sundberg，Barre Lando，Konstantin Pavlidis
+
+**明确指出，疫苗可能改变DNA或是一种种族灭绝行为的有8名**
+
+**让我们记住他们的名字**：Johan Dennis，Kevin Corbett，Kate Shemirani, Konstantin Pavlidis，Sherri Tenpenny，Senta Depuydt, Heiko Santelmann, Elke de Klerk
+
+**Carrie Madej医生，一名来自美国的内科医生**
+
+她拥有自己的诊所，并在两个不同的诊所担任医务主任，在过去的19年里，她还是指导过医学科学生的主治医生。
+
+她说，我要借这个平台告诉人们，应对这个Covid-19疫情，全球目前都在使用检测办法是被称为PCR测试，而这种测试方法从未被指定或就是创造发明出来用于诊断任何感染，这不是我们应该采用的诊断方式。
+
+另外，医院和医生正在为获得经济激励来诊断COVID-19。除此之外，我们有多个实验室错误在世界各地不断发生，表明有更多的结果是假阳性。
+
+我不会接种这个COVID-19疫苗，也不会向我的任何病人推荐COVID-19疫苗。这种疫苗在人类身上是实验性的，因为他们建议使用修改过的信使RNA或修改过的DNA，合成到人体上。这是第一次在人类身上推出这种疫苗。
+
+我们不知道将会有发生什么在我们身上。还有，他们还提议在人类身上使用纳米脂质技术或纳米技术，而这有可能对人类造成伤害，导致很多可怕的后果，我们真的需要在推进此技术之前，调查清楚这一切。
+
+这是我向世界发出的警报！
+
+请接续
+
+（本文纯属个人观点，与G news 无关）
+
+[原视频链接](https://rumble.com/viqn29-worldwide-doctors-warn-for-the-vaccines-must-see.html)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+
 
  
 

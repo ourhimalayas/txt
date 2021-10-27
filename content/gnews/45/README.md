@@ -2,47 +2,45 @@
 ---
 
 
-## 北约就警惕俄罗斯的敌对行动达成协议
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1620393/)
+## FDA专家投票赞成5-11岁儿童疫苗
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1620545/)
 
-作者：美东香草山农场 – 文真
+**编译：西班牙喜悦农场–wenwu**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-473.png)图片来源**：** zerohedge.com
 
+美国食品和药物管理局（FDA）以17票赞成、1票弃权的结果宣布，该机构建议授权对5至11岁的美国儿童紧急使用辉瑞-生物技术公司（Pfizer-BioNTech）的中共病毒（COVID-19）疫苗。
 
+据《德克萨斯论坛报》的Karen Brooks Harper报道，这一决定为 FDA的最终授权打开了绿灯，而这次授权儿童疫苗最早可能在周三出台（[如下图](https://twitter.com/kbrooksharper/status/1453094747644604424?s=20)）。
 
-这项战略计划全称为《欧洲-大西洋地区的威慑和防御概念》，旨在让北约成员国为来自波罗的海和黑海地区的攻击做好准备。该计划囊括了针对核、太空和网络攻击的措施。计划特别为网络战开发数字技术，提供了10亿美元的种子资金。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-475.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/6-18.jpg)
+《美联社》曾[表示](https://www.wmbfnews.com/2021/10/26/fda-advisers-endorse-pfizers-covid-19-vaccine-children-ages-5-11/?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=snd&amp;utm_content=wmbf)，FDA 可以直接忽视专家投票组的约束（即使反对也会通过辉瑞疫苗），而一旦获得 FDA 批准，美国疾病控制和预防中心（CDC）将于下周批准辉瑞疫苗的儿童疫苗授权，以及哪些群体应该接受儿童疫苗。
 
-近期，俄罗斯一直在举行军事演习，并在乌克兰边境附近集结了近10万军队，派遣军用飞机侵入北约领空，并开发具有核能力的导弹，包括具有核能力的高超音速巡航导弹。
+幼儿的剂量是包含12岁及以上人群剂量的三分之一。值得注意的是，推友（[@Techno\_Fog](https://twitter.com/Techno_Fog/status/1453095851824459776?s=20))在推特上的信息分享表明（如下图）：FDA 的专家们在为所有美国人的5-11岁儿童在美国政府机构权衡美国儿童，所面临的中共病毒的危机问题上不懂孩子们到底有什么危险需要打中共疫苗；美国儿童打了辉瑞疫苗后，可以帮助美国更清楚了解中共疫苗是否对美国儿童产生了威胁（中共病毒的危机对美国人不重要，中共疫苗才是 FDA 需要研究和关注的威胁，并承认美国儿童能否成为政府机构的白老鼠的重要性）。
 
-北约的新计划，将针对俄罗斯对波罗的海国家上空的侵犯，以及对黑海入侵的增加，起到威慑作用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-476.png)
 
-（本文仅代表作者观点）
+**简评：**
 
-参考阅读：
+**我们知道德尔塔更易感染儿童，而基本上感染了中共病毒的儿童并不会导致死亡，或者死亡率接近于零。更重要的是，感染中共病毒的患者之所以死亡，医院也有责任，正是由于在政府医疗系统机构淫威下的医院的不作为，像中共一样故意把病人往死里治疗的疫苗商业模式的运营，导致了如今中共病毒的死亡人数的大量产生。印度的北方邦在使用了伊维菌素后，持续出现了零感染，这就是支持对西方医疗系统控诉的铁证。**
 
-1. [https://www.zerohedge.com/geopolitical/nato-agrees-plan-caution-russia-against-increasing-hostilities](https://www.zerohedge.com/geopolitical/nato-agrees-plan-caution-russia-against-increasing-hostilities)
+**更让人惊掉下巴的是，澳大利亚维多利亚州未来不打疫苗竟然会被关起来。郭文贵先生曾爆料，疫苗灾难还没有开始！希望所有人共同发出自己的声音，停止人类的末路狂奔！**
 
+**以下分享两则签名。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-4.jpeg)
+**澳洲的战友可以[点击](https://www.reignitedemocracyaustralia.com.au/STOP-THE-BILL/)，并进入签名。表达您不想因为不打中共疫苗而被关起来的声音。**
 
-***编辑/校对：山本不惑***
-***发稿***：***海阔天空1***
+**美国的战友可以[点击](https://www.change.org/p/congress-of-the-united-states-do-not-vaccinate-5-11-year-olds?recruiter=1016512074&amp;utm_source=share_petition&amp;utm_medium=twitter&amp;utm_campaign=psf_combo_share_message&amp;utm_term=psf_combo_share_initial&amp;recruited_by_id=53bdb160-0091-11ea-ae95-95181d6329ab&amp;share_bandit_exp=message-31182780-en-US)，并进入签名。表达您不希望给 5-11 岁的孩子接种中共疫苗的声音。**
 
-**更多资讯，更多关注**
+（文章仅代表作者观点与GNEWS无关）
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+新闻来源: [zerohedge.com][FDA advisers back Pfizer’s COVID-19 vaccine for kids 5 to 11 years old](https://www.cbsnews.com/news/covid-19-vaccine-kids-ages-5-11-fda-advisers-vote/)
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+* * *
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+*发稿 : Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
