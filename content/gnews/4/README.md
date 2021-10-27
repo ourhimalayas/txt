@@ -2,139 +2,51 @@
 ---
 
 
-## 土地资金等不纳入国家资产，老百姓没有任何福利
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1619824/)
+## 阿拉斯加州也欢迎未接种疫苗的警察去工作
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1619924/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/222-f-wzywl.jpg)
-[https://gtv.org/video/id=61783f7e247c5a3f909049b8](https://gtv.org/video/id=61783f7e247c5a3f909049b8)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-中国的光退休所、干休所
-En China con solo las casas de jubilación, y los sitios de descanso para los militares con rango
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/A-10.jpg)golookup.com
+昨天（10月25日）有报道称，佛罗里达州愿为因未接种中共病毒疫苗而失去工作的警察提供工作机会，并支付5000美元的搬迁费，今天《戴维·哈里斯媒体》（DJHJ Media）报道，阿拉斯加州欢迎下岗警察。
 
-所有的占有的土地和占有的资产
-Todos los terrenos y activos poseídos
+文章题目是“阿拉斯加州共和党州长告诉因未接种疫苗而被解雇的警官们，让他们来这个‘最边远州’（The Last Frontier State）工作”。
 
-是不计入到国家的资产范围内的
-No son incluidos dentro de los activos del país
+全文如下：
 
-它不计入的
-No son contados
+由于专制政客通过强制接种疫苗来对他们的小领地实施暴政，我们的劳动力正在被削弱，许多在中共病毒疫情期间为我们服务和保护我们的专业人员现在发现自己失业了，许多专业人员都是执法人员，这种事情发生在民主党的领地，似乎是有道理的，因为他们一直憎恨警察。
 
-它不属于
-No pertenece
+一些不像集权封地那样运作的司法管辖区，正在为受暴君迫害的专业人士提供工作机会，其中一个地方是阿拉斯加州，该州现在欢迎那些大胆相信自己有上帝赋予的权利来决定哪些药物可以进入自己体内的警察。
 
-比如说它不属于房地产
-Por ejemplo, decir que no pertenece a los bienes y raíces
+上周，阿拉斯加州共和党州长迈克·邓利维（Mike Dunleavy）将注意力集中在数千名因拒绝接受疫苗接种而失业的警官身上，并表示欢迎警官们来阿拉斯加州执法。
 
-记帐里面去
-Entrar en la contabilidad
+这位州长利用社交媒体传达了他的信息。
 
-它的开支也不算进去
-Sus gastos tampoco son incluidos
+“在全国各地，执法人员都成为攻击目标，甚至因为拒绝接种疫苗或拒绝透露是否接种疫苗而被解雇。阿拉斯加的执法部门邀请你考虑来我们这个第四十九州，以此方式来表示我们对蓝州的回应。”
 
-它叫什么
-Cómo se llama eso
+这位州长的推特是对《芝加哥论坛报》（the Chicago Tribune）报道的回应，该报道披露，在芝加哥要求所有州雇员接种疫苗或披露其疫苗接种状况后，许多芝加哥的警察没有遵守强制疫苗的规定。
 
-（属于）财政部的整个划拨
-(pertenece) a la asignación completa del Ministerio de Finanzas
+上周，芝加哥当局宣布，任何拒绝遵守芝加哥民主党市长洛丽·莱特富特（Lori Lightfoot）命令的警察都可能面临纪律处分，包括解雇。
 
-财政部划拨是不算这个的
-La asignación del Ministerio de Finanzas no cuenta esto
+阿拉斯加州公共安全部发言人达斯汀·麦克丹尼尔（Dustin McDaniel）说，在过去的一年里，该机构的“警察申请”（lateral trooper applications）有所增加。狱政部（Department of Corrections）女发言人贝特西·霍利（Betsey Holley）表示，1064名狱警职位已填补，还剩下95个职位。
 
-你知道这很夸张吧
-Sabes que esto es una exageración
+她周四（10月21日）说：“如果你阅读了我们脸书页面上的一些帖子，就会有人在脸书上回复招聘帖子说，‘哦，你们强制接种疫苗吗？’有趣的是人们就是这样想的。但是，如果他们想申请，我们会欢迎他们来申请。”
 
-那划拨是在哪儿呢
-Entonces en dónde están las asignaciones
+麦克丹尼尔补充说：“阿拉斯加州的警察部门没有针对中共病毒或强制疫苗接种方面有硬性规定，无论是对本地的、州或联邦机构都没有。我们鼓励任何寻找令人振奋的执法事业的符合资格的求职者考虑来阿拉斯加州警队工作。”
 
-在中国有多少干休所呢
-Cuántos retiros para los militares con rangos hay en China
+这将在越来越多的红州发生。蓝州由疯狂的人管理，他们希望与未接种疫苗的美国人为敌，甚至损害他们自己州的人口数量。暴君利用疫苗强制令控制他的领地而让这些专业人员失去了工作，这些医生、护士及其他医务人员、警察、消防队员和护理人员纷纷选择离开，许多民主党人管理的城市将遭受损失。
 
-中国有多少个省呢
-Cuántas provincias hay en China
+（全文完）
 
-中国有多少个县呢
-Cuántos condados hay en China
+阿拉斯加州的官员意识到，强制疫苗政策是“专制行为”，是一种“暴政”，专制和暴政的结果就是让人民选择“用脚投票”，离开你所管辖的地区。佛罗里达州、阿拉斯加州为这些未接种疫苗的人提供了机会，这是抗击暴政最保守的方式。
 
-大家查一查
-Todos busquen a ver
+如果再能清醒地意识到，这是阴谋、是邪恶集团对人类的一种迫害、一种攻击，或许那些未接种疫苗的人就不是选择离开的问题了。
 
-中国大概有一万七千个国家（级）的干休所
-En China hay más o menos 17 mil retiros para militares de rango a un nivel nacional
+大觉醒还没有实现，觉醒后的反击、抗暴、追责更没有开始，还需要我们继续传播真相。
 
-一万七千个，不算地方的啊
-Los 17 mil no están dentro de las zonas
+（文章仅代表作者个人观点）
 
-不算个省市的
-No cuenta como provincias
+原文链接：
 
-军队呀、各部委啊
-El ejército, los ministros de cada ministerio
-
-一万七千个
-17 mil
-
-事实上大概有两万个
-Realmente hay como 20 mil
-
-这当时统计局统计有两万个
-En aquel momento la Oficina de Estadística hizo un censo de 20 mil
-
-两万个干休所得编制是多少
-Cuánto es el sistema de ingresos de 20 mil retiros
-
-土地不算钱
-Los terrenos no cuentan como dinero
-
-各种成本都不算
-Ningún tipo de costos cuentan
-
-那都是财政部拨的
-Todos son asignados por el Ministerio de Finanzas
-
-那你说你这社保是
-Entonces tu dices que el seguro social es…
-
-老百姓没有这个待遇啊
-Los ciudadanos no tienen este beneficio
-
-它又不包含的社保基金里面去
-Eso no está incluido dentro del fondo de seguro social
-
-所以当年戴相龙跟我说的一句话
-Por eso Dai Xianglong me dijo una palabra en aquel año
-
-他说文贵啊
-Dijo: Ay Wengui
-
-任何中国人没把社保搞明白的
-No es necesario conversar con ningún chino
-
-你什么都不用跟他聊了
-Que no haya entendido sobre el seguro social
-
-他这个脑子就是有问题了
-El cerebro de esta persona si tiene problemas
-
-———————————————————
-
-**原视频网址**： [https://twitter.com/se1y7cblljselva/status/1451092014993330181?s=24](https://twitter.com/se1y7cblljselva/status/1451092014993330181?s=24)
-
-日期：10/23/2021
-原视频标题：
-Los fondos de los terrenos, entre otros, no están incluidos en los activos nacionales y los ciudadanos no tienen ningún beneficio
-
-原视频日期：10/21/2021
-任务编号：KC196（2623）
-视频时间段：0:00-1:17
-
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[https://djhjmedia.com/rich/alaska-republican-governor-tells-police-officers-who-were-terminated-over-vaccine-mandates-to-come-to-work-in-the-last-frontier-state/](https://djhjmedia.com/rich/alaska-republican-governor-tells-police-officers-who-were-terminated-over-vaccine-mandates-to-come-to-work-in-the-last-frontier-state/)

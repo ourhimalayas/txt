@@ -2,29 +2,29 @@
 ---
 
 
-## 德国慕尼黑汽车游行 呼吁终结中共
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1619611/)
+## 有声|投资数字世界收购公司的十一家机构中 八家由中共控制
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1619657/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+配音：香草山美食部 – 玫瑰园
 
-近日，德国民众在慕尼黑举办了以“终结中共”为主题的汽车游行，目的是提醒德国，不要只顾眼前利益，对中共侵犯人权的罪行采取绥靖政策，并提醒德国民众警惕中共对全世界的威胁和毒害，与之划清界线。
+数字世界收购公司在申请上市的文件中，列出了十一家投资机构。郭文贵先生在10月24日的大直播中，展示了这十一家机构的资本构成。除了三家是美国或加拿大的公司以外，其余八家公司全是中共控制的基金。
 
-据大纪元报道，该游行车队23日在警车开道下，穿梭于慕尼黑城，历时两个半小时。游行车辆上有“终结中共”、“中共不等于中国”、“打倒中共恶魔”等大标语。
+收购川普科技的SPAC公司-数字世界，来自吴征，其他股东，包括中共姓李的政协委员，以及运鸿集团，全是中共的情报企业。
 
-据悉，在出发地点，许多民众看到大横幅后都在“终结中共”的请愿书上签名。另外，沿途也有很多民众，拍照摄像、向车队招手或竖大拇指。
+CEO克里斯是太平联盟集团的创始人，曾参与对郭文贵先生的法律诉讼超限战。FBI前高管弗兰克，是吴征在美国的合伙人，也是太平联盟案件的调查人。此人不但伪造假信息、假照片，而且多次和吴征一起，策划洗劫美国人的财富。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/id13329054-IMG_9501-600x400-1.jpeg)图片来源：https://www.epochtimes.com/b5/21/10/25/n13329025.htm
+这次，他们再次伙同吴征，同时出现在这场洗劫与抢劫的并购中。背后由鸿运集团提供资金，涉及马云。这是一场中共全面布局操控的金融超限战。
 
-据报道，在利益的驱动下，巴伐利亚政治经济界逐渐向中共靠拢，中共国逐渐成为巴伐利亚全球第一大贸易伙伴。而且，巴伐利亚是德国唯一一个给孔子学院提供资金的联邦州。
+文字版原文：[投资数字世界收购公司的十一家机构中 八家由中共控制](https://gnews.org/zh-hans/1616297/)
 
-举办方丹妮拉·达斯卡卢（Daniela Dascalu）女士认为，在巴伐利亚首府慕尼黑进行汽车游行，让人们了解中共对世界的危害，意义重大。
+音频处理：喜山必胜Maverick
 
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[組圖：德國民眾慕尼黑汽車遊行 呼籲終結中共](https://www.epochtimes.com/b5/21/10/25/n13329025.htm)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

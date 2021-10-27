@@ -2,33 +2,55 @@
 ---
 
 
-## 中共欲低价承包泰国水利项目遭当地人权组织强烈反对
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1619230/)
+## 中共国之灭门案
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1619292/)
 
-作者：纽约香草山农场 – 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-泰国议员维拉康近日透露，对于泰国备受争议的尤姆河引水工程，由中共控制的北方工业国际公司此前表示，愿意自费在四年内以12亿美元的造价建造该项目。为此，曾两次拒绝该项目评估的泰国政府于上月批准了这一项目的环境影响评估报告。
+作者: 纽约香草山农场-新世界的一员
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-8.jpg)
 
-当地时间10月25日的消息称，泰国人权组织强烈反对该项目，因担心新水库将淹没村庄，破坏森林，且将对当地克伦土著居民产生不利影响。同时，经评估，此工程“存在严重缺陷”。
 
-中共借一带一路之名，蓝金黄当地政客，不惜血本参与基础设施项目，试图进一步扩大在泰国的影响力。对于中共的经济绑架，东南亚国家应提高警惕。
 
-(本文仅代表作者观点)
 
-参考链接：[中国公司欲承包泰国水利项目 人权环境人士表示反对](https://www.voachinese.com/a/china-shows-interest-in-a-thailand-water-project/6283640.html)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+10月25日凌晨1时许，继莆田欧金中菜刀杀人案之后，武汉市蔡甸区消泗乡又发生一起灭门命案，该村村干部张某红一家五口被害。犯罪嫌疑人高某辉 (男，39岁，本市人) 持刀行凶致5人死亡、1人受伤后逃跑。逃跑途中致2人死亡。
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/18-1-1.png)
+
+据悉，当日6时许，高某辉逃跑至长江大桥后跳桥。有知情人透露，该嫌疑人刚出狱，此次案例或与鱼塘征收有关。目前案件正在进一步搜寻侦办中。 7死1伤，这起极端的灭门惨案，再次震撼了整个网络。
+
+有网友认为，事出必有因！这是官员“平时作威作福，嚣张跋扈”所造成的恶果。甚至，有网友幸灾乐祸说，“看到死的是村官一家我就放心了”。更有网友提醒说，目前地方官员都处于极度的危险之中，千万不要再作恶，否则会面临杀身之祸甚至灭门之祸。因为底层的民众生活越来越艰难，当他们完全没有了活路的时候，他们就会让使得他们没有活路的人也一同走向死路。
+
+国有国法，家有家规。中共集权统治下的社会没有公正的民主法制体制，所以才出现了菜刀大叔殴金中的悲惨事件。而此次案件中的高某辉，又是另一个被体制伤害的可怜人。从某种意义上来说，他们是战士。因为他们代表了那些被社会压迫、被迫触碰法律牺牲的可怜又可敬的人！你不给我个说法，我就奋起反抗给自己讨个说法。这几起灭门案件，充分证明了中共统治下的腐败体制是没有任何公平、法律和规矩可言，人间悲剧及次生灾难无时无刻不在中共国上演。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Untitled-design-38.png)
+
+当一个家庭中的男人总是家暴家庭成员，这就违反了法律，国家就会进行法律干预；当一个国家总是无视人民的基本生存权，并用暴力手段去涂炭人民时，其违反的就是国际法，那么国际上的任何一个国家都可以干预其政；当一个执政党无视法律、罔顾民意、恶意践踏人民时，就是人民奋起反抗推翻它的时候！
+
+中共是所有社会灾难的源头。这个踩着无数尸体、沾染鲜血的红色政权，不仅践踏人权、草菅人命，更是奴役中国人的恶魔！镰刀收割的锋芒，不分国内国外。消灭中共，是救赎人性、人心、人文的基本需求；消灭中共，是还原世界善良、和平、正义之必须！
+
+中共不灭，灾难不止，恶党不除，民不聊生！
+
+（本文仅代表作者观点）
+
+参考链接: [https://www.sohu.com/a/497391908\_113767](https://www.sohu.com/a/497391908_113767)
+
+校对/编辑/发稿: Amanda艾曼达
+
+终审：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-7.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-7.jpg)

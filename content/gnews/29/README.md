@@ -2,29 +2,29 @@
 ---
 
 
-## BC 卫生局有人举报称 50% 的新冠住院患者与新冠病毒无关
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1619550/)
+## 医生因新冠疫苗接种状况而拒绝进行挽救生命的肺移植手术
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1619613/)
 
-作者：Drea Humphrey
+作者：Alexandra Lavoie
 翻译: HimaBoy
 
 
 
-“案例，案例，案例。” 这是公共卫生霸主、官僚和官方媒体用来将不合理限制正常化的神奇词。从驱逐老年人到隔离，再到违背健康公民的意愿将他们关押在新冠的监狱中。
+让我告诉你乔安妮·杜普伊斯和她丈夫西尔万·桑斯卡蒂埃的故事。
 
-但是，如果这一切都是假的或者至少是一半，那么该怎么办呢？
+乔安妮是一名 36 岁的女性，她因囊性纤维化引起的继发性肺部感染住院一个多月。
 
-在夏季暂时取消了许多新冠措施后不久，不列颠哥伦比亚省的内陆卫生区是该省最早宣布病例激增的地区之一。当然，这最终是被用来收紧极权主义的限制并进行强制疫苗的接种。
+最近，医生告诉乔安妮，她在肺移植等候名单上排名第八，如果她想要接受移植手术，就必须接种疫苗。
 
-然而，在这份完整的报告中，你会听到卫生局内部的一名举报人说，政府对“新冠住院”的真正定义并不透明。
+由于之前接种过的疫苗会产生明显的副作用，乔安妮不愿意接种新冠疫苗。
 
-“这些数字正在被改变以支持他们的议程。” 举报人说。
+因此，医生现在已将乔安妮从移植名单中删除，直到她完全接种疫苗为止。
 
-反叛新闻已经确认了受访者的身份和职位，且同意对个人身份进行保密。
+这是无法接受的。我们必须传达这个消息。
 
-在撒了足够多的谎之后，勇敢的卫生局内部员工决定透露有关住院原因的数据，并说从该卫生区域向公众报告的“新冠住院”中约有 50% 是人无症状并因新冠以外的其他疾病而到医院接受治疗。
+人们需要意识到这种拒绝的严重程度。一个女人的生命危在旦夕！
 
-來源：[https://www.rebelnews.com/bc\_health\_whistleblower\_says\_50\_per\_cent\_of\_covid\_hospitalizations\_asymptomatic\_unrelated](https://www.rebelnews.com/bc_health_whistleblower_says_50_per_cent_of_covid_hospitalizations_asymptomatic_unrelated)
+來源：[https://www.rebelnews.com/lung\_transplant\_candidate\_told\_she\_must\_be\_vaccinated\_before\_she\_can\_move\_forward\_with\_the\_procedure](https://www.rebelnews.com/lung_transplant_candidate_told_she_must_be_vaccinated_before_she_can_move_forward_with_the_procedure)
 
 （文章仅代表作者个人观点）
 

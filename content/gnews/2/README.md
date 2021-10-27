@@ -2,138 +2,35 @@
 ---
 
 
-## 13亿中国老百姓只能享受社保基金4%的钱
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1619846/)
+## 伊利诺斯州的护士们赢得了针对疫苗强制令的临时限制令
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1619934/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/222-f-wzywl.jpg)
-[https://gtv.org/video/id=61783f7e247c5a3f909049b8](https://gtv.org/video/id=61783f7e247c5a3f909049b8)
+*【簡評：】在拜登政府推出的疫苗強制接種令之後，美國各地掀起了起訴潮，如紐約的警察工會將針對強制疫苗政策訴諸法律、近200名明尼蘇達州的醫護人員起訴僱主、西南航空強制疫苗措施遭飛行員工會起訴、美國士兵就軍隊強制新冠疫苗接種起訴聯邦機構、洛杉磯消防員將起訴政府、昆州警察因強制接種疫苗起訴警察局長、聖地亞哥學生、家長就 COVID-19 疫苗授權起訴區政府……不管結果如何，民眾都應為自己的權力而戰，不應做逆來順受、待宰的羔羊*。
 
-一定叫外国人能听得懂的话
-Debe ser algo que los extranjeros puedan entender
+据《公正新闻》记者Brett Rowlan ，2021年10月25日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-469.png)图片来源：田纳西之星
+针对医院系统的疫苗接种强制令，伊利诺伊州的护士们起诉了滨江医疗中心（Riverside Healthcare），日前，法官授予原告临时限制令。
 
-你举个例子, 中国14亿人
-Por ejemplo, hay 1.400 millones de personas en China
+坎卡基县（Kankakee County）法官南希·尼科尔森 (Nancy Nicholson) 批准了此项临时限制令，有效期至11 月 19 日。随后，她将就护士要求的初步禁令动议举行听证会。
 
-中国人的社保基金是多少钱, 你知道吗?
-Sabes ¿ cuánto es el fondo de seguro social de los chinos?
+自由司法中心（Liberty Justice Center）常务律师丹尼尔·苏尔（Daniel Suhr）表示，该裁决是一场胜利。
 
-整个社保基金额
-El monto total del fondo de seguro social
+“今天的裁决标志着这些护士朝胜利迈出了重要一步 — 它向所有美国人发出了一个信号，那就是争取自己权利的重要性。”他说，“雇主和政府官员应该注意到，强迫人们违背良心不仅是错误的，而且是非法的。没有人应该被迫在保住工作和牺牲信仰之间做出选择。”
 
-你们查了吗? 社保基金额
-¿ Ustedes investigaron? El monto del seguro social
+护士们于 10 月 13 日起诉了滨江医疗中心，声称该州的医疗保健良心权力法（Health Care Right of Conscience Act）赋予他们拒绝 COVID-19 疫苗的权利。护士们说，他们的宗教信仰与接种疫苗相冲突。
 
-所有社保基金额就是1000亿美元
-Todo el monto de seguro social son 100 mil millones de dólares
+尼莉·帕诺佐(Neelie Panozzo)、艾米·门加(Amy Memenga)和其他四名姓名尚未公布的护士被滨江医疗中心官员告知，如果她们不接种COVID-19疫苗，将在10月31日之前被解雇。护士们说他们的豁免请求被拒绝了。
 
-1000亿美元, 记住
-100 mil millones de dólares, recuerden
+代表护士的自由司法中心是一家全国性的非营利性律师事务所。
 
-1000亿美元
-100 mil millones de dólares
+原文连接：[https://justthenews.com/nation/states/nurses-get-temporary-restraining-order-vaccine-mandate-case](https://justthenews.com/nation/states/nurses-get-temporary-restraining-order-vaccine-mandate-case)
 
-名义上所说的2500亿
-250 mil millones nominalmente
+（本文评论仅代表个人观点）
 
-实际上就1000亿美元
-En realidad, son 100 mil millones de dólares
+翻译/评论：洛杉矶盘古农场– 钢蛋儿
 
-因为社保基金原来主席创始人是车峰的老岳父
-Porque el presidente original y fundador de la Caja de Seguridad Social era el suegro de Che Feng
-
-中国银行行长戴相龙
-Dai Xianglong, presidente del Banco de China
-
-这个社保基金所谓的2500亿
-El llamado 250 mil millones de este fondo de seguro social
-
-别忘了
-No olviden
-
-它里边这个总数实际上就是1000多亿
-Dentro de este monto total en realidad son más de 100 mil millones nada mas
-
-你可以查它的帐
-Puedes revisar su cuenta
-
-它那是叫划拨式的
-Eso se le llama forma de asignar
-
-这个1000多亿的分配权在哪里呢
-¿ Dónde se encuentra esta distribución de más de 100 mil millones?
-
-96%的钱是给所有的共产党的退休干部的
-El 96% del dinero es para todos los cuadros retirados del Partido Comunista
-
-那就是说多少退休的党员呢
-Eso significa ¿ cuántos miembros jubilados del Partido?
-
-中国有多少呢, 退休老干部, 退休的人(党员)呢
-Cuántos hay en China, los viejos cuadros retirados, los miembros del Partido retirados
-
-中国是大概1.3亿
-China tiene unos 130 millones
-
-1.3亿, 14亿人(中)1.3亿
-130 millones, 130 millones (en medio de) 1.400 millones de personas
-
-全是共产党所有的亲戚家人拿走了96%
-Todos los miembros de los familiares del Partido Comunista tomaron el 96%
-
-那个13亿是干嘛的呢
-Y para qué son estos 1.300 millones
-
-对不起了
-Lo lamento
-
-你只能拿整个(社保基金)的4%
-Solamente puedes tomar el 4% de todo el fondo de seguridad social
-
-那就是100块钱我拿4块钱
-Quiere decir que dentro de los 100 dólares, yo tomo 4 de ellos
-
-你拿96块钱
-Y tú los 96 dólares
-
-养你那些人
-Para mantener a esas personas
-
-你想过这个问题吗?
-¿ Has pensado este problema?
-
-这多简单的事
-Es algo tan secillo
-
-你说哪有一个国家
-Dime, qué país
-
-一个党派拿走96%的社保的钱
-Un partidista toma el 96% del dinero de seguro social
-
-所有的老百姓享受你(社保基金)4%的钱
-Todos los ciudadanos disfruta el 4% del dinero de tu fondo de seguro social
-
-这个不用我说你查一查
-Esto no es necesario que yo diga, tú mismo puedes ir a investigarlo
-
-———————————————————
-
-**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1451039970966134784?s=24](https://twitter.com/se1y7cblljselva/status/1451039970966134784?s=24)
-
-日期：10/26/2021
-原视频标题：
-1.300 millones de chinos sólo pueden disfrutar del 4% del fondo de seguridad social
-原视频日期：10/21/2021
-任务编号：KC197（2624）
-视频时间段：0:00-1:48
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+校对/编辑：洛杉矶盘古农场 – 明子
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+洛杉磯盤古農場歡迎您加入:(或點擊上方圖片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

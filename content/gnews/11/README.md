@@ -2,39 +2,139 @@
 ---
 
 
-## 2021/10/26文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1619742/)
+## 土地资金等不纳入国家资产，老百姓没有任何福利
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1619824/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/102607.png)[盖特直播链接](https://gettr.com/post/pf8psl755a)
-喜币这个月底不能上市了，抱歉了兄弟姐妹们，稍后看喜玛拉雅的通知。我很恼火，他们说了一堆的理由，不能本月31日上市，这就是投资。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/222-f-wzywl.jpg)
+[https://gtv.org/video/id=61783f7e247c5a3f909049b8](https://gtv.org/video/id=61783f7e247c5a3f909049b8)
 
-前天大直播说买川普、吴征的TMTG（Digital World），要高买然后过一天或者俩、三天再卖，下跌了，才能说是欺诈行为；不能当天买当天卖。是他提供的虚假信息、内部交易、不能兑现的商业计划和背后的交易事实、没提供真实的股东结构、这11家基金背后的交易、以及还没有公布的如何与川普总统交易的股权，所有这些原因导致股票下跌可以找他百分之百赔。如果股票自然上下是不能索赔的。有的战友早上9点买，10点卖，赔了10块钱，这种情况想索赔门也没有！战友们这种急功近利的心态和心胸，永远不可能有有钱的机会。贪婪、急功近利、没有常识、偏听偏信、完全侥幸，投资用赌博的心理，所有这些必输的很惨，很不幸大多数草根就是这样急功近利。
+中国的光退休所、干休所
+En China con solo las casas de jubilación, y los sitios de descanso para los militares con rango
 
-股票今天早上到了74了，从174跌到74（美金）的股票有未来吗？很多和我没合作的美国基金朋友都说，任何在川普名下的平台都不可能运作起来，他们都是一股都没有买。今天早上川普总统的公告几乎都是复制Jason Miller为GETTR的讲话。希望川普总统有尊严的赢，我们还是要支持川普总统，谁攻击川普总统都不是我们的战友。
+所有的占有的土地和占有的资产
+Todos los terrenos y activos poseídos
 
-股票从174在70个小时以后跌到了74，还会继续暴跌。这场共产党给川普总统设计的灾难，会让川普总统一辈子毁在这里。吴征和背后一帮犯罪分子，还有十几家基金一起走，一起进，这叫做“对赌”；骗的就是支持川普总统的MAGA小投资者。川普总统不懂这些，很可怜，很可悲，很可恨！
+是不计入到国家的资产范围内的
+No son incluidos dentro de los activos del país
 
-建立社交媒体就像做一锅饭，但一秒钟就做出来那是不可能的，所有说卖给川普平台和帮他建平台的都是骗他的。如果真是这样，75亿的地球在过去不可能只有盖特、推特、Facebook等这几家平台了。
+它不计入的
+No son contados
 
-昨天澳大利亚和英国媒体采访时，Jason Miller说得非常好，“有竞争是好事”。如果世界上有3-4家推特，3-4家盖特这样的，绝对不可能出现一个总统被禁言，疫苗真相被掩盖，共产党放的病毒不能讨论；因为没有竞争，一人独大垄断才导致现在的结果。有竞争才没有垄断，没有垄断才有真相，这才是根本！
+它不属于
+No pertenece
 
-Jason Miller先生太棒了，我们很荣幸能有Jason Miller先生。他能在最关键的时候把握住原则并且愿意相信真相。我们要继续支持川普总统，一定帮他揭穿共产党的犯罪目的和手段。我们要让吴征这帮孙子把钱吐出来，咱们要打抱不平，拯救川普总统。我永远相信好人比坏人多！
+比如说它不属于房地产
+Por ejemplo, decir que no pertenece a los bienes y raíces
 
-习近平访问欧洲是错误的信息，很多国内战友，问我信息是否是真的，说明江派根本不了解习的行踪。是七哥信息的错误，是王毅出访，已经出公告了，我要的就是你的一个公告，你就别勾兑了！习还在北京，国内的江派就不要再找我了，你们太low了！明天早上大直播。
+记帐里面去
+Entrar en la contabilidad
 
-***听写：**文评*
+它的开支也不算进去
+Sus gastos tampoco son incluidos
 
-***校对:** 小雨*
+它叫什么
+Cómo se llama eso
 
-* * *
+（属于）财政部的整个划拨
+(pertenece) a la asignación completa del Ministerio de Finanzas
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+财政部划拨是不算这个的
+La asignación del Ministerio de Finanzas no cuenta esto
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+你知道这很夸张吧
+Sabes que esto es una exageración
 
+那划拨是在哪儿呢
+Entonces en dónde están las asignaciones
 
-编辑：【英国伦敦喜庄园编辑部】
+在中国有多少干休所呢
+Cuántos retiros para los militares con rangos hay en China
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+中国有多少个省呢
+Cuántas provincias hay en China
+
+中国有多少个县呢
+Cuántos condados hay en China
+
+大家查一查
+Todos busquen a ver
+
+中国大概有一万七千个国家（级）的干休所
+En China hay más o menos 17 mil retiros para militares de rango a un nivel nacional
+
+一万七千个，不算地方的啊
+Los 17 mil no están dentro de las zonas
+
+不算个省市的
+No cuenta como provincias
+
+军队呀、各部委啊
+El ejército, los ministros de cada ministerio
+
+一万七千个
+17 mil
+
+事实上大概有两万个
+Realmente hay como 20 mil
+
+这当时统计局统计有两万个
+En aquel momento la Oficina de Estadística hizo un censo de 20 mil
+
+两万个干休所得编制是多少
+Cuánto es el sistema de ingresos de 20 mil retiros
+
+土地不算钱
+Los terrenos no cuentan como dinero
+
+各种成本都不算
+Ningún tipo de costos cuentan
+
+那都是财政部拨的
+Todos son asignados por el Ministerio de Finanzas
+
+那你说你这社保是
+Entonces tu dices que el seguro social es…
+
+老百姓没有这个待遇啊
+Los ciudadanos no tienen este beneficio
+
+它又不包含的社保基金里面去
+Eso no está incluido dentro del fondo de seguro social
+
+所以当年戴相龙跟我说的一句话
+Por eso Dai Xianglong me dijo una palabra en aquel año
+
+他说文贵啊
+Dijo: Ay Wengui
+
+任何中国人没把社保搞明白的
+No es necesario conversar con ningún chino
+
+你什么都不用跟他聊了
+Que no haya entendido sobre el seguro social
+
+他这个脑子就是有问题了
+El cerebro de esta persona si tiene problemas
+
+———————————————————
+
+**原视频网址**： [https://twitter.com/se1y7cblljselva/status/1451092014993330181?s=24](https://twitter.com/se1y7cblljselva/status/1451092014993330181?s=24)
+
+日期：10/23/2021
+原视频标题：
+Los fondos de los terrenos, entre otros, no están incluidos en los activos nacionales y los ciudadanos no tienen ningún beneficio
+
+原视频日期：10/21/2021
+任务编号：KC196（2623）
+视频时间段：0:00-1:17
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
