@@ -2,22 +2,30 @@
 ---
 
 
-## 秘翻在线： 原建设银行行长崔滨洲退休后仍被调查并开除党籍
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1621007/)
+## 香港颁布新法 收紧电影审查
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1621088/)
 
-**撰稿：葛大饼**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/58968593_301.jpg)香港颁布新法 收紧电影审查 网络图片
+据德国之音中文网10月27日报道，10月27日，香港立法会通过一项新法，要求从“保护国家安全”角度对影片进行审查，以防范影片中出现”鼓动、美化或支持危害国家安全的内容”。该法授权香港政务司司长在认为某影片有悖国家安全利益时，可撤销该影片的播放许可。而违反该法的行为人，将被处于最高三年监禁或一百万港币的罚金。
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-27-202507.jpg)
-根据2021年10月26日今日头条报道，中国建设银行浙江省分行原党委书记、行长崔滨洲因严重违纪违法问题被开除党籍。
+批评者认为，该法进一步收紧了香港的自由空间，并将打击香港影视行业的创作活力。香港浸会大学电影学院的吴国坤教授则表示，将国家安全条款引入电影审查条例，无疑是一种政治审查。
 
-早在4月25日中央纪委国家监委官网就披露，崔滨洲涉嫌严重违纪违法，目前正接受纪律审查和监察调查。当时崔滨洲已经退休近三年。据当时媒体报道，2012年上半年，浙江中江集团出现债务危机，建行浙江省分行成为牵扯最深的银行贷款方，提供贷款规模约30亿元。
+新闻参考链接： [https://www.dw.com/zh/香港颁布新法-收紧电影审查/a-59638802?maca=chi-rss-chi-all-1127-rdf](https://www.dw.com/zh/香港颁布新法-收紧电影审查/a-59638802?maca=chi-rss-chi-all-1127-rdf)
 
-新闻称崔滨洲严重违反党的政治纪律、中央八项规定精神，且在党的十八大后不收手，依据《中国共产党纪律处分条例》，《中华人民共和国监察法》等有关规定，给予崔滨洲开除党籍处分，取消其享受的退休待遇，收缴其违纪所得。
+* * *
 
-郭先生提过习近平要抓捕多个银行的行长，退休的也抓，包括人民银行的老大——郭树清。这些都是王岐山的人。中共体制就是个绞肉机，谁也逃不过去。只有灭了共，大家才能安全。
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-**[新闻来源](https://www.toutiao.com/i7023305303194239519/?tt_from=copy_link&amp;utm_campaign=client_share&amp;timestamp=1635258208&amp;app=news_article&amp;utm_source=copy_link&amp;utm_medium=toutiao_ios&amp;use_new_style=1&amp;req_id=202110262223270101511921551F3A8ECE&amp;share_token=A3A66636-68E9-44DB-9193-FB24C0EB2311&amp;group_id=7023305303194239519)**
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

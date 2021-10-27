@@ -2,28 +2,28 @@
 ---
 
 
-## 昂山素季否认煽动叛乱指控
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1621069/)
+## 有声|“莆田刀客”欧金中前妻遭中共监视居住
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1621187/)
 
-新闻来源：德国法兰克福报网络版
+配音：香草山美食部 – 玫瑰园
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+中国民间权益组织“民生观察”，23日引用律师消息称，莆田欧金中被中共宣称自杀身亡后，其前妻欧秀香被中共当局，以“涉嫌包庇罪”为由监视居住，其前妻姐姐的两个儿子、女儿，也因该在事件中所谓涉嫌“散布谣言”而被查。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/aung-san-suu-kyi-im-dezember.jpg)
+据悉，殁年55岁的欧金中，因被邻居阻拦翻盖旧房，5年求告无门而激情杀人，导致对方2死3伤。在逃亡8日后，中共当局称其在警方围捕下自杀身亡。该事件发生以来，中国网民一边倒对他表示同情，并称之为“莆田刀客”。
 
+文字版原文：[“莆田刀客”欧金中前妻遭中共监视居住](https://gnews.org/zh-hans/1618189/)
 
-图片来源： FAZ
+音频处理：喜山必胜Maverick
 
-自缅甸军事政变以来，被罢免的国务委员兼诺贝尔和平奖获得者昂山素季首次出庭作证。她的律师说， 昂山素季很好地捍卫了自己的清白。她的律师拒绝透露姓名， 因为据政府此前昂山素季的法律团队发言。
-
-昂山素季还被指控犯有其他各种罪行，包括腐败。如果罪名成立，她将面临多年监禁。自政变以来，国务委员一直被关押在一个秘密地点。昂山素季和其他的政府成员已经掌握在军政府手中。 昂山素季呼吁国际社会不要承认军政府是合法政府。随后，她宣布军政府制定的所有规则和法律都是非法的。
-
-原文链接：[https://www.faz.net/aktuell/politik/ausland/myanmar-aung-san-suu-kyi-sagt-erstmals-nach-putsch-vor-gericht-aus-17604834.html](https://www.faz.net/aktuell/politik/ausland/myanmar-aung-san-suu-kyi-sagt-erstmals-nach-putsch-vor-gericht-aus-17604834.html)
-
-免责声明：本文内容仅代表个人观点，与Gnews平台无关。
-
-责任编辑、发布： Shuizhuyu
-
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

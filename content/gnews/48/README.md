@@ -2,38 +2,69 @@
 ---
 
 
-## 疫苗灾情｜美国 13 岁女孩接种疫苗后瘫痪（附影片）
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1620514/)
+## COVID-19最新情报｜台湾机师猝逝 机师工会指检疫制度造成
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1620578/)
 
-**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 27/10/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+**台灣寶島農場 疫情關注組｜發佈日期/ 27/10/2021**
 
-【美国】一名 13 岁的女孩 Maddie de Garay 在接种完第二剂辉瑞 COVID-19 疫苗之后的 24 小时内，身体出现各种疼痛，并在两个月内迅速恶化，目前，Maddie 腰部以下瘫痪，并且吞咽困难。
-
-最近有一只由疫苗安全研究基金会（VSRF）赞助的广告影片受到关注，但很快，因触及 FDA 公共谘询委员就辉瑞 BioNTech 将 COVID-19 mRNA 疫苗用于 5 ～11 岁儿童的申请，影片被强行撤下，该片的主人公就是 Maddie。
-
-事源 Maddie 的母亲为她报名参加的辉瑞 COVID-19 疫苗的临床试验，在 Maddie 1 月份接受第二针之后，她立即发生了严重的不良反应，腹部、肌肉和神经剧烈疼痛，并在接下来的两个半月内，她先后 3 次住院，情况一次比一次严重，呕吐、血压和心率不稳定、记忆力减退、脑雾、头痛、昏厥以及癫痫，最糟糕的一次，Maddie 试过一天有 20 次的昏厥和癫痫交叉发生。
-
-Maddie 的母亲 Stephanie de Garay 在 6 月份，由参议员 Ron Johnson (R-WI) 组织的一场新闻发布会上表示，Maddie 和她的两个兄弟都参加了辉瑞针对 12 至 15 岁儿童的试验，“因为我们相信科学，所以我们很高兴参加了试验，希望为所有人恢复正常生活而做出一点努力。”
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-5-1.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-7-1.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-8-1.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-6-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
 
-她续指，“我等了 7 个月让辉瑞或 FDA 承认我女儿的遭遇，但他们没有，他们试图忽视我女儿的不幸。有了这次的广告影片，Maddie 终于有机会和他们共处一室，让他们看到，听到 Maddie 的声音，但是他们却要我们噤声。”
+據[台湾媒体](https://www.chinatimes.com/amp/realtimenews/20211027001874-260405)报导，中华航空一名外籍机师于居家检疫后猝逝，该机师家人表示死者经历20天的连续执勤、检疫轮回，曾在途中向亲友表示身心疲倦，于居家检疫结束后突发猝死。航空公司表示，这位机师10月长程航班返台后，依规检疫且三采都是阴性，死因还在调查当中。
 
-可惜，不仅是 Maddie 的影片遭到封杀，连这场新闻发布会 ，在参议员 Ron Johnson 上传到推特上不久，就被 Twitter 删除。
+机师猝死的憾事发生，许多机师、空服员也接连对机组员检疫制度表示不满，认为这种检疫制度影响机组员的身心健康，无法好好休息才导致了本次遗憾的发生。
 
-**最令人愤怒的是，10 月 26 日，美国食品及药物管理局 17 位专家一致同意放宽辉瑞疫苗的接种年龄限制，赞成为五至十一岁儿童接种辉瑞新冠疫苗，并同时认为即使有心肌炎等健康风险，但接种疫苗好处仍然大于风险。**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/50_0.jpg)
-来源｜[个案050](https://www.visiontimes.com/2021/10/25/comcast-pfizer-clinical-trial-youth-vaccine-injury-ad-cancellation.html)
+这位猝死的外籍机师，于2000年进入中华航空744机队任职，年资近21年。对于机师的猝死，机师工会表示机组人员长期以来没有人权、没有自由，不健康的检疫制度已经导致许多组员身心亮起红灯，呼吁防疫指挥中心经过本次机师猝死要改变检疫措施。
 
+其他：[检疫操! 8天飞2长程 机师“突发性失聪” ｜TVBS新闻](https://www.youtube.com/watch?v=qok0Aqns7LQ)
+其他：[华航空服员爆打AZ疫苗后“眼睛血栓模糊”没医师敢通报副作用| ETtoday生活新闻](https://www.ettoday.net/news/20210513/1980631.htm)
+
+工會表示這位機師“体格良好”，并归咎猝死于“检疫措施”。
+
+- 相關：[COVID-19最新情报｜美律师控诉 政府掩盖4.5万例疫苗死亡案例兼 强制民众接种](https://gnews.org/zh-hant/1607140/)
+- 相關：[COVID-19最新情报｜政府荒谬地将COVID-19扩散归咎于未接种疫苗族群](https://gnews.org/zh-hant/1607453/)
+
+
+#### 知情人士呼吁：防疫指挥中心应正视“连续派飞”的危险？
+
+[报导](https://www.ettoday.net/news/20211026/2109363.htm)称知情人士指出：他过世前两天有跟同事说，每天关在旅馆里面无限期循环，没办法运动，感觉自己身体在退化。
+
+猝死机师的挚友张志豪，向[媒体](https://www.ettoday.net/news/20211026/2109363.htm)透漏他虽然年纪61岁，但是身材壮硕，开朗又健康，猝死的发生应当让“防疫指挥中心”正视“连续派飞”的危险性。
+
+#### 防疫中心回應
+
+指揮中心副指揮官陳宗彥回應，航空公司應注意機組員的身心狀況。（「排班」不宜過度密集）
+
+#### 疑点：检疫制度相当矛盾
+
+第一疑点：台湾推广大规模疫苗接种，高危险性行业也优先进行完全接种。新冠疫苗的目的为了“预防感染”接种后应“具有免疫力”，为何要求机组员继续隔离检疫？
+
+挥中心若考量国际上突发性感染数量激增，因此怀疑“新冠疫苗不具有预防效力”。若疫苗不预防感染，接种疫苗目的为何？
+
+- 相關：[COVID-19最新情报｜瑞典、英国新冠死亡案例 集中于“完全接种者”](https://gnews.org/zh-hant/?p=1618500)
+- 相關：[瑞典研究显示完全接种疫苗后，抗体将在三个月后急剧下降](https://gnews.org/zh-hant/1576453/)
+- 相關：[COVID-19最新情报｜美前国务卿接种疫苗后染疫身亡 疫苗防重症破功？死于疫苗？](https://gnews.org/zh-hant/1603625/)
+- 相關：[COVID-19最新情报｜政府不愿让人民知道的是 医院正充斥着新冠疫苗接种者](https://gnews.org/zh-hant/1607201/)
+
+
+第二疑点：新冠疫苗效力不确定，为何“忽视自然免疫选项”继续大力推行疫苗接种？
+
+- 相关： [COVID-19最新情报｜为何政府“忽视”自然免疫？](https://gnews.org/zh-hant/?p=1610194%28%E5%9C%A8%E6%96%B0%E5%88%86%E9%A0%81%E4%B8%AD%E9%96%8B%E5%95%9F%29)
+- 相关：[瑞典研究顯示完全接種疫苗後，抗體將在三個月後急劇下降](https://gnews.org/zh-hant/1576453/)
+
+
+第三疑点：为何阻挡“安全、有效、便宜”的药物治疗方案？
+
+- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/)
+- 相关：[新冠病毒预防、治疗方案（](https://vladimirzelenkomd.com/prophylaxis-protocol/)Zev Zelenko 博士）
+- 相关：[印度德里使用伊维菌素，确诊病例下降97%](https://gnews.org/zh-hant/1570870/)
+- 相关：[Zev Zelenko 博士](https://www.wnd.com/2020/03/doctor-treated-350-coronavirus-patients-100-success/)在(2020年) 4 月份[告诉 WND](https://www.wnd.com/2020/03/doctor-treated-350-coronavirus-patients-100-success/)，他利用药物已经治疗了 350 名新冠确诊者，且成功率达 100%。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/19-5.jpg)
 * * *
 
-他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//｜//[美国 35 岁疫苗拥趸孕期接种后致新生儿夭折](https://gnews.org/zh-hans/1605744/)//｜//[澳洲 30 岁夫妇接种疫苗后相继出现心脏疾病](https://gnews.org/zh-hans/1607321/)//｜//[意大利 18 岁少年接种疫苗2周内突患罕见病](https://gnews.org/zh-hans/1610841/)//｜//[比利时 22 岁自行车手接种疫苗后心力衰竭 职业生涯被迫结束](https://gnews.org/zh-hans/1612160/)//｜//[英国 40 岁女演员接种疫苗后中风昏迷](https://gnews.org/zh-hans/1618638/)//
+撰文｜zhong
 
  
 

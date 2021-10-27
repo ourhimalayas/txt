@@ -2,35 +2,71 @@
 ---
 
 
-## 中共的强制抗疫政策
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1621078/)
+## 49岁的母亲因注射Covid疫苗导致血栓和中风而不得不坐轮椅
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1621192/)
 
-作者：澳喜农场 在远方
+**编译：七叶之芒**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip77.png)
+*作为凯里-赫特手术的一部分，她被切除了部分头骨，并遭受了 “巨大的中风”，导致她身体的左侧瘫痪（图片：David Poucher）。*
 
+一位罗瑟汉姆的母亲因注射Covid疫苗，而导致脑部血栓和中风，她呼吁政府提供更好的支持。
 
+Kiveton的凯里-赫特（Kerry Hurt），49岁，在4月接种阿斯利康疫苗一周后，脑部形成血块，不得不在谢菲尔德的Hallamshire医院接受救治。
 
-中共内蒙古额济纳旗于当地时间25日零时宣布封城，当局公告称，禁止居民出户且禁止游客出店，否则将被追究民事和刑事责任。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/PP5.001.jpeg)
-据内部战友透露，中共先是研制并释放病毒，造成世界性的灾难，其后又采取了极端严酷的疫情防控措施，动辄封门、封路、封城，任由民众自生自灭，最终导致民怨四起。为了防控疫情，中共国是全世界唯一一个全面阻止公民返国，并禁止疫区病患外出寻求医疗援助的国家。
-(本文仅代表作者观点)
+作为手术的一部分，她的部分头骨被切除，并遭受了“大规模中风”，导致她的身体左侧瘫痪。
 
-参考链接：[中国新一轮封城抗疫行动 成效与可持续性受考验](https://www.voachinese.com/a/china-braces-for-covid-19-new-lockdowns-20211025/6284255.html)
+一周后，她的脑部积水，需要进行另一次挽救生命的手术，在她的头骨中插入一个引流管，这又需要在重症监护室待上三个星期。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+经过近五个月的住院治疗，赫特夫人现在已经回到家中，楼下的区域已经被改造，以便更好地支持她目前的状况。
 
-编辑/总编：Irene木木
-校正/发稿：我不在这里
+医生将并发症归咎于疫苗，赫特夫人的丈夫帕特里克在住院的几个月里一直守在妻子的床边，他强调，他们一家并不是“反疫苗贩子”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip78.png)
+*凯里-赫特与她的儿子卡勒姆（中）和乔丹（图片：David Poucher）*
+他呼吁政府为像他这样的家庭提供更好的支持，但他说：“数以百万计的人得到了帮助，但对于那些遭受痛苦的人来说，他们肯定应该得到他们需要的支持，因为毕竟我们只是为了所有人的利益，而做了我们被要求做的事情。我们是一对健康的夫妇，周末会去走六英里的路，我们没有想到会发生这样的事情。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+赫特先生补充说，他已经和律师谈过，如何就所发生的事情要求支持或赔偿，但他们不愿意接手他们的案件。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+他说：“政府对很多疫苗的副作用都保密，这正是我们所恼火的。我确实认为它是匆忙通过的。我们不知道血栓，直到后来才知道，但他们没有说他们将为受血栓影响的人做什么。我们知道它救了很多人，但对我们来说它出了问题，他们需要支持我们。”
+
+两个孩子的母亲赫特夫人补充说：“我们认为我们接种疫苗是正确的，但显然这一切对我来说都有点变味了。”
+
+赫特夫人一直无法回到她在桑坦德银行的工作岗位上，在家里的治疗花费了4000多英镑，这就是为什么她的兄弟大卫-普彻，建立了一个GoFundMe页面来帮助她和她的丈夫。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip79.png)
+*49岁的凯里-赫特由于她注射的Covid疫苗的不良反应而在医院度过了近五个月的时间（图片：David Poucher）。*
+
+到目前为止，该GoFundMe页面，已经筹集了超过8000英镑，这些钱将用于购买专业设备，以及支付她所需要的持续物理治疗。
+
+赫特夫人还计划进行另一次手术，在那里将插入一块金属板，以代替她头骨的缺失部分。
+
+她说，人们的支持是“惊人的”，并补充说，人们一直在通过她的信箱寄钱来帮忙。
+
+赫特夫人说：“人们是如此善良，如此善良和支持。我们已经被它淹没了。家庭的支持一直是令人难以置信的。没有他们，我们不可能做到这一点。”
+
+Poucher先生说，他的姐姐和姐夫在斗争中的态度是“令人惊讶的”。
+
+他说：“她现在只能坐在轮椅上，每天接受理疗，试图帮助她的左侧恢复一些运动。作为一个家庭，我们很坚强，但凯里（Kerry Hurt）如何处理这样一个毁灭性的情况，实在令人惊讶。她没有抱怨，只是继续生活。”
+
+**简评：**
+
+**没有轰轰烈烈，没有战火纷飞。这就是一个平凡人在接种疫苗之后的悲惨故事。中共发起的超限战，和黑暗势力的疫苗阴谋，就这样悄无声息的毁掉了一个普通家庭。然而，对于疫苗的副作用，却鲜被主流媒体提起。**
+
+**真正的疫苗灾难还未开始，像Kerry Hurt这样的遭遇，只是受疫苗危害的千千万万家庭中的一例。在人们如此相信政府，如此相信科学的时候，政府和科学却做出了这种天理难容的事情。**
+
+**一幕幕惨剧已经证明了，疫苗是有“毒”的！希望全世界的人们快些醒来，拒绝接种疫苗。**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**文章来源**：[examinerlive.co.uk] [Mum, 49, left in a wheelchair after Covid vaccine caused blood clot and stroke](https://www.examinerlive.co.uk/news/local-news/mum-43-left-wheelchair-after-21940979)
+
+* * *
+
+***审核：Aries的星
+校对：信心满满
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
 
  
 

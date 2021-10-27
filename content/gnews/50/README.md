@@ -2,42 +2,39 @@
 ---
 
 
-## 国际要闻汇编 10月27日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1620323/)
+## 疫苗灾情｜美国 13 岁女孩接种疫苗后瘫痪（附影片）
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1620514/)
 
-#### 素材：东京樱花团｜GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-22.png)[*图片来源*](https://gdb.voanews.com/04EFDE35-AD78-4B29-8A8B-5D7C16B223DD_w1597_n_r1_st.jpg)
-1、[**美鼓励联合国成员国支持台湾入联合国系统**](https://www.voachinese.com/a/blinken-urged-all-un-memger-states-to-support-taiwans-meaningful-participation-in-the-un-system-20211026/6286756.html)
+**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 27/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-美国国务卿布林肯周二(26日)在国务院正式发布的声明中说，美国认为台湾施行透明、对尊重人权及法治尊重的模式，都与联合国价值观一致。美国支持台湾参与联合国系统，台湾已经成为一个民主成功故事，美国鼓励所有联合国成员和美国一起，支持台湾参与联合国系统及国际社会，共同解决全球所面临的问题。
+【美国】一名 13 岁的女孩 Maddie de Garay 在接种完第二剂辉瑞 COVID-19 疫苗之后的 24 小时内，身体出现各种疼痛，并在两个月内迅速恶化，目前，Maddie 腰部以下瘫痪，并且吞咽困难。
 
-台湾模式与联合国价值观一致。
+最近有一只由疫苗安全研究基金会（VSRF）赞助的广告影片受到关注，但很快，因触及 FDA 公共谘询委员就辉瑞 BioNTech 将 COVID-19 mRNA 疫苗用于 5 ～11 岁儿童的申请，影片被强行撤下，该片的主人公就是 Maddie。
 
-2、[**因参与新疆人权侵犯 美国大型零售商下架中国监控产品**](https://www.voachinese.com/a/us-retailers-pull-out-chinese-surveillance-products-20211026/6286703.html)
+事源 Maddie 的母亲为她报名参加的辉瑞 COVID-19 疫苗的临床试验，在 Maddie 1 月份接受第二针之后，她立即发生了严重的不良反应，腹部、肌肉和神经剧烈疼痛，并在接下来的两个半月内，她先后 3 次住院，情况一次比一次严重，呕吐、血压和心率不稳定、记忆力减退、脑雾、头痛、昏厥以及癫痫，最糟糕的一次，Maddie 试过一天有 20 次的昏厥和癫痫交叉发生。
 
-据美国科技媒体TechCrunch报道，美国三家大型家用电器和消费者电子产品零售商百思买(Best Buy)和建材与家居商品零售商家得宝(Home Depot)以及Lowes，下架了中国科技监控制造商海康威视和大华旗下的产品Lorex和Ezviz品牌的监控摄像头，原因是这两家中国厂商参与向中国政府提供监控技术，侵犯了在新疆的维吾尔族和其他少数民族的人权。
+Maddie 的母亲 Stephanie de Garay 在 6 月份，由参议员 Ron Johnson (R-WI) 组织的一场新闻发布会上表示，Maddie 和她的两个兄弟都参加了辉瑞针对 12 至 15 岁儿童的试验，“因为我们相信科学，所以我们很高兴参加了试验，希望为所有人恢复正常生活而做出一点努力。”
 
-3、[**美国航母打击群与日本直升机航母在南中国海进行联合演习**](https://www.voachinese.com/a/us-japan-bilateral-navy-drill-20211026/6286822.html)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-5-1.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-7-1.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-8-1.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-6-1.png)
 
-美国海军10月25日发表声明表示，美国海军的“卡尔·文森”号航母打击群与日本海上自卫队的“加贺”号直升机驱逐舰在南中国海展开海上合作行动与演练。这是“卡尔·文森”号航母打击群今年夏天被部署到该区域后首次与日本军舰进行双边演习。“卡尔·文森”号1982年服役的尼米兹级核动力航空母舰。“加贺”号被日本海军自卫队称为“直升机护卫舰”，这是一艘出云级直升机航空母舰，在2017年服役。
 
-4、[**美国政府吊销中国电信在美经营授权，要求六天内停止业务**](https://www.voachinese.com/a/fcc-terminates-china-telecom-license-20211026/6286622.html)
+她续指，“我等了 7 个月让辉瑞或 FDA 承认我女儿的遭遇，但他们没有，他们试图忽视我女儿的不幸。有了这次的广告影片，Maddie 终于有机会和他们共处一室，让他们看到，听到 Maddie 的声音，但是他们却要我们噤声。”
 
-美国联邦通信委员会（FCC）26日宣布吊销和终止命令。吊销中国电信美洲公司在美国提供国内州际和国际通信服务的授权，要求中国电信美洲公司在命令公布的六天内停止任何国内和国际通信服务。委员会指出，中国电信美洲公司的行为以及向委员会和美国政府其它机构所做的陈述缺乏坦率、可信度和可靠性，而且中国电信美洲公司故意违背了2007年与行政部签署保证书的五项条款中的两项。委员会因此决定吊销中国电信美洲公司在美国经营电信业务的授权。
+可惜，不仅是 Maddie 的影片遭到封杀，连这场新闻发布会 ，在参议员 Ron Johnson 上传到推特上不久，就被 Twitter 删除。
 
-5、[**美国金融专家督促立法者和执法者落实对中概股问责**](https://www.voachinese.com/a/china-finance-ipo-investor-20211026/6286667.html)
+**最令人愤怒的是，10 月 26 日，美国食品及药物管理局 17 位专家一致同意放宽辉瑞疫苗的接种年龄限制，赞成为五至十一岁儿童接种辉瑞新冠疫苗，并同时认为即使有心肌炎等健康风险，但接种疫苗好处仍然大于风险。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/50_0.jpg)
+来源｜[个案050](https://www.visiontimes.com/2021/10/25/comcast-pfizer-clinical-trial-youth-vaccine-injury-ad-cancellation.html)
 
-在美国众议院金融服务委员会周二（26日）的一场听证会上，投资者保障联盟Assurance Mark的创始人罗斯表示，中国政府长期以国家安全为由，拒绝让美国监管机构核查中概股的审查记录。由于缺乏财务透明性，中国上市公司屡屡被爆出财务造假等问题，增加了美国投资者的风险，并损害了美国金融市场的信誉，导致美国投资者蒙受巨大损失。他们督促美国立法者和执法部门尽快落实对这些中国企业的问责制度。
+* * *
 
-6、[**拿美国资金与武汉合研病毒 《华邮》吁国会传召关键专家达萨克作证**](https://www.aboluowang.com/2021/1027/1664467.html)
+他们的故事：//[英国 29 岁创意总监接种疫苗后瘫痪](https://gnews.org/zh-hans/1568652/)//｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](https://gnews.org/zh-hans/1570258/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hans/1572298/)//｜//[爱尔兰 28 岁医科女学生接种疫苗后瘫痪](https://gnews.org/zh-hans/1574393/)//｜//[法国 13 岁男孩接种疫苗10日后失明](https://gnews.org/zh-hans/1578815/)//｜//[希腊 65 岁男演员接种疫苗后因血栓而中风入院](https://gnews.org/zh-hans/1579390/)//｜//[加拿大 22 岁女医护接种疫苗后瘫痪](https://gnews.org/zh-hans/1580961/)//｜//[澳洲 29 岁知名女星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1585160/)//｜//[德国 28 岁女演员接种疫苗后几乎毁容](https://gnews.org/zh-hans/1585176/)//｜//[美国 47 岁教育学硕士接种疫苗后双腿截肢](https://gnews.org/zh-hans/1589436/)//｜//[NBA 26 岁控球后卫接种疫苗后出现血栓 职业生涯提早结束](https://gnews.org/zh-hans/1593082/)//｜//[英国 58 岁前世界冠军接种疫苗后截肢保命](https://gnews.org/zh-hans/1599126/)//｜//[意大利 25 岁女明星接种疫苗后患上心包炎](https://gnews.org/zh-hans/1601146/)//｜//[美国 35 岁疫苗拥趸孕期接种后致新生儿夭折](https://gnews.org/zh-hans/1605744/)//｜//[澳洲 30 岁夫妇接种疫苗后相继出现心脏疾病](https://gnews.org/zh-hans/1607321/)//｜//[意大利 18 岁少年接种疫苗2周内突患罕见病](https://gnews.org/zh-hans/1610841/)//｜//[比利时 22 岁自行车手接种疫苗后心力衰竭 职业生涯被迫结束](https://gnews.org/zh-hans/1612160/)//｜//[英国 40 岁女演员接种疫苗后中风昏迷](https://gnews.org/zh-hans/1618638/)//
 
-关于调查新冠肺炎疫情的起源，尽管中国拒绝让国际专家在无限制的情况下进行调查，但美国《华盛顿邮报》周二（26日）发表社论，指在美国仍有重要的、有希望的调查途径，那就是武汉病毒的关键专家、疾病生态学专家达萨克（Peter Daszak），他是唯一被任命为世界卫生组织——中国联合特派团的美国人。社论强调，达萨克拿美国联邦资金和武汉合作研究蝙蝠冠状病毒和对人类的潜在溢出风险，美国国会有必要传召他作证解释。
-
-（本文只代表个人观点，与Gnews网站无关）
-
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

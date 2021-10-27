@@ -2,12 +2,19 @@
 ---
 
 
-## 纽约公共雇员被要求强制接种疫苗，否则将无薪休假
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1620692/)
+## 国际特赦组织将关闭香港分会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1620841/)
 
-10/24/2021 尽管相当数量的纽约市公共雇员拒绝接种中共病毒疫苗，仍被要求强制接种疫苗，否则就要被迫无薪休假。
+#### 翻译：坤霆
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-103.jpg)图片来源：网络截图
+10月25日零对冲报道，国际特赦组织宣布，在香港国安法的威胁和恐吓下，今年年底将关闭香港分会。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+国际特赦组织表示，过去曾在香港成功推动废除死刑，在2019年大型示威期间，也曾披露警方使用过度武力，国际特赦组织形容香港分会曾经在违反人权最黑暗日子，发出光芒。 而香港国安法字眼模糊，已被北京当局用作限制言论和集会自由，打压异见，又指香港的人权状况在该法实施后急速倒退，至少34个团体因而解散。
+
+这个以维护国际人权为宗旨的组织在这座城市已经存在了四十多年。 在当地香港办事处本月关闭后，业务将转移到亚太地区的其他地方。
+
+原文链接：[Amnesty International To Close All Hong Kong Offices, Citing Beijing’s Oppressive National Security Law](https://www.zerohedge.com/geopolitical/amnesty-international-close-all-hong-kong-offices-citing-beijings-oppressive-national)
 
  
 

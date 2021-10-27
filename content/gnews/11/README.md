@@ -2,31 +2,39 @@
 ---
 
 
-## 布林肯：鼓励所有联合国成员与美国一起支持台湾参与联合国系统
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1620981/)
+## 拜登签署命令实施新国际旅行疫苗规定
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1621066/)
 
-编辑摘要：
+作者：澳喜农场 在远方
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/acastro_211024_4823_0001.0-2.jpg)资料照片：美国国务卿布林肯在纽约举行的第76届联合国大会场边举行记者会。(2021年9月23日)
-
-据美国之音10月27日报道，美国国务卿布林肯26日在国务院正式发布声明说，美国认为台湾施行透明、对尊重人权及法治尊重的模式，都与联合国价值观一致，台湾已经成为一个民主成功故事。美国支持台湾参与联合国系统，很多联合国成员都视台湾为一个宝贵伙伴及可信赖朋友。美国鼓励所有联合国成员和美国一起，支持台湾参与联合国系统及国际社会，共同解决全球所面临的问题。
-
-北京称已经就美国务卿的讲话向美方提出“严正交涉”。
-
-新闻参考链接：[布林肯：鼓励所有联合国成员与美国一起支持台湾参与联合国系统](https://www.voachinese.com/a/blinken-urged-all-un-memger-states-to-support-taiwans-meaningful-participation-in-the-un-system-20211026/6286756.html)
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+10月25日，拜登签署了一项新的国际旅行疫苗命令，当中表示，从11月8日起，取消对中共国、印度和欧洲大部分地区的严格旅行限制。但是，新规定中要求，外国的航空旅客需要提供所谓“官方来源”的新冠疫苗接种文件，且最后一剂疫苗的接种时间至少比旅行出发日期早两周。另外，国际航空旅客还必须在起飞前72小时内提供新冠病毒检测阴性的证明。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1027-AM-（1-3、5-8、10）视频备用.004.jpeg)
+虽然全球旅行禁令看似在逐渐解除，但与之并行的是各国政府愈演愈烈的强制新冠疫苗接种政策。而今，这一政策已经影响到民众生活的各个角落。
+
+从另一方面看，美国的航空新规一方面要求旅客接种新冠疫苗，但另一方面仍需他们提供病毒检测阴性证明，这本身就是疫苗不具有效防护作用的体现。
+(本文仅代表作者观点)
+
+参考链接：[美国总统拜登签署命令 实施新的国际旅行疫苗规定并取消严格限制](https://cn.reuters.com/article/biden-travel-rules-1025-mon-idCNKBS2HG034)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/总编：Irene木木
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
 
  
 
