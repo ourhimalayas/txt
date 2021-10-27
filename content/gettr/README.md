@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/27/2021 11:54 PM (UTC)`
+
+11月27号：非常智慧独到的对中国共产党……对中国人民犯下的罪行的现状解读！悲哀的是．中国有无数的智者，但是却极少有真正的行动的勇士……
+![img](https://media.gettr.com/group23/getter/2021/10/27/23/54/df04af12-762a-f59b-d0bc-b9e0f159445f/b42c0e021bf77d08190140a2f1a9819c.jpg)
+
+---
+
 `@miles 10/27/2021 10:25 PM (UTC)`
 
 11月27日：感谢玉米地大姐送的漂亮的鲜花💐……
@@ -290,13 +297,6 @@ Eleven Qualified Institutional Buyers or Institutional Accredited Investors of D
 
 10/22/2021 Miles Guo: The core issues of the 6th Plenary Session of the CCP’s Central Committee are: 1) eliminating the private entrepreneurs and the complete nationalization of the economy; and 2) when to invade Taiwan? This meeting will determine the future of the Communist China - to become another North Korea or return to the rule of the 9 CCP Politburo Standing Committee Members. Xi has the final say in choosing his successor<br/><br/>10/22/2021 文贵直播：中共此次六中全会最重要的议题是：1) 消灭私营企业家、经济上完全国有化；2) 何时打台湾；这次会议将决定中共国的未来走向是北朝鲜化，还是回归”九龙治水”；在继承人的问题上，习说了算<br/>
 ![img](https://media.gettr.com/group32/getter/2021/10/22/23/58/d228c64f-8904-95a1-e8a0-d1e8948d7879/out.jpg)
-
----
-
-`@miles 10/22/2021 11:20 PM (UTC)`
-
-Statement about Artemisinins, SARS-CoV2 and related topics<br/><br/>关于青蒿素及 SARS-CoV-2 的声明<br/>
-![img](https://media.gettr.com/group8/getter/2021/10/22/23/20/19488e55-c87b-ca95-fb27-2566946450bb/7796246461ff1ea2840fb0f5fababc04.jpg)
 
 ---
 
