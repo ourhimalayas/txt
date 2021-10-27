@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/27/2021 12:02 AM (UTC)`
+
+10/26/2021 Miles Guo’s GETTR: The DWAC’s share price plunged. Claims can be made for the losses in the DWAC stock caused by the fraudulent information provided by Bruno Wu and the insider trading conducted by the 11 funds. We support President Trump and hope he will win， but this scam arranged by the CCP can destroy President Trump.<br/><br/>10/26/2021 文贵盖特：DWAC的股价暴跌，因吴征提供虚假信息和11家基金所进行的内幕交易而导致DWAC的股价下跌可要求索赔；我们支持川普总统并希望他赢, 但中共设计的这一骗局能毁掉川普总统！<br/>
+![img](https://media.gettr.com/group3/getter/2021/10/27/00/02/e00bea8e-a08c-460a-4e01-1358e5c3e34b/out.jpg)
+
+---
+
 `@miles 10/26/2021 8:55 PM (UTC)`
 
 10/26/2021 Miles Guo’s GETTR: The absolute monopoly of the social media led to the cover-ups of the CCP’s evil deeds and the truth about the COVID vaccine. We support healthy competition and reject monopoly. We shall save President Trump by revealing the purposes and means for the CCP to commit crimes. Correction: My message about Xi Jinping’s trip to Europe was incorrect<br/><br/>10/26/2021 文贵盖特：社交媒体的绝对垄断导致中共作恶和疫苗的真相被掩盖，我们支持良性竞争、拒绝垄断；我们要拯救川普总统，揭穿中共的犯罪目的和手段；文贵纠正习近平访问欧洲的错误信息。<br/>
@@ -286,13 +293,6 @@ Statement about Artemisinins, SARS-CoV2 and related topics<br/><br/>关于青蒿
 
 The Pacific Alliance Asia Opportunities Fund and Mr. Guo Wengui have been fighting in New York state court for four years over $88 million.Christopher Gradel founded Pacific Alliance Group Ltd, and he is a Non-Executive Director of ARC Capital Holding, ARC Group Ltd is acting as the financial advisor to Giga Energy, and Yunhong International and Giga Energy Inc, announced Execution of Definitive share exchange, Bruno Wu company’s Sun Seven stars group, his brother Bing Wu, and Samuel Nunberg (political advisor of Trump and sued Guo Wengui for defamation) are shareholders of Giga Energy. On SEC report Bruno Wu is the representative of this deal. The CEO of Yunhong who is also the CEO of Digital World (Patrick Orlando), which is now merging with Trump Media.
 ![img](https://media.gettr.com/group18/getter/2021/10/22/20/1d595219-4927-c02a-b5d9-7773f3bf61e3/746ad7aa8d1fba20c23ccbdb69b7450e.jpg)
-
----
-
-`@miles 10/22/2021 5:49 PM (UTC)`
-
-Background Information on Yunhong Group (4) 运鸿集团的背景（四） 
-![img](https://media.gettr.com/group39/getter/2021/10/22/17/49/57e15ad8-f2e7-117d-422e-fa8bda6e38c8/6fb25459e00e2463c7c7a246a61204b7.jpg)
 
 ---
 
