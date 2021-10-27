@@ -2,36 +2,33 @@
 ---
 
 
-## 中共要求许家印以个人财富偿付恒大债务
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1621453/)
+## DC大中华时事：许家印卸任恒大地产董事长
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1621483/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月26日，据消息人士透露，中共当局要求许家印拿出个人财富，以应对越来越严重的债务危机。
+*编辑：**西北风** / 作图：*虎子哥
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-12.jpeg)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
 
-据悉，恒大曾于9月下旬未能兑付一笔到期的美元外债利息，随后，中共要求许家印以私人财产偿付。在一个月的宽限期内，恒大筹集了八千三百五十万美金，全额偿还了那笔美元利息，避免了实质违约。然而，恒大另一笔美元外债利息的30天宽限期将于10月29日本周五到期；至2022年，还将有一笔7.4亿美元的在岸和离岸债券到期。
+#   墙国妄语每日驳
 
-数据显示，许家印的净资产已经从2017年高峰时期的四百二十亿美元，缩减至如今的大约78亿美元。截至今年6月，恒大的总负债已达3000多亿美元。
+### *[美媒：教育吸引力不再？美国不要让中国学生伤了心](https://m.huanqiu.com/article/44ODeWsz4zy)*
 
-自恒大债务危机爆发以来，中共政府虽严密监控着恒大的银行账户，但其目的是为了确保恒大的现金将被用于未完成的住房项目，而不是用于赔偿支付债权人，包括各种理财产品的受害者。
+***简评：*中国历史上有三次大的学术思想大解放，文化大繁荣改变影响了中国历史进程。最早是众所周知的春秋战国时期诸子百家，从而形成有儒家，法家，道家，墨家，阴阳家等学派，奠定了华夏文明基础。还有就是魏晋南北朝时期兴起起的玄学，也就是所谓的魏晋风度，玄学探索的是宇宙规律，这是一种真正理性和思辨的纯粹哲学。中华文化又迎来了一次文化大繁荣，思想大解放。还有就是1919年五四运动为代表的新文解放运动，中国在西方现代文明冲击下思想大解放。中共夺取政权后，五四精神进程被打断。如今，中国青年学生能有机会出国留学学习西方先进文明希望再次延续中国五四运动的精神这一进程也许又要被中共打断，文明的复兴，首先要在思想文化上大解放。没有全球化的交流学习，复兴从何谈起。**
 
-参考链接：[Beijing Tells Evergrande’s Billionaire Founder To Repay The Insolvent Company’s Debts](https://www.zerohedge.com/markets/beijing-tells-evergrandes-billionaire-founder-repay-insolvent-companys-debts)
+### *[台媒关注解放军台岛周边演练参考消息网](http://m.cankaoxiaoxi.com/tw/20210818/2451519.shtml)*
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+***简评：*台媒推测解放军在东南方演练的目的，就是阻断美军从巴士海峡进入南海的交通线。台湾由于地处地缘战略要地。东北扼守日本韩国，西南扼守菲律宾，印度尼西亚东南亚诸囯。在如今海洋文明为主的世界从地缘政治上讲是台湾大国必争之地。中共对全世界尤其是美国发动的这次病毒生化战争其最终矛头目标对准的就是台湾。如果这一推理属实，之前病毒所发生的一切都有合理的解释。但中共内部己腐败至极，老百姓在新的三座大山压力面前已是苦不堪言，如果中共仍要穷兵黩武，中共政权的跨台将近在眼前。**
 
-总编：山本不惑
-编辑：山本不惑
-校正/发稿：谐趣园
+### *华尔街日报中文网：许家印卸任恒大地产董事长*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+***简评：*恒大许家印缷任董事长，中国地产界的龙头出事，证明中国经济己到了第一个多米诺骨牌倒下开始，之后只能是重力加速度的下滑。中共改革开放几十片靠着卖地和倒卖地产双向吸血老百姓来供养中共。这1⃣️模式终于走到头了。地产背后就是金融，地产倒了，金融很快也会出问题，金融地产是中共真正经济支柱，金融地产倒了，中共盗国模式也该结束了。 **
+
+#   港台资讯
+![](https://media.discordapp.net/attachments/858887785507323904/902763951127920660/01.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/902764024528257024/02.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/902764080681594910/03.png?width=1043&amp;height=586)
+*编辑： **映兰轩***
+*作图：虎子哥
+发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

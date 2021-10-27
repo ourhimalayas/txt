@@ -2,30 +2,25 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月27日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1621639/)
+## 美食品药物监管局支持为低龄儿童接种疫苗
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1621683/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-413.png)
+采编：文明    编译撰稿：文明(添草灭共)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-29.png)
-文章仅代表作者本人观点，与Gnews无关
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/aa-edited.jpeg)图片来源：CBC
 
-视频参看：2021.10.27早GTV新闻访谈
 
-[https://gtv.org/broadcast/watch/61794596eadeb11f5e7b070b](https://gtv.org/broadcast/watch/61794596eadeb11f5e7b070b)
+据【NBC新闻】10月26日报道，【美国食品和药物监督管理局】专家委员会于当天完成表决，以17票赞成、0票反对、1票弃权的结果支持对该国5至11岁儿童接种【辉瑞公司】产“新冠病毒疫苗”。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+此前，辉瑞公司曾表示，该年龄段儿童群体的该疫苗剂量是成人的三分之一，并称该剂量足以发挥其防护作用。专家委员会因此认为，向5至11岁儿童提供该疫苗在预防“新冠病毒”方面的好处大于潜在风险。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+目前，美国政府已完全批准该疫苗在16岁及以上群体的接种授权。而对于12至15岁群体，则已批准其可在紧急授权下使用。【美国食品和药物监督管理局】的决定通常遵循其专家委员会意见，一旦被正式批准，该国5至11岁儿童就将开始接种该疫苗。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://www.nbcnews.com/health/health-news/fda-advisory-panel-oks-pfizer-vaccine-kids-5-11-rcna3726)
 
  
 

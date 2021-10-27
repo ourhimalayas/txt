@@ -2,27 +2,30 @@
 ---
 
 
-## 日本或将推进5至11岁的儿童接种新冠疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1621580/)
+## GTV新闻访谈简报|2021年10月27日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1621639/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-15.png)
-[图片来源](https://news.yahoo.co.jp/articles/51b92a618aebfef41007d05c58d18496246b1238/images/000)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-413.png)
 
-共同网10月27日报道，美国辉瑞公司正在与日本政府协商，推进5至11岁的儿童接种新冠疫苗。厚生劳动省表示，如果收到申请，将迅速进行审核。美国已经先行一步提出申请，这也将影响日本的审查结果。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-29.png)
+文章仅代表作者本人观点，与Gnews无关
 
-目前关于辉瑞疫苗的情况，厚生劳动省表示，根据“预防接种法”，12岁以上的人都是”临时接种”对象，大众（除孕妇）有努力的义务去免费接种疫苗。然而，该疫苗对11岁以下的人，是否安全有效，目前尚不清楚，所以这些人不在接种对象范围内。
+视频参看：2021.10.27早GTV新闻访谈
 
-信息来源：
+[https://gtv.org/broadcast/watch/61794596eadeb11f5e7b070b](https://gtv.org/broadcast/watch/61794596eadeb11f5e7b070b)
 
-[5～11歳接種、日本に申請へ　ファイザーが政府と協議](https://news.yahoo.co.jp/articles/51b92a618aebfef41007d05c58d18496246b1238)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-免责声明：文章仅代表作者本人观点，与GNEWS无关
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
 
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

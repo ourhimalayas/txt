@@ -2,34 +2,72 @@
 ---
 
 
-## 福奇通过疫苗获得巨额利益
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1621590/)
+## 川普与SPAC的交易存在三大风险
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1621653/)
 
-**撰稿：日本东京方舟农场 海星**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2675.png)
+[https://gtv.org/video/id=6179367d247c5a3f9090a95e](https://gtv.org/video/id=6179367d247c5a3f9090a95e)
 
-据《国家脉动》10月25日报导，美国监督政府支出的非盈利组织OpenTheBooks披露，安东尼·福奇通过研究开发疫苗和生化武器的工作而获得了高薪，他的工资是所有联邦雇员中最高的。
+**郭文贵
+Miles Guo**
 
-OpenTheBooks通过《信息自由法》，申请获得了当时美国国立卫生研究院（NIH）副院长雷纳德·金顿（Raynard S. Kington）的一封信，信中写到：“福奇是白宫和国务院应对生物恐怖主义威胁的关键人物。他身兼多个重要政府部门的职务，专门负责生物防御的研究以及公共卫生优先事项。他还负责协调学术界和工业界参与生物防御相关研究，并制定中长期研究计划和政策，包括制定部门战略以增加天花疫苗的供应，以及制定开发新炭疽疫苗的计划。2004年，在他的领导下，NIAID大幅加速加强了生物防御方面的研究。”于是，金顿提议给福奇长期大幅加薪。
+我要说到这个，让你们看到这个有多可怕
+I want to talk about this, let you see how terrible this is
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-25-at-12.43.01-PM.png)图片来源：https://thenationalpulse.com/news/fauci-paid-highest-salary-to-prevent-pandemics/
+川普总统这个SPAC的交易，它的风险在哪里
+What is the risk of President Trump’s transaction with SPAC?
 
-鉴于金顿的提议，小布什政府于2004年12月批准了超过福奇正常工资的“永久性薪酬调整”。在2004年到2007年期间，加薪幅度高达68%，从每年20万美元增加到33.5万美元。
+三件事儿
+Three things
 
-该报导还指出，在此之前，有大量报道揭示了福奇所在的NIH机构资助了中共病毒的起源地—武汉实验室。此外，福奇和他的顾问还与中共的军事阵线签署了合作研究协议，并资助美国实验室培训武汉研究人员如何处理“世界上最危险的病原体”。
+第一个，这里绝对不能有内幕交易，只要有内幕交易就是刑事罪
+First, there is absolutely no insider trade here, as long as there is insider trade, that will be a criminal charge
 
-*注：本文仅代表作者观点，与 Gnews无关*
+不用任何怀疑的，大家可以看到，从1000手，1万手，4万手到600万手到交接
+Without any doubt, you can see that from 1,000 hands, 10,000 hands, 40,000 hands to 6 million hands to the handover
 
-*参考链接：*
+几乎都在11家基金中间转来转去，就是我买来买去在这一天
+Almost all of them are going around among the 11 funds, that is they quick buy and sell on that day
 
+这叫内部交易，操纵市场，可以说它100%会受到SEC调查
+This is called insider trade, market manipulation, it will be 100% investigated by the SEC
 
+SEC不查是不可能的，当你这不正常的波动和股票
+It is impossible for the SEC not to investigate, when you have abnormal fluctuations and stocks
 
-> [REVEALED: Fauci’s Record-High Salary for ‘Vaccine Development’ and Bio-Terror ‘Research’.](https://thenationalpulse.com/news/fauci-paid-highest-salary-to-prevent-pandemics/)
+而且十几家基金进进出出操作的时候，第一我怀疑你有内线交易
+And when more than a dozen funds are in and out of operations, first I suspect you have insider trade
 
+第二，我就怀疑你操纵市场，
+Second, I suspect that you manipulate the market
 
+这个现在大家可以看，这是不用(怀疑的) 100%
+Everybody can see it, there is no doubt about that
+
+如果要是内部交易，如果要是操纵市场，
+If it’s insider trading and market manipulation
+
+川普总统就成了被刑事调查，终生将无法再参与政治选举
+that president Trump will be under criminal investigation and will not be able to participate in political elections for life
 
 * * *
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+Date:10/26/2021
+原视频标题: 川普与SPAC的交易存在三大风险
+There are three major risks in Trump’s transaction with SPAC
+原视频日期：2021/10/24
+原视频链接:[https://twitter.com/se1y7cblljselva/status/1452954064761671684?s=24](https://twitter.com/se1y7cblljselva/status/1452954064761671684?s=24)
+任务编号：KC198( 2675)
+视频时间段 : 0:00-1:16
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
