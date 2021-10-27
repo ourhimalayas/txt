@@ -2,32 +2,47 @@
 ---
 
 
-## 苹果将成为中国最后一个美国科技巨头吗？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1619439/)
+## 新的言论自由应用在盖特，不会让用户陷入“数字监狱”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1619450/)
 
-编译：蚂蚁兄弟
+![](https://assets.gnews.org/wp-content/uploads/2021/10/102603.jpg)
+来自澳大利亚《天空新闻》10月24日的报道
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-464.png)图片来源： sport.es
+**摘要翻译：**
 
-曾几何时，美国的科技巨头都汇集在中共国，包括脸书。而今日苹果公司在中共国的巨大存在似乎越来越引人注意。上周，仍然在中国运营的微软宣布，它将关闭其在中国的社交网络LinkedIn。该公司表示，必须遵守中国国家的规定已经变得越来越具有挑战性，所以他们最终放弃了。
+盖特首席执行官、川普的前顾问杰森·米勒表示，新的言论自由应用程序盖特的用户不会因为在政治问题上发表意见而被陷入“数字监狱”。
 
-苹果公司在国内也有自己的审查问题。英国媒体BBC上周报道说，两个流行的宗教应用程序已从苹果的应用程序商店中删除。后来发现，亚马逊旗下的Audible和雅虎财经应用也被删除。监测App Store的组织说，本月被删除的应用程序有所增加。
+“我们的独特之处在于：第一，我们不会因为任何人的政治信仰而取消或审查或去平台或算法不存在”，米勒先生告诉澳大利亚天空新闻。
 
-美国公司在 “科技大打击”中也未能幸免。苹果和微软都意识到，他们的地位比近年来更加脆弱。“中国的长城“一书的作者James Griffiths说：“他们知道他们必须谨慎行事”。
+“与此同时，我们也有一个积极稳健的审核政策。为了将这两者结合起来，我们确保不允许非法内容。
 
-**简评：**
+“例如，你不能用身体伤害来威胁人们，或者你不能使用种族或宗教亵渎的字眼。”
 
-**中共的网络防火墙，封住了国人的嘴，蒙蔽了国人的眼，同时阻碍了整个中国科技和文化的发展。在一个言论和信息不能自由的国度里，在这个信息飞速发展的大数据时代，任何一个互联网的科技公司在中国是没有前途的。**
+“我们确保对环境进行监控，以确保人们的安全。”
 
-**中共堵死了中国人发展的道路。**
+米勒先生表示，该应用程序自7月4日推出以来“像火箭一样起飞”，已经拥有近300万用户。
 
-（文章仅代表作者观点，与GNEWS无关）
+“我们的美国客户群约占我们整个全球客户群的47%，美国以外的客户群占53%，所以盖特已经是一个真正的全球化平台。”他说。
 
-**参考资料：**[sport.es][¿Será Apple el último gigante tecnológico estadounidense que quede en China?](https://www.sport.es/es/noticias/tecnologia/sera-apple-ultimo-gigante-tecnologico-12373149)
+**简评： **
+
+爆料革命的战友们都见证了盖特的出生及如火箭般的成长奇迹，也知道盖特如米勒先生所述是一个自由言论的平台。 现在的盖特跟推特和脸书等大科技公司比还是婴儿，所以我们与米勒先生那样的战友一起积极使用和推广盖特，增加盖特的影响能力，让更多的热爱自由民主法治的人们加入这个平台。
+
+新闻链接：[New free speech app GETTR won’t put users in ‘digital jail’ for speaking their minds](https://www.skynews.com.au/opinion/outsiders/new-free-speech-app-gettr-wont-put-users-in-digital-jail-for-speaking-their-minds/video/bb3cc4507e39c15cce065758348f6fc3)
+
+***翻译：**Brianchow*
+
+***校对**：clau*
 
 * * *
 
-*审核：Aires的星
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

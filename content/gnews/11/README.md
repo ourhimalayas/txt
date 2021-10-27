@@ -2,40 +2,50 @@
 ---
 
 
-## 在学校垃圾内容方面，TikTok 将成为国会听证热点
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1619963/)
+## 六中全会前夕，中共一再强调政治安全，忠诚与服从
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1620061/)
 
-*【简评：】TikTok（抖音）是中国字节跳动公司短视频分享平台的海外版，早在去年8月，特朗普总统曾发布对TikTok的封杀令。然而，时隔一年，禁令虽然被撤，但TikTok近日再遇监管危机，被请去参加美国参议院商务委员会关于儿童上网安全的听证会，被质问可能诱导儿童和青少年偷窃或破坏学校设施。毫无疑问，TikTok对社会和儿童日益增长的负面影响不容被忽视，*
+作者：日本方舟农场 – Andy5
 
-据《路透社》记者：Diane Bartz, Sheila Dang和David Shepardson，2021年10月26日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-470.png)2020年9月15日，TikTok的标志在该公司位于美国加利福尼亚州卡尔弗城的美国总部外。图片来源：路透社/Mike Blake
-《路透社》华盛顿10月25日 —— 当TikTok和其他大型社交媒体公司周二出席国会的听证会时，TikTok将面临有关可能诱导儿童和青少年偷窃或破坏学校浴室及其他设施的内容问题。
 
-参议院商务委员会在设定一场以TikTok、Alphabet（GOOGL.O）旗下的YouTube和Snapchat（SNAP.N）为重点的听证会时说，这些流行的应用程序“被滥用于伤害儿童和促进破坏性行为。如在学校的破坏行为、致命的病毒挑战、欺凌、渴吃失调、操纵的影响者营销和诱导行为。”
 
-《路透社》在听证会前审阅了他准备好的证词，TikTok美洲公共政策负责人迈克尔*·*贝克曼说，该公司的审核团队致力于迅速删除任何被称为“狡猾的舔食”的内容。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
 
-TikTok上的“狡猾的舔食”趋势推动了学生从学校偷窃或破坏学校设施。
 
-贝克曼的证词说：“我们最近看到与‘狡猾的舔吃’有关的内容在TikTok和其他平桌子上获得了吸引力，我们的审核团队迅速工作，删脱了这些内容，并重新定向冲签和搜索结果……以阻止这种行为。”
 
-贝克曼补充说，TikTok“就这一违规内容向我们的团队发布了专门的指导意见，并主动检测和删除内容，包括与该趋势相关的视频、标签和音频，包括寻找可能用于躲避版主的拼写变体。”
+中共在给20大定调的六中全会前夕，反复强调政治安全，忠诚与服从，凸显出中共对所谓政治安全的不安，印证了郭文贵先生提到的，20大，就是习要给自己继续合法当中共领导人的一个抓手。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture111-2.jpg)
+中共今年在其国庆节前后，分别处理了孙力军和傅振华。到目前为止近四周的时间内，政法委、公安部以及各级党委，都不断传出紧抓政治安全，清理流毒影响，打造忠诚铁军的声音。
 
-Snap Inc的全球公共政策副总裁Jennifer Stout在准备好的证词中说，Snapchat不是为内容的病毒式传播而设计的，而是专注于朋友之间的对话。专业创作的媒体内容和某些在该应用上受到关注的故事都是由版主真人审核的。
+约5天前，此声音波及范围已扩展到了教育部。教育部官员称，要将语文教材编写者的政治素质放在第一位，对人员严格政治审核。有墙内网友留言评论，“语文绝对不是汉语”，暗示语文课，俨然成了中共洗脑宣传的工具之一。
 
-YouTube负责公共事务的副总裁莱斯利*·*米勒(Leslie Miller)声称，该公司努力鼓励健康的生活习惯，并确保儿童只看到适合其年龄的材料。该公司被指控是一个错误信息的宝库，从政治到冠状病毒疫苗都有。
+参考链接：
+1. [六中全会前夕，中共一再强调政治安全，忠诚与服从](https://www.163.com/dy/article/GN5PH99505268MTU.html)
+2. [六中全会前夕，中共一再强调政治安全，忠诚与服从](https://new.qq.com/omn/20211025/20211025A010JW00.html)
+3. [六中全会前夕，中共一再强调政治安全，忠诚与服从](https://news.ifeng.com/c/8AZTe09gtQW)
+4. [六中全会前夕，中共一再强调政治安全，忠诚与服从](http://www.gov.cn/xinwen/2021-10/18/content_5643338.htm)
 
-听证会是对两党立法者所认为的大科技公司对竞争、社会和儿童日益增长的负面影响进行的漫长调查的最新部分。
+（本文仅代表作者观点）
 
-原文连接：[https://www.reuters.com/technology/tiktok-be-congressional-hotseat-over-school-trashing-content-2021-10-25/](https://www.reuters.com/technology/tiktok-be-congressional-hotseat-over-school-trashing-content-2021-10-25/)
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-翻译：洛杉矶盘古农场 – TrueSky
+总编：Jack Li文阳
+编辑：Kathy文艺
+校对/发稿：Hetangyuese
 
-校对/编辑：洛杉矶盘古农场 – 明子
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉磯盤古農場歡迎您加入:(或點擊上方圖片）
+**更多资讯，更多关注**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
  
 

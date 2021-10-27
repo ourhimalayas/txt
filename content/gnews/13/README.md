@@ -2,35 +2,61 @@
 ---
 
 
-## 伊利诺斯州的护士们赢得了针对疫苗强制令的临时限制令
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1619934/)
+## 格芯公司首次公开发行5500万普通股
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1620059/)
 
-*【簡評：】在拜登政府推出的疫苗強制接種令之後，美國各地掀起了起訴潮，如紐約的警察工會將針對強制疫苗政策訴諸法律、近200名明尼蘇達州的醫護人員起訴僱主、西南航空強制疫苗措施遭飛行員工會起訴、美國士兵就軍隊強制新冠疫苗接種起訴聯邦機構、洛杉磯消防員將起訴政府、昆州警察因強制接種疫苗起訴警察局長、聖地亞哥學生、家長就 COVID-19 疫苗授權起訴區政府……不管結果如何，民眾都應為自己的權力而戰，不應做逆來順受、待宰的羔羊*。
+作者：波士顿五月花农场 – 葛朗台太太
 
-据《公正新闻》记者Brett Rowlan ，2021年10月25日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-469.png)图片来源：田纳西之星
-针对医院系统的疫苗接种强制令，伊利诺伊州的护士们起诉了滨江医疗中心（Riverside Healthcare），日前，法官授予原告临时限制令。
 
-坎卡基县（Kankakee County）法官南希·尼科尔森 (Nancy Nicholson) 批准了此项临时限制令，有效期至11 月 19 日。随后，她将就护士要求的初步禁令动议举行听证会。
 
-自由司法中心（Liberty Justice Center）常务律师丹尼尔·苏尔（Daniel Suhr）表示，该裁决是一场胜利。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-“今天的裁决标志着这些护士朝胜利迈出了重要一步 — 它向所有美国人发出了一个信号，那就是争取自己权利的重要性。”他说，“雇主和政府官员应该注意到，强迫人们违背良心不仅是错误的，而且是非法的。没有人应该被迫在保住工作和牺牲信仰之间做出选择。”
 
-护士们于 10 月 13 日起诉了滨江医疗中心，声称该州的医疗保健良心权力法（Health Care Right of Conscience Act）赋予他们拒绝 COVID-19 疫苗的权利。护士们说，他们的宗教信仰与接种疫苗相冲突。
 
-尼莉·帕诺佐(Neelie Panozzo)、艾米·门加(Amy Memenga)和其他四名姓名尚未公布的护士被滨江医疗中心官员告知，如果她们不接种COVID-19疫苗，将在10月31日之前被解雇。护士们说他们的豁免请求被拒绝了。
+10月19日 ，格芯公司宣布，将首次公开发行5500万股的普通股，其中，有3千3百万股由格芯公司提供，另外2200万股由格芯现股东穆巴达拉投资公司提供。消息称，股票首发价格预计为每股42至47美金，预计总共将募集23亿至25亿美元。
 
-代表护士的自由司法中心是一家全国性的非营利性律师事务所。
+![](https://cdn.mos.cms.futurecdn.net/UQZKfuqADWAD3h7sEVezMF-320-80.png)图片来源：GlobalFoundries
 
-原文连接：[https://justthenews.com/nation/states/nurses-get-temporary-restraining-order-vaccine-mandate-case](https://justthenews.com/nation/states/nurses-get-temporary-restraining-order-vaccine-mandate-case)
+依据最高发行价和流通股推算，格芯的估值将达250亿美元。据悉，格芯申请在纳斯达克上市，股票代码为“GFS”。至于穆巴达拉投资公司，在出售2200万股票后，其仍将持有格芯89.4%的股份和投票权。
 
-（本文评论仅代表个人观点）
+由BlackRock, Inc.的子公司管理的某些基金和账户、由Columbia Management Investment Advisers LLC与Fidelity Management & Research Company LLC 关联的某些实体、Koch Strategic Platforms LLC的某些附属公司管理的某些基金和账户，以及Qualcomm Incorporated（统称为“基石投资者”）已表示有兴趣在本次发行中以与首次公开发行价格相等的每股价格购买总价约为10.5亿美元的普通股。
 
-翻译/评论：洛杉矶盘古农场– 钢蛋儿
+（本文仅代表作者观点）
 
-校对/编辑：洛杉矶盘古农场 – 明子
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉磯盤古農場歡迎您加入:(或點擊上方圖片）
+参考阅读：
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+1. [Form F-1 REGISTRATION STATEMENT UNDER THE SECURITIES ACT OF 1933](https://www.sec.gov/Archives/edgar/data/0001709048/000119312521301511/d192411df1a.htm)
+2. [GlobalFoundries Announces Launch of Initial Public Offering](https://gf.com/press-release/globalfoundries-announces-launch-initial-public-offering)
+3. [Mubadala to Keep Control Over GlobalFoundries After IPO](https://www.tomshardware.com/news/mubadala-to-keep-control-over-globalfoundries-after-ipo)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+ 
+
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+
+- [ROL Foundation](https://rolfoundation.org/)
+- [ROL Society](https://rolsociety.org/)
+- [Terms of use](https://gnews.org/terms-of-use-3/)
+- [Privacy Policy](https://gnews.org/privacy-policy/)

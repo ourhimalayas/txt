@@ -2,52 +2,52 @@
 ---
 
 
-## 一位完全接种辉瑞疫苗青少年马术明星的悲惨遭遇
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1619937/)
+## 中共的作秀式“全过程民主”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1620060/)
 
-#### 翻译：月映万川
+作者：纽约香草山医疗部 – 云豹
 
-#### 编辑/评论：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-88.png)图片来源：MixDigest & Market Subset
-**新闻导读：**
 
-澳大利亚新南威尔士州一位青少年马术运动员，成为政府强制疫苗授权的又一个牺牲品。西娜·诺尔斯今年才19岁，她是一位成功的马术明星，在社交媒体上拥有数万粉丝。她为了保住钟爱的马术工作，不得已打了第二剂辉瑞疫苗，短时间内全身多处血栓、痛苦不堪，从一个健康活泼的运动员，沦为卧床不起的病人。对此，新州卫生局认为只是个别病例，澳大利亚药品管理局（TGA）拒绝置评，其网站强调，疫苗对新冠的保护作用“远远大于潜在的风险”。
 
-医疗权威的解释确实能够蒙蔽大部分人，因为目前疫苗接种尚未出现大面积住院甚至死亡，让很多人觉得副作用只是一个极小的概率。10月25日（美东时间）GTV新闻访谈中，嘉宾Eglise医生列举了《自然》杂志中一篇关于血液数据研究论文观点，“打了疫苗的人免疫力迅速下降，到明年春季，他们的免疫力会完全丧失，这个症状就像艾滋病”。随着时间的推移，当疫苗危机真正爆发，人类将又一次面临劫难。感恩我们新中国联邦战友已经登上了诺亚方舟，揭示疫苗危机依然义不容辞。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
 
-**译文：**
 
-上周，一名“超级健康”的青少年马术运动员因胸部血栓住院。她将这一“改变生活”的伤害归咎于辉瑞疫苗。然而，卫生当局尚未证实她的病情与辉瑞（Pfizer）疫苗有关。新南威尔士州卫生局敦促公众“使用可靠的信息来源”。
 
-来自新州中央海岸的西娜·诺尔斯在一系列有关病毒的社交媒体帖子中分享了她的经历，她写道，她“从来不想要”接种新冠病毒疫苗，因为她害怕副作用，但最终还是为了保住工作而选择接种疫苗。
+早在10月14日，习近平就在中共人大工作会议上高谈所谓的“民主”话题，甚至为此创造了中共独有的“全过程民主”，更恬不知耻的标榜人大制度的“伟光正”，还作秀般的设立了名存实亡的中共式选举。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture11-8.jpg)
+即便如此，对于本就不存在的选举制度，中共仍然不放过任何可能危及其政权的细枝末节。
 
-诺尔斯在Instagram和TikTok拥有3万多名追随者，她说，她上周四接受了第二次辉瑞剂量后就感觉身体很不好。在她被送往戈斯福德医院后，**医生通过扫描发现她的腿部、胃部和肺部中存在血栓。**
+据消息称，有14名跟中共人大相关的所谓“选举人”因其言论中的“独立”一词，被中共警方及国保审问并带走，且再无任何音讯。 再一次地，中共墙内从无民主的事实毫无遮掩地暴露在世人面前。
 
-诺尔斯在她的脸书上写道：**“****从前，****我是一个从未出现过任何健康问题的超级健康****19****岁女孩****，****每天我的全职工作是训练和骑马。****但是****在我第二次接种辉瑞疫苗后，我就再也不能做这些事情了。从健康到躺在病床上，这个速度真是太疯狂了。”**
+参考链接：[中共的作秀式“全过程民主”](https://www.cna.com.tw/news/acn/202110250311.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-“我的肺里充满了血栓，我的心脏也承受着压力。看看我现在的生活，每天都有肺病医生、心脏病医生围绕我，血液检查、全身扫描、超声波检查我的心脏和肺部也是必不可少的项目。在接种疫苗的问题上，我不得不做做‘正确的选择’，但是我从来不想接种这种疫苗，因为我真的害怕它的副作用风险。**我真的希望我从来没有接种过新冠疫苗，这样我就能变回原来那个有着健康身体的我，但这一切都太晚了**。”
+（本文仅代表作者观点）
 
-周一，她在Instagram上写道，**她肺部的血栓就相当于****“****肋骨骨折****”****，让人疼得无法呼吸。**她写道：“作为我恢复治疗的一部分，我现在必须经常性服药，而药物的副作用因此让我内出血和鼻出血，同时，还有一系列我不能公开分享的副作用，这些都是我这一生所没有遭受的痛苦。她在医院的病床上分享了她前后对照的照片。她写道：“真是令人难以想象，左边的照片上是我和家人骑马散步，而下一张照片是我接种疫苗后的照片。”诺尔斯表示，她将“至少6到12个月内”要去看医生和专科医生，并被告知“不能骑马、骑摩托车和搭乘火车”。
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-在另一段她从病床上拍摄的视频中，她说，“现在的康复之路是漫长的”，同时可能面临“一些改变生活的后遗症，我正在艰难的接受在接种疫苗后因副作用让我失去的东西”。
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-周一，她在脸书上分享了她母亲丽贝卡·唐纳利的最新消息，她说她女儿被诊断出患有门户静脉血栓（PVT）。“昨晚我女儿证实她患有由辉瑞疫苗引起的PVT”，而且这是“他们看到的第一例这样的病例”。但是，卫生官员尚未证实唐纳利女士的说法。
+**更多资讯，更多关注**
 
-新州卫生局说，它不讨论个别病例，卫生局敦促人们使用可信的信息来源来获取最新的新冠病毒信息。一位发言人说：“我们继续鼓励每个人接种疫苗。澳大利亚现有的新冠疫苗在降低严重疾病和死亡风险方面安全有效。”
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-负责收集和调查疫苗不良反应报告的澳大利亚药品管理局（TGA）拒绝置评。TGA在其网站上强调，“通常上报到TGA的可疑的副作用都不是由疫苗接种引起的”。根据TGA的说法，疫苗对新冠患者的保护作用“远远大于潜在的风险”。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-到目前为止，有9例已经确认的死亡案例是和接种阿斯利康疫苗后的血栓相关。但是没有与接种辉瑞疫苗后的死亡报告。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-（文中仅代表作者个人观点，与Gnews平台无关）
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-原文链接：[Cienna Knowles: ‘Healthy’ 19yo blames Pfizer Covid vaccine for blood clotting disorder | news.com.au — Australia’s leading news site](https://www.news.com.au/lifestyle/health/health-problems/teen-equestrian-star-cienna-knowles-hospitalised-with-blood-clots-after-pfizer-vaccine/news-story/286e7cd42e896b091e4b257322296a05)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**发布：文泓**
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+ 
+
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+
+- [ROL Foundation](https://rolfoundation.org/)
+- [ROL Society](https://rolsociety.org/)
+- [Terms of use](https://gnews.org/terms-of-use-3/)
+- [Privacy Policy](https://gnews.org/privacy-policy/)

@@ -2,71 +2,138 @@
 ---
 
 
-## 纽约市工人聚集在布鲁克林大桥，抗议该市疫苗任务的 &#8220;医疗暴政&#8221;
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1619719/)
+## 13亿中国老百姓只能享受社保基金4%的钱
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1619846/)
 
-翻译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2021/10/222-f-wzywl.jpg)
+[https://gtv.org/video/id=61783f7e247c5a3f909049b8](https://gtv.org/video/id=61783f7e247c5a3f909049b8)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-8-9.png)（卡罗琳·唐尼）
+一定叫外国人能听得懂的话
+Debe ser algo que los extranjeros puedan entender
 
-在纽约市民主党市长比尔-德布拉西奥，将市政疫苗任务扩大到所有公共雇员，并取消每周测试选项的五天后，成千上万的示威者周一聚集在布鲁克林大桥上，抗议他们所谴责的“医疗暴政”和对一线工人的背叛。
+你举个例子, 中国14亿人
+Por ejemplo, hay 1.400 millones de personas en China
 
-FDNY、卫生局、交通局、环境保护局和其他城市机构的员工都出来响应德布拉西奥的宣布，即所有城市工人必须在周五之前至少接受一次注射，否则就休无薪假。据估计，有5万名城市工人仍未接种疫苗，距离最后期限仅剩5天。
+中国人的社保基金是多少钱, 你知道吗?
+Sabes ¿ cuánto es el fondo de seguro social de los chinos?
 
-许多参与者，特别是消防员，穿着他们的制服和各自部门的徽章，成群结队地游行，高呼反强制措施的口号。这是一个多样化的人群，城市工人中有许多非裔美国人和西班牙人。
+整个社保基金额
+El monto total del fondo de seguro social
 
-游行队伍穿过布鲁克林大桥，在曼哈顿一侧的市政厅前结束。
+你们查了吗? 社保基金额
+¿ Ustedes investigaron? El monto del seguro social
 
-抗议者举着美国国旗、“Back the Blue“旗、写着”Don’t Tread on Me”的Gadsden旗，以及数百张印有政治性短语的海报。
+所有社保基金额就是1000亿美元
+Todo el monto de seguro social son 100 mil millones de dólares
 
-其中一些标语写道“我的身体我做主”，“他们对自然免疫的问题在于它是免费的”，“不要遵守”，“如果他们可以免于责任，我们也应该免于任务”，“共产主义最后的变种”，以及“德布拉西奥市长…解雇基本工人…以保持纽约市的安全？”
+1000亿美元, 记住
+100 mil millones de dólares, recuerden
 
-与9月在上西区Carmine’s意大利餐厅举行的“黑命贵”抗议活动类似，周日的一些海报反映了对疫苗授权可能成为歧视工具的担忧。一位黑人妇女的标语是：“医疗隔离”。
+1000亿美元
+100 mil millones de dólares
 
-其他抗议者援引了这样的观点，即该市已经背弃了那些，它认为仅在一年前对其经济生存至关重要的工人。
+名义上所说的2500亿
+250 mil millones nominalmente
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/NYC-Vax-Mandate-Protest-10.25.21-Pic-2.jpg)非裔美国人抗议者反对城市对一线工人的待遇。（卡罗琳·唐尼）
+实际上就1000亿美元
+En realidad, son 100 mil millones de dólares
 
-一名黑人男子举着一个牌子，上面写着“从大流行的英雄到纽约市的零点”。其他牌子上写着“去年的英雄，今年的失业者”，“我们从第一天就开始服务了。让我们继续服务”，以及“在拯救你的生命时，我们的疫苗状况会有影响吗？”
+因为社保基金原来主席创始人是车峰的老岳父
+Porque el presidente original y fundador de la Caja de Seguridad Social era el suegro de Che Feng
 
-纽约市市长共和党候选人、私人反犯罪组织“守护天使”的创始人柯蒂斯-斯利瓦站在一个街垒之上，与走过的抗议者握手交谈。
+中国银行行长戴相龙
+Dai Xianglong, presidente del Banco de China
 
-“我在这里支持没有任务。我正在竞选市长。如果你解雇工人并给他们补发工资，我们就会重新雇用他们。我的对手埃里克-亚当斯在行动中失踪。他在套房里，我在街上”，斯利瓦告诉《国家评论》。
+这个社保基金所谓的2500亿
+El llamado 250 mil millones de este fondo de seguro social
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/NYC-Vax-Mandate-Protest-10.25.21-Pic-4.jpg)共和党市长候选人柯蒂斯-斯利瓦(Curtis Sliwa)在接种疫苗授权抗议活动中爬上围栏。（卡罗琳·唐尼）
+别忘了
+No olviden
 
-一位不愿透露姓名的交通部工作人员说，他和许多接种了疫苗的同事感到有压力，不得不屈服于这项任务，并参加了集会，以声援他们未接种疫苗的同事。
+它里边这个总数实际上就是1000多亿
+Dentro de este monto total en realidad son más de 100 mil millones nada mas
 
-“我已经接种了疫苗。我的工作可能会因为我所采取的立场而受到影响。我不是为了一种疫苗而来。我在这里是因为人们应该有一个选择。而你的生计不应该因此而受到威胁。至于我的同事们，我支持他们”，他说。“你能想到的每一个为城市工作的工会，今天都会在这里。”
+你可以查它的帐
+Puedes revisar su cuenta
 
-这位运输工人指出，这项任务似乎在他的局里和其他局里起了反作用，使人们对疫苗的怀疑和不信任更加强烈。
+它那是叫划拨式的
+Eso se le llama forma de asignar
 
-他说：“接下来是什么？将会有更多的东西出现在管道中。我认为这种胁迫使人们更加气馁，因为这是‘老大哥’试图告诉你什么对你有好处。政府没有权利插手个人事务，特别是当涉及到医疗的时候。如果你在大街上插手别人的事情，会发生什么？你的鼻子会被打断。这就是我们在这里所做的事情，但显然不是用暴力。”
+这个1000多亿的分配权在哪里呢
+¿ Dónde se encuentra esta distribución de más de 100 mil millones?
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/NYC-Vax-Mandate-Protest-10.25.21-Pic-3.jpg)抗议纽约市疫苗授权的示威者手持写有“共产主义来了”的横幅。（卡罗琳·唐尼）
+96%的钱是给所有的共产党的退休干部的
+El 96% del dinero es para todos los cuadros retirados del Partido Comunista
 
-封锁道路和保护抗议活动的是警察，这位运输工人认为，他们中的许多人支持反规定的事业。他说：“我为这些人感到难过。我觉得他们正处在一把双刃剑上。我们知道这些人中有很多人和我们有同样的感受。”
+那就是说多少退休的党员呢
+Eso significa ¿ cuántos miembros jubilados del Partido?
 
-一名守卫在抗议活动周边的纽约警察局警探告诉《国家评论》：“如果我现在不当班，我就会在路障的另一边。”
+中国有多少呢, 退休老干部, 退休的人(党员)呢
+Cuántos hay en China, los viejos cuadros retirados, los miembros del Partido retirados
 
-环卫局的工作人员迈克尔-塞奇（Michael Sage）对市政府，不允许自然免疫病例的例外情况感到特别沮丧，并质疑为什么接种疫苗的工人不接受测试，因为他们可以传播病毒。
+中国是大概1.3亿
+China tiene unos 130 millones
 
-Sage说：“我们工作地点的接种疫苗的人没有接受测试。每个人都知道，接种疫苗的人可以感染COVID并将其传播给其他人。如果市政府说他们想创造一个安全的工作场所，那么他们需要对所有人进行测试。流行病学家将其描述为‘泄漏性疫苗’；它不是一种根除性疫苗。”
+1.3亿, 14亿人(中)1.3亿
+130 millones, 130 millones (en medio de) 1.400 millones de personas
 
-像这位环卫工人一样，他的许多完全接种疫苗的同事正在代表他们的朋友游说反对这项任务。
+全是共产党所有的亲戚家人拿走了96%
+Todos los miembros de los familiares del Partido Comunista tomaron el 96%
 
-“我的很多接种了疫苗的同事都签署了请愿书，全力支持并在今天进行了游行。因为如果每个人都要在疫苗授权下被征服，那么接下来会怎样？我们的问题被抛在一边。如果我们不能质疑权威和负责任的人，那这是什么国家？”塞奇说。
+那个13亿是干嘛的呢
+Y para qué son estos 1.300 millones
 
-示威发生在抗议者在巴克莱中心外集会，以表示对布鲁克林篮网队的凯里-欧文的支持之后的一天，后者因拒绝接种疫苗而被球队禁止上场比赛。
+对不起了
+Lo lamento
 
-（文章仅代表作者观点，与GNEWS无关）
+你只能拿整个(社保基金)的4%
+Solamente puedes tomar el 4% de todo el fondo de seguridad social
 
-**参考资料：**[nationalreview][NYC Workers Converge on Brooklyn Bridge to Protest ‘Medical Tyranny’ of City’s Vaccine Mandate](https://www.nationalreview.com/news/nyc-workers-converge-on-brooklyn-bridge-to-protest-medical-tyranny-of-citys-vaccine-mandate/#slide-1)
+那就是100块钱我拿4块钱
+Quiere decir que dentro de los 100 dólares, yo tomo 4 de ellos
 
-* * *
+你拿96块钱
+Y tú los 96 dólares
 
-*审核：Aries的星*
-*校对：信心满满*
-*发布：信心的选择*
+养你那些人
+Para mantener a esas personas
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
+你想过这个问题吗?
+¿ Has pensado este problema?
+
+这多简单的事
+Es algo tan secillo
+
+你说哪有一个国家
+Dime, qué país
+
+一个党派拿走96%的社保的钱
+Un partidista toma el 96% del dinero de seguro social
+
+所有的老百姓享受你(社保基金)4%的钱
+Todos los ciudadanos disfruta el 4% del dinero de tu fondo de seguro social
+
+这个不用我说你查一查
+Esto no es necesario que yo diga, tú mismo puedes ir a investigarlo
+
+———————————————————
+
+**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1451039970966134784?s=24](https://twitter.com/se1y7cblljselva/status/1451039970966134784?s=24)
+
+日期：10/26/2021
+原视频标题：
+1.300 millones de chinos sólo pueden disfrutar del 4% del fondo de seguridad social
+原视频日期：10/21/2021
+任务编号：KC197（2624）
+视频时间段：0:00-1:48
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

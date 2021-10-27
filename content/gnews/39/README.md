@@ -2,44 +2,29 @@
 ---
 
 
-## 医生因新冠疫苗接种状况而拒绝进行挽救生命的肺移植手术
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1619613/)
+## 有声|投资数字世界收购公司的十一家机构中 八家由中共控制
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1619657/)
 
-作者：Alexandra Lavoie
-翻译: HimaBoy
+配音：香草山美食部 – 玫瑰园
 
+数字世界收购公司在申请上市的文件中，列出了十一家投资机构。郭文贵先生在10月24日的大直播中，展示了这十一家机构的资本构成。除了三家是美国或加拿大的公司以外，其余八家公司全是中共控制的基金。
 
+收购川普科技的SPAC公司-数字世界，来自吴征，其他股东，包括中共姓李的政协委员，以及运鸿集团，全是中共的情报企业。
 
-让我告诉你乔安妮·杜普伊斯和她丈夫西尔万·桑斯卡蒂埃的故事。
+CEO克里斯是太平联盟集团的创始人，曾参与对郭文贵先生的法律诉讼超限战。FBI前高管弗兰克，是吴征在美国的合伙人，也是太平联盟案件的调查人。此人不但伪造假信息、假照片，而且多次和吴征一起，策划洗劫美国人的财富。
 
-乔安妮是一名 36 岁的女性，她因囊性纤维化引起的继发性肺部感染住院一个多月。
+这次，他们再次伙同吴征，同时出现在这场洗劫与抢劫的并购中。背后由鸿运集团提供资金，涉及马云。这是一场中共全面布局操控的金融超限战。
 
-最近，医生告诉乔安妮，她在肺移植等候名单上排名第八，如果她想要接受移植手术，就必须接种疫苗。
+文字版原文：[投资数字世界收购公司的十一家机构中 八家由中共控制](https://gnews.org/zh-hans/1616297/)
 
-由于之前接种过的疫苗会产生明显的副作用，乔安妮不愿意接种新冠疫苗。
+音频处理：喜山必胜Maverick
 
-因此，医生现在已将乔安妮从移植名单中删除，直到她完全接种疫苗为止。
-
-这是无法接受的。我们必须传达这个消息。
-
-人们需要意识到这种拒绝的严重程度。一个女人的生命危在旦夕！
-
-來源：[https://www.rebelnews.com/lung\_transplant\_candidate\_told\_she\_must\_be\_vaccinated\_before\_she\_can\_move\_forward\_with\_the\_procedure](https://www.rebelnews.com/lung_transplant_candidate_told_she_must_be_vaccinated_before_she_can_move_forward_with_the_procedure)
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

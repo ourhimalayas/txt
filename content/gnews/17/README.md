@@ -2,22 +2,35 @@
 ---
 
 
-## 秘翻在线 :贝索斯加速布局太空商业时代的行动
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1619907/)
+## 宾夕法尼亚州考虑制定法案 允许居民就审查制度起诉大型科技公司
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1620002/)
 
-撰稿：William
-校对：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/圖片2.png)
-图片来源：The Verge
+#### 撰稿：Grace
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-71.jpg)图片来源：网络截图
+据大纪元10月26日报道，宾夕法尼亚州的两名参议员正在寻求通过一项法案，允许当地居民起诉那些基于政治或宗教观点审查其账号的内容的社交媒体公司。
 
-根据《零对冲》(Zero Hedge) 的报导,虽然国际空间站(International Space Station)是人类在国之国间最伟大的合作努力成果之一，但却长年缺乏维护保养。为了避免可能发生的严重紧急情况，杰夫·贝佐斯(Jeff Bezos)的蓝色起源(Blue Origin)宣布建立一个自由飞行的空间站，称为轨道礁(Orbital Reef)。
+参议员道格·马斯特里亚诺Doug Mastriano和斯科特·哈钦森Scott Hutchinson提出了名为《社交媒体责任法案》（Social Media Accountability Act）的州参议院604号法案（state Senate Bill 604），该法案将允许个人起诉Facebook，YouTube和Twitter等大科技社交媒体公司, 对其账号封锁或审查的行为。
 
-蓝色起源(Blue Origin) 正与埃隆·马斯克的 SpaceX 和其他公司竞争，以确立自己在新兴的航天工业中的先驱地位。不仅仅只是蓝色起源( Blue Origin )的研究人员，轨道礁(Orbital Reef) 允许所有来自工商业以及国际合作夥伴在那里作业。轨道礁(Orbital Reef )同时获得到波音、亚利桑那州立大学以及太空基础设施集团Redwire Space和 Genesis Engineering Solutions 的支持。
+该法案的当前版本表明，个人可获得高达75,000美元的赔偿。该法案还要求社交媒体供应商在30天内，明确说明任何封锁或禁用账户的原因，并提供恢复账号的行动方案。
 
-该空间站最多可容纳 10 人，设有独立的生活区和开展科学活动。根据蓝色起源( Blue Origin )的说法，空间站将有效地成为太空的复合用途服务园区。该机构已经与另一家私营公司 Axiom 签订合同，开发一个可以与国际空间站对接的空间站。
+马斯特里亚诺在一份声明中说: “我们的言论自由权利，在第一修正案中得到了明确的体现。这种权利不应该止于社交媒体的公共领域。社交媒体公司正在审查那些说出不同的宗教和政治观点的用户，因为他们触犯了有敏感情绪的大科技寡头。我们的法案将允许宾夕法尼亚州的普通公民起诉，可以要求赔偿高达75,000美元的损失，使这些审查者承担责任。”
 
-近年来，太空科技进展迅速。SpaceX已有能力发射可重复使用的火箭，并于今年9月成功地将四名普通乘客进入地球轨道。现在杰夫·贝佐斯的蓝色起源(Blue Origin)及布兰森的维珍银河(Virgin Galatic)也争相开展太空旅行的商业行动。
+哈钦森也发表声明说：“近年来，我们看到了许多对社交媒体用户进行不公平、不一致且往往是片面审查的案例。” “我们立法的目标是确保所有社交媒体用户无论他们的政治和宗教信仰如何，都得到公平对待。”
 
-”人类都要进入太空了，中共还想着打台湾? 地球已被污染得十分严重，人类必须寻求新的能源及生机。2025年之后，谈到习近平、马云这些人，就像在谈太平天国一样的可笑!”文贵先生在直播中，明确指出，未来人类的方向必须抛弃旧有的思维，寻求太空的发展是必然也是必要的抉择。
+据报道，该法案已提交给消费者保护和专业许可委员会（Consumer Protection & Professional Licensure Committee），目前正在等待投票。
 
-新闻来源：[Bezos’ Blue Origin Unveils Plans For Commercial Space Station](http://Bezos'%20Blue%20Origin%20Unveils%20Plans%20For%20Commercial%20Space%20Station)
+在今年的5 月，佛罗里达州州长罗恩·德桑蒂斯 Ron DeSantis签署了一项法案，允许公司就审查问题起诉社交媒体公司。
+
+佛罗里达州的法案，即参议院法案 7072，重点关注于有可能因社交媒体审查而失去业务的组织。
+
+**新闻来源：**[**Pennsylvania Considers Bill That Would Allow Residents to Sue Big Tech Over Censorship**](https://www.theepochtimes.com/pennsylvania-considers-bill-that-would-allow-residents-to-sue-big-tech-over-censorship_4067583.html?welcomeuser=1)
+
+ 
+
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+
+- [ROL Foundation](https://rolfoundation.org/)
+- [ROL Society](https://rolsociety.org/)
+- [Terms of use](https://gnews.org/terms-of-use-3/)
+- [Privacy Policy](https://gnews.org/privacy-policy/)

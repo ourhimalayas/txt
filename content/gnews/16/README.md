@@ -2,19 +2,20 @@
 ---
 
 
-## 辟谣等于自我承认？
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1619919/)
+## 中共病毒疫情导致日本电动自行车蓄电池盗窃案激增
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1620010/)
 
-韩国首尔天池农场—–梅西 上传——追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10._27-scaled.jpg)
+（文章仅代表作者个人观点，与GNEWS无关）
 
-[广东新南方青蒿药业公司10月25日在其官方网站发布公告称](http://www.xnfyy.com/xwzx/qiyexinwen/130138.html)：“近日来，在互联网及自媒体上出现了关于我公司生产的青蒿素哌喹片的一系列不实信息，误导广大网民，相关造谣信息已严重侵犯公司声誉。”
+*编辑：东京樱花团/简报小组*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+ 
 
-广东新南方青蒿药业公司发布这新闻的时间与郭文贵先生在10月18日的盖特视频中爆料“国内青蒿素的质量和国外青蒿素的质量差距很大，青蒿素和青蒿素哌奎片一定要分清楚”相距很近，加上全世界只有郭先生和新中国联邦在谈青蒿素及有关事项。所以不难推测出，这篇文章中所提及的自媒体就是GTV、Gnews和Getter等G系列媒体平台。
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
-[郭先生10月18日盖特](https://gettr.com/post/peihxn8106)：“愿战友们一定谨遵医嘱用药，从目前的情况看，国内的青蒿素的质量和国外的青蒿素的质量差距很大，青蒿素和青蒿素哌奎片一定要分清楚。”
-
-[郭先生10月18日盖特视频](https://gnews.org/zh-hans/1602747/)：“在服用青蒿素哌喹片和青蒿素时，请大家遵从医嘱，务必小心。”
-
-中共国内的官方辟谣新闻往往都是变相承认事实，现在的青蒿素哌喹片的质量很可能有问题，请各位谨慎购买和服用。
-
-（本文仅代表作者观点，与GNews平台无关）
+- [ROL Foundation](https://rolfoundation.org/)
+- [ROL Society](https://rolsociety.org/)
+- [Terms of use](https://gnews.org/terms-of-use-3/)
+- [Privacy Policy](https://gnews.org/privacy-policy/)

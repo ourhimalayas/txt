@@ -2,51 +2,20 @@
 ---
 
 
-## 阿拉斯加州也欢迎未接种疫苗的警察去工作
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1619924/)
+## 美国联邦通信委员会吊销中国电信在美经营权
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1620018/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1027-scaled.jpg)
+（文章仅代表作者个人观点，与GNEWS无关）
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/A-10.jpg)golookup.com
-昨天（10月25日）有报道称，佛罗里达州愿为因未接种中共病毒疫苗而失去工作的警察提供工作机会，并支付5000美元的搬迁费，今天《戴维·哈里斯媒体》（DJHJ Media）报道，阿拉斯加州欢迎下岗警察。
+*编辑：东京樱花团/简报小组*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+ 
 
-文章题目是“阿拉斯加州共和党州长告诉因未接种疫苗而被解雇的警官们，让他们来这个‘最边远州’（The Last Frontier State）工作”。
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
-全文如下：
-
-由于专制政客通过强制接种疫苗来对他们的小领地实施暴政，我们的劳动力正在被削弱，许多在中共病毒疫情期间为我们服务和保护我们的专业人员现在发现自己失业了，许多专业人员都是执法人员，这种事情发生在民主党的领地，似乎是有道理的，因为他们一直憎恨警察。
-
-一些不像集权封地那样运作的司法管辖区，正在为受暴君迫害的专业人士提供工作机会，其中一个地方是阿拉斯加州，该州现在欢迎那些大胆相信自己有上帝赋予的权利来决定哪些药物可以进入自己体内的警察。
-
-上周，阿拉斯加州共和党州长迈克·邓利维（Mike Dunleavy）将注意力集中在数千名因拒绝接受疫苗接种而失业的警官身上，并表示欢迎警官们来阿拉斯加州执法。
-
-这位州长利用社交媒体传达了他的信息。
-
-“在全国各地，执法人员都成为攻击目标，甚至因为拒绝接种疫苗或拒绝透露是否接种疫苗而被解雇。阿拉斯加的执法部门邀请你考虑来我们这个第四十九州，以此方式来表示我们对蓝州的回应。”
-
-这位州长的推特是对《芝加哥论坛报》（the Chicago Tribune）报道的回应，该报道披露，在芝加哥要求所有州雇员接种疫苗或披露其疫苗接种状况后，许多芝加哥的警察没有遵守强制疫苗的规定。
-
-上周，芝加哥当局宣布，任何拒绝遵守芝加哥民主党市长洛丽·莱特富特（Lori Lightfoot）命令的警察都可能面临纪律处分，包括解雇。
-
-阿拉斯加州公共安全部发言人达斯汀·麦克丹尼尔（Dustin McDaniel）说，在过去的一年里，该机构的“警察申请”（lateral trooper applications）有所增加。狱政部（Department of Corrections）女发言人贝特西·霍利（Betsey Holley）表示，1064名狱警职位已填补，还剩下95个职位。
-
-她周四（10月21日）说：“如果你阅读了我们脸书页面上的一些帖子，就会有人在脸书上回复招聘帖子说，‘哦，你们强制接种疫苗吗？’有趣的是人们就是这样想的。但是，如果他们想申请，我们会欢迎他们来申请。”
-
-麦克丹尼尔补充说：“阿拉斯加州的警察部门没有针对中共病毒或强制疫苗接种方面有硬性规定，无论是对本地的、州或联邦机构都没有。我们鼓励任何寻找令人振奋的执法事业的符合资格的求职者考虑来阿拉斯加州警队工作。”
-
-这将在越来越多的红州发生。蓝州由疯狂的人管理，他们希望与未接种疫苗的美国人为敌，甚至损害他们自己州的人口数量。暴君利用疫苗强制令控制他的领地而让这些专业人员失去了工作，这些医生、护士及其他医务人员、警察、消防队员和护理人员纷纷选择离开，许多民主党人管理的城市将遭受损失。
-
-（全文完）
-
-阿拉斯加州的官员意识到，强制疫苗政策是“专制行为”，是一种“暴政”，专制和暴政的结果就是让人民选择“用脚投票”，离开你所管辖的地区。佛罗里达州、阿拉斯加州为这些未接种疫苗的人提供了机会，这是抗击暴政最保守的方式。
-
-如果再能清醒地意识到，这是阴谋、是邪恶集团对人类的一种迫害、一种攻击，或许那些未接种疫苗的人就不是选择离开的问题了。
-
-大觉醒还没有实现，觉醒后的反击、抗暴、追责更没有开始，还需要我们继续传播真相。
-
-（文章仅代表作者个人观点）
-
-原文链接：
-
-[https://djhjmedia.com/rich/alaska-republican-governor-tells-police-officers-who-were-terminated-over-vaccine-mandates-to-come-to-work-in-the-last-frontier-state/](https://djhjmedia.com/rich/alaska-republican-governor-tells-police-officers-who-were-terminated-over-vaccine-mandates-to-come-to-work-in-the-last-frontier-state/)
+- [ROL Foundation](https://rolfoundation.org/)
+- [ROL Society](https://rolsociety.org/)
+- [Terms of use](https://gnews.org/terms-of-use-3/)
+- [Privacy Policy](https://gnews.org/privacy-policy/)

@@ -2,29 +2,31 @@
 ---
 
 
-## 有声|投资数字世界收购公司的十一家机构中 八家由中共控制
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1619657/)
+## 美国海军部长视察日本航母化护卫舰“出云”号，针对中共意味强烈
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1619769/)
 
-配音：香草山美食部 – 玫瑰园
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-76.png)[图片来源](http://www.xinhuanet.com/mil/2021-07/28/c_1211262928.htm)
+日本海上自卫队一把手、海上幕僚长山村浩26日在记者会上透露，正在日本访问的美国海军部长德尔·托罗当天在神奈川县的海自横须贺基地，视察了已完成航母化改装第一轮的护卫舰“出云”号。山村前往迎接。
 
-数字世界收购公司在申请上市的文件中，列出了十一家投资机构。郭文贵先生在10月24日的大直播中，展示了这十一家机构的资本构成。除了三家是美国或加拿大的公司以外，其余八家公司全是中共控制的基金。
+10月，“出云”号联合美军F-35B隐形战机进行了针对性的起降试验。F-35B战机可短距离起飞并垂直降落。
 
-收购川普科技的SPAC公司-数字世界，来自吴征，其他股东，包括中共姓李的政协委员，以及运鸿集团，全是中共的情报企业。
+山村就试验表示，与德尔·托罗“确认了有利于提高日美双方装备的互换性”，强调“在力争加强同盟的威慑力和应对力方面达成了一致”。
 
-CEO克里斯是太平联盟集团的创始人，曾参与对郭文贵先生的法律诉讼超限战。FBI前高管弗兰克，是吴征在美国的合伙人，也是太平联盟案件的调查人。此人不但伪造假信息、假照片，而且多次和吴征一起，策划洗劫美国人的财富。
+日本计划对“出云”号进行航母化改装，同时航空自卫队将其与引进的F-35B进行适配。截至6月已完成F-35B起降所需的甲板耐热化作业。
 
-这次，他们再次伙同吴征，同时出现在这场洗劫与抢劫的并购中。背后由鸿运集团提供资金，涉及马云。这是一场中共全面布局操控的金融超限战。
+7月28日环球时报报道，为了应对中国的航母，日本政府计划在对“出云”号护卫舰改造完成后，从今年年底开始对“出云”级2号舰——“加贺”号护卫舰进行“航母化”改造。日美两国政府希望利用这些护卫舰，机动地为战斗机补充燃料，从而提高空中作战能力。
 
-文字版原文：[投资数字世界收购公司的十一家机构中 八家由中共控制](https://gnews.org/zh-hans/1616297/)
+从近几天美国海军部长在访日期间的行程和对外的话语，无不在强调日美同盟关系，以及提高共同的威慑力和应对威胁的能力，个中回应中共和中俄的意味非常明显。
 
-音频处理：喜山必胜Maverick
+信息来源：
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[美国海军部长视察日本航母化护卫舰“出云”号](https://china.kyodonews.net/news/2021/10/3367015d85b9.html)
+
+[日本出云号进行“航母化”改造日媒：意在牵制中国](http://www.xinhuanet.com/mil/2021-07/28/c_1211262928.htm)
+
+(文章仅代表作者本人观点，与GNEWS无关)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
