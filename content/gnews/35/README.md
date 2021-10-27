@@ -2,29 +2,36 @@
 ---
 
 
-## Facebook和YouTube下架巴西总统关于疫苗真相的视频
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1620039/)
+## 六中全会前夕，中共一再强调政治安全，忠诚与服从
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1620061/)
 
-作者：美东香草山-新世界的一员
+作者：日本方舟农场 – Andy5
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-10月26日，Facebook和Youtube下架了巴西总统雅博尔索纳罗关于中国病毒疫苗导致更易感染艾滋病的视频，此外，Facebook还暂停了其官方账号。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-150.jpg)
-博尔索纳罗于7月份在YouTube频道上发布的、关于建议服用羟氯喹和伊维菌素治疗中共病毒的视频，均被下架。
 
-不管是平民，还是总统，传播中共病毒及疫苗真相，必然会遭到脸书等社交媒体的全面打压。在疫苗灾难面前，盖特如一盏明灯，照亮黑暗的世界。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
+
+
+
+中共在给20大定调的六中全会前夕，反复强调政治安全，忠诚与服从，凸显出中共对所谓政治安全的不安，印证了郭文贵先生提到的，20大，就是习要给自己继续合法当中共领导人的一个抓手。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture111-2.jpg)
+中共今年在其国庆节前后，分别处理了孙力军和傅振华。到目前为止近四周的时间内，政法委、公安部以及各级党委，都不断传出紧抓政治安全，清理流毒影响，打造忠诚铁军的声音。
+
+约5天前，此声音波及范围已扩展到了教育部。教育部官员称，要将语文教材编写者的政治素质放在第一位，对人员严格政治审核。有墙内网友留言评论，“语文绝对不是汉语”，暗示语文课，俨然成了中共洗脑宣传的工具之一。
 
 参考链接：
-
-[大科技公司继续封杀巴西总统关于中共病毒疫苗真相的视频](https://gettr.com/post/pf7rm845c9)
+1. [六中全会前夕，中共一再强调政治安全，忠诚与服从](https://www.163.com/dy/article/GN5PH99505268MTU.html)
+2. [六中全会前夕，中共一再强调政治安全，忠诚与服从](https://new.qq.com/omn/20211025/20211025A010JW00.html)
+3. [六中全会前夕，中共一再强调政治安全，忠诚与服从](https://news.ifeng.com/c/8AZTe09gtQW)
+4. [六中全会前夕，中共一再强调政治安全，忠诚与服从](http://www.gov.cn/xinwen/2021-10/18/content_5643338.htm)
 
 （本文仅代表作者观点）
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-总编/编辑：木白
-校对/发稿：Fei797
+总编：Jack Li文阳
+编辑：Kathy文艺
+校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
 
@@ -38,7 +45,7 @@
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
  
 

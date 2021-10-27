@@ -2,27 +2,43 @@
 ---
 
 
-## 拜登总统被众议院议员指控犯有叛国罪并受到正式弹劾指控
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1620289/)
+## 美FDA批准莫德纳和强生加强针，且可混合使用
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1620304/)
 
-撰稿：喜国公民
-[视频来自网络](https://beckernews.com/articles-of-impeachment-accusing-president-biden-of-treason-have-been-introduced-in-the-house-of-representatives-42650/)
-美国众议院议员马乔里·泰勒格林最近在众议院宣读了她向众议院小组委员会提交的对拜登总统进行弹劾的议案。
+作者：纽约香草山教育部 – 正义的小新
 
-该弹劾议案指控拜登总统滥用职权，以权谋私，帮助他的儿子亨特·拜登进行商业交易。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
 
-议案还指控拜登总统在南部边境的政策给美国国家安全造成了极其危险的危机。
+据BBC新闻网报道，10月20日，美国FDA授权莫德纳和强生公司的新冠疫苗加强针，并表示，在多针疫苗接种时，民众可以选择不同的品牌。据悉，此授权正在等待CDC的审批，一旦通过，或将在疫苗接种政策中再添波澜。
 
-她还指控拜登总统没有忠实地执行美国总统的职责，没有坚持他的誓言来维护、保护和捍卫美国的宪法，辜负了美国人民。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-54.jpg)
 
-对拜登总统在阿富汗撤军方面的表现，格林议员认为他可能犯有叛国罪。指控拜登总统拥护美国的敌人，用纳税人资助的美国设备和武器来武装塔利班。指控他抛弃了在阿富汗的美国人。
+然而，爆料革命无数次警告世人，新冠疫苗非但不能预防病毒、阻止传播，反而对人身体有害，甚至会导致死亡。反对新冠疫苗就是保障自己安全的未来。
 
-这不是格林议员第一次提交针对拜登总统的弹劾议案。她分别在今年1 月和8 月提交议案，指控拜登总统。
+（本文仅代表作者观点）
 
-(本文纯属个人观点，与Gnews无关)
+参考阅读：
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+1. [https://www.bbc.com/news/world-us-canada-58887929](https://www.bbc.com/news/world-us-canada-58887929)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-3.jpeg)
+
+***编辑/校对：Irene木木***
+***发稿***：***海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

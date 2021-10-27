@@ -2,36 +2,55 @@
 ---
 
 
-## 中招的川普总统是否还能成功解套？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1620190/)
+## 前国务卿蓬佩奥在媒体发声 拜登总统必须信守承诺，保护台湾
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1620252/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_1101.jpg)图片来源：Center for American Progress
-**作者：**顺其自然
-**编辑/导读：**守望黎明
+作者：香草山农场教育部-晓仙女
 
-在10月25的盖特视频中，郭文贵先生提到川普Spac公司的股票又涨过了100美元，这是大手笔的操作，都是大额单子的交易，是机构在操作。这种完全人为炒作的股票涨跌就是个骗局，最终消停下来大约需要五周左右的时间。郭先生说他相信川普总统最终会醒过来的——在钱面前很多人是不冷静的，很难禁住诱惑，但说到底无论如何命比钱重要，安全比钱重要，如果危及到政治生命，总归还是要解套止损的。
 
-在昨天视频中，郭先生再次提到了中共用吴征来设计川普总统，让他中招，有可能会把川普引入涉及刑事调查的灾难之中。有网友在下面留言说问：为什么不提前告知川普，或者让班农转告川普，让他提前避开这个阴谋？现在我谈一下我的理解。
 
-就像郭先生自己说的，我们不要把自己看得太高，人家川普毕竟是一个很成功的商人，而且还做到了美国的总统，支持率又那么高，这种人会很有自己的主见。在我们的心目中，郭先生各方面的情报或者是预测都很准确，但是在川普的心中可并不一定会把这太当回事。如果是真能那么认真对待的话，在2020的美国大选时，川普就会认真对待郭文贵先生的中共将要操控大选的报警，不会被人家给弄下去了。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-再有，班农是在2016年川普的选情很差的时候加入的川普阵营，并帮助他赢得了总统宝座。但班农做了白宫战略顾问没多久就离开了。我猜测，班农肯定是跟川普在某些方面意见不合，班农没法说服得了他也只好转身离去。再有2020大选，班农并没有再回川普团队助选。之前有消息说，川普多次邀请班农再次加盟，但班农并没有积极响应，估计是班农提出的某些条件或建议是川普不愿意采纳的。
 
-川普执政期间，在白宫的幕僚当中也就是皮特·纳瓦罗一直紧随在他身后，其他的人跟川普好像都有点若即若离。在2020年的总统大选的一场又一场的集会当中，70多岁的川普老爷子的那种马不停蹄的车轮大战，和他的家人的倾情相助都特别特别地让人感动。但是从中也可以看出，这好像只是他们一家人的战争，川普的周围并没有什么重磅幕僚去为他打拼，对他鼎力相助。这也就说明，川老爷子很多时候都是一个人在战斗，他很多的时候都是自己拿主意或者只听家人的意见的。
 
-这次肯定也是这样，郭先生不会不把消息透给川普，但是估计川普又是没听进去。说不定是川老爷子又动了商人思维，认定郭先生是为了吸引他加入盖特，打压竞争对手故意危言耸听呐！尽管如此，郭先生对川普的醒来还是很有信心。我们也希望如此，衷心期盼川普不要被中共带到坑里爬不上来。
+10月24日，前国务卿迈克尔·蓬佩奥告诉《猫圆桌会议》主持人约翰·卡特西马提迪斯，“我看到拜登总统说，我们致力于保卫台湾。我希望他说出这个想法的时候，他真的是这么想的。现在人们期望他能兑现这一承诺。”
 
-（文章只代表作者个人观点，与GNEWS无关）
+蓬佩奥强调，拜登作为美国总统，不应该说一套做一套，不应该在不清楚自己说的是什么的情况下随意做出评论。
 
-*发布：翼族*
+蓬佩奥还指出：中共在过去10天中测试了高超音速导弹系统，习近平则表示，要首先收复台湾，然后在该地区进行建设，之后就可以胁迫整个世界。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-156.jpg)
+拜登总统在10月20日出席一个媒体活动时表示，如果台湾受到中共攻击，美国将会兑现承诺保卫台湾。但随后白宫发出声明，称拜登总统的讲话并不是美国对台政策改变的信号。这意味着美国对台湾仍会保持一贯的“模糊政策”。
 
-**YOUTUBE频道：**[闲聊澳洲](https://www.youtube.com/channel/UCPxB0vpNpmHN0hORXK4gj2A)
+蓬佩奥对拜登信守承诺的呼吁，一方面表达了对拜登政府行事风格的批评，另一方面，更表达了对台湾形势的严重关切。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+参考链接：
+1. [@mikepompeo 盖特: President Biden said that we have a commitment to defend Taiwan. There’s an expectation now that he will follow through on that commitment, and I hope the Biden Administration will.](https://gettr.com/post/pf73ukee85)
+2. [@Pandarolling 盖特：蓬佩奥能抓住现在病毒真相的核心点，相信他在美国大选中将是强有力的竞选人之一，人类必须面对投毒的ccp否则病毒和疫苗无休止的杀死你！](https://gettr.com/post/pf5qr3db8f)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

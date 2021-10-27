@@ -2,32 +2,29 @@
 ---
 
 
-## 中共的作秀式“全过程民主”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1620060/)
+## 佛罗里达州州长欢迎未接种疫苗的执法人员加入本州
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1620103/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：纽约香草山 – AlexZ
 
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
-
-
-
-早在10月14日，习近平就在中共人大工作会议上高谈所谓的“民主”话题，甚至为此创造了中共独有的“全过程民主”，更恬不知耻的标榜人大制度的“伟光正”，还作秀般的设立了名存实亡的中共式选举。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture11-8.jpg)
-即便如此，对于本就不存在的选举制度，中共仍然不放过任何可能危及其政权的细枝末节。
-
-据消息称，有14名跟中共人大相关的所谓“选举人”因其言论中的“独立”一词，被中共警方及国保审问并带走，且再无任何音讯。 再一次地，中共墙内从无民主的事实毫无遮掩地暴露在世人面前。
-
-参考链接：[中共的作秀式“全过程民主”](https://www.cna.com.tw/news/acn/202110250311.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+鉴于美国一些州已经强制要求警察接种疫苗，佛罗里达州州长罗恩·德桑蒂斯在日前的采访中表示，欢迎未接种疫苗的警察加入本州，并承诺向每位州外执法人员提供 5 千美元的奖励。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-129.jpg)
+德桑蒂斯曾明确表示反对拜登总统对雇主和雇员的疫苗强制政策，并在美国第11巡回上诉法院提出诉讼，表示将通过联邦法院和立法推翻这项政策。上周，德桑蒂斯还呼吁召开特别立法会议，保护佛罗里达人免受联邦疫苗强制令的影响。
 
 （本文仅代表作者观点）
 
-![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+参考链接：
+[Let it be clear, in Florida your right to earn a living is not contingent on whatever choice you make concerning the vaccine.](https://twitter.com/govrondesantis/status/1451669696495816706?s=21)
 
-总编：飞虹
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编: 雪梨
+
 编辑：飞虹
-校对/发稿：Hetangyuese
+
+校对/发稿：Fei797
 
 **更多资讯，更多关注**
 
@@ -41,7 +38,11 @@
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
+
+
 
  
 
