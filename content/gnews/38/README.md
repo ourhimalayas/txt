@@ -2,36 +2,33 @@
 ---
 
 
-## CDC主任：加强针可能改变“完全接种”的定义
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1620388/)
+## 北约就警惕俄罗斯的敌对行动达成协议
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1620393/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：美东香草山农场 – 文真
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
 
 
 
-美国CDC主任Rochelle Walensky周五表示，“完全接种”的定义可能会发生变化。她说，“这取决于加强针的推进情况。请继续申请注射加强针。我们将保持关注。”
+这项战略计划全称为《欧洲-大西洋地区的威慑和防御概念》，旨在让北约成员国为来自波罗的海和黑海地区的攻击做好准备。该计划囊括了针对核、太空和网络攻击的措施。计划特别为网络战开发数字技术，提供了10亿美元的种子资金。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/6-12.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/6-18.jpg)
 
-这与她9月下旬 “联邦卫生官员暂时不考虑更改‘完全接种’定义的表态，有了一个急转弯。据悉，这种变化可能源于以色列修改加强针作为疫苗护照的标准。
+近期，俄罗斯一直在举行军事演习，并在乌克兰边境附近集结了近10万军队，派遣军用飞机侵入北约领空，并开发具有核能力的导弹，包括具有核能力的高超音速巡航导弹。
 
-根据CDC官方数据显示，目前有1.9亿的美国人已完全接种，占总人口的66.3%，其中1250万已经接受了加强针。如果修改了定义，将导致部分此前符合“完全接种”的人失去资格。再加上只打了一针和坚决拒绝接种的人群，有可能意味着三分之二的美国人因为不符合资格而失去外出就餐、乘火车飞机、国际旅游的机会。
-
-加强针会怎样加剧疫苗灾难，难以想象。对宗教、人权的侵蚀，与日俱进。爆料革命向世界揭露黑暗、传递真相，肩负着沉重的历史使命。
+北约的新计划，将针对俄罗斯对波罗的海国家上空的侵犯，以及对黑海入侵的增加，起到威慑作用。
 
 （本文仅代表作者观点）
 
 参考阅读：
 
-1. [https://covid.cdc.gov/covid-data-tracker/#vaccinations\_vacc-total-admin-rate-total](https://covid.cdc.gov/covid-data-tracker/#vaccinations_vacc-total-admin-rate-total)
-2. [https://rumble.com/vo3sjr-cdc-director-we-have-to-change-the-definition-of-fully-vaccinated-because-o.html](https://rumble.com/vo3sjr-cdc-director-we-have-to-change-the-definition-of-fully-vaccinated-because-o.html)
+1. [https://www.zerohedge.com/geopolitical/nato-agrees-plan-caution-russia-against-increasing-hostilities](https://www.zerohedge.com/geopolitical/nato-agrees-plan-caution-russia-against-increasing-hostilities)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-4.jpeg)
 
-***编辑/校对：******Ivy001***
+***编辑/校对：山本不惑***
 ***发稿***：***海阔天空1***
 
 **更多资讯，更多关注**
