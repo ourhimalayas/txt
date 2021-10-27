@@ -2,42 +2,36 @@
 ---
 
 
-## 加拿大不列颠哥伦比亚省最近三天内报告了 1,618 例新的 COVID-19 病例，以及 20 例死亡
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1621376/)
+## 中共要求许家印以个人财富偿付恒大债务
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1621453/)
 
-**翻译：**沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/10/WEB_1025_COVID_KEITH_thumbnail_1280x720-edited.jpg)图片来源：网络
-立法局局长基思·鲍德雷 (Keith Baldrey) 于 2021 年 10 月 25 日星期一发布了为期三天的报告的最新 COVID-19 更新。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月26日，据消息人士透露，中共当局要求许家印拿出个人财富，以应对越来越严重的债务危机。
 
-周五至周六为613例，周六至周日为529例，周日至周一为476例。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-12.jpeg)
 
-在新病例中，菲沙卫生区 699 例，温哥华沿海卫生局 190 例，内陆卫生局 254 例，岛屿卫生局 186 例，北部卫生局 289 例。
+据悉，恒大曾于9月下旬未能兑付一笔到期的美元外债利息，随后，中共要求许家印以私人财产偿付。在一个月的宽限期内，恒大筹集了八千三百五十万美金，全额偿还了那笔美元利息，避免了实质违约。然而，恒大另一笔美元外债利息的30天宽限期将于10月29日本周五到期；至2022年，还将有一笔7.4亿美元的在岸和离岸债券到期。
 
-COVID-19：不列颠哥伦比亚省 看到年轻人死亡人数激增
-因该病住院的人数小幅上升至 366 人。其中，149 名患者在重症监护室，比周五增加了 7 人。
+数据显示，许家印的净资产已经从2017年高峰时期的四百二十亿美元，缩减至如今的大约78亿美元。截至今年6月，恒大的总负债已达3000多亿美元。
 
-自大流行以来，卑诗省共有 202,516 例 COVID-19 病例。 其中 4,966 人处于活跃状态。
+自恒大债务危机爆发以来，中共政府虽严密监控着恒大的银行账户，但其目的是为了确保恒大的现金将被用于未完成的住房项目，而不是用于赔偿支付债权人，包括各种理财产品的受害者。
 
-这 20 人死亡，其中包括一名 30 多岁的人，使 BC 省的 COVID-19 死亡人数达到 2,129。
+参考链接：[Beijing Tells Evergrande’s Billionaire Founder To Repay The Insolvent Company’s Debts](https://www.zerohedge.com/markets/beijing-tells-evergrandes-billionaire-founder-repay-insolvent-companys-debts)
 
-该报告称，卑诗省 90% 的符合条件的成年人 ， 他们已经接种了第一剂疫苗。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-该省还表示，89.6% 的 12 岁及以上符合条件的人接种了一剂 COVID-19 疫苗，而 84.4% 的人接种了两剂。
+总编：山本不惑
+编辑：山本不惑
+校正/发稿：谐趣园
 
-**评：**报告内容显示，接种疫苗並没有阻断病毒的传播及导致死亡，再次证明疫苗是中共病毒的另一个巨大灾难。
-
-新闻来源：[https://globalnews.ca/news/8324478/bc-covid-19-update-october-25-2021/amp/](https://globalnews.ca/news/8324478/bc-covid-19-update-october-25-2021/amp/)
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：LILY
-
-20211027
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
-
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

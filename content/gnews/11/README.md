@@ -2,26 +2,29 @@
 ---
 
 
-## 萨斯喀彻温省长承诺不会实施更多疫情控制措施
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1621657/)
+## 有声|郭文贵先生对新中国联邦人强调“爱”的重要性
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1621707/)
 
-采编：青青        编译撰稿：苦尽甜来 (文来）
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月24日文贵大直播中，郭文贵先生说：人类生存的价值大部份来自家庭，人最重要的关系就是家庭关系，而家庭中父母就是重中之重。郭先生曾经要求盘古员工必须孝敬父母，做不到就别来上班。一个父母都不尊重的人，说什么郭先生都不会尊重他。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/aaa.jpg)图片来源：CTV
+共产党这个魔鬼，毁了家庭，以爹亲娘亲不如党亲来洗脑人民，让人不孝敬父母。造成了太子爷般的儿子、孙子打父母，打爷爷奶奶；媳妇打公公等丧绝人伦之事。这种恶是郭先生决心灭共的最早起因。
 
+郭先生强调：新中国联邦人，不管你有什么信仰，不把父母和家人放在第一位，不把爱和爱人放在第一位，你永远不会是新中国联邦人。家和万事兴。“和”来源于“爱”，没有“爱”就没有“和”；没有“和”，“家”就站立不住；没有“家”，就没有“国”。因此，“家”是“国”的根本。而“爱”是“家”的根本，因此，没有“爱”就不配做新中国联邦人。
 
-据加拿大【CTV新闻】10月25日报道，萨斯喀彻温省省长斯科特于当天新闻发布会宣称，由于涉及到公民自由及人权问题，当局目前暂不采取额外的“新冠病毒”疫情控制措施。
+文字版原文：[郭文贵先生对新中国联邦人强调“爱”的重要性](https://gnews.org/zh-hans/1618184/)
 
-该省长对此表示，由于疫情无处不在，因此当局不会实施更多的，可能导致企业倒闭的封锁或限制措施。并希望将政府工作重心逐渐转移到关注和发展该省的经济中来。
-
-此外，该省卫生局本月的数据显示，其居民的人均重症监护病房人数超过加拿大其他任何省份。对此，该省首席医疗卫生官坦言，接种“新冠病毒疫苗”将不足以阻止萨斯喀彻温省第四波疫情的蔓延。
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-[原文链接：](https://regina.ctvnews.ca/saskatchewan-won-t-impose-more-covid-19-measures-premier-scott-moe-1.5637734)
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

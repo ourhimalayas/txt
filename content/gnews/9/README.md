@@ -2,189 +2,52 @@
 ---
 
 
-## 对立面都和江派勾兑是习必定闭关锁国的条件之一
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1621686/)
+## 阿拉巴马州州长签署州长令抗击联邦疫苗强制令
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1621722/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2658.png)
-[https://gtv.org/video/id=6179374f247c5a3f9090a99e](https://gtv.org/video/id=6179374f247c5a3f9090a99e)
+**翻译：** 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Alabama-Gov.-Kay-Ivey-700x420-1-edited.jpg)图片来源：网络
+来自THE EPOCH TIMES 星期二26日的新闻报道：
 
-郭文贵
-Miles Guo
+阿拉巴马州州长 凯艾维Kay Ivey (R-共和党) 周一签署了一项行政命令，要求各机构不遵守联邦冠状病毒疫苗的规定。
 
-4年前2017年吴征带着
-4 years ago in 2017, Bruno Wu accompanied
+724 号行政命令宣布“不执行联邦 COVID-19 疫苗接种强制令”立即在全州生效。
 
-中国一票公安人员去伦敦
-a few Chinese police officer to London
+该命令说：“立即生效，州政府行政部门内的任何机构、部门、懂事会、委员会或其他实体不得以州法律的名义对任何企业或个人的违规行为进行处罚。”
 
-就是有王力科手下和王力科
-That was Wang Like, and also his subordinates
+艾维与周一州长令一起发布的书面声明称，疫苗强制要求“令人发指的使用过度”。
 
-而且到现在习都不知道
-As of today, Xi doesn’t even know
+“联邦政府令人发指的过度扩张只是让我们别无选择，只能开始采取行动，这就是我发布此行政命令以对抗这些恶劣的 COVID-19 疫苗强制令的原因。阿拉巴马人——和美国人一样——应该而且必须有选择去卷起袖子打疫苗，一定不是受政府强迫，”艾维写道。
 
-当时调查习的姐姐的孩子叫吴拉菲
-Xi’s nephew named Wu Lafei was investigating during that time
+“虽然拜登总统嘲笑保护你的自由的想法，但我将继续为阿拉巴马州的企业及其员工而战，”州长补充道。艾维还表示，拜登白宫“再次挫败了”美国人民。
 
-那个时候咱就知道
-We have been aware since then that
+“如果联邦政府继续强行这些新的联邦法令，那么拜登白宫再次辜负了美国人民。正如我所说，毫无疑问，这将在联邦法院受到挑战，”州长写道。
 
-江派要干掉习的
-Jiang (the farmer President of PRC) faction wanted to destroy Xi
+艾维特别声明，作为州长，她不会强迫任何人接种 COVID-19 疫苗。“我坚决反对与 COVID-19 疫苗相关的联邦指令，坚决反对与 COVID-19 疫苗相关的州指令，简单明了。只要我是你们的州长，阿拉巴马州就不会强迫任何人接种 COVID-19 疫苗，”她写道。
 
-对习家所有的事情
-Everything happened to Xi’s family
+“通过今天的州长令，阿拉巴马州正在明确我们在这个问题上的立场。回应拜登总统，仅有州的法律是不够的。法院是解决这个问题的地方。今天是这场斗争的第一步，但肯定不是最后一步，”艾维补充道。州长在结束声明时指出，她所在州的人民“强烈反对”冠状病毒疫苗的强制要求。
 
-江家的一举一动都要盯着他
-Every move of the Xi’s family must be monitored
+“阿拉巴马人压倒性地反对拜登的这些令人发指的命令，我坚定地支持他们，”艾维写道。
 
-那么反过来说了呢
-So the other way around
+阿拉巴马州加入了之前其他州的类似行动。德克萨斯州州长 Greg Abbott (R) 最近还发布了一项行政命令，反对孤星州 （Lone Star State）的任何“实体”强制执行 COVID-19 疫苗规定或要求提供疫苗接种证明。
 
-今天的习，大部分都在否定邓的路线的时候
-Currently, most of the time Xi is denying Deng’s guide-line
+佛罗里达州州长 Ron DeSantis (R) 最近也就冠状病毒疫苗强制命令发声。他召集州立法者 召开特别会议，审议一项法律，禁止他认为不利于工人和企业的疫苗令。
 
-一定会闭关锁国
-He will practice the closed-door policy and lockdown the country
+**点评：**
 
-同时他不闭关锁国
-if he (Xi) doesn’t do that
+很高兴看到美国越来越多的州长们站起来反对拜登政府的违反宪法的疫苗令，违反美国人民追求自由的强权政治必然是难以行的通。正义的州长们发声与行动将极大地提醒和鼓舞各州人民的反强制疫苗运动。 美国人民绝不希望美国成为像北韩，古巴或中共那样的独裁霸道、反人民的国家。
 
-江家这些人在海外的资产和安全（习）是没有办法（控制的）
-(Xi) will not have control over the overseas assets and security that Jiang’s family have
+原文链接：[https://www.theepochtimes.com/alabama-governor-signs-order-to-fight-federal-vaccine-mandate\_4069651.html](https://www.theepochtimes.com/alabama-governor-signs-order-to-fight-federal-vaccine-mandate_4069651.html)
 
-还有这些中国的1%的人拥有90%的财富
-And also this 90% of the wealth in China which own by 1% of people
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
 
-怎么可能你不闭关锁国
-How could you (Xi) not lockdown the country
+编辑/发布：LILY
 
-怎么达到自己的目的呢?
-and to achieve the own goal?
+20211027
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 
-一定会
-Sure he will
 
-更重要的是你要看到两个条件
-More importantly, you have to recognize two conditions
 
-就是江家
-It’s the Jiang family
-
-你看今天所有的习弄的江派的这些大佬、私人企业家
-Look, all these the big bosses and private entrepreneurs of the Jiang faction today that on Xi’s list
-
-几乎（百分之）90以上都是江浙人，江派的
-almost 90% and above are from Jiangsu and Zhejiang, and they are Jiang faction
-
-上海帮拥有了香港的90%
-The Shanghai Gang owns 90% of Hong Kong
-
-这点你们不怀疑吧
-Don’t you doubt this?
-
-上海人，上海人
-Shanghainese, Shanghainese
-
-董建华、梁振英、林郑月娥
-Tung Chee-hua, Leung Chun-ying, Carrie Lam
-
-所有香港的几个
-All those individuals in HongKong
-
-现在那几个律政司司长
-and a couple of attorneys now
-
-你见有山西帮吗
-Have you seen any Shanxi Gang？
-
-广东帮还有存在的吗
-Is there still any existing Guangdong Gang?
-
-人家李嘉诚是广东人
-Li Ka-shing is Cantonese
-
-但李嘉诚本质、人家老婆家全是上海帮
-But his essence and all his wife’s family are with the Shanghai Gang
-
-几大家族
-Several big families
-
-哪个不是上海帮，恒生（银行）家族哪个不是上海帮
-Which one is not with the Shanghai Gang? and even the Hang Seng (Bank) family
-
-香港没有广东帮
-There is no Guangdong Gang in Hong Kong
-
-香港的粤语不是最主语,不是最流行
-Cantonese is not the primary language in Hong Kong, and it’s not the most popular
-
-香港的主语是上海语
-The primary language in Hong Kong is the Shanghai dialect
-
-你想想在整个香港什么情况
-You can think about the whole situation in Hong Kong
-
-那习为什么要干掉香港
-So why Xi has to take over Hong Kong?
-
-反过来又说了，台湾被“蓝金黄”的人,是谁“蓝金黄”的
-Conversely, people who have been “BGY” (compromised) in Taiwan, but who has made them compromised?
-
-不是习，他没这个脑袋，他没这个智慧
-It’s not Xi, he doesn’t have this wisdom
-
-是人家杨洁篪
-It’s Yang Jiechi
-
-是人家中纪委十八局和十一局、十三局
-It’s the 11th, 13th, and 18th bureaus of the Central Commission for Discipline Inspection
-
-所有这江家的军队
-All this Jiang family’s army
-
-包括当时的总政联络部
-Including the General Political Liaison Department
-
-包括统战部，那全都是江派
-and the United Front Work Department during that time are all Jiang faction
-
-在卖台贼里边（百分之）90以上那全都是江派的
-Among those compromised Taiwanese, 90% or more are Jiang faction
-
-那你去想想，习你有啥（本钱）跟人家折腾的
-Think about it, what can Xi afford to toss with others?
-
-你想拿回台湾
-You want to take back Taiwan?
-
-你想拿回香港
-You want to take back Hong Kong?
-
-没有一个香港台湾的
-None of the Hongkonger and Taiwanese
-
-就是跟江家合作的（卖台和卖港贼）不等着习出事的
-who cooperated (compromised) with Jiang family is not waiting for Xi’s trouble happens
-
-* * *
-
-Date: 10/25/2021
-原视频标题: 对立面都和江派勾兑是习必定闭关锁国的条件之一
-The opposites are blended with the Jiang faction is one of the conditions for Xi must to close the country
-原视频日期：2021/10/22
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1452260642358906890?s=24](https://twitter.com/se1y7cblljselva/status/1452260642358906890?s=24)
-任务编号：KC199(2658)
-视频时间段 : 0:00-2:18
-英听校： 洛杉矶盘古农场 – 郭班之樱
-翻译： 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

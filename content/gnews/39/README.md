@@ -2,27 +2,37 @@
 ---
 
 
-## 拜登签署命令实施新国际旅行疫苗规定
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1621066/)
+## 澳大利亚社论漫画家因创作反强制疫苗漫画被解雇
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1621067/)
 
-作者：澳喜农场 在远方
+作者：纽约香草山福音部 –lilian89
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-10月25日，拜登签署了一项新的国际旅行疫苗命令，当中表示，从11月8日起，取消对中共国、印度和欧洲大部分地区的严格旅行限制。但是，新规定中要求，外国的航空旅客需要提供所谓“官方来源”的新冠疫苗接种文件，且最后一剂疫苗的接种时间至少比旅行出发日期早两周。另外，国际航空旅客还必须在起飞前72小时内提供新冠病毒检测阴性的证明。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1027-AM-（1-3、5-8、10）视频备用.004.jpeg)
-虽然全球旅行禁令看似在逐渐解除，但与之并行的是各国政府愈演愈烈的强制新冠疫苗接种政策。而今，这一政策已经影响到民众生活的各个角落。
+近日，据消息称，澳大利亚社论漫画家——迈克·李优尼格因一副漫画被解雇。
 
-从另一方面看，美国的航空新规一方面要求旅客接种新冠疫苗，但另一方面仍需他们提供病毒检测阴性证明，这本身就是疫苗不具有效防护作用的体现。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-27-at-9.46.24-PM.png)
+
+据悉，迈克创作了一幅关于抵制新冠疫苗强制接种的漫画，当中，他将抵抗政府强制性新冠疫苗的行为比作当年天安门广场上的民主斗争。
+
+但是，《时代报》以包含反疫苗情绪为由，拒绝刊登该副漫画，并因此解雇了迈克。
+
+而今，在西方国家，言论、新闻自由被打压的境况已经逐步显现。这也完全验证了郭先生早在2017年爆料革命之初的警告：主流媒体对言论管制的操控也一定会发生在西方国家每个人的身上，没人能置身度外。
 (本文仅代表作者观点)
 
-参考链接：[美国总统拜登签署命令 实施新的国际旅行疫苗规定并取消严格限制](https://cn.reuters.com/article/biden-travel-rules-1025-mon-idCNKBS2HG034)
+参考链接：
+
+1. [Cartoonist Michael Leunig axed from prime spot at The Age over anti-Dan Andrews image](https://www.news.com.au/finance/business/media/cartoonist-michael-leunig-axed-from-prime-spot-at-the-age-over-offensive-vaccine-image/news-story/3b6b99a4101ebe53df58cb21827df0d4)
+2. [High-profile cartoonist Leunig is AXED over cartoon comparing Dan Andrews’ vaccine mandates to the Tiananmen Square massacre](https://www.dailymail.co.uk/news/article-10126303/Cartoonist-Leunig-AXED-cartoon-comparing-Dan-Andrews-vaccine-mandates-Tiananmen-Square.html)
+3. [The Australian cartoonist Leunig got fired for making this cartoon.](https://twitter.com/HiggensWillem/status/1452953551358119939)
+4. [“My Job Is To Challenge The Status Quo!” Michael Leunig Kicks Off After The Age Rejects Anti-Vax Content](https://www.bandt.com.au/my-job-is-to-challenge-the-status-quo-michael-leunig-kicks-off-the-age-over-anti-vax-cartoon/)
+
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-编辑/总编：Irene木木
+编辑/总编：Ivy001
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
@@ -33,8 +43,6 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
 
  
 
