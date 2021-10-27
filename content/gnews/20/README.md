@@ -2,27 +2,47 @@
 ---
 
 
-## 有声|蓬佩奥指出世界面临撕裂的三大原因都源自CCP
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1621827/)
+## 瑞典和英国9月份七成病毒死亡是“完全接种”者
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1621848/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-近日，美国前国务卿蓬佩奥出席World Knowledge Forum时指出世界面临撕裂的三大原因都源自中国共产党。一是由于中共撒谎以及联合国对中共卑躬屈膝而造成全世界大流行的中共病毒；二是中共的一带一路项目，其本质就是新型帝国主义；三是中共开始着手取代美国的领导地位，比如在疫情期间中共没有放下报复美国的野心反而让其野心更加膨胀，它们撕毁了本该遵守至2047年的中英联合声明。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-蓬佩奥国务卿说，看到香港沦陷以及中共对其之前庄严承诺过的义务表现出的轻蔑态度，每个人都该问自己，中共国所签的哪一个正式文件会得到中共的执行？同时，蓬佩奥国务卿明确指出，中共就是个强盗政权，中共国被一群强盗所领导着。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/V.png)俄罗斯莫斯科喀秋莎农场 女农
+《门道专家》10月27日发出了惊人的报道，题目“惊爆：瑞典和英国9月份70%的中共病毒死亡病例是‘完全接种’”。
 
-文字版原文：[蓬佩奥指出世界面临撕裂的三大原因都源自CCP](https://gnews.org/zh-hans/1617967/)
+全文如下：
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+政府数据显示，9月份，瑞典和英国70%的中共（新冠）病毒死亡病例是“完全接种”的人。
+
+据《瑞典日报》（Svenska Dagbladet）报道，《瑞典公共卫生署》（Swedish Public Health Agency）报告，9月1日至9月24日期间，70%的中共病毒死亡病例涉及“完全接种”的个人，在此期间，该国记录了约130例致命的中共病毒病例。
+
+《生活新闻》（Life Site News）报道：微生物学研究人员法希德·贾拉凡德（Farshid Jalalvand）告诉该报，接种疫苗死亡人数上升的可能原因包括“最老的人接种疫苗到现在已经有相当长的一段时间了，疫苗覆盖率增加，限制随之放松，Delta变种来临。”
+
+然而，在卫生官员于6月初缩减限制后，瑞典的死亡人数骤减，整个7月和8月，这个斯堪的纳维亚国家几乎没有因中共病毒死亡的报告。到9月中旬，死亡人数开始再次攀升，当时16岁以上的瑞典人中近75%已经 “完全接种”疫苗。
+
+尽管瑞典开展了大规模疫苗接种运动，但最近的感染人数激增导致瑞典老年护理中心的中共病毒染病数量创下2月份以来的最高水平。
+
+10月7日，《英国卫生安全局》（UKHSA，UK Health Security Agency）发布了一份中共病毒疫苗监测报告，报告显示，英国大部分因中共病毒死亡的病例都是“完全接种”的个体，9月份大部分住院病例也是如此。
+
+更多来自《生活新闻》（Life Site News）：根据《英国卫生安全局》（UKHSA）的数据，在9月6日至10月3日期间，70%的致死性中共病毒病例发生在完全接种疫苗的人群中，在检测为阳性后的28天内，“完全接种疫苗”人群中有2281人死亡，而未接种疫苗的人群中只有611人死亡，部分接种疫苗的人有98人死亡。
+
+《曝光》（Exposé）观察到，“完全接种疫苗”的英国人中的中共病毒死亡人数比8月份大幅增加。《英国公共卫生部》（Public Health England）上个月报告，在8月9日至9月5日期间，未接种疫苗的人群中有600例冠状病毒死亡，在双重接种的人群中有1659例。
+
+UKSHA的最新数据还显示，接种疫苗的患者在因中共病毒的住院治疗中占主导地位。9月6日至10月3日期间，3910名“完全接种疫苗”的患者因染疫入院，而未接种疫苗的患者约为2400人。全部或部分接种疫苗的患者约占与中共病毒相关的住院总人数的64%。
+
+包括美国在内的其他西方国家的“完全接种”病例和死亡人数都有所增加，《门道专家》此前报道称，《美国疾病预防控制中心》（CDC）前主任罗伯特·雷德菲尔德（Robert Redfield）声称，在过去6-8周内，马里兰州死于中共病毒的人中有40%以上的已经完全接种了疫苗。
+
+（原文完）
+
+挑战、抗击阴谋集团，除了要拒绝中共病毒疫苗，也要揭露那些官方统计数据的掩盖。不了解真相如何能让人们正确选择？通过揭露数据造假或掩盖，还可以让阴谋、邪恶集团的杀人操作曝光，晒在阳光下才能让黑暗无处逃遁，善良的人们才能自救并救人。
+
+（文章仅代表作者个人观点）
+
+原文链接：
+
+[https://www.thegatewaypundit.com/2021/10/70-percent-covid-19-deaths-sweden-uk-september-fully-vaccinated/](https://www.thegatewaypundit.com/2021/10/70-percent-covid-19-deaths-sweden-uk-september-fully-vaccinated/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

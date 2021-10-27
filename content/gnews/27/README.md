@@ -2,46 +2,32 @@
 ---
 
 
-## 澳大利亚针对中共国大行动 &#8211; 收购太平洋地区最大的电信公司
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1621761/)
+## 东亚峰会 美中就海上安全针锋相对
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1621777/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/marie-bellando-mitjans-b8MpFt6hctY-unsplash-1.jpg)图片来源：AAP Image
-澳大利亚电信公司已经同意使用纳税人的18亿美元现金来收购太平洋地区最大的电信公司，以防止其被中共国拥有。
+俄罗斯莫斯科喀秋莎农场  银河
 
-在巴布亚新几内亚、汤加、斐济、瑙鲁、萨摩亚和瓦努阿图运营的迪吉塞尔太平洋(Digicel Pacific)公司21亿美元的出售将在明年进行。
+编辑上传   水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/E-4.jpg)japantimes.co.jp
+日本共同社10月27日报道，美国、中共国和日本在周三举行的地区峰会上就海上安全问题针锋相对，美国总统拜登(Joe Biden)和日本首相岸田文雄(Fumio Kishida)自上任以来首次参加了在线会议。
 
-中共国国有的中国移动曾表示有兴趣收购迪吉塞尔太平洋公司，但澳大利亚政府不希望这一战略资产落入中国共产党手中。
+东亚峰会的虚拟会议召开之际，中美之间的紧张关系因南中国海、东海和台湾海峡等问题不断加剧。与此同时，缅甸局势预计将成为东亚峰会的主要议题之一。
 
-外交部长玛丽斯·佩恩（Marise Payne）、贸易部长丹·特汉（Dan Tehan）和国际发展与太平洋事务部长泽德·萨撒加（Zed Seselja）在一份联合声明中表示，政府期望从这笔交易中看到长期的回报。
+拜登的出席凸显美国一直渴望恢复其在该地区的影响力，而中共一直在努力加强与东南亚国家联盟(Association of Southeast Asian Nations)的关系。
 
-部长们周一表示：“这项收购也反映了政府的承诺……支持该地区安全可靠基础设施的发展。”
+日本首相岸田文雄在峰会结束后向其他国家领导人转达了日本在南中国海和东海海上安全问题上的“坚定立场”。他强调关注中共在新疆涉嫌侵犯人权、香港镇压自由以及台湾面临的安全挑战是重要的。
 
-参议员，议会情报和安全委员会的主席詹姆斯·帕特森（James Paterson）说：“这是对澳大利亚对太平洋地区的承诺的赞扬”。
+拜登上周说，如果中共对台湾发动攻击，美国将致力于保卫这个自治的民主岛屿，这显然与华盛顿长期以来在这个问题上保持模棱两可的立场的政策相矛盾。
 
-“这项协议的关键之一是，它表明澳大利亚这样做是为了我们在太平洋地区的朋友和家人的利益，而且与太平洋地区的一些其他运营商不同，我们这样做没有任何附加条件。”
+中共与四个东盟成员国——文莱、马来西亚、菲律宾和越南——以及台湾在南中国海的领土主张存在冲突。南中国海是全球逾三分之一贸易必经的战略水道。中共还声称对尖阁列岛（Senkakus，中共称其为钓鱼岛）拥有主权。外交事务专家说，岸田文雄对中共不顾日本的抗议，频繁派遣海警船到尖阁列岛附近表示担忧。日本和美国的政治领导人已经确认《日美联合公报》第5条，这意味着，如果日本在那里发生冲突，美国将保护日本。
 
-其太平洋业务的合作伙伴之一是华为，这家中共国公司在2018年被禁止参与澳大利亚的5G网络基础设施的建设。
+东亚峰会包括东盟，包括文莱、柬埔寨、印度尼西亚、老挝、马来西亚、缅甸、菲律宾、新加坡、泰国和越南，以及澳大利亚、中共国、印度、日本、新西兰、俄罗斯、韩国和美国。
 
-（该公司首席执行官）彭先生周一承认了这种合作关系，但他表示，他预计太平洋市场不会出现任何监管问题，公司目前将专注于4G。
+此次，缅甸军事领导人被排除在东亚峰会之外。
 
-简评：澳大利亚作为国际灭共力量中重要的一环，此次直接出手收购太平洋地区最大的电信公司，是为了遏制中资进入太平洋电讯领域的企图。众所周知，中共国通过其控制的中国移动，中国电信，华为等公司，大肆在全世界渗透，加大其在电信领域的影响力。近几年，中共更是一直致力于扩大在太平洋地区的影响力，其方式包括向太平洋小国提供贷款和外援，以及购买港口等具有战略意义的重要资产。此次出手收购太平洋地区最大电信公司，是澳洲加强介入太平洋地区计划的一部分，也有助于支持该地区的稳定和抗压力。
+参考链接：
 
-新闻链接：
-
-[Australia’s big move against China: Scott Morrison buys up a foreign telco for $1.8B to stop it being gobbled up by Beijing](https://www.dailymail.co.uk/news/article-10127191/Australias-big-against-China-Telstra-buys-Digicel-Pacific.html)
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[https://english.kyodonews.net/news/2021/10/4625ce59976c-us-china-square-off-over-maritime-security-amid-tensions.html](https://english.kyodonews.net/news/2021/10/4625ce59976c-us-china-square-off-over-maritime-security-amid-tensions.html)
 
  
 
