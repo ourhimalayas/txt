@@ -2,64 +2,53 @@
 ---
 
 
-## 2021/10/26墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1619808/)
+## 佛罗里达州州长欢迎未接种疫苗的执法人员加入本州
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1620103/)
 
-001
+作者：纽约香草山 – AlexZ
 
-10月23日，北京，位于北六环附近的昌平区宏福苑小区，已经成为北京最新的“疫情中心”。小区居民做核酸检测。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-002
+鉴于美国一些州已经强制要求警察接种疫苗，佛罗里达州州长罗恩·德桑蒂斯在日前的采访中表示，欢迎未接种疫苗的警察加入本州，并承诺向每位州外执法人员提供 5 千美元的奖励。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-129.jpg)
+德桑蒂斯曾明确表示反对拜登总统对雇主和雇员的疫苗强制政策，并在美国第11巡回上诉法院提出诉讼，表示将通过联邦法院和立法推翻这项政策。上周，德桑蒂斯还呼吁召开特别立法会议，保护佛罗里达人免受联邦疫苗强制令的影响。
 
-小区全民核酸检测，如此检测环境？防控不是目的，营造疫情氛围恐吓百姓才是其计划。
+（本文仅代表作者观点）
 
-003
+参考链接：
+[Let it be clear, in Florida your right to earn a living is not contingent on whatever choice you make concerning the vaccine.](https://twitter.com/govrondesantis/status/1451669696495816706?s=21)
 
-10月24月，浙江宁波慈溪市杭州湾新区，疑因开发商与建筑公司因资金问题，开发商欲赶走建筑公司人员，双方人员发生冲突。其中一伙穿着什么制服？
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-004
+总编: 雪梨
 
-10月22日，上海，饭店写着免费加饭，环卫工吃7碗惹怒老板，网友：格局小了。
+编辑：飞虹
 
-005
+校对/发稿：Fei797
 
-10月23、24日接连两天，在四川广元市西二环同一位置，先后有两辆小轿车冲下高架桥，造成2死一伤。
+**更多资讯，更多关注**
 
-006
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-10月21日 四川成都，一大巴冲下大桥。官方：大巴空载 无人员伤亡。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-007
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-10月23日，广西一路面突然塌陷，私家车瞬间被吞噬。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-008
-
-渤海银行储户28亿存款突然“不见了”！被私自拿去做质押担保。
-
-009
-
-10月22日，四川南充。老人在医院窗口放声痛哭 生活沉重如磐石。
-
-010
-
-大数据智能分析如此厉害。大数据时代，无处躲藏，监控下的一幕。
-
-011
-
-10月23日，央视曝光大量人脸照片几毛钱价格被售，伪造人脸识别成本不到1元。从个人信息泄露到脸被盗刷，很多受害人一无所知。
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
+
+
+
+ 
+
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+
+- [ROL Foundation](https://rolfoundation.org/)
+- [ROL Society](https://rolsociety.org/)
+- [Terms of use](https://gnews.org/terms-of-use-3/)
+- [Privacy Policy](https://gnews.org/privacy-policy/)

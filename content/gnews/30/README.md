@@ -2,49 +2,45 @@
 ---
 
 
-## 保护儿童健康组织主席警告，若批准儿童疫苗，FDA将被诉讼
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1620272/)
+## TGA批准18岁以上的澳洲居民注射新冠疫苗加强针
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1620339/)
 
-作者：纽约香草山农场 – 新世界的一员
+#### 翻译：月映万川
 
+#### 编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-21.jpg)**图片来源：Michigan Health**
+**10月27日，澳大利亚治疗用品管理局（TGA）已批准使用辉瑞疫苗作为任何澳洲居民新冠疫苗的加强针**，时间是在他们注射第二针疫苗的6个月以后。在接种加强针的时候，无须考虑接种者前两针疫苗的品牌。
 
+但是，TGA也指出，目前针对于前两针为其它品牌疫苗与辉瑞疫苗（混打）的数据是有限的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+在TGA批准以后，联邦政府还在等待听取澳大利亚免疫技术咨询委员会（ATAGI）的建议，关于究竟谁可以接种加强针和接种的时间等问题。
 
+联邦卫生部长亨特说：“**根据****ATAGI****的建议，我们想要在****11****月****8****日前开始对全民加强针的接种**。”
 
+据信，目前，联邦在疫苗储备与分发上没有任何问题，在执行层面上，卫生部会和各州政府、全科医生和药店进行全面合作。
 
-2021 年 10 月 25 日，保护儿童健康组织主席小罗伯特·肯尼迪和医学博士梅丽尔·纳斯表示， 已致函FDA的每位成员，称如果FDA强制儿童接种新冠疫苗，保护儿童健康组织将对FDA采取法律行动。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-9.jpg)
-辉瑞的研究数据显示，辉瑞疫苗导致的儿童死亡率，是新冠病毒的107 倍。接种新冠疫苗，将引起大龄儿童心脏损伤、癌症，甚至死亡。 据悉，疫苗与相关生物制品咨询委员会将于 10 月 26 日召开会议，决定是否批准辉瑞公司研发的针对 5 至 11 岁儿童的实验性疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-14.jpg)
-参考链接：
-[小RFK警告FDA，如果他们批准为儿童注射疫苗，他将提起诉讼，称COVID对儿童没有风险](https://gettr.com/post/pf6a9a4c4b)
+同时，亨特先生指出，联邦政府不会给不接种第三剂加强针的居民设定任何限制和规则，包括，海外旅行的许可等。
 
-（本文仅代表作者观点）
+ATAGI在今天举行会议来具体讨论有关事项。总理莫里森认为相关决定很快做出。他说：“最新开始接种加强针的应该是老人院的工作人员，正如我们刚开始推行疫苗接种政策时。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+亨特部长表示，**一旦ATAGI获批，那么澳大利亚就会成为世界上首批对“所有人口”进行加强针计划的国家之一**。
 
-总编/编辑：Ivy001
-编辑：雪梨
-校对/发稿：为真不破20
+TGA局长斯凯里特教授特别指出，因为目前没有证据显示mrna（信使核糖核酸）疫苗对孕妇有任何不良反应，所以，**孕妇也会包括在这一计划里**。
 
-**更多资讯，更多关注**
+他还证实，**TGA已收到辉瑞公司批准其疫苗用于5至11岁儿童的部分申请**。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+（文中观点仅代表作者个人观点，与Gnews平台无关）
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+新闻链接：[TGA approves Pfizer COVID-19 vaccine booster shots for people aged 18 and over – ABC News](https://www.abc.net.au/news/2021-10-27/tga-approves-covid-vaccine-booster-shots-for-over-18-year-olds/100571442)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+发布：文泓
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

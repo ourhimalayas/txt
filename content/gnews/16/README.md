@@ -2,49 +2,24 @@
 ---
 
 
-## CDC主任：加强针可能改变“完全接种”的定义
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1620388/)
+## 秘翻在线：世界卫生组织为推广疫苗又出新规
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1620546/)
 
-作者：纽约香草山文艺部 – 宁文静
+撰稿：待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/画像1-23.png)（图片源自本文链接）
+日本雅虎网站10月27日消息：世界卫生组织（WHO）的咨询机构建议，所谓的 “疫苗护照”，即针对中共病毒感染的疫苗接种证书，不应作为国际旅行的唯一条件。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+世卫组织的中共病毒紧急委员会，在26日（当地时间）的决定中，提到了中共病毒疫苗的有限获取和不平等分配等理由。
 
+紧急委员会还敦促各国承认世界卫生组织提供的紧急使用清单上的所有中共病毒疫苗。到目前为止，世卫组织已经批准了辉瑞、莫德纳、阿斯利康、杨森、国药集团和华卫的中共病毒疫苗的紧急使用。紧急委员会还呼吁提高生产能力和分享疫苗，以实现世卫组织 “在年底前每个国家至少有40%的人口接种疫苗 “的目标。
 
+应急委员会现在已经确定，现在，中共病毒大流行仍然处于 “国际公共卫生紧急情况（PHEIC）”之中，是世卫组织的最高警戒级别，这些建议是本月22日召开的紧急委员会会议的结果。紧急委员会通常每三个月召开一次会议，以评估中共病毒的扩散状况。
 
-美国CDC主任Rochelle Walensky周五表示，“完全接种”的定义可能会发生变化。她说，“这取决于加强针的推进情况。请继续申请注射加强针。我们将保持关注。”
+[信息源](https://news.yahoo.co.jp/articles/efaf1783d7f55740bf6df34dad7cbeb2678aeb93)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/6-12.png)
+世卫组织的这一督促状，将使各个国家的更多人去打疫苗。这会带给人类什么样的后果？
 
-这与她9月下旬 “联邦卫生官员暂时不考虑更改‘完全接种’定义的表态，有了一个急转弯。据悉，这种变化可能源于以色列修改加强针作为疫苗护照的标准。
-
-根据CDC官方数据显示，目前有1.9亿的美国人已完全接种，占总人口的66.3%，其中1250万已经接受了加强针。如果修改了定义，将导致部分此前符合“完全接种”的人失去资格。再加上只打了一针和坚决拒绝接种的人群，有可能意味着三分之二的美国人因为不符合资格而失去外出就餐、乘火车飞机、国际旅游的机会。
-
-加强针会怎样加剧疫苗灾难，难以想象。对宗教、人权的侵蚀，与日俱进。爆料革命向世界揭露黑暗、传递真相，肩负着沉重的历史使命。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-1. [https://covid.cdc.gov/covid-data-tracker/#vaccinations\_vacc-total-admin-rate-total](https://covid.cdc.gov/covid-data-tracker/#vaccinations_vacc-total-admin-rate-total)
-2. [https://rumble.com/vo3sjr-cdc-director-we-have-to-change-the-definition-of-fully-vaccinated-because-o.html](https://rumble.com/vo3sjr-cdc-director-we-have-to-change-the-definition-of-fully-vaccinated-because-o.html)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-3.jpeg)
-
-***编辑/校对：******Ivy001***
-***发稿***：***海阔天空1***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+（文章仅代表作者个人观点）
 
  
 
