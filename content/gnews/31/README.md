@@ -2,23 +2,72 @@
 ---
 
 
-## 因房地产危机中共国经济即将崩塌
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1621613/)
+## 川普与SPAC的交易存在三大风险
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1621653/)
 
-原文采编：青青   编译撰稿：文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2675.png)
+[https://gtv.org/video/id=6179367d247c5a3f9090a95e](https://gtv.org/video/id=6179367d247c5a3f9090a95e)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/aa-edited.jpg)图片来源：NYT
+**郭文贵
+Miles Guo**
 
+我要说到这个，让你们看到这个有多可怕
+I want to talk about this, let you see how terrible this is
 
-据《纽约时报》10月25日报道，中共当局长期制造的巨大房地产经济泡沫，必将会导致一场摧毁中共国经济以及影响全球贸易的广泛金融危机。
+川普总统这个SPAC的交易，它的风险在哪里
+What is the risk of President Trump’s transaction with SPAC?
 
-该报道指出，造成中共国经济崩溃的主要因素包括：人口数量优势的消失以及高储蓄率导致的过度投资等。其中，占中共国经济比重极大的房地产行业，由于其投资现已远超美国在2000年房地产危机顶峰时期的水平，因此，房地产商的巨额债务问题将引发中共国严重的经济灾难。
+三件事儿
+Three things
+
+第一个，这里绝对不能有内幕交易，只要有内幕交易就是刑事罪
+First, there is absolutely no insider trade here, as long as there is insider trade, that will be a criminal charge
+
+不用任何怀疑的，大家可以看到，从1000手，1万手，4万手到600万手到交接
+Without any doubt, you can see that from 1,000 hands, 10,000 hands, 40,000 hands to 6 million hands to the handover
+
+几乎都在11家基金中间转来转去，就是我买来买去在这一天
+Almost all of them are going around among the 11 funds, that is they quick buy and sell on that day
+
+这叫内部交易，操纵市场，可以说它100%会受到SEC调查
+This is called insider trade, market manipulation, it will be 100% investigated by the SEC
+
+SEC不查是不可能的，当你这不正常的波动和股票
+It is impossible for the SEC not to investigate, when you have abnormal fluctuations and stocks
+
+而且十几家基金进进出出操作的时候，第一我怀疑你有内线交易
+And when more than a dozen funds are in and out of operations, first I suspect you have insider trade
+
+第二，我就怀疑你操纵市场，
+Second, I suspect that you manipulate the market
+
+这个现在大家可以看，这是不用(怀疑的) 100%
+Everybody can see it, there is no doubt about that
+
+如果要是内部交易，如果要是操纵市场，
+If it’s insider trading and market manipulation
+
+川普总统就成了被刑事调查，终生将无法再参与政治选举
+that president Trump will be under criminal investigation and will not be able to participate in political elections for life
 
 * * *
 
-校对编辑，发稿：硫酸羟氯喹64
+Date:10/26/2021
+原视频标题: 川普与SPAC的交易存在三大风险
+There are three major risks in Trump’s transaction with SPAC
+原视频日期：2021/10/24
+原视频链接:[https://twitter.com/se1y7cblljselva/status/1452954064761671684?s=24](https://twitter.com/se1y7cblljselva/status/1452954064761671684?s=24)
+任务编号：KC198( 2675)
+视频时间段 : 0:00-1:16
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[原文链接：](https://cn.nytimes.com/opinion/20211025/china-bubble-economy/?utm_source=top10-in-article&amp;utm_medium=articlepage&amp;utm_campaign=web)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
