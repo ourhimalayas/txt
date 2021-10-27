@@ -2,27 +2,27 @@
 ---
 
 
-## 有声|蓬佩奥指出世界面临撕裂的三大原因都源自CCP
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1621827/)
+## 文贵爆料10/27 DWAC股价炒作将断掉很多MAGA支持者生活来源
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1621842/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-近日，美国前国务卿蓬佩奥出席World Knowledge Forum时指出世界面临撕裂的三大原因都源自中国共产党。一是由于中共撒谎以及联合国对中共卑躬屈膝而造成全世界大流行的中共病毒；二是中共的一带一路项目，其本质就是新型帝国主义；三是中共开始着手取代美国的领导地位，比如在疫情期间中共没有放下报复美国的野心反而让其野心更加膨胀，它们撕毁了本该遵守至2047年的中英联合声明。
+【撰稿】Naughty(文行) 【秘翻原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-27-at-1.14.15-PM.png)图片来源：GTV、GETTR
+**DWAC股价炒作将断掉很多MAGA支持者生活来源**
 
-蓬佩奥国务卿说，看到香港沦陷以及中共对其之前庄严承诺过的义务表现出的轻蔑态度，每个人都该问自己，中共国所签的哪一个正式文件会得到中共的执行？同时，蓬佩奥国务卿明确指出，中共就是个强盗政权，中共国被一群强盗所领导着。
+郭文贵先生在2021年10月27日新中国联邦大直播中谈到了川普总统的数字世界的股价出现一个很重要的现象。昨天股票已经没有交易量了，就是炒的劲儿没了，股价曾尝试超过94（美元）一直上不去，然后就跌下来了。最后跌到了59，甚至过夜的OFFER价跌倒了55，发生这种现象是很可怕的。
 
-文字版原文：[蓬佩奥指出世界面临撕裂的三大原因都源自CCP](https://gnews.org/zh-hans/1617967/)
+一般情况下炒股票，一定会早上炒下午跌，这事基本的常识，不可能一大早上就跌，这是一个常识。一只股票有庄家，还有基金，还有后面的庄家，DWAC这只股票的背后庄家就是共产党。他们操作股票时候一定不会一直涨，那是不可能的。到174美元的时候，就几秒钟就跌下来到一百二，然后到九十，他股价不可能持续几个小时，那样会让做家赔掉很多钱。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭先生表示，DWAC大部分的赔家都是来自MAGA支持者，都是穷人。而且这些MAGA输钱的人会输得很惨，因为这只股票炒的太夸张了，从9块钱超到174的时候，将近是十七、八倍，当股票跌下来的时候，这些人赔的会很夸张。
+
+美国历史上曾发生过类似的事件。在富国银行审判案中，有的人就是有些残疾人和吃美国救济的人，就为了等十五美金每个月的救济，但是这十五美金被富国银行给骗走以后，他饿死在家里边。还有的人是在家里面像救济、吃救济的盲人，由于没有二十美金饿死家里面。结果非常可悲。
+
+MAGA的支持者川普的支持者都是美国很穷很穷的人，就和中国的杨改兰是一样的。他们的投资被骗走了以后，就没有任何生生活来源了，结局会很可悲。一位美国朋友给郭先生发信息说，所有的川普和MAGA的跟随者，很多人会毁在DWCA这条永远不可回头的路上。
+
+来源链接：https://gettr.com/streaming/pfb0u0b75a
+
+校对发布：Shifter
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

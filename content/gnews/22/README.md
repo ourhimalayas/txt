@@ -2,126 +2,60 @@
 ---
 
 
-## 喜联将是全球通用的未来金融系统
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1621747/)
+## 中共的镇压迫使国际特赦组织关闭香港办事处
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1621770/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2659.png)
-[https://gtv.org/video/id=617937c8247c5a3f9090a9bc](https://gtv.org/video/id=617937c8247c5a3f9090a9bc)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/acastro_211024_4823_0001.0-1.jpg)网络图片：布赖特巴特
+摘要翻译:
 
-郭文贵
-Miles Guo
+来自《布赖特巴特新闻网》2021年10月25日的报道，国际特赦组织(Amnesty International)周一宣布，将在年底前关闭其在香港的办事处。该组织表示，中共为了镇压2019年的民主运动而强加给香港的压迫性“国家安全”法，使得他们遗憾地不得不关闭香港办事处。
 
-你说到这儿
-When you talk about this
+国际特赦组织主席安朱拉·米亚·拜斯(Anjhula Mya Singh Bais)周一表示：做出这一沉重决定，是被香港的国家安全法推动的，该安全法使得香港的人权组织完全无法在不担心政府严重报复的情况下自由工作……
 
-我觉得特别有意思
-I found something very interesting
+香港长期以来一直是国际公民社会组织理想的区域性基地，但最近针对当地人权和工会团体的攻击显而易见，当局正在加大力度消除香港所有反对声音。我们越来越难以在如此不稳定的环境中继续运营。
 
-昨天下午的时候
-Yesterday afternoon
+国际特赦组织秘书长阿涅丝·卡拉马尔 (Angles Callamard)承诺，在“未来的艰难日子”里，她的组织将“继续与香港人民站在一起”。国际特赦组织表示将把其香港业务转移到其他亚太地区办事处。
 
-我跟一个日本的
-I was talking on the phone to a Japanese
+中共政府于2020年6月绕过香港立法机关，违反了其在1997年从英国手中接管该岛时给予的自治保证，非法实施香港国家安全法。
 
-我一个朋友的孩子通电话
-one of my friend’s child
+正如国际特赦组织所指出的，国家安全法有效地将所有对中国共产党(CCP)及其在香港的傀儡政府的异议、抗议和批评定为刑事犯罪。它允许政府将几乎任何言论或活动视为“国家安全威胁”，并在受害者没有太多法律追索权的情况下利用安全部队进行镇压。上周，香港海关总署宣布澳大利亚岩龙虾是“国家安全威胁”。
 
-他说
-He said: “Uncle Miles,
+国家安全法除了有效消灭民主运动，还查封持不同政见的报纸、强制解散工会并镇压公民社会团体。
 
-你给我讲讲这个
-please tell me about
+周一，香港一家法院仅仅因为马俊文(Ma Chun-man)在集会上喊出一些挑衅性的口号来测试言论自由的限度，就将他定罪。马在11月11日的判决将完全明确这些限制是什么。
 
-喜马拉雅币和法币
-Himalayan currency and Fiat currency
+“政府正试图使用​​ NSL（国家安全法）来杜绝某些形式的言论。这是政府在过去15个月里使用国家安全法的核心作用。” 乔治敦大学(Georgetown University)亚洲法律中心的托马斯·E·凯洛格(Thomas E. Kellogg)观察到。“正如马俊文的案子所示，检察官继续以重罪起诉那些说了政府不喜欢听的话的人。”
 
-还有一个货币
-and currency
+令国际特赦组织等团体特别关注的是，国家安全法将“与外国势力勾结”定为刑事犯罪，已经证实，其中包括支持对共产党侵犯人权实施国际制裁的言论。几乎人权组织所说的一切都可能被视为“勾结”并因香港官员的一时兴起而受到惩罚。
 
-这个之间的不同
-What are the differences between them?”
+英国广播公司周一指出，其他几个非政府人权组织 ，例如华人民主学院(New School for Democracy)，出于对国家安全法的担忧，此前已关闭其在香港的业务或搬迁到更安全的场所。
 
-他是哈佛
-He is Harvard’s
+国际特赦组织副秘书长凯尔·沃德 (Kyle Ward)特别指出，香港金融服务部长上个月的一项决定将剥夺被视为“对国家安全构成威胁”的慈善机构的免税地位。他补充说，一些国际特赦组织的香港人员担心被依据国家安全法而被捕。
 
-最年轻的金融博士
-the youngest Ph.D. in finance
+亲北京的香港立法会议员周浩鼎反驳说，国际特赦组织“没必要地关闭了这里的分支机构”，这是在肆无忌惮地“抹黑”国家安全法。
 
-日本东京大学
-and the University of Tokyo in Japan
+简评：
 
-就是最年轻的
-He was the youngest
+国际特赦组织(Amnesty International)又称大赦国际，是一个总部位于伦敦的国际非政府组织，致力于推动全球人权事业的发展，在世界范围内拥有大约700万成员与支持者。该组织的工作方针是对人权状况进行调研，采取相应行动，寻求终结各种侵犯人权的行为，并且为那些遭受迫害的人们伸张正义。
 
-当时所谓的出来的博士
-who claimed Ph.D. in that time
+香港国家安全法自2020年6月份颁布实施以来，已经成为中国共产党在香港实施其极权统治的工具，香港在共产党的统治下也彻底失去了法治和民主。国际特赦组织计划年底前关闭其香港办事处，不仅是出于对其员工的保护，也说明国际人权组织对中共治下的香港已经彻底失去信心。这些事件的发生，说明共产党的流氓本质正在进一步被国际社会认清，这对我们爆料革命推动的灭共事业是重大利好，因为只有国际社会充分认识到了共产党的邪恶本质，才会最终形成一致灭共的国际环境，为全球联合灭共铺平道路。
 
-超牛这孩子，他爸跟我很好
-This child is super brilliant, and his father has a good relationship with me
+新闻链接:
 
-我讲了讲法币、货币
-I described Fiat currency and currency
-
-他跟我讲了一句话
-He simply told me
-
-他说
-He said
-
-我没想到郭叔你这么厉害这么懂
-I didn’t expect Uncle Miles you know that so well
-
-把我笑喷了
-He made me laugh
-
-我说这个喜马拉雅系统
-I said this Himalayan system
-
-是我设计的呀
-was designed by me
-
-他就没想到他郭叔有这么牛
-He had never expected that his Uncle Miles was so awesome
-
-他说
-He said
-
-郭叔
-Uncle Miles
-
-这个事情如果跟你说那样
-if this business as you mentioned
-
-和我了解的一样的话
-were the same as I learned
-
-这个是世界上真正的、人民的
-This would be the truly
-
-为全球通用货币的未来
-universal currency for people to use globally
-
-金融系统
-the future financial system
+[Chinese Repression Forces Amnesty International to Close Hong Kong Office](https://www.breitbart.com/asia/2021/10/25/chinese-repression-forces-amnesty-international-to-close-hong-kong-office/)
 
 * * *
 
-Date: 10/25/2021
-原视频标题: 喜联将是全球通用的未来金融系统
-Himalayan Exchange will be the future universal financial system
-原视频日期：2021/10/22
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1452235873328656384?s=24](https://twitter.com/se1y7cblljselva/status/1452235873328656384?s=24)
-任务编号：KC200(2659)
-视频时间段 : 0:00-1:07
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
