@@ -17,6 +17,16 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@ddnyc 10/27/2021 12:02 AM (UTC)`
+
+@gfashion x Sportswear x Whistle<br/>Shop the collection www.GFASHION.com
+> `@gfashion 10/26/2021 2:01 PM (UTC)`<br/>Accessorize your sets. <br/>https://bit.ly/3piOYZU
+![img](https://media.gettr.com/group45/origin/2021/10/26/14/0979c2c6-647b-3185-3f57-4ad510ece0d7/c4be5dd9e165136390ea8b5bb606f71a.png)
+
+---
+
 `@miles 10/27/2021 12:02 AM (UTC)`
 
 10/26/2021 Miles Guo’s GETTR: The DWAC’s share price plunged. Claims can be made for the losses in the DWAC stock caused by the fraudulent information provided by Bruno Wu and the insider trading conducted by the 11 funds. We support President Trump and hope he will win， but this scam arranged by the CCP can destroy President Trump.<br/><br/>10/26/2021 文贵盖特：DWAC的股价暴跌，因吴征提供虚假信息和11家基金所进行的内幕交易而导致DWAC的股价下跌可要求索赔；我们支持川普总统并希望他赢, 但中共设计的这一骗局能毁掉川普总统！<br/>
@@ -286,13 +296,6 @@ Statement about Artemisinins, SARS-CoV2 and related topics<br/><br/>关于青蒿
 
 太平洋联盟亚洲机会基金和郭文贵先生已经在纽约州法院就8800万美元的诉讼进行了四年，Christopher Gradel创立了太平洋联盟集团有限公司，他是ARC Capital Holding Ltd的非执行董事，ARC Group Limited担任Giga Energy的财务顾问，并宣布与运鸿集团执行最终股份交易，吴征在幕后牵线，他的公司阳光七星集团和他的弟弟Bing Wu 还有Samuel Nunberg(川普的政治顾问,之前告郭文贵先生诽谤)都是Giga Energy公司的股东。在SEC文件上吴征，杨澜是这笔交易的代表。运鸿的首席执行官同时也是Digital World Acquisition的首席执行官(Patrick Orlando)，该公司目前正在与Trump Media合并
 ![img](https://media.gettr.com/group31/getter/2021/10/22/20/55/11c11404-faf1-6bd4-8aa3-b3c74d52538c/2ab73ea961f0ccf0730eef26a6a7ce67.jpg)
-
----
-
-`@miles 10/22/2021 8:45 PM (UTC)`
-
-The Pacific Alliance Asia Opportunities Fund and Mr. Guo Wengui have been fighting in New York state court for four years over $88 million.Christopher Gradel founded Pacific Alliance Group Ltd, and he is a Non-Executive Director of ARC Capital Holding, ARC Group Ltd is acting as the financial advisor to Giga Energy, and Yunhong International and Giga Energy Inc, announced Execution of Definitive share exchange, Bruno Wu company’s Sun Seven stars group, his brother Bing Wu, and Samuel Nunberg (political advisor of Trump and sued Guo Wengui for defamation) are shareholders of Giga Energy. On SEC report Bruno Wu is the representative of this deal. The CEO of Yunhong who is also the CEO of Digital World (Patrick Orlando), which is now merging with Trump Media.
-![img](https://media.gettr.com/group18/getter/2021/10/22/20/1d595219-4927-c02a-b5d9-7773f3bf61e3/746ad7aa8d1fba20c23ccbdb69b7450e.jpg)
 
 ---
 
