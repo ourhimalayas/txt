@@ -2,31 +2,28 @@
 ---
 
 
-## 香港颁布新法 收紧电影审查
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1621088/)
+## 有声|中共企图以“一国一票”操纵联合国
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1621237/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/58968593_301.jpg)香港颁布新法 收紧电影审查 网络图片
-据德国之音中文网10月27日报道，10月27日，香港立法会通过一项新法，要求从“保护国家安全”角度对影片进行审查，以防范影片中出现”鼓动、美化或支持危害国家安全的内容”。该法授权香港政务司司长在认为某影片有悖国家安全利益时，可撤销该影片的播放许可。而违反该法的行为人，将被处于最高三年监禁或一百万港币的罚金。
+配音：香草山美食部 – 玫瑰园
 
-批评者认为，该法进一步收紧了香港的自由空间，并将打击香港影视行业的创作活力。香港浸会大学电影学院的吴国坤教授则表示，将国家安全条款引入电影审查条例，无疑是一种政治审查。
+中共党魁习近平当地时间25日发表言论称，国际规则只能由联合国193个会员国共同制订，不能由个别国家和国家集团来决定。习近平还向联合国提出“共同”国际关系观，用中共所谓的“构建人类命运共同体”，来替代普世价值。
 
-新闻参考链接： [https://www.dw.com/zh/香港颁布新法-收紧电影审查/a-59638802?maca=chi-rss-chi-all-1127-rdf](https://www.dw.com/zh/香港颁布新法-收紧电影审查/a-59638802?maca=chi-rss-chi-all-1127-rdf)
+相关人士分析称，中共收买穷国领导人，使其在联合国投票中支持中共。而中共多次指控民主国家的人权问题，但其自身的人权恶行却逃脱了制裁。另一方面，中共也担心，如果美国未能在联合国获得足够支持，将会采取单边外交行动。
 
-* * *
+文字版原文：[中共企图以“一国一票”操纵联合国](https://gnews.org/zh-hans/1619220/)
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+音频处理：喜山必胜Maverick
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

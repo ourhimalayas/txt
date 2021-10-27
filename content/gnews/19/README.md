@@ -2,31 +2,27 @@
 ---
 
 
-## 布林肯：鼓励所有联合国成员与美国一起支持台湾参与联合国系统
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1620981/)
+## 昂山素季否认煽动叛乱指控
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1621069/)
 
-编辑摘要：
+新闻来源：德国法兰克福报网络版
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/acastro_211024_4823_0001.0-2.jpg)资料照片：美国国务卿布林肯在纽约举行的第76届联合国大会场边举行记者会。(2021年9月23日)
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-据美国之音10月27日报道，美国国务卿布林肯26日在国务院正式发布声明说，美国认为台湾施行透明、对尊重人权及法治尊重的模式，都与联合国价值观一致，台湾已经成为一个民主成功故事。美国支持台湾参与联合国系统，很多联合国成员都视台湾为一个宝贵伙伴及可信赖朋友。美国鼓励所有联合国成员和美国一起，支持台湾参与联合国系统及国际社会，共同解决全球所面临的问题。
-
-北京称已经就美国务卿的讲话向美方提出“严正交涉”。
-
-新闻参考链接：[布林肯：鼓励所有联合国成员与美国一起支持台湾参与联合国系统](https://www.voachinese.com/a/blinken-urged-all-un-memger-states-to-support-taiwans-meaningful-participation-in-the-un-system-20211026/6286756.html)
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/aung-san-suu-kyi-im-dezember.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+图片来源： FAZ
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+自缅甸军事政变以来，被罢免的国务委员兼诺贝尔和平奖获得者昂山素季首次出庭作证。她的律师说， 昂山素季很好地捍卫了自己的清白。她的律师拒绝透露姓名， 因为据政府此前昂山素季的法律团队发言。
+
+昂山素季还被指控犯有其他各种罪行，包括腐败。如果罪名成立，她将面临多年监禁。自政变以来，国务委员一直被关押在一个秘密地点。昂山素季和其他的政府成员已经掌握在军政府手中。 昂山素季呼吁国际社会不要承认军政府是合法政府。随后，她宣布军政府制定的所有规则和法律都是非法的。
+
+原文链接：[https://www.faz.net/aktuell/politik/ausland/myanmar-aung-san-suu-kyi-sagt-erstmals-nach-putsch-vor-gericht-aus-17604834.html](https://www.faz.net/aktuell/politik/ausland/myanmar-aung-san-suu-kyi-sagt-erstmals-nach-putsch-vor-gericht-aus-17604834.html)
+
+免责声明：本文内容仅代表个人观点，与Gnews平台无关。
+
+责任编辑、发布： Shuizhuyu
 
  
 
