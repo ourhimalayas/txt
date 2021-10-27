@@ -2,27 +2,23 @@
 ---
 
 
-## 日本或将推进5至11岁的儿童接种新冠疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1621580/)
+## 因房地产危机中共国经济即将崩塌
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1621613/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-15.png)
-[图片来源](https://news.yahoo.co.jp/articles/51b92a618aebfef41007d05c58d18496246b1238/images/000)
+原文采编：青青   编译撰稿：文所未闻
 
-共同网10月27日报道，美国辉瑞公司正在与日本政府协商，推进5至11岁的儿童接种新冠疫苗。厚生劳动省表示，如果收到申请，将迅速进行审核。美国已经先行一步提出申请，这也将影响日本的审查结果。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/aa-edited.jpg)图片来源：NYT
 
-目前关于辉瑞疫苗的情况，厚生劳动省表示，根据“预防接种法”，12岁以上的人都是”临时接种”对象，大众（除孕妇）有努力的义务去免费接种疫苗。然而，该疫苗对11岁以下的人，是否安全有效，目前尚不清楚，所以这些人不在接种对象范围内。
 
-信息来源：
+据《纽约时报》10月25日报道，中共当局长期制造的巨大房地产经济泡沫，必将会导致一场摧毁中共国经济以及影响全球贸易的广泛金融危机。
 
-[5～11歳接種、日本に申請へ　ファイザーが政府と協議](https://news.yahoo.co.jp/articles/51b92a618aebfef41007d05c58d18496246b1238)
+该报道指出，造成中共国经济崩溃的主要因素包括：人口数量优势的消失以及高储蓄率导致的过度投资等。其中，占中共国经济比重极大的房地产行业，由于其投资现已远超美国在2000年房地产危机顶峰时期的水平，因此，房地产商的巨额债务问题将引发中共国严重的经济灾难。
 
-免责声明：文章仅代表作者本人观点，与GNEWS无关
+* * *
 
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)
+校对编辑，发稿：硫酸羟氯喹64
 
+[原文链接：](https://cn.nytimes.com/opinion/20211025/china-bubble-economy/?utm_source=top10-in-article&amp;utm_medium=articlepage&amp;utm_campaign=web)
 
  
 

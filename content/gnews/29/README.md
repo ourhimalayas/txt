@@ -2,34 +2,27 @@
 ---
 
 
-## 澳大利亚漫画家因反疫苗被审查
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1621535/)
+## 加拿大阿尔伯塔省政府因疫苗问题遭受诉讼
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1621578/)
 
-**撰稿：日本东京方舟农场 子辰**
+采编：青青    编译撰稿：文莱
 
-澳大利亚漫画家迈克尔·勒尼格 (Michael Leunig) 因为创作了一部抵制强制性 Covid 疫苗与天安门广场争取民主进行比较的漫画而遭到审查。
-
-该漫画将澳大利亚的疫苗任务与天安门广场大屠杀进行了比较。其中描绘了一个典型的大鼻子人物，面对一辆坦克的轮廓，用注射器代替炮塔。漫画简洁明了，又寓意深刻。强烈的对比效果表达了人民面对强权的无助，同时又极具讽刺意味。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Australian-Political-Artist.jpg)图片来源：https://www.thegatewaypundit.com/2021/10/aussie-cartoonist-fired-comparing-australias-covid-19-mandates-tiananmen-square-massacre/
-
-漫画发出后，他在《时代报》(The Age) 上的主要位置被遭砍杀和审查，同时在墨尔本出版物一版本中提供社论页面卡通的工作被遭解雇。
-
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/ys-edited.jpg)图片来源：TRUENORTH
 
 
+据加拿大【CTV新闻】10月25日报道，目前，四名阿尔伯塔省的医生正在起诉该省公共卫生服务部及其首席执行官，指控其强推的“新冠病毒疫苗”接种政策不仅违反了医疗程序，在病人未知情和同意下进行，更违背了【信息自由和隐私保护法】以及【加拿大权利和自由宪章】的宗旨。
 
-> [Aussie Cartoonist Fired After Comparing Australia’s COVID-19 Mandates to the Tiananmen Square massacre](https://www.thegatewaypundit.com/2021/10/aussie-cartoonist-fired-comparing-australias-covid-19-mandates-tiananmen-square-massacre/)
+此前，艾尔伯塔省政府曾表示，该省将于11月15日开始，通过使用“疫苗护照”来控制人员流动。为此，卫生部以及许多私营公司都制定了相应的强制性疫苗接种政策。
 
-
+据悉，随着以上政策的生效，阿尔伯塔省部分产业的失业率将会上升。并且，有关对“强制接种该疫苗”的法律诉讼也将会随之增加。预计不久，加拿大各省人权法庭将因为“疫苗授权”及“疫苗次生”问题而收到大量申诉。
 
 * * *
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+校对编辑，发稿：硫酸羟氯喹64
 
- 
+[原文链接：](https://calgary.ctvnews.ca/4-alberta-doctors-file-lawsuit-against-ahs-over-vaccine-requirement-1.5637496)
+
+
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 

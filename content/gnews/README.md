@@ -15,125 +15,125 @@
 
 ---
 
-### [新法案将允许警方监禁不帶口罩者](/content/gnews/1/README.md)
- ` MG FARM`
-
-### [文贵爆料10/27 吴征2019年遭FBI刑事调查时涉及时任总统川普！](/content/gnews/2/README.md)
- ` 秘密翻译组-原创组`
-
-### [瑞典和英国9月份七成病毒死亡是“完全接种”者](/content/gnews/3/README.md)
- ` HimalayaRussia`
-
-### [文贵爆料10/27 DWAC股价炒作将断掉很多MAGA支持者生活来源](/content/gnews/4/README.md)
- ` 秘密翻译组-原创组`
-
-### [安大略省可能会解雇 50,000 名教育工作者](/content/gnews/5/README.md)
- ` MG FARM`
-
-### [有声|蓬佩奥指出世界面临撕裂的三大原因都源自CCP](/content/gnews/6/README.md)
- ` MOSREC`
-
-### [Fauci资助了纽约市对孤儿进行艾滋病实验](/content/gnews/7/README.md)
- ` wenwu`
-
-### [文贵爆料 27/10：“冥冥之中有天意”——“七个一”确立了喜币上市时间](/content/gnews/8/README.md)
- ` 秘密翻译组-原创组`
-
-### [六中全会是最后一次摊牌](/content/gnews/9/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [东亚峰会 美中就海上安全针锋相对](/content/gnews/10/README.md)
- ` HimalayaRussia`
-
-### [现在的疫苗灾难应证了福奇在2017年的预测](/content/gnews/11/README.md)
- ` MG 澳喜农场多语组`
-
-### [中共的镇压迫使国际特赦组织关闭香港办事处](/content/gnews/12/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [澳大利亚针对中共国大行动 &#8211; 收购太平洋地区最大的电信公司](/content/gnews/13/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [喜联将是全球通用的未来金融系统](/content/gnews/14/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [西方外交官称俄可以成为“绿色”融资中心](/content/gnews/15/README.md)
- ` HimalayaRussia`
-
-### [阿拉巴马州州长签署州长令抗击联邦疫苗强制令](/content/gnews/16/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [文贵视角:SPAC 是中共给新中国联邦的大礼](/content/gnews/17/README.md)
- ` 秘密翻译组-原创组`
-
-### [有声|郭文贵先生对新中国联邦人强调“爱”的重要性](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [对立面都和江派勾兑是习必定闭关锁国的条件之一](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [美食品药物监管局支持为低龄儿童接种疫苗](/content/gnews/20/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [萨斯喀彻温省长承诺不会实施更多疫情控制措施](/content/gnews/21/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [川普与SPAC的交易存在三大风险](/content/gnews/22/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [GTV新闻访谈简报|2021年10月27日早](/content/gnews/23/README.md)
- ` 纽约香草山MOS01`
-
-### [因房地产危机中共国经济即将崩塌](/content/gnews/24/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [福奇通过疫苗获得巨额利益](/content/gnews/25/README.md)
- ` 日本东京方舟农场`
-
-### [日本或将推进5至11岁的儿童接种新冠疫苗](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [加拿大阿尔伯塔省政府因疫苗问题遭受诉讼](/content/gnews/27/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [谁在害怕喜币上市？](/content/gnews/28/README.md)
- ` 日本东京方舟农场`
-
-### [澳大利亚漫画家因反疫苗被审查](/content/gnews/29/README.md)
- ` 日本东京方舟农场`
-
-### [关于联合国第2758号决议的思考](/content/gnews/30/README.md)
- ` 波士顿五月花农场`
-
-### [渤海银行未经授权质押储户存款28亿](/content/gnews/31/README.md)
- ` GTV新闻访谈`
-
-### [美联邦通信委员会撤销中共电信在美业务授权](/content/gnews/32/README.md)
- ` 日本东京方舟农场`
-
-### [DC大中华时事：许家印卸任恒大地产董事长](/content/gnews/33/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共要求许家印以个人财富偿付恒大债务](/content/gnews/34/README.md)
- ` GTV新闻访谈`
-
-### [西媒头条 — 第96期](/content/gnews/35/README.md)
+### [麦迪逊·考特恩呼吁“恶魔医生”安东尼·福奇接受正式调查](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年10月27日郭先生直播大雨围城速记](/content/gnews/36/README.md)
+### [欧洲议会召开新闻发布会，议员发言反对疫苗护照](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [新法案将允许警方监禁不帶口罩者](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [文贵爆料10/27 吴征2019年遭FBI刑事调查时涉及时任总统川普！](/content/gnews/4/README.md)
+ ` 秘密翻译组-原创组`
+
+### [瑞典和英国9月份七成病毒死亡是“完全接种”者](/content/gnews/5/README.md)
+ ` HimalayaRussia`
+
+### [文贵爆料10/27 DWAC股价炒作将断掉很多MAGA支持者生活来源](/content/gnews/6/README.md)
+ ` 秘密翻译组-原创组`
+
+### [安大略省可能会解雇 50,000 名教育工作者](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [有声|蓬佩奥指出世界面临撕裂的三大原因都源自CCP](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [Fauci资助了纽约市对孤儿进行艾滋病实验](/content/gnews/9/README.md)
+ ` wenwu`
+
+### [文贵爆料 27/10：“冥冥之中有天意”——“七个一”确立了喜币上市时间](/content/gnews/10/README.md)
+ ` 秘密翻译组-原创组`
+
+### [六中全会是最后一次摊牌](/content/gnews/11/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [东亚峰会 美中就海上安全针锋相对](/content/gnews/12/README.md)
+ ` HimalayaRussia`
+
+### [现在的疫苗灾难应证了福奇在2017年的预测](/content/gnews/13/README.md)
+ ` MG 澳喜农场多语组`
+
+### [中共的镇压迫使国际特赦组织关闭香港办事处](/content/gnews/14/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [澳大利亚针对中共国大行动 &#8211; 收购太平洋地区最大的电信公司](/content/gnews/15/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [喜联将是全球通用的未来金融系统](/content/gnews/16/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [西方外交官称俄可以成为“绿色”融资中心](/content/gnews/17/README.md)
+ ` HimalayaRussia`
+
+### [阿拉巴马州州长签署州长令抗击联邦疫苗强制令](/content/gnews/18/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [文贵视角:SPAC 是中共给新中国联邦的大礼](/content/gnews/19/README.md)
+ ` 秘密翻译组-原创组`
+
+### [有声|郭文贵先生对新中国联邦人强调“爱”的重要性](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [对立面都和江派勾兑是习必定闭关锁国的条件之一](/content/gnews/21/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美食品药物监管局支持为低龄儿童接种疫苗](/content/gnews/22/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [萨斯喀彻温省长承诺不会实施更多疫情控制措施](/content/gnews/23/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [川普与SPAC的交易存在三大风险](/content/gnews/24/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [GTV新闻访谈简报|2021年10月27日早](/content/gnews/25/README.md)
+ ` 纽约香草山MOS01`
+
+### [因房地产危机中共国经济即将崩塌](/content/gnews/26/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [福奇通过疫苗获得巨额利益](/content/gnews/27/README.md)
+ ` 日本东京方舟农场`
+
+### [日本或将推进5至11岁的儿童接种新冠疫苗](/content/gnews/28/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [加拿大阿尔伯塔省政府因疫苗问题遭受诉讼](/content/gnews/29/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [谁在害怕喜币上市？](/content/gnews/30/README.md)
+ ` 日本东京方舟农场`
+
+### [澳大利亚漫画家因反疫苗被审查](/content/gnews/31/README.md)
+ ` 日本东京方舟农场`
+
+### [关于联合国第2758号决议的思考](/content/gnews/32/README.md)
+ ` 波士顿五月花农场`
+
+### [渤海银行未经授权质押储户存款28亿](/content/gnews/33/README.md)
+ ` GTV新闻访谈`
+
+### [美联邦通信委员会撤销中共电信在美业务授权](/content/gnews/34/README.md)
+ ` 日本东京方舟农场`
+
+### [DC大中华时事：许家印卸任恒大地产董事长](/content/gnews/35/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共要求许家印以个人财富偿付恒大债务](/content/gnews/36/README.md)
+ ` GTV新闻访谈`
+
+### [2021年10月27日郭先生直播大雨围城速记](/content/gnews/37/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [佛州州长罗恩·德桑提斯公开反对疫苗强制令](/content/gnews/37/README.md)
+### [佛州州长罗恩·德桑提斯公开反对疫苗强制令](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [澳洲三大连锁超市: 不接种就没工作](/content/gnews/38/README.md)
+### [澳洲三大连锁超市: 不接种就没工作](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纽约市政工作人员游行抗议中共病毒疫苗强制令](/content/gnews/39/README.md)
+### [纽约市政工作人员游行抗议中共病毒疫苗强制令](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [有声|中共企图以“一国一票”操纵联合国](/content/gnews/40/README.md)
- ` MOSREC`
 
 ### [非法政府共产党](/content/gnews/41/README.md)
  ` 骄子`
