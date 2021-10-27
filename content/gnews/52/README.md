@@ -2,46 +2,39 @@
 ---
 
 
-## COVID-19最新情報｜瑞典、英國新冠死亡案例 集中於「完全接種者」
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1618967/)
+## 西喜时事新闻简报 — 美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1619098/)
 
-**台灣寶島農場 疫情關注組｜發佈日期/ 26/10/2021**
+**编译：土饭团**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+您若想了解全文报导内容，请点击标题链接
 
+1.**[Biden将参加2017年后Trump跳过的东盟峰会](https://www.reuters.com/world/president-biden-attend-asean-us-summit-tuesday-2021-10-25/%29)**
 
-瑞典、英國政府分析數據，發現9月因感染新冠病毒死亡者，絕大多數是完全接種者。這一結論，與西方國家於高疫苗覆蓋率的情形，突破性感染數量激增相符合。
+路透社10月25日电，美国总统Joe Biden将于周二参加与东南亚国家联盟（东盟）的虚拟峰会，这是四年来华盛顿首次与这个被其视为反击中国战略关键的集团进行高层接触。白宫国家安全委员会东亚事务高级主管Edgard Kagan上周强调，华盛顿有兴趣与东盟合作，并解决“海洋问题上的共同挑战”—显然是指中国在有争议的南中国海的广泛主张。
 
-#### 瑞典
+**[2.台湾和美国在关键的周年纪念日之前讨论联合国的参与问题](http://%28https://www.reuters.com/world/china/taiwan-us-discuss-un-participation-ahead-key-anniversary-2021-10-24/%29)**
 
-[瑞典媒體](https://www.svd.se/forskare-ser-en-vikande-vaccineffekt-i-sverige)報導，公衛部門報告表示9月1日至24日，約[7成（130例）](https://ourworldindata.org/explorers/coronavirus-data-explorer?zoomToSelection=true&amp;time=2020-03-01..latest&amp;facet=none&amp;pickerSort=desc&amp;pickerMetric=total_cases&amp;hideControls=true&amp;Metric=Confirmed+deaths&amp;Interval=Cumulative&amp;Relative+to+Population=false&amp;Align+outbreaks=false&amp;country=~SWE)新冠確診死者是已經完全接種疫苗。報導進一步分析，死亡主要發生在老年族群，但相關人員仍認為瑞典疫苗保護力有下降趨勢。
+路透社10月24日电，在中国国家主席习近平将发表讲话纪念他的国家加入这个全球机构半个世纪之前，台湾和美国官员讨论了台湾如何能够“有意义地”参与联合国。在周六晚些时候的一份声明中，美国国务院表示，美国和台湾官员在周五进行了虚拟会晤，“讨论的重点是支持台湾有意义地参与联合国的能力”。
 
-- 相關：[瑞典研究顯示完全接種疫苗後，抗體將在三個月後急劇下降](https://gnews.org/zh-hant/1576453/)
-- 相關：[疫苗與ADE效應](https://www.chop.edu/centers-programs/vaccine-education-center/vaccine-safety/antibody-dependent-enhancement-and-vaccines)
+**[3.Biden关于台湾问题的言论让行政当局手忙脚乱](http://%28https://thehill.com/homenews/administration/578111-biden-remarks-on-taiwan-leave-administration-scrambling%29)**
 
+The Hill 10月23日电，Biden总统周四的公开言论称，如果台湾受到中国的攻击，美国将保护台湾，这让白宫官员争先恐后地解释说，这并不代表美国政策的转变。由于北京几乎每天都在使用军用飞机进入台湾领空，因此对中国可能入侵台湾的担忧一直在上升。大量的军事存在让中国观察家重新考虑北京对台湾的目标可能是什么。
 
-#### 英國
+**[4.民主党的另一个重要议程被搁置了:一个停滞不前的中国竞争力法案](http://%28https://www.politico.com/news/2021/10/25/democrats-agenda-china-bill-516799%29)**
 
-英國衛生部門數據顯示，瑞典情形也在英國發生。[英國、瑞典的疫苗接種率](https://coronavirus.data.gov.uk/details/vaccinations)幾乎相同。
+POLITICO 10月25日电，一项关键的国家安全倡议，即旨在促进美国与中国的竞争和缓解供应链积压的法案，由于参议院和众议院之间的分歧而在国会山停滞不前，即使两党都承认需要回击北京的经济和地缘政治野心。参议院的民主党人正在向他们的众议院议员施压，要求他们在总统最需要的时候迅速就具有明显政治利益的立法采取行动。
 
-英國衛生安全局 (UKHSA) 於 10 月 7 日發布[報告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1023849/Vaccine_surveillance_report_-_week_40.pdf)，9月份大多數的死亡病例都已經完全接種疫苗。突破性感染而住院治療的病患，也是完全接種者佔多數。UKHSA 的數據顯示，「完全接種疫苗」死亡數量有2281人，遠高於未接種疫苗、部分接種疫苗。
+**[5.美国就中国收集生物数据库的努力发出警告](http://%28https://www.aninews.in/news/world/us/us-warns-regarding-efforts-by-china-to-collect-bio-database20211023230455/%29)**
 
+ANI 10月23日电，周五援引美国情报官员反间谍中心代理主任Michael Orlando的话报道称，中国的公司正在收集来自世界各地的基因数据，以推动中国政府建立世界上最大的生物数据库的努力。有必要保护与生物经济相关的所有技术，包括人工智能、量子计算和半导体。中国和其他国家正试图主导这些技术，并利用合法和非法手段获取美国的知识。
 
+（文章仅代表作者观点，与GNEWS无关）
 
-> Surging [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) in UK with 49,156 new cases and 45 new [#deaths](https://twitter.com/hashtag/deaths?src=hash&amp;ref_src=twsrc%5Etfw) reported on 18 October 2021. 78.9% of all aged 12 and up are DOUBLE VACCINATED. [#Breakthrough](https://twitter.com/hashtag/Breakthrough?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Geoffrey Norman Pain (@FluoridePoison) [October 18, 2021](https://twitter.com/FluoridePoison/status/1450225202353225729?ref_src=twsrc%5Etfw)
-
-
-
-- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
-- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
-- 相關：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
-- 相關： [COVID-19最新情報｜為何政府「忽視」自然免疫？](https://gnews.org/zh-hant/?p=1610194%28%E5%9C%A8%E6%96%B0%E5%88%86%E9%A0%81%E4%B8%AD%E9%96%8B%E5%95%9F%29)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/18-6.jpg)
 * * *
 
-新聞來源｜[Natural News](https://www.naturalnews.com/2021-10-25-majority-of-covid-deaths-are-fully-vaccinated.html)
-轉譯｜zhong
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)
+***审核：蚂蚁兄弟
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)

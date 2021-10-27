@@ -2,47 +2,29 @@
 ---
 
 
-## 新的言论自由应用在盖特，不会让用户陷入“数字监狱”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1619450/)
+## 有声|投资数字世界收购公司的十一家机构中 八家由中共控制
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1619657/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/102603.jpg)
-来自澳大利亚《天空新闻》10月24日的报道
+配音：香草山美食部 – 玫瑰园
 
-**摘要翻译：**
+数字世界收购公司在申请上市的文件中，列出了十一家投资机构。郭文贵先生在10月24日的大直播中，展示了这十一家机构的资本构成。除了三家是美国或加拿大的公司以外，其余八家公司全是中共控制的基金。
 
-盖特首席执行官、川普的前顾问杰森·米勒表示，新的言论自由应用程序盖特的用户不会因为在政治问题上发表意见而被陷入“数字监狱”。
+收购川普科技的SPAC公司-数字世界，来自吴征，其他股东，包括中共姓李的政协委员，以及运鸿集团，全是中共的情报企业。
 
-“我们的独特之处在于：第一，我们不会因为任何人的政治信仰而取消或审查或去平台或算法不存在”，米勒先生告诉澳大利亚天空新闻。
+CEO克里斯是太平联盟集团的创始人，曾参与对郭文贵先生的法律诉讼超限战。FBI前高管弗兰克，是吴征在美国的合伙人，也是太平联盟案件的调查人。此人不但伪造假信息、假照片，而且多次和吴征一起，策划洗劫美国人的财富。
 
-“与此同时，我们也有一个积极稳健的审核政策。为了将这两者结合起来，我们确保不允许非法内容。
+这次，他们再次伙同吴征，同时出现在这场洗劫与抢劫的并购中。背后由鸿运集团提供资金，涉及马云。这是一场中共全面布局操控的金融超限战。
 
-“例如，你不能用身体伤害来威胁人们，或者你不能使用种族或宗教亵渎的字眼。”
+文字版原文：[投资数字世界收购公司的十一家机构中 八家由中共控制](https://gnews.org/zh-hans/1616297/)
 
-“我们确保对环境进行监控，以确保人们的安全。”
+音频处理：喜山必胜Maverick
 
-米勒先生表示，该应用程序自7月4日推出以来“像火箭一样起飞”，已经拥有近300万用户。
-
-“我们的美国客户群约占我们整个全球客户群的47%，美国以外的客户群占53%，所以盖特已经是一个真正的全球化平台。”他说。
-
-**简评： **
-
-爆料革命的战友们都见证了盖特的出生及如火箭般的成长奇迹，也知道盖特如米勒先生所述是一个自由言论的平台。 现在的盖特跟推特和脸书等大科技公司比还是婴儿，所以我们与米勒先生那样的战友一起积极使用和推广盖特，增加盖特的影响能力，让更多的热爱自由民主法治的人们加入这个平台。
-
-新闻链接：[New free speech app GETTR won’t put users in ‘digital jail’ for speaking their minds](https://www.skynews.com.au/opinion/outsiders/new-free-speech-app-gettr-wont-put-users-in-digital-jail-for-speaking-their-minds/video/bb3cc4507e39c15cce065758348f6fc3)
-
-***翻译：**Brianchow*
-
-***校对**：clau*
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,27 +2,47 @@
 ---
 
 
-## 拜登总统被众议院议员指控犯有叛国罪并受到正式弹劾指控
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1620289/)
+## 疫苗加强剂在澳大利亚获得批准
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1620337/)
 
-撰稿：喜国公民
-[视频来自网络](https://beckernews.com/articles-of-impeachment-accusing-president-biden-of-treason-have-been-introduced-in-the-house-of-representatives-42650/)
-美国众议院议员马乔里·泰勒格林最近在众议院宣读了她向众议院小组委员会提交的对拜登总统进行弹劾的议案。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-该弹劾议案指控拜登总统滥用职权，以权谋私，帮助他的儿子亨特·拜登进行商业交易。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/COVID-19-vaccine-booster_iStock-1334441038_2021-08_Hero_1336x614.jpg)圖片來源：ncoa.org
 
-议案还指控拜登总统在南部边境的政策给美国国家安全造成了极其危险的危机。
 
-她还指控拜登总统没有忠实地执行美国总统的职责，没有坚持他的誓言来维护、保护和捍卫美国的宪法，辜负了美国人民。
+#### 编译：小红帽
 
-对拜登总统在阿富汗撤军方面的表现，格林议员认为他可能犯有叛国罪。指控拜登总统拥护美国的敌人，用纳税人资助的美国设备和武器来武装塔利班。指控他抛弃了在阿富汗的美国人。
+在澳大利亚医疗监管机构开绿灯后，预计老年护理居民将成为第一批接种中共病毒（COVID-19）疫苗加强剂的人。
 
-这不是格林议员第一次提交针对拜登总统的弹劾议案。她分别在今年1 月和8 月提交议案，指控拜登总统。
+周三，治疗用品管理局（TGA）临时批准18岁及以上的澳大利亚人接种辉瑞的疫苗加强剂。
 
-(本文纯属个人观点，与Gnews无关)
+总理斯科特·莫里森(Scott Morrison)表示，政府将在下周内敲定扩大推广的计划。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+“我们将从老年护理机构开始推广，就像我们在疫苗计划中所做的那样，”他告诉九号台。
+
+免疫系统严重受损的人已经有资格接种第三针，但最新的建议为普通人群再接种第三针铺平了道路。
+
+治疗用品管理局建议一个人接种第二剂后至少六个月给予接种加强剂。
+
+澳大利亚免疫技术咨询小组将很快向政府提供有关加强剂的进一步建议。
+
+著名的流行病学家玛丽-路易斯·麦克劳斯（Mary-Louise McLaws）表示，事实证明第三针的效果很好。
+
+“现在有很好的证据表明，加强剂确实可以增强你的免疫系统，从而提高疫苗的功效，”她告诉九号台。“有很多人将从中受益。”
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：** [COVID booster shots approved for Australians (thenewdaily.com.au)](https://thenewdaily.com.au/news/coronavirus/2021/10/27/australia-covid-booster/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

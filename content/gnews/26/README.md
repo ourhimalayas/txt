@@ -2,50 +2,44 @@
 ---
 
 
-## SpaceX发布：通往火星的门户！
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1620257/)
+## 拜登返回故乡推动基础设施方案与中共国竞争
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1620298/)
 
-作者：美东香草山 – 新世界的一员
+作者：澳喜农场 – 在远方
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
 
 
 
-10月25日，马斯克的SpaceX发布了一段题为《通往火星的门户》的宣介短片，向世人展现了星舰基地的风采。
+美国总统拜登20日返回他的出生地克兰斯顿，向社会各界着重讲述他的基础设施法案和社会支出法案的重大意义。由于民主党内意见不一，目前这两部法案在国会停滞不前。拜登称美国的全球竞争力取决于通过这两部遇到阻力的法案，他将聚焦那些让美国能够更好与中共国竞争的法案条款。
 
-目前，SpaceX正在那里打造用于帮助人类重返月球、登陆火星，乃至飞往太阳系更遥远地带的可重复使用发射系统——星舰。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-102.jpg)
-神秘的世界、神秘的人类、神秘的宇宙，都有着无穷无尽我们未知的力量。根据10月20日郭文贵先生的直播，无人驾驶汽车等低碳产业，将在2030年以前，成为占全球经济四分之一的经济载体。自2030年起，人类将探索更多的外太空，并开始外星球移民计划。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-72.jpg)
 
-参考链接：
-[长生天 @00009 盖特：SpaceX发布：通往火星的门户！ 今天，马斯克的SpaceX发布了一段题为《通往火星的门户》宣介短片，向世人展现了星舰基地的风采。](https://gettr.com/post/pf5t48b078)
+支持该法案的华盛顿两党政策中心总裁贾森·格鲁米特称，如果美国希望维持全球领先地位，也有必要通过这两部议案。根据世界经济论坛的统计，美国在清洁能源和先进通讯基础设施方面落后于巴西、中共国、印度和墨西哥。
 
 （本文仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+参考阅读：
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+1. [https://www.voachinese.com/a/biden-travels-to-pennsylvania-to-promote-spending-agenda/6279448.html](https://www.voachinese.com/a/biden-travels-to-pennsylvania-to-promote-spending-agenda/6279448.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-3.jpeg)
+
+***编辑/校对：木白***
+***发稿***：***海阔天空1***
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
 
  
 
