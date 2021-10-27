@@ -2,15 +2,44 @@
 ---
 
 
-## 美国联邦通信委员会吊销中国电信在美经营权
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1620018/)
+## Facebook和YouTube下架巴西总统关于疫苗真相的视频
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1620039/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1027-scaled.jpg)
-（文章仅代表作者个人观点，与GNEWS无关）
+作者：美东香草山-新世界的一员
 
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+10月26日，Facebook和Youtube下架了巴西总统雅博尔索纳罗关于中国病毒疫苗导致更易感染艾滋病的视频，此外，Facebook还暂停了其官方账号。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-150.jpg)
+博尔索纳罗于7月份在YouTube频道上发布的、关于建议服用羟氯喹和伊维菌素治疗中共病毒的视频，均被下架。
+
+不管是平民，还是总统，传播中共病毒及疫苗真相，必然会遭到脸书等社交媒体的全面打压。在疫苗灾难面前，盖特如一盏明灯，照亮黑暗的世界。
+
+参考链接：
+
+[大科技公司继续封杀巴西总统关于中共病毒疫苗真相的视频](https://gettr.com/post/pf7rm845c9)
+
+（本文仅代表作者观点）
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编/编辑：木白
+校对/发稿：Fei797
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

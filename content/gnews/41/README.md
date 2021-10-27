@@ -2,35 +2,46 @@
 ---
 
 
-## 伊利诺斯州的护士们赢得了针对疫苗强制令的临时限制令
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1619934/)
+## 在学校垃圾内容方面，TikTok 将成为国会听证热点
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1619963/)
 
-*【簡評：】在拜登政府推出的疫苗強制接種令之後，美國各地掀起了起訴潮，如紐約的警察工會將針對強制疫苗政策訴諸法律、近200名明尼蘇達州的醫護人員起訴僱主、西南航空強制疫苗措施遭飛行員工會起訴、美國士兵就軍隊強制新冠疫苗接種起訴聯邦機構、洛杉磯消防員將起訴政府、昆州警察因強制接種疫苗起訴警察局長、聖地亞哥學生、家長就 COVID-19 疫苗授權起訴區政府……不管結果如何，民眾都應為自己的權力而戰，不應做逆來順受、待宰的羔羊*。
+*【简评：】TikTok（抖音）是中国字节跳动公司短视频分享平台的海外版，早在去年8月，特朗普总统曾发布对TikTok的封杀令。然而，时隔一年，禁令虽然被撤，但TikTok近日再遇监管危机，被请去参加美国参议院商务委员会关于儿童上网安全的听证会，被质问可能诱导儿童和青少年偷窃或破坏学校设施。毫无疑问，TikTok对社会和儿童日益增长的负面影响不容被忽视，*
 
-据《公正新闻》记者Brett Rowlan ，2021年10月25日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-469.png)图片来源：田纳西之星
-针对医院系统的疫苗接种强制令，伊利诺伊州的护士们起诉了滨江医疗中心（Riverside Healthcare），日前，法官授予原告临时限制令。
+据《路透社》记者：Diane Bartz, Sheila Dang和David Shepardson，2021年10月26日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-470.png)2020年9月15日，TikTok的标志在该公司位于美国加利福尼亚州卡尔弗城的美国总部外。图片来源：路透社/Mike Blake
+《路透社》华盛顿10月25日 —— 当TikTok和其他大型社交媒体公司周二出席国会的听证会时，TikTok将面临有关可能诱导儿童和青少年偷窃或破坏学校浴室及其他设施的内容问题。
 
-坎卡基县（Kankakee County）法官南希·尼科尔森 (Nancy Nicholson) 批准了此项临时限制令，有效期至11 月 19 日。随后，她将就护士要求的初步禁令动议举行听证会。
+参议院商务委员会在设定一场以TikTok、Alphabet（GOOGL.O）旗下的YouTube和Snapchat（SNAP.N）为重点的听证会时说，这些流行的应用程序“被滥用于伤害儿童和促进破坏性行为。如在学校的破坏行为、致命的病毒挑战、欺凌、渴吃失调、操纵的影响者营销和诱导行为。”
 
-自由司法中心（Liberty Justice Center）常务律师丹尼尔·苏尔（Daniel Suhr）表示，该裁决是一场胜利。
+《路透社》在听证会前审阅了他准备好的证词，TikTok美洲公共政策负责人迈克尔*·*贝克曼说，该公司的审核团队致力于迅速删除任何被称为“狡猾的舔食”的内容。
 
-“今天的裁决标志着这些护士朝胜利迈出了重要一步 — 它向所有美国人发出了一个信号，那就是争取自己权利的重要性。”他说，“雇主和政府官员应该注意到，强迫人们违背良心不仅是错误的，而且是非法的。没有人应该被迫在保住工作和牺牲信仰之间做出选择。”
+TikTok上的“狡猾的舔食”趋势推动了学生从学校偷窃或破坏学校设施。
 
-护士们于 10 月 13 日起诉了滨江医疗中心，声称该州的医疗保健良心权力法（Health Care Right of Conscience Act）赋予他们拒绝 COVID-19 疫苗的权利。护士们说，他们的宗教信仰与接种疫苗相冲突。
+贝克曼的证词说：“我们最近看到与‘狡猾的舔吃’有关的内容在TikTok和其他平桌子上获得了吸引力，我们的审核团队迅速工作，删脱了这些内容，并重新定向冲签和搜索结果……以阻止这种行为。”
 
-尼莉·帕诺佐(Neelie Panozzo)、艾米·门加(Amy Memenga)和其他四名姓名尚未公布的护士被滨江医疗中心官员告知，如果她们不接种COVID-19疫苗，将在10月31日之前被解雇。护士们说他们的豁免请求被拒绝了。
+贝克曼补充说，TikTok“就这一违规内容向我们的团队发布了专门的指导意见，并主动检测和删除内容，包括与该趋势相关的视频、标签和音频，包括寻找可能用于躲避版主的拼写变体。”
 
-代表护士的自由司法中心是一家全国性的非营利性律师事务所。
+Snap Inc的全球公共政策副总裁Jennifer Stout在准备好的证词中说，Snapchat不是为内容的病毒式传播而设计的，而是专注于朋友之间的对话。专业创作的媒体内容和某些在该应用上受到关注的故事都是由版主真人审核的。
 
-原文连接：[https://justthenews.com/nation/states/nurses-get-temporary-restraining-order-vaccine-mandate-case](https://justthenews.com/nation/states/nurses-get-temporary-restraining-order-vaccine-mandate-case)
+YouTube负责公共事务的副总裁莱斯利*·*米勒(Leslie Miller)声称，该公司努力鼓励健康的生活习惯，并确保儿童只看到适合其年龄的材料。该公司被指控是一个错误信息的宝库，从政治到冠状病毒疫苗都有。
 
-（本文评论仅代表个人观点）
+听证会是对两党立法者所认为的大科技公司对竞争、社会和儿童日益增长的负面影响进行的漫长调查的最新部分。
 
-翻译/评论：洛杉矶盘古农场– 钢蛋儿
+原文连接：[https://www.reuters.com/technology/tiktok-be-congressional-hotseat-over-school-trashing-content-2021-10-25/](https://www.reuters.com/technology/tiktok-be-congressional-hotseat-over-school-trashing-content-2021-10-25/)
+
+翻译：洛杉矶盘古农场 – TrueSky
 
 校对/编辑：洛杉矶盘古农场 – 明子
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉磯盤古農場歡迎您加入:(或點擊上方圖片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+ 
+
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+
+- [ROL Foundation](https://rolfoundation.org/)
+- [ROL Society](https://rolsociety.org/)
+- [Terms of use](https://gnews.org/terms-of-use-3/)
+- [Privacy Policy](https://gnews.org/privacy-policy/)

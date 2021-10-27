@@ -2,49 +2,46 @@
 ---
 
 
-## CDC主任：加强针可能改变“完全接种”的定义
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1620388/)
+## 欧洲刑警组织对暗网市场实施重大突击检查
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1620415/)
 
-作者：纽约香草山文艺部 – 宁文静
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
-
-
-
-美国CDC主任Rochelle Walensky周五表示，“完全接种”的定义可能会发生变化。她说，“这取决于加强针的推进情况。请继续申请注射加强针。我们将保持关注。”
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/6-12.png)
-
-这与她9月下旬 “联邦卫生官员暂时不考虑更改‘完全接种’定义的表态，有了一个急转弯。据悉，这种变化可能源于以色列修改加强针作为疫苗护照的标准。
-
-根据CDC官方数据显示，目前有1.9亿的美国人已完全接种，占总人口的66.3%，其中1250万已经接受了加强针。如果修改了定义，将导致部分此前符合“完全接种”的人失去资格。再加上只打了一针和坚决拒绝接种的人群，有可能意味着三分之二的美国人因为不符合资格而失去外出就餐、乘火车飞机、国际旅游的机会。
-
-加强针会怎样加剧疫苗灾难，难以想象。对宗教、人权的侵蚀，与日俱进。爆料革命向世界揭露黑暗、传递真相，肩负着沉重的历史使命。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-1. [https://covid.cdc.gov/covid-data-tracker/#vaccinations\_vacc-total-admin-rate-total](https://covid.cdc.gov/covid-data-tracker/#vaccinations_vacc-total-admin-rate-total)
-2. [https://rumble.com/vo3sjr-cdc-director-we-have-to-change-the-definition-of-fully-vaccinated-because-o.html](https://rumble.com/vo3sjr-cdc-director-we-have-to-change-the-definition-of-fully-vaccinated-because-o.html)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/2105-TulaneSoPA-CustomBlogGraphics-KG-B-02.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-3.jpeg)
 
-***编辑/校对：******Ivy001***
-***发稿***：***海阔天空1***
+图片来源：sopa.tulane.edu
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+#### 编译：小红帽
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+近日，欧盟执法机构欧洲刑警组织对全球两个贩毒和非法产品的暗网市场进行了重大取缔。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+在美国、德国、英国、意大利、荷兰、法国、瑞士和保加利亚的“黑暗猎人”行动中，一共逮捕了150嫌疑人，其中包括供应商和买家。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+参与行动的警察缴获了超过4100万美元的现金和加密货币、234公斤毒品和45支枪。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+“黑暗猎手”行动源于1月份对黑市具有里程碑意义的行动，黑市是当时世界上最大的暗网非法市场，据称由一名34岁的澳大利亚男子经营，他在德国和丹麦边境附近被捕。
+
+许多嫌疑人被欧洲刑警组织视为“高价值目标”。
+
+在行动期间，意大利当局关闭了DeepSea和Berlusconi暗网市场，这两个暗网市场共拥有超过 10万个非法产品清单。四名管理员被捕，并查获了550万美元的加密货币。
+
+欧洲刑警组织的让-菲利普·勒库夫（Jean-Philippe Lecouffe）表示，像今天这样的行动的重点是让在暗网上活动的犯罪分子引起注意。执法界有办法和全球伙伴关系一起揭开他们的面纱，并让他们对自己的非法活动负责，即使是在暗网领域也如此。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[DeepSea, Berlusconi dark web: Illegal websites hit in major dark web Europol police raid (9news.com.au)](https://www.9news.com.au/national/dark-web-raids-take-down-deepsea-and-berlusconi-marketplaces-150-alleged-suspects-arrested/d2c99823-b63c-47f8-9f37-131e6d38b482)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

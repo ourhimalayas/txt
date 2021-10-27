@@ -2,40 +2,55 @@
 ---
 
 
-## 社交媒体的审查让艺术作品也深受其害
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1620217/)
+## 前国务卿蓬佩奥在媒体发声 拜登总统必须信守承诺，保护台湾
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1620252/)
 
-作者 台湾宝岛农场 Y.M.O
-![](https://assets.gnews.org/wp-content/uploads/2021/10/My-Post-25.jpg)
-维也纳是一些著名艺术家的故乡，比如表现主义画家Egon Schiele，再比如奥地利非常重要的艺术家之一Koloman Moser。两人都是对艺术有重大影响的人物，这些作品的图片自然会经常被各大博物馆发布到社交媒体供人欣赏，不过社交媒体也给艺术家的作品们带来了意想不到的阻碍。
+作者：香草山农场教育部-晓仙女
 
-比如说巴洛克风格中会有描绘女性裸体的作品，但这在社交媒体看来就只是色情罢了。2019年17世纪巴洛克风格的代表画家鲁本斯的画作就被脸书审查打码，2018年维也纳自然史博物馆在脸书晒了“维纶多尔夫的维纳斯”的相关图片，“维纶多尔夫的维纳斯”是一座11.1厘米高的女性小雕塑，已经有2万年以上的历史，完全可以说是历史文物。结果这张图片被脸书认定为“色情”，一放上来就被删了。
 
-2021年早些时候维也纳列奥波多博物馆为了庆祝它成立20周年做了个小视频，结果小视频全部上传失败，原因是里面包含Koloman Moser的作品，它被自动归类到“可疑的色情”。更有甚者2021年7月维也纳阿尔贝蒂娜博物馆晒出了日本艺术家荒木经惟的一组图片，因为图片中包含有模糊的胸部，博物馆直接被TikTok禁言。
 
-这一下博物馆们坐不住了，凭什么只有几十年历史的社交媒体有资格来审查这些几百甚至上千年的艺术作品。如果当年作为艺术先驱这些作品被封禁尚且可以理解，但现在它们还能被这么肆意对待就是一件不可理喻的事情了，只能说明现在信仰已经沦丧到比当年还低下的程度。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-既然主流社交媒体不让博物馆们发表，于是它们决定转场到其它平台。维也纳4家博物馆联合维也纳旅游局在广受成人产业欢迎的平台OnlyFans上开设了官方账户。顶部简介写着：立即订阅，查看维也纳18+内容。宣传工作也是一刻不停，比如说成人网站风的宣传视频。并且他们还表示任何订阅他们账号的人都可以得到一张维也纳城市卡或者一张博物馆门票。自从开设账号后，他们就开始推送各种画作，不会被打码也没有封禁。
 
-主流社交媒体拒绝艺术作品是媒体自己的损失，这也让OnlyFans完成了本不属于它们的使命。既然社交媒体认为艺术是色情，那我们就去证明情色是艺术，这就是博物馆中的艺术作品们带给博物馆的大智慧。
 
-而在当下这个时代非主流的网站也可以成为发出正义声音的途径，除了目前社会信仰的沦落还有很重要的就是它们的话语权握在自己手里。对抗主流社交媒体的方法就那两种，一是拿下它们法律上的保护伞230条款，另外就是自己另立门户也进入230条款的保护之中。西方社会即使沦落也比中共国强上很多，毕竟博物馆还能去找其它平台发声，像盖特这样的社交媒体也开始崛起。如果这是在中共国某些字眼会敏感到打都打不出来，更别提什么反击了。
+10月24日，前国务卿迈克尔·蓬佩奥告诉《猫圆桌会议》主持人约翰·卡特西马提迪斯，“我看到拜登总统说，我们致力于保卫台湾。我希望他说出这个想法的时候，他真的是这么想的。现在人们期望他能兑现这一承诺。”
 
-资料链接
+蓬佩奥强调，拜登作为美国总统，不应该说一套做一套，不应该在不清楚自己说的是什么的情况下随意做出评论。
 
-[https://edition.cnn.com/style/article/vienna-museums-nudity-onlyfans-intl/index.html](https://edition.cnn.com/style/article/vienna-museums-nudity-onlyfans-intl/index.html)
+蓬佩奥还指出：中共在过去10天中测试了高超音速导弹系统，习近平则表示，要首先收复台湾，然后在该地区进行建设，之后就可以胁迫整个世界。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-156.jpg)
+拜登总统在10月20日出席一个媒体活动时表示，如果台湾受到中共攻击，美国将会兑现承诺保卫台湾。但随后白宫发出声明，称拜登总统的讲话并不是美国对台政策改变的信号。这意味着美国对台湾仍会保持一贯的“模糊政策”。
 
-[https://www.theartnewspaper.com/2018/02/27/facebook-censors-30000-year-old-venus-of-willendorf-as-pornographic](https://www.theartnewspaper.com/2018/02/27/facebook-censors-30000-year-old-venus-of-willendorf-as-pornographic)
+蓬佩奥对拜登信守承诺的呼吁，一方面表达了对拜登政府行事风格的批评，另一方面，更表达了对台湾形势的严重关切。
 
-[https://onlyfans.com/viennatouristboard](https://onlyfans.com/viennatouristboard)
+参考链接：
+1. [@mikepompeo 盖特: President Biden said that we have a commitment to defend Taiwan. There’s an expectation now that he will follow through on that commitment, and I hope the Biden Administration will.](https://gettr.com/post/pf73ukee85)
+2. [@Pandarolling 盖特：蓬佩奥能抓住现在病毒真相的核心点，相信他在美国大选中将是强有力的竞选人之一，人类必须面对投毒的ccp否则病毒和疫苗无休止的杀死你！](https://gettr.com/post/pf5qr3db8f)
 
-* * *
+（本文仅代表作者观点）
 
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
