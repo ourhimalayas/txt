@@ -2,29 +2,44 @@
 ---
 
 
-## 世卫组织（WHO）发布最新关于COVID-19会议声明
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1619594/)
+## 医生因新冠疫苗接种状况而拒绝进行挽救生命的肺移植手术
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1619613/)
 
-撰稿：西枫westca
-
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Z2GUWY4J7RJSHLFPTQG37MWV5M.jpg)图片来源：www.reuters.com
-10月26日WHO发布了第九次关于COVI-19紧急委员会会议的声明。声明指出，COVID-19疫情继续构成“国际关注的突发公共卫生事件”。此会议以视频会议方式在10月22日举行。世卫组织的首次COVID-19紧急委员会于2020年1月22日召开，此后每三个月一次。
-
-会议讨论了以下问题：
-
-- SARS-CoV-2的监测工作与挑战；
-- 通过自然感染或疫苗接种获得免疫力以及两者提供的保护；
-- 确认行动内部审查对缔约国通报和加强应对工作的价值；
-- 强调保持对风险知情和多层面的PHSM（公共卫生与社会措施）的重要性。
+作者：Alexandra Lavoie
+翻译: HimaBoy
 
 
-委员会对于非洲区域在应对COVID-19大流行方面所面临的挑战表示关切， 包括其需获得足够的疫苗、诊断和治疗以及收集数据。并认识到大流行病的长期性对人道主义紧急情况、大规模迁移，人口流离失所和其他危机增加了负担。
 
-委员会建议缔约国应考虑修订其备灾和应对计划以及援助政策，确保能够长期控制这一流行病；保持距离，佩戴口罩、改善室内通风仍是减少病毒传播的关键；此外各国还要对大规模聚集活动的风险进行管理；同时WHO还呼吁，到2021年底使至少40%的各国人口接种疫苗。
+让我告诉你乔安妮·杜普伊斯和她丈夫西尔万·桑斯卡蒂埃的故事。
 
-WHO在此次会议根本没有提到COVID-19病毒溯源，也未涉及中共病毒疫苗副作用对人们造成的极大危害，反而呼吁各国加强疫苗接种，其在欺骗民众、掩盖真相的道路上越走越远。
+乔安妮是一名 36 岁的女性，她因囊性纤维化引起的继发性肺部感染住院一个多月。
 
-**新闻来源：**[Statement on the ninth meeting of the International Health Regulations (2005) Emergency Committee regarding the coronavirus disease (COVID-19) pandemic (who.int)](https://www.who.int/news/item/26-10-2021-statement-on-the-ninth-meeting-of-the-international-health-regulations-%282005%29-emergency-committee-regarding-the-coronavirus-disease-%28covid-19%29-pandemic)
+最近，医生告诉乔安妮，她在肺移植等候名单上排名第八，如果她想要接受移植手术，就必须接种疫苗。
 
-（本文仅代表作者个人观点）
+由于之前接种过的疫苗会产生明显的副作用，乔安妮不愿意接种新冠疫苗。
+
+因此，医生现在已将乔安妮从移植名单中删除，直到她完全接种疫苗为止。
+
+这是无法接受的。我们必须传达这个消息。
+
+人们需要意识到这种拒绝的严重程度。一个女人的生命危在旦夕！
+
+來源：[https://www.rebelnews.com/lung\_transplant\_candidate\_told\_she\_must\_be\_vaccinated\_before\_she\_can\_move\_forward\_with\_the\_procedure](https://www.rebelnews.com/lung_transplant_candidate_told_she_must_be_vaccinated_before_she_can_move_forward_with_the_procedure)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)

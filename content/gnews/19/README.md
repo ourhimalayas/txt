@@ -2,139 +2,75 @@
 ---
 
 
-## 土地资金等不纳入国家资产，老百姓没有任何福利
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1619824/)
+## 加拿大前自由党司法部长：加拿大必须将华为排除在5G网络之外
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1619887/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/222-f-wzywl.jpg)
-[https://gtv.org/video/id=61783f7e247c5a3f909049b8](https://gtv.org/video/id=61783f7e247c5a3f909049b8)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/102611-1.jpg)2011 年 12 月 15 日，时任自由党议员Irwin Cotler在渥太华下议院。 (The Canadian Press/Adrian Wyld)
+前自由党司法部长Irwin Cotler说，加拿大应该与其盟友保持一致，将中共国电信巨头华为技术公司排除在其5G网络之外。
 
-中国的光退休所、干休所
-En China con solo las casas de jubilación, y los sitios de descanso para los militares con rango
+尽管情报界对该公司对国家安全的威胁发出了警告, 加拿大仍然是“五眼”情报共享联盟中,唯一没有对华为和5G做出决定的国家。其他四个国家已经禁止或采取步骤禁止华为进入其5G网络。
 
-所有的占有的土地和占有的资产
-Todos los terrenos y activos poseídos
+华为由一名前中国人民解放军军官创立，与北京有着密切的关系。美国政府已敦促其盟友将该公司排除在西方的下一代通信之外，称北京可能利用它进行间谍活动。
 
-是不计入到国家的资产范围内的
-No son incluidos dentro de los activos del país
+9月底，加拿大总理特鲁多说，他的内阁将在“未来几周内”决定是否禁止华为。
 
-它不计入的
-No son contados
+特鲁多在9月28日告诉记者：“我们继续权衡和研究不同的选择，但我们无疑将在未来几周内作出宣布。”
 
-它不属于
-No pertenece
+虽然联邦政府多年来一直对华为的决定持观望态度，但加拿大人对该公司的不信任程度似乎在上升。Nanos Research最近进行的一项民意调查发现，76%的加拿大人反对华为加入该国的5G网络，比2019年支持禁令的53%有所增加。
 
-比如说它不属于房地产
-Por ejemplo, decir que no pertenece a los bienes y raíces
+除了潜在的间谍活动，围绕华为的另一个争议是其首席财务官孟晚舟，她因美国的引渡指控而被拘留在加拿大，直到上个月她与美国签署延期起诉协议（DPA）并返回中国。
 
-记帐里面去
-Entrar en la contabilidad
+科特勒说，孟晚舟签署DPA的事实表明，她承认自己在华为违反美国对伊朗制裁的刑事指控中扮演的角色。
 
-它的开支也不算进去
-Sus gastos tampoco son incluidos
+“我认为，在孟晚舟自己在事实陈述中承认了与华为有关的不当行为之后，这应该使加拿大的[禁止]决定变得清晰”他说。
 
-它叫什么
-Cómo se llama eso
+“在这一点上，我们需要探索其他的（非华为的）技术。”
 
-（属于）财政部的整个划拨
-(pertenece) a la asignación completa del Ministerio de Finanzas
+孟晚舟于2018年12月1日在温哥华被捕，这与美国的引渡请求有关，他被指控在2013年就华为在伊朗的业务往来误导汇丰银行，违反了美国的制裁。
 
-财政部划拨是不算这个的
-La asignación del Ministerio de Finanzas no cuenta esto
+几天后，加拿大公民Michael Kovrig和Michael Spavor在中共国被拘留，这被广泛认为是中国政府的“人质外交”案例。在中共国被关押了近三年的“两个迈克尔”，在上个月孟晚舟返回中共国的同一天被释放回加拿大。
 
-你知道这很夸张吧
-Sabes que esto es una exageración
+**其他仍被关押在中国的加拿大人**
 
-那划拨是在哪儿呢
-Entonces en dónde están las asignaciones
+科特勒说，对科夫里奇、斯帕弗和其他加拿大人的任意拘留表明，中共政权愿意蔑视基于规则的国际秩序，以达到其目的，包括从事“报复性和卑鄙的人质外交。”
 
-在中国有多少干休所呢
-Cuántos retiros para los militares con rangos hay en China
+虽然两位Michaels的传奇故事已经结束，但他说，重要的是要记住那些仍然被关押在中共国的加拿大人，以及北京所带来的持续威胁。
 
-中国有多少个省呢
-Cuántas provincias hay en China
+科特勒引用了侯赛因·塞利尔的案例，他是加拿大公民和维吾尔族人权活动家，自2006年以来一直被中共当局监禁。
 
-中国有多少个县呢
-Cuántos condados hay en China
+他还提到加拿大公民孙倩，她是温哥华的一名女商人，2017年在访问中共国时被逮捕，因为她修炼法轮功，这是一种自我修炼的学科，包括冥想练习和基于真善美、慈悲、忍让等信条的道德教义。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/sun-qian-1-526x350-1.jpg)法轮大法信徒孙倩自 2017 年 2 月以来一直在中共国被非法拘留。 （图片：大纪元）
+孙的律师和家人说，她在被警察拘留期间遭受了酷刑和洗脑，据说今年1月她放弃了加拿大国籍。6月30日，她被北京一家法院判处8年监禁。
 
-大家查一查
-Todos busquen a ver
+据全球事务局称，目前大约有115名加拿大人被关押在中共国，关于他们何时或是否能够回国的信息很少。其中至少有四人已被判处死刑。
 
-中国大概有一万七千个国家（级）的干休所
-En China hay más o menos 17 mil retiros para militares de rango a un nivel nacional
+科特勒说，只有在中共坚持“普世价值”和遵守法治的情况下，才应该与中共国接触。
 
-一万七千个，不算地方的啊
-Los 17 mil no están dentro de las zonas
+“是的，我们将与中共国接触，并且应该与中共国接触，但如果这种接触不仅仅是以牺牲我们的价值观，而且是以中共国自己承诺的普世价值观为代价，那就需要停止。”他说。
 
-不算个省市的
-No cuenta como provincias
+他说：”如果这种接触是以牺牲基于规则的国际秩序为代价，那就不行。如果它是以惩罚我们的公民，甚至是惩罚中共国的公民为代价的话，那就不行。”
 
-军队呀、各部委啊
-El ejército, los ministros de cada ministerio
+**简评：**
 
-一万七千个
-17 mil
+中共国从上至下遵循弱肉强食毫无怜悯之心的丛林法则，并且试图通过“蓝金黄”来腐蚀全世界高层，进而统治世界的做法，已经被越来越多的西方人民识破。一些尚有良知的中高层政客已经开始站出来呼吁反击中共对本国的渗透。华为等中共国控制的企业，作为共产党海外扩张的工具，必将被钉在历史的耻辱柱上，伴随着灭共的进程，烟消云散。
 
-事实上大概有两万个
-Realmente hay como 20 mil
 
-这当时统计局统计有两万个
-En aquel momento la Oficina de Estadística hizo un censo de 20 mil
 
-两万个干休所得编制是多少
-Cuánto es el sistema de ingresos de 20 mil retiros
+新闻链接：[Canada Must Exclude Huawei From 5G Networks and Align With Allies: Former Liberal Justice Minister](https://www.theepochtimes.com/canada-must-exclude-huawei-from-5g-networks-and-align-with-allies-former-liberal-justice-minister_4055533.html)
 
-土地不算钱
-Los terrenos no cuentan como dinero
+***翻译**：Barfuss*
 
-各种成本都不算
-Ningún tipo de costos cuentan
+***校对**：clau*
 
-那都是财政部拨的
-Todos son asignados por el Ministerio de Finanzas
+* * *
 
-那你说你这社保是
-Entonces tu dices que el seguro social es…
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-老百姓没有这个待遇啊
-Los ciudadanos no tienen este beneficio
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-它又不包含的社保基金里面去
-Eso no está incluido dentro del fondo de seguro social
 
-所以当年戴相龙跟我说的一句话
-Por eso Dai Xianglong me dijo una palabra en aquel año
+编辑：【英国伦敦喜庄园编辑部】
 
-他说文贵啊
-Dijo: Ay Wengui
-
-任何中国人没把社保搞明白的
-No es necesario conversar con ningún chino
-
-你什么都不用跟他聊了
-Que no haya entendido sobre el seguro social
-
-他这个脑子就是有问题了
-El cerebro de esta persona si tiene problemas
-
-———————————————————
-
-**原视频网址**： [https://twitter.com/se1y7cblljselva/status/1451092014993330181?s=24](https://twitter.com/se1y7cblljselva/status/1451092014993330181?s=24)
-
-日期：10/23/2021
-原视频标题：
-Los fondos de los terrenos, entre otros, no están incluidos en los activos nacionales y los ciudadanos no tienen ningún beneficio
-
-原视频日期：10/21/2021
-任务编号：KC196（2623）
-视频时间段：0:00-1:17
-
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

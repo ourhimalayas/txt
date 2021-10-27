@@ -2,27 +2,27 @@
 ---
 
 
-## 免疫专家：未接种疫苗的人并不危险，接种疫苗的人却很危险
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1619599/)
+## 有声|郭文贵先生大直播再谈疫苗大屠杀
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1619631/)
 
-**撰稿：日本东京方舟农场 子辰**
+配音：香草山美食部 – 玫瑰园
 
-世界卫生组织欧洲免疫咨询专家组前副总裁克里斯蒂安佩龙教授近期表示，所有接种疫苗的人都必须在冬季隔离，否则可能会患上严重疾病，而未接种疫苗的人对他人并不危险。
+郭文贵先生在10月24日的大直播中揭露：中共释放病毒只是手段，而借疫苗实行大屠杀，才是中共制造这场灾难的真实目的。
 
-Perronne 教授专门研究热带病理学和新兴传染病，他是公共卫生高级委员会传染病专门委员会主席。
+中共和黑暗势力勾结，首先利用病毒制造恐慌、死亡以及经济危机；勾结利用政客，控制各国政府；再由中共十个家族参股控制的大型制药公司，生产毒疫苗；并垄断全球的主流媒体和社交媒体的话语权。掩盖病毒真相，强制接种疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/crr.png)图片来源：https://americasfrontlinedoctors.org/2/frontlinenews/immunization-expert-unvaccinated-people-are-not-dangerous-vaccinated-people-are-dangerous-for-others/
+其目的之一，是让老年人大量死亡，金融界亏掉的养老金就不用兑付了；目的之二，是有计划的种族谋杀，接种率最高的犹太人首当其冲，其次是加拿大人和美国人。目的之三，是消灭精英，接种疫苗最多的精英是律师、会计师、明星、运动员和公务员等。由于这些人聪明、专业，且追求民主、自由和法制，解决掉这些人，就可以更好的控制其他人了。这就是中共与黑暗势力企图统治人类的邪恶计划。
 
-他说，未接种疫苗的人并不危险，但接种疫苗的人对他人是危险的。他解释道：“现在已经在以色列和英国两个国家得到证实。通过与我认识的以色列许多医生的沟通，得知他们遇到了大问题，医院里的重症病例都出现在接种疫苗的人群中。”
+文字版原文：[郭文贵先生大直播再谈疫苗大屠杀](https://gnews.org/zh-hans/1616935/)
 
-以色列医生 Kobi Haviv 在第 13 频道新闻中披露，95% 的重病患者都接种了疫苗，完全接种疫苗的人更是占了住院人数的 85-90%。他表示，医院正在开设越来越多的 COVID 分支机构，而疫苗的有效性正在下降或消失。
+音频处理：喜山必胜Maverick
 
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[Immunization expert: ‘Unvaccinated people are not dangerous; vaccinated people are dangerous for others’](https://americasfrontlinedoctors.org/2/frontlinenews/immunization-expert-unvaccinated-people-are-not-dangerous-vaccinated-people-are-dangerous-for-others/)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,31 +2,139 @@
 ---
 
 
-## 美国海军部长视察日本航母化护卫舰“出云”号，针对中共意味强烈
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1619769/)
+## 土地资金等不纳入国家资产，老百姓没有任何福利
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1619824/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-76.png)[图片来源](http://www.xinhuanet.com/mil/2021-07/28/c_1211262928.htm)
-日本海上自卫队一把手、海上幕僚长山村浩26日在记者会上透露，正在日本访问的美国海军部长德尔·托罗当天在神奈川县的海自横须贺基地，视察了已完成航母化改装第一轮的护卫舰“出云”号。山村前往迎接。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/222-f-wzywl.jpg)
+[https://gtv.org/video/id=61783f7e247c5a3f909049b8](https://gtv.org/video/id=61783f7e247c5a3f909049b8)
 
-10月，“出云”号联合美军F-35B隐形战机进行了针对性的起降试验。F-35B战机可短距离起飞并垂直降落。
+中国的光退休所、干休所
+En China con solo las casas de jubilación, y los sitios de descanso para los militares con rango
 
-山村就试验表示，与德尔·托罗“确认了有利于提高日美双方装备的互换性”，强调“在力争加强同盟的威慑力和应对力方面达成了一致”。
+所有的占有的土地和占有的资产
+Todos los terrenos y activos poseídos
 
-日本计划对“出云”号进行航母化改装，同时航空自卫队将其与引进的F-35B进行适配。截至6月已完成F-35B起降所需的甲板耐热化作业。
+是不计入到国家的资产范围内的
+No son incluidos dentro de los activos del país
 
-7月28日环球时报报道，为了应对中国的航母，日本政府计划在对“出云”号护卫舰改造完成后，从今年年底开始对“出云”级2号舰——“加贺”号护卫舰进行“航母化”改造。日美两国政府希望利用这些护卫舰，机动地为战斗机补充燃料，从而提高空中作战能力。
+它不计入的
+No son contados
 
-从近几天美国海军部长在访日期间的行程和对外的话语，无不在强调日美同盟关系，以及提高共同的威慑力和应对威胁的能力，个中回应中共和中俄的意味非常明显。
+它不属于
+No pertenece
 
-信息来源：
+比如说它不属于房地产
+Por ejemplo, decir que no pertenece a los bienes y raíces
 
-[美国海军部长视察日本航母化护卫舰“出云”号](https://china.kyodonews.net/news/2021/10/3367015d85b9.html)
+记帐里面去
+Entrar en la contabilidad
 
-[日本出云号进行“航母化”改造日媒：意在牵制中国](http://www.xinhuanet.com/mil/2021-07/28/c_1211262928.htm)
+它的开支也不算进去
+Sus gastos tampoco son incluidos
 
-(文章仅代表作者本人观点，与GNEWS无关)
+它叫什么
+Cómo se llama eso
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+（属于）财政部的整个划拨
+(pertenece) a la asignación completa del Ministerio de Finanzas
+
+财政部划拨是不算这个的
+La asignación del Ministerio de Finanzas no cuenta esto
+
+你知道这很夸张吧
+Sabes que esto es una exageración
+
+那划拨是在哪儿呢
+Entonces en dónde están las asignaciones
+
+在中国有多少干休所呢
+Cuántos retiros para los militares con rangos hay en China
+
+中国有多少个省呢
+Cuántas provincias hay en China
+
+中国有多少个县呢
+Cuántos condados hay en China
+
+大家查一查
+Todos busquen a ver
+
+中国大概有一万七千个国家（级）的干休所
+En China hay más o menos 17 mil retiros para militares de rango a un nivel nacional
+
+一万七千个，不算地方的啊
+Los 17 mil no están dentro de las zonas
+
+不算个省市的
+No cuenta como provincias
+
+军队呀、各部委啊
+El ejército, los ministros de cada ministerio
+
+一万七千个
+17 mil
+
+事实上大概有两万个
+Realmente hay como 20 mil
+
+这当时统计局统计有两万个
+En aquel momento la Oficina de Estadística hizo un censo de 20 mil
+
+两万个干休所得编制是多少
+Cuánto es el sistema de ingresos de 20 mil retiros
+
+土地不算钱
+Los terrenos no cuentan como dinero
+
+各种成本都不算
+Ningún tipo de costos cuentan
+
+那都是财政部拨的
+Todos son asignados por el Ministerio de Finanzas
+
+那你说你这社保是
+Entonces tu dices que el seguro social es…
+
+老百姓没有这个待遇啊
+Los ciudadanos no tienen este beneficio
+
+它又不包含的社保基金里面去
+Eso no está incluido dentro del fondo de seguro social
+
+所以当年戴相龙跟我说的一句话
+Por eso Dai Xianglong me dijo una palabra en aquel año
+
+他说文贵啊
+Dijo: Ay Wengui
+
+任何中国人没把社保搞明白的
+No es necesario conversar con ningún chino
+
+你什么都不用跟他聊了
+Que no haya entendido sobre el seguro social
+
+他这个脑子就是有问题了
+El cerebro de esta persona si tiene problemas
+
+———————————————————
+
+**原视频网址**： [https://twitter.com/se1y7cblljselva/status/1451092014993330181?s=24](https://twitter.com/se1y7cblljselva/status/1451092014993330181?s=24)
+
+日期：10/23/2021
+原视频标题：
+Los fondos de los terrenos, entre otros, no están incluidos en los activos nacionales y los ciudadanos no tienen ningún beneficio
+
+原视频日期：10/21/2021
+任务编号：KC196（2623）
+视频时间段：0:00-1:17
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
