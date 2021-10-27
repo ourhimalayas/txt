@@ -2,45 +2,46 @@
 ---
 
 
-## 10/26/2021国际财经快讯：中美通话讨论双边贸易关系；特斯拉突破1万亿美元市值
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1618906/)
+## COVID-19最新情報｜瑞典、英國新冠死亡案例 集中於「完全接種者」
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1618967/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-87.png)[图片来源](https://dzm0ugdauank9.cloudfront.net/)
-**1.****中共副总理刘鹤与美财长耶伦视频通话讨论双边贸易关系 **
+**台灣寶島農場 疫情關注組｜發佈日期/ 26/10/2021**
 
-[北京（路透社）-根据中国商务部的一份简报，中国副总理刘鹤于10月26日与美国财政部长珍妮特-耶伦进行了视频通话，谈论了宏观经济形势和双边关系。简报显示，双方都表示，两国在宏观经济政策上加强沟通和协调是很重要的。宣读稿说，中共还表达了对美国关税和公平对待中共国公司的关切。自美国前总统特朗普与中共展开贸易战以来，刘晓明一直领导中共在中美贸易谈判中的谈判，他在今年早些时候与耶伦和美国贸易代表Katherine Tai举行了会谈。](https://www.oann.com/chinas-vice-premier-liu-he-speaks-with-u-s-treasury-secretary-yellen/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-[自拜登(Joe Biden)今年1月成为美国总统以来，世界上最大经济体的贸易和经济主管之间的接触增多，甚至在美国政府批评北京侵犯人权并寻求召集其他富裕国家组成反对中国的统一战线的时候。10月早些时候，戴笠承诺将一些中国进口商品排除在关税之外，同时就中共未能履行特朗普政府时期达成的 “第一阶段 “贸易协议中的一些承诺向其施压。](https://www.oann.com/chinas-vice-premier-liu-he-speaks-with-u-s-treasury-secretary-yellen/)
 
-**2.****特斯拉突破1万亿美元市值，押注电动车的未来就是现在**
+瑞典、英國政府分析數據，發現9月因感染新冠病毒死亡者，絕大多數是完全接種者。這一結論，與西方國家於高疫苗覆蓋率的情形，突破性感染數量激增相符合。
 
-[10月25日（路透社）–特斯拉公司（TSLA.O）周一的市值超过了1万亿美元，此前该公司从租车公司赫兹（Hertz）获得了有史以来最大的订单，这笔交易加强了这家电动汽车领导者在未来十年内使整个汽车行业的销量达到顶峰的雄心。特斯拉股价飙升14.9%，至1,045.02美元，根据路透社基于其最新文件的计算，它成为全球最有价值的汽车制造商。就连特斯拉首席执行官埃隆-马斯克也对这种激增的速度表示惊讶。”马斯克在推特上回复了投资基金Gerber Kawasaki的联合创始人、特斯拉股东Ross Gerber的评论：”很奇怪，估值动了，因为特斯拉在很大程度上是一个生产量的问题，而不是需求问题。”疯狂的$T1mes！” 马斯克在另一条推文中写道。](https://www.reuters.com/business/autos-transportation/hertz-orders-100000-tesla-cars-bloomberg-news-2021-10-25/)
+#### 瑞典
 
-**3.****美国财政部9月份发放了近28亿美元的租金援助**
+[瑞典媒體](https://www.svd.se/forskare-ser-en-vikande-vaccineffekt-i-sverige)報導，公衛部門報告表示9月1日至24日，約[7成（130例）](https://ourworldindata.org/explorers/coronavirus-data-explorer?zoomToSelection=true&amp;time=2020-03-01..latest&amp;facet=none&amp;pickerSort=desc&amp;pickerMetric=total_cases&amp;hideControls=true&amp;Metric=Confirmed+deaths&amp;Interval=Cumulative&amp;Relative+to+Population=false&amp;Align+outbreaks=false&amp;country=~SWE)新冠確診死者是已經完全接種疫苗。報導進一步分析，死亡主要發生在老年族群，但相關人員仍認為瑞典疫苗保護力有下降趨勢。
 
-[华盛顿（路透社）–美国财政部周一表示，9月份各州和地方政府发放了近28亿美元的紧急租赁援助计划资金，高于8月份的约26亿美元，使今年迄今为止的总额达到103亿美元。财政部说，大约有51万个美国家庭得到了援助，以支付房租、水电费和欠款，而8月份的数字是45.9万。拜登政府官员说，这些数字显示，随着各州和各市管理的项目获得牵引力，支付速度有所加快，迄今已支付了200多万，但速度仍然落后于曲线。白宫冠状病毒援助计划协调员吉恩-斯佩林说，该计划有望在2021年全年支付350万笔租金援助，”在防止令人担忧的驱逐潮方面发挥了有意义的作用，但这仍然不够好”。”这些较强的数字仍然掩盖了令人不安的地区差异，”他补充说，注意到许多城市和州的表现非常高，而其他城市和州的表现则令人失望。](https://www.oann.com/u-s-treasury-says-distributed-nearly-2-8-billion-in-rental-aid-in-september/)
+- 相關：[瑞典研究顯示完全接種疫苗後，抗體將在三個月後急劇下降](https://gnews.org/zh-hant/1576453/)
+- 相關：[疫苗與ADE效應](https://www.chop.edu/centers-programs/vaccine-education-center/vaccine-safety/antibody-dependent-enhancement-and-vaccines)
 
-**4.****中国恒大的电动车部门因业务转移而股价大涨，恒大下挫**
 
-[香港，10月25日（路透社）–中国恒大集团电动车部门&lt;0708.HK&gt;的股价周一上涨，因为这家陷入困境的房地产开发商采取行动，将其新生的电动车业务的增长置于陷入困境的核心房地产业务之上。恒大(3333.HK)负债超过3000亿美元，上周在最后一刻支付了债券票息，避免了代价高昂的违约，为其赢得了更多时间，以避免在周五的下一个主要付款期限前出现债务危机。据国家媒体周五报道，其董事长许家印宣布在10年内将其新的电动汽车企业作为主要业务，而不是房地产，这让周一的投资者感到高兴。恒大盘中最高上涨6%，收盘时下跌0.7%。中国恒大新能源汽车集团有限公司（0708.HK）上涨11.4%。基准恒生指数（.HSI）持平。](https://www.reuters.com/business/evergrande-ev-unit-shares-set-jump-after-chairman-signals-business-shift-2021-10-25/)
+#### 英國
 
-**5.****加密货币在最近一周的流入量创下新高**
+英國衛生部門數據顯示，瑞典情形也在英國發生。[英國、瑞典的疫苗接種率](https://coronavirus.data.gov.uk/details/vaccinations)幾乎相同。
 
-[纽约，10月25日（路透社）–数字资产管理公司CoinShares周一的一份报告显示，加密货币产品和基金上周有创纪录的资金流入，达到15亿美元，这是它们连续第十周的投资，因为随着比特币交易所交易基金的交易，乐观情绪飙升。数据显示，截至10月22日的一周，今年迄今为止的资金流入达到80亿美元，远远超过了2020年全年创造的67亿美元的记录。管理的总资产也创下了792亿美元的新纪录，尽管该周结束时为767亿美元。数据显示，连续第六周的大部分资金流入了比特币，有14.5亿美元。今年迄今为止，世界上最大的加密货币的流入量达到了61亿美元。ProShares比特币策略ETF和Valkyrie比特币策略ETF（BTF.O）上周首次亮相，这是加密货币行业的一个决定性时刻，预计将吸引更多大型机构投资者的资金流入。](https://www.reuters.com/technology/cryptocurrencies-post-record-inflows-latest-week-coinshares-data-2021-10-25/)
+英國衛生安全局 (UKHSA) 於 10 月 7 日發布[報告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1023849/Vaccine_surveillance_report_-_week_40.pdf)，9月份大多數的死亡病例都已經完全接種疫苗。突破性感染而住院治療的病患，也是完全接種者佔多數。UKHSA 的數據顯示，「完全接種疫苗」死亡數量有2281人，遠高於未接種疫苗、部分接種疫苗。
 
-**6.****因广告业务放缓，Facebook在Metaverse方面投资数十亿**
 
-[(路透社）–Facebook公司周一表示，它将开始公布其增强和虚拟现实实验室的财务业绩，作为一个独立的单位，它正在投资数十亿美元用于建立 “元宇宙 “的雄心壮志，同时它报告说其主要广告业务面临 “重大不确定性”。第三季度利润增长17%的Facebook警告说，苹果公司的新隐私变化将对其本季度的数字业务产生影响。这家社交媒体公司报告的季度收入低于市场预期，首席运营官Sheryl Sandberg告诉分析师这是由于iOS的变化。Facebook的首席财务官David Wehner表示，该公司预计其对硬件部门Facebook Reality Labs的投资将使2021年的整体运营利润减少约100亿美元。](https://www.oann.com/facebook-invests-billions-in-metaverse-efforts-as-ad-business-suffers/)
 
-[对这个专注于硬件的部门的财务承诺将致力于实现Facebook的 “元宇宙 “野心，因为该公司正被Facebook前雇员和告密者Frances Haugen泄露的文件报道所淹没，她说这些文件显示该公司选择利润而不是用户安全。首席执行官马克-扎克伯格在周一的分析师电话会议上首先对这些文件引起的批评进行了辩护，他说这些文件描绘了 “我们公司的错误形象”。这位首席执行官说，Facebook在未来几年将不再被视为一家社交媒体公司，而是一家专注于元空间的公司。这个流行的术语泛指一个共享的虚拟环境，人们可以使用不同的设备访问。](https://www.oann.com/facebook-invests-billions-in-metaverse-efforts-as-ad-business-suffers/)
+> Surging [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) in UK with 49,156 new cases and 45 new [#deaths](https://twitter.com/hashtag/deaths?src=hash&amp;ref_src=twsrc%5Etfw) reported on 18 October 2021. 78.9% of all aged 12 and up are DOUBLE VACCINATED. [#Breakthrough](https://twitter.com/hashtag/Breakthrough?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Geoffrey Norman Pain (@FluoridePoison) [October 18, 2021](https://twitter.com/FluoridePoison/status/1450225202353225729?ref_src=twsrc%5Etfw)
 
-**7.****苹果可能面临司法部的反垄断诉讼**
 
-[10月25日消息，据《信息报》周一报道，美国司法部(DOJ)在过去几个月里加快了对苹果公司(AAPL.O)长达两年的反垄断调查，增加了提起诉讼的可能性。报道援引两位知情人士的话说，司法部的律师已经向苹果公司、其客户和竞争对手提出了有关该公司如何保持对iPhone的严格控制的问题。报道称，这项调查非常 “有可能导致一场诉讼，尽管具体细节仍在变化之中”。司法部拒绝发表评论，而苹果公司没有立即回应路透社的评论请求。](https://www.reuters.com/technology/apple-likely-face-doj-antitrust-suit-information-2021-10-25/)
 
-**8.****三星老板因滥用麻醉剂被定罪、罚款**
+- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
+- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
+- 相關：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
+- 相關： [COVID-19最新情報｜為何政府「忽視」自然免疫？](https://gnews.org/zh-hant/?p=1610194%28%E5%9C%A8%E6%96%B0%E5%88%86%E9%A0%81%E4%B8%AD%E9%96%8B%E5%95%9F%29)
 
-[韩国庞大的三星集团的事实上的领导人李在镕周二因非法使用麻醉药异丙酚而被定罪，这是困扰这位百亿富翁的最新法律难题。据韩联社报道，李在镕–世界上最大的智能手机制造商三星电子的副董事长，根据《福布斯》报道，他是世界上第238位最富有的人–被首尔中央地区法院罚款7000万韩元（6万美元）。这笔钱大约是他估计的102亿美元财富的0.0006%。他被认定犯有几年来在首尔的一家整形外科诊所反复服用麻醉剂的罪行。丙泊酚通常是一种医用麻醉剂，但有时也被用于娱乐，2009年流行歌星迈克尔-杰克逊的死因就是过量服用这种药物。在韩国，使用丙泊酚通常被视为一种轻罪，检察官最初提议根据简易起诉书对他罚款5000万韩元，在这种程序中，不太严重的案件不需要上法庭。](https://sg.finance.yahoo.com/news/samsung-boss-convicted-fined-anaesthetic-024828331.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/18-6.jpg)
+* * *
 
-By【秘密翻译组-金融组】
-作者：千年等一回
+新聞來源｜[Natural News](https://www.naturalnews.com/2021-10-25-majority-of-covid-deaths-are-fully-vaccinated.html)
+轉譯｜zhong
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Papercut-Style-Banner_2-1.jpg)

@@ -2,36 +2,42 @@
 ---
 
 
-## 加第一民族妇孺为避强制接种躲入丛林 卫生局紧急“辟谣”
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1620194/)
+## 郭文贵先生重提马云事件的危害性
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1620273/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：香草山农场 – 恩永存
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
 
-周一，加拿大萨省黑湖地区的原著民酋长和议会，驳斥了第一民族妇女儿童遁入丛林，逃避疫苗强制接种的说法，强烈支持个人接种与不接种疫苗的自由。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-101.jpg)
 
-事情源于早些时候上传到facebook的一段视频。视频中一位白人大妈描述了土著妇孺受到强迫接种无奈出走丛林的遭遇，并悲愤地说，“够了！现在就停止！让它成为国际新闻！全加拿大人应该为他们呼吁，停止死亡注射！硫酸羟氯喹在加拿大被禁止使用，不合格的疫苗几个月就被推出，一切都错了！”旁边有人补充说，“是军队在强迫他们接种”…
+郭文贵先生在2021年10月20曰大直播中再次强调马云和他的家人完全没有自由，马云是被公安部专案组成员与银行和其他相关负责人共20人组成的监督团，控制他处置海外资产。
 
-视频引起社会一片哗然。同一天，当地卫生局也紧急“辟谣”，否认对原著民强制接种。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-20.png)
 
-第一民族是加拿大宪法规定的排位第一的居民。今年夏天，在一所寄宿学校新发现数百个土著儿童的坟墓，导致全国爆发了规模浩大的抗议活动。特鲁多政府为了平息事端，纪念被迫害致死的土著儿童，增加了9月30日为首个“事实真相及和解国家纪念日”。这才过去几天，竟然爆出如此丑闻。在舆论的聚光灯下，继续强制已变得困难；就此停止，又会掉入“种族歧视”的深坑里。这一次，“政治正确”踢到了铁板上。
+在没有法制的CCP制度下，个人没有安全，王健与N个大人物的死就是前车之鉴；家庭没有安全，马云与许多大人物全家被抓，许多无辜的人生不如死；社会没有安全，CCP操纵媒体，不给投资者真相，让全球经济陷入极大的风险中。让个人，家庭和社会都不安全的体制，不值得付出，应当推翻它。
+
+郭先生指出，新中国联邦有实力能帮助受CCP迫害的中国人，只要你攒足勇气，只要你足够智慧，只要你加入农场，我们一起销灭CCP。
 
 （本文仅代表作者观点）
 
-校对/发稿：海阔天空1
+参考阅读：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-2.jpeg)
+1. [https://gettr.com/post/peq0xw91ff](https://gettr.com/post/peq0xw91ff)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-3.jpeg)
+
+***编辑/校对：Irene木木***
+***发稿***：***海阔天空1***
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 

@@ -2,53 +2,28 @@
 ---
 
 
-## 限期临近，2千多名昆士兰州卫生工作者拒绝接种疫苗
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1620258/)
+## 日本60岁妇女接种中共病毒疫苗入厕猝死
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1620314/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 撰稿：东京樱花团/闻雨
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-34.png)
+10月26日，日本秋田县由利本荘市发布了一则新闻称，一名60多岁的妇女在25日接种了中共病毒疫苗之后，在大规模接种点的厕所里死亡。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/昆州.png)
+据该市称，一名清洁工在26日上午9:30左右发现了这位死在接种点儿的厕所里的妇女。
 
+据了解，当天的情况如下，这名女士在25日下午两点多，在大规模接种点儿接受了第一针新冠病毒疫苗接种，等待了15分钟后，进行了第二针的预约，然后去了洗手间，26日早上被发现，但她已经去世了。据说她没有潜在疾病。这位女士接种的是Moderna公司生产的疫苗。目前说她的死亡原因与疫苗接种的因果关系尚不清楚。
 
+一个健健康康的人，接种了新冠病毒疫苗之后就这么突然地死了，这个噩耗是不是来得太突然了？现在不正常的死亡是不是太多了？难道还不应该怀疑这新冠病毒疫苗有问题吗？在没有调查清楚新冠病毒疫苗的危害之前，难道不应该紧急叫停吗？
 
-图片来源：abc.net.au
+信息来源：
 
+[ワクチン接種後に60代女性が死亡　秋田・由利本荘市](https://www.akt.co.jp/news?sel=20211026-00000006-AKT-3)
 
-#### 编译：小红帽
+(文章仅代表作者本人观点，与GNEWS无关)
 
-随着接种中共病毒（COVID-19）疫苗的最后期限临近，2000多名昆士兰卫生工作者尚未接种第一剂疫苗。
-
-从11月1日星期一开始，在公立医院为昆士兰卫生局工作的任何人都必须至少接种一剂疫苗，否则将不允许他们上班。
-
-一些卫生工作者表示反对该计划，但卫生部长伊薇特·达斯（Yvette D’Ath）表示，与更广泛的卫生人力相比，这一数字并不重要。
-
-达斯表示，医生的接种率“接近100%”，护士的接种率也很高。她指出昆士兰卫生部门的员工包括清洁工、厨师、行政人员和其他人。
-
-**昆士兰州首席卫生官珍妮特·杨（Jeannette Young）淡化了员工拒绝接种疫苗的重要性，称整体依从性很高。**
-
-本周一是接种疫苗的最后期限，恰珍妮特将卸任领导大流行应对工作的角色，宣誓就任昆士兰下一任州长。
-
-大约200名昆士兰警察已将强制他们接种疫苗的斗争提上法庭。
-
-警察们声称他们没有得到足够的咨询，不应该被迫接种他们不想要的疫苗。
-
-相对而言，警察和卫生工作者之间抵制疫苗授权的雇员人数大致相同。
-
-在昆士兰卫生局的10万名员工中，两千名员工约占2%，而两百名警察约占1.7万名警察人员的1.7%。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：** [More than 2000 Qld Health workers shun vaccine jab as deadline looms (msn.com)](https://www.msn.com/en-au/news/australia/more-than-2000-qld-health-workers-shun-vaccine-jab-as-deadline-looms/ar-AAPYZFC?ocid=msedgntp)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

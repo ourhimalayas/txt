@@ -2,105 +2,52 @@
 ---
 
 
-## 六中全会两大核心接班人问题
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1619976/)
+## 中共的作秀式“全过程民主”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1620060/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/333-aw0zs-cgvx6.jpg)
-[https://gtv.org/video/id=6177e499247c5a3f9090226a](https://gtv.org/video/id=6177e499247c5a3f9090226a)
+作者：纽约香草山医疗部 – 云豹
 
-**郭文贵**
-**Miles Guo**
 
-这次最核心的对习不仅仅是平稳过渡，他想争取连任20大
-This time the core confrontation to Xi is not only a smooth transition, he wants to fight for re-election to the Chinese Communist Party Twenty National People’s Congress
 
-很重要的大家没有看到的事情，接下来的20大
-Very important things that everyone didn’t see, the following of the Chinese Communist Party Twenty National People’s Congress
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
 
-有一个中国的社会到底走什么制度的问题
-There is a question of what kind the institution is going to be in China society
 
-这个比谁当继承人一点都不小，我们很多人疏忽这个问题
-This is no less than who is the heir, many of us neglect this issue
 
-因为咱内部的战友告诉我说，王沪宁现在几乎是全党最恨的第二个人了
-Because our internal comrades-in-arms told me that Wang Huning is now almost the second most hated person in the party
+早在10月14日，习近平就在中共人大工作会议上高谈所谓的“民主”话题，甚至为此创造了中共独有的“全过程民主”，更恬不知耻的标榜人大制度的“伟光正”，还作秀般的设立了名存实亡的中共式选举。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture11-8.jpg)
+即便如此，对于本就不存在的选举制度，中共仍然不放过任何可能危及其政权的细枝末节。
 
-王沪宁推广的就是绝对不能有私人企业家，
-Wang Huning promotes that there must be no private entrepreneurs
+据消息称，有14名跟中共人大相关的所谓“选举人”因其言论中的“独立”一词，被中共警方及国保审问并带走，且再无任何音讯。 再一次地，中共墙内从无民主的事实毫无遮掩地暴露在世人面前。
 
-绝对要回到文化大革命的2.0版，那么习近平是绝对是支持的
-Definitely going back to 2.0 version of the Cultural Revolution, and Xi Jinping is absolutely supportive
+参考链接：[中共的作秀式“全过程民主”](https://www.cna.com.tw/news/acn/202110250311.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-就是把所有私人企业全消灭掉，就是完全国有经济化
-It means to wipe out all private sectors, and it means to fully state-owned economy country
+（本文仅代表作者观点）
 
-特别是在几大领域，媒体、能源、基础设施、金融领域
-Especially in several major fields, such as media, energy, infrastructure, finance
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-几乎100%不允许私人企业参与，私人企业参与干什么呢
-that almost 100% are not allowed to have private participates, so what can private companies participate?
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-就是说有一些加工性大领域，就是出力、出血、出汗
-In other words, there are some areas related to hard laboring, bleeding, and sweat-ing
+**更多资讯，更多关注**
 
-没什么利润大领域，也就是叫血汗加工厂
-with small profit, that is called the sweat-processing factory
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-同时这个六中全会最重要的对新疆、西藏少数民族
-At the same time, the Sixth Plenary Session of the Central Committee of the Com-munist Party of China is the most important to minorities of Xin Jiang and Tibet
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-那必然涉及到港澳台，港澳已经回来了，就涉及到台
-It must affect Hong Kong, Macao and Taiwan, Hong Kong and Macao have came back, and Taiwan will be affected
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-这个非常重要啊，那港澳台那就是对台湾就是还是20大以前拿下
-This is very important for Hong Kong, Macao, and whether Taiwan will be taken over before the Chinese Communist Party Twenty National People’s Congress
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-还是说近期拿下大问题，基本要定义
-or take over recently, and basically need to decide
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-所以说这两个最核心的问题啊，它是涉及到整个六中全会
-So these two core issues are related to the entire Sixth Plenary Session of the Cen-tral Committee
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-这两件事说完了，你再说继承人的事儿
-After talking about these two things, you can talk about the heirs
+ 
 
-习这两件事说完以后就没有继承人的事了
-After Xi’s done these two things, there will be no heirs issues
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
-那就是习家继承人了，到底习允许可以讨论继承人的问题
-that heir is the Xi’s family member, or after all that Xi allows to discuss the issue of heirs
-
-还是不允许你讨论另一个继承人的问题是到底是习的闺女上
-or not allow you to discuss the issue of another heir? It will be Xi’s daughter?
-
-还是习的家人上，还是习指定人上还是党内所谓党内选举
-or it will be Xi’s family member? or Xi’s designated person? or the so-called intra-party elections in the party?
-
-跟你演一演，还得给你画个大饼，5年后再说
-or draw a pie for you, I’ll talk about it in 5 years later, just acting
-
-但不管如何习得继承人的问题，都会排在这个之后
-But no matter what the heirs issue of Xi, it will be followed after this one
-
-———————————————————
-
-**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1451901568165367816?s=24](https://twitter.com/se1y7cblljselva/status/1451901568165367816?s=24)
-
-Date:10/24/2021
-原视频标题:
-Two core successor issues of the Sixth Plenary Session
-原视频日期：2021/10/22
-任务编号：2647
-视频时间段 : 0:00-2:05
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+- [ROL Foundation](https://rolfoundation.org/)
+- [ROL Society](https://rolsociety.org/)
+- [Terms of use](https://gnews.org/terms-of-use-3/)
+- [Privacy Policy](https://gnews.org/privacy-policy/)

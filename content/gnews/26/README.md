@@ -2,48 +2,65 @@
 ---
 
 
-## 英国和新西兰首相承认新冠疫苗政策的专政本质
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1620062/)
+## 讽共歌曲“玻璃心”上架三天点击率突破600万次
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1620145/)
 
-作者：纽约香草山信息部 – 诺雅
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
+作者：纽约香草山美食部 – 遍地开花
 
 
 
-上周五，英国首相约翰逊接受采访时，公开承认，接种两针新冠疫苗并不能防止病毒感染或传播，而政府却仍然向普通民众和学生大力推广第三针加强针。据悉，英国正在考虑建立类似于新西兰、纽约、加利福尼亚等地的疫苗护照制度。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1111.jpg)
-同一天，新西兰总理杰辛达·阿德恩在采访中笑着承认，该国的疫苗认证新系统将创造出严酷的两级社会体系。她进一步表示，在放松限制之前，全国每个地区的90%人口都需要完全接种疫苗。在新西兰，未接种疫苗的人将被限制于参加10人以下的聚会，不能进入餐馆、酒吧和健身房等公共场所。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-多国官方数据显示，高疫苗接种率并没有防止飙升的新冠病毒确诊率，而且给接种者带来了巨大健康和生命的风险。如班农战斗室所言，疫苗政策揭示出，西方政治领导人实施新冠疫苗政策的真正意图就是专政。
 
-参考链接：
-1. [英国和新西兰首相承认新冠疫苗政策的专政本质](https://rumble.com/vo7hs7-pm-boris-johnson-admits-the-tyrannical-truth-about-the-covid-vaccine.html)
-2. [英国和新西兰首相承认新冠疫苗政策的专政本质](https://thenationalpulse.com/news/new-zealand-pm-calls-for-two-tier-society-as-boris-johnson-admits-vaccine-does-not-slow-spread-of-covid/)
+
+近日，一首男女合唱的中文歌曲《玻璃心》劲爆网络，在各大串流平台上架后，马上被网民热传。据悉，该曲第一天的流量就接近100万次，仅三天的点击率就超过五百万次。
+
+![](https://www.rfa.org/mandarin/yataibaodao/kejiaowen/hx1019a-10192021075509.html/@@images/8c858497-d87d-45ed-bbcb-705f956900da.jpeg)图片来源：亚洲通文创
+
+《玻璃心》能如此火爆的原因在于，歌曲中暗讽中共的意味相当浓郁，且直切要害。事实上，整首歌曲的旋律轻松欢快，像是情侣间的互动，但是其歌词却相当劲爆：
+
+
+> “你拥有粉红色纯洁的心，热爱小猫小狗蝙蝠果子狸”；
+> 
+> “你说你很努力，不换肩走了10里，扛着棉花采着它爱的蜂蜜共同富裕，拼了命 要脱贫，每天到韭菜院里，收割撒币，月领一千，真开心”；
+> 
+> “说个话还要自带消音，怕被送进去，种哈密瓜再教育。吃了苹果 ，你又要切凤梨”；
+> 
+> “说的话，你从来都不想听，却又滔滔不绝出征反击，不明白，到底辱了你哪里？总觉得世界与你为敌”。
+> 歌词来自：玻璃心
+
+
+虽然这首《玻璃心》的歌词中没有一句提到中共或与中共相关的人事物，但是明眼人一看就知道，这些歌词句句直戳中共心窝，让中共想不对号入座都难。这也是该曲盛行的原因所在。可见，已经觉醒的中国民众还是非常多的。
+
+消息称，《玻璃心》在中共国内不到一天就被下架，两位歌手的微博也被封杀——这也是中共惯用的手段。
 
 （本文仅代表作者观点）
 
-![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+参考阅读：
 
-总编：飞虹
-编辑：雪梨
-校对/发稿：Hetangyuese
+[“玻璃心”软性讽刺中共小粉红 油管爆红 墙内外网民：说出心声](https://www.rfa.org/mandarin/yataibaodao/kejiaowen/hx1019a-10192021075509.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+***编辑/校对/发稿：Irene木木***
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
  
 
