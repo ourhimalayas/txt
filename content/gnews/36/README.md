@@ -2,42 +2,25 @@
 ---
 
 
-## 中共三大电信运营商 被美国联邦通讯委员会剔除
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1622007/)
+## 加拿大保守党：特鲁多的新内阁成员缺乏政务经验
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1622065/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国联邦通信委员会FCC，于10月26日敲定了撤销中共电信在美经营授权的方针。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-136.jpg)
-美国认为允许电信介入通信基础设施，会在安全保障方面带来很大风险。FCC命令电信美国子公司在60天内，停止中美之间持续了将近20年的通信业务。并驳回了中共移动进入美国市场申请，对之前通过的中共联通授权也启动了撤销程序。也就是说，中共三大电信运营商将在近期，整体被踢出美国通信业务。截止目前，中共外交部仍未准备好 如何回应美国联邦通讯委员会的以上决议。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-160.jpg)
-（本文仅代表作者观点）
+采编：青青       编译撰稿：苦尽甜来 (文来）
 
-参考链接：
-
-[**美國以安保為由撤銷中國電信在美經營授權**](https://zh.cn.nikkei.com/politicsaeconomy/politicsasociety/46480-2021-10-27-10-25-00.html)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编/编辑：童谣
-
-校对/发稿：Fei797
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-16-edited.jpg)图片来源：CBC
 
 
+据加拿大自媒体【后千禧年】10月26日报道，保守党领导人奥图尔于当天发表声明称，总理特鲁多的所有最新内阁成员都“缺乏行政经验且受不良意识形态所驱使”。
+
+奥图尔对此表示：当加拿大人正在制定一个严肃的计划来确保该国的经济未来和解决通胀危机时，总理却任命了一群基本上没有政务经验并被不良意识形态所左右的人作为其内阁成员。特别在目前这种由于高通胀率导致的物价飙升，企业重大供应链遭受中断的恶况下，特鲁多此举将对加拿大经济繁荣和国家团结构成真正的威胁。
+
+此外，奥图尔还强调：在本届政府更具风险和未经证实的经济计划下，加拿大人将无法解决目前所面临的经济挑战，而只能得到更高的物价和更重的税收及更少的薪金。最后，该领导人重申：其保守党将会重返议会工作岗位，并让特鲁多及其内阁成员为失败的经济政策负责。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://thepostmillennial.com/otoole-calls-trudeau-cabinet-ideologically-driven-in-statement)
 
  
 

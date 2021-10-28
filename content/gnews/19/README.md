@@ -2,38 +2,28 @@
 ---
 
 
-## 郭文贵直播摘要和音频 2021.10.26
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1622214/)
+## 阿拉巴马州州长加入反对拜登政府的疫苗强制规定行列
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1622267/)
 
-摘要撰稿人：文俊
+**据《华盛顿邮报》作者：Andrew Jeong，2021年10月26日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/aw0zs-cgvx6-2.jpg)阿拉巴马州州长凯·艾维，图片来源：美联社/Kim Chandler
+阿拉巴马州州长凯·艾维(Kay Ivey)周一下令，州政府机构抵制拜登政府的冠状病毒疫苗强制令，并承诺在法庭上与白宫抗争。
 
-音频提供者：左媛
+她在行政命令中说，州政府官员不应该因为联邦疫苗任务而惩罚任何企业或个人。命令中还说，即使被迫执行联邦法律，州政府官员也应“采取一切实际步骤通知受影响的人”，阿拉巴马州反对所有疫苗强制规定。她说，她的总检察长正在准备诉讼，以阻止这些强制规定。
 
+艾维在一份声明中说：“阿拉巴马州人压倒性地反对拜登的这些令人发指的强制命令，我与他们站在一起。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-27-at-8.30.46-PM.png)
-### 视频：
+艾维的命令违反了拜登政府的全面强制疫苗接种令，该疫苗接种令要求联邦承包商的工作人员、联邦雇员以及接受医疗保险和医疗补助资金的机构的卫生工作者接种疫苗。艾维的命令也与白宫要求所有拥有 100 员工以上的美国企业需强制员工接种疫苗或执行每周的病毒测试制度不一致。艾维说，这些举动是令人震惊的、非法的，并构成联邦的过度干预。
 
-[视频链接 1 ：](https://gtv.org/video/id=61783c6aeadeb11f5e7ac4ea)
+**原文连接：**[**h**ttps://www.washingtonpost.com/nation/2021/10/26/kay-ivey-executive-order-vaccine-mandate/?utm\_source=twitter&utm\_campaign=wp\_main&utm\_medium=social](https://www.washingtonpost.com/nation/2021/10/26/kay-ivey-executive-order-vaccine-mandate/?utm_source=twitter&amp;utm_campaign=wp_main&amp;utm_medium=social)
 
-[视频链接 2 ：](https://gettr.com/post/pf8psl755a)
+翻译：洛杉矶盘古农场 – TrueSky
+校对/编辑: 洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-### 音频：
-
-### 摘要：
-
-1. 习出访绝对是假的，为了敲打国外合作者，习出访是战略爆料哈
-2. 最近战友健身跟不上，千万不要找理由不健身
-3. 今天福建 辽宁 黑龙江 广西 好多战友要求七哥直播一下子
-4. 啥叫偷汉子？就为了你高兴流汗的人
-5. 香港狮子山是香港高官的墓场，焚烧你们的地方
-6. 香港狮子山是香港圣城的标志，也是共产党最后的审判之地
-7. 张晓明这个小烂仔算个屁，共产党用了张晓明死的更快
-8. 补充喜币没可能了，一个都没有了
-9. 七哥今天兑现国内战友承诺直播，明天大直播
-10. 我喜欢1970年前的MILES史戴维（音），这就是我为什么叫MILES GUO原因
-11. 七哥分享蹬涡轮器的感觉
-12. 今天就不录GETTR了
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
