@@ -2,86 +2,47 @@
 ---
 
 
-## 人类的改变就在未来的三五年
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1622151/)
+## 吴征设套给川普 欺诈川普支持者
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1622184/)
 
-[https://gtv.org/video/id=61736358247c5a3f908e7068](https://gtv.org/video/id=61736358247c5a3f908e7068)
+**作者：**顺其自然
+**编辑、发布：**Candy
 
-**郭文贵**
-**Miles Guo**
+吴征这次设计川普总统，把他那双罪恶的黑手伸向了川普总统。吴征麻烦大了，他绝对完了。
 
-只是站在了一个咱们的人道的维度上来看待人类
-It’s just looking at human beings from a humane dimension
+在美国时间的10月26日，郭先生发了盖特小视频。
 
-当你站在地球（以外）
-When you stand beyond the earth
+1）前天郭先生说：买川普的TMTG和吴征的Digital World，要高买。等两、三天下跌了，再卖，这才能告他欺诈。是吴征提供的虚假信息、内幕交易，还有不能兑现的商业计划。吴征没有提供刑事犯罪调查，背后的交易事实，没有提供真实的股东和结构，包括11家基金背后的交易，把股权卖给川普。这些原因导致的股票下跌，才可以告他，会100%赢，
 
-你看到从银河系, 你看到从那火星拍到地球，小到几乎看不见的程度
-you see from the Milky Way, from Mars, the earth is so mall that it’s almost invisi-ble
+2）在70个小时之后，这个股票已经从$174跌到$74了，这个股票会有未来吗？有基金大佬跟郭先生说，川普名下的平台不会运作起来，但是爆料革命会永远支持川普。这十几个基金对赌，就是这些家基金约好了：炒到$170，不能谁随便走，大家约好一起走，一起进，这叫钓鱼，骗的是川普的那些支持者。川普不懂这个，他很可怜的，可悲的。爆料革命一定要支持川普，帮助川普揭穿共产党犯罪目的和犯罪手段，让吴征、Patrick这些人把钱吐出来。
 
-再想想银河系，想想太阳系的时候
-Then thinking about the Milky Way and the Solar System again
+3）昨天Jason Miller在采访中说：如果这个世界有三到四家盖特，三到四家twitter，三到四家youtube，绝不会出现总统被禁言、疫苗真相被掩盖、共产党的犯罪、生化病毒不能讨论。现在出现这种情况就是因为没有竞争，只有twitter，facebook等的垄断，没有垄断才有真相。
 
-你站在多个维度的时候，Eglise 你所有经历的事情
-When you stand on the multiple dimensions, Eglise, that all the things you have experienced
+4)习近平在北京，江派不知道。
 
-记住，这些人有一天回感谢你的，
-remember, one day these people will thank you
+在美国时间的10月26日，郭先生还录了一段30分钟的直播。在直播中，郭先生讲了：当年宋子文从美国银行提走了10亿美元，相当于今天的1000亿美元。宋子文扣掉了3亿美元，也就是30%，成立了中国银行，当时叫国民银行，还有贝聿铭的父亲，是以黄金为本位的。
 
-你的经历都是有使命的，只要你把它发挥好
-Your experience has a mission, as long as you exert it well
+吴征、杨澜借助川普平台骗美国老百姓的钱。要是骗中国老百姓的钱，什么易租宝也就算了；但是骗美国老百姓的钱，美国人真不会饶过他。吴征这次惹大麻烦了，他绝对完了。
 
-而且这些人是不生不死的，我们为这一个维度的人类感到悲哀痛苦
-And these people are immortal, we feel sad and painful for this dimension of hu-manity
+之前在我们国人的印象中，吴征是杨澜的老公，是个商人。但在郭先生2017年3月8日第2次爆料，我们知道了吴征的另一个身份：是在中共级别很高的，从小就被中共国安送到海外培养的特务。
 
-所以我们要奋斗，但是我们一定要相信多个维度是我们没有解开的谜
-So we have to work hard, but we must truly believe that multiple dimensions are mystery that we have not solved
+在直播中，郭先生放出了他与阳光媒体创始人杨澜的老公，也就是吴征之间的微信录音。披露了中共通过其代理人向海外媒体渗透、操控海外舆论运作的事实。郭先生提供的电话录音中，吴征说：他代表着中纪委和专案组，要求郭先生回国接受调查；如果郭先生不接受，郭先生将死无葬身之地。
 
-当新的维度被解开的时候，就像量子电脑，就像生物科技
-When the new dimension is unlocked, it is just like a quantum computer, like bio-technology
+郭先生通过吴征让《博讯网》删除报道，最快五分钟，最慢超不过20分钟，文章就会被删除。郭先生说《博讯》不是假新闻的问题，是政治操作，这关系到很多人的命运，致使国内很多人被抓。
 
-就像所有我们要面对的天空科技一样，
-just like all the sky technology we have to face
+早在上世纪八、九十年代，就有华人在海外创建了媒体。但是惨淡经营，很多倒闭，原因是美国当地市场气候让这样的媒体很难生存。21世纪以后，中国国库有钱了，花钱大方，以参股、控股等方式对海外媒体施加影响。比方在香港，比较有名的媒体被中共注资控制；不太就范的媒体则是出资方被施加压力，而控制海外媒体的就是吴征。
 
-会把人类的视野和胸怀打到另一个维度的时候
-It will bring human vision and mind to another dimension
+在郭先生后来的直播中，我们更进一步了解了吴征：郭先生的所有的官司背后几乎都是吴征在操作，而且吴征坑蒙拐骗，无恶不作。这次更把手伸到了川普那里，因为川普对社交媒体不太懂，便利用川普，欺骗川普的支持者。他能逍遥法外吗？原本吴征就在接受FBI的刑事调查，这下数罪并罚，吴征麻烦大了，他绝对完了。
 
-一切都是小事，就像你小时候偷吃点糖，被爸妈打一嘴巴一样
-Everything is fig, just like when you were a kid stealing candy and getting slapped face by your parents
+（免责声明：本文内容仅代表作者个人观点，Gnews平台不承担任何法律责任。）
 
-当时对你来讲是天大的事，现在想想，就已经忘掉了
-It was a big deal for you at that time, but now think about it, it’s nothing
-
-未来就是这样，这么美好，
-The future is like this, it’s so beautiful
-
-而且人类的所有的改变就在未来的三五年，就在未来的三五年
-And all human changes will be taken place in the next three to five years, just in the next three to five years
-
-我们很幸运，我们就全身的参与
-We are so lucky, we are fully involved
-
-———————————————————
-
-**原视频链接**:[https://twitter.com/se1y7cblljselva/status/1450024870918586368?s=24](https://twitter.com/se1y7cblljselva/status/1450024870918586368?s=24)
-
-Date:10/21/2021
-原视频标题:
-Humanity will change in the next three to five years
-原视频日期：2021/10/17
-任务编号：2606
-视频时间段 : 0:00-1:18
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**YouTube链接**：[闲聊澳洲](https://www.youtube.com/channel/UCPxB0vpNpmHN0hORXK4gj2A)
+**GTV频道：**[墨尔本雅典娜农场AthenaFarm](https://gtv.org/video/id=6153fecc42a8af3151a72e5b)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

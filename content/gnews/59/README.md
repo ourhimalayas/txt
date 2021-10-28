@@ -2,45 +2,36 @@
 ---
 
 
-## 迈克·彭佩奥：拜登必须坚守保卫台湾的承诺
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1618241/)
+## 美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1531510/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16352264321.png)
-来自NEWSMAX10月24日的报道，美国前国务卿迈克·彭佩奥说，拜登总统必须信守承诺，保卫台湾免受中共国的攻击。
+根据《1933 年证券法》第8A 条启动停终程序行政令、作出结论及实施停终令
 
-“我看到拜登总统说我们有保卫台湾的承诺。”彭佩奥周日在约翰·卡西马蒂斯(John Catsimatidis)主持的《猫圆桌会议》（The Cats Roundtable）广播节目中说。
-
-“我希望他在说这句话的时候是有意为之的。你不能只是像那样划一条红线。你不能做出那样的陈述又说你没有那个意思。现在人们期望他会兑现这一承诺，我希望拜登政府考虑清楚，这不能仅仅是一位不清楚自己在说什么的总统的随意评论。”
-
-彭佩奥还指出，中共国在过去的一周半时间内测试了其高超音速导弹系统，习近平主席表示，他希望首先将台湾“重新置于其保护伞之下，然后在该地区进行建设，接下来胁迫整个世界。”
-
-关于越境人数激增的问题，彭佩奥说拜登不应该偏离前总统川普的成功政策。
-
-他说：“我们实行了为期四年的政策，该政策在很大程度上创造了一种模式，在这种模式下，非法移民不会大量越过我们的边境。”
-
-“这种模式被称为‘留在墨西哥’。他们（拜登政府）则正在谈论撤销这种模式，天哪，为什么他们要撕毁它，为什么他们停止这样做，这是无法解释的。这样做不仅对我们谈到的那些年轻人造成风险，也给美国造成了真正的风险。因为谁知道谁过来了，谁知道这些人最终会去哪里？我们找不到他们的踪迹。当越境的人数如此庞大时，这是一种危险。他们会带着武器来，他们会带着毒品来，芬太尼最终会因此而成为美国的一个大问题。我们必须清理干净，不仅在我们的南部边境，而且要在我们所有的入境点、机场和我们的北部边境都要如此。”
-
-####  简评：
-
-彭佩奥提到的拜登总统保卫台湾的承诺，是指上周四拜登在美国有线电视新闻网(CNN)组织的一次市政厅活动中发表的一段讲话，该讲话打破了美国长期以来在台湾问题上的“战略模糊”政策，遭到了中共国的抨击，却受到了台湾的赞许。但是拜登政府的白宫发言人在回应拜登以上言论时却表示“总统没有宣布我们的政策有任何变化”。彭佩奥此次要求拜登坚守保卫台湾的承诺，很明显是对拜登及其政府前后表述不一致的一个回应。
-
-彭佩奥的格局在美国如今的政治人物中与众不同，从其在离任国务卿之前，宣布中共政府对新疆维吾尔族犯下了种族灭绝和反人类罪开始，彭佩奥一直利用各式各样的外交机会，提醒美国及世界各国要关注中共政权意欲统治全世界的企图。台湾问题不仅仅是台湾问题，台湾的战略位置影响着美、日、澳等国在亚太地区的战略利益。台湾的科技力量，尤其是台湾先进的半导体技术产业，影响着整个世界的半导体产业安全，如果这些优势被邪恶的中共抢占，世界各国都将受制于中共的淫威，所以，保护台湾从本质上讲也是在保护美日等国在亚太地区的根本利益。美国现任政府非常有必要切实执行拜登所说的保卫台湾的承诺，而不是仅仅停留在外交辞令上。
-
-新闻链接: [https://www.newsmax.com/politics/mikepompeo-catsroundtable-china-taiwan/2021/10/24/id/1041780/](https://www.newsmax.com/politics/mikepompeo-catsroundtable-china-taiwan/2021/10/24/id/1041780/)
-
-翻译/简评：Harvey
-
-PR：Julia Win
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/1-4.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/2-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/3-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/4-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/5-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/6-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/7-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/8-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/9-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/10.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/11-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/12.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/13.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/14.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/15.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/16.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/17.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/18.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/19.jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+[中文PDF版：](https://assets.gnews.org/wp-content/uploads/2021/09/SEC-order_20210913_中文翻译-V2.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/SEC-order_20210913_中文翻译-V2.pdf)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[原版英文PDF：](https://assets.gnews.org/wp-content/uploads/2021/09/33-10979-1-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/33-10979-1-1.pdf)
+
+
+
++21

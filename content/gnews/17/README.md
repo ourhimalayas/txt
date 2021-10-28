@@ -2,63 +2,80 @@
 ---
 
 
-## 强制接种疫苗的要求违背他的信仰—自由
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1622106/)
+## 人类的改变就在未来的三五年
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1622151/)
 
-[https://gtv.org/video/id=617362cf247c5a3f908e703e](https://gtv.org/video/id=617362cf247c5a3f908e703e)
+[https://gtv.org/video/id=61736358247c5a3f908e7068](https://gtv.org/video/id=61736358247c5a3f908e7068)
 
-My name is Dalen Lambert.
-我的名字是达伦·兰伯特
+**郭文贵**
+**Miles Guo**
 
-I was hired in January 2020
-我是 2020 年 1 月入职的
+只是站在了一个咱们的人道的维度上来看待人类
+It’s just looking at human beings from a humane dimension
 
-All I know is the career firefighters in this pandemic
-我所知道的是这次大流行的职业消防员
+当你站在地球（以外）
+When you stand beyond the earth
 
-I’ve cared for COVID patients. Following all the protocols and mandates.
-我曾照顾过 COVID 患者, 遵守所有规则和任务
+你看到从银河系, 你看到从那火星拍到地球，小到几乎看不见的程度
+you see from the Milky Way, from Mars, the earth is so mall that it’s almost invisi-ble
 
-and to my knowledge, never once exposed anyone to this virus
-据我所知，我从未被传染这种病毒
+再想想银河系，想想太阳系的时候
+Then thinking about the Milky Way and the Solar System again
 
-Today, myself, and 1000s of other brave men and women
-今天，我自己和其他 1000 多位勇敢的男人和女人
+你站在多个维度的时候，Eglise 你所有经历的事情
+When you stand on the multiple dimensions, Eglise, that all the things you have experienced
 
-are being forced either comply with the mandate
-被迫要么遵守强制接种
+记住，这些人有一天回感谢你的，
+remember, one day these people will thank you
 
-or face termination for standing in their beliefs.
-或因坚持自己的信仰而面临被解雇
+你的经历都是有使命的，只要你把它发挥好
+Your experience has a mission, as long as you exert it well
 
-I’m choosing standing in my belief. I believe in freedom.
-我选择坚守我的信仰，我相信自由
+而且这些人是不生不死的，我们为这一个维度的人类感到悲哀痛苦
+And these people are immortal, we feel sad and painful for this dimension of hu-manity
 
-This is for everyone who’s standing up for this.
-为所有为自由而站出来的人
+所以我们要奋斗，但是我们一定要相信多个维度是我们没有解开的谜
+So we have to work hard, but we must truly believe that multiple dimensions are mystery that we have not solved
 
-And for everyone else who felt forced to comply,
-和每一个感到被迫遵守接种疫苗的人加油
+当新的维度被解开的时候，就像量子电脑，就像生物科技
+When the new dimension is unlocked, it is just like a quantum computer, like bio-technology
 
-Vaxxer or no vax
-接种过的人或未接种的人
+就像所有我们要面对的天空科技一样，
+just like all the sky technology we have to face
 
-Let us come together and rethink firing 1000s of brave men and women.
-让我们一起来重新考虑解雇1000多名勇敢的消防员的事情
+会把人类的视野和胸怀打到另一个维度的时候
+It will bring human vision and mind to another dimension
+
+一切都是小事，就像你小时候偷吃点糖，被爸妈打一嘴巴一样
+Everything is fig, just like when you were a kid stealing candy and getting slapped face by your parents
+
+当时对你来讲是天大的事，现在想想，就已经忘掉了
+It was a big deal for you at that time, but now think about it, it’s nothing
+
+未来就是这样，这么美好，
+The future is like this, it’s so beautiful
+
+而且人类的所有的改变就在未来的三五年，就在未来的三五年
+And all human changes will be taken place in the next three to five years, just in the next three to five years
+
+我们很幸运，我们就全身的参与
+We are so lucky, we are fully involved
 
 ———————————————————
 
+**原视频链接**:[https://twitter.com/se1y7cblljselva/status/1450024870918586368?s=24](https://twitter.com/se1y7cblljselva/status/1450024870918586368?s=24)
+
 Date:10/21/2021
-原视频标题: One brave firefighter is being force to quit his job because vaccine mandate against his belief – freedom
-原视频日期：2021/10/21
-原视频链接: https://gettr.com/post/pes1br958a
-任务编号：2632
-视频时间段 : 0:00-0:57
+原视频标题:
+Humanity will change in the next three to five years
+原视频日期：2021/10/17
+任务编号：2606
+视频时间段 : 0:00-1:18
 
 英听校: 洛杉矶盘古农场 – Layka
 翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike
-字幕+视频制作:洛杉矶盘古农场 – 青梅煮酒
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 -天涯行
 审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)

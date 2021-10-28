@@ -2,10 +2,10 @@
 ---
 
 
-## 日本一60岁妇女接种中共病毒疫苗后当日死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1622324/)
+## 蔡英文首度证实：美国军队已经进驻台湾领土
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1622335/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10._28-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1028-scaled.jpg)
 （文章仅代表作者个人观点，与GNEWS无关）
 
 *编辑：东京樱花团/简报小组*

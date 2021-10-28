@@ -2,27 +2,64 @@
 ---
 
 
-## 有声|蓬佩奥指出世界面临撕裂的三大原因都源自CCP
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1621827/)
+## 新法案将允许警方监禁不帶口罩者
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1621861/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-近日，美国前国务卿蓬佩奥出席World Knowledge Forum时指出世界面临撕裂的三大原因都源自中国共产党。一是由于中共撒谎以及联合国对中共卑躬屈膝而造成全世界大流行的中共病毒；二是中共的一带一路项目，其本质就是新型帝国主义；三是中共开始着手取代美国的领导地位，比如在疫情期间中共没有放下报复美国的野心反而让其野心更加膨胀，它们撕毁了本该遵守至2047年的中英联合声明。
+作者：Alexandra Marshall
+翻译: HimaBoy
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Dan.png)
+维多利亚州的丹尼尔·安德鲁斯工党政府提议，对“故意和鲁莽地”违反与新冠大流行相关的公共卫生命令的任何人，处以两年监禁或 90,000 美元罚款。企业因同样的罪行面临高达 455,000 美元的罚款。
 
-蓬佩奥国务卿说，看到香港沦陷以及中共对其之前庄严承诺过的义务表现出的轻蔑态度，每个人都该问自己，中共国所签的哪一个正式文件会得到中共的执行？同时，蓬佩奥国务卿明确指出，中共就是个强盗政权，中共国被一群强盗所领导着。
+“我们需要具体的 新冠大流行的法律 […] 来保护我们并保证我们的安全。这是我们的承诺，这就是我们应该交付的，”维多利亚州州长丹尼尔安德鲁斯说。
 
-文字版原文：[蓬佩奥指出世界面临撕裂的三大原因都源自CCP](https://gnews.org/zh-hans/1617967/)
+他介绍了监禁和罚款，根据该法案的支持性文件，旨在：
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- **通过规定加重罪行，阻止和支持对最恶劣的流行病相关行为采取相称的应对措施。**
+- **通过根据违反大流行病命令导致的任何商业利益受损提供法院施加的处罚，阻止法人团体实体不遵守大流行病命令。**
+
+
+换句话说，如果一家企业接受未接种疫苗的人并因此获利，他们将受到国家的严厉惩罚。
+
+这里有一系列有关紧急状态和政府提出应对流感大流行法案，所有这些都极大地改变首席卫生官员的权力。
+
+这些法案使紧急情况的实施时间几乎翻了一番，同时允许部长将紧急情况延长三个月。
+
+这对政府来说是一个紧迫的问题，因为最初的 6 个月限制已经实施了 21 个月，并将于 2021 年 12 月 15 日到期。如果紧急权力结束，政府将无法再执行对公众健康的命令。
+
+即使该州的本地病例为零，也可以宣布大流行进入紧急状态。它们还包括拘留或歧视“人群” 的规定，据信这为国家提供了对未接种疫苗的公民进行处罚的空间。
+
+具体而言，该法案旨在“根据公共卫生风险在一系列环境中”区分接种疫苗和未接种疫苗的公民。
+
+在公共健康和福利修正案（大流行管理）2021法案是为丹尼尔·安德鲁斯创造更广泛的权力。卫生部长还将获得可由首席卫生官行使的广泛权力，被称为“非详尽权力清单”。
+
+虽然卫生部长马丁·弗利表示支持，并解释说透明的决策是该法案的核心——自由党和社交媒体指责工党或起草了“对民主的令人难以置信的攻击”。
+
+“那部分讨论不过是政府提案 1%中的一个。没有人谈到强加总理的能力，个人特色或停止了抗议，“反对党领袖马修盖伊说。
+
+丹尼尔安德鲁斯政府承认，“由于制定该法案的时间短和复杂性，咨询没有像通常那样广泛”。
+
+尽管提议对维多利亚州法律进行永久性和巨大的改变，但预计这将影响该州的每个公民。
+
+來源：[https://www.rebelnews.com/dan\_s\_new\_bill\_allows\_police\_to\_jail\_mask\_breachers](https://www.rebelnews.com/dan_s_new_bill_allows_police_to_jail_mask_breachers)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
