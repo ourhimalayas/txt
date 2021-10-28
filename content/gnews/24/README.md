@@ -2,27 +2,46 @@
 ---
 
 
-## 有声|蓬佩奥指出世界面临撕裂的三大原因都源自CCP
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1621827/)
+## 在利润的祭坛上牺牲儿童的健康| 保罗·亚历山大博士
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1621968/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-近日，美国前国务卿蓬佩奥出席World Knowledge Forum时指出世界面临撕裂的三大原因都源自中国共产党。一是由于中共撒谎以及联合国对中共卑躬屈膝而造成全世界大流行的中共病毒；二是中共的一带一路项目，其本质就是新型帝国主义；三是中共开始着手取代美国的领导地位，比如在疫情期间中共没有放下报复美国的野心反而让其野心更加膨胀，它们撕毁了本该遵守至2047年的中英联合声明。
+作者： Tamara Ugolini
+翻译: HimaSally
 
-蓬佩奥国务卿说，看到香港沦陷以及中共对其之前庄严承诺过的义务表现出的轻蔑态度，每个人都该问自己，中共国所签的哪一个正式文件会得到中共的执行？同时，蓬佩奥国务卿明确指出，中共就是个强盗政权，中共国被一群强盗所领导着。
 
-文字版原文：[蓬佩奥指出世界面临撕裂的三大原因都源自CCP](https://gnews.org/zh-hans/1617967/)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+几周前，我采访了研究流行病学和循证医学领域的专家保罗·亚历山大博士。
+
+在那次采访中，我们简要谈到了辉瑞注射剂被批准用于 5 至 11 岁儿童的传言，以及它是多么鲁莽和不必要。
+
+现在，这种注射的推出越来越成为现实，我们深入研究了亚历山大博士最近的出版物，“亲爱的辉瑞：别碰孩子。”
+
+我们讨论了儿童拥有的强大的先天免疫力，并研究了他们不容易感染 新冠的生物学原因。
+
+亚历山大博士断言，与公共卫生建议相反，儿童并不是卫生官员希望你所相信的超级传播者。
+
+亚历山大博士进一步指出，与疫苗诱导的免疫不同，自然免疫要优越得多且持久。他认为，将疫苗免疫置于自然免疫之上会导致疫苗不良事件的发生率增加，并警告说，这种注射对儿童是有风险的，且收益值得怀疑。
+
+來源：[https://www.rebelnews.com/sacrificing\_childrens\_health\_at\_the\_altar\_of\_profits\_dr\_paul\_alexander](https://www.rebelnews.com/sacrificing_childrens_health_at_the_altar_of_profits_dr_paul_alexander)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

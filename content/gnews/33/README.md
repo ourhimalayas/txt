@@ -2,29 +2,27 @@
 ---
 
 
-## 西方外交官称俄可以成为“绿色”融资中心
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1621746/)
+## 有声|蓬佩奥指出世界面临撕裂的三大原因都源自CCP
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1621827/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+近日，美国前国务卿蓬佩奥出席World Knowledge Forum时指出世界面临撕裂的三大原因都源自中国共产党。一是由于中共撒谎以及联合国对中共卑躬屈膝而造成全世界大流行的中共病毒；二是中共的一带一路项目，其本质就是新型帝国主义；三是中共开始着手取代美国的领导地位，比如在疫情期间中共没有放下报复美国的野心反而让其野心更加膨胀，它们撕毁了本该遵守至2047年的中英联合声明。
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/U-3.jpg)rawi.ru
-美东时间10月27日报道，得益于气候方面的合作，德国和法国大使认为，30年后，俄罗斯可能通过北溪-2号管道成为氢气供应国，成为世界主要的旅游中心和“绿色”融资中心。
+蓬佩奥国务卿说，看到香港沦陷以及中共对其之前庄严承诺过的义务表现出的轻蔑态度，每个人都该问自己，中共国所签的哪一个正式文件会得到中共的执行？同时，蓬佩奥国务卿明确指出，中共就是个强盗政权，中共国被一群强盗所领导着。
 
-德国驻俄大使格扎∙安德烈亚斯∙冯盖尔和法国驻俄罗斯大使皮埃尔∙列维确信，如果俄罗斯认识到气候变化的挑战，抓住机遇，并与其在欧洲和其他地区的伙伴一起作出大胆的政治决定，那么俄罗斯不仅有可能成为可持续能源的主要供应商，而且还有可能成为技术解决方案和科技成就的主要供应商。
+文字版原文：[蓬佩奥指出世界面临撕裂的三大原因都源自CCP](https://gnews.org/zh-hans/1617967/)
 
-大使们表示，如果俄罗斯抓住合作机会，在30年内，由于其令人印象深刻的原始自然条件和气候多样性，俄罗斯可以成为世界各地游客的主要旅游目的地，乌里扬诺夫斯克和阿斯特拉罕地区可以成为可再生能源的枢纽，库兹巴斯可以从煤炭开采产区转变为科学和绿色工业区，北溪-2号可以为欧洲带来绿色氢，而莫斯科可以成为绿色融资的优秀平台。
-
-各外交使团团长指出，这样一个未来的基础已经奠定，而欧洲和世界其他地区也正在进行经济体系的转型。外交官们称弗拉基米尔∙普京总统在俄罗斯能源周期间的声明很重要，即俄罗斯将不迟于2060年实现碳中和。
-
-《联合国气候变化框架公约》第26届缔约方会议(COP26)将于10月31日至11月12日在苏格兰的格拉斯哥(Glasgow)举行。根据联合国的规定，举行这一活动是为了就气候变化问题建立建设性的对话。据联合国网站报道，该会议还将编写一份“关于需要制定综合性粮食政策来应对气候紧急状况的高级别宣言”。
-
-普京总统将通过视频连接在峰会上发言。俄罗斯驻英国代表团将由副总理阿列克谢∙奥维尔丘克领导。
-
-参考链接：
-
-[https://www.rbc.ru/politics/27/10/2021/6177e9de9a79471fd9d0cda2?from=from\_main\_1](https://www.rbc.ru/politics/27/10/2021/6177e9de9a79471fd9d0cda2?from=from_main_1)
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

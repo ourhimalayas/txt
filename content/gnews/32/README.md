@@ -2,126 +2,45 @@
 ---
 
 
-## 喜联将是全球通用的未来金融系统
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1621747/)
+## 安大略省可能会解雇 50,000 名教育工作者
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1621831/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2659.png)
-[https://gtv.org/video/id=617937c8247c5a3f9090a9bc](https://gtv.org/video/id=617937c8247c5a3f9090a9bc)
+作者：Dakota Christensen
+翻译: HimaBoy
 
-郭文贵
-Miles Guo
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5000.png)
 
-你说到这儿
-When you talk about this
+据加拿大新闻社报道，根据安大略省教育部长的说法，如果该部门强制要求接种新冠疫苗，安大略省将有超过 50,000 名教育工作者被解雇。
 
-我觉得特别有意思
-I found something very interesting
+教育部长斯蒂芬莱切在回应安大略省新民主党党的问题时表示，强制性疫苗政策将意味着在该省已经面临人员短缺的情况下解雇数万名教育工作者。
 
-昨天下午的时候
-Yesterday afternoon
+“我认为我们必须与现实相结合，并确保任何进入我们学校的工作人员都进行双重测试，抗原测试呈阴性，以确保他们的安全，确保我们的学校可以配备人员，并且这些孩子可以继续每天去上学，” 莱切说。
 
-我跟一个日本的
-I was talking on the phone to a Japanese
+安大略省超过 85% 的教育人员接种了疫苗，而其余约 15% 的教育人员要么证明没有接种疫苗，要么拒绝透露他们的疫苗接种情况。
 
-我一个朋友的孩子通电话
-one of my friend’s child
+大约 50,000 名工人包括教师、教育助理、幼儿教育工作者、校长、董事会工作人员、临时工作人员和监护人，他们要么未接种疫苗，要么不愿透露自己的身份。
 
-他说
-He said: “Uncle Miles,
+一些教育局，例如多伦多地区教育局，已经制定了自己的更严格的政策，包括终止雇佣合同作为威胁 。
 
-你给我讲讲这个
-please tell me about
+來源：[https://www.rebelnews.com/50\_000\_ontario\_education\_workers\_could\_be\_fired\_if\_vaccines\_mandated\_education\_minister\_says](https://www.rebelnews.com/50_000_ontario_education_workers_could_be_fired_if_vaccines_mandated_education_minister_says)
 
-喜马拉雅币和法币
-Himalayan currency and Fiat currency
+（文章仅代表作者个人观点）
 
-还有一个货币
-and currency
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-这个之间的不同
-What are the differences between them?”
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
 
-他是哈佛
-He is Harvard’s
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-最年轻的金融博士
-the youngest Ph.D. in finance
+**关注我们**
 
-日本东京大学
-and the University of Tokyo in Japan
+Discord 账号
 
-就是最年轻的
-He was the youngest
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-当时所谓的出来的博士
-who claimed Ph.D. in that time
+Gettr 账号
 
-超牛这孩子，他爸跟我很好
-This child is super brilliant, and his father has a good relationship with me
-
-我讲了讲法币、货币
-I described Fiat currency and currency
-
-他跟我讲了一句话
-He simply told me
-
-他说
-He said
-
-我没想到郭叔你这么厉害这么懂
-I didn’t expect Uncle Miles you know that so well
-
-把我笑喷了
-He made me laugh
-
-我说这个喜马拉雅系统
-I said this Himalayan system
-
-是我设计的呀
-was designed by me
-
-他就没想到他郭叔有这么牛
-He had never expected that his Uncle Miles was so awesome
-
-他说
-He said
-
-郭叔
-Uncle Miles
-
-这个事情如果跟你说那样
-if this business as you mentioned
-
-和我了解的一样的话
-were the same as I learned
-
-这个是世界上真正的、人民的
-This would be the truly
-
-为全球通用货币的未来
-universal currency for people to use globally
-
-金融系统
-the future financial system
-
-* * *
-
-Date: 10/25/2021
-原视频标题: 喜联将是全球通用的未来金融系统
-Himalayan Exchange will be the future universal financial system
-原视频日期：2021/10/22
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1452235873328656384?s=24](https://twitter.com/se1y7cblljselva/status/1452235873328656384?s=24)
-任务编号：KC200(2659)
-视频时间段 : 0:00-1:07
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

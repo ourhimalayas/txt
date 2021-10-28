@@ -2,29 +2,33 @@
 ---
 
 
-## 有声|郭文贵先生对新中国联邦人强调“爱”的重要性
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1621707/)
+## 东亚峰会 美中就海上安全针锋相对
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1621777/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-10月24日文贵大直播中，郭文贵先生说：人类生存的价值大部份来自家庭，人最重要的关系就是家庭关系，而家庭中父母就是重中之重。郭先生曾经要求盘古员工必须孝敬父母，做不到就别来上班。一个父母都不尊重的人，说什么郭先生都不会尊重他。
+俄罗斯莫斯科喀秋莎农场  银河
 
-共产党这个魔鬼，毁了家庭，以爹亲娘亲不如党亲来洗脑人民，让人不孝敬父母。造成了太子爷般的儿子、孙子打父母，打爷爷奶奶；媳妇打公公等丧绝人伦之事。这种恶是郭先生决心灭共的最早起因。
+编辑上传   水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/E-4.jpg)japantimes.co.jp
+日本共同社10月27日报道，美国、中共国和日本在周三举行的地区峰会上就海上安全问题针锋相对，美国总统拜登(Joe Biden)和日本首相岸田文雄(Fumio Kishida)自上任以来首次参加了在线会议。
 
-郭先生强调：新中国联邦人，不管你有什么信仰，不把父母和家人放在第一位，不把爱和爱人放在第一位，你永远不会是新中国联邦人。家和万事兴。“和”来源于“爱”，没有“爱”就没有“和”；没有“和”，“家”就站立不住；没有“家”，就没有“国”。因此，“家”是“国”的根本。而“爱”是“家”的根本，因此，没有“爱”就不配做新中国联邦人。
+东亚峰会的虚拟会议召开之际，中美之间的紧张关系因南中国海、东海和台湾海峡等问题不断加剧。与此同时，缅甸局势预计将成为东亚峰会的主要议题之一。
 
-文字版原文：[郭文贵先生对新中国联邦人强调“爱”的重要性](https://gnews.org/zh-hans/1618184/)
+拜登的出席凸显美国一直渴望恢复其在该地区的影响力，而中共一直在努力加强与东南亚国家联盟(Association of Southeast Asian Nations)的关系。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+日本首相岸田文雄在峰会结束后向其他国家领导人转达了日本在南中国海和东海海上安全问题上的“坚定立场”。他强调关注中共在新疆涉嫌侵犯人权、香港镇压自由以及台湾面临的安全挑战是重要的。
+
+拜登上周说，如果中共对台湾发动攻击，美国将致力于保卫这个自治的民主岛屿，这显然与华盛顿长期以来在这个问题上保持模棱两可的立场的政策相矛盾。
+
+中共与四个东盟成员国——文莱、马来西亚、菲律宾和越南——以及台湾在南中国海的领土主张存在冲突。南中国海是全球逾三分之一贸易必经的战略水道。中共还声称对尖阁列岛（Senkakus，中共称其为钓鱼岛）拥有主权。外交事务专家说，岸田文雄对中共不顾日本的抗议，频繁派遣海警船到尖阁列岛附近表示担忧。日本和美国的政治领导人已经确认《日美联合公报》第5条，这意味着，如果日本在那里发生冲突，美国将保护日本。
+
+东亚峰会包括东盟，包括文莱、柬埔寨、印度尼西亚、老挝、马来西亚、缅甸、菲律宾、新加坡、泰国和越南，以及澳大利亚、中共国、印度、日本、新西兰、俄罗斯、韩国和美国。
+
+此次，缅甸军事领导人被排除在东亚峰会之外。
+
+参考链接：
+
+[https://english.kyodonews.net/news/2021/10/4625ce59976c-us-china-square-off-over-maritime-security-amid-tensions.html](https://english.kyodonews.net/news/2021/10/4625ce59976c-us-china-square-off-over-maritime-security-amid-tensions.html)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

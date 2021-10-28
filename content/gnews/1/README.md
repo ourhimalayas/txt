@@ -2,86 +2,43 @@
 ---
 
 
-## 人类的改变就在未来的三五年
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1622151/)
+## 郭文贵直播摘要和音频 2021.10.27
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1622274/)
 
-[https://gtv.org/video/id=61736358247c5a3f908e7068](https://gtv.org/video/id=61736358247c5a3f908e7068)
+摘要撰稿人：文俊
 
-**郭文贵**
-**Miles Guo**
+音频提供者： 左媛
 
-只是站在了一个咱们的人道的维度上来看待人类
-It’s just looking at human beings from a humane dimension
 
-当你站在地球（以外）
-When you stand beyond the earth
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-27-at-8.46.07-PM.png)
 
-你看到从银河系, 你看到从那火星拍到地球，小到几乎看不见的程度
-you see from the Milky Way, from Mars, the earth is so mall that it’s almost invisi-ble
 
-再想想银河系，想想太阳系的时候
-Then thinking about the Milky Way and the Solar System again
+### 视频：
 
-你站在多个维度的时候，Eglise 你所有经历的事情
-When you stand on the multiple dimensions, Eglise, that all the things you have experienced
+[视频链接：](https://gtv.org/video/id=6179465deadeb11f5e7b0768)
 
-记住，这些人有一天回感谢你的，
-remember, one day these people will thank you
+### 音频：
 
-你的经历都是有使命的，只要你把它发挥好
-Your experience has a mission, as long as you exert it well
+### 摘要：
 
-而且这些人是不生不死的，我们为这一个维度的人类感到悲哀痛苦
-And these people are immortal, we feel sad and painful for this dimension of hu-manity
+1. 共产党安排的川普股票骗局，会把整个美国川普MAGA支持者很多人会毁在不可回头的路上
+2. 吴征在2年前被刑事调查 涉及六七个常委的家人，就已经涉及川普总统，但吴征并未进行公告
+3. 之所以媒体能把川普踢出 就是因为有垄断 打破垄断最好的方式 就是多家竞争
+4. 为什么75亿人口 全球的右派竟然没有任何发言的地方?
+5. GETTR新功能—私密直播，不仅仅是明星 还有明人 政治家 所有本事就可以开直播 打赏五五分成
+6. GETTR发帖量每天以20%的速度在增长而且质量非常高
+7. GETTR无疑会成为新中国联邦的外交部 也是新中国联邦的大客厅 新中国联邦展示给世界的力量
+8. 美国活动让台湾加入联合国 那美国就能让新中国联邦加入联合国
+9. 川普总统的悲惨结局会挑起7300-8000万 川普总统的支持者对中共和中国人的仇恨
+10. 新GTV重建项目结束时间将延迟到2022年01月30日（联盟公告）
+11. 中共打着共同富裕的幌子收取房地产税 让你买过的房子 负的债 这债再付利息!
+12. 西方有房地产税 因为房和地是属于你的 中国土地是国家的 房地产70年的租赁权 然后要收你房产税
+13. 中共SPAC公司DWAC上市拿下川普总统，下个目标拿下蓬佩奥
+14. 房地产税实现人民币数字化输出革命 输出贫穷 接下来中共一定会再放毒 到明年5月世界经济会大崩溃
+15. 吴征以为他的钱 能买通美国的一切 永远不要相信没有法律没有道德的赢家 这些人的邪恶证明了 它最终要走向灭亡
+16. 11月1日H币上线，11月H-PAY上线，H-PAY上线不超过两个月打赏上线
+17. 星期五，大直播
 
-所以我们要奋斗，但是我们一定要相信多个维度是我们没有解开的谜
-So we have to work hard, but we must truly believe that multiple dimensions are mystery that we have not solved
-
-当新的维度被解开的时候，就像量子电脑，就像生物科技
-When the new dimension is unlocked, it is just like a quantum computer, like bio-technology
-
-就像所有我们要面对的天空科技一样，
-just like all the sky technology we have to face
-
-会把人类的视野和胸怀打到另一个维度的时候
-It will bring human vision and mind to another dimension
-
-一切都是小事，就像你小时候偷吃点糖，被爸妈打一嘴巴一样
-Everything is fig, just like when you were a kid stealing candy and getting slapped face by your parents
-
-当时对你来讲是天大的事，现在想想，就已经忘掉了
-It was a big deal for you at that time, but now think about it, it’s nothing
-
-未来就是这样，这么美好，
-The future is like this, it’s so beautiful
-
-而且人类的所有的改变就在未来的三五年，就在未来的三五年
-And all human changes will be taken place in the next three to five years, just in the next three to five years
-
-我们很幸运，我们就全身的参与
-We are so lucky, we are fully involved
-
-———————————————————
-
-**原视频链接**:[https://twitter.com/se1y7cblljselva/status/1450024870918586368?s=24](https://twitter.com/se1y7cblljselva/status/1450024870918586368?s=24)
-
-Date:10/21/2021
-原视频标题:
-Humanity will change in the next three to five years
-原视频日期：2021/10/17
-任务编号：2606
-视频时间段 : 0:00-1:18
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
