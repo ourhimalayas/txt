@@ -2,51 +2,46 @@
 ---
 
 
-## 盖特将被打造成全球新闻资讯和情报交流集散地
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1623373/)
+## 加拿大魁北克法官就医护工作者强制疫苗令的诉讼举行听证，疫苗令可能再次推迟
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1623535/)
 
-作者：纽约香草山农场文艺部 -宁文静
+**翻译：** 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-28-090135-edited.png)图片来源：网络
+来自CTV NEWS 星期三27日的新闻报道：
 
+蒙特利尔——周三，魁北克卫生保健工作者就疫苗强制令向魁北克高等法院提出了法律诉讼，法官保证即使该省决定进一步推迟下个月设定的最后期限，他也会继续审理。
 
+省政府威胁要从 11 月 15 日起暂停未接种疫苗的医疗卫生系统工作人员的工作，但省长 Francois Legault 在本周提出了推迟截止日期的可能性。 在最初定于 10 月 15 日之后，它已经被推迟了一次。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+高等法院法官 Michel Yergeau 周三开始听取关于禁令的论据，并表示，无论政府做出什么决定，他都将在 11 月 15 日做出决定。 未接种疫苗的卫生保健工作者正在寻求推迟疫苗令，直到他们的法律诉讼完全得到听证。
 
+法庭面临的基本问题是，对拒绝接种的人强制接种疫苗和无薪停职是否合法且符合宪法。对此事的审判要到明年。
 
+代表未接种疫苗的雇员的律师辩称，政府在法律上有义务确保公民受到保护并“保护、维持和改善”医疗卫生服务。
 
-在10月27日的文贵大直播中，郭先生指出，盖特将迎来前所未有的发展机遇，成为全球新闻资讯与情报交流的中心。
+Natalia Manole 辩称，政府决定推迟 10 月 15 日的最后期限，理由是担心医疗服务会中断，这表明实施该法令对民众弊大于利。
 
-郭先生说，川普总统的新媒体，因SPAC公司一系列不合规的操作而面临风险。背后的11家基金公司中，有两家，已经在获取丰厚盈利后退出。DWAC的股价在冲高后，迅速疲软。这将使高位套牢的MAGA心灰意冷，转而投向盖特。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-13.jpg)
-盖特平台在政见方面不分左中右，将吸引越来越多不同意见的人进驻。同时，11月1日，喜币即将上市；一个月后，喜支付将投入使用。对任何最新、最快而真实有用的信息，可以进行打赏，而发布这种有效信息的人或机构，可从中获益。当达到一定的规模时，盖特有望成为全球新闻资讯与情报交流的集散地。
+Manole 以蒙特利尔 Lachine 医院急诊科最近减少服务的情况为例，说明大规模停工会造成的影响。
 
-郭先生透露，盖特投资委员会，将拿出一亿美元广告费，用于盖特在全球的推广。
+她提出了全省不必要的死亡、手术延迟以及长期护理和医院病床关闭的可能性。她对法官说：“你是唯一可以干预以免发生这种情况的人。”
 
-就在昨日，盖特首席执行官杰森米勒先生发消息称，盖特的新注册用户，在过去的24小时内，增加了八十七点七五个百分点。
+在法庭外，她说，如果未接种疫苗的工人被停职，将可能导致“死亡、痛苦、绝对灾难性的情况”，这种无法挽救的伤害发生与否，值得法庭作出判决。
 
-参考链接：
-[2021年4月27号 文贵直播：喜币正式上线，喜联储，喜美元，喜支付，金融支付系统将改变新中国联邦； CCP病毒让印度如同人间炼狱， 但是是真实的；欧日澳美都在迅速觉醒；共产党经济一定很快崩塌，不要成为牺牲品；共产党灭亡前的疯狂，不要让子女成为殉葬品！](https://gtv.org/video/id=60880f7b8aa4fd003f386a90)
+Yergeau 在法庭上指出，政府已经以危险后果为由推迟了上次最后期限。他还提醒 Manole，他须意识到政府是为了公共利益而行事。他告诉法庭，他的职责仅限于评估该疫苗令的合法性，而不是评估其政治价值。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+“如果政府做出了错误的决定，它将不得不对民众做出回应，”法官说。
 
-总编：飞虹
-编辑：Kathy文艺
-校对/发稿：为真不破20
+预计省政府的律师们将在周三晚些时候做出答复。
 
-**更多资讯，更多关注**
+原文链接：[https://montreal.ctvnews.ca/quebec-judge-hears-challenge-to-vaccine-mandate-for-health-care-workers-as-province-mills-second-delay-1.5640606](https://montreal.ctvnews.ca/quebec-judge-hears-challenge-to-vaccine-mandate-for-health-care-workers-as-province-mills-second-delay-1.5640606)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+编辑/发布：LILY
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+20211028
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

@@ -2,26 +2,35 @@
 ---
 
 
-## 秘翻在线：“有啥别有病，没啥别没钱”就是中共国的医疗写照
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1623272/)
+## 欧洲议会将组团访台
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1623365/)
 
-**撰稿：Ping**
+作者：澳喜农场 在远方
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-28-193059.jpg)
-网络上常常会有人吐槽西方的医疗，抱怨其就医速度慢，遇到紧急情况排队只会延误病情。虽然这样制度可能有一定的弊端，但却最大程度保证了公平，不会因为你是政府官员而待遇特殊。那么中共国的医疗体制呢？一个家庭如果有一个人生了大病，这个家庭的经济基本上就破产了。即使小病，进一次医院就扒一层皮。所以，中国有句老话“有啥别有病，没啥别没钱”，这是中共国最真实的医疗写照。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-10月28日，中共媒体报道，中共最高人民法院发布人民法院依法惩处医保骗保犯罪典型案例，最高人民法院刑三庭负责人根据不同犯罪案例，全方位惩治骗保的犯罪行为。
+10月27日的相关报道提及，由欧洲议会“外国干预欧盟民主程序特别委员会”多名议员组成的代表团，计划将于下月初访问台湾。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1028AM（1-5）視頻備用.005.jpeg)
+台湾外交部发言人对欧盟议会代表此次访台表示欢迎。台湾世代智库执行长表示，欧盟还不熟悉中共的干扰信息，必须快速对此作出反应。而台湾是亚洲民主国家应对极权国家干预非常好的例子。据悉，本次欧盟访问团的目的之一，就是要向台湾学习如何面对试图干预或者影响民主进程的势力。
 
-来自国家医保局的数据显示，2018年至2020年，国家医保局等相关部门共追回医保基金348.75亿元，而今年前八个月又已追回医保基金88.12亿元。截至目前，医保局追回的医保基金已达436.87亿元人民币。
+欧盟访台代表团的领队是法国议员莱克斯曼。今年三月，欧盟27个成员国因新疆维吾尔族人遭受大规模迫害对中共国实施制裁，出于报复，中共宣布对包括莱克斯曼在内的10名欧盟人士及4个实体实施发制裁。
 
-关注郭文贵先生爆料的网友们应该对中共国的政治格局不是很陌生了。中共体制内主要就是江派和习派两大阵营。江派执掌中共政权20多年，医疗体系一直牢牢掌控在江派手里。自2013年习近平上台，政治天平开始倾斜，并日趋偏移至习派。中共国的医疗保险基金行业也是一块材料十足的大蛋糕，谁看了不会流口水呢？
+参考链接：[欧洲议会将组团访台 曾遭中国制裁法国议员莱克斯曼领队](https://www.rfa.org/mandarin/yataibaodao/gangtai/hcm2-10272021080514.html)
 
-据郭先生爆料，北大方正与北大的医疗产业关系匪浅，中国平安一度想拿下北大方正，其目的也正是瞄准了中共国医疗的巨大利益。老百姓的救命钱，竟是中共垂涎三尺的大蛋糕。中共国的老百姓到底把命系在了谁的身上，你的钱能救你的命么？
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-我们再反观一下，难道十九大以来追缴回来的医疗保险基金，真的就能用于老百姓么？郭先生爆料，中共国96%的医疗保险是给国家领导干部的，只有4%是用于普通老百姓的。并且中共还推出军队人员及其家属的医疗免费优先政策，这些优惠跟老百姓又多少关系呢？换言之，十九大以来，无论是对金融领域，还是对医疗保险领域的反腐，都只是利益的换手而已。老百姓该怎么活还是怎么活，只能越来越差，老百姓从出生到死亡，中共早就把需要付钱的账单都提前准备好了！
+总编：Irene木木
+编辑：山本不惑
+校正/发稿：我不在这里
 
-**[新闻来源](https://iflow.uc.cn/webview/news?app=uc-iflow&amp;aid=11599413255443281704&amp;cid=1192652582&amp;zzd_from=uc-iflow&amp;recoid=&amp;rd_type=share&amp;sp_gz=0&amp;pagetype=share&amp;btifl=100&amp;uc_share_depth=1&amp;uc_param_str=dndsfrvesvntnwpfgipc)**
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

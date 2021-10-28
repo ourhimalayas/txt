@@ -2,10 +2,18 @@
 ---
 
 
-## 10/27/2021 文贵直播：DWAC股票大涨大跌的背后操纵者就是吴征代表的共产党，蒙受损失的都是川普总统的支持者
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1623457/)
+## 西媒头条 — 第97期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1623589/)
 
-秘密翻译组-北美组
+制作：蚂蚁兄弟
+
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1028.001.jpeg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
 
  
 
