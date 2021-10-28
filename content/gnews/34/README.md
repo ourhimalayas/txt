@@ -2,34 +2,35 @@
 ---
 
 
-## 蓬佩奥称习知道拜登没有捍卫美国的利益
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1622367/)
+## 针下亡魂｜澳洲 56 岁电台主持人接种疫苗两个月后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1622426/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 27/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/P-11.jpg)news24x7world.com
-新中国联邦的亲密战友、反共灭共先锋蓬佩奥前国务卿指责拜登对中共的怯懦，《布雷特巴特》（Breitbart）发表文章，题目是“蓬佩奥：习近平知道乔拜登没有捍卫美国的利益”。
+【澳洲】一位任职于美国广播公司（ABC）的电台主持人兼记者 Russell Woolf 在接种阿斯利康 COVID-19 疫苗的两个月后死亡。
 
-全文如下：
+Russell 8 月 19 日发推特表示自己于当日接种了阿斯利康第二针疫苗，并对此感到开心，二个月后，即 10 月 26 日他被发现死于寓所，相信是在夜晚睡觉时突然猝死。
 
-周二（10月26日），在《福克斯新闻频道》（FNC，Fox News Channel）的“英格拉姆角度”（The Ingraham Angle）节目中，前国务卿迈克·蓬佩奥警告乔·拜登正在向中共国明示，拜登政府制定的政策不一定符合美国的最佳利益。
+Russell 是 ABC Radio Perth 早餐节目的王牌主持人，工作了20多年，对于他的突然离世，他的同事 Geoff Hutchison 表示相当震惊，他指出，“同事们都十分惊愕，因为 Russel 没有潜在的健康问题，他一直是充满活力、热情、有趣、善于社交的人。”
 
-蓬佩奥告诉主持人劳拉·英格拉姆（Laura Ingraham），中共习近平主席意识到了这一点，并利用它为自己获利。
+州长 Mark McGowan 亦在推特上表示自己对这一消息“深感悲痛”，同时向 Russel 在西澳新闻界的“漫长而传奇的职业生涯”表达了敬意。
 
-他说：“我认为（习近平）相信，在他对面坐着的领导人，他不会捍卫美国利益、不会明确阐述美国优先的政策愿景。我认为拜登觉得他在谈交易，他可以推动并达成一项协议，（实际上）这将帮忙中国共产党，而伤害美国人民。坦率地说，对大多数中共国人来说也是一种伤害，这肯定不符合美国的最佳安全利益，我认为习想和拜登坐下来交易的原因是如果这样做他可以为自己的团队达成一笔丰厚的回报。”
 
-（原文完）
 
-认清中共的邪恶是一个方面，认清拜登的怯懦也是一个方面，更需要对拜登政府进行全面了解。今天文贵先生在大直播中提到，也许拜登在给中共打马虎眼，满足你中共的部分要求，但在助力台湾加入联合国。台湾能加入，新疆、西藏也能加入，新中国联邦加入联合国也会被提上议事日程。
+> I was deeply saddened to hear of the passing of local media legend, Russell Woolf.
+> 
+> Most recently, Russell was the host of [@abcperth](https://twitter.com/abcperth?ref_src=twsrc%5Etfw)'s Breakfast program, but he had a long and storied career in Western Australian journalism.
+> — Mark McGowan (@MarkMcGowanMP) [October 26, 2021](https://twitter.com/MarkMcGowanMP/status/1452805518611791878?ref_src=twsrc%5Etfw)
 
-文贵先生在下一盘大棋，新中国联邦必将站在历史的焦点上。
 
-（文章仅代表作者个人观点）
 
-原文链接：
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/10/51_0.jpg)
+來源｜[個案051](https://www.australiannationalreview.com/health/abc-perth-host-and-journalist-russell-woolf-dies/)
 
-[https://www.breitbart.com/clips/2021/10/27/pompeo-xi-jinping-knows-joe-biden-not-defending-americas-interests/](https://www.breitbart.com/clips/2021/10/27/pompeo-xi-jinping-knows-joe-biden-not-defending-americas-interests/)
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//
 
  
 

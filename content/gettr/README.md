@@ -17,10 +17,10 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 10/28/2021 5:31 AM (UTC)`
+`@miles 10/28/2021 8:08 AM (UTC)`
 
-10/27/2021 Miles Guo: The issue of DWAC indicates the scams and criminal offenses committed by Bruno Wu on behalf of the CCP, and this is the greatest gift to the New Federal State of China and will expose the CCP’s infiltration, fraud, and conflict of interest among the lawyers, and in the prosecutors and courts in the US<br/><br/>10/27/2021 文贵直播：DWAC事件证明了代表中共的吴征在美国进行的欺骗和刑事犯罪，这是给新中国联邦带来的最大礼物；它将揭穿中共在美国律师界、检察官和法院的渗透、造假和利益冲突的内幕<br/>
-![img](https://media.gettr.com/group47/getter/2021/10/28/05/31/b4b8af90-bd70-974f-397c-07d00026b7d0/out.jpg)
+10/27/2021 Miles Guo: The DWAC incident has caused numerous small investors who support President Trump to be swindled by Bruno Wu, and this will further provoke their hatred towards the CCP and even the Chinese people; Bruno Wu’s deceptive and cunning nature is the best proof of how vicious and how low the CCP really is<br/><br/>10/27/2021 文贵直播：DWAC事件导致支持川普总统的众多小投资者的钱被骗走，这会挑起他们对中共甚至中国人的仇恨；吴征的欺骗和狡诈的本性恰恰佐证了中共真坏、真Low<br/>
+![img](https://media.gettr.com/group30/getter/2021/10/28/08/08/4aa293bf-123e-d307-d8a9-2ae12dcdf302/out.jpg)
 
 ---
 

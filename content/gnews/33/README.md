@@ -2,31 +2,30 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月27日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1622397/)
+## 日媒看破“恒大‘开工秀’”是为了撑面子
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1622561/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-412.png)
+#### 撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-83.png)（图片源自本文链接）
+10月28日【NNA】报道：26日，陷入金融危机的大型房地产开发商–中国恒大集团旗下的恒大实业集团珠三角房地产（广东省广州市）宣布，将积极把停滞不前的住房建设工作正常化，以移交已售房产。会上展出了全省各地建筑工地的照片，以显示其住房建设还在继续进行。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/text-SC-16.png)
-文章仅代表作者本人观点，与Gnews无关
+这一消息是通过聊天应用程序 “微信 “的官方账户披露的。在其微信账户上发布的照片显示了广州、肇庆和其它城市的七个建筑工地，说这些照片是在25日拍摄的，目前，广州、肇庆以及佛山、阳江、清远、惠州、海源等地的40多个楼盘的建设工作已经正常进行。
 
-视频参看： 2021.10.27晚GTV新闻访谈
+中国恒大董事长许家印于10月22日宣布了重组公司业务的 “三管齐下战略”。称公司将尽一切努力恢复暂时停工的建设工作，以移交尚未完工的已售房产。
 
-[https://gtv.org/broadcast/watch/6179ee9beadeb11f5e7b582a](https://gtv.org/broadcast/watch/6179ee9beadeb11f5e7b582a)
+**许家印的富豪榜排名暴跌至第70位**
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+据网络媒体《澎湃新闻》报道，在民间智库胡润研究院10月27日发布的2021年大中华区富豪榜中，许家印的排名从去年的第五位骤降至第70位。从2350亿元（4.2万亿美元）减少到730亿元，他的资产减少到不及之前的三分之一。许家印是排行榜前五名的常客，并在2017年名列榜首。今年的排名证实了中共国房地产行业的挣扎，没有一家房地产老板能跻身前十名。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+恒大的这个展示，完全是硬撑面子死扛的表现。这点，连难懂中共国式猫腻儿的外媒都看明白了。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[信息源](https://news.yahoo.co.jp/articles/1c893808439c7d1f28aab07e394d2e3f6728b112)
 
+(文章仅代表作者本人观点，与GNEWS无关)
+
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

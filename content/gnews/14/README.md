@@ -2,48 +2,33 @@
 ---
 
 
-## 维多利亚州实施更严格的疫苗豁免规定
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1622728/)
+## 拜登誓言与亚洲一起捍卫自由 抨击中共威胁台湾
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1622764/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/biden-1.jpg)资料图片：2021年10月25日，美国新泽西州Kearny，拜登在活动现场发表讲话。REUTERS/Jonathan Ernst
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/211007-ms-daily-vaccine-religious-exemptions-2x1-cs.jpg)
+编辑摘要：据路透社10月27日报道，美国总统拜登出席线上东亚峰会，表示美国将与他们一起捍卫海洋自由和民主，并称中共国针对台湾的行动对和平与稳定构成威胁。
+
+东南亚已经成为美国和中共国之间的战略战场。拜登重申美国对台湾的承诺“坚如磐石”。根据1979年的一项法律，美国承诺向台湾提供自卫手段。拜登上周称，如果台湾受到中共国大陆的攻击，美国将进行保护。
+
+中共临近灭亡，垂死挣扎，台湾危在旦夕。中共想要武力攻台，不仅台湾的安全受到威胁，印太地区的安危也难以保全。希望美国的承诺坚如磐石。
+
+新闻参考链接：
+
+[焦点：拜登誓言与亚洲一起捍卫自由 抨击中国对台湾的胁迫行动](https://cn.reuters.com/article/east-asia-summit-us-biden-tw-1028-idCNKBS2HI03Q)
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-图片来源：msnbc.com
-
-
-#### 编译：小红帽
-
-澳大利亚维多利亚州将收紧对中共病毒（ COVID-19 ）疫苗接种的医疗豁免规定，以打击民众选择医生和向全科医生施压要求豁免接种疫苗的行为。
-
-在全州范围进一步放宽限制前一天，77.5%的16岁以上人群现已完全接种疫苗，92.1%的人已经接种了第一剂疫苗。
-
-从周五开始，随着首席卫生官收紧医疗豁免要求，人们将更难避免接种中共病毒疫苗。
-
-从周五下午6点开始，维州人需要在澳大利亚免疫登记处填写一份豁免表格，才能通过myGov网站获得豁免证书。该证书可作为他们在医学上免于接种疫苗的证明。
-
-此外，临床医生将收到一份指导表格，其中明确列出了澳大利亚技术咨询小组的许可医疗豁免清单。
-
-当前持有非AIR表格的豁免函的人需要返回给他们的医生，以便在11月12日之前代表他们提交表格。
-
-与此同时，当周五下午6点限制措施放宽时，墨尔本市区的人们将被允许前往各地区和州际旅行。
-
-除其他规则变化外，户外不需要戴口罩，非必要的零售店将重新开业，接待场所将允许更多人进入。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Tougher vaccine exemption rules for Vic (msn.com)](https://www.msn.com/en-au/news/australia/tougher-vaccine-exemption-rules-for-vic/ar-AAQ1etT?ocid=msedgntp)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

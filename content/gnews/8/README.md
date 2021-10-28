@@ -2,33 +2,33 @@
 ---
 
 
-## 拜登誓言与亚洲一起捍卫自由 抨击中共威胁台湾
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1622764/)
+## 秘翻在线：媒体掩盖真相，巴西总统又遭封杀
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1622802/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/biden-1.jpg)资料图片：2021年10月25日，美国新泽西州Kearny，拜登在活动现场发表讲话。REUTERS/Jonathan Ernst
+#### 撰稿：彩虹       
 
-编辑摘要：据路透社10月27日报道，美国总统拜登出席线上东亚峰会，表示美国将与他们一起捍卫海洋自由和民主，并称中共国针对台湾的行动对和平与稳定构成威胁。
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-482.png)图片来源：NBC News
+综合《国会山报》、《美联社》、《法国24电视台》和《路透社》的报道，10月26日（周三），面对世界暗黑势力和巴西内部邪恶势力的进攻，巴西总统雅伊尔·博尔索纳罗（*Jair Bolsonaro*）要求最高法院阻止可能对其进行的社交媒体封杀行动。
 
-东南亚已经成为美国和中共国之间的战略战场。拜登重申美国对台湾的承诺“坚如磐石”。根据1979年的一项法律，美国承诺向台湾提供自卫手段。拜登上周称，如果台湾受到中共国大陆的攻击，美国将进行保护。
+根据报道，巴西参议院的一个调查委员会以他传播中共病毒（COVID-19）的“错误信息”为由，寻求将他从社交媒体平台上暂停，并且该报告要求以九项指控起诉他（包括反人类罪）。
 
-中共临近灭亡，垂死挣扎，台湾危在旦夕。中共想要武力攻台，不仅台湾的安全受到威胁，印太地区的安危也难以保全。希望美国的承诺坚如磐石。
+本周早些时候，博尔索纳罗的一段视频被Facebook(脸书)和Youtube（油管）删除，在该视频中，博尔索纳罗引用英国的新闻报告，指出接种疫苗的人更容易感染艾滋病。
 
-新闻参考链接：
+对此，Facebook以违反其传播错误信息的政策为由删除了这一视频。而Youtue则更为无耻地说：“我们的政策不允许声称羟氯喹和/或伊维菌素对治疗或预防COVID-19有效的内容，声称COVID-19有保证治愈的内容，以及声称口罩对防止病毒传播不起作用的内容。”
 
-[焦点：拜登誓言与亚洲一起捍卫自由 抨击中国对台湾的胁迫行动](https://cn.reuters.com/article/east-asia-summit-us-biden-tw-1028-idCNKBS2HI03Q)
+在对博尔索纳罗发起的攻击中，巴西部分参议员要求无限期禁止他进入YouTube、Twitter、Facebook和Instagram。此外，这些参议员还呼吁当局解除对博尔索纳罗社交媒体账户的数据保密，禁止他登录，并命令Facebook 和Twitter以及YouTube所有者谷歌例行提供有关总统使用情况的秘密信息。
 
-* * *
+据路透社报道，鉴于接待参议院调查委员会的巴西最高检察官是由总统任命的，博尔索纳罗可能不会面临任何实际惩罚。
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+**新闻来源**
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+1. [Bolsonaro asks Brazil’s Supreme Court to block possible social media suspension](https://thehill.com/policy/international/578845-bolsonaro-asks-supreme-court-to-block-possible-social-media-suspension)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+2.  [Brazil Senators ask high court to bar Bolsonaro from social media](https://www.france24.com/en/live-news/20211026-brazil-senators-ask-high-court-to-bar-bolsonaro-from-social-media)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+3.  [Bolsonaro asks Supreme Court to intervene to avoid social media suspension](https://www.reuters.com/article/us-brazil-politics-bolsonaro-idUSKBN2HH2VH)
 
  
 

@@ -2,37 +2,30 @@
 ---
 
 
-## 视频| &#8220;我们不服从!&#8221;: 纽约市政员工10/25大游行，抗议疫苗强制令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1622423/)
+## 解放军武装直升机首次“扰台”，应为夺岛登陆战术做实地验证
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1622628/)
 
-制作：香草山视频部
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/32-2.png)[图片来源](https://news.ltn.com.tw/news/politics/breakingnews/3716709)
+台湾防务部门10月26日晚发布“即时军事动态”称，当天共有7架中共军机进入台湾“西南防空识别区”，其中，不仅有运8系列战机以及歼16战机这样多次常态化扰台的空军主力战机，还有解放军陆军航空兵的武直-10以及米-17直升机。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+台媒声称，武直-10和米-17均为首次进入台“防空识别区”。
 
+值得注意的是，在此次巡航台湾西南空域的解放军军机中，首度出现了武直-10和米-17这样军用攻击、运输直升机。这种新变化也引起了台湾方面的广泛关注，台“空军前副司令”张延廷就表示，大陆军用直升机出海一定要有一个“前提”，就是已经掌握制空权，如果没有掌握台海的制空权，直升机出海很容易变成“活靶子”。
 
+据此前公开报道，武直-10直升机已多次执行海上相关演习，演练了包括超低空编队突防，夜间海上攻击舰船，乃至火力攻岛等科目。今年9月份，第73集团军某陆航旅的多型直升机分队还在闽南某海域进行了跨昼夜实弹射击演练。其中，就有武直-10直升机自主规划攻击航线、搜索目标、选择射击弹种，对海面、岛礁、空中等目标精确打击的科目。
 
+与固定翼飞机相比，由于直升机飞行高度低、速度慢、时间和距离短，加之自身防卫能力较弱，中共在对台攻击时主要用于夺岛登陆作战使用，基本可以推定，此次解放军陆航武直10以及米17运输直升机编队首现台岛周围，是在为夺岛登陆战术做实地验证。
 
+信息来源：
 
+[大陆武装直升机首次巡航台西南空域 军事专家：解放军在该空域进行训练已得心应手](https://news.sina.com.cn/c/2021-10-27/doc-iktzqtyu3877098.shtml)
 
+(文章仅代表作者本人观点，与GNEWS无关)
 
-
-
-*发稿：雪梨*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
+*校对：东京樱花团/上善若水
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
