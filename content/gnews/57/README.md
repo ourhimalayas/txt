@@ -2,34 +2,39 @@
 ---
 
 
-## 纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1534601/)
+## 习近平准备为中国经济踩刹车：他有什么计划？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1619755/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-CN.jpg)
-[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
+编译：蚂蚁兄弟
 
-[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-9-5.jpg)图片来源：rfa.org
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-001-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-002-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-003-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-004-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-005-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-006-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-007-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-008-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-009-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-010-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-011-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-012-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-013-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-014-scaled.jpg)
+中共国的经济在上个季度的增长低于预期。习近平似乎准备进行结构性改革,以确保“共同富裕”。
 
+2021年第三季度，中国的GDP同比增长4.9%，比前一时期少了高达三个百分点。对于世界第二大经济体，也是唯一在大流行病期间扩张的主要经济体，这是一个大问题。它现在有可能错过6%的年度增长目标。通常情况下，这种急剧放缓会使中共陷入困境。但这一次，习近平知道这是他必须为他的宏伟计划付出的代价，即以牺牲中共的传统经济口号“高增长高于一切”来遏制日益严重的不平等和促进中产阶级大幅增长。
 
-[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
+为什么现在GDP增长放缓了？首先，煤炭价格上涨，气候政策导致的能源消耗标准收紧，以及进口许多中共国产品的国家的需求上升，这些因素共同导致了能源危机，可能会加剧严重依赖中共国的全球供应链的中断。另一方面，习近平对房地产行业过度负债的打击–该行业占中国经济活动的近30%，但其赤字大到构成系统性风险。恒大和其他大型房地产开发商错过了向债权人付款的最后期限，并停止了他们已经出售但，因缺乏流动资金而无法建造的住房项目。最后，还有大流行病本身：在这个世界上唯一，一个仍然相信零疫情的国家。但当地的严格管控政策，已经伤害了中共国的零售业和旅游业。
 
-[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
+中国领导人认为，经济放缓，无论现在多么痛苦，从长远来看都是值得的，因为经济需要结构性改革来缩小工资差距，实现习近平所说的“共同富裕”。在两个月前震惊商界的一次演讲中，习近平确认“共同繁荣”意味着大幅扩大中国的中产阶级，从表面看是通过提高富人的税收来实现这一目标。他“希望”这些财富中的一部分能够被重新分配，使中国成为一个更加平等的社会。最富有的1%的人已经开始强制执行这个政策，习近平对科技部门下手的时候，只要提到监管“收入过高的企业家”，就会促使几位首席执行官立即捐出数十亿美元。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+但这是一个冒险的举动。将经济活动降低到美国或德国等成熟经济体的2-3%的年增长水平，对中国来说将是一个困难的平衡行为。长期的缓慢增长可能会阻止投资，如果失业率上升，会导致社会动荡。同时，鉴于中国在全球经济中的巨大作用，中国的经济增长放缓将对世界其他地区产生严重影响。所谓的“世界工厂”可能会继续出口，但不会像以前那样多，而且更多的产品将具有高技术价值。本地企业也可能将更多的生产外包，给成本较低的邻国，如孟加拉国或缅甸，随着时间的推移，中国制造的大多数产品将变得更加昂贵。习近平的“共同富裕”理念对中国的巨大经济来说有很多风险。但如果他兑现了承诺，将会看到他在未来很长一段时间内掌权。
 
-+4
+**简评：**
+
+**对于中共国经济即将发生的衰退，在西方的各大媒体都有所评论。但是西方媒体看不到的是中共国内部真实的情况。对于“共同富裕”的概念的提出，只不过是习在中共内部斗争，争取大多数穷人，所提出的一个口号而已。中共国的红色家族及其代理人，几乎完全掌握着中共国所有的财富。中共的内部斗争，也是对这些财富的争夺。在中共治下的中国，根本就没有所谓的“共同富裕”，这只不过是中共所编织的又一个“美丽的童话”罢了。**
+
+**中共自建党之初就打着“民主”的口号，直至建国之后又打着“社会主义”的口号把中国百姓折腾的死去活来。现今，已经成为世界上第二大经济体的中共，月收入在一千元一下的百姓，竟然高达六亿之多。而中共每一年还要依靠着百姓去供养着世界上最大的行政体系。**
+
+**“共同富裕”？只是政治斗争和重新掠夺财富的又一种借口罢了。而中共国的经济，已经走向了崩溃的边缘。**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**参考资料：**[elconfidencial][Xi Jinping está dispuesto a echar el freno a la economía china: ¿Cuál es su plan?](https://www.elconfidencial.com/mundo/2021-10-22/china-economia-evergrande-crecimiento-igualdad_3310024/)
+
+* * *
+
+*审核：Aries的星*
+*校对：信心满满*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)

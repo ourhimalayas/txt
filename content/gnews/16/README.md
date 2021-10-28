@@ -2,43 +2,26 @@
 ---
 
 
-## 因声称病毒是自然产生而获100 万美元奖励
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1622649/)
+## 涉嫌协助中共侵犯新疆人权，美国零售商停售大华和海康威视监控产品
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1622710/)
 
-作者：纽约香草山农场 文易 – Rikki
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-84.png)[图片来源](https://www.epochweekly.com/b5/613/19080.htm)
+据美国媒体周二(26日)报导，家得宝(Home Depot)、百思买(Best Buy)和劳氏公司(Lowe’s)等美国大型连锁零售商，已将中共国公司大华科技(大华股份,002236.SZ)及海康威视(002415.SZ)旗下两个品牌的安防摄像机及监视设备下架。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+报导指出，被下架的品牌包括大华科技旗下的Lorex，以及海康威视的Ezviz。大华科技及海康威视两家企业，于2019年被美国政府列入经济黑名单，指其参与大规模监控新疆维吾尔族穆斯林的行动。
 
-曾在《柳叶刀》医学杂志 COVID-19 起源调查委员会任职的马里克佩里斯Malik Peiris 博士因研究证实了中国共产党关于 COVID-19 自然演变的错误结论而获得了中国的“诺贝尔奖”。
+家得宝在回应媒体询问时表示，公司致力维护道德采购的最高标准，在留意到此议题后立即停止贩售Lorex的产品；百思买则简单表示，公司已结束与Lorex和Ezviz的关系。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-2.jpeg)
+信息来源：
 
-Peiris 佩里斯是一名在香港工作的斯里兰卡病毒学家。他曾参与《柳叶刀》调查 COVID-19 起源工作。他参与该项工作后，被中国共产党授于2021年生命科学奖 – 该奖被称为中国的“诺贝尔奖”，由百度、高瓴资本和红杉资本等与中共有关的公司资助，包含 100 万美元奖金。
+[涉侵害新疆人权美国零售商停售中国制监视器](https://www.bannedbook.org/bnews/cnnews/20211027/1644115.html)
 
-（本文仅代表作者观点）
+(文章仅代表作者本人观点，与GNEWS无关)
 
-参考阅读：
-
-1. [https://thenationalpulse.com/exclusive/lancet-covid-investigator-wins-china-nobel-prize/](https://thenationalpulse.com/exclusive/lancet-covid-investigator-wins-china-nobel-prize/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-3.jpeg)
-
-***编辑：木白***
-***校对/发稿***：***海阔天空1***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+*校对：东京樱花团/上善若水
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
