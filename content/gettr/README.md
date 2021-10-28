@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/28/2021 11:06 PM (UTC)`
+
+10/28/2021 Miles Guo’s GETTR: As I predicted, massive arrests and killing are happening in the CCP’s Central Political and Legal Affairs Commission and the Central Commission for Discipline Inspection; Tsai Ing-wen’s interview with CNN revealed that U.S. troops have been stationed in Taiwan, but where is the CCP’s “cuckold” General Wang Hongguang who threatened to invade Taiwan?<br/><br/>10/28/2021 文贵盖特：如文贵爆料所说，国内政法委、中纪委系统已血雨腥风；台湾蔡英文接受CNN采访透露美军已进驻台湾，中共所谓的绿帽子王将军在哪儿呢？<br/>
+![img](https://media.gettr.com/group44/getter/2021/10/28/23/06/a968ccc1-5b14-1b3a-025f-7f3ea40707fc/out.jpg)
+
+---
+
+`@miles 10/28/2021 11:01 PM (UTC)`
+
+10/28/2021 Miles Guo’s GETTR: Global financial sector and MSM didn’t buy the story of that SPAC; on the contrary, the GlobalFoundries (Nasdaq: GFS) receives positive reaction on the capital market, even said so, most of the listing company’s profits were taken away by underwriters and Lao Baixing or deplorables have no way to participate in its pre-IPO financing<br/><br/>10/28/2021 七哥盖特：世界金融圈和主流媒体对SPAC反应冷淡；而今天NASDAQ上市的格芯公司(Nasdaq: GFS)受到热捧，但公司上市的主要利润都被华尔街投行拿走了，根本没草根们什么事儿<br/>
+![img](https://media.gettr.com/group6/getter/2021/10/28/23/01/7d61137e-b7b5-0cd9-9454-0b325d142f9b/out.jpg)
+
+---
+
 `@miles 10/28/2021 3:51 PM (UTC)`
 
 <br/>10月28日：这才是真正的赚钱的机会……
@@ -286,20 +300,6 @@ Digital World Acquisition Group and Yunhong International<br/><br/>https://gnews
 
 疫苗的灾难
 ![img](https://media.gettr.com/group2/getter/2021/10/24/15/29/b9b52458-697e-babf-4aa9-563f6c207a6c/956a4e949acaaafad8f38c0374f8db5d.jpg)
-
----
-
-`@miles 10/24/2021 3:24 PM (UTC)`
-
-投资川普媒体的SPAC人物关系结构解读
-![img](https://media.gettr.com/group42/getter/2021/10/24/15/0a429079-8b10-ef8d-4f14-4c74d2538b00/6535a1160fda04a223c11c7c0f14e285.jpg)
-
----
-
-`@miles 10/24/2021 3:20 PM (UTC)`
-
-恒大偿还外债利息得延期，意味着什么？
-![img](https://media.gettr.com/group24/getter/2021/10/24/15/2c3e2235-a8a9-4b14-a1eb-37cb037292a6/49ab0c8826c8820fca10be29e449d6bc.jpg)
 
 ---
 
