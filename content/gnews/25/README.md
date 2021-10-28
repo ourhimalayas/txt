@@ -2,44 +2,57 @@
 ---
 
 
-## GlobalFoundries 于周四在纳斯达克敲响了开盘种
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1624282/)
+## 拜登行政部要求将维基解密创始人朱利安阿桑奇引渡到美国
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1624322/)
 
-编译：西班牙喜悦农场–wenwu
+作者：Ian Miles Cheong
+翻译： HimaCoby
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-7-7.jpg)GlobalFoundries 于 2021 年 10 月 28 日在纳斯达克首次公开募股后敲响了开盘钟。 ROHINI SHAHRIAR/纳斯达克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Assange.png)
 
-东部时间上午 11:51，GlobalFoundries [GFS， -3.74%](https://www.marketwatch.com/investing/stock/GFS?mod=MW_story_quote) 股价下跌并触及盘中低点 44.50 美元，最后下跌约 3% 至 45.61 美元。周三晚些时候，这家总部位于纽约的马耳他（Malta）的公司将股票定价为[每股 47 美元](https://www.marketwatch.com/story/globalfoundries-prices-ipo-at-47-a-share-for-25-billion-valuation-11635382866?mod=home-page&amp;mod=article_inline)，是其[预测范围的上限](https://www.marketwatch.com/story/globalfoundries-sets-ipo-terms-and-could-be-valued-at-over-25-billion-2021-10-19?mod=article_inline&amp;mod=article_inline)。
+拜登政府已正式请求英国允许将维基解密创始人朱利安·阿桑奇引渡到美国。
 
-GlobalFoundries 是一家第三方硅晶圆代工厂，在行业中被称为制造工厂或“晶圆厂”。
+请愿书要求英国高等法院推翻法官关于阿桑奇不会被引渡到美国面临间谍指控的决定。拜登政府向高等法​​院承诺，阿桑奇可以在他的祖国澳大利亚服刑。
 
-像 GlobalFoundries 这样的第三方晶圆厂是为大多数没有自己晶圆厂的芯片制造商，来生产硅晶圆——这些公司包括 Advanced Micro Devices Inc.  [AMD、 -1.15%](https://www.marketwatch.com/investing/stock/AMD?mod=MW_story_quote),  苹果公司  [AAPL, 2.32%](https://www.marketwatch.com/investing/stock/AAPL?mod=MW_story_quote)  和英伟达公司  [NVDA， 1.02%](https://www.marketwatch.com/investing/stock/NVDA?mod=MW_story_quote) 事实上， GlobalFoundries 是 AMD 的一个分拆公司，当时该公司想退出晶圆厂业务。
+今年 1 月，一名英国下级法院法官拒绝了美国以间谍罪名引渡阿桑奇的请求。美国坚称，阿桑奇在维基解密上发布秘密军事文件之前就从事间谍活动，这些文件揭露了美国政府在伊拉克持久行动期间的行为。
 
-GlobalFoundries 区别于其他第三方晶圆厂，如台积电 [TSM、 1.41%](https://www.marketwatch.com/investing/stock/TSM?mod=MW_story_quote) 和中国半导体制造国际公司  [688981， +0.22%](https://www.marketwatch.com/investing/stock/688981?countryCode=CN&amp;mod=MW_story_quote) 因为它不依赖台湾或中国，因为两者之间的敌对行动对美国的战略供应来说将是一个巨大的问题。
+在美联社报道说地方法院法官巴雷策拒绝阿桑奇的引渡是由于健康原因，认为他很可能会杀死自己，如果他在美国监狱。
 
-该公司首次公开亮相之际，全球正在努力解决全球芯片短缺的问题，晶圆厂有长期的客户积压（例如：台积电），但[就收益而言，](https://www.marketwatch.com/story/busy-ipo-market-this-week-may-make-2021-the-biggest-year-for-proceeds-and-break-previous-record-by-30-11631554372?mod=article_inline) IPO 是其[有史以来最大的市场之一](https://www.marketwatch.com/story/busy-ipo-market-this-week-may-make-2021-the-biggest-year-for-proceeds-and-break-previous-record-by-30-11631554372?mod=article_inline)。
+维基解密告密者切尔西曼宁获释前在军事监狱中被单独监禁数月而臭名昭著。曼宁的刑期随后在其总统任期的最后几天被前总统巴拉克奥巴马减刑。
 
-**简评：**
+美国政府律师詹姆斯刘易斯周三辩称，法官认为阿桑奇的心理健康过于脆弱而无法承受美国监狱的结论是错误的，他认为这位阿桑奇“没有严重和持久的精神疾病史”，并且危险。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-12-5.png)图片来源于火来2号战友的推文
+该律师表示，美国政府承诺不会将阿桑奇关押在“超级监狱”或单独监禁。律师说，如果被定罪，阿桑奇将被允许在澳大利亚服刑，并补充说这些保证“对美国具有约束力”。
 
-一则相关[报道](https://www.reuters.com/article/globalfoundries-ipo/globalfoundries-shares-open-flat-on-nasdaq-debut-valuing-chipmaker-at-26-bln-idUSL4N2RO51K)。
+“一旦确定提供适当的医疗护理，一旦确定他将被遣返回澳大利亚服刑，那么我们可以有把握地说，地区法官不会像他那样决定相关问题，”他说。
 
-**周四，阿布扎比主权财富基金穆巴达拉投资公司(Abu Dhabi’s sovereign wealth fund Mubadala Investment Co)拥有的GlobalFoundries Inc的股票在纳斯达克平开，使这家芯片制造商（GFS）的市值达到约260亿美元。**
+爱德华·菲茨杰拉德在法庭上代表阿桑奇说，如果阿桑奇被定罪，澳大利亚还没有达成任何此类协议。他补充说，即使澳大利亚同意，美国的法律程序也可能需要长达十年的时间。他说，在那段时间，阿桑奇将被迫在美国监狱中忍受“极端孤立”。
 
-**火来战友（[@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1/status/1453764205396434948?s=20)）在推特上也表示，郭文贵先生曾讲过，格芯上市那一天，注意看看照片上都有谁。最近知识点有点多，大家别落下功课啊。**
+菲茨杰拉德指责美国试图“将阿桑奇精神障碍的严重程度和自杀风险降到最低”。
 
-（文章仅代表作者观点与GNEWS无关）
+他的律师说，阿桑奇目前被关押在伦敦戒备森严的贝尔马什监狱，原定通过视频会议参加听证会，但在服用高剂量药物后被迫跳过诉讼程序。
 
-**新闻来源：**[Market Watch] [GlobalFoundries stock slips in trading debut after company’s IPO priced at high end of range](https://www.marketwatch.com/story/globalfoundries-stock-slips-in-trading-debut-after-companys-ipo-priced-at-high-end-of-range-11635436717) | 作者：Wallace Witkowski｜发布时间：2021年10月28日
+集体抵达的抗议者表达他们对朱利安·阿桑奇的支持为听证会奠定了基础，其中包括著名的中国持不同政见者艾未未，艾未未告诉*美联社*，此案“与我​​们的社会有关，与我们的言论自由有关，它涉及为了我们个人的人权，我们必须关注政府。”
 
-* * *
+阿桑奇的搭档斯特拉·莫里斯告诉媒体，她担心阿桑奇的健康状况，称“完全不可想象”英国法院会同意引渡。
 
-*发稿：信心的选择*
+莫里斯补充说：“我希望法庭能结束这场噩梦，朱利安很快就能回家，才是明智決定。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
+來源：[https://www.rebelnews.com/biden\_admin\_requests\_extradition\_of\_wikileaks\_founder\_julian\_assange\_to\_the\_us](https://www.rebelnews.com/biden_admin_requests_extradition_of_wikileaks_founder_julian_assange_to_the_us)
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
 
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

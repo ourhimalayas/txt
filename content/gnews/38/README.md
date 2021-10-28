@@ -2,43 +2,36 @@
 ---
 
 
-## 新加坡疫苗覆盖超八成 单日染疫暴增5324例
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1623681/)
+## 中共国出现“柴油荒”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1623781/)
 
-**By:秘翻新闻**
+作者：澳喜农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月25日，中共国家发改委宣布，将进行新一轮成品油调价。继“电荒”及“媒荒”之后，中共国又出现了“柴油荒”。
 
-***2021-10-28***
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/1028-2.jpg)](https://gtv.org/broadcast/watch/617a65efeadeb11f5e7b67d5)点击图片观看视频
-**新闻摘要:**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9-5.jpeg)
 
-1.房产税即中共的掘墓税 吴征是新中国联邦灭共的“功臣”
+消息称，中共国的汽油、柴油每吨将分别上涨300元和290元人民币，这是今年第14次涨价。同时，墙内各地的加油站仍然给柴油车限量加油，甚至出现拒绝加柴油的情况。对此，民众纷纷表示，柴油紧张对日常生活，特别是货物运输的影响很大。
 
-2.吉林居民曝取暖费大幅上涨：不补交就停暖
+有分析指出，限电措施让更多企业使用柴油发电，因而导致柴油供应紧张。另外，柴油也是中共海军和远洋货轮的动力。为此，中共政府首先要满足战略用油储备，同时要满足出口集装箱货轮的用油需要——这是中共的一贯做法，每当能源危机时，中共永远优先军方需求，而至民生于不顾。
 
-3.明年起军人配偶免费医疗 网友：有大事要发生
+参考链接：[中国各地柴油紧缺现抢购潮 学者：首先确保海军舰船柴油充足](https://www.rfa.org/mandarin/yataibaodao/jingmao/ql1027a-10272021051820.html)
 
-4.香港进入国安禁片年代
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-5.傅政华被撤销中共全国政协委员资格
+总编：Irene木木
+编辑：山本不惑
+校正/发稿：谐趣园
 
-6.文件显示石正丽分离出可感染人类的冠状病毒毒株
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-7.美参议员致函拜登呼吁公开邀台湾参加美民主峰会
 
-8.罗马尼亚参议院否决了病毒健康通行证法案
-
-9.Twitter股价大跌超10% 创近6个月来最大跌幅
-
-10.新加坡疫苗覆盖超八成 单日染疫暴增5324例
-
-**GTV链接：**[https://gtv.org/broadcast/watch/617a65efeadeb11f5e7b67d5](https://gtv.org/broadcast/watch/617a65efeadeb11f5e7b67d5)
-
-发布: 文橙
-
-* * *
-
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
