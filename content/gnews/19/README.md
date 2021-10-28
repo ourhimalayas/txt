@@ -2,35 +2,41 @@
 ---
 
 
-## 谈谈报应
-` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1623202/)
+## 民调和民众自发抗议强制疫苗接种显示加拿大民众正在醒来
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1623345/)
 
-文｜银河勇气星骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/10/money-gc56bbd44b_1920-1.jpg)图源：网路
-习一神已经在积极推动收老百姓的房产税了。中国的房子只有70年产权，按道理说就是70年的租赁权，那个房子从来不是属于老百姓的。土地私有在共产党这里是不存在的，哪能让土地私有啊，哪能给中国人社保啊，哪敢给中国人免费医疗啊，中国人有了这些是要吃人的呀，这是王岐山说的。他不把任何人放在眼里，看不起美国人，穿着睡衣见人家，但是他却这么忌惮中国人。王岐山也是中国人，他就对自己的同胞这么忌惮，对美国人又那么看不起，天天就是文革那套“你们还想着过好日吗？”这样一个王岐山，他自己的好日子呢，可是一天都没落下。去年才刚换肾呢，换了肾也是拿手指头抠人家，换肾有啥用？
+**作者：**卢卡斯
+![](https://assets.gnews.org/wp-content/uploads/2021/10/CP132735471-1-e1631966379257.jpg)图片来源：网络
+最新的民意调查显示，加拿大人对选举机构的信任度达到78%，对警察达到74%，而对主流媒体、省和联邦政府分别是54%，56%和55%，显示加国民众非常信任选举机构和警察，但是对主流媒体，省和联邦政府信任度并不很高；而今年4月初另一项民意调查显示，相信阴谋论的加拿大人的人数令人惊讶地上升：40%的加拿大人认为，有少数人在操纵世界上发生的大事件，譬如中共病毒是实验室人工制造的生化武器，且跟5G技术有关联 [1][2]。
 
-七哥说他看得上的人很少，王岐山算是一个。王岐山的精明睿智从他那个眼睛里都能看到。王岐山今天来灭共，他也是我的战友。其实不管是谁，王岐山也好，习一神也好，家人朋友也好，只要真心灭共，都是好战友。又因为王岐山习一神本身在党内的高职位，他们如果能够真心灭共，那个力量是爆炸级的。爆料革命在唤醒老百姓的同时，唤醒的更多的是党内的有良知的战友，相信大家都有深刻的感受，在爆料革命这几年里，成长的战友已经在开始慢慢改变中国人的那种自己排斥自己同胞的历史传统，团结并爱护自己的同胞，不给排华任何借口。
+今年2月份，一位加拿大女士在Facebook发帖说，中共病毒是一个骗局，封城，强制戴口罩和疫苗是为最终建立极权主义者的新世界秩序的中间步骤，根本无关于民众的健康，而是全球控制 [3]。加拿大主流媒体把上述阴谋论和极权主义的新世界秩序统统斥为误导民众的虚假信息。Leger民调公司今年五月份的调查显示，60%以上的加国民众表示，中共病毒大流行已经永久性侵蚀他们对省和联邦政府的信任 [4]。10月26日，成千阿尔伯塔民众在省立法院集会声援一线医护工作者拒绝服从该省的强制疫苗接种令，该省共有1400名医护人员以宗教和医疗理由要求豁免接种 [5]；27日，该省的消防员反击该省的疫苗通行证政策，他们基于医疗、宗教和伦理原因拒绝接种疫苗，这直接把该省政府置于火上烤 [6]。这些情况表明加国民众正在醒来，并且开始有所行动，然而尚未形成大规模有组织的行动。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-28-075013-edited.png)
+加拿大总理小土豆一直是疫苗接种运动积极推进者，从他再次当选加拿大总理以后，继续抓紧推行强制疫苗接种和疫苗。截至10月28日，加拿大12以上人群至少接种一剂疫苗的接种率已经达到87.66% [7]。加拿大政府医疗当局正在审批辉瑞公司提交的给5到11岁儿童接种疫苗的试验数据，不出意外会很快获得批准。医疗当局和主流媒体正在为不久后给以上年龄段的儿童接种疫苗造势，声称现在中共病毒感染率近一半发生在这个年龄段的儿童中。然而流行病专家医生Paul Elias Alexander接受RebelNews采访声称，给5~11岁儿童接种疫苗是草率的、没有必要的，儿童没有准备好接种疫苗，他们拥有强大的最好最持久的先天免疫力；另外儿童并不是医疗官员所认为的那样是超级传播者，接种疫苗带来的风险远大于那些备受质疑的好处 [8]。然而真实的声音依然被严重压制，邪恶黑暗势力一直在坚持推行他们早就谋划好的控制奴役全球人们的议事日程。
 
-共产党最排华，为什么排华，因为怕中国人起来造反。谎言一旦被揭穿，他们一天一分钟一秒钟都活不下去。共产党采用了各种方法阻止老百姓的团结，不允许民间成立各式各样的社团，监控老百姓的一言一行，大力宣扬告密文化并予以重金奖励，提拔那些流氓坏人坐高位乱来，渐渐形成了整个国家都不说真话，一级骗一级。七哥直播曾说，当年毛贼东发动文革/上山下乡这些惨绝人寰的以个人恩怨为目的的国家大型整人行动，没人敢出来说一句话，如果有人出来阻止，也许那些灾难就不会发生。皇帝的喜好成为了整个国家的灾难。
+我们现在都知道，疫苗是比中共病毒更致命的生化武器，不但不能保护人体免于中共病毒的侵蚀，反而是灭绝全人类的致命毒药。黑暗势力已经完全控制加国政府、医疗权威机构和主流媒体。加国民众大多数仍然蒙在鼓里，同时那些真相的声音基本上被压制。接种疫苗与拒绝接种疫苗的民众被被政府和主流媒体误导，站在互相对立的立场，这种操纵民众手法很像CCP。加国少部分民众正在清醒过来，真正的全民大清醒可能要等到疫苗灾难发生之后（文贵先生大直播警告人类，今年12月到明年5月将发生疫苗灾难），加国民众的最终清醒也许要付出不少人生命的代价，到那时中共对加国主流媒体的操纵有可能会引发排华浪潮。因此继续传播中共病毒极其疫苗的真相，加快加国民众的清醒，同时把中国人与中共分开是我们战友们肩上的重任。
 
-在文革/上山下乡等行动中，毛贼东的变态心理，把多少人心里的恶魔唤醒了。文革中无辜被害死的老百姓，害死他的那个人，就没有报应吗？还有那些当了红卫兵的，天天就是抄家运动，不分黑白就抢劫财产，强奸人口，就没有报应吗？多少城市里漂亮的男女学生死在了农民的床上。那个年代，人不是人，人连畜生都不如。发生这么惨痛的事情，共产党不让你说，给你禁声了。后代流行的伤痕文学，大部分都在美化文革，美化上山下乡，那些给共产党舔腚的导演，拍着电影来给共产党洗白这些罪状，还搬上大荧幕赚老百姓的钱，不仅给人看，还收钱，世上还有比这更恶心的事吗？比吃大便还恶心。经历过红卫兵年代的人，做过红卫兵，后来从红卫兵摇身一变变成富商，跑到全世界来做些红卫兵做过的事。共产党的蓝金黄，生殖器治国，哪个没有红卫兵的邪魔恶影？你跟他说自由民主，他觉得你在逗人笑，是啊，他从小到大都是耍流氓破坏规则一路走到了巅峰，越破坏规则越发达，越有钱，那些老杂毛红色资本家，按照今日对世界蓝金黄的程度来说，简直可以用呼风唤雨来形容了。
+[1] [Canadians falling prey to conspiracy theories despite strong trust in institutions: poll – National | Globalnews.ca](https://globalnews.ca/news/8329274/canadians-conspiracy-theories-trust-institutions-poll/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/100812101_c41186cc-5a1b-47d5-83db-99d9d13f12ac.jpg)美化共产党杀人事实的电影《芳华》
+[2] [40% of Canadians believe in conspiracy theories — do you?](https://www.rebelnews.com/40_percent_of_canadians_believe_in_conspiracy_theories_do_you)
 
-文贵先生直播中说这次房产税会让某些人得到报应。房产税主要针对的就是买了房的人，并且一个人多套房，靠房养老，靠收租过好日子的人，以前是人人羡慕的房东，那么接下来可能房产税能让所有引以为傲的房东/中产破产。中国买得起房的，买得起多套房的，大概岁数都是文革红卫兵那批人，他们怎么发财致富的，用的什么手段，做过的坏事都会有回应的。年轻时候强奸过人家女学生，鸡奸过人家男学生，老了来了报应了。文贵先生之前有次爆料说在养老院住的人，岁数那么大了，到处都有摄像头，洗澡的时候就被那几个孩子看，看好了洗好了就出来性侵老人。被性侵的人，年轻的时候有没有造孽？性侵老人的这些孩子，老了以后会不会也被性侵？但是人终究是人，人做了坏事，你用法律来惩罚他，他不应该被那样虐待，包括吴征马云这些人也是，用法律来惩罚他。信仰多么重要，法治多么重要，只有正道主义才能改变这种冤冤相报没完没了，不把人当畜生，真正把人当成是人。
+[3] [No Hoax: Fighting COVID-19 has meant tackling conspiracy theories, even within families – National | Globalnews.ca](https://globalnews.ca/news/7655629/covid-19-misinformation-harming-the-fight-pandemic/)
 
-人间正道是沧桑，放屁。人间有正道，正道不是沧桑。正道不需要多么沧桑多么遥远，你只要灭共就行了。天地不仁，以万物为刍狗，懦弱的人总觉得自己没得选。可同时上天有好生之德，各位房东，你还有得选。冤冤相报总会有终结的时候，看你怎么选了。
+[4] [COVID pandemic corroded Canadians’ trust in politicians — even their neighbours, poll finds | National Post](https://nationalpost.com/news/politics/covid-pandemic-eroded-canadians-trust-in-politicians-science-and-even-their-neighbours-poll-finds)
 
-* * *
+[5] [Silent protest held in solidarity with frontline workers against Alberta vaccine mandate](https://www.rebelnews.com/silent_protest_held_in_solidarity_with_frontline_workers_against_alberta_vaccine_mandate)
 
-***文章内容仅代表作者观点***
+[6] [Albertan firefighters challenge the vaccine passports and put the government in the hot seat](https://www.rebelnews.com/albertan_firefighters_challenge_vaccine_passports_put_government_in_hot_seat)
 
-作者：骄子
-审核：兵嫂、天雷滚滚
-发布：骄子
+[7] [COVID-19 vaccination in Canada](https://health-infobase.canada.ca/covid-19/vaccination-coverage/)
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/欢迎战友回家.jpeg)
+[8] [Sacrificing children’s health at the altar of profits | Dr. Paul Alexander](https://www.rebelnews.com/sacrificing_childrens_health_at_the_altar_of_profits_dr_paul_alexander)
+
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+
+编辑/发布：LILY
+
+20211028
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

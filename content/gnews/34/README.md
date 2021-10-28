@@ -2,56 +2,31 @@
 ---
 
 
-## 白思豪市长的中共疫苗强制令或迫使 FDNY 关门
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1623092/)
+## 美国士兵在台湾岛上担任教官
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1623186/)
 
-**编译：wenwu**
+新闻来源：德国法兰克福报网络版
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip86.png)消防专员丹尼尔格罗表示，FDNY将尽其所能“确保运营的连续性。”劳埃德米切尔/路透社
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-FDNY 正准备在所有城市工作人员[接种 COVID-19 疫苗的](https://nypost.com/2021/10/20/bill-de-blasio-to-announce-covid-19-vaccine-mandate-for-all-city-workers/)最后期限即将到来之前关闭多达 20% 的所有大苹果消防公司，以及 20% 的救护车[离开岗位](https://nypost.com/2021/10/20/bill-de-blasio-to-announce-covid-19-vaccine-mandate-for-all-city-workers/)。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/taiwans-praesidentin-tsai-ing.jpg)
 
-FDNY 于周三（27日）表示，尽管比尔·德·白思豪 (Bill de Blasio)市长下令所有城市工人至少接种一剂中共疫苗，否则周一（1日）将无法获得上周的薪水，并会被解雇。但只有 65% 的消防员、消防队长和紧急医疗服务（EMS）工作人员接种了中共疫苗。
 
-消防局局长丹尼尔·尼格罗（Daniel Nigro）在周三晚些时候的一份声明中（如下图）说：“消防局必须处理一个不幸的事实，即我们的一部分员工拒绝遵守所有城市雇员的中共疫苗规定；我们将使用我们可以使用的一切手段，包括强制加班、来自其他 EMS 供应商的互助以及对我们成员的日程安排的重大调整；我们将确保城市消防业务的连续性和所有我们发誓要服务的人的安全。”
+图片来源： FAZ
 
-消防局局长没有评估潜在行动的可能结果，但一名 FDNY 消防员提供了一个严峻的预测：“人们会死在这座城市。” 上周，白思豪市长宣布了周五（29日）下午 5 点的截止日期，但这只是为了获得500 美元的疫苗接种奖励——这给犹豫不决的工人在被没收工资之前，有最后一个周末前可以重新考虑接种中共疫苗。
+台湾方面表示，有少数美国士兵在岛上训练台湾的士兵。蔡英文总统周四在接受美国电视广播公司CNN采访时证实了这一点。 蔡说：“我们与美国有广泛的合作，旨在提高我们的防御能力。”当被问及在台湾部署了多少美国士兵时，她回答说没有那么多，因为在紧张局势的情况下进行的培训，加剧台湾和中华人民共和国之间的争端，中华人民共和国声称台湾岛是其领土的一部分。
 
-一名消防局的成员是如此回复以上信息。纽约市消防局 40% 的成员被辞职，或导致从出发到现场的响应时间变成七分钟或者更多（紧急响应时间平均为5分23秒）；该消息人士表示：“对于心脏病发作，7或8分钟有很大的区别。而火灾，8分钟的区别是一个卧室或是一栋房子或整个街区！这不是开玩笑。”
+台湾国防部长邱国正表示，长期以来，美台军事交流频繁。任何主题都可以解决。他强调，蔡总统没有说美国士兵永久驻扎在台湾。
 
-警察局长德莫特·谢伊（Dermot Shea，如下图）周三晚间在[推特上说](https://twitter.com/nypdshea/status/1453502305530220545?s=21)，纽约市警察局 75% 的人都接种了中共疫苗；但这其中仅包括 63% 的街头警察，其中 37%（约 6000 名警察）仍未接种疫苗，消息人士称。
+蔡英文此前曾指出，在与北京的冲突中，她的国家面临越来越大的威胁。蔡英文周三在接受美国有线电视新闻网采访时表示，来自中国的威胁“每天都在增加”。她相信，一旦中国发动袭击，美国会站在台湾一边。与此同时，蔡英文呼吁该地区的民主伙伴支持这个岛屿共和国。 “如果威权政权表现出扩张主义倾向，民主国家应该联合起来对抗它们。台湾走在前列。”
 
-曼哈顿的一名警察表示，由于无视市长的疫苗规定而让巡逻人员停职的预期结果，是可以预见的；“这是一个简单的公式：更少的警察等于更多的犯罪，”消息人士说。
+美国总统乔拜登上周比他的前任更明确地承诺，如果中共国发动袭击，美国将保卫台湾。中方对此表示愤慨，指责美方干涉内政。
 
-布鲁克林的一名警察还指出，在第一波大流行期间，约有 20% 的纽约警察局因中共病毒（COVID-19）而被淘汰；消息人士说：“那是非常粗糙的（数据），现在数字更高了。而且我不知道他们将如何解决这个问题。”
+原文链接：[https://www.faz.net/aktuell/politik/ausland/taiwans-praesidentin-amerikanische-soldaten-sind-auf-der-insel-17606268.html](https://www.faz.net/aktuell/politik/ausland/taiwans-praesidentin-amerikanische-soldaten-sind-auf-der-insel-17606268.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip88.png)
+免责声明：本文内容仅代表个人观点，与Gnews平台无关。
 
-周三，史坦顿岛最高法院法官 Lizette Colon 拒绝了纽约警察局最大的工会——警察福利协会（Police Benevolent Association，PBA）提出的[针对疫苗授权](https://nypost.com/2021/10/27/unvaccinated-nypd-cops-must-get-covid-jab-to-get-paid-judge-rules/)发布临时限制令的请求；PBA 发誓要在周四（28日）对该裁决提出上诉。
-
-军装消防员协会（The Uniformed Firefighters Association，UFA）还计划于周四上午在市长的曼哈顿官邸格雷西大厦（ Gracie Mansion）外举行反疫苗授权的抗议集会。
-
-消息人士说，截至周三，纽约警察局仍为此在制定应急计划。其中一人说，警察和侦探将不得不被分配到无线电车中，而且“只是为了接听911电话”。
-
-“周日晚上可能出现的情况是，[未接种疫苗的]警察在万圣节现场会在午夜变成南瓜，不得不离开他们的岗位，”另一位消息人士说。
-
-但消息人士说，FDNY 已经命令所有成员从周六上午9点开始按计划进行”直接巡视”，这意味着消防员之间不能再交换班次，他们还将被强迫性地安排加班以保证人员配置。
-
-消息人士说，所有定于周一或更晚开始的 FDNY 假期也被取消了，任何想利用他们累积补偿福利的时间的人都必须申请退休，以避免被停职；任何被停职超过30天的FDNY成员将被迫辞职；周三流传的一份纽约警察局内部名单显示，布鲁克林湾脊（Bay Ridge）的第68分局有 48.2% 的警察没有接种疫苗，使其成为全市接种疫苗最少的分局。
-
-皇后区远洛克威（Far Rockaway）的第100分局紧随其后，有 47.8% 的人没有接种疫苗；在另一方面，曼哈顿唐人街的第五分局只有 19.3% 的警察没有接种疫苗。
-
-消息人士说，纽约市警察局计划周末在辖区内提供疫苗，并向其医疗部门增派 30 名护士负责注射疫苗工作。
-
-（文章仅代表作者观点与GNEWS无关）
-
-**新闻来源**：[NEW YORK POST] [Vax mandate could force FDNY companies to close, as NYPD faces street cop shortage](https://nypost.com/2021/10/27/covid-vaccine-mandate-could-force-20-of-fdny-companies-to-close/?utm_medium=browser_notifications&amp;utm_source=pushly&amp;utm_campaign=1546970) | 作者：Craig McCarthy, Kevin Sheehan, Larry Celona and Bruce Golding｜发布时间：2021年10月27日｜
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
+责任编辑、发布： Shuizhuyu
 
  
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 喜币即将上市！
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1623399/)
+## 10/27/2021 文贵直播：DWAC事件导致支持川普总统的众多小投资者的钱被骗走，这会挑起他们对中共甚至中国人的仇恨
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1623508/)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+秘密翻译组-北美组
 
  
 

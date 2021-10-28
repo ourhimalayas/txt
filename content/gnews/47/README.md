@@ -2,41 +2,29 @@
 ---
 
 
-## COVID-19最新情报｜疫苗后，台湾航空机组员突发性耳聋，捷克年轻人听力问题暴增
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1622707/)
+## 维州官员拒绝公布病毒死亡案例的疫苗接种情况
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1622751/)
 
-**台灣寶島農場 疫情關注組｜發佈日期/ 27/10/2021**
+编译：童媚
+![](https://assets.gnews.org/wp-content/uploads/2021/10/维州州长.jpg)（图片来自网络）
+维多利亚州卫生部门拒绝公布25例新增的冠状病毒死亡病例的疫苗接种情况。在周四28日报告中，新死亡人数激增，这是该州目前每日死亡人数最多的一次。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+当被问及，这些死亡病例是否接种了疫苗时，副首席卫生官Ben Cowie说不会对此进行报告。而且澳大利亚维多利亚州卫生当局已宣布他们不会再报告新南威尔士州几个月来每天都发布的关键Covid细节。
 
+相反，他反而强调说，在过去7天内检测出Covid-19呈阳性的维多利亚州的病例中有85% 的人没有完全接种疫苗。而且在重症监护室内，有80%的人完全没有接种疫苗，因此，疫苗接种对严重疾病和生命威胁非常明显。
 
-[台湾媒体](https://www.youtube.com/watch?v=jNvdXBNSbMo)报导，8月10日有航空业机组人员表示，自己于7月20日接种完第二剂莫德纳疫苗，但隔天耳朵竟然一边耳鸣、一边耳聋。治疗一个月时间竟然都没有好转。对此，医生表示：不排除疫苗罕见副作用。又[外媒](https://english.radio.cz/more-czechs-especially-young-adults-are-getting-tinnitus-it-covid-or-pandemic-8731876)于10月21日指出，捷克境内年轻人突发耳鸣等听力问题数量剧增，不排除与新冠病毒、疫苗有关联性。
+自大流行开始以来，该州的死亡人数达到 1090 人，但就本轮病毒爆发阶段，死亡人数达到 270 人，
 
-关于疫苗是否导致耳鸣、耳聋，台湾防疫指挥中心回应：美国约翰霍普金斯大学最新研究发现，接种新冠疫苗和出现突发性听力受损，并没有关联。然而[报导](https://news.ttv.com.tw/news/11008100028900N)采访基层医疗协会理事长林应然分析，目前虽然没有很明确的统计报告，不过如果免疫系统启动的时候，误伤及听神经系统的话，有可能产生耳鸣、耳聋的问题。
+维多利亚州周四对外公布了1923例新的Covid确诊病例。现在该州至少77%的16岁及以上人口接种了疫苗。
 
-- 其他：[更多台湾接种新冠疫苗发生的不良反应症状](https://health.udn.com/health/story/121833/5663938)
-- 其他：[检疫操! 8天飞2长程 机师“突发性失聪” ｜TVBS新闻](https://www.youtube.com/watch?v=qok0Aqns7LQ)
+为何随着疫苗接种比例的上升，病毒传染非但没有停下脚步，反而确诊人数节节攀升？现在频繁地响彻在街头巷尾的救护车警报，无时无刻不提醒着我们，应该深刻反思政府对于病毒的防疫措施和对疫苗的强制接种是否真的是为了人民的利益？而对于已经跃跃欲试的“加强针”，又有多少人醒来？
 
+原文链接：[Covid-19 Victoria: Officials not releasing vaccination status of virus deaths | news.com.au — Australia’s leading news site](https://www.news.com.au/national/victoria/news/victorian-officials-refuse-to-release-vaccination-status-of-virus-deaths/news-story/9dbcc791a7745419e20233cc91e1cb92)
 
-#### 新冠疫苗存在罕见副作用
+（本文仅限个人观点，与GNEWS无关）
 
-新冠疫苗副作用除常见的血栓、心肌炎、心包炎、发烧、倦怠等，而鼻喉科方面也存在罕见特殊副作用存在。[台媒](https://health.ltn.com.tw/article/paper/1474238)报导，突发性耳聋、颜面神经麻痺，也都出现过相关病例。
-
-- 其他：[华航空服员爆打AZ疫苗后“眼睛血栓模糊”没医师敢通报副作用| ETtoday生活新闻](https://www.ettoday.net/news/20210513/1980631.htm)
-
-
-[Healthy Hearing](https://www.healthyhearing.com/report/53127-Coronavirus-hearing-loss-tinnitus-covid)在网站上针对“新冠病毒与听力损失是否相关”发表文章，明确表示没有确切的大研究可以证明新冠病毒与听力损失具有因果关系，但听力损失的确是病毒引起。据医学杂志 BMJ Case Reports 发表了一[专项研究](https://casereports.bmj.com/content/13/11/e238419)，一名45岁英国籍男子，在确诊新冠后一耳突发性耳聋，研究指出该名患者并没有接受任何可能导致听力损失的药物治疗，虽然没有证据可以证明是新冠病毒导致，但很有可能是。
-
-英国一項[调查研究](https://www.tandfonline.com/doi/full/10.1080/14992027.2020.1798519)則指出，每10名新冠病毒确诊者约有一人会出现听力损伤或是耳鸣状况。
-
-[台湾媒体](https://health.udn.com/health/story/121833/5663938)於8月10日报导，有民众表示，接种完两剂莫德纳疫苗隔天发生耳聋、耳，住院观察七天尚未恢复听力。当时，台湾防疫指挥中心医疗应变组副组长罗一钧表示：这样的案例美国也没研究过，认为和疫苗无关。然，经过两个月，指挥中心对于疫苗是否导致听力损伤即依照美国约翰霍普金斯大学最新研究表示，与疫苗无关。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/21-11.jpg)
-* * *
-
-资料来源｜[台視](https://news.ttv.com.tw/news/11008100028900N)、[Czech Raio](https://english.radio.cz/more-czechs-especially-young-adults-are-getting-tinnitus-it-covid-or-pandemic-8731876)、[Healthy Hearing](https://www.healthyhearing.com/report/53127-Coronavirus-hearing-loss-tinnitus-covid)、[BMJ Case Reports](https://casereports.bmj.com/content/13/11/e238419)
-撰文｜zhong
-
+发稿：MG5
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

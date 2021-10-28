@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/28/2021 1:12 PM (UTC)`
+
+10月28号：尊敬的战友们好．拜托大家涡轮腹拉器的时候，每一组千万不要做超过12个，否则会伤到身体。科学健身，快乐健身．才是新中国联邦人在追求。
+![img](https://media.gettr.com/group10/getter/2021/10/28/13/12/26d6e4e8-a171-0082-478c-fed06660f351/out.jpg)
+
+---
+
 `@miles 10/28/2021 12:24 PM (UTC)`
 
 10月28日：尊敬的战友们好，你们健身了吗？传播C C P病毒真相和疫苗的解药了吗？一切都已经开始！
@@ -292,13 +299,6 @@ Eleven Qualified Institutional Buyers or Institutional Accredited Investors of D
 
 2021年10月24日 文贵大直播：详解SPAC上市公司结构； 最新疫苗伤亡与反疫苗； 许家印海外借贷利息怎么还
 ![img](https://media.gettr.com/group11/origin/2021/10/24/12/0f8ed26c-2613-c37b-1e53-10e2c981f8a4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 10/24/2021 12:09 AM (UTC)`
-
-10/22/2021 Miles Guo: Xi’s investigation on the 25 financial institutions sounds like a big deal, but it won’t make a difference. Instead, this has effectively united those who want to eliminate Xi; Xi is following Mao Zedong’s same old path and is being fooled by his subordinates such that he believes that the people of Taiwan welcome him; Without the constraints of the system, any leader can turn into a devil!<br/><br/>10/22/2021 文贵直播：习对25家金融股机构的调查雷声大雨点小，这反而将想灭习的人团结在一起；习重走了毛的老路且被手下人忽悠，竟认为台湾人民欢迎他；没有制度约束的领导人都会成魔！<br/>
-![img](https://media.gettr.com/group25/getter/2021/10/24/00/09/e16f5a44-10bd-51da-6f14-3bab0bbdd423/out.jpg)
 
 ---
 

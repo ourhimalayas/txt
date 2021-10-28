@@ -2,72 +2,41 @@
 ---
 
 
-## G时评：避免社会“丛林化”的唯一原则
-` GISELLE` [轉載自GNews](https://gnews.org/zh-hans/1623233/)
+## 盖特首席执行官欢迎Truth加入社交媒体领域的竞争
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1623355/)
 
-**作者/图片设计：Giselle**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/城市1.png)
-1，
+作者：香草山农场 文秋
 
-感知幸福，是一种能力，与财富无关，与名利无关。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-2，
+盖特首席执行官杰森-米勒先生在10月21日接受天空新闻采访时表示，由川普总统初创的社交媒体平台Truth，将会给社交媒体这一领域引入竞争机制，这将撼动目前社交媒体寡头对自由言论的压制。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1028AM（1-5）視頻備用.001.jpeg)
+米勒先生认为，当下人们对社交媒体寡头的厌恶，已不仅限于左右政斗。因此，盖特和Truth的出现会重新凝聚这些流失的客户。从长远来，这是社交媒体领域的一件好事。
 
-不管世界如何复杂、人心如何险恶，
+同时，作为盖特的首席执行官，杰森-米勒先生表示，面对Truth这一初创社交媒体平台，盖特已做好了相应的准备应对挑战。他补充，良性的竞争是打破垄断的基础，这将不断促进盖特的提升和发展，带来更多优秀的用户体验和技术革新。
 
-不管顺势、逆势，
+盖特自7月份上线以来，始终坚持“不因政治立场、宗教信仰而审查言论”的宗旨。当下，盖特注册用户已达300万人，是有史以来用户入驻最快达到百万级别的社交媒体平台。
 
-始终在心里，留一片空间，
+参考链接：
 
-像孩子一样感知幸福，体验简单的快乐与满足。
+1. [With his new platform, Trump may bring his supporters back to the social media world. And Gettr…..](https://gettr.com/post/pf4buxcc7b)
+2. [Former President Trump launches his own social media platform called Truth](https://www.youtube.com/watch?v=tgJ27taFZpo)
 
-3，
 
-孩子是最容易感受到快乐的。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-作家列夫·托尔斯泰说，心灵纯洁的人，生活充满着甜蜜和喜悦。
+总编：木白
+编辑：Zion文恩
+校正/发稿：我不在这里
 
-在这个险恶复杂的世界里，假如你始终能像孩子一样，感受生活最本源的快乐，就是一种能力。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-4，
-
-不要将快乐建立在对物质的占有之上。
-
-对物质世界依赖越少，越容易感知快乐。
-
-假如你不同意这个观点，那么会存在以下可能：
-
-一，你得到了物质，获得了快乐；
-
-二，你失去了物质，感到痛苦；
-
-三，你在追求物质的过程中，产生了焦虑、嫉妒、痛苦、兴奋等情绪。
-
-在这个物欲横流的世界里，当你得到之时，固然会快乐，可是当你失去之时，你会更痛苦。你得到了一，还会有二、有三、有四……
-
-在无止境的欲望面前，你或许会享受到片刻欲望被满足时的快乐，可是，你的整个人生，都将伴随着欲望无法被满足时的痛苦、焦虑、嫉妒、绝望……
-
-5，
-
-一切财富和权力，都只是工具，不是目的。
-
-当你把追名逐利当成人生目标时，那就真的走偏了。
-
-如果人人都这么做，那么，这个世界就会成为“丛林社会”。
-
-避免整个社会“丛林化”的唯一原则：当你拥有多少财富和权力，就得承担相应的社会责任，如此社会才会和谐发展。
-
-社会的和谐，与你有关系吗？当然有。
-
-在丛林社会里，凭借着你拥有的名利和财富，或许你可以成为“猎杀者”，但是，当更强大的“猎杀者”出现时，你也会成为“猎物”。
-
-所以，不要让整个世界“丛林化”。
-
-贫富悬殊造成的尖锐的社会矛盾，是所有人都不安全的根本原因。
-
-安全的社会一定是和谐共处、共同繁荣的。
-
-（文章内容仅代表作者个人观点）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
