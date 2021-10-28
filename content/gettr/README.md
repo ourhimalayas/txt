@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/28/2021 3:51 PM (UTC)`
+
+<br/>10月28日：这才是真正的赚钱的机会……
+![img](https://media.gettr.com/group34/getter/2021/10/28/15/51/8aa1b869-9a0d-3a2b-a4ec-1ab73e31df79/out.jpg)
+
+---
+
 `@miles 10/28/2021 2:15 PM (UTC)`
 
 10月28号：尊敬的战友们好……当被欺骗统治了几十年的灵魂和生活。去面对真相的时候．是无法适应的，这是悲剧，这也是我们中国人过去七十年的悲哀，新世界的到来．将改变全地球的所有的这一切！
@@ -293,12 +300,6 @@ Digital World Acquisition Group and Yunhong International<br/><br/>https://gnews
 
 恒大偿还外债利息得延期，意味着什么？
 ![img](https://media.gettr.com/group24/getter/2021/10/24/15/2c3e2235-a8a9-4b14-a1eb-37cb037292a6/49ab0c8826c8820fca10be29e449d6bc.jpg)
-
----
-
-`@miles 10/24/2021 2:14 PM (UTC)`
-
-Eleven Qualified Institutional Buyers or Institutional Accredited Investors of DWAC<br/><br/>https://gnews.org/1614670/<br/><br/>DWAC的11个合格机构买家或机构认可投资者<br/><br/>https://gnews.org/zh-hans/1614568/
 
 ---
 
