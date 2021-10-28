@@ -2,40 +2,28 @@
 ---
 
 
-## 10月份以来北京部分蔬菜价格涨幅超过50%
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1622138/)
+## 郭先生2021年10月27日大直播谈喜联储G系列和房产税
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1622314/)
 
-作者：美东香草山-新世界的一员
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月26日，北京市商务局一级巡视员王洪存，在新闻发布会上称，十一过后北京市蔬菜价格总体呈波动上行趋势。其中，蔬菜平均批发价月环比上涨39.8%；综合零售价月环比上涨20.4%。部分叶类菜、鲜嫩蔬菜上涨幅度更大，有的超过50%或更多。中共全国上下通货膨胀严重，民生困苦，中共庞氏骗局的经济模式面临严重挑战。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-75.jpg)
-（本文仅代表作者观点）
+**剪辑/字幕：尕鱼儿
+编辑：枳实**
 
-参考链接：
+喜币喜联储上市(以及)GTV、GCLUB，所有这一切，他不是一个单纯的存在，他是一个爆料革命新中国联邦的信任，你的为人，你的判断力，你的信仰，你对人的一个相处的关系的综合存在。
 
-[**北京：10月以来部分蔬菜售价涨幅超50%**](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_9803650491101995691%22%7D&amp;n_type=-1&amp;p_from=-1)
+现在看到国内的房地产，我们爆料房地产2017年说马云这些人要完蛋的时候，国内这个房地产税谁说的？ 七哥最早说的吧？我说这个时候，对我最大的攻击的人，全是体制内的高官，说“文贵你这个太离谱了，想一想拿房地产税，共产党都得倒台，想一想征房地产税，中国人都得上街。” 这是一个政治局委员。还有上海的老领导跟我说的，“文贵这话就别再说了，这会让更多人攻击你，让你成为笑话。”前天老领导的家人给我发信息，他说“你说的房地产纳税的事情，当时还说你，现在看说明你是对的。“后来我回了个信息，我说“不是拿房地产税，共产党拿的是重新分配财富的权力”
 
-总编: 童谣
+现在你看到国内一片宣传，说叫大家“共同富裕”，以为拿了房地产税，大家共同富裕。你说这个愚蠢到啥程度？共产党拿完房地产税，会给你家让你上学不拿钱吗？会让你得了癌症让你在医院里躺着 享受高干待遇吗？会让你信用卡免交钱吗？会让你免车贷吗？一样都不会(免)，只会越来越多。就不会维稳了吗？ 只能是越来越维稳！所有地方上地方债要爆雷了。卖地卖不出去了，现在回过头来(再)来割你的韭菜，让你买过的房子欠过的债，让你再为你的债再付利息。
 
-编辑：珈沅
+[完整视频链接](https://gtv.org/video/id=6179465deadeb11f5e7b0768)
 
-校对/发稿：Fei797
+**发布：**Janek
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
-
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

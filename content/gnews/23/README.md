@@ -2,62 +2,43 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1622861/)
+## 新西兰美洲杯英雄指责人民盲目接受政府“独裁”
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1623061/)
 
-编译：西班牙喜悦农场–wenwu
+SherryOk水云间
 
-您若想了解全文报导内容，请点击标题链接
+新西兰先驱报10月28日报道，新西兰航海家和美洲杯英雄拉塞尔·库茨爵士（Russell Coutts）对政府发起了猛烈的攻击，指责它变成了“独裁政权”；而人民盲目接受政府单边统治，令人深感不安。
 
-（爱惜生命 远离疫苗）
+在周三的脸书（ Facebook） 帖子中，这位 59 岁的奥运会金牌得主和五届美洲杯冠军得主声称新西兰政府和媒体剥夺了新西兰人的某些自由。
 
-1. [Moderna 首席执行官:疫苗“再来一针”政策是每年至少打一针](https://descargitas.com/moderna-%E9%A6%96%E5%B8%AD%E6%89%A7%E8%A1%8C%E5%AE%98%E8%A1%A8%E7%A4%BA%EF%BC%8C%E6%AF%8F%E5%B9%B4%E5%8F%AF%E8%83%BD%E9%9C%80%E8%A6%81-covid-19-%E7%96%AB%E8%8B%97%E5%8A%A9%E6%8E%A8%E5%99%A8/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-485.png)图片来源： descargitas.com
-据《Descargitas》2021年10月27日电，Modena 创始人兼首席执行官 Nubar Arian 在接受 Maria Bartiromo 采访时表示，可能需要每年（强制）注射中共疫苗（COVID-19）：“如果中共疫苗变成每年或每隔几年随着中共病毒的变化而改变，有点像我们对流感疫苗的做法，那么我们将不能停止注射疫苗。”
+库茨爵士说：“事实上，海外的人们正与中共病毒共存，尽管有些人，也许很多人，仍然保持谨慎是正确的，但许多地方的生活已基本恢复正常。但在新西兰我们幷没有被告知这些情况。”
 
-美国的许多人目前有资格获得第三针 COVID-19 疫苗。美国 CDC 表示，修改之前已经发出的建议——第三针疫苗可以混打中共疫苗；上周，美国疾病控制和预防中心主任罗谢尔·瓦林斯基（Rochelle Wallinsky）表明，全面接种中共疫苗的定义可能在未来某个时候发生变化。
+“我们的选择自由、言论自由受到侵蚀，失去与家人和朋友在一起的宝贵时间，以及封锁带来的所有其他负面方面，在与中共病毒带来的的健康风险比较中，应该得到相平衡。
 
-2. [佛州州长以现金招募未接种疫苗的警官](https://www.nbcnews.com/news/us-news/florida-gov-desantis-recruits-unvaccinated-officers-cash-bonus-rcna3721?utm_source=facebook&amp;utm_medium=news_tab&amp;utm_content=algorithm)
+想象一下，如果我们把每周投入到封锁中的 10 亿多美元，用以改善我们的卫生系统、教育或道路（上周末我们在新西兰有 8 人死于道路交通事故）。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-488.png)图片来源：nbcnews.com
+今年早些时候曾与伊恩·泰勒爵士（Sir Ian Taylor）发生版权纠纷的库茨最近在欧洲度过了大量时间，担任 SailGP 系列赛的首席执行官。
 
-据《NBCNEWS》2021年10月25日电，佛州州长罗恩·德桑蒂斯 (Ron DeSantis) 周日在[福克斯新闻上](https://video.foxnews.com/v/6278608216001?playlist_id=3386055101001#sp=show-clips)说，他希望通过立法让其他州失业的警察和治安官的副手可以在佛州上班，并获得五千美元的福利。德桑蒂斯在采访中声称，强制接种中共疫苗是违宪的，它们削弱了人们的选择权，并且旨在伤害护士和官员。这正在纽约市、明尼阿波利斯、西雅图警察局和[芝加哥警察局](https://www.nbcnews.com/news/us-news/chicago-police-union-head-urges-cops-defy-covid-vaccine-mandate-rcna3007)发生；“如果你没有受到很好的对待，我们会在这里更好地对待你。你可以满足我们的重要需求，”他说。值得一提的是，印第安纳州也跟上了佛州的步伐。
+该系列赛的第二个赛季在第三个赛季之前因中共病毒影响 缩短，由彼得·伯林 (Peter Burling) 执掌的新西兰队 3 月在奥克兰举行的第 36 届美洲杯比赛中黯然失色。
 
-3. [阿拉巴马州州长凯·伊维（Kay Ivey）指示各机构抵制乔·拜登的全面疫苗授权](https://www.thegatewaypundit.com/2021/10/alabama-governor-kay-ivey-directs-agencies-resist-joe-bidens-covid-vax-mandate/)
+由于新西兰政府拒绝让 160 多名团队和工作人员进入强制隔离（MIQ ）设施，原定于明年 1 月底举行的基督城首轮 SailGP 计划被搁置。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-489.png)图片来源：thegatewaypundit.com
+在脸书 帖子中，库茨似乎瞄准了备受诟病的 MIQ 系统，以及政府对新西兰大部分劳动力的强制疫苗规定。
 
-据《Thegatewaypundit》2021年10月26日电，阿拉巴马州州长凯·伊维（右）周一指示各州机构抵制乔·拜登的9月份的全面疫苗授权（210万联邦雇员要么注射疫苗、要么被解雇，以及100人以上的私企都要么接种中共疫苗、要么接受巨额罚款）。
+总理杰辛达·阿德恩 (Jacinda Ardern) 周二宣布了这项全面授权，酒店业和其他行业的工人将有四个星期的时间接种疫苗或面临失业的风险。
 
-美联社[报道](https://apnews.com/article/coronavirus-pandemic-business-education-alabama-health-ae9981614061559de1cb02480e6e605d)：“州长伊维签署了一项[行政命令，](https://apnews.com/article/coronavirus-pandemic-business-education-alabama-health-ae9981614061559de1cb02480e6e605d)禁止行政部门机构——包括医疗补助、心理健康和人力资源等机构——对不遵守联邦疫苗规定的员工或企业进行处罚。” 另外，伊维在一份[声明](https://twitter.com/GovernorKayIvey/status/1452713854283169794?s=20)中说：“联邦政府令人发指的过度扩张让我们别无选择，只能开始采取行动，这就是我发布此行政命令以对抗这些令人震惊的 COVID-19 疫苗规定的原因。”
+“双重接种疫苗的人害怕遇到未接种疫苗的人，这似乎完全疯了。我们的余生都会这样吗？那些有健康问题而无法接种疫苗的人呢？他们会吗被社会驱逐吗？（记录一下，我接种了双重疫苗），”库兹说。
 
-美联社说，伊维的行政命令不适用于大学。“这些大学是根据阿拉巴马州宪法创建的，由董事会管理和控制。”
+“最后，新西兰政府现在表示，即使奥克兰实现了 90% 的双重疫苗接种，人们可能仍会被限制在圣诞节旅行，这完全是无稽之谈。
 
-4. [为声援前线工人反对艾伯塔省（Alberta）疫苗授权而举行的无声抗议](https://www.rebelnews.com/silent_protest_held_in_solidarity_with_frontline_workers_against_alberta_vaccine_mandate)
+“同样完全是胡说八道和自相矛盾的是，在 MIQ 中，双重接种疫苗，测试呈阴性的人被隔离 14 天，而中共病毒患者却被允许在社区中自我隔离。”
+库兹最后表示，新西兰竟然“落入如此境地”，这“令人深感不安”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-491.png)图片来源：rebelnews.com
+“如果你怀疑我在说什么，那就打开电视，看看海外各种体育赛事的满是观众的体育场。看看英超联赛、冠军联赛或最近的莱德杯。全黑队刚刚在华盛顿特区的40,000 名粉丝面前对阵美国队。
 
-据《REBEL NEWS》2021年10月26日电，数千人于上周日（24日）聚集在艾伯塔省立法大楼的南草坪上，抗议对艾伯塔省卫生保健工作者和急救人员强制接种疫苗的要求；艾伯塔省政府已授权对消防员、警察和所有卫生保健工作者提供完整的疫苗接种政策证明，截止日期为 2021 年 11 月 20 日。
+“新西兰，一个人民非常重视自由选择的国家……我们如何到了盲目接受我们政府这种单边统治、权力和独裁的阶段，确实令人深感不安。”
 
-根据艾伯塔省卫生服务部的数据，1400 名卫生保健工作者申请了针对中共疫苗的宗教或医疗豁免，以及 61 名员工已辞职；值得一提的是，在过去的20个月里，他们无疑是我们的英雄。
-
-5. [纽约市工人游行穿过布鲁克林大桥抗议拜登疫苗全面授权](https://nypost.com/2021/10/25/we-will-not-comply-nyc-workers-protest-vax-mandate-with-march-across-brooklyn-bridge/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-493.png)图片来源：nypost.com
-
-据《NEW YORK POST》2021年10月25日电，市政工作人员于周一（25日）走上街头，抗议市长比尔·德·白思豪 (Bill de Blasio) [对整个市政工作人员实施疫苗强制接种的要求](https://nypost.com/2021/10/20/bill-de-blasio-to-announce-covid-19-vaccine-mandate-for-all-city-workers/)；抗议期间至少有 20 人被捕，许多人举着美国国旗，高呼“F-k de Blasio”和“我们不会遵守！”，有点更直接与纳粹德国对犹太人的迫害进行比较。
-
-“现在，在无数次紧急情况后工作——桑迪飓风、暴风雪……我受到（来自政府的）威胁。我们正面临失去生计的威胁，因为只是保留保护我们身体的选择，”在人群到达市政厅后，消防员索菲亚·梅迪纳 (Sofia Medina) 愤怒地说道。
-
-穿着 FDNY 衬衫的 Paul Schweit 吼道：“市长白思豪想把我们描绘成不道德、不安全和对公众构成威胁。而对于这座城市的市民，我们（的工作是）希望继续保护你。”另有一名警官说：“数以千计的好警察和市政工作人员将失去工作，是否纽约市会有好人有信心、有足够的人来填补这些职位。我害怕接下来会发生什么？”
-
-（文章仅代表作者观点与GNEWS无关）
-
-* * *
-
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
-
+[新闻链接](https://www.nzherald.co.nz/sport/covid-19-delta-outbreak-sir-russell-coutts-accuses-government-of-dictatorship-in-social-media-post/UC7WOEFFRHR36TSDXJQ4PXX4C4/)
 
  
 

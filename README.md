@@ -15,149 +15,149 @@
 
 ---
 
-### [伊朗希望在维也纳恢复核谈判](/content/gnews/1/README.md)
- ` Shuizhuyu`
+### [莫德纳CEO：50岁以上人群应该每年接种新冠疫苗](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾总统相信美国的保护](/content/gnews/2/README.md)
- ` Charlie`
+### [G时评：避免社会“丛林化”的唯一原则](/content/gnews/2/README.md)
+ ` GISELLE`
 
-### [维加诺大主教：大重置需要数十亿人接种中共疫苗](/content/gnews/3/README.md)
- ` wenwu`
+### [谈谈报应](/content/gnews/3/README.md)
+ ` 骄子`
 
-### [普京命令俄罗斯天然气公司补充欧洲的天然气储存](/content/gnews/4/README.md)
- ` Shuizhuyu`
+### [文贵大直播简报10/28/2021](/content/gnews/4/README.md)
+ ` 秘密翻译组-原创组`
 
-### [德国必须在台湾问题上敲打北京](/content/gnews/5/README.md)
- ` Shuizhuyu`
+### [G时评：屠恶龙者终成恶龙](/content/gnews/5/README.md)
+ ` GISELLE`
 
-### [白思豪市长的中共疫苗强制令或迫使 FDNY 关门](/content/gnews/6/README.md)
- ` wenwu`
-
-### [秘翻在线：格芯的IPO股价为每股47美元，估值达250亿美元](/content/gnews/7/README.md)
+### [核酸检测任务戳破中共人口数据造假 一地调减人口超3成](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登应该结束困惑 说美国将保卫台湾](/content/gnews/8/README.md)
+### [美国士兵在台湾岛上担任教官](/content/gnews/7/README.md)
+ ` Shuizhuyu`
+
+### [台湾总统蔡英文证实有美军驻台 对美国协防台湾有信心](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：受房地产税影响上海陆家嘴93套房产25小时内被抛售套现](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [文·贵天成——文贵先生谈 “G币、喜币、喜联储”（二十五）](/content/gnews/10/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [东盟峰会上各国对大冲突的恐惧](/content/gnews/11/README.md)
+ ` Shuizhuyu`
+
+### [美国支持台湾加入联合国，气疯中共](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [伊朗希望在维也纳恢复核谈判](/content/gnews/13/README.md)
+ ` Shuizhuyu`
+
+### [台湾总统相信美国的保护](/content/gnews/14/README.md)
+ ` Charlie`
+
+### [维加诺大主教：大重置需要数十亿人接种中共疫苗](/content/gnews/15/README.md)
+ ` wenwu`
+
+### [普京命令俄罗斯天然气公司补充欧洲的天然气储存](/content/gnews/16/README.md)
+ ` Shuizhuyu`
+
+### [德国必须在台湾问题上敲打北京](/content/gnews/17/README.md)
+ ` Shuizhuyu`
+
+### [白思豪市长的中共疫苗强制令或迫使 FDNY 关门](/content/gnews/18/README.md)
+ ` wenwu`
+
+### [秘翻在线：格芯的IPO股价为每股47美元，估值达250亿美元](/content/gnews/19/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [疫情加剧了幼托危机对经济的影响](/content/gnews/20/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [拜登应该结束困惑 说美国将保卫台湾](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [坎特邀詹姆斯、乔丹和耐克老板：一起去探新疆奴隶营](/content/gnews/9/README.md)
+### [坎特邀詹姆斯、乔丹和耐克老板：一起去探新疆奴隶营](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新西兰美洲杯英雄指责人民盲目接受政府“独裁”](/content/gnews/10/README.md)
+### [新西兰美洲杯英雄指责人民盲目接受政府“独裁”](/content/gnews/23/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [吴征定律=共产党定律](/content/gnews/11/README.md)
+### [吴征定律=共产党定律](/content/gnews/24/README.md)
  ` 银河勇气之星`
 
-### [秘翻在线：世界知名新闻机构接受华为赞助为其做宣传](/content/gnews/12/README.md)
+### [秘翻在线：世界知名新闻机构接受华为赞助为其做宣传](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [工作人员拒绝接种疫苗 西澳医院可能面临危机](/content/gnews/13/README.md)
+### [工作人员拒绝接种疫苗 西澳医院可能面临危机](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [10月28日 澳喜要闻摘要](/content/gnews/14/README.md)
+### [10月28日 澳喜要闻摘要](/content/gnews/27/README.md)
  ` 澳喜农场`
 
-### [台湾总统相信美国的保护](/content/gnews/15/README.md)
- ` Charlie`
-
-### [猪流感疫苗案以 100 万欧元和解](/content/gnews/16/README.md)
+### [猪流感疫苗案以 100 万欧元和解](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美军参谋长关注中共国高超音速导弹试验](/content/gnews/17/README.md)
- ` Charlie`
-
-### [新西兰总理表示新COVID 授权旨在创立阶级制度](/content/gnews/18/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共习近平谋划推动东部率先发展](/content/gnews/19/README.md)
+### [中共习近平谋划推动东部率先发展](/content/gnews/29/README.md)
  ` 儒为`
 
-### [COVID-19 最新情报｜护士爆料 001：“我看到年轻患者在接种疫苗后因心脏疾病倒下”](/content/gnews/20/README.md)
+### [COVID-19 最新情报｜护士爆料 001：“我看到年轻患者在接种疫苗后因心脏疾病倒下”](/content/gnews/30/README.md)
  ` G&#124;News TAIWAN`
 
-### [2021/10/27 墙内世界](/content/gnews/21/README.md)
+### [2021/10/27 墙内世界](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：百分之四十六美国选民希望福奇辞职](/content/gnews/22/README.md)
+### [秘翻在线：百分之四十六美国选民希望福奇辞职](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/23/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/33/README.md)
  ` wenwu`
 
-### [2017年5月12日文贵先生直播文字版](/content/gnews/24/README.md)
+### [2017年5月12日文贵先生直播文字版](/content/gnews/34/README.md)
  ` 澳喜农场`
 
-### [东亚峰会成中共“批斗会”，美国总统时隔4年再次出席](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [币圈新闻动态：美国证券交易委员会不会批准杠杆比特币ETF](/content/gnews/26/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [印度边境警察部队增兵抗衡中共国](/content/gnews/27/README.md)
- ` 纽约香草山MOS02`
-
-### [吴征成就盖特千亿身价成为新中国联邦的外交部和大客厅](/content/gnews/28/README.md)
+### [吴征成就盖特千亿身价成为新中国联邦的外交部和大客厅](/content/gnews/35/README.md)
  ` NewFOC`
 
-### [中共国禽流感传人案例猛增](/content/gnews/29/README.md)
- ` 纽约香草山MOS02`
-
-### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（二十四）](/content/gnews/30/README.md)
+### [文·贵天成——文贵先生谈“G币、喜币、喜联储”（二十四）](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [维州官员拒绝公布病毒死亡案例的疫苗接种情况](/content/gnews/31/README.md)
+### [维州官员拒绝公布病毒死亡案例的疫苗接种情况](/content/gnews/37/README.md)
  ` 澳喜农场`
 
-### [喜币，无国界的自由资产](/content/gnews/32/README.md)
+### [喜币，无国界的自由资产](/content/gnews/38/README.md)
  ` MOSREC`
 
-### [视频| 喜币，虚拟世界的真实财富](/content/gnews/33/README.md)
+### [视频| 喜币，虚拟世界的真实财富](/content/gnews/39/README.md)
  ` MOSREC`
 
-### [涉嫌协助中共侵犯新疆人权，美国零售商停售大华和海康威视监控产品](/content/gnews/34/README.md)
+### [涉嫌协助中共侵犯新疆人权，美国零售商停售大华和海康威视监控产品](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共的愚蠢摧生美国支持台湾新疆新中国联邦加入联合国](/content/gnews/35/README.md)
- ` NewFOC`
-
-### [COVID-19最新情报｜疫苗后，台湾航空机组员突发性耳聋，捷克年轻人听力问题暴增](/content/gnews/36/README.md)
+### [COVID-19最新情报｜疫苗后，台湾航空机组员突发性耳聋，捷克年轻人听力问题暴增](/content/gnews/41/README.md)
  ` G&#124;News TAIWAN`
 
-### [解放军武装直升机首次“扰台”，应为夺岛登陆战术做实地验证](/content/gnews/37/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [针下亡魂｜澳洲 56 岁电台主持人接种疫苗两个月后死亡](/content/gnews/38/README.md)
+### [针下亡魂｜澳洲 56 岁电台主持人接种疫苗两个月后死亡](/content/gnews/42/README.md)
  ` G&#124;News TAIWAN`
 
-### [视频| &#8220;我们不服从!&#8221;: 纽约市政员工10/25大游行，抗议疫苗强制令](/content/gnews/39/README.md)
+### [视频| &#8220;我们不服从!&#8221;: 纽约市政员工10/25大游行，抗议疫苗强制令](/content/gnews/43/README.md)
  ` MOSREC`
 
-### [GTV新闻访谈简报|2021年10月27日晚](/content/gnews/40/README.md)
- ` 纽约香草山MOS01`
-
-### [蓬佩奥称习知道拜登没有捍卫美国的利益](/content/gnews/41/README.md)
+### [蓬佩奥称习知道拜登没有捍卫美国的利益](/content/gnews/44/README.md)
  ` HimalayaRussia`
 
-### [蔡英文首度证实：美国军队已经进驻台湾领土](/content/gnews/42/README.md)
+### [蔡英文首度证实：美国军队已经进驻台湾领土](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭先生2021年10月27日大直播谈喜联储G系列和房产税](/content/gnews/43/README.md)
+### [郭先生2021年10月27日大直播谈喜联储G系列和房产税](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [10/27/2021 文贵直播：DWAC股票大涨大跌的背后操纵者就是吴征代表的共产党，蒙受损失的都是川普总统的支持者](/content/gnews/44/README.md)
+### [10/27/2021 文贵直播：DWAC股票大涨大跌的背后操纵者就是吴征代表的共产党，蒙受损失的都是川普总统的支持者](/content/gnews/47/README.md)
  ` 秘密翻译组-北美组`
 
-### [因疫苗接种强制令，雷神公司警告称将失去数千名员工](/content/gnews/45/README.md)
+### [因疫苗接种强制令，雷神公司警告称将失去数千名员工](/content/gnews/48/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [10月份以来北京部分蔬菜价格涨幅超过50%](/content/gnews/46/README.md)
- ` GTV新闻访谈`
-
-### [盖特用户跟帖声讨FDA专家组把中共病毒疫苗黑手伸向低龄儿童](/content/gnews/47/README.md)
- ` GTV新闻访谈`
-
-### [泽连科医生呼吁人们救救孩子 并揭露福奇虐杀幼犬](/content/gnews/48/README.md)
- ` GTV新闻访谈`
 
 ### [俄罗斯著名歌手卡佳-列伊反对疫苗 引发热度关注](/content/gnews/49/README.md)
  ` GTV新闻访谈`
