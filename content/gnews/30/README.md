@@ -2,32 +2,23 @@
 ---
 
 
-## COVID-19 最新情报｜护士爆料 001：“我看到年轻患者在接种疫苗后因心脏疾病倒下”
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1622907/)
+## 马云访问荷兰农业研究所
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1623077/)
 
-**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜28/10/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_0.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+#### 编译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/6-20.jpg)图片来源：cnb
+零对冲网10月27日报道，被击打的中共国在美国的存托凭证人的出现对于美国开放的市场可能看到一些更多的放松，因为我们看到马云去了欧洲，这是自一年多来首次去欧洲旅行。
 
-**【澳洲/大医院/心脏病病房/注册护士/AHPRA认证】**
+本月初，当报道马云去了香港，阿里巴巴股价飙升，拉高了其他中共国的股价，这是自2019年下半年中共政府对这个最大的中共科技公司进行施压后首次让他离开中国大陆。中共政府不但对大科技公司打压，而且也对其他所有私营企业如私人培训服务和儿童视频游戏进行打压，中共对待这些游戏公司就好像美国和其他国家对待香烟行业那样避之不及。
 
-*以下为转述：*
+上周的第一大新闻是马云去了欧洲，但现在马云阿里巴巴公司拥有的SCMP报告马云到了荷兰研究机构以寻求他的农业技术兴趣。
 
-我在一间繁忙大医院的心脏病病房工作。我见过许多年轻人在接种 COVID-19 疫苗后倒下，被送进医院进行心脏监测。
+据SCMP报告，这位亿万富翁于2019年从阿里巴巴集团主席位上退休，将继续去欧洲公司和农业基础设施建设研究机构以及植物配种等方面的旅行。马云认为将他的阿里巴巴云计算机技术，大数据和人工智能相结合将实现中国农业现代化。也将帮助中共国不再依赖从澳大利亚，新西兰和其他国家大量进口食物，以达中共政府的农业独立的最高目标。
 
-1. 一位患有自身免疫性疾病的女士在接受疫苗后出现心包积液。
-2. 一位女士在接种完第二剂阿斯利康疫苗后出现胸痛并持续数周，她患上心肌炎。她病得很重，发烧，面部严重浮肿，眼神涣散。
-3. 一位非常健康的男性青年，他面部单侧出现严重的蜂窝组织炎，他的耳朵肿到三倍大。
-4. 还有一位 20 岁青年，第一剂辉瑞疫苗之后，第二日就发烧了，在 TOE 被诊断出感染性心内膜炎之后，他又患上了需要透析的急性肾损伤。所有肾脏扫描都显示正常，但他的肾脏仍然衰竭。在他送到急诊时的问诊记录中，他提到的，身体不适是在接种疫苗后的第二日开始的，但是，后来，经过多位科室专家（传染病、肾脏、心脏）审查后，这条线索消失了。
+这看起来好像是马云为中共谋利益，也许这就是中共为什么让他出来的唯一理由。
 
-
-总而言之，在医生们的诊断纪录中，完全没有将疫苗视为患病的可能性因素，我不知道这是不是故意的。
-
-最令我不安的是，我所在的这遍地区，疫苗根本不被视为是导致心脏疾病的潜在原因，即使疾病都是在接种后发生的。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1_0.jpg)
-* * *
-
-来源：[001](https://www.australiannationalreview.com/nurses-speak-out/nurses-speak-out-0020-27-09-2021-rn-cardiology-ward-major-hospital-ahpra-verified/)
+新闻来源： [Jack Ma Visits Dutch Agricultural Research Institute As Disgraced Billionaire’s Foreign Tour Continues](https://www.zerohedge.com/geopolitical/jack-ma-visits-dutch-agricultural-research-institute-disgraced-billionaires-foreign)
 
  
 

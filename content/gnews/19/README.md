@@ -2,20 +2,27 @@
 ---
 
 
-## 秘翻在线：格芯的IPO股价为每股47美元，估值达250亿美元
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1623080/)
+## 东盟峰会上各国对大冲突的恐惧
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1623161/)
 
-#### 翻译/撰稿：zzballack
+新闻来源：德国法兰克福报网络版
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-511.png)图片来源：apple insider
-据《市场观察》（Market Watch）10月27日报道，格芯（GlobalFoundries Inc.）本周三（10月27日）晚些时候将其首次公开募股（IPO）价格定为每股47美元，处于目标区间42至47美元的高端。周四（10月28日）将在纳斯达克挂牌上市，股票代码为“GFS”，估值251 亿美元。
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-格芯是一家总部位于纽约州马耳他镇的硅晶圆代工厂，成立于2009年3月2日，起初是从美国超微半导体（AMD）公司的制造部门分拆出来。现在全球芯片短缺，格芯仍有来自客户的长期滞销订单。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/der-amerikanische-praesident.jpg)
 
-像格芯这样的第三方晶圆厂为大多数没有自己晶圆厂的芯片制造商生产硅晶圆，这些公司包括AMD、苹果和英伟达（Nvidia）。
 
-新闻来源：[GlobalFoundries prices IPO at $47 a share, for $25 billion valuation](https://www.marketwatch.com/story/globalfoundries-prices-ipo-at-47-a-share-for-25-billion-valuation-11635382866)
+图片来源：FAZ
+
+东南亚国家联盟东盟峰会目前作为一项以地区为重点的活动而备受关注。当十个成员国邀请他们的一些对话伙伴（包括美国、中国、澳大利亚、印度、日本和俄罗斯）在周三会面时，几乎没有哪个国家不想坐在桌边。随着中美地缘政治竞争的加剧，焦点更加集中在东南亚。在过去的几个月里，华盛顿寻求更紧密的联系，将副总统卡马拉·哈里斯和国防部长劳埃德·奥斯汀派往该地区。拜登总统在与东盟政府首脑的虚拟会议上说：“我想直接告诉你，美国重视与东盟的关系。”
+
+为了以行动支持言论，拜登还承诺提供 1 亿美元用于增加与该地区接触的举措。澳大利亚周三还宣布，将向东南亚国家投资1.6亿美元。该地区位于具有重要战略意义的地区的中心，该地区一段时间以来一直被称为印度洋太平洋地区。不仅仅是美国和澳大利亚注意到了。一年前制定的所谓联邦政府关于印太地区的指导方针，也赋予了东盟一个突出的地位。欧盟在其印太战略中也采取了同样的做法。欧盟不在峰会上，而是在以安全政策为导向的东盟地区论坛上。
+
+原文链接：[https://www.faz.net/aktuell/politik/ausland/der-asean-gipfel-furcht-vor-konflikt-zwischen-china-und-usa-17605693.html](https://www.faz.net/aktuell/politik/ausland/der-asean-gipfel-furcht-vor-konflikt-zwischen-china-und-usa-17605693.html)
+
+免责声明：本文内容仅代表个人观点，与Gnews平台无关。
+
+责任编辑、发布： Shuizhuyu
 
  
 
