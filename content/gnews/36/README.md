@@ -2,31 +2,31 @@
 ---
 
 
-## 盖特首席执行官欢迎Truth加入社交媒体领域的竞争
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1623355/)
+## HCOIN问世于本年度最后一个福满之日
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1623363/)
 
-作者：香草山农场 文秋
+作者：澳喜农场 在远方
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-盖特首席执行官杰森-米勒先生在10月21日接受天空新闻采访时表示，由川普总统初创的社交媒体平台Truth，将会给社交媒体这一领域引入竞争机制，这将撼动目前社交媒体寡头对自由言论的压制。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1028AM（1-5）視頻備用.001.jpeg)
-米勒先生认为，当下人们对社交媒体寡头的厌恶，已不仅限于左右政斗。因此，盖特和Truth的出现会重新凝聚这些流失的客户。从长远来，这是社交媒体领域的一件好事。
+郭文贵先生在10月26日的直播中表示，据发行方消息，综合市场、战友投资者利益等诸多因素，区块链加密数字货币Hcoin将定于11月1日11时11分上线。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1028AM（1-5）視頻備用.003.jpeg)
+郭先生进一步解释，选择这一时刻作为HCoin的生辰，有深刻的意义。1928年11月1日，中国近现代史上唯一一个合法注资的银行——中华民国中央银行创立。而1952年的11月1日，20世纪终极“热战武器”——氢弹首次亮相并试爆成功。
 
-同时，作为盖特的首席执行官，杰森-米勒先生表示，面对Truth这一初创社交媒体平台，盖特已做好了相应的准备应对挑战。他补充，良性的竞争是打破垄断的基础，这将不断促进盖特的提升和发展，带来更多优秀的用户体验和技术革新。
+依照中国传统堪舆之学和奇门遁甲之术，本年度的11月1日11时11分作为生辰，将是大驿土命，天火降生之时。五行之中，“火生土，土生金”，以土为象征的大地，更是催生出世间万物。
 
-盖特自7月份上线以来，始终坚持“不因政治立场、宗教信仰而审查言论”的宗旨。当下，盖特注册用户已达300万人，是有史以来用户入驻最快达到百万级别的社交媒体平台。
+Hcoin择此良辰问世，承载了上苍的所有祝福。而Hcoin作为数字货币的一项革命性产品，将在不久的将来改变现有的计价和支付方式，带来革新的变化。
 
-参考链接：
+参考链接:
 
-1. [With his new platform, Trump may bring his supporters back to the social media world. And Gettr…..](https://gettr.com/post/pf4buxcc7b)
-2. [Former President Trump launches his own social media platform called Truth](https://www.youtube.com/watch?v=tgJ27taFZpo)
+1. [20211026文贵直播：2021年11月1号11:01分格林威治时间将发生什么？七哥告诉你他英文名字的来历](https://gtv.org/video/id=61783c6aeadeb11f5e7ac4ea)
+2. [郭文贵先生10月26日盖特：尊敬的战后们好……为什么我们的穷人总是一直穷？为什么习近平在北京．江派的人竟然不知道？川普总统的股票为什么暴跌？](https://gettr.com/post/pf8psl755a)
 
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-总编：木白
-编辑：Zion文恩
+总编：Irene木木
+编辑：童谣
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**

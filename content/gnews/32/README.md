@@ -2,35 +2,31 @@
 ---
 
 
-## 欧洲议会将组团访台
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1623365/)
+## 日本首相东亚峰会公开批评中共人权和台海等问题
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1623396/)
 
-作者：澳喜农场 在远方
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/59644360_303.jpg)
+岸田文雄10月27日出席东盟10国与日本的领导人线上会议。会后岸田对媒体表示，他发言中提到了香港和新疆的人权状况，以及台湾海峡和平与稳定的重要性。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据日本共同社报道，在与东盟各国首脑会议上，岸田文雄谈到，将印太变成”自由开放的和平海域”是各国共同利益，日本”强烈反对挑战基于法治的自由开放海洋秩序”。报道指这是间接评论东海、南海的局势。
 
-10月27日的相关报道提及，由欧洲议会“外国干预欧盟民主程序特别委员会”多名议员组成的代表团，计划将于下月初访问台湾。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1028AM（1-5）視頻備用.005.jpeg)
-台湾外交部发言人对欧盟议会代表此次访台表示欢迎。台湾世代智库执行长表示，欧盟还不熟悉中共的干扰信息，必须快速对此作出反应。而台湾是亚洲民主国家应对极权国家干预非常好的例子。据悉，本次欧盟访问团的目的之一，就是要向台湾学习如何面对试图干预或者影响民主进程的势力。
+岸田呼吁东盟国家合作，一同实现美日等国所追求的”自由开放的印度太平洋”（FOIP）。他强调，对于自由开放的印度太平洋所共享的开放性、透明性、包容性、法治等本质性原则，日本期盼与东盟具体合作、推动。岸田同一天也出席东盟加日中韩（10加3）领导人线上会议以及东盟与日本、美国、中、俄等领导人举行的东亚高峰会（EAS）线上会议。
 
-欧盟访台代表团的领队是法国议员莱克斯曼。今年三月，欧盟27个成员国因新疆维吾尔族人遭受大规模迫害对中共国实施制裁，出于报复，中共宣布对包括莱克斯曼在内的10名欧盟人士及4个实体实施发制裁。
+另有报道称，在中美领导人亦有出席的东亚峰会上，岸田在发言中还指中国”在东海侵犯日本主权的活动持续”，表示强烈反对在东海和南海加强海洋活动，和在地区进行经济胁迫行为。
 
-参考链接：[欧洲议会将组团访台 曾遭中国制裁法国议员莱克斯曼领队](https://www.rfa.org/mandarin/yataibaodao/gangtai/hcm2-10272021080514.html)
+虽然岸田一直被认为是日本自民党内坚定的温和派，但外界也预计他上任后将继续强化日美同盟，支持印太区域的自由与开放，并且以务实而强硬的态度处理中共国事务。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+信息来源：
 
-总编：Irene木木
-编辑：山本不惑
-校正/发稿：我不在这里
+[日相公开提人权、台海 北京称抹黑干涉](https://www.dw.com/zh/%E6%97%A5%E7%9B%B8%E5%85%AC%E5%BC%80%E6%8F%90%E4%BA%BA%E6%9D%83%E5%8F%B0%E6%B5%B7-%E5%8C%97%E4%BA%AC%E7%A7%B0%E6%8A%B9%E9%BB%91%E5%B9%B2%E6%B6%89/a-59652373)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+(文章仅代表作者本人观点，与GNEWS无关)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
 
  
 

@@ -2,27 +2,25 @@
 ---
 
 
-## 中共征收房地产税将引爆中共及世界经济
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1623362/)
+## 布林肯号召联合国成员支持台湾参与国际事务
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1623364/)
 
-作者：香草山农场教育部 四季
+作者：澳喜农场 在远方
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-10月27日，郭文贵先生在大直播中透露，随着地方债即将暴雷，中共为拿回重新分配财富的权力，即将开征房地产税。郭先生补充，这将是中共国走向北朝鲜模式，与世界为敌的开始。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1028AM（1-5）視頻備用.002.jpeg)
-文贵先生预计，大量靠房产收租，以及所有靠银行贷款炒房的人，甚至包括想靠收租养老的人，都即将破产——因为共产党将成为中共国唯一的房东。而开征房产税，是共产党实施的又一次“打土豪、分田地”运动，其最终目的，就是让老百姓吃草，将中国闭关锁国。对于文革一代的人来说，他们将遭受到人生的第二次打击。
+10月26日，美国国务院发布消息称，国务卿安东尼-布林肯就支持台湾参与联合国系统发表了声明。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1028AM（1-5）視頻備用.004.jpeg)
+据报道显示，此前一天，中共当局还援引了联大2758号决议，声称反对美国支持扩大台湾参与联合国行动。
 
-郭先生表示，中共国几万亿房地产的暴雷，将会毁掉世界的经济；而开征房地产税，又会导致中共国社会及金融的大崩溃，继而造成中共经济崩溃。为此，中共会向全世界转嫁其自身的所有危机，采取房产税，人民币数字化等手段，输出革命和贫穷。
+对此，布林肯在声明中表示，台湾尊重人权与法治，与联合国的价值观一致，是一个践行民主的成功典范。美国与许多联合国成员国都把台湾当作宝贵伙伴和可以信赖的盟友。美国鼓励所有联合国成员国，与美国一起，支持台湾参与联合国系统及国际社会，共同解决全球面临的问题。
 
-文贵先生强调，中共征收房地产税将给新中国联邦的灭共事业带来重大的机遇——中共绝无可能活到2025年。
-
-参考链接：[2021年10月27日文贵大直播：SPAC忽上忽下何有未来；吴征虚假信息刑事犯罪…..](https://gettr.com/streaming/pfb0u0b75a)
+参考链接：[安东尼·布林肯国务卿就支持台湾参与联合国系统发表声明](https://www.state.gov/translations/chinese/安东尼·布林肯国务卿就支持台湾参与联合国系统/)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-总编：Irene木木
-编辑：Kathy文艺
+总编：Ivy001
+编辑：Delilah小胖
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
@@ -31,7 +29,9 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

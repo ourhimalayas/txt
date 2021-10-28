@@ -15,143 +15,143 @@
 
 ---
 
-### [中共外长王毅开始访问欧洲四国](/content/gnews/1/README.md)
- ` GTV新闻访谈`
+### [GTV新闻访谈简报|2021年10月28日早](/content/gnews/1/README.md)
+ ` 纽约香草山MOS01`
 
-### [体制内的真男人请站起来](/content/gnews/2/README.md)
+### [喜币上市择佳日，数字货币创世纪](/content/gnews/2/README.md)
  ` 波士顿五月花农场`
 
-### [10/28/21 香港快讯 警方因民阵没按《社团条例》提交资料 搜查 4 处相关地点](/content/gnews/3/README.md)
+### [渥太华医护人员因使用伪造疫苗护照面临指控](/content/gnews/3/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [阿拉巴马州州长抵制强制疫苗接种政策](/content/gnews/4/README.md)
+ ` GTV新闻访谈`
+
+### [中共国出现“柴油荒”](/content/gnews/5/README.md)
+ ` GTV新闻访谈`
+
+### [中共外长王毅开始访问欧洲四国](/content/gnews/6/README.md)
+ ` GTV新闻访谈`
+
+### [体制内的真男人请站起来](/content/gnews/7/README.md)
+ ` 波士顿五月花农场`
+
+### [10/28/21 香港快讯 警方因民阵没按《社团条例》提交资料 搜查 4 处相关地点](/content/gnews/8/README.md)
  ` 英喜-粵語組`
 
-### [日本央行延长货币互换协议](/content/gnews/4/README.md)
+### [日本央行延长货币互换协议](/content/gnews/9/README.md)
  ` GTV新闻访谈`
 
-### [吴征毁人不倦，不归正道终毁自己](/content/gnews/5/README.md)
+### [吴征毁人不倦，不归正道终毁自己](/content/gnews/10/README.md)
  ` 波士顿五月花农场`
 
-### [美大型零售商下架中共国涉及侵犯人权的监控产品](/content/gnews/6/README.md)
+### [美大型零售商下架中共国涉及侵犯人权的监控产品](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [生活物资短缺的开始](/content/gnews/7/README.md)
+### [生活物资短缺的开始](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线 : 人类空前绝后的灭种危机](/content/gnews/8/README.md)
+### [秘翻在线 : 人类空前绝后的灭种危机](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新加坡疫苗覆盖超八成 单日染疫暴增5324例](/content/gnews/9/README.md)
+### [新加坡疫苗覆盖超八成 单日染疫暴增5324例](/content/gnews/14/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中共驻日本总领事“驱除害虫”推文引人侧目](/content/gnews/10/README.md)
+### [中共驻日本总领事“驱除害虫”推文引人侧目](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本要闻汇编 10月28日](/content/gnews/11/README.md)
+### [日本要闻汇编 10月28日](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：佛罗里达州新增病例比例最低](/content/gnews/12/README.md)
+### [秘翻在线：佛罗里达州新增病例比例最低](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西媒头条 — 第97期](/content/gnews/13/README.md)
+### [西媒头条 — 第97期](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [共产党快完蛋了,房地产纳税之后是闭关锁国停掉互联网](/content/gnews/14/README.md)
+### [共产党快完蛋了,房地产纳税之后是闭关锁国停掉互联网](/content/gnews/19/README.md)
  ` NewFOC`
 
-### [秘翻在线：又一个中共病毒疫苗的受害名人](/content/gnews/15/README.md)
+### [秘翻在线：又一个中共病毒疫苗的受害名人](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [开征房地产税会诞生金融界大崩溃和社会伦理家庭大崩溃](/content/gnews/16/README.md)
+### [开征房地产税会诞生金融界大崩溃和社会伦理家庭大崩溃](/content/gnews/21/README.md)
  ` NewFOC`
 
-### [加拿大阿尔伯塔省急救医务人员严重短缺](/content/gnews/17/README.md)
+### [加拿大阿尔伯塔省急救医务人员严重短缺](/content/gnews/22/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [墙内要闻汇编 10月28日](/content/gnews/18/README.md)
+### [墙内要闻汇编 10月28日](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大安省教育部长就强制接种政策提出异议](/content/gnews/19/README.md)
+### [加拿大安省教育部长就强制接种政策提出异议](/content/gnews/24/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [加拿大魁北克法官就医护工作者强制疫苗令的诉讼举行听证，疫苗令可能再次推迟](/content/gnews/20/README.md)
+### [加拿大魁北克法官就医护工作者强制疫苗令的诉讼举行听证，疫苗令可能再次推迟](/content/gnews/25/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [10/27/2021 文贵直播：DWAC事件证明了代表中共的吴征在美国进行的欺骗和刑事犯罪，这是给新中国联邦带来的最大礼物](/content/gnews/21/README.md)
+### [10/27/2021 文贵直播：DWAC事件证明了代表中共的吴征在美国进行的欺骗和刑事犯罪，这是给新中国联邦带来的最大礼物](/content/gnews/26/README.md)
  ` 秘密翻译组-北美组`
 
-### [10/27/2021 文贵直播：DWAC事件导致支持川普总统的众多小投资者的钱被骗走，这会挑起他们对中共甚至中国人的仇恨](/content/gnews/22/README.md)
+### [10/27/2021 文贵直播：DWAC事件导致支持川普总统的众多小投资者的钱被骗走，这会挑起他们对中共甚至中国人的仇恨](/content/gnews/27/README.md)
  ` 秘密翻译组-北美组`
 
-### [10/27/2021 文贵直播：DWAC股票大涨大跌的背后操纵者就是吴征代表的共产党，蒙受损失的都是川普总统的支持者](/content/gnews/23/README.md)
+### [10/27/2021 文贵直播：DWAC股票大涨大跌的背后操纵者就是吴征代表的共产党，蒙受损失的都是川普总统的支持者](/content/gnews/28/README.md)
  ` 秘密翻译组-北美组`
 
-### [别吊死在新冠疫苗这棵树上](/content/gnews/24/README.md)
+### [别吊死在新冠疫苗这棵树上](/content/gnews/29/README.md)
  ` 银河勇气之星`
 
-### [文贵焦点(10/27):喜币上市的幕后故事及对新中国人意味着什么](/content/gnews/25/README.md)
- ` 秘密翻译组-原创组`
-
-### [中共外交部开批刚刚就任的岸田首相](/content/gnews/26/README.md)
+### [中共外交部开批刚刚就任的岸田首相](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [喜币即将上市！](/content/gnews/27/README.md)
+### [喜币即将上市！](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [日本首相东亚峰会公开批评中共人权和台海等问题](/content/gnews/28/README.md)
+### [日本首相东亚峰会公开批评中共人权和台海等问题](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [10/28/2021 国际财经快讯：日银下调经济增长预期，维持大规模货币宽松；由于能源成本飙升，德国将2021年GDP预测下调25%](/content/gnews/29/README.md)
+### [10/28/2021 国际财经快讯：日银下调经济增长预期，维持大规模货币宽松；由于能源成本飙升，德国将2021年GDP预测下调25%](/content/gnews/33/README.md)
  ` 秘密翻译组金融团队`
 
-### [盖特将被打造成全球新闻资讯和情报交流集散地](/content/gnews/30/README.md)
- ` GTV新闻访谈`
-
-### [中共又在煤炭行业下一盘大棋？](/content/gnews/31/README.md)
+### [中共又在煤炭行业下一盘大棋？](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [欧洲议会将组团访台](/content/gnews/32/README.md)
+### [布林肯号召联合国成员支持台湾参与国际事务](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [布林肯号召联合国成员支持台湾参与国际事务](/content/gnews/33/README.md)
- ` GTV新闻访谈`
-
-### [HCOIN问世于本年度最后一个福满之日](/content/gnews/34/README.md)
- ` GTV新闻访谈`
-
-### [中共征收房地产税将引爆中共及世界经济](/content/gnews/35/README.md)
- ` GTV新闻访谈`
-
-### [盖特首席执行官欢迎Truth加入社交媒体领域的竞争](/content/gnews/36/README.md)
+### [HCOIN问世于本年度最后一个福满之日](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
 ### [民调和民众自发抗议强制疫苗接种显示加拿大民众正在醒来](/content/gnews/37/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美国前总统川普被中共设局，将卷入刑事调查](/content/gnews/38/README.md)
- ` GTV新闻访谈`
-
-### [美军参谋长联席会主席：中共测试高超音速武器“非常令人担忧”](/content/gnews/39/README.md)
+### [美军参谋长联席会主席：中共测试高超音速武器“非常令人担忧”](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [莫德纳CEO：50岁以上人群应该每年接种新冠疫苗](/content/gnews/40/README.md)
+### [莫德纳CEO：50岁以上人群应该每年接种新冠疫苗](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [谈谈报应](/content/gnews/41/README.md)
+### [谈谈报应](/content/gnews/40/README.md)
  ` 骄子`
 
-### [文贵大直播简报10/28/2021](/content/gnews/42/README.md)
+### [文贵大直播简报10/28/2021](/content/gnews/41/README.md)
  ` 秘密翻译组-原创组`
 
-### [维加诺大主教：大重置需要数十亿人接种中共疫苗](/content/gnews/43/README.md)
+### [维加诺大主教：大重置需要数十亿人接种中共疫苗](/content/gnews/42/README.md)
  ` wenwu`
 
-### [白思豪市长的中共疫苗强制令或迫使 FDNY 关门](/content/gnews/44/README.md)
+### [白思豪市长的中共疫苗强制令或迫使 FDNY 关门](/content/gnews/43/README.md)
  ` wenwu`
 
-### [坎特邀詹姆斯、乔丹和耐克老板：一起去探新疆奴隶营](/content/gnews/45/README.md)
+### [坎特邀詹姆斯、乔丹和耐克老板：一起去探新疆奴隶营](/content/gnews/44/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [吴征定律=共产党定律](/content/gnews/46/README.md)
+### [吴征定律=共产党定律](/content/gnews/45/README.md)
  ` 银河勇气之星`
+
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/46/README.md)
+ ` wenwu`
 
 ### [COVID-19 最新情报｜护士爆料 001：“我看到年轻患者在接种疫苗后因心脏疾病倒下”](/content/gnews/47/README.md)
  ` G&#124;News TAIWAN`
