@@ -2,30 +2,41 @@
 ---
 
 
-## 美军参谋长联席会主席：中共测试高超音速武器“非常令人担忧”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1623285/)
+## 民调和民众自发抗议强制疫苗接种显示加拿大民众正在醒来
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1623345/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/56208121_403.jpg)[图片来源](https://www.dw.com/zh/%E7%B1%B3%E5%88%A9%E4%B8%AD%E5%9B%BD%E8%AF%95%E5%B0%84%E9%AB%98%E8%B6%85%E9%9F%B3%E9%80%9F%E6%AD%A6%E5%99%A8%E6%B5%8B%E8%AF%95%E9%9D%9E%E5%B8%B8%E4%BB%A4%E4%BA%BA%E6%8B%85%E5%BF%A7/a-59642408)
-近日，美国参谋长联席会议主席马克·米利将军在接受彭博电视台采访时表示，中共测试高超音速武器“非常令人担忧”。这一表态肯定了英国《金融时报》10月中旬有关中共7、8月曾秘密进行高超音速导弹测试的说法。中方迄今没有对此予以否认。
+**作者：**卢卡斯
+![](https://assets.gnews.org/wp-content/uploads/2021/10/CP132735471-1-e1631966379257.jpg)图片来源：网络
+最新的民意调查显示，加拿大人对选举机构的信任度达到78%，对警察达到74%，而对主流媒体、省和联邦政府分别是54%，56%和55%，显示加国民众非常信任选举机构和警察，但是对主流媒体，省和联邦政府信任度并不很高；而今年4月初另一项民意调查显示，相信阴谋论的加拿大人的人数令人惊讶地上升：40%的加拿大人认为，有少数人在操纵世界上发生的大事件，譬如中共病毒是实验室人工制造的生化武器，且跟5G技术有关联 [1][2]。
 
-英国《金融时报》10月16日援引消息人士的话报道说，中共于8月秘密试射了可搭载核武器的高超音速导弹。这枚导弹先是进入轨道以后进行“环绕地球”飞行，随后再重返大气层进行“高超音速滑翔”，最终落在距离目标约32公里处。对此次试验一无知的中国核武器政策专家、麻省理工学院教授泰勒·弗雷布尔（Taylor Fravel）对《金融时报》表示，高超音速滑翔飞行器可以帮助中共让美国导弹防御系统无用武之地。弗雷布尔说，如果中共开发和部署这种武器，将会“破坏稳定”，但他也指出，测试并不一定意味着北京会部署这种能力。白宫已通过“外交渠道”对中共的高超音速导弹技术提出关切。当天，在被记者问及是否对中共的高超音速导弹感到关切时，美国总统拜登回答说，“是的。”
+今年2月份，一位加拿大女士在Facebook发帖说，中共病毒是一个骗局，封城，强制戴口罩和疫苗是为最终建立极权主义者的新世界秩序的中间步骤，根本无关于民众的健康，而是全球控制 [3]。加拿大主流媒体把上述阴谋论和极权主义的新世界秩序统统斥为误导民众的虚假信息。Leger民调公司今年五月份的调查显示，60%以上的加国民众表示，中共病毒大流行已经永久性侵蚀他们对省和联邦政府的信任 [4]。10月26日，成千阿尔伯塔民众在省立法院集会声援一线医护工作者拒绝服从该省的强制疫苗接种令，该省共有1400名医护人员以宗教和医疗理由要求豁免接种 [5]；27日，该省的消防员反击该省的疫苗通行证政策，他们基于医疗、宗教和伦理原因拒绝接种疫苗，这直接把该省政府置于火上烤 [6]。这些情况表明加国民众正在醒来，并且开始有所行动，然而尚未形成大规模有组织的行动。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-28-075013-edited.png)
+加拿大总理小土豆一直是疫苗接种运动积极推进者，从他再次当选加拿大总理以后，继续抓紧推行强制疫苗接种和疫苗。截至10月28日，加拿大12以上人群至少接种一剂疫苗的接种率已经达到87.66% [7]。加拿大政府医疗当局正在审批辉瑞公司提交的给5到11岁儿童接种疫苗的试验数据，不出意外会很快获得批准。医疗当局和主流媒体正在为不久后给以上年龄段的儿童接种疫苗造势，声称现在中共病毒感染率近一半发生在这个年龄段的儿童中。然而流行病专家医生Paul Elias Alexander接受RebelNews采访声称，给5~11岁儿童接种疫苗是草率的、没有必要的，儿童没有准备好接种疫苗，他们拥有强大的最好最持久的先天免疫力；另外儿童并不是医疗官员所认为的那样是超级传播者，接种疫苗带来的风险远大于那些备受质疑的好处 [8]。然而真实的声音依然被严重压制，邪恶黑暗势力一直在坚持推行他们早就谋划好的控制奴役全球人们的议事日程。
 
-高超音速导弹”通常的定义为飞行速度超过五倍音速的导弹，时速达每小时6200公里。与弹道导弹一样，高超音速武器也可以携带核弹头。它在射向目标的过程中行动灵活，不遵循传统弹道导弹的固定抛物线轨迹，机动性高，使得敌方难以追踪及拦截。
+我们现在都知道，疫苗是比中共病毒更致命的生化武器，不但不能保护人体免于中共病毒的侵蚀，反而是灭绝全人类的致命毒药。黑暗势力已经完全控制加国政府、医疗权威机构和主流媒体。加国民众大多数仍然蒙在鼓里，同时那些真相的声音基本上被压制。接种疫苗与拒绝接种疫苗的民众被被政府和主流媒体误导，站在互相对立的立场，这种操纵民众手法很像CCP。加国少部分民众正在清醒过来，真正的全民大清醒可能要等到疫苗灾难发生之后（文贵先生大直播警告人类，今年12月到明年5月将发生疫苗灾难），加国民众的最终清醒也许要付出不少人生命的代价，到那时中共对加国主流媒体的操纵有可能会引发排华浪潮。因此继续传播中共病毒极其疫苗的真相，加快加国民众的清醒，同时把中国人与中共分开是我们战友们肩上的重任。
 
-美国参谋长联席会议主席米利在彭博电视的采访中说，报道的高超音速试验是中共军队扩张的一部分，对美国有着广泛影响：“他们正在迅速扩张——在太空、网络以及传统的陆、海、空领域。他们已经从1979年一支非常、非常庞大的，以农民为基础的步兵军队变成了一支涵盖所有领域、并具有全球野心的军队。”
+[1] [Canadians falling prey to conspiracy theories despite strong trust in institutions: poll – National | Globalnews.ca](https://globalnews.ca/news/8329274/canadians-conspiracy-theories-trust-institutions-poll/)
 
-中共现已构成美国最大的地缘战略挑战，美军对此绝不能听之任之。
+[2] [40% of Canadians believe in conspiracy theories — do you?](https://www.rebelnews.com/40_percent_of_canadians_believe_in_conspiracy_theories_do_you)
 
-信息来源：
+[3] [No Hoax: Fighting COVID-19 has meant tackling conspiracy theories, even within families – National | Globalnews.ca](https://globalnews.ca/news/7655629/covid-19-misinformation-harming-the-fight-pandemic/)
 
-[**米利：中国试射高超音速武器测试”****非常令人担忧”**](https://www.dw.com/zh/%E7%B1%B3%E5%88%A9%E4%B8%AD%E5%9B%BD%E8%AF%95%E5%B0%84%E9%AB%98%E8%B6%85%E9%9F%B3%E9%80%9F%E6%AD%A6%E5%99%A8%E6%B5%8B%E8%AF%95%E9%9D%9E%E5%B8%B8%E4%BB%A4%E4%BA%BA%E6%8B%85%E5%BF%A7/a-59642408)
+[4] [COVID pandemic corroded Canadians’ trust in politicians — even their neighbours, poll finds | National Post](https://nationalpost.com/news/politics/covid-pandemic-eroded-canadians-trust-in-politicians-science-and-even-their-neighbours-poll-finds)
 
-(文章仅代表作者本人观点，与GNEWS无关)
+[5] [Silent protest held in solidarity with frontline workers against Alberta vaccine mandate](https://www.rebelnews.com/silent_protest_held_in_solidarity_with_frontline_workers_against_alberta_vaccine_mandate)
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+[6] [Albertan firefighters challenge the vaccine passports and put the government in the hot seat](https://www.rebelnews.com/albertan_firefighters_challenge_vaccine_passports_put_government_in_hot_seat)
+
+[7] [COVID-19 vaccination in Canada](https://health-infobase.canada.ca/covid-19/vaccination-coverage/)
+
+[8] [Sacrificing children’s health at the altar of profits | Dr. Paul Alexander](https://www.rebelnews.com/sacrificing_childrens_health_at_the_altar_of_profits_dr_paul_alexander)
+
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+
+编辑/发布：LILY
+
+20211028
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
