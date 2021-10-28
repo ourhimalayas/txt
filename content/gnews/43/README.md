@@ -2,23 +2,69 @@
 ---
 
 
-## 中共国疫情蔓延，瑞丽小城多次封城造成惨剧多发
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1622013/)
+## 强制接种疫苗的要求违背他的信仰—自由
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1622106/)
 
-撰稿：西枫westca
+[https://gtv.org/video/id=617362cf247c5a3f908e703e](https://gtv.org/video/id=617362cf247c5a3f908e703e)
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unnamed-15.jpg)图片来源：网络照片
+My name is Dalen Lambert.
+我的名字是达伦·兰伯特
 
-近日来，中共国的病毒疫情似卷土重来，新一轮疫情目前已经波及11省份，包括首都北京也有多个小区被封。北有内蒙额济纳旗近万游客因疫情滞留当地，南有云南瑞丽小城持续封闭管理。
+I was hired in January 2020
+我是 2020 年 1 月入职的
 
-日前在中共国的社交媒体上，包括微信、微博、抖音不断看到来自云南瑞丽地区的网民透露受中共病毒疫情下百姓众生相。中小生意倒闭、店铺关门、因无力支持家庭生活甚至有人自杀，还有一岁多的孩子做过59次核酸检测。自中共病毒肆虐云南小城瑞丽以来，多次封城，主城区实行封闭管理，所有市民居家隔离。有视频显示，瑞丽地区的隔离区好似集中营，把人像猪一样关起来，隔离场所卫生条件极差，根本起不到隔离作用，还要高额收费。据10月27日瑞丽市最新消息，若要离开瑞丽也要自费集中隔离7-21天才可放行。瑞丽拥有两个国家级口岸，有超过5万的缅甸籍务工人员，人员流动是否带来疫情，仍未确定。在7月时，瑞丽的中共疫苗接种率已高达96.9%，按理说已经全员免疫，却如此严加管理，其中是否有利益关系，也值得深思。
+All I know is the career firefighters in this pandemic
+我所知道的是这次大流行的职业消防员
 
-中共国管理病毒疫情的方式是一系列的激进措施，如大规模重复筛查、通过“绿码”追踪人们的行踪、强制封锁、对入境人员进行严格隔离等。其结果并没有达到“零容忍”的要求， 或疫情根本不是表面上几个简单的数字代表的。郭文贵先生在今天的直播中就提到中共有可能在今冬明春再次释放病毒，现在全国蔓延的疫情是否为其做舆论准备呢？
+I’ve cared for COVID patients. Following all the protocols and mandates.
+我曾照顾过 COVID 患者, 遵守所有规则和任务
 
-**新闻来源：**
+and to my knowledge, never once exposed anyone to this virus
+据我所知，我从未被传染这种病毒
 
-[瑞丽疫情最新消息10月隔离政策 离开瑞丽需要什么手续要核酸吗\_唯热网 (vku6.com)](https://www.vku6.com/sltx/1519.html)[关于瑞丽疫情的事情，本地人说一下那里的情况 (douban.com)](https://www.douban.com/group/topic/251031506/)
+Today, myself, and 1000s of other brave men and women
+今天，我自己和其他 1000 多位勇敢的男人和女人
+
+are being forced either comply with the mandate
+被迫要么遵守强制接种
+
+or face termination for standing in their beliefs.
+或因坚持自己的信仰而面临被解雇
+
+I’m choosing standing in my belief. I believe in freedom.
+我选择坚守我的信仰，我相信自由
+
+This is for everyone who’s standing up for this.
+为所有为自由而站出来的人
+
+And for everyone else who felt forced to comply,
+和每一个感到被迫遵守接种疫苗的人加油
+
+Vaxxer or no vax
+接种过的人或未接种的人
+
+Let us come together and rethink firing 1000s of brave men and women.
+让我们一起来重新考虑解雇1000多名勇敢的消防员的事情
+
+———————————————————
+
+Date:10/21/2021
+原视频标题: One brave firefighter is being force to quit his job because vaccine mandate against his belief – freedom
+原视频日期：2021/10/21
+原视频链接: https://gettr.com/post/pes1br958a
+任务编号：2632
+视频时间段 : 0:00-0:57
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike
+字幕+视频制作:洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

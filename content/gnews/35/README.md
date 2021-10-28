@@ -2,46 +2,77 @@
 ---
 
 
-## 因疫苗接种强制令，雷神公司警告称将失去数千名员工
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1622166/)
+## 瑞典无限期暂停莫德纳疫苗接种
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1622199/)
 
-【**简评：】据美联社报道，美国航空公司和西南航空公司现在都放弃了解雇拒绝接种新冠病毒COVID-19疫苗的员工的计划。过去几周，西南航空公司处境艰难。他们经历了数天的航班延误和取消，但否认这与疫苗强制接种有关。或许，雷神、波音、空客、宝洁和通用，这些公司，只有当他们也体会到西南航空公司的痛时才能醒悟。而这些公司的员工也应勇敢站出来为自己的权力而战，不应做逆来顺受、待宰的羔羊。**
+据《零对冲》作者泰勒·杜登（TYLER DURDEN）2021年10月23日引述《西方杂志》报道
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-21.png)图片来自网络
+完全疫苗接种者出现严重心脏疾病，人们对莫德纳中共病毒疫苗的副作用有了新的担忧。
 
-**据《路透社》记者：Kannaki Deka，2021年10月26日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/axe9f-7yb1h.jpg)2019年6月21日，在法国巴黎附近的布尔热机场举行的第53届巴黎国际航展上，一名安保人员在雷神公司展台前站岗。图片来源：路透社/Pascal Rossignol
-《路透社》—— 美国航空航天和国防公司雷神科技（Raytheon Technolo-gies）首席执行官周二警告称，该公司将失去“数千名”拒绝接种COVID-19疫苗的员工，该公司正准备在拜登政府规定的12月8日最后期限前完成疫苗接种。
+据英国《每日邮报》报道，瑞典卫生官员现已决定无限期延长对 31 岁以下任何人接种莫德纳疫苗的禁令。莫德纳禁令原定于 12 月 1 日结束。
 
-“我们将失去数千人。”雷神公司首席执行官格雷格·海斯(Greg Hayes)周二在接受CNBC采访时表示。他还表示，公司正在招聘员工。该公司在美国共有12.5万名员工。
+芬兰、冰岛和丹麦也采取了类似的步骤。挪威鼓励 30 岁以下的男性不要接种莫德纳疫苗，但并没有强制要求。
 
-为了扩大美国的疫苗接种范围，上个月，拜登政府下令对几乎所有联邦雇员和承包商进行疫苗接种。随后，战斧导弹制造商雷神公司表示，该公司将要求其所有的美国雇员全面接种疫苗。
+数月以来，莫德纳疫苗一直受到审查，因为数据显示接种该疫苗的年轻男性患心肌炎（一种心肌炎症）和心包炎（一种心脏周围囊的炎症）的风险增加了。
 
-许多联邦承包商，如波音公司、3M公司和美国航空公司，已经宣布了疫苗强制接种规定。为美国陆军提供直升机的欧洲飞机制造商空中客车公司周二也加入了名单。
 
-空客方面表示，“将要求美国境内所有员工和临时工在12月8日之前全面接种新冠疫苗。”
 
-吉列(Gillette)的制造商宝洁(Procter & Gamble Co .)等其他公司也公布了相关规定。
+> Rate of Myocarditis/pericarditis for young males in [#Ontario](https://twitter.com/hashtag/Ontario?src=hash&amp;ref_src=twsrc%5Etfw) after 2nd shot stands out above the rest. 1 in 5770-after 2nd shot in Males 18 to 24. Factoring in 12-17 age group:
+> 1 in 6817- in males 12-24 after 2nd.Source:[https://t.co/GCqNgpsQmJ](https://t.co/GCqNgpsQmJ) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CovidVaccine](https://twitter.com/hashtag/CovidVaccine?src=hash&amp;ref_src=twsrc%5Etfw) [#myocarditis](https://twitter.com/hashtag/myocarditis?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/PKwQok6MxQ](https://t.co/PKwQok6MxQ)
+> — Antony Robart (@AntonyRobart) [October 18, 2021](https://twitter.com/AntonyRobart/status/1449891671710253068?ref_src=twsrc%5Etfw)
 
-当然，并不是每家公司都面临员工的抵制。代表泰森食品公司2.6万名员工的美国食品和商业工人联合会周二表示，超过96%的员工已经接种了疫苗。
 
-虽然沃尔玛(Walmart)等其他一些大型美国雇主尚未就疫苗接种公布广泛的要求，但按照劳工部的标准，将要求他们实施疫苗强制接种规定。
+*安东尼·罗巴特（ Antony Robart ）*
+*@AntonyRobart*
+*#Ontario 安大略省的年轻男性在第 2 次接种后的心肌炎，心包炎发生率高于其他人。在 18 至 24 岁的男性中，5770人中有1人。如果考虑到12 至 17 岁的年龄组：在 12-24 岁的男性中，6817 人中有 1 人。*
+*2021年10月17日*
+《每日邮报》报道称，一项尚未经过同行评议的美国研究得出结论，“[年龄] 20 岁以下的年轻男性感染中共病毒后患心肌炎的可能性是接种过疫苗的人的六倍。”
 
-另外，雷神公司的格雷格·海斯在财报发布后的电话会议上表示，他预计拜登的疫苗接种强制令将对供应链造成“一些破坏”。
+据《华尔街日报》报道，出于对疾病风险的担忧，美国食品和药物管理局正在暂停莫德纳疫苗对 12 至 17 岁人群的注射计划。
 
-然而，另一家强制接种疫苗的联邦承包商通用电气(General Electric)表示，现在判断该决定是否会对这家美国企业集团的运营产生影响还为时过早。
+据 CNBC 报道，尽管联邦疾病控制和预防中心周四批准了莫德纳和强生疫苗的加强针，但还是提出了一些警告。
 
-“随着合规日期越来越近，我们将有更好的解读。”通用电气首席执行官拉里卡尔普告诉《路透社》。
+汤姆·岛袋（ Tom Shimabukuro ）博士说，接种莫德纳或辉瑞疫苗都会增加心肌炎和心包炎的风险，尤其是在接种第二剂疫苗之后。
 
-**原文连接**：[https://money.usnews.com/investing/news/articles/2021-10-26/raytheon-warns-of-worker-losses-as-companies-impose-vaccine-mandate](https://money.usnews.com/investing/news/articles/2021-10-26/raytheon-warns-of-worker-losses-as-companies-impose-vaccine-mandate)
+据《每日邮报》报道，数据表明，接种莫德纳疫苗的人的患病风险是接种辉瑞疫苗的人的 13 倍。
 
-**（本文评论仅代表个人观点）**
 
-翻译/评论：洛杉矶盘古农场 – 钢蛋儿
-校对/编辑：洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+> Rates of rare heart risks (myocarditis/pericarditis) among 18-39 year olds are higher for Moderna [#covid19](https://twitter.com/hashtag/covid19?src=hash&amp;ref_src=twsrc%5Etfw) vaccine than Pfizer/BioNTech’s, according to presentation just now from CDC advisory committee [pic.twitter.com/B9rBYMsYWi](https://t.co/B9rBYMsYWi)
+> — Meg Tirrell (@megtirrell) [October 21, 2021](https://twitter.com/megtirrell/status/1451247205579436047?ref_src=twsrc%5Etfw)
+
+
+*梅格·蒂雷尔@megtirrell*
+*根据 CDC 咨询委员会刚刚发表的报告，接种莫德纳中共病毒疫苗的 18-39 岁人群中罕见心脏病（心肌炎/心包炎）的发生率高于辉瑞/BioNTech 疫苗*
+ 2021年10月21日
+瑞典公共卫生局表示，将莫德纳疫苗与这两种疾病联系起来的未公开数据意味着“出现副作用的风险增加，例如心肌炎或心包炎。”
+
+“受到影响的风险非常小。”
+
+该数据尚未公开发布。
+
+FDA 在声明中回应了对其给予辉瑞疫苗完全授权的担忧，称“数据表明了风险的增加，特别是在第二次接种后的7 天内。”
+
+
+
+> What about Pfizer the risks are almost identical. Is science about to reassert itself? Let’s hope so. [https://t.co/70ZQRWXQvf](https://t.co/70ZQRWXQvf)
+> — Dr Anthony Hinton (@TonyHinton2016) [October 20, 2021](https://twitter.com/TonyHinton2016/status/1450935271961337862?ref_src=twsrc%5Etfw)
+
+
+*安东尼·辛顿博士@TonyHinton2016*
+*辉瑞的风险几乎相同。科学要重新确立自己的地位了吗？希望如此。*
+*2021年10月20 日*
+*FDA 说“与女性和年长男性相比，观察表明 40 岁以下男性的风险更高。风险在 12 至 17 岁的男性中最高，”。*
+
+该机构指出，“有些人需要重症监护支持”，目前尚无法获得有关风险的长期信息。
+
+【本文仅代表作者本人的观点，与Gnews无关】
+
+原文链接：[https://www.zerohedge.com/political/sweden-suspends-moderna-shot-indefinitely-after-vaxxed-patients-develop-crippling-heart](https://www.zerohedge.com/political/sweden-suspends-moderna-shot-indefinitely-after-vaxxed-patients-develop-crippling-heart)
+
+《西方杂志》（Western Journal）杰克·戴维斯（ Jack Davis ）撰写
+
+翻译：Nick｜校对：JS709｜编辑&+发布：黎明的光芒
 
  
 

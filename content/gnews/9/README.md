@@ -2,46 +2,38 @@
 ---
 
 
-## 澳大利亚取消全球“请勿旅行”的建议
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1622595/)
+## 中共内蒙古以防疫为借口禁止居民游客出户出店
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1622660/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：澳喜农场 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+25日，中共国家卫健委通报称，24日全国七个省区市，新增39例新冠确诊病例，其中境外输入4例，本土35例。内蒙古额济纳旗新冠肺炎疫情防控指挥部发布公告称，自10月25日零时起，将对居民和游客，实行所谓足不出户与足不出店的“居家抗疫”措施。不听劝阻擅自外出，并造成严重后果者，将依照法律法规严格追究民事、刑事责任。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/取消.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-77.jpg)
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+1. [https://cn.reuters.com/article/china-covid-infections-1025-idCNKBS2HF02G](https://cn.reuters.com/article/china-covid-infections-1025-idCNKBS2HF02G)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-3.jpeg)
 
-图片来源：rs.usembassy.gov
+***编辑：木白***
+***校对/发稿***：***海阔天空1***
 
+**更多资讯，更多关注**
 
-#### 编译：小红帽
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-在澳大利亚针对中共病毒（COVID-19）疫情关闭边境19个月后，联邦政府的全球“请勿旅行”建议终于被取消。
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-澳大利亚政府还恢复了针对177个目的地的国别旅行建议级别，以便希望出国的澳大利亚人可以了解风险并更容易购买旅行保险。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-在11月1日边境重新开放之前，澳大利亚将在几天内达到80%的两剂疫苗接种率。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-外交部周四表示，虽然完全接种疫苗的澳大利亚人可以在没有豁免的情况下离开，但所有旅行者都需要意识到中共病毒仍然是一种持续的全球健康风险。
-
-当国际旅行重新开放时，澳大利亚公民、永久居民及其家人将优先安排返回澳大利亚。
-
-总理莫里森还告诉议会，所有国际旅客，包括游客，都可能在年底前进入该国。
-
-最新的疫苗接种数据显示，87.4%的人口接种了一剂疫苗，而74.8%的人口接种了两剂疫苗。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Australia drops ‘do not travel’ global advisory (thenewdaily.com.au)](https://thenewdaily.com.au/life/travel/2021/10/28/australia-travel-november/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
