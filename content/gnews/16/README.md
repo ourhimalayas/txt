@@ -2,30 +2,43 @@
 ---
 
 
-## 日媒看破“恒大‘开工秀’”是为了撑面子
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1622561/)
+## 因声称病毒是自然产生而获100 万美元奖励
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1622649/)
 
-#### 撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-83.png)（图片源自本文链接）
-10月28日【NNA】报道：26日，陷入金融危机的大型房地产开发商–中国恒大集团旗下的恒大实业集团珠三角房地产（广东省广州市）宣布，将积极把停滞不前的住房建设工作正常化，以移交已售房产。会上展出了全省各地建筑工地的照片，以显示其住房建设还在继续进行。
+作者：纽约香草山农场 文易 – Rikki
 
-这一消息是通过聊天应用程序 “微信 “的官方账户披露的。在其微信账户上发布的照片显示了广州、肇庆和其它城市的七个建筑工地，说这些照片是在25日拍摄的，目前，广州、肇庆以及佛山、阳江、清远、惠州、海源等地的40多个楼盘的建设工作已经正常进行。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
 
-中国恒大董事长许家印于10月22日宣布了重组公司业务的 “三管齐下战略”。称公司将尽一切努力恢复暂时停工的建设工作，以移交尚未完工的已售房产。
+曾在《柳叶刀》医学杂志 COVID-19 起源调查委员会任职的马里克佩里斯Malik Peiris 博士因研究证实了中国共产党关于 COVID-19 自然演变的错误结论而获得了中国的“诺贝尔奖”。
 
-**许家印的富豪榜排名暴跌至第70位**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-2.jpeg)
 
-据网络媒体《澎湃新闻》报道，在民间智库胡润研究院10月27日发布的2021年大中华区富豪榜中，许家印的排名从去年的第五位骤降至第70位。从2350亿元（4.2万亿美元）减少到730亿元，他的资产减少到不及之前的三分之一。许家印是排行榜前五名的常客，并在2017年名列榜首。今年的排名证实了中共国房地产行业的挣扎，没有一家房地产老板能跻身前十名。
+Peiris 佩里斯是一名在香港工作的斯里兰卡病毒学家。他曾参与《柳叶刀》调查 COVID-19 起源工作。他参与该项工作后，被中国共产党授于2021年生命科学奖 – 该奖被称为中国的“诺贝尔奖”，由百度、高瓴资本和红杉资本等与中共有关的公司资助，包含 100 万美元奖金。
 
-恒大的这个展示，完全是硬撑面子死扛的表现。这点，连难懂中共国式猫腻儿的外媒都看明白了。
+（本文仅代表作者观点）
 
-[信息源](https://news.yahoo.co.jp/articles/1c893808439c7d1f28aab07e394d2e3f6728b112)
+参考阅读：
 
-(文章仅代表作者本人观点，与GNEWS无关)
+1. [https://thenationalpulse.com/exclusive/lancet-covid-investigator-wins-china-nobel-prize/](https://thenationalpulse.com/exclusive/lancet-covid-investigator-wins-china-nobel-prize/)
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-3.jpeg)
+
+***编辑：木白***
+***校对/发稿***：***海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

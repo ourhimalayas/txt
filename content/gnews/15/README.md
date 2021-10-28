@@ -2,32 +2,38 @@
 ---
 
 
-## 不允许加杠杆！比特币杠杆基金遭美国政府否决
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1622581/)
+## 中共内蒙古以防疫为借口禁止居民游客出户出店
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1622660/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/zzpic18571.jpg)
-据华尔街见闻10月27日报道，美国证券交易委员会（SEC）表示希望将新的比特币相关产品限制在那些提供无杠杆比特币期货合约敞口的产品，例如上周推出的ProShares比特币策略ETF。
+作者：澳喜农场 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+25日，中共国家卫健委通报称，24日全国七个省区市，新增39例新冠确诊病例，其中境外输入4例，本土35例。内蒙古额济纳旗新冠肺炎疫情防控指挥部发布公告称，自10月25日零时起，将对居民和游客，实行所谓足不出户与足不出店的“居家抗疫”措施。不听劝阻擅自外出，并造成严重后果者，将依照法律法规严格追究民事、刑事责任。
 
-19日，美国上市了首只与比特币相关的交易所交易基金(ETF)，首日上涨4.8%，但这类产品不适合经验不足的投资者。2018年，几只与波动性挂钩的杠杆ETF遭受重大损失，令投资者损失数十亿美元。去年疫情也使杠杆产品遭到重创。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-77.jpg)
 
-投资有风险，尤其是中共国的资本货币市场，没有底线，没有制约。新中国联邦喜马拉雅数字货币即将在11月1号上市，这是人类历史上第一支与黄金挂钩、安全可靠、无风险的数字货币，有监管、有担保、有章程，完全不同于以往的各个币种。喜币的辉煌，市场会说话，让我们拭目以待。
+（本文仅代表作者观点）
 
-新闻参考链接：[https://wallstreetcn.com/articles/3643511](https://wallstreetcn.com/articles/3643511)
+参考阅读：
 
-编辑：胖丁
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+1. [https://cn.reuters.com/article/china-covid-infections-1025-idCNKBS2HF02G](https://cn.reuters.com/article/china-covid-infections-1025-idCNKBS2HF02G)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-3.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+***编辑：木白***
+***校对/发稿***：***海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

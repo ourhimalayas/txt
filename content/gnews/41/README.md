@@ -2,40 +2,41 @@
 ---
 
 
-## 俄罗斯著名歌手卡佳-列伊反对疫苗 引发热度关注
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1622117/)
+## 10月份以来北京部分蔬菜价格涨幅超过50%
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1622138/)
 
-作者：纽约香草山健身部 – 文秋
+作者：美东香草山-新世界的一员
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月26日，北京市商务局一级巡视员王洪存，在新闻发布会上称，十一过后北京市蔬菜价格总体呈波动上行趋势。其中，蔬菜平均批发价月环比上涨39.8%；综合零售价月环比上涨20.4%。部分叶类菜、鲜嫩蔬菜上涨幅度更大，有的超过50%或更多。中共全国上下通货膨胀严重，民生困苦，中共庞氏骗局的经济模式面临严重挑战。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-75.jpg)
+（本文仅代表作者观点）
 
+参考链接：
 
+[**北京：10月以来部分蔬菜售价涨幅超50%**](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_9803650491101995691%22%7D&amp;n_type=-1&amp;p_from=-1)
+
+总编: 童谣
+
+编辑：珈沅
+
+校对/发稿：Fei797
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
 
 
 
-10月26日，据俄罗斯著名《独立电视台》HTB报道，今年4月份，俄罗斯著名女歌手卡佳-列伊在接受采访中谈到：新冠疫苗中含有会影响人类基因的物质，注射疫苗就是绝育行为，妇女无法孕育出健康的下一代，因而拒绝接受疫苗。同时，她还认为，全球推广疫苗活动可能也是全球人口清除的重要部分。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture111a.jpg)
-尽管相关采访内容在网络中依然可以找到，但是主流媒体对此观点并没有重视，甚至对歌手卡佳-列伊十分轻蔑。进入9月之后，随着俄罗斯政府疫苗推广工作的展开，疫苗的副作用逐渐显现。直至10月开始，卡佳-列伊谈论疫苗安全性的言论再度被俄罗斯群众所关注，相应媒体也开始跟进。
-
-参考链接：
-1. [俄罗斯著名歌手卡佳-列伊反对疫苗 引发热度关注](https://twitter.com/ntvru/status/1452975755512754181?s=21)
-2. [俄罗斯著名歌手卡佳-列伊反对疫苗 引发热度关注](https://radiokp.ru/znamenitosti/vy-soydete-s-uma-katya-lel-zayavila-chto-razum-lyudey-pytayutsya-kontrolirovat_nid398513_au31666au)
-
-（本文仅代表作者观点）
-
-![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：Irene木木
-编辑：童谣
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

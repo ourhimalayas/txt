@@ -2,70 +2,42 @@
 ---
 
 
-## 强制接种疫苗的要求违背他的信仰—自由
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1622106/)
+## 泽连科医生呼吁人们救救孩子 并揭露福奇虐杀幼犬
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1622118/)
 
-[https://gtv.org/video/id=617362cf247c5a3f908e703e](https://gtv.org/video/id=617362cf247c5a3f908e703e)
+作者：纽约香草山翻译部 – defiance
 
-My name is Dalen Lambert.
-我的名字是达伦·兰伯特
 
-I was hired in January 2020
-我是 2020 年 1 月入职的
 
-All I know is the career firefighters in this pandemic
-我所知道的是这次大流行的职业消防员
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
 
-I’ve cared for COVID patients. Following all the protocols and mandates.
-我曾照顾过 COVID 患者, 遵守所有规则和任务
 
-and to my knowledge, never once exposed anyone to this virus
-据我所知，我从未被传染这种病毒
 
-Today, myself, and 1000s of other brave men and women
-今天，我自己和其他 1000 多位勇敢的男人和女人
+10月25日至26日，泽连科医生在盖特上，针对福奇要开展的5至11岁人群，新冠疫苗接种的事，呼吁人们救救孩子，并揭露福奇进行虐杀幼犬实验的罪行。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture11a.jpg)
+他说：“福奇领导的美国国立卫生研究院，下属过敏和传染病研究所，花费近50万美元用于残忍的幼犬医学实验。在未经麻醉的情况下，这些幼犬被折磨致死。对动物的残忍行为与反社会和精神分裂的人格相关。也许这就解释了为什么全球很多政府领导人，批准了对无辜儿童注射致死毒针。善待动物组织PETA的全称是，「支持人道对待动物的人们」，而不是「支持食用可口动物肉的人们」。”
 
-are being forced either comply with the mandate
-被迫要么遵守强制接种
+泽连科医生同时支持罗伯特-马龙博士的描述：“在我看来，没有任何科学和医学证据表明，需要给孩子注射新冠疫苗，福奇必须被制止。”
 
-or face termination for standing in their beliefs.
-或因坚持自己的信仰而面临被解雇
+参考链接：
+1. [泽连科医生呼吁人们救救孩子 并揭露福奇虐杀幼犬](https://gettr.com/post/pf5ydzf8c6，https://gettr.com/post/pf57wce10d，)
+2. [泽连科医生呼吁人们救救孩子 并揭露福奇虐杀幼犬](https://gettr.com/post/pfare8e004)
 
-I’m choosing standing in my belief. I believe in freedom.
-我选择坚守我的信仰，我相信自由
+（本文仅代表作者观点）
 
-This is for everyone who’s standing up for this.
-为所有为自由而站出来的人
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-And for everyone else who felt forced to comply,
-和每一个感到被迫遵守接种疫苗的人加油
+总编：童谣
+编辑：童谣
+校对/发稿：Hetangyuese
 
-Vaxxer or no vax
-接种过的人或未接种的人
-
-Let us come together and rethink firing 1000s of brave men and women.
-让我们一起来重新考虑解雇1000多名勇敢的消防员的事情
-
-———————————————————
-
-Date:10/21/2021
-原视频标题: One brave firefighter is being force to quit his job because vaccine mandate against his belief – freedom
-原视频日期：2021/10/21
-原视频链接: https://gettr.com/post/pes1br958a
-任务编号：2632
-视频时间段 : 0:00-0:57
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike
-字幕+视频制作:洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
