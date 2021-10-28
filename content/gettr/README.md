@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/28/2021 12:22 AM (UTC)`
+
+10/27/2021 Miles Guo: The CCP, which is represented by Bruno Wu, is manipulating the sharp rise and fall of DWAC’s stock price, and only President Trump’s supporters are suffering losses<br/><br/>10/27/2021 文贵直播：DWAC股票大涨大跌的背后操纵者就是吴征代表的共产党，蒙受损失的都是川普总统的支持者<br/>
+![img](https://media.gettr.com/group5/getter/2021/10/28/00/22/2f289700-f02e-d8c4-b58a-24d9476b8333/out.jpg)
+
+---
+
 `@miles 10/28/2021 12:05 AM (UTC)`
 
 10/27/2021 Miles Guo: Eight to nine out of the eleven funds investing in DWAC did so because of PAG, and this essentially means that PAG, Bruno Wu, and Richard Frankel, the former FBI top official, are in cahoots. So, they have conflict of interest, which will help me win my lawsuit with PAG <br/><br/>10/27/2021 文贵直播：投资DWAC的11家基金中有8到9家是因太平联盟而进行的投资，其本质是太平联盟、吴征和前FBI高官Richard Frankel的互相勾连，因此，他们之间存在着利益冲突，这将有利于文贵打赢与太平联盟的官司
@@ -290,13 +297,6 @@ Eleven Qualified Institutional Buyers or Institutional Accredited Investors of D
 
 10/22/2021 Miles Guo: The CCP will cease to exist by 2025, and I won’t participate in politics in the new China. The purpose for the CCP’s recent military operations such as the PLA submarines surfacing from underwater is to prepare for the war against Taiwan. Anyone who is still competing for territories, pushing nationalism and dictatorship will inevitably be eliminated!<br/><br/>10/22/2021 文贵直播：2025年将没有中共，届时文贵也不会从政；中共最近的潜艇露头等军事行动都是为了打台湾；任何仍在争夺领土、推行民族主义和独裁的人必将被灭！<br/>
 ![img](https://media.gettr.com/group3/getter/2021/10/23/07/50/35b008a6-2a5b-667e-60b5-9ae5ec28c69b/out.jpg)
-
----
-
-`@miles 10/23/2021 2:08 AM (UTC)`
-
-10/22/2021 Miles Guo: Bruno Wu reported to the CCP confidently that he has successfully got control of President Trump. Why is it good for our Whistleblowers’ Movement and the New Federal State of China? Because Bruno Wu will face the inquiries from the DOJ and the Congress as he orchestrated a scam to render President Trump under the CCP’s control<br/><br/>10/22/2021 文贵直播：吴征信心满满地给中共报告，称已经成功拿下川普总统；为啥这对咱爆料革命、新中国联邦是件好事？吴征用诈骗让中共控制了川普总统，所以他将面临司法和国会议员的调查<br/>
-![img](https://media.gettr.com/group2/getter/2021/10/23/02/08/69ab126b-d59d-5230-843c-97e9a7c3e4fc/out.jpg)
 
 ---
 

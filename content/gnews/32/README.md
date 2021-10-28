@@ -2,28 +2,126 @@
 ---
 
 
-## 西方外交官称俄可以成为“绿色”融资中心
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1621746/)
+## 喜联将是全球通用的未来金融系统
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1621747/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2659.png)
+[https://gtv.org/video/id=617937c8247c5a3f9090a9bc](https://gtv.org/video/id=617937c8247c5a3f9090a9bc)
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/U-3.jpg)rawi.ru
-美东时间10月27日报道，得益于气候方面的合作，德国和法国大使认为，30年后，俄罗斯可能通过北溪-2号管道成为氢气供应国，成为世界主要的旅游中心和“绿色”融资中心。
+郭文贵
+Miles Guo
 
-德国驻俄大使格扎∙安德烈亚斯∙冯盖尔和法国驻俄罗斯大使皮埃尔∙列维确信，如果俄罗斯认识到气候变化的挑战，抓住机遇，并与其在欧洲和其他地区的伙伴一起作出大胆的政治决定，那么俄罗斯不仅有可能成为可持续能源的主要供应商，而且还有可能成为技术解决方案和科技成就的主要供应商。
+你说到这儿
+When you talk about this
 
-大使们表示，如果俄罗斯抓住合作机会，在30年内，由于其令人印象深刻的原始自然条件和气候多样性，俄罗斯可以成为世界各地游客的主要旅游目的地，乌里扬诺夫斯克和阿斯特拉罕地区可以成为可再生能源的枢纽，库兹巴斯可以从煤炭开采产区转变为科学和绿色工业区，北溪-2号可以为欧洲带来绿色氢，而莫斯科可以成为绿色融资的优秀平台。
+我觉得特别有意思
+I found something very interesting
 
-各外交使团团长指出，这样一个未来的基础已经奠定，而欧洲和世界其他地区也正在进行经济体系的转型。外交官们称弗拉基米尔∙普京总统在俄罗斯能源周期间的声明很重要，即俄罗斯将不迟于2060年实现碳中和。
+昨天下午的时候
+Yesterday afternoon
 
-《联合国气候变化框架公约》第26届缔约方会议(COP26)将于10月31日至11月12日在苏格兰的格拉斯哥(Glasgow)举行。根据联合国的规定，举行这一活动是为了就气候变化问题建立建设性的对话。据联合国网站报道，该会议还将编写一份“关于需要制定综合性粮食政策来应对气候紧急状况的高级别宣言”。
+我跟一个日本的
+I was talking on the phone to a Japanese
 
-普京总统将通过视频连接在峰会上发言。俄罗斯驻英国代表团将由副总理阿列克谢∙奥维尔丘克领导。
+我一个朋友的孩子通电话
+one of my friend’s child
 
-参考链接：
+他说
+He said: “Uncle Miles,
 
-[https://www.rbc.ru/politics/27/10/2021/6177e9de9a79471fd9d0cda2?from=from\_main\_1](https://www.rbc.ru/politics/27/10/2021/6177e9de9a79471fd9d0cda2?from=from_main_1)
+你给我讲讲这个
+please tell me about
+
+喜马拉雅币和法币
+Himalayan currency and Fiat currency
+
+还有一个货币
+and currency
+
+这个之间的不同
+What are the differences between them?”
+
+他是哈佛
+He is Harvard’s
+
+最年轻的金融博士
+the youngest Ph.D. in finance
+
+日本东京大学
+and the University of Tokyo in Japan
+
+就是最年轻的
+He was the youngest
+
+当时所谓的出来的博士
+who claimed Ph.D. in that time
+
+超牛这孩子，他爸跟我很好
+This child is super brilliant, and his father has a good relationship with me
+
+我讲了讲法币、货币
+I described Fiat currency and currency
+
+他跟我讲了一句话
+He simply told me
+
+他说
+He said
+
+我没想到郭叔你这么厉害这么懂
+I didn’t expect Uncle Miles you know that so well
+
+把我笑喷了
+He made me laugh
+
+我说这个喜马拉雅系统
+I said this Himalayan system
+
+是我设计的呀
+was designed by me
+
+他就没想到他郭叔有这么牛
+He had never expected that his Uncle Miles was so awesome
+
+他说
+He said
+
+郭叔
+Uncle Miles
+
+这个事情如果跟你说那样
+if this business as you mentioned
+
+和我了解的一样的话
+were the same as I learned
+
+这个是世界上真正的、人民的
+This would be the truly
+
+为全球通用货币的未来
+universal currency for people to use globally
+
+金融系统
+the future financial system
+
+* * *
+
+Date: 10/25/2021
+原视频标题: 喜联将是全球通用的未来金融系统
+Himalayan Exchange will be the future universal financial system
+原视频日期：2021/10/22
+原视频链接: [https://twitter.com/se1y7cblljselva/status/1452235873328656384?s=24](https://twitter.com/se1y7cblljselva/status/1452235873328656384?s=24)
+任务编号：KC200(2659)
+视频时间段 : 0:00-1:07
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

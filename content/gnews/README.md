@@ -15,116 +15,116 @@
 
 ---
 
-### [安省教育部长称：如果强制接种疫苗，安省可能会解雇5万名教育工作者](/content/gnews/1/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [强制接种疫苗的要求违背他的信仰—自由](/content/gnews/2/README.md)
+### [人类的改变就在未来的三五年](/content/gnews/1/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【辉瑞公司】被指与【美国食品和药物监管局】多名成员有染](/content/gnews/3/README.md)
+### [安省教育部长称：如果强制接种疫苗，安省可能会解雇5万名教育工作者](/content/gnews/2/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [强制接种疫苗的要求违背他的信仰—自由](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【辉瑞公司】被指与【美国食品和药物监管局】多名成员有染](/content/gnews/4/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [马云的结局](/content/gnews/4/README.md)
+### [马云的结局](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [英政府报告：疫苗护照实际上会增加新冠病毒的传播风险](/content/gnews/5/README.md)
+### [英政府报告：疫苗护照实际上会增加新冠病毒的传播风险](/content/gnews/6/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [加拿大保守党：特鲁多的新内阁成员缺乏政务经验](/content/gnews/6/README.md)
+### [加拿大保守党：特鲁多的新内阁成员缺乏政务经验](/content/gnews/7/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [CDC称要有第四剂或更多的疫苗接种](/content/gnews/7/README.md)
+### [CDC称要有第四剂或更多的疫苗接种](/content/gnews/8/README.md)
  ` HimalayaRussia`
 
-### [基督徒不关心政治就是犯罪](/content/gnews/8/README.md)
+### [基督徒不关心政治就是犯罪](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [专家表示：温哥华“随机袭击”的增加可能与新冠有关](/content/gnews/9/README.md)
+### [专家表示：温哥华“随机袭击”的增加可能与新冠有关](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [中共国疫情蔓延，瑞丽小城多次封城造成惨剧多发](/content/gnews/10/README.md)
+### [中共国疫情蔓延，瑞丽小城多次封城造成惨剧多发](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国联邦通信委员会 (FCC)终止中国电信在美国运营](/content/gnews/11/README.md)
+### [美国联邦通信委员会 (FCC)终止中国电信在美国运营](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [文贵爆料 27/10：太平联盟在中共支持下全面渗透美法律界](/content/gnews/12/README.md)
+### [文贵爆料 27/10：太平联盟在中共支持下全面渗透美法律界](/content/gnews/13/README.md)
  ` 秘密翻译组-原创组`
 
-### [DC每日热点1027](/content/gnews/13/README.md)
+### [DC每日热点1027](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [在利润的祭坛上牺牲儿童的健康| 保罗·亚历山大博士](/content/gnews/14/README.md)
+### [在利润的祭坛上牺牲儿童的健康| 保罗·亚历山大博士](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [麦迪逊·考特恩呼吁“恶魔医生”安东尼·福奇接受正式调查](/content/gnews/15/README.md)
+### [麦迪逊·考特恩呼吁“恶魔医生”安东尼·福奇接受正式调查](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [欧洲议会召开新闻发布会，议员发言反对疫苗护照](/content/gnews/16/README.md)
+### [欧洲议会召开新闻发布会，议员发言反对疫苗护照](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵爆料10/27 恒大等新的2万亿地产违约，房产税是中共最后的掘墓税](/content/gnews/17/README.md)
+### [文贵爆料10/27 恒大等新的2万亿地产违约，房产税是中共最后的掘墓税](/content/gnews/18/README.md)
  ` 秘密翻译组-原创组`
 
-### [新法案将允许警方监禁不帶口罩者](/content/gnews/18/README.md)
+### [新法案将允许警方监禁不帶口罩者](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [文贵爆料10/27 吴征2019年遭FBI刑事调查时涉及时任总统川普！](/content/gnews/19/README.md)
+### [文贵爆料10/27 吴征2019年遭FBI刑事调查时涉及时任总统川普！](/content/gnews/20/README.md)
  ` 秘密翻译组-原创组`
 
-### [瑞典和英国9月份七成病毒死亡是“完全接种”者](/content/gnews/20/README.md)
+### [瑞典和英国9月份七成病毒死亡是“完全接种”者](/content/gnews/21/README.md)
  ` HimalayaRussia`
 
-### [文贵爆料10/27 DWAC股价炒作将断掉很多MAGA支持者生活来源](/content/gnews/21/README.md)
+### [文贵爆料10/27 DWAC股价炒作将断掉很多MAGA支持者生活来源](/content/gnews/22/README.md)
  ` 秘密翻译组-原创组`
 
-### [安大略省可能会解雇 50,000 名教育工作者](/content/gnews/22/README.md)
+### [安大略省可能会解雇 50,000 名教育工作者](/content/gnews/23/README.md)
  ` MG FARM`
 
-### [有声|蓬佩奥指出世界面临撕裂的三大原因都源自CCP](/content/gnews/23/README.md)
+### [有声|蓬佩奥指出世界面临撕裂的三大原因都源自CCP](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [Fauci资助了纽约市对孤儿进行艾滋病实验](/content/gnews/24/README.md)
+### [Fauci资助了纽约市对孤儿进行艾滋病实验](/content/gnews/25/README.md)
  ` wenwu`
 
-### [文贵爆料 27/10：“冥冥之中有天意”——“七个一”确立了喜币上市时间](/content/gnews/25/README.md)
+### [文贵爆料 27/10：“冥冥之中有天意”——“七个一”确立了喜币上市时间](/content/gnews/26/README.md)
  ` 秘密翻译组-原创组`
 
-### [六中全会是最后一次摊牌](/content/gnews/26/README.md)
+### [六中全会是最后一次摊牌](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [东亚峰会 美中就海上安全针锋相对](/content/gnews/27/README.md)
+### [东亚峰会 美中就海上安全针锋相对](/content/gnews/28/README.md)
  ` HimalayaRussia`
 
-### [现在的疫苗灾难应证了福奇在2017年的预测](/content/gnews/28/README.md)
+### [现在的疫苗灾难应证了福奇在2017年的预测](/content/gnews/29/README.md)
  ` MG 澳喜农场多语组`
 
-### [中共的镇压迫使国际特赦组织关闭香港办事处](/content/gnews/29/README.md)
+### [中共的镇压迫使国际特赦组织关闭香港办事处](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳大利亚针对中共国大行动 &#8211; 收购太平洋地区最大的电信公司](/content/gnews/30/README.md)
+### [澳大利亚针对中共国大行动 &#8211; 收购太平洋地区最大的电信公司](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [喜联将是全球通用的未来金融系统](/content/gnews/31/README.md)
+### [喜联将是全球通用的未来金融系统](/content/gnews/32/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [西方外交官称俄可以成为“绿色”融资中心](/content/gnews/32/README.md)
+### [西方外交官称俄可以成为“绿色”融资中心](/content/gnews/33/README.md)
  ` HimalayaRussia`
 
-### [阿拉巴马州州长签署州长令抗击联邦疫苗强制令](/content/gnews/33/README.md)
+### [阿拉巴马州州长签署州长令抗击联邦疫苗强制令](/content/gnews/34/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [文贵视角:SPAC 是中共给新中国联邦的大礼](/content/gnews/34/README.md)
+### [文贵视角:SPAC 是中共给新中国联邦的大礼](/content/gnews/35/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|郭文贵先生对新中国联邦人强调“爱”的重要性](/content/gnews/35/README.md)
+### [有声|郭文贵先生对新中国联邦人强调“爱”的重要性](/content/gnews/36/README.md)
  ` MOSREC`
 
-### [【加拿大广播公司】几乎所有员工均已接种“新冠病毒”疫苗](/content/gnews/36/README.md)
+### [【加拿大广播公司】几乎所有员工均已接种“新冠病毒”疫苗](/content/gnews/37/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
-
-### [对立面都和江派勾兑是习必定闭关锁国的条件之一](/content/gnews/37/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [GTV新闻访谈简报|2021年10月27日早](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
