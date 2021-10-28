@@ -2,69 +2,40 @@
 ---
 
 
-## 强制接种疫苗的要求违背他的信仰—自由
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1622106/)
+## 10月份以来北京部分蔬菜价格涨幅超过50%
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1622138/)
 
-[https://gtv.org/video/id=617362cf247c5a3f908e703e](https://gtv.org/video/id=617362cf247c5a3f908e703e)
+作者：美东香草山-新世界的一员
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月26日，北京市商务局一级巡视员王洪存，在新闻发布会上称，十一过后北京市蔬菜价格总体呈波动上行趋势。其中，蔬菜平均批发价月环比上涨39.8%；综合零售价月环比上涨20.4%。部分叶类菜、鲜嫩蔬菜上涨幅度更大，有的超过50%或更多。中共全国上下通货膨胀严重，民生困苦，中共庞氏骗局的经济模式面临严重挑战。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-75.jpg)
+（本文仅代表作者观点）
 
-My name is Dalen Lambert.
-我的名字是达伦·兰伯特
+参考链接：
 
-I was hired in January 2020
-我是 2020 年 1 月入职的
+[**北京：10月以来部分蔬菜售价涨幅超50%**](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_9803650491101995691%22%7D&amp;n_type=-1&amp;p_from=-1)
 
-All I know is the career firefighters in this pandemic
-我所知道的是这次大流行的职业消防员
+总编: 童谣
 
-I’ve cared for COVID patients. Following all the protocols and mandates.
-我曾照顾过 COVID 患者, 遵守所有规则和任务
+编辑：珈沅
 
-and to my knowledge, never once exposed anyone to this virus
-据我所知，我从未被传染这种病毒
+校对/发稿：Fei797
 
-Today, myself, and 1000s of other brave men and women
-今天，我自己和其他 1000 多位勇敢的男人和女人
+**更多资讯，更多关注**
 
-are being forced either comply with the mandate
-被迫要么遵守强制接种
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-or face termination for standing in their beliefs.
-或因坚持自己的信仰而面临被解雇
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-I’m choosing standing in my belief. I believe in freedom.
-我选择坚守我的信仰，我相信自由
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-This is for everyone who’s standing up for this.
-为所有为自由而站出来的人
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-And for everyone else who felt forced to comply,
-和每一个感到被迫遵守接种疫苗的人加油
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-Vaxxer or no vax
-接种过的人或未接种的人
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
 
-Let us come together and rethink firing 1000s of brave men and women.
-让我们一起来重新考虑解雇1000多名勇敢的消防员的事情
 
-———————————————————
-
-Date:10/21/2021
-原视频标题: One brave firefighter is being force to quit his job because vaccine mandate against his belief – freedom
-原视频日期：2021/10/21
-原视频链接: https://gettr.com/post/pes1br958a
-任务编号：2632
-视频时间段 : 0:00-0:57
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike
-字幕+视频制作:洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

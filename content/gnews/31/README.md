@@ -2,44 +2,86 @@
 ---
 
 
-## 中共政府组织伊斯兰宣讲团进驻清真寺 加速“伊斯兰中共化”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1622116/)
+## 人类的改变就在未来的三五年
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1622151/)
 
-作者：澳喜农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-自10月15日开始，中共青海省第四届“卧尔兹”巡回宣讲团，面向全省1000多座清真寺， 80万穆斯林，开展以“筑牢中华民族共同体意识，坚定伊斯兰教中共化方向，学党史，感党恩，跟党走”为主题的宣讲活动。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-108.jpg)
-一位参加了该活动的当地穆斯林对外媒说，“省里来的阿訇主要讲了团结、和平以及坚持党对宗教的领导，使伊斯兰同社会主义社会相适应，不要受境外人员的影响等内容。大部分人从寺里出来以后，开始议论讲的内容和伊斯兰没有关系。但是在寺里不敢说，因为来了很多不是本村的陌生人。”有评论者指出，“宗教中共化”就是全面整改宗教 以适应中共的需要。
+[https://gtv.org/video/id=61736358247c5a3f908e7068](https://gtv.org/video/id=61736358247c5a3f908e7068)
 
-（本文仅代表作者观点）
+**郭文贵**
+**Miles Guo**
 
-参考链接：
+只是站在了一个咱们的人道的维度上来看待人类
+It’s just looking at human beings from a humane dimension
 
-[政府组织伊斯兰宣讲团进驻清真寺 加速”伊斯兰中国化”](https://www.rfa.org/mandarin/yataibaodao/shehui/mlq-10262021083332.html)
+当你站在地球（以外）
+When you stand beyond the earth
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+你看到从银河系, 你看到从那火星拍到地球，小到几乎看不见的程度
+you see from the Milky Way, from Mars, the earth is so mall that it’s almost invisi-ble
 
-总编: 飞虹
+再想想银河系，想想太阳系的时候
+Then thinking about the Milky Way and the Solar System again
 
-编辑：文徬
+你站在多个维度的时候，Eglise 你所有经历的事情
+When you stand on the multiple dimensions, Eglise, that all the things you have experienced
 
-校对/发稿：Fei797
+记住，这些人有一天回感谢你的，
+remember, one day these people will thank you
 
-**更多资讯，更多关注**
+你的经历都是有使命的，只要你把它发挥好
+Your experience has a mission, as long as you exert it well
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+而且这些人是不生不死的，我们为这一个维度的人类感到悲哀痛苦
+And these people are immortal, we feel sad and painful for this dimension of hu-manity
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+所以我们要奋斗，但是我们一定要相信多个维度是我们没有解开的谜
+So we have to work hard, but we must truly believe that multiple dimensions are mystery that we have not solved
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+当新的维度被解开的时候，就像量子电脑，就像生物科技
+When the new dimension is unlocked, it is just like a quantum computer, like bio-technology
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+就像所有我们要面对的天空科技一样，
+just like all the sky technology we have to face
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+会把人类的视野和胸怀打到另一个维度的时候
+It will bring human vision and mind to another dimension
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
+一切都是小事，就像你小时候偷吃点糖，被爸妈打一嘴巴一样
+Everything is fig, just like when you were a kid stealing candy and getting slapped face by your parents
 
+当时对你来讲是天大的事，现在想想，就已经忘掉了
+It was a big deal for you at that time, but now think about it, it’s nothing
 
+未来就是这样，这么美好，
+The future is like this, it’s so beautiful
+
+而且人类的所有的改变就在未来的三五年，就在未来的三五年
+And all human changes will be taken place in the next three to five years, just in the next three to five years
+
+我们很幸运，我们就全身的参与
+We are so lucky, we are fully involved
+
+———————————————————
+
+**原视频链接**:[https://twitter.com/se1y7cblljselva/status/1450024870918586368?s=24](https://twitter.com/se1y7cblljselva/status/1450024870918586368?s=24)
+
+Date:10/21/2021
+原视频标题:
+Humanity will change in the next three to five years
+原视频日期：2021/10/17
+任务编号：2606
+视频时间段 : 0:00-1:18
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,55 +2,34 @@
 ---
 
 
-## 律师协会抨击拟议新法规，维州将成为东德式警察国家
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1622192/)
+## 随着散户交易狂热的消退，与特朗普相关的 SPAC 股价下跌
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1622234/)
 
-#### 编译报道：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan1-12.jpg)**图片来源：Vitoria Bar**
-澳大利亚维多利亚州律师协会主席抨击该州政府拟议新的大流行病立法“令人震惊”，并声称政府“严重歪曲”了其与律师协会最高机构的磋商。
+**【简评：】并购川普总统TMTG的DWAC来自于吴征，川普总统SPAC上市的背后涉及了吴征、Samuel Nunberg、Richard Frankel等人，他们恰恰正是以前要遣返文贵先生，并用博讯的案子、马蕊强奸案和太平联盟案子陷害文贵先生的人。中共诱骗川普总统掉入操纵股价和欺诈的陷阱，从而终结其政治生涯，甚至害其全家锒铛入狱；我们要揭发中共恶行，唤醒美国各界，要帮助川普总统。而且我们也将一直支持川普总统。**
 
-大律师克里斯托弗·布兰登说，**新的法律将赋予州长前所未有的权力，几乎没有制衡，议会的审查却很少，**允许无限期拘留违反限制的人。
+**据《彭博社》记者：Bailey Lipschultz，2021年10月26日报道：**
 
-布兰登先生说：“**如果‘东德秘密警察’被赋予这样的权力范围，他们会非常高兴，（但发生在澳大利亚）这非常不寻常**。”
+与美国前总统唐纳德·特朗普(Donald Trump)有关联的SPAC —— 数字世界收购公司(Digital World Acquisition Corp.，简称DWAC)的股价近来一片欢腾，但现在却出现了逐渐消退的迹象。
 
-周二提交的拟议立法将削减首席卫生官的权力，赋予州长宣布大流行病的权力，并赋予卫生部长发布公共卫生命令的职责。
+由于散户投资者将注意力转向其他股票市场，这家特殊目的收购公司的股价继上周飙升1225%之后，周二连续第二天下跌。数字世界，这家即将与特朗普的新社交媒体平台 —— 特朗普媒体技术集团(Trump Media & Technology Group) —— 合并的公司，股价下跌30%至59.07美元。周一该股票下跌近11%。
 
-布兰登先生对该法案进行了严厉批评：“从来没有见过一个法案，律师协会没有被要求发表评论或任何东西。通常其他立法时，我们会在法案提交给议会前几周看到法案草案，并要求我们提出意见。”
+数字世界仍在交易员聊天室Stocktwits上流行，是Reddit网站的华尔街投注中被提及最多的股票代码之一。在周二的交易中，该股也是富达平台上交易最活跃的资产之一，但卖出订单与买入订单持平。
 
-布兰登先生说，维州政府邀请律师协会参加原定于9月28日举行的另一次咨询会议，但在突然就取消了。
+相比之下，投资者更青睐数字资产市场Bakkt Holdings Inc.以及科技巨头特斯拉(Tesla Inc.)和Facebook Inc.。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/aw0zs-cgvx6-1.jpg)
+此前做空机构《冰山研究》(Iceberg Research)对投资者面临的风险发出警告，并表示“特朗普将以DWAC散户股东的利益为代价重新谈判。”这家空白支票公司的股价已从10月22日的175美元的峰值下跌了约三分之二。
 
-“我感到非常失望和愤怒，因为人们有权期待律师协会对具有法律意义的事项发表评论”，他说：“当你看这个法案时，其中有些内容对维多利亚人的生活至关重要的……其中一些令人震惊。”
+**原文连接**：[https://www.bloomberg.com/news/articles/2021-10-26/trump-linked-spac-stumbles-as-retail-trading-frenzy-loses-steam?srnd=premium](https://www.bloomberg.com/news/articles/2021-10-26/trump-linked-spac-stumbles-as-retail-trading-frenzy-loses-steam?srnd=premium)
 
-“**这是一项以一些最基本的方式从根本上干预公民的权利的法案。它废除了反对自证其罪的特权**，你会因部长的一时冲动而被拘留。简直是骇人听闻。”
+**（本文评论仅代表个人观点）**
 
-根据新的法律，州长需要向维多利亚州议会两院提交一份报告，说明宣布大流行病的原因，而卫生部长和首席卫生官则需要公开他们的建议。
+翻译/评论：洛杉矶盘古农场 – 钢蛋儿
+校对/编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**一个由卫生、法律和社区团体专家组成的独立委员会将对决策进行审查，但他们的建议和反对意见不具有约束力。**维州律师协会主席沃尔夫女士呼吁，除了咨询机构之外，还需要一个专门的议会委员会，以更好地审查政府的决策。
-
-维多利亚州政府表示，议会的法案和法规审查委员会可以审查这些（政府）命令并建议取消这些命令。
-
-【备注：维州执政党在议会拥有多数席位】
-
-大流行病（紧急状态声明）最初可以宣布为四个星期。一旦该声明被更新（新法规通过），此后可以每隔三个月重复一次，直到该疾病不再对社区构成风险。
-
-【备注：意味着维州安德鲁斯政府可以随心所欲宣布大流行——实施紧急状态。】
-
-维州反对党已经发誓，如果当选为议会成员，将（启动程序）废除该立法。
-
-该法案将于周四在下议院进行表决，鉴于工党拥有绝对多数，预计将获得通过。政府需要在上议院得到三名跨党派议员的支持。
-
-（文中仅代表作者个人观点，与Gnews平台无关）
-
-新闻链接：[Victorian parliament descends into chaos ahead of public health laws debate | news.com.au — Australia’s leading news site](https://www.news.com.au/national/victoria/news/victorian-parliament-descends-into-chaos-ahead-of-public-health-laws-debate/news-story/4e156cd00afead30136945cdbb71ec36)
-
-编辑/发布：文泓
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

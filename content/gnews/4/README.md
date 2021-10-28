@@ -2,34 +2,41 @@
 ---
 
 
-## 欧洲刑警组织开展最大规模暗网围剿行动，全球抓捕150人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1622442/)
+## 维多利亚州议员公开指责，州长安德鲁斯是独裁者
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1622478/)
 
-#### 撰稿：东京樱花团/黑猫
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-137.jpg)[图片来源](http://www.btdj.com/i47.html)
-欧洲刑警组织10月26日宣布，各国警察部队合作开展了有史以来规模最大一次暗网围剿行动，逮捕了150名参与销售非法商品的嫌疑人。 其中7名嫌疑人之前已被警方调查。
+#### **翻译：月映万川**
 
-这次一系列逮捕行动源于德国警方今年主导的一项调查，该调查发现了世界上最大的“暗网市场”。
+#### **编辑：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-23.jpg)
+**图片来源：Parliamest of Australia**
+10月27日，澳大利亚维多利亚州议会正在陷入激烈的混战中，而且许多议员站出来公开指责州长丹尼尔·安德鲁斯为独裁者。这一幕就发生在州政府试图通过新的大流行法的过程中，议员们正在推动延迟政府希望在本周三天内匆匆完成的新大流行法的辩论。
 
-总部设在荷兰海牙的欧洲刑警组织将这次围捕行动描述为“包括在澳大利亚、保加利亚、法国、德国、意大利、荷兰、瑞士、英国和美国开展的一系列独立但互补的调查行动”。
+即将提交议会表决的新的大流行法，将给维州州长和卫生部长带来前所未有的权力。法案是在周二被提交州议会的。根据新法案，州长可以宣布为期三个月的大流行紧急状态，并且卫生部长马丁·弗利可以不得到首席卫生官确认的情况下发布公共健康令。
 
-仅在美国就有65人被捕，德国47人，英国24人，意大利和荷兰各4人。
+这项立法激怒了反对党议员，他们声称根本没有足够的时间来审查细节。影子总检察长蒂姆·史密斯称这项立法是一种耻辱。他表示，他对政府试图在两天内推动立法通过感到“愤怒”。
 
-此次行动还缴获了总价值2670万欧元的现金和加密资产（虚拟货币），以及45件枪支和234公斤非法毒品，包括25000片合成毒品MDMA（俗称摇头丸）。
+“这是对我们民主传统的践踏，赋予独裁者专制权力”，他问道：“你为什么不让这个问题像往常一样在议会公开辩论两个星期呢？”
 
-欧洲刑警组织的菲利普-勒库夫氏（Jean-Philippe Lecouf）说：
+反对党议员路易丝·斯塔利称这份长达113页的文件令人愤慨，并要求暂停辩论（程序），直到法案和法规委员会有足够的时间来审查这一拟议的法律。
 
-“此次全球行动的目的是提醒在暗网上活动的犯罪分子，执法机构有手段、有能力通过全球合作来打击非法活动”。
+“这项法案是我见过内容最多的法案，现在被引入议会，然后我们就被告知需要在今天晚些时候辩论，这是对民主完全和彻底的攻击。”/
 
-信息来源：
+作为回应，州长安德鲁斯周二指责他的批评者在玩弄政治游戏，并否认他被赋予了更多的权力。他说：“过去21个月来，有些人每天都在玩弄政治，但这对病毒不起作用，也不能修复对我们造成的损害。我现在不会参与那些政治游戏。”
 
-[過去最大級のダークウェブ一斉摘発、世界で１５０人逮捕](https://www.jiji.com/sp/article?k=20211027042200a&amp;g=afp)
+（文中仅代表作者个人观点，与Gnews平台无关）
 
-(文章仅代表作者本人观点，与GNEWS无关)
+原文链接：[Victorian parliament descends into chaos ahead of public health laws debate | news.com.au — Australia’s leading news site](https://www.news.com.au/national/victoria/news/victorian-parliament-descends-into-chaos-ahead-of-public-health-laws-debate/news-story/4e156cd00afead30136945cdbb71ec36)
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+发布：文泓
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,50 @@
 ---
 
 
-## 阿拉巴马州州长加入反对拜登政府的疫苗强制规定行列
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1622267/)
+## 拳击冠军弗洛伊德·梅威瑟在疫苗争议中宣布支持NBA的全明星球员凯里·欧文
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1622315/)
 
-**据《华盛顿邮报》作者：Andrew Jeong，2021年10月26日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/aw0zs-cgvx6-2.jpg)阿拉巴马州州长凯·艾维，图片来源：美联社/Kim Chandler
-阿拉巴马州州长凯·艾维(Kay Ivey)周一下令，州政府机构抵制拜登政府的冠状病毒疫苗强制令，并承诺在法庭上与白宫抗争。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Undefeated-boxer-Floyd-Mayweather-Jr.-1200x792-700x420-1.jpg)美国不败拳击手小弗洛伊德.梅威瑟（Issei Kato/路透社）
+来自美国《大纪元时报》10月26日的报道
 
-她在行政命令中说，州政府官员不应该因为联邦疫苗任务而惩罚任何企业或个人。命令中还说，即使被迫执行联邦法律，州政府官员也应“采取一切实际步骤通知受影响的人”，阿拉巴马州反对所有疫苗强制规定。她说，她的总检察长正在准备诉讼，以阻止这些强制规定。
+拳击冠军弗洛伊德·梅威瑟分享了他对布鲁克林篮网队后卫凯里·欧文拒绝接种中共病毒疫苗的公开支持。
 
-艾维在一份声明中说：“阿拉巴马州人压倒性地反对拜登的这些令人发指的强制命令，我与他们站在一起。”
+梅威瑟周一在Instagram上发布了一篇长文和相应的视频，表示他对这位NBA全明星球员的支持。
 
-艾维的命令违反了拜登政府的全面强制疫苗接种令，该疫苗接种令要求联邦承包商的工作人员、联邦雇员以及接受医疗保险和医疗补助资金的机构的卫生工作者接种疫苗。艾维的命令也与白宫要求所有拥有 100 员工以上的美国企业需强制员工接种疫苗或执行每周的病毒测试制度不一致。艾维说，这些举动是令人震惊的、非法的，并构成联邦的过度干预。
+梅威瑟说：“据我所知，美国最初是让我们选择接种或不接种疫苗。”“随着时间的推移，我们逐渐被剥夺了这种选择。用我们可以做的工作、我们可以去的地方和我们可以进行的活动来限制我们。试图说服我们屈服于用他们所说的对我们来说是最好的。”
 
-**原文连接：**[**h**ttps://www.washingtonpost.com/nation/2021/10/26/kay-ivey-executive-order-vaccine-mandate/?utm\_source=twitter&utm\_campaign=wp\_main&utm\_medium=social](https://www.washingtonpost.com/nation/2021/10/26/kay-ivey-executive-order-vaccine-mandate/?utm_source=twitter&amp;utm_campaign=wp_main&amp;utm_medium=social)
+梅威瑟称凯里拒绝接种中共疫苗而受到的待遇是一种歧视。
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对/编辑: 洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+他补充说：“令人遗憾的是，人们因为不接种疫苗、做出自己的选择、坚持他们不仅认为是正确的，而且知道这对他们和他们的家人是正确的事情而受到仇恨、惩罚、戏弄和歧视。”
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+“我支持选择。一个人应该可以自由地做出最适合自己的决定。如果我们不能自己做决定，我们就不是真正的自由。我们的祖先为我们的自由而战，我们的士兵、急救人员和爱国者直到今天仍在继续这样做。为什么当有人决定做一些与我们被告知不同的事情时，我们就会谴责他们？谴责他们做出选择、选择自由、选择不遵守社会要求我们遵守的规范，”他说。
+
+这位拳击传奇人物的长篇声明以挑战人们对每个人的疫苗选择表示尊重的观点结束。
+
+“如果你决定接种疫苗，可以。如果你决定不接种疫苗，也可以。相反，每个做出自己选择并选择自由的人都应该赢得尊重！为了我自己、我的孩子、我所爱的人……我选择生命，我选择自由！”梅威瑟最后说。
+
+这篇爆红的Instagram 帖子在不到24小时内获得了超过77万的浏览量。截至本刊发稿时，发布在推特上的同一视频又获得了90多万的浏览量。
+
+简评：爆料革命和新中国联邦传递出已被验证信息：中共病毒疫苗不防病毒并且还更强地传播病毒。现在世界各国当权者要求本国国民强制注射中共病毒疫苗，这已经与疫苗的功效无关，也与国民健康无关。目前已经演变为政府当权者对国民的控制。所以我们应该广为传播支持如拳王梅威瑟和NBA球星欧文对强制中共病毒疫苗的看法，才能更快更多的唤醒民众，对无良政客的滥用权利说不。
+
+原文链接：[https://www.theepochtimes.com/floyd-mayweather-announces-support-of-nbas-kyrie-irving-amid-vaccine-controversy\_4070094.html](https://www.theepochtimes.com/floyd-mayweather-announces-support-of-nbas-kyrie-irving-amid-vaccine-controversy_4070094.html)
+
+翻译/简评：Brianchow
+
+PR：clau
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

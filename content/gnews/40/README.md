@@ -2,42 +2,23 @@
 ---
 
 
-## 中共三大电信运营商 被美国联邦通讯委员会剔除
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1622007/)
+## 中共国疫情蔓延，瑞丽小城多次封城造成惨剧多发
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1622013/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国联邦通信委员会FCC，于10月26日敲定了撤销中共电信在美经营授权的方针。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-136.jpg)
-美国认为允许电信介入通信基础设施，会在安全保障方面带来很大风险。FCC命令电信美国子公司在60天内，停止中美之间持续了将近20年的通信业务。并驳回了中共移动进入美国市场申请，对之前通过的中共联通授权也启动了撤销程序。也就是说，中共三大电信运营商将在近期，整体被踢出美国通信业务。截止目前，中共外交部仍未准备好 如何回应美国联邦通讯委员会的以上决议。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-160.jpg)
-（本文仅代表作者观点）
+撰稿：西枫westca
 
-参考链接：
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unnamed-15.jpg)图片来源：网络照片
 
-[**美國以安保為由撤銷中國電信在美經營授權**](https://zh.cn.nikkei.com/politicsaeconomy/politicsasociety/46480-2021-10-27-10-25-00.html)
+近日来，中共国的病毒疫情似卷土重来，新一轮疫情目前已经波及11省份，包括首都北京也有多个小区被封。北有内蒙额济纳旗近万游客因疫情滞留当地，南有云南瑞丽小城持续封闭管理。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+日前在中共国的社交媒体上，包括微信、微博、抖音不断看到来自云南瑞丽地区的网民透露受中共病毒疫情下百姓众生相。中小生意倒闭、店铺关门、因无力支持家庭生活甚至有人自杀，还有一岁多的孩子做过59次核酸检测。自中共病毒肆虐云南小城瑞丽以来，多次封城，主城区实行封闭管理，所有市民居家隔离。有视频显示，瑞丽地区的隔离区好似集中营，把人像猪一样关起来，隔离场所卫生条件极差，根本起不到隔离作用，还要高额收费。据10月27日瑞丽市最新消息，若要离开瑞丽也要自费集中隔离7-21天才可放行。瑞丽拥有两个国家级口岸，有超过5万的缅甸籍务工人员，人员流动是否带来疫情，仍未确定。在7月时，瑞丽的中共疫苗接种率已高达96.9%，按理说已经全员免疫，却如此严加管理，其中是否有利益关系，也值得深思。
 
-总编/编辑：童谣
+中共国管理病毒疫情的方式是一系列的激进措施，如大规模重复筛查、通过“绿码”追踪人们的行踪、强制封锁、对入境人员进行严格隔离等。其结果并没有达到“零容忍”的要求， 或疫情根本不是表面上几个简单的数字代表的。郭文贵先生在今天的直播中就提到中共有可能在今冬明春再次释放病毒，现在全国蔓延的疫情是否为其做舆论准备呢？
 
-校对/发稿：Fei797
+**新闻来源：**
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
-
-
+[瑞丽疫情最新消息10月隔离政策 离开瑞丽需要什么手续要核酸吗\_唯热网 (vku6.com)](https://www.vku6.com/sltx/1519.html)[关于瑞丽疫情的事情，本地人说一下那里的情况 (douban.com)](https://www.douban.com/group/topic/251031506/)
 
  
 
