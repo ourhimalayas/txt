@@ -2,48 +2,33 @@
 ---
 
 
-## 盖特是澳大利亚人发声的希望
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1622780/)
+## 秘翻在线：媒体掩盖真相，巴西总统又遭封杀
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1622802/)
 
-作者：美东香草山农场 – 新世界的一员
+#### 撰稿：彩虹       
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-482.png)图片来源：NBC News
+综合《国会山报》、《美联社》、《法国24电视台》和《路透社》的报道，10月26日（周三），面对世界暗黑势力和巴西内部邪恶势力的进攻，巴西总统雅伊尔·博尔索纳罗（*Jair Bolsonaro*）要求最高法院阻止可能对其进行的社交媒体封杀行动。
 
+根据报道，巴西参议院的一个调查委员会以他传播中共病毒（COVID-19）的“错误信息”为由，寻求将他从社交媒体平台上暂停，并且该报告要求以九项指控起诉他（包括反人类罪）。
 
+本周早些时候，博尔索纳罗的一段视频被Facebook(脸书)和Youtube（油管）删除，在该视频中，博尔索纳罗引用英国的新闻报告，指出接种疫苗的人更容易感染艾滋病。
 
-10月24日，澳大利亚天空新闻台三位主持人，联合采访了盖特首席执行官杰森·米勒先生，表达了对美国国内政治局势的担忧，及对盖特的浓厚兴趣。三位著名主持人分别是罗恩·迪恩、丽塔·帕纳西和詹姆斯·莫罗。
+对此，Facebook以违反其传播错误信息的政策为由删除了这一视频。而Youtue则更为无耻地说：“我们的政策不允许声称羟氯喹和/或伊维菌素对治疗或预防COVID-19有效的内容，声称COVID-19有保证治愈的内容，以及声称口罩对防止病毒传播不起作用的内容。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/7-17.png)
+在对博尔索纳罗发起的攻击中，巴西部分参议员要求无限期禁止他进入YouTube、Twitter、Facebook和Instagram。此外，这些参议员还呼吁当局解除对博尔索纳罗社交媒体账户的数据保密，禁止他登录，并命令Facebook 和Twitter以及YouTube所有者谷歌例行提供有关总统使用情况的秘密信息。
 
-米勒先生在接受罗恩采访时，首先介绍了盖特的情况，米勒说：“在美国独立日7月4日，盖特一经推出就像火箭一样起飞。目前有约300万用户，是有史以来所有社交媒体中，从100万向200万用户转变最快的。有趣的是，我们的美国用户群，约占整体注册用户的47%，而美国以外的注册用户群占53%，也就是说，盖特已经是一个全球性的社交媒体平台。”
+据路透社报道，鉴于接待参议院调查委员会的巴西最高检察官是由总统任命的，博尔索纳罗可能不会面临任何实际惩罚。
 
-米勒先生说：“与川普总统宣布其行动计划之前相比，我们在过去的两天内，每天增长新的注册用户70%。涨潮时，所有的船都会浮起来。川普总统的平台，还需要几个月或更久，才会启动上线。我认为，我们有一个很好的机会抓住人心，把他们拉入到我们的社交平台。”
+**新闻来源**
 
-对于澳大利亚人民，盖特是他们发声的希望。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-1. [https://gettr.com/post/pf4v2vee3e](https://gettr.com/post/pf4v2vee3e)
+1. [Bolsonaro asks Brazil’s Supreme Court to block possible social media suspension](https://thehill.com/policy/international/578845-bolsonaro-asks-supreme-court-to-block-possible-social-media-suspension)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-3.jpeg)
+2.  [Brazil Senators ask high court to bar Bolsonaro from social media](https://www.france24.com/en/live-news/20211026-brazil-senators-ask-high-court-to-bar-bolsonaro-from-social-media)
 
-***编辑：Kathy文艺***
-***校对/发稿***：***海阔天空1***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+3.  [Bolsonaro asks Supreme Court to intervene to avoid social media suspension](https://www.reuters.com/article/us-brazil-politics-bolsonaro-idUSKBN2HH2VH)
 
  
 

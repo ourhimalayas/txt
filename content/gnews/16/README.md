@@ -2,75 +2,63 @@
 ---
 
 
-## 币圈新闻动态：美国证券交易委员会不会批准杠杆比特币ETF
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1622827/)
+## 西喜时事新闻简报 — 中共病毒时事篇
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1622861/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
+编译：西班牙喜悦农场–wenwu
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
+您若想了解全文报导内容，请点击标题链接
 
+（爱惜生命 远离疫苗）
 
+1. [Moderna 首席执行官:疫苗“再来一针”政策是每年至少打一针](https://descargitas.com/moderna-%E9%A6%96%E5%B8%AD%E6%89%A7%E8%A1%8C%E5%AE%98%E8%A1%A8%E7%A4%BA%EF%BC%8C%E6%AF%8F%E5%B9%B4%E5%8F%AF%E8%83%BD%E9%9C%80%E8%A6%81-covid-19-%E7%96%AB%E8%8B%97%E5%8A%A9%E6%8E%A8%E5%99%A8/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-485.png)图片来源： descargitas.com
+据《Descargitas》2021年10月27日电，Modena 创始人兼首席执行官 Nubar Arian 在接受 Maria Bartiromo 采访时表示，可能需要每年（强制）注射中共疫苗（COVID-19）：“如果中共疫苗变成每年或每隔几年随着中共病毒的变化而改变，有点像我们对流感疫苗的做法，那么我们将不能停止注射疫苗。”
 
-## 每日一问
+美国的许多人目前有资格获得第三针 COVID-19 疫苗。美国 CDC 表示，修改之前已经发出的建议——第三针疫苗可以混打中共疫苗；上周，美国疾病控制和预防中心主任罗谢尔·瓦林斯基（Rochelle Wallinsky）表明，全面接种中共疫苗的定义可能在未来某个时候发生变化。
 
+2. [佛州州长以现金招募未接种疫苗的警官](https://www.nbcnews.com/news/us-news/florida-gov-desantis-recruits-unvaccinated-officers-cash-bonus-rcna3721?utm_source=facebook&amp;utm_medium=news_tab&amp;utm_content=algorithm)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-488.png)图片来源：nbcnews.com
 
+据《NBCNEWS》2021年10月25日电，佛州州长罗恩·德桑蒂斯 (Ron DeSantis) 周日在[福克斯新闻上](https://video.foxnews.com/v/6278608216001?playlist_id=3386055101001#sp=show-clips)说，他希望通过立法让其他州失业的警察和治安官的副手可以在佛州上班，并获得五千美元的福利。德桑蒂斯在采访中声称，强制接种中共疫苗是违宪的，它们削弱了人们的选择权，并且旨在伤害护士和官员。这正在纽约市、明尼阿波利斯、西雅图警察局和[芝加哥警察局](https://www.nbcnews.com/news/us-news/chicago-police-union-head-urges-cops-defy-covid-vaccine-mandate-rcna3007)发生；“如果你没有受到很好的对待，我们会在这里更好地对待你。你可以满足我们的重要需求，”他说。值得一提的是，印第安纳州也跟上了佛州的步伐。
 
+3. [阿拉巴马州州长凯·伊维（Kay Ivey）指示各机构抵制乔·拜登的全面疫苗授权](https://www.thegatewaypundit.com/2021/10/alabama-governor-kay-ivey-directs-agencies-resist-joe-bidens-covid-vax-mandate/)
 
-喜马拉雅的元宇宙，雏形初现？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-489.png)图片来源：thegatewaypundit.com
 
+据《Thegatewaypundit》2021年10月26日电，阿拉巴马州州长凯·伊维（右）周一指示各州机构抵制乔·拜登的9月份的全面疫苗授权（210万联邦雇员要么注射疫苗、要么被解雇，以及100人以上的私企都要么接种中共疫苗、要么接受巨额罚款）。
 
+美联社[报道](https://apnews.com/article/coronavirus-pandemic-business-education-alabama-health-ae9981614061559de1cb02480e6e605d)：“州长伊维签署了一项[行政命令，](https://apnews.com/article/coronavirus-pandemic-business-education-alabama-health-ae9981614061559de1cb02480e6e605d)禁止行政部门机构——包括医疗补助、心理健康和人力资源等机构——对不遵守联邦疫苗规定的员工或企业进行处罚。” 另外，伊维在一份[声明](https://twitter.com/GovernorKayIvey/status/1452713854283169794?s=20)中说：“联邦政府令人发指的过度扩张让我们别无选择，只能开始采取行动，这就是我发布此行政命令以对抗这些令人震惊的 COVID-19 疫苗规定的原因。”
 
+美联社说，伊维的行政命令不适用于大学。“这些大学是根据阿拉巴马州宪法创建的，由董事会管理和控制。”
 
+4. [为声援前线工人反对艾伯塔省（Alberta）疫苗授权而举行的无声抗议](https://www.rebelnews.com/silent_protest_held_in_solidarity_with_frontline_workers_against_alberta_vaccine_mandate)
 
-## 喜马拉雅交易所要闻
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-491.png)图片来源：rebelnews.com
 
+据《REBEL NEWS》2021年10月26日电，数千人于上周日（24日）聚集在艾伯塔省立法大楼的南草坪上，抗议对艾伯塔省卫生保健工作者和急救人员强制接种疫苗的要求；艾伯塔省政府已授权对消防员、警察和所有卫生保健工作者提供完整的疫苗接种政策证明，截止日期为 2021 年 11 月 20 日。
 
+根据艾伯塔省卫生服务部的数据，1400 名卫生保健工作者申请了针对中共疫苗的宗教或医疗豁免，以及 61 名员工已辞职；值得一提的是，在过去的20个月里，他们无疑是我们的英雄。
 
+5. [纽约市工人游行穿过布鲁克林大桥抗议拜登疫苗全面授权](https://nypost.com/2021/10/25/we-will-not-comply-nyc-workers-protest-vax-mandate-with-march-across-brooklyn-bridge/)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-493.png)图片来源：nypost.com
 
-- 文贵先生27日大直播详细解释，喜交所为什么定于11月1日11时01分开市。
+据《NEW YORK POST》2021年10月25日电，市政工作人员于周一（25日）走上街头，抗议市长比尔·德·白思豪 (Bill de Blasio) [对整个市政工作人员实施疫苗强制接种的要求](https://nypost.com/2021/10/20/bill-de-blasio-to-announce-covid-19-vaccine-mandate-for-all-city-workers/)；抗议期间至少有 20 人被捕，许多人举着美国国旗，高呼“F-k de Blasio”和“我们不会遵守！”，有点更直接与纳粹德国对犹太人的迫害进行比较。
 
+“现在，在无数次紧急情况后工作——桑迪飓风、暴风雪……我受到（来自政府的）威胁。我们正面临失去生计的威胁，因为只是保留保护我们身体的选择，”在人群到达市政厅后，消防员索菲亚·梅迪纳 (Sofia Medina) 愤怒地说道。
 
+穿着 FDNY 衬衫的 Paul Schweit 吼道：“市长白思豪想把我们描绘成不道德、不安全和对公众构成威胁。而对于这座城市的市民，我们（的工作是）希望继续保护你。”另有一名警官说：“数以千计的好警察和市政工作人员将失去工作，是否纽约市会有好人有信心、有足够的人来填补这些职位。我害怕接下来会发生什么？”
 
+（文章仅代表作者观点与GNEWS无关）
 
+* * *
 
-
-## 新闻动态
-
-
-
-
-
-1. Ambcrypto报道，德意志联邦银行发布一项调查显示，只有13%的受访者支持引入数字欧元。即便如此，该报告观察到越来越多的人越来越了解数字欧元。在支持数字欧元的人中，65%的人认为它是现金的一个很好的替代品，63%的人认为它是私人支付方式的一个很好的替代品，大约61%的支持者还发现数字欧元是数字化的一部分社会。
-2. 10月27日消息，过去几天向美国国会提交的披露显示，加密行业协会在第三季度报告了前所未有的游说支出。从历史上看，区块链协会（Blockchain Association）和数字商会（Chamber of Digital Commerce）一直是与联邦政府进行联络的最大的加密贸易组织，这一趋势自2021年初以来显著加速。区块链协会的内部游说支出增长了60%以上，从第一季度的13万美元增长到第三季度的21万美元。在同一时间段内，数字商会的游说支出从3万美元增加到13.6万美元，增幅超过450%。
-3. 10月27日消息，提供加密ATM服务的地点今年呈指数级增长。自1月以来，比特币ATM的数量翻了一番，现在有近80个国家拥有使用法币交换加密货币的ATM机。CoinATMRadar收集的数据显示，截至目前，比特币ATM机在全球的部署数量已达30,036台。
-4. Cointelegraph报道，未知地址在去年8月分9次共购买3,400美元SHIB，现在价值15.5亿美元。自2020年8月以来，该地址总共购买了44次SHIB，持有的70,200,003,107,594枚SHIB现在价值56.3亿美元。
-5. YourStory报道，Polygon宣布投资NFT市场Colexion。Colexion估值约5,000万美元。Polygon将部署其数字工具，推动NFT在印度的普及。这项投资将带来诸如防盗版和伪造的交易经验、用于NFT交易所的先进仪表板和工具、允许艺术家和创作者与粉丝和NFT交易者互动的可靠平台，以及安全的基础设施等。
-6. 10月28日消息，a16z宣布投资社交DAO Friends with Benefits，投资金额未公布。a16z称将对其提供指导，并计划通过授权赋予主要社区成员权力积极参与治理。
-7. 10月27日消息，加密货币托管公司Anchorage正在筹集一轮大型融资，该公司的估值将在20亿至30亿美元之间。其中一位不愿透露姓名的人士表示，Anchorage即将以30亿美元的估值进行融资。
-8. CoinDesk报道，基于Solana的去中心化金融（DeFi）应用程序Tulip筹集了500万美元，以扩大其收益汇总和加密货币贷款产品。Jump Capital和Alameda Research领投。这个成立七个月的协议，持有超过8亿美元的加密资产。
-9. 10月27日消息，信用卡科技初创公司Deserve联合创始人兼首席执行官Kalpesh Kapadia接受采访时透露，信用卡巨头VisaInc.已成为Deserve的投资者。据悉，2007年7月，Deserve与加密货币金融服务提供商BlockFi合作推出Visa信用卡。该卡允许客户以比特币的形式赚取奖励。Kalpesh Kapadia表示，该卡的年交易量接近20亿美元，BlockFi持卡人预计每年花费约3万美元，比普通信用卡持卡人高出50%。
-10. 彭博社报道，加密基金公司Cosmos周四在澳大利亚推出加密矿企ETF，交易代码为DIGA。该ETF将在Chi-X Australia交易所交易。Cosmos也正与澳大利亚监管机构和交易所合作，最终将推出实物比特币ETF。
-11. GlobeNewsWire报道，美国全球投资者（纳斯达克股票代码：GROW）是一家专注于全球专业市场的注册投资咨询公司，宣布其在Network Entertainment（“Network”）最近的融资中购买了100万股股份。该投资旨在为Network新兴的NFT业务提供敞口，增加该公司在数字资产生态系统中的既定参与度。据悉，Network最近宣布打算使用现有和即将推出的内容创建和分发NFT。
-12. TheBlock报道，巴西数字银行Nubank母公司周三宣布已就拟议的首次公开募股（IPO）向美国和巴西监管机构提交文件。美国IPO有望于12月在纽交所进行。Nubank提供银行账户、个人贷款和人寿保险等数字银行产品，目前在巴西、墨西哥和哥伦比亚拥有逾4,000万客户。6月获巴菲特的伯克希尔哈撒韦公司投资5亿美元后，估值达到300亿美元。
-13. LedgerInsights报道，NFT平台Veve宣布将为迪士尼推出NFT数字藏品，这将成为迪士尼流媒体平台Disney+促销活动的组成部分。目前尚未透露具体提供哪些角色的NFT，但预计范围将不仅限于迪士尼动画角色，也会涵盖集团旗下公司的角色，包括漫威（蜘蛛侠）、皮克斯（玩具总动员、汽车总动员、海底总动员、超人总动员）、星球大战等。
-14. 路透社报道，流行艺术家Rob Prior在2017年开始与漫威宇宙创造者斯坦•李合作“The Legacy Collection: Portraits of Stan Lee”，Rob Prior创作了95幅大型帆布画，展示了斯坦•李在漫威和漫画黄金时代的封面上。其中10幅帆布画从10月28日北京时间08:00AM在NFT市场Mogul Productions进行拍卖，持续48小时，赢家将获得画布的实物和数字版本。
-15. 彭博社报道，Facebook元宇宙项目或比其社交媒体更有利可图，同时可暂时缓解Facebook的监管烦恼。首先，元宇宙中的大多数互动（无论是在虚拟现实中还是在增强现实中）可能不会留下永久记录，这会让元宇宙更类似于现实世界，从而会减轻Facebook审查和删除记录的重担。其次，匿名进入元宇宙不会像今天进入Facebook平台一样容易。强大的身份认证将确保品牌更有效地触及受众。
-16. 10月28日消息，以太坊扩容方案Optimism发文，称相信EVM Equivalence完全符合以太坊虚拟机规范，将成为L2领域的下一个通用标准。EVM Equivalence不是在Solidity中实现EVM，而是用更小、更简单的指令集实现一个VM（Virtual Machine，虚拟机），并于欺诈证明期间在这个VM中运行EVM，为此必须简单地编译一个现有的EVM解释器，例如Geth解释器，以便在更简单的VM中运行。
-17. CoinDesk报道，美国顶级监管机构的评论表明，加密货币今年显着增长，并且急于遏制该行业的特定方面，在周一接受路透社采访时，联邦存款保险公司(FDIC)主席Jelena McWilliams表示，需要允许银行参与加密。如果我们不把这种活动带到银行内部，它就会在银行之外发展，联邦监管机构将无法对其进行监管。
-18. GlobeNewsWire报道，国际股东和消费者权益诉讼公司Scott+Scott律师事务所正在调查Robinhood Markets（纳斯达克股票代码：HOOD）及其某些高级职员和董事违反了联邦证券法。
-19. 华尔街日报报道，美国证券交易委员会（SEC）不会批准杠杆比特币ETF。
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
 
 
-
-
-
-*编辑：aQ
-发布：文顾*
-
-
- 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
