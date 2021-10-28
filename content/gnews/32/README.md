@@ -2,8 +2,8 @@
 ---
 
 
-## 视频| 喜币，虚拟世界的真实财富
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1622722/)
+## 喜币，无国界的自由资产
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1622749/)
 
 制作：香草山视频部
 

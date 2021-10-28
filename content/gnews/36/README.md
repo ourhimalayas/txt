@@ -2,30 +2,41 @@
 ---
 
 
-## 解放军武装直升机首次“扰台”，应为夺岛登陆战术做实地验证
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1622628/)
+## COVID-19最新情报｜疫苗后，台湾航空机组员突发性耳聋，捷克年轻人听力问题暴增
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1622707/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/32-2.png)[图片来源](https://news.ltn.com.tw/news/politics/breakingnews/3716709)
-台湾防务部门10月26日晚发布“即时军事动态”称，当天共有7架中共军机进入台湾“西南防空识别区”，其中，不仅有运8系列战机以及歼16战机这样多次常态化扰台的空军主力战机，还有解放军陆军航空兵的武直-10以及米-17直升机。
+**台灣寶島農場 疫情關注組｜發佈日期/ 27/10/2021**
 
-台媒声称，武直-10和米-17均为首次进入台“防空识别区”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-值得注意的是，在此次巡航台湾西南空域的解放军军机中，首度出现了武直-10和米-17这样军用攻击、运输直升机。这种新变化也引起了台湾方面的广泛关注，台“空军前副司令”张延廷就表示，大陆军用直升机出海一定要有一个“前提”，就是已经掌握制空权，如果没有掌握台海的制空权，直升机出海很容易变成“活靶子”。
 
-据此前公开报道，武直-10直升机已多次执行海上相关演习，演练了包括超低空编队突防，夜间海上攻击舰船，乃至火力攻岛等科目。今年9月份，第73集团军某陆航旅的多型直升机分队还在闽南某海域进行了跨昼夜实弹射击演练。其中，就有武直-10直升机自主规划攻击航线、搜索目标、选择射击弹种，对海面、岛礁、空中等目标精确打击的科目。
+[台湾媒体](https://www.youtube.com/watch?v=jNvdXBNSbMo)报导，8月10日有航空业机组人员表示，自己于7月20日接种完第二剂莫德纳疫苗，但隔天耳朵竟然一边耳鸣、一边耳聋。治疗一个月时间竟然都没有好转。对此，医生表示：不排除疫苗罕见副作用。又[外媒](https://english.radio.cz/more-czechs-especially-young-adults-are-getting-tinnitus-it-covid-or-pandemic-8731876)于10月21日指出，捷克境内年轻人突发耳鸣等听力问题数量剧增，不排除与新冠病毒、疫苗有关联性。
 
-与固定翼飞机相比，由于直升机飞行高度低、速度慢、时间和距离短，加之自身防卫能力较弱，中共在对台攻击时主要用于夺岛登陆作战使用，基本可以推定，此次解放军陆航武直10以及米17运输直升机编队首现台岛周围，是在为夺岛登陆战术做实地验证。
+关于疫苗是否导致耳鸣、耳聋，台湾防疫指挥中心回应：美国约翰霍普金斯大学最新研究发现，接种新冠疫苗和出现突发性听力受损，并没有关联。然而[报导](https://news.ttv.com.tw/news/11008100028900N)采访基层医疗协会理事长林应然分析，目前虽然没有很明确的统计报告，不过如果免疫系统启动的时候，误伤及听神经系统的话，有可能产生耳鸣、耳聋的问题。
 
-信息来源：
+- 其他：[更多台湾接种新冠疫苗发生的不良反应症状](https://health.udn.com/health/story/121833/5663938)
+- 其他：[检疫操! 8天飞2长程 机师“突发性失聪” ｜TVBS新闻](https://www.youtube.com/watch?v=qok0Aqns7LQ)
 
-[大陆武装直升机首次巡航台西南空域 军事专家：解放军在该空域进行训练已得心应手](https://news.sina.com.cn/c/2021-10-27/doc-iktzqtyu3877098.shtml)
 
-(文章仅代表作者本人观点，与GNEWS无关)
+#### 新冠疫苗存在罕见副作用
 
-*校对：东京樱花团/上善若水
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+新冠疫苗副作用除常见的血栓、心肌炎、心包炎、发烧、倦怠等，而鼻喉科方面也存在罕见特殊副作用存在。[台媒](https://health.ltn.com.tw/article/paper/1474238)报导，突发性耳聋、颜面神经麻痺，也都出现过相关病例。
+
+- 其他：[华航空服员爆打AZ疫苗后“眼睛血栓模糊”没医师敢通报副作用| ETtoday生活新闻](https://www.ettoday.net/news/20210513/1980631.htm)
+
+
+[Healthy Hearing](https://www.healthyhearing.com/report/53127-Coronavirus-hearing-loss-tinnitus-covid)在网站上针对“新冠病毒与听力损失是否相关”发表文章，明确表示没有确切的大研究可以证明新冠病毒与听力损失具有因果关系，但听力损失的确是病毒引起。据医学杂志 BMJ Case Reports 发表了一[专项研究](https://casereports.bmj.com/content/13/11/e238419)，一名45岁英国籍男子，在确诊新冠后一耳突发性耳聋，研究指出该名患者并没有接受任何可能导致听力损失的药物治疗，虽然没有证据可以证明是新冠病毒导致，但很有可能是。
+
+英国一項[调查研究](https://www.tandfonline.com/doi/full/10.1080/14992027.2020.1798519)則指出，每10名新冠病毒确诊者约有一人会出现听力损伤或是耳鸣状况。
+
+[台湾媒体](https://health.udn.com/health/story/121833/5663938)於8月10日报导，有民众表示，接种完两剂莫德纳疫苗隔天发生耳聋、耳，住院观察七天尚未恢复听力。当时，台湾防疫指挥中心医疗应变组副组长罗一钧表示：这样的案例美国也没研究过，认为和疫苗无关。然，经过两个月，指挥中心对于疫苗是否导致听力损伤即依照美国约翰霍普金斯大学最新研究表示，与疫苗无关。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/21-11.jpg)
+* * *
+
+资料来源｜[台視](https://news.ttv.com.tw/news/11008100028900N)、[Czech Raio](https://english.radio.cz/more-czechs-especially-young-adults-are-getting-tinnitus-it-covid-or-pandemic-8731876)、[Healthy Hearing](https://www.healthyhearing.com/report/53127-Coronavirus-hearing-loss-tinnitus-covid)、[BMJ Case Reports](https://casereports.bmj.com/content/13/11/e238419)
+撰文｜zhong
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

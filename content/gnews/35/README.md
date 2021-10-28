@@ -2,40 +2,51 @@
 ---
 
 
-## COVID-19最新情报｜疫苗后，台湾航空机组员突发性耳聋，捷克年轻人听力问题暴增
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1622707/)
+## 中共的愚蠢摧生美国支持台湾新疆新中国联邦加入联合国
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1622709/)
 
-**台灣寶島農場 疫情關注組｜發佈日期/ 27/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/8b5907100b9aff6ad98c644cb563998e8d7342434a5acc660f7d9cbe167f8102_副本.jpg)
+据[2021年10月27日 文贵大直播：SPAC忽上忽下,何有未来；吴征虚假信息已被美国刑事调查；关于喜币上市时间点的意义；喜币的支付系统与未来发展的前景；国内房地产现状；共产党会再次放毒戕害全世界；太平联盟与运鸿国际的关系](https://gtv.org/video/id=6179465deadeb11f5e7b0768)时间点1：23：05——
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+**郭文贵先生：**就在现在多大的事儿，战友们知道吗？就在此时此刻，美国内部的政治到了一个绝对的分水岭的时刻。弗吉尼亚正在选州长、选州政府，今天中午就应该有消息了，这是绝对的很关键的，你们不知道这个事儿有多大。
 
+你们还没有看到！共产党，七哥在什么时候说的？七哥是在2020年10月份告诉大家，共产党在联合国还愚蠢地在行动，你去看我的直播去，我发的信息。
 
-[台湾媒体](https://www.youtube.com/watch?v=jNvdXBNSbMo)报导，8月10日有航空业机组人员表示，自己于7月20日接种完第二剂莫德纳疫苗，但隔天耳朵竟然一边耳鸣、一边耳聋。治疗一个月时间竟然都没有好转。对此，医生表示：不排除疫苗罕见副作用。又[外媒](https://english.radio.cz/more-czechs-especially-young-adults-are-getting-tinnitus-it-covid-or-pandemic-8731876)于10月21日指出，捷克境内年轻人突发耳鸣等听力问题数量剧增，不排除与新冠病毒、疫苗有关联性。
+现在在联合国搞一人一投票——一人一票投票，就是让美国不要一家说了算，大家都知道联合国是美国和欧洲绝对说了算的。那么大家现在意识到什么？在联合国美国突然提出来要让台湾加入联合国，那么现在这是多大的事儿！兄弟姐妹们，这是美国让台湾加入联合国！
 
-关于疫苗是否导致耳鸣、耳聋，台湾防疫指挥中心回应：美国约翰霍普金斯大学最新研究发现，接种新冠疫苗和出现突发性听力受损，并没有关联。然而[报导](https://news.ttv.com.tw/news/11008100028900N)采访基层医疗协会理事长林应然分析，目前虽然没有很明确的统计报告，不过如果免疫系统启动的时候，误伤及听神经系统的话，有可能产生耳鸣、耳聋的问题。
+它能让台湾加入联合国，美国就能让新中国联邦加入联合国，大家记住我说的话，它敢让台湾你去加入，那新中国联邦也是一个民主的选择呀，为啥不可以呢？是吧？多大的事儿，兄弟姐妹们。
 
-- 其他：[更多台湾接种新冠疫苗发生的不良反应症状](https://health.udn.com/health/story/121833/5663938)
-- 其他：[检疫操! 8天飞2长程 机师“突发性失聪” ｜TVBS新闻](https://www.youtube.com/watch?v=qok0Aqns7LQ)
+从这一系列的事儿上，拜登总统和美国现任政府跟中共的勾兑都是在玩它，成天告诉它你放心，病毒的事不追究，台湾的事——好说好说！新疆的事儿——没事儿没事儿！新中国联邦——不鸟他！是吧？它一定这样说，但是咵~咵~咵~就行动。
 
+你们没有意识到吧，兄弟姐妹们？就这过去72小时你知道多大的事儿，两周前当有人告诉我说，美国会在联合国跟中共开始PK，而且有人给拜登总统说，如果在联合国你不支持你会怎么样、怎么样？他说怎么支持？他说那让台湾加入联合国，他说再不行，可以让中国新疆法人代表团加入联合国，甚至在新中国联邦也加入联合国——提议呗！就美国手里有太多工具了.欸，对呀！马上就执行。
 
-#### 新冠疫苗存在罕见副作用
+当我听到这消息的时候七哥真的想裸奔的感觉，你们不知道共产党有多愚蠢，所有人都在跟习一神，你看看我们在联合国干掉美国，它不去在联合国挑战美国，台湾没这个机会，新中国联邦没这机会，新疆没这个机会。它不去这么搞，就内部的弗吉尼亚的斗争，它不可能有利于美国，这种情况下他觉得你这个政府你软弱，你软弱跟谁呀？跟保守派去了。
 
-新冠疫苗副作用除常见的血栓、心肌炎、心包炎、发烧、倦怠等，而鼻喉科方面也存在罕见特殊副作用存在。[台媒](https://health.ltn.com.tw/article/paper/1474238)报导，突发性耳聋、颜面神经麻痺，也都出现过相关病例。
+所以兄弟姐妹们，你们一定要看到包括德国的政府默克尔完球蛋了，你说德国现在新政府想干什么吗？德国政府你们看到支持台湾，你甭想打台湾，澳大利亚——你甭想，你不要看那在内部的事情，所有德国政府说我们第一件事情就是挺台湾，第二就是挺你新中国联邦，  然后我们就要为香港、新疆、西藏发声。
 
-- 其他：[华航空服员爆打AZ疫苗后“眼睛血栓模糊”没医师敢通报副作用| ETtoday生活新闻](https://www.ettoday.net/news/20210513/1980631.htm)
+（以下暂略）
 
+撰稿：喜马拉雅的肉夹馍；
 
-[Healthy Hearing](https://www.healthyhearing.com/report/53127-Coronavirus-hearing-loss-tinnitus-covid)在网站上针对“新冠病毒与听力损失是否相关”发表文章，明确表示没有确切的大研究可以证明新冠病毒与听力损失具有因果关系，但听力损失的确是病毒引起。据医学杂志 BMJ Case Reports 发表了一[专项研究](https://casereports.bmj.com/content/13/11/e238419)，一名45岁英国籍男子，在确诊新冠后一耳突发性耳聋，研究指出该名患者并没有接受任何可能导致听力损失的药物治疗，虽然没有证据可以证明是新冠病毒导致，但很有可能是。
+审核：喜马拉雅的馍夹肉；
 
-英国一項[调查研究](https://www.tandfonline.com/doi/full/10.1080/14992027.2020.1798519)則指出，每10名新冠病毒确诊者约有一人会出现听力损伤或是耳鸣状况。
+校对：Maarago；
 
-[台湾媒体](https://health.udn.com/health/story/121833/5663938)於8月10日报导，有民众表示，接种完两剂莫德纳疫苗隔天发生耳聋、耳，住院观察七天尚未恢复听力。当时，台湾防疫指挥中心医疗应变组副组长罗一钧表示：这样的案例美国也没研究过，认为和疫苗无关。然，经过两个月，指挥中心对于疫苗是否导致听力损伤即依照美国约翰霍普金斯大学最新研究表示，与疫苗无关。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/21-11.jpg)
-* * *
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-资料来源｜[台視](https://news.ttv.com.tw/news/11008100028900N)、[Czech Raio](https://english.radio.cz/more-czechs-especially-young-adults-are-getting-tinnitus-it-covid-or-pandemic-8731876)、[Healthy Hearing](https://www.healthyhearing.com/report/53127-Coronavirus-hearing-loss-tinnitus-covid)、[BMJ Case Reports](https://casereports.bmj.com/content/13/11/e238419)
-撰文｜zhong
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

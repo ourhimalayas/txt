@@ -2,29 +2,20 @@
 ---
 
 
-## 秘翻在线：百分之四十六美国选民希望福奇辞职
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1622868/)
+## 台湾总统相信美国的保护
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1622957/)
 
-#### 撰稿：彩虹  
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10282-wsj.jpg)图片来自wsj
+10 月 27 日 – 台湾总统蔡英文在接受美国有线电视新闻网采访时表示，她对美国将在中共国侵略的情况下保卫该岛充满信心和信心。
 
-#### 责编：胡天     
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-486.png)图片来源：每日邮报
-10月27日，《新闻极限》发表文章，民意调查结果显示，百分之四十六的美国选民希望福奇（Fauci）辞职。
+这位台湾领导人的声明遵循美国总统乔拜登的声明，他几天前在一次电视辩论中有表示美国也会保护台湾免受北京的侵略。而来自中共国的回答是：“拜登在满足一种错误的期望，我们永远不会接受在这个问题上的干预”。
 
-拉斯穆森报导（Rasmussen Reports）是一家成立于2003年的美国民意调查公司，它的调查常被各种新闻媒体引用，拉斯穆森在很多新闻广播节目包括FOXNews、BBC、CNN、NPR、CNBC和地方电视台分支机构中都被邀请作为客座分析员。
+免责申明：本文只代表译者观点，与Gnews无关
 
-2021年10月25日至26日，拉斯穆森对来自全国各地的1000名可能的选民进行了最新的全国电话和在线调查，误差率为+/-3个百分点。调查发现，只有33%的可能的美国选民认为福奇对美国政府资助的病毒功能性增强研究说了实话。该调查分析认为：“这比6月份有所下降，当时有40%的人认为福奇说了实话”。其它调查项结果如下：
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/10/28/presidente-taiwan-sono-certa-che-usa-ci-difenderanno\_5d9cb430-0e36-4f9f-bcd9-4827d17f844a.html](https://www.ansa.it/sito/notizie/topnews/2021/10/28/presidente-taiwan-sono-certa-che-usa-ci-difenderanno_5d9cb430-0e36-4f9f-bcd9-4827d17f844a.html)
 
-- 49%的人说福奇没有对美国资助某些被称为“病毒功能性增强”的研究说实话；
-- 46%的人说应该辞去他在国家过敏和传染病研究所（NIAID）的职务。
-- 40%的人说福奇不应该辞去他的职务。
-- 67%的共和党人希望福奇辞职。
-- 24%的民主党人也希望福奇辞职。
-
-
-**新闻来源**
-
-[Rasmussen: 46 Percent Want Fauci to Resign](https://www.newsmax.com/politics/anthony-fauci-covid-covid/2021/10/27/id/1042249/)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

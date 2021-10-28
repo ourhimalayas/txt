@@ -2,33 +2,29 @@
 ---
 
 
-## 秘翻在线：媒体掩盖真相，巴西总统又遭封杀
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1622802/)
+## 秘翻在线：百分之四十六美国选民希望福奇辞职
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1622868/)
 
-#### 撰稿：彩虹       
+#### 撰稿：彩虹  
 
-#### 责编：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-482.png)图片来源：NBC News
-综合《国会山报》、《美联社》、《法国24电视台》和《路透社》的报道，10月26日（周三），面对世界暗黑势力和巴西内部邪恶势力的进攻，巴西总统雅伊尔·博尔索纳罗（*Jair Bolsonaro*）要求最高法院阻止可能对其进行的社交媒体封杀行动。
+#### 责编：胡天     
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-486.png)图片来源：每日邮报
+10月27日，《新闻极限》发表文章，民意调查结果显示，百分之四十六的美国选民希望福奇（Fauci）辞职。
 
-根据报道，巴西参议院的一个调查委员会以他传播中共病毒（COVID-19）的“错误信息”为由，寻求将他从社交媒体平台上暂停，并且该报告要求以九项指控起诉他（包括反人类罪）。
+拉斯穆森报导（Rasmussen Reports）是一家成立于2003年的美国民意调查公司，它的调查常被各种新闻媒体引用，拉斯穆森在很多新闻广播节目包括FOXNews、BBC、CNN、NPR、CNBC和地方电视台分支机构中都被邀请作为客座分析员。
 
-本周早些时候，博尔索纳罗的一段视频被Facebook(脸书)和Youtube（油管）删除，在该视频中，博尔索纳罗引用英国的新闻报告，指出接种疫苗的人更容易感染艾滋病。
+2021年10月25日至26日，拉斯穆森对来自全国各地的1000名可能的选民进行了最新的全国电话和在线调查，误差率为+/-3个百分点。调查发现，只有33%的可能的美国选民认为福奇对美国政府资助的病毒功能性增强研究说了实话。该调查分析认为：“这比6月份有所下降，当时有40%的人认为福奇说了实话”。其它调查项结果如下：
 
-对此，Facebook以违反其传播错误信息的政策为由删除了这一视频。而Youtue则更为无耻地说：“我们的政策不允许声称羟氯喹和/或伊维菌素对治疗或预防COVID-19有效的内容，声称COVID-19有保证治愈的内容，以及声称口罩对防止病毒传播不起作用的内容。”
+- 49%的人说福奇没有对美国资助某些被称为“病毒功能性增强”的研究说实话；
+- 46%的人说应该辞去他在国家过敏和传染病研究所（NIAID）的职务。
+- 40%的人说福奇不应该辞去他的职务。
+- 67%的共和党人希望福奇辞职。
+- 24%的民主党人也希望福奇辞职。
 
-在对博尔索纳罗发起的攻击中，巴西部分参议员要求无限期禁止他进入YouTube、Twitter、Facebook和Instagram。此外，这些参议员还呼吁当局解除对博尔索纳罗社交媒体账户的数据保密，禁止他登录，并命令Facebook 和Twitter以及YouTube所有者谷歌例行提供有关总统使用情况的秘密信息。
-
-据路透社报道，鉴于接待参议院调查委员会的巴西最高检察官是由总统任命的，博尔索纳罗可能不会面临任何实际惩罚。
 
 **新闻来源**
 
-1. [Bolsonaro asks Brazil’s Supreme Court to block possible social media suspension](https://thehill.com/policy/international/578845-bolsonaro-asks-supreme-court-to-block-possible-social-media-suspension)
-
-
-2.  [Brazil Senators ask high court to bar Bolsonaro from social media](https://www.france24.com/en/live-news/20211026-brazil-senators-ask-high-court-to-bar-bolsonaro-from-social-media)
-
-3.  [Bolsonaro asks Supreme Court to intervene to avoid social media suspension](https://www.reuters.com/article/us-brazil-politics-bolsonaro-idUSKBN2HH2VH)
+[Rasmussen: 46 Percent Want Fauci to Resign](https://www.newsmax.com/politics/anthony-fauci-covid-covid/2021/10/27/id/1042249/)
 
  
 

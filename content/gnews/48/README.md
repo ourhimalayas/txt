@@ -2,10 +2,10 @@
 ---
 
 
-## 俄罗斯著名歌手卡佳-列伊反对疫苗 引发热度关注
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1622117/)
+## 泽连科医生呼吁人们救救孩子 并揭露福奇虐杀幼犬
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1622118/)
 
-作者：纽约香草山健身部 – 文秋
+作者：纽约香草山翻译部 – defiance
 
 
 
@@ -13,19 +13,21 @@
 
 
 
-10月26日，据俄罗斯著名《独立电视台》HTB报道，今年4月份，俄罗斯著名女歌手卡佳-列伊在接受采访中谈到：新冠疫苗中含有会影响人类基因的物质，注射疫苗就是绝育行为，妇女无法孕育出健康的下一代，因而拒绝接受疫苗。同时，她还认为，全球推广疫苗活动可能也是全球人口清除的重要部分。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture111a.jpg)
-尽管相关采访内容在网络中依然可以找到，但是主流媒体对此观点并没有重视，甚至对歌手卡佳-列伊十分轻蔑。进入9月之后，随着俄罗斯政府疫苗推广工作的展开，疫苗的副作用逐渐显现。直至10月开始，卡佳-列伊谈论疫苗安全性的言论再度被俄罗斯群众所关注，相应媒体也开始跟进。
+10月25日至26日，泽连科医生在盖特上，针对福奇要开展的5至11岁人群，新冠疫苗接种的事，呼吁人们救救孩子，并揭露福奇进行虐杀幼犬实验的罪行。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture11a.jpg)
+他说：“福奇领导的美国国立卫生研究院，下属过敏和传染病研究所，花费近50万美元用于残忍的幼犬医学实验。在未经麻醉的情况下，这些幼犬被折磨致死。对动物的残忍行为与反社会和精神分裂的人格相关。也许这就解释了为什么全球很多政府领导人，批准了对无辜儿童注射致死毒针。善待动物组织PETA的全称是，「支持人道对待动物的人们」，而不是「支持食用可口动物肉的人们」。”
+
+泽连科医生同时支持罗伯特-马龙博士的描述：“在我看来，没有任何科学和医学证据表明，需要给孩子注射新冠疫苗，福奇必须被制止。”
 
 参考链接：
-1. [俄罗斯著名歌手卡佳-列伊反对疫苗 引发热度关注](https://twitter.com/ntvru/status/1452975755512754181?s=21)
-2. [俄罗斯著名歌手卡佳-列伊反对疫苗 引发热度关注](https://radiokp.ru/znamenitosti/vy-soydete-s-uma-katya-lel-zayavila-chto-razum-lyudey-pytayutsya-kontrolirovat_nid398513_au31666au)
+1. [泽连科医生呼吁人们救救孩子 并揭露福奇虐杀幼犬](https://gettr.com/post/pf5ydzf8c6，https://gettr.com/post/pf57wce10d，)
+2. [泽连科医生呼吁人们救救孩子 并揭露福奇虐杀幼犬](https://gettr.com/post/pfare8e004)
 
 （本文仅代表作者观点）
 
 ![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-总编：Irene木木
+总编：童谣
 编辑：童谣
 校对/发稿：Hetangyuese
 
