@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/28/2021 12:24 PM (UTC)`
+
+10月28日：尊敬的战友们好，你们健身了吗？传播C C P病毒真相和疫苗的解药了吗？一切都已经开始！
+![img](https://media.gettr.com/group15/getter/2021/10/28/12/24/456f8032-0ea4-7612-43af-e811eba354c3/out.jpg)
+
+---
+
 `@miles 10/28/2021 8:30 AM (UTC)`
 
 10/27/2021 Miles Guo: The issue of DWAC indicates the scams and criminal offenses committed by Bruno Wu on behalf of the CCP, and this is the greatest gift to the New Federal State of China and will expose the CCP’s infiltration, fraud, and conflict of interest among the lawyers, and in the prosecutors and courts in the US<br/><br/>10/27/2021 文贵直播：DWAC事件证明了代表中共的吴征在美国进行的欺骗和刑事犯罪，这是给新中国联邦带来的最大礼物；它将揭穿中共在美国律师界、检察官和法院的渗透、造假和利益冲突的内幕<br/>
@@ -292,13 +299,6 @@ Eleven Qualified Institutional Buyers or Institutional Accredited Investors of D
 
 10/22/2021 Miles Guo: Xi’s investigation on the 25 financial institutions sounds like a big deal, but it won’t make a difference. Instead, this has effectively united those who want to eliminate Xi; Xi is following Mao Zedong’s same old path and is being fooled by his subordinates such that he believes that the people of Taiwan welcome him; Without the constraints of the system, any leader can turn into a devil!<br/><br/>10/22/2021 文贵直播：习对25家金融股机构的调查雷声大雨点小，这反而将想灭习的人团结在一起；习重走了毛的老路且被手下人忽悠，竟认为台湾人民欢迎他；没有制度约束的领导人都会成魔！<br/>
 ![img](https://media.gettr.com/group25/getter/2021/10/24/00/09/e16f5a44-10bd-51da-6f14-3bab0bbdd423/out.jpg)
-
----
-
-`@miles 10/24/2021 12:06 AM (UTC)`
-
-10/22/2021 Miles Guo: The world will undergo a major change after next May; The CCP won’t be able to sustain its Great Firewall, and it is uncertain as to whether Xi can survive until the 20th Party Congress; Whoever is still relying upon the CCP is doomed; It’s easy to deceive Xi, who knows very little about the world, with his mentality remaining in the initial stage of the Culture Revolution <br/><br/>10/22/2021 文贵直播：明年五月份后世界将大变；中共的防火墙会撑不住，习能否撑到20大是个大变数；谁现在还依靠着中共将是死路一条；习很容易被骗，他对世界的认知是很低的，他的思维还停留在文革初期<br/>
-![img](https://media.gettr.com/group25/getter/2021/10/24/00/06/f28b4c28-6b2e-4370-61f6-2aaf2fb02be0/out.jpg)
 
 ---
 
