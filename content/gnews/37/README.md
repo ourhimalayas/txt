@@ -2,41 +2,40 @@
 ---
 
 
-## 10月份以来北京部分蔬菜价格涨幅超过50%
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1622138/)
+## 盖特用户跟帖声讨FDA专家组把中共病毒疫苗黑手伸向低龄儿童
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1622119/)
 
-作者：美东香草山-新世界的一员
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月26日，北京市商务局一级巡视员王洪存，在新闻发布会上称，十一过后北京市蔬菜价格总体呈波动上行趋势。其中，蔬菜平均批发价月环比上涨39.8%；综合零售价月环比上涨20.4%。部分叶类菜、鲜嫩蔬菜上涨幅度更大，有的超过50%或更多。中共全国上下通货膨胀严重，民生困苦，中共庞氏骗局的经济模式面临严重挑战。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-75.jpg)
-（本文仅代表作者观点）
+作者：纽约香草山 – 新世界的一员
 
-参考链接：
 
-[**北京：10月以来部分蔬菜售价涨幅超50%**](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_9803650491101995691%22%7D&amp;n_type=-1&amp;p_from=-1)
-
-总编: 童谣
-
-编辑：珈沅
-
-校对/发稿：Fei797
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
 
 
 
+据Newsmax 2021年10月26在盖特发布的一则消息，FDA专家组支持授权辉瑞和BioNTech合作生产的中共病毒疫苗在5至11岁儿童中使用。盖特用户对FDA把中共病毒疫苗的黑手伸向低龄儿童，表示极度愤怒。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1a.jpg)
+在本报导完稿前，该篇盖文200多条的跟帖回复中，盖特用户一致问责FDA专家组成员。回复包括：“这是专家杀戮模式”、 “福奇应该被逮捕”、“任何给孩童打中共病毒疫苗的，都必须被判为虐待儿童罪”等。
+
+已有多个渠道的信息来源显示，与中共病毒疫苗有关的 青少年心肌炎和心脏炎症的发病率，高于病毒感染的机率。FDA专家组不深究病毒来源，不公开阐明中共病毒疫苗危害，反而开始强推儿童施打，或已构成谋杀。
+
+参考链接：[盖特用户跟帖声讨FDA专家组把中共病毒疫苗黑手伸向低龄儿童](https://gettr.com/post/pf97pj1c73)
+
+（本文仅代表作者观点）
+
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：Ivy001
+编辑：Delilah小胖
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

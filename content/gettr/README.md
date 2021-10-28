@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/28/2021 5:31 AM (UTC)`
+
+10/27/2021 Miles Guo: The issue of DWAC indicates the scams and criminal offenses committed by Bruno Wu on behalf of the CCP, and this is the greatest gift to the New Federal State of China and will expose the CCP’s infiltration, fraud, and conflict of interest among the lawyers, and in the prosecutors and courts in the US<br/><br/>10/27/2021 文贵直播：DWAC事件证明了代表中共的吴征在美国进行的欺骗和刑事犯罪，这是给新中国联邦带来的最大礼物；它将揭穿中共在美国律师界、检察官和法院的渗透、造假和利益冲突的内幕<br/>
+![img](https://media.gettr.com/group47/getter/2021/10/28/05/31/b4b8af90-bd70-974f-397c-07d00026b7d0/out.jpg)
+
+---
+
 `@miles 10/28/2021 5:19 AM (UTC)`
 
 10/27/2021 Miles Guo: Two years ago, Bruno Wu was criminally investigated, however, the merger deal between DWAC and Trump's media platform failed to disclose that, so Bruno Wu will go to jail, and the merger deal will surely be subject to a criminal investigation<br/><br/>10/27/2021 文贵直播：吴征在两年前被刑事调查，但DWAC和川普媒体平台的并购交易却并未披露相关信息，吴征将因此而进监狱，且该并购交易也必将被刑事调查<br/>
@@ -292,13 +299,6 @@ Eleven Qualified Institutional Buyers or Institutional Accredited Investors of D
 
 “Behind the Scenes with GFASHION: Greatness in Motion”  G Fashion的幕后 #Gfashion @DDNYC  
 ![img](https://media.gettr.com/group45/getter/2021/10/23/21/59/454974ec-ff43-35b7-cd9b-53eebc044ccd/out.jpg)
-
----
-
-`@miles 10/23/2021 9:20 PM (UTC)`
-
-10月23号：尊敬的战友们好．太多战友发来各种信息，文贵确实无法一一回复，有些问题等明天24号上午9:00的与战友们的大直播中，回答亲爱的兄弟姐妹们……一切都已经开始！
-![img](https://media.gettr.com/group39/getter/2021/10/23/21/20/8123a4eb-f67a-56e2-325a-fa08bee25ae3/out.jpg)
 
 ---
 
