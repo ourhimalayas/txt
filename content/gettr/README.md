@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@drzevzelenko 10/22/2021 3:02 PM (UTC)`
+
+F the FDA.  Do the opposite of what they recommend. <br/><br/>DON’T VACCINATE AND KILL KIDS<br/><br/>Vladimir Zev Zelenko MD
+
+---
+
+`@miles 10/28/2021 1:29 AM (UTC)`
+
+10月27号：这些无法造假和掩盖的数据……就是我们未来审判邪恶的共产党的最好的证据之一！😡😡😡
+> `@mymaskid520 10/28/2021 12:49 AM (UTC)`<br/>2021年7月27日微信指数统计的脑梗和花圈的查询数据。“花圈”的查询量自9月底以来暴增，峰值已经超过1200万人次/天，而送花圈是中国老百姓祭奠死者的传统方式。“脑梗”的单日查询峰值更是超过3500万人次/天。
+![img](https://media.gettr.com/group20/getter/2021/10/28/00/b734f95e-2da9-3edd-7129-3916d9e3a0f2/d9978a23ee8c3b7552ee22f5d5bc8225.jpg)
+
+---
+
 `@miles 10/28/2021 12:22 AM (UTC)`
 
 10/27/2021 Miles Guo: The CCP, which is represented by Bruno Wu, is manipulating the sharp rise and fall of DWAC’s stock price, and only President Trump’s supporters are suffering losses<br/><br/>10/27/2021 文贵直播：DWAC股票大涨大跌的背后操纵者就是吴征代表的共产党，蒙受损失的都是川普总统的支持者<br/>
@@ -283,20 +299,6 @@ Eleven Qualified Institutional Buyers or Institutional Accredited Investors of D
 
 10/22/2021 Miles Guo: It would be impossible for Bruno Wu to do all these evil things without Yang Lan’s sex seductions who is one of the CCP’s top class agents. We, the people of the New Federal State of China, must give up illusions and rely on our own strength.<br/><br/>10/22/2021 文贵直播：吴征干的坏事都离不开杨澜找钥匙，杨澜是中共最高级的“燕子”之一。我们新中国联邦人不要有幻想，一定要靠自己的实力！<br/><br/>
 ![img](https://media.gettr.com/group24/getter/2021/10/23/16/01/f4677b8c-f83f-0c86-6b80-3084b87473b6/out.jpg)
-
----
-
-`@miles 10/23/2021 3:45 PM (UTC)`
-
-<br/>10月23号：尊敬的战友们好，你们健身了吗？传播C C P病毒真相……和疫苗解药了吗？今天的时间安排问题……七哥不能录制视频了……非常非常的抱歉！
-![img](https://media.gettr.com/group28/getter/2021/10/23/15/45/18c6bd98-1547-afb2-88c0-c0105681abc1/out.jpg)
-
----
-
-`@miles 10/23/2021 7:50 AM (UTC)`
-
-10/22/2021 Miles Guo: The CCP will cease to exist by 2025, and I won’t participate in politics in the new China. The purpose for the CCP’s recent military operations such as the PLA submarines surfacing from underwater is to prepare for the war against Taiwan. Anyone who is still competing for territories, pushing nationalism and dictatorship will inevitably be eliminated!<br/><br/>10/22/2021 文贵直播：2025年将没有中共，届时文贵也不会从政；中共最近的潜艇露头等军事行动都是为了打台湾；任何仍在争夺领土、推行民族主义和独裁的人必将被灭！<br/>
-![img](https://media.gettr.com/group3/getter/2021/10/23/07/50/35b008a6-2a5b-667e-60b5-9ae5ec28c69b/out.jpg)
 
 ---
 
