@@ -2,29 +2,33 @@
 ---
 
 
-## 维州官员拒绝公布病毒死亡案例的疫苗接种情况
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1622751/)
+## COVID-19 最新情报｜护士爆料 001：“我看到年轻患者在接种疫苗后因心脏疾病倒下”
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1622907/)
 
-编译：童媚
-![](https://assets.gnews.org/wp-content/uploads/2021/10/维州州长.jpg)（图片来自网络）
-维多利亚州卫生部门拒绝公布25例新增的冠状病毒死亡病例的疫苗接种情况。在周四28日报告中，新死亡人数激增，这是该州目前每日死亡人数最多的一次。
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜28/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_0.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-当被问及，这些死亡病例是否接种了疫苗时，副首席卫生官Ben Cowie说不会对此进行报告。而且澳大利亚维多利亚州卫生当局已宣布他们不会再报告新南威尔士州几个月来每天都发布的关键Covid细节。
+**【澳洲/大医院/心脏病病房/注册护士/AHPRA认证】**
 
-相反，他反而强调说，在过去7天内检测出Covid-19呈阳性的维多利亚州的病例中有85% 的人没有完全接种疫苗。而且在重症监护室内，有80%的人完全没有接种疫苗，因此，疫苗接种对严重疾病和生命威胁非常明显。
+*以下为转述：*
 
-自大流行开始以来，该州的死亡人数达到 1090 人，但就本轮病毒爆发阶段，死亡人数达到 270 人，
+我在一间繁忙大医院的心脏病病房工作。我见过许多年轻人在接种 COVID-19 疫苗后倒下，被送进医院进行心脏监测。
 
-维多利亚州周四对外公布了1923例新的Covid确诊病例。现在该州至少77%的16岁及以上人口接种了疫苗。
+1. 一位患有自身免疫性疾病的女士在接受疫苗后出现心包积液。
+2. 一位女士在接种完第二剂阿斯利康疫苗后出现胸痛并持续数周，她患上心肌炎。她病得很重，发烧，面部严重浮肿，眼神涣散。
+3. 一位非常健康的男性青年，他面部单侧出现严重的蜂窝组织炎，他的耳朵肿到三倍大。
+4. 还有一位 20 岁青年，第一剂辉瑞疫苗之后，第二日就发烧了，在 TOE 被诊断出感染性心内膜炎之后，他又患上了需要透析的急性肾损伤。所有肾脏扫描都显示正常，但他的肾脏仍然衰竭。在他送到急诊时的问诊记录中，他提到的，身体不适是在接种疫苗后的第二日开始的，但是，后来，经过多位科室专家（传染病、肾脏、心脏）审查后，这条线索消失了。
 
-为何随着疫苗接种比例的上升，病毒传染非但没有停下脚步，反而确诊人数节节攀升？现在频繁地响彻在街头巷尾的救护车警报，无时无刻不提醒着我们，应该深刻反思政府对于病毒的防疫措施和对疫苗的强制接种是否真的是为了人民的利益？而对于已经跃跃欲试的“加强针”，又有多少人醒来？
 
-原文链接：[Covid-19 Victoria: Officials not releasing vaccination status of virus deaths | news.com.au — Australia’s leading news site](https://www.news.com.au/national/victoria/news/victorian-officials-refuse-to-release-vaccination-status-of-virus-deaths/news-story/9dbcc791a7745419e20233cc91e1cb92)
+总而言之，在医生们的诊断纪录中，完全没有将疫苗视为患病的可能性因素，我不知道这是不是故意的。
 
-（本文仅限个人观点，与GNEWS无关）
+最令我不安的是，我所在的这遍地区，疫苗根本不被视为是导致心脏疾病的潜在原因，即使疾病都是在接种后发生的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1_0.jpg)
+* * *
 
-发稿：MG5
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+来源：[001](https://www.australiannationalreview.com/nurses-speak-out/nurses-speak-out-0020-27-09-2021-rn-cardiology-ward-major-hospital-ahpra-verified/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

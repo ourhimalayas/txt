@@ -2,46 +2,40 @@
 ---
 
 
-## 因疫苗接种强制令，雷神公司警告称将失去数千名员工
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1622166/)
+## COVID-19最新情报｜疫苗后，台湾航空机组员突发性耳聋，捷克年轻人听力问题暴增
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1622707/)
 
-【**简评：】据美联社报道，美国航空公司和西南航空公司现在都放弃了解雇拒绝接种新冠病毒COVID-19疫苗的员工的计划。过去几周，西南航空公司处境艰难。他们经历了数天的航班延误和取消，但否认这与疫苗强制接种有关。或许，雷神、波音、空客、宝洁和通用，这些公司，只有当他们也体会到西南航空公司的痛时才能醒悟。而这些公司的员工也应勇敢站出来为自己的权力而战，不应做逆来顺受、待宰的羔羊。**
+**台灣寶島農場 疫情關注組｜發佈日期/ 27/10/2021**
 
-**据《路透社》记者：Kannaki Deka，2021年10月26日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/axe9f-7yb1h.jpg)2019年6月21日，在法国巴黎附近的布尔热机场举行的第53届巴黎国际航展上，一名安保人员在雷神公司展台前站岗。图片来源：路透社/Pascal Rossignol
-《路透社》—— 美国航空航天和国防公司雷神科技（Raytheon Technolo-gies）首席执行官周二警告称，该公司将失去“数千名”拒绝接种COVID-19疫苗的员工，该公司正准备在拜登政府规定的12月8日最后期限前完成疫苗接种。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-“我们将失去数千人。”雷神公司首席执行官格雷格·海斯(Greg Hayes)周二在接受CNBC采访时表示。他还表示，公司正在招聘员工。该公司在美国共有12.5万名员工。
 
-为了扩大美国的疫苗接种范围，上个月，拜登政府下令对几乎所有联邦雇员和承包商进行疫苗接种。随后，战斧导弹制造商雷神公司表示，该公司将要求其所有的美国雇员全面接种疫苗。
+[台湾媒体](https://www.youtube.com/watch?v=jNvdXBNSbMo)报导，8月10日有航空业机组人员表示，自己于7月20日接种完第二剂莫德纳疫苗，但隔天耳朵竟然一边耳鸣、一边耳聋。治疗一个月时间竟然都没有好转。对此，医生表示：不排除疫苗罕见副作用。又[外媒](https://english.radio.cz/more-czechs-especially-young-adults-are-getting-tinnitus-it-covid-or-pandemic-8731876)于10月21日指出，捷克境内年轻人突发耳鸣等听力问题数量剧增，不排除与新冠病毒、疫苗有关联性。
 
-许多联邦承包商，如波音公司、3M公司和美国航空公司，已经宣布了疫苗强制接种规定。为美国陆军提供直升机的欧洲飞机制造商空中客车公司周二也加入了名单。
+关于疫苗是否导致耳鸣、耳聋，台湾防疫指挥中心回应：美国约翰霍普金斯大学最新研究发现，接种新冠疫苗和出现突发性听力受损，并没有关联。然而[报导](https://news.ttv.com.tw/news/11008100028900N)采访基层医疗协会理事长林应然分析，目前虽然没有很明确的统计报告，不过如果免疫系统启动的时候，误伤及听神经系统的话，有可能产生耳鸣、耳聋的问题。
 
-空客方面表示，“将要求美国境内所有员工和临时工在12月8日之前全面接种新冠疫苗。”
+- 其他：[更多台湾接种新冠疫苗发生的不良反应症状](https://health.udn.com/health/story/121833/5663938)
+- 其他：[检疫操! 8天飞2长程 机师“突发性失聪” ｜TVBS新闻](https://www.youtube.com/watch?v=qok0Aqns7LQ)
 
-吉列(Gillette)的制造商宝洁(Procter & Gamble Co .)等其他公司也公布了相关规定。
 
-当然，并不是每家公司都面临员工的抵制。代表泰森食品公司2.6万名员工的美国食品和商业工人联合会周二表示，超过96%的员工已经接种了疫苗。
+#### 新冠疫苗存在罕见副作用
 
-虽然沃尔玛(Walmart)等其他一些大型美国雇主尚未就疫苗接种公布广泛的要求，但按照劳工部的标准，将要求他们实施疫苗强制接种规定。
+新冠疫苗副作用除常见的血栓、心肌炎、心包炎、发烧、倦怠等，而鼻喉科方面也存在罕见特殊副作用存在。[台媒](https://health.ltn.com.tw/article/paper/1474238)报导，突发性耳聋、颜面神经麻痺，也都出现过相关病例。
 
-另外，雷神公司的格雷格·海斯在财报发布后的电话会议上表示，他预计拜登的疫苗接种强制令将对供应链造成“一些破坏”。
+- 其他：[华航空服员爆打AZ疫苗后“眼睛血栓模糊”没医师敢通报副作用| ETtoday生活新闻](https://www.ettoday.net/news/20210513/1980631.htm)
 
-然而，另一家强制接种疫苗的联邦承包商通用电气(General Electric)表示，现在判断该决定是否会对这家美国企业集团的运营产生影响还为时过早。
 
-“随着合规日期越来越近，我们将有更好的解读。”通用电气首席执行官拉里卡尔普告诉《路透社》。
+[Healthy Hearing](https://www.healthyhearing.com/report/53127-Coronavirus-hearing-loss-tinnitus-covid)在网站上针对“新冠病毒与听力损失是否相关”发表文章，明确表示没有确切的大研究可以证明新冠病毒与听力损失具有因果关系，但听力损失的确是病毒引起。据医学杂志 BMJ Case Reports 发表了一[专项研究](https://casereports.bmj.com/content/13/11/e238419)，一名45岁英国籍男子，在确诊新冠后一耳突发性耳聋，研究指出该名患者并没有接受任何可能导致听力损失的药物治疗，虽然没有证据可以证明是新冠病毒导致，但很有可能是。
 
-**原文连接**：[https://money.usnews.com/investing/news/articles/2021-10-26/raytheon-warns-of-worker-losses-as-companies-impose-vaccine-mandate](https://money.usnews.com/investing/news/articles/2021-10-26/raytheon-warns-of-worker-losses-as-companies-impose-vaccine-mandate)
+英国一項[调查研究](https://www.tandfonline.com/doi/full/10.1080/14992027.2020.1798519)則指出，每10名新冠病毒确诊者约有一人会出现听力损伤或是耳鸣状况。
 
-**（本文评论仅代表个人观点）**
+[台湾媒体](https://health.udn.com/health/story/121833/5663938)於8月10日报导，有民众表示，接种完两剂莫德纳疫苗隔天发生耳聋、耳，住院观察七天尚未恢复听力。当时，台湾防疫指挥中心医疗应变组副组长罗一钧表示：这样的案例美国也没研究过，认为和疫苗无关。然，经过两个月，指挥中心对于疫苗是否导致听力损伤即依照美国约翰霍普金斯大学最新研究表示，与疫苗无关。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/21-11.jpg)
+* * *
 
-翻译/评论：洛杉矶盘古农场 – 钢蛋儿
-校对/编辑：洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+资料来源｜[台視](https://news.ttv.com.tw/news/11008100028900N)、[Czech Raio](https://english.radio.cz/more-czechs-especially-young-adults-are-getting-tinnitus-it-covid-or-pandemic-8731876)、[Healthy Hearing](https://www.healthyhearing.com/report/53127-Coronavirus-hearing-loss-tinnitus-covid)、[BMJ Case Reports](https://casereports.bmj.com/content/13/11/e238419)
+撰文｜zhong
 
  
 

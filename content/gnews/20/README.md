@@ -2,41 +2,25 @@
 ---
 
 
-## 阿伯塔省消防员挑战疫苗护照，让政府陷入困境
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1624066/)
+## 【格芯芯片公司】在【纳斯达克交易所】正式上市
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1624211/)
 
-作者：Adam Soos
-翻译：HimaCoby
+采编：UCool优酷    编译撰稿：文明(添草灭共)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-23.jpg)图片来源：WCAX
 
 
+美国纽约【纳斯达克交易所】10月28日全球公布，【格芯芯片公司】当天在该交易所正式公开上市。
 
-一群阿伯塔省的消防员正在采取立场并反对疫苗护照。
+据悉，【格芯芯片公司】是一家总部位于美国加利福尼亚州圣克拉拉的“半导体晶圆”代工生产公司。该公司起初是从超微半导体的制造产业中分离而出的。目前，它是世界第四大专门生产芯片产品的专业晶圆代工厂，其规模仅次于【台积电】，【三星电子】及【联电】等同行企业。
 
-他们反对的理由多种多样，但都包括医学、宗教和伦理方面的原因。他们起诉政府要求为他们自己和他们在救援情况下与之互动的人提供合理的便利和更安全的做法。
+为庆祝【格芯芯片公司】正式上市，该公司首席执行官，董事会主席及相关投资公司总经理等人出席了当天敲响“开始庆典仪式”的钟声。
 
-当我们听说消防员面临这种政府过度干预时，我们知道我们必须参与其中，而且我们感谢您的支持，我们有资源为他们提供一流的法律顾问。他们的战斗很可能为加拿大其他陷入同样困境的消防员树立了先例。
+* * *
 
-阿伯塔省最喜欢的记者希拉·冈恩·里德 (Sheila Gunn Reid) 与挑战疫苗护照的阿伯塔省消防员蒂姆·莫恩 (Tim Moen) 一起聆听了他的故事。与此同时，我与处理诉讼的律师德里克·弗洛姆 (Derek From)也进行了交谈。
+校对编辑，发稿：硫酸羟氯喹64
 
-來源：[https://www.rebelnews.com/albertan\_firefighters\_challenge\_vaccine\_passports\_put\_government\_in\_hot\_seat](https://www.rebelnews.com/albertan_firefighters_challenge_vaccine_passports_put_government_in_hot_seat)
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[原文链接：](https://www.nasdaq.com/events/globalfoundries-rings-the-opening-bell-in-celebration-of-its-ipo)
 
  
 
