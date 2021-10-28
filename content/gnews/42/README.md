@@ -2,27 +2,23 @@
 ---
 
 
-## 有声|蓬佩奥指出世界面临撕裂的三大原因都源自CCP
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1621827/)
+## 文贵爆料10/27 恒大等新的2万亿地产违约，房产税是中共最后的掘墓税
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1621869/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-近日，美国前国务卿蓬佩奥出席World Knowledge Forum时指出世界面临撕裂的三大原因都源自中国共产党。一是由于中共撒谎以及联合国对中共卑躬屈膝而造成全世界大流行的中共病毒；二是中共的一带一路项目，其本质就是新型帝国主义；三是中共开始着手取代美国的领导地位，比如在疫情期间中共没有放下报复美国的野心反而让其野心更加膨胀，它们撕毁了本该遵守至2047年的中英联合声明。
+撰稿：Shifter、Evalu 【秘翻原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-27-at-4.44.28-PM.png)图片来源：GTV、GETTR
+郭文贵先生在10月27日大直播谈到国内现在实行的房地产税打着共同富裕的名义，实质是重新分配财富的权力。国内房地产暴雷引发金融暴雷，政治动荡，征收房产税，更想打台湾，所有这一切导致世界经济崩溃与中共彻底灭亡。
 
-蓬佩奥国务卿说，看到香港沦陷以及中共对其之前庄严承诺过的义务表现出的轻蔑态度，每个人都该问自己，中共国所签的哪一个正式文件会得到中共的执行？同时，蓬佩奥国务卿明确指出，中共就是个强盗政权，中共国被一群强盗所领导着。
+郭先生明确指出中共现在的统治阶级是红卫兵变态一代的产物。2017年王岐山就表示，做好准备吧，现在是白刀子进红刀子出的时候，还搞私营企业就是找死。共产党打土豪分田地最终目的是让老百姓吃草。中共知道自己快完蛋，一系列的经济灾难、大崩溃使中共没有选择的余地。中共最后的挣扎，就是房地产征税，闭关锁国，停掉互联网。这样造成台湾局势越来越危险，中共会更加想打台湾。拿回台湾的科技，台积电国有化。把1000万高素质台湾人奴役到广东，把福建、东北等内地人弄到台湾西部。
 
-文字版原文：[蓬佩奥指出世界面临撕裂的三大原因都源自CCP](https://gnews.org/zh-hans/1617967/)
+郭文贵先生爆料恒大、融创，碧桂园，合生创展违约资金又有两万亿要爆雷。郭先生强调，如果融创不爆雷，他拿脑袋见人。恒大爆雷、融创爆雷、合生创展爆雷、碧桂园暴雷。几万亿违约爆雷造成这个世界的经济崩溃在嘎嘎作响，将毁掉世界的所有的经济。从国内的征房地产税，到政治的动荡，到共产党的垂死挣扎，导致国内金融的崩溃，以及对台湾的侵略，这些房地产和金融界所有爆雷，即将导致世界经济的崩溃！
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+来源链接：https://gtv.org/video/id=6179465deadeb11f5e7b0768
+
+校对发布：Shifter
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

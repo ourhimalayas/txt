@@ -2,42 +2,21 @@
 ---
 
 
-## 中共三大电信运营商 被美国联邦通讯委员会剔除
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1622007/)
+## 英政府报告：疫苗护照实际上会增加新冠病毒的传播风险
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1622078/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国联邦通信委员会FCC，于10月26日敲定了撤销中共电信在美经营授权的方针。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-136.jpg)
-美国认为允许电信介入通信基础设施，会在安全保障方面带来很大风险。FCC命令电信美国子公司在60天内，停止中美之间持续了将近20年的通信业务。并驳回了中共移动进入美国市场申请，对之前通过的中共联通授权也启动了撤销程序。也就是说，中共三大电信运营商将在近期，整体被踢出美国通信业务。截止目前，中共外交部仍未准备好 如何回应美国联邦通讯委员会的以上决议。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-160.jpg)
-（本文仅代表作者观点）
+采编，编译撰稿：苦尽甜来 (文来） 校对编辑：硫酸羟氯喹64
 
-参考链接：
-
-[**美國以安保為由撤銷中國電信在美經營授權**](https://zh.cn.nikkei.com/politicsaeconomy/politicsasociety/46480-2021-10-27-10-25-00.html)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编/编辑：童谣
-
-校对/发稿：Fei797
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-17-edited.jpg)图片来源：零对冲
 
 
+据知名自媒体【零对冲】10月27日报道，根据英国政府【数字文化及体育传媒】部门近期所编制的报告发现，由于“新冠病毒疫苗护照”会鼓励人们前往更小、通风更差的场所，因此，实际上它的使用可能会加剧该病毒的传播风险。
+
+该报告举例指出：如果疫苗护照最终迫使一些球迷远离结构化且通风良好的体育场馆，这可能会导致其转而前去空间狭小的场所例如酒吧，并在那里获得比在体育场馆更多的酒精类饮料。
+
+此外，尽管已接种过“新冠病毒疫苗”的人仍然可以传播该病毒，但这些已接种者可以不必再向当局提供该病毒阴性测试结果作为其选择。这也是疫苗护照在很大程度上几乎毫无作用的另一个例证。
+
+[原文链接：](https://www.zerohedge.com/covid-19/leaked-government-report-finds-vaccine-passports-could-actually-increase-spread-covid)
 
  
 

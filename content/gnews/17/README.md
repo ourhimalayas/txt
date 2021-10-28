@@ -2,81 +2,29 @@
 ---
 
 
-## 人类的改变就在未来的三五年
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1622151/)
+## 随着散户交易狂热的消退，与特朗普相关的 SPAC 股价下跌
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1622234/)
 
-[https://gtv.org/video/id=61736358247c5a3f908e7068](https://gtv.org/video/id=61736358247c5a3f908e7068)
+**【简评：】并购川普总统TMTG的DWAC来自于吴征，川普总统SPAC上市的背后涉及了吴征、Samuel Nunberg、Richard Frankel等人，他们恰恰正是以前要遣返文贵先生，并用博讯的案子、马蕊强奸案和太平联盟案子陷害文贵先生的人。中共诱骗川普总统掉入操纵股价和欺诈的陷阱，从而终结其政治生涯，甚至害其全家锒铛入狱；我们要揭发中共恶行，唤醒美国各界，要帮助川普总统。而且我们也将一直支持川普总统。**
 
-**郭文贵**
-**Miles Guo**
+**据《彭博社》记者：Bailey Lipschultz，2021年10月26日报道：**
 
-只是站在了一个咱们的人道的维度上来看待人类
-It’s just looking at human beings from a humane dimension
+与美国前总统唐纳德·特朗普(Donald Trump)有关联的SPAC —— 数字世界收购公司(Digital World Acquisition Corp.，简称DWAC)的股价近来一片欢腾，但现在却出现了逐渐消退的迹象。
 
-当你站在地球（以外）
-When you stand beyond the earth
+由于散户投资者将注意力转向其他股票市场，这家特殊目的收购公司的股价继上周飙升1225%之后，周二连续第二天下跌。数字世界，这家即将与特朗普的新社交媒体平台 —— 特朗普媒体技术集团(Trump Media & Technology Group) —— 合并的公司，股价下跌30%至59.07美元。周一该股票下跌近11%。
 
-你看到从银河系, 你看到从那火星拍到地球，小到几乎看不见的程度
-you see from the Milky Way, from Mars, the earth is so mall that it’s almost invisi-ble
+数字世界仍在交易员聊天室Stocktwits上流行，是Reddit网站的华尔街投注中被提及最多的股票代码之一。在周二的交易中，该股也是富达平台上交易最活跃的资产之一，但卖出订单与买入订单持平。
 
-再想想银河系，想想太阳系的时候
-Then thinking about the Milky Way and the Solar System again
+相比之下，投资者更青睐数字资产市场Bakkt Holdings Inc.以及科技巨头特斯拉(Tesla Inc.)和Facebook Inc.。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/aw0zs-cgvx6-1.jpg)
+此前做空机构《冰山研究》(Iceberg Research)对投资者面临的风险发出警告，并表示“特朗普将以DWAC散户股东的利益为代价重新谈判。”这家空白支票公司的股价已从10月22日的175美元的峰值下跌了约三分之二。
 
-你站在多个维度的时候，Eglise 你所有经历的事情
-When you stand on the multiple dimensions, Eglise, that all the things you have experienced
+**原文连接**：[https://www.bloomberg.com/news/articles/2021-10-26/trump-linked-spac-stumbles-as-retail-trading-frenzy-loses-steam?srnd=premium](https://www.bloomberg.com/news/articles/2021-10-26/trump-linked-spac-stumbles-as-retail-trading-frenzy-loses-steam?srnd=premium)
 
-记住，这些人有一天回感谢你的，
-remember, one day these people will thank you
+**（本文评论仅代表个人观点）**
 
-你的经历都是有使命的，只要你把它发挥好
-Your experience has a mission, as long as you exert it well
-
-而且这些人是不生不死的，我们为这一个维度的人类感到悲哀痛苦
-And these people are immortal, we feel sad and painful for this dimension of hu-manity
-
-所以我们要奋斗，但是我们一定要相信多个维度是我们没有解开的谜
-So we have to work hard, but we must truly believe that multiple dimensions are mystery that we have not solved
-
-当新的维度被解开的时候，就像量子电脑，就像生物科技
-When the new dimension is unlocked, it is just like a quantum computer, like bio-technology
-
-就像所有我们要面对的天空科技一样，
-just like all the sky technology we have to face
-
-会把人类的视野和胸怀打到另一个维度的时候
-It will bring human vision and mind to another dimension
-
-一切都是小事，就像你小时候偷吃点糖，被爸妈打一嘴巴一样
-Everything is fig, just like when you were a kid stealing candy and getting slapped face by your parents
-
-当时对你来讲是天大的事，现在想想，就已经忘掉了
-It was a big deal for you at that time, but now think about it, it’s nothing
-
-未来就是这样，这么美好，
-The future is like this, it’s so beautiful
-
-而且人类的所有的改变就在未来的三五年，就在未来的三五年
-And all human changes will be taken place in the next three to five years, just in the next three to five years
-
-我们很幸运，我们就全身的参与
-We are so lucky, we are fully involved
-
-———————————————————
-
-**原视频链接**:[https://twitter.com/se1y7cblljselva/status/1450024870918586368?s=24](https://twitter.com/se1y7cblljselva/status/1450024870918586368?s=24)
-
-Date:10/21/2021
-原视频标题:
-Humanity will change in the next three to five years
-原视频日期：2021/10/17
-任务编号：2606
-视频时间段 : 0:00-1:18
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
+翻译/评论：洛杉矶盘古农场 – 钢蛋儿
+校对/编辑：洛杉矶盘古农场 – 明子
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

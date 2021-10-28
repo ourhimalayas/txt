@@ -2,21 +2,40 @@
 ---
 
 
-## 英政府报告：疫苗护照实际上会增加新冠病毒的传播风险
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1622078/)
+## 10月份以来北京部分蔬菜价格涨幅超过50%
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1622138/)
 
-采编，编译撰稿：苦尽甜来 (文来） 校对编辑：硫酸羟氯喹64
+作者：美东香草山-新世界的一员
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月26日，北京市商务局一级巡视员王洪存，在新闻发布会上称，十一过后北京市蔬菜价格总体呈波动上行趋势。其中，蔬菜平均批发价月环比上涨39.8%；综合零售价月环比上涨20.4%。部分叶类菜、鲜嫩蔬菜上涨幅度更大，有的超过50%或更多。中共全国上下通货膨胀严重，民生困苦，中共庞氏骗局的经济模式面临严重挑战。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-75.jpg)
+（本文仅代表作者观点）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-17-edited.jpg)图片来源：零对冲
+参考链接：
+
+[**北京：10月以来部分蔬菜售价涨幅超50%**](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_9803650491101995691%22%7D&amp;n_type=-1&amp;p_from=-1)
+
+总编: 童谣
+
+编辑：珈沅
+
+校对/发稿：Fei797
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
 
 
-据知名自媒体【零对冲】10月27日报道，根据英国政府【数字文化及体育传媒】部门近期所编制的报告发现，由于“新冠病毒疫苗护照”会鼓励人们前往更小、通风更差的场所，因此，实际上它的使用可能会加剧该病毒的传播风险。
-
-该报告举例指出：如果疫苗护照最终迫使一些球迷远离结构化且通风良好的体育场馆，这可能会导致其转而前去空间狭小的场所例如酒吧，并在那里获得比在体育场馆更多的酒精类饮料。
-
-此外，尽管已接种过“新冠病毒疫苗”的人仍然可以传播该病毒，但这些已接种者可以不必再向当局提供该病毒阴性测试结果作为其选择。这也是疫苗护照在很大程度上几乎毫无作用的另一个例证。
-
-[原文链接：](https://www.zerohedge.com/covid-19/leaked-government-report-finds-vaccine-passports-could-actually-increase-spread-covid)
 
  
 
