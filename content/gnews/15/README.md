@@ -2,41 +2,30 @@
 ---
 
 
-## 中共国禽流感传人案例猛增
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1622796/)
+## 东亚峰会成中共“批斗会”，美国总统时隔4年再次出席
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1622843/)
 
-作者：澳喜农场 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
-中共国在2021年向世卫组织通报称，有21起人类感染H5N6亚型禽流感的案例，而去年只有5起。虽然这21名患者，相比2017年感染H7N9毒株的数百人要低得多，但是这些感染非常严重，导致多人病危和6人死亡。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-483.png)[图片来源](https://www.voanews.com/a/us-east-asia-leaders-convene-to-discuss-threats-challenges-in-region-/6287538.html)
+据日本共同社10月28日报道，日美中韩与东盟（ASEAN）成员国等18个国家参加的第16届东亚峰会27日以在线方式召开。美国总统拜登参会，再次确认对印度太平洋地区的“永远参与”，强调遵守基于国际规则的秩序，制约单方面加强海洋活动的中共。这是美国总统时隔约4年出席。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-57.jpg)
+日本首相岸田文雄、中共国务院总理李克强也参加了峰会。对于中共国，岸田指出“在东海，侵犯日本主权的活动持续”，还提及台湾海峡和平稳定的重要性。据日本政府透露，多个国家表明了对南海问题和中共国人权状况的关切。
 
-这引起了专家的关切，他们说以前流行的一个毒株似乎发生了变化，可能对人更有传染性。世卫组织在10月4日的一份声明中，强调了病例的增加，并说大多数病例都与家禽接触过，没有人传人的确认病例。
+岸田表态为了打破发生政变的缅甸的僵局，将尽力提供合作，还谴责朝鲜发射弹道导弹，就解决朝鲜绑架日本人问题谋求理解。
 
-（本文仅代表作者观点）
+报道进一步指出，东亚峰会主席声明草案专门提到中共南海问题，写明“多个国家对（有损信赖的）填海造地以及严重事件表示关切”。此外，对于国防军通过政变掌握全权的缅甸局势也表示“关切”，要求缅方同意与所有相关方和东盟特使会晤。
 
-参考阅读：
+美国前总统特朗普连续4年缺席东亚峰会，被批轻视东南亚。
 
-1. [https://cn.reuters.com/article/china-flu-human-infections-1026-idCNKBS2HG0QO](https://cn.reuters.com/article/china-flu-human-infections-1026-idCNKBS2HG0QO)
+从东亚峰会情况可以看出，由于无知、傲慢和狂妄，特别是全球搞渗透输出影响力，以及在地区炫耀武力，当前中共在全球已经沦到“人人讨厌，人人喊打”的地步。
 
+信息来源：[美国总统时隔4年再次出席东亚峰会](https://china.kyodonews.net/news/2021/10/9ef595fc04dd-4.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-3.jpeg)
+（文章仅代表作者本人观点，与GNEWS无关）
 
-***编辑：木白***
-***校对/发稿***：***海阔天空1***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+*校对：东京樱花团/上善若水
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

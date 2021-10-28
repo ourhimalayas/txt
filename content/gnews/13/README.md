@@ -2,33 +2,62 @@
 ---
 
 
-## 秘翻在线：媒体掩盖真相，巴西总统又遭封杀
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1622802/)
+## 西喜时事新闻简报 — 中共病毒时事篇
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1622861/)
 
-#### 撰稿：彩虹       
+编译：西班牙喜悦农场–wenwu
 
-#### 责编：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-482.png)图片来源：NBC News
-综合《国会山报》、《美联社》、《法国24电视台》和《路透社》的报道，10月26日（周三），面对世界暗黑势力和巴西内部邪恶势力的进攻，巴西总统雅伊尔·博尔索纳罗（*Jair Bolsonaro*）要求最高法院阻止可能对其进行的社交媒体封杀行动。
+您若想了解全文报导内容，请点击标题链接
 
-根据报道，巴西参议院的一个调查委员会以他传播中共病毒（COVID-19）的“错误信息”为由，寻求将他从社交媒体平台上暂停，并且该报告要求以九项指控起诉他（包括反人类罪）。
+（爱惜生命 远离疫苗）
 
-本周早些时候，博尔索纳罗的一段视频被Facebook(脸书)和Youtube（油管）删除，在该视频中，博尔索纳罗引用英国的新闻报告，指出接种疫苗的人更容易感染艾滋病。
+1. [Moderna 首席执行官:疫苗“再来一针”政策是每年至少打一针](https://descargitas.com/moderna-%E9%A6%96%E5%B8%AD%E6%89%A7%E8%A1%8C%E5%AE%98%E8%A1%A8%E7%A4%BA%EF%BC%8C%E6%AF%8F%E5%B9%B4%E5%8F%AF%E8%83%BD%E9%9C%80%E8%A6%81-covid-19-%E7%96%AB%E8%8B%97%E5%8A%A9%E6%8E%A8%E5%99%A8/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-485.png)图片来源： descargitas.com
+据《Descargitas》2021年10月27日电，Modena 创始人兼首席执行官 Nubar Arian 在接受 Maria Bartiromo 采访时表示，可能需要每年（强制）注射中共疫苗（COVID-19）：“如果中共疫苗变成每年或每隔几年随着中共病毒的变化而改变，有点像我们对流感疫苗的做法，那么我们将不能停止注射疫苗。”
 
-对此，Facebook以违反其传播错误信息的政策为由删除了这一视频。而Youtue则更为无耻地说：“我们的政策不允许声称羟氯喹和/或伊维菌素对治疗或预防COVID-19有效的内容，声称COVID-19有保证治愈的内容，以及声称口罩对防止病毒传播不起作用的内容。”
+美国的许多人目前有资格获得第三针 COVID-19 疫苗。美国 CDC 表示，修改之前已经发出的建议——第三针疫苗可以混打中共疫苗；上周，美国疾病控制和预防中心主任罗谢尔·瓦林斯基（Rochelle Wallinsky）表明，全面接种中共疫苗的定义可能在未来某个时候发生变化。
 
-在对博尔索纳罗发起的攻击中，巴西部分参议员要求无限期禁止他进入YouTube、Twitter、Facebook和Instagram。此外，这些参议员还呼吁当局解除对博尔索纳罗社交媒体账户的数据保密，禁止他登录，并命令Facebook 和Twitter以及YouTube所有者谷歌例行提供有关总统使用情况的秘密信息。
+2. [佛州州长以现金招募未接种疫苗的警官](https://www.nbcnews.com/news/us-news/florida-gov-desantis-recruits-unvaccinated-officers-cash-bonus-rcna3721?utm_source=facebook&amp;utm_medium=news_tab&amp;utm_content=algorithm)
 
-据路透社报道，鉴于接待参议院调查委员会的巴西最高检察官是由总统任命的，博尔索纳罗可能不会面临任何实际惩罚。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-488.png)图片来源：nbcnews.com
 
-**新闻来源**
+据《NBCNEWS》2021年10月25日电，佛州州长罗恩·德桑蒂斯 (Ron DeSantis) 周日在[福克斯新闻上](https://video.foxnews.com/v/6278608216001?playlist_id=3386055101001#sp=show-clips)说，他希望通过立法让其他州失业的警察和治安官的副手可以在佛州上班，并获得五千美元的福利。德桑蒂斯在采访中声称，强制接种中共疫苗是违宪的，它们削弱了人们的选择权，并且旨在伤害护士和官员。这正在纽约市、明尼阿波利斯、西雅图警察局和[芝加哥警察局](https://www.nbcnews.com/news/us-news/chicago-police-union-head-urges-cops-defy-covid-vaccine-mandate-rcna3007)发生；“如果你没有受到很好的对待，我们会在这里更好地对待你。你可以满足我们的重要需求，”他说。值得一提的是，印第安纳州也跟上了佛州的步伐。
 
-1. [Bolsonaro asks Brazil’s Supreme Court to block possible social media suspension](https://thehill.com/policy/international/578845-bolsonaro-asks-supreme-court-to-block-possible-social-media-suspension)
+3. [阿拉巴马州州长凯·伊维（Kay Ivey）指示各机构抵制乔·拜登的全面疫苗授权](https://www.thegatewaypundit.com/2021/10/alabama-governor-kay-ivey-directs-agencies-resist-joe-bidens-covid-vax-mandate/)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-489.png)图片来源：thegatewaypundit.com
 
-2.  [Brazil Senators ask high court to bar Bolsonaro from social media](https://www.france24.com/en/live-news/20211026-brazil-senators-ask-high-court-to-bar-bolsonaro-from-social-media)
+据《Thegatewaypundit》2021年10月26日电，阿拉巴马州州长凯·伊维（右）周一指示各州机构抵制乔·拜登的9月份的全面疫苗授权（210万联邦雇员要么注射疫苗、要么被解雇，以及100人以上的私企都要么接种中共疫苗、要么接受巨额罚款）。
 
-3.  [Bolsonaro asks Supreme Court to intervene to avoid social media suspension](https://www.reuters.com/article/us-brazil-politics-bolsonaro-idUSKBN2HH2VH)
+美联社[报道](https://apnews.com/article/coronavirus-pandemic-business-education-alabama-health-ae9981614061559de1cb02480e6e605d)：“州长伊维签署了一项[行政命令，](https://apnews.com/article/coronavirus-pandemic-business-education-alabama-health-ae9981614061559de1cb02480e6e605d)禁止行政部门机构——包括医疗补助、心理健康和人力资源等机构——对不遵守联邦疫苗规定的员工或企业进行处罚。” 另外，伊维在一份[声明](https://twitter.com/GovernorKayIvey/status/1452713854283169794?s=20)中说：“联邦政府令人发指的过度扩张让我们别无选择，只能开始采取行动，这就是我发布此行政命令以对抗这些令人震惊的 COVID-19 疫苗规定的原因。”
+
+美联社说，伊维的行政命令不适用于大学。“这些大学是根据阿拉巴马州宪法创建的，由董事会管理和控制。”
+
+4. [为声援前线工人反对艾伯塔省（Alberta）疫苗授权而举行的无声抗议](https://www.rebelnews.com/silent_protest_held_in_solidarity_with_frontline_workers_against_alberta_vaccine_mandate)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-491.png)图片来源：rebelnews.com
+
+据《REBEL NEWS》2021年10月26日电，数千人于上周日（24日）聚集在艾伯塔省立法大楼的南草坪上，抗议对艾伯塔省卫生保健工作者和急救人员强制接种疫苗的要求；艾伯塔省政府已授权对消防员、警察和所有卫生保健工作者提供完整的疫苗接种政策证明，截止日期为 2021 年 11 月 20 日。
+
+根据艾伯塔省卫生服务部的数据，1400 名卫生保健工作者申请了针对中共疫苗的宗教或医疗豁免，以及 61 名员工已辞职；值得一提的是，在过去的20个月里，他们无疑是我们的英雄。
+
+5. [纽约市工人游行穿过布鲁克林大桥抗议拜登疫苗全面授权](https://nypost.com/2021/10/25/we-will-not-comply-nyc-workers-protest-vax-mandate-with-march-across-brooklyn-bridge/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-493.png)图片来源：nypost.com
+
+据《NEW YORK POST》2021年10月25日电，市政工作人员于周一（25日）走上街头，抗议市长比尔·德·白思豪 (Bill de Blasio) [对整个市政工作人员实施疫苗强制接种的要求](https://nypost.com/2021/10/20/bill-de-blasio-to-announce-covid-19-vaccine-mandate-for-all-city-workers/)；抗议期间至少有 20 人被捕，许多人举着美国国旗，高呼“F-k de Blasio”和“我们不会遵守！”，有点更直接与纳粹德国对犹太人的迫害进行比较。
+
+“现在，在无数次紧急情况后工作——桑迪飓风、暴风雪……我受到（来自政府的）威胁。我们正面临失去生计的威胁，因为只是保留保护我们身体的选择，”在人群到达市政厅后，消防员索菲亚·梅迪纳 (Sofia Medina) 愤怒地说道。
+
+穿着 FDNY 衬衫的 Paul Schweit 吼道：“市长白思豪想把我们描绘成不道德、不安全和对公众构成威胁。而对于这座城市的市民，我们（的工作是）希望继续保护你。”另有一名警官说：“数以千计的好警察和市政工作人员将失去工作，是否纽约市会有好人有信心、有足够的人来填补这些职位。我害怕接下来会发生什么？”
+
+（文章仅代表作者观点与GNEWS无关）
+
+* * *
+
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
+
 
  
 

@@ -2,49 +2,48 @@
 ---
 
 
-## 习近平秘密外访释放重大信息
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1622690/)
+## 维多利亚州实施更严格的疫苗豁免规定
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1622728/)
 
-作者：枫叶农场 – 文仁
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
-
-
-
-据郭文贵先生今日的盖特信息，习近平在中共的六中全会前突然安排秘密访问中东与欧洲五国，这五国是：卡塔尔，希腊，塞尔维亚，阿尔巴尼亚，意大利。这次突然的出访暗含的意思重大，信息众多。说明习在国内已经把自己的反对势力控制住，其中包括王岐山，孟建柱，马云等。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/6-13.png)
-
-其中首站卡塔尔意义尤为重要，因为和德意志银行，海航，杨洁篪等在桌子底下都有大量勾兑。同时给卡塔尔周边的阿联酋，伊朗等整个中东地区演戏，并安排私下交易，回报卡塔尔。
-阿尔巴尼亚，塞尔维亚是此次外访的重要部分，中共计划在这些国家部署基地。
-
-访问希腊，意在巩固中共在希腊的码头和延期贷款等理由阻止希腊与新中国联邦合作，把意大利扶持为中共在欧洲的第二势力，同时想买通意大利的左右两翼势力，在欧洲打楔子，分裂欧洲。并图谋和意大利，希腊等签署司法协助与合作协议， 遣返当地的华人。
-
-此次外访同时挑战美国在当地的政治势力，并期望和美国达成贸易协议，恢复两国正常合作与竞争关系，并试探进行发展两个新型大国关系，两国共同治理世界的可能性，掩盖病毒的真相。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-1. [https://www.gettr.com/post/pf3w0g8716](https://www.gettr.com/post/pf3w0g8716)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/211007-ms-daily-vaccine-religious-exemptions-2x1-cs.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-3.jpeg)
 
-***编辑：Irene木木***
-***校对/发稿***：***海阔天空1***
+图片来源：msnbc.com
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+#### 编译：小红帽
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+澳大利亚维多利亚州将收紧对中共病毒（ COVID-19 ）疫苗接种的医疗豁免规定，以打击民众选择医生和向全科医生施压要求豁免接种疫苗的行为。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+在全州范围进一步放宽限制前一天，77.5%的16岁以上人群现已完全接种疫苗，92.1%的人已经接种了第一剂疫苗。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+从周五开始，随着首席卫生官收紧医疗豁免要求，人们将更难避免接种中共病毒疫苗。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+从周五下午6点开始，维州人需要在澳大利亚免疫登记处填写一份豁免表格，才能通过myGov网站获得豁免证书。该证书可作为他们在医学上免于接种疫苗的证明。
+
+此外，临床医生将收到一份指导表格，其中明确列出了澳大利亚技术咨询小组的许可医疗豁免清单。
+
+当前持有非AIR表格的豁免函的人需要返回给他们的医生，以便在11月12日之前代表他们提交表格。
+
+与此同时，当周五下午6点限制措施放宽时，墨尔本市区的人们将被允许前往各地区和州际旅行。
+
+除其他规则变化外，户外不需要戴口罩，非必要的零售店将重新开业，接待场所将允许更多人进入。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Tougher vaccine exemption rules for Vic (msn.com)](https://www.msn.com/en-au/news/australia/tougher-vaccine-exemption-rules-for-vic/ar-AAQ1etT?ocid=msedgntp)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
