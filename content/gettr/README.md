@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/28/2021 12:05 AM (UTC)`
+
+10/27/2021 Miles Guo: Eight to nine out of the eleven funds investing in DWAC did so because of PAG, and this essentially means that PAG, Bruno Wu, and Richard Frankel, the former FBI top official, are in cahoots. So, they have conflict of interest, which will help me win my lawsuit with PAG <br/><br/>10/27/2021 文贵直播：投资DWAC的11家基金中有8到9家是因太平联盟而进行的投资，其本质是太平联盟、吴征和前FBI高官Richard Frankel的互相勾连，因此，他们之间存在着利益冲突，这将有利于文贵打赢与太平联盟的官司
+![img](https://media.gettr.com/group30/getter/2021/10/28/00/05/21c4b91a-d0c0-7cc2-109e-089f8b386108/out.jpg)
+
+---
+
 `@miles 10/27/2021 11:54 PM (UTC)`
 
 11月27号：非常智慧独到的对中国共产党……对中国人民犯下的罪行的现状解读！悲哀的是．中国有无数的智者，但是却极少有真正的行动的勇士……
@@ -290,13 +297,6 @@ Eleven Qualified Institutional Buyers or Institutional Accredited Investors of D
 
 10/22/2021 Miles Guo: Bruno Wu reported to the CCP confidently that he has successfully got control of President Trump. Why is it good for our Whistleblowers’ Movement and the New Federal State of China? Because Bruno Wu will face the inquiries from the DOJ and the Congress as he orchestrated a scam to render President Trump under the CCP’s control<br/><br/>10/22/2021 文贵直播：吴征信心满满地给中共报告，称已经成功拿下川普总统；为啥这对咱爆料革命、新中国联邦是件好事？吴征用诈骗让中共控制了川普总统，所以他将面临司法和国会议员的调查<br/>
 ![img](https://media.gettr.com/group2/getter/2021/10/23/02/08/69ab126b-d59d-5230-843c-97e9a7c3e4fc/out.jpg)
-
----
-
-`@miles 10/22/2021 11:58 PM (UTC)`
-
-10/22/2021 Miles Guo: The core issues of the 6th Plenary Session of the CCP’s Central Committee are: 1) eliminating the private entrepreneurs and the complete nationalization of the economy; and 2) when to invade Taiwan? This meeting will determine the future of the Communist China - to become another North Korea or return to the rule of the 9 CCP Politburo Standing Committee Members. Xi has the final say in choosing his successor<br/><br/>10/22/2021 文贵直播：中共此次六中全会最重要的议题是：1) 消灭私营企业家、经济上完全国有化；2) 何时打台湾；这次会议将决定中共国的未来走向是北朝鲜化，还是回归”九龙治水”；在继承人的问题上，习说了算<br/>
-![img](https://media.gettr.com/group32/getter/2021/10/22/23/58/d228c64f-8904-95a1-e8a0-d1e8948d7879/out.jpg)
 
 ---
 
