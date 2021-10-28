@@ -2,56 +2,93 @@
 ---
 
 
-## 妻子被疫苗所伤 科学家告诉 FDA：请别给孩子们打
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1624068/)
+## 防治新冠药物的作用机理汇总
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1624095/)
 
-编译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-517.png)图片来源： childrenshealthdefense.org
+作者：纽约香草山医疗部 – 麦可，圣母院钟声
 
-布赖恩·德雷森([Brian Dressen](https://www.linkedin.com/in/brian-dressen-8b04526))博士, 是在研究和评估新技术功效程度方面具有广泛背景的化学家，他告诉美国食品和药物管理局FDA辉瑞的疫苗“未能通过任何与儿童相关的合理风险收益计算。 ”
+- **硫酸羟氯喹Hydroxychloroquine**处方药每片200mg，按医嘱服用。**新冠****防治机****理：**硫酸羟氯喹通过增加病毒与细胞融合所需的内体 pH 值来阻断病毒感染，它影响 p38 丝裂原活化蛋白激酶 (MAPK) 的激活，参与 HCoV-229E 的复制并可以干扰 ACE2 的末端糖基化，从而抑制 SARS-CoV-2 感染1。**预防以及轻症治疗有效。还有抗疟抗慢性炎症作用。**
 
-尽管多名科学家和医生在会议期间提出强烈反对，但美国FDA)咨询委员会周二批准了辉瑞 (Pfizer) 疫苗用于 5 至 11 岁儿童。
 
-布赖恩.德雷森博士是在 8 小时听证会上作证的科学家之一。德雷森也是布赖妮·德雷森(Brianne Dressen)的丈夫，布赖妮在2020年美国阿斯利康 COVID 疫苗的犹他州试验期间发生了严重的神经损伤。在第一剂疫苗受伤后退出了试验。
+- **伊维菌素Ivermectin **处方药每剂0.2-0.4mg/kg ，按医嘱服用。**新冠防治机理：**伊维菌素与 SARS-CoV-2 刺突蛋白的高度结合特性可以**限制病毒与 ACE-2 受体或唾液酸受体的结合**，分别**防止病毒进入细胞或防止血凝**。它可以和干扰病毒复制所需的多种基本结构和非结构蛋白结合。它还与 SARS-CoV-2 RNA 依赖的 RNA 聚合酶 (RdRp) 结合，从而**抑制病毒复制**。伊维菌素的**抗炎特性**包括抑制炎症因子的产生、下调 NF-kB 的转录以及限制一氧化氮和前列腺素 E2 的产生2。**临床上成功用于预防感染，治疗轻，重度新冠症状以及康复治疗，还可以缓解疫苗接种的不良反应。它是FLCCC组织的推荐首选药物**。常规用于抗疟，银屑病的治疗。
 
-在 3 分钟的证词中，在研究和评估新技术功效程度方面具有广泛背景的化学家德雷森告诉 FDA 咨询小组，辉瑞的疫苗**“**未能通过任何与儿童相关的合理风险收益计算”。
 
-德莱森说：“你们的决定是仓促的，基于动力不足的试验的不完整数据，不足以预测严重和长期不良反应的发生率。我敦促委员会拒绝 EUA [紧急使用授权]，修改并指示辉瑞进行试验，以果断地证明对儿童的益处大于风险。我对你们今天要做出的决定会不会产生影响有第一手证据。”
+- **青蒿素及衍生物Arternisinin and derivatives **纯药剂是处方药，按医嘱服用。保健品是非处方药，可以每天服用。**新冠防治机理：**青蒿及其植物化合物能够抑制 SARS-CoV-2有关的宿主蛋白 3CLPRO、S 蛋白、CTSL、N 蛋白、E 蛋白、解旋酶蛋白、nsp3、nsp10、nsp14、nsp15 和 GRP78 受体。因此，青蒿成分会阻碍 **SARS-CoV-2 附着、膜融合和内化到宿主细胞中**，**并阻碍病毒复制和转录过程**。青蒿的生物学特性、**对不**同信息通路的作用和与靶蛋白的结合能**协同抑制 SARS-CoV-2、减少炎症、调节宿主免疫反应并缓解 COVID-19 症状。它是一种免疫调节剂**，已用于治疗类风湿性关节炎、莱姆氏病、红斑狼疮、结核病、EB 病毒、巨细胞病毒以及一些癌症的治疗3。2021 年十月，世界卫生组织治疗咨询小组开始在全球范围进行临床实验，评估青蒿琥酯的抗新冠病毒特性4。
 
-德雷森告诉 FDA，去年 11 月，他的妻子在临床试验期间注射了单剂 COVID 疫苗后严重受伤。他说：“因为研究方案需要两次剂量，所以她退出了试验，她对研究应用程序的访问权限也被删除了。最近发布的临床试验报告中没有描述她的反应——266 名参与者被描述为有不良反应事件，其中有 56 例神经系统反应。”
 
-他说，他和妻子此后见到了其他疫苗接种试验的参与者——包括辉瑞针对 12 至 15 岁儿童的试验——他们也有类似的致命反应。
+- **抗菌素类Clindamycin 或Doxycycline **处方药，按医嘱服用。**新冠防治机理：**大环内酯类药物**增强细胞抗病毒模式识别受体的表达和抗病毒 I 型和 III 型干扰素反应**的诱导。对抗冠状病毒引发的过度旺盛的炎症反应。它们**还具有抗炎特性**，包括抑制 IL-1beta、IL-2、TNF 和 GM-CSF。它们通过抑制钙调神经磷酸酶信号、哺乳动物雷帕霉素活性靶点和 NFκB 激活来抑制 T 细胞。它们特别针对粒细胞，特别影响中性粒细胞的积累、粘附、脱粒和凋亡5。
 
-德莱森说：“疫苗受伤的支持团体正在增加。会员人数至少达到数万人。我们必须做得更好。在试验中受伤的人，是疫苗安全性数据的关键部分。但他们被抛在一边，被遗忘了。FDA 已经掌握了她的案例和其他数千人的第一手资料。但FDA 表示，他们自己的系统没有识别这个问题，并且 VAERS 不是为了识别任何多症状信号。系统坏了。”
 
-德雷森说，他家人的生活已经永远改变了。 “临床试验没有适当地评估数据，”他说。 “FDA，CDC 和制药公司继续转移持续和反复的求助和承认呼声，让受伤者进一步受到损害。”
+- **激素类Steroids **处方药，按医嘱服用。**新冠防治机理：**皮质类固醇是有效的**免疫调节药物**，可通过基因组和非基因组效应帮助预防或减轻以严重 SARS-CoV-2 感染为特征的**过度炎症状态**。无细胞因子风暴引起的呼吸道感染症状（如咳嗽，气促等）**的患者不应使用皮质类固醇**。根据疾病的临床严重程度，应静脉或口服皮质类固醇，如地塞米松、氢化可的松或甲基强的松龙，剂量相当于 6 -12 mg 地塞米松，持续 5 至 10 天。激素类对新冠病毒的治疗也是CDC认可的治疗方案之一6。
 
-他还说： “除非我们已经适当地照顾那些已经受伤的人们，承认成年人受伤的全部范围，否则，请不要疫苗用把给孩子们。你们有非常明确的责任要适当评估这些疫苗的风险和收益。很明显你们没有去做。**”**
 
-“FDA继续对数千人的痛苦一再置若罔闻。今天，你们每个人都肩负着重大的责任，并且毫无疑问，当你们批准 5 至 11 岁的孩子接种疫苗时，你们就签下了无辜的孩子和不知情的父母的命运：这无疑会剥夺他们中一些人的生命。 ”
+- **维生素D Vitamin D **非处方药，每剂5000IU，每天服用。**新冠防治机理：**维生素 D可以**降低感染风险并下调免疫/炎症反应**。功能性维生素 D 受体 (VDR) 在 B 淋巴细胞和 T 淋巴细胞中高度表达，主要在单核细胞和巨噬细胞中表达，证明其在**调节先天性和适应性免疫反应中的作用**。它可以通过功能性细胞类固醇受体**发挥免疫调节和抗炎活性**7。
 
-在周二接受 2News 采访时，布赖妮表示，如果获得批准，她的孩子将不会接种 COVID-19 疫苗。“无论品牌如何，我都会对疫苗做出反应，因此，如果我的孩子具有相同的基因构成，那么现在很有可能发生同样的事情，”她说。
 
-自从他的妻子疫苗受伤（由美国国立卫生研究院的医生诊断）以来，德雷森夫妇会见了其他试验参与者和有孩子的家庭，他们也认为自己是因 COVID 疫苗而受伤。他们成立了一个名为“C19疫苗反应”（ C19 Vax Reactions ）的支持小组和网站，分享他们关于疫苗伤害的故事。
+- **锌Zinc**非处方药 每剂25-40mg，每天服用。**新冠防治机理：**锌可以改善纤毛的形态，并**增加其长度和跳动频率**。它也被认为是一种**膜稳定剂**，有助于维持**细胞骨架的完整性**。它使 ZO-1 和 Claudin-1 等膜紧密连接蛋白的表达得到增强，以**加强呼吸上皮的屏障功能**。锌通过抑制病毒的 RNA 依赖性 RNA 聚合酶 (RdRp) 来**阻止其复制**。锌还能最大限度地减少 Sirtuin 1 (SIRT-1) 诱导的血管紧张素转换酶 2 (ACE-2) 受体的表达，**降低病毒结合 ACE2 受体的可能性**。**锌还调节免疫系统并增加白细胞产生的 IFNα**。它间接增加了抗病毒蛋白的合成，如核糖核酸酶和蛋白激酶 RNA 激活，**它们可以降解病毒 RNA**。**锌具有抗氧化作用**，可减少活性氧物质和氮物质的产生。它还通过抑制 NF-κB 信号传导导致促炎细胞因子的产生减少而表现出**抗炎作用**。锌可以增加天然杀伤细胞的活性、T 细胞的活性和 B 细胞受体的信号，同时增加抗体的产生。它还通过**调节和平衡细胞因子**来调节T 细胞功能，**防止免疫系统的超免疫反应被过度激活**8。
 
-6 月 26 日，参议员罗恩·约翰逊（Ron Johnson）召开[新闻发布会](https://childrenshealthdefense.org/defender/sen-johnson-ken-ruettgers-press-conference-families-injured-covid-vaccines/)，讨论与疫苗相关的不良反应——为包括布赖恩在内的个人提供了一个平台，这些人一直被医学界“一再忽视” 故事。
 
-据[KUTV](https://kutv.com/news/coronavirus/sen-mike-lee-pushes-cdc-for-answers-on-vaccine-side-effects)电视称，该组织继续推动 FDA 和 CDC 寻求答案和帮助。他们在很大程度上被忽视了，他们联系了犹他州参议员迈克·李（Mike Lee），他代表他们给 CDC 和 FDA[写了一封信](https://www.lee.senate.gov/services/files/edb46ad3-0d71-4779-85f1-13a0fb47df10) 。
+- **槲皮素Quercetin **非处方药每剂500-1000mg，每天服用。**新冠防治机理：**槲皮素不仅抑制 NLRP3 炎性成分和 Pro-IL-1β 的产生，还通过干扰各种信号通路，尤其是 NF-κB 来**抑制炎症**。槲皮素通过干扰病毒复制的3各阶段抑制: 1) 抑制病毒被吸收到宿主细胞中; 2) 抑制RNA聚合酶和病毒蛋白翻译, 阻断病毒基因组的转录; 3)通过增强线粒体抗病毒反应,增加病毒清除率。 病毒复制槲皮素对**肠道微生物失调的纠正**可以**帮助控制体内的全身炎症**9。
 
-**评论：“FDA继续对数千人的痛苦一再置若罔闻。当你们批准5 至11 岁的孩子接种疫苗时，你们就签下了无辜的孩子和不知情的父母的命运：这无疑会剥夺他们中一些人的生命。”但FDA根本不在乎！他们在乎的是用手中的权力赚取最大的利益，哪怕是粘着无数人血泪和生命的钱！难道我们自由国家的人就这样任由这些FDA，CDC的罪犯肆意妄为？**
 
-（文章仅代表作者观点，与GNEWS无关）
+- **褪黑色素Melatonin **非处方药每剂5-10mg，睡前服用。**新冠防治机理：**褪黑激素是一种有效的中性粒细胞髓过氧化物酶 **(MPO) 抑制剂**；通过下调炎性白细胞介素而起到免疫抑制作用；**也有抗炎、抗氧化、 抗细胞死亡和神经保护的作用**10。
 
-**新闻来源**：[childrenshealthdefense.org] [Scientist Whose Wife Was Injured by COVID Vaccine Tells FDA: ‘Please Do Not Give This to Kids’](https://childrenshealthdefense.org/defender/brian-dressen-brianne-covid-pfizer-vaccine-risk-benefit-calculus-children/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=586e16b1-51ac-408c-b322-c990fd47fedb)
 
-* * *
+- **维生素C Vitamin C **非处方药每剂1000mg，每天服用。**新冠防治机理：**维生素 C **是一种抗氧化剂和自由基清除剂，具有抗炎特性，影响细胞免疫和维持血管完整性**，并作为内源性儿茶酚胺生成的辅助因子。由于人在应激状态下需要更多的维生素 C，因此维生素 C 补充剂已被用于**治疗严重感染和败血症**11。
 
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
+- **N-乙酰半胱氨酸N-Acetylcysteine (NAC)** 非处方药每剂600-1200mg，每天服用。**新冠防治机理：**NAC会**抑制 SARS-CoV-2 的复制**。 NAC **能够在细胞外清除 ROS 自由基、补充细胞内 GSH**（在衰老或免疫缺陷者的免疫细胞中，由于谷胱甘肽减少，ROS 增加，导致免疫反应失调）、**抑制细胞因子风暴和保护 T 细胞**，从而减轻炎症和组织损伤。对重症感染者治疗时，剂量要提高到每天2400mg 12。
+
+
+以上药物的详细使用剂量可以参照纽约香草山农场的文章 [https://gnews.org/zh-hans/1609900/](https://gnews.org/zh-hans/1609900/) 以及FLCCC 官方网站 [https://covid19criticalcare.com/](https://covid19criticalcare.com/)。
+
+参考文献：
+
+1 [https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7243790/](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7243790/)
+
+2.[Ivermectin in COVID-19 – FLCCC | Front Line COVID-19 Critical Care Alliance (covid19criticalcare.com)](https://covid19criticalcare.com/ivermectin-in-covid-19/)
+
+3.[https://www.ncbi.nlm.nih.gov/pmc/articles/PMC8378675/](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC8378675/)
+
+4. [WHO’s Solidarity clinical trial enters a new phase with three new candidate drugs](https://www.who.int/news/item/11-08-2021-who-s-solidarity-clinical-trial-enters-a-new-phase-with-three-new-candidate-drugs)
+
+5. [https://onlinelibrary.wiley.com/doi/10.1002/rmv.2163](https://onlinelibrary.wiley.com/doi/10.1002/rmv.2163)
+
+6. [https://www.sciencedirect.com/science/article/pii/S2667100X21000037#](https://www.sciencedirect.com/science/article/pii/S2667100X21000037)!
+
+7. [https://rmdopen.bmj.com/content/6/3/e001454](https://rmdopen.bmj.com/content/6/3/e001454)
+
+8. [https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7930604/](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7930604/)
+
+9. [https://journal-inflammation.biomedcentral.com/articles/10.1186/s12950-021-00268-6](https://journal-inflammation.biomedcentral.com/articles/10.1186/s12950-021-00268-6)
+
+10. [https://pubmed.ncbi.nlm.nih.gov/34304092/](https://pubmed.ncbi.nlm.nih.gov/34304092/)
+
+11. [https://www.covid19treatmentguidelines.nih.gov/therapies/supplements/vitamin-c/](https://www.covid19treatmentguidelines.nih.gov/therapies/supplements/vitamin-c/)
+
+12. https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7649937/
+
+审稿：圣母院钟声
+
+编辑：圣母院钟声
+
+发稿：圣母院钟声
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-2.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-1.png)
 
  
 

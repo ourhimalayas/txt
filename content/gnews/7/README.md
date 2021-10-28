@@ -2,29 +2,38 @@
 ---
 
 
-## 德国10月通胀是28 年来最高水平
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1624017/)
+## 马里兰州议员停用Facebook和Instagram账户
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1624021/)
 
-新闻来源：德国web网站
+编译：Lulumi
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-4-14.jpg)2019年10月25日星期五，马里兰州众议员Dutch Ruppersberger抵达巴尔的摩，参加众议员Elijah Cummings在新诗篇浸信会的葬礼。 (AP Photo/Steve Ruark)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/sven-brandsma-HyhFd9xT82k-unsplash-1-scaled.jpg)
+马里兰州安纳波利斯（ANNAPOLIS）(美联社）——马里兰州的一位议员周三宣布，他已经停用了他的官方国会和竞选的Facebook和Instagram账户，直到其母公司和国会进行实质性改革，以保护儿童、健康和民主价值观。
 
+民主党议员达奇·鲁珀斯伯格(Dutch Ruppersberger)说，他的决定是根据举报人令人不安的报告，该公司自己的研究显示对民主、青少年的心理健康和仇恨言论的放大有危害。
 
-图片来源: Unplash
+在一份新闻稿中，鲁珀斯伯格引用了《华盛顿邮报》的一份报告，称Facebook的算法一度将“愤怒”的反应视为比“喜欢”更有价值五倍，不成比例地推广可能包括“错误信息、毒性和低质量新闻”的内容。
 
-德国的通货膨胀在 10 月份进一步加速，达到 28 年来的最高水平。正如联邦统计局周四根据初步数据宣布的那样，消费者价格与去年同月相比上涨了 4.5%。威斯巴登当局上一次测量的通货膨胀率为 4.5% 是在 1993 年 10 月。
+鲁珀斯伯格说：“Facebook的基本商业模式散播分裂和虚假信息，凭良心讲我暂时不能再使用它——并从我的官方媒体上推广它。虽然Facebook必须更好地自律，但国会也必须采取行动，通过合理的社交媒体改革。”
 
-更高的通货膨胀削弱了消费者的购买力。根据初步数据，德国人在 10 月份不得不掏腰包购买能源，一年内增长了 18.6%。
+脸书首席执行官马克·扎克伯格(Mark Zuckerberg)此前曾对举报人弗朗西斯·豪根(Frances Haugen)对该公司的描述提出异议，举报人认为该公司将利润置于用户的福祉之上，或推崇分裂性的内容。
 
-能源价格和材料短缺正在加剧通货膨胀，一段时间以来，不断上涨的能源价格一直在助长通货膨胀。此外，取消临时增值税减税措施现在正在产生全面影响。自 2021 年 1 月起，常规增值税税率再次生效，因此商品和服务再次变得更加昂贵。此外，还有材料短缺和交付瓶颈以及二氧化碳税的引入。自今年年初以来，柴油、汽油、取暖油和天然气燃烧时产生的每吨二氧化碳应缴纳 25 欧元。
+鲁珀斯伯格说，他的Twitter账户将保持活跃。他还强调，他和他的工作人员可以接听选民的电话、电子邮件，甚至传真。
 
-原文链接：[https://web.de/magazine/wirtschaft/hoechster-stand-28-jahren-inflation-beschleunigt-oktober-36297250](https://web.de/magazine/wirtschaft/hoechster-stand-28-jahren-inflation-beschleunigt-oktober-36297250)
+**简评：连对大科技公司友善的民主党议员都开始对他们说No了，非死不可，不作不死。**
 
-免责声明：本文内容仅代表个人观点，与Gnews平台无关。
+（文章仅代表作者观点，与GNEWS无关）
 
-责任编辑、发布： Shuizhuyu
+**参考资料：**[apnews][Maryland congressman deactivates Facebook account](https://apnews.com/article/technology-business-maryland-congress-facebook-cff94efaf809f29c923552be932c8514)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-1.jpeg)
 
  
 

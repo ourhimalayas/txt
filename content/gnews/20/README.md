@@ -2,25 +2,25 @@
 ---
 
 
-## 美大型零售商下架中共国涉及侵犯人权的监控产品
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1623706/)
+## 日本央行延长货币互换协议
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1623748/)
 
-作者：澳喜农场 – 在远方
+作者：美东香草山教育部-正义的小新
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据10月27日消息称，美国三家大型零售商下架了中共国科技监控制造商海康威视和大华旗下的产品。
+10月25日，日本央行发布消息称，将延长与中共国人民银行之间在金融危机时相互融通货币的“货币互换协议”，延长期限至2024年10月25日。日媒对此表示，该协议旨在通过完善安全网，以预防金融机构与企业的资金周转恶化。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-17.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-13.jpeg)
 
-据了解，这两家中共国厂商向中共政府提供了监控技术，参与中共侵犯新疆维吾尔族和其他少数民族人权的暴行。因此，大华和海康威视均在2019年被列入美国商务部的实体清单。
+货币互换协议，即为在发生金融危机时，协议双方相互融通货币的机制。例如，当驻华日本金融机构难以从市场筹措人民币时，日本央行将用日元兑换中共央行的人民币，以提供给日本的金融机构。
 
-此前，美国国务院于3月发布了2020年度《国别人权报告》，当中言明新疆维吾尔人及其他少数民族遭受种族灭绝的现状，并且将罪行直指中共政府。
+但是，随着恒大集团的爆雷，中共经济上一连串类似的金融事件将不可避免，或将导致各国很难收回自己的投资， 甚至血本无归。日本政府此举也许会给日本经济带来不可估量的损失。
 
-参考链接：[“参与新疆人权侵犯” 美国大型零售商下架中国监控产品](https://www.voachinese.com/a/us-retailers-pull-out-chinese-surveillance-products-20211026/6286703.html)
+参考链接：[日中央行延长货币互换协议](https://china.kyodonews.net/news/2021/10/79f44329d3a4.html)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
 总编：飞虹
-编辑：文徬
+编辑：山本不惑
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

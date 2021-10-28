@@ -2,31 +2,13 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月28日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1623885/)
+## 秘翻在线：恭喜格芯纳斯达克成功上市！
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1623958/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-412.png)
+据纳斯达克和格芯官方推特报道，今天美国纽约时间上午11点11分格芯在纳斯达克股票交易所成功上市。这是半导体公司有史以来最大的IPO也是今年美国本地的最大IPO。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV_-_Google_.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：2021.10.28早GTV新闻访谈
-
-[https://gtv.org/broadcast/watch/617a976feadeb11f5e7b6e21](https://gtv.org/broadcast/watch/617a976feadeb11f5e7b6e21)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+格芯的开盘价格为每股47美金，市场交易即将开始，让我们期待格芯为股市带来怎样的惊喜！我们会随时跟进报道今天股票的价格走势，请随时关注报道。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_2293.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_2294.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_2295.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_2296.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
