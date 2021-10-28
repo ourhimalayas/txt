@@ -2,43 +2,34 @@
 ---
 
 
-## 新加坡疫苗覆盖超八成 单日染疫暴增5324例
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1623681/)
+## 美大型零售商下架中共国涉及侵犯人权的监控产品
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1623706/)
 
-**By:秘翻新闻**
+作者：澳喜农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据10月27日消息称，美国三家大型零售商下架了中共国科技监控制造商海康威视和大华旗下的产品。
 
-***2021-10-28***
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/1028-2.jpg)](https://gtv.org/broadcast/watch/617a65efeadeb11f5e7b67d5)点击图片观看视频
-**新闻摘要:**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-17.jpeg)
 
-1.房产税即中共的掘墓税 吴征是新中国联邦灭共的“功臣”
+据了解，这两家中共国厂商向中共政府提供了监控技术，参与中共侵犯新疆维吾尔族和其他少数民族人权的暴行。因此，大华和海康威视均在2019年被列入美国商务部的实体清单。
 
-2.吉林居民曝取暖费大幅上涨：不补交就停暖
+此前，美国国务院于3月发布了2020年度《国别人权报告》，当中言明新疆维吾尔人及其他少数民族遭受种族灭绝的现状，并且将罪行直指中共政府。
 
-3.明年起军人配偶免费医疗 网友：有大事要发生
+参考链接：[“参与新疆人权侵犯” 美国大型零售商下架中国监控产品](https://www.voachinese.com/a/us-retailers-pull-out-chinese-surveillance-products-20211026/6286703.html)
 
-4.香港进入国安禁片年代
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-5.傅政华被撤销中共全国政协委员资格
+总编：飞虹
+编辑：文徬
+校正/发稿：谐趣园
 
-6.文件显示石正丽分离出可感染人类的冠状病毒毒株
-
-7.美参议员致函拜登呼吁公开邀台湾参加美民主峰会
-
-8.罗马尼亚参议院否决了病毒健康通行证法案
-
-9.Twitter股价大跌超10% 创近6个月来最大跌幅
-
-10.新加坡疫苗覆盖超八成 单日染疫暴增5324例
-
-**GTV链接：**[https://gtv.org/broadcast/watch/617a65efeadeb11f5e7b67d5](https://gtv.org/broadcast/watch/617a65efeadeb11f5e7b67d5)
-
-发布: 文橙
-
-* * *
-
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

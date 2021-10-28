@@ -2,30 +2,32 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月28日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1623885/)
+## 俄总统发言人称没有计划封锁地区边界
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1623997/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-412.png)
+俄罗斯莫斯科喀秋莎农场 星河
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV_-_Google_.png)
-文章仅代表作者本人观点，与Gnews无关
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/E-5.jpg)thegoaspotlight.com
+美东时间10月28日报道，俄罗斯总统发言人德米特里∙佩斯科夫表示，俄罗斯没有计划因中共病毒而关闭地区边界。
 
-视频参看：2021.10.28早GTV新闻访谈
+克里姆林宫发言人解释说，“由于许多俄罗斯人决定在10月30日至11月7日的非工作期间旅行，因此流行病学家表示担心，非工作日结束之后可能会产生不好的后果。但是，另一方面，旅行没有被禁止，没有出台这方面的禁令，也没有计划出台任何禁令。”
 
-[https://gtv.org/broadcast/watch/617a976feadeb11f5e7b6e21](https://gtv.org/broadcast/watch/617a976feadeb11f5e7b6e21)
+在回答当局是否考虑关闭地区边界的问题时，佩斯科夫说，这“绝对是最后的措施”，“不受欢迎”。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+佩斯科夫在7月份已经说过，克里姆林宫不支持关闭地区间的边界。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+周一，塞瓦斯托波尔实施了进出境限制。当局并没有完全关闭边境，而是在非工作日推出了QR码旅行计划。州长Mikhail Razvozzhayev下令设立路障，他们将在那里检查QR码。据该地区负责人介绍，这将有助于限制游客的流动。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+各个地区在以前的疫情爆发期间也限制了进出所在地区的旅行，甚至完全关闭其边界。车臣在2020年春季推出了这样的措施。这是由车臣共和国总统拉姆赞∙艾哈迈多维奇∙卡德罗夫宣布的，他明确指出，可能会有例外，例如将重病患者运送到另一个地区时就不受此限制。去年4月，车里雅宾斯克州的交通警察部队在该地区的入口处拒绝了来自其他地区的车辆，“因为疫情很糟糕”。过境交通以及运送食品和基本必需品的卡车被列为例外。
+
+随后，别尔哥罗德地区有限制地接纳了其他地区的居民——来自莫斯科和莫斯科地区的游客必须经过两周的隔离期，或证明中共病毒检测显示阴性。交通警察被派驻在莫斯科的入口处，他们询问每一个进入该城市的人为什么来首都。
+
+（文章仅代表作者个人观点）
+
+参考链接：
+
+[https://www.rbc.ru/society/27/10/2021/61791d909a79477fd05b08bd?from=from\_main\_11](https://www.rbc.ru/society/27/10/2021/61791d909a79477fd05b08bd?from=from_main_11)
 
  
 
