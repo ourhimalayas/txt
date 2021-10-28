@@ -2,46 +2,37 @@
 ---
 
 
-## 加拿大要求紧急调查青少年疫苗猝死事件
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1624349/)
+## 银河快讯：日本银行将降低GDP增长预期；美日与中共就海上安全展开对话
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1624380/)
 
-翻译：西班牙喜悦农场–wenwu
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-92.png)[图片来源](https://www.nippon.com/)
+**1.****辉瑞公司寻求在日对5-11岁的儿童批准**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/CANADA-INV-1.jpg)图片来源：theexpose.uk
+[据共同社 10月27日报道，美国制药巨头辉瑞公司正在与日本进行谈判，以申请批准对5至11岁的儿童使用其中共病毒疫苗。这一消息是在美国食品和药物管理局的一个独立专家小组投票赞成为该年龄组的儿童注射该疫苗颁发紧急使用授权后的一天发布的。由于该疫苗对12岁以下儿童的有效性和安全性仍未确定，其覆盖范围尚未扩大。据美国媒体报道，由于儿童出现严重症状的风险很低，一些人仍然不相信有这种必要。](https://english.kyodonews.net/news/2021/10/acec2aea1a23-pfizer-to-seek-japan-covid-19-vaccine-approval-for-kids-aged-5-11.html)
 
-2021 年 10 月 22 日，这位加拿大议员（MPP）致函安大略省临时警察署专员托马斯·卡里克（Thomas Carrique），要求立即调查年轻健康人的突然死亡事件。希利尔（Hillier）在一份[新闻稿中](https://www.randyhilliermpp.com/20211025_pr_oppinvestigationsuddendeaths)表示，他的调查请求是基于安大略省公共卫生数据显示，在年轻人口中，Covid-19 疫苗的潜在严重不良反应的发生率过高，特别是对心血管疾病表示特别关注。
+**2.****美日与中共国就海上安全问题展开对话**
 
-MPP Hillier 还表示，这种趋势正在全球公开数据中观察到，促使多个国家完全暂停使用某些疫苗产品，或限制其在年轻人和儿童中的使用。
+[据共同社 10月28日报道，美国、中共国和日本周三在一个地区峰会上就海上安全问题进行了对话，美国总统拜登和日本首相岸田文雄自上任以来首次参加了这次在线会议。东亚峰会的虚拟聚会举行之际，美国和中共国之间的紧张关系最近在亚太地区的几个问题上不断加剧，如中国南海和东海以及台湾海峡。拜登参加会议强调，美国一直渴望恢复其在该地区的影响力，而中共国则一直试图加强与东南亚国家联盟的关系。](https://english.kyodonews.net/news/2021/10/4625ce59976c-us-china-square-off-over-maritime-security-amid-tensions.html)
 
-例如，[瑞典最近无限期禁止](https://theexpose.uk/2021/10/26/sweden-halts-moderna-jab-indefinitely-after-vaccinated-patient-develops-crippling-heart-condition/)向 31 岁以下的任何人注射 Moderna mRNA 疫苗，以避免更多人患上残废的心脏疾病。在此之前，大多数北欧国家都暂停了 Modena 的中共疫苗，因为它导致了一系列的健康问题。
+**3.****JR东海预计将连续第二年出现赤字**
 
-虽然英格兰和威尔士国家统计局提供的最新数据显示，自首次接受辉瑞公司 mRNA Covid-19 疫苗以来，[男性儿童的死亡率](https://theexpose.uk/2021/10/27/deaths-among-male-children-increased-by-89-percent-since-given-covid-19-vaccine/)比五年平均值[增加了 82%](https://theexpose.uk/2021/10/27/deaths-among-male-children-increased-by-89-percent-since-given-covid-19-vaccine/)（如下图）。
+[据NHK 10月27日报道，JR东海预测，它将连续第二年亏损，与之前预测的盈利相反。由于中共病毒的传播，使用东海道新干线的乘客数量持续下降，这推迟了铁路收入的恢复。根据JR东海27日发布的从4月开始的集团财务业绩，销售额比去年同期增长14.5%，达到3869亿日元，但该公司公布的最终亏损为444亿日元。](https://www3.nhk.or.jp/news/html/20211027/k10013324471000.html?utm_int=news-business_contents_news-main_003)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-278-1.png)
+**4.****东京电力公司预计出现9年来的首次亏损**
 
-加拿大议员兰迪·希利尔 (Randy Hillier) 表示，作为一名民选官员，他有义务质疑公共政策，尤其是当有证据表明公共政策可能对公众产生不利影响时。
+[据NHK 10月27日报道，东京电力公司预测其收入从最初的740亿日元的盈利下调至130亿日元的损失。这是该公司九年来首次出现亏损，主要是由于用于发电的液化天然气等燃料成本上升。截至上个月的六个月，东京电力公司整个集团的普通收入为1013亿日元，比去年同期下降超过54%。该公司还下调了对截至2013年3月31日的整个集团财务业绩的预期，理由是飙升的燃料成本预计将继续增加成本负担。](https://www3.nhk.or.jp/news/html/20211027/k10013324161000.html?utm_int=news-business_contents_list-items_005)
 
-他告诉安大略省警察局局长，越来越多的年轻人和健康人突然死亡令人担忧，他们应该向正在寻求答案的死者家属提供完整的真相。
+**5.****日本银行将降低GDP增长预期**
 
-致安大略省警察局专员的完整信函全文如下（中英翻译共4张图）：
+[据NHK 10月27日报道，日本央行将从27日开始举行货币政策会议，讨论经济和价格的前景。日本央行已将本财年（2021年）的实际GDP增长预测下调至3.8%以下，因为由于全球半导体短缺以及其他原材料和零部件供应的限制，出口和生产一直很低迷。预计日本央行将在此次会议上决定维持目前的大规模宽松政策，即保持短期利率为负值，长期利率为0%左右，以继续支持经济。](https://www3.nhk.or.jp/news/html/20211027/k10013323031000.html?utm_int=news-business_contents_list-items_014)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-281-1.png)
+**6.****渔业信息可以通过智能手机轻松查询**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-8-7.jpg)
+[据NHK 10月27日报道，一家鲜鱼店目前正在东京测试一个系统，该系统将使消费者更容易通过简单地扫描智能手机上的二维码来检查谁捕获了鱼以及鱼的分销路线。消费者只需用他们的智能手机读取贴在生鱼片包装和其他物品上的QR码，就可以轻松查询与渔业产品有关的各种信息。他们不仅可以找到谁钓得鱼，在哪里钓到的，进入何种流通渠道，而且通过点击渔民信息的按钮，还可以了解他们对资源管理的想法。](https://www3.nhk.or.jp/news/html/20211027/k10013323041000.html?utm_int=news-business_contents_list-items_015)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_8049.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_3588.jpeg)
-
-（文章仅代表作者观点与GNEWS无关）
-
-**新闻来源：**[theexpose.uk] [Canadian Politician demands urgent investigation into rise of sudden deaths among Teens following Covid-19 Vaccination](https://theexpose.uk/2021/10/27/politician-demands-investigation-sudden-deaths-teens-after-covid-vaccination/) | 发布时间：2021年10月27日
-
-* * *
-
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：Tagomi
 
  
 
