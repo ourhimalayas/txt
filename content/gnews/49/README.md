@@ -2,10 +2,36 @@
 ---
 
 
-## 10/27/2021 文贵直播：DWAC股票大涨大跌的背后操纵者就是吴征代表的共产党，蒙受损失的都是川普总统的支持者
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1622257/)
+## 视频| &#8220;我们不服从!&#8221;: 纽约市政员工10/25大游行，抗议疫苗强制令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1622423/)
 
-秘密翻译组-北美组
+制作：香草山视频部
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
+
+
+
+
+
+
+
+*发稿：雪梨*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

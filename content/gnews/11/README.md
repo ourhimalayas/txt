@@ -2,17 +2,25 @@
 ---
 
 
-## 文贵大直播简报10/28/2021
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1623200/)
+## 樱花灭共诗——七绝•再祝喜币上市大吉
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1623326/)
 
-简报制作：艾伦【秘翻原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-28-at-7.07.51-AM.png)图片来源：GTV & GETTR![](https://assets.gnews.org/wp-content/uploads/2021/10/大直播简报1.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/大直播简报2.png)
-大直播链接：https://gtv.org/video/id=6179465deadeb11f5e7b0768
+#### 作者：东京樱花团/故乡明月
+![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
+从来好事惯多磨，
 
-发布：Shifter
+喜币三波又若何。
 
+赖有群雄酬永志，
 
+他时沧海共飙歌。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/12213.jpg)
+(本文只代表作者观点，与GNews网站无关)
 
+*插图：东京樱花团/闪闪*
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
