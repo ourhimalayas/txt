@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/28/2021 8:30 AM (UTC)`
+
+10/27/2021 Miles Guo: The issue of DWAC indicates the scams and criminal offenses committed by Bruno Wu on behalf of the CCP, and this is the greatest gift to the New Federal State of China and will expose the CCP’s infiltration, fraud, and conflict of interest among the lawyers, and in the prosecutors and courts in the US<br/><br/>10/27/2021 文贵直播：DWAC事件证明了代表中共的吴征在美国进行的欺骗和刑事犯罪，这是给新中国联邦带来的最大礼物；它将揭穿中共在美国律师界、检察官和法院的渗透、造假和利益冲突的内幕<br/>
+![img](https://media.gettr.com/group41/getter/2021/10/28/08/30/17e6fc68-e687-20af-175f-7ee09640a133/out.jpg)
+
+---
+
 `@miles 10/28/2021 8:08 AM (UTC)`
 
 10/27/2021 Miles Guo: The DWAC incident has caused numerous small investors who support President Trump to be swindled by Bruno Wu, and this will further provoke their hatred towards the CCP and even the Chinese people; Bruno Wu’s deceptive and cunning nature is the best proof of how vicious and how low the CCP really is<br/><br/>10/27/2021 文贵直播：DWAC事件导致支持川普总统的众多小投资者的钱被骗走，这会挑起他们对中共甚至中国人的仇恨；吴征的欺骗和狡诈的本性恰恰佐证了中共真坏、真Low<br/>
@@ -292,13 +299,6 @@ Eleven Qualified Institutional Buyers or Institutional Accredited Investors of D
 
 10/22/2021 Miles Guo: The world will undergo a major change after next May; The CCP won’t be able to sustain its Great Firewall, and it is uncertain as to whether Xi can survive until the 20th Party Congress; Whoever is still relying upon the CCP is doomed; It’s easy to deceive Xi, who knows very little about the world, with his mentality remaining in the initial stage of the Culture Revolution <br/><br/>10/22/2021 文贵直播：明年五月份后世界将大变；中共的防火墙会撑不住，习能否撑到20大是个大变数；谁现在还依靠着中共将是死路一条；习很容易被骗，他对世界的认知是很低的，他的思维还停留在文革初期<br/>
 ![img](https://media.gettr.com/group25/getter/2021/10/24/00/06/f28b4c28-6b2e-4370-61f6-2aaf2fb02be0/out.jpg)
-
----
-
-`@miles 10/23/2021 9:59 PM (UTC)`
-
-“Behind the Scenes with GFASHION: Greatness in Motion”  G Fashion的幕后 #Gfashion @DDNYC  
-![img](https://media.gettr.com/group45/getter/2021/10/23/21/59/454974ec-ff43-35b7-cd9b-53eebc044ccd/out.jpg)
 
 ---
 

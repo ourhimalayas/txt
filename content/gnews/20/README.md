@@ -2,48 +2,29 @@
 ---
 
 
-## 维多利亚州实施更严格的疫苗豁免规定
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1622728/)
+## 不接种疫苗者是异类吗？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1622763/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/10/12-17.png)[图片来源](https://news.yahoo.co.jp/articles/b11028b3c978013f7c62494f16e75f91cfb14ecf/images/000)
+“独立行政法人经济产业研究所”在6月份在网络上进行了一项调查“哪些人对接种新冠疫苗有抵触情绪”，有效受访者共计11846人，其中11637人未接种疫苗，未接种者中”打算接种”、”不打算接种”和”尚未决定”这三种选择的回答分别为60.9%、9.0%和30.1%。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/211007-ms-daily-vaccine-religious-exemptions-2x1-cs.jpg)
+“尚未决定”的人多为妇女，低收入者，储蓄不足的人，有抑郁倾向的人，瘦的人，老年人，只有夫妻双方的家庭，高血压或脂质异常的人，最重要的信息源是电视的人，信任他人的人，较少数为非常恐惧中共病毒的人。”不打算接种”的人，结果与”尚未决定”的人情形类似。
 
+由于这些信息的出现，人们担心对未接种疫苗的人的歧视行为和”疫苗骚扰”。未接种疫苗者似乎成为社会上的“异类”，被区别化对待，然而真相往往掌握在少数人手里。
 
+信息来源：
 
-图片来源：msnbc.com
+[「ワクチン接種しない人」の傾向が断定される怖さ…調査結果がネットで物議に](https://news.yahoo.co.jp/articles/b11028b3c978013f7c62494f16e75f91cfb14ecf)
 
+(文章仅代表作者本人观点，与GNEWS无关)
 
-#### 编译：小红帽
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+摘要：
 
-澳大利亚维多利亚州将收紧对中共病毒（ COVID-19 ）疫苗接种的医疗豁免规定，以打击民众选择医生和向全科医生施压要求豁免接种疫苗的行为。
-
-在全州范围进一步放宽限制前一天，77.5%的16岁以上人群现已完全接种疫苗，92.1%的人已经接种了第一剂疫苗。
-
-从周五开始，随着首席卫生官收紧医疗豁免要求，人们将更难避免接种中共病毒疫苗。
-
-从周五下午6点开始，维州人需要在澳大利亚免疫登记处填写一份豁免表格，才能通过myGov网站获得豁免证书。该证书可作为他们在医学上免于接种疫苗的证明。
-
-此外，临床医生将收到一份指导表格，其中明确列出了澳大利亚技术咨询小组的许可医疗豁免清单。
-
-当前持有非AIR表格的豁免函的人需要返回给他们的医生，以便在11月12日之前代表他们提交表格。
-
-与此同时，当周五下午6点限制措施放宽时，墨尔本市区的人们将被允许前往各地区和州际旅行。
-
-除其他规则变化外，户外不需要戴口罩，非必要的零售店将重新开业，接待场所将允许更多人进入。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Tougher vaccine exemption rules for Vic (msn.com)](https://www.msn.com/en-au/news/australia/tougher-vaccine-exemption-rules-for-vic/ar-AAQ1etT?ocid=msedgntp)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+关键词：
 
  
 

@@ -2,29 +2,40 @@
 ---
 
 
-## 不接种疫苗者是异类吗？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1622763/)
+## 中共国禽流感传人案例猛增
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1622796/)
 
-#### 撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/12-17.png)[图片来源](https://news.yahoo.co.jp/articles/b11028b3c978013f7c62494f16e75f91cfb14ecf/images/000)
-“独立行政法人经济产业研究所”在6月份在网络上进行了一项调查“哪些人对接种新冠疫苗有抵触情绪”，有效受访者共计11846人，其中11637人未接种疫苗，未接种者中”打算接种”、”不打算接种”和”尚未决定”这三种选择的回答分别为60.9%、9.0%和30.1%。
+作者：澳喜农场 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+中共国在2021年向世卫组织通报称，有21起人类感染H5N6亚型禽流感的案例，而去年只有5起。虽然这21名患者，相比2017年感染H7N9毒株的数百人要低得多，但是这些感染非常严重，导致多人病危和6人死亡。
 
-“尚未决定”的人多为妇女，低收入者，储蓄不足的人，有抑郁倾向的人，瘦的人，老年人，只有夫妻双方的家庭，高血压或脂质异常的人，最重要的信息源是电视的人，信任他人的人，较少数为非常恐惧中共病毒的人。”不打算接种”的人，结果与”尚未决定”的人情形类似。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-57.jpg)
 
-由于这些信息的出现，人们担心对未接种疫苗的人的歧视行为和”疫苗骚扰”。未接种疫苗者似乎成为社会上的“异类”，被区别化对待，然而真相往往掌握在少数人手里。
+这引起了专家的关切，他们说以前流行的一个毒株似乎发生了变化，可能对人更有传染性。世卫组织在10月4日的一份声明中，强调了病例的增加，并说大多数病例都与家禽接触过，没有人传人的确认病例。
 
-信息来源：
+（本文仅代表作者观点）
 
-[「ワクチン接種しない人」の傾向が断定される怖さ…調査結果がネットで物議に](https://news.yahoo.co.jp/articles/b11028b3c978013f7c62494f16e75f91cfb14ecf)
+参考阅读：
 
-(文章仅代表作者本人观点，与GNEWS无关)
+1. [https://cn.reuters.com/article/china-flu-human-infections-1026-idCNKBS2HG0QO](https://cn.reuters.com/article/china-flu-human-infections-1026-idCNKBS2HG0QO)
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
-摘要：
 
-关键词：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-3.jpeg)
+
+***编辑：木白***
+***校对/发稿***：***海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

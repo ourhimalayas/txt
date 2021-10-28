@@ -2,45 +2,42 @@
 ---
 
 
-## 中共政府组织伊斯兰宣讲团进驻清真寺 加速“伊斯兰中共化”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1622116/)
+## 泽连科医生呼吁人们救救孩子 并揭露福奇虐杀幼犬
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1622118/)
 
-作者：澳喜农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-自10月15日开始，中共青海省第四届“卧尔兹”巡回宣讲团，面向全省1000多座清真寺， 80万穆斯林，开展以“筑牢中华民族共同体意识，坚定伊斯兰教中共化方向，学党史，感党恩，跟党走”为主题的宣讲活动。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-108.jpg)
-一位参加了该活动的当地穆斯林对外媒说，“省里来的阿訇主要讲了团结、和平以及坚持党对宗教的领导，使伊斯兰同社会主义社会相适应，不要受境外人员的影响等内容。大部分人从寺里出来以后，开始议论讲的内容和伊斯兰没有关系。但是在寺里不敢说，因为来了很多不是本村的陌生人。”有评论者指出，“宗教中共化”就是全面整改宗教 以适应中共的需要。
+作者：纽约香草山翻译部 – defiance
 
-（本文仅代表作者观点）
 
-参考链接：
-
-[政府组织伊斯兰宣讲团进驻清真寺 加速”伊斯兰中国化”](https://www.rfa.org/mandarin/yataibaodao/shehui/mlq-10262021083332.html)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编: 飞虹
-
-编辑：文徬
-
-校对/发稿：Fei797
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
 
 
 
+10月25日至26日，泽连科医生在盖特上，针对福奇要开展的5至11岁人群，新冠疫苗接种的事，呼吁人们救救孩子，并揭露福奇进行虐杀幼犬实验的罪行。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture11a.jpg)
+他说：“福奇领导的美国国立卫生研究院，下属过敏和传染病研究所，花费近50万美元用于残忍的幼犬医学实验。在未经麻醉的情况下，这些幼犬被折磨致死。对动物的残忍行为与反社会和精神分裂的人格相关。也许这就解释了为什么全球很多政府领导人，批准了对无辜儿童注射致死毒针。善待动物组织PETA的全称是，「支持人道对待动物的人们」，而不是「支持食用可口动物肉的人们」。”
+
+泽连科医生同时支持罗伯特-马龙博士的描述：“在我看来，没有任何科学和医学证据表明，需要给孩子注射新冠疫苗，福奇必须被制止。”
+
+参考链接：
+1. [泽连科医生呼吁人们救救孩子 并揭露福奇虐杀幼犬](https://gettr.com/post/pf5ydzf8c6，https://gettr.com/post/pf57wce10d，)
+2. [泽连科医生呼吁人们救救孩子 并揭露福奇虐杀幼犬](https://gettr.com/post/pfare8e004)
+
+（本文仅代表作者观点）
+
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：童谣
+编辑：童谣
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

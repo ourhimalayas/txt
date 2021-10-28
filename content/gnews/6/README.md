@@ -2,42 +2,29 @@
 ---
 
 
-## 印度边境警察部队增兵抗衡中共国
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1622817/)
+## 秘翻在线：百分之四十六美国选民希望福奇辞职
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1622868/)
 
-作者：澳喜农场 – 在远方
+#### 撰稿：彩虹  
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+#### 责编：胡天     
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-486.png)图片来源：每日邮报
+10月27日，《新闻极限》发表文章，民意调查结果显示，百分之四十六的美国选民希望福奇（Fauci）辞职。
 
-印度内政部国务部长尼蒂亚南德∙拉伊24日表示，有几个营装备一新的印藏边境警察部队已经获得政府授权，并即将部署于中印边境。该部队于1962年中印边境战争结束后建立，接受过严格的山地战训练，是长期驻守在中印边境的王牌部队。
+拉斯穆森报导（Rasmussen Reports）是一家成立于2003年的美国民意调查公司，它的调查常被各种新闻媒体引用，拉斯穆森在很多新闻广播节目包括FOXNews、BBC、CNN、NPR、CNBC和地方电视台分支机构中都被邀请作为客座分析员。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/8-17.png)
+2021年10月25日至26日，拉斯穆森对来自全国各地的1000名可能的选民进行了最新的全国电话和在线调查，误差率为+/-3个百分点。调查发现，只有33%的可能的美国选民认为福奇对美国政府资助的病毒功能性增强研究说了实话。该调查分析认为：“这比6月份有所下降，当时有40%的人认为福奇说了实话”。其它调查项结果如下：
 
-印度媒体报道，为了因应中印边境中共军方的军事压力，印度政府计划为印藏边境警察部队增加由8000人组成的7个营，以驻守阿鲁纳恰尔邦印方东翼实控线内新建的据点。印度政府也承诺，向这支新组建的精锐部队提供完善的后勤支援和现代装备。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-1. [https://www.voachinese.com/a/lac-new-battalions-likely-for-itbp/6284887.html](https://www.voachinese.com/a/lac-new-battalions-likely-for-itbp/6284887.html)
+- 49%的人说福奇没有对美国资助某些被称为“病毒功能性增强”的研究说实话；
+- 46%的人说应该辞去他在国家过敏和传染病研究所（NIAID）的职务。
+- 40%的人说福奇不应该辞去他的职务。
+- 67%的共和党人希望福奇辞职。
+- 24%的民主党人也希望福奇辞职。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-3.jpeg)
+**新闻来源**
 
-***编辑：Jack Li文阳***
-***校对/发稿***：***海阔天空1***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[Rasmussen: 46 Percent Want Fauci to Resign](https://www.newsmax.com/politics/anthony-fauci-covid-covid/2021/10/27/id/1042249/)
 
  
 
