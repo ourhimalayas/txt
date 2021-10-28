@@ -2,10 +2,10 @@
 ---
 
 
-## 喜币即将上市！
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1623399/)
+## 10/27/2021 文贵直播：DWAC股票大涨大跌的背后操纵者就是吴征代表的共产党，蒙受损失的都是川普总统的支持者
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1623457/)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+秘密翻译组-北美组
 
  
 

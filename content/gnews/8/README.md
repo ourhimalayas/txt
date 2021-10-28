@@ -2,34 +2,33 @@
 ---
 
 
-## 阿拉巴马州州长抵制强制疫苗接种政策
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1623803/)
+## 俄总统发言人称没有计划封锁地区边界
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1623997/)
 
-作者：美东香草山 – 新世界的一员
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月26日，媒体消息表示，阿拉巴马州州长凯·艾维于本周一签署了第724号行政命令。该行政命令宣布，阿拉巴马州政府机构不得执行联邦政府关于新冠病毒疫苗的强制接种令，且法令于签署当天立即在全州生效。
+俄罗斯莫斯科喀秋莎农场 星河
 
-![This image has an empty alt attribute; its file name is Slide10-5.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-5.jpeg)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/E-5.jpg)thegoaspotlight.com
+美东时间10月28日报道，俄罗斯总统发言人德米特里∙佩斯科夫表示，俄罗斯没有计划因中共病毒而关闭地区边界。
 
-对于疫苗强制令，艾维谴责称，这是联邦政府的越权行为。艾维还补充表示，全球各地越来越多的人已经意识到，疫苗是一场灾难。再者，每一个人都应该享有自由医疗的权利，世界各国的民众都一样，他们不应被政府强迫接种新冠疫苗。
+克里姆林宫发言人解释说，“由于许多俄罗斯人决定在10月30日至11月7日的非工作期间旅行，因此流行病学家表示担心，非工作日结束之后可能会产生不好的后果。但是，另一方面，旅行没有被禁止，没有出台这方面的禁令，也没有计划出台任何禁令。”
 
-艾维还特别声明说，作为州长，她不会强迫任何人接种新冠疫苗，同时，她也会跟阿拉巴马州人民一起，反对这项令人愤慨的强制令。
+在回答当局是否考虑关闭地区边界的问题时，佩斯科夫说，这“绝对是最后的措施”，“不受欢迎”。
 
-参考链接：[阿拉巴马州州长签署行政令抵制强制接种疫苗](https://gettr.com/post/pfafea451c)
+佩斯科夫在7月份已经说过，克里姆林宫不支持关闭地区间的边界。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+周一，塞瓦斯托波尔实施了进出境限制。当局并没有完全关闭边境，而是在非工作日推出了QR码旅行计划。州长Mikhail Razvozzhayev下令设立路障，他们将在那里检查QR码。据该地区负责人介绍，这将有助于限制游客的流动。
 
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：谐趣园
+各个地区在以前的疫情爆发期间也限制了进出所在地区的旅行，甚至完全关闭其边界。车臣在2020年春季推出了这样的措施。这是由车臣共和国总统拉姆赞∙艾哈迈多维奇∙卡德罗夫宣布的，他明确指出，可能会有例外，例如将重病患者运送到另一个地区时就不受此限制。去年4月，车里雅宾斯克州的交通警察部队在该地区的入口处拒绝了来自其他地区的车辆，“因为疫情很糟糕”。过境交通以及运送食品和基本必需品的卡车被列为例外。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+随后，别尔哥罗德地区有限制地接纳了其他地区的居民——来自莫斯科和莫斯科地区的游客必须经过两周的隔离期，或证明中共病毒检测显示阴性。交通警察被派驻在莫斯科的入口处，他们询问每一个进入该城市的人为什么来首都。
+
+（文章仅代表作者个人观点）
+
+参考链接：
+
+[https://www.rbc.ru/society/27/10/2021/61791d909a79477fd05b08bd?from=from\_main\_11](https://www.rbc.ru/society/27/10/2021/61791d909a79477fd05b08bd?from=from_main_11)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

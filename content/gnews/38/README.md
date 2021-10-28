@@ -2,41 +2,45 @@
 ---
 
 
-## 民调和民众自发抗议强制疫苗接种显示加拿大民众正在醒来
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1623345/)
+## 10/28/2021 国际财经快讯：日银下调经济增长预期，维持大规模货币宽松；由于能源成本飙升，德国将2021年GDP预测下调25%
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1623386/)
 
-**作者：**卢卡斯
-![](https://assets.gnews.org/wp-content/uploads/2021/10/CP132735471-1-e1631966379257.jpg)图片来源：网络
-最新的民意调查显示，加拿大人对选举机构的信任度达到78%，对警察达到74%，而对主流媒体、省和联邦政府分别是54%，56%和55%，显示加国民众非常信任选举机构和警察，但是对主流媒体，省和联邦政府信任度并不很高；而今年4月初另一项民意调查显示，相信阴谋论的加拿大人的人数令人惊讶地上升：40%的加拿大人认为，有少数人在操纵世界上发生的大事件，譬如中共病毒是实验室人工制造的生化武器，且跟5G技术有关联 [1][2]。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211028-2.jpg)[图片来源](https://cn.nikkei.com/industry/icar/46490-2021-10-28-05-03-00.html)
+**1.日银下调经济增长预期，维持大规模货币宽松**
 
-今年2月份，一位加拿大女士在Facebook发帖说，中共病毒是一个骗局，封城，强制戴口罩和疫苗是为最终建立极权主义者的新世界秩序的中间步骤，根本无关于民众的健康，而是全球控制 [3]。加拿大主流媒体把上述阴谋论和极权主义的新世界秩序统统斥为误导民众的虚假信息。Leger民调公司今年五月份的调查显示，60%以上的加国民众表示，中共病毒大流行已经永久性侵蚀他们对省和联邦政府的信任 [4]。10月26日，成千阿尔伯塔民众在省立法院集会声援一线医护工作者拒绝服从该省的强制疫苗接种令，该省共有1400名医护人员以宗教和医疗理由要求豁免接种 [5]；27日，该省的消防员反击该省的疫苗通行证政策，他们基于医疗、宗教和伦理原因拒绝接种疫苗，这直接把该省政府置于火上烤 [6]。这些情况表明加国民众正在醒来，并且开始有所行动，然而尚未形成大规模有组织的行动。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/屏幕截图-2021-10-28-075013-edited.png)
-加拿大总理小土豆一直是疫苗接种运动积极推进者，从他再次当选加拿大总理以后，继续抓紧推行强制疫苗接种和疫苗。截至10月28日，加拿大12以上人群至少接种一剂疫苗的接种率已经达到87.66% [7]。加拿大政府医疗当局正在审批辉瑞公司提交的给5到11岁儿童接种疫苗的试验数据，不出意外会很快获得批准。医疗当局和主流媒体正在为不久后给以上年龄段的儿童接种疫苗造势，声称现在中共病毒感染率近一半发生在这个年龄段的儿童中。然而流行病专家医生Paul Elias Alexander接受RebelNews采访声称，给5~11岁儿童接种疫苗是草率的、没有必要的，儿童没有准备好接种疫苗，他们拥有强大的最好最持久的先天免疫力；另外儿童并不是医疗官员所认为的那样是超级传播者，接种疫苗带来的风险远大于那些备受质疑的好处 [8]。然而真实的声音依然被严重压制，邪恶黑暗势力一直在坚持推行他们早就谋划好的控制奴役全球人们的议事日程。
+[10月28日，日本银行（央行）在金融政策决策会议上决定，维持应对中共病毒的大规模货币宽松政策。考虑到供应制约导致出口和生产减速，个人消费低迷，日本银行将2021年度的经济增长预期下调至同比增长3.4％，比上次的预测低0.4个百分点。如果供应制约的影响加剧，“将面临经济进一步下行的风险”，表现出了警惕感。本次会议以多数赞成票决定维持长短期利率操作（收益率曲线控制，Yield Curve Control），将短期利率引导至-0.1％，作为长期利率指标的10年期国债利率引导至0％左右。全体与会者还一致决定，维持交易所交易基金（ETF）等资产购入政策，上限为全年12万亿日元，将根据需要购买。](https://cn.nikkei.com/politicsaeconomy/efinance/46504-2021-10-28-15-05-20.html)
 
-我们现在都知道，疫苗是比中共病毒更致命的生化武器，不但不能保护人体免于中共病毒的侵蚀，反而是灭绝全人类的致命毒药。黑暗势力已经完全控制加国政府、医疗权威机构和主流媒体。加国民众大多数仍然蒙在鼓里，同时那些真相的声音基本上被压制。接种疫苗与拒绝接种疫苗的民众被被政府和主流媒体误导，站在互相对立的立场，这种操纵民众手法很像CCP。加国少部分民众正在清醒过来，真正的全民大清醒可能要等到疫苗灾难发生之后（文贵先生大直播警告人类，今年12月到明年5月将发生疫苗灾难），加国民众的最终清醒也许要付出不少人生命的代价，到那时中共对加国主流媒体的操纵有可能会引发排华浪潮。因此继续传播中共病毒极其疫苗的真相，加快加国民众的清醒，同时把中国人与中共分开是我们战友们肩上的重任。
+**2.由于能源成本飙升，德国将2021年GDP预测下调25%**
 
-[1] [Canadians falling prey to conspiracy theories despite strong trust in institutions: poll – National | Globalnews.ca](https://globalnews.ca/news/8329274/canadians-conspiracy-theories-trust-institutions-poll/)
+[周三上午，德国政府将今年的经济增长预测从3.5%下调至2.6%。因为能源成本的沉重打击和半导体供应链瓶颈给这个欧洲最大经济体的复苏带来了压力。经济部长彼得·阿尔特迈尔说，尽管中共病毒大流行，经济依然强劲，但制造业的供应链困境和能源价格的飙升使经济复苏复杂化。为了使GDP的削减更加可口，德国将2022年的增长预测从3.6%上调至4.1%，生产中的普遍瓶颈，加上异常高的需求，正导致价格上涨，政府预计今年通胀率将飙升至3%。柏林认为，2022年消费者价格指数（CPI）将回落至2.2%，2023年将回落至1.7%。去年，全国居民消费价格指数（CPI）为0.5%。](https://www.zerohedge.com/markets/germany-cuts-2021-gdp-forecast-25-due-soaring-energy-costs)
 
-[2] [40% of Canadians believe in conspiracy theories — do you?](https://www.rebelnews.com/40_percent_of_canadians_believe_in_conspiracy_theories_do_you)
+**3.英国9月汽车产量跌至40年来最低水平**
 
-[3] [No Hoax: Fighting COVID-19 has meant tackling conspiracy theories, even within families – National | Globalnews.ca](https://globalnews.ca/news/7655629/covid-19-misinformation-harming-the-fight-pandemic/)
+[英国汽车制造数量已连续第三个月下降，9月份降至1982年以来的最低水平。根据汽车制造商和贸易商协会（SMMT）的最新报告，上个月英国共生产了67,169辆汽车，同比下降了41.5%。由于半导体的短缺，当时工厂中断和大流行导致的需求低迷导致产量降至近40年来的最低水平。SMMT表示，由于半导体的缺乏，大约十分之一的汽车企业已经裁员或重组了业务。SMMT首席执行官迈克哈维斯（MikeHawes）表示：”9月份英国汽车产量的大幅下降延续了过去3个月中我们所看到的令人担忧的趋势。””该行业正继续与大流行的影响作斗争，半导体短缺导致生产停滞不前。](https://news.sky.com/story/car-production-for-september-falls-to-lowest-in-40-years-12446556)
 
-[4] [COVID pandemic corroded Canadians’ trust in politicians — even their neighbours, poll finds | National Post](https://nationalpost.com/news/politics/covid-pandemic-eroded-canadians-trust-in-politicians-science-and-even-their-neighbours-poll-finds)
+**4.Kymeta的成功测试彰显通过宽带卫星为智能手机提供专用LTE或5GNR的潜力**
 
-[5] [Silent protest held in solidarity with frontline workers against Alberta vaccine mandate](https://www.rebelnews.com/silent_protest_held_in_solidarity_with_frontline_workers_against_alberta_vaccine_mandate)
+[致力于使移动连接遍及全球的通信公司Kymeta (www.kymetacorp.com)今天宣布，成功完成了公民宽带无线电服务(CBRS)频段专用长期演进(LTE)小基站测试，展示了一个可以直接为用户的智能手机和CBRS设备提供更可靠、更强大网络连接的完整连接解决方案。此项试验是在Kymeta总部进行的，使用了一个Kymeta™ u8终端、一个在ARM单板机(SBC)上运行的现有核心，以及一个Accelleran小基站。该系统可提供一种全包式解决方案，通过将专用LTE网络与Kymeta终端相结合，实现宽带回程，从而提升用户体验。CBRS支持搭建针对紧急响应团队等用户的专用内联网，可以在CBRS覆盖区域内提供视频、一键通、语音和消息应用等功能，同时保留用于互联网通信的回程容量。除了回程，该系统还在边缘提供一个核心，允许用户设备在本地桥接，而无需将流量传输回网络核心。](http://www.businesswirechina.com/zh/news/48500.html)
 
-[6] [Albertan firefighters challenge the vaccine passports and put the government in the hot seat](https://www.rebelnews.com/albertan_firefighters_challenge_vaccine_passports_put_government_in_hot_seat)
+**5.欧洲天然气价格是美国5倍，亚洲更贵**
 
-[7] [COVID-19 vaccination in Canada](https://health-infobase.canada.ca/covid-19/vaccination-coverage/)
+[美国、欧洲和亚洲的天然气价格正在产生罕见的分化。美国的天然气价格仅为欧洲的5分之1。欧洲和亚洲的天然气供求紧张，但美国的天然气液化能力已接近极限，出口受限。天然气价格的差异或将导致通货膨胀压力和经济复苏速度分化。在欧洲，由于来自俄罗斯的供应停滞等原因，天然气库存短缺，指标价格在1年里涨至6倍。亚洲的液化天然气（LNG）现货价格也涨至5倍。在今年夏季以后，与欧洲和亚洲的价格相比，美国天然气的低廉变得突出。目前按原油换算，欧洲的天然气约为170美元/桶，亚洲的液化天然气约为200美元，与美国的天然气期货（34～36美元）存在5～6倍的差距。](https://cn.nikkei.com/politicsaeconomy/commodity/46496-2021-10-28-10-11-33.html)
 
-[8] [Sacrificing children’s health at the altar of profits | Dr. Paul Alexander](https://www.rebelnews.com/sacrificing_childrens_health_at_the_altar_of_profits_dr_paul_alexander)
+**6.日本液化天然气储备只够用2周**
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+[在日本，作为发电燃料的液化天然气（LNG）的进口量正在减少。到取暖需求导致耗电量增加的冬季，液化天然气供应短缺令人担忧，但目前的需求并未增加，9月的单月需求达到过去5年来最低水平。如果出现寒冬，日本的液化天然气库存可能迅速见底。日本国内只能储备2周的需求量，这一低下的储存能力已成为日本能源安全保障的盲点。液化天然气火力发电是日本供电的支柱。各电力企业的液化天然气库存量截至10月15日约为230万吨，比上年同期多4成。日本经济产业省在10月21日的有关液化天然气供求的官民会议上表示，“这是过去5年里的最高水平”。解释称为了确保适当的燃料库存，正在采取对策。](https://cn.nikkei.com/industry/ienvironment/46460-2021-10-25-15-05-54.html)
 
-编辑/发布：LILY
+**7.英国汽油价格创下历史新高**
 
-20211028
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+[据天空新闻网报道，英国汽油价格已升至历史新高，周日，英国加油站的汽油平均价格为每升142.94便士，比2012年创下的纪录多了0.46便士。柴油价格达到146.5便士，略低于147.93便士的历史高点。近几个月来，一些分析师和投资银行表示，由于冬季寒冷，布伦特原油价格可能达到100美元，油价不太可能很快下跌。创纪录的天然气价格迫使一些公用事业公司转而使用石油衍生品，从而推高了对原油的需求。俄罗斯总统弗拉基米尔·普京最近表示，鉴于全球对能源商品的需求不断增长，布伦特原油价格”很有可能”达到每桶100美元。](https://www.zerohedge.com/commodities/truly-dark-day-drivers-uk-petrol-prices-hit-record-highs-winter-discontent-nears)
+
+**8.美国取代中国成为比特币挖矿中心**
+
+[美国正迅速崛起为新的全球比特币挖矿中心。中共国政府实行打击行动后，许多挖矿公司正押注于美国的可靠能源供应以及更可预测的监管环境。据剑桥大学(University of Cambridge)的数据，目前全球超过三分之一的比特币挖矿计算能力来自在美国的机器，而去年春天这一比例还不到五分之一。比特币挖矿已经成为一项利润丰厚的事业，目前一枚比特币的价格约为6万美元。为了获取新的比特币，功能强大的计算机竞相解决一系列数学难题，希望能解锁新的比特币。其中许多计算机都是一天24小时在线。](https://cn.wsj.com/articles/%E7%BE%8E%E5%9B%BD%E5%8F%96%E4%BB%A3%E4%B8%AD%E5%9B%BD%E6%88%90%E4%B8%BA%E6%AF%94%E7%89%B9%E5%B8%81%E6%8C%96%E7%9F%BF%E4%B8%AD%E5%BF%83-11635401113)
+
+By 【秘密翻译组-金融组】
+作者：和理非
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,34 @@
 ---
 
 
-## 日本要闻汇编 10月28日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1623635/)
+## 美大型零售商下架中共国涉及侵犯人权的监控产品
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1623706/)
 
-素材：东京樱花团｜GNEWS组
-![](https://lh4.googleusercontent.com/Ho0GvIBiiss0HzRZC6aqfcpAhHuBAe_BD-ClT7i51Et6DS0N04ZtykdLMuOHAdusrz9Dl1d52j6yd33bV5DzJYmbK-DSDN6iNX_febPdocTU4qsBpqLov6JIiR_-WOA7iWzpqmya)[*图片来源*](https://preview.redd.it/pgt27fdb8ap21.jpg?auto=webp&amp;s=89b2453ea1971b83310ce02cf286849168c83333)
-1、[**日本的无核武世界决议案再次获联大通过**](https://www3.nhk.or.jp/nhkworld/zh/news/329831/)
+作者：澳喜农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据10月27日消息称，美国三家大型零售商下架了中共国科技监控制造商海康威视和大华旗下的产品。
 
-作为世界上唯一一个在战争中遭受过核武器打击的国家，日本每年都会向联合国大会提交旨在实现无核武世界的决议案。内容包括：呼吁各国增加核政策的透明度，采取增进互信的措施，签署和批准《全面禁止核试验条约》，加强裁军教育，促进民众与核辐射受害者之间的交流。10月27日，负责裁军事务的联合国大会第一委员会对日方今年提交的决议案进行了表决，最终以152票赞成、4票反对、30票弃权通过了决议案。这是日方的该决议案自1994年起连续28年获得通过。今年，投赞成票的国家包括核武持有国美国、英国以及去年投弃权票的法国，与去年相比增加了13个。投反对票的4个国家是中国、俄罗斯、北朝鲜和叙利亚。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-17.jpeg)
 
-2、[**日本央行下调本年度GDP增长率预期**](https://china.kyodonews.net/news/2021/10/e04621af512e-gdp.html)
+据了解，这两家中共国厂商向中共政府提供了监控技术，参与中共侵犯新疆维吾尔族和其他少数民族人权的暴行。因此，大华和海康威视均在2019年被列入美国商务部的实体清单。
 
-日本央行28日在货币政策会议后公布《经济与物价形势展望报告》，预测称2021年度的实际国内生产总值（GDP）将较上年度增长3.4%。作为新冠对策的紧急事态宣言长期持续，再加上半导体等供应受限问题严重，央行对7月时预测的3.8%做了下调。央行维持了把长短期利率控制在低位的大规模货币宽松。虽然紧急事态宣言等已全面解除，但经济正式复苏之路尚未显现，日本央行与摸索货币政策正常化的欧美央行在政策运营上差异明显。
+此前，美国国务院于3月发布了2020年度《国别人权报告》，当中言明新疆维吾尔人及其他少数民族遭受种族灭绝的现状，并且将罪行直指中共政府。
 
-3、[**日本未决定是否派要人出席北京冬奥会**](https://china.kyodonews.net/news/2021/10/2ebae6dbbf07.html)
+参考链接：[“参与新疆人权侵犯” 美国大型零售商下架中国监控产品](https://www.voachinese.com/a/us-retailers-pull-out-chinese-surveillance-products-20211026/6286703.html)
 
-日本官房副长官矶崎仁彦在28日的记者会上，对于国际社会上围绕北京冬奥会，有意见谈及以中国人权问题为由实施禁止派遣外交使团的“外交抵制”，表示“现阶段，未就我国要人出席做出任何决定”。对于中国的人权问题，矶崎指出：“岸田内阁重视坚守人权等普世价值”。他表示：“期待北京冬奥会遵循奥运会和残奥会的理念，作为和平的盛典举办。”
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-4、[**辉瑞拟在日申请批准给5至11岁儿童接种新冠疫苗**](https://china.kyodonews.net/news/2021/10/8598f22bd859-511.html)
+总编：飞虹
+编辑：文徬
+校正/发稿：谐趣园
 
-共同社27日获悉，为了能给5至11岁的儿童接种新冠疫苗，美国制药巨头辉瑞公司为在日本申请批准，正在与政府推进磋商。若提交申请，厚生劳动省将迅速审查是否批准。在辉瑞率先提交申请的美国，食品药品管理局（FDA）外部专家委员会26日汇总意见称支持批准接种。这也可能对日本的审查产生影响。
-
-5、[**日本政府11月拟解除举办活动的1万人上限**](https://china.kyodonews.net/news/2021/10/41629bf658e8-111.html)
-
-据共同社28日消息，作为新冠疫情对策日本政府规定举办大型活动时人数上限为1万人。据悉，从11月1日起将在全国解除，继续维持“原则上控制在场馆容纳人数50%以内”的措施。由于疫情已比较平稳，今后将探讨进一步的放宽限制举措。
-
-（本文只代表个人观点，与Gnews网站无关）
-
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
