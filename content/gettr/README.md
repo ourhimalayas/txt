@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/28/2021 2:15 PM (UTC)`
+
+10月28号：尊敬的战友们好……当被欺骗统治了几十年的灵魂和生活。去面对真相的时候．是无法适应的，这是悲剧，这也是我们中国人过去七十年的悲哀，新世界的到来．将改变全地球的所有的这一切！
+![img](https://media.gettr.com/group11/getter/2021/10/28/14/15/9a72dd2d-37e1-110a-6322-3c3ecbe8b4db/out.jpg)
+
+---
+
 `@miles 10/28/2021 1:12 PM (UTC)`
 
 10月28号：尊敬的战友们好．拜托大家涡轮腹拉器的时候，每一组千万不要做超过12个，否则会伤到身体。科学健身，快乐健身．才是新中国联邦人在追求。
@@ -292,13 +299,6 @@ Digital World Acquisition Group and Yunhong International<br/><br/>https://gnews
 `@miles 10/24/2021 2:14 PM (UTC)`
 
 Eleven Qualified Institutional Buyers or Institutional Accredited Investors of DWAC<br/><br/>https://gnews.org/1614670/<br/><br/>DWAC的11个合格机构买家或机构认可投资者<br/><br/>https://gnews.org/zh-hans/1614568/
-
----
-
-`@miles 10/24/2021 12:30 PM (UTC)`
-
-2021年10月24日 文贵大直播：详解SPAC上市公司结构； 最新疫苗伤亡与反疫苗； 许家印海外借贷利息怎么还
-![img](https://media.gettr.com/group11/origin/2021/10/24/12/0f8ed26c-2613-c37b-1e53-10e2c981f8a4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
