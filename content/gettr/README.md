@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/28/2021 5:19 AM (UTC)`
+
+10/27/2021 Miles Guo: Two years ago, Bruno Wu was criminally investigated, however, the merger deal between DWAC and Trump's media platform failed to disclose that, so Bruno Wu will go to jail, and the merger deal will surely be subject to a criminal investigation<br/><br/>10/27/2021 文贵直播：吴征在两年前被刑事调查，但DWAC和川普媒体平台的并购交易却并未披露相关信息，吴征将因此而进监狱，且该并购交易也必将被刑事调查<br/>
+![img](https://media.gettr.com/group4/getter/2021/10/28/05/19/59b5a8d1-60cf-0b90-e05a-244227103d35/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@drzevzelenko 10/22/2021 3:02 PM (UTC)`
@@ -292,13 +299,6 @@ Eleven Qualified Institutional Buyers or Institutional Accredited Investors of D
 
 10月23号：尊敬的战友们好．太多战友发来各种信息，文贵确实无法一一回复，有些问题等明天24号上午9:00的与战友们的大直播中，回答亲爱的兄弟姐妹们……一切都已经开始！
 ![img](https://media.gettr.com/group39/getter/2021/10/23/21/20/8123a4eb-f67a-56e2-325a-fa08bee25ae3/out.jpg)
-
----
-
-`@miles 10/23/2021 4:01 PM (UTC)`
-
-10/22/2021 Miles Guo: It would be impossible for Bruno Wu to do all these evil things without Yang Lan’s sex seductions who is one of the CCP’s top class agents. We, the people of the New Federal State of China, must give up illusions and rely on our own strength.<br/><br/>10/22/2021 文贵直播：吴征干的坏事都离不开杨澜找钥匙，杨澜是中共最高级的“燕子”之一。我们新中国联邦人不要有幻想，一定要靠自己的实力！<br/><br/>
-![img](https://media.gettr.com/group24/getter/2021/10/23/16/01/f4677b8c-f83f-0c86-6b80-3084b87473b6/out.jpg)
 
 ---
 
