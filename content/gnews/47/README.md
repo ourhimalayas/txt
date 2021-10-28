@@ -2,53 +2,43 @@
 ---
 
 
-## COVID-19最新情报｜美CDC数据：818044起不良反应，辉瑞伤害最大
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1620925/)
+## 欧洲议会召开新闻发布会，议员发言反对疫苗护照
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1621871/)
 
-**台灣寶島農場 疫情關注組｜發佈日期/ 27/10/2021**
+**听写/翻译：奮鬥
+校对/编辑：枳实
+字幕/剪辑：蛮吉**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+欧洲大陆疫苗护照的疯狂终于蔓延到了欧洲议会的门口，欧洲议会计划在议会实施疫苗护照政策，没有接种疫苗的议员将被议会拒之门外。数名欧洲议会议员召开新闻发布会，反对疫苗护照政策。本视频撷取了几位议员的发言精华。
 
+事实上，我根本不惧怕新冠病毒，我所担心的是政府会利用这场危机来遏制公民自由。它们将视情况授予或不授予某些特权。
 
-美国疾病控制与预防中心 (CDC) 上周五发布疫苗不良事件通报系统(VAERS)[统计数据](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=CAT&amp;EVENTS=ON&amp;VAX=COVID19)，自2020 年 12 月 14 日至 2021 年 10 月 15 日，新冠疫苗不良反应通报共“[818044](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=CAT&amp;EVENTS=ON&amp;VAX=COVID19)”起，其中“[17,128 人死亡](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes)、 [122,833 人重傷](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;SERIOUS=ON)”。这份数据，包含了最新发生的[12岁儿童接种辉瑞疫苗后死亡的案例](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1784945)。
+我们在欧洲所代表的是自由、民主和法治。这些权利没有理由被政府限制，这才是真正的问题，这是一个我们需要处理的问题，向欧洲人民明确表示，他们不应该再容忍这种情况。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/vaers-vaccine-injury-october-22-1536x1132-1.jpg)數據直接來自 [VAERS](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=CAT&amp;EVENTS=ON&amp;VAX=COVID19) ，VAERS 是美國政府出資，用於記錄疫苗不良反應的系統
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/covid-vaccine-doses-by-manufacturer-1.png)至10/15，美國共接種4.061億劑疫苗
+看到我们的自由、权利和法治在今天的欧洲已经岌岌可危了，真的很难过。不幸的是，在一些国家，没有疫苗证明（数字绿色证书，DGC)，你不能保住你的工作，没有DGC你不能进入公共建筑，你不能进入商店。
 
+另一方面，我们现在在现实生活有越来越多的例子，更有越来越多的科学研究和证据也表明，接种了疫苗因此有了疫苗护照（DGC）的人确实可以感染其他人。DGC成了传播病毒的许可证，很遗憾，DGC实际上给人一种虚假的安全感，这一切是完全不合逻辑的。DGC是不科学的，它必须被废止。
 
-美国境内的通报，共[612125起不良反應](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;STATE=NOTFR)，包含[7848人死亡](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR)、[50025人重傷](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;SERIOUS=ON&amp;STATE=NOTFR)。
+但是，意大利政府和欧洲其他国家的政府已经推出了强制性的新冠疫苗证书，所有社会活动都需要它，例如进入公共场所, 欧盟内旅行或者意大利国内旅行，还有就业、大学教育等等。对接种疫苗的人和未接种疫苗的人有巨大的区别对待。这是因为我们假定未接种疫苗的人都是感染者，而接种疫苗的人都不是感染者，但这在科学上毫无根据。
 
-#### 美国疫苗不良反应，28%在两天内发生
+因此，我们正在强迫公民接受侵入性和风险性的医学治疗，因为公民在接受疫苗时必须签署的知情同意书不是自愿的，而是迫于压力之下的同意。即使人们有接种疫苗的医学禁忌症，他们不得不接种疫苗，他们被迫接种疫苗，因为如果他们不这样做，他们将失去工作，将失去他们的基本权利。
 
-外媒指出，该不良反应通报数据，约11%（840件）的不良反应是在接种后“[24小時內](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR&amp;V2DCHECKED=ON&amp;V2DHIGH=1)”发生，约15%（1212件）在接种后。发生在接种后“[48小時](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR&amp;V2DCHECKED=ON&amp;V2DHIGH=2)”的疫苗不良反应，占全部数据的28%。
+而当这些人出现不良反应，甚至是非常严重的不良反应时，他们也得不到任何免费的帮助。即使是不良反应也很少被报告。因此我们可以在论文中看到的不良反应数据被低估了。
 
-#### 12-17岁年龄段数据分析
+所以这个医疗问题 现在已经变成了一个民主问题。我认为，我们所有人今天必须为捍卫欧洲的人权而努力。我们必须一起做，而且我们必须现在就这样做。我们不能再等了，因为很多人正在遭受痛苦，正在失去他们的工作。很多家庭正失去他们的生活来源。这不仅涉及本国公民，如意大利人或法国人，也涉及在欧盟其他国家工作和生活的外国公民，因为工人的居留权和流通权是欧洲统一和欧盟的基础权利之一。所以我呼吁停止暴力镇压示威者，倾听人们的要求，让我们把民众的人权还给他们，让他们过上完整的生活，拥有所有的人权，不要再区分接种疫苗和未接种疫苗的人。
 
-根据疫苗不良事件通报系统(VAERS)，12-17岁年龄层在美国共有21921起通报，其中有25人死亡、57份重伤。疫苗导致的不良反应，包含心包炎、心肌炎、血栓等，且96%的伤害来自于接种辉瑞疫苗。
+让我们把每个人都当作人，就像我们的人权宪章所要求的那样。谢谢你
 
-美FDA，于6月公开表明，辉瑞、莫德纳疫苗可能导致心肌炎。然而在知道心肌炎可能的情形下，却在前几周（即5月）批准12-17岁儿童接种辉瑞疫苗。
+[完整视频](https://www.youtube.com/watch?v=KAJy9ySToPU)链接
 
-#### 美国所有年龄段数据分析
+发布：Janek
 
-1. 死因：19%是心脏疾病（心肌炎、心包炎、血栓）
-2. 性别：54%男性；42%女性；4%未通报性别
-3. 平均死亡年龄：72.7岁
-
-
-- 危及生命的过敏反应：2010件。
-- 血栓：10290件。（约44%来自于辉瑞；36%莫德纳；20%娇生“又称强生”疫苗）
-- 心肌炎、心包炎：2878件。（63%来自辉瑞；33%莫德纳；4%娇生“又称强生”疫苗）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20-3.jpg)
-- 相關：[COVID-19最新情報｜美律師控訴 政府掩蓋4.5萬例疫苗死亡案例兼 強制民眾接種](https://gnews.org/zh-hant/1607140/)
-- 相關：[COVID-19最新情報｜政府不願讓人民知道的是 醫院正充斥著新冠疫苗接種者](https://gnews.org/zh-hant/1607201/)
-
-
-* * *
-
-新聞來源｜[NEW ZEALAND TIMES](https://newzealandtimes.live/health/17000-deaths-reported-after-cov-vaxxines-including-new-report-of-12-year-old-who-died-after-pfizer-vaccine/)
-轉譯｜zhong
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

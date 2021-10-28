@@ -2,36 +2,24 @@
 ---
 
 
-## 因疫苗接种强制令，雷神公司警告称将失去数千名员工
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1622166/)
+## 随着散户交易狂热的消退，与特朗普相关的 SPAC 股价下跌
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1622234/)
 
-【**简评：】据美联社报道，美国航空公司和西南航空公司现在都放弃了解雇拒绝接种新冠病毒COVID-19疫苗的员工的计划。过去几周，西南航空公司处境艰难。他们经历了数天的航班延误和取消，但否认这与疫苗强制接种有关。或许，雷神、波音、空客、宝洁和通用，这些公司，只有当他们也体会到西南航空公司的痛时才能醒悟。而这些公司的员工也应勇敢站出来为自己的权力而战，不应做逆来顺受、待宰的羔羊。**
+**【简评：】并购川普总统TMTG的DWAC来自于吴征，川普总统SPAC上市的背后涉及了吴征、Samuel Nunberg、Richard Frankel等人，他们恰恰正是以前要遣返文贵先生，并用博讯的案子、马蕊强奸案和太平联盟案子陷害文贵先生的人。中共诱骗川普总统掉入操纵股价和欺诈的陷阱，从而终结其政治生涯，甚至害其全家锒铛入狱；我们要揭发中共恶行，唤醒美国各界，要帮助川普总统。而且我们也将一直支持川普总统。**
 
-**据《路透社》记者：Kannaki Deka，2021年10月26日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/axe9f-7yb1h.jpg)2019年6月21日，在法国巴黎附近的布尔热机场举行的第53届巴黎国际航展上，一名安保人员在雷神公司展台前站岗。图片来源：路透社/Pascal Rossignol
-《路透社》—— 美国航空航天和国防公司雷神科技（Raytheon Technolo-gies）首席执行官周二警告称，该公司将失去“数千名”拒绝接种COVID-19疫苗的员工，该公司正准备在拜登政府规定的12月8日最后期限前完成疫苗接种。
+**据《彭博社》记者：Bailey Lipschultz，2021年10月26日报道：**
 
-“我们将失去数千人。”雷神公司首席执行官格雷格·海斯(Greg Hayes)周二在接受CNBC采访时表示。他还表示，公司正在招聘员工。该公司在美国共有12.5万名员工。
+与美国前总统唐纳德·特朗普(Donald Trump)有关联的SPAC —— 数字世界收购公司(Digital World Acquisition Corp.，简称DWAC)的股价近来一片欢腾，但现在却出现了逐渐消退的迹象。
 
-为了扩大美国的疫苗接种范围，上个月，拜登政府下令对几乎所有联邦雇员和承包商进行疫苗接种。随后，战斧导弹制造商雷神公司表示，该公司将要求其所有的美国雇员全面接种疫苗。
+由于散户投资者将注意力转向其他股票市场，这家特殊目的收购公司的股价继上周飙升1225%之后，周二连续第二天下跌。数字世界，这家即将与特朗普的新社交媒体平台 —— 特朗普媒体技术集团(Trump Media & Technology Group) —— 合并的公司，股价下跌30%至59.07美元。周一该股票下跌近11%。
 
-许多联邦承包商，如波音公司、3M公司和美国航空公司，已经宣布了疫苗强制接种规定。为美国陆军提供直升机的欧洲飞机制造商空中客车公司周二也加入了名单。
+数字世界仍在交易员聊天室Stocktwits上流行，是Reddit网站的华尔街投注中被提及最多的股票代码之一。在周二的交易中，该股也是富达平台上交易最活跃的资产之一，但卖出订单与买入订单持平。
 
-空客方面表示，“将要求美国境内所有员工和临时工在12月8日之前全面接种新冠疫苗。”
+相比之下，投资者更青睐数字资产市场Bakkt Holdings Inc.以及科技巨头特斯拉(Tesla Inc.)和Facebook Inc.。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/aw0zs-cgvx6-1.jpg)
+此前做空机构《冰山研究》(Iceberg Research)对投资者面临的风险发出警告，并表示“特朗普将以DWAC散户股东的利益为代价重新谈判。”这家空白支票公司的股价已从10月22日的175美元的峰值下跌了约三分之二。
 
-吉列(Gillette)的制造商宝洁(Procter & Gamble Co .)等其他公司也公布了相关规定。
-
-当然，并不是每家公司都面临员工的抵制。代表泰森食品公司2.6万名员工的美国食品和商业工人联合会周二表示，超过96%的员工已经接种了疫苗。
-
-虽然沃尔玛(Walmart)等其他一些大型美国雇主尚未就疫苗接种公布广泛的要求，但按照劳工部的标准，将要求他们实施疫苗强制接种规定。
-
-另外，雷神公司的格雷格·海斯在财报发布后的电话会议上表示，他预计拜登的疫苗接种强制令将对供应链造成“一些破坏”。
-
-然而，另一家强制接种疫苗的联邦承包商通用电气(General Electric)表示，现在判断该决定是否会对这家美国企业集团的运营产生影响还为时过早。
-
-“随着合规日期越来越近，我们将有更好的解读。”通用电气首席执行官拉里卡尔普告诉《路透社》。
-
-**原文连接**：[https://money.usnews.com/investing/news/articles/2021-10-26/raytheon-warns-of-worker-losses-as-companies-impose-vaccine-mandate](https://money.usnews.com/investing/news/articles/2021-10-26/raytheon-warns-of-worker-losses-as-companies-impose-vaccine-mandate)
+**原文连接**：[https://www.bloomberg.com/news/articles/2021-10-26/trump-linked-spac-stumbles-as-retail-trading-frenzy-loses-steam?srnd=premium](https://www.bloomberg.com/news/articles/2021-10-26/trump-linked-spac-stumbles-as-retail-trading-frenzy-loses-steam?srnd=premium)
 
 **（本文评论仅代表个人观点）**
 

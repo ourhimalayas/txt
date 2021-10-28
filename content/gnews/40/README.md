@@ -2,23 +2,44 @@
 ---
 
 
-## 中共国疫情蔓延，瑞丽小城多次封城造成惨剧多发
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1622013/)
+## 中共政府组织伊斯兰宣讲团进驻清真寺 加速“伊斯兰中共化”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1622116/)
 
-撰稿：西枫westca
+作者：澳喜农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+自10月15日开始，中共青海省第四届“卧尔兹”巡回宣讲团，面向全省1000多座清真寺， 80万穆斯林，开展以“筑牢中华民族共同体意识，坚定伊斯兰教中共化方向，学党史，感党恩，跟党走”为主题的宣讲活动。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-108.jpg)
+一位参加了该活动的当地穆斯林对外媒说，“省里来的阿訇主要讲了团结、和平以及坚持党对宗教的领导，使伊斯兰同社会主义社会相适应，不要受境外人员的影响等内容。大部分人从寺里出来以后，开始议论讲的内容和伊斯兰没有关系。但是在寺里不敢说，因为来了很多不是本村的陌生人。”有评论者指出，“宗教中共化”就是全面整改宗教 以适应中共的需要。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unnamed-15.jpg)图片来源：网络照片
+（本文仅代表作者观点）
 
-近日来，中共国的病毒疫情似卷土重来，新一轮疫情目前已经波及11省份，包括首都北京也有多个小区被封。北有内蒙额济纳旗近万游客因疫情滞留当地，南有云南瑞丽小城持续封闭管理。
+参考链接：
 
-日前在中共国的社交媒体上，包括微信、微博、抖音不断看到来自云南瑞丽地区的网民透露受中共病毒疫情下百姓众生相。中小生意倒闭、店铺关门、因无力支持家庭生活甚至有人自杀，还有一岁多的孩子做过59次核酸检测。自中共病毒肆虐云南小城瑞丽以来，多次封城，主城区实行封闭管理，所有市民居家隔离。有视频显示，瑞丽地区的隔离区好似集中营，把人像猪一样关起来，隔离场所卫生条件极差，根本起不到隔离作用，还要高额收费。据10月27日瑞丽市最新消息，若要离开瑞丽也要自费集中隔离7-21天才可放行。瑞丽拥有两个国家级口岸，有超过5万的缅甸籍务工人员，人员流动是否带来疫情，仍未确定。在7月时，瑞丽的中共疫苗接种率已高达96.9%，按理说已经全员免疫，却如此严加管理，其中是否有利益关系，也值得深思。
+[政府组织伊斯兰宣讲团进驻清真寺 加速”伊斯兰中国化”](https://www.rfa.org/mandarin/yataibaodao/shehui/mlq-10262021083332.html)
 
-中共国管理病毒疫情的方式是一系列的激进措施，如大规模重复筛查、通过“绿码”追踪人们的行踪、强制封锁、对入境人员进行严格隔离等。其结果并没有达到“零容忍”的要求， 或疫情根本不是表面上几个简单的数字代表的。郭文贵先生在今天的直播中就提到中共有可能在今冬明春再次释放病毒，现在全国蔓延的疫情是否为其做舆论准备呢？
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-**新闻来源：**
+总编: 飞虹
 
-[瑞丽疫情最新消息10月隔离政策 离开瑞丽需要什么手续要核酸吗\_唯热网 (vku6.com)](https://www.vku6.com/sltx/1519.html)[关于瑞丽疫情的事情，本地人说一下那里的情况 (douban.com)](https://www.douban.com/group/topic/251031506/)
+编辑：文徬
+
+校对/发稿：Fei797
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
+
+
 
  
 

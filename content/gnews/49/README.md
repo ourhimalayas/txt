@@ -2,24 +2,54 @@
 ---
 
 
-## 人权组织呼吁抵制北京冬奥会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1620682/)
+## COVID-19最新情报｜美CDC数据：818044起不良反应，辉瑞伤害最大
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1620925/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/32-1.png)[图片来源](https://olympics.com/zh/news/olympic-alpine-skiing-at-beijing-2022-top-five-things-to-know)
-人权组织呼吁抵制北京冬奥会，以唤起国际社会对新疆人权状况的关注。而对实行专制统治的中国共产党来说，举办奥运会则是一次展示其“制度优越性”的绝佳机会。按照一些西方议会和专家的说法，中共国新疆正在发生反人类罪行，有人甚至称之为“种族灭绝”。人权组织呼吁抵制北京冬奥会，以唤起世人对这一事态的关注。
+**台灣寶島農場 疫情關注組｜發佈日期/ 27/10/2021**
 
-有德媒评论写道：“活动人士希望利用北京冬奥会这一契机，唤起人们对中国严酷打压少数民族的关注。今年六月，美国国务卿布林肯曾呼吁各盟友采取‘共同行动’。想必届时大多数西方国家领导人会以疫情为借口，回绝北京发出的邀请，而不会为自己的缺席提出政治理由。”评论写道: “北京有关不应将奥运会政治化的呼吁，显得很苍白无力。习近平绝对不会错过利用奥运开幕式展示国力的机会，而开幕式的看客，无疑是在为这场宣传秀赋予合法性。对其人权状况的批评，北京历来充耳不闻。如果说2008年北京举办奥运会时，国际社会对北京还抱有一丝希望和幻想，但现在改革开放已经被闭关锁国取而代之。维吾尔人的境况没有因此出现改善。有理由担心，北京冬奥会以后也不会出现改善维吾尔人权的情况。2008年北京奥运会时，藏人被压迫的情况曾引起全世界的关注，但此后藏人的境况非但没有出现改善，反而变得更加糟糕了。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-信息来源：
 
-[德语媒体：被政治化了的北京冬奥会](https://www.dw.com/zh/%E5%BE%B7%E8%AF%AD%E5%AA%92%E4%BD%93%E8%A2%AB%E6%94%BF%E6%B2%BB%E5%8C%96%E4%BA%86%E7%9A%84%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A/a-59620249)
+美国疾病控制与预防中心 (CDC) 上周五发布疫苗不良事件通报系统(VAERS)[统计数据](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=CAT&amp;EVENTS=ON&amp;VAX=COVID19)，自2020 年 12 月 14 日至 2021 年 10 月 15 日，新冠疫苗不良反应通报共“[818044](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=CAT&amp;EVENTS=ON&amp;VAX=COVID19)”起，其中“[17,128 人死亡](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes)、 [122,833 人重傷](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;SERIOUS=ON)”。这份数据，包含了最新发生的[12岁儿童接种辉瑞疫苗后死亡的案例](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1784945)。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/vaers-vaccine-injury-october-22-1536x1132-1.jpg)數據直接來自 [VAERS](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=CAT&amp;EVENTS=ON&amp;VAX=COVID19) ，VAERS 是美國政府出資，用於記錄疫苗不良反應的系統
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/covid-vaccine-doses-by-manufacturer-1.png)至10/15，美國共接種4.061億劑疫苗
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+美国境内的通报，共[612125起不良反應](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;STATE=NOTFR)，包含[7848人死亡](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR)、[50025人重傷](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;SERIOUS=ON&amp;STATE=NOTFR)。
+
+#### 美国疫苗不良反应，28%在两天内发生
+
+外媒指出，该不良反应通报数据，约11%（840件）的不良反应是在接种后“[24小時內](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR&amp;V2DCHECKED=ON&amp;V2DHIGH=1)”发生，约15%（1212件）在接种后。发生在接种后“[48小時](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR&amp;V2DCHECKED=ON&amp;V2DHIGH=2)”的疫苗不良反应，占全部数据的28%。
+
+#### 12-17岁年龄段数据分析
+
+根据疫苗不良事件通报系统(VAERS)，12-17岁年龄层在美国共有21921起通报，其中有25人死亡、57份重伤。疫苗导致的不良反应，包含心包炎、心肌炎、血栓等，且96%的伤害来自于接种辉瑞疫苗。
+
+美FDA，于6月公开表明，辉瑞、莫德纳疫苗可能导致心肌炎。然而在知道心肌炎可能的情形下，却在前几周（即5月）批准12-17岁儿童接种辉瑞疫苗。
+
+#### 美国所有年龄段数据分析
+
+1. 死因：19%是心脏疾病（心肌炎、心包炎、血栓）
+2. 性别：54%男性；42%女性；4%未通报性别
+3. 平均死亡年龄：72.7岁
+
+
+- 危及生命的过敏反应：2010件。
+- 血栓：10290件。（约44%来自于辉瑞；36%莫德纳；20%娇生“又称强生”疫苗）
+- 心肌炎、心包炎：2878件。（63%来自辉瑞；33%莫德纳；4%娇生“又称强生”疫苗）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20-3.jpg)
+- 相關：[COVID-19最新情報｜美律師控訴 政府掩蓋4.5萬例疫苗死亡案例兼 強制民眾接種](https://gnews.org/zh-hant/1607140/)
+- 相關：[COVID-19最新情報｜政府不願讓人民知道的是 醫院正充斥著新冠疫苗接種者](https://gnews.org/zh-hant/1607201/)
+
+
+* * *
+
+新聞來源｜[NEW ZEALAND TIMES](https://newzealandtimes.live/health/17000-deaths-reported-after-cov-vaxxines-including-new-report-of-12-year-old-who-died-after-pfizer-vaccine/)
+轉譯｜zhong
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
