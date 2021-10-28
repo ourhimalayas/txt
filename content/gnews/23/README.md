@@ -2,30 +2,36 @@
 ---
 
 
-## 美军参谋长联席会主席：中共测试高超音速武器“非常令人担忧”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1623285/)
+## 布林肯号召联合国成员支持台湾参与国际事务
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1623364/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/56208121_403.jpg)[图片来源](https://www.dw.com/zh/%E7%B1%B3%E5%88%A9%E4%B8%AD%E5%9B%BD%E8%AF%95%E5%B0%84%E9%AB%98%E8%B6%85%E9%9F%B3%E9%80%9F%E6%AD%A6%E5%99%A8%E6%B5%8B%E8%AF%95%E9%9D%9E%E5%B8%B8%E4%BB%A4%E4%BA%BA%E6%8B%85%E5%BF%A7/a-59642408)
-近日，美国参谋长联席会议主席马克·米利将军在接受彭博电视台采访时表示，中共测试高超音速武器“非常令人担忧”。这一表态肯定了英国《金融时报》10月中旬有关中共7、8月曾秘密进行高超音速导弹测试的说法。中方迄今没有对此予以否认。
+作者：澳喜农场 在远方
 
-英国《金融时报》10月16日援引消息人士的话报道说，中共于8月秘密试射了可搭载核武器的高超音速导弹。这枚导弹先是进入轨道以后进行“环绕地球”飞行，随后再重返大气层进行“高超音速滑翔”，最终落在距离目标约32公里处。对此次试验一无知的中国核武器政策专家、麻省理工学院教授泰勒·弗雷布尔（Taylor Fravel）对《金融时报》表示，高超音速滑翔飞行器可以帮助中共让美国导弹防御系统无用武之地。弗雷布尔说，如果中共开发和部署这种武器，将会“破坏稳定”，但他也指出，测试并不一定意味着北京会部署这种能力。白宫已通过“外交渠道”对中共的高超音速导弹技术提出关切。当天，在被记者问及是否对中共的高超音速导弹感到关切时，美国总统拜登回答说，“是的。”
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-高超音速导弹”通常的定义为飞行速度超过五倍音速的导弹，时速达每小时6200公里。与弹道导弹一样，高超音速武器也可以携带核弹头。它在射向目标的过程中行动灵活，不遵循传统弹道导弹的固定抛物线轨迹，机动性高，使得敌方难以追踪及拦截。
+10月26日，美国国务院发布消息称，国务卿安东尼-布林肯就支持台湾参与联合国系统发表了声明。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1028AM（1-5）視頻備用.004.jpeg)
+据报道显示，此前一天，中共当局还援引了联大2758号决议，声称反对美国支持扩大台湾参与联合国行动。
 
-美国参谋长联席会议主席米利在彭博电视的采访中说，报道的高超音速试验是中共军队扩张的一部分，对美国有着广泛影响：“他们正在迅速扩张——在太空、网络以及传统的陆、海、空领域。他们已经从1979年一支非常、非常庞大的，以农民为基础的步兵军队变成了一支涵盖所有领域、并具有全球野心的军队。”
+对此，布林肯在声明中表示，台湾尊重人权与法治，与联合国的价值观一致，是一个践行民主的成功典范。美国与许多联合国成员国都把台湾当作宝贵伙伴和可以信赖的盟友。美国鼓励所有联合国成员国，与美国一起，支持台湾参与联合国系统及国际社会，共同解决全球面临的问题。
 
-中共现已构成美国最大的地缘战略挑战，美军对此绝不能听之任之。
+参考链接：[安东尼·布林肯国务卿就支持台湾参与联合国系统发表声明](https://www.state.gov/translations/chinese/安东尼·布林肯国务卿就支持台湾参与联合国系统/)
 
-信息来源：
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-[**米利：中国试射高超音速武器测试”****非常令人担忧”**](https://www.dw.com/zh/%E7%B1%B3%E5%88%A9%E4%B8%AD%E5%9B%BD%E8%AF%95%E5%B0%84%E9%AB%98%E8%B6%85%E9%9F%B3%E9%80%9F%E6%AD%A6%E5%99%A8%E6%B5%8B%E8%AF%95%E9%9D%9E%E5%B8%B8%E4%BB%A4%E4%BA%BA%E6%8B%85%E5%BF%A7/a-59642408)
+总编：Ivy001
+编辑：Delilah小胖
+校正/发稿：我不在这里
 
-(文章仅代表作者本人观点，与GNEWS无关)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

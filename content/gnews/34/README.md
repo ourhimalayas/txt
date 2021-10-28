@@ -2,31 +2,49 @@
 ---
 
 
-## 美国士兵在台湾岛上担任教官
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1623186/)
+## 新中国联邦欢迎精英，培养精英，重用精英
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1623245/)
 
-新闻来源：德国法兰克福报网络版
-
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/taiwans-praesidentin-tsai-ing.jpg)
+作者：纽约香草山农场 – 恩永存
 
 
-图片来源： FAZ
 
-台湾方面表示，有少数美国士兵在岛上训练台湾的士兵。蔡英文总统周四在接受美国电视广播公司CNN采访时证实了这一点。 蔡说：“我们与美国有广泛的合作，旨在提高我们的防御能力。”当被问及在台湾部署了多少美国士兵时，她回答说没有那么多，因为在紧张局势的情况下进行的培训，加剧台湾和中华人民共和国之间的争端，中华人民共和国声称台湾岛是其领土的一部分。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-台湾国防部长邱国正表示，长期以来，美台军事交流频繁。任何主题都可以解决。他强调，蔡总统没有说美国士兵永久驻扎在台湾。
 
-蔡英文此前曾指出，在与北京的冲突中，她的国家面临越来越大的威胁。蔡英文周三在接受美国有线电视新闻网采访时表示，来自中国的威胁“每天都在增加”。她相信，一旦中国发动袭击，美国会站在台湾一边。与此同时，蔡英文呼吁该地区的民主伙伴支持这个岛屿共和国。 “如果威权政权表现出扩张主义倾向，民主国家应该联合起来对抗它们。台湾走在前列。”
 
-美国总统乔拜登上周比他的前任更明确地承诺，如果中共国发动袭击，美国将保卫台湾。中方对此表示愤慨，指责美方干涉内政。
+根据郭文贵先生10月26日直播，未来新中国联邦是由有才华、有信仰的好人组成的共同体，新中国联邦喜欢有才华的人，有才华的人必定有信仰。“信仰”让人心存敬畏，让人喜欢真理，让人遵守法律，让人存有天良，让人重视人权，让人爱护他人，让人热爱自然。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-163.jpg)
+新中国联邦人有信仰，心存大爱，有宽容之心，有做好人的基础。这群有敬畏之心的新中国联人来自世界各族，真诚地为共同理想而努力，同心同行，必能披荆斩棘，开创美好未来。智慧之人寻找机会，愚昧之人错过良机。新中国联邦欢迎精英，培养精英，重用精英。
 
-原文链接：[https://www.faz.net/aktuell/politik/ausland/taiwans-praesidentin-amerikanische-soldaten-sind-auf-der-insel-17606268.html](https://www.faz.net/aktuell/politik/ausland/taiwans-praesidentin-amerikanische-soldaten-sind-auf-der-insel-17606268.html)
+而爆料革命是新中国联邦寻找好人和未来所需之人的重要途径。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-9.jpg)
+参考链接：
+[20211026文贵直播：2021年11月1号11:01分格林威治时间将发生什么？七哥告诉你他英文名字的来历](https://gtv.org/video/id=61783c6aeadeb11f5e7ac4ea)
 
-免责声明：本文内容仅代表个人观点，与Gnews平台无关。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-责任编辑、发布： Shuizhuyu
+总编：飞虹
+编辑：文徬
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

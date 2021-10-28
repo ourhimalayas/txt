@@ -15,155 +15,155 @@
 
 ---
 
-### [开征房地产税会诞生金融界大崩溃和社会伦理家庭大崩溃](/content/gnews/1/README.md)
- ` NewFOC`
-
-### [加拿大安省教育部长就强制接种政策提出异议](/content/gnews/2/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [10/27/2021 文贵直播：DWAC事件证明了代表中共的吴征在美国进行的欺骗和刑事犯罪，这是给新中国联邦带来的最大礼物](/content/gnews/3/README.md)
- ` 秘密翻译组-北美组`
-
-### [10/27/2021 文贵直播：DWAC事件导致支持川普总统的众多小投资者的钱被骗走，这会挑起他们对中共甚至中国人的仇恨](/content/gnews/4/README.md)
- ` 秘密翻译组-北美组`
-
-### [10/27/2021 文贵直播：DWAC股票大涨大跌的背后操纵者就是吴征代表的共产党，蒙受损失的都是川普总统的支持者](/content/gnews/5/README.md)
- ` 秘密翻译组-北美组`
-
-### [别吊死在新冠疫苗这棵树上](/content/gnews/6/README.md)
- ` 银河勇气之星`
-
-### [文贵焦点(10/27):喜币上市的幕后故事及对新中国人意味着什么](/content/gnews/7/README.md)
- ` 秘密翻译组-原创组`
-
-### [中共外交部开批刚刚就任的岸田首相](/content/gnews/8/README.md)
+### [日本要闻汇编 10月28日](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [喜币即将上市！](/content/gnews/9/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [日本首相东亚峰会公开批评中共人权和台海等问题](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [10/28/2021 国际财经快讯：日银下调经济增长预期，维持大规模货币宽松；由于能源成本飙升，德国将2021年GDP预测下调25%](/content/gnews/11/README.md)
- ` 秘密翻译组金融团队`
-
-### [盖特将被打造成全球新闻资讯和情报交流集散地](/content/gnews/12/README.md)
- ` GTV新闻访谈`
-
-### [中共又在煤炭行业下一盘大棋？](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [欧洲议会将组团访台](/content/gnews/14/README.md)
- ` GTV新闻访谈`
-
-### [布林肯号召联合国成员支持台湾参与国际事务](/content/gnews/15/README.md)
- ` GTV新闻访谈`
-
-### [HCOIN问世于本年度最后一个福满之日](/content/gnews/16/README.md)
- ` GTV新闻访谈`
-
-### [中共征收房地产税将引爆中共及世界经济](/content/gnews/17/README.md)
- ` GTV新闻访谈`
-
-### [盖特首席执行官欢迎Truth加入社交媒体领域的竞争](/content/gnews/18/README.md)
- ` GTV新闻访谈`
-
-### [民调和民众自发抗议强制疫苗接种显示加拿大民众正在醒来](/content/gnews/19/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [美国前总统川普被中共设局，将卷入刑事调查](/content/gnews/20/README.md)
- ` GTV新闻访谈`
-
-### [樱花灭共诗——七绝•再祝喜币上市大吉](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本电价4个月连涨，涨价幅度超过1000日元](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美军参谋长联席会主席：中共测试高超音速武器“非常令人担忧”](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：“有啥别有病，没啥别没钱”就是中共国的医疗写照](/content/gnews/24/README.md)
+### [秘翻在线：佛罗里达州新增病例比例最低](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [可悲！日本政界支持疫苗护照的人占多数](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新中国联邦欢迎精英，培养精英，重用精英](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [莫德纳CEO：50岁以上人群应该每年接种新冠疫苗](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [G时评：避免社会“丛林化”的唯一原则](/content/gnews/28/README.md)
- ` GISELLE`
-
-### [谈谈报应](/content/gnews/29/README.md)
- ` 骄子`
-
-### [文贵大直播简报10/28/2021](/content/gnews/30/README.md)
- ` 秘密翻译组-原创组`
-
-### [G时评：屠恶龙者终成恶龙](/content/gnews/31/README.md)
- ` GISELLE`
-
-### [核酸检测任务戳破中共人口数据造假 一地调减人口超3成](/content/gnews/32/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [为领英反疫苗帖子背书，澳洲一官员遭遇文字狱](/content/gnews/33/README.md)
- ` 走进澳洲`
-
-### [美国士兵在台湾岛上担任教官](/content/gnews/34/README.md)
- ` Shuizhuyu`
-
-### [秘翻在线：受房地产税影响上海陆家嘴93套房产25小时内被抛售套现](/content/gnews/35/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [文·贵天成——文贵先生谈 “G币、喜币、喜联储”（二十五）](/content/gnews/36/README.md)
- ` 墨尔本雅典娜农场`
-
-### [维加诺大主教：大重置需要数十亿人接种中共疫苗](/content/gnews/37/README.md)
- ` wenwu`
-
-### [白思豪市长的中共疫苗强制令或迫使 FDNY 关门](/content/gnews/38/README.md)
- ` wenwu`
-
-### [犹他州科学家要求FDA不批准中共病毒疫苗在小孩身上的使用](/content/gnews/39/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [台湾是中情局新中共国中心的“头号问题”](/content/gnews/40/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [马云访问荷兰农业研究所](/content/gnews/41/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [疫情加剧了幼托危机对经济的影响](/content/gnews/42/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [坎特邀詹姆斯、乔丹和耐克老板：一起去探新疆奴隶营](/content/gnews/43/README.md)
+### [西媒头条 — 第97期](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [吴征定律=共产党定律](/content/gnews/44/README.md)
+### [共产党快完蛋了,房地产纳税之后是闭关锁国停掉互联网](/content/gnews/4/README.md)
+ ` NewFOC`
+
+### [秘翻在线：又一个中共病毒疫苗的受害名人](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [开征房地产税会诞生金融界大崩溃和社会伦理家庭大崩溃](/content/gnews/6/README.md)
+ ` NewFOC`
+
+### [加拿大阿尔伯塔省急救医务人员严重短缺](/content/gnews/7/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [墙内要闻汇编 10月28日](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [加拿大安省教育部长就强制接种政策提出异议](/content/gnews/9/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [加拿大魁北克法官就医护工作者强制疫苗令的诉讼举行听证，疫苗令可能再次推迟](/content/gnews/10/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [10/27/2021 文贵直播：DWAC事件证明了代表中共的吴征在美国进行的欺骗和刑事犯罪，这是给新中国联邦带来的最大礼物](/content/gnews/11/README.md)
+ ` 秘密翻译组-北美组`
+
+### [10/27/2021 文贵直播：DWAC事件导致支持川普总统的众多小投资者的钱被骗走，这会挑起他们对中共甚至中国人的仇恨](/content/gnews/12/README.md)
+ ` 秘密翻译组-北美组`
+
+### [10/27/2021 文贵直播：DWAC股票大涨大跌的背后操纵者就是吴征代表的共产党，蒙受损失的都是川普总统的支持者](/content/gnews/13/README.md)
+ ` 秘密翻译组-北美组`
+
+### [别吊死在新冠疫苗这棵树上](/content/gnews/14/README.md)
  ` 银河勇气之星`
 
-### [COVID-19 最新情报｜护士爆料 001：“我看到年轻患者在接种疫苗后因心脏疾病倒下”](/content/gnews/45/README.md)
+### [文贵焦点(10/27):喜币上市的幕后故事及对新中国人意味着什么](/content/gnews/15/README.md)
+ ` 秘密翻译组-原创组`
+
+### [中共外交部开批刚刚就任的岸田首相](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [喜币即将上市！](/content/gnews/17/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [日本首相东亚峰会公开批评中共人权和台海等问题](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [10/28/2021 国际财经快讯：日银下调经济增长预期，维持大规模货币宽松；由于能源成本飙升，德国将2021年GDP预测下调25%](/content/gnews/19/README.md)
+ ` 秘密翻译组金融团队`
+
+### [盖特将被打造成全球新闻资讯和情报交流集散地](/content/gnews/20/README.md)
+ ` GTV新闻访谈`
+
+### [中共又在煤炭行业下一盘大棋？](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [欧洲议会将组团访台](/content/gnews/22/README.md)
+ ` GTV新闻访谈`
+
+### [布林肯号召联合国成员支持台湾参与国际事务](/content/gnews/23/README.md)
+ ` GTV新闻访谈`
+
+### [HCOIN问世于本年度最后一个福满之日](/content/gnews/24/README.md)
+ ` GTV新闻访谈`
+
+### [中共征收房地产税将引爆中共及世界经济](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
+
+### [盖特首席执行官欢迎Truth加入社交媒体领域的竞争](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [民调和民众自发抗议强制疫苗接种显示加拿大民众正在醒来](/content/gnews/27/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [美国前总统川普被中共设局，将卷入刑事调查](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [樱花灭共诗——七绝•再祝喜币上市大吉](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本电价4个月连涨，涨价幅度超过1000日元](/content/gnews/30/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美军参谋长联席会主席：中共测试高超音速武器“非常令人担忧”](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：“有啥别有病，没啥别没钱”就是中共国的医疗写照](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [可悲！日本政界支持疫苗护照的人占多数](/content/gnews/33/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新中国联邦欢迎精英，培养精英，重用精英](/content/gnews/34/README.md)
+ ` GTV新闻访谈`
+
+### [莫德纳CEO：50岁以上人群应该每年接种新冠疫苗](/content/gnews/35/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [谈谈报应](/content/gnews/36/README.md)
+ ` 骄子`
+
+### [文贵大直播简报10/28/2021](/content/gnews/37/README.md)
+ ` 秘密翻译组-原创组`
+
+### [为领英反疫苗帖子背书，澳洲一官员遭遇文字狱](/content/gnews/38/README.md)
+ ` 走进澳洲`
+
+### [维加诺大主教：大重置需要数十亿人接种中共疫苗](/content/gnews/39/README.md)
+ ` wenwu`
+
+### [白思豪市长的中共疫苗强制令或迫使 FDNY 关门](/content/gnews/40/README.md)
+ ` wenwu`
+
+### [犹他州科学家要求FDA不批准中共病毒疫苗在小孩身上的使用](/content/gnews/41/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [台湾是中情局新中共国中心的“头号问题”](/content/gnews/42/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [马云访问荷兰农业研究所](/content/gnews/43/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [坎特邀詹姆斯、乔丹和耐克老板：一起去探新疆奴隶营](/content/gnews/44/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [吴征定律=共产党定律](/content/gnews/45/README.md)
+ ` 银河勇气之星`
+
+### [COVID-19 最新情报｜护士爆料 001：“我看到年轻患者在接种疫苗后因心脏疾病倒下”](/content/gnews/46/README.md)
  ` G&#124;News TAIWAN`
 
-### [2017年5月12日文贵先生直播文字版](/content/gnews/46/README.md)
+### [2017年5月12日文贵先生直播文字版](/content/gnews/47/README.md)
  ` 澳喜农场`
 
-### [维州官员拒绝公布病毒死亡案例的疫苗接种情况](/content/gnews/47/README.md)
+### [维州官员拒绝公布病毒死亡案例的疫苗接种情况](/content/gnews/48/README.md)
  ` 澳喜农场`
 
-### [喜币，无国界的自由资产](/content/gnews/48/README.md)
+### [喜币，无国界的自由资产](/content/gnews/49/README.md)
  ` MOSREC`
 
-### [COVID-19最新情报｜疫苗后，台湾航空机组员突发性耳聋，捷克年轻人听力问题暴增](/content/gnews/49/README.md)
+### [COVID-19最新情报｜疫苗后，台湾航空机组员突发性耳聋，捷克年轻人听力问题暴增](/content/gnews/50/README.md)
  ` G&#124;News TAIWAN`
-
-### [蓬佩奥称习知道拜登没有捍卫美国的利益](/content/gnews/50/README.md)
- ` HimalayaRussia`
 
 ### [因疫苗接种强制令，雷神公司警告称将失去数千名员工](/content/gnews/51/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
