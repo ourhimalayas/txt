@@ -2,40 +2,46 @@
 ---
 
 
-## DC每日热点1028
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1624265/)
+## 加拿大要求紧急调查青少年疫苗猝死事件
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1624349/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/10/0F22F4B1-A0B6-478E-95F0-901EB3482163-scaled.jpeg)
-道琼斯指数 35678.68 ▲0.53%
-纳斯达克指数 15331.85 ▲0.63%
-WTI纽约原油CFD 82.367 ▼0.35%
-布伦特原油CFD 83.464 ▼0.48%
-标普中概股50指数 3,680.73CNY▼17.91%
-美元兑人民币 1USD=6.396RMB
-美元兑港币 1USD=7.777HKD
-国际黄金 1803.70美元/盎司
-全球CCP病毒感染人数 245,974,711 例
+翻译：西班牙喜悦农场–wenwu
 
-1、五角大楼：中共国测试高超音速武器强化了美将其视为头号挑战的必要性
-2、美跨党派重量级参议员提出法案，支持台湾成为美洲开发银行的成员
-3、布林肯下令对美国从阿富汗的混乱撤军进行审议
-4、伊朗同意恢复核谈判
-5、拜登参加东盟峰会 美国将制定印太经济框架
-6、立陶宛开始在与白俄罗斯交界处设立障碍，以防止大量移民从白俄罗斯涌入该国
-7、世界贸易组织将审议中共国对澳大利亚葡萄酒征收的进口关税
-8、印度政府对中共新通过的加强边境保护法表示担忧，两国军队同时继续在有争议的边境地区对峙
-9、台湾证实美加军舰10月中编队穿越台海
-10、王毅为塔利班洗地称塔利班渴望与世界对话
-11、香港通过电影政治审查修例 影业辉煌已逝自由不再
-12、莫斯科市开始采强制措施以遏制新冠飚速扩散
-13、印度试射烈火-5洲际导弹 射程达5千公里
-14、澳大利亚和东盟将建立全面战略伙伴关系
-15、法英渔业纠纷：法国宣布将对英国渔船及进口产品实施一系列报复性措施
-16、巴西参议院建议以违反人道罪等刑事罪名起诉总统博索纳罗
-17、疫情升温 黑省黑河停工停业 人车禁出城
-18、立陶宛经长：驻台经贸代表处拟明年初设立
-19、华为欲借壳获政府订单 引俄业界警觉及反对
+![](https://assets.gnews.org/wp-content/uploads/2021/10/CANADA-INV-1.jpg)图片来源：theexpose.uk
+
+2021 年 10 月 22 日，这位加拿大议员（MPP）致函安大略省临时警察署专员托马斯·卡里克（Thomas Carrique），要求立即调查年轻健康人的突然死亡事件。希利尔（Hillier）在一份[新闻稿中](https://www.randyhilliermpp.com/20211025_pr_oppinvestigationsuddendeaths)表示，他的调查请求是基于安大略省公共卫生数据显示，在年轻人口中，Covid-19 疫苗的潜在严重不良反应的发生率过高，特别是对心血管疾病表示特别关注。
+
+MPP Hillier 还表示，这种趋势正在全球公开数据中观察到，促使多个国家完全暂停使用某些疫苗产品，或限制其在年轻人和儿童中的使用。
+
+例如，[瑞典最近无限期禁止](https://theexpose.uk/2021/10/26/sweden-halts-moderna-jab-indefinitely-after-vaccinated-patient-develops-crippling-heart-condition/)向 31 岁以下的任何人注射 Moderna mRNA 疫苗，以避免更多人患上残废的心脏疾病。在此之前，大多数北欧国家都暂停了 Modena 的中共疫苗，因为它导致了一系列的健康问题。
+
+虽然英格兰和威尔士国家统计局提供的最新数据显示，自首次接受辉瑞公司 mRNA Covid-19 疫苗以来，[男性儿童的死亡率](https://theexpose.uk/2021/10/27/deaths-among-male-children-increased-by-89-percent-since-given-covid-19-vaccine/)比五年平均值[增加了 82%](https://theexpose.uk/2021/10/27/deaths-among-male-children-increased-by-89-percent-since-given-covid-19-vaccine/)（如下图）。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-278-1.png)
+
+加拿大议员兰迪·希利尔 (Randy Hillier) 表示，作为一名民选官员，他有义务质疑公共政策，尤其是当有证据表明公共政策可能对公众产生不利影响时。
+
+他告诉安大略省警察局局长，越来越多的年轻人和健康人突然死亡令人担忧，他们应该向正在寻求答案的死者家属提供完整的真相。
+
+致安大略省警察局专员的完整信函全文如下（中英翻译共4张图）：
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-281-1.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-8-7.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_8049.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_3588.jpeg)
+
+（文章仅代表作者观点与GNEWS无关）
+
+**新闻来源：**[theexpose.uk] [Canadian Politician demands urgent investigation into rise of sudden deaths among Teens following Covid-19 Vaccination](https://theexpose.uk/2021/10/27/politician-demands-investigation-sudden-deaths-teens-after-covid-vaccination/) | 发布时间：2021年10月27日
+
+* * *
+
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
 
  
 

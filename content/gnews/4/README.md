@@ -2,44 +2,62 @@
 ---
 
 
-## GlobalFoundries 于周四在纳斯达克敲响了开盘种
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1624282/)
+## 亚利桑那州对2020大选展开正式调查
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1624362/)
 
-编译：西班牙喜悦农场–wenwu
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-7-7.jpg)GlobalFoundries 于 2021 年 10 月 28 日在纳斯达克首次公开募股后敲响了开盘钟。 ROHINI SHAHRIAR/纳斯达克
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/A-11.jpg)smartzune.com
+川普总统，没有接受文贵先生、班农先生的建议，对中共采取坚决、果断的行动，一次次地错过了良机，反遭中共设局，偷走了大选，受到了1.6国会大厦暴乱的栽赃。苦于没处发声的川普，没有意识到，自己在“有病乱投医”的心态下，又陷入了中共的圈套，宣布与受中共操控的DWAC合并，正滑向危险的境地。
 
-东部时间上午 11:51，GlobalFoundries [GFS， -3.74%](https://www.marketwatch.com/investing/stock/GFS?mod=MW_story_quote) 股价下跌并触及盘中低点 44.50 美元，最后下跌约 3% 至 45.61 美元。周三晚些时候，这家总部位于纽约的马耳他（Malta）的公司将股票定价为[每股 47 美元](https://www.marketwatch.com/story/globalfoundries-prices-ipo-at-47-a-share-for-25-billion-valuation-11635382866?mod=home-page&amp;mod=article_inline)，是其[预测范围的上限](https://www.marketwatch.com/story/globalfoundries-sets-ipo-terms-and-could-be-valued-at-over-25-billion-2021-10-19?mod=article_inline&amp;mod=article_inline)。
+我们绝不反对川普总统，还要能帮就帮他。笔者一直认为在亚利桑那州存在的大选欺诈舞弊情况，必须要给予揭露。
 
-GlobalFoundries 是一家第三方硅晶圆代工厂，在行业中被称为制造工厂或“晶圆厂”。
+《塔克·卡尔森团队》10月28日发表文章，题目，“亚利桑那州总检察长对2020大选展开正式调查，对违法者追责”。
 
-像 GlobalFoundries 这样的第三方晶圆厂是为大多数没有自己晶圆厂的芯片制造商，来生产硅晶圆——这些公司包括 Advanced Micro Devices Inc.  [AMD、 -1.15%](https://www.marketwatch.com/investing/stock/AMD?mod=MW_story_quote),  苹果公司  [AAPL, 2.32%](https://www.marketwatch.com/investing/stock/AAPL?mod=MW_story_quote)  和英伟达公司  [NVDA， 1.02%](https://www.marketwatch.com/investing/stock/NVDA?mod=MW_story_quote) 事实上， GlobalFoundries 是 AMD 的一个分拆公司，当时该公司想退出晶圆厂业务。
+全文如下：
 
-GlobalFoundries 区别于其他第三方晶圆厂，如台积电 [TSM、 1.41%](https://www.marketwatch.com/investing/stock/TSM?mod=MW_story_quote) 和中国半导体制造国际公司  [688981， +0.22%](https://www.marketwatch.com/investing/stock/688981?countryCode=CN&amp;mod=MW_story_quote) 因为它不依赖台湾或中国，因为两者之间的敌对行动对美国的战略供应来说将是一个巨大的问题。
+亚利桑那州参议院议长凯伦·范恩（Karen Fann）宣布，由于亚利桑那州独立选举审计的披露，该州总检察长马克·布尔诺维奇（Mark Brnovich）已对马里科帕郡选举官员的不当行为展开了“正式调查”。
 
-该公司首次公开亮相之际，全球正在努力解决全球芯片短缺的问题，晶圆厂有长期的客户积压（例如：台积电），但[就收益而言，](https://www.marketwatch.com/story/busy-ipo-market-this-week-may-make-2021-the-biggest-year-for-proceeds-and-break-previous-record-by-30-11631554372?mod=article_inline) IPO 是其[有史以来最大的市场之一](https://www.marketwatch.com/story/busy-ipo-market-this-week-may-make-2021-the-biggest-year-for-proceeds-and-break-previous-record-by-30-11631554372?mod=article_inline)。
+凯伦·范恩与詹姆斯·T·哈里斯（James T.Harris）在“保守广场”（The Conservative Circus）上讨论亚利桑那州的审计，并透露了亚利桑那州总检察长马克·布尔诺维奇（启动）的调查。
 
-**简评：**
+她还讨论了亚利桑那州即将对选举法进行的修改，下面可以听到录音片段。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-12-5.png)图片来源于火来2号战友的推文
+范恩说：“其中一些报告没有定论，因此我们将有补充的报告，之所以没有定论，是因为马里科帕郡没有交出路由器，没有交出日志。他们已经在国会承认，他们在提交资料的前一天删除了文件，他们应该将所有的东西都交给我们。”
 
-一则相关[报道](https://www.reuters.com/article/globalfoundries-ipo/globalfoundries-shares-open-flat-on-nasdaq-debut-valuing-chipmaker-at-26-bln-idUSL4N2RO51K)。
+“他们在国会承认，事实上，他们说他们必须删除它们，为即将到来的选举腾出空间。” 她继续说，“然而，国会议员随后指出，服务器上仍然有2020年之前的选举内容，（为什么他们不删别的只删2020的呢？）他们无法解释这是为什么。”
 
-**周四，阿布扎比主权财富基金穆巴达拉投资公司(Abu Dhabi’s sovereign wealth fund Mubadala Investment Co)拥有的GlobalFoundries Inc的股票在纳斯达克平开，使这家芯片制造商（GFS）的市值达到约260亿美元。**
+“当他们说‘别担心，被删除的文件在备份档案中。’议员比格斯（Biggs）说，‘你把它交给参议院的审计员了吗？’他们说，‘不，他们没有传唤我们的备份档案。’”
 
-**火来战友（[@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1/status/1453764205396434948?s=20)）在推特上也表示，郭文贵先生曾讲过，格芯上市那一天，注意看看照片上都有谁。最近知识点有点多，大家别落下功课啊。**
+范恩说：“所以，这就是我们从第一天起就一直在做的事情。我们的审计非常好，而且我们还没有完成。”“我的意思是，你捂不住选民信息以及选举要素的，只是你以为会侥幸逃脱追责。” 范恩继续说，“这不会发生的。”
 
-（文章仅代表作者观点与GNEWS无关）
+范恩接着讨论说，现在该州总检察长的职责是根据审计结果以及马里科帕郡对调查的潜在非法阻挠行为采取行动，她还指出，马里科帕郡在2020年的选举中违反了选举法。
 
-**新闻来源：**[Market Watch] [GlobalFoundries stock slips in trading debut after company’s IPO priced at high end of range](https://www.marketwatch.com/story/globalfoundries-stock-slips-in-trading-debut-after-companys-ipo-priced-at-high-end-of-range-11635436717) | 作者：Wallace Witkowski｜发布时间：2021年10月28日
+她继续说，“我们，作为一个立法机构，我们的工作就是制定政策，我们的工作是制定法律，确保它们有效，并在必要时修改或更新法律。执行这些法律是总检察长办公室的职责，因此，我们现在走在一条双轨道上，我们已经把一切——到目前为止，我们把一切都交给了总检察长。”
 
-* * *
+范恩谈到总检察长时说：“他已经展开了正式调查，他不仅在寻找我们掌握的所有信息，还在进一步挖掘其他人收集到的信息，甚至是在审计之外的信息。因此，这是他的工作，他将对有关人追责。”
 
-*发稿：信心的选择*
+10月初，美国众议院监督和改革委员会（House Committee for Supervision and Reform）就亚利桑那州选举审查（Arizona election review）举行了听证会，在马里科帕郡一名选举官员承认，该郡官员在收到亚利桑那州参议院的法律传票后，实际上从提交给审计员的材料中删除了选举数据，这震惊了听证会。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
+马里科帕郡主管杰克·塞勒斯（Jack Sellers）和比尔·盖茨（Bill Gates）、“选举创新与研究中心”（the Center for Election Innovation and Research）的大卫·贝克尔（David Becker）、“布伦南司法中心”（the Brennan Center for Justice）的戈里·拉马钱德兰（Gowri Ramachandran）和亚利桑那州参议院审计联络员肯·贝内特（Ken Bennett）出席了该委员会的会议。
 
+众议员安迪·比格斯（Andy Biggs）盘问了马里科帕郡副主席比尔·盖茨删除提交给亚利桑那州审计员的材料中的数据一事。
 
+整个众议院监督听证会可以在下面观看：（原文给了链接）
+
+国会听证会显示，马里科帕郡选举官员删除了选举数据，阻碍了官方调查，并在2020年选举期间误导了公众。现在唯一剩下的是关键部分：问责。
+
+（全文完）
+
+战友们不会忘记2020大选日，亚利桑那州在没有统计完的情况下，就确认了拜登获胜的消息，一度传出结果会被更新，之后的几天，“川普很快就会翻盘”的消息仍然盛传。但过去快一年了，结果仍处在争议状态。还好，就争议的议题，还能在最高立法机构中举行听证会，疑似舞弊者在听证会上承认了“删除选举数据”的事实……庆幸的是，美国还没有沦落到中共国的境况，死不认账，证据销毁，录像监视设备故障等。
+
+叹美国的堕落，恨中共的罪恶，庆幸正义人士的存在，感恩文贵先生“挽狂澜于既倒，扶大厦于将倾”！
+
+（文章仅代表作者个人观点）
+
+原文链接：
+
+[https://teamtuckercarlson.com/news/arizona-attorney-general-opens-formal-investigation-into-2020-election-will-hold-people-accountable-for-breaking-the-law/](https://teamtuckercarlson.com/news/arizona-attorney-general-opens-formal-investigation-into-2020-election-will-hold-people-accountable-for-breaking-the-law/)
 
  
 

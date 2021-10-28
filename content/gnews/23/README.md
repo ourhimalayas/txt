@@ -2,35 +2,25 @@
 ---
 
 
-## 中共国出现“柴油荒”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1623781/)
+## 多伦多医护人员将与当局就疫苗接种规定对簿公堂
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1623916/)
 
-作者：澳喜农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月25日，中共国家发改委宣布，将进行新一轮成品油调价。继“电荒”及“媒荒”之后，中共国又出现了“柴油荒”。
+采编：青青      编译撰稿：苦尽甜来 (文来）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9-5.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-10-edited.jpg)图片来源：CBC
 
-消息称，中共国的汽油、柴油每吨将分别上涨300元和290元人民币，这是今年第14次涨价。同时，墙内各地的加油站仍然给柴油车限量加油，甚至出现拒绝加柴油的情况。对此，民众纷纷表示，柴油紧张对日常生活，特别是货物运输的影响很大。
 
-有分析指出，限电措施让更多企业使用柴油发电，因而导致柴油供应紧张。另外，柴油也是中共海军和远洋货轮的动力。为此，中共政府首先要满足战略用油储备，同时要满足出口集装箱货轮的用油需要——这是中共的一贯做法，每当能源危机时，中共永远优先军方需求，而至民生于不顾。
+据【加拿大新闻社】10月28日报道，多伦多市未接种“新冠病毒疫苗”的医护工作者就“该疫苗强制接种授权”起诉【多伦多大学卫生系统】的案件，将于当天在该市法院公开审理。
 
-参考链接：[中国各地柴油紧缺现抢购潮 学者：首先确保海军舰船柴油充足](https://www.rfa.org/mandarin/yataibaodao/jingmao/ql1027a-10272021051820.html)
+此前，【多伦多大学卫生系统】曾宣布，任何在 10 月 22 日之前未完全接种两剂“新冠病毒疫苗”的工作人员将遭到停薪留职的处罚。随后不久，安大略省高等法院法官邓菲对此颁布了一项临时禁令，规定暂时取消该系统为其员工制定的疫苗接种之最后期限。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+邓菲法官同时还指出，由于该医疗系统的疫苗接种规定超出了该省的相关政策范围，因此该法官认为：安省卫生和教育系统的工作者有权在“接种该疫苗”或“定期病毒检测”这两种措施中进行自由选择。
 
-总编：Irene木木
-编辑：山本不惑
-校正/发稿：谐趣园
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对编辑，发稿：硫酸羟氯喹64
 
+[原文链接：](https://www.cp24.com/mobile/news/case-of-workers-challenging-toronto-hospital-network-s-vaccine-mandate-in-court-1.5641855)
 
  
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 喜币即将上市！
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1623399/)
+## 10/27/2021 文贵直播：DWAC事件证明了代表中共的吴征在美国进行的欺骗和刑事犯罪，这是给新中国联邦带来的最大礼物
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1623534/)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+秘密翻译组-北美组
 
  
 
