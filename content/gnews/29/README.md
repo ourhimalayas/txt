@@ -2,27 +2,73 @@
 ---
 
 
-## 有声|保护儿童健康组织主席警告，若批准儿童疫苗，FDA将被诉讼
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1626461/)
+## 10/29/21 香港快讯 民建联派 18 人参选立法会 新人占半
+` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1626503/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2021 年 10 月 25 日，保护儿童健康组织主席小罗伯特·肯尼迪和医学博士梅丽尔·纳斯表示， 已致函FDA的每位成员，称如果FDA强制儿童接种新冠疫苗，保护儿童健康组织将对FDA采取法律行动。
+**搜集****/****整理：卡西欧**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1029fenmian.jpg)
+封面素材：立场新闻
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-29-at-11.17.34-AM.png)
+**1. ****公务员若缺勤立法会选举工作人员会按纪律机制跟进**
 
-辉瑞的研究数据显示，辉瑞疫苗导致的儿童死亡率，是新冠病毒的107 倍。接种新冠疫苗，将引起大龄儿童心脏损伤、癌症，甚至死亡。 据悉，疫苗与相关生物制品咨询委员会将于 10 月 26 日召开会议，决定是否批准辉瑞公司研发的针对 5 至 11 岁儿童的实验性疫苗。
+[据【Now新闻台】10月29日讯，公务员事务局局长聂德权向公务员发信指，安排了人手出任立法会选举工作人员，未履行工作或缺勤人士会按纪律机制作出跟进。](https://news.now.com/home/local/player?newsId=454958)
 
-文字版原文：[保护儿童健康组织主席警告，若批准儿童疫苗，FDA将被诉讼](https://gnews.org/zh-hans/1620272/)
+[聂德权在信中称年底的立法会选举会选出90个议席，已有逾440万人登记为选民，当局会设立超过620个票站，预计立法会选举投票日需要逾3万6千名工作人员。](https://news.now.com/home/local/player?newsId=454958)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[公务员队伍作为特区政府的骨干，肩负贯彻落实一国两制责任，因此担任选举工作，令选举可顺利进行是责无旁贷，而为确保有足够人手，会按部门首长指派的人选，安排公务员担任选举工作人员，若有个别人士未履行工作，或在投票日缺勤，有关个案会转介予所属部门，根据纪律机制跟进。](https://news.now.com/home/local/player?newsId=454958)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-29-at-11.17.42-AM.png)
+**2. ****汤家骅：有人坚拒用安心出行****反映社会有暗涌**
+
+[据【立场新闻】10月29日讯，前立法会主席范徐丽泰、行会成员汤家骅等今日（28 日）出席一个学术论坛，谈及新选举制度。汤家骅指，表面上现时社会「由乱至治」，但事实上仍有很多暗涌，相当的人仍有不服气的声音，他举例现在仍有人坚拒用安心出行，那些人「有机会就搞乱你」。他认为政府需要再花一段颇长时间加强爱国者教育。](https://www.thestandnews.com/politics/湯家驊有人堅拒用安心出行-反映社會有暗湧)
+
+[在论坛上被问到民主派在新选举制度有无生存空间，汤家骅表示，在任何国家、地方争取民主与爱国两者都不会有矛盾。他指，民主派将自己「逼到墙角无法转身」，民主派正面对重大转折点。汤家骅认为如果他们明白民主和爱国不是对立，「应该同样以争取民主的热情去爱国，在宪制去建设一个比较好的制度」。](https://www.thestandnews.com/politics/湯家驊有人堅拒用安心出行-反映社會有暗湧)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-29-at-11.17.50-AM.png)
+**3. ****民建联派**** 18 ****人参选立法会****新人占半**** 4 ****现任不参选****李慧琼：有信心所有人当选**
+
+[据【立场新闻】10月29日讯，「完善」选举制度后的新一届立法会选举 12 月进行，提名期明日展开。民建联今（29 日）在执委会通过参选名单，宣布将派出 18 人出选立法会所有三个界别，人数较上界多一半。](https://www.thestandnews.com/politics/ab-民建聯派-18-人參選立法會-新人佔半-4-現任不參選-李慧琼有信心所有人當選)
+
+[18 人参选名单中，9 人是新人，唯当中有 5 人是 2019 年落选的前区议员；另外，民建联 4 名现任议员不会寻求连任，包括蒋丽芸、黄定光、柯创盛和梁志祥。](https://www.thestandnews.com/politics/ab-民建聯派-18-人參選立法會-新人佔半-4-現任不參選-李慧琼有信心所有人當選)
+
+[对于传统民主派不派人参选，会否影响认受性，李慧琼表示，现时的制度是「爱国者治港」，参选人都是尊重宪制秩序者，并不是「无分别」。](https://www.thestandnews.com/politics/ab-民建聯派-18-人參選立法會-新人佔半-4-現任不參選-李慧琼有信心所有人當選)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-29-at-11.17.59-AM.png)
+**4. ****警方呼吁市民到兰桂坊欢度万圣节勿携仿制枪械或利器**
+
+[据【香港电台】10月29日讯，万圣节将至，警方呼吁切勿携带任何仿制枪械作道具，亦不要携带任何利器、攻击性的武器或违法物品，以免触犯相关法例。](https://news.rthk.hk/rthk/ch/component/k2/1617537-20211029.htm)
+
+[警方指出，根据过往经验，部分市民会于万圣节期间打扮或模仿电视电影的角色，并会携带不同种类的道具。根据香港法例第238章《火器及弹药条例》，任何人管有仿制火器，即属犯法，一经定罪，可判处监禁两年。](https://news.rthk.hk/rthk/ch/component/k2/1617537-20211029.htm)
+
+[警方将于明日至11月1日在中环兰桂坊一带，实施特别交通安排，并可能会在不予任何警告的情况下，票控或拖走违例停泊的车辆，以及在有需要时封闭部分道路及实施单向人潮管制等。](https://news.rthk.hk/rthk/ch/component/k2/1617537-20211029.htm)
+
+[警方呼吁驾驶人士和到兰桂坊一带消遣的市民，遵从警务人员指示，留意电台及电视台相关资讯。](https://news.rthk.hk/rthk/ch/component/k2/1617537-20211029.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-29-at-11.18.08-AM.png)
+**5. ****特区政府欢迎国家财政部于香港发行****40****亿欧元国债**
+
+[据【香港电台】10月29日讯，国家财政部将于下月10日在香港发行40亿欧元国债，特区政府表示欢迎，认为是充分体现中央政府支持巩固香港作为国际金融中心的地位，发挥国际资金进入内地的独特桥梁作用，进一步丰富香港市场的债券产品。](https://news.rthk.hk/rthk/ch/component/k2/1617562-20211029.htm)
+
+[今次发行的欧元国债，期限分别为3年期、7年期及12年期。具体发行安排将另行公告。](https://news.rthk.hk/rthk/ch/component/k2/1617562-20211029.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-29-at-11.18.19-AM.png)
+**6. ****政府研鼓励强积金转年金****余伟文对建议持开放态度**
+
+[据【香港电台】10月29日讯，施政报告提出，政府会进一步探讨如何鼓励巿民，将强积金一笔过资产，转化成退休后定期可领取的年金。](https://news.rthk.hk/rthk/ch/component/k2/1617483-20211029.htm)
+
+[金管局总裁余伟文接受本台专访时表示，对建议持开放态度，年金公司会尽量配合。](https://news.rthk.hk/rthk/ch/component/k2/1617483-20211029.htm)
+
+[同时出任香港年金公司主席兼执行董事的余伟文指，香港年金计划自2018年7月推出，规模为100亿元，直至今年上半年共批出接近1.19万份保单，保费总额约85亿元。余伟文指，年金对香港人属新概念，需时推广，又指一直有优化年金计划，包括将购买年金的岁数由65岁改为60岁，投保上限提高至300万元。](https://news.rthk.hk/rthk/ch/component/k2/1617483-20211029.htm)
+
+[被问到若政府落实推行将强积金转年金，年金公司会否提高投保上限及扩大总保费额，他说言之尚早，要待政府有想法后，可以再与政府配合。](https://news.rthk.hk/rthk/ch/component/k2/1617483-20211029.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-29-at-11.18.27-AM.png)
+**7. ****佳兆业据报拟售资产纾困**
+
+[据【Now新闻台】10月29日讯，陷入财困的佳兆业据报计划出售资产。](https://news.now.com/home/finance/player?newsId=454968)
+
+[《路透》报道，佳兆业计划出售物业管理公司佳兆业美好全数约67%的持股。不过，未有明确买家，佳兆业美好市值约25亿元。](https://news.now.com/home/finance/player?newsId=454968)
+
+[另外，报道指出，公司亦寻求出售香港两个上年取得的住宅项目地皮。](https://news.now.com/home/finance/player?newsId=454968)
+
+【以上观点仅代表笔者本人 并不代表GNEWS立场】
+
+校对 / 封面合成：文粤 / 发布：流光飞舞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

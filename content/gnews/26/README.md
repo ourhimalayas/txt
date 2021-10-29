@@ -2,29 +2,29 @@
 ---
 
 
-## 有声|北约就警惕俄罗斯的敌对行动达成协议
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1626512/)
+## 俄美峰会前美推迟高超音速武器系统测试
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1626519/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-这项战略计划全称为《欧洲-大西洋地区的威慑和防御概念》，旨在让北约成员国为来自波罗的海和黑海地区的攻击做好准备。该计划囊括了针对核、太空和网络攻击的措施。计划特别为网络战开发数字技术，提供了10亿美元的种子资金。
+俄罗斯莫斯科喀秋莎农场 星河
 
-近期，俄罗斯一直在举行军事演习，并在乌克兰边境附近集结了近10万军队，派遣军用飞机侵入北约领空，并开发具有核能力的导弹，包括具有核能力的高超音速巡航导弹。
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/U-4.jpg)usnews.com
+美东时间10月29日报道，五角大楼在俄罗斯总统弗拉基米尔∙普京与美国领导人乔∙拜登会面之前推迟了高超音速武器系统测试，以免刺激莫斯科。
 
-北约的新计划，将针对俄罗斯对波罗的海国家上空的侵犯，以及对黑海入侵的增加，起到威慑作用。
+10月28日，拜登总统出发去罗马参加G20峰会，之后将与普京会面。Politico称，白宫要求五角大楼推迟测试。美国担心俄罗斯会误解这样的信号，或者发射这样的武器会完全破坏会议。
 
-文字版原文：[北约就警惕俄罗斯的敌对行动达成协议](https://gnews.org/zh-hans/1620393/)
+一位美国国防部人士说，俄罗斯在峰会前也没有做“挑衅性的事情”。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+普京和拜登于6月16日在日内瓦进行了会面。会谈持续了近四个小时。最后，两位领导人通过了一项关于战略武器控制的联合声明。声明称，“今天我们重申我们对以下原则的承诺，在核战争中不可能有赢家，决不能发动核战争。”
+
+普京表示，在会谈中，双方都没有敌意或压力，会谈是“具体的、实质性的”。拜登将峰会的气氛描述为“良好和积极的”。
+
+7月，俄罗斯国防部宣布成功测试了成功试射“锆石”高超音速导弹。普京在夏天宣布，“锆石”将很快被投入战斗任务。五角大楼认为导弹测试是一种潜在的威胁。美国指出，“俄罗斯新的高超音速系统有可能破坏稳定，并构成一个显著的威胁，因为这些系统是核兼容的。”
+
+参考链接：
+
+[https://www.rbc.ru/politics/29/10/2021/617b0b3a9a7947acd3554af6?from=from\_main\_11](https://www.rbc.ru/politics/29/10/2021/617b0b3a9a7947acd3554af6?from=from_main_11)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
