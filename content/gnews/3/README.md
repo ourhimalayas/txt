@@ -2,29 +2,25 @@
 ---
 
 
-## 有声|北约就警惕俄罗斯的敌对行动达成协议
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1626512/)
+## 文贵爆料 29/10：一场没有馅饼只有陷阱的SPAC骗局
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1626602/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-这项战略计划全称为《欧洲-大西洋地区的威慑和防御概念》，旨在让北约成员国为来自波罗的海和黑海地区的攻击做好准备。该计划囊括了针对核、太空和网络攻击的措施。计划特别为网络战开发数字技术，提供了10亿美元的种子资金。
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ee3537d3-0449-4962-ba3c-b28627dd2ba3.jpg)
+鱼儿在上钩前，尚能吃到鱼饵，而川普总统得到的只是尖锐的鱼钩。郭文贵先生在10月29日的大直播中说，有三个关键点说明上市的数码世界（DWAC）是中共设计的一个大骗局，川普总统期待的一切只能是镜花水月一场空。
 
-近期，俄罗斯一直在举行军事演习，并在乌克兰边境附近集结了近10万军队，派遣军用飞机侵入北约领空，并开发具有核能力的导弹，包括具有核能力的高超音速巡航导弹。
+我想说三个重点，第一是SPAC这个八百五十页的文件，里边有个最核心的问题啊，中共完全给川普总统画了个大饼——两点九六亿。然后呢，我如果能筹到这个钱了，我给你多少。这钱我筹不到还不给你，而且给你八个亿美元是股票价值，而且允许我去融资五千万，你给我融五千万。2021年1月份川普总统签署卖身契，然后运作到了九月份，还没整够这这个几千万块钱。
 
-北约的新计划，将针对俄罗斯对波罗的海国家上空的侵犯，以及对黑海入侵的增加，起到威慑作用。
+第二个是交易量，其中的交易量是个核心的秘密，你这么高涨，没人买呀，没人交易量啊，第一天的最夸张的交易量，当然都是自己人做。这说明他们经过2021年1月到九个月的运作啊，也没找到真正的投资者，这是很可怕的。
 
-文字版原文：[北约就警惕俄罗斯的敌对行动达成协议](https://gnews.org/zh-hans/1620393/)
+第三是建媒体，你做不到。到现在已经十八个月了，二十四个月他用到了几个月了？还有十八个月，他必须要把你说的事儿，就是你画的空白支票这个媒体建成。建不出来，钱都要返回。我真的很难想象他能做到，它会做一系列的并购。但是我知道很不幸，所有的数据中心都可能都把它干掉，还有人干什么？我也不相信任何工程师能给他干，因为是共产党的背景，不是川普的问题。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭先生说，这三条加在一起，就形成了这个大骗局。
+
+参考链接：
+
+[2021年10月29日 文贵大直播](https://gtv.org/broadcast/watch/617be96f11d1862968fccc4c)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

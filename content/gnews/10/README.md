@@ -2,27 +2,20 @@
 ---
 
 
-## 中共借“共同富裕”稳房地产市场
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1626435/)
+## 有声|保护儿童健康组织主席警告，若批准儿童疫苗，FDA将被诉讼
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1626461/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月27日，中共媒体再度洗脑民众，将其房地产市场挂钩在中共所谓的“共同富裕”上。为此，中共将恶性调控再次牵连到城市住房租赁、城市更新，及老旧小区改造等方面。
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2021 年 10 月 25 日，保护儿童健康组织主席小罗伯特·肯尼迪和医学博士梅丽尔·纳斯表示， 已致函FDA的每位成员，称如果FDA强制儿童接种新冠疫苗，保护儿童健康组织将对FDA采取法律行动。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-6.jpeg)
+辉瑞的研究数据显示，辉瑞疫苗导致的儿童死亡率，是新冠病毒的107 倍。接种新冠疫苗，将引起大龄儿童心脏损伤、癌症，甚至死亡。 据悉，疫苗与相关生物制品咨询委员会将于 10 月 26 日召开会议，决定是否批准辉瑞公司研发的针对 5 至 11 岁儿童的实验性疫苗。
 
-据消息称，目前，恒大引发的房地产债务危机日益逼近，中共国内城市用地拍卖规模进一步收缩，大量的新建住宅项目停工。此时，中共在城市住房、小区改造等方面大动手脚，其目的就是通过盘剥普通民众的财产来为其经济续命。
+文字版原文：[保护儿童健康组织主席警告，若批准儿童疫苗，FDA将被诉讼](https://gnews.org/zh-hans/1620272/)
 
-对此，郭先生在直播中指出，中共的“共同富裕”是对社会财富进行重新划分的借口。在中共国，房地产的各个环节已被中共政府层层征税，而今又继续加征房产税。文贵先生强调，没有人能够在中共政府的公共服务和个人财产分配中受益。
-
-参考链接：[共同富裕需要房地产市场稳健发展](https://3g.163.com/dy/article/GNA2PI3K0519AKBM.html?spss=adap_pc)
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：谐趣园
-
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)

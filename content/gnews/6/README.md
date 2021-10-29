@@ -2,27 +2,29 @@
 ---
 
 
-## 有声|保护儿童健康组织主席警告，若批准儿童疫苗，FDA将被诉讼
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1626461/)
+## 俄美峰会前美推迟高超音速武器系统测试
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1626519/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2021 年 10 月 25 日，保护儿童健康组织主席小罗伯特·肯尼迪和医学博士梅丽尔·纳斯表示， 已致函FDA的每位成员，称如果FDA强制儿童接种新冠疫苗，保护儿童健康组织将对FDA采取法律行动。
+俄罗斯莫斯科喀秋莎农场 星河
 
-辉瑞的研究数据显示，辉瑞疫苗导致的儿童死亡率，是新冠病毒的107 倍。接种新冠疫苗，将引起大龄儿童心脏损伤、癌症，甚至死亡。 据悉，疫苗与相关生物制品咨询委员会将于 10 月 26 日召开会议，决定是否批准辉瑞公司研发的针对 5 至 11 岁儿童的实验性疫苗。
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/U-4.jpg)usnews.com
+美东时间10月29日报道，五角大楼在俄罗斯总统弗拉基米尔∙普京与美国领导人乔∙拜登会面之前推迟了高超音速武器系统测试，以免刺激莫斯科。
 
-文字版原文：[保护儿童健康组织主席警告，若批准儿童疫苗，FDA将被诉讼](https://gnews.org/zh-hans/1620272/)
+10月28日，拜登总统出发去罗马参加G20峰会，之后将与普京会面。Politico称，白宫要求五角大楼推迟测试。美国担心俄罗斯会误解这样的信号，或者发射这样的武器会完全破坏会议。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+一位美国国防部人士说，俄罗斯在峰会前也没有做“挑衅性的事情”。
+
+普京和拜登于6月16日在日内瓦进行了会面。会谈持续了近四个小时。最后，两位领导人通过了一项关于战略武器控制的联合声明。声明称，“今天我们重申我们对以下原则的承诺，在核战争中不可能有赢家，决不能发动核战争。”
+
+普京表示，在会谈中，双方都没有敌意或压力，会谈是“具体的、实质性的”。拜登将峰会的气氛描述为“良好和积极的”。
+
+7月，俄罗斯国防部宣布成功测试了成功试射“锆石”高超音速导弹。普京在夏天宣布，“锆石”将很快被投入战斗任务。五角大楼认为导弹测试是一种潜在的威胁。美国指出，“俄罗斯新的高超音速系统有可能破坏稳定，并构成一个显著的威胁，因为这些系统是核兼容的。”
+
+参考链接：
+
+[https://www.rbc.ru/politics/29/10/2021/617b0b3a9a7947acd3554af6?from=from\_main\_11](https://www.rbc.ru/politics/29/10/2021/617b0b3a9a7947acd3554af6?from=from_main_11)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

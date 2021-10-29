@@ -2,23 +2,36 @@
 ---
 
 
-## 意大利法官乔尔加尼反绿色护照，被停职停薪
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1625899/)
+## WTO审议中共对澳大利亚葡萄酒征收的进口关税
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1625940/)
 
-#### 翻译整理/简评 意大利罗马达芬奇农场： 小白鸽
-![Immagine che contiene persona, esterni, persone, gruppo
-Descrizione generata automaticamente](https://assets.gnews.org/wp-content/uploads/2021/10/Schermata-2021-10-29-alle-14.13.37.png)图片来源：安莎社
-意大利法官乔尔加尼，是西西里墨西那上诉法院的顾问， 10月9日在罗马人民广场发表了有关反绿色护照的演讲之后， 被停薪、停职。在那天的演讲中， 乔尔加尼法官对“滥用职权，占据掌控权利大楼的那些人发出了“搬迁通知”。他呼吁对这些人实行一个新的纽伦堡审判，为“ 那些由此而造成死亡，贫困和痛苦的人伸张正义。”
+作者：美东香草山 新世界的一员
 
-意大利司法部长马耳塔•卡尔塔比尔委托检查员对这一事态进行调查。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-我们正处在战争中， 这是一场光明与黑暗，正义与邪恶之间你死我活的较量。它涉及到金融战、司法战、新闻战等各个战场。面对强权和独裁，总是有人敢站出来说“不”， 但勇敢的人会为此付出的代价也是巨大的。堵住你的嘴， 捂住你的眼睛，在主流媒体的协助下，黑暗已笼罩着世界，而许多人还未醒来。
+10月26日的消息称，澳大利亚第二次提出要求，对中共向澳大利亚进口葡萄酒征收的惩罚性关税进行审议，世界贸易组织对此表示同意并接受。早在今年9月，由于中共的阻止，世界贸易组织拒绝了澳大利亚就此提出的第一次审议。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-29-at-9.57.05-PM.png)
+据悉，由于澳大利亚要求对新冠病毒起源展开国际调查，中共随即对澳大利亚的贸易实行惩罚性关税。除葡萄酒外，澳大利亚的大麦、牛肉、煤炭等进口商品均被中共征收关税。
 
-免责声明：此文观点只代表个人观点， 与GNEWS 平台无关
+对于世界贸易组织的这一次审议，中共仍然声称，其受到挑战的措施符合世贸组织的相关规定，并强调要捍卫其所谓的“合法措施”。
 
-原文链接：https://roma.repubblica.it/cronaca/2021/10/27/news/no\_green\_pass\_sospeso\_il\_giudice\_giorgianni\_parlo\_dal\_palco\_-323958415/
+然而，据国内民生相关消息显示，中共这一做法不仅在国际上产生恶劣影响，就连墙内民众也深受其害，中共国内贸易商品价格飞涨。
 
-编辑/发布：  Xiao baige
+参考链接： [世界贸易组织将审议中国对澳大利亚葡萄酒征收的进口关税](https://twitter.com/voachinese/status/1453463023633375233?s=21)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/总编：Irene木木
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

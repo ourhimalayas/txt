@@ -2,26 +2,29 @@
 ---
 
 
-## 蔡英文总统确认美国在台湾有驻军
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1626137/)
+## 有声|阿拉巴马州州长抵制强制疫苗接种政策
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1626291/)
 
-#### 翻译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-84.jpg)图片来源：网络截图
-据零对冲10月28日报道，台湾蔡英文总统在美国时间周三晚间接受CNN的采访中确认了40年来美国军队在台湾土地上的存在，并表示她相信如果中共国进攻台湾，美国会保卫这个独立民主的岛屿。
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月26日，媒体消息表示，阿拉巴马州州长凯·艾维于本周一签署了第724号行政命令。该行政命令宣布，阿拉巴马州政府机构不得执行联邦政府关于新冠病毒疫苗的强制接种令，且法令于签署当天立即在全州生效。
 
-蔡英文补充说来自中共国的威胁每天都在增加，目前驻扎在岛上美国军队，没有人们想象的那么多。台湾与美国有广泛的合作，旨在提高其防御能力。
+对于疫苗强制令，艾维谴责称，这是联邦政府的越权行为。艾维还补充表示，全球各地越来越多的人已经意识到，疫苗是一场灾难。再者，每一个人都应该享有自由医疗的权利，世界各国的民众都一样，他们不应被政府强迫接种新冠疫苗。
 
-虽然中国共产党声称，台湾岛是中共国的一个省，但是这个拥有2300万人口的民主自治的岛屿有着自己的宪法、军队和执政党。台湾每天都在努力保护自己和他们的民主，确保台湾人民拥有他们应得的那种自由，蔡英文说。
+艾维还特别声明说，作为州长，她不会强迫任何人接种新冠疫苗，同时，她也会跟阿拉巴马州人民一起，反对这项令人愤慨的强制令。
 
-最近几周，北京升级了对该岛的军事骚扰，包括中共国军队在台湾防空区上空展示武力。本月早些时候，中共国领导人习近平再次呼吁台湾将与大陆 “统一”，并指责对台湾独立的持续承诺是对其所谓 “民族复兴”计划的重大威胁，观察人士称，这一目标表明习近平希望在本世纪中叶将该政权转变为世界唯一的超级大国。
+文字版原文：[阿拉巴马州州长抵制强制疫苗接种政策](https://gnews.org/zh-hans/1623803/)
 
-“如果我们失败了，那么这意味着相信这些价值观的人们会怀疑这些价值观是否是他们应该为之奋斗的。”蔡英文说，台湾人将不惜一切代价来保卫台湾。
-
-在她发表最新言论的一周前，美国总统拜登在美国有线电视新闻网（CNN）的市政厅活动中表示，如果台湾这个独立自主的岛屿受到中共国的攻击，美国将致力于保卫台湾，这与美国长期坚持的“战略模糊 ”的立场不同。
-
-新闻来源：[President Tsai Confirms US ‘Boots On The Ground’ In Taiwan](https://www.zerohedge.com/geopolitical/president-tsai-confirms-us-boots-ground-taiwan)
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

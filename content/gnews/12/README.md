@@ -2,48 +2,37 @@
 ---
 
 
-## 秘翻在线：内部邮件显示 去年12月一位加拿大医生被拒绝使用伊维菌素
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1626400/)
+## 2021/10/28 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1626449/)
 
-#### 翻译撰稿：zzballack
+1. 邪恶中共开始在墙内全面推行3-11岁小孩接种毒疫苗。
+2. 隔离后家被安装警报器，隔离意味着更大程度的失去自由。
+3. 新增确诊病例发声证实曾打3针疫苗也被感染。这证明疫苗对防疫病毒根本无效。
+4. 10月26日，河南安阳。即使司机用预充油卡加油也被限制。因为油荒还是等涨价才让加？
+5. 10月25日，广西柳州一货车停路边数天，司机被发现时已无生命体征。车门未关闭。
+6. 10月24日，广东佛山南海区村治保队员在违停车的前挡玻璃司机位置贴两大张警告纸。
+7. 选择性执法。10月24日，浙江绍兴，选择性执法。男子将车停在人行横道上被贴罚单，“为什么对面卖二手车的不贴罚单”。
+8. 在中共国勤劳并不代表着有尊严。中共国一货车司机戏说着群体被压榨的无奈。
+9. 10月27日吉林长春，男子在医院开错检查项目，需多部门签字才能退费。
+10. 房地产行业摇摇欲坠，郑州阳光城二期交房遥遥无期，销售经理语出惊人：“我们还不能倒闭了？”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/gergio34u98uyi453kopsdjaopf8sd.jpg)图片来源：福布斯
 
-据《反抗新闻》（Rebel News）10月28日报道，加拿大阿尔伯塔省(Alberta)政府关于伊维菌素的使用的政策文件显示，在阿尔伯塔省北部至少有一名医生被拒绝使用这种抗寄生虫药物。
+*Page: 青山*
 
-阿尔伯塔省拉克拉比什 (Lac la Biche)村的家庭医生理查德·伯基尔（Richard Birkill）在2020年12月初向阿尔伯塔省卫生服务处（AHS）的北区药房提出申请，要求允许仿单标示外使用（Off-label use）伊维菌素来治疗中共病毒患者。伯基尔医生还打电话给北区药房经理凯文·霍夫斯特德（Kevin Hofstede），为他的病人采购该药物。
+* * *
 
-这一请求引发了一系列内部沟通。
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-霍夫斯特德12月11日给AHS药房服务的药物使用主管杰雷米·斯洛博丹（Jeremy Slobodan）发送电子邮件说，“有很多医生基于一些关于伊维菌素的研究，申请使用该药治疗新冠患者。但由于伊维菌素不属于处方药的使用范围，以及我无法证实那些也许未经审查的研究是否正确，因此征求你的意见。”
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-斯洛博丹12月14日向中共病毒科学顾问小组的医生和专家团队发送电子邮件，希望他们就能否使用伊维菌素治疗新冠患者给出意见，并附上了两篇关于伊维菌素对治疗新冠有帮助的研究：
 
-2020年10月发表的研究称伊维菌素可降低新冠住院患者的死亡率
+编辑：【英国伦敦喜庄园编辑部】
 
-[A five-day course of ivermectin for the treatment of COVID-19 may reduce the duration of illness](https://pubmed.ncbi.nlm.nih.gov/33065103/)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-2020年6月发表的研究称伊维菌素可以抑制中共病毒在体外的复制
 
-[The FDA-approved drug ivermectin inhibits the replication of SARS-CoV-2 *in vitro*](https://www.sciencedirect.com/science/article/pii/S0166354220302011?via%3Dihub)
-
-以及由药物信息团队提供的两篇关于伊维菌素的文章，其中一篇是由美国国立卫生研究院（NIH）在2020年11月3日发布的指导意见，NIH的专家小组极力反对使用伊维菌素治疗新冠患者，除非用于临床实验。
-
-[COVID-19 Treatment Guidelines](https://www.covid19treatmentguidelines.nih.gov/)
-
-斯洛博丹随后给伯基尔医生发送电邮说，“我收到了你申请使用伊维菌素治疗新冠病人的请求。也看过那篇伊维菌素可降低新冠住院患者死亡率的研究，但NIH随后更新了指导意见说不推荐使用伊维菌素治疗新冠病毒。关于新冠病毒的治疗，我们现在还没有任何指南，在收到专家组的意见后我再联系你。”
-
-阿尔伯塔大学（University of Alberta）的医学（肺科）教授阿莱恩·特雷姆布雷（Alain Tremblay）12月14日电邮回复斯洛博丹说，“由于没有好的随机对照试验证据，在我看来，伊维菌素的治疗性使用在阿尔伯塔省不应得到认可。”
-
-阿尔伯塔大学医学系传染病副教授莉诺拉·萨克辛纳（Lynora Saxiner）则更进一步。她在12月15日发给斯洛博丹的电邮中斥责福克斯等媒体编造假新闻，“关于伊维菌素有太多的错误信息，这助长了关于该药可治疗新冠的讨论。但事实上，数据显示这种药物不符合我们纳入治疗指南的标准，在临床试验之外使用它是不合适的。”
-
-2020年12月2日，发表在NIH美国国家医学图书馆 (National Library of Medicine)的一项关于孟加拉国新冠患者的研究显示，用伊维菌素治疗轻症的成年新冠患者的五天疗程是安全和有效的，而且没有严重的药物不良事件记录，但是需要更大规模的试验来证实这些初步发现。
-
-[A five-day course of ivermectin for the treatment of COVID-19 may reduce the duration of illness](https://pubmed.ncbi.nlm.nih.gov/33278625/)
-
-中共病毒大流行持续快两年了，在经过诸多实验和事实验证后，伊维菌素被证明对于预防和治疗新冠病毒非常有帮助。但主流媒体、福奇领导的NIH等所谓的权威医疗机构、大药厂等黑暗势力一直在极力抹黑伊维菌素的功效，甚至称其只是给畜生用的驱虫剂，导致大量的新冠患者因得不到及时和正确的救治而不幸丧生。这些人的手上沾满了血，得幸郭文贵先生领导的爆料革命一直在积极传播病毒、疫苗和解药的真相，全世界的人们正逐渐醒来，看清了背后的惊天阴谋。福奇、比尔盖茨等恶人一定会被绳之以法。
-
-新闻来源：[**EXCLUSIVE: Internal emails show Alberta doctor had Ivermectin use request denied by AHS**](https://www.rebelnews.com/internal_emails_show_alberta_doctor_had_ivermectin_use_request_denied_by_ahs)
 
  
 
