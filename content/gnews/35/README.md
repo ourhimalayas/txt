@@ -2,26 +2,30 @@
 ---
 
 
-## 或因官司缠身【脸书】母公司被迫改名换姓
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1624938/)
+## 有声|郭文贵先生重提马云事件的危害性
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1624974/)
 
-原文采编：UCool优酷 编译撰稿：文所未闻
+配音：香草山美食部 – 玫瑰园
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-3-edited.png)图片来源：techcrunch
+郭文贵先生在2021年10月20曰大直播中再次强调马云和他的家人完全没有自由，马云是被公安部专案组成员与银行和其他相关负责人共20人组成的监督团，控制他处置海外资产。
 
+在没有法制的CCP制度下，个人没有安全，王健与N个大人物的死就是前车之鉴；家庭没有安全，马云与许多大人物全家被抓，许多无辜的人生不如死；社会没有安全，CCP操纵媒体，不给投资者真相，让全球经济陷入极大的风险中。让个人，家庭和社会都不安全的体制，不值得付出，应当推翻它。
 
-据美国《科技博客网》10月28日刊文称，著名社交媒体【脸书】创始人扎克伯格当天正式宣布，将其旗下拥有Facebook、Instagram、WhatsApp和Oculus等知名社交网络的母公司更名为Meta。
+郭先生指出，新中国联邦有实力能帮助受CCP迫害的中国人，只要你攒足勇气，只要你足够智慧，只要你加入农场，我们一起销灭CCP。
 
-据报道，因涉及“言论审查”及“公司诚信”等一系列严重影响该公司未来发展的问题，而导致【脸书】近年来一直负面消息不断。 同时，与其他科技巨头相比，该公司一直受到相关行政部门更多的监管和审查。
+文字版原文：[郭文贵先生重提马云事件的危害性](https://gnews.org/zh-hans/1620273/)
 
-据悉，扎克伯格对【脸书】母公司的这次更名之举，似乎旨在摆脱以上不利的被动局面，并试图通过“改名换姓”来淡化解决【脸书】这一资深网路社交平台给其母公司带来的各种麻烦和困扰，同时也希望能以此重塑其公司核心价值。
+音频处理：喜山必胜Maverick
 
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-[原文链接：](https://techcrunch.com/2021/10/28/facebook-changes-its-corporate-branding-to-meta/)
-
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

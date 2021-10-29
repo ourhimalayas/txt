@@ -15,110 +15,110 @@
 
 ---
 
-### [日本众议院选举候选人多数 &#8220;对中共国不友好 &#8220;](/content/gnews/1/README.md)
+### [严阻华为中兴，国会两院通过《安全设备法》](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [日本新干线列车和汽车相撞](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [叫板美日！中共曝光新型双座版歼20隐形战机](/content/gnews/2/README.md)
+### [病毒是手段,疫苗是这场灾难真正的目的](/content/gnews/3/README.md)
+ ` 加拿大多伦多枫叶农场视频组`
+
+### [日本众议院选举候选人多数 &#8220;对中共国不友好 &#8220;](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [爆料革命——历史的今天10月17日](/content/gnews/3/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [2021年10月18-20日 郭先生视频重点内容整理](/content/gnews/4/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [世卫组织打着防控病毒的大旗不遗余力地推广疫苗](/content/gnews/5/README.md)
+### [叫板美日！中共曝光新型双座版歼20隐形战机](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年10月14-17日 郭先生视频重点内容整理](/content/gnews/6/README.md)
+### [爆料革命——历史的今天10月17日](/content/gnews/6/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [严格遵守公共卫生措施，悉尼健身房仍是新冠感染中心](/content/gnews/7/README.md)
+### [2021年10月18-20日 郭先生视频重点内容整理](/content/gnews/7/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [世卫组织打着防控病毒的大旗不遗余力地推广疫苗](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2021年10月14-17日 郭先生视频重点内容整理](/content/gnews/9/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [严格遵守公共卫生措施，悉尼健身房仍是新冠感染中心](/content/gnews/10/README.md)
  ` 走进澳洲`
 
-### [台湾代表团巡访中东欧打脸中共](/content/gnews/8/README.md)
+### [台湾代表团巡访中东欧打脸中共](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [秘翻在线：丑闻不断的Facebook更名為Meta](/content/gnews/9/README.md)
+### [秘翻在线：丑闻不断的Facebook更名為Meta](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年10月28日郭先生盖特 — 视频盖特1「9分51秒」](/content/gnews/10/README.md)
+### [2021年10月28日郭先生盖特 — 视频盖特1「9分51秒」](/content/gnews/13/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [串珠421:习近平不会跟任何人讨论接班人问题](/content/gnews/11/README.md)
+### [串珠421:习近平不会跟任何人讨论接班人问题](/content/gnews/14/README.md)
  ` 郭爆料串珠`
 
-### [美国为什么现在这么多人得重病？](/content/gnews/12/README.md)
+### [美国为什么现在这么多人得重病？](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共鼓噪网络民粹，要求美公布核潜艇南海事故真相](/content/gnews/13/README.md)
+### [中共鼓噪网络民粹，要求美公布核潜艇南海事故真相](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际要闻汇编10月29日](/content/gnews/14/README.md)
+### [国际要闻汇编10月29日](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [法国亿万富翁爆料全球影子政府的采访前序](/content/gnews/15/README.md)
+### [法国亿万富翁爆料全球影子政府的采访前序](/content/gnews/18/README.md)
  ` 澳喜农场`
 
-### [针下亡魂｜美国 39 岁女医护接种疫苗4日后死亡](/content/gnews/16/README.md)
+### [针下亡魂｜美国 39 岁女医护接种疫苗4日后死亡](/content/gnews/19/README.md)
  ` G&#124;News TAIWAN`
 
-### [零对冲对加密货币市场最新变化的更新（FW42）](/content/gnews/17/README.md)
+### [零对冲对加密货币市场最新变化的更新（FW42）](/content/gnews/20/README.md)
  ` 纽约香草山MOS02`
 
-### [Canada is Getting Ready to Vaccinate 5 to 11 Year-olds](/content/gnews/18/README.md)
+### [Canada is Getting Ready to Vaccinate 5 to 11 Year-olds](/content/gnews/21/README.md)
  ` 温哥华扬帆农场`
 
-### [房产泡沫经济 他乡不是故乡](/content/gnews/19/README.md)
+### [房产泡沫经济 他乡不是故乡](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|印度边境警察部队增兵抗衡中共国](/content/gnews/20/README.md)
+### [有声|印度边境警察部队增兵抗衡中共国](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声|中共要求许家印以个人财富偿付恒大债务](/content/gnews/21/README.md)
+### [有声|中共要求许家印以个人财富偿付恒大债务](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声|退休四星上将希望美国能做出保护台湾的承诺](/content/gnews/22/README.md)
+### [有声|退休四星上将希望美国能做出保护台湾的承诺](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [澳大利亚为新的入境规则做准备](/content/gnews/23/README.md)
+### [澳大利亚为新的入境规则做准备](/content/gnews/26/README.md)
  ` 走进澳洲`
 
-### [埃内斯·坎特诉中共西藏暴行；中共国全网封杀凯尔特人](/content/gnews/24/README.md)
+### [埃内斯·坎特诉中共西藏暴行；中共国全网封杀凯尔特人](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|日本央行延长货币互换协议](/content/gnews/25/README.md)
+### [有声|日本央行延长货币互换协议](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [英国脱欧党领袖奈杰尔·法拉奇呼吁人们反对疫苗护照](/content/gnews/26/README.md)
+### [英国脱欧党领袖奈杰尔·法拉奇呼吁人们反对疫苗护照](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [必看 ！全球34位英雄医生专家警告疫苗危险（3）](/content/gnews/27/README.md)
+### [必看 ！全球34位英雄医生专家警告疫苗危险（3）](/content/gnews/30/README.md)
  ` 澳喜农场`
 
-### [有声|美FDA批准莫德纳和强生加强针，且可混合使用](/content/gnews/28/README.md)
+### [有声|美FDA批准莫德纳和强生加强针，且可混合使用](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [彭博新闻：中共似乎不打算救助恒大](/content/gnews/29/README.md)
+### [彭博新闻：中共似乎不打算救助恒大](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [全面接种疫苗政策以及对治疗药物的打压会杀死美国人](/content/gnews/30/README.md)
+### [全面接种疫苗政策以及对治疗药物的打压会杀死美国人](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [GlobalFoundries的十条背景知识](/content/gnews/31/README.md)
+### [GlobalFoundries的十条背景知识](/content/gnews/34/README.md)
  ` 纽约香草山MOS02`
 
-### [有声|郭文贵先生重提马云事件的危害性](/content/gnews/32/README.md)
+### [有声|郭文贵先生重提马云事件的危害性](/content/gnews/35/README.md)
  ` MOSREC`
-
-### [蔡英文证实美军驻台](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [埃内斯·坎特声讨耐克在中共国的现代奴隶工厂](/content/gnews/34/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [或因官司缠身【脸书】母公司被迫改名换姓](/content/gnews/35/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
 
 ### [两党参议员推出国防法案 外交抵制北京冬奥会](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
