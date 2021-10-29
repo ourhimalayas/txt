@@ -2,28 +2,25 @@
 ---
 
 
-## 秘翻在线：安全研究人员警告iPhone用户应从手机上删除“它”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1626013/)
+## 蔡英文总统确认美国在台湾有驻军
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1626137/)
 
-撰稿：文字焼
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16355128671.png)图片来源：[https://www.wowkorea.jp/news/newsread\_image.asp?y=1 HYPERLINK “https://www.wowkorea.jp/news/newsread\_image.asp?y=1&imd=320558″& HYPERLINK “https://www.wowkorea.jp/news/newsread\_image.asp?y=1&imd=320558″imd=320558](https://www.wowkorea.jp/news/newsread_image.asp?y=1&amp;imd=320558)
-据日本雅虎新闻报道，具有代表性的网络社交平台–脸书（Facebook）会擅自收集苹果（iPhone）用户的照片和位置等个人信息。
+#### 翻译：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-84.jpg)图片来源：网络截图
+据零对冲10月28日报道，台湾蔡英文总统在美国时间周三晚间接受CNN的采访中确认了40年来美国军队在台湾土地上的存在，并表示她相信如果中共国进攻台湾，美国会保卫这个独立民主的岛屿。
 
-美国商业杂志《福布斯》包括汤米·米斯克在内的几位安全研究人员警告说，应该从iPhone上删除Facebook应用程序。
+蔡英文补充说来自中共国的威胁每天都在增加，目前驻扎在岛上美国军队，没有人们想象的那么多。台湾与美国有广泛的合作，旨在提高其防御能力。
 
-今年4月，苹果公司通过其新的操作系统推出了应用跟踪透明化（ATT）功能，该功能阻止了对个人数据的跟踪，可以防止APP收集你的位置或任何其他个人信息。因此，包括Facebook在内的所有应用程序上的定向广告受到了限制。
+虽然中国共产党声称，台湾岛是中共国的一个省，但是这个拥有2300万人口的民主自治的岛屿有着自己的宪法、军队和执政党。台湾每天都在努力保护自己和他们的民主，确保台湾人民拥有他们应得的那种自由，蔡英文说。
 
-然而，安全研究人员指出，Facebook正在使用iPhone的加速度计来跟踪用户的动作。加速计提供的加速度数据消除了重力对物体的影响，使用户能够看到他们移动的速度。利用这些传感器，可以识别用户是躺着、坐着还是走着，甚至可以估计其位置。
+最近几周，北京升级了对该岛的军事骚扰，包括中共国军队在台湾防空区上空展示武力。本月早些时候，中共国领导人习近平再次呼吁台湾将与大陆 “统一”，并指责对台湾独立的持续承诺是对其所谓 “民族复兴”计划的重大威胁，观察人士称，这一目标表明习近平希望在本世纪中叶将该政权转变为世界唯一的超级大国。
 
-另外，也很难拒绝Facebook的位置跟踪功能。Facebook应用程序本身会通过分析振动模式和其他因素来推断你的位置。米斯克说：“防止信息泄漏的唯一方法是删除Facebook。”
+“如果我们失败了，那么这意味着相信这些价值观的人们会怀疑这些价值观是否是他们应该为之奋斗的。”蔡英文说，台湾人将不惜一切代价来保卫台湾。
 
-据安全研究人员称，在Tik-Tok、Wechat、iMessages和Telegram等主要社交网站中，Facebook是唯一使用加速计收集位置数据的APP。实际上，对于iPhone用户来说，Facebook是最容易发生信息泄露的。
+在她发表最新言论的一周前，美国总统拜登在美国有线电视新闻网（CNN）的市政厅活动中表示，如果台湾这个独立自主的岛屿受到中共国的攻击，美国将致力于保卫台湾，这与美国长期坚持的“战略模糊 ”的立场不同。
 
-信息来源：[https://news.yahoo.co.jp/articles/68d8a09319af62c23c454f3c730f38d1c83ffdd4](https://news.yahoo.co.jp/articles/68d8a09319af62c23c454f3c730f38d1c83ffdd4)
-
-（文章仅代表作者个人观点）
-
-责编：待命（文晓）
+新闻来源：[President Tsai Confirms US ‘Boots On The Ground’ In Taiwan](https://www.zerohedge.com/geopolitical/president-tsai-confirms-us-boots-ground-taiwan)
 
  
 

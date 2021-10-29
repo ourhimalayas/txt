@@ -2,26 +2,31 @@
 ---
 
 
-## 蔡英文总统确认美国在台湾有驻军
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1626137/)
+## 有声|盖特是澳大利亚人发声的希望
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1626342/)
 
-#### 翻译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-84.jpg)图片来源：网络截图
-据零对冲10月28日报道，台湾蔡英文总统在美国时间周三晚间接受CNN的采访中确认了40年来美国军队在台湾土地上的存在，并表示她相信如果中共国进攻台湾，美国会保卫这个独立民主的岛屿。
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月24日，澳大利亚天空新闻台三位主持人，联合采访了盖特首席执行官杰森·米勒先生，表达了对美国国内政治局势的担忧，及对盖特的浓厚兴趣。三位著名主持人分别是罗恩·迪恩、丽塔·帕纳西和詹姆斯·莫罗。
 
-蔡英文补充说来自中共国的威胁每天都在增加，目前驻扎在岛上美国军队，没有人们想象的那么多。台湾与美国有广泛的合作，旨在提高其防御能力。
+米勒先生在接受罗恩采访时，首先介绍了盖特的情况，米勒说：“在美国独立日7月4日，盖特一经推出就像火箭一样起飞。目前有约300万用户，是有史以来所有社交媒体中，从100万向200万用户转变最快的。有趣的是，我们的美国用户群，约占整体注册用户的47%，而美国以外的注册用户群占53%，也就是说，盖特已经是一个全球性的社交媒体平台。”
 
-虽然中国共产党声称，台湾岛是中共国的一个省，但是这个拥有2300万人口的民主自治的岛屿有着自己的宪法、军队和执政党。台湾每天都在努力保护自己和他们的民主，确保台湾人民拥有他们应得的那种自由，蔡英文说。
+米勒先生说：“与川普总统宣布其行动计划之前相比，我们在过去的两天内，每天增长新的注册用户70%。涨潮时，所有的船都会浮起来。川普总统的平台，还需要几个月或更久，才会启动上线。我认为，我们有一个很好的机会抓住人心，把他们拉入到我们的社交平台。”
 
-最近几周，北京升级了对该岛的军事骚扰，包括中共国军队在台湾防空区上空展示武力。本月早些时候，中共国领导人习近平再次呼吁台湾将与大陆 “统一”，并指责对台湾独立的持续承诺是对其所谓 “民族复兴”计划的重大威胁，观察人士称，这一目标表明习近平希望在本世纪中叶将该政权转变为世界唯一的超级大国。
+对于澳大利亚人民，盖特是他们发声的希望。
 
-“如果我们失败了，那么这意味着相信这些价值观的人们会怀疑这些价值观是否是他们应该为之奋斗的。”蔡英文说，台湾人将不惜一切代价来保卫台湾。
+文字版原文：[盖特是澳大利亚人发声的希望](https://gnews.org/zh-hans/1622780/)
 
-在她发表最新言论的一周前，美国总统拜登在美国有线电视新闻网（CNN）的市政厅活动中表示，如果台湾这个独立自主的岛屿受到中共国的攻击，美国将致力于保卫台湾，这与美国长期坚持的“战略模糊 ”的立场不同。
-
-新闻来源：[President Tsai Confirms US ‘Boots On The Ground’ In Taiwan](https://www.zerohedge.com/geopolitical/president-tsai-confirms-us-boots-ground-taiwan)
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

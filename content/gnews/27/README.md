@@ -2,39 +2,28 @@
 ---
 
 
-## 太平联盟是中共渗透美国司法界的关键因素
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1625937/)
+## 秘翻在线：安全研究人员警告iPhone用户应从手机上删除“它”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1626013/)
 
-作者：纽约香草山文艺部 – 宁文静
+撰稿：文字焼
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16355128671.png)图片来源：[https://www.wowkorea.jp/news/newsread\_image.asp?y=1 HYPERLINK “https://www.wowkorea.jp/news/newsread\_image.asp?y=1&imd=320558″& HYPERLINK “https://www.wowkorea.jp/news/newsread\_image.asp?y=1&imd=320558″imd=320558](https://www.wowkorea.jp/news/newsread_image.asp?y=1&amp;imd=320558)
+据日本雅虎新闻报道，具有代表性的网络社交平台–脸书（Facebook）会擅自收集苹果（iPhone）用户的照片和位置等个人信息。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国商业杂志《福布斯》包括汤米·米斯克在内的几位安全研究人员警告说，应该从iPhone上删除Facebook应用程序。
 
-10月27日，郭先生在大直播中揭露，太平联盟串通中共，正全面渗透美国司法界及法律界。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1029AM（1-5）視頻備用.001.jpeg)
-郭先生提到，太平联盟涉及多起与爆料革命相关的司法诉讼，最早的一起可追溯到伪造郭先生签字，企图收走18楼公寓并对郭先生罚款1亿美金；而最近的一起，则是其窃取G系列绝密文件，以此向加、澳两国虚假举报G系列。其他相关案件还包括马蕊案、博讯案在内的多起诉讼。
+今年4月，苹果公司通过其新的操作系统推出了应用跟踪透明化（ATT）功能，该功能阻止了对个人数据的跟踪，可以防止APP收集你的位置或任何其他个人信息。因此，包括Facebook在内的所有应用程序上的定向广告受到了限制。
 
-据了解，太平联盟与中共的合作由来已久——其是海航三亚凤凰机场的最大投资者，拥有腾讯音乐100%的股权，并向吴征的七星传媒投资了5亿美元。更重要的是，太平联盟是这次川普新媒体壳公司DWAC的幕后最大股东，而一直与太平联盟合作紧密的律师事务所，这次也出现在DWAC的并购案中。至于这次并购案涉及到的几家基金公司，大多数的公司代表都是吴征，其背后均为中共权贵家族，且它们都与太平联盟有关联。
+然而，安全研究人员指出，Facebook正在使用iPhone的加速度计来跟踪用户的动作。加速计提供的加速度数据消除了重力对物体的影响，使用户能够看到他们移动的速度。利用这些传感器，可以识别用户是躺着、坐着还是走着，甚至可以估计其位置。
 
-郭先生表示，因为利益冲突，太平联盟会成为DWAC欺诈并购的关键因素，也将成为其它牵连案件的死穴。
+另外，也很难拒绝Facebook的位置跟踪功能。Facebook应用程序本身会通过分析振动模式和其他因素来推断你的位置。米斯克说：“防止信息泄漏的唯一方法是删除Facebook。”
 
-参考链接： [2021年10月27日 文贵大直播：盖特的价值和盈利模式是什么；喜币新上市时间的历史意义；共产党的房产税与金融的关系；中共国经济，金融的大崩溃](https://gtv.org/video/id=6179465deadeb11f5e7b0768)
+据安全研究人员称，在Tik-Tok、Wechat、iMessages和Telegram等主要社交网站中，Facebook是唯一使用加速计收集位置数据的APP。实际上，对于iPhone用户来说，Facebook是最容易发生信息泄露的。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+信息来源：[https://news.yahoo.co.jp/articles/68d8a09319af62c23c454f3c730f38d1c83ffdd4](https://news.yahoo.co.jp/articles/68d8a09319af62c23c454f3c730f38d1c83ffdd4)
 
-总编：Irene木木
-编辑：山本不惑，Irene木木
-校正/发稿：我不在这里
+（文章仅代表作者个人观点）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+责编：待命（文晓）
 
  
 

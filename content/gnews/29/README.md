@@ -2,47 +2,36 @@
 ---
 
 
-## 蓬佩奥：中国共产党是美国最大的危险
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1625927/)
+## 蓬佩奥表示，中共伤害美国人和绝大多数中国人民的利益
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1625941/)
 
-**简评：**
+作者：日本方舟农场 Andy5
 
-中共是美国最大的危险。一周前，中共展示了一个最新高端的超音速导弹系统，表明中共有能力研制，但美国并无有效的防御系统。中共一直想拿下台湾，随后扩张全世界。但中共明年2月份想举办冬奥会，向全世界炫耀中共所谓的的伟大。冬奥会之前，中共对台湾应该不会采取军事行动。拜登总统表示美国会恪守承诺，保护台湾。希望美国能够说到做到，而不是口是心非，只划红线、发警告。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-GTV视频链接：[Mike Pompeo: 中共国和台湾等问题。有些人觉得迫在眉睫，明年2月会有很大可能](https://gtv.org/video/id=61795bf0247c5a3f9090b6b0)
+10月26日，美国前国务卿蓬佩奥在接受FOX新闻的采访时表示，中共从来没有丝毫在乎过人权。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-29-at-8.49.48-PM.png)
+蓬佩奥提到，中共在明知新冠病毒具有致命性，但仍然任由感染者将该病毒散播到意大利，从而危及了全世界的民众。更甚者，中共的领导人粗鲁地犯下了种族灭绝的罪行。
 
+蓬佩奥认为，中共的领导者一直在积蓄实力，同时窥探美国的弱点，试图以此来让自身受益。此前，克里希望能通过美国主动做出利益牺牲，来带动中共减少碳排放。但此举的结果是，美国损失了美国人的就业岗位、劳动报酬乃至经济，但中共却毫无作为。
 
+对于习近平，蓬佩奥认为，习一直相信他会跟一个不会保护美国利益的领导者谈判，从而能通过诱导得到一份对中共有利的协议。 但蓬佩奥批评，这种协议在严重伤害美国人的同时，也会伤害绝大多数中国人的利益。
 
-**视频字幕：**
+参考链接： [蓬佩奧國務卿接受Ingraham Angle採訪](https://gettr.com/post/pfc8bibb89)
 
-**蓬佩奥先生：**我们国家的最大危险来自中国共产党。就在过去一周半，他们已经测试了一个非常高端的超高音速导弹系统，这是非常重要的工具。我们以为他们没有这个能力，现在证明他们可以做到，并将美国置于危险中，且无有效的防御系统。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-他们确实有这个意图。他们的领导人习近平说，他们将首先把台湾带回保护伞下，然后从台湾开始发展，随后推向全世界。因此，这不是今天或明天的问题，而是当务之急。我们当认真考虑我们的战略以继续保护美国未来几年和几十年的安全。
+编辑/总编：Irene木木
+校正/发稿：我不在这里
 
-**主持人：**许多人谈到中共国和台湾等问题，有些人觉得迫在眉睫，有些人觉得有一天会发生。你觉得什么时候会发生？
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**蓬佩奥先生：**我确实认为这是习近平作为中共国领导人在未来几年筹划的事情。我不能确切地告诉你时间。明年2月会有很大可能。
-
-请记住，他们将在北京举办冬奥会，这将是他在世界舞台上展示自己是一个伟大领导人的机会。他不太可能在这之前做这件事。我认为这将玷污奥运会。
-
-他想成功举办奥运会。那是他向世界展示中共国是多么伟大的窗口。他将籍此来说明为什么台湾应该在他们的胁迫和监视之下。他将开始采取真正具有胁迫性的方式。
-
-昨晚我看到拜登总统说，我们承诺保卫台湾。我希望他说这句话的时候，是真心的，不能只是画红线，不能发表这样的声明而口是心非。
-
-现在有一种期望，他将贯彻这一承诺。我希望拜登政府能够仔细考虑。而不是一个不清楚自己在说什么的总统的随意评论。
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*字幕/听写：云岭|翻译：致良知| 校对：clau ，Roberts|简评/文字整理/编辑：胖丁| Page：小六月*
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
-
-[![](https://spark.adobe.com/page/wQwjfyhpeI7U2/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/wQwjfyhpeI7U2/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
