@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gfashion 10/29/2021 7:18 PM (UTC)`
+
+Studio Vibes<br/>@DDNYC
+![img](https://media.gettr.com/group6/origin/2021/10/29/19/18/5d8f7084-5b75-41fc-39fe-ff23a82bf716/out.jpg)
+
+---
+
 `@miles 10/29/2021 12:30 PM (UTC)`
 
 2021年10月29日 文贵大直播：美股一周大事件；金油粮食人工价；国内违约房地产；喜币应运虚拟币
@@ -298,13 +307,6 @@ The relationship analysis of the characters in SPAC that merged with Trump media
 
 🆘疫苗灾难<br/><br/>【一个在产房工作的护士说婴儿刚生下来的时候看上去很健康，但在48-72小时后死亡，肺出血……都是孕期和哺乳期打了疫苗……<br/>🆘🆘🆘Don’t get Vaccines!!!】
 ![img](https://media.gettr.com/group22/getter/2021/10/25/03/22/95f5fb0f-6380-c533-3a21-517a266e5a10/out.jpg)
-
----
-
-`@miles 10/25/2021 2:40 AM (UTC)`
-
-With his new platform, Trump may bring his supporters back to the social media world. And Gettr, as the global leaders for free speech with advanced technology and crypto future, can take this opportunity to attract and re-energize them.<br/><br/>凭借川普的新平台，川普可能会将他的支持者带回社交媒体世界。 而盖特（Gettr）作为拥有先进技术和加密未来的言论自由的全球领导者，可以借此机会吸引并重新激发他们的活力。
-![img](https://media.gettr.com/group23/getter/2021/10/25/02/40/dca8ecc1-ac64-1809-2e0b-a8d1f150e4d9/out.jpg)
 
 ---
 

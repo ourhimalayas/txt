@@ -2,23 +2,28 @@
 ---
 
 
-## 意大利法官乔尔加尼反绿色护照，被停职停薪
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1625899/)
+## 秘翻在线：安全研究人员警告iPhone用户应从手机上删除“它”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1626013/)
 
-#### 翻译整理/简评 意大利罗马达芬奇农场： 小白鸽
-![Immagine che contiene persona, esterni, persone, gruppo
-Descrizione generata automaticamente](https://assets.gnews.org/wp-content/uploads/2021/10/Schermata-2021-10-29-alle-14.13.37.png)图片来源：安莎社
-意大利法官乔尔加尼，是西西里墨西那上诉法院的顾问， 10月9日在罗马人民广场发表了有关反绿色护照的演讲之后， 被停薪、停职。在那天的演讲中， 乔尔加尼法官对“滥用职权，占据掌控权利大楼的那些人发出了“搬迁通知”。他呼吁对这些人实行一个新的纽伦堡审判，为“ 那些由此而造成死亡，贫困和痛苦的人伸张正义。”
+撰稿：文字焼
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16355128671.png)图片来源：[https://www.wowkorea.jp/news/newsread\_image.asp?y=1 HYPERLINK “https://www.wowkorea.jp/news/newsread\_image.asp?y=1&imd=320558″& HYPERLINK “https://www.wowkorea.jp/news/newsread\_image.asp?y=1&imd=320558″imd=320558](https://www.wowkorea.jp/news/newsread_image.asp?y=1&amp;imd=320558)
+据日本雅虎新闻报道，具有代表性的网络社交平台–脸书（Facebook）会擅自收集苹果（iPhone）用户的照片和位置等个人信息。
 
-意大利司法部长马耳塔•卡尔塔比尔委托检查员对这一事态进行调查。
+美国商业杂志《福布斯》包括汤米·米斯克在内的几位安全研究人员警告说，应该从iPhone上删除Facebook应用程序。
 
-我们正处在战争中， 这是一场光明与黑暗，正义与邪恶之间你死我活的较量。它涉及到金融战、司法战、新闻战等各个战场。面对强权和独裁，总是有人敢站出来说“不”， 但勇敢的人会为此付出的代价也是巨大的。堵住你的嘴， 捂住你的眼睛，在主流媒体的协助下，黑暗已笼罩着世界，而许多人还未醒来。
+今年4月，苹果公司通过其新的操作系统推出了应用跟踪透明化（ATT）功能，该功能阻止了对个人数据的跟踪，可以防止APP收集你的位置或任何其他个人信息。因此，包括Facebook在内的所有应用程序上的定向广告受到了限制。
 
-免责声明：此文观点只代表个人观点， 与GNEWS 平台无关
+然而，安全研究人员指出，Facebook正在使用iPhone的加速度计来跟踪用户的动作。加速计提供的加速度数据消除了重力对物体的影响，使用户能够看到他们移动的速度。利用这些传感器，可以识别用户是躺着、坐着还是走着，甚至可以估计其位置。
 
-原文链接：https://roma.repubblica.it/cronaca/2021/10/27/news/no\_green\_pass\_sospeso\_il\_giudice\_giorgianni\_parlo\_dal\_palco\_-323958415/
+另外，也很难拒绝Facebook的位置跟踪功能。Facebook应用程序本身会通过分析振动模式和其他因素来推断你的位置。米斯克说：“防止信息泄漏的唯一方法是删除Facebook。”
 
-编辑/发布：  Xiao baige
+据安全研究人员称，在Tik-Tok、Wechat、iMessages和Telegram等主要社交网站中，Facebook是唯一使用加速计收集位置数据的APP。实际上，对于iPhone用户来说，Facebook是最容易发生信息泄露的。
+
+信息来源：[https://news.yahoo.co.jp/articles/68d8a09319af62c23c454f3c730f38d1c83ffdd4](https://news.yahoo.co.jp/articles/68d8a09319af62c23c454f3c730f38d1c83ffdd4)
+
+（文章仅代表作者个人观点）
+
+责编：待命（文晓）
 
  
 
