@@ -2,33 +2,28 @@
 ---
 
 
-## 必看 ！全球34位英雄医生专家警告疫苗危险（3）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1625015/)
+## 有声|印度边境警察部队增兵抗衡中共国
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1625122/)
 
-翻译：喜国公民
+配音：香草山美食部 – 玫瑰园
 
-撰稿： 喜国公民 & Jenny
-视频剪辑/字幕：外星人
-请将此视频广泛转发给您的朋友和家人。发送给你的家庭医生, 医院、学校、牧师、市长和其他在你的社区有责任的人也更加重要！
+印度内政部国务部长尼蒂亚南德∙拉伊24日表示，有几个营装备一新的印藏边境警察部队已经获得政府授权，并即将部署于中印边境。该部队于1962年中印边境战争结束后建立，接受过严格的山地战训练，是长期驻守在中印边境的王牌部队。
 
-如果我们都分享这个视频，我们就能唤醒人类。我们可以共同阻止腐败，阻止这场疫苗灾难，共同创造一个更加美好的世界。
+印度媒体报道，为了因应中印边境中共军方的军事压力，印度政府计划为印藏边境警察部队增加由8000人组成的7个营，以驻守阿鲁纳恰尔邦印方东翼实控线内新建的据点。印度政府也承诺，向这支新组建的精锐部队提供完善的后勤支援和现代装备。
 
-注册获取更多信息, 请登录: [https://www.stopworldcontrol.com](https://www.stopworldcontrol.com/)
+文字版原文：[印度边境警察部队增兵抗衡中共国](https://gnews.org/zh-hans/1622817/)
 
-如果新冠疫苗制造商对他们的产品不负责任，医生们就会担心给民众注射这些疫苗是否会给他们的身体造成伤害。
+音频处理：喜山必胜Maverick
 
-政府，医疗机构和主流媒体不关心疫苗的有效性和疫苗是否会给你的身体造成伤害，强行推广疫苗，甚至为了推广疫苗而剥夺你的工作权力。这不和常理的做法，不能不让人们怀疑这疫苗背后是否暗藏着不可告人的惊天阴谋。
-
-为了你孩子的未来，是时候站出来捍卫你的自由了。不要屈服于焦虑，屈服于人们对疫苗的不同态度，屈服于政府的控制。
-
-请接续
-
-（本文纯属个人观点，与G news 无关）
-
-[原视频链接](https://rumble.com/viqn29-worldwide-doctors-warn-for-the-vaccines-must-see.html)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

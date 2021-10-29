@@ -2,36 +2,39 @@
 ---
 
 
-## 国际要闻汇编10月29日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1625223/)
+## 台湾代表团巡访中东欧打脸中共
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1625396/)
 
-素材：东京樱花团｜GNEWS组
-![](https://lh3.googleusercontent.com/UrMYMisYLMeg8rV5ozw-NDqEDOeyE5mXs_VbqEFj2q_fLix_ACB_PdUdtcvgZkM3havVb-OJRRBEZcdC6dI84nELkiTImrRQRhszVUM4drQBqHLYxRyCNU0OqAFFDHPghiE88KLk)[图片来源](https://www.voachinese.com/a/biden-heading-to-g20-20211028/6289733.html)
-1、[拜登启程出席20国集团峰会和全球气候变化峰会](https://www.voachinese.com/a/biden-heading-to-g20-20211028/6289733.html)
+撰稿： 天鵝
 
-美国总统拜登周四（28日）开始旋风式美国外交，出席20国集团峰会和全球气候变化高峰会议。拜登首先前往罗马参加130日和31日举行的20国集团（G-20）高峰会议，与世界最富裕国家的领导人讨论新冠疫情、气候变化和全球经济议题。他然后将前往苏格兰的格拉斯哥，参加11月1日在那里举行为期两天的联合国气候变化会议。在此之前，拜登将会晤天主教廷的教宗方济各。中共主席习近平和俄罗斯总统普京都不会现身这两个高峰会议。
+立陶宛国家广播电视台2021年10月27日报道[1] 立陶宛总统吉塔纳斯·瑙塞达表示，尽管中国“激怒”了立陶宛，但立陶宛在台湾问题上的立场没有改变，该评论是在台湾代表团本周三访问立陶宛期间发表的。他还强调，“我们的立场没有改变，因为这是一个主权、独立国家的立场。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16354837061.png)图片来源：[https://www.lrt.lt/en/news-in-english/19/1530091/despite-china-s-irritation-lithuania-s-position-on-taiwan-remains-unchanged-president](https://www.lrt.lt/en/news-in-english/19/1530091/despite-china-s-irritation-lithuania-s-position-on-taiwan-remains-unchanged-president)
+同日报道[2] 中华民国国家发展委员会主委龚明鑫在维尔纽斯表示，台湾应在今年年底前开放在维尔纽斯的经济代表处。相应的立陶宛经济部长阿尔莫奈特表示，立陶宛将在2022年初在台湾设立代表处，她说，“法律手续已经完成，将在明年生效”。
 
-2、[新冠溯源关键方 生态健康联盟称在中国的研究“符合NIH拨款要求”](https://www.voachinese.com/a/nih-ecohealth-at-odds-over-the-reporting-and-handling-of-risky-coronaviru-s-/6289921.html)
+10月27日，立陶宛和台湾代表签署了六份备忘录，旨在加强在半导体、生命科学、生物技术、激光和卫星技术、晶体研究和金融领域的合作。立陶宛和台湾的大学和研究中心也于 10 月 27 日星期三签署了合作协议。台湾大学晶体研究中心与立陶宛物理科学与技术中心（FTMC）签署了单独的相互谅解备忘录。值得注意的是，台湾-立陶宛联合半导体人才和研究计划的协议将允许立陶宛学习半导体物理的学生前往台湾国立中山大学接受培训。两国希望未来能够在这方面进行联合研究，为立陶宛和台湾的工业企业创造创新产品。
 
-《华尔街日报》周四（28日）报道，与中国武汉病毒所进行合作的生态健康联盟最近在给美国国家卫生院的信中表示，其在中国的研究“符合所有要求”。报道指出，接受美国国家卫生院（NIH）资金，总部在纽约的生态健康联盟（EcoHealth Alliance）与国家卫生院针对在中国进行的冠状病毒研究的报告和处理上产生分歧等。国家卫生院指与中国武汉病毒研究所合作的生态健康联盟，未及时报告2018年进行的实验结果，也没有满足另一项340万美元赠款的要求。那项拨款被用于对中国蝙蝠传播的冠状病毒对人类风险的研究。
+访团29日结束行程，此间将造访企业与研究机构，预计双边逾300家企业将举行洽谈，领域涵盖生命科学、资通讯、电动车、食品工业等。
 
-3、[严阻华为中兴 国会两院通过《安全设备法》](https://www.voachinese.com/a/senate-passed-secure-equipment-act-20211028/6290409.html)
+点评：
 
-美国国会参议院周四(28日)无异议通过了《2021年安全设备法》(Secure Equipment Act of 2021 )，这项得到两院两党议员支持的法案指示美国联邦通讯委员会(FCC)不得再对已被列入威胁国家安全黑名单的公司进行审议或颁发新的设备执照。法案的制定者指出，这是为了堵住漏洞，不让任何华为和中兴等中国政府支持的公司设备进入美国电信网络。众议院已在本月早些时候通过了法案的相同版本，这部法案接下来将交给拜登总统签署成法。
+欧洲议会在上周四（10月21日）以压倒性高票通过的“欧盟-台湾政治关系与合作报告”，呼吁欧盟全面提升与台湾的关系，包括更改欧盟驻台办事处名称以及启动欧台投资协定。短短一周后，欧洲多国就与台湾代表团进行了多场会谈。这次台湾不仅派出了经贸代表团，还有台湾外交部长吴钊燮带队，代表团计划访问捷克共和国、斯洛伐克、立陶宛等欧洲诸国。我认为这是台湾与欧洲外交新的开始，反映了中共对欧洲的“战狼外交”、“疫苗外交”、“全面渗透”等计划已经失败。
 
-4、[两党参议员推出国防授权法修正案 要求外交抵制北京冬奥会](https://www.voachinese.com/a/us-senators-propose-adding-boycott-of-china-winter-olympics-to-defense-bill-20211028/6289881.html)
+郭先生最近揭露了王毅将偷偷出访卡塔尔、希腊、意大利等国的计划。可见中共再也坐不住了，无论国内政治斗争的战况如何，中共在欧洲的外交战场已经完全失控，不得不再次派人外访勾兑，以此维护中共的脸面。在最近郭先生直播中爆料的DWAC事件严重伤害和欺骗了川普总统及其大量的支持者，造成了重大损失，同时也在美国人民面前印证了中共的公开犯罪与邪恶手段。这更加反映了当今全世界社交媒体被垄断现实，凸显了我们盖特的言论，我们支持自由、公平竞争。爆料革命、新中国联邦的价值和实力不可估量！全球自动灭共的态势将不可阻挡，共产党你完了！
 
-美国两党的参议员周四(28日)对一部年度国防政策法案提出一项修正案，将出于践踏人权原因而对中国主办的冬季奥运会实行外交抵制。这项由共和党参议员米特·罗姆尼(Mitt Romney)领衔推出的修正案与参议院今年6月通过的与中国抗衡的一揽子法案《美国创新与竞争法》中所包含的文字类似，将禁止国务卿将联邦资金用于为美国政府雇员参加北京冬奥会提供“支持或便利”。罗姆尼等参议员提出的修正案将把这项外交抵制条款加入《2022年国防授权法》。修正案呼吁“结束中国共产党持续的践踏人权行为，包括对维吾尔人的种族灭绝”。
+（本文仅限个人观点，与GNEWS无关）
 
-5、[研究证实 中国入世给美国产业和工人带来持久性伤害](https://www.voachinese.com/a/china-wto-membership-cause-lasting-hardship-20211028/6290421.html)
+参考消息：
 
-美国国家经济研究局(National Bureau of Economic Research)日前发表了一篇题为《论中国冲击持久性》(On The Persistence of The China Shock)的工作论文。三名作者研究“中国冲击”(China Shock)，也就是中国制造业的快速增长是如何对美国部分地区的就业和产业造成严重冲击的。研究称， 中国加入世界贸易组织(WTO)给美国部分地区和某些产业的工人带来持久性损害，例如工作岗位和收入的净流失，而这些伤害在中国入世20年后仍未恢复。
+[1]Despite China’s ‘irritation’, Lithuania’s position on Taiwan ‘remains unchanged’ – president
 
-（本文只代表个人观点，与Gnews网站无关）
+[https://www.lrt.lt/en/news-in-english/19/1530091/despite-china-s-irritation-lithuania-s-position-on-taiwan-remains-unchanged-president](https://www.lrt.lt/en/news-in-english/19/1530091/despite-china-s-irritation-lithuania-s-position-on-taiwan-remains-unchanged-president)
 
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+[2] Taiwan delegation visiting Lithuania amid Beijing-Vilnius tensions
+
+[https://www.lrt.lt/en/news-in-english/19/1529564/taiwan-delegation-visiting-lithuania-amid-beijing-vilnius-tensions](https://www.lrt.lt/en/news-in-english/19/1529564/taiwan-delegation-visiting-lithuania-amid-beijing-vilnius-tensions)
+
+发稿：五饼二鱼
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

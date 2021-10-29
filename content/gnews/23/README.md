@@ -2,33 +2,44 @@
 ---
 
 
-## 中共鼓噪网络民粹，要求美公布核潜艇南海事故真相
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1625236/)
+## 严格遵守公共卫生措施，悉尼健身房仍是新冠感染中心
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1625427/)
 
-#### 撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/12-19.jpg)[图片来源](https://www.sohu.com/a/455246781_632518)
-中共官媒《环球时报》10月26日通过网络发起联署，要求美国军方和美国政府公布本月初美海军核潜艇“康涅狄格”号在南海撞上“一个物体”事件的真相。
+#### 翻译/评论：月映万川
 
-截至26日晚，已有近20万网友参与联署。
+#### 编辑：文泓
 
-10月7日，美国海军宣布其“海狼”级核潜艇“康涅狄格”号于当月2日在南海潜航时撞上了“一个物体”，导致十余名船员受伤和船体部分损坏。该宣布引起了国际社会的普遍关注。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-25.jpg)
 
-近日，郭文贵先生盖特视频中爆料，10月2日美国海狼级核潜艇与中共潜艇相撞，导致中共一艘潜艇沉没。
+**`图片来源：`The Sydney Morning Herald**
+10月28日，悉尼一家健身房的拥有者对媒体说，当听说他的健身房已经成为令人担忧的新冠病毒感染中心时，他感到很沮丧。
 
-然而，美军和中共双方至今都没有公开这起撞击事件发生的具体位置，撞到的是什么物体等基本信息。
+健身房的老板比利先生表示，这太让人震惊了，健身房完全按照新南威士州卫生部的防疫细则来执行的，而且根据规定，来健身房的人都是完全接种者。但是，这些措施似乎并没有减少传播的机率。
 
-世人皆知，破坏南海自由航行、威胁地区安全是中共。中共此时炒作民意激发民粹，应是与近期美日、美日印澳以及美国重返东亚峰会有关。
+周三，州卫生部已经确认15人在使用过该健身房后出现了新冠阳性反应。
 
-信息来源：
+任何人在10月18-23日期间，以及25号使用过该健身房，必须要马上核酸测试，并自我隔离到直到阴性结果为止。这其中包括2剂疫苗接种者。
 
-[《环球时报》发起联署：要求美公布核潜艇南海事故真相](https://world.huanqiu.com/article/45KiwvAXbOT)
+当然，有关15位感染新冠者是否是完全疫苗接种者，卫生部门和媒体并没有谈及。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+**新闻评论：**
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+目前新南威尔士州是完全疫苗接种最高的州之一，悉尼也是最早开始疫苗经济尝试的地区。民众在政府和媒体持续不断地宣传洗脑后，盲目的认为疫苗是克制新冠病毒的核心，高疫苗率等于低感染率。
 
+而悉尼健身房成为新冠病毒传播中心就是对这一理论很好的打脸，也是为即将到来的新州和维州大解封敲响了警钟。如果澳洲政客的无耻加上迷信疫苗的民众再不醒悟，相信不久的将来，病毒感染率还会重新回到高位，并且更多的死亡也会到来。
+
+（文中仅代表作者个人观点，与Gnews平台无关）
+
+新闻链接：[City Gym owner in Sydney speaks of ‘huge shock’ after 15 people catch COVID-19 | Sunrise (7news.com.au)](https://7news.com.au/sunrise/on-the-show/city-gym-owner-speaks-of-huge-shock-after-15-people-catch-covid-19--c-4352734)
+
+发布：文泓
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
