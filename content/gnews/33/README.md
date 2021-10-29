@@ -2,35 +2,28 @@
 ---
 
 
-## 秘翻在线:&#8221;数字疫苗护照&#8221;的背后阴谋是要推动ID4D计划
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1625972/)
+## 秘翻在线：安全研究人员警告iPhone用户应从手机上删除“它”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1626013/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Image-2-2.jpg)
-图片:网路
+撰稿：文字焼
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16355128671.png)图片来源：[https://www.wowkorea.jp/news/newsread\_image.asp?y=1 HYPERLINK “https://www.wowkorea.jp/news/newsread\_image.asp?y=1&imd=320558″& HYPERLINK “https://www.wowkorea.jp/news/newsread\_image.asp?y=1&imd=320558″imd=320558](https://www.wowkorea.jp/news/newsread_image.asp?y=1&amp;imd=320558)
+据日本雅虎新闻报道，具有代表性的网络社交平台–脸书（Facebook）会擅自收集苹果（iPhone）用户的照片和位置等个人信息。
 
-**疫苗护照是”数字身份证”的前身**
+美国商业杂志《福布斯》包括汤米·米斯克在内的几位安全研究人员警告说，应该从iPhone上删除Facebook应用程序。
 
-根据《零对冲》的报导，2014 年于印度实施的Aadhaar数据库中有超过 10 亿印度人，是有史以来最大的生物识别数字身分辨识系统。Aadhaar 的创造者南丹·尼勒卡尼 (Nandan Nilekani)与比尔·盖茨 (Bill Gates)正试图将Aadhaar 的生物识别数字 ID 程序引入全球。
+今年4月，苹果公司通过其新的操作系统推出了应用跟踪透明化（ATT）功能，该功能阻止了对个人数据的跟踪，可以防止APP收集你的位置或任何其他个人信息。因此，包括Facebook在内的所有应用程序上的定向广告受到了限制。
 
-他们利用中共病毒爆发的机会，推动”疫苗护照”，加速建立全球数字身份的基础设施，并推动”发展数位身分辨识( ID4D，Identification for Development）”的计划，借以通过创建跨系统的链接，允许用户对自己的关键服务进行身份验证，以便接受社会转移支付、完成金融交易和跨越边界。
+然而，安全研究人员指出，Facebook正在使用iPhone的加速度计来跟踪用户的动作。加速计提供的加速度数据消除了重力对物体的影响，使用户能够看到他们移动的速度。利用这些传感器，可以识别用户是躺着、坐着还是走着，甚至可以估计其位置。
 
-正如军事监视公司和北约承包商Thales Digital Identity & Security 所说，疫苗护照是”数字身份证”的前身。生物识别 ID 公司和国土安全承包商 iProove 的首席执行官强调 ，推展”疫苗护照”就是要对人类实施数字身分辨识系统。
+另外，也很难拒绝Facebook的位置跟踪功能。Facebook应用程序本身会通过分析振动模式和其他因素来推断你的位置。米斯克说：“防止信息泄漏的唯一方法是删除Facebook。”
 
-**盖茨及所有熟悉的科技商业巨头正在利用ID4D计划监控人类**
+据安全研究人员称，在Tik-Tok、Wechat、iMessages和Telegram等主要社交网站中，Facebook是唯一使用加速计收集位置数据的APP。实际上，对于iPhone用户来说，Facebook是最容易发生信息泄露的。
 
-2016 年，盖茨基金会为“发展数位身分辨识 (ID4D) 计划”项目筹措资金，合作夥伴包括盖茨基金会和奥米迪亚网路，澳大利亚及英国。迄今为止，世界银行已投资 12 亿美元 ，目标是创建“使用 21 世纪解决方案的身份识别系统”。
+信息来源：[https://news.yahoo.co.jp/articles/68d8a09319af62c23c454f3c730f38d1c83ffdd4](https://news.yahoo.co.jp/articles/68d8a09319af62c23c454f3c730f38d1c83ffdd4)
 
-世界经济论坛明确表示，最终目标是扩大印度Aadhaar建立的模式，让世界上每个人都拥有一个唯一的数字 ID。世界经济论坛的合作夥伴包括生物识别 ID 公司埃森哲、亚马逊、巴克莱银行、德意志银行、汇丰银行、万事达卡、生物识别技术公司 Simprints 和信贷巨头 Visa。
+（文章仅代表作者个人观点）
 
-**只有真相能够打败邪恶的阴谋**
-
-包括你所用的信用卡公司万事达卡及Visa、银行、亚马逊等公司，都企图利用
-ID4D监控人类，邪恶变态到令人作恶 ! 他们扭曲变形的内心，隐藏的是何等丑陋诡谲的腐朽灵魂?
-
-只有披露真相，才能让这些邪恶的暗黑势力曝晒在阳光之下。只有光明，才能战胜黑暗。
-
-消息来源:[Public Health Or Private Wealth? How Digital Vaccine Passports Pave Way For Unprecedented Surveillance Capitalism](http://Public%20Health%20Or%20Private%20Wealth?%20How%20Digital%20Vaccine%20Passports%20Pave%20Way%20For%20Unprecedented%20Surveillance%20Capitalism)
+责编：待命（文晓）
 
  
 

@@ -2,36 +2,35 @@
 ---
 
 
-## 蓬佩奥表示，中共伤害美国人和绝大多数中国人民的利益
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1625941/)
+## 秘翻在线:&#8221;数字疫苗护照&#8221;的背后阴谋是要推动ID4D计划
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1625972/)
 
-作者：日本方舟农场 Andy5
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Image-2-2.jpg)
+图片:网路
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**疫苗护照是”数字身份证”的前身**
 
-10月26日，美国前国务卿蓬佩奥在接受FOX新闻的采访时表示，中共从来没有丝毫在乎过人权。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-29-at-8.49.48-PM.png)
-蓬佩奥提到，中共在明知新冠病毒具有致命性，但仍然任由感染者将该病毒散播到意大利，从而危及了全世界的民众。更甚者，中共的领导人粗鲁地犯下了种族灭绝的罪行。
+根据《零对冲》的报导，2014 年于印度实施的Aadhaar数据库中有超过 10 亿印度人，是有史以来最大的生物识别数字身分辨识系统。Aadhaar 的创造者南丹·尼勒卡尼 (Nandan Nilekani)与比尔·盖茨 (Bill Gates)正试图将Aadhaar 的生物识别数字 ID 程序引入全球。
 
-蓬佩奥认为，中共的领导者一直在积蓄实力，同时窥探美国的弱点，试图以此来让自身受益。此前，克里希望能通过美国主动做出利益牺牲，来带动中共减少碳排放。但此举的结果是，美国损失了美国人的就业岗位、劳动报酬乃至经济，但中共却毫无作为。
+他们利用中共病毒爆发的机会，推动”疫苗护照”，加速建立全球数字身份的基础设施，并推动”发展数位身分辨识( ID4D，Identification for Development）”的计划，借以通过创建跨系统的链接，允许用户对自己的关键服务进行身份验证，以便接受社会转移支付、完成金融交易和跨越边界。
 
-对于习近平，蓬佩奥认为，习一直相信他会跟一个不会保护美国利益的领导者谈判，从而能通过诱导得到一份对中共有利的协议。 但蓬佩奥批评，这种协议在严重伤害美国人的同时，也会伤害绝大多数中国人的利益。
+正如军事监视公司和北约承包商Thales Digital Identity & Security 所说，疫苗护照是”数字身份证”的前身。生物识别 ID 公司和国土安全承包商 iProove 的首席执行官强调 ，推展”疫苗护照”就是要对人类实施数字身分辨识系统。
 
-参考链接： [蓬佩奧國務卿接受Ingraham Angle採訪](https://gettr.com/post/pfc8bibb89)
+**盖茨及所有熟悉的科技商业巨头正在利用ID4D计划监控人类**
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+2016 年，盖茨基金会为“发展数位身分辨识 (ID4D) 计划”项目筹措资金，合作夥伴包括盖茨基金会和奥米迪亚网路，澳大利亚及英国。迄今为止，世界银行已投资 12 亿美元 ，目标是创建“使用 21 世纪解决方案的身份识别系统”。
 
-编辑/总编：Irene木木
-校正/发稿：我不在这里
+世界经济论坛明确表示，最终目标是扩大印度Aadhaar建立的模式，让世界上每个人都拥有一个唯一的数字 ID。世界经济论坛的合作夥伴包括生物识别 ID 公司埃森哲、亚马逊、巴克莱银行、德意志银行、汇丰银行、万事达卡、生物识别技术公司 Simprints 和信贷巨头 Visa。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**只有真相能够打败邪恶的阴谋**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+包括你所用的信用卡公司万事达卡及Visa、银行、亚马逊等公司，都企图利用
+ID4D监控人类，邪恶变态到令人作恶 ! 他们扭曲变形的内心，隐藏的是何等丑陋诡谲的腐朽灵魂?
+
+只有披露真相，才能让这些邪恶的暗黑势力曝晒在阳光之下。只有光明，才能战胜黑暗。
+
+消息来源:[Public Health Or Private Wealth? How Digital Vaccine Passports Pave Way For Unprecedented Surveillance Capitalism](http://Public%20Health%20Or%20Private%20Wealth?%20How%20Digital%20Vaccine%20Passports%20Pave%20Way%20For%20Unprecedented%20Surveillance%20Capitalism)
 
  
 
