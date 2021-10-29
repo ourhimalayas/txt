@@ -2,36 +2,27 @@
 ---
 
 
-## 拜登表示对台湾的承诺坚如磐石
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1624262/)
+## 加密货币顺势而生，喜币为王汇通天下
+` 军迷wilson` [轉載自GNews](https://gnews.org/zh-hans/1624308/)
 
-作者：澳喜农场 – 在远方
+#### 加拿大多伦多枫叶农场  军迷wilson
+![](https://assets.gnews.org/wp-content/uploads/2021/10/360DC6FE-9FF9-4763-9E14-855341151472.jpeg)来源：himalayaexchange
+郭文贵先生在最近的直播中强调，喜马拉雅货币体系是一个超越国家主权级别的金融货币体系，她肩负着打破各国政府和沼泽地垄断这个世界的货币发行权、生产力定价权和财富分配权的历史使命，这个权力最终应归属于人民。
 
+郭先生说，人类的交易形式只有向数字化转型，才能适应、激发七十多亿人的巨大生产力和创造力，当前的加密货币和数字化金融就是顺应历史发展而生。新中国联邦的Himalaya货币体系到目前为止，还没有任何人设计出类似的交易结构，她是独一无二的。
 
+除了中共等为数不多的极权主义者，几乎所有人都认为在数字信息时代，信用是让竞争者立于不败之地的第一要素。相较于以主权背书的纸币，信用是货币的生命之源，是货币的根本属性。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
+由于新中国联邦是全世界唯一以消灭邪恶中共为己任的正道主义实体，在全世界范围内树立了良好的声明，成了当今人类文明的新灯塔，因此喜马拉雅货币体系和G商业系列具备了最大化的信用特征。蜂涌而至的投资者订购的实际上是新中国联邦的信用红利和美好的未来。
 
+除了信用，评判一个货币价值的另一个标准是该货币的普遍接受性，就是使用的人是不是足够多。郭先生领导的新中国联邦，正在构建跨越国界的货币发行、金融服务、媒体集团、商业连锁等顶级生态系统，为喜币打下了“汇通天下”的坚实基础。
 
+参考来源：
 
-美国总统拜登10月27日在东亚领导人峰会上表示，美国对中共国的胁迫行为深感关切，因为中共的行为对地区的和平与稳定造成了威胁。他说美国各届政府对台湾的承诺是一贯的，而且坚如磐石，该承诺将有力维护台湾海峡的和平与稳定。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-18.jpg)
-拜登总统的表态回应了此前美国前国务卿蓬佩奥要求拜登信守承诺的呼吁，结合布林肯对支持台湾加入联合国系统的声明，表达了美国在台湾问题上的坚定立场。
+[泰山2021/10/27盖特](https://gettr.com/post/pfb267c318)
 
-参考链接：[拜登表示对台湾的承诺坚如磐石](https://www.voachinese.com/a/Biden-east-asia-summit-taiwan-south-china-sea-20211027/6288115.html)
+（文章仅代表作者观点，与GNEWS无关）
 
-![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,43 +2,49 @@
 ---
 
 
-## 蔡英文曝美台军事联系 美中台博弈升级
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1625699/)
+## 郭先生：DWAC内幕交易问题将暴露中共渗透美国司法界的行动
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1625767/)
 
-**By:秘翻新闻**
+**撰稿：日本东京方舟农场 海星**
 
-***2021-10-29***
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/1029-1.png)](https://gtv.org/broadcast/watch/617bb6f411d1862968fc9cc2)点击图片观看视频
-**新闻摘要:**
+据盖特（gettr）用户秘密翻译组发布的视频，爆料革命、新中国联邦创始人郭文贵先生在10月27日的直播中表示，DWAC涉嫌内幕交易的问题将暴露中共对美国司法界实施的全面渗透行动。
 
-1.  金钱是有主人的：郭先生的“以钱灭共”战略内涵
+郭先生披露，中共代理人吴征在两年前就被美国联邦调查局（FBI）刑事调查，此次不仅故意隐瞒被调查的事实，更利用SPAC空壳公司DWAC收购了川普总统的科技公司，并在上市后操控其股价，瞬间吸走投资人的钱。郭先生表示，美国SEC一定会对这个案子进行调查。
 
-2. 国内汽车芯片黑市价被爆飙涨数百倍
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10.261.jpg)
 
-3. 标普警告：1/3中国房地产公司恐破产
+此外，在投资DWAC的11家基金中，有8家基金是由中共控制，来自吴征以及运鸿集团，而且这8家公司因为太平联盟而进行投资。这就意味着中共和太平联盟高度合作。
 
-4. 黑龙江省爆发新疫情 封城进入紧急状态
+郭先生分析说，由于吴征在DWAC收购案的法律文件上清楚地写下了他和太平联盟以及相关律师事务所的关系，这将会揭穿共产党通过太平联盟对整个美国律师界、司法界、法院、检察官等领域实施渗透的犯罪行动。
 
-5. 蔡英文曝美台军事联系 美中台博弈升级
+*注：本文仅代表作者观点，与 Gnews无关*
 
-6. 印度试射核弹头飞弹 射程可及中共国大部分重要城市
+*参考链接：*
 
-7. 佛罗里达州将就美联邦的中共病毒疫苗规定起诉拜登政府
+[10/27/2021 Miles Guo: The issue of DWAC indicates the scams and criminal offenses committed by Bruno Wu on behalf of the CCP, and this is the greatest gift to the New Federal State of China and will expose the CCP’s infiltration, fraud, and conflict of interest among the lawyers, and in the prosecutors and courts in the US](https://gettr.com/post/pfde174c6a)
 
-8. 美威斯康星州最高法院拒绝为病人使用伊维菌素
 
-9. 美前总统之子在中共智库节目中淡化中共病毒来源
 
-10. 深陷「脸书报告」丑闻 脸书宣布改名：Meta
+> [10/27/2021 Miles Guo: Eight to nine out of the eleven funds investing in DWAC did so because of PAG](https://gnews.org/1622235/)
 
-**GTV链接：**[https://gtv.org/broadcast/watch/617bb6f411d1862968fc9cc2](https://gtv.org/broadcast/watch/617bb6f411d1862968fc9cc2)
 
-发布: 文橙
+
+
+
+> [2021年10月24日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1617154/)
+
+
+
+
+
+> [郭先生多起案子背后全是吴征](https://gnews.org/zh-hans/1617547/)
+
+
 
 * * *
 
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+*编辑：文顺 校对：Ranting 发布：Ranting*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

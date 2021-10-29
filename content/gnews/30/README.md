@@ -2,63 +2,26 @@
 ---
 
 
-## ONS数据：完全接种疫苗的死亡率六倍于未接种者
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1625621/)
+## 台湾属于联合国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1625669/)
 
-**编译：西班牙巴塞罗那喜悦农场-wenwu**
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-168.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp5.toutiaoimg.com%2Flarge%2Fpgc-image%2F44215bead91e4c56a025b2e64b639938&amp;imgrefurl=https%3A%2F%2Fsunnews.cc%2Fmilitary%2F168730.html&amp;tbnid=pImPSedAsoh_CM&amp;vet=12ahUKEwjv0OOEo-_zAhWWdHAKHX32BpwQMygIegUIARDMAQ..i&amp;docid=uOv0YRgJuTfstM&amp;w=640&amp;h=427&amp;q=%E5%8F%B0%E6%B9%BE%E5%B1%9E%E4%BA%8E%E8%81%94%E5%90%88%E5%9B%BD&amp;ved=2ahUKEwjv0OOEo-_zAhWWdHAKHX32BpwQMygIegUIARDMAQ)
+中共对台湾发出的武力威胁，也使台湾问题得到了更多国际关注。大赦国际关闭香港办事处，反对派处境更加险恶。“到访2021年的台湾，你会有两项发现。其一：台湾仍不能参加联合国大会。其二：现在的台湾同当年的台湾已经发生质的变化。从1990年实现民主化以来，这里已经发展出充满活力的公民社会。这里有言论和出版自由，这里有分属不同政治光谱的政党，2019年，台湾成为亚洲第一个同性婚姻合法化的国家。这里民众的绝大多数并不认同自己是中国人。国立政治大学最新的一次民调显示，大约63.3%的受访者认为自己是台湾人，认为自己是中国人的只占2.7%, 认为自己既是台湾人，也是中国人则占31.4%。主张尽快或稍后同中国统一的受访者只有区区7.4%。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip91.png)
+“总统蔡英文是维持台湾现状的积极倡导者，一方面保持台湾实际上的独立状态，但另一方面，为了捍卫和平，放弃公开宣布独立。有一个事实往往被忽略，那就是无论是毛时代，还是习时代，中共的统治权从未涵盖台湾。中共国1949年才成立，仅此一点，所谓‘统一’和‘分裂省份’的说法就根本站不住脚。而一旦中国武力攻台，则是赤裸裸的侵略行为。”
 
-来自英国国家统计局（ONS) 的首次原始中共病毒（Covid-19）死亡率和所有原因（全因）死亡率数据显示，从 2021 年 4 月底到 7 月初，打了两针中共疫苗的人的死亡率（包括所有死亡方式）可能性是未接种疫苗的人的六倍。（如下图，5.91:31.50）。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip92.png)图片来源于 theexpose.uk（[The data can be downloaded from the ONS in Excel format here.](https://www.ons.gov.uk/file?uri=%2fpeoplepopulationandcommunity%2fbirthsdeathsandmarriages%2fdeaths%2fdatasets%2fdeathsbyvaccinationstatusengland%2fdeathsoccurringbetween2januaryand2july2021/dataset.xlsx)）
- 
-以上国家统计局使用其报告中解释的是以复杂的年龄标准化死亡率公式，计算了每10万的死亡率（[如下图](https://www.ons.gov.uk/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/methodologies/weeklycovid19agestandardisedmortalityratesbyvaccinationstatusenglandmethodology)）。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip93.png)
-注：图片来源于 www.ons.gov.uk
-这数据表应该是为了消除上表中的年龄混杂因素，但他们并没有提供他们在公式中使用的年龄段的原始数据。因此，人们无法检查该公式的重要方面。
+“十月以来，中国方面出动上百架次军机进入台湾领空，足以显示台海军事已经进入一触即发的紧要关头。德国和国际社会不应对此视而不见。”评论最后写道：“台湾的2350万民众无法在联合国这一最重要国际机构发出声音，一个有信服力的德国政府不应再对这一状况视而不见。德国政府必须要为台湾重返国际社会发出坚定的呼吁，短期内，让台湾获得观察员身份，长远而看，则应让台湾拥有联合国席位。”
 
-因此，我们决定只使用上面公布的原始数据，并通过将死亡人数除以人口并乘以10万来计算每10万的死亡率。我们使用excel进行计算，因为国家统计局以excel格式提供所有的数据。
+信息来源：
 
-（表格）第11栏中每10万人中未接种疫苗的中共病毒死亡人数=100,000 x 第3栏/第6栏；第14栏中未接种疫苗的每10万人中所有原因的死亡人数=100000 x 第5栏/第6栏。
+[德语媒体：台湾属于联合国](https://www.dw.com/zh/%E5%BE%B7%E8%AF%AD%E5%AA%92%E4%BD%93%E5%8F%B0%E6%B9%BE%E5%B1%9E%E4%BA%8E%E8%81%94%E5%90%88%E5%9B%BD/a-59631695)
 
-第12栏中的每10万名接种疫苗的中共病毒死亡人数=100000 x 第7栏/第10栏；第15栏中的每10万名接种过疫苗的全因死亡人数=100000 x 第9栏/第10栏。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-以 Covid-19 死亡人数衡量的疫苗效率为：第13栏=（第11栏-第12栏）/两栏中较大一栏的百分比（%）；以所有原因（全因，任意死亡方式）造成的死亡来衡量的疫苗效率是：第16栏=（第14栏-第15栏）/两栏中较大一栏的百分比（%）。
-
-死亡因素是指每10万人中接种疫苗的所有原因的死亡率与未接种疫苗的比率。
-
-这些数字令人吃惊地揭示了问题。 使用第13栏中已接种疫苗和未接种疫苗的 Covid 死亡人数的归一化绝对比率，我们清楚地看到，正如辉瑞公司和 Moderna 公司所声称的那样，疫苗最初对所谓的原始 Covid-19 变体有97%的效果。
-
-但到了4月，它们在防止中共病毒死亡方面的有效性几乎从原始数据中消失了，在某种程度上是被接种疫苗和未接种疫苗的年龄差异所掩盖。此后，值得庆幸的是，无论是接种中共疫苗的人还是未接种疫苗的人，死亡数字（Covid-deaths per 100k）都相当低。所以我们看到的只是零点附近的噪音。
-
-随着年龄差异在7月份（最后一栏）的消失，中共疫苗也许有一点可辨的优势。然而，在那里并没有看到什么惊人之处（打疫苗和未打疫苗是没有差别的）。
-
-但是，当我们看所有原因的死亡率时，我们终于对这些中共疫苗的 mRNA 基因治疗方面的损害,有了一些了解。
-
-从4月底到2021年7月初，每10万名打了两针中共疫苗接种者的总体死亡率比未接种疫苗者高6倍左右。这些死亡率包括所有由副作用引起的死亡。
-
-这是英国政府首次公布的设法捕捉这一数字的数据。在这一时期的开始，的确，打了两针疫苗接种者的平均年龄比未接种者大得多。因此，预计接种疫苗的群体的死亡率会更高。
-
-但是，英国所有18岁以上的成年人在6月18日之前都被叫去打第一针，那时建议的两针之间的间隔时间已经减少到8周。所以所有的成年人在8月13日之前都被叫去打了第二针。因此，到9月底，接种疫苗的人和未接种疫苗的人之间的年龄差异已经可以忽略不计了。
-
-但是，如果我们把非年龄调整后的死亡因素数字向前推12周，到9月24日（第38周），它们显然仍然是非常红的，而且肯定高于3。
-
-到第26周，英国有 71% 的总人口接种了两针中共疫苗。因此，鉴于 8-9% 的人永远不会接种这些疫苗，意味着大部分工作已经完成了。事实上恰恰相反。它们使人们更有可能感染德尔塔病毒，更有可能死亡。
-
-诺曼·芬顿和马丁·尼尔教授已经对这一数据进行了进一步的分析，可以在[这里](https://theexpose.uk/2021/10/26/the-uk-governments-own-data-does-not-support-the-claims-made-for-covid-19-vaccine-safety-effectiveness/)（英国政府自己的数据不支持 Covid-19 疫苗安全性和有效性的声明）查看。
-
-（文章仅代表作者观点与GNEWS无关）
-
-**新闻来源**：[theexpose.uk] [ONS Data reveals the Fully Vaccinated are 6 times more likely to die than the Unvaccinated due to all-causes](https://theexpose.uk/2021/10/27/fully-vaccinated-6-x-more-likely-to-die-than-unvaccinated/) | 发布时间：2021年10月27日｜
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

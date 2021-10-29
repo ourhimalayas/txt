@@ -2,38 +2,36 @@
 ---
 
 
-## 澳洲广播电台机构与脸书、谷歌谈判要为新闻内容付费
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1625695/)
+## 美议员推新法案全球追踪中共活动
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1625746/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/google-facebook-new6-1920-800x450-1.jpg)
+10月27日，美国国会共和党人推出名为“中（共）国观察法”（China Watcher Act）的议案，计划将在国务院设立新项目，以监测、追踪和抗衡中共国在国际社会的军事、经济和政治动态。
 
+据美国之音报道，来自纽约州的共和党联邦众议员坦尼（Rep. Claudia Tenney, R-NY）星期三推出名为“中（共）国观察法”（China Watcher Act）的议案。该法案计划在2022财年拨款一千万美元在国务院成立新的“中（共）国观察项目”（China Watcher Program），锁定中共在国际领域的各种影响力为目标进行观察。
 
+根据内容，法案指示国务卿在与国防部长协调后在国务院内设立一项新的“中（共）国观察项目”。该项目将追踪和抗衡中共在外国的军事、经济和政治领域的恶意影响；强化美国政府与外国以及区域和国际机构的沟通能力，以应对中共恶意影响的政策；派驻外交事务官员到美国特定驻外外交和领事职位，与中共国和包括所在国的第三方国家在涉及中共恶意影响的议题上进行接触；指示国务卿将受到中共影响并涉及到美国在当地利益的国家列为优先要务。
 
-图片来源：searchengineland.com
+![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211029121428.png)图片来源：https://www.voachinese.com/a/us-gop-lawmaker-introduces-china-watcher-act-20211027/6288717.html
 
+法案还要求“中（共）国观察项目”的外交和领事职位必须提出年度报告，内容必须包含提出建议、讨论趋势和分析事态，包括中共国在外国关键产业直接投资的性质和范围。
 
-#### 编译：小红帽
+坦尼在书面声明中表示，法案的目的在于为美国政府提供更多资源，以便更好地掌握中共的各种势力扩张和影响力渗透，并同时增加政府各部会之间合作应对任何可能威胁。她说，“中共国横行无阻太久了，现在是美国采取果断行动的时候了。”
 
-澳大利亚的竞争监管机构周五允许一家代表261家广播电台的机构与脸书（Facebook）和谷歌（Google）谈判协议内容，作为该国迫使科技巨头为新闻内容付费新法律的一部分。
+众议院外交事务委员会首席共和党成员麦考尔（Rep. Michael McCaul, R-TX）也在书面声明中说，“在中国共产党统治下，中共国从事的恶意活动遍布全球各地，这项挑战与其它挑战都不同，需要具有全球战略眼光，美国国务院有必要成立一个专门小组，追踪中共国的恶意活动。”
 
-澳大利亚商业广播电台（CRA）现在有10年的时间为其成员与技术巨头谈判，但《九娱乐》（Nine Entertainment）除外。澳大利亚竞争和消费者委员会（ACCC）表示，《九娱乐》已经获完成了交易。
+目前这项法案获得众议院两党七位议员的联署支持，包括共和党人麦考尔、杰克逊（Rep. Ronny Jackson, R-TX）、梅杰尔（Rep. Peter Meijer, R-MI）、曼恩（Rep. Tracey Mann, R-KS）和巴宾（Rep. Brian Babin, R-TX）,以及民主党人席瑞斯（Rep. Albio Sires, D-NJ）和菲利普斯（Rep. Dean Phillips. D-MN）。
 
-自3月以来，脸书和字母控股（Alphabet）旗下的谷歌公司被要求与澳大利亚媒体就其网站带来流量和广告的内容进行谈判。如果他们不这样做，政府可能会接管谈判。
+*注：本文仅代表作者观点，与 Gnews无关*
 
-然而，这并不是一帆风顺，一些出版商被排除在外。在9月，脸书表示会停止许可证交易的谈判。
+*参考链接：*
 
-8月，澳大利亚竞争和消费者委员会允许另一个行业机构，澳大利亚国家新闻社代表其81家新闻出版商与这两家公司进行谈判。
+[美议员推跨党派法案 在全球追踪抗衡中国](https://www.voachinese.com/a/us-gop-lawmaker-introduces-china-watcher-act-20211027/6288717.html)
 
-**参考新闻：**[Australian Regulator Allows Radio Station Body to Negotiate Content Deal With Facebook, Google | Technology News (ndtv.com)](https://gadgets.ndtv.com/internet/news/facebook-google-australia-regulator-cra-radio-station-negotiate-content-deal-2592124)
+* * *
 
-***发布：小红帽*****更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*编辑：文顺 校对：Ranting 发布：Ranting*
 
  
 

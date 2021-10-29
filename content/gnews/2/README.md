@@ -2,48 +2,143 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“吴征、杨澜”（二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1625820/)
+## 权威机构的投资认定是决定喜马拉雅币价值的关键之一
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1625849/)
 
-**整理：BENJ1**
-**编辑：Kelly**
+整个喜联储
+Todo el Banco Central de Himalaya
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/文贵天成.jpeg)图片来源：雅典娜设计组（精灵蓝）
+当它宣布它的投资者机构
+Cuando él anuncie su organización inversora
 
+记住啊
+Recuerden
 
-**往期回顾：**
+投资者机构真正的投钱
+La verdadera inversión de dinero de la organización inversora
 
-[文·贵天成——文贵先生谈“吴征、杨澜”（一）](https://gnews.org/zh-hans/1625792/)
+不是猫本小哥投的
+No es invertido por el hermano Maoben
 
-**郭文贵先生2017年9月15日谈雷洋案第二部分：**
+也不是花王投的
+Ni Hua Wang
 
-那么，这个他们看到了吴征和杨澜，还有这个王芳什么事呢？任何一个人，但凡去查查雷洋在死之前过去前两年，他都参加过什么活动？跟哪些同学见过面？他都跟谁有过通信？出过哪里的差？ 当时杨澜大量的负面信息：在杭州的事和别人男人的事以及自己骗钱的事和吴征造假的事，在广泛传播。你看那个是谁？那几个人和雷洋什么关系？大家就知道了。为什么吴征、杨澜和王芳，还有周小平、孟建柱、孙立军必须置雷洋于死地？当时为什么傅政华又参与了呢？因为，其中也牵扯到傅政华，傅政华被孟建柱和吴征、孙立军和李东同时给绑架在了一起，这是一起惊天大案！
+也不是你的这个微蓝投的
+Tampoco Wei Lan
 
-跟文贵来打这个生殖器之战，是由吴征到美国来，全面指挥。天天在纽约，找的所有的华侨华领、黑客袭击，全都是由吴征开始的；和博讯所有的联系，都是吴征开始的。因为吴征最怕的，就是这些事实的败露。
+也不是你RACHEL投的
+O Rachel
 
-吴征是典型的中国培养的特务，他到底该去哪儿？大家拭目以待！吴征在我中间，我第一次爆料以后找了一个我的好朋友，我尊敬的老领导，说我不再爆他的料，他提供给韦石的付款单，四十九万，我再不爆料了，所以从那天到现在我没爆过。
+是真的可信服的人投的
+Es invertido por alguien que es realmente convincente
 
-但是最近这两三个月来吴征上蹿下跳，骗我的事情现在已经是不在乎了。出来了，到美国来找所有可能接近我、认识我的人。一、给钱杀我；第二、造我的谣；第三、所有的马蕊强奸案是吴征找的律师，全面运作，他和孙立军。这个他以为我不知道，咱们钓钓鱼嘛，让子弹飞一会儿，干吗那么早说出来呢？
+也不是七哥的男朋友女朋友投的
+Tampoco es mi novio o novia
 
-吴征曾经在跟我通讯的语音当中明确告诉我：李东是他培养的兄弟，战斗了多年。（通讯录音）我未来都会放出来。在今天之前，我没向美国FBI提供过任何关于吴征的资料，但是，接下来我会把他所有的资料提供给美国FBI。那么海外的私生子还有这些钱，包括这些律师打官司，包括找董克文，全都是吴征的安排。我原来不说，我想钓钓鱼，让他们充分的表演。包括许诺给博讯、包括给屎诺、包括什么夏屎良，章痔疮夏痔疮，这全都是孙立军吴征和李东的安排。因为他们都属于沉默的力量！包括VOA电视的张晶，他属于北京局管的，当时老领导跟我通话明确的说，张晶是我们的人，他是我们沉默的力量！
+有权威的机构投了喜联储
+Es una institución autorizada que invirtió el Banco Central de Himalaya
 
-所以，所有的推友们，我文贵今天爆的这个料，我希望大家千万别当成看笑话，和当黄色笑话。我希望大家静下心来，上网查一查，我所有说的资料，大家都有据可查，不用文贵说就能明白，其中器官移植，拿走器官的事情，杨澜知情，吴征知情。我非常担心吴征和杨澜也被他们消灭掉，我不希望他们死。
+认可你的价格
+Acepta tu precio
 
-杨澜做完手术以后，高度保密！她找了她其中一个情人，是一位新疆的朋友，告诉这位新疆的朋友，她说你们新疆的人出去一定要注意安全，否则你们会以各种理由被抓起来，把你的肝或者肾给拿掉！这位她的新疆男友用她的话说叫性伙伴，很惊讶！这个人已经到国外来了。因为吴征根本没有性能力，不吃药根本不行，吃了药可能更不行。所以她喜欢这个，然后也讲述了这些老领导，包括一些她说出来的这些人，这些性变态，导致了她子宫癌，在协和做的。
+比如说我评估你是10亿美元
+Por ejemplo, yo te valoro a mil millones de dólares
 
-接下来，我也会让大家看到，不同的方式看到，杨澜女士遭受了什么样的性虐待？用什么样的生殖器建立了这个强大的政法关系？为什么在重大国家事件上，她要出来主持？没有孟建柱可能吗？没有孙立军可能吗？为什么王芳一个作为这样的女人，唱的叫《英雄的赞歌》，2014年，又唱了一个非常棒的歌叫《美丽的中国梦》，这个美丽的中国梦就是唱给习主席听的嘛！把她变成政治歌手，政治歌手唱给了政治红人周小平，嫁给了政治红人周小平，“身许国家心许你”。这一个人都身心分离，那你岂不是魔鬼嘛？你心那也是假的，心都在这儿身不在这儿，你跟谁做爱去啊？！身在那儿心不在这儿，你骗谁呢？！身许国家心许你，叫做身心分离，这样的话也能说得出来？还成为中国年轻人的偶像？！是呕吐的对象吧？你明知道你的妻子肚子上的疤痕和她前后多次住院被虐待的伤痕，你明知道你为什么得到了今天这个位置，为什么让她唱中国梦？你又为什么出来批评人家雷洋？关你什么事啊？中国老百姓说的话，无利不起早！(看了一眼手机屏幕)五毛不用管了，越多越好，五毛的多恰恰说明了我们的成功和胜利！
+我评估你是20亿美元
+Calculo que eres dos mil millones
 
-所以大家你们看一看，自从爆孟建柱开始、孙立军开始，完全不同于爆付政华和王岐山，铺天盖地的五毛，然后第二次强奸的红通。吴征迫不及待地到美国找各种黑道杀手，竟然许诺一个律师要给一千万美元，只要你去反郭文贵。策划我的律师跟我造反，给人家五百万美元，多大的钱呢？！这不就是孟建柱有害怕的吗？如果郭文贵爆的都是强奸郭、郭三秒，那你怕啥呀？！郭文贵造谣诽谤告他呀？！
+我评估你是200亿美元
+20 mil millones de dólares
 
-恰恰这么多五毛、恰恰你的网络控制、恰恰你们跳了出来、恰恰愚蠢地找了吴征这种傻到不能再傻、骗到不能再骗的人，代表了国家机器，你让我看到了你们的懦弱、愚蠢！你让我看到了这个国家真正地走到民主自由法治的希望！因为你们当贼都不会。
+这个是整个喜币未来, 最牛的最关键之一
+Este es el futuro más crucial e importante de la moneda de Himalaya
 
-发布：Janek
+什么意思大家知道吗
+Qué significa esto, ¿ustedes saben?
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+你自己玩儿是吧
+Quieres jugar tú mismo, cierto
+
+你自己关上门
+Cierras la puerta
+
+买两个按摩器
+Compras dos masajeadores
+
+你叫的再高潮
+Por más que sientas orgasmo
+
+那叫自淫, 知道了吧
+Eso se llama masturbación, ¿de acuerdo?
+
+你叫花王跟Estie在屋里边
+Tú le dices a Hua Wang y Estie por más que griten
+
+他俩怎么喊
+Dentro de la casa
+
+他即使是自己假喊的  A pesar que él esté gritando de mentira
+
+你都认为这俩人搞出来的动静
+Igual piensas que es algo que ellos dos provocaron
+
+这叫什么, 这叫高潮
+Cómo se llama esto, orgasmo
+
+这是完全两回事儿
+Esto son dos cosas diferentes
+
+谁能跟喜币来玩真高潮
+Quién puede jugar al orgasmo real con la moneda de Himalaya
+
+这个是证明了你的(价值)
+Esto comprueba tu valor
+
+七哥有时候讲的是黄色(笑话)
+Yo a veces digo humores descoloridos
+
+但是大家能懂
+Pero todos pueden entender
+
+知道吗
+Verdad
+
+以黄传达真相是最好的方式
+El humor descolorido es la mejor forma para transmitir la verdad
+
+就像抖音就这么成功的
+Así fue Tik Tok como se hizo exitoso
+
+所以说你们要记住
+Por eso ustedes deben recordar
+
+看谁投喜联储
+A ver quién invierte en el Banco Central de Himalaya
+
+投了评估认可价多少钱
+¿Cuánto invirtió en el precio de tasación aprobado?
+
+这是第一条
+Esto es lo primero
+
+* * *
+
+日期：10/27/2021
+原视频标题：权威机构的投资认定是决定喜馬拉雅币价值的关键之一
+La identificación de inversión de una institución autorizada es una de las claves para determinar el valor de la moneda de Himalaya
+原视频日期：10/23/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1451875315890864130?s=24](https://twitter.com/se1y7cblljselva/status/1451875315890864130?s=24)
+任务编号：KC208（2644）
+视频时间段：0:00-1:24
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

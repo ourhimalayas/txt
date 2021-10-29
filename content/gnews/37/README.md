@@ -2,65 +2,50 @@
 ---
 
 
-## 必看 ！全球34位英雄医生专家警告疫苗危险（4）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1625494/)
+## 印度对中共陆地国界法表示担忧
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1625544/)
 
-翻译/撰稿：Jenny
-视频编辑/字幕：外星人
-请将此视频广泛转发给您的朋友和家人。发送给你的家庭医生, 医院、学校、牧师、市长和其他在你的社区有责任的人也更加重要！
+作者：澳喜农场 – 在远方
 
-如果我们都分享这个视频，我们就能唤醒人类。我们可以共同阻止腐败，阻止这场疫苗灾难，共同创造一个更加美好的世界。
 
-注册获取更多信息, 请登录: [https://www.stopworldcontrol.com](https://www.stopworldcontrol.com/)
 
-总结这34名医生或专家的观点，其中：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-认为疫苗不安全，并反对**COVID**疫苗的，有全部**34**名医生和专家，占**100%**。
 
-认为这个**COVID-19**疫情不是医学定义的大流行病有**21**位，占**61%**
 
-让我们记住他们的名字：1.Kelly Madej 2.Andrew Kaufman  3. Hilde de Smet 4.Nils Fosse 5.Mohammad Adil 6.Dolores Cahill 7.Zac Cox 8.Johan Dennis 9.Daniel Cullum 10.Moritz  von der Borch 11.Kevin Corbett 12.Kate Shemirani 13.Barre Lando 14.Borris Dragin 15.Piotr Rubas 16.Natalia Prego Cancelo 17.Kelly Brogan 18.Konstantin Pavlidis 19.Heiko Santelmann 20.Mikael Nordfors 21.Elke de Klerk
+中共全国人大于10月23日通过了《中华人民共和国陆地国界法》，明确规定了长达2万2千公里陆地边境的管理和防卫办法，这条边境让中共国与印度和俄罗斯等14个国家接壤。
 
-认为疫苗是用人做实验的有**15**名，占**44%**
+印度外交部发言人巴格奇于27日发表声明，对中共通过的该陆地国界法表示担忧。
 
-让我们记住他们的名字： Hilde de Smet，Elizabeth Evans，Dolores Cahill，Johan Dennis，Kate Shemirani，Borris Dragin，Piotr Rubas，Nour De San，Kelly Brogan，Konstantin Pavlidis ，Sherri Tenpenny，Senta Depuydt，Heiko Santelmann， Mikael Nordfors, Elke de Klerk
+声明表示，中共国单方面决定推出一部立法，可能对印中双方现有的边境管理安排以及印度所关心的边境问题产生影响。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-61.jpg)
+目前，印度和中共国之间依然有3500公里长的边境尚未划定，双方都对比邻边境的大片地区做出过主权声索。尽管双方已经举行了10多轮的谈判，但是两国数万军队仍旧在喜马拉雅边境的拉达克地区不断集结和紧张对峙。
 
-明确指出，**PCR **测试是错误的手段的有**5**名
+参考链接：
+[印度对中国新陆地国界法表示担忧](https://www.voachinese.com/a/india-concerned-with-china-border-law-20211027/6288001.html)
 
-让我们记住他们的名字：Kelly Madej，Anna Forbes，Ralph Sundberg，Barre Lando，Konstantin Pavlidis
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-明确指出，疫苗可能改变**DNA**或是一种种族灭绝行为的有**8**名
+总编：飞虹
+编辑：珈沅
+校对/发稿：为真不破20
 
-让我们记住他们的名字：Johan Dennis，Kevin Corbett，Kate Shemirani, Konstantin Pavlidis，Sherri Tenpenny，Senta Depuydt, Heiko Santelmann, Elke de Klerk
+**更多资讯，更多关注**
 
-Dr. Sherri Tenpenny，在美国是几家大型诊所的正式医务主任，她在视频中说：
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-“要知道，当他们开发这个项目时，它是在2005年PREP法案的保护伞下
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-他们拥有完整的责任保护，如果这种疫苗对你造成伤害，你不能起诉他们，你没有追索权。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-自2002年发生SARS以来，他们一直在努力开发冠状病毒疫苗。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-和他们所做的每一项动物实验，特别是对雪貂的研究 。雪貂的免疫系统最能模拟人类成人的免疫系统。所有雪貂，兔子和大鼠研究，这些动物最后都出现了一种矛盾的免疫反应。其中抗体水平非常高，实际上是加速了感染，使其更加恶化。并允许这部分病毒进入细胞内部，被纳入该疫苗接受者的DNA中，通过一个叫做转导的过程。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-转导不可逆地将病毒的片段放入你的DNA，并会改变你的细胞”。
 
-（本文纯属个人观点，与G news无关）
 
-[必看 ！全球34位英雄医生专家警告疫苗危险（1）](https://gnews.org/zh-hans/1620972/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-[必看！全球**34**位英雄医生专家警告疫苗危险（**2**）](https://gnews.org/zh-hans/1624847/)
-
-[必看 ！全球34位英雄医生专家警告疫苗危险（3）](https://gnews.org/zh-hans/1625015/)
-
-[必看 ！全球34位英雄医生专家警告疫苗危险（4）](https://gnews.org/zh-hans/1625494/)
-
-请接续：必看 ！全球34位英雄医生专家警告疫苗危险（5）
-
-[原视频链接：](https://rumble.com/viqn29-worldwide-doctors-warn-for-the-vaccines-must-see.html)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
 
 
  
