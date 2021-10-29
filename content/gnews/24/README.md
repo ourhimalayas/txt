@@ -2,38 +2,27 @@
 ---
 
 
-## 2021/10/28 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1626449/)
+## 有声|保护儿童健康组织主席警告，若批准儿童疫苗，FDA将被诉讼
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1626461/)
 
-1. 邪恶中共开始在墙内全面推行3-11岁小孩接种毒疫苗。
-2. 隔离后家被安装警报器，隔离意味着更大程度的失去自由。
-3. 新增确诊病例发声证实曾打3针疫苗也被感染。这证明疫苗对防疫病毒根本无效。
-4. 10月26日，河南安阳。即使司机用预充油卡加油也被限制。因为油荒还是等涨价才让加？
-5. 10月25日，广西柳州一货车停路边数天，司机被发现时已无生命体征。车门未关闭。
-6. 10月24日，广东佛山南海区村治保队员在违停车的前挡玻璃司机位置贴两大张警告纸。
-7. 选择性执法。10月24日，浙江绍兴，选择性执法。男子将车停在人行横道上被贴罚单，“为什么对面卖二手车的不贴罚单”。
-8. 在中共国勤劳并不代表着有尊严。中共国一货车司机戏说着群体被压榨的无奈。
-9. 10月27日吉林长春，男子在医院开错检查项目，需多部门签字才能退费。
-10. 房地产行业摇摇欲坠，郑州阳光城二期交房遥遥无期，销售经理语出惊人：“我们还不能倒闭了？”
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2021 年 10 月 25 日，保护儿童健康组织主席小罗伯特·肯尼迪和医学博士梅丽尔·纳斯表示， 已致函FDA的每位成员，称如果FDA强制儿童接种新冠疫苗，保护儿童健康组织将对FDA采取法律行动。
 
+辉瑞的研究数据显示，辉瑞疫苗导致的儿童死亡率，是新冠病毒的107 倍。接种新冠疫苗，将引起大龄儿童心脏损伤、癌症，甚至死亡。 据悉，疫苗与相关生物制品咨询委员会将于 10 月 26 日召开会议，决定是否批准辉瑞公司研发的针对 5 至 11 岁儿童的实验性疫苗。
 
-*Page: 青山*
+文字版原文：[保护儿童健康组织主席警告，若批准儿童疫苗，FDA将被诉讼](https://gnews.org/zh-hans/1620272/)
 
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

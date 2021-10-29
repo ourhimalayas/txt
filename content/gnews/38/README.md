@@ -2,30 +2,24 @@
 ---
 
 
-## 柏林圣诞集市将拒绝未接种新冠疫苗者
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1626333/)
+## 有声|盖特是澳大利亚人发声的希望
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1626342/)
 
-作者：纽约香草山信息部- 诺雅
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月28日，德国媒体消息表示，近日，柏林的官员决定，德国传统的露天圣诞市场活动将于11月22日开始，但未接种新冠疫苗的民众将被禁止参加。
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月24日，澳大利亚天空新闻台三位主持人，联合采访了盖特首席执行官杰森·米勒先生，表达了对美国国内政治局势的担忧，及对盖特的浓厚兴趣。三位著名主持人分别是罗恩·迪恩、丽塔·帕纳西和詹姆斯·莫罗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-18.jpeg)
+米勒先生在接受罗恩采访时，首先介绍了盖特的情况，米勒说：“在美国独立日7月4日，盖特一经推出就像火箭一样起飞。目前有约300万用户，是有史以来所有社交媒体中，从100万向200万用户转变最快的。有趣的是，我们的美国用户群，约占整体注册用户的47%，而美国以外的注册用户群占53%，也就是说，盖特已经是一个全球性的社交媒体平台。”
 
-据规定，12岁以上参加活动的民众必须证明已经接种两剂新冠疫苗，或证明已从新冠病毒感染中恢复。柏林政府强调，12岁以上的未接种新冠疫苗者，除非他们能够获得医疗豁免，否则，即使他们的病毒检测呈阴性，也会被拒绝进入集市。另外，柏林宪兵市场的圣诞魔法、红色市政厅的圣诞集市等著名圣诞市场都将执行同一规定。
+米勒先生说：“与川普总统宣布其行动计划之前相比，我们在过去的两天内，每天增长新的注册用户70%。涨潮时，所有的船都会浮起来。川普总统的平台，还需要几个月或更久，才会启动上线。我认为，我们有一个很好的机会抓住人心，把他们拉入到我们的社交平台。”
 
-但是，就在上周，欧盟议会成员伊万-辛契奇于新闻发布会上评论道，新冠疫苗护照只能给予人们虚假的安全感，且其存在即不符合逻辑，也不科学，必须将其飞出。更有评论指出，新冠疫苗胁迫政策的真正意图与公共卫生没有关系，政府已将社会隔离、医疗隔离和制度歧视当作武器，用以压迫未接种新冠疫苗的民众。
+对于澳大利亚人民，盖特是他们发声的希望。
 
-参考链接：
-1) [Weihnachtsmärkte 2021 im 2G-Modell](https://www.berlin.de/weihnachtsmarkt/2g/)
-2) [Unvaccinated People To Be Banned From Berlin Christmas Markets](https://www.zerohedge.com/covid-19/unvaccinated-people-be-banned-berlin-christmas-markets)
-3) [https://gettr.com/post/pf431a207e](https://gettr.com/post/pf431a207e)
+文字版原文：[盖特是澳大利亚人发声的希望](https://gnews.org/zh-hans/1622780/)
 
+音频处理：喜山必胜Maverick
+发稿：Fei797
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编：Irene木木
-编辑：山本不惑
-校正/发稿：谐趣园
-
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
