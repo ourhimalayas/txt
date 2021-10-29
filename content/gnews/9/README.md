@@ -2,63 +2,33 @@
 ---
 
 
-## GlobalFoundries的十条背景知识
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1624988/)
+## 必看 ！全球34位英雄医生专家警告疫苗危险（3）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1625015/)
 
-作者：纽约香草山教育部 – 正义的小新
+翻译：喜国公民
 
+撰稿： 喜国公民 & Jenny
+视频剪辑/字幕：外星人
+请将此视频广泛转发给您的朋友和家人。发送给你的家庭医生, 医院、学校、牧师、市长和其他在你的社区有责任的人也更加重要！
 
+如果我们都分享这个视频，我们就能唤醒人类。我们可以共同阻止腐败，阻止这场疫苗灾难，共同创造一个更加美好的世界。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
+注册获取更多信息, 请登录: [https://www.stopworldcontrol.com](https://www.stopworldcontrol.com/)
 
+如果新冠疫苗制造商对他们的产品不负责任，医生们就会担心给民众注射这些疫苗是否会给他们的身体造成伤害。
 
+政府，医疗机构和主流媒体不关心疫苗的有效性和疫苗是否会给你的身体造成伤害，强行推广疫苗，甚至为了推广疫苗而剥夺你的工作权力。这不和常理的做法，不能不让人们怀疑这疫苗背后是否暗藏着不可告人的惊天阴谋。
 
-10月28日，芯片制造商GlobalFoundries在纳斯达克正式上市，股票代码为GFS。据悉，GlobalFoundries的IPO估值为 260 亿美元——如此庞大估值的缘由在于，而今，全球半导体和微芯片极具短缺。事实上，芯片短缺会严重影响到汽车制造、电子产品等的工业，许多公司也将因此被迫缩减生产并削减目标。
+为了你孩子的未来，是时候站出来捍卫你的自由了。不要屈服于焦虑，屈服于人们对疫苗的不同态度，屈服于政府的控制。
 
-![](https://investorplace.com/wp-content/uploads/2021/10/global-foundries-1600-300x169.jpg)图片来源：Shutterstock.com
+请接续
 
-关于格芯，你要知道10件事：
+（本文纯属个人观点，与G news 无关）
 
-1. 在GFS股票IPO之前，阿布扎比的主权财富基金Mubadala Investment持有GlobalFoundries的绝大多数股权。然而，阿布扎比主权财富基金在今天的IPO后，出售了该公司2200万股股票，净赚10.3亿美元。
-2. BlackRock贝莱德、富达Fidelity和高通Qualcomm在GFS股票IPO中各自投资了超过 10 亿美元。
-3. GlobalFoundries是在阿布扎比的主权财富基金在2009年购买了Advanced Micro Devices的芯片制造设施之后创建的。 随后，Mubadala将其购买的AMD芯片制造设施与新加坡特许半导体制造公司（Singapore’s Chartered Semiconductor Manufacturing）合并。
-4. GlobalFoundries擅长制造支持5G的射频通信芯片，且其芯片广泛应用于汽车。据了解，所有大型的汽车制造商都是GlobalFoundries的客户，至于其他著名客户，则包括了AMD和博通Broadcom。
-5. GlobalFoundries是全球收入第三的半导体和微芯片代工厂——排在台积电和三星电子之后。
-6. 目前，GlobalFoundries在新加坡运营着三家芯片代工厂，第四家预计于2023年上线。另外，该公司还计划在纽约增设一家代工厂。
-7. IPO招股说明书显示，GlobalFoundries的收入承诺为195亿美元。
-8. GlobalFoundries今年前六个月的收入为30.4亿美元，同比增长近13%。然而，该公司截至目前仍未获利，同期净亏损为3.01亿美元。
-9. GlobalFoundries曾计划在2022年底或2023年初进行首次公开​​募股，但现在提前了时间。
-10. 全球IPO市场有望迎来创纪录的一年。截至9月底，全球2,000多次IPO共筹集了4,210亿美元——这是公开股票上市的历史新高。
+[原视频链接](https://rumble.com/viqn29-worldwide-doctors-warn-for-the-vaccines-must-see.html)
 
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-[GFS Stock IPO: 10 Things to Know as GlobalFoundries Starts Trading Today](https://investorplace.com/2021/10/gfs-stock-ipo-10-things-to-know-as-globalfoundries-starts-trading-today/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

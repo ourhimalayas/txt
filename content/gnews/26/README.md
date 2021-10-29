@@ -2,48 +2,32 @@
 ---
 
 
-## 蔡英文首度证实有美军驻扎台湾
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1624848/)
+## GTV新闻访谈简报|2021年10月28日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1624870/)
 
-作者：澳喜农场 – 在远方
+作者：香草山翻译部
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1028text-TC-2.png)
+文章仅代表作者本人观点，与Gnews无关
 
+校对：Stay文苑
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+编辑：Stay文苑
 
+发稿：Stay文苑
 
+视频参看：[晚GTV新闻访谈](https://gtv.org/broadcast/watch/617b401feadeb11f5e7b82d6)
 
-10月26日，台湾总统蔡英文接受美国有线电视专访时，首度证实有美军驻扎台湾。这是数十年来，首位承认美军正在台湾执行训练计划的台湾总统。
-
-蔡英文表示，她认为如果台湾遭到中共攻击，基于台湾与美国的长期关系，美国和区域内其他民主政体将会出手协助。
-
-蔡英文强调台湾会尽可能地自我防卫。在谈到与中共的关系时，蔡英文称中共当局野心勃勃，是扩张主义者。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-167.jpg)
-参考链接：
-[蔡英文首度证实有美军协训 防卫台湾符合区域各国共同利益](https://www.rfa.org/mandarin/Xinwen/hx1028a-10272021233900.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编/编辑：木白
-校对/发稿：为真不破20
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://紐約香草山農場%20%20|%20GTV-香草山之聲%20紐約香草山農場GTV-%20|%20MOS%20TALK%20香草山訪談%20紐約香草山農場%20|%20GETTR%20紐約香草山農場%20｜YouTube%20歡迎加入香草山農場%20%20|%20Discord)
 
  
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 埃内斯·坎特声讨耐克在中共国的现代奴隶工厂
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1624971/)
+## 全面接种疫苗政策以及对治疗药物的打压会杀死美国人
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1624990/)
 
-10/25/2021 埃内斯·坎特(Enes Kanter)呼吁耐克关闭强迫维吾尔劳工的工厂并停止在中国新疆的现代奴隶制。
+10/23/2021 彼得·纳瓦罗博士指出，我们正处于公共卫生紧急状态，因为全面接种疫苗政策并继续对羟氯喹和伊维菌素作为治疗药物的打压会杀死美国人。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
