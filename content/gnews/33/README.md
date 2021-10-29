@@ -2,31 +2,34 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月29日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1626383/)
+## 中共借“共同富裕”稳房地产市场
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1626435/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-412.png)
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月27日，中共媒体再度洗脑民众，将其房地产市场挂钩在中共所谓的“共同富裕”上。为此，中共将恶性调控再次牵连到城市住房租赁、城市更新，及老旧小区改造等方面。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV_-1029am.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-6.jpeg)
 
-视频参看：2021.10.29早GTV新闻访谈
+据消息称，目前，恒大引发的房地产债务危机日益逼近，中共国内城市用地拍卖规模进一步收缩，大量的新建住宅项目停工。此时，中共在城市住房、小区改造等方面大动手脚，其目的就是通过盘剥普通民众的财产来为其经济续命。
 
-[https://gtv.org/broadcast/watch/617be91a11d1862968fccbb4](https://gtv.org/broadcast/watch/617be91a11d1862968fccbb4)
+对此，郭先生在直播中指出，中共的“共同富裕”是对社会财富进行重新划分的借口。在中共国，房地产的各个环节已被中共政府层层征税，而今又继续加征房产税。文贵先生强调，没有人能够在中共政府的公共服务和个人财产分配中受益。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+参考链接：[共同富裕需要房地产市场稳健发展](https://3g.163.com/dy/article/GNA2PI3K0519AKBM.html?spss=adap_pc)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
