@@ -2,29 +2,52 @@
 ---
 
 
-## 有声|美FDA批准莫德纳和强生加强针，且可混合使用
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1625007/)
+## 澳大利亚为新的入境规则做准备
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1625085/)
 
-配音：香草山美食部 – 玫瑰园
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-据BBC新闻网报道，10月20日，美国FDA授权莫德纳和强生公司的新冠疫苗加强针，并表示，在多针疫苗接种时，民众可以选择不同的品牌。据悉，此授权正在等待CDC的审批，一旦通过，或将在疫苗接种政策中再添波澜。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/af_ausairport_1904.jpg)
 
-然而，爆料革命无数次警告世人，新冠疫苗非但不能预防病毒、阻止传播，反而对人身体有害，甚至会导致死亡。反对新冠疫苗就是保障自己安全的未来。
 
-文字版原文：[美FDA批准莫德纳和强生加强针，且可混合使用](https://gnews.org/zh-hans/1620304/)
 
-音频处理：喜山必胜Maverick
+图片来源：straitstimes.com
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+#### 编译：小红帽
+
+根据针对完全接种中共病毒（COVID-19）疫苗的入境者的免检疫新规定，来自美国和新加坡的航班将首先在澳大利亚着陆。
+
+从周一开始，可以证明自己接种过两剂中共病毒疫苗的人将被允许进入墨尔本和悉尼，而无需隔离。
+
+内政部长凯伦·安德鲁斯（Karen Andrews）透露，澳航从北美起飞的航班和从其总部起飞的新加坡航空公司的航班将首先降落在悉尼。
+
+安德鲁斯证实，人们将被允许在机场与亲人会面，预计未来几个月将清理大量滞留在海外的澳大利亚人。
+
+然而，未接种疫苗的入境者仍需在酒店隔离两周。
+
+虽然一些健康专家批评取消隔离要求，但财政部长乔什·弗莱登伯格 (Josh Frydenberg) 表示，这一决定与官方建议一致。
+
+在全国范围内，74.8%的16岁及以上的人已经完全接种了疫苗，超过87.3%的人已经接种了一剂疫苗。
+
+工会和商业团体敦促联邦政府补贴快速中共病毒检测的费用。
+
+澳大利亚小型企业组织理事会首席执行官亚历克西·博伊德 (Alexi Boyd) 表示，资金将使企业有信心保持开放和安全运营。
+
+澳大利亚工会理事会（ACTU）秘书萨莉·麦克马纳斯 (Sally McManus) 呼吁联邦政府效仿英国、新加坡和欧洲一些国家，提供中共病毒测试，作为其应对中共病毒对策的一部分。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Australia prepares for new arrival rules (thenewdaily.com.au)](https://thenewdaily.com.au/life/travel/2021/10/29/australia-travel-arrivals-covid/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

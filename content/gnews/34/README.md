@@ -2,32 +2,32 @@
 ---
 
 
-## 印度成功试射“烈火-5”洲际导弹射程达五千公里
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1624806/)
+## GTV新闻访谈简报|2021年10月28日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1624870/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16354730951.png)*印度阅兵式上展示的远程弹道导弹烈火- 5导弹。（资料照）*
-据美国之音10月29日报道，印度27日成功试射一枚精准度极高、可以携带核弹头的“烈火-5”洲际弹道导弹，射程可达到5000公里，约3125英里。
+作者：香草山翻译部
 
-印中紧张关系加剧，印度担心中共国对印度洋的影响。中共国拥有的强大核武器驱使印度多年来一直在改进其武器系统，“烈火-5”能够覆盖几乎中共国所有地区。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1028text-TC-2.png)
+文章仅代表作者本人观点，与Gnews无关
 
-中共四处出击，在国际上制造紧张气氛，迫使其他国家在武器和防御方面持续改进。
+校对：Stay文苑
 
-新闻参考链接：[https://www.voachinese.com/a/china-to-build-base-for-tajikistan-near-afghan-border-20211029/6289392.html](https://www.voachinese.com/a/china-to-build-base-for-tajikistan-near-afghan-border-20211029/6289392.html)
+编辑：Stay文苑
 
-编辑：胖丁
+发稿：Stay文苑
 
-* * *
+视频参看：[晚GTV新闻访谈](https://gtv.org/broadcast/watch/617b401feadeb11f5e7b82d6)
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+**更多资讯，更多关注**
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://紐約香草山農場%20%20|%20GTV-香草山之聲%20紐約香草山農場GTV-%20|%20MOS%20TALK%20香草山訪談%20紐約香草山農場%20|%20GETTR%20紐約香草山農場%20｜YouTube%20歡迎加入香草山農場%20%20|%20Discord)
 
  
 

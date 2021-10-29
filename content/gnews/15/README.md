@@ -2,10 +2,10 @@
 ---
 
 
-## 彭博新闻：中共似乎不打算救助恒大
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1625002/)
+## 埃内斯·坎特诉中共西藏暴行；中共国全网封杀凯尔特人
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1625052/)
 
-10/26/2021 彭博新闻：中共似乎不打算救助恒大。
+10/21/2021 NBA球星埃内斯·坎特上传视频控诉中共在西藏的暴行之后，所有凯尔特人队的比赛都突然从中共国互联网被下架。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,49 +2,25 @@
 ---
 
 
-## 哈斯巴格议员质疑FDA紧急授权接种5-11岁人群
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1624911/)
+## 或因官司缠身【脸书】母公司被迫改名换姓
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1624938/)
 
-作者：日本方舟农场-Andy5，纽约香草山农场-蓝天大海
+原文采编：UCool优酷 编译撰稿：文所未闻
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-3-edited.png)图片来源：techcrunch
 
 
+据美国《科技博客网》10月28日刊文称，著名社交媒体【脸书】创始人扎克伯格当天正式宣布，将其旗下拥有Facebook、Instagram、WhatsApp和Oculus等知名社交网络的母公司更名为Meta。
 
-10月26日，美国食品和药物管理局（FDA）的专家咨询组通过建议，批准辉瑞新冠疫苗在5至11岁儿童中的紧急使用授权。
+据报道，因涉及“言论审查”及“公司诚信”等一系列严重影响该公司未来发展的问题，而导致【脸书】近年来一直负面消息不断。 同时，与其他科技巨头相比，该公司一直受到相关行政部门更多的监管和审查。
 
-国会议员哈斯巴格议员对此提出质疑，认为任何紧急授权使用的疫苗，都要先通过临床试验，才能普遍施行。辉瑞疫苗对于5至11岁人群的研究，仅仅开展了半年，在报告中仅仅涉及疫苗接种后的抗体反应和免疫反应，没有谈及疫苗是否能避免孩童感染，以及能否避免孩童出现需要住院治疗的症状。而在18至26岁人群中，已经出现了大量心肌炎等反应。给孩童接种这种疫苗不合逻辑。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-142.jpg)
-参考链接：
-1. [@AndySaiKai 盖特：20211026Hashbarger議員接受Ingraham Angle採訪](https://gettr.com/post/pfaurp8786)
-2. [CDC Now Says Immunocompromised People Can Get FOURTH Covid Jab](https://www.thegatewaypundit.com/2021/10/cdc-now-says-immunocompromised-people-can-get-fourth-covid-jab/)
-3. [FDA Panel Approves Pfizer Covid Vax For Kids Ages 5-11, Concedes it Doesn’t Know Long-Term Risks to Children (VIDEO)](https://www.thegatewaypundit.com/2021/10/fda-panel-approves-pfizer-covid-vax-kids-ages-5-11-concedes-doesnt-know-long-term-risks-children-video/)
+据悉，扎克伯格对【脸书】母公司的这次更名之举，似乎旨在摆脱以上不利的被动局面，并试图通过“改名换姓”来淡化解决【脸书】这一资深网路社交平台给其母公司带来的各种麻烦和困扰，同时也希望能以此重塑其公司核心价值。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+* * *
 
-总编：Irene木木
-编辑：山本不惑
-校对/发稿：为真不破20
+校对编辑，发稿：硫酸羟氯喹64
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[原文链接：](https://techcrunch.com/2021/10/28/facebook-changes-its-corporate-branding-to-meta/)
 
  
 

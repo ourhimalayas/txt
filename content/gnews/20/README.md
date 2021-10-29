@@ -2,10 +2,10 @@
 ---
 
 
-## 埃内斯·坎特声讨耐克在中共国的现代奴隶工厂
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1624971/)
+## 彭博新闻：中共似乎不打算救助恒大
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1625002/)
 
-10/25/2021 埃内斯·坎特(Enes Kanter)呼吁耐克关闭强迫维吾尔劳工的工厂并停止在中国新疆的现代奴隶制。
+10/26/2021 彭博新闻：中共似乎不打算救助恒大。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

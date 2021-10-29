@@ -2,27 +2,43 @@
 ---
 
 
-## 加密货币顺势而生，喜币为王汇通天下
-` 军迷wilson` [轉載自GNews](https://gnews.org/zh-hans/1624308/)
+## 中共解放军首次派出武装直升机扰台 加剧台海局势
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1624261/)
 
-#### 加拿大多伦多枫叶农场  军迷wilson
-![](https://assets.gnews.org/wp-content/uploads/2021/10/360DC6FE-9FF9-4763-9E14-855341151472.jpeg)来源：himalayaexchange
-郭文贵先生在最近的直播中强调，喜马拉雅货币体系是一个超越国家主权级别的金融货币体系，她肩负着打破各国政府和沼泽地垄断这个世界的货币发行权、生产力定价权和财富分配权的历史使命，这个权力最终应归属于人民。
+作者：日本方舟农场 – Andy5
 
-郭先生说，人类的交易形式只有向数字化转型，才能适应、激发七十多亿人的巨大生产力和创造力，当前的加密货币和数字化金融就是顺应历史发展而生。新中国联邦的Himalaya货币体系到目前为止，还没有任何人设计出类似的交易结构，她是独一无二的。
 
-除了中共等为数不多的极权主义者，几乎所有人都认为在数字信息时代，信用是让竞争者立于不败之地的第一要素。相较于以主权背书的纸币，信用是货币的生命之源，是货币的根本属性。
 
-由于新中国联邦是全世界唯一以消灭邪恶中共为己任的正道主义实体，在全世界范围内树立了良好的声明，成了当今人类文明的新灯塔，因此喜马拉雅货币体系和G商业系列具备了最大化的信用特征。蜂涌而至的投资者订购的实际上是新中国联邦的信用红利和美好的未来。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
 
-除了信用，评判一个货币价值的另一个标准是该货币的普遍接受性，就是使用的人是不是足够多。郭先生领导的新中国联邦，正在构建跨越国界的货币发行、金融服务、媒体集团、商业连锁等顶级生态系统，为喜币打下了“汇通天下”的坚实基础。
 
-参考来源：
 
-[泰山2021/10/27盖特](https://gettr.com/post/pfb267c318)
+台湾防务部门在10月26日晚7时发布的大陆军机巡台动态显示，在当天白天侵扰台湾“西南防空识别区”大陆军机中，除常规的侦察机、通信机、战斗机以及一架远距离支援干扰机外，有两架军用直升机出现，包括一架军用攻击直升机和一架军用运输直升机。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-24.jpg)
+据台湾军事专家分析，如果大陆没有掌握台海的制空权，直升机出海很容易变成“活靶子”。而解放军的攻击和运输直升机现身台湾西南空域，说明他们认为自己已经掌握了这一领域的制空权，存在解放军夺取某些台湾外岛的可能性，台湾需要根据情况及时调整兵力部署。
 
-（文章仅代表作者观点，与GNEWS无关）
+直升机出海，更加剧了台湾局势的紧张程度。
 
+参考链接：
+1. [中共解放军首次派出武装直升机扰台 加剧台海局势](https://www.voachinese.com/a/blinken-statement-translation-supporting-taiwan-participation-in-the-un-system-20211026/6286692.html)
+2. [中共解放军首次派出武装直升机扰台 加剧台海局势](https://news.sina.com.cn/c/2021-10-27/doc-iktzscyy2040142.shtml)
+3. [中共解放军首次派出武装直升机扰台 加剧台海局势](https://news.ifeng.com/c/8Ag6yRvcogc)
+4. [中共解放军首次派出武装直升机扰台 加剧台海局势](https://news.sina.com.cn/c/2021-10-27/doc-iktzscyy2060130.shtml)
+5. [中共解放军首次派出武装直升机扰台 加剧台海局势](https://mil.news.sina.com.cn/china/2021-10-27/doc-iktzscyy2113125.shtml)
+
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

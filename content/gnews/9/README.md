@@ -2,52 +2,42 @@
 ---
 
 
-## 澳大利亚为新的入境规则做准备
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1625085/)
+## Canada is Getting Ready to Vaccinate 5 to 11 Year-olds
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1625209/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/af_ausairport_1904.jpg)
-
+**HML Vancouver Sailing Farm – ****秋刀鱼**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_vaccinate_Chinese102821.png)Picture source: www.cbc.ca
 
 
-图片来源：straitstimes.com
+As per the report from CBC, on October 21, 2021 Prime Minister Justin Trudeau said Canada will receive enough vaccine doses from Pfizer to allow all children aged 5 to 11 to get a first dose shortly after Health Canada approves it for that age group. Trudeau also urged parents to be patient while waiting for Health Canada to review the vaccine.
 
+Since the announcement from the Prime Minister , on Oct 26, 2021, CBC also reports that Saskatchewan hopes to receive its first shipment of an expected total of 112,000 vaccine doses meant for kids aged 5 to 11 in early- to mid-November, according to the province’s medical health officer responsible for immunization.
 
-#### 编译：小红帽
+On the same day, CBC reports that A U.S. Food and Drug Administration (FDA) advisory committee has voted in favour of Pfizer-BioNTech’s COVID-19 vaccine for children 5 to 11 years old.
 
-根据针对完全接种中共病毒（COVID-19）疫苗的入境者的免检疫新规定，来自美国和新加坡的航班将首先在澳大利亚着陆。
+**Comments:**
 
-从周一开始，可以证明自己接种过两剂中共病毒疫苗的人将被允许进入墨尔本和悉尼，而无需隔离。
+It appears that the tide has turned in Europe, where the vaccine mandate has been abolished in many countries. However on the other side of the Atlantic Ocean, the Canadian government is continuing with the vaccine mandate and has now pushed their agenda toward the innocent children. One can only describe their actions as pure evil and insane.
 
-内政部长凯伦·安德鲁斯（Karen Andrews）透露，澳航从北美起飞的航班和从其总部起飞的新加坡航空公司的航班将首先降落在悉尼。
+Canada is so far one of the most vaccinated countries in the world. As of Oct 28, 2021, according to the website of the government of Canada, 82.76% of the population are fully vaccinated and 87.66% have received at least one dose.  Miles Guo, the leader of the Whistle Blower Movement has recently indicated that the Jews and the Canadians are among the people that will likely suffer the most from the vaccine mandate.
 
-安德鲁斯证实，人们将被允许在机场与亲人会面，预计未来几个月将清理大量滞留在海外的澳大利亚人。
+Unfortunately, most of the Canadian parents still don’t realize how dangerous the vaccine truly is. A lot of them not only have taken the shots themselves, they are also looking forward to vaccinating their children so that they could return to a so called normal life. The only result of vaccinating children will be the destruction of these young lives.
 
-然而，未接种疫苗的入境者仍需在酒店隔离两周。
+Over the past decade, I have personally known and made friends with a lot of Canadians, who have lived in a peaceful environment all their lives, who believe in science, technology and kindness of human heart, who are gentle and polite towards each other, and whose well-being I am deeply concerned about. However when I try to share the position of the Whistle Blower Movement concerning the pandemic and the vaccines, a common response I receive is: “Oh, it cannot be that bad!” Or, “Oh it just cannot be like that”. To my Canadian friends who don’t know about the evilness of CCP, I want to say: Yes, it is that bad, and probably thousand times worse than what you can imagine.
 
-虽然一些健康专家批评取消隔离要求，但财政部长乔什·弗莱登伯格 (Josh Frydenberg) 表示，这一决定与官方建议一致。
+Now the knife of CCP in terms of global vaccination is already against everyone’s throat, and they would not spare children. It is a life and death situation. Please spread the truth about the virus and vaccine with your friends and family, which will give the children a chance to survive this global genocide.
 
-在全国范围内，74.8%的16岁及以上的人已经完全接种了疫苗，超过87.3%的人已经接种了一剂疫苗。
+References
 
-工会和商业团体敦促联邦政府补贴快速中共病毒检测的费用。
+[https://www.cbc.ca/news/politics/pfizer-doses-children-5-11-approval-arrival-1.6219252](https://www.cbc.ca/news/politics/pfizer-doses-children-5-11-approval-arrival-1.6219252)
 
-澳大利亚小型企业组织理事会首席执行官亚历克西·博伊德 (Alexi Boyd) 表示，资金将使企业有信心保持开放和安全运营。
+[https://www.cbc.ca/news/canada/saskatoon/saskatchewan-government-kids-covid-19-vaccine-update-dr-saqib-shahab-1.6225671](https://www.cbc.ca/news/canada/saskatoon/saskatchewan-government-kids-covid-19-vaccine-update-dr-saqib-shahab-1.6225671)
 
-澳大利亚工会理事会（ACTU）秘书萨莉·麦克马纳斯 (Sally McManus) 呼吁联邦政府效仿英国、新加坡和欧洲一些国家，提供中共病毒测试，作为其应对中共病毒对策的一部分。
+[https://www.cbc.ca/news/health/fda-advisory-committee-votes-pfizer-vaccine-kids-1.6226020](https://www.cbc.ca/news/health/fda-advisory-committee-votes-pfizer-vaccine-kids-1.6226020)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+*Editor**：**Gerald Garwood*  *百合的家*
 
-**参考新闻：**[Australia prepares for new arrival rules (thenewdaily.com.au)](https://thenewdaily.com.au/life/travel/2021/10/29/australia-travel-arrivals-covid/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*Posted by: Shuang*
 
  
 
