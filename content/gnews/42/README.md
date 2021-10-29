@@ -2,31 +2,30 @@
 ---
 
 
-## 日本首相东亚峰会公开批评中共人权和台海等问题
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1623396/)
+## GTV新闻访谈简报|2021年10月28日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1623885/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/59644360_303.jpg)
-岸田文雄10月27日出席东盟10国与日本的领导人线上会议。会后岸田对媒体表示，他发言中提到了香港和新疆的人权状况，以及台湾海峡和平与稳定的重要性。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-412.png)
 
-据日本共同社报道，在与东盟各国首脑会议上，岸田文雄谈到，将印太变成”自由开放的和平海域”是各国共同利益，日本”强烈反对挑战基于法治的自由开放海洋秩序”。报道指这是间接评论东海、南海的局势。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV_-_Google_.png)
+文章仅代表作者本人观点，与Gnews无关
 
-岸田呼吁东盟国家合作，一同实现美日等国所追求的”自由开放的印度太平洋”（FOIP）。他强调，对于自由开放的印度太平洋所共享的开放性、透明性、包容性、法治等本质性原则，日本期盼与东盟具体合作、推动。岸田同一天也出席东盟加日中韩（10加3）领导人线上会议以及东盟与日本、美国、中、俄等领导人举行的东亚高峰会（EAS）线上会议。
+视频参看：2021.10.28早GTV新闻访谈
 
-另有报道称，在中美领导人亦有出席的东亚峰会上，岸田在发言中还指中国”在东海侵犯日本主权的活动持续”，表示强烈反对在东海和南海加强海洋活动，和在地区进行经济胁迫行为。
+[https://gtv.org/broadcast/watch/617a976feadeb11f5e7b6e21](https://gtv.org/broadcast/watch/617a976feadeb11f5e7b6e21)
 
-虽然岸田一直被认为是日本自民党内坚定的温和派，但外界也预计他上任后将继续强化日美同盟，支持印太区域的自由与开放，并且以务实而强硬的态度处理中共国事务。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
 
-[日相公开提人权、台海 北京称抹黑干涉](https://www.dw.com/zh/%E6%97%A5%E7%9B%B8%E5%85%AC%E5%BC%80%E6%8F%90%E4%BA%BA%E6%9D%83%E5%8F%B0%E6%B5%B7-%E5%8C%97%E4%BA%AC%E7%A7%B0%E6%8A%B9%E9%BB%91%E5%B9%B2%E6%B6%89/a-59652373)
-
-(文章仅代表作者本人观点，与GNEWS无关)
-
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

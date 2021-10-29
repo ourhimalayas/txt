@@ -2,45 +2,48 @@
 ---
 
 
-## 长期反对疫苗政策的安省女医生被封杀行医资格
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1624515/)
+## 日本深层观察系列之二：2021众议院大选是否会上演拜登曲线？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1624594/)
 
-**翻译：**卢卡斯
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片17667687.png)图片来源：网络
-安大略省监管机构已经禁止一位发声反对中共病毒疫苗和封锁措施的人士从事行医，声称她的活动使患者的健康处于危险之中。
+#### 作者：东京樱花团｜华夏小哥
+![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-23.png)[*图片来源*](https://pbs.twimg.com/media/EmEmx8-XUAA2Dca?format=jpg&amp;name=large)
+2020美国大选发生了什么，相信每一位爆料革命的战友都了如指掌，比如邮寄选票，死人票，投票站无人监票，突然大量拜登选票被发现，多米尼机器验票错误百出，等等等等。尤其是著名的拜登曲线简直令人不敢相信自己的眼睛。
 
-Owen Sound的 Rochagné Kilian 博士是当地的急诊室医生，她经常发声反对戴口罩、质疑中共病毒疫苗的安全性和中共病毒大流行的封锁措施。
+最终结果，几乎是板上钉钉可以连任的川普前总统以7千4百万选票败给了得到8千1百万选票（名义上如此）的拜登。后续虽然川普团队提出了重新验票并且提起了诉讼，但最终还是没有查明真相，不得不于2021年1月20日无奈离开白宫，并且打破惯例负气没有出席拜登的就职典礼。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-518.png)
+说到这里战友们不禁要问，号称世界民主主义灯塔的美国都发生了如此瞒天过海的选票舞弊，即将到来的日本10月31日的大选会不会也会出现猫腻？
 
-她于2021 年 8 月辞去了她在当地医院的职务。
+笔者认为，按照目前日本的选举制度和操作流程的话，是不会发生拜登曲线的，理由如下：
 
-周三，安省内科医生和外科医生学院 (CPSO) 完全暂停了Kilian的行医资格。
+1. 日本虽然也有邮寄选票。但是限定了只有失去行动能力的残疾人才可以使用，因此在数量上大大降低了产生邮寄选票作弊的可能性。其他选民投票则一定要本人持投票通知去投票站投票。大选日不能去投票站的选民可以提前去指定的地点提前投票。在海外的选民可以去当地大使馆设定的投票站提前投票。**因此，这些制度设计就杜绝了出现死人票、以及邮寄选票作弊的可能性。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-519.png)
+2. 美国总统大选是在拜登和川普之间二选一，选票作弊容易，风险高。
 
-此前，基利安和其他三名安大略医生被禁止提供医疗证明，豁免强制戴口罩和强制疫苗接种。
+日本的众议院大选是选众议院的465个席位，分为289个小选区和176个比例区代表。选票作弊困难，风险低。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-520.png)
+3. 最重要的是美国总统大选有多米尼机器验票，控制了机器就控制了选举结果。
 
-CPSO 发言人 Shae Greenfield 告诉CP24新闻网站，暂停其行医资格是一项临时命令，“根据《监管卫生职业法》的卫生职业程序法典做的决定，该法令允许学院在有证据支持的情况下发布临时命令，例如患者会面临受到伤害的风险。”
+日本是手写选票，人工验票。没有机器的参与也就完全杜绝了机器作弊的可能性。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-521.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/image-522.png)
+综上所述，笔者认为未来会怎样不可预测，目前的日本选举制度还是可靠的、值得信任的。
 
-“虽然我们目前所能披露的信息有限，但将尽早提供有关Kilian博士行为的更多信息，”Greenfield说，“这可能包括提交给安省内科医生和外科医生纪律法庭的指控，学院的成员也将有机会向法院上诉这个临时命令，届时学院将提供支持其决定的信息。”
+日本选举最大的问题不是选举作弊，而是投票率过低的问题。上一次的大选投票率只有54%。大多数的国民对政治不感兴趣，这一方面说明日本民主制度的成熟，另一方面也说明了当选的政党只代表了实际上不到30%的民意。
 
-CP24 已经联系Kilian，但到目前为止还没有收到回复。
+参考资料：
 
-她曾在各种场合声称中共病毒疫苗的安全性和有效性存在大量负面影响，但省和联邦卫生监管机构就此问题收集的大量证据并不支持她的这些观点。
+1.[2020年美国总统选举](https://zh.m.wikipedia.org/wiki/2020%E5%B9%B4%E7%BE%8E%E5%9C%8B%E7%B8%BD%E7%B5%B1%E9%81%B8%E8%88%89)
 
-**评**：安省内科医生和外科医生学院的作用是管制安省医疗行业医生的不当行为以及接受调查病人的投诉，该省所有的医生必须获得行医执照才能从事医疗工作。在刚刚过去的一个月内Kilian和另两名安省医生Mark Trozzi和Patrick Phillips先后被学院剥夺了给病人提供任何豁免中共病毒疫苗接种的权利，学院的理由是他们发声质疑中共病毒疫苗和传播当前CCP病毒大流行的虚假信息[1,2]。该学院对这些极少数敢于发声说出中共病毒疫苗真相的医生采取的逐步升级的严厉打压措施，直至剥夺他们的行医资格，这对他们的职业和个人生活造成极大的困难，主管部门的负责人对个体医生施行医疗暴政目的是继续执行黑暗邪恶势力的削减地球人口，控制奴役全人类的邪恶议程；将来中共病毒及其疫苗真相大暴露，这些黑暗势力的走狗们将会面临追责和审判。单个医生是无法对抗学院的医疗暴政，直到更多知道疫苗真相的医疗行业人士站出来联合发声，才能形成强大的力量，有效地对抗甚至推翻医疗暴政。
+2.[总务省：投票制度](https://www.soumu.go.jp/senkyo/senkyo_s/news/touhyou/yuubin/yuubin01.html)
 
-原文：[Ontario regulator suspends vocal anti-COVID-19 vaccine doctor from practising medicine | CP24.com](https://www.cp24.com/news/ontario-regulator-says-anti-covid-19-vaccine-doctor-can-no-longer-practice-medicine-1.5642086)
+3. [選挙難民？短期留学生は投票できないのか](https://seijiyama.jp/article/news/nws20190708.html)
 
-[1] [Two Ontario doctors banned from giving medical exemptions to COVID-19 vaccine | CTV News](https://toronto.ctvnews.ca/two-ontario-doctors-banned-from-giving-medical-exemptions-to-covid-19-vaccine-1.5627327)
+4. [第49届众议院议员选举](https://ja.m.wikipedia.org/wiki/%E7%AC%AC49%E5%9B%9E%E8%A1%86%E8%AD%B0%E9%99%A2%E8%AD%B0%E5%93%A1%E7%B7%8F%E9%81%B8%E6%8C%99)
 
-[2] [Ontario doctor accused of spreading COVID-19 misinformation barred from providing vaccine, mask exemptions | CBC News](https://www.cbc.ca/news/canada/toronto/patrick-phillips-covid-19-misinformation-college-1.6191906)
+（本文只代表个人观点，与Gnews网站无关）
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：LILY
-
-20211028
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
-
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
