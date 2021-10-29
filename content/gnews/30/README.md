@@ -2,30 +2,46 @@
 ---
 
 
-## 俄天然气公司称已大幅增产应对秋冬中欧需求
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1624310/)
+## 加拿大要求紧急调查青少年疫苗猝死事件
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1624349/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+翻译：西班牙喜悦农场–wenwu
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/G-6.jpg)themoscowtimes.com
-美东时间10月28日俄媒报道，在对燃气的强劲需求下，俄罗斯天然气工业股份公司（Gazprom）在2021年提高了天然气产量，与去年同期相比，在九个半月内增加了16.6%（567亿立方米）。Gazprom表示，“2021年增加的天然气产量可以覆盖全球天然气消费增长的大约三分之一。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/CANADA-INV-1.jpg)图片来源：theexpose.uk
 
-据初步估计，今年的燃气消费量将增加1500亿立方米，总消费量将达到4.2万亿立方米。Gazprom称，俄罗斯、中共国和欧洲国家的天然气需求增长最大，这些国家是其主要市场。
+2021 年 10 月 22 日，这位加拿大议员（MPP）致函安大略省临时警察署专员托马斯·卡里克（Thomas Carrique），要求立即调查年轻健康人的突然死亡事件。希利尔（Hillier）在一份[新闻稿中](https://www.randyhilliermpp.com/20211025_pr_oppinvestigationsuddendeaths)表示，他的调查请求是基于安大略省公共卫生数据显示，在年轻人口中，Covid-19 疫苗的潜在严重不良反应的发生率过高，特别是对心血管疾病表示特别关注。
 
-Gazprom补充称，“尽管定价环境不断变化，受亚洲和欧洲的天然气价格上涨，以及经济去碳化新举措的影响，全球天然气消费量仍将大幅增加。”
+MPP Hillier 还表示，这种趋势正在全球公开数据中观察到，促使多个国家完全暂停使用某些疫苗产品，或限制其在年轻人和儿童中的使用。
 
-Gazprom上周宣布，它将向俄罗斯的地下储存设施注入创纪录的726亿立方米的天然气。俄罗斯储气设施的日产量将达到8.479亿立方米这一“前所未有的水平”。
+例如，[瑞典最近无限期禁止](https://theexpose.uk/2021/10/26/sweden-halts-moderna-jab-indefinitely-after-vaccinated-patient-develops-crippling-heart-condition/)向 31 岁以下的任何人注射 Moderna mRNA 疫苗，以避免更多人患上残废的心脏疾病。在此之前，大多数北欧国家都暂停了 Modena 的中共疫苗，因为它导致了一系列的健康问题。
 
-今年秋天，在欧洲储气设施短缺的情况下，欧洲的天然气价格创下历史新高。美国和欧盟猜测，俄罗斯为促进相关国家和机构加快批准启动北溪-2号项目而可能影响了市场，该项目正在等待德国和欧洲监管机构的批准。莫斯科否认了这些指控。
+虽然英格兰和威尔士国家统计局提供的最新数据显示，自首次接受辉瑞公司 mRNA Covid-19 疫苗以来，[男性儿童的死亡率](https://theexpose.uk/2021/10/27/deaths-among-male-children-increased-by-89-percent-since-given-covid-19-vaccine/)比五年平均值[增加了 82%](https://theexpose.uk/2021/10/27/deaths-among-male-children-increased-by-89-percent-since-given-covid-19-vaccine/)（如下图）。
 
-10月27日，普京总统指示俄罗斯天然气工业股份公司开始计划的工作，在该公司完成向俄罗斯储气设施的注气后，增加了欧洲储气设施中的储气量。普京表示，这将使其有可能“可靠、稳定和有节奏地”履行在秋冬季节向欧洲供应天然气的合同义务，并“创造一个有利的局面，更多地在整个欧洲能源市场上创造有利的局面”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-278-1.png)
 
-（文章仅代表作者个人观点）
+加拿大议员兰迪·希利尔 (Randy Hillier) 表示，作为一名民选官员，他有义务质疑公共政策，尤其是当有证据表明公共政策可能对公众产生不利影响时。
 
-参考链接：
+他告诉安大略省警察局局长，越来越多的年轻人和健康人突然死亡令人担忧，他们应该向正在寻求答案的死者家属提供完整的真相。
 
-[https://www.rbc.ru/business/28/10/2021/617ac4119a79479680ff5927?from=from\_main\_1](https://www.rbc.ru/business/28/10/2021/617ac4119a79479680ff5927?from=from_main_1)
+致安大略省警察局专员的完整信函全文如下（中英翻译共4张图）：
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-281-1.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-8-7.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_8049.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_3588.jpeg)
+
+（文章仅代表作者观点与GNEWS无关）
+
+**新闻来源：**[theexpose.uk] [Canadian Politician demands urgent investigation into rise of sudden deaths among Teens following Covid-19 Vaccination](https://theexpose.uk/2021/10/27/politician-demands-investigation-sudden-deaths-teens-after-covid-vaccination/) | 发布时间：2021年10月27日
+
+* * *
+
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
 
  
 

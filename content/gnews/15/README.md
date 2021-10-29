@@ -2,34 +2,36 @@
 ---
 
 
-## 中共国的柴油荒将引发激烈通胀
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1624511/)
+## 美国国务卿敦促所有会员国支持台湾加入联合国
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1624531/)
 
-#### 加拿大多伦多枫叶农场 丁过
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1_15130223O_0.jpeg)来源：RFA
-据德国之声28日报道，在经历了缺电、煤荒之后，中共国的柴油价格一路攀升，而且同时出现了柴油供应短缺的现象，各地加油站纷纷限量加油。
+**据《路透社》记者：Tim Ahmann、David Brunnstrom和Michael Martina 2021年10月26日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/aw0zs-cgvx6-3.jpg)2021年10月21日，美国国务卿安东尼-布林肯在哥伦比亚波哥大与青年领袖会面时。图片来源：路透社/Luisa Gonzalez
+《路透社》华盛顿10月26日 —— 美国国务卿安东尼·布林肯周二呼吁所有联合国会员国支持台湾“有力地”参与联合国系统。对于中共国不断施加压力，以阻止这个自治的岛屿进入国际组织提出异议。
 
-从9月初以来，中共国的柴油价格就从5500元/吨上涨至约8600元/吨，短时间内上涨了55%。
+台湾在1971年10月25日之前一直拥有中国的联合国席位，后来被中华人民共和国（中共国）顶替台湾成为国家的代表。中共在1949年赢得了一场内战，迫使民国政府逃到了台湾。
 
-国内多个省份的加油站在给卡车加油时，一辆车只给加100升～300升柴油，而卡车油箱容量通常是1000升。
+中共国说，台湾是它的一个省，所以它有唯一的权利在国际上代表台湾。
 
-卡车司机叹息：加这点油还不够跑一趟短途，大部分时间只能窝在家里，但每年超过2万元的交强险+商业险等一分不少都要上交。
+布林肯在一份声明中说，台湾被排除在联合国论坛之外，“破坏了联合国及其相关机构的重要工作，而所有这些机构都能从台湾的贡献中大大受益。”
 
-导致柴油紧缺的原因之一是煤炭缺少引起的“连锁反应”：为了应对限电，不愿停工、减产的工厂和商家只能购买柴油发电机，因此增加了柴油用量。
-![](https://www.ft.com/__origami/service/image/v2/images/raw/https%3A%2F%2Fthumbor.ftacademy.cn%2Funsafe%2Fpicture%2F8%2F000110228_piclink.jpg?source=ftchinese&amp;width=1300&amp;height=731&amp;fit=cover&amp;from=next001)来源：FT中文网
-另外，受国际原油价格上涨影响，炼油企业开工率不足、北方进入收割季用油需求增加等等也是导致柴油紧缺的原因。
+“在过去50年的绝大多数时间里，台湾积极参加了联合国的某些专门机构，这证明了国际社会对台湾的贡献的重视。然而，最近，台湾没有被允许对联合国的努力做出贡献。”布林肯说。
 
-国内煤炭开釆量占到其总用量的90%，即使有国际气候协定的约束，中共还可以偷偷加大开采量来部分缓解煤炭供应紧缺的矛盾。
+他说：“这就是为什么我们鼓励所有联合国会员国与我们一起，支持台湾在整个联合国系统和国际社会中的有力、有意义的参与。”
 
-但国内油气消耗的70%依赖进口，而且油气价格较去年已经成倍上涨，等于要用比去年多一倍以上的外汇去购买相同数量的油气，而且油气价格远未见顶，中共的外汇储备将被快速消耗，因此可以预见中共国的能源危机将进一步加剧。
+布林肯补充说，尽管台湾对COVID-19大流行病作出了“世界级的应对”，但却没能出席全球机构，如世界卫生大会。
 
-柴油是运输业的“血液”，物流是供需双方之间的桥梁，当出现柴油荒时，中共国的产业链将加速断裂，导致终端消费市场出现商品供应紧缺和价格上涨，从而激烈推升国内通胀。
+中共国加大了政治和军事压力，迫使台湾接受中共国的主权。中共国表示“严重关切”美国在全球组织中对台湾的倡导，并说台湾扩大参与的努力将会失败。
 
-由于中共国是全球最重要的普通商品出口国，发生在国内的能源危机将引发国际市场的恶性通胀。
+**文章来源:**[https://www.reuters.com/world/blinken-urges-all-un-member-states-support-taiwan-participation-2021-10-26/?taid=617821550fbc4500016cc8b8&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/blinken-urges-all-un-member-states-support-taiwan-participation-2021-10-26/?taid=617821550fbc4500016cc8b8&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-参考来源：
+翻译：洛杉矶盘古农场 – Mike Li
+校对/编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[能源危机雪上加霜 中国出现柴油紧缺 | 经济纵横 | DW | 28.10.2021](https://www.dw.com/zh/能源危机雪上加霜-中国出现柴油紧缺/a-59650051)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
