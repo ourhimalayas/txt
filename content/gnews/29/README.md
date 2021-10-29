@@ -2,35 +2,83 @@
 ---
 
 
-## 严阻华为中兴，国会两院通过《安全设备法》
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1625511/)
+## 疫苗接种者在9月份出现高死亡率和住院率
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1625637/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/0E7370C2-A2AF-4D97-BCE2-FC1915955732_w1023_r1_s.jpg)资料照片：一名中国男子从武汉街头有着华为和中兴标徽的广告牌前走过。（2012年10月11日）
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
 
-编辑摘要：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip94.png)
 
-据美国之音10月29日报道，美国国会参议院28日无异议通过了《2021年安全设备法》，这项得到两院两党议员支持的法案指示美国联邦通讯委员会(FCC)不得再对已被列入威胁国家安全黑名单的公司进行审议或颁发新的设备执照。
+最新的官方公共卫生数据显示，在过去四周中，完全接种疫苗的人占中共病毒（**Covid-19**）死亡人数的** 85%**，同时也占（**9**月**25**日至**10**月**22**日）**Covid-19 **住院人数的** 75%**，以及占疑患有** Covid-19 **病例的** 61%**。
 
-FCC 2020年制定了新规则，要求美国电信公司拆除并替换“对国家安全构成威胁的通信设备和服务清单”所涵盖的公司所提供的设备。但该项规则目前仅适用于使用联邦资金购买的设备，如果用民间资金或非联邦政府资金购买同样的设备，该设备仍可使用。新的法案旨在堵住这一漏洞。
+[Covid-19统计报告](https://publichealthscotland.scot/media/9908/21-10-27-covid19-publication_report.pdf)是由苏格兰公共卫生局（Public Health Scotland）发表关于 Covid-19 数据的每周报告，以及最新的更新[发布于 10 月 27 日的](https://publichealthscotland.scot/media/9908/21-10-27-covid19-publication_report.pdf)报告证实，完全接种疫苗的人口的情况每周都在恶化，而未接种疫苗的人群的情况则在改善。
 
-参与法案制定的鲁比奥参议员发表声明指出，像华为和中兴这样的由中共国国家指导的公司是已知的国家安全威胁，我们的电信网络中没有它们的容身地……如今，拜登总统必须迅速将其签署成法，让中国共产党不再能够利用这个危险的漏洞。
+该[报告的](https://publichealthscotland.scot/media/9908/21-10-27-covid19-publication_report.pdf) Table 23 证实，从 2021 年 10 月 16 日开始的一周内，大多数 Covid-19 病例属于完全接种疫苗的人群，占1万0992例。而未接种疫苗的人口约是完全接种者的一半，也就是 5756 例（如下图）。
 
-在党派政争激烈的国会，两党在对中共国政府采取强硬立场的问题上已存在普遍共识。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip95.png)
 
-新闻参考链接：[严阻华为中兴 国会两院通过《安全设备法》](https://www.voachinese.com/a/senate-passed-secure-equipment-act-20211028/6290409.html)
+2021 年 9 月 25 日至 10 月 22 日期间，由上表确认的按疫苗接种状态划分的病例总数如下：
+
+- 未接种疫苗的人口 = 2万7511例
+
+
+- 部分接种人群 = 3621 例
+
+
+- 完全接种疫苗的人口 = 3万8474例
+
+
+这意味着接种疫苗的人群占 9 月 25 日至 10 月 22 日之间 Covid-19 病例总数的 61%（4万2095人） ，而未接种疫苗的人群占 Covid-19 病例总数的 39%（2万7511人）。
+
+然而，在住院方面，接种疫苗和未接种疫苗之间的差异变得更糟，至少自2021 年 7 月以来，完全接种疫苗的人现在占 Covid-19 住院人数的绝大部分（如下图）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip96.png)
+
+上表显示，未接种疫苗的 60 岁以上人群仅占 9 月 25 日至 10 月 22 日期间 Covid-19 住院人数的 10%（131人），而接种疫苗的 60 岁以上人群占 90%（1211人）。
+
+在 30 至 59 岁年龄组中也可以看到类似的趋势，未接种疫苗的人仅占 Covid-19 住院人数的 33%（244人），而接种疫苗的人占 67%（489人）。
+
+根据 PHS [报告](https://publichealthscotland.scot/media/9908/21-10-27-covid19-publication_report.pdf) Table 24(上图）确认，2021 年 9 月 25 日至 10 月 22 日期间所有年龄组按疫苗接种情况划分的住院总人数，如下：
+
+- 未接种疫苗的人口 = 584
+
+
+- 部分接种人口 = 81
+
+
+- 完全接种疫苗的人口 = 1672
+
+
+这意味着接种疫苗的人群（1753）占 2021 年 9 月 25 日至 10 月 22 日期间 Covid-19 住院人数的 75%，而未接种疫苗的人群（584）仅占 25%。 但是，当涉及到据称与 Covid-19相关的死亡时，接种疫苗和未接种疫苗之间的差异再次变得更糟。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip98.png)
+
+PHS [报告](https://publichealthscotland.scot/media/9908/21-10-27-covid19-publication_report.pdf)的 Table 25(上图)确认了 2021 年 9 月 18 日至 10 月 15 日期间按疫苗接种状态划分的所谓 Covid-19 死亡总数如下：
+
+- 未接种疫苗的人口 = 85 人死亡
+
+
+- 部分接种疫苗的人口 = 17 人死亡
+
+
+- 完全接种疫苗的人口 = 457 人死亡
+
+
+这意味着接种疫苗的人群占 9 月 18 日至 10 月 15 日期间 Covid-19 死亡人数的 85%（474人），而未接种疫苗的人群仅占 15%（85人）。
+
+就 Covid-19 疫苗的有效性而言，完全接种疫苗的人现在占 Covid-19 病例的大部分，这一事实非常令人担忧，因为直到最近，没有资格接种中共疫苗的儿童占了绝大多数的病例（德尔塔病毒更易感染儿童）。
+
+由于 Covid-19 完全接种人群的住院率和死亡人数每周都在上升，而未接种疫苗的人群的住院率和死亡人数继续下降，因此还需要进一步询问有关中共疫苗有效性的问题。
+
+（文章仅代表作者观点与GNEWS无关）
+
+**新闻来源**：[theexpose.uk] [EXCLUSIVE – 85% of Covid-19 Deaths & 75% of Hospitalisations were among the Fully Vaccinated in the last month according to the latest Public Health data](https://theexpose.uk/2021/10/28/85-percent-of-covid-19-deaths-among-the-fully-vaccinated/) | 发布时间：2021年10月28日｜
 
 * * *
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

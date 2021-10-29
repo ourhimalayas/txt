@@ -2,49 +2,43 @@
 ---
 
 
-## 澳洲受春季风暴袭击后，数千人断电，农作物受损
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1625647/)
+## 蔡英文曝美台军事联系 美中台博弈升级
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1625699/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**By:秘翻新闻**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Queensland-SES-.jpg)
+***2021-10-29***
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/1029-1.png)](https://gtv.org/broadcast/watch/617bb6f411d1862968fc9cc2)点击图片观看视频
+**新闻摘要:**
 
+1.  金钱是有主人的：郭先生的“以钱灭共”战略内涵
 
+2. 国内汽车芯片黑市价被爆飙涨数百倍
 
-图片来源：1015fm.com.au
+3. 标普警告：1/3中国房地产公司恐破产
 
+4. 黑龙江省爆发新疫情 封城进入紧急状态
 
-#### 编译：小红帽
+5. 蔡英文曝美台军事联系 美中台博弈升级
 
-在一场风暴袭击了澳大利亚阿德莱德和该州大部分地区后，九所学校被关闭，近8000户家庭和企业仍处于停电状态，财产、农作物和葡萄园都受到了破坏。
+6. 印度试射核弹头飞弹 射程可及中共国大部分重要城市
 
-气象局表示，周四晚上8点左右，克劳福德山的最大风速为107公里/小时，洛夫蒂山脉地区在周五上午9点之前的24小时内降雨量为20.4毫米。
+7. 佛罗里达州将就美联邦的中共病毒疫苗规定起诉拜登政府
 
-在大都市地区，阿德莱德机场的风速为96公里/小时，而爱丁堡的阵风则高达95公里/小时。
+8. 美威斯康星州最高法院拒绝为病人使用伊维菌素
 
-高尔夫球大小的冰雹落在北部郊区和巴罗莎谷。
+9. 美前总统之子在中共智库节目中淡化中共病毒来源
 
-风暴使12,000多户人断电，南澳电力网络公司已为大约4000人恢复供电。
+10. 深陷「脸书报告」丑闻 脸书宣布改名：Meta
 
-教育部表示，周五有九所学校因风暴破坏而关闭。
+**GTV链接：**[https://gtv.org/broadcast/watch/617bb6f411d1862968fc9cc2](https://gtv.org/broadcast/watch/617bb6f411d1862968fc9cc2)
 
-国家紧急服务局表示，周四接到了1213通求助电话，周五早上又接到了125通电话。
+发布: 文橙
 
-“其中大部分是在索尔兹伯里地区，”国家紧急服务局值班人员布伦顿·克拉克（Brenton Clarke）说，大部分损失都与周四的冰雹有关。
+* * *
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Thousands without power, crops damaged after storm | The New Daily](https://thenewdaily.com.au/news/2021/10/29/power-crop-damage-storm-indaily/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
