@@ -2,137 +2,47 @@
 ---
 
 
-## 习在20大前最危险，最后一定会被干掉
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1625826/)
+## 格芯上市，敲钟的都有谁？
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1625872/)
 
-**郭文贵：
-Miles Guo：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/dfd8d4ac-92a9-4d61-a179-2d9a4f0303c5.jpg)图片来源：GNEWS（秘翻组）
+整理：BENJ1、翼族
+编辑：翼族
 
-习这个人他没敢干，习要敢干，他越敢干，他越安全
-Xi did not dare to do, Xi if you dare to arrest, the more Xi dare to arrest, the safer he will be
+全球第四大晶片工厂格芯（GlobalFoundries，格罗方德）周三（27日）在美国NASDAQ首次公开发行股票，开盘价格为每股47美金。格芯是全球最先进的半导体制造技术平台，生产包括28纳米、20纳米、14纳米，以及7纳米的芯片。
 
-说实在话，咱先抛开政治来说
-To be honest, let’s put politics aside for a moment
+格芯目前为阿布扎比主权财富基金穆巴达拉投资公司（Mubadala Investment Co）所有。穆巴达拉投资公司是世界屈指可数的主权基金之一，运用资产超过2500亿美元。该公司面向全球50多个国家投资，同时因其是软银集团“愿景基金”的主要投资者而闻名于世。
 
-什么王岐山、孟建柱，你像斯大林那套，老子都给你抓了
-Wang Qishan, Meng Jianzhu, Xi could learn Stalin’s way, arrest everyone against him
+穆巴达拉一直主要面向北美和非洲投资，曾在中共国投资滴滴出行、利用人工智能（AI）图像识别技术见长的商汤科技，以及运营“瓜子二手车”的车好多集团等企业。
 
-我一个小时都给你抓了，抓完就给你活埋了
-Arrest all the people in an hour to, and buried people alive
+此次格芯上市，前来纳斯达克敲钟的就有穆巴达拉投资公司的首席执行官卡尔杜恩•阿尔•穆巴拉克（Khaldoon Al Mubarak）。阿尔.穆巴拉克生于1979年，曾在纽约大学学习，擅长管理，精明能干的他深受纳哈扬家族的信任。纳哈扬家族是阿联酋最大酋长国阿布扎比的世袭统治者。
 
-去枪毙都不枪毙你
-No waste bullets
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/skysports-khaldoon-al-mubarak_5403393.jpg)图片来源：Sky Sport
 
-你看看这个安不安全，习会更安全
-See if this is safer for him? Xi will be safer
 
-你现在还给习啊、孟啊，什么孙立军、王立科这些小烂仔给他机会折腾你十年
-Xi Jinping gave Meng Jianzhu, Sun Lijun, Wang Li-ke these little bastards the opportunity to toss himself for ten years
+第二位重要人士则是艾哈迈德·叶海亚·艾德里西（Ahmed Yahia Al Idrissi），穆巴达拉投资公司直接投资部门的首席执行官，负责监督能源、化工、技术、生命科学、消费者、工业和金融服务组合。
 
-你觉得习真的有智慧吗？他没智慧
-Do you think Xi really has wisdom? He has no wisdom
+在加入穆巴达拉之前，艾哈迈德是麦肯锡公司的合伙人，在那里他共同领导了主要投资者业务，也是阿布扎比业务的管理合伙人。他以前是宝洁公司的营销经理，在那里他领导了几个旗舰品牌。艾哈迈德拥有巴黎中央理工学院工业工程理学学士学位；麻省理工学院机械工程理学硕士。
 
-中国就要出俩人，要不就别出
-China needs to come out two people, or don’t
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/ahmed.jpg)图片来源：格芯官网
 
-中国要么就出个斯大林，是吧？
-China will either have a Stalin, right?
 
-要么就出个华盛顿
-Or a Washington
+第三位则是格芯现任CEO汤姆·考尔菲尔德（Tom Caulfield），自2018年3月起一直担任CEO职位。在此之前，考尔菲尔德在IBM工作了17年，担任过各种高级领导职务，最终担任IBM微电子部门300毫米半导体业务副总裁。随后他加入Soraa公司担任总裁兼首席运营官，Soraa是全球领先的固态照明技术开发商。
 
-其他人都不需要
-Nobody else is needed
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/tom-board-new.jpg)图片来源：格芯官网
 
-或者说台湾的蒋经国
-Or Chiang Ching-kuo from Taiwan
 
-那要其他人干啥？
-Do we need anyone else?
+考尔菲尔德于2014年5月加入格芯公司，负责Fab 8半导体制造生产的运营、扩张和提升。
 
-蒋经国能给民主自由法治
-Chiang Ching-kuo can give democracy, freedom and rule of law
+10月7日，郭文贵先生在GTV直播中透露，格芯的7nm芯片和后续与IBM合作的生物芯片，将是支撑未来包括GTV、GETTR、GNEWS和Himalaya Reserve等在内的G系列，以及与星链（StarLink）融合发展的技术法宝。而格芯从成都撤离的背后，也是爆料革命在发力。一切都已经开始……
 
-要么就出个斯大林，让党内这帮王八蛋全杀光他
-Or we can have a Stalin and let him kill all the bastards in the party
+*发布：翼族*
 
-等待着，最后一次解放的开始
-Waiting for the final moment to liberate China
-
-你接不接受都这样
-Take it or not, it will end like this
-
-你觉得习是斯大林吗？
-Do you think Xi is Stalin?
-
-你觉得习是蒋经国吗？
-Do you think Xi is Chiang Ching-kuo?
-
-他都不是，是最后他会被灭掉
-Neither. He will be destroyed in the end
-
-一会儿装斯大林，一会儿装蒋经国
-He pretended to be Stalin one moment and Chiang Ching-kuo the next
-
-最后被灭掉，一定会被灭掉
-In the end, he will be destroyed
-
-我现在，我说到这的时候，六中全会开完，
-I am now saying that by the time the Sixth Plenary Session is over,
-
-到20大期间习是真正最危险的时候
-Xi will be the most dangerous time before the 20th National Congress of CCP
-
-我就说过这个墙角效应
-I told you about this corner effect
-
-当大家发现确定，我们这房间里的人都会被你干掉的时候
-When people find out they’re all going to be killed in this room
-
-就是狗、羊、猪都会奋起咬你几口
-Even if the one being killed is a dog, sheep or pig, it will rise up and bite you
-
-直接冲向那个墙，（因为）我没法活了嘛
-Go straight to that wall, because they can’t live
-
-江浙人多聪明啊，上海人多聪明啊
-Jiangsu and Zhejiang people are so smart ah, Shanghai people are so smart
-
-现在最后觉得习还得改过来，习也传递了各种好的信息
-Now they think Xi finally had to change over, while Xi also delivered all kinds of good messages
-
-在习身边有各种卧底，随时干掉习
-The Shanghainese have all kinds of undercover agents around Xi who can take him out at any time
-
-当这种幻想都没有的时候
-When they don’t have this delusion
-
-这就是当年吴国、楚国是吧？
-like State of Wu and State of Chu in the old day, right?
-
-老子给你干了，是吧？没办法了
-I’ll have to fight you to the death, right? There’s no way out
-
-陈胜吴广，上海也能出两个
-Chen Sheng, Wu Guang, Shanghai can also produce two people who unveiled the uprising
-
-* * *
-
-Date:10/26/2021
-原视频标题: 习在20大前最危险，最后一定会被干掉
-Xi is the most dangerous before the 20th Congress of the CCP, and will definitely be killed in the end
-原视频日期：2021/10/22
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1452235250705129472?](https://twitter.com/se1y7cblljselva/status/1452235250705129472?)s=24任务编号：KC205（2660）
-视频时间段 : 0:00-2:01
-英听校：洛杉矶盘古农场 – Mike Li
-翻译：洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – Layka
-字幕+视频制作：洛杉矶盘古农场 – 小战蚁
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

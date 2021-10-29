@@ -2,143 +2,47 @@
 ---
 
 
-## 权威机构的投资认定是决定喜马拉雅币价值的关键之一
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1625849/)
+## 蓬佩奥：中国共产党是美国最大的危险
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1625927/)
 
-整个喜联储
-Todo el Banco Central de Himalaya
+**简评：**
 
-当它宣布它的投资者机构
-Cuando él anuncie su organización inversora
+中共是美国最大的危险。一周前，中共展示了一个最新高端的超音速导弹系统，表明中共有能力研制，但美国并无有效的防御系统。中共一直想拿下台湾，随后扩张全世界。但中共明年2月份想举办冬奥会，向全世界炫耀中共所谓的的伟大。冬奥会之前，中共对台湾应该不会采取军事行动。拜登总统表示美国会恪守承诺，保护台湾。希望美国能够说到做到，而不是口是心非，只划红线、发警告。
 
-记住啊
-Recuerden
+GTV视频链接：[Mike Pompeo: 中共国和台湾等问题。有些人觉得迫在眉睫，明年2月会有很大可能](https://gtv.org/video/id=61795bf0247c5a3f9090b6b0)
 
-投资者机构真正的投钱
-La verdadera inversión de dinero de la organización inversora
 
-不是猫本小哥投的
-No es invertido por el hermano Maoben
 
-也不是花王投的
-Ni Hua Wang
+**视频字幕：**
 
-也不是你的这个微蓝投的
-Tampoco Wei Lan
+**蓬佩奥先生：**我们国家的最大危险来自中国共产党。就在过去一周半，他们已经测试了一个非常高端的超高音速导弹系统，这是非常重要的工具。我们以为他们没有这个能力，现在证明他们可以做到，并将美国置于危险中，且无有效的防御系统。
 
-也不是你RACHEL投的
-O Rachel
+他们确实有这个意图。他们的领导人习近平说，他们将首先把台湾带回保护伞下，然后从台湾开始发展，随后推向全世界。因此，这不是今天或明天的问题，而是当务之急。我们当认真考虑我们的战略以继续保护美国未来几年和几十年的安全。
 
-是真的可信服的人投的
-Es invertido por alguien que es realmente convincente
+**主持人：**许多人谈到中共国和台湾等问题，有些人觉得迫在眉睫，有些人觉得有一天会发生。你觉得什么时候会发生？
 
-也不是七哥的男朋友女朋友投的
-Tampoco es mi novio o novia
+**蓬佩奥先生：**我确实认为这是习近平作为中共国领导人在未来几年筹划的事情。我不能确切地告诉你时间。明年2月会有很大可能。
 
-有权威的机构投了喜联储
-Es una institución autorizada que invirtió el Banco Central de Himalaya
+请记住，他们将在北京举办冬奥会，这将是他在世界舞台上展示自己是一个伟大领导人的机会。他不太可能在这之前做这件事。我认为这将玷污奥运会。
 
-认可你的价格
-Acepta tu precio
+他想成功举办奥运会。那是他向世界展示中共国是多么伟大的窗口。他将籍此来说明为什么台湾应该在他们的胁迫和监视之下。他将开始采取真正具有胁迫性的方式。
 
-比如说我评估你是10亿美元
-Por ejemplo, yo te valoro a mil millones de dólares
+昨晚我看到拜登总统说，我们承诺保卫台湾。我希望他说这句话的时候，是真心的，不能只是画红线，不能发表这样的声明而口是心非。
 
-我评估你是20亿美元
-Calculo que eres dos mil millones
+现在有一种期望，他将贯彻这一承诺。我希望拜登政府能够仔细考虑。而不是一个不清楚自己在说什么的总统的随意评论。
 
-我评估你是200亿美元
-20 mil millones de dólares
+*编辑：【英国伦敦喜庄园编辑部】*
 
-这个是整个喜币未来, 最牛的最关键之一
-Este es el futuro más crucial e importante de la moneda de Himalaya
+*字幕/听写：云岭|翻译：致良知| 校对：clau ，Roberts|简评/文字整理/编辑：胖丁| Page：小六月*
 
-什么意思大家知道吗
-Qué significa esto, ¿ustedes saben?
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-你自己玩儿是吧
-Quieres jugar tú mismo, cierto
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
 
-你自己关上门
-Cierras la puerta
+[![](https://spark.adobe.com/page/wQwjfyhpeI7U2/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/wQwjfyhpeI7U2/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
 
-买两个按摩器
-Compras dos masajeadores
-
-你叫的再高潮
-Por más que sientas orgasmo
-
-那叫自淫, 知道了吧
-Eso se llama masturbación, ¿de acuerdo?
-
-你叫花王跟Estie在屋里边
-Tú le dices a Hua Wang y Estie por más que griten
-
-他俩怎么喊
-Dentro de la casa
-
-他即使是自己假喊的  A pesar que él esté gritando de mentira
-
-你都认为这俩人搞出来的动静
-Igual piensas que es algo que ellos dos provocaron
-
-这叫什么, 这叫高潮
-Cómo se llama esto, orgasmo
-
-这是完全两回事儿
-Esto son dos cosas diferentes
-
-谁能跟喜币来玩真高潮
-Quién puede jugar al orgasmo real con la moneda de Himalaya
-
-这个是证明了你的(价值)
-Esto comprueba tu valor
-
-七哥有时候讲的是黄色(笑话)
-Yo a veces digo humores descoloridos
-
-但是大家能懂
-Pero todos pueden entender
-
-知道吗
-Verdad
-
-以黄传达真相是最好的方式
-El humor descolorido es la mejor forma para transmitir la verdad
-
-就像抖音就这么成功的
-Así fue Tik Tok como se hizo exitoso
-
-所以说你们要记住
-Por eso ustedes deben recordar
-
-看谁投喜联储
-A ver quién invierte en el Banco Central de Himalaya
-
-投了评估认可价多少钱
-¿Cuánto invirtió en el precio de tasación aprobado?
-
-这是第一条
-Esto es lo primero
-
-* * *
-
-日期：10/27/2021
-原视频标题：权威机构的投资认定是决定喜馬拉雅币价值的关键之一
-La identificación de inversión de una institución autorizada es una de las claves para determinar el valor de la moneda de Himalaya
-原视频日期：10/23/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1451875315890864130?s=24](https://twitter.com/se1y7cblljselva/status/1451875315890864130?s=24)
-任务编号：KC208（2644）
-视频时间段：0:00-1:24
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

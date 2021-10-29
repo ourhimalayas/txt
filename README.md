@@ -15,116 +15,116 @@
 
 ---
 
-### [10/29/2021国际财经快讯：标普纳斯达克创下历史新高；短缺严重制约美国第三季度经济增长](/content/gnews/1/README.md)
+### [串珠423:痛恨习近平的人为什么都不采取行动？](/content/gnews/1/README.md)
+ ` 郭爆料串珠`
+
+### [有声|阿拉巴马州州长抵制强制疫苗接种政策](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [全世界的司法界，律师界将有大地震！年底前中共国房地产开始崩塌](/content/gnews/3/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [有声|SpaceX发布：通往火星的门户！](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [10/29/2021国际财经快讯：标普纳斯达克创下历史新高；短缺严重制约美国第三季度经济增长](/content/gnews/5/README.md)
  ` 秘密翻译组金融团队`
 
-### [佛罗里达州将就联邦的强制中共病毒疫苗规定起诉拜登政府](/content/gnews/2/README.md)
+### [佛罗里达州将就联邦的强制中共病毒疫苗规定起诉拜登政府](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [科罗拉多州计划在1月底之前给5至11岁人群接种疫苗](/content/gnews/3/README.md)
+### [科罗拉多州计划在1月底之前给5至11岁人群接种疫苗](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国顶级新闻机构接受来自中共国的宣传广告](/content/gnews/4/README.md)
+### [蔡英文总统确认美国在台湾有驻军](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [银河快讯：索尼将营业利润预期上调；日本央行保持货币宽松政策](/content/gnews/5/README.md)
+### [美国顶级新闻机构接受来自中共国的宣传广告](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [串珠422:习为泄私愤闭关锁国，从来不在乎百姓死活](/content/gnews/10/README.md)
+ ` 郭爆料串珠`
+
+### [银河快讯：索尼将营业利润预期上调；日本央行保持货币宽松政策](/content/gnews/11/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [DC大中华时事：中共媒体称美军驻台是不可逾越的红线](/content/gnews/6/README.md)
+### [DC大中华时事：中共媒体称美军驻台是不可逾越的红线](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [Facebook和YouTube下架巴西总统关于疫苗真相的视频](/content/gnews/7/README.md)
+### [Facebook和YouTube下架巴西总统关于疫苗真相的视频](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [10/24郭文贵直播：川普总统的政敌将给他制造麻烦（粤语配音）](/content/gnews/8/README.md)
+### [10/24郭文贵直播：川普总统的政敌将给他制造麻烦（粤语配音）](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [10/24郭文贵直播：DWAC是美国SPAC有史以来增长最快、跌的最快（粤语配音）](/content/gnews/9/README.md)
+### [10/24郭文贵直播：DWAC是美国SPAC有史以来增长最快、跌的最快（粤语配音）](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [10/24郭文贵直播：中共对川普总统使用了经济超限战（粤语配音）](/content/gnews/10/README.md)
+### [10/24郭文贵直播：中共对川普总统使用了经济超限战（粤语配音）](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [10/24郭文贵直播：三个原因为什么中共给川普设金融陷阱（粤语配音）](/content/gnews/11/README.md)
+### [10/24郭文贵直播：三个原因为什么中共给川普设金融陷阱（粤语配音）](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线：安全研究人员警告iPhone用户应从手机上删除“它”](/content/gnews/12/README.md)
+### [秘翻在线：安全研究人员警告iPhone用户应从手机上删除“它”](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线:&#8221;数字疫苗护照&#8221;的背后阴谋是要推动ID4D计划](/content/gnews/13/README.md)
+### [秘翻在线:&#8221;数字疫苗护照&#8221;的背后阴谋是要推动ID4D计划](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [10/22郭文贵直播：吴征报告中共称已拿下川普总统（粤语配音）](/content/gnews/14/README.md)
+### [10/22郭文贵直播：吴征报告中共称已拿下川普总统（粤语配音）](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [CDC主任：加强针可能改变“完全接种”的定义](/content/gnews/15/README.md)
+### [CDC主任：加强针可能改变“完全接种”的定义](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [福满之日，喜币上市](/content/gnews/16/README.md)
+### [福满之日，喜币上市](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [蓬佩奥表示，中共伤害美国人和绝大多数中国人民的利益](/content/gnews/17/README.md)
+### [蓬佩奥表示，中共伤害美国人和绝大多数中国人民的利益](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [芯片科技股GFS纳斯达克首次上市](/content/gnews/18/README.md)
+### [WTO审议中共对澳大利亚葡萄酒征收的进口关税](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [太平联盟是中共渗透美国司法界的关键因素](/content/gnews/19/README.md)
+### [美议员推跨党派法案抗衡中共](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [10/18郭文贵直播：起底邪恶的中共社保（粤语配音）](/content/gnews/20/README.md)
+### [芯片科技股GFS纳斯达克首次上市](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [太平联盟是中共渗透美国司法界的关键因素](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [10/18郭文贵直播：起底邪恶的中共社保（粤语配音）](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [蓬佩奥：中国共产党是美国最大的危险](/content/gnews/21/README.md)
+### [蓬佩奥：中国共产党是美国最大的危险](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农专访1: 美国梦和中国梦的不同](/content/gnews/22/README.md)
+### [班农专访1: 美国梦和中国梦的不同](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [如果这件事发生在我身上，也可以发生在你身上](/content/gnews/23/README.md)
+### [如果这件事发生在我身上，也可以发生在你身上](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [意大利法官乔尔加尼反绿色护照，被停职停薪](/content/gnews/24/README.md)
+### [意大利法官乔尔加尼反绿色护照，被停职停薪](/content/gnews/32/README.md)
  ` xiaobaige`
 
-### [11家中共基金大买大进洗走50亿到80亿之间美国人的财富](/content/gnews/25/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [日本五大银行提高房贷利率](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [格芯上市，敲钟的都有谁？](/content/gnews/27/README.md)
+### [格芯上市，敲钟的都有谁？](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [渥太华一名医护人员由于伪造中共病毒疫苗接种文件被控罪](/content/gnews/28/README.md)
+### [渥太华一名医护人员由于伪造中共病毒疫苗接种文件被控罪](/content/gnews/34/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [权威机构的投资认定是决定喜马拉雅币价值的关键之一](/content/gnews/29/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [郭文贵先生10月28日盖特小视频概要](/content/gnews/30/README.md)
- ` 墨尔本雅典娜农场`
-
-### [格芯公司市场份额、产量、用途及市场前景分析](/content/gnews/31/README.md)
+### [格芯公司市场份额、产量、用途及市场前景分析](/content/gnews/35/README.md)
  ` 纽约香草山MOS03`
 
-### [文·贵天成——文贵先生谈“吴征、杨澜”（三）](/content/gnews/32/README.md)
- ` 墨尔本雅典娜农场`
-
-### [习在20大前最危险，最后一定会被干掉](/content/gnews/33/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [两辆列车中断，疫情再度蔓延](/content/gnews/34/README.md)
+### [两辆列车中断，疫情再度蔓延](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文·贵天成——文贵先生谈“吴征、杨澜”（二）](/content/gnews/35/README.md)
- ` 墨尔本雅典娜农场`
-
-### [日本全日空计划大规模裁员9000人](/content/gnews/36/README.md)
+### [日本全日空计划大规模裁员9000人](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [台湾一机师在接种两剂疫苗后感染中共病毒](/content/gnews/37/README.md)
- ` 日本东京方舟农场`
 
 ### [秘翻在线：卡车司机警告说疫苗强制令将加剧供应链危机](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`

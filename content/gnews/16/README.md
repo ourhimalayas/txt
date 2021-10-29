@@ -2,14 +2,12 @@
 ---
 
 
-## 福满之日，喜币上市
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1625951/)
+## 10/24郭文贵直播：中共对川普总统使用了经济超限战（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1626019/)
 
-制作：蚂蚁兄弟
+10/24/2021 郭文贵直播：中共对川普总统使用了经济超限战，但我们一定不要攻击川普总统，因为这是中共最想要的。
 
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-2.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

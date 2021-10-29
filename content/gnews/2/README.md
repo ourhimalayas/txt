@@ -2,32 +2,29 @@
 ---
 
 
-## 佛罗里达州将就联邦的强制中共病毒疫苗规定起诉拜登政府
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1626139/)
+## 有声|阿拉巴马州州长抵制强制疫苗接种政策
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1626291/)
 
-#### 翻译：Grace
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-62.jpg)图片来源：网络截图
-据多家媒体10月28日报道，佛罗里达州州长罗恩.德桑蒂斯(Ron DeSantis)周四宣布，美国佛罗里达州已经对拜登政府提起诉讼，质疑其强制要求联邦雇员和承包商的所有员工，接种中共病毒疫苗的联邦命令。
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月26日，媒体消息表示，阿拉巴马州州长凯·艾维于本周一签署了第724号行政命令。该行政命令宣布，阿拉巴马州政府机构不得执行联邦政府关于新冠病毒疫苗的强制接种令，且法令于签署当天立即在全州生效。
 
-德桑蒂斯在电视新闻发布会上说: “佛罗里达州已经对拜登政府提起了另一项诉讼，挑战关于强制疫苗接种的联邦命令。”
+对于疫苗强制令，艾维谴责称，这是联邦政府的越权行为。艾维还补充表示，全球各地越来越多的人已经意识到，疫苗是一场灾难。再者，每一个人都应该享有自由医疗的权利，世界各国的民众都一样，他们不应被政府强迫接种新冠疫苗。
 
-德桑蒂斯认为，拜登政府对联邦雇员和联邦承包商的强制疫苗规定是 “苛刻的”，这样的做事方式是不对。
+艾维还特别声明说，作为州长，她不会强迫任何人接种新冠疫苗，同时，她也会跟阿拉巴马州人民一起，反对这项令人愤慨的强制令。
 
-德桑蒂斯发表声明说，佛罗里达州已经在坦帕市（Tampa）提起诉讼，正在寻求一个初步禁令，以阻止联邦规定在12月8日如期生效。
+文字版原文：[阿拉巴马州州长抵制强制疫苗接种政策](https://gnews.org/zh-hans/1623803/)
 
-德桑蒂斯还抨击了联邦职业安全与健康管理局（Occupational Safety and Health Administration）的一项待定规则，该规则将迫使拥有100名或以上雇员的公司，要求其为工人接种中共病毒疫苗或经常进行中共病毒测试。他说，拜登正在利用 “模糊的规则”，在未经国会批准的情况下强加疫苗政策。
-
-德桑蒂斯说：“我们不认为拜登政府有权力这样做。” “根据联邦法律和宪法，[拜登的这一强制疫苗要求]超出了本届政府的权限。”
-
-在发布会上，州检察长阿什利.穆迪(Ashley Moody)补充说，强制疫苗接种不是联邦政府的职责，联邦政府“绝对没有权力，要求大多数美国人口接种疫苗，完全没有这样的权利”。穆迪还指出，强制疫苗接种的政策，是联邦政府对美国工人的个人自主权的完全和粗暴的超越。
-
-**新闻来源：**
-
-1. [**Florida to sue Biden administration over federal COVID vaccine mandates: Governor Ron DeSantis**](https://www.newindianexpress.com/world/2021/oct/28/florida-to-sue-biden-administration-over-federal-covid-vaccine-mandates-governor-ron-desantis-2376979.html)
-2. **[Florida challenges Biden administration with lawsuit over COVID vaccine rules](https://www.theledger.com/story/news/local/2021/10/28/desantis-florida-sues-biden-administration-vaccine-rules/8580453002/)**
-
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

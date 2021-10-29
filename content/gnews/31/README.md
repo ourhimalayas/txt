@@ -2,111 +2,65 @@
 ---
 
 
-## 格芯公司市场份额、产量、用途及市场前景分析
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1625840/)
+## 如果这件事发生在我身上，也可以发生在你身上
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1625904/)
 
-作者：香草山教育部写作组-新生
+**简评：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-8.jpg)
+Scot医生第五次被调查行医执照。在大流行期间，他拒绝打疫苗，反对在学校戴口罩。诡异的是，福奇在疫情初期一直反对戴口罩，没事。Scot医生反对就被质疑。Scot医生推广使用伊维菌素，也是他被调查的原因之一。国会几百人得益于伊维菌素，但是政府反对使用，不支持自然免疫。医疗已经政治化，事实一直被掩盖。发生在Scot医生身上的事，同样可以发生在你我每个人的身上。
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-95.png)
-
-#### **背景**
-
-在美国时间的10月7日，郭先生在直播中指出，穆巴达拉投资公司参与控股了一家半导体代工公司—— GlobalFoundries (GF，格芯公司)。该公司于10月28日在纳斯达克上市开始交易，代码为 GFS。根据纳斯达克网站数据，格芯拥有约 7% 的市场份额，与联合微电子公司类似，台积电 (TSM ) 占据了 55% 的市场份额。三星公司拥有 17% 的市场份额。中芯国际的市场份额为4%。
-
-格芯公司在美国、德国和新加坡都设有制造厂（“晶圆厂”），为全球数百家客户制造功能丰富的半导体。格芯这样定义旗下三大生产基地：新加坡厂以40奈米制程以上为主，德国厂以28奈米制程为主，美国纽约州厂以20奈米和14奈米先进制程为主，该厂房也是和三星电子进行14奈米设备互通的策略联盟的重镇。
-
-根据目前可查到的公开数据，格芯公司当前年产能约为184万～194万片晶圆，新设备建成以后产能约为309万片左右。
-
-#### **产量****分析表**
+GTV视频链接：[Dr. Scott Jensen 有力回应他的行医执照再次被调查,我推广伊维菌素的使用，这是病人和医生之间的事](https://gtv.org/video/id=617aa540247c5a3f90911e12)
 
 
-| **工厂****所在地** | **目前****年产能****（****片晶圆****）** | **未来产量（新设备建成后）** |
-| --- | --- | --- |
-| 德国德累斯顿 | 400,000 – 500,000  | 1百万（预计2024 年投产） |
-| 美国纽约马耳他 | 350,000  | 500,000 |
-| 美国佛蒙特州伯林顿 | 40,000 |   |
-| 美国纽约州东菲西基尔 | 无公开数据 |   |
-| 新加坡 | 1,050,000 | 1,500,000 （ 预计2023年建成） |
-| **合计** | 约184万-194万 | 约为309万 |
 
+**视频字幕:**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片2-31.png)
+**Dr. Scott：**如果一件事可以发生在我身上，我想也可以发生在你身上。这个我已经说了很多很多遍了。
 
-#### **用途**
+经过明尼苏达州西北部40小时的折腾，我和妻子昨天晚上11点半回到家。我们访问了7个不同的城市，支持Jeff Horwich博士。他是一名外科医生，因为在学校董事会上发言支持允许学生自行选择是否戴口罩而被解雇。
 
-根据格芯公司网站，其制造的芯片可用于以下多种用途：
+昨天晚上我回到家打开邮箱，发现我的行医执照第5次被调查。
 
-- 智能手机设备 （非接触式支付、无线上网、触摸显示驱动器、成像和 3D 传感、安全、音频和电池电源管理）
-- 个人电脑（为即将到来的海量数据，提供人工智能加速、光连接和有线网络应用的专用解决方案）
-- 家庭物联网（如音频和显示，人脸、语音和物体识别等智能功能、无线连接）和工业物联网（微控制器、电力电子设备、无线连接）
-- 辅助驾驶和自动驾驶汽车（汽车微控制器单元、全球卫星定位系统和雷达系统等）
-- 通信基础设施和数据中心 （ 蜂窝基础设施和卫星通信、有线连接， 如数据中心光通信）
+这次有6个原因：说我有问题，因为对于拜登总统9月9日新闻发布会的内容，他从未跟进，我呼吁公民不服从。
 
+他从未对此发布行政命令，也没有给“美国职业安全与健康管理局”任何指示，从而制定规则来确定如何实施他在新闻发布会上所说的希望发生的事。所以我们只是有一个新闻发布会，(说)这是我的问题。
 
-#### **市场前景**
+说我没有打疫苗。 我是没有，我说得很明确。我有很多抗体，因为我是新冠康复者。
 
-- 十大客户市值超万亿美元
+（还说）我建议反对在学校戴口罩，是不合适的。我上次看到学校董事会做出这些决定，我有意见，我有权利提出来。
 
+说我政治化公共卫生。真的吗？那Mike Ostrom 和福奇呢？他们说不用戴口罩，不用戴口罩，不用戴口罩，然后突然戴口罩变得像宗教一样。
 
-格芯主要客户包括高通、AMD 、联发科、恩智浦半导体、科沃、思睿逻辑、思佳讯、村田制作所、博通、德州仪器(TI)等，未来还会有星链公司。格芯还是美国国防部认可的最先进的 “可信代工 “供应商。格芯公司表示，其2020年出货的晶圆中有61%是 “单一来源 “的产品，这意味着那些 “只能用我们的技术来制造，而且在没有重大客户重新设计的情况下无法在其他地方制造 “的产品，高于2018年的48%。
+我们有19年的数据表明戴口罩不管用，我引用了（那些数据），我说了。问题是从2000年到2020年，我们一直认为口罩不管用，但是现在显然是说管用了。
 
-- 未来营收可期
+说我告诉支持者医院和医生伪造死亡证明。我从来没有这么说。
 
+说我推广伊维菌素的使用，这是病人和医生之间的事。我想Joe Rogan已经分析了（伊维菌素）。我听说国会的几百个人也许已经得益于伊维菌素。
 
-目前，GlobalFoundries表示，它有大约200亿美元的收入承诺，其中100多亿美元是在2022年至2023年期间，还有超过25亿美元的 “预付款和产能预订费”。例如，根据AMD公司提交给美国证监会的文件，该公司“依赖台积电 (TSMC) 为我们的 7 纳米 (nm) 产品生产所有晶圆，主要依赖格芯公司来生产以大于 7 纳米工艺节点制造的产品的晶圆”。AMD公司是与 GF 签订的晶圆供应协议规定了AMD购买由 GF 制造的产品的条款，有效期至 2024 年。AMD公司目前估计，根据A＆R第七修正案，它将在2022年至2024年期间向GF购买大约16亿美元的晶圆。
+说我不恰当地宣传自然免疫的优势。
 
-- 大中华区以外的芯片生产厂商
+好，我现在来回应对我的这些指责。
 
+今天早晨，我看着我的妻子说，亲爱的，抱歉，我让你遭受这一切。她说，没什么可抱歉的。
 
-格芯首席执行官考尔菲尔德在8 月 23 日的一次在线演讲中表示，大多数竞争对手的产能——即台积电、联电和中芯国际的产能——都位于大中华区，这让格芯公司有机会在全球范围内发起“大胆”扩张活动，以帮助解决前所未有的全球供应短缺问题。
+对于我妻子和我来说，如果我们回头，那将是我们最严重的过失。 我们不会回头。
 
-**相关术语**：
+如果我选择，我可以继续执业。想要在政治上武器化医疗实践委员会的人，随便。
 
-晶圆尺寸 – 一个工厂能够处理的最大晶圆直径。(半导体晶圆是圆形的）。)
+我阻止不了你们，但是我以前说过，我再说一遍：如果这件事可以发生在我身上，我想也可以发生在你身上。想想吧。
 
-工艺技术节点 – 工厂能够在晶圆上蚀刻的最小特征的尺寸
+*编辑：【英国伦敦喜庄园编辑部】*
 
-生产能力 – 一个制造工厂的铭牌能力。一般来说，每月生产的晶圆数量
+*字幕：雨中漫步|翻译：Roberts| 校对：Dasy|简评/文字整理/编辑：胖丁| Page：小六月*
 
-技术/产品 – 工厂能够生产的产品类型，因为并非所有工厂都能生产市场上的所有产品
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-参考资料：
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
 
-[https://asia.nikkei.com/Business/Tech/Semiconductors/GlobalFoundries-CEO-Chip-industry-output-must-double-in-10-years](https://asia.nikkei.com/Business/Tech/Semiconductors/GlobalFoundries-CEO-Chip-industry-output-must-double-in-10-years)
+[![](https://spark.adobe.com/page/FlkHdJvl8zuU2/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/FlkHdJvl8zuU2/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
 
-[https://www.sec.gov/Archives/edgar/data/2488/000119312511040392/d10k.htm](https://www.sec.gov/Archives/edgar/data/2488/000119312511040392/d10k.htm)
-
-[https://www.nasdaq.com/articles/an-overview-of-the-top-5-semiconductor-foundry-companies-2021-10-01](https://www.nasdaq.com/articles/an-overview-of-the-top-5-semiconductor-foundry-companies-2021-10-01)  （市场占有率）
-
-[https://gf.com/press-release/globalfoundries-breaks-ground-new-fab-singapore](https://gf.com/press-release/globalfoundries-breaks-ground-new-fab-singapore) 新加坡数据数据来源）
-
-[https://www.eenewseurope.com/news/globalfoundries-plans-boost-production/page/0/1](https://www.eenewseurope.com/news/globalfoundries-plans-boost-production/page/0/1)   (德国数据来源)
-
-[https://www.forbes.com/sites/willyshih/2021/07/20/globalfoundries-fab-expansion-doing-a-little-math/?sh=51670e9b14da](https://www.forbes.com/sites/willyshih/2021/07/20/globalfoundries-fab-expansion-doing-a-little-math/?sh=51670e9b14da) （美国纽约马耳他数据来源）
-
-[https://en.wikipedia.org/wiki/List\_of\_semiconductor\_fabrication\_plants](https://en.wikipedia.org/wiki/List_of_semiconductor_fabrication_plants) （美国佛蒙特州数据）
-
-[https://gf.com/](https://gf.com/) （产品应用领域）
-
-校对/发稿：飞虹
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-2.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 
