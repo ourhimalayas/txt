@@ -2,27 +2,23 @@
 ---
 
 
-## 秘翻在线：参众两院高票通过《安全设备法案》
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1625614/)
+## 樱花灭共诗——中共高调庆祝加入联合国50年
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1625676/)
 
-#### 撰稿：彩虹       
+#### 作者：东京樱花团/藤田村野
+![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
+庆祝入群五十年，宣传演讲冇人援。
 
-#### 责编：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-529.png)图片来源：EURACTIV
-10月28日，《国会山报》发文，报道参议院周四一致通过立法，采取措施打击诸如来自总部设在中共国公司的对国家安全形成威胁的电信产品。
+当年点赞欢呼在，此刻关门暗自观。
 
-根据报道，《安全设备法案》将禁止FCC(联邦通讯委员会)考虑和使用来自FCC特定名单上的公司的产品。该名单包括中共国华为公司和中兴公司，之前，出于国家安全和间谍活动的考虑，国会和川普政府都采取了措施阻止它们进入美国市场，而FCC去年正式指定华为和中兴为国家安全威胁。
+做了大哥真阔气，牵拉小弟大抛钱。
 
-上周，该法案在众议院以420票对4票的表决结果获得通过，目前，该法案已被送往拜登总统办公桌等待签署。
-
-在众议院，该法案由少数党党鞭史蒂夫·斯卡利斯（Steve Scalise）和众议员安娜·埃修（Anna Eshoo）提出。在参议院，则由参议院情报委员会副主席马可·鲁比奥（*Marco Rubio*）和参议员埃德·马基（*Ed Markey*）发起。
-
-在对抗中共国华为和中兴对美国国家安全威胁方面，美国相关立法者进行了不屈不挠的斗争。《安全设备法案》在两院的高票通过，是一个值得庆贺的胜利，这说明两院议员们对中共国给美国带来的威胁已经有了足够的认识。但是，我们仍然看到华为通过出售业务变更实体来绕过美国法案的封杀，也仍然有诸如FBI（联邦调查局）购买中共国无人机以及美国政府许多部门使用华为云服务产品等奇葩现象。因此，这么一个小小的法案通过，仅仅是一个局部的小小胜利而已。
-
-**新闻来源**
-
-[Senate approves bill to protect telecommunications infrastructure from foreign threats](https://thehill.com/policy/cybersecurity/579028-senate-approves-bill-to-protect-telecommunications-infrastructure-from)
-
+欺台霸世骄矜色，老美横刀斩贼奸。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/12-23.png)
+*插图：东京樱花团/闪闪*
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

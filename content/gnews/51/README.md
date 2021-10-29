@@ -2,22 +2,38 @@
 ---
 
 
-## 中共外交部开批刚刚就任的岸田首相
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1623411/)
+## 共军首次进行码头毁伤实验 或为侵略台湾加紧准备
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1624260/)
 
-#### 撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/455.png)[图片来源](https://www.nishinippon.co.jp/image/213249/)
-10月28日，产经新闻驻北京记者三塚圣平报道：针对日本首相岸田先生在东南亚联盟相关会议上提及香港和新疆的人权问题，中国外交部发言人汪文斌在10月28日的新闻发布会上说：日本领导人公然无视事实，在多边场合进行诽谤性外交活动。无理干涉中国的内部事务。我们已经向日本方面提出了严正抗议。
+作者：澳喜农场 – 在远方
 
-外交部战狼汪文斌批评岸田首相的言论对中日关系的健康和稳定发展以及地区和平与稳定不具建设性作用。
 
-信息来源：[中国、岸田首相発言に「内政干渉」と反発](https://www.sankei.com/article/20211028-EUY2P423JJKCFI7GT5S5S274XU/)
 
-(文章仅代表作者本人观点，与GNEWS无关)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+
+中共《环球时报》26日报道，多家境外媒体集中关注了中共军方 于近日进行的一场码头水下爆炸试验。该试验由中共海军研究院所属的某研究所组织，是在某军港进行的针对高桩式码头的水下爆炸试验，一颗水下爆炸物将试验码头完全摧毁。报道称，试验获得了大量实战条件下的爆炸毁伤数据，并强调这在中共国尚属首次。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture11-10.jpg)
+有研究人员称，军事基地的港口码头军队作战体系的核心枢纽，后勤补给船队必须频繁往来于基地港口与前线之间，运送弹药、油料等补给品。如果能够通过水下爆炸等隐蔽方式将对方码头摧毁，可以将其战争潜力消灭于无形。
+
+台湾网站分析认为，该试验是针对美军的“分布式作战”战术。而香港网站则认为，共军该实验针对的是台湾军港，是为侵略台湾进行准备的。战争一旦开始后，共军将对台军的高雄和基隆等军港进行打击，以摧毁其海上作战能力。
+
+参考链接：[共军首次进行码头毁伤实验 或为侵略台湾加紧准备](https://news.sina.com.cn/c/2021-10-26/doc-iktzqtyu3548014.shtml)
+
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

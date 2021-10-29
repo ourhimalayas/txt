@@ -2,43 +2,33 @@
 ---
 
 
-## 澳洲受春季风暴袭击后，数千人断电，农作物受损
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1625647/)
+## 澳洲广播电台机构与脸书、谷歌谈判要为新闻内容付费
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1625695/)
 
 #### **【雅典娜快讯】，紧贴时事脉搏**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Queensland-SES-.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/google-facebook-new6-1920-800x450-1.jpg)
 
 
 
-图片来源：1015fm.com.au
+图片来源：searchengineland.com
 
 
 #### 编译：小红帽
 
-在一场风暴袭击了澳大利亚阿德莱德和该州大部分地区后，九所学校被关闭，近8000户家庭和企业仍处于停电状态，财产、农作物和葡萄园都受到了破坏。
+澳大利亚的竞争监管机构周五允许一家代表261家广播电台的机构与脸书（Facebook）和谷歌（Google）谈判协议内容，作为该国迫使科技巨头为新闻内容付费新法律的一部分。
 
-气象局表示，周四晚上8点左右，克劳福德山的最大风速为107公里/小时，洛夫蒂山脉地区在周五上午9点之前的24小时内降雨量为20.4毫米。
+澳大利亚商业广播电台（CRA）现在有10年的时间为其成员与技术巨头谈判，但《九娱乐》（Nine Entertainment）除外。澳大利亚竞争和消费者委员会（ACCC）表示，《九娱乐》已经获完成了交易。
 
-在大都市地区，阿德莱德机场的风速为96公里/小时，而爱丁堡的阵风则高达95公里/小时。
+自3月以来，脸书和字母控股（Alphabet）旗下的谷歌公司被要求与澳大利亚媒体就其网站带来流量和广告的内容进行谈判。如果他们不这样做，政府可能会接管谈判。
 
-高尔夫球大小的冰雹落在北部郊区和巴罗莎谷。
+然而，这并不是一帆风顺，一些出版商被排除在外。在9月，脸书表示会停止许可证交易的谈判。
 
-风暴使12,000多户人断电，南澳电力网络公司已为大约4000人恢复供电。
+8月，澳大利亚竞争和消费者委员会允许另一个行业机构，澳大利亚国家新闻社代表其81家新闻出版商与这两家公司进行谈判。
 
-教育部表示，周五有九所学校因风暴破坏而关闭。
+**参考新闻：**[Australian Regulator Allows Radio Station Body to Negotiate Content Deal With Facebook, Google | Technology News (ndtv.com)](https://gadgets.ndtv.com/internet/news/facebook-google-australia-regulator-cra-radio-station-negotiate-content-deal-2592124)
 
-国家紧急服务局表示，周四接到了1213通求助电话，周五早上又接到了125通电话。
-
-“其中大部分是在索尔兹伯里地区，”国家紧急服务局值班人员布伦顿·克拉克（Brenton Clarke）说，大部分损失都与周四的冰雹有关。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Thousands without power, crops damaged after storm | The New Daily](https://thenewdaily.com.au/news/2021/10/29/power-crop-damage-storm-indaily/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
+***发布：小红帽*****更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
