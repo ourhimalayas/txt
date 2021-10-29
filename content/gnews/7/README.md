@@ -2,10 +2,10 @@
 ---
 
 
-## 拳王梅威瑟声援NBA球星凯里·欧文，反对疫苗强制令
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1624873/)
+## 彭博新闻：中共似乎不打算救助恒大
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1625002/)
 
-10/25/2021 拳王梅威瑟声援NBA球星凯里·欧文，反对疫苗强制令。
+10/26/2021 彭博新闻：中共似乎不打算救助恒大。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

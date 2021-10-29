@@ -2,28 +2,24 @@
 ---
 
 
-## 郭先生谈盖特的“私密直播”功能
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1624353/)
+## 美国有望支持新中国联邦加入联合国
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1624382/)
 
-作者：纽约香草山农场 – Delilah小胖
+#### 作者：洛杉矶盘古农场 – 滴水穿石
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-郭文贵先生在2021年10月27日的大直播里介绍了近期盖特将推出的“私密直播”功能。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-166.jpg)
-郭先生说，盖特的私密直播，跟国内的网红直播不一样。盖特直播用户以真人、真名、真姓获得在盖特的打赏资格之后，可提前公告其直播节目，了解该播主的盖特用户都可以参加。
+10月27日，郭文贵先生在直播中，针对美国国务卿布林肯支持台湾参与联合国系统的声明表示，美国能支持台湾加入联合国，就能够支持新中国联邦加入。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-141.jpg)
+郭先生表示，中共愚蠢地在联合国挑战美国的国际地位，引起了美国的反弹。美国一方面对中共虚以委蛇，口头上在病毒问题、新疆问题、台湾问题等方面安抚中共，另一方面又在采取实质行动对抗中共。在台湾问题上的坚定立场就是最突出的表现。
 
-譬如受人欢迎的某个明星，或者政治人物，可以直播其个人生活，喜欢他们的盖特用户都可以给其打赏。围绕明星和名人的团体则可以利用直播打赏功能进行推广。这样一部影片，就可能有几十亿的观看量。私密直播的打赏功能会把名人都聚集在这里。
-
-不仅明星、政治家，各国政府也可以到这里来直播。各农场和战友也可以筹建私密直播节目。
-
-所有私密直播的打赏收益，盖特平台和直播用户按50：50分成。最重要的，盖特的盈利模式不是卖掉用户的个人信息、隐私，而是最终靠支付系统赚钱。全世界没有一家媒体是这样的，盖特要与用户一起赚取安全的、有尊严的财富，不被垄断和银行欺负。
-
-郭先生强调，盖特是社交媒体中唯一一个用户数据受到保护的、不销售个人数据和隐私，个人拥有绝对隐私安全的平台。盖特用户可以一方面展示其个体美好的一面，一方面将其过去积累的个人信任、付出的汗水体现在其私密直播的收益中。这些，都是竞争对手难以企及的。
+郭先生同时提到，美国能坚决地支持台湾加入联合国，就能够支持新中国联邦、新疆法人代表团等加入联合国，美国有太多可用的工具对抗中共。而在由美国和欧洲发起的联合国系统内，中共的挑战必将失败。
 
 参考链接：
 
-[2021年10月27日文贵大直播：盖特言论自由公平竞争](https://gettr.com/post/pfb0u0b75a)
+[布林肯：鼓励所有联合国成员与美国一起支持台湾参与联合国系统](https://www.voachinese.com/a/blinken-urged-all-un-memger-states-to-support-taiwans-meaningful-participation-in-the-un-system-20211026/6286756.html)
+
+[2021年10月27日 文贵大直播](https://gtv.org/video/id=6179465deadeb11f5e7b0768)
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 总编/编辑：飞虹
 
@@ -42,6 +38,8 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
+
+
 
  
 

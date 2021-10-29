@@ -2,49 +2,30 @@
 ---
 
 
-## 蔡英文首度证实有美军驻扎台湾
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1624848/)
+## 有声|郭文贵先生重提马云事件的危害性
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1624974/)
 
-作者：澳喜农场 – 在远方
+配音：香草山美食部 – 玫瑰园
 
+郭文贵先生在2021年10月20曰大直播中再次强调马云和他的家人完全没有自由，马云是被公安部专案组成员与银行和其他相关负责人共20人组成的监督团，控制他处置海外资产。
 
+在没有法制的CCP制度下，个人没有安全，王健与N个大人物的死就是前车之鉴；家庭没有安全，马云与许多大人物全家被抓，许多无辜的人生不如死；社会没有安全，CCP操纵媒体，不给投资者真相，让全球经济陷入极大的风险中。让个人，家庭和社会都不安全的体制，不值得付出，应当推翻它。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+郭先生指出，新中国联邦有实力能帮助受CCP迫害的中国人，只要你攒足勇气，只要你足够智慧，只要你加入农场，我们一起销灭CCP。
 
+文字版原文：[郭文贵先生重提马云事件的危害性](https://gnews.org/zh-hans/1620273/)
 
+音频处理：喜山必胜Maverick
 
-10月26日，台湾总统蔡英文接受美国有线电视专访时，首度证实有美军驻扎台湾。这是数十年来，首位承认美军正在台湾执行训练计划的台湾总统。
-
-蔡英文表示，她认为如果台湾遭到中共攻击，基于台湾与美国的长期关系，美国和区域内其他民主政体将会出手协助。
-
-蔡英文强调台湾会尽可能地自我防卫。在谈到与中共的关系时，蔡英文称中共当局野心勃勃，是扩张主义者。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-167.jpg)
-参考链接：
-[蔡英文首度证实有美军协训 防卫台湾符合区域各国共同利益](https://www.rfa.org/mandarin/Xinwen/hx1028a-10272021233900.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编/编辑：木白
-校对/发稿：为真不破20
-
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

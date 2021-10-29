@@ -2,23 +2,44 @@
 ---
 
 
-## 加拿大儿科医生及主流媒体或合谋掩盖辉瑞疫苗真相
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1624266/)
+## GlobalFoundries 于周四在纳斯达克敲响了开盘种
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1624282/)
 
-编译撰稿： 文莱      校对编辑：硫酸羟氯喹64
+编译：西班牙喜悦农场–wenwu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-24-edited.jpg)图片来源：TRUENORTH
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-7-7.jpg)GlobalFoundries 于 2021 年 10 月 28 日在纳斯达克首次公开募股后敲响了开盘钟。 ROHINI SHAHRIAR/纳斯达克
+
+东部时间上午 11:51，GlobalFoundries [GFS， -3.74%](https://www.marketwatch.com/investing/stock/GFS?mod=MW_story_quote) 股价下跌并触及盘中低点 44.50 美元，最后下跌约 3% 至 45.61 美元。周三晚些时候，这家总部位于纽约的马耳他（Malta）的公司将股票定价为[每股 47 美元](https://www.marketwatch.com/story/globalfoundries-prices-ipo-at-47-a-share-for-25-billion-valuation-11635382866?mod=home-page&amp;mod=article_inline)，是其[预测范围的上限](https://www.marketwatch.com/story/globalfoundries-sets-ipo-terms-and-could-be-valued-at-over-25-billion-2021-10-19?mod=article_inline&amp;mod=article_inline)。
+
+GlobalFoundries 是一家第三方硅晶圆代工厂，在行业中被称为制造工厂或“晶圆厂”。
+
+像 GlobalFoundries 这样的第三方晶圆厂是为大多数没有自己晶圆厂的芯片制造商，来生产硅晶圆——这些公司包括 Advanced Micro Devices Inc.  [AMD、 -1.15%](https://www.marketwatch.com/investing/stock/AMD?mod=MW_story_quote),  苹果公司  [AAPL, 2.32%](https://www.marketwatch.com/investing/stock/AAPL?mod=MW_story_quote)  和英伟达公司  [NVDA， 1.02%](https://www.marketwatch.com/investing/stock/NVDA?mod=MW_story_quote) 事实上， GlobalFoundries 是 AMD 的一个分拆公司，当时该公司想退出晶圆厂业务。
+
+GlobalFoundries 区别于其他第三方晶圆厂，如台积电 [TSM、 1.41%](https://www.marketwatch.com/investing/stock/TSM?mod=MW_story_quote) 和中国半导体制造国际公司  [688981， +0.22%](https://www.marketwatch.com/investing/stock/688981?countryCode=CN&amp;mod=MW_story_quote) 因为它不依赖台湾或中国，因为两者之间的敌对行动对美国的战略供应来说将是一个巨大的问题。
+
+该公司首次公开亮相之际，全球正在努力解决全球芯片短缺的问题，晶圆厂有长期的客户积压（例如：台积电），但[就收益而言，](https://www.marketwatch.com/story/busy-ipo-market-this-week-may-make-2021-the-biggest-year-for-proceeds-and-break-previous-record-by-30-11631554372?mod=article_inline) IPO 是其[有史以来最大的市场之一](https://www.marketwatch.com/story/busy-ipo-market-this-week-may-make-2021-the-biggest-year-for-proceeds-and-break-previous-record-by-30-11631554372?mod=article_inline)。
+
+**简评：**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-12-5.png)图片来源于火来2号战友的推文
+
+一则相关[报道](https://www.reuters.com/article/globalfoundries-ipo/globalfoundries-shares-open-flat-on-nasdaq-debut-valuing-chipmaker-at-26-bln-idUSL4N2RO51K)。
+
+**周四，阿布扎比主权财富基金穆巴达拉投资公司(Abu Dhabi’s sovereign wealth fund Mubadala Investment Co)拥有的GlobalFoundries Inc的股票在纳斯达克平开，使这家芯片制造商（GFS）的市值达到约260亿美元。**
+
+**火来战友（[@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1/status/1453764205396434948?s=20)）在推特上也表示，郭文贵先生曾讲过，格芯上市那一天，注意看看照片上都有谁。最近知识点有点多，大家别落下功课啊。**
+
+（文章仅代表作者观点与GNEWS无关）
+
+**新闻来源：**[Market Watch] [GlobalFoundries stock slips in trading debut after company’s IPO priced at high end of range](https://www.marketwatch.com/story/globalfoundries-stock-slips-in-trading-debut-after-companys-ipo-priced-at-high-end-of-range-11635436717) | 作者：Wallace Witkowski｜发布时间：2021年10月28日
+
+* * *
+
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
 
 
-据加拿大自媒体【真北方】10月28日报道，阿尔伯塔省的一位知名儿科医生，卡尔加里大学教授凯尔纳博士在推动5-11岁儿童接种“新冠病毒疫苗”政策期间，获得了【辉瑞制药公司】的巨额资助，但几乎所有加拿大主媒都没有披露该事实。
-
-报道详细指出，自2014年以来，凯尔纳博士已从【辉瑞制药公司】获得了近200万加元用于研究各种疫苗的经费。而根据最新披露的文件显示，其最近一笔78万加元的拨款将被支付到2022年。
-
-据悉，加拿大多家主流媒体都曾数次引用凯尔纳教授的文章以引导公众接种【辉瑞公司】产“新冠病毒疫苗”，尤其是针对即将为儿童实施的该疫苗接种计划。但至今没有任何媒体提及该医生及其来自【辉瑞公司】的资助。
-
-根据对【加拿大广播公司】内容的搜索结果，凯尔纳医生的名字出现了41次以上，并且基本都在该媒体关于“新冠病毒疫苗”接种主题的视频和文章中。
-
-[原文链接：](http://Media%20didn’t%20disclose%20doctor’s%20$2M%20in%20Pfizer%20funding%20in%20coverage%20promoting%20child%20vaccination%20|%20True%20North%20%28tnc.news%29)
 
  
 

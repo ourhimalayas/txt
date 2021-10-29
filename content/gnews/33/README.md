@@ -2,72 +2,44 @@
 ---
 
 
-## 前国务卿蓬佩奥： 揭露新冠大流行的起源很重要。我们必须确保该对此负责的人被追责
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1624663/)
+## 纽约市消防员工会寻求延长疫苗令截止日期
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1624730/)
 
-前国务卿蓬佩奥： 揭露新冠大流行的起源很重要。我们必须确保该对此负责的人被追责，这样的一场大流行才不会再度发生。在我任国务卿的时候就已经开始做这个工作了；将它持续下去并得出结论是至关紧要的。 【转ACLJ组织官网蓬佩奥的文章，Fauci 和 NIH 仍需回答有关冠状病毒资金和爆发的问题】
-
-
-
-> It's essential that we uncover the COVID-19 pandemic's origins. We must ensure that those responsible are held accountable and that such an outbreak can never happen again. I began that work as Sec. of State; continuing it to its conclusion is imperative. [https://t.co/qub8OTI4K4](https://t.co/qub8OTI4K4)
-> — Mike Pompeo (@mikepompeo) [October 28, 2021](https://twitter.com/mikepompeo/status/1453712261793603595?ref_src=twsrc%5Etfw)
+**翻译：** 真北007
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ansb.jpg)图片来源：网络
+来自OAN 星期四28日的新闻报道：代表纽约市消防员的工会发誓要与该市的疫苗强制令作斗争。
 
-白宫： 启程！ 拜登总统正在前往罗马的 G20 峰会和格拉斯哥的联合国气候变化大会 [@COP26](https://twitter.com/COP26)。 我们请白宫发言人珍·普萨基对总统的第二次出访进行快速解释。 这是她所说的内容：（附视频）
+在未能与纽约市劳工关系办公室达成延期协议后，代表纽约市消防员的主要工会继续为争取疫苗令延期作斗争。制服消防员协会的负责人周三发誓要继续争取在 11 月 1 日的截止日期前延期，并鼓励所有未接种疫苗的工人继续工作。
 
+尽管有纽约市长比尔·德布拉西奥 (民主党-纽约) 的市长令，但工会主席安德鲁·安斯布罗（Andrew Ansbro）表示，希望尽快在周五达成延期协议。
 
+“我认为市长不明白 11 月 1 日会发生什么，将会出现灾难性的人力短缺，”Ansbro 说。，“有人告诉我，如果目前未接种疫苗的 3,500 名消防员被告知不要上班，那么就人手不够用。”
 
-> Wheels up! President Biden is en route to the G20 Summit in Rome and [@COP26](https://twitter.com/COP26?ref_src=twsrc%5Etfw) in Glasgow. We asked Press Secretary Jen Psaki to give a quick explanation of the President's second foreign trip. Here’s what she had to say: [pic.twitter.com/oZqyYcupPO](https://t.co/oZqyYcupPO)
-> — The White House (@WhiteHouse) [October 28, 2021](https://twitter.com/WhiteHouse/status/1453778902808137731?ref_src=twsrc%5Etfw)
+上周，纽约市长白思豪宣布市政工作人员必须在 11 月 1 日之前接种疫苗，否则他们将休无薪假。
 
+Ansbro 批评市政府官员对消防部门的待遇，尽管在几波病毒大流行中对城市持续不断地奉献。他强调了消防员对白思豪的疫苗令感到“侮辱”，并补充说，那些挣扎下决定是否需要疫苗的工人希望有权为自己做出决定。
 
+工会负责人还强调，纽约市消防站已经面临人员短缺的问题，并且一直在尽力保持运作。
 
-众议员马乔丽·泰勒·格林： 拜登的框架不是立法。 这个框架是美国最后，并将摧毁我们的经济，让我们向我们的敌人 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 屈服。 该框架将使美国人陷入贫困，以支付绿色新政骗局的费用。 没有什么是免费的，不要相信这个谎言！
+“这个城市在 11 月 1 日看起来会大不相同，届时市长将迫使消防员不要上消防车。你会看到数十个消防站关闭。您将看到响应时间不断攀升，”Ansbro 解释道。
 
+与此同时，该市大约 40% 的消防员已全面接种疫苗，据报道，大多数未接种疫苗的人以前都感染过该病毒，从而为他们提供了抗体。
 
+工会计划在未来几天内在法庭上挑战市政疫苗令。
 
-> Biden’s framework is not legislation.
-> 
-> The framework is America-Last and will destroy our economy and put us on our knees to our enemy, the CCP.
-> 
-> The framework will tax Americans into poverty to pay for the Green New Deal scam.
-> 
-> Nothing is free, don’t believe the lies!
-> — Marjorie Taylor Greene 🇺🇸 (@mtgreenee) [October 28, 2021](https://twitter.com/mtgreenee/status/1453751379646984192?ref_src=twsrc%5Etfw)
+**点评: **极左的纽约市长白思豪真的是紧跟大老板拜登，一样的不知道自己在做什么。 可以从文稿中看到纽约消防员接种率只有40%, 那一旦疫苗令生效，城市的消防系统就将瘫痪，将会造成巨大的生命财产损失。疫苗强制令违反宪法，违反人权，违背科学， 危害社会，造成生命财产损失及人道灾难， 世界各国人民正站起来反抗，运用法律武器，挑战并将最终战胜强权。
 
+原文链接：[https://www.oann.com/nyc-firefighter-union-seeks-vaccine-deadline-extension/](https://www.oann.com/nyc-firefighter-union-seeks-vaccine-deadline-extension/)
 
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
 
-参议员瑞克·斯科特: 民主党人无羞耻感。我们知道 [#华为](https://twitter.com/hashtag/%E5%8D%8E%E4%B8%BA?src=hashtag_click) 只不过是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 政府的一个危险部门，它正在积极对维吾尔人进行种族灭绝并威胁台湾的民主。民主党人喜欢在道德上保持正义，直到它妨碍到他们的收益时(就变了)。 【转路透社：[#华为](https://twitter.com/hashtag/%E5%8D%8E%E4%B8%BA?src=hashtag_click) 向华盛顿说客波德斯塔支付了 100 万美元 – 来源 （附链接）】
+编辑/发布：LILY
 
+20211028
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 
-
-> Democrats have no shame. We know Huawei is nothing more than a dangerous arm of the Communist Chinese government which is actively committing genocide against Uyghurs & threatening democracy in Taiwan. Dems love acting morally righteous until it gets in the way of their profits. [https://t.co/YnTNQ11Zl6](https://t.co/YnTNQ11Zl6)
-> — Rick Scott (@SenRickScott) [October 28, 2021](https://twitter.com/SenRickScott/status/1453749694430162961?ref_src=twsrc%5Etfw)
-
-
-
-众议员阿什利·欣森： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click)[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 对维吾尔人犯下了严重的侵犯人权暴行。 美国的公司不应该宽恕他们。 感谢篮球运动员[@EnesKanter](https://twitter.com/EnesKanter)为终结维吾尔人劳役而发声。 【转发 [@EnesKanter](https://twitter.com/EnesKanter)，谴责耐克使用维吾尔人强迫劳役】
-
-
-
-> The Chinese Communist Party has committed gross human rights atrocities against the Uyghurs. 
-> 
-> American companies shouldn't condone it. 
-> 
-> Thank you [@EnesKanter](https://twitter.com/EnesKanter?ref_src=twsrc%5Etfw) for speaking out to [#EndUyghurForcedLabor](https://twitter.com/hashtag/EndUyghurForcedLabor?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/8eP3dgMoAc](https://t.co/8eP3dgMoAc)
-> — Ashley Hinson (@RepAshleyHinson) [October 28, 2021](https://twitter.com/RepAshleyHinson/status/1453736325199269898?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·沃尔茨： 我们从来没有面对过 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 这样的对手，经济比我们强大，我们依赖他们的供应链。 但我们有盟友，他们没有。特别是在拜登灾难性的阿富汗撤军之后，我们必须巩固和印度，日本，澳大利亚和欧盟的联盟。 【视频大意为推文】
-
-
-
-> We've never faced an adversary like the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw), with an economy bigger than ours & supply chains we rely on.
-> 
-> But what we have that they don't is allies. Especially after Biden's disastrous withdrawal from Afghanistan, we must solidify alliances with India, Japan, Australia & NATO. [pic.twitter.com/eKY6V8DUHb](https://t.co/eKY6V8DUHb)
-> — Rep. Mike Waltz (@michaelgwaltz) [October 28, 2021](https://twitter.com/michaelgwaltz/status/1453718946473918467?ref_src=twsrc%5Etfw)
 
 
 

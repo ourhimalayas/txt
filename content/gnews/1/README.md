@@ -2,12 +2,35 @@
 ---
 
 
-## 一对年轻健康的情侣打了疫苗后患上心包炎和心肌炎
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1624946/)
+## 有声|退休四星上将希望美国能做出保护台湾的承诺
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1625086/)
 
-10/21/2021 疫苗受害者：我和我的伴侣身体健康，经常锻炼。 我很震惊地得知，我在接种一剂疫苗后得了心包炎，而与此同时，我的伴侣在接种第二剂后得了心肌炎。
+配音：香草山美食部 – 玫瑰园
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+10月26日，美国退休的四星上将杰克-肯尼在接受福克斯新闻的采访时表示，他衷心希望美国能履行保护台湾的承诺。
+
+杰克提及，美国目前与台湾的关系仍处于战略模糊阶段，但拜登总统毫无疑问地支持台湾，愿意帮助台湾建设军队并提供武器装备及物资，且他多次承诺会保护台湾。为此，杰克希望拜登总统可以落实这一承诺。
+
+同时，美国也一直努力为台湾促成同盟关系，激励日本做出对台的保护承诺，并增强台湾与欧盟的纽带。
+
+杰克谈到，中共，尤其是习近平近期的对台行为极具侵略性。此前，中共还多次做出侵犯人权的行为，包括对香港民主的摧毁和对新疆维吾尔少数民族的暴行。最为重要的是，中共此次在世界范围内释放新冠病毒，造成全球性的灾难。这些都是让西方国家对中共持续提高警戒的要素。
+
+此前，郭先生也在大直播中爆料，美国专业人士明确答复，一旦中共发动对台攻击，美国，协同日本一定会出手助台。
+
+文字版原文：[退休四星上将希望美国能做出保护台湾的承诺](https://gnews.org/zh-hans/1621065/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

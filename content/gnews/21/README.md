@@ -2,15 +2,13 @@
 ---
 
 
-## 中共国防部以口炮回应”美军驻台“
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1624766/)
+## 新西兰总理阿尔登把人分成两个阶级：接种疫苗和未接种者
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1624898/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1029-scaled.jpg)
-（文章仅代表作者个人观点，与GNEWS无关）
+10/24/2021 德瑞克采访新西兰总理阿尔登她是否认为，人们根据接种疫苗与否而被分成两大类，而接种了疫苗的人就可享有一切权利。阿尔登给予了肯定的答复。
 
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
