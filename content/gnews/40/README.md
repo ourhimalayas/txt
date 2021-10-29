@@ -2,36 +2,28 @@
 ---
 
 
-## WTO审议中共对澳大利亚葡萄酒征收的进口关税
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1625940/)
+## 秘翻在线：安全研究人员警告iPhone用户应从手机上删除“它”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1626013/)
 
-作者：美东香草山 新世界的一员
+撰稿：文字焼
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16355128671.png)图片来源：[https://www.wowkorea.jp/news/newsread\_image.asp?y=1 HYPERLINK “https://www.wowkorea.jp/news/newsread\_image.asp?y=1&imd=320558″& HYPERLINK “https://www.wowkorea.jp/news/newsread\_image.asp?y=1&imd=320558″imd=320558](https://www.wowkorea.jp/news/newsread_image.asp?y=1&amp;imd=320558)
+据日本雅虎新闻报道，具有代表性的网络社交平台–脸书（Facebook）会擅自收集苹果（iPhone）用户的照片和位置等个人信息。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国商业杂志《福布斯》包括汤米·米斯克在内的几位安全研究人员警告说，应该从iPhone上删除Facebook应用程序。
 
-10月26日的消息称，澳大利亚第二次提出要求，对中共向澳大利亚进口葡萄酒征收的惩罚性关税进行审议，世界贸易组织对此表示同意并接受。早在今年9月，由于中共的阻止，世界贸易组织拒绝了澳大利亚就此提出的第一次审议。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-29-at-9.57.05-PM.png)
-据悉，由于澳大利亚要求对新冠病毒起源展开国际调查，中共随即对澳大利亚的贸易实行惩罚性关税。除葡萄酒外，澳大利亚的大麦、牛肉、煤炭等进口商品均被中共征收关税。
+今年4月，苹果公司通过其新的操作系统推出了应用跟踪透明化（ATT）功能，该功能阻止了对个人数据的跟踪，可以防止APP收集你的位置或任何其他个人信息。因此，包括Facebook在内的所有应用程序上的定向广告受到了限制。
 
-对于世界贸易组织的这一次审议，中共仍然声称，其受到挑战的措施符合世贸组织的相关规定，并强调要捍卫其所谓的“合法措施”。
+然而，安全研究人员指出，Facebook正在使用iPhone的加速度计来跟踪用户的动作。加速计提供的加速度数据消除了重力对物体的影响，使用户能够看到他们移动的速度。利用这些传感器，可以识别用户是躺着、坐着还是走着，甚至可以估计其位置。
 
-然而，据国内民生相关消息显示，中共这一做法不仅在国际上产生恶劣影响，就连墙内民众也深受其害，中共国内贸易商品价格飞涨。
+另外，也很难拒绝Facebook的位置跟踪功能。Facebook应用程序本身会通过分析振动模式和其他因素来推断你的位置。米斯克说：“防止信息泄漏的唯一方法是删除Facebook。”
 
-参考链接： [世界贸易组织将审议中国对澳大利亚葡萄酒征收的进口关税](https://twitter.com/voachinese/status/1453463023633375233?s=21)
+据安全研究人员称，在Tik-Tok、Wechat、iMessages和Telegram等主要社交网站中，Facebook是唯一使用加速计收集位置数据的APP。实际上，对于iPhone用户来说，Facebook是最容易发生信息泄露的。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+信息来源：[https://news.yahoo.co.jp/articles/68d8a09319af62c23c454f3c730f38d1c83ffdd4](https://news.yahoo.co.jp/articles/68d8a09319af62c23c454f3c730f38d1c83ffdd4)
 
-编辑/总编：Irene木木
-校正/发稿：我不在这里
+（文章仅代表作者个人观点）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+责编：待命（文晓）
 
  
 

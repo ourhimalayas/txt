@@ -2,29 +2,23 @@
 ---
 
 
-## 有声|阿拉巴马州州长抵制强制疫苗接种政策
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1626291/)
+## 文贵爆料10/29 格芯在美上市昭示中共在技术上的假空与灭亡命运
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1626329/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-10月26日，媒体消息表示，阿拉巴马州州长凯·艾维于本周一签署了第724号行政命令。该行政命令宣布，阿拉巴马州政府机构不得执行联邦政府关于新冠病毒疫苗的强制接种令，且法令于签署当天立即在全州生效。
+撰稿：回响
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Pic1.png)图片来源：GTV & GETTR
+2021年10月29日郭文贵先生谈到格芯为什么没有在中共国而在美国纳斯达克上市的原因。格芯在美上市，说明共产党从来没有想拥有技术，也认为没有必要拥有，而是从来都是靠中国市场垄断对技术公司进行威胁和利诱。
 
-对于疫苗强制令，艾维谴责称，这是联邦政府的越权行为。艾维还补充表示，全球各地越来越多的人已经意识到，疫苗是一场灾难。再者，每一个人都应该享有自由医疗的权利，世界各国的民众都一样，他们不应被政府强迫接种新冠疫苗。
+作为格芯的少数投资者，郭文贵先生再三声明不做任何投资建议。但他却是最先洞察芯片未来的敏锐行动人。郭先生简要地回忆了和格芯的因缘。并放眼全球，从成都到美国、台湾、新加坡等的制造主体和研发、投资主体的由来。
 
-艾维还特别声明说，作为州长，她不会强迫任何人接种新冠疫苗，同时，她也会跟阿拉巴马州人民一起，反对这项令人愤慨的强制令。
+郭先生对比美国的科技产业和中共国的对应领域的巨大区别和差距，特别谈到马斯克和马云等鲜明的对比。马斯克当时在中国谈创造、文明、外星空，而马云等中共国企业家和官员谈复制、市场垄断、赚钱，这是一种巨大的对比。证明中共的假大空、可耻、低级和无知。
 
-文字版原文：[阿拉巴马州州长抵制强制疫苗接种政策](https://gnews.org/zh-hans/1623803/)
+郭先生历数海外伪类和所谓民运的诸种荒唐现象，一针见血、入木三分地指出，所有的中共国当权者，无论内外，无论浓缩版还是正式版都无一例外地暴露出彻底的无知、无信心、更无国家规划，无国家利益。其灭亡是必然，也是中共的悲哀。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+【原文链接】https://gtv.org/broadcast/watch/617be96f11d1862968fccc4c
+
+校对、发布：Shifter
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
