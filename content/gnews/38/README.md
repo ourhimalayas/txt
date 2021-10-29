@@ -2,44 +2,34 @@
 ---
 
 
-## GlobalFoundries 于周四在纳斯达克敲响了开盘种
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1624282/)
+## 中共国的柴油荒将引发激烈通胀
+` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1624511/)
 
-编译：西班牙喜悦农场–wenwu
+#### 加拿大多伦多枫叶农场 丁过
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1_15130223O_0.jpeg)来源：RFA
+据德国之声28日报道，在经历了缺电、煤荒之后，中共国的柴油价格一路攀升，而且同时出现了柴油供应短缺的现象，各地加油站纷纷限量加油。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-7-7.jpg)GlobalFoundries 于 2021 年 10 月 28 日在纳斯达克首次公开募股后敲响了开盘钟。 ROHINI SHAHRIAR/纳斯达克
+从9月初以来，中共国的柴油价格就从5500元/吨上涨至约8600元/吨，短时间内上涨了55%。
 
-东部时间上午 11:51，GlobalFoundries [GFS， -3.74%](https://www.marketwatch.com/investing/stock/GFS?mod=MW_story_quote) 股价下跌并触及盘中低点 44.50 美元，最后下跌约 3% 至 45.61 美元。周三晚些时候，这家总部位于纽约的马耳他（Malta）的公司将股票定价为[每股 47 美元](https://www.marketwatch.com/story/globalfoundries-prices-ipo-at-47-a-share-for-25-billion-valuation-11635382866?mod=home-page&amp;mod=article_inline)，是其[预测范围的上限](https://www.marketwatch.com/story/globalfoundries-sets-ipo-terms-and-could-be-valued-at-over-25-billion-2021-10-19?mod=article_inline&amp;mod=article_inline)。
+国内多个省份的加油站在给卡车加油时，一辆车只给加100升～300升柴油，而卡车油箱容量通常是1000升。
 
-GlobalFoundries 是一家第三方硅晶圆代工厂，在行业中被称为制造工厂或“晶圆厂”。
+卡车司机叹息：加这点油还不够跑一趟短途，大部分时间只能窝在家里，但每年超过2万元的交强险+商业险等一分不少都要上交。
 
-像 GlobalFoundries 这样的第三方晶圆厂是为大多数没有自己晶圆厂的芯片制造商，来生产硅晶圆——这些公司包括 Advanced Micro Devices Inc.  [AMD、 -1.15%](https://www.marketwatch.com/investing/stock/AMD?mod=MW_story_quote),  苹果公司  [AAPL, 2.32%](https://www.marketwatch.com/investing/stock/AAPL?mod=MW_story_quote)  和英伟达公司  [NVDA， 1.02%](https://www.marketwatch.com/investing/stock/NVDA?mod=MW_story_quote) 事实上， GlobalFoundries 是 AMD 的一个分拆公司，当时该公司想退出晶圆厂业务。
+导致柴油紧缺的原因之一是煤炭缺少引起的“连锁反应”：为了应对限电，不愿停工、减产的工厂和商家只能购买柴油发电机，因此增加了柴油用量。
+![](https://www.ft.com/__origami/service/image/v2/images/raw/https%3A%2F%2Fthumbor.ftacademy.cn%2Funsafe%2Fpicture%2F8%2F000110228_piclink.jpg?source=ftchinese&amp;width=1300&amp;height=731&amp;fit=cover&amp;from=next001)来源：FT中文网
+另外，受国际原油价格上涨影响，炼油企业开工率不足、北方进入收割季用油需求增加等等也是导致柴油紧缺的原因。
 
-GlobalFoundries 区别于其他第三方晶圆厂，如台积电 [TSM、 1.41%](https://www.marketwatch.com/investing/stock/TSM?mod=MW_story_quote) 和中国半导体制造国际公司  [688981， +0.22%](https://www.marketwatch.com/investing/stock/688981?countryCode=CN&amp;mod=MW_story_quote) 因为它不依赖台湾或中国，因为两者之间的敌对行动对美国的战略供应来说将是一个巨大的问题。
+国内煤炭开釆量占到其总用量的90%，即使有国际气候协定的约束，中共还可以偷偷加大开采量来部分缓解煤炭供应紧缺的矛盾。
 
-该公司首次公开亮相之际，全球正在努力解决全球芯片短缺的问题，晶圆厂有长期的客户积压（例如：台积电），但[就收益而言，](https://www.marketwatch.com/story/busy-ipo-market-this-week-may-make-2021-the-biggest-year-for-proceeds-and-break-previous-record-by-30-11631554372?mod=article_inline) IPO 是其[有史以来最大的市场之一](https://www.marketwatch.com/story/busy-ipo-market-this-week-may-make-2021-the-biggest-year-for-proceeds-and-break-previous-record-by-30-11631554372?mod=article_inline)。
+但国内油气消耗的70%依赖进口，而且油气价格较去年已经成倍上涨，等于要用比去年多一倍以上的外汇去购买相同数量的油气，而且油气价格远未见顶，中共的外汇储备将被快速消耗，因此可以预见中共国的能源危机将进一步加剧。
 
-**简评：**
+柴油是运输业的“血液”，物流是供需双方之间的桥梁，当出现柴油荒时，中共国的产业链将加速断裂，导致终端消费市场出现商品供应紧缺和价格上涨，从而激烈推升国内通胀。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-12-5.png)图片来源于火来2号战友的推文
+由于中共国是全球最重要的普通商品出口国，发生在国内的能源危机将引发国际市场的恶性通胀。
 
-一则相关[报道](https://www.reuters.com/article/globalfoundries-ipo/globalfoundries-shares-open-flat-on-nasdaq-debut-valuing-chipmaker-at-26-bln-idUSL4N2RO51K)。
+参考来源：
 
-**周四，阿布扎比主权财富基金穆巴达拉投资公司(Abu Dhabi’s sovereign wealth fund Mubadala Investment Co)拥有的GlobalFoundries Inc的股票在纳斯达克平开，使这家芯片制造商（GFS）的市值达到约260亿美元。**
-
-**火来战友（[@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1/status/1453764205396434948?s=20)）在推特上也表示，郭文贵先生曾讲过，格芯上市那一天，注意看看照片上都有谁。最近知识点有点多，大家别落下功课啊。**
-
-（文章仅代表作者观点与GNEWS无关）
-
-**新闻来源：**[Market Watch] [GlobalFoundries stock slips in trading debut after company’s IPO priced at high end of range](https://www.marketwatch.com/story/globalfoundries-stock-slips-in-trading-debut-after-companys-ipo-priced-at-high-end-of-range-11635436717) | 作者：Wallace Witkowski｜发布时间：2021年10月28日
-
-* * *
-
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
-
-
+[能源危机雪上加霜 中国出现柴油紧缺 | 经济纵横 | DW | 28.10.2021](https://www.dw.com/zh/能源危机雪上加霜-中国出现柴油紧缺/a-59650051)
 
  
 

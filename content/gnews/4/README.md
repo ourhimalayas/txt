@@ -2,15 +2,13 @@
 ---
 
 
-## 受中共病毒冲击，日本央行调降年度GDP成长预期
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1624750/)
+## 埃内斯·坎特要求中共停止新疆种族灭绝，释放维吾尔人
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1624919/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10._29-scaled.jpg)
-（文章仅代表作者个人观点，与GNEWS无关）
+10/22/2021 NBA球星埃内斯·坎特在全世界面前点名习近平和中共，要求他们立即停止在新疆的种族灭绝行为并释放维吾尔人。
 
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

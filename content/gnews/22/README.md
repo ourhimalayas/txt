@@ -2,19 +2,15 @@
 ---
 
 
-## 格芯在纳斯达克上市第一天股价走势平稳
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1624580/)
+## 受中共病毒冲击，日本央行调降年度GDP成长预期
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1624750/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_2293-1.jpg)图片来源：Gnews
-在岁末年终之际，格芯（GlobalFoundries）以其预估250亿美金的巨大体量杀入纳斯达克，成为半导体公司有史以来最大的IPO，也是今年美国本地的最大IPO。据纳斯达克和格芯官方推特报道，在10月28日美国纽约时间上午11点11分格芯在纳斯达克股票交易所成功上市，上市第一天股价走势平稳。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10._29-scaled.jpg)
+（文章仅代表作者个人观点，与GNEWS无关）
 
-格芯的开盘价格为每股47美金。开盘后，曾有一个小的涨幅，一度接近48美金。之后股价在44到47美金之间波动，最终当天股价定格在46.4美金。总体来说，非常圆满，股价走势平稳。
-
-**新闻来源：**
-
-[格芯今日纳斯达克成功上市](https://gnews.org/zh-hans/1624479/)
-
+*编辑：东京樱花团/简报小组*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

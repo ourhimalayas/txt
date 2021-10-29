@@ -2,50 +2,32 @@
 ---
 
 
-## 内部电子邮件显示阿尔伯塔省拒绝医生使用伊维菌素的请求
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1624652/)
+## 有声|渤海银行未经授权质押储户存款28亿
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1624825/)
 
-作者：Sheila Gunn Reid
-翻译: HimaCoby
+配音：香草山美食部 – 玫瑰园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/sheila-articleoct28.jpg)
+当地时间10月25日，据相关媒体消息，江西民企济民可信集团的28亿存款遭渤海银行未经授权挪作第三方质押。济民可信在得知28亿存款被质押而无法调用后，向渤海银行南京分行交涉。随后，渤海银行发公告称，已经向警方报案。
 
-向反叛新闻提供的阿尔伯塔省政府关于使用伊维菌素政策的文件显示，阿尔伯塔省北部至少有一名医生被拒绝使用这种抗寄生虫药。
+消息中提及，早在今年8月19日，济民可信获知有人正在银行柜台冒充该集团人员办理存款质押手续，其后，该集团28亿存款被用于为华业石化提供票据融资担保，后又因华业石化债务问题，导致这28亿存款被冻结。
 
-这种药物通常被描述为马驱虫剂，然而，人类对该药物的应用获得了2015 年的诺贝尔奖，以对抗一些热带疾病。
+另据报道显示，华业石化公司身份存疑，不仅疑似编造央企子公司的背景，且无法通过其注册地址找到该公司。为此，渤海银行用于办理质押担保的材料也存在造假嫌疑，相关材料中有300多个公章疑似伪造。
 
-2020 年 12 月上旬，拉比什湖的家庭医生理查德·伯基尔博士向阿尔伯塔省卫生服务中心北区药房提出了使用 “标签外” 药物治疗他新冠患者的请求。
+有相关评论指出，渤海银行此次事件看似是存款纠纷，实际是信用问题。一旦其信用崩塌，将会带来连锁反应。加之此前郭先生也曾爆料道，中共银行的坏账率极高，暗箱操作和监守自盗现象屡见不鲜，并无诚信可言。
 
-伯基尔还打电话给北区药房经理凯文霍夫斯泰德，为他的病人购买药物。这一请求引发了霍夫斯泰德与阿尔伯塔省药房服务药物利用总监 杰里米·斯洛博丹之间的一系列内部沟通，后者随后向组成新冠科学咨询小组的医生和专家团队发送了电子邮件。
+文字版原文：[渤海银行未经授权质押储户存款28亿](https://gnews.org/zh-hans/1621494/)
 
-阿尔伯塔大学医学（肺）教授阿兰·特伦布莱回答说，伊维菌素的治疗用途“在我看来不应该在阿尔伯塔省得到认可”。
+音频处理：喜山必胜Maverick
 
-莱诺拉·萨克纳传染病医学阿尔伯塔大学系的副教授，又向前迈出一步。她指责福克斯新闻和阿尔伯塔省的广播公司丹妮尔史密斯制造假新闻：
-
-大量错误的信息（包括来自福克斯新闻和丹妮尔·史密斯），这激发了很多关于灵丹妙药的讨论巨大的热情。实际上，体外数据，以及一些相当糟糕的试验数据表明这是一种不符合我们纳入治疗指南标准的药物，不适合在临床试验之外的提供。
-
-2020 年 12 月，美国国立卫生研究院国家医学图书馆发表的一项针对孟加拉国新冠患者的研究表明，伊维菌素为期五天的疗程在治疗患有轻度疾病的成年患者方面是安全有效的。研究人员指出，研究中没有记录严重的药物不良事件，但是，“需要更大规模的试验来证实这些初步发现。”
-
-來源：https://www.rebelnews.com/internal\_emails\_show\_alberta\_doctor\_had\_ivermectin\_use\_request\_denied\_by\_ahs
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

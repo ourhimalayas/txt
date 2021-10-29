@@ -2,30 +2,26 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月28日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1623885/)
+## 加密货币顺势而生，喜币为王汇通天下
+` 军迷wilson` [轉載自GNews](https://gnews.org/zh-hans/1624308/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-412.png)
+#### 加拿大多伦多枫叶农场  军迷wilson
+![](https://assets.gnews.org/wp-content/uploads/2021/10/360DC6FE-9FF9-4763-9E14-855341151472.jpeg)来源：himalayaexchange
+郭文贵先生在最近的直播中强调，喜马拉雅货币体系是一个超越国家主权级别的金融货币体系，她肩负着打破各国政府和沼泽地垄断这个世界的货币发行权、生产力定价权和财富分配权的历史使命，这个权力最终应归属于人民。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV_-_Google_.png)
-文章仅代表作者本人观点，与Gnews无关
+郭先生说，人类的交易形式只有向数字化转型，才能适应、激发七十多亿人的巨大生产力和创造力，当前的加密货币和数字化金融就是顺应历史发展而生。新中国联邦的Himalaya货币体系到目前为止，还没有任何人设计出类似的交易结构，她是独一无二的。
 
-视频参看：2021.10.28早GTV新闻访谈
+除了中共等为数不多的极权主义者，几乎所有人都认为在数字信息时代，信用是让竞争者立于不败之地的第一要素。相较于以主权背书的纸币，信用是货币的生命之源，是货币的根本属性。
 
-[https://gtv.org/broadcast/watch/617a976feadeb11f5e7b6e21](https://gtv.org/broadcast/watch/617a976feadeb11f5e7b6e21)
+由于新中国联邦是全世界唯一以消灭邪恶中共为己任的正道主义实体，在全世界范围内树立了良好的声明，成了当今人类文明的新灯塔，因此喜马拉雅货币体系和G商业系列具备了最大化的信用特征。蜂涌而至的投资者订购的实际上是新中国联邦的信用红利和美好的未来。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+除了信用，评判一个货币价值的另一个标准是该货币的普遍接受性，就是使用的人是不是足够多。郭先生领导的新中国联邦，正在构建跨越国界的货币发行、金融服务、媒体集团、商业连锁等顶级生态系统，为喜币打下了“汇通天下”的坚实基础。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-8.png)
+参考来源：
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[泰山2021/10/27盖特](https://gettr.com/post/pfb267c318)
+
+（文章仅代表作者观点，与GNEWS无关）
 
  
 
