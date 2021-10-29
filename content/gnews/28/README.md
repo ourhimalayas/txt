@@ -2,23 +2,37 @@
 ---
 
 
-## 文贵爆料10/29 格芯在美上市昭示中共在技术上的假空与灭亡命运
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1626329/)
+## 柏林圣诞集市将拒绝未接种新冠疫苗者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1626333/)
 
-撰稿：回响
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Pic1.png)图片来源：GTV & GETTR
-2021年10月29日郭文贵先生谈到格芯为什么没有在中共国而在美国纳斯达克上市的原因。格芯在美上市，说明共产党从来没有想拥有技术，也认为没有必要拥有，而是从来都是靠中国市场垄断对技术公司进行威胁和利诱。
+作者：纽约香草山信息部- 诺雅
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月28日，德国媒体消息表示，近日，柏林的官员决定，德国传统的露天圣诞市场活动将于11月22日开始，但未接种新冠疫苗的民众将被禁止参加。
 
-作为格芯的少数投资者，郭文贵先生再三声明不做任何投资建议。但他却是最先洞察芯片未来的敏锐行动人。郭先生简要地回忆了和格芯的因缘。并放眼全球，从成都到美国、台湾、新加坡等的制造主体和研发、投资主体的由来。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-18.jpeg)
 
-郭先生对比美国的科技产业和中共国的对应领域的巨大区别和差距，特别谈到马斯克和马云等鲜明的对比。马斯克当时在中国谈创造、文明、外星空，而马云等中共国企业家和官员谈复制、市场垄断、赚钱，这是一种巨大的对比。证明中共的假大空、可耻、低级和无知。
+据规定，12岁以上参加活动的民众必须证明已经接种两剂新冠疫苗，或证明已从新冠病毒感染中恢复。柏林政府强调，12岁以上的未接种新冠疫苗者，除非他们能够获得医疗豁免，否则，即使他们的病毒检测呈阴性，也会被拒绝进入集市。另外，柏林宪兵市场的圣诞魔法、红色市政厅的圣诞集市等著名圣诞市场都将执行同一规定。
 
-郭先生历数海外伪类和所谓民运的诸种荒唐现象，一针见血、入木三分地指出，所有的中共国当权者，无论内外，无论浓缩版还是正式版都无一例外地暴露出彻底的无知、无信心、更无国家规划，无国家利益。其灭亡是必然，也是中共的悲哀。
+但是，就在上周，欧盟议会成员伊万-辛契奇于新闻发布会上评论道，新冠疫苗护照只能给予人们虚假的安全感，且其存在即不符合逻辑，也不科学，必须将其飞出。更有评论指出，新冠疫苗胁迫政策的真正意图与公共卫生没有关系，政府已将社会隔离、医疗隔离和制度歧视当作武器，用以压迫未接种新冠疫苗的民众。
 
-【原文链接】https://gtv.org/broadcast/watch/617be96f11d1862968fccc4c
+参考链接：
+1) [Weihnachtsmärkte 2021 im 2G-Modell](https://www.berlin.de/weihnachtsmarkt/2g/)
+2) [Unvaccinated People To Be Banned From Berlin Christmas Markets](https://www.zerohedge.com/covid-19/unvaccinated-people-be-banned-berlin-christmas-markets)
+3) [https://gettr.com/post/pf431a207e](https://gettr.com/post/pf431a207e)
 
-校对、发布：Shifter
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
+总编：Irene木木
+编辑：山本不惑
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
