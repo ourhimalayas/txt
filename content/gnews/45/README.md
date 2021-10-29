@@ -2,83 +2,36 @@
 ---
 
 
-## 疫苗接种者在9月份出现高死亡率和住院率
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1625637/)
+## 美议员推新法案全球追踪中共活动
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1625746/)
 
-**编译：西班牙巴塞罗那喜悦农场-wenwu**
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip94.png)
+10月27日，美国国会共和党人推出名为“中（共）国观察法”（China Watcher Act）的议案，计划将在国务院设立新项目，以监测、追踪和抗衡中共国在国际社会的军事、经济和政治动态。
 
-最新的官方公共卫生数据显示，在过去四周中，完全接种疫苗的人占中共病毒（**Covid-19**）死亡人数的** 85%**，同时也占（**9**月**25**日至**10**月**22**日）**Covid-19 **住院人数的** 75%**，以及占疑患有** Covid-19 **病例的** 61%**。
+据美国之音报道，来自纽约州的共和党联邦众议员坦尼（Rep. Claudia Tenney, R-NY）星期三推出名为“中（共）国观察法”（China Watcher Act）的议案。该法案计划在2022财年拨款一千万美元在国务院成立新的“中（共）国观察项目”（China Watcher Program），锁定中共在国际领域的各种影响力为目标进行观察。
 
-[Covid-19统计报告](https://publichealthscotland.scot/media/9908/21-10-27-covid19-publication_report.pdf)是由苏格兰公共卫生局（Public Health Scotland）发表关于 Covid-19 数据的每周报告，以及最新的更新[发布于 10 月 27 日的](https://publichealthscotland.scot/media/9908/21-10-27-covid19-publication_report.pdf)报告证实，完全接种疫苗的人口的情况每周都在恶化，而未接种疫苗的人群的情况则在改善。
+根据内容，法案指示国务卿在与国防部长协调后在国务院内设立一项新的“中（共）国观察项目”。该项目将追踪和抗衡中共在外国的军事、经济和政治领域的恶意影响；强化美国政府与外国以及区域和国际机构的沟通能力，以应对中共恶意影响的政策；派驻外交事务官员到美国特定驻外外交和领事职位，与中共国和包括所在国的第三方国家在涉及中共恶意影响的议题上进行接触；指示国务卿将受到中共影响并涉及到美国在当地利益的国家列为优先要务。
 
-该[报告的](https://publichealthscotland.scot/media/9908/21-10-27-covid19-publication_report.pdf) Table 23 证实，从 2021 年 10 月 16 日开始的一周内，大多数 Covid-19 病例属于完全接种疫苗的人群，占1万0992例。而未接种疫苗的人口约是完全接种者的一半，也就是 5756 例（如下图）。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211029121428.png)图片来源：https://www.voachinese.com/a/us-gop-lawmaker-introduces-china-watcher-act-20211027/6288717.html
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip95.png)
+法案还要求“中（共）国观察项目”的外交和领事职位必须提出年度报告，内容必须包含提出建议、讨论趋势和分析事态，包括中共国在外国关键产业直接投资的性质和范围。
 
-2021 年 9 月 25 日至 10 月 22 日期间，由上表确认的按疫苗接种状态划分的病例总数如下：
+坦尼在书面声明中表示，法案的目的在于为美国政府提供更多资源，以便更好地掌握中共的各种势力扩张和影响力渗透，并同时增加政府各部会之间合作应对任何可能威胁。她说，“中共国横行无阻太久了，现在是美国采取果断行动的时候了。”
 
-- 未接种疫苗的人口 = 2万7511例
+众议院外交事务委员会首席共和党成员麦考尔（Rep. Michael McCaul, R-TX）也在书面声明中说，“在中国共产党统治下，中共国从事的恶意活动遍布全球各地，这项挑战与其它挑战都不同，需要具有全球战略眼光，美国国务院有必要成立一个专门小组，追踪中共国的恶意活动。”
 
+目前这项法案获得众议院两党七位议员的联署支持，包括共和党人麦考尔、杰克逊（Rep. Ronny Jackson, R-TX）、梅杰尔（Rep. Peter Meijer, R-MI）、曼恩（Rep. Tracey Mann, R-KS）和巴宾（Rep. Brian Babin, R-TX）,以及民主党人席瑞斯（Rep. Albio Sires, D-NJ）和菲利普斯（Rep. Dean Phillips. D-MN）。
 
-- 部分接种人群 = 3621 例
+*注：本文仅代表作者观点，与 Gnews无关*
 
+*参考链接：*
 
-- 完全接种疫苗的人口 = 3万8474例
-
-
-这意味着接种疫苗的人群占 9 月 25 日至 10 月 22 日之间 Covid-19 病例总数的 61%（4万2095人） ，而未接种疫苗的人群占 Covid-19 病例总数的 39%（2万7511人）。
-
-然而，在住院方面，接种疫苗和未接种疫苗之间的差异变得更糟，至少自2021 年 7 月以来，完全接种疫苗的人现在占 Covid-19 住院人数的绝大部分（如下图）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip96.png)
-
-上表显示，未接种疫苗的 60 岁以上人群仅占 9 月 25 日至 10 月 22 日期间 Covid-19 住院人数的 10%（131人），而接种疫苗的 60 岁以上人群占 90%（1211人）。
-
-在 30 至 59 岁年龄组中也可以看到类似的趋势，未接种疫苗的人仅占 Covid-19 住院人数的 33%（244人），而接种疫苗的人占 67%（489人）。
-
-根据 PHS [报告](https://publichealthscotland.scot/media/9908/21-10-27-covid19-publication_report.pdf) Table 24(上图）确认，2021 年 9 月 25 日至 10 月 22 日期间所有年龄组按疫苗接种情况划分的住院总人数，如下：
-
-- 未接种疫苗的人口 = 584
-
-
-- 部分接种人口 = 81
-
-
-- 完全接种疫苗的人口 = 1672
-
-
-这意味着接种疫苗的人群（1753）占 2021 年 9 月 25 日至 10 月 22 日期间 Covid-19 住院人数的 75%，而未接种疫苗的人群（584）仅占 25%。 但是，当涉及到据称与 Covid-19相关的死亡时，接种疫苗和未接种疫苗之间的差异再次变得更糟。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip98.png)
-
-PHS [报告](https://publichealthscotland.scot/media/9908/21-10-27-covid19-publication_report.pdf)的 Table 25(上图)确认了 2021 年 9 月 18 日至 10 月 15 日期间按疫苗接种状态划分的所谓 Covid-19 死亡总数如下：
-
-- 未接种疫苗的人口 = 85 人死亡
-
-
-- 部分接种疫苗的人口 = 17 人死亡
-
-
-- 完全接种疫苗的人口 = 457 人死亡
-
-
-这意味着接种疫苗的人群占 9 月 18 日至 10 月 15 日期间 Covid-19 死亡人数的 85%（474人），而未接种疫苗的人群仅占 15%（85人）。
-
-就 Covid-19 疫苗的有效性而言，完全接种疫苗的人现在占 Covid-19 病例的大部分，这一事实非常令人担忧，因为直到最近，没有资格接种中共疫苗的儿童占了绝大多数的病例（德尔塔病毒更易感染儿童）。
-
-由于 Covid-19 完全接种人群的住院率和死亡人数每周都在上升，而未接种疫苗的人群的住院率和死亡人数继续下降，因此还需要进一步询问有关中共疫苗有效性的问题。
-
-（文章仅代表作者观点与GNEWS无关）
-
-**新闻来源**：[theexpose.uk] [EXCLUSIVE – 85% of Covid-19 Deaths & 75% of Hospitalisations were among the Fully Vaccinated in the last month according to the latest Public Health data](https://theexpose.uk/2021/10/28/85-percent-of-covid-19-deaths-among-the-fully-vaccinated/) | 发布时间：2021年10月28日｜
+[美议员推跨党派法案 在全球追踪抗衡中国](https://www.voachinese.com/a/us-gop-lawmaker-introduces-china-watcher-act-20211027/6288717.html)
 
 * * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-2.jpeg)
-
-
+*编辑：文顺 校对：Ranting 发布：Ranting*
 
  
 

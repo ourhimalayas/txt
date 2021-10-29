@@ -2,30 +2,43 @@
 ---
 
 
-## 日本首相东亚峰会公开批评中共人权和台海等问题
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1623396/)
+## GlobalFoundries 于周四在纳斯达克敲响了开盘种
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1624282/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/59644360_303.jpg)
-岸田文雄10月27日出席东盟10国与日本的领导人线上会议。会后岸田对媒体表示，他发言中提到了香港和新疆的人权状况，以及台湾海峡和平与稳定的重要性。
+编译：西班牙喜悦农场–wenwu
 
-据日本共同社报道，在与东盟各国首脑会议上，岸田文雄谈到，将印太变成”自由开放的和平海域”是各国共同利益，日本”强烈反对挑战基于法治的自由开放海洋秩序”。报道指这是间接评论东海、南海的局势。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-7-7.jpg)GlobalFoundries 于 2021 年 10 月 28 日在纳斯达克首次公开募股后敲响了开盘钟。 ROHINI SHAHRIAR/纳斯达克
 
-岸田呼吁东盟国家合作，一同实现美日等国所追求的”自由开放的印度太平洋”（FOIP）。他强调，对于自由开放的印度太平洋所共享的开放性、透明性、包容性、法治等本质性原则，日本期盼与东盟具体合作、推动。岸田同一天也出席东盟加日中韩（10加3）领导人线上会议以及东盟与日本、美国、中、俄等领导人举行的东亚高峰会（EAS）线上会议。
+东部时间上午 11:51，GlobalFoundries [GFS， -3.74%](https://www.marketwatch.com/investing/stock/GFS?mod=MW_story_quote) 股价下跌并触及盘中低点 44.50 美元，最后下跌约 3% 至 45.61 美元。周三晚些时候，这家总部位于纽约的马耳他（Malta）的公司将股票定价为[每股 47 美元](https://www.marketwatch.com/story/globalfoundries-prices-ipo-at-47-a-share-for-25-billion-valuation-11635382866?mod=home-page&amp;mod=article_inline)，是其[预测范围的上限](https://www.marketwatch.com/story/globalfoundries-sets-ipo-terms-and-could-be-valued-at-over-25-billion-2021-10-19?mod=article_inline&amp;mod=article_inline)。
 
-另有报道称，在中美领导人亦有出席的东亚峰会上，岸田在发言中还指中国”在东海侵犯日本主权的活动持续”，表示强烈反对在东海和南海加强海洋活动，和在地区进行经济胁迫行为。
+GlobalFoundries 是一家第三方硅晶圆代工厂，在行业中被称为制造工厂或“晶圆厂”。
 
-虽然岸田一直被认为是日本自民党内坚定的温和派，但外界也预计他上任后将继续强化日美同盟，支持印太区域的自由与开放，并且以务实而强硬的态度处理中共国事务。
+像 GlobalFoundries 这样的第三方晶圆厂是为大多数没有自己晶圆厂的芯片制造商，来生产硅晶圆——这些公司包括 Advanced Micro Devices Inc.  [AMD、 -1.15%](https://www.marketwatch.com/investing/stock/AMD?mod=MW_story_quote),  苹果公司  [AAPL, 2.32%](https://www.marketwatch.com/investing/stock/AAPL?mod=MW_story_quote)  和英伟达公司  [NVDA， 1.02%](https://www.marketwatch.com/investing/stock/NVDA?mod=MW_story_quote) 事实上， GlobalFoundries 是 AMD 的一个分拆公司，当时该公司想退出晶圆厂业务。
 
-信息来源：
+GlobalFoundries 区别于其他第三方晶圆厂，如台积电 [TSM、 1.41%](https://www.marketwatch.com/investing/stock/TSM?mod=MW_story_quote) 和中国半导体制造国际公司  [688981， +0.22%](https://www.marketwatch.com/investing/stock/688981?countryCode=CN&amp;mod=MW_story_quote) 因为它不依赖台湾或中国，因为两者之间的敌对行动对美国的战略供应来说将是一个巨大的问题。
 
-[日相公开提人权、台海 北京称抹黑干涉](https://www.dw.com/zh/%E6%97%A5%E7%9B%B8%E5%85%AC%E5%BC%80%E6%8F%90%E4%BA%BA%E6%9D%83%E5%8F%B0%E6%B5%B7-%E5%8C%97%E4%BA%AC%E7%A7%B0%E6%8A%B9%E9%BB%91%E5%B9%B2%E6%B6%89/a-59652373)
+该公司首次公开亮相之际，全球正在努力解决全球芯片短缺的问题，晶圆厂有长期的客户积压（例如：台积电），但[就收益而言，](https://www.marketwatch.com/story/busy-ipo-market-this-week-may-make-2021-the-biggest-year-for-proceeds-and-break-previous-record-by-30-11631554372?mod=article_inline) IPO 是其[有史以来最大的市场之一](https://www.marketwatch.com/story/busy-ipo-market-this-week-may-make-2021-the-biggest-year-for-proceeds-and-break-previous-record-by-30-11631554372?mod=article_inline)。
 
-(文章仅代表作者本人观点，与GNEWS无关)
+**简评：**
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-12-5.png)图片来源于火来2号战友的推文
+
+一则相关[报道](https://www.reuters.com/article/globalfoundries-ipo/globalfoundries-shares-open-flat-on-nasdaq-debut-valuing-chipmaker-at-26-bln-idUSL4N2RO51K)。
+
+**周四，阿布扎比主权财富基金穆巴达拉投资公司(Abu Dhabi’s sovereign wealth fund Mubadala Investment Co)拥有的GlobalFoundries Inc的股票在纳斯达克平开，使这家芯片制造商（GFS）的市值达到约260亿美元。**
+
+**火来战友（[@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1/status/1453764205396434948?s=20)）在推特上也表示，郭文贵先生曾讲过，格芯上市那一天，注意看看照片上都有谁。最近知识点有点多，大家别落下功课啊。**
+
+（文章仅代表作者观点与GNEWS无关）
+
+**新闻来源：**[Market Watch] [GlobalFoundries stock slips in trading debut after company’s IPO priced at high end of range](https://www.marketwatch.com/story/globalfoundries-stock-slips-in-trading-debut-after-companys-ipo-priced-at-high-end-of-range-11635436717) | 作者：Wallace Witkowski｜发布时间：2021年10月28日
+
+* * *
+
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
+
 
 
  
