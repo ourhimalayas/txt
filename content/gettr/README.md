@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/29/2021 8:35 AM (UTC)`
+
+CNN：蔡英文首次公开承认美国军队正在台湾训练台湾部队<br/><br/>CNN：Tsai Ing-wen confirms US troops are on the island training Taiwanese troops
+![img](https://media.gettr.com/group49/getter/2021/10/29/08/35/ddb50321-4a19-7b05-c910-4be916d0f881/out.jpg)
+
+---
+
+`@miles 10/29/2021 8:33 AM (UTC)`
+
+纳瓦罗：福奇最大的谎言是，他从2020年1月28日就确切地知道致命的中共病毒来自他资助的武汉生物武器实验室，但他没有告诉川普总统，并费尽心机地加倍掩盖<br/><br/>Navarro: The big lie of Fauci is that he knew from Jan. 28th, 2020 that the deadly Covid-19 virus came from the Wuhan bioweapon lab funded by him, but he didn’t tell President Trump and doubled down with engineered coverup <br/>
+![img](https://media.gettr.com/group21/getter/2021/10/29/08/33/0d1378f3-fff7-c2a6-fd60-a739d60897c5/out.jpg)
+
+---
+
+`@miles 10/29/2021 8:31 AM (UTC)`
+
+娜塔莉·温特斯：福奇故意和中共勾结，制造出杀死全世界数以百万人的病毒，这是叛国罪<br/><br/>Natalie Winters: Fauci deliberately colluded with the CCP to create a virus that killed millions of people around the world. It is treason
+![img](https://media.gettr.com/group41/getter/2021/10/29/08/5276b84e-cba3-bdb0-0ea9-8304327a7197/out.jpg)
+
+---
+
 `@miles 10/28/2021 11:06 PM (UTC)`
 
 10/28/2021 Miles Guo’s GETTR: As I predicted, massive arrests and killing are happening in the CCP’s Central Political and Legal Affairs Commission and the Central Commission for Discipline Inspection; Tsai Ing-wen’s interview with CNN revealed that U.S. troops have been stationed in Taiwan, but where is the CCP’s “cuckold” General Wang Hongguang who threatened to invade Taiwan?<br/><br/>10/28/2021 文贵盖特：如文贵爆料所说，国内政法委、中纪委系统已血雨腥风；台湾蔡英文接受CNN采访透露美军已进驻台湾，中共所谓的绿帽子王将军在哪儿呢？<br/>
@@ -280,26 +301,6 @@ With his new platform, Trump may bring his supporters back to the social media w
 
 10/24/2021 Miles Guo: Bruno Wu is under criminal investigation in the US, so he and Yang Lan will end up in a more miserable way than Wang Jian. President Trump’s SPAC will end up in an absurd, comical, and catastrophic manner, and his relationship with the Whistleblowers’ Movement and GETTR will turn out to be way better than expected!<br/><br/>10/24/2021 文贵直播：吴征在美被刑事调查，他和杨澜的结局将比王健更惨；川普总统的SPAC将以荒唐、滑稽和灾难性的结果结束；川普总统跟爆料革命和盖特的关系会比我们想象得更好！<br/>
 ![img](https://media.gettr.com/group32/getter/2021/10/24/21/29/134e3d60-2432-7a93-64a6-8659a92b553c/out.jpg)
-
----
-
-`@miles 10/24/2021 9:23 PM (UTC)`
-
-10/24/2021 Miles Guo: DWAC, which merged with President Trump’s TMTG, was belong to Bruno Wu; Behind President Trump’s SPAC deal are the people like Bruno Wu, Samuel Nunberg, Richard Frankel, who are exactly the same guys attempting to repatriate me and framing me by using the Boxun case, the rape case involving Ma Rui, and the PAG case<br/><br/>10/24/2021 文贵直播：并购川普总统TMTG的DWAC来自于吴征，川普总统SPAC上市的背后涉及了吴征、Samuel Nunberg、Richard Frankel等人，他们恰恰正是以前要遣返文贵并用博讯的案子、马蕊强奸案和太平联盟的案子构陷的文贵的人<br/>
-![img](https://media.gettr.com/group14/getter/2021/10/24/21/23/e8e4b9b8-340f-12a5-e18d-2dc8c4e7b9cb/out.jpg)
-
----
-
-`@miles 10/24/2021 6:05 PM (UTC)`
-
-Digital World Acquisition Group and Yunhong International<br/><br/>https://gnews.org/zh-hans/1615085/<br/><br/>数码世界收购集团（DWAC）与运鸿国际的关系<br/><br/>https://gnews.org/zh-hans/1614850/
-
----
-
-`@miles 10/24/2021 3:29 PM (UTC)`
-
-疫苗的灾难
-![img](https://media.gettr.com/group2/getter/2021/10/24/15/29/b9b52458-697e-babf-4aa9-563f6c207a6c/956a4e949acaaafad8f38c0374f8db5d.jpg)
 
 ---
 
