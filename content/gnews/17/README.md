@@ -2,38 +2,63 @@
 ---
 
 
-## 新加坡中共病毒感染人数剧增，疫苗接种率全球第一
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1624948/)
+## GlobalFoundries的十条背景知识
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1624988/)
 
-#### 撰稿：东京樱花团/闻雨
-![](https://assets.gnews.org/wp-content/uploads/2021/10/7-13-1.png)[图片来源](https://news.yahoo.co.jp/articles/6b6937478cd519a6b7146b7ae00513a0630408cd/images/000)
-路透社10月27日报道：新加坡10月27日有5,324人感染了新冠病毒，这是疫情开始以来感染人数最高的一天。新加坡卫生部表示已经对新冠病毒新增病例的 “异常增长 “展开调查。
+作者：纽约香草山教育部 – 正义的小新
 
-卫生部在当天晚上发表声明说：”今天的增长速度是不寻常的，这主要是由于大多数阳性病例是在下午的几个小时内发现的。并说”将密切监测未来几天的趋势”。
 
-在过去一个月的90,203名感染者中，近98.7%没有症状或病情轻微，约有0.2%的感染者已经死亡。截至27日，重症监护室的总体利用率已达到了79.8%。
 
-20日，政府宣布为了防止进一步的扩散，限制令将延长一个月。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-新加坡是新冠病毒疫苗接种率最高的国家之一。人口的84%已经接种了新冠病毒疫苗，14%的人已经接种了加强针疫苗。
 
-接种率如此之高的新加坡，最近的感染率却高得惊人。
 
-这到底是什么原因呢？不得不让人怀疑正是这些接种疫苗后的无症状感染者正在悄无声息地散播着病毒，传染着周围的人。
+10月28日，芯片制造商GlobalFoundries在纳斯达克正式上市，股票代码为GFS。据悉，GlobalFoundries的IPO估值为 260 亿美元——如此庞大估值的缘由在于，而今，全球半导体和微芯片极具短缺。事实上，芯片短缺会严重影响到汽车制造、电子产品等的工业，许多公司也将因此被迫缩减生产并削减目标。
 
-从新加坡的案例可以看出，新冠病毒疫苗接种率越高感染率越高，它不但没有起到预防和保护的作用，反而还有推波助澜的嫌疑。那么这个新冠病毒疫苗到底是什么东西呢？
+![](https://investorplace.com/wp-content/uploads/2021/10/global-foundries-1600-300x169.jpg)图片来源：Shutterstock.com
 
-根据中共军事教材《非典非自然起源和人制人新种病毒基因武器》，生物武器有“潜伏期长”、“传染性强”、“初期症状不明显”三个典型特点，而接种新冠病毒疫苗后被感染的人身上的的表现也普遍具有这些特点。难道这一切都是巧合？
+关于格芯，你要知道10件事：
 
-信息来源：
+1. 在GFS股票IPO之前，阿布扎比的主权财富基金Mubadala Investment持有GlobalFoundries的绝大多数股权。然而，阿布扎比主权财富基金在今天的IPO后，出售了该公司2200万股股票，净赚10.3亿美元。
+2. BlackRock贝莱德、富达Fidelity和高通Qualcomm在GFS股票IPO中各自投资了超过 10 亿美元。
+3. GlobalFoundries是在阿布扎比的主权财富基金在2009年购买了Advanced Micro Devices的芯片制造设施之后创建的。 随后，Mubadala将其购买的AMD芯片制造设施与新加坡特许半导体制造公司（Singapore’s Chartered Semiconductor Manufacturing）合并。
+4. GlobalFoundries擅长制造支持5G的射频通信芯片，且其芯片广泛应用于汽车。据了解，所有大型的汽车制造商都是GlobalFoundries的客户，至于其他著名客户，则包括了AMD和博通Broadcom。
+5. GlobalFoundries是全球收入第三的半导体和微芯片代工厂——排在台积电和三星电子之后。
+6. 目前，GlobalFoundries在新加坡运营着三家芯片代工厂，第四家预计于2023年上线。另外，该公司还计划在纽约增设一家代工厂。
+7. IPO招股说明书显示，GlobalFoundries的收入承诺为195亿美元。
+8. GlobalFoundries今年前六个月的收入为30.4亿美元，同比增长近13%。然而，该公司截至目前仍未获利，同期净亏损为3.01亿美元。
+9. GlobalFoundries曾计划在2022年底或2023年初进行首次公开​​募股，但现在提前了时间。
+10. 全球IPO市场有望迎来创纪录的一年。截至9月底，全球2,000多次IPO共筹集了4,210亿美元——这是公开股票上市的历史新高。
 
-[シンガポール、コロナ感染者が短時間で急増　状況を注視（ロイター） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/6b6937478cd519a6b7146b7ae00513a0630408cd)
 
-(文章仅代表作者本人观点，与GNEWS无关)
+（本文仅代表作者观点）
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+参考阅读：
+
+[GFS Stock IPO: 10 Things to Know as GlobalFoundries Starts Trading Today](https://investorplace.com/2021/10/gfs-stock-ipo-10-things-to-know-as-globalfoundries-starts-trading-today/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

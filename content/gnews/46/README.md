@@ -2,23 +2,46 @@
 ---
 
 
-## 加拿大儿科医生及主流媒体或合谋掩盖辉瑞疫苗真相
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1624266/)
+## 郭先生谈盖特的“私密直播”功能
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1624353/)
 
-编译撰稿： 文莱      校对编辑：硫酸羟氯喹64
+作者：纽约香草山农场 – Delilah小胖
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-24-edited.jpg)图片来源：TRUENORTH
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+郭文贵先生在2021年10月27日的大直播里介绍了近期盖特将推出的“私密直播”功能。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-166.jpg)
+郭先生说，盖特的私密直播，跟国内的网红直播不一样。盖特直播用户以真人、真名、真姓获得在盖特的打赏资格之后，可提前公告其直播节目，了解该播主的盖特用户都可以参加。
 
-据加拿大自媒体【真北方】10月28日报道，阿尔伯塔省的一位知名儿科医生，卡尔加里大学教授凯尔纳博士在推动5-11岁儿童接种“新冠病毒疫苗”政策期间，获得了【辉瑞制药公司】的巨额资助，但几乎所有加拿大主媒都没有披露该事实。
+譬如受人欢迎的某个明星，或者政治人物，可以直播其个人生活，喜欢他们的盖特用户都可以给其打赏。围绕明星和名人的团体则可以利用直播打赏功能进行推广。这样一部影片，就可能有几十亿的观看量。私密直播的打赏功能会把名人都聚集在这里。
 
-报道详细指出，自2014年以来，凯尔纳博士已从【辉瑞制药公司】获得了近200万加元用于研究各种疫苗的经费。而根据最新披露的文件显示，其最近一笔78万加元的拨款将被支付到2022年。
+不仅明星、政治家，各国政府也可以到这里来直播。各农场和战友也可以筹建私密直播节目。
 
-据悉，加拿大多家主流媒体都曾数次引用凯尔纳教授的文章以引导公众接种【辉瑞公司】产“新冠病毒疫苗”，尤其是针对即将为儿童实施的该疫苗接种计划。但至今没有任何媒体提及该医生及其来自【辉瑞公司】的资助。
+所有私密直播的打赏收益，盖特平台和直播用户按50：50分成。最重要的，盖特的盈利模式不是卖掉用户的个人信息、隐私，而是最终靠支付系统赚钱。全世界没有一家媒体是这样的，盖特要与用户一起赚取安全的、有尊严的财富，不被垄断和银行欺负。
 
-根据对【加拿大广播公司】内容的搜索结果，凯尔纳医生的名字出现了41次以上，并且基本都在该媒体关于“新冠病毒疫苗”接种主题的视频和文章中。
+郭先生强调，盖特是社交媒体中唯一一个用户数据受到保护的、不销售个人数据和隐私，个人拥有绝对隐私安全的平台。盖特用户可以一方面展示其个体美好的一面，一方面将其过去积累的个人信任、付出的汗水体现在其私密直播的收益中。这些，都是竞争对手难以企及的。
 
-[原文链接：](http://Media%20didn’t%20disclose%20doctor’s%20$2M%20in%20Pfizer%20funding%20in%20coverage%20promoting%20child%20vaccination%20|%20True%20North%20%28tnc.news%29)
+参考链接：
+
+[2021年10月27日文贵大直播：盖特言论自由公平竞争](https://gettr.com/post/pfb0u0b75a)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+总编/编辑：飞虹
+
+校对/发稿：Fei797
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
 
  
 

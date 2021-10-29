@@ -2,32 +2,48 @@
 ---
 
 
-## 印度成功试射“烈火-5”洲际导弹射程达五千公里
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1624806/)
+## 蔡英文首度证实有美军驻扎台湾
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1624848/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16354730951.png)*印度阅兵式上展示的远程弹道导弹烈火- 5导弹。（资料照）*
-据美国之音10月29日报道，印度27日成功试射一枚精准度极高、可以携带核弹头的“烈火-5”洲际弹道导弹，射程可达到5000公里，约3125英里。
-
-印中紧张关系加剧，印度担心中共国对印度洋的影响。中共国拥有的强大核武器驱使印度多年来一直在改进其武器系统，“烈火-5”能够覆盖几乎中共国所有地区。
-
-中共四处出击，在国际上制造紧张气氛，迫使其他国家在武器和防御方面持续改进。
-
-新闻参考链接：[https://www.voachinese.com/a/china-to-build-base-for-tajikistan-near-afghan-border-20211029/6289392.html](https://www.voachinese.com/a/china-to-build-base-for-tajikistan-near-afghan-border-20211029/6289392.html)
-
-编辑：胖丁
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：澳喜农场 – 在远方
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+10月26日，台湾总统蔡英文接受美国有线电视专访时，首度证实有美军驻扎台湾。这是数十年来，首位承认美军正在台湾执行训练计划的台湾总统。
+
+蔡英文表示，她认为如果台湾遭到中共攻击，基于台湾与美国的长期关系，美国和区域内其他民主政体将会出手协助。
+
+蔡英文强调台湾会尽可能地自我防卫。在谈到与中共的关系时，蔡英文称中共当局野心勃勃，是扩张主义者。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-167.jpg)
+参考链接：
+[蔡英文首度证实有美军协训 防卫台湾符合区域各国共同利益](https://www.rfa.org/mandarin/Xinwen/hx1028a-10272021233900.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编/编辑：木白
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
