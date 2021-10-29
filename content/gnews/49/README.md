@@ -2,10 +2,10 @@
 ---
 
 
-## 中共解放军首次派出武装直升机扰台 加剧台海局势
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1624261/)
+## 共军首次进行码头毁伤实验 或为侵略台湾加紧准备
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1624260/)
 
-作者：日本方舟农场 – Andy5
+作者：澳喜农场 – 在远方
 
 
 
@@ -13,18 +13,13 @@
 
 
 
-台湾防务部门在10月26日晚7时发布的大陆军机巡台动态显示，在当天白天侵扰台湾“西南防空识别区”大陆军机中，除常规的侦察机、通信机、战斗机以及一架远距离支援干扰机外，有两架军用直升机出现，包括一架军用攻击直升机和一架军用运输直升机。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-24.jpg)
-据台湾军事专家分析，如果大陆没有掌握台海的制空权，直升机出海很容易变成“活靶子”。而解放军的攻击和运输直升机现身台湾西南空域，说明他们认为自己已经掌握了这一领域的制空权，存在解放军夺取某些台湾外岛的可能性，台湾需要根据情况及时调整兵力部署。
+中共《环球时报》26日报道，多家境外媒体集中关注了中共军方 于近日进行的一场码头水下爆炸试验。该试验由中共海军研究院所属的某研究所组织，是在某军港进行的针对高桩式码头的水下爆炸试验，一颗水下爆炸物将试验码头完全摧毁。报道称，试验获得了大量实战条件下的爆炸毁伤数据，并强调这在中共国尚属首次。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture11-10.jpg)
+有研究人员称，军事基地的港口码头军队作战体系的核心枢纽，后勤补给船队必须频繁往来于基地港口与前线之间，运送弹药、油料等补给品。如果能够通过水下爆炸等隐蔽方式将对方码头摧毁，可以将其战争潜力消灭于无形。
 
-直升机出海，更加剧了台湾局势的紧张程度。
+台湾网站分析认为，该试验是针对美军的“分布式作战”战术。而香港网站则认为，共军该实验针对的是台湾军港，是为侵略台湾进行准备的。战争一旦开始后，共军将对台军的高雄和基隆等军港进行打击，以摧毁其海上作战能力。
 
-参考链接：
-1. [中共解放军首次派出武装直升机扰台 加剧台海局势](https://www.voachinese.com/a/blinken-statement-translation-supporting-taiwan-participation-in-the-un-system-20211026/6286692.html)
-2. [中共解放军首次派出武装直升机扰台 加剧台海局势](https://news.sina.com.cn/c/2021-10-27/doc-iktzscyy2040142.shtml)
-3. [中共解放军首次派出武装直升机扰台 加剧台海局势](https://news.ifeng.com/c/8Ag6yRvcogc)
-4. [中共解放军首次派出武装直升机扰台 加剧台海局势](https://news.sina.com.cn/c/2021-10-27/doc-iktzscyy2060130.shtml)
-5. [中共解放军首次派出武装直升机扰台 加剧台海局势](https://mil.news.sina.com.cn/china/2021-10-27/doc-iktzscyy2113125.shtml)
+参考链接：[共军首次进行码头毁伤实验 或为侵略台湾加紧准备](https://news.sina.com.cn/c/2021-10-26/doc-iktzqtyu3548014.shtml)
 
 ![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 

@@ -2,35 +2,51 @@
 ---
 
 
-## 严阻华为中兴，国会两院通过《安全设备法》
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1625511/)
+## 印度对中共陆地国界法表示担忧
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1625544/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/0E7370C2-A2AF-4D97-BCE2-FC1915955732_w1023_r1_s.jpg)资料照片：一名中国男子从武汉街头有着华为和中兴标徽的广告牌前走过。（2012年10月11日）
-
-编辑摘要：
-
-据美国之音10月29日报道，美国国会参议院28日无异议通过了《2021年安全设备法》，这项得到两院两党议员支持的法案指示美国联邦通讯委员会(FCC)不得再对已被列入威胁国家安全黑名单的公司进行审议或颁发新的设备执照。
-
-FCC 2020年制定了新规则，要求美国电信公司拆除并替换“对国家安全构成威胁的通信设备和服务清单”所涵盖的公司所提供的设备。但该项规则目前仅适用于使用联邦资金购买的设备，如果用民间资金或非联邦政府资金购买同样的设备，该设备仍可使用。新的法案旨在堵住这一漏洞。
-
-参与法案制定的鲁比奥参议员发表声明指出，像华为和中兴这样的由中共国国家指导的公司是已知的国家安全威胁，我们的电信网络中没有它们的容身地……如今，拜登总统必须迅速将其签署成法，让中国共产党不再能够利用这个危险的漏洞。
-
-在党派政争激烈的国会，两党在对中共国政府采取强硬立场的问题上已存在普遍共识。
-
-新闻参考链接：[严阻华为中兴 国会两院通过《安全设备法》](https://www.voachinese.com/a/senate-passed-secure-equipment-act-20211028/6290409.html)
-
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：澳喜农场 – 在远方
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+中共全国人大于10月23日通过了《中华人民共和国陆地国界法》，明确规定了长达2万2千公里陆地边境的管理和防卫办法，这条边境让中共国与印度和俄罗斯等14个国家接壤。
+
+印度外交部发言人巴格奇于27日发表声明，对中共通过的该陆地国界法表示担忧。
+
+声明表示，中共国单方面决定推出一部立法，可能对印中双方现有的边境管理安排以及印度所关心的边境问题产生影响。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-61.jpg)
+目前，印度和中共国之间依然有3500公里长的边境尚未划定，双方都对比邻边境的大片地区做出过主权声索。尽管双方已经举行了10多轮的谈判，但是两国数万军队仍旧在喜马拉雅边境的拉达克地区不断集结和紧张对峙。
+
+参考链接：
+[印度对中国新陆地国界法表示担忧](https://www.voachinese.com/a/india-concerned-with-china-border-law-20211027/6288001.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：飞虹
+编辑：珈沅
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

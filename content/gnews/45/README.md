@@ -2,26 +2,44 @@
 ---
 
 
-## 加密货币顺势而生，喜币为王汇通天下
-` 军迷wilson` [轉載自GNews](https://gnews.org/zh-hans/1624308/)
+## GlobalFoundries 于周四在纳斯达克敲响了开盘种
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1624282/)
 
-#### 加拿大多伦多枫叶农场  军迷wilson
-![](https://assets.gnews.org/wp-content/uploads/2021/10/360DC6FE-9FF9-4763-9E14-855341151472.jpeg)来源：himalayaexchange
-郭文贵先生在最近的直播中强调，喜马拉雅货币体系是一个超越国家主权级别的金融货币体系，她肩负着打破各国政府和沼泽地垄断这个世界的货币发行权、生产力定价权和财富分配权的历史使命，这个权力最终应归属于人民。
+编译：西班牙喜悦农场–wenwu
 
-郭先生说，人类的交易形式只有向数字化转型，才能适应、激发七十多亿人的巨大生产力和创造力，当前的加密货币和数字化金融就是顺应历史发展而生。新中国联邦的Himalaya货币体系到目前为止，还没有任何人设计出类似的交易结构，她是独一无二的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-7-7.jpg)GlobalFoundries 于 2021 年 10 月 28 日在纳斯达克首次公开募股后敲响了开盘钟。 ROHINI SHAHRIAR/纳斯达克
 
-除了中共等为数不多的极权主义者，几乎所有人都认为在数字信息时代，信用是让竞争者立于不败之地的第一要素。相较于以主权背书的纸币，信用是货币的生命之源，是货币的根本属性。
+东部时间上午 11:51，GlobalFoundries [GFS， -3.74%](https://www.marketwatch.com/investing/stock/GFS?mod=MW_story_quote) 股价下跌并触及盘中低点 44.50 美元，最后下跌约 3% 至 45.61 美元。周三晚些时候，这家总部位于纽约的马耳他（Malta）的公司将股票定价为[每股 47 美元](https://www.marketwatch.com/story/globalfoundries-prices-ipo-at-47-a-share-for-25-billion-valuation-11635382866?mod=home-page&amp;mod=article_inline)，是其[预测范围的上限](https://www.marketwatch.com/story/globalfoundries-sets-ipo-terms-and-could-be-valued-at-over-25-billion-2021-10-19?mod=article_inline&amp;mod=article_inline)。
 
-由于新中国联邦是全世界唯一以消灭邪恶中共为己任的正道主义实体，在全世界范围内树立了良好的声明，成了当今人类文明的新灯塔，因此喜马拉雅货币体系和G商业系列具备了最大化的信用特征。蜂涌而至的投资者订购的实际上是新中国联邦的信用红利和美好的未来。
+GlobalFoundries 是一家第三方硅晶圆代工厂，在行业中被称为制造工厂或“晶圆厂”。
 
-除了信用，评判一个货币价值的另一个标准是该货币的普遍接受性，就是使用的人是不是足够多。郭先生领导的新中国联邦，正在构建跨越国界的货币发行、金融服务、媒体集团、商业连锁等顶级生态系统，为喜币打下了“汇通天下”的坚实基础。
+像 GlobalFoundries 这样的第三方晶圆厂是为大多数没有自己晶圆厂的芯片制造商，来生产硅晶圆——这些公司包括 Advanced Micro Devices Inc.  [AMD、 -1.15%](https://www.marketwatch.com/investing/stock/AMD?mod=MW_story_quote),  苹果公司  [AAPL, 2.32%](https://www.marketwatch.com/investing/stock/AAPL?mod=MW_story_quote)  和英伟达公司  [NVDA， 1.02%](https://www.marketwatch.com/investing/stock/NVDA?mod=MW_story_quote) 事实上， GlobalFoundries 是 AMD 的一个分拆公司，当时该公司想退出晶圆厂业务。
 
-参考来源：
+GlobalFoundries 区别于其他第三方晶圆厂，如台积电 [TSM、 1.41%](https://www.marketwatch.com/investing/stock/TSM?mod=MW_story_quote) 和中国半导体制造国际公司  [688981， +0.22%](https://www.marketwatch.com/investing/stock/688981?countryCode=CN&amp;mod=MW_story_quote) 因为它不依赖台湾或中国，因为两者之间的敌对行动对美国的战略供应来说将是一个巨大的问题。
 
-[泰山2021/10/27盖特](https://gettr.com/post/pfb267c318)
+该公司首次公开亮相之际，全球正在努力解决全球芯片短缺的问题，晶圆厂有长期的客户积压（例如：台积电），但[就收益而言，](https://www.marketwatch.com/story/busy-ipo-market-this-week-may-make-2021-the-biggest-year-for-proceeds-and-break-previous-record-by-30-11631554372?mod=article_inline) IPO 是其[有史以来最大的市场之一](https://www.marketwatch.com/story/busy-ipo-market-this-week-may-make-2021-the-biggest-year-for-proceeds-and-break-previous-record-by-30-11631554372?mod=article_inline)。
 
-（文章仅代表作者观点，与GNEWS无关）
+**简评：**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-12-5.png)图片来源于火来2号战友的推文
+
+一则相关[报道](https://www.reuters.com/article/globalfoundries-ipo/globalfoundries-shares-open-flat-on-nasdaq-debut-valuing-chipmaker-at-26-bln-idUSL4N2RO51K)。
+
+**周四，阿布扎比主权财富基金穆巴达拉投资公司(Abu Dhabi’s sovereign wealth fund Mubadala Investment Co)拥有的GlobalFoundries Inc的股票在纳斯达克平开，使这家芯片制造商（GFS）的市值达到约260亿美元。**
+
+**火来战友（[@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1/status/1453764205396434948?s=20)）在推特上也表示，郭文贵先生曾讲过，格芯上市那一天，注意看看照片上都有谁。最近知识点有点多，大家别落下功课啊。**
+
+（文章仅代表作者观点与GNEWS无关）
+
+**新闻来源：**[Market Watch] [GlobalFoundries stock slips in trading debut after company’s IPO priced at high end of range](https://www.marketwatch.com/story/globalfoundries-stock-slips-in-trading-debut-after-companys-ipo-priced-at-high-end-of-range-11635436717) | 作者：Wallace Witkowski｜发布时间：2021年10月28日
+
+* * *
+
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
+
+
 
  
 
