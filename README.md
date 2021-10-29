@@ -15,116 +15,116 @@
 
 ---
 
-### [如果这件事发生在我身上，也可以发生在你身上](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [11家中共基金大买大进洗走50亿到80亿之间美国人的财富](/content/gnews/2/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [日本五大银行提高房贷利率](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [格芯上市，敲钟的都有谁？](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [渥太华一名医护人员由于伪造中共病毒疫苗接种文件被控罪](/content/gnews/5/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [权威机构的投资认定是决定喜马拉雅币价值的关键之一](/content/gnews/6/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [郭文贵先生10月28日盖特小视频概要](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [格芯公司市场份额、产量、用途及市场前景分析](/content/gnews/8/README.md)
- ` 纽约香草山MOS03`
-
-### [文·贵天成——文贵先生谈“吴征、杨澜”（三）](/content/gnews/9/README.md)
- ` 墨尔本雅典娜农场`
-
-### [习在20大前最危险，最后一定会被干掉](/content/gnews/10/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [两辆列车中断，疫情再度蔓延](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文·贵天成——文贵先生谈“吴征、杨澜”（二）](/content/gnews/12/README.md)
- ` 墨尔本雅典娜农场`
-
-### [日本全日空计划大规模裁员9000人](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [台湾一机师在接种两剂疫苗后感染中共病毒](/content/gnews/14/README.md)
- ` 日本东京方舟农场`
-
-### [蓬佩奥：习近平的“中国梦”](/content/gnews/15/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共要求许家印自掏腰包来缓解恒大债务危机](/content/gnews/16/README.md)
- ` 日本东京方舟农场`
-
-### [文·贵天成——文贵先生谈“吴征、杨澜”（一）](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
-
-### [医生亲自验证伊维菌素可以治疗新冠病毒](/content/gnews/18/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [阿拉斯加铁路取消了强制员工接种疫苗的要求](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [秘翻在线：卡车司机警告说疫苗强制令将加剧供应链危机](/content/gnews/20/README.md)
+### [秘翻在线：安全研究人员警告iPhone用户应从手机上删除“它”](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [文·贵天成——文贵先生谈“外星人”（一）](/content/gnews/21/README.md)
- ` 墨尔本雅典娜农场`
+### [秘翻在线:&#8221;数字疫苗护照&#8221;的背后阴谋是要推动ID4D计划](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [郭先生：DWAC内幕交易问题将暴露中共渗透美国司法界的行动](/content/gnews/22/README.md)
- ` 日本东京方舟农场`
+### [10/22郭文贵直播：吴征报告中共称已拿下川普总统（粤语配音）](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [习近平将线上出席G20峰会 被指“没出过国”](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [CDC主任：加强针可能改变“完全接种”的定义](/content/gnews/4/README.md)
+ ` MOSREC`
 
-### [美议员推新法案全球追踪中共活动](/content/gnews/24/README.md)
- ` 日本东京方舟农场`
-
-### [喜币HCOIN将于11月01日正式上市](/content/gnews/25/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [感性话题：我爱你](/content/gnews/26/README.md)
- ` 骄子`
-
-### [墙内要闻汇编 10月29日](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [蔡英文曝美台军事联系 美中台博弈升级](/content/gnews/28/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [澳洲广播电台机构与脸书、谷歌谈判要为新闻内容付费](/content/gnews/29/README.md)
- ` 走进澳洲`
-
-### [西媒头条 — 第98期](/content/gnews/30/README.md)
+### [福满之日，喜币上市](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [台湾属于联合国](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [10/18郭文贵直播：起底邪恶的中共社保（粤语配音）](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021/10/12 纳瓦罗：《川普时代》，福奇被解雇，追责中共](/content/gnews/32/README.md)
+### [蓬佩奥：中国共产党是美国最大的危险](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：纽约市消防员工会要求法院禁止强制接种中共](/content/gnews/33/README.md)
+### [班农专访1: 美国梦和中国梦的不同](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [如果这件事发生在我身上，也可以发生在你身上](/content/gnews/9/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [意大利法官乔尔加尼反绿色护照，被停职停薪](/content/gnews/10/README.md)
+ ` xiaobaige`
+
+### [11家中共基金大买大进洗走50亿到80亿之间美国人的财富](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [日本五大银行提高房贷利率](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [格芯上市，敲钟的都有谁？](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [渥太华一名医护人员由于伪造中共病毒疫苗接种文件被控罪](/content/gnews/14/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [权威机构的投资认定是决定喜马拉雅币价值的关键之一](/content/gnews/15/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [郭文贵先生10月28日盖特小视频概要](/content/gnews/16/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [格芯公司市场份额、产量、用途及市场前景分析](/content/gnews/17/README.md)
+ ` 纽约香草山MOS03`
+
+### [文·贵天成——文贵先生谈“吴征、杨澜”（三）](/content/gnews/18/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [习在20大前最危险，最后一定会被干掉](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [两辆列车中断，疫情再度蔓延](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文·贵天成——文贵先生谈“吴征、杨澜”（二）](/content/gnews/21/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [日本全日空计划大规模裁员9000人](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [台湾一机师在接种两剂疫苗后感染中共病毒](/content/gnews/23/README.md)
+ ` 日本东京方舟农场`
+
+### [蓬佩奥：习近平的“中国梦”](/content/gnews/24/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共要求许家印自掏腰包来缓解恒大债务危机](/content/gnews/25/README.md)
+ ` 日本东京方舟农场`
+
+### [文·贵天成——文贵先生谈“吴征、杨澜”（一）](/content/gnews/26/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [医生亲自验证伊维菌素可以治疗新冠病毒](/content/gnews/27/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [阿拉斯加铁路取消了强制员工接种疫苗的要求](/content/gnews/28/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [秘翻在线：卡车司机警告说疫苗强制令将加剧供应链危机](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳洲受春季风暴袭击后，数千人断电，农作物受损](/content/gnews/34/README.md)
+### [习近平将线上出席G20峰会 被指“没出过国”](/content/gnews/30/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美议员推新法案全球追踪中共活动](/content/gnews/31/README.md)
+ ` 日本东京方舟农场`
+
+### [感性话题：我爱你](/content/gnews/32/README.md)
+ ` 骄子`
+
+### [墙内要闻汇编 10月29日](/content/gnews/33/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [澳洲广播电台机构与脸书、谷歌谈判要为新闻内容付费](/content/gnews/34/README.md)
  ` 走进澳洲`
 
-### [疫苗接种者在9月份出现高死亡率和住院率](/content/gnews/35/README.md)
+### [澳洲受春季风暴袭击后，数千人断电，农作物受损](/content/gnews/35/README.md)
+ ` 走进澳洲`
+
+### [疫苗接种者在9月份出现高死亡率和住院率](/content/gnews/36/README.md)
  ` wenwu`
 
-### [ONS数据：完全接种疫苗的死亡率六倍于未接种者](/content/gnews/36/README.md)
+### [ONS数据：完全接种疫苗的死亡率六倍于未接种者](/content/gnews/37/README.md)
  ` wenwu`
-
-### [喜马拉雅币即将震撼上市](/content/gnews/37/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [印度对中共陆地国界法表示担忧](/content/gnews/38/README.md)
  ` GTV新闻访谈`

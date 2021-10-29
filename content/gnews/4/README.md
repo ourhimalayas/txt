@@ -2,48 +2,31 @@
 ---
 
 
-## 格芯上市，敲钟的都有谁？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1625872/)
+## CDC主任：加强针可能改变“完全接种”的定义
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1625960/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/dfd8d4ac-92a9-4d61-a179-2d9a4f0303c5.jpg)图片来源：GNEWS（秘翻组）
-整理：BENJ1、翼族
-编辑：翼族
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+美国CDC主任Rochelle Walensky周五表示，“完全接种”的定义可能会发生变化。她说，“这取决于加强针的推进情况。请继续申请注射加强针。我们将保持关注。”
 
-全球第四大晶片工厂格芯（GlobalFoundries，格罗方德）周三（27日）在美国NASDAQ首次公开发行股票，开盘价格为每股47美金。格芯是全球最先进的半导体制造技术平台，生产包括28纳米、20纳米、14纳米，以及7纳米的芯片。
+这与她9月下旬 “联邦卫生官员暂时不考虑更改‘完全接种’定义的表态，有了一个急转弯。据悉，这种变化可能源于以色列修改加强针作为疫苗护照的标准。
 
-格芯目前为阿布扎比主权财富基金穆巴达拉投资公司（Mubadala Investment Co）所有。穆巴达拉投资公司是世界屈指可数的主权基金之一，运用资产超过2500亿美元。该公司面向全球50多个国家投资，同时因其是软银集团“愿景基金”的主要投资者而闻名于世。
+根据CDC官方数据显示，目前有1.9亿的美国人已完全接种，占总人口的66.3%，其中1250万已经接受了加强针。如果修改了定义，将导致部分此前符合“完全接种”的人失去资格。再加上只打了一针和坚决拒绝接种的人群，有可能意味着三分之二的美国人因为不符合资格而失去外出就餐、乘火车飞机、国际旅游的机会。
 
-穆巴达拉一直主要面向北美和非洲投资，曾在中共国投资滴滴出行、利用人工智能（AI）图像识别技术见长的商汤科技，以及运营“瓜子二手车”的车好多集团等企业。
+加强针会怎样加剧疫苗灾难，难以想象。对宗教、人权的侵蚀，与日俱进。爆料革命向世界揭露黑暗、传递真相，肩负着沉重的历史使命。
 
-此次格芯上市，前来纳斯达克敲钟的就有穆巴达拉投资公司的首席执行官卡尔杜恩•阿尔•穆巴拉克（Khaldoon Al Mubarak）。阿尔.穆巴拉克生于1979年，曾在纽约大学学习，擅长管理，精明能干的他深受纳哈扬家族的信任。纳哈扬家族是阿联酋最大酋长国阿布扎比的世袭统治者。
+文字版原文：[CDC主任：加强针可能改变“完全接种”的定义](https://gnews.org/zh-hans/1620388/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/skysports-khaldoon-al-mubarak_5403393.jpg)图片来源：Sky Sport
-
-
-第二位重要人士则是艾哈迈德·叶海亚·艾德里西（Ahmed Yahia Al Idrissi），穆巴达拉投资公司直接投资部门的首席执行官，负责监督能源、化工、技术、生命科学、消费者、工业和金融服务组合。
-
-在加入穆巴达拉之前，艾哈迈德是麦肯锡公司的合伙人，在那里他共同领导了主要投资者业务，也是阿布扎比业务的管理合伙人。他以前是宝洁公司的营销经理，在那里他领导了几个旗舰品牌。艾哈迈德拥有巴黎中央理工学院工业工程理学学士学位；麻省理工学院机械工程理学硕士。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/ahmed.jpg)图片来源：格芯官网
-
-
-第三位则是格芯现任CEO汤姆·考尔菲尔德（Tom Caulfield），自2018年3月起一直担任CEO职位。在此之前，考尔菲尔德在IBM工作了17年，担任过各种高级领导职务，最终担任IBM微电子部门300毫米半导体业务副总裁。随后他加入Soraa公司担任总裁兼首席运营官，Soraa是全球领先的固态照明技术开发商。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/tom-board-new.jpg)图片来源：格芯官网
-
-
-考尔菲尔德于2014年5月加入格芯公司，负责Fab 8半导体制造生产的运营、扩张和提升。
-
-10月7日，郭文贵先生在GTV直播中透露，格芯的7nm芯片和后续与IBM合作的生物芯片，将是支撑未来包括GTV、GETTR、GNEWS和Himalaya Reserve等在内的G系列，以及与星链（StarLink）融合发展的技术法宝。而格芯从成都撤离的背后，也是爆料革命在发力。一切都已经开始……
-
-*发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

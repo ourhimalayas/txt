@@ -2,49 +2,20 @@
 ---
 
 
-## 郭先生：DWAC内幕交易问题将暴露中共渗透美国司法界的行动
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1625767/)
+## 日本全日空计划大规模裁员9000人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1625816/)
 
-**撰稿：日本东京方舟农场 海星**
+#### 撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/12-24.png)（图片源自本文链接）
+日本雅虎网站10月29日消息：
 
-据盖特（gettr）用户秘密翻译组发布的视频，爆料革命、新中国联邦创始人郭文贵先生在10月27日的直播中表示，DWAC涉嫌内幕交易的问题将暴露中共对美国司法界实施的全面渗透行动。
+29日，日本全日空股份公司宣布，将通过退休和减少招聘，实现在2025财年的年末，将从事全日空品牌航空业务的员工人数减少到约29000人的计划，这比2020财年的年末的员工数减少20%以上。
 
-郭先生披露，中共代理人吴征在两年前就被美国联邦调查局（FBI）刑事调查，此次不仅故意隐瞒被调查的事实，更利用SPAC空壳公司DWAC收购了川普总统的科技公司，并在上市后操控其股价，瞬间吸走投资人的钱。郭先生表示，美国SEC一定会对这个案子进行调查。
+信息来源：[ANA、25年度末までに従業員9千人削減](https://news.yahoo.co.jp/articles/5370dec8f38992c2b0248043f8cb71fc9770e6c0)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10.261.jpg)
-
-此外，在投资DWAC的11家基金中，有8家基金是由中共控制，来自吴征以及运鸿集团，而且这8家公司因为太平联盟而进行投资。这就意味着中共和太平联盟高度合作。
-
-郭先生分析说，由于吴征在DWAC收购案的法律文件上清楚地写下了他和太平联盟以及相关律师事务所的关系，这将会揭穿共产党通过太平联盟对整个美国律师界、司法界、法院、检察官等领域实施渗透的犯罪行动。
-
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[10/27/2021 Miles Guo: The issue of DWAC indicates the scams and criminal offenses committed by Bruno Wu on behalf of the CCP, and this is the greatest gift to the New Federal State of China and will expose the CCP’s infiltration, fraud, and conflict of interest among the lawyers, and in the prosecutors and courts in the US](https://gettr.com/post/pfde174c6a)
-
-
-
-> [10/27/2021 Miles Guo: Eight to nine out of the eleven funds investing in DWAC did so because of PAG](https://gnews.org/1622235/)
-
-
-
-
-
-> [2021年10月24日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1617154/)
-
-
-
-
-
-> [郭先生多起案子背后全是吴征](https://gnews.org/zh-hans/1617547/)
-
-
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

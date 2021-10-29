@@ -2,41 +2,143 @@
 ---
 
 
-## 蓬佩奥：习近平的“中国梦”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1625805/)
+## 权威机构的投资认定是决定喜马拉雅币价值的关键之一
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1625849/)
 
-**简评：**
+整个喜联储
+Todo el Banco Central de Himalaya
 
-中共党魁习近平有一个“中国梦”：建立一个集权控制、专制独裁的世界，并永久称王。与追求自由、民主，遵循传统文化、通过努力工作获得美好生活的美国梦相比，习近平的“中国梦”建立在对中国人民的剥削和监控下，对维吾尔人权的践踏和对所有中国人财富的掠夺。
+当它宣布它的投资者机构
+Cuando él anuncie su organización inversora
 
-蓬佩奥先生挑战习近平总书记，在香港、在西藏、在新疆、在深圳、在武汉、在全国，举行一次选举。他会听到民众反对的声音，知道自己是真正的“孤家寡人”。
+记住啊
+Recuerden
 
+投资者机构真正的投钱
+La verdadera inversión de dinero de la organización inversora
 
+不是猫本小哥投的
+No es invertido por el hermano Maoben
 
-GTV视频链接：[Mike Pompeo: #hongkong #hongkongprotests #pompeo 習近平總書記有他的“中國夢”, 他夢想著一個中國共產黨極權控制，專制獨裁之下的世界；而我們的夢想是自由](https://gtv.org/video/id=6178026a247c5a3f90902b78)
+也不是花王投的
+Ni Hua Wang
 
-**视频字幕:**
+也不是你的这个微蓝投的
+Tampoco Wei Lan
 
-习近平总书记有他的“中国梦”。他梦想着一个中国共产党极权控制、专制独裁之下的世界；而我们的梦想是自由。他梦想着破坏个人自由和传统文化，尤其是在新疆和西藏；而我们的梦想是保护我们的家庭成为神圣的礼拜之地，就像这座美丽的教堂。
+也不是你RACHEL投的
+O Rachel
 
-他梦想窃取美国人辛勤工作的成果，而我们的梦想是努力工作和辛苦付出得到回报。习近平总书记梦想把全体中国人置于永恒的防火墙之内；而我们每天梦想言论自由和信息自由流动。
+是真的可信服的人投的
+Es invertido por alguien que es realmente convincente
 
-好吧，这是我向习近平总书记提出的挑战。总书记先生，如果你相信你代表人民，那么举行一次选举。举行一次选举，举行一次选举，在香港进行一次自由公平的选举。举行一次选举，在西藏举行一次公平的选举。举行一次选举，举行一次选举，让200万维吾尔穆斯林走出集中营。举行一次选举，在深圳举行一次选举，在武汉举行一次选举。
+也不是七哥的男朋友女朋友投的
+Tampoco es mi novio o novia
 
-在全国举行一次选举。我知道谁会反对你—– 中国人民会反对你。
+有权威的机构投了喜联储
+Es una institución autorizada que invirtió el Banco Central de Himalaya
 
-*编辑：【英国伦敦喜庄园编辑部】*
+认可你的价格
+Acepta tu precio
 
-*字幕/听写：云岭|翻译：Roberts|PR：致良知|简评/文字整理/编辑：胖丁| Page：小六月*
+比如说我评估你是10亿美元
+Por ejemplo, yo te valoro a mil millones de dólares
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+我评估你是20亿美元
+Calculo que eres dos mil millones
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+我评估你是200亿美元
+20 mil millones de dólares
 
-[![](https://spark.adobe.com/page/PvRh9rY5uVm9L/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/PvRh9rY5uVm9L/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+这个是整个喜币未来, 最牛的最关键之一
+Este es el futuro más crucial e importante de la moneda de Himalaya
 
+什么意思大家知道吗
+Qué significa esto, ¿ustedes saben?
+
+你自己玩儿是吧
+Quieres jugar tú mismo, cierto
+
+你自己关上门
+Cierras la puerta
+
+买两个按摩器
+Compras dos masajeadores
+
+你叫的再高潮
+Por más que sientas orgasmo
+
+那叫自淫, 知道了吧
+Eso se llama masturbación, ¿de acuerdo?
+
+你叫花王跟Estie在屋里边
+Tú le dices a Hua Wang y Estie por más que griten
+
+他俩怎么喊
+Dentro de la casa
+
+他即使是自己假喊的  A pesar que él esté gritando de mentira
+
+你都认为这俩人搞出来的动静
+Igual piensas que es algo que ellos dos provocaron
+
+这叫什么, 这叫高潮
+Cómo se llama esto, orgasmo
+
+这是完全两回事儿
+Esto son dos cosas diferentes
+
+谁能跟喜币来玩真高潮
+Quién puede jugar al orgasmo real con la moneda de Himalaya
+
+这个是证明了你的(价值)
+Esto comprueba tu valor
+
+七哥有时候讲的是黄色(笑话)
+Yo a veces digo humores descoloridos
+
+但是大家能懂
+Pero todos pueden entender
+
+知道吗
+Verdad
+
+以黄传达真相是最好的方式
+El humor descolorido es la mejor forma para transmitir la verdad
+
+就像抖音就这么成功的
+Así fue Tik Tok como se hizo exitoso
+
+所以说你们要记住
+Por eso ustedes deben recordar
+
+看谁投喜联储
+A ver quién invierte en el Banco Central de Himalaya
+
+投了评估认可价多少钱
+¿Cuánto invirtió en el precio de tasación aprobado?
+
+这是第一条
+Esto es lo primero
+
+* * *
+
+日期：10/27/2021
+原视频标题：权威机构的投资认定是决定喜馬拉雅币价值的关键之一
+La identificación de inversión de una institución autorizada es una de las claves para determinar el valor de la moneda de Himalaya
+原视频日期：10/23/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1451875315890864130?s=24](https://twitter.com/se1y7cblljselva/status/1451875315890864130?s=24)
+任务编号：KC208（2644）
+视频时间段：0:00-1:24
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

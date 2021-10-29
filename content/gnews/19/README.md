@@ -2,48 +2,133 @@
 ---
 
 
-## 阿拉斯加铁路取消了强制员工接种疫苗的要求
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1625781/)
+## 习在20大前最危险，最后一定会被干掉
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1625826/)
 
-据《Anchorage Daily News》记者Annie Berman，2021年10月26日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/簡報1-2.png)
-阿拉斯加铁路董事会周二，一致投票决定撤销几天前在全公司电子邮件中宣布的强制员工COVID-19疫苗强制令。
+**郭文贵：
+Miles Guo：**
 
-最初要求所有铁路员工在12月8日之前接种疫苗，是为了遵守总统乔·拜登上个月下令的联邦疫苗要求。根据规定，所有拥有100名或更多雇员的美国企业都必须要求员工接种COVID-19疫苗或每周接受测试，而联邦承包商（例如阿拉斯加铁路）的员工必须接种疫苗，不得选择替代测试。
+习这个人他没敢干，习要敢干，他越敢干，他越安全
+Xi did not dare to do, Xi if you dare to arrest, the more Xi dare to arrest, the safer he will be
 
-铁路发言人蒂姆·沙利文(Tim Sullivan)说，阿拉斯加铁路目前在其692名员工中的疫苗接种率为52.6%。
+说实在话，咱先抛开政治来说
+To be honest, let’s put politics aside for a moment
 
-“在过去的六周里，我们仔细审查了额外的EO指南以及我们与联邦机构的互动，以确定阿拉斯加铁路是否受到影响。我们作为联邦承包商，阿拉斯加铁路必须符合这一标准，”周五发给阿拉斯加铁路员工的电子邮件说。
+什么王岐山、孟建柱，你像斯大林那套，老子都给你抓了
+Wang Qishan, Meng Jianzhu, Xi could learn Stalin’s way, arrest everyone against him
 
-沙利文说，不遵守规定可能会使这家国有公司损失数百万美元的联邦拨款和合同，以及它从美国林业局租赁的位于安克雷奇的历史悠久的货运大棚的空间。
+我一个小时都给你抓了，抓完就给你活埋了
+Arrest all the people in an hour to, and buried people alive
 
-但沙利文说，最新决定推迟要求员工接种疫苗是在对联邦强制令提出法律挑战之后做出的。“我们预计还会有其他法律诉讼，我们正在等待法院采取行动，”他说。
+去枪毙都不枪毙你
+No waste bullets
 
-投票阻止这项授权的阿拉斯加铁路董事会成员在周二的虚拟会议上表示，他们非常不愿意要求员工接种疫苗。
+你看看这个安不安全，习会更安全
+See if this is safer for him? Xi will be safer
 
-“我们被联邦政府置于非常困难的境地，”董事会主席约翰·希弗利 (John Shively) 说。“没有一个董事会成员喜欢这样，”他说。
+你现在还给习啊、孟啊，什么孙立军、王立科这些小烂仔给他机会折腾你十年
+Xi Jinping gave Meng Jianzhu, Sun Lijun, Wang Li-ke these little bastards the opportunity to toss himself for ten years
 
-“我认为现在做一些最终可能对阿拉斯加铁路家庭和铁路本身有害的事情可能为时过早。”提出停运令的董事会成员约翰·宾克利补充道。
+你觉得习真的有智慧吗？他没智慧
+Do you think Xi really has wisdom? He has no wisdom
 
-宾克利在周二的会议上说：“我们的一位美国参议员恳求我们和阿拉斯加州的其他人不要做出这些决定，直到国家在这方面的发展方向更加确定为止。”宾克利在周二的会议上说，并引用了美国的评论。参议员丹沙利文上周在参议院发表讲话。
+中国就要出俩人，要不就别出
+China needs to come out two people, or don’t
 
-宾克利说：“就这将如何表现而言，似乎有很多变化。”
+中国要么就出个斯大林，是吧？
+China will either have a Stalin, right?
 
-会议期间，铁路员工有机会就疫苗接种要求提供意见。
+要么就出个华盛顿
+Or a Washington
 
-其中一位演讲者是Scott Sigman，他在会议期间介绍了自己。他在阿拉斯加铁路公司担任了 24 年多的工程师和售票员。他称联邦疫苗强制令“过度”。他说：“我不明白为什么会发生这种情况。我的身体、我的选择怎么了？现在这正在摧毁生命。”
+其他人都不需要
+Nobody else is needed
 
-铁路公司对联邦疫苗授权的态度可能会影响其劳动力、拨款和政府合同，这种不确定性会使其从大流行病的打击中恢复过来。根据其年度报告，阿拉斯加铁路公司在2020年损失了780万美元的收入。
+或者说台湾的蒋经国
+Or Chiang Ching-kuo from Taiwan
 
-铁路发言人蒂姆·沙利文表示，该公司从 2019 年提供服务约 52 万人次，到2020年的约3万人次，估计到2021年将达到18万人次。
+那要其他人干啥？
+Do we need anyone else?
 
-他说：“我们希望2022年的情况会好很多。”
+蒋经国能给民主自由法治
+Chiang Ching-kuo can give democracy, freedom and rule of law
 
-文章来源：[https://www.adn.com/alaska-news/2021/10/26/alaska-railroad-rescinds-employee-vaccine-mandate-just-days-after-announcing-policy/](https://www.adn.com/alaska-news/2021/10/26/alaska-railroad-rescinds-employee-vaccine-mandate-just-days-after-announcing-policy/)
+要么就出个斯大林，让党内这帮王八蛋全杀光他
+Or we can have a Stalin and let him kill all the bastards in the party
 
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 心照
+等待着，最后一次解放的开始
+Waiting for the final moment to liberate China
+
+你接不接受都这样
+Take it or not, it will end like this
+
+你觉得习是斯大林吗？
+Do you think Xi is Stalin?
+
+你觉得习是蒋经国吗？
+Do you think Xi is Chiang Ching-kuo?
+
+他都不是，是最后他会被灭掉
+Neither. He will be destroyed in the end
+
+一会儿装斯大林，一会儿装蒋经国
+He pretended to be Stalin one moment and Chiang Ching-kuo the next
+
+最后被灭掉，一定会被灭掉
+In the end, he will be destroyed
+
+我现在，我说到这的时候，六中全会开完，
+I am now saying that by the time the Sixth Plenary Session is over,
+
+到20大期间习是真正最危险的时候
+Xi will be the most dangerous time before the 20th National Congress of CCP
+
+我就说过这个墙角效应
+I told you about this corner effect
+
+当大家发现确定，我们这房间里的人都会被你干掉的时候
+When people find out they’re all going to be killed in this room
+
+就是狗、羊、猪都会奋起咬你几口
+Even if the one being killed is a dog, sheep or pig, it will rise up and bite you
+
+直接冲向那个墙，（因为）我没法活了嘛
+Go straight to that wall, because they can’t live
+
+江浙人多聪明啊，上海人多聪明啊
+Jiangsu and Zhejiang people are so smart ah, Shanghai people are so smart
+
+现在最后觉得习还得改过来，习也传递了各种好的信息
+Now they think Xi finally had to change over, while Xi also delivered all kinds of good messages
+
+在习身边有各种卧底，随时干掉习
+The Shanghainese have all kinds of undercover agents around Xi who can take him out at any time
+
+当这种幻想都没有的时候
+When they don’t have this delusion
+
+这就是当年吴国、楚国是吧？
+like State of Wu and State of Chu in the old day, right?
+
+老子给你干了，是吧？没办法了
+I’ll have to fight you to the death, right? There’s no way out
+
+陈胜吴广，上海也能出两个
+Chen Sheng, Wu Guang, Shanghai can also produce two people who unveiled the uprising
+
+* * *
+
+Date:10/26/2021
+原视频标题: 习在20大前最危险，最后一定会被干掉
+Xi is the most dangerous before the 20th Congress of the CCP, and will definitely be killed in the end
+原视频日期：2021/10/22
+原视频链接: [https://twitter.com/se1y7cblljselva/status/1452235250705129472?](https://twitter.com/se1y7cblljselva/status/1452235250705129472?)s=24任务编号：KC205（2660）
+视频时间段 : 0:00-2:01
+英听校：洛杉矶盘古农场 – Mike Li
+翻译：洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – Layka
+字幕+视频制作：洛杉矶盘古农场 – 小战蚁
+审片：洛杉矶盘古农场 – 银龙
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
