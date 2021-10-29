@@ -2,32 +2,38 @@
 ---
 
 
-## 日本首相东亚峰会公开批评中共人权和台海等问题
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1623396/)
+## 共军首次进行码头毁伤实验 或为侵略台湾加紧准备
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1624260/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/59644360_303.jpg)
-岸田文雄10月27日出席东盟10国与日本的领导人线上会议。会后岸田对媒体表示，他发言中提到了香港和新疆的人权状况，以及台湾海峡和平与稳定的重要性。
-
-据日本共同社报道，在与东盟各国首脑会议上，岸田文雄谈到，将印太变成”自由开放的和平海域”是各国共同利益，日本”强烈反对挑战基于法治的自由开放海洋秩序”。报道指这是间接评论东海、南海的局势。
-
-岸田呼吁东盟国家合作，一同实现美日等国所追求的”自由开放的印度太平洋”（FOIP）。他强调，对于自由开放的印度太平洋所共享的开放性、透明性、包容性、法治等本质性原则，日本期盼与东盟具体合作、推动。岸田同一天也出席东盟加日中韩（10加3）领导人线上会议以及东盟与日本、美国、中、俄等领导人举行的东亚高峰会（EAS）线上会议。
-
-另有报道称，在中美领导人亦有出席的东亚峰会上，岸田在发言中还指中国”在东海侵犯日本主权的活动持续”，表示强烈反对在东海和南海加强海洋活动，和在地区进行经济胁迫行为。
-
-虽然岸田一直被认为是日本自民党内坚定的温和派，但外界也预计他上任后将继续强化日美同盟，支持印太区域的自由与开放，并且以务实而强硬的态度处理中共国事务。
-
-信息来源：
-
-[日相公开提人权、台海 北京称抹黑干涉](https://www.dw.com/zh/%E6%97%A5%E7%9B%B8%E5%85%AC%E5%BC%80%E6%8F%90%E4%BA%BA%E6%9D%83%E5%8F%B0%E6%B5%B7-%E5%8C%97%E4%BA%AC%E7%A7%B0%E6%8A%B9%E9%BB%91%E5%B9%B2%E6%B6%89/a-59652373)
-
-(文章仅代表作者本人观点，与GNEWS无关)
-
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+作者：澳喜农场 – 在远方
 
 
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
+
+
+
+中共《环球时报》26日报道，多家境外媒体集中关注了中共军方 于近日进行的一场码头水下爆炸试验。该试验由中共海军研究院所属的某研究所组织，是在某军港进行的针对高桩式码头的水下爆炸试验，一颗水下爆炸物将试验码头完全摧毁。报道称，试验获得了大量实战条件下的爆炸毁伤数据，并强调这在中共国尚属首次。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture11-10.jpg)
+有研究人员称，军事基地的港口码头军队作战体系的核心枢纽，后勤补给船队必须频繁往来于基地港口与前线之间，运送弹药、油料等补给品。如果能够通过水下爆炸等隐蔽方式将对方码头摧毁，可以将其战争潜力消灭于无形。
+
+台湾网站分析认为，该试验是针对美军的“分布式作战”战术。而香港网站则认为，共军该实验针对的是台湾军港，是为侵略台湾进行准备的。战争一旦开始后，共军将对台军的高雄和基隆等军港进行打击，以摧毁其海上作战能力。
+
+参考链接：[共军首次进行码头毁伤实验 或为侵略台湾加紧准备](https://news.sina.com.cn/c/2021-10-26/doc-iktzqtyu3548014.shtml)
+
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

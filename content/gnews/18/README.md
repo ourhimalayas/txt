@@ -2,33 +2,43 @@
 ---
 
 
-## 必看 ！全球34位英雄医生专家警告疫苗危险（3）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1625015/)
+## Canada is Getting Ready to Vaccinate 5 to 11 Year-olds
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1625209/)
 
-翻译：喜国公民
+**HML Vancouver Sailing Farm – ****秋刀鱼**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Canada_vaccinate_Chinese102821.png)Picture source: www.cbc.ca
 
-撰稿： 喜国公民 & Jenny
-视频剪辑/字幕：外星人
-请将此视频广泛转发给您的朋友和家人。发送给你的家庭医生, 医院、学校、牧师、市长和其他在你的社区有责任的人也更加重要！
 
-如果我们都分享这个视频，我们就能唤醒人类。我们可以共同阻止腐败，阻止这场疫苗灾难，共同创造一个更加美好的世界。
+As per the report from CBC, on October 21, 2021 Prime Minister Justin Trudeau said Canada will receive enough vaccine doses from Pfizer to allow all children aged 5 to 11 to get a first dose shortly after Health Canada approves it for that age group. Trudeau also urged parents to be patient while waiting for Health Canada to review the vaccine.
 
-注册获取更多信息, 请登录: [https://www.stopworldcontrol.com](https://www.stopworldcontrol.com/)
+Since the announcement from the Prime Minister , on Oct 26, 2021, CBC also reports that Saskatchewan hopes to receive its first shipment of an expected total of 112,000 vaccine doses meant for kids aged 5 to 11 in early- to mid-November, according to the province’s medical health officer responsible for immunization.
 
-如果新冠疫苗制造商对他们的产品不负责任，医生们就会担心给民众注射这些疫苗是否会给他们的身体造成伤害。
+On the same day, CBC reports that A U.S. Food and Drug Administration (FDA) advisory committee has voted in favour of Pfizer-BioNTech’s COVID-19 vaccine for children 5 to 11 years old.
 
-政府，医疗机构和主流媒体不关心疫苗的有效性和疫苗是否会给你的身体造成伤害，强行推广疫苗，甚至为了推广疫苗而剥夺你的工作权力。这不和常理的做法，不能不让人们怀疑这疫苗背后是否暗藏着不可告人的惊天阴谋。
+**Comments:**
 
-为了你孩子的未来，是时候站出来捍卫你的自由了。不要屈服于焦虑，屈服于人们对疫苗的不同态度，屈服于政府的控制。
+It appears that the tide has turned in Europe, where the vaccine mandate has been abolished in many countries. However on the other side of the Atlantic Ocean, the Canadian government is continuing with the vaccine mandate and has now pushed their agenda toward the innocent children. One can only describe their actions as pure evil and insane.
 
-请接续
+Canada is so far one of the most vaccinated countries in the world. As of Oct 28, 2021, according to the website of the government of Canada, 82.76% of the population are fully vaccinated and 87.66% have received at least one dose.  Miles Guo, the leader of the Whistle Blower Movement has recently indicated that the Jews and the Canadians are among the people that will likely suffer the most from the vaccine mandate.
 
-（本文纯属个人观点，与G news 无关）
+Unfortunately, most of the Canadian parents still don’t realize how dangerous the vaccine truly is. A lot of them not only have taken the shots themselves, they are also looking forward to vaccinating their children so that they could return to a so called normal life. The only result of vaccinating children will be the destruction of these young lives.
 
-[原视频链接](https://rumble.com/viqn29-worldwide-doctors-warn-for-the-vaccines-must-see.html)
+Over the past decade, I have personally known and made friends with a lot of Canadians, who have lived in a peaceful environment all their lives, who believe in science, technology and kindness of human heart, who are gentle and polite towards each other, and whose well-being I am deeply concerned about. However when I try to share the position of the Whistle Blower Movement concerning the pandemic and the vaccines, a common response I receive is: “Oh, it cannot be that bad!” Or, “Oh it just cannot be like that”. To my Canadian friends who don’t know about the evilness of CCP, I want to say: Yes, it is that bad, and probably thousand times worse than what you can imagine.
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+Now the knife of CCP in terms of global vaccination is already against everyone’s throat, and they would not spare children. It is a life and death situation. Please spread the truth about the virus and vaccine with your friends and family, which will give the children a chance to survive this global genocide.
+
+References
+
+[https://www.cbc.ca/news/politics/pfizer-doses-children-5-11-approval-arrival-1.6219252](https://www.cbc.ca/news/politics/pfizer-doses-children-5-11-approval-arrival-1.6219252)
+
+[https://www.cbc.ca/news/canada/saskatoon/saskatchewan-government-kids-covid-19-vaccine-update-dr-saqib-shahab-1.6225671](https://www.cbc.ca/news/canada/saskatoon/saskatchewan-government-kids-covid-19-vaccine-update-dr-saqib-shahab-1.6225671)
+
+[https://www.cbc.ca/news/health/fda-advisory-committee-votes-pfizer-vaccine-kids-1.6226020](https://www.cbc.ca/news/health/fda-advisory-committee-votes-pfizer-vaccine-kids-1.6226020)
+
+*Editor**：**Gerald Garwood*  *百合的家*
+
+*Posted by: Shuang*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

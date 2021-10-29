@@ -2,32 +2,25 @@
 ---
 
 
-## 印度成功试射“烈火-5”洲际导弹射程达五千公里
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1624806/)
+## 或因官司缠身【脸书】母公司被迫改名换姓
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1624938/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16354730951.png)*印度阅兵式上展示的远程弹道导弹烈火- 5导弹。（资料照）*
-据美国之音10月29日报道，印度27日成功试射一枚精准度极高、可以携带核弹头的“烈火-5”洲际弹道导弹，射程可达到5000公里，约3125英里。
+原文采编：UCool优酷 编译撰稿：文所未闻
 
-印中紧张关系加剧，印度担心中共国对印度洋的影响。中共国拥有的强大核武器驱使印度多年来一直在改进其武器系统，“烈火-5”能够覆盖几乎中共国所有地区。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-3-edited.png)图片来源：techcrunch
 
-中共四处出击，在国际上制造紧张气氛，迫使其他国家在武器和防御方面持续改进。
 
-新闻参考链接：[https://www.voachinese.com/a/china-to-build-base-for-tajikistan-near-afghan-border-20211029/6289392.html](https://www.voachinese.com/a/china-to-build-base-for-tajikistan-near-afghan-border-20211029/6289392.html)
+据美国《科技博客网》10月28日刊文称，著名社交媒体【脸书】创始人扎克伯格当天正式宣布，将其旗下拥有Facebook、Instagram、WhatsApp和Oculus等知名社交网络的母公司更名为Meta。
 
-编辑：胖丁
+据报道，因涉及“言论审查”及“公司诚信”等一系列严重影响该公司未来发展的问题，而导致【脸书】近年来一直负面消息不断。 同时，与其他科技巨头相比，该公司一直受到相关行政部门更多的监管和审查。
+
+据悉，扎克伯格对【脸书】母公司的这次更名之举，似乎旨在摆脱以上不利的被动局面，并试图通过“改名换姓”来淡化解决【脸书】这一资深网路社交平台给其母公司带来的各种麻烦和困扰，同时也希望能以此重塑其公司核心价值。
 
 * * *
 
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+校对编辑，发稿：硫酸羟氯喹64
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[原文链接：](https://techcrunch.com/2021/10/28/facebook-changes-its-corporate-branding-to-meta/)
 
  
 

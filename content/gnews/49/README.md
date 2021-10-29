@@ -2,22 +2,43 @@
 ---
 
 
-## 中共外交部开批刚刚就任的岸田首相
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1623411/)
+## 中共解放军首次派出武装直升机扰台 加剧台海局势
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1624261/)
 
-#### 撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/455.png)[图片来源](https://www.nishinippon.co.jp/image/213249/)
-10月28日，产经新闻驻北京记者三塚圣平报道：针对日本首相岸田先生在东南亚联盟相关会议上提及香港和新疆的人权问题，中国外交部发言人汪文斌在10月28日的新闻发布会上说：日本领导人公然无视事实，在多边场合进行诽谤性外交活动。无理干涉中国的内部事务。我们已经向日本方面提出了严正抗议。
+作者：日本方舟农场 – Andy5
 
-外交部战狼汪文斌批评岸田首相的言论对中日关系的健康和稳定发展以及地区和平与稳定不具建设性作用。
 
-信息来源：[中国、岸田首相発言に「内政干渉」と反発](https://www.sankei.com/article/20211028-EUY2P423JJKCFI7GT5S5S274XU/)
 
-(文章仅代表作者本人观点，与GNEWS无关)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+
+台湾防务部门在10月26日晚7时发布的大陆军机巡台动态显示，在当天白天侵扰台湾“西南防空识别区”大陆军机中，除常规的侦察机、通信机、战斗机以及一架远距离支援干扰机外，有两架军用直升机出现，包括一架军用攻击直升机和一架军用运输直升机。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-24.jpg)
+据台湾军事专家分析，如果大陆没有掌握台海的制空权，直升机出海很容易变成“活靶子”。而解放军的攻击和运输直升机现身台湾西南空域，说明他们认为自己已经掌握了这一领域的制空权，存在解放军夺取某些台湾外岛的可能性，台湾需要根据情况及时调整兵力部署。
+
+直升机出海，更加剧了台湾局势的紧张程度。
+
+参考链接：
+1. [中共解放军首次派出武装直升机扰台 加剧台海局势](https://www.voachinese.com/a/blinken-statement-translation-supporting-taiwan-participation-in-the-un-system-20211026/6286692.html)
+2. [中共解放军首次派出武装直升机扰台 加剧台海局势](https://news.sina.com.cn/c/2021-10-27/doc-iktzscyy2040142.shtml)
+3. [中共解放军首次派出武装直升机扰台 加剧台海局势](https://news.ifeng.com/c/8Ag6yRvcogc)
+4. [中共解放军首次派出武装直升机扰台 加剧台海局势](https://news.sina.com.cn/c/2021-10-27/doc-iktzscyy2060130.shtml)
+5. [中共解放军首次派出武装直升机扰台 加剧台海局势](https://mil.news.sina.com.cn/china/2021-10-27/doc-iktzscyy2113125.shtml)
+
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
