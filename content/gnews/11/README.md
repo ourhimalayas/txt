@@ -2,46 +2,131 @@
 ---
 
 
-## 前疾控中心主任称马里兰州超四成病毒死亡者已接种疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1626908/)
+## 中国人拿回土地财富权利才能放下负担走向未来
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1626957/)
 
-**评论：对于疫苗的有效性，前疾控中心主任的表达已经给出了事实依据。然而，卫生部门的表示和官员的声明却耐人寻味！对于疫苗的有效率的表述，他们是应该遵循事实数据和科学，还是他们所在的身份位置？是站在接种了疫苗的死亡者的立场，还是别的不可说的因素？**
+[https://gtv.org/video/id=617b8e78adfd99590c30b09a](https://gtv.org/video/id=617b8e78adfd99590c30b09a)
 
-**据《Gateway Pundit》记者Jim Hoft，2021年10月27日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/aw0zs-cgvx6-4.jpg)图片源自Gateway Pundit
-美国疾病控制与预防中心前主任罗伯特·雷德菲尔德周一表示，在过去6至8周内，马里兰州因武汉冠状病毒死亡的人中有40%以上接种了疫苗。
+**郭文贵：**
+**Miles Guo：**
 
-在接受FOX新闻采访时，前疾病控制与预防中心主任雷德菲尔德（现任 MD 州长霍根的高级顾问）令人震惊地承认，最近马里兰州40%的COVID-19死亡病例都接种了疫苗。
+我们有三样东西，新中国联邦说过
+We have three things that the New Federal State of China has said
 
-“我听到很多次人们觉得完全接种疫苗的人可能会死亡是一种罕见的事件。我碰巧是马里兰州霍根州长的高级顾问。在过去的6到8周内，马里兰州40%以上的死者都接种了疫苗，”雷德菲尔德在被问及科林鲍威尔的死因时说。
+大家一定小心去看
+You must look carefully
 
-前疾病预防控制中心主任罗伯特·雷德菲尔德说，过去 6-8 周在马里兰州死亡的人中有超过40%已接种疫苗。
+第一个，没有共产党第一件事情
+First, the first thing without the Communist Party
 
+把土地必须还给人民
+The land must be returned to the people
 
+很多人来问我这问题，国内的（战友）
+Many people come to ask me this question, the domestic ( Comrades in Arms )
 
-> Former CDC Director Robert Redfield said more than 40% of the people who died in Maryland over the last 6-8 weeks were jabbed [pic.twitter.com/zkzRsUq9z9](https://t.co/zkzRsUq9z9)
-> — UK Patriot (@uk\_patriot1) [October 25, 2021](https://twitter.com/uk_patriot1/status/1452567147155234816?ref_src=twsrc%5Etfw)
+你怎么还呢？
+How do you return it?
 
+我说你如果不懂的话，看看西方工业革命怎么把土地给人民的
+I said if you don’t understand, look at how the western industrial revolution gave land to the people
 
+而且是永久产权
+And it’s freehold
 
-但是，马里兰州卫生部发言人安迪·欧文 (Andy Owen) 有不同的说法，即从9月1日到10月15日，死于确诊COVID-19的马里兰人中只有约30%完全接种了疫苗。
+必须把土地给老百姓，这一条
+The land must be returned to the people, this is first
 
-MSN报道：
+第二个，所有银行欠的钱，包括房贷一概不能还
+The second, all the money owed to the bank, including the mortgage can not be paid off
 
-在那段时间内总共有649人死亡，这意味着，根据马里兰州卫生部的说法，其中195人是接种疫苗的人。
+他说社会那不就乱了吗？
+He asked “isn’t that society in chaos?”
 
-卫生部门表示，许多死者还患有其他健康问题，使他们更加脆弱。
+我说你没有学过经济学，好好学学凯恩斯，还有这个大小史密斯讲的经济学理论
+I said you have not studied economics, go to learn Keynesian economics, and learn economic theory from Adam Smith
 
-官员们发表声明写道：“这进一步强调了我们的使命，即通过敦促符合条件的马里兰州人接受强化注射来保持免疫力”。
+财富是谁的呢？财富最终都是社会的
+Whose wealth is it? Wealth will ultimately belong to the community
 
-**文章来源：**[https://www.thegatewaypundit.com/2021/10/former-cdc-director-robert-redfield-claims-40-deaths-cases-maryland-fully-vaccinated/](https://www.thegatewaypundit.com/2021/10/former-cdc-director-robert-redfield-claims-40-deaths-cases-maryland-fully-vaccinated/)
+我们人类存在这个世界上，所有的房产，所有的金钱，所有的物质，你只是在你生存期间拥有了保管权
+We humans exist in this world, all the property, all the money, all the material things, you just have custody of wealth during your existence
 
-**（本文评论仅代表个人观点）**
+社会财富最好的分配就是继承权利和继承的法律
+The best distribution of social wealth is inheritance rights and inheritance laws
 
-翻译：洛杉矶盘古农场–Raul
-校对：洛杉矶盘古农场–Mike Li
-评论：洛杉矶盘古农场–心照
-编辑：洛杉矶盘古农场–心照
+我说我们解决了这一段的所有的占有权和把未来的继承权解决好
+I said we gonna settle all the possessions in this section and settle the future inheritance
+
+所有的帐是不用还的，因为中国人民活着的人
+All the debts do not have to be paid, because the people who are alive in China
+
+他们应该有资格，有能力继承他们几代人创造的财富和他生在这个土地上应有的人权，和这个土地上所有权的归属权，
+They should be entitled and capable of inheriting the wealth they have created over the generations and the human rights to which they were born on this land, and the right to ownership of this land.
+
+就应该是他们的，一切归零，重新开始，什么房卡、信用卡、银行贷款，
+It should be theirs, everything goes to zero, start over, whatever house mortgage, credit cards, bank loans, all gone
+
+那对不起，那时候有没有，他有十套房子，还有没有房子的，那对不起了
+Is there such a situation when the time comes? There are people who have ten houses and there are people who don’t have houses, oh, we’re sorry
+
+到那个时候，它就不会是绝对公平的
+it won’t be absolutely fair
+
+它只能叫做司法资源，管理资源，历史性的冻结分配状态
+It can only be called a judicial resource, a management resource, a historical freeze on the state of distribution
+
+这在资本论里边都说的非常清楚
+It’s all very clear in “Das Kapital”
+
+生产资料、生产价值
+At that time, the means of production and production value
+
+那就是到那个时候就是属于老百姓的，就是属于大家的
+belong to the people, that is, to everyone
+
+有没有其他的公平分配方式？有
+Is there any other way of equitable distribution? Yes
+
+比如说有人既没房，又没房贷，又没车贷
+Let’s say someone has neither a home, a mortgage, nor a car payment
+
+那给他什么？
+So what does he get?
+
+要把现在拥有的属于公共资源，要经过等比，就是大家平均完以后一个均值
+In order to take the public resources that we have, we have to go through the equivalence, that is, an average value with everyone included
+
+让他应该拥有，他不能吃亏
+Give him the part he should have and not letting him lose out on it
+
+这就是爆料革命，新联邦干掉共产党以后要做的
+This is what the Whistleblowers Movement, the New Federal State of China to do after taking out the Communist Party
+
+只有做到了现在的资源和财富的分配合理化
+Only when the current distribution of resources and wealth is rationalized
+
+被绝大多数人接受
+and accepted by the vast majority of people
+
+中国人才能放下负担走向未来
+will Chinese people be able to put down its burden and move into the future
+
+———————————————————
+
+**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1449362622432743424?s=24](https://twitter.com/se1y7cblljselva/status/1449362622432743424?s=24任务)
+
+Date:10/18/2021
+原视频标题:
+Chinese people get back their rights to land wealth before they can let go of their bur-dens and move into the future
+原视频日期：2021/10/13编号：KC201(2568)
+视频时间段 : 0:00-2:10
+
+英听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – Layka
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

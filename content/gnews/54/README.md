@@ -2,27 +2,32 @@
 ---
 
 
-## 秘翻在线 :全球第三大芯片制造商格罗方德(GlobalFoundries)正式 IPO上市
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1624677/)
+## 两党参议员推出国防法案 外交抵制北京冬奥会
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1624930/)
 
-撰稿：William
-校对：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/圖片1.jpg-1.png)
-图片来源：marketwatch
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Unknown-9.jpg)两党参议员推出国防法案 外交抵制北京冬奥会 网络图片
+据美国之音10月29日报道，离北京冬奥会开幕不到一百天之际，美国两党参议员28日对年度国防政策法案提出修正案，呼吁对中共国主办的冬季奥运会实行外交抵制。众议院议长、民主党人南希·佩洛西也呼吁外交抵制。
 
-根据彭博新闻社(Bloomberg News)的报导,郭文贵先生家族基金支持的全球第三大半导体制造商格罗方德(GlobalFoundries)(中文:格芯)与穆巴达拉(Mubadala )首次公开募股中筹集了近 26 亿美元。根据证实彭博新闻早前报导的声明，该公司和穆巴达拉周三以每股 47 美元的价格交易了 5500 万股股票，售价为 42 至 47 美元。
+美国国务院已将中共政府对新疆维吾尔穆斯林的打压定性为“种族灭绝”。有国会议员呼吁全面抵制北京冬奥会或者改换冬奥会地点，并抨击赞助北京冬奥会的公司与中共同流合污。不过，该修正案只是要求美国政府实施外交抵制，但允许美国政府向运动员以及美国奥林匹克与残疾人奥林匹克委员会及其雇员和承包商提供资金。
 
-美国证券交易委员会提交的文件中列出的流通股指出，GlobalFoundries 的市值为每股 47 美元，市值超过 250 亿美元。根据彭博汇编的数据，此次上市是今年美国交易所的第三大上市，仅次于韩国电子商务公司 Coupang Inc. 的 45.5 亿美元 IPO 和中国网约车公司滴滴全球公司的 44.4 亿美元融资，不包括空白支票和类似公司。
+各国常派官方代表团出席奥运会开幕式。目前尚不清楚外交代表团将在多大程度上获准出席本届北京冬奥会。中共的种族灭绝、闭关锁国政策最终将自己玩成了国际上的孤家寡人，遭到了各国的抵制。中共以邪恶起家，对内祸国殃民、对外侵略扩张，最终必会死于邪恶。
 
-在中共病毒大流行期间，电子产品需求的激增和供应不足导致芯片工厂更有价值。由于对芯片半导体行业的兴趣创下历史新高，格罗方德正在吸引公开市场投资者。格罗方德之前放弃与台积电或三星的能力相匹配的尖端生产，反而专注不算先进的芯片市场领域，显示芯片对汽车制造商和其他行业越来越重要。
+新闻参考链接：[https://www.voachinese.com/a/us-senators-propose-adding-boycott-of-china-winter-olympics-to-defense-bill-20211028/6289881.html](https://www.voachinese.com/a/us-senators-propose-adding-boycott-of-china-winter-olympics-to-defense-bill-20211028/6289881.html)
 
-此次 IPO上市由摩根士丹利、美国银行、摩根大通、花旗集团和瑞士信贷集团牵头。该公司的股票于１０月２８日在纳斯达克开始交易，代码为 GFS。
+* * *
 
-「相比吴征空手套白狼，欺骗川普总统及ＭＡＧＡ的ＳＰＡＣ，只有１１家基金（其中八家有中共背景）互相炒作，真正的西方投资家根本不屑一顾。格罗方德(GlobalFoundries)备受瞩目，预料甫上市就可涨50%，之后可涨到数十倍。这才是真正的赚钱!」郭文贵先生在盖特直播中指出。
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-中共企图用虚、假、骗的手段欺瞒世人，最终会被”真相”所溃击!SPAC必然遭到美国司法的集体诉讼，而在美国上市的全球第三大半导体制造商格罗方德(GlobalFoundries)(中文:格芯)未来则在芯片需求孔急的市场佔有重要的地位。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-新闻来源：[GlobalFoundries, Mubadala Raise $2.6 Billion in U.S. IPO](http://GlobalFoundries,%20Mubadala%20Raise%20$2.6%20Billion%20in%20U.S.%20IPO)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

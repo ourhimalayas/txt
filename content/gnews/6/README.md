@@ -2,117 +2,27 @@
 ---
 
 
-## 吴征在2019年就被美国FBI刑事调查吴征现在是罪上加罪
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1626981/)
+## 易中天个人工作室注销，中共“文化大运动”寒蝉效应显现
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1626993/)
 
-[https://gtv.org/video/id=617b8ee8adfd99590c30b0b1](https://gtv.org/video/id=617b8ee8adfd99590c30b0b1)
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-90.png)[图片来源](https://www.youtube.com/watch?v=oS5rOtOVQDo&amp;list=RDCMUCtPo9-DDJNZWFsbzvaPGuZw&amp;index=2&amp;t=368s)
+天眼查App显示，近日，上海易中天文化传播工作室发生工商变更，经营状态由存续变更为注销。
 
-**郭文贵**
-**Miles Guo**
+上海易中天文化传播工作室成立于2016年10月，投资人为易中天，出资额10万人民币，其经营范围包括翻译服务，文化艺术交流策划，企业形象策划等。
 
-我要告诉大家一个重磅的勐料
-I want to tell you all a bombshell news
+据公开信息，上海易中天文化传播工作室是今年8月在A股上市的果麦文化传媒股份有限公司是15家内容供应商之一，并在2018~2020年跻身果麦文化的前五大版权供应商，果麦文化对其的三年累计版权采购金额为8116.54万元。
 
-吴征在2019年
-In 2019, Bruno Wu
+2006年，五十九岁的易中天登台中共央视《百家讲坛》，主讲《汉代风云人物》、《易中天品三国》，随后一夜爆红。除了真才实学，真正让易中天连红15年的却是他的敢讲敢言和身上真的风骨和家国情怀。
 
-就被美国FBI刑事调查
-was under criminal investigation by the US FBI
+近年来，中共对文化、艺术和娱乐界不断整肃，言论和活动空间不断收窄，甚至推行“文化大运动”，通过“顺者昌，逆者被查税或被嫖娼”的手段，不断形成寒蝉效应。易中天工作室的注销，就是当前中共治下文化艺术和娱乐界被压制和被噤声的缩影。
 
-2019年吴征就已经被美国FBI
-Bruno Wu has been (investigated) by the US FBI since 2019
+信息来源：[易中天个人工作室注销|翻译|经营](https://www.163.com/dy/article/GNFIMCIL0519QIKK.html)
 
-包含他和中共的大概七八个人吧
-including about seven or eight people from the CCP
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
 
-将近10个人
-near to ten people
-
-全部被FBI刑事调查 （送交）美国司法部
-All of them were investigated by the FBI for criminal investigation, (the case was sent to) the US Department of Justice
-
-你知道这意味着什么吗？
-Do you know what this means?
-
-吴征是美国公民
-Bruno Wu is a US citizen
-
-不回美国接收美国刑事调查
-who does not return to the U.S. under the U.S. criminal investigations
-
-所以从那天起再也没回过美国
-So, he has never returned to the U.S. since that day
-
-不接受美国的刑事调查
-He doesn’t want to be subject to a criminal investigation in the U.S.
-
-逃离美国
-and fled from the U.S.
-
-而且跟他的合伙人就是FBI的Frank
-Also, with his partner Frank, who is the FBI agent
-
-他们还操纵着PAG的官司
-they have been manipulating the PAG lawsuits
-
-律师和法官和各方面
-lawyers, judges, and various parties
-
-操纵美国司法
-manipulating the U.S. judicial system
-
-更重要的在刑事犯罪调查期间
-More importantly, during the criminal investigations
-
-他签署大量的文件
-he has signed a large number of documents
-
-并没有披露
-He has not disclosed (he was under criminal investigations)
-
-也没向川普总统披露
-it also was not disclosed to President Trump
-
-包括他老婆杨澜
-including his wife Yang Lan
-
-包括他弟弟吴斌
-his brother Wu Bin
-
-包括李玉保
-Li Yubao (chairman of the board of directors of China Yunhong Holdings Lim-ited)
-
-所有这些都是刑事犯罪中的刑事犯罪
-All of these are criminal offenses under criminal offense
-
-川普总统的这个Deal(交易)SPAC，他是过不去了
-This SPAC deal with President Trump, he (Bruno Wu) will not get away with it
-
-吴征是罪上加罪
-Bruno Wu commits doubly crime
-
-———————————————————
-
-**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1452951168980713476?s=24](https://twitter.com/se1y7cblljselva/status/1452951168980713476?s=24)
-
-Date: 10/26/2021
-原视频标题: 
-Bruno Wu has been investigated under criminal investigation by the US FBI since 2019
-Bruno Wu currently commits doubly crime
-原视频日期：2021/10/24
-任务编号：KC202(2678)
-视频时间段 : 0:00-1:25
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

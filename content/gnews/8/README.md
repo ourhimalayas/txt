@@ -2,37 +2,117 @@
 ---
 
 
-## 加拿大新的旅行疫苗要求于10月30日生效
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1626972/)
+## 吴征在2019年就被美国FBI刑事调查吴征现在是罪上加罪
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1626981/)
 
-蒙特利尔皇家山战友团 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1_5478927.jpg)图片来源：CTV
-根据加拿大《CBC新闻》10月29日报道，联邦政府今天宣布了新的豁免和未接种疫苗的外国公民的宽限期，以及明天生效的旅行者疫苗任务的细节。
+[https://gtv.org/video/id=617b8ee8adfd99590c30b0b1](https://gtv.org/video/id=617b8ee8adfd99590c30b0b1)
 
-交通部长Omar Alghabra在多伦多皮尔逊机场谈到了加拿大交通部的最后命令和指导，在协商后向航空公司和铁路部门发布。
+**郭文贵**
+**Miles Guo**
 
-**从10月30日凌晨3点开始，所有在加拿大的12岁及以上的旅行者在登上本国的飞机、火车或游轮之前必须完全接种疫苗。即使是那些完全接种了疫苗的人，在返回加拿大时也需要出示COVID测试的阴性证明。**渥太华正面临放弃这项规定的压力，他们被要求取消对完全接种疫苗的旅行者进行昂贵的COVID测试的规定。
+我要告诉大家一个重磅的勐料
+I want to tell you all a bombshell news
 
-出国旅行的加拿大人将需要遵守他们所进入的特定航空公司和国家的规定，其中可能包括测试。
+吴征在2019年
+In 2019, Bruno Wu
 
-根据政府的规定，旅行者应在旅行前两周完全接种疫苗。如果旅行者已经开始接种疫苗但尚未完成，他们可以在11月29日前出示有效的COVID测试证明。**从11月30日起，未接种疫苗的人将没有资格旅行，有限的豁免除外。**
+就被美国FBI刑事调查
+was under criminal investigation by the US FBI
 
-交通部长说，对于 “紧急情况和指定的偏远社区的特殊住宿，以便居民能够继续获得基本服务”，将会有 “少数例外”。他说，在与原住民社区、各省和地区协商后，几个社区在一年的大部分时间里唯一的进出方式是乘坐飞机，有些人可能需要因紧急情况而旅行。
+2019年吴征就已经被美国FBI
+Bruno Wu has been (investigated) by the US FBI since 2019
 
-新规定还包括，加拿大航空运输安全局（CATSA）将通过确认疫苗接种状况来支持运营商。
+包含他和中共的大概七八个人吧
+including about seven or eight people from the CCP
 
-前往加拿大的完全疫苗接种者，必须至少接种两剂加拿大政府认可的COVID疫苗。
+将近10个人
+near to ten people
 
-加拿大这些规定让未接种疫苗者“寸步难行”。
+全部被FBI刑事调查 （送交）美国司法部
+All of them were investigated by the FBI for criminal investigation, (the case was sent to) the US Department of Justice
 
-原文链接：
-[https://www.cbc.ca/news/politics/transport-canada-announcement-vaccine-requirements-travel-1.6229829](https://www.cbc.ca/news/politics/transport-canada-announcement-vaccine-requirements-travel-1.6229829)
+你知道这意味着什么吗？
+Do you know what this means?
 
-* * *
+吴征是美国公民
+Bruno Wu is a US citizen
 
-发稿 Spirit
+不回美国接收美国刑事调查
+who does not return to the U.S. under the U.S. criminal investigations
 
+所以从那天起再也没回过美国
+So, he has never returned to the U.S. since that day
 
+不接受美国的刑事调查
+He doesn’t want to be subject to a criminal investigation in the U.S.
+
+逃离美国
+and fled from the U.S.
+
+而且跟他的合伙人就是FBI的Frank
+Also, with his partner Frank, who is the FBI agent
+
+他们还操纵着PAG的官司
+they have been manipulating the PAG lawsuits
+
+律师和法官和各方面
+lawyers, judges, and various parties
+
+操纵美国司法
+manipulating the U.S. judicial system
+
+更重要的在刑事犯罪调查期间
+More importantly, during the criminal investigations
+
+他签署大量的文件
+he has signed a large number of documents
+
+并没有披露
+He has not disclosed (he was under criminal investigations)
+
+也没向川普总统披露
+it also was not disclosed to President Trump
+
+包括他老婆杨澜
+including his wife Yang Lan
+
+包括他弟弟吴斌
+his brother Wu Bin
+
+包括李玉保
+Li Yubao (chairman of the board of directors of China Yunhong Holdings Lim-ited)
+
+所有这些都是刑事犯罪中的刑事犯罪
+All of these are criminal offenses under criminal offense
+
+川普总统的这个Deal(交易)SPAC，他是过不去了
+This SPAC deal with President Trump, he (Bruno Wu) will not get away with it
+
+吴征是罪上加罪
+Bruno Wu commits doubly crime
+
+———————————————————
+
+**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1452951168980713476?s=24](https://twitter.com/se1y7cblljselva/status/1452951168980713476?s=24)
+
+Date: 10/26/2021
+原视频标题: 
+Bruno Wu has been investigated under criminal investigation by the US FBI since 2019
+Bruno Wu currently commits doubly crime
+原视频日期：2021/10/24
+任务编号：KC202(2678)
+视频时间段 : 0:00-1:25
+
+英听校: 洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

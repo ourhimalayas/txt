@@ -2,136 +2,37 @@
 ---
 
 
-## 中国人拿回土地财富权利才能放下负担走向未来
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1626957/)
+## 日益加剧的大陆和台湾的紧张局势“不是玩笑”
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1626977/)
 
-[https://gtv.org/video/id=617b8e78adfd99590c30b09a](https://gtv.org/video/id=617b8e78adfd99590c30b09a)
+翻译: 波士顿五月花  时空旅行者
 
-**郭文贵：**
-**Miles Guo：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-16.jpg)Author John Moody to Newsmax: Growing China-Taiwan Tensions ‘Not a Joke’
+https://www.newsmax.com/
 
-我们有三样东西，新中国联邦说过
-We have three things that the New Federal State of China has said
+通过新书《他们当然知道》探索中共国早期病毒大流行情况的作者约翰‧穆迪接受Newsmax采访时谈到：中共国最近事关台湾的行动并未表示出国家主席习近平保护和平的意图。
 
-大家一定小心去看
-You must look carefully
+穆迪在Newsmax 的“The Count”节目中表示：“如果习近平所说的行动是为了保护和平，那么我痛恨看到他在生气时会做出什么。” 习曾公开表示，到 2050 年，两岸将完成统一。现在，这既是对台湾人的直接威胁，也是对美国的间接威胁。”
 
-第一个，没有共产党第一件事情
-First, the first thing without the Communist Party
+穆迪的书是一部小说，被赞誉为“如此接近每个读者所分享的现实，以至于可以作为新闻标题。如果你仍然相信新闻标题”。亚马逊预览介绍道：这是是一部基于致命冠状病毒大流行的开端和在全球范围内发展的预告片。预览中问道：“病毒是在哪里制造的，由谁制造的？是否有人试图阻止它的传播？还是说在整个星球释放这种可怕的疾病是一直以来的目标？”
 
-把土地必须还给人民
-The land must be returned to the people
+福克斯新闻前执行编辑兼执行副总裁穆迪周六告诉 Newsmax：“习近平正通过中共军机飞越台湾领空，巩固在与台湾隔海相望的福建省附近的三个海军基地来加强他的地位。所谓的巩固，实际是令他们具备攻击能力，这是习发出的一个非常明确的信息。每个人都知道他打算做什么。只是什么时间行动的问题。现在世界的反应是什么？”
 
-很多人来问我这问题，国内的（战友）
-Many people come to ask me this question, the domestic ( Comrades in Arms )
+与此同时，拜登总统却在上周康涅狄格州发表讲话时吹捧他与习近平的密切关系，指出无论是之前作为副总统还是现在作为总统，他与中共国国家主席共度的“时间”比“任何其他世界领导人”都多。拜登说：现在的对话会持续一个半小时至两个半小时，台湾事件不容玩笑。
 
-你怎么还呢？
-How do you return it?
+穆迪同意拜登所认为的中共国与台湾之间发生的事情不是玩笑。穆迪说：“习近平无意向美国低头或达成任何协议。”他补充说，习认为自己是“自毛泽东以来最伟大的中国领导人”，他正在推行有中国特色的社会主义哲学。
 
-我说你如果不懂的话，看看西方工业革命怎么把土地给人民的
-I said if you don’t understand, look at how the western industrial revolution gave land to the people
+“统一台湾是习的夙愿，”穆迪说。无论通过那种手段，战争、威胁、恐吓或一个软弱的美国总统，习都将实现他的想法。” 而美国则必须明白，中共国“不是我们的朋友”。“用常理无法跟他们沟通，” 穆迪评论道。 “他们不会通过谈判实现民主。他们不会按照我们的想法行事。他们是我们的敌人。不了解这一点的人，也无法了解这个世界。”
 
-而且是永久产权
-And it’s freehold
+（文章仅代表作者本人观点，与GNews 无关）
 
-必须把土地给老百姓，这一条
-The land must be returned to the people, this is first
+新闻来源: [Author John Moody to Newsmax: Growing China-Taiwan Tensions ‘Not a Joke’](https://www.newsmax.com/newsmax-tv/john-moody-china-book-covid/2021/10/18/id/1040953/)
 
-第二个，所有银行欠的钱，包括房贷一概不能还
-The second, all the money owed to the bank, including the mortgage can not be paid off
+* * *
 
-他说社会那不就乱了吗？
-He asked “isn’t that society in chaos?”
+*素材来源：冲天一怒*
 
-我说你没有学过经济学，好好学学凯恩斯，还有这个大小史密斯讲的经济学理论
-I said you have not studied economics, go to learn Keynesian economics, and learn economic theory from Adam Smith
-
-财富是谁的呢？财富最终都是社会的
-Whose wealth is it? Wealth will ultimately belong to the community
-
-我们人类存在这个世界上，所有的房产，所有的金钱，所有的物质，你只是在你生存期间拥有了保管权
-We humans exist in this world, all the property, all the money, all the material things, you just have custody of wealth during your existence
-
-社会财富最好的分配就是继承权利和继承的法律
-The best distribution of social wealth is inheritance rights and inheritance laws
-
-我说我们解决了这一段的所有的占有权和把未来的继承权解决好
-I said we gonna settle all the possessions in this section and settle the future inheritance
-
-所有的帐是不用还的，因为中国人民活着的人
-All the debts do not have to be paid, because the people who are alive in China
-
-他们应该有资格，有能力继承他们几代人创造的财富和他生在这个土地上应有的人权，和这个土地上所有权的归属权，
-They should be entitled and capable of inheriting the wealth they have created over the generations and the human rights to which they were born on this land, and the right to ownership of this land.
-
-就应该是他们的，一切归零，重新开始，什么房卡、信用卡、银行贷款，
-It should be theirs, everything goes to zero, start over, whatever house mortgage, credit cards, bank loans, all gone
-
-那对不起，那时候有没有，他有十套房子，还有没有房子的，那对不起了
-Is there such a situation when the time comes? There are people who have ten houses and there are people who don’t have houses, oh, we’re sorry
-
-到那个时候，它就不会是绝对公平的
-it won’t be absolutely fair
-
-它只能叫做司法资源，管理资源，历史性的冻结分配状态
-It can only be called a judicial resource, a management resource, a historical freeze on the state of distribution
-
-这在资本论里边都说的非常清楚
-It’s all very clear in “Das Kapital”
-
-生产资料、生产价值
-At that time, the means of production and production value
-
-那就是到那个时候就是属于老百姓的，就是属于大家的
-belong to the people, that is, to everyone
-
-有没有其他的公平分配方式？有
-Is there any other way of equitable distribution? Yes
-
-比如说有人既没房，又没房贷，又没车贷
-Let’s say someone has neither a home, a mortgage, nor a car payment
-
-那给他什么？
-So what does he get?
-
-要把现在拥有的属于公共资源，要经过等比，就是大家平均完以后一个均值
-In order to take the public resources that we have, we have to go through the equivalence, that is, an average value with everyone included
-
-让他应该拥有，他不能吃亏
-Give him the part he should have and not letting him lose out on it
-
-这就是爆料革命，新联邦干掉共产党以后要做的
-This is what the Whistleblowers Movement, the New Federal State of China to do after taking out the Communist Party
-
-只有做到了现在的资源和财富的分配合理化
-Only when the current distribution of resources and wealth is rationalized
-
-被绝大多数人接受
-and accepted by the vast majority of people
-
-中国人才能放下负担走向未来
-will Chinese people be able to put down its burden and move into the future
-
-———————————————————
-
-**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1449362622432743424?s=24](https://twitter.com/se1y7cblljselva/status/1449362622432743424?s=24任务)
-
-Date:10/18/2021
-原视频标题:
-Chinese people get back their rights to land wealth before they can let go of their bur-dens and move into the future
-原视频日期：2021/10/13编号：KC201(2568)
-视频时间段 : 0:00-2:10
-
-英听校: 洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – Layka
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*编辑**& 发布：jamie(文胤)*
 
  
 
