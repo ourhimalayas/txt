@@ -2,54 +2,40 @@
 ---
 
 
-## COVID-19最新情报｜台湾FDA发布疫苗不良事件通报相关数据分析
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1626376/)
+## 中共房企债务违约达八家 连带平安股价跌幅近四成
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1626399/)
 
-**台湾宝岛农场 疫情关注组｜发布日期/ 29/10/2021**
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据中共媒体消息称，截至10月26日，涉及美元债务违约的中共房地产企业已经达到八家，当中包括当代置业，华夏幸福，协信远创等公司，以及另一家面临最大债务违约的中共恒大集团。因此，国际评级机构相应下调了中共多家房地产开发商的企业评级。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9-6.jpeg)
 
+另外，数据显示，在今年7月至9月期间，中共房企的单月销售额急剧下滑，最高降幅达到36.6%。至于徘徊在违约边缘的恒大集团，其今年第三季度的销售额只有120亿元，同比跌幅达到96%。
 
-台湾卫生福利部于10月25日发布了[新冠疫苗不良事件通报摘要报告](https://www.fda.gov.tw/tc/includes/GetFile.ashx?id=f637707482972769407&amp;type=2&amp;cid=38820)。截至2021年10月20日，台湾共施打20,948,526剂新冠疫苗，共接获疫苗不良事件通报 10,218件。其中932例死亡，比例约9.12%，高出[美国官方2.09%](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=CAT&amp;EVENTS=ON&amp;VAX=COVID19)数据。但有美国律师及相关人员称，美国政府掩盖疫苗死亡案例。
+与此同时，受到房地产企业的牵连，中共平安集团今年的业绩也大幅下降，A股和H股双双下跌将近四成。
 
-且摘要报告中强调，疫苗不良事件通报率不等于发生率，死亡不良事件不分厂牌及个别厂牌的通报值皆未高于**预期**死亡事件数。（存在漏通报、未通报状况）
+对于中共的房地产行业，郭先生也多次谈到，一旦房地产爆雷，则必然引发中共的保险业爆雷。而当恒大和其他房企的债务吸引着所有人的注意时，中共已经在计划将无法偿还的房地产债务抛至世界，向其所谓的“命运共同体”输出贫穷。
 
-- 相关：[华航空服员爆打AZ疫苗后“眼睛血栓模糊”没医师敢通报副作用| ETtoday生活新闻](https://www.ettoday.net/news/20210513/1980631.htm)
-- 相关：[美律师控诉 政府掩盖4.5万例疫苗死亡案例](https://renz-law.com/45k-whistleblower-suit/)
-- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/) / [新冠病毒预防、治疗方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)
+参考链接：
+1）[地产美元债“维稳”，违约频发之后，多数房企拒绝“躺平”](https://m.yicai.com/news/101209078.html)
+2）[受累华夏幸福，9000亿保险巨头前三季净利降两成！股价跌近40%，北向资金也减持](https://www.sohu.com/a/497682392_115433?spm=smpc.news-home.stock-news.1.1635375600272WKcJepR)
+3）[华夏幸福前三季度权益销售额165.65亿元](https://finance.sina.com.cn/jjxw/2021-10-26/doc-iktzscyy1932195.shtml)
+4）[大陆房企9月销售额跌36% 恒大跌96.26%](https://www.epochtimes.com/gb/21/10/4/n13279432.htm)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/7-21.jpg)
-#### 台湾不良事件通报情形10218件：死亡占比高出美国四倍以上
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-- 死亡（932例）：占全部通报数量约9.12%。（[美国截至10/15的统计数据](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=CAT&amp;EVENTS=ON&amp;VAX=COVID19)，死亡占总通报数量约2.09%）
-- 危及生命（174例）：占全部通报数量约1.7%。（[美国截至10/15的统计数据](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=CAT&amp;EVENTS=ON&amp;VAX=COVID19)，死亡占总通报数量约2.31%）
-- 永久残疾：0例。（美国：3.2%）
-- 胎儿先天畸形：1例。
-- 致住院治疗或延长治疗时间（1505例）：占全部通报数量约14.73%。（美国：约10.2%）
-- 其他严重不良事件通报（2289例）：约22.4%。
-- 非严重不良事件通报（5317例）：约52%。（美国：43.12%）
+总编：Irene木木
+编辑：山本不惑
+校正/发稿：谐趣园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/COVID-19疫苗不良事件通報摘要報告110.10.14_110.10.20.jpg)
-#### 台湾所有年龄段数据分析
-
-1. 死因（931例）：心脏疾病320例，约34.4%（[美国19%是心脏疾病](https://gnews.org/zh-hant/1620607/)）。
-感染（147例，15.8%）、呼吸道/胸部及纵膈疾病（123例，13.2%）、神经系统疾病（72例，7.7%）、血管疾病（37例，4%）、自然死亡或多重器官衰竭（33例，3.5%）、肿瘤（26例，2.8%）、其他（64例，6.9%）、不明（109例，11.7%）
-2. 性别：约57%男性（535例）；43%女性（396例）
-3. 平均死亡年龄：72.7岁
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/6-22.jpg)
-
-
-接种至死亡日距，以2-7天内发生为大宗，共327例（约35.2%，931例中1案死亡日期不明，故以930案件分析）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/19最新情報-1.jpg)
-
-* * *
-
-资料来源｜[台湾卫生福利部食品药物管理署](https://www.fda.gov.tw/tc/includes/GetFile.ashx?id=f637707482972769407&amp;type=2&amp;cid=38820)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

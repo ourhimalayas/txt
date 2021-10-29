@@ -2,43 +2,32 @@
 ---
 
 
-## 农村社区能否在疫苗任务中幸存下来？
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1626702/)
+## 中共是世界宗教自由的最大威胁
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1626839/)
 
-作者: Drea Humphrey
-翻译: HimaBoy
+**撰稿：日本东京方舟农场 幽蘭自得**
 
+10月29日，美国前国务卿麦克·蓬佩奥（Mike Pompeo）在盖特上转发了一篇关于苹果公司在中共国被迫下架圣经软件的新闻，并在盖文强调：“中国共产党是世界上宗教自由的最大威胁。”
 
+这篇题为《苹果公司为安抚中共政权下架中共国圣经应用程序》的文章，系统地介绍了中共迫害宗教的情况，而苹果公司为迎合中共，以“遵守当地法律”法律为由，下架了在中共国下载量超过 100 万的 Olive Tree 的圣经软件和被数百万穆斯林使用的 Quran Majeed APP。
 
-尽管不列颠哥伦比亚省在感染新冠之前很久就经历了医护人员短缺，但该省数千名前线医护人员在 10 月 26 日从昨日的英雄变成了昨日的垃圾。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/id13314160-pompeo-2-600x400-1.jpg)图片来源：https://www.epochtimes.com/gb/21/10/18/n13313404.htm
 
-由 BC 省卫生官员邦妮·亨利博士签署的一项省卫生令禁止选择不注射第三阶段新冠疫苗的卫生保健专业人员在某些卫生保健环境中为患者及其社区提供服务。
+该新闻还指出，因为中共政权试图将独立的宗教团体强行转变为中国共产党的机制，2020 年 7 月至 2021 年 6 月期间在中共国发生了100多起基督教迫害事件，很多教堂被摧毁、拆除，千万教徒只能在未注册或所谓的“非法”地下教会敬拜。
 
-由于这些一线工作人员中的许多人比亨利博士拥有更多的新冠患者的实践经验，这就引出了一个问题：为什么即使在采取这些不道德强制性疫苗政策之后，仍有如此多的人需要被终止，或者从他们努力工作的职业生涯中无薪解雇？
+对此，蓬佩奥在盖文中表示，中国共产党是世界上宗教自由的最大威胁。美国公司应该捍卫美国的自由原则，而不是让它们服从于独裁政权的臆想。
 
-为了阐明这个问题，我去了不列颠哥伦比亚省的 100 英里之家。那里的医院为农村社区以及当地第一民族保护区的患者提供服务，并且位于内陆卫生区。由于这些“无疫苗，无薪”的规定，该地区正在失去更高比例的卫生保健工作者。
+*注：本文仅代表作者观点，与 Gnews无关*
 
-我与他们当地的三名一线卫生保健工作者（其中两名从事长期护理工作）进行了交谈，讨论了为什么新冠疫苗不是他们的选择，以及他们认为这些规定对他们的社区意味着什么。
+*参考链接：*
 
-來源: [https://www.rebelnews.com/will\_rural\_communities\_survive\_the\_vax\_mandates\_100\_mile\_house\_health\_care\_workers\_speak\_out](https://www.rebelnews.com/will_rural_communities_survive_the_vax_mandates_100_mile_house_health_care_workers_speak_out)
+[The Chinese Communist Party is the single greatest threat to religious freedom in the world. American companies should champion American principles of freedom, not subordinate them to the whims of dictatorial regimes.](https://www.gettr.com/post/pfgrindcd0)
 
-（文章仅代表作者个人观点）
+[【重播】蓬佩奥：中共是世界最大威胁](https://www.epochtimes.com/gb/21/10/18/n13313404.htm)
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+* * *
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+*编辑：文顺 校对：Ranting 发布：Ranting*
 
  
 
