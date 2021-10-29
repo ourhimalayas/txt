@@ -2,44 +2,30 @@
 ---
 
 
-## GlobalFoundries 于周四在纳斯达克敲响了开盘种
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1624282/)
+## 俄天然气公司称已大幅增产应对秋冬中欧需求
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1624310/)
 
-编译：西班牙喜悦农场–wenwu
+俄罗斯莫斯科喀秋莎农场 星河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-7-7.jpg)GlobalFoundries 于 2021 年 10 月 28 日在纳斯达克首次公开募股后敲响了开盘钟。 ROHINI SHAHRIAR/纳斯达克
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/G-6.jpg)themoscowtimes.com
+美东时间10月28日俄媒报道，在对燃气的强劲需求下，俄罗斯天然气工业股份公司（Gazprom）在2021年提高了天然气产量，与去年同期相比，在九个半月内增加了16.6%（567亿立方米）。Gazprom表示，“2021年增加的天然气产量可以覆盖全球天然气消费增长的大约三分之一。”
 
-东部时间上午 11:51，GlobalFoundries [GFS， -3.74%](https://www.marketwatch.com/investing/stock/GFS?mod=MW_story_quote) 股价下跌并触及盘中低点 44.50 美元，最后下跌约 3% 至 45.61 美元。周三晚些时候，这家总部位于纽约的马耳他（Malta）的公司将股票定价为[每股 47 美元](https://www.marketwatch.com/story/globalfoundries-prices-ipo-at-47-a-share-for-25-billion-valuation-11635382866?mod=home-page&amp;mod=article_inline)，是其[预测范围的上限](https://www.marketwatch.com/story/globalfoundries-sets-ipo-terms-and-could-be-valued-at-over-25-billion-2021-10-19?mod=article_inline&amp;mod=article_inline)。
+据初步估计，今年的燃气消费量将增加1500亿立方米，总消费量将达到4.2万亿立方米。Gazprom称，俄罗斯、中共国和欧洲国家的天然气需求增长最大，这些国家是其主要市场。
 
-GlobalFoundries 是一家第三方硅晶圆代工厂，在行业中被称为制造工厂或“晶圆厂”。
+Gazprom补充称，“尽管定价环境不断变化，受亚洲和欧洲的天然气价格上涨，以及经济去碳化新举措的影响，全球天然气消费量仍将大幅增加。”
 
-像 GlobalFoundries 这样的第三方晶圆厂是为大多数没有自己晶圆厂的芯片制造商，来生产硅晶圆——这些公司包括 Advanced Micro Devices Inc.  [AMD、 -1.15%](https://www.marketwatch.com/investing/stock/AMD?mod=MW_story_quote),  苹果公司  [AAPL, 2.32%](https://www.marketwatch.com/investing/stock/AAPL?mod=MW_story_quote)  和英伟达公司  [NVDA， 1.02%](https://www.marketwatch.com/investing/stock/NVDA?mod=MW_story_quote) 事实上， GlobalFoundries 是 AMD 的一个分拆公司，当时该公司想退出晶圆厂业务。
+Gazprom上周宣布，它将向俄罗斯的地下储存设施注入创纪录的726亿立方米的天然气。俄罗斯储气设施的日产量将达到8.479亿立方米这一“前所未有的水平”。
 
-GlobalFoundries 区别于其他第三方晶圆厂，如台积电 [TSM、 1.41%](https://www.marketwatch.com/investing/stock/TSM?mod=MW_story_quote) 和中国半导体制造国际公司  [688981， +0.22%](https://www.marketwatch.com/investing/stock/688981?countryCode=CN&amp;mod=MW_story_quote) 因为它不依赖台湾或中国，因为两者之间的敌对行动对美国的战略供应来说将是一个巨大的问题。
+今年秋天，在欧洲储气设施短缺的情况下，欧洲的天然气价格创下历史新高。美国和欧盟猜测，俄罗斯为促进相关国家和机构加快批准启动北溪-2号项目而可能影响了市场，该项目正在等待德国和欧洲监管机构的批准。莫斯科否认了这些指控。
 
-该公司首次公开亮相之际，全球正在努力解决全球芯片短缺的问题，晶圆厂有长期的客户积压（例如：台积电），但[就收益而言，](https://www.marketwatch.com/story/busy-ipo-market-this-week-may-make-2021-the-biggest-year-for-proceeds-and-break-previous-record-by-30-11631554372?mod=article_inline) IPO 是其[有史以来最大的市场之一](https://www.marketwatch.com/story/busy-ipo-market-this-week-may-make-2021-the-biggest-year-for-proceeds-and-break-previous-record-by-30-11631554372?mod=article_inline)。
+10月27日，普京总统指示俄罗斯天然气工业股份公司开始计划的工作，在该公司完成向俄罗斯储气设施的注气后，增加了欧洲储气设施中的储气量。普京表示，这将使其有可能“可靠、稳定和有节奏地”履行在秋冬季节向欧洲供应天然气的合同义务，并“创造一个有利的局面，更多地在整个欧洲能源市场上创造有利的局面”。
 
-**简评：**
+（文章仅代表作者个人观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-12-5.png)图片来源于火来2号战友的推文
+参考链接：
 
-一则相关[报道](https://www.reuters.com/article/globalfoundries-ipo/globalfoundries-shares-open-flat-on-nasdaq-debut-valuing-chipmaker-at-26-bln-idUSL4N2RO51K)。
-
-**周四，阿布扎比主权财富基金穆巴达拉投资公司(Abu Dhabi’s sovereign wealth fund Mubadala Investment Co)拥有的GlobalFoundries Inc的股票在纳斯达克平开，使这家芯片制造商（GFS）的市值达到约260亿美元。**
-
-**火来战友（[@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1/status/1453764205396434948?s=20)）在推特上也表示，郭文贵先生曾讲过，格芯上市那一天，注意看看照片上都有谁。最近知识点有点多，大家别落下功课啊。**
-
-（文章仅代表作者观点与GNEWS无关）
-
-**新闻来源：**[Market Watch] [GlobalFoundries stock slips in trading debut after company’s IPO priced at high end of range](https://www.marketwatch.com/story/globalfoundries-stock-slips-in-trading-debut-after-companys-ipo-priced-at-high-end-of-range-11635436717) | 作者：Wallace Witkowski｜发布时间：2021年10月28日
-
-* * *
-
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
-
-
+[https://www.rbc.ru/business/28/10/2021/617ac4119a79479680ff5927?from=from\_main\_1](https://www.rbc.ru/business/28/10/2021/617ac4119a79479680ff5927?from=from_main_1)
 
  
 

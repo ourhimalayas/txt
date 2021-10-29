@@ -2,26 +2,46 @@
 ---
 
 
-## 加密货币顺势而生，喜币为王汇通天下
-` 军迷wilson` [轉載自GNews](https://gnews.org/zh-hans/1624308/)
+## 加拿大要求紧急调查青少年疫苗猝死事件
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1624349/)
 
-#### 加拿大多伦多枫叶农场  军迷wilson
-![](https://assets.gnews.org/wp-content/uploads/2021/10/360DC6FE-9FF9-4763-9E14-855341151472.jpeg)来源：himalayaexchange
-郭文贵先生在最近的直播中强调，喜马拉雅货币体系是一个超越国家主权级别的金融货币体系，她肩负着打破各国政府和沼泽地垄断这个世界的货币发行权、生产力定价权和财富分配权的历史使命，这个权力最终应归属于人民。
+翻译：西班牙喜悦农场–wenwu
 
-郭先生说，人类的交易形式只有向数字化转型，才能适应、激发七十多亿人的巨大生产力和创造力，当前的加密货币和数字化金融就是顺应历史发展而生。新中国联邦的Himalaya货币体系到目前为止，还没有任何人设计出类似的交易结构，她是独一无二的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/CANADA-INV-1.jpg)图片来源：theexpose.uk
 
-除了中共等为数不多的极权主义者，几乎所有人都认为在数字信息时代，信用是让竞争者立于不败之地的第一要素。相较于以主权背书的纸币，信用是货币的生命之源，是货币的根本属性。
+2021 年 10 月 22 日，这位加拿大议员（MPP）致函安大略省临时警察署专员托马斯·卡里克（Thomas Carrique），要求立即调查年轻健康人的突然死亡事件。希利尔（Hillier）在一份[新闻稿中](https://www.randyhilliermpp.com/20211025_pr_oppinvestigationsuddendeaths)表示，他的调查请求是基于安大略省公共卫生数据显示，在年轻人口中，Covid-19 疫苗的潜在严重不良反应的发生率过高，特别是对心血管疾病表示特别关注。
 
-由于新中国联邦是全世界唯一以消灭邪恶中共为己任的正道主义实体，在全世界范围内树立了良好的声明，成了当今人类文明的新灯塔，因此喜马拉雅货币体系和G商业系列具备了最大化的信用特征。蜂涌而至的投资者订购的实际上是新中国联邦的信用红利和美好的未来。
+MPP Hillier 还表示，这种趋势正在全球公开数据中观察到，促使多个国家完全暂停使用某些疫苗产品，或限制其在年轻人和儿童中的使用。
 
-除了信用，评判一个货币价值的另一个标准是该货币的普遍接受性，就是使用的人是不是足够多。郭先生领导的新中国联邦，正在构建跨越国界的货币发行、金融服务、媒体集团、商业连锁等顶级生态系统，为喜币打下了“汇通天下”的坚实基础。
+例如，[瑞典最近无限期禁止](https://theexpose.uk/2021/10/26/sweden-halts-moderna-jab-indefinitely-after-vaccinated-patient-develops-crippling-heart-condition/)向 31 岁以下的任何人注射 Moderna mRNA 疫苗，以避免更多人患上残废的心脏疾病。在此之前，大多数北欧国家都暂停了 Modena 的中共疫苗，因为它导致了一系列的健康问题。
 
-参考来源：
+虽然英格兰和威尔士国家统计局提供的最新数据显示，自首次接受辉瑞公司 mRNA Covid-19 疫苗以来，[男性儿童的死亡率](https://theexpose.uk/2021/10/27/deaths-among-male-children-increased-by-89-percent-since-given-covid-19-vaccine/)比五年平均值[增加了 82%](https://theexpose.uk/2021/10/27/deaths-among-male-children-increased-by-89-percent-since-given-covid-19-vaccine/)（如下图）。
 
-[泰山2021/10/27盖特](https://gettr.com/post/pfb267c318)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-278-1.png)
 
-（文章仅代表作者观点，与GNEWS无关）
+加拿大议员兰迪·希利尔 (Randy Hillier) 表示，作为一名民选官员，他有义务质疑公共政策，尤其是当有证据表明公共政策可能对公众产生不利影响时。
+
+他告诉安大略省警察局局长，越来越多的年轻人和健康人突然死亡令人担忧，他们应该向正在寻求答案的死者家属提供完整的真相。
+
+致安大略省警察局专员的完整信函全文如下（中英翻译共4张图）：
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-281-1.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-8-7.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_8049.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_3588.jpeg)
+
+（文章仅代表作者观点与GNEWS无关）
+
+**新闻来源：**[theexpose.uk] [Canadian Politician demands urgent investigation into rise of sudden deaths among Teens following Covid-19 Vaccination](https://theexpose.uk/2021/10/27/politician-demands-investigation-sudden-deaths-teens-after-covid-vaccination/) | 发布时间：2021年10月27日
+
+* * *
+
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
 
  
 
