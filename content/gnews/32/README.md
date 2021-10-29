@@ -2,25 +2,25 @@
 ---
 
 
-## 中共国 “花圈”、“脑梗”等词搜索量激增
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1626368/)
+## 中共为阿富汗再洗地，妄图停止国际社会的对阿制裁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1626378/)
 
-作者：香草山 – Noemi
+作者：美东香草山教育部 -正义的小新
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月28日，据盖特相关报道显示，自9月底以来，经中共国内微信指数统计，“花圈”、“脑梗”等关键词的查询量爆增。其中，“花圈”的单日查询峰值已经超过每天一千两百万人次，而“脑梗”的单日查询峰值更是每天超过了三千五百万人次。
+中共外交部长王毅于10月27日参与了伊朗举行的第二次阿富汗邻国外长会议。会议上，王毅大肆为阿富汗塔利班政权洗地，并喊话世界银行和国际货币基金组织，试图让西方国家停止对阿富汗的经济制裁，甚至妄图向国际社会寻求对塔利班政府的财政支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-14.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide8-11.jpeg)
 
-另外，在中共国微博平台上查询显示，自10月份以来，“花圈”一词的单日搜索量同样高居不下，并在最近一周内达到搜索峰值。
+就在两天前，王毅与阿富汗塔利班副总理巴拉达尔在卡塔尔进行会面。据消息称，此举或是为了完成中共在当地的军事力量部署，进而与中东勾兑，从而达到制衡美国的目的。
 
-此前，文贵先生在大直播中反复向世界预警即将到来的疫苗灾难。至于中共，其强制推行新冠疫苗的政策，终会导致大量的国内普通接种民众患上“心梗”、“脑梗”等致命病症，致使无辜的同胞大量伤亡，从而实现其有计划的种族灭绝。
+郭文贵先生曾提及，阿富汗位于中亚和南亚的最佳战略要地，其与新疆接壤的大风口，是运输美军装备的必经之路。因此，中共希望通过控制塔利班，可以进一步控制整个阿富汗。而与塔利班的全面合作，则是中共统治全球计划的一部分。
 
-参考链接：[https://gettr.com/post/pfdlvg1b1a](https://gettr.com/post/pfdlvg1b1a)
+参考链接：[https://montrealtimes.news/阿富汗：中国呼吁世银和fmi融资相助-停止经济制裁/](https://montrealtimes.news/阿富汗：中国呼吁世银和fmi融资相助-停止经济制裁/)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-总编：瑞卡
-编辑：珈沅
+总编：Irene木木
+编辑：Irene木木
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
