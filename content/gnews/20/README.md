@@ -2,34 +2,36 @@
 ---
 
 
-## 针下亡魂｜美国 39 岁女医护接种疫苗4日后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1625214/)
+## 国际要闻汇编10月29日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1625223/)
 
-**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 29/10/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+素材：东京樱花团｜GNEWS组
+![](https://lh3.googleusercontent.com/UrMYMisYLMeg8rV5ozw-NDqEDOeyE5mXs_VbqEFj2q_fLix_ACB_PdUdtcvgZkM3havVb-OJRRBEZcdC6dI84nELkiTImrRQRhszVUM4drQBqHLYxRyCNU0OqAFFDHPghiE88KLk)[图片来源](https://www.voachinese.com/a/biden-heading-to-g20-20211028/6289733.html)
+1、[拜登启程出席20国集团峰会和全球气候变化峰会](https://www.voachinese.com/a/biden-heading-to-g20-20211028/6289733.html)
 
-【美国】犹他州一名 39 岁的整形外科手术的技员 Kassidi Kurill 在接种完第二剂莫德纳 COVID-19 疫苗的第四日死亡。Kassidi 是一位单亲妈妈，有一个 9 岁的女儿，她和女儿一直同父母居住在一起，一家人感情相当紧密。
+美国总统拜登周四（28日）开始旋风式美国外交，出席20国集团峰会和全球气候变化高峰会议。拜登首先前往罗马参加130日和31日举行的20国集团（G-20）高峰会议，与世界最富裕国家的领导人讨论新冠疫情、气候变化和全球经济议题。他然后将前往苏格兰的格拉斯哥，参加11月1日在那里举行为期两天的联合国气候变化会议。在此之前，拜登将会晤天主教廷的教宗方济各。中共主席习近平和俄罗斯总统普京都不会现身这两个高峰会议。
 
-据 Kassidi 的父亲 Alfred Hawley 回忆指，女儿作为医务人员，认为理应根据当地规定接受疫苗，并安慰父母无须担忧，可惜，在 2 月 1 日接种完第二针之后的当日晚上，她就感觉到严重不适，以至于接下来的两日都只能卧床休息，直至第三日早上，Kassidi 等父母醒来后，说“我的心跳很快，我想我得去看急诊。”
+2、[新冠溯源关键方 生态健康联盟称在中国的研究“符合NIH拨款要求”](https://www.voachinese.com/a/nih-ecohealth-at-odds-over-the-reporting-and-handling-of-risky-coronaviru-s-/6289921.html)
 
-Alfred 立即送女儿去看急诊，到达医院时，Kassidi 严重呕吐，Alfred 告诉医生，女儿刚接种完第二剂疫苗，医生验血检查后，告诉他，他的女儿病的很重，肝功能衰竭，肝移植是唯一的生存机会。
+《华尔街日报》周四（28日）报道，与中国武汉病毒所进行合作的生态健康联盟最近在给美国国家卫生院的信中表示，其在中国的研究“符合所有要求”。报道指出，接受美国国家卫生院（NIH）资金，总部在纽约的生态健康联盟（EcoHealth Alliance）与国家卫生院针对在中国进行的冠状病毒研究的报告和处理上产生分歧等。国家卫生院指与中国武汉病毒研究所合作的生态健康联盟，未及时报告2018年进行的实验结果，也没有满足另一项340万美元赠款的要求。那项拨款被用于对中国蝙蝠传播的冠状病毒对人类风险的研究。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/757d089a-653e-40fe-b184-0586f0335987-heidiphoto9.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/173ab7c4-ed1a-4aee-b2ed-976677e57ec9-heidiphoto7.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/51d57a92-e1d7-4c86-895c-f90ee85f2466-heidiphoto5.jpeg)
+3、[严阻华为中兴 国会两院通过《安全设备法》](https://www.voachinese.com/a/senate-passed-secure-equipment-act-20211028/6290409.html)
 
+美国国会参议院周四(28日)无异议通过了《2021年安全设备法》(Secure Equipment Act of 2021 )，这项得到两院两党议员支持的法案指示美国联邦通讯委员会(FCC)不得再对已被列入威胁国家安全黑名单的公司进行审议或颁发新的设备执照。法案的制定者指出，这是为了堵住漏洞，不让任何华为和中兴等中国政府支持的公司设备进入美国电信网络。众议院已在本月早些时候通过了法案的相同版本，这部法案接下来将交给拜登总统签署成法。
 
-Alfred 的太太赶到医院，向医生表示，他们夫妻愿意捐肝救女儿，令人痛心的是，当女儿的肝脏、肾脏和心脏都停止工作时，夫妻两人都没有机会救女儿，坐头班飞机赶往医院的亲姐姐甚至不被允许见妹妹最后一面 ， Kassidi 在到达医院后的30小时内死亡。
+4、[两党参议员推出国防授权法修正案 要求外交抵制北京冬奥会](https://www.voachinese.com/a/us-senators-propose-adding-boycott-of-china-winter-olympics-to-defense-bill-20211028/6289881.html)
 
-Kassidi 的家人要求尸检，已确定是否是疫苗造成死亡，因为，Kassidi 非常健康，没有病史。犹他州首席法医埃里克·克里斯滕森 (Erik Christensen) 博士透露指，几乎不可能证明是疫苗导致死亡。“疫苗引起的死亡吗？我认为这在尸检中很难证明，除非接种疫苗后立即死亡。”这意味着，Kassidi 的家人可能永远无法确定是什么夺走了他们挚爱之人的生命。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/疫苗_0.jpg)
-来源｜[个案052](https://nypost.com/2021/03/11/utah-mom-kassidi-kurill-dies-days-after-second-dose-of-covid-19-vaccine/)
+美国两党的参议员周四(28日)对一部年度国防政策法案提出一项修正案，将出于践踏人权原因而对中国主办的冬季奥运会实行外交抵制。这项由共和党参议员米特·罗姆尼(Mitt Romney)领衔推出的修正案与参议院今年6月通过的与中国抗衡的一揽子法案《美国创新与竞争法》中所包含的文字类似，将禁止国务卿将联邦资金用于为美国政府雇员参加北京冬奥会提供“支持或便利”。罗姆尼等参议员提出的修正案将把这项外交抵制条款加入《2022年国防授权法》。修正案呼吁“结束中国共产党持续的践踏人权行为，包括对维吾尔人的种族灭绝”。
 
-* * *
+5、[研究证实 中国入世给美国产业和工人带来持久性伤害](https://www.voachinese.com/a/china-wto-membership-cause-lasting-hardship-20211028/6290421.html)
 
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//｜//[澳洲 56 岁电台主持人接种疫苗两个月后死亡](https://gnews.org/zh-hans/1622426/)//
+美国国家经济研究局(National Bureau of Economic Research)日前发表了一篇题为《论中国冲击持久性》(On The Persistence of The China Shock)的工作论文。三名作者研究“中国冲击”(China Shock)，也就是中国制造业的快速增长是如何对美国部分地区的就业和产业造成严重冲击的。研究称， 中国加入世界贸易组织(WTO)给美国部分地区和某些产业的工人带来持久性损害，例如工作岗位和收入的净流失，而这些伤害在中国入世20年后仍未恢复。
 
+（本文只代表个人观点，与Gnews网站无关）
+
+*编辑：东京樱花团 / 文小白*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

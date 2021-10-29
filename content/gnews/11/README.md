@@ -2,45 +2,26 @@
 ---
 
 
-## 严格遵守公共卫生措施，悉尼健身房仍是新冠感染中心
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1625427/)
+## 世卫组织打着防控病毒的大旗不遗余力地推广疫苗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1625443/)
 
-#### 翻译/评论：月映万川
+#### 撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-88.png)（图片源自本文链接）
+日本电视新闻10月29日报道：世界卫生组织（WHO）宣布，最近一周内，全球中共病毒的新增病例和死亡人数在两个月内首次出现上升。世卫组织总干事谭德塞说：这表明，中共病毒大流行远未结束。
 
-#### 编辑：文泓
+谭德塞28日宣布，全球一周内的中共病毒新感染者和死亡人数在两个月内首次上升，主要是由于英国和其它欧洲国家的感染人数增加所致。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-25.jpg)
+世卫组织还透露，目前有62个国家每天额外提供100万剂疫苗，而低收入国家每天获得的疫苗数量只有这一数字的三分之一。世卫组织正在敦促所有国家不要进行额外的疫苗接种，以保证在今年年底前使所有的国家都能实现至少有40%的人口接种疫苗。
 
-**`图片来源：`The Sydney Morning Herald**
-10月28日，悉尼一家健身房的拥有者对媒体说，当听说他的健身房已经成为令人担忧的新冠病毒感染中心时，他感到很沮丧。
+世卫组织，看似注重中共病毒大流行，实则推广疫苗。让所有的国家都有更多的民众接种疫苗，才是其真正目的！
 
-健身房的老板比利先生表示，这太让人震惊了，健身房完全按照新南威士州卫生部的防疫细则来执行的，而且根据规定，来健身房的人都是完全接种者。但是，这些措施似乎并没有减少传播的机率。
+信息来源：[世界のコロナ感染者数と死者数２か月ぶり増](https://news.yahoo.co.jp/articles/338e51c23273b636a66a8ca9bb9c7613a4f82a0c)
 
-周三，州卫生部已经确认15人在使用过该健身房后出现了新冠阳性反应。
+(文章仅代表作者本人观点，与GNEWS无关)
 
-任何人在10月18-23日期间，以及25号使用过该健身房，必须要马上核酸测试，并自我隔离到直到阴性结果为止。这其中包括2剂疫苗接种者。
-
-当然，有关15位感染新冠者是否是完全疫苗接种者，卫生部门和媒体并没有谈及。
-
-**新闻评论：**
-
-目前新南威尔士州是完全疫苗接种最高的州之一，悉尼也是最早开始疫苗经济尝试的地区。民众在政府和媒体持续不断地宣传洗脑后，盲目的认为疫苗是克制新冠病毒的核心，高疫苗率等于低感染率。
-
-而悉尼健身房成为新冠病毒传播中心就是对这一理论很好的打脸，也是为即将到来的新州和维州大解封敲响了警钟。如果澳洲政客的无耻加上迷信疫苗的民众再不醒悟，相信不久的将来，病毒感染率还会重新回到高位，并且更多的死亡也会到来。
-
-（文中仅代表作者个人观点，与Gnews平台无关）
-
-新闻链接：[City Gym owner in Sydney speaks of ‘huge shock’ after 15 people catch COVID-19 | Sunrise (7news.com.au)](https://7news.com.au/sunrise/on-the-show/city-gym-owner-speaks-of-huge-shock-after-15-people-catch-covid-19--c-4352734)
-
-发布：文泓
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
