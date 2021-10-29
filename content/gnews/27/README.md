@@ -2,47 +2,47 @@
 ---
 
 
-## 医生亲自验证伊维菌素可以治疗新冠病毒
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1625791/)
+## 格芯上市，敲钟的都有谁？
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1625872/)
 
-**简评：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/dfd8d4ac-92a9-4d61-a179-2d9a4f0303c5.jpg)图片来源：GNEWS（秘翻组）
+整理：BENJ1、翼族
+编辑：翼族
 
-Simon医生和Jeff Halcomb分别感染了新冠病毒。他们没有去医院，开始自行服用伊维菌素和其他有效的补充剂，两三天的时间就恢复了健康。医疗自由很重要，医疗政治化会断送可能康复的机会。
+全球第四大晶片工厂格芯（GlobalFoundries，格罗方德）周三（27日）在美国NASDAQ首次公开发行股票，开盘价格为每股47美金。格芯是全球最先进的半导体制造技术平台，生产包括28纳米、20纳米、14纳米，以及7纳米的芯片。
 
-GTV视频链接：[Dr. Simone Gold: 服用伊维菌素后，我的身体就复苏, 三天之内，我恢复正常](https://gtv.org/video/id=6178019b247c5a3f90902b22)
+格芯目前为阿布扎比主权财富基金穆巴达拉投资公司（Mubadala Investment Co）所有。穆巴达拉投资公司是世界屈指可数的主权基金之一，运用资产超过2500亿美元。该公司面向全球50多个国家投资，同时因其是软银集团“愿景基金”的主要投资者而闻名于世。
+
+穆巴达拉一直主要面向北美和非洲投资，曾在中共国投资滴滴出行、利用人工智能（AI）图像识别技术见长的商汤科技，以及运营“瓜子二手车”的车好多集团等企业。
+
+此次格芯上市，前来纳斯达克敲钟的就有穆巴达拉投资公司的首席执行官卡尔杜恩•阿尔•穆巴拉克（Khaldoon Al Mubarak）。阿尔.穆巴拉克生于1979年，曾在纽约大学学习，擅长管理，精明能干的他深受纳哈扬家族的信任。纳哈扬家族是阿联酋最大酋长国阿布扎比的世袭统治者。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/skysports-khaldoon-al-mubarak_5403393.jpg)图片来源：Sky Sport
 
 
+第二位重要人士则是艾哈迈德·叶海亚·艾德里西（Ahmed Yahia Al Idrissi），穆巴达拉投资公司直接投资部门的首席执行官，负责监督能源、化工、技术、生命科学、消费者、工业和金融服务组合。
 
-**视频字幕：**
+在加入穆巴达拉之前，艾哈迈德是麦肯锡公司的合伙人，在那里他共同领导了主要投资者业务，也是阿布扎比业务的管理合伙人。他以前是宝洁公司的营销经理，在那里他领导了几个旗舰品牌。艾哈迈德拥有巴黎中央理工学院工业工程理学学士学位；麻省理工学院机械工程理学硕士。
 
-**Simon医生：**有一天，我觉得有点不对劲，我发现我无法品尝那杯咖啡。这咖啡怎么回事？ 是不是咖啡壶需要洗了？
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/ahmed.jpg)图片来源：格芯官网
 
-然后突然间意识到，哦～我想我感染了新冠病毒。
 
-我知道伊维菌素，所以我开始服用伊维菌素和我所听说过的有效补充剂。我开始服用了。你知道，我确实相信这可以帮助我康复。
+第三位则是格芯现任CEO汤姆·考尔菲尔德（Tom Caulfield），自2018年3月起一直担任CEO职位。在此之前，考尔菲尔德在IBM工作了17年，担任过各种高级领导职务，最终担任IBM微电子部门300毫米半导体业务副总裁。随后他加入Soraa公司担任总裁兼首席运营官，Soraa是全球领先的固态照明技术开发商。
 
-我能感觉到几天后我就变好了。大概两天的时间，我知道我已经在好转。所以这对我来说是做对了。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/tom-board-new.jpg)图片来源：格芯官网
 
-**Jeff Halcomb：**我开始感觉很不舒服，失去力量。那周我排了满满的工作，我说，亲爱的我觉得不对劲。
 
-在我服用伊维菌素之前，我高烧。我失去了味觉，我感觉全身无力。在我开始服用伊维菌素后，我的身体就复活了。
+考尔菲尔德于2014年5月加入格芯公司，负责Fab 8半导体制造生产的运营、扩张和提升。
 
-三天之內我恢复正常，准备去上班。
+10月7日，郭文贵先生在GTV直播中透露，格芯的7nm芯片和后续与IBM合作的生物芯片，将是支撑未来包括GTV、GETTR、GNEWS和Himalaya Reserve等在内的G系列，以及与星链（StarLink）融合发展的技术法宝。而格芯从成都撤离的背后，也是爆料革命在发力。一切都已经开始……
 
-**Dr. Simon：**医疗自由对我来说胜过一切。沒有它，我无法为自己做出任何选择。
+*发布：翼族*
 
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*字幕：Vekap|翻译：TCC|PR:Boxinglady|简评/文字整理/编辑：胖丁| Page：小六月*
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
-
-[![](https://spark.adobe.com/page/PqhvRbO83gwBi/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/PqhvRbO83gwBi/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

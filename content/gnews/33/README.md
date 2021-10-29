@@ -2,38 +2,138 @@
 ---
 
 
-## 墙内要闻汇编 10月29日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1625707/)
+## 习在20大前最危险，最后一定会被干掉
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1625826/)
 
-素材：东京樱花团｜GNEWS组
-![](https://lh5.googleusercontent.com/roaOkE-FA4GBRteKckyNjF41H6FV3CRYDnTk07_fnsjpJTiUNt7yaDTBbwNYpBVvY1XuqZTaWeuRhtMOqxLI_dbs0G2hD50X5s5wSLePw19MQayVcL3hqB4HpLkzLrsnIOozo2jc)图片来源
-1、[**开往北京高铁中途被叫停 全员强制隔离**](https://www.aboluowang.com/2021/1029/1665560.html)
+**郭文贵：
+Miles Guo：**
 
-10月28日下午开往北京的两列高铁，发现乘务员是中共病毒确诊病例的密切接触者，突然中断行车，全车人员随即被强制隔离。据中共济南市卫健委官网发布的消息，28日下午15时20分，在接到济南市铁路部门的报告，得知列车上有一名乘务人员被判定为中共肺炎确诊病例的密切接触者后，G14次列车立即停靠在济南西站，并按照北京铁路局的要求暂时不开车门，将全车人员管控起来。通报称，目前，该车次的所有密接人员（1人）及次密接人员（211人）共计212人，已全部被转运至集中隔离点，进行集中隔离医学观察。
+习这个人他没敢干，习要敢干，他越敢干，他越安全
+Xi did not dare to do, Xi if you dare to arrest, the more Xi dare to arrest, the safer he will be
 
-2、[**郑州再现异常现象 数千乌鸦头顶盘旋怪叫 令人恐惧**](https://www.aboluowang.com/2021/1029/1665661.html)
+说实在话，咱先抛开政治来说
+To be honest, let’s put politics aside for a moment
 
-10月23日，河南郑州再现异常现象，成千上万只乌鸦在空中盘旋，发出“哇哇”的叫声，十分瘆人。今年1月8日，郑州金水路上的河南省工会大厦上空出现过许多大嘴乌鸦。7月20日，河南省郑州等地发生特大洪灾，死亡人数成谜。2008年10月30日，有市民发现大量乌鸦造访郑州，引发市民的恐慌，担心会给自己带来不幸。2010年12月，约有3000只乌鸦出现在郑州市区。
+什么王岐山、孟建柱，你像斯大林那套，老子都给你抓了
+Wang Qishan, Meng Jianzhu, Xi could learn Stalin’s way, arrest everyone against him
 
-3、[**大陆东北取暖费大涨 “有钱也买不着煤”**](https://www.aboluowang.com/2021/1029/1665662.html)
+我一个小时都给你抓了，抓完就给你活埋了
+Arrest all the people in an hour to, and buried people alive
 
-大陆北方天气降温，多个市县已开始供热，但是小区取暖费涨幅近翻倍。居民表示，政府默许涨价。有小区物业称，居民若没缴纳20%基础供暖费，家里就被会停水。煤炭紧缺成为时下供暖季主要难题。据据央视财经报导，吉林省松原市供热公司总经理郑帆称，现在煤炭的货源非常困难。“往年这时候都煤堆封垛了，都已经储满了。现在是有内蒙古的、有黑龙江的，见煤就得‘抢’，有钱也买不着煤。都派人出去在矿上蹲著，派人看着运煤。”郑帆称，煤价现在按市场价格应该比去年翻倍。该公司耗煤80万吨，按今年的煤价就接近9亿元，但是收暖气费就收5亿元，买煤上就亏4亿元。
+去枪毙都不枪毙你
+No waste bullets
 
-4、[**中共拟收紧网络管控 被禁帐号不能跨平台重新注册**](https://www.aboluowang.com/2021/1029/1665659.html)
+你看看这个安不安全，习会更安全
+See if this is safer for him? Xi will be safer
 
-中国国家互联网信息办公室周二发布了一份名为《互联网用户账号名称信息管理规定》的征求意见稿，要求网络用户在注册账号时，应提供真实身份信息。此外，文件还要求各网站禁止被“依法依约”关闭的帐号用相同或相似的帐号重新注册，并采取“必要措施”防止这些账号跨平台重新注册。有舆论认为，中国的维权人士和异见人士的帐号时常被社媒平台封杀，他们有时会在原有账号上添加数字或字母重新注册，或是到其他社媒平台上进行注册。如果上述规定通过，他们恐将更难通过网络发声。
+你现在还给习啊、孟啊，什么孙立军、王立科这些小烂仔给他机会折腾你十年
+Xi Jinping gave Meng Jianzhu, Sun Lijun, Wang Li-ke these little bastards the opportunity to toss himself for ten years
 
-5、[**山东一直升机坠落湖南致3死 现场多次爆炸**](https://www.aboluowang.com/2021/1029/1665642.html)
+你觉得习真的有智慧吗？他没智慧
+Do you think Xi really has wisdom? He has no wisdom
 
-10月29日，湖南郴州苏仙区林邑公园一架直升机坠落。官方称是山东通航直升机在飞行时发生意外，3名机组人员均遇难。林邑公园南侧一户商家说，早上8点多她听到直升机螺旋桨转动的声音，但比一般的直升机的声音要大一些，出门查看才发现林邑公园北面山坡冒出浓烟，当时能见度低，空中灰濛濛的。
+中国就要出俩人，要不就别出
+China needs to come out two people, or don’t
 
-6、[**赵本山子弟相继出事 于月仙遇难调查出炉**](https://www.aboluowang.com/2021/1029/1665649.html)
+中国要么就出个斯大林，是吧？
+China will either have a Stalin, right?
 
-中国知名演员于月仙车祸遇难的调查结果近日出炉。于月仙是赵本山执导的系列电视剧《乡村爱情》主演。十几年来，赵本山的拍档、徒弟、演员一个接一个地出事、死亡。赵本山还有六个徒弟都是在青壮年时死亡，最大的55岁，最小的只有26岁。大纪元专栏作家袁斌表示，之前曾看到不少名人为中共站台而遭遇厄运的报导。中共建党一百年来，给中国人带来了沉重的灾难。“于月仙的车祸遭遇是不幸的，也是值得深思的。”
+要么就出个华盛顿
+Or a Washington
 
-*编辑：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+其他人都不需要
+Nobody else is needed
+
+或者说台湾的蒋经国
+Or Chiang Ching-kuo from Taiwan
+
+那要其他人干啥？
+Do we need anyone else?
+
+蒋经国能给民主自由法治
+Chiang Ching-kuo can give democracy, freedom and rule of law
+
+要么就出个斯大林，让党内这帮王八蛋全杀光他
+Or we can have a Stalin and let him kill all the bastards in the party
+
+等待着，最后一次解放的开始
+Waiting for the final moment to liberate China
+
+你接不接受都这样
+Take it or not, it will end like this
+
+你觉得习是斯大林吗？
+Do you think Xi is Stalin?
+
+你觉得习是蒋经国吗？
+Do you think Xi is Chiang Ching-kuo?
+
+他都不是，是最后他会被灭掉
+Neither. He will be destroyed in the end
+
+一会儿装斯大林，一会儿装蒋经国
+He pretended to be Stalin one moment and Chiang Ching-kuo the next
+
+最后被灭掉，一定会被灭掉
+In the end, he will be destroyed
+
+我现在，我说到这的时候，六中全会开完，
+I am now saying that by the time the Sixth Plenary Session is over,
+
+到20大期间习是真正最危险的时候
+Xi will be the most dangerous time before the 20th National Congress of CCP
+
+我就说过这个墙角效应
+I told you about this corner effect
+
+当大家发现确定，我们这房间里的人都会被你干掉的时候
+When people find out they’re all going to be killed in this room
+
+就是狗、羊、猪都会奋起咬你几口
+Even if the one being killed is a dog, sheep or pig, it will rise up and bite you
+
+直接冲向那个墙，（因为）我没法活了嘛
+Go straight to that wall, because they can’t live
+
+江浙人多聪明啊，上海人多聪明啊
+Jiangsu and Zhejiang people are so smart ah, Shanghai people are so smart
+
+现在最后觉得习还得改过来，习也传递了各种好的信息
+Now they think Xi finally had to change over, while Xi also delivered all kinds of good messages
+
+在习身边有各种卧底，随时干掉习
+The Shanghainese have all kinds of undercover agents around Xi who can take him out at any time
+
+当这种幻想都没有的时候
+When they don’t have this delusion
+
+这就是当年吴国、楚国是吧？
+like State of Wu and State of Chu in the old day, right?
+
+老子给你干了，是吧？没办法了
+I’ll have to fight you to the death, right? There’s no way out
+
+陈胜吴广，上海也能出两个
+Chen Sheng, Wu Guang, Shanghai can also produce two people who unveiled the uprising
+
+* * *
+
+Date:10/26/2021
+原视频标题: 习在20大前最危险，最后一定会被干掉
+Xi is the most dangerous before the 20th Congress of the CCP, and will definitely be killed in the end
+原视频日期：2021/10/22
+原视频链接: [https://twitter.com/se1y7cblljselva/status/1452235250705129472?](https://twitter.com/se1y7cblljselva/status/1452235250705129472?)s=24任务编号：KC205（2660）
+视频时间段 : 0:00-2:01
+英听校：洛杉矶盘古农场 – Mike Li
+翻译：洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – Layka
+字幕+视频制作：洛杉矶盘古农场 – 小战蚁
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,39 +2,22 @@
 ---
 
 
-## 澳洲广播电台机构与脸书、谷歌谈判要为新闻内容付费
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1625695/)
+## 两辆列车中断，疫情再度蔓延
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1625824/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/32-5.jpg)[图片来源](https://sichuan.scol.com.cn/ggxw/202108/58249709.html)
+10月29日中国经济报报道，山东省济南市卫健委发布通报称，10月28日下午15:20，济南市接到铁路部门报告，G14次（上海至北京南）列车一名乘务人员被判定为新冠肺炎确诊病例的密切接触者。北京铁路局已要求该列车立即中断行程，停靠济南西站后，暂时不开车门，并对相关人员进行管控。目前，该车次所有密接人员（1人）及次密接人员（211人）共计212人已全部进行管控。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/google-facebook-new6-1920-800x450-1.jpg)
+10月28日下午，河北省沧州市接到铁路部门报告，G108次列车一名乘务人员被判定为外地新冠肺炎确诊病例的密切接触者。北京铁路局要求该列车立即中断行程，停靠沧州西站后，对相关人员进行管控。G108次列车由嘉兴南站开往北京南站，沿途停靠上海虹桥、南京南、沧州西等站。该车次所有密接人员（1人）及次密接人员（133人）共计134人已经全部进行管控。
 
+从新闻中可以看出，两辆列车均是因乘务人员为密接者，列车员接触全车乘客，怎么判定是在哪里遇上的谁？他们又是在哪里被密接？这些都是未知，等待着下一个区域防控隔离，中共新闻和病毒一样总是扑朔迷离。
 
+消息来源：[两趟进京列车中断行程！多人集中隔离](https://ml.mbd.baidu.com/r/vvAjYMTl8Q?f=cp&amp;rs=3890706542&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=eabf48d29be96824)
 
-图片来源：searchengineland.com
-
-
-#### 编译：小红帽
-
-澳大利亚的竞争监管机构周五允许一家代表261家广播电台的机构与脸书（Facebook）和谷歌（Google）谈判协议内容，作为该国迫使科技巨头为新闻内容付费新法律的一部分。
-
-澳大利亚商业广播电台（CRA）现在有10年的时间为其成员与技术巨头谈判，但《九娱乐》（Nine Entertainment）除外。澳大利亚竞争和消费者委员会（ACCC）表示，《九娱乐》已经获完成了交易。
-
-自3月以来，脸书和字母控股（Alphabet）旗下的谷歌公司被要求与澳大利亚媒体就其网站带来流量和广告的内容进行谈判。如果他们不这样做，政府可能会接管谈判。
-
-然而，这并不是一帆风顺，一些出版商被排除在外。在9月，脸书表示会停止许可证交易的谈判。
-
-8月，澳大利亚竞争和消费者委员会允许另一个行业机构，澳大利亚国家新闻社代表其81家新闻出版商与这两家公司进行谈判。
-
-**参考新闻：**[Australian Regulator Allows Radio Station Body to Negotiate Content Deal With Facebook, Google | Technology News (ndtv.com)](https://gadgets.ndtv.com/internet/news/facebook-google-australia-regulator-cra-radio-station-negotiate-content-deal-2592124)
-
-***发布：小红帽*****更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

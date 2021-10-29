@@ -2,31 +2,26 @@
 ---
 
 
-## CDC主任：加强针可能改变“完全接种”的定义
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1625960/)
+## 美国顶级新闻机构接受来自中共国的宣传广告
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1626136/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-美国CDC主任Rochelle Walensky周五表示，“完全接种”的定义可能会发生变化。她说，“这取决于加强针的推进情况。请继续申请注射加强针。我们将保持关注。”
+#### 翻译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/6-23.jpg)图片来源：网络截图
+零对冲网10月28日报道，根据华盛顿自由灯塔综述，那些主流媒体如华尔街日报，有线新闻，路透社和政客新闻公司都在根据中共国电信巨头的利益引导而发布新闻报道。
 
-这与她9月下旬 “联邦卫生官员暂时不考虑更改‘完全接种’定义的表态，有了一个急转弯。据悉，这种变化可能源于以色列修改加强针作为疫苗护照的标准。
+一些国家最著名的新闻机构已经与中共国电信巨头华为共同合作，这是置美国国家安全于危险境地的做法，因为该电信巨头与中共政府有关。
 
-根据CDC官方数据显示，目前有1.9亿的美国人已完全接种，占总人口的66.3%，其中1250万已经接受了加强针。如果修改了定义，将导致部分此前符合“完全接种”的人失去资格。再加上只打了一针和坚决拒绝接种的人群，有可能意味着三分之二的美国人因为不符合资格而失去外出就餐、乘火车飞机、国际旅游的机会。
+自从七月份以来，路透社已发表了两篇有赞助费的文章来宣传华为在英国的投资，华尔街日报自去年以来已发表了14篇这类文章，有线新闻主持了由电信巨头资助的虚拟事件。这些文章透露了华为资助的内容，虽然该公司与中共国政府的关系可能对于读者来说并不是很明显。
 
-加强针会怎样加剧疫苗灾难，难以想象。对宗教、人权的侵蚀，与日俱进。爆料革命向世界揭露黑暗、传递真相，肩负着沉重的历史使命。
+华为与中共国政府的关系已经受到人们的诟病，华为创始人自己承认是中共党员，说公司与中共政府相连结，已使不同政见者们处于危险境地，并帮助独裁政府监视外国对手。川普政府把华为放入经济黑名单，拜登也维持这个政策，而华为化了几百万广告费，并游说政客以试图取消制裁并恢复原来的状态，据透露游说显示，该公司自8月以来已付给民主党说客托尼·波德斯塔50万美元来游说白宫。
 
-文字版原文：[CDC主任：加强针可能改变“完全接种”的定义](https://gnews.org/zh-hans/1620388/)
+华为资助了有线电视的“名牌实验室”节目，资助了布鲁金斯研究所研究员尼克·特纳·李的谈话节目，该节目认为与中共国脱钩将影响商品市场基本供应链，批评美国压制华为，不认为华为影响美国安全。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+华尔街日报自8月份以来受华为资助发表了14篇文章，为此，该报发言人拒绝对此发表评论，路透社和有线新闻对此也没有反应，华为对人们的质疑电邮也未发表评论。
+
+新闻来源： [Top US News Organizations Running China-Backed Puff Pieces](https://www.zerohedge.com/news/2021-10-27/top-us-news-organizations-running-china-backed-puff-pieces)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

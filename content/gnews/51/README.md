@@ -2,44 +2,27 @@
 ---
 
 
-## GlobalFoundries 于周四在纳斯达克敲响了开盘种
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1624282/)
+## 秘翻在线 :全球第三大芯片制造商格罗方德(GlobalFoundries)正式 IPO上市
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1624677/)
 
-编译：西班牙喜悦农场–wenwu
+撰稿：William
+校对：牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/圖片1.jpg-1.png)
+图片来源：marketwatch
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-7-7.jpg)GlobalFoundries 于 2021 年 10 月 28 日在纳斯达克首次公开募股后敲响了开盘钟。 ROHINI SHAHRIAR/纳斯达克
+根据彭博新闻社(Bloomberg News)的报导,郭文贵先生家族基金支持的全球第三大半导体制造商格罗方德(GlobalFoundries)(中文:格芯)与穆巴达拉(Mubadala )首次公开募股中筹集了近 26 亿美元。根据证实彭博新闻早前报导的声明，该公司和穆巴达拉周三以每股 47 美元的价格交易了 5500 万股股票，售价为 42 至 47 美元。
 
-东部时间上午 11:51，GlobalFoundries [GFS， -3.74%](https://www.marketwatch.com/investing/stock/GFS?mod=MW_story_quote) 股价下跌并触及盘中低点 44.50 美元，最后下跌约 3% 至 45.61 美元。周三晚些时候，这家总部位于纽约的马耳他（Malta）的公司将股票定价为[每股 47 美元](https://www.marketwatch.com/story/globalfoundries-prices-ipo-at-47-a-share-for-25-billion-valuation-11635382866?mod=home-page&amp;mod=article_inline)，是其[预测范围的上限](https://www.marketwatch.com/story/globalfoundries-sets-ipo-terms-and-could-be-valued-at-over-25-billion-2021-10-19?mod=article_inline&amp;mod=article_inline)。
+美国证券交易委员会提交的文件中列出的流通股指出，GlobalFoundries 的市值为每股 47 美元，市值超过 250 亿美元。根据彭博汇编的数据，此次上市是今年美国交易所的第三大上市，仅次于韩国电子商务公司 Coupang Inc. 的 45.5 亿美元 IPO 和中国网约车公司滴滴全球公司的 44.4 亿美元融资，不包括空白支票和类似公司。
 
-GlobalFoundries 是一家第三方硅晶圆代工厂，在行业中被称为制造工厂或“晶圆厂”。
+在中共病毒大流行期间，电子产品需求的激增和供应不足导致芯片工厂更有价值。由于对芯片半导体行业的兴趣创下历史新高，格罗方德正在吸引公开市场投资者。格罗方德之前放弃与台积电或三星的能力相匹配的尖端生产，反而专注不算先进的芯片市场领域，显示芯片对汽车制造商和其他行业越来越重要。
 
-像 GlobalFoundries 这样的第三方晶圆厂是为大多数没有自己晶圆厂的芯片制造商，来生产硅晶圆——这些公司包括 Advanced Micro Devices Inc.  [AMD、 -1.15%](https://www.marketwatch.com/investing/stock/AMD?mod=MW_story_quote),  苹果公司  [AAPL, 2.32%](https://www.marketwatch.com/investing/stock/AAPL?mod=MW_story_quote)  和英伟达公司  [NVDA， 1.02%](https://www.marketwatch.com/investing/stock/NVDA?mod=MW_story_quote) 事实上， GlobalFoundries 是 AMD 的一个分拆公司，当时该公司想退出晶圆厂业务。
+此次 IPO上市由摩根士丹利、美国银行、摩根大通、花旗集团和瑞士信贷集团牵头。该公司的股票于１０月２８日在纳斯达克开始交易，代码为 GFS。
 
-GlobalFoundries 区别于其他第三方晶圆厂，如台积电 [TSM、 1.41%](https://www.marketwatch.com/investing/stock/TSM?mod=MW_story_quote) 和中国半导体制造国际公司  [688981， +0.22%](https://www.marketwatch.com/investing/stock/688981?countryCode=CN&amp;mod=MW_story_quote) 因为它不依赖台湾或中国，因为两者之间的敌对行动对美国的战略供应来说将是一个巨大的问题。
+「相比吴征空手套白狼，欺骗川普总统及ＭＡＧＡ的ＳＰＡＣ，只有１１家基金（其中八家有中共背景）互相炒作，真正的西方投资家根本不屑一顾。格罗方德(GlobalFoundries)备受瞩目，预料甫上市就可涨50%，之后可涨到数十倍。这才是真正的赚钱!」郭文贵先生在盖特直播中指出。
 
-该公司首次公开亮相之际，全球正在努力解决全球芯片短缺的问题，晶圆厂有长期的客户积压（例如：台积电），但[就收益而言，](https://www.marketwatch.com/story/busy-ipo-market-this-week-may-make-2021-the-biggest-year-for-proceeds-and-break-previous-record-by-30-11631554372?mod=article_inline) IPO 是其[有史以来最大的市场之一](https://www.marketwatch.com/story/busy-ipo-market-this-week-may-make-2021-the-biggest-year-for-proceeds-and-break-previous-record-by-30-11631554372?mod=article_inline)。
+中共企图用虚、假、骗的手段欺瞒世人，最终会被”真相”所溃击!SPAC必然遭到美国司法的集体诉讼，而在美国上市的全球第三大半导体制造商格罗方德(GlobalFoundries)(中文:格芯)未来则在芯片需求孔急的市场佔有重要的地位。
 
-**简评：**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-12-5.png)图片来源于火来2号战友的推文
-
-一则相关[报道](https://www.reuters.com/article/globalfoundries-ipo/globalfoundries-shares-open-flat-on-nasdaq-debut-valuing-chipmaker-at-26-bln-idUSL4N2RO51K)。
-
-**周四，阿布扎比主权财富基金穆巴达拉投资公司(Abu Dhabi’s sovereign wealth fund Mubadala Investment Co)拥有的GlobalFoundries Inc的股票在纳斯达克平开，使这家芯片制造商（GFS）的市值达到约260亿美元。**
-
-**火来战友（[@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1/status/1453764205396434948?s=20)）在推特上也表示，郭文贵先生曾讲过，格芯上市那一天，注意看看照片上都有谁。最近知识点有点多，大家别落下功课啊。**
-
-（文章仅代表作者观点与GNEWS无关）
-
-**新闻来源：**[Market Watch] [GlobalFoundries stock slips in trading debut after company’s IPO priced at high end of range](https://www.marketwatch.com/story/globalfoundries-stock-slips-in-trading-debut-after-companys-ipo-priced-at-high-end-of-range-11635436717) | 作者：Wallace Witkowski｜发布时间：2021年10月28日
-
-* * *
-
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
-
-
+新闻来源：[GlobalFoundries, Mubadala Raise $2.6 Billion in U.S. IPO](http://GlobalFoundries,%20Mubadala%20Raise%20$2.6%20Billion%20in%20U.S.%20IPO)
 
  
 

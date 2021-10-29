@@ -2,35 +2,31 @@
 ---
 
 
-## 秘翻在线:&#8221;数字疫苗护照&#8221;的背后阴谋是要推动ID4D计划
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1625972/)
+## 佛罗里达州将就联邦的强制中共病毒疫苗规定起诉拜登政府
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1626139/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Image-2-2.jpg)
-图片:网路
+#### 翻译：Grace
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-62.jpg)图片来源：网络截图
+据多家媒体10月28日报道，佛罗里达州州长罗恩.德桑蒂斯(Ron DeSantis)周四宣布，美国佛罗里达州已经对拜登政府提起诉讼，质疑其强制要求联邦雇员和承包商的所有员工，接种中共病毒疫苗的联邦命令。
 
-**疫苗护照是”数字身份证”的前身**
+德桑蒂斯在电视新闻发布会上说: “佛罗里达州已经对拜登政府提起了另一项诉讼，挑战关于强制疫苗接种的联邦命令。”
 
-根据《零对冲》的报导，2014 年于印度实施的Aadhaar数据库中有超过 10 亿印度人，是有史以来最大的生物识别数字身分辨识系统。Aadhaar 的创造者南丹·尼勒卡尼 (Nandan Nilekani)与比尔·盖茨 (Bill Gates)正试图将Aadhaar 的生物识别数字 ID 程序引入全球。
+德桑蒂斯认为，拜登政府对联邦雇员和联邦承包商的强制疫苗规定是 “苛刻的”，这样的做事方式是不对。
 
-他们利用中共病毒爆发的机会，推动”疫苗护照”，加速建立全球数字身份的基础设施，并推动”发展数位身分辨识( ID4D，Identification for Development）”的计划，借以通过创建跨系统的链接，允许用户对自己的关键服务进行身份验证，以便接受社会转移支付、完成金融交易和跨越边界。
+德桑蒂斯发表声明说，佛罗里达州已经在坦帕市（Tampa）提起诉讼，正在寻求一个初步禁令，以阻止联邦规定在12月8日如期生效。
 
-正如军事监视公司和北约承包商Thales Digital Identity & Security 所说，疫苗护照是”数字身份证”的前身。生物识别 ID 公司和国土安全承包商 iProove 的首席执行官强调 ，推展”疫苗护照”就是要对人类实施数字身分辨识系统。
+德桑蒂斯还抨击了联邦职业安全与健康管理局（Occupational Safety and Health Administration）的一项待定规则，该规则将迫使拥有100名或以上雇员的公司，要求其为工人接种中共病毒疫苗或经常进行中共病毒测试。他说，拜登正在利用 “模糊的规则”，在未经国会批准的情况下强加疫苗政策。
 
-**盖茨及所有熟悉的科技商业巨头正在利用ID4D计划监控人类**
+德桑蒂斯说：“我们不认为拜登政府有权力这样做。” “根据联邦法律和宪法，[拜登的这一强制疫苗要求]超出了本届政府的权限。”
 
-2016 年，盖茨基金会为“发展数位身分辨识 (ID4D) 计划”项目筹措资金，合作夥伴包括盖茨基金会和奥米迪亚网路，澳大利亚及英国。迄今为止，世界银行已投资 12 亿美元 ，目标是创建“使用 21 世纪解决方案的身份识别系统”。
+在发布会上，州检察长阿什利.穆迪(Ashley Moody)补充说，强制疫苗接种不是联邦政府的职责，联邦政府“绝对没有权力，要求大多数美国人口接种疫苗，完全没有这样的权利”。穆迪还指出，强制疫苗接种的政策，是联邦政府对美国工人的个人自主权的完全和粗暴的超越。
 
-世界经济论坛明确表示，最终目标是扩大印度Aadhaar建立的模式，让世界上每个人都拥有一个唯一的数字 ID。世界经济论坛的合作夥伴包括生物识别 ID 公司埃森哲、亚马逊、巴克莱银行、德意志银行、汇丰银行、万事达卡、生物识别技术公司 Simprints 和信贷巨头 Visa。
+**新闻来源：**
 
-**只有真相能够打败邪恶的阴谋**
+1. [**Florida to sue Biden administration over federal COVID vaccine mandates: Governor Ron DeSantis**](https://www.newindianexpress.com/world/2021/oct/28/florida-to-sue-biden-administration-over-federal-covid-vaccine-mandates-governor-ron-desantis-2376979.html)
+2. **[Florida challenges Biden administration with lawsuit over COVID vaccine rules](https://www.theledger.com/story/news/local/2021/10/28/desantis-florida-sues-biden-administration-vaccine-rules/8580453002/)**
 
-包括你所用的信用卡公司万事达卡及Visa、银行、亚马逊等公司，都企图利用
-ID4D监控人类，邪恶变态到令人作恶 ! 他们扭曲变形的内心，隐藏的是何等丑陋诡谲的腐朽灵魂?
-
-只有披露真相，才能让这些邪恶的暗黑势力曝晒在阳光之下。只有光明，才能战胜黑暗。
-
-消息来源:[Public Health Or Private Wealth? How Digital Vaccine Passports Pave Way For Unprecedented Surveillance Capitalism](http://Public%20Health%20Or%20Private%20Wealth?%20How%20Digital%20Vaccine%20Passports%20Pave%20Way%20For%20Unprecedented%20Surveillance%20Capitalism)
 
  
 

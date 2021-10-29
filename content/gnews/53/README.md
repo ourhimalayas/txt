@@ -2,38 +2,35 @@
 ---
 
 
-## 共军首次进行码头毁伤实验 或为侵略台湾加紧准备
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1624260/)
+## 中共国的柴油荒将引发激烈通胀
+` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1624511/)
 
-作者：澳喜农场 – 在远方
+#### 加拿大多伦多枫叶农场 丁过
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1_15130223O_0.jpeg)来源：RFA
+据德国之声28日报道，在经历了缺电、煤荒之后，中共国的柴油价格一路攀升，而且同时出现了柴油供应短缺的现象，各地加油站纷纷限量加油。
 
+从9月初以来，中共国的柴油价格就从5500元/吨上涨至约8600元/吨，短时间内上涨了55%。
 
+国内多个省份的加油站在给卡车加油时，一辆车只给加100升～300升柴油，而卡车油箱容量通常是1000升。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-430.png)
+卡车司机叹息：加这点油还不够跑一趟短途，大部分时间只能窝在家里，但每年超过2万元的交强险+商业险等一分不少都要上交。
 
+导致柴油紧缺的原因之一是煤炭缺少引起的“连锁反应”：为了应对限电，不愿停工、减产的工厂和商家只能购买柴油发电机，因此增加了柴油用量。
+![](https://www.ft.com/__origami/service/image/v2/images/raw/https%3A%2F%2Fthumbor.ftacademy.cn%2Funsafe%2Fpicture%2F8%2F000110228_piclink.jpg?source=ftchinese&amp;width=1300&amp;height=731&amp;fit=cover&amp;from=next001)来源：FT中文网
+另外，受国际原油价格上涨影响，炼油企业开工率不足、北方进入收割季用油需求增加等等也是导致柴油紧缺的原因。
 
+国内煤炭开釆量占到其总用量的90%，即使有国际气候协定的约束，中共还可以偷偷加大开采量来部分缓解煤炭供应紧缺的矛盾。
 
-中共《环球时报》26日报道，多家境外媒体集中关注了中共军方 于近日进行的一场码头水下爆炸试验。该试验由中共海军研究院所属的某研究所组织，是在某军港进行的针对高桩式码头的水下爆炸试验，一颗水下爆炸物将试验码头完全摧毁。报道称，试验获得了大量实战条件下的爆炸毁伤数据，并强调这在中共国尚属首次。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture11-10.jpg)
-有研究人员称，军事基地的港口码头军队作战体系的核心枢纽，后勤补给船队必须频繁往来于基地港口与前线之间，运送弹药、油料等补给品。如果能够通过水下爆炸等隐蔽方式将对方码头摧毁，可以将其战争潜力消灭于无形。
+但国内油气消耗的70%依赖进口，而且油气价格较去年已经成倍上涨，等于要用比去年多一倍以上的外汇去购买相同数量的油气，而且油气价格远未见顶，中共的外汇储备将被快速消耗，因此可以预见中共国的能源危机将进一步加剧。
 
-台湾网站分析认为，该试验是针对美军的“分布式作战”战术。而香港网站则认为，共军该实验针对的是台湾军港，是为侵略台湾进行准备的。战争一旦开始后，共军将对台军的高雄和基隆等军港进行打击，以摧毁其海上作战能力。
+柴油是运输业的“血液”，物流是供需双方之间的桥梁，当出现柴油荒时，中共国的产业链将加速断裂，导致终端消费市场出现商品供应紧缺和价格上涨，从而激烈推升国内通胀。
 
-参考链接：[共军首次进行码头毁伤实验 或为侵略台湾加紧准备](https://news.sina.com.cn/c/2021-10-26/doc-iktzqtyu3548014.shtml)
+由于中共国是全球最重要的普通商品出口国，发生在国内的能源危机将引发国际市场的恶性通胀。
 
-![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+参考来源：
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
+[能源危机雪上加霜 中国出现柴油紧缺 | 经济纵横 | DW | 28.10.2021](https://www.dw.com/zh/能源危机雪上加霜-中国出现柴油紧缺/a-59650051)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
