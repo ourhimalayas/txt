@@ -2,83 +2,44 @@
 ---
 
 
-## 国会议员因疫苗护照禁令成立“反叛议会”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1624109/)
+## GlobalFoundries 于周四在纳斯达克敲响了开盘种
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1624282/)
 
-作者：Avi Yemini
-翻译：HimaCoby
+编译：西班牙喜悦农场–wenwu
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/night-club.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-7-7.jpg)GlobalFoundries 于 2021 年 10 月 28 日在纳斯达克首次公开募股后敲响了开盘钟。 ROHINI SHAHRIAR/纳斯达克
 
-上周因拒绝出示疫苗接种证明而被拒绝进入议会的四名维多利亚州议员中的三名在墨尔本夜总会成立了一个“反叛议会”。
+东部时间上午 11:51，GlobalFoundries [GFS， -3.74%](https://www.marketwatch.com/investing/stock/GFS?mod=MW_story_quote) 股价下跌并触及盘中低点 44.50 美元，最后下跌约 3% 至 45.61 美元。周三晚些时候，这家总部位于纽约的马耳他（Malta）的公司将股票定价为[每股 47 美元](https://www.marketwatch.com/story/globalfoundries-prices-ipo-at-47-a-share-for-25-billion-valuation-11635382866?mod=home-page&amp;mod=article_inline)，是其[预测范围的上限](https://www.marketwatch.com/story/globalfoundries-sets-ipo-terms-and-could-be-valued-at-over-25-billion-2021-10-19?mod=article_inline&amp;mod=article_inline)。
 
-自由民主党议员大卫林布里克（David Limbrick）说：“看看澳大利亚正在发生什么……因为议员不交出他们的疫苗文件被踢出去而建立了一个种族隔离的社会。” “如果它没有发生在你的社会，看看这里发生的事情，把我们当作一个警告。”
+GlobalFoundries 是一家第三方硅晶圆代工厂，在行业中被称为制造工厂或“晶圆厂”。
 
-独立议员凯瑟琳·卡明、自由民主党议员大卫·林布里克和蒂姆·奎尔蒂邀请反叛新闻进入“反叛议会”，上议院的三名被停职的成员在那里开展工作。
+像 GlobalFoundries 这样的第三方晶圆厂是为大多数没有自己晶圆厂的芯片制造商，来生产硅晶圆——这些公司包括 Advanced Micro Devices Inc.  [AMD、 -1.15%](https://www.marketwatch.com/investing/stock/AMD?mod=MW_story_quote),  苹果公司  [AAPL, 2.32%](https://www.marketwatch.com/investing/stock/AAPL?mod=MW_story_quote)  和英伟达公司  [NVDA， 1.02%](https://www.marketwatch.com/investing/stock/NVDA?mod=MW_story_quote) 事实上， GlobalFoundries 是 AMD 的一个分拆公司，当时该公司想退出晶圆厂业务。
 
-##### 在夜总会办理国会议员工作。
+GlobalFoundries 区别于其他第三方晶圆厂，如台积电 [TSM、 1.41%](https://www.marketwatch.com/investing/stock/TSM?mod=MW_story_quote) 和中国半导体制造国际公司  [688981， +0.22%](https://www.marketwatch.com/investing/stock/688981?countryCode=CN&amp;mod=MW_story_quote) 因为它不依赖台湾或中国，因为两者之间的敌对行动对美国的战略供应来说将是一个巨大的问题。
 
-“几周前，政府被迫通过议会的一项动议，要求所有议会成员交出他们的文件或被停职，”林布里克先生说。“所以我们四名议员和下议院的一名议员被上议院停职了，因此我们处于需要找地方工作的情况。我们可以远程参加议会，这就是我们在这里设置的。”
+该公司首次公开亮相之际，全球正在努力解决全球芯片短缺的问题，晶圆厂有长期的客户积压（例如：台积电），但[就收益而言，](https://www.marketwatch.com/story/busy-ipo-market-this-week-may-make-2021-the-biggest-year-for-proceeds-and-break-previous-record-by-30-11631554372?mod=article_inline) IPO 是其[有史以来最大的市场之一](https://www.marketwatch.com/story/busy-ipo-market-this-week-may-make-2021-the-biggest-year-for-proceeds-and-break-previous-record-by-30-11631554372?mod=article_inline)。
 
-根据奎尔蒂先生的说法，威斯敏斯特议会上一次发生这样的事情是在 1648 年。
+**简评：**
 
-奥利弗·克伦威尔英国内战中领导英格兰议会军队对抗查理一世国王的主要人物，将自己置于护国公的独裁地位，在那里他既是国家元首又是政府首脑。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-12-5.png)图片来源于火来2号战友的推文
 
-“独裁者克伦威尔清除了议会中任何不支持处决国王的人，”奎尔蒂先生说，并指出他们目前的情况并非没有先例。“我们现在在维多利亚州有一个‘殘缺’的议会。”
+一则相关[报道](https://www.reuters.com/article/globalfoundries-ipo/globalfoundries-shares-open-flat-on-nasdaq-debut-valuing-chipmaker-at-26-bln-idUSL4N2RO51K)。
 
-卡明女士的母亲在二战后来到澳大利亚。卡明女士的祖父因保护犹太社区而被纳粹政权带走。
+**周四，阿布扎比主权财富基金穆巴达拉投资公司(Abu Dhabi’s sovereign wealth fund Mubadala Investment Co)拥有的GlobalFoundries Inc的股票在纳斯达克平开，使这家芯片制造商（GFS）的市值达到约260亿美元。**
 
-卡明女士说：“在这场大流行期间，很多人实际上一直在提到纳粹德国之类的事情，这真的让我心碎。” “看着墨尔本发生的事情真的让我心碎。我们这里不需要。我们不需要强制执行。”
+**火来战友（[@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1/status/1453764205396434948?s=20)）在推特上也表示，郭文贵先生曾讲过，格芯上市那一天，注意看看照片上都有谁。最近知识点有点多，大家别落下功课啊。**
 
-叛逆的国会议员将政府的行为描述为“不合理”，包括拒绝将新冠快速抗原测试作为疫苗护照的替代品。
+（文章仅代表作者观点与GNEWS无关）
 
-虽然成员仍然流亡，但政府提出了维多利亚州历史上最具争议的法案之一。
+**新闻来源：**[Market Watch] [GlobalFoundries stock slips in trading debut after company’s IPO priced at high end of range](https://www.marketwatch.com/story/globalfoundries-stock-slips-in-trading-debut-after-companys-ipo-priced-at-high-end-of-range-11635436717) | 作者：Wallace Witkowski｜发布时间：2021年10月28日
 
-“我们不能做的一件事就是投票，”林布里克先生在接受独立记者鲁克山采访时说。
+* * *
 
-该立法将首先进入下议院，预计将在下议院通过，然后再进入上议院。
+*发稿：信心的选择*
 
-在 公共健康和福利修正案（大流行管理）2021法案 是在大流行系列的最新修订，旨在极大地增加了总理的权力，维持并发出卫生政令。
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
 
-《 公共卫生与福利法》中 包含的紧急权力一直存在争议。尽管如此，该法案中的修正案有效地赋予了州长对维多利亚州公民生活的绝对和不受挑战的控制权。
 
-它标志着从短期应急响应权力到持续紧急状态的重大转变，可能会导致习惯权利、法律和自由的暂停拖延数年。政府已经超越了因新冠而获得的特别许可，选择为所有未来的流行病创建一个永久性系统。
-
-“这是非常可怕的事情，他们想出了什么？尤其是当我们看到过去如何使用这些权力时，”林布里克先生说。“他们关于负责任地使用这些权力的想法……我们只是不买账。”
-
-如果这些修正案获得通过，即使维多利亚州没有病例，州长也将能够制造无限大的流行病。延长大流行的选项将根据总理是否认为有必要分三个月发布。如果州长认为病毒“可能”成为潜在的大流行病，即使卫生当局尚未正式宣布，他也可以宣布大流行病。
-
-大流行令对公民来说是一个沉重的负担，国家可以为了公共健康的利益而拘留他们，对他们的个人信息提出“请提供文件”的要求，在没有通知的情况下暂停他们的业务，或者被要求接受体检。
-
-该修正案创造了一个“人群分类”条件，允许政府制定仅适用于特定人群的健康令——例如未接种疫苗的人群。
-
-“大流行命令可能适用于、区分或改变其适用于根据其在大流行中的位置、事件的参与或特征、属性或情况而确定的个人或人群。” – 2021 年公共卫生和福祉修正案（流行病管理）法案
-
-警察可以在某些情况下访问接触者追踪信息并在没有搜查令的情况下进入任何场所。此外，如果严重违反卫生命令的人可能会面临两年监禁或 90,000 元罚款的一系列新的严厉处罚。
-
-许多人认为这些惩罚与风险完全不成比例。
-
-卡明女士说：“我们可以与新冠病毒共存，我们不再需要互相害怕了。” “该法案的继续执行授权和控制，我们并不需要那样做。”
-
-來源：[https://www.rebelnews.com/mps\_form\_rebel\_parliament\_after\_being\_banned\_over\_vaccine\_passport](https://www.rebelnews.com/mps_form_rebel_parliament_after_being_banned_over_vaccine_passport)
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

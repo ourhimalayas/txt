@@ -2,44 +2,46 @@
 ---
 
 
-## GlobalFoundries 于周四在纳斯达克敲响了开盘种
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1624282/)
+## 加拿大要求紧急调查青少年疫苗猝死事件
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1624349/)
 
-编译：西班牙喜悦农场–wenwu
+翻译：西班牙喜悦农场–wenwu
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-7-7.jpg)GlobalFoundries 于 2021 年 10 月 28 日在纳斯达克首次公开募股后敲响了开盘钟。 ROHINI SHAHRIAR/纳斯达克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/CANADA-INV-1.jpg)图片来源：theexpose.uk
 
-东部时间上午 11:51，GlobalFoundries [GFS， -3.74%](https://www.marketwatch.com/investing/stock/GFS?mod=MW_story_quote) 股价下跌并触及盘中低点 44.50 美元，最后下跌约 3% 至 45.61 美元。周三晚些时候，这家总部位于纽约的马耳他（Malta）的公司将股票定价为[每股 47 美元](https://www.marketwatch.com/story/globalfoundries-prices-ipo-at-47-a-share-for-25-billion-valuation-11635382866?mod=home-page&amp;mod=article_inline)，是其[预测范围的上限](https://www.marketwatch.com/story/globalfoundries-sets-ipo-terms-and-could-be-valued-at-over-25-billion-2021-10-19?mod=article_inline&amp;mod=article_inline)。
+2021 年 10 月 22 日，这位加拿大议员（MPP）致函安大略省临时警察署专员托马斯·卡里克（Thomas Carrique），要求立即调查年轻健康人的突然死亡事件。希利尔（Hillier）在一份[新闻稿中](https://www.randyhilliermpp.com/20211025_pr_oppinvestigationsuddendeaths)表示，他的调查请求是基于安大略省公共卫生数据显示，在年轻人口中，Covid-19 疫苗的潜在严重不良反应的发生率过高，特别是对心血管疾病表示特别关注。
 
-GlobalFoundries 是一家第三方硅晶圆代工厂，在行业中被称为制造工厂或“晶圆厂”。
+MPP Hillier 还表示，这种趋势正在全球公开数据中观察到，促使多个国家完全暂停使用某些疫苗产品，或限制其在年轻人和儿童中的使用。
 
-像 GlobalFoundries 这样的第三方晶圆厂是为大多数没有自己晶圆厂的芯片制造商，来生产硅晶圆——这些公司包括 Advanced Micro Devices Inc.  [AMD、 -1.15%](https://www.marketwatch.com/investing/stock/AMD?mod=MW_story_quote),  苹果公司  [AAPL, 2.32%](https://www.marketwatch.com/investing/stock/AAPL?mod=MW_story_quote)  和英伟达公司  [NVDA， 1.02%](https://www.marketwatch.com/investing/stock/NVDA?mod=MW_story_quote) 事实上， GlobalFoundries 是 AMD 的一个分拆公司，当时该公司想退出晶圆厂业务。
+例如，[瑞典最近无限期禁止](https://theexpose.uk/2021/10/26/sweden-halts-moderna-jab-indefinitely-after-vaccinated-patient-develops-crippling-heart-condition/)向 31 岁以下的任何人注射 Moderna mRNA 疫苗，以避免更多人患上残废的心脏疾病。在此之前，大多数北欧国家都暂停了 Modena 的中共疫苗，因为它导致了一系列的健康问题。
 
-GlobalFoundries 区别于其他第三方晶圆厂，如台积电 [TSM、 1.41%](https://www.marketwatch.com/investing/stock/TSM?mod=MW_story_quote) 和中国半导体制造国际公司  [688981， +0.22%](https://www.marketwatch.com/investing/stock/688981?countryCode=CN&amp;mod=MW_story_quote) 因为它不依赖台湾或中国，因为两者之间的敌对行动对美国的战略供应来说将是一个巨大的问题。
+虽然英格兰和威尔士国家统计局提供的最新数据显示，自首次接受辉瑞公司 mRNA Covid-19 疫苗以来，[男性儿童的死亡率](https://theexpose.uk/2021/10/27/deaths-among-male-children-increased-by-89-percent-since-given-covid-19-vaccine/)比五年平均值[增加了 82%](https://theexpose.uk/2021/10/27/deaths-among-male-children-increased-by-89-percent-since-given-covid-19-vaccine/)（如下图）。
 
-该公司首次公开亮相之际，全球正在努力解决全球芯片短缺的问题，晶圆厂有长期的客户积压（例如：台积电），但[就收益而言，](https://www.marketwatch.com/story/busy-ipo-market-this-week-may-make-2021-the-biggest-year-for-proceeds-and-break-previous-record-by-30-11631554372?mod=article_inline) IPO 是其[有史以来最大的市场之一](https://www.marketwatch.com/story/busy-ipo-market-this-week-may-make-2021-the-biggest-year-for-proceeds-and-break-previous-record-by-30-11631554372?mod=article_inline)。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-278-1.png)
 
-**简评：**
+加拿大议员兰迪·希利尔 (Randy Hillier) 表示，作为一名民选官员，他有义务质疑公共政策，尤其是当有证据表明公共政策可能对公众产生不利影响时。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-12-5.png)图片来源于火来2号战友的推文
+他告诉安大略省警察局局长，越来越多的年轻人和健康人突然死亡令人担忧，他们应该向正在寻求答案的死者家属提供完整的真相。
 
-一则相关[报道](https://www.reuters.com/article/globalfoundries-ipo/globalfoundries-shares-open-flat-on-nasdaq-debut-valuing-chipmaker-at-26-bln-idUSL4N2RO51K)。
+致安大略省警察局专员的完整信函全文如下（中英翻译共4张图）：
 
-**周四，阿布扎比主权财富基金穆巴达拉投资公司(Abu Dhabi’s sovereign wealth fund Mubadala Investment Co)拥有的GlobalFoundries Inc的股票在纳斯达克平开，使这家芯片制造商（GFS）的市值达到约260亿美元。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-281-1.png)
 
-**火来战友（[@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1/status/1453764205396434948?s=20)）在推特上也表示，郭文贵先生曾讲过，格芯上市那一天，注意看看照片上都有谁。最近知识点有点多，大家别落下功课啊。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-8-7.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_8049.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_3588.jpeg)
 
 （文章仅代表作者观点与GNEWS无关）
 
-**新闻来源：**[Market Watch] [GlobalFoundries stock slips in trading debut after company’s IPO priced at high end of range](https://www.marketwatch.com/story/globalfoundries-stock-slips-in-trading-debut-after-companys-ipo-priced-at-high-end-of-range-11635436717) | 作者：Wallace Witkowski｜发布时间：2021年10月28日
+**新闻来源：**[theexpose.uk] [Canadian Politician demands urgent investigation into rise of sudden deaths among Teens following Covid-19 Vaccination](https://theexpose.uk/2021/10/27/politician-demands-investigation-sudden-deaths-teens-after-covid-vaccination/) | 发布时间：2021年10月27日
 
 * * *
 
 *发稿：信心的选择*
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
-
-
 
  
 
