@@ -2,24 +2,23 @@
 ---
 
 
-## 秘翻在线：卡车司机警告说疫苗强制令将加剧供应链危机
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1625774/)
+## 意大利法官乔尔加尼反绿色护照，被停职停薪
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1625899/)
 
-#### 翻译/撰稿：zzballack
+#### 翻译整理/简评 意大利罗马达芬奇农场： 小白鸽
+![Immagine che contiene persona, esterni, persone, gruppo
+Descrizione generata automaticamente](https://assets.gnews.org/wp-content/uploads/2021/10/Schermata-2021-10-29-alle-14.13.37.png)图片来源：安莎社
+意大利法官乔尔加尼，是西西里墨西那上诉法院的顾问， 10月9日在罗马人民广场发表了有关反绿色护照的演讲之后， 被停薪、停职。在那天的演讲中， 乔尔加尼法官对“滥用职权，占据掌控权利大楼的那些人发出了“搬迁通知”。他呼吁对这些人实行一个新的纽伦堡审判，为“ 那些由此而造成死亡，贫困和痛苦的人伸张正义。”
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-532.png)图片来源：福克斯商业新闻
-据《布雷特巴特新闻网》（Breitbart News）10月28日报道，本周四（10月28日），参议员玛莎·布莱克本 (Marsha Blackburn)就其提出的《保住我们COVID-19英雄的工作法案》举行了新闻发布会。与会人员还有共和党参议员罗杰·马绍尔 (Roger Marshall)、迈克·布劳恩 (Mike Braun)和主要的行业领袖。他们在会上警告说，由于联邦政府的疫苗强制令，员工要么遵从命令，要么失去工作，这只会使现有的供应链危机进一步恶化。
+意大利司法部长马耳塔•卡尔塔比尔委托检查员对这一事态进行调查。
 
-布莱克本参议员在会上解释说：“该法案将给予那些在大流行期间被认为是不可或缺的工人特别豁免，使其不受疫苗强制令的影响。不可或缺的工人指的是当地社区的医护人员、卡车司机、第一响应者、建筑工人和杂货店员工。法案最终将以不同的方式在全国范围内发挥作用，关键是要保护那些在大流行病期间提供服务的人。”
+我们正处在战争中， 这是一场光明与黑暗，正义与邪恶之间你死我活的较量。它涉及到金融战、司法战、新闻战等各个战场。面对强权和独裁，总是有人敢站出来说“不”， 但勇敢的人会为此付出的代价也是巨大的。堵住你的嘴， 捂住你的眼睛，在主流媒体的协助下，黑暗已笼罩着世界，而许多人还未醒来。
 
-马绍尔参议员说，这些工人现在正面临困境，我被告知有20%-50%的蓝领工人已经决定不接种中共病毒疫苗，人们还问我疫苗强制令最终将对卡车运输业产生什么影响。
+免责声明：此文观点只代表个人观点， 与GNEWS 平台无关
 
-业主独立司机协会（Owner–Operator Independent Drivers Association）主席托德·斯宾塞说（Todd Spencer）：“由于卡车运输业受到严格监管，这些强制令大多都是针对司机的，很多卡车司机对此已经受够了，他们将因此退休。”
+原文链接：https://roma.repubblica.it/cronaca/2021/10/27/news/no\_green\_pass\_sospeso\_il\_giudice\_giorgianni\_parlo\_dal\_palco\_-323958415/
 
-全美小型卡车公司协会（National Association of Small Trucking Companies）主席大卫·欧文（David Owen）在新闻发布会上明确表示：“在我们的现今世界，当涉及到工作时，每个人都是不可或缺的。卡车运输业更是如此。我不认为公众能理解卡车必须每天都得跑，司机也不能怠工任何一天。各位已经看到杂货店货物短缺了，燃料也很快会短缺，其价格将继续走高。司机们的工作非常重要，我们会全力支持他们，并希望能够利用这一点，使这个苛刻、霸道的政府得到控制。”
-
-新闻来源：[Truckers Warn Joe Biden’s Vaccine Mandate Will Worsen Shortages Across the Country](https://www.breitbart.com/politics/2021/10/28/truckers-warn-bidens-vaccine-mandate-will-worsen-shortages-across-the-country/)
+编辑/发布：  Xiao baige
 
  
 

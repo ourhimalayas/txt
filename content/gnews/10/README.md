@@ -2,23 +2,34 @@
 ---
 
 
-## 文贵爆料10/29 格芯在美上市昭示中共在技术上的假空与灭亡命运
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1626329/)
+## 中共借“共同富裕”稳房地产市场
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1626435/)
 
-撰稿：回响
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Pic1.png)图片来源：GTV & GETTR
-2021年10月29日郭文贵先生谈到格芯为什么没有在中共国而在美国纳斯达克上市的原因。格芯在美上市，说明共产党从来没有想拥有技术，也认为没有必要拥有，而是从来都是靠中国市场垄断对技术公司进行威胁和利诱。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月27日，中共媒体再度洗脑民众，将其房地产市场挂钩在中共所谓的“共同富裕”上。为此，中共将恶性调控再次牵连到城市住房租赁、城市更新，及老旧小区改造等方面。
 
-作为格芯的少数投资者，郭文贵先生再三声明不做任何投资建议。但他却是最先洞察芯片未来的敏锐行动人。郭先生简要地回忆了和格芯的因缘。并放眼全球，从成都到美国、台湾、新加坡等的制造主体和研发、投资主体的由来。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-6.jpeg)
 
-郭先生对比美国的科技产业和中共国的对应领域的巨大区别和差距，特别谈到马斯克和马云等鲜明的对比。马斯克当时在中国谈创造、文明、外星空，而马云等中共国企业家和官员谈复制、市场垄断、赚钱，这是一种巨大的对比。证明中共的假大空、可耻、低级和无知。
+据消息称，目前，恒大引发的房地产债务危机日益逼近，中共国内城市用地拍卖规模进一步收缩，大量的新建住宅项目停工。此时，中共在城市住房、小区改造等方面大动手脚，其目的就是通过盘剥普通民众的财产来为其经济续命。
 
-郭先生历数海外伪类和所谓民运的诸种荒唐现象，一针见血、入木三分地指出，所有的中共国当权者，无论内外，无论浓缩版还是正式版都无一例外地暴露出彻底的无知、无信心、更无国家规划，无国家利益。其灭亡是必然，也是中共的悲哀。
+对此，郭先生在直播中指出，中共的“共同富裕”是对社会财富进行重新划分的借口。在中共国，房地产的各个环节已被中共政府层层征税，而今又继续加征房产税。文贵先生强调，没有人能够在中共政府的公共服务和个人财产分配中受益。
 
-【原文链接】https://gtv.org/broadcast/watch/617be96f11d1862968fccc4c
+参考链接：[共同富裕需要房地产市场稳健发展](https://3g.163.com/dy/article/GNA2PI3K0519AKBM.html?spss=adap_pc)
 
-校对、发布：Shifter
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

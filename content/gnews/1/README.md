@@ -2,34 +2,29 @@
 ---
 
 
-## 中共借“共同富裕”稳房地产市场
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1626435/)
+## 文贵视角:如果中共攻打台湾，格芯将成为万亿资产企业
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1626522/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月27日，中共媒体再度洗脑民众，将其房地产市场挂钩在中共所谓的“共同富裕”上。为此，中共将恶性调控再次牵连到城市住房租赁、城市更新，及老旧小区改造等方面。
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Image-2-4.jpg)
+郭文贵先生在10月29日的直播中明确指出，一旦中共打台湾，甫于10月28日上市的全球第三大半导体制造商格罗方德(GlobalFoundries)(中文:格芯)立刻成为万亿美元资产的企业。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-6.jpeg)
+**共产党癡心妄想借由攻打台湾，将台积电国有化**
 
-据消息称，目前，恒大引发的房地产债务危机日益逼近，中共国内城市用地拍卖规模进一步收缩，大量的新建住宅项目停工。此时，中共在城市住房、小区改造等方面大动手脚，其目的就是通过盘剥普通民众的财产来为其经济续命。
+“习近平想借着打台湾，把台积电国有化，然而台积电的技术并不是说拿到就可以拿到的。”文贵先生指出共产党的疯狂。”共产党甚至愚蠢地想把台积电的技术和人才全弄到广东，然后把福建人民给移到台湾。可见共产党有多么地无知 ! “文贵先生说。”但凡有一点脑子的人都可以想想，把一个厂干掉以后，真的就可以将技术弄到手？(台积电的技术稍一不慎都无法到位) 就算把台湾一千多万人弄到这个福建，共产党真的就可以拥有台积电吗？”文贵先生直指中共的愚昧。
 
-对此，郭先生在直播中指出，中共的“共同富裕”是对社会财富进行重新划分的借口。在中共国，房地产的各个环节已被中共政府层层征税，而今又继续加征房产税。文贵先生强调，没有人能够在中共政府的公共服务和个人财产分配中受益。
+**共产党一旦攻打台湾，格芯市价将扶摇直上**
 
-参考链接：[共同富裕需要房地产市场稳健发展](https://3g.163.com/dy/article/GNA2PI3K0519AKBM.html?spss=adap_pc)
+“如果共产党对台湾有任何行动，格芯市值将瞬间涨到三千五百亿到五千亿，如果台积电国有化，格芯市值它绝对上万亿。因为格芯生产全世界最好的芯片，又是在文明和政治最稳定的地方，一旦战争开启，军事芯片涨十倍、百倍都有可能。”文贵先生说。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+所有人不得不佩服文贵先生对共产党的布局周密，拥有郭文贵先生家族基金支持的全球第三大半导体制造商格罗方德(GlobalFoundries)(中文:格芯)在10月28日在美国纳斯达克上市，不但是赚钱利器，更是灭共神器！
 
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：谐趣园
+**文贵先生运筹帷幄，引共产党入甕**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“我跟格芯的股东会说明，郭文贵先生家族基金将增资成为格芯的第三大股东，因为未来对灭共有重大贡献的GNEWS、GTV、GETTR社交媒体都需要芯片，我们必须有话语权。”文贵先生道出重点。
+
+就像一盘思虑周密的围棋，文贵先生起手布局，都让人啧啧称奇，拍手叫好。虽然共产党尚未弃子投降，但败象已露，只待中共入甕。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

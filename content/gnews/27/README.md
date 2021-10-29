@@ -2,28 +2,21 @@
 ---
 
 
-## 秘翻在线：安全研究人员警告iPhone用户应从手机上删除“它”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1626013/)
+## 科罗拉多州计划在1月底之前给5至11岁人群接种疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1626138/)
 
-撰稿：文字焼
-![](https://assets.gnews.org/wp-content/uploads/2021/10/16355128671.png)图片来源：[https://www.wowkorea.jp/news/newsread\_image.asp?y=1 HYPERLINK “https://www.wowkorea.jp/news/newsread\_image.asp?y=1&imd=320558″& HYPERLINK “https://www.wowkorea.jp/news/newsread\_image.asp?y=1&imd=320558″imd=320558](https://www.wowkorea.jp/news/newsread_image.asp?y=1&amp;imd=320558)
-据日本雅虎新闻报道，具有代表性的网络社交平台–脸书（Facebook）会擅自收集苹果（iPhone）用户的照片和位置等个人信息。
+#### 翻译：沙子最怕你不理它
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-112.jpg)图片来源：网络截图
+据美联社丹佛10月28日报道，科罗拉多州州长贾雷德•波利斯(Jared Polis)周四在与州卫生官员的新闻发布会上宣布在未来几天内中共病毒疫苗将被批准使用于5至11岁人群，他的目标是在一月底前为一半的5至11岁人注射一剂中共病毒疫苗。
 
-美国商业杂志《福布斯》包括汤米·米斯克在内的几位安全研究人员警告说，应该从iPhone上删除Facebook应用程序。
+州卫生部疾病控制和公共卫生响应司副主任黛安娜•赫雷罗(Diana Herrero)说，联邦政府已向科罗拉多州分配了第一批171,000剂儿科疫苗，科罗拉多州这个年龄组有近480,000名儿童，这批疫苗足满足单剂接种30%儿童的量。该州正在向所有学区提供与该州的伙伴关系，以举办现场疫苗诊所，在那里可以获得家长许可书并为学生接种疫苗。
 
-今年4月，苹果公司通过其新的操作系统推出了应用跟踪透明化（ATT）功能，该功能阻止了对个人数据的跟踪，可以防止APP收集你的位置或任何其他个人信息。因此，包括Facebook在内的所有应用程序上的定向广告受到了限制。
+辉瑞5至11岁儿童的疫苗是青少年和成年人剂量的三分之一。一项对儿童大小剂量的研究发现，间隔三周的两次注射证明对预防重症91%有效，只有轻微的暂时副作用——如手臂疼痛、发烧或疼痛。全强度注射偶尔会引起极其罕见的副作用，即心脏炎症，这主要发生在第二次剂量后的年轻男性和十几岁的男孩身上。
 
-然而，安全研究人员指出，Facebook正在使用iPhone的加速度计来跟踪用户的动作。加速计提供的加速度数据消除了重力对物体的影响，使用户能够看到他们移动的速度。利用这些传感器，可以识别用户是躺着、坐着还是走着，甚至可以估计其位置。
+非常值得注意的是，并没有任何研究确认以上这些副作用会不会在接种后的年幼儿童身上出现！ 如果出现，比例将会是多少？长期的副作用会是什么？这些问题直到目前都没人知道答案。
 
-另外，也很难拒绝Facebook的位置跟踪功能。Facebook应用程序本身会通过分析振动模式和其他因素来推断你的位置。米斯克说：“防止信息泄漏的唯一方法是删除Facebook。”
-
-据安全研究人员称，在Tik-Tok、Wechat、iMessages和Telegram等主要社交网站中，Facebook是唯一使用加速计收集位置数据的APP。实际上，对于iPhone用户来说，Facebook是最容易发生信息泄露的。
-
-信息来源：[https://news.yahoo.co.jp/articles/68d8a09319af62c23c454f3c730f38d1c83ffdd4](https://news.yahoo.co.jp/articles/68d8a09319af62c23c454f3c730f38d1c83ffdd4)
-
-（文章仅代表作者个人观点）
-
-责编：待命（文晓）
+新闻来源：[Colorado aims to vaccinate ages 5 to 11 by end of January](https://apnews.com/article/coronavirus-pandemic-health-colorado-public-health-jared-polis-d26cc4a85a35a996fc53eb77d34e9a9b)
 
  
 

@@ -2,22 +2,34 @@
 ---
 
 
-## 科罗拉多州计划在1月底之前给5至11岁人群接种疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1626138/)
+## 中共国 “花圈”、“脑梗”等词搜索量激增
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1626368/)
 
-#### 翻译：沙子最怕你不理它
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-112.jpg)图片来源：网络截图
-据美联社丹佛10月28日报道，科罗拉多州州长贾雷德•波利斯(Jared Polis)周四在与州卫生官员的新闻发布会上宣布在未来几天内中共病毒疫苗将被批准使用于5至11岁人群，他的目标是在一月底前为一半的5至11岁人注射一剂中共病毒疫苗。
+作者：香草山 – Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月28日，据盖特相关报道显示，自9月底以来，经中共国内微信指数统计，“花圈”、“脑梗”等关键词的查询量爆增。其中，“花圈”的单日查询峰值已经超过每天一千两百万人次，而“脑梗”的单日查询峰值更是每天超过了三千五百万人次。
 
-州卫生部疾病控制和公共卫生响应司副主任黛安娜•赫雷罗(Diana Herrero)说，联邦政府已向科罗拉多州分配了第一批171,000剂儿科疫苗，科罗拉多州这个年龄组有近480,000名儿童，这批疫苗足满足单剂接种30%儿童的量。该州正在向所有学区提供与该州的伙伴关系，以举办现场疫苗诊所，在那里可以获得家长许可书并为学生接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-14.jpeg)
 
-辉瑞5至11岁儿童的疫苗是青少年和成年人剂量的三分之一。一项对儿童大小剂量的研究发现，间隔三周的两次注射证明对预防重症91%有效，只有轻微的暂时副作用——如手臂疼痛、发烧或疼痛。全强度注射偶尔会引起极其罕见的副作用，即心脏炎症，这主要发生在第二次剂量后的年轻男性和十几岁的男孩身上。
+另外，在中共国微博平台上查询显示，自10月份以来，“花圈”一词的单日搜索量同样高居不下，并在最近一周内达到搜索峰值。
 
-非常值得注意的是，并没有任何研究确认以上这些副作用会不会在接种后的年幼儿童身上出现！ 如果出现，比例将会是多少？长期的副作用会是什么？这些问题直到目前都没人知道答案。
+此前，文贵先生在大直播中反复向世界预警即将到来的疫苗灾难。至于中共，其强制推行新冠疫苗的政策，终会导致大量的国内普通接种民众患上“心梗”、“脑梗”等致命病症，致使无辜的同胞大量伤亡，从而实现其有计划的种族灭绝。
 
-新闻来源：[Colorado aims to vaccinate ages 5 to 11 by end of January](https://apnews.com/article/coronavirus-pandemic-health-colorado-public-health-jared-polis-d26cc4a85a35a996fc53eb77d34e9a9b)
+参考链接：[https://gettr.com/post/pfdlvg1b1a](https://gettr.com/post/pfdlvg1b1a)
 
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：瑞卡
+编辑：珈沅
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

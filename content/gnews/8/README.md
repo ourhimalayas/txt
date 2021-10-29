@@ -2,31 +2,38 @@
 ---
 
 
-## 有声|盖特是澳大利亚人发声的希望
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1626342/)
+## 2021/10/28 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1626449/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-10月24日，澳大利亚天空新闻台三位主持人，联合采访了盖特首席执行官杰森·米勒先生，表达了对美国国内政治局势的担忧，及对盖特的浓厚兴趣。三位著名主持人分别是罗恩·迪恩、丽塔·帕纳西和詹姆斯·莫罗。
+1. 邪恶中共开始在墙内全面推行3-11岁小孩接种毒疫苗。
+2. 隔离后家被安装警报器，隔离意味着更大程度的失去自由。
+3. 新增确诊病例发声证实曾打3针疫苗也被感染。这证明疫苗对防疫病毒根本无效。
+4. 10月26日，河南安阳。即使司机用预充油卡加油也被限制。因为油荒还是等涨价才让加？
+5. 10月25日，广西柳州一货车停路边数天，司机被发现时已无生命体征。车门未关闭。
+6. 10月24日，广东佛山南海区村治保队员在违停车的前挡玻璃司机位置贴两大张警告纸。
+7. 选择性执法。10月24日，浙江绍兴，选择性执法。男子将车停在人行横道上被贴罚单，“为什么对面卖二手车的不贴罚单”。
+8. 在中共国勤劳并不代表着有尊严。中共国一货车司机戏说着群体被压榨的无奈。
+9. 10月27日吉林长春，男子在医院开错检查项目，需多部门签字才能退费。
+10. 房地产行业摇摇欲坠，郑州阳光城二期交房遥遥无期，销售经理语出惊人：“我们还不能倒闭了？”
 
-米勒先生在接受罗恩采访时，首先介绍了盖特的情况，米勒说：“在美国独立日7月4日，盖特一经推出就像火箭一样起飞。目前有约300万用户，是有史以来所有社交媒体中，从100万向200万用户转变最快的。有趣的是，我们的美国用户群，约占整体注册用户的47%，而美国以外的注册用户群占53%，也就是说，盖特已经是一个全球性的社交媒体平台。”
 
-米勒先生说：“与川普总统宣布其行动计划之前相比，我们在过去的两天内，每天增长新的注册用户70%。涨潮时，所有的船都会浮起来。川普总统的平台，还需要几个月或更久，才会启动上线。我认为，我们有一个很好的机会抓住人心，把他们拉入到我们的社交平台。”
+*Page: 青山*
 
-对于澳大利亚人民，盖特是他们发声的希望。
+* * *
 
-文字版原文：[盖特是澳大利亚人发声的希望](https://gnews.org/zh-hans/1622780/)
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

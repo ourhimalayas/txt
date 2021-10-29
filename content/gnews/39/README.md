@@ -2,36 +2,112 @@
 ---
 
 
-## 习近平将线上出席G20峰会 被指“没出过国”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1625756/)
+## 格芯公司市场份额、产量、用途及市场前景分析
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1625840/)
 
-作者： 东京樱花团｜捆绑CCP一千年
-![](https://lh3.googleusercontent.com/MeIL2fb1UrKDkjD90N7Kls3mbdRn3VRKQhpkfTMDkUYusE5H0LsyewIMXf0lcDXYi8nZdyENo5q5QT0McATw3WptXVP2NP6A4_THkAPTUvVbJ0xuV71nGIOMlsAgIbyVCs8Du9o3)图片来源
-**即将召开的本届G20峰会将围绕中共国和美国在台湾问题上的较量，充满了火药味。在峰会前夕大事件不断，蔡英文证实“美军驻扎台湾”，打破1979年的美台现状。美国突然宣布将帮助台湾加入联合国。中共试射了高超音速武器，被指“游戏规则改变者”。**
+作者：香草山教育部写作组-新生
 
-据雅虎日本29日消息称，“[中国外交部宣布，习近平主席将在北京以在线方式出席30日至31日在罗马举行的G20峰会](https://news.yahoo.co.jp/articles/49e919ef831e89d63dc1fbb808091dd23d9fbfb6)。”据悉，俄罗斯总统普京也有望加入G20。中共国新华社消息称，“习近平应意大利共和国总理德拉吉邀请，习近平将在G20峰会上发表重要讲话。”
-
-该消息表示，“[习近平自去年1月访问缅甸以来就没有出过国](https://www.asahi.com/articles/ASPBX6R2LPBXUHBI01H.html?iref=pc_photo_gallery_bottom)。美国总统乔·拜登（Joe Biden）寻求在二十国集团（G20）峰会前及时与习主席面对面会晤。”[**阅读更多**](https://www.secretchina.com/news/gb/2021/10/29/987942.html)
-
-显然，即将召开的本届G20峰会将围绕中共国和美国在台湾的较量充满了火药味，28日，台湾总统蔡英文罕见证实“[美军驻扎台湾”，这是自1979年美国与中国建交并与台湾决裂以来，美军首次正式批准在台湾驻军](https://www.asahi.com/articles/ASPBX64VRPBXUHBI01C.html)。这显然突破所谓中国共产党红线。就此事态，蔡英文接受美国有线电视新闻网的独立采访作出上述消息证实。几乎与此同时，“[美国突然宣布在‘一个中国’原则下帮助台湾加入联合国](https://gnews.org/zh-hans/1622775/)。”
-
-- ***延展阅读：***[***美中央情报局重组一个新的情报中心将聚焦中共国***](https://www.nytimes.com/2021/10/07/us/politics/cia-reorganization-china.html)
-- ***延展阅读：***[***习近平缺席G20峰会和联合国气候大会，是中国孤立的象征***](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E6%B3%95%E5%9B%BD%E4%B8%96%E7%95%8C%E6%8A%A5/20211028-%E4%B9%A0%E8%BF%91%E5%B9%B3%E7%BC%BA%E5%B8%ADg20%E5%B3%B0%E4%BC%9A%E5%92%8C%E8%81%94%E5%90%88%E5%9B%BD%E6%B0%94%E5%80%99%E5%A4%A7%E4%BC%9A%EF%BC%8C%E6%98%AF%E4%B8%AD%E5%9B%BD%E5%AD%A4%E7%AB%8B%E7%9A%84%E8%B1%A1%E5%BE%81)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-8.jpg)
 
 
-北京动作很大，中共军方试验发射了“[一种被称为“游戏规则改变者”的高超音速武器，可以改变军事平衡](https://www.asahi.com/articles/ASPBX6R2LPBXUHBI01H.html?iref=pc_photo_gallery_bottom)。”在美中俄展开激烈的竞争之际，美国军方高层承认中国的武器试验，透露出一种危机感。一些人担心军备竞赛过热。
 
-这些事态的演进极不寻常，美军显然是在官方层面承认北京的威胁是切实需要面对的。而此次峰会，习近平将会发表所谓重要演讲，实际上该谈的条件细节不在峰会上展示。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-95.png)
 
-此外，由于众议院选举将于31日举行，日本[岸田首相将不会出席G20峰会](https://news.yahoo.co.jp/articles/1d774f0b452f5aa673222aa1c24ac0dd2785c0d2)。此轮峰会将聚焦疫情和疫情中的经济和当前局势以及《巴黎协定》的各国碳排放等问题。
+#### **背景**
 
-另据知情人士透露，印度总理莫迪 (Narendra Modi) 将在 10 月 30 日参加意大利 20 国集团峰会，并呼吁，“采取统一的全球方法来应对阿富汗局势并应对气候变化和冠状病毒大流行的挑战。”
+在美国时间的10月7日，郭先生在直播中指出，穆巴达拉投资公司参与控股了一家半导体代工公司—— GlobalFoundries (GF，格芯公司)。该公司于10月28日在纳斯达克上市开始交易，代码为 GFS。根据纳斯达克网站数据，格芯拥有约 7% 的市场份额，与联合微电子公司类似，台积电 (TSM ) 占据了 55% 的市场份额。三星公司拥有 17% 的市场份额。中芯国际的市场份额为4%。
 
-2021年10月29日
+格芯公司在美国、德国和新加坡都设有制造厂（“晶圆厂”），为全球数百家客户制造功能丰富的半导体。格芯这样定义旗下三大生产基地：新加坡厂以40奈米制程以上为主，德国厂以28奈米制程为主，美国纽约州厂以20奈米和14奈米先进制程为主，该厂房也是和三星电子进行14奈米设备互通的策略联盟的重镇。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+根据目前可查到的公开数据，格芯公司当前年产能约为184万～194万片晶圆，新设备建成以后产能约为309万片左右。
+
+#### **产量****分析表**
+
+
+| **工厂****所在地** | **目前****年产能****（****片晶圆****）** | **未来产量（新设备建成后）** |
+| --- | --- | --- |
+| 德国德累斯顿 | 400,000 – 500,000  | 1百万（预计2024 年投产） |
+| 美国纽约马耳他 | 350,000  | 500,000 |
+| 美国佛蒙特州伯林顿 | 40,000 |   |
+| 美国纽约州东菲西基尔 | 无公开数据 |   |
+| 新加坡 | 1,050,000 | 1,500,000 （ 预计2023年建成） |
+| **合计** | 约184万-194万 | 约为309万 |
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片2-31.png)
+
+#### **用途**
+
+根据格芯公司网站，其制造的芯片可用于以下多种用途：
+
+- 智能手机设备 （非接触式支付、无线上网、触摸显示驱动器、成像和 3D 传感、安全、音频和电池电源管理）
+- 个人电脑（为即将到来的海量数据，提供人工智能加速、光连接和有线网络应用的专用解决方案）
+- 家庭物联网（如音频和显示，人脸、语音和物体识别等智能功能、无线连接）和工业物联网（微控制器、电力电子设备、无线连接）
+- 辅助驾驶和自动驾驶汽车（汽车微控制器单元、全球卫星定位系统和雷达系统等）
+- 通信基础设施和数据中心 （ 蜂窝基础设施和卫星通信、有线连接， 如数据中心光通信）
+
+
+#### **市场前景**
+
+- 十大客户市值超万亿美元
+
+
+格芯主要客户包括高通、AMD 、联发科、恩智浦半导体、科沃、思睿逻辑、思佳讯、村田制作所、博通、德州仪器(TI)等，未来还会有星链公司。格芯还是美国国防部认可的最先进的 “可信代工 “供应商。格芯公司表示，其2020年出货的晶圆中有61%是 “单一来源 “的产品，这意味着那些 “只能用我们的技术来制造，而且在没有重大客户重新设计的情况下无法在其他地方制造 “的产品，高于2018年的48%。
+
+- 未来营收可期
+
+
+目前，GlobalFoundries表示，它有大约200亿美元的收入承诺，其中100多亿美元是在2022年至2023年期间，还有超过25亿美元的 “预付款和产能预订费”。例如，根据AMD公司提交给美国证监会的文件，该公司“依赖台积电 (TSMC) 为我们的 7 纳米 (nm) 产品生产所有晶圆，主要依赖格芯公司来生产以大于 7 纳米工艺节点制造的产品的晶圆”。AMD公司是与 GF 签订的晶圆供应协议规定了AMD购买由 GF 制造的产品的条款，有效期至 2024 年。AMD公司目前估计，根据A＆R第七修正案，它将在2022年至2024年期间向GF购买大约16亿美元的晶圆。
+
+- 大中华区以外的芯片生产厂商
+
+
+格芯首席执行官考尔菲尔德在8 月 23 日的一次在线演讲中表示，大多数竞争对手的产能——即台积电、联电和中芯国际的产能——都位于大中华区，这让格芯公司有机会在全球范围内发起“大胆”扩张活动，以帮助解决前所未有的全球供应短缺问题。
+
+**相关术语**：
+
+晶圆尺寸 – 一个工厂能够处理的最大晶圆直径。(半导体晶圆是圆形的）。)
+
+工艺技术节点 – 工厂能够在晶圆上蚀刻的最小特征的尺寸
+
+生产能力 – 一个制造工厂的铭牌能力。一般来说，每月生产的晶圆数量
+
+技术/产品 – 工厂能够生产的产品类型，因为并非所有工厂都能生产市场上的所有产品
+
+参考资料：
+
+[https://asia.nikkei.com/Business/Tech/Semiconductors/GlobalFoundries-CEO-Chip-industry-output-must-double-in-10-years](https://asia.nikkei.com/Business/Tech/Semiconductors/GlobalFoundries-CEO-Chip-industry-output-must-double-in-10-years)
+
+[https://www.sec.gov/Archives/edgar/data/2488/000119312511040392/d10k.htm](https://www.sec.gov/Archives/edgar/data/2488/000119312511040392/d10k.htm)
+
+[https://www.nasdaq.com/articles/an-overview-of-the-top-5-semiconductor-foundry-companies-2021-10-01](https://www.nasdaq.com/articles/an-overview-of-the-top-5-semiconductor-foundry-companies-2021-10-01)  （市场占有率）
+
+[https://gf.com/press-release/globalfoundries-breaks-ground-new-fab-singapore](https://gf.com/press-release/globalfoundries-breaks-ground-new-fab-singapore) 新加坡数据数据来源）
+
+[https://www.eenewseurope.com/news/globalfoundries-plans-boost-production/page/0/1](https://www.eenewseurope.com/news/globalfoundries-plans-boost-production/page/0/1)   (德国数据来源)
+
+[https://www.forbes.com/sites/willyshih/2021/07/20/globalfoundries-fab-expansion-doing-a-little-math/?sh=51670e9b14da](https://www.forbes.com/sites/willyshih/2021/07/20/globalfoundries-fab-expansion-doing-a-little-math/?sh=51670e9b14da) （美国纽约马耳他数据来源）
+
+[https://en.wikipedia.org/wiki/List\_of\_semiconductor\_fabrication\_plants](https://en.wikipedia.org/wiki/List_of_semiconductor_fabrication_plants) （美国佛蒙特州数据）
+
+[https://gf.com/](https://gf.com/) （产品应用领域）
+
+校对/发稿：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-2.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
