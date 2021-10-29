@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/29/2021 11:50 PM (UTC)`
+
+10/29/2021 Miles Guo: The CCP’s internal struggles, invasion of Taiwan, imposing property tax, genocide, and its imminent financial collapse will eventually led the Chinese people to take it down<br/><br/>10/29/2021 文贵直播：中共的内斗、打台湾、强推房产税、搞种族大屠杀和面临的金融崩溃终将导致中国人将其消灭<br/>
+![img](https://media.gettr.com/group43/getter/2021/10/29/23/50/4d7335a4-742b-a025-c8e3-cea716438d82/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gfashion 10/29/2021 7:18 PM (UTC)`
@@ -300,13 +307,6 @@ The relationship analysis of the characters in SPAC that merged with Trump media
 
 10/24/2021 Miles Guo: The CCP lured President Trump into the trap of stock price manipulation and fraud in an attempt to terminate his political career and to even send his whole family to jail. We shall reveal the evil deeds of the CCP, wake up all walks of life in America, and save President Trump rather than criticize him<br/><br/>10/24/2021 文贵直播：中共诱骗川普总统掉入操纵股价和欺诈的陷阱，从而终结其政治生涯，甚至害其全家锒铛入狱；我们要揭发中共恶行、唤醒美国各界，要拯救川普总统而非批评。<br/>
 ![img](https://media.gettr.com/group14/getter/2021/10/25/04/14/74493de9-5710-293c-e4a6-1304cc28ee0a/out.jpg)
-
----
-
-`@miles 10/25/2021 3:22 AM (UTC)`
-
-🆘疫苗灾难<br/><br/>【一个在产房工作的护士说婴儿刚生下来的时候看上去很健康，但在48-72小时后死亡，肺出血……都是孕期和哺乳期打了疫苗……<br/>🆘🆘🆘Don’t get Vaccines!!!】
-![img](https://media.gettr.com/group22/getter/2021/10/25/03/22/95f5fb0f-6380-c533-3a21-517a266e5a10/out.jpg)
 
 ---
 
