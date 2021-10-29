@@ -2,132 +2,138 @@
 ---
 
 
-## 习在20大前最危险，最后一定会被干掉
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1625826/)
+## 权威机构的投资认定是决定喜马拉雅币价值的关键之一
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1625849/)
 
-**郭文贵：
-Miles Guo：**
+整个喜联储
+Todo el Banco Central de Himalaya
 
-习这个人他没敢干，习要敢干，他越敢干，他越安全
-Xi did not dare to do, Xi if you dare to arrest, the more Xi dare to arrest, the safer he will be
+当它宣布它的投资者机构
+Cuando él anuncie su organización inversora
 
-说实在话，咱先抛开政治来说
-To be honest, let’s put politics aside for a moment
+记住啊
+Recuerden
 
-什么王岐山、孟建柱，你像斯大林那套，老子都给你抓了
-Wang Qishan, Meng Jianzhu, Xi could learn Stalin’s way, arrest everyone against him
+投资者机构真正的投钱
+La verdadera inversión de dinero de la organización inversora
 
-我一个小时都给你抓了，抓完就给你活埋了
-Arrest all the people in an hour to, and buried people alive
+不是猫本小哥投的
+No es invertido por el hermano Maoben
 
-去枪毙都不枪毙你
-No waste bullets
+也不是花王投的
+Ni Hua Wang
 
-你看看这个安不安全，习会更安全
-See if this is safer for him? Xi will be safer
+也不是你的这个微蓝投的
+Tampoco Wei Lan
 
-你现在还给习啊、孟啊，什么孙立军、王立科这些小烂仔给他机会折腾你十年
-Xi Jinping gave Meng Jianzhu, Sun Lijun, Wang Li-ke these little bastards the opportunity to toss himself for ten years
+也不是你RACHEL投的
+O Rachel
 
-你觉得习真的有智慧吗？他没智慧
-Do you think Xi really has wisdom? He has no wisdom
+是真的可信服的人投的
+Es invertido por alguien que es realmente convincente
 
-中国就要出俩人，要不就别出
-China needs to come out two people, or don’t
+也不是七哥的男朋友女朋友投的
+Tampoco es mi novio o novia
 
-中国要么就出个斯大林，是吧？
-China will either have a Stalin, right?
+有权威的机构投了喜联储
+Es una institución autorizada que invirtió el Banco Central de Himalaya
 
-要么就出个华盛顿
-Or a Washington
+认可你的价格
+Acepta tu precio
 
-其他人都不需要
-Nobody else is needed
+比如说我评估你是10亿美元
+Por ejemplo, yo te valoro a mil millones de dólares
 
-或者说台湾的蒋经国
-Or Chiang Ching-kuo from Taiwan
+我评估你是20亿美元
+Calculo que eres dos mil millones
 
-那要其他人干啥？
-Do we need anyone else?
+我评估你是200亿美元
+20 mil millones de dólares
 
-蒋经国能给民主自由法治
-Chiang Ching-kuo can give democracy, freedom and rule of law
+这个是整个喜币未来, 最牛的最关键之一
+Este es el futuro más crucial e importante de la moneda de Himalaya
 
-要么就出个斯大林，让党内这帮王八蛋全杀光他
-Or we can have a Stalin and let him kill all the bastards in the party
+什么意思大家知道吗
+Qué significa esto, ¿ustedes saben?
 
-等待着，最后一次解放的开始
-Waiting for the final moment to liberate China
+你自己玩儿是吧
+Quieres jugar tú mismo, cierto
 
-你接不接受都这样
-Take it or not, it will end like this
+你自己关上门
+Cierras la puerta
 
-你觉得习是斯大林吗？
-Do you think Xi is Stalin?
+买两个按摩器
+Compras dos masajeadores
 
-你觉得习是蒋经国吗？
-Do you think Xi is Chiang Ching-kuo?
+你叫的再高潮
+Por más que sientas orgasmo
 
-他都不是，是最后他会被灭掉
-Neither. He will be destroyed in the end
+那叫自淫, 知道了吧
+Eso se llama masturbación, ¿de acuerdo?
 
-一会儿装斯大林，一会儿装蒋经国
-He pretended to be Stalin one moment and Chiang Ching-kuo the next
+你叫花王跟Estie在屋里边
+Tú le dices a Hua Wang y Estie por más que griten
 
-最后被灭掉，一定会被灭掉
-In the end, he will be destroyed
+他俩怎么喊
+Dentro de la casa
 
-我现在，我说到这的时候，六中全会开完，
-I am now saying that by the time the Sixth Plenary Session is over,
+他即使是自己假喊的  A pesar que él esté gritando de mentira
 
-到20大期间习是真正最危险的时候
-Xi will be the most dangerous time before the 20th National Congress of CCP
+你都认为这俩人搞出来的动静
+Igual piensas que es algo que ellos dos provocaron
 
-我就说过这个墙角效应
-I told you about this corner effect
+这叫什么, 这叫高潮
+Cómo se llama esto, orgasmo
 
-当大家发现确定，我们这房间里的人都会被你干掉的时候
-When people find out they’re all going to be killed in this room
+这是完全两回事儿
+Esto son dos cosas diferentes
 
-就是狗、羊、猪都会奋起咬你几口
-Even if the one being killed is a dog, sheep or pig, it will rise up and bite you
+谁能跟喜币来玩真高潮
+Quién puede jugar al orgasmo real con la moneda de Himalaya
 
-直接冲向那个墙，（因为）我没法活了嘛
-Go straight to that wall, because they can’t live
+这个是证明了你的(价值)
+Esto comprueba tu valor
 
-江浙人多聪明啊，上海人多聪明啊
-Jiangsu and Zhejiang people are so smart ah, Shanghai people are so smart
+七哥有时候讲的是黄色(笑话)
+Yo a veces digo humores descoloridos
 
-现在最后觉得习还得改过来，习也传递了各种好的信息
-Now they think Xi finally had to change over, while Xi also delivered all kinds of good messages
+但是大家能懂
+Pero todos pueden entender
 
-在习身边有各种卧底，随时干掉习
-The Shanghainese have all kinds of undercover agents around Xi who can take him out at any time
+知道吗
+Verdad
 
-当这种幻想都没有的时候
-When they don’t have this delusion
+以黄传达真相是最好的方式
+El humor descolorido es la mejor forma para transmitir la verdad
 
-这就是当年吴国、楚国是吧？
-like State of Wu and State of Chu in the old day, right?
+就像抖音就这么成功的
+Así fue Tik Tok como se hizo exitoso
 
-老子给你干了，是吧？没办法了
-I’ll have to fight you to the death, right? There’s no way out
+所以说你们要记住
+Por eso ustedes deben recordar
 
-陈胜吴广，上海也能出两个
-Chen Sheng, Wu Guang, Shanghai can also produce two people who unveiled the uprising
+看谁投喜联储
+A ver quién invierte en el Banco Central de Himalaya
+
+投了评估认可价多少钱
+¿Cuánto invirtió en el precio de tasación aprobado?
+
+这是第一条
+Esto es lo primero
 
 * * *
 
-Date:10/26/2021
-原视频标题: 习在20大前最危险，最后一定会被干掉
-Xi is the most dangerous before the 20th Congress of the CCP, and will definitely be killed in the end
-原视频日期：2021/10/22
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1452235250705129472?](https://twitter.com/se1y7cblljselva/status/1452235250705129472?)s=24任务编号：KC205（2660）
-视频时间段 : 0:00-2:01
-英听校：洛杉矶盘古农场 – Mike Li
-翻译：洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – Layka
-字幕+视频制作：洛杉矶盘古农场 – 小战蚁
+日期：10/27/2021
+原视频标题：权威机构的投资认定是决定喜馬拉雅币价值的关键之一
+La identificación de inversión de una institución autorizada es una de las claves para determinar el valor de la moneda de Himalaya
+原视频日期：10/23/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1451875315890864130?s=24](https://twitter.com/se1y7cblljselva/status/1451875315890864130?s=24)
+任务编号：KC208（2644）
+视频时间段：0:00-1:24
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

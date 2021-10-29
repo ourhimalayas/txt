@@ -2,138 +2,178 @@
 ---
 
 
-## 权威机构的投资认定是决定喜马拉雅币价值的关键之一
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1625849/)
+## 11家中共基金大买大进洗走50亿到80亿之间美国人的财富
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1625878/)
 
-整个喜联储
-Todo el Banco Central de Himalaya
+**郭文贵
+Miles Guo**
 
-当它宣布它的投资者机构
-Cuando él anuncie su organización inversora
+20号公布,公布完的第二天
+(SPAC’s stock ) was announced on the 20th , and on the next day
 
-记住啊
-Recuerden
+叭股票就从4万手变成了600万手
+the stock trade volume had gone from 40 thousand shares to 6 million, wow
 
-投资者机构真正的投钱
-La verdadera inversión de dinero de la organización inversora
+11家基金大买大进
+11 foundations had purchased huge amounts of these shares
 
-不是猫本小哥投的
-No es invertido por el hermano Maoben
+也就自己买自己炒呗（股票）最高达到174
+They were playing the stock market trade within themselves, the highest price went up to $174
 
-也不是花王投的
-Ni Hua Wang
+这一定是内部交易和操纵股市
+This must be insider trading and manipulation of the stock market
 
-也不是你的这个微蓝投的
-Tampoco Wei Lan
+这个时候的MAGA
+Right in that time, the (Make America Great Again) MAGA
 
-也不是你RACHEL投的
-O Rachel
+川普总统的MAGA组织
+President Trump’s MAGA Organization
 
-是真的可信服的人投的
-Es invertido por alguien que es realmente convincente
+MAGA组织的钱，蓝领的钱就进来了
+The money from the MAGA organization, the blue-collar’s money came in
 
-也不是七哥的男朋友女朋友投的
-Tampoco es mi novio o novia
+甚至有些人想投机的人就跟着进来了
+Even some people who want to speculate have jointed in
 
-有权威的机构投了喜联储
-Es una institución autorizada que invirtió el Banco Central de Himalaya
+他们的目的就是让这些人把你干掉
+Their (The CCP) goal is to let these people take you down
 
-认可你的价格
-Acepta tu precio
+把你的钱卷走
+and to wash out your money
 
-比如说我评估你是10亿美元
-Por ejemplo, yo te valoro a mil millones de dólares
+那么这个时候大家要看到
+Now you all need to notice that
 
-我评估你是20亿美元
-Calculo que eres dos mil millones
+就在（股票）炒到174的时候
+when this stock was trading up to the price of $174
 
-我评估你是200亿美元
-20 mil millones de dólares
+瞬间回到100、94
+it flashed back to $100, then $94
 
-这个是整个喜币未来, 最牛的最关键之一
-Este es el futuro más crucial e importante de la moneda de Himalaya
+然后关闭市场
+and followed by the market closed
 
-什么意思大家知道吗
-Qué significa esto, ¿ustedes saben?
+星期五回到了45美金
+It went back to $45 on Friday
 
-你自己玩儿是吧
-Quieres jugar tú mismo, cierto
+接下来的2周到3周，在未来5周以内最关键的
+The next 2 to 3 weeks, the following 5 weeks are the most critical
 
-你自己关上门
-Cierras la puerta
+那么在当时（股价）上到174 的时候市值多少钱
+So, how much was the market value when it went up to $174?
 
-买两个按摩器
-Compras dos masajeadores
+也就是说在市场卖出的一共是
+In other words, the total sold in the market was
 
-你叫的再高潮
-Por más que sientas orgasmo
+22.80个Million，2280万股
+22.80 Million, 22.8 million shares
 
-那叫自淫, 知道了吧
-Eso se llama masturbación, ¿de acuerdo?
+最高的时候乘以174
+It multiplies by $174 which is the highest price
 
-你叫花王跟Estie在屋里边
-Tú le dices a Hua Wang y Estie por más que griten
+值多少钱大家算过吗？
+Have you ever calculated how much it is worth?
 
-他俩怎么喊
-Dentro de la casa
+100多亿美元，快170亿美元了
+it’s more than 10 billion U.S. dollars, it’s almost 17 billion U.S. dollars
 
-他即使是自己假喊的  A pesar que él esté gritando de mentira
+就这突然间（市值）就上了170亿去了
+Just this suddenly, (the market value) went up to 17 billion dollars
 
-你都认为这俩人搞出来的动静
-Igual piensas que es algo que ellos dos provocaron
+从170亿，吧唧给打回来了
+but then it was quickly called back from 17 billion dollars
 
-这叫什么, 这叫高潮
-Cómo se llama esto, orgasmo
+变成了90多块钱的时候也100多亿美元
+It was still worth more than 10 billion dollars when the share price dropped to $90
 
-这是完全两回事儿
-Esto son dos cosas diferentes
+也100多亿美元
+It was worth more than 10 billion dollars
 
-谁能跟喜币来玩真高潮
-Quién puede jugar al orgasmo real con la moneda de Himalaya
+那家伙了不得了
+That was incredible
 
-这个是证明了你的(价值)
-Esto comprueba tu valor
+川普总统的3个亿美元就2.96亿美元
+President Trump’s 300 million US dollars, although it just 296 million US dollars
 
-七哥有时候讲的是黄色(笑话)
-Yo a veces digo humores descoloridos
+是肯定是他了
+It was certainly his (money)
 
-但是大家能懂
-Pero todos pueden entender
+他如果有25%（股权）的话
+If he has 25% of the equity
 
-知道吗
-Verdad
+按照现在的（股价）
+according to the current share price
 
-以黄传达真相是最好的方式
-El humor descolorido es la mejor forma para transmitir la verdad
+他得拿走10亿美元
+he could take away 1 billion dollars
 
-就像抖音就这么成功的
-Así fue Tik Tok como se hizo exitoso
+如果90%的话
+If it’s 90% of the equity
 
-所以说你们要记住
-Por eso ustedes deben recordar
+他拿走几十亿美元
+he could take away millions of dollars
 
-看谁投喜联储
-A ver quién invierte en el Banco Central de Himalaya
+那么最后
+So finally
 
-投了评估认可价多少钱
-¿Cuánto invirtió en el precio de tasación aprobado?
+我现在告诉战友的事情
+the business that I’m telling my fellow fighters now
 
-这是第一条
-Esto es lo primero
+这些钱背后大家都知道
+is that everyone knows what behind these money
+
+全都是共产党的基金
+All these are the CCP’s foundations
+
+PAG、吴征、Sam Numberg、运鸿
+PAG, Bruno Wu, Sam Numberg, and Yunhong
+
+中国对外合作所有投资机构
+as well as all investment institutions in China’s foreign cooperation
+
+包括Jack Ma的
+including Jack Ma’s
+
+全部弄走
+the total amount that has been washed out
+
+大概50亿美元
+is approximately 5 billion dollars
+
+我可以（确定）大家别吓懵了
+Please don’t be shocked, I can confirm that
+
+大概洗走50亿到80亿美元之间
+approximately 5 to 8 billion US dollars has been washed out
+
+惊天的数字啊
+It’s a shocking number
+
+是美国SPAC有史以来最快最高增长（的股票）
+(The stock) is the fastest and highest growth in the history of SPAC in the US
+
+最快就是涨的最快落得最快
+The fastest means that the price shot up and went down in the fastest speeds
+
+这个中间的操作时间最短，钱被洗走最快的
+and the operation time was the shortest, as well as the money laundered was the fastest
+
+什么都是最快，就是共产党干的
+Everything was the fastest, that was manipulated by the Communist Party
 
 * * *
 
-日期：10/27/2021
-原视频标题：权威机构的投资认定是决定喜馬拉雅币价值的关键之一
-La identificación de inversión de una institución autorizada es una de las claves para determinar el valor de la moneda de Himalaya
-原视频日期：10/23/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1451875315890864130?s=24](https://twitter.com/se1y7cblljselva/status/1451875315890864130?s=24)
-任务编号：KC208（2644）
-视频时间段：0:00-1:24
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
+Date: 10/26/2021
+原视频标题: 11家中共基金大买大进洗走50亿到80亿之间美国人的财富
+11 CCP foundations large amount purchased has laundered the wealth of Americans 5 to 8 billion dollars
+原视频日期：2021/10/24
+原视频链接: [https://twitter.com/se1y7cblljselva/status/1452952638744530946?s=24](https://twitter.com/se1y7cblljselva/status/1452952638744530946?s=24)
+任务编号：KC209（2676）
+视频时间段 : 0:00-2:20
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
 审片：洛杉矶盘古农场 – 银龙
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

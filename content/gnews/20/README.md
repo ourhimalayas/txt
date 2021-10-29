@@ -2,36 +2,24 @@
 ---
 
 
-## 美议员推新法案全球追踪中共活动
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1625746/)
+## 秘翻在线：卡车司机警告说疫苗强制令将加剧供应链危机
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1625774/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+#### 翻译/撰稿：zzballack
 
-10月27日，美国国会共和党人推出名为“中（共）国观察法”（China Watcher Act）的议案，计划将在国务院设立新项目，以监测、追踪和抗衡中共国在国际社会的军事、经济和政治动态。
+#### 校对：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-532.png)图片来源：福克斯商业新闻
+据《布雷特巴特新闻网》（Breitbart News）10月28日报道，本周四（10月28日），参议员玛莎·布莱克本 (Marsha Blackburn)就其提出的《保住我们COVID-19英雄的工作法案》举行了新闻发布会。与会人员还有共和党参议员罗杰·马绍尔 (Roger Marshall)、迈克·布劳恩 (Mike Braun)和主要的行业领袖。他们在会上警告说，由于联邦政府的疫苗强制令，员工要么遵从命令，要么失去工作，这只会使现有的供应链危机进一步恶化。
 
-据美国之音报道，来自纽约州的共和党联邦众议员坦尼（Rep. Claudia Tenney, R-NY）星期三推出名为“中（共）国观察法”（China Watcher Act）的议案。该法案计划在2022财年拨款一千万美元在国务院成立新的“中（共）国观察项目”（China Watcher Program），锁定中共在国际领域的各种影响力为目标进行观察。
+布莱克本参议员在会上解释说：“该法案将给予那些在大流行期间被认为是不可或缺的工人特别豁免，使其不受疫苗强制令的影响。不可或缺的工人指的是当地社区的医护人员、卡车司机、第一响应者、建筑工人和杂货店员工。法案最终将以不同的方式在全国范围内发挥作用，关键是要保护那些在大流行病期间提供服务的人。”
 
-根据内容，法案指示国务卿在与国防部长协调后在国务院内设立一项新的“中（共）国观察项目”。该项目将追踪和抗衡中共在外国的军事、经济和政治领域的恶意影响；强化美国政府与外国以及区域和国际机构的沟通能力，以应对中共恶意影响的政策；派驻外交事务官员到美国特定驻外外交和领事职位，与中共国和包括所在国的第三方国家在涉及中共恶意影响的议题上进行接触；指示国务卿将受到中共影响并涉及到美国在当地利益的国家列为优先要务。
+马绍尔参议员说，这些工人现在正面临困境，我被告知有20%-50%的蓝领工人已经决定不接种中共病毒疫苗，人们还问我疫苗强制令最终将对卡车运输业产生什么影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211029121428.png)图片来源：https://www.voachinese.com/a/us-gop-lawmaker-introduces-china-watcher-act-20211027/6288717.html
+业主独立司机协会（Owner–Operator Independent Drivers Association）主席托德·斯宾塞说（Todd Spencer）：“由于卡车运输业受到严格监管，这些强制令大多都是针对司机的，很多卡车司机对此已经受够了，他们将因此退休。”
 
-法案还要求“中（共）国观察项目”的外交和领事职位必须提出年度报告，内容必须包含提出建议、讨论趋势和分析事态，包括中共国在外国关键产业直接投资的性质和范围。
+全美小型卡车公司协会（National Association of Small Trucking Companies）主席大卫·欧文（David Owen）在新闻发布会上明确表示：“在我们的现今世界，当涉及到工作时，每个人都是不可或缺的。卡车运输业更是如此。我不认为公众能理解卡车必须每天都得跑，司机也不能怠工任何一天。各位已经看到杂货店货物短缺了，燃料也很快会短缺，其价格将继续走高。司机们的工作非常重要，我们会全力支持他们，并希望能够利用这一点，使这个苛刻、霸道的政府得到控制。”
 
-坦尼在书面声明中表示，法案的目的在于为美国政府提供更多资源，以便更好地掌握中共的各种势力扩张和影响力渗透，并同时增加政府各部会之间合作应对任何可能威胁。她说，“中共国横行无阻太久了，现在是美国采取果断行动的时候了。”
-
-众议院外交事务委员会首席共和党成员麦考尔（Rep. Michael McCaul, R-TX）也在书面声明中说，“在中国共产党统治下，中共国从事的恶意活动遍布全球各地，这项挑战与其它挑战都不同，需要具有全球战略眼光，美国国务院有必要成立一个专门小组，追踪中共国的恶意活动。”
-
-目前这项法案获得众议院两党七位议员的联署支持，包括共和党人麦考尔、杰克逊（Rep. Ronny Jackson, R-TX）、梅杰尔（Rep. Peter Meijer, R-MI）、曼恩（Rep. Tracey Mann, R-KS）和巴宾（Rep. Brian Babin, R-TX）,以及民主党人席瑞斯（Rep. Albio Sires, D-NJ）和菲利普斯（Rep. Dean Phillips. D-MN）。
-
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[美议员推跨党派法案 在全球追踪抗衡中国](https://www.voachinese.com/a/us-gop-lawmaker-introduces-china-watcher-act-20211027/6288717.html)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+新闻来源：[Truckers Warn Joe Biden’s Vaccine Mandate Will Worsen Shortages Across the Country](https://www.breitbart.com/politics/2021/10/28/truckers-warn-bidens-vaccine-mandate-will-worsen-shortages-across-the-country/)
 
  
 

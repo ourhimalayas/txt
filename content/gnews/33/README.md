@@ -2,48 +2,26 @@
 ---
 
 
-## 澳洲受春季风暴袭击后，数千人断电，农作物受损
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1625647/)
+## 秘翻在线：纽约市消防员工会要求法院禁止强制接种中共
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1625656/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 撰稿：彩虹       
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Queensland-SES-.jpg)
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16354992641.png)图片来源：雅虎
+10月28日，《新闻极限》引述路透社的文章，报道针对市长比尔·德布拉西奥（Bill de Blasio）命令要求所有城市雇员只有接受中共病毒（COVID-19）疫苗后才能继续工作，周四，代表纽约市消防员的工会要求州法院禁止该命令的执行。
 
+上周，德布拉西奥设定了一个星期五下午5点的最后期限，要求约5万名城市雇员提交中共病毒（COVID-19）疫苗接种证明，否则将面临无薪停职。
 
+文章说，消防员工会代表消防员、消防队长和其他消防部门成员。消防员工会的领导人已经告诉未接种中共病毒疫苗的消防员，可以无视德布拉西奥的命令去报到上班。
 
-图片来源：1015fm.com.au
+报道认为，从周一开始，如果不能证明已经接受了至少一剂中共病毒疫苗，那么，数以千计的纽约市工作人员可能就会被送回家。
 
+在消防员工会的此次法庭行动之前，该市的警察工会也提出了类似的法律挑战，但未获成功。报道说，周一，纽约市警察工会曾提起诉讼，反对德布拉西奥对市政工人的强制接种疫苗命令。周三，纽约州的一名法官拒绝了警察工会提出的暂时阻止该命令的请求。
 
-#### 编译：小红帽
+**新闻来源**
 
-在一场风暴袭击了澳大利亚阿德莱德和该州大部分地区后，九所学校被关闭，近8000户家庭和企业仍处于停电状态，财产、农作物和葡萄园都受到了破坏。
-
-气象局表示，周四晚上8点左右，克劳福德山的最大风速为107公里/小时，洛夫蒂山脉地区在周五上午9点之前的24小时内降雨量为20.4毫米。
-
-在大都市地区，阿德莱德机场的风速为96公里/小时，而爱丁堡的阵风则高达95公里/小时。
-
-高尔夫球大小的冰雹落在北部郊区和巴罗莎谷。
-
-风暴使12,000多户人断电，南澳电力网络公司已为大约4000人恢复供电。
-
-教育部表示，周五有九所学校因风暴破坏而关闭。
-
-国家紧急服务局表示，周四接到了1213通求助电话，周五早上又接到了125通电话。
-
-“其中大部分是在索尔兹伯里地区，”国家紧急服务局值班人员布伦顿·克拉克（Brenton Clarke）说，大部分损失都与周四的冰雹有关。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Thousands without power, crops damaged after storm | The New Daily](https://thenewdaily.com.au/news/2021/10/29/power-crop-damage-storm-indaily/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[New York City Firefighters Union Asks Court to Halt City’s Vaccine Mandate](https://www.newsmax.com/newsfront/fdny-protests-vaccine-mandate/2021/10/28/id/1042432/)
 
  
 

@@ -2,47 +2,30 @@
 ---
 
 
-## 医生亲自验证伊维菌素可以治疗新冠病毒
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1625791/)
+## 台湾一机师在接种两剂疫苗后感染中共病毒
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1625810/)
 
-**简评：**
+**撰稿：日本东京方舟农场 Kevin wang**
 
-Simon医生和Jeff Halcomb分别感染了新冠病毒。他们没有去医院，开始自行服用伊维菌素和其他有效的补充剂，两三天的时间就恢复了健康。医疗自由很重要，医疗政治化会断送可能康复的机会。
+据苹果新闻网10月28日报道，台湾长荣航空一名美籍机师在完整接种两剂疫苗的情况下，仍于27日采验阳性确诊。
 
-GTV视频链接：[Dr. Simone Gold: 服用伊维菌素后，我的身体就复苏, 三天之内，我恢复正常](https://gtv.org/video/id=6178019b247c5a3f90902b22)
+报道称，这名长荣航空的美籍机师于10月22日返台，因已完整接种2剂疫苗，依规定执行5天居检，PCR采阴后可出关，而昨本是该机师居检满5天出关日，但采验PCR呈现阳性。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211029125307.png)图片来源：https://tw.appledaily.com/life/20211028/JY2IM2L6KNDZ3CM4PZCLDESZ54/
 
+中央流行疫情指挥中心指挥官陈时中10月28日下午证实，这名机师人员于7 月打过2剂辉瑞。
 
-**视频字幕：**
+另外，指挥中心医疗应变组副组长罗一钧说，9月共出现3名机师在注射疫苗后仍突破性感染。截至目前共有5名机师出现突破性感染，感染机师都有打过2剂疫苗。
 
-**Simon医生：**有一天，我觉得有点不对劲，我发现我无法品尝那杯咖啡。这咖啡怎么回事？ 是不是咖啡壶需要洗了？
+*注：本文仅代表作者观点，与 Gnews无关*
 
-然后突然间意识到，哦～我想我感染了新冠病毒。
+*参考链接：*
 
-我知道伊维菌素，所以我开始服用伊维菌素和我所听说过的有效补充剂。我开始服用了。你知道，我确实相信这可以帮助我康复。
+[長榮機師打2劑BNT！第5例遭突破感染　羅一鈞：Ct值28剛染疫](https://tw.appledaily.com/life/20211028/JY2IM2L6KNDZ3CM4PZCLDESZ54/)
 
-我能感觉到几天后我就变好了。大概两天的时间，我知道我已经在好转。所以这对我来说是做对了。
+* * *
 
-**Jeff Halcomb：**我开始感觉很不舒服，失去力量。那周我排了满满的工作，我说，亲爱的我觉得不对劲。
-
-在我服用伊维菌素之前，我高烧。我失去了味觉，我感觉全身无力。在我开始服用伊维菌素后，我的身体就复活了。
-
-三天之內我恢复正常，准备去上班。
-
-**Dr. Simon：**医疗自由对我来说胜过一切。沒有它，我无法为自己做出任何选择。
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*字幕：Vekap|翻译：TCC|PR:Boxinglady|简评/文字整理/编辑：胖丁| Page：小六月*
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
-
-[![](https://spark.adobe.com/page/PqhvRbO83gwBi/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/PqhvRbO83gwBi/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
-
+*编辑：文顺 校对：Ranting 发布：Ranting*
 
  
 

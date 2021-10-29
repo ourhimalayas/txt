@@ -2,48 +2,47 @@
 ---
 
 
-## 郭先生：DWAC内幕交易问题将暴露中共渗透美国司法界的行动
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1625767/)
+## 医生亲自验证伊维菌素可以治疗新冠病毒
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1625791/)
 
-**撰稿：日本东京方舟农场 海星**
+**简评：**
 
-据盖特（gettr）用户秘密翻译组发布的视频，爆料革命、新中国联邦创始人郭文贵先生在10月27日的直播中表示，DWAC涉嫌内幕交易的问题将暴露中共对美国司法界实施的全面渗透行动。
+Simon医生和Jeff Halcomb分别感染了新冠病毒。他们没有去医院，开始自行服用伊维菌素和其他有效的补充剂，两三天的时间就恢复了健康。医疗自由很重要，医疗政治化会断送可能康复的机会。
 
-郭先生披露，中共代理人吴征在两年前就被美国联邦调查局（FBI）刑事调查，此次不仅故意隐瞒被调查的事实，更利用SPAC空壳公司DWAC收购了川普总统的科技公司，并在上市后操控其股价，瞬间吸走投资人的钱。郭先生表示，美国SEC一定会对这个案子进行调查。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10.261.jpg)
-
-此外，在投资DWAC的11家基金中，有8家基金是由中共控制，来自吴征以及运鸿集团，而且这8家公司因为太平联盟而进行投资。这就意味着中共和太平联盟高度合作。
-
-郭先生分析说，由于吴征在DWAC收购案的法律文件上清楚地写下了他和太平联盟以及相关律师事务所的关系，这将会揭穿共产党通过太平联盟对整个美国律师界、司法界、法院、检察官等领域实施渗透的犯罪行动。
-
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[10/27/2021 Miles Guo: The issue of DWAC indicates the scams and criminal offenses committed by Bruno Wu on behalf of the CCP, and this is the greatest gift to the New Federal State of China and will expose the CCP’s infiltration, fraud, and conflict of interest among the lawyers, and in the prosecutors and courts in the US](https://gettr.com/post/pfde174c6a)
+GTV视频链接：[Dr. Simone Gold: 服用伊维菌素后，我的身体就复苏, 三天之内，我恢复正常](https://gtv.org/video/id=6178019b247c5a3f90902b22)
 
 
 
-> [10/27/2021 Miles Guo: Eight to nine out of the eleven funds investing in DWAC did so because of PAG](https://gnews.org/1622235/)
+**视频字幕：**
 
+**Simon医生：**有一天，我觉得有点不对劲，我发现我无法品尝那杯咖啡。这咖啡怎么回事？ 是不是咖啡壶需要洗了？
 
+然后突然间意识到，哦～我想我感染了新冠病毒。
 
+我知道伊维菌素，所以我开始服用伊维菌素和我所听说过的有效补充剂。我开始服用了。你知道，我确实相信这可以帮助我康复。
 
+我能感觉到几天后我就变好了。大概两天的时间，我知道我已经在好转。所以这对我来说是做对了。
 
-> [2021年10月24日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1617154/)
+**Jeff Halcomb：**我开始感觉很不舒服，失去力量。那周我排了满满的工作，我说，亲爱的我觉得不对劲。
 
+在我服用伊维菌素之前，我高烧。我失去了味觉，我感觉全身无力。在我开始服用伊维菌素后，我的身体就复活了。
 
+三天之內我恢复正常，准备去上班。
 
+**Dr. Simon：**医疗自由对我来说胜过一切。沒有它，我无法为自己做出任何选择。
 
+*编辑：【英国伦敦喜庄园编辑部】*
 
-> [郭先生多起案子背后全是吴征](https://gnews.org/zh-hans/1617547/)
+*字幕：Vekap|翻译：TCC|PR:Boxinglady|简评/文字整理/编辑：胖丁| Page：小六月*
 
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
 
-* * *
+[![](https://spark.adobe.com/page/PqhvRbO83gwBi/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/PqhvRbO83gwBi/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
 
  
 

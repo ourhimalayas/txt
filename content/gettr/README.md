@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/29/2021 12:30 PM (UTC)`
+
+2021年10月29日 文贵大直播：美股一周大事件；金油粮食人工价；国内违约房地产；喜币应运虚拟币
+![img](https://media.gettr.com/group33/origin/2021/10/29/12/5924761e-1746-4ac6-cdb8-4645b039d54d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@tangping 10/29/2021 9:17 AM (UTC)`
@@ -298,13 +305,6 @@ The relationship analysis of the characters in SPAC that merged with Trump media
 
 With his new platform, Trump may bring his supporters back to the social media world. And Gettr, as the global leaders for free speech with advanced technology and crypto future, can take this opportunity to attract and re-energize them.<br/><br/>凭借川普的新平台，川普可能会将他的支持者带回社交媒体世界。 而盖特（Gettr）作为拥有先进技术和加密未来的言论自由的全球领导者，可以借此机会吸引并重新激发他们的活力。
 ![img](https://media.gettr.com/group23/getter/2021/10/25/02/40/dca8ecc1-ac64-1809-2e0b-a8d1f150e4d9/out.jpg)
-
----
-
-`@miles 10/25/2021 2:34 AM (UTC)`
-
-10/24/2021 Miles Guo: President Trump’s political opponents will make trouble for him, while Pompeo will be more advantageous. No matter how many shares of DWAC’s stock you bought, you can sue it as long as the stock price plunges, and you are highly likely to receive substantial compensations<br/><br/>10/24/2021 文贵直播：川普总统的政敌将给他制造麻烦，而蓬佩奥会更有优势；不论你买了多少DWAC股票，只要它的股价下跌，你就可以起诉它，且大概率能得到大量赔偿<br/>
-![img](https://media.gettr.com/group36/getter/2021/10/25/02/34/1ec9adc3-c449-aa81-2d32-75b39b8b5991/out.jpg)
 
 ---
 
