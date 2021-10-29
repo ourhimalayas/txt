@@ -2,42 +2,48 @@
 ---
 
 
-## 因为美国寻求推翻引渡禁令，阿桑奇出庭聆讯
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1624805/)
+## 加拿大安大略省议员提议调查新冠疫苗与突发死亡的关系
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1624989/)
 
-据《零对冲》记者：Tyler Durden，2021 年 10 月 27日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-523-e1635472330908.png)图片来源：美联社
-维基解密创始人朱利安·阿桑奇仍然在伦敦戒备森严的贝尔马什监狱中苦苦挣扎，他将于周三和周四出庭，参加一场关键的听证会，这有可能改变潜在的游戏规则。
+作者：纽约香草山农场 – 文百合
 
-法院将根据美国司法部关于他不会在美国面临残酷监禁的保证，从而决定他是否应该被引渡，是否足以推翻之前禁止引渡他的禁令，这正是美国在高等法院 1 月份的裁决之获得上诉后寻求做的事情。该裁决称他将面临美国联邦监狱系统的严格、严酷的监禁，可能在美国联邦监狱（ADX Florence supermax）这样的地方。
 
-在本周诉讼程序开始之前，维基解密总编辑克里斯汀·赫拉夫森 (Kristinn Hrafnsson) 表示，伦敦法院撤销之前的决定，取消引渡禁令是“完全无法接受的”和“不可想象的”。
 
-“不可想象高等法院做出任何其他决定。除了维持地方法院的判决，其他任何事情都是完全不可接受的。”赫拉夫森说。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-“这将是这个国家系统的一个污点。我当然希望能有足够的压力，并意识到如果法官以某种方式推翻地方法院的判决，这将对这个国家造成多么大的破坏。”
 
-同样让美国检察官感到无助的情况是，最近《雅虎新闻》调查披露了一个据称中央情报局密谋暗杀或绑架阿桑奇，并以武力将他带回美国领土的详细信息。阿桑奇的法律团队和他的家人 —— 尤其是他的未婚妻 —— 最近都指出，仅对中央情报局的揭露就足以摧毁华盛顿的案件和地位。
 
-莫里斯女士说：“这是一场改变游戏规则的上诉，因为它显示了美国针对朱利安的行动的真实性质、真正的起源和真正的犯罪行为，并且完全玷污了上诉的任何合法性。”
+10月25日，安省独立议员Randy Hiller 向安省警察署正式提起疫苗伤害和死亡案例关系的调查议案。
 
-此外，阿桑奇两个儿子的母亲斯特拉·莫里斯认为，中央情报局过去也曾密谋要杀死她。她同时长期代表阿桑奇作为维基解密法定时间的一部分。
+在议案中，他提到调查起因是由于近期年轻人的突然死亡案例激增，多数死者家属都怀疑死亡的原因与新冠疫苗注射史有关。死者家属以及社会大众都想要官方能尽快彻查并给出答复，是否这些伤害、死亡与新冠疫苗有关。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-111.jpg)
+议员Randy Hiller表示因为此提案，他收到了很多恐吓和威胁，但他仍然坚持提出此议案，希望警署尽快展开调查，尤其针对年轻人的伤害与死亡。他表示作为安省的独立议员，尽职尽责地帮助民众解决问题是他的本职工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-83.jpg)
+参考链接：
+[Canadian Politician demands urgent investigation into rise of sudden deaths among Teens following Covid-19 Vaccination](https://theexpose.uk/2021/10/27/politician-demands-investigation-sudden-deaths-teens-after-covid-vaccination/)
 
-“感觉我们就像是猎物，因为我是最接近朱利安的人，我觉得我显然是一个目标。”她早些时候在伦敦告诉记者，“我觉得也许他们可能会殴打我或试图杀死我或做些事情找到朱利安，因为他们不顾一切地想把他赶出大使馆并送进贝尔马什监狱。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-如果本周诉讼程序对阿桑奇有利，目前尚不清楚接下来会发生什么。但如果法院裁决对美国不利，这无疑会为阿桑奇创造巨大的势头，成为阿桑奇胜利的关键，有可能最终让自由触手可及。
+总编/编辑：木白
+校对/发稿：为真不破20
 
-但就目前而言，美国及其情报盟友（包括英国）的战略似乎仍在尝试设置尽可能多的法律障碍和上诉方式，以永久阻止他的自由 —— 让他留在贝尔马什，等待一个似乎永无休止的法律程序。
+**更多资讯，更多关注**
 
-文章来源：https://www.zerohedge.com/political/julian-assange-court-gamechanger-hearing-us-seeks-overturn-extradition-ban
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-翻译：洛杉矶盘古农场 – Raul
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-校对/编辑：洛杉矶盘古农场 – 明子
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

@@ -17,6 +17,24 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@tangping 10/29/2021 9:17 AM (UTC)`
+
+金属质感的声音，《Hcoin to the moon》试听多10秒😂
+![img](https://media.gettr.com/group2/getter/2021/10/29/09/17/fe9f5cf9-da1d-d5eb-5948-b0ff645d5fde/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@tangping 10/29/2021 9:43 AM (UTC)`
+
+Welcome to the world！<br/>To the new world！<br/>Hcoin to the moon！<br/>不能发完整版，憋死😂
+![img](https://media.gettr.com/group38/getter/2021/10/29/09/43/d2219abd-9d00-a16b-1e86-77f5da02ecb1/out.jpg)
+
+---
+
 `@miles 10/29/2021 8:35 AM (UTC)`
 
 CNN：蔡英文首次公开承认美国军队正在台湾训练台湾部队<br/><br/>CNN：Tsai Ing-wen confirms US troops are on the island training Taiwanese troops
@@ -287,20 +305,6 @@ With his new platform, Trump may bring his supporters back to the social media w
 
 10/24/2021 Miles Guo: President Trump’s political opponents will make trouble for him, while Pompeo will be more advantageous. No matter how many shares of DWAC’s stock you bought, you can sue it as long as the stock price plunges, and you are highly likely to receive substantial compensations<br/><br/>10/24/2021 文贵直播：川普总统的政敌将给他制造麻烦，而蓬佩奥会更有优势；不论你买了多少DWAC股票，只要它的股价下跌，你就可以起诉它，且大概率能得到大量赔偿<br/>
 ![img](https://media.gettr.com/group36/getter/2021/10/25/02/34/1ec9adc3-c449-aa81-2d32-75b39b8b5991/out.jpg)
-
----
-
-`@miles 10/25/2021 2:22 AM (UTC)`
-
-10/24/2021 Miles Guo: 3 Reasons Why CCP Set up Financial Trap against Trump<br/><br/>10/24/2021 文贵直播：三个原因为什么中共给川普设金融陷阱
-![img](https://media.gettr.com/group17/getter/2021/10/25/02/22/1ff2ebaf-9b72-b9c4-a2e0-582b60f7da9f/out.jpg)
-
----
-
-`@miles 10/24/2021 9:29 PM (UTC)`
-
-10/24/2021 Miles Guo: Bruno Wu is under criminal investigation in the US, so he and Yang Lan will end up in a more miserable way than Wang Jian. President Trump’s SPAC will end up in an absurd, comical, and catastrophic manner, and his relationship with the Whistleblowers’ Movement and GETTR will turn out to be way better than expected!<br/><br/>10/24/2021 文贵直播：吴征在美被刑事调查，他和杨澜的结局将比王健更惨；川普总统的SPAC将以荒唐、滑稽和灾难性的结果结束；川普总统跟爆料革命和盖特的关系会比我们想象得更好！<br/>
-![img](https://media.gettr.com/group32/getter/2021/10/24/21/29/134e3d60-2432-7a93-64a6-8659a92b553c/out.jpg)
 
 ---
 
