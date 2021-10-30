@@ -2,34 +2,38 @@
 ---
 
 
-## 中共借“共同富裕”稳房地产市场
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1626435/)
+## 2021/10/28 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1626449/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月27日，中共媒体再度洗脑民众，将其房地产市场挂钩在中共所谓的“共同富裕”上。为此，中共将恶性调控再次牵连到城市住房租赁、城市更新，及老旧小区改造等方面。
+1. 邪恶中共开始在墙内全面推行3-11岁小孩接种毒疫苗。
+2. 隔离后家被安装警报器，隔离意味着更大程度的失去自由。
+3. 新增确诊病例发声证实曾打3针疫苗也被感染。这证明疫苗对防疫病毒根本无效。
+4. 10月26日，河南安阳。即使司机用预充油卡加油也被限制。因为油荒还是等涨价才让加？
+5. 10月25日，广西柳州一货车停路边数天，司机被发现时已无生命体征。车门未关闭。
+6. 10月24日，广东佛山南海区村治保队员在违停车的前挡玻璃司机位置贴两大张警告纸。
+7. 选择性执法。10月24日，浙江绍兴，选择性执法。男子将车停在人行横道上被贴罚单，“为什么对面卖二手车的不贴罚单”。
+8. 在中共国勤劳并不代表着有尊严。中共国一货车司机戏说着群体被压榨的无奈。
+9. 10月27日吉林长春，男子在医院开错检查项目，需多部门签字才能退费。
+10. 房地产行业摇摇欲坠，郑州阳光城二期交房遥遥无期，销售经理语出惊人：“我们还不能倒闭了？”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-6.jpeg)
 
-据消息称，目前，恒大引发的房地产债务危机日益逼近，中共国内城市用地拍卖规模进一步收缩，大量的新建住宅项目停工。此时，中共在城市住房、小区改造等方面大动手脚，其目的就是通过盘剥普通民众的财产来为其经济续命。
+*Page: 青山*
 
-对此，郭先生在直播中指出，中共的“共同富裕”是对社会财富进行重新划分的借口。在中共国，房地产的各个环节已被中共政府层层征税，而今又继续加征房产税。文贵先生强调，没有人能够在中共政府的公共服务和个人财产分配中受益。
+* * *
 
-参考链接：[共同富裕需要房地产市场稳健发展](https://3g.163.com/dy/article/GNA2PI3K0519AKBM.html?spss=adap_pc)
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：谐趣园
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

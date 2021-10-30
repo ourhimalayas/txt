@@ -2,118 +2,24 @@
 ---
 
 
-## 吴征在2019年就被美国FBI刑事调查吴征现在是罪上加罪
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1626981/)
+## 规避中概股风险，软银愿景基金首次投资日本企业
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1626998/)
 
-[https://gtv.org/video/id=617b8ee8adfd99590c30b0b1](https://gtv.org/video/id=617b8ee8adfd99590c30b0b1)
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-39.png)[图片来源](https://finance.sina.com.cn/tech/2021-10-28/doc-iktzqtyu3955412.shtml)
+日经中文网10月29日消息，日本软银集团（SBG）旗下的“愿景基金（SVF）”对日本生物初创企业Aculys Pharma进行了投资。这是愿景基金第一次投资日本企业。软银集团正在分散投资地区，有可能扩大在日本的投资。
 
-**郭文贵**
-**Miles Guo**
+Aculys由Novartis Pharma的前社长纲场一成等人在1月成立，计划在日本临床开发已在欧美批准生产销售的睡眠障碍治疗药。此次，愿景基金主导筹集了68亿日元资金，将用于新药在日本的临床试验和销售以及利用人工智能（AI）分析潜在患者的数据等。
 
-我要告诉大家一个重磅的勐料
-I want to tell you all a bombshell news
+愿景基金的1号基金的运用额度已达到986亿美元，主要投给了中美等国的高价值AI相关企业。2号基金完全由软银集团出资。从分散投资风险的角度来看，2号基金对每家企业的平均投资额截至2021年6月底约为2.2亿美元，仅为1号基金平均投资额的2成左右。愿景基金对欧洲、中东及中共国以外亚洲企业的投资正在猛增，可以说日本企业也已进入目标范围。
 
-吴征在2019年
-In 2019, Bruno Wu
+据相关人士介绍，愿景基金为了在日本扩大投资，正准备增加负责人。估计不仅限于Aculys，愿景基金还考虑在日本下一步的投资。
 
-就被美国FBI刑事调查
-was under criminal investigation by the US FBI
+长期以来，中概股都是软银愿景基金的投资重点，据悉目前中概股仍占软银愿景基金持股的四分之一。当前，随着中共在全球信用的不断破产，加之中共出于内斗而对“中概股”进行清理和打击，导致中概股风险暴增，甚至部分股票已成“中丐股”。软银愿景基金，作为外资基金投资中共的风向标之一，其转移投资重心的举动，对中共国科技和资本市场的影响值得关注。
 
-2019年吴征就已经被美国FBI
-Bruno Wu has been (investigated) by the US FBI since 2019
-
-包含他和中共的大概七八个人吧
-including about seven or eight people from the CCP
-
-将近10个人
-near to ten people
-
-全部被FBI刑事调查 （送交）美国司法部
-All of them were investigated by the FBI for criminal investigation, (the case was sent to) the US Department of Justice
-
-你知道这意味着什么吗？
-Do you know what this means?
-
-吴征是美国公民
-Bruno Wu is a US citizen
-
-不回美国接收美国刑事调查
-who does not return to the U.S. under the U.S. criminal investigations
-
-所以从那天起再也没回过美国
-So, he has never returned to the U.S. since that day
-
-不接受美国的刑事调查
-He doesn’t want to be subject to a criminal investigation in the U.S.
-
-逃离美国
-and fled from the U.S.
-
-而且跟他的合伙人就是FBI的Frank
-Also, with his partner Frank, who is the FBI agent
-
-他们还操纵着PAG的官司
-they have been manipulating the PAG lawsuits
-
-律师和法官和各方面
-lawyers, judges, and various parties
-
-操纵美国司法
-manipulating the U.S. judicial system
-
-更重要的在刑事犯罪调查期间
-More importantly, during the criminal investigations
-
-他签署大量的文件
-he has signed a large number of documents
-
-并没有披露
-He has not disclosed (he was under criminal investigations)
-
-也没向川普总统披露
-it also was not disclosed to President Trump
-
-包括他老婆杨澜
-including his wife Yang Lan
-
-包括他弟弟吴斌
-his brother Wu Bin
-
-包括李玉保
-Li Yubao (chairman of the board of directors of China Yunhong Holdings Lim-ited)
-
-所有这些都是刑事犯罪中的刑事犯罪
-All of these are criminal offenses under criminal offense
-
-川普总统的这个Deal(交易)SPAC，他是过不去了
-This SPAC deal with President Trump, he (Bruno Wu) will not get away with it
-
-吴征是罪上加罪
-Bruno Wu commits doubly crime
-
-———————————————————
-
-**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1452951168980713476?s=24](https://twitter.com/se1y7cblljselva/status/1452951168980713476?s=24)
-
-Date: 10/26/2021
-原视频标题: 
-Bruno Wu has been investigated under criminal investigation by the US FBI since 2019
-Bruno Wu currently commits doubly crime
-原视频日期：2021/10/24
-任务编号：KC202(2678)
-视频时间段 : 0:00-1:25
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,137 +2,34 @@
 ---
 
 
-## 中国人拿回土地财富权利才能放下负担走向未来
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1626957/)
+## 日本要闻汇编 10月29日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1626983/)
 
-[https://gtv.org/video/id=617b8e78adfd99590c30b09a](https://gtv.org/video/id=617b8e78adfd99590c30b09a)
+#### 素材：东京樱花团GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-24.png)[*图片来源*](https://headtopics.com/images/2021/10/29/asahi/275152012920107787959-1453884300651208706.webp)
+1、[**日本JR外房线列车和汽车相撞**](https://www.aboluowang.com/2021/1028/1665264.html)
 
-**郭文贵：**
-**Miles Guo：**
+据《日本广播协会》NHK报道，日本千叶市一铁路道口处当地时间今(28日)上午10点40分左右，发生列车与汽车相撞事故，且汽车损坏十分严重，警方和消防队正紧急救援汽车内乘客。报导称，列车为日本铁路公司（JR）开往东京都的外房线，事故发生时列车上有约500名乘客，目前1人死亡。
 
-我们有三样东西，新中国联邦说过
-We have three things that the New Federal State of China has said
+2、[**日本洒钱吸引台积电赴九州设厂**](https://www.voachinese.com/a/TSMC-Plans-To-Open-Chip-Plant-In-Japan-20211028/6285866.html)
 
-大家一定小心去看
-You must look carefully
+晶圆代工龙头台积电(TSMC)10月14日正式宣布将赴日本九州岛投资设厂，日本索尼集团、丰田汽车参与共同兴建，预计2022年动工、2024年完工启用。据多家日媒报道，日本政府拟最高补助约5千亿日圆。可能在10月底众议员大选后编入2021年度的追加预算中。日本首相岸田文雄说，“台积电在日本兴建半导体工厂，可以提高日本半导体产业的自律性，对经济安全产生莫大贡献。”
 
-第一个，没有共产党第一件事情
-First, the first thing without the Communist Party
+3、[**9月有效求人倍率改善 失业率维持2.8%**](https://china.kyodonews.net/news/2021/10/9765f504dcac-9-28.html)
 
-把土地必须还给人民
-The land must be returned to the people
+日本厚生劳动省29日公布的9月有效求人倍率（季节调整值）为1.16倍，较上月上升0.02点，时隔1个月改善。随着全国新冠疫情趋于平息，制造、建筑等行业招聘人数回升。总务省公布的9月完全失业率为2.8%，连续2个月持平。从性别来看，男性失业率为2.9%，环比改善0.2个百分点；女性为2.6%，恶化0.1个百分点。完全失业人数为192万人，较上年同期减少18万人，连续3个月同比减少。有效求人倍率是每名求职者所对应的招聘岗位数量。
 
-很多人来问我这问题，国内的（战友）
-Many people come to ask me this question, the domestic ( Comrades in Arms )
+4、[**河合纯一将任北京冬残奥会日本代表团团长**](https://china.kyodonews.net/news/2021/10/d3305b5a297e.html)
 
-你怎么还呢？
-How do you return it?
+日本残奥委会（JPC）28日宣布，JPC主席河合纯一（46岁）将担任明年3月举行的北京冬残奥会日本代表团团长。JPC在东京召开的运营委员会会议上，决定了此事。河合将继东京残奥会后，再次任团长。据JPC介绍，前残奥运动员在夏季和冬季连续2届残奥会当选团长在日本尚属首次。北京冬残奥会将于明年3月4日至13日举行。
 
-我说你如果不懂的话，看看西方工业革命怎么把土地给人民的
-I said if you don’t understand, look at how the western industrial revolution gave land to the people
+5、[**索尼上调营业利润预期 或突破1万亿日元**](https://china.kyodonews.net/news/2021/10/40821a88a4d9--1.html)
 
-而且是永久产权
-And it’s freehold
+索尼集团28日宣布上调2021财年（2021年4月～2022年3月）的业绩预期，反映主营业务盈利情况的营业利润将达到1.04万亿日元（约合人民币585亿元）。这将是索尼营业利润首次突破1万亿日元。此外，有关半导体巨头台湾积体电路制造公司（TSMC）进驻日本，索尼透露已讨论就新建工厂和运营展开合作。TSMC新工厂计划2024年投产。考虑建在索尼集团子公司位于熊本县菊阳町的工厂旁，丰田汽车集团的零部件巨头电装公司也考虑参与。
 
-必须把土地给老百姓，这一条
-The land must be returned to the people, this is first
-
-第二个，所有银行欠的钱，包括房贷一概不能还
-The second, all the money owed to the bank, including the mortgage can not be paid off
-
-他说社会那不就乱了吗？
-He asked “isn’t that society in chaos?”
-
-我说你没有学过经济学，好好学学凯恩斯，还有这个大小史密斯讲的经济学理论
-I said you have not studied economics, go to learn Keynesian economics, and learn economic theory from Adam Smith
-
-财富是谁的呢？财富最终都是社会的
-Whose wealth is it? Wealth will ultimately belong to the community
-
-我们人类存在这个世界上，所有的房产，所有的金钱，所有的物质，你只是在你生存期间拥有了保管权
-We humans exist in this world, all the property, all the money, all the material things, you just have custody of wealth during your existence
-
-社会财富最好的分配就是继承权利和继承的法律
-The best distribution of social wealth is inheritance rights and inheritance laws
-
-我说我们解决了这一段的所有的占有权和把未来的继承权解决好
-I said we gonna settle all the possessions in this section and settle the future inheritance
-
-所有的帐是不用还的，因为中国人民活着的人
-All the debts do not have to be paid, because the people who are alive in China
-
-他们应该有资格，有能力继承他们几代人创造的财富和他生在这个土地上应有的人权，和这个土地上所有权的归属权，
-They should be entitled and capable of inheriting the wealth they have created over the generations and the human rights to which they were born on this land, and the right to ownership of this land.
-
-就应该是他们的，一切归零，重新开始，什么房卡、信用卡、银行贷款，
-It should be theirs, everything goes to zero, start over, whatever house mortgage, credit cards, bank loans, all gone
-
-那对不起，那时候有没有，他有十套房子，还有没有房子的，那对不起了
-Is there such a situation when the time comes? There are people who have ten houses and there are people who don’t have houses, oh, we’re sorry
-
-到那个时候，它就不会是绝对公平的
-it won’t be absolutely fair
-
-它只能叫做司法资源，管理资源，历史性的冻结分配状态
-It can only be called a judicial resource, a management resource, a historical freeze on the state of distribution
-
-这在资本论里边都说的非常清楚
-It’s all very clear in “Das Kapital”
-
-生产资料、生产价值
-At that time, the means of production and production value
-
-那就是到那个时候就是属于老百姓的，就是属于大家的
-belong to the people, that is, to everyone
-
-有没有其他的公平分配方式？有
-Is there any other way of equitable distribution? Yes
-
-比如说有人既没房，又没房贷，又没车贷
-Let’s say someone has neither a home, a mortgage, nor a car payment
-
-那给他什么？
-So what does he get?
-
-要把现在拥有的属于公共资源，要经过等比，就是大家平均完以后一个均值
-In order to take the public resources that we have, we have to go through the equivalence, that is, an average value with everyone included
-
-让他应该拥有，他不能吃亏
-Give him the part he should have and not letting him lose out on it
-
-这就是爆料革命，新联邦干掉共产党以后要做的
-This is what the Whistleblowers Movement, the New Federal State of China to do after taking out the Communist Party
-
-只有做到了现在的资源和财富的分配合理化
-Only when the current distribution of resources and wealth is rationalized
-
-被绝大多数人接受
-and accepted by the vast majority of people
-
-中国人才能放下负担走向未来
-will Chinese people be able to put down its burden and move into the future
-
-———————————————————
-
-**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1449362622432743424?s=24](https://twitter.com/se1y7cblljselva/status/1449362622432743424?s=24任务)
-
-Date:10/18/2021
-原视频标题:
-Chinese people get back their rights to land wealth before they can let go of their bur-dens and move into the future
-原视频日期：2021/10/13编号：KC201(2568)
-视频时间段 : 0:00-2:10
-
-英听校: 洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – Layka
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：东京樱花团 / 文小白*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

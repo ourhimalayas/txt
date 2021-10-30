@@ -2,57 +2,122 @@
 ---
 
 
-## 香港审查法禁止“可能危害国家安全”的电影
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1627051/)
+## 喜联储一定会有抵押和贷款业务
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1627090/)
 
-作者：Ian Miles Cheong
-翻译: HimaBoy
+[https://gtv.org/video/id=617b9010adfd99590c30b0e8](https://gtv.org/video/id=617b9010adfd99590c30b0e8)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/11hk-movies-mediumSquareAt3X.jpg)
+**郭文贵**
+**Miles Guo**
 
-香港立法会通过了电影审查法，表面上是为了防止媒体批评执政的中国共产党。继2019年中国大陆对这座岛城实施国家安全法后，香港市民逐渐失去了权利和自由。
+一定会的
+It definitely will
 
-电影审查法在无反对派立法会获得批准，并赋予首席秘书权力，如果发现电影“背书、支持、美化、鼓励和煽动可能危害国家安全的活动”，则可以吊销电影执照，BBC 报道。
+喜联储一定会的
+the Himalaya Exchange definitely will
 
-政务司司长是香港第二大有权势的人物。
+所有你想象的保险和贷款业务
+All insurance and loan businesses that you can imagine
 
-违法者可处以最高三年监禁，并面临最高 100 万港元的罚款，相当于 128,400 美元。
+以后一定都会的
+in the future, it definitely will
 
-据路透社报道，商务部长邱腾华向立法会表示：“目标非常明确：改善电影审查制度，防止任何危害国家安全的行为。”
+但时间不确定啊
+but not sure when
 
-尽管在网上进行了抵制，但面对日益严厉的法律，香港市民仍然相对无能为力。
+我不能给你做任何承诺
+I can’t make any promise to you
 
-路透社报道说：“今年，尽管香港出生的导演获得了前所未有的提名，但今年奥斯卡颁奖典礼自 1969 年以来首次没有在香港转播，这与中国大陆的决定相匹配。”
+以喜联储发布为准， 这是一个
+It’ll be subject to the announcement by the Himalaya Exchange, this is Number one
 
-香港曾经是亚洲的电影之都，出过成龙、李连杰等动作电影明星。在香港制作的电影逐渐成为 90 年代早期至中期电影中坚韧不拔都市风貌的代名词，九龙幽闭的街道与其海湾形成鲜明对比——这是东京以外亚洲城市的典型形象。
+第二个
+Number two
 
-大多数这些电影几乎没有得到政府的直接支持，而是作为一个彻底专注于喜剧和动作商业化的企业发展起来的。结果是好莱坞内容的一种衍生形式，在这种形式中，创作者可以自由表达他们的艺术愿景，而无需屈从于当局的要求。
+如果喜币喜联储不能成为任何国际金融机构的贷款抵押物
+If H-Coin, Himalaya Exchange cannot be used as loan collateral of any internation-al financial institution
 
-“香港的新电影规则将产生寒蝉效应，”乔·皮斯卡特拉对好莱坞报道说。“香港最后的言论自由遗迹现在已经不复存在了。结果是电影制作人进行自我审查，他们现在不得不质疑可能违反新规则的内容，而金融家和发行商现在必须考虑同样的问题。”
+它就一文不值，它就是失败的
+it would be worthless, and it would be a failure
 
-在今年早些时候的奥运会期间，中国警方逮捕了一名男子，因为他在奥运会的公共广播中嘘中国国歌。香港对自由的持续打压也导致该市总人口下降了 1.2%，这是该市自 1961 年开始收集记录以来的最大降幅。
+再是如果喜币还有喜美元
+Another one, if H-Coin and H-Dollar
 
-正如反叛新闻本月早些时候报道的那样，数以万计的香港人因镇压而前往英国、加拿大和其他国家，该地区的大部分政治反对派被监禁，其教育系统被改造以促进亲中宣传。
+不能在G系列之外接受支付
+cannot accept payment outside of the G series
 
-來源：[https://www.rebelnews.com/hong\_kong\_censorship\_law\_bans\_films\_that\_might\_endanger\_national\_security](https://www.rebelnews.com/hong_kong_censorship_law_bans_films_that_might_endanger_national_security)
+它一文不值
+it would be worthless
 
-（文章仅代表作者个人观点）
+它就是胡说八道
+it would be nonsense
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+它就是骗局
+it would be a scam
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+我第一个起诉他们
+I would be the first one to sue them
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+把他们告倒
+to take them down
 
-**关注我们**
+我告诉你
+let me tell you
 
-Discord 账号
+它一定会被全世界
+it will definitely be (used) globally
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+只是什么时间的问题
+It’s just a matter of time
 
-Gettr 账号
+成为最好的抵押物
+to become the best collateral
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+成为最好的贷款
+the best loan
+
+大家欢迎的
+and preferred by everyone
+
+但不管如何
+But no matter what
+
+你刚才问的问题
+The question that you just asked
+
+喜联储会不会（上线抵押）
+will the Himalaya Exchange (online mortgage business)
+
+一定会的
+It definitely will
+
+只是时间（问题）
+just a matter of time
+
+而据我所知，它们比你想象的规划还大
+Based on what I know, their projects are way bigger than you thought
+
+———————————————————
+
+**原视频链接**:[https://twitter.com/se1y7cblljselva/status/1452951472132395014?s=24](https://twitter.com/se1y7cblljselva/status/1452951472132395014?s=24)
+
+Date: 10/26/2021
+原视频标题: 
+Himalaya Exchange will definitely include loan and mortgage business
+原视频日期：2021/10/24
+任务编号：KC204（2677）
+视频时间段 : 0:00-1:01
+
+英听校: 洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

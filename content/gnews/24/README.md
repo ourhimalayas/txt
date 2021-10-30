@@ -2,28 +2,36 @@
 ---
 
 
-## 中共是世界宗教自由的最大威胁
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1626839/)
+## 花旗集团强制美国员工接种疫苗
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1626878/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+**撰稿：日本东京方舟农场 海星**
 
-10月29日，美国前国务卿麦克·蓬佩奥（Mike Pompeo）在盖特上转发了一篇关于苹果公司在中共国被迫下架圣经软件的新闻，并在盖文强调：“中国共产党是世界上宗教自由的最大威胁。”
+据《CNN》10月28日报道，花旗集团强制员工接种疫苗，该集团通知美国员工，如果想继续工作，必须接种疫苗，否则将会被解雇。
 
-这篇题为《苹果公司为安抚中共政权下架中共国圣经应用程序》的文章，系统地介绍了中共迫害宗教的情况，而苹果公司为迎合中共，以“遵守当地法律”法律为由，下架了在中共国下载量超过 100 万的 Olive Tree 的圣经软件和被数百万穆斯林使用的 Quran Majeed APP。
+据报道，花旗银行的人力资源主管莎拉·韦克特（Sara Wechter）在领英上发表的一篇文章中声称，花旗集团员工有义务遵守拜登政府对联邦承包商的疫苗接种令，要求与联邦政府有业务往来的个人都要全面接种疫苗，并指出美国政府是花旗银行的一个大型重要客户。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/id13314160-pompeo-2-600x400-1.jpg)图片来源：https://www.epochtimes.com/gb/21/10/18/n13313404.htm
+韦克特更是在文章中强硬表示，“我们已经做出决定，作为雇佣的条件，美国的同事必须全面接种疫苗。”
 
-该新闻还指出，因为中共政权试图将独立的宗教团体强行转变为中国共产党的机制，2020 年 7 月至 2021 年 6 月期间在中共国发生了100多起基督教迫害事件，很多教堂被摧毁、拆除，千万教徒只能在未注册或所谓的“非法”地下教会敬拜。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/0_202108101134021q6AR.jpeg)图片来源：https://www.lapeople.com/news/m/93169.html
 
-对此，蓬佩奥在盖文中表示，中国共产党是世界上宗教自由的最大威胁。美国公司应该捍卫美国的自由原则，而不是让它们服从于独裁政权的臆想。
+花旗银行的一位官员告诉CNN的记者，银行正在向12月8日前提交疫苗接种证明的员工支付200美元的“感谢费”。
+
+他补充说，花旗银行的员工必须在1月14日之前提交疫苗接种证明，否则将会被解雇。这意味着不接种疫苗的员工将面临失业。
+
+此前，纽约市长也要求市政员工必须接种疫苗，否则就会被无薪休假。出于对疫苗严重副作用的担忧，数以千计的市政人员在10月25日封锁布鲁克林区的道路表达抗议。
 
 *注：本文仅代表作者观点，与 Gnews无关*
 
 *参考链接：*
 
-[The Chinese Communist Party is the single greatest threat to religious freedom in the world. American companies should champion American principles of freedom, not subordinate them to the whims of dictatorial regimes.](https://www.gettr.com/post/pfgrindcd0)
+[Citigroup to US staff: Get vaccinated, or you’re fired](https://edition.cnn.com/2021/10/28/investing/citigroup-vaccine-mandate/index.html)
 
-[【重播】蓬佩奥：中共是世界最大威胁](https://www.epochtimes.com/gb/21/10/18/n13313404.htm)
+
+
+> [紧急救援人员大规模抗议纽约强制疫苗政策](https://gnews.org/zh-hans/1618802/)
+
+
 
 * * *
 

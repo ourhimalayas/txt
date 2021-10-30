@@ -17,6 +17,18 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@liujz 10/30/2021 12:55 AM (UTC)`
+
+七哥创造了一个无国界、无边际的安全的金额流通体系
+
+---
+
+`@arthur46805 10/30/2021 1:07 AM (UTC)`
+
+其实这个机构投资者就可以以交易所为银行，买不买喜币都一样
+
+---
+
 `@miles 10/30/2021 12:41 AM (UTC)`
 
 10月29日：尊敬的战友们好！这样的解读我直播说的话：是完全错误的，没有基本的金融常识，也是不了解喜联储金融系统的结果。任何人只要通过喜美元帐号KYC以后…可以在喜美元自己的帐号里面合法的购买无限的喜美元，这些喜美元随时可以兑换成美元现金，及HPAY合法可以支付的交易．这不等同于你一定会买喜币。<br/><br/>【文贵大直播爆料：战友机构投资者，用40亿购买了4千万喜币。大家算算，机构持有喜币成本是100美元一个，那么星期一喜币上市该多少钱？】
@@ -293,20 +305,6 @@ https://wabcradio.com/episode/uncovering-the-truth-10-24-2021/   Listen to our l
 
 10月24号：绝密绝密绝密．习近平在共产党的六中全会前的．五国秘密外访，说明了什么？有什么样的内外政治目的？
 ![img](https://media.gettr.com/group3/getter/2021/10/25/14/38/a35cd0bc-ee03-a6b6-019e-9daa6de1ac5e/out.jpg)
-
----
-
-`@miles 10/25/2021 7:13 AM (UTC)`
-
-10/24/2021 Miles Guo: The CCP virus is the means, while the COVID vaccine disaster is the real goal; the CCP is helping the evil forces to implement their plans of global domination; a handful of families are controlling the world's wealth, as well as those pharmaceutical companies and media outlets; the COVID vaccine is the tool for a planned global genocide, and the vaccine disaster has not yet begun!<br/><br/>10/24/2021 文贵直播：中共病毒是手段，而疫苗灾难才是真正目的；中共正在帮黑暗势力推进统治全球的计划；全世界财富、制药和媒体都被极少数家族控制着；疫苗是有计划的种族大屠杀，而疫苗灾难仍尚未开始！<br/>
-![img](https://media.gettr.com/group38/getter/2021/10/25/07/13/0c343f8e-ad18-dc8b-57de-bc02a49eb193/out.jpg)
-
----
-
-`@miles 10/25/2021 6:38 AM (UTC)`
-
-10/24/2021 Miles Guo: The CCP uses unrestricted economic warfare against President Trump, but we must not attack him since that is what the CCP wanted the most<br/><br/>10/24/2021 文贵直播：中共对川普总统使用了经济超限战，但我们一定不要攻击川普总统，因为这是中共最想要的
-![img](https://media.gettr.com/group30/getter/2021/10/25/06/38/bed09e41-4b47-8d44-6bfa-d7946de6c70c/out.jpg)
 
 ---
 
