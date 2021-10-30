@@ -2,38 +2,27 @@
 ---
 
 
-## 澳大利亚维州官员拒绝公布，病毒死亡案例的疫苗接种情况
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628751/)
+## 美国情报机构最新报告：可能永远无法确定中共病毒来源
+` 军迷wilson` [轉載自GNews](https://gnews.org/zh-hans/1629039/)
 
-作者：澳喜农场 – 童媚
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在周四28日的报告中，维多利亚州死亡人数激增，这是该州目前，每日死亡人数最多的一天。而该州卫生部门拒绝公布，25例新增冠状病毒死亡病例的疫苗接种情况。
+#### 加拿大多伦多枫叶农场 向真
+![](https://assets.gnews.org/wp-content/uploads/2021/10/6111a4382a0d4d96bfd0c25977208749.jpeg)来源：搜狐网
+据路透社29日报道，美国国家情报总监办公室(ODNI)周五发布一份新的、更为详细的调查解密报告称，有关中共病毒是由动物传染给人类，还是从实验室泄露，他们可能永远无法确定病毒的起源。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-19.jpeg)
+报告说，自然起源和实验室泄漏都是合理的假说，但分析师对哪种可能性更大或是否可以做出任何明确的评估存在意见分歧。美国机构和全球科学界缺乏早期病例的临床样本或流行病学数据的完整理解，如果出现更多证据，美国情报机构可能重新审视这一不确定的结论。
 
-当被问及，这些死亡病例是否接种过疫苗时，副首席卫生官Ben Cowie说，不会对此进行报告。维州卫生当局已宣布，他们不会再报告，新南威尔士州几个月来，每天都发布的病毒详情。
+令人非常困惑的是，既然美国情报机构无法确定中共病毒来源，并承认“自然起源和实验室泄漏都是合理的假说”，但报告却持有和中共一样的立场，驳斥了新冠病毒起源于生物武器的说法，称“这一理论的支持者没有直接进入武汉病毒研究所”，并指控坚持中共病毒是生物武器说法的人在“散布虚假信息。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图像2021-10-30-下午12.15-scaled.jpg)来源；微博
+美国国家情报总监海恩斯是拜登内阁的主要成员，直接听命于拜登。据悉，拜登和海恩斯都是中共多年的“老朋友”。郭文贵先生早前指出，拜登政府出于短期利益和个人目的，在病毒来源上和中共进行了勾兑。
 
-这位副首席卫生官还强调，在过去7天内,检测呈阳性的维州病例中，有85% 的人没有完全接种疫苗。而在重症监护室内，有80%的人完全没有接种疫苗。他的结论更可笑，疫苗接种对病情严重的，以及生命危急的重症病例，其影响是明显的。
+该报告使全世界都料想不到，拜登政府竟然无耻到这种境界。但这必将激起美国乃至全球正义力量对中共及其西方代理人的极大愤怒和猛烈反击，从而加速拜登政府的跨台，对最终消灭中共和国际腐败、黑暗努力有极大的帮助。
 
-大流行开始以来，该州的死亡人数达到 1090 人，本轮病毒爆发期间，死亡人数达到 270 人。周四对外公布了1923例新的确诊病例。现在该州至少77%的16岁及以上人口接种了疫苗。
+参考来源：
 
-现实是，随着疫苗接种比例的上升，病毒感染非但没有减少，确诊人数反而节节攀升。频繁响彻在街头巷尾的救护车警笛声，无时无刻不提醒着我们，应该深刻反思，政府对于病毒的防疫措施，和强制接种疫苗，是否真的是为了人民的利益。对于跃跃欲试的“加强针”，又有多少人能清醒地面对。
+[美国情报机构称可能永远无法确定新冠病毒的起源](https://www.reuters.com/article/us-intelligence-covid-origin-1030-idCNKBS2HK02Y)
 
-参考链接：[维州官员拒绝公布病毒死亡案例的疫苗接种情况](https://gnews.org/zh-hans/1622751/)
+（文章仅代表作者观点，与GNEWS无关）
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编：Kathy文艺
-编辑：Zion文恩
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

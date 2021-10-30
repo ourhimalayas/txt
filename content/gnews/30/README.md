@@ -2,26 +2,31 @@
 ---
 
 
-## 日本9月工业生产指数下降5.4％，汽车行业减产是主因
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1628636/)
+## 有声|美国有望支持新中国联邦加入联合国
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1628697/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/22-4.png)[图片来源](https://www.google.com.hk/search?q=%E5%9B%BD%E4%BA%A7%E6%A0%B8%E5%AF%BC%E5%BC%B9&amp;newwindow=1&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwiUv7qaiPLzAhXRPXAKHSoRBykQ_AUoAXoECAEQAw&amp;biw=1600&amp;bih=722&amp;dpr=1.2#imgrc=8FwENGZwtzYkLM)
-10月29日，日本经济产业省公布的9月工业生产指数（2015年=100，经季节性因素调整后）速报值为89.5，比上月下降5.4％。这已是连续3个月下降，也是2020年8月以后1年零1个月以来首次低于90。
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月27日，郭文贵先生在直播中，针对美国国务卿布林肯支持台湾参与联合国系统的声明表示，美国能支持台湾加入联合国，就能够支持新中国联邦加入。
 
-由于半导体紧缺及中共病毒疫情蔓延，从东南亚采购零部件停滞，受到直接影响的汽车工业生产指数大幅下降28.2％，对工业生产指数产生重大影响。工业生产指数下降的7成是因为汽车工业减产造成的。
+郭先生表示，中共愚蠢地在联合国挑战美国的国际地位，引起了美国的反弹。美国一方面对中共虚以委蛇，口头上在病毒问题、新疆问题、台湾问题等方面安抚中共，另一方面又在采取实质行动对抗中共。在台湾问题上的坚定立场就是最突出的表现。
 
-在共计15个行业中，有11个行业的生产指数下降。汽车工业出现了疫情首次蔓延的2020年4月（下降38.2％）以来的大幅下滑。普通乘用车以及驱动传动与转向的零部件等减产。
+郭先生同时提到，美国能坚决地支持台湾加入联合国，就能够支持新中国联邦、新疆法人代表团等加入联合国，美国有太多可用的工具对抗中共。而在由美国和欧洲发起的联合国系统内，中共的挑战必将失败。
 
-丰田等8家日本乘用车制造商发布的9月日本国内产量同比减少50％，降至39.8万辆。这是自2020年5月以来首次低于40万辆。丰田和本田减产约6成，影响不断扩大，工业生产指数也反映了这种变化。
+文字版原文：[美国有望支持新中国联邦加入联合国](https://gnews.org/zh-hans/1624382/)
 
-信息来源：
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-[日本9月矿工业生产指数下降5.4％ 日经中文网](https://cn.nikkei.com/industry/manufacturing/46521-2021-10-29-15-46-53.html)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,26 @@
 ---
 
 
-## 中共驻澳大使成竞业即将离任
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628788/)
+## 川普被要求公开他新社交媒体的源代码
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1629126/)
 
-作者：英国喜庄园 – I770775
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-多家外媒近日报道，中共国驻澳大利亚大使成竞业即将离任，澳大利亚外长佩恩28日在国会也确认了这一消息。
+俄罗斯莫斯科喀秋莎农场 星河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-25.jpeg)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/D.png)inddependent.co.uk
+美东时间10月30日报道，一个所谓的开源、去中心化的社交媒体平台Mastodon公司要求美国前总统川普的团队公开其新社交网络TRUTH Social中使用的源代码。
 
-对于中共大使即将离任的消息，佩恩表现出很不在乎，很不尊重甚至冷漠的态度。佩恩说，“如果他还没离开的话，也是即将离开。”中共在继续指责澳方此行为是外交失礼的同时，也不得不承认中澳关系已经达到历史冰点，从当初的全面战略伙伴关系，降至目前几乎没有对话通道的极其困难的局面。
+Mastodon称，“10月26日，我们向TRUTH Social的总法律顾问发出了一封正式信函，要求按照许可证规定公布源代码。”该公司强调，在收到通知后，TRUTH Social有30天时间来完成要求。如果不这样做，可能会导致许可证被不可逆转地撤销。
 
-国际间对此次离任给与高度关注，媒体评论普遍认为，中国对澳的经济胁迫，是造成澳中两国关系急剧恶化的原因，“澳中关系短期内几乎没有修复的迹象”。
+根据该声明，尽管TRUTH Social尚未推出，但一些用户已经访问了该社交网络的测试版，并注意到一个“令人震惊的警告”，即源代码以及其内容都是TRUTH Social的财产。
+
+Mastodon保证，川普的社交网络是基于该平台的公开代码。“值得注意的是，无论是条款还是网站的任何其他部分都不包含Mastodon的任何链接，也不包含Mastodon用户界面中默认存在的源代码的任何链接”。该公司强调，Mastodon平台的使用条款规定，在其基础上制作的任何社交网站必须开放源代码。
+
+川普于10月21日宣布TRUTH Social，该服务的测试版将于11月向“受邀用户”开放，预计将于2022年初全面推出。
 
 参考链接：
-1）[62岁中国驻澳大利亚大使成竞业即将离任](https://www.cqcb.com/headline/2021-10-28/4559301_pc.html)
-2）[中国大使离任 澳外长表态冷漠](https://www.thepaper.cn/newsDetail_forward_15128139)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编：Irene木木
-编辑：山本不惑
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[https://www.rbc.ru/rbcfreenews/617cdcb39a79473689b264d9](https://www.rbc.ru/rbcfreenews/617cdcb39a79473689b264d9)
 
  
 

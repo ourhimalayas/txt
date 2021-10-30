@@ -2,30 +2,35 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月30日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1628739/)
+## 中共驻澳大使成竞业即将离任
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628788/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+作者：英国喜庄园 – I770775
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+多家外媒近日报道，中共国驻澳大利亚大使成竞业即将离任，澳大利亚外长佩恩28日在国会也确认了这一消息。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV_-_Google_-1.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-25.jpeg)
 
-视频参看：2021.10.30早GTV新闻访谈
+对于中共大使即将离任的消息，佩恩表现出很不在乎，很不尊重甚至冷漠的态度。佩恩说，“如果他还没离开的话，也是即将离开。”中共在继续指责澳方此行为是外交失礼的同时，也不得不承认中澳关系已经达到历史冰点，从当初的全面战略伙伴关系，降至目前几乎没有对话通道的极其困难的局面。
 
-[https://gtv.org/broadcast/watch/617d3a4811d1862968fda427](https://gtv.org/broadcast/watch/617d3a4811d1862968fda427)
+国际间对此次离任给与高度关注，媒体评论普遍认为，中国对澳的经济胁迫，是造成澳中两国关系急剧恶化的原因，“澳中关系短期内几乎没有修复的迹象”。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+参考链接：
+1）[62岁中国驻澳大利亚大使成竞业即将离任](https://www.cqcb.com/headline/2021-10-28/4559301_pc.html)
+2）[中国大使离任 澳外长表态冷漠](https://www.thepaper.cn/newsDetail_forward_15128139)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-17.png)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Irene木木
+编辑：山本不惑
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

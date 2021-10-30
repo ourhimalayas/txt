@@ -2,25 +2,28 @@
 ---
 
 
-## 庆喜币上市
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1629158/)
+## 有声|中共国禽流感传人案例猛增
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1629256/)
 
-俄罗斯莫斯科喀秋莎农场 六月飞雪
+配音：香草山美食部 – 玫瑰园
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/H-3.jpg)俄罗斯莫斯科喀秋莎农场 女农
-**鹊桥仙·喜币上市**
+中共国在2021年向世卫组织通报称，有21起人类感染H5N6亚型禽流感的案例，而去年只有5起。虽然这21名患者，相比2017年感染H7N9毒株的数百人要低得多，但是这些感染非常严重，导致多人病危和6人死亡。
 
-喜币上市，70国牌照，地球半壁盛举。一币一网得封侯，快上座、诺亚方舟。 神舟一驰，人间大善，横渡金融暴雨。正道信仰新兴人，挥豪笔、描画宙宇。
+这引起了专家的关切，他们说以前流行的一个毒株似乎发生了变化，可能对人更有传染性。世卫组织在10月4日的一份声明中，强调了病例的增加，并说大多数病例都与家禽接触过，没有人传人的确认病例。
 
-**诉衷情·喜币**
+文字版原文：[中共国禽流感传人案例猛增](https://gnews.org/zh-hans/1622796/)
 
-喜国喜日喜成双。喜币黄金妆。都缘共魔同恨，携币正道路敞。 前无古，后众继。领时尚。飞上星链，谁还笑贫，只羡荣昌。
+音频处理：喜山必胜Maverick
 
-**卜算子·个个喜币亲 **
-
-个个喜币亲，声声喜讯晓。道是群魔乱中华，以币灭共巧。 昨夜大国梦，今夜冥币扫。道是喜民振中华，喜币登场了。
-
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

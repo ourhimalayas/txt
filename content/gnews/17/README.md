@@ -2,34 +2,68 @@
 ---
 
 
-## 疫苗后，台湾航空机组员突发性耳聋 捷克年轻人听力问题暴增
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628766/)
+## 现场报道：岸田文雄街头竞选演讲，突现异议人士抗议
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1629119/)
 
-作者：台湾宝岛农场
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台湾媒体报道，8月10日有航空业机组人员表示，在7月20日接种完第二剂莫德纳疫苗后，隔天耳朵竟然一边耳鸣、一边耳聋，治疗一个月都没有好转。对此，医生表示：不排除疫苗罕见副作用。又外媒于10月21日指出，捷克境内年轻人突发耳鸣等听力问题数量剧增，不排除与疫苗有关联性。
+撰稿：东京樱花团/喜马拉雅的微尘
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-43.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/岸田文雄街头竞选演讲1.png)
 
-疫苗副作用除常见的血栓、心肌炎、心包炎、发烧、倦怠等，而鼻喉科方面也存在罕见特殊副作用。台媒报导，突发性耳聋、颜面神经麻痹，也都出现过相关病例。台湾基层医疗协会理事长林应然分析，目前虽没有很明确的统计报告，如果免疫系统启动时，误伤及听神经系统，有可能产生耳鸣、耳聋的问题。
+10月30日，岸田文雄现身东京为自民党候选人石原宏高助阵演讲。
 
-台湾卫生福利部于10月25日发布了新冠疫苗不良事件通报摘要报告，当中表示，截至10月20日，台湾共施打两千零九十四万八千五百二十六剂新冠疫苗，共接获疫苗不良事件通报一万零两百一十八件，其中有九百三十二例死亡，占比9.12%。郭先生明确指出，疫苗后的不良症状是偶发，真正的疫苗灾难还没有开始。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/岸田文雄街头竞选演讲2.png)
 
-参考链接：[COVID-19最新情报｜疫苗后，台湾航空机组员突发性耳聋，捷克年轻人听力问题暴增](https://gnews.org/zh-hans/1622707/)
+日本众议院大选进入收官阶段，自民党选情不容乐观。兆头是上周的两位参议院议员补选选举，自民党输掉了本来可以拿到的静冈县席位。过低的民意令岸田文雄坐立不安，自本周一就开始了包机去各个小选区助选的行程。最后一站便是东京第三选区的石原宏高。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+石原宏高，是一个老牌的自民党二代世袭议员，其父是当年叫嚣要买钓鱼岛的东京都知事石原慎太郎。
 
-总编：Zion文恩
-编辑：DM, Irene木木
-校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/岸田文雄街头竞选演讲3.png)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+石原四个儿子，老大石原伸晃宏和老三石原宏高沾了老爸的光，都是国会议员。老二石原良纯是电视台的气象播报员，老四石原延启是一位画家。石原慎太郎隐退之前很得日本右翼人士的支持，儿子们也跟着沾光，但是自从他政坛引退后，这两个儿子的无能也就显现出来了，这次大选都有落选的危机。
+
+晚上七点10分左右，东京奥运会担当大臣、一身白色西装的参议院议员丸川珠代作为助选嘉宾开场。朝日电视台主持人出身的她声音洪亮、吐字清晰，很快现场民众的热情就被调动了起来。值得一提的是，丸川珠代在两年前参议院选举的时候，就是石原宏高的哥哥石原伸晃去为她助选，这次也算是礼尚往来。可见日本政界也是人际盘根错节、关系复杂。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/岸田文雄街头竞选演讲4.png)
+
+19:25分左右，现场气氛突然紧张，天空两架直升机开始盘旋，旁边驶来两辆黑色面包车，在十几位特勤安保人员陪同下的岸田文雄下车后直接登上了竞选宣传车。
+
+现场民众开始沸腾，纷纷举起手机拍照。主持人简短介绍以后，岸田文雄开始了大约十分钟的助选演说。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/岸田文雄街头竞选演讲5.png)
+
+可惜的是岸田的演讲依然如故，没有任何煽动力、令人昏昏欲睡。笔者现场也听不太清楚他到底讲了什么（关于岸田的特点请参考笔者的另外一篇专门介绍他的文章） 。大概的意思还是推销他的新资本主义和防控疫情的有效结果。号召大家投票给石原和自民党。
+
+演讲结束后岸田走下宣传车和前排的部分民众简短交流后乘车离开。
+
+这次现场采访笔者注意到现场有一位手持粉色旗帜的人士，在岸田文雄演讲的时候在下面挥动旗帜表示抗议。
+
+演讲结束后笔者对这位抗议者进行了采访。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/岸田文雄街头竞选演讲6.png)
+
+这位名叫入山洋的男士是一位无党派人士。他表示，对于接种新冠疫苗深切担忧，**政府说如果打疫苗出事的话每人补助四千万日元本身就说明疫苗是有问题的，不然为何补助这么多？**总理既然说最善于倾听别人的声音，他希望总理能够听到他的质疑。另外他还说到，现在日本的选举制度有问题，候选人被世袭和垄断，一般人想要参与竞选需要花费大量的人力和金钱。他希望以后可以改变为人人可以参与的竞选制度。他相信他的理念是真正为这个国家好。
+
+笔者现场既切身感受到了竞选演讲的紧张气氛，也感受到了民主社会的言论自由和人人平等理念是多么的宝贵。
+
+以上新闻由东京樱花团战友现场报道。
+
+参考资料：
+
+1.G-TV直播岸田文雄 街头竞选演讲现场：
+
+[https://gtv.org/video/id=617d15bb11d1862968fd9bd9](https://gtv.org/video/id=617d15bb11d1862968fd9bd9)
+
+2.[https://www3.nhk.or.jp/news/html/20211024/amp/k10013319991000.html](https://www3.nhk.or.jp/news/html/20211024/amp/k10013319991000.html)
+
+3.[https://ja.m.wikipedia.org/wiki/%E7%9F%B3%E5%8E%9F%E6%85%8E%E5%A4%AA%E9%83%8E\_(%E6%94%BF%E6%B2%BB%E5%AE%B6)](https://ja.m.wikipedia.org/wiki/%E7%9F%B3%E5%8E%9F%E6%85%8E%E5%A4%AA%E9%83%8E_%28%E6%94%BF%E6%B2%BB%E5%AE%B6%29)
+
+4.[https://gnews.org/zh-hans/1565883/](https://gnews.org/zh-hans/1565883/)
+
+5.[https://ja.m.wikipedia.org/wiki/%E4%B8%B8%E5%B7%9D%E7%8F%A0%E4%BB%A3](https://ja.m.wikipedia.org/wiki/%E4%B8%B8%E5%B7%9D%E7%8F%A0%E4%BB%A3)
+
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
