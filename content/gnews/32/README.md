@@ -2,68 +2,199 @@
 ---
 
 
-## 参议员兰德·保罗:大多数美国人希望福奇辞职
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1627094/)
+## 流通量支付范围是决定喜马拉雅币价值的关键之三
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1627108/)
 
-参议员兰德·保罗： 我并不是唯一一个希望福奇辞职的人。现在，大多数美国人也希望他辞职。 福奇撒谎 [#FauciLied](https://twitter.com/hashtag/FauciLied?src=hashtag_click) 【附华盛顿观察者报报道：全国近一半人相信他在资助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 病毒研究一事上撒谎，想要他被解雇】
+[https://gtv.org/video/id=617b9060adfd99590c30b0fd](https://gtv.org/video/id=617b9060adfd99590c30b0fd)
 
+那么第三个我要告诉你们
+Y les digo el tercero
 
+喜币第二个衡量(标准), 什么时候值钱
+La segunda medida (estándar) de la moneda de Himalaya, ¿cuándo valdrá la pena?
 
-> I'm not alone in wanting Fauci to resign. Now, most Americans want him to resign too. [#FauciLied](https://twitter.com/hashtag/FauciLied?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/9eifxF9kXG](https://t.co/9eifxF9kXG)
-> — Senator Rand Paul (@RandPaul) [October 29, 2021](https://twitter.com/RandPaul/status/1454174269374668811?ref_src=twsrc%5Etfw)
+在三年后
+Después de tres años
 
+但是喜币在上市后, 就一周以后上市后
+Pero una semana después que la moneda de Himalaya se publique
 
+什么时候对你来讲会增长它的价值
+Para ti, cuándo será el aumento de su valor
 
-众议员帕特·法伦： 拜登政府必须立即转变政策，并宣布其意图保障台湾主权。 任何（政策）缺少这一点是不可原谅的。
+就是它的流通量
+Es su circulación
 
+它到哪使用
+Hacia dónde se utilizará
 
+它到G-Fashion上买了个内裤, 它是G-Fashion
+Él compra un calzón en G-Fashion, él es G-Fashion
 
-> The Biden administration must immediately shift its policy & declare its intent to guarantee the sovereignty of Taiwan. 
-> 
-> Anything short of this is inexcusable.
-> — Rep. Pat Fallon (@RepPatFallon) [October 29, 2021](https://twitter.com/RepPatFallon/status/1454174447766802435?ref_src=twsrc%5Etfw)
+它买了一个卡是G卡
+Él compró una tarjeta G
 
+如果有跟G系列完全没关系的机构开始(接受)
+Si las organizaciones que no tienen nada que ver con la serie G empiezan a aceptar
 
+有一个地方接受对它都是不一样的
+Si hay un sitio que acepte, él será diferente
 
-参议员乔什·霍利新闻办公室： “美国不能满足于稀缺。我们绝不能降低我们的期望。恰好相反。美国人民的力量和智慧是无限的。让他们建造。让他们创造。他们将改变世界。” 【附霍利参议员刊登在在纽约时报专栏文章：解决供应链危机的唯一办法是重新思考贸易】
+未来谁能把喜币作为当地国家代理权
+En un futuro, quién podrá utilizar a la moneda de Himalaya como agente nacional local
 
+和把喜币整个的喜支付
+Con el Himalaya pay y su moneda
 
+记住, 喜支付是它所有的未来
+Recuerda, el Himalaya pay es todo su futuro
 
-> “The United States must not settle for scarcity. We must never lower our expectations. Just the opposite. The strength and resourcefulness of the American people are unlimited. Let them build. Let them create. And they’ll change the world.” [https://t.co/SEKZhEBxuQ](https://t.co/SEKZhEBxuQ)
-> — Senator Hawley Press Office (@SenHawleyPress) [October 29, 2021](https://twitter.com/SenHawleyPress/status/1454198620442484741?ref_src=twsrc%5Etfw)
+啥叫支付, 知道吗?
+¿Saben en qué consiste el pago?
 
+就是你的子弹能打到什么地方
+Significa hacia dónde pueden ir tus balas
 
+喜币是把枪
+La moneda de Himalaya es una pistola
 
-众议员布莱恩·马斯特： 拜登的强制疫苗令在各个层面都是违宪和反美的。这是全国热爱自由的美国人的胜利。 【附福克斯新闻：一位华盛顿特区法官发出即时命令，禁止拜登政府在等待裁决期间解雇那些就疫苗宗教豁免起诉政府的公民及军人】
+喜币第一枪就打向了G-Fashion的内裤
+El primer disparo de la moneda de Himalaya golpeó hacia el calzón de G-Fashion
 
+第二枪打向了G-Club, 打了一张卡
+El segundo disparo se dirige hacia G-club, le dio a la tarjeta
 
+证明子弹管用, 枪管用
+Esto comprueba que las balas y la pistola si sirven
 
-> Biden’s vaccine mandate is unconstitutional and anti-American on every level. This is a victory for freedom-loving Americans all across the country. [https://t.co/ISEVYaidGm](https://t.co/ISEVYaidGm)
-> — Rep. Brian Mast (@RepBrianMast) [October 29, 2021](https://twitter.com/RepBrianMast/status/1454163626407956489?ref_src=twsrc%5Etfw)
+全世界的所有的枪都是放在家里没试过
+Las pistolas de todo el mundo las tienen en la casa y nunca la han probado
 
+所以说你说多少钱多少钱, 都你家的事儿
+Por eso es asunto tuyo si tu dices cuánto vale
 
+不知道你到底能打鸟啊
+No sabes si puedes pegarle al pájaro
 
-众议员迈克·麦考尔： 拜登政府继续无视我们南部边境日益严重的危机以及 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对美国构成的主要威胁。 在美国东部时间下午 3 点 15 分/美国中部时间下午 2 点 15 分在福克斯收听我和martha maccallum 的故事及更多消息
+还有到底子弹管不管用啊
+Y si al fin las balas sirven
 
+但是喜币第一枪G-Fashion内裤
+Pero el primer disparo de la moneda de Himalaya es el calzón de G-Fashion
 
+第二枪G-Club
+El segundo es G-club
 
-> 🚨The Biden Administration continues to ignore the growing crisis at our southern border and the major threat the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) poses against the U.S.
-> 
-> TUNE IN to [@FoxNews](https://twitter.com/FoxNews?ref_src=twsrc%5Etfw) with [@marthamaccallum](https://twitter.com/marthamaccallum?ref_src=twsrc%5Etfw) on The Story at 3:15pmET/2:15pmCT to hear more🚨
-> — Michael McCaul (@RepMcCaul) [October 29, 2021](https://twitter.com/RepMcCaul/status/1454163580593610759?ref_src=twsrc%5Etfw)
+如果战友们代理了这个
+Si los compañeros luchadores representan esto
 
+哎唷, 我能拿着枪
+Ay, puedo tener la pistola
 
+未来我能代表你打出一个德国宝马回来
+En el futuro puedo representarte para cazar un BMW alemán
 
-参议员罗杰·马歇尔: 将我们的孩子当作实验室小老鼠，是令人作呕且疯狂的。 这届政府已经走到尽头了。 【转华盛顿邮报：分析：一位 FDA (食品药品监管局) 顾问说，我们需要给孩子们接种疫苗，以充分了解它们的安全性。 这是关键的背景。】
+你是德国代理权
+Eres un agente alemán
 
+你将拥有宝马
+Obtendrás un BMW
 
+十个宝马都可能
+Posiblemente, diez de ellos
 
-> Using our children as lab rats is sickening and insane. This administration has gone off the deep end. [https://t.co/1iqNigNuP5](https://t.co/1iqNigNuP5)
-> — Dr. Roger Marshall (@RogerMarshallMD) [October 29, 2021](https://twitter.com/RogerMarshallMD/status/1454120140556152837?ref_src=twsrc%5Etfw)
+为啥我说你要是能买宝马
+Por qué digo que si compras un BMW
 
+宝马接受了喜币支付
+BMW aceptó el pago de Himalaya
 
+我们就证明了
+Entonces comprobamos que
 
+我这个子弹和枪能打宝马
+Esta bala y pistola puede golpear al BMW
 
+那在日本的战友
+Y los compañeros luchadores que están en Japón
+
+如果你能把它在日本说
+Si puedes decir así como
+像我们日本的二尊
+Nuestros dos personajes que están en Japón
+
+我能把日本的某酒店系统签下来
+Puedo firmar el contrato de algún sistema de un hotel en Japón
+
+接受喜支付, 你就打下了日本的所有酒店
+Y que acepte el Himalaya pay, entonces ya conquistaste a todos los hoteles de Japón
+
+如果Rachel能在加拿大
+Si Rachel puede
+
+把那个最大的全世界的叫牛郎网能打下来
+Conquistar a la red más grande de Money Boy
+
+(接受)牛郎介绍, 可以支付喜币
+(aceptar) la presentación de Money Boy que pague en moneda de Himalaya
+
+你就打下了牛郎网
+Entonces logras conquistar a esta red
+
+猫本你听懂我的意思了吗
+Mao Ben, ¿puedes entender lo que digo?
+
+你要在澳大利亚能让它买袋鼠皮, 你就能打下袋鼠皮
+Si puedes hacer que compre la piel del canguro, entonces logras dominarlo
+
+这个所有的币, 它是颗子弹
+Todas las monedas son como una bala
+
+它这个币的生态圈就是核心
+El ecosistema de esta moneda es su núcleo
+
+那么当你上市后发现无数个猎物回来的时候
+Entonces cuando ya salga al mercado, en ese momento te darás cuenta de las incontables presas que regresan
+
+你就知道它一定会大升值的
+Sabras que tendrá un gran aumento de valor
+
+比例是多少钱我可以告诉你
+Puedo decirte cuál es la proporción
+
+我有1块钱的交易
+Tengo una transacción por 1 dólar
+
+它一定是1000倍. 而不是20倍, 30倍
+Él será mil veces más y no veinte o treinta
+
+因为它是货币, 它会成为货币
+Porque él es una moneda, se convertirá en una moneda
+
+它不是法币, 它成为货币了
+No es dinero por decreto, se ha convertido en moneda
+
+———————————————————
+
+**原视频网址**： [https://twitter.com/se1y7cblljselva/status/1451875661442736130?s=24](https://twitter.com/se1y7cblljselva/status/1451875661442736130?s=24)
+
+日期：10/28/2021
+原视频标题：
+El alcance del pago de circulación es la tercera clave para determinar el valor de la moneda de Himalaya
+原视频日期：10/23/2021
+任务编号：KC206（2646）
+视频时间段：0:00-2:20
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

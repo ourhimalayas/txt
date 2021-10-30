@@ -2,118 +2,36 @@
 ---
 
 
-## 爆料江家活摘器官原因之一
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1627052/)
+## 美国FDA批准为5至11岁的儿童注射了辉瑞疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1627086/)
 
-[https://gtv.org/video/id=617b8fb3adfd99590c30b0d5](https://gtv.org/video/id=617b8fb3adfd99590c30b0d5)
+#### **编译报导：文泓**
 
-**郭文贵：**
-**Miles Guo：**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-99.png)
 
-当时，我爆这个器官移植这个事情的时候
-When I exposed the organ transplant thing
+**图片来源：Heslthline**
+美国时间10月29日，辉瑞和BioNTech的新冠疫苗已被美国监管机构批准用于5至11岁儿童。
 
-我压力是特别大的
-At that time, I was under a lot of pressure
+美国食品和药物管理局（FDA）于美国时间周五（澳洲时间周六）在一份声明中宣布了这项紧急授权，使美国更接近于在全国各地的学校、儿科医生办公室和药房进行疫苗注射。幼儿的配方是成人注射剂量的三分之一。
 
-因为我的家人、同事还都在里面
-Because my family and colleagues were still in prison in mainland China
+在青少年开始接种疫苗之前，疾病控制与预防中心的免疫咨询委员会也将召开会议，就谁应该接种疫苗以及如何接种疫苗提出更具体的建议。该小组目前定于下周二和周三召开会议。
 
-我被多次警告，直接来自江家，江家身边也有我的朋友
-I was directly warned by the Jiang family many times, because there are friends of mine around the Jiang family
+随后，CDC主任罗谢尔·瓦伦斯基 (Rochelle Walensky)将需要签署顾问的指导意见。
 
-直接警告，千万别说这个，文贵
-Direct warning, don’t talk about it, Miles
+FDA周五的行动将允许开始运送这些剂量——这是美国第一次为青少年和成人分发除常规辉瑞剂量以外的任何药物。这些药物将在全国各地的儿科医生办公室、药房和其他地点放置（疫苗），以便在任何CDC批准后立即开始接种。
 
-你话不落音，你就会消失在地球上
-You will disappear before your words are heard
+“为年幼的儿童接种新冠疫苗将使我们更接近恢复正常状态，”FDA代理专员珍妮特·伍德科克在声明中说：“我们对与疫苗安全性和有效性有关的数据进行了全面而严格的评估，应该有助于向父母和监护人保证这种疫苗符合我们的高标准。”
 
-这对我当时压力很大的
-I was under a lot of pressure at that time
+新闻链接：[pfizer – Bing images (afr.com)](https://www.afr.com/politics/federal/fda-paves-way-for-pfizer-covid-19-vaccinations-in-young-kids-20211030-p594ii)
 
-Eglise，你不知道当时我爆这个对我没有任何好处
-Eglise, you don’t know that it didn’t do me any good by blowing this up at that time
+**发布：文泓**
 
-但我为啥要爆
-But why do I want to expose it?
-
-因为我好几个同学就跟你干同行，就是干同行的是原来李保春、黎磊石的手下
-Because I have several classmates in medicine, they work for Li Baochun and Li Leishi
-
-他当时说，我们的李专家，他说我们的春哥，春教授他告诉我们
-He said then, “Our expert Li,” he said, “Our brother Chun, Professor Chun, he told us
-他说你们年轻人不要干这个，离这个远远的
-You young people do not do it, stay away from it
-
-这个手术台上的这个事情不能再继续
-This thing on the operating table can not continue”
-
-他说当时很惊讶，为啥不让我们干这个
-He said he was surprised at the time, why not let us do it
-
-我们从小学就医，干这个，从山东济南跑到北京，不就干这个的吗？
-We have been in medicine since elementary school, doing this, from Jinan, Shandong to Beijing, is it not to learn medicine?
-
-后来到了南京，亲自参与了江家的多次换肾脏手术
-Later, he went to Nanjing and personally participated in several kidney replacement surgeries for the Jiang family
-
-让他最震惊的，就是新疆的小伙子，活活的就这么（被活摘器官）
-What shocked him the most was the young man from Xinjiang, who was alive (by live organ harvesting)
-
-说为了所谓的减少反应
-For the so-called reduced reaction
-
-最高境界是在无麻醉下把器官给移植
-The highest level is the transplantation of organs without anesthesia
-
-他给我讲过这个，当时讲的时候他就说哭的不行了
-He told me about this, and when he was talking about it, he cry like hell
-
-我也是真的一阵时间过不来，就是过不来了
-I am also a period of time can not be relieved, just can not overcome the reality
-
-就你刚才讲的时候，一般人听了会浑身难受，就是浑身鸡皮疙瘩那种
-Listen to what you just said, the normal people will be uncomfortable, is the kind of goose bumps all over the body
-
-就能跟你感同身受，这就叫灵魂嘛
-Empathy, it’s called the soul
-
-我们是人，我们不是石头，也不是畜生，我们当然有感同身受了
-We are people, we are not stones, and not animals, we certainly have empathy
-
-他曾经拜托过我
-He once asked me
-
-他说，文贵，你是我们一切一切的英雄
-said Miles, you are my hero
-
-有一天你能把这话说出去，我为你干什么都行
-One day you can tell the truth, I will do anything for you
-
-我就凭你这个时候，还让我说出去，我有一天我就要实现你这个愿望
-At that time, you still let me tell it, one day I want to fulfill your wish
-
-———————————————————
-
-**原视频链接:** [https://twitter.com/se1y7cblljselva/status/1450395534171148291?s=24](https://twitter.com/se1y7cblljselva/status/1450395534171148291?s=24)
-
-Date:10/21/2021
-原视频标题:
-One of the reasons for exposing the Jiang family’s live organ harvesting
-原视频日期：2021/10/13
-任务编号：KC203（2604）
-视频时间段 : 0:00-2:05
-
-英听校: 洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校: 洛杉矶盘古农场 – Layka
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

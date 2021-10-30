@@ -2,21 +2,13 @@
 ---
 
 
-## 正道喜币
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1627374/)
+## 英国研究发现，疫苗接种者可轻易在家传播中共病毒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1627396/)
 
-韩国首尔天池农场—水滴石穿　校对/上传—无明逆流
-![](https://assets.gnews.org/wp-content/uploads/2021/10/c38e5f2e-2e93-42b4-b4e3-17588ad1002b.jpg)
-**共匪压喜币，
-喜币挺且直。
-要知喜币值，
-待到匪灭时**。
-
-**共匪救经济，
-经济病膏肓。
-何时有希望，
-喜币上市时**。
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1030-scaled.jpg)
+*编辑：东京樱花团/简报小组*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
