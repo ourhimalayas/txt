@@ -2,26 +2,31 @@
 ---
 
 
-## 中共国债纳入富时世界国债指数，或再给世界金融埋雷
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1628589/)
+## 有声|美国有望支持新中国联邦加入联合国
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1628697/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-15.png)[图片来源](https://www.sohu.com/a/458925648_275039)
-10月29日，富时罗素公司正式将中共国债纳入富时世界国债指数（WGBI）。至此，中共国债券市场已被全球三大主要债券指数悉数纳入，其他两个分别是彭博巴克莱全球综合指数、摩根大通旗舰指数。
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月27日，郭文贵先生在直播中，针对美国国务卿布林肯支持台湾参与联合国系统的声明表示，美国能支持台湾加入联合国，就能够支持新中国联邦加入。
 
-中共央行宣称，截至2021年9月末，国际投资者持有中国债券规模达3.9万亿元人民币。
+郭先生表示，中共愚蠢地在联合国挑战美国的国际地位，引起了美国的反弹。美国一方面对中共虚以委蛇，口头上在病毒问题、新疆问题、台湾问题等方面安抚中共，另一方面又在采取实质行动对抗中共。在台湾问题上的坚定立场就是最突出的表现。
 
-去年9月，富时罗素曾公布其世界国债指数年度评估结果，宣布中国国债将自2021年10月起正式被纳入世界国债指数。世界国债指数是富时罗素追踪资金量最大的旗舰指数产品，也是全球政府债券指数的标杆。
+郭先生同时提到，美国能坚决地支持台湾加入联合国，就能够支持新中国联邦、新疆法人代表团等加入联合国，美国有太多可用的工具对抗中共。而在由美国和欧洲发起的联合国系统内，中共的挑战必将失败。
 
-当前，中共经济已经濒临崩溃，房地产和金融企业债务违约频发。中共国债纳入富时世界国债，给中共即将到来的金融核爆多一个出口，恐将给世界金融带来更大危害。
+文字版原文：[美国有望支持新中国联邦加入联合国](https://gnews.org/zh-hans/1624382/)
 
-信息来源：
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-[中国国债纳入富时世界国债指数\_ 证券时报网](https://stock.stcn.com/djjd/202110/t20211030_3821096.html)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
