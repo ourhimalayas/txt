@@ -24,13 +24,6 @@
 
 ---
 
-`@miles 10/30/2021 9:46 PM (UTC)`
-
-在 GETTR 上加入我的直播。
-![img](https://media.gettr.com/group1/getter/2021/10/23/19/bef325e0-a7dd-eef4-f1c5-6977a36aeaf7/7f87f676c946650f527b3506087be38c.jpeg)
-
----
-
 `@miles 10/30/2021 9:01 PM (UTC)`
 
 10月30号：Whenever a government claims to have the people's interests at heart, you need to think again.Never take anything any government tells you at face value.Always question everything<br/>无论何时如果一个政府宣称要把人民的利益放在心上<br/>你都要三思。 永远不要把任何政府告诉你的东西都当真<br/>. 要永远质疑一切！
@@ -306,6 +299,16 @@ F the FDA.  Do the opposite of what they recommend. <br/><br/>DON’T VACCINATE 
 `@jasonmillerindc 10/27/2021 1:09 AM (UTC)`
 
 #GETTR sign-ups have increased by 87.75% over the last 24 hours! 👀<br/><br/>
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@ddnyc 10/27/2021 12:02 AM (UTC)`
+
+@gfashion x Sportswear x Whistle<br/>Shop the collection www.GFASHION.com
+> `@gfashion 10/26/2021 2:01 PM (UTC)`<br/>Accessorize your sets. <br/>https://bit.ly/3piOYZU
+![img](https://media.gettr.com/group45/origin/2021/10/26/14/0979c2c6-647b-3185-3f57-4ad510ece0d7/c4be5dd9e165136390ea8b5bb606f71a.png)
 
 ---
 
