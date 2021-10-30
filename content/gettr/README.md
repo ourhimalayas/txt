@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/30/2021 9:01 PM (UTC)`
+
+10月30号：Whenever a government claims to have the people's interests at heart, you need to think again.Never take anything any government tells you at face value.Always question everything<br/>无论何时如果一个政府宣称要把人民的利益放在心上<br/>你都要三思。 永远不要把任何政府告诉你的东西都当真<br/>. 要永远质疑一切！
+![img](https://media.gettr.com/group39/getter/2021/10/30/21/01/5db4c8d8-98c6-551a-06ff-e30cb9ca7445/out.jpg)
+
+---
+
 `@miles 10/30/2021 5:37 PM (UTC)`
 
 10月30号：这可是大事……
@@ -302,13 +309,6 @@ F the FDA.  Do the opposite of what they recommend. <br/><br/>DON’T VACCINATE 
 
 10/26/2021 Miles Guo’s GETTR: The DWAC’s share price plunged. Claims can be made for the losses in the DWAC stock caused by the fraudulent information provided by Bruno Wu and the insider trading conducted by the 11 funds. We support President Trump and hope he will win， but this scam arranged by the CCP can destroy President Trump.<br/><br/>10/26/2021 文贵盖特：DWAC的股价暴跌，因吴征提供虚假信息和11家基金所进行的内幕交易而导致DWAC的股价下跌可要求索赔；我们支持川普总统并希望他赢, 但中共设计的这一骗局能毁掉川普总统！<br/>
 ![img](https://media.gettr.com/group3/getter/2021/10/27/00/02/e00bea8e-a08c-460a-4e01-1358e5c3e34b/out.jpg)
-
----
-
-`@miles 10/26/2021 8:55 PM (UTC)`
-
-10/26/2021 Miles Guo’s GETTR: The absolute monopoly of the social media led to the cover-ups of the CCP’s evil deeds and the truth about the COVID vaccine. We support healthy competition and reject monopoly. We shall save President Trump by revealing the purposes and means for the CCP to commit crimes. Correction: My message about Xi Jinping’s trip to Europe was incorrect<br/><br/>10/26/2021 文贵盖特：社交媒体的绝对垄断导致中共作恶和疫苗的真相被掩盖，我们支持良性竞争、拒绝垄断；我们要拯救川普总统，揭穿中共的犯罪目的和手段；文贵纠正习近平访问欧洲的错误信息。<br/>
-![img](https://media.gettr.com/group14/getter/2021/10/26/20/55/ea86eafc-b06e-1595-8735-513cdb0fec9a/out.jpg)
 
 ---
 
