@@ -2,49 +2,62 @@
 ---
 
 
-## 40亿美元机构投资者仅有四千万配额而战友独拥六亿配额
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1627959/)
+## 大药企对精神病患者注射血栓疫苗 心理健康组织叫好
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1628067/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/36094282-3362-4892-A58F-3FC430C14AE4_副本.jpg)
-据[2021年10月29日 文贵大直播：格芯在美国上市的重大意义和其未来价值，格芯与数字货币紧密相连；喜币周一上市会带来什么样的改变；房地产会在明年5-7月爆雷，是中共制造的最大的噩梦](https://gtv.org/video/id=617be96f11d1862968fccc4b)时间点1：26：35——
+编译：Jenny Ball
 
-**郭文贵先生：**现在我会告诉大家，真是一币难求，今天就在直播前，现在就是有我们的机构投资者也是我们的战友的，他就在看直播，我相信他在，他这个机构投了多少钱呢，投了多少呢？——1.5亿个币。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/depression.jpeg)图片来源：newstarget.com
 
-我跟他本人连现在没有说，我完全通过喜联储，前天把他1.5亿个币拿走了1.3亿个币，我现在连个电话都没给他通，最大最早的咱们战友机构投资者。
+## 大型制药公司现在针对精神病患者注射血栓，使精神疾病恶化——但是全国领先的心理健康倡导组织却对这种滥用行为表示赞赏。
 
-另外一个机构投资者投了是8000万个币给他拿走了7800万个币，我连个电话也没有给他打，完全叫律师跟他说就拿走，他说听Miles的，他的战友优先。
+已经众所周知， Covid 疫苗会使精神分裂症、抑郁症和双相情感障碍等精神疾病恶化，几乎所有主要的精神健康倡导组织却都在为 CDC 的新目标——精神疾病患者喝彩。 来自十几个领先的国家组织的高层管理人员都在追逐精神病患者，向他们注射更多的神经毒素（数十亿个模拟病毒的刺突蛋白纳米粒子[spike protein nanoparticles](https://www.naturalnews.com/2021-09-16-covid-vaccines-devastating-long-term-effects.html))，众所周知，这些神经毒素会导致/加剧精神病、心肌炎、血栓和 其他致命的“副作用”和不良事件。
 
-咱们战友是十亿币咱六亿个币，战友们，你六亿个币是多少钱呢？六千万美元。人家那个四千万个币是多少钱呢？四十亿美元！四十亿美元，他是按照股权给他分配的比例，不是按币给他分配的比例，四十亿美元！
+据说，如果您已经患有抑郁症或精神分裂症，那么您感染 Covid-19 严重病例的风险就会更高，但完全没有科学、研究或临床试验来支持这一点。
 
-兄弟姐妹们，你想想战友们你们得到了什么？还有人竟然到最后所谓的老椅子，我有什么什么原因我当时没认购币，原来还要求退投资款，我说长岛哥，我说一个都不能放过，一个都不能放过，终生不会再跟你联系，你怀疑过我们。
+这听起来更像是优生学，就像希特勒最初想以“更善”的名义处决老年老人、精神病患者和所有自闭症儿童一样。 只是希特勒使用有毒气体，而不是有毒疫苗（通常是慢杀方法）。
 
-这个世界上说老实话，如果你真的懂得一个人性和爱的话，这个人真的是有一夜情不可怕，他不爱你、他怀疑你，这个人是不能爱的，是不能跟他上床的，你这是最可怕的。
+美国国立卫生研究院 (NIH) 非常清楚，炎症会加剧严重的精神疾病，包括 Covid 血栓注射。
 
-这个你对我们的怀疑和否定，那么长时间你还怀疑我们。那这个事儿是绝对不能有未来的，所以说我昨天给长岛哥我们铁血组所有的兄弟说，一个都不能留。
+大多数严重的精神疾病 (SMI)，包括双相情感障碍、抑郁症和精神分裂症， [都与炎症直接相关](https://mental.news/)，这些对照试验和研究表明，饮食干预可以改善症状，而营养不足的加工食品摄入会导致全身炎症加剧。该研究由 NIH 发表，详细描述了炎症如何将精神疾病推向边缘，那么为什么疫苗行业和 CDC 将目标对准精神病患者？ 只有一个合乎逻辑的答案：减少人口。
 
-（以下暂略）
+Covid 疫苗要么将数十亿个阻塞血液的朊病毒注入人体血液 (强生)，要么通过基因诱使您的细胞在血管系统中产生数十亿个有毒颗粒，并且永不停止生产毒细胞（来自辉瑞或莫德纳的 mRNA）。
 
-撰稿：喜马拉雅的肉夹馍；
+当查看来自遭受突然的新威胁生命状况的凝块注射受害者的统计数据时，严重的炎症是广泛明显的，例如失明、耳聋或患有[心肌炎](https://www.naturalnews.com/2021-08-22-no-case-of-covid-19-vaccine-myocarditis-is-mild.html)，并且这些心肌炎病例中的大多数发生在健康人群中（想想军人和青少年）， 据医生说，病情并不轻。
 
-审核：喜马拉雅的馍夹肉；
+**CDC ****针对精神病患者的疫苗可增加抑郁症、精神分裂症、双相情感障碍**
 
-校对：Maarago；
+当每个人都被要求戴上令人窒息的口罩时，真正的精神疾病“因素”开始飙升。 **Covid ****口罩会在滋生细菌的同时限制呼吸，从而限制氧气和营养物质流向身体和大脑，同时增加感染**** Covid ****病例的可能性**。然后大流行机器倾其所有，使用封锁、社会疏远和抗菌措施来进一步破坏自然免疫力，然后是疫苗。 接下来是加强针。堵塞血液的朊病毒越多，炎症越严重，精神疾病就越致命。这是CDC的计划吗？
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+您是否知道，精神分裂症是 Covid-19 导致死亡的第二大风险因素，仅次于年龄？ 根据疫苗行业及其骗子的说法，只需要“适度努力”来强迫精神病患者接种疫苗，这使他们很容易成为毒疫苗消灭的目标。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+这听起来根本不像是预防自杀，不是吗？ 它被称为“目标外展”作为伪装的活动名称。 以下是支持追逐精神病患者，并强迫他们接种毒剂以加剧他们当前的心理健康状况的 16 家最大组织的“[目标外展](https://mhanational.org/top-executives-sixteen-major-mental-health-organizations-applaud-cdc-adding-mental-illnesses-its)”短名单：
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-32.png)
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-1-17.png)
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+将您的真实新闻拨号调到[Pandemic.news](https://pandemic.news/2021-08-27-top-8-ways-americans-pollute-their-bodies-every-day.html) ，以随时了解 Covid 诈骗的设计陷阱。不需要科学家或医生就可以看到 Covid 疫苗、瑞德西韦Remdesivir、口罩和呼吸机正在加剧大流行的问题，它们在造成自己的大流行。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+**评论：** **“这是CDC的计划吗”？竟然和纳粹如出一辙？如果看不透CDC之流的猫腻，想想赵本山曾忽悠范伟瘸腿买拐，CDC就是这大忽悠！**
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+文章内容来源链接：
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+- [Pandemic.news][WHO insider exposes GAVI, Bill Gates for perpetrating coronavirus plandemic](https://www.pandemic.news/2021-03-04-who-insider-exposes-gavi-gates-perpetrating-plandemic.html)
+- [TruthWiki.org][CDC – Centers for Disease Control and Prevention](http://www.truthwiki.org/cdc-centers-for-disease-control-and-prevention/)
+- [NaturalNews][RIGGED worse than a ballot counting machine: CDC allowing hospitals to classify “fully vaccinated” deaths as “unvaccinated”](https://www.naturalnews.com/2021-10-03-cdc-hospitals-fully-vaccinated-deaths-unvaccinated.html)
+- [ZeroHedge][Sanjay Gupta Tucks Tail Back At CNN After Disastrous Rogan Interview](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
+- [MHAnational.org][Top Executives From Sixteen Major Mental Health Organizations Applaud CDC For Adding Mental Illnesses To Its List Of Underlying Medical Conditions Associated With Higher Risk For Severe COVID-19](https://mhanational.org/top-executives-sixteen-major-mental-health-organizations-applaud-cdc-adding-mental-illnesses-its)
+- [newstarget][Big Pharma now targeting the mentally ill with clot shots that WORSEN mental illness – nation’s leading mental health advocacy organizations applaud the abuse](https://www.newstarget.com/2021-10-28-big-pharma-targeting-mentally-ill-clot-shots.html)
+
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-2.jpeg)
 
  
 

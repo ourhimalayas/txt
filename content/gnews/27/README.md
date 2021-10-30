@@ -2,45 +2,16 @@
 ---
 
 
-## 中共国早已研制出中共病毒的中和抗体
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1627728/)
+## 疫苗灾情｜美国男子 Brandon Crawford 接种强生疫苗后患心脏疾病（影音版）
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1627900/)
 
-作者：纽约香草山农场教育部 – 馬可波羅
+**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 30/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：https://gettr.com/user/mightygroup）**
 
+【美国】一名男子 Brandon Crawford 在接种完强生疫苗后诱发心脏疾病而送院治疗。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-2021年8月30日，文贵先生在直播中提到，D-NAb是中共病毒的解药。NAb是中和抗体的英文缩写。
-
-据中国生物物理学会的网站显示，早在2020年7月23日，中国科学院生物物理研究所及军事医学科学院等单位的研究成果就已经发表在美国《科学》杂志上。该文章报道了一种人源化单克隆抗体NAb，即H014，这种NAb通过与S受体结合域结合，能有效中和SARS-CoV-2。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-113.jpg)
-参考链接：
-1.[Science：饶子和等团队在生命科学领域取得突破](https://www.bsc.org.cn/news/716.html)
-2. [Structural basis for neutralization of SARS-CoV-2 and SARS-CoV by a potent therapeutic antibody](https://www.science.org/doi/full/10.1126/science.abc5881)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编/编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+住院期间，几乎每一次巡视的医生，在看到他的疫苗接种卡之后，都会说“很遗憾，你接种了疫苗。”，Brandon Crawford 将这段感受录成影片发布在 TikTok 上。
 
 
 

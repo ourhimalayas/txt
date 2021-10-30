@@ -2,86 +2,41 @@
 ---
 
 
-## 世界首只比特币期货ETF上市前后给市场带来的关注与冲击
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1627190/)
+## HIMALAYA COIN TO THE MOON
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1627418/)
 
-翻译：香草山信息部 6zero4
+作者：香草山金融部 – FaithKnight、相聚盘古、文唐、文凡、维度
+
+
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
 
 
 
-**伴随着SEC默许比特币期货ETF上市的利好信号，加密货币价格普遍飙升，比特币价格接近6.3万美元**
+老百姓创造的价值和财富，一直用传统法币系统比如美元、人民币来存储和衡量。现在所有货币系统因为和黄金脱钩后，任意放飞，全世界货币超发GDP 的300%多，各国早已债台高筑，特别在CCP病毒、疫苗造成全球生产停摆、梗阻后，各国继续无锚印钞，加速债务崩塌的到来。在这个人类历史的十字路口上，喜马拉雅币的横空出世在虚拟加密货币迅速抢占未来货币金融体系的洪流中独树一帜。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-19.jpg)
+喜马拉雅币是一种基于区块链以太坊ERC1404协议发行的加密代币，利用混合区块链以太坊和Quorum技术，其智能合约配备专业审计保障，实现大量、安全、快速且低成本的金融交易。其独特的Himalaya dollar和Himalaya coin的双币组合设计，使她能对抗现有加密货币市场的波动性，极大的弥补了现有加密货币基础设施的不足。
 
-自从卡梅伦和泰勒（Cameron and Tyler Winklevoss）这对在Facebook历史上最出名的双胞胎在2013年首次提交比特币交易所交易基金（ETF）上市申请并被拒以来，ETF支持者在7年多的等待中一直在不断寻求这类基金的上市批准，以促成加密货币被主流市场接受。
+喜马拉雅币的发行方——喜马拉雅联储对其用户采用最高级别的KYC验证机制，并严格遵守合法的交易规则，在法律监管上给予全球会员和监管者强大的信心，极大地降低非法交易的风险。同时在技术上她采用军用级别的网络安全协议，以确保提供准确、可靠的分类记账，高效的数字资产保护，喜币生态系统内的无缝资产恢复，以及会员信息的隐私保护。
 
-当下加密货币越来越受到人们的理解和接受，新型资产类型数字加密资产越来越受到人们的青睐和追捧，世界货币金融体系面临前所未有的大变革，因此坊间普遍认为监管机构不太可能阻止这些基于当下主流虚拟货币比特币的期货的ETF类产品下周开始交易。在众多的BTC ETF提案中， 期盼在10月18日上市的Proshares的Bitcoin Strategy ETF（BITO）最有可能首先上市，VanEck和Cathie Wood等也迅速排队加入上市竞争。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-535.png)
-与SEC此前以加密领域存在投资风险为由拒绝的比特币ETF申请不同，ProShares和Invesco Ltd.的比特币ETF交易将在一个被高度监管的交易所基于比特币期货合约和互惠基金规则进行交易，而不是基于波动更大风险更大的比特币本身。SEC主席詹斯勒也表示，互惠基金规则提供了“重大的投资者保护”。因此，除非出现最后一分钟逆转，这只基金的推出将是6.7万亿美元ETF行业近10年活动的高潮，并吸引投资者开始将部分资金配置到过去10年表现最佳的加密资产类别/货币/商品上来。
+喜马拉雅货币与其他加密数字货币最大的不同，就是其背后庞大的喜马拉雅生态系统。已经诞生的G|Fashion、GTV、Gettr, 以及未来将出世的G|Mall等一系列的电子商务、社交媒体平台将成为世界上一个全方位的新兴数字经济生态系统，而喜马拉雅币就是这个生态系统中流动的血液。这个生态系统将拥有喜马拉雅联储和Gclub等全球高质量客户，各国商家和品牌将无缝对接这个超越国家和政治壁垒的超级市场，其创造的价值和资本直接存储于喜马拉雅的金融体系中，安全、自由、低成本地流通，并将稳定、持续、长期地增长。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-22.jpg)
+对未来喜马拉雅经济生态的市场预估，以及喜马拉雅币背后强大的实力背书，喜马拉雅币发行总量为1000亿枚，每年10亿枚分100年发行。在布雷顿森林体系解体后，货币首次重新与黄金挂钩，为世界货币滥发、债台高筑并即将崩溃的今天提供一个全新的货币系统解决方案。除首次发行外，未来的发行都将由市场决定，无论是币的数量还是价格，完全公开透明，解决货币滥发、超发操纵市场的世纪难题！
 
-10月15日下午，彭博社重磅头条新闻：SEC文件披露了史上首只比特币期货ETF，ProShares的Bitcoin Strategy ETF（BITO）的发行日期，最早将于10月18日上市。标志着SEC打通了对基于期货的比特币交易所交易基金（ETF）上市的通道，意味着美国乃至世界第一个比特币期货ETF在加密货币行业当下的一个分水岭可以开始交易加密货币。彭博社加密专家表示，这是加密资产市场巨大的利好，在我们看到ProShares招股说明书之后，将比特币ETF上市的胜算提高到了85%。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-536.png)
-这是数字资产向前迈出的关键一步”，将填补数字资产市场与传统金融部门的巨大鸿沟并将两者连接起来，把更多的投资者从古老的金融机构转向新的数字生态系统，对加密货币的未来是一个令人鼓舞的举动。BITO还将为投资者提供比特币敞口，而无需通过任何普通中介账户而可以直接持有加密货币。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-537.png)
-尽管SEC还担心比特币价格可能被操纵，流动性可能不足，以及比特币剧烈的价格波动可能令个人投资者难以承受，但波动性同样可以带来回报：比特币过去三年的全年回报率分别下跌了74%，随后分别上涨了95%和305%。此外，SEC还质疑基金公司是否拥有充分评估加密货币及其相关产品所需的信息，还存在验证基金持有的比特币所有权的问题，以及面临来自黑客的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
 
-自今年8月开始，SEC主席根斯勒对加密货币世界表现出了广泛的兴趣，他表示自己倾向的基金类型是基于芝加哥商品交易所（CME）交易的比特币期货基金。根斯勒对加密货币的兴趣导致了一波以期货为基础的ETF申请热潮，发行者对即将到来的可能的批准的乐观情绪高涨，并帮助比特币价格从4万美元左右的低位在近期升至5万美元以上，本周甚至飙升至5月以来的最高水平，较7月底曾短暂跌破3万美元的价格上涨了一倍，比特币和更广泛的加密货币市场在今天晚10点刚过时大幅上涨，比特币价格今天晚些时候接近6.3万美元。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-538.png)
-市场预期SEC批准以比特币期货为基础的ETF不但可能带来BTC价格的历史新高，而且将其与2017年12月17日比特币期货在CME上市当天发生的事情相提并论。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-539.png)
-比特币自出现以来的价值变化周期类似于20世纪70年代的黄金，黄金在20世纪70年代的表现与比特币自2020年10月以来的表现非常吻合。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-540.png)
-**BITO****确定将于****10****月****19****日上市推出后，期货市场的反应**
+编辑/校对/发稿：Hetangyuese
 
-2021年10月18日早上，《纽约时报》报道期待已久的ProShares的BITO将于明天上午在纽交所推出上市，进一步证实了上周五的猜测。ProShares和纽交所都表示，虽然SEC不会宣布批准，但Proshares的最终招股说明书在有效截止日期之前没有收到任何反对意见，且纽交所正在为其于10月19日的上市作准备。ProShares的CEO萨皮尔（Michael Sapir）表示2021年将因这一里程碑而被铭记。
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-挟BITO明天铁定上市的重磅利好，期货市场投机活动急剧升温，CME比特币期货的未平仓量创下去年以来的最大涨幅，其成交量达到历史最高水平。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-541.png)
-但基于ProShares的招股说明书，其基于比特币期货的ETF以高的期货溢价（远期价格高于现货价格）进行交易的效率受到质疑。BITO通常寻求投资于CME的“前月”的比特币期货合约，而CME比特币期货又通常在到期日进行现金结算，除非在到期日之前对其进行“滚动”。如果该基金打算在到期前“滚动”其CME比特币期货，通常将滚动到下一个“邻近”的CME比特币期货合约。长期来看，基于常规期货的ETF在期货溢价高的产品中预期价值为接近于零，基于比特币期货的ETF会是例外吗？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
-这表明获批的ETF不适合长期投资，只是为当日交易员提供了另外一种投资方式的选择，让他们参与詹斯勒经常批评的那种“高度投机”活动。由于詹斯勒对期货溢价效应的影响太过了解，人们不禁要问，他批准这类产品的立场到底是什么。
 
-**新上市的的****BITO****做了常规****ETF****从未做过的事情**
-
-2021年10月20日，继BITO昨天IPO创下交易纪录后，今天更加令人兴奋，因为BITO做了其他ETF从未做过的事情，即它是首只在两天内资产管理规模突破10亿美元的ETF（黄金是在3天内做到的），意味着BTC是比黄金更受青睐的通胀对冲工具。
-
-让我们来看看比特币价格的历史轨迹：2017年12月创下历史新高，达到19511美元；2020年12月破记录地在两天内上涨23%；2021年1月上涨115%至价格略低于4.2万美元的历史高点；2021年2月初，比特币价格重获1月份的历史高点，并在2天内上涨超过25%，2月底涨幅扩大至44%；2021年3月13日，BTC涨幅超过8%再创新高；2021年4月14日，比特币再创新高，两天内上涨近9%，达到64869美元的历史新高。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-542.png)
-BITO正式上市第二天的今天，BTC价格打破4月份的纪录高点，截至早上8点已经上涨了5%左右，高于66美元飙升。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-543.png)
-此外，本周ETF的期货与现货市场还出现了一些值得注意的动向：
-
-BITO第2天的目标成交量比开盘时还要大，这几乎是闻所未闻的，对BITO的需求推动了BTC 期货飙升，所有加密资产交易所的未平仓量都飙升到了创纪录的高点，并在未来几个月的合约中蔓延。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-544.png)
-相较于BITO现货的BTC 期货溢价超过600美元，较上周明显上升。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-545.png)
-BITO在盘前交易处于昨天的高点并继续飙升，且BITO的期权也开始在纽交所的Arca options和American options交易平台进行交易。
-
-市场对期权的需求是巨大的，ETF期权的引入有助于提高加密衍生品市场的整体流动性，为ETF的生态系统注入新鲜血液，让投资者有了易更多的交易选择，机构投资者可以利用看跌期权对冲或做空比特币，这对期权交易员和投资者以及ETF本身都是一件好事。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-546.png)
-以太坊也不甘落后，交易价格飙升至接近4000美元。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-547.png)
-世界首只基于比特币期货的ETF获得SEC批准上市对于全区经济金融界带来的冲击和影响都有里程碑般的意义，对于新型加密数字资产行业更如平地一声惊雷，吸引了全球社会各界尤其是机构投资者的眼光和注意力，并将促使专业人士和零售人士对加密货币的采用。尤其是传统金融机构和民众对现有法币普遍存在的超发贬值、便利性和安全性的担忧，让金融行业从业人员一直在寻找突破口寻求变革。传统金融行业的货币及其运作模式一定会被加密数字货币生态系统取代，只是时间和方式的问题。
-
-昨天BITO的IPO标志着加密数字货币正式大规模步入主流经济和金融市场，连传统法币系统的既得利益者如SEC和美联储都开始正视并接受加密数字资产及其衍生品。万事开头难，量变促进质变，这只是一个良好的“铺垫”和前戏，为加密数字资产的普及和发展打开了一个缺口。
-
-比特币等当下所有数字货币无一例外都是去中心化的，即技术、账本以及管理责任都是去中心化的，没有人对其造成的影响和损失负责，因此普遍成为暗网洗钱、犯罪和支持恐怖主义的工具，最终被美国等政府机构取缔的命运是很确定的事情。
-
-只有郭文贵先生天才般为新中国联邦设计的HCN，是当下唯一管理责任中心化的加密货币，有法人、有责任、有担当、有保障，HCN的背后不但有稳定币美元USD和喜美元HDO的背书，还有一个强大而完善的G系列实业生态系统作保障。富有新中国联邦法币色彩的HCN占尽天时、地利与人和，且没有任何历史负担和累赘而轻装上阵，上市前就一币难求的 HCN月底的上市必将掀起一场惊涛骇浪，开创加密数字货币交易和运作的新纪元！
-
-原文作者：Tyler Durden from Zerohedge
-
-图片与新闻源于:
-
-[https://www.zerohedge.com/markets/cryptos-surge-news-sec-set-allow-bitcoin-futures-etf](https://www.zerohedge.com/markets/cryptos-surge-news-sec-set-allow-bitcoin-futures-etf)
-
-[https://www.zerohedge.com/crypto/bitcoin-surges-above-60k-first-time-6-months](https://www.zerohedge.com/crypto/bitcoin-surges-above-60k-first-time-6-months)
-
-[https://www.zerohedge.com/markets/bitcoins-futures-etf-launch-tuesday](https://www.zerohedge.com/markets/bitcoins-futures-etf-launch-tuesday)
-
-[https://www.zerohedge.com/crypto/what-bitcoins-new-exchange-day-traded-fund-means](https://www.zerohedge.com/crypto/what-bitcoins-new-exchange-day-traded-fund-means)
-
-[https://www.zerohedge.com/crypto/retail-yolo-types-rejoice-bitcoin-etf-options-start-trading](https://www.zerohedge.com/crypto/retail-yolo-types-rejoice-bitcoin-etf-options-start-trading)
 
  
 

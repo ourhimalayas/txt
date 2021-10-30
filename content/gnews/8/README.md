@@ -2,41 +2,35 @@
 ---
 
 
-## Novavax向澳医疗用品管理局提交疫苗临时使用申请
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1628023/)
+## 2021/10/29 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1628130/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Novavax.jpeg)
-图片来源于网络
+1. 10月26日，疫情下的云南瑞丽。多次被封城，商场饭店等长时间关门 ，物价飞涨。
+2. 10月26日，云南瑞丽一男子从酒店4楼跳楼，官方通报：非隔离人员，因工作不顺。
+3. 10月27日， 吉林松原19岁男子跳松花江遇难，目击者：他放弃了爬桥墩自救。
+4. 10月27日，广东东莞，传情侣点燃汽车自杀。
+5. 10月25日，辽宁哈尔滨，嫌司机开车慢，老人竟然砸晕公交车司机。
+6. 10月24日， 深圳一公园拒绝导盲犬入内，保安用手在视障人士眼前比划，检测其是否能看见。
+7. 10月25日，中共国穷人。广西贵港。学的鞋子穿得只剩半截，老师买了一双新鞋给他换上：他家里困难，有几个兄弟姐妹。
+8. 近日，网传广西玉林男子发布这条炸掉收费站的特效视频后遭警方逮捕！该动画模板在抖音上很流行。
+9. 残疾乘客使用残疾证免费乘车被司机辱骂 “好好留着钱买烧纸的！”
+10. 开始闭关锁国？ 10月28日教育部考试中心公告，北京地区自10月30日，将暂时取消托福、雅思、GRE等各类有关海外考试。
+11. 网曝黑龙江大庆一供热公司上门测室温时，被业主发现疑似测温枪数据造假。
 
-据10月30日上午澳洲第九新闻的最新消息，中共病毒疫苗生产厂商Novavax已经完成了向澳大利亚医疗用品管理局提交临时使用许可申请的相关步骤。
 
-如果本次申请成功，那么在澳大利亚获得批准的疫苗将达到四种：分别为辉瑞、阿斯利康、莫德纳和Novavax。该公司同时也向英国药品和保健品监管机构提交了材料。
+* * *
 
-虽然Novavax在今年早些时候宣布旗下疫苗在针对原始毒株的临床试验中有效防治能力超过96%，但却并没有给出关于防治Delta毒株的相关实验数据。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-目前澳大利亚的两针疫苗接种率已经超过75%，完成接种人数已经达到1570万人。一针接种率即将逼近90%，完成接种人数超过1800万。
 
-其中新南威尔士州完全接种率还差2.5%就将与首都地区一样达到九成关卡，维多利亚州的完全接种率则仅差0.3%突破八成。接种率最低的西澳大利亚也已经完成了超过六成居民的疫苗注射。
+编辑：【英国伦敦喜庄园编辑部】
 
-澳大利亚已经有四分之三的居民完成了两剂接种，而接近九成已经完成了第一剂疫苗接种，可是新的疫苗临时使用许可申请却仍然正在提交。这或许正是在暗示我们光是打完第二针可能还不够，第三针、第四针疫苗的政令或许已经开始酝酿。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-澳大利亚免疫技术咨询小组目前已经开始放风，推荐年龄在12岁以上的免疫功能低下者注射第三剂加强针，而且首推辉瑞和莫德纳这样的mRNA疫苗。
 
-然而如果中共病毒疫苗就是免疫力低下的始作俑者，那么加强针就会变成一个怪诞可怕的连锁：因注射疫苗而导致免疫低下，因免疫低下而继续注射疫苗，直到毒效发作而死于非命。
 
-（本文纯属个人观点，与Gnews无关）
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-
-新闻参考链接：
-
-[澳洲第九新闻（一）](https://www.9news.com.au/national/coronavirus-vaccine-rollout-australia-state-by-state-guide-covid19-vaccination-rates-single-dose-double-doses-explainer/abacde8f-d35e-45ee-83bc-069ede212ecf)
-
-[澳洲第九新闻（二）](https://www.9news.com.au/national/covid-19-vaccine-novavax-applies-provisional-approval-tga/65cdb5e4-a122-4da7-8a70-dd7f524cf711)
-
-[澳大利亚免疫技术咨询小组](https://www.health.gov.au/news/atagi-statement-on-the-use-of-a-3rd-primary-dose-of-covid-19-vaccine-in-individuals-who-are-severely-immunocompromised)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
