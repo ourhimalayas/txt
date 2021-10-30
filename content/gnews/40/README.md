@@ -2,12 +2,18 @@
 ---
 
 
-## 华盛顿特区掀起风暴关于福奇是否继续担任这职位
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1627613/)
+## 疫苗灾情｜美国男子 Brandon Crawford 接种强生疫苗后患心脏疾病（影音版）
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1627900/)
 
-10/25/2021 拉希姆·卡萨姆：华盛顿特区正在掀起一场风暴，关于福奇是否有可信度继续担任这个职位，因为他一直对他的工作、对武汉实验室的资助，还有美国国家过敏和传染病研究所与中共和解放军合作进行的其他研究撒谎。我们必须摆脱掉福奇，因为他是西方的瘟疫，是人类文明的瘟疫。
+**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 30/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：https://gettr.com/user/mightygroup）**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+【美国】一名男子 Brandon Crawford 在接种完强生疫苗后诱发心脏疾病而送院治疗。
+
+住院期间，几乎每一次巡视的医生，在看到他的疫苗接种卡之后，都会说“很遗憾，你接种了疫苗。”，Brandon Crawford 将这段感受录成影片发布在 TikTok 上。
+
+
 
  
 

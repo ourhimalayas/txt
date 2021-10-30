@@ -2,43 +2,24 @@
 ---
 
 
-## Facebook正式宣布改名为“Meta”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1626859/)
+## 索尼计划参与台积电日本新工厂
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1627003/)
 
-作者：美东香草山教育部 – 正义的小新
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-25.png)[图片来源](http://wap.seccw.com/index.php/Index/detail/id/6124.html)
+索尼集团10月28日表示，该公司正在考虑向全球最大的半导体代工企业台积电（TSMC）在日本新建的半导体工厂出资。在半导体严重短缺的背景下，索尼将与台积电合作，来确保图像传感器所需要的运算半导体的稳定采购。通过日台合作，来抗衡紧追不舍的韩国三星电子，争取在继智能手机用传感器之后，在不断增长的车载传感器市场获得更高份额。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“正在考虑发挥索尼的技术经验优势，协助台积电建立新工厂”，在10月28日召开的记者会上，索尼副社长十时裕树这样表示。台积电此前就暗示了与客户合资进驻日本的可能性，十时称“正在就具体出资情况、金额进行全面讨论和协商”。
 
-当地时间10月28日，Facebook在其Connect年度大会上宣布，将公司名称正式更改为“META”，公司股票代码也将从12月1日起变更为“MVRS”。有不少观点认为，Facebook此次改名的一个重要原因，是为了回避丑闻，“金蝉脱壳”。
+台积电10月14日发布了在日本建设新工厂的消息。计划于2022年开工建设，2024年启动量产。将生产电路线宽为22～28纳米（纳米为10亿分之1米）的运算（逻辑）半导体。
 
-不久前，10月20日，美国哥伦比亚特区总检察长拉辛正式起诉Facebook创始人扎克伯格，称其需要在2018年剑桥分析公司的丑闻中承担责任。同天，英国竞争和市场管理局CMA宣布，因Facebook未能提供所需的更新信息，该机构将对Facebook处以近700万美元的罚款。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.4-2.jpg)
-近日，Facebook前雇员弗朗西丝·豪根爆料，提供了数千页的Facebook内部文件，指控该公司存在煽动分裂、破坏民主、损害年轻用户心理健康等一系列无底线行为。随后，美国国会就此事举行了听证会。 公开资料显示，脸书网股价从9月7日收盘新高382.18美元至今，已经跌去17%，10月28日报收在316.92美元，总市值蒸发近1815亿美元。
+此外，索尼还考虑向台积电提供位于熊本县菊阳町的与自家工厂相邻的土地。
 
-参考链接：
+信息来源：[**索尼讨论出资台积电新工厂，有两个目的日经中文网**](https://cn.nikkei.com/industry/itelectric-appliance/46506-2021-10-29-09-23-06.html)
 
-[面簿公司正式改名为Meta 专注元宇宙愿景](https://www.zaobao.com.sg/realtime/world/story20211029-1208123)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编/编辑：Ivy001
-
-校对/发稿：Fei797
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

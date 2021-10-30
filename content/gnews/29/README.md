@@ -2,46 +2,24 @@
 ---
 
 
-## 浅析青蒿素哌喹及青蒿素衍生物
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1627919/)
+## 加拿大知名超市出售的番茄产品涉及中共国的强迫劳动
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1628116/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-1.png)
+#### 翻译/撰稿：zzballack
 
-主讲: 纽约香草山医疗部 文恩
+#### 校对：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-571.png)图片来源：加拿大广播公司
+据《布雷特巴特新闻网》（Breitbart News）10月29日报道，加拿大广播公司（CBC）、英国卫报（Guardian）和一个名为意大利调查报告项目（IRPI）的非营利组织10月29日公布了一项联合调查，发现加拿大数家大型连锁超市销售的番茄产品涉及新疆维吾尔人的强迫劳动。
 
-- 青蒿素哌喹的副作用
+CBC报道说，超市供应商雀巢、德尔蒙特（Del Monte）和联合利华（Unilever）等知名品牌从使用强迫劳动的位于中共国新疆的公司采购西红柿。这些西红柿随后在巴基斯坦、菲律宾和印度等国家进行加工，最后才被送往超市。从这些番茄产品的外包装上完全看不出产地是来自新疆，普通消费者难以知情。
 
+CBC批评一些超市隐瞒其番茄产品的来源。甚至连罗布劳（Loblaws）、索贝斯 (Sobeys)和全食超市（Whole Foods）等加拿大知名超市的意大利供应商也被发现从新疆地区采购番茄。一些意大利供应商声称，涉及强制劳工的西红柿产品还被出售到英国、非洲和澳大利亚。全食超市在“市场”（Marketplace）组织提供了关于其供应商的信息后，出于谨慎，已将其365双倍浓缩番茄酱产品从货架上撤下。其他超市正在采取措施，确保这些产品永远不会在加拿大销售。
 
-文紫医生指出青蒿素哌喹的应用后副作用在以往的文章中（黑龙江发表的针对冠状病毒治疗中青蒿素的应用）中也有所描述，包括Q-T间期延长、恶心、低热、皮肤过敏等症状。战友应用后所出现的副作用的共同点：1,都是应用的青蒿素哌喹；2，都注射过疫苗；疫苗对人体有诸多影响，涉及各个脏器，目前建议应用保健性的产品。WHO已经开始尝试在临床应用青蒿琥酯针剂来治疗冠状病毒，当试验结束即可明确青蒿素所用剂量及剂型，建议大家等待具体的临床数据的披露后再行应用药物类青蒿素。
+共产主义受难者纪念基金会的中国问题资深研究员阿德里安·曾兹 (Adrian Zenz)谴责这些公司的行为，“他们找到了一种方法，仍然从这种压迫中获利。”
 
-- 文恩战友讲解青蒿素衍生物
-- 市场上有一种药物名称与青蒿素很像，但不是青蒿素类药物，战友们在购买时注意不要买错（下图）
+CBC调查发现，数以千计的维吾尔人被胁迫为中共的供应商种植、采摘和加工西红柿，一旦他们拒绝此项任务，中共就威胁要没收他们的财产或把他们送到集中营。中共国是目前世界上最大的番茄浓缩酱生产国之一，美国政府今年早些时候因为强迫劳动的问题已经禁止了来自新疆的番茄产品。
 
-
-- 青蒿素的衍生关系**（化学结构图示）**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-561.png)
-青蒿素（最左侧）含有双氧键，是不溶于水的物质。衍生物包括双氢青蒿素、青蒿琥酯以及蒿甲醚。其中青蒿琥酯完全克服了青蒿素原有的缺陷，且其生物利用度是所有青蒿素衍生物中最高的。口服药物动力学研究，药物从原来的87%被肝脏代谢，只有12%进入血液的状况调整至40%进入血液，这可以说是我国科学家对世界的贡献。WHO今年8月公布的进行多中心、大样本的临床试验用药（青蒿琥酯、伊马替尼、英夫利昔单抗），其中就包括了青蒿琥酯，这个试验预期到明年的3-4月出结果。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-562.png)
-审稿：圣母院钟声
-
-编辑：圣母院钟声
-
-发稿：圣母院钟声
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-2.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-1.png)
+新闻来源：[Report: Canadian Grocery Stores Sold Tomato Products Linked to Forced Labor in China](https://www.breitbart.com/asia/2021/10/29/report-canadian-grocery-stores-sold-tomato-products-linked-forced-labor-china/)
 
  
 

@@ -2,63 +2,43 @@
 ---
 
 
-## 大药企对精神病患者注射血栓疫苗 心理健康组织叫好
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1628067/)
+## 瑞丽是又一个武汉
+` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1628173/)
 
-编译：Jenny Ball
+By：银河勇气星｜天雷滚滚
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-93.png)图源：网路
+10月28日，瑞丽副市长戴荣里在他私人的微信公众号发了一篇文章，呼吁社会援助因疫情被封城了七月之久的瑞丽，引起了一些媒体的转发，让这个处在遥远的边境小城引起人们的关注。可是，奇怪的是，瑞丽的官方在接受采访时出来辟谣了，他们否认长期封城，并称“老百姓的物资、生活保障都没有问题”。并且市长和书记双双出来讲话了。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-1-1.png)图源：网路
+市委书记的说法。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-40.png)图源：网路
+谁的说法可靠？去网上搜了一下。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/depression.jpeg)图片来源：newstarget.com
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/3-26.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/4-20.png)
 
-## 大型制药公司现在针对精神病患者注射血栓，使精神疾病恶化——但是全国领先的心理健康倡导组织却对这种滥用行为表示赞赏。
 
-已经众所周知， Covid 疫苗会使精神分裂症、抑郁症和双相情感障碍等精神疾病恶化，几乎所有主要的精神健康倡导组织却都在为 CDC 的新目标——精神疾病患者喝彩。 来自十几个领先的国家组织的高层管理人员都在追逐精神病患者，向他们注射更多的神经毒素（数十亿个模拟病毒的刺突蛋白纳米粒子[spike protein nanoparticles](https://www.naturalnews.com/2021-09-16-covid-vaccines-devastating-long-term-effects.html))，众所周知，这些神经毒素会导致/加剧精神病、心肌炎、血栓和 其他致命的“副作用”和不良事件。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/5-14.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/6-19.png)
 
-据说，如果您已经患有抑郁症或精神分裂症，那么您感染 Covid-19 严重病例的风险就会更高，但完全没有科学、研究或临床试验来支持这一点。
 
-这听起来更像是优生学，就像希特勒最初想以“更善”的名义处决老年老人、精神病患者和所有自闭症儿童一样。 只是希特勒使用有毒气体，而不是有毒疫苗（通常是慢杀方法）。
+看看微信上、微博上的求救文章，甚至网络直播平台留言区瑞丽人的霸屏求救，就明白谁在说谎了。七个月的连续不间断封城，商铺关门，学校停课，工厂停工，整个城市停摆。没钱还房贷，没钱看病，即使有钱也没医院可以收治病人，有人可能绝望得跳楼了……如此民不聊生，没有媒体报道，没有官方发声，只有零星的自媒体求救，根本引不起全社会的关注。如果不是这个曾经是副市长的戴荣里在北京为他们发声，估计就是成为哑巴城市也不会有人知道。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/7-22.png)图源：网路
+为什么当地政府对老百姓的疾苦如此无动于衷？即使有人发声了，还不断的辟谣，甚至直接恐吓？这里可有二十万的常住人口的呀？为什么？因为这个体制的地方官员的晋升途径全在于上一级政府，老百姓对地方官员的升降起不了任何的作用。下一级官员为了自己的升迁，完全是从自己仕途升迁的角度加以层层加码，其治下的百姓只是他们升迁的垫脚石。只要这些垫脚石不要乱滚乱飞，他们就可以为所欲为。中共国无论哪个地方，主政官员为了邀宠上司，对下边基本上都是加大力度管控，从不顾其死活，由于中共病毒的不可控性，他们在防范方面更是变本加厉。加上瑞丽是一个边境城市，跟缅甸的边境线比较长，而缅甸的动荡局势，让很多人经常从这里回国自首。因此，防控的任务比一般的城市更加复杂。为了保证落实“不输入、不反弹、不外传”的政策任务，更为了保住头顶的乌纱帽，他们的做法比内地的更加简单粗暴：关闭城门。一旦有一点风吹草动，就大规模的隔离，核酸测试，直接让城市停摆。既能赚取隔离费用，又能赚取核酸检测费用，又能保住他们头上的顶戴花翎，一举三得，何乐而不为。至于学生上不了学，重急病人得不到及时救治，居民没有收入来源导致的民生疾苦，都不是他们关心的，哪怕是家里死了亲人既不让出去，也不让人进来，一场场的人伦悲剧刚从武汉结束，又在瑞丽上演。
 
-美国国立卫生研究院 (NIH) 非常清楚，炎症会加剧严重的精神疾病，包括 Covid 血栓注射。
+并且，他们不关心的，也不许外人关心，更不能让媒体关心。当这个前副市长冒天下之大不韪地为民请命曝光了他们的做法后，就直接威胁两位地方主政官员甚至是他们更上一级官员的乌纱帽了，他们当然恼羞成怒。也不知道是谁给了他们如此大的胆量和勇气，直接赤裸裸地公开威胁起来。那些只盯着人家裤裆的媒体，谁愿意闲着没事干了，做这种没钱赚又有危险的活，他们早就没了铁肩担道义的担当精神。
 
-大多数严重的精神疾病 (SMI)，包括双相情感障碍、抑郁症和精神分裂症， [都与炎症直接相关](https://mental.news/)，这些对照试验和研究表明，饮食干预可以改善症状，而营养不足的加工食品摄入会导致全身炎症加剧。该研究由 NIH 发表，详细描述了炎症如何将精神疾病推向边缘，那么为什么疫苗行业和 CDC 将目标对准精神病患者？ 只有一个合乎逻辑的答案：减少人口。
+一群纳税人养的官员，敢于明目张胆对一个曾经的副市长恐吓，对敢于说出真相的普通老百姓还不被扒皮抽筋？这就是河南郑州水灾、山西水灾、瑞丽长期封城真相长期不能被外界知晓的原因。这么大的事情我们，在通讯这么发达的今天，这么久了都无法知道事情的真相，七十多年来，还有多少罪恶在这个土地上还没见天日就被掩盖了真相？还有多少的罪恶披着高尚的外衣肆意横行？我们都无从而知。只有消灭中共，这些罪恶才会停止，中华民族才能重生！
 
-Covid 疫苗要么将数十亿个阻塞血液的朊病毒注入人体血液 (强生)，要么通过基因诱使您的细胞在血管系统中产生数十亿个有毒颗粒，并且永不停止生产毒细胞（来自辉瑞或莫德纳的 mRNA）。
-
-当查看来自遭受突然的新威胁生命状况的凝块注射受害者的统计数据时，严重的炎症是广泛明显的，例如失明、耳聋或患有[心肌炎](https://www.naturalnews.com/2021-08-22-no-case-of-covid-19-vaccine-myocarditis-is-mild.html)，并且这些心肌炎病例中的大多数发生在健康人群中（想想军人和青少年）， 据医生说，病情并不轻。
-
-**CDC ****针对精神病患者的疫苗可增加抑郁症、精神分裂症、双相情感障碍**
-
-当每个人都被要求戴上令人窒息的口罩时，真正的精神疾病“因素”开始飙升。 **Covid ****口罩会在滋生细菌的同时限制呼吸，从而限制氧气和营养物质流向身体和大脑，同时增加感染**** Covid ****病例的可能性**。然后大流行机器倾其所有，使用封锁、社会疏远和抗菌措施来进一步破坏自然免疫力，然后是疫苗。 接下来是加强针。堵塞血液的朊病毒越多，炎症越严重，精神疾病就越致命。这是CDC的计划吗？
-
-您是否知道，精神分裂症是 Covid-19 导致死亡的第二大风险因素，仅次于年龄？ 根据疫苗行业及其骗子的说法，只需要“适度努力”来强迫精神病患者接种疫苗，这使他们很容易成为毒疫苗消灭的目标。
-
-这听起来根本不像是预防自杀，不是吗？ 它被称为“目标外展”作为伪装的活动名称。 以下是支持追逐精神病患者，并强迫他们接种毒剂以加剧他们当前的心理健康状况的 16 家最大组织的“[目标外展](https://mhanational.org/top-executives-sixteen-major-mental-health-organizations-applaud-cdc-adding-mental-illnesses-its)”短名单：
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-32.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-1-17.png)
-
-将您的真实新闻拨号调到[Pandemic.news](https://pandemic.news/2021-08-27-top-8-ways-americans-pollute-their-bodies-every-day.html) ，以随时了解 Covid 诈骗的设计陷阱。不需要科学家或医生就可以看到 Covid 疫苗、瑞德西韦Remdesivir、口罩和呼吸机正在加剧大流行的问题，它们在造成自己的大流行。
-
-**评论：** **“这是CDC的计划吗”？竟然和纳粹如出一辙？如果看不透CDC之流的猫腻，想想赵本山曾忽悠范伟瘸腿买拐，CDC就是这大忽悠！**
-
-文章内容来源链接：
-
-- [Pandemic.news][WHO insider exposes GAVI, Bill Gates for perpetrating coronavirus plandemic](https://www.pandemic.news/2021-03-04-who-insider-exposes-gavi-gates-perpetrating-plandemic.html)
-- [TruthWiki.org][CDC – Centers for Disease Control and Prevention](http://www.truthwiki.org/cdc-centers-for-disease-control-and-prevention/)
-- [NaturalNews][RIGGED worse than a ballot counting machine: CDC allowing hospitals to classify “fully vaccinated” deaths as “unvaccinated”](https://www.naturalnews.com/2021-10-03-cdc-hospitals-fully-vaccinated-deaths-unvaccinated.html)
-- [ZeroHedge][Sanjay Gupta Tucks Tail Back At CNN After Disastrous Rogan Interview](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
-- [MHAnational.org][Top Executives From Sixteen Major Mental Health Organizations Applaud CDC For Adding Mental Illnesses To Its List Of Underlying Medical Conditions Associated With Higher Risk For Severe COVID-19](https://mhanational.org/top-executives-sixteen-major-mental-health-organizations-applaud-cdc-adding-mental-illnesses-its)
-- [newstarget][Big Pharma now targeting the mentally ill with clot shots that WORSEN mental illness – nation’s leading mental health advocacy organizations applaud the abuse](https://www.newstarget.com/2021-10-28-big-pharma-targeting-mentally-ill-clot-shots.html)
 
 
 * * *
 
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
+作者：天雷滚滚
+审核：兵嫂、骄子
+发布：骄子
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-2.jpeg)
-
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
