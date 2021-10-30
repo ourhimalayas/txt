@@ -2,13 +2,13 @@
 ---
 
 
-## 英国研究发现，疫苗接种者可轻易在家传播中共病毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1627396/)
+## 学龄儿童是低风险群体，为什么政府要让他们打疫苗？
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1627560/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1030-scaled.jpg)
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+CDC新冠病毒死亡数据显示：截止2021年10月13日，全美因感染Covid病毒而死亡的学龄儿童共不足400人，可见学龄儿童完全是低风险群体，为什么政府疯狂得要让他们打疫苗？
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

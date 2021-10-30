@@ -2,52 +2,24 @@
 ---
 
 
-## 前疾控中心主任称马里兰州超四成病毒死亡者已接种疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1626908/)
+## 规避中概股风险，软银愿景基金首次投资日本企业
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1626998/)
 
-**评论：对于疫苗的有效性，前疾控中心主任的表达已经给出了事实依据。然而，卫生部门的表示和官员的声明却耐人寻味！对于疫苗的有效率的表述，他们是应该遵循事实数据和科学，还是他们所在的身份位置？是站在接种了疫苗的死亡者的立场，还是别的不可说的因素？**
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-39.png)[图片来源](https://finance.sina.com.cn/tech/2021-10-28/doc-iktzqtyu3955412.shtml)
+日经中文网10月29日消息，日本软银集团（SBG）旗下的“愿景基金（SVF）”对日本生物初创企业Aculys Pharma进行了投资。这是愿景基金第一次投资日本企业。软银集团正在分散投资地区，有可能扩大在日本的投资。
 
-**据《Gateway Pundit》记者Jim Hoft，2021年10月27日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/aw0zs-cgvx6-4.jpg)图片源自Gateway Pundit
-美国疾病控制与预防中心前主任罗伯特·雷德菲尔德周一表示，在过去6至8周内，马里兰州因武汉冠状病毒死亡的人中有40%以上接种了疫苗。
+Aculys由Novartis Pharma的前社长纲场一成等人在1月成立，计划在日本临床开发已在欧美批准生产销售的睡眠障碍治疗药。此次，愿景基金主导筹集了68亿日元资金，将用于新药在日本的临床试验和销售以及利用人工智能（AI）分析潜在患者的数据等。
 
-在接受FOX新闻采访时，前疾病控制与预防中心主任雷德菲尔德（现任 MD 州长霍根的高级顾问）令人震惊地承认，最近马里兰州40%的COVID-19死亡病例都接种了疫苗。
+愿景基金的1号基金的运用额度已达到986亿美元，主要投给了中美等国的高价值AI相关企业。2号基金完全由软银集团出资。从分散投资风险的角度来看，2号基金对每家企业的平均投资额截至2021年6月底约为2.2亿美元，仅为1号基金平均投资额的2成左右。愿景基金对欧洲、中东及中共国以外亚洲企业的投资正在猛增，可以说日本企业也已进入目标范围。
 
-“我听到很多次人们觉得完全接种疫苗的人可能会死亡是一种罕见的事件。我碰巧是马里兰州霍根州长的高级顾问。在过去的6到8周内，马里兰州40%以上的死者都接种了疫苗，”雷德菲尔德在被问及科林鲍威尔的死因时说。
+据相关人士介绍，愿景基金为了在日本扩大投资，正准备增加负责人。估计不仅限于Aculys，愿景基金还考虑在日本下一步的投资。
 
-前疾病预防控制中心主任罗伯特·雷德菲尔德说，过去 6-8 周在马里兰州死亡的人中有超过40%已接种疫苗。
+长期以来，中概股都是软银愿景基金的投资重点，据悉目前中概股仍占软银愿景基金持股的四分之一。当前，随着中共在全球信用的不断破产，加之中共出于内斗而对“中概股”进行清理和打击，导致中概股风险暴增，甚至部分股票已成“中丐股”。软银愿景基金，作为外资基金投资中共的风向标之一，其转移投资重心的举动，对中共国科技和资本市场的影响值得关注。
 
-
-
-> Former CDC Director Robert Redfield said more than 40% of the people who died in Maryland over the last 6-8 weeks were jabbed [pic.twitter.com/zkzRsUq9z9](https://t.co/zkzRsUq9z9)
-> — UK Patriot (@uk\_patriot1) [October 25, 2021](https://twitter.com/uk_patriot1/status/1452567147155234816?ref_src=twsrc%5Etfw)
-
-
-
-但是，马里兰州卫生部发言人安迪·欧文 (Andy Owen) 有不同的说法，即从9月1日到10月15日，死于确诊COVID-19的马里兰人中只有约30%完全接种了疫苗。
-
-MSN报道：
-
-在那段时间内总共有649人死亡，这意味着，根据马里兰州卫生部的说法，其中195人是接种疫苗的人。
-
-卫生部门表示，许多死者还患有其他健康问题，使他们更加脆弱。
-
-官员们发表声明写道：“这进一步强调了我们的使命，即通过敦促符合条件的马里兰州人接受强化注射来保持免疫力”。
-
-**文章来源：**[https://www.thegatewaypundit.com/2021/10/former-cdc-director-robert-redfield-claims-40-deaths-cases-maryland-fully-vaccinated/](https://www.thegatewaypundit.com/2021/10/former-cdc-director-robert-redfield-claims-40-deaths-cases-maryland-fully-vaccinated/)
-
-**（本文评论仅代表个人观点）**
-
-翻译：洛杉矶盘古农场–Raul
-校对：洛杉矶盘古农场–Mike Li
-评论：洛杉矶盘古农场–心照
-编辑：洛杉矶盘古农场–心照
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
