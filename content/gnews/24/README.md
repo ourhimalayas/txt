@@ -2,37 +2,34 @@
 ---
 
 
-## 澳洲前总理警示中共对台湾随时会有动作
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628553/)
+## 日本要闻汇编 10月30日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1628572/)
 
-作者：美东香草山医疗部 云豹
+#### 素材：东京樱花团｜GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-1-8.png)[*图片来源*](https://cdn.hk01.com/di/media/images/2570416/org/53222180884cab2154ba2d0923d19a82.jpg/N6VG-2NgsBES-aiw2VOCDQ_5ucLilDJ9kRCiZpEQomY?v=w1920r16_9)
+1、[**美贸易代表将于下月首次访日**](https://china.kyodonews.net/news/2021/10/0c5996d6aca3.html)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国贸易代表办公室（USTR）29日宣布，贸易代表凯瑟琳･戴（戴琦）将于11月15日访问东京。考虑到抗衡中国，戴琦将与日本政府相关人士等就加强日美经贸关系等举行磋商。这将是戴琦3月上任后首次访日。
 
-10月29日，澳洲前总理艾波特（Tony Abbott）在华府智库「威尔逊中心」（Wilson Center）线上会议中发出警示：各国要密切注意中共随时可能会对台湾发动侵略战争。
+2、[**日本等担忧美国采取“不先使用核武”政策**](https://china.kyodonews.net/news/2021/10/38c0a4a59b33.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.30AM-PICTURES-123456-图片备用.003.jpeg)
+外交消息人士30日透露，有关美国拜登政府正在探讨的“不首先使用核武器”政策，日本和北大西洋公约组织（NATO）等身处美国“核保护伞”之下的盟友担心，不先使用核武政策将导致对拥核国家中国和俄罗斯的威慑力下降。
 
-艾波特是在讨论澳洲、中共与印太区域议题中发出此严厉的警讯。 他警告民主国家不要认为台海在未来十年内不会发生军事冲突，因为他观察习近平性喜冒险，尤其在处理香港问题上民主国家表现软弱，让习近平更有信心对台湾发动军事攻击行动。
+3、[**“选举折扣”参加店创新高 期待拉动消费**](https://china.kyodonews.net/news/2021/10/e2d045879a53--.html)
 
-「必须要让中共知道，对台湾采取任何行动都会有最严重的后果」。 他说，美国总统拜登（Joe Biden）近日表示台湾若遭到中共攻击，美国会协助台湾，让他觉得振奋。 民主国家在此时刻应该展现出对台湾的支持，包括支持台湾加入跨太平洋伙伴全面进步协定（CPTPP）。
+据共同社30日消息，主打优惠划算的“选举折扣”服务在日本人气高涨。每逢国政选举和地方选举时都会在全国开展，31日的众院选举预计将有史上最多的2000多家店铺参加。届时期待能为停滞的地区经济注入活力。
 
-参考链接：[澳洲前總理：北京早晚有動作 台海情勢嚴峻](https://www.cna.com.tw/news/aopl/202110300010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+4、[**众议院选举投票在即 投票率成关注焦点**](https://www3.nhk.or.jp/nhkworld/zh/news/330265/)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+日本国会众议院选举将于31日周日迎来投票日。小选区及比例代表共1051人报名参选。本次是新冠疫情扩大以来，日本的首次全国规模国政选举，投票率成为关注焦点之一。上上次众院投票率为52.66%，是二战结束后投票率最低的一次。上次为53.68%，紧跟其后为第二低。
 
-编辑/总编：木白
-校正/发稿：我不在这里
+5、[**ANA本财年预亏一千亿 拟裁员九千人**](https://china.kyodonews.net/news/2021/10/b2d6ffc396c3-ana-.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+ANA控股公司29日发布了截至2025年度末的5年期间裁员约9000人的计划。在新冠疫情导致旅客需求低迷长期持续的影响下，2021财年（2021年4月至2022年3月）合并财报净利润由此前预想的盈利35亿日元下调至亏损1000亿日元（约合人民币56亿元）。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+*编辑：东京樱花团 / 文小白*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

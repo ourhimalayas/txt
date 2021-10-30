@@ -2,41 +2,24 @@
 ---
 
 
-## 喜联储构筑连接加密货币和金融系统的桥梁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628552/)
+## 秘翻在线：央行等发布重磅文件释放信号金融体系随时发生系统性风险
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1628558/)
 
-作者：美东香草山佛教部 文一
+**撰稿：Ping**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-30-210707.jpg)
+据中共媒体报道，银保监会官网10月29日消息，为进一步增强中共国金融体系的稳定性和健康性，保障全球系统重要性银行具有充足的损失吸收和资本重组能力，防范化解系统性金融风险，人民银行会同银保监会、财政部制定了《全球系统重要性银行总损失吸收能力管理办法》（以下简称《办法》），经国务院同意，现正式发布。
 
-当今技术已经使购买加密货币，如同使用信用卡一样简单。 每个人都知道加密货币金融革命即将到来。然而，仅加密数字货币无法引领这场革命，一个能联系传统金融系统和新兴金融系统的加密数字货币交易、支付平台，将构架起这场颠覆性金融革命的桥梁。
+此消息一出，再次印证了郭文贵先生爆料中共国金融系统即将大崩溃或已成现实。郭先生自爆料以来，多次提到中共金融系统的腐败令人发指。烂账，坏账甚至高达30%以上，银行的倒闭，金融系统的崩溃是既定事实。特别是2020年来中共房地产泡沫已经渐渐被捅破，恒大地产的暴雷，成为了点燃中共整个金融系统崩塌的导火索。中共国的金融崩溃已经难以遏制。而此时央行，银保监会，财政部联合发文，提醒各个部门牢牢守住金融体系不发生风险的底线，这正说明金融崩溃的爆发已经危在眉睫！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.30AM-PICTURES-123456-图片备用.002.jpeg)
+中共统治老百姓的一贯手段就是假，骗，偷。各种虚假，丑陋，邪恶积累70年后，矛盾已经到了爆发的临界点。正如郭先生爆料，中共的白手套企业，用假金融票据，到银行骗贷，然后再转移到国外，占为私有，而银行的帐目还是存在的。所以，当中共盗国贼肆无忌惮的假骗偷行为掩盖不住的时候，也就预示他们的好日子到头了。
 
-郭先生在27日大直播中表示，“没有任何人可以改变，今后一定是虚拟币的时代，未来互联网绝对是人类的一切” 。喜币，喜美元，喜支付和喜联储，正在架设通往加密货币市场的桥梁。 在29日的大直播中，郭先生谈到，喜联储立足于澳大利亚的客户认证机构，是英属维尔京群岛的注册金融机构，并已于去年拿到美国支付牌照；在不久的将来，也将获得几个主要国家的数字银行牌照。喜联储已成为这场金融变革的弄潮儿。
+打个比方，医院血站给一个人抽血200cc的时候，不会影响个人身体健康，但是，为了多得到一些血转卖，第二次抽300cc，转卖100cc，得到利润。当尝到甜头的时候下次再多抽一些血，抽了1年后，已经抽不出血了，血站也已经将多余的血卖钱占为己有了。现在没有血来源了，库存也即将用光的时候。那血站还能运行了么？如今的中共金融系统就是没有血的血站，韭菜已经被中共割了一茬又一茬，现在几乎根都刨出来了。金融系统还能不崩塌么？或许一觉醒来，发现银行倒闭了，你存在银行的钱没有了。所以，现在唯一能自救的就是把钱放进喜联储，喜币可以保你的财富，保你的未来。
 
-参考链接：
+总之，在中共金融体系大崩溃之际。我们的同胞绝不能再被中共的谎言蒙蔽了双眼，它已经欺骗了我们老百姓70年，让我们为奴70年，临死之前还要我们的保命钱也跟着共产党灰飞烟灭，这不是我们这些善良的老百姓应该承担的。我们一定要睁开双眼，认清即将来临的劫难，保护好自己家人的保命钱，换成喜币是目前唯一安全的方法！
 
-1. [Crypto Financial Revolution Is Coming, But we Need a Bridge to Get There](https://beincrypto.com/crypto-financial-revolution-is-coming-but-we-need-a-bridge-to-get-there/)
-2. [文·贵天成——文贵先生谈“G币、喜币、喜联储”（二十一）](https://gnews.org/zh-hans/1620864/)
-3. [文·贵天成——文贵先生谈 “G币、喜币、喜联储”（二十五）](https://gnews.org/zh-hans/1623166/)
-4. [2021年10月29日 文贵大直播：格芯在美国上市的重大意义和其未来价值，格芯与数字货币紧密相连；喜币周一上市会带来什么样的改变；](https://gtv.org/video/id=617be96f11d1862968fccc4b)
-
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-总编：Zion文恩
-编辑：Kathy文艺
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**[新闻来源](https://mparticle.uc.cn/article.html?btifl=100&amp;app=uc-iflow&amp;title_type=1&amp;wm_id=fbd76bb656d948b7a4541253756a2898&amp;wm_cid=451950396697493504&amp;pagetype=share&amp;client=&amp;uc_share_depth=1&amp;uc_param_str=frdnsnpfvepcntnwprdssskt)**
 
  
 
