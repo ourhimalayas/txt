@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/30/2021 6:59 AM (UTC)`
+
+10/29/2021 Miles Guo: DWAC's document on the SPAC IPO reflect that 1) the company has no cas, and Bruno Wu and Patrick Orlando painted a rosy picture for President Trump; 2) DWAC has not yet found a real investor; and 3) DWAC will have trouble keeping their promises because it’s backed by the CCP<br/><br/>10/29/2021 文贵直播：DWAC的关于SPAC上市的文件说明：1) 该公司没现金，吴征和Patrick Orlando只是给川普总统画了个大饼；2) DWAC尚未找到真正的投资人；3) 由于其背后是中共，DWAC难以兑现其承诺<br/>
+![img](https://media.gettr.com/group17/getter/2021/10/30/06/59/58292429-d70e-6a96-5794-4bd1b17d6eef/out.jpg)
+
+---
+
 `@miles 10/30/2021 2:21 AM (UTC)`
 
 10/29/2021 Miles Guo: GlobalFoundries, in which Mubadala invests, controls core technologies, and it may become a trillion-dollar or a half-trillion-dollar company thanks to the CCP and Xi Jinping<br/><br/>10/29/2021 文贵直播：由穆巴达拉投资的格芯掌握核心技术，它可能因为中共和习近平而跻身万亿或半万亿级的公司<br/>
@@ -295,13 +302,6 @@ F the FDA.  Do the opposite of what they recommend. <br/><br/>DON’T VACCINATE 
 
 10月26日：尊敬的战友们好，你们健身了吗？传播C C P病毒真相．和疫苗解药了吗？一切都已经开始！
 ![img](https://media.gettr.com/group26/getter/2021/10/26/11/22/260ee6da-4ea1-93a8-ddd6-c10f3ad876b9/out.jpg)
-
----
-
-`@miles 10/25/2021 4:15 PM (UTC)`
-
-10月25号：MPs of the EU held a conference to oppose the vaccine mandate in the Union<br/>欧盟的议员们开会反对在欧盟内推行强制接种疫苗政策
-![img](https://media.gettr.com/group40/getter/2021/10/25/16/15/1138462d-e0cd-9924-a158-2a1771fa948d/out.jpg)
 
 ---
 

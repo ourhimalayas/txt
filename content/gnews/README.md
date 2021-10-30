@@ -15,167 +15,167 @@
 
 ---
 
-### [奥地利联邦州收紧抗疫规定](/content/gnews/1/README.md)
+### [战友们四年追随和郭文贵先生四年自掏腰包迎来福满之日](/content/gnews/1/README.md)
+ ` NewFOC`
+
+### [德国经济研究所主席警告“通胀恐慌”](/content/gnews/2/README.md)
  ` Shuizhuyu`
 
-### [秘翻在线：纽约市疫苗接种最后期限临近，市政工作面临挑战](/content/gnews/2/README.md)
+### [蔡英文首次公开承认美国军队正在台湾训练台湾部队](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [福奇：不打疫苗的人是中共病毒新毒株产生的原因](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [华盛顿特区掀起风暴关于福奇是否继续担任这职位](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [福奇勾结中共制造基因改造病毒，构成叛国罪](/content/gnews/6/README.md)
+ ` GTV新闻访谈`
+
+### [奥地利联邦州收紧抗疫规定](/content/gnews/7/README.md)
+ ` Shuizhuyu`
+
+### [为什么格罗方德股票是一个好的投资？](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [推行既不防止感染病毒、又不防止传播病毒的疫苗强制令是暴政](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [学龄儿童是低风险群体，为什么政府要让他们打疫苗？](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [秘翻在线：纽约市疫苗接种最后期限临近，市政工作面临挑战](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [进入欧盟议会大楼必须持有 Covid 证书](/content/gnews/3/README.md)
+### [进入欧盟议会大楼必须持有 Covid 证书](/content/gnews/12/README.md)
  ` Shuizhuyu`
 
-### [北京多位人大代表独立参选人遭逼迫 犹如&#8221;阶级敌人&#8221;](/content/gnews/4/README.md)
+### [北京多位人大代表独立参选人遭逼迫 犹如&#8221;阶级敌人&#8221;](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [遭风暴袭击后，维多利亚州10万户家庭仍断电](/content/gnews/5/README.md)
+### [遭风暴袭击后，维多利亚州10万户家庭仍断电](/content/gnews/14/README.md)
  ` 走进澳洲`
 
-### [在格芯高管看来李克强掰着手指头讲市场讲未来全是Sh*t](/content/gnews/6/README.md)
+### [在格芯高管看来李克强掰着手指头讲市场讲未来全是Sh*t](/content/gnews/15/README.md)
  ` NewFOC`
 
-### [G时新闻恭贺喜币上市](/content/gnews/7/README.md)
+### [G时新闻恭贺喜币上市](/content/gnews/16/README.md)
  ` G-时新闻`
 
-### [文·贵天成——文贵先生谈“外星人”（四）](/content/gnews/8/README.md)
+### [文·贵天成——文贵先生谈“外星人”（四）](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [因中共病毒封城七个月，云南瑞丽人口从50万骤降到10万](/content/gnews/9/README.md)
+### [因中共病毒封城七个月，云南瑞丽人口从50万骤降到10万](/content/gnews/18/README.md)
  ` 首尔天池农场`
 
-### [HIMALAYA COIN TO THE MOON](/content/gnews/10/README.md)
+### [HIMALAYA COIN TO THE MOON](/content/gnews/19/README.md)
  ` 纽约香草山MOS01`
 
-### [喜币上市后会的巨大反差造就后悔死、妒忌死及睁眼死](/content/gnews/11/README.md)
+### [喜币上市后会的巨大反差造就后悔死、妒忌死及睁眼死](/content/gnews/20/README.md)
  ` NewFOC`
 
-### [英国研究发现，疫苗接种者可轻易在家传播中共病毒](/content/gnews/12/README.md)
+### [英国研究发现，疫苗接种者可轻易在家传播中共病毒](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本工业生产指数已经连续第三个月下跌](/content/gnews/13/README.md)
+### [日本工业生产指数已经连续第三个月下跌](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [正道喜币](/content/gnews/14/README.md)
+### [正道喜币](/content/gnews/23/README.md)
  ` 首尔天池农场`
 
-### [美政府机构研究报告披露中共国政府对宗教神职人员的钳制](/content/gnews/15/README.md)
+### [美政府机构研究报告披露中共国政府对宗教神职人员的钳制](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共病毒及其疫苗全球超限战中的典型案例（十二）](/content/gnews/16/README.md)
+### [中共病毒及其疫苗全球超限战中的典型案例（十二）](/content/gnews/25/README.md)
  ` 纽约香草山MOS01`
 
-### [文·贵天成——文贵先生谈“外星人”（三）](/content/gnews/17/README.md)
+### [文·贵天成——文贵先生谈“外星人”（三）](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [马云杨元庆和路大脑袋蛇妖闫九指妖都是一个路子不要脸](/content/gnews/18/README.md)
+### [马云杨元庆和路大脑袋蛇妖闫九指妖都是一个路子不要脸](/content/gnews/27/README.md)
  ` NewFOC`
 
-### [加拿大国家免疫咨询委员会（NACI）最新建议：70岁以上打第三针](/content/gnews/19/README.md)
+### [加拿大国家免疫咨询委员会（NACI）最新建议：70岁以上打第三针](/content/gnews/28/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [视频| 庞培奥：邀请台湾加入联合国纵然是好事，但美国有更艰巨的使命保卫台湾](/content/gnews/20/README.md)
+### [视频| 庞培奥：邀请台湾加入联合国纵然是好事，但美国有更艰巨的使命保卫台湾](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [视频| 蔡总统：美对台的支持不仅限于卖武器](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [文·贵天成——文贵先生谈“外星人”（二）](/content/gnews/22/README.md)
- ` 墨尔本雅典娜农场`
-
-### [COVID-19 最新情报｜护士爆料 002：“我见过很多人在接种疫苗后的12～24小时内死亡”](/content/gnews/23/README.md)
+### [COVID-19 最新情报｜护士爆料 002：“我见过很多人在接种疫苗后的12～24小时内死亡”](/content/gnews/30/README.md)
  ` G&#124;News TAIWAN`
 
-### [雅典娜时报-第097期](/content/gnews/24/README.md)
+### [雅典娜时报-第097期](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美情报委员会不肯给中共病毒溯源下结论](/content/gnews/25/README.md)
+### [美情报委员会不肯给中共病毒溯源下结论](/content/gnews/32/README.md)
  ` HimalayaRussia`
 
-### [GTV新闻访谈简报|2021年10月29日晚](/content/gnews/26/README.md)
+### [GTV新闻访谈简报|2021年10月29日晚](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
 
-### [世界首只比特币期货ETF上市前后给市场带来的关注与冲击](/content/gnews/27/README.md)
+### [世界首只比特币期货ETF上市前后给市场带来的关注与冲击](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
 
-### [恒大许家印被勒令用个人财产偿债](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [10/29/2021 文贵直播：由穆巴达拉投资的格芯掌握核心技术，它可能因为中共和习近平而跻身万亿或半万亿级的公司](/content/gnews/29/README.md)
- ` 秘密翻译组-北美组`
-
-### [隨著恒大債務最後期限臨近，中國開發商受到降級打擊](/content/gnews/30/README.md)
+### [隨著恒大債務最後期限臨近，中國開發商受到降級打擊](/content/gnews/35/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [随着恒大债务最后期限临近，中国开发商受到降级打击](/content/gnews/31/README.md)
+### [随着恒大债务最后期限临近，中国开发商受到降级打击](/content/gnews/36/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [一旦台湾有事格芯瞬间涨到三五千亿亿若开战将超过万亿](/content/gnews/32/README.md)
- ` NewFOC`
-
-### [聯合國委員會通過日本反核決議草案，中俄反對](/content/gnews/33/README.md)
+### [聯合國委員會通過日本反核決議草案，中俄反對](/content/gnews/37/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [联合国委员会通过日本反核决议草案，中俄反对](/content/gnews/34/README.md)
+### [联合国委员会通过日本反核决议草案，中俄反对](/content/gnews/38/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [焦点：美元贬值压力巨大，喜币为王时代来临！](/content/gnews/35/README.md)
+### [焦点：美元贬值压力巨大，喜币为王时代来临！](/content/gnews/39/README.md)
  ` 军迷wilson`
 
-### [流通量支付范围是决定喜马拉雅币价值的关键之三](/content/gnews/36/README.md)
+### [喜联储一定会有抵押和贷款业务](/content/gnews/40/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [10/29/2021 文贵直播：中共房地产将于明年5月到7月发生融资暴雷](/content/gnews/37/README.md)
- ` 秘密翻译组-北美组`
-
-### [喜联储一定会有抵押和贷款业务](/content/gnews/38/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [拜登政府默认 谭德塞将无异议连任](/content/gnews/39/README.md)
+### [拜登政府默认 谭德塞将无异议连任](/content/gnews/41/README.md)
  ` HimalayaRussia`
 
-### [10/29/2021 文贵直播：中共的内斗、打台湾、强推房产税、搞种族大屠杀和面临的金融崩溃终将导致中国人将其消灭](/content/gnews/40/README.md)
- ` 秘密翻译组-北美组`
-
-### [索尼计划参与台积电日本新工厂](/content/gnews/41/README.md)
+### [索尼计划参与台积电日本新工厂](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [规避中概股风险，软银愿景基金首次投资日本企业](/content/gnews/42/README.md)
+### [规避中概股风险，软银愿景基金首次投资日本企业](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [易中天个人工作室注销，中共“文化大运动”寒蝉效应显现](/content/gnews/43/README.md)
+### [易中天个人工作室注销，中共“文化大运动”寒蝉效应显现](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本要闻汇编 10月29日](/content/gnews/44/README.md)
+### [日本要闻汇编 10月29日](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [前疾控中心主任称马里兰州超四成病毒死亡者已接种疫苗](/content/gnews/45/README.md)
+### [前疾控中心主任称马里兰州超四成病毒死亡者已接种疫苗](/content/gnews/46/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [洛杉矶警长称疫苗强制“对公共安全的威胁迫在眉睫”](/content/gnews/46/README.md)
+### [洛杉矶警长称疫苗强制“对公共安全的威胁迫在眉睫”](/content/gnews/47/README.md)
  ` HimalayaRussia`
 
-### [众议院议员提出两党议案，以对抗中共在全球对美恶意挑衅](/content/gnews/47/README.md)
+### [众议院议员提出两党议案，以对抗中共在全球对美恶意挑衅](/content/gnews/48/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共是世界宗教自由的最大威胁](/content/gnews/48/README.md)
+### [中共是世界宗教自由的最大威胁](/content/gnews/49/README.md)
  ` 日本东京方舟农场`
 
-### [秘翻在线:央行官员指跨境互联网业务属非法金融活动](/content/gnews/49/README.md)
+### [秘翻在线:央行官员指跨境互联网业务属非法金融活动](/content/gnews/50/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [文贵爆料10/29 今年广交会成交额几乎为零 香港出口贸易跌破35%](/content/gnews/50/README.md)
+### [文贵爆料10/29 今年广交会成交额几乎为零 香港出口贸易跌破35%](/content/gnews/51/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共国间谍在对澳大利亚人实施阴险诡计](/content/gnews/51/README.md)
+### [中共国间谍在对澳大利亚人实施阴险诡计](/content/gnews/52/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [文贵爆料 29/10：一场没有馅饼只有陷阱的SPAC骗局](/content/gnews/52/README.md)
+### [文贵爆料 29/10：一场没有馅饼只有陷阱的SPAC骗局](/content/gnews/53/README.md)
  ` 秘密翻译组-原创组`
 
-### [2021/10/28 墙内世界](/content/gnews/53/README.md)
+### [2021/10/28 墙内世界](/content/gnews/54/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [GTV新闻访谈简报|2021年10月29日早](/content/gnews/54/README.md)
- ` 纽约香草山MOS01`
 
 ### [10/29/2021国际财经快讯：标普纳斯达克创下历史新高；短缺严重制约美国第三季度经济增长](/content/gnews/55/README.md)
  ` 秘密翻译组金融团队`
