@@ -2,57 +2,199 @@
 ---
 
 
-## 香港审查法禁止“可能危害国家安全”的电影
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1627051/)
+## 流通量支付范围是决定喜马拉雅币价值的关键之三
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1627108/)
 
-作者：Ian Miles Cheong
-翻译: HimaBoy
+[https://gtv.org/video/id=617b9060adfd99590c30b0fd](https://gtv.org/video/id=617b9060adfd99590c30b0fd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/11hk-movies-mediumSquareAt3X.jpg)
+那么第三个我要告诉你们
+Y les digo el tercero
 
-香港立法会通过了电影审查法，表面上是为了防止媒体批评执政的中国共产党。继2019年中国大陆对这座岛城实施国家安全法后，香港市民逐渐失去了权利和自由。
+喜币第二个衡量(标准), 什么时候值钱
+La segunda medida (estándar) de la moneda de Himalaya, ¿cuándo valdrá la pena?
 
-电影审查法在无反对派立法会获得批准，并赋予首席秘书权力，如果发现电影“背书、支持、美化、鼓励和煽动可能危害国家安全的活动”，则可以吊销电影执照，BBC 报道。
+在三年后
+Después de tres años
 
-政务司司长是香港第二大有权势的人物。
+但是喜币在上市后, 就一周以后上市后
+Pero una semana después que la moneda de Himalaya se publique
 
-违法者可处以最高三年监禁，并面临最高 100 万港元的罚款，相当于 128,400 美元。
+什么时候对你来讲会增长它的价值
+Para ti, cuándo será el aumento de su valor
 
-据路透社报道，商务部长邱腾华向立法会表示：“目标非常明确：改善电影审查制度，防止任何危害国家安全的行为。”
+就是它的流通量
+Es su circulación
 
-尽管在网上进行了抵制，但面对日益严厉的法律，香港市民仍然相对无能为力。
+它到哪使用
+Hacia dónde se utilizará
 
-路透社报道说：“今年，尽管香港出生的导演获得了前所未有的提名，但今年奥斯卡颁奖典礼自 1969 年以来首次没有在香港转播，这与中国大陆的决定相匹配。”
+它到G-Fashion上买了个内裤, 它是G-Fashion
+Él compra un calzón en G-Fashion, él es G-Fashion
 
-香港曾经是亚洲的电影之都，出过成龙、李连杰等动作电影明星。在香港制作的电影逐渐成为 90 年代早期至中期电影中坚韧不拔都市风貌的代名词，九龙幽闭的街道与其海湾形成鲜明对比——这是东京以外亚洲城市的典型形象。
+它买了一个卡是G卡
+Él compró una tarjeta G
 
-大多数这些电影几乎没有得到政府的直接支持，而是作为一个彻底专注于喜剧和动作商业化的企业发展起来的。结果是好莱坞内容的一种衍生形式，在这种形式中，创作者可以自由表达他们的艺术愿景，而无需屈从于当局的要求。
+如果有跟G系列完全没关系的机构开始(接受)
+Si las organizaciones que no tienen nada que ver con la serie G empiezan a aceptar
 
-“香港的新电影规则将产生寒蝉效应，”乔·皮斯卡特拉对好莱坞报道说。“香港最后的言论自由遗迹现在已经不复存在了。结果是电影制作人进行自我审查，他们现在不得不质疑可能违反新规则的内容，而金融家和发行商现在必须考虑同样的问题。”
+有一个地方接受对它都是不一样的
+Si hay un sitio que acepte, él será diferente
 
-在今年早些时候的奥运会期间，中国警方逮捕了一名男子，因为他在奥运会的公共广播中嘘中国国歌。香港对自由的持续打压也导致该市总人口下降了 1.2%，这是该市自 1961 年开始收集记录以来的最大降幅。
+未来谁能把喜币作为当地国家代理权
+En un futuro, quién podrá utilizar a la moneda de Himalaya como agente nacional local
 
-正如反叛新闻本月早些时候报道的那样，数以万计的香港人因镇压而前往英国、加拿大和其他国家，该地区的大部分政治反对派被监禁，其教育系统被改造以促进亲中宣传。
+和把喜币整个的喜支付
+Con el Himalaya pay y su moneda
 
-來源：[https://www.rebelnews.com/hong\_kong\_censorship\_law\_bans\_films\_that\_might\_endanger\_national\_security](https://www.rebelnews.com/hong_kong_censorship_law_bans_films_that_might_endanger_national_security)
+记住, 喜支付是它所有的未来
+Recuerda, el Himalaya pay es todo su futuro
 
-（文章仅代表作者个人观点）
+啥叫支付, 知道吗?
+¿Saben en qué consiste el pago?
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+就是你的子弹能打到什么地方
+Significa hacia dónde pueden ir tus balas
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+喜币是把枪
+La moneda de Himalaya es una pistola
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+喜币第一枪就打向了G-Fashion的内裤
+El primer disparo de la moneda de Himalaya golpeó hacia el calzón de G-Fashion
 
-**关注我们**
+第二枪打向了G-Club, 打了一张卡
+El segundo disparo se dirige hacia G-club, le dio a la tarjeta
 
-Discord 账号
+证明子弹管用, 枪管用
+Esto comprueba que las balas y la pistola si sirven
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+全世界的所有的枪都是放在家里没试过
+Las pistolas de todo el mundo las tienen en la casa y nunca la han probado
 
-Gettr 账号
+所以说你说多少钱多少钱, 都你家的事儿
+Por eso es asunto tuyo si tu dices cuánto vale
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+不知道你到底能打鸟啊
+No sabes si puedes pegarle al pájaro
+
+还有到底子弹管不管用啊
+Y si al fin las balas sirven
+
+但是喜币第一枪G-Fashion内裤
+Pero el primer disparo de la moneda de Himalaya es el calzón de G-Fashion
+
+第二枪G-Club
+El segundo es G-club
+
+如果战友们代理了这个
+Si los compañeros luchadores representan esto
+
+哎唷, 我能拿着枪
+Ay, puedo tener la pistola
+
+未来我能代表你打出一个德国宝马回来
+En el futuro puedo representarte para cazar un BMW alemán
+
+你是德国代理权
+Eres un agente alemán
+
+你将拥有宝马
+Obtendrás un BMW
+
+十个宝马都可能
+Posiblemente, diez de ellos
+
+为啥我说你要是能买宝马
+Por qué digo que si compras un BMW
+
+宝马接受了喜币支付
+BMW aceptó el pago de Himalaya
+
+我们就证明了
+Entonces comprobamos que
+
+我这个子弹和枪能打宝马
+Esta bala y pistola puede golpear al BMW
+
+那在日本的战友
+Y los compañeros luchadores que están en Japón
+
+如果你能把它在日本说
+Si puedes decir así como
+像我们日本的二尊
+Nuestros dos personajes que están en Japón
+
+我能把日本的某酒店系统签下来
+Puedo firmar el contrato de algún sistema de un hotel en Japón
+
+接受喜支付, 你就打下了日本的所有酒店
+Y que acepte el Himalaya pay, entonces ya conquistaste a todos los hoteles de Japón
+
+如果Rachel能在加拿大
+Si Rachel puede
+
+把那个最大的全世界的叫牛郎网能打下来
+Conquistar a la red más grande de Money Boy
+
+(接受)牛郎介绍, 可以支付喜币
+(aceptar) la presentación de Money Boy que pague en moneda de Himalaya
+
+你就打下了牛郎网
+Entonces logras conquistar a esta red
+
+猫本你听懂我的意思了吗
+Mao Ben, ¿puedes entender lo que digo?
+
+你要在澳大利亚能让它买袋鼠皮, 你就能打下袋鼠皮
+Si puedes hacer que compre la piel del canguro, entonces logras dominarlo
+
+这个所有的币, 它是颗子弹
+Todas las monedas son como una bala
+
+它这个币的生态圈就是核心
+El ecosistema de esta moneda es su núcleo
+
+那么当你上市后发现无数个猎物回来的时候
+Entonces cuando ya salga al mercado, en ese momento te darás cuenta de las incontables presas que regresan
+
+你就知道它一定会大升值的
+Sabras que tendrá un gran aumento de valor
+
+比例是多少钱我可以告诉你
+Puedo decirte cuál es la proporción
+
+我有1块钱的交易
+Tengo una transacción por 1 dólar
+
+它一定是1000倍. 而不是20倍, 30倍
+Él será mil veces más y no veinte o treinta
+
+因为它是货币, 它会成为货币
+Porque él es una moneda, se convertirá en una moneda
+
+它不是法币, 它成为货币了
+No es dinero por decreto, se ha convertido en moneda
+
+———————————————————
+
+**原视频网址**： [https://twitter.com/se1y7cblljselva/status/1451875661442736130?s=24](https://twitter.com/se1y7cblljselva/status/1451875661442736130?s=24)
+
+日期：10/28/2021
+原视频标题：
+El alcance del pago de circulación es la tercera clave para determinar el valor de la moneda de Himalaya
+原视频日期：10/23/2021
+任务编号：KC206（2646）
+视频时间段：0:00-2:20
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

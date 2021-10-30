@@ -2,22 +2,51 @@
 ---
 
 
-## 秘翻在线:央行官员指跨境互联网业务属非法金融活动
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1626835/)
+## 前疾控中心主任称马里兰州超四成病毒死亡者已接种疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1626908/)
 
-撰稿：西枫westca
+**评论：对于疫苗的有效性，前疾控中心主任的表达已经给出了事实依据。然而，卫生部门的表示和官员的声明却耐人寻味！对于疫苗的有效率的表述，他们是应该遵循事实数据和科学，还是他们所在的身份位置？是站在接种了疫苗的死亡者的立场，还是别的不可说的因素？**
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unnamed-16.jpg)图片来源：网络照片
-据人民网10月29日报道，中国央行金融稳定局局长孙天琦日前在第三届外滩金融峰会上的主题演讲时表示：金融作为特许行业，必须持牌经营。跨境互联网券商服务、从事禁止的、未对外开放的金融业务、或者仅持境外牌照在境内开展业务，属非法金融活动**。**
+**据《Gateway Pundit》记者Jim Hoft，2021年10月27日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/aw0zs-cgvx6-4.jpg)图片源自Gateway Pundit
+美国疾病控制与预防中心前主任罗伯特·雷德菲尔德周一表示，在过去6至8周内，马里兰州因武汉冠状病毒死亡的人中有40%以上接种了疫苗。
 
-孙天琦还表示，严厉打击互联网平台上的违法违规行为，一定要“打早”、“打小”，因为互联网上的散播、扩张速度很快。对于违法违规行为必须重罚，依法追究相关单位、人员的刑事、民事责任。在孙天琦不点名指出“注册在开曼群岛的 A 公司”和“注册在（中国）香港的 B 公司”，分别有 80% 和 55% 的存量入金账户来自中国内地后，受此影响，富途证券、老虎证券美股股价在29日盘前暴跌28.12%和22%。
+在接受FOX新闻采访时，前疾病控制与预防中心主任雷德菲尔德（现任 MD 州长霍根的高级顾问）令人震惊地承认，最近马里兰州40%的COVID-19死亡病例都接种了疫苗。
 
-在中共国房地产大亨们集体违约不付到期利息、在建楼盘无人施工、各处银行纷报坏账的状况下，这一轮又轰炸上了中概券商，岂不知他们的背后都是中共自身资本在支持的，早已赚的盆满钵满了，受到打击的终是平民百姓，有网友就评论道：能赚钱的渠道以后都会被定义为非法金融。
+“我听到很多次人们觉得完全接种疫苗的人可能会死亡是一种罕见的事件。我碰巧是马里兰州霍根州长的高级顾问。在过去的6到8周内，马里兰州40%以上的死者都接种了疫苗，”雷德菲尔德在被问及科林鲍威尔的死因时说。
 
-**新闻来源：**
+前疾病预防控制中心主任罗伯特·雷德菲尔德说，过去 6-8 周在马里兰州死亡的人中有超过40%已接种疫苗。
 
-[财经观察：个人信息保护法施行在即，跨境互联网券商何去何从？–经济·科技–人民网 (people.com.cn)](http://finance.people.com.cn/n1/2021/1014/c1004-32253533.html)
+
+
+> Former CDC Director Robert Redfield said more than 40% of the people who died in Maryland over the last 6-8 weeks were jabbed [pic.twitter.com/zkzRsUq9z9](https://t.co/zkzRsUq9z9)
+> — UK Patriot (@uk\_patriot1) [October 25, 2021](https://twitter.com/uk_patriot1/status/1452567147155234816?ref_src=twsrc%5Etfw)
+
+
+
+但是，马里兰州卫生部发言人安迪·欧文 (Andy Owen) 有不同的说法，即从9月1日到10月15日，死于确诊COVID-19的马里兰人中只有约30%完全接种了疫苗。
+
+MSN报道：
+
+在那段时间内总共有649人死亡，这意味着，根据马里兰州卫生部的说法，其中195人是接种疫苗的人。
+
+卫生部门表示，许多死者还患有其他健康问题，使他们更加脆弱。
+
+官员们发表声明写道：“这进一步强调了我们的使命，即通过敦促符合条件的马里兰州人接受强化注射来保持免疫力”。
+
+**文章来源：**[https://www.thegatewaypundit.com/2021/10/former-cdc-director-robert-redfield-claims-40-deaths-cases-maryland-fully-vaccinated/](https://www.thegatewaypundit.com/2021/10/former-cdc-director-robert-redfield-claims-40-deaths-cases-maryland-fully-vaccinated/)
+
+**（本文评论仅代表个人观点）**
+
+翻译：洛杉矶盘古农场–Raul
+校对：洛杉矶盘古农场–Mike Li
+评论：洛杉矶盘古农场–心照
+编辑：洛杉矶盘古农场–心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

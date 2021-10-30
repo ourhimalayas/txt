@@ -2,36 +2,35 @@
 ---
 
 
-## 美国FDA批准为5至11岁的儿童注射了辉瑞疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1627086/)
+## 聯合國委員會通過日本反核決議草案，中俄反對
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1627149/)
 
-#### **编译报导：文泓**
+據《日本共同通訊社》2021 年 10 月 28日報道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-533-e1635558492295.png)圖片來源：《日本共同通訊社》
+紐約 — 聯合國委員會周三通過了一項由日本發起的呼籲徹底消除核武器的決議草案，這引起了聯合國安理會五個常任理事國的分歧回應。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-99.png)
+投票中，152個國家支持該決議，中俄等4國反對，30國棄權。
 
-**图片来源：Heslthline**
-美国时间10月29日，辉瑞和BioNTech的新冠疫苗已被美国监管机构批准用于5至11岁儿童。
+在五個主要的擁有核武器的國家中，英國和美國是該議案的共同提案國，而去年投棄權票的法國則投了贊成票。
 
-美国食品和药物管理局（FDA）于美国时间周五（澳洲时间周六）在一份声明中宣布了这项紧急授权，使美国更接近于在全国各地的学校、儿科医生办公室和药房进行疫苗注射。幼儿的配方是成人注射剂量的三分之一。
+該決議草案預計將于 12 月在聯合國大會上正式通過。
 
-在青少年开始接种疫苗之前，疾病控制与预防中心的免疫咨询委员会也将召开会议，就谁应该接种疫苗以及如何接种疫苗提出更具体的建议。该小组目前定于下周二和周三召开会议。
+“這項決議作爲實現無核武器世界的具體措施之一，提供了所有國家可以共同努力的共同基礎，從而彌合了核武器國家和無核武器國家之間的差距。”日本外相茂木敏充在一份聲明中說。
 
-随后，CDC主任罗谢尔·瓦伦斯基 (Rochelle Walensky)将需要签署顾问的指导意见。
+考慮到美國爲日本提供核威懾，決議沒有提及今年1月生效的《禁止核武器條約》。
 
-FDA周五的行动将允许开始运送这些剂量——这是美国第一次为青少年和成人分发除常规辉瑞剂量以外的任何药物。这些药物将在全国各地的儿科医生办公室、药房和其他地点放置（疫苗），以便在任何CDC批准后立即开始接种。
+該決議包括“銘記”這樣一個事實，即“存在各種方法來實現一個沒有核武器的世界，所有國家之間建立信任對于這一目標至關重要。”
 
-“为年幼的儿童接种新冠疫苗将使我们更接近恢复正常状态，”FDA代理专员珍妮特·伍德科克在声明中说：“我们对与疫苗安全性和有效性有关的数据进行了全面而严格的评估，应该有助于向父母和监护人保证这种疫苗符合我们的高标准。”
+該文件還使用了“認識到”一詞來闡述“使用核武器將導致的災難性人道主義後果”，這一表述包含在去年的決議中，比 2019 年提到的“深切關注”要弱。
 
-新闻链接：[pfizer – Bing images (afr.com)](https://www.afr.com/politics/federal/fda-paves-way-for-pfizer-covid-19-vaccinations-in-young-kids-20211030-p594ii)
+文章來源：https://english.kyodonews.net/news/2021/10/6041df3b453b-un-panel-adopts-japans-anti-nuke-resolution-china-russia-oppose.html
 
-**发布：文泓**
+翻譯：洛杉矶盤古農場 – Raul
+校對/編輯：洛杉矶盤古農場 – 明子
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盤古農場歡迎您加入:(或點擊上方圖片）
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
