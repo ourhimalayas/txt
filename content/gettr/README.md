@@ -17,7 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 10/30/2021 9:38 PM (UTC)`
+`@miles 10/30/2021 9:47 PM (UTC)`
+
+拒绝强制疫苗接种的纽约市民正面临着生计威胁，但对他们来说，对疫苗伤害的担忧比失去工作更可怕<br/><br/>New Yorkers who refuse mandatory vaccinations are facing the consequences of putting their livelihood on the line， but for them, concerns about the vaccine， more frightening than losing their job
+![img](https://media.gettr.com/group26/getter/2021/10/30/21/47/34ada847-f174-3f6c-139c-156aed30b871/out.jpg)
+
+---
+
+`@miles 10/30/2021 9:46 PM (UTC)`
 
 在 GETTR 上加入我的直播。
 ![img](https://media.gettr.com/group1/getter/2021/10/23/19/bef325e0-a7dd-eef4-f1c5-6977a36aeaf7/7f87f676c946650f527b3506087be38c.jpeg)
@@ -299,16 +306,6 @@ F the FDA.  Do the opposite of what they recommend. <br/><br/>DON’T VACCINATE 
 `@jasonmillerindc 10/27/2021 1:09 AM (UTC)`
 
 #GETTR sign-ups have increased by 87.75% over the last 24 hours! 👀<br/><br/>
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@ddnyc 10/27/2021 12:02 AM (UTC)`
-
-@gfashion x Sportswear x Whistle<br/>Shop the collection www.GFASHION.com
-> `@gfashion 10/26/2021 2:01 PM (UTC)`<br/>Accessorize your sets. <br/>https://bit.ly/3piOYZU
-![img](https://media.gettr.com/group45/origin/2021/10/26/14/0979c2c6-647b-3185-3f57-4ad510ece0d7/c4be5dd9e165136390ea8b5bb606f71a.png)
 
 ---
 
