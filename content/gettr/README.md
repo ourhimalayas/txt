@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/30/2021 12:41 AM (UTC)`
+
+10月29日：尊敬的战友们好！这样的解读我直播说的话：是完全错误的，没有基本的金融常识，也是不了解喜联储金融系统的结果。任何人只要通过喜美元帐号KYC以后…可以在喜美元自己的帐号里面合法的购买无限的喜美元，这些喜美元随时可以兑换成美元现金，及HPAY合法可以支付的交易．这不等同于你一定会买喜币。<br/><br/>【文贵大直播爆料：战友机构投资者，用40亿购买了4千万喜币。大家算算，机构持有喜币成本是100美元一个，那么星期一喜币上市该多少钱？】
+![img](https://media.gettr.com/group17/getter/2021/10/30/00/a4960ada-363c-dba1-baff-9ceca65cbc5c/e896ca286429452ff82bd96419dc310a.jpg)
+
+---
+
 `@miles 10/30/2021 12:39 AM (UTC)`
 
 10/29/2021 Miles Guo: The collapse of the CCP’s real estate financing will happen from May to July next year; what scares the financial sector the most is that real estate developers such as Sunac and Fantasia lack the willingness to repay; Li Ka-shing is selling the assets and real estates under Hutchison Whampoa, and this will lead to a financial disaster at home and abroad, and no one will pay for the insurance bought by the Chinese Lao Baixing<br/><br/>10/29/2021 文贵直播：中共房地产将于明年5月到7月发生融资暴雷；让金融界最恐惧的是融创、花样年等房地产商无还款意愿；李嘉诚正在卖和记黄埔名下的房产和产业，这将导致国内外的金融灾难，中国老百姓买的保险将无人赔付<br/>
@@ -300,13 +307,6 @@ https://wabcradio.com/episode/uncovering-the-truth-10-24-2021/   Listen to our l
 
 10/24/2021 Miles Guo: The CCP uses unrestricted economic warfare against President Trump, but we must not attack him since that is what the CCP wanted the most<br/><br/>10/24/2021 文贵直播：中共对川普总统使用了经济超限战，但我们一定不要攻击川普总统，因为这是中共最想要的
 ![img](https://media.gettr.com/group30/getter/2021/10/25/06/38/bed09e41-4b47-8d44-6bfa-d7946de6c70c/out.jpg)
-
----
-
-`@miles 10/25/2021 5:42 AM (UTC)`
-
-The relationship analysis of the characters in SPAC that merged with Trump media
-![img](https://media.gettr.com/group4/getter/2021/10/25/05/d1c00c19-a782-d10f-8fb8-5fc40c68e6e0/3063b664ec2a92930dc150bbf02de565.jpg)
 
 ---
 
