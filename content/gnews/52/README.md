@@ -2,28 +2,26 @@
 ---
 
 
-## 新中国联邦：唯真不破，以真灭共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1626856/)
+## Facebook正式宣布改名为“Meta”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1626859/)
 
-作者：香草山农场 – 恩永存
+作者：美东香草山教育部 – 正义的小新
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-郭文贵先生2021年10月28日在盖特短视频结束时说：新中国联邦最重要的是什么？唯真不破。
+当地时间10月28日，Facebook在其Connect年度大会上宣布，将公司名称正式更改为“META”，公司股票代码也将从12月1日起变更为“MVRS”。有不少观点认为，Facebook此次改名的一个重要原因，是为了回避丑闻，“金蝉脱壳”。
 
-郭先生曾在2019年直播中爆料，在二十大到来前，政法委高官有一半要被干掉。事实情况是，从2019到现在，已有几干个厅级处级的政法干部被抓。铁的事实证实着郭先生的爆料。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-16.jpg)
-新中国联邦所爆的料可以验证，近年来海航、恒大、马云等太多事件的发生即是证明。新中国联邦建国是公开的，在自由神像前直播向全球宣告；新中国联邦投资是有法可依的，近日与SEC的和解就是最好证明。新中国联邦人以“真”为核心，以“真”灭共，以阳谋胜阴谋。
-
-如今全球正遭受中共病毒和疫苗灾难，而新中国联邦人怀着正道主义的信仰冲破黑暗，用“真、善、狠”铲除邪恶中共。崭新的时代正在到来。
+不久前，10月20日，美国哥伦比亚特区总检察长拉辛正式起诉Facebook创始人扎克伯格，称其需要在2018年剑桥分析公司的丑闻中承担责任。同天，英国竞争和市场管理局CMA宣布，因Facebook未能提供所需的更新信息，该机构将对Facebook处以近700万美元的罚款。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.4-2.jpg)
+近日，Facebook前雇员弗朗西丝·豪根爆料，提供了数千页的Facebook内部文件，指控该公司存在煽动分裂、破坏民主、损害年轻用户心理健康等一系列无底线行为。随后，美国国会就此事举行了听证会。 公开资料显示，脸书网股价从9月7日收盘新高382.18美元至今，已经跌去17%，10月28日报收在316.92美元，总市值蒸发近1815亿美元。
 
 参考链接：
 
-[新中国联邦：唯真不破，以真灭共](https://gettr.com/post/pfgby419f4)
+[面簿公司正式改名为Meta 专注元宇宙愿景](https://www.zaobao.com.sg/realtime/world/story20211029-1208123)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-总编/编辑：木白
+总编/编辑：Ivy001
 
 校对/发稿：Fei797
 
