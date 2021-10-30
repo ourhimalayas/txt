@@ -2,21 +2,46 @@
 ---
 
 
-## 中共国首次回应台湾总统证实美军存在于台湾之事
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1628534/)
+## 美排名第一的梅奥诊所雇员抗议疫苗强制
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628554/)
 
-#### 翻译：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-63.jpg)图片来源：BBC
-零对冲网10月29日报道，在星期四台湾总统蔡英文首次证实美国军队在40年后的今天驻扎在台湾这一事实，随着不断来自中共国的挑衅，蔡总统认为如果中共国攻击台湾的话，美国会保护台湾，当天晚些时候中共国谴责了这一事实，认为这违反了“一个中国的原则”。
+作者：美东香草山佛教部 文一
 
-中共外交部归究于美国对台湾“发出了错误信号”，并这一行为威胁到了“和平与稳定”，将“导致一个死结”。外交部发言人汪文斌说：“一个中国原则是美中关系的政治基础，在台湾问题上，美国应该站在一个中国的原则和三个中美联合公报，而不是单方面编造理由，我们坚决反对美国和台湾进行任何任何形式的官方和军方联系，反对美国干涉中国内政”。并称台湾此举是迈向台独的倒退行为。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-很有趣的是中国人民解放军（PLA) 前参谋长对中国南方早报所说的话，这位官员名叫宋忠平说这是美国对中国发出的“严重的政治和军事挑衅”行为的信息。他说中国希望和平统一，如果美国干涉太强烈就会导致武力统一，但另一方面，中国将要准备与美国进行武力较量。
+据报道，10月25日，数百人在美国明尼苏达州罗切斯特市中心游行。他们高喊 “打倒梅奥”并唱着爱国歌曲，用以抗议梅奥诊所实行的强制新冠疫苗接种政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.30AM-PICTURES-123456-图片备用.004.jpeg)
+梅奥诊所拥有约七万三千名员工，是美国排名第一的医院，并连续27年浮动于榜首的位置，且该院在器官和血液移植手术方面享有盛誉。
 
-本月早期华尔街日报通过台湾媒体爆出美国海军已经在台湾驻扎了一年，不久美国国防部官员就证实了该消息，中共国情报部门很可能早已知道。
+据了解，此次抗议活动是由梅奥诊所的一小批工作人员在线发起的。随后短短几小时内，报名参加抗议的人数迅速从十几人增至数百人。 目前，这一针对梅奥诊所的抗议活动已经蔓延至全美多地，包括威斯康星州的拉克罗斯市和亚利桑那州的凤凰城。至于抗议活动的参与人员，则多为因拒绝接种新冠疫苗而被解雇的员工。
 
-新闻来源： [China Reacts For First Time After Taiwan Confirms US Troop Presence](https://www.zerohedge.com/geopolitical/china-reacts-first-time-after-taiwan-confirms-us-troop-presence)
+线上活动方面，梅奥诊所的员工于盖特平台上传了抨击强制新冠疫苗接种政策的视频，同时他们也发表盖文，号召更多的民众抗议新冠疫苗政策，为自由而战。
+
+参考链接：
+
+1. [8,000 Mayo Clinic Employees to be Fired for Refusing COVID-19 Jab](https://gettr.com/post/pfa29w4a5e)
+2. [Crowd protests Mayo Clinic requiring employees to be vaccinated](https://news.yahoo.com/crowd-protests-mayo-clinic-requiring-000200362.html)
+3. [Mayo Clinic](https://en.m.wikipedia.org/wiki/Mayo_Clinic)
+4. [Protesters outside Mayo Clinic La Crosse say they want a choice](https://www.news8000.com/protesters-outside-mayo-clinic-la-crosse-say-they-want-a-choice/)
+5. [Mayo Clinic employees are protesting the vaccine mandates in Arizona!](https://gettr.com/comment/car5t587e7)
+6. [Mayo Employee SCORCHES Mandates in LIVE Interview From Clinic](https://gettr.com/post/pf4dvl9549)
+
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/总编：Irene木木
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
 
  
 
