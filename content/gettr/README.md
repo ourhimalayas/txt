@@ -17,15 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@liujz 10/30/2021 12:55 AM (UTC)`
+`@wizard 10/29/2021 9:49 PM (UTC)`
 
-七哥创造了一个无国界、无边际的安全的金额流通体系
+七哥“隔空取钱”论<br/><br/>随着喜币的上市，无数百万千万富翁被创造出来，大家应该明白了，这就是取钱。为什么喜币有价值，因为大家相信他。信用即价值。七哥创造了信用，而信用产生价值，此为取钱。<br/><br/>最妙的部分是这个“隔空”。<br/><br/>隔空，大家都听说过量子纠缠。说是两个量子状态穿越时空互相状态同步。这个信用就像是量子通信。你相信爆料革命，是一个精神状态。这个状态不像你的钱，需要复杂的转账；不像你的人，去什么地方还要护照，还需要搭乘交通工具。信用穿越时空，任何人无法控制。<br/><br/>隔空取钱就像武侠小说里的绝世高手，找根树枝给你比划比划，事儿就成了。这是人世间顶级玩家的游戏，普通人还是努力早起搬砖吧。。。
 
 ---
 
-`@arthur46805 10/30/2021 1:07 AM (UTC)`
+`@monmon 10/30/2021 12:49 AM (UTC)`
 
-其实这个机构投资者就可以以交易所为银行，买不买喜币都一样
+喜联储打破了国家的监管，只要有账号的无论你在哪里，都可以合法没有限制的流通你自己的钱～现在是喜美元～未来可能喜欧元～喜日元～喜黄金……让所有人货币自由
+
+---
+
+`@locmergu1 10/30/2021 12:52 AM (UTC)`
+
+个人认为，喜币是用来流通和保值的，不是用来投机的。所以我们需要一个稳健增值的币值，而不是一个热钱驱动暴涨暴跌的币值
+
+---
+
+`@liujz 10/30/2021 12:55 AM (UTC)`
+
+七哥创造了一个无国界、无边际的安全的金额流通体系
 
 ---
 
@@ -291,20 +303,6 @@ F the FDA.  Do the opposite of what they recommend. <br/><br/>DON’T VACCINATE 
 `@drmaria 10/25/2021 4:10 PM (UTC)`
 
 https://wabcradio.com/episode/uncovering-the-truth-10-24-2021/   Listen to our latest Sunday show. @RudyGiuliani defends Anderson Cooper
-
----
-
-`@miles 10/25/2021 3:05 PM (UTC)`
-
-10月24号：Covid vaccine can’t stop transmission and there has been a concerted effort to prevent the truth of the vaccine from receiving the attention<br/>佛罗里达州医务总监： 疫苗不能阻止病毒传播， 一直有一股力量阻止疫苗副作用真相的传播
-![img](https://media.gettr.com/group2/getter/2021/10/25/15/05/e4f77f41-1d4d-7a20-cd72-32f310cfa39a/out.jpg)
-
----
-
-`@miles 10/25/2021 2:38 PM (UTC)`
-
-10月24号：绝密绝密绝密．习近平在共产党的六中全会前的．五国秘密外访，说明了什么？有什么样的内外政治目的？
-![img](https://media.gettr.com/group3/getter/2021/10/25/14/38/a35cd0bc-ee03-a6b6-019e-9daa6de1ac5e/out.jpg)
 
 ---
 
