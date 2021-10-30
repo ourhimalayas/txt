@@ -17,6 +17,44 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/30/2021 5:24 PM (UTC)`
+
+10月30号：太棒了👏👏👏👏👏
+> `@witchpeace 10/30/2021 5:17 PM (UTC)`<br/>
+![img](https://media.gettr.com/group25/getter/2021/10/30/17/5b159d74-281a-9d62-95e1-9d971c56c5c4/4cd4f9aff5f0982bbf3f88accd0fa0ab.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@globalhimalaya 10/30/2021 5:13 AM (UTC)`
+
+Pompeo: The CCP has the capacity and intent to do the real harm to the US. <br/>蓬佩奥：中共有能力、有意图真正危害美国。美国不仅要带头推进台湾参与联合国，而且要用实际行动向习近平表明：图谋台湾是绝不可接受的
+![img](https://media.gettr.com/group36/origin/2021/10/30/05/13/84e358fc-376b-9bfa-c85d-ccaaf55e7bf5/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@josephlrue 10/30/2021 3:46 PM (UTC)`
+
+勇敢的医院护士拒绝注射毒疫苗被解雇，身后是安保和工作人员护送她走出她所工作的医院。她没有任何的后悔，为了自由，我的身体我做主，可以放弃一切，她很坦然地面对因为拒打毒苗失去工作。
+> `@dannyc1111 10/30/2021 3:35 PM (UTC)`<br/>Brave nurse fired & escorted out of the hospital she works at for not taking the vaccine. 
+![img](https://media.gettr.com/group38/getter/2021/10/30/15/35/98b4264b-1c9c-4210-73a3-1f51cf4d0e20/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@himalayaukclub 10/30/2021 4:50 PM (UTC)`
+
+10月28日  美国纽约<br/>纽约市消防员在市长比尔·德布拉西奥住所外集会，抗议针对市政工作者的新冠疫苗强制令<br/>#抗议强制接种 #反对疫苗护照 <br/><br/>October 28, New York, USA<br/>NYC firefighters rally outside Mayor Bill De Blasio’s residence to protest Covid-19 vaccine mandate for city workers
+![img](https://media.gettr.com/group37/origin/2021/10/30/16/50/edb53e2c-a2ac-5ca8-5176-c86ddb2a33b4/out.jpg)
+> `@himalayaukclub 10/30/2021 4:44 PM (UTC)`<br/>10月27日  法国巴黎<br/>人们在参议院外面举行抗议活动 #反对疫苗护照<br/><br/>October 27, Paris, France<br/>People gather outside the Senate building to protest against vaccine passports
+![img](https://media.gettr.com/group37/origin/2021/10/30/16/44/52198d08-c7d5-b740-3566-befdfcf7701a/out.jpg)
+
+---
+
 `@miles 10/30/2021 7:40 AM (UTC)`
 
 10/29/2021 Miles Guo: DWAC's document on the SPAC IPO reflect that 1) the company has no cash, and Bruno Wu and Patrick Orlando painted a rosy picture for President Trump; 2) DWAC has not yet found a real investor; and 3) DWAC will have trouble keeping their promises because it’s backed by the CCP<br/><br/>10/29/2021 文贵直播：DWAC的关于SPAC上市的文件说明：1) 该公司没现金，吴征和Patrick Orlando只是给川普总统画了个大饼；2) DWAC尚未找到真正的投资人；3) 由于其背后是中共，DWAC难以兑现其承诺<br/>
@@ -274,34 +312,6 @@ F the FDA.  Do the opposite of what they recommend. <br/><br/>DON’T VACCINATE 
 
 10/26/2021 Miles Guo’s GETTR: The absolute monopoly of the social media led to the cover-ups of the CCP’s evil deeds and the truth about the COVID vaccine. We support healthy competition and reject monopoly. We shall save President Trump by revealing the purposes and means for the CCP to commit crimes. Correction: My message about Xi Jinping’s trip to Europe was incorrect<br/><br/>10/26/2021 文贵盖特：社交媒体的绝对垄断导致中共作恶和疫苗的真相被掩盖，我们支持良性竞争、拒绝垄断；我们要拯救川普总统，揭穿中共的犯罪目的和手段；文贵纠正习近平访问欧洲的错误信息。<br/>
 ![img](https://media.gettr.com/group14/getter/2021/10/26/20/55/ea86eafc-b06e-1595-8735-513cdb0fec9a/out.jpg)
-
----
-
-`@miles 10/26/2021 4:35 PM (UTC)`
-
-太好吃了😋😋
-![img](https://media.gettr.com/group12/getter/2021/10/26/16/35/f22e3069-8f8e-6eaf-7d3e-663299903a80/out.jpg)
-
----
-
-`@miles 10/26/2021 4:32 PM (UTC)`
-
-10月26号：椒麻鸡来啦……
-![img](https://media.gettr.com/group31/getter/2021/10/26/16/32/e1658093-10c3-46a7-c4d8-86c5dfb503d9/out.jpg)
-
----
-
-`@miles 10/26/2021 2:56 PM (UTC)`
-
-10月26日：尊敬的战后们好……为什么我们的穷人总是一直穷？为什么习近平在北京．江派的人竟然不知道？川普总统的股票为什么暴跌？
-![img](https://media.gettr.com/group37/getter/2021/10/26/14/56/8236aec3-0d48-a91a-6395-80b7113d5be0/out.jpg)
-
----
-
-`@miles 10/26/2021 11:22 AM (UTC)`
-
-10月26日：尊敬的战友们好，你们健身了吗？传播C C P病毒真相．和疫苗解药了吗？一切都已经开始！
-![img](https://media.gettr.com/group26/getter/2021/10/26/11/22/260ee6da-4ea1-93a8-ddd6-c10f3ad876b9/out.jpg)
 
 ---
 
