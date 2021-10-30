@@ -2,21 +2,35 @@
 ---
 
 
-## 中共国首次回应台湾总统证实美军存在于台湾之事
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1628534/)
+## 格芯上市意义深远，未来潜力巨大
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628548/)
 
-#### 翻译：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-63.jpg)图片来源：BBC
-零对冲网10月29日报道，在星期四台湾总统蔡英文首次证实美国军队在40年后的今天驻扎在台湾这一事实，随着不断来自中共国的挑衅，蔡总统认为如果中共国攻击台湾的话，美国会保护台湾，当天晚些时候中共国谴责了这一事实，认为这违反了“一个中国的原则”。
+作者：美东香草山 四季
 
-中共外交部归究于美国对台湾“发出了错误信号”，并这一行为威胁到了“和平与稳定”，将“导致一个死结”。外交部发言人汪文斌说：“一个中国原则是美中关系的政治基础，在台湾问题上，美国应该站在一个中国的原则和三个中美联合公报，而不是单方面编造理由，我们坚决反对美国和台湾进行任何任何形式的官方和军方联系，反对美国干涉中国内政”。并称台湾此举是迈向台独的倒退行为。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-很有趣的是中国人民解放军（PLA) 前参谋长对中国南方早报所说的话，这位官员名叫宋忠平说这是美国对中国发出的“严重的政治和军事挑衅”行为的信息。他说中国希望和平统一，如果美国干涉太强烈就会导致武力统一，但另一方面，中国将要准备与美国进行武力较量。
 
-本月早期华尔街日报通过台湾媒体爆出美国海军已经在台湾驻扎了一年，不久美国国防部官员就证实了该消息，中共国情报部门很可能早已知道。
 
-新闻来源： [China Reacts For First Time After Taiwan Confirms US Troop Presence](https://www.zerohedge.com/geopolitical/china-reacts-first-time-after-taiwan-confirms-us-troop-presence)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.30AM-PICTURES-123456-图片备用.001.jpeg)
+
+在10月29日的大直播中，郭文贵先生高度评价了昨天在美国上市的全球领先半导体代工厂格芯公司。 郭先生预言， T3技术将使格芯公司的业务范围扩大至全球芯片产业，因其是5G及AI时代的核心所在。同时，郭先生补充，一旦T3技术面世，中共在通信、太空和军事等领域的技术将彻底落后于世界。 文贵先生表示，芯片对世界的未来极其重要，它更和新中国联邦未来的金融系统、数字区块链技术息息相关。因为当我们有了芯片，我们就有了更多的话语权。为此，郭先生也提到，未来将增资格芯公司，成为其第三大股东。彼时，这个公司也将属于爆料革命的战友们。 文贵先生还指出，中共对文明的扼杀将导致其自身的失败，但也会给格芯带来难得的历史机遇。倘若中共胆敢侵犯台湾，格芯必将与中共抗衡。因此，格芯公司未来的潜力巨大，或将成为万亿级别的企业。 格芯上市，意义深远。
+
+参考链接：[2021年10月29日 文贵大直播：格芯在美国上市的重大意义和其未来价值，….](https://gtv.org/video/id=617be96f11d1862968fccc4b)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Zion文恩
+编辑：Irene木木
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

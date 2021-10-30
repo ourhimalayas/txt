@@ -2,37 +2,26 @@
 ---
 
 
-## 澳洲前总理警示中共对台湾随时会有动作
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628553/)
+## 中共国债纳入富时世界国债指数，或再给世界金融埋雷
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1628589/)
 
-作者：美东香草山医疗部 云豹
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-15.png)[图片来源](https://www.sohu.com/a/458925648_275039)
+10月29日，富时罗素公司正式将中共国债纳入富时世界国债指数（WGBI）。至此，中共国债券市场已被全球三大主要债券指数悉数纳入，其他两个分别是彭博巴克莱全球综合指数、摩根大通旗舰指数。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共央行宣称，截至2021年9月末，国际投资者持有中国债券规模达3.9万亿元人民币。
 
-10月29日，澳洲前总理艾波特（Tony Abbott）在华府智库「威尔逊中心」（Wilson Center）线上会议中发出警示：各国要密切注意中共随时可能会对台湾发动侵略战争。
+去年9月，富时罗素曾公布其世界国债指数年度评估结果，宣布中国国债将自2021年10月起正式被纳入世界国债指数。世界国债指数是富时罗素追踪资金量最大的旗舰指数产品，也是全球政府债券指数的标杆。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.30AM-PICTURES-123456-图片备用.003.jpeg)
+当前，中共经济已经濒临崩溃，房地产和金融企业债务违约频发。中共国债纳入富时世界国债，给中共即将到来的金融核爆多一个出口，恐将给世界金融带来更大危害。
 
-艾波特是在讨论澳洲、中共与印太区域议题中发出此严厉的警讯。 他警告民主国家不要认为台海在未来十年内不会发生军事冲突，因为他观察习近平性喜冒险，尤其在处理香港问题上民主国家表现软弱，让习近平更有信心对台湾发动军事攻击行动。
+信息来源：
 
-「必须要让中共知道，对台湾采取任何行动都会有最严重的后果」。 他说，美国总统拜登（Joe Biden）近日表示台湾若遭到中共攻击，美国会协助台湾，让他觉得振奋。 民主国家在此时刻应该展现出对台湾的支持，包括支持台湾加入跨太平洋伙伴全面进步协定（CPTPP）。
+[中国国债纳入富时世界国债指数\_ 证券时报网](https://stock.stcn.com/djjd/202110/t20211030_3821096.html)
 
-参考链接：[澳洲前總理：北京早晚有動作 台海情勢嚴峻](https://www.cna.com.tw/news/aopl/202110300010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-编辑/总编：木白
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

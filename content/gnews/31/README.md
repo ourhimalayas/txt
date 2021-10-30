@@ -2,25 +2,36 @@
 ---
 
 
-## 美10个州就中共病毒疫苗规定起诉拜登政府
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1628537/)
+## 澳洲前总理警示中共对台湾随时会有动作
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628553/)
 
-#### 翻译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-115.jpg)图片来源：网络截图
-据美联社哥伦比亚10月29日报道，美国十个州周五提起诉讼，要求停止总统乔·拜登对联邦承包商的中共病毒疫苗强制接种命令，认为该要求违反了联邦法律。
+作者：美东香草山医疗部 云豹
 
-来自阿拉斯加、阿肯色州、爱荷华州、密苏里州、蒙大拿州、内布拉斯加州、新罕布什尔州、北达科他州、南达科他州和怀俄明州的总检察长签署了该诉讼，该诉讼是在密苏里州的一个联邦地区法院提起的。这些州要求联邦法官阻止拜登要求联邦承包商的所有雇员接种冠状病毒疫苗的要求，认为这项任务违反了联邦采购法，是对联邦权力的过度扩张。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-如果联邦政府试图违宪地施加其意志，强迫联邦承包商强制接种疫苗，那么劳动力和企业可能会被大量毁灭，进一步加剧供应链和劳动力危机。密苏里州检察长埃里克·施密特（共和党人）在一份声明中说，联邦政府不应该强制要求接种疫苗，他们提起诉讼的原因就是制止这种非法的、违宪的行动。
+10月29日，澳洲前总理艾波特（Tony Abbott）在华府智库「威尔逊中心」（Wilson Center）线上会议中发出警示：各国要密切注意中共随时可能会对台湾发动侵略战争。
 
-以乔治亚州为首的另一组州周五宣布，他们将在该州提起类似的联邦诉讼，试图阻止对承包商的要求。加入此案的其他州包括阿拉巴马州、爱达荷州、堪萨斯州、西弗吉尼亚州和犹他州，以及南卡罗来纳州。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.30AM-PICTURES-123456-图片备用.003.jpeg)
 
-共和党人坎普在一份声明中说，他们不会允许拜登政府规避法律，或迫使辛勤工作的乔治亚人在他们的生计和疫苗之间做出选择。
+艾波特是在讨论澳洲、中共与印太区域议题中发出此严厉的警讯。 他警告民主国家不要认为台海在未来十年内不会发生军事冲突，因为他观察习近平性喜冒险，尤其在处理香港问题上民主国家表现软弱，让习近平更有信心对台湾发动军事攻击行动。
 
-佛罗里达州周四对联邦授权提起了单独的诉讼。该诉讼称，总统无权发布该规定，该规则违反了采购法。
+「必须要让中共知道，对台湾采取任何行动都会有最严重的后果」。 他说，美国总统拜登（Joe Biden）近日表示台湾若遭到中共攻击，美国会协助台湾，让他觉得振奋。 民主国家在此时刻应该展现出对台湾的支持，包括支持台湾加入跨太平洋伙伴全面进步协定（CPTPP）。
 
-新闻来源：[10 states sue Biden administration over COVID vaccine rule](https://apnews.com/article/coronavirus-pandemic-joe-biden-health-lawsuits-missouri-99fb3b040661c71ddde1ded37a2f5b87)
+参考链接：[澳洲前總理：北京早晚有動作 台海情勢嚴峻](https://www.cna.com.tw/news/aopl/202110300010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/总编：木白
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

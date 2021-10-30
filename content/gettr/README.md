@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/30/2021 5:37 PM (UTC)`
+
+10月30号：这可是大事……
+![img](https://media.gettr.com/group47/getter/2021/10/30/17/37/3736242a-4d42-1491-bef5-4f76d5b84b3e/8a52d309f2fe7286dc2f51bc624ec17e.jpg)
+
+---
+
 `@miles 10/30/2021 5:24 PM (UTC)`
 
 10月30号：太棒了👏👏👏👏👏
@@ -31,16 +38,6 @@
 
 Pompeo: The CCP has the capacity and intent to do the real harm to the US. <br/>蓬佩奥：中共有能力、有意图真正危害美国。美国不仅要带头推进台湾参与联合国，而且要用实际行动向习近平表明：图谋台湾是绝不可接受的
 ![img](https://media.gettr.com/group36/origin/2021/10/30/05/13/84e358fc-376b-9bfa-c85d-ccaaf55e7bf5/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@josephlrue 10/30/2021 3:46 PM (UTC)`
-
-勇敢的医院护士拒绝注射毒疫苗被解雇，身后是安保和工作人员护送她走出她所工作的医院。她没有任何的后悔，为了自由，我的身体我做主，可以放弃一切，她很坦然地面对因为拒打毒苗失去工作。
-> `@dannyc1111 10/30/2021 3:35 PM (UTC)`<br/>Brave nurse fired & escorted out of the hospital she works at for not taking the vaccine. 
-![img](https://media.gettr.com/group38/getter/2021/10/30/15/35/98b4264b-1c9c-4210-73a3-1f51cf4d0e20/out.jpg)
 
 ---
 

@@ -2,29 +2,41 @@
 ---
 
 
-## 拜登政府拒绝接受法官命令
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1628535/)
+## 喜联储构筑连接加密货币和金融系统的桥梁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628552/)
 
-#### 翻译：Grace
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-86.jpg)图片来源：en-volve
-据福克斯新闻（Fox News）10月28日报道，拜登政府称不会在华盛顿特区法院裁决前，停止解雇正在寻求中共病毒疫苗宗教豁免的员工。
+作者：美东香草山佛教部 文一
 
-华盛顿特区的一名地区法院法官，科琳.科特尔利(Colleen Kollar-Kotelly)周四发布了一项一分钟命令（a minute order），要求拜登政府同意，文职和现役军人原告在就中共病毒疫苗的宗教豁免问题起诉政府后，在等待裁决期间不会被解雇。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-法官周四还要求拜登政府同意，“宗教豁免请求被拒绝的现役军人原告，在上诉期间不会受到纪律处分或离职”。
+当今技术已经使购买加密货币，如同使用信用卡一样简单。 每个人都知道加密货币金融革命即将到来。然而，仅加密数字货币无法引领这场革命，一个能联系传统金融系统和新兴金融系统的加密数字货币交易、支付平台，将构架起这场颠覆性金融革命的桥梁。
 
-法官进一步命令拜登政府的被告在周五中午之前提交一份补充通知，说明他们是否同意在法院裁决之前不对原告进行惩戒或解雇，否则将安排另一次简报会。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.30AM-PICTURES-123456-图片备用.002.jpeg)
 
-然而，拜登政府在周五中午之前已经作出回应。拜登政府在一份文件中说，在法院对临时限制令（TRO）动议作出裁决之前，它不会同意停止对任何正在寻求疫苗宗教豁免的雇员的纪律处分和解雇。
+郭先生在27日大直播中表示，“没有任何人可以改变，今后一定是虚拟币的时代，未来互联网绝对是人类的一切” 。喜币，喜美元，喜支付和喜联储，正在架设通往加密货币市场的桥梁。 在29日的大直播中，郭先生谈到，喜联储立足于澳大利亚的客户认证机构，是英属维尔京群岛的注册金融机构，并已于去年拿到美国支付牌照；在不久的将来，也将获得几个主要国家的数字银行牌照。喜联储已成为这场金融变革的弄潮儿。
 
-拜登政府在周五的文件中写道：“原告有责任证明即将发生的不可挽回的伤害……但原告除了猜测之外，没有提供任何信息表明他们的宗教例外请求将被拒绝，他们将受到纪律处分，更不用说在理论上有可能受到这种纪律处分的第一天。”
+参考链接：
 
-原告律师迈克尔.约德（Michael Yoder）在一份声明中说：”拜登政府对法治表现出前所未有的轻蔑态度，对基本的宪法轮廓完全无能为力。”
+1. [Crypto Financial Revolution Is Coming, But we Need a Bridge to Get There](https://beincrypto.com/crypto-financial-revolution-is-coming-but-we-need-a-bridge-to-get-there/)
+2. [文·贵天成——文贵先生谈“G币、喜币、喜联储”（二十一）](https://gnews.org/zh-hans/1620864/)
+3. [文·贵天成——文贵先生谈 “G币、喜币、喜联储”（二十五）](https://gnews.org/zh-hans/1623166/)
+4. [2021年10月29日 文贵大直播：格芯在美国上市的重大意义和其未来价值，格芯与数字货币紧密相连；喜币周一上市会带来什么样的改变；](https://gtv.org/video/id=617be96f11d1862968fccc4b)
 
-约德指出，拜登政府的“这种组合对美国的自由是危险的”。约德还说：“值得庆幸的是，我们的宪法保护和保障了不受宗教迫害和胁迫的权利。有了这项命令，我们可以把政府限制在其列举的权力范围内，这样离我们把拜登政府放回原位又近了一步。现在是公民和法院对暴政说不的时候了。宪法不需要重写，它需要重读”。
 
-**新闻来源：**[**Biden admin says it will not halt firing employees seeking vax exemptions before a DC court ruling**](https://www.foxnews.com/politics/biden-admin-vaccine-employees-judge-injunction)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Zion文恩
+编辑：Kathy文艺
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
