@@ -2,118 +2,42 @@
 ---
 
 
-## 喜联储一定会有抵押和贷款业务
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1627090/)
+## 随着恒大债务最后期限临近，中国开发商受到降级打击
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1627161/)
 
-[https://gtv.org/video/id=617b9010adfd99590c30b0e8](https://gtv.org/video/id=617b9010adfd99590c30b0e8)
+【简评：】*中共不管如何管控，其房地产行业的债务巨雷都会引爆，并引发世界金融的交叉违约（世界金融暴雷）。*
 
-**郭文贵**
-**Miles Guo**
+据《路透社》记者：Clare Jim 和 Andrew Galbraith，2021年10月28日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-534-e1635560057497.png)图片来源：《路透社》
+《路透社》香港10月28日 —— 在中国恒大集团的最终偿债截止日期之前（周五），中国的地产开发商在周四遭受重创，他们的股票和债券下跌，债权人扣押资产，被评级机构再次下调评级。
 
-一定会的
-It definitely will
+佳兆业集团（1638.HK）股价受创最严重，在周四下跌近五分之一，此前评级机构下调评级，突显出该公司融资渠道和巨额美元债务的问题。
 
-喜联储一定会的
-the Himalaya Exchange definitely will
+根据数据提供商Duration的数据显示，佳兆业的股价周四下跌多达19.9%，跌至历史低点1.17港元，而其债券（2022年4月），下跌超过8个点，交易价格不到面值的35%。
 
-所有你想象的保险和贷款业务
-All insurance and loan businesses that you can imagine
+佳兆业领跌整个房地产行业。在大陆股市，房地产公司的香港指数(.HSMPI)下跌1.3%，沪深300房地产分类指数(.CSI000952)下跌 2.3%。
 
-以后一定都会的
-in the future, it definitely will
+中国恒大集团（3333.HK）的流动性紧缩，负债超过3000亿美元，引发全球的担忧，恒大债务可能引发系统性风险，其股价下跌超过了5%。恒大面临周五的最后期限，需要支付原定于9月29日到期的 4,750万美元利息。
 
-但时间不确定啊
-but not sure when
+恒大在不到一个星期之前，在最后一刻为较早的一批美元债券支付了8,350万美元利息。如果恒大未能支付利息，就会使公司陷入正式违约，并引发其在国际资本市场上价值超过 190 亿美元的所有债券的交叉违约。
 
-我不能给你做任何承诺
-I can’t make any promise to you
+恒大的困境加剧了中共市值5万亿美元的房地产开发商的财务压力，同时他们还会受到中共政府对债务暴雷的打击。
 
-以喜联储发布为准， 这是一个
-It’ll be subject to the announcement by the Himalaya Exchange, this is Number one
+“中国地产开发商资金渠道的严重收紧降低了该行业的流动性，造成了信贷负循环。财务状况不佳的公司减少了土地和建筑支出以保持偿债的流动性，而销售额在不断下降。”穆迪投资者服务公司的高级副总裁说。
 
-第二个
-Number two
+“与此同时，银行对一些财务状况不佳的开发商收紧了对项目资金的控制，限制了他们管理现金流的能力，并导致他们违约。”
 
-如果喜币喜联储不能成为任何国际金融机构的贷款抵押物
-If H-Coin, Himalaya Exchange cannot be used as loan collateral of any internation-al financial institution
+开发商泛海控股有限公司(000046.SZ)在周四表示，在公司未能偿还到期票据后，其两个离岸公司的公司债务的持有人已占有债务的抵押品，这进一步表明行业压力涉及范围广泛。
 
-它就一文不值，它就是失败的
-it would be worthless, and it would be a failure
+原文链接：[https://www.reuters.com/business/chinese-developer-kaisa-groups-shares-fall-ratings-downgrade-2021-10-28/](https://www.reuters.com/business/chinese-developer-kaisa-groups-shares-fall-ratings-downgrade-2021-10-28/)
 
-再是如果喜币还有喜美元
-Another one, if H-Coin and H-Dollar
+（本文评论仅代表个人观点）
 
-不能在G系列之外接受支付
-cannot accept payment outside of the G series
+翻译/评论：洛杉矶盘古农场 – 轰炸机
 
-它一文不值
-it would be worthless
+校对/编辑：洛杉矶盘古农场 – 明子
 
-它就是胡说八道
-it would be nonsense
 
-它就是骗局
-it would be a scam
-
-我第一个起诉他们
-I would be the first one to sue them
-
-把他们告倒
-to take them down
-
-我告诉你
-let me tell you
-
-它一定会被全世界
-it will definitely be (used) globally
-
-只是什么时间的问题
-It’s just a matter of time
-
-成为最好的抵押物
-to become the best collateral
-
-成为最好的贷款
-the best loan
-
-大家欢迎的
-and preferred by everyone
-
-但不管如何
-But no matter what
-
-你刚才问的问题
-The question that you just asked
-
-喜联储会不会（上线抵押）
-will the Himalaya Exchange (online mortgage business)
-
-一定会的
-It definitely will
-
-只是时间（问题）
-just a matter of time
-
-而据我所知，它们比你想象的规划还大
-Based on what I know, their projects are way bigger than you thought
-
-———————————————————
-
-**原视频链接**:[https://twitter.com/se1y7cblljselva/status/1452951472132395014?s=24](https://twitter.com/se1y7cblljselva/status/1452951472132395014?s=24)
-
-Date: 10/26/2021
-原视频标题: 
-Himalaya Exchange will definitely include loan and mortgage business
-原视频日期：2021/10/24
-任务编号：KC204（2677）
-视频时间段 : 0:00-1:01
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

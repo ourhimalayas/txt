@@ -2,50 +2,46 @@
 ---
 
 
-## 遭风暴袭击后，维多利亚州10万户家庭仍断电
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1627495/)
+## 美国两院通过《安全设备法》 彻底封杀华为中兴
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1627595/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/4100042-16x9-940x529-1.jpg)
+作者：纽约香草山农场 – 007
 
 
 
-图片来源：abc.net.au
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-#### 编译：小红帽
 
-在狂暴的风暴摧毁了电线并损坏了房屋，导致大面积停电之后，澳大利亚维多利亚州超过10万处房产仍处于断电状态。
+10月28日，美国参议院通过了《2021年安全设备法》。这项法案指示，对已被列入威胁国家安全黑名单的公司，美国联邦通讯委员会不得进行审议，或颁发新的设备执照。本月早些时候，众议院已通过了该法案。
 
-星期四晚上，毁灭性的狂风袭击了该州，成千上万的人请求紧急援助，数百处房产受损。
+制定者指出，这是为了堵住漏洞，不让任何华为、中兴等中共支持的设备进入美国电信网络。今年3月，华为和中兴等五家中共国企业，被列入黑名单，但根据联邦通讯委员会2020年制定的规则，仅适用于联邦资金购买的设备。新的法案，纳入了用民间资金、或非联邦政府资金购买的设备。 共和党参议员鲁比奥对此表示，新法案将使中共不能再利用这个危险的漏洞。民主党参议员马基声明中说：“我们必须用我们的价值观来激活我们的技术。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-172.jpg)
+参考链接：
+[严阻华为中兴 国会两院通过《安全设备法》](https://www.voachinese.com/a/senate-passed-secure-equipment-act-20211028/6290409.html)
 
-维多利亚州国家紧急服务部门在周五通宵工作，以处理恶劣天气后的大量求助请求。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-截至周六早上7 点30分，国家紧急事务局正在处理1300多个援助请求。
+总编/编辑：童谣
+校对/发稿：为真不破20
 
-能源市场运营商AEMO表示，截至周六上午8点25分，仍有11万户家庭断电，低于周五的51.8万户。
+**更多资讯，更多关注**
 
-联合能源公司表示，“在评估网络损坏的全部范围之前”，很难估计准确的电力恢复时间。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-电线的损坏非常严重，一些客户可能在本周末甚至下周初都没有电。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-紧急事务管理专员安德鲁·克里斯普 (Andrew Crisp) 还表示，未来几天可能会有更多狂风暴雨。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-风暴使墨尔本几条火车线路线路停运，疫苗接种中心关闭，并使弗兰克斯顿和帕肯纳姆的两所学校暂停了VCE考试。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-风暴还在南澳大利亚造成了广泛的破坏，导致阿德莱德的3万多户家庭和企业断电。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**参考新闻：**[Storm damage: 100,000 Victorian homes still in the dark (thenewdaily.com.au)](https://thenewdaily.com.au/news/state/vic/2021/10/30/victoria-storm-damage-electricity/)
 
-***发布：小红帽***
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
