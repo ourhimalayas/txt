@@ -2,24 +2,37 @@
 ---
 
 
-## 索尼计划参与台积电日本新工厂
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1627003/)
+## 美国FDA批准为5至11岁的儿童注射了辉瑞疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1627086/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-25.png)[图片来源](http://wap.seccw.com/index.php/Index/detail/id/6124.html)
-索尼集团10月28日表示，该公司正在考虑向全球最大的半导体代工企业台积电（TSMC）在日本新建的半导体工厂出资。在半导体严重短缺的背景下，索尼将与台积电合作，来确保图像传感器所需要的运算半导体的稳定采购。通过日台合作，来抗衡紧追不舍的韩国三星电子，争取在继智能手机用传感器之后，在不断增长的车载传感器市场获得更高份额。
+#### **编译报导：文泓**
 
-“正在考虑发挥索尼的技术经验优势，协助台积电建立新工厂”，在10月28日召开的记者会上，索尼副社长十时裕树这样表示。台积电此前就暗示了与客户合资进驻日本的可能性，十时称“正在就具体出资情况、金额进行全面讨论和协商”。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-99.png)
 
-台积电10月14日发布了在日本建设新工厂的消息。计划于2022年开工建设，2024年启动量产。将生产电路线宽为22～28纳米（纳米为10亿分之1米）的运算（逻辑）半导体。
+**图片来源：Heslthline**
+美国时间10月29日，辉瑞和BioNTech的新冠疫苗已被美国监管机构批准用于5至11岁儿童。
 
-此外，索尼还考虑向台积电提供位于熊本县菊阳町的与自家工厂相邻的土地。
+美国食品和药物管理局（FDA）于美国时间周五（澳洲时间周六）在一份声明中宣布了这项紧急授权，使美国更接近于在全国各地的学校、儿科医生办公室和药房进行疫苗注射。幼儿的配方是成人注射剂量的三分之一。
 
-信息来源：[**索尼讨论出资台积电新工厂，有两个目的日经中文网**](https://cn.nikkei.com/industry/itelectric-appliance/46506-2021-10-29-09-23-06.html)
+在青少年开始接种疫苗之前，疾病控制与预防中心的免疫咨询委员会也将召开会议，就谁应该接种疫苗以及如何接种疫苗提出更具体的建议。该小组目前定于下周二和周三召开会议。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+随后，CDC主任罗谢尔·瓦伦斯基 (Rochelle Walensky)将需要签署顾问的指导意见。
+
+FDA周五的行动将允许开始运送这些剂量——这是美国第一次为青少年和成人分发除常规辉瑞剂量以外的任何药物。这些药物将在全国各地的儿科医生办公室、药房和其他地点放置（疫苗），以便在任何CDC批准后立即开始接种。
+
+“为年幼的儿童接种新冠疫苗将使我们更接近恢复正常状态，”FDA代理专员珍妮特·伍德科克在声明中说：“我们对与疫苗安全性和有效性有关的数据进行了全面而严格的评估，应该有助于向父母和监护人保证这种疫苗符合我们的高标准。”
+
+新闻链接：[pfizer – Bing images (afr.com)](https://www.afr.com/politics/federal/fda-paves-way-for-pfizer-covid-19-vaccinations-in-young-kids-20211030-p594ii)
+
+**发布：文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

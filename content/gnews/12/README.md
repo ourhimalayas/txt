@@ -2,112 +2,193 @@
 ---
 
 
-## 爆料江家活摘器官原因之一
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1627052/)
+## 流通量支付范围是决定喜马拉雅币价值的关键之三
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1627108/)
 
-[https://gtv.org/video/id=617b8fb3adfd99590c30b0d5](https://gtv.org/video/id=617b8fb3adfd99590c30b0d5)
+[https://gtv.org/video/id=617b9060adfd99590c30b0fd](https://gtv.org/video/id=617b9060adfd99590c30b0fd)
 
-**郭文贵：**
-**Miles Guo：**
+那么第三个我要告诉你们
+Y les digo el tercero
 
-当时，我爆这个器官移植这个事情的时候
-When I exposed the organ transplant thing
+喜币第二个衡量(标准), 什么时候值钱
+La segunda medida (estándar) de la moneda de Himalaya, ¿cuándo valdrá la pena?
 
-我压力是特别大的
-At that time, I was under a lot of pressure
+在三年后
+Después de tres años
 
-因为我的家人、同事还都在里面
-Because my family and colleagues were still in prison in mainland China
+但是喜币在上市后, 就一周以后上市后
+Pero una semana después que la moneda de Himalaya se publique
 
-我被多次警告，直接来自江家，江家身边也有我的朋友
-I was directly warned by the Jiang family many times, because there are friends of mine around the Jiang family
+什么时候对你来讲会增长它的价值
+Para ti, cuándo será el aumento de su valor
 
-直接警告，千万别说这个，文贵
-Direct warning, don’t talk about it, Miles
+就是它的流通量
+Es su circulación
 
-你话不落音，你就会消失在地球上
-You will disappear before your words are heard
+它到哪使用
+Hacia dónde se utilizará
 
-这对我当时压力很大的
-I was under a lot of pressure at that time
+它到G-Fashion上买了个内裤, 它是G-Fashion
+Él compra un calzón en G-Fashion, él es G-Fashion
 
-Eglise，你不知道当时我爆这个对我没有任何好处
-Eglise, you don’t know that it didn’t do me any good by blowing this up at that time
+它买了一个卡是G卡
+Él compró una tarjeta G
 
-但我为啥要爆
-But why do I want to expose it?
+如果有跟G系列完全没关系的机构开始(接受)
+Si las organizaciones que no tienen nada que ver con la serie G empiezan a aceptar
 
-因为我好几个同学就跟你干同行，就是干同行的是原来李保春、黎磊石的手下
-Because I have several classmates in medicine, they work for Li Baochun and Li Leishi
+有一个地方接受对它都是不一样的
+Si hay un sitio que acepte, él será diferente
 
-他当时说，我们的李专家，他说我们的春哥，春教授他告诉我们
-He said then, “Our expert Li,” he said, “Our brother Chun, Professor Chun, he told us
-他说你们年轻人不要干这个，离这个远远的
-You young people do not do it, stay away from it
+未来谁能把喜币作为当地国家代理权
+En un futuro, quién podrá utilizar a la moneda de Himalaya como agente nacional local
 
-这个手术台上的这个事情不能再继续
-This thing on the operating table can not continue”
+和把喜币整个的喜支付
+Con el Himalaya pay y su moneda
 
-他说当时很惊讶，为啥不让我们干这个
-He said he was surprised at the time, why not let us do it
+记住, 喜支付是它所有的未来
+Recuerda, el Himalaya pay es todo su futuro
 
-我们从小学就医，干这个，从山东济南跑到北京，不就干这个的吗？
-We have been in medicine since elementary school, doing this, from Jinan, Shandong to Beijing, is it not to learn medicine?
+啥叫支付, 知道吗?
+¿Saben en qué consiste el pago?
 
-后来到了南京，亲自参与了江家的多次换肾脏手术
-Later, he went to Nanjing and personally participated in several kidney replacement surgeries for the Jiang family
+就是你的子弹能打到什么地方
+Significa hacia dónde pueden ir tus balas
 
-让他最震惊的，就是新疆的小伙子，活活的就这么（被活摘器官）
-What shocked him the most was the young man from Xinjiang, who was alive (by live organ harvesting)
+喜币是把枪
+La moneda de Himalaya es una pistola
 
-说为了所谓的减少反应
-For the so-called reduced reaction
+喜币第一枪就打向了G-Fashion的内裤
+El primer disparo de la moneda de Himalaya golpeó hacia el calzón de G-Fashion
 
-最高境界是在无麻醉下把器官给移植
-The highest level is the transplantation of organs without anesthesia
+第二枪打向了G-Club, 打了一张卡
+El segundo disparo se dirige hacia G-club, le dio a la tarjeta
 
-他给我讲过这个，当时讲的时候他就说哭的不行了
-He told me about this, and when he was talking about it, he cry like hell
+证明子弹管用, 枪管用
+Esto comprueba que las balas y la pistola si sirven
 
-我也是真的一阵时间过不来，就是过不来了
-I am also a period of time can not be relieved, just can not overcome the reality
+全世界的所有的枪都是放在家里没试过
+Las pistolas de todo el mundo las tienen en la casa y nunca la han probado
 
-就你刚才讲的时候，一般人听了会浑身难受，就是浑身鸡皮疙瘩那种
-Listen to what you just said, the normal people will be uncomfortable, is the kind of goose bumps all over the body
+所以说你说多少钱多少钱, 都你家的事儿
+Por eso es asunto tuyo si tu dices cuánto vale
 
-就能跟你感同身受，这就叫灵魂嘛
-Empathy, it’s called the soul
+不知道你到底能打鸟啊
+No sabes si puedes pegarle al pájaro
 
-我们是人，我们不是石头，也不是畜生，我们当然有感同身受了
-We are people, we are not stones, and not animals, we certainly have empathy
+还有到底子弹管不管用啊
+Y si al fin las balas sirven
 
-他曾经拜托过我
-He once asked me
+但是喜币第一枪G-Fashion内裤
+Pero el primer disparo de la moneda de Himalaya es el calzón de G-Fashion
 
-他说，文贵，你是我们一切一切的英雄
-said Miles, you are my hero
+第二枪G-Club
+El segundo es G-club
 
-有一天你能把这话说出去，我为你干什么都行
-One day you can tell the truth, I will do anything for you
+如果战友们代理了这个
+Si los compañeros luchadores representan esto
 
-我就凭你这个时候，还让我说出去，我有一天我就要实现你这个愿望
-At that time, you still let me tell it, one day I want to fulfill your wish
+哎唷, 我能拿着枪
+Ay, puedo tener la pistola
+
+未来我能代表你打出一个德国宝马回来
+En el futuro puedo representarte para cazar un BMW alemán
+
+你是德国代理权
+Eres un agente alemán
+
+你将拥有宝马
+Obtendrás un BMW
+
+十个宝马都可能
+Posiblemente, diez de ellos
+
+为啥我说你要是能买宝马
+Por qué digo que si compras un BMW
+
+宝马接受了喜币支付
+BMW aceptó el pago de Himalaya
+
+我们就证明了
+Entonces comprobamos que
+
+我这个子弹和枪能打宝马
+Esta bala y pistola puede golpear al BMW
+
+那在日本的战友
+Y los compañeros luchadores que están en Japón
+
+如果你能把它在日本说
+Si puedes decir así como
+像我们日本的二尊
+Nuestros dos personajes que están en Japón
+
+我能把日本的某酒店系统签下来
+Puedo firmar el contrato de algún sistema de un hotel en Japón
+
+接受喜支付, 你就打下了日本的所有酒店
+Y que acepte el Himalaya pay, entonces ya conquistaste a todos los hoteles de Japón
+
+如果Rachel能在加拿大
+Si Rachel puede
+
+把那个最大的全世界的叫牛郎网能打下来
+Conquistar a la red más grande de Money Boy
+
+(接受)牛郎介绍, 可以支付喜币
+(aceptar) la presentación de Money Boy que pague en moneda de Himalaya
+
+你就打下了牛郎网
+Entonces logras conquistar a esta red
+
+猫本你听懂我的意思了吗
+Mao Ben, ¿puedes entender lo que digo?
+
+你要在澳大利亚能让它买袋鼠皮, 你就能打下袋鼠皮
+Si puedes hacer que compre la piel del canguro, entonces logras dominarlo
+
+这个所有的币, 它是颗子弹
+Todas las monedas son como una bala
+
+它这个币的生态圈就是核心
+El ecosistema de esta moneda es su núcleo
+
+那么当你上市后发现无数个猎物回来的时候
+Entonces cuando ya salga al mercado, en ese momento te darás cuenta de las incontables presas que regresan
+
+你就知道它一定会大升值的
+Sabras que tendrá un gran aumento de valor
+
+比例是多少钱我可以告诉你
+Puedo decirte cuál es la proporción
+
+我有1块钱的交易
+Tengo una transacción por 1 dólar
+
+它一定是1000倍. 而不是20倍, 30倍
+Él será mil veces más y no veinte o treinta
+
+因为它是货币, 它会成为货币
+Porque él es una moneda, se convertirá en una moneda
+
+它不是法币, 它成为货币了
+No es dinero por decreto, se ha convertido en moneda
 
 ———————————————————
 
-**原视频链接:** [https://twitter.com/se1y7cblljselva/status/1450395534171148291?s=24](https://twitter.com/se1y7cblljselva/status/1450395534171148291?s=24)
+**原视频网址**： [https://twitter.com/se1y7cblljselva/status/1451875661442736130?s=24](https://twitter.com/se1y7cblljselva/status/1451875661442736130?s=24)
 
-Date:10/21/2021
-原视频标题:
-One of the reasons for exposing the Jiang family’s live organ harvesting
-原视频日期：2021/10/13
-任务编号：KC203（2604）
-视频时间段 : 0:00-2:05
+日期：10/28/2021
+原视频标题：
+El alcance del pago de circulación es la tercera clave para determinar el valor de la moneda de Himalaya
+原视频日期：10/23/2021
+任务编号：KC206（2646）
+视频时间段：0:00-2:20
 
-英听校: 洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校: 洛杉矶盘古农场 – Layka
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 -天涯行
 审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)

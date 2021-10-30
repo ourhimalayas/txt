@@ -2,120 +2,33 @@
 ---
 
 
-## 喜联储一定会有抵押和贷款业务
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1627090/)
+## 聯合國委員會通過日本反核決議草案，中俄反對
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1627149/)
 
-[https://gtv.org/video/id=617b9010adfd99590c30b0e8](https://gtv.org/video/id=617b9010adfd99590c30b0e8)
+據《日本共同通訊社》2021 年 10 月 28日報道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-533-e1635558492295.png)圖片來源：《日本共同通訊社》
+紐約 — 聯合國委員會周三通過了一項由日本發起的呼籲徹底消除核武器的決議草案，這引起了聯合國安理會五個常任理事國的分歧回應。
 
-**郭文贵**
-**Miles Guo**
+投票中，152個國家支持該決議，中俄等4國反對，30國棄權。
 
-一定会的
-It definitely will
+在五個主要的擁有核武器的國家中，英國和美國是該議案的共同提案國，而去年投棄權票的法國則投了贊成票。
 
-喜联储一定会的
-the Himalaya Exchange definitely will
+該決議草案預計將于 12 月在聯合國大會上正式通過。
 
-所有你想象的保险和贷款业务
-All insurance and loan businesses that you can imagine
+“這項決議作爲實現無核武器世界的具體措施之一，提供了所有國家可以共同努力的共同基礎，從而彌合了核武器國家和無核武器國家之間的差距。”日本外相茂木敏充在一份聲明中說。
 
-以后一定都会的
-in the future, it definitely will
+考慮到美國爲日本提供核威懾，決議沒有提及今年1月生效的《禁止核武器條約》。
 
-但时间不确定啊
-but not sure when
+該決議包括“銘記”這樣一個事實，即“存在各種方法來實現一個沒有核武器的世界，所有國家之間建立信任對于這一目標至關重要。”
 
-我不能给你做任何承诺
-I can’t make any promise to you
+該文件還使用了“認識到”一詞來闡述“使用核武器將導致的災難性人道主義後果”，這一表述包含在去年的決議中，比 2019 年提到的“深切關注”要弱。
 
-以喜联储发布为准， 这是一个
-It’ll be subject to the announcement by the Himalaya Exchange, this is Number one
+文章來源：https://english.kyodonews.net/news/2021/10/6041df3b453b-un-panel-adopts-japans-anti-nuke-resolution-china-russia-oppose.html
 
-第二个
-Number two
-
-如果喜币喜联储不能成为任何国际金融机构的贷款抵押物
-If H-Coin, Himalaya Exchange cannot be used as loan collateral of any internation-al financial institution
-
-它就一文不值，它就是失败的
-it would be worthless, and it would be a failure
-
-再是如果喜币还有喜美元
-Another one, if H-Coin and H-Dollar
-
-不能在G系列之外接受支付
-cannot accept payment outside of the G series
-
-它一文不值
-it would be worthless
-
-它就是胡说八道
-it would be nonsense
-
-它就是骗局
-it would be a scam
-
-我第一个起诉他们
-I would be the first one to sue them
-
-把他们告倒
-to take them down
-
-我告诉你
-let me tell you
-
-它一定会被全世界
-it will definitely be (used) globally
-
-只是什么时间的问题
-It’s just a matter of time
-
-成为最好的抵押物
-to become the best collateral
-
-成为最好的贷款
-the best loan
-
-大家欢迎的
-and preferred by everyone
-
-但不管如何
-But no matter what
-
-你刚才问的问题
-The question that you just asked
-
-喜联储会不会（上线抵押）
-will the Himalaya Exchange (online mortgage business)
-
-一定会的
-It definitely will
-
-只是时间（问题）
-just a matter of time
-
-而据我所知，它们比你想象的规划还大
-Based on what I know, their projects are way bigger than you thought
-
-———————————————————
-
-**原视频链接**:[https://twitter.com/se1y7cblljselva/status/1452951472132395014?s=24](https://twitter.com/se1y7cblljselva/status/1452951472132395014?s=24)
-
-Date: 10/26/2021
-原视频标题: 
-Himalaya Exchange will definitely include loan and mortgage business
-原视频日期：2021/10/24
-任务编号：KC204（2677）
-视频时间段 : 0:00-1:01
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+翻譯：洛杉矶盤古農場 – Raul
+校對/編輯：洛杉矶盤古農場 – 明子
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+洛杉矶盤古農場歡迎您加入:(或點擊上方圖片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 

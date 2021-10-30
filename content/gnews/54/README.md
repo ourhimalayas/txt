@@ -2,111 +2,44 @@
 ---
 
 
-## 格芯公司市场份额、产量、用途及市场前景分析
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1625840/)
+## 10/29/2021国际财经快讯：标普纳斯达克创下历史新高；短缺严重制约美国第三季度经济增长
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1626176/)
 
-作者：香草山教育部写作组-新生
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-97.png)[图片来源](https://www.reuters.com/)
+**1.标准普尔纳斯达克**创下**历史新高**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-8.jpg)
+[华尔街周四收高，标准普尔500指数和纳斯达克指数创下历史新高，部分归功于苹果和亚马逊的上涨，而卡特彼勒和默克等公司的稳健业绩帮助缓解了对经济增长放缓削弱利润的担忧。然而，在公布季度业绩后，亚马逊公司和苹果公司的股价均在收盘后大幅走低。在预测假日季度销售额低于华尔街预期后，亚马逊在盘后交易中下跌4%。苹果表示，供应链问题导致上个季度的销售额损失了60亿美元，而且假期销售季度的影响将更加严重，苹果股价在尾盘下跌超过3%。常规交易时段，包括特斯拉在内的权重股收涨3.8%，苹果收涨2.5%，提振纳斯达克和标准普尔指数。](https://www.oann.com/futures-rise-on-positive-earnings-gdp-data-awaited/)
 
+**2.短缺严重制约美国第三季度经济增长**
 
+[美国经济在第三季度以一年多来最慢的速度增长，因为中共病毒病例的卷土重来进一步拉长了全球供应链，导致汽车等商品短缺，这给消费者支出踩了刹车。美国商务部周四报告的增长弱于预期也反映了政府向企业、州和地方政府以及家庭提供的大流行救助资金减少。艾达飓风在8月底摧毁了美国的海上能源生产，也抑制了经济增长。但有迹象表明，由于Delta变体导致冠状病毒病例下降，经济活动已经重新获得动力。上周新申请失业救济的美国人人数降至19个月以来的新低。即使第三季度出现挫折，国内生产总值水平仍创历史新高，目前经济比大流行前增长1.4%。](https://www.oann.com/delta-variant-likely-slammed-brakes-on-u-s-economic-growth-in-third-quarter/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-95.png)
+**3.尽管封锁延长澳大利亚避免了第二次****中共病毒****衰退**
 
-#### **背景**
+[澳大利亚将避免第二次中共病毒衰退，无视维多利亚和新南威尔士州延长封锁将摧毁经济的预测。公司和个人税收收入的激增为联邦预算带来了63亿美元的意外收获。尽管中共病毒灾难支付使英联邦损失了超过124亿美元，但9月季度的结果却出人意料。另外还有116亿美元用于商业支持计划。封锁状态之外劳动力市场的强劲、商业信心的改善和更具弹性的经济导致整体改善了78亿美元。](https://www.skynews.com.au/business/finance/australia-avoids-second-covid19-recession-despite-extended-lockdowns/video/6faaf4338724442c544bead4f6bdb568)
 
-在美国时间的10月7日，郭先生在直播中指出，穆巴达拉投资公司参与控股了一家半导体代工公司—— GlobalFoundries (GF，格芯公司)。该公司于10月28日在纳斯达克上市开始交易，代码为 GFS。根据纳斯达克网站数据，格芯拥有约 7% 的市场份额，与联合微电子公司类似，台积电 (TSM ) 占据了 55% 的市场份额。三星公司拥有 17% 的市场份额。中芯国际的市场份额为4%。
+**4.通胀超过RBA2-3%的目标**
 
-格芯公司在美国、德国和新加坡都设有制造厂（“晶圆厂”），为全球数百家客户制造功能丰富的半导体。格芯这样定义旗下三大生产基地：新加坡厂以40奈米制程以上为主，德国厂以28奈米制程为主，美国纽约州厂以20奈米和14奈米先进制程为主，该厂房也是和三星电子进行14奈米设备互通的策略联盟的重镇。
+[近六年来，澳大利亚储备银行首选的通胀指标首次在目标区间内上升。但今天的货币市场正在推高利率，押注澳大利亚央行将被迫在其2023年目标之前加息。近期，五万五千名太平洋岛屿工人将登陆新南威尔士州，开始收集价值高达80亿美元的收成。新南威尔士州副州长即将与联邦政府敲定一项协议，以将他们的抵达时间提前到11月1日，以从瓦努阿图、萨摩亚和汤加等七个国家引进全面接种疫苗的工人。从干旱中恢复过来的绝望农民渴望从估计价值60亿美元的油菜籽和大麦作物以及价值20亿美元的园艺作物中获利。](https://www.skynews.com.au/business/finance/inflation-breaches-rba-23-per-cent-target/video/71fc56b3ba1fa590533b2d1fda643f37)
 
-根据目前可查到的公开数据，格芯公司当前年产能约为184万～194万片晶圆，新设备建成以后产能约为309万片左右。
+**5.亚马逊假期季度预测令人失望**
 
-#### **产量****分析表**
+[亚马逊公司周四公布利润下滑，预计整个假期季将持续，原因是为吸引员工而增加的工资和其他运营中断削弱了该公司从网上购物中获得的利润。股价在盘后交易中下跌4%。经过一年的轰动业绩，这家全球最大的在线零售商面临着更严峻的前景。在劳动力市场紧张的情况下，它已将美国仓库的平均工资提高到每小时18美元，并推出更高的签约奖金，以吸引其保持高周转业务所需的蓝领员工。与此同时，该公司正在应对全球供应链挑战。它的集装箱处理能力翻了一番，扩大了交付合作伙伴计划，并增加了仓库投资—所有这些都付出了可观的代价。](https://www.reuters.com/technology/amazons-holiday-quarter-forecast-disappoints-labor-supply-issues-mount-2021-10-28/)
 
+**6.苹果业绩受到供应链困境的打击**
 
-| **工厂****所在地** | **目前****年产能****（****片晶圆****）** | **未来产量（新设备建成后）** |
-| --- | --- | --- |
-| 德国德累斯顿 | 400,000 – 500,000  | 1百万（预计2024 年投产） |
-| 美国纽约马耳他 | 350,000  | 500,000 |
-| 美国佛蒙特州伯林顿 | 40,000 |   |
-| 美国纽约州东菲西基尔 | 无公开数据 |   |
-| 新加坡 | 1,050,000 | 1,500,000 （ 预计2023年建成） |
-| **合计** | 约184万-194万 | 约为309万 |
+[供应链问题使苹果公司在第四财季损失了60亿美元的销售额，低于华尔街的预期，首席执行官蒂姆库克表示，在当前的假日销售季度，影响将更加严重。库克告诉路透社，截至9月25日的季度“供应限制大于预期”，以及东南亚与大流行相关的制造业中断。库克说，虽然苹果在10月下旬在这些东南亚工厂看到了“显着改善”，但芯片短缺持续存在，现在正在影响“我们的大部分产品”。库克说：“我们正在尽一切努力获得更多芯片，以及我们在运营方面所能做的一切，以确保我们尽可能快地行动。”库克表示，该公司预计截至12月的季度将实现同比增长。分析师预计增长7.4%至1197亿美元。](https://www.reuters.com/technology/apple-results-hit-by-supply-chain-woes-cook-says-holiday-quarter-impact-will-be-2021-10-28/)
 
+**7.香港PAG寻求通过新的收购基金筹集90亿美元**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片2-31.png)
+[知情人士称，专注于亚洲的投资公司PAG计划筹集90亿美元，作为其最大的收购基金，为该地区丰富的投资增色不少。知情人士表示，这家总部位于香港的公司已开始筹款，预计该基金将于2022年年中完成首次募集，但因信息保密而不愿具名。管理着450亿美元资产的PAG拒绝置评。其私募股权投资组合中约有三分之二位于中国，尽管对​​从科技到房地产再到私人补习的一系列行业进行了前所未有的监管打击，但新一轮融资凸显了对该国的强劲投资兴趣。](https://www.reuters.com/business/exclusive-hong-kongs-pag-seeking-raise-9-bln-with-new-buyout-fund-sources-2021-10-29/)
 
-#### **用途**
+**8.西班牙Caixabank第三季度经常性利润预估同比增长33%**
 
-根据格芯公司网站，其制造的芯片可用于以下多种用途：
+[西班牙的Caixabank(CABK.MC)周五表示，其第三季度经常性利润同比增长33%，原因是贷款损失准备金减少，抵消了贷款收入的压力。Caixabank于3月完成了对Bankia43亿美元的收购，这是一项防御性交易，以更好地应对超低利率和冠状病毒大流行，在7月至9月期间实现了7.44亿欧元（8.685亿美元）的基本利润。但是，考虑到Bankia，使用了2020年第三季度约5.6亿欧元的预估利润来计算同比比较。欧洲银行正在努力应对低利率，而大流行引发的经济衰退迫使人们关注削减成本。](https://www.reuters.com/business/spains-caixabank-q3-recurrent-profit-pro-forma-rises-33-yy-lower-provisions-2021-10-29/)
 
-- 智能手机设备 （非接触式支付、无线上网、触摸显示驱动器、成像和 3D 传感、安全、音频和电池电源管理）
-- 个人电脑（为即将到来的海量数据，提供人工智能加速、光连接和有线网络应用的专用解决方案）
-- 家庭物联网（如音频和显示，人脸、语音和物体识别等智能功能、无线连接）和工业物联网（微控制器、电力电子设备、无线连接）
-- 辅助驾驶和自动驾驶汽车（汽车微控制器单元、全球卫星定位系统和雷达系统等）
-- 通信基础设施和数据中心 （ 蜂窝基础设施和卫星通信、有线连接， 如数据中心光通信）
-
-
-#### **市场前景**
-
-- 十大客户市值超万亿美元
-
-
-格芯主要客户包括高通、AMD 、联发科、恩智浦半导体、科沃、思睿逻辑、思佳讯、村田制作所、博通、德州仪器(TI)等，未来还会有星链公司。格芯还是美国国防部认可的最先进的 “可信代工 “供应商。格芯公司表示，其2020年出货的晶圆中有61%是 “单一来源 “的产品，这意味着那些 “只能用我们的技术来制造，而且在没有重大客户重新设计的情况下无法在其他地方制造 “的产品，高于2018年的48%。
-
-- 未来营收可期
-
-
-目前，GlobalFoundries表示，它有大约200亿美元的收入承诺，其中100多亿美元是在2022年至2023年期间，还有超过25亿美元的 “预付款和产能预订费”。例如，根据AMD公司提交给美国证监会的文件，该公司“依赖台积电 (TSMC) 为我们的 7 纳米 (nm) 产品生产所有晶圆，主要依赖格芯公司来生产以大于 7 纳米工艺节点制造的产品的晶圆”。AMD公司是与 GF 签订的晶圆供应协议规定了AMD购买由 GF 制造的产品的条款，有效期至 2024 年。AMD公司目前估计，根据A＆R第七修正案，它将在2022年至2024年期间向GF购买大约16亿美元的晶圆。
-
-- 大中华区以外的芯片生产厂商
-
-
-格芯首席执行官考尔菲尔德在8 月 23 日的一次在线演讲中表示，大多数竞争对手的产能——即台积电、联电和中芯国际的产能——都位于大中华区，这让格芯公司有机会在全球范围内发起“大胆”扩张活动，以帮助解决前所未有的全球供应短缺问题。
-
-**相关术语**：
-
-晶圆尺寸 – 一个工厂能够处理的最大晶圆直径。(半导体晶圆是圆形的）。)
-
-工艺技术节点 – 工厂能够在晶圆上蚀刻的最小特征的尺寸
-
-生产能力 – 一个制造工厂的铭牌能力。一般来说，每月生产的晶圆数量
-
-技术/产品 – 工厂能够生产的产品类型，因为并非所有工厂都能生产市场上的所有产品
-
-参考资料：
-
-[https://asia.nikkei.com/Business/Tech/Semiconductors/GlobalFoundries-CEO-Chip-industry-output-must-double-in-10-years](https://asia.nikkei.com/Business/Tech/Semiconductors/GlobalFoundries-CEO-Chip-industry-output-must-double-in-10-years)
-
-[https://www.sec.gov/Archives/edgar/data/2488/000119312511040392/d10k.htm](https://www.sec.gov/Archives/edgar/data/2488/000119312511040392/d10k.htm)
-
-[https://www.nasdaq.com/articles/an-overview-of-the-top-5-semiconductor-foundry-companies-2021-10-01](https://www.nasdaq.com/articles/an-overview-of-the-top-5-semiconductor-foundry-companies-2021-10-01)  （市场占有率）
-
-[https://gf.com/press-release/globalfoundries-breaks-ground-new-fab-singapore](https://gf.com/press-release/globalfoundries-breaks-ground-new-fab-singapore) 新加坡数据数据来源）
-
-[https://www.eenewseurope.com/news/globalfoundries-plans-boost-production/page/0/1](https://www.eenewseurope.com/news/globalfoundries-plans-boost-production/page/0/1)   (德国数据来源)
-
-[https://www.forbes.com/sites/willyshih/2021/07/20/globalfoundries-fab-expansion-doing-a-little-math/?sh=51670e9b14da](https://www.forbes.com/sites/willyshih/2021/07/20/globalfoundries-fab-expansion-doing-a-little-math/?sh=51670e9b14da) （美国纽约马耳他数据来源）
-
-[https://en.wikipedia.org/wiki/List\_of\_semiconductor\_fabrication\_plants](https://en.wikipedia.org/wiki/List_of_semiconductor_fabrication_plants) （美国佛蒙特州数据）
-
-[https://gf.com/](https://gf.com/) （产品应用领域）
-
-校对/发稿：飞虹
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-2.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+By【秘密翻译组-金融组】
+作者：小海星
 
  
 
