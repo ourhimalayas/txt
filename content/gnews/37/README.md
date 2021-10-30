@@ -2,25 +2,26 @@
 ---
 
 
-## 格芯上市意义深远，未来潜力巨大
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628548/)
+## 澳洲前总理警示中共对台湾随时会有动作
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628553/)
 
-作者：美东香草山 四季
+作者：美东香草山医疗部 云豹
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+10月29日，澳洲前总理艾波特（Tony Abbott）在华府智库「威尔逊中心」（Wilson Center）线上会议中发出警示：各国要密切注意中共随时可能会对台湾发动侵略战争。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.30AM-PICTURES-123456-图片备用.003.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.30AM-PICTURES-123456-图片备用.001.jpeg)
+艾波特是在讨论澳洲、中共与印太区域议题中发出此严厉的警讯。 他警告民主国家不要认为台海在未来十年内不会发生军事冲突，因为他观察习近平性喜冒险，尤其在处理香港问题上民主国家表现软弱，让习近平更有信心对台湾发动军事攻击行动。
 
-在10月29日的大直播中，郭文贵先生高度评价了昨天在美国上市的全球领先半导体代工厂格芯公司。 郭先生预言， T3技术将使格芯公司的业务范围扩大至全球芯片产业，因其是5G及AI时代的核心所在。同时，郭先生补充，一旦T3技术面世，中共在通信、太空和军事等领域的技术将彻底落后于世界。 文贵先生表示，芯片对世界的未来极其重要，它更和新中国联邦未来的金融系统、数字区块链技术息息相关。因为当我们有了芯片，我们就有了更多的话语权。为此，郭先生也提到，未来将增资格芯公司，成为其第三大股东。彼时，这个公司也将属于爆料革命的战友们。 文贵先生还指出，中共对文明的扼杀将导致其自身的失败，但也会给格芯带来难得的历史机遇。倘若中共胆敢侵犯台湾，格芯必将与中共抗衡。因此，格芯公司未来的潜力巨大，或将成为万亿级别的企业。 格芯上市，意义深远。
+「必须要让中共知道，对台湾采取任何行动都会有最严重的后果」。 他说，美国总统拜登（Joe Biden）近日表示台湾若遭到中共攻击，美国会协助台湾，让他觉得振奋。 民主国家在此时刻应该展现出对台湾的支持，包括支持台湾加入跨太平洋伙伴全面进步协定（CPTPP）。
 
-参考链接：[2021年10月29日 文贵大直播：格芯在美国上市的重大意义和其未来价值，….](https://gtv.org/video/id=617be96f11d1862968fccc4b)
+参考链接：[澳洲前總理：北京早晚有動作 台海情勢嚴峻](https://www.cna.com.tw/news/aopl/202110300010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-总编：Zion文恩
-编辑：Irene木木
+编辑/总编：木白
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**

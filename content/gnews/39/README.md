@@ -2,25 +2,35 @@
 ---
 
 
-## 美10个州就中共病毒疫苗规定起诉拜登政府
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1628537/)
+## 格芯上市意义深远，未来潜力巨大
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628548/)
 
-#### 翻译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-115.jpg)图片来源：网络截图
-据美联社哥伦比亚10月29日报道，美国十个州周五提起诉讼，要求停止总统乔·拜登对联邦承包商的中共病毒疫苗强制接种命令，认为该要求违反了联邦法律。
+作者：美东香草山 四季
 
-来自阿拉斯加、阿肯色州、爱荷华州、密苏里州、蒙大拿州、内布拉斯加州、新罕布什尔州、北达科他州、南达科他州和怀俄明州的总检察长签署了该诉讼，该诉讼是在密苏里州的一个联邦地区法院提起的。这些州要求联邦法官阻止拜登要求联邦承包商的所有雇员接种冠状病毒疫苗的要求，认为这项任务违反了联邦采购法，是对联邦权力的过度扩张。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-如果联邦政府试图违宪地施加其意志，强迫联邦承包商强制接种疫苗，那么劳动力和企业可能会被大量毁灭，进一步加剧供应链和劳动力危机。密苏里州检察长埃里克·施密特（共和党人）在一份声明中说，联邦政府不应该强制要求接种疫苗，他们提起诉讼的原因就是制止这种非法的、违宪的行动。
 
-以乔治亚州为首的另一组州周五宣布，他们将在该州提起类似的联邦诉讼，试图阻止对承包商的要求。加入此案的其他州包括阿拉巴马州、爱达荷州、堪萨斯州、西弗吉尼亚州和犹他州，以及南卡罗来纳州。
 
-共和党人坎普在一份声明中说，他们不会允许拜登政府规避法律，或迫使辛勤工作的乔治亚人在他们的生计和疫苗之间做出选择。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.30AM-PICTURES-123456-图片备用.001.jpeg)
 
-佛罗里达州周四对联邦授权提起了单独的诉讼。该诉讼称，总统无权发布该规定，该规则违反了采购法。
+在10月29日的大直播中，郭文贵先生高度评价了昨天在美国上市的全球领先半导体代工厂格芯公司。 郭先生预言， T3技术将使格芯公司的业务范围扩大至全球芯片产业，因其是5G及AI时代的核心所在。同时，郭先生补充，一旦T3技术面世，中共在通信、太空和军事等领域的技术将彻底落后于世界。 文贵先生表示，芯片对世界的未来极其重要，它更和新中国联邦未来的金融系统、数字区块链技术息息相关。因为当我们有了芯片，我们就有了更多的话语权。为此，郭先生也提到，未来将增资格芯公司，成为其第三大股东。彼时，这个公司也将属于爆料革命的战友们。 文贵先生还指出，中共对文明的扼杀将导致其自身的失败，但也会给格芯带来难得的历史机遇。倘若中共胆敢侵犯台湾，格芯必将与中共抗衡。因此，格芯公司未来的潜力巨大，或将成为万亿级别的企业。 格芯上市，意义深远。
 
-新闻来源：[10 states sue Biden administration over COVID vaccine rule](https://apnews.com/article/coronavirus-pandemic-joe-biden-health-lawsuits-missouri-99fb3b040661c71ddde1ded37a2f5b87)
+参考链接：[2021年10月29日 文贵大直播：格芯在美国上市的重大意义和其未来价值，….](https://gtv.org/video/id=617be96f11d1862968fccc4b)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Zion文恩
+编辑：Irene木木
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
