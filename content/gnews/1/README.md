@@ -2,195 +2,42 @@
 ---
 
 
-## 流通量支付范围是决定喜马拉雅币价值的关键之三
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1627108/)
+## 随着恒大债务最后期限临近，中国开发商受到降级打击
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1627161/)
 
-[https://gtv.org/video/id=617b9060adfd99590c30b0fd](https://gtv.org/video/id=617b9060adfd99590c30b0fd)
+【简评：】*中共不管如何管控，其房地产行业的债务巨雷都会引爆，并引发世界金融的交叉违约（世界金融暴雷）。*
 
-那么第三个我要告诉你们
-Y les digo el tercero
+据《路透社》记者：Clare Jim 和 Andrew Galbraith，2021年10月28日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-534-e1635560057497.png)图片来源：《路透社》
+《路透社》香港10月28日 —— 在中国恒大集团的最终偿债截止日期之前（周五），中国的地产开发商在周四遭受重创，他们的股票和债券下跌，债权人扣押资产，被评级机构再次下调评级。
 
-喜币第二个衡量(标准), 什么时候值钱
-La segunda medida (estándar) de la moneda de Himalaya, ¿cuándo valdrá la pena?
+佳兆业集团（1638.HK）股价受创最严重，在周四下跌近五分之一，此前评级机构下调评级，突显出该公司融资渠道和巨额美元债务的问题。
 
-在三年后
-Después de tres años
+根据数据提供商Duration的数据显示，佳兆业的股价周四下跌多达19.9%，跌至历史低点1.17港元，而其债券（2022年4月），下跌超过8个点，交易价格不到面值的35%。
 
-但是喜币在上市后, 就一周以后上市后
-Pero una semana después que la moneda de Himalaya se publique
+佳兆业领跌整个房地产行业。在大陆股市，房地产公司的香港指数(.HSMPI)下跌1.3%，沪深300房地产分类指数(.CSI000952)下跌 2.3%。
 
-什么时候对你来讲会增长它的价值
-Para ti, cuándo será el aumento de su valor
+中国恒大集团（3333.HK）的流动性紧缩，负债超过3000亿美元，引发全球的担忧，恒大债务可能引发系统性风险，其股价下跌超过了5%。恒大面临周五的最后期限，需要支付原定于9月29日到期的 4,750万美元利息。
 
-就是它的流通量
-Es su circulación
+恒大在不到一个星期之前，在最后一刻为较早的一批美元债券支付了8,350万美元利息。如果恒大未能支付利息，就会使公司陷入正式违约，并引发其在国际资本市场上价值超过 190 亿美元的所有债券的交叉违约。
 
-它到哪使用
-Hacia dónde se utilizará
+恒大的困境加剧了中共市值5万亿美元的房地产开发商的财务压力，同时他们还会受到中共政府对债务暴雷的打击。
 
-它到G-Fashion上买了个内裤, 它是G-Fashion
-Él compra un calzón en G-Fashion, él es G-Fashion
+“中国地产开发商资金渠道的严重收紧降低了该行业的流动性，造成了信贷负循环。财务状况不佳的公司减少了土地和建筑支出以保持偿债的流动性，而销售额在不断下降。”穆迪投资者服务公司的高级副总裁说。
 
-它买了一个卡是G卡
-Él compró una tarjeta G
+“与此同时，银行对一些财务状况不佳的开发商收紧了对项目资金的控制，限制了他们管理现金流的能力，并导致他们违约。”
 
-如果有跟G系列完全没关系的机构开始(接受)
-Si las organizaciones que no tienen nada que ver con la serie G empiezan a aceptar
+开发商泛海控股有限公司(000046.SZ)在周四表示，在公司未能偿还到期票据后，其两个离岸公司的公司债务的持有人已占有债务的抵押品，这进一步表明行业压力涉及范围广泛。
 
-有一个地方接受对它都是不一样的
-Si hay un sitio que acepte, él será diferente
+原文链接：[https://www.reuters.com/business/chinese-developer-kaisa-groups-shares-fall-ratings-downgrade-2021-10-28/](https://www.reuters.com/business/chinese-developer-kaisa-groups-shares-fall-ratings-downgrade-2021-10-28/)
 
-未来谁能把喜币作为当地国家代理权
-En un futuro, quién podrá utilizar a la moneda de Himalaya como agente nacional local
+（本文评论仅代表个人观点）
 
-和把喜币整个的喜支付
-Con el Himalaya pay y su moneda
+翻译/评论：洛杉矶盘古农场 – 轰炸机
 
-记住, 喜支付是它所有的未来
-Recuerda, el Himalaya pay es todo su futuro
+校对/编辑：洛杉矶盘古农场 – 明子
 
-啥叫支付, 知道吗?
-¿Saben en qué consiste el pago?
 
-就是你的子弹能打到什么地方
-Significa hacia dónde pueden ir tus balas
-
-喜币是把枪
-La moneda de Himalaya es una pistola
-
-喜币第一枪就打向了G-Fashion的内裤
-El primer disparo de la moneda de Himalaya golpeó hacia el calzón de G-Fashion
-
-第二枪打向了G-Club, 打了一张卡
-El segundo disparo se dirige hacia G-club, le dio a la tarjeta
-
-证明子弹管用, 枪管用
-Esto comprueba que las balas y la pistola si sirven
-
-全世界的所有的枪都是放在家里没试过
-Las pistolas de todo el mundo las tienen en la casa y nunca la han probado
-
-所以说你说多少钱多少钱, 都你家的事儿
-Por eso es asunto tuyo si tu dices cuánto vale
-
-不知道你到底能打鸟啊
-No sabes si puedes pegarle al pájaro
-
-还有到底子弹管不管用啊
-Y si al fin las balas sirven
-
-但是喜币第一枪G-Fashion内裤
-Pero el primer disparo de la moneda de Himalaya es el calzón de G-Fashion
-
-第二枪G-Club
-El segundo es G-club
-
-如果战友们代理了这个
-Si los compañeros luchadores representan esto
-
-哎唷, 我能拿着枪
-Ay, puedo tener la pistola
-
-未来我能代表你打出一个德国宝马回来
-En el futuro puedo representarte para cazar un BMW alemán
-
-你是德国代理权
-Eres un agente alemán
-
-你将拥有宝马
-Obtendrás un BMW
-
-十个宝马都可能
-Posiblemente, diez de ellos
-
-为啥我说你要是能买宝马
-Por qué digo que si compras un BMW
-
-宝马接受了喜币支付
-BMW aceptó el pago de Himalaya
-
-我们就证明了
-Entonces comprobamos que
-
-我这个子弹和枪能打宝马
-Esta bala y pistola puede golpear al BMW
-
-那在日本的战友
-Y los compañeros luchadores que están en Japón
-
-如果你能把它在日本说
-Si puedes decir así como
-像我们日本的二尊
-Nuestros dos personajes que están en Japón
-
-我能把日本的某酒店系统签下来
-Puedo firmar el contrato de algún sistema de un hotel en Japón
-
-接受喜支付, 你就打下了日本的所有酒店
-Y que acepte el Himalaya pay, entonces ya conquistaste a todos los hoteles de Japón
-
-如果Rachel能在加拿大
-Si Rachel puede
-
-把那个最大的全世界的叫牛郎网能打下来
-Conquistar a la red más grande de Money Boy
-
-(接受)牛郎介绍, 可以支付喜币
-(aceptar) la presentación de Money Boy que pague en moneda de Himalaya
-
-你就打下了牛郎网
-Entonces logras conquistar a esta red
-
-猫本你听懂我的意思了吗
-Mao Ben, ¿puedes entender lo que digo?
-
-你要在澳大利亚能让它买袋鼠皮, 你就能打下袋鼠皮
-Si puedes hacer que compre la piel del canguro, entonces logras dominarlo
-
-这个所有的币, 它是颗子弹
-Todas las monedas son como una bala
-
-它这个币的生态圈就是核心
-El ecosistema de esta moneda es su núcleo
-
-那么当你上市后发现无数个猎物回来的时候
-Entonces cuando ya salga al mercado, en ese momento te darás cuenta de las incontables presas que regresan
-
-你就知道它一定会大升值的
-Sabras que tendrá un gran aumento de valor
-
-比例是多少钱我可以告诉你
-Puedo decirte cuál es la proporción
-
-我有1块钱的交易
-Tengo una transacción por 1 dólar
-
-它一定是1000倍. 而不是20倍, 30倍
-Él será mil veces más y no veinte o treinta
-
-因为它是货币, 它会成为货币
-Porque él es una moneda, se convertirá en una moneda
-
-它不是法币, 它成为货币了
-No es dinero por decreto, se ha convertido en moneda
-
-———————————————————
-
-**原视频网址**： [https://twitter.com/se1y7cblljselva/status/1451875661442736130?s=24](https://twitter.com/se1y7cblljselva/status/1451875661442736130?s=24)
-
-日期：10/28/2021
-原视频标题：
-El alcance del pago de circulación es la tercera clave para determinar el valor de la moneda de Himalaya
-原视频日期：10/23/2021
-任务编号：KC206（2646）
-视频时间段：0:00-2:20
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

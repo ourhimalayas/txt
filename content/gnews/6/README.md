@@ -2,62 +2,199 @@
 ---
 
 
-## 拜登政府默认 谭德塞将无异议连任
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1627060/)
+## 流通量支付范围是决定喜马拉雅币价值的关键之三
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1627108/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+[https://gtv.org/video/id=617b9060adfd99590c30b0fd](https://gtv.org/video/id=617b9060adfd99590c30b0fd)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/W.jpg)newscientist.com
-《福克斯新闻》发表文章，题目是“备受争议的世界卫生组织主席谭德塞将无异议连任”，副标题指出，福奇曾说谭德塞是他的“亲爱的朋友”。
+那么第三个我要告诉你们
+Y les digo el tercero
 
-全文如下：
+喜币第二个衡量(标准), 什么时候值钱
+La segunda medida (estándar) de la moneda de Himalaya, ¿cuándo valdrá la pena?
 
-世界卫生组织负责人、埃塞俄比亚人谭德塞星期五（10月29日）被确认为世界卫生组织最高职位的唯一候选人，现在看来他肯定会连任该组织的总干事，尽管他在处理中共病毒（新冠）疫情方面存在争议，而且与中共关系密切，但没有任何国家提出反对他的候选人。
+在三年后
+Después de tres años
 
-观察家说，美国在选举过程中缺乏积极性，这意味着它已经失去了对该组织未来施加影响的重要机会，提名截止日期是9月底。
+但是喜币在上市后, 就一周以后上市后
+Pero una semana después que la moneda de Himalaya se publique
 
-《捍卫民主基金会》（the Foundation for the Defense of Democracies）的副手克雷格·辛格尔顿（Craig Singleton）告诉《福克斯新闻》，“世界卫生组织总干事选举是对拜登政府多边政策的第一次考验之一，拜登政府将多边主义和联合国作为在世界舞台上促进美国利益的工具。政府已经提出了其他国际组织选举的候选人，如国际电信联盟（the International Telecommunications Union,），但尚未解释其不挑战谭德塞的决定。”
+什么时候对你来讲会增长它的价值
+Para ti, cuándo será el aumento de su valor
 
-辛格尔顿继续说，“这一失误引发了对华盛顿抵制中共国日益增长的联合国行动主义的严重质疑，其中包括北京在整个联合国系统内提拔依附中共利益的领导人候选人的努力。”
+就是它的流通量
+Es su circulación
 
-《福克斯新闻》已经与国务院取得了联系，但尚未听到国务院关于不推荐替代人选的理由。
+它到哪使用
+Hacia dónde se utilizará
 
-在川普政府宣布终止了美国与世卫组织的关系后，拜登却在其任期的早期与世卫组织重新谈判。当时，川普列举了世卫组织对中共病毒疫情的处理方式、其所谓的亲华倾向以及随后的改革失败。
+它到G-Fashion上买了个内裤, 它是G-Fashion
+Él compra un calzón en G-Fashion, él es G-Fashion
 
-当拜登政府在1月份重新加入时，安东尼·福奇说谭德塞是他的“亲爱的朋友”，据说谭德塞也称福奇为“我的兄弟托尼”。
+它买了一个卡是G卡
+Él compró una tarjeta G
 
-虽然美国没有提名谭德塞，但包括法国和德国在内的28个国家提名了他，异乎寻常的是，他的祖国不支持他，埃塞俄比亚人不愿意给他祝福，因为有人指责他在这个非洲国家内战威胁加剧之际偏袒现任政府。谭德塞不是医生，此前曾担任埃塞俄比亚卫生和外交部长。
+如果有跟G系列完全没关系的机构开始(接受)
+Si las organizaciones que no tienen nada que ver con la serie G empiezan a aceptar
 
-美国是世界卫生组织的最大捐助国，在过去五年中花费了大约20亿美元，美国为该组织的预算提供了22%的资金，而中共国承担了（不到美国）一半的费用。
+有一个地方接受对它都是不一样的
+Si hay un sitio que acepte, él será diferente
 
-休·杜根（Hugh Dugan）在川普政府期间担任国家安全委员会（the National Security Council）国际组织事务高级主任，并在过渡期间向拜登政府简要介绍了世卫组织的情况，他对所需的改革可能会落空表示担心。
+未来谁能把喜币作为当地国家代理权
+En un futuro, quién podrá utilizar a la moneda de Himalaya como agente nacional local
 
-杜根说：“在担任世卫组织总干事的五年任期内，谭德塞本应就有关中共病毒事件受到白宫质询，但拜登忘了抓住这个机会，以改进对武汉的问责和提高透明度。他放过了谭德塞，原本该拒绝让其过关的，只有美国有足够的影响力来叫板中共那个家伙。而拜登的团队……还继续不想对为世卫组织掌舵人所需的变革施加影响力。”
+和把喜币整个的喜支付
+Con el Himalaya pay y su moneda
 
-辛格尔顿，一名拥有中共国和国际组织专业知识的前美国官员，也对谭德塞被认为偏袒中共国而担忧。
+记住, 喜支付是它所有的未来
+Recuerda, el Himalaya pay es todo su futuro
 
-他说：“毫无疑问，谭德塞缺乏公信力，这不仅是因为他允许北京方面破坏对中共病毒溯源的调查，还因为在他任内发生了一些严重的丑闻。这些报告包括有关涉及其核心圈子内的世卫组织员工的性侵犯指控的报告，以及最近的一次审计，该审计显示，世卫组织在疫情最严重时花费数百万美元购买了有缺陷的中共国制造的医疗防护用品。”
+啥叫支付, 知道吗?
+¿Saben en qué consiste el pago?
 
-他指出，几乎没有证据表明“自疫情爆发以来他亲中共的表现有所减弱。鉴于谭德赛作为埃塞俄比亚卫生部长，后来又担任外交部长，一直在维护北京的利益，这一点并不奇怪。”中共国不是提名谭德塞连任的国家之一。
+就是你的子弹能打到什么地方
+Significa hacia dónde pueden ir tus balas
 
-一位了解该组织内部运作的匿名外交官告诉《福克斯新闻》，世界卫生组织在谭德塞的领导下深陷泥潭。这位外交官观察到，世卫组织“完全专注于促进其个人政治前途，他不是一名科学家，他的统治是专制和重男轻女的。由于在科学指导方面的一再失误……世卫组织已经失去了所有的信誉。”
+喜币是把枪
+La moneda de Himalaya es una pistola
 
-独立专家的一份报告披露，世卫组织21名雇员被指控在2018年和2010年刚果发生埃博拉疫情期间发生性虐待行为，世卫组织因此卷入了严重的性虐待丑闻。《美联社》援引“蓝色代码运动”（Code Blue Campaign）的话说，该组织致力于结束联合国维和人员和其他工作人员的性剥削和性虐待行为，是“在一个国家或一个时期内，联合国单一行动中发现的最大的性虐待事件。”
+喜币第一枪就打向了G-Fashion的内裤
+El primer disparo de la moneda de Himalaya golpeó hacia el calzón de G-Fashion
 
-世界卫生组织的发言人没有回复有关批评谭德塞的电子邮件提出的问题。
+第二枪打向了G-Club, 打了一张卡
+El segundo disparo se dirige hacia G-club, le dio a la tarjeta
 
-（全文完）
+证明子弹管用, 枪管用
+Esto comprueba que las balas y la pistola si sirven
 
-谭德塞通共、替中共掩盖病毒真相不足为奇，在他领导下的世卫组织出现性丑闻也非偶然，一个丧失人性，甘愿做罪恶集团代理人的他有任何丧尽天良的表现都符合罪恶逻辑。从他的连任，也能看出中共的布局。人们不会忘记，在前一段全球就中共病毒溯源追责中共的高潮时刻，似乎也听到了谭德塞微弱指责中共的声音，笔者不是在开脑洞，而是认定那是他与中共为今天的连任演出的双簧戏。
+全世界的所有的枪都是放在家里没试过
+Las pistolas de todo el mundo las tienen en la casa y nunca la han probado
 
-在中共助力下窃位入主白宫的拜登，代表的是唯一一个能向中共、向谭德塞说不的力量，他却选择了“沉默”，又一次扮演了亲共、通共的角色。笔者预计，世卫组织将在谭书记的领导下继续充当袒护中共的角色。
+所以说你说多少钱多少钱, 都你家的事儿
+Por eso es asunto tuyo si tu dices cuánto vale
 
-流氓当道，魔鬼疯狂，邪恶势力沆瀣一气，为非作歹。闭口不提中共病毒来源，却让强制疫苗令在所谓西方文明国家铺天盖地地推行，世卫组织、拜登政府、小土豆政府等都在以旅行自由和工作机会为交换条件，将普通人逼向墙角。笔者相信正义的力量正在觉醒，它们越猖狂死期越近！
+不知道你到底能打鸟啊
+No sabes si puedes pegarle al pájaro
 
-原文链接：
+还有到底子弹管不管用啊
+Y si al fin las balas sirven
 
-[https://www.foxnews.com/world/world-health-organization-chief-tedros-unopposed-second-term](https://www.foxnews.com/world/world-health-organization-chief-tedros-unopposed-second-term)
+但是喜币第一枪G-Fashion内裤
+Pero el primer disparo de la moneda de Himalaya es el calzón de G-Fashion
+
+第二枪G-Club
+El segundo es G-club
+
+如果战友们代理了这个
+Si los compañeros luchadores representan esto
+
+哎唷, 我能拿着枪
+Ay, puedo tener la pistola
+
+未来我能代表你打出一个德国宝马回来
+En el futuro puedo representarte para cazar un BMW alemán
+
+你是德国代理权
+Eres un agente alemán
+
+你将拥有宝马
+Obtendrás un BMW
+
+十个宝马都可能
+Posiblemente, diez de ellos
+
+为啥我说你要是能买宝马
+Por qué digo que si compras un BMW
+
+宝马接受了喜币支付
+BMW aceptó el pago de Himalaya
+
+我们就证明了
+Entonces comprobamos que
+
+我这个子弹和枪能打宝马
+Esta bala y pistola puede golpear al BMW
+
+那在日本的战友
+Y los compañeros luchadores que están en Japón
+
+如果你能把它在日本说
+Si puedes decir así como
+像我们日本的二尊
+Nuestros dos personajes que están en Japón
+
+我能把日本的某酒店系统签下来
+Puedo firmar el contrato de algún sistema de un hotel en Japón
+
+接受喜支付, 你就打下了日本的所有酒店
+Y que acepte el Himalaya pay, entonces ya conquistaste a todos los hoteles de Japón
+
+如果Rachel能在加拿大
+Si Rachel puede
+
+把那个最大的全世界的叫牛郎网能打下来
+Conquistar a la red más grande de Money Boy
+
+(接受)牛郎介绍, 可以支付喜币
+(aceptar) la presentación de Money Boy que pague en moneda de Himalaya
+
+你就打下了牛郎网
+Entonces logras conquistar a esta red
+
+猫本你听懂我的意思了吗
+Mao Ben, ¿puedes entender lo que digo?
+
+你要在澳大利亚能让它买袋鼠皮, 你就能打下袋鼠皮
+Si puedes hacer que compre la piel del canguro, entonces logras dominarlo
+
+这个所有的币, 它是颗子弹
+Todas las monedas son como una bala
+
+它这个币的生态圈就是核心
+El ecosistema de esta moneda es su núcleo
+
+那么当你上市后发现无数个猎物回来的时候
+Entonces cuando ya salga al mercado, en ese momento te darás cuenta de las incontables presas que regresan
+
+你就知道它一定会大升值的
+Sabras que tendrá un gran aumento de valor
+
+比例是多少钱我可以告诉你
+Puedo decirte cuál es la proporción
+
+我有1块钱的交易
+Tengo una transacción por 1 dólar
+
+它一定是1000倍. 而不是20倍, 30倍
+Él será mil veces más y no veinte o treinta
+
+因为它是货币, 它会成为货币
+Porque él es una moneda, se convertirá en una moneda
+
+它不是法币, 它成为货币了
+No es dinero por decreto, se ha convertido en moneda
+
+———————————————————
+
+**原视频网址**： [https://twitter.com/se1y7cblljselva/status/1451875661442736130?s=24](https://twitter.com/se1y7cblljselva/status/1451875661442736130?s=24)
+
+日期：10/28/2021
+原视频标题：
+El alcance del pago de circulación es la tercera clave para determinar el valor de la moneda de Himalaya
+原视频日期：10/23/2021
+任务编号：KC206（2646）
+视频时间段：0:00-2:20
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

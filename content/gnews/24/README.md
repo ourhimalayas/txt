@@ -2,53 +2,136 @@
 ---
 
 
-## 希拉里克林顿:英国必须在冬天强制疫苗、疫苗护照否则面临“问题”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1626896/)
+## 中国人拿回土地财富权利才能放下负担走向未来
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1626957/)
 
-作者：Ian Miles Cheong
-翻译：HimaBoy
+[https://gtv.org/video/id=617b8e78adfd99590c30b09a](https://gtv.org/video/id=617b8e78adfd99590c30b09a)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Hillary.png)
+**郭文贵：**
+**Miles Guo：**
 
-前民主党总统候选人希拉里克林顿要求英国首相制定疫苗规定，并迫使公司解雇拒绝接种疫苗的员工。
+我们有三样东西，新中国联邦说过
+We have three things that the New Federal State of China has said
 
-周日，这位失败的总统候选人在BBC的安德鲁·马尔秀上发表讲话，倡导疫苗护照和疫苗授权，表面上是为了防止该国再次大规模封锁，随着冬天的临近，该国正面临病例增加的问题。
+大家一定小心去看
+You must look carefully
 
-“我认为这总统必须要做的，这可以停止新冠在英国的流行，且并不需要关闭社会，但强制疫苗是确实需要，”她说。
+第一个，没有共产党第一件事情
+First, the first thing without the Communist Party
 
-在被要求澄清她是否意味着强制要求进入公共场所的疫苗护照时，克林顿给出了肯定的回答。她补充说，雇主有必要要求员工接种疫苗，这是英国在进入冬季时将面临“问题”。
+把土地必须还给人民
+The land must be returned to the people
 
-“我认为你必须明确表示我们不会重新进入封锁状态，这不会发生。但是，如果你没有接种疫苗，如果你去俱乐部或餐馆时没有接种疫苗的证明，而且雇主不强制接种疫苗，我们可能会在英国看到一些问题，当天气变冷了，人们被迫再次回到室内，”她说。
+很多人来问我这问题，国内的（战友）
+Many people come to ask me this question, the domestic ( Comrades in Arms )
 
-目前在英国的民主党人将参加即将在苏格兰举行的 COP26 气候峰会。正如反叛新闻先前报道的那样，中国在联合国峰会之前宣布建设更多的燃煤电厂。
+你怎么还呢？
+How do you return it?
 
-克林顿在参加一个让她成为北爱尔兰贝尔法斯特女王大学第一位女校长的活动时，被嘲笑为“战犯”。
+我说你如果不懂的话，看看西方工业革命怎么把土地给人民的
+I said if you don’t understand, look at how the western industrial revolution gave land to the people
 
-正式担任奥巴马国务卿的克林顿一直主张英国采取与她的家乡美国纽约相同的措施，纽约在疫苗和疫苗护照的执行方面拥有最严格的政策。
+而且是永久产权
+And it’s freehold
 
-克林顿在接受马尔的采访时指出，纽约的“所有大型卫生系统”和医院都已强制要求接种疫苗。克林顿提到了一个例子，该州最大的医疗保健提供者诺斯韦尔卫生局最近在 10 月份解雇了 14,000 名拒绝接种疫苗的工人。
+必须把土地给老百姓，这一条
+The land must be returned to the people, this is first
 
-尽管在欧洲实施了一些严厉的封锁限制，但英国拒绝强制实施非常不受欢迎的疫苗护照，这些护照已在其他欧洲国家生效。
+第二个，所有银行欠的钱，包括房贷一概不能还
+The second, all the money owed to the bank, including the mortgage can not be paid off
 
-由于他所在的保守党成员和英国公众的抵制，鲍里斯·约翰逊拒绝实施该计划。然而，据布莱巴特报道，首相支持这一想法，暗示他可能是“游戏规则改变者”和“救生员” 。
+他说社会那不就乱了吗？
+He asked “isn’t that society in chaos?”
 
-來源：[https://www.rebelnews.com/hillary\_clinton\_says\_uk\_must\_mandate\_vaccines\_covid\_passports\_or\_face\_problems\_by\_winter](https://www.rebelnews.com/hillary_clinton_says_uk_must_mandate_vaccines_covid_passports_or_face_problems_by_winter)
+我说你没有学过经济学，好好学学凯恩斯，还有这个大小史密斯讲的经济学理论
+I said you have not studied economics, go to learn Keynesian economics, and learn economic theory from Adam Smith
 
-（文章仅代表作者个人观点）
+财富是谁的呢？财富最终都是社会的
+Whose wealth is it? Wealth will ultimately belong to the community
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+我们人类存在这个世界上，所有的房产，所有的金钱，所有的物质，你只是在你生存期间拥有了保管权
+We humans exist in this world, all the property, all the money, all the material things, you just have custody of wealth during your existence
 
-**关注我们**
+社会财富最好的分配就是继承权利和继承的法律
+The best distribution of social wealth is inheritance rights and inheritance laws
 
-Discord 账号
+我说我们解决了这一段的所有的占有权和把未来的继承权解决好
+I said we gonna settle all the possessions in this section and settle the future inheritance
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+所有的帐是不用还的，因为中国人民活着的人
+All the debts do not have to be paid, because the people who are alive in China
 
-Gettr 账号
+他们应该有资格，有能力继承他们几代人创造的财富和他生在这个土地上应有的人权，和这个土地上所有权的归属权，
+They should be entitled and capable of inheriting the wealth they have created over the generations and the human rights to which they were born on this land, and the right to ownership of this land.
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+就应该是他们的，一切归零，重新开始，什么房卡、信用卡、银行贷款，
+It should be theirs, everything goes to zero, start over, whatever house mortgage, credit cards, bank loans, all gone
+
+那对不起，那时候有没有，他有十套房子，还有没有房子的，那对不起了
+Is there such a situation when the time comes? There are people who have ten houses and there are people who don’t have houses, oh, we’re sorry
+
+到那个时候，它就不会是绝对公平的
+it won’t be absolutely fair
+
+它只能叫做司法资源，管理资源，历史性的冻结分配状态
+It can only be called a judicial resource, a management resource, a historical freeze on the state of distribution
+
+这在资本论里边都说的非常清楚
+It’s all very clear in “Das Kapital”
+
+生产资料、生产价值
+At that time, the means of production and production value
+
+那就是到那个时候就是属于老百姓的，就是属于大家的
+belong to the people, that is, to everyone
+
+有没有其他的公平分配方式？有
+Is there any other way of equitable distribution? Yes
+
+比如说有人既没房，又没房贷，又没车贷
+Let’s say someone has neither a home, a mortgage, nor a car payment
+
+那给他什么？
+So what does he get?
+
+要把现在拥有的属于公共资源，要经过等比，就是大家平均完以后一个均值
+In order to take the public resources that we have, we have to go through the equivalence, that is, an average value with everyone included
+
+让他应该拥有，他不能吃亏
+Give him the part he should have and not letting him lose out on it
+
+这就是爆料革命，新联邦干掉共产党以后要做的
+This is what the Whistleblowers Movement, the New Federal State of China to do after taking out the Communist Party
+
+只有做到了现在的资源和财富的分配合理化
+Only when the current distribution of resources and wealth is rationalized
+
+被绝大多数人接受
+and accepted by the vast majority of people
+
+中国人才能放下负担走向未来
+will Chinese people be able to put down its burden and move into the future
+
+———————————————————
+
+**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1449362622432743424?s=24](https://twitter.com/se1y7cblljselva/status/1449362622432743424?s=24任务)
+
+Date:10/18/2021
+原视频标题:
+Chinese people get back their rights to land wealth before they can let go of their bur-dens and move into the future
+原视频日期：2021/10/13编号：KC201(2568)
+视频时间段 : 0:00-2:10
+
+英听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – Layka
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

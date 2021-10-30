@@ -2,118 +2,24 @@
 ---
 
 
-## 吴征在2019年就被美国FBI刑事调查吴征现在是罪上加罪
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1626981/)
+## 索尼计划参与台积电日本新工厂
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1627003/)
 
-[https://gtv.org/video/id=617b8ee8adfd99590c30b0b1](https://gtv.org/video/id=617b8ee8adfd99590c30b0b1)
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-25.png)[图片来源](http://wap.seccw.com/index.php/Index/detail/id/6124.html)
+索尼集团10月28日表示，该公司正在考虑向全球最大的半导体代工企业台积电（TSMC）在日本新建的半导体工厂出资。在半导体严重短缺的背景下，索尼将与台积电合作，来确保图像传感器所需要的运算半导体的稳定采购。通过日台合作，来抗衡紧追不舍的韩国三星电子，争取在继智能手机用传感器之后，在不断增长的车载传感器市场获得更高份额。
 
-**郭文贵**
-**Miles Guo**
+“正在考虑发挥索尼的技术经验优势，协助台积电建立新工厂”，在10月28日召开的记者会上，索尼副社长十时裕树这样表示。台积电此前就暗示了与客户合资进驻日本的可能性，十时称“正在就具体出资情况、金额进行全面讨论和协商”。
 
-我要告诉大家一个重磅的勐料
-I want to tell you all a bombshell news
+台积电10月14日发布了在日本建设新工厂的消息。计划于2022年开工建设，2024年启动量产。将生产电路线宽为22～28纳米（纳米为10亿分之1米）的运算（逻辑）半导体。
 
-吴征在2019年
-In 2019, Bruno Wu
+此外，索尼还考虑向台积电提供位于熊本县菊阳町的与自家工厂相邻的土地。
 
-就被美国FBI刑事调查
-was under criminal investigation by the US FBI
+信息来源：[**索尼讨论出资台积电新工厂，有两个目的日经中文网**](https://cn.nikkei.com/industry/itelectric-appliance/46506-2021-10-29-09-23-06.html)
 
-2019年吴征就已经被美国FBI
-Bruno Wu has been (investigated) by the US FBI since 2019
-
-包含他和中共的大概七八个人吧
-including about seven or eight people from the CCP
-
-将近10个人
-near to ten people
-
-全部被FBI刑事调查 （送交）美国司法部
-All of them were investigated by the FBI for criminal investigation, (the case was sent to) the US Department of Justice
-
-你知道这意味着什么吗？
-Do you know what this means?
-
-吴征是美国公民
-Bruno Wu is a US citizen
-
-不回美国接收美国刑事调查
-who does not return to the U.S. under the U.S. criminal investigations
-
-所以从那天起再也没回过美国
-So, he has never returned to the U.S. since that day
-
-不接受美国的刑事调查
-He doesn’t want to be subject to a criminal investigation in the U.S.
-
-逃离美国
-and fled from the U.S.
-
-而且跟他的合伙人就是FBI的Frank
-Also, with his partner Frank, who is the FBI agent
-
-他们还操纵着PAG的官司
-they have been manipulating the PAG lawsuits
-
-律师和法官和各方面
-lawyers, judges, and various parties
-
-操纵美国司法
-manipulating the U.S. judicial system
-
-更重要的在刑事犯罪调查期间
-More importantly, during the criminal investigations
-
-他签署大量的文件
-he has signed a large number of documents
-
-并没有披露
-He has not disclosed (he was under criminal investigations)
-
-也没向川普总统披露
-it also was not disclosed to President Trump
-
-包括他老婆杨澜
-including his wife Yang Lan
-
-包括他弟弟吴斌
-his brother Wu Bin
-
-包括李玉保
-Li Yubao (chairman of the board of directors of China Yunhong Holdings Lim-ited)
-
-所有这些都是刑事犯罪中的刑事犯罪
-All of these are criminal offenses under criminal offense
-
-川普总统的这个Deal(交易)SPAC，他是过不去了
-This SPAC deal with President Trump, he (Bruno Wu) will not get away with it
-
-吴征是罪上加罪
-Bruno Wu commits doubly crime
-
-———————————————————
-
-**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1452951168980713476?s=24](https://twitter.com/se1y7cblljselva/status/1452951168980713476?s=24)
-
-Date: 10/26/2021
-原视频标题: 
-Bruno Wu has been investigated under criminal investigation by the US FBI since 2019
-Bruno Wu currently commits doubly crime
-原视频日期：2021/10/24
-任务编号：KC202(2678)
-视频时间段 : 0:00-1:25
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

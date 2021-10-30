@@ -2,32 +2,53 @@
 ---
 
 
-## 中共是世界宗教自由的最大威胁
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1626839/)
+## 希拉里克林顿:英国必须在冬天强制疫苗、疫苗护照否则面临“问题”
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1626896/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+作者：Ian Miles Cheong
+翻译：HimaBoy
 
-10月29日，美国前国务卿麦克·蓬佩奥（Mike Pompeo）在盖特上转发了一篇关于苹果公司在中共国被迫下架圣经软件的新闻，并在盖文强调：“中国共产党是世界上宗教自由的最大威胁。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Hillary.png)
 
-这篇题为《苹果公司为安抚中共政权下架中共国圣经应用程序》的文章，系统地介绍了中共迫害宗教的情况，而苹果公司为迎合中共，以“遵守当地法律”法律为由，下架了在中共国下载量超过 100 万的 Olive Tree 的圣经软件和被数百万穆斯林使用的 Quran Majeed APP。
+前民主党总统候选人希拉里克林顿要求英国首相制定疫苗规定，并迫使公司解雇拒绝接种疫苗的员工。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/id13314160-pompeo-2-600x400-1.jpg)图片来源：https://www.epochtimes.com/gb/21/10/18/n13313404.htm
+周日，这位失败的总统候选人在BBC的安德鲁·马尔秀上发表讲话，倡导疫苗护照和疫苗授权，表面上是为了防止该国再次大规模封锁，随着冬天的临近，该国正面临病例增加的问题。
 
-该新闻还指出，因为中共政权试图将独立的宗教团体强行转变为中国共产党的机制，2020 年 7 月至 2021 年 6 月期间在中共国发生了100多起基督教迫害事件，很多教堂被摧毁、拆除，千万教徒只能在未注册或所谓的“非法”地下教会敬拜。
+“我认为这总统必须要做的，这可以停止新冠在英国的流行，且并不需要关闭社会，但强制疫苗是确实需要，”她说。
 
-对此，蓬佩奥在盖文中表示，中国共产党是世界上宗教自由的最大威胁。美国公司应该捍卫美国的自由原则，而不是让它们服从于独裁政权的臆想。
+在被要求澄清她是否意味着强制要求进入公共场所的疫苗护照时，克林顿给出了肯定的回答。她补充说，雇主有必要要求员工接种疫苗，这是英国在进入冬季时将面临“问题”。
 
-*注：本文仅代表作者观点，与 Gnews无关*
+“我认为你必须明确表示我们不会重新进入封锁状态，这不会发生。但是，如果你没有接种疫苗，如果你去俱乐部或餐馆时没有接种疫苗的证明，而且雇主不强制接种疫苗，我们可能会在英国看到一些问题，当天气变冷了，人们被迫再次回到室内，”她说。
 
-*参考链接：*
+目前在英国的民主党人将参加即将在苏格兰举行的 COP26 气候峰会。正如反叛新闻先前报道的那样，中国在联合国峰会之前宣布建设更多的燃煤电厂。
 
-[The Chinese Communist Party is the single greatest threat to religious freedom in the world. American companies should champion American principles of freedom, not subordinate them to the whims of dictatorial regimes.](https://www.gettr.com/post/pfgrindcd0)
+克林顿在参加一个让她成为北爱尔兰贝尔法斯特女王大学第一位女校长的活动时，被嘲笑为“战犯”。
 
-[【重播】蓬佩奥：中共是世界最大威胁](https://www.epochtimes.com/gb/21/10/18/n13313404.htm)
+正式担任奥巴马国务卿的克林顿一直主张英国采取与她的家乡美国纽约相同的措施，纽约在疫苗和疫苗护照的执行方面拥有最严格的政策。
 
-* * *
+克林顿在接受马尔的采访时指出，纽约的“所有大型卫生系统”和医院都已强制要求接种疫苗。克林顿提到了一个例子，该州最大的医疗保健提供者诺斯韦尔卫生局最近在 10 月份解雇了 14,000 名拒绝接种疫苗的工人。
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+尽管在欧洲实施了一些严厉的封锁限制，但英国拒绝强制实施非常不受欢迎的疫苗护照，这些护照已在其他欧洲国家生效。
+
+由于他所在的保守党成员和英国公众的抵制，鲍里斯·约翰逊拒绝实施该计划。然而，据布莱巴特报道，首相支持这一想法，暗示他可能是“游戏规则改变者”和“救生员” 。
+
+來源：[https://www.rebelnews.com/hillary\_clinton\_says\_uk\_must\_mandate\_vaccines\_covid\_passports\_or\_face\_problems\_by\_winter](https://www.rebelnews.com/hillary_clinton_says_uk_must_mandate_vaccines_covid_passports_or_face_problems_by_winter)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/30/2021 2:21 AM (UTC)`
+
+10/29/2021 Miles Guo: GlobalFoundries, in which Mubadala invests, controls core technologies, and it may become a trillion-dollar or a half-trillion-dollar company thanks to the CCP and Xi Jinping<br/><br/>10/29/2021 文贵直播：由穆巴达拉投资的格芯掌握核心技术，它可能因为中共和习近平而跻身万亿或半万亿级的公司<br/>
+![img](https://media.gettr.com/group2/getter/2021/10/30/02/21/9d24f964-925f-5bbc-1482-8b56913d7748/out.jpg)
+
+---
+
 `@wizard 10/29/2021 9:49 PM (UTC)`
 
 七哥“隔空取钱”论<br/><br/>随着喜币的上市，无数百万千万富翁被创造出来，大家应该明白了，这就是取钱。为什么喜币有价值，因为大家相信他。信用即价值。七哥创造了信用，而信用产生价值，此为取钱。<br/><br/>最妙的部分是这个“隔空”。<br/><br/>隔空，大家都听说过量子纠缠。说是两个量子状态穿越时空互相状态同步。这个信用就像是量子通信。你相信爆料革命，是一个精神状态。这个状态不像你的钱，需要复杂的转账；不像你的人，去什么地方还要护照，还需要搭乘交通工具。信用穿越时空，任何人无法控制。<br/><br/>隔空取钱就像武侠小说里的绝世高手，找根树枝给你比划比划，事儿就成了。这是人世间顶级玩家的游戏，普通人还是努力早起搬砖吧。。。
@@ -295,14 +302,6 @@ F the FDA.  Do the opposite of what they recommend. <br/><br/>DON’T VACCINATE 
 
 10月25号：MPs of the EU held a conference to oppose the vaccine mandate in the Union<br/>欧盟的议员们开会反对在欧盟内推行强制接种疫苗政策
 ![img](https://media.gettr.com/group40/getter/2021/10/25/16/15/1138462d-e0cd-9924-a158-2a1771fa948d/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@drmaria 10/25/2021 4:10 PM (UTC)`
-
-https://wabcradio.com/episode/uncovering-the-truth-10-24-2021/   Listen to our latest Sunday show. @RudyGiuliani defends Anderson Cooper
 
 ---
 

@@ -2,29 +2,37 @@
 ---
 
 
-## 有声|北约就警惕俄罗斯的敌对行动达成协议
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1626512/)
+## 华为被爆向民主党说客支付了100万美元
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1626691/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-这项战略计划全称为《欧洲-大西洋地区的威慑和防御概念》，旨在让北约成员国为来自波罗的海和黑海地区的攻击做好准备。该计划囊括了针对核、太空和网络攻击的措施。计划特别为网络战开发数字技术，提供了10亿美元的种子资金。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-近期，俄罗斯一直在举行军事演习，并在乌克兰边境附近集结了近10万军队，派遣军用飞机侵入北约领空，并开发具有核能力的导弹，包括具有核能力的高超音速巡航导弹。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/H-2.jpg)resistthemainstream.org
+《一美新闻网》（OAN，One America News Network），2021年10月28日下午报道，题目“据报道，华为向民主党说客支付了100万美元”。
 
-北约的新计划，将针对俄罗斯对波罗的海国家上空的侵犯，以及对黑海入侵的增加，起到威慑作用。
+全文如下：
 
-文字版原文：[北约就警惕俄罗斯的敌对行动达成协议](https://gnews.org/zh-hans/1620393/)
+新的报道进一步揭示了著名民主党说客托尼·波德斯塔（Tony Podesta）与中共国电信巨头华为的关系。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+根据周四（10月28日）的报道，华为向波德斯塔支付了100万美元，用于帮华为向拜登政府游说，这一数额是波德斯塔本月早些时候在第三季度游说报告中所说的数额的两倍。
+
+然而，调查发现，他可能在6月和9月分两期获得了100万美元，这是因为拜登政府被人建议将华为留在贸易黑名单上。
+
+一位白宫官员表示：“拜登总统和本届政府认为，华为等不可信供应商生产的数字基础设施设备对美国、我们的盟友和合作伙伴的安全构成威胁，针对华为的出口管制仍然有效。”
+
+今年夏天，波德斯塔在司法部针对华为首席财务官的银行欺诈案中扮演了重要角色，据报道，仅今年一年，华为就在内部和外部游说上花费了约340万美元。
+
+（原文完）
+
+拜登窃位入主白宫不久，就解除了对华为汽车芯片的出口，为华为解了燃眉之急。“汽车芯片”是借口，笔者曾发表过观点，华为可以通过这个渠道进口它所需要的其它芯片，甚至中共也能通过这个渠道进口美国禁运的军用芯片。笔者同时认为，肯定存在一股巨大的游说力量，而且拜登一定有短板在中共手里，否则，不会在那样短时间作出这样的荒唐决定。孟晚舟的释放，进一步证明了华为游说力量的猖獗，美国各个层面都有恐共、怯共、亲共、拥共、通共的力量。
+
+更重要一点，华为的游说花费绝不止100万或340万美元，这都是最保守的、已经作实的数字，中共的渗透是全方位，无死角，隐蔽的手段也是超乎寻常的。战友们可以关注一下，有条件和能力的战友可以深挖一下，亨特·拜登前一阵搞的画展，情景怎么那么像文贵先生描述的盗国贼利益获取、勾兑的方式。美国真地正在中共化，没有文贵先生引领的爆料革命，这种趋势会愈演愈烈，直到被中共彻底拿下。
+
+原文链接：
+
+[https://www.oann.com/huawei-reportedly-paid-democrat-lobbyist-1m/](https://www.oann.com/huawei-reportedly-paid-democrat-lobbyist-1m/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

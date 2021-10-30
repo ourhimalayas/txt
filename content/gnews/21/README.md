@@ -2,46 +2,112 @@
 ---
 
 
-## 前疾控中心主任称马里兰州超四成病毒死亡者已接种疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1626908/)
+## 吴征在2019年就被美国FBI刑事调查吴征现在是罪上加罪
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1626981/)
 
-**评论：对于疫苗的有效性，前疾控中心主任的表达已经给出了事实依据。然而，卫生部门的表示和官员的声明却耐人寻味！对于疫苗的有效率的表述，他们是应该遵循事实数据和科学，还是他们所在的身份位置？是站在接种了疫苗的死亡者的立场，还是别的不可说的因素？**
+[https://gtv.org/video/id=617b8ee8adfd99590c30b0b1](https://gtv.org/video/id=617b8ee8adfd99590c30b0b1)
 
-**据《Gateway Pundit》记者Jim Hoft，2021年10月27日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/aw0zs-cgvx6-4.jpg)图片源自Gateway Pundit
-美国疾病控制与预防中心前主任罗伯特·雷德菲尔德周一表示，在过去6至8周内，马里兰州因武汉冠状病毒死亡的人中有40%以上接种了疫苗。
+**郭文贵**
+**Miles Guo**
 
-在接受FOX新闻采访时，前疾病控制与预防中心主任雷德菲尔德（现任 MD 州长霍根的高级顾问）令人震惊地承认，最近马里兰州40%的COVID-19死亡病例都接种了疫苗。
+我要告诉大家一个重磅的勐料
+I want to tell you all a bombshell news
 
-“我听到很多次人们觉得完全接种疫苗的人可能会死亡是一种罕见的事件。我碰巧是马里兰州霍根州长的高级顾问。在过去的6到8周内，马里兰州40%以上的死者都接种了疫苗，”雷德菲尔德在被问及科林鲍威尔的死因时说。
+吴征在2019年
+In 2019, Bruno Wu
 
-前疾病预防控制中心主任罗伯特·雷德菲尔德说，过去 6-8 周在马里兰州死亡的人中有超过40%已接种疫苗。
+就被美国FBI刑事调查
+was under criminal investigation by the US FBI
 
+2019年吴征就已经被美国FBI
+Bruno Wu has been (investigated) by the US FBI since 2019
 
+包含他和中共的大概七八个人吧
+including about seven or eight people from the CCP
 
-> Former CDC Director Robert Redfield said more than 40% of the people who died in Maryland over the last 6-8 weeks were jabbed [pic.twitter.com/zkzRsUq9z9](https://t.co/zkzRsUq9z9)
-> — UK Patriot (@uk\_patriot1) [October 25, 2021](https://twitter.com/uk_patriot1/status/1452567147155234816?ref_src=twsrc%5Etfw)
+将近10个人
+near to ten people
 
+全部被FBI刑事调查 （送交）美国司法部
+All of them were investigated by the FBI for criminal investigation, (the case was sent to) the US Department of Justice
 
+你知道这意味着什么吗？
+Do you know what this means?
 
-但是，马里兰州卫生部发言人安迪·欧文 (Andy Owen) 有不同的说法，即从9月1日到10月15日，死于确诊COVID-19的马里兰人中只有约30%完全接种了疫苗。
+吴征是美国公民
+Bruno Wu is a US citizen
 
-MSN报道：
+不回美国接收美国刑事调查
+who does not return to the U.S. under the U.S. criminal investigations
 
-在那段时间内总共有649人死亡，这意味着，根据马里兰州卫生部的说法，其中195人是接种疫苗的人。
+所以从那天起再也没回过美国
+So, he has never returned to the U.S. since that day
 
-卫生部门表示，许多死者还患有其他健康问题，使他们更加脆弱。
+不接受美国的刑事调查
+He doesn’t want to be subject to a criminal investigation in the U.S.
 
-官员们发表声明写道：“这进一步强调了我们的使命，即通过敦促符合条件的马里兰州人接受强化注射来保持免疫力”。
+逃离美国
+and fled from the U.S.
 
-**文章来源：**[https://www.thegatewaypundit.com/2021/10/former-cdc-director-robert-redfield-claims-40-deaths-cases-maryland-fully-vaccinated/](https://www.thegatewaypundit.com/2021/10/former-cdc-director-robert-redfield-claims-40-deaths-cases-maryland-fully-vaccinated/)
+而且跟他的合伙人就是FBI的Frank
+Also, with his partner Frank, who is the FBI agent
 
-**（本文评论仅代表个人观点）**
+他们还操纵着PAG的官司
+they have been manipulating the PAG lawsuits
 
-翻译：洛杉矶盘古农场–Raul
-校对：洛杉矶盘古农场–Mike Li
-评论：洛杉矶盘古农场–心照
-编辑：洛杉矶盘古农场–心照
+律师和法官和各方面
+lawyers, judges, and various parties
+
+操纵美国司法
+manipulating the U.S. judicial system
+
+更重要的在刑事犯罪调查期间
+More importantly, during the criminal investigations
+
+他签署大量的文件
+he has signed a large number of documents
+
+并没有披露
+He has not disclosed (he was under criminal investigations)
+
+也没向川普总统披露
+it also was not disclosed to President Trump
+
+包括他老婆杨澜
+including his wife Yang Lan
+
+包括他弟弟吴斌
+his brother Wu Bin
+
+包括李玉保
+Li Yubao (chairman of the board of directors of China Yunhong Holdings Lim-ited)
+
+所有这些都是刑事犯罪中的刑事犯罪
+All of these are criminal offenses under criminal offense
+
+川普总统的这个Deal(交易)SPAC，他是过不去了
+This SPAC deal with President Trump, he (Bruno Wu) will not get away with it
+
+吴征是罪上加罪
+Bruno Wu commits doubly crime
+
+———————————————————
+
+**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1452951168980713476?s=24](https://twitter.com/se1y7cblljselva/status/1452951168980713476?s=24)
+
+Date: 10/26/2021
+原视频标题: 
+Bruno Wu has been investigated under criminal investigation by the US FBI since 2019
+Bruno Wu currently commits doubly crime
+原视频日期：2021/10/24
+任务编号：KC202(2678)
+视频时间段 : 0:00-1:25
+
+英听校: 洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
