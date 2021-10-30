@@ -2,41 +2,30 @@
 ---
 
 
-## 弗吉尼亚州再现选举舞弊
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1629175/)
+## 有声|欧洲议会将组团访台
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1629217/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+配音：香草山美食部 – 玫瑰园
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/V-4.jpg)theredamerican.com
-《门道专家》发表文章，题目是，“弗吉尼亚州又一次选举，又一次选举偷窃——据报道，弗吉尼亚州费尔法克斯（Fairfax）郡不要求缺席选票上写上社会安全号码（SSN）的最后四位数”。
+10月27日的相关报道提及，由欧洲议会“外国干预欧盟民主程序特别委员会”多名议员组成的代表团，计划将于下月初访问台湾。
 
-全文如下：
+台湾外交部发言人对欧盟议会代表此次访台表示欢迎。台湾世代智库执行长表示，欧盟还不熟悉中共的干扰信息，必须快速对此作出反应。而台湾是亚洲民主国家应对极权国家干预非常好的例子。据悉，本次欧盟访问团的目的之一，就是要向台湾学习如何面对试图干预或者影响民主进程的势力。
 
-毫无疑问，弗吉尼亚州的选举正在被偷走，我们在2020年的大选中看到了这一点，现在我们又看到了这一点。
+欧盟访台代表团的领队是法国议员莱克斯曼。今年三月，欧盟27个成员国因新疆维吾尔族人遭受大规模迫害对中共国实施制裁，出于报复，中共宣布对包括莱克斯曼在内的10名欧盟人士及4个实体实施发制裁。
 
-费尔法克斯郡在2020年大选中卷入了无法解释的腐败行为，这些行为从未得到解决，我们只知道在2020大选之后的几天，该州有330,000张选票投给了拜登，都发生在选举期间的午夜。
+文字版原文：[欧洲议会将组团访台](https://gnews.org/zh-hans/1623365/)
 
-(附上了《门道专家》当时发表的文章）
+音频处理：喜山必胜Maverick
 
-我们后来发现这些选票都在费尔法克斯郡。
-
-现在我们发现费尔法克斯郡在本次选举中不要求缺席选票写上社会安全号码的最后四位数。
-
-文章附上了一段推文：
-费尔法克斯郡选举登记处不要求缺席选票写上社会安全号码的最后四位数字。
-他们正在通过邮寄选票窃取另一场选举。
-然而，（在场的）共和党成员（@GOP）又在袖手旁观，无所事事。
-（全文完）
-
-维护选举公正的有识之士，无论是共和党的，还是民主党的，都应该警觉、行动起来，不是针对哪个党派，而是要确保选举的真实与公正，这是美国的国本。如果通过欺诈舞弊赢得了选举，某个党派获得了利益，那将意味着美国国体受到了侵蚀，让邪恶占上风后民主制度最终将走向毁灭。
-
-文贵先生对弗吉尼亚州长的选举给予了希望，称这是共和党能否赢得2022中期选举的风向标，班农先生也在呼吁，投票支持共和党人选。美国人必须行动起来，尤其是共和党人，去投票中心，严格监督投票过程，揭露舞弊行为。
-
-原文链接：
-
-[https://www.thegatewaypundit.com/2021/10/another-virginia-election-another-election-steal-virginias-fairfax-county-not-requiring-last-four-digits-ssns-absentee-ballots/](https://www.thegatewaypundit.com/2021/10/another-virginia-election-another-election-steal-virginias-fairfax-county-not-requiring-last-four-digits-ssns-absentee-ballots/)
-
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
