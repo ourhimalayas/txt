@@ -2,12 +2,18 @@
 ---
 
 
-## FDA无耻鼓吹为儿童接种疫以便发现疫苗罕见并发症
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1627626/)
+## 疫苗灾情｜美国男子 Brandon Crawford 接种强生疫苗后患心脏疾病（影音版）
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1627900/)
 
-10/27/2021 FDA无耻鼓吹为儿童接种疫，并声称这样才能发现疫苗的罕见并发症。如果不接种，人们就无法弄清楚疫苗在儿童身上的作用，那正是需要经历的过程。
+**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 30/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：https://gettr.com/user/mightygroup）**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+【美国】一名男子 Brandon Crawford 在接种完强生疫苗后诱发心脏疾病而送院治疗。
+
+住院期间，几乎每一次巡视的医生，在看到他的疫苗接种卡之后，都会说“很遗憾，你接种了疫苗。”，Brandon Crawford 将这段感受录成影片发布在 TikTok 上。
+
+
 
  
 
