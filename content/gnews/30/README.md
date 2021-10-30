@@ -2,36 +2,199 @@
 ---
 
 
-## 美国FDA批准为5至11岁的儿童注射了辉瑞疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1627086/)
+## 流通量支付范围是决定喜马拉雅币价值的关键之三
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1627108/)
 
-#### **编译报导：文泓**
+[https://gtv.org/video/id=617b9060adfd99590c30b0fd](https://gtv.org/video/id=617b9060adfd99590c30b0fd)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-99.png)
+那么第三个我要告诉你们
+Y les digo el tercero
 
-**图片来源：Heslthline**
-美国时间10月29日，辉瑞和BioNTech的新冠疫苗已被美国监管机构批准用于5至11岁儿童。
+喜币第二个衡量(标准), 什么时候值钱
+La segunda medida (estándar) de la moneda de Himalaya, ¿cuándo valdrá la pena?
 
-美国食品和药物管理局（FDA）于美国时间周五（澳洲时间周六）在一份声明中宣布了这项紧急授权，使美国更接近于在全国各地的学校、儿科医生办公室和药房进行疫苗注射。幼儿的配方是成人注射剂量的三分之一。
+在三年后
+Después de tres años
 
-在青少年开始接种疫苗之前，疾病控制与预防中心的免疫咨询委员会也将召开会议，就谁应该接种疫苗以及如何接种疫苗提出更具体的建议。该小组目前定于下周二和周三召开会议。
+但是喜币在上市后, 就一周以后上市后
+Pero una semana después que la moneda de Himalaya se publique
 
-随后，CDC主任罗谢尔·瓦伦斯基 (Rochelle Walensky)将需要签署顾问的指导意见。
+什么时候对你来讲会增长它的价值
+Para ti, cuándo será el aumento de su valor
 
-FDA周五的行动将允许开始运送这些剂量——这是美国第一次为青少年和成人分发除常规辉瑞剂量以外的任何药物。这些药物将在全国各地的儿科医生办公室、药房和其他地点放置（疫苗），以便在任何CDC批准后立即开始接种。
+就是它的流通量
+Es su circulación
 
-“为年幼的儿童接种新冠疫苗将使我们更接近恢复正常状态，”FDA代理专员珍妮特·伍德科克在声明中说：“我们对与疫苗安全性和有效性有关的数据进行了全面而严格的评估，应该有助于向父母和监护人保证这种疫苗符合我们的高标准。”
+它到哪使用
+Hacia dónde se utilizará
 
-新闻链接：[pfizer – Bing images (afr.com)](https://www.afr.com/politics/federal/fda-paves-way-for-pfizer-covid-19-vaccinations-in-young-kids-20211030-p594ii)
+它到G-Fashion上买了个内裤, 它是G-Fashion
+Él compra un calzón en G-Fashion, él es G-Fashion
 
-**发布：文泓**
+它买了一个卡是G卡
+Él compró una tarjeta G
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+如果有跟G系列完全没关系的机构开始(接受)
+Si las organizaciones que no tienen nada que ver con la serie G empiezan a aceptar
+
+有一个地方接受对它都是不一样的
+Si hay un sitio que acepte, él será diferente
+
+未来谁能把喜币作为当地国家代理权
+En un futuro, quién podrá utilizar a la moneda de Himalaya como agente nacional local
+
+和把喜币整个的喜支付
+Con el Himalaya pay y su moneda
+
+记住, 喜支付是它所有的未来
+Recuerda, el Himalaya pay es todo su futuro
+
+啥叫支付, 知道吗?
+¿Saben en qué consiste el pago?
+
+就是你的子弹能打到什么地方
+Significa hacia dónde pueden ir tus balas
+
+喜币是把枪
+La moneda de Himalaya es una pistola
+
+喜币第一枪就打向了G-Fashion的内裤
+El primer disparo de la moneda de Himalaya golpeó hacia el calzón de G-Fashion
+
+第二枪打向了G-Club, 打了一张卡
+El segundo disparo se dirige hacia G-club, le dio a la tarjeta
+
+证明子弹管用, 枪管用
+Esto comprueba que las balas y la pistola si sirven
+
+全世界的所有的枪都是放在家里没试过
+Las pistolas de todo el mundo las tienen en la casa y nunca la han probado
+
+所以说你说多少钱多少钱, 都你家的事儿
+Por eso es asunto tuyo si tu dices cuánto vale
+
+不知道你到底能打鸟啊
+No sabes si puedes pegarle al pájaro
+
+还有到底子弹管不管用啊
+Y si al fin las balas sirven
+
+但是喜币第一枪G-Fashion内裤
+Pero el primer disparo de la moneda de Himalaya es el calzón de G-Fashion
+
+第二枪G-Club
+El segundo es G-club
+
+如果战友们代理了这个
+Si los compañeros luchadores representan esto
+
+哎唷, 我能拿着枪
+Ay, puedo tener la pistola
+
+未来我能代表你打出一个德国宝马回来
+En el futuro puedo representarte para cazar un BMW alemán
+
+你是德国代理权
+Eres un agente alemán
+
+你将拥有宝马
+Obtendrás un BMW
+
+十个宝马都可能
+Posiblemente, diez de ellos
+
+为啥我说你要是能买宝马
+Por qué digo que si compras un BMW
+
+宝马接受了喜币支付
+BMW aceptó el pago de Himalaya
+
+我们就证明了
+Entonces comprobamos que
+
+我这个子弹和枪能打宝马
+Esta bala y pistola puede golpear al BMW
+
+那在日本的战友
+Y los compañeros luchadores que están en Japón
+
+如果你能把它在日本说
+Si puedes decir así como
+像我们日本的二尊
+Nuestros dos personajes que están en Japón
+
+我能把日本的某酒店系统签下来
+Puedo firmar el contrato de algún sistema de un hotel en Japón
+
+接受喜支付, 你就打下了日本的所有酒店
+Y que acepte el Himalaya pay, entonces ya conquistaste a todos los hoteles de Japón
+
+如果Rachel能在加拿大
+Si Rachel puede
+
+把那个最大的全世界的叫牛郎网能打下来
+Conquistar a la red más grande de Money Boy
+
+(接受)牛郎介绍, 可以支付喜币
+(aceptar) la presentación de Money Boy que pague en moneda de Himalaya
+
+你就打下了牛郎网
+Entonces logras conquistar a esta red
+
+猫本你听懂我的意思了吗
+Mao Ben, ¿puedes entender lo que digo?
+
+你要在澳大利亚能让它买袋鼠皮, 你就能打下袋鼠皮
+Si puedes hacer que compre la piel del canguro, entonces logras dominarlo
+
+这个所有的币, 它是颗子弹
+Todas las monedas son como una bala
+
+它这个币的生态圈就是核心
+El ecosistema de esta moneda es su núcleo
+
+那么当你上市后发现无数个猎物回来的时候
+Entonces cuando ya salga al mercado, en ese momento te darás cuenta de las incontables presas que regresan
+
+你就知道它一定会大升值的
+Sabras que tendrá un gran aumento de valor
+
+比例是多少钱我可以告诉你
+Puedo decirte cuál es la proporción
+
+我有1块钱的交易
+Tengo una transacción por 1 dólar
+
+它一定是1000倍. 而不是20倍, 30倍
+Él será mil veces más y no veinte o treinta
+
+因为它是货币, 它会成为货币
+Porque él es una moneda, se convertirá en una moneda
+
+它不是法币, 它成为货币了
+No es dinero por decreto, se ha convertido en moneda
+
+———————————————————
+
+**原视频网址**： [https://twitter.com/se1y7cblljselva/status/1451875661442736130?s=24](https://twitter.com/se1y7cblljselva/status/1451875661442736130?s=24)
+
+日期：10/28/2021
+原视频标题：
+El alcance del pago de circulación es la tercera clave para determinar el valor de la moneda de Himalaya
+原视频日期：10/23/2021
+任务编号：KC206（2646）
+视频时间段：0:00-2:20
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

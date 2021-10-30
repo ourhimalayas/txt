@@ -2,157 +2,62 @@
 ---
 
 
-## 给孩子们接种疫苗，他会将一个健康孩子拉出公立学校并做家庭学校
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1627013/)
+## 拜登政府默认 谭德塞将无异议连任
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1627060/)
 
-[https://gtv.org/video/id=617b8f60adfd99590c30b0c5](https://gtv.org/video/id=617b8f60adfd99590c30b0c5)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**Mark Levin (Life, Liberty & Levin host)
-马克·莱文（ 《福克斯新闻》《生活、自由与莱文》栏目主持人）**
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/W.jpg)newscientist.com
+《福克斯新闻》发表文章，题目是“备受争议的世界卫生组织主席谭德塞将无异议连任”，副标题指出，福奇曾说谭德塞是他的“亲爱的朋友”。
 
-then the CDC director comes out
-然后疾病预防与控制中心主任出来了
+全文如下：
 
-not only that they’re still going to have to wear masks.
-不仅如此，他们仍将必须戴口罩
+世界卫生组织负责人、埃塞俄比亚人谭德塞星期五（10月29日）被确认为世界卫生组织最高职位的唯一候选人，现在看来他肯定会连任该组织的总干事，尽管他在处理中共病毒（新冠）疫情方面存在争议，而且与中共关系密切，但没有任何国家提出反对他的候选人。
 
-You hear you hear Dr. Fauci you know
-你听到了福奇博士所说的，你知道
+观察家说，美国在选举过程中缺乏积极性，这意味着它已经失去了对该组织未来施加影响的重要机会，提名截止日期是9月底。
 
-people have played the endless contradictions coming out of his mouth
-人们对他口中无休止的矛盾以及他在电视和其他媒体上
+《捍卫民主基金会》（the Foundation for the Defense of Democracies）的副手克雷格·辛格尔顿（Craig Singleton）告诉《福克斯新闻》，“世界卫生组织总干事选举是对拜登政府多边政策的第一次考验之一，拜登政府将多边主义和联合国作为在世界舞台上促进美国利益的工具。政府已经提出了其他国际组织选举的候选人，如国际电信联盟（the International Telecommunications Union,），但尚未解释其不挑战谭德塞的决定。”
 
-and the endless television and other media appearances he has.
-无休止的露面进行了嘲笑
+辛格尔顿继续说，“这一失误引发了对华盛顿抵制中共国日益增长的联合国行动主义的严重质疑，其中包括北京在整个联合国系统内提拔依附中共利益的领导人候选人的努力。”
 
-This has to be one of the worse year, year and a half,
-这必须是我所记得的所谓科学和医学界
+《福克斯新闻》已经与国务院取得了联系，但尚未听到国务院关于不推荐替代人选的理由。
 
-two year periods of information provided the American people by the so called sci-entific and medical community
-向美国人民提供的信息中
+在川普政府宣布终止了美国与世卫组织的关系后，拜登却在其任期的早期与世卫组织重新谈判。当时，川普列举了世卫组织对中共病毒疫情的处理方式、其所谓的亲华倾向以及随后的改革失败。
 
-that I can ever remember.
-最糟糕的一年、一年半、两年的时期之一
+当拜登政府在1月份重新加入时，安东尼·福奇说谭德塞是他的“亲爱的朋友”，据说谭德塞也称福奇为“我的兄弟托尼”。
 
-Dr. Harvey Risch (Yale Epidemiology Professor)
-哈维·里施博士（耶鲁大学流行病学教授）
+虽然美国没有提名谭德塞，但包括法国和德国在内的28个国家提名了他，异乎寻常的是，他的祖国不支持他，埃塞俄比亚人不愿意给他祝福，因为有人指责他在这个非洲国家内战威胁加剧之际偏袒现任政府。谭德塞不是医生，此前曾担任埃塞俄比亚卫生和外交部长。
 
-Well as far as I can tell, that it’s a top down structure.
-嗯，据我所知，这是一个自上而下的结构
+美国是世界卫生组织的最大捐助国，在过去五年中花费了大约20亿美元，美国为该组织的预算提供了22%的资金，而中共国承担了（不到美国）一半的费用。
 
-And most doctors do not get their information by going back and reading
-并且大多数医生并没有获得信息通过返回并阅读
+休·杜根（Hugh Dugan）在川普政府期间担任国家安全委员会（the National Security Council）国际组织事务高级主任，并在过渡期间向拜登政府简要介绍了世卫组织的情况，他对所需的改革可能会落空表示担心。
 
-the original studies of making up their own minds.
-原始的研究来做出他们的决定
+杜根说：“在担任世卫组织总干事的五年任期内，谭德塞本应就有关中共病毒事件受到白宫质询，但拜登忘了抓住这个机会，以改进对武汉的问责和提高透明度。他放过了谭德塞，原本该拒绝让其过关的，只有美国有足够的影响力来叫板中共那个家伙。而拜登的团队……还继续不想对为世卫组织掌舵人所需的变革施加影响力。”
 
-They get fed the information from Pharma reps,
-他们从制药代表那里得到信息
+辛格尔顿，一名拥有中共国和国际组织专业知识的前美国官员，也对谭德塞被认为偏袒中共国而担忧。
 
-or from what they’re told from societies and the conflicts are legion
-或者从社会上告诉他们的，相反的信息是大量的
+他说：“毫无疑问，谭德塞缺乏公信力，这不仅是因为他允许北京方面破坏对中共病毒溯源的调查，还因为在他任内发生了一些严重的丑闻。这些报告包括有关涉及其核心圈子内的世卫组织员工的性侵犯指控的报告，以及最近的一次审计，该审计显示，世卫组织在疫情最严重时花费数百万美元购买了有缺陷的中共国制造的医疗防护用品。”
 
-and and so it’s no surprise that most doctors don’t pay attention and think what they’re told.
-因此，大多数医生不注意和思考他们被告知的内容也就不足为奇了
+他指出，几乎没有证据表明“自疫情爆发以来他亲中共的表现有所减弱。鉴于谭德赛作为埃塞俄比亚卫生部长，后来又担任外交部长，一直在维护北京的利益，这一点并不奇怪。”中共国不是提名谭德塞连任的国家之一。
 
-Mark Levin
-马克·莱文
+一位了解该组织内部运作的匿名外交官告诉《福克斯新闻》，世界卫生组织在谭德塞的领导下深陷泥潭。这位外交官观察到，世卫组织“完全专注于促进其个人政治前途，他不是一名科学家，他的统治是专制和重男轻女的。由于在科学指导方面的一再失误……世卫组织已经失去了所有的信誉。”
 
-If you’re a parent, and you have seven or eight year old,
-如果你是父母，并且有七、八岁的孩子
+独立专家的一份报告披露，世卫组织21名雇员被指控在2018年和2010年刚果发生埃博拉疫情期间发生性虐待行为，世卫组织因此卷入了严重的性虐待丑闻。《美联社》援引“蓝色代码运动”（Code Blue Campaign）的话说，该组织致力于结束联合国维和人员和其他工作人员的性剥削和性虐待行为，是“在一个国家或一个时期内，联合国单一行动中发现的最大的性虐待事件。”
 
-the federal government is going to insist that those kids get vaccinated.
-联邦政府将坚持要求这些孩子接种疫苗
+世界卫生组织的发言人没有回复有关批评谭德塞的电子邮件提出的问题。
 
-Or if you live in a state like California
-或者如果你住在像加利福尼亚这样的州
+（全文完）
 
-where Governor Newsom is going to do that and so forth,
-纽森州长将在那里这样做等等
+谭德塞通共、替中共掩盖病毒真相不足为奇，在他领导下的世卫组织出现性丑闻也非偶然，一个丧失人性，甘愿做罪恶集团代理人的他有任何丧尽天良的表现都符合罪恶逻辑。从他的连任，也能看出中共的布局。人们不会忘记，在前一段全球就中共病毒溯源追责中共的高潮时刻，似乎也听到了谭德塞微弱指责中共的声音，笔者不是在开脑洞，而是认定那是他与中共为今天的连任演出的双簧戏。
 
-and he has a horrific record.
-他有一个可怕的记录
+在中共助力下窃位入主白宫的拜登，代表的是唯一一个能向中共、向谭德塞说不的力量，他却选择了“沉默”，又一次扮演了亲共、通共的角色。笔者预计，世卫组织将在谭书记的领导下继续充当袒护中共的角色。
 
-Most of these governors do, not all, but most,
-这些州的大多数州长都这样做，不是全部，但大多数
+流氓当道，魔鬼疯狂，邪恶势力沆瀣一气，为非作歹。闭口不提中共病毒来源，却让强制疫苗令在所谓西方文明国家铺天盖地地推行，世卫组织、拜登政府、小土豆政府等都在以旅行自由和工作机会为交换条件，将普通人逼向墙角。笔者相信正义的力量正在觉醒，它们越猖狂死期越近！
 
-what would you do? Would you get your kid vaccinated?
-你会怎么做？你会让你的孩子接种疫苗吗？
+原文链接：
 
-Would you talk to your local doctor? What would you do?
-你会和你当地的医生谈谈吗？你会怎么办？
-
-Dr. Harvey Risch
-哈维·里施博士
-
-If the child has chronic conditions that make their risk appreciable
-如果孩子患有慢性病，这使得他们的风险巨大
-
-then there’s a reason that they would be considered for vaccination.
-那么就有理由考虑为他们接种疫苗
-
-Other than that, if for my child, I would homeschool them.
-除此之外，如果为了我的孩子，我会让他们在家上学
-
-Honestly, I would organize with other parents to take them out of the school
-老实说，我会组织其他家长带他们离开学校
-
-and create homeschooling environments.
-并创造在家学习的环境
-
-There’s no choice. Your child’s life is on the line.
-别无选择，你孩子的生命危在旦夕
-
-It’s not a high risk vaccination is not a high risk that’s going to kill every child by doing so.
-这不是高风险的疫苗接种，也不是因为这样做会杀死每个孩子的高风险
-
-However, it’s enough of a risk that on the average,
-然而，就平均而言这足以构成风险
-
-the benefit is higher for homeschooling than it is for vaccination and being in school.
-在家学习的好处高于接种疫苗和在学校学习
-
-And that’s just the bottom line.
-而且这只是底线
-
-You know, we’re seeing employees in companies facing mandates quit or being fired.
-你知道，我们看到公司的员工面临强制疫苗而辞职或被解雇
-
-And now public proceeds that and companies are having a hard time
-而且现在公共收益和公司现在正在处于困难时期
-
-replacing those employees in the climate of a bad employment circumstances and missing workers.
-在就业环境恶劣和失去工人的情况下替换这些雇员
-
-It’s getting even harder and so those policies are being rethought
-现在越来越难了，所以当人民因为自己的利益而反抗时
-
-when the people rebel because of their own interests.
-这些政策就会被重新考虑
-
-Then it has to be reckoned
-那么它必须被考虑
-
-———————————————————
-
-**原视频链接:**[https://twitter.com/saragonzalestx/status/1452446580095737859?s=24](https://twitter.com/saragonzalestx/status/1452446580095737859?s=24)
-
-Date:10/27/2021
-原视频标题: Dr. Harvey Risch says he would pull a healthy child out of public school and homeschool before he gave them this vaccine
-原视频日期：2021/10/24
-任务编号：KE342（2674）
-视频时间段 : 0:00-2:20
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[https://www.foxnews.com/world/world-health-organization-chief-tedros-unopposed-second-term](https://www.foxnews.com/world/world-health-organization-chief-tedros-unopposed-second-term)
 
  
 
