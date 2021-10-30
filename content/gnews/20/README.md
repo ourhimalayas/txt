@@ -2,46 +2,24 @@
 ---
 
 
-## 美排名第一的梅奥诊所雇员抗议疫苗强制
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628554/)
+## 秘翻在线：央行等发布重磅文件释放信号金融体系随时发生系统性风险
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1628558/)
 
-作者：美东香草山佛教部 文一
+**撰稿：Ping**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-30-210707.jpg)
+据中共媒体报道，银保监会官网10月29日消息，为进一步增强中共国金融体系的稳定性和健康性，保障全球系统重要性银行具有充足的损失吸收和资本重组能力，防范化解系统性金融风险，人民银行会同银保监会、财政部制定了《全球系统重要性银行总损失吸收能力管理办法》（以下简称《办法》），经国务院同意，现正式发布。
 
-据报道，10月25日，数百人在美国明尼苏达州罗切斯特市中心游行。他们高喊 “打倒梅奥”并唱着爱国歌曲，用以抗议梅奥诊所实行的强制新冠疫苗接种政策。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.30AM-PICTURES-123456-图片备用.004.jpeg)
-梅奥诊所拥有约七万三千名员工，是美国排名第一的医院，并连续27年浮动于榜首的位置，且该院在器官和血液移植手术方面享有盛誉。
+此消息一出，再次印证了郭文贵先生爆料中共国金融系统即将大崩溃或已成现实。郭先生自爆料以来，多次提到中共金融系统的腐败令人发指。烂账，坏账甚至高达30%以上，银行的倒闭，金融系统的崩溃是既定事实。特别是2020年来中共房地产泡沫已经渐渐被捅破，恒大地产的暴雷，成为了点燃中共整个金融系统崩塌的导火索。中共国的金融崩溃已经难以遏制。而此时央行，银保监会，财政部联合发文，提醒各个部门牢牢守住金融体系不发生风险的底线，这正说明金融崩溃的爆发已经危在眉睫！
 
-据了解，此次抗议活动是由梅奥诊所的一小批工作人员在线发起的。随后短短几小时内，报名参加抗议的人数迅速从十几人增至数百人。 目前，这一针对梅奥诊所的抗议活动已经蔓延至全美多地，包括威斯康星州的拉克罗斯市和亚利桑那州的凤凰城。至于抗议活动的参与人员，则多为因拒绝接种新冠疫苗而被解雇的员工。
+中共统治老百姓的一贯手段就是假，骗，偷。各种虚假，丑陋，邪恶积累70年后，矛盾已经到了爆发的临界点。正如郭先生爆料，中共的白手套企业，用假金融票据，到银行骗贷，然后再转移到国外，占为私有，而银行的帐目还是存在的。所以，当中共盗国贼肆无忌惮的假骗偷行为掩盖不住的时候，也就预示他们的好日子到头了。
 
-线上活动方面，梅奥诊所的员工于盖特平台上传了抨击强制新冠疫苗接种政策的视频，同时他们也发表盖文，号召更多的民众抗议新冠疫苗政策，为自由而战。
+打个比方，医院血站给一个人抽血200cc的时候，不会影响个人身体健康，但是，为了多得到一些血转卖，第二次抽300cc，转卖100cc，得到利润。当尝到甜头的时候下次再多抽一些血，抽了1年后，已经抽不出血了，血站也已经将多余的血卖钱占为己有了。现在没有血来源了，库存也即将用光的时候。那血站还能运行了么？如今的中共金融系统就是没有血的血站，韭菜已经被中共割了一茬又一茬，现在几乎根都刨出来了。金融系统还能不崩塌么？或许一觉醒来，发现银行倒闭了，你存在银行的钱没有了。所以，现在唯一能自救的就是把钱放进喜联储，喜币可以保你的财富，保你的未来。
 
-参考链接：
+总之，在中共金融体系大崩溃之际。我们的同胞绝不能再被中共的谎言蒙蔽了双眼，它已经欺骗了我们老百姓70年，让我们为奴70年，临死之前还要我们的保命钱也跟着共产党灰飞烟灭，这不是我们这些善良的老百姓应该承担的。我们一定要睁开双眼，认清即将来临的劫难，保护好自己家人的保命钱，换成喜币是目前唯一安全的方法！
 
-1. [8,000 Mayo Clinic Employees to be Fired for Refusing COVID-19 Jab](https://gettr.com/post/pfa29w4a5e)
-2. [Crowd protests Mayo Clinic requiring employees to be vaccinated](https://news.yahoo.com/crowd-protests-mayo-clinic-requiring-000200362.html)
-3. [Mayo Clinic](https://en.m.wikipedia.org/wiki/Mayo_Clinic)
-4. [Protesters outside Mayo Clinic La Crosse say they want a choice](https://www.news8000.com/protesters-outside-mayo-clinic-la-crosse-say-they-want-a-choice/)
-5. [Mayo Clinic employees are protesting the vaccine mandates in Arizona!](https://gettr.com/comment/car5t587e7)
-6. [Mayo Employee SCORCHES Mandates in LIVE Interview From Clinic](https://gettr.com/post/pf4dvl9549)
-
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-编辑/总编：Irene木木
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+**[新闻来源](https://mparticle.uc.cn/article.html?btifl=100&amp;app=uc-iflow&amp;title_type=1&amp;wm_id=fbd76bb656d948b7a4541253756a2898&amp;wm_cid=451950396697493504&amp;pagetype=share&amp;client=&amp;uc_share_depth=1&amp;uc_param_str=frdnsnpfvepcntnwprdssskt)**
 
  
 
