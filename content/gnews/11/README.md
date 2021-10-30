@@ -2,64 +2,29 @@
 ---
 
 
-## COVID-19最新情报｜台湾卫福部认疫苗致心肌炎病例激增 专家权衡利益 吁继续接种
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1628423/)
+## 拜登政府拒绝接受法官命令
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1628535/)
 
-**台灣寶島農場 疫情關注組｜發佈日期/ 30/10/2021**
+#### 翻译：Grace
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-86.jpg)图片来源：en-volve
+据福克斯新闻（Fox News）10月28日报道，拜登政府称不会在华盛顿特区法院裁决前，停止解雇正在寻求中共病毒疫苗宗教豁免的员工。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+华盛顿特区的一名地区法院法官，科琳.科特尔利(Colleen Kollar-Kotelly)周四发布了一项一分钟命令（a minute order），要求拜登政府同意，文职和现役军人原告在就中共病毒疫苗的宗教豁免问题起诉政府后，在等待裁决期间不会被解雇。
 
+法官周四还要求拜登政府同意，“宗教豁免请求被拒绝的现役军人原告，在上诉期间不会受到纪律处分或离职”。
 
-2021/10/29台湾卫生福利部疾病管制署发布影片，邀请台中荣民总医院副院长傅云庆[讲解新冠疫苗接种后心肌炎、心包膜炎](https://www.youtube.com/watch?v=jzZTgUenRAI)的相关说明。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/截圖-2021-10-30-下午4.06.59.png)
-#### mRNA疫苗确实导致心肌炎病例数激增
+法官进一步命令拜登政府的被告在周五中午之前提交一份补充通知，说明他们是否同意在法院裁决之前不对原告进行惩戒或解雇，否则将安排另一次简报会。
 
-关于接种疫苗后诱发心肌炎的可能，傅云庆参考以色列的相关数据，表示接种BNT引起心肌炎的风险高了3.24倍，发生率为10万分之1～5。(以色列接种疫苗后发生心肌炎的比例相当高)
+然而，拜登政府在周五中午之前已经作出回应。拜登政府在一份文件中说，在法院对临时限制令（TRO）动议作出裁决之前，它不会同意停止对任何正在寻求疫苗宗教豁免的雇员的纪律处分和解雇。
 
-美国CDC发布疫苗不良事件通报数据，2018年至2021年期间，2021年心肌炎通报率激增([67%由BNT引起](https://gnews.org/zh-hant/1620607/))，经分析是因为年初美国开始推行接种mRNA疫苗。且疫苗不良事件采自主通报方式，因此实际的病例数量会高于数据显示的百万分之3发生率。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/截圖-2021-10-30-下午4.14.09.png)
-#### 新冠疫苗致心肌炎，主要发生于“年轻族群”
+拜登政府在周五的文件中写道：“原告有责任证明即将发生的不可挽回的伤害……但原告除了猜测之外，没有提供任何信息表明他们的宗教例外请求将被拒绝，他们将受到纪律处分，更不用说在理论上有可能受到这种纪律处分的第一天。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/截圖-2021-10-30-下午4.18.25.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/截圖-2021-10-30-下午4.20.35.png)第二剂发生率79%，远高第一剂的29%
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/截圖-2021-10-30-下午4.21.48.png)絕大多数发生在接种后21天内
+原告律师迈克尔.约德（Michael Yoder）在一份声明中说：”拜登政府对法治表现出前所未有的轻蔑态度，对基本的宪法轮廓完全无能为力。”
 
+约德指出，拜登政府的“这种组合对美国的自由是危险的”。约德还说：“值得庆幸的是，我们的宪法保护和保障了不受宗教迫害和胁迫的权利。有了这项命令，我们可以把政府限制在其列举的权力范围内，这样离我们把拜登政府放回原位又近了一步。现在是公民和法院对暴政说不的时候了。宪法不需要重写，它需要重读”。
 
-图表显示，美国相关分析数据，新冠疫苗致心肌炎主要发生在10-30岁的年龄层，占通报数的72%。男性发生率高于女性，第二剂发生率远高于第一剂，85%会在接种后一周内发生心肌炎。
-
-傅云庆分析美国相关统计数据后表示，发生率为“百万分之34”与以色列的“10万分之1～5”经验类似。
-
-#### 各年龄层发生率
-![](https://assets.gnews.org/wp-content/uploads/2021/10/截圖-2021-10-30-下午4.27.45.png)
-- 65岁以上：约百万分之1.3
-- 12-17岁：男性约百万分之66.7，女性约百万分之9.1
-
-
-本次新冠疫苗导致心肌炎，好发于30岁以下。在不应该发生的年纪，发生了心肌炎或其他疾病，这是本次疫苗最大、最严重的伤害。且傅云庆表示，各国目前对于新冠疫苗导致心肌炎的致病机转“尚不清楚”，目前已经有研究证实的部分是“部分基因问题或免疫调节失调”，接种新冠疫苗后会造成心肌发炎。
-
-#### CDC回答该不该打疫苗
-![](https://assets.gnews.org/wp-content/uploads/2021/10/截圖-2021-10-30-下午4.37.50.png)綠色為新冠病毒致住院治療；紅色為心肌炎致住院治療
-傅雲慶表示，新冠疫苗確實有可能誘發心肌炎，但經利益衡量下，新冠病毒致住院的數量遠高於心肌炎，應該是接種新冠疫苗比較好。
-
-对此，在只有疫苗才能有效解决新冠病毒问题的前提下，是接种疫苗比较好。**但是，世界上许多人选择“不要感染病毒！”**
-
-- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
-- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
-- 相關：[印度德里使用伊維菌素，確診病例下降97%](https://gnews.org/zh-hant/1570870/)
-- 相關：[Zev Zelenko 博士](https://www.wnd.com/2020/03/doctor-treated-350-coronavirus-patients-100-success/)在(2020年) 4 月份[告訴 WND](https://www.wnd.com/2020/03/doctor-treated-350-coronavirus-patients-100-success/)，他利用藥物已經治療了 350 名新冠確診者，且成功率達 100%。
-- 相關：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
-- 相關：[麥卡洛博士呼籲，不要接種新冠疫苗](https://www.wnd.com/2021/05/prominent-physician-dont-get-covid-shot/)（完整採訪）
-
-
-新冠疫苗不具有预防感染效力，若推广疫苗是为了预防重症，个人应该对自己健康有选择权利。政府机关长期片面的大力推广实验性新冠疫苗，忽略了有效的药物预防、治疗方案，促成了台湾数百例的[針下亡魂](https://gnews.org/zh-hant/1627261/)。
-
-截自10/20，台湾FDA公布疫苗不良事件通报分析报告，接种疫苗后死亡数量932例（存在漏报、未报可能），占总通报9.12%。且疫苗致死的数量，远超感染新冠病毒致死的800多例，在可以治疗的前提下，感染病毒的生命、健康风险比较低。更何况存在[有效的药物预防方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Blue-Universal-Space-Channel-Banner-1.jpg)
-* * *
-
-參考來源｜[衛生福利部疾病管制署10月10日影片](https://www.youtube.com/watch?v=jzZTgUenRAI)
-撰文｜zhong
+**新闻来源：**[**Biden admin says it will not halt firing employees seeking vax exemptions before a DC court ruling**](https://www.foxnews.com/politics/biden-admin-vaccine-employees-judge-injunction)
 
  
 

@@ -2,27 +2,33 @@
 ---
 
 
-## 事关重大议题 中俄领导人仅视讯参加G20峰会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1628439/)
+## 日本要闻汇编 10月30日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1628572/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-149.jpg)[图片来源](https://www.google.com/search?q=G20%E7%BD%97%E9%A9%AC%E5%B3%B0%E4%BC%9A&amp;tbm=isch&amp;ved=2ahUKEwiL5s_-i_LzAhXBfHAKHWt_CI0Q2-cCegQIABAA&amp;oq=G20%E7%BD%97%E9%A9%AC%E5%B3%B0%E4%BC%9A&amp;gs_lcp=CgNpbWcQAzIHCAAQgAQQDDIGCAAQDBAYMgYIABAMEBgyBggAEAwQGDIGCAAQDBAYMgYIABAMEBgyBggAEAwQGDIGCAAQDBAYMgYIABAMEBgyBggAEAwQGDoHCCMQ7wMQJzoFCAAQgAQ6BAgAEBhQuQpY9CBgjSNoAHAAeACAAdQFiAHKCJIBBzAuMi42LTGYAQCgAQGqAQtnd3Mtd2l6LWltZ8ABAQ&amp;sclient=img&amp;ei=3DR9YYuICMH5wQPr_qHoCA&amp;bih=625&amp;biw=1366&amp;rlz=1C1YKST_enUS900US901&amp;hl=zh-CN#imgrc=uwhIdJ-XOpVXfM)
-本年度在罗马举行的二十国集团峰会，议程包括气候保护、跨国企业税、新冠疫情等重大话题。而大国之间的地缘政治较量，也对此次峰会构成了重大影响。
+#### 素材：东京樱花团｜GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-1-8.png)[*图片来源*](https://cdn.hk01.com/di/media/images/2570416/org/53222180884cab2154ba2d0923d19a82.jpg/N6VG-2NgsBES-aiw2VOCDQ_5ucLilDJ9kRCiZpEQomY?v=w1920r16_9)
+1、[**美贸易代表将于下月首次访日**](https://china.kyodonews.net/news/2021/10/0c5996d6aca3.html)
 
-今年峰会的主旨是“人民、星球、繁荣”。二十个工业国的高官在此前几个月已经做了大量的准备工作，本周末的峰会则轮到了各国最高领导人来拍板决定重大议题。
+美国贸易代表办公室（USTR）29日宣布，贸易代表凯瑟琳･戴（戴琦）将于11月15日访问东京。考虑到抗衡中国，戴琦将与日本政府相关人士等就加强日美经贸关系等举行磋商。这将是戴琦3月上任后首次访日。
 
-根据测算，G20国家的碳排放总量占到了全球的80%。而各国现有的减排承诺，尚不足以达到2015年《巴黎气候协定》确立的全球升温不超过2摄氏度之目标。更为严格的气候保护目标，同样也是本周末开幕的苏格兰联合国气候峰会的核心议题。德国联邦环境部国务委员弗拉斯巴特(Jochen Flasbarth)透露，峰会前的谈判进行得非常艰难，中国、印度、俄罗斯等新兴工业国在化石燃料问题上和西方传统工业国还有着巨大分歧；按照当前趋势，很有可能在2030年前，全球升温幅度就会达到1.5摄氏度。
+2、[**日本等担忧美国采取“不先使用核武”政策**](https://china.kyodonews.net/news/2021/10/38c0a4a59b33.html)
 
-今年G20峰会的另一大议题是新冠疫情。在今年5月的“全球健康峰会”上，欧盟委员会主席冯德莱恩(Ursula von der Leyen)指出，今后如果再出现传染病疫情，停止重要防疫物资出口、阻断跨国供应链等现象绝对不能再现。联合国秘书长古特雷斯警告说，人类还远远没能战胜新冠疫情。脸书、亚马逊、谷歌等跨国互联网巨头的企业税问题，同样是本届峰会的拉锯重点。阿富汗的局势也在本届峰会的议程中。
+外交消息人士30日透露，有关美国拜登政府正在探讨的“不首先使用核武器”政策，日本和北大西洋公约组织（NATO）等身处美国“核保护伞”之下的盟友担心，不先使用核武政策将导致对拥核国家中国和俄罗斯的威慑力下降。
 
-俄罗斯总统普京、中共国家主席习近平都宣布仅以视频方式参会，不会亲赴罗马，理由则是当前疫情不适合跨国旅行。不过，外界分析人士指出，俄罗斯与西方国家的紧张关系很可能也是普京不去罗马的重要原因。而媒体之前报道的的拜登与习近平在罗马会晤的场面现在也宣告落空。
+3、[**“选举折扣”参加店创新高 期待拉动消费**](https://china.kyodonews.net/news/2021/10/e2d045879a53--.html)
 
-信息来源：
+据共同社30日消息，主打优惠划算的“选举折扣”服务在日本人气高涨。每逢国政选举和地方选举时都会在全国开展，31日的众院选举预计将有史上最多的2000多家店铺参加。届时期待能为停滞的地区经济注入活力。
 
-[事关重大议题 中俄领导人仅视讯参加G20峰会](https://www.dw.com/zh/%E4%BA%8B%E5%85%B3%E9%87%8D%E5%A4%A7%E8%AE%AE%E9%A2%98-%E4%B8%AD%E4%BF%84%E9%A2%86%E5%AF%BC%E4%BA%BA%E4%BB%85%E8%A7%86%E8%AE%AF%E5%8F%82%E5%8A%A0g20%E5%B3%B0%E4%BC%9A/a-59671670)
+4、[**众议院选举投票在即 投票率成关注焦点**](https://www3.nhk.or.jp/nhkworld/zh/news/330265/)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
+日本国会众议院选举将于31日周日迎来投票日。小选区及比例代表共1051人报名参选。本次是新冠疫情扩大以来，日本的首次全国规模国政选举，投票率成为关注焦点之一。上上次众院投票率为52.66%，是二战结束后投票率最低的一次。上次为53.68%，紧跟其后为第二低。
+
+5、[**ANA本财年预亏一千亿 拟裁员九千人**](https://china.kyodonews.net/news/2021/10/b2d6ffc396c3-ana-.html)
+
+ANA控股公司29日发布了截至2025年度末的5年期间裁员约9000人的计划。在新冠疫情导致旅客需求低迷长期持续的影响下，2021财年（2021年4月至2022年3月）合并财报净利润由此前预想的盈利35亿日元下调至亏损1000亿日元（约合人民币56亿元）。
+
+*编辑：东京樱花团 / 文小白*
+*发布：东京樱花团 / tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 

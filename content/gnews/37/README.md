@@ -2,62 +2,44 @@
 ---
 
 
-## 大药企对精神病患者注射血栓疫苗 心理健康组织叫好
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1628067/)
+## 唯真不破反洗脑系列 我什么都不信了之五——疫苗的狂欢
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1628209/)
 
-编译：Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2021/10/247-1.png)
+体育馆里人声鼎沸，1.8万人一起呐喊加油的场面快两年没见过。
+10月26日，温哥华加人冰球队（Vancouver Canucks）自疫情以来首次回到主场，在粉丝面前打现场赛。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/depression.jpeg)图片来源：newstarget.com
+是的。加拿大BC省的大部分地区取消了群聚限制。去看比赛，只要出示疫苗接种证明就行。球场里火热的气氛，让人瞬间产生错觉，以为一切回到从前。实际上，随着赛事越来越激烈，很多球迷除掉了口罩——太不方便了，既然周围所有人都已打了疫苗，该没事！
+我不知道会不会有人为此后悔。因为就在比赛开始前数小时，BC省卫生厅发布的最新数据显示，过去24小时有457宗新增个案。其中打过疫苗的占43.2%，打了两针仍然感染的有36%。
 
-## 大型制药公司现在针对精神病患者注射血栓，使精神疾病恶化——但是全国领先的心理健康倡导组织却对这种滥用行为表示赞赏。
+完全接种疫苗再得病，被称为突破性感染（breakthrough cases）。几个月前，省首席卫生官曾经说，这种情况非常罕见。你若问：“现在为何有这么多人染病？” 她回答：“因为接种率高，完成接种的人数多，所以突破性感染也就多了。”
 
-已经众所周知， Covid 疫苗会使精神分裂症、抑郁症和双相情感障碍等精神疾病恶化，几乎所有主要的精神健康倡导组织却都在为 CDC 的新目标——精神疾病患者喝彩。 来自十几个领先的国家组织的高层管理人员都在追逐精神病患者，向他们注射更多的神经毒素（数十亿个模拟病毒的刺突蛋白纳米粒子[spike protein nanoparticles](https://www.naturalnews.com/2021-09-16-covid-vaccines-devastating-long-term-effects.html))，众所周知，这些神经毒素会导致/加剧精神病、心肌炎、血栓和 其他致命的“副作用”和不良事件。
+这个解释，不管你信不信，我反正是不信的。
 
-据说，如果您已经患有抑郁症或精神分裂症，那么您感染 Covid-19 严重病例的风险就会更高，但完全没有科学、研究或临床试验来支持这一点。
+当温哥华人为自己的球队忘我助威之时，全省有85%的成人接种了两针疫苗。但于此同时，至少有23间养老院爆发群聚感染。温哥华隔壁Burnaby市中心的一间长期护理院里（long-term care centre）Willingdon Care Centre 的情况最严重。
 
-这听起来更像是优生学，就像希特勒最初想以“更善”的名义处决老年老人、精神病患者和所有自闭症儿童一样。 只是希特勒使用有毒气体，而不是有毒疫苗（通常是慢杀方法）。
+当地是华人聚居区，护理院里专门安排会讲广东话的工作人员。可见其中有不少华裔长者。到10月20日，一共95位院友中有79人感染，而疫情还在继续。
 
-美国国立卫生研究院 (NIH) 非常清楚，炎症会加剧严重的精神疾病，包括 Covid 血栓注射。
+卫生厅长一脸气急败坏地叫没打针的人赶紧去接种，说这样才能保护家人和长者。其实Burnaby 那间养老院几乎所有院友都打了两针，护工的完全接种率也超过九成。结果还在不停地感染，不停地死人。
 
-大多数严重的精神疾病 (SMI)，包括双相情感障碍、抑郁症和精神分裂症， [都与炎症直接相关](https://mental.news/)，这些对照试验和研究表明，饮食干预可以改善症状，而营养不足的加工食品摄入会导致全身炎症加剧。该研究由 NIH 发表，详细描述了炎症如何将精神疾病推向边缘，那么为什么疫苗行业和 CDC 将目标对准精神病患者？ 只有一个合乎逻辑的答案：减少人口。
+怎么办？同样在10月26日，BC省宣布要开始接种第三针，护理院里的院友是第一批。政府说，发现部分长者在接种两剂疫苗后，产生的抗体较弱，不能抵抗病毒。原来，爆发疫情是因为你的抗体不够，只要继续打针便可以解决问题。
 
-Covid 疫苗要么将数十亿个阻塞血液的朊病毒注入人体血液 (强生)，要么通过基因诱使您的细胞在血管系统中产生数十亿个有毒颗粒，并且永不停止生产毒细胞（来自辉瑞或莫德纳的 mRNA）。
+对此，长者们根本没有机会说话。第一，护理院现在不准探视。第二， 院友的平均年龄84岁，超过半数患有不同程度的痴呆症。换句话说，如何对待他们，全凭政府和护理工作者的良心。
 
-当查看来自遭受突然的新威胁生命状况的凝块注射受害者的统计数据时，严重的炎症是广泛明显的，例如失明、耳聋或患有[心肌炎](https://www.naturalnews.com/2021-08-22-no-case-of-covid-19-vaccine-myocarditis-is-mild.html)，并且这些心肌炎病例中的大多数发生在健康人群中（想想军人和青少年）， 据医生说，病情并不轻。
+那天，我忍不住跑去看。发现护理院由一排L型平房组成，大门关着。朝南一个房间的窗帘打开，可以看见里面有位女性长者坐在靠窗的轮椅上，垂着头，像是睡着了。那是双人房，另一张床空着，不知道原来住在那里的人去了哪里，是染病了吗？是去世了吗？都没人知道。院方什么也不说，而政府只在每周公布的表格里展示一个数字，死亡：12人。
 
-**CDC ****针对精神病患者的疫苗可增加抑郁症、精神分裂症、双相情感障碍**
+小结：在加拿大的公营医疗体系下，想去养老院的长者必须经过医生推介。多数有健康问题，不能料理自己的生活，或者无法获得家人的照顾，甚至没能力发出自己的声音。是否他们该因此成为最先被抛弃、被实验、被忘记的一群？
 
-当每个人都被要求戴上令人窒息的口罩时，真正的精神疾病“因素”开始飙升。 **Covid ****口罩会在滋生细菌的同时限制呼吸，从而限制氧气和营养物质流向身体和大脑，同时增加感染**** Covid ****病例的可能性**。然后大流行机器倾其所有，使用封锁、社会疏远和抗菌措施来进一步破坏自然免疫力，然后是疫苗。 接下来是加强针。堵塞血液的朊病毒越多，炎症越严重，精神疾病就越致命。这是CDC的计划吗？
+你、我也有老去的时候。
 
-您是否知道，精神分裂症是 Covid-19 导致死亡的第二大风险因素，仅次于年龄？ 根据疫苗行业及其骗子的说法，只需要“适度努力”来强迫精神病患者接种疫苗，这使他们很容易成为毒疫苗消灭的目标。
+【文中观点仅代表作者个人，与Gnews平台无关】
 
-这听起来根本不像是预防自杀，不是吗？ 它被称为“目标外展”作为伪装的活动名称。 以下是支持追逐精神病患者，并强迫他们接种毒剂以加剧他们当前的心理健康状况的 16 家最大组织的“[目标外展](https://mhanational.org/top-executives-sixteen-major-mental-health-organizations-applaud-cdc-adding-mental-illnesses-its)”短名单：
+作者：洛杉矶盘古农场 — 十月
+编审；洛杉矶盘古农场 — 心照
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-32.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-1-17.png)
-
-将您的真实新闻拨号调到[Pandemic.news](https://pandemic.news/2021-08-27-top-8-ways-americans-pollute-their-bodies-every-day.html) ，以随时了解 Covid 诈骗的设计陷阱。不需要科学家或医生就可以看到 Covid 疫苗、瑞德西韦Remdesivir、口罩和呼吸机正在加剧大流行的问题，它们在造成自己的大流行。
-
-**评论：** **“这是CDC的计划吗”？竟然和纳粹如出一辙？如果看不透CDC之流的猫腻，想想赵本山曾忽悠范伟瘸腿买拐，CDC就是这大忽悠！**
-
-文章内容来源链接：
-
-- [Pandemic.news][WHO insider exposes GAVI, Bill Gates for perpetrating coronavirus plandemic](https://www.pandemic.news/2021-03-04-who-insider-exposes-gavi-gates-perpetrating-plandemic.html)
-- [TruthWiki.org][CDC – Centers for Disease Control and Prevention](http://www.truthwiki.org/cdc-centers-for-disease-control-and-prevention/)
-- [NaturalNews][RIGGED worse than a ballot counting machine: CDC allowing hospitals to classify “fully vaccinated” deaths as “unvaccinated”](https://www.naturalnews.com/2021-10-03-cdc-hospitals-fully-vaccinated-deaths-unvaccinated.html)
-- [ZeroHedge][Sanjay Gupta Tucks Tail Back At CNN After Disastrous Rogan Interview](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
-- [MHAnational.org][Top Executives From Sixteen Major Mental Health Organizations Applaud CDC For Adding Mental Illnesses To Its List Of Underlying Medical Conditions Associated With Higher Risk For Severe COVID-19](https://mhanational.org/top-executives-sixteen-major-mental-health-organizations-applaud-cdc-adding-mental-illnesses-its)
-- [newstarget][Big Pharma now targeting the mentally ill with clot shots that WORSEN mental illness – nation’s leading mental health advocacy organizations applaud the abuse](https://www.newstarget.com/2021-10-28-big-pharma-targeting-mentally-ill-clot-shots.html)
-
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-2.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
