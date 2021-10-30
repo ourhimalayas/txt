@@ -2,48 +2,20 @@
 ---
 
 
-## 视频| 蔡总统：美对台的支持不仅限于卖武器
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1627298/)
+## 正道喜币
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1627374/)
 
-制作：香草山视频部
+韩国首尔天池农场—水滴石穿　校对/上传—无明逆流
+![](https://assets.gnews.org/wp-content/uploads/2021/10/c38e5f2e-2e93-42b4-b4e3-17588ad1002b.jpg)
+**共匪压喜币，
+喜币挺且直。
+要知喜币值，
+待到匪灭时**。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-
-
-
-
-那是否包括让现役美军人员来训练台湾的部队？
-
-是的 我们和美国有着广泛合作 目的在于增强我们的防御力
-
-有多少现役美军部署在台湾？
-
-比你们想象的要少
-
-国防部的记录显示美在台的军人数量从2018年的10人增长到今年年初的32人
-
-美国国务院请求更多的陆战队保卫非正式的台北大使馆
-
-
-
-*发稿：雪梨*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+**共匪救经济，
+经济病膏肓。
+何时有希望，
+喜币上市时**。
 
  
 
