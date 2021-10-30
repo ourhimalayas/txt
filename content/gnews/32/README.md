@@ -2,199 +2,63 @@
 ---
 
 
-## 流通量支付范围是决定喜马拉雅币价值的关键之三
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1627108/)
+## 一旦台湾有事格芯瞬间涨到三五千亿亿若开战将超过万亿
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1627154/)
 
-[https://gtv.org/video/id=617b9060adfd99590c30b0fd](https://gtv.org/video/id=617b9060adfd99590c30b0fd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ec2ee5f752ad447ca63501d5708798b6_副本.jpg)
+据[2021年10月29日 文贵大直播：格芯在美国上市的重大意义和其未来价值，格芯与数字货币紧密相连；喜币周一上市会带来什么样的改变；房地产会在明年5-7月爆雷，是中共制造的最大的噩梦](https://gtv.org/video/id=617be96f11d1862968fccc4b)时间点52：10——
 
-那么第三个我要告诉你们
-Y les digo el tercero
+**郭文贵先生：**T3——当他把T3技术公布的时候，它的股票一定是大涨的，T3它公布之日就是整个芯片产业全球的升级之时，也就是迎来世界上最关键的，就是我们今天所看到的5G、AI时代的最核心的。
 
-喜币第二个衡量(标准), 什么时候值钱
-La segunda medida (estándar) de la moneda de Himalaya, ¿cuándo valdrá la pena?
+而这个东西共产党就是在吹牛这攻克那攻克的，真的它连一个起码的马桶盖连圆珠笔芯都做不了，就连一个基本的科技它都没有，就像发射的神八、神九的，它在天上的科技，我昨天下午专门问了他们，他说他所有的芯片全都是我们生产的——所有的芯片！
 
-在三年后
-Después de tres años
+他说停止给他芯片，一切都得掉到地上来，而且在成都这样的地方要建厂，当年100亿美元，当时是国开行搞的，既不兑现合同，也不有任何想法去研发，而且国开行的这个钱里边还有人想吃回扣。做那个项目人现在几乎90%全进监狱了，你说中共怎么可能有新技术。
 
-但是喜币在上市后, 就一周以后上市后
-Pero una semana después que la moneda de Himalaya se publique
+那么T3公布以后的什么概念呢？它不仅是整个通讯事业，太空领域、军事领域，一下子中共就跟世界拉开了，它还开带火花塞的汽车呢，人家已经电子化的了，就这么差距这么简（单）。
 
-什么时候对你来讲会增长它的价值
-Para ti, cuándo será el aumento de su valor
+那么这次你能看到共产党整个急功近利、吹牛，你看到它跟世界的距离的本质是什么？共产党从来没想让中国人和这个国家长远地发展，Rachel你得想到这个问题，大家都能想到，它没想过说我长线投资，它没想到中国人经过研发然后拥有真正的技术——它没有！
 
-就是它的流通量
-Es su circulación
+它完全有机会在七哥给它安排的AMD在成都这个厂100亿美元，经过当年的计划，这个计划七哥是很清楚的，如果当时国开行不想跟张宏伟这样的专门搞女人，是不是？吃鲍鱼，它认真把这100亿美元投下去，不搞内部政治斗争，它现在一定是最起码有T7的芯片了。
 
-它到哪使用
-Hacia dónde se utilizará
+现在它不但失去这个，信誉全毁，所有人员都去了新加坡去打工去了，中国人才流失，这个国家吹的所有的牛都是对这个民族的扼杀，又走在了人类文明的后面去了，本来在前边，原来在最后插队，插队你插一插到前面了，最后又搞政治斗争，又跑后面去了。
 
-它到G-Fashion上买了个内裤, 它是G-Fashion
-Él compra un calzón en G-Fashion, él es G-Fashion
+那么T3的公布会让它看到中国所有的通信领域在世界上他逼着唯一一个像阿联酋这样的国家跟它友好的国家，没有办法，只能在美国、在世界发展——文明的国家发展。
 
-它买了一个卡是G卡
-Él compró una tarjeta G
+那么三星，你知道三星已经彻彻底底地离开了中国，三星的主席还有很大麻烦呢，因为内部的政治斗争和4个月以后的总统大选，但是三星内部已经很清楚，任何科技的东西不在中国发展，而且逐渐会最后到没有、收走。
 
-如果有跟G系列完全没关系的机构开始(接受)
-Si las organizaciones que no tienen nada que ver con la serie G empiezan a aceptar
+这七哥在这说是负责任的，如果下一个总统选上来的，不是亲北朝鲜的，90%可能是不是朝鲜的，因为金在寅（注疑似口误，似应为文在寅）是来自北朝鲜嘛，脱北的，那么是什么概念呢？三星会跟中共之间会更加地远离。
 
-有一个地方接受对它都是不一样的
-Si hay un sitio que acepte, él será diferente
+那么他现在习呢，就想着那我们去打台湾把台积电国有化，这个技术根本不是说眼前你拿到手就是你的，甚至愚蠢地要把台积电的技术和人才全弄到广东去，然后把福建人民给移到台湾去，它根本这个党有多无知！
 
-未来谁能把喜币作为当地国家代理权
-En un futuro, quién podrá utilizar a la moneda de Himalaya como agente nacional local
+兄弟姐妹们，你们但凡有一点脑子想一想，你怎么可能把这个厂给干掉以后你就真的拥有这技术呢？你真的把这一千多万人能弄到福建去，你就有真的台积电吗？它有任何的行动——对台湾的行动，兄弟姐妹们，这个格芯公司瞬间一定会涨到3500亿到5000亿，这不是我说的，这是投行评估的。——那如果台湾有事，台湾有事就3500亿到5000亿。
 
-和把喜币整个的喜支付
-Con el Himalaya pay y su moneda
+如果打台湾了，真把台积电给国有化了，那它绝对马上上万亿。人家不缺钱吧？格芯，不缺研发吧？生产占着全世界最好吧？又在文明和政治最稳定的地方吧？更重要的一旦战争开启，军事芯片肯定涨十倍百倍都有可能，最重要的是AI科技和5G科技的发展。
 
-记住, 喜支付是它所有的未来
-Recuerda, el Himalaya pay es todo su futuro
+然后往现在IBM最终会跟格芯达成和解，它已经基本上和解了，IBM的所有的未来的技术生产芯片只能AMD，它不可能自己搞。
 
-啥叫支付, 知道吗?
-¿Saben en qué consiste el pago?
+（以下暂略）
 
-就是你的子弹能打到什么地方
-Significa hacia dónde pueden ir tus balas
+撰稿：喜马拉雅的肉夹馍；
 
-喜币是把枪
-La moneda de Himalaya es una pistola
+审核：喜马拉雅的馍夹肉；
 
-喜币第一枪就打向了G-Fashion的内裤
-El primer disparo de la moneda de Himalaya golpeó hacia el calzón de G-Fashion
+校对：Maarago；
 
-第二枪打向了G-Club, 打了一张卡
-El segundo disparo se dirige hacia G-club, le dio a la tarjeta
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-证明子弹管用, 枪管用
-Esto comprueba que las balas y la pistola si sirven
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-全世界的所有的枪都是放在家里没试过
-Las pistolas de todo el mundo las tienen en la casa y nunca la han probado
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-所以说你说多少钱多少钱, 都你家的事儿
-Por eso es asunto tuyo si tu dices cuánto vale
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-不知道你到底能打鸟啊
-No sabes si puedes pegarle al pájaro
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-还有到底子弹管不管用啊
-Y si al fin las balas sirven
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-但是喜币第一枪G-Fashion内裤
-Pero el primer disparo de la moneda de Himalaya es el calzón de G-Fashion
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-第二枪G-Club
-El segundo es G-club
-
-如果战友们代理了这个
-Si los compañeros luchadores representan esto
-
-哎唷, 我能拿着枪
-Ay, puedo tener la pistola
-
-未来我能代表你打出一个德国宝马回来
-En el futuro puedo representarte para cazar un BMW alemán
-
-你是德国代理权
-Eres un agente alemán
-
-你将拥有宝马
-Obtendrás un BMW
-
-十个宝马都可能
-Posiblemente, diez de ellos
-
-为啥我说你要是能买宝马
-Por qué digo que si compras un BMW
-
-宝马接受了喜币支付
-BMW aceptó el pago de Himalaya
-
-我们就证明了
-Entonces comprobamos que
-
-我这个子弹和枪能打宝马
-Esta bala y pistola puede golpear al BMW
-
-那在日本的战友
-Y los compañeros luchadores que están en Japón
-
-如果你能把它在日本说
-Si puedes decir así como
-像我们日本的二尊
-Nuestros dos personajes que están en Japón
-
-我能把日本的某酒店系统签下来
-Puedo firmar el contrato de algún sistema de un hotel en Japón
-
-接受喜支付, 你就打下了日本的所有酒店
-Y que acepte el Himalaya pay, entonces ya conquistaste a todos los hoteles de Japón
-
-如果Rachel能在加拿大
-Si Rachel puede
-
-把那个最大的全世界的叫牛郎网能打下来
-Conquistar a la red más grande de Money Boy
-
-(接受)牛郎介绍, 可以支付喜币
-(aceptar) la presentación de Money Boy que pague en moneda de Himalaya
-
-你就打下了牛郎网
-Entonces logras conquistar a esta red
-
-猫本你听懂我的意思了吗
-Mao Ben, ¿puedes entender lo que digo?
-
-你要在澳大利亚能让它买袋鼠皮, 你就能打下袋鼠皮
-Si puedes hacer que compre la piel del canguro, entonces logras dominarlo
-
-这个所有的币, 它是颗子弹
-Todas las monedas son como una bala
-
-它这个币的生态圈就是核心
-El ecosistema de esta moneda es su núcleo
-
-那么当你上市后发现无数个猎物回来的时候
-Entonces cuando ya salga al mercado, en ese momento te darás cuenta de las incontables presas que regresan
-
-你就知道它一定会大升值的
-Sabras que tendrá un gran aumento de valor
-
-比例是多少钱我可以告诉你
-Puedo decirte cuál es la proporción
-
-我有1块钱的交易
-Tengo una transacción por 1 dólar
-
-它一定是1000倍. 而不是20倍, 30倍
-Él será mil veces más y no veinte o treinta
-
-因为它是货币, 它会成为货币
-Porque él es una moneda, se convertirá en una moneda
-
-它不是法币, 它成为货币了
-No es dinero por decreto, se ha convertido en moneda
-
-———————————————————
-
-**原视频网址**： [https://twitter.com/se1y7cblljselva/status/1451875661442736130?s=24](https://twitter.com/se1y7cblljselva/status/1451875661442736130?s=24)
-
-日期：10/28/2021
-原视频标题：
-El alcance del pago de circulación es la tercera clave para determinar el valor de la moneda de Himalaya
-原视频日期：10/23/2021
-任务编号：KC206（2646）
-视频时间段：0:00-2:20
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
