@@ -2,26 +2,30 @@
 ---
 
 
-## 借新还旧掩盖不良！民生信托被监管认定违规
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1629162/)
+## 有声|欧洲议会将组团访台
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1629217/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+配音：香草山美食部 – 玫瑰园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/借新还旧掩盖不良！民生信托被监管认定违规.png)[图片来源](https://www.msxt.com/)
+10月27日的相关报道提及，由欧洲议会“外国干预欧盟民主程序特别委员会”多名议员组成的代表团，计划将于下月初访问台湾。
 
-10月29日，北京银保监局下发《举报调查意见书》，认定民生信托在“至信1071号”的推介过程中，未如实向投资者说明抵押物的评估情况、披露信托资金的实际投资范围、充分揭示信托项目的风险情况，违反多项规定，已责令民生信托进行整改问责，后续将依法采取进一步监管措施。
+台湾外交部发言人对欧盟议会代表此次访台表示欢迎。台湾世代智库执行长表示，欧盟还不熟悉中共的干扰信息，必须快速对此作出反应。而台湾是亚洲民主国家应对极权国家干预非常好的例子。据悉，本次欧盟访问团的目的之一，就是要向台湾学习如何面对试图干预或者影响民主进程的势力。
 
-此前已有媒体刊发《民生信托13亿元产品爆雷 被指信披违规、接盘不良资产》一文对此事进行过前期报道，其中指出，2020年6月28日，民生信托与“至信1071号”融资方的关联方因兑付问题发生法律纠纷开庭，在短短2个月后即为融资方募集新产品即“至信1071号”，并且向投资者隐瞒了这一事项。彼时就有业内人士指出“涉嫌借新还旧掩盖不良”，此次《举报调查意见书》坐实这一情况，北京银保监局指出，民生信托未标明“至信1071号”实际用于归还交易对手关联方在民生信托的信托贷款。
+欧盟访台代表团的领队是法国议员莱克斯曼。今年三月，欧盟27个成员国因新疆维吾尔族人遭受大规模迫害对中共国实施制裁，出于报复，中共宣布对包括莱克斯曼在内的10名欧盟人士及4个实体实施发制裁。
 
-郭文贵先生多次爆料民生信托黑幕，包括虚假评估、接盘不良资产等。当前，习对于金融领域的清洗正在进入深水区，同时鉴于信托行业与房地产的深度绑定，中共信托行业的问题是该到揭盖的时候了。
+文字版原文：[欧洲议会将组团访台](https://gnews.org/zh-hans/1623365/)
 
-信息来源：
+音频处理：喜山必胜Maverick
 
-[北京银保监局调查认定民生信托违规，旗下产品涉借新还旧掩盖不良\_中国经济网——国家经济门户](http://finance.ce.cn/bank12/scroll/202110/29/t20211029_37042334.shtml)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

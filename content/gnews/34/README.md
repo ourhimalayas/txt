@@ -2,25 +2,34 @@
 ---
 
 
-## 格芯上市意义深远，未来潜力巨大
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628548/)
+## 美排名第一的梅奥诊所雇员抗议疫苗强制
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628554/)
 
-作者：美东香草山 四季
+作者：美东香草山佛教部 文一
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+据报道，10月25日，数百人在美国明尼苏达州罗切斯特市中心游行。他们高喊 “打倒梅奥”并唱着爱国歌曲，用以抗议梅奥诊所实行的强制新冠疫苗接种政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.30AM-PICTURES-123456-图片备用.004.jpeg)
+梅奥诊所拥有约七万三千名员工，是美国排名第一的医院，并连续27年浮动于榜首的位置，且该院在器官和血液移植手术方面享有盛誉。
 
+据了解，此次抗议活动是由梅奥诊所的一小批工作人员在线发起的。随后短短几小时内，报名参加抗议的人数迅速从十几人增至数百人。 目前，这一针对梅奥诊所的抗议活动已经蔓延至全美多地，包括威斯康星州的拉克罗斯市和亚利桑那州的凤凰城。至于抗议活动的参与人员，则多为因拒绝接种新冠疫苗而被解雇的员工。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.30AM-PICTURES-123456-图片备用.001.jpeg)
+线上活动方面，梅奥诊所的员工于盖特平台上传了抨击强制新冠疫苗接种政策的视频，同时他们也发表盖文，号召更多的民众抗议新冠疫苗政策，为自由而战。
 
-在10月29日的大直播中，郭文贵先生高度评价了昨天在美国上市的全球领先半导体代工厂格芯公司。 郭先生预言， T3技术将使格芯公司的业务范围扩大至全球芯片产业，因其是5G及AI时代的核心所在。同时，郭先生补充，一旦T3技术面世，中共在通信、太空和军事等领域的技术将彻底落后于世界。 文贵先生表示，芯片对世界的未来极其重要，它更和新中国联邦未来的金融系统、数字区块链技术息息相关。因为当我们有了芯片，我们就有了更多的话语权。为此，郭先生也提到，未来将增资格芯公司，成为其第三大股东。彼时，这个公司也将属于爆料革命的战友们。 文贵先生还指出，中共对文明的扼杀将导致其自身的失败，但也会给格芯带来难得的历史机遇。倘若中共胆敢侵犯台湾，格芯必将与中共抗衡。因此，格芯公司未来的潜力巨大，或将成为万亿级别的企业。 格芯上市，意义深远。
+参考链接：
 
-参考链接：[2021年10月29日 文贵大直播：格芯在美国上市的重大意义和其未来价值，….](https://gtv.org/video/id=617be96f11d1862968fccc4b)
+1. [8,000 Mayo Clinic Employees to be Fired for Refusing COVID-19 Jab](https://gettr.com/post/pfa29w4a5e)
+2. [Crowd protests Mayo Clinic requiring employees to be vaccinated](https://news.yahoo.com/crowd-protests-mayo-clinic-requiring-000200362.html)
+3. [Mayo Clinic](https://en.m.wikipedia.org/wiki/Mayo_Clinic)
+4. [Protesters outside Mayo Clinic La Crosse say they want a choice](https://www.news8000.com/protesters-outside-mayo-clinic-la-crosse-say-they-want-a-choice/)
+5. [Mayo Clinic employees are protesting the vaccine mandates in Arizona!](https://gettr.com/comment/car5t587e7)
+6. [Mayo Employee SCORCHES Mandates in LIVE Interview From Clinic](https://gettr.com/post/pf4dvl9549)
+
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-总编：Zion文恩
-编辑：Irene木木
+编辑/总编：Irene木木
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
@@ -31,6 +40,8 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
 
  
 

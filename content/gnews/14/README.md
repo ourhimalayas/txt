@@ -2,29 +2,27 @@
 ---
 
 
-## 澳大利亚维州官员拒绝公布，病毒死亡案例的疫苗接种情况
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628751/)
+## 中共驻澳大使成竞业即将离任
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628788/)
 
-作者：澳喜农场 – 童媚
+作者：英国喜庄园 – I770775
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在周四28日的报告中，维多利亚州死亡人数激增，这是该州目前，每日死亡人数最多的一天。而该州卫生部门拒绝公布，25例新增冠状病毒死亡病例的疫苗接种情况。
+多家外媒近日报道，中共国驻澳大利亚大使成竞业即将离任，澳大利亚外长佩恩28日在国会也确认了这一消息。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-19.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-25.jpeg)
 
-当被问及，这些死亡病例是否接种过疫苗时，副首席卫生官Ben Cowie说，不会对此进行报告。维州卫生当局已宣布，他们不会再报告，新南威尔士州几个月来，每天都发布的病毒详情。
+对于中共大使即将离任的消息，佩恩表现出很不在乎，很不尊重甚至冷漠的态度。佩恩说，“如果他还没离开的话，也是即将离开。”中共在继续指责澳方此行为是外交失礼的同时，也不得不承认中澳关系已经达到历史冰点，从当初的全面战略伙伴关系，降至目前几乎没有对话通道的极其困难的局面。
 
-这位副首席卫生官还强调，在过去7天内,检测呈阳性的维州病例中，有85% 的人没有完全接种疫苗。而在重症监护室内，有80%的人完全没有接种疫苗。他的结论更可笑，疫苗接种对病情严重的，以及生命危急的重症病例，其影响是明显的。
+国际间对此次离任给与高度关注，媒体评论普遍认为，中国对澳的经济胁迫，是造成澳中两国关系急剧恶化的原因，“澳中关系短期内几乎没有修复的迹象”。
 
-大流行开始以来，该州的死亡人数达到 1090 人，本轮病毒爆发期间，死亡人数达到 270 人。周四对外公布了1923例新的确诊病例。现在该州至少77%的16岁及以上人口接种了疫苗。
-
-现实是，随着疫苗接种比例的上升，病毒感染非但没有减少，确诊人数反而节节攀升。频繁响彻在街头巷尾的救护车警笛声，无时无刻不提醒着我们，应该深刻反思，政府对于病毒的防疫措施，和强制接种疫苗，是否真的是为了人民的利益。对于跃跃欲试的“加强针”，又有多少人能清醒地面对。
-
-参考链接：[维州官员拒绝公布病毒死亡案例的疫苗接种情况](https://gnews.org/zh-hans/1622751/)
+参考链接：
+1）[62岁中国驻澳大利亚大使成竞业即将离任](https://www.cqcb.com/headline/2021-10-28/4559301_pc.html)
+2）[中国大使离任 澳外长表态冷漠](https://www.thepaper.cn/newsDetail_forward_15128139)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-总编：Kathy文艺
-编辑：Zion文恩
+总编：Irene木木
+编辑：山本不惑
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -33,7 +31,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

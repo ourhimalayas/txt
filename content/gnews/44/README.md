@@ -2,60 +2,28 @@
 ---
 
 
-## 紐西蘭財經G樂部
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1628435/)
+## 事关重大议题 中俄领导人仅视讯参加G20峰会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1628439/)
 
-2021年10月29日:財經新聞整理
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-1-10-400x225.jpg)
-提綱：
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-149.jpg)[图片来源](https://www.google.com/search?q=G20%E7%BD%97%E9%A9%AC%E5%B3%B0%E4%BC%9A&amp;tbm=isch&amp;ved=2ahUKEwiL5s_-i_LzAhXBfHAKHWt_CI0Q2-cCegQIABAA&amp;oq=G20%E7%BD%97%E9%A9%AC%E5%B3%B0%E4%BC%9A&amp;gs_lcp=CgNpbWcQAzIHCAAQgAQQDDIGCAAQDBAYMgYIABAMEBgyBggAEAwQGDIGCAAQDBAYMgYIABAMEBgyBggAEAwQGDIGCAAQDBAYMgYIABAMEBgyBggAEAwQGDoHCCMQ7wMQJzoFCAAQgAQ6BAgAEBhQuQpY9CBgjSNoAHAAeACAAdQFiAHKCJIBBzAuMi42LTGYAQCgAQGqAQtnd3Mtd2l6LWltZ8ABAQ&amp;sclient=img&amp;ei=3DR9YYuICMH5wQPr_qHoCA&amp;bih=625&amp;biw=1366&amp;rlz=1C1YKST_enUS900US901&amp;hl=zh-CN#imgrc=uwhIdJ-XOpVXfM)
+本年度在罗马举行的二十国集团峰会，议程包括气候保护、跨国企业税、新冠疫情等重大话题。而大国之间的地缘政治较量，也对此次峰会构成了重大影响。
 
-1、Facebook宣佈公司改名為「Meta」 聚焦於虛擬現實
+今年峰会的主旨是“人民、星球、繁荣”。二十个工业国的高官在此前几个月已经做了大量的准备工作，本周末的峰会则轮到了各国最高领导人来拍板决定重大议题。
 
-2、數字人民幣將在第四屆進博會上試點應用
+根据测算，G20国家的碳排放总量占到了全球的80%。而各国现有的减排承诺，尚不足以达到2015年《巴黎气候协定》确立的全球升温不超过2摄氏度之目标。更为严格的气候保护目标，同样也是本周末开幕的苏格兰联合国气候峰会的核心议题。德国联邦环境部国务委员弗拉斯巴特(Jochen Flasbarth)透露，峰会前的谈判进行得非常艰难，中国、印度、俄罗斯等新兴工业国在化石燃料问题上和西方传统工业国还有着巨大分歧；按照当前趋势，很有可能在2030年前，全球升温幅度就会达到1.5摄氏度。
 
-3、三星電子最終覈實第三季營業利潤同比增28.04%
+今年G20峰会的另一大议题是新冠疫情。在今年5月的“全球健康峰会”上，欧盟委员会主席冯德莱恩(Ursula von der Leyen)指出，今后如果再出现传染病疫情，停止重要防疫物资出口、阻断跨国供应链等现象绝对不能再现。联合国秘书长古特雷斯警告说，人类还远远没能战胜新冠疫情。脸书、亚马逊、谷歌等跨国互联网巨头的企业税问题，同样是本届峰会的拉锯重点。阿富汗的局势也在本届峰会的议程中。
 
-4、泛海控股本金餘額25.65億港元票據違約，抵押物已被接管
+俄罗斯总统普京、中共国家主席习近平都宣布仅以视频方式参会，不会亲赴罗马，理由则是当前疫情不适合跨国旅行。不过，外界分析人士指出，俄罗斯与西方国家的紧张关系很可能也是普京不去罗马的重要原因。而媒体之前报道的的拜登与习近平在罗马会晤的场面现在也宣告落空。
 
-5、中共國債券重大事件
+信息来源：
 
-正文
+[事关重大议题 中俄领导人仅视讯参加G20峰会](https://www.dw.com/zh/%E4%BA%8B%E5%85%B3%E9%87%8D%E5%A4%A7%E8%AE%AE%E9%A2%98-%E4%B8%AD%E4%BF%84%E9%A2%86%E5%AF%BC%E4%BA%BA%E4%BB%85%E8%A7%86%E8%AE%AF%E5%8F%82%E5%8A%A0g20%E5%B3%B0%E4%BC%9A/a-59671670)
 
-1、Facebook宣佈公司改名為「Meta」 聚焦於虛擬現實
-
-路透10月28日 – 社交媒體巨頭FacebookFB.O週四表示，現在公司改名為Meta，聚焦於建立「元宇宙(metaverse)」，即一個共享的虛擬環境，押注這將是移動互聯網的後繼發展趨勢。
-
-Facebook更名的時機，正值立法者與監管者對這家全球最大社交媒體公司的市場力量、演算法決策和濫用管理權提出批評。
-
-Facebook首席執行官扎克伯格在該公司的虛擬和增強現實直播會議上表示，新名稱反映其致力於元宇宙的投資工作，而不是其同名的社交媒體服務，後者將繼續被稱為Facebook。
-
-[參考鏈接](https://cn.reuters.com/article/facebook-rename-meta-1029-idCNKBS2HJ03K?il=0)：
-
-2、數字人民幣將在第四屆進博會上試點應用
-
-10月28日新浪財經報道：第四屆進博會將於11月5日到10日在上海舉辦，記從中共國國際進口博覽局瞭解到，數字人民幣將在本屆進博會上試點應用。
-
-今年，中共國國際進口博覽局與中國銀行將全力推進數字人民幣與進博會的特色場景對接，拓展數字人民幣的試點應用，進博會現場多場景多點位都將有數字人民幣App的二維碼，各類參展參會人員可以使用中共國境內的手機掃描註冊，用數字人民幣進行支付。
-
-[參考鏈接](https://finance.sina.com.cn/china/gncj/2021-10-28/doc-iktzqtyu4093350.shtml?cre=tianyi&amp;mod=pcpager_inter&amp;loc=33&amp;r=0&amp;rfunc=54&amp;tj=cxvertical_pc_pager_spt&amp;tr=174&amp;wm=3049_0012_a111)：
-
-3、三星電子最終覈實第三季營業利潤同比增28.04%
-
-韓聯社首爾10月28日電 三星電子28日發佈業績報告，最終覈實公司今年第三季度營業利潤為15.82萬億韓元（約合人民幣863.3億元），同比增加28.04%。銷售額為73.98萬億韓元，同比增加10.48%，創下單季最高紀錄。
-
-[參考鏈接](https://cn.yna.co.kr/view/MYH20211028014100881)：
-
-財經G評 ：三星電子、三星重工堅定關閉其在中共國工廠後，完成了全部資產撤出，第三季利潤就大增28%！日資、美資也是在東南亞和印度開設自己的生產基地和供應鏈，跨國企業更具備政治敏感！不跟CCP合作的企業都能站著賺錢了，還在跟CCP勾兌這些企業都會被面臨最大政治風險和CCP操縱的民粹主義風險，這些企業在中共國是跪著賺錢，最後可能命都沒了！跟著共產黨，走進火葬場！
-
-4、泛海控股本金餘額25.65億港元票據違約，抵押物已被接管
-
-10月28日，泛海控股（000046.SZ）發佈關於境外附屬公司債務相關情況的公告。根據公告內容顯示，泛海控股在境外有兩筆本金餘額總計25.65億港元的債務違約。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-1-13.jpg)
-[參考鏈接](https://finance.sina.com.cn/tech/2021-10-28/doc-iktzqtyu4084720.shtml)：
-
-審核校對：Barry Jack
-上傳排版：F
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

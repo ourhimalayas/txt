@@ -2,23 +2,25 @@
 ---
 
 
-## 强制疫苗令后果显现，纽约市垃圾遍地
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628745/)
+## 疫苗后，台湾航空机组员突发性耳聋 捷克年轻人听力问题暴增
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628766/)
 
-作者：纽约香草山农场- 四季
+作者：台湾宝岛农场
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-21.jpeg)
+台湾媒体报道，8月10日有航空业机组人员表示，在7月20日接种完第二剂莫德纳疫苗后，隔天耳朵竟然一边耳鸣、一边耳聋，治疗一个月都没有好转。对此，医生表示：不排除疫苗罕见副作用。又外媒于10月21日指出，捷克境内年轻人突发耳鸣等听力问题数量剧增，不排除与疫苗有关联性。
 
-由于疫苗强制令实施，纽约市没有接种疫苗的环卫工人，将在10月29日的最后期限面临解雇。环卫工人对被迫接受疫苗强制令，感到十分愤怒，他们正在减慢工作效率，以示抗议。纽约市有的地区，已经是垃圾遍地。环卫工人工会负责人表示，工会支持环卫工人的抗议行动。 45%的消防员和25%的警察，也因为同样的原因，面临解雇。纽约将面临消防员、环卫工人和警察严重短缺的问题，同时，部分消防局会因缺少消防员而关闭，救护车也会减少。 纽约市市长白思豪在10月20日，宣布对超过10万雇员，包括警察、消防员在内的所有市政雇员，实施疫苗强制令后，纽约市最大的警察工会–警察福利协会，已经向市政府提起法律诉讼。10月27日，纽约市消防员工会负责人表示，希望消防员能继续工作，不管有没有打疫苗。并说，警察工会将继续在法庭上与该强制令作斗争。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-43.jpeg)
 
-参考链接：
-1) [Garbage Piling Up Everywhere, 45% of Firemen and 25% of Police Facing Termination Friday – This Is Democrat De Blasio’s New York City](https://www.thegatewaypundit.com/2021/10/garbage-piling-everywhere-45-firemen-25-police-facing-termination-friday-democrat-de-blasios-new-york-city/)
-2) [NYPD’s Largest Union Plans to Sue City Over COVID Vaccine Mandate](https://www.newsweek.com/nypds-largest-union-plans-sue-city-over-covid-vaccine-mandate-1640933?amp=1&amp;utm_medium=Social&amp;utm_source=Twitter&amp;__twitter_impression=true)
+疫苗副作用除常见的血栓、心肌炎、心包炎、发烧、倦怠等，而鼻喉科方面也存在罕见特殊副作用。台媒报导，突发性耳聋、颜面神经麻痹，也都出现过相关病例。台湾基层医疗协会理事长林应然分析，目前虽没有很明确的统计报告，如果免疫系统启动时，误伤及听神经系统，有可能产生耳鸣、耳聋的问题。
+
+台湾卫生福利部于10月25日发布了新冠疫苗不良事件通报摘要报告，当中表示，截至10月20日，台湾共施打两千零九十四万八千五百二十六剂新冠疫苗，共接获疫苗不良事件通报一万零两百一十八件，其中有九百三十二例死亡，占比9.12%。郭先生明确指出，疫苗后的不良症状是偶发，真正的疫苗灾难还没有开始。
+
+参考链接：[COVID-19最新情报｜疫苗后，台湾航空机组员突发性耳聋，捷克年轻人听力问题暴增](https://gnews.org/zh-hans/1622707/)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-总编：Irene木木
-编辑：Ivy001
+总编：Zion文恩
+编辑：DM, Irene木木
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
