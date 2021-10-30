@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/30/2021 12:39 AM (UTC)`
+
+10/29/2021 Miles Guo: The collapse of the CCP’s real estate financing will happen from May to July next year; what scares the financial sector the most is that real estate developers such as Sunac and Fantasia lack the willingness to repay; Li Ka-shing is selling the assets and real estates under Hutchison Whampoa, and this will lead to a financial disaster at home and abroad, and no one will pay for the insurance bought by the Chinese Lao Baixing<br/><br/>10/29/2021 文贵直播：中共房地产将于明年5月到7月发生融资暴雷；让金融界最恐惧的是融创、花样年等房地产商无还款意愿；李嘉诚正在卖和记黄埔名下的房产和产业，这将导致国内外的金融灾难，中国老百姓买的保险将无人赔付<br/>
+![img](https://media.gettr.com/group13/getter/2021/10/30/00/39/b1f1df7c-eae8-1b92-f52d-20037ca0c60c/out.jpg)
+
+---
+
 `@miles 10/29/2021 11:50 PM (UTC)`
 
 10/29/2021 Miles Guo: The CCP’s internal struggles, invasion of Taiwan, imposing property tax, genocide, and its imminent financial collapse will eventually led the Chinese people to take it down<br/><br/>10/29/2021 文贵直播：中共的内斗、打台湾、强推房产税、搞种族大屠杀和面临的金融崩溃终将导致中国人将其消灭<br/>
@@ -300,13 +307,6 @@ https://wabcradio.com/episode/uncovering-the-truth-10-24-2021/   Listen to our l
 
 The relationship analysis of the characters in SPAC that merged with Trump media
 ![img](https://media.gettr.com/group4/getter/2021/10/25/05/d1c00c19-a782-d10f-8fb8-5fc40c68e6e0/3063b664ec2a92930dc150bbf02de565.jpg)
-
----
-
-`@miles 10/25/2021 4:14 AM (UTC)`
-
-10/24/2021 Miles Guo: The CCP lured President Trump into the trap of stock price manipulation and fraud in an attempt to terminate his political career and to even send his whole family to jail. We shall reveal the evil deeds of the CCP, wake up all walks of life in America, and save President Trump rather than criticize him<br/><br/>10/24/2021 文贵直播：中共诱骗川普总统掉入操纵股价和欺诈的陷阱，从而终结其政治生涯，甚至害其全家锒铛入狱；我们要揭发中共恶行、唤醒美国各界，要拯救川普总统而非批评。<br/>
-![img](https://media.gettr.com/group14/getter/2021/10/25/04/14/74493de9-5710-293c-e4a6-1304cc28ee0a/out.jpg)
 
 ---
 
