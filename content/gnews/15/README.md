@@ -2,66 +2,28 @@
 ---
 
 
-## 澳大利亚正在努力实现80%的疫苗接种目标
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1627797/)
+## 中共高超音速武器发展速度令美军官僚厌烦官僚体制
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1627964/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 撰稿：彩虹       
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/rk_astrazeneca-australia_120421.jpg)
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-565.png)图片来源：纽约邮报
+10月29日，《新闻极限》发表文章，称参谋长联席会议副主席约翰·海滕（John Hyten）将军说，中共军队的作战能力正以“惊人”的速度发展，但是，美国军队却一直受到官僚主义的令人无语的阻挠。
 
+海滕是美国排名第二的军官，负责监督所有军事採购的「联合需求监督委员会」（JROC），定于下个月退休。
 
+据CNN报道，周四，在国防作家小组圆桌会议上，海滕表示：“在过去5年或可能更长的时间里，美国完成了9次音速飞弹测试。与此同时，中国却已做了数百次音速导弹测试，个位数对上百位数不是一个好状况。这并不意味着我们在高超音速技术的发展进程不快，只能说我们的发展方法是根本不同的”。
 
-图片来源：straitstimes.com
+但是，另据军事专家指出，高超音速武器技术如果成型，中共可将核弹头送至南极上空，并绕过北半球的美国反导弹系统。
 
+而《华盛顿观察家报》则引用海滕的话说：“我们将中国称为步步紧逼的威胁，这是一个有用的术语。因为中共国（军力）发展速度惊人，如果我们任其发展，那么中共国军力前进的速度将超过俄罗斯和美国，这是即将到来的事情，所以我们必须有所作为。不仅仅是美国需要行动，我们的盟友也需要，因为（高超音速飞弹）才是真正改变游戏规则的东西。如果只是美国单打独斗，那么不出五年就会有问题。但如果是美国和盟友一起努力，我认为我们还能够抵挡一段时间。”
 
-#### 编译：小红帽
+这位美国军队官僚者对国防部表达了极度不满，他说：“尽管我们在某些方面取得了进展，但国防部的官僚主义导致了严重阻碍。如果我们想的话，我们可以走的很快，但我们设置的官僚机构实在是太令人无语了。”
 
-至今，澳大利亚16岁以上76.8%的人已经完全接种中共病毒（COVID-19）疫苗，其中88.1%的人接种了第一剂疫苗。
+**新闻来源**
 
-这意味着澳大利亚全国距离实现这一重要里程碑只有几天的时间。
-
-全科医生、药房和国营中心——包括免下车诊所——都在与阿斯利康、辉瑞和莫德纳公司合作进行疫苗接种。
-
-以下是根据澳大利亚政府最新的州和领地所公布的疫苗接种数据。数字适用于10月29日公布的符合接种疫苗条件的成年人。
-
-**新南威尔士：**
-
-新南威尔士州93.5%的人接种过一剂疫苗，而87.5%的人完全接种了疫苗。
-
-**维多利亚：**
-
-维多利亚州91.6%的人接种过一剂疫苗，而79.7%的人完全接种了疫苗。
-
-**昆士兰：**
-
-昆士兰州77.4%的人接种过一剂疫苗，而63.5%的人完全接种了疫苗。
-
-**澳大利亚西部：**
-
-西澳大利亚州78.3%的人接种过一剂疫苗，而62.6%的人完全接种了疫苗。
-
-**澳大利亚首都直辖区：**
-
-首都领地超过95%的人接种过一剂疫苗，而91.9%的人完全接种了疫苗，属全国最高地区。
-
-**北方领土：**
-
-北领地76.2%的人接种过一剂疫苗，而63.3%的人已完全接种疫苗。
-
-**塔斯马尼亚：**
-
-塔斯马尼亚州88.9%的人接种过一剂疫苗，而74.4%的人已完全接种疫苗。
-
-**参考新闻：**[Coronavirus vaccine rollout Australia: State by state guide to Australia’s current vaccination rates | Explainer (9news.com.au)](https://www.9news.com.au/national/coronavirus-vaccine-rollout-australia-state-by-state-guide-covid19-vaccination-rates-single-dose-double-doses-explainer/abacde8f-d35e-45ee-83bc-069ede212ecf)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Gen. Hyten: ‘Hundreds’ of Hypersonic Tests for China Compared to 9 for US](https://www.newsmax.com/newsfront/hyten-china-hypersonic-missiles/2021/10/29/id/1042524/)
 
  
 
