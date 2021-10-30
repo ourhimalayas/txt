@@ -2,33 +2,22 @@
 ---
 
 
-## 两党参议员推出国防法案 外交抵制北京冬奥会
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1624930/)
+## 两辆列车中断，疫情再度蔓延
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1625824/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Unknown-9.jpg)两党参议员推出国防法案 外交抵制北京冬奥会 网络图片
-据美国之音10月29日报道，离北京冬奥会开幕不到一百天之际，美国两党参议员28日对年度国防政策法案提出修正案，呼吁对中共国主办的冬季奥运会实行外交抵制。众议院议长、民主党人南希·佩洛西也呼吁外交抵制。
+#### 撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/32-5.jpg)[图片来源](https://sichuan.scol.com.cn/ggxw/202108/58249709.html)
+10月29日中国经济报报道，山东省济南市卫健委发布通报称，10月28日下午15:20，济南市接到铁路部门报告，G14次（上海至北京南）列车一名乘务人员被判定为新冠肺炎确诊病例的密切接触者。北京铁路局已要求该列车立即中断行程，停靠济南西站后，暂时不开车门，并对相关人员进行管控。目前，该车次所有密接人员（1人）及次密接人员（211人）共计212人已全部进行管控。
 
-美国国务院已将中共政府对新疆维吾尔穆斯林的打压定性为“种族灭绝”。有国会议员呼吁全面抵制北京冬奥会或者改换冬奥会地点，并抨击赞助北京冬奥会的公司与中共同流合污。不过，该修正案只是要求美国政府实施外交抵制，但允许美国政府向运动员以及美国奥林匹克与残疾人奥林匹克委员会及其雇员和承包商提供资金。
+10月28日下午，河北省沧州市接到铁路部门报告，G108次列车一名乘务人员被判定为外地新冠肺炎确诊病例的密切接触者。北京铁路局要求该列车立即中断行程，停靠沧州西站后，对相关人员进行管控。G108次列车由嘉兴南站开往北京南站，沿途停靠上海虹桥、南京南、沧州西等站。该车次所有密接人员（1人）及次密接人员（133人）共计134人已经全部进行管控。
 
-各国常派官方代表团出席奥运会开幕式。目前尚不清楚外交代表团将在多大程度上获准出席本届北京冬奥会。中共的种族灭绝、闭关锁国政策最终将自己玩成了国际上的孤家寡人，遭到了各国的抵制。中共以邪恶起家，对内祸国殃民、对外侵略扩张，最终必会死于邪恶。
+从新闻中可以看出，两辆列车均是因乘务人员为密接者，列车员接触全车乘客，怎么判定是在哪里遇上的谁？他们又是在哪里被密接？这些都是未知，等待着下一个区域防控隔离，中共新闻和病毒一样总是扑朔迷离。
 
-新闻参考链接：[https://www.voachinese.com/a/us-senators-propose-adding-boycott-of-china-winter-olympics-to-defense-bill-20211028/6289881.html](https://www.voachinese.com/a/us-senators-propose-adding-boycott-of-china-winter-olympics-to-defense-bill-20211028/6289881.html)
+消息来源：[两趟进京列车中断行程！多人集中隔离](https://ml.mbd.baidu.com/r/vvAjYMTl8Q?f=cp&amp;rs=3890706542&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=eabf48d29be96824)
 
-* * *
-
-免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

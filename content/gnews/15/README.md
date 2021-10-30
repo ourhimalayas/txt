@@ -2,118 +2,34 @@
 ---
 
 
-## 吴征在2019年就被美国FBI刑事调查吴征现在是罪上加罪
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1626981/)
+## 日本要闻汇编 10月29日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1626983/)
 
-[https://gtv.org/video/id=617b8ee8adfd99590c30b0b1](https://gtv.org/video/id=617b8ee8adfd99590c30b0b1)
+#### 素材：东京樱花团GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-24.png)[*图片来源*](https://headtopics.com/images/2021/10/29/asahi/275152012920107787959-1453884300651208706.webp)
+1、[**日本JR外房线列车和汽车相撞**](https://www.aboluowang.com/2021/1028/1665264.html)
 
-**郭文贵**
-**Miles Guo**
+据《日本广播协会》NHK报道，日本千叶市一铁路道口处当地时间今(28日)上午10点40分左右，发生列车与汽车相撞事故，且汽车损坏十分严重，警方和消防队正紧急救援汽车内乘客。报导称，列车为日本铁路公司（JR）开往东京都的外房线，事故发生时列车上有约500名乘客，目前1人死亡。
 
-我要告诉大家一个重磅的勐料
-I want to tell you all a bombshell news
+2、[**日本洒钱吸引台积电赴九州设厂**](https://www.voachinese.com/a/TSMC-Plans-To-Open-Chip-Plant-In-Japan-20211028/6285866.html)
 
-吴征在2019年
-In 2019, Bruno Wu
+晶圆代工龙头台积电(TSMC)10月14日正式宣布将赴日本九州岛投资设厂，日本索尼集团、丰田汽车参与共同兴建，预计2022年动工、2024年完工启用。据多家日媒报道，日本政府拟最高补助约5千亿日圆。可能在10月底众议员大选后编入2021年度的追加预算中。日本首相岸田文雄说，“台积电在日本兴建半导体工厂，可以提高日本半导体产业的自律性，对经济安全产生莫大贡献。”
 
-就被美国FBI刑事调查
-was under criminal investigation by the US FBI
+3、[**9月有效求人倍率改善 失业率维持2.8%**](https://china.kyodonews.net/news/2021/10/9765f504dcac-9-28.html)
 
-2019年吴征就已经被美国FBI
-Bruno Wu has been (investigated) by the US FBI since 2019
+日本厚生劳动省29日公布的9月有效求人倍率（季节调整值）为1.16倍，较上月上升0.02点，时隔1个月改善。随着全国新冠疫情趋于平息，制造、建筑等行业招聘人数回升。总务省公布的9月完全失业率为2.8%，连续2个月持平。从性别来看，男性失业率为2.9%，环比改善0.2个百分点；女性为2.6%，恶化0.1个百分点。完全失业人数为192万人，较上年同期减少18万人，连续3个月同比减少。有效求人倍率是每名求职者所对应的招聘岗位数量。
 
-包含他和中共的大概七八个人吧
-including about seven or eight people from the CCP
+4、[**河合纯一将任北京冬残奥会日本代表团团长**](https://china.kyodonews.net/news/2021/10/d3305b5a297e.html)
 
-将近10个人
-near to ten people
+日本残奥委会（JPC）28日宣布，JPC主席河合纯一（46岁）将担任明年3月举行的北京冬残奥会日本代表团团长。JPC在东京召开的运营委员会会议上，决定了此事。河合将继东京残奥会后，再次任团长。据JPC介绍，前残奥运动员在夏季和冬季连续2届残奥会当选团长在日本尚属首次。北京冬残奥会将于明年3月4日至13日举行。
 
-全部被FBI刑事调查 （送交）美国司法部
-All of them were investigated by the FBI for criminal investigation, (the case was sent to) the US Department of Justice
+5、[**索尼上调营业利润预期 或突破1万亿日元**](https://china.kyodonews.net/news/2021/10/40821a88a4d9--1.html)
 
-你知道这意味着什么吗？
-Do you know what this means?
+索尼集团28日宣布上调2021财年（2021年4月～2022年3月）的业绩预期，反映主营业务盈利情况的营业利润将达到1.04万亿日元（约合人民币585亿元）。这将是索尼营业利润首次突破1万亿日元。此外，有关半导体巨头台湾积体电路制造公司（TSMC）进驻日本，索尼透露已讨论就新建工厂和运营展开合作。TSMC新工厂计划2024年投产。考虑建在索尼集团子公司位于熊本县菊阳町的工厂旁，丰田汽车集团的零部件巨头电装公司也考虑参与。
 
-吴征是美国公民
-Bruno Wu is a US citizen
-
-不回美国接收美国刑事调查
-who does not return to the U.S. under the U.S. criminal investigations
-
-所以从那天起再也没回过美国
-So, he has never returned to the U.S. since that day
-
-不接受美国的刑事调查
-He doesn’t want to be subject to a criminal investigation in the U.S.
-
-逃离美国
-and fled from the U.S.
-
-而且跟他的合伙人就是FBI的Frank
-Also, with his partner Frank, who is the FBI agent
-
-他们还操纵着PAG的官司
-they have been manipulating the PAG lawsuits
-
-律师和法官和各方面
-lawyers, judges, and various parties
-
-操纵美国司法
-manipulating the U.S. judicial system
-
-更重要的在刑事犯罪调查期间
-More importantly, during the criminal investigations
-
-他签署大量的文件
-he has signed a large number of documents
-
-并没有披露
-He has not disclosed (he was under criminal investigations)
-
-也没向川普总统披露
-it also was not disclosed to President Trump
-
-包括他老婆杨澜
-including his wife Yang Lan
-
-包括他弟弟吴斌
-his brother Wu Bin
-
-包括李玉保
-Li Yubao (chairman of the board of directors of China Yunhong Holdings Lim-ited)
-
-所有这些都是刑事犯罪中的刑事犯罪
-All of these are criminal offenses under criminal offense
-
-川普总统的这个Deal(交易)SPAC，他是过不去了
-This SPAC deal with President Trump, he (Bruno Wu) will not get away with it
-
-吴征是罪上加罪
-Bruno Wu commits doubly crime
-
-———————————————————
-
-**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1452951168980713476?s=24](https://twitter.com/se1y7cblljselva/status/1452951168980713476?s=24)
-
-Date: 10/26/2021
-原视频标题: 
-Bruno Wu has been investigated under criminal investigation by the US FBI since 2019
-Bruno Wu currently commits doubly crime
-原视频日期：2021/10/24
-任务编号：KC202(2678)
-视频时间段 : 0:00-1:25
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：东京樱花团 / 文小白*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

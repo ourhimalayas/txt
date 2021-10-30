@@ -15,110 +15,110 @@
 
 ---
 
-### [10/29/2021 文贵直播：中共房地产将于明年5月到7月发生融资暴雷](/content/gnews/1/README.md)
+### [流通量支付范围是决定喜马拉雅币价值的关键之三](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [10/29/2021 文贵直播：中共房地产将于明年5月到7月发生融资暴雷](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [参议员兰德·保罗:大多数美国人希望福奇辞职](/content/gnews/2/README.md)
+### [参议员兰德·保罗:大多数美国人希望福奇辞职](/content/gnews/3/README.md)
  ` 美国政要直译推`
 
-### [喜联储一定会有抵押和贷款业务](/content/gnews/3/README.md)
+### [喜联储一定会有抵押和贷款业务](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国FDA批准为5至11岁的儿童注射了辉瑞疫苗](/content/gnews/4/README.md)
+### [美国FDA批准为5至11岁的儿童注射了辉瑞疫苗](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [拜登政府默认 谭德塞将无异议连任](/content/gnews/5/README.md)
+### [拜登政府默认 谭德塞将无异议连任](/content/gnews/6/README.md)
  ` HimalayaRussia`
 
-### [爆料江家活摘器官原因之一](/content/gnews/6/README.md)
+### [爆料江家活摘器官原因之一](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [香港审查法禁止“可能危害国家安全”的电影](/content/gnews/7/README.md)
+### [香港审查法禁止“可能危害国家安全”的电影](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [10/29/2021 文贵直播：中共的内斗、打台湾、强推房产税、搞种族大屠杀和面临的金融崩溃终将导致中国人将其消灭](/content/gnews/8/README.md)
+### [10/29/2021 文贵直播：中共的内斗、打台湾、强推房产税、搞种族大屠杀和面临的金融崩溃终将导致中国人将其消灭](/content/gnews/9/README.md)
  ` 秘密翻译组-北美组`
 
-### [给孩子们接种疫苗，他会将一个健康孩子拉出公立学校并做家庭学校](/content/gnews/9/README.md)
+### [给孩子们接种疫苗，他会将一个健康孩子拉出公立学校并做家庭学校](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [索尼计划参与台积电日本新工厂](/content/gnews/10/README.md)
+### [索尼计划参与台积电日本新工厂](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [规避中概股风险，软银愿景基金首次投资日本企业](/content/gnews/11/README.md)
+### [规避中概股风险，软银愿景基金首次投资日本企业](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [香港通过电影审查法以“维护中共的国家安全”](/content/gnews/12/README.md)
+### [香港通过电影审查法以“维护中共的国家安全”](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [易中天个人工作室注销，中共“文化大运动”寒蝉效应显现](/content/gnews/13/README.md)
+### [易中天个人工作室注销，中共“文化大运动”寒蝉效应显现](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本要闻汇编 10月29日](/content/gnews/14/README.md)
+### [日本要闻汇编 10月29日](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [吴征在2019年就被美国FBI刑事调查吴征现在是罪上加罪](/content/gnews/15/README.md)
+### [吴征在2019年就被美国FBI刑事调查吴征现在是罪上加罪](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [日益加剧的大陆和台湾的紧张局势“不是玩笑”](/content/gnews/16/README.md)
+### [日益加剧的大陆和台湾的紧张局势“不是玩笑”](/content/gnews/17/README.md)
  ` 波士顿五月花农场`
 
-### [加拿大新的旅行疫苗要求于10月30日生效](/content/gnews/17/README.md)
+### [加拿大新的旅行疫苗要求于10月30日生效](/content/gnews/18/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [中国人拿回土地财富权利才能放下负担走向未来](/content/gnews/18/README.md)
+### [中国人拿回土地财富权利才能放下负担走向未来](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [澳洲漫画家把强制疫苗与天安门大屠杀进行比较后被解雇](/content/gnews/19/README.md)
+### [澳洲漫画家把强制疫苗与天安门大屠杀进行比较后被解雇](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [前疾控中心主任称马里兰州超四成病毒死亡者已接种疫苗](/content/gnews/20/README.md)
+### [前疾控中心主任称马里兰州超四成病毒死亡者已接种疫苗](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [爆料革命与全世界好人一起揭穿CCP解救川普总统](/content/gnews/21/README.md)
+### [爆料革命与全世界好人一起揭穿CCP解救川普总统](/content/gnews/22/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [洛杉矶警长称疫苗强制“对公共安全的威胁迫在眉睫”](/content/gnews/22/README.md)
+### [洛杉矶警长称疫苗强制“对公共安全的威胁迫在眉睫”](/content/gnews/23/README.md)
  ` HimalayaRussia`
 
-### [希拉里克林顿:英国必须在冬天强制疫苗、疫苗护照否则面临“问题”](/content/gnews/23/README.md)
+### [希拉里克林顿:英国必须在冬天强制疫苗、疫苗护照否则面临“问题”](/content/gnews/24/README.md)
  ` MG FARM`
 
-### [花旗集团强制美国员工接种疫苗](/content/gnews/24/README.md)
+### [花旗集团强制美国员工接种疫苗](/content/gnews/25/README.md)
  ` 日本东京方舟农场`
 
-### [台湾桃园15岁女学生打辉瑞爆严重后遗症！传需装叶克膜和截肢](/content/gnews/25/README.md)
+### [台湾桃园15岁女学生打辉瑞爆严重后遗症！传需装叶克膜和截肢](/content/gnews/26/README.md)
  ` 日本东京方舟农场`
 
-### [德国学术自由现在由中共政府决定](/content/gnews/26/README.md)
+### [德国学术自由现在由中共政府决定](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [众议院议员提出两党议案，以对抗中共在全球对美恶意挑衅](/content/gnews/27/README.md)
+### [众议院议员提出两党议案，以对抗中共在全球对美恶意挑衅](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共是世界宗教自由的最大威胁](/content/gnews/28/README.md)
+### [中共是世界宗教自由的最大威胁](/content/gnews/29/README.md)
  ` 日本东京方舟农场`
 
-### [秘翻在线:央行官员指跨境互联网业务属非法金融活动](/content/gnews/29/README.md)
+### [秘翻在线:央行官员指跨境互联网业务属非法金融活动](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021/10/29 大卫作战室直播精要](/content/gnews/30/README.md)
+### [2021/10/29 大卫作战室直播精要](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [文贵爆料10/29 今年广交会成交额几乎为零 香港出口贸易跌破35%](/content/gnews/31/README.md)
+### [文贵爆料10/29 今年广交会成交额几乎为零 香港出口贸易跌破35%](/content/gnews/32/README.md)
  ` 秘密翻译组-原创组`
 
-### [DC每日热点1029](/content/gnews/32/README.md)
+### [DC每日热点1029](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [一位警察的心里话，人们需要团结起来反抗](/content/gnews/33/README.md)
+### [一位警察的心里话，人们需要团结起来反抗](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [欧盟暂停向世卫组织提供部分资金](/content/gnews/34/README.md)
+### [欧盟暂停向世卫组织提供部分资金](/content/gnews/35/README.md)
  ` MG FARM`
-
-### [未完全接种而乘飞机和火车的旅行者很快将面临重罚](/content/gnews/35/README.md)
- ` 温哥华圆成农场🇨🇦`
 
 ### [中共国间谍在对澳大利亚人实施阴险诡计](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -156,33 +156,39 @@
 ### [中共房企债务违约达八家 连带平安股价跌幅近四成](/content/gnews/47/README.md)
  ` GTV新闻访谈`
 
-### [2021年10月29日郭先生直播大雨围城速记](/content/gnews/48/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [GTV新闻访谈简报|2021年10月29日早](/content/gnews/49/README.md)
+### [GTV新闻访谈简报|2021年10月29日早](/content/gnews/48/README.md)
  ` 纽约香草山MOS01`
 
-### [COVID-19最新情报｜台湾FDA发布疫苗不良事件通报相关数据分析](/content/gnews/50/README.md)
+### [COVID-19最新情报｜台湾FDA发布疫苗不良事件通报相关数据分析](/content/gnews/49/README.md)
  ` G&#124;News TAIWAN`
 
-### [10/29/2021国际财经快讯：标普纳斯达克创下历史新高；短缺严重制约美国第三季度经济增长](/content/gnews/51/README.md)
+### [10/29/2021国际财经快讯：标普纳斯达克创下历史新高；短缺严重制约美国第三季度经济增长](/content/gnews/50/README.md)
  ` 秘密翻译组金融团队`
 
-### [格芯公司市场份额、产量、用途及市场前景分析](/content/gnews/52/README.md)
+### [银河快讯：索尼将营业利润预期上调；日本央行保持货币宽松政策](/content/gnews/51/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [DC大中华时事：中共媒体称美军驻台是不可逾越的红线](/content/gnews/52/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [格芯公司市场份额、产量、用途及市场前景分析](/content/gnews/53/README.md)
  ` 纽约香草山MOS03`
 
-### [两辆列车中断，疫情再度蔓延](/content/gnews/53/README.md)
+### [两辆列车中断，疫情再度蔓延](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [两党参议员推出国防法案 外交抵制北京冬奥会](/content/gnews/54/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [针下亡魂｜美国 39 岁女医护接种疫苗4日后死亡](/content/gnews/55/README.md)
+ ` G&#124;News TAIWAN`
 
-### [中共国的柴油荒将引发激烈通胀](/content/gnews/55/README.md)
+### [中共国的柴油荒将引发激烈通胀](/content/gnews/56/README.md)
  ` 丁过`
 
-### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/56/README.md)
+### [加密货币顺势而生，喜币为王汇通天下](/content/gnews/57/README.md)
+ ` 军迷wilson`
+
+### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/58/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/57/README.md)
+### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/59/README.md)
  ` 秘密翻译组-北美组`
 

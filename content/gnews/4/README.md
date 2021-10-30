@@ -2,36 +2,122 @@
 ---
 
 
-## 美国FDA批准为5至11岁的儿童注射了辉瑞疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1627086/)
+## 喜联储一定会有抵押和贷款业务
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1627090/)
 
-#### **编译报导：文泓**
+[https://gtv.org/video/id=617b9010adfd99590c30b0e8](https://gtv.org/video/id=617b9010adfd99590c30b0e8)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-99.png)
+**郭文贵**
+**Miles Guo**
 
-**图片来源：Heslthline**
-美国时间10月29日，辉瑞和BioNTech的新冠疫苗已被美国监管机构批准用于5至11岁儿童。
+一定会的
+It definitely will
 
-美国食品和药物管理局（FDA）于美国时间周五（澳洲时间周六）在一份声明中宣布了这项紧急授权，使美国更接近于在全国各地的学校、儿科医生办公室和药房进行疫苗注射。幼儿的配方是成人注射剂量的三分之一。
+喜联储一定会的
+the Himalaya Exchange definitely will
 
-在青少年开始接种疫苗之前，疾病控制与预防中心的免疫咨询委员会也将召开会议，就谁应该接种疫苗以及如何接种疫苗提出更具体的建议。该小组目前定于下周二和周三召开会议。
+所有你想象的保险和贷款业务
+All insurance and loan businesses that you can imagine
 
-随后，CDC主任罗谢尔·瓦伦斯基 (Rochelle Walensky)将需要签署顾问的指导意见。
+以后一定都会的
+in the future, it definitely will
 
-FDA周五的行动将允许开始运送这些剂量——这是美国第一次为青少年和成人分发除常规辉瑞剂量以外的任何药物。这些药物将在全国各地的儿科医生办公室、药房和其他地点放置（疫苗），以便在任何CDC批准后立即开始接种。
+但时间不确定啊
+but not sure when
 
-“为年幼的儿童接种新冠疫苗将使我们更接近恢复正常状态，”FDA代理专员珍妮特·伍德科克在声明中说：“我们对与疫苗安全性和有效性有关的数据进行了全面而严格的评估，应该有助于向父母和监护人保证这种疫苗符合我们的高标准。”
+我不能给你做任何承诺
+I can’t make any promise to you
 
-新闻链接：[pfizer – Bing images (afr.com)](https://www.afr.com/politics/federal/fda-paves-way-for-pfizer-covid-19-vaccinations-in-young-kids-20211030-p594ii)
+以喜联储发布为准， 这是一个
+It’ll be subject to the announcement by the Himalaya Exchange, this is Number one
 
-**发布：文泓**
+第二个
+Number two
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+如果喜币喜联储不能成为任何国际金融机构的贷款抵押物
+If H-Coin, Himalaya Exchange cannot be used as loan collateral of any internation-al financial institution
+
+它就一文不值，它就是失败的
+it would be worthless, and it would be a failure
+
+再是如果喜币还有喜美元
+Another one, if H-Coin and H-Dollar
+
+不能在G系列之外接受支付
+cannot accept payment outside of the G series
+
+它一文不值
+it would be worthless
+
+它就是胡说八道
+it would be nonsense
+
+它就是骗局
+it would be a scam
+
+我第一个起诉他们
+I would be the first one to sue them
+
+把他们告倒
+to take them down
+
+我告诉你
+let me tell you
+
+它一定会被全世界
+it will definitely be (used) globally
+
+只是什么时间的问题
+It’s just a matter of time
+
+成为最好的抵押物
+to become the best collateral
+
+成为最好的贷款
+the best loan
+
+大家欢迎的
+and preferred by everyone
+
+但不管如何
+But no matter what
+
+你刚才问的问题
+The question that you just asked
+
+喜联储会不会（上线抵押）
+will the Himalaya Exchange (online mortgage business)
+
+一定会的
+It definitely will
+
+只是时间（问题）
+just a matter of time
+
+而据我所知，它们比你想象的规划还大
+Based on what I know, their projects are way bigger than you thought
+
+———————————————————
+
+**原视频链接**:[https://twitter.com/se1y7cblljselva/status/1452951472132395014?s=24](https://twitter.com/se1y7cblljselva/status/1452951472132395014?s=24)
+
+Date: 10/26/2021
+原视频标题: 
+Himalaya Exchange will definitely include loan and mortgage business
+原视频日期：2021/10/24
+任务编号：KC204（2677）
+视频时间段 : 0:00-1:01
+
+英听校: 洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

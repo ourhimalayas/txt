@@ -2,37 +2,117 @@
 ---
 
 
-## 日益加剧的大陆和台湾的紧张局势“不是玩笑”
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1626977/)
+## 吴征在2019年就被美国FBI刑事调查吴征现在是罪上加罪
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1626981/)
 
-翻译: 波士顿五月花  时空旅行者
+[https://gtv.org/video/id=617b8ee8adfd99590c30b0b1](https://gtv.org/video/id=617b8ee8adfd99590c30b0b1)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-16.jpg)Author John Moody to Newsmax: Growing China-Taiwan Tensions ‘Not a Joke’
-https://www.newsmax.com/
+**郭文贵**
+**Miles Guo**
 
-通过新书《他们当然知道》探索中共国早期病毒大流行情况的作者约翰‧穆迪接受Newsmax采访时谈到：中共国最近事关台湾的行动并未表示出国家主席习近平保护和平的意图。
+我要告诉大家一个重磅的勐料
+I want to tell you all a bombshell news
 
-穆迪在Newsmax 的“The Count”节目中表示：“如果习近平所说的行动是为了保护和平，那么我痛恨看到他在生气时会做出什么。” 习曾公开表示，到 2050 年，两岸将完成统一。现在，这既是对台湾人的直接威胁，也是对美国的间接威胁。”
+吴征在2019年
+In 2019, Bruno Wu
 
-穆迪的书是一部小说，被赞誉为“如此接近每个读者所分享的现实，以至于可以作为新闻标题。如果你仍然相信新闻标题”。亚马逊预览介绍道：这是是一部基于致命冠状病毒大流行的开端和在全球范围内发展的预告片。预览中问道：“病毒是在哪里制造的，由谁制造的？是否有人试图阻止它的传播？还是说在整个星球释放这种可怕的疾病是一直以来的目标？”
+就被美国FBI刑事调查
+was under criminal investigation by the US FBI
 
-福克斯新闻前执行编辑兼执行副总裁穆迪周六告诉 Newsmax：“习近平正通过中共军机飞越台湾领空，巩固在与台湾隔海相望的福建省附近的三个海军基地来加强他的地位。所谓的巩固，实际是令他们具备攻击能力，这是习发出的一个非常明确的信息。每个人都知道他打算做什么。只是什么时间行动的问题。现在世界的反应是什么？”
+2019年吴征就已经被美国FBI
+Bruno Wu has been (investigated) by the US FBI since 2019
 
-与此同时，拜登总统却在上周康涅狄格州发表讲话时吹捧他与习近平的密切关系，指出无论是之前作为副总统还是现在作为总统，他与中共国国家主席共度的“时间”比“任何其他世界领导人”都多。拜登说：现在的对话会持续一个半小时至两个半小时，台湾事件不容玩笑。
+包含他和中共的大概七八个人吧
+including about seven or eight people from the CCP
 
-穆迪同意拜登所认为的中共国与台湾之间发生的事情不是玩笑。穆迪说：“习近平无意向美国低头或达成任何协议。”他补充说，习认为自己是“自毛泽东以来最伟大的中国领导人”，他正在推行有中国特色的社会主义哲学。
+将近10个人
+near to ten people
 
-“统一台湾是习的夙愿，”穆迪说。无论通过那种手段，战争、威胁、恐吓或一个软弱的美国总统，习都将实现他的想法。” 而美国则必须明白，中共国“不是我们的朋友”。“用常理无法跟他们沟通，” 穆迪评论道。 “他们不会通过谈判实现民主。他们不会按照我们的想法行事。他们是我们的敌人。不了解这一点的人，也无法了解这个世界。”
+全部被FBI刑事调查 （送交）美国司法部
+All of them were investigated by the FBI for criminal investigation, (the case was sent to) the US Department of Justice
 
-（文章仅代表作者本人观点，与GNews 无关）
+你知道这意味着什么吗？
+Do you know what this means?
 
-新闻来源: [Author John Moody to Newsmax: Growing China-Taiwan Tensions ‘Not a Joke’](https://www.newsmax.com/newsmax-tv/john-moody-china-book-covid/2021/10/18/id/1040953/)
+吴征是美国公民
+Bruno Wu is a US citizen
 
-* * *
+不回美国接收美国刑事调查
+who does not return to the U.S. under the U.S. criminal investigations
 
-*素材来源：冲天一怒*
+所以从那天起再也没回过美国
+So, he has never returned to the U.S. since that day
 
-*编辑**& 发布：jamie(文胤)*
+不接受美国的刑事调查
+He doesn’t want to be subject to a criminal investigation in the U.S.
+
+逃离美国
+and fled from the U.S.
+
+而且跟他的合伙人就是FBI的Frank
+Also, with his partner Frank, who is the FBI agent
+
+他们还操纵着PAG的官司
+they have been manipulating the PAG lawsuits
+
+律师和法官和各方面
+lawyers, judges, and various parties
+
+操纵美国司法
+manipulating the U.S. judicial system
+
+更重要的在刑事犯罪调查期间
+More importantly, during the criminal investigations
+
+他签署大量的文件
+he has signed a large number of documents
+
+并没有披露
+He has not disclosed (he was under criminal investigations)
+
+也没向川普总统披露
+it also was not disclosed to President Trump
+
+包括他老婆杨澜
+including his wife Yang Lan
+
+包括他弟弟吴斌
+his brother Wu Bin
+
+包括李玉保
+Li Yubao (chairman of the board of directors of China Yunhong Holdings Lim-ited)
+
+所有这些都是刑事犯罪中的刑事犯罪
+All of these are criminal offenses under criminal offense
+
+川普总统的这个Deal(交易)SPAC，他是过不去了
+This SPAC deal with President Trump, he (Bruno Wu) will not get away with it
+
+吴征是罪上加罪
+Bruno Wu commits doubly crime
+
+———————————————————
+
+**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1452951168980713476?s=24](https://twitter.com/se1y7cblljselva/status/1452951168980713476?s=24)
+
+Date: 10/26/2021
+原视频标题: 
+Bruno Wu has been investigated under criminal investigation by the US FBI since 2019
+Bruno Wu currently commits doubly crime
+原视频日期：2021/10/24
+任务编号：KC202(2678)
+视频时间段 : 0:00-1:25
+
+英听校: 洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
