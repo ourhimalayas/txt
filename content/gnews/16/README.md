@@ -2,53 +2,51 @@
 ---
 
 
-## 希拉里克林顿:英国必须在冬天强制疫苗、疫苗护照否则面临“问题”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1626896/)
+## 前疾控中心主任称马里兰州超四成病毒死亡者已接种疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1626908/)
 
-作者：Ian Miles Cheong
-翻译：HimaBoy
+**评论：对于疫苗的有效性，前疾控中心主任的表达已经给出了事实依据。然而，卫生部门的表示和官员的声明却耐人寻味！对于疫苗的有效率的表述，他们是应该遵循事实数据和科学，还是他们所在的身份位置？是站在接种了疫苗的死亡者的立场，还是别的不可说的因素？**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Hillary.png)
+**据《Gateway Pundit》记者Jim Hoft，2021年10月27日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/aw0zs-cgvx6-4.jpg)图片源自Gateway Pundit
+美国疾病控制与预防中心前主任罗伯特·雷德菲尔德周一表示，在过去6至8周内，马里兰州因武汉冠状病毒死亡的人中有40%以上接种了疫苗。
 
-前民主党总统候选人希拉里克林顿要求英国首相制定疫苗规定，并迫使公司解雇拒绝接种疫苗的员工。
+在接受FOX新闻采访时，前疾病控制与预防中心主任雷德菲尔德（现任 MD 州长霍根的高级顾问）令人震惊地承认，最近马里兰州40%的COVID-19死亡病例都接种了疫苗。
 
-周日，这位失败的总统候选人在BBC的安德鲁·马尔秀上发表讲话，倡导疫苗护照和疫苗授权，表面上是为了防止该国再次大规模封锁，随着冬天的临近，该国正面临病例增加的问题。
+“我听到很多次人们觉得完全接种疫苗的人可能会死亡是一种罕见的事件。我碰巧是马里兰州霍根州长的高级顾问。在过去的6到8周内，马里兰州40%以上的死者都接种了疫苗，”雷德菲尔德在被问及科林鲍威尔的死因时说。
 
-“我认为这总统必须要做的，这可以停止新冠在英国的流行，且并不需要关闭社会，但强制疫苗是确实需要，”她说。
+前疾病预防控制中心主任罗伯特·雷德菲尔德说，过去 6-8 周在马里兰州死亡的人中有超过40%已接种疫苗。
 
-在被要求澄清她是否意味着强制要求进入公共场所的疫苗护照时，克林顿给出了肯定的回答。她补充说，雇主有必要要求员工接种疫苗，这是英国在进入冬季时将面临“问题”。
 
-“我认为你必须明确表示我们不会重新进入封锁状态，这不会发生。但是，如果你没有接种疫苗，如果你去俱乐部或餐馆时没有接种疫苗的证明，而且雇主不强制接种疫苗，我们可能会在英国看到一些问题，当天气变冷了，人们被迫再次回到室内，”她说。
 
-目前在英国的民主党人将参加即将在苏格兰举行的 COP26 气候峰会。正如反叛新闻先前报道的那样，中国在联合国峰会之前宣布建设更多的燃煤电厂。
+> Former CDC Director Robert Redfield said more than 40% of the people who died in Maryland over the last 6-8 weeks were jabbed [pic.twitter.com/zkzRsUq9z9](https://t.co/zkzRsUq9z9)
+> — UK Patriot (@uk\_patriot1) [October 25, 2021](https://twitter.com/uk_patriot1/status/1452567147155234816?ref_src=twsrc%5Etfw)
 
-克林顿在参加一个让她成为北爱尔兰贝尔法斯特女王大学第一位女校长的活动时，被嘲笑为“战犯”。
 
-正式担任奥巴马国务卿的克林顿一直主张英国采取与她的家乡美国纽约相同的措施，纽约在疫苗和疫苗护照的执行方面拥有最严格的政策。
 
-克林顿在接受马尔的采访时指出，纽约的“所有大型卫生系统”和医院都已强制要求接种疫苗。克林顿提到了一个例子，该州最大的医疗保健提供者诺斯韦尔卫生局最近在 10 月份解雇了 14,000 名拒绝接种疫苗的工人。
+但是，马里兰州卫生部发言人安迪·欧文 (Andy Owen) 有不同的说法，即从9月1日到10月15日，死于确诊COVID-19的马里兰人中只有约30%完全接种了疫苗。
 
-尽管在欧洲实施了一些严厉的封锁限制，但英国拒绝强制实施非常不受欢迎的疫苗护照，这些护照已在其他欧洲国家生效。
+MSN报道：
 
-由于他所在的保守党成员和英国公众的抵制，鲍里斯·约翰逊拒绝实施该计划。然而，据布莱巴特报道，首相支持这一想法，暗示他可能是“游戏规则改变者”和“救生员” 。
+在那段时间内总共有649人死亡，这意味着，根据马里兰州卫生部的说法，其中195人是接种疫苗的人。
 
-來源：[https://www.rebelnews.com/hillary\_clinton\_says\_uk\_must\_mandate\_vaccines\_covid\_passports\_or\_face\_problems\_by\_winter](https://www.rebelnews.com/hillary_clinton_says_uk_must_mandate_vaccines_covid_passports_or_face_problems_by_winter)
+卫生部门表示，许多死者还患有其他健康问题，使他们更加脆弱。
 
-（文章仅代表作者个人观点）
+官员们发表声明写道：“这进一步强调了我们的使命，即通过敦促符合条件的马里兰州人接受强化注射来保持免疫力”。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+**文章来源：**[https://www.thegatewaypundit.com/2021/10/former-cdc-director-robert-redfield-claims-40-deaths-cases-maryland-fully-vaccinated/](https://www.thegatewaypundit.com/2021/10/former-cdc-director-robert-redfield-claims-40-deaths-cases-maryland-fully-vaccinated/)
 
-**关注我们**
+**（本文评论仅代表个人观点）**
 
-Discord 账号
+翻译：洛杉矶盘古农场–Raul
+校对：洛杉矶盘古农场–Mike Li
+评论：洛杉矶盘古农场–心照
+编辑：洛杉矶盘古农场–心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

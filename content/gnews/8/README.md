@@ -2,117 +2,56 @@
 ---
 
 
-## 吴征在2019年就被美国FBI刑事调查吴征现在是罪上加罪
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1626981/)
+## 香港通过电影审查法以“维护中共的国家安全”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1626997/)
 
-[https://gtv.org/video/id=617b8ee8adfd99590c30b0b1](https://gtv.org/video/id=617b8ee8adfd99590c30b0b1)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/103002.jpg)2021 年 10 月 27 日，中共国电影《我和我的父辈》的预告片出现在香港一家电影院外。（照片：路透社/Tyrone Siu）
+来自新加坡《中央社》2021年10月27日报道
 
-**郭文贵**
-**Miles Guo**
+摘要翻译：
 
-我要告诉大家一个重磅的勐料
-I want to tell you all a bombshell news
+**香港：**香港立法会周三（10月27日）通过了一项新的电影审查法，以“维护中共的国家安全”，但批评人士表示，这将抑制其举世闻名的电影业的创造力，并进一步减少香港的自由。
 
-吴征在2019年
-In 2019, Bruno Wu
+去年，中共国对其最动荡的城市（香港）实施了全面的国家安全法，在民主阵营大规模辞职以抗议一些同事被驱逐后，香港立法会现在已没有反对派议员了。
 
-就被美国FBI刑事调查
-was under criminal investigation by the US FBI
+该法律授权香港政务司司长，即香港行政当局中的第二位最有权势的人物，如果“被发现违反国家安全利益”，可以吊销电影的执照。
 
-2019年吴征就已经被美国FBI
-Bruno Wu has been (investigated) by the US FBI since 2019
+违反法律的处罚包括最高三年的监禁和最高100万港元（128,400 美元）的罚款。
 
-包含他和中共的大概七八个人吧
-including about seven or eight people from the CCP
+自从为应对 2019 年的大规模抗议而出台国家安全法以来，大多数反对派政客和活动人士都因新法律或其他涉嫌犯罪而入狱，或者逃亡。
 
-将近10个人
-near to ten people
+对教育、艺术、媒体和文化的审查已经加强。 图书出版商承认自我审查，电影院撤下了抗议纪录片，一所大学取消了新闻摄影展。 一家当代艺术博物馆表示，国家安全警察可以审查其藏品。支持民主的小报《苹果日报》因国家安全调查于 6 月关闭。
 
-全部被FBI刑事调查 （送交）美国司法部
-All of them were investigated by the FBI for criminal investigation, (the case was sent to) the US Department of Justice
+今年，尽管香港出生的导演获得了前所未有的提名，但今年奥斯卡颁奖典礼自 1969 年以来首次没有在香港播出，与中国大陆的决定相匹配。
 
-你知道这意味着什么吗？
-Do you know what this means?
+香港当局拒绝将他们的行为描述为对公民社会的“镇压”，并表示在 1997 年回归中共国统治时承诺给香港的权利和自由仍然完好无损，但国家安全是一条“红线”。
 
-吴征是美国公民
-Bruno Wu is a US citizen
+电影制片人 Kiwi Chow 的纪录片《我们时代的革命》记录了 2019 年的抗议活动，并在今年的戛纳电影节上亮相，他表示，该法案通过减少“创作自由”损害了当地电影业。
 
-不回美国接收美国刑事调查
-who does not return to the U.S. under the U.S. criminal investigations
+**简评：**
 
-所以从那天起再也没回过美国
-So, he has never returned to the U.S. since that day
+香港曾是国际金融中心，又是知名的旅游城市，香港能成为亚洲的明珠，靠的是自由，电影业为香港在世界争得一席之地，香港通过电影审查法就等同于宣布香港再也没有好的电影作品了！
 
-不接受美国的刑事调查
-He doesn’t want to be subject to a criminal investigation in the U.S.
+新闻链接：[Hong Kong passes film censorship law to ‘safeguard national security’](https://www.channelnewsasia.com/asia/hong-kong-passes-film-censorship-law-safeguard-national-security-2272116)
 
-逃离美国
-and fled from the U.S.
+***编辑**: 希望*
 
-而且跟他的合伙人就是FBI的Frank
-Also, with his partner Frank, who is the FBI agent
+***校对**: 感恩*
 
-他们还操纵着PAG的官司
-they have been manipulating the PAG lawsuits
+* * *
 
-律师和法官和各方面
-lawyers, judges, and various parties
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
 
-操纵美国司法
-manipulating the U.S. judicial system
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-更重要的在刑事犯罪调查期间
-More importantly, during the criminal investigations
 
-他签署大量的文件
-he has signed a large number of documents
+编辑：【英国伦敦喜庄园编辑部】
 
-并没有披露
-He has not disclosed (he was under criminal investigations)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-也没向川普总统披露
-it also was not disclosed to President Trump
 
-包括他老婆杨澜
-including his wife Yang Lan
-
-包括他弟弟吴斌
-his brother Wu Bin
-
-包括李玉保
-Li Yubao (chairman of the board of directors of China Yunhong Holdings Lim-ited)
-
-所有这些都是刑事犯罪中的刑事犯罪
-All of these are criminal offenses under criminal offense
-
-川普总统的这个Deal(交易)SPAC，他是过不去了
-This SPAC deal with President Trump, he (Bruno Wu) will not get away with it
-
-吴征是罪上加罪
-Bruno Wu commits doubly crime
-
-———————————————————
-
-**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1452951168980713476?s=24](https://twitter.com/se1y7cblljselva/status/1452951168980713476?s=24)
-
-Date: 10/26/2021
-原视频标题: 
-Bruno Wu has been investigated under criminal investigation by the US FBI since 2019
-Bruno Wu currently commits doubly crime
-原视频日期：2021/10/24
-任务编号：KC202(2678)
-视频时间段 : 0:00-1:25
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

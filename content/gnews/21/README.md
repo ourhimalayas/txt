@@ -2,28 +2,30 @@
 ---
 
 
-## 中共是世界宗教自由的最大威胁
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1626839/)
+## 台湾桃园15岁女学生打辉瑞爆严重后遗症！传需装叶克膜和截肢
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1626860/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+**撰稿：日本东京方舟农场 Kevin wang**
 
-10月29日，美国前国务卿麦克·蓬佩奥（Mike Pompeo）在盖特上转发了一篇关于苹果公司在中共国被迫下架圣经软件的新闻，并在盖文强调：“中国共产党是世界上宗教自由的最大威胁。”
+据苹果新闻网10月29日报道，在当日下午的中央流行疫情指挥中心的记者会上，有媒体提问，日前桃园市一名15岁女生在接种辉瑞疫苗后需装叶克膜，并传出可能需要截肢，消息是否为真？指挥中心发言人庄人祥未正面回应，该女生身体状况引发关注。
 
-这篇题为《苹果公司为安抚中共政权下架中共国圣经应用程序》的文章，系统地介绍了中共迫害宗教的情况，而苹果公司为迎合中共，以“遵守当地法律”法律为由，下架了在中共国下载量超过 100 万的 Olive Tree 的圣经软件和被数百万穆斯林使用的 Quran Majeed APP。
+据苹果日报早前报道，桃园市南区一所中学的国中部1年级女学生，9月24日接种辉瑞，于10月5日发烧，先由家人带到诊所，初诊为感冒，再转送台北马偕医院后陷入昏迷。对于女学生病况，医院则不做说明。桃园市府教育局长林明裕当时说，女学生罹患心肌炎，使用叶克膜治疗中。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/id13314160-pompeo-2-600x400-1.jpg)图片来源：https://www.epochtimes.com/gb/21/10/18/n13313404.htm
+![](https://assets.gnews.org/wp-content/uploads/2021/10/SBxKWDlfNGD82bADZBoSWvTAbXWyWW.png)图片来源：https://www.ilong-termcare.com/Article/Detail/3210
 
-该新闻还指出，因为中共政权试图将独立的宗教团体强行转变为中国共产党的机制，2020 年 7 月至 2021 年 6 月期间在中共国发生了100多起基督教迫害事件，很多教堂被摧毁、拆除，千万教徒只能在未注册或所谓的“非法”地下教会敬拜。
+对于女生遭遇有市民直呼太惨了！这名15岁花季少女本该无忧无虑的享受生命，现在却因接种疫苗而导致身体出现严重后遗症，需要装叶克膜来维持生命。据了解，该装置将使患者产生极大痛苦并导致截肢。
 
-对此，蓬佩奥在盖文中表示，中国共产党是世界上宗教自由的最大威胁。美国公司应该捍卫美国的自由原则，而不是让它们服从于独裁政权的臆想。
+在当日发布会中，庄人祥避开该女生状况不谈，通报了目前15例接种辉瑞后发生心肌炎的青少年案例，指出他们年龄介于12到21岁，分别是12男3女，其中12例是12到17岁，有9男3女。并表示，15名案例中，1位只到门诊就医，12例已出院，2例还在住院中。
+
+此外，针对日前新增接种后死亡个案通报，庄人祥表示，有3起接种阿斯利康后1到23天死亡，年龄在59-86岁间，另有1名66岁个案打莫德纳后1天死亡。
 
 *注：本文仅代表作者观点，与 Gnews无关*
 
 *参考链接：*
 
-[The Chinese Communist Party is the single greatest threat to religious freedom in the world. American companies should champion American principles of freedom, not subordinate them to the whims of dictatorial regimes.](https://www.gettr.com/post/pfgrindcd0)
+[桃園女學生打BNT爆嚴重後遺症！傳裝葉克膜需截肢　指揮中心：持續關懷中](https://tw.appledaily.com/life/20211029/7WX6OFBOIFEITEQTJH3GUUAJPM/)
 
-[【重播】蓬佩奥：中共是世界最大威胁](https://www.epochtimes.com/gb/21/10/18/n13313404.htm)
+[葉克膜是什麼？選擇葉克膜前你該知道的事](https://www.ilong-termcare.com/Article/Detail/3210)
 
 * * *
 

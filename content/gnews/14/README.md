@@ -2,24 +2,136 @@
 ---
 
 
-## 爆料革命与全世界好人一起揭穿CCP解救川普总统
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1626907/)
+## 中国人拿回土地财富权利才能放下负担走向未来
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1626957/)
 
-吴征的刑事犯罪, 还有整个背后的一帮犯罪分子, 这场共产党为川普总统设计的这种灾难。我们一定要帮助川普总统揭穿共产党犯罪目的和犯罪手段。
+[https://gtv.org/video/id=617b8e78adfd99590c30b09a](https://gtv.org/video/id=617b8e78adfd99590c30b09a)
 
-**【郭先生盖特摘要】****2021.10.26****爆料革命与全世界好人一起揭穿****CCP****解救川普总统**
+**郭文贵：**
+**Miles Guo：**
 
-**郭先生：**
+我们有三样东西，新中国联邦说过
+We have three things that the New Federal State of China has said
 
-现在川普总统这个（股票）已经跌到$74了。这是什么在$174，70个小时以后跌到$74。 跌了$100块钱。 还在爆跌。不管未来怎么样。搞，我要买Facebook啊。你爱买谁买谁。你可以再起再落，但是我可以告诉大家，这场共产党跟川普总统设计的这种灾难。 川普总统一辈子都会毁在这里。 吴征的刑事犯罪，还有整个背后的一帮犯罪分子，所有的虚假信息。十几家基金的，他所有炒上去叫对赌。我明天直播还要讲，叫对赌。什么叫对赌啊？咱十几个基金，咱大家伙炒到$170，不能你随便走，咱一起走，一起进。
+大家一定小心去看
+You must look carefully
 
-这就叫钓鱼，骗的是谁呢？骗的就是川普那里的MAGA 的那些小投资者。川普总统他绝对不懂这个。他不懂的，很可怜很可悲很可恨，就像他要建一个什么社交媒体平台竟然很多高人相信。社交媒体平台就像做一锅饭一样，你可能做一锅饭。但你说你嘎巴一秒钟就做一锅饭来，那是绝不可能的，所有人都在骗川普。我卖给你个平台我帮你建。那都是骗人的，如果是那样过去的75亿人的地球。
+第一个，没有共产党第一件事情
+First, the first thing without the Communist Party
 
-在过去20-30年就不可能只有盖特和推特，也不可能只有Facebook,只有 Instagram。昨天采访了Jason Miller  先生，澳大利亚和英国问他，说这个平台，川普总统平台上来有竞争。这个话是非常好。有竞争是好事，但是有一个更重要的话。如果这个世界上有3-4家盖特，3-4家推特，3-4家YouTube。绝不可能出现一个总统被禁言，疫苗真相被掩盖。共产党的所有的犯罪和放的中共病毒不能讨论。就是因为没有竞争。Twitter独大，YouTube独大， Facebook独大， Instagram独大，垄断才导致这个结果。 如果没垄断，就像盖特，我们希望能出现3-4家盖特， 3-4家GTV。 这是我们真心希望的， 有竞争才不能有垄断，没有垄断才有真相，这才是根本。
+把土地必须还给人民
+The land must be returned to the people
 
-杰森·米勒先生做得太棒了，越来越爱杰森·米勒先生。 我们很荣幸杰森·米勒先生能在最关键的时候， 能把握住原则，而且他相信真相。我们继续支持川普总统，一定要帮助川普总统揭穿共产党，犯罪目的和犯罪手段。让所有吴征这帮孙子，什么Partrick，什么Sam Nunberg这帮孙子的钱都会吐出来。看咱就要干这事，咱要抱打不平拯救川普总统。看到我们身边Jason Miller这样的人，你也就知道好人还是很多的，我永远相信好人比坏人多，这是7哥现在每天能这样的原因。
+很多人来问我这问题，国内的（战友）
+Many people come to ask me this question, the domestic ( Comrades in Arms )
 
-视频剪辑：北方信使 |听写：烟波浩淼|翻译：Arthur  |校对： tonyj|字幕+视频制作：CG. |编辑+发布：黎明的光芒
+你怎么还呢？
+How do you return it?
+
+我说你如果不懂的话，看看西方工业革命怎么把土地给人民的
+I said if you don’t understand, look at how the western industrial revolution gave land to the people
+
+而且是永久产权
+And it’s freehold
+
+必须把土地给老百姓，这一条
+The land must be returned to the people, this is first
+
+第二个，所有银行欠的钱，包括房贷一概不能还
+The second, all the money owed to the bank, including the mortgage can not be paid off
+
+他说社会那不就乱了吗？
+He asked “isn’t that society in chaos?”
+
+我说你没有学过经济学，好好学学凯恩斯，还有这个大小史密斯讲的经济学理论
+I said you have not studied economics, go to learn Keynesian economics, and learn economic theory from Adam Smith
+
+财富是谁的呢？财富最终都是社会的
+Whose wealth is it? Wealth will ultimately belong to the community
+
+我们人类存在这个世界上，所有的房产，所有的金钱，所有的物质，你只是在你生存期间拥有了保管权
+We humans exist in this world, all the property, all the money, all the material things, you just have custody of wealth during your existence
+
+社会财富最好的分配就是继承权利和继承的法律
+The best distribution of social wealth is inheritance rights and inheritance laws
+
+我说我们解决了这一段的所有的占有权和把未来的继承权解决好
+I said we gonna settle all the possessions in this section and settle the future inheritance
+
+所有的帐是不用还的，因为中国人民活着的人
+All the debts do not have to be paid, because the people who are alive in China
+
+他们应该有资格，有能力继承他们几代人创造的财富和他生在这个土地上应有的人权，和这个土地上所有权的归属权，
+They should be entitled and capable of inheriting the wealth they have created over the generations and the human rights to which they were born on this land, and the right to ownership of this land.
+
+就应该是他们的，一切归零，重新开始，什么房卡、信用卡、银行贷款，
+It should be theirs, everything goes to zero, start over, whatever house mortgage, credit cards, bank loans, all gone
+
+那对不起，那时候有没有，他有十套房子，还有没有房子的，那对不起了
+Is there such a situation when the time comes? There are people who have ten houses and there are people who don’t have houses, oh, we’re sorry
+
+到那个时候，它就不会是绝对公平的
+it won’t be absolutely fair
+
+它只能叫做司法资源，管理资源，历史性的冻结分配状态
+It can only be called a judicial resource, a management resource, a historical freeze on the state of distribution
+
+这在资本论里边都说的非常清楚
+It’s all very clear in “Das Kapital”
+
+生产资料、生产价值
+At that time, the means of production and production value
+
+那就是到那个时候就是属于老百姓的，就是属于大家的
+belong to the people, that is, to everyone
+
+有没有其他的公平分配方式？有
+Is there any other way of equitable distribution? Yes
+
+比如说有人既没房，又没房贷，又没车贷
+Let’s say someone has neither a home, a mortgage, nor a car payment
+
+那给他什么？
+So what does he get?
+
+要把现在拥有的属于公共资源，要经过等比，就是大家平均完以后一个均值
+In order to take the public resources that we have, we have to go through the equivalence, that is, an average value with everyone included
+
+让他应该拥有，他不能吃亏
+Give him the part he should have and not letting him lose out on it
+
+这就是爆料革命，新联邦干掉共产党以后要做的
+This is what the Whistleblowers Movement, the New Federal State of China to do after taking out the Communist Party
+
+只有做到了现在的资源和财富的分配合理化
+Only when the current distribution of resources and wealth is rationalized
+
+被绝大多数人接受
+and accepted by the vast majority of people
+
+中国人才能放下负担走向未来
+will Chinese people be able to put down its burden and move into the future
+
+———————————————————
+
+**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1449362622432743424?s=24](https://twitter.com/se1y7cblljselva/status/1449362622432743424?s=24任务)
+
+Date:10/18/2021
+原视频标题:
+Chinese people get back their rights to land wealth before they can let go of their bur-dens and move into the future
+原视频日期：2021/10/13编号：KC201(2568)
+视频时间段 : 0:00-2:10
+
+英听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – Layka
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

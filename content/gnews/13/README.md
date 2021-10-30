@@ -2,51 +2,37 @@
 ---
 
 
-## 前疾控中心主任称马里兰州超四成病毒死亡者已接种疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1626908/)
+## 加拿大新的旅行疫苗要求于10月30日生效
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1626972/)
 
-**评论：对于疫苗的有效性，前疾控中心主任的表达已经给出了事实依据。然而，卫生部门的表示和官员的声明却耐人寻味！对于疫苗的有效率的表述，他们是应该遵循事实数据和科学，还是他们所在的身份位置？是站在接种了疫苗的死亡者的立场，还是别的不可说的因素？**
+蒙特利尔皇家山战友团 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1_5478927.jpg)图片来源：CTV
+根据加拿大《CBC新闻》10月29日报道，联邦政府今天宣布了新的豁免和未接种疫苗的外国公民的宽限期，以及明天生效的旅行者疫苗任务的细节。
 
-**据《Gateway Pundit》记者Jim Hoft，2021年10月27日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/aw0zs-cgvx6-4.jpg)图片源自Gateway Pundit
-美国疾病控制与预防中心前主任罗伯特·雷德菲尔德周一表示，在过去6至8周内，马里兰州因武汉冠状病毒死亡的人中有40%以上接种了疫苗。
+交通部长Omar Alghabra在多伦多皮尔逊机场谈到了加拿大交通部的最后命令和指导，在协商后向航空公司和铁路部门发布。
 
-在接受FOX新闻采访时，前疾病控制与预防中心主任雷德菲尔德（现任 MD 州长霍根的高级顾问）令人震惊地承认，最近马里兰州40%的COVID-19死亡病例都接种了疫苗。
+**从10月30日凌晨3点开始，所有在加拿大的12岁及以上的旅行者在登上本国的飞机、火车或游轮之前必须完全接种疫苗。即使是那些完全接种了疫苗的人，在返回加拿大时也需要出示COVID测试的阴性证明。**渥太华正面临放弃这项规定的压力，他们被要求取消对完全接种疫苗的旅行者进行昂贵的COVID测试的规定。
 
-“我听到很多次人们觉得完全接种疫苗的人可能会死亡是一种罕见的事件。我碰巧是马里兰州霍根州长的高级顾问。在过去的6到8周内，马里兰州40%以上的死者都接种了疫苗，”雷德菲尔德在被问及科林鲍威尔的死因时说。
+出国旅行的加拿大人将需要遵守他们所进入的特定航空公司和国家的规定，其中可能包括测试。
 
-前疾病预防控制中心主任罗伯特·雷德菲尔德说，过去 6-8 周在马里兰州死亡的人中有超过40%已接种疫苗。
+根据政府的规定，旅行者应在旅行前两周完全接种疫苗。如果旅行者已经开始接种疫苗但尚未完成，他们可以在11月29日前出示有效的COVID测试证明。**从11月30日起，未接种疫苗的人将没有资格旅行，有限的豁免除外。**
+
+交通部长说，对于 “紧急情况和指定的偏远社区的特殊住宿，以便居民能够继续获得基本服务”，将会有 “少数例外”。他说，在与原住民社区、各省和地区协商后，几个社区在一年的大部分时间里唯一的进出方式是乘坐飞机，有些人可能需要因紧急情况而旅行。
+
+新规定还包括，加拿大航空运输安全局（CATSA）将通过确认疫苗接种状况来支持运营商。
+
+前往加拿大的完全疫苗接种者，必须至少接种两剂加拿大政府认可的COVID疫苗。
+
+加拿大这些规定让未接种疫苗者“寸步难行”。
+
+原文链接：
+[https://www.cbc.ca/news/politics/transport-canada-announcement-vaccine-requirements-travel-1.6229829](https://www.cbc.ca/news/politics/transport-canada-announcement-vaccine-requirements-travel-1.6229829)
+
+* * *
+
+发稿 Spirit
 
 
-
-> Former CDC Director Robert Redfield said more than 40% of the people who died in Maryland over the last 6-8 weeks were jabbed [pic.twitter.com/zkzRsUq9z9](https://t.co/zkzRsUq9z9)
-> — UK Patriot (@uk\_patriot1) [October 25, 2021](https://twitter.com/uk_patriot1/status/1452567147155234816?ref_src=twsrc%5Etfw)
-
-
-
-但是，马里兰州卫生部发言人安迪·欧文 (Andy Owen) 有不同的说法，即从9月1日到10月15日，死于确诊COVID-19的马里兰人中只有约30%完全接种了疫苗。
-
-MSN报道：
-
-在那段时间内总共有649人死亡，这意味着，根据马里兰州卫生部的说法，其中195人是接种疫苗的人。
-
-卫生部门表示，许多死者还患有其他健康问题，使他们更加脆弱。
-
-官员们发表声明写道：“这进一步强调了我们的使命，即通过敦促符合条件的马里兰州人接受强化注射来保持免疫力”。
-
-**文章来源：**[https://www.thegatewaypundit.com/2021/10/former-cdc-director-robert-redfield-claims-40-deaths-cases-maryland-fully-vaccinated/](https://www.thegatewaypundit.com/2021/10/former-cdc-director-robert-redfield-claims-40-deaths-cases-maryland-fully-vaccinated/)
-
-**（本文评论仅代表个人观点）**
-
-翻译：洛杉矶盘古农场–Raul
-校对：洛杉矶盘古农场–Mike Li
-评论：洛杉矶盘古农场–心照
-编辑：洛杉矶盘古农场–心照
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,151 +2,112 @@
 ---
 
 
-## 给孩子们接种疫苗，他会将一个健康孩子拉出公立学校并做家庭学校
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1627013/)
+## 爆料江家活摘器官原因之一
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1627052/)
 
-[https://gtv.org/video/id=617b8f60adfd99590c30b0c5](https://gtv.org/video/id=617b8f60adfd99590c30b0c5)
+[https://gtv.org/video/id=617b8fb3adfd99590c30b0d5](https://gtv.org/video/id=617b8fb3adfd99590c30b0d5)
 
-**Mark Levin (Life, Liberty & Levin host)
-马克·莱文（ 《福克斯新闻》《生活、自由与莱文》栏目主持人）**
+**郭文贵：**
+**Miles Guo：**
 
-then the CDC director comes out
-然后疾病预防与控制中心主任出来了
+当时，我爆这个器官移植这个事情的时候
+When I exposed the organ transplant thing
 
-not only that they’re still going to have to wear masks.
-不仅如此，他们仍将必须戴口罩
+我压力是特别大的
+At that time, I was under a lot of pressure
 
-You hear you hear Dr. Fauci you know
-你听到了福奇博士所说的，你知道
+因为我的家人、同事还都在里面
+Because my family and colleagues were still in prison in mainland China
 
-people have played the endless contradictions coming out of his mouth
-人们对他口中无休止的矛盾以及他在电视和其他媒体上
+我被多次警告，直接来自江家，江家身边也有我的朋友
+I was directly warned by the Jiang family many times, because there are friends of mine around the Jiang family
 
-and the endless television and other media appearances he has.
-无休止的露面进行了嘲笑
+直接警告，千万别说这个，文贵
+Direct warning, don’t talk about it, Miles
 
-This has to be one of the worse year, year and a half,
-这必须是我所记得的所谓科学和医学界
+你话不落音，你就会消失在地球上
+You will disappear before your words are heard
 
-two year periods of information provided the American people by the so called sci-entific and medical community
-向美国人民提供的信息中
+这对我当时压力很大的
+I was under a lot of pressure at that time
 
-that I can ever remember.
-最糟糕的一年、一年半、两年的时期之一
+Eglise，你不知道当时我爆这个对我没有任何好处
+Eglise, you don’t know that it didn’t do me any good by blowing this up at that time
 
-Dr. Harvey Risch (Yale Epidemiology Professor)
-哈维·里施博士（耶鲁大学流行病学教授）
+但我为啥要爆
+But why do I want to expose it?
 
-Well as far as I can tell, that it’s a top down structure.
-嗯，据我所知，这是一个自上而下的结构
+因为我好几个同学就跟你干同行，就是干同行的是原来李保春、黎磊石的手下
+Because I have several classmates in medicine, they work for Li Baochun and Li Leishi
 
-And most doctors do not get their information by going back and reading
-并且大多数医生并没有获得信息通过返回并阅读
+他当时说，我们的李专家，他说我们的春哥，春教授他告诉我们
+He said then, “Our expert Li,” he said, “Our brother Chun, Professor Chun, he told us
+他说你们年轻人不要干这个，离这个远远的
+You young people do not do it, stay away from it
 
-the original studies of making up their own minds.
-原始的研究来做出他们的决定
+这个手术台上的这个事情不能再继续
+This thing on the operating table can not continue”
 
-They get fed the information from Pharma reps,
-他们从制药代表那里得到信息
+他说当时很惊讶，为啥不让我们干这个
+He said he was surprised at the time, why not let us do it
 
-or from what they’re told from societies and the conflicts are legion
-或者从社会上告诉他们的，相反的信息是大量的
+我们从小学就医，干这个，从山东济南跑到北京，不就干这个的吗？
+We have been in medicine since elementary school, doing this, from Jinan, Shandong to Beijing, is it not to learn medicine?
 
-and and so it’s no surprise that most doctors don’t pay attention and think what they’re told.
-因此，大多数医生不注意和思考他们被告知的内容也就不足为奇了
+后来到了南京，亲自参与了江家的多次换肾脏手术
+Later, he went to Nanjing and personally participated in several kidney replacement surgeries for the Jiang family
 
-Mark Levin
-马克·莱文
+让他最震惊的，就是新疆的小伙子，活活的就这么（被活摘器官）
+What shocked him the most was the young man from Xinjiang, who was alive (by live organ harvesting)
 
-If you’re a parent, and you have seven or eight year old,
-如果你是父母，并且有七、八岁的孩子
+说为了所谓的减少反应
+For the so-called reduced reaction
 
-the federal government is going to insist that those kids get vaccinated.
-联邦政府将坚持要求这些孩子接种疫苗
+最高境界是在无麻醉下把器官给移植
+The highest level is the transplantation of organs without anesthesia
 
-Or if you live in a state like California
-或者如果你住在像加利福尼亚这样的州
+他给我讲过这个，当时讲的时候他就说哭的不行了
+He told me about this, and when he was talking about it, he cry like hell
 
-where Governor Newsom is going to do that and so forth,
-纽森州长将在那里这样做等等
+我也是真的一阵时间过不来，就是过不来了
+I am also a period of time can not be relieved, just can not overcome the reality
 
-and he has a horrific record.
-他有一个可怕的记录
+就你刚才讲的时候，一般人听了会浑身难受，就是浑身鸡皮疙瘩那种
+Listen to what you just said, the normal people will be uncomfortable, is the kind of goose bumps all over the body
 
-Most of these governors do, not all, but most,
-这些州的大多数州长都这样做，不是全部，但大多数
+就能跟你感同身受，这就叫灵魂嘛
+Empathy, it’s called the soul
 
-what would you do? Would you get your kid vaccinated?
-你会怎么做？你会让你的孩子接种疫苗吗？
+我们是人，我们不是石头，也不是畜生，我们当然有感同身受了
+We are people, we are not stones, and not animals, we certainly have empathy
 
-Would you talk to your local doctor? What would you do?
-你会和你当地的医生谈谈吗？你会怎么办？
+他曾经拜托过我
+He once asked me
 
-Dr. Harvey Risch
-哈维·里施博士
+他说，文贵，你是我们一切一切的英雄
+said Miles, you are my hero
 
-If the child has chronic conditions that make their risk appreciable
-如果孩子患有慢性病，这使得他们的风险巨大
+有一天你能把这话说出去，我为你干什么都行
+One day you can tell the truth, I will do anything for you
 
-then there’s a reason that they would be considered for vaccination.
-那么就有理由考虑为他们接种疫苗
-
-Other than that, if for my child, I would homeschool them.
-除此之外，如果为了我的孩子，我会让他们在家上学
-
-Honestly, I would organize with other parents to take them out of the school
-老实说，我会组织其他家长带他们离开学校
-
-and create homeschooling environments.
-并创造在家学习的环境
-
-There’s no choice. Your child’s life is on the line.
-别无选择，你孩子的生命危在旦夕
-
-It’s not a high risk vaccination is not a high risk that’s going to kill every child by doing so.
-这不是高风险的疫苗接种，也不是因为这样做会杀死每个孩子的高风险
-
-However, it’s enough of a risk that on the average,
-然而，就平均而言这足以构成风险
-
-the benefit is higher for homeschooling than it is for vaccination and being in school.
-在家学习的好处高于接种疫苗和在学校学习
-
-And that’s just the bottom line.
-而且这只是底线
-
-You know, we’re seeing employees in companies facing mandates quit or being fired.
-你知道，我们看到公司的员工面临强制疫苗而辞职或被解雇
-
-And now public proceeds that and companies are having a hard time
-而且现在公共收益和公司现在正在处于困难时期
-
-replacing those employees in the climate of a bad employment circumstances and missing workers.
-在就业环境恶劣和失去工人的情况下替换这些雇员
-
-It’s getting even harder and so those policies are being rethought
-现在越来越难了，所以当人民因为自己的利益而反抗时
-
-when the people rebel because of their own interests.
-这些政策就会被重新考虑
-
-Then it has to be reckoned
-那么它必须被考虑
+我就凭你这个时候，还让我说出去，我有一天我就要实现你这个愿望
+At that time, you still let me tell it, one day I want to fulfill your wish
 
 ———————————————————
 
-**原视频链接:**[https://twitter.com/saragonzalestx/status/1452446580095737859?s=24](https://twitter.com/saragonzalestx/status/1452446580095737859?s=24)
+**原视频链接:** [https://twitter.com/se1y7cblljselva/status/1450395534171148291?s=24](https://twitter.com/se1y7cblljselva/status/1450395534171148291?s=24)
 
-Date:10/27/2021
-原视频标题: Dr. Harvey Risch says he would pull a healthy child out of public school and homeschool before he gave them this vaccine
-原视频日期：2021/10/24
-任务编号：KE342（2674）
-视频时间段 : 0:00-2:20
+Date:10/21/2021
+原视频标题:
+One of the reasons for exposing the Jiang family’s live organ harvesting
+原视频日期：2021/10/13
+任务编号：KC203（2604）
+视频时间段 : 0:00-2:05
 
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+英听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校: 洛杉矶盘古农场 – Layka
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
 审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
