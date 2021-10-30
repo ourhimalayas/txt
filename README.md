@@ -15,115 +15,115 @@
 
 ---
 
-### [弗吉尼亚州再现选举舞弊](/content/gnews/1/README.md)
+### [19个州起诉拜就登强制联邦承包商接种COVID疫苗](/content/gnews/1/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [弗吉尼亚州再现选举舞弊](/content/gnews/2/README.md)
  ` HimalayaRussia`
 
-### [借新还旧掩盖不良！民生信托被监管认定违规](/content/gnews/2/README.md)
+### [借新还旧掩盖不良！民生信托被监管认定违规](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [庆喜币上市](/content/gnews/3/README.md)
+### [庆喜币上市](/content/gnews/4/README.md)
  ` HimalayaRussia`
 
-### [川普被要求公开他新社交媒体的源代码](/content/gnews/4/README.md)
+### [川普被要求公开他新社交媒体的源代码](/content/gnews/5/README.md)
  ` HimalayaRussia`
 
-### [现场报道：岸田文雄街头竞选演讲，突现异议人士抗议](/content/gnews/5/README.md)
+### [现场报道：岸田文雄街头竞选演讲，突现异议人士抗议](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [不愿接种中共病毒疫苗的护士被送回家，无薪休假](/content/gnews/6/README.md)
+### [不愿接种中共病毒疫苗的护士被送回家，无薪休假](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国情报机构最新报告：可能永远无法确定中共病毒来源](/content/gnews/7/README.md)
+### [美国情报机构最新报告：可能永远无法确定中共病毒来源](/content/gnews/8/README.md)
  ` 军迷wilson`
 
-### [10/30/21 香港快讯 流亡许智峰 FB 吁投白票『反制不义制度』](/content/gnews/8/README.md)
+### [10/30/21 香港快讯 流亡许智峰 FB 吁投白票『反制不义制度』](/content/gnews/9/README.md)
  ` 英喜-粵語組`
 
-### [2021年10月29日郭文贵先生直播全文字版](/content/gnews/9/README.md)
+### [2021年10月29日郭文贵先生直播全文字版](/content/gnews/10/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [中共驻澳大使成竞业即将离任](/content/gnews/10/README.md)
+### [中共驻澳大使成竞业即将离任](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [疫苗后，台湾航空机组员突发性耳聋 捷克年轻人听力问题暴增](/content/gnews/11/README.md)
+### [疫苗后，台湾航空机组员突发性耳聋 捷克年轻人听力问题暴增](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [古典普世价值与现代普世价值](/content/gnews/12/README.md)
+### [古典普世价值与现代普世价值](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳大利亚维州官员拒绝公布，病毒死亡案例的疫苗接种情况](/content/gnews/13/README.md)
+### [澳大利亚维州官员拒绝公布，病毒死亡案例的疫苗接种情况](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [强制疫苗令后果显现，纽约市垃圾遍地](/content/gnews/14/README.md)
+### [强制疫苗令后果显现，纽约市垃圾遍地](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [房地产爆雷比土改比文化大革命还惨，让中国人走向噩梦](/content/gnews/15/README.md)
+### [房地产爆雷比土改比文化大革命还惨，让中国人走向噩梦](/content/gnews/16/README.md)
  ` NewFOC`
 
-### [GTV新闻访谈简报|2021年10月30日早](/content/gnews/16/README.md)
+### [GTV新闻访谈简报|2021年10月30日早](/content/gnews/17/README.md)
  ` 纽约香草山MOS01`
 
-### [中共“大周边外交”受重挫 新西兰选边美国为首的西方阵营](/content/gnews/17/README.md)
+### [中共“大周边外交”受重挫 新西兰选边美国为首的西方阵营](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|美国有望支持新中国联邦加入联合国](/content/gnews/18/README.md)
+### [有声|美国有望支持新中国联邦加入联合国](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [国际要闻汇编 10月30日](/content/gnews/19/README.md)
+### [国际要闻汇编 10月30日](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共产党之作](/content/gnews/20/README.md)
+### [共产党之作](/content/gnews/21/README.md)
  ` 纽约香草山MOS03`
 
-### [有声|美大型零售商下架中共国涉及侵犯人权的监控产品](/content/gnews/21/README.md)
+### [有声|美大型零售商下架中共国涉及侵犯人权的监控产品](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [融创,花样年,恒大,碧桂园,合生创展,富力明年5到7月爆雷](/content/gnews/22/README.md)
+### [融创,花样年,恒大,碧桂园,合生创展,富力明年5到7月爆雷](/content/gnews/23/README.md)
  ` NewFOC`
 
-### [新闻述评：COVID-19病毒代言人谭德塞获连任提名](/content/gnews/23/README.md)
+### [新闻述评：COVID-19病毒代言人谭德塞获连任提名](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本9月工业生产指数下降5.4％，汽车行业减产是主因](/content/gnews/24/README.md)
+### [日本9月工业生产指数下降5.4％，汽车行业减产是主因](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [格力与美国司法部达成延迟起诉协议，同意支付9100万美元罚款](/content/gnews/25/README.md)
+### [格力与美国司法部达成延迟起诉协议，同意支付9100万美元罚款](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [FDA 在美国批准儿童 COVID-19 疫苗，加拿大可能紧随其后](/content/gnews/26/README.md)
+### [FDA 在美国批准儿童 COVID-19 疫苗，加拿大可能紧随其后](/content/gnews/27/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [中共国债纳入富时世界国债指数，或再给世界金融埋雷](/content/gnews/27/README.md)
+### [中共国债纳入富时世界国债指数，或再给世界金融埋雷](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本要闻汇编 10月30日](/content/gnews/28/README.md)
+### [日本要闻汇编 10月30日](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：央行等发布重磅文件释放信号金融体系随时发生系统性风险](/content/gnews/29/README.md)
+### [秘翻在线：央行等发布重磅文件释放信号金融体系随时发生系统性风险](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美排名第一的梅奥诊所雇员抗议疫苗强制](/content/gnews/30/README.md)
+### [美排名第一的梅奥诊所雇员抗议疫苗强制](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [澳洲前总理警示中共对台湾随时会有动作](/content/gnews/31/README.md)
+### [澳洲前总理警示中共对台湾随时会有动作](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [喜联储构筑连接加密货币和金融系统的桥梁](/content/gnews/32/README.md)
+### [喜联储构筑连接加密货币和金融系统的桥梁](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [格芯上市意义深远，未来潜力巨大](/content/gnews/33/README.md)
+### [格芯上市意义深远，未来潜力巨大](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [东南亚一周新闻回顾（2021年10月22日-29日）](/content/gnews/34/README.md)
+### [东南亚一周新闻回顾（2021年10月22日-29日）](/content/gnews/35/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [美10个州就中共病毒疫苗规定起诉拜登政府](/content/gnews/35/README.md)
+### [美10个州就中共病毒疫苗规定起诉拜登政府](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登政府拒绝接受法官命令](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共国首次回应台湾总统证实美军存在于台湾之事](/content/gnews/37/README.md)
+### [拜登政府拒绝接受法官命令](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [10/29/2021 文贵直播：DWAC的关于SPAC上市的文件说明：1) 该公司没现金，吴征和Patrick Orlando只是给川普总统画了个大饼；2) DWAC尚未找到真正的投资人；3) 由于其背后是中共，DWAC难以兑现其承诺](/content/gnews/38/README.md)

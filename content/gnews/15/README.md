@@ -2,48 +2,32 @@
 ---
 
 
-## 房地产爆雷比土改比文化大革命还惨，让中国人走向噩梦
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1628741/)
+## 强制疫苗令后果显现，纽约市垃圾遍地
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628745/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/6be029d33e472608b74db4271153358d_500x0_副本.jpg)
-据[2021年10月29日 文贵大直播：格芯在美国上市的重大意义和其未来价值，格芯与数字货币紧密相连；喜币周一上市会带来什么样的改变；房地产会在明年5-7月爆雷，是中共制造的最大的噩梦](https://gtv.org/video/id=617be96f11d1862968fccc4b)时间点2：32：22——
+作者：纽约香草山农场- 四季
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-21.jpeg)
 
-**郭文贵先生：**这个时候对香港汇丰来讲，对平安集团来讲，对国内的民生来讲，对招商银行来说，对中国银行来讲，所有的票据都会爆雷，这个时候就所有老百姓买的保险，我可以告诉大家，分毛没有！
+由于疫苗强制令实施，纽约市没有接种疫苗的环卫工人，将在10月29日的最后期限面临解雇。环卫工人对被迫接受疫苗强制令，感到十分愤怒，他们正在减慢工作效率，以示抗议。纽约市有的地区，已经是垃圾遍地。环卫工人工会负责人表示，工会支持环卫工人的抗议行动。 45%的消防员和25%的警察，也因为同样的原因，面临解雇。纽约将面临消防员、环卫工人和警察严重短缺的问题，同时，部分消防局会因缺少消防员而关闭，救护车也会减少。 纽约市市长白思豪在10月20日，宣布对超过10万雇员，包括警察、消防员在内的所有市政雇员，实施疫苗强制令后，纽约市最大的警察工会–警察福利协会，已经向市政府提起法律诉讼。10月27日，纽约市消防员工会负责人表示，希望消防员能继续工作，不管有没有打疫苗。并说，警察工会将继续在法庭上与该强制令作斗争。
 
-你看渤海银行七哥2017年爆料，他竟然挪用人家几十亿的钱不还了，郑州死那么多人平安保险说这属于自杀性行为不还了，还有这么不要脸的吗？冠状病毒不给保险了！这简直是人间的没法想象的灾难。
+参考链接：
+1) [Garbage Piling Up Everywhere, 45% of Firemen and 25% of Police Facing Termination Friday – This Is Democrat De Blasio’s New York City](https://www.thegatewaypundit.com/2021/10/garbage-piling-everywhere-45-firemen-25-police-facing-termination-friday-democrat-de-blasios-new-york-city/)
+2) [NYPD’s Largest Union Plans to Sue City Over COVID Vaccine Mandate](https://www.newsweek.com/nypds-largest-union-plans-sue-city-over-covid-vaccine-mandate-1640933?amp=1&amp;utm_medium=Social&amp;utm_source=Twitter&amp;__twitter_impression=true)
 
-我们今天在这块儿的直播就是希望知道房地产又加了房地产税，它不是杀富豪分田地，你老百姓一毛钱也不会有，你什么都不会少，而且你比谁死的都快。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-我们在看这个的时候，兄弟姐妹们要知道共产党不打台湾、共产党不收房地产税、共产党金融不崩塌、共产党房地产不崩塌、共产党不搞种族大屠杀、共产党不内部政治斗争，咱灭不了共产党，我们是以共灭共这四个字儿，我真希望战友能明白！
+总编：Irene木木
+编辑：Ivy001
+校正/发稿：谐趣园
 
-以美灭共咱前提坚决不依靠美国、不指望美国，那是战略，但以共灭共也是战略，最终还是中国人灭掉共产党，那么现在这个形势大家觉得跟我2017年直播到现在大家去想想去，就像喜币下周一就上市了。下周一你就知道上市什么价格了，同样的是共产党的任何一件事，你能在下周一和下一年能得到结果吗？什么都没结果。
-
-就像1912年、1913年的共产党和1928年的国民党和共产党和1949年的中国共产党，到今天所有说过话都是明天更美好，所以说我们唐平和威廉、我们战友们写的新的这个喜币的歌，是不是？H-Coin to the moon. H-Coin to the moon. Moon既是月亮也是梦，但是我们是真的梦，dream come true, 我们是梦想实现，共产党永远是噩梦，房地产是绝对让中国人走向噩梦，比土改、比文化大革命，比那还惨，还惨！所以我们这个爆料多重要！
-
-（以下暂略）
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

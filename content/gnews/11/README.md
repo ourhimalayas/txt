@@ -2,25 +2,27 @@
 ---
 
 
-## 疫苗后，台湾航空机组员突发性耳聋 捷克年轻人听力问题暴增
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628766/)
+## 中共驻澳大使成竞业即将离任
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628788/)
 
-作者：台湾宝岛农场
+作者：英国喜庄园 – I770775
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台湾媒体报道，8月10日有航空业机组人员表示，在7月20日接种完第二剂莫德纳疫苗后，隔天耳朵竟然一边耳鸣、一边耳聋，治疗一个月都没有好转。对此，医生表示：不排除疫苗罕见副作用。又外媒于10月21日指出，捷克境内年轻人突发耳鸣等听力问题数量剧增，不排除与疫苗有关联性。
+多家外媒近日报道，中共国驻澳大利亚大使成竞业即将离任，澳大利亚外长佩恩28日在国会也确认了这一消息。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-43.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide4-25.jpeg)
 
-疫苗副作用除常见的血栓、心肌炎、心包炎、发烧、倦怠等，而鼻喉科方面也存在罕见特殊副作用。台媒报导，突发性耳聋、颜面神经麻痹，也都出现过相关病例。台湾基层医疗协会理事长林应然分析，目前虽没有很明确的统计报告，如果免疫系统启动时，误伤及听神经系统，有可能产生耳鸣、耳聋的问题。
+对于中共大使即将离任的消息，佩恩表现出很不在乎，很不尊重甚至冷漠的态度。佩恩说，“如果他还没离开的话，也是即将离开。”中共在继续指责澳方此行为是外交失礼的同时，也不得不承认中澳关系已经达到历史冰点，从当初的全面战略伙伴关系，降至目前几乎没有对话通道的极其困难的局面。
 
-台湾卫生福利部于10月25日发布了新冠疫苗不良事件通报摘要报告，当中表示，截至10月20日，台湾共施打两千零九十四万八千五百二十六剂新冠疫苗，共接获疫苗不良事件通报一万零两百一十八件，其中有九百三十二例死亡，占比9.12%。郭先生明确指出，疫苗后的不良症状是偶发，真正的疫苗灾难还没有开始。
+国际间对此次离任给与高度关注，媒体评论普遍认为，中国对澳的经济胁迫，是造成澳中两国关系急剧恶化的原因，“澳中关系短期内几乎没有修复的迹象”。
 
-参考链接：[COVID-19最新情报｜疫苗后，台湾航空机组员突发性耳聋，捷克年轻人听力问题暴增](https://gnews.org/zh-hans/1622707/)
+参考链接：
+1）[62岁中国驻澳大利亚大使成竞业即将离任](https://www.cqcb.com/headline/2021-10-28/4559301_pc.html)
+2）[中国大使离任 澳外长表态冷漠](https://www.thepaper.cn/newsDetail_forward_15128139)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-总编：Zion文恩
-编辑：DM, Irene木木
+总编：Irene木木
+编辑：山本不惑
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -29,7 +31,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

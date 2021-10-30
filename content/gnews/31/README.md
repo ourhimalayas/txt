@@ -2,26 +2,34 @@
 ---
 
 
-## 澳洲前总理警示中共对台湾随时会有动作
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628553/)
+## 美排名第一的梅奥诊所雇员抗议疫苗强制
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1628554/)
 
-作者：美东香草山医疗部 云豹
+作者：美东香草山佛教部 文一
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-10月29日，澳洲前总理艾波特（Tony Abbott）在华府智库「威尔逊中心」（Wilson Center）线上会议中发出警示：各国要密切注意中共随时可能会对台湾发动侵略战争。
+据报道，10月25日，数百人在美国明尼苏达州罗切斯特市中心游行。他们高喊 “打倒梅奥”并唱着爱国歌曲，用以抗议梅奥诊所实行的强制新冠疫苗接种政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.30AM-PICTURES-123456-图片备用.004.jpeg)
+梅奥诊所拥有约七万三千名员工，是美国排名第一的医院，并连续27年浮动于榜首的位置，且该院在器官和血液移植手术方面享有盛誉。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.30AM-PICTURES-123456-图片备用.003.jpeg)
+据了解，此次抗议活动是由梅奥诊所的一小批工作人员在线发起的。随后短短几小时内，报名参加抗议的人数迅速从十几人增至数百人。 目前，这一针对梅奥诊所的抗议活动已经蔓延至全美多地，包括威斯康星州的拉克罗斯市和亚利桑那州的凤凰城。至于抗议活动的参与人员，则多为因拒绝接种新冠疫苗而被解雇的员工。
 
-艾波特是在讨论澳洲、中共与印太区域议题中发出此严厉的警讯。 他警告民主国家不要认为台海在未来十年内不会发生军事冲突，因为他观察习近平性喜冒险，尤其在处理香港问题上民主国家表现软弱，让习近平更有信心对台湾发动军事攻击行动。
+线上活动方面，梅奥诊所的员工于盖特平台上传了抨击强制新冠疫苗接种政策的视频，同时他们也发表盖文，号召更多的民众抗议新冠疫苗政策，为自由而战。
 
-「必须要让中共知道，对台湾采取任何行动都会有最严重的后果」。 他说，美国总统拜登（Joe Biden）近日表示台湾若遭到中共攻击，美国会协助台湾，让他觉得振奋。 民主国家在此时刻应该展现出对台湾的支持，包括支持台湾加入跨太平洋伙伴全面进步协定（CPTPP）。
+参考链接：
 
-参考链接：[澳洲前總理：北京早晚有動作 台海情勢嚴峻](https://www.cna.com.tw/news/aopl/202110300010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+1. [8,000 Mayo Clinic Employees to be Fired for Refusing COVID-19 Jab](https://gettr.com/post/pfa29w4a5e)
+2. [Crowd protests Mayo Clinic requiring employees to be vaccinated](https://news.yahoo.com/crowd-protests-mayo-clinic-requiring-000200362.html)
+3. [Mayo Clinic](https://en.m.wikipedia.org/wiki/Mayo_Clinic)
+4. [Protesters outside Mayo Clinic La Crosse say they want a choice](https://www.news8000.com/protesters-outside-mayo-clinic-la-crosse-say-they-want-a-choice/)
+5. [Mayo Clinic employees are protesting the vaccine mandates in Arizona!](https://gettr.com/comment/car5t587e7)
+6. [Mayo Employee SCORCHES Mandates in LIVE Interview From Clinic](https://gettr.com/post/pf4dvl9549)
+
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-编辑/总编：木白
+编辑/总编：Irene木木
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
@@ -32,6 +40,8 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
 
  
 
