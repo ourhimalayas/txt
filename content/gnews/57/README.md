@@ -2,47 +2,60 @@
 ---
 
 
-## 格芯上市，敲钟的都有谁？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1625872/)
+## 众议院议员提出两党议案，以对抗中共在全球对美恶意挑衅
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1626840/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/dfd8d4ac-92a9-4d61-a179-2d9a4f0303c5.jpg)图片来源：GNEWS（秘翻组）
-整理：BENJ1、翼族
-编辑：翼族
+![](https://assets.gnews.org/wp-content/uploads/2021/10/intelligence-china-nov-2017-file-photo-an-american-flag-is-flown-chinese-national-emblem-640x480-2.jpg)图片来源：AP Photo/Andy Wong
+摘要翻译：
 
-全球第四大晶片工厂格芯（GlobalFoundries，格罗方德）周三（27日）在美国NASDAQ首次公开发行股票，开盘价格为每股47美金。格芯是全球最先进的半导体制造技术平台，生产包括28纳米、20纳米、14纳米，以及7纳米的芯片。
+众议院民主党人周三与共和党同僚联手提出一项法案，以监控和保护美国国家安全免受共产主义中国在全球范围内的侵略性“恶意活动”的影响。
 
-格芯目前为阿布扎比主权财富基金穆巴达拉投资公司（Mubadala Investment Co）所有。穆巴达拉投资公司是世界屈指可数的主权基金之一，运用资产超过2500亿美元。该公司面向全球50多个国家投资，同时因其是软银集团“愿景基金”的主要投资者而闻名于世。
+在一份声明中，国会女议员克劳迪娅·特尼 (Claudia Tenney) 办公室宣布提出两党合作的《中国观察者法案》，拟建立一个监控系统，以密切关注这个共产主义国家在全球范围内的邪恶活动，对美国国家安全所构成的威胁。
 
-穆巴达拉一直主要面向北美和非洲投资，曾在中共国投资滴滴出行、利用人工智能（AI）图像识别技术见长的商汤科技，以及运营“瓜子二手车”的车好多集团等企业。
+特尼介绍了这项主要由众议院外交事务委员会的共和党人发起的两党法案，她进一步声明：
 
-此次格芯上市，前来纳斯达克敲钟的就有穆巴达拉投资公司的首席执行官卡尔杜恩•阿尔•穆巴拉克（Khaldoon Al Mubarak）。阿尔.穆巴拉克生于1979年，曾在纽约大学学习，擅长管理，精明能干的他深受纳哈扬家族的信任。纳哈扬家族是阿联酋最大酋长国阿布扎比的世袭统治者。
+中共国在全球范围内积极加强其恶意行为，如今对美国构成了最重大的国家安全和经济威胁之一。我正在提出《中国观察者法案》，以便我们可以更好地监测中共国的危险行为，并准备好应对来自各个领域的威胁。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/skysports-khaldoon-al-mubarak_5403393.jpg)图片来源：Sky Sport
+中共国不受约束太久了，现在是美国采取果断行动的时候了。
+
+特尼议员接着感谢众议院外交事务委员会的共和党人迈克尔·麦考尔（德克萨斯州）和她的其它对立党派的同僚“感谢他们对这项立法的强有力的、两党的支持。”
+
+“在中国共产党的领导下，中华人民共和国在全球各个地区从事着恶意活动，”麦考尔宣称。
+
+他继续说道：“这一挑战与众不同，需要全球战略眼光”。
+
+根据特尼办公室的说法，该法案指示国务卿与五角大楼协调，在国务院内实施《中国观察者计划》。
+
+声明补充说：“该计划将投入资源和人力，以监测和打击中华人民共和国在外国的军事、经济和政治领域的恶性影响。”
+
+众议院外交委员会的两党成员和另外两名立法者，在主要因与移民有关的外交政策问题导致拜登总统的政府分崩离析的内讧中走到一起，共同提出了这项法案。
+
+拜登总统任命的政治官员中，来自进步左派阵营的人，与被一些分析家称为“其他”甚至“温和派”的人之间长达数月的内部分歧，暴露了导致一些高级官员辞职的政治动荡。
+
+除特尼外，另外两名民主党人—众议员阿尔比奥·西里斯 （Albio Sires，新泽西州）和迪恩·菲利普斯（Dean Phillips，明尼苏达州）以及五名共和党人–罗尼·杰克逊（Ronny Jackson，德克萨斯州）、彼得·迈耶（Peter Meijer，密歇根州）、特蕾西·曼（Tracey Mann，堪萨斯州）、布赖恩·巴宾（Brian Babin，德克萨斯州）和麦考尔联合提出了该法案。
+
+该法案将“加强美国政府与外国以及区域和国际军事、经济和政治组织和机构接触的能力，以更好地协调有关中共国恶性影响的政策”，以及其它事项。
+
+简评：美国民主党和共和党人为什么能联合倡议针对中共国的《中国观察者法案》？因为中共国用一带一路的贸易在全球用假骗偷和蓝金黄的行为，对相应国家在技术和基础设施上进行“掠夺性”贷款，这些贷款通常用当地国的战略资产为抵押。这样的行为已经如癌细胞严重侵蚀了全球秩序的正常发展。到了必须要动手术将中共国这个癌细胞切除的时候了，这也促成了美国民主党和共和党联合灭共，共同倡议灭共法案，依法灭共。
+
+郝海东先生在宣读《新中国联邦宣言》时喊出：“消灭中共是正义的需要”！以爆料革命和新中国联邦引领的灭共潮，已不分党派、种族，正在全球形成共识，中共也将随着熊熊灭共之火，迅速消亡。
+
+新闻链接：
+
+[House Lawmakers Introduce Bipartisan Bill to Counter China’s ‘Ramped Up’ Malign Acts Menacing U.S. Across Globe](https://www.breitbart.com/politics/2021/10/28/house-lawmakers-introduce-bipartisan-bill-counter-chinas-ramped-up-malign-acts-menacing-u-s-across-globe/)
+
+* * *
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-第二位重要人士则是艾哈迈德·叶海亚·艾德里西（Ahmed Yahia Al Idrissi），穆巴达拉投资公司直接投资部门的首席执行官，负责监督能源、化工、技术、生命科学、消费者、工业和金融服务组合。
+编辑：【英国伦敦喜庄园编辑部】
 
-在加入穆巴达拉之前，艾哈迈德是麦肯锡公司的合伙人，在那里他共同领导了主要投资者业务，也是阿布扎比业务的管理合伙人。他以前是宝洁公司的营销经理，在那里他领导了几个旗舰品牌。艾哈迈德拥有巴黎中央理工学院工业工程理学学士学位；麻省理工学院机械工程理学硕士。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/ahmed.jpg)图片来源：格芯官网
-
-
-第三位则是格芯现任CEO汤姆·考尔菲尔德（Tom Caulfield），自2018年3月起一直担任CEO职位。在此之前，考尔菲尔德在IBM工作了17年，担任过各种高级领导职务，最终担任IBM微电子部门300毫米半导体业务副总裁。随后他加入Soraa公司担任总裁兼首席运营官，Soraa是全球领先的固态照明技术开发商。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/tom-board-new.jpg)图片来源：格芯官网
-
-
-考尔菲尔德于2014年5月加入格芯公司，负责Fab 8半导体制造生产的运营、扩张和提升。
-
-10月7日，郭文贵先生在GTV直播中透露，格芯的7nm芯片和后续与IBM合作的生物芯片，将是支撑未来包括GTV、GETTR、GNEWS和Himalaya Reserve等在内的G系列，以及与星链（StarLink）融合发展的技术法宝。而格芯从成都撤离的背后，也是爆料革命在发力。一切都已经开始……
-
-*发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

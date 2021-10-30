@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/30/2021 9:38 PM (UTC)`
+
+在 GETTR 上加入我的直播。
+![img](https://media.gettr.com/group1/getter/2021/10/23/19/bef325e0-a7dd-eef4-f1c5-6977a36aeaf7/7f87f676c946650f527b3506087be38c.jpeg)
+
+---
+
 `@miles 10/30/2021 9:01 PM (UTC)`
 
 10月30号：Whenever a government claims to have the people's interests at heart, you need to think again.Never take anything any government tells you at face value.Always question everything<br/>无论何时如果一个政府宣称要把人民的利益放在心上<br/>你都要三思。 永远不要把任何政府告诉你的东西都当真<br/>. 要永远质疑一切！
@@ -302,13 +309,6 @@ F the FDA.  Do the opposite of what they recommend. <br/><br/>DON’T VACCINATE 
 @gfashion x Sportswear x Whistle<br/>Shop the collection www.GFASHION.com
 > `@gfashion 10/26/2021 2:01 PM (UTC)`<br/>Accessorize your sets. <br/>https://bit.ly/3piOYZU
 ![img](https://media.gettr.com/group45/origin/2021/10/26/14/0979c2c6-647b-3185-3f57-4ad510ece0d7/c4be5dd9e165136390ea8b5bb606f71a.png)
-
----
-
-`@miles 10/27/2021 12:02 AM (UTC)`
-
-10/26/2021 Miles Guo’s GETTR: The DWAC’s share price plunged. Claims can be made for the losses in the DWAC stock caused by the fraudulent information provided by Bruno Wu and the insider trading conducted by the 11 funds. We support President Trump and hope he will win， but this scam arranged by the CCP can destroy President Trump.<br/><br/>10/26/2021 文贵盖特：DWAC的股价暴跌，因吴征提供虚假信息和11家基金所进行的内幕交易而导致DWAC的股价下跌可要求索赔；我们支持川普总统并希望他赢, 但中共设计的这一骗局能毁掉川普总统！<br/>
-![img](https://media.gettr.com/group3/getter/2021/10/27/00/02/e00bea8e-a08c-460a-4e01-1358e5c3e34b/out.jpg)
 
 ---
 
