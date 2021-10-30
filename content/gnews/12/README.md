@@ -2,48 +2,28 @@
 ---
 
 
-## 中共国早已研制出中共病毒的中和抗体
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1627728/)
+## G20：到明年年中，保障全世界70%的人都接种疫苗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1627771/)
 
-作者：纽约香草山农场教育部 – 馬可波羅
+#### 撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-147.jpg)[图片来源](https://www3.nhk.or.jp/news/html/20211029/k10013327341000.html)
+据10月30日读卖新闻报道，20国集团（G20）国家·地区的财政部长和卫生部长29日在罗马举行联席会议，通过一项联合声明。他们同意加强对发展中国家的疫苗供应和财政支持，以便在2022年中期之前，为世界上70%的人口接种新冠疫苗。
 
+声明说，新冠的大流行 “继续在全世界产生重大影响”，尤其对于新兴和发展中国家的经济、穷人和妇女的影响甚为严重。他们一致认为需要继续合作，包括通过考虑新的融资机制，以促进为全球应对该大流行病提供资金。
 
+它明确规定成立一个工作组，以深化国际合作和信息交流，促进各国财政和卫生部门分别进行协作。加强对话，进一步优先扶植治疗药物与和新冠疫苗的研发。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+日本厚生劳动省部长后藤在线参加了会议。因忙于下议院选举而缺席的财政部长铃木，由财务官神田正人代替出席。在会议闭幕后的新闻发布会上，神田财务官说：“（对发展中国家的援助）进展不顺利，（在20国集团会议中）我们表明会做出进一步努力。”
 
+真相往往先掌握在少数人手里，而在邪恶势力面前，我们这帮少数人唯有团结，坚持不懈，唯真不破，才能把真相曝光于众。以毒灭共，以苗灭共(疫苗)，尚需你我继续努力。也希望普通民众能擦亮双眼，行动起来，反抗强制接种毒疫苗，才可换来健康身与自由心。如果一味相信政府，相信所谓的疫苗，把自己的生存权拱手交于政府，那后果可想而知。自己的身体自己做主，这是你我最基本的人权! 愿世界上以身试毒的血淋淋的惨剧终于2021。
 
+信息来源:
 
-2021年8月30日，文贵先生在直播中提到，D-NAb是中共病毒的解药。NAb是中和抗体的英文缩写。
+[Ｇ２０「来年半ばまでに世界の７割接種」…途上国へのワクチン供給などで一致](https://news.yahoo.co.jp/articles/81ddac55a905ed1d376967e25c6982d8465f35d8)
 
-据中国生物物理学会的网站显示，早在2020年7月23日，中国科学院生物物理研究所及军事医学科学院等单位的研究成果就已经发表在美国《科学》杂志上。该文章报道了一种人源化单克隆抗体NAb，即H014，这种NAb通过与S受体结合域结合，能有效中和SARS-CoV-2。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-113.jpg)
-参考链接：
-1.[Science：饶子和等团队在生命科学领域取得突破](https://www.bsc.org.cn/news/716.html)
-2. [Structural basis for neutralization of SARS-CoV-2 and SARS-CoV by a potent therapeutic antibody](https://www.science.org/doi/full/10.1126/science.abc5881)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编/编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

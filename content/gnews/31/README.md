@@ -2,25 +2,46 @@
 ---
 
 
-## 进入欧盟议会大楼必须持有 Covid 证书
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1627545/)
+## 美国两院通过《安全设备法》 彻底封杀华为中兴
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1627595/)
 
-新闻来源：德国NTV媒体网站
-
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/05/guillaume-perigois-0NRkVddA2fw-unsplash-scaled.jpg)
+作者：纽约香草山农场 – 007
 
 
-图片来源：Unplash
 
-欧洲议会10月29日晚上宣布，从 11 月 3 日起，只有接种过冠状病毒疫苗、检测过或康复的人才能进入欧洲议会大楼。 每个人都必须出示欧盟 Covid 证书。 国会议员和记者都执行同一政策。  该规则适用于法国、比利时和卢森堡所有三个地点的欧盟议会大楼。 接受来自这三个国家的不超过 48 小时的阴性 PCR 测试作为测试。 声明说，此举使国会议员能够在维持安全的前提下，重返面对面的议会工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-简评： 欧盟宣布这样的政策， 无视病毒来源的调查，也无视疫苗引起的各种伤害。 他们在装傻吗？
 
-原文链接：[https://www.n-tv.de/panorama/07-31-US-Geheimdienste-Genaue-Herkunft-des-Coronavirus-bleibt-wohl-unklar–article21626512.html](https://www.n-tv.de/panorama/07-31-US-Geheimdienste-Genaue-Herkunft-des-Coronavirus-bleibt-wohl-unklar--article21626512.html)
 
-责任编辑、发布： Shuizhuyu
+10月28日，美国参议院通过了《2021年安全设备法》。这项法案指示，对已被列入威胁国家安全黑名单的公司，美国联邦通讯委员会不得进行审议，或颁发新的设备执照。本月早些时候，众议院已通过了该法案。
+
+制定者指出，这是为了堵住漏洞，不让任何华为、中兴等中共支持的设备进入美国电信网络。今年3月，华为和中兴等五家中共国企业，被列入黑名单，但根据联邦通讯委员会2020年制定的规则，仅适用于联邦资金购买的设备。新的法案，纳入了用民间资金、或非联邦政府资金购买的设备。 共和党参议员鲁比奥对此表示，新法案将使中共不能再利用这个危险的漏洞。民主党参议员马基声明中说：“我们必须用我们的价值观来激活我们的技术。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-172.jpg)
+参考链接：
+[严阻华为中兴 国会两院通过《安全设备法》](https://www.voachinese.com/a/senate-passed-secure-equipment-act-20211028/6290409.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编/编辑：童谣
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

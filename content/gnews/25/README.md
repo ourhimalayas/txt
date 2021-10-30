@@ -2,46 +2,27 @@
 ---
 
 
-## 美国两院通过《安全设备法》 彻底封杀华为中兴
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1627595/)
+## 德国经济研究所主席警告“通胀恐慌”
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1627655/)
 
-作者：纽约香草山农场 – 007
+新闻来源：德国法兰克福报网页版
 
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-10月28日，美国参议院通过了《2021年安全设备法》。这项法案指示，对已被列入威胁国家安全黑名单的公司，美国联邦通讯委员会不得进行审议，或颁发新的设备执照。本月早些时候，众议院已通过了该法案。
-
-制定者指出，这是为了堵住漏洞，不让任何华为、中兴等中共支持的设备进入美国电信网络。今年3月，华为和中兴等五家中共国企业，被列入黑名单，但根据联邦通讯委员会2020年制定的规则，仅适用于联邦资金购买的设备。新的法案，纳入了用民间资金、或非联邦政府资金购买的设备。 共和党参议员鲁比奥对此表示，新法案将使中共不能再利用这个危险的漏洞。民主党参议员马基声明中说：“我们必须用我们的价值观来激活我们的技术。”
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-172.jpg)
-参考链接：
-[严阻华为中兴 国会两院通过《安全设备法》](https://www.voachinese.com/a/senate-passed-secure-equipment-act-20211028/6290409.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编/编辑：童谣
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/marcel-fratzscher-praesident.jpg)
 
 
+图片来源：FAZ
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+德国经济研究所 (DIW) 主席 Marcel Fratzscher 预计，到今年年底，德国的通货膨胀率将出现短期上升，随后会得到缓解。 他认为，到今年年底，通货膨胀率可能会上升到 5.0%。根据经济学家的说法，不应高估这一发展，我们预计 2021 年全年的通货膨胀率为 3.0%，这并不十分明显。
 
+DIW 假设德国将在 2022 年增长 2.5%。 通胀率很有可能再次稳定在 2.0% 左右。 所以我们应该保持冷静，不要陷入通胀恐慌，如果德国不增加税收，就无法避免额外的债务， 同时新政府的法案都表明， 德国政府每年将需要 500 亿欧元用于更多气候保护和未来十年数字化的扩展。
 
+简评： 德国的物价升涨10月份已经到达了28年来的最高水平4.5% 。石油天然气供给也曾造成一定的恐慌。 德国新政府同时由绿党参与执政， 那么环境保护和气候保护是重要执政理念， 导致每年可能要有500亿欧元的支出。 总之， 入不敷出的日子已经不远了。 政府只有增加税收一个手段， 而现行的税务制度已经让人们不堪重负。 出路在哪里？ 听郭先生的， 明年5月见。
+
+原文链接：[https://www.faz.net/aktuell/wirtschaft/diw-chef-fratzscher-erwartet-kurzfristigen-anstieg-der-inflation-und-warnt-vor-panikmache-17610373.html](https://www.faz.net/aktuell/wirtschaft/diw-chef-fratzscher-erwartet-kurzfristigen-anstieg-der-inflation-und-warnt-vor-panikmache-17610373.html)
+
+责任编辑、发布： Shuizhuyu
 
  
 

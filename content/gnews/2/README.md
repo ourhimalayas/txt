@@ -2,41 +2,28 @@
 ---
 
 
-## 中国人从未在江泽民家和习近平家之前有过今天的机会
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1627896/)
+## 中共高超音速武器发展速度令美军官僚厌烦官僚体制
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1627964/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/H-2-1536x864_副本.jpg)
-据[2021年10月29日 文贵大直播：格芯在美国上市的重大意义和其未来价值，格芯与数字货币紧密相连；喜币周一上市会带来什么样的改变；房地产会在明年5-7月爆雷，是中共制造的最大的噩梦](https://gtv.org/video/id=617be96f11d1862968fccc4b)时间点1：25：27——
+#### 撰稿：彩虹       
 
-**郭文贵先生：**话又说过来了，兄弟姐妹们，你们是所有人，七哥真的这好多年没有这种冲动，从前天开始起有点小肚子发热，有点睡不好觉，你看我几乎昨天晚上，Rachel你可以证实，我昨晚没睡觉，到现在我睡不到两个小时的觉，一直在开会，一直在开会，我舌头都硬了，讲话讲的。
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-565.png)图片来源：纽约邮报
+10月29日，《新闻极限》发表文章，称参谋长联席会议副主席约翰·海滕（John Hyten）将军说，中共军队的作战能力正以“惊人”的速度发展，但是，美国军队却一直受到官僚主义的令人无语的阻挠。
 
-但是我很兴奋，因为我真能感受到星期一会有什么大的事儿，因为这是中国人从来没有的，我真的认真想过这个问题，我希望在下边咱们战友们想想，中国人过去70年你们有这机会吗？跟我们有关系吗？人家再有什么好事，马云再好跟咱们没关系，跟咱们一点关系没有，就包括七哥过去都没有这个机会，你背后必须做交易，你必须是在人家之后，你不可能在习近平家和江泽民家之前。
+海滕是美国排名第二的军官，负责监督所有军事採购的「联合需求监督委员会」（JROC），定于下个月退休。
 
-同等的机会没有任何勾兑，没有任何恐惧，没有任何阴暗，没有任何担心，干干净净的，而且充满了希望和未来的，而且触手可及。
+据CNN报道，周四，在国防作家小组圆桌会议上，海滕表示：“在过去5年或可能更长的时间里，美国完成了9次音速飞弹测试。与此同时，中国却已做了数百次音速导弹测试，个位数对上百位数不是一个好状况。这并不意味着我们在高超音速技术的发展进程不快，只能说我们的发展方法是根本不同的”。
 
-（以下暂略）
+但是，另据军事专家指出，高超音速武器技术如果成型，中共可将核弹头送至南极上空，并绕过北半球的美国反导弹系统。
 
-撰稿：喜马拉雅的肉夹馍；
+而《华盛顿观察家报》则引用海滕的话说：“我们将中国称为步步紧逼的威胁，这是一个有用的术语。因为中共国（军力）发展速度惊人，如果我们任其发展，那么中共国军力前进的速度将超过俄罗斯和美国，这是即将到来的事情，所以我们必须有所作为。不仅仅是美国需要行动，我们的盟友也需要，因为（高超音速飞弹）才是真正改变游戏规则的东西。如果只是美国单打独斗，那么不出五年就会有问题。但如果是美国和盟友一起努力，我认为我们还能够抵挡一段时间。”
 
-审核：喜马拉雅的馍夹肉；
+这位美国军队官僚者对国防部表达了极度不满，他说：“尽管我们在某些方面取得了进展，但国防部的官僚主义导致了严重阻碍。如果我们想的话，我们可以走的很快，但我们设置的官僚机构实在是太令人无语了。”
 
-校对：Maarago；
+**新闻来源**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[Gen. Hyten: ‘Hundreds’ of Hypersonic Tests for China Compared to 9 for US](https://www.newsmax.com/newsfront/hyten-china-hypersonic-missiles/2021/10/29/id/1042524/)
 
  
 

@@ -2,41 +2,50 @@
 ---
 
 
-## HIMALAYA COIN TO THE MOON
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1627418/)
+## 遭风暴袭击后，维多利亚州10万户家庭仍断电
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1627495/)
 
-作者：香草山金融部 – FaithKnight、相聚盘古、文唐、文凡、维度
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/4100042-16x9-940x529-1.jpg)
 
 
 
-老百姓创造的价值和财富，一直用传统法币系统比如美元、人民币来存储和衡量。现在所有货币系统因为和黄金脱钩后，任意放飞，全世界货币超发GDP 的300%多，各国早已债台高筑，特别在CCP病毒、疫苗造成全球生产停摆、梗阻后，各国继续无锚印钞，加速债务崩塌的到来。在这个人类历史的十字路口上，喜马拉雅币的横空出世在虚拟加密货币迅速抢占未来货币金融体系的洪流中独树一帜。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-19.jpg)
-喜马拉雅币是一种基于区块链以太坊ERC1404协议发行的加密代币，利用混合区块链以太坊和Quorum技术，其智能合约配备专业审计保障，实现大量、安全、快速且低成本的金融交易。其独特的Himalaya dollar和Himalaya coin的双币组合设计，使她能对抗现有加密货币市场的波动性，极大的弥补了现有加密货币基础设施的不足。
-
-喜马拉雅币的发行方——喜马拉雅联储对其用户采用最高级别的KYC验证机制，并严格遵守合法的交易规则，在法律监管上给予全球会员和监管者强大的信心，极大地降低非法交易的风险。同时在技术上她采用军用级别的网络安全协议，以确保提供准确、可靠的分类记账，高效的数字资产保护，喜币生态系统内的无缝资产恢复，以及会员信息的隐私保护。
-
-喜马拉雅货币与其他加密数字货币最大的不同，就是其背后庞大的喜马拉雅生态系统。已经诞生的G|Fashion、GTV、Gettr, 以及未来将出世的G|Mall等一系列的电子商务、社交媒体平台将成为世界上一个全方位的新兴数字经济生态系统，而喜马拉雅币就是这个生态系统中流动的血液。这个生态系统将拥有喜马拉雅联储和Gclub等全球高质量客户，各国商家和品牌将无缝对接这个超越国家和政治壁垒的超级市场，其创造的价值和资本直接存储于喜马拉雅的金融体系中，安全、自由、低成本地流通，并将稳定、持续、长期地增长。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-22.jpg)
-对未来喜马拉雅经济生态的市场预估，以及喜马拉雅币背后强大的实力背书，喜马拉雅币发行总量为1000亿枚，每年10亿枚分100年发行。在布雷顿森林体系解体后，货币首次重新与黄金挂钩，为世界货币滥发、债台高筑并即将崩溃的今天提供一个全新的货币系统解决方案。除首次发行外，未来的发行都将由市场决定，无论是币的数量还是价格，完全公开透明，解决货币滥发、超发操纵市场的世纪难题！
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+图片来源：abc.net.au
 
 
+#### 编译：小红帽
+
+在狂暴的风暴摧毁了电线并损坏了房屋，导致大面积停电之后，澳大利亚维多利亚州超过10万处房产仍处于断电状态。
+
+星期四晚上，毁灭性的狂风袭击了该州，成千上万的人请求紧急援助，数百处房产受损。
+
+维多利亚州国家紧急服务部门在周五通宵工作，以处理恶劣天气后的大量求助请求。
+
+截至周六早上7 点30分，国家紧急事务局正在处理1300多个援助请求。
+
+能源市场运营商AEMO表示，截至周六上午8点25分，仍有11万户家庭断电，低于周五的51.8万户。
+
+联合能源公司表示，“在评估网络损坏的全部范围之前”，很难估计准确的电力恢复时间。
+
+电线的损坏非常严重，一些客户可能在本周末甚至下周初都没有电。
+
+紧急事务管理专员安德鲁·克里斯普 (Andrew Crisp) 还表示，未来几天可能会有更多狂风暴雨。
+
+风暴使墨尔本几条火车线路线路停运，疫苗接种中心关闭，并使弗兰克斯顿和帕肯纳姆的两所学校暂停了VCE考试。
+
+风暴还在南澳大利亚造成了广泛的破坏，导致阿德莱德的3万多户家庭和企业断电。
+
+**参考新闻：**[Storm damage: 100,000 Victorian homes still in the dark (thenewdaily.com.au)](https://thenewdaily.com.au/news/state/vic/2021/10/30/victoria-storm-damage-electricity/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
