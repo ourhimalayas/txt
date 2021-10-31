@@ -2,44 +2,65 @@
 ---
 
 
-## 马克·莫比乌斯谈通货膨胀：价格将“大幅”上涨
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1629554/)
+## 信仰的力量——郭先生谈喜币上市
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1629616/)
 
-作者：美国香草山金融组- 德州瑞秋
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+**字幕/剪辑：**尕鱼儿 
+**编辑/发布：**Candy
 
 
+```
+星期一，会改变一切；
+星期一，会创造不同的文化，
+不同的世界的新人类，
+不同的财富观和不同的金融系统。
+而且大家将看到的全人类对信仰和宗教的重新理解。
+我说的是信仰和宗教，
+我没光说宗教，也没有光说信仰。为什么？
 
-10月29日，Mobius Capital Partners 创始人马克·莫比乌斯 （Mark Mobius）周五做客 “Mornings with Maria” 节目 ，并提供了对通货膨胀和供应链危机的看法，认为价格将 “急剧上涨” 。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture99999.jpg)
-马克·莫比乌斯 （Mark Mobius）是新兴市场基金经理和 Mobius Capital Partners LLP 创始人，自1987年投资新兴和前沿市场。
+未来，虚拟货币在宗教和信仰领域会扮演什么角色，
+大家从来没探讨过，哪天我给你们讲讲。
 
-在“Mornings with Maria” 节目中，莫比乌斯指出：“通货膨胀不仅仅是供应链问题，这些问题非常非常大。现在是人员成本的问题。劳动力成本不仅在美国上升，而且在全球范围内都在上升，我认为这将是一个巨大的挑战，因为越来越多的这些公司需要人来管理公司并实际完成工作，这会使成本越来越高。所以你会看到利润率受到打击。同时，随着这些公司离开中国，他们也会在世界其他地方面临着更高的成本。”
+黄金会扮演什么角色？
+我相信黄金一定会回归（之本身属性），
+你们一定不要忘了啊！
 
-莫比乌斯强调，现在的通货膨胀不是暂时的。“如果您看到货币供应量增加了 30% 或更多，这不是暂时的。尽管科技可以降低某些领域的成本，但现实是随着时间的发展，价格仍将急剧上涨。在我看来，这毫无疑问。 “
+喜联储中整个的稳定币是百分之百和美金挂钩，
+随时你可以拿走，随时可以进，随时可以出。
+美金跌就跌，美金涨就涨。
 
-莫比乌斯对通胀的看法与郭文贵先生不谋而合。郭先生在近期的大直播中多次提及世界性的金融危机将要来临，加上中共病毒肆虐，人工成本会越来越高。
+它的浮动币就叫喜币，
+它是拿所有当年收入的20%（购买）黄金作为储备的，
+千万不要忘了这个问题。
 
-参考来源：
-1. [https://www.foxbusiness.com/economy/labor-price-inflation-supply-chainmark-mobius](https://www.foxbusiness.com/economy/labor-price-inflation-supply-chainmark-mobius)
-2. [https://en.wikipedia.org/wiki/Mark\_Mobius#cite\_note-cnbc.com-3](https://en.wikipedia.org/wiki/Mark_Mobius#cite_note-cnbc.com-3)
+未来的石油、未来的粮食，
+大家知道，巴西的整个粮仓、巴西总统跟咱们啥关系。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+在二十四小时大家都有睡觉的时间，
+在欧洲的、在巴西的、在日本的、在加拿大的、在澳大利亚、在新西兰的
+我们的政治公关组从来不会睡觉的，
+他在全世界在为我们新中国联邦公关！
+(某位西人说)新中国联邦就是中国人的未来，也是世界的未来。
+而且她说当虚拟货币走到走进宗教，和信仰挂钩的时候，
+就真的是人类的一个新世界到来的时候！
 
-编辑/校对/发稿：Hetangyuese
+在这种情况下七哥晚上睡俩小时，
+还能兴奋地和美女约会，
+到这儿直播。
+我还真的是只吃了昨天中午那顿生鱼片，
+到现在没吃东西，
+还那么兴奋！为什么呀？
+人要有希望，人一定要有奔头啊——就像我爹我娘说的！
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+(免责声明：本文内容仅代表作者个人观点，Gnews不承担任何责任。）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
+更多资讯，请关注：
+澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
+澳大利亚墨尔本雅典娜农场Gettr：himalayaathena
+澳大利亚墨尔本雅典娜农场YouTube
+澳大利亚墨尔本雅典娜农场Discord
+澳大利亚墨尔本雅典娜农场GTV直播1台
+```
 
 
  

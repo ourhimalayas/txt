@@ -2,45 +2,37 @@
 ---
 
 
-## 中共控制的房地产公司无还款意愿将导致金融灾难
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1629531/)
+## 美国通货膨胀连续四个月创30年新高
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1629555/)
 
-作者：香草山农场 – 飞虹
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+作者：美国香草山金融组- 德州瑞秋
 
 
 
-在10月29日的大直播中，郭文贵先生再谈中共国的房地产话题。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
 
-自恒大9月份传出无力偿还负债以来，花样年、华夏幸福、泰禾集团等大型房地产公司的债务违约等问题陆续引起了外界的关注。各界对中共国房地产业可能发生“暴雷”事件的预期越来越强烈。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-20.jpg)
-郭先生在直播中提到，由于中美财务年度计算时间不同，以及向中共房地产业提供大量资金的国外对冲基金一般都会提供一定的还款宽限期，中共房地产发生融资暴雷的时间将集中在2022年5月到7月。
 
-而最让国际金融界恐惧的，是他们发现中共这些房地产商并无还款意愿。
 
-其结果，一方面，将使国际金融机构陷入灾难；另一方面，将会拖累中共国内的银行，牵连出中共相关高层隐藏的代持者，引发中共国内金融和政治的动荡，甚至导致保险公司不赔付保险，给墙内百姓带来无法想象的灾难。
+根据美联储首选的通胀指标核心个人消费支出指数，目前美国的年通胀率为 3.6%。该指数已连续四个月保持在 30 年高位。一般来说，美联储在制定经济政策时通常以 2% 的通胀为目标。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture00000.jpg)
+10 月 5 日，财政部长珍妮特·耶伦 (Janet Yellen) 对 CNBC 表示： “供应链的瓶颈发展导致了通胀。我相信它们是暂时的，但这并不意味着它们在接下来的几个月里就会消失。”
 
-参考链接：[中共控制的房地产公司无还款意愿将导致金融灾难](https://gettr.com/post/pflgoxbdc2)
+10月29日，耶伦试图解决通胀问题，建议指出如果国会通过拜登总统提出的 1.75 万亿美元支出计划，将会降低通货膨胀。耶伦表示 “拜登总统提出的1.75万亿美元支出计划会起到降低一些最重要的成本的作用，比如他们为医疗保健和儿童保育支付费用。” 耶伦在周五的另一次采访中告诉 CNBC。 “这是抗通胀的做法。” 但并不是每个人都认为政府参与这些领域会降低成本。曾担任特朗普经济顾问的 FreedomWorks 高级研究员斯蒂芬摩尔认为 “政府补贴总是导致价格上涨，” 他指出， “飙升的大学学费和医疗保健费用就是证据。
 
-![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+参考来源：[https://www.foxbusiness.com/economy/treasury-secretary-janet-yellen-inflation-u-turn](https://www.foxbusiness.com/economy/treasury-secretary-janet-yellen-inflation-u-turn)
 
-总编：木白
-编辑：木白
-校对/发稿：Hetangyuese
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+
+编辑/校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
 
 

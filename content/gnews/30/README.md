@@ -2,66 +2,132 @@
 ---
 
 
-## 加拉赫议员呼吁对病毒溯源来场真正的调查
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1629539/)
+## 两三年后的价格是决定喜馬拉雅币价值的关键之二
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1629572/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+[https://gtv.org/video/id=617b90b7adfd99590c30b117](https://gtv.org/video/id=617b90b7adfd99590c30b117)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/G-7.jpg)polotifact.com
-中共是一个怎样邪恶的货色，福奇怎样充当了罪恶集团的帮凶？这是当今美国，乃至世界面临的最大议题。拜登是罪恶集团一员，还是不知情的参与者？只有捋顺了这些，才能为治理目前的乱世找到解决方案。
+第二条
+Segundo
 
-《福克斯新闻》10月30日发表文章，题目“众议员迈克·加拉赫（Mike Gallagher）：让我们了解关于中共国、中共（冠状）病毒的真相——拜登，福奇必须对美国人民诚实”。文章副标题指出，每一天，如果没有对疫情进行认真调查，这一天中共病毒的受害者就没有得到正义。【1】
+记住七哥说的话, 喜币真正的价格
+Recuerda lo que digo, el precio real de la moneda de Himalaya
 
-全文如下：
+前三个月你千万别在乎
+No tomes en cuenta los primeros tres meses
 
-国家卫生研究院（NIH，The National Institutes of Health）上周终于承认了一个非常明显的事实：纳税人的钱通过彼得·达扎克（Peter Daszak）的“生态健康联盟”（EcoHealth Alliance）支持了在武汉的功能增强研究。
+它涨到100万
+Si sube hasta 1 millón
 
-在致众议院共和党委员会领导人一封重要的信中，NIH直截了当地将责任归咎于“生态健康联盟”，因为它没有报告由联邦资金进行的导致中共病毒致病性（或传染性）增强的实验——这直接违反了其拨款条款。NIH接着表示，“生态健康联盟”将有五天的时间提交任何和所有未公布的实验数据以及与此项拨款相关的工作记录。
+它跌到1毛钱, 0.001分你都别在乎
+O baja a 1 centavo, 0.001 centavos, no lo tomes en cuenta
 
-虽然NIH迟来的承认是向前迈出的一步，但这封信提出的问题多于它的答案。
+喜币真正的拥有者
+El verdadero dueño de la moneda de Himalaya
 
-首先，我们仍然不知道NIH何时第一次发现“生态健康联盟”正在进行的、信中概述的功能增强研究，这封信暗示，直到2021年8月“生态健康联盟”提交了一份赠款进度的报告，NIH才知道这些实验，然而，8月份已经是写信的两个月前。
+是在两年后
+Es después de dos años
 
-NIH非常清楚公众对这事的兴趣，如果他们愿意在两个月内对这一事实保持沉默——记住，他们只是在回应国会调查时才披露了这一消息——值得一问的是，安东尼·福奇在7月份是否知道这一功能增强实验？他当时的宣誓作证是，美国政府从未资助武汉的任何功能增强研究。
+它几乎它能告诉你
+Ella prácticamente te puede decir
 
-这也回避了一个问题：为什么福奇和NIH没有更主动地提供这些信息？
+是否你应该持有和不应该持有
+Si debes tenerla o no
 
-在整封信中，NIH对中共病毒疫情的起源作出了广泛而果断的声明，尽管它公开承认掌握的信息有限，NIH强调指出，由于与中共病毒存在基因差异，由“生态健康联盟”发表并由NIH资助的研究不可能与疫情的起源有关。
+喜币一定是挣钱的
+La moneda de Himalaya seguramente puede ganar dinero
 
-然而，“生态健康联盟”发表的研究只是故事的一半，与任何研究组织一样，“生态健康联盟”保存着在实验过程中收集的大量数据，由于种种原因这些数据没有放进已发表的文献，一种病毒株不需要公布就能引起疫情大流行。
+谁要赔了钱
+Quien pierde el dinero
 
-当然，NIH知道这一点，这正是为什么他们要求“生态健康联盟”交出“该资助下进行的实验和工作中所有未发表的数据”。显然，NIH明白这项未发表的研究可能包含重要线索。然而，它没有向国会坦白，它需要更多的信息来了解发生了什么，而是装出一副有信心的假象，即联邦资助的研究与中共病毒疫情之间绝对没有任何的联系。再说一遍：为什么？
+我可以说我100%赔
+Puedo decir que yo perderé el 100%
 
-这里还有第三个明显的问题，NIH谴责“生态健康联盟”缺乏信息的披露——包括迟交两年多的进度报告——指出“更多的合规努力仍在继续。”
+我100%给你们
+Les doy mi 100%
 
-想想看，NIH认定“生态健康联盟”违反了其与联邦政府签订的合同条款，直到到期两年多后才提交所需的进度报告，NIH唯一能得到的惩罚就是它正在继续“额外的合规努力”。这是受资助者的标准协议吗？NIH对其420亿美元预算的监督是如此松懈吗？还是“生态健康联盟”正在享受特殊待遇？这是为什么呢？
+谁赔了钱我承担
+Quien pierde dinero yo lo asumo
 
-我问这些问题的原因很简单，疫情的起源是当今世界面临的最重要问题，我的许多共和党同僚，包括众议院监督委员会、能源和商业委员会、外交事务委员会和情报委员会的同僚，都在进行勤勉和批判性的监督，以寻找答案。然而，出于某种原因，联邦官僚机构似乎对直接面对它的证据毫无兴趣。
+它一定会挣的
+Ella seguramente ganará dinero
 
-这里的答案不是学术性的，中共政府正疯狂地试图将疫情责任转移到美国身上，先是疯狂地指责美国军方，最近又将矛头指向缅因州的龙虾，这没有一丝讽刺意味。淡化中共国对该病毒的责任的论点直接和实质性地支持了中国共产党的荒谬宣传运动，并允许该党不负责任地逃避追责。
+它只是挣多少而已
+Solamente consiste en cuánto
 
-虽然我们不知道为什么我们的政府——拜登政府，情报部门为期90天的中共病毒溯源调查，只雷声大雨点小地发布了一份一页纸的滑稽摘要——却采取措施在阻碍有关中共病毒真正的调查，但我们知道这个代价有多大。
+但是对你来讲说, 老实话
+Pero para ti, hablando sinceramente
 
-每一天如果没有对疫情进行认真调查，中共病毒的受害者这一天就没有得到正义，中国共产党就在逃避追责，真相仍然被掩盖。
+你会挣个3倍、5倍、10倍、100倍
+Ganarás el triple, cinco veces, diez veces, hasta cien veces más
 
-够了，现在是时候来场真正的调查了。
+你挣完钱以后, 你拿走了我会告诉你
+Luego cuando ganes el dinero y lo vendas, te digo
 
-（全文完）
+你什么都没有
+No tendrás nada
 
-在文贵先生早在7月就曝出拜登政府的溯源报告会为中共撇清关系，但他同时强调那些因中共病毒受到伤害的人们能轻易放过这事和这些人吗？
+真正的想了解喜币的人是在两三年以后
+Quien realmente quiere conocer a la moneda de Himalaya es después de dos a tres años
 
-90天后拿这样一页纸的报告摘要来糊弄，只会唤醒更多的人看清现实。美国国家情报委员会总监10月底发布的一份更全面的疫情溯源评估报告仍表示，“除非出现意外的突破，否则情报机构将无法确定中共病毒是通过动物传染给人类的，还是从实验室泄漏的。”【2】
+就像当年比特币
+Al igual que Bitcoin en ese entonces
 
-加拉赫议员的这篇文章观点笔者完全同意，那根本不是真正的调查，现在该来场真正的调查了！
+当时我们买的时候
+En aquel momento cuando lo compramos
 
-原文链接：
+千八百块钱
+En 800 a 1000
 
-【1】[https://www.foxnews.com/opinion/truth-china-covid-biden-fauci-honest-rep-mike-gallagher](https://www.foxnews.com/opinion/truth-china-covid-biden-fauci-honest-rep-mike-gallagher)
+我那时候我说有多少买多少
+En ese momento dije que comprara todo lo que tuviera
 
-【2】[https://gnews.org/zh-hans/1627221/](https://www.foxnews.com/opinion/truth-china-covid-biden-fauci-honest-rep-mike-gallagher%20https://gnews.org/zh-hans/1627221/)
+我们买的比特币
+El Bitcoin que compramos
 
+到现在我们还有很多呢
+Hasta ahora todavía tenemos mucho
 
+我们的基金里边人说
+La persona de nuestra fundación dijo
+
+我才知道基金有那么多比特币
+Fue que supe que la fundación hay tantos Bitcoin
+
+他说七哥当初听你的
+Él dijo en aquel tiempo te escuché
+
+都是1000多块钱买的
+Fueron comprados en 1000
+
+我们都没有卖
+No lo vendimos
+
+这才是真正的(投资)
+Esto es una verdadera (inversión)
+
+你想想(如果)1万卖2万那不就全完了吗
+Piensa si diez mil lo vendes a veinte mil, ¿no se acabará todo?
+
+———————————————————
+
+日期：10/27/2021
+原视频标题：
+El precio de los próximos dos a tres años es una de las claves para determinar el valor de la moneda de Himalaya
+原视频日期：10/23/2021
+任务编号：KC207（2645）
+视频时间段：0:00-1:20
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
