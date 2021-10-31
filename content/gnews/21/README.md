@@ -2,21 +2,38 @@
 ---
 
 
-## 秘翻在线 :超过一万名美军飞行员宁冒惩处风险也不愿接种疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1630682/)
+## 日本通过伊维菌素合法化来结束疫苗引起的大流行
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1630718/)
 
-撰稿：William
-校对：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/AZ-7.jpg)
-图片来源:网路
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-根据零对冲(Zero Hedge) 的报导,截至 10 月 25 日，大约 11,462 名飞行员仍未疫苗接种。根据美国空军公布的数据，另外还有近 12,000 名预备役人员或太空军成员未接种疫苗。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/IVERMECTIN.jpg)
 
-8 月底，美国国防部长劳埃德·奥斯汀 (Lloyd Austin) 下令，除非获得豁免权，所有美军部队必须全部接种疫苗。空军发言人10月告诉大纪元时报，截止日期不会推迟。报导指出美国任何部队在截止日期前未接种疫苗将被视为违反法律，并根据《统一军事司法法典》(Uniform Code of Military Justice)第 92 条接受纪律处分，他们可能会被军事法庭审判或面临其他纪律处分。
 
-”这可是大事!” 郭文贵先生在盖特文中指出。这些美国空军甘冒违抗命令的风险，也要争取美国宪法所保障的身体自主权及医疗权。未来无论是从法律集体诉讼美国政府或在军队、美国社会的影响，必定是对抗医疗暴政、撼动人心的壮举。
 
-新闻来源：[Over 11,000 Active-Duty Air Force Personnel Unvaccinated With Days Left Before Deadline](http://Over%2011,000%20Active-Duty%20Air%20Force%20Personnel%20Unvaccinated%20With%20Days%20Left%20Before%20Deadline)
+图片来源：medpagetoday.com
+
+
+#### 编译：小红帽
+
+日本刚刚拉平了他们的中共病毒（COVID-19）疫情曲线。他们通过合法化使用伊维菌素来做到这一点。
+
+封锁、隔离、强制戴口罩和大规模接种疫苗计划等公共卫生建议，只会继续产生更多的病例和拉高住院曲线。保留可行的治疗方法是一种反人类罪，几乎削弱了人类适应呼吸道感染并从中恢复的能力。但日本出现了希望。在日本，伊维菌素已被用于帮助人们从中共病毒中康复，从而获得更持久的免疫力。
+
+疫苗引发的大流行可能已经失控，但日本决定做一些与美国和其他仅仅依赖疫苗和口罩的失败国家不同的事情。在9月，日本部署了伊维菌素，并开始更有尊严地治疗中共病毒患者，随后中共病毒病例数迅速下降。
+
+随着越来越多的日本人得到妥善的治疗和康复，日本人使用中共病毒检测的数量也下降了三分之一。中共病毒检测的阳性率也从8月下旬的25%下降到10月中旬的1%。事实证明，伊维菌素有助于中共病毒病人更快地康复，减少了病毒的传播并赋予更持久的免疫力。
+
+**参考新闻：**[Japan ends vaccine-induced pandemic by legalizing IVERMECTIN, while pharma-controlled media pretends masks and vaccines were the savior – NaturalNews.com](https://www.naturalnews.com/2021-10-29-japan-ends-vaccine-induced-pandemic-legalizing-ivermectin.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

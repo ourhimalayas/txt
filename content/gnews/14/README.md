@@ -2,38 +2,39 @@
 ---
 
 
-## 日本通过伊维菌素合法化来结束疫苗引起的大流行
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1630718/)
+## 澳洲颁布新版“避风港”政策降低港人移居门槛
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1630753/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：澳喜农场 在远方
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/IVERMECTIN.jpg)
-
-
-
-图片来源：medpagetoday.com
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-#### 编译：小红帽
 
-日本刚刚拉平了他们的中共病毒（COVID-19）疫情曲线。他们通过合法化使用伊维菌素来做到这一点。
+澳洲政府10月29日颁布新版《2021年移民规则例修订（香港）法例》，专门为港人设立了一个全新签证分支渠道“香港组别”。从明年3月5日起，持有澳大利亚临时工作签证、临时技术短缺签证，或临时毕业生签证的香港人士，在持签3至4年后便可申请永久居留权，无须达到传统计分要求。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1031AM（1-5）視頻備用.005.jpeg)
+在《港版国安法》去年7月1日在港施行后，澳洲政府随即于7月9日为港人开设“避风港”政策，延长持有香港特区护照的毕业生，以及临时工作签证的港人居留权至5年。今年年初，澳洲总理莫里森宣布，在“避风港”政策签证届满后，符合经调整资格条件的港人，可以申请技术类别永久签证。今年8月，澳洲政府更新“避风港”政策对象，从原有的“香港特区护照持有人”，扩大至所有持有“英国国民海外护照（BNO）”的香港人。
 
-封锁、隔离、强制戴口罩和大规模接种疫苗计划等公共卫生建议，只会继续产生更多的病例和拉高住院曲线。保留可行的治疗方法是一种反人类罪，几乎削弱了人类适应呼吸道感染并从中恢复的能力。但日本出现了希望。在日本，伊维菌素已被用于帮助人们从中共病毒中康复，从而获得更持久的免疫力。
+参考链接：
 
-疫苗引发的大流行可能已经失控，但日本决定做一些与美国和其他仅仅依赖疫苗和口罩的失败国家不同的事情。在9月，日本部署了伊维菌素，并开始更有尊严地治疗中共病毒患者，随后中共病毒病例数迅速下降。
+1. [澳大利亚设“香港渠道” 降低港人移居澳洲门槛](https://www.huaglad.com/aunews/20211031/451639.html)
+2. [Migration Legislation Amendment (Hong Kong) Regulations 2021](https://www.legislation.gov.au/Details/F2021L01479)
 
-随着越来越多的日本人得到妥善的治疗和康复，日本人使用中共病毒检测的数量也下降了三分之一。中共病毒检测的阳性率也从8月下旬的25%下降到10月中旬的1%。事实证明，伊维菌素有助于中共病毒病人更快地康复，减少了病毒的传播并赋予更持久的免疫力。
 
-**参考新闻：**[Japan ends vaccine-induced pandemic by legalizing IVERMECTIN, while pharma-controlled media pretends masks and vaccines were the savior – NaturalNews.com](https://www.naturalnews.com/2021-10-29-japan-ends-vaccine-induced-pandemic-legalizing-ivermectin.html)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-***发布：小红帽***
+总编：飞虹
+编辑：珈沅
+校正/发稿：我不在这里
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
