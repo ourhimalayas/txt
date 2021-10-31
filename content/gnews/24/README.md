@@ -2,35 +2,51 @@
 ---
 
 
-## 传奇说唱歌手冰块因强制疫苗政策辞演索尼影业新片
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631160/)
+## 华为被爆向民主党说客支付了100万美元
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631198/)
 
-作者：纽约香草山信息部- 诺雅
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据10月30日盖特消息报道，因为拒绝制片人对新冠疫苗接种的要求，顶级说唱歌手Ice Cube ，又称冰块，本名奥谢-杰克逊，决定退出明年7月上映的索尼公司喜剧《哦，见鬼了》。
+作者：纽约香草山农场 – 飞虹
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide8-12.jpeg)
 
-报道中提到，该影片于今年6月开始制作，索尼影业邀请知名喜剧导演樱井喜多雄执导，由喜剧界的重磅人物杰克-布莱克和冰块联合出演。据了解，该片原本计划于今年冬天在夏威夷开始拍摄，冰块本人将获得九百万美元的片酬。但制片人的疫苗接种要求，导致了冰块的退出，工作室正在寻找替代者，电影制作已经推后。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+10月28日，美国一美新闻网报道，美国民主党说客托尼·波德斯塔与中国电信巨头华为关系密切。华为可能在6月和9月分两期向波德斯塔支付了100万美元，用于托尼向拜登政府推销他们的产品。
+
+在华为向美国说客支付这些款项的同时，拜登政府建议将华为列入贸易黑名单。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-11.jpg)
+一位白宫官员表示：“拜登总统和本届政府认为，华为等不可信供应商生产的数字基础设施设备对美国、我们的盟友和合作伙伴的安全构成威胁。（上届政府）针对华为的出口管制仍然有效。”
+
+另据报道，仅今年一年，华为就在内部和外部游说上花费了约340万美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-18.jpg)
 参考链接：
-1）[https://gettr.com/post/pfmm0t7aa8](https://gettr.com/post/pfmm0t7aa8)
-2）[Legendary Rapper Ice Cube Quits Sony Film Over Covid Vaccine Mandate](https://www.infowars.com/posts/legendary-rapper-ice-cube-quits-sony-film-over-covid-vaccine-mandate/)
-3）[Jack Black Falls Hard for Ice Cube’s Mom in Oh Hell No](https://movieweb.com/oh-hell-no-jack-black-ice-cube/)
+[Huawei Reportedly Paid Democrat Lobbyist $1M](https://www.oann.com/huawei-reportedly-paid-democrat-lobbyist-1m/)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-总编：瑞卡
-编辑：Irene 木木
-校正/发稿：谐趣园
+总编/编辑：木白
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

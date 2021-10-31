@@ -2,51 +2,22 @@
 ---
 
 
-## 日本将限制中共国留学生涉猎安保敏感技术
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631240/)
+## 美德要防止俄操纵天然气供应
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1631254/)
 
-作者：日本方舟农场 – Andy5
+俄罗斯莫斯科喀秋莎农场 星河
 
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/u-1.jpg)vestnikkavkaza.net
+美东时间10月31日报道，白宫新闻处发表声明，美国总统拜登、德国总理安格拉∙默克尔和德国副总理奥拉夫∙肖尔茨讨论了防止俄罗斯“操纵”天然气供应的联合措施。
 
+声明称，“拜登总统强调了继续努力实施美德联合协议的重要性，以支持乌克兰和欧洲的能源安全，让俄罗斯不能为有害的政治目的操纵天然气供应。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-据日媒27日报道，日本政府将出台“许可制”政策，限制外国留学生特别是来自中共国的留学生，学习“涉及安保的敏感技术”。
-
-日本经济产业省计划在2021年内修订《外汇和外国贸易法》相关规定并从2022年度开始实施。日本高校如果为在日留学半年以上的外国学生提供“重要技术”，校方必须获得经济产业大臣的许可。“重要技术”包括半导体制造设备、机器人等技术。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-155.jpg)
-报道特别指出，在推进人工智能、量子密码等尖端技术研发的日本高校中，存在为数不少的来自中共国的留学生，他们可能涉及经常性的“敏感技术外流”。
-
-中共喉舌《环球时报》发文指，日本对中共国的“竞争、防范和牵制”，可能成为贯穿日本经济安保政策的一条暗线。
+他们还讨论了阿富汗的局势，包括继续提供人道主义援助。拜登还感谢德国欢迎3.5万名移居美国的阿富汗人，并祝贺默克尔16年来在美德共同安全和跨大西洋关系上的领导作用。
 
 参考链接：
-[日本将限制中国留学生学习所谓“涉及安保的‘敏感技术’”](https://news.sina.com.cn/c/2021-10-29/doc-iktzscyy2395291.shtml)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编: Irene木木
-编辑：山本不惑
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[https://www.rbc.ru/rbcfreenews/617e0ecc9a79477d47c4f824](https://www.rbc.ru/rbcfreenews/617e0ecc9a79477d47c4f824)
 
  
 

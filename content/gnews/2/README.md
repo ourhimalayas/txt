@@ -2,51 +2,31 @@
 ---
 
 
-## 议员墨菲反对FDA顾问：这是最危险的说法
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1631472/)
+## “IPAC”罗马会议呼吁G20强硬对抗中共
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1631483/)
 
-翻译**：Lulumi**
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-584.png)图片来源**：** theepochtimes.com 格雷格·墨菲议员（美联社）
+10月29日，由全球200多名国会议员组成的“对华政策跨国议会联盟”（IPAC）在罗马举行会议，要求20国集团（G20）将人权纳入议事日程，对中共采取更强硬立场。
 
-国会中唯一一位活跃的执业医师在一次新的采访中说，食品和药物管理局（FDA）顾问的一句话是“我在医学界听到的最危险的声明”。
+据大纪元报道，在会议上，IPAC共同创办人、英国前保守党党魁邓肯·史密斯（Iain Duncan Smith）说，IPAC将呼吁各界关注“中国共产党对民主、人权和法治的系统性冲击”。
 
-埃里克·鲁宾（Eric Rubin）博士是《新英格兰医学杂志》的主编，也是布莱根妇女医院专门研究传染病的副医生，他是政府的疫苗顾问小组成员。
+他指出，冷战结束以来，还没有哪一个政权侵害人权的程度超越中共当局。有幸生活在自由世界的政治人物，往往误以为可与集权政府“讲道理”，但事实正好相反。“我们将在罗马提醒民主国家，他们有责任维护基于规则的国际秩序，这些规则是我们帮助形成的，现在正受到来自北京的威胁。”
 
-在该小组本周投票建议FDA批准辉瑞公司为5至11岁儿童提供的中共病毒COVID-19疫苗之前，鲁宾说：“除非我们开始注射这种疫苗，否则我们永远无法了解这种疫苗的安全性。事情就是这样的。这就是我们如何发现其他疫苗的罕见并发症，如轮状病毒疫苗。”
+“真正的领导力意味着应对这些挑战，而不是假装它们不存在”，邓肯·史密斯说，“本届G20必须成为一个转折点，中共（问题）必须放在议程的首位。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/id13340228-GettyImages-1236160573-600x400-1.jpg)Uyghur human rights activist Rahima Mahmut (L) and Hong Kong activist and politician, chairman of Demosisto political party, Nathan Law , stand by a replica of the “Pillar of Shame” (C), a statue commemorating the 1989 Tiananmen Square Massacre, during a demonstration on October 27, 2021 outside the Chinese embassy in Rome, against the “Chinese governments dismantling of Hong Kongs democracy and autonomy” ahead of the G20 World Leaders Summit in Rome. (Photo by Andreas SOLARO / AFP) (Photo by ANDREAS SOLARO/AFP via Getty Images)
+比利时绿党议员科戈拉蒂（Samuel Cogolati）表示，当中共政权几乎每天入侵台湾空域，在维吾尔地区犯下暴行，并瓦解了香港的自由和自治时，我们不能继续与其“一切照旧”（business as usual）。他说：“在这次G20会议上，我们需要看到民主国家找到迄今为止一直缺乏的勇气和领导力。”
 
-“这简直是我在医学界听到的最危险的说法，”众议员格雷格·墨菲（Greg Murphy，他同时也是一位医生），在NTD的“国会报告”中说。
+据悉，此次罗马会议是IPAC自2020年6月成立以来首次面对面会议。出席会议的有西藏流亡政府最高行政领导人（司政）边巴次仁（Penpa Tsering）、流亡伦敦的前香港立法会议员罗冠聪、世界维吾尔代表大会伦敦负责人马赫穆特（Rahima Mahmut）、英国前保守党党魁邓肯-史密斯（Iain Duncan Smith，港译施志安）、比利时绿党议员科戈拉蒂（Samuel Cogolati）、欧洲议会议员莱克斯曼（Miriam Lexmann） 、立陶宛社民党议员萨卡利埃内（Dovilė Šakalienė）、日本代表山尾志樱里、法国参议员安德烈·加托林（Andre Gattolin）、乌干达议员艾克罗（Lucy Akello）等。
 
-“这对普通的母亲，普通的关心他们孩子的父母来说，会是怎样的呢？”他补充说：“他们想让他们的孩子当实验对象吗？”
+*参考链接：*
 
-鲁宾的讲话被不同的人剪下来，并在社交媒体上广泛传播，一些网友说，这表明不应该给儿童注射这种疫苗。
-
-当被问及这些批评时，鲁宾在一封电子邮件中告诉《大纪元时报》：“辉瑞-生物技术公司COVID-19疫苗在儿童中的临床试验没有显示任何不良事件。迄今为止的所有数据表明，它是安全的。它防止儿童因严重疾病而住院，就像对成人一样。该疫苗是有效的，并能拯救生命”。
-
-声称试验没有显示任何不良事件是错误的，因为FDA确实发现了13例淋巴结肿大。然而，没有一个试验参与者出现心脏炎症（心肌炎或心包炎）——这是一种严重的副作用，在年轻人中，尤其是男性中出现的比率高于预期。
-
-该小组思考了给幼儿接种疫苗的潜在好处和风险，但最终决定好处大于风险。FDA于周五接受了这一建议。
-
-鲁宾在投票后说，监测系统对于了解辉瑞公司的疫苗对儿童的“安全程度”至关重要。
-
-“我们决定带着沉重的良知去做这件事。但我希望这是对它进行更多了解的开始，”他说。
-
-墨菲和鲁宾确实在一个问题上达成了共识，即由于缺乏安全数据，目前不应强制要求为幼儿接种中共病毒COVID-19疫苗。其他几位FDA顾问本周也表示，他们反对在这个时候强制为幼儿接种疫苗。
-
-墨菲在接受NTD采访时指出，中共病毒COVID-19与儿童在生命早期常规接受疫苗的疾病有一个关键区别。
-
-墨菲说：“我们为孩子们注射的疫苗是麻疹、腮腺炎、风疹，那些我们给孩子们注射的东西，在他们上学之前必须要注射。我也同意这一点，这很好。但问题是，这些是儿童疾病。COVID不是一种儿童疾病。它可以影响儿童，但与成人相比，它的致死率微乎其微。”墨菲在拥有1000张床位的一级创伤中心Vidant医疗中心工作。
-
-“我只是不明白为什么要如此大力地推给孩子们，”他补充说，并预测联邦疫苗强制令很快就会推行到要上学的孩子们身上了。“我们没有强制要求孩子们接种流感疫苗才能去上学。我们没有强制要求孩子们接种HPV疫苗。因此，我只是不理解这种生物学和病毒学。”
-
-**參考資料：**[theepochtimes.com] [Rep. Murphy: FDA Adviser’s Remark on COVID-19 Jab for Kids ‘The Most Dangerous Statement I’ve Ever Heard in Medicine’](https://www.theepochtimes.com/rep-murphy-fda-advisers-remark-on-covid-19-jab-for-kids-the-most-dangerous-statement-ive-ever-heard-in-medicine_4077215.html)
+[中共破壞人權法治 IPAC促G20強硬應對](https://www.epochtimes.com/b5/21/10/30/n13340199.htm)
 
 * * *
 
-*审核：文乐
-校对：信心满满*
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-2.jpeg)
+*编辑：文顺 校对：Ranting 发布：Ranting*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
