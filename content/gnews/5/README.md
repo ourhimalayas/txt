@@ -2,54 +2,61 @@
 ---
 
 
-## 酩悦香槟 (Moët)，一个普世成功的品牌
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1631633/)
+## 我们走在正道主义大路上——祝贺喜币上市！
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1631729/)
 
-作者** **：纽约香草山** – **Gtv abeilles** **（蜜蜂）
+作者：春晖   华盛顿DC农场
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-10.jpg)
+演唱：初晓 
+素材：Yetta   36CIA
+视频制作：36CIA 
+字幕：36CIA
 
+我们走在大路上，
+联合灭共斗志昂扬，
+喜马拉雅山七星飞舞，
+喜币喜讯传向四方。
+向前进！向前进！
+灭共潮流不可阻挡，
+向前进！向前进！
+朝着胜利的方向。
 
+七芒星旗迎风飘扬，
+新中国联邦发奋图强，
+誓要夺回锦绣河山，
+快把国贼扫进坟场。
+向前进！向前进！
+正道主义不可阻挡，
+向前进！向前进！
+朝着胜利的方向。
 
+我们的道路多么宽广，
+我们的前程无比辉煌，
+我们献身这壮丽的事业，
+无限幸福无上荣光。
+向前进！向前进！
+正道主义不可阻挡，
+向前进！向前进！
+朝着胜利的方向。
+朝着胜利的方向——
 
+* * *
 
-自公元496年法兰西人的第一个国王克洛维在香槟地区最中心的兰斯大教堂加冕以来，这里的葡萄酒一直为加冕和洗礼神圣之用。香槟酒的酿制工艺是自古希腊、罗马几千年以来葡萄酒酿制工艺的一次突破。只有香槟地区产的葡萄汽酒才能叫香槟酒。
-
-自1743年以来，克劳德·酩悦（Claud Moët）一直在创造着世界上最受赞赏的香槟酒。其1000公顷的葡萄园主要由顶级和特级葡萄园组成，是法国香槟地区最大和最有声望的庄园，其葡萄园的丰富性和多样性表现在Moët葡萄酒的公认质量上。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1321-1.jpg)图源网络
-
-喜马拉雅币是最具突破性、唯一性、承前启后神奇性的代表新时代的币种，并兼具——美元（法币）**、**喜美元（代币）**、**喜币（虚拟币）**、**黄金（货币）——四币联合的属性。
-
-喜币精神像作为特殊葡萄酒形象的香槟酒一样闪闪发光。而作为香槟酒之最的酩悦香槟 (Moët)更能见证稀有喜币上市的这一难忘历史时刻！2021年11月1日11点11分！HCOIN TO THE MOON !
-
-**参考****阅读****：**
-
-[https://www.lvmh.fr/search/](https://www.lvmh.fr/search/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-8.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-10.jpg)
-
-
-
-
+**欢迎阅读更多【春晖专栏】文章：**
+[花环与圈套](https://gnews.org/zh-hans/1532235/)
+[夜雨乱谈兵](https://gnews.org/zh-hans/1353630/)
+[歌词 勇士壮歌行](https://gnews.org/zh-hans/1427092/)
+[围观一场裸奔中的忽悠](https://gnews.org/zh-hans/1415426/)
+[风 马 牛，外面有狼](https://gnews.org/zh-hans/1409824/)
+[春晖信箱之一](https://gnews.org/zh-hans/1257354/)
+[春晖信箱之二](https://gnews.org/zh-hans/1324736/) 
+[春晖信箱之三](https://gnews.org/zh-hans/1338771/)
+[给翠花的绝交信](https://gnews.org/zh-hans/1195451/)
+[金哨吹响爱飞扬](https://gnews.org/zh-hans/1195535/) 
+[“八卦”使人长寿](https://gnews.org/zh-hans/1195566/) 
+[中国人的美国梦之一](https://gnews.org/zh-hans/1229846/) 
+[中国人的美国梦之二](https://gnews.org/zh-hans/1288730/) 
+[中国人的美国梦之三](https://gnews.org/zh-hans/1362811/)
 
  
 

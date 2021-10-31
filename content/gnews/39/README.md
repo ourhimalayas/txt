@@ -2,50 +2,24 @@
 ---
 
 
-## 华为被爆向民主党说客支付了100万美元
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631198/)
+## 喜生活
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1631297/)
 
-作者：纽约香草山农场 – 飞虹
+俄罗斯莫斯科喀秋莎农场 六月飞雪
 
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/H-4.jpg)俄罗斯莫斯科喀秋莎农场 恩合
+**清平乐·喜生活 **
 
+喜币何处？天地才知路。若牛郎织女欲诉，喜币搭桥安住。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+千金干净谁知？请君问求KYC。百业千行缘结，只因立信众生。
 
+**更漏子·喜币族**
 
+秋水长，红尘小，一币群英聚好。万连心，亿抱团，共匪难安生。
 
-10月28日，美国一美新闻网报道，美国民主党说客托尼·波德斯塔与中国电信巨头华为关系密切。华为可能在6月和9月分两期向波德斯塔支付了100万美元，用于托尼向拜登政府推销他们的产品。
-
-在华为向美国说客支付这些款项的同时，拜登政府建议将华为列入贸易黑名单。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-11.jpg)
-一位白宫官员表示：“拜登总统和本届政府认为，华为等不可信供应商生产的数字基础设施设备对美国、我们的盟友和合作伙伴的安全构成威胁。（上届政府）针对华为的出口管制仍然有效。”
-
-另据报道，仅今年一年，华为就在内部和外部游说上花费了约340万美元。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-18.jpg)
-参考链接：
-[Huawei Reportedly Paid Democrat Lobbyist $1M](https://www.oann.com/huawei-reportedly-paid-democrat-lobbyist-1m/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+去中心，区块铆，吾乃银行真好。左黄金，右美元，宇宙也大亨。
 
  
 

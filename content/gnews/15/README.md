@@ -2,26 +2,25 @@
 ---
 
 
-## 香草山翻译部周刊|2021年10月31日第20期
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1631522/)
+## 加拿大阿省强制接种政策已危及该省大学生
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1631578/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+采编：青青   编译撰稿：文明(添草灭共)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/text-CN-2.png)
-文章仅代表作者本人观点，与Gnews无关
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-21.jpg)图片来源：CBC
 
-总编： GBWater
-编辑： Lakers
-发稿： Lakers
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-17.png)
+据加拿大媒体【CTV新闻】10月28日报道，皇家山大学当天举行了抗议示威活动，数百名反“新冠病毒疫苗”接种人士集结在该校门前，呼吁当局结束针对阿尔伯塔省大专院校执行的该疫苗强制接种政策。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+此前，卫生部门已在该省各大学校内提供了该疫苗接种服务。如今，皇家山大学的学生和员工的接种率分别为82%和93%；而卡尔加里大学的该比率更高，分别达到93%和97%。
+
+另一方面，未接种学生面临着越来越大的压力。据悉，皇家山大学即将对进入校园的未接种学生实施付费病毒测试。目前，已有11名该校学生因不遵守接种规定而被取消了注册资格。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://calgary.ctvnews.ca/covid-19-measures-protested-by-students-anti-vaccine-activists-outside-mount-royal-university-1.5642976)
 
  
 

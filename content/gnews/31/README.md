@@ -2,48 +2,38 @@
 ---
 
 
-## 国民党新修政纲，文贵先生爆料：警惕卖台贼
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631301/)
+## 美航因人员短缺和“恶劣天气”取消1400个航班
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1631397/)
 
-作者：澳喜农场 – 在远方
+**翻译：lulumi**
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip109.png)*2020年11月25日，美国伊利诺伊州芝加哥，在冠状病毒病（COVID-19）大流行期间，美国航空代理在奥黑尔国际机场帮助一名顾客办理登机手续。REUTERS/Kamil Krzaczynski*
 
+10月30日路透社报道：美国航空公司周六表示，由于人员短缺和不利的天气，周末已经取消了1400多个航班。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+美国航空公司表示，除了周五取消的376个航班外，周六取消了551个航班，周日取消了480个航班。航班跟踪网站FlightAware说，自周五以来，美航还推迟了1000多个航班。
 
+航空公司在一份声明中说：“随着整个系统天气状况的增加，我们的人员配置开始变得紧张，因为机组成员无法按照他们的正常飞行序列排班。”
 
+该公司说，预计将很快度过这段不正常的运营期。
 
-近日，中共国民党中常会通过政策纲领修正案，该版政纲将删除马英九提出的“不统、不独、不武”文字。新政纲竟然承认中共综合实力的崛起，还提出要亲善大陆人民，主张两岸应搁置争议，促进经贸自由化及民间社会力往来。
+在繁忙的假日旅游季节来临之前，航空公司正在努力招聘更多的员工。
 
-近日，郭文贵先生爆料，自马英九上台以来，国民党全力亲共反美，逼迫台湾人民承认中共是大国崛起。由于中共的大外宣对台湾的渗透，加上共产党的统战工作，现在的台海危机比96年更紧张。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-118.jpg)
-郭文贵先生指出，习近平想侵略台湾的动机，来自于共产党内政治斗争，目的是掩盖房地产崩溃带来的经济灾难，并拖垮世界经济。台湾人民并没有意识到，应对台海危机并非全民皆兵的军事训练，更重要的是清楚国民党卖台贼的伎俩，比如要求中共提供军事保护，与中共里应外合拿下台湾等买台行为。
+美国航空说，它正在增加所有业务的人员编制，近1800名空姐休假后返回，600多名新招聘的空姐将在12月底前上岗。
 
-参考链接：
-[台媒：朱立伦版国民党政纲将删除“不统、不独、不武”文字](https://news.sina.com.cn/c/2021-10-27/doc-iktzscyy2086802.shtml)
+西南航空也表示，它正在积极招聘，目的是在今年年底前，拥有约5000名新员工。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+本月早些时候，西南航空公司在三天时间内取消了近2400个航班，归罪于佛罗里达州的不利天气和空中交通问题。
 
-总编/编辑：木白
-校对/发稿：为真不破20
+**新闻来源**：[**reuters.com**] [American Airlines cancels 1,400 flights due to staff shortages, bad weather](https://www.reuters.com/business/aerospace-defense/american-airlines-cancels-flights-due-staff-shortages-bad-weather-2021-10-30/)
 
-**更多资讯，更多关注**
+* * *
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+***审核：文乐
+校对：信心满满
+发布：信心满满***
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-2.jpeg)
 
  
 

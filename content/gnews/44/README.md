@@ -2,28 +2,50 @@
 ---
 
 
-## 中共数字人民币全面落地香港！下周公布跨境支付即商业数据路线图
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1631095/)
+## 日本将限制中共国留学生涉猎安保敏感技术
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631240/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-30.png)
-[图片来源](https://ezone.ulifestyle.com.hk/article/2922936)
+作者：日本方舟农场 – Andy5
 
-据香港电台消息，近日，香港金管局总裁余伟文透露，金融科技周将于下周举行，届时将公布数字货币跨境支付、“商业数据通”的路线图。
 
-余伟文说，在数字货币跨境使用方面，香港地区是发展最成熟、最接近真实落地使用的地方。金管局与人民银行、泰国央行及阿联酋央行、国际清算银行，已完成有关“概念测试”，将会探讨如何做到商业化，期望明年试行真实交易。
 
-另外，余伟文指，近几年本港电子支付发展迅速，虚拟银行开户数目前已逾100万个，在金融科技发展属国际前列，他期望数字港元可行性研究明年中有初步结论，对金融系统及银行业务会否有影响，是其中一个研究方向。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-郭文贵先生多次揭露，中共数字人民币就是虚假货币，同时中共将以香港为桥头堡向世界输出数字人民币这个金融核弹。数字人民币在香港的全面落地，标志着中共对当前以美元为主导的世界经济和金融秩序的超限战正在快速推进。
 
-信息来源：
 
-[香港金管局总裁余伟文：下周公布数字货币跨境支付及商业数据通路线图\_发展](https://www.sohu.com/a/497924879_100217347)
+据日媒27日报道，日本政府将出台“许可制”政策，限制外国留学生特别是来自中共国的留学生，学习“涉及安保的敏感技术”。
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)
+日本经济产业省计划在2021年内修订《外汇和外国贸易法》相关规定并从2022年度开始实施。日本高校如果为在日留学半年以上的外国学生提供“重要技术”，校方必须获得经济产业大臣的许可。“重要技术”包括半导体制造设备、机器人等技术。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-155.jpg)
+报道特别指出，在推进人工智能、量子密码等尖端技术研发的日本高校中，存在为数不少的来自中共国的留学生，他们可能涉及经常性的“敏感技术外流”。
+
+中共喉舌《环球时报》发文指，日本对中共国的“竞争、防范和牵制”，可能成为贯穿日本经济安保政策的一条暗线。
+
+参考链接：
+[日本将限制中国留学生学习所谓“涉及安保的‘敏感技术’”](https://news.sina.com.cn/c/2021-10-29/doc-iktzscyy2395291.shtml)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编: Irene木木
+编辑：山本不惑
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
 
 
  
