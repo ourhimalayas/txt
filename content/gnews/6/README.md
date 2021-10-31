@@ -2,34 +2,15 @@
 ---
 
 
-## 亚马逊网络服务拟将加密货币的结算和托管推向云端
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1630128/)
+## 中国江西铅山：一人核酸阳性，全县红绿灯统一变红
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1630133/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+韩国首尔天池农场—虎眼　校对/上传—无明逆流
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5958ab7f-de6e-411a-b5d9-6dd0b7f386a4.jpg)（注：图片来源网络）
+据中共媒体消息，10月30日，中国江西铅山发现一名新冠病毒阳性人员，随后铅山县交警公众号发出消息，由于疫情防控需要，30日起铅山县红绿灯统一调至红灯，要求民众按照防疫要求，减少交通出行，30日21时后，闯红灯的车辆一律按照违章进行处罚。
+多么熟悉的论调，一人阳性，全县封禁，一人怀孕，全村结扎。中共掌权者从来没有学会科学、理性、人性的运用过手中的权力。当它的权力没有监管，它对民众也将没有顾忌，最终只会扰民有术，而治国无方。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Logo-Amazon-Web-Services-amazon.jpg)图片来源：aws.amazon.com
-
-
-#### 编译：小红帽
-
-根据最近的一份招聘信息显示，亚马逊网络服务 (AWS)正在寻找一位专家来促进云中数字资产的承销、交易处理和托管。
-
-这家基础设施巨头希望聘请一名金融服务专家，与全球金融机构、创新金融科技公司合作，并“从价格发现到执行、结算和托管方面，改变他们交易数字资产（例如加密货币、CBDC [中央银行数字货币]、稳定币、安全支持代币、资产支持的代币和NFTs[不可替代的代币]）的方式。”
-
-根据之前的招聘信息，亚马逊备受瞩目的进军数字资产行动，预计将包括某种支付代币，即所谓的“亚马逊币”。
-
-与此同时，亚马逊网络服务针对加密货币交易处理和托管等方面定制其基础设施，可能被视为一项明智之举，因为IBM也在这样做。
-
-“与我们的销售团队、解决方案架构师、ISV和系统集成商携手合作，您将帮助提供解决方案，推动客户在云中实现端到端的数字资产承保、交易处理和托管，”AWS的招聘广告说。
-
-**参考新闻：**[Amazon Web Services Looks to Drive Crypto Settlement and Custody to the Cloud (coindesk.com)](https://www.coindesk.com/business/2021/10/30/amazon-web-services-looks-to-drive-crypto-settlement-and-custody-to-the-cloud/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+（本文仅代表作者个人观点）
 
  
 

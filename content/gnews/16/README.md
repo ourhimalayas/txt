@@ -2,8 +2,8 @@
 ---
 
 
-## 视频| 喜币，通向未来的数字货币
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1630013/)
+## 视频| 新世界，新货币
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1630029/)
 
 制作：香草山视频部
 
