@@ -2,26 +2,22 @@
 ---
 
 
-## 美军激光武器驱逐舰现身东海，或针对中共军用无人机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1629717/)
+## 美国取代中国成为比特币挖矿中心
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1629863/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-96.png)[图片来源](https://www.dwnews.com/%E4%B8%AD%E5%9B%BD/60260830/%E7%BE%8E%E5%9B%BD%E6%B5%B7%E5%86%9B%E6%BF%80%E5%85%89%E6%88%98%E8%88%B0%E8%BF%9B%E9%A9%BB%E6%97%A5%E6%9C%AC%E6%80%A7%E8%83%BD%E6%8A%AB%E9%9C%B2%E4%B8%AD%E5%9B%BD%E5%A6%82%E4%BD%95%E5%BA%94%E5%AF%B9%E5%9B%BE)
-美国首艘配备激光武器的驱逐舰近日被曝出现在东海海域，还派出舰员进行了不常见的“视觉信息收集”训练。
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-151.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fthumbor.ftacademy.cn%2Funsafe%2F900x506%2Fpicture%2F0%2F000127220_piclink.jpg&amp;imgrefurl=http%3A%2F%2Fwww.ftchinese.com%2Fstory%2F001094210%3Ffull%3Dy&amp;tbnid=y2Jzl5fpfZVTiM&amp;vet=12ahUKEwja-93HxPPzAhUMB5QKHSvhDgAQMygEegUIARC_AQ..i&amp;docid=7NEA3uEaQNRMwM&amp;w=900&amp;h=506&amp;q=%E7%BE%8E%E5%9B%BD%E5%8F%96%E4%BB%A3%E4%B8%AD%E5%9B%BD%E6%88%90%E4%B8%BA%E6%AF%94%E7%89%B9%E5%B8%81%E6%8C%96%E7%9F%BF%E4%B8%AD%E5%BF%83&amp;ved=2ahUKEwja-93HxPPzAhUMB5QKHSvhDgAQMygEegUIARC_AQ)
+目前全球超过三分之一的比特币挖矿计算能力来自在美国的机器，而去年春天这一比例还不到五分之一。美国正迅速崛起为新的全球比特币挖矿中心。
 
-美国国防部下属网站Dvidshub于10月26日发布了美国海军“杜威”号驱逐舰的最新消息。Dvidshub网站称，“杜威”号驱逐舰当天正在东海活动，组织舰员进行了视觉信息收集、舰船动力设备维护等项目的训练。根据美国军方公布的照片，在视觉信息收集训练中，多名舰员在舰桥上使用照相机、摄影机等设备对着海面进行拍摄。
+中共国政府实行打击行动后，许多挖矿公司正押注于美国的可靠能源供应以及更可预测的监管环境。据剑桥大学(University of Cambridge)的数据，目前全球超过三分之一的比特币挖矿计算能力来自在美国的机器，而去年春天这一比例还不到五分之一。
 
-值得注意的是，“杜威”号是美国海军最新部署到亚太地区的一艘阿利伯克级驱逐舰，其母港位于日本横须贺。数天前曾有日本网友拍摄到该舰从日本港口出海的画面。与其他阿利伯克级驱逐舰不同的是，“杜威”号驱逐舰配备有被称为ODIN“奥丁”的激光武器，也是美国海军首艘配备激光武器的驱逐舰。
-
-这种武器的全称是“海军光学炫目拦截系统”，这是一种主要用于干扰、拦截无人机的光学传感器，安装在“杜威”号驱逐舰前方甲板的近防武器炮位上。这是美国海军第一次将具有炫目功能的独立激光武器系统进行作战部署，但美军没有透露这种武器的具体性能，只是用“低功率”的说法来含糊表述。
-
-郭文贵先生之前爆料，中共攻击台湾时，将使用无人机、激光精确制导弹药等武器进行第一波饱和式打击。基于对美军舰载高功率激光武器战技性能和技术特点的分析，再结合中共的军事动向，美军的作战目标已经毋庸多言。
+中共国此前一直是企业放置计算机以解锁新比特币的主要国家。但在今年5月，中共释放出将开始更广泛打击比特币挖矿和交易的信号，此举旨在确保政府对国内经济的控制。比特币挖矿已经成为一项利润丰厚的事业，目前一枚比特币的价格约为6万美元。为了获取新的比特币，功能强大的计算机竞相解决一系列数学难题，希望能解锁新的比特币，其中许多计算机都是一天24小时在线。
 
 信息来源：
 
-[警惕！美军首艘配备激光武器驱逐舰被曝现身东海](https://news.sina.com.cn/c/2021-10-28/doc-iktzqtyu4041553.shtml)
+[美国取代中国成为比特币挖矿中心](https://cn.wsj.com/articles/%E7%BE%8E%E5%9B%BD%E5%8F%96%E4%BB%A3%E4%B8%AD%E5%9B%BD%E6%88%90%E4%B8%BA%E6%AF%94%E7%89%B9%E5%B8%81%E6%8C%96%E7%9F%BF%E4%B8%AD%E5%BF%83-11635401113)
 
-*校对：东京樱花团/上善若水
+*校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  

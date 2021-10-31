@@ -2,86 +2,22 @@
 ---
 
 
-## 美国人知道MAGA落入CCP操控的DWAC骗局，未来很惨
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1630399/)
+## 意大利强制实行绿色护照，至少延长至明年三月
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1630507/)
 
-[https://gtv.org/video/id=617d286dadfd99590c31780b](https://gtv.org/video/id=617d286dadfd99590c31780b)
+#### 翻译整理： 意大利罗马达芬奇农场          小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Schermata-2021-10-31-alle-11.33.34.png)图片来源：新闻报
 
-**郭文贵
-Miles Guo**
 
-一个股市还有一个庄家，还有基金，还有后面的做家
-A stock market has a banker, a fund, and a operator behind it
+10月26日意大利新冠感染率又一次上升，达到4054人，政府准备将绿色护照延长至少至明年三月，这一措施尤其是针对那些不愿打疫苗，反对疫苗护照的人。这些人本希望每月用200欧元左右进行核酸检测只到今年12月31日， 这是政府宣布国家紧急状态和绿色护照的的期限。意大利总统马塔莱纳指责那些不愿注射疫苗的人：“不能让那些反科学的理论占据上风，有时是一种毫无意义的暴力。”
 
-就是叫吴征这号的共产党，他做你的时候，（股票）一定会一直上，那是不可能的
-Just like Bruno Wu this kind people from communist party, it’s impossible to let stock price up all the time
+对于60岁以上注射第三剂疫苗已是显而易见的。自明年一月起将开打对60岁以下的人，然后逐渐扩展到各个年龄段。第三针是在注射了第二针之后的六个月。也就是说五十岁左右的人一月至二月开打第三针，三月至四月四十左右的人施打第三针。希望疫情再次会呈下降趋势，不必再采取进一步的措施。根据最近48小时的疫情，全意染疫人数已经达到4000人，疫苗接种率最低的阿迪杰自治区，每十万人口中每星期已有一百人感染， 已超过安全线的一倍。
 
-就到了174的时候，就几秒钟，啪叽，就下来了120，然后到90
-When it reached $174, it’s just few seconds, then rushed down to $120 to $90
+这是名为绿色护照实则是中国式的社会信用体系，政府正在一步步地有计划地进行限制政策， 随着冬天的到来， 接种疫苗人数的进一步增加，感染率会直线上升。威逼利诱再加媒体的宣传洗脑，西方的自由民主已不复存在。
 
-它不可能呆几个小时，因为他会赔掉很多钱的，
-It’s impossible to stay for a few hours, because he will lose a lot of money
+原文链接：https://www.lastampa.it/cronaca/2021/10/26/news/obbligo\_di\_green\_pass\_si\_va\_verso\_la\_proroga\_almeno\_fino\_a\_marzo-296676/
 
-现在看大部分的赔家都是MAGA、穷人（川普的）支持者
-Now most of the losers are MAGA people and the poor (Trump’s) supporters
-
-而且今天看这个MAGA所有的输钱的人，会输得很惨
-And today, all the MAGA people who lose money this time and will lose miserably
-
-因为太夸张了，从9块钱炒到174点时候，将近十七八倍
-Because it’s too dramatic, they manipulated the stock price from $9 to $174, nearly 17 to 18 times
-
-那么这些人陪的就很夸张了，因为老百姓在美国
-Then these people’s lost was too much because they are America’s Laobaixing
-
-大家你们好好看一看，美国那个叫什么Wells Fargo的银行，富国银行
-Everyone, take a good look at the Wells Fargo bank in the United States
-
-整个的审判案子当中，有一些残疾人和吃美国救济的人
-In the entire trial case, there are some disabled people and people who rely on American relief
-
-就为了等15美金每个月的救济，但是这15美金被富国银行骗走以后
-Just to wait for the 15-dollar monthly relief, but after the 15-dollar was defrauded by Wells Fargo Bank
-
-他饿死在家里了，还有的人在家里面吃救济的盲人，由于没有20美金饿死在家里面了
-He starved to death at home, and some blind people who relied on relief at home, because they didn’t get $20, starved to death at home
-
-MAGA、川普的支持者，很多是美国中间很穷很穷的人
-Many of the supporters of MAGA and Trump are very poor people in the United States
-
-就和中国的杨改兰是一样的，那么MAGA的投资被骗走了以后，他就完了
-Just like China’s Yang Gailang, then after MAGA supporters investment was deceived, he’s done
-
-没有任何生计来源了，可不是一股或十股的问题，很可悲的
-There is no source of livelihood. it’s not about one share or ten shares, it’s so sad
-
-所以这一次，今天早上刚刚7多钟，一位美国的朋友发来信息
-So this time, just over 7 o’clock this morning, an American friend sent me a message
-
-他说，这次的这个共产党安排的川普总统的股票骗局
-He said that this time, President Trump’s stock scam arranged by the Communist Party
-
-会把整个美国，所有川普和MAGA的跟随者，很多人会毁在永远不可回头的路上
-will destroy the entire United States, all Trump and MAGA followers, and many people on the road that can never be turned back
-
-* * *
-
-Date:10/29/2021
-原视频标题: 美国人知道MAGA落入CCP操控的DWAC骗局，未来很惨
-The Americans know that MAGA has fallen into the DWAC scam controlled by CCP, and the future will be miserable
-原视频日期：2021/10/27
-原视频链接[https://twitter.com/se1y7cblljselva/status/1453643831635701760?s=24](https://twitter.com/se1y7cblljselva/status/1453643831635701760?s=24)
-任务编号：KC211（2703）
-视频时间段 : 0:00-2:08
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+责任编辑、发布： Xiao baige
 
  
 

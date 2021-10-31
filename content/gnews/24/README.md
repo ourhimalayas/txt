@@ -2,31 +2,89 @@
 ---
 
 
-## 喜币1111111悔死众伪类
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1630362/)
+## 七哥谈打赏以及如何做好视频
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1630473/)
 
-韩国首尔天池农场—爱战神　校对/上传—无明逆流
-![](https://assets.gnews.org/wp-content/uploads/2021/10/e746ba7a-38ae-469b-9a61-a88d8988ad4d.jpg)
-阎蛇妖：俺和腚肛逃离爆料革命，过得很辛苦。我们做直播、演讲、要打赏、买手袋……生活大不如前，但为了爱情，为了腚腚我什么都能做，俺爱死大头腚肛了。因为我们的爱情，死也值了！不过，有一老外被我迷得神魂颠倒，腚肛假装不知道。这老头有利用价值，为我俩前途铺路，所以他不会吃醋。
-战友甲:闫蛇妖？(路遇战友，狭路相逢)哪里逃！为何陷害栽脏爆料革命和郭先生？
-蛇妖：俺是听我家腚肛的，他叫俺咬谁俺咬谁！
-战友甲:真是蛇蝎心肠的女人，太狠毒了！郭先生对你们恩重如山、如再生父母，他叫你咬你就咬，他叫你吃屎你也吃？还真是个博屎。
-战友乙：老实交代，你们一对妖孽干啥坏事了？
-闫蛇妖：我不能说。
-众战友：不说是吧？看我们怎么收拾你……
-闫蛇妖：我、我说，反正你们都知道了，我们已经投靠共党，给我们三百七十万美金，共产党给我们的任务，毁掉新中国联邦，还有G系列。
-战友甲：你们算什么东西，能有这么大本事？就为了这点小钱，太不值，爆料革命给你们崇高的地位，你们不珍惜，非得去做CCP的一条狗。过二天我们新中国联邦喜币上市了，郭先生本来给大脑袋300万GTV股票和300万个喜币，给你的肯定也不会少，你们离开真是好事啊！你们的福利分给真战友，决不能给你们这些砸爆料革命的伪类、还有误入你们歧途的动摇者。你们这一对狗男女真是拣了绿豆丢了亿万宝藏，悔死你们吧！还有那个陷害战友的九指妖……
-战友乙：你们男盗女娼，丧尽天良，谋财害命，老天会收拾你们的，你以为缺德肛会娶你，做梦，他就是一个见异思迁、朝三暮四、见利忘义的顶级渣男。物以类聚人以群分，你们倒是绝配，你抛弃丈夫，投奔奸夫，还冤枉你丈夫害你。煎蛋害你、毒药害你、妄图海滩害你，十天都害不死你。你命真大呀，文贵先生花了十八万美元，香港战友救你，你这蛇妖居然反咬一口，陷害文贵先生走消息给你老公，要灭了你。
-战友甲：伤天害理，老天不容，香港战友为了你这个烂货，被抓、被坐牢。而你那个情夫在别墅双修，你还对他死心塌地，他就是利用你香港病毒研究所的身份，骗名骗利。
-战友乙：他们本就是蛇鼠一窝，都不是好东西，相互利用，欺骗爆料革命、欺骗战友、欺骗美国人民……
-战友甲：你们一对诬陷文贵先生和我们战友，是五毛是特务，用心险恶，是想灭掉新中国联邦，破坏我们以钱灭共的G系列，事实证明，郭先生领导的新中联邦胜利了！你们失败了！
+[https://gtv.org/video/id=617e72d1adfd99590c31c6c3](https://gtv.org/video/id=617e72d1adfd99590c31c6c3)
 
-闫蛇妖：(呜呜呜呜捏着嗓子哭嚎)都怪这个缺德肛，非要离开郭先生，我们不背叛，都是亿万富翁了呀，我去求求郭先生给我们一点喜币，不全要。
-战友甲乙：呸！做梦
-闫蛇妖：我去跪求郭先生，你们也帮忙说好话，看在以往有功的份上，少给一点也行……
-战友甲乙：呸呸呸呸呸！哭死你们、悔死你们……
+**郭文贵
+Miles Guo**
 
-（本文仅代表作者个人观点）
+小Seven讲的要不要做视频
+Little Seven has talked about making a video
+
+怎么做视频
+and how to make a video
+
+实际上做视频不是技术
+In fact, videos are not just technology
+
+做视频第一做的是你的智慧
+Making a video, first, demonstrates your wisdom
+
+第二做的是你的品味
+Second, it signifies your taste
+
+第三做的你的眼界
+Third, it indicates your foresight
+
+第四
+Fourth
+
+做的你自己的能力
+it demonstrates your ability
+
+然后才是技术
+Then, it’s a technology
+
+我跟你说你要不在盖特、 GTV上，不抓住这个机会
+I’m telling you, if you are not on Gate or GTV, and not catching up on this opportunity
+
+你绝对是后悔的
+you would certainly regret it
+
+好好的研究研究
+Do some studies
+
+要把打赏的事做大
+and make the rewards bigger
+
+那么未来就像这种打赏
+Then the future will be like these kinds of rewards
+
+私密直播
+private live broadcasts
+
+虚拟货币
+and virtual currencies
+
+几乎会把人类一切都改变了
+They will change almost everything for human beings
+
+一切都会改变
+Everything will be changed
+
+这就是新的时代
+This is the new era.
+
+* * *
+
+Date: 10/30/2021
+原视频标题: 七哥谈打赏以及如何做好视频
+Mr. Guo Talks About Rewards And How to Make a Qualified Video
+原视频日期：2021/10/28
+原视频链接: [https://gettr.com/post/pfisewa574](https://gettr.com/post/pfisewa574)
+任务编号：KC214(2719)
+视频时间段 : 0:00-0:53
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

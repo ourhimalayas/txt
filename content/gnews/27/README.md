@@ -2,57 +2,47 @@
 ---
 
 
-## 【玫瑰看新闻】第193期 国际热点新闻
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1630334/)
+## 参议员布莱克本提出法案让工人免受疫苗强制令
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1630411/)
 
-2021年10月30日（新西兰时间）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/PHOTO-2021-10-30-19-48-58.jpg)
-1.拜登在罗马不遗余力与马克龙和解
+**据《一美新闻网》新闻室2021年10月29日报道**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/111-7-400x225.jpg)华盛顿特区 – 10 月 26 日：资深参议员玛莎·布莱克本（ Marsha Blackburn ）（共和党-田纳西州）在参议院消费者保护、产品安全和数据安全小组委员会发表讲话。 （塞缪尔·科鲁姆（Samuel Corum）/盖蒂图片社摄）
+参议员玛莎·布莱克本 (R-Tenn.) 推出了一项新措施，以保护美国的必不可少的工人在拒绝接种疫苗时不会受到处罚或被解雇。本周早些时候发布的名为“保持我们的抗中共病毒英雄就业法案”的立法提案，由多个州的共和党参议员共同发起。
 
-2.[突发！佛州中企百富环球遭FBI及DHS突击搜查涉网攻美国与欧盟](https://www.aboluowang.com/2021/1027/1664862.html)
+布莱克本表达了她对在大流行中为美国人冒着生命危险工作的，必不可少的工人的支持，并发布了一项措施，为不愿注射疫苗的敬业工人提供豁免。
 
-3. 印度神童抛震撼弹 12月恐爆大规模疫情 点名4国
+布莱克本说：“在整个大流行期间，一个群体挺身而出。他们每天上班，以确保美国人能够在中共病毒大流行中幸存下来。他们的努力让美国继续运转，让这个国家保持繁荣。在全国各地，这些人被尊为我们这个时代的英雄。他们被认为是必不可少的工人”。
 
-4. 习近平缺席G20 新华社公布重要指引释疑？5. [美国国会议员敦促G20将台湾包括在内](https://www.taiwannews.com.tw/en/news/4327920)
 
-国际热点新闻：
 
-1.[拜登在罗马不遗余力与马克龙和解](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211029-%E6%8B%9C%E7%99%BB%E5%9C%A8%E7%BD%97%E9%A9%AC%E4%B8%8D%E9%81%97%E4%BD%99%E5%8A%9B%E4%B8%8E%E9%A9%AC%E5%85%8B%E9%BE%99%E5%92%8C%E8%A7%A3)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-1-16.jpg)
-美国总统拜登与法国总统马克龙在罗马**G20**峰会开幕前夕，不遗余力向世人展示法美重归于好，核潜艇危机已成过去。拜登握着马克龙的手，面对媒体说，他热爱法国，法国曾出兵援助美国独立，因而是美国**“**最古老的朋友**”**，在他看来，法国是一个具有极高价值的合作伙伴。
-
-法国总统马克龙则对自九月中以来美方为化解危机采取的**“**具体措施**”**感到满意：**“**开启了恢复互信的进程**”**。星期五，前往出席**G20**峰会的英国首相约翰逊在飞机上也表示，法国是我们最好的、最古老、最亲近盟邦之一，也是我们的最好的朋友和合作者之一。
-
-2.[突发！佛州中企百富环球遭FBI及DHS突击搜查涉网攻美国与欧盟](https://www.aboluowang.com/2021/1027/1664862.html)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-2-8.jpg)
-据《阿波罗新闻网》2021年10月27日报道，在香港上市的大陆支付终端机（Point-of-Sales）服务商百富环球（PAX Global Technology Limited），周三（27日）在香港交易时段急插43.3%，之后中途停牌。百富环球发公告表示，停牌是与交易内幕消息有关；据传FBI及英国军情五处（MI5）已经正在调查百富环球，可能与美国及欧盟发生的网络攻击有关。
-
-美国联邦调查局及国土安全部曾在26日搜查了该公司在佛州杰克逊维尔（Jacksonville）的货仓；两家英美大型金融提供商，已开始把百富的PAX终端从公司的支付基础设施中撤出。
-
-美国三大零售商：家得宝（Home Depot）百思买（Best Buy）及Lowe’s将两个中共国牌子浙江大华、海康威视的监控镜头下架。
-
-3. [印度神童抛震撼弹 12月恐爆大规模疫情 点名4国](https://m.posts.careerengine.us/p/617a045ec352a24aa695d474)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片3-6.jpg)
-印度神童阿南德（Abhigya Anand）因多次预言疫情与国际情势，受到外界关注，近日他又发出了新的预言。除了提及极端气候之外，阿南德表示，受到木星的影响，疫情可能会在12月爆发大规模的传染，尤其是疫苗接种率高的国家，疫情恐怕会卷土重来，并点名了4个国家：美国、英国、以色列、新加坡要特别小心。
-
-郭文贵先生在大直播中爆料美国11月开始或出现疫情反弹，这是出于情报而作出的判断。再一次向世界发出基于情报的预警。
-
-4. [习近平缺席G20 新华社公布重要指引释疑？](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211030-%E4%B9%A0%E8%BF%91%E5%B9%B3%E7%BC%BA%E5%B8%ADg20-%E6%96%B0%E5%8D%8E%E7%A4%BE%E5%85%AC%E5%B8%83%E9%87%8D%E8%A6%81%E6%8C%87%E5%BC%95%E9%87%8A%E7%96%91)
-
-中共国家主席习近平将近两年未跨出国门一步，也缺席即将召开的两场极其重要的国际峰会–G20峰会与气候峰会。目前，引发外界猜测！于是，中方在G20峰会前夕宣布王毅将以习近平“特别代表”参加，与此同时，其官媒新华社还公布了习近平有关历次G20的“重要指引”，颇有意味。
-
-还有的分析指出，习近平缺席是因为20大临近，忙于自我接班，内部先要搞定。法国世界报则分析说，“习近平缺席G20峰会和联合国气候大会，是中国孤立的象征“。
-
-5. [美国国会议员敦促G20将台湾包括在内](https://www.taiwannews.com.tw/en/news/4327920)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片4-5.jpg)
-据《台湾英文新闻》2021年10月28日报道，根据美国国会议员周三致函G20主席马里奥·德拉吉（Mario Draghi）的说法——台湾是亚洲第七大经济体，拥有世界第五大外汇储备，按购买力平价计算，台湾在全球排名第 19 位。他们写道，台积电 (TSMC) 在全球供应链中也扮演着至关重要的角色，使与台湾的建设性外交接触“成为一种必要，而不是一种选择”。他们敦促德拉吉不要屈服于中共国的影响。
+参议员玛莎布莱克本@MarshaBlackburn
+拜登的中共病毒疫苗授权将使社区没有足够的警察、消防员和医生来保证美国人的安全。
+KeepOurCOVIDHeroesEmployed
+2021 年 10 月 29 日
 
 
 
 
 
-审核校对：Barry Jack
-上传排版：F
+> Biden’s COVID vaccine mandates will leave communities without enough police officers, firefighters and doctors to keep Americans safe. [#KeepOurCOVIDHeroesEmployed](https://twitter.com/hashtag/KeepOurCOVIDHeroesEmployed?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [October 29, 2021](https://twitter.com/MarshaBlackburn/status/1454110351881031685?ref_src=twsrc%5Etfw)
+
+
+
+
+
+该法案是在乔·拜登 ( Joe Biden ) 向全国范围内必不可少的工人发布疫苗强制令之后提出的，强制令要求他们在 12 月 8 日之前接种疫苗。布莱克本和她的选民们认为，我们应该为工人的英雄主义而喝彩和赞扬，而不是去“惩罚他们行使个人健康决定的自由”。
+
+与此同时，几位政界人士和企业主支持这位参议员，感谢她对于在当前的供应链危机中可能导致更多裁员的强制令的反对。
+
+原文链接：[https://www.oann.com/sen-blackburn-issues-bill-protecting-essential-workers-from-vaccine-mandates/](https://www.oann.com/sen-blackburn-issues-bill-protecting-essential-workers-from-vaccine-mandates/)
+
+* * *
+
+翻译：Nick
+校对：JS709
+编辑：烟波浩淼
+发布：文鸣
 
  
 
