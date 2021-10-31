@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/31/2021 2:03 AM (UTC)`
+
+尽管美国食品和药物管理局（FDA）知道因中共病毒致死的5-11岁儿童人数很少，他们仍然计划要给孩子们接种疫苗<br/><br/>FDA plans to roll out Covid vaccination for children aged 5-11 despite knowing the low death tolls in this age group associated with CCP Virus 
+![img](https://media.gettr.com/group46/getter/2021/10/31/02/03/a9a935cd-80c1-c5ff-6f6a-4db5889861cc/out.jpg)
+
+---
+
 `@miles 10/31/2021 1:28 AM (UTC)`
 
 我们是自由人还是奴隶？<br/><br/>Are we free or are we, slaves?<br/>
@@ -298,13 +305,6 @@ F the FDA.  Do the opposite of what they recommend. <br/><br/>DON’T VACCINATE 
 
 10/27/2021 Miles Guo: Eight to nine out of the eleven funds investing in DWAC did so because of PAG, and this essentially means that PAG, Bruno Wu, and Richard Frankel, the former FBI top official, are in cahoots. So, they have conflict of interest, which will help me win my lawsuit with PAG <br/><br/>10/27/2021 文贵直播：投资DWAC的11家基金中有8到9家是因太平联盟而进行的投资，其本质是太平联盟、吴征和前FBI高官Richard Frankel的互相勾连，因此，他们之间存在着利益冲突，这将有利于文贵打赢与太平联盟的官司
 ![img](https://media.gettr.com/group30/getter/2021/10/28/00/05/21c4b91a-d0c0-7cc2-109e-089f8b386108/out.jpg)
-
----
-
-`@miles 10/27/2021 11:54 PM (UTC)`
-
-11月27号：非常智慧独到的对中国共产党……对中国人民犯下的罪行的现状解读！悲哀的是．中国有无数的智者，但是却极少有真正的行动的勇士……
-![img](https://media.gettr.com/group23/getter/2021/10/27/23/54/df04af12-762a-f59b-d0bc-b9e0f159445f/b42c0e021bf77d08190140a2f1a9819c.jpg)
 
 ---
 
