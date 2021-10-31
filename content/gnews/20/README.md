@@ -2,27 +2,29 @@
 ---
 
 
-## 美国多个州起诉拜登政府要求停止强制疫苗接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631101/)
+## 多达1.2万名美国空军人员拒绝接种新冠疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631121/)
 
-作者：MOS – 柳是多水土透
+作者：美东香草山农场 -文真
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据拜登政府疫苗强制令要求，联邦承包商必须在12月8日之前，提供疫苗接种证明，否则可能面临被解雇。
+11月2日是美军疫苗接种的最后期限，据统计，大约有1.2万名美国空军人员拒绝接种新冠疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-20.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-15.jpeg)
 
-10月29日，一群共和党总检察长起诉拜登政府，质疑其对联邦承包商的疫苗授权。
+官员们曾警告说，如果军事人员不接种新冠疫苗，他们将面临惩罚：包括被开除军籍，或受到军事司法指控。
 
-由密苏里州总检察长——埃里克-施密特领导的诉讼案认为，拜登政府对承包商实行疫苗授权，违反了联邦采购法。并且，拜登的行政命令规定，所有联邦工作人员必须接种COVID-19疫苗是违宪的。该诉讼要求法院发布一个全国性的临时禁令，停止疫苗授权。
+由于有如此多的现役军人拒绝接种疫苗，解雇这些军人，将会导致飞行员和飞机维修人员的岗位空缺。一旦有危机发生，会直接影响美国空军的战斗力，现在，美军官员们正面临着两难的境地。
 
-越来越多的州反对执行疫苗强制令，加入诉讼的州包括：内布拉斯加，阿拉斯加，新罕布什尔，蒙大拿，南达科他，北达科他，爱荷华，阿肯色，怀俄明和密苏里。
+空军是美军的第三大军种，有 32万4000 名军人，即使是1.2万人的损失，也是难以承受的挫折。
 
-参考链接：[Several states sue Biden administration to halt federal vaccine mandate](https://justthenews.com/politics-policy/coronavirus/group-republican-attorneys-general-file-lawsuit-attempting-halt-federal)
+参考链接：
+1）[Up to 12,000 Air Force personnel have rejected vaccine orders: report](https://thehill.com/homenews/news/579066-up-to-12000-air-force-personnel-have-rejected-vaccine-orders-report)
+2）[https://gettr.com/post/pfmftf5148](https://gettr.com/post/pfmftf5148)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-总编：Ivy001
-编辑：Ivy001
+总编：Jack Li文阳
+编辑：Jack Li文阳
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -32,8 +34,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
 
 
  

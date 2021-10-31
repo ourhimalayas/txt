@@ -2,30 +2,39 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月31日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1631093/)
+## 美国多个州起诉拜登政府要求停止强制疫苗接种
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631101/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+作者：MOS – 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据拜登政府疫苗强制令要求，联邦承包商必须在12月8日之前，提供疫苗接种证明，否则可能面临被解雇。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-4-1.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-20.jpeg)
 
-视频参看：2021.10.31早GTV新闻访谈
+10月29日，一群共和党总检察长起诉拜登政府，质疑其对联邦承包商的疫苗授权。
 
-[https://gtv.org/broadcast/watch/617e8c2c11d1862968fe1b9b](https://gtv.org/broadcast/watch/617e8c2c11d1862968fe1b9b)
+由密苏里州总检察长——埃里克-施密特领导的诉讼案认为，拜登政府对承包商实行疫苗授权，违反了联邦采购法。并且，拜登的行政命令规定，所有联邦工作人员必须接种COVID-19疫苗是违宪的。该诉讼要求法院发布一个全国性的临时禁令，停止疫苗授权。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+越来越多的州反对执行疫苗强制令，加入诉讼的州包括：内布拉斯加，阿拉斯加，新罕布什尔，蒙大拿，南达科他，北达科他，爱荷华，阿肯色，怀俄明和密苏里。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-17.png)
+参考链接：[Several states sue Biden administration to halt federal vaccine mandate](https://justthenews.com/politics-policy/coronavirus/group-republican-attorneys-general-file-lawsuit-attempting-halt-federal)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Ivy001
+编辑：Ivy001
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
 
  
 

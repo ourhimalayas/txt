@@ -2,22 +2,48 @@
 ---
 
 
-## 美德要防止俄操纵天然气供应
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1631254/)
+## 贼喊捉贼 共军扰台军机竟首先广播驱离台湾军机
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631283/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+作者：澳喜农场 – 在远方
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/u-1.jpg)vestnikkavkaza.net
-美东时间10月31日报道，白宫新闻处发表声明，美国总统拜登、德国总理安格拉∙默克尔和德国副总理奥拉夫∙肖尔茨讨论了防止俄罗斯“操纵”天然气供应的联合措施。
 
-声明称，“拜登总统强调了继续努力实施美德联合协议的重要性，以支持乌克兰和欧洲的能源安全，让俄罗斯不能为有害的政治目的操纵天然气供应。”
 
-他们还讨论了阿富汗的局势，包括继续提供人道主义援助。拜登还感谢德国欢迎3.5万名移居美国的阿富汗人，并祝贺默克尔16年来在美德共同安全和跨大西洋关系上的领导作用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+10月29日中午，共军扰台飞机，竟然对台湾军机近距离广播称，台湾地区飞机已经危及共军军机飞行安全，并让其立即离开。
+
+据统计，共军2021年已累计入侵台湾空域214天，本月累计入侵台湾空域18天。本月台军广播驱离记录108次，2021年累计广播驱离已达647次。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-14.jpg)
+近日，台湾总统蔡英文、美国总统拜登对美台关系的讲话，以及蔡英文首次证实有美军驻训台湾的事情，已经深深刺痛了中共的敏感神经，加剧共军扰台。
 
 参考链接：
+[《獨家》越來越囂張 我軍機升空攔截竟遭共機先廣播驅離](https://news.ltn.com.tw/news/politics/breakingnews/3720873)
 
-[https://www.rbc.ru/rbcfreenews/617e0ecc9a79477d47c4f824](https://www.rbc.ru/rbcfreenews/617e0ecc9a79477d47c4f824)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：木白
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
