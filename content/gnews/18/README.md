@@ -2,25 +2,30 @@
 ---
 
 
-## 塔利班警告美国
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1630993/)
+## GTV新闻访谈简报|2021年10月31日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1631093/)
 
-#### 编译：Grace
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-116.jpg)图片来源：网络截图
-据每日来电（Daily Caller）10月30日报道，塔利班周六警告美国和全球其他国家，如果他们继续不正式承认阿富汗的新政府，那么他们的决定可能会给全世界带来后果。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
 
-据路透社报道，塔利班的发言人扎比胡拉.穆贾希德(Zabihullah Mujahid)在星期六的新闻发布会上说：“我们给美国的信息是，如果（美国）继续不承认下去，阿富汗的问题继续这样下去，这就是该（美国）政府的问题，并可能会变成世界问题。”
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-4-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-路透社报道，穆贾希德指出，阿富汗和美国之间缺乏正式的外交关系，就因为这样导致了2001年的军事入侵。穆贾希德说: “那些导致战争的问题，本来是可以通过谈判解决，也可以通过政治妥协解决的.”
+视频参看：2021.10.31早GTV新闻访谈
 
-据报道，穆贾希德继续声称，国际承认塔利班是阿富汗人民的权利。
+[https://gtv.org/broadcast/watch/617e8c2c11d1862968fe1b9b](https://gtv.org/broadcast/watch/617e8c2c11d1862968fe1b9b)
 
-据路透社报道，中共外交部长王毅于10月底在卡塔尔多哈会见了塔利班官员。虽然塔利班目前还没有得到世界上任何一个国家的承认，但是塔利班指望中共为阿富汗挣扎的经济提供财政援助。中共已承诺要向阿富汗的交通基础设施注入资金，并为喀布尔的出口产品提供通过邻国巴基斯坦进入中国市场的机会。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-另一方面，美国负责政治事务的副国务卿维多利亚.努兰德在9月的一次简报中说，拜登政府关于塔利班的战略与是否正式承认该组织有 “很大的差距”。然而，她并没有声称美国永远不会承认该组织。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-17.png)
 
-[**新闻来源：**Taliban Calls On US To Recognize Their Government, Says Failure To Do So Could Have Consequences](https://dailycaller.com/2021/10/30/taliban-warning-us-world-recognition/)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
