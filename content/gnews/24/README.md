@@ -2,35 +2,38 @@
 ---
 
 
-## 打破先例！香港海关将检查进口传媒物品，中共对港意识形态管控再加剧
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1630758/)
+## 德国停止追踪因疫苗死亡的数据，以掩盖疫苗杀人的真相
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1630950/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-103.png)
-[图片来源](https://www.rfa.org/mandarin/yataibaodao/zhengzhi/QL-11022020035358.html)
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-近日，香港海关新任关长何佩珊接受电视台访问时再次表示，要对入港书籍、杂志、日用品等“软对抗”物品进行防范打击。同时，强调“无惧就此打开先例”。
-
-何佩珊早前接受媒体采访时，也曾提到该议题。
-
-现在香港海关不会检查进口香港的书籍或文本的内容，何佩珊表示，“香港国安法本身已是先例，强调面对质疑指责，自己和同事都是无畏无惧”。
-
-至于如何判断物品是否属于“软对抗”，何佩珊表示会从整体考虑评估，包括具体内容、含意和当时社会状况等。
-
-郭文贵先生一直预警，中共接管香港，最终是要将香港内地化。
-
-在2019年以武力镇压并掌控香港后，中共对意识形态管控不断加严，包括对香港民众使用境外社交媒体的数据进行监控。如今又要开先例对进口书籍、影音和文本等物品进行查处，中共在香港制造的“白色恐怖”还在升级。
-
-信息来源：
-
-[香港海关关长何佩珊：无惧打开先例，打击书籍等“软对抗”物品输入](https://china.huanqiu.com/article/45Nq4xsZyjL)
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/rk_astrazeneca-australia_120421.jpg)图片来源：straitstimes.com
 
 
+#### 编译：小红帽
 
+德国中部城市魏玛（Weimar）不再公布因中共病毒（Covid-19）疫苗而死亡或不得不住院的居民数据。
+
+据报道，魏玛政府不希望有人反对，甚至只是以健康为理由质疑中共病毒疫苗的“安全性”和“有效性”，因此魏玛政府不再公布有关中共病毒疫苗造成的伤害和死亡数据。这试图制造一种假象，认为注射疫苗后一切正常。
+
+值得庆幸的是，即使政府拒绝公布接种中共病毒疫苗的真相，也有像CovidVaccineVictims.com这样的网站将继续跟踪因疫苗而造成的伤害和死亡案例。
+
+事实上，关于中共病毒疫苗的官方说法似乎正在崩溃。
+
+我们看到，关于疫苗作用的说法似乎发生了变化，从仅仅最大限度地减少感染，到阻止传播，再到你需要接种疫苗，否则你会杀死你的奶奶。
+
+换句话说，这种说法到处都是，就像政客们向他们的选民推行中共病毒主义一样。在整个世界都发现这只是一场骗局之前，中共病毒还能持续多久？
+
+**参考新闻：**[German city stops tracking covid vaccine deaths in order to suppress the truth about how many people are being KILLED by vaccines – NaturalNews.com](https://www.naturalnews.com/2021-10-30-german-city-stops-tracking-covid-vaccine-deaths.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

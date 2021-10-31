@@ -2,25 +2,39 @@
 ---
 
 
-## 塔利班警告美国
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1630993/)
+## 多达1.2万名美国空军人员拒绝接种新冠疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631121/)
 
-#### 编译：Grace
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-116.jpg)图片来源：网络截图
-据每日来电（Daily Caller）10月30日报道，塔利班周六警告美国和全球其他国家，如果他们继续不正式承认阿富汗的新政府，那么他们的决定可能会给全世界带来后果。
+作者：美东香草山农场 -文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月2日是美军疫苗接种的最后期限，据统计，大约有1.2万名美国空军人员拒绝接种新冠疫苗。
 
-据路透社报道，塔利班的发言人扎比胡拉.穆贾希德(Zabihullah Mujahid)在星期六的新闻发布会上说：“我们给美国的信息是，如果（美国）继续不承认下去，阿富汗的问题继续这样下去，这就是该（美国）政府的问题，并可能会变成世界问题。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-15.jpeg)
 
-路透社报道，穆贾希德指出，阿富汗和美国之间缺乏正式的外交关系，就因为这样导致了2001年的军事入侵。穆贾希德说: “那些导致战争的问题，本来是可以通过谈判解决，也可以通过政治妥协解决的.”
+官员们曾警告说，如果军事人员不接种新冠疫苗，他们将面临惩罚：包括被开除军籍，或受到军事司法指控。
 
-据报道，穆贾希德继续声称，国际承认塔利班是阿富汗人民的权利。
+由于有如此多的现役军人拒绝接种疫苗，解雇这些军人，将会导致飞行员和飞机维修人员的岗位空缺。一旦有危机发生，会直接影响美国空军的战斗力，现在，美军官员们正面临着两难的境地。
 
-据路透社报道，中共外交部长王毅于10月底在卡塔尔多哈会见了塔利班官员。虽然塔利班目前还没有得到世界上任何一个国家的承认，但是塔利班指望中共为阿富汗挣扎的经济提供财政援助。中共已承诺要向阿富汗的交通基础设施注入资金，并为喀布尔的出口产品提供通过邻国巴基斯坦进入中国市场的机会。
+空军是美军的第三大军种，有 32万4000 名军人，即使是1.2万人的损失，也是难以承受的挫折。
 
-另一方面，美国负责政治事务的副国务卿维多利亚.努兰德在9月的一次简报中说，拜登政府关于塔利班的战略与是否正式承认该组织有 “很大的差距”。然而，她并没有声称美国永远不会承认该组织。
+参考链接：
+1）[Up to 12,000 Air Force personnel have rejected vaccine orders: report](https://thehill.com/homenews/news/579066-up-to-12000-air-force-personnel-have-rejected-vaccine-orders-report)
+2）[https://gettr.com/post/pfmftf5148](https://gettr.com/post/pfmftf5148)
 
-[**新闻来源：**Taliban Calls On US To Recognize Their Government, Says Failure To Do So Could Have Consequences](https://dailycaller.com/2021/10/30/taliban-warning-us-world-recognition/)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：Jack Li文阳
+编辑：Jack Li文阳
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 
