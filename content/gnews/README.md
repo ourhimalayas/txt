@@ -15,113 +15,113 @@
 
 ---
 
-### [中共对美情报界病毒溯源新报告的反应](/content/gnews/1/README.md)
- ` 儒为`
+### [FDA顾问解释为何放弃对辉瑞的幼儿疫苗投票2/2](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [贝佐斯旗下蓝色起源计划在太空中建立“商业园”](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [七哥谈打赏以及如何做好视频](/content/gnews/3/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [班农专访7: 共产主义是病毒之父](/content/gnews/4/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [串珠429:江志成等杀习失败被抓，一天边控六万人](/content/gnews/5/README.md)
+### [串珠430:中共最后的挣扎：征房产税、关互联网](/content/gnews/2/README.md)
  ` 郭爆料串珠`
 
-### [国际要闻汇编 10月31日](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [2021年10月30日郭先生盖特 — 视频盖特1「8分44秒」](/content/gnews/3/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [参议员布莱克本提出法案让工人免受疫苗强制令](/content/gnews/7/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [FDA 顾问解释为何放弃对辉瑞的幼儿疫苗投票1/2](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [【玫瑰看新闻】第193期 新西兰本地疫情新闻 币圈新闻](/content/gnews/8/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [班农专访3: 中共利用SPAC公司为川普设圈套](/content/gnews/9/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [从民生角度来解读墙内供应链危机](/content/gnews/10/README.md)
- ` 澳喜农场`
-
-### [银河快讯：日本对中俄加强合作表示警惕；11月起解禁出租车拼车](/content/gnews/11/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [美国人知道MAGA落入CCP操控的DWAC骗局，未来很惨](/content/gnews/12/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [串珠428:习近平性无能，脑嘴不灵做了四次脊椎手术](/content/gnews/13/README.md)
- ` 郭爆料串珠`
-
-### [墙内要闻汇编 10月31日](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [喜币1111111悔死众伪类](/content/gnews/15/README.md)
- ` 首尔天池农场`
-
-### [【玫瑰看新闻】第193期 疫情新闻通报](/content/gnews/16/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [喜币对于保障人类财富安全的意义](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
-
-### [【玫瑰看新闻】第193期 国际热点新闻](/content/gnews/18/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [银河快讯：日本选举投计票实施在即；日本等盟友担忧美国采取“不先使用核武”政策](/content/gnews/19/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [完全接种疫苗的乔恩·邦·乔维感染中共病毒](/content/gnews/20/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [北京疫情再爆发，中共放毒为推进第三针加强针](/content/gnews/21/README.md)
- ` 澳喜农场`
-
-### [万众瞩目的喜币将给世界带来无限希望](/content/gnews/22/README.md)
- ` 纽约香草山MOS03`
-
-### [中共大到不能倒了吗？](/content/gnews/23/README.md)
- ` 文名`
-
-### [美国是否现在就投降中共，一了百了？](/content/gnews/24/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共国PMI指数突破零界点仍加速下滑](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [吴钊燮访问布鲁塞尔 会晤友台欧洲议员](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【玫瑰看新闻】第191期](/content/gnews/27/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [中共监管层密集开会，应对房企海外债务违约潮！](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [英媒报道：中共零确诊的政策造成人民损失](/content/gnews/29/README.md)
- ` 澳喜农场`
-
-### [每日快报：英国已接种者的CCP病毒感染率高于未接种者](/content/gnews/30/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [币圈新闻动态：HCN不是用来炒的](/content/gnews/31/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [AUKUS联盟和澳大利亚的核能力](/content/gnews/32/README.md)
- ` 走进澳洲`
-
-### [病人在医院恳求ICU尝试给他们的家人使用伊维菌素，但是医生不同意](/content/gnews/33/README.md)
- ` 加拿大多伦多枫叶农场视频组`
-
-### [中国江西铅山：一人核酸阳性，全县红绿灯统一变红](/content/gnews/34/README.md)
- ` 首尔天池农场`
-
-### [共产党=共烂党](/content/gnews/35/README.md)
+### [国内支付系统原罪：人口红利](/content/gnews/5/README.md)
  ` 银河勇气之星`
 
-### [郭文贵先生：金钱是有主人的](/content/gnews/36/README.md)
- ` 滴水穿石`
+### [中共的战狼大使在目睹澳中关系破裂后打包回家](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [意大利强制实行绿色护照，至少延长至明年三月](/content/gnews/7/README.md)
+ ` xiaobaige`
+
+### [中共对美情报界病毒溯源新报告的反应](/content/gnews/8/README.md)
+ ` 儒为`
+
+### [房产税带来的大崩溃](/content/gnews/9/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [贝佐斯旗下蓝色起源计划在太空中建立“商业园”](/content/gnews/10/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [七哥谈打赏以及如何做好视频](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [班农专访7: 共产主义是病毒之父](/content/gnews/12/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [串珠429:江志成等杀习失败被抓，一天边控六万人](/content/gnews/13/README.md)
+ ` 郭爆料串珠`
+
+### [国际要闻汇编 10月31日](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [参议员布莱克本提出法案让工人免受疫苗强制令](/content/gnews/15/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【玫瑰看新闻】第193期 新西兰本地疫情新闻 币圈新闻](/content/gnews/16/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [班农专访3: 中共利用SPAC公司为川普设圈套](/content/gnews/17/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [从民生角度来解读墙内供应链危机](/content/gnews/18/README.md)
+ ` 澳喜农场`
+
+### [银河快讯：日本对中俄加强合作表示警惕；11月起解禁出租车拼车](/content/gnews/19/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [美国人知道MAGA落入CCP操控的DWAC骗局，未来很惨](/content/gnews/20/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [串珠428:习近平性无能，脑嘴不灵做了四次脊椎手术](/content/gnews/21/README.md)
+ ` 郭爆料串珠`
+
+### [税税不觉晓，痛苦知多少——浅析中共国的税负](/content/gnews/22/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [墙内要闻汇编 10月31日](/content/gnews/23/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [喜币1111111悔死众伪类](/content/gnews/24/README.md)
+ ` 首尔天池农场`
+
+### [【玫瑰看新闻】第193期 疫情新闻通报](/content/gnews/25/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [喜币对于保障人类财富安全的意义](/content/gnews/26/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【玫瑰看新闻】第193期 国际热点新闻](/content/gnews/27/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [银河快讯：日本选举投计票实施在即；日本等盟友担忧美国采取“不先使用核武”政策](/content/gnews/28/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [完全接种疫苗的乔恩·邦·乔维感染中共病毒](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [北京疫情再爆发，中共放毒为推进第三针加强针](/content/gnews/30/README.md)
+ ` 澳喜农场`
+
+### [万众瞩目的喜币将给世界带来无限希望](/content/gnews/31/README.md)
+ ` 纽约香草山MOS03`
+
+### [中共国PMI指数突破零界点仍加速下滑](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [吴钊燮访问布鲁塞尔 会晤友台欧洲议员](/content/gnews/33/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共监管层密集开会，应对房企海外债务违约潮！](/content/gnews/34/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [每日快报：英国已接种者的CCP病毒感染率高于未接种者](/content/gnews/35/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [病人在医院恳求ICU尝试给他们的家人使用伊维菌素，但是医生不同意](/content/gnews/36/README.md)
+ ` 加拿大多伦多枫叶农场视频组`
 
 ### [视频| 一个黄金的机会](/content/gnews/37/README.md)
  ` MOSREC`

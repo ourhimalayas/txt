@@ -2,47 +2,22 @@
 ---
 
 
-## 参议员布莱克本提出法案让工人免受疫苗强制令
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1630411/)
+## 意大利强制实行绿色护照，至少延长至明年三月
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1630507/)
 
-**据《一美新闻网》新闻室2021年10月29日报道**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/111-7-400x225.jpg)华盛顿特区 – 10 月 26 日：资深参议员玛莎·布莱克本（ Marsha Blackburn ）（共和党-田纳西州）在参议院消费者保护、产品安全和数据安全小组委员会发表讲话。 （塞缪尔·科鲁姆（Samuel Corum）/盖蒂图片社摄）
-参议员玛莎·布莱克本 (R-Tenn.) 推出了一项新措施，以保护美国的必不可少的工人在拒绝接种疫苗时不会受到处罚或被解雇。本周早些时候发布的名为“保持我们的抗中共病毒英雄就业法案”的立法提案，由多个州的共和党参议员共同发起。
-
-布莱克本表达了她对在大流行中为美国人冒着生命危险工作的，必不可少的工人的支持，并发布了一项措施，为不愿注射疫苗的敬业工人提供豁免。
-
-布莱克本说：“在整个大流行期间，一个群体挺身而出。他们每天上班，以确保美国人能够在中共病毒大流行中幸存下来。他们的努力让美国继续运转，让这个国家保持繁荣。在全国各地，这些人被尊为我们这个时代的英雄。他们被认为是必不可少的工人”。
+#### 翻译整理： 意大利罗马达芬奇农场          小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Schermata-2021-10-31-alle-11.33.34.png)图片来源：新闻报
 
 
+10月26日意大利新冠感染率又一次上升，达到4054人，政府准备将绿色护照延长至少至明年三月，这一措施尤其是针对那些不愿打疫苗，反对疫苗护照的人。这些人本希望每月用200欧元左右进行核酸检测只到今年12月31日， 这是政府宣布国家紧急状态和绿色护照的的期限。意大利总统马塔莱纳指责那些不愿注射疫苗的人：“不能让那些反科学的理论占据上风，有时是一种毫无意义的暴力。”
 
-参议员玛莎布莱克本@MarshaBlackburn
-拜登的中共病毒疫苗授权将使社区没有足够的警察、消防员和医生来保证美国人的安全。
-KeepOurCOVIDHeroesEmployed
-2021 年 10 月 29 日
+对于60岁以上注射第三剂疫苗已是显而易见的。自明年一月起将开打对60岁以下的人，然后逐渐扩展到各个年龄段。第三针是在注射了第二针之后的六个月。也就是说五十岁左右的人一月至二月开打第三针，三月至四月四十左右的人施打第三针。希望疫情再次会呈下降趋势，不必再采取进一步的措施。根据最近48小时的疫情，全意染疫人数已经达到4000人，疫苗接种率最低的阿迪杰自治区，每十万人口中每星期已有一百人感染， 已超过安全线的一倍。
 
+这是名为绿色护照实则是中国式的社会信用体系，政府正在一步步地有计划地进行限制政策， 随着冬天的到来， 接种疫苗人数的进一步增加，感染率会直线上升。威逼利诱再加媒体的宣传洗脑，西方的自由民主已不复存在。
 
+原文链接：https://www.lastampa.it/cronaca/2021/10/26/news/obbligo\_di\_green\_pass\_si\_va\_verso\_la\_proroga\_almeno\_fino\_a\_marzo-296676/
 
-
-
-> Biden’s COVID vaccine mandates will leave communities without enough police officers, firefighters and doctors to keep Americans safe. [#KeepOurCOVIDHeroesEmployed](https://twitter.com/hashtag/KeepOurCOVIDHeroesEmployed?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [October 29, 2021](https://twitter.com/MarshaBlackburn/status/1454110351881031685?ref_src=twsrc%5Etfw)
-
-
-
-
-
-该法案是在乔·拜登 ( Joe Biden ) 向全国范围内必不可少的工人发布疫苗强制令之后提出的，强制令要求他们在 12 月 8 日之前接种疫苗。布莱克本和她的选民们认为，我们应该为工人的英雄主义而喝彩和赞扬，而不是去“惩罚他们行使个人健康决定的自由”。
-
-与此同时，几位政界人士和企业主支持这位参议员，感谢她对于在当前的供应链危机中可能导致更多裁员的强制令的反对。
-
-原文链接：[https://www.oann.com/sen-blackburn-issues-bill-protecting-essential-workers-from-vaccine-mandates/](https://www.oann.com/sen-blackburn-issues-bill-protecting-essential-workers-from-vaccine-mandates/)
-
-* * *
-
-翻译：Nick
-校对：JS709
-编辑：烟波浩淼
-发布：文鸣
+责任编辑、发布： Xiao baige
 
  
 

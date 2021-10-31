@@ -2,86 +2,63 @@
 ---
 
 
-## 美国人知道MAGA落入CCP操控的DWAC骗局，未来很惨
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1630399/)
+## 班农专访7: 共产主义是病毒之父
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1630472/)
 
-[https://gtv.org/video/id=617d286dadfd99590c31780b](https://gtv.org/video/id=617d286dadfd99590c31780b)
+**简评：**
 
-**郭文贵
-Miles Guo**
+美国国立卫生院（NIH）承认通过生态健康联盟资助了武汉病毒实验室的功能增强实验。福奇被证明对国会和美国民众撒谎，从无所不知、神一般的存在到不再被信任，失去了大量的选民支持。班农先生从最开始质疑福奇、追溯病毒起源，被嘲笑、被全网封杀，到现在被证明是正确的。
 
-一个股市还有一个庄家，还有基金，还有后面的做家
-A stock market has a banker, a fund, and a operator behind it
+70%的美国民众相信病毒来自武汉实验室，并非自然进化。病毒起源的追查和美国纳税人的钱如何资助了中共的生化武器试验的调查，都在进行中。一切都是刚刚开始，最终的答案还没有揭晓。一旦中国人获得了真相，就会发生大事。中国人能在自由中繁荣，不能在奴役下繁荣。是时候让中国人得到自由了。
 
-就是叫吴征这号的共产党，他做你的时候，（股票）一定会一直上，那是不可能的
-Just like Bruno Wu this kind people from communist party, it’s impossible to let stock price up all the time
+[GTV视频链接](https://gtv.org/video/id=617cd93cadfd99590c3164bd)
 
-就到了174的时候，就几秒钟，啪叽，就下来了120，然后到90
-When it reached $174, it’s just few seconds, then rushed down to $120 to $90
 
-它不可能呆几个小时，因为他会赔掉很多钱的，
-It’s impossible to stay for a few hours, because he will lose a lot of money
 
-现在看大部分的赔家都是MAGA、穷人（川普的）支持者
-Now most of the losers are MAGA people and the poor (Trump’s) supporters
+**视频字幕：**
 
-而且今天看这个MAGA所有的输钱的人，会输得很惨
-And today, all the MAGA people who lose money this time and will lose miserably
+**主持人Castle**：共产主义不仅是终极病毒变种，它还是病毒之父。美国国立卫生院刚刚承认，他们通过生态健康联盟资助了武毒所的研究。毫不意外，这意味着福奇对国会撒谎。你是否认为福奇作为国立卫生院掌门人的时日已经屈指可数了？我们如何帮助美国对福奇追责呢？谢谢。
 
-因为太夸张了，从9块钱炒到174点时候，将近十七八倍
-Because it’s too dramatic, they manipulated the stock price from $9 to $174, nearly 17 to 18 times
+**班农先生**：我认为，尤其是对于中国墙内的老百姓来说，我请求中国百姓（理解），我们的体系非常不完美，它的力量源自允许人们追求真相。
 
-那么这些人陪的就很夸张了，因为老百姓在美国
-Then these people’s lost was too much because they are America’s Laobaixing
+想想我们这一路的经历吧。在2020年《战斗室》大瘟疫节目开播的时候，文贵给了我们大量的情报。再看看今天我们的处境。要知道，当初福奇被奉为神明，他无所不知，“病毒绝对与功能增强实验无关”。每当我们提起这个话题都会遭到嘲笑。我被推特封号、被油管封号，因为对福奇的穷追猛打，我被赶出了所有社交媒体平台。但现在证明我们是对的。
 
-大家你们好好看一看，美国那个叫什么Wells Fargo的银行，富国银行
-Everyone, take a good look at the Wells Fargo bank in the United States
+拉斯穆森的民调显示，70%美国民众相信病毒来自武汉实验室。它是在实验室制造的，不是来自自然进化。虽然花了不少时间，但我们终于通过国会找到了真相。
 
-整个的审判案子当中，有一些残疾人和吃美国救济的人
-In the entire trial case, there are some disabled people and people who rely on American relief
+现在证明福奇是个骗子，我认为他应该在被炒鱿鱼之前主动辞职。我认为美国检察官应该向司法部提起刑事起诉。我相信这会发生，尤其是我们赢下2022中期选举之后。但相比之下，中共完全在逍遥法外。
 
-就为了等15美金每个月的救济，但是这15美金被富国银行骗走以后
-Just to wait for the 15-dollar monthly relief, but after the 15-dollar was defrauded by Wells Fargo Bank
+文贵一直在强调，我们完全不知道湖北人民经历了何种遭遇？武汉人民经历了什么？中国人民经历了什么？死了多少人，怎么死的？他们的家人怎么样了，是什么导致了他们的遭遇？
 
-他饿死在家里了，还有的人在家里面吃救济的盲人，由于没有20美金饿死在家里面了
-He starved to death at home, and some blind people who relied on relief at home, because they didn’t get $20, starved to death at home
+为什么文贵如此坚信病毒是故意释放？纳瓦㑩和我认为它可能是意外泄漏，但中共加剧了影响。所有这些问题都无法得到解答，因为中共拒绝配合。
 
-MAGA、川普的支持者，很多是美国中间很穷很穷的人
-Many of the supporters of MAGA and Trump are very poor people in the United States
+我认为我们正处于开始揭露福奇的时候，看看那些证据吧。要知道，他失去了大量独立选民的支持，而不是川普支持者、共和党人或民主党人。他在独立选民之中丢掉了最多的支持者，因为他们曾经对他抱有信心。现在没人再相信他，而且情况会更糟。他撒谎，在功能增强实验上撒谎，在国立卫生院（对病毒）的参与和支持上撒谎。我们还没开始真正追究他的罪责，但那一天迟早会到来。
 
-就和中国的杨改兰是一样的，那么MAGA的投资被骗走了以后，他就完了
-Just like China’s Yang Gailang, then after MAGA supporters investment was deceived, he’s done
+我们刚刚开始追查，美国纳税人、老百姓的税收，他们辛苦交的税，是如何被拿去资助中共解放军的生物武器实验室的？这是如何发生的？弗朗西斯科·林斯，华盛顿最有权势的人之一，刚刚辞职了。就是因为这个事实。因为他知道对他的审判日不远了，他的谎言会被揭穿，他想在被炒掉之前辞职。
 
-没有任何生计来源了，可不是一股或十股的问题，很可悲的
-There is no source of livelihood. it’s not about one share or ten shares, it’s so sad
+这将产生巨大的影响，因为Gnews、GTV，还有你们对《战斗室》的支持，让我们能够挖掘真相。
 
-所以这一次，今天早上刚刚7多钟，一位美国的朋友发来信息
-So this time, just over 7 o’clock this morning, an American friend sent me a message
+娜塔莉·温特斯，GTV的观众让她成为了盖特和推特上的明星。有非常多的海外华侨支持她的账号、传播她的报道。
 
-他说，这次的这个共产党安排的川普总统的股票骗局
-He said that this time, President Trump’s stock scam arranged by the Communist Party
+一切才刚刚开始，我们还没有得到最终的答案。我们才刚刚开始揭穿福奇的谎言，但这是非常非常重要的。这对于我们的工作来说，是个巨大的胜利，也是为什么我喜欢参加这里每周的访谈，你们的问题非常专业。
 
-会把整个美国，所有川普和MAGA的跟随者，很多人会毁在永远不可回头的路上
-will destroy the entire United States, all Trump and MAGA followers, and many people on the road that can never be turned back
+我做了无数访谈。我一直对人们说，最严苛的访谈，最严苛、最有洞察力的问题是每周三英喜农场在GTV的访谈，这太棒了。我们正在产生巨大的影响，你们正在产生巨大影响，你们的观众正在产生巨大影响。
+
+这显示出，当中国人获得了真实的信息，获得了真相，就会发生伟大的事情。中国人能在自由中繁荣，不能在奴役下繁荣。这就是为什么中国人不能在中共治下获得兴旺，而能在西方、在世人皆有的基本自由里，获得兴旺。是时候让中国人得到自由了！
+[![](https://spark.adobe.com/page/3B6RC91JQEqBf/images/a126c348-b436-4f61-b608-5ad22cff9a0f.png?asset_id=97aee942-c3db-42f0-871b-ccab84a9de0f&amp;img_etag=%2210b729b8d584521311d0c78293ebdcfd%22&amp;size=1024)](https://spark.adobe.com/page/3B6RC91JQEqBf/images/a126c348-b436-4f61-b608-5ad22cff9a0f.png?asset_id=97aee942-c3db-42f0-871b-ccab84a9de0f&amp;img_etag=%2210b729b8d584521311d0c78293ebdcfd%22&amp;size=1024)
+*字幕/听写：云岭 | 翻译：Wade* *| PR：Roberts* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
 
 * * *
 
-Date:10/29/2021
-原视频标题: 美国人知道MAGA落入CCP操控的DWAC骗局，未来很惨
-The Americans know that MAGA has fallen into the DWAC scam controlled by CCP, and the future will be miserable
-原视频日期：2021/10/27
-原视频链接[https://twitter.com/se1y7cblljselva/status/1453643831635701760?s=24](https://twitter.com/se1y7cblljselva/status/1453643831635701760?s=24)
-任务编号：KC211（2703）
-视频时间段 : 0:00-2:08
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
