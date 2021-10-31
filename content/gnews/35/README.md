@@ -2,27 +2,28 @@
 ---
 
 
-## 川普被要求公开他新社交媒体的源代码
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1629126/)
+## 有声|中共国禽流感传人案例猛增
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1629256/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+配音：香草山美食部 – 玫瑰园
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/D.png)inddependent.co.uk
-美东时间10月30日报道，一个所谓的开源、去中心化的社交媒体平台Mastodon公司要求美国前总统川普的团队公开其新社交网络TRUTH Social中使用的源代码。
+中共国在2021年向世卫组织通报称，有21起人类感染H5N6亚型禽流感的案例，而去年只有5起。虽然这21名患者，相比2017年感染H7N9毒株的数百人要低得多，但是这些感染非常严重，导致多人病危和6人死亡。
 
-Mastodon称，“10月26日，我们向TRUTH Social的总法律顾问发出了一封正式信函，要求按照许可证规定公布源代码。”该公司强调，在收到通知后，TRUTH Social有30天时间来完成要求。如果不这样做，可能会导致许可证被不可逆转地撤销。
+这引起了专家的关切，他们说以前流行的一个毒株似乎发生了变化，可能对人更有传染性。世卫组织在10月4日的一份声明中，强调了病例的增加，并说大多数病例都与家禽接触过，没有人传人的确认病例。
 
-根据该声明，尽管TRUTH Social尚未推出，但一些用户已经访问了该社交网络的测试版，并注意到一个“令人震惊的警告”，即源代码以及其内容都是TRUTH Social的财产。
+文字版原文：[中共国禽流感传人案例猛增](https://gnews.org/zh-hans/1622796/)
 
-Mastodon保证，川普的社交网络是基于该平台的公开代码。“值得注意的是，无论是条款还是网站的任何其他部分都不包含Mastodon的任何链接，也不包含Mastodon用户界面中默认存在的源代码的任何链接”。该公司强调，Mastodon平台的使用条款规定，在其基础上制作的任何社交网站必须开放源代码。
+音频处理：喜山必胜Maverick
 
-川普于10月21日宣布TRUTH Social，该服务的测试版将于11月向“受邀用户”开放，预计将于2022年初全面推出。
-
-参考链接：
-
-[https://www.rbc.ru/rbcfreenews/617cdcb39a79473689b264d9](https://www.rbc.ru/rbcfreenews/617cdcb39a79473689b264d9)
-
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

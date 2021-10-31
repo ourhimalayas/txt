@@ -2,74 +2,76 @@
 ---
 
 
-## 太平联盟、吴征以及FBI的前高管都是连在一起的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1629640/)
+## 纽约的急救人员和其他市政工作人员抗议强制接种疫苗的规定
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1629696/)
 
-[https://gtv.org/video/id=617be77badfd99590c30e586](https://gtv.org/video/id=617be77badfd99590c30e586)
+[https://gtv.org/video/id=617be821adfd99590c30e639](https://gtv.org/video/id=617be821adfd99590c30e639)
 
-**郭文贵**
-**Miles Guo**
+Today, We stand united on one cause
+今天，我们为同一个原因而团结
 
-还有大家没有注意到，七哥这个官司最核心的事情
-Also does everyone notice that the core issue of QiGe (Miles)’s lawsuit
+firefighters, Fire Officers, EMS, fire dispatchers,
+消防员、消防官员、紧急医疗服务、消防调度员、
 
-就是如何能把吴征和太平联盟官司连在一起，这是讲证据，讲法律的
-It’s how to connect Bruno Wu and Pacific Alliance Group lawsuit together. This is about evidence and law
+others affinity groups of the FDNY, sanitations, DSNY,
+纽约市消防局、环卫、纽约市环卫局的其他亲密团体
 
-马蕊强奸案，吴征付律师费，博讯告七哥案，吴征付律师费
-In Ma Rui’s rape case, Bruno Wu paid the lawyer’s fee; Boxun sued QiGe(Miles), and Bruno Wu paid the lawyer’s fee
+NYPD, my brothers and sisters,
+纽约警察局，我的兄弟姐妹们
 
-太平联盟说吴征没付律师费，现在吴征跟它有关系
-Pacific Alliance Group claimed that Bruno Wu did not pay the lawyer’s fees, and now Bruno Wu has some connection with it
+we, what common cause to stand for freedom to choose
+我们，支持选择自由是我们的共同事业
 
-吴征跟它有关系，不但如此，太平联盟的案子
-Bruno Wu has some connection with it. Not only that, in Pacific Alliance Group’s case
+the ability to choose, give me a second I’ll be done
+选择的能力, 给我一点时间，我很快就结束
 
-其中用了两家律师事务所
-They used two law firms
+in the the ability to choose is our God given rights.
+在有选择的能力上是上帝赋予我们的权利
 
-其中一个事务所叫AI什么事务
-one of firm is called AI…firm
+Our free will
+我们的自由意志
 
-就是这个FBI的前高管董事，就叫Frankel
-the former FBI executive director named Frankel
+The right to choose for ourselves, our families, our loved ones.
+选择我们自己的、我们的家人的、我们所爱的人的权利
 
-又是这个运鸿，又是吴征
-It’s YunHong again, and Bruno Wu again
+This is our bodies, not yours.
+这是我们的身体，不是你们的
 
-这个Digital World 数码世界里边最关键人物
-the most critical person in the Digital World
+We went through the this pandemic over a year.
+一年多来，我们经历了这场大流行病
 
-而且是股东，关键是太平联盟这次又和吴征成为了一个重要合作伙伴
-And as a shareholder, the key is that Pacific Alliance Group has become an important partner with Bruno Wu this time
+We worked. We worked.
+我们努力工作，我们努力工作
 
-你看到11家基金，
-You see 11 funds,
+We worked tirelessly, long hours without fear, bully
+我们不知疲倦地工作，长时间无所畏惧
 
-几乎8家到9家都是因为太平联盟走到一起投资的运鸿
-almost 8 to 9 of those funds are all because Pacific Alliance Group came together to invest in YunHong
+took care of us, the citizens of the city of New York,
+照顾了我们纽约市的市民
 
-然后又投资Digital World，
-Then they invested in Digital World,
+we answered Atlas countless calls, countless EMS emergencies
+我们接听了无数的电话，响应了无数医疗服务的紧急情况
 
-也就是太平联盟和吴征和这个FBI的前高管是连在一起的
-that is, Pacific Alliance Group and Bruno Wu are connected with this former FBI executive
+and other emergencies to keep the city safe.
+以及其他紧急情况，以确保城市的安全
 
-**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1453724951274352657?s=24](https://twitter.com/se1y7cblljselva/status/1453724951274352657?s=24)
+We are citizens of the United States of America, New Yorkers
+我们是美利坚合众国的公民，纽约人
 
 ———————————————————
 
+**原视频链接:**[https://twitter.com/tpostmillennial/status/1453768714579582979?s=24](https://twitter.com/tpostmillennial/status/1453768714579582979?s=24)
+
 Date:10/28/2021
-原视频标题: 
-Pacific Alliance Group, Bruno Wu and Former FBI director are all connected together
-原视频日期：2021/10/27
-任务编号：KC210（2701）
-视频时间段 : 0:00-1:13
+原视频标题: New York First responders and other municipal workers protest against vaccine mandates.
+原视频日期：2021/10/28
+任务编号：KE343（2706）
+视频时间段 : 0:00-1:23
 
 英听校: 洛杉矶盘古农场 – Layka
 翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)

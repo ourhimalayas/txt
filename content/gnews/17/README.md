@@ -2,132 +2,66 @@
 ---
 
 
-## 两三年后的价格是决定喜馬拉雅币价值的关键之二
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1629572/)
+## 信仰的力量——郭先生谈喜币上市
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1629616/)
 
-[https://gtv.org/video/id=617b90b7adfd99590c30b117](https://gtv.org/video/id=617b90b7adfd99590c30b117)
+**字幕/剪辑：**尕鱼儿 
+**编辑/发布：**Candy
 
-第二条
-Segundo
 
-记住七哥说的话, 喜币真正的价格
-Recuerda lo que digo, el precio real de la moneda de Himalaya
+```
+星期一，会改变一切；
+星期一，会创造不同的文化，
+不同的世界的新人类，
+不同的财富观和不同的金融系统。
+而且大家将看到的全人类对信仰和宗教的重新理解。
+我说的是信仰和宗教，
+我没光说宗教，也没有光说信仰。为什么？
 
-前三个月你千万别在乎
-No tomes en cuenta los primeros tres meses
+未来，虚拟货币在宗教和信仰领域会扮演什么角色，
+大家从来没探讨过，哪天我给你们讲讲。
 
-它涨到100万
-Si sube hasta 1 millón
+黄金会扮演什么角色？
+我相信黄金一定会回归（之本身属性），
+你们一定不要忘了啊！
 
-它跌到1毛钱, 0.001分你都别在乎
-O baja a 1 centavo, 0.001 centavos, no lo tomes en cuenta
+喜联储中整个的稳定币是百分之百和美金挂钩，
+随时你可以拿走，随时可以进，随时可以出。
+美金跌就跌，美金涨就涨。
 
-喜币真正的拥有者
-El verdadero dueño de la moneda de Himalaya
+它的浮动币就叫喜币，
+它是拿所有当年收入的20%（购买）黄金作为储备的，
+千万不要忘了这个问题。
 
-是在两年后
-Es después de dos años
+未来的石油、未来的粮食，
+大家知道，巴西的整个粮仓、巴西总统跟咱们啥关系。
 
-它几乎它能告诉你
-Ella prácticamente te puede decir
+在二十四小时大家都有睡觉的时间，
+在欧洲的、在巴西的、在日本的、在加拿大的、在澳大利亚、在新西兰的
+我们的政治公关组从来不会睡觉的，
+他在全世界在为我们新中国联邦公关！
+(某位西人说)新中国联邦就是中国人的未来，也是世界的未来。
+而且她说当虚拟货币走到走进宗教，和信仰挂钩的时候，
+就真的是人类的一个新世界到来的时候！
 
-是否你应该持有和不应该持有
-Si debes tenerla o no
+在这种情况下七哥晚上睡俩小时，
+还能兴奋地和美女约会，
+到这儿直播。
+我还真的是只吃了昨天中午那顿生鱼片，
+到现在没吃东西，
+还那么兴奋！为什么呀？
+人要有希望，人一定要有奔头啊——就像我爹我娘说的！
 
-喜币一定是挣钱的
-La moneda de Himalaya seguramente puede ganar dinero
+(免责声明：本文内容仅代表作者个人观点，Gnews不承担任何责任。）
 
-谁要赔了钱
-Quien pierde el dinero
+更多资讯，请关注：
+澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
+澳大利亚墨尔本雅典娜农场Gettr：himalayaathena
+澳大利亚墨尔本雅典娜农场YouTube
+澳大利亚墨尔本雅典娜农场Discord
+澳大利亚墨尔本雅典娜农场GTV直播1台
+```
 
-我可以说我100%赔
-Puedo decir que yo perderé el 100%
-
-我100%给你们
-Les doy mi 100%
-
-谁赔了钱我承担
-Quien pierde dinero yo lo asumo
-
-它一定会挣的
-Ella seguramente ganará dinero
-
-它只是挣多少而已
-Solamente consiste en cuánto
-
-但是对你来讲说, 老实话
-Pero para ti, hablando sinceramente
-
-你会挣个3倍、5倍、10倍、100倍
-Ganarás el triple, cinco veces, diez veces, hasta cien veces más
-
-你挣完钱以后, 你拿走了我会告诉你
-Luego cuando ganes el dinero y lo vendas, te digo
-
-你什么都没有
-No tendrás nada
-
-真正的想了解喜币的人是在两三年以后
-Quien realmente quiere conocer a la moneda de Himalaya es después de dos a tres años
-
-就像当年比特币
-Al igual que Bitcoin en ese entonces
-
-当时我们买的时候
-En aquel momento cuando lo compramos
-
-千八百块钱
-En 800 a 1000
-
-我那时候我说有多少买多少
-En ese momento dije que comprara todo lo que tuviera
-
-我们买的比特币
-El Bitcoin que compramos
-
-到现在我们还有很多呢
-Hasta ahora todavía tenemos mucho
-
-我们的基金里边人说
-La persona de nuestra fundación dijo
-
-我才知道基金有那么多比特币
-Fue que supe que la fundación hay tantos Bitcoin
-
-他说七哥当初听你的
-Él dijo en aquel tiempo te escuché
-
-都是1000多块钱买的
-Fueron comprados en 1000
-
-我们都没有卖
-No lo vendimos
-
-这才是真正的(投资)
-Esto es una verdadera (inversión)
-
-你想想(如果)1万卖2万那不就全完了吗
-Piensa si diez mil lo vendes a veinte mil, ¿no se acabará todo?
-
-———————————————————
-
-日期：10/27/2021
-原视频标题：
-El precio de los próximos dos a tres años es una de las claves para determinar el valor de la moneda de Himalaya
-原视频日期：10/23/2021
-任务编号：KC207（2645）
-视频时间段：0:00-1:20
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
