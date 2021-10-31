@@ -2,34 +2,39 @@
 ---
 
 
-## 中共国PMI指数突破零界点仍加速下滑
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1630258/)
+## 万众瞩目的喜币将给世界带来无限希望
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1630306/)
 
-#### 作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-26.png)[*图片来源*](https://static01.nyt.com/images/2021/10/27/world/00China-Xi1/merlin_195573804_2954557a-91e2-4b41-ad10-34419aa6b862-superJumbo.jpg?quality=75&amp;auto=webp)
-**中共国经济减速冲破零界点后仍在加速继下滑，至2021年9月份PMI采购经理人指数下跌为49.6。有趣的是，纽约时报称“习近平已经 21 个月没有离开中国了——而且还在不断增加。” 这从侧面解释了的原因。**
+作者：纽约香草山农场健身部 – 幸福鸟
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2021年11月1日格林威治时间上午11点11分（2021年最后一个全福日），喜马拉雅数字币（简称喜币，英文H-coin）和喜马拉雅稳定币（喜美元，H-dollar）将正式上线登上历史舞台。全球万众瞩目！
 
-据日本NHK31日消息称，“[中共国本月采购经理人景气指数 (PMI) 连续第二个月跌破「50」（零界点）](https://www3.nhk.or.jp/news/html/20211031/k10013328881000.html?utm_int=news_contents_news-main_001)，这是经济判断的里程碑，受国内电力供应限制和原材料价格飙升的影响，中国经济减速还在继续”。这只是外界媒体的一般评估，实际情况远比这个数字更糟糕，而这都是习近平愚蠢政策的结果。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-98.png)
 
-该消息援引，“中国国家统计局对3000家制造业企业调查，十月PMI指数为「[49.2](http://www.stats.gov.cn/tjsj/zxfb/202110/t20211029_1823995.html)」，比上月下降0.4个百分点，为连续第七个月都低于上月。”实际上，中共国国家统计局官网有内外两个网站，公布的数据有所不同，外网相对真实一点，本月指数为显示为「[49.6](http://www.stats.gov.cn/english/PressRelease/202110/t20211008_1822723.html)」。
+喜币的闪亮登场将在全球奠定我们华人坚实的地位，从此我们华人就有了巨大的话语权，可以第一次更有自信、更有尊严、更有自豪感地做地球人！喜币的史无前例的意义是无法用任何语言来表达的。它不仅给我们华人而且还给整个世界带来了无限的希望！
 
-- ***延展阅读：***[***台湾外长访中东欧 拉抬台欧关系成效待观察***](https://www.voachinese.com/a/taiwan-s-foreign-minister-joseph-wu-visits-slovak-and-czech-10292021/6290619.html)
+七哥在在10月29日的大直播结束时说，今天是最后一次跟现在这样的你们说再见。等下周一我再和你们见面时，你们就都是不一样的人了！是的，下周一之后世界上将诞生一种新的人类、新的信仰和新的宗教！战友们个个欢欣鼓舞，有的在战友群里说激动得连觉都睡不着了！在这人类历史的重大转折点叫我们这些草根怎能不心潮澎湃，彻夜难眠啊？！
 
+感谢上天，感谢七哥！环顾四周，我是所有我认识的人（华人、美国人、日本人）中唯一已经拥有喜币的幸运儿，而且在一币难求的情况下我已经拥有数目可观的喜币！我和心爱的先生已经生活在美丽无比的人间天堂，过着衣食无忧的幸福生活！现在更是锦上添花！
 
-该指数连续第二个月跌破「50」，与其说这是判断经济好坏的转折点，不如说这是中共国全球第二大经济体一去不复返的转折点。
+此时此刻，我和众多其他跟随七哥的新中国联邦的幸运儿一样，心情无比激动，同时心里充满了对上天，对七哥，对爆料革命，对新中国联邦的感激之情！
 
-NHK消息透漏，“这主要是由于日本电力供应受到限制。”由于“原油、煤炭和金属等原材料价格持续上涨，导致企业生产和新订单双双减少。”
+![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
 
-- ***延展阅读：***[***习近平和普京在G20上呼吁全球接受他们的COVID-19疫苗***](https://nypost.com/2021/10/30/xi-putin-push-g20-nations-to-recognize-their-covid-19-vaccines/)
+**校对/发稿：童谣**
 
+**更多资讯，更多关注**
 
-就中共国2020年疫情大流行时期的经济而言，[经历2月份断崖式下滑到35.7后迅速于3月份回升到52.1](http://www.xinhuanet.com/fortune/2020-11/30/c_1126804581.htm)。这显然是受医疗及疫情防护经济的拉升所致。2021年9月份同期指数回落为49.2，而2019年同期指数是49.8。显然，从2021的回落跌破历史新低的曲线看没有任何增长迹象而言，且不可能再有未来了。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-有趣的是，习近平无法正常出国访问，而不是因疫情本身，这大概是中共国经济指数不断下滑的唯一解释。这不，纽约时报称“[习近平已经 21 个月没有离开中国了——而且还在不断增加](https://www.nytimes.com/2021/10/30/world/asia/china-xi-jinping-g20.html)。”
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

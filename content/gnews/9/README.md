@@ -2,86 +2,69 @@
 ---
 
 
-## 美国人知道MAGA落入CCP操控的DWAC骗局，未来很惨
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1630399/)
+## 班农专访3: 中共利用SPAC公司为川普设圈套
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1630403/)
 
-[https://gtv.org/video/id=617d286dadfd99590c31780b](https://gtv.org/video/id=617d286dadfd99590c31780b)
+**简评：**
 
-**郭文贵
-Miles Guo**
+中共一直使用虚假报表和贿赂等非法手段让几百个中共国公司在美国上市，洗劫美国人财富。新晋上市、与川普总统合作的SPAC公司被指与中共有关系。新中国联邦的郭文贵先生爆料称，这是中共对MAGA运动发起的经济超限战。
 
-一个股市还有一个庄家，还有基金，还有后面的做家
-A stock market has a banker, a fund, and a operator behind it
+民调显示，35%的美国民众想要推翻2020年大选，支持川普。因为川普巨大的影响力，中共派出了在美国影响很深的间谍吴征策划了这起交易，目的就是要阻止川普总统2022年的中期选举和2024年美国大选。中共的蓝金黄在美国渗透多年，无处不在。华尔街、跨国公司、华盛顿政客都与中共关系密切。郭文贵先生几年来的爆料和发出的所有警告无一不言中。针对SPAC，郭文贵先生再次发出警告。希望能够弄清真相，希望川普总统的平台成功。社会需要尽可能多，并尽可能活跃的社交媒体平台来传播真相。
 
-就是叫吴征这号的共产党，他做你的时候，（股票）一定会一直上，那是不可能的
-Just like Bruno Wu this kind people from communist party, it’s impossible to let stock price up all the time
+[GTV视频链接](https://gtv.org/video/id=617cc10eadfd99590c315d58)
 
-就到了174的时候，就几秒钟，啪叽，就下来了120，然后到90
-When it reached $174, it’s just few seconds, then rushed down to $120 to $90
 
-它不可能呆几个小时，因为他会赔掉很多钱的，
-It’s impossible to stay for a few hours, because he will lose a lot of money
 
-现在看大部分的赔家都是MAGA、穷人（川普的）支持者
-Now most of the losers are MAGA people and the poor (Trump’s) supporters
+**视频字幕：**
 
-而且今天看这个MAGA所有的输钱的人，会输得很惨
-And today, all the MAGA people who lose money this time and will lose miserably
+**主持人Rosemary**：班农先生很高兴与你连线。我是作战室节目的忠实粉丝，已经追随两年半了。我的问题是，中共用了很多非法手段，包括虚假财报和贿赂，让阿里巴巴、滴滴还有数百个中共囯公司在美国上市。所有这些公司都没有遵守美国法律披露真实信息。
 
-因为太夸张了，从9块钱炒到174点时候，将近十七八倍
-Because it’s too dramatic, they manipulated the stock price from $9 to $174, nearly 17 to 18 times
+这个与川普总统合作的SPAC公司（特殊目的收购公司）叫做DWAC（数字世界收购集团），它与中共有关联。文贵先生说这家SPAC公司是中共给川普总统设的圈套，它是由吴征创立的。文贵先生还说这是中共对MAGA运动发起的经济超限战。这个SPAC公司会削弱川普总统吗？你认为是否有必要在中共的诈骗造成灾难性后果之前，对其采取法律手段？谢谢！
 
-那么这些人陪的就很夸张了，因为老百姓在美国
-Then these people’s lost was too much because they are America’s Laobaixing
+**班农先生**：值得注意的是，这件事情发生的时间点。
 
-大家你们好好看一看，美国那个叫什么Wells Fargo的银行，富国银行
-Everyone, take a good look at the Wells Fargo bank in the United States
+Politico网站今天的民调显示，35%的美国民众想要推翻2020大选结果，因为拜登政府是非法的。同时，拉斯穆森民调显示，70%美国民众相信中共病毒来自武汉实验室、來自中共解放军，是在福奇和美国国立卫生院的资金和技术支持下的功能增强研究。从这些民调中可以看到，川普总统正在成为最具统治力的美国政治人物。2022年中期选举可能会是一场大胜。川普总统现在是共和党头号2024总统候选人。
 
-整个的审判案子当中，有一些残疾人和吃美国救济的人
-In the entire trial case, there are some disabled people and people who rely on American relief
+我希望川普总统的团队能（查清真相）。我不知道其中细节，但我看到了一些文件，还有股票价格的疯狂波动。我在90年代做过SPAC公司。这样的交易需要非常严格的管控。必须向股东和潜在投资人，还有证监会提供全部信息。这里面有一些东西让我难以理解，但我相信真相会水落石出。
 
-就为了等15美金每个月的救济，但是这15美金被富国银行骗走以后
-Just to wait for the 15-dollar monthly relief, but after the 15-dollar was defrauded by Wells Fargo Bank
+我认为文贵在这个方面非常出色。文贵一直在警告美国关于吴征的危害。
 
-他饿死在家里了，还有的人在家里面吃救济的盲人，由于没有20美金饿死在家里面了
-He starved to death at home, and some blind people who relied on relief at home, because they didn’t get $20, starved to death at home
+吴征是个坏人，做了很多坏事。他在美国的影响力无处不在。他在康州也有很大的影响力。一些前FBI官员在他的公司里任职。其中之一就是文贵反复提到的，一个名叫弗兰克尔的家伙。这些是上市公司，这种SPAC架构不常见，我之前没见过这种操作。必须有人仔细审视这家公司。
 
-MAGA、川普的支持者，很多是美国中间很穷很穷的人
-Many of the supporters of MAGA and Trump are very poor people in the United States
+我认为川普总统非常精明，不至于落入中共的圈套。我认为这需要时间来证明，相信川普总统的团队会查清真相。
 
-就和中国的杨改兰是一样的，那么MAGA的投资被骗走了以后，他就完了
-Just like China’s Yang Gailang, then after MAGA supporters investment was deceived, he’s done
+我认为更深层的问题是社交媒体。Gnews和GTV非常厉害，是爆料革命的重要一部分。穿过防火墙，给中国老百姓提供了一个真正的平台。让他们能够自由发声。这显示出人们是多么渴望其他消息来源。
 
-没有任何生计来源了，可不是一股或十股的问题，很可悲的
-There is no source of livelihood. it’s not about one share or ten shares, it’s so sad
+盖特和Rumble也一样。Rumble由彼德西尔赞助，盖特有国际投资人的支持，有杰森米勒这样的CEO。两个平台都在发展壮大。盖特今天公布了，在短短几个月内就突破了2000万条信息发布。
 
-所以这一次，今天早上刚刚7多钟，一位美国的朋友发来信息
-So this time, just over 7 o’clock this morning, an American friend sent me a message
+我们都希望川普总统好运，希望他的平台成功。但看上去这需要几年时间，因为他们才刚刚起步。大家都知道这有多么复杂。但我们需要有尽可能多，尽可能活跃的平台。所以我希望任何关于武汉（运宏国际）所有权的信息都能调查清楚。希望川普总统好运。我不认为这会影响他2024年大选，到时候他会再次当选美国总统。
 
-他说，这次的这个共产党安排的川普总统的股票骗局
-He said that this time, President Trump’s stock scam arranged by the Communist Party
+**Rosemar**y：这太好了，因为我在2016和2020年大选的时候投的都是他（川普总统）。我完全支持他。谢谢班农先生。
 
-会把整个美国，所有川普和MAGA的跟随者，很多人会毁在永远不可回头的路上
-will destroy the entire United States, all Trump and MAGA followers, and many people on the road that can never be turned back
+**班农先生**：让我强调一点，你的问题非常好。当我看到相关的文件，看到SPAC公司收购了武汉的运宏国际，我很担心。每次看到吴征以及与吴征相关的人，我都很担心。
+
+文贵做的最伟大的事情之一，就是曝光了（中共）对美国华尔街和跨国公司的渗透。还有华盛顿的政客。要知道，在战斗室我每天都能看到中共通过金钱的巨大渗透。还有文贵说的“蓝、金、黄”。他们用互联网、性，还有金钱渗透。他们对华盛顿和华尔街的收买是惊人的。华盛顿一家顶级调查公司最新发现，拉里芬克，黑岩集团老板，一个掌管10万亿美元的全美最大资管公司，与中共是生意伙伴。
+
+过去几年文贵做的最伟大的事情之一，是他第一个说出了武汉实验室，是他第一个说出了中共对香港的计划，是他第一个曝光了中共遍布全球的“蓝、金、黄”公司。最重要的是，他告诉西方，中共不等于中国人，不等于中国。它是一个犯罪集团，它有和犯罪集团一样的思维，它的影响力遍布全球。
+
+我希望人们仔细研究SPAC交易的文件，弄清楚真相。每次看到吴征的名字，我都会担心。但我们不能因此放慢脚步。中共明白：超级鹰派，包括我，彼得·纳瓦罗，杰克·帕索比克，坚信中共是犯罪集团，必须将其推翻。
+
+美国2022中期选举是其中的重要一步。之后川普总统会在2024年重新当选，推翻中共。我相信这将是他的社交平台的一个重要使命。
+[![](https://spark.adobe.com/page/nwZ4f2sQwUeDe/images/a126c348-b436-4f61-b608-5ad22cff9a0f.png?asset_id=97aee942-c3db-42f0-871b-ccab84a9de0f&amp;img_etag=%2210b729b8d584521311d0c78293ebdcfd%22&amp;size=1024)](https://spark.adobe.com/page/nwZ4f2sQwUeDe/images/a126c348-b436-4f61-b608-5ad22cff9a0f.png?asset_id=97aee942-c3db-42f0-871b-ccab84a9de0f&amp;img_etag=%2210b729b8d584521311d0c78293ebdcfd%22&amp;size=1024)
+*字幕*/*听写：云岭 | 翻译：致良知* *| PR：Roberts* *| 简评/文字整理/编辑：胖丁 | Page：我是球大哥*
 
 * * *
 
-Date:10/29/2021
-原视频标题: 美国人知道MAGA落入CCP操控的DWAC骗局，未来很惨
-The Americans know that MAGA has fallen into the DWAC scam controlled by CCP, and the future will be miserable
-原视频日期：2021/10/27
-原视频链接[https://twitter.com/se1y7cblljselva/status/1453643831635701760?s=24](https://twitter.com/se1y7cblljselva/status/1453643831635701760?s=24)
-任务编号：KC211（2703）
-视频时间段 : 0:00-2:08
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

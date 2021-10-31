@@ -2,8 +2,8 @@
 ---
 
 
-## 视频| 新世界，新货币
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1630029/)
+## 视频| 一个黄金的机会
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1630043/)
 
 制作：香草山视频部
 

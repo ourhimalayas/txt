@@ -2,34 +2,90 @@
 ---
 
 
-## 国际要闻汇编 10月31日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1630448/)
+## 七哥谈打赏以及如何做好视频
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1630473/)
 
-素材：东京樱花团｜GNEWS组
-![](https://lh5.googleusercontent.com/cvJlHpSVQpMmMHvqNuwYysFk3vwMPM0P1b7im-RfpJVzri72iBOBSgP9nyZ_lFwNHcS9S1_c880_QzQ6zuVZ_BOe-kkmdhygbLemUyyAo1YMeLR-pracMAaVvkNl0snJwtU_F885)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1031/20211031104328111.jpg)
-1、[**G20峰会在意大利罗马拉开帷幕**](https://www.aboluowang.com/2021/1031/1666336.html)
+[https://gtv.org/video/id=617e72d1adfd99590c31c6c3](https://gtv.org/video/id=617e72d1adfd99590c31c6c3)
 
-G20峰会周六（10月30日）在意大利罗马拉开帷幕。罗马已进入高度戒备状态，部署了多达6,000名警察和约500名士兵来维持秩序。此次峰会为期两天，重要议题涉及气候变化、全球经济和Covid-19大流行、能源和供应链、全球最低公司税等。这次峰会并非所有受邀者都会出席，美国、英国、法国、德国和印度等国元首到场参加，但中共国家主席习近平、俄罗斯总统弗拉基米尔‧普京和墨西哥总统安德烈斯以国内疫情问题为由，没有前往罗马。
+**郭文贵
+Miles Guo**
 
-2、[**德国教育部长要求关闭孔子学院**](https://www.aboluowang.com/2021/1031/1666316.html)
+小Seven讲的要不要做视频
+Little Seven has talked about making a video
 
-德国联邦教育部长卡利斯泽克向德国大学校长会议和各州教育部长会议写了一封信，要求大学“重新评估孔子学院在德国高等学院群内的作用，并从中得出正确的结论。”这位基民盟政治家写这封信的背景是：杜伊斯堡-埃森大学和汉诺威大学孔子学院上周在中国政府代表干预下，取消了两场德国作家写的德文书《习近平传》在线推介朗诵会。卡利斯泽克还写道：她对19所孔子学院对德国高等院校的影响“自很长时间以来持有很大的担忧。”对大学工作现在可以看到的影响是“不可接受的”。她建议，受到牵连的大学审视与孔子学院的合作，认真审核中国的影响力。此外，大学应与宪法保护局和联邦情报局保持更密切的联系。
+怎么做视频
+and how to make a video
 
-3、[**美英法德四国领导人就伊朗问题发表联合声明**](https://www.aboluowang.com/2021/1031/1666310.html)
+实际上做视频不是技术
+In fact, videos are not just technology
 
-美国总统拜登、英国首相约翰逊、法国总统马克龙和德国总理默克尔30日就伊朗核问题发表联合声明说，他们在罗马讨论了伊朗不断升级的核计划对国际安全构成的风险，表示决心确保伊朗永远无法获得一枚核武器，并对伊朗在停止重返伊朗核协议谈判时加速高浓缩铀生产等挑衅性的核步骤共同表示严重关切。声明强调通过谈判让伊朗和美国重新全面履行伊朗核协议并继续通过外交接触解决遗留争议问题的重要性，并对拜登总统对伊朗核协议的明确承诺表示欢迎。
+做视频第一做的是你的智慧
+Making a video, first, demonstrates your wisdom
 
-4、[**俄罗斯确诊再创单日新高 放有薪假盼扭转疫情**](https://www.aboluowang.com/2021/1031/1666180.html)
+第二做的是你的品味
+Second, it signifies your taste
 
-俄罗斯各地今天开始实施新的防疫措施，让员工放有薪假，以期使这个欧洲病亡率最高的国家能遏止新增确诊数和病故人数双双激增。俄罗斯今天通报新增4万251人染疫，是疫情爆发以来最高纪录。病殁人数1160人，比前一天创纪录的1163人略减。俄国自疫情爆发初期短暂实施封锁措施后，即不愿实施重大的全国防疫措施，而是将希望寄托在多款国产疫苗上，比如卫星-V（Sputnik V）。政府今天公布的数据显示，尽管多月以来有多款疫苗提供免费接种，至今全俄完整接种疫苗者只占人口32.5%。
+第三做的你的眼界
+Third, it indicates your foresight
 
-5、[**马斯克“迷弟” 特斯拉最牛散户 持仓超70亿美元**](https://www.aboluowang.com/2021/1031/1666220.html)
+第四
+Fourth
 
-据悉，目前住在新加坡的Leo KoGuan于2019年开始股票交易，他已经悄悄地积累了伊隆马斯克公司最大的一笔股份，以目前持股价值超过70亿美元成为特斯拉第三大个人股东。根据KoGuan提供给彭博社银行的记录显示，截至9月底，他拥有631万股特斯拉股票。他还持有182万份期权，使其有权以每股450美元至550美元的价格购买特斯拉。这位最牛散户股东的致富密码就是：坚持只做一只股票，在这种情况下，选择特斯拉；继续加倍；最重要的是，相信伊隆·马斯克。作为马斯克的忠实信徒，他坚持认为他“将与特斯拉一起起起落落”。此外，他补充说，他正在筹集资金，以在2022年初再购买该公司的100万股股票。
+做的你自己的能力
+it demonstrates your ability
 
-*编辑：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+然后才是技术
+Then, it’s a technology
+
+我跟你说你要不在盖特、 GTV上，不抓住这个机会
+I’m telling you, if you are not on Gate or GTV, and not catching up on this opportunity
+
+你绝对是后悔的
+you would certainly regret it
+
+好好的研究研究
+Do some studies
+
+要把打赏的事做大
+and make the rewards bigger
+
+那么未来就像这种打赏
+Then the future will be like these kinds of rewards
+
+私密直播
+private live broadcasts
+
+虚拟货币
+and virtual currencies
+
+几乎会把人类一切都改变了
+They will change almost everything for human beings
+
+一切都会改变
+Everything will be changed
+
+这就是新的时代
+This is the new era.
+
+* * *
+
+Date: 10/30/2021
+原视频标题: 七哥谈打赏以及如何做好视频
+Mr. Guo Talks About Rewards And How to Make a Qualified Video
+原视频日期：2021/10/28
+原视频链接: [https://gettr.com/post/pfisewa574](https://gettr.com/post/pfisewa574)
+任务编号：KC214(2719)
+视频时间段 : 0:00-0:53
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
