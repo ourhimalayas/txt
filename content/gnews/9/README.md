@@ -2,50 +2,22 @@
 ---
 
 
-## 华为被爆向民主党说客支付了100万美元
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631198/)
+## 美德要防止俄操纵天然气供应
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1631254/)
 
-作者：纽约香草山农场 – 飞虹
+俄罗斯莫斯科喀秋莎农场 星河
 
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/u-1.jpg)vestnikkavkaza.net
+美东时间10月31日报道，白宫新闻处发表声明，美国总统拜登、德国总理安格拉∙默克尔和德国副总理奥拉夫∙肖尔茨讨论了防止俄罗斯“操纵”天然气供应的联合措施。
 
+声明称，“拜登总统强调了继续努力实施美德联合协议的重要性，以支持乌克兰和欧洲的能源安全，让俄罗斯不能为有害的政治目的操纵天然气供应。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+他们还讨论了阿富汗的局势，包括继续提供人道主义援助。拜登还感谢德国欢迎3.5万名移居美国的阿富汗人，并祝贺默克尔16年来在美德共同安全和跨大西洋关系上的领导作用。
 
-
-
-10月28日，美国一美新闻网报道，美国民主党说客托尼·波德斯塔与中国电信巨头华为关系密切。华为可能在6月和9月分两期向波德斯塔支付了100万美元，用于托尼向拜登政府推销他们的产品。
-
-在华为向美国说客支付这些款项的同时，拜登政府建议将华为列入贸易黑名单。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-11.jpg)
-一位白宫官员表示：“拜登总统和本届政府认为，华为等不可信供应商生产的数字基础设施设备对美国、我们的盟友和合作伙伴的安全构成威胁。（上届政府）针对华为的出口管制仍然有效。”
-
-另据报道，仅今年一年，华为就在内部和外部游说上花费了约340万美元。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-18.jpg)
 参考链接：
-[Huawei Reportedly Paid Democrat Lobbyist $1M](https://www.oann.com/huawei-reportedly-paid-democrat-lobbyist-1m/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[https://www.rbc.ru/rbcfreenews/617e0ecc9a79477d47c4f824](https://www.rbc.ru/rbcfreenews/617e0ecc9a79477d47c4f824)
 
  
 

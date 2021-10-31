@@ -2,37 +2,46 @@
 ---
 
 
-## 美国多个州起诉拜登政府要求停止强制疫苗接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631101/)
+## 中共百富环球在美遭FBI突击搜查
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631150/)
 
-作者：MOS – 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据拜登政府疫苗强制令要求，联邦承包商必须在12月8日之前，提供疫苗接种证明，否则可能面临被解雇。
+作者：纽约香草山农场 – 飞虹
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-20.jpeg)
 
-10月29日，一群共和党总检察长起诉拜登政府，质疑其对联邦承包商的疫苗授权。
 
-由密苏里州总检察长——埃里克-施密特领导的诉讼案认为，拜登政府对承包商实行疫苗授权，违反了联邦采购法。并且，拜登的行政命令规定，所有联邦工作人员必须接种COVID-19疫苗是违宪的。该诉讼要求法院发布一个全国性的临时禁令，停止疫苗授权。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-越来越多的州反对执行疫苗强制令，加入诉讼的州包括：内布拉斯加，阿拉斯加，新罕布什尔，蒙大拿，南达科他，北达科他，爱荷华，阿肯色，怀俄明和密苏里。
 
-参考链接：[Several states sue Biden administration to halt federal vaccine mandate](https://justthenews.com/politics-policy/coronavirus/group-republican-attorneys-general-file-lawsuit-attempting-halt-federal)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+10月29日，总部设在深圳的中共国百富环球科技有限公司发布声明，证实本周美国联邦调查人员突击搜查了该公司位于美国佛罗里达的办公室，一些物品被没收。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-179.jpg)
+据一位独立安全记者的信息，这次调查起因是，美国一家主要支付处理商对百富环球支付终端的异常网络数据包产生了疑问。数据包大小与他们应该发送的支付数据不匹配。有专家认为中共政府可能利用该公司的支付终端盗窃信息。
 
-总编：Ivy001
-编辑：Ivy001
-校正/发稿：谐趣园
+百富环球科技有限公司是中共国一家电子支付销售点终端供应商，产品供给全球数百万企业和零售商使用，在全球120 个国家和地区拥有数千万台销售终端。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-11.jpg)
+参考链接：
+[疑涉网络攻击 中国百富环球在美遭FBI突击搜查](https://www.voachinese.com/a/pax-technology-fbi-20211029/6291462.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：木白
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 
