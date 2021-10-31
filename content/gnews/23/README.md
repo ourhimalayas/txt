@@ -2,35 +2,28 @@
 ---
 
 
-## 亚马逊网络服务拟将加密货币的结算和托管推向云端
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1630128/)
+## 吴钊燮访问布鲁塞尔 会晤友台欧洲议员
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1630243/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-152.jpg)[图片来源](https://www.google.com/search?q=%E5%90%B4%E9%92%8A%E7%87%AE%E8%AE%BF%E9%97%AE%E5%B8%83%E9%B2%81%E5%A1%9E%E5%B0%94+%E4%BC%9A%E6%99%A4%E5%8F%8B%E5%8F%B0%E6%AC%A7%E6%B4%B2%E8%AE%AE%E5%91%98&amp;rlz=1C1YKST_enUS900US901&amp;hl=zh-CN&amp;sxsrf=AOaemvJC7jFZwiaeEGHaqmiWFj3glPMS2Q:1635662549633&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwiBt_jphfTzAhWRO5QKHeQdAD8Q_AUoA3oECAEQBQ&amp;biw=1366&amp;bih=625&amp;dpr=1#imgrc=2p0dGWCyNxuRLM)
+正在欧洲进行访问的台湾外交部长吴钊燮周五在比利时首都布鲁塞尔与欧洲议会以及比利时国会的友台议员会面。据台湾外交部发布的新闻稿，吴钊燮当面感谢欧洲议会及比利时国会对台湾的高度支持，包括欧洲议会在10月20日通过的“台欧盟政治关系暨合作”告案，呼吁全面提升台欧双边政治关系与各项合作。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Logo-Amazon-Web-Services-amazon.jpg)图片来源：aws.amazon.com
+吴钊燮在致辞时表示，这不仅是历来第一份关注台湾与欧盟全方位关系的欧洲议会报告案，更是欧洲议会本会期第二高票通过的决议案，对双边关系未来发展深具指标性意义。而比利时联邦参议院也在今年3月通过“加强台湾国际社会地位”决议案，并以压倒性票数通过友台决议。
 
+台湾外交部指出，吴钊燮在餐会上与出席议员热烈互动，并就中共国复合式威胁、台海安全现况、台湾参与联合国、香港情势、台欧青年交流，以及呼吁台湾欧盟尽速启谈双边投资协议（BIA）等议题广泛交换意见。比利时国会友台小组两名共同主席以及负责协调“台欧盟政治关系暨合作报告的”瑞典籍欧洲议员魏莫斯（Charlie Weimers）等9国欧洲议员出席了这场餐会。魏莫斯在推特上表示，吴钊燮的欧洲访问之旅“象征了欧盟与台湾关系的深化和扩大，下周欧洲议会代表团的台北之行也将如此”。除了与欧洲议员会晤外，吴钊燮周五也应“对华政策跨国议会联盟”邀请，以视频方式参加该联盟首次实体年会。他在致辞时表示，国际社会对独裁政体所带来的挑战日益警觉，而台湾位于此一挑战的最前线，对此感受良深。
 
-#### 编译：小红帽
+吴钊燮也提到，立陶宛、捷克也受到中共国霸凌，在新冠肺炎持续蔓延之际，“中共一再挑起与民主国家的冲突，转移国际对疫情起源等议题的关注，甚至一再宣传独裁体制优于民主的谬论，透过疫苗、虚假讯息及大外宣等手段，在全球各地扩张令人忧心的影响力，香港的例子更提醒我们不可将民主视为理所当然”。他强调，面对此一挑战，全球民主阵营必须团结一致。
 
-根据最近的一份招聘信息显示，亚马逊网络服务 (AWS)正在寻找一位专家来促进云中数字资产的承销、交易处理和托管。
+台湾中央社评论称，欧洲近年与台湾关系出现快速进展，与欧中关系降温有关。除了中共国在欧洲日益壮大的商业利益以及积极收购欧洲企业和基础建设外，中共抗衡民主制度及侵害人权的行为也令许多欧洲国家反感。
 
-这家基础设施巨头希望聘请一名金融服务专家，与全球金融机构、创新金融科技公司合作，并“从价格发现到执行、结算和托管方面，改变他们交易数字资产（例如加密货币、CBDC [中央银行数字货币]、稳定币、安全支持代币、资产支持的代币和NFTs[不可替代的代币]）的方式。”
+信息来源：
 
-根据之前的招聘信息，亚马逊备受瞩目的进军数字资产行动，预计将包括某种支付代币，即所谓的“亚马逊币”。
+[吴钊燮访问布鲁塞尔 会晤友台欧洲议员](https://www.dw.com/zh/%E5%90%B4%E9%92%8A%E7%87%AE%E8%AE%BF%E9%97%AE%E5%B8%83%E9%B2%81%E5%A1%9E%E5%B0%94-%E4%BC%9A%E6%99%A4%E5%8F%8B%E5%8F%B0%E6%AC%A7%E6%B4%B2%E8%AE%AE%E5%91%98/a-59672803)
 
-与此同时，亚马逊网络服务针对加密货币交易处理和托管等方面定制其基础设施，可能被视为一项明智之举，因为IBM也在这样做。
-
-“与我们的销售团队、解决方案架构师、ISV和系统集成商携手合作，您将帮助提供解决方案，推动客户在云中实现端到端的数字资产承保、交易处理和托管，”AWS的招聘广告说。
-
-**参考新闻：**[Amazon Web Services Looks to Drive Crypto Settlement and Custody to the Cloud (coindesk.com)](https://www.coindesk.com/business/2021/10/30/amazon-web-services-looks-to-drive-crypto-settlement-and-custody-to-the-cloud/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
