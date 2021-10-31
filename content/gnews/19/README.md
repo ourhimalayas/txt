@@ -2,32 +2,36 @@
 ---
 
 
-## 美国政府乐见日本执政党在众议院选举中维持权力
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1631165/)
+## 郭先生谈比特币的潜在风险
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631253/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/10/7-25.png)
-图片来自网络
+作者：洛彬矶盘古农场 – 滴水穿石
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月29日，郭先生在直播中谈及将于11月1日上市的喜币时，提到了世界上第一个加密数字货币——比特币的高风险性。
 
-据【华盛顿时事】31日报道，美国政府乐见执政党在众议院选举中能够维持权力。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide10-7.jpeg)
 
-随着与中共国的霸权之争愈演愈烈，岸田政府的对华政策受到密切关注。特别是日本增加国防开支的政策有望实现，将有助于加强美日的威慑力。
+据分析，比特币是一个无负责法人的币种，其投资机制是靠“求大于供”的假象，迷惑全球的投资者购入，且大多投资者都抱着短期高回报率的投机心理。但比特币作为不受监管的去中心化货币，现已大多被用于逃税、洗钱等大额跨境非法金融交易。
 
-美国官员称自由民主党承诺将国防开支提高到至少占国内生产总值（GDP）的2%，这一承诺非常具有 “突破性”。被提名为下一任美国驻日本大使的前芝加哥市长伊曼纽尔，在授权听证会上也强调，”这是美日采购可互用武器以及制定战略的一个重要机会。未来可能会有扩大国防采购的压力。”
+郭先生表示，比特币的价值仅在于其发售的两万一千个币，但目前市面上流通的比特币远多于这个数字。倘若这一事实得到证实，比特币的价值将不复存在。因此，郭先生提醒每一位战友，不要购买任何去中心化体制拥有者的货币。
 
-美方高度重视加强半导体等重要产品的供应链以及对知识产权的保护。注重安全的经济合作也将是美日关系的一个重点。
+相较而言，即将上市的喜币作为锚定黄金的稳定币，才是真正会在未来广泛流通的去中心化虚拟货币。
 
-另一方面，一些外交官认为，岸田文雄首相可能对拜登政府作为优先议题的气候变化问题兴趣不大，因为这个问题并没有在自民党的承诺中占据突出位置。因此，首相在英国格拉斯哥举行的《联合国气候变化框架公约》（UNFCCC）第26次缔约方大会（COP26）上的讲话可能会受到密切关注。
+参考链接：[2021年10月29日 文贵大直播：格芯在美国上市的重大意义和其未来价值，格芯与数字货币紧密相连；喜币周一上市会带来什么样的改变；房地产会在明年5-7月爆雷，是中共制造的最大的噩梦](https://gtv.org/video/id=617be96f11d1862968fccc4b)
 
-新冠病毒的爆发以及在全世界范围的蔓延中，中共的隐瞒与欺骗的丑恶嘴脸已暴露无遗，正义的力量终会集结。坚定的美日同盟也会在新中国联邦正义的感召下，求同存异，为了自由民主的普世价值，一起敲响独裁主义的丧钟，真正解放中国人！
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-信息来源：
+总编：Ivy001
+编辑：Irene木木
+校正/发稿：谐趣园
 
-[米政府、与党勢力維持を歓迎＝対中国、防衛費増に期待―海外反響【21衆院選】](https://news.yahoo.co.jp/articles/029a6d431659e31d2d26c524be6f9c85c8ffe3e5)
-
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10-1.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

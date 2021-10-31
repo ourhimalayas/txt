@@ -2,72 +2,49 @@
 ---
 
 
-## 樱花灭共段子之马云“罩反”、德艺双馨艺术家
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1631135/)
+## 华为被爆向民主党说客支付了100万美元
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631198/)
 
-撰稿：东京樱花团/perterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/10/6-25.jpg)
-【马云“罩反”】
+作者：纽约香草山农场 – 飞虹
 
-作者：perterwong
 
-插图：樱花团设计组
 
-保镖：马粑粑，你的口罩戴反了哦。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-马云：你懂啥？这叫“罩反”，我跟“蛤蛤”说好了“罩反”为号，我他马的要公开造反了!
 
-保镖：高！实在是高！
 
-马云：把手机给我，开启群聊模式，接通马化腾和马明哲。（噔噔！链接成功）看我这造型别致不？
+10月28日，美国一美新闻网报道，美国民主党说客托尼·波德斯塔与中国电信巨头华为关系密切。华为可能在6月和9月分两期向波德斯塔支付了100万美元，用于托尼向拜登政府推销他们的产品。
 
-马华腾：你反了啊？这造型不错，我们公司也要出个企鹅牌“造反口罩。”
+在华为向美国说客支付这些款项的同时，拜登政府建议将华为列入贸易黑名单。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-11.jpg)
+一位白宫官员表示：“拜登总统和本届政府认为，华为等不可信供应商生产的数字基础设施设备对美国、我们的盟友和合作伙伴的安全构成威胁。（上届政府）针对华为的出口管制仍然有效。”
 
-马明哲：这口罩看着质量不错，是3M的吧，你问问他们老板有没有兴趣当平安第一大股东？
+另据报道，仅今年一年，华为就在内部和外部游说上花费了约340万美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-18.jpg)
+参考链接：
+[Huawei Reportedly Paid Democrat Lobbyist $1M](https://www.oann.com/huawei-reportedly-paid-democrat-lobbyist-1m/)
 
-马云：少废话，我这在西班牙都要完球蛋了，你们两他马的造不造？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-马华腾，马明哲：歪…！歪…！我们这信号不好，等会儿放风的时候再聊……
+总编/编辑：木白
+校对/发稿：为真不破20
 
-[盖特链接](https://www.gettr.com/post/peu6owe004)
+**更多资讯，更多关注**
 
-【德艺双馨艺术家】
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-作者：perterwong
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-插图：选自网络
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-（朝阳居委会军情谍报处例行记者发布会现场）
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-记者：请问李云迪是否潜规则女学员、女粉丝和女下属？
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-发炎人：他单纯就是嫖娼。
 
-记者：他嫖资是贪污受贿来的吗？
 
-发炎人：是他自掏腰包。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-记者：他是否对失足妇女进行强迫交易？
-
-发炎人：他们公平交易，遵守了市场规则。
-
-记者：他是否有包小三，小四，小五，小六……
-
-发炎人：他目前是未婚。
-
-记者：本案是否是失足妇女揭发的？
-
-发炎人：（非常自豪的用鼻孔面对镜头）是我们朝阳大妈举报的！
-
-记者：那看来李云迪真是位“德艺双馨”艺术家，比很多官员都要高尚。
-
-发炎人：（瞪大了狗眼）送你一句话“顺我者昌，逆我者嫖娼！”
-
-[盖特链接](https://www.gettr.com/post/pey7enb305)
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10-1.png)
 
 
  

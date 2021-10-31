@@ -2,12 +2,30 @@
 ---
 
 
-## 20211003 文贵直播精华 CCP已进入百年计划的备战状态
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1631042/)
+## GTV新闻访谈简报|2021年10月31日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1631093/)
 
-摘要：20211003 文贵直播精华：从今年5月份CCP已经进入百年大计的备战状态所有以氧化石墨稀为主的疫苗就是CCP对世界发动的再一次生化（物）战争，是病毒生化战争的深入化其目的就是要控制世界征服世界。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
 
-**（文章内容仅代表新西兰-财经G乐部节目观点）**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-4-1.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：2021.10.31早GTV新闻访谈
+
+[https://gtv.org/broadcast/watch/617e8c2c11d1862968fe1b9b](https://gtv.org/broadcast/watch/617e8c2c11d1862968fe1b9b)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-17.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

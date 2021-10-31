@@ -2,22 +2,48 @@
 ---
 
 
-## 美德要防止俄操纵天然气供应
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1631254/)
+## 国民党新修政纲，文贵先生爆料：警惕卖台贼
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631301/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+作者：澳喜农场 – 在远方
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/u-1.jpg)vestnikkavkaza.net
-美东时间10月31日报道，白宫新闻处发表声明，美国总统拜登、德国总理安格拉∙默克尔和德国副总理奥拉夫∙肖尔茨讨论了防止俄罗斯“操纵”天然气供应的联合措施。
 
-声明称，“拜登总统强调了继续努力实施美德联合协议的重要性，以支持乌克兰和欧洲的能源安全，让俄罗斯不能为有害的政治目的操纵天然气供应。”
 
-他们还讨论了阿富汗的局势，包括继续提供人道主义援助。拜登还感谢德国欢迎3.5万名移居美国的阿富汗人，并祝贺默克尔16年来在美德共同安全和跨大西洋关系上的领导作用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+近日，中共国民党中常会通过政策纲领修正案，该版政纲将删除马英九提出的“不统、不独、不武”文字。新政纲竟然承认中共综合实力的崛起，还提出要亲善大陆人民，主张两岸应搁置争议，促进经贸自由化及民间社会力往来。
+
+近日，郭文贵先生爆料，自马英九上台以来，国民党全力亲共反美，逼迫台湾人民承认中共是大国崛起。由于中共的大外宣对台湾的渗透，加上共产党的统战工作，现在的台海危机比96年更紧张。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-118.jpg)
+郭文贵先生指出，习近平想侵略台湾的动机，来自于共产党内政治斗争，目的是掩盖房地产崩溃带来的经济灾难，并拖垮世界经济。台湾人民并没有意识到，应对台海危机并非全民皆兵的军事训练，更重要的是清楚国民党卖台贼的伎俩，比如要求中共提供军事保护，与中共里应外合拿下台湾等买台行为。
 
 参考链接：
+[台媒：朱立伦版国民党政纲将删除“不统、不独、不武”文字](https://news.sina.com.cn/c/2021-10-27/doc-iktzscyy2086802.shtml)
 
-[https://www.rbc.ru/rbcfreenews/617e0ecc9a79477d47c4f824](https://www.rbc.ru/rbcfreenews/617e0ecc9a79477d47c4f824)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：木白
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

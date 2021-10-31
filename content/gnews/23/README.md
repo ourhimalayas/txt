@@ -2,40 +2,32 @@
 ---
 
 
-## 多达1.2万名美国空军人员拒绝接种新冠疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631121/)
+## 美国政府乐见日本执政党在众议院选举中维持权力
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1631165/)
 
-作者：美东香草山农场 -文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月2日是美军疫苗接种的最后期限，据统计，大约有1.2万名美国空军人员拒绝接种新冠疫苗。
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/10/7-25.png)
+图片来自网络
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-15.jpeg)
+据【华盛顿时事】31日报道，美国政府乐见执政党在众议院选举中能够维持权力。
 
-官员们曾警告说，如果军事人员不接种新冠疫苗，他们将面临惩罚：包括被开除军籍，或受到军事司法指控。
+随着与中共国的霸权之争愈演愈烈，岸田政府的对华政策受到密切关注。特别是日本增加国防开支的政策有望实现，将有助于加强美日的威慑力。
 
-由于有如此多的现役军人拒绝接种疫苗，解雇这些军人，将会导致飞行员和飞机维修人员的岗位空缺。一旦有危机发生，会直接影响美国空军的战斗力，现在，美军官员们正面临着两难的境地。
+美国官员称自由民主党承诺将国防开支提高到至少占国内生产总值（GDP）的2%，这一承诺非常具有 “突破性”。被提名为下一任美国驻日本大使的前芝加哥市长伊曼纽尔，在授权听证会上也强调，”这是美日采购可互用武器以及制定战略的一个重要机会。未来可能会有扩大国防采购的压力。”
 
-空军是美军的第三大军种，有 32万4000 名军人，即使是1.2万人的损失，也是难以承受的挫折。
+美方高度重视加强半导体等重要产品的供应链以及对知识产权的保护。注重安全的经济合作也将是美日关系的一个重点。
 
-参考链接：
-1）[Up to 12,000 Air Force personnel have rejected vaccine orders: report](https://thehill.com/homenews/news/579066-up-to-12000-air-force-personnel-have-rejected-vaccine-orders-report)
-2）[https://gettr.com/post/pfmftf5148](https://gettr.com/post/pfmftf5148)
+另一方面，一些外交官认为，岸田文雄首相可能对拜登政府作为优先议题的气候变化问题兴趣不大，因为这个问题并没有在自民党的承诺中占据突出位置。因此，首相在英国格拉斯哥举行的《联合国气候变化框架公约》（UNFCCC）第26次缔约方大会（COP26）上的讲话可能会受到密切关注。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+新冠病毒的爆发以及在全世界范围的蔓延中，中共的隐瞒与欺骗的丑恶嘴脸已暴露无遗，正义的力量终会集结。坚定的美日同盟也会在新中国联邦正义的感召下，求同存异，为了自由民主的普世价值，一起敲响独裁主义的丧钟，真正解放中国人！
 
-总编：Jack Li文阳
-编辑：Jack Li文阳
-校正/发稿：谐趣园
+信息来源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[米政府、与党勢力維持を歓迎＝対中国、防衛費増に期待―海外反響【21衆院選】](https://news.yahoo.co.jp/articles/029a6d431659e31d2d26c524be6f9c85c8ffe3e5)
 
-
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

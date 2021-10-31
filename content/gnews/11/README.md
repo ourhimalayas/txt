@@ -2,25 +2,30 @@
 ---
 
 
-## 喜生活
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1631297/)
+## 有声|中共驻澳大使成竞业即将离任
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1631334/)
 
-俄罗斯莫斯科喀秋莎农场 六月飞雪
+配音：香草山美食部 – 玫瑰园
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/H-4.jpg)俄罗斯莫斯科喀秋莎农场 恩合
-**清平乐·喜生活 **
+多家外媒近日报道，中共国驻澳大利亚大使成竞业即将离任，澳大利亚外长佩恩28日在国会也确认了这一消息。
 
-喜币何处？天地才知路。若牛郎织女欲诉，喜币搭桥安住。
+对于中共大使即将离任的消息，佩恩表现出很不在乎，很不尊重甚至冷漠的态度。佩恩说，“如果他还没离开的话，也是即将离开。”中共在继续指责澳方此行为是外交失礼的同时，也不得不承认中澳关系已经达到历史冰点，从当初的全面战略伙伴关系，降至目前几乎没有对话通道的极其困难的局面。
 
-千金干净谁知？请君问求KYC。百业千行缘结，只因立信众生。
+国际间对此次离任给与高度关注，媒体评论普遍认为，中国对澳的经济胁迫，是造成澳中两国关系急剧恶化的原因，“澳中关系短期内几乎没有修复的迹象”。
 
-**更漏子·喜币族**
+文字版原文：[中共驻澳大使成竞业即将离任](https://gnews.org/zh-hans/1628788/)
 
-秋水长，红尘小，一币群英聚好。万连心，亿抱团，共匪难安生。
+音频处理：喜山必胜Maverick
 
-去中心，区块铆，吾乃银行真好。左黄金，右美元，宇宙也大亨。
-
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
