@@ -2,26 +2,26 @@
 ---
 
 
-## 针下亡魂｜美国 56 岁男医生接种疫苗两周后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1629915/)
+## 新书《真正的安东尼·福奇》11月9日上市
+` 滴水穿石` [轉載自GNews](https://gnews.org/zh-hans/1629960/)
 
-**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 31/10/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+#### 译编： 洛杉矶盘古农场 滴水穿石
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-30-9.20.11-PM-edited.png)图片源：thdefense.org
+**点评：***** **神奇其邪恶力量大医药集团一起配合中共，试点释放病毒，以“研究疫苗“之名，用贫困国家的人口进行试验，以获取“预防”这些疾病的“疫苗”。但这些疫苗的副作用是导致这些接种者有大量死亡与残疾伤害。 邪恶组织与医药利益集团用各种疫苗消灭“劣质人口”与不顺服邪恶力量统治者，此计划已经被他们做了十几年的布局，美国的医学教父福奇是计划中的执行者，这些邪恶组织用各种疫苗生化武器消灭低端与残障人口的计划，正是他们对世界推行的大重启计划。*
 
-【美国】佛罗里达州一名 56 岁的妇产科医生 Gregory Michael 在接种完辉瑞 COVID-19 疫苗后第16日，因脑出血而死亡。
+**11 月 9 日，[儿童健康保护](https://childrenshealthdefense.org/)主席小罗伯特·肯尼迪 (Robert F. Kennedy, Jr.) 将[出版](https://www.amazon.com/Real-Anthony-Fauci-Democracy-Childrens/dp/1510766804)他的[新书](https://www.amazon.com/Real-Anthony-Fauci-Democracy-Childrens/dp/1510766804)——《真正的安东尼·福奇：比尔·盖茨、大型制药公司以及全球民主和公共卫生战争》。**书中揭露安东尼·福奇博士是50年统治美国公共卫生的沙皇及其造成了的灾难性后果 。
 
-他的妻子 Heidi Neckelmann 在个人脸书上写道公布了这一消息，据她描述，Dr. Michael 接种疫苗后不久，就被确诊患上一种极其严重的疾病，“急性免疫性血小板减少症”，该病会导致血液无法正常凝固，随后，Dr. Michael 就被送进重症监护室。
+[安东尼·福奇博士](https://childrenshealthdefense.org/defender/fauci-kristian-andersen-emails-manipulation-deception/)作为美国国家过敏症和传染病研究所 (NIAID) 的主任，每年为科学研究支配[61 亿美元](https://www.niaid.nih.gov/grants-contracts/budget-updates-january-2021)的美国纳税人资金。新书揭示了福奇和他的制药团队如何从疾病中获得丰厚的利润。
 
-Heidi 向媒体表示，“我的丈夫没有任何病史，亦从未对任何药物或疫苗产生过任何反应，他是一个健康、活跃的人，不吸烟，也不随意服用任何药物。”她强调，自己讲述丈夫的故事是为了让人们意识到疫苗可能存在的“副作用”。她说，“它对每个人都没有好处，它会破坏美好的生活、完美的家庭，并影响了很多人。”
+这么多年纳税人资金被福奇支出分配，让他有过度的权利“独立”批准和授权的药物和疫苗，以及成为联邦表面上的“知识与创新”的领导人，军队实行独裁统治-包括允许该委员会[紧急使用授权](https://www.fda.gov/emergency-preparedness-and-response/mcm-legal-regulatory-and-policy-framework/emergency-use-authorization)的[COVID- 19种](https://childrenshealthdefense.org/defender_category/covid/)疫苗。
 
-约翰霍普金斯大学血液疾病专家 Jerry L. Spivak 博士指出，“根据 Heidi Neckelmann 女士的描述，我认为医学上肯定疫苗相关。 ”
-![](https://assets.gnews.org/wp-content/uploads/2021/10/疫苗_0-1.jpg)
-来源｜[个案053](https://www.nytimes.com/2021/01/12/health/covid-vaccine-death.html)
+福奇并没有解决美国慢性病的增加问题，而是通过开发新药和疫苗，将美国国家过敏症和传染病研究所（NIAID ）从世界级监管机构转变为[大型制药公司](https://childrenshealthdefense.org/defender_category/big-pharma/)的产品孵化器，他、他的机构和他的员工经常分享专利和特许权使用费。
 
-* * *
+福奇一而再，再而三地[违反联邦法律](https://www.altheal.org/toxicity/house.htm)，允许他的制药合作伙伴使用贫困和黑皮肤的儿童作为实验室老鼠，进行有毒艾滋病和癌症化学疗法的致命实验。尤其是对儿童和孕妇，福奇对非洲人进行的一长串[不道德和种族灭绝实验](https://justthenews.com/accountability/political-ethics/fauci-says-americans-should-trust-doctors-himself-his-career)在整个非洲大陆造成了混乱和悲剧。
 
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//｜//[澳洲 56 岁电台主持人接种疫苗两个月后死亡](https://gnews.org/zh-hans/1622426/)//｜//[美国 39 岁女医护接种疫苗4日后死亡](https://gnews.org/zh-hans/1625214/)//
+总之，福奇和比尔·盖茨资助的**每种疫苗**——[脊髓灰质炎](https://abcnews.go.com/Health/wireStory/polio-cases-now-caused-vaccine-wild-virus-67287290)、[百](https://www.scirp.org/journal/paperinformation.aspx?paperid=81838)[白破](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5360569/)、[疟疾](https://www.sciencemag.org/news/2019/11/first-malaria-vaccine-rolled-out-africa-despite-limited-efficacy-and-nagging-safety)、[脑膜炎](http://www.laleva.org/eng/2013/01/minimum_of_40_children_paralyzed_after_new_meningitis_vaccine.html)、[破伤风](https://www.scirp.org/journal/paperinformation.aspx?paperid=81838)和[艾滋病毒](https://www.vera.org/downloads/Publications/the-experiences-of-new-york-city-foster-children-in-hiv-aids-clinical-trials/legacy_downloads/Experiences_of_NYC_Foster_Children_in_HIV-AIDS_Clinical_Trials_FINAL_appendices.pdf)——在世界各地造成接种这些疫苗导致的[伤害](http://www.branapress.com/2019/10/10/unicef-is-making-women-barren-through-polio-vaccine-african-nations-should-be-alert-kenyan-doctors-say/)和死亡数目可能要远远超过他们接种疫苗所能避免的。
+
+2021年10月31日
 
  
 

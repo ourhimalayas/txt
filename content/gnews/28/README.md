@@ -2,21 +2,40 @@
 ---
 
 
-## 秘翻在线 :超过一万名美军飞行员宁冒惩处风险也不愿接种疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1630682/)
+## 航空煤油价格上涨，致墙内机票燃油附加费回归
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1630750/)
 
-撰稿：William
-校对：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/AZ-7.jpg)
-图片来源:网路
+作者：美东香草山 鹰(文言)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月30日，国内祥鹏航空、瑞丽航空相继发出通知，恢复起征航空燃油附加费。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1031AM（1-5）視頻備用.002.jpeg)
+2015年，中共发改委曾将燃油附加费征收标准，从每吨4140元，提至每吨5000元。2019年初，国内航空煤油出厂价跌破每吨5000元，继而全面取消燃油附加费。
 
-根据零对冲(Zero Hedge) 的报导,截至 10 月 25 日，大约 11,462 名飞行员仍未疫苗接种。根据美国空军公布的数据，另外还有近 12,000 名预备役人员或太空军成员未接种疫苗。
+2020年，中共病毒疫情导致全球经济萎靡，能源吃紧，国际大宗商品价格普遍上涨，燃油价格暴增。7月份，中共国进口报税，航空煤油到岸价格达每吨3926元，同比2020年7月上调约百分之七十，如今，更是超出每吨5000元起征点。
 
-8 月底，美国国防部长劳埃德·奥斯汀 (Lloyd Austin) 下令，除非获得豁免权，所有美军部队必须全部接种疫苗。空军发言人10月告诉大纪元时报，截止日期不会推迟。报导指出美国任何部队在截止日期前未接种疫苗将被视为违反法律，并根据《统一军事司法法典》(Uniform Code of Military Justice)第 92 条接受纪律处分，他们可能会被军事法庭审判或面临其他纪律处分。
+据分析，燃油附加费的回归，侧面反映出中共外汇紧缺下，能源缺口正在加大，煤炭，燃油等能源供应，已经出现非常严峻的局面。
 
-”这可是大事!” 郭文贵先生在盖特文中指出。这些美国空军甘冒违抗命令的风险，也要争取美国宪法所保障的身体自主权及医疗权。未来无论是从法律集体诉讼美国政府或在军队、美国社会的影响，必定是对抗医疗暴政、撼动人心的壮举。
+参考链接：
 
-新闻来源：[Over 11,000 Active-Duty Air Force Personnel Unvaccinated With Days Left Before Deadline](http://Over%2011,000%20Active-Duty%20Air%20Force%20Personnel%20Unvaccinated%20With%20Days%20Left%20Before%20Deadline)
+1. [时隔两年，国内机票燃油附加费将恢复征收](https://news.sina.com.cn/o/2021-10-30/doc-iktzqtyu4392478.shtml)
+2. [国内机票 “0” 燃油附加费将结束， 800公里以上收20元](https://finance.sina.com.cn/jjxw/2021-10-30/doc-iktzscyy2661899.shtml)
+3. [7月进口保税航空煤油到岸价环比上涨 6.2%](https://finance.sina.com.cn/jjxw/2021-08-24/doc-ikqciyzm3266888.shtml)
+
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+总编：木白
+编辑：Kathy文艺
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

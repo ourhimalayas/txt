@@ -2,33 +2,39 @@
 ---
 
 
-## 攻击中共卫星！美国太空军升级进攻武器系统
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1630690/)
+## 香港华人置业抛掉最后的佳兆业债券，墙内地产债全面走低
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1630751/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+作者：日本方舟农场 Andy5
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/攻击中共卫星.png)[图片来源](https://sunnews.cc/military/171179.html)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-中共官媒“环球网”10月29日报道，美国太空军最近投资约1.2亿美元，对其反通信系统（CCS）进行升级，以对预警、通信和广播卫星系统等进行攻击。反通信系统是美国太空军第一种进攻武器系统。报道称，中共应对美太空军的该系统高度警惕。
 
-据美国《空军杂志》10月27日报道，根据22日的一份公告显示，美国太空军太空系统司令部签署一份价值1.208 亿美元的合同，用于开发“陆基可部署电子战能力”，以可逆地拒止通信、预警、广播等卫星系统（提供服务）。
 
-根据该合同，位于美国本土三个基地和境外机密地点的共计16套反通信系统将得到升级，计划2025年2月前完成。
+据彭博社10月29日报道，适逢中国地产债全面走低之际，香港亿万富豪刘銮雄家族掌控的香港房地产公司，亏本出清佳兆业的债券，给中国地产债市场下跌趋势的蔓延，更加火上浇油。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1031AM（1-5）視頻備用.003.jpeg)
+香港房地产公司华人置业，本周以几乎最低价格2700万美元，抛掉了最后的佳兆业债券。同时，佳兆业集团也在抛售其佳兆业美好的股票，现在依然没有买家出现。
 
-报道称，反通信系统（CCS）是美国太空军目前唯一的进攻武器系统。据悉部署于2004年，其主要任务是压制卫星。
+恒大地产爆雷，已引起中国房地产相关行业的连环崩溃。作为中国恒大创始人许家印的牌友，及其最大财务支持者之一的刘銮雄，不断解除中国恒大股票头寸，亦是顺理成章的无奈之举。
 
-美国太空军于2019年12月正式成为独立军种，用于在外层空间进行军事行动，目前正接收整合美国空军、陆军、海军以及其他军民机构的有关职能部门。电磁战是美国太空军的七个发展领域之一。
+眼下，中国地产债全面走低，加上拉闸限电，水泥涨价等因素，正如郭文贵先生所说，今后，再不会有民间企业在中共国建造楼房。中共成为唯一建筑商的局面，正在墙内一步步变成现实。
 
-郭文贵先生曾爆料，美军可在3分钟之内让中共解放军丧失战斗力。基于现代战争的特点，瘫痪敌方的定位导航和通信系统是让敌军快速丧失战斗力的重要手段，因此，美国太空军升级反通信系统（CCS）对准的就是中共太空的北斗导航、空间预警和通信卫星。
+参考链接：[香港富豪刘銮雄公司忙于偿债 折价出清债券](https://www.zaobao.com.sg/realtime/china/story20211029-1208211)
 
-信息来源：
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-[警惕美国太空军升级进攻武器系统，想攻击预警、通信及广播卫星](https://mil.huanqiu.com/article/45MfdivN3YZ)
+总编：飞虹
+编辑：Kathy文艺
+校正/发稿：我不在这里
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
