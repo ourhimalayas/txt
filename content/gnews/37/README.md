@@ -2,26 +2,38 @@
 ---
 
 
-## 文贵视角:医师战友向郭文贵先生深深一鞠躬表达感谢
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1630810/)
+## 德国停止追踪因疫苗死亡的数据，以掩盖疫苗杀人的真相
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1630950/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/AZ-8.jpg)
-**听从文贵先生备药的医师救了自己的妈妈**
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-10月27日，郭文贵先生在直播中转述了一位战友(也是医师)对他的感激之意。”七哥，我要向您深深地一鞠躬，因为您提醒我们要备药，本来是要救战友，没想到救了我自己的老娘!”
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/rk_astrazeneca-australia_120421.jpg)图片来源：straitstimes.com
 
-七月份偷偷打了一剂的老妈妈，三个月后的一个半夜突然水泻不止，并且毫无胃口。医师用了郭文贵先生建议的伊维菌素，两天之后水泻止住，第三天胃口也慢慢恢复。
 
-**打疫苗致死的原因可能包括严重的水泻及失去食慾**
+#### 编译：小红帽
 
-“伊维菌素对打过疫苗的副作用真的管用!”医师说，”另外，请七哥提醒战友，疫苗的副作用不只是心肌炎、脑中风，严重的水泻及持续无胃口可能也是打疫苗副作用致死的原因。”
+德国中部城市魏玛（Weimar）不再公布因中共病毒（Covid-19）疫苗而死亡或不得不住院的居民数据。
 
-一位马来西亚女子自制影片控诉，她的母亲因为打疫苗造成腹泻及丧失食慾，最后在医院孤独死去。她悲痛的提醒大家，打疫苗造成的腹泻及无食慾会导致死亡。
+据报道，魏玛政府不希望有人反对，甚至只是以健康为理由质疑中共病毒疫苗的“安全性”和“有效性”，因此魏玛政府不再公布有关中共病毒疫苗造成的伤害和死亡数据。这试图制造一种假象，认为注射疫苗后一切正常。
 
-文贵先生不断在直播中提醒大家，疫苗的次生灾害才刚刚开始。最近频传的机师因为打疫苗而丧生，一些影视明星也因疫苗致死或者伤残。除了脑梗、心梗，疫苗的副作用可能还严重影响肠胃系统，导致受害者丧失生命，所有人都必须提高警觉。
+值得庆幸的是，即使政府拒绝公布接种中共病毒疫苗的真相，也有像CovidVaccineVictims.com这样的网站将继续跟踪因疫苗而造成的伤害和死亡案例。
 
-消息来源: [https://gtv.org/video/id=6175eb16247c5a3f908f92cc](https://gtv.org/video/id=6175eb16247c5a3f908f92cc)
+事实上，关于中共病毒疫苗的官方说法似乎正在崩溃。
+
+我们看到，关于疫苗作用的说法似乎发生了变化，从仅仅最大限度地减少感染，到阻止传播，再到你需要接种疫苗，否则你会杀死你的奶奶。
+
+换句话说，这种说法到处都是，就像政客们向他们的选民推行中共病毒主义一样。在整个世界都发现这只是一场骗局之前，中共病毒还能持续多久？
+
+**参考新闻：**[German city stops tracking covid vaccine deaths in order to suppress the truth about how many people are being KILLED by vaccines – NaturalNews.com](https://www.naturalnews.com/2021-10-30-german-city-stops-tracking-covid-vaccine-deaths.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

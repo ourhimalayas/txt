@@ -2,38 +2,72 @@
 ---
 
 
-## 美国多个州起诉拜登政府要求停止强制疫苗接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631101/)
+## 樱花灭共段子之马云“罩反”、德艺双馨艺术家
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1631135/)
 
-作者：MOS – 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据拜登政府疫苗强制令要求，联邦承包商必须在12月8日之前，提供疫苗接种证明，否则可能面临被解雇。
+撰稿：东京樱花团/perterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/10/6-25.jpg)
+【马云“罩反”】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-20.jpeg)
+作者：perterwong
 
-10月29日，一群共和党总检察长起诉拜登政府，质疑其对联邦承包商的疫苗授权。
+插图：樱花团设计组
 
-由密苏里州总检察长——埃里克-施密特领导的诉讼案认为，拜登政府对承包商实行疫苗授权，违反了联邦采购法。并且，拜登的行政命令规定，所有联邦工作人员必须接种COVID-19疫苗是违宪的。该诉讼要求法院发布一个全国性的临时禁令，停止疫苗授权。
+保镖：马粑粑，你的口罩戴反了哦。
 
-越来越多的州反对执行疫苗强制令，加入诉讼的州包括：内布拉斯加，阿拉斯加，新罕布什尔，蒙大拿，南达科他，北达科他，爱荷华，阿肯色，怀俄明和密苏里。
+马云：你懂啥？这叫“罩反”，我跟“蛤蛤”说好了“罩反”为号，我他马的要公开造反了!
 
-参考链接：[Several states sue Biden administration to halt federal vaccine mandate](https://justthenews.com/politics-policy/coronavirus/group-republican-attorneys-general-file-lawsuit-attempting-halt-federal)
+保镖：高！实在是高！
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+马云：把手机给我，开启群聊模式，接通马化腾和马明哲。（噔噔！链接成功）看我这造型别致不？
 
-总编：Ivy001
-编辑：Ivy001
-校正/发稿：谐趣园
+马华腾：你反了啊？这造型不错，我们公司也要出个企鹅牌“造反口罩。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+马明哲：这口罩看着质量不错，是3M的吧，你问问他们老板有没有兴趣当平安第一大股东？
 
+马云：少废话，我这在西班牙都要完球蛋了，你们两他马的造不造？
 
+马华腾，马明哲：歪…！歪…！我们这信号不好，等会儿放风的时候再聊……
+
+[盖特链接](https://www.gettr.com/post/peu6owe004)
+
+【德艺双馨艺术家】
+
+作者：perterwong
+
+插图：选自网络
+
+（朝阳居委会军情谍报处例行记者发布会现场）
+
+记者：请问李云迪是否潜规则女学员、女粉丝和女下属？
+
+发炎人：他单纯就是嫖娼。
+
+记者：他嫖资是贪污受贿来的吗？
+
+发炎人：是他自掏腰包。
+
+记者：他是否对失足妇女进行强迫交易？
+
+发炎人：他们公平交易，遵守了市场规则。
+
+记者：他是否有包小三，小四，小五，小六……
+
+发炎人：他目前是未婚。
+
+记者：本案是否是失足妇女揭发的？
+
+发炎人：（非常自豪的用鼻孔面对镜头）是我们朝阳大妈举报的！
+
+记者：那看来李云迪真是位“德艺双馨”艺术家，比很多官员都要高尚。
+
+发炎人：（瞪大了狗眼）送你一句话“顺我者昌，逆我者嫖娼！”
+
+[盖特链接](https://www.gettr.com/post/pey7enb305)
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10-1.png)
 
 
  

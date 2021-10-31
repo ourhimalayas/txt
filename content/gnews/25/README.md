@@ -2,77 +2,40 @@
 ---
 
 
-## 樱花灭共段子之醒脑汤之新中国联邦大爱人间、之即将成为冥币的人民币、之共匪又作孽、之共匪的恐惧
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1631076/)
+## 美国多个州起诉拜登政府要求停止强制疫苗接种
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631101/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-117.jpg)
-醒脑汤】之《新中国联邦大爱人间》
+作者：MOS – 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据拜登政府疫苗强制令要求，联邦承包商必须在12月8日之前，提供疫苗接种证明，否则可能面临被解雇。
 
-作者：喜韩大炮
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-20.jpeg)
 
-插图：樱花团设计组
+10月29日，一群共和党总检察长起诉拜登政府，质疑其对联邦承包商的疫苗授权。
 
-在这个地球上有那么一片土地上，有明显的两群人。
+由密苏里州总检察长——埃里克-施密特领导的诉讼案认为，拜登政府对承包商实行疫苗授权，违反了联邦采购法。并且，拜登的行政命令规定，所有联邦工作人员必须接种COVID-19疫苗是违宪的。该诉讼要求法院发布一个全国性的临时禁令，停止疫苗授权。
 
-有一小群人他们看到了整个世界 也看清了整个世界，所以他们选择了去拯救，想把这个世界的温暖与大爱传播给那片土地的人。
+越来越多的州反对执行疫苗强制令，加入诉讼的州包括：内布拉斯加，阿拉斯加，新罕布什尔，蒙大拿，南达科他，北达科他，爱荷华，阿肯色，怀俄明和密苏里。
 
-还有一群人，他们看不见这个世界，因为有人故意不让他们看到，而这群人中却有很多人选择了在岁月静好中麻木了自我，选择了与苍蝇和蛆同流合污，如同智障。
+参考链接：[Several states sue Biden administration to halt federal vaccine mandate](https://justthenews.com/politics-policy/coronavirus/group-republican-attorneys-general-file-lawsuit-attempting-halt-federal)
 
-这两群人都在互相笑，麻木的那群人笑看清世界的人是“神经病”，而看清世界的人的眼里却充满了温暖与大爱，即便面对的是“智障”，他们依然会选择拯救和关怀，这也是——人间大爱！！！
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-[盖特链接](https://www.gettr.com/post/penim9655a)
+总编：Ivy001
+编辑：Ivy001
+校正/发稿：谐趣园
 
-【醒脑汤】之《即将成为冥币的人民币》
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-作者：在路上
 
-插图：樱花团设计组
 
-共匪国最近乱成一锅粥了。房产、煤炭、保险、金融、信托……都即将暴雷。
 
-接下来将是又一轮的打土豪、分田地。不过当下的土豪是指有资本的人，田地是指房产多的人。
-
-这些让我想起了一段历史— —金圆券。真金白银才是货币。金圆券只是法币，就没有持续存在的价值。
-
-货币的体现是无阻碍消费、流通、价值，但法币只是区域消费，区域流通，区域价值 ，有局限性。
-
-看来“人民币”成为冥币的日子不远了。
-
-[盖特链接](https://www.gettr.com/post/pet3m50fc5)
-
-【醒脑汤】之《共匪又作孽》
-
-作者：在路上
-
-插图：樱花团设计组
-
-最近七叔爆出了青蒿素是ccp病毒解药的真相轰动了墙内外，墙内墙外的战友传播速度相当惊人，ccp吓得尿不湿都穿上了。
-
-ccp恐惧了，于是又出了更邪恶的手段毁坏《爆料革命》和《新中国联邦》的信誉，尤其是墙内，共匪居然在青蒿素哌喹片上做文章，在药里面搞小动作。
-
-直接导致好多战友及被推荐者的身体被残害，而且这几天还有好多战友因在微信等通讯工具上传播青蒿素被喝茶。
-
-由此可见，由郭文贵先生和战友们开启的《爆料革命》和《新中国联邦》的灭共让共匪是多么恐惧，共匪灭亡，指日可待，战友们，让我们一起再接再厉传播真相，消灭共产党！！！
-
-[盖特链接](https://www.gettr.com/post/pevlwt3220)
-
-【醒脑汤】之《共匪的恐惧》
-
-作者：在路上
-
-插图：樱花团设计组
-
-最近一段时间，不管是墙内还是墙外，大家都感觉到了共匪的四面楚歌，政治、科技、金融……各个角度都可以很明显。
-
-尤其是喜马拉雅币即将上市，会导致一些列让共匪恐惧的事情发生。喜马拉雅币的上市不光是改变世界金融生态圈，还会摧毁共匪处心积虑在海外建立的一切宣传机构，也同时会让很多墙内的普通人感到震惊，这种力量可以说会直接打破共匪奴役华夏儿女的神话。
-
-世界将会看到 听到《爆料革命》《新中国联邦》，正带领着一群有善念、有智慧、有大爱的优秀华夏儿女在向这个世界展现真正的中国人，因为这群人对世界的尊重和拥抱，使得这个世界可以分清“共产党”这个魔鬼不等于中国人，中国人是值得获得这个世界的尊重的，同时这个世界也会更直接的看清魔鬼对世界的危害，他们必须得到世界人民的审判，中国人也必须拥有真正的自由和幸福！！！
-
-[盖特链接](https://www.gettr.com/post/pfj69w5ebf)
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
