@@ -2,45 +2,132 @@
 ---
 
 
-## 马克·莫比乌斯谈通货膨胀：价格将“大幅”上涨
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1629554/)
+## 两三年后的价格是决定喜馬拉雅币价值的关键之二
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1629572/)
 
-作者：美国香草山金融组- 德州瑞秋
+[https://gtv.org/video/id=617b90b7adfd99590c30b117](https://gtv.org/video/id=617b90b7adfd99590c30b117)
 
+第二条
+Segundo
 
+记住七哥说的话, 喜币真正的价格
+Recuerda lo que digo, el precio real de la moneda de Himalaya
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+前三个月你千万别在乎
+No tomes en cuenta los primeros tres meses
 
+它涨到100万
+Si sube hasta 1 millón
 
+它跌到1毛钱, 0.001分你都别在乎
+O baja a 1 centavo, 0.001 centavos, no lo tomes en cuenta
 
-10月29日，Mobius Capital Partners 创始人马克·莫比乌斯 （Mark Mobius）周五做客 “Mornings with Maria” 节目 ，并提供了对通货膨胀和供应链危机的看法，认为价格将 “急剧上涨” 。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture99999.jpg)
-马克·莫比乌斯 （Mark Mobius）是新兴市场基金经理和 Mobius Capital Partners LLP 创始人，自1987年投资新兴和前沿市场。
+喜币真正的拥有者
+El verdadero dueño de la moneda de Himalaya
 
-在“Mornings with Maria” 节目中，莫比乌斯指出：“通货膨胀不仅仅是供应链问题，这些问题非常非常大。现在是人员成本的问题。劳动力成本不仅在美国上升，而且在全球范围内都在上升，我认为这将是一个巨大的挑战，因为越来越多的这些公司需要人来管理公司并实际完成工作，这会使成本越来越高。所以你会看到利润率受到打击。同时，随着这些公司离开中国，他们也会在世界其他地方面临着更高的成本。”
+是在两年后
+Es después de dos años
 
-莫比乌斯强调，现在的通货膨胀不是暂时的。“如果您看到货币供应量增加了 30% 或更多，这不是暂时的。尽管科技可以降低某些领域的成本，但现实是随着时间的发展，价格仍将急剧上涨。在我看来，这毫无疑问。 “
+它几乎它能告诉你
+Ella prácticamente te puede decir
 
-莫比乌斯对通胀的看法与郭文贵先生不谋而合。郭先生在近期的大直播中多次提及世界性的金融危机将要来临，加上中共病毒肆虐，人工成本会越来越高。
+是否你应该持有和不应该持有
+Si debes tenerla o no
 
-参考来源：
-1. [https://www.foxbusiness.com/economy/labor-price-inflation-supply-chainmark-mobius](https://www.foxbusiness.com/economy/labor-price-inflation-supply-chainmark-mobius)
-2. [https://en.wikipedia.org/wiki/Mark\_Mobius#cite\_note-cnbc.com-3](https://en.wikipedia.org/wiki/Mark_Mobius#cite_note-cnbc.com-3)
+喜币一定是挣钱的
+La moneda de Himalaya seguramente puede ganar dinero
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+谁要赔了钱
+Quien pierde el dinero
 
-编辑/校对/发稿：Hetangyuese
+我可以说我100%赔
+Puedo decir que yo perderé el 100%
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+我100%给你们
+Les doy mi 100%
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+谁赔了钱我承担
+Quien pierde dinero yo lo asumo
 
+它一定会挣的
+Ella seguramente ganará dinero
 
+它只是挣多少而已
+Solamente consiste en cuánto
+
+但是对你来讲说, 老实话
+Pero para ti, hablando sinceramente
+
+你会挣个3倍、5倍、10倍、100倍
+Ganarás el triple, cinco veces, diez veces, hasta cien veces más
+
+你挣完钱以后, 你拿走了我会告诉你
+Luego cuando ganes el dinero y lo vendas, te digo
+
+你什么都没有
+No tendrás nada
+
+真正的想了解喜币的人是在两三年以后
+Quien realmente quiere conocer a la moneda de Himalaya es después de dos a tres años
+
+就像当年比特币
+Al igual que Bitcoin en ese entonces
+
+当时我们买的时候
+En aquel momento cuando lo compramos
+
+千八百块钱
+En 800 a 1000
+
+我那时候我说有多少买多少
+En ese momento dije que comprara todo lo que tuviera
+
+我们买的比特币
+El Bitcoin que compramos
+
+到现在我们还有很多呢
+Hasta ahora todavía tenemos mucho
+
+我们的基金里边人说
+La persona de nuestra fundación dijo
+
+我才知道基金有那么多比特币
+Fue que supe que la fundación hay tantos Bitcoin
+
+他说七哥当初听你的
+Él dijo en aquel tiempo te escuché
+
+都是1000多块钱买的
+Fueron comprados en 1000
+
+我们都没有卖
+No lo vendimos
+
+这才是真正的(投资)
+Esto es una verdadera (inversión)
+
+你想想(如果)1万卖2万那不就全完了吗
+Piensa si diez mil lo vendes a veinte mil, ¿no se acabará todo?
+
+———————————————————
+
+日期：10/27/2021
+原视频标题：
+El precio de los próximos dos a tres años es una de las claves para determinar el valor de la moneda de Himalaya
+原视频日期：10/23/2021
+任务编号：KC207（2645）
+视频时间段：0:00-1:20
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

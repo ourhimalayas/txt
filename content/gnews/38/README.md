@@ -2,41 +2,28 @@
 ---
 
 
-## 弗吉尼亚州再现选举舞弊
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1629175/)
+## 有声|中共国禽流感传人案例猛增
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1629256/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+配音：香草山美食部 – 玫瑰园
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/V-4.jpg)theredamerican.com
-《门道专家》发表文章，题目是，“弗吉尼亚州又一次选举，又一次选举偷窃——据报道，弗吉尼亚州费尔法克斯（Fairfax）郡不要求缺席选票上写上社会安全号码（SSN）的最后四位数”。
+中共国在2021年向世卫组织通报称，有21起人类感染H5N6亚型禽流感的案例，而去年只有5起。虽然这21名患者，相比2017年感染H7N9毒株的数百人要低得多，但是这些感染非常严重，导致多人病危和6人死亡。
 
-全文如下：
+这引起了专家的关切，他们说以前流行的一个毒株似乎发生了变化，可能对人更有传染性。世卫组织在10月4日的一份声明中，强调了病例的增加，并说大多数病例都与家禽接触过，没有人传人的确认病例。
 
-毫无疑问，弗吉尼亚州的选举正在被偷走，我们在2020年的大选中看到了这一点，现在我们又看到了这一点。
+文字版原文：[中共国禽流感传人案例猛增](https://gnews.org/zh-hans/1622796/)
 
-费尔法克斯郡在2020年大选中卷入了无法解释的腐败行为，这些行为从未得到解决，我们只知道在2020大选之后的几天，该州有330,000张选票投给了拜登，都发生在选举期间的午夜。
+音频处理：喜山必胜Maverick
 
-(附上了《门道专家》当时发表的文章）
-
-我们后来发现这些选票都在费尔法克斯郡。
-
-现在我们发现费尔法克斯郡在本次选举中不要求缺席选票写上社会安全号码的最后四位数。
-
-文章附上了一段推文：
-费尔法克斯郡选举登记处不要求缺席选票写上社会安全号码的最后四位数字。
-他们正在通过邮寄选票窃取另一场选举。
-然而，（在场的）共和党成员（@GOP）又在袖手旁观，无所事事。
-（全文完）
-
-维护选举公正的有识之士，无论是共和党的，还是民主党的，都应该警觉、行动起来，不是针对哪个党派，而是要确保选举的真实与公正，这是美国的国本。如果通过欺诈舞弊赢得了选举，某个党派获得了利益，那将意味着美国国体受到了侵蚀，让邪恶占上风后民主制度最终将走向毁灭。
-
-文贵先生对弗吉尼亚州长的选举给予了希望，称这是共和党能否赢得2022中期选举的风向标，班农先生也在呼吁，投票支持共和党人选。美国人必须行动起来，尤其是共和党人，去投票中心，严格监督投票过程，揭露舞弊行为。
-
-原文链接：
-
-[https://www.thegatewaypundit.com/2021/10/another-virginia-election-another-election-steal-virginias-fairfax-county-not-requiring-last-four-digits-ssns-absentee-ballots/](https://www.thegatewaypundit.com/2021/10/another-virginia-election-another-election-steal-virginias-fairfax-county-not-requiring-last-four-digits-ssns-absentee-ballots/)
-
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

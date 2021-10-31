@@ -2,30 +2,26 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月30日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1628739/)
+## 川普被要求公开他新社交媒体的源代码
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1629126/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+俄罗斯莫斯科喀秋莎农场 星河
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV_-_Google_-1.png)
-文章仅代表作者本人观点，与Gnews无关
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/D.png)inddependent.co.uk
+美东时间10月30日报道，一个所谓的开源、去中心化的社交媒体平台Mastodon公司要求美国前总统川普的团队公开其新社交网络TRUTH Social中使用的源代码。
 
-视频参看：2021.10.30早GTV新闻访谈
+Mastodon称，“10月26日，我们向TRUTH Social的总法律顾问发出了一封正式信函，要求按照许可证规定公布源代码。”该公司强调，在收到通知后，TRUTH Social有30天时间来完成要求。如果不这样做，可能会导致许可证被不可逆转地撤销。
 
-[https://gtv.org/broadcast/watch/617d3a4811d1862968fda427](https://gtv.org/broadcast/watch/617d3a4811d1862968fda427)
+根据该声明，尽管TRUTH Social尚未推出，但一些用户已经访问了该社交网络的测试版，并注意到一个“令人震惊的警告”，即源代码以及其内容都是TRUTH Social的财产。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+Mastodon保证，川普的社交网络是基于该平台的公开代码。“值得注意的是，无论是条款还是网站的任何其他部分都不包含Mastodon的任何链接，也不包含Mastodon用户界面中默认存在的源代码的任何链接”。该公司强调，Mastodon平台的使用条款规定，在其基础上制作的任何社交网站必须开放源代码。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-17.png)
+川普于10月21日宣布TRUTH Social，该服务的测试版将于11月向“受邀用户”开放，预计将于2022年初全面推出。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+参考链接：
+
+[https://www.rbc.ru/rbcfreenews/617cdcb39a79473689b264d9](https://www.rbc.ru/rbcfreenews/617cdcb39a79473689b264d9)
 
  
 

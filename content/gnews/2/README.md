@@ -2,27 +2,24 @@
 ---
 
 
-## 有声|福奇勾结中共制造基因改造病毒，构成叛国罪
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1629821/)
+## 美国取代中国成为比特币挖矿中心
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1629863/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-援引郭文贵先生10月29日盖特，皮特·纳瓦罗在接受War Room采访时表示，福奇最大的谎言是，他从2020年1月28日就确切地知道，致命的中共基因工程病毒来自他资助的武汉生物武器实验室。福奇从Scripps研究所收到一份邮件，称中共病毒经过基因改造。但他没有告诉川普总统，并费尽心机、极力掩盖致命病毒。
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-151.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fthumbor.ftacademy.cn%2Funsafe%2F900x506%2Fpicture%2F0%2F000127220_piclink.jpg&amp;imgrefurl=http%3A%2F%2Fwww.ftchinese.com%2Fstory%2F001094210%3Ffull%3Dy&amp;tbnid=y2Jzl5fpfZVTiM&amp;vet=12ahUKEwja-93HxPPzAhUMB5QKHSvhDgAQMygEegUIARC_AQ..i&amp;docid=7NEA3uEaQNRMwM&amp;w=900&amp;h=506&amp;q=%E7%BE%8E%E5%9B%BD%E5%8F%96%E4%BB%A3%E4%B8%AD%E5%9B%BD%E6%88%90%E4%B8%BA%E6%AF%94%E7%89%B9%E5%B8%81%E6%8C%96%E7%9F%BF%E4%B8%AD%E5%BF%83&amp;ved=2ahUKEwja-93HxPPzAhUMB5QKHSvhDgAQMygEegUIARC_AQ)
+目前全球超过三分之一的比特币挖矿计算能力来自在美国的机器，而去年春天这一比例还不到五分之一。美国正迅速崛起为新的全球比特币挖矿中心。
 
-娜塔莉·温特斯说，武汉病毒研究所由共产党全权操纵，进行着有预谋的邪恶活动，并得到了弗朗西斯·柯林斯和安东尼·福奇等人的完全批准、支持以及实际资助。福奇和中共勾结，协助制造基因改造病毒，杀死全世界数以百万人口，这是叛国罪。
+中共国政府实行打击行动后，许多挖矿公司正押注于美国的可靠能源供应以及更可预测的监管环境。据剑桥大学(University of Cambridge)的数据，目前全球超过三分之一的比特币挖矿计算能力来自在美国的机器，而去年春天这一比例还不到五分之一。
 
-文字版原文：[福奇勾结中共制造基因改造病毒，构成叛国罪](https://gnews.org/zh-hans/1627612/)
+中共国此前一直是企业放置计算机以解锁新比特币的主要国家。但在今年5月，中共释放出将开始更广泛打击比特币挖矿和交易的信号，此举旨在确保政府对国内经济的控制。比特币挖矿已经成为一项利润丰厚的事业，目前一枚比特币的价格约为6万美元。为了获取新的比特币，功能强大的计算机竞相解决一系列数学难题，希望能解锁新的比特币，其中许多计算机都是一天24小时在线。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+信息来源：
+
+[美国取代中国成为比特币挖矿中心](https://cn.wsj.com/articles/%E7%BE%8E%E5%9B%BD%E5%8F%96%E4%BB%A3%E4%B8%AD%E5%9B%BD%E6%88%90%E4%B8%BA%E6%AF%94%E7%89%B9%E5%B8%81%E6%8C%96%E7%9F%BF%E4%B8%AD%E5%BF%83-11635401113)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
