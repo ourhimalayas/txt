@@ -2,10 +2,10 @@
 ---
 
 
-## 喜币上市实现新中国联邦人同资产、同富裕、同利益的命运共同体
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1629432/)
+## 中共控制的房地产公司无还款意愿将导致金融灾难
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1629531/)
 
-作者：香草山农场 – 恩永存
+作者：香草山农场 – 飞虹
 
 
 
@@ -13,13 +13,17 @@
 
 
 
-郭文贵先生在10月29日大直播中告诉新中国联邦人：11月1日我们将有新的关系。共同的资产，共同的富裕，共同的利益——我们成了真正的命运共同体。我们是战友，是兄弟姐妹，如亲人。我们为了实现自由，民主，法制，以及充满大爱的国度而共同努力，喜迎新时代！
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture6-6.jpg)
-喜币一直让CCP恐惧，因此他们使出各种邪恶手段禁止中国人拥有；喜币使伪类嫉妒，因此他们在网络上恶言攻击；喜币让爆料革命里的叛徒后悔，因此他们颠倒是非的背后是“哭晕在厕所”。
+在10月29日的大直播中，郭文贵先生再谈中共国的房地产话题。
 
-爆料革命战友紧随郭先生，坚定信念，为了建立自由，民主，法制的新中国联邦与CCP恶魔斗智斗勇，冲破重重阻碍，收获喜币，将迎来荣美人生。
+自恒大9月份传出无力偿还负债以来，花样年、华夏幸福、泰禾集团等大型房地产公司的债务违约等问题陆续引起了外界的关注。各界对中共国房地产业可能发生“暴雷”事件的预期越来越强烈。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-20.jpg)
+郭先生在直播中提到，由于中美财务年度计算时间不同，以及向中共房地产业提供大量资金的国外对冲基金一般都会提供一定的还款宽限期，中共房地产发生融资暴雷的时间将集中在2022年5月到7月。
 
-参考链接：[喜币上市实现新中国联邦人同资产、同富裕、同利益的命运共同体](https://gettr.com/post/pfj5788ec5)
+而最让国际金融界恐惧的，是他们发现中共这些房地产商并无还款意愿。
+
+其结果，一方面，将使国际金融机构陷入灾难；另一方面，将会拖累中共国内的银行，牵连出中共相关高层隐藏的代持者，引发中共国内金融和政治的动荡，甚至导致保险公司不赔付保险，给墙内百姓带来无法想象的灾难。
+
+参考链接：[中共控制的房地产公司无还款意愿将导致金融灾难](https://gettr.com/post/pflgoxbdc2)
 
 ![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
@@ -33,7 +37,11 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+
 
 
  

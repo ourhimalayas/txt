@@ -2,45 +2,40 @@
 ---
 
 
-## 中共控制的房地产公司无还款意愿将导致金融灾难
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1629531/)
+## 尽管疫苗接种率超过91%，但医院里的新冠患者人数自3月份创新高
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1629632/)
 
-作者：香草山农场 – 飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/103003.jpg)图片来源：Pexels
+尽管爱尔兰12岁以上的人口中超过91%都接种了新冠疫苗——欧盟中最高的接种率，现在医院里的新冠病毒患者人数自3月以来却是最高的。
 
+爱尔兰医院里新冠阳性病人的人数目前停留在513人，这是自去年冬天臭名昭著的第三波疫情结束后未曾有过的数字。
 
+本周，这些病人中有101人在重症监护病房——跟上周的74人相比有所增加。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+爱尔兰首席医疗官托尼·霍洛汉（Tony Holohan）博士说他“越来越担忧新冠感染病例的发生率在全国范围内增加。”
 
+值得一提的是， 沃特福德市（Waterford ）99.7%的成人全面接种新冠疫苗，这在全世界也是接种率最高的地区之一，其新冠病毒感染率却是国内最高的。
 
+**简评：**
 
-在10月29日的大直播中，郭文贵先生再谈中共国的房地产话题。
+人会习惯性地将某些事物联系对应起来——看到万里晴空，自然地拿广阔的大地跟它对应，并悄然升起相应的感情，在这里可以是欢喜。新冠病毒出现后，笔者自然也渴望看到新冠疫苗，但是却不能激发起对新冠疫苗自然而然的信任。当看到政府官员在新冠疫情新闻发布会上，面对记者的提问——感染者中有多少人接种过疫苗，不敢正面回答顾左右而言它时，我佩服感谢这样的记者。越来越多的事实报道证明一件事：现在的新冠疫苗不是新冠病毒的解药。
 
-自恒大9月份传出无力偿还负债以来，花样年、华夏幸福、泰禾集团等大型房地产公司的债务违约等问题陆续引起了外界的关注。各界对中共国房地产业可能发生“暴雷”事件的预期越来越强烈。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-20.jpg)
-郭先生在直播中提到，由于中美财务年度计算时间不同，以及向中共房地产业提供大量资金的国外对冲基金一般都会提供一定的还款宽限期，中共房地产发生融资暴雷的时间将集中在2022年5月到7月。
+新闻链接: [HIGHEST COVID NUMBERS IN HOSPITAL SINCE MARCH DESPITE 91%+ JABBED](https://gript.ie/highest-covid-numbers-in-hospital-since-march-despite-91-jabbed/)
 
-而最让国际金融界恐惧的，是他们发现中共这些房地产商并无还款意愿。
+***翻译**: 乡间小路*
 
-其结果，一方面，将使国际金融机构陷入灾难；另一方面，将会拖累中共国内的银行，牵连出中共相关高层隐藏的代持者，引发中共国内金融和政治的动荡，甚至导致保险公司不赔付保险，给墙内百姓带来无法想象的灾难。
+***校对**：感恩*
 
-参考链接：[中共控制的房地产公司无还款意愿将导致金融灾难](https://gettr.com/post/pflgoxbdc2)
+* * *
 
-![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：木白
-编辑：木白
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 

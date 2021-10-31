@@ -2,40 +2,21 @@
 ---
 
 
-## 比特币没有未来，喜币明天无限美好
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1629431/)
+## 秘翻在线: 中共国工程院院士兼国企高官落马
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1629435/)
 
-作者：英国喜庄园 – I770775
+撰稿：西枫westca
 
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unnamed-2.png)图片来源：网络截屏
+据中共纪委国家监委网站10月29日发布消息，中国国际工程咨询有限公司原党委书记、董事长王安涉嫌严重违纪违法，目前正在接受纪律审查和监察调查。
 
+王安自2008至2015年起担任中国中煤能源集团董事、总经理至董事长。自2017年至2021年在中国国际工程咨询有限公司历任党组书记、总经理、董事长。在学界，王安在2009年当选中国工程院院士，被称为现代煤矿采矿工程专家，利用其工程哲学理念，建成世界上第一个“高产、高效、高回收率、安全、环保”的亿吨级现代化矿区。曾多次获得国家级奖项。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在受到双规的同时，其院士称号已被中国科学院撤销。院士本是科技界最高的荣誉称号，理应做出表率。但在中共国国有企业领导也能评为工程院院士，无非是学术界与企业界互相的裙带关系，达到利润的最高化。在目前中共国煤炭紧缺的当口，抓了这么一条煤炭大鱼，会有什么突破呢？
 
+**新闻来源：**[中国国际工程咨询公司原董事长王安接受审查调查————执纪审查——中央纪委国家监委网站 (ccdi.gov.cn)](https://www.ccdi.gov.cn/scdc/zyyj/zjsc/202110/t20211029_253194.html)
 
-
-郭文贵先生在10月29日的大直播中爆料：刚刚在伦敦举办的数字货币大会上，喜联储主席威廉姆现场演讲惊爆全场。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture11-12.jpg)
-演讲中，有人问威廉姆，他如何看待比特币的未来？威廉姆非常坚定地说，比特币一定不会有未来！一是比特币涉及大量洗黑钱，一旦被美国定性为非法，立刻就结束；二是比特币不具备大量流通的货币属性，只要不流通，任何虚拟币都没有未来；三是比特币没有中心化的责任，也就是出问题了没人负责。
-
-同样是虚拟币，即将上市的喜马拉雅数字货币，则完全避免了比特币等虚拟币的弊端，不仅获得世界多国合法的金融牌照，同时也具备货币流通的基本属性，有喜币价值的20%的黄金作为储备以及G系列的加持。这一切为喜币保值增值奠定了基础。
-
-比特币没有未来，但喜币的明天无限美好。
-
-参考链接：[比特币没有未来，喜币明天无限美好](https://gtv.org/video/id=617be96f11d1862968fccc4b)
-
-![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：木白
-编辑：木白
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,64 +2,64 @@
 ---
 
 
-## 英国研究：接种疫苗者易在家中传播Delta变异体
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1627990/)
+## COVID-19最新情报｜台湾卫福部认疫苗致心肌炎病例激增 专家权衡利益 吁继续接种
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1628423/)
 
-编译： Jenny Ball
+**台灣寶島農場 疫情關注組｜發佈日期/ 30/10/2021**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-567.png)图片来源： theepochtimes.com
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-澳大工作人员于 2021 年 7 月 20 日在墨尔本的墨尔本展览场地COVID-19 疫苗接种中心内准备阿斯利康疫苗剂量。 州长丹尼尔·安德鲁斯 (Daniel Andrews) 宣布将维多利亚州的封锁延长 7 天，因为该州继续记录COVID-19 病例新的社区，并努力阻止高传染性Delta毒株在社区中的传播。 （丹尼尔·帕克特/盖蒂图片社摄）
 
-英国最近的一项研究称，COVID-19的Delta 变体很容易由接种疫苗的人传染给他们的家庭成员，尽管其研究人员得出结论，接种疫苗和加强疫苗是未来的方向。
+2021/10/29台湾卫生福利部疾病管制署发布影片，邀请台中荣民总医院副院长傅云庆[讲解新冠疫苗接种后心肌炎、心包膜炎](https://www.youtube.com/watch?v=jzZTgUenRAI)的相关说明。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/截圖-2021-10-30-下午4.06.59.png)
+#### mRNA疫苗确实导致心肌炎病例数激增
 
-伦敦帝国理工学院周四发表在《柳叶刀》上的一项为期一年的研究发现，Delta 变体在接种疫苗的人群中仍然具有高度传染性。
+关于接种疫苗后诱发心肌炎的可能，傅云庆参考以色列的相关数据，表示接种BNT引起心肌炎的风险高了3.24倍，发生率为10万分之1～5。(以色列接种疫苗后发生心肌炎的比例相当高)
 
-该研究的共同主要作者阿妮卡·辛格纳亚甘（ Anika Singanayagam） 博士[在一份声明中说](https://www.imperial.ac.uk/news/231557/covid-vaccines-effective-household-transmission-delta)：通过对 COVID-19 病例的接触者进行反复和频繁的采样，
+美国CDC发布疫苗不良事件通报数据，2018年至2021年期间，2021年心肌炎通报率激增([67%由BNT引起](https://gnews.org/zh-hant/1620607/))，经分析是因为年初美国开始推行接种mRNA疫苗。且疫苗不良事件采自主通报方式，因此实际的病例数量会高于数据显示的百万分之3发生率。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/截圖-2021-10-30-下午4.14.09.png)
+#### 新冠疫苗致心肌炎，主要发生于“年轻族群”
 
-我们发现，接**种疫苗的人可以在家庭内感染并传播感染，包括接种疫苗的家庭成员**。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/截圖-2021-10-30-下午4.18.25.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/截圖-2021-10-30-下午4.20.35.png)第二剂发生率79%，远高第一剂的29%
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/截圖-2021-10-30-下午4.21.48.png)絕大多数发生在接种后21天内
 
-她补充说，这些发现解释了为什么 Delta 变体“继续导致高 COVID-19 病例数……甚至在疫苗接种率高的国家”，对其原因提供了一些解释。
 
-研究人员称，一项分析发现，**与未接种疫苗的人相比，接种 ****Delta ****变体疫苗的人的病毒载量下降最快。**
+图表显示，美国相关分析数据，新冠疫苗致心肌炎主要发生在10-30岁的年龄层，占通报数的72%。男性发生率高于女性，第二剂发生率远高于第一剂，85%会在接种后一周内发生心肌炎。
 
-但他们发现，导致 COVID-19 的中共病毒在接种疫苗的人群中的峰值水平，与未接种疫苗的人群中的水平相似，并补充说，这可能是尽管接种了疫苗，Delta 变体仍能传播的原因。
+傅云庆分析美国相关统计数据后表示，发生率为“百万分之34”与以色列的“10万分之1～5”经验类似。
 
-**由于****Delta ****变体很容易在接种疫苗的人群中传播**，参与该研究的另一位研究人员阿吉特·拉瓦尼（Ajit Lalvani）博士认为，人们有必要接种疫苗或加强剂以减轻严重的 COVID-19 症状。
+#### 各年龄层发生率
+![](https://assets.gnews.org/wp-content/uploads/2021/10/截圖-2021-10-30-下午4.27.45.png)
+- 65岁以上：约百万分之1.3
+- 12-17岁：男性约百万分之66.7，女性约百万分之9.1
 
-“我们发现在接种第二剂疫苗后的几个月内，感染的易感性已经增加……所以那些提供加强剂的人应该立即接种，”拉瓦尼说。
 
-他们的研究对 621 名参与者进行了调查，发现在 205 名Delta感染者的家庭接触者中，约 38% 未接种疫苗的家庭接触者检测呈阳性，而在接种疫苗的家庭接触者中检测呈阳性的比例为 25%。
+本次新冠疫苗导致心肌炎，好发于30岁以下。在不应该发生的年纪，发生了心肌炎或其他疾病，这是本次疫苗最大、最严重的伤害。且傅云庆表示，各国目前对于新冠疫苗导致心肌炎的致病机转“尚不清楚”，目前已经有研究证实的部分是“部分基因问题或免疫调节失调”，接种新冠疫苗后会造成心肌发炎。
 
-他们的研究还发现，完全接种疫苗的免疫力也在短短三个月内下降。 他们没有说是否应该告知英国的疫苗加强政策。
+#### CDC回答该不该打疫苗
+![](https://assets.gnews.org/wp-content/uploads/2021/10/截圖-2021-10-30-下午4.37.50.png)綠色為新冠病毒致住院治療；紅色為心肌炎致住院治療
+傅雲慶表示，新冠疫苗確實有可能誘發心肌炎，但經利益衡量下，新冠病毒致住院的數量遠高於心肌炎，應該是接種新冠疫苗比較好。
 
-然而，在推动大量人群接种疫苗的过程中，**一些免疫学家和医生认为，自然免疫需要更多研究，并应纳入政策决策**。
+对此，在只有疫苗才能有效解决新冠病毒问题的前提下，是接种疫苗比较好。**但是，世界上许多人选择“不要感染病毒！”**
 
-印第安纳大学医学院的免疫学家史蒂夫邓普顿（Steve Templeton）[写道](https://brownstone.org/articles/the-politicization-of-immunology/) ：“结束大流行的关键一直是**免疫系统**。”
+- 相關：[美國衛生研究院(NIH)批准「伊維菌素」作為新冠治療藥物](https://gnews.org/zh-hant/1570778/)
+- 相關：[新冠病毒預防、治療方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
+- 相關：[印度德里使用伊維菌素，確診病例下降97%](https://gnews.org/zh-hant/1570870/)
+- 相關：[Zev Zelenko 博士](https://www.wnd.com/2020/03/doctor-treated-350-coronavirus-patients-100-success/)在(2020年) 4 月份[告訴 WND](https://www.wnd.com/2020/03/doctor-treated-350-coronavirus-patients-100-success/)，他利用藥物已經治療了 350 名新冠確診者，且成功率達 100%。
+- 相關：[彼得·麥卡洛醫師：新冠疫苗是人類歷史上最致命、最有害的疫苗之一](https://gnews.org/zh-hant/?p=1574417)
+- 相關：[麥卡洛博士呼籲，不要接種新冠疫苗](https://www.wnd.com/2021/05/prominent-physician-dont-get-covid-shot/)（完整採訪）
 
-他在日期为 10 月 22 日的一篇文章中说：**“****如此多的人已经从感染中康复，而且这些人的强大、持久和保护性的自然免疫力，已得到明确证明，这应该被认为是一件好事**，”他补充说，“似乎有成为取消‘自然免疫’一词的动力，假装接种疫苗的人需要害怕未接种疫苗的人，好像不公众不会处理细微信息，他们是不能就自己的健康做出决定的成年人。”
 
-**评论：****我们还是从常识看问题更容易：**
+新冠疫苗不具有预防感染效力，若推广疫苗是为了预防重症，个人应该对自己健康有选择权利。政府机关长期片面的大力推广实验性新冠疫苗，忽略了有效的药物预防、治疗方案，促成了台湾数百例的[針下亡魂](https://gnews.org/zh-hant/1627261/)。
 
-**常识一：****“****由于****Delta ****变体很容易在接种疫苗的人群中传播**，**参与该研究的博士认为，人们有必要接种疫苗或加强剂，以减轻严重的****COVID-9 ****症状。”这个逻辑有问题吗？如果不是“博士”， 人民会以为是无知的孩子才能得出这样的结论。正常逻辑应该是，如果吃了什么东西引起闹肚子，正常逻辑一定是不要吃这种东西，你一定不会继续吃，让自己肚子更难受，对吗？**
-
-**常识二：“假装接种疫苗的人需要害怕未接种疫苗的人，”我们的常识是疫苗因该是防治疫苗针对的疫病，那么打了疫苗应该有了保护， 干嘛还惧怕感染？如果打了疫苗也还被感染，那干嘛打疫苗？**
-
-**违背常识的逻辑在专家结论里比比皆是！为了强推疫苗赚钱，这些个博士砖家也拼了，撒谎，悖论，不再要一个科学家的严谨逻辑，甚至不再要一个人的基本常识。为什么他们这么胆大包天，“好像不公众不会处理细微信息，他们是不能就自己的健康做出决定的成年人”？因为没有人质疑他们，质疑的声音都被主流媒体掩盖打压了！**
-
-**如果我们继续让他们有悖常识的谎言欺骗，那是我们的灾难！**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**新闻来源**：theepochtimes.com [Vaccinated People Easily Transmit COVID-19 Delta Variant in Households: UK Study](https://www.theepochtimes.com/mkt_morningbrief/vaccinated-people-easily-transmit-covid-19-delta-variant-in-households-uk-study_4074277.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-10-29&amp;mktids=441fb8cdbb840e1bf985645dec549317&amp;est=psQ4VDRVHK0PPKvywYixxQy7IlQQmiSvUUkIvqwqnH4fiLVXk87dIWfsFhTuiDa1AZScOA%3D%3D)
-
+截自10/20，台湾FDA公布疫苗不良事件通报分析报告，接种疫苗后死亡数量932例（存在漏报、未报可能），占总通报9.12%。且疫苗致死的数量，远超感染新冠病毒致死的800多例，在可以治疗的前提下，感染病毒的生命、健康风险比较低。更何况存在[有效的药物预防方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Blue-Universal-Space-Channel-Banner-1.jpg)
 * * *
 
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-2.jpeg)
-
+參考來源｜[衛生福利部疾病管制署10月10日影片](https://www.youtube.com/watch?v=jzZTgUenRAI)
+撰文｜zhong
 
  
 

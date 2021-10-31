@@ -2,40 +2,28 @@
 ---
 
 
-## 美国通货膨胀连续四个月创30年新高
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1629555/)
+## 美军激光武器驱逐舰现身东海，或针对中共军用无人机
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1629717/)
 
-作者：美国香草山金融组- 德州瑞秋
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-96.png)[图片来源](https://www.dwnews.com/%E4%B8%AD%E5%9B%BD/60260830/%E7%BE%8E%E5%9B%BD%E6%B5%B7%E5%86%9B%E6%BF%80%E5%85%89%E6%88%98%E8%88%B0%E8%BF%9B%E9%A9%BB%E6%97%A5%E6%9C%AC%E6%80%A7%E8%83%BD%E6%8A%AB%E9%9C%B2%E4%B8%AD%E5%9B%BD%E5%A6%82%E4%BD%95%E5%BA%94%E5%AF%B9%E5%9B%BE)
+美国首艘配备激光武器的驱逐舰近日被曝出现在东海海域，还派出舰员进行了不常见的“视觉信息收集”训练。
 
+美国国防部下属网站Dvidshub于10月26日发布了美国海军“杜威”号驱逐舰的最新消息。Dvidshub网站称，“杜威”号驱逐舰当天正在东海活动，组织舰员进行了视觉信息收集、舰船动力设备维护等项目的训练。根据美国军方公布的照片，在视觉信息收集训练中，多名舰员在舰桥上使用照相机、摄影机等设备对着海面进行拍摄。
 
+值得注意的是，“杜威”号是美国海军最新部署到亚太地区的一艘阿利伯克级驱逐舰，其母港位于日本横须贺。数天前曾有日本网友拍摄到该舰从日本港口出海的画面。与其他阿利伯克级驱逐舰不同的是，“杜威”号驱逐舰配备有被称为ODIN“奥丁”的激光武器，也是美国海军首艘配备激光武器的驱逐舰。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+这种武器的全称是“海军光学炫目拦截系统”，这是一种主要用于干扰、拦截无人机的光学传感器，安装在“杜威”号驱逐舰前方甲板的近防武器炮位上。这是美国海军第一次将具有炫目功能的独立激光武器系统进行作战部署，但美军没有透露这种武器的具体性能，只是用“低功率”的说法来含糊表述。
 
+郭文贵先生之前爆料，中共攻击台湾时，将使用无人机、激光精确制导弹药等武器进行第一波饱和式打击。基于对美军舰载高功率激光武器战技性能和技术特点的分析，再结合中共的军事动向，美军的作战目标已经毋庸多言。
 
+信息来源：
 
-根据美联储首选的通胀指标核心个人消费支出指数，目前美国的年通胀率为 3.6%。该指数已连续四个月保持在 30 年高位。一般来说，美联储在制定经济政策时通常以 2% 的通胀为目标。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture00000.jpg)
-10 月 5 日，财政部长珍妮特·耶伦 (Janet Yellen) 对 CNBC 表示： “供应链的瓶颈发展导致了通胀。我相信它们是暂时的，但这并不意味着它们在接下来的几个月里就会消失。”
+[警惕！美军首艘配备激光武器驱逐舰被曝现身东海](https://news.sina.com.cn/c/2021-10-28/doc-iktzqtyu4041553.shtml)
 
-10月29日，耶伦试图解决通胀问题，建议指出如果国会通过拜登总统提出的 1.75 万亿美元支出计划，将会降低通货膨胀。耶伦表示 “拜登总统提出的1.75万亿美元支出计划会起到降低一些最重要的成本的作用，比如他们为医疗保健和儿童保育支付费用。” 耶伦在周五的另一次采访中告诉 CNBC。 “这是抗通胀的做法。” 但并不是每个人都认为政府参与这些领域会降低成本。曾担任特朗普经济顾问的 FreedomWorks 高级研究员斯蒂芬摩尔认为 “政府补贴总是导致价格上涨，” 他指出， “飙升的大学学费和医疗保健费用就是证据。
-
-参考来源：[https://www.foxbusiness.com/economy/treasury-secretary-janet-yellen-inflation-u-turn](https://www.foxbusiness.com/economy/treasury-secretary-janet-yellen-inflation-u-turn)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
-
-
+*校对：东京樱花团/上善若水
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

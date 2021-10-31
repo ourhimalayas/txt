@@ -2,8 +2,8 @@
 ---
 
 
-## 视频| 你的财富你做主
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1629996/)
+## 视频| 一个黄金的机会
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1630043/)
 
 制作：香草山视频部
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/31/2021 8:54 AM (UTC)`
+
+<br/>喜马拉雅币上市时间：<br/>格林威治时间：<br/>2021年11月1日 11:11 AM<br/>美国东部时间：<br/>2021年11月1日 07:11 AM<br/>北京时间：<br/>2021年11月1日 07:11 PM<br/><br/>直播平台：<br/>GTV：<br/>郭文贵MILES<br/>GETTR ：<br/>MILES GUO<br/><br/><br/>直播时间：<br/>格林威治时间：<br/>09:37 AM<br/>美国东部时间：    <br/>05:37 AM<br/>北京时间：<br/>05:37 PM
+![img](https://media.gettr.com/group7/origin/2021/10/31/08/7d220c73-c9bb-425d-6b57-6a5ab924873c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 10/31/2021 2:03 AM (UTC)`
 
 尽管美国食品和药物管理局（FDA）知道因中共病毒致死的5-11岁儿童人数很少，他们仍然计划要给孩子们接种疫苗<br/><br/>FDA plans to roll out Covid vaccination for children aged 5-11 despite knowing the low death tolls in this age group associated with CCP Virus 
@@ -298,13 +305,6 @@ F the FDA.  Do the opposite of what they recommend. <br/><br/>DON’T VACCINATE 
 
 10/27/2021 Miles Guo: The CCP, which is represented by Bruno Wu, is manipulating the sharp rise and fall of DWAC’s stock price, and only President Trump’s supporters are suffering losses<br/><br/>10/27/2021 文贵直播：DWAC股票大涨大跌的背后操纵者就是吴征代表的共产党，蒙受损失的都是川普总统的支持者<br/>
 ![img](https://media.gettr.com/group5/getter/2021/10/28/00/22/2f289700-f02e-d8c4-b58a-24d9476b8333/out.jpg)
-
----
-
-`@miles 10/28/2021 12:05 AM (UTC)`
-
-10/27/2021 Miles Guo: Eight to nine out of the eleven funds investing in DWAC did so because of PAG, and this essentially means that PAG, Bruno Wu, and Richard Frankel, the former FBI top official, are in cahoots. So, they have conflict of interest, which will help me win my lawsuit with PAG <br/><br/>10/27/2021 文贵直播：投资DWAC的11家基金中有8到9家是因太平联盟而进行的投资，其本质是太平联盟、吴征和前FBI高官Richard Frankel的互相勾连，因此，他们之间存在着利益冲突，这将有利于文贵打赢与太平联盟的官司
-![img](https://media.gettr.com/group30/getter/2021/10/28/00/05/21c4b91a-d0c0-7cc2-109e-089f8b386108/out.jpg)
 
 ---
 
