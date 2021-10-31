@@ -2,47 +2,36 @@
 ---
 
 
-## 未来人类的电力不会再靠石油，黄金会不会回归？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1629937/)
+## 视频| 新世界，新货币
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1630029/)
 
-**字幕/剪辑：**尕鱼儿 
-**编辑/发布：**Candy
+制作：香草山视频部
 
-郭先生在2021年10月29日大直播中，主要谈及以下内容：
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-```
-接下来我们要看一下世界，一会儿要谈黄金、石油、粮食、物价、人工。
 
-这几天我跟这些世界大佬们（沼泽地）谈。
-我说：在未来，人类的电力绝对不会靠石油了，绝对不可能的。
-世界上一定会想：黄金到底是什么东西，黄金会不会回归？
-世界上最重要的就是粮食。人吃的粮食你到底从哪来？
-中国人每年6亿吨的粮食，你到底够不够?
-这些东西都不行的时候，都变的时候，如人工、劳动力，（该怎么办？）
 
-昨天我给他们讲：我今天说话你就当我放屁，你们说的话更是放屁，咱到明年五月份见。我就这么自信！
 
-所有今天的直播和以前直播，你们走着看。
-到明年五月份，你看一切的眼神都不一样。
 
-我今天再次强调：直播不是媒体，我们是爆料革命，我们是（为了）灭共！
-我们要创造一个完全不一样的人类的群体！
 
-下周一之后，人类将真的出现、我深信不疑地会出现一群完全不同的人类的精英，而且很多人会因为星期一，之后你改变对人生和世界的所有的看法。
-这是绝对的，你们到星期一的时候就明白了。
 
-星期一过后，你还会看到：我们创造了一批真正的有世界观、有全球观，
-像Elon Musk一样能看到火星、能看到人类太阳系、要冲出太阳系（的精英）！
 
-更多资讯，请关注：
-澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
-澳大利亚墨尔本雅典娜农场Gettr：himalayaathena
-澳大利亚墨尔本雅典娜农场YouTube
-澳大利亚墨尔本雅典娜农场Discord
-澳大利亚墨尔本雅典娜农场GTV直播1台
-```
+*发稿：雪梨*
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

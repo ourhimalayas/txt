@@ -2,83 +2,27 @@
 ---
 
 
-## 纽约的急救人员和其他市政工作人员抗议强制接种疫苗的规定
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1629696/)
+## 有声|福奇勾结中共制造基因改造病毒，构成叛国罪
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1629821/)
 
-[https://gtv.org/video/id=617be821adfd99590c30e639](https://gtv.org/video/id=617be821adfd99590c30e639)
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+援引郭文贵先生10月29日盖特，皮特·纳瓦罗在接受War Room采访时表示，福奇最大的谎言是，他从2020年1月28日就确切地知道，致命的中共基因工程病毒来自他资助的武汉生物武器实验室。福奇从Scripps研究所收到一份邮件，称中共病毒经过基因改造。但他没有告诉川普总统，并费尽心机、极力掩盖致命病毒。
 
-Today, We stand united on one cause
-今天，我们为同一个原因而团结
+娜塔莉·温特斯说，武汉病毒研究所由共产党全权操纵，进行着有预谋的邪恶活动，并得到了弗朗西斯·柯林斯和安东尼·福奇等人的完全批准、支持以及实际资助。福奇和中共勾结，协助制造基因改造病毒，杀死全世界数以百万人口，这是叛国罪。
 
-firefighters, Fire Officers, EMS, fire dispatchers,
-消防员、消防官员、紧急医疗服务、消防调度员、
+文字版原文：[福奇勾结中共制造基因改造病毒，构成叛国罪](https://gnews.org/zh-hans/1627612/)
 
-others affinity groups of the FDNY, sanitations, DSNY,
-纽约市消防局、环卫、纽约市环卫局的其他亲密团体
-
-NYPD, my brothers and sisters,
-纽约警察局，我的兄弟姐妹们
-
-we, what common cause to stand for freedom to choose
-我们，支持选择自由是我们的共同事业
-
-the ability to choose, give me a second I’ll be done
-选择的能力, 给我一点时间，我很快就结束
-
-in the the ability to choose is our God given rights.
-在有选择的能力上是上帝赋予我们的权利
-
-Our free will
-我们的自由意志
-
-The right to choose for ourselves, our families, our loved ones.
-选择我们自己的、我们的家人的、我们所爱的人的权利
-
-This is our bodies, not yours.
-这是我们的身体，不是你们的
-
-We went through the this pandemic over a year.
-一年多来，我们经历了这场大流行病
-
-We worked. We worked.
-我们努力工作，我们努力工作
-
-We worked tirelessly, long hours without fear, bully
-我们不知疲倦地工作，长时间无所畏惧
-
-took care of us, the citizens of the city of New York,
-照顾了我们纽约市的市民
-
-we answered Atlas countless calls, countless EMS emergencies
-我们接听了无数的电话，响应了无数医疗服务的紧急情况
-
-and other emergencies to keep the city safe.
-以及其他紧急情况，以确保城市的安全
-
-We are citizens of the United States of America, New Yorkers
-我们是美利坚合众国的公民，纽约人
-
-———————————————————
-
-**原视频链接:**[https://twitter.com/tpostmillennial/status/1453768714579582979?s=24](https://twitter.com/tpostmillennial/status/1453768714579582979?s=24)
-
-Date:10/28/2021
-原视频标题: New York First responders and other municipal workers protest against vaccine mandates.
-原视频日期：2021/10/28
-任务编号：KE343（2706）
-视频时间段 : 0:00-1:23
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

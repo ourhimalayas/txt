@@ -2,8 +2,8 @@
 ---
 
 
-## 比特币没有未来，喜币明天无限美好
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1629431/)
+## 苹果公司已对中共国绝望
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1629434/)
 
 作者：英国喜庄园 – I770775
 
@@ -13,20 +13,16 @@
 
 
 
-郭文贵先生在10月29日的大直播中爆料：刚刚在伦敦举办的数字货币大会上，喜联储主席威廉姆现场演讲惊爆全场。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture11-12.jpg)
-演讲中，有人问威廉姆，他如何看待比特币的未来？威廉姆非常坚定地说，比特币一定不会有未来！一是比特币涉及大量洗黑钱，一旦被美国定性为非法，立刻就结束；二是比特币不具备大量流通的货币属性，只要不流通，任何虚拟币都没有未来；三是比特币没有中心化的责任，也就是出问题了没人负责。
+郭文贵先生在10月29日的大直播中爆料：有几个世界一流大公司告诉郭先生，中共国的监控APP全部都会被下架。苹果公司某高管私下告诉郭先生：由于中共无底线的审查和威胁，苹果公司已对中国市场感到失望甚至绝望。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-13.jpg)
+中共无比邪恶，中共统治下的中国就是一个互毁的社会。世界上很多国家和公司看清了中共的本质，正在觉醒。
 
-同样是虚拟币，即将上市的喜马拉雅数字货币，则完全避免了比特币等虚拟币的弊端，不仅获得世界多国合法的金融牌照，同时也具备货币流通的基本属性，有喜币价值的20%的黄金作为储备以及G系列的加持。这一切为喜币保值增值奠定了基础。
-
-比特币没有未来，但喜币的明天无限美好。
-
-参考链接：[比特币没有未来，喜币明天无限美好](https://gtv.org/video/id=617be96f11d1862968fccc4b)
+参考链接：[苹果公司已对中共国绝望](https://www.voachinese.com/a/us-retailers-pull-out-chinese-surveillance-products-20211026/6286703.html)
 
 ![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-总编：木白
-编辑：木白
+总编：Ivy001
+编辑：Kathy文艺
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
