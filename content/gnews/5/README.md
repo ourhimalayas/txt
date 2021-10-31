@@ -2,25 +2,54 @@
 ---
 
 
-## 加拿大阿省强制接种政策已危及该省大学生
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1631578/)
+## 酩悦香槟 (Moët)，一个普世成功的品牌
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1631633/)
 
-采编：青青   编译撰稿：文明(添草灭共)
+作者** **：纽约香草山** – **Gtv abeilles** **（蜜蜂）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-21.jpg)图片来源：CBC
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-10.jpg)
 
 
-据加拿大媒体【CTV新闻】10月28日报道，皇家山大学当天举行了抗议示威活动，数百名反“新冠病毒疫苗”接种人士集结在该校门前，呼吁当局结束针对阿尔伯塔省大专院校执行的该疫苗强制接种政策。
 
-此前，卫生部门已在该省各大学校内提供了该疫苗接种服务。如今，皇家山大学的学生和员工的接种率分别为82%和93%；而卡尔加里大学的该比率更高，分别达到93%和97%。
 
-另一方面，未接种学生面临着越来越大的压力。据悉，皇家山大学即将对进入校园的未接种学生实施付费病毒测试。目前，已有11名该校学生因不遵守接种规定而被取消了注册资格。
 
-* * *
+自公元496年法兰西人的第一个国王克洛维在香槟地区最中心的兰斯大教堂加冕以来，这里的葡萄酒一直为加冕和洗礼神圣之用。香槟酒的酿制工艺是自古希腊、罗马几千年以来葡萄酒酿制工艺的一次突破。只有香槟地区产的葡萄汽酒才能叫香槟酒。
 
-校对编辑，发稿：硫酸羟氯喹64
+自1743年以来，克劳德·酩悦（Claud Moët）一直在创造着世界上最受赞赏的香槟酒。其1000公顷的葡萄园主要由顶级和特级葡萄园组成，是法国香槟地区最大和最有声望的庄园，其葡萄园的丰富性和多样性表现在Moët葡萄酒的公认质量上。
 
-[原文链接：](https://calgary.ctvnews.ca/covid-19-measures-protested-by-students-anti-vaccine-activists-outside-mount-royal-university-1.5642976)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1321-1.jpg)图源网络
+
+喜马拉雅币是最具突破性、唯一性、承前启后神奇性的代表新时代的币种，并兼具——美元（法币）**、**喜美元（代币）**、**喜币（虚拟币）**、**黄金（货币）——四币联合的属性。
+
+喜币精神像作为特殊葡萄酒形象的香槟酒一样闪闪发光。而作为香槟酒之最的酩悦香槟 (Moët)更能见证稀有喜币上市的这一难忘历史时刻！2021年11月1日11点11分！HCOIN TO THE MOON !
+
+**参考****阅读****：**
+
+[https://www.lvmh.fr/search/](https://www.lvmh.fr/search/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-8.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-10.jpg)
+
+
+
+
 
  
 

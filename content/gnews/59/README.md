@@ -2,40 +2,24 @@
 ---
 
 
-## 美国通货膨胀连续四个月创30年新高
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1629555/)
+## 美国取代中国成为比特币挖矿中心
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1629863/)
 
-作者：美国香草山金融组- 德州瑞秋
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-151.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fthumbor.ftacademy.cn%2Funsafe%2F900x506%2Fpicture%2F0%2F000127220_piclink.jpg&amp;imgrefurl=http%3A%2F%2Fwww.ftchinese.com%2Fstory%2F001094210%3Ffull%3Dy&amp;tbnid=y2Jzl5fpfZVTiM&amp;vet=12ahUKEwja-93HxPPzAhUMB5QKHSvhDgAQMygEegUIARC_AQ..i&amp;docid=7NEA3uEaQNRMwM&amp;w=900&amp;h=506&amp;q=%E7%BE%8E%E5%9B%BD%E5%8F%96%E4%BB%A3%E4%B8%AD%E5%9B%BD%E6%88%90%E4%B8%BA%E6%AF%94%E7%89%B9%E5%B8%81%E6%8C%96%E7%9F%BF%E4%B8%AD%E5%BF%83&amp;ved=2ahUKEwja-93HxPPzAhUMB5QKHSvhDgAQMygEegUIARC_AQ)
+目前全球超过三分之一的比特币挖矿计算能力来自在美国的机器，而去年春天这一比例还不到五分之一。美国正迅速崛起为新的全球比特币挖矿中心。
 
+中共国政府实行打击行动后，许多挖矿公司正押注于美国的可靠能源供应以及更可预测的监管环境。据剑桥大学(University of Cambridge)的数据，目前全球超过三分之一的比特币挖矿计算能力来自在美国的机器，而去年春天这一比例还不到五分之一。
 
+中共国此前一直是企业放置计算机以解锁新比特币的主要国家。但在今年5月，中共释放出将开始更广泛打击比特币挖矿和交易的信号，此举旨在确保政府对国内经济的控制。比特币挖矿已经成为一项利润丰厚的事业，目前一枚比特币的价格约为6万美元。为了获取新的比特币，功能强大的计算机竞相解决一系列数学难题，希望能解锁新的比特币，其中许多计算机都是一天24小时在线。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+信息来源：
 
+[美国取代中国成为比特币挖矿中心](https://cn.wsj.com/articles/%E7%BE%8E%E5%9B%BD%E5%8F%96%E4%BB%A3%E4%B8%AD%E5%9B%BD%E6%88%90%E4%B8%BA%E6%AF%94%E7%89%B9%E5%B8%81%E6%8C%96%E7%9F%BF%E4%B8%AD%E5%BF%83-11635401113)
 
-
-根据美联储首选的通胀指标核心个人消费支出指数，目前美国的年通胀率为 3.6%。该指数已连续四个月保持在 30 年高位。一般来说，美联储在制定经济政策时通常以 2% 的通胀为目标。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture00000.jpg)
-10 月 5 日，财政部长珍妮特·耶伦 (Janet Yellen) 对 CNBC 表示： “供应链的瓶颈发展导致了通胀。我相信它们是暂时的，但这并不意味着它们在接下来的几个月里就会消失。”
-
-10月29日，耶伦试图解决通胀问题，建议指出如果国会通过拜登总统提出的 1.75 万亿美元支出计划，将会降低通货膨胀。耶伦表示 “拜登总统提出的1.75万亿美元支出计划会起到降低一些最重要的成本的作用，比如他们为医疗保健和儿童保育支付费用。” 耶伦在周五的另一次采访中告诉 CNBC。 “这是抗通胀的做法。” 但并不是每个人都认为政府参与这些领域会降低成本。曾担任特朗普经济顾问的 FreedomWorks 高级研究员斯蒂芬摩尔认为 “政府补贴总是导致价格上涨，” 他指出， “飙升的大学学费和医疗保健费用就是证据。
-
-参考来源：[https://www.foxbusiness.com/economy/treasury-secretary-janet-yellen-inflation-u-turn](https://www.foxbusiness.com/economy/treasury-secretary-janet-yellen-inflation-u-turn)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

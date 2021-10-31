@@ -2,30 +2,23 @@
 ---
 
 
-## GClubs开通喜美元支付功能
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631210/)
+## 美德要防止俄操纵天然气供应
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1631254/)
 
-作者：美东香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9-7.jpeg)
+俄罗斯莫斯科喀秋莎农场 星河
 
-10月29日，GClubs正式宣布，GClubs平台全面整合喜美元支付功能。喜美元将于11月1日正式发行。会员可选择喜美元支付会员年费、升级会员卡，以及购买新卡。当出现选择喜美元支付的页面后，会员随即获取喜美元支付订单号，以此完成支付。喜美元利用一流科技，确保在世界任何地方进行安全可靠的支付。
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/u-1.jpg)vestnikkavkaza.net
+美东时间10月31日报道，白宫新闻处发表声明，美国总统拜登、德国总理安格拉∙默克尔和德国副总理奥拉夫∙肖尔茨讨论了防止俄罗斯“操纵”天然气供应的联合措施。
 
-参考链接：GClubs邮件
+声明称，“拜登总统强调了继续努力实施美德联合协议的重要性，以支持乌克兰和欧洲的能源安全，让俄罗斯不能为有害的政治目的操纵天然气供应。”
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+他们还讨论了阿富汗的局势，包括继续提供人道主义援助。拜登还感谢德国欢迎3.5万名移居美国的阿富汗人，并祝贺默克尔16年来在美德共同安全和跨大西洋关系上的领导作用。
 
-总编：Ivy001
-编辑：Ivy001
-校正/发稿：谐趣园
+参考链接：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://www.rbc.ru/rbcfreenews/617e0ecc9a79477d47c4f824](https://www.rbc.ru/rbcfreenews/617e0ecc9a79477d47c4f824)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

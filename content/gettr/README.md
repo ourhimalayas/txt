@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@himalayaitaly 10/31/2021 8:05 PM (UTC)`
+
+意大利，第一家支持喜币支付的饭店诞生。只要你有喜币可以在店内消费享受所有美食。
+![img](https://media.gettr.com/group49/origin/2021/10/31/20/a9e07058-b619-052b-0cc6-57cbcbda8a19/34a541a9cbf04cb98cdbdd1a00093dc3.jpeg)
+
+---
+
 `@miles 10/31/2021 9:22 PM (UTC)`
 
 10月31日：任何不干净的钱和来路不明的钱．和所谓的快钱都可能给你带来杀身之祸，任何人懂得这个道理之后，都会明白如何的尊重和善待财富，才能让自己享受财富带来的一切．看看照片中，这两个人以及他们的家人．现在是何等的痛苦和悲哀，希望我们所有的的战友们。都能善待，我们的财富，不要成为财富的奴隶……<br/><br/>【海航董事长陈峰家族4.98%股权的全数归零，陈峰名下的香港豪宅也被接管人以7折卖出，连陈峰姪子陈超投资的香港豪宅，近日遭债权人接管，2栋豪宅总价值超过30亿元，陈峰家族一毛钱也没拿回。】
@@ -296,14 +305,6 @@ CNN：蔡英文首次公开承认美国军队正在台湾训练台湾部队<br/>
 
 10/27/2021 Miles Guo: Two years ago, Bruno Wu was criminally investigated, however, the merger deal between DWAC and Trump's media platform failed to disclose that, so Bruno Wu will go to jail, and the merger deal will surely be subject to a criminal investigation<br/><br/>10/27/2021 文贵直播：吴征在两年前被刑事调查，但DWAC和川普媒体平台的并购交易却并未披露相关信息，吴征将因此而进监狱，且该并购交易也必将被刑事调查<br/>
 ![img](https://media.gettr.com/group4/getter/2021/10/28/05/19/59b5a8d1-60cf-0b90-e05a-244227103d35/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@drzevzelenko 10/22/2021 3:02 PM (UTC)`
-
-F the FDA.  Do the opposite of what they recommend. <br/><br/>DON’T VACCINATE AND KILL KIDS<br/><br/>Vladimir Zev Zelenko MD
 
 ---
 

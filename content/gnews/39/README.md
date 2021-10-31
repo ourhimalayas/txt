@@ -2,8 +2,8 @@
 ---
 
 
-## 中共百富环球在美遭FBI突击搜查
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631150/)
+## 华为被爆向民主党说客支付了100万美元
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631198/)
 
 作者：纽约香草山农场 – 飞虹
 
@@ -13,14 +13,16 @@
 
 
 
-10月29日，总部设在深圳的中共国百富环球科技有限公司发布声明，证实本周美国联邦调查人员突击搜查了该公司位于美国佛罗里达的办公室，一些物品被没收。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-179.jpg)
-据一位独立安全记者的信息，这次调查起因是，美国一家主要支付处理商对百富环球支付终端的异常网络数据包产生了疑问。数据包大小与他们应该发送的支付数据不匹配。有专家认为中共政府可能利用该公司的支付终端盗窃信息。
+10月28日，美国一美新闻网报道，美国民主党说客托尼·波德斯塔与中国电信巨头华为关系密切。华为可能在6月和9月分两期向波德斯塔支付了100万美元，用于托尼向拜登政府推销他们的产品。
 
-百富环球科技有限公司是中共国一家电子支付销售点终端供应商，产品供给全球数百万企业和零售商使用，在全球120 个国家和地区拥有数千万台销售终端。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-11.jpg)
+在华为向美国说客支付这些款项的同时，拜登政府建议将华为列入贸易黑名单。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2-11.jpg)
+一位白宫官员表示：“拜登总统和本届政府认为，华为等不可信供应商生产的数字基础设施设备对美国、我们的盟友和合作伙伴的安全构成威胁。（上届政府）针对华为的出口管制仍然有效。”
+
+另据报道，仅今年一年，华为就在内部和外部游说上花费了约340万美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1-18.jpg)
 参考链接：
-[疑涉网络攻击 中国百富环球在美遭FBI突击搜查](https://www.voachinese.com/a/pax-technology-fbi-20211029/6291462.html)
+[Huawei Reportedly Paid Democrat Lobbyist $1M](https://www.oann.com/huawei-reportedly-paid-democrat-lobbyist-1m/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
