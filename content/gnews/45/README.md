@@ -2,8 +2,8 @@
 ---
 
 
-## 马克·莫比乌斯谈通货膨胀：价格将“大幅”上涨
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1629554/)
+## 美国通货膨胀连续四个月创30年新高
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1629555/)
 
 作者：美国香草山金融组- 德州瑞秋
 
@@ -13,19 +13,13 @@
 
 
 
-10月29日，Mobius Capital Partners 创始人马克·莫比乌斯 （Mark Mobius）周五做客 “Mornings with Maria” 节目 ，并提供了对通货膨胀和供应链危机的看法，认为价格将 “急剧上涨” 。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture99999.jpg)
-马克·莫比乌斯 （Mark Mobius）是新兴市场基金经理和 Mobius Capital Partners LLP 创始人，自1987年投资新兴和前沿市场。
+根据美联储首选的通胀指标核心个人消费支出指数，目前美国的年通胀率为 3.6%。该指数已连续四个月保持在 30 年高位。一般来说，美联储在制定经济政策时通常以 2% 的通胀为目标。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture00000.jpg)
+10 月 5 日，财政部长珍妮特·耶伦 (Janet Yellen) 对 CNBC 表示： “供应链的瓶颈发展导致了通胀。我相信它们是暂时的，但这并不意味着它们在接下来的几个月里就会消失。”
 
-在“Mornings with Maria” 节目中，莫比乌斯指出：“通货膨胀不仅仅是供应链问题，这些问题非常非常大。现在是人员成本的问题。劳动力成本不仅在美国上升，而且在全球范围内都在上升，我认为这将是一个巨大的挑战，因为越来越多的这些公司需要人来管理公司并实际完成工作，这会使成本越来越高。所以你会看到利润率受到打击。同时，随着这些公司离开中国，他们也会在世界其他地方面临着更高的成本。”
+10月29日，耶伦试图解决通胀问题，建议指出如果国会通过拜登总统提出的 1.75 万亿美元支出计划，将会降低通货膨胀。耶伦表示 “拜登总统提出的1.75万亿美元支出计划会起到降低一些最重要的成本的作用，比如他们为医疗保健和儿童保育支付费用。” 耶伦在周五的另一次采访中告诉 CNBC。 “这是抗通胀的做法。” 但并不是每个人都认为政府参与这些领域会降低成本。曾担任特朗普经济顾问的 FreedomWorks 高级研究员斯蒂芬摩尔认为 “政府补贴总是导致价格上涨，” 他指出， “飙升的大学学费和医疗保健费用就是证据。
 
-莫比乌斯强调，现在的通货膨胀不是暂时的。“如果您看到货币供应量增加了 30% 或更多，这不是暂时的。尽管科技可以降低某些领域的成本，但现实是随着时间的发展，价格仍将急剧上涨。在我看来，这毫无疑问。 “
-
-莫比乌斯对通胀的看法与郭文贵先生不谋而合。郭先生在近期的大直播中多次提及世界性的金融危机将要来临，加上中共病毒肆虐，人工成本会越来越高。
-
-参考来源：
-1. [https://www.foxbusiness.com/economy/labor-price-inflation-supply-chainmark-mobius](https://www.foxbusiness.com/economy/labor-price-inflation-supply-chainmark-mobius)
-2. [https://en.wikipedia.org/wiki/Mark\_Mobius#cite\_note-cnbc.com-3](https://en.wikipedia.org/wiki/Mark_Mobius#cite_note-cnbc.com-3)
+参考来源：[https://www.foxbusiness.com/economy/treasury-secretary-janet-yellen-inflation-u-turn](https://www.foxbusiness.com/economy/treasury-secretary-janet-yellen-inflation-u-turn)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
 

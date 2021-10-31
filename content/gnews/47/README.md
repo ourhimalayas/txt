@@ -2,20 +2,47 @@
 ---
 
 
-## 秘翻在线: 中共国工程院院士兼国企高官落马
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1629435/)
+## 中共控制的房地产公司无还款意愿将导致金融灾难
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1629531/)
 
-撰稿：西枫westca
+作者：香草山农场 – 飞虹
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unnamed-2.png)图片来源：网络截屏
-据中共纪委国家监委网站10月29日发布消息，中国国际工程咨询有限公司原党委书记、董事长王安涉嫌严重违纪违法，目前正在接受纪律审查和监察调查。
 
-王安自2008至2015年起担任中国中煤能源集团董事、总经理至董事长。自2017年至2021年在中国国际工程咨询有限公司历任党组书记、总经理、董事长。在学界，王安在2009年当选中国工程院院士，被称为现代煤矿采矿工程专家，利用其工程哲学理念，建成世界上第一个“高产、高效、高回收率、安全、环保”的亿吨级现代化矿区。曾多次获得国家级奖项。
 
-在受到双规的同时，其院士称号已被中国科学院撤销。院士本是科技界最高的荣誉称号，理应做出表率。但在中共国国有企业领导也能评为工程院院士，无非是学术界与企业界互相的裙带关系，达到利润的最高化。在目前中共国煤炭紧缺的当口，抓了这么一条煤炭大鱼，会有什么突破呢？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
 
-**新闻来源：**[中国国际工程咨询公司原董事长王安接受审查调查————执纪审查——中央纪委国家监委网站 (ccdi.gov.cn)](https://www.ccdi.gov.cn/scdc/zyyj/zjsc/202110/t20211029_253194.html)
+
+
+在10月29日的大直播中，郭文贵先生再谈中共国的房地产话题。
+
+自恒大9月份传出无力偿还负债以来，花样年、华夏幸福、泰禾集团等大型房地产公司的债务违约等问题陆续引起了外界的关注。各界对中共国房地产业可能发生“暴雷”事件的预期越来越强烈。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-20.jpg)
+郭先生在直播中提到，由于中美财务年度计算时间不同，以及向中共房地产业提供大量资金的国外对冲基金一般都会提供一定的还款宽限期，中共房地产发生融资暴雷的时间将集中在2022年5月到7月。
+
+而最让国际金融界恐惧的，是他们发现中共这些房地产商并无还款意愿。
+
+其结果，一方面，将使国际金融机构陷入灾难；另一方面，将会拖累中共国内的银行，牵连出中共相关高层隐藏的代持者，引发中共国内金融和政治的动荡，甚至导致保险公司不赔付保险，给墙内百姓带来无法想象的灾难。
+
+参考链接：[中共控制的房地产公司无还款意愿将导致金融灾难](https://gettr.com/post/pflgoxbdc2)
+
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：木白
+编辑：木白
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+
+
 
  
 

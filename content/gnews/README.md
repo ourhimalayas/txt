@@ -15,146 +15,146 @@
 
 ---
 
-### [中共大到不能倒了吗？](/content/gnews/1/README.md)
- ` 文名`
-
-### [美国是否现在就投降中共，一了百了？](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共国PMI指数突破零界点仍加速下滑](/content/gnews/3/README.md)
+### [墙内要闻汇编 10月31日](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [吴钊燮访问布鲁塞尔 会晤友台欧洲议员](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [喜币1111111悔死众伪类](/content/gnews/2/README.md)
+ ` 首尔天池农场`
 
-### [【玫瑰看新闻】第191期](/content/gnews/5/README.md)
+### [【玫瑰看新闻】第193期 疫情新闻通报](/content/gnews/3/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共监管层密集开会，应对房企海外债务违约潮！](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [喜币对于保障人类财富安全的意义](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [英媒报道：中共零确诊的政策造成人民损失](/content/gnews/7/README.md)
+### [【玫瑰看新闻】第193期 国际热点新闻](/content/gnews/5/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [银河快讯：日本选举投计票实施在即；日本等盟友担忧美国采取“不先使用核武”政策](/content/gnews/6/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [完全接种疫苗的乔恩·邦·乔维感染中共病毒](/content/gnews/7/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [北京疫情再爆发，中共放毒为推进第三针加强针](/content/gnews/8/README.md)
  ` 澳喜农场`
 
-### [每日快报：英国已接种者的CCP病毒感染率高于未接种者](/content/gnews/8/README.md)
+### [万众瞩目的喜币将给世界带来无限希望](/content/gnews/9/README.md)
+ ` 纽约香草山MOS03`
+
+### [中共大到不能倒了吗？](/content/gnews/10/README.md)
+ ` 文名`
+
+### [美国是否现在就投降中共，一了百了？](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共国PMI指数突破零界点仍加速下滑](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [吴钊燮访问布鲁塞尔 会晤友台欧洲议员](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【玫瑰看新闻】第191期](/content/gnews/14/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [中共监管层密集开会，应对房企海外债务违约潮！](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [英媒报道：中共零确诊的政策造成人民损失](/content/gnews/16/README.md)
+ ` 澳喜农场`
+
+### [每日快报：英国已接种者的CCP病毒感染率高于未接种者](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [币圈新闻动态：HCN不是用来炒的](/content/gnews/9/README.md)
+### [币圈新闻动态：HCN不是用来炒的](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [AUKUS联盟和澳大利亚的核能力](/content/gnews/10/README.md)
+### [AUKUS联盟和澳大利亚的核能力](/content/gnews/19/README.md)
  ` 走进澳洲`
 
-### [病人在医院恳求ICU尝试给他们的家人使用伊维菌素，但是医生不同意](/content/gnews/11/README.md)
+### [病人在医院恳求ICU尝试给他们的家人使用伊维菌素，但是医生不同意](/content/gnews/20/README.md)
  ` 加拿大多伦多枫叶农场视频组`
 
-### [中共国台办官员：统一台湾后财政收入用于改善民生](/content/gnews/12/README.md)
+### [中共国台办官员：统一台湾后财政收入用于改善民生](/content/gnews/21/README.md)
  ` 首尔天池农场`
 
-### [中国江西铅山：一人核酸阳性，全县红绿灯统一变红](/content/gnews/13/README.md)
+### [中国江西铅山：一人核酸阳性，全县红绿灯统一变红](/content/gnews/22/README.md)
  ` 首尔天池农场`
 
-### [亚马逊网络服务拟将加密货币的结算和托管推向云端](/content/gnews/14/README.md)
+### [亚马逊网络服务拟将加密货币的结算和托管推向云端](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [共产党=共烂党](/content/gnews/15/README.md)
+### [共产党=共烂党](/content/gnews/24/README.md)
  ` 银河勇气之星`
 
-### [郭文贵先生：金钱是有主人的](/content/gnews/16/README.md)
+### [郭文贵先生：金钱是有主人的](/content/gnews/25/README.md)
  ` 滴水穿石`
 
-### [串珠427:刘德华勤劳但没境界，老板被中共绑架](/content/gnews/17/README.md)
+### [串珠427:刘德华勤劳但没境界，老板被中共绑架](/content/gnews/26/README.md)
  ` 郭爆料串珠`
 
-### [串珠426:习近平根本不是江志成为首的江派的对手](/content/gnews/18/README.md)
+### [串珠426:习近平根本不是江志成为首的江派的对手](/content/gnews/27/README.md)
  ` 郭爆料串珠`
 
-### [串珠425:习近平毫不怀疑自己是神，能统治世界](/content/gnews/19/README.md)
+### [串珠425:习近平毫不怀疑自己是神，能统治世界](/content/gnews/28/README.md)
  ` 郭爆料串珠`
 
-### [郭文贵先生10月30日再次预警中共攻台危机](/content/gnews/20/README.md)
+### [郭文贵先生10月30日再次预警中共攻台危机](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频| 一个黄金的机会](/content/gnews/21/README.md)
+### [视频| 一个黄金的机会](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [串珠424:习近平从小就想拿回台湾做当代秦始皇](/content/gnews/22/README.md)
+### [串珠424:习近平从小就想拿回台湾做当代秦始皇](/content/gnews/31/README.md)
  ` 郭爆料串珠`
 
-### [视频| 新世界，新货币](/content/gnews/23/README.md)
+### [视频| 新世界，新货币](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [雅典娜时报-第098期](/content/gnews/24/README.md)
+### [雅典娜时报-第098期](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [视频| 喜币，通向未来的数字货币](/content/gnews/25/README.md)
+### [视频| 喜币，通向未来的数字货币](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [视频| 未来已至，你准备好了么？](/content/gnews/26/README.md)
+### [视频| 未来已至，你准备好了么？](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [脱离魔窟——智慧的力量](/content/gnews/27/README.md)
+### [脱离魔窟——智慧的力量](/content/gnews/36/README.md)
  ` 纽约香草山MOS03`
 
-### [视频| 你的财富你做主](/content/gnews/28/README.md)
- ` MOSREC`
-
-### [【温哥华扬帆农场】在路上039——进城篇](/content/gnews/29/README.md)
+### [【温哥华扬帆农场】在路上039——进城篇](/content/gnews/37/README.md)
  ` 温哥华扬帆农场`
 
-### [青蒿素与恶性肿瘤的治疗](/content/gnews/30/README.md)
- ` 纽约香草山MOS03`
-
-### [要求州长安德鲁斯下台，墨尔本中心城区再次爆发示威](/content/gnews/31/README.md)
- ` 走进澳洲`
-
-### [新书《真正的安东尼·福奇》11月9日上市](/content/gnews/32/README.md)
+### [新书《真正的安东尼·福奇》11月9日上市](/content/gnews/38/README.md)
  ` 滴水穿石`
 
-### [未来人类的电力不会再靠石油，黄金会不会回归？](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共继续向世界散布毒疫苗](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [针下亡魂｜美国 56 岁男医生接种疫苗两周后死亡](/content/gnews/35/README.md)
+### [针下亡魂｜美国 56 岁男医生接种疫苗两周后死亡](/content/gnews/39/README.md)
  ` G&#124;News TAIWAN`
 
-### [美国取代中国成为比特币挖矿中心](/content/gnews/36/README.md)
+### [美国取代中国成为比特币挖矿中心](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [爆料革命中的《易经》智慧 系列1](/content/gnews/37/README.md)
- ` 澳喜农场`
-
-### [GTV新闻访谈简报|2021年10月30日晚](/content/gnews/38/README.md)
+### [GTV新闻访谈简报|2021年10月30日晚](/content/gnews/41/README.md)
  ` 纽约香草山MOS01`
 
-### [日本卫生系统遗漏和重复计算感染中共病毒人数](/content/gnews/39/README.md)
+### [美军激光武器驱逐舰现身东海，或针对中共军用无人机](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美军激光武器驱逐舰现身东海，或针对中共军用无人机](/content/gnews/40/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [约12000名美空军人员拒绝接种疫苗](/content/gnews/41/README.md)
+### [约12000名美空军人员拒绝接种疫苗](/content/gnews/43/README.md)
  ` HimalayaRussia`
 
-### [尽管疫苗接种率超过91%，但医院里的新冠患者人数自3月份创新高](/content/gnews/42/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [破解中共国数字丝绸之路，美日澳帕劳联合行动](/content/gnews/43/README.md)
+### [破解中共国数字丝绸之路，美日澳帕劳联合行动](/content/gnews/44/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国通货膨胀连续四个月创30年新高](/content/gnews/44/README.md)
+### [美国通货膨胀连续四个月创30年新高](/content/gnews/45/README.md)
  ` 纽约香草山MOS01`
 
-### [马克·莫比乌斯谈通货膨胀：价格将“大幅”上涨](/content/gnews/45/README.md)
+### [马克·莫比乌斯谈通货膨胀：价格将“大幅”上涨](/content/gnews/46/README.md)
  ` 纽约香草山MOS01`
 
-### [中共控制的房地产公司无还款意愿将导致金融灾难](/content/gnews/46/README.md)
+### [中共控制的房地产公司无还款意愿将导致金融灾难](/content/gnews/47/README.md)
  ` GTV新闻访谈`
-
-### [秘翻在线: 中共国工程院院士兼国企高官落马](/content/gnews/47/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [苹果公司已对中共国绝望](/content/gnews/48/README.md)
  ` GTV新闻访谈`

@@ -2,36 +2,16 @@
 ---
 
 
-## 视频| 一个黄金的机会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1630043/)
+## 中共国台办官员：统一台湾后财政收入用于改善民生
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1630151/)
 
-制作：香草山视频部
+韩国首尔天池农场—虎眼　校对/上传—无明逆流
+![](https://assets.gnews.org/wp-content/uploads/2021/10/07ce8a70-61fe-4e51-b028-8b47abdf8494.jpg)（注：图片来源网络）
+中共国务院台办副主任刘军川在第四届“国家统一与民族复兴”研讨会上对台湾讲话：广大台湾同胞要看清祖国统一、民族复兴既是大义，更具大利。统一后，不仅台湾的和平安宁将充分保障，经济发展也将得到充分增进，民生福祉将充分提升，台湾的财政收入尽可用于改善民生。台湾同胞在国际上腰杆会更硬，共同参与全球治理和人类命运共同体构建。
+刘军川还表示，所有拥护祖国统一、民族复兴的台湾同胞将真正当家作主！不论是不是两岸政客的相互表演，对于熟悉中共的人来说，中共最擅长的就是以骗治国。中国人当初就被承诺当家作主人，可在70年的被统治历史中，中国人一直都是奴隶，连现代意义上的“人”都还没做上，更别说做主人。稍有常识的人都能看出这是中共的谎言和骗局。至于财政收入用于改善民生从中共口中说出，更加可笑。中共的财政花费都是14亿奴隶的上供，作为奴隶主，中共赐予奴隶的部分几乎可以说没有。可能会把台湾的财政收入用到台湾人身上吗？
+中共，从来都是说一套，做一套，嘴上在说，手可能已经伸过去了。台湾人应警惕中共的手伸向台湾政府，监督好台湾政府，台湾人才能在未来充满变数的局势中立于不败之地。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-
-
-
-
-
-
-*发稿：雪梨*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+（本文仅代表作者个人观点）
 
  
 
