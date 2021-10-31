@@ -2,192 +2,50 @@
 ---
 
 
-## 空白支票融资上市是最好的初创公司的融资方法
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1629751/)
+## 郭文贵先生2021年10月30日盖特视频（8分44秒）全文字版
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1629858/)
 
-[https://gtv.org/video/id=617d2801adfd99590c3177f4](https://gtv.org/video/id=617d2801adfd99590c3177f4)
+#### 整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-97.png)
+尊敬的战友们好啊，这个都30号了，哎呀，真快、真快、真快啊。很多战友说七哥没有没发盖特，我真的没时间，抱歉抱歉啊。
 
-**郭文贵**
-**Miles Guo**
+昨天晚上，因为大家我相信你们能感受到对台的问题，台湾的问题是七哥现在最关注的，最最关注的，台湾的事太大了啊，和我们每个人都有着没办法回避的重大的影响。无论对个人安全还是财富，还有各个方面，这是我们新中国联邦第一大事。这是真的是不可思议的啊，不可思议的。哎呀，这个昨天晚上就是跟很多方面开会呀，就是当真的觉得要打台湾的时候，这个人还是真的很难接受的，真的很难接受啊。
 
-空白支票公司这个经济形式
-The economic form of the blank check company
+虽然比如说我们跟这几个基金，我说打台湾怎么影响，哇，好多基金都很兴奋啊，是吧？就像这个。GlobalFoundries是吧，控制AMD，那真的是会赚大钱的。那么还有一些基金，买的很多黄金，也会赚钱。这帮王八蛋就是贪钱，就是贪钱，就想钱。但是七哥却感受的事情，这真的是生灵涂炭，尸横遍野，这共产党是真要打的时候，你真的感觉他很疯狂。但这个世界有多少人相信这种事情会发生？这是大事。
 
-一定会成为世界上
-will certainly become
+另外一个就是咱们喜币，这事太大了，我从昨天到现在，唯一的自己的时间，就刚才看了会儿飞飞，我们三百年的飞飞直播啊，吃播。和我的艾伦兄弟啊和家人，我觉得真的是，你看到，我看直播的时候啊，我给他们发了照片。我说你看我这两个过去两周，我不喝酒。但是在我这块儿喝了很多很多好酒啊，好酒真可以买个房子了都啊，有几瓶真品的酒七哥也不能喝。但是为了都为了灭共，都让人家喝了，是吧？那这就是咱们的选择。
 
-未来金融市场的主要工具
-a main tool of the future financial market in the world
+但是我看到飞飞一家人坐着直播的时候，我最想的最多的并不是吃啥喝啥，一个这么有修养，这么有品味，这么美好的家庭。刚刚染上中共病毒，这真是救过来了。还有一个就这样的家庭待在国内，他不会有这种和谐和幸福。我们新中国联邦人都要像三百年的飞飞的家人那么和谐，那么真实啊。有好朋友像艾伦这种是吧？有同宗同族的文化，有朋友，有亲人，还不互相吹牛，也不是攀比，完全活在一个真实的世界里多好呢。所以说这种感觉就是我们新中国联邦所憧憬的希望了啊，感触很多。
 
-就是给你两年的时间
-Let’s give you two years of time
+那么喜币这个大家都应该感到啊，这个大家都在预测，我可以说没多少人了解真正的喜币。喜币不是让你来炒的，你要想炒喜币的话，那你就赶快退掉。你会很失望的，不要想抄喜币。喜币它是未来最重要的是系统。喜美元刚才飞飞就讲了其中一个重点，讲非常好。就现在在全世界花钱真比挣钱都难。特别是你搞那个什么比特币，你能花吗？你不能花。关键它有安全合法的储蓄和使用自己的财富，而且是全球性的，全人类没有一个这系统。
 
-还有你资金的去向
-and the whereabouts of your funds
+你不懂得用这个喜美元和喜币，你不懂得用这个系统，那你白浪费了，就像昨天大家没注意到，你从喜美元，现在你就可以买Gclub了是吧，直接就付过去了，很简单。
 
-还有你的收购目标
-as well as the purpose of your acquisition
+以后就像现在菲菲吃的那个饭那个餐厅一样，他今天买了中国餐厅，中国餐厅老板如果在喜美元开了个账号，飞飞有自己的有这个喜美元账号，他就通过喜美元，可以给这老板了。在美国拿着上海小笼包，交易是在巴哈马，你这个老板的钱就安安全全的，谁也拿不走，你想换成美元，你就换成美元，你想换成喜币，你就可以买喜币就是了。
 
-就是开出的空白支票的公司，你不能有欺诈
-which is the company that issued a blank check, and you cannot commit fraud
+反过来说在日本，你去红灯区，如果红灯区的老板娘这个夜总会里边，他有喜美元的账号，你给她说，今天我找十个小姐，你给他她多少钱，那个老板娘的钱现在天上飞了，永远在天上飞。你们不知道日本人那个那个那个被盯得有多紧，这帮流氓政府都是这一个德行的。这才重要，这是重点中的重点。
 
-你就是 要不你买到你做到
-That means either you can buy it and finish it
+接下来重点是什么？不仅能买这个，不仅能全球支付安全，更重要的事情，大家知道。
 
-你把钱拿走
-and walk away with the money
+这个支付系统一旦在全球开以后，你省下的钱，你安全下的钱，你得到了投资机会，全球的最好机会上市都要找你，都要找你这些拥有喜美元账号和喜币和Gclub的人，为什么？他知道你都经过KYC？你有一个国际性的投资眼光，他知道你的钱是安全，是干净的。
 
-要不你把钱给拿回来
-or you retreat the money back
+这就像现在这个盖特在社交媒体一样，它最大的价值是什么？它没有任何历史负担，没有任何未来所发生的诉讼，像FACEBOOK也好是吧，推特呀，所有他都会有大量的这种疫苗啊和历史上各种诉讼会毁掉他，他没有，就是咱们是虚拟货币最干净最完整的支付，最有潜力的这个系统。而且他绝对跟这个法币，这个国家是法币，法币就是流氓币，欺骗币。
 
-但是这里边给你的几个规定是很干净的
-But the rules given to you during these processes are very self-explained
+他有一个储备，而且每年随时可以用，那谁有啊？不可能的。而且还我还是那句话，没有人了解真正的喜联储多厉害，咱走着看，走着看。
 
-你回到当时J.P摩根
-back to the moment of JP Morgan
+我说实话真的是，好久没有这种幸福感，完全搂不住，也搂不住，这人啊还是人，就是想想，我也不知道到底星期一能涨多少钱啊。大概一般的黑市啊都是实际的十倍到八倍，现在黑市价格基本还是那个价。你们别想着说涨十倍五十倍，那不可能的那是多大的量。涨十倍，就这今年的币就是十亿美元，涨一百倍，就是一百亿。涨十倍，就是十亿，涨一百倍就是一千亿。你看看这了得了吗？这了不地呀。那今年，那他有他有这个一百年的，他有一千个亿的币，那还不乘以十万亿，一百万亿行了吗？那还了得了，不会的。
 
-还有当时的罗斯柴尔德
-and the moment of Rothschild
+但是呢这就是那天交易量什么事儿都可能发生，大家一定要做好准备，他如果那天很顺利啊，绝对不正常，不顺利才正常。那天什么事都能发生，黑客呀，大量的交易所导致终止啊，共产党的黑呀，采用各种手段都可能的。我觉得最重要的事情，只要你开了，发生任何事情都能成为你的价值，让全世界知道为什么这个币发生这个事了？因为共产党黑，共产党为啥黑呢？因为他是共产党的威胁，他是最有价值。如果那天很顺利，绝对不正常啊，那就太不正常。为啥共产党不黑你啊，你灭共，共产党不黑你，你那么有价值，共产党黑你？不正常，才叫正常。
 
-就是当时运作伦敦和美国市场的时候
-It was when he was operating the London and U.S. markets
+行了，我啥都不说了，兄弟姐妹们，还是那句话，星期一见吧。
 
-实际上,当时他达成的协议
-In fact, It was the agreement he reached
+稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
 
-这叫什么，叫世界全球金融市场的基础协议
-It was call the foundation agreement of the world global financial market
+[郭文贵先生10月30日盖特](https://gettr.com/post/pfoegla019)
 
-实际上就是几条
-Actually, it was just a few (protocol)
-
-后来是各国根据自己的政府的要求呢
-Afterward, it was all countries in accordance with the requirements of their own governments
-
-他把它全给弄复杂化了
-He made it all complicated
-
-也就是政府垄断
-which was called government monopoly
-
-那么这又回到了最初的金融基础协议
-So let’s route back to the original financial foundation agreement
-
-实际上大家知道你是诚实的
-In fact everyone knows that you are honest
-
-这个方式是对的，是非常好的
-This method is correct and very effective
-
-就这个问题我参加过多少次世界级的讨论
-I have participated so many world-class discussions on this subject
-
-就在2014年以前
-Prior to 2014
-
-为什么我跟所有人说的不一样？
-why what I said were different from everyone?
-
-我说SPAC未来将是一个世界的金融走向、股市的走向
-I said that the future of SPAC would be the direction of the world’s financial and stock markets
-
-我从来不操作任何上市公司的
-I have never manipulated any listed company
-
-我从来不参与这种事情
-I have never participated this kind of behaviors
-
-我说所有今天全球的上市的规则，全是政府腐败
-I said that all the global listing rules today are government corruption
-
-收租、当中介人
-collecting rents, being an intermediary agent
-
-这是一些做Agent的一些手段
-all these were some means of being agent
-
-我说就应该回到SPAC这种模式
-I said that we should go back to the SPAC model
-
-当时（很多人）觉得我神经病
-(Many people) thought I was crazy at that moment
-
-现在你可以发现，从去年美国已经突涨了多少倍
-But now you have noticed that how many times the U.S. market has risen sharply since last year
-
-这是给真正的初创者(的机会)，实际上是很重要
-This is the (opportunity) offering to a real start-ups, in fact, it’s very important
-
-你担你的风险
-You take your own risk
-
-但你必须要诚实
-but you must be honest
-
-它是在诚实基础上
-It’s based on the honesty
-
-那今天我们看到了SPAC公司里边
-So, today we have witnessed the inside of SPAC company
-
-出现最多的就是不诚实，就是夸张
-showing the most are the deception and exaggeration
-
-它就是想骗钱
-That’s scam
-
-这是完全两个概念
-These are two totally concepts
-
-你来是犯罪目的来的和你到融资来的
-either you come for a criminal purpose or you come for financing
-
-这是两个完全不同的概念
-These are two totally different concepts
-
-这是当年我的发言
-These is what I said back then
-
-善意的融资者，会在这里得到天堂般的待遇
-Well-meaning financiers will be treated like in heaven here
-
-具有犯罪动机的
-Those who have criminal motives
-
-到这里来骗钱
-come here to swindle money
-
-你会感觉到，到这里就是人多钱傻
-You will feel that there are too many people, the money is stupid
-
-不骗白不骗
-and it’s your lose if you don’t scam
-
-但最后你毕竟死在这
-But in the end you will die here after all
-
-———————————————————
-
-**原视频链接:**[** **https://twitter.com/se1y7cblljselva/status/1453643437647953928?s=24](https://twitter.com/se1y7cblljselva/status/1453643437647953928?s=24)
-
-Date: 10/26/2021
-原视频标题:
-Blank check financing is the best way to raise capital for start-ups
-原视频日期：2021/10/24
-任务编号：KC212（2702）
-视频时间段 : 0:00-2:20
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
