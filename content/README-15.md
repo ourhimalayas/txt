@@ -14,7 +14,11 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 15/36 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [36](/content/README-36.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
+## 頁面 15/37 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [37](/content/README-37.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
+
+[文字版：2020年1月4日文贵报平安直播-共产党不管你咋折腾，你完蛋了！](/content/2020/01/20200106-5803835959397002894.md)
+
+[文字版：2020年1月3日文贵报平安-中俄伊军演和苏曼尼的被炸死是我们爆料革命展示实力走向另外一个胜利的新开始](/content/2020/01/20200105-5702641725419467150.md)
 
 [文字版：2020年1月2日文贵报平安直播-聊自己的人生和武汉的非典以及文贵为战友终生戒吃牛肉！](/content/2020/01/20200104-2138537406331428619.md)
 
@@ -62,9 +66,5 @@
 
 [文字版：2019年12月8日文贵报平安](/content/2019/12/20191210-8975996201411180459.md)
 
-[文字版：2019年12月7日郭先生对话钢铁侠](/content/2019/12/20191209-6749356903573144336.md)
 
-[文字版: 2019年12月4日郭文贵先生谈郑若骅被绑架回京的经过以及给盘古、政泉和裕达同事们发出的安全保护办法](/content/2019/12/20191205-3740864739432231815.md)
-
-
-## 頁面 15/36 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [36](/content/README-36.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
+## 頁面 15/37 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [37](/content/README-37.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)

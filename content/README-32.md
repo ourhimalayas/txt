@@ -14,7 +14,11 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 32/36 [**<**](/content/README-31.md) [1](/content/README.md) ... [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) **32** [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [**>**](/content/README-33.md) [查看全部](/content/README-all.md)
+## 頁面 32/37 [**<**](/content/README-31.md) [1](/content/README.md) ... [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) **32** [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [**>**](/content/README-33.md) [查看全部](/content/README-all.md)
+
+[文字版：2018年2月7日郭先生郭媒体2个视频演讲](/content/2018/04/20180418-2002995963017552937.md)
+
+[文字版：2018年2月6日郭先生郭媒体3个视频演讲](/content/2018/04/20180418-8441280757870399817.md)
 
 [文字版：2018年2月5日郭先生郭媒体3段直播](/content/2018/04/20180418-5529007716852834761.md)
 
@@ -62,9 +66,5 @@
 
 [曹长青：谁在制造“民运”乱象？郭文贵错在哪里？（视频文字稿）](/content/2018/04/20180418-6784868507419879908.md)
 
-[自由灯塔报导：美国起诉三位与证券公司相关的中国黑客（美国开始觉醒了）](/content/2018/04/20180418-3363832914523693020.md)
 
-[2017年11月27日文贵Livestream 直播谈谈纽约房子价格](/content/2018/04/20180418-8750105287106833411.md)
-
-
-## 頁面 32/36 [**<**](/content/README-31.md) [1](/content/README.md) ... [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) **32** [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [**>**](/content/README-33.md) [查看全部](/content/README-all.md)
+## 頁面 32/37 [**<**](/content/README-31.md) [1](/content/README.md) ... [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) **32** [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [**>**](/content/README-33.md) [查看全部](/content/README-all.md)

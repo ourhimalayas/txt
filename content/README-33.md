@@ -14,7 +14,11 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 33/36 [**<**](/content/README-32.md) [1](/content/README.md) ... [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) **33** [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [**>**](/content/README-34.md) [查看全部](/content/README-all.md)
+## 頁面 33/37 [**<**](/content/README-32.md) [1](/content/README.md) ... [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) **33** [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [**>**](/content/README-34.md) [查看全部](/content/README-all.md)
+
+[自由灯塔报导：美国起诉三位与证券公司相关的中国黑客（美国开始觉醒了）](/content/2018/04/20180418-3363832914523693020.md)
+
+[2017年11月27日文贵Livestream 直播谈谈纽约房子价格](/content/2018/04/20180418-8750105287106833411.md)
 
 [2017年11月26日文贵健身报平安和Livestream 试播](/content/2018/04/20180418-3536740810604337739.md)
 
@@ -62,9 +66,5 @@
 
 [文字版：卢比奥质问郭文贵FB账户被关是否由于受中国政府压力](/content/2018/04/20180418-5547948456904349057.md)
 
-[文字版：2017年11月2日曹长青：怎么看郭文贵的“不反习”和“保命保财报仇”？](/content/2018/04/20180418-343207939646177641.md)
 
-[翻译：佛罗里达州参议员马可·卢比奥(Marco Rubio)关注郭文贵先生](/content/2018/04/20180418-7772488713239018228.md)
-
-
-## 頁面 33/36 [**<**](/content/README-32.md) [1](/content/README.md) ... [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) **33** [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [**>**](/content/README-34.md) [查看全部](/content/README-all.md)
+## 頁面 33/37 [**<**](/content/README-32.md) [1](/content/README.md) ... [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) **33** [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [**>**](/content/README-34.md) [查看全部](/content/README-all.md)

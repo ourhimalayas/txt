@@ -14,7 +14,11 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 11/36 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [36](/content/README-36.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
+## 頁面 11/37 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [37](/content/README-37.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
+
+[文字版：郭先生5月16日GTV直播](/content/2020/05/20200519-6331288695899345209.md)
+
+[文字版:5月15日郭先生GTV直播](/content/2020/05/20200519-1610344704805853359.md)
 
 [文字版:郭先生5月14日GTV直播](/content/2020/05/20200518-4909626383559328893.md)
 
@@ -62,9 +66,5 @@
 
 [文字版:2020年4月11日郭先生GTV直播](/content/2020/04/20200415-8766682257981187519.md)
 
-[文字版:2020年4月10日郭先生直播](/content/2020/04/20200415-6756741546928314849.md)
 
-[文字版：2020年4月9日上海首长驻地已经升级为生化战争的警卫模式 ](/content/2020/04/20200413-4060291104151405554.md)
-
-
-## 頁面 11/36 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [36](/content/README-36.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
+## 頁面 11/37 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [37](/content/README-37.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)

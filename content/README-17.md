@@ -14,7 +14,11 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 17/36 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [36](/content/README-36.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
+## 頁面 17/37 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [37](/content/README-37.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年11月7日文贵直播，投资郭媒体的基金相信共党必灭，苏世民等人要挑战班农](/content/2019/11/20191111-8774490754599223874.md)
+
+[文字版：2019年11月9日文贵报平安谈尹队长上路德节目打响以共灭共第一枪](/content/2019/11/20191110-4503525737047042543.md)
 
 [文字版：2019年11月6日文贵与路德直播 ](/content/2019/11/20191108-3252264516615100238.md)
 
@@ -62,9 +66,5 @@
 
 [文字版：2019年10月14日游艇机舱报平安直播](/content/2019/10/20191015-2796579194021955341.md)
 
-[文字版：2019年10月13日郭文贵先生报平安直播：传播香港真相，反对暴力，中共启动大量沉默力量挑拨离间战友, 美国将严加製裁， 只有灭掉共产党人类才有未来 ](/content/2019/10/20191014-1580303253011226173.md)
 
-[文字版：2019年10月12日直播，中美达成的初步协议对爆料革命无影响，香港同胞最受影响，灭共要靠我们自己！](/content/2019/10/20191014-3517209154004585431.md)
-
-
-## 頁面 17/36 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [36](/content/README-36.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
+## 頁面 17/37 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [37](/content/README-37.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
