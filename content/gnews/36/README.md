@@ -2,10 +2,10 @@
 ---
 
 
-## 如中共攻打台湾 格芯将迎来历史性发展机遇
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1629324/)
+## 喜币上市实现新中国联邦人同资产、同富裕、同利益的命运共同体
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1629432/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：香草山农场 – 恩永存
 
 
 
@@ -13,18 +13,18 @@
 
 
 
-在10月29日的大直播中，郭先生透露，如果习近平对台湾发动武装袭击，台积电作为重要目标之一，将会遭受重创，但这有助于格芯，使其迎来历史性发展机遇。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture22222.jpg)
-格芯是全球排名第三的半导体和微芯片代工厂，位列台积电和三星之后。主要加工支持5G射频微芯片，这种芯片广泛应用于汽车工业。但目前，全球半导体和微芯片极其短缺。
+郭文贵先生在10月29日大直播中告诉新中国联邦人：11月1日我们将有新的关系。共同的资产，共同的富裕，共同的利益——我们成了真正的命运共同体。我们是战友，是兄弟姐妹，如亲人。我们为了实现自由，民主，法制，以及充满大爱的国度而共同努力，喜迎新时代！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture6-6.jpg)
+喜币一直让CCP恐惧，因此他们使出各种邪恶手段禁止中国人拥有；喜币使伪类嫉妒，因此他们在网络上恶言攻击；喜币让爆料革命里的叛徒后悔，因此他们颠倒是非的背后是“哭晕在厕所”。
 
-2020年，格芯出产的晶圆中，有61%是 “单一来源 “的产品。这意味着，有些产品只能用格芯专有的技术来制造，在没有重新设计的情况下，几乎没有任何公司能够替代格芯。 最重要的是，格芯是美国国防部认可的，最先进的 “可信代工”供应商。其核心的T3技术，即军事芯片与通讯芯片，在中共妄图把台积电据为己有的乱局中，将会给格芯的市值带来来五千至一万亿美元的增涨。
+爆料革命战友紧随郭先生，坚定信念，为了建立自由，民主，法制的新中国联邦与CCP恶魔斗智斗勇，冲破重重阻碍，收获喜币，将迎来荣美人生。
 
-参考链接：[如中共攻打台湾 格芯将迎来历史性发展机遇](https://gtv.org/video/id=617be96f11d1862968fccc4b)
+参考链接：[喜币上市实现新中国联邦人同资产、同富裕、同利益的命运共同体](https://gettr.com/post/pfj5788ec5)
 
 ![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-总编：Kathy文艺
-编辑：Kathy文艺
+总编：木白
+编辑：木白
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
@@ -34,6 +34,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

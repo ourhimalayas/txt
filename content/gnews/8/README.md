@@ -2,191 +2,54 @@
 ---
 
 
-## 空白支票融资上市是最好的初创公司的融资方法
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1629751/)
+## 秘密疫苗合同揭露辉瑞公司胁迫政府以实现其利润最大化
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1629802/)
 
-[https://gtv.org/video/id=617d2801adfd99590c3177f4](https://gtv.org/video/id=617d2801adfd99590c3177f4)
+翻译: 波士顿五月花  琴姐
+![](https://assets.gnews.org/wp-content/uploads/2021/10/秘密疫苗合同揭露辉瑞公司如何胁迫政府以实现利润最大化-scaled.jpg)Secret Vaccine Contracts Reveal How Pfizer Strong-Armed Governments to Maximize Profitshttps://childrenshealthdefense.org/
+《公共市民》在周二发布的一份报告中披露了辉瑞公司是如何通过秘密合同，利用其对中共病毒疫苗的垄断，从绝望的政府那里获得特许权的。辉瑞公司利用其作为中共病毒疫苗主要制造商之一的地位，通过与世界多个国家的秘密合同，迫使政府禁声，压制供应，转移风险，实现其自身利润的最大化。
 
-**郭文贵**
-**Miles Guo**
+报告的作者Zain Rizvi在一份声明中指出：辉瑞公司暗中利用权力从各国政府获取一系列令人担忧的特权。国际社会不能再允许制药公司继续发号施令了。报告首先提到了2月份对美国制药巨头辉瑞公司与德国BioNTech公司合作开发mRNA疫苗的指控辉瑞公司在合同谈判中，就剂量问题胁迫拉丁美洲政府。
 
-空白支票公司这个经济形式
-The economic form of the blank check company
+《公共市民》获得了辉瑞公司与阿尔巴尼亚、巴西、哥伦比亚、多米尼加共和国、欧盟委员会和秘鲁之间未经删减的条款清单，草案或最终协议。消费者权益倡导组织也调查了辉瑞公司与智利、美国和英国的修订合同。基于这些合同，报告确认了辉瑞公司使用的六种策略。在致命的病毒大流行中，辉瑞利用这些策略为自己牟利，而不是为公共健康服务：
 
-一定会成为世界上
-will certainly become
+**1. ****辉瑞公司保留让政府保持沉默的权****利**
 
-未来金融市场的主要工具
-a main tool of the future financial market in the world
+今年早些时候，巴西政府曾抱怨辉瑞公司坚持“不公平和滥用”条款，但政府最终接受了一份合同，包括“放弃主权豁免；辉瑞公司延迟交货无需遭到处罚；同意根据纽约法律在秘密私人仲裁下解决争议；广泛补偿辉瑞的民事索赔。巴西政府还同意签署了一项类似于与欧盟委员会和美国政府签订的合同中的保密条款。
 
-就是给你两年的时间
-Let’s give you two years of time
+**2. ****辉瑞公司控制捐赠**
 
-还有你资金的去向
-and the whereabouts of your funds
+再次以巴西为例，报告指出：南美州国家必须得到辉瑞公司许可，才能接受捐赠或者从其他公司购买疫苗。巴西还被禁止“未经辉瑞公司批准，向巴西境外捐赠，分销，出口，或以其他方式运输疫苗。”
 
-还有你的收购目标
-as well as the purpose of your acquisition
+**3. ****辉瑞公司获得****“****知****识产权豁免****”担保**
 
-就是开出的空白支票的公司，你不能有欺诈
-which is the company that issued a blank check, and you cannot commit fraud
+辉瑞公司首席执行官艾伯乐“在疫情期间成为了知识产权的坚定捍卫者”，他反对签署了《与贸易有关的知识产权协定》的世贸组织成员国在危机期间，放弃对中共病毒疫苗和治疗的知识产权保护提议。但在几份合同中，辉瑞公司似乎意识到知识产权对疫苗开发、生产和销售构成的风险 。这些合同将辉瑞公司可能侵犯知识产权的责任转移给了政府采购者。导致辉瑞公司根据合同可以随意使用任何知识产权，而无需承担任何后果。
 
-你就是 要不你买到你做到
-That means either you can buy it and finish it
+**4. ****由私人仲裁****员，****而不是公共法庭，秘密地裁决****纠纷**
 
-你把钱拿走
-and walk away with the money
+虽然英国的合同要求争端需根据国际商会仲裁规则由三名私人仲裁员组成的秘密小组解决，但报告称，“与阿尔巴尼亚的合同草案，与巴西、智利、哥伦比亚、多米尼加共和国和秘鲁的协议要求政府采取进一步措施，以适用纽约法律的国际商会仲裁为准。”
 
-要不你把钱给拿回来
-or you retreat the money back
+**5. ****辉瑞公司可以收购国有资产**
 
-但是这里边给你的几个规定是很干净的
-But the rules given to you during these processes are very self-explained
+报告强调：辉瑞公司要求巴西、智利、哥伦比亚、多米尼加共和国和秘鲁放弃主权豁免，并详细说明该原则有时可以保护国家免受公司试图执行之前提到的秘密仲裁小组达成的决定的影响。一些合同使该公司能够要求法庭使用国有资产作为担保，以确保辉瑞公司可以获得仲裁的赔偿，或在政府不支付的情况下，用于补偿辉瑞公司。
 
-你回到当时J.P摩根
-back to the moment of JP Morgan
+**6. ****辉瑞公司在关键决策上发号施****令**
 
-还有当时的罗斯柴尔德
-and the moment of Rothschild
+如果疫苗供应出现短缺该怎么办？在与阿尔巴尼亚的合同草案以及巴西和哥伦比亚的协议中，辉瑞公司将根据公司决定的原则来解决交付时间的调整，包括在绝大多数合同中，辉瑞的利益摆在首位。
 
-就是当时运作伦敦和美国市场的时候
-It was when he was operating the London and U.S. markets
+《公共市民》呼吁世界各国领导人，特别是美国总统拜登，反击辉瑞公司的谈判策略并遏制其垄断力量。拜登政府可以呼吁与辉瑞公司对现有承诺进行重新谈判，并在未来寻求更公平的方法。以及根据《国防生产法》，通过共享疫苗配方进一步纠正权力的失衡，允许多个生产商扩大疫苗供应。报告补充说，美国政府还可以努力迅速确保广泛放弃知识产权规则，宣布要不折不扣地执行应对病毒的战时策略。
 
-实际上,当时他达成的协议
-In fact, It was the agreement he reached
+辉瑞公司发言人Sharon Castillo在回应《公共市民》的报告时，对《华盛顿邮报》表示：保密条款是商业合同的标准，旨在帮助双方建立信任，以及保护谈判期间交换的、包括在最终合同中的机密商业信息。他还表示：辉瑞公司并没有干涉，也绝对无意干涉任何国家的外交、军事或具有重要文化意义的资产。与此任何相反的说法都是不负责任和误导性的。
 
-这叫什么，叫世界全球金融市场的基础协议
-It was call the foundation agreement of the world global financial market
+但与此同时，《公共市民》参与药品项目的负责人 Peter Maybarduk 指责辉瑞公司“利用各国的绝望”签订了具有深远意义的合同。在病毒大流行期间，我们大多数人都做出了牺牲：保持距离以保护家人和朋友，而辉瑞公司却反其道而行之，利用其对稀缺疫苗的控制，从别无选择的人手中赢得特权。
 
-实际上就是几条
-Actually, it was just a few (protocol)
+新闻来源: [Secret Vaccine Contracts Reveal How Pfizer Strong-Armed Governments to Maximize Profits](https://childrenshealthdefense.org/defender/covid-vaccine-contracts-pfizer-maximize-profits/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=dfa43c1f-ee17-4e96-a688-b8eb45160658)
 
-后来是各国根据自己的政府的要求呢
-Afterward, it was all countries in accordance with the requirements of their own governments
+* * *
 
-他把它全给弄复杂化了
-He made it all complicated
+*素材来源：时空旅行者*
 
-也就是政府垄断
-which was called government monopoly
-
-那么这又回到了最初的金融基础协议
-So let’s route back to the original financial foundation agreement
-
-实际上大家知道你是诚实的
-In fact everyone knows that you are honest
-
-这个方式是对的，是非常好的
-This method is correct and very effective
-
-就这个问题我参加过多少次世界级的讨论
-I have participated so many world-class discussions on this subject
-
-就在2014年以前
-Prior to 2014
-
-为什么我跟所有人说的不一样？
-why what I said were different from everyone?
-
-我说SPAC未来将是一个世界的金融走向、股市的走向
-I said that the future of SPAC would be the direction of the world’s financial and stock markets
-
-我从来不操作任何上市公司的
-I have never manipulated any listed company
-
-我从来不参与这种事情
-I have never participated this kind of behaviors
-
-我说所有今天全球的上市的规则，全是政府腐败
-I said that all the global listing rules today are government corruption
-
-收租、当中介人
-collecting rents, being an intermediary agent
-
-这是一些做Agent的一些手段
-all these were some means of being agent
-
-我说就应该回到SPAC这种模式
-I said that we should go back to the SPAC model
-
-当时（很多人）觉得我神经病
-(Many people) thought I was crazy at that moment
-
-现在你可以发现，从去年美国已经突涨了多少倍
-But now you have noticed that how many times the U.S. market has risen sharply since last year
-
-这是给真正的初创者(的机会)，实际上是很重要
-This is the (opportunity) offering to a real start-ups, in fact, it’s very important
-
-你担你的风险
-You take your own risk
-
-但你必须要诚实
-but you must be honest
-
-它是在诚实基础上
-It’s based on the honesty
-
-那今天我们看到了SPAC公司里边
-So, today we have witnessed the inside of SPAC company
-
-出现最多的就是不诚实，就是夸张
-showing the most are the deception and exaggeration
-
-它就是想骗钱
-That’s scam
-
-这是完全两个概念
-These are two totally concepts
-
-你来是犯罪目的来的和你到融资来的
-either you come for a criminal purpose or you come for financing
-
-这是两个完全不同的概念
-These are two totally different concepts
-
-这是当年我的发言
-These is what I said back then
-
-善意的融资者，会在这里得到天堂般的待遇
-Well-meaning financiers will be treated like in heaven here
-
-具有犯罪动机的
-Those who have criminal motives
-
-到这里来骗钱
-come here to swindle money
-
-你会感觉到，到这里就是人多钱傻
-You will feel that there are too many people, the money is stupid
-
-不骗白不骗
-and it’s your lose if you don’t scam
-
-但最后你毕竟死在这
-But in the end you will die here after all
-
-———————————————————
-
-**原视频链接:**[** **https://twitter.com/se1y7cblljselva/status/1453643437647953928?s=24](https://twitter.com/se1y7cblljselva/status/1453643437647953928?s=24)
-
-Date: 10/26/2021
-原视频标题:
-Blank check financing is the best way to raise capital for start-ups
-原视频日期：2021/10/24
-任务编号：KC212（2702）
-视频时间段 : 0:00-2:20
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*编辑**& 发布：jamie(文胤)*
 
  
 
