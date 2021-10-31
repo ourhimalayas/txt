@@ -2,81 +2,28 @@
 ---
 
 
-## 太平联盟、吴征以及FBI的前高管都是连在一起的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1629640/)
+## 美军激光武器驱逐舰现身东海，或针对中共军用无人机
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1629717/)
 
-[https://gtv.org/video/id=617be77badfd99590c30e586](https://gtv.org/video/id=617be77badfd99590c30e586)
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-96.png)[图片来源](https://www.dwnews.com/%E4%B8%AD%E5%9B%BD/60260830/%E7%BE%8E%E5%9B%BD%E6%B5%B7%E5%86%9B%E6%BF%80%E5%85%89%E6%88%98%E8%88%B0%E8%BF%9B%E9%A9%BB%E6%97%A5%E6%9C%AC%E6%80%A7%E8%83%BD%E6%8A%AB%E9%9C%B2%E4%B8%AD%E5%9B%BD%E5%A6%82%E4%BD%95%E5%BA%94%E5%AF%B9%E5%9B%BE)
+美国首艘配备激光武器的驱逐舰近日被曝出现在东海海域，还派出舰员进行了不常见的“视觉信息收集”训练。
 
-**郭文贵**
-**Miles Guo**
+美国国防部下属网站Dvidshub于10月26日发布了美国海军“杜威”号驱逐舰的最新消息。Dvidshub网站称，“杜威”号驱逐舰当天正在东海活动，组织舰员进行了视觉信息收集、舰船动力设备维护等项目的训练。根据美国军方公布的照片，在视觉信息收集训练中，多名舰员在舰桥上使用照相机、摄影机等设备对着海面进行拍摄。
 
-还有大家没有注意到，七哥这个官司最核心的事情
-Also does everyone notice that the core issue of QiGe (Miles)’s lawsuit
+值得注意的是，“杜威”号是美国海军最新部署到亚太地区的一艘阿利伯克级驱逐舰，其母港位于日本横须贺。数天前曾有日本网友拍摄到该舰从日本港口出海的画面。与其他阿利伯克级驱逐舰不同的是，“杜威”号驱逐舰配备有被称为ODIN“奥丁”的激光武器，也是美国海军首艘配备激光武器的驱逐舰。
 
-就是如何能把吴征和太平联盟官司连在一起，这是讲证据，讲法律的
-It’s how to connect Bruno Wu and Pacific Alliance Group lawsuit together. This is about evidence and law
+这种武器的全称是“海军光学炫目拦截系统”，这是一种主要用于干扰、拦截无人机的光学传感器，安装在“杜威”号驱逐舰前方甲板的近防武器炮位上。这是美国海军第一次将具有炫目功能的独立激光武器系统进行作战部署，但美军没有透露这种武器的具体性能，只是用“低功率”的说法来含糊表述。
 
-马蕊强奸案，吴征付律师费，博讯告七哥案，吴征付律师费
-In Ma Rui’s rape case, Bruno Wu paid the lawyer’s fee; Boxun sued QiGe(Miles), and Bruno Wu paid the lawyer’s fee
+郭文贵先生之前爆料，中共攻击台湾时，将使用无人机、激光精确制导弹药等武器进行第一波饱和式打击。基于对美军舰载高功率激光武器战技性能和技术特点的分析，再结合中共的军事动向，美军的作战目标已经毋庸多言。
 
-太平联盟说吴征没付律师费，现在吴征跟它有关系
-Pacific Alliance Group claimed that Bruno Wu did not pay the lawyer’s fees, and now Bruno Wu has some connection with it
+信息来源：
 
-吴征跟它有关系，不但如此，太平联盟的案子
-Bruno Wu has some connection with it. Not only that, in Pacific Alliance Group’s case
+[警惕！美军首艘配备激光武器驱逐舰被曝现身东海](https://news.sina.com.cn/c/2021-10-28/doc-iktzqtyu4041553.shtml)
 
-其中用了两家律师事务所
-They used two law firms
-
-其中一个事务所叫AI什么事务
-one of firm is called AI…firm
-
-就是这个FBI的前高管董事，就叫Frankel
-the former FBI executive director named Frankel
-
-又是这个运鸿，又是吴征
-It’s YunHong again, and Bruno Wu again
-
-这个Digital World 数码世界里边最关键人物
-the most critical person in the Digital World
-
-而且是股东，关键是太平联盟这次又和吴征成为了一个重要合作伙伴
-And as a shareholder, the key is that Pacific Alliance Group has become an important partner with Bruno Wu this time
-
-你看到11家基金，
-You see 11 funds,
-
-几乎8家到9家都是因为太平联盟走到一起投资的运鸿
-almost 8 to 9 of those funds are all because Pacific Alliance Group came together to invest in YunHong
-
-然后又投资Digital World，
-Then they invested in Digital World,
-
-也就是太平联盟和吴征和这个FBI的前高管是连在一起的
-that is, Pacific Alliance Group and Bruno Wu are connected with this former FBI executive
-
-**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1453724951274352657?s=24](https://twitter.com/se1y7cblljselva/status/1453724951274352657?s=24)
-
-———————————————————
-
-Date:10/28/2021
-原视频标题: 
-Pacific Alliance Group, Bruno Wu and Former FBI director are all connected together
-原视频日期：2021/10/27
-任务编号：KC210（2701）
-视频时间段 : 0:00-1:13
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/上善若水
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

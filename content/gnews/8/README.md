@@ -2,35 +2,80 @@
 ---
 
 
-## 悉尼邦迪海滩的一处酒吧新冠病毒聚集性传播
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1629602/)
+## 太平联盟、吴征以及FBI的前高管都是连在一起的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1629640/)
 
-**整理报道：月映万川
-编辑：文泓**
+[https://gtv.org/video/id=617be77badfd99590c30e586](https://gtv.org/video/id=617be77badfd99590c30e586)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan1.jpeg)图片来源：The Guardian
+**郭文贵**
+**Miles Guo**
 
+还有大家没有注意到，七哥这个官司最核心的事情
+Also does everyone notice that the core issue of QiGe (Miles)’s lawsuit
 
-周五，一处位于悉尼邦迪海滩的酒吧被认定为新冠病毒传播重大的风险场所，目前，已经发现有10例感染与这一酒吧有关。
+就是如何能把吴征和太平联盟官司连在一起，这是讲证据，讲法律的
+It’s how to connect Bruno Wu and Pacific Alliance Group lawsuit together. This is about evidence and law
 
-新南威尔士卫生局认定，任何在10月23日晚7:30到关门前，去过该酒吧的客人，必须立即自我隔离至收到阴性检测报告。
+马蕊强奸案，吴征付律师费，博讯告七哥案，吴征付律师费
+In Ma Rui’s rape case, Bruno Wu paid the lawyer’s fee; Boxun sued QiGe(Miles), and Bruno Wu paid the lawyer’s fee
 
-这已经是新南威士州在解封后发生的第二例聚集性传播案例。
+太平联盟说吴征没付律师费，现在吴征跟它有关系
+Pacific Alliance Group claimed that Bruno Wu did not pay the lawyer’s fees, and now Bruno Wu has some connection with it
 
-来自于州卫生官员的警告称，即使完全接种者也要时刻警惕新冠病毒的传播，并且一旦出现症状也要进行检测。虽然疫苗很“有效”，但是“突破性”感染也会发生。
+吴征跟它有关系，不但如此，太平联盟的案子
+Bruno Wu has some connection with it. Not only that, in Pacific Alliance Group’s case
 
-目前，**新南威尔士州16岁人口首剂疫苗接种率已经达到93.5%，而87%的人口已经完全接种疫苗。**
+其中用了两家律师事务所
+They used two law firms
 
-新闻链接：[Tea Gardens Hotel in Bondi listed as COVID-19 ‘transmission venue of concern’ by NSW Health after cases in Sydney bar | 7NEWS](https://7news.com.au/lifestyle/health-wellbeing/nsw-health-identifies-tea-gardens-hotel-in-bondi-as-covid-19-transmission-venue-of-concern-c-4365944)
+其中一个事务所叫AI什么事务
+one of firm is called AI…firm
 
-**发布：**Janek
+就是这个FBI的前高管董事，就叫Frankel
+the former FBI executive director named Frankel
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+又是这个运鸿，又是吴征
+It’s YunHong again, and Bruno Wu again
+
+这个Digital World 数码世界里边最关键人物
+the most critical person in the Digital World
+
+而且是股东，关键是太平联盟这次又和吴征成为了一个重要合作伙伴
+And as a shareholder, the key is that Pacific Alliance Group has become an important partner with Bruno Wu this time
+
+你看到11家基金，
+You see 11 funds,
+
+几乎8家到9家都是因为太平联盟走到一起投资的运鸿
+almost 8 to 9 of those funds are all because Pacific Alliance Group came together to invest in YunHong
+
+然后又投资Digital World，
+Then they invested in Digital World,
+
+也就是太平联盟和吴征和这个FBI的前高管是连在一起的
+that is, Pacific Alliance Group and Bruno Wu are connected with this former FBI executive
+
+**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1453724951274352657?s=24](https://twitter.com/se1y7cblljselva/status/1453724951274352657?s=24)
+
+———————————————————
+
+Date:10/28/2021
+原视频标题: 
+Pacific Alliance Group, Bruno Wu and Former FBI director are all connected together
+原视频日期：2021/10/27
+任务编号：KC210（2701）
+视频时间段 : 0:00-1:13
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

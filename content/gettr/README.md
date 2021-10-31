@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/31/2021 1:28 AM (UTC)`
+
+我们是自由人还是奴隶？<br/><br/>Are we free or are we, slaves?<br/>
+![img](https://media.gettr.com/group1/getter/2021/10/31/01/28/771031bf-260b-af7c-2b18-fba5b989063f/out.jpg)
+
+---
+
+`@miles 10/31/2021 1:25 AM (UTC)`
+
+杰森·米勒：疫苗强制令最终会迫使整个国家分裂成两个不同社会；向拜登政府强制疫苗令发起诉讼的佛罗里达州州长将成为2024总统竞选中最有领导力的候选人<br/><br/>Jason Miller: Vaccine mandates will eventually force the nation to split into two different societies. The governor of Florida who filing a lawsuit over Biden Administration’s mandates will be most leadership candidate in 2024 presidential election <br/>
+![img](https://media.gettr.com/group18/getter/2021/10/31/01/25/bfaf83fc-1135-e47e-92ad-c852ba8dd09f/out.jpg)
+
+---
+
 `@miles 10/31/2021 1:07 AM (UTC)`
 
 杰森·米勒：大型科技公司正在成为以左翼审查制度和反美国主义而闻名的品牌，Facebook的改名是其末日的开始<br/><br/>Jason Miller: Big techs are becoming brands that are best known for left-wing censorship and anti-Americanism. Facebook's name change is the beginning of its end.
@@ -291,20 +305,6 @@ F the FDA.  Do the opposite of what they recommend. <br/><br/>DON’T VACCINATE 
 
 11月27号：非常智慧独到的对中国共产党……对中国人民犯下的罪行的现状解读！悲哀的是．中国有无数的智者，但是却极少有真正的行动的勇士……
 ![img](https://media.gettr.com/group23/getter/2021/10/27/23/54/df04af12-762a-f59b-d0bc-b9e0f159445f/b42c0e021bf77d08190140a2f1a9819c.jpg)
-
----
-
-`@miles 10/27/2021 10:25 PM (UTC)`
-
-11月27日：感谢玉米地大姐送的漂亮的鲜花💐……
-![img](https://media.gettr.com/group25/getter/2021/10/27/22/25/477ba2f8-4679-c36b-e1e2-d3f3ed9b604f/out.jpg)
-
----
-
-`@miles 10/27/2021 12:30 PM (UTC)`
-
-2021年10月27日文贵大直播：SPAC忽上忽下何有未来；吴征虚假信息刑事犯罪；基金对赌炒股钓鱼欺骗；盖特言论自由公平竞争
-![img](https://media.gettr.com/group21/origin/2021/10/27/12/0c04a294-1114-c644-ee17-8d394d21165a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

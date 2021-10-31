@@ -2,25 +2,32 @@
 ---
 
 
-## 庆喜币上市
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1629158/)
+## 有声|印度对中共陆地国界法表示担忧
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1629227/)
 
-俄罗斯莫斯科喀秋莎农场 六月飞雪
+配音：香草山美食部 – 玫瑰园
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/H-3.jpg)俄罗斯莫斯科喀秋莎农场 女农
-**鹊桥仙·喜币上市**
+中共全国人大于10月23日通过了《中华人民共和国陆地国界法》，明确规定了长达2万2千公里陆地边境的管理和防卫办法，这条边境让中共国与印度和俄罗斯等14个国家接壤。
 
-喜币上市，70国牌照，地球半壁盛举。一币一网得封侯，快上座、诺亚方舟。 神舟一驰，人间大善，横渡金融暴雨。正道信仰新兴人，挥豪笔、描画宙宇。
+印度外交部发言人巴格奇于27日发表声明，对中共通过的该陆地国界法表示担忧。
 
-**诉衷情·喜币**
+声明表示，中共国单方面决定推出一部立法，可能对印中双方现有的边境管理安排以及印度所关心的边境问题产生影响。
 
-喜国喜日喜成双。喜币黄金妆。都缘共魔同恨，携币正道路敞。 前无古，后众继。领时尚。飞上星链，谁还笑贫，只羡荣昌。
+目前，印度和中共国之间依然有3500公里长的边境尚未划定，双方都对比邻边境的大片地区做出过主权声索。尽管双方已经举行了10多轮的谈判，但是两国数万军队仍旧在喜马拉雅边境的拉达克地区不断集结和紧张对峙。
 
-**卜算子·个个喜币亲 **
+文字版原文：[印度对中共陆地国界法表示担忧](https://gnews.org/zh-hans/1625544/)
 
-个个喜币亲，声声喜讯晓。道是群魔乱中华，以币灭共巧。 昨夜大国梦，今夜冥币扫。道是喜民振中华，喜币登场了。
+音频处理：喜山必胜Maverick
 
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

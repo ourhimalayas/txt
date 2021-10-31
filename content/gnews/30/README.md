@@ -2,27 +2,30 @@
 ---
 
 
-## 川普被要求公开他新社交媒体的源代码
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1629126/)
+## 有声|欧洲议会将组团访台
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1629217/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+配音：香草山美食部 – 玫瑰园
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/D.png)inddependent.co.uk
-美东时间10月30日报道，一个所谓的开源、去中心化的社交媒体平台Mastodon公司要求美国前总统川普的团队公开其新社交网络TRUTH Social中使用的源代码。
+10月27日的相关报道提及，由欧洲议会“外国干预欧盟民主程序特别委员会”多名议员组成的代表团，计划将于下月初访问台湾。
 
-Mastodon称，“10月26日，我们向TRUTH Social的总法律顾问发出了一封正式信函，要求按照许可证规定公布源代码。”该公司强调，在收到通知后，TRUTH Social有30天时间来完成要求。如果不这样做，可能会导致许可证被不可逆转地撤销。
+台湾外交部发言人对欧盟议会代表此次访台表示欢迎。台湾世代智库执行长表示，欧盟还不熟悉中共的干扰信息，必须快速对此作出反应。而台湾是亚洲民主国家应对极权国家干预非常好的例子。据悉，本次欧盟访问团的目的之一，就是要向台湾学习如何面对试图干预或者影响民主进程的势力。
 
-根据该声明，尽管TRUTH Social尚未推出，但一些用户已经访问了该社交网络的测试版，并注意到一个“令人震惊的警告”，即源代码以及其内容都是TRUTH Social的财产。
+欧盟访台代表团的领队是法国议员莱克斯曼。今年三月，欧盟27个成员国因新疆维吾尔族人遭受大规模迫害对中共国实施制裁，出于报复，中共宣布对包括莱克斯曼在内的10名欧盟人士及4个实体实施发制裁。
 
-Mastodon保证，川普的社交网络是基于该平台的公开代码。“值得注意的是，无论是条款还是网站的任何其他部分都不包含Mastodon的任何链接，也不包含Mastodon用户界面中默认存在的源代码的任何链接”。该公司强调，Mastodon平台的使用条款规定，在其基础上制作的任何社交网站必须开放源代码。
+文字版原文：[欧洲议会将组团访台](https://gnews.org/zh-hans/1623365/)
 
-川普于10月21日宣布TRUTH Social，该服务的测试版将于11月向“受邀用户”开放，预计将于2022年初全面推出。
+音频处理：喜山必胜Maverick
 
-参考链接：
-
-[https://www.rbc.ru/rbcfreenews/617cdcb39a79473689b264d9](https://www.rbc.ru/rbcfreenews/617cdcb39a79473689b264d9)
-
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

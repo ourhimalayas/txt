@@ -2,42 +2,132 @@
 ---
 
 
-## 【战友观点】四省市广播电视台被约谈，难道今后小粉红约炮前背习思想、高潮时喊习万碎？
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1629481/)
+## 两三年后的价格是决定喜馬拉雅币价值的关键之二
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1629572/)
 
-温哥华扬帆农场 – Michael.Tonny
+[https://gtv.org/video/id=617b90b7adfd99590c30b117](https://gtv.org/video/id=617b90b7adfd99590c30b117)
 
+第二条
+Segundo
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20211030-Michael.Tonny-4省市广播电视台被约谈，难道今后小粉红约炮前背习思想、高潮时喊习万碎？.png)
-CCP抄三胖作业不脸红，中共国正在西朝鲜化，未来五毛、小粉红约炮前都得背一遍习思想，小粉红高潮时都得喊“习神万碎！
+记住七哥说的话, 喜币真正的价格
+Recuerda lo que digo, el precio real de la moneda de Himalaya
 
-继2021年10月20日，中共国伪政权国家网信办公布最新版《互联网新闻信息稿源单位名单》后，中共CCP对传媒的打压再次度升级。10月29日，中共CCP中央宣传部、国家广电总局和4省市党委宣传部对上海、江苏、浙江、湖南广播电视台进行约谈，批评各卫视频道的节目不同程度存在过度娱乐化，必须坚决整改追星炒星的问题，必须坚持政治家办台等。
+前三个月你千万别在乎
+No tomes en cuenta los primeros tres meses
 
-**简评：**
+它涨到100万
+Si sube hasta 1 millón
 
-上海、江苏、浙江、湖南卫视被称为中共国最成功的电视台，制作的综艺节目在墙国愚民作用非常明显。这四家卫视，都出品过不少王牌综艺节目，例如湖南卫视的《快乐大本营》、浙江卫视的《奔跑吧》、江苏卫视的《新相亲时代》。其中，《快乐大本营》在本月中传出要无限期停播的消息，而这四家电视台的广告收入，占去全中共国电视广告收入的约四分之一。
+它跌到1毛钱, 0.001分你都别在乎
+O baja a 1 centavo, 0.001 centavos, no lo tomes en cuenta
 
-上海、江苏、浙江、湖南应该算是江派大本营，这次约谈应当是中南坑老杂毛内斗的一部分。由于笔者对老杂毛的内斗、中共绞肉机飞速运转，已经写过多篇文章。本文重点谈谈对小粉红的影响。
+喜币真正的拥有者
+El verdadero dueño de la moneda de Himalaya
 
-未来小粉红、自干五们，到哪里找乐子呢？2021年10月20日，中共国国家网信办公布最新版《互联网新闻信息稿源单位名单》已经把答案圈定好了。以后，中共国的电视媒体、互联网媒体只有中共CCP后宫286家，地方1072家共1358家。
+是在两年后
+Es después de dos años
 
-如果更早去追溯，2021年10月8日，市场准入负面清单（2021年版公开征求意见稿）第一条禁止准入类第6项（100006）“禁止违规开展新闻传媒相关业务”其实已经非常明确。非公有资本不得从事新闻采编播发业务，非公有资本不得投资设立和经营新闻机构，包括但不限于通讯社、报刊出版单位、广播电视播出机构、广播电视站以及互联网新闻信息采编发布服务机构等，非公有资本不得经营新闻机构的版面、频率、频道、栏目、公众账号等，非公有资本不得从事涉及政治、经济、军事、外交，重大社会、文化、科技、卫生、教育、体育以及其他关系政治方向、舆论导向和价值取向等活动、事件的实况直播业务，非公有资本不得引进境外主体发布的新闻，非公有资本不得举办新闻舆论领域论坛峰会和评奖评选活动。
+它几乎它能告诉你
+Ella prácticamente te puede decir
 
-也就是，除了中南坑老杂毛们划定的内容，其它个人和实体已经不能发出任何其它声音，甚至像NBA这种常有人“辱滑”的体育赛事都不可能了直播。可以想象，已经够辣眼的习大神、习思想、习大帝完全不能满足人们的需要，毕竟现在还有西甲、德甲、法甲，C罗、梅西、姆巴佩、哈兰德们，甚至那个最窝囊的克强总理还时不时出来抢镜，那些好声音，和让粉红们高潮意淫一下的约炮相亲的节目也抢了大神的风头！
+是否你应该持有和不应该持有
+Si debes tenerla o no
 
-未来嫖不起的快乐小粉红们，记得约炮前，要背一遍习思想、亲一亲毛腊肉，传播一下正能量？
+喜币一定是挣钱的
+La moneda de Himalaya seguramente puede ganar dinero
 
-最近几日，尽管笔者可能因为CCP的强力阻挠，无法自己汇款到KYC账户，可能最终无法通过正常途径购买自己的喜帀配额，可以想象，对笔者来说，无论从荣誉还是金钱，都会蒙受巨大损失。但无论如何，笔者坚决支持郭文贵先生灭共大业，对新中国联邦充满向往。无论CCP如何险恶，也决不可能改变笔者坚决参与灭共事业的决心。
+谁要赔了钱
+Quien pierde el dinero
 
-总加速师这脚油门，把中共国媒体一下子推回到40年前，以后看电视就是上政治课而已，听听习思想、再拜拜习大神。小粉红、自干五们，自慰的空间不会有了！中南坑后宫佳丽的CCAV频道，会不会回到一支钢笔别到中山装时代呢！
+我可以说我100%赔
+Puedo decir que yo perderé el 100%
 
-中共国的声音只有一个——“习大神”！中共国的思想只有一个——“习思想“！中共国韭菜们要拜只能拜“习万碎”！中共国的去向只有一个——西朝鲜！
+我100%给你们
+Les doy mi 100%
 
-为了小粉红们约炮前，可以像正常人一样，该爽就爽，没有了金钱和荣誉，笔者投入灭共的精力只会更加旺盛。希望习大神能把油门踩得更深一点！习大神万碎！
+谁赔了钱我承担
+Quien pierde dinero yo lo asumo
 
-（免责声明：本文只代表作者观点，跟GNEWS平台无关）
+它一定会挣的
+Ella seguramente ganará dinero
 
-*编审/**发布：Shuang*
+它只是挣多少而已
+Solamente consiste en cuánto
+
+但是对你来讲说, 老实话
+Pero para ti, hablando sinceramente
+
+你会挣个3倍、5倍、10倍、100倍
+Ganarás el triple, cinco veces, diez veces, hasta cien veces más
+
+你挣完钱以后, 你拿走了我会告诉你
+Luego cuando ganes el dinero y lo vendas, te digo
+
+你什么都没有
+No tendrás nada
+
+真正的想了解喜币的人是在两三年以后
+Quien realmente quiere conocer a la moneda de Himalaya es después de dos a tres años
+
+就像当年比特币
+Al igual que Bitcoin en ese entonces
+
+当时我们买的时候
+En aquel momento cuando lo compramos
+
+千八百块钱
+En 800 a 1000
+
+我那时候我说有多少买多少
+En ese momento dije que comprara todo lo que tuviera
+
+我们买的比特币
+El Bitcoin que compramos
+
+到现在我们还有很多呢
+Hasta ahora todavía tenemos mucho
+
+我们的基金里边人说
+La persona de nuestra fundación dijo
+
+我才知道基金有那么多比特币
+Fue que supe que la fundación hay tantos Bitcoin
+
+他说七哥当初听你的
+Él dijo en aquel tiempo te escuché
+
+都是1000多块钱买的
+Fueron comprados en 1000
+
+我们都没有卖
+No lo vendimos
+
+这才是真正的(投资)
+Esto es una verdadera (inversión)
+
+你想想(如果)1万卖2万那不就全完了吗
+Piensa si diez mil lo vendes a veinte mil, ¿no se acabará todo?
+
+———————————————————
+
+日期：10/27/2021
+原视频标题：
+El precio de los próximos dos a tres años es una de las claves para determinar el valor de la moneda de Himalaya
+原视频日期：10/23/2021
+任务编号：KC207（2645）
+视频时间段：0:00-1:20
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

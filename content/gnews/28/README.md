@@ -2,26 +2,28 @@
 ---
 
 
-## 借新还旧掩盖不良！民生信托被监管认定违规
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1629162/)
+## 有声|中共国禽流感传人案例猛增
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1629256/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+配音：香草山美食部 – 玫瑰园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/借新还旧掩盖不良！民生信托被监管认定违规.png)[图片来源](https://www.msxt.com/)
+中共国在2021年向世卫组织通报称，有21起人类感染H5N6亚型禽流感的案例，而去年只有5起。虽然这21名患者，相比2017年感染H7N9毒株的数百人要低得多，但是这些感染非常严重，导致多人病危和6人死亡。
 
-10月29日，北京银保监局下发《举报调查意见书》，认定民生信托在“至信1071号”的推介过程中，未如实向投资者说明抵押物的评估情况、披露信托资金的实际投资范围、充分揭示信托项目的风险情况，违反多项规定，已责令民生信托进行整改问责，后续将依法采取进一步监管措施。
+这引起了专家的关切，他们说以前流行的一个毒株似乎发生了变化，可能对人更有传染性。世卫组织在10月4日的一份声明中，强调了病例的增加，并说大多数病例都与家禽接触过，没有人传人的确认病例。
 
-此前已有媒体刊发《民生信托13亿元产品爆雷 被指信披违规、接盘不良资产》一文对此事进行过前期报道，其中指出，2020年6月28日，民生信托与“至信1071号”融资方的关联方因兑付问题发生法律纠纷开庭，在短短2个月后即为融资方募集新产品即“至信1071号”，并且向投资者隐瞒了这一事项。彼时就有业内人士指出“涉嫌借新还旧掩盖不良”，此次《举报调查意见书》坐实这一情况，北京银保监局指出，民生信托未标明“至信1071号”实际用于归还交易对手关联方在民生信托的信托贷款。
+文字版原文：[中共国禽流感传人案例猛增](https://gnews.org/zh-hans/1622796/)
 
-郭文贵先生多次爆料民生信托黑幕，包括虚假评估、接盘不良资产等。当前，习对于金融领域的清洗正在进入深水区，同时鉴于信托行业与房地产的深度绑定，中共信托行业的问题是该到揭盖的时候了。
+音频处理：喜山必胜Maverick
 
-信息来源：
-
-[北京银保监局调查认定民生信托违规，旗下产品涉借新还旧掩盖不良\_中国经济网——国家经济门户](http://finance.ce.cn/bank12/scroll/202110/29/t20211029_37042334.shtml)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
