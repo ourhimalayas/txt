@@ -2,89 +2,62 @@
 ---
 
 
-## 七哥谈打赏以及如何做好视频
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1630473/)
+## FDA 顾问解释为何放弃对辉瑞的幼儿疫苗投票1/2
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1630541/)
 
-[https://gtv.org/video/id=617e72d1adfd99590c31c6c3](https://gtv.org/video/id=617e72d1adfd99590c31c6c3)
+**编译：JennyBall**
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip104.png)NIH 国家转化科学促进中心临床创新部主任、疫苗和相关生物产品咨询委员会成员迈克尔·库里拉（Michael Kurilla）博士。（NIH提供)
 
-小Seven讲的要不要做视频
-Little Seven has talked about making a video
+FDA疫苗顾问小组唯一一位在本周主要投票中弃权的成员表示，**他之所以这样做是因为安全性和有效性数据不足。**
 
-怎么做视频
-and how to make a video
+其他 17 人都投票建议政府或 FDA 授权对 5 至 11 岁的儿童进行注射。该机构已经支持这样做，预计很快就会正式批准该授权。然后CDC将决定哪些儿童应该接种疫苗。
 
-实际上做视频不是技术
-In fact, videos are not just technology
+**投票之前进行了近 8 小时的讨论和演讲**，**多名成员对疫苗将如何影响该年龄段的数据不足表示担忧。**
 
-做视频第一做的是你的智慧
-Making a video, first, demonstrates your wisdom
+但是，NIH内一个部门的负责人、传染病和病理学专家迈克尔·库里拉博士是唯一不支持该建议的人。
 
-第二做的是你的品味
-Second, it signifies your taste
+库里拉在一封电子邮件中告诉《大纪元时报》，他反对这个问题的特殊的、二元的措辞，这将使得任何 5 到 11 岁的儿童都有可能接种辉瑞疫苗。他还担心涉及该年龄组的临床试验最长的随访时间仅为三个月，数据显示儿童患 COVID-19 的严重病例比成人少得多，而且他们中的很大一部分已经感染过这个病毒，这给予他们一定程度的免疫力。
 
-第三做的你的眼界
-Third, it indicates your foresight
+如果授权按预期通过，至少一些年龄组的人将能够获得两剂，每剂 10 微克，间隔三周。
 
-第四
-Fourth
+相同的剂量间隔，剂量水平是成人的三倍，目前适用于成人。但是成年人已经看到有效性下降，尤其是对抗感染，所以又促使最近批准了加强剂量。
 
-做的你自己的能力
-it demonstrates your ability
+库里拉说，因为间隔是相同的，所以可以预测，儿童的有效性也会减弱。与此同时，较低的剂量水平，带来了对严重疾病和住院的保护是否会像成人一样强的问题。
 
-然后才是技术
-Then, it’s a technology
+“涉及成年人的真实世界证据表明，3 周的给药间隔在持久性方面并不理想，并且在儿童中可能相似，导致免疫力在 4-6 个月内减弱，” 库里拉说。“因为辉瑞疫苗即使在抗体滴度下降后也能提供针对严重疾病的保护，所以有一些其他的免疫基础，但在儿童的较低剂量下，没有预期这些相同的免疫过程会与较高的成人剂量表现相似。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip105.png)在这张未注明日期的讲义照片中可以看到辉瑞 / BioNTech 的新型儿科 COVID-19 疫苗瓶。（辉瑞来自路透社）
+**低住院率**
 
-我跟你说你要不在盖特、 GTV上，不抓住这个机会
-I’m telling you, if you are not on Gate or GTV, and not catching up on this opportunity
+在会议期间，成员们听说，自大流行开始以来，美国 5 至 11 岁的儿童中已有超过 190 万例感染，但只有 0.4%，即其中 8,400 例需要住院治疗。其中只有 94 人最终死亡。
 
-你绝对是后悔的
-you would certainly regret it
+他们还听说，估计有 20% 的住院儿童因 COVID-19 以外的原因入院，而且每 10 名儿童中有近 7 名患有心脏病等严重健康问题，这说明 COVID-19 对儿童造成的健康风险很低。
 
-好好的研究研究
-Do some studies
+此外， CDC估计，该年龄组中 40% 的儿童已经感染了 COVID-19。研究表明，从 COVID-19 中恢复可赋予一定程度的免疫力，多项研究表明该水平实际上高于疫苗提供的水平。
 
-要把打赏的事做大
-and make the rewards bigger
+“这里的好处被认为是预防严重疾病，这是我们所有人都希望看到的，”库里拉在会议上说。但在康复者中，他后来补充道，“**问题真的变成了，这种疫苗对他们有什么好处吗？”**
 
-那么未来就像这种打赏
-Then the future will be like these kinds of rewards
+库里拉表示，如果 FDA 提议向 5-11 组中的一个群组开放疫苗的使用，他会投“是”。我们在文章的第二部分看**他如何解释了他弃权的原因**。
 
-私密直播
-private live broadcasts
+**评论：**
 
-虚拟货币
-and virtual currencies
+**法律赋予儿童的父母对自己的孩子有抚养权保护权，现在FDA竟然将法律抛在一边。试问FDA，如果你们担起了孩子的决定权，你们难道不应该为疫苗对孩子造成的任何伤害承担一切责任吗？我永远不能抹去可怜的13岁勇敢的麦迪，为了让人们早日获得健康自由，主动参加了辉瑞的儿童试验，在1月20日第二剂疫苗后，只能靠吸管吸收营养维生，你们都对她做了什么？8个月不回复她父母的一个请求，一个邮件，竟然没有把她列到辉瑞疫苗受伤的名单里！**
 
-几乎会把人类一切都改变了
-They will change almost everything for human beings
+**退一万步说，父母将法律要求他们的责任和义务交给你FDA，你们强制夺走家长的权利，你们就必须承担起家长对孩子的责任！向麦迪这样惨重的伤害，生不如死，你们承担的起吗？**
 
-一切都会改变
-Everything will be changed
+**新闻来源：**[theepochtimes.com][FDA Adviser Explains Why He Abstained From Vote on Pfizer’s COVID-19 Vaccine for Young Children](https://www.theepochtimes.com/mkt_morningbrief/fda-adviser-explains-why-he-abstained-from-vote-on-pfizers-covid-19-vaccine-for-young-children_4074913.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-10-30&amp;mktids=a12924a115a4a026dd4f0ca3ab6bdc00&amp;est=jWlt8mtdP22IZcGaTWK2gEL1EgGBCv4xURmzn5bzbWhRIpbWYxiRVTmg7c%2BqFqbj0YD%2FbA%3D%3D)
 
-这就是新的时代
-This is the new era.
+请阅读下篇：[FDA 顾问解释为何放弃对辉瑞的幼儿疫苗投票2/2](https://gnews.org/zh-hans/1630602/)
 
 * * *
 
-Date: 10/30/2021
-原视频标题: 七哥谈打赏以及如何做好视频
-Mr. Guo Talks About Rewards And How to Make a Qualified Video
-原视频日期：2021/10/28
-原视频链接: [https://gettr.com/post/pfisewa574](https://gettr.com/post/pfisewa574)
-任务编号：KC214(2719)
-视频时间段 : 0:00-0:53
-英听校： 洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-2.jpeg)
+
+
 
  
 
