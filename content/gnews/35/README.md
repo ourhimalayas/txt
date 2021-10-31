@@ -2,74 +2,35 @@
 ---
 
 
-## 樱花灭共段子之马云“罩反”、德艺双馨艺术家
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1631135/)
+## 传奇说唱歌手冰块因强制疫苗政策辞演索尼影业新片
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631160/)
 
-撰稿：东京樱花团/perterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/10/6-25.jpg)
-【马云“罩反”】
+作者：纽约香草山信息部- 诺雅
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据10月30日盖特消息报道，因为拒绝制片人对新冠疫苗接种的要求，顶级说唱歌手Ice Cube ，又称冰块，本名奥谢-杰克逊，决定退出明年7月上映的索尼公司喜剧《哦，见鬼了》。
 
-作者：perterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide8-12.jpeg)
 
-插图：樱花团设计组
+报道中提到，该影片于今年6月开始制作，索尼影业邀请知名喜剧导演樱井喜多雄执导，由喜剧界的重磅人物杰克-布莱克和冰块联合出演。据了解，该片原本计划于今年冬天在夏威夷开始拍摄，冰块本人将获得九百万美元的片酬。但制片人的疫苗接种要求，导致了冰块的退出，工作室正在寻找替代者，电影制作已经推后。
 
-保镖：马粑粑，你的口罩戴反了哦。
+参考链接：
+1）[https://gettr.com/post/pfmm0t7aa8](https://gettr.com/post/pfmm0t7aa8)
+2）[Legendary Rapper Ice Cube Quits Sony Film Over Covid Vaccine Mandate](https://www.infowars.com/posts/legendary-rapper-ice-cube-quits-sony-film-over-covid-vaccine-mandate/)
+3）[Jack Black Falls Hard for Ice Cube’s Mom in Oh Hell No](https://movieweb.com/oh-hell-no-jack-black-ice-cube/)
 
-马云：你懂啥？这叫“罩反”，我跟“蛤蛤”说好了“罩反”为号，我他马的要公开造反了!
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-保镖：高！实在是高！
+总编：瑞卡
+编辑：Irene 木木
+校正/发稿：谐趣园
 
-马云：把手机给我，开启群聊模式，接通马化腾和马明哲。（噔噔！链接成功）看我这造型别致不？
-
-马华腾：你反了啊？这造型不错，我们公司也要出个企鹅牌“造反口罩。”
-
-马明哲：这口罩看着质量不错，是3M的吧，你问问他们老板有没有兴趣当平安第一大股东？
-
-马云：少废话，我这在西班牙都要完球蛋了，你们两他马的造不造？
-
-马华腾，马明哲：歪…！歪…！我们这信号不好，等会儿放风的时候再聊……
-
-[盖特链接](https://www.gettr.com/post/peu6owe004)
-
-【德艺双馨艺术家】
-
-作者：perterwong
-
-插图：选自网络
-
-（朝阳居委会军情谍报处例行记者发布会现场）
-
-记者：请问李云迪是否潜规则女学员、女粉丝和女下属？
-
-发炎人：他单纯就是嫖娼。
-
-记者：他嫖资是贪污受贿来的吗？
-
-发炎人：是他自掏腰包。
-
-记者：他是否对失足妇女进行强迫交易？
-
-发炎人：他们公平交易，遵守了市场规则。
-
-记者：他是否有包小三，小四，小五，小六……
-
-发炎人：他目前是未婚。
-
-记者：本案是否是失足妇女揭发的？
-
-发炎人：（非常自豪的用鼻孔面对镜头）是我们朝阳大妈举报的！
-
-记者：那看来李云迪真是位“德艺双馨”艺术家，比很多官员都要高尚。
-
-发炎人：（瞪大了狗眼）送你一句话“顺我者昌，逆我者嫖娼！”
-
-[盖特链接](https://www.gettr.com/post/pey7enb305)
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10-1.png)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
