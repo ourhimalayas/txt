@@ -2,32 +2,26 @@
 ---
 
 
-## 辉瑞疫苗会引起红细胞缺氧和血红蛋白损伤
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1631414/)
+## 香草山翻译部周刊|2021年10月31日第20期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1631522/)
 
-**撰稿：日本东京方舟农场 北极**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
 
-据秘密翻译组10月29日发布在GNEWS的视频片段显示，理查德·弗莱明（Richard Fleming）博士发布了他在显微镜下观察到的惊人结果：将辉瑞疫苗滴入血液中，会引起红细胞缺氧和血红蛋白损伤，进而导致血液凝结。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/text-CN-2.png)
+文章仅代表作者本人观点，与Gnews无关
 
-弗莱明博士说，他分别将生理盐水和辉瑞疫苗滴入事先准备好的新鲜血液中，在显微镜下观察。可以看到辉瑞疫苗会导致红细胞不停地移动、稀释和红色变淡，并且红细胞渐渐聚集在一起凝结成块。而在相邻未混有疫苗的部分，血液依旧红色饱满和浓稠。反观将生理盐水滴入血液中，红细胞未发生任何变化。
+总编： GBWater
+编辑： Lakers
+发稿： Lakers
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/clv5ozsieny.jpg)图片来源：https://www.topitinfo.com/1629501.html
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-17.png)
 
-弗莱明博士解释说，血液中的红色是由于氧气和红细胞中的血红蛋白相结合的结果。将辉瑞疫苗滴在红细胞玻片上，红色变淡就表明氧气或血红蛋白受到损坏，细胞已经缺氧。而红细胞凝结成块，是由于炎症反应导致。博士表示，只用一两分钟就能清楚地看到辉瑞公司的疫苗液滴产生的明显效应。
-
-弗莱明博士说，这正是我们在疫苗不良反应报告中看到的情况，疫苗会导致体内产生血凝块。
-
-*参考链接：*
-
-
-
-> [科学实验显示辉瑞疫苗会引起血液缺氧或血红蛋白损伤](https://gnews.org/zh-hans/1626436/)
-
-
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

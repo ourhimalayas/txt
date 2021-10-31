@@ -2,26 +2,30 @@
 ---
 
 
-## 文贵视角:医师战友向郭文贵先生深深一鞠躬表达感谢
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1630810/)
+## GTV新闻访谈简报|2021年10月31日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1631093/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/AZ-8.jpg)
-**听从文贵先生备药的医师救了自己的妈妈**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
 
-10月27日，郭文贵先生在直播中转述了一位战友(也是医师)对他的感激之意。”七哥，我要向您深深地一鞠躬，因为您提醒我们要备药，本来是要救战友，没想到救了我自己的老娘!”
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-4-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-七月份偷偷打了一剂的老妈妈，三个月后的一个半夜突然水泻不止，并且毫无胃口。医师用了郭文贵先生建议的伊维菌素，两天之后水泻止住，第三天胃口也慢慢恢复。
+视频参看：2021.10.31早GTV新闻访谈
 
-**打疫苗致死的原因可能包括严重的水泻及失去食慾**
+[https://gtv.org/broadcast/watch/617e8c2c11d1862968fe1b9b](https://gtv.org/broadcast/watch/617e8c2c11d1862968fe1b9b)
 
-“伊维菌素对打过疫苗的副作用真的管用!”医师说，”另外，请七哥提醒战友，疫苗的副作用不只是心肌炎、脑中风，严重的水泻及持续无胃口可能也是打疫苗副作用致死的原因。”
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-一位马来西亚女子自制影片控诉，她的母亲因为打疫苗造成腹泻及丧失食慾，最后在医院孤独死去。她悲痛的提醒大家，打疫苗造成的腹泻及无食慾会导致死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-17.png)
 
-文贵先生不断在直播中提醒大家，疫苗的次生灾害才刚刚开始。最近频传的机师因为打疫苗而丧生，一些影视明星也因疫苗致死或者伤残。除了脑梗、心梗，疫苗的副作用可能还严重影响肠胃系统，导致受害者丧失生命，所有人都必须提高警觉。
-
-消息来源: [https://gtv.org/video/id=6175eb16247c5a3f908f92cc](https://gtv.org/video/id=6175eb16247c5a3f908f92cc)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

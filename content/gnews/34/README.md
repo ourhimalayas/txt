@@ -2,32 +2,49 @@
 ---
 
 
-## 德媒：疫情、经济和中共军事威胁考验日本新首相
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1631058/)
+## 中共百富环球在美遭FBI突击搜查
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631150/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-154.jpg)
-[图片来源](https://www.zaobao.com.sg/realtime/world/story20211004-1199918)
+作者：纽约香草山农场 – 飞虹
 
-十月初，前外相岸田文雄当选首相，并随即宣布了十月底举行众院选举的消息。
 
-很多政治分析人士认为，众院选举后，自民党能否保持多数地位并无把握。现年64岁的岸田文雄当选首相前曾承诺，将会推出新政，并投入大量资金以重振日本经济。不过，公众舆论普遍认为，岸田文雄仍会继续推行其前任菅义伟的政策。
 
-新首相岸田文雄的处境不容乐观。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-岸田文雄还承诺，将会强化中产阶级的地位，缩减其前任安倍晋三和菅义伟自由主义经济所造成的贫富差距。不过，岸田文雄本人宣扬的新资本主义政策，迄今为止并没有显露出实质效果。咨询公司穆迪分析 （Moody’s Analytics）的Stefan Angrick表示：“日本上亿选民对这位新首相的认可程度仍非常有限。”
 
-除疫情对经济造成的冲击之外，中共和朝鲜对日本构成的军事威胁，也是本次众院选举中最受选民关注的话题。
 
-目前岸田文雄的民意支持率只有大约50%，一旦自民党在本次选举中失去过多议席，那么岸田文雄本人的政治前景也将被画上问号。第二次世界大战以来，日本只有五位首相的任期达到或超过五年。
+10月29日，总部设在深圳的中共国百富环球科技有限公司发布声明，证实本周美国联邦调查人员突击搜查了该公司位于美国佛罗里达的办公室，一些物品被没收。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-179.jpg)
+据一位独立安全记者的信息，这次调查起因是，美国一家主要支付处理商对百富环球支付终端的异常网络数据包产生了疑问。数据包大小与他们应该发送的支付数据不匹配。有专家认为中共政府可能利用该公司的支付终端盗窃信息。
 
-信息来源：
+百富环球科技有限公司是中共国一家电子支付销售点终端供应商，产品供给全球数百万企业和零售商使用，在全球120 个国家和地区拥有数千万台销售终端。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1-11.jpg)
+参考链接：
+[疑涉网络攻击 中国百富环球在美遭FBI突击搜查](https://www.voachinese.com/a/pax-technology-fbi-20211029/6291462.html)
 
-[日本周日国会大选 新首相处境堪忧](https://www.dw.com/zh/%E6%97%A5%E6%9C%AC%E5%91%A8%E6%97%A5%E5%9B%BD%E4%BC%9A%E5%A4%A7%E9%80%89-%E6%96%B0%E9%A6%96%E7%9B%B8%E5%A4%84%E5%A2%83%E5%A0%AA%E5%BF%A7/a-59678181)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-校对：东京樱花团/
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)
+总编/编辑：木白
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

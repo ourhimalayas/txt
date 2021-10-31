@@ -2,30 +2,37 @@
 ---
 
 
-## “IPAC”罗马会议呼吁G20强硬对抗中共
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1631483/)
+## 喜马拉雅交易平台将正式发行加密货币“喜币HCN”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1631544/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+## **——西班牙一家百货商店贴出接受“喜马拉雅支付”**
 
-10月29日，由全球200多名国会议员组成的“对华政策跨国议会联盟”（IPAC）在罗马举行会议，要求20国集团（G20）将人权纳入议事日程，对中共采取更强硬立场。
+作者：yyshere
 
-据大纪元报道，在会议上，IPAC共同创办人、英国前保守党党魁邓肯·史密斯（Iain Duncan Smith）说，IPAC将呼吁各界关注“中国共产党对民主、人权和法治的系统性冲击”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ede97983b80ab1d9.jpg)网络图片
 
-他指出，冷战结束以来，还没有哪一个政权侵害人权的程度超越中共当局。有幸生活在自由世界的政治人物，往往误以为可与集权政府“讲道理”，但事实正好相反。“我们将在罗马提醒民主国家，他们有责任维护基于规则的国际秩序，这些规则是我们帮助形成的，现在正受到来自北京的威胁。”
+被定义为“全球首个真正意义上的加密货币生态系统”的喜马拉雅交易平台（Himalaya Exchange）发行的加密货币：喜马拉雅币（Himalaya Coin缩写HCN），将于格林威治时间11月1日上午11点11分正式上市交易。根据交易所官方网站的介绍，该系统的使命是“把权力还给用户，并重新定义货币”，让喜马拉雅币的持有者“在最值得信赖的加密货币交易平台，随时随地进行交易。”
 
-“真正的领导力意味着应对这些挑战，而不是假装它们不存在”，邓肯·史密斯说，“本届G20必须成为一个转折点，中共（问题）必须放在议程的首位。”
-![](https://assets.gnews.org/wp-content/uploads/2021/10/id13340228-GettyImages-1236160573-600x400-1.jpg)Uyghur human rights activist Rahima Mahmut (L) and Hong Kong activist and politician, chairman of Demosisto political party, Nathan Law , stand by a replica of the “Pillar of Shame” (C), a statue commemorating the 1989 Tiananmen Square Massacre, during a demonstration on October 27, 2021 outside the Chinese embassy in Rome, against the “Chinese governments dismantling of Hong Kongs democracy and autonomy” ahead of the G20 World Leaders Summit in Rome. (Photo by Andreas SOLARO / AFP) (Photo by ANDREAS SOLARO/AFP via Getty Images)
-比利时绿党议员科戈拉蒂（Samuel Cogolati）表示，当中共政权几乎每天入侵台湾空域，在维吾尔地区犯下暴行，并瓦解了香港的自由和自治时，我们不能继续与其“一切照旧”（business as usual）。他说：“在这次G20会议上，我们需要看到民主国家找到迄今为止一直缺乏的勇气和领导力。”
+而就在喜马拉雅币正式上市前一天的10月30日，一家位于西班牙首都马德里的百货商店OHBRICO，已经张贴出了接受“喜马拉雅支付”的标识。据悉，店主是一名华人，他透露自己已经是喜马拉雅交易平台的注册用户，并且看好这一全新的加密货币的前景。
 
-据悉，此次罗马会议是IPAC自2020年6月成立以来首次面对面会议。出席会议的有西藏流亡政府最高行政领导人（司政）边巴次仁（Penpa Tsering）、流亡伦敦的前香港立法会议员罗冠聪、世界维吾尔代表大会伦敦负责人马赫穆特（Rahima Mahmut）、英国前保守党党魁邓肯-史密斯（Iain Duncan Smith，港译施志安）、比利时绿党议员科戈拉蒂（Samuel Cogolati）、欧洲议会议员莱克斯曼（Miriam Lexmann） 、立陶宛社民党议员萨卡利埃内（Dovilė Šakalienė）、日本代表山尾志樱里、法国参议员安德烈·加托林（Andre Gattolin）、乌干达议员艾克罗（Lucy Akello）等。
+“我非常看好这个喜马拉雅币的前景，几个月之前我就已经注册了属于自己的喜马拉雅交易账户，并且通过了据说是全世界最严格的KYC，现在我已经在我的喜马拉雅交易账户里存好了喜马拉雅美元（Himalaya Dollar 缩写HDO），就等着明天（11月1日）喜币正式上市了……我是华人，据我所知，还有很多和我一样的华人都在等着这个喜币的上市，我们包括我们的家人都深知被管制的不自由，要知道在我的祖国，就是中国，自己挣的钱都不能自由支配，这回有了这个喜币，我们的钱就自由了……”
 
-*参考链接：*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20a13bede224d4a8-1.jpg)网络图片
 
-[中共破壞人權法治 IPAC促G20強硬應對](https://www.epochtimes.com/b5/21/10/30/n13340199.htm)
+店主还表示，他打出这个标识也是为了起到一个宣传作用，他说“我的这个百货店周边都是本地人，不知道有多少人知道喜币，我觉得打出这个标识，知道的人就会很开心地来使用新的交易方式，不知道的人就会从这里知道这个新的加密货币，就可能也加入这个交易平台，对我来说全是利好，我相信喜币一定有很大的升值空间……”
+
+校对/审核：仙女儿-文善
 
 * * *
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

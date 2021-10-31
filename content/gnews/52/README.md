@@ -2,24 +2,30 @@
 ---
 
 
-## 美国取代中国成为比特币挖矿中心
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1629863/)
+## 中共病毒重创日本旅游行业，多家旅行社巨头亏损将创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1630697/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-151.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fthumbor.ftacademy.cn%2Funsafe%2F900x506%2Fpicture%2F0%2F000127220_piclink.jpg&amp;imgrefurl=http%3A%2F%2Fwww.ftchinese.com%2Fstory%2F001094210%3Ffull%3Dy&amp;tbnid=y2Jzl5fpfZVTiM&amp;vet=12ahUKEwja-93HxPPzAhUMB5QKHSvhDgAQMygEegUIARC_AQ..i&amp;docid=7NEA3uEaQNRMwM&amp;w=900&amp;h=506&amp;q=%E7%BE%8E%E5%9B%BD%E5%8F%96%E4%BB%A3%E4%B8%AD%E5%9B%BD%E6%88%90%E4%B8%BA%E6%AF%94%E7%89%B9%E5%B8%81%E6%8C%96%E7%9F%BF%E4%B8%AD%E5%BF%83&amp;ved=2ahUKEwja-93HxPPzAhUMB5QKHSvhDgAQMygEegUIARC_AQ)
-目前全球超过三分之一的比特币挖矿计算能力来自在美国的机器，而去年春天这一比例还不到五分之一。美国正迅速崛起为新的全球比特币挖矿中心。
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-47.png)[图片来源](http://www.tripvivid.com/31280.html)
+受中共病毒疫情长期持续的影响，日本旅游行业的出入境游备受打击。旅游行业整体连续两年亏损，HIS、JTB、KNT等多家旅行社巨头亏损额将创新高。
 
-中共国政府实行打击行动后，许多挖矿公司正押注于美国的可靠能源供应以及更可预测的监管环境。据剑桥大学(University of Cambridge)的数据，目前全球超过三分之一的比特币挖矿计算能力来自在美国的机器，而去年春天这一比例还不到五分之一。
+日本旅行社巨头HIS于10月30日发布2020财年（2020年11月至2021年10月）业绩预期，合并财报净利润将出现530亿日元（约合人民币29.8亿元）亏损（上期为亏损250亿日元）。JTB等也在2020财年（2020年4月至2021年3月）合并财报中纷纷列入亏损，旅游业的困境愈发凸显出来。
 
-中共国此前一直是企业放置计算机以解锁新比特币的主要国家。但在今年5月，中共释放出将开始更广泛打击比特币挖矿和交易的信号，此举旨在确保政府对国内经济的控制。比特币挖矿已经成为一项利润丰厚的事业，目前一枚比特币的价格约为6万美元。为了获取新的比特币，功能强大的计算机竞相解决一系列数学难题，希望能解锁新的比特币，其中许多计算机都是一天24小时在线。
+旅行社巨头2020财年合并财报的净亏损中，JTB为1051亿日元，旗下拥有近畿日本旅游的KNT-CT控股为284亿日元。亏损额均创新高。
+
+财务状况恶化的三家公司已着手增加资本。HIS的创始人、董事长兼社长泽田秀雄等计划增加资本总计435亿日元。JTB在9月通过瑞穗银行等为对象进行第三方定向增发300亿日元。KNT曾一度陷入资不抵债，但6月其母公司近铁控股等同意第三方定向增发，提供了共计400亿日元的资本支持，缓解了经营危机。
+
+三家公司在增加资本的同时，JTB与HIS还售出了总部大楼，以及削减员工和关闭网点。HIS已决定不进行年度分红。
 
 信息来源：
 
-[美国取代中国成为比特币挖矿中心](https://cn.wsj.com/articles/%E7%BE%8E%E5%9B%BD%E5%8F%96%E4%BB%A3%E4%B8%AD%E5%9B%BD%E6%88%90%E4%B8%BA%E6%AF%94%E7%89%B9%E5%B8%81%E6%8C%96%E7%9F%BF%E4%B8%AD%E5%BF%83-11635401113)
+[HIS预计2020财年亏损530亿日元](https://china.kyodonews.net/news/2021/10/152299a2c1ae-his2020530.html)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

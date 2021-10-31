@@ -2,28 +2,33 @@
 ---
 
 
-## 有声|中共国早已研制出中共病毒的中和抗体
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1631324/)
+## 辉瑞疫苗会引起红细胞缺氧和血红蛋白损伤
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1631414/)
 
-配音：香草山美食部 – 玫瑰园
+**撰稿：日本东京方舟农场 北极**
 
-2021年8月30日，文贵先生在直播中提到，D-NAb是中共病毒的解药。NAb是中和抗体的英文缩写。
+据秘密翻译组10月29日发布在GNEWS的视频片段显示，理查德·弗莱明（Richard Fleming）博士发布了他在显微镜下观察到的惊人结果：将辉瑞疫苗滴入血液中，会引起红细胞缺氧和血红蛋白损伤，进而导致血液凝结。
 
-据中国生物物理学会的网站显示，早在2020年7月23日，中国科学院生物物理研究所及军事医学科学院等单位的研究成果就已经发表在美国《科学》杂志上。该文章报道了一种人源化单克隆抗体NAb，即H014，这种NAb通过与S受体结合域结合，能有效中和SARS-CoV-2。
+弗莱明博士说，他分别将生理盐水和辉瑞疫苗滴入事先准备好的新鲜血液中，在显微镜下观察。可以看到辉瑞疫苗会导致红细胞不停地移动、稀释和红色变淡，并且红细胞渐渐聚集在一起凝结成块。而在相邻未混有疫苗的部分，血液依旧红色饱满和浓稠。反观将生理盐水滴入血液中，红细胞未发生任何变化。
 
-文字版原文：[中共国早已研制出中共病毒的中和抗体](https://gnews.org/zh-hans/1627728/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/clv5ozsieny.jpg)图片来源：https://www.topitinfo.com/1629501.html
 
-音频处理：喜山必胜Maverick
+弗莱明博士解释说，血液中的红色是由于氧气和红细胞中的血红蛋白相结合的结果。将辉瑞疫苗滴在红细胞玻片上，红色变淡就表明氧气或血红蛋白受到损坏，细胞已经缺氧。而红细胞凝结成块，是由于炎症反应导致。博士表示，只用一两分钟就能清楚地看到辉瑞公司的疫苗液滴产生的明显效应。
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+弗莱明博士说，这正是我们在疫苗不良反应报告中看到的情况，疫苗会导致体内产生血凝块。
+
+*参考链接：*
+
+
+
+> [科学实验显示辉瑞疫苗会引起血液缺氧或血红蛋白损伤](https://gnews.org/zh-hans/1626436/)
+
+
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

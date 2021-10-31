@@ -2,47 +2,35 @@
 ---
 
 
-## 参议员布莱克本提出法案让工人免受疫苗强制令
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1630411/)
+## 打破先例！香港海关将检查进口传媒物品，中共对港意识形态管控再加剧
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1630758/)
 
-**据《一美新闻网》新闻室2021年10月29日报道**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/111-7-400x225.jpg)华盛顿特区 – 10 月 26 日：资深参议员玛莎·布莱克本（ Marsha Blackburn ）（共和党-田纳西州）在参议院消费者保护、产品安全和数据安全小组委员会发表讲话。 （塞缪尔·科鲁姆（Samuel Corum）/盖蒂图片社摄）
-参议员玛莎·布莱克本 (R-Tenn.) 推出了一项新措施，以保护美国的必不可少的工人在拒绝接种疫苗时不会受到处罚或被解雇。本周早些时候发布的名为“保持我们的抗中共病毒英雄就业法案”的立法提案，由多个州的共和党参议员共同发起。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-103.png)
+[图片来源](https://www.rfa.org/mandarin/yataibaodao/zhengzhi/QL-11022020035358.html)
 
-布莱克本表达了她对在大流行中为美国人冒着生命危险工作的，必不可少的工人的支持，并发布了一项措施，为不愿注射疫苗的敬业工人提供豁免。
+近日，香港海关新任关长何佩珊接受电视台访问时再次表示，要对入港书籍、杂志、日用品等“软对抗”物品进行防范打击。同时，强调“无惧就此打开先例”。
 
-布莱克本说：“在整个大流行期间，一个群体挺身而出。他们每天上班，以确保美国人能够在中共病毒大流行中幸存下来。他们的努力让美国继续运转，让这个国家保持繁荣。在全国各地，这些人被尊为我们这个时代的英雄。他们被认为是必不可少的工人”。
+何佩珊早前接受媒体采访时，也曾提到该议题。
+
+现在香港海关不会检查进口香港的书籍或文本的内容，何佩珊表示，“香港国安法本身已是先例，强调面对质疑指责，自己和同事都是无畏无惧”。
+
+至于如何判断物品是否属于“软对抗”，何佩珊表示会从整体考虑评估，包括具体内容、含意和当时社会状况等。
+
+郭文贵先生一直预警，中共接管香港，最终是要将香港内地化。
+
+在2019年以武力镇压并掌控香港后，中共对意识形态管控不断加严，包括对香港民众使用境外社交媒体的数据进行监控。如今又要开先例对进口书籍、影音和文本等物品进行查处，中共在香港制造的“白色恐怖”还在升级。
+
+信息来源：
+
+[香港海关关长何佩珊：无惧打开先例，打击书籍等“软对抗”物品输入](https://china.huanqiu.com/article/45Nq4xsZyjL)
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10.png)
 
 
 
-参议员玛莎布莱克本@MarshaBlackburn
-拜登的中共病毒疫苗授权将使社区没有足够的警察、消防员和医生来保证美国人的安全。
-KeepOurCOVIDHeroesEmployed
-2021 年 10 月 29 日
-
-
-
-
-
-> Biden’s COVID vaccine mandates will leave communities without enough police officers, firefighters and doctors to keep Americans safe. [#KeepOurCOVIDHeroesEmployed](https://twitter.com/hashtag/KeepOurCOVIDHeroesEmployed?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [October 29, 2021](https://twitter.com/MarshaBlackburn/status/1454110351881031685?ref_src=twsrc%5Etfw)
-
-
-
-
-
-该法案是在乔·拜登 ( Joe Biden ) 向全国范围内必不可少的工人发布疫苗强制令之后提出的，强制令要求他们在 12 月 8 日之前接种疫苗。布莱克本和她的选民们认为，我们应该为工人的英雄主义而喝彩和赞扬，而不是去“惩罚他们行使个人健康决定的自由”。
-
-与此同时，几位政界人士和企业主支持这位参议员，感谢她对于在当前的供应链危机中可能导致更多裁员的强制令的反对。
-
-原文链接：[https://www.oann.com/sen-blackburn-issues-bill-protecting-essential-workers-from-vaccine-mandates/](https://www.oann.com/sen-blackburn-issues-bill-protecting-essential-workers-from-vaccine-mandates/)
-
-* * *
-
-翻译：Nick
-校对：JS709
-编辑：烟波浩淼
-发布：文鸣
 
  
 

@@ -2,31 +2,32 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月31日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1631093/)
+## 美国政府乐见日本执政党在众议院选举中维持权力
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1631165/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/10/7-25.png)
+图片来自网络
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-4-1.png)
-文章仅代表作者本人观点，与Gnews无关
+据【华盛顿时事】31日报道，美国政府乐见执政党在众议院选举中能够维持权力。
 
-视频参看：2021.10.31早GTV新闻访谈
+随着与中共国的霸权之争愈演愈烈，岸田政府的对华政策受到密切关注。特别是日本增加国防开支的政策有望实现，将有助于加强美日的威慑力。
 
-[https://gtv.org/broadcast/watch/617e8c2c11d1862968fe1b9b](https://gtv.org/broadcast/watch/617e8c2c11d1862968fe1b9b)
+美国官员称自由民主党承诺将国防开支提高到至少占国内生产总值（GDP）的2%，这一承诺非常具有 “突破性”。被提名为下一任美国驻日本大使的前芝加哥市长伊曼纽尔，在授权听证会上也强调，”这是美日采购可互用武器以及制定战略的一个重要机会。未来可能会有扩大国防采购的压力。”
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+美方高度重视加强半导体等重要产品的供应链以及对知识产权的保护。注重安全的经济合作也将是美日关系的一个重点。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-17.png)
+另一方面，一些外交官认为，岸田文雄首相可能对拜登政府作为优先议题的气候变化问题兴趣不大，因为这个问题并没有在自民党的承诺中占据突出位置。因此，首相在英国格拉斯哥举行的《联合国气候变化框架公约》（UNFCCC）第26次缔约方大会（COP26）上的讲话可能会受到密切关注。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+新冠病毒的爆发以及在全世界范围的蔓延中，中共的隐瞒与欺骗的丑恶嘴脸已暴露无遗，正义的力量终会集结。坚定的美日同盟也会在新中国联邦正义的感召下，求同存异，为了自由民主的普世价值，一起敲响独裁主义的丧钟，真正解放中国人！
 
+信息来源：
+
+[米政府、与党勢力維持を歓迎＝対中国、防衛費増に期待―海外反響【21衆院選】](https://news.yahoo.co.jp/articles/029a6d431659e31d2d26c524be6f9c85c8ffe3e5)
+
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
