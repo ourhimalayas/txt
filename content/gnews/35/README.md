@@ -2,26 +2,21 @@
 ---
 
 
-## 传奇说唱歌手冰块因强制疫苗政策辞演索尼影业新片
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631160/)
+## GClubs开通喜美元支付功能
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631210/)
 
-作者：纽约香草山信息部- 诺雅
+作者：美东香草山农场 – 文真
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据10月30日盖特消息报道，因为拒绝制片人对新冠疫苗接种的要求，顶级说唱歌手Ice Cube ，又称冰块，本名奥谢-杰克逊，决定退出明年7月上映的索尼公司喜剧《哦，见鬼了》。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9-7.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide8-12.jpeg)
+10月29日，GClubs正式宣布，GClubs平台全面整合喜美元支付功能。喜美元将于11月1日正式发行。会员可选择喜美元支付会员年费、升级会员卡，以及购买新卡。当出现选择喜美元支付的页面后，会员随即获取喜美元支付订单号，以此完成支付。喜美元利用一流科技，确保在世界任何地方进行安全可靠的支付。
 
-报道中提到，该影片于今年6月开始制作，索尼影业邀请知名喜剧导演樱井喜多雄执导，由喜剧界的重磅人物杰克-布莱克和冰块联合出演。据了解，该片原本计划于今年冬天在夏威夷开始拍摄，冰块本人将获得九百万美元的片酬。但制片人的疫苗接种要求，导致了冰块的退出，工作室正在寻找替代者，电影制作已经推后。
-
-参考链接：
-1）[https://gettr.com/post/pfmm0t7aa8](https://gettr.com/post/pfmm0t7aa8)
-2）[Legendary Rapper Ice Cube Quits Sony Film Over Covid Vaccine Mandate](https://www.infowars.com/posts/legendary-rapper-ice-cube-quits-sony-film-over-covid-vaccine-mandate/)
-3）[Jack Black Falls Hard for Ice Cube’s Mom in Oh Hell No](https://movieweb.com/oh-hell-no-jack-black-ice-cube/)
+参考链接：GClubs邮件
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-总编：瑞卡
-编辑：Irene 木木
+总编：Ivy001
+编辑：Ivy001
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

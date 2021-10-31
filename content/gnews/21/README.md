@@ -2,34 +2,39 @@
 ---
 
 
-## 有声|HIMALAYA COIN TO THE MOON
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1631345/)
+## 美航因人员短缺和“恶劣天气”取消1400个航班
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1631397/)
 
-配音：香草山教育部 – 浪迹天涯
+**翻译：lulumi**
 
-老百姓创造的价值和财富，一直用传统法币系统比如美元、人民币来存储和衡量。现在所有货币系统因为和黄金脱钩后，任意放飞，全世界货币超发GDP 的300%多，各国早已债台高筑，特别在CCP病毒、疫苗造成全球生产停摆、梗阻后，各国继续无锚印钞，加速债务崩塌的到来。在这个人类历史的十字路口上，喜马拉雅币的横空出世在虚拟加密货币迅速抢占未来货币金融体系的洪流中独树一帜。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip109.png)*2020年11月25日，美国伊利诺伊州芝加哥，在冠状病毒病（COVID-19）大流行期间，美国航空代理在奥黑尔国际机场帮助一名顾客办理登机手续。REUTERS/Kamil Krzaczynski*
 
-喜马拉雅币是一种基于区块链以太坊ERC1404协议发行的加密代币，利用混合区块链以太坊和Quorum技术，其智能合约配备专业审计保障，实现大量、安全、快速且低成本的金融交易。其独特的Himalaya dollar和Himalaya coin的双币组合设计，使她能对抗现有加密货币市场的波动性，极大的弥补了现有加密货币基础设施的不足。
+10月30日路透社报道：美国航空公司周六表示，由于人员短缺和不利的天气，周末已经取消了1400多个航班。
 
-喜马拉雅币的发行方——喜马拉雅联储对其用户采用最高级别的KYC验证机制，并严格遵守合法的交易规则，在法律监管上给予全球会员和监管者强大的信心，极大地降低非法交易的风险。同时在技术上她采用军用级别的网络安全协议，以确保提供准确、可靠的分类记账，高效的数字资产保护，喜币生态系统内的无缝资产恢复，以及会员信息的隐私保护。
+美国航空公司表示，除了周五取消的376个航班外，周六取消了551个航班，周日取消了480个航班。航班跟踪网站FlightAware说，自周五以来，美航还推迟了1000多个航班。
 
-喜马拉雅货币与其他加密数字货币最大的不同，就是其背后庞大的喜马拉雅生态系统。已经诞生的G|Fashion、GTV、Gettr, 以及未来将出世的G|Mall等一系列的电子商务、社交媒体平台将成为世界上一个全方位的新兴数字经济生态系统，而喜马拉雅币就是这个生态系统中流动的血液。这个生态系统将拥有喜马拉雅联储和Gclub等全球高质量客户，各国商家和品牌将无缝对接这个超越国家和政治壁垒的超级市场，其创造的价值和资本直接存储于喜马拉雅的金融体系中，安全、自由、低成本地流通，并将稳定、持续、长期地增长。
+航空公司在一份声明中说：“随着整个系统天气状况的增加，我们的人员配置开始变得紧张，因为机组成员无法按照他们的正常飞行序列排班。”
 
-对未来喜马拉雅经济生态的市场预估，以及喜马拉雅币背后强大的实力背书，喜马拉雅币发行总量为1000亿枚，每年10亿枚分100年发行。在布雷顿森林体系解体后，货币首次重新与黄金挂钩，为世界货币滥发、债台高筑并即将崩溃的今天提供一个全新的货币系统解决方案。除首次发行外，未来的发行都将由市场决定，无论是币的数量还是价格，完全公开透明，解决货币滥发、超发操纵市场的世纪难题！
+该公司说，预计将很快度过这段不正常的运营期。
 
-文字版原文：[HIMALAYA COIN TO THE MOON](https://gnews.org/zh-hans/1627418/)
+在繁忙的假日旅游季节来临之前，航空公司正在努力招聘更多的员工。
 
-音频处理：喜山必胜Maverick
+美国航空说，它正在增加所有业务的人员编制，近1800名空姐休假后返回，600多名新招聘的空姐将在12月底前上岗。
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+西南航空也表示，它正在积极招聘，目的是在今年年底前，拥有约5000名新员工。
+
+本月早些时候，西南航空公司在三天时间内取消了近2400个航班，归罪于佛罗里达州的不利天气和空中交通问题。
+
+**新闻来源**：[**reuters.com**] [American Airlines cancels 1,400 flights due to staff shortages, bad weather](https://www.reuters.com/business/aerospace-defense/american-airlines-cancels-flights-due-staff-shortages-bad-weather-2021-10-30/)
+
+* * *
+
+***审核：文乐
+校对：信心满满
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-2.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

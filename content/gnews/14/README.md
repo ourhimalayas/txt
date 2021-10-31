@@ -2,54 +2,30 @@
 ---
 
 
-## 布林肯警告中共不要对台湾采取单方面行动
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1631465/)
+## “IPAC”罗马会议呼吁G20强硬对抗中共
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1631483/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/C-8.jpg)thailanddaily.com
-《日经》（The Nikkei）转发路透社发表的文章，题目是“布林肯警告中共不要对台湾采取单方面行动”。【1】
+10月29日，由全球200多名国会议员组成的“对华政策跨国议会联盟”（IPAC）在罗马举行会议，要求20国集团（G20）将人权纳入议事日程，对中共采取更强硬立场。
 
-全文如下：
+据大纪元报道，在会议上，IPAC共同创办人、英国前保守党党魁邓肯·史密斯（Iain Duncan Smith）说，IPAC将呼吁各界关注“中国共产党对民主、人权和法治的系统性冲击”。
 
-路透社罗马报道，美国国务院一位高级官员说，美国国务卿安东尼·布林肯周日（10月31日）对中共外交部长表示，美国反对中共加剧台湾海峡紧张局势的行动。
+他指出，冷战结束以来，还没有哪一个政权侵害人权的程度超越中共当局。有幸生活在自由世界的政治人物，往往误以为可与集权政府“讲道理”，但事实正好相反。“我们将在罗马提醒民主国家，他们有责任维护基于规则的国际秩序，这些规则是我们帮助形成的，现在正受到来自北京的威胁。”
 
-这位官员说，布林肯在20国集团峰会期间与中共外交部长王毅进行了长达一小时的会晤，他“非常明确”地表示，华盛顿反对北京单方面改变台海那里的现状。
+“真正的领导力意味着应对这些挑战，而不是假装它们不存在”，邓肯·史密斯说，“本届G20必须成为一个转折点，中共（问题）必须放在议程的首位。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/id13340228-GettyImages-1236160573-600x400-1.jpg)Uyghur human rights activist Rahima Mahmut (L) and Hong Kong activist and politician, chairman of Demosisto political party, Nathan Law , stand by a replica of the “Pillar of Shame” (C), a statue commemorating the 1989 Tiananmen Square Massacre, during a demonstration on October 27, 2021 outside the Chinese embassy in Rome, against the “Chinese governments dismantling of Hong Kongs democracy and autonomy” ahead of the G20 World Leaders Summit in Rome. (Photo by Andreas SOLARO / AFP) (Photo by ANDREAS SOLARO/AFP via Getty Images)
+比利时绿党议员科戈拉蒂（Samuel Cogolati）表示，当中共政权几乎每天入侵台湾空域，在维吾尔地区犯下暴行，并瓦解了香港的自由和自治时，我们不能继续与其“一切照旧”（business as usual）。他说：“在这次G20会议上，我们需要看到民主国家找到迄今为止一直缺乏的勇气和领导力。”
 
-最近中共在台湾防空识别区的军事演习有所增加，这是台北认为北京加强军事骚扰的一部分。中共声称该岛是其领土的一部分，并认为任何外国对台湾的干涉都是对其内政的干涉。
+据悉，此次罗马会议是IPAC自2020年6月成立以来首次面对面会议。出席会议的有西藏流亡政府最高行政领导人（司政）边巴次仁（Penpa Tsering）、流亡伦敦的前香港立法会议员罗冠聪、世界维吾尔代表大会伦敦负责人马赫穆特（Rahima Mahmut）、英国前保守党党魁邓肯-史密斯（Iain Duncan Smith，港译施志安）、比利时绿党议员科戈拉蒂（Samuel Cogolati）、欧洲议会议员莱克斯曼（Miriam Lexmann） 、立陶宛社民党议员萨卡利埃内（Dovilė Šakalienė）、日本代表山尾志樱里、法国参议员安德烈·加托林（Andre Gattolin）、乌干达议员艾克罗（Lucy Akello）等。
 
-这位国务院官员表示，美国希望负责任地管理世界两大经济体之间的激烈竞争，并补充说，双方都承认开放的沟通渠道至关重要。
+*参考链接：*
 
-布林肯和王毅的会面是他们自3月份在阿拉斯加州安克拉奇（Anchorage）激烈交锋以来的第一次面对面会晤，当时美国和中共官员罕见地公开谴责对方的国家政策。
+[中共破壞人權法治 IPAC促G20強硬應對](https://www.epochtimes.com/b5/21/10/30/n13340199.htm)
 
-这位官员说，星期日（10月31日）在罗马举行的会议“非常坦率”但富有成效，有助于为今年晚些时候美国总统拜登和中共习近平主席举行虚拟峰会奠定了基础。
+* * *
 
-与大多数国家一样，美国与台湾没有正式外交关系，但华盛顿是台湾最重要的国际支持者和主要武器供应商，法律要求它提供自卫手段。
-
-美国长期以来一直奉行“战略模糊”的政策，即在如果中共发动袭击美国是否会进行军事干预以保护台湾问题上没有明确，尽管拜登上周表示，如果有必要美国将保护台湾。
-
-这位官员说，布林肯明确表示，华盛顿没有改变其对台湾的“一中”政策。
-
-这位官员说，下周将出席在格拉斯哥（Glasgow）举行的COP26联合国气候大会的美国高级外交官敦促中共国履行其作为负责任大国在限制排放方面的义务。
-
-美国务院还表示，他还担心中共其他“破坏了国际规则秩序，违背了我们的价值观和利益” 的行为，包括人权问题、新疆、西藏、香港问题以及东海、南中国海问题。
-
-这位官员说，布林肯和王毅没有讨论中共国最近进行的一次高超音速武器试验，军事专家说，这一试验似乎表明，北京正在寻求一种旨在躲避美国导弹防御的地球轨道系统。
-
-（原文完）
-
-笔者对媒体高调渲染布林肯的这种表态有点怀疑，于是查找了美国国务院的新闻稿，以下是新闻稿全文：【2】
-
-美国国务卿安东尼·布林肯今天（10月31日）在罗马会见了中共国务委员兼外交部长王毅，布林肯国务卿强调了保持开放的沟通渠道，以及负责任地管理美国和中共国之间的竞争的重要性。国务卿肯定了我们利益交汇的领域以及我们可以合作的领域，包括朝鲜、缅甸、伊朗、阿富汗和气候危机。他还对中共国的一些行动提出了担忧，这些行为破坏了国际规则秩序，违背了我们的价值观和利益，也违背了我们的盟友和伙伴，包括人权问题，新疆、西藏、香港问题，东海、南中国海和台湾等方面的行动。
-
-国务院稿的确没有像路透社说得那样强硬，“警告中共不要对台湾”，甚至不敢把台湾问题单列强调，只能说明美国国务院、拜登政府某种程度上的恐共、惧共。当然，《日经》等媒体也不会无中生有，空穴来风，布林肯一定作了这样的表达，只不过在怯共心态下官方发布时又改了调门。
-
-有关链接：
-
-【1】[https://asia.nikkei.com/Spotlight/G-20-summit-2/Blinken-warns-China-against-unilateral-action-regarding-Taiwan](https://asia.nikkei.com/Spotlight/G-20-summit-2/Blinken-warns-China-against-unilateral-action-regarding-Taiwan)
-
-【2】[https://www.state.gov/secretary-blinkens-meeting-with-prc-state-councilor-and-foreign-minister-wang/](https://www.state.gov/secretary-blinkens-meeting-with-prc-state-councilor-and-foreign-minister-wang/)
+*编辑：文顺 校对：Ranting 发布：Ranting*
 
  
 

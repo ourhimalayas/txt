@@ -2,29 +2,26 @@
 ---
 
 
-## 多达1.2万名美国空军人员拒绝接种新冠疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631121/)
+## 传奇说唱歌手冰块因强制疫苗政策辞演索尼影业新片
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631160/)
 
-作者：美东香草山农场 -文真
+作者：纽约香草山信息部- 诺雅
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月2日是美军疫苗接种的最后期限，据统计，大约有1.2万名美国空军人员拒绝接种新冠疫苗。
+据10月30日盖特消息报道，因为拒绝制片人对新冠疫苗接种的要求，顶级说唱歌手Ice Cube ，又称冰块，本名奥谢-杰克逊，决定退出明年7月上映的索尼公司喜剧《哦，见鬼了》。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-15.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide8-12.jpeg)
 
-官员们曾警告说，如果军事人员不接种新冠疫苗，他们将面临惩罚：包括被开除军籍，或受到军事司法指控。
-
-由于有如此多的现役军人拒绝接种疫苗，解雇这些军人，将会导致飞行员和飞机维修人员的岗位空缺。一旦有危机发生，会直接影响美国空军的战斗力，现在，美军官员们正面临着两难的境地。
-
-空军是美军的第三大军种，有 32万4000 名军人，即使是1.2万人的损失，也是难以承受的挫折。
+报道中提到，该影片于今年6月开始制作，索尼影业邀请知名喜剧导演樱井喜多雄执导，由喜剧界的重磅人物杰克-布莱克和冰块联合出演。据了解，该片原本计划于今年冬天在夏威夷开始拍摄，冰块本人将获得九百万美元的片酬。但制片人的疫苗接种要求，导致了冰块的退出，工作室正在寻找替代者，电影制作已经推后。
 
 参考链接：
-1）[Up to 12,000 Air Force personnel have rejected vaccine orders: report](https://thehill.com/homenews/news/579066-up-to-12000-air-force-personnel-have-rejected-vaccine-orders-report)
-2）[https://gettr.com/post/pfmftf5148](https://gettr.com/post/pfmftf5148)
+1）[https://gettr.com/post/pfmm0t7aa8](https://gettr.com/post/pfmm0t7aa8)
+2）[Legendary Rapper Ice Cube Quits Sony Film Over Covid Vaccine Mandate](https://www.infowars.com/posts/legendary-rapper-ice-cube-quits-sony-film-over-covid-vaccine-mandate/)
+3）[Jack Black Falls Hard for Ice Cube’s Mom in Oh Hell No](https://movieweb.com/oh-hell-no-jack-black-ice-cube/)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-总编：Jack Li文阳
-编辑：Jack Li文阳
+总编：瑞卡
+编辑：Irene 木木
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -34,8 +31,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
