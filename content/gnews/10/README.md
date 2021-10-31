@@ -2,8 +2,8 @@
 ---
 
 
-## 视频| 未来已至，你准备好了么？
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1630005/)
+## 视频| 喜币，通向未来的数字货币
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1630013/)
 
 制作：香草山视频部
 

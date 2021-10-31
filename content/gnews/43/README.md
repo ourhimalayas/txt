@@ -2,40 +2,39 @@
 ---
 
 
-## DC每日热点1030
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1629382/)
+## 喜币上市实现新中国联邦人同资产、同富裕、同利益的命运共同体
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1629432/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/10/AAE20AE4-ADBE-4F68-B0A4-0DC0ED1BD54B-scaled.jpeg)
-道琼斯指数 35819.56 ▲0.25%
-纳斯达克指数 15498.39 ▲0.33%
-WTI纽约原油CFD 82.175 ▼0.77%
-布伦特原油CFD 83.164 ▼0.59%
-标普中概股50指数 3,590.84CNY▼18.74%
-美元兑人民币 1USD=6.401RMB
-美元兑港币 1USD=7.777HKD
-国际黄金 1783.38美元/盎司
-全球CCP病毒感染人数 246,938,125 例
+作者：香草山农场 – 恩永存
 
-1、美最高法院拒绝阻止缅因州疫苗接种规定
-2、美情报界发表更新报告：可能永远无法确定新冠病毒起源
-3、今年万圣夜白宫将不主办邀请孩子来要糖的活动
-4、疑涉网络攻击 总部在深圳的中国百富环球科技有限公司在美遭FBI突击搜查
-5、突出绿色 中共国重启“一带一路”倡议
-6、FDA批准为儿童紧急使用辉瑞新冠疫苗
-7、美国总统拜登在梵蒂冈与教宗方济各会面
-8、格力电器因未报告危险产品在美受刑诉 同意支付9100万美元罚款
-9、格拉斯哥气候峰会前，约翰逊与习近平通电话，敦促提升减排目标
-10、缅甸军政府法庭以叛国罪判处昂山素季助手20年监禁
-11、中共控制瓦罕走廊防卫新疆 利用阿富汗局势加强在帕米尔高原的存在
-12、钢琴家李云迪将获释 或离开中共国内地
-13、冬奥主办国中共国男子冰球队或因欠缺水准被取消参赛资格
-14、拜登放弃对美国亿万富翁征收“富人税”
-15、受美国制裁影响 华为前三季销售减三分之一
-16、腾讯拟收购英国游戏开发公司 美国审查
-17、报告：中共军方AI供应商 仅8%被美出口管制
-18、澳大利亚发布全新《2021 年移民规例修订（香港）法例》，降低港人移居澳洲门槛
-19、罗马20国集团峰会开幕，习近平普京选择视频与会
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+
+
+
+郭文贵先生在10月29日大直播中告诉新中国联邦人：11月1日我们将有新的关系。共同的资产，共同的富裕，共同的利益——我们成了真正的命运共同体。我们是战友，是兄弟姐妹，如亲人。我们为了实现自由，民主，法制，以及充满大爱的国度而共同努力，喜迎新时代！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture6-6.jpg)
+喜币一直让CCP恐惧，因此他们使出各种邪恶手段禁止中国人拥有；喜币使伪类嫉妒，因此他们在网络上恶言攻击；喜币让爆料革命里的叛徒后悔，因此他们颠倒是非的背后是“哭晕在厕所”。
+
+爆料革命战友紧随郭先生，坚定信念，为了建立自由，民主，法制的新中国联邦与CCP恶魔斗智斗勇，冲破重重阻碍，收获喜币，将迎来荣美人生。
+
+参考链接：[喜币上市实现新中国联邦人同资产、同富裕、同利益的命运共同体](https://gettr.com/post/pfj5788ec5)
+
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：木白
+编辑：木白
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
 
  
 

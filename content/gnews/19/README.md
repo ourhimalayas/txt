@@ -2,20 +2,20 @@
 ---
 
 
-## 美国取代中国成为比特币挖矿中心
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1629863/)
+## 中共继续向世界散布毒疫苗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1629927/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-151.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fthumbor.ftacademy.cn%2Funsafe%2F900x506%2Fpicture%2F0%2F000127220_piclink.jpg&amp;imgrefurl=http%3A%2F%2Fwww.ftchinese.com%2Fstory%2F001094210%3Ffull%3Dy&amp;tbnid=y2Jzl5fpfZVTiM&amp;vet=12ahUKEwja-93HxPPzAhUMB5QKHSvhDgAQMygEegUIARC_AQ..i&amp;docid=7NEA3uEaQNRMwM&amp;w=900&amp;h=506&amp;q=%E7%BE%8E%E5%9B%BD%E5%8F%96%E4%BB%A3%E4%B8%AD%E5%9B%BD%E6%88%90%E4%B8%BA%E6%AF%94%E7%89%B9%E5%B8%81%E6%8C%96%E7%9F%BF%E4%B8%AD%E5%BF%83&amp;ved=2ahUKEwja-93HxPPzAhUMB5QKHSvhDgAQMygEegUIARC_AQ)
-目前全球超过三分之一的比特币挖矿计算能力来自在美国的机器，而去年春天这一比例还不到五分之一。美国正迅速崛起为新的全球比特币挖矿中心。
+#### 撰稿：东京樱花团/闻雨
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-45.png)
+每日新闻 据新华社报道：10月30日，中共党魁习近平在意大利罗马举行的20国集团峰会上通过视频发表了讲话。习近平强调，关于新冠病毒的问题，“团结合作是最有力的武器”，并呼吁在疫苗供应和开发方面开展国际合作。他还重申，他反对把中共病毒来源“政治化”，认为这有违团结精神。
 
-中共国政府实行打击行动后，许多挖矿公司正押注于美国的可靠能源供应以及更可预测的监管环境。据剑桥大学(University of Cambridge)的数据，目前全球超过三分之一的比特币挖矿计算能力来自在美国的机器，而去年春天这一比例还不到五分之一。
+在疫苗问题上，习近平强调，中共国已经向100多个国家和国际组织提供了超过16亿剂的疫苗，并将在今年年底前提供超过20亿剂的疫苗。他还透露，中共国已经在16个国家建立了生产基地进行联合生产，突出了中共国的国际贡献。
 
-中共国此前一直是企业放置计算机以解锁新比特币的主要国家。但在今年5月，中共释放出将开始更广泛打击比特币挖矿和交易的信号，此举旨在确保政府对国内经济的控制。比特币挖矿已经成为一项利润丰厚的事业，目前一枚比特币的价格约为6万美元。为了获取新的比特币，功能强大的计算机竞相解决一系列数学难题，希望能解锁新的比特币，其中许多计算机都是一天24小时在线。
+中共不仅逼迫中共国的老百姓打他的毒疫苗，现在还在持续不断地把魔爪伸向世界上的其他国家，继续提供他们的毒疫苗。在中共国的历史上，他从来没有研发过一剂安全合格的疫苗，你相信他生产的新冠病毒疫苗吗？
 
 信息来源：
 
-[美国取代中国成为比特币挖矿中心](https://cn.wsj.com/articles/%E7%BE%8E%E5%9B%BD%E5%8F%96%E4%BB%A3%E4%B8%AD%E5%9B%BD%E6%88%90%E4%B8%BA%E6%AF%94%E7%89%B9%E5%B8%81%E6%8C%96%E7%9F%BF%E4%B8%AD%E5%BF%83-11635401113)
+[習氏、G20にビデオで参加　ワクチン国際協力呼びかけ](https://mainichi.jp/articles/20211031/k00/00m/030/024000)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

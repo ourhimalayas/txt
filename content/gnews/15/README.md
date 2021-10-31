@@ -2,26 +2,79 @@
 ---
 
 
-## 新书《真正的安东尼·福奇》11月9日上市
-` 滴水穿石` [轉載自GNews](https://gnews.org/zh-hans/1629960/)
+## 青蒿素与恶性肿瘤的治疗
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1629973/)
 
-#### 译编： 洛杉矶盘古农场 滴水穿石
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-30-9.20.11-PM-edited.png)图片源：thdefense.org
-**点评：***** **神奇其邪恶力量大医药集团一起配合中共，试点释放病毒，以“研究疫苗“之名，用贫困国家的人口进行试验，以获取“预防”这些疾病的“疫苗”。但这些疫苗的副作用是导致这些接种者有大量死亡与残疾伤害。 邪恶组织与医药利益集团用各种疫苗消灭“劣质人口”与不顺服邪恶力量统治者，此计划已经被他们做了十几年的布局，美国的医学教父福奇是计划中的执行者，这些邪恶组织用各种疫苗生化武器消灭低端与残障人口的计划，正是他们对世界推行的大重启计划。*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-1.png)
 
-**11 月 9 日，[儿童健康保护](https://childrenshealthdefense.org/)主席小罗伯特·肯尼迪 (Robert F. Kennedy, Jr.) 将[出版](https://www.amazon.com/Real-Anthony-Fauci-Democracy-Childrens/dp/1510766804)他的[新书](https://www.amazon.com/Real-Anthony-Fauci-Democracy-Childrens/dp/1510766804)——《真正的安东尼·福奇：比尔·盖茨、大型制药公司以及全球民主和公共卫生战争》。**书中揭露安东尼·福奇博士是50年统治美国公共卫生的沙皇及其造成了的灾难性后果 。
+主讲：纽约香草山医疗部 文恩 文紫
 
-[安东尼·福奇博士](https://childrenshealthdefense.org/defender/fauci-kristian-andersen-emails-manipulation-deception/)作为美国国家过敏症和传染病研究所 (NIAID) 的主任，每年为科学研究支配[61 亿美元](https://www.niaid.nih.gov/grants-contracts/budget-updates-january-2021)的美国纳税人资金。新书揭示了福奇和他的制药团队如何从疾病中获得丰厚的利润。
+恶性肿瘤是一个很复杂的过程，恶性肿瘤的发展是人体细胞在外界环境长期作用下，基因损伤和突变经年积累的结果。从正常细胞发展到癌细胞通常需要十几到几十年。它的一大特性是突变的肿瘤细胞躲过了检测点，带着残缺的身躯可以继续复制，不但复制，还获得了生长的优势，使突变细胞无限制的快速生长。肿瘤的多阶段癌变过程：突变、增生、不典型增生、原位癌、侵袭癌，**如下图**：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-579.png)
+外科治疗是肿瘤治疗中最古老的方法之一，也是目前治疗实体肿瘤最有效的方法和最重要的手段，大约60%以上的恶性肿瘤以手术为其主要治疗手段，但有一些情况不适合手术治疗，比如肿瘤细胞生长在血管周围，或发现较晚，已分布到全身其它脏器或已遍布全部机体，淋巴瘤和血液肿瘤也是不能通过手术切除来治疗的恶性肿瘤。现代肿瘤学的百余年历程中，先后实现了三次革命性的突破。
 
-这么多年纳税人资金被福奇支出分配，让他有过度的权利“独立”批准和授权的药物和疫苗，以及成为联邦表面上的“知识与创新”的领导人，军队实行独裁统治-包括允许该委员会[紧急使用授权](https://www.fda.gov/emergency-preparedness-and-response/mcm-legal-regulatory-and-policy-framework/emergency-use-authorization)的[COVID- 19种](https://childrenshealthdefense.org/defender_category/covid/)疫苗。
+1. 第一次是细胞毒性化疗药物的发现，改变了肿瘤依靠手术和放疗的局面
+2. 第二次是靶向治疗，提高了抗肿瘤药物的治疗指数，为精准医疗奠定了基础
+3. 第三次就是调动患者全身天然免疫功能的免疫疗法
 
-福奇并没有解决美国慢性病的增加问题，而是通过开发新药和疫苗，将美国国家过敏症和传染病研究所（NIAID ）从世界级监管机构转变为[大型制药公司](https://childrenshealthdefense.org/defender_category/big-pharma/)的产品孵化器，他、他的机构和他的员工经常分享专利和特许权使用费。
 
-福奇一而再，再而三地[违反联邦法律](https://www.altheal.org/toxicity/house.htm)，允许他的制药合作伙伴使用贫困和黑皮肤的儿童作为实验室老鼠，进行有毒艾滋病和癌症化学疗法的致命实验。尤其是对儿童和孕妇，福奇对非洲人进行的一长串[不道德和种族灭绝实验](https://justthenews.com/accountability/political-ethics/fauci-says-americans-should-trust-doctors-himself-his-career)在整个非洲大陆造成了混乱和悲剧。
+下面着重讲解免疫疗法**（图示）**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-580.png)
+在免疫治疗里面最著名的也是获得诺贝尔奖的是发现了CTLA-4，为什么机体可以容忍肿瘤细胞在机体内不断的繁衍生殖，抢占正常细胞的空间，原因是免疫细胞的不作为造成的。当细菌或损伤的细胞出现时，免疫细胞会发现并可激活机体的免疫系统，而CTLA-4抑制了免疫T细胞的功能，肿瘤细胞没有被T细胞识别，从而造成免疫细胞不对肿瘤细胞进行攻击。科学家根据这样的特性而发明了抗CTLA-4的抗体，从而抑制了CTLA-4以增强T细胞识别肿瘤细胞的功能，从而提高免疫功能。中国科学家发现的PD-1与CTLA-4相类似，当出现肿瘤细胞，由于出现了PD-1,也会降低T细胞的敏感度，由此发明了抗PD-1的抗体，从而通过抑制PD-1的活性而增强T细胞的活性，提高了免疫系统对肿瘤细胞的识别度。其缺陷是：无论PD-1还是CTLA-4，要想区别于其它细胞，是很难做到的，在肿瘤细胞里面也是极少数类型肿瘤有极少数的例子会出现这两个分子的高表达，而大多数人，包括现在正在治疗的肿瘤中，这两类细胞高表达是很少见的。
 
-总之，福奇和比尔·盖茨资助的**每种疫苗**——[脊髓灰质炎](https://abcnews.go.com/Health/wireStory/polio-cases-now-caused-vaccine-wild-virus-67287290)、[百](https://www.scirp.org/journal/paperinformation.aspx?paperid=81838)[白破](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5360569/)、[疟疾](https://www.sciencemag.org/news/2019/11/first-malaria-vaccine-rolled-out-africa-despite-limited-efficacy-and-nagging-safety)、[脑膜炎](http://www.laleva.org/eng/2013/01/minimum_of_40_children_paralyzed_after_new_meningitis_vaccine.html)、[破伤风](https://www.scirp.org/journal/paperinformation.aspx?paperid=81838)和[艾滋病毒](https://www.vera.org/downloads/Publications/the-experiences-of-new-york-city-foster-children-in-hiv-aids-clinical-trials/legacy_downloads/Experiences_of_NYC_Foster_Children_in_HIV-AIDS_Clinical_Trials_FINAL_appendices.pdf)——在世界各地造成接种这些疫苗导致的[伤害](http://www.branapress.com/2019/10/10/unicef-is-making-women-barren-through-polio-vaccine-african-nations-should-be-alert-kenyan-doctors-say/)和死亡数目可能要远远超过他们接种疫苗所能避免的。
+青蒿琥酯具有强大的抗肿瘤活性，其抗肿瘤机制多种多样
 
-2021年10月31日
+- 诱导DNA损伤并抑制DNA损伤修复（肿瘤细胞死亡）
+- 青蒿琥酯通过抑制DNA损伤修复使宫颈癌细胞和食管癌细胞对放疗敏感。青蒿琥酯抑制RAD51和ATM/ATR损伤反应，影响卵巢癌的DNA修复
+
+
+肿瘤生长机制及青蒿琥酯参与多种抗肿瘤生长机制：
+
+细胞周期监测点：由于突变增加了生长的优势，逐步变成具有侵袭功能的肿瘤细胞。正常情况下当正常细胞发生突变时，人体的各个监测点可以检测到这些细胞从而将其降解，不会继续存活，青蒿素会作用在这个方面。
+
+凋亡：造成人类的衰老、老化，正常细胞衰老或损伤后，自主启动凋亡程序而死亡，但肿瘤细胞并非如此，当肿瘤细胞大量聚集突变，由于不能启动凋亡程序而持续生长。
+
+抗炎：如肺癌的产生被认为是慢性炎症的过程，抽烟会损伤肺泡细胞，包括是支气管壁细胞的损伤从而造成炎症反应，当炎症慢慢累积，会增加细胞突变，青蒿素在此方面亦会起作用。
+
+青蒿琥酯在体外通过诱导氧化应激DNA双链断裂、细胞凋亡和铁死亡
+
+之所以把抗疟药用于抗肿瘤，原因是它们拥有相似的机理——铁死亡。所谓铁死亡是在疟原虫攻击人体红细胞（其中含有铁元素）时，青蒿素可促进血细胞内铁元素的释放，产生大量自由基，从而诱导由于大量铁聚集而引发的细胞凋亡。
+
+青蒿琥酯可诱导活性氧（ROS），从而诱导铁死亡。
+
+- 作为一种抗疟药物，由于疟原虫的高铁含量，青蒿琥酯可诱导活性氧（ROS），从而通过铁死亡（一种依赖于铁和ROS的受控细胞死亡）来破坏疟疾病原体。
+- 肿瘤细胞还含有比正常细胞更多的铁，很可能是由于高表达的转铁蛋白受体，使得青蒿琥酯靶向杀死肿瘤细胞。
+
+
+青蒿素的药理作用：
+
+青蒿素的药理研究目前披露出来的是非常有限的，疟疾在欧美国家并不是一个非常紧急的疾病，他们每年大量的投入在抗肿瘤药物以及心血管药物的研发。但对于传染病，如恶性疟、伊波拉病毒等由于其爆发程度和其公共卫生环境造成的发病率低所决定的很少有人在这方面进行深入的研究，目前青蒿素的药理研究基本集中在两大类，其作用机理是针对过氧键和线粒体的。文恩博士对其进行了详细讲解，有兴趣的朋友，请看香草山医疗组2021年10月24日的直播视频38:55-43:48时段，专业性较强，这里不多做赘述。
+
+文紫医生讲解，青蒿素通过识别受损细胞，比如皮肤老化细胞就属于受损细胞，对其识别后，可将其清除，从而达到美肤作用。肝脏是机体的重要排毒器官，肝细胞堪称是机体的卫士，也是最容易受损的，而青蒿素对于我们人体受损的肝细胞也具有清除作用。
+
+肿瘤化疗治疗失败的最重要是肿瘤耐药性,如青蒿琥酯可使神经母细胞瘤、卵巢癌和头颈癌对顺铂敏感度增高从而提高化疗疗效。且青蒿琥酯诱导肿瘤细胞自噬，自噬是一种保守的、自我降解的系统，在人体广泛存在，对于在压力条件下维持细胞稳态至关重要。
+
+文恩战友讲到，肿瘤和感染性疾病最大的区别是肿瘤的发生根源大多不是由于病原体侵入人体（除外宫颈癌、乙肝后肝癌）造成，是人类基因组自身携带而来，正常情况下处于抑制状态，但在某些特定的化学诱变、物理诱变以及一些疾病等机缘下，癌基因唤醒，把正常细胞进入“不死”阶段，其结构和功能都会发生变化。正常细胞的堆积与分裂，增值与分化是有一定规律的，癌细胞则不然，大量堆积即形成肿瘤。抗癌药出现耐受以至于难以进入肿瘤细胞进行杀伤，基于这些机制，癌症一直是人类最大的安全威胁，每年投入大量资金。青蒿素作用于肿瘤庞大的抑癌基因和抗抑癌基因的各种信号通路的各个位置点，在对抗肿瘤的作用上，其作用的强大不容小觑，而SARS-COVID-2的影响也同样存在于多个通路，所以青蒿素很有可能是其天然克星。由此可见，青蒿素对人类的健康生存，是一个福音，这是一个讲不完的话题，我们会在今后的节目中继续。
+
+审稿：圣母院钟声
+
+编辑：圣母院钟声
+
+发稿：圣母院钟声
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-6.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-1.png)
 
  
 

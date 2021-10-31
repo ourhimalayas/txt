@@ -2,8 +2,8 @@
 ---
 
 
-## 视频| 你的财富你做主
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1629996/)
+## 视频| 未来已至，你准备好了么？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1630005/)
 
 制作：香草山视频部
 

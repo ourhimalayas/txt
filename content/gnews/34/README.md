@@ -2,37 +2,40 @@
 ---
 
 
-## 美国通货膨胀连续四个月创30年新高
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1629555/)
+## 尽管疫苗接种率超过91%，但医院里的新冠患者人数自3月份创新高
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1629632/)
 
-作者：美国香草山金融组- 德州瑞秋
+![](https://assets.gnews.org/wp-content/uploads/2021/10/103003.jpg)图片来源：Pexels
+尽管爱尔兰12岁以上的人口中超过91%都接种了新冠疫苗——欧盟中最高的接种率，现在医院里的新冠病毒患者人数自3月以来却是最高的。
+
+爱尔兰医院里新冠阳性病人的人数目前停留在513人，这是自去年冬天臭名昭著的第三波疫情结束后未曾有过的数字。
+
+本周，这些病人中有101人在重症监护病房——跟上周的74人相比有所增加。
+
+爱尔兰首席医疗官托尼·霍洛汉（Tony Holohan）博士说他“越来越担忧新冠感染病例的发生率在全国范围内增加。”
+
+值得一提的是， 沃特福德市（Waterford ）99.7%的成人全面接种新冠疫苗，这在全世界也是接种率最高的地区之一，其新冠病毒感染率却是国内最高的。
+
+**简评：**
+
+人会习惯性地将某些事物联系对应起来——看到万里晴空，自然地拿广阔的大地跟它对应，并悄然升起相应的感情，在这里可以是欢喜。新冠病毒出现后，笔者自然也渴望看到新冠疫苗，但是却不能激发起对新冠疫苗自然而然的信任。当看到政府官员在新冠疫情新闻发布会上，面对记者的提问——感染者中有多少人接种过疫苗，不敢正面回答顾左右而言它时，我佩服感谢这样的记者。越来越多的事实报道证明一件事：现在的新冠疫苗不是新冠病毒的解药。
+
+新闻链接: [HIGHEST COVID NUMBERS IN HOSPITAL SINCE MARCH DESPITE 91%+ JABBED](https://gript.ie/highest-covid-numbers-in-hospital-since-march-despite-91-jabbed/)
+
+***翻译**: 乡间小路*
+
+***校对**：感恩*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
-
-
-
-根据美联储首选的通胀指标核心个人消费支出指数，目前美国的年通胀率为 3.6%。该指数已连续四个月保持在 30 年高位。一般来说，美联储在制定经济政策时通常以 2% 的通胀为目标。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture00000.jpg)
-10 月 5 日，财政部长珍妮特·耶伦 (Janet Yellen) 对 CNBC 表示： “供应链的瓶颈发展导致了通胀。我相信它们是暂时的，但这并不意味着它们在接下来的几个月里就会消失。”
-
-10月29日，耶伦试图解决通胀问题，建议指出如果国会通过拜登总统提出的 1.75 万亿美元支出计划，将会降低通货膨胀。耶伦表示 “拜登总统提出的1.75万亿美元支出计划会起到降低一些最重要的成本的作用，比如他们为医疗保健和儿童保育支付费用。” 耶伦在周五的另一次采访中告诉 CNBC。 “这是抗通胀的做法。” 但并不是每个人都认为政府参与这些领域会降低成本。曾担任特朗普经济顾问的 FreedomWorks 高级研究员斯蒂芬摩尔认为 “政府补贴总是导致价格上涨，” 他指出， “飙升的大学学费和医疗保健费用就是证据。
-
-参考来源：[https://www.foxbusiness.com/economy/treasury-secretary-janet-yellen-inflation-u-turn](https://www.foxbusiness.com/economy/treasury-secretary-janet-yellen-inflation-u-turn)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 
