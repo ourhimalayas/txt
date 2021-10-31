@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/31/2021 1:07 AM (UTC)`
+
+杰森·米勒：大型科技公司正在成为以左翼审查制度和反美国主义而闻名的品牌，Facebook的改名是其末日的开始<br/><br/>Jason Miller: Big techs are becoming brands that are best known for left-wing censorship and anti-Americanism. Facebook's name change is the beginning of its end.
+![img](https://media.gettr.com/group39/getter/2021/10/31/01/07/a7c5a560-dacc-5f54-8a36-e2d19a747c60/out.jpg)
+
+---
+
 `@miles 10/30/2021 11:16 PM (UTC)`
 
 10月30号：尊敬的战友们好，全世界都在．深呼吸的等待着两件事儿，共产党是否攻打台湾？喜币上市以后会是什么样的情况？
@@ -298,14 +305,6 @@ F the FDA.  Do the opposite of what they recommend. <br/><br/>DON’T VACCINATE 
 
 2021年10月27日文贵大直播：SPAC忽上忽下何有未来；吴征虚假信息刑事犯罪；基金对赌炒股钓鱼欺骗；盖特言论自由公平竞争
 ![img](https://media.gettr.com/group21/origin/2021/10/27/12/0c04a294-1114-c644-ee17-8d394d21165a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@jasonmillerindc 10/27/2021 1:09 AM (UTC)`
-
-#GETTR sign-ups have increased by 87.75% over the last 24 hours! 👀<br/><br/>
 
 ---
 

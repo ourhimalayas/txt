@@ -15,107 +15,107 @@
 
 ---
 
-### [约12000名美空军人员拒绝接种疫苗](/content/gnews/1/README.md)
- ` HimalayaRussia`
-
-### [太平联盟、吴征以及FBI的前高管都是连在一起的](/content/gnews/2/README.md)
+### [纽约的急救人员和其他市政工作人员抗议强制接种疫苗的规定](/content/gnews/1/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [[ 聚焦港澳 ] 香港会不会出现躺平主义？](/content/gnews/3/README.md)
+### [约12000名美空军人员拒绝接种疫苗](/content/gnews/2/README.md)
+ ` HimalayaRussia`
+
+### [太平联盟、吴征以及FBI的前高管都是连在一起的](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [[ 聚焦港澳 ] 香港会不会出现躺平主义？](/content/gnews/4/README.md)
  ` 澳喜农场`
 
-### [尽管疫苗接种率超过91%，但医院里的新冠患者人数自3月份创新高](/content/gnews/4/README.md)
+### [尽管疫苗接种率超过91%，但医院里的新冠患者人数自3月份创新高](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [郭文贵精品视频-中共向美国发起的金融超限战之砸烂“中概股”](/content/gnews/5/README.md)
+### [郭文贵精品视频-中共向美国发起的金融超限战之砸烂“中概股”](/content/gnews/6/README.md)
  ` 澳喜农场`
 
-### [信仰的力量——郭先生谈喜币上市](/content/gnews/6/README.md)
+### [信仰的力量——郭先生谈喜币上市](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [悉尼邦迪海滩的一处酒吧新冠病毒聚集性传播](/content/gnews/7/README.md)
+### [悉尼邦迪海滩的一处酒吧新冠病毒聚集性传播](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [特鲁多的狙击手细节爆炸 Pm 关于疫苗授权](/content/gnews/8/README.md)
+### [特鲁多的狙击手细节爆炸 Pm 关于疫苗授权](/content/gnews/9/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [两三年后的价格是决定喜馬拉雅币价值的关键之二](/content/gnews/9/README.md)
+### [两三年后的价格是决定喜馬拉雅币价值的关键之二](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [破解中共国数字丝绸之路，美日澳帕劳联合行动](/content/gnews/10/README.md)
+### [破解中共国数字丝绸之路，美日澳帕劳联合行动](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加拉赫议员呼吁对病毒溯源来场真正的调查](/content/gnews/11/README.md)
+### [加拉赫议员呼吁对病毒溯源来场真正的调查](/content/gnews/12/README.md)
  ` HimalayaRussia`
 
-### [爆料革命和新中国联邦 疫苗揭秘 背后的惊天阴谋与人类何去何从](/content/gnews/12/README.md)
+### [爆料革命和新中国联邦 疫苗揭秘 背后的惊天阴谋与人类何去何从](/content/gnews/13/README.md)
  ` reneelee`
 
-### [文贵大直播（10/29/2021)简报](/content/gnews/13/README.md)
+### [文贵大直播（10/29/2021)简报](/content/gnews/14/README.md)
  ` 秘密翻译组-原创组`
 
-### [【战友观点】四省市广播电视台被约谈，难道今后小粉红约炮前背习思想、高潮时喊习万碎？](/content/gnews/14/README.md)
+### [【战友观点】四省市广播电视台被约谈，难道今后小粉红约炮前背习思想、高潮时喊习万碎？](/content/gnews/15/README.md)
  ` 温哥华扬帆农场`
 
-### [秘翻在线: 中共国工程院院士兼国企高官落马](/content/gnews/15/README.md)
+### [秘翻在线: 中共国工程院院士兼国企高官落马](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【病毒疫苗】CCP灭绝人寰， 多省市3-11岁儿童被接种中共CCP病毒疫苗](/content/gnews/16/README.md)
+### [【病毒疫苗】CCP灭绝人寰， 多省市3-11岁儿童被接种中共CCP病毒疫苗](/content/gnews/17/README.md)
  ` 温哥华扬帆农场`
 
-### [DC每日热点1030](/content/gnews/17/README.md)
+### [DC每日热点1030](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国两党参议员推出国防授权法修正案 要求外交抵制北京冬奥会](/content/gnews/18/README.md)
+### [美国两党参议员推出国防授权法修正案 要求外交抵制北京冬奥会](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [欧盟维护外交自主权，反击中共施压与胁迫](/content/gnews/19/README.md)
+### [欧盟维护外交自主权，反击中共施压与胁迫](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [如中共攻打台湾 格芯将迎来历史性发展机遇](/content/gnews/20/README.md)
+### [如中共攻打台湾 格芯将迎来历史性发展机遇](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [存天理、灭虚假，用事实驳斥先驱报转移针对ANZ银行抗议的谎言](/content/gnews/21/README.md)
+### [存天理、灭虚假，用事实驳斥先驱报转移针对ANZ银行抗议的谎言](/content/gnews/22/README.md)
  ` YALUN 亚伦`
 
-### [有声|中共国禽流感传人案例猛增](/content/gnews/22/README.md)
+### [有声|中共国禽流感传人案例猛增](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声|印度对中共陆地国界法表示担忧](/content/gnews/23/README.md)
+### [有声|印度对中共陆地国界法表示担忧](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声|欧洲议会将组团访台](/content/gnews/24/README.md)
+### [有声|欧洲议会将组团访台](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [19个州起诉拜就登强制联邦承包商接种COVID疫苗](/content/gnews/25/README.md)
+### [19个州起诉拜就登强制联邦承包商接种COVID疫苗](/content/gnews/26/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [弗吉尼亚州再现选举舞弊](/content/gnews/26/README.md)
+### [弗吉尼亚州再现选举舞弊](/content/gnews/27/README.md)
  ` HimalayaRussia`
 
-### [借新还旧掩盖不良！民生信托被监管认定违规](/content/gnews/27/README.md)
+### [借新还旧掩盖不良！民生信托被监管认定违规](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [庆喜币上市](/content/gnews/28/README.md)
+### [庆喜币上市](/content/gnews/29/README.md)
  ` HimalayaRussia`
 
-### [川普被要求公开他新社交媒体的源代码](/content/gnews/29/README.md)
+### [川普被要求公开他新社交媒体的源代码](/content/gnews/30/README.md)
  ` HimalayaRussia`
 
-### [现场报道：岸田文雄街头竞选演讲，突现异议人士抗议](/content/gnews/30/README.md)
+### [现场报道：岸田文雄街头竞选演讲，突现异议人士抗议](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [不愿接种中共病毒疫苗的护士被送回家，无薪休假](/content/gnews/31/README.md)
+### [不愿接种中共病毒疫苗的护士被送回家，无薪休假](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国情报机构最新报告：可能永远无法确定中共病毒来源](/content/gnews/32/README.md)
+### [美国情报机构最新报告：可能永远无法确定中共病毒来源](/content/gnews/33/README.md)
  ` 军迷wilson`
 
-### [10/30/21 香港快讯 流亡许智峰 FB 吁投白票『反制不义制度』](/content/gnews/33/README.md)
+### [10/30/21 香港快讯 流亡许智峰 FB 吁投白票『反制不义制度』](/content/gnews/34/README.md)
  ` 英喜-粵語組`
-
-### [2021年10月29日郭文贵先生直播全文字版](/content/gnews/34/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
 
 ### [中共驻澳大使成竞业即将离任](/content/gnews/35/README.md)
  ` GTV新闻访谈`

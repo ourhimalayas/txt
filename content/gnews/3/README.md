@@ -2,34 +2,80 @@
 ---
 
 
-## [ 聚焦港澳 ] 香港会不会出现躺平主义？
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1629639/)
+## 太平联盟、吴征以及FBI的前高管都是连在一起的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1629640/)
 
-撰稿：云彩
-视频来自网络
-近日香港荣华推出新广告，采用了经典角色麦兜来包装。广告前后两段剧情变化太大，以至于网民纷纷议论麦兜变成腊肠是否寓意躺平主义？
+[https://gtv.org/video/id=617be77badfd99590c30e586](https://gtv.org/video/id=617be77badfd99590c30e586)
 
-广告先讲到麦兜为了寻找更好的自己辞去现有的工作，结果寻找到另一半，经历了最美好的时光以及最美好的自己。一点一滴，一分一秒，一生到白头。整个画面风是唯美的。但是下半部分的广告，来了180°大转变，明明两人在雪地侧身对望，温馨又浪漫，突然变成一对腊肠在饭煲之中，极度让人难以接受。
+**郭文贵**
+**Miles Guo**
 
-点评：有网民认为是反映出写实的都市故事，打工仔无论多努力，最终还是逃不出被剥削的命运。但笔者认为广告是一门艺术，往往有创意者想要表达的含义在里面。腊肠与躺平似乎有某种关联。
+还有大家没有注意到，七哥这个官司最核心的事情
+Also does everyone notice that the core issue of QiGe (Miles)’s lawsuit
 
-现在的香港早已变成了臭港。一群卖港贼为了自己的利益早已成中共的帮凶。那些普通勤劳的香港民众还值得起早怕黑工作，交税去供养这个被中共控制的政府吗？倒不如，全社会躺平，等待时机。其实这就是揽炒。
+就是如何能把吴征和太平联盟官司连在一起，这是讲证据，讲法律的
+It’s how to connect Bruno Wu and Pacific Alliance Group lawsuit together. This is about evidence and law
 
-相信有良知的香港市民会看懂这则广告的含义。
+马蕊强奸案，吴征付律师费，博讯告七哥案，吴征付律师费
+In Ma Rui’s rape case, Bruno Wu paid the lawyer’s fee; Boxun sued QiGe(Miles), and Bruno Wu paid the lawyer’s fee
 
-（本文中观点只代表个人观点，与GNEWS 无关）
+太平联盟说吴征没付律师费，现在吴征跟它有关系
+Pacific Alliance Group claimed that Bruno Wu did not pay the lawyer’s fees, and now Bruno Wu has some connection with it
 
-参考资料：[荣华腊肠2021年广告](https://www.hk01.com/%E9%9B%BB%E5%BD%B1/695001/%E9%BA%A5%E5%85%9C%E8%B3%A3%E6%A6%AE%E8%8F%AF%E8%87%98%E8%85%B8%E8%AE%8A%E9%A9%9A%E5%9A%87%E5%BB%A3%E5%91%8A-%E5%B0%8B%E6%89%BE-%E6%9B%B4%E5%A5%BD%E7%9A%84%E8%87%AA%E5%B7%B1-%E8%AE%8A%E8%87%AA%E5%B0%8B%E6%AD%BB%E8%B7%AF)
+吴征跟它有关系，不但如此，太平联盟的案子
+Bruno Wu has some connection with it. Not only that, in Pacific Alliance Group’s case
 
-审核：云彩
+其中用了两家律师事务所
+They used two law firms
 
-剪辑：云彩
+其中一个事务所叫AI什么事务
+one of firm is called AI…firm
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+就是这个FBI的前高管董事，就叫Frankel
+the former FBI executive director named Frankel
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+又是这个运鸿，又是吴征
+It’s YunHong again, and Bruno Wu again
 
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+这个Digital World 数码世界里边最关键人物
+the most critical person in the Digital World
+
+而且是股东，关键是太平联盟这次又和吴征成为了一个重要合作伙伴
+And as a shareholder, the key is that Pacific Alliance Group has become an important partner with Bruno Wu this time
+
+你看到11家基金，
+You see 11 funds,
+
+几乎8家到9家都是因为太平联盟走到一起投资的运鸿
+almost 8 to 9 of those funds are all because Pacific Alliance Group came together to invest in YunHong
+
+然后又投资Digital World，
+Then they invested in Digital World,
+
+也就是太平联盟和吴征和这个FBI的前高管是连在一起的
+that is, Pacific Alliance Group and Bruno Wu are connected with this former FBI executive
+
+**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1453724951274352657?s=24](https://twitter.com/se1y7cblljselva/status/1453724951274352657?s=24)
+
+———————————————————
+
+Date:10/28/2021
+原视频标题: 
+Pacific Alliance Group, Bruno Wu and Former FBI director are all connected together
+原视频日期：2021/10/27
+任务编号：KC210（2701）
+视频时间段 : 0:00-1:13
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
