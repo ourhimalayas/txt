@@ -2,22 +2,24 @@
 ---
 
 
-## 秘翻在线 :超过一万名美军飞行员宁冒惩处风险也不愿接种疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1630682/)
+## 电器“巨头”格力接收美国处罚
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1630724/)
 
-撰稿：William
-校对：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/AZ-7.jpg)
-图片来源:网路
+#### 撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/132.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp26.toutiaoimg.com%2Flarge%2Fpgc-image%2F99ec00b569704b3896a3c22a0d9e18fb&amp;imgrefurl=https%3A%2F%2Fsunnews.site%2Ffinance%2F199006.html&amp;tbnid=w3Ie86H1iyz2WM&amp;vet=12ahUKEwiQm5O_z_TzAhXIBd4KHZcVCsYQMyggegUIARCAAg..i&amp;docid=Caa-PyPz0zdGXM&amp;w=436&amp;h=339&amp;itg=1&amp;q=%E6%A0%BC%E5%8A%9B%E7%94%B5%E5%99%A8&amp;hl=zh-CN&amp;ved=2ahUKEwiQm5O_z_TzAhXIBd4KHZcVCsYQMyggegUIARCAAg)
+界面新闻10月31日报道，美国司法部在官网发布公告称，格力电器与美国司法部达成了延迟起诉协议。根据协议条款，珠海格力与香港格力同意接受总额为5.83亿元（约9100万美元）的罚款，并同意向因公司有缺陷的除湿机而引发的火灾及其受害者进行相关赔偿。
 
-根据零对冲(Zero Hedge) 的报导,截至 10 月 25 日，大约 11,462 名飞行员仍未疫苗接种。根据美国空军公布的数据，另外还有近 12,000 名预备役人员或太空军成员未接种疫苗。
+据美国司法部和相关法庭文件显示，本次格力需签署延期起诉协议，是由于格力电器旗下的除湿机产品存在起火隐患，不符合适用的安全标准，但格力及其子公司此前未向美国消费品安全委员会报告产品具有设计缺陷这一消费品安全信息，以致多名消费者投诉相关产品引发的火灾与其它伤害，并招致监管部门与受害者对其发起诉讼。格力电器在美国涉诉案件的说明称，公司近期与美国司法部消费者保护处、美国加利福尼亚中区联邦检察官办公室（统称DOJ）达成协议，协议涉及的产品为公司2005年至2012年期间生产的出口北美除湿机。 公司于2012年收到事故投诉，于2013年6月向美国消费品安全委员会（简称CPSC）申报。由于申报不及时，2016年公司和CPSC达成民事和解，支付1545万美元。
 
-8 月底，美国国防部长劳埃德·奥斯汀 (Lloyd Austin) 下令，除非获得豁免权，所有美军部队必须全部接种疫苗。空军发言人10月告诉大纪元时报，截止日期不会推迟。报导指出美国任何部队在截止日期前未接种疫苗将被视为违反法律，并根据《统一军事司法法典》(Uniform Code of Military Justice)第 92 条接受纪律处分，他们可能会被军事法庭审判或面临其他纪律处分。
+美国消费者安全协会直接罚款的案例并不频繁，这个机构类似中国的质监局，成立于1973年，管理者15000多种民用商品的安全标准和法规执行，它的任务是减少商品给消费者造成潜在伤害的风险。此次对格力公司的罚款就是他们例行的主动执法。本次涉及问题发生在8年前，在美涉案协议不会对公司的正常运营及本年度业绩造成影响，股价也是大跌6%，中共国以房地产经济，二十年带动了一批巨无霸的企业，对于房地产的定性，相关的产业也发生了本质的变化，随着房地产陆续“雷暴”，本已危及重重的房地产下游相关的产业也难以逃脱此次被瓦解的命运。
 
-”这可是大事!” 郭文贵先生在盖特文中指出。这些美国空军甘冒违抗命令的风险，也要争取美国宪法所保障的身体自主权及医疗权。未来无论是从法律集体诉讼美国政府或在军队、美国社会的影响，必定是对抗医疗暴政、撼动人心的壮举。
+消息来源：
 
-新闻来源：[Over 11,000 Active-Duty Air Force Personnel Unvaccinated With Days Left Before Deadline](http://Over%2011,000%20Active-Duty%20Air%20Force%20Personnel%20Unvaccinated%20With%20Days%20Left%20Before%20Deadline)
+[格力电器回应“接受美国9100万美元罚款”：涉及问题发生在8年前](https://mq.mbd.baidu.com/r/vC34WjRLeo?f=cp&amp;rs=241660370&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=c92b4d03ffd6b910)
 
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

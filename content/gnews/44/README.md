@@ -2,32 +2,36 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月30日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1629781/)
+## 视频| 新世界，新货币
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1630029/)
 
-作者：香草山翻译部
+制作：香草山视频部
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1030text-SC.png)
-校对：Stay文苑
 
-编辑：Stay文苑
 
-发稿：Stay文苑
 
-视频参看：[晚GTV新闻访谈](https://gtv.org/broadcast/watch/617de32611d1862968fdd010)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-17.png)
+
+
+
+*发稿：雪梨*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
 
 **更多资讯，更多关注**
 
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

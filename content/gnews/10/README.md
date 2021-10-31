@@ -2,29 +2,40 @@
 ---
 
 
-## 中共病毒重创日本旅游行业，多家旅行社巨头亏损将创新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1630697/)
+## 航空煤油价格上涨，致墙内机票燃油附加费回归
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1630750/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-47.png)[图片来源](http://www.tripvivid.com/31280.html)
-受中共病毒疫情长期持续的影响，日本旅游行业的出入境游备受打击。旅游行业整体连续两年亏损，HIS、JTB、KNT等多家旅行社巨头亏损额将创新高。
+作者：美东香草山 鹰(文言)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月30日，国内祥鹏航空、瑞丽航空相继发出通知，恢复起征航空燃油附加费。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1031AM（1-5）視頻備用.002.jpeg)
+2015年，中共发改委曾将燃油附加费征收标准，从每吨4140元，提至每吨5000元。2019年初，国内航空煤油出厂价跌破每吨5000元，继而全面取消燃油附加费。
 
-日本旅行社巨头HIS于10月30日发布2020财年（2020年11月至2021年10月）业绩预期，合并财报净利润将出现530亿日元（约合人民币29.8亿元）亏损（上期为亏损250亿日元）。JTB等也在2020财年（2020年4月至2021年3月）合并财报中纷纷列入亏损，旅游业的困境愈发凸显出来。
+2020年，中共病毒疫情导致全球经济萎靡，能源吃紧，国际大宗商品价格普遍上涨，燃油价格暴增。7月份，中共国进口报税，航空煤油到岸价格达每吨3926元，同比2020年7月上调约百分之七十，如今，更是超出每吨5000元起征点。
 
-旅行社巨头2020财年合并财报的净亏损中，JTB为1051亿日元，旗下拥有近畿日本旅游的KNT-CT控股为284亿日元。亏损额均创新高。
+据分析，燃油附加费的回归，侧面反映出中共外汇紧缺下，能源缺口正在加大，煤炭，燃油等能源供应，已经出现非常严峻的局面。
 
-财务状况恶化的三家公司已着手增加资本。HIS的创始人、董事长兼社长泽田秀雄等计划增加资本总计435亿日元。JTB在9月通过瑞穗银行等为对象进行第三方定向增发300亿日元。KNT曾一度陷入资不抵债，但6月其母公司近铁控股等同意第三方定向增发，提供了共计400亿日元的资本支持，缓解了经营危机。
+参考链接：
 
-三家公司在增加资本的同时，JTB与HIS还售出了总部大楼，以及削减员工和关闭网点。HIS已决定不进行年度分红。
+1. [时隔两年，国内机票燃油附加费将恢复征收](https://news.sina.com.cn/o/2021-10-30/doc-iktzqtyu4392478.shtml)
+2. [国内机票 “0” 燃油附加费将结束， 800公里以上收20元](https://finance.sina.com.cn/jjxw/2021-10-30/doc-iktzscyy2661899.shtml)
+3. [7月进口保税航空煤油到岸价环比上涨 6.2%](https://finance.sina.com.cn/jjxw/2021-08-24/doc-ikqciyzm3266888.shtml)
 
-信息来源：
 
-[HIS预计2020财年亏损530亿日元](https://china.kyodonews.net/news/2021/10/152299a2c1ae-his2020530.html)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+总编：木白
+编辑：Kathy文艺
+校正/发稿：我不在这里
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

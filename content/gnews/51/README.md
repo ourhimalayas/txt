@@ -2,40 +2,46 @@
 ---
 
 
-## 郭文贵先生谈投资哲学：坚持到最好的那一秒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1629433/)
+## 马克·莫比乌斯谈通货膨胀：价格将“大幅”上涨
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1629554/)
 
-作者：英国喜庄园 – I770775
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+作者：美国香草山金融组- 德州瑞秋
 
 
 
-喜币上市临近，在10月29日的大直播中，郭先生告诫战友们，无论喜币的价格如何变化浮动，大家要尽量保持一份平常心。他和战友们分享了自己的投资哲学。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
 
-郭先生说，当你认真投资了一个项目以后，一定要有耐心，千万不要在第一时间就把手里的筹码交出去了。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-23.jpg)
-郭先生补充道，每个想卖喜币的人，首先问自己一个问题：你卖了喜币，准备拿着钱去做什么？如果没有更好的去处，你第一天就卖了，等到后面发现喜币涨到你难以想象的价格，或者喜币又有了非凡意义时，你会不会后悔?
 
-至于，到底要等到什么时候卖。郭先生没有给出具体的时间建议，他只是意味深长地说：九成以上的中国人，很难坚持到最好的那一秒钟。如果战友们能坚持把喜币放到明年5月份以后，一定会有一份意外的惊喜！
 
-参考链接：[郭文贵先生谈投资哲学：坚持到最好的那一秒](https://gtv.org/video/id=617be96f11d1862968fccc4b)
+10月29日，Mobius Capital Partners 创始人马克·莫比乌斯 （Mark Mobius）周五做客 “Mornings with Maria” 节目 ，并提供了对通货膨胀和供应链危机的看法，认为价格将 “急剧上涨” 。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture99999.jpg)
+马克·莫比乌斯 （Mark Mobius）是新兴市场基金经理和 Mobius Capital Partners LLP 创始人，自1987年投资新兴和前沿市场。
 
-![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+在“Mornings with Maria” 节目中，莫比乌斯指出：“通货膨胀不仅仅是供应链问题，这些问题非常非常大。现在是人员成本的问题。劳动力成本不仅在美国上升，而且在全球范围内都在上升，我认为这将是一个巨大的挑战，因为越来越多的这些公司需要人来管理公司并实际完成工作，这会使成本越来越高。所以你会看到利润率受到打击。同时，随着这些公司离开中国，他们也会在世界其他地方面临着更高的成本。”
 
-总编：木白
-编辑：木白
-校对/发稿：Hetangyuese
+莫比乌斯强调，现在的通货膨胀不是暂时的。“如果您看到货币供应量增加了 30% 或更多，这不是暂时的。尽管科技可以降低某些领域的成本，但现实是随着时间的发展，价格仍将急剧上涨。在我看来，这毫无疑问。 “
+
+莫比乌斯对通胀的看法与郭文贵先生不谋而合。郭先生在近期的大直播中多次提及世界性的金融危机将要来临，加上中共病毒肆虐，人工成本会越来越高。
+
+参考来源：
+1. [https://www.foxbusiness.com/economy/labor-price-inflation-supply-chainmark-mobius](https://www.foxbusiness.com/economy/labor-price-inflation-supply-chainmark-mobius)
+2. [https://en.wikipedia.org/wiki/Mark\_Mobius#cite\_note-cnbc.com-3](https://en.wikipedia.org/wiki/Mark_Mobius#cite_note-cnbc.com-3)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+
+编辑/校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
