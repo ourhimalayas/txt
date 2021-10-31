@@ -2,83 +2,28 @@
 ---
 
 
-## 纽约的急救人员和其他市政工作人员抗议强制接种疫苗的规定
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1629696/)
+## 美军激光武器驱逐舰现身东海，或针对中共军用无人机
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1629717/)
 
-[https://gtv.org/video/id=617be821adfd99590c30e639](https://gtv.org/video/id=617be821adfd99590c30e639)
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-96.png)[图片来源](https://www.dwnews.com/%E4%B8%AD%E5%9B%BD/60260830/%E7%BE%8E%E5%9B%BD%E6%B5%B7%E5%86%9B%E6%BF%80%E5%85%89%E6%88%98%E8%88%B0%E8%BF%9B%E9%A9%BB%E6%97%A5%E6%9C%AC%E6%80%A7%E8%83%BD%E6%8A%AB%E9%9C%B2%E4%B8%AD%E5%9B%BD%E5%A6%82%E4%BD%95%E5%BA%94%E5%AF%B9%E5%9B%BE)
+美国首艘配备激光武器的驱逐舰近日被曝出现在东海海域，还派出舰员进行了不常见的“视觉信息收集”训练。
 
-Today, We stand united on one cause
-今天，我们为同一个原因而团结
+美国国防部下属网站Dvidshub于10月26日发布了美国海军“杜威”号驱逐舰的最新消息。Dvidshub网站称，“杜威”号驱逐舰当天正在东海活动，组织舰员进行了视觉信息收集、舰船动力设备维护等项目的训练。根据美国军方公布的照片，在视觉信息收集训练中，多名舰员在舰桥上使用照相机、摄影机等设备对着海面进行拍摄。
 
-firefighters, Fire Officers, EMS, fire dispatchers,
-消防员、消防官员、紧急医疗服务、消防调度员、
+值得注意的是，“杜威”号是美国海军最新部署到亚太地区的一艘阿利伯克级驱逐舰，其母港位于日本横须贺。数天前曾有日本网友拍摄到该舰从日本港口出海的画面。与其他阿利伯克级驱逐舰不同的是，“杜威”号驱逐舰配备有被称为ODIN“奥丁”的激光武器，也是美国海军首艘配备激光武器的驱逐舰。
 
-others affinity groups of the FDNY, sanitations, DSNY,
-纽约市消防局、环卫、纽约市环卫局的其他亲密团体
+这种武器的全称是“海军光学炫目拦截系统”，这是一种主要用于干扰、拦截无人机的光学传感器，安装在“杜威”号驱逐舰前方甲板的近防武器炮位上。这是美国海军第一次将具有炫目功能的独立激光武器系统进行作战部署，但美军没有透露这种武器的具体性能，只是用“低功率”的说法来含糊表述。
 
-NYPD, my brothers and sisters,
-纽约警察局，我的兄弟姐妹们
+郭文贵先生之前爆料，中共攻击台湾时，将使用无人机、激光精确制导弹药等武器进行第一波饱和式打击。基于对美军舰载高功率激光武器战技性能和技术特点的分析，再结合中共的军事动向，美军的作战目标已经毋庸多言。
 
-we, what common cause to stand for freedom to choose
-我们，支持选择自由是我们的共同事业
+信息来源：
 
-the ability to choose, give me a second I’ll be done
-选择的能力, 给我一点时间，我很快就结束
+[警惕！美军首艘配备激光武器驱逐舰被曝现身东海](https://news.sina.com.cn/c/2021-10-28/doc-iktzqtyu4041553.shtml)
 
-in the the ability to choose is our God given rights.
-在有选择的能力上是上帝赋予我们的权利
-
-Our free will
-我们的自由意志
-
-The right to choose for ourselves, our families, our loved ones.
-选择我们自己的、我们的家人的、我们所爱的人的权利
-
-This is our bodies, not yours.
-这是我们的身体，不是你们的
-
-We went through the this pandemic over a year.
-一年多来，我们经历了这场大流行病
-
-We worked. We worked.
-我们努力工作，我们努力工作
-
-We worked tirelessly, long hours without fear, bully
-我们不知疲倦地工作，长时间无所畏惧
-
-took care of us, the citizens of the city of New York,
-照顾了我们纽约市的市民
-
-we answered Atlas countless calls, countless EMS emergencies
-我们接听了无数的电话，响应了无数医疗服务的紧急情况
-
-and other emergencies to keep the city safe.
-以及其他紧急情况，以确保城市的安全
-
-We are citizens of the United States of America, New Yorkers
-我们是美利坚合众国的公民，纽约人
-
-———————————————————
-
-**原视频链接:**[https://twitter.com/tpostmillennial/status/1453768714579582979?s=24](https://twitter.com/tpostmillennial/status/1453768714579582979?s=24)
-
-Date:10/28/2021
-原视频标题: New York First responders and other municipal workers protest against vaccine mandates.
-原视频日期：2021/10/28
-任务编号：KE343（2706）
-视频时间段 : 0:00-1:23
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/上善若水
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

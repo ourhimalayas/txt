@@ -2,80 +2,42 @@
 ---
 
 
-## 太平联盟、吴征以及FBI的前高管都是连在一起的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1629640/)
+## 约12000名美空军人员拒绝接种疫苗
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1629692/)
 
-[https://gtv.org/video/id=617be77badfd99590c30e586](https://gtv.org/video/id=617be77badfd99590c30e586)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**郭文贵**
-**Miles Guo**
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/A-12.jpg)clarion.causeaction.com
+看到文贵先生数小时前的盖文：“这可是大事……，‘多达 12,000 名空军人员拒绝了疫苗强制令’【1】。
 
-还有大家没有注意到，七哥这个官司最核心的事情
-Also does everyone notice that the core issue of QiGe (Miles)’s lawsuit
+按照提示，笔者查到了这篇相关的报道。
 
-就是如何能把吴征和太平联盟官司连在一起，这是讲证据，讲法律的
-It’s how to connect Bruno Wu and Pacific Alliance Group lawsuit together. This is about evidence and law
+《国会山》（the hill）文章的全文如下：【2】
 
-马蕊强奸案，吴征付律师费，博讯告七哥案，吴征付律师费
-In Ma Rui’s rape case, Bruno Wu paid the lawyer’s fee; Boxun sued QiGe(Miles), and Bruno Wu paid the lawyer’s fee
+据《华盛顿邮报》（The Washington Post）报道，约12000名空军人员拒绝接种抗中共病毒疫苗，这引发众多官员质疑如何在不给军队带来重大挑战和挫折的情况下，解决相当多的抗议强制疫苗政策的问题。
 
-太平联盟说吴征没付律师费，现在吴征跟它有关系
-Pacific Alliance Group claimed that Bruno Wu did not pay the lawyer’s fees, and now Bruno Wu has some connection with it
+《华盛顿邮报》写道，官员们警告说，如果军人没有接种抗中共病毒疫苗，他们将受到惩罚，包括可能被解雇或接受军事法庭的指控，强制接种命令的最后期限是星期二。
 
-吴征跟它有关系，不但如此，太平联盟的案子
-Bruno Wu has some connection with it. Not only that, in Pacific Alliance Group’s case
+然而，由于如此大量的服役人员拒绝接受强制疫苗令，官员们面临着两难境地：对拒绝强制接种的人采取行动，并可能在本应做好危机准备的部队内面临严重挫折，或者在8月份由最高军事领导人制定的大规模强制要求上走回头路。《华盛顿邮报》称，如果他们选择惩戒那些拒绝接受这强制令的人，解雇潮可能会导致军队在危机时期毫无准备，因为这牵扯到包括飞行员和飞机维修工的很多工作。
 
-其中用了两家律师事务所
-They used two law firms
+华盛顿智库“新美国安全中心”（Center for a New American Security）的军事政策专家凯瑟琳·库兹明斯基（Katherine L. Kuzminski）对新闻媒体说：“这是一个导致潜在损失的选择，对战备状态的影响是惊人的。”
 
-其中一个事务所叫AI什么事务
-one of firm is called AI…firm
+虽然即将离开军队的飞行员可能会获得豁免，不需要接受联合检查，但那些决定在任期内离开军队的人，如果选择向联邦政府雇员或政府承包商过渡可能还会面临问题，这往往是退伍军人的下一步。据《华盛顿邮报》报道，联邦雇员也需要接种疫苗，大多数政府承包商也有同样的要求。
 
-就是这个FBI的前高管董事，就叫Frankel
-the former FBI executive director named Frankel
+《华盛顿邮报》指出，空军是第三大军种，有324,000名成员，因此，即使是很小的比例，涉及的人数也是相当可观的。
 
-又是这个运鸿，又是吴征
-It’s YunHong again, and Bruno Wu again
+最近几周，空军的疫苗接种率有所下降，现在开始接种程序并在周二截止日期前完成也已经太晚了。
 
-这个Digital World 数码世界里边最关键人物
-the most critical person in the Digital World
+（全文完）
 
-而且是股东，关键是太平联盟这次又和吴征成为了一个重要合作伙伴
-And as a shareholder, the key is that Pacific Alliance Group has become an important partner with Bruno Wu this time
+向疫苗说不，向邪恶集团说不，有识之士行动起来，警察行动起来，军人行动起来，全世界人民行动起来！
 
-你看到11家基金，
-You see 11 funds,
+有关链接：
 
-几乎8家到9家都是因为太平联盟走到一起投资的运鸿
-almost 8 to 9 of those funds are all because Pacific Alliance Group came together to invest in YunHong
+【1】[https://gettr.com/post/pfmftf5148](https://gettr.com/post/pfmftf5148)
 
-然后又投资Digital World，
-Then they invested in Digital World,
-
-也就是太平联盟和吴征和这个FBI的前高管是连在一起的
-that is, Pacific Alliance Group and Bruno Wu are connected with this former FBI executive
-
-**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1453724951274352657?s=24](https://twitter.com/se1y7cblljselva/status/1453724951274352657?s=24)
-
-———————————————————
-
-Date:10/28/2021
-原视频标题: 
-Pacific Alliance Group, Bruno Wu and Former FBI director are all connected together
-原视频日期：2021/10/27
-任务编号：KC210（2701）
-视频时间段 : 0:00-1:13
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+【2】[https://thehill.com/homenews/news/579066-up-to-12000-air-force-personnel-have-rejected-vaccine-orders-report](https://thehill.com/homenews/news/579066-up-to-12000-air-force-personnel-have-rejected-vaccine-orders-report)
 
  
 

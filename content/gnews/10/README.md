@@ -2,42 +2,80 @@
 ---
 
 
-## 尽管疫苗接种率超过91%，但医院里的新冠患者人数自3月份创新高
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1629632/)
+## 太平联盟、吴征以及FBI的前高管都是连在一起的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1629640/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/103003.jpg)图片来源：Pexels
-尽管爱尔兰12岁以上的人口中超过91%都接种了新冠疫苗——欧盟中最高的接种率，现在医院里的新冠病毒患者人数自3月以来却是最高的。
+[https://gtv.org/video/id=617be77badfd99590c30e586](https://gtv.org/video/id=617be77badfd99590c30e586)
 
-爱尔兰医院里新冠阳性病人的人数目前停留在513人，这是自去年冬天臭名昭著的第三波疫情结束后未曾有过的数字。
+**郭文贵**
+**Miles Guo**
 
-本周，这些病人中有101人在重症监护病房——跟上周的74人相比有所增加。
+还有大家没有注意到，七哥这个官司最核心的事情
+Also does everyone notice that the core issue of QiGe (Miles)’s lawsuit
 
-爱尔兰首席医疗官托尼·霍洛汉（Tony Holohan）博士说他“越来越担忧新冠感染病例的发生率在全国范围内增加。”
+就是如何能把吴征和太平联盟官司连在一起，这是讲证据，讲法律的
+It’s how to connect Bruno Wu and Pacific Alliance Group lawsuit together. This is about evidence and law
 
-值得一提的是， 沃特福德市（Waterford ）99.7%的成人全面接种新冠疫苗，这在全世界也是接种率最高的地区之一，其新冠病毒感染率却是国内最高的。
+马蕊强奸案，吴征付律师费，博讯告七哥案，吴征付律师费
+In Ma Rui’s rape case, Bruno Wu paid the lawyer’s fee; Boxun sued QiGe(Miles), and Bruno Wu paid the lawyer’s fee
 
-**简评：**
+太平联盟说吴征没付律师费，现在吴征跟它有关系
+Pacific Alliance Group claimed that Bruno Wu did not pay the lawyer’s fees, and now Bruno Wu has some connection with it
 
-人会习惯性地将某些事物联系对应起来——看到万里晴空，自然地拿广阔的大地跟它对应，并悄然升起相应的感情，在这里可以是欢喜。新冠病毒出现后，笔者自然也渴望看到新冠疫苗，但是却不能激发起对新冠疫苗自然而然的信任。当看到政府官员在新冠疫情新闻发布会上，面对记者的提问——感染者中有多少人接种过疫苗，不敢正面回答顾左右而言它时，我佩服感谢这样的记者。越来越多的事实报道证明一件事：现在的新冠疫苗不是新冠病毒的解药。
+吴征跟它有关系，不但如此，太平联盟的案子
+Bruno Wu has some connection with it. Not only that, in Pacific Alliance Group’s case
 
-新闻链接: [HIGHEST COVID NUMBERS IN HOSPITAL SINCE MARCH DESPITE 91%+ JABBED](https://gript.ie/highest-covid-numbers-in-hospital-since-march-despite-91-jabbed/)
+其中用了两家律师事务所
+They used two law firms
 
-***翻译**: 乡间小路*
+其中一个事务所叫AI什么事务
+one of firm is called AI…firm
 
-***校对**：感恩*
+就是这个FBI的前高管董事，就叫Frankel
+the former FBI executive director named Frankel
 
-* * *
+又是这个运鸿，又是吴征
+It’s YunHong again, and Bruno Wu again
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+这个Digital World 数码世界里边最关键人物
+the most critical person in the Digital World
 
+而且是股东，关键是太平联盟这次又和吴征成为了一个重要合作伙伴
+And as a shareholder, the key is that Pacific Alliance Group has become an important partner with Bruno Wu this time
 
-编辑：【英国伦敦喜庄园编辑部】
+你看到11家基金，
+You see 11 funds,
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+几乎8家到9家都是因为太平联盟走到一起投资的运鸿
+almost 8 to 9 of those funds are all because Pacific Alliance Group came together to invest in YunHong
 
+然后又投资Digital World，
+Then they invested in Digital World,
 
+也就是太平联盟和吴征和这个FBI的前高管是连在一起的
+that is, Pacific Alliance Group and Bruno Wu are connected with this former FBI executive
+
+**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1453724951274352657?s=24](https://twitter.com/se1y7cblljselva/status/1453724951274352657?s=24)
+
+———————————————————
+
+Date:10/28/2021
+原视频标题: 
+Pacific Alliance Group, Bruno Wu and Former FBI director are all connected together
+原视频日期：2021/10/27
+任务编号：KC210（2701）
+视频时间段 : 0:00-1:13
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
