@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/1/2021 8:30 PM (UTC)`
+
+11/1/2021 [HCoin To the Moon Celebration]: The launch of the Himalaya Coin and the Himalaya Exchange is going to have huge impacts on the world’s financial sector. “Himalaya Exchange + Himalaya Coin + Himalaya Dollar + Himalaya Pay” is the truly borderless financial platform that belongs to the entire humanity; Some countries are likely to grant Himalaya Coin the legal currency status<br/><br/>11/1/2021【HCoin To the Moon 庆典】：喜币上市、喜交所上线会对世界金融造成巨大冲击，喜交所+喜币+喜美元+喜支付是未来真正的属于全人类的无国界金融平台；喜币将可能被某些国家认定为法定货币<br/>
+![img](https://media.gettr.com/group31/getter/2021/11/01/20/30/73644fa2-6e66-9256-dbaf-6607abf133e6/out.jpg)
+
+---
+
 `@miles 11/1/2021 8:22 PM (UTC)`
 
 11/1/2021 【HCoin To the Moon Celebration】With our own free wealth, we then have the power and the voice to protect ourselves and families, this is the meaning of the New Federal State of China<br/><br/>11/1/2021【HCoin To the Moon 庆典】我们拥有了自己的自由财富，才拥有了保护自己和家人的力量和话语权，这就是新中国联邦的意义
@@ -298,13 +305,6 @@ CNN：蔡英文首次公开承认美国军队正在台湾训练台湾部队<br/>
 
 10/28/2021 Miles Guo’s GETTR: As I predicted, massive arrests and killing are happening in the CCP’s Central Political and Legal Affairs Commission and the Central Commission for Discipline Inspection; Tsai Ing-wen’s interview with CNN revealed that U.S. troops have been stationed in Taiwan, but where is the CCP’s “cuckold” General Wang Hongguang who threatened to invade Taiwan?<br/><br/>10/28/2021 文贵盖特：如文贵爆料所说，国内政法委、中纪委系统已血雨腥风；台湾蔡英文接受CNN采访透露美军已进驻台湾，中共所谓的绿帽子王将军在哪儿呢？<br/>
 ![img](https://media.gettr.com/group44/getter/2021/10/28/23/06/a968ccc1-5b14-1b3a-025f-7f3ea40707fc/out.jpg)
-
----
-
-`@miles 10/28/2021 11:01 PM (UTC)`
-
-10/28/2021 Miles Guo’s GETTR: Global financial sector and MSM didn’t buy the story of that SPAC; on the contrary, the GlobalFoundries (Nasdaq: GFS) receives positive reaction on the capital market, even said so, most of the listing company’s profits were taken away by underwriters and Lao Baixing or deplorables have no way to participate in its pre-IPO financing<br/><br/>10/28/2021 七哥盖特：世界金融圈和主流媒体对SPAC反应冷淡；而今天NASDAQ上市的格芯公司(Nasdaq: GFS)受到热捧，但公司上市的主要利润都被华尔街投行拿走了，根本没草根们什么事儿<br/>
-![img](https://media.gettr.com/group6/getter/2021/10/28/23/01/7d61137e-b7b5-0cd9-9454-0b325d142f9b/out.jpg)
 
 ---
 
