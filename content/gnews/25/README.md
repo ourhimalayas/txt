@@ -2,66 +2,48 @@
 ---
 
 
-## 班农专访4: 美国会保卫台湾
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1632643/)
+## 路易斯安那州上诉法院禁止本州医院解雇未接种疫苗的雇员
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1632701/)
 
-**简评：**
-
-因为害怕惹怒中共，美国一直回避台湾问题，但是拜登揭露了这个秘密：美国会保护台湾。不说中共的一带一路布局，对香港和南中国海的阴谋，就算是为了美国自身的经济利益，和台湾先进的芯片生产和设计对美国的重要性，美国都应该保卫台湾。新中国联邦的郭文贵先生爆料中共对台湾的渗透，和中共在台湾的内鬼暗地出卖台湾利益。美国的特种部队和突击队，在和台湾的特种部队一起训练，致力于防护台湾。
-
-[GTV视频链接](https://gtv.org/video/id=617e723aadfd99590c31c696)
+作者：纽约香草山福音部 –lilian89
 
 
 
-**视频字幕：**
-
-**主持人**：是的。 谢谢你，班农先生。
-
-因此，在拜登总统明显承诺帮助台湾对抗中共的侵略之后，白宫迅速发表声明，似乎与拜登早先的说法互相矛盾。
-
-这很快就被一位中共顶级大外宣中国日报的资深编辑抓住把柄。他猛烈抨击拜登，说拜登太老了，头脑不清楚。美国是否仍致力于保卫台湾？ 班农先生？
-
-**班农先生**：顺便再说一句，所有你们提出的问题都很棒。 这个问题非常重要。
-
-我认为中文观众理解这一点非常重要。乔拜登把秘密说出来了。他是年纪大，但人们应该了解。 在那个会议之前，他听取了简报。
-
-很明显，他们在国家安全委员会和白宫举行了很多会议，经常聚在一起谈论台湾。这在官方叫做“战略性模糊”，我们永远不会让中共知道我们是否真的保护台湾。
-
-他对此很坚决 “我们会捍卫它” ，他们让他继续说。安德森·库珀有点震惊地问，我们真的会保卫台湾吗？他说，是的。原因是他们一直在谈论这事，而这才是真的政策。
-
-这就是为什么我说他把”秘密”泄漏了。他们不想公开说出来，因为害怕惹恼中国共产党。
-
-这是我认为所发生情况，班农作战室，尤其是GNEWS和GTV有一定的功劳以及其他为此新闻报导的媒体。我们已经改变了事态发展。
-
-我讲的不光是中共的图谋，一带一路的图谋，拿下香港后的图谋，还有南中国海的图谋。向美国人民强调，即使这不是道德上的当务之急，但至少是经济和金融上的当务之急，因为台湾集中着先进芯片的设计。台湾是（太平洋）西岸的矽谷。
-
-无论有什么道义要求，我们都必须捍卫民主和捍卫台湾的中国人民。即便只是从实用角度来看，我们也不能让台湾落入中共之手。所以拜登说的很清楚，且我认为我们会保卫台湾是毫无疑问的。
-
-我也认为，中国共产党很聪明，他们对台湾的行动会是非常狡猾的，这毫无疑问。很明显，他们将试图进行某种渗透，并让许多台湾人站起来说，我们不想要西方，特别是美国的帮助。
-
-记住，是文贵的出色爆料，几年前他在竞选台湾总统国民党初选时，揭露了富士康董事长郭台铭。文贵说，这是卖台贼。
-
-这个国民党已经从蒋介石的民族主义和反共党，变成了一个亲共党，而且他在竞选时，文贵说如果他赢了，你会看到暗地里重新统一。
-
-这将非常复杂。我认为台湾、美国和所有海外侨民都必须对此保持警惕。
-
-**主持人**：谢谢你，班农先生。这就是为什么我偶尔会发现拜登政府的信息互相矛盾。谢谢你的解释。
-
-**班农先生**：我想明确一下，真正的答案是他的第一个答案 – 我们将捍卫台湾。我们将保卫它，因为我们必须。
-
-他们希望能够把这事掩盖过去。我认为这是让中国日报如此沮丧的原因，他们知道真正的意图。记着，你的听众应知道(会保卫台湾)。这已经被暴露了。
-
-现在我们实际上已经派有特种部队和突击队，和台湾特种部队一起训练。所以我相信美国，特别是为美国的利益，是致力于防御台湾的。
-[![](https://spark.adobe.com/page/YfumhygLWcVoQ/images/a126c348-b436-4f61-b608-5ad22cff9a0f.png?asset_id=97aee942-c3db-42f0-871b-ccab84a9de0f&amp;img_etag=%2210b729b8d584521311d0c78293ebdcfd%22&amp;size=2560)](https://spark.adobe.com/page/YfumhygLWcVoQ/images/a126c348-b436-4f61-b608-5ad22cff9a0f.png?asset_id=97aee942-c3db-42f0-871b-ccab84a9de0f&amp;img_etag=%2210b729b8d584521311d0c78293ebdcfd%22&amp;size=1024)
-*字幕：雨中漫步*｜*翻译：TCC* *| 校对：Wade* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-*编辑：【英国伦敦喜庄园编辑部】*
-[![](https://spark.adobe.com/page/YfumhygLWcVoQ/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/YfumhygLWcVoQ/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+
+10月30日，路易斯安那州第二巡回上诉法院发布了一项临时限制令，禁止包括奥克斯纳医疗系统在内的全州医疗机构解雇拒绝接种疫苗的员工。今年8月，奥克斯纳医疗系统颁布了一项强制疫苗接种政策，规定其32,000名 员工须在10月29日前接种疫苗或取得豁免，届时未获得豁免且拒绝接种的员工将被解雇。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1.jpg)
+就在奥克斯纳医院执行强制政策的最后期限前一天，路易斯安那州第二巡回上诉法院作出了有利于全州医护工作者的裁决。
+
+目前，全美有12个州已在行政、立法或司法层面拒绝执行拜登政府的强制疫苗政策；其中，佛罗里达州在强力拒绝的同时，日均新增感染病例在10月27日降至全美最低。10月下旬以来，美国各界反对强制疫苗接政策的诉讼以及示威游行益发增多。拜登政府所主推的这一激进政策正面临空前的阻力。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-1.jpg)
+参考链接：
+[Louisiana Court of Appeal Rules in Favor of Shreveport Nurses and Grants Restraining Order Against Ochsner Hospital from Firing Unvaxxed Employees](https://www.thegatewaypundit.com/2021/10/louisiana-court-appeal-rules-favor-shreveport-nurses-grants-restraining-order-ochsner-hospital-firing-unvaxxed-employees/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编: 飞虹
+编辑：Zion文恩
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
 
 
  

@@ -2,48 +2,69 @@
 ---
 
 
-## 路易斯安那州上诉法院禁止本州医院解雇未接种疫苗的雇员
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1632701/)
+## 伊维菌素治疗新冠病毒有效，疫苗有副作用
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1632765/)
 
-作者：纽约香草山福音部 –lilian89
+[![](https://spark.adobe.com/page/pjB2mf0sAFD4X/images/6ca6b3e6-12cf-4614-8855-51ac03585623.png?asset_id=4ab8288f-cd92-42b0-9d8b-255ad21b94e4&amp;img_etag=%22ac8d7f42006de38ef52e57359030e793%22&amp;size=2560)](https://spark.adobe.com/page/pjB2mf0sAFD4X/images/6ca6b3e6-12cf-4614-8855-51ac03585623.png?asset_id=4ab8288f-cd92-42b0-9d8b-255ad21b94e4&amp;img_etag=%22ac8d7f42006de38ef52e57359030e793%22&amp;size=1024)
+**简评：**
 
+200多项研究证明，伊维菌素对治疗新冠病毒有效。如果在感染后的7天内服药，治愈率100%。如果7天后服药，治愈率99%。临床上有FDA批准的成品药阿斯匹林、安全使用超过30年的伊维菌素，还有硫酸羟氯奎的临床实验。但是这些药不允许使用，必须接种有很多不良反应、且完全没有经过测试的疫苗。有些12到16的孩子接种疫苗之后出现了心肌炎。在医生20年的职业生涯中，今年第一次看到有4例儿童心肌炎病症。
 
+GTV视频链接：[我們已經有200多個研究證明伊維菌素有效](https://gtv.org/video/id=617bf86dadfd99590c30f468)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+**视频字幕：**
 
+**主持人：**我们怎么知道（伊维菌素）是有效的呢？我们怎么知道你开的药对新冠病毒起作用呢？
 
+**医生：**首先，研究证明它有效。我们已经有200多个研究证明其有效。
 
-10月30日，路易斯安那州第二巡回上诉法院发布了一项临时限制令，禁止包括奥克斯纳医疗系统在内的全州医疗机构解雇拒绝接种疫苗的员工。今年8月，奥克斯纳医疗系统颁布了一项强制疫苗接种政策，规定其32,000名 员工须在10月29日前接种疫苗或取得豁免，届时未获得豁免且拒绝接种的员工将被解雇。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1.jpg)
-就在奥克斯纳医院执行强制政策的最后期限前一天，路易斯安那州第二巡回上诉法院作出了有利于全州医护工作者的裁决。
+在我的诊所，几种药联合使用，我们用伊维菌素、硫酸羟氯奎，我们用类固醇，用阿奇霉素、强力霉素，还有阿斯匹林和布地纳德。
 
-目前，全美有12个州已在行政、立法或司法层面拒绝执行拜登政府的强制疫苗政策；其中，佛罗里达州在强力拒绝的同时，日均新增感染病例在10月27日降至全美最低。10月下旬以来，美国各界反对强制疫苗接政策的诉讼以及示威游行益发增多。拜登政府所主推的这一激进政策正面临空前的阻力。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-1.jpg)
-参考链接：
-[Louisiana Court of Appeal Rules in Favor of Shreveport Nurses and Grants Restraining Order Against Ochsner Hospital from Firing Unvaxxed Employees](https://www.thegatewaypundit.com/2021/10/louisiana-court-appeal-rules-favor-shreveport-nurses-grants-restraining-order-ochsner-hospital-firing-unvaxxed-employees/)
+如果在0-7天开始治疗，治愈率100%，100%治愈率。如果7天以后治疗，治愈率99%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+我们的观点正好相反，请注意我们有已经被证明有效的治疗方法。我们有阿斯匹林的临床实验，有伊维菌素的临床试验，有硫酸羟氯奎的临床实验。
 
-总编: 飞虹
-编辑：Zion文恩
-校对/发稿：为真不破20
+**主持人：**伊维菌素已经30年了。
 
-**更多资讯，更多关注**
+**医生：**是的。我们有FDA批准的药可以用于新冠病毒，为什么说我们做的不对？而让我们必须使用还没有被FDA批准的替代品？
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**主持人：**完全没有测试。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+**医生：**没有测试。我不明白。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+**主持人：**我想说说疫苗。你作为一线医生，在新冠多发地区治疗患者。你对疫苗的反应有什么看法？患者对疫苗的反应如何？
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**医生：**第一个反应就是，与其他疫苗相比，（新冠疫苗）有许多不良反应。很多副作用包括肌肉疼痛、胸痛、呼吸困难。我们看到肺部症状，甚至肺炎。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**主持人：**心脏炎症？
 
+**医生：**心脏炎症、肺部炎症。
 
+**主持人：**有時候会很致命。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+**医生：**会的。有趣的是，我们有4个孩子因为心肌炎来到诊所。
 
+**主持人：**他们打疫苗了吗？
+
+**医生：**都打了疫苗。12-16岁已经批准要求接种。我们那里有很多孩子为了回到运动场，所以他们开始接种疫苗。我们有4例心肌炎。
+
+**主持人：**好，那现在的问题是，这个年龄段通常会发生心肌炎吗？你是每年都看到几例呢？还是你将其归咎于疫苗？
+
+**医生：**在我将近20年的职业生涯中，直到今年我才在青少年或儿童中看到心肌炎的病例。
+
+**主持人：**你现在看到4例。
+
+**医生：**是的，今年看到4例。
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*字幕/听写：云岭|翻译：Roberts|PR：clau|简评/文字整理/编辑：胖丁| Page：小六月*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+[![](https://spark.adobe.com/page/pjB2mf0sAFD4X/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/pjB2mf0sAFD4X/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
 
 
  

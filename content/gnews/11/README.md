@@ -2,78 +2,30 @@
 ---
 
 
-## 喜币上市11.1.11:11 《H-Coin to the Moon》掀开喜币上市庆典的篇章
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1632759/)
+## 【樱花宅急便】步步为营的宰割
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1632796/)
 
-撰稿：Shifter
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-01-at-6.26.52-AM.png)图片来源：GETTR & GTV
-2021年11月1日格林威治时间早晨9点52分，战友威廉王创作的《H-Coin to the Moon》掀开格林威治时间（GMT）2021年11月1日11时11分庆祝喜马拉雅币上市的序幕。
+#### 作者：喜马拉雅东京樱花团   阿恩
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Layer_0_We4hTAa.png)
+港府以防疫为由，于2020年11月在香港推出「安心出行」，这个中共的软件可以记录你的行踪，有侵犯私隐之嫌，港府曾宣布仅在政府部门办公场所推行，之后扩大到餐饮行业，近日更全面覆盖公众街市、小贩市场及熟食市场，连街市的公厕也被要求登记「安心出行」，凡没有安装此软件的人必须要填写个人资料。港警近日更以提供虚假「安心出行」的罪名抓捕数名港人。
 
-自由多么熟悉的字眼
-Freedom sounds familiar to me
+中共不断得寸进尺出尔反尔愚弄香港人，它违背了中英联合声明第三款第四项，香港特区行政长官要在香港透过选举或协商产生，再由中央人民政府任命。历届的特首均是由中共内定，通过小圈子选举产生，根本不存在公平公正的选举。港人从2003年开始展开了长达十多年之久的争取真普选活动，中共从最初的敷衍，到2019 年强改选举制度，彻底熄灭了香港真普选的希望。
 
-缺不知不觉理我越来越远
-But unknowingly getting far away from me
+2018年超支200亿元的香港高铁在港人极不信任的呼声中竣工通车，民主派因立法会席位不足，无法阻止香港一地两检的议案。这个缩短中港交通时间的欺骗性议案，耗费了港人850亿元，香港高铁通车后，它成为中共秘密运送武装力量，押运政治犯和反逃犯条例运动示威者的工具。
 
-曾经那个意气风华的少年
-The man with charms and energy only exists in the past
+2018年港珠澳大桥通车，香港段造价1200亿港元，与香港高铁形成大湾区交通网，美其名曰拉动湾区经济，实际上却是与香港高铁进行着同样邪恶的独裁勾当。
 
-为里生成只能品名挣钱
-Working hard desperately to only fight for living
+毒疫苗上市后，港府裹挟商界提供各种诱因全力倾销毒针，港府甚至推出疫苗保险，答应向毒针受害人及家属赔偿，声称赔偿金额高达200万港元。半年的毒疫苗推广中，疫苗副作用的新闻越来越少，晕倒及不治，心衰、肝衰、肾衰等的新闻络绎不绝。据悉，目前申请疫苗保障的人众多，需要排队数年才被受理，迄今保险公司赔偿的金额也不过几十万港元，无一死亡案例与疫苗直接相关。
 
-财富是他们画下的大饼
-Wealth is their rain check but always out of touch
+中共扔下诱饵步步为营，每一个同胞都是它宰割的对象，但愿更多的人能够从中共的示好中警醒，切不可与其妥协，助纣中共实施更大的危害。饱受中共摧残的我们这一代人，不能再龟缩，期盼屠刀斩向他人，我们必须要向下一代做出表率，为孩子们能有做人的尊严和美好的生活齐心站起来反抗中共，推翻这个邪恶的政权。
 
-虚幻背后发现全都是陷阱
-A beautiful illusion with full of traps behind
+资料来源：
 
-各种经济暴雷
-All kinds of economical implosion
+[【安心出行】食環曾公佈公廁不用掃「安心」　惟今早進入街市公廁市民須登記](https://www.thestandnews.com/society/ab%E5%AE%89%E5%BF%83%E5%87%BA%E8%A1%8C%E9%A3%9F%E7%92%B0%E6%9B%BE%E5%85%AC%E4%BD%88%E5%85%AC%E5%BB%81%E4%B8%8D%E7%94%A8%E6%8E%83%E5%AE%89%E5%BF%83-%E6%83%9F%E4%BB%8A%E6%97%A9%E9%80%B2%E5%85%A5%E8%A1%97%E5%B8%82%E5%85%AC%E5%BB%81%E5%B8%82%E6%B0%91%E9%A0%88%E7%99%BB%E8%A8%98)
 
-房价崩的稀碎
-Housing prices crashes to the hell
-
-抬起头 前路一片漆黑
-
-Raise my head full of darkness covers the road ahead
-Welcome to the world to the new world
-Welcome to the world H-coin to the moon
-Welcome to the world to the new world
-Welcome to the world H-coin to the moon
-
-H-coin to the moon H-coin to the moon
-
-安全 最前沿加密技术出手
-Security guarded by the most advanced encrypt technology
-
-让你的财富没人能夺走
-No one can take wealth away from you
-
-稳定币 浮动币 设计天下无双
-Stable Coin Floating Coin Unparalleled design under the heaven
-
-还有二十趴 黄金挂钩
-20% gold reserve attaches to the value
-
-摧毁 不停压榨你的机器
-Destroy the machine to suck you to dry
-
-从此不再做金钱的奴隶
-Never be money slavers again
-
-喜联储的大门 永远敞开向你
-Himalaya Federal Reserve welcomes you forever
-
-前途光明 就在喜币
-The brilliant future – Himalaya Coin
-
-Welcome to the world to the new world
-Welcome to the world H-coin to the moon
-
-来源链接：https://gettr.com/streaming/pfs1k7a90e
-
-
-
+*编辑：东京樱花团 / 文小白
+发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

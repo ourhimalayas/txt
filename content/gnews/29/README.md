@@ -2,53 +2,24 @@
 ---
 
 
-## 世界各地犹太人立即认出Facebook新名字
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1632592/)
+## 感谢您！对中共百年掀锅盖式体恤民情说不的郭文贵先生
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1632657/)
 
-编译： Jenny Ball
+#### 撰稿：待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/545.png)(图片源自东京樱花团)
+格林威治时间11月1日11点11分，爆料革命发起人郭文贵先生缔造的，人类历史上最伟大、最亲民、最公正、最自由、最安全、最便捷的喜马拉雅币将隆重上市！四海荡歌万家乐，五湖欢腾千里鸣！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-5.png)图片来源： westernjournal.com 
+喜币的上市，告诉世界这世上可以有公正；喜币的上市，告诉世界这世上确有无我者；喜币的上市，告诉世界财富不应该仅属于少数人；喜币的上市，告诉世界不揭百姓锅盖更能体恤民情……
 
-Facebook 首席执行官马克·扎克伯格于 2019 年 10 月 25 日在纽约佩利中心发表讲话。 (Mark Lennihan / AP)
+四年爆料革命，郭文贵先生没伸手向其追随者要过一分钱。相反，在“百忙”二字根本无法形容的灭共之战的枪林弹雨中，为他的战友们带来了梦幻般的，财富从天降之惊喜！四年喜怒哀乐的共享、四年不离不弃的袍泽，每一枚喜币都映衬出文贵先生为义工战友擦拭汗水的影子，每一枚喜币都饱含“子弹飞过我来挡”的深情！
 
-扎克伯格在重命名 Facebook 之前应该检查一下希伯来语词典：世界各地的犹太人立即认出新名字。
+从喜币上市前来自各方的期待以及投资者们的热情，不难预测喜币上市后的走势不可小觑。喜币的上市，财富的拥有，眼前这实实在在的收益，其影响力必将带来更高一轮灭共浪潮。“中共百年掀锅盖式体恤民情”将成为历史的笑料！
 
-窃笑和尴尬伴随着Facebook 决定将其公司名称改为 Meta而来。
+深深感谢您，第一个站出来对“中共百年掀锅盖式体恤民情”说不的郭文贵先生！
 
-据《以色列时报》报道，段子手们取笑 Facebook 首席执行官马克·扎克伯格(犹太人)，因为“meta”的发音类似于希伯来语“死”的女性形式。
-
-“在希伯来语中，Meta 的意思是 Dead，”技术专家 Nirit Weiss-Blatt 博士周四在推特上写道。“犹太社区将在未来几年嘲笑这个名字。”
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-7.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-9.png)图片来源： westernjournal.com
-
-扎克伯格表示，当他的帝国包括 Instagram、Messenger、WhatsApp、Quest VR 耳机、Horizon VR 平台等时，Facebook 的名称并未涵盖“我们所做的一切”。扎克伯格解释说，元宇宙是虚拟世界的一种形式，每个人都通过虚拟现实耳机、增强现实眼镜和手机应用程序连接在一起。
-
-听起来很别致。但是标签呢？ 是的，有问题。
-
-在葡萄牙语和西班牙语中，这个词并没有那么令人不安，因为它的意思是“目标”。 然而，据彭博社报道，在巴西，这个词有性的含义。
-
-扎克伯格的声明对总部位于新斯科舍省的 Meta Materials 来说是一个福音。据路透社报道，该公司股价在周四盘后交易中上涨了 26%，当时扎克伯格宣布了这一消息，周五又上涨了 6%。
-
-Meta Materials 的首席执行官乔治·帕里卡拉斯( George Palikaras )在推特上发布了一个元节欢迎 Facebook。
-
-改名通常会因其翻译而失败。
-
-据英国广播公司报道，肯德基在 1980 年代进入中国市场时上了一课。
-
-这家餐厅的“吮指美味”的座右铭，翻译成普通话后成了“吃掉你的手指”。
-
-**点评：meta中文音译：埋它。先是非死不可，之后就埋葬了，小扎还是有自知之明的，非死不可作恶多端，那就按照小扎的意愿，早日埋葬在历史的垃圾堆里吧！**
-
-**參考資料：**[westernjournal.com] [Zuckerberg Should’ve Checked a Hebrew Dictionary Before Renaming Facebook: Jews Around the World Instantly Recognize New Name](https://www.westernjournal.com/zuckerberg-shouldve-checked-hebrew-dictionary-renaming-facebook-jews-around-world-instantly-recognize-new-name/?utm_source=Email&amp;utm_medium=WJBreaking&amp;utm_campaign=breaking&amp;utm_content=western-journal&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

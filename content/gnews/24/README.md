@@ -2,26 +2,50 @@
 ---
 
 
-## 前中情局官员：中共正在发动全社会之力窃取美国
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1632645/)
+## 王毅谭德塞在罗马唱双簧，继续推进全球疫苗强制行动
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1632718/)
 
-#### 翻译/撰稿：zzballack
+作者：英国喜庄园 – I770775
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16357607221.png)     图片来源：布雷特巴特新闻网
-据《大纪元》英文版10月31日报道，美国中情局的退休官员、曾在东亚和南亚的多个海外指挥岗位上担任站长和副站长的大卫·绍尔（David Sauer）10月29日在接受《新唐人》采访时说，中共正在发动全社会来窃取知识产权、研发成果、信息和技术，使其成为军事强国。美国安全部门的官员估计，中共每年盗窃的资产价值在3000亿至6000亿美元之间，美国政府需要做得更好来抵御这种间谍活动。
 
-绍尔说：“美国并不是中共间谍活动的唯一目标。自2000至2001年左右开始，中共的目标还包括欧盟、韩国和日本。中共窃取这些信息后，将其纳入他们的经济、国有企业以及他们的军队。他们的一些军事系统看起来就像是美国的复制品，这为中共节省了大量的时间和精力开发这种技术。”
 
-绍尔说，中共针对的个体目标包括学生、学者或商人，寻求与他们合作以获得某些技术。“我打赌这些人中的大多数都不想与其合作。他们认为这有点冒险，可能会被抓到，会毁掉他们的生活或者在美国的工作。但他们真的别无选择，因为他们面对的是一个专制政权。如果说‘不’，他们的未来会有很多风险，所以不得不遵从中共的要求。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-自2017年8月起担任联邦调查局（FBI）局长的克里斯托弗·雷 (Christopher Wray)在2020年7月的一次演讲中说，FBI每10个小时就会开启一宗新的有关中共的反间谍案调查。FBI当时有超过2000项与中共有关的反间谍案件。
 
-美国国家反间谍和安全中心（NCSC）的官员今年10月22日警告说，人工智能、自治系统、量子计算、半导体和生物技术这五个领域会成为外国间谍活动的目标。NCSC在一份文件中写道：“为了帮助实现其战略目标，中共采用各种合法、准合法和非法的途径从美国和其他国家获得技术和知识。这些方法包括学术合作、内幕交易、企业合资、人才招聘计划以及科技投资。”
 
-绍尔说：“中共正在利用我们的技术和创新来帮助它崛起，并建立一个可以击败我们的军队。”
+10月30日，二十国集团领导人峰会在意大利罗马开幕。代表中共领导人习近平出席大会的王毅，于当地时间10月30日，会见了世界卫生组织总干事谭德塞。
 
-新闻来源：[China Uses ‘Whole-of-Society’ Effort to Steal From US: Former CIA Officer](https://www.theepochtimes.com/mkt_app/china-uses-whole-of-society-effort-to-steal-from-the-us-former-cia-officer_4078082.html)
+王毅和谭德塞两人一唱一和，完全回避追究病毒来源的根本性问题，反而大谈特谈如何继续在全球强制推行病毒疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3.1.jpg)
+在中共国疫情全面反扑的局面下，王毅继续无视现实，声称中共在抗击疫情方面已取得重大战略成果，希望和世卫组织共同探讨未来的抗疫合作，愿意将疫苗在全球“公平”分配。
+
+谭德塞则再次露出亲共的嘴脸，表示他支持中方新冠疫苗的实施计划，世卫组织坚决抵制所谓的“政治化”病毒溯源研究。
+
+参考链接：
+[王毅会见世界卫生组织总干事谭德塞](https://world.huanqiu.com/article/45OKgrGStbZ)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

@@ -2,22 +2,20 @@
 ---
 
 
-## 欧洲应当自己花钱开展中共国研究
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1630714/)
+## 美国取代中国成为比特币挖矿中心
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1629863/)
 
 #### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4545.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.dw.com%2Fimage%2F54853632_303.jpg&amp;imgrefurl=https%3A%2F%2Fwww.dw.com%2Fzh%2F%25E5%25BE%25B7%25E8%25AF%25AD%25E5%25AA%2592%25E4%25BD%2593%25E5%25AD%2594%25E5%25AD%2590%25E5%25AD%25A6%25E9%2599%25A2-%25E4%25B8%25AD%25E5%2585%25B1%25E8%25AE%25BE%25E5%259C%25A8%25E6%25B5%25B7%25E5%25A4%2596%25E7%259A%2584%25E7%2589%25B9%25E6%25B4%259B%25E4%25BC%258A%25E6%259C%25A8%25E9%25A9%25AC%2Fa-59654681&amp;tbnid=D0uEkvEm71KUrM&amp;vet=12ahUKEwiv48eyyvTzAhUSdXAKHYH_AEwQMygCegQIARAX..i&amp;docid=ElrlqpnZzwmgIM&amp;w=700&amp;h=394&amp;itg=1&amp;q=%E6%AC%A7%E6%B4%B2%E5%BA%94%E5%BD%93%E8%87%AA%E5%B7%B1%E8%8A%B1%E9%92%B1%E5%BC%80%E5%B1%95%E4%B8%AD%E5%85%B1%E5%9B%BD%E7%A0%94%E7%A9%B6&amp;ved=2ahUKEwiv48eyyvTzAhUSdXAKHYH_AEwQMygCegQIARAX)
-瑞士《新苏黎世报》以“欧洲大学需要中国知识，但是不需要孔子学院”为题，刊发评论指出，作为文化传播者的孔子学院有权继续在欧洲开展活动，但是民主国家的高校应该和其脱离关系。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-151.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fthumbor.ftacademy.cn%2Funsafe%2F900x506%2Fpicture%2F0%2F000127220_piclink.jpg&amp;imgrefurl=http%3A%2F%2Fwww.ftchinese.com%2Fstory%2F001094210%3Ffull%3Dy&amp;tbnid=y2Jzl5fpfZVTiM&amp;vet=12ahUKEwja-93HxPPzAhUMB5QKHSvhDgAQMygEegUIARC_AQ..i&amp;docid=7NEA3uEaQNRMwM&amp;w=900&amp;h=506&amp;q=%E7%BE%8E%E5%9B%BD%E5%8F%96%E4%BB%A3%E4%B8%AD%E5%9B%BD%E6%88%90%E4%B8%BA%E6%AF%94%E7%89%B9%E5%B8%81%E6%8C%96%E7%9F%BF%E4%B8%AD%E5%BF%83&amp;ved=2ahUKEwja-93HxPPzAhUMB5QKHSvhDgAQMygEegUIARC_AQ)
+目前全球超过三分之一的比特币挖矿计算能力来自在美国的机器，而去年春天这一比例还不到五分之一。美国正迅速崛起为新的全球比特币挖矿中心。
 
-“对于欧洲的大学而言，孔子学院的收买是显而易见的：只需要花很少的钱就能开设相关的语言和文化课程。课程费用都来自一个中共基金会。长期以来，一直如此，直到中共国政府开始干预孔子学院的课程内容、并且为公众所知。”欧洲亟需更多的‘中国能力’，包括会说中文的人、研究中共国的人、曾经在中共国生活过的人。但是构建这种能力的过程，必须不依赖于中共国政府。为此，高校以及纳税人必须愿意为此投入更多资金。
+中共国政府实行打击行动后，许多挖矿公司正押注于美国的可靠能源供应以及更可预测的监管环境。据剑桥大学(University of Cambridge)的数据，目前全球超过三分之一的比特币挖矿计算能力来自在美国的机器，而去年春天这一比例还不到五分之一。
 
-“目前的情况可谓是双输：欧洲大学陷入了百口难辨的境地，他们将信誉出借给了一个严格限制学术自由、言论自由的国家的派出机构。所有多年来一直致力于在孔子学院内开展公开辩论的人、致力于搭建跨文化桥梁的人，都仿佛被扇了一记耳光。而那些长期以来指出孔子学院充当中国政府宣传工具的人，其质疑则得到了证实。”
-
-“显然，中共国政府想在世界各地都不惜一切代价地贯彻自己的红线。这种笨拙的外交，不仅仅伤害中国企业，也会伤害海外华人。人们会更加强烈地认为，中共政府掌控着一切，能够随时介入。比如：TikTok的用户数据会不会流向中共国？在西方国家工作的华人学者会不会是一个间谍？空穴来风、无法证实的狐疑，将会越来越多。”
+中共国此前一直是企业放置计算机以解锁新比特币的主要国家。但在今年5月，中共释放出将开始更广泛打击比特币挖矿和交易的信号，此举旨在确保政府对国内经济的控制。比特币挖矿已经成为一项利润丰厚的事业，目前一枚比特币的价格约为6万美元。为了获取新的比特币，功能强大的计算机竞相解决一系列数学难题，希望能解锁新的比特币，其中许多计算机都是一天24小时在线。
 
 信息来源：
 
-[德語媒體：歐洲應當自己花錢開展中國研究](https://tw.stock.yahoo.com/news/%E5%BE%B7%E8%AA%9E%E5%AA%92%E9%AB%94-%E6%AD%90%E6%B4%B2%E6%87%89%E7%95%B6%E8%87%AA%E5%B7%B1%E8%8A%B1%E9%8C%A2%E9%96%8B%E5%B1%95%E4%B8%AD%E5%9C%8B%E7%A0%94%E7%A9%B6-141900283.html)
+[美国取代中国成为比特币挖矿中心](https://cn.wsj.com/articles/%E7%BE%8E%E5%9B%BD%E5%8F%96%E4%BB%A3%E4%B8%AD%E5%9B%BD%E6%88%90%E4%B8%BA%E6%AF%94%E7%89%B9%E5%B8%81%E6%8C%96%E7%9F%BF%E4%B8%AD%E5%BF%83-11635401113)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
