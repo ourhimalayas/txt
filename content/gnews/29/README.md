@@ -2,10 +2,10 @@
 ---
 
 
-## Facebook 对针对儿童的疫苗信息实施更严格的审查
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1632760/)
+## 全球芯片短缺状况日趋恶化，或将持续到2023年底
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1632788/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：英国喜庄园 – I770775
 
 
 
@@ -13,14 +13,14 @@
 
 
 
-美国FDA刚刚正式批准对5至11岁儿童接种辉瑞新冠疫苗，Facebook便以全新身份Meta在美东时间10月30日宣布，它正在推出更严格的针对儿童的疫苗信息审查政策。该平台之前在2020年底对新冠疫苗信息进行了限制，但没有专门针对儿童的政策。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4.jpg)
-Meta在一篇新的博客文章中表示，它正在与CDC和WHO合作，以删除与儿童和新冠疫苗相关的内容，包括任何暗示新冠疫苗对儿童不安全、未经测试或无效的帖子。此外，Meta将以英语和西班牙语提醒人们疫苗已获批准给儿童接种。
+受中共病毒流行影响，全球各地芯片的供货大幅度减少，最近，已持续近一年的芯片短缺状况仍在日益加剧。
 
-Meta指出，自疫情爆发以来，它总共删除了来自Facebook和Instagram的20万条有关新冠病毒和疫苗的信息。
+10月28日，华尔街日报有报道称，总部在纽约的PowerX公司今年5月份下的一笔芯片订单，本来约定夏季到货，但被一拖再拖，最后被告知很可能最早要到2022年5月才能收到货。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-1.jpg)
+PowerX公司的遭遇绝非个例，全球半导体短缺状况已经在各行各业蔓延。有知情人士爆料，最近下订单的很多买家，看到自己订单上的交货日期最晚已经延迟到了2024年。
 
 参考链接：
-[Facebook puts tighter restrictions on vaccine misinformation targeted at children](https://www.theverge.com/2021/10/30/22754046/facebook-tighter-restrictions-vaccine-misinformation-children)
+[美媒：全球芯片短缺或持续到2023年](https://www.163.com/money/article/GNIRV503002580S6.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 

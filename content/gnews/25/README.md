@@ -2,46 +2,50 @@
 ---
 
 
-## 六中全会召开在即 北京继续借疫情加强控制
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1632783/)
+## 百态人生——蒸花卷
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1632848/)
 
-作者：澳喜农场 – 在远方
+作者：香草山美食部-雨过天晴Rainbow
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-10.jpg)
 
 
 
-10月中旬以来，墙内突然爆发了新一波新冠疫情。北京处于六中全会即将召开、据冬奥会开幕不到100天的政治敏感时期，目前已是草木皆兵，在防疫措施上更是层层加码。
+一大早起来心不在焉。我边自言自语说“好像有什么事情忘了做”，边准备着早餐，直到先生在旁边说了一句“你不是说要蒸花卷吗？”对呀我怎么把这么重要的事都忘了呢？
 
-北京市政府不仅封闭了有疫情风险的小区，关闭部分学校和商家，还延迟了一年一度的马拉松比赛。市政府同时从严惩治违反防疫规定的餐厅和诊所。从10月30日起至11月14日，暂停全区电影院的电影放映聚集性活动。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture.jpg)
-国外直飞北京的航班都被要求转道，待旅客完成隔离和核酸检测后，才能前往北京。本土发生病例的城市飞北京的航班被全部取消。政府下令去过疫区的民众必须在家接受隔离，其他地区赴京的民众要出示核酸阴性证明，并接受长达14天的健康检测。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5.jpg)
-参考链接：
-[新一波疫情来势汹汹，中国政府为迎冬奥会全力封堵](https://www.voachinese.com/a/china-cracks-down-over-serious-covid-outbreak-20211030/6292168.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_1856_2-rotated.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+在我们南方老家，祖辈传承下来的喜庆糕点中有一种特殊的花卷——腊味糯米卷 ，它在七彩颜色中不占一席之位，在美味佳肴中也上不了台面，鸟枪换炮的人中人对它不屑一顾，劳碌奔波、苦中求生的草根则吃不上。
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+这种用发面包裹着糯米、腊肠、虾米、香芋、红萝卜蒸熟的不起眼点心却是我童年时代的奢侈食品了。
+
+计划经济年代，糯米花卷只有过年时家里才会做，面粉糯米腊肠限量，而且质量很差，面粉颜色是黄的，还有股霉味。糯米里面有细沙子。每次外婆都要用一个小砵子慢慢地淘干净。我记得花卷出锅时都会听见外婆说一声“好发啊！”尽管我已经懂事，明白大人们的寄望，但我所过的日子仍然如旧，我们还是省吃俭用。
+
+文贵先生的爆料，揭穿了中共几十年的谎言，三年自然灾害、援助非洲的真正目的是残杀国民，以援助为由利诱收买当地政府官员，达到向外扩张、妄想称霸世界的野心。很不幸，我家的亲友中也有曾经参与医疗队援助非洲和引进非洲及第三世界留学生的教学任务。感觉可悲的是直到爆料革命我们才清楚自己被玩弄了几十年，中国人的命不该如此啊！
+
+中共肆无忌惮地虐夺属于本国人民的资源和财富，明搞一带一路，暗是借路敛财，今年河南、山西多地水灾无人救助，灾民无家可归。可中共还是旧计重演，把国人财富用作巩固个人地位的礼品，送给可以同盟的政府甚至恐怖组织。中共一日不灭，民众永远不可能翻身。
+
+为了让中国14亿民众早日强大富足，文贵先生搭建的喜马拉雅虚拟货币平台将隆重上市！激动人心啊，感恩郭文贵先生给我们带来人生最大的机会！今夜又是一个不眠夜！
+
+家乡的美食，草根的心意，今晚就用这代表着美好生活愿望（发发发），富裕幸福（荷包鼓鼓），家人平安进步（糯米团团）的糯米花卷, 迎接2021-1101-11:11吧。
+
+喜盈新中国  币福联邦人！
+
+校对/发稿：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
 
 
