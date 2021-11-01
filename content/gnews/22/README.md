@@ -2,36 +2,23 @@
 ---
 
 
-## 视频| 喜币上市&#8211;战友的心愿及祝福
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1632901/)
+## 喜币上市 (11/1/2021)纳瓦罗新书证实郭文贵病毒情报促成川普总统发出中共国旅行禁令
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1632923/)
 
-制作：香草山视频部
+撰稿：Skagen & Luckystat MaggieKZ
+采图：香水百合
+![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-01-at-9.10.59-AM.jpeg)图片来源：GTV & GETTR
+2021年11月1日喜马拉雅币上市大直播中，郭文贵先生指出纳瓦罗（Peter Navarro）先生的新书《川普时代》（In Trump Time）第23页写道：时任Trump总统是在听取了郭文贵先生的病毒情报后下令了对中共国的旅行限制。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+《川普时代》 这本书中提到纳瓦罗先生是美国最开始领导发展病毒疫苗的，现在他坚决反对疫苗。
 
+郭先生也指出，现在媒体爆出前美国国务卿Mike Pompeo宣布参选2024美国总统。
 
+郭文贵先生爆料喜联储过去和今天一直遭到了来自中共国的军事级别攻击，从100万次/秒，上升到300万次/秒。但是喜联储的安全级别能承受16万亿次/秒的攻击。喜联储打开了7个服务器中心，预计将有惊天交易量。
 
+来源链接：https://gtv.org/broadcast/watch/617fb54b11d1862968feda54
 
-
-
-
-
-
-*发稿：雪梨*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+校对发布：Shifter
 
  
 

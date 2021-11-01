@@ -2,28 +2,25 @@
 ---
 
 
-## 喜交所总裁谈为何要投资加密货币
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1633101/)
+## 西班牙马德里出现第一家可以使用喜币支付的商店
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1633119/)
 
-作者：美东香草山农场 -文真
+作者：纽约香草山 医疗部 – 云豹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-喜交所总裁杰西-布朗近期接受媒体采访，谈到数字货币的诸多优点，将在很多方面给人类社会带来便利。
+10月31日，西班牙马德里将出现第一家使用喜支付的商店。该商家在收银台上明显地贴出HIMALAYA EXCHANGE和H PAY的宣传标志，醒目地向顾客宣告，可用于现实交易的、划时代的虚拟货币和支付系统诞生了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide4.jpeg)
 
-首先，及时结算。加密货币从设计上，消除了第三方，比如银行，只有支付方和收款方。结算所需时间远小于传统资产转移方式。
-第二，费用更低。因为，矿工的报酬主要由网络支付，与传统支付方式相比，加密货币转账的费用要少很多。 
-第三，保密性。加密货币则是货币持有人将特定款项发送给收款人，无需提供更多信息。这是加密货币独有的隐私保护。 
-第四，通用性。目前，全球有22亿人无法使用传统银行系统，加密货币消除这些阻碍，将现代经济体系开放给每一个人。 
-第五，去中心化。加密货币采用区块链技术，共同管理和记录交易数据库，而不是单一的中央机构来管理。 
-第六，全球通用。加密货币不受汇率、利率、交易费用的约束，可在国际上无障碍流通。 最后，透明度。互联网上的公开账簿都来自确认的交易，因此，无法欺诈。区块链使用智能合约，使加密货币不可破解。
+喜美元和喜币在今日、格林威治时间2021年11月1日早上11时11分，在喜交所交易平台正式上市。与美元一比一自由兑换的喜美元，和以20%黄金为储备的虚拟货币——喜币，双币结合启动货币革命。随后，喜交所将推出H PAY支付系统，让喜美元和喜币成为可以在现实中实际使用的货币，使虚拟货币不再只是被炒作的金融商品。
 
-参考链接：[https://gettr.com/post/pfnrpw3b53](https://gettr.com/post/pfnrpw3b53)
+划时代的喜联储系统和喜支付的设计，将把世界带向更自由、迅速、省钱、便利的交易时代。
+
+参考链接：[西班牙马德里第一家可以用喜币支付的商店来了](https://gettr.com/post/pfpk762f1b)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编：Jack Li文阳
-编辑：DM
+总编：Irene木木
+编辑：文真
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -33,8 +30,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

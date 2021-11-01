@@ -2,22 +2,20 @@
 ---
 
 
-## 日本众院选举快讯：河野太郎获21万票创众院选举得票纪录
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1632870/)
+## 盘点各党派议席 自民党在首都圈占67%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1632883/)
 
-作者：东京樱花团｜文小白
-![](https://lh3.googleusercontent.com/nYzzAel5Go4tYrc6uff9heZgLsLs3k2MfaIN89cwG3gcSjhPuSVBp7kve1XB-dSZpa99N3Av58GQfrEnCz6MslegVr4EDg8IjuptM6r5rbK2msLTsmJE1vAPt77kk-UrPhma3s5V)
-据共同社11月1日报道，在日本众院选举神奈川县第15选区，自民党的河野太郎获得210,515票，创下现行小选区比例代表并立制1996年实施以来的最高得票纪录。此前的纪录由2009年政权更迭选举中时任民主党党首的前首相鸠山由纪夫在北海道9区创下，当时为201,461票。
+作者：东京樱花团 ｜文小白
+![](https://lh3.googleusercontent.com/DBDeZSfDfNoEjeNQGocG-6tJi-mIjE0mYBIVR9U_hqs52p6f7_Ywfmg27q2qjybKH0-6Y7N2Nq4ElVSwKHZhoMvCirxJ__9CMhHneOt8vAcEKuGSlxljsd5zbj1EW586uWxlcKx8)[*图片来源*](https://image.stheadline.com/f/1500p0/0x0/100/none/aac9a963f0226f5f1dcdcaaa4c2ebc01/stheadline/news_res/2021/10/31/746529/i_src_031016126.jpg)
+据共同社11月1日消息，自民党在东京、埼玉、千叶、神奈川的首都圈共71个小选区获得47个议席，包括算入自民党候选人的无党派柿泽未途后，比上届2017年选举减少了8个议席，占有率约为67%；在共有15个小选区的爱知县，自民党获得11个议席；在共12个小选区的兵库县获得8个议席。此外，在上届获得10个议席的大阪，共计19个小选区自民党颗粒无收。公明党在东京、大阪、兵库的小选区推举的共7名候选人全部当选。自公联合的执政党议席数确保了“绝对稳定多数”。
 
-- 延展阅读：[河野太郎公式サイト](https://www.taro.org/)
-- 延展阅读：[https://ja.m.wikipedia.org/wiki/河野太郎](https://ja.m.wikipedia.org/wiki/%E6%B2%B3%E9%87%8E%E5%A4%AA%E9%83%8E)
+此外，从在野党议席获得数来看，立宪民主党在首都圈获得22个议席。比上届选举获得的8个议席大幅增加。虽然在爱知和兵库分别获得3个议席和1个议席，但在大阪的所有小选区收获为零。议席数大幅增加的日本维新会在大本营大阪的19个小选区中获得15个议席。虽然在首都圈颗粒无收，但在兵库获得1个议席。
 
+自民党虽然取得259个议席，实现了单独过半数，但从自民党取得的议席数来看，为岸田政权留下了严峻的课题。
 
-河野太郎在2012年众院选举中也获得了192,604票，在当时的纪录中位列第四。在此次选举中，河野共前往约50个选区为其他候选人助选，返回自身选区做宣传活动仅仅两天，即发布公告日和选战最后一天。其身边人士表示能够在此次选举中创下最高得票纪录，是“利用SNS起到了很大的作用。”
+**消息来源：**[**自民党在首都圈议席占67% 大阪选区颗粒无收**](https://china.kyodonews.net/news/2021/11/f4ea9bb3e45e-67-.html)
 
-**新闻来源：**[**河野太郎获21万票创众院选举得票纪录**](https://china.kyodonews.net/news/2021/11/ec24564d1d41-21.html)
-
-*校对：东京樱花团 / 文小白*
+*校对：东京樱花团 / 東洋武士*
 *发布：东京樱花团 / 平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
  

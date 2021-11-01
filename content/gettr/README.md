@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/1/2021 5:34 PM (UTC)`
+
+11/1/2021 [HCoin To the Moon Celebration]：The Chinese Communist Party’s so-called senior cadres always pretend they know everything by brainwashing others and crashing others’ confidence to achieve their ultimate goal to fool and cheat their own people<br/><br/>11/1/2021【HCoin To the Moon 庆典】： 中共所谓的领导在外都装神弄鬼，利用洗脑和愚民政策欺骗老百姓！
+![img](https://media.gettr.com/group30/getter/2021/11/01/17/34/6e350814-4788-196b-cdf3-d5f856d97fe3/out.jpg)
+
+---
+
 `@miles 11/1/2021 5:12 PM (UTC)`
 
 1 Nov 2021 Himalaya Exchange is able to withstand hacking at 1.6 billion times/sec. Peter Navarro wrote in his book that Trump issued the travel ban based on Miles Guo’s intelligence on the CCP virus.<br/><br/>11/1/2021 喜马拉雅联储能耐受每秒16亿次骇客攻击；纳瓦罗在其新书中写道：川普总统发出旅行禁令，是因为听取了郭文贵先生关于中共病毒的情报。
@@ -298,13 +305,6 @@ CNN：蔡英文首次公开承认美国军队正在台湾训练台湾部队<br/>
 
 10月28号：尊敬的战友们好……当被欺骗统治了几十年的灵魂和生活。去面对真相的时候．是无法适应的，这是悲剧，这也是我们中国人过去七十年的悲哀，新世界的到来．将改变全地球的所有的这一切！
 ![img](https://media.gettr.com/group11/getter/2021/10/28/14/15/9a72dd2d-37e1-110a-6322-3c3ecbe8b4db/out.jpg)
-
----
-
-`@miles 10/28/2021 1:12 PM (UTC)`
-
-10月28号：尊敬的战友们好．拜托大家涡轮腹拉器的时候，每一组千万不要做超过12个，否则会伤到身体。科学健身，快乐健身．才是新中国联邦人在追求。
-![img](https://media.gettr.com/group10/getter/2021/10/28/13/12/26d6e4e8-a171-0082-478c-fed06660f351/out.jpg)
 
 ---
 
