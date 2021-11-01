@@ -2,14 +2,12 @@
 ---
 
 
-## 新加坡狮城农场预祝喜币喜支付上市成功！
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1632339/)
+## 拒绝强制疫苗接种的纽约市民正面临着生计威胁
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1632447/)
 
-**视频制作：逍遥小哥**
+10/27/2021 拒绝强制疫苗接种的纽约市民正面临着生计威胁，但他们对疫苗的伤害比失去生计更加担忧。
 
-**策划：人间四月**
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

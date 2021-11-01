@@ -2,18 +2,18 @@
 ---
 
 
-## 速报：自民党现任秘书长首次小选区落选 岸田首相考虑替换方案
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1632012/)
+## 速报：立宪民主党小泽一郎比例选区复活当选
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1632088/)
 
 #### 作者：东京樱花团/文小白
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-587.png)[图片来源](https://news.yahoo.co.jp/articles/8a1125cd07c69a0b4ba75bbbad80bbd8c76105b8/images/000)
-据日本雅虎新闻11月1日深夜消息，自民党现任干事长甘利明（神奈川县第13选区）在小选区落选， 虽然在比例代表区复活当选，但岸田首相已经在考虑替换干事长的方案。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-589.png)[图片来源](https://upload.wikimedia.org/wikipedia/commons/9/9d/Ichiro_Ozawa_cropped_2_Yoshitaka_Kimoto_and_Ichiro_Ozawa_20010718_colorized.png)
+据11月1日岩手新闻消息，日本众议院选举，立宪民主党的小泽一郎在小选区（岩手县第三选区）选战中输给了前自由民主党的藤原隆。这是小泽一郎自1969年当选以来第一次在自己的选区失利。
 
-据党内官员称，现任干事长在小选区中落选还是第一次。 31日晚间甘利干事长在接受富士电视台采访时说，“我将进退交给岸田首相处理。”
+在随后的东北比例区选中小泽一郎成功复活当选。这是小泽一郎的第18次当选，成为在全国所有候选人中当选次数最多的候选人。
 
 消息来源：
 
-###### [**岸田首相、甘利幹事長を交代させる方向で検討…現職幹事長の小選挙区敗北は初**](https://news.yahoo.co.jp/articles/8a1125cd07c69a0b4ba75bbbad80bbd8c76105b8)
+[小沢氏が比例復活　衆院選](https://www.iwate-np.co.jp/article/2021/11/1/104847)
 
 *编辑：东京樱花团 / 文小白
 发布：东京樱花团 / tdownc2p*

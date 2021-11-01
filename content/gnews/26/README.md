@@ -2,61 +2,61 @@
 ---
 
 
-## 上海开启从迪士尼到新华医院到儿童医学中心的病毒渐冻
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1632135/)
+## 万圣节取消1500个航班，美国航空声称与疫苗授权无关
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1632233/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/捕获_副本-16.png)
-以2021年10月31日上海迪士尼的突然停园并对园内游客进行全员核酸检测为标志，上海进入中共病毒渐冻模式——据[**环球网**](https://weibo.com/globaltimes) [2021年10月31日 18:09](https://weibo.com/1686546714/KFis2g9A7?from=page_1002061686546714_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d) 已编辑
+#### **翻译：文扬**
 
-【[#上海迪士尼乐园和小镇停止游客进入#](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E8%BF%AA%E5%A3%AB%E5%B0%BC%E4%B9%90%E5%9B%AD%E5%92%8C%E5%B0%8F%E9%95%87%E5%81%9C%E6%AD%A2%E6%B8%B8%E5%AE%A2%E8%BF%9B%E5%85%A5%23&amp;from=default)】10月31日，[@上海迪士尼度假区](https://weibo.com/n/%E4%B8%8A%E6%B5%B7%E8%BF%AA%E5%A3%AB%E5%B0%BC%E5%BA%A6%E5%81%87%E5%8C%BA?from=feed&amp;loc=at) 发布通知：[#上海迪士尼停止游客进入#](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E8%BF%AA%E5%A3%AB%E5%B0%BC%E5%81%9C%E6%AD%A2%E6%B8%B8%E5%AE%A2%E8%BF%9B%E5%85%A5%23&amp;from=default)
+#### **编辑****/****评论：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/wuhan.jpg)**图片来源：Styleheavens**
+**新闻评论：**
 
-接外省市协查通报，为配合新冠肺炎疫情流行病学调查，上海迪士尼乐园和迪士尼小镇从即刻起停止游客进入。乐园内的部分游乐设备将临时性停止运行，户外演出将继续举行。游客需严格做好佩戴口罩、保持社交距离等防控措施。
+在西方万圣节来临之际，美国航空取消了周末的1500个航班。公司发言人一再强调，主要受到极端天气影响，与拜登总统疫苗授权无关。然而，自10月1日拜登总统强制疫苗接种令发布以后，美国西南航空公司月初就取消了数千个航班，而美国飞行员协会已警示白宫和国会将出现混乱。
 
-同时，所有已在乐园的游客在离园时需要在出口处接受核酸检测，并遵循疾控中心的要求相隔24小时后再做核酸检测，待两次核酸检测阴性后，做好后续12天自主健康监测。
+正所谓欲盖弥彰，航班取消真实的原因是缺少机组人员。美航要求员工必须在11月24日之前完全接种疫苗，否则将被解雇。如此，便出现滑稽一幕：美航一边在强调航班取消与疫苗授权无关，一边在发布各种岗位的招聘信息。美国白左的做派越来越像中共。
 
-对此带来的不便，我们深表歉意。我们也将为所有受此影响的游客发布退换票的相关信息。感谢您的理解和配合。[L环视频的微博视频](http://t.cn/A6xPySAv)
+**翻译正文：**
 
-上海迪士尼乐园和迪士尼进入中共病毒的渐冻模式起因于2021年10月31日上午杭州市从省外过境杭州列车中检出的一例新冠病毒核酸阳性病例占某某，她于2021年10月29日乘坐G1382列车从上饶到上海，据网传占某某曾在10月30日到达过上海迪士尼度假区，据[**上党落子**](https://weibo.com/2707680023?refer_flag=1001030103_) [2021年10月31日 22:31](https://weibo.com/2707680023/KFkak1hJP?refer_flag=1001030103_) 来自 [HUAWEI Mate 40 Pro](https://app.weibo.com/t/feed/5uakoD)
+在10月29日至10月31日期间美国航空公司取消了1500多个航班，原因是人员短缺和恶劣的天气。这家位于德克萨斯州的航空公司的一位女发言人在一封电子邮件中告诉媒体，星期五取消了340个航班，星期六取消了540个航班，星期日又取消了650个航班。
 
-[#上海迪士尼停止游客进入#](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E8%BF%AA%E5%A3%AB%E5%B0%BC%E5%81%9C%E6%AD%A2%E6%B8%B8%E5%AE%A2%E8%BF%9B%E5%85%A5%23) 核检呈阳性的占某是在10月30日进入上海迪士尼度假区的，今天进入迪士尼乐园参加万圣节的游客，不必有太大的惊慌，倒是昨天到过上海迪士尼的游客需要重点筛查了！占某这一趟游玩，一下子把江西上饶到上海沿线城市拉进了警报区域，这一带经济发达人口密集度高，情况有些复杂不能有半点疏忽，但愿只是虚惊一场！ [2太原](http://t.cn/RxBAHUP)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/001-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/002-9.jpg)
-也就是在这位占女士的光顾之下，上海迪士尼开启了病毒渐冻模式，根据最新消息截止2021年11月1日上午8时，已经累计筛查33863人，核酸检测结果均为阴性——
-![](https://assets.gnews.org/wp-content/uploads/2021/10/003-3.png)
-但是从上海迪士尼开启的中共病毒渐冻模式已经渐次摊开——据[**看看新闻KNEWS**](https://weibo.com/1845864154?refer_flag=1001030103_) [2021年11月1日08:30](https://weibo.com/1845864154/KFo5nxs0d?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+在媒体获得一封航空公司致员工的信中，美航首席运营官大卫·西摩将造成这种情况的原因归咎于达拉斯-沃斯堡地区的“大风”。
 
-【[#上海儿童医学中心即刻起暂停门急诊医疗服务#](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E5%84%BF%E7%AB%A5%E5%8C%BB%E5%AD%A6%E4%B8%AD%E5%BF%83%E5%8D%B3%E5%88%BB%E8%B5%B7%E6%9A%82%E5%81%9C%E9%97%A8%E6%80%A5%E8%AF%8A%E5%8C%BB%E7%96%97%E6%9C%8D%E5%8A%A1%23)】接上级部门协查通知，根据国家和本市疫情防控要求，我院严格落实相关人员及环境筛查，即刻起暂停门急诊医疗服务，互联网医院照常运行。 [L看看新闻KNEWS的微博视频](http://t.cn/A6xPnyqQ) ​
+“伴随着极端天气的增加，我们的人员配置开始变得紧张，因为（很多）机组人员最终退出了常规飞行序列”，他说：“为了确保我们服务好客户并为机组人员提供调度确定性，我们通过主动取消部分航班，调整了本月最后几天的运营。”
 
-另据[**看看新闻KNEWS**](https://weibo.com/kankanews) [2021年11月1日 08:09](https://weibo.com/1845864154/KFnWJcj4k?from=page_1002061845864154_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
+美航女发言人说，以上这些与该公司的新冠疫苗任务无关。美国联合飞行员协会的发言人丹尼斯·塔杰（Dennis Tajer）上尉也表示，取消航班与疫苗接种要求没有关系。塔杰在一封电子邮件中告诉媒体，天气是催化剂，但航空公司也存在管理上的问题。
 
-【[#上海新华医院即日起暂停门急诊服务#](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E6%96%B0%E5%8D%8E%E5%8C%BB%E9%99%A2%E5%8D%B3%E6%97%A5%E8%B5%B7%E6%9A%82%E5%81%9C%E9%97%A8%E6%80%A5%E8%AF%8A%E6%9C%8D%E5%8A%A1%23&amp;from=default)】上海交通大学医学院附属新华医院接外省通报区域协查信息，根据国家和上海市有关防控要求，开展相关人员和环境筛查，并落实相应防控措施。即刻起，该院暂停门急诊诊疗服务，互联网医院正常运行。 ​​​​
-![](https://assets.gnews.org/wp-content/uploads/2021/10/004-3.jpg)
-不管是上海迪士尼的突然停园还是上海儿童医学中心和上海新华医院的临时关闭，三家机构都对于突然停园和临时关闭原因语焉不详，但是基本的判断就是这些场所和机构被最近确诊的新冠阳性或密接人员光顾过，但具体是哪个时间段的哪位或哪些新冠阳性确诊者或哪个时间段的哪些密接人员光顾过这些场所就只能从坊间小道消息略知一二。
+“航空公司的管理上存在漏洞，因为机组人员与飞机（固定）对接起来”，他说：“我们的员工和乘客同样在承受这种失败。”
 
-而官方语焉不详的封闭或临时关闭的原因其实才是最令人可怕的，自中共病毒肆虐以来，每逢小长假总会有个节前的病例清零和节后的病毒暴发，不管是五一还是清明还是十一莫不如此，其实病毒从未离开，只是在官方营造的抗疫胜利中，民众永远被蒙在鼓里。出行时看到的是无疫情，出行中大概率碰到的是上海迪士尼园中这33863名游客同样的境况，出行后疫情在不同城市和不同地区的遍地开花。
+他补充说：“大自然产生了一场风暴，而管理层未能适当安排，在几天后又产生了风暴。”
 
-在瑞丽已经被封城半年的情况下，上海这一次进入了中共病毒渐冻模式，北京也同时开始了多地的人员核酸检测，接下来还会有哪些城市和地区进入中共病毒渐冰模式我们不得而知，但我们可以确知的是在接下来的元旦、春节以及之后的每一个大小长假，上海正在发生的城市渐冻都会一再地重演。
+塔杰说，在周六取消的航班中，除了十几个航班之外，**其余都是由于无法将员工与飞机对接起来（缺少机组人员）。**
 
-撰稿：喜马拉雅的肉夹馍
+美国于10月1日宣布了新冠疫苗强制接种令。
 
-审核：喜马拉雅的馍夹肉
+“虽然我们仍在研究联邦政府要求的细节，但很明确的是，选择不接种疫苗的团队成员将不能在美国航空公司工作，”美航首席执行官道格·帕克（Doug Parker）在当天的一份备忘录中说。
 
-校对：Maarago
+该公司的高管强调，**员工必须在****11****月****24****日之前完全接种疫苗，否则将被解雇。**
 
-（文章内容仅代表作者个人观点）
+大多数以美国为基地的航空公司都实行了强制措施，有些是为了响应总统乔·拜登的计划，迫使私营企业让雇员提供疫苗接种证明，要么要求他们每周接受新冠核酸测试。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+然而，美国飞行员协会的负责人上月警告白宫和国会，疫苗授权可能在不久的将来引发混乱。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+西南航空公司本月初取消了数千个航班，使许多旅客滞留了数天。该航空公司声称，这些也是由不利的天气造成的，与它施加的（疫苗授权）任务无关，而且它后来推迟了一项让不遵守疫苗接种要求的员工安排无薪休假的计划。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+根据追踪网站“飞行意识”（FlightAware）的数据，除了美航周末取消的航班外，该航空公司在周五至周日期间还延误了数百个航班。这包括10月31日早期的73次延误。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+美航表示，近1800名正在休假的空乘人员将很快返回工作岗位，**并且正在招聘****600****多名空乘人员，此外还在努力为其他岗位招聘****4000****名工人**。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+新闻链接：[American Cancels 1,500 Flights On Halloween Weekend, Denies Any Relation To Vaccine Mandate | ZeroHedge](https://www.zerohedge.com/weather/american-cancels-1500-flights-halloween-weekend-denies-denies-any-relation-vaccine-mandate)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+**发布：文泓**
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

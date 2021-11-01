@@ -2,10 +2,12 @@
 ---
 
 
-## 喜币上市倒计时啦！
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1632316/)
+## 四币联合计划，建立独立于中共金融权威、安全的金融模式
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1632445/)
 
-**视频制作：逍遥小哥**
+5/12/2020 四币联合计划──建立一个独立于中共金融权威之下的让中国人安全的金融模式。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,26 +2,24 @@
 ---
 
 
-## 香草山翻译部周刊|2021年10月31日第20期
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1631522/)
+## 星期一再见面的时候咱们的关系彻底改变了
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1631526/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+咱们在星期一再见面的时候，咱们的关系彻底改变了。我们就是实现了共产主义了，咱们有共同资产了。我们就实现了共同富裕。我们是利益共同体。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/text-CN-2.png)
-文章仅代表作者本人观点，与Gnews无关
+**【郭先生视频摘要】2021.10.27星期一再见面的时候咱们的关系彻底改变了**
 
-总编： GBWater
-编辑： Lakers
-发稿： Lakers
+**郭先生：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-17.png)
+好，咱们在星期一再见面的时候 ，咱们的关系彻底改变了。你知道什么关系改变了吗？  有三个关系，不知道吧。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+我们在星期一再见面的时候，我们就是实现了共产主义了。咱们共同资产了，咱也共产主义了。
+
+第二个，我们是实现什么？——共同富裕。哈哈！我们就实现了共同富裕。这不是假的吧！这是真的吧！
+
+第三个，实现了我们的关系   所有的这个屋里的每个人，还有电视机(前)绝大多数的战友，我们是利益共同体哈，这叫这实现了。星期一见   （掌声）！
+
+视频剪辑：北方信使 |听写：小蜜蜂|翻译：Arthur  |校对： 烟波浩淼|字幕+视频制作：小蜜蜂|编辑+发布：黎明的光芒
 
  
 
