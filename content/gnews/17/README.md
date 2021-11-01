@@ -2,20 +2,38 @@
 ---
 
 
-## 喜币上市11.1.11:11 “千帆竞技、百舸争流”的喜币时代即将来临
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1633314/)
+## 美国一高中未经家长同意擅自为学生注射中共病毒疫苗
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1633439/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture100.png)
-在十一月1日“喜马拉雅币上市庆典”中，郭文贵先生说，喜币的稀缺性和独特的价值会令各大金融机构“趋之若鹜”，一场“百舸争流竞喜币”的时代即将来临。
+**作者：日本东京方舟农场 北极**
 
-今天开盘以后绝对会让你傻眼，今天早上一个机构要买，找我说我要出这个价，要买这些。当时我说这不可能，绝对不可能，但这种厮杀较量三个月吧，又需要三个月。但论毛、论块买就别讲了啊，不可能了。再一个就是大家抢的这个交易的份额，大家就是看我买了多少，你买多少。那共产党这么有钱，共产党肯定是买完再砸。可能机构之间的较量会在三个月内一直发生，但是说实话，不管什么情况下，三个月以后你也是不可能的。你不可能有几百个亿、几十个亿跟他玩对冲，再想参与到二级买的市场几乎没机会，几乎全世界很少人玩的起。
+据WVUE FOX 8近日报道，路易斯安那州的一所学校在未经家长同意的情况下，给一名16岁的高中生注射了中共病毒疫苗。该学生的母亲已就此发起诉讼。
 
-简而言之，机会稍纵即逝，但是战友们已经抓住了，以后几乎就没机会了。但各大金融机构和中共将会争夺喜币的份额。
+这名高中生的母亲詹妮弗·拉万（Jennifer Ravain）诉说了事情的经过：她的儿子今年16岁，上周在“奥克斯纳健康”（Ochsner Health）公司为学校组织的流动疫苗接种活动中，接种了中共病毒疫苗，但事前并未取得家长的知情同意。
 
-参考链接：
+这位母亲表示，她对于发生此事感到非常沮丧，并要对此发起诉讼。
 
-[喜马拉雅币上市庆典](https://gtv.org/broadcast/watch/617fb54b11d1862968feda54)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-1.png)图片来源：https://www.fox8live.com/2021/10/23/ochsner-admits-vaccinating-kenner-student-without-permission-mothers-lawyer-threatens-lawsuit/
+
+此案的代理律师谢里·马图林（Shelly Maturin）告诉WVUE-Fox 8记者，他将代表这对母子向法院提起诉讼，谴责学校未经监护人授权，擅自给未成年人接种疫苗的行为。该律师表示，除学校外，还将把“奥克斯纳健康”和学校董事会同时列为被告，并希望通过此事警醒路易斯安那州的所有公民。
+
+奥克斯纳健康公司的首席医疗官罗伯特·哈特博士（Dr. Robert Hart）在书面声明中承认，未经监护人许可，不应给未成年学生接种疫苗，他对此表示歉意。
+
+这所学校的校董事会发言人帕里斯·文内特（Paris Vinnett）也表示，将对此事进行彻底调查。
+
+*参考链接：*
+
+[Ochsner admits vaccinating Kenner student without permission; mother’s lawyer threatens lawsuit](https://www.fox8live.com/2021/10/23/ochsner-admits-vaccinating-kenner-student-without-permission-mothers-lawyer-threatens-lawsuit/)
+
+* * *
+
+
+```
+素材采编：北极
+编辑：青衣青青
+校对/发布：Ranting
+```
+
 
  
 
