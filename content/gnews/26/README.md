@@ -2,24 +2,38 @@
 ---
 
 
-## 喜币上市 (11/1/2021)新中国联邦的忠诚就是绝对去中心化、去忠保诚
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1633402/)
+## 美国一高中未经家长同意擅自为学生注射中共病毒疫苗
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1633439/)
 
-撰稿：千年等一回
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-01-at-2.46.31-PM.png)图片来源：GTV & GETTR
-郭文贵先生在2021年11月1日喜币上市大直播中谈到新中国联邦人对“忠诚”的理解，忠诚应该是去“忠”留“诚”。
+**作者：日本东京方舟农场 北极**
 
-爆料革命的核心是财富上去中心、人格上去中心化、政治上去中心化。财富去中心化是人格上我们得到独立的前提。
+据WVUE FOX 8近日报道，路易斯安那州的一所学校在未经家长同意的情况下，给一名16岁的高中生注射了中共病毒疫苗。该学生的母亲已就此发起诉讼。
 
-郭先生认为，人们过往过于强调忠诚的意义，现实生活中没有人能真正做到。忠诚一词中的“诚”字比“忠”重要得多。诚即是信，诚即是德，诚即是法，诚即是天。无诚则无利，无诚则乱，无诚则无刚，无刚则无神，无天地、无纲常、无道德、无规则，人就和畜生没有分别。
+这名高中生的母亲詹妮弗·拉万（Jennifer Ravain）诉说了事情的经过：她的儿子今年16岁，上周在“奥克斯纳健康”（Ochsner Health）公司为学校组织的流动疫苗接种活动中，接种了中共病毒疫苗，但事前并未取得家长的知情同意。
 
-爆料革命和新中国联邦所要的忠诚，就是绝对去中心化，但要求大家去忠保诚，诚待父母，诚待朋友，诚待事，诚待诺，诚待行。
+这位母亲表示，她对于发生此事感到非常沮丧，并要对此发起诉讼。
 
-郭先生说之所以提到“忠诚”，是因为随着喜币上市，新中国联邦人将面对金钱的考验，特别是如喜币代持等问题，将影响战友们未来能够走多远，关系到我们爆料革命奋斗的目标：让大多数人获得自由、法制和信仰——能否实现。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-1.png)图片来源：https://www.fox8live.com/2021/10/23/ochsner-admits-vaccinating-kenner-student-without-permission-mothers-lawyer-threatens-lawsuit/
 
-参考链接：https://gtv.org/broadcast/watch/617fb54b11d1862968feda54
+此案的代理律师谢里·马图林（Shelly Maturin）告诉WVUE-Fox 8记者，他将代表这对母子向法院提起诉讼，谴责学校未经监护人授权，擅自给未成年人接种疫苗的行为。该律师表示，除学校外，还将把“奥克斯纳健康”和学校董事会同时列为被告，并希望通过此事警醒路易斯安那州的所有公民。
 
-校对发布：Shifter
+奥克斯纳健康公司的首席医疗官罗伯特·哈特博士（Dr. Robert Hart）在书面声明中承认，未经监护人许可，不应给未成年学生接种疫苗，他对此表示歉意。
+
+这所学校的校董事会发言人帕里斯·文内特（Paris Vinnett）也表示，将对此事进行彻底调查。
+
+*参考链接：*
+
+[Ochsner admits vaccinating Kenner student without permission; mother’s lawyer threatens lawsuit](https://www.fox8live.com/2021/10/23/ochsner-admits-vaccinating-kenner-student-without-permission-mothers-lawyer-threatens-lawsuit/)
+
+* * *
+
+
+```
+素材采编：北极
+编辑：青衣青青
+校对/发布：Ranting
+```
+
 
  
 
