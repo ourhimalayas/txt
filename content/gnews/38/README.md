@@ -2,28 +2,41 @@
 ---
 
 
-## 如果联合国财务公开，马斯克允诺赠款解决世界饥饿
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1632093/)
+## 澳洲首都地区的残疾人支持工作者需强制接种疫苗
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1632103/)
 
-#### 整理报道：月映万川 
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-#### 编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/习近平-2.jpeg)**图片来源：Republicworld.com**
-11月1日，世界首富埃隆·马斯克针对一位联合国的官员的说法提出了挑战。这位官员称，只要马斯克拿出一小部分财产，就能帮助世界解决饥饿问题。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/28677-iowa-governor-kim-reynolds-signs-law-allowing-workers-to-seek-medical-and-religious-exemptions-from-covid-19-vaccine-mandate-758x506-1.jpg)
 
-这位官员是联合国粮食食品项目计划署署长大卫·比斯利。上周他又一次重复了本月初他的推特里提到的，对于像马斯克这样的亿万富豪，“他们需要挺身而出，只要一次就好”。
 
-大卫先生不断强调，“60亿美元能够拯救4.2千万即将饿死的人口”。
 
-马斯克在自己的推特指出，如果世界粮食计划署“能够做出一个准确计划来使用这60亿美元解决世界饥饿问题，我现在就卖掉特斯拉的股票去行动……但是，联合国粮食计划署的支出计划必须要有公开的账目，并保证大众的知情权”。
+图片来源：cybernistas.com
 
-60亿美元只是目前马斯克个人净资产的一小部分。他的个人资产已经达到3110亿美金。而仅仅在10月29日这一天，他的个人净资产就增加了93亿美元。
 
-目前，这位联合国世界粮食计划署官员尚未回应。
+#### 编译：小红帽
 
-新闻链接：[Elon Musk tweets that he’ll donate $US6 billion to end world hunger, if the United Nations’ World Food Program can provide ‘open source accounting’ to show public precisely how the money is spent (afr.com)](https://www.afr.com/world/north-america/elon-musk-says-he-ll-donate-8b-to-end-world-hunger-on-one-condition-20211101-p594tf)
+澳大利亚堪培拉的残疾人支持工作者和社区老年护理人员将被强制接种中共病毒（COVID-19）疫苗。
 
-发布：文泓
+首都新发布的公共卫生令将要求该行业的工人在11月15日之前接种第一剂疫苗，并在12月13日之前完全接种疫苗。
+
+澳大利亚首都地区卫生部长雷切尔·斯蒂芬-史密斯（Rachel Stephen-Smith）表示，该决定是在与该部门进行了大量会谈之后做出的。
+
+最初提议该行业的工人需要在11月29日之前完全接种疫苗，但在协商后该任务被推迟了两周。
+
+“利益相关者认为澳大利亚首都地区的公共卫生方向应该与新南威尔士州采取的方法更加一致，”斯蒂芬·史密斯(Stephen Smith)女士说。
+
+澳大利亚首都地区的医护人员和教师已被要求全面接种疫苗。
+
+在首都，超过92%的符合条件的12岁及以上人口接种了疫苗。堪培拉人将从周一开始接种加强剂。
+
+六个多月前接种过两剂疫苗的人，现在可以在政府诊所接种辉瑞疫苗加强剂，无论他们之前接种了哪种品牌的疫苗。
+
+同时，免疫功能低下的堪培拉人开始接种疫苗加强剂。
+
+**参考新闻：**[Vaccine mandate for ACT disability workers (thenewdaily.com.au)](https://thenewdaily.com.au/news/state/act/2021/11/01/vaccine-mandate-for-act-disability-workers/)
+
+***发布：小红帽***
 
 **更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

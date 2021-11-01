@@ -2,48 +2,34 @@
 ---
 
 
-## 澳洲首都地区的残疾人支持工作者需强制接种疫苗
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1632103/)
+## 中共国地方政府债务风险之一：借新还旧难偿债
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1632111/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/nimg.ws_.126.net_-2.jpg)中共国地方政府债务风险之一：借新还旧难偿债 网络图片
+据大卫手工活10月31日报道，近些年，随着2万多亿地方债以及近3万亿城投债到期兑付高峰的到来，地方政府债务风险事件频发。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/28677-iowa-governor-kim-reynolds-signs-law-allowing-workers-to-seek-medical-and-religious-exemptions-from-covid-19-vaccine-mandate-758x506-1.jpg)
+地方政府债务是指按照法律、合约的形式明确记载和规定需要由地方政府来偿还的债务，政府需要对此承担法律义务。除此之外，地方城投平台和国有企业等举债，由政府提供担保或实质上承担偿还义务的债务，为隐性债务。1994年，地方政府财政收入大部分上交中央，因此地方政府不得不通过各种渠道举债以缓解财政压力。
+
+2008年财政部明确规定地方政府可利用融资平台通过市场机制筹措配套资金。2020年末，地方政府显性债务余额为256,615亿元，主要以政府债券形式存在。2020年度兑付金额为20,757亿元。地方政府对到期债券的兑付基本上是通过发行再融资债券完成的，即“借新还旧”。地方政府基本上丧失了自给自足偿还债务的能力。
+
+除了显性债务，截至2019年底，地方政府隐性债务总额有514,430亿元。2021年地方债到期规模为26,680亿，城投债为29,503亿。在债务偿还高峰期的背景下，部分地区债务压力凸显，信用风险事件频发，地方国企和城投平台非标债券违约增多。2020年11月永煤集团违约，相关责任人撤职，河南省融资环境恶化。
+
+借钱度日救得了一时，救不了一世。拆东墙补西墙的结果是，哪面墙都千疮百孔，随时都会倒塌。中共国的经济就像一堵摇摇欲坠的墙，怎么补都解决不了问题。伪中央政府已经自顾不暇，地方政府也只能背着债得活一时算一时。只有彻底推翻CCP，追回盗国贼偷走的国家财富，地方政府和民生大众才有活路。
+
+新闻参考链接：[https://c.m.163.com/news/a/GNLLB7FL05446KB9.html?spss=newsapp](https://c.m.163.com/news/a/GNLLB7FL05446KB9.html?spss=newsapp)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-图片来源：cybernistas.com
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
-#### 编译：小红帽
-
-澳大利亚堪培拉的残疾人支持工作者和社区老年护理人员将被强制接种中共病毒（COVID-19）疫苗。
-
-首都新发布的公共卫生令将要求该行业的工人在11月15日之前接种第一剂疫苗，并在12月13日之前完全接种疫苗。
-
-澳大利亚首都地区卫生部长雷切尔·斯蒂芬-史密斯（Rachel Stephen-Smith）表示，该决定是在与该部门进行了大量会谈之后做出的。
-
-最初提议该行业的工人需要在11月29日之前完全接种疫苗，但在协商后该任务被推迟了两周。
-
-“利益相关者认为澳大利亚首都地区的公共卫生方向应该与新南威尔士州采取的方法更加一致，”斯蒂芬·史密斯(Stephen Smith)女士说。
-
-澳大利亚首都地区的医护人员和教师已被要求全面接种疫苗。
-
-在首都，超过92%的符合条件的12岁及以上人口接种了疫苗。堪培拉人将从周一开始接种加强剂。
-
-六个多月前接种过两剂疫苗的人，现在可以在政府诊所接种辉瑞疫苗加强剂，无论他们之前接种了哪种品牌的疫苗。
-
-同时，免疫功能低下的堪培拉人开始接种疫苗加强剂。
-
-**参考新闻：**[Vaccine mandate for ACT disability workers (thenewdaily.com.au)](https://thenewdaily.com.au/news/state/act/2021/11/01/vaccine-mandate-for-act-disability-workers/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

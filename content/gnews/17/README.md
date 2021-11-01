@@ -2,35 +2,40 @@
 ---
 
 
-## 美媒提出质疑“与中共国做生意值得吗？”深度讨论（2）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1632412/)
+## 有声|贺喜币
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1632440/)
 
-撰稿：喜妈
-![](https://assets.gnews.org/wp-content/uploads/2021/11/701C9062-C91C-4378-B75B-DF464A6DE0CC.jpeg)来自网络截图
-美国马萨诸塞州地方媒体报道，美国应该重新考虑与中共国的贸易关系，美国可能已经到了“与中国做生意可能不值得”的时候。在美中巨大的贸易逆差之下，报道分认为，即使中共国“可能是美国最大的贸易伙伴之一”，可是中共国“每年花费”美国“数万亿美元”：这包括在“廉价产品”之外的“病毒、污染、致命合成药物、假冒商品甚至人体器官的世界主要出口国”等带来的产品。这些产品都在提醒美国和美国人民，美国应该反思与中共国的贸易关系。
+配音：香草山美食部 – 玫瑰园
 
-此外，报道指出美国社会应该“考虑”不应该和中共继续贸易的几点原因：“COVID-19 大流行”、“环境破坏”、“阿片类药物危机”、“盗窃知识产权”和“躲避审计”等。在中共病毒问题上，该文认为“尽管中国共产党阻挠、否认和推卸责任，但几乎可以肯定的是，COVID-19 起源于武汉病毒研究所的泄漏”。
+喜从天降贺联邦，
 
-同时，文章认为中共国“允许 COVID-19 在世界上传播已经够糟糕的了”，可是，“中共仍在否认责任”，即使“冠状病毒已经感染了超过2.37亿人，造成超过480万人死亡”。在美国，“有 4500 万美国人被感染，近 728,000 人死亡”。相反，中共国却在它 14 亿人口国家中“有 96,423 例病例，只有 4,636 例死亡”，“使其在 COVID-19 病例的世界国家中排名第 112 位”。
+币跃牵动世界狂。
 
-文章质问：“如果这是真的，中国难道不应该与世界其他国家分享其成功的秘诀，而不是阻止调查人员在中国研究这种疾病的起源吗？”而且，文章进一步指出”如果这些数字属实，那么中共国一定开发了一种惊人的疫苗”。
+冲破至暗独道光，
 
-报道认为，“ COVID-19 并不是第一个起源于中国并传播到世界各地的病毒”；“其他包括 H2N2 (1957-58)； H3N2 (1968-69); H56N1，也称为禽流感（1997-2006）和 SARS（2009）”。根据报道，“ H1N1，也称为猪流感，可能也起源于中国”，“尽管最早的病例是在墨西哥报告的”。因此，文章旗帜鲜明地提出一个问题：“中共国会成为未来病毒的源头吗？” 因为，道理很简单，“已经有证据表明新菌株来自那里”。
+天意使然共匪亡。
 
-综上所述，笔者认为，这些认识从一个西方国家的地方媒体声音发出来，极为不易，非常值得关注。要知道，中共进行病毒的研制和投放，并通过“功能加强”升级为生物武器，这是爆料革命一直在向世界传送的真相。我们曾经是跟随文贵先生非常孤立和少数的一群人，通过四年多以来战友们在世界各地的广泛宣传，今天已经出现了逐渐多的觉醒人们和我们站在一起。
+感天动地无我念，
 
-更加可贵的一点是，这些和爆料革命几乎是一致的真相了解，是来自西方民众自己在与中共接触的过程中，逐渐展开和不断地被其邪恶所震撼。相信，关于本次大疫情和毒疫苗等真相的到更加普遍地分享，整个世界一定会转变对中共的认识。
+恩泽草根世无双。
 
-还有一点必须指出的是，这是一篇涉及美中贸易的文章，探讨经济的文章将中共病毒研制和发展、疫情的背景和未来作为一个关键点提出来让美国人民思考、美国经济界思考、美国社会思考，具有非常重要的价值。也就是说，这篇报道让读者可以自然地想到，你需要和伤害你的人做生意吗？你会和你的敌人做贸易吗？做交易的对方，是要取你的命，你还会继续吗？
+七芒之星永为鉴，
 
-本文纯属个人观点，与Gnews无关
+哥（歌）功颂德史册藏。
 
-参考消息：
+文字版原文：[贺喜币](https://gnews.org/zh-hans/1630544/)
 
-Is it worth doing business with China?
+音频处理：喜山必胜Maverick
 
-[https://www.metrowestdailynews.com/story/business/2021/10/31/columnist-brenda-wenning-questions-whether-its-worth-doing-business-china/6191637001/](https://www.metrowestdailynews.com/story/business/2021/10/31/columnist-brenda-wenning-questions-whether-its-worth-doing-business-china/6191637001/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
