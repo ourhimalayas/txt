@@ -2,18 +2,30 @@
 ---
 
 
-## 西媒头条 — 第99期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1633170/)
+## GTV新闻访谈简报|2021年11月1日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1633215/)
 
-制作：蚂蚁兄弟
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO.jpg)
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_.png)
+文章仅代表作者本人观点，与Gnews无关
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/xm1101.001.jpeg)
+视频参看：2021.11.01早GTV新闻访谈
 
-发稿：信心的选择
+[https://gtv.org/broadcast/watch/617fb54b11d1862968feda54](https://gtv.org/broadcast/watch/617fb54b11d1862968feda54)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
