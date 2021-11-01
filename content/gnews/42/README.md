@@ -2,26 +2,36 @@
 ---
 
 
-## 香草山翻译部周刊|2021年10月31日第20期
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1631522/)
+## 佛州州长德桑蒂斯抨击拜登需特别会议阻止疫苗强制执行
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1631542/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+据《新闻大全》2021 年 10 月 30 日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-27.png)图片来自视频截图
+佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）周五对总统乔·拜登（Joe Biden）提出批评，他呼吁立法者在11月15日召开特别会议，讨论防止企业强制实施疫苗的立法。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/text-CN-2.png)
-文章仅代表作者本人观点，与Gnews无关
+德桑蒂斯在处理冠状病毒大流行的问题上，几乎经常与拜登政府意见相悖。德桑蒂斯说，总统试图迫使大型企业和政府承包商强制接种疫苗是越权行为。
 
-总编： GBWater
-编辑： Lakers
-发稿： Lakers
+**[州长的公告说](https://www.flgov.com/wp-content/uploads/2021/10/10.29.21-Proc.pdf)**：“ 拜登政府已采取或威胁采取非同寻常的努力，强迫那些因健康、怀孕、宗教信仰（包括真诚的道德或伦理信仰）和先前感染而不愿接受疫苗的美国人注射COVID疫苗”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-17.png)
+着眼于 2024 年总统竞选的德桑蒂斯对白宫和佛罗里达州地方政府的疫苗规定和其他大流行限制提出了严厉批评。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+德桑蒂斯说：“强迫美国人接种疫苗将进一步加深使人们不信任政府和美国企业。”
+
+公告说：“不顾父母的反对而对健康的学童强行戴口罩和进行不必要的隔离，侵犯了父母为孩子做出医疗保健和教育决定的能力，并损害了佛罗里达学童接受他们应得的优质教育的能力。”
+
+周四，德桑蒂斯宣布就白宫对联邦承包商的疫苗强制执行提起诉讼。 他的政府还对当地学校董事会进行了罚款，这些董事会违反了州政府禁止在课堂上戴口罩的规定，并扣留了接受联邦拨款的地区资金，以减轻州政府的罚款。
+
+特别会议还要求立法者澄清，当地学区不得强制要求学生戴口罩，而是将选择权留给家长。会议将于 11 月 19 日结束。
+
+参议院议长威尔顿·辛普森(Wilton Simpson)和众议院议长克里斯·斯普洛尔斯(Chris Sprowls)发表联合声明，支持德桑蒂斯。
+
+他们说：“在过去两年里，佛罗里达人目睹了我们在其他州的朋友和亲戚的自由一次一个被剥夺。拜登政府在全国范围内强制实施非法和违宪的疫苗接种授权，剥夺了美国人民的工作尊严，我们不会袖手旁观。”
+
+许多其他州正在考虑反授权法案。德克萨斯州共和党州长格雷格·阿伯特（Greg Abbott）最近发布了一项行政命令，禁止任何实体要求接种疫苗。
+
+原文链接：[https://www.newsmax.com/us/desantis-florida-vaccine-mandates-special/2021/10/29/id/1042583/](https://www.newsmax.com/us/desantis-florida-vaccine-mandates-special/2021/10/29/id/1042583/)
+
+翻译：飞利普 |校对：烟波浩淼|编辑+发布：黎明的光芒
 
  
 

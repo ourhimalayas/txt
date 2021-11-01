@@ -2,86 +2,50 @@
 ---
 
 
-## 郭文贵先生给国内战友的建议
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1631823/)
+## 何炅作为娱乐行业大咖受到打压
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1631904/)
 
-[https://gtv.org/video/id=617f21beadfd99590c31efcd](https://gtv.org/video/id=617f21beadfd99590c31efcd)
+**作者：**顺其自然
+**编辑、发布：**Candy
 
-我唯一的一个个人观点建议
-Mi única sugerencia de opinión personal
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/何炅.jpg)
 
-你要慎重考虑
-Debes pensar con cuidado
+图片来源：娱乐八卦网
+何炅，因为习近平为让韭菜们多生娃整顿娱乐行业而失业，大哭！
 
-在中国国内的
-Dentro de China
+近日从网络流出的一支视频中看，何炅和周迅、黄磊等娱乐圈名人因乌镇戏剧节齐聚一堂。众人原本在餐厅聚餐有说有笑，但席间何炅突然情绪失控，抱着周迅哭个不停。
 
-你没有生存能力, 没有足够的钱
-Si no tienes capacidad para sobrevivir ni el suficiente dinero
+据陆媒“搜狐娱乐”报导：伴随着中共广电总局开展所谓的“清朗行动”，不少电视综艺节目都面临整改。其中何炅、谢娜等主持的王牌综艺节目《快乐大本营》，被电视台以“升级改版、更新换代”为由遭停播。而该节目的停播就意味“快乐家族”的所有成员都暂时“失业”。
 
-你别出国, 出了国更惨
-No salgas del país porque será peor
+此外，何炅主持真人秀《令人心动的offer》，原本在主持阵容被列在第一顺位，但第三季开录已看不到他的踪影，而且也缺席最新一季的《明星大侦探》主持阵容。
 
-外国没有钱是寸步难行
-Es difícil moverse sin dinero en países extranjeros
+有网民留言表示：“《快本》停播，《offer》等各节目也换人，何炅线上线下商务遭受重击。和《芒果》签的也只是主持约和节目约，不是体制内的人，又不敢提出离开解约，大起大落过的委屈啊！”认为何炅这次忍不住痛哭，是因为事业感到压力山大。
 
-没有语言更难行
-Sin saber el idioma es aún más difícil
+我对湖南卫视的节目无感，基本上不看他们的节目，像什么《快乐大本营》之类的，但是我知道在年轻人中非常流行。之前中共对教培行业下狠手，就是因为若大家都激娃，都把所有的财力、物力、精力都集中在让孩子准备考上一个好大学，将来能去一个好单位，那么他就没有精力和财力再生二胎和三胎了。打击教培行业，令几近千万人失业。新东方从高高在上，现在已经破产倒闭。接着打击游戏行业，让年轻人少玩游戏，有时间多谈谈恋爱。后来一看，好嘛，快乐大本营还吸引一大堆年轻人呢！那怎么行，必须停了。所以现在是所有影响韭菜生娃的行业都必须整顿、关停，让你的精力无处发泄，最后只能生娃。
 
-在国内就到农村, 中小城市活着去
-Si estás en China, vaya a vivir en zonas rurales o ciudades pequeñas y medianas
+习近平的中共这么急的原因就是：中共一直鼓吹的什么高科技行业、金融等，其实都是胡扯的。中共真正赚钱的，真正能在世界上拿的出手的，而且还能卡住各国脖子的，就是农民工的血汗工厂。而农民工的血汗工厂，由于现在年轻人的减少，很多都是年龄非常大的人在工作。如果没有年轻人跟进，年龄大的人再有几年干不动了，那么这个工厂也就要关停并转。
 
-唯一的是, 我强烈建议任何情况下别打疫苗
-Lo único que recomiendo encarecidamente es no que se vacunen bajo ninguna situación
+我们知道东南亚除了泰国，越南是中国低端产业的转出地，还有孟加拉国。孟加拉国的纺织业现在非常强劲，原因就是他有1.7亿的人口，而且还都是年轻人，人口结构特别好，类似于中国刚刚改革开放八九十年代时的那个人口结构。
 
-别染上冠状病毒
-No te contagies del Covid-19
+现在中共高科技又起不来，低端的血汗制造业工厂又在流失，习近平当然着急了，所以现在他就要把所有影响生育的行业全部都给关停了。不需要你们上什么大学，只要安心生出小韭菜，将来进工厂打工就可以了。因此也就看到了何炅痛苦的那一幕，即使是名人，在时代的大趋势下，也是一个蝼蚁，不知被哪个车轮碾压。
 
-备好伊维菌素, 地塞米松, 羟氯喹和锌
-Prepare ivermectina, dexametasona, hidroxicloroquina y zinc
+网友已经列出了下一个将要整顿的行业，就是避孕用品行业。还有短视频行业，像抖音聚会，都是玩儿手机，玩儿抖音，这太影响恋爱了。还有信用卡行业，引诱年轻人使用信用卡，为了还债焦头烂额，不肯结婚生娃，肯定要打击这个行业。
 
-然后是青蒿素
-y luego es la artemisinina
+网友再预测一下，还会有哪些行业是中共要打击的？
 
-绝对伊维素是防病的, 是治病的
-La ivermectina es preventivo y curativo
 
-地塞米松是紧急控制你血氧的
-La dexametasona es una emergencia para controlar el oxígeno en la sangre
+```
+(免责声明：本文内容仅代表作者个人观点，Gnews不承担任何责任。）
+```
 
-青蒿素是打了疫苗以后解毒的
-La artemisinina desintoxica después de ser vacunada
 
-还有防止病毒的(作用)
-Y también tiene función de prevenir el virus
 
-怎么吃, 请大家一定买正确的药
-Cómo tomarlo, compre el medicamento correcto
 
-按医嘱吃
-Toma según las indicaciones del médico
-
-———————————————————
-
-**原视频网址**：[https://twitter.com/Se1y7CbLlJSeLVA/status/1452954306412355585](https://twitter.com/Se1y7CbLlJSeLVA/status/1452954306412355585)
-
-日期：10/31/2021
-原视频标题：
-Sugerencias dadas por el Sr. Wengui Guo para los compañeros luchadores de China
-原视频日期：10/24/2021
-任务编号：KC216（2690）
-视频时间段：0:00-0:58
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

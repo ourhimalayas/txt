@@ -2,38 +2,35 @@
 ---
 
 
-## 杰森·米勒：疫苗强制令导致美国社会分裂
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631721/)
+## 突发消息：白宫发言人 Psaki 检测出 COVID-19 呈阳性
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1631747/)
 
-作者：澳喜农场 – 在远方
+翻译：Jenny Ball
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-5.jpg)周日，白宫新闻秘书珍·帕萨基（ Jen Psaki ）的 COVID-19 检测呈阳性，成为公开披露感染了该病毒的最高级别的白宫官员。
 
+“虽然自周三以来我没有与总统或白宫工作人员的高级成员进行过密切接触——并且在最后一次接触后的四天里检测结果呈阴性——但出于充分的透明度，我公开了今天的阳性检测结果，”她在一份声明中说。 “我最后一次见到总统是在周二，当时我们坐在外面，相距六英尺多，戴着口罩。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+她在一份声明中说，在她的一名家庭成员对该病毒呈阳性反应后，普萨基周四选择不与拜登总统和其他工作人员一起前往欧洲。她最后一次在白宫与记者举行了新闻发布会。
 
+**Psaki****说她接种了疫苗并且症状轻微**。在测试呈阴性后，她将在隔离 10 天后重返工作岗位。
 
+新闻秘书通常会定期与总统互动，这使得 Psaki 的阳性测试特别引人注目。拜登本月早些时候接受了他的 COVID-19 加强注射疫苗，但在 78 岁时，如果他感染了该病毒，他仍被认为是高危人群。
 
-目前，佛罗里达州的中共病毒感染率，已经达到全美国最低，德克萨斯州的感染率，也低于许多民主党执政的蓝州。而这两个州对拜登政府的疫苗强制令反抗最为激烈。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture5-4.jpg)
-盖特CEO杰森.米勒先生10月30日接受Newsmax采访时说，很多防疫措施，在科学上都讲不通，尤其是口罩强制令、疫苗强制令，和疫苗护照等措施。在纽约，没有疫苗卡甚至不能去买汉堡，这实在太荒谬了。人们正在被迫搬往其他地区，并非是他们喜欢那里的气候或是某些工作。如今人们在全国各地搬家，就是为了远离政府。
+总统于周四前往欧洲。此后，他在罗马会见了教皇和 20 国集团领导人。他将于周一和周二参加在格拉斯哥举行的 COP26 气候峰会，然后返回华盛顿特区。
 
-米勒先生认为，这是美国历史上民众第一次出现这样的自我选择。对美国而言，这是一种令人不安的趋势。他认为民主党错误的政策，让纽约和西雅图等城市，因为失去不愿强制接种疫苗的警力，而陷入混乱。这是迫使美国分裂为两个不同社会的迹象，将对蓝领工人造成伤害，也会对那些需要到实际工作场合去工作的人，造成伤害。
+白宫拒绝透露其内部的突破性 COVID-19 案件，除非个人选择公开或与总统直接接触。
 
-参考链接：[杰森·米勒：疫苗强制令导致美国社会分裂](https://gettr.com/post/pfp2r74147)
+其他披露阳性检测结果的高级政府官员包括：国土安全部部长亚历杭德罗·马约卡斯（Alejandro Mayorkas）和国务院发言人内德·普莱斯（Ned Price），他们都接种了疫苗。
 
-![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+**参考资料：**[newsbreak][White House’s Psaki tests positive for COVID-19](https://www.newsbreak.com/news/2420013910813/white-house-s-psaki-tests-positive-for-covid-19?s=web_push_b_m_breaking)
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-2.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

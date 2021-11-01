@@ -2,34 +2,50 @@
 ---
 
 
-## 突发消息：白宫发言人 Psaki 检测出 COVID-19 呈阳性
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1631747/)
+## 飞机着火坠毁，21名乘客奇迹生还
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1631887/)
 
-翻译：Jenny Ball
+作者：纽约香草山信息部 – 6zero4
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-5.jpg)周日，白宫新闻秘书珍·帕萨基（ Jen Psaki ）的 COVID-19 检测呈阳性，成为公开披露感染了该病毒的最高级别的白宫官员。
 
-“虽然自周三以来我没有与总统或白宫工作人员的高级成员进行过密切接触——并且在最后一次接触后的四天里检测结果呈阴性——但出于充分的透明度，我公开了今天的阳性检测结果，”她在一份声明中说。 “我最后一次见到总统是在周二，当时我们坐在外面，相距六英尺多，戴着口罩。”
 
-她在一份声明中说，在她的一名家庭成员对该病毒呈阳性反应后，普萨基周四选择不与拜登总统和其他工作人员一起前往欧洲。她最后一次在白宫与记者举行了新闻发布会。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-**Psaki****说她接种了疫苗并且症状轻微**。在测试呈阴性后，她将在隔离 10 天后重返工作岗位。
 
-新闻秘书通常会定期与总统互动，这使得 Psaki 的阳性测试特别引人注目。拜登本月早些时候接受了他的 COVID-19 加强注射疫苗，但在 78 岁时，如果他感染了该病毒，他仍被认为是高危人群。
 
-总统于周四前往欧洲。此后，他在罗马会见了教皇和 20 国集团领导人。他将于周一和周二参加在格拉斯哥举行的 COP26 气候峰会，然后返回华盛顿特区。
+10月19日上午，房产公司Flair Builders高管肯特（J. Alan Kent）的单通道大型私人飞机MD-87从休斯敦行政机场起飞前往波士顿。然而，飞机在跑道尽头因没有达到起飞高度而撞到了机场围栏并起火。最后，飞机穿越了一条公路并坠毁在一片田野上。奇迹的是，所有21名乘客和机组人员都从被火球吞没的飞机残骸中安全逃生。据了解，只有一人背部受伤被送医救治。此事件创造了航空事故人员伤亡数据接近零的奇迹！
 
-白宫拒绝透露其内部的突破性 COVID-19 案件，除非个人选择公开或与总统直接接触。
+![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/jetcrshhouston.jpg?itok=c3yrz1rP)图片来源：FOX
 
-其他披露阳性检测结果的高级政府官员包括：国土安全部部长亚历杭德罗·马约卡斯（Alejandro Mayorkas）和国务院发言人内德·普莱斯（Ned Price），他们都接种了疫苗。
+文贵先生创立并引领的爆料革命，一直在灭共和唤醒世界的道路上创造了目不暇接的奇迹。而今，中共的经济、政治、军事和社会等各方面都严重后院起火，这所“破船”就如这架MD-87私人飞机，无可避免地即将坠毁。但是，所有墙内跟随文贵先生的战友就是MD-87飞机上的乘客——他们将全部幸运逃生。事实上，新中国联邦就是MD-17飞机最后的坠毁地，中共必将被摧毁在爆料革命的战场上！
 
-**参考资料：**[newsbreak][White House’s Psaki tests positive for COVID-19](https://www.newsbreak.com/news/2420013910813/white-house-s-psaki-tests-positive-for-covid-19?s=web_push_b_m_breaking)
+（本文仅代表作者观点）
 
-* * *
+参考阅读：
 
-*发布：信心的选择*
+[“Miraculous”: All 21 Passengers Walk Away From Fiery Private Jet Crash Outside Houston](https://www.zerohedge.com/medical/miraculous-all-21-passengers-walk-away-fiery-private-jet-crash-outside-houston)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
  
 

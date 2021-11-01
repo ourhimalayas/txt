@@ -2,8 +2,8 @@
 ---
 
 
-## 飞机着火坠毁，21名乘客奇迹生还
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1631887/)
+## 中共新法：孩子“犯事”，家长“连坐”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1631915/)
 
 作者：纽约香草山信息部 – 6zero4
 
@@ -13,17 +13,23 @@
 
 
 
-10月19日上午，房产公司Flair Builders高管肯特（J. Alan Kent）的单通道大型私人飞机MD-87从休斯敦行政机场起飞前往波士顿。然而，飞机在跑道尽头因没有达到起飞高度而撞到了机场围栏并起火。最后，飞机穿越了一条公路并坠毁在一片田野上。奇迹的是，所有21名乘客和机组人员都从被火球吞没的飞机残骸中安全逃生。据了解，只有一人背部受伤被送医救治。此事件创造了航空事故人员伤亡数据接近零的奇迹！
+10月19日至23日，中共“橡皮图章” 立法机构人大第13届常委会第31次会议在北京举行，当中，中共人大将对《家庭教育促进法》草案进行第三次审议。
 
-![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/jetcrshhouston.jpg?itok=c3yrz1rP)图片来源：FOX
+![](https://gdb.voanews.com/1F314422-84CD-42CF-9079-D2FCE88F89C0_cx0_cy10_cw0_w1080_h608_s.jpg)图片来源：AP
 
-文贵先生创立并引领的爆料革命，一直在灭共和唤醒世界的道路上创造了目不暇接的奇迹。而今，中共的经济、政治、军事和社会等各方面都严重后院起火，这所“破船”就如这架MD-87私人飞机，无可避免地即将坠毁。但是，所有墙内跟随文贵先生的战友就是MD-87飞机上的乘客——他们将全部幸运逃生。事实上，新中国联邦就是MD-17飞机最后的坠毁地，中共必将被摧毁在爆料革命的战场上！
+据悉，该法规定，家长若不履行或不正确履行家庭教育责任，将承担相应的法律后果。此外，当中还规定，公、检、法一旦发现未成年人存在严重不良行为或犯罪行为，可强令家长接受家庭教育指导并对家长进行训诫，甚至可被视为“同犯”。
+
+目前，中共正在打击他们定义的西方文化“精神鸦片”——网络游戏、 崇拜好莱坞明星、流行音乐等不推崇所谓“正确价值观”的“娘炮”行为。而今，他们又推出这个以“戒瘾”为核心的青少年文化全面整顿倡议，为当局处理那些鼓励孩子违背中共的“正确价值观”行为的家长提供法律依据。
+
+中共党员，尤其是其司法系统官员的严重不良行为和犯罪率都远远高于中共国的未成年人，那么，中共党魁及各部门领导是不是也需要对其下属的犯罪行为负责并连坐呢？
 
 （本文仅代表作者观点）
 
 参考阅读：
 
-[“Miraculous”: All 21 Passengers Walk Away From Fiery Private Jet Crash Outside Houston](https://www.zerohedge.com/medical/miraculous-all-21-passengers-walk-away-fiery-private-jet-crash-outside-houston)
+[中国人大常委会三审家庭教育促进法草案 孩子犯事将惩戒家长](https://www.voachinese.com/amp/China-drafts-law-to-punish-parents-for-children-s-bad-behaviour-20211018/6275463.html)
+
+[New China Law Will Punish Parents For Children’s ‘Bad Behavior’](https://www.zerohedge.com/political/new-china-law-will-punish-parents-childrens-bad-behavior)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
 
