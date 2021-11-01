@@ -2,25 +2,54 @@
 ---
 
 
-## 加拿大卑诗省因大量医护人员被停职而延误患者医治
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1631585/)
+## 酩悦香槟 (Moët)，一个普世成功的品牌
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1631633/)
 
-采编：文莱    编译撰稿：文明(添草灭共)
+作者** **：纽约香草山** – **Gtv abeilles** **（蜜蜂）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-25-edited.jpg)图片来源：TRUENORTH
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-10.jpg)
 
 
-据加拿大自媒体【真北方】10月28日报道，卑诗省有大量医护人员因未接种“新冠病毒疫苗”被停职，从而导致该省许多手术和医疗检测工作被迫推迟。
 
-据悉，该省针对医护人员的强制性接种规定在10月26日正式生效后，仍有超过4,000名医护工作者尚未接种至少一剂该疫苗而被停薪留职。此外，这些未接种员工必须在11月15日之前接种，否则将面临被当局解雇的处罚。
 
-为此，该省卫生部长表示，当局正在调配和招聘临时雇员来填补以上空缺，并要求那些已被休无薪假的员工尽快接种该疫苗以重返其工作岗位与此同时，医院雇员工会则表示，正在鼓励未接种的雇员向[卑诗省疾病控制中心]获取相关信息，或咨询其家庭医生以打消他们对接种该疫苗的犹豫。
 
-* * *
+自公元496年法兰西人的第一个国王克洛维在香槟地区最中心的兰斯大教堂加冕以来，这里的葡萄酒一直为加冕和洗礼神圣之用。香槟酒的酿制工艺是自古希腊、罗马几千年以来葡萄酒酿制工艺的一次突破。只有香槟地区产的葡萄汽酒才能叫香槟酒。
 
-校对编辑，发稿：硫酸羟氯喹64
+自1743年以来，克劳德·酩悦（Claud Moët）一直在创造着世界上最受赞赏的香槟酒。其1000公顷的葡萄园主要由顶级和特级葡萄园组成，是法国香槟地区最大和最有声望的庄园，其葡萄园的丰富性和多样性表现在Moët葡萄酒的公认质量上。
 
-[原文链接：](https://tnc.news/2021/10/28/bc-faces-surgery-delays-after-4000-unvaccinated-healthcare-workers-put-on-leave/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1321-1.jpg)图源网络
+
+喜马拉雅币是最具突破性、唯一性、承前启后神奇性的代表新时代的币种，并兼具——美元（法币）**、**喜美元（代币）**、**喜币（虚拟币）**、**黄金（货币）——四币联合的属性。
+
+喜币精神像作为特殊葡萄酒形象的香槟酒一样闪闪发光。而作为香槟酒之最的酩悦香槟 (Moët)更能见证稀有喜币上市的这一难忘历史时刻！2021年11月1日11点11分！HCOIN TO THE MOON !
+
+**参考****阅读****：**
+
+[https://www.lvmh.fr/search/](https://www.lvmh.fr/search/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-8.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-10.jpg)
+
+
+
+
 
  
 

@@ -2,27 +2,26 @@
 ---
 
 
-## 格力电器隐瞒危险品报告，将被罚9100万美元
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1631473/)
+## “IPAC”罗马会议呼吁G20强硬对抗中共
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1631483/)
 
-**撰稿：日本东京方舟农场 海星**
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-10月29日，美国司法部宣布，中共格力电器公司及其两家子公司对消费品安全委员会(CPSC)隐瞒了数百万除湿器存在缺陷并有可能起火的报告，将支付9100万美元罚款。
+10月29日，由全球200多名国会议员组成的“对华政策跨国议会联盟”（IPAC）在罗马举行会议，要求20国集团（G20）将人权纳入议事日程，对中共采取更强硬立场。
 
-据《美国之音》报道，美国司法部表示，针对格力公司故意隐瞒危险品报告的重罪指控，总部在珠海的全球电器制造商格力电器有限公司(Gree)及其在香港的子公司与美国政府达成了延迟起诉协议(DPA)。根据协议，两家公司必须支付总计9100万美元的罚款，并向因使用该公司有缺陷的除湿器而造成火灾且未得到赔偿的受害者支付赔偿。格力在美国的子公司也对这项指控承认有罪。
+据大纪元报道，在会议上，IPAC共同创办人、英国前保守党党魁邓肯·史密斯（Iain Duncan Smith）说，IPAC将呼吁各界关注“中国共产党对民主、人权和法治的系统性冲击”。
 
-司法部解释说，根据法庭文件，格力公司知道他们的除湿器有瑕疵、不符合相关安全标准并有可能起火，但是多月来却未能将该信息及时报告给CPSC。在消费者抱怨起火以及因此造成的伤害不断增多的情况下，格力公司才报告了有关信息并召回产品。
+他指出，冷战结束以来，还没有哪一个政权侵害人权的程度超越中共当局。有幸生活在自由世界的政治人物，往往误以为可与集权政府“讲道理”，但事实正好相反。“我们将在罗马提醒民主国家，他们有责任维护基于规则的国际秩序，这些规则是我们帮助形成的，现在正受到来自北京的威胁。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211031194749.png)图片来源：https://www.voachinese.com/a/gree-charged-with-failure-to-report-dangerous-humidifiers-and-agreed-to-pay-91-million-dolloars-20211029/6291355.html
+“真正的领导力意味着应对这些挑战，而不是假装它们不存在”，邓肯·史密斯说，“本届G20必须成为一个转折点，中共（问题）必须放在议程的首位。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/id13340228-GettyImages-1236160573-600x400-1.jpg)Uyghur human rights activist Rahima Mahmut (L) and Hong Kong activist and politician, chairman of Demosisto political party, Nathan Law , stand by a replica of the “Pillar of Shame” (C), a statue commemorating the 1989 Tiananmen Square Massacre, during a demonstration on October 27, 2021 outside the Chinese embassy in Rome, against the “Chinese governments dismantling of Hong Kongs democracy and autonomy” ahead of the G20 World Leaders Summit in Rome. (Photo by Andreas SOLARO / AFP) (Photo by ANDREAS SOLARO/AFP via Getty Images)
+比利时绿党议员科戈拉蒂（Samuel Cogolati）表示，当中共政权几乎每天入侵台湾空域，在维吾尔地区犯下暴行，并瓦解了香港的自由和自治时，我们不能继续与其“一切照旧”（business as usual）。他说：“在这次G20会议上，我们需要看到民主国家找到迄今为止一直缺乏的勇气和领导力。”
 
-司法部民事司的代理助理部长布莱恩·M·博因顿(Brian M. Boynton)在司法部的声明中说：“制造商和分销商必须立即向CPSC报告危险消费品，以便尽快采取行动保护消费者。”
-
-CPSC主席亚历克斯·霍恩·萨里奇(Alex Hoehn-Saric)在声明中说：“这项历史性的刑事执法行动应当提醒人们，CPSC将最充分地利用其权威，维护美国家庭的安全。不报告危险产品让消费者承受不必要的风险，对这种行为不会予以容忍。”
-此外，格力美国的首席执行官Charley Loh和首席行政事务官Simon Chu也因参与隐瞒缺陷消费品报告而受到重罪起诉。
+据悉，此次罗马会议是IPAC自2020年6月成立以来首次面对面会议。出席会议的有西藏流亡政府最高行政领导人（司政）边巴次仁（Penpa Tsering）、流亡伦敦的前香港立法会议员罗冠聪、世界维吾尔代表大会伦敦负责人马赫穆特（Rahima Mahmut）、英国前保守党党魁邓肯-史密斯（Iain Duncan Smith，港译施志安）、比利时绿党议员科戈拉蒂（Samuel Cogolati）、欧洲议会议员莱克斯曼（Miriam Lexmann） 、立陶宛社民党议员萨卡利埃内（Dovilė Šakalienė）、日本代表山尾志樱里、法国参议员安德烈·加托林（Andre Gattolin）、乌干达议员艾克罗（Lucy Akello）等。
 
 *参考链接：*
 
-[格力电器因未报告危险产品在美受刑诉 同意支付9100万美元罚款](https://www.voachinese.com/a/gree-charged-with-failure-to-report-dangerous-humidifiers-and-agreed-to-pay-91-million-dolloars-20211029/6291355.html)
+[中共破壞人權法治 IPAC促G20強硬應對](https://www.epochtimes.com/b5/21/10/30/n13340199.htm)
 
 * * *
 

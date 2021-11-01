@@ -2,42 +2,28 @@
 ---
 
 
-## 郭文贵直播摘要和音频 2021.10.29
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1631320/)
+## 有声|中共国早已研制出中共病毒的中和抗体
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1631324/)
 
-摘要撰稿人：文俊
+配音：香草山美食部 – 玫瑰园
 
-音频提供者：左媛
+2021年8月30日，文贵先生在直播中提到，D-NAb是中共病毒的解药。NAb是中和抗体的英文缩写。
 
+据中国生物物理学会的网站显示，早在2020年7月23日，中国科学院生物物理研究所及军事医学科学院等单位的研究成果就已经发表在美国《科学》杂志上。该文章报道了一种人源化单克隆抗体NAb，即H014，这种NAb通过与S受体结合域结合，能有效中和SARS-CoV-2。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-180-scaled.jpg)
+文字版原文：[中共国早已研制出中共病毒的中和抗体](https://gnews.org/zh-hans/1627728/)
 
+音频处理：喜山必胜Maverick
 
-### 视频：
-
-[视频链接：](https://gtv.org/video/id=617be96f11d1862968fccc4b)
-
-### 音频：
-
-### 摘要：
-
-1. 格芯（GFS）上市是世界的大事，格芯核心技术：T3（军事芯片、通讯芯片）
-2. 格芯公布：T3技术股票会大涨，中共打台湾，格芯市值涨到5000-10000亿
-3. 格芯高管去中共国开会 到中南坑见李克强
-4. 区块链技术和芯片是紧密相连的，七哥会成为格芯第三大股东
-5. 过了下周一，路大脑袋和砸爆料革命的人：后悔死、妒忌死、睁眼死
-6. 喜币 价格不会有任何人操纵 绝对是真实价格 由市场决定 一定会有波动（上下浮动）
-7. 比特币区块链技术是去中心化的，区块链技术去中心化和去中心化的拥有者体制，是完全两回事，别搞混了，比特币不止2100万个币
-8. 中共房地产爆雷最严重是明年5月份，最夸张是明年7月份
-9. 中共房地产：担保人没有还款能力，本身就没有还款意愿，一开始就是设计好的骗局，连锁的违约，保险不能兑付，老百姓一毛钱都不会有
-10. 别幻想喜币涨百倍千倍 涨一两倍就很好了
-11. 某苹果高管：过去认为中共国最有希望，现在不仅认为它没希望 甚至感到绝望，中共大量APP会下架
-12. 疫苗灾难到来，所有的房地产危机 金融危机 粮食危机 都会无限放大
-13. 这世界让你生存的不是粮食不是黄金 而是你预知灾难的能力
-14. 七哥喜币上市前最后一次直播告诫 投资不投机 意志决定你的财富
-15. 星期天不直播了，星期一大直播
-
-
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

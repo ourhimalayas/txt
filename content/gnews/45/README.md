@@ -2,24 +2,48 @@
 ---
 
 
-## 喜生活
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1631297/)
+## 国民党新修政纲，文贵先生爆料：警惕卖台贼
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631301/)
 
-俄罗斯莫斯科喀秋莎农场 六月飞雪
+作者：澳喜农场 – 在远方
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/H-4.jpg)俄罗斯莫斯科喀秋莎农场 恩合
-**清平乐·喜生活 **
 
-喜币何处？天地才知路。若牛郎织女欲诉，喜币搭桥安住。
 
-千金干净谁知？请君问求KYC。百业千行缘结，只因立信众生。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-**更漏子·喜币族**
 
-秋水长，红尘小，一币群英聚好。万连心，亿抱团，共匪难安生。
 
-去中心，区块铆，吾乃银行真好。左黄金，右美元，宇宙也大亨。
+近日，中共国民党中常会通过政策纲领修正案，该版政纲将删除马英九提出的“不统、不独、不武”文字。新政纲竟然承认中共综合实力的崛起，还提出要亲善大陆人民，主张两岸应搁置争议，促进经贸自由化及民间社会力往来。
+
+近日，郭文贵先生爆料，自马英九上台以来，国民党全力亲共反美，逼迫台湾人民承认中共是大国崛起。由于中共的大外宣对台湾的渗透，加上共产党的统战工作，现在的台海危机比96年更紧张。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-118.jpg)
+郭文贵先生指出，习近平想侵略台湾的动机，来自于共产党内政治斗争，目的是掩盖房地产崩溃带来的经济灾难，并拖垮世界经济。台湾人民并没有意识到，应对台海危机并非全民皆兵的军事训练，更重要的是清楚国民党卖台贼的伎俩，比如要求中共提供军事保护，与中共里应外合拿下台湾等买台行为。
+
+参考链接：
+[台媒：朱立伦版国民党政纲将删除“不统、不独、不武”文字](https://news.sina.com.cn/c/2021-10-27/doc-iktzscyy2086802.shtml)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：木白
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

@@ -2,26 +2,28 @@
 ---
 
 
-## 香草山翻译部周刊|2021年10月31日第20期
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1631522/)
+## 汤加发现首例中共病毒，为突破性感染
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1631525/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+**撰稿：日本东京方舟农场 子辰**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/text-CN-2.png)
-文章仅代表作者本人观点，与Gnews无关
+10月30日，汤加王国首相图伊奥内托阿向该国居民发出警告，该王国发现首例中共病毒感染者，该感染者10月中旬完成了第二针疫苗注射。
 
-总编： GBWater
-编辑： Lakers
-发稿： Lakers
+据美国之音报道，通过有效的对外隔离管理措施，这个太平洋岛国成为了全世界屈指可数的逃过中共病毒灾难的国家之一。而这次的首例感染病例则是一个从新西兰飞回汤加的人带来的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-17.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211031203658.png)图片来源：https://www.voachinese.com/a/tonga-first-covid-19-virus-inflection-detected-20211030/6291925.html
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+据了解此次乘飞机返回汤加的人还包括该国奥林比克队成员，他们自从参加东京奥运会之后一直滞留新西兰克赖斯特彻奇，并在前往日本参加奥运会之前，他们都接受了两剂疫苗免疫注射。
+
+汤加卫生部门官员表示，被发现感染的那个人在乘飞机离开克赖斯特彻奇之前病毒检测呈阴性，随后克赖斯特彻奇有四人被确诊感染了中共新冠病毒。而汤加的这位被感染者10月中旬接受了第二针免疫注射。
+
+*参考链接：*
+
+[汤加发现首例新冠病毒感染](https://www.voachinese.com/a/tonga-first-covid-19-virus-inflection-detected-20211030/6291925.html)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*
 
  
 
