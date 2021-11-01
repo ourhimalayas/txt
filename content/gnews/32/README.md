@@ -2,52 +2,28 @@
 ---
 
 
-## GFashion CEO达舒什女士为设计师推荐书籍
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1631958/)
+## 疫情反复、航油价格上涨，三大航三季度亏损80亿
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1632017/)
 
-作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/10/163542927431113700_a640x364.jpg)疫情反复、航油价格上涨，三大航三季度亏损80亿 网络图片
+据新浪科技10月31日报道，继二季度亏损近百亿元后，国航、东航、南航10月29日发布三季报。因疫情原因，三大航三季度平均亏损约26亿。国航净亏损35.36亿元，南航营收269.19亿元，为三家最高。
 
+三家航空公司总结业绩下滑的原因为：新冠疫情导致出行减少；航油价格上涨；汇率波动，人民币升值幅度减弱。于是，不管发展，只管涨价的发改委又出了新规定，航空公司可自主确定国内航线旅客燃油附加费。
 
+2018年6月5日，航空公司恢复征收国内航线燃油附加费；2019年1月5日，暂停收取。近日，已有航空公司宣布恢复征收燃油附加费。换汤不换药，CCP治下降低成本和盈利的基础就是让老百姓买单，把价格加到老百姓身上。虽然已经没有多少利润，但老百姓的血能吸多少就吸多少，这是CCP邪恶的本质。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
+新闻参考链接：[https://finance.sina.cn/2021-10-31/detail-iktzqtyu4545963.d.html?sinawapsharesource=newsapp](https://finance.sina.cn/2021-10-31/detail-iktzqtyu4545963.d.html?sinawapsharesource=newsapp%25EF%25BC%2588%25E6%258E%25A8%25E8%258D%2590%25E5%2588%25B0%25E5%25A2%2599%25E5%2586%2585%25E8%2581%259A%25E9%259B%2586%25E5%258C%25BA%25EF%25BC%2589)
 
+* * *
 
-
-10月22日，多阿·达舒什女士在盖特上分享了一篇由她本人撰写的文章，向GFashion旗下的设计师推荐了几本必读书。
-
-![](https://doaadashoush.com/wp-content/uploads/doaadashoush-com/sites/851/Doaa-Dashoush-GFASHION-5-1080x675.png)图片来源：DoaDashoush.net
-
-文中说到，时装设计师不只是坐下来勾勒设计，还要从书本的阅读中受益，例如，在《时装设计师生存指南》中，通过一些顶级设计师的见解，学习服装材料、管理、营销和生产以及 服装秀制作人的经验；《时尚素描本》一书中直观展示了设计思路，包括绘制姿势、身体形态、服装和配饰等；通过阅读《为时装业写作》，可以融合不同的时尚行业写作技巧。
-
-达舒什女士在时装行业具有丰富的经验，目前担任GFashion的总裁兼首席执行官。GFashion自运营以来，其不遵循传统的设计风格、奢侈舒适的面料、独特的制作工艺，得到了各界人士的青睐。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-[中国人大常委会三审家庭教育促进法草案 孩子犯事将惩戒家长](https://www.voachinese.com/amp/China-drafts-law-to-punish-parents-for-children-s-bad-behaviour-20211018/6275463.html)
-
-[New China Law Will Punish Parents For Children’s ‘Bad Behavior’](https://www.zerohedge.com/political/new-china-law-will-punish-parents-childrens-bad-behavior)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 

@@ -2,32 +2,21 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月31日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1631974/)
+## 雅典娜时报-第099期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1632021/)
 
-作者：香草山翻译部
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-48.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/3-31.png)
+***发布：小红帽***
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1031text-SC.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[晚GTV新闻访谈](https://gtv.org/broadcast/watch/617f348f11d1862968fe7294)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-17.png)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://紐約香草山農場%20%20|%20GTV-香草山之聲%20紐約香草山農場GTV-%20|%20MOS%20TALK%20香草山訪談%20紐約香草山農場%20|%20GETTR%20紐約香草山農場%20｜YouTube%20歡迎加入香草山農場%20%20|%20Discord)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

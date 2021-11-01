@@ -2,26 +2,36 @@
 ---
 
 
-## 有声|格芯上市意义深远，未来潜力巨大
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1632155/)
+## 秘翻在线：CDC最新数据显示已接种疫苗者感染及死亡人数大幅上升
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1632191/)
 
-配音：香草山美食部 – 玫瑰园
+#### 撰稿：日本东京方舟农场  子\*辰
 
-在10月29日的大直播中，郭文贵先生高度评价了昨天在美国上市的全球领先半导体代工厂格芯公司。 郭先生预言， T3技术将使格芯公司的业务范围扩大至全球芯片产业，因其是5G及AI时代的核心所在。同时，郭先生补充，一旦T3技术面世，中共在通信、太空和军事等领域的技术将彻底落后于世界。 文贵先生表示，芯片对世界的未来极其重要，它更和新中国联邦未来的金融系统、数字区块链技术息息相关。因为当我们有了芯片，我们就有了更多的话语权。为此，郭先生也提到，未来将增资格芯公司，成为其第三大股东。彼时，这个公司也将属于爆料革命的战友们。 文贵先生还指出，中共对文明的扼杀将导致其自身的失败，但也会给格芯带来难得的历史机遇。倘若中共胆敢侵犯台湾，格芯必将与中共抗衡。因此，格芯公司未来的潜力巨大，或将成为万亿级别的企业。 格芯上市，意义深远。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/79C5DE42-70B4-4C1F-A716-BF0702FEC7F8.jpeg)（图片来自网络）
 
-文字版原文：[格芯上市意义深远，未来潜力巨大](https://gnews.org/zh-hans/1628548/)
+据《大纪元》10月31日报道，美国疾病控制和预防中心（CDC）最新公布的数据显示，最近几个月，在已经接种了中共病毒疫苗的人群中，感染、住院和死亡的人数都大幅上升。
 
-音频处理：喜山必胜Maverick
+根据 CDC从各州和医院的监测系统中收集的数据显示，在已完全接种疫苗的人群中，每10万人中，确诊感染病例数从6月下旬的12.3例上升到8月中旬的121例；住院人数从8.9人上升到75人；死亡人数从0.1人上升到1.1人。
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+前川普政府时期中共病毒疫情顾问、临床流行病学和社区健康科学硕士亚历山大对此表示：“疫苗有效性的显著下降可能是由于Delta变异体的出现。但真正的问题是，这些疫苗不匹配Delta变种，因此存在该病毒变体免疫逃逸的现象。”
+
+亚历山大还补充说，实际上疫苗已经失败了，从英国、以色列等国收集的证据已经证明了这一点。
+
+*注：本文仅代表作者观点*
+
+*新闻链接：[https://www.epochtimes.com/gb/21/10/30/n13341768.htm](https://www.epochtimes.com/gb/21/10/30/n13341768.htm)*
+
+* * *
+
+
+```
+素材采编：子*辰
+编辑：青衣青青
+校对：小星星
+发布：miumiu
+```
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
