@@ -2,33 +2,21 @@
 ---
 
 
-## G20峰会澳洲总理呼吁国际社会继续调查新冠病毒起源
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1631764/)
+## 加拿大将向国际组织捐赠莫德纳疫苗
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1631800/)
 
-#### 整理报道：月映万川
+原文采编：青青      编译撰稿：硫酸羟氯喹64
 
-#### 编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-30.jpg)**图片来源：ABCNews & Wikipedia**
-澳大利亚总理斯科特·莫里森不断呼吁国际社会对新冠病毒起源进行彻底调查，尽管这可能会让本已经很差的中澳关系雪上加霜。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/mdn-edited.jpg)图片来源：CTV
 
-近日，在罗马召开的20国峰会会议上，澳洲总理重申，新冠病毒调查的目的不是要推卸相关责任，而是要确保未来如何避免大流行的发生。
 
-与此同时，莫里森总理也批评世界卫生组织，由于受到中共国的影响，在疫情初期应对过于迟缓。
+据加拿大媒体[CTV新闻]10月30日报道，总理特鲁多当天宣布，加拿大将向[新冠病毒疫苗共享联盟]捐赠1000万剂[莫德纳公司]产该疫苗，另资助1500万美元用于帮助在非洲生产mRNA疫苗。
 
-莫里森说，“我们需要一个能为世界提供更多保护，更强大，更独立和透明的世界卫生组织。”
+特鲁多是在罗马出席20国集团领导人峰会时透露了以上捐赠细节。并表示，加拿大还将增加对该全球疫苗共享联盟的财政贡献，目标是在明年年底前为中低收入国家捐赠或支付至少2亿疫苗剂量。
 
-在大流行开始时，莫里森总理曾经呼吁组建独立调查团队对起源于武汉的全球大流行进行彻查。因此，澳大利亚也遭到中共国的报复，包括禁止进口澳大利亚产品。
+加拿大此前已向国际承诺从该国的库存中捐赠4000万剂“新冠病毒疫苗”，并通过向[疫苗共享联盟]捐赠超过5亿美元的资金来支付约8700万剂量的莫德纳疫苗。
 
-原文链接：[Scott Morrison repeats call for COVID origin in Wuhan, China, to be investigated (afr.com)](https://www.afr.com/politics/federal/g20-pm-repeats-call-for-pandemic-origin-to-be-investigated-20211030-p594m4)
-
-发布：文泓
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[原文链接：](https://www.ctvnews.ca/politics/canada-to-donate-10-million-doses-of-moderna-vaccine-to-covax-1.5645185)
 
  
 
