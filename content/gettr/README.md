@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/1/2021 8:49 PM (UTC)`
+
+“HCOIN TO THE MOON” 喜马拉雅币上市庆典
+![img](https://media.gettr.com/group30/origin/2021/11/01/09/114a50be-85ff-f9a7-eec1-20b602a50f71/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 11/1/2021 8:30 PM (UTC)`
 
 11/1/2021 [HCoin To the Moon Celebration]: The launch of the Himalaya Coin and the Himalaya Exchange is going to have huge impacts on the world’s financial sector. “Himalaya Exchange + Himalaya Coin + Himalaya Dollar + Himalaya Pay” is the truly borderless financial platform that belongs to the entire humanity; Some countries are likely to grant Himalaya Coin the legal currency status<br/><br/>11/1/2021【HCoin To the Moon 庆典】：喜币上市、喜交所上线会对世界金融造成巨大冲击，喜交所+喜币+喜美元+喜支付是未来真正的属于全人类的无国界金融平台；喜币将可能被某些国家认定为法定货币<br/>
@@ -298,13 +305,6 @@ CNN：蔡英文首次公开承认美国军队正在台湾训练台湾部队<br/>
 
 娜塔莉·温特斯：福奇故意和中共勾结，制造出杀死全世界数以百万人的病毒，这是叛国罪<br/><br/>Natalie Winters: Fauci deliberately colluded with the CCP to create a virus that killed millions of people around the world. It is treason
 ![img](https://media.gettr.com/group41/getter/2021/10/29/08/5276b84e-cba3-bdb0-0ea9-8304327a7197/out.jpg)
-
----
-
-`@miles 10/28/2021 11:06 PM (UTC)`
-
-10/28/2021 Miles Guo’s GETTR: As I predicted, massive arrests and killing are happening in the CCP’s Central Political and Legal Affairs Commission and the Central Commission for Discipline Inspection; Tsai Ing-wen’s interview with CNN revealed that U.S. troops have been stationed in Taiwan, but where is the CCP’s “cuckold” General Wang Hongguang who threatened to invade Taiwan?<br/><br/>10/28/2021 文贵盖特：如文贵爆料所说，国内政法委、中纪委系统已血雨腥风；台湾蔡英文接受CNN采访透露美军已进驻台湾，中共所谓的绿帽子王将军在哪儿呢？<br/>
-![img](https://media.gettr.com/group44/getter/2021/10/28/23/06/a968ccc1-5b14-1b3a-025f-7f3ea40707fc/out.jpg)
 
 ---
 
