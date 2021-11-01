@@ -2,47 +2,31 @@
 ---
 
 
-## Facebook 对针对儿童的疫苗信息实施更严格的审查
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1632760/)
+## 必看 ！全球34位英雄医生专家警告疫苗危险（5）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1632780/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+翻译：Runaway
 
+我的名字是 Heiko Santelmann，我是一名德国医生，现在在挪威工作。我作为全科医生工作了40年，做研究20年，尤其最近10年在疫苗方面。我必须大声疾呼，这不是真正的医学意义的大流行，COVID-19疫苗没有被证实是无害的或有效的。我同意英国医学杂志的说法，测试没有诚实的进行。如果你研究结果，所谓的 90%有效率实际上只有0.2%。我想知道为什么盖茨和他的阴谋要花费数十亿美元来开发可以对男人、女人甚至未出生的孩子进行绝育的疫苗？
 
+统一和强迫的医疗措施是不道德的，不能对手无寸铁的人群实施，无论是作为测试还是作为疫苗。任何医疗干预、检测、治疗或疫苗都只能基于个人医疗考虑、充分知情、患者同意和无害的临床证据，以符合道德和法律的方式实施。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+我叫米凯尔·诺德福斯。我是来自瑞典的医生，我正在研究综合医学。没有大流行，疫苗既不安全也不有效。给全人类提供未经测试的疫苗并将它们用作试验对象是完全疯狂的，我们现在必须停止它。而把它给并未感染COVID-19的孩子们就更疯狂了。迄今为止，我国没有人死于15岁以下，但却有副作用、风险和成本。这是浪费金钱，浪费人的生命和安全，所以现在就停止它。而且我还敢打赌，永远不会有像维生素D一样安全有效的疫苗，它可以将死亡率降低50%至95%，具体取决于您血液中维生素D的含量。非常感谢你。
 
+你好，我是来自荷兰的医生。我已经了解了疫苗，我想告诉你三件事。首先，这种疫苗可以使妇女和女孩绝育。其次，这种疫苗可能会引起病毒干扰或免疫启动，然后会引起细胞因子风暴，这对您的健康非常危险。这已经在人类和动物的其它新冠疫苗试验中观察到。第三，这种疫苗可以永远改变你的基因蓝图、你的基因密码、你的DNA。我们不知道这会带来什么。非常感谢。告知自己，保护自己，保护您的孩子，去查证。
 
+视频/字幕：外星人
 
-美国FDA刚刚正式批准对5至11岁儿童接种辉瑞新冠疫苗，Facebook便以全新身份Meta在美东时间10月30日宣布，它正在推出更严格的针对儿童的疫苗信息审查政策。该平台之前在2020年底对新冠疫苗信息进行了限制，但没有专门针对儿童的政策。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4.jpg)
-Meta在一篇新的博客文章中表示，它正在与CDC和WHO合作，以删除与儿童和新冠疫苗相关的内容，包括任何暗示新冠疫苗对儿童不安全、未经测试或无效的帖子。此外，Meta将以英语和西班牙语提醒人们疫苗已获批准给儿童接种。
+（本文纯属个人观点，与G news无关）
 
-Meta指出，自疫情爆发以来，它总共删除了来自Facebook和Instagram的20万条有关新冠病毒和疫苗的信息。
+[必看 ！全球34位英雄医生专家警告疫苗危险（1）](https://gnews.org/zh-hans/1620972/)
 
-参考链接：
-[Facebook puts tighter restrictions on vaccine misinformation targeted at children](https://www.theverge.com/2021/10/30/22754046/facebook-tighter-restrictions-vaccine-misinformation-children)
+[必看！全球**34**位英雄医生专家警告疫苗危险（**2**）](https://gnews.org/zh-hans/1624847/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+[必看 ！全球34位英雄医生专家警告疫苗危险（3）](https://gnews.org/zh-hans/1625015/)
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+[必看 ！全球34位英雄医生专家警告疫苗危险（4）](https://gnews.org/zh-hans/1625494/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
 
 
  

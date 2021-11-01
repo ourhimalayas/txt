@@ -2,24 +2,26 @@
 ---
 
 
-## 日本众院选举快讯：河野太郎获21万票创众院选举得票纪录
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1632870/)
+## 中共继续大幅削减国际航班，闭关锁国不断升级
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1632894/)
 
-作者：东京樱花团｜文小白
-![](https://lh3.googleusercontent.com/nYzzAel5Go4tYrc6uff9heZgLsLs3k2MfaIN89cwG3gcSjhPuSVBp7kve1XB-dSZpa99N3Av58GQfrEnCz6MslegVr4EDg8IjuptM6r5rbK2msLTsmJE1vAPt77kk-UrPhma3s5V)
-据共同社11月1日报道，在日本众院选举神奈川县第15选区，自民党的河野太郎获得210,515票，创下现行小选区比例代表并立制1996年实施以来的最高得票纪录。此前的纪录由2009年政权更迭选举中时任民主党党首的前首相鸠山由纪夫在北海道9区创下，当时为201,461票。
+撰稿：东京樱花团/喜马拉雅的微尘
 
-- 延展阅读：[河野太郎公式サイト](https://www.taro.org/)
-- 延展阅读：[https://ja.m.wikipedia.org/wiki/河野太郎](https://ja.m.wikipedia.org/wiki/%E6%B2%B3%E9%87%8E%E5%A4%AA%E9%83%8E)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/中共继续大幅削减国际航班.png)[图片来源](https://ttgchina.com/2021/08/25/%E5%85%A8%E7%90%83%E5%AE%A2%E5%BA%A7%E7%8E%87%E8%A7%A6%E5%BA%95%E5%9B%9E%E5%8D%87-%E5%9B%BD%E9%99%85%E8%88%AA%E7%8F%AD%E5%B0%86%E8%BF%9B%E4%B8%80%E6%AD%A5%E5%A2%9E%E9%95%BF/)
 
+中共民航总局10月29日宣布，从2021年10月31日至2022年3月26日，将执行2021/2022年冬春航季航班计划，大幅削减国内外客货运航班。
 
-河野太郎在2012年众院选举中也获得了192,604票，在当时的纪录中位列第四。在此次选举中，河野共前往约50个选区为其他候选人助选，返回自身选区做宣传活动仅仅两天，即发布公告日和选战最后一天。其身边人士表示能够在此次选举中创下最高得票纪录，是“利用SNS起到了很大的作用。”
+根据该计划，国际客运航班从夏季的每周644班下调至408班，与2020年同期相比减少了21.1%。
 
-**新闻来源：**[**河野太郎获21万票创众院选举得票纪录**](https://china.kyodonews.net/news/2021/11/ec24564d1d41-21.html)
+当前，中共政治、经济和社会濒临全面崩溃，削减国际航班就是在减少人员、资金的外流，以及与外界信息的交互，中共这种闭关锁国的做法最大的受害者还是广大没钱没权的普通老百姓。
 
-*校对：东京樱花团 / 文小白*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+信息来源：
+
+[全国民航开始执行2021/2022冬春航班计划](http://www.caac.gov.cn/XWZX/MHYW/202110/t20211029_209814.html)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-10-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

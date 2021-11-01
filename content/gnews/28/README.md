@@ -2,22 +2,75 @@
 ---
 
 
-## 秘翻在线：中共国开始对 3至11岁儿童打毒针
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1632724/)
+## 喜币上市11.1.11:11 《H-Coin to the Moon》掀开喜币上市庆典的篇章
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1632759/)
 
-**撰稿：葛大饼**
+撰稿：Shifter
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-01-at-6.26.52-AM.png)图片来源：GETTR & GTV
+2021年11月1日格林威治时间早晨9点52分，战友威廉王创作的《H-Coin to the Moon》掀开格林威治时间（GMT）2021年11月1日11时11分庆祝喜马拉雅币上市的序幕。
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-01-182217.jpg)
-根据2021年11月1日中国日报网报道，国家卫健委疾控局副局长吴良有表示，中共国将争取在年底前完成3至11岁人群中共病毒疫苗接种。
+自由多么熟悉的字眼
+Freedom sounds familiar to me
 
-新闻称中共病毒病毒灭活疫苗在3—11岁人群中的安全性和免疫原性，与18岁以上人群没有显著性差异，目前国药中生北京所、武汉所，科兴中维的新冠灭活疫苗都已经获准在3至11岁人群中开展紧急使用。吴良表示，疫苗接种将继续按照知情、同意、自愿的原则，但是国家会积极引导3至11岁无禁忌人群应接尽接。
+缺不知不觉理我越来越远
+But unknowingly getting far away from me
 
-中国疾控中心免疫规划首席专家王华庆说，儿童的中共病毒感染率比去年增加，因此儿童也需要接种中共病毒疫苗，并且可能还要接种其他疫苗。
+曾经那个意气风华的少年
+The man with charms and energy only exists in the past
 
-真实的世界是注射中共病毒疫苗后死亡的儿童多于感染中共病毒的儿童！世界上的流氓政府不顾事实去向自己的国民推这个毒疫苗。我们的每一次行动就是在拯救自己和孩子们！
+为里生成只能品名挣钱
+Working hard desperately to only fight for living
 
-**[新闻来源](http://ex.chinadaily.com.cn/exchange/partners/82/rss/channel/language/columns/v0m20b/stories/WS617f5d74a310cdd39bc7290b.html)**
+财富是他们画下的大饼
+Wealth is their rain check but always out of touch
+
+虚幻背后发现全都是陷阱
+A beautiful illusion with full of traps behind
+
+各种经济暴雷
+All kinds of economical implosion
+
+房价崩的稀碎
+Housing prices crashes to the hell
+
+抬起头 前路一片漆黑
+
+Raise my head full of darkness covers the road ahead
+Welcome to the world to the new world
+Welcome to the world H-coin to the moon
+Welcome to the world to the new world
+Welcome to the world H-coin to the moon
+
+H-coin to the moon H-coin to the moon
+
+安全 最前沿加密技术出手
+Security guarded by the most advanced encrypt technology
+
+让你的财富没人能夺走
+No one can take wealth away from you
+
+稳定币 浮动币 设计天下无双
+Stable Coin Floating Coin Unparalleled design under the heaven
+
+还有二十趴 黄金挂钩
+20% gold reserve attaches to the value
+
+摧毁 不停压榨你的机器
+Destroy the machine to suck you to dry
+
+从此不再做金钱的奴隶
+Never be money slavers again
+
+喜联储的大门 永远敞开向你
+Himalaya Federal Reserve welcomes you forever
+
+前途光明 就在喜币
+The brilliant future – Himalaya Coin
+
+Welcome to the world to the new world
+Welcome to the world H-coin to the moon
+
+来源链接：https://gettr.com/streaming/pfs1k7a90e
 
 
 

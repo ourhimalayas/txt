@@ -2,50 +2,47 @@
 ---
 
 
-## 坎特球员：耐克利益为先，无视中共国人权问题
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1632737/)
+## Facebook 对针对儿童的疫苗信息实施更严格的审查
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1632760/)
 
-**简评：**
-
-耐克公司在美国支持黑名贵，为少数族裔发声，也为其他的社会不公大声疾呼。但在中共国的问题上，耐克沉默不语，完全忽视了中共国存在着严重的强迫劳动和种族灭绝。耐克和全球很多知名品牌享受着中共国劳工在强迫劳动下产生的利益，没有计划和时限终结这一切，与中共国的强制劳工公开切割。坎特球员喊话耐克的老板亲自去中共国的奴隶集中营，感受一下奴工们的生活。耐克必须停止伪善，废除现代奴隶制。
+作者：纽约香草山教育部 – Naughty(文行)
 
 
 
-**视频字幕：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-**埃内斯坎特：**亲爱的耐克，你们口口声声说，你们给社区带来了正面影响。
 
-确实，在美国，耐克与黑命贵站在一起，与停止反亚裔仇恨站在一起。耐克与拉美社区站在一起，与性少数群体站在一起，还在美国其他社会不公上大声疾呼。
 
-但在中国问题上，耐克一直保持沉默。你们对中国警察的暴力执法视而不见。关于中国社会对性少数人群的歧视，你们不闻不问。关于中国少数民族受到的压迫，你们更是闭口不谈。
+美国FDA刚刚正式批准对5至11岁儿童接种辉瑞新冠疫苗，Facebook便以全新身份Meta在美东时间10月30日宣布，它正在推出更严格的针对儿童的疫苗信息审查政策。该平台之前在2020年底对新冠疫苗信息进行了限制，但没有专门针对儿童的政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4.jpg)
+Meta在一篇新的博客文章中表示，它正在与CDC和WHO合作，以删除与儿童和新冠疫苗相关的内容，包括任何暗示新冠疫苗对儿童不安全、未经测试或无效的帖子。此外，Meta将以英语和西班牙语提醒人们疫苗已获批准给儿童接种。
 
-你们不敢发声。是谁在中国生产你们的球鞋？你们知道吗？
+Meta指出，自疫情爆发以来，它总共删除了来自Facebook和Instagram的20万条有关新冠病毒和疫苗的信息。
 
-中国有太多血汗工厂，比如新疆人被当作现代奴工驱使，此时此刻遍布全中国。目前有数百万新疆人被关押、贩卖，安排在集中营、监狱和工厂里强制劳动。
+参考链接：
+[Facebook puts tighter restrictions on vaccine misinformation targeted at children](https://www.theverge.com/2021/10/30/22754046/facebook-tighter-restrictions-vaccine-misinformation-children)
 
-他们一直在监控之下被迫长时间工作，生存条件恶劣。他们还遭受政治再教育。他们没有言论自由，没有宗教自由，甚至不允许离开中国。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-你们知道吗，几乎整个服装鞋业的上色都是由新疆奴工做的？很多全球知名品牌都不例外，当然也包括NBA最大赞助商之一，耐克。
+总编/编辑：飞虹
+校对/发稿：为真不破20
 
-耐克声称他们的供应链上不允许强制劳动，但他们却不向我们证明这一承诺。他们没有公开与中共政府的强制劳工做公开切割。没有计划和时限终结这一切。
+**更多资讯，更多关注**
 
-他们没有公开承诺终止使用新疆奴工。別忘了，你们穿的每一双鞋，每一件T恤衫背后充满了泪水、压迫和血汗。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-耐克的广告语是，just do it（想做就做吧）。然而，对于给你们生产球鞋，让你们赚钱的奴工，你们会做什么呢？
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-我要给耐克的老板捎个话。不如我给咱们订几张机票，一起去中国？我们可以试着去那里的奴工集中营，你们自己好好看看。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-勒布朗詹姆斯和麦克乔丹，欢迎你们也一起来。耐克必须行动，停止你们的伪善，废止现代奴隶制。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-*编辑：【英国伦敦喜庄园编辑部】*
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-*字幕：free20200604 |听写：云岭|翻译：Wade|PR：Roberts|简评/文字整理/编辑：胖丁| Page：小六月*
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
 
-[![](https://spark.adobe.com/page/6OoRXH0noKkvN/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/6OoRXH0noKkvN/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
 
 
  
