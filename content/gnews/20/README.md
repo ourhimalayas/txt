@@ -2,49 +2,27 @@
 ---
 
 
-## 美航空公司因人员紧缺推迟或取消逾千个航班
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1633484/)
+## 有声|苹果公司已对中共国绝望
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1633544/)
 
-**作者：日本东京方舟农场 海星**
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+郭文贵先生在10月29日的大直播中爆料：有几个世界一流大公司告诉郭先生，中共国的监控APP全部都会被下架。苹果公司某高管私下告诉郭先生：由于中共无底线的审查和威胁，苹果公司已对中国市场感到失望甚至绝望。
 
-10月31日，美国航空公司因人员紧缺在本周末推迟或取消了逾千个航班。
+中共无比邪恶，中共统治下的中国就是一个互毁的社会。世界上很多国家和公司看清了中共的本质，正在觉醒。
 
-据《CNN》报道，追踪美国国内班机延误和取消信息的FlightAware显示，本周六晚上，美国航空公司取消了499个航班，占其业务的18%。另有近300个航班被推迟，占其业务的11%。
+文字版原文：[苹果公司已对中共国绝望](https://gnews.org/zh-hans/1629434/)
 
-本周五，FlightAware显示，美国航空公司推迟了738个航班，几乎占其业务的四分之一。另有342个航班被取消。该公司还预先取消了本周日的284个航班。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2.png)图片来源：https://edition.cnn.com/2021/10/30/business/american-airlines-flight-cancellations/index.html
-
-美国航空公司在一份声明中声称，航班大面积取消和延误是由于天气恶劣和人员紧缺造成。
-
-10月初，美国西南航空曾以天气恶劣取消逾千个航班，但随后被调查记者德鲁·赫尔南德斯揭露，真正的原因是员工为捍卫自己的身体自主权，集体抗议拜登政府的强制疫苗接种令，主流媒体却试图掩盖这一事实。 此前，美国航空公司为响应拜登政府的强制疫苗接种令，即要求联邦承包商在12月8日前为员工接种疫苗，因此该公司于10月6日通知所有在美员工，必须在11月24日之前完成疫苗接种，否则将被解雇。
-
-*参考链接：*
-
-[American Airlines cancels hundreds of flights during Halloween weekend](https://edition.cnn.com/2021/10/30/business/american-airlines-flight-cancellations/index.html)
-
-
-
-> [西南航空雇员集体抗议实验性疫苗强制接种令](https://gnews.org/zh-hans/1612335/)
-
-
-
-
-
-> [美国航空限期员工接种新冠疫苗](https://gnews.org/zh-hans/1586580/)
-
-
-
-* * *
-
-
-```
-素材采编：海星
-编辑：文顺
-校对/发布：Ranting
-```
-
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

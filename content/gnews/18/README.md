@@ -2,38 +2,34 @@
 ---
 
 
-## 继佛罗里达州后，19 个州就 COVID-19 疫苗强制令起诉拜登政府
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1633585/)
+## 有声|郭文贵先生谈投资哲学：坚持到最好的那一秒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1633601/)
 
-【简评：】*随着拜登的疫苗强制接种令生效日期越来越近，各地出现了因为拒绝接种而休假甚至辞职的浪潮，包括飞行员、医疗卫生工作者、消防员等，这无疑对城市的正常运转带来极大影响，如果坚决执行拜登此项行政令的州政府官员没有悬崖勒马，我们可以想象灾难的场景即将到来。*
+配音：香草山美食部-玫瑰园
 
-据《大纪元时报》记者[MIMI NGUYEN LY](https://www.theepochtimes.com/author-mimi-nguyen-ly)，2021年10月30日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-14-e1635796491954.png)2020年12月15日，在科罗拉多州奥罗拉，工作人员拿着一剂新冠疫苗进行临床试验。图片来源：Michael Ciaglo/Getty Images
-周五，美国几个州就‘拜登政府要求联邦工作人员和承包商接种新冠疫苗’一事提起了多起联邦诉讼。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
 
-德克萨斯州在加尔维斯顿的联邦法院单独提起诉讼。在密苏里州联邦地区法院提起的另一起诉讼涉及阿拉斯加州、阿肯色州、爱荷华州、密苏里州、蒙大拿州、内布拉斯加州、新罕布什尔州、北达科他州、南达科他州和怀俄明州。在佐治亚州联邦地方法院提起的另一起诉讼涉及佐治亚州、阿拉巴马州、爱达荷州、堪萨斯州、南卡罗来纳州、犹他州和西弗吉尼亚州。
+喜币上市临近，在10月29日的大直播中，郭先生告诫战友们，无论喜币的价格如何变化浮动，大家要尽量保持一份平常心。他和战友们分享了自己的投资哲学。
 
-此前一天，**佛罗里达州州长罗恩·德桑蒂斯(Ron DeSantis)宣布，他就疫苗接种强制令起诉了联邦政府。截至周五晚些时候，就该强制令起诉拜登政府的州总数为 19 个。**
+郭先生说，当你认真投资了一个项目以后，一定要有耐心，千万不要在第一时间就把手里的筹码交出去了。
 
-**总统乔·拜登于 9 月 9 日发布了一项影响深远的行政命令，要求几乎所有联邦雇员（包括联邦文职雇员和承包商）接种 COVID-19 疫苗作为就业条件。该命令将于12月8日生效。根据该命令，常规的COVID-19检测不再是一种选择，但可能会批准宗教或医学豁免。不遵守该行政令的承包商可能会失去政府的合同。**
+郭先生补充道，每个想卖喜币的人，首先问自己一个问题：你卖了喜币，准备拿着钱去做什么？如果没有更好的去处，你第一天就卖了，等到后面发现喜币涨到你难以想象的价格，或者喜币又有了非凡意义时，你会不会后悔?
 
-所有19个州都试图阻止拜登的强制令，认为这一要求违反了联邦采购法，而且是对联邦权力的僭越。各州还认为，拜登的疫苗命令违反了联邦政府和州政府权力分离的第十修正案；利用联邦开支来胁迫各州，这是违反宪法的；并且没有适当地允许 60 天的公众评论。
+至于，到底要等到什么时候卖。郭先生没有给出具体的时间建议，他只是意味深长地说：九成以上的中国人，很难坚持到最好的那一秒钟。如果战友们能坚持把喜币放到明年5月份以后，一定会有一份意外的惊喜！
 
-拜登政府没有立即回应置评请求。
+文字版原文：[郭文贵先生谈投资哲学：坚持到最好的那一秒](https://gnews.org/zh-hans/1629433/)
 
-原文连接：[https://www.theepochtimes.com/mkt\_breakingnews/19-states-sue-biden-administration-over-covid-19-vaccine-mandate\_4077074.html](https://www.theepochtimes.com/mkt_breakingnews/19-states-sue-biden-administration-over-covid-19-vaccine-mandate_4077074.html)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-翻译：洛杉矶盘古农场 – 钢蛋儿
-
-校对：洛杉矶盘古农场 – 柯镇恶
-
-评论：洛杉矶盘古农场 – 钢蛋儿
-
-编辑：洛杉矶盘古农场 –柯镇恶
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
