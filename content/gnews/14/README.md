@@ -2,47 +2,33 @@
 ---
 
 
-## 美航空公司因人员紧缺推迟或取消逾千个航班
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1633484/)
+## 有声|郭文贵先生谈投资哲学：坚持到最好的那一秒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1633601/)
 
-**作者：日本东京方舟农场 海星**
+配音：香草山美食部-玫瑰园
 
-10月31日，美国航空公司因人员紧缺在本周末推迟或取消了逾千个航班。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
 
-据《CNN》报道，追踪美国国内班机延误和取消信息的FlightAware显示，本周六晚上，美国航空公司取消了499个航班，占其业务的18%。另有近300个航班被推迟，占其业务的11%。
+喜币上市临近，在10月29日的大直播中，郭先生告诫战友们，无论喜币的价格如何变化浮动，大家要尽量保持一份平常心。他和战友们分享了自己的投资哲学。
 
-本周五，FlightAware显示，美国航空公司推迟了738个航班，几乎占其业务的四分之一。另有342个航班被取消。该公司还预先取消了本周日的284个航班。
+郭先生说，当你认真投资了一个项目以后，一定要有耐心，千万不要在第一时间就把手里的筹码交出去了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2.png)图片来源：https://edition.cnn.com/2021/10/30/business/american-airlines-flight-cancellations/index.html
+郭先生补充道，每个想卖喜币的人，首先问自己一个问题：你卖了喜币，准备拿着钱去做什么？如果没有更好的去处，你第一天就卖了，等到后面发现喜币涨到你难以想象的价格，或者喜币又有了非凡意义时，你会不会后悔?
 
-美国航空公司在一份声明中声称，航班大面积取消和延误是由于天气恶劣和人员紧缺造成。
+至于，到底要等到什么时候卖。郭先生没有给出具体的时间建议，他只是意味深长地说：九成以上的中国人，很难坚持到最好的那一秒钟。如果战友们能坚持把喜币放到明年5月份以后，一定会有一份意外的惊喜！
 
-10月初，美国西南航空曾以天气恶劣取消逾千个航班，但随后被调查记者德鲁·赫尔南德斯揭露，真正的原因是员工为捍卫自己的身体自主权，集体抗议拜登政府的强制疫苗接种令，主流媒体却试图掩盖这一事实。 此前，美国航空公司为响应拜登政府的强制疫苗接种令，即要求联邦承包商在12月8日前为员工接种疫苗，因此该公司于10月6日通知所有在美员工，必须在11月24日之前完成疫苗接种，否则将被解雇。
+文字版原文：[郭文贵先生谈投资哲学：坚持到最好的那一秒](https://gnews.org/zh-hans/1629433/)
 
-*参考链接：*
-
-[American Airlines cancels hundreds of flights during Halloween weekend](https://edition.cnn.com/2021/10/30/business/american-airlines-flight-cancellations/index.html)
-
-
-
-> [西南航空雇员集体抗议实验性疫苗强制接种令](https://gnews.org/zh-hans/1612335/)
-
-
-
-
-
-> [美国航空限期员工接种新冠疫苗](https://gnews.org/zh-hans/1586580/)
-
-
-
-* * *
-
-
-```
-素材采编：海星
-编辑：文顺
-校对/发布：Ranting
-```
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

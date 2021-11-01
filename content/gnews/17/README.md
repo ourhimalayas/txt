@@ -2,35 +2,45 @@
 ---
 
 
-## 美国一高中未经家长同意擅自为学生注射中共病毒疫苗
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1633439/)
+## 美航空公司因人员紧缺推迟或取消逾千个航班
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1633484/)
 
-**作者：日本东京方舟农场 北极**
+**作者：日本东京方舟农场 海星**
 
-据WVUE FOX 8近日报道，路易斯安那州的一所学校在未经家长同意的情况下，给一名16岁的高中生注射了中共病毒疫苗。该学生的母亲已就此发起诉讼。
+10月31日，美国航空公司因人员紧缺在本周末推迟或取消了逾千个航班。
 
-这名高中生的母亲詹妮弗·拉万（Jennifer Ravain）诉说了事情的经过：她的儿子今年16岁，上周在“奥克斯纳健康”（Ochsner Health）公司为学校组织的流动疫苗接种活动中，接种了中共病毒疫苗，但事前并未取得家长的知情同意。
+据《CNN》报道，追踪美国国内班机延误和取消信息的FlightAware显示，本周六晚上，美国航空公司取消了499个航班，占其业务的18%。另有近300个航班被推迟，占其业务的11%。
 
-这位母亲表示，她对于发生此事感到非常沮丧，并要对此发起诉讼。
+本周五，FlightAware显示，美国航空公司推迟了738个航班，几乎占其业务的四分之一。另有342个航班被取消。该公司还预先取消了本周日的284个航班。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-1.png)图片来源：https://www.fox8live.com/2021/10/23/ochsner-admits-vaccinating-kenner-student-without-permission-mothers-lawyer-threatens-lawsuit/
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2.png)图片来源：https://edition.cnn.com/2021/10/30/business/american-airlines-flight-cancellations/index.html
 
-此案的代理律师谢里·马图林（Shelly Maturin）告诉WVUE-Fox 8记者，他将代表这对母子向法院提起诉讼，谴责学校未经监护人授权，擅自给未成年人接种疫苗的行为。该律师表示，除学校外，还将把“奥克斯纳健康”和学校董事会同时列为被告，并希望通过此事警醒路易斯安那州的所有公民。
+美国航空公司在一份声明中声称，航班大面积取消和延误是由于天气恶劣和人员紧缺造成。
 
-奥克斯纳健康公司的首席医疗官罗伯特·哈特博士（Dr. Robert Hart）在书面声明中承认，未经监护人许可，不应给未成年学生接种疫苗，他对此表示歉意。
-
-这所学校的校董事会发言人帕里斯·文内特（Paris Vinnett）也表示，将对此事进行彻底调查。
+10月初，美国西南航空曾以天气恶劣取消逾千个航班，但随后被调查记者德鲁·赫尔南德斯揭露，真正的原因是员工为捍卫自己的身体自主权，集体抗议拜登政府的强制疫苗接种令，主流媒体却试图掩盖这一事实。 此前，美国航空公司为响应拜登政府的强制疫苗接种令，即要求联邦承包商在12月8日前为员工接种疫苗，因此该公司于10月6日通知所有在美员工，必须在11月24日之前完成疫苗接种，否则将被解雇。
 
 *参考链接：*
 
-[Ochsner admits vaccinating Kenner student without permission; mother’s lawyer threatens lawsuit](https://www.fox8live.com/2021/10/23/ochsner-admits-vaccinating-kenner-student-without-permission-mothers-lawyer-threatens-lawsuit/)
+[American Airlines cancels hundreds of flights during Halloween weekend](https://edition.cnn.com/2021/10/30/business/american-airlines-flight-cancellations/index.html)
+
+
+
+> [西南航空雇员集体抗议实验性疫苗强制接种令](https://gnews.org/zh-hans/1612335/)
+
+
+
+
+
+> [美国航空限期员工接种新冠疫苗](https://gnews.org/zh-hans/1586580/)
+
+
 
 * * *
 
 
 ```
-素材采编：北极
-编辑：青衣青青
+素材采编：海星
+编辑：文顺
 校对/发布：Ranting
 ```
 
