@@ -2,48 +2,53 @@
 ---
 
 
-## 佛罗里达州的德桑蒂斯为阻止疫苗强制执行召开特别会议
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1632580/)
+## 世界各地犹太人立即认出Facebook新名字
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1632592/)
 
-评论：***用病毒恐吓你，然后再用疫苗残害你，这就是现在各国政府在干的事情。有一句话说得非常好，保护已接种疫苗人群不再被病毒感染是疫苗的责任，不是未接种疫苗人群的责任，请各国政府不要再为强制人民接种疫苗找借口了！***
+编译： Jenny Ball
 
-据《新闻大全》，2021年10月29日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2722.png)图片源自新闻大全
-佛罗里达州州长罗恩·德桑蒂斯周五对总统乔·拜登发起批评，同时，他呼吁立法者在11月15日召开特别会议，讨论防止企业颁布疫苗授权的立法。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-5.png)图片来源： westernjournal.com 
 
-德桑蒂斯和拜登政府在处理冠状病毒大流行的问题上几乎一直存在分歧，德桑蒂斯说，总统试图强迫大型企业和政府承包商要求接种疫苗，是越权行为。
+Facebook 首席执行官马克·扎克伯格于 2019 年 10 月 25 日在纽约佩利中心发表讲话。 (Mark Lennihan / AP)
 
-州长的公告说：“拜登政府已经采取或威胁采取特别措施，强迫那些因健康、怀孕、宗教信仰（包括真诚的道德或伦理信仰）和已经感染而不愿意接受疫苗的美国人注射COVID-19疫苗。”
+扎克伯格在重命名 Facebook 之前应该检查一下希伯来语词典：世界各地的犹太人立即认出新名字。
 
-德桑蒂斯正在考虑2024年的总统竞选，他对白宫和佛罗里达州地方政府的疫苗强制任务和其他大流行病限制提出了严厉批评。
+窃笑和尴尬伴随着Facebook 决定将其公司名称改为 Meta而来。
 
-德桑蒂斯说：“强迫美国人接种疫苗将使人们进一步不信任政府和美国企业。”
+据《以色列时报》报道，段子手们取笑 Facebook 首席执行官马克·扎克伯格(犹太人)，因为“meta”的发音类似于希伯来语“死”的女性形式。
 
-公告中说：“不顾父母的反对，对健康的学童进行强制戴口罩和实行不必要的隔离，侵犯了父母为其子女做出医疗保健和教育决定的能力，破坏了佛罗里达州学童接受他们应得的优质教育的能力。”
+“在希伯来语中，Meta 的意思是 Dead，”技术专家 Nirit Weiss-Blatt 博士周四在推特上写道。“犹太社区将在未来几年嘲笑这个名字。”
 
-周四，德桑蒂斯宣布就白宫对联邦承包商的疫苗授权对其提起诉讼。他的州政府还对违抗州政府，禁止在课堂上强制要求戴口罩的学校董事会进行了罚款，并扣留了获得联邦拨款的地区的资金，这些拨款旨在减轻州政府的罚款。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-7.png)
 
-特别会议还要求立法者澄清，地方学区不得强制要求学生戴口罩，而应将选择权留给家长。本届会议将于11月19日结束。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-9.png)图片来源： westernjournal.com
 
-参议院议长威尔顿·辛普森和众议院议长克里斯·斯普罗尔斯发表了一份支持德桑蒂斯的联合声明。
+扎克伯格表示，当他的帝国包括 Instagram、Messenger、WhatsApp、Quest VR 耳机、Horizon VR 平台等时，Facebook 的名称并未涵盖“我们所做的一切”。扎克伯格解释说，元宇宙是虚拟世界的一种形式，每个人都通过虚拟现实耳机、增强现实眼镜和手机应用程序连接在一起。
 
-在过去的两年里，弗洛里达人目睹了我们在其他州的朋友和亲戚的自由一次次被剥夺。他们说：“当拜登政府在全国范围内实施非法和违宪的疫苗任务，剥夺美国人民的工作尊严时，我们不会袖手旁观。”
+听起来很别致。但是标签呢？ 是的，有问题。
 
-其他许多州正在考虑反强制法案。德克萨斯州州长格雷格·艾伯特最近发布了一项行政命令，禁止任何实体要求强制接种疫苗。
+在葡萄牙语和西班牙语中，这个词并没有那么令人不安，因为它的意思是“目标”。 然而，据彭博社报道，在巴西，这个词有性的含义。
 
-文章点评仅代表个人观点
+扎克伯格的声明对总部位于新斯科舍省的 Meta Materials 来说是一个福音。据路透社报道，该公司股价在周四盘后交易中上涨了 26%，当时扎克伯格宣布了这一消息，周五又上涨了 6%。
 
-原文连接：[https://www.newsmax.com/us/desantis-florida-vaccine-mandates-special/2021/10/29/id/1042583/](https://www.newsmax.com/us/desantis-florida-vaccine-mandates-special/2021/10/29/id/1042583/)
+Meta Materials 的首席执行官乔治·帕里卡拉斯( George Palikaras )在推特上发布了一个元节欢迎 Facebook。
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – Wendy
-编辑：洛杉矶盘古农场 – Wendy
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+改名通常会因其翻译而失败。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+据英国广播公司报道，肯德基在 1980 年代进入中国市场时上了一课。
 
+这家餐厅的“吮指美味”的座右铭，翻译成普通话后成了“吃掉你的手指”。
+
+**点评：meta中文音译：埋它。先是非死不可，之后就埋葬了，小扎还是有自知之明的，非死不可作恶多端，那就按照小扎的意愿，早日埋葬在历史的垃圾堆里吧！**
+
+**參考資料：**[westernjournal.com] [Zuckerberg Should’ve Checked a Hebrew Dictionary Before Renaming Facebook: Jews Around the World Instantly Recognize New Name](https://www.westernjournal.com/zuckerberg-shouldve-checked-hebrew-dictionary-renaming-facebook-jews-around-world-instantly-recognize-new-name/?utm_source=Email&amp;utm_medium=WJBreaking&amp;utm_campaign=breaking&amp;utm_content=western-journal&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

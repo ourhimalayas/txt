@@ -2,53 +2,31 @@
 ---
 
 
-## 世界各地犹太人立即认出Facebook新名字
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1632592/)
+## 秘翻在线：格芯前景无限 芯片供不应求
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1632641/)
 
-编译： Jenny Ball
+#### 翻译/校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/FCzOz41VEAIo_xf.jpg)图片来源：Twitter
+根据CNBC的报道，半导体制造商格芯（GlobalFoundries）本周在纳斯达克交易所上市。全球芯片短缺可能持续到2023年后，该公司的估值超过250亿美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-5.png)图片来源： westernjournal.com 
+格芯正处于市场对各种微芯片需求激增的浪潮中，在中共病毒大流行导致相关的供应问题缓解后，这种大量的需求也不会消失。而且格芯在资本集型业务上花费的数十亿美元，也会提高其利润率。
 
-Facebook 首席执行官马克·扎克伯格于 2019 年 10 月 25 日在纽约佩利中心发表讲话。 (Mark Lennihan / AP)
+格芯的首席执行官汤姆·考菲尔德（Tom Caulfield）在采访时说：“ 我认为未来的5到10年里，我们要追求的是供应而不是需求，因为高通（Qualcomm）、联发科（MediaTek）、恩智浦半导体（NXP Semiconductors）和科沃（Qorvo）都是格芯的客户。”
 
-扎克伯格在重命名 Facebook 之前应该检查一下希伯来语词典：世界各地的犹太人立即认出新名字。
+近几个月来，汽车公司和家电制造商为获得足够的芯片来制造产品而煞费苦心。然而现在电子制造商及其供应商也出现了这个问题。例如，苹果公司表示，由于芯片短缺，他们将错过这个假期季节60亿美元的销售额。英特尔公司同样将其CPU销量下降归咎于电源和网络芯片的短缺。
 
-窃笑和尴尬伴随着Facebook 决定将其公司名称改为 Meta而来。
+目前这些短缺的芯片并不是使用最新技术创造的最先进的芯片。相反，这些短缺的芯片是通过传统节点（legacy nodes）或使用旧技术来执行电源管理，连接到显示器或实现无线连接等功能的半导体。考菲尔德解释说：“这些类型的芯片是格芯第三方硅片代工厂专门为其客户制造的类型。但在这方面投资不足这也是缺货的主要原因。对于我来说，我很高兴让更大的公司服务这个仅有个位数的纳米市场，我们将在技术差异化方面做到最好。“
 
-据《以色列时报》报道，段子手们取笑 Facebook 首席执行官马克·扎克伯格(犹太人)，因为“meta”的发音类似于希伯来语“死”的女性形式。
+自2020年8月份以来我们的产能利用率已超过100%，但截止到2023年前的所有芯片都已售罄。
 
-“在希伯来语中，Meta 的意思是 Dead，”技术专家 Nirit Weiss-Blatt 博士周四在推特上写道。“犹太社区将在未来几年嘲笑这个名字。”
+格芯在2018年做了一项战略决策，停止开发台积电和三星等代工厂正在投资的尖端芯片制造技术，转而专注于为其客户提供虽不太先进但却必要的半导体。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-7.png)
+格芯代工厂在商业模式下的利润低，而且还面临高额的人工、设备和原材料成本。格芯在招标书中说道，在2021年上半年，它的毛利率接近11%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-9.png)图片来源： westernjournal.com
+格芯在公开市场上筹集的26亿美元中，15亿美元将用于资本支出，以增加产能，满足芯片需求。该公司在美国、德国和新加坡设有工厂。格芯股价周四收盘下跌1.3%，低于其首发价格47美元，周五上涨超过5%，收于48.74美元。该公司由阿拉伯联合酋长国国家投资基金穆巴达拉（Mubadala）拥有超过85%的股份。穆巴达拉在2008年控制了该公司，但考菲尔德表示，穆巴达拉将在未来几年里减少其在格芯的所有权，并仍会支持这家制造商。在接下来的五到六年里，穆巴达拉会以非常有序且透明的方式，把他们的所有权拿出一些来，从而平衡公司。
 
-扎克伯格表示，当他的帝国包括 Instagram、Messenger、WhatsApp、Quest VR 耳机、Horizon VR 平台等时，Facebook 的名称并未涵盖“我们所做的一切”。扎克伯格解释说，元宇宙是虚拟世界的一种形式，每个人都通过虚拟现实耳机、增强现实眼镜和手机应用程序连接在一起。
+新闻来源：[GlobalFoundries CEO: We’re sold out of semiconductor chip capacity through 2023](https://www.cnbc.com/2021/10/30/globalfoundries-ceo-were-sold-out-of-semiconductor-chip-capacity-through-2023.html)
 
-听起来很别致。但是标签呢？ 是的，有问题。
-
-在葡萄牙语和西班牙语中，这个词并没有那么令人不安，因为它的意思是“目标”。 然而，据彭博社报道，在巴西，这个词有性的含义。
-
-扎克伯格的声明对总部位于新斯科舍省的 Meta Materials 来说是一个福音。据路透社报道，该公司股价在周四盘后交易中上涨了 26%，当时扎克伯格宣布了这一消息，周五又上涨了 6%。
-
-Meta Materials 的首席执行官乔治·帕里卡拉斯( George Palikaras )在推特上发布了一个元节欢迎 Facebook。
-
-改名通常会因其翻译而失败。
-
-据英国广播公司报道，肯德基在 1980 年代进入中国市场时上了一课。
-
-这家餐厅的“吮指美味”的座右铭，翻译成普通话后成了“吃掉你的手指”。
-
-**点评：meta中文音译：埋它。先是非死不可，之后就埋葬了，小扎还是有自知之明的，非死不可作恶多端，那就按照小扎的意愿，早日埋葬在历史的垃圾堆里吧！**
-
-**參考資料：**[westernjournal.com] [Zuckerberg Should’ve Checked a Hebrew Dictionary Before Renaming Facebook: Jews Around the World Instantly Recognize New Name](https://www.westernjournal.com/zuckerberg-shouldve-checked-hebrew-dictionary-renaming-facebook-jews-around-world-instantly-recognize-new-name/?utm_source=Email&amp;utm_medium=WJBreaking&amp;utm_campaign=breaking&amp;utm_content=western-journal&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

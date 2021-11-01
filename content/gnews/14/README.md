@@ -2,48 +2,22 @@
 ---
 
 
-## 王毅谭德塞在罗马唱双簧，继续推进全球疫苗强制行动
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1632718/)
+## 秘翻在线：中共国开始对 3至11岁儿童打毒针
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1632724/)
 
-作者：英国喜庄园 – I770775
+**撰稿：葛大饼**
 
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-01-182217.jpg)
+根据2021年11月1日中国日报网报道，国家卫健委疾控局副局长吴良有表示，中共国将争取在年底前完成3至11岁人群中共病毒疫苗接种。
 
+新闻称中共病毒病毒灭活疫苗在3—11岁人群中的安全性和免疫原性，与18岁以上人群没有显著性差异，目前国药中生北京所、武汉所，科兴中维的新冠灭活疫苗都已经获准在3至11岁人群中开展紧急使用。吴良表示，疫苗接种将继续按照知情、同意、自愿的原则，但是国家会积极引导3至11岁无禁忌人群应接尽接。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+中国疾控中心免疫规划首席专家王华庆说，儿童的中共病毒感染率比去年增加，因此儿童也需要接种中共病毒疫苗，并且可能还要接种其他疫苗。
 
+真实的世界是注射中共病毒疫苗后死亡的儿童多于感染中共病毒的儿童！世界上的流氓政府不顾事实去向自己的国民推这个毒疫苗。我们的每一次行动就是在拯救自己和孩子们！
 
-
-10月30日，二十国集团领导人峰会在意大利罗马开幕。代表中共领导人习近平出席大会的王毅，于当地时间10月30日，会见了世界卫生组织总干事谭德塞。
-
-王毅和谭德塞两人一唱一和，完全回避追究病毒来源的根本性问题，反而大谈特谈如何继续在全球强制推行病毒疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3.1.jpg)
-在中共国疫情全面反扑的局面下，王毅继续无视现实，声称中共在抗击疫情方面已取得重大战略成果，希望和世卫组织共同探讨未来的抗疫合作，愿意将疫苗在全球“公平”分配。
-
-谭德塞则再次露出亲共的嘴脸，表示他支持中方新冠疫苗的实施计划，世卫组织坚决抵制所谓的“政治化”病毒溯源研究。
-
-参考链接：
-[王毅会见世界卫生组织总干事谭德塞](https://world.huanqiu.com/article/45OKgrGStbZ)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+**[新闻来源](http://ex.chinadaily.com.cn/exchange/partners/82/rss/channel/language/columns/v0m20b/stories/WS617f5d74a310cdd39bc7290b.html)**
 
 
 
