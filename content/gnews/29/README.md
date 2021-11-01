@@ -2,24 +2,24 @@
 ---
 
 
-## 日本众院选举快讯：河野太郎获21万票创众院选举得票纪录
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1632870/)
+## 喜币上市 (11/1/2021)纳瓦罗新书证实郭文贵病毒情报促成川普总统发出中共国旅行禁令
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1632923/)
 
-作者：东京樱花团｜文小白
-![](https://lh3.googleusercontent.com/nYzzAel5Go4tYrc6uff9heZgLsLs3k2MfaIN89cwG3gcSjhPuSVBp7kve1XB-dSZpa99N3Av58GQfrEnCz6MslegVr4EDg8IjuptM6r5rbK2msLTsmJE1vAPt77kk-UrPhma3s5V)
-据共同社11月1日报道，在日本众院选举神奈川县第15选区，自民党的河野太郎获得210,515票，创下现行小选区比例代表并立制1996年实施以来的最高得票纪录。此前的纪录由2009年政权更迭选举中时任民主党党首的前首相鸠山由纪夫在北海道9区创下，当时为201,461票。
+撰稿：Skagen & Luckystat MaggieKZ
+采图：香水百合
+![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-01-at-9.10.59-AM.jpeg)图片来源：GTV & GETTR
+2021年11月1日喜马拉雅币上市大直播中，郭文贵先生指出纳瓦罗（Peter Navarro）先生的新书《川普时代》（In Trump Time）第23页写道：时任Trump总统是在听取了郭文贵先生的病毒情报后下令了对中共国的旅行限制。
 
-- 延展阅读：[河野太郎公式サイト](https://www.taro.org/)
-- 延展阅读：[https://ja.m.wikipedia.org/wiki/河野太郎](https://ja.m.wikipedia.org/wiki/%E6%B2%B3%E9%87%8E%E5%A4%AA%E9%83%8E)
+《川普时代》 这本书中提到纳瓦罗先生是美国最开始领导发展病毒疫苗的，现在他坚决反对疫苗。
 
+郭先生也指出，现在媒体爆出前美国国务卿Mike Pompeo宣布参选2024美国总统。
 
-河野太郎在2012年众院选举中也获得了192,604票，在当时的纪录中位列第四。在此次选举中，河野共前往约50个选区为其他候选人助选，返回自身选区做宣传活动仅仅两天，即发布公告日和选战最后一天。其身边人士表示能够在此次选举中创下最高得票纪录，是“利用SNS起到了很大的作用。”
+郭文贵先生爆料喜联储过去和今天一直遭到了来自中共国的军事级别攻击，从100万次/秒，上升到300万次/秒。但是喜联储的安全级别能承受16万亿次/秒的攻击。喜联储打开了7个服务器中心，预计将有惊天交易量。
 
-**新闻来源：**[**河野太郎获21万票创众院选举得票纪录**](https://china.kyodonews.net/news/2021/11/ec24564d1d41-21.html)
+来源链接：https://gtv.org/broadcast/watch/617fb54b11d1862968feda54
 
-*校对：东京樱花团 / 文小白*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+校对发布：Shifter
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
