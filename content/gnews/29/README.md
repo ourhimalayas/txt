@@ -2,26 +2,26 @@
 ---
 
 
-## 喜币上市在即，郭文贵先生和战友们相约庆典直播
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631717/)
+## 杰森·米勒：佛州州长将成为2024总统大选中最具领导力候选人
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631720/)
 
-作者：英国喜庄园 – I770775
+作者：澳喜农场 – 在远方
 
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-27.jpg)
-喜币即将上市，郭文贵先生将和战友们相约庆典直播，一同欢庆这一具有划时代意义的历史时刻。
 
-庆典直播平台：gtv：郭文贵miles；gettr：miles guo。
+10月30日，盖特首席执行官杰森·米勒先生接受News Max采访。
 
-庆典开始时间：美东时间2021年11月1号上午5：37。
+主持人提到，佛罗里达州州长德桑提斯宣布，将就拜登政府的疫苗强制令提起诉讼，还会为全美各地失去工作的警察，每人提供5000美金搬家费，欢迎前往佛州工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-14.jpg)
+杰森·米勒先生称赞说，德桑提斯州长在这些事情上，已经展现出相当强的领导力。虽然他仍然希望川普总统在2024年继续竞选总统，而且他认为川普总统显然会遥遥领先。但是，如果出于某种原因川普总统不能参选，德桑提斯州长将会是总统大选中绝对的领跑者。
 
-欢迎战友们准时观看，让我们一起见证这一激动人心日子的到来。
+他很确定德桑提斯州长，在面对民主的真谛时所展现出的反对大政府的领导力，尤其是在过去几年中，州长的表现非常优秀。
 
-参考链接：[喜币上市在即，郭文贵先生和战友们相约庆典直播](https://gtv.org/broadcast/watch/617eb90211d1862968fe3e69)
+参考链接：[杰森·米勒：佛州州长将成为2024总统大选中最具领导力候选人](https://gettr.com/post/pfp2r74147)
 
 ![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 

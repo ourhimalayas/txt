@@ -2,21 +2,86 @@
 ---
 
 
-## 英政府报告：完全接种者的免疫系统正衰退殆尽
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1631768/)
+## 郭文贵先生给国内战友的建议
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1631823/)
 
-原文采编：Ucool优酷     编译撰稿：硫酸羟氯喹64
+[https://gtv.org/video/id=617f21beadfd99590c31efcd](https://gtv.org/video/id=617f21beadfd99590c31efcd)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-18-edited.jpg)图片来源：THEEXPOSE
+我唯一的一个个人观点建议
+Mi única sugerencia de opinión personal
 
+你要慎重考虑
+Debes pensar con cuidado
 
-据英国知名媒体[时事揭秘]10月31日刊文报道，[英国卫生安全局]关于“新冠病毒”感染病例的最新“疫苗监测”报告显示，该国40-79岁已完全接种“新冠病毒疫苗”者，现已失去了近50%的免疫系统能力，并且该能力每周都以4%-5%的比例逐渐衰减。
+在中国国内的
+Dentro de China
 
-该报告还清晰表明，30-49岁的人在接种后的第一周内，对“新冠病毒”的防御力几乎为零，甚至会出现一种由该疫苗介导的“获得性免疫缺陷综合症”。而且所有30岁以上完全接种者的免疫系统将在未来18周内完全丧失防御该病毒的能力。
+你没有生存能力, 没有足够的钱
+Si no tienes capacidad para sobrevivir ni el suficiente dinero
 
-据悉，[英国卫生安全局]以上公布的这项疫苗监测报告结果，是在针对该国所有“新冠病毒三角洲”变异体感染病例的全基因组测序后得出的。此外，该报告还明确显示出[辉瑞公司]产“新冠病毒疫苗”对完全接种者的免疫系统反应能力所造成无法治愈的渐进性损害。
+你别出国, 出了国更惨
+No salgas del país porque será peor
 
-[原文链接：](https://theexpose.uk/2021/10/30/gov-reports-show-fully-vaccinated-and-children-developing-ade/)
+外国没有钱是寸步难行
+Es difícil moverse sin dinero en países extranjeros
+
+没有语言更难行
+Sin saber el idioma es aún más difícil
+
+在国内就到农村, 中小城市活着去
+Si estás en China, vaya a vivir en zonas rurales o ciudades pequeñas y medianas
+
+唯一的是, 我强烈建议任何情况下别打疫苗
+Lo único que recomiendo encarecidamente es no que se vacunen bajo ninguna situación
+
+别染上冠状病毒
+No te contagies del Covid-19
+
+备好伊维菌素, 地塞米松, 羟氯喹和锌
+Prepare ivermectina, dexametasona, hidroxicloroquina y zinc
+
+然后是青蒿素
+y luego es la artemisinina
+
+绝对伊维素是防病的, 是治病的
+La ivermectina es preventivo y curativo
+
+地塞米松是紧急控制你血氧的
+La dexametasona es una emergencia para controlar el oxígeno en la sangre
+
+青蒿素是打了疫苗以后解毒的
+La artemisinina desintoxica después de ser vacunada
+
+还有防止病毒的(作用)
+Y también tiene función de prevenir el virus
+
+怎么吃, 请大家一定买正确的药
+Cómo tomarlo, compre el medicamento correcto
+
+按医嘱吃
+Toma según las indicaciones del médico
+
+———————————————————
+
+**原视频网址**：[https://twitter.com/Se1y7CbLlJSeLVA/status/1452954306412355585](https://twitter.com/Se1y7CbLlJSeLVA/status/1452954306412355585)
+
+日期：10/31/2021
+原视频标题：
+Sugerencias dadas por el Sr. Wengui Guo para los compañeros luchadores de China
+原视频日期：10/24/2021
+任务编号：KC216（2690）
+视频时间段：0:00-0:58
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

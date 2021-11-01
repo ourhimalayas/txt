@@ -2,38 +2,62 @@
 ---
 
 
-## 杰森·米勒：疫苗强制令导致美国社会分裂
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631721/)
+## 我们走在正道主义大路上——祝贺喜币上市！
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1631729/)
 
-作者：澳喜农场 – 在远方
+作者：春晖   华盛顿DC农场
 
+演唱：初晓 
+素材：Yetta   36CIA
+视频制作：36CIA 
+字幕：36CIA
 
+我们走在大路上，
+联合灭共斗志昂扬，
+喜马拉雅山七星飞舞，
+喜币喜讯传向四方。
+向前进！向前进！
+灭共潮流不可阻挡，
+向前进！向前进！
+朝着胜利的方向。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+七芒星旗迎风飘扬，
+新中国联邦发奋图强，
+誓要夺回锦绣河山，
+快把国贼扫进坟场。
+向前进！向前进！
+正道主义不可阻挡，
+向前进！向前进！
+朝着胜利的方向。
 
+我们的道路多么宽广，
+我们的前程无比辉煌，
+我们献身这壮丽的事业，
+无限幸福无上荣光。
+向前进！向前进！
+正道主义不可阻挡，
+向前进！向前进！
+朝着胜利的方向。
+朝着胜利的方向——
 
+* * *
 
-目前，佛罗里达州的中共病毒感染率，已经达到全美国最低，德克萨斯州的感染率，也低于许多民主党执政的蓝州。而这两个州对拜登政府的疫苗强制令反抗最为激烈。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture5-4.jpg)
-盖特CEO杰森.米勒先生10月30日接受Newsmax采访时说，很多防疫措施，在科学上都讲不通，尤其是口罩强制令、疫苗强制令，和疫苗护照等措施。在纽约，没有疫苗卡甚至不能去买汉堡，这实在太荒谬了。人们正在被迫搬往其他地区，并非是他们喜欢那里的气候或是某些工作。如今人们在全国各地搬家，就是为了远离政府。
+**欢迎阅读更多【春晖专栏】文章：**
+[花环与圈套](https://gnews.org/zh-hans/1532235/)
+[夜雨乱谈兵](https://gnews.org/zh-hans/1353630/)
+[歌词 勇士壮歌行](https://gnews.org/zh-hans/1427092/)
+[围观一场裸奔中的忽悠](https://gnews.org/zh-hans/1415426/)
+[风 马 牛，外面有狼](https://gnews.org/zh-hans/1409824/)
+[春晖信箱之一](https://gnews.org/zh-hans/1257354/)
+[春晖信箱之二](https://gnews.org/zh-hans/1324736/) 
+[春晖信箱之三](https://gnews.org/zh-hans/1338771/)
+[给翠花的绝交信](https://gnews.org/zh-hans/1195451/)
+[金哨吹响爱飞扬](https://gnews.org/zh-hans/1195535/) 
+[“八卦”使人长寿](https://gnews.org/zh-hans/1195566/) 
+[中国人的美国梦之一](https://gnews.org/zh-hans/1229846/) 
+[中国人的美国梦之二](https://gnews.org/zh-hans/1288730/) 
+[中国人的美国梦之三](https://gnews.org/zh-hans/1362811/)
 
-米勒先生认为，这是美国历史上民众第一次出现这样的自我选择。对美国而言，这是一种令人不安的趋势。他认为民主党错误的政策，让纽约和西雅图等城市，因为失去不愿强制接种疫苗的警力，而陷入混乱。这是迫使美国分裂为两个不同社会的迹象，将对蓝领工人造成伤害，也会对那些需要到实际工作场合去工作的人，造成伤害。
-
-参考链接：[杰森·米勒：疫苗强制令导致美国社会分裂](https://gettr.com/post/pfp2r74147)
-
-![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

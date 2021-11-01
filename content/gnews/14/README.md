@@ -2,192 +2,46 @@
 ---
 
 
-## 善用喜币喜联储代理权，让你成为永恒的罗斯柴尔德
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1631777/)
+## 喜币的“价格自适应机制”和“增发机制”写在喜币上市前
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1631874/)
 
-[https://gtv.org/video/id=617ebba8adfd99590c31dca4](https://gtv.org/video/id=617ebba8adfd99590c31dca4)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/a6d43-zs1ji.jpg)
+作为一个曾经参与过交易所业务的人，必须说喜币是如此特殊，它不同于以往我所有接触过的“交易标的”，不管是“有形标的”，还是“无形标的”，还是两者结合的任何标的。
 
-如果你懂得喜联储这三字儿的时候
-Cuando entiendas estas tres palabras “Reserva Federal de Himalaya”
+**喜币不是交易标的**
 
-你在未来不用多
-En un futuro no muy lejano
+严格说，在我看来它并不是“交易标的”，虽然它可以交易，它是回归了金本位的类国家主权M0货币。但又不止于此，它不是单一国家主权金本位货币，它未来会是“经济相关体”通行货币，超越单一国家主权的局限；它也不会仅仅是“M0”，未来随着基于喜币的金融服务的成熟，它的属性也会随之变化。但有两点在现阶段是能清楚看到的：喜币的“价格自适应机制”和“增发机制”。
 
-就3个月
-Solamente tres meses
+如果是“交易标的”，在不涉及任何金融杠杆的情况下，持有人需要通过“交易”，通过以低价买入，高价卖出的价差获利，通过成本优势获利。同时，如果市场交易不活跃，需要有一系列的交易策略和引导方案盘活交易市场，促进交易，从而获利。那是种零和博弈，那种市场你可以说赌场也不为过，只不过是秩序好些的赌场还是吃相难看的赌场罢了。
 
-你会逐渐地知道喜联储
-Gradualmente, te darás cuenta que La Reserva Federal de Himalaya
+**喜币的支付功能和获利**
 
-喜联储现在是什么呢? 它还得有些钱
-¿Qué es La Reserva Federal de Himalaya en este momento? Él todavía necesita más dinero
+我认为喜币并不是以“交易”为目的标的，它的功能主要在于“支付”。当然战友们都能获利，利从何处而来？ —— 从“价格自适应机制”而来。
 
-是要靠传统银行
-Debe depender de los bancos tradicionales
+再过不到24小时，将迎来市场对喜币的第一次定价，现在的面值是0.1元，经过下周一上市后的市场重新定价，面值可能是0.5元，可能是0.8元，1元……由市场定价。这就是为什么郭文贵先生为战友们争取0.1元的原始价格 原因。这一价格不可能给普通投资人，因为这个价格对战友们来说是“0成本”的价格，是可以“保证获利”的价格，虽然任何时候不应该说“保证获利”这个字眼。并且，喜币会在上市后的发展过程中经历一次、两次、三次、多次的市场重新定价，我称之为“价格自适应机制”。
 
-因为你买喜币, 你都付的美元
-Porque compras monedas de Himalaya, debes pagarlo con el dólar
+同时，再加上喜交所已经公布的“增发机制” —— 每年增发10亿枚喜币，仅这两个机制，一个中心化的策略（增发）和一个非中心化的策略（价格浮动）的共同作用，可以使喜币总市值维持在与之关联的经济体总量所需货币总量的水平上 —— 即喜币总市值将始终适配于一定经济体量所需要的流通货币量：如果货币流通量需求增加，但还没到喜币第二年的增发期，就通过价格波动以适应相应的货币量需求；到了增发期，数量和货币会同时变化，最终在价格和数量共同作用下，喜币总市值会重新调整符合新的经济体量需求。
 
-付的日圆什么的
-O en yuan japonés
+郭文贵先生提过，比如三个月后披露一些喜交所股东、比如战友们以各自的能力去代理扩大喜币的应用市场，这些实际上都会增强与喜币有关的经济体总量，从而增加对流通货币的需求，在喜币没到增发期的时候，价格就会上涨。任何一次重大利好披露，任何一次重大合作签约披露都会在一定时间内提升喜币价格，喜币会“自动调整价格”以适应新的“支付需求”，自然而然，战友们也会获利更多，但不是通过“低买高卖”的价格差获利，而是我们所持有的喜币“价值”变高了，“购买力”变强了而获利。但请记住，在遇到增发期的时候情况会有所不同，每年的增发会是一个“负平衡”机制，大多数情况下，增发会导致价格回落。但即便如此，喜币的整体价值不会有什么影响，因为喜币总市值始终适应一定的经济体量货币需求，而这种需求从0开始，会是始终增加的，因此，可以说喜币价值是会持续稳定“增长的”。价格即使阶段性有所回落，也并不意味着战友们亏损了，因为我们的成本价简直就是“0”，如果哪位战友始终盯着“最高价”，那一定是投机心态了。
 
-当喜联储和喜币和喜美元增加流通以后
-Cuando se aumente la circulación del La Reserva Federal de Himalaya, su moneda y el dólar
+**喜币的价格变化**
 
-他自己就是一个银行和金融机构
-Él mismo será un banco y una institución financiera
+刚刚通过对这两个机制的简单描述，大致阐述了对喜币作为“货币”而不是“交易标的”它的盈利从何而来，以及它未来发展我的一些浅见。但在交易市场里，并不是绝对理性的，交易市场是人性最贪婪部分被最大程度放大后的集中体现。刚开盘交易的情况也会非常复杂，抛开技术上可能出现的黑客和并发交易造成的系统负荷问题不说，这毕竟是一个聚合交易市场。纵然是市场定价，也会有资金助推，也会有交易各方因市场价格变化产生交易心理波动后的不受控买卖行为，从而导致短期价格剧烈变化的不可预测性。简单说，刚开始大家的都预期很高，都不会卖，在这种情况下，大量的“不出售”心态会导致少量资金就可以推高价格，但这种时候的价格是虚高的，当有人在高价位卖出后，一定会影响很多人的心态，当更多人受到影响参与到买卖中的时候，交易量的增大，市场里的真实资金量，和原始发行时的持仓结构都将共同作用；所有方面的交易心理、交易行为最终会在价格上反映出来，各方会最终重新找到自己的位置，价格最后会趋于稳定。
 
-如果战友们都去使用喜美元, 喜币去交易支付
-Si los compañeros luchadores realizan transacciones mediante el dólar de Himalaya y su moneda
+喜币的发展一定会将其作为货币。因货币需求量增加而被市场重新定价会带来的价格变化。同时，也会有短期因利好释放，资金助推带来的“投机机会”。这样、会出现阶段性的通过价差买卖能获利的情况，但这种价差买卖的获利始终是零和博弈，可能获利，也可能亏损，不是专业选手不建议短线博弈。战友们即使不参与任何投机性操作，仅凭成本优势 —— 郭文贵先生给咱们的近乎“0成本”购买价，依然可以从喜币作为“货币”的多次市场重新定价中获利。如何选择，完全在战友们自己了。
 
-互相间都去用的时候
-Cuando ambos se utilizan entre sí
+**喜币的价值**
 
-很快你会发现
-Pronto te darás cuenta
+还有20个小时左右，喜币就将正式走上世界舞台了。它是新时代的宠儿。将吸引无数的目光。
 
-全世界都到喜联储来开帐号
-Todo el mundo abrirá cuenta en La Reserva Federal de Himalaya
+上市是从0到1最关键的一步，有了这一步，才有未来的无限可能。我相信喜币的意义，包括它成功上市的意义一定远超我们现时的设想。同时，喜币也会在全球金融、经济领域标识出灭共和亲共阵营；此消彼长，喜币获得更多的代理应用，喜交所公布更多令人震撼的股东身份都代表着世界实实在在的选择。当喜币作为货币所服务的经济体量从小到大增长的时候，当达到区域经济体级别，达到国家经济体级别，最后到达超国家级经济体级别的时候……喜币的价值或才能彻底得到释放。
 
-而不是喜联储的, 咱们的战友们去到人家开帐号
-Y no es la propia reserva federal o que nuestros compañeros luchadores vayan a abrir las cuentas
+“莘县，阳谷，县搭县 —— 咱走走看！” 谨以此短文预祝喜币上市成功。
 
-我们就废掉了过去(的游戏规则)
-De esta forma, eliminamos las reglas de juego del pasado
+【**文章仅代表作者个人观点，与Gnews平台无关】**
 
-就是从娘胎里长大
-Es como si crecemos en la barriga de nuestra madre
-
-你必须出来的时候有一个胎盘
-Debes tener placenta cuando salgas
-
-当你把这个剪断的时候
-Cuando la cortas
-
-你就是长大了
-Significa que ya creciste
-
-你可能会超过你的母胎
-Podrías sobrepasar al feto de tu madre
-
-你可能会超过世界
-Al mundo
-
-你可能会超过一切
-O a todo
-
-这就是战友们一定要善用喜美元
-Este es el por qué los compañeros luchadores deben hacer un buen uso al dólar de Himalaya
-
-善用喜币
-A la moneda de Himalaya
-
-而且战友们最核心的利益
-Y los intereses fundamentales de los compañeros luchadores
-
-是各农场和战友们未来所有的喜币的支付代理权
-Es el derecho de agencia de pago de la futura moneda de Himalaya de todos los compañeros luchadores de cada finca
-
-它真的可以让你成为巨大的有钱人
-Él realmente puede hacerte convertir en un rico
-
-就是当年JP摩根, 还有罗斯柴尔德
-Al igual como JP Morgan y Rothschild en aquel tiempo
-
-罗斯柴尔德当年
-Rothschild en aquel tiempo
-
-一个国家国王专门在欧洲借(钱)给人家战争
-El rey de un país le presta (dinero) especialmente a otros en Europa para la guerra
-
-你两家打仗, 我借你黄金
-Ustedes dos pelean y yo les presto el oro
-
-最后是罗斯柴尔德去了, 我来帮你来联系国家, 谁打仗借钱
-Finalmente, Rothschild fue y dijo, yo te ayudo a contactar con los países, quien tenga la guerra y pide prestado el dinero
-
-赌两边儿
-Apuesta dos lados
-
-最后这国王死了, 把黄金全委托给他支付
-Al final este rey murió y dejó a él para que se encargara del pago de oro
-
-就成立了罗斯柴尔德
-Y así fue que se estableció Rothschild
-
-今天的喜币就是这样
-Hoy la moneda de Himalaya es así
-
-当年的罗斯柴尔德
-El Rothschild de aquel año
-
-谁要想今天能代理好喜币的支付权
-Quien represente bien el derecho de pago de la moneda de Himalaya
-
-和在某地区的代理权, 你绝对是罗斯柴尔德
-Y la representación legal de algún sitio, eres absolutamente Rothschild
-
-而且是永恒的罗斯柴尔德
-Además, eres el eterno Rothschild
-
-你去好好看罗斯柴尔德的家族
-Vaya y vea bien la familia de Rothschild
-
-怎么后来生出3个儿子
-Cómo él luego tuvo tres hijos
-
-一个法国, 一个英国, 一个留在德国
-Uno en Francia, uno en Reino Unido y el otro se quedó en Alemania
-
-怎么把黄金成为世界上真正的货币
-Cómo hizo para que el oro se convirtiera en la moneda real de todo el mundo
-
-真正了控制全世界
-Tuvo el verdadero control de todo el mundo
-
-罗斯柴尔德到美国被JP摩根给干掉的时候
-Cuando Rothschild fue a EE. UU y fue eliminado por JP Morgan
-
-JP摩根就说
-JP Morgan dijo
-
-我要把你的所有的货币权在美国这块让我来拿走
-Voy a tomar todos los derechos monetarios que tienes aquí en EE. UU
-
-因为现在有股票
-Porque ahora hay acciones
-
-今天我们喜币和喜美元
-Hoy nuestra moneda y el dólar de Himalaya
-
-拥有一个股票和黄金连在一起的这么一个新的货币时代
-Tienen una nueva era de divisas en la que las acciones y el oro estén vinculados
-
-你拥有两个手
-Tu tienes dos manos
-
-两个时代的综合结构
-Es una estructura integral de las dos épocas
-
-如果你拥有代理权, 你就是最牛的
-Si obtienes la representación legal, serás el mejor
-
-———————————————————
-
-**原视频网址：**[** **https://twitter.com/se1y7cblljselva/status/1453191890417840135?s=24](https://twitter.com/se1y7cblljselva/status/1453191890417840135?s=24)
-
-日期：10/29/2021
-原视频标题：
-Tomar el buen uso de los derechos de representación legal de la moneda de Himalaya y su Reserva Federal para convertirlo en un eterno Rothschild
-原视频日期：10/27/2021
-任务编号：KC215(2689)
-视频时间段：0:00-2:18
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
+作者：洛杉矶盘古农场 — Antsee-GTV
+编审：洛杉矶盘古农场 — 心照
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

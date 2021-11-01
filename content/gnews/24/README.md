@@ -2,38 +2,22 @@
 ---
 
 
-## 爱尔兰沃特福德揭露新冠疫苗是骗局
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631722/)
+## 加拿大旅行用疫苗护照于10月30日正式生效
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1631740/)
 
-作者：东京方舟农场 – 冰糖葫芦喵
+撰稿：Spirit 校对编辑：硫酸羟氯喹64
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-5-edited.png)图片来源：CBC
 
 
+据《加拿大广播公司新闻》10月29日报道，联邦政府于当天宣布了新的针对外国公民有关“新冠病毒疫苗”接种豁免授权的规定和必须接种该疫苗的宽限期，以及次日生效的国内旅行者“疫苗护照”细节。
 
-据网关专家10月30日的报道，在爱尔兰的沃特福德市，已有99.7%的成年人完全接种了新冠疫苗，但其14天内的发病率为每10万人1486例，是全国平均水平的3倍，成为全国感染率最高城市。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture66-1.jpg)
-英国政府警告说，接种疫苗的人似乎对新冠病毒感染后的免疫反应不完全。而科学家们发现，疫苗在免疫系统中产生的未知、长期变化，更令人担忧。
+该规定指出：从10月30日凌晨3点开始，所有加拿大12岁及以上旅行者在登上该国的飞机、火车或游轮之前都必须完全接种“新冠病毒疫苗”。同时，对那些即使是已完全接种了该疫苗的旅客，在返回加拿大时也必须出示“新冠病毒”测试的阴性证明。
 
-报道指出，新冠疫苗的效果并不像预测或宣传的那样有效，疫苗未能保护接种者不受感染，相反促进了变异病毒的更普遍的感染。大型制药公司和许多所谓的公共卫生机构一样，都是骗子，许多人不再相信疾控中心的报告，而疾控中心已经证明自己是一个被制药业买通的腐败机构。
+目前，加拿大联邦政府正面临放弃这项规定的巨大压力，并被该国各界强烈要求取消对“已完全接种旅客进行昂贵病毒测试”的规定。此外，从11月30日起，未接种者将没有资格在国内使用公共交通工具旅行，但有限的豁免除外。
 
-参考链接：[爱尔兰沃特福德揭露新冠疫苗是骗局](https://www.thegatewaypundit.com/2021/10/waterford-ireland-exposes-covid-vaccine-fraud/)
+[原文链接：](https://www.cbc.ca/news/politics/transport-canada-announcement-vaccine-requirements-travel-1.6229829)
 
-![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

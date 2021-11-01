@@ -2,21 +2,50 @@
 ---
 
 
-## 加拿大将向国际组织捐赠莫德纳疫苗
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1631800/)
+## 飞机着火坠毁，21名乘客奇迹生还
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1631887/)
 
-原文采编：青青      编译撰稿：硫酸羟氯喹64
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/mdn-edited.jpg)图片来源：CTV
+作者：纽约香草山信息部 – 6zero4
 
 
-据加拿大媒体[CTV新闻]10月30日报道，总理特鲁多当天宣布，加拿大将向[新冠病毒疫苗共享联盟]捐赠1000万剂[莫德纳公司]产该疫苗，另资助1500万美元用于帮助在非洲生产mRNA疫苗。
 
-特鲁多是在罗马出席20国集团领导人峰会时透露了以上捐赠细节。并表示，加拿大还将增加对该全球疫苗共享联盟的财政贡献，目标是在明年年底前为中低收入国家捐赠或支付至少2亿疫苗剂量。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-加拿大此前已向国际承诺从该国的库存中捐赠4000万剂“新冠病毒疫苗”，并通过向[疫苗共享联盟]捐赠超过5亿美元的资金来支付约8700万剂量的莫德纳疫苗。
 
-[原文链接：](https://www.ctvnews.ca/politics/canada-to-donate-10-million-doses-of-moderna-vaccine-to-covax-1.5645185)
+
+10月19日上午，房产公司Flair Builders高管肯特（J. Alan Kent）的单通道大型私人飞机MD-87从休斯敦行政机场起飞前往波士顿。然而，飞机在跑道尽头因没有达到起飞高度而撞到了机场围栏并起火。最后，飞机穿越了一条公路并坠毁在一片田野上。奇迹的是，所有21名乘客和机组人员都从被火球吞没的飞机残骸中安全逃生。据了解，只有一人背部受伤被送医救治。此事件创造了航空事故人员伤亡数据接近零的奇迹！
+
+![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/jetcrshhouston.jpg?itok=c3yrz1rP)图片来源：FOX
+
+文贵先生创立并引领的爆料革命，一直在灭共和唤醒世界的道路上创造了目不暇接的奇迹。而今，中共的经济、政治、军事和社会等各方面都严重后院起火，这所“破船”就如这架MD-87私人飞机，无可避免地即将坠毁。但是，所有墙内跟随文贵先生的战友就是MD-87飞机上的乘客——他们将全部幸运逃生。事实上，新中国联邦就是MD-17飞机最后的坠毁地，中共必将被摧毁在爆料革命的战场上！
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+[“Miraculous”: All 21 Passengers Walk Away From Fiery Private Jet Crash Outside Houston](https://www.zerohedge.com/medical/miraculous-all-21-passengers-walk-away-fiery-private-jet-crash-outside-houston)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
  
 

@@ -2,21 +2,33 @@
 ---
 
 
-## 加拿大旅行用疫苗护照于10月30日正式生效
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1631740/)
+## G20峰会澳洲总理呼吁国际社会继续调查新冠病毒起源
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1631764/)
 
-撰稿：Spirit 校对编辑：硫酸羟氯喹64
+#### 整理报道：月映万川
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-5-edited.png)图片来源：CBC
+#### 编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-30.jpg)**图片来源：ABCNews & Wikipedia**
+澳大利亚总理斯科特·莫里森不断呼吁国际社会对新冠病毒起源进行彻底调查，尽管这可能会让本已经很差的中澳关系雪上加霜。
 
+近日，在罗马召开的20国峰会会议上，澳洲总理重申，新冠病毒调查的目的不是要推卸相关责任，而是要确保未来如何避免大流行的发生。
 
-据《加拿大广播公司新闻》10月29日报道，联邦政府于当天宣布了新的针对外国公民有关“新冠病毒疫苗”接种豁免授权的规定和必须接种该疫苗的宽限期，以及次日生效的国内旅行者“疫苗护照”细节。
+与此同时，莫里森总理也批评世界卫生组织，由于受到中共国的影响，在疫情初期应对过于迟缓。
 
-该规定指出：从10月30日凌晨3点开始，所有加拿大12岁及以上旅行者在登上该国的飞机、火车或游轮之前都必须完全接种“新冠病毒疫苗”。同时，对那些即使是已完全接种了该疫苗的旅客，在返回加拿大时也必须出示“新冠病毒”测试的阴性证明。
+莫里森说，“我们需要一个能为世界提供更多保护，更强大，更独立和透明的世界卫生组织。”
 
-目前，加拿大联邦政府正面临放弃这项规定的巨大压力，并被该国各界强烈要求取消对“已完全接种旅客进行昂贵病毒测试”的规定。此外，从11月30日起，未接种者将没有资格在国内使用公共交通工具旅行，但有限的豁免除外。
+在大流行开始时，莫里森总理曾经呼吁组建独立调查团队对起源于武汉的全球大流行进行彻查。因此，澳大利亚也遭到中共国的报复，包括禁止进口澳大利亚产品。
 
-[原文链接：](https://www.cbc.ca/news/politics/transport-canada-announcement-vaccine-requirements-travel-1.6229829)
+原文链接：[Scott Morrison repeats call for COVID origin in Wuhan, China, to be investigated (afr.com)](https://www.afr.com/politics/federal/g20-pm-repeats-call-for-pandemic-origin-to-be-investigated-20211030-p594m4)
+
+发布：文泓
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
