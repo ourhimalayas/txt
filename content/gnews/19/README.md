@@ -2,55 +2,40 @@
 ---
 
 
-## 酩悦香槟 (Moët)，一个普世成功的品牌
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1631633/)
+## 杰森·米勒：佛州州长将成为2024总统大选中最具领导力候选人
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631720/)
 
-作者** **：纽约香草山** – **Gtv abeilles** **（蜜蜂）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-10.jpg)
+作者：澳喜农场 – 在远方
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
 
 
-自公元496年法兰西人的第一个国王克洛维在香槟地区最中心的兰斯大教堂加冕以来，这里的葡萄酒一直为加冕和洗礼神圣之用。香槟酒的酿制工艺是自古希腊、罗马几千年以来葡萄酒酿制工艺的一次突破。只有香槟地区产的葡萄汽酒才能叫香槟酒。
 
-自1743年以来，克劳德·酩悦（Claud Moët）一直在创造着世界上最受赞赏的香槟酒。其1000公顷的葡萄园主要由顶级和特级葡萄园组成，是法国香槟地区最大和最有声望的庄园，其葡萄园的丰富性和多样性表现在Moët葡萄酒的公认质量上。
+10月30日，盖特首席执行官杰森·米勒先生接受News Max采访。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1321-1.jpg)图源网络
+主持人提到，佛罗里达州州长德桑提斯宣布，将就拜登政府的疫苗强制令提起诉讼，还会为全美各地失去工作的警察，每人提供5000美金搬家费，欢迎前往佛州工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-14.jpg)
+杰森·米勒先生称赞说，德桑提斯州长在这些事情上，已经展现出相当强的领导力。虽然他仍然希望川普总统在2024年继续竞选总统，而且他认为川普总统显然会遥遥领先。但是，如果出于某种原因川普总统不能参选，德桑提斯州长将会是总统大选中绝对的领跑者。
 
-喜马拉雅币是最具突破性、唯一性、承前启后神奇性的代表新时代的币种，并兼具——美元（法币）**、**喜美元（代币）**、**喜币（虚拟币）**、**黄金（货币）——四币联合的属性。
+他很确定德桑提斯州长，在面对民主的真谛时所展现出的反对大政府的领导力，尤其是在过去几年中，州长的表现非常优秀。
 
-喜币精神像作为特殊葡萄酒形象的香槟酒一样闪闪发光。而作为香槟酒之最的酩悦香槟 (Moët)更能见证稀有喜币上市的这一难忘历史时刻！2021年11月1日11点11分！HCOIN TO THE MOON !
+参考链接：[杰森·米勒：佛州州长将成为2024总统大选中最具领导力候选人](https://gettr.com/post/pfp2r74147)
 
-**参考****阅读****：**
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-[https://www.lvmh.fr/search/](https://www.lvmh.fr/search/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-8.jpg)
-
-编辑/校对/发稿：小鹿
-
-
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-10.jpg)
-
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

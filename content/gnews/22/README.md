@@ -2,26 +2,40 @@
 ---
 
 
-## 加拿大阿省强制接种政策已危及该省大学生
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1631578/)
+## 喜币上市在即，郭文贵先生和战友们相约庆典直播
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631717/)
 
-采编：青青   编译撰稿：文明(添草灭共)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-21.jpg)图片来源：CBC
+作者：英国喜庄园 – I770775
 
 
-据加拿大媒体【CTV新闻】10月28日报道，皇家山大学当天举行了抗议示威活动，数百名反“新冠病毒疫苗”接种人士集结在该校门前，呼吁当局结束针对阿尔伯塔省大专院校执行的该疫苗强制接种政策。
 
-此前，卫生部门已在该省各大学校内提供了该疫苗接种服务。如今，皇家山大学的学生和员工的接种率分别为82%和93%；而卡尔加里大学的该比率更高，分别达到93%和97%。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
 
-另一方面，未接种学生面临着越来越大的压力。据悉，皇家山大学即将对进入校园的未接种学生实施付费病毒测试。目前，已有11名该校学生因不遵守接种规定而被取消了注册资格。
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-27.jpg)
+喜币即将上市，郭文贵先生将和战友们相约庆典直播，一同欢庆这一具有划时代意义的历史时刻。
 
-校对编辑，发稿：硫酸羟氯喹64
+庆典直播平台：gtv：郭文贵miles；gettr：miles guo。
 
-[原文链接：](https://calgary.ctvnews.ca/covid-19-measures-protested-by-students-anti-vaccine-activists-outside-mount-royal-university-1.5642976)
+庆典开始时间：美东时间2021年11月1号上午5：37。
 
+欢迎战友们准时观看，让我们一起见证这一激动人心日子的到来。
+
+参考链接：[喜币上市在即，郭文贵先生和战友们相约庆典直播](https://gtv.org/broadcast/watch/617eb90211d1862968fe3e69)
+
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

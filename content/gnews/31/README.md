@@ -2,30 +2,41 @@
 ---
 
 
-## “IPAC”罗马会议呼吁G20强硬对抗中共
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1631483/)
+## 美国一些最著名新闻机构与华为勾搭合作
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1631576/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/103001-1.jpg)网络图片
 
-10月29日，由全球200多名国会议员组成的“对华政策跨国议会联盟”（IPAC）在罗马举行会议，要求20国集团（G20）将人权纳入议事日程，对中共采取更强硬立场。
+摘要翻译：
 
-据大纪元报道，在会议上，IPAC共同创办人、英国前保守党党魁邓肯·史密斯（Iain Duncan Smith）说，IPAC将呼吁各界关注“中国共产党对民主、人权和法治的系统性冲击”。
+美国一些最著名的新闻机构与电信巨头华为达成了合作协议，由于与中共政府的联系，美国政府认为其存在国家安全风险。
 
-他指出，冷战结束以来，还没有哪一个政权侵害人权的程度超越中共当局。有幸生活在自由世界的政治人物，往往误以为可与集权政府“讲道理”，但事实正好相反。“我们将在罗马提醒民主国家，他们有责任维护基于规则的国际秩序，这些规则是我们帮助形成的，现在正受到来自北京的威胁。”
+根据华盛顿自由灯塔的评论，《华尔街日报》、《连线》、《路透社》和《政客》都发表了由这家中共国电信巨头委托的新闻风格的文章，以推进其利益。自7月以来，路透社发表了两篇受（华为）赞助的文章，吹捧华为在英国的投资。 自去年以来，《华尔街日报》发表了14篇受（华为）赞助的文章，而《连线》则主办了由这家科技巨头赞助的虚拟活动。《政客》去年发表了支持华为的内容。这些文章披露华为赞助了这些内容，不过读者可能并不清楚该公司与中共政府的关系。
 
-“真正的领导力意味着应对这些挑战，而不是假装它们不存在”，邓肯·史密斯说，“本届G20必须成为一个转折点，中共（问题）必须放在议程的首位。”
-![](https://assets.gnews.org/wp-content/uploads/2021/10/id13340228-GettyImages-1236160573-600x400-1.jpg)Uyghur human rights activist Rahima Mahmut (L) and Hong Kong activist and politician, chairman of Demosisto political party, Nathan Law , stand by a replica of the “Pillar of Shame” (C), a statue commemorating the 1989 Tiananmen Square Massacre, during a demonstration on October 27, 2021 outside the Chinese embassy in Rome, against the “Chinese governments dismantling of Hong Kongs democracy and autonomy” ahead of the G20 World Leaders Summit in Rome. (Photo by Andreas SOLARO / AFP) (Photo by ANDREAS SOLARO/AFP via Getty Images)
-比利时绿党议员科戈拉蒂（Samuel Cogolati）表示，当中共政权几乎每天入侵台湾空域，在维吾尔地区犯下暴行，并瓦解了香港的自由和自治时，我们不能继续与其“一切照旧”（business as usual）。他说：“在这次G20会议上，我们需要看到民主国家找到迄今为止一直缺乏的勇气和领导力。”
+华为因其与中共政府的友好关系而受到抨击。华为创始人公开承认是中国共产党的一员，批评者称该公司与中共政府的联系，给中共国的异议人士带来了风险，并可能帮助中共政权监视外国对手。由于这些担忧，川普政府将华为列入经济黑名单，拜登政府也一直坚持这一政策。华为已花费数百万美元进行广告和游说，以反击制裁并恢复其形象。根据游说披露的信息，自8月以来，该公司已向民主党游说者托尼·波德斯塔 (Tony Podesta) 支付了50 万美元以游说白宫。
 
-据悉，此次罗马会议是IPAC自2020年6月成立以来首次面对面会议。出席会议的有西藏流亡政府最高行政领导人（司政）边巴次仁（Penpa Tsering）、流亡伦敦的前香港立法会议员罗冠聪、世界维吾尔代表大会伦敦负责人马赫穆特（Rahima Mahmut）、英国前保守党党魁邓肯-史密斯（Iain Duncan Smith，港译施志安）、比利时绿党议员科戈拉蒂（Samuel Cogolati）、欧洲议会议员莱克斯曼（Miriam Lexmann） 、立陶宛社民党议员萨卡利埃内（Dovilė Šakalienė）、日本代表山尾志樱里、法国参议员安德烈·加托林（Andre Gattolin）、乌干达议员艾克罗（Lucy Akello）等。
+近年来，由于中共政府展开了积极的对外宣传活动，与华为和其它中共国实体合作的媒体公司受到了审查。《华尔街日报》、《纽约时报》和《华盛顿邮报》去年都终止了与《中国日报》的合作，理由是担心与中共官方媒体合作。在华为的赞助遭到强烈反对后，全国黑人记者协会去年取消了一项讨论有关冠状病毒错误信息的在线活动。
 
-*参考链接：*
+作为华为赞助的一部分，自2020年8月以来，《华尔街日报》已经发表了14篇文章。《华尔街日报》在该公司的一个Twitter账户上发布了这些文章，其标题包括《为什么人工智能需要更多女性》《通过连接进行保护》和《创造信任文化》。这些材料对科技公司和5G技术提供了的积极的看法，其中一些文章将华为描绘成一股造福社会的力量。8月发表的一篇赞助文章称，华为的技术可以通过“促进数字包容性和连接世界各地的失联者”来结束所谓的数字沙漠。文章还引用了华为负责全球政府事务的高级副总裁、前荷兰议员阿夫克·沙特(Afke Schaart) 的话。
 
-[中共破壞人權法治 IPAC促G20強硬應對](https://www.epochtimes.com/b5/21/10/30/n13340199.htm)
+《华尔街日报》的一位发言人拒绝就此事发表评论。 《路透社》和《连线》没有回应置评请求。华为也没有回复寻求置评的电子邮件。
+
+简评：美国一些最著名新闻机构与华为勾搭合作，将使华为更加肆无忌惮地偷盗西方的高科技技术，催毁全球市场。许多研究表明，其研究团队和公司的成果将要成为全球化的产物，这种所谓的国际合作对中共国实际上提供了公开窃取技术的便利条件。
+
+新闻链接：
+
+[Top News Organizations Run Huawei-Sponsored Puff Pieces](https://freebeacon.com/media/top-news-organizations-run-huawei-content/)
 
 * * *
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
