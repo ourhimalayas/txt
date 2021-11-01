@@ -2,47 +2,53 @@
 ---
 
 
-## Facebook 对针对儿童的疫苗信息实施更严格的审查
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1632760/)
+## 疫苗受害者讲述疫苗副作用
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1632771/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+[![](https://spark.adobe.com/page/Cu97ki1bRBJlm/images/e083c17a-d2d8-4bf8-a500-9d167986ab2a.png?asset_id=f2fb226e-5c3e-4637-8bfd-2fd8efacdf58&amp;img_etag=%2220dffd466391540abe4a035fb3e1a47d%22&amp;size=2560)](https://spark.adobe.com/page/Cu97ki1bRBJlm/images/e083c17a-d2d8-4bf8-a500-9d167986ab2a.png?asset_id=f2fb226e-5c3e-4637-8bfd-2fd8efacdf58&amp;img_etag=%2220dffd466391540abe4a035fb3e1a47d%22&amp;size=1024)
+**简评：**
 
+患者4月份接种第二剂疫苗之后，身体出现了严重的反应，先是脖子上有肿块、疲劳感、视力模糊，出皮疹，关节疼痛，一个月之后已经不能独立行走。随后身体持续出现各种问题，身体内部有肉眼观察不到的震颤。患者做过大量的检查，见过不同的专科医生，至今没有结果。疫苗受伤没有任何记录，就像不存在一样。患者不得不坚持，因为担心自己被抹去。疫苗后遗症至今没有测试和治疗方法，应该停止强制疫苗。
 
+GTV视频链接：[Suzanna Newel疫苗受害者](https://gtv.org/video/id=617e7b58adfd99590c31c8df)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+**视频字幕：**
 
+**Suzanna Newel疫苗受害者：**时间回到4月13日。当时我非常愿意站出来并听从CDC的建议，打了第二针辉瑞疫苗后，我的整个生活发生了变化。
 
+从我的脖子上的肿块开始，我感到极度疲劳、大脑迷糊。我当时眼睛看不清，我的大脑不工作了。我的额头上有皮疹、关节疼痛。情况不断恶化。我只告诉了我最亲密的朋友，我非常担心。我不想吓唬别人不打疫苗。
 
-美国FDA刚刚正式批准对5至11岁儿童接种辉瑞新冠疫苗，Facebook便以全新身份Meta在美东时间10月30日宣布，它正在推出更严格的针对儿童的疫苗信息审查政策。该平台之前在2020年底对新冠疫苗信息进行了限制，但没有专门针对儿童的政策。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4.jpg)
-Meta在一篇新的博客文章中表示，它正在与CDC和WHO合作，以删除与儿童和新冠疫苗相关的内容，包括任何暗示新冠疫苗对儿童不安全、未经测试或无效的帖子。此外，Meta将以英语和西班牙语提醒人们疫苗已获批准给儿童接种。
+我一直等到4月底才去看医生，但到了5月21日，情况已经非常糟糕。我已经无法在没有帮助的情况下行走。
 
-Meta指出，自疫情爆发以来，它总共删除了来自Facebook和Instagram的20万条有关新冠病毒和疫苗的信息。
+正如你所看到的，这些问题今天依然存在。有时我的身体允许我走路。这让我看起来像是在撒谎。我没有说谎。我祈祷上帝我撒谎了，这样我可以找回我的生活。
 
-参考链接：
-[Facebook puts tighter restrictions on vaccine misinformation targeted at children](https://www.theverge.com/2021/10/30/22754046/facebook-tighter-restrictions-vaccine-misinformation-children)
+谢谢你们。我丈夫非常担心，他说服我去妙佑医疗。那是个错误。我们带着我的遗嘱开始赶路。我真的很害怕我整个身体机能停止运转，然后死去。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+直到现在，我还非常晕眩。我的视力模糊，我的右腿极度灼痛，我的右眼瞳孔不能正常扩散。我的右臂和右腿都很虚弱。在我的整个身体里，感觉像是在内部震颤。
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+所有这些可怕的问题，今天都间歇性地持续存在。我现在实际上就感觉到了震动。你们都看不到，但它们正在发生。
 
-**更多资讯，更多关注**
+他们做了大量的检查，核磁共振、CT扫描、胸部X射线、大量的血液检查，以及彻底的神经系统检查。我被送进医院，在那里住了两个晚上。我们被蒙在鼓里，没有人告诉我们检查的结果。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+我知道还有很多因疫苗受伤的人在妙佑医疗有不好的经历，或者被他们赶走，这让我很担心。我已经把我的信任交给了他们。我想如果有一个地方我可以去，那就是妙佑医疗，他们会对我感兴趣。我真的告诉他们，我会签署一份保密协议，这样就不会吓到别人了。请研究一下我，确保这种情况不会发生在更多人身上。谢谢你们的聆听。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+再回到今天。我现在是医生办公室的常客，回覆很少，测试也很痛苦，人们不相信我。疫苗受伤没有任何记录，就像我们不存在一样。这是一个专家之间的游戏，是一个烫手山芋。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+我见过神经科医生、风湿病医生、心脏病医生、妇科医生、过敏症医生和物理治疗师，还有其他人。我经常不得不为自己的观点而斗争。我很痛苦，我不想要这样的生活。但我必须坚持下去，这样他们才不会把我抹去。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+我不是一个喜欢哭的人。我知道我今天在你们面前哭了。但我知道，如果我在办公室里哭是没有用的，因为他们说我很焦虑。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+据我所知，他们还没有测试和治疗方法。也许我可以从今天这里的人那里找到一些。他们不支持我们，我们在绕圈子，有人告诉我们需要放松。这很残酷，需要停止。
 
+*编辑：【英国伦敦喜庄园编辑部】*
 
+*字幕/听写：云岭|翻译：致良知|PR：Wade|简评/文字整理/编辑：胖丁| Page：小六月*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
 
+[![](https://spark.adobe.com/page/Cu97ki1bRBJlm/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/Cu97ki1bRBJlm/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
 
 
  
