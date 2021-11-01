@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/1/2021 5:12 PM (UTC)`
+
+1 Nov 2021 Himalaya Exchange is able to withstand hacking at 1.6 billion times/sec. Peter Navarro wrote in his book that Trump issued the travel ban based on Miles Guo’s intelligence on the CCP virus.<br/><br/>11/1/2021 喜马拉雅联储能耐受每秒16亿次骇客攻击；纳瓦罗在其新书中写道：川普总统发出旅行禁令，是因为听取了郭文贵先生关于中共病毒的情报。
+![img](https://media.gettr.com/group17/getter/2021/11/01/17/12/568443e6-d2f5-7079-d10d-31d2c05de9a1/out.jpg)
+
+---
+
 `@miles 11/1/2021 11:18 AM (UTC)`
 
 11月1号：这个伟大的日子确实让人太激动了，七哥现在边看直播！边吃着家常饭．最爱吃的还是家常饭，最爱穿的还是粗布衣！永远不会改变的东西……就是我们来自草根！
@@ -298,13 +305,6 @@ CNN：蔡英文首次公开承认美国军队正在台湾训练台湾部队<br/>
 
 10月28号：尊敬的战友们好．拜托大家涡轮腹拉器的时候，每一组千万不要做超过12个，否则会伤到身体。科学健身，快乐健身．才是新中国联邦人在追求。
 ![img](https://media.gettr.com/group10/getter/2021/10/28/13/12/26d6e4e8-a171-0082-478c-fed06660f351/out.jpg)
-
----
-
-`@miles 10/28/2021 12:24 PM (UTC)`
-
-10月28日：尊敬的战友们好，你们健身了吗？传播C C P病毒真相和疫苗的解药了吗？一切都已经开始！
-![img](https://media.gettr.com/group15/getter/2021/10/28/12/24/456f8032-0ea4-7612-43af-e811eba354c3/out.jpg)
 
 ---
 
