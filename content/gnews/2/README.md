@@ -2,48 +2,46 @@
 ---
 
 
-## 飞机着火坠毁，21名乘客奇迹生还
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1631887/)
+## 2021/10/31文贵先生盖特直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1631933/)
 
-作者：纽约香草山信息部 – 6zero4
+![](https://assets.gnews.org/wp-content/uploads/2021/10/103101.jpg)[盖特直播链接](https://gettr.com/post/pfpjqpf828)
+有了盖特直播就尽量少发视频，七哥喜欢直播，直播是真实的对话，没有串改和编辑。这就是爆料革命的为真不破。
 
+正在直播的房间会装修成一间独特的直播室，墙上的照片只是打印的样板，不要以为七哥搞自恋。
 
+七哥很冷净，半年以来没有睡过10小时了，昨晚除外，很轻松。现在有两个担心，第一天开始市，共产党肯定黑我们到停机，过几个小时再运作都是正常的。所有虚拟货币上市都是会一塌糊涂，丢三落四。七哥很自信地说喜联储和喜币的系统是最好的，但我们有共产党这个敌人。中共黑我们也不是坏事，让全世界知道这币是共产党的敌人，会引起更大的关注，会得到政府更多的保护。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
+另外一个就是价格：1，战友们不要幻想涨百倍千倍，涨10倍20倍就已经一下子几百亿几千亿了，世界上没那么多钱，当1、2块钱战友卖时，最可怕共产党海外的基金把它买走，买4亿、5亿共产党就控股了，当他控股后想干啥就干啥。 2，如果一下子涨到一百美金，担心战友们就不冷静了。 3，很多基金会买，买后拿着用作抵押，这就是可评估性升值的资产。基金还可以控制价格。希望不要落在这帮虎豹豺狼之手。上市后没有任何人可以控制价格，谁也影响不到价格。但共产党的基金有机会拿出几百亿几去砸和垄断。
 
+明天不论发生什么事情，战友们都要平心静气，如果是七哥的真战友，一定要休息好，未来的好日子还有很多。
 
+国内一对夫妻因被认为与七哥有关系被傅政华敲诈了很多年，现在傅被抓了，他们也被平反了。现在才知道他是我们的某个战友，他也投资了不少G系列，他把喜币放在女儿名下。当初在七哥非常艰难的时候，这战友出手帮忙，在他最难的时候，又因七哥而受牵连。他处理喜币的行为令七哥感动。喜币牵涉到千千万万个好人的命和心。喜币可以代表我们的善良、正义、能力，毫不怀疑喜币可以成为全地球的联储，不仅仅是新中国联邦人的！
 
-10月19日上午，房产公司Flair Builders高管肯特（J. Alan Kent）的单通道大型私人飞机MD-87从休斯敦行政机场起飞前往波士顿。然而，飞机在跑道尽头因没有达到起飞高度而撞到了机场围栏并起火。最后，飞机穿越了一条公路并坠毁在一片田野上。奇迹的是，所有21名乘客和机组人员都从被火球吞没的飞机残骸中安全逃生。据了解，只有一人背部受伤被送医救治。此事件创造了航空事故人员伤亡数据接近零的奇迹！
+很多人都醒来了，会用喜美元去交易，两人互相用喜美元付款，中间没有任何的税和费用，只有非常低的手续费，而且非常安全。
 
-![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/jetcrshhouston.jpg?itok=c3yrz1rP)图片来源：FOX
+喜联储的HPay快开始了，更厉害的是各种货币都可以，学会用喜联署的功能，就拥有了无界的金融系统，而且是合法和没有成本的。
 
-文贵先生创立并引领的爆料革命，一直在灭共和唤醒世界的道路上创造了目不暇接的奇迹。而今，中共的经济、政治、军事和社会等各方面都严重后院起火，这所“破船”就如这架MD-87私人飞机，无可避免地即将坠毁。但是，所有墙内跟随文贵先生的战友就是MD-87飞机上的乘客——他们将全部幸运逃生。事实上，新中国联邦就是MD-17飞机最后的坠毁地，中共必将被摧毁在爆料革命的战场上！
+战友们要到喜联储网站学会怎样去买卖喜币。有聪明的战友在美州开发房产的，喜美元还未上市就用喜美元卖了三、四套房子了。所以有聪明的脑子都是会富有的。这也是喜美元的魅力，它一定是无国界、自由、合法，几乎是最低成本的一个金融平台，这才是重点。
 
-（本文仅代表作者观点）
+明天世界会变了！现在七哥全力以赴香港、台湾、新疆、西藏和灭共的问题，喜币就交给战友们了！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/103102.png)
+***听写**：樂禧禧*
 
-参考阅读：
+***校对**：小雨*
 
-[“Miraculous”: All 21 Passengers Walk Away From Fiery Private Jet Crash Outside Houston](https://www.zerohedge.com/medical/miraculous-all-21-passengers-walk-away-fiery-private-jet-crash-outside-houston)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
 
 

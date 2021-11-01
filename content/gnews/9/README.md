@@ -2,33 +2,50 @@
 ---
 
 
-## G20峰会澳洲总理呼吁国际社会继续调查新冠病毒起源
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1631764/)
+## 飞机着火坠毁，21名乘客奇迹生还
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1631887/)
 
-#### 整理报道：月映万川
+作者：纽约香草山信息部 – 6zero4
 
-#### 编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan-30.jpg)**图片来源：ABCNews & Wikipedia**
-澳大利亚总理斯科特·莫里森不断呼吁国际社会对新冠病毒起源进行彻底调查，尽管这可能会让本已经很差的中澳关系雪上加霜。
 
-近日，在罗马召开的20国峰会会议上，澳洲总理重申，新冠病毒调查的目的不是要推卸相关责任，而是要确保未来如何避免大流行的发生。
 
-与此同时，莫里森总理也批评世界卫生组织，由于受到中共国的影响，在疫情初期应对过于迟缓。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-莫里森说，“我们需要一个能为世界提供更多保护，更强大，更独立和透明的世界卫生组织。”
 
-在大流行开始时，莫里森总理曾经呼吁组建独立调查团队对起源于武汉的全球大流行进行彻查。因此，澳大利亚也遭到中共国的报复，包括禁止进口澳大利亚产品。
 
-原文链接：[Scott Morrison repeats call for COVID origin in Wuhan, China, to be investigated (afr.com)](https://www.afr.com/politics/federal/g20-pm-repeats-call-for-pandemic-origin-to-be-investigated-20211030-p594m4)
+10月19日上午，房产公司Flair Builders高管肯特（J. Alan Kent）的单通道大型私人飞机MD-87从休斯敦行政机场起飞前往波士顿。然而，飞机在跑道尽头因没有达到起飞高度而撞到了机场围栏并起火。最后，飞机穿越了一条公路并坠毁在一片田野上。奇迹的是，所有21名乘客和机组人员都从被火球吞没的飞机残骸中安全逃生。据了解，只有一人背部受伤被送医救治。此事件创造了航空事故人员伤亡数据接近零的奇迹！
 
-发布：文泓
+![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/jetcrshhouston.jpg?itok=c3yrz1rP)图片来源：FOX
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+文贵先生创立并引领的爆料革命，一直在灭共和唤醒世界的道路上创造了目不暇接的奇迹。而今，中共的经济、政治、军事和社会等各方面都严重后院起火，这所“破船”就如这架MD-87私人飞机，无可避免地即将坠毁。但是，所有墙内跟随文贵先生的战友就是MD-87飞机上的乘客——他们将全部幸运逃生。事实上，新中国联邦就是MD-17飞机最后的坠毁地，中共必将被摧毁在爆料革命的战场上！
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+[“Miraculous”: All 21 Passengers Walk Away From Fiery Private Jet Crash Outside Houston](https://www.zerohedge.com/medical/miraculous-all-21-passengers-walk-away-fiery-private-jet-crash-outside-houston)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
  
 

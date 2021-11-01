@@ -2,34 +2,86 @@
 ---
 
 
-## 突发消息：白宫发言人 Psaki 检测出 COVID-19 呈阳性
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1631747/)
+## 郭文贵先生给国内战友的建议
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1631823/)
 
-翻译：Jenny Ball
+[https://gtv.org/video/id=617f21beadfd99590c31efcd](https://gtv.org/video/id=617f21beadfd99590c31efcd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-5.jpg)周日，白宫新闻秘书珍·帕萨基（ Jen Psaki ）的 COVID-19 检测呈阳性，成为公开披露感染了该病毒的最高级别的白宫官员。
+我唯一的一个个人观点建议
+Mi única sugerencia de opinión personal
 
-“虽然自周三以来我没有与总统或白宫工作人员的高级成员进行过密切接触——并且在最后一次接触后的四天里检测结果呈阴性——但出于充分的透明度，我公开了今天的阳性检测结果，”她在一份声明中说。 “我最后一次见到总统是在周二，当时我们坐在外面，相距六英尺多，戴着口罩。”
+你要慎重考虑
+Debes pensar con cuidado
 
-她在一份声明中说，在她的一名家庭成员对该病毒呈阳性反应后，普萨基周四选择不与拜登总统和其他工作人员一起前往欧洲。她最后一次在白宫与记者举行了新闻发布会。
+在中国国内的
+Dentro de China
 
-**Psaki****说她接种了疫苗并且症状轻微**。在测试呈阴性后，她将在隔离 10 天后重返工作岗位。
+你没有生存能力, 没有足够的钱
+Si no tienes capacidad para sobrevivir ni el suficiente dinero
 
-新闻秘书通常会定期与总统互动，这使得 Psaki 的阳性测试特别引人注目。拜登本月早些时候接受了他的 COVID-19 加强注射疫苗，但在 78 岁时，如果他感染了该病毒，他仍被认为是高危人群。
+你别出国, 出了国更惨
+No salgas del país porque será peor
 
-总统于周四前往欧洲。此后，他在罗马会见了教皇和 20 国集团领导人。他将于周一和周二参加在格拉斯哥举行的 COP26 气候峰会，然后返回华盛顿特区。
+外国没有钱是寸步难行
+Es difícil moverse sin dinero en países extranjeros
 
-白宫拒绝透露其内部的突破性 COVID-19 案件，除非个人选择公开或与总统直接接触。
+没有语言更难行
+Sin saber el idioma es aún más difícil
 
-其他披露阳性检测结果的高级政府官员包括：国土安全部部长亚历杭德罗·马约卡斯（Alejandro Mayorkas）和国务院发言人内德·普莱斯（Ned Price），他们都接种了疫苗。
+在国内就到农村, 中小城市活着去
+Si estás en China, vaya a vivir en zonas rurales o ciudades pequeñas y medianas
 
-**参考资料：**[newsbreak][White House’s Psaki tests positive for COVID-19](https://www.newsbreak.com/news/2420013910813/white-house-s-psaki-tests-positive-for-covid-19?s=web_push_b_m_breaking)
+唯一的是, 我强烈建议任何情况下别打疫苗
+Lo único que recomiendo encarecidamente es no que se vacunen bajo ninguna situación
 
-* * *
+别染上冠状病毒
+No te contagies del Covid-19
 
-*发布：信心的选择*
+备好伊维菌素, 地塞米松, 羟氯喹和锌
+Prepare ivermectina, dexametasona, hidroxicloroquina y zinc
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-2.jpeg)
+然后是青蒿素
+y luego es la artemisinina
+
+绝对伊维素是防病的, 是治病的
+La ivermectina es preventivo y curativo
+
+地塞米松是紧急控制你血氧的
+La dexametasona es una emergencia para controlar el oxígeno en la sangre
+
+青蒿素是打了疫苗以后解毒的
+La artemisinina desintoxica después de ser vacunada
+
+还有防止病毒的(作用)
+Y también tiene función de prevenir el virus
+
+怎么吃, 请大家一定买正确的药
+Cómo tomarlo, compre el medicamento correcto
+
+按医嘱吃
+Toma según las indicaciones del médico
+
+———————————————————
+
+**原视频网址**：[https://twitter.com/Se1y7CbLlJSeLVA/status/1452954306412355585](https://twitter.com/Se1y7CbLlJSeLVA/status/1452954306412355585)
+
+日期：10/31/2021
+原视频标题：
+Sugerencias dadas por el Sr. Wengui Guo para los compañeros luchadores de China
+原视频日期：10/24/2021
+任务编号：KC216（2690）
+视频时间段：0:00-0:58
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,198 +2,24 @@
 ---
 
 
-## 善用喜币喜联储代理权，让你成为永恒的罗斯柴尔德
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1631777/)
+## 速报：在野党联手展开激战 自民党确保“绝对稳定多数”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1631899/)
 
-[https://gtv.org/video/id=617ebba8adfd99590c31dca4](https://gtv.org/video/id=617ebba8adfd99590c31dca4)
+#### **作者：东京樱花团/文小白**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/photo_l.jpg)[图片来源](https://china.kyodonews.net/news/2021/11/6fe8af66dea1-4.html)
+日本第49届众议院选举10月31日投票，并于当天计票。自民党议席数虽然较发布公告前有所减少，但是实现了单独过半数，获得259个议席，与公明党合计的执政党议席数确保了“绝对稳定多数”，岸田政权得以持续。日本维新会获得41个议席，一跃成为众议院第三大党。
 
-如果你懂得喜联储这三字儿的时候
-Cuando entiendas estas tres palabras “Reserva Federal de Himalaya”
+立宪民主党、共产党等在野党实施携手共斗方针，推出统一候选人，与自民党展开激战。自民党的前干事长石原伸晃落选，现干事长甘利明和现任阁僚世博相若宫健嗣等在小选区接连失利。公明党较公告前增加3个议席，达到32个；国民民主党增加2个，获得11个议席；立宪民主党获得了96个议席；日本维新会从11个大幅增至41个议席；日本共产党持平获得10个议席；令和新选组确保3个议席；社民党保住了1个议席；“与NHK打官司党 因违反律师法第72条”未获议席；无党派获得12个议席。
 
-你在未来不用多
-En un futuro no muy lejano
+在小选举区落选、在比例代表区复活的自民党干事长甘利明向党干部表示有意辞去干事长职务。
 
-就3个月
-Solamente tres meses
+共同社截至11月1日凌晨3点汇总的小选区的推测投票率为55.95%，虽然较2017年上次选举增加约2个百分点，但很可能成为战后投票率第三低。19.49%的选民进行了提前投票。
 
-你会逐渐地知道喜联储
-Gradualmente, te darás cuenta que La Reserva Federal de Himalaya
+[信息来源](https://china.kyodonews.net/news/2021/11/6fe8af66dea1-4.html)
 
-喜联储现在是什么呢? 它还得有些钱
-¿Qué es La Reserva Federal de Himalaya en este momento? Él todavía necesita más dinero
-
-是要靠传统银行
-Debe depender de los bancos tradicionales
-
-因为你买喜币, 你都付的美元
-Porque compras monedas de Himalaya, debes pagarlo con el dólar
-
-付的日圆什么的
-O en yuan japonés
-
-当喜联储和喜币和喜美元增加流通以后
-Cuando se aumente la circulación del La Reserva Federal de Himalaya, su moneda y el dólar
-
-他自己就是一个银行和金融机构
-Él mismo será un banco y una institución financiera
-
-如果战友们都去使用喜美元, 喜币去交易支付
-Si los compañeros luchadores realizan transacciones mediante el dólar de Himalaya y su moneda
-
-互相间都去用的时候
-Cuando ambos se utilizan entre sí
-
-很快你会发现
-Pronto te darás cuenta
-
-全世界都到喜联储来开帐号
-Todo el mundo abrirá cuenta en La Reserva Federal de Himalaya
-
-而不是喜联储的, 咱们的战友们去到人家开帐号
-Y no es la propia reserva federal o que nuestros compañeros luchadores vayan a abrir las cuentas
-
-我们就废掉了过去(的游戏规则)
-De esta forma, eliminamos las reglas de juego del pasado
-
-就是从娘胎里长大
-Es como si crecemos en la barriga de nuestra madre
-
-你必须出来的时候有一个胎盘
-Debes tener placenta cuando salgas
-
-当你把这个剪断的时候
-Cuando la cortas
-
-你就是长大了
-Significa que ya creciste
-
-你可能会超过你的母胎
-Podrías sobrepasar al feto de tu madre
-
-你可能会超过世界
-Al mundo
-
-你可能会超过一切
-O a todo
-
-这就是战友们一定要善用喜美元
-Este es el por qué los compañeros luchadores deben hacer un buen uso al dólar de Himalaya
-
-善用喜币
-A la moneda de Himalaya
-
-而且战友们最核心的利益
-Y los intereses fundamentales de los compañeros luchadores
-
-是各农场和战友们未来所有的喜币的支付代理权
-Es el derecho de agencia de pago de la futura moneda de Himalaya de todos los compañeros luchadores de cada finca
-
-它真的可以让你成为巨大的有钱人
-Él realmente puede hacerte convertir en un rico
-
-就是当年JP摩根, 还有罗斯柴尔德
-Al igual como JP Morgan y Rothschild en aquel tiempo
-
-罗斯柴尔德当年
-Rothschild en aquel tiempo
-
-一个国家国王专门在欧洲借(钱)给人家战争
-El rey de un país le presta (dinero) especialmente a otros en Europa para la guerra
-
-你两家打仗, 我借你黄金
-Ustedes dos pelean y yo les presto el oro
-
-最后是罗斯柴尔德去了, 我来帮你来联系国家, 谁打仗借钱
-Finalmente, Rothschild fue y dijo, yo te ayudo a contactar con los países, quien tenga la guerra y pide prestado el dinero
-
-赌两边儿
-Apuesta dos lados
-
-最后这国王死了, 把黄金全委托给他支付
-Al final este rey murió y dejó a él para que se encargara del pago de oro
-
-就成立了罗斯柴尔德
-Y así fue que se estableció Rothschild
-
-今天的喜币就是这样
-Hoy la moneda de Himalaya es así
-
-当年的罗斯柴尔德
-El Rothschild de aquel año
-
-谁要想今天能代理好喜币的支付权
-Quien represente bien el derecho de pago de la moneda de Himalaya
-
-和在某地区的代理权, 你绝对是罗斯柴尔德
-Y la representación legal de algún sitio, eres absolutamente Rothschild
-
-而且是永恒的罗斯柴尔德
-Además, eres el eterno Rothschild
-
-你去好好看罗斯柴尔德的家族
-Vaya y vea bien la familia de Rothschild
-
-怎么后来生出3个儿子
-Cómo él luego tuvo tres hijos
-
-一个法国, 一个英国, 一个留在德国
-Uno en Francia, uno en Reino Unido y el otro se quedó en Alemania
-
-怎么把黄金成为世界上真正的货币
-Cómo hizo para que el oro se convirtiera en la moneda real de todo el mundo
-
-真正了控制全世界
-Tuvo el verdadero control de todo el mundo
-
-罗斯柴尔德到美国被JP摩根给干掉的时候
-Cuando Rothschild fue a EE. UU y fue eliminado por JP Morgan
-
-JP摩根就说
-JP Morgan dijo
-
-我要把你的所有的货币权在美国这块让我来拿走
-Voy a tomar todos los derechos monetarios que tienes aquí en EE. UU
-
-因为现在有股票
-Porque ahora hay acciones
-
-今天我们喜币和喜美元
-Hoy nuestra moneda y el dólar de Himalaya
-
-拥有一个股票和黄金连在一起的这么一个新的货币时代
-Tienen una nueva era de divisas en la que las acciones y el oro estén vinculados
-
-你拥有两个手
-Tu tienes dos manos
-
-两个时代的综合结构
-Es una estructura integral de las dos épocas
-
-如果你拥有代理权, 你就是最牛的
-Si obtienes la representación legal, serás el mejor
-
-———————————————————
-
-**原视频网址：**[** **https://twitter.com/se1y7cblljselva/status/1453191890417840135?s=24](https://twitter.com/se1y7cblljselva/status/1453191890417840135?s=24)
-
-日期：10/29/2021
-原视频标题：
-Tomar el buen uso de los derechos de representación legal de la moneda de Himalaya y su Reserva Federal para convertirlo en un eterno Rothschild
-原视频日期：10/27/2021
-任务编号：KC215(2689)
-视频时间段：0:00-2:18
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：东京樱花团 / 文小白*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

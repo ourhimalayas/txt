@@ -2,40 +2,25 @@
 ---
 
 
-## 杰森·米勒：佛州州长将成为2024总统大选中最具领导力候选人
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631720/)
+## 诡异：中共对布林肯警告不要在台海采取单边行动集体静默
+` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1631746/)
 
-作者：澳喜农场 – 在远方
+#### 加拿大多伦多枫叶农场 丁过
+![](https://assets.gnews.org/wp-content/uploads/2021/10/mobile01-6d825ed55fb211723145869b9aeabae5.jpg)来源：mobile01
+德国之声31日报道，在意大利罗马举办的20国集团峰会期间，美国国务卿布林肯同中共外长王毅举行了会谈。美国一位高官透露，会谈中布林肯以“最明确的措辞”警告王毅：美国坚决反对中国采取加剧台海紧张局势的行动。
 
+这是拜登政府上台以来，作为外交一把手的美国国务卿在正式外交场合对中共的最强硬表态，并被美方高官有意透露给媒体，说明美中双方的博弈正朝着深水区发展。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/333e1223af4235cedc8bd33bc94fa2f3.jpg)来源：环球网
+诡异的是，中共外交部官网及记者会在对本次会谈的回应中，只字不提布林肯的严厉警告，只说王毅如何教训布林肯。中共国所有的官方媒体及社交网站包括非常激进的环球时报，统统和中共外交部的口径高度一致，让翻墙即入刑的墙内民众误认为美国已经对中共臣服。
 
+布林肯的这个警告要是放在以前，早就在中共国炸开了锅，那么问题来了，现在的中共为什么如此隐忍和安静呢？可能的原因无非两个：一是双方迫于舆论和政敌压力，需要各自演戏予以化解，实际上是一种心照不宣的配合；二是中共真要对台湾动手了，在发起攻击前制造一种平和的假象，为成功突袭夺得先机。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+参考来源：
 
+[布林肯警告中国不要在台海采取单边行动](https://www.dw.com/zh/布林肯警告中国不要在台海采取单边行动/a-59678781)
 
+（文章仅代表作者观点，与GNEWS无关）
 
-10月30日，盖特首席执行官杰森·米勒先生接受News Max采访。
-
-主持人提到，佛罗里达州州长德桑提斯宣布，将就拜登政府的疫苗强制令提起诉讼，还会为全美各地失去工作的警察，每人提供5000美金搬家费，欢迎前往佛州工作。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-14.jpg)
-杰森·米勒先生称赞说，德桑提斯州长在这些事情上，已经展现出相当强的领导力。虽然他仍然希望川普总统在2024年继续竞选总统，而且他认为川普总统显然会遥遥领先。但是，如果出于某种原因川普总统不能参选，德桑提斯州长将会是总统大选中绝对的领跑者。
-
-他很确定德桑提斯州长，在面对民主的真谛时所展现出的反对大政府的领导力，尤其是在过去几年中，州长的表现非常优秀。
-
-参考链接：[杰森·米勒：佛州州长将成为2024总统大选中最具领导力候选人](https://gettr.com/post/pfp2r74147)
-
-![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

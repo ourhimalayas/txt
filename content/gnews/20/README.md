@@ -2,42 +2,22 @@
 ---
 
 
-## 新中国联邦的三大优势：有信仰、有人才、有货币
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631719/)
+## 加拿大旅行用疫苗护照于10月30日正式生效
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1631740/)
 
-作者：香草山农场 – 恩永存
+撰稿：Spirit 校对编辑：硫酸羟氯喹64
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-5-edited.png)图片来源：CBC
 
 
+据《加拿大广播公司新闻》10月29日报道，联邦政府于当天宣布了新的针对外国公民有关“新冠病毒疫苗”接种豁免授权的规定和必须接种该疫苗的宽限期，以及次日生效的国内旅行者“疫苗护照”细节。
 
-2021年10月31日，郭文贵先生在盖特中说，喜币不是用来炒的，它是一个系统，是喜联储的组成部分，要充分了解这个系统，使用这个系统。这个系统是干净合法的，安全可靠的。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-21.jpg)
-这个系统有三大优势：首先注册者可信。拥有喜账户的人都是经过严格的KYC，是可靠的投资人，众多信用投资者将乐意与他们合作，其信用价值不可估量。
+该规定指出：从10月30日凌晨3点开始，所有加拿大12岁及以上旅行者在登上该国的飞机、火车或游轮之前都必须完全接种“新冠病毒疫苗”。同时，对那些即使是已完全接种了该疫苗的旅客，在返回加拿大时也必须出示“新冠病毒”测试的阴性证明。
 
-其次，喜币可靠。喜币是众多虚拟币中唯一锚定黄金、去中心化、自由流通、中心化管理的币种，它的价值得到保证，随时可以转成喜美元，许多人将以拥有喜币为荣。
+目前，加拿大联邦政府正面临放弃这项规定的巨大压力，并被该国各界强烈要求取消对“已完全接种旅客进行昂贵病毒测试”的规定。此外，从11月30日起，未接种者将没有资格在国内使用公共交通工具旅行，但有限的豁免除外。
 
-最后，喜支付好用。拥有喜账户电子钱包的人，将可以随时随地互相秒转，不再受地方银行的限制。如今喜美元已有第一家商户开通了支付功能，喜币上市之后，开通喜支付的商家数量将超出想象。
+[原文链接：](https://www.cbc.ca/news/politics/transport-canada-announcement-vaccine-requirements-travel-1.6229829)
 
-新中国联邦人正在打开喜联储大门，喜迎八方客人。
-
-参考链接：[新中国联邦的三大优势：有信仰、有人才、有货币](https://gettr.com/post/pfoegla019)
-
-![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：正义的小新
-编辑：飞虹
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

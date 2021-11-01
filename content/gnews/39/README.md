@@ -2,30 +2,36 @@
 ---
 
 
-## “IPAC”罗马会议呼吁G20强硬对抗中共
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1631483/)
+## 佛州州长德桑蒂斯抨击拜登需特别会议阻止疫苗强制执行
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1631542/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+据《新闻大全》2021 年 10 月 30 日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-27.png)图片来自视频截图
+佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）周五对总统乔·拜登（Joe Biden）提出批评，他呼吁立法者在11月15日召开特别会议，讨论防止企业强制实施疫苗的立法。
 
-10月29日，由全球200多名国会议员组成的“对华政策跨国议会联盟”（IPAC）在罗马举行会议，要求20国集团（G20）将人权纳入议事日程，对中共采取更强硬立场。
+德桑蒂斯在处理冠状病毒大流行的问题上，几乎经常与拜登政府意见相悖。德桑蒂斯说，总统试图迫使大型企业和政府承包商强制接种疫苗是越权行为。
 
-据大纪元报道，在会议上，IPAC共同创办人、英国前保守党党魁邓肯·史密斯（Iain Duncan Smith）说，IPAC将呼吁各界关注“中国共产党对民主、人权和法治的系统性冲击”。
+**[州长的公告说](https://www.flgov.com/wp-content/uploads/2021/10/10.29.21-Proc.pdf)**：“ 拜登政府已采取或威胁采取非同寻常的努力，强迫那些因健康、怀孕、宗教信仰（包括真诚的道德或伦理信仰）和先前感染而不愿接受疫苗的美国人注射COVID疫苗”。
 
-他指出，冷战结束以来，还没有哪一个政权侵害人权的程度超越中共当局。有幸生活在自由世界的政治人物，往往误以为可与集权政府“讲道理”，但事实正好相反。“我们将在罗马提醒民主国家，他们有责任维护基于规则的国际秩序，这些规则是我们帮助形成的，现在正受到来自北京的威胁。”
+着眼于 2024 年总统竞选的德桑蒂斯对白宫和佛罗里达州地方政府的疫苗规定和其他大流行限制提出了严厉批评。
 
-“真正的领导力意味着应对这些挑战，而不是假装它们不存在”，邓肯·史密斯说，“本届G20必须成为一个转折点，中共（问题）必须放在议程的首位。”
-![](https://assets.gnews.org/wp-content/uploads/2021/10/id13340228-GettyImages-1236160573-600x400-1.jpg)Uyghur human rights activist Rahima Mahmut (L) and Hong Kong activist and politician, chairman of Demosisto political party, Nathan Law , stand by a replica of the “Pillar of Shame” (C), a statue commemorating the 1989 Tiananmen Square Massacre, during a demonstration on October 27, 2021 outside the Chinese embassy in Rome, against the “Chinese governments dismantling of Hong Kongs democracy and autonomy” ahead of the G20 World Leaders Summit in Rome. (Photo by Andreas SOLARO / AFP) (Photo by ANDREAS SOLARO/AFP via Getty Images)
-比利时绿党议员科戈拉蒂（Samuel Cogolati）表示，当中共政权几乎每天入侵台湾空域，在维吾尔地区犯下暴行，并瓦解了香港的自由和自治时，我们不能继续与其“一切照旧”（business as usual）。他说：“在这次G20会议上，我们需要看到民主国家找到迄今为止一直缺乏的勇气和领导力。”
+德桑蒂斯说：“强迫美国人接种疫苗将进一步加深使人们不信任政府和美国企业。”
 
-据悉，此次罗马会议是IPAC自2020年6月成立以来首次面对面会议。出席会议的有西藏流亡政府最高行政领导人（司政）边巴次仁（Penpa Tsering）、流亡伦敦的前香港立法会议员罗冠聪、世界维吾尔代表大会伦敦负责人马赫穆特（Rahima Mahmut）、英国前保守党党魁邓肯-史密斯（Iain Duncan Smith，港译施志安）、比利时绿党议员科戈拉蒂（Samuel Cogolati）、欧洲议会议员莱克斯曼（Miriam Lexmann） 、立陶宛社民党议员萨卡利埃内（Dovilė Šakalienė）、日本代表山尾志樱里、法国参议员安德烈·加托林（Andre Gattolin）、乌干达议员艾克罗（Lucy Akello）等。
+公告说：“不顾父母的反对而对健康的学童强行戴口罩和进行不必要的隔离，侵犯了父母为孩子做出医疗保健和教育决定的能力，并损害了佛罗里达学童接受他们应得的优质教育的能力。”
 
-*参考链接：*
+周四，德桑蒂斯宣布就白宫对联邦承包商的疫苗强制执行提起诉讼。 他的政府还对当地学校董事会进行了罚款，这些董事会违反了州政府禁止在课堂上戴口罩的规定，并扣留了接受联邦拨款的地区资金，以减轻州政府的罚款。
 
-[中共破壞人權法治 IPAC促G20強硬應對](https://www.epochtimes.com/b5/21/10/30/n13340199.htm)
+特别会议还要求立法者澄清，当地学区不得强制要求学生戴口罩，而是将选择权留给家长。会议将于 11 月 19 日结束。
 
-* * *
+参议院议长威尔顿·辛普森(Wilton Simpson)和众议院议长克里斯·斯普洛尔斯(Chris Sprowls)发表联合声明，支持德桑蒂斯。
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+他们说：“在过去两年里，佛罗里达人目睹了我们在其他州的朋友和亲戚的自由一次一个被剥夺。拜登政府在全国范围内强制实施非法和违宪的疫苗接种授权，剥夺了美国人民的工作尊严，我们不会袖手旁观。”
+
+许多其他州正在考虑反授权法案。德克萨斯州共和党州长格雷格·阿伯特（Greg Abbott）最近发布了一项行政命令，禁止任何实体要求接种疫苗。
+
+原文链接：[https://www.newsmax.com/us/desantis-florida-vaccine-mandates-special/2021/10/29/id/1042583/](https://www.newsmax.com/us/desantis-florida-vaccine-mandates-special/2021/10/29/id/1042583/)
+
+翻译：飞利普 |校对：烟波浩淼|编辑+发布：黎明的光芒
 
  
 

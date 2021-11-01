@@ -2,24 +2,38 @@
 ---
 
 
-## 香港实施【电影审查法】影视辉煌恐难再现
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1631699/)
+## 杰森·米勒：疫苗强制令导致美国社会分裂
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631721/)
 
-采编：文莱     编译撰稿：文明(添草灭共)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-4.png)图片来源：rebelnews
+作者：澳喜农场 – 在远方
 
 
-据加拿大自媒体【反叛新闻】10月29日报道，香港立法会当天在没有反对派投票的情况下通过了【电影审查法】，并规定：任何影片只要涉嫌”认可、支持、美化、鼓励和煽动可能危及国家安全的活动”，都将被撤销其发行许可证。 而违反该法则将被判处最高三年的监禁，并面临最高100万港元的罚款。
 
-路透社对此发表评论称：香港曾是亚洲电影之都，涌现出多位受欢迎的国际巨星。90年代早、中期港产影片成为当时该国际大都市形象的窗口。由于是纯商业运作，制片者可自由表达其艺术创新并获得成功，而不必向当局卑躬屈膝。如今施行该法，标志着香港已彻底丧失了其最后的言论自由。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
 
-* * *
 
-校对编辑，发稿：硫酸羟氯喹64
 
-[原文链接：](https://www.rebelnews.com/hong_kong_censorship_law_bans_films_that_might_endanger_national_security)
+目前，佛罗里达州的中共病毒感染率，已经达到全美国最低，德克萨斯州的感染率，也低于许多民主党执政的蓝州。而这两个州对拜登政府的疫苗强制令反抗最为激烈。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture5-4.jpg)
+盖特CEO杰森.米勒先生10月30日接受Newsmax采访时说，很多防疫措施，在科学上都讲不通，尤其是口罩强制令、疫苗强制令，和疫苗护照等措施。在纽约，没有疫苗卡甚至不能去买汉堡，这实在太荒谬了。人们正在被迫搬往其他地区，并非是他们喜欢那里的气候或是某些工作。如今人们在全国各地搬家，就是为了远离政府。
 
+米勒先生认为，这是美国历史上民众第一次出现这样的自我选择。对美国而言，这是一种令人不安的趋势。他认为民主党错误的政策，让纽约和西雅图等城市，因为失去不愿强制接种疫苗的警力，而陷入混乱。这是迫使美国分裂为两个不同社会的迹象，将对蓝领工人造成伤害，也会对那些需要到实际工作场合去工作的人，造成伤害。
+
+参考链接：[杰森·米勒：疫苗强制令导致美国社会分裂](https://gettr.com/post/pfp2r74147)
+
+![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
