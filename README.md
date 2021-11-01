@@ -15,98 +15,98 @@
 
 ---
 
-### [视频| 喜币上市&#8211;战友的心愿及祝福](/content/gnews/1/README.md)
+### [喜币上市11.1.11:11 前国务卿蓬佩奥将要参选下届美国总统](/content/gnews/1/README.md)
+ ` 秘密翻译组-原创组`
+
+### [喜币上市 (11/1/2021)纳瓦罗新书证实郭文贵病毒情报促成川普总统发出中共国旅行禁令](/content/gnews/2/README.md)
+ ` 秘密翻译组-原创组`
+
+### [视频| 喜币上市&#8211;战友的心愿及祝福](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [中共继续大幅削减国际航班，闭关锁国不断升级](/content/gnews/2/README.md)
+### [中共继续大幅削减国际航班，闭关锁国不断升级](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际要闻汇编 11月1日](/content/gnews/3/README.md)
+### [国际要闻汇编 11月1日](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [盘点各党派议席 自民党在首都圈占67%](/content/gnews/4/README.md)
+### [盘点各党派议席 自民党在首都圈占67%](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本众院选举快讯：河野太郎获21万票创众院选举得票纪录](/content/gnews/5/README.md)
+### [日本众院选举快讯：河野太郎获21万票创众院选举得票纪录](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭先生预测喜币上市](/content/gnews/6/README.md)
+### [郭先生预测喜币上市](/content/gnews/8/README.md)
  ` 秘密翻译组-原创组`
 
-### [日本要闻汇编 11月1日](/content/gnews/7/README.md)
+### [日本要闻汇编 11月1日](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [百态人生——蒸花卷](/content/gnews/8/README.md)
+### [百态人生——蒸花卷](/content/gnews/10/README.md)
  ` 纽约香草山MOS03`
 
-### [DC大中华时事：中共印发粮食节约行动方案](/content/gnews/9/README.md)
+### [DC大中华时事：中共印发粮食节约行动方案](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [天下一家](/content/gnews/10/README.md)
+### [天下一家](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【樱花宅急便】步步为营的宰割](/content/gnews/11/README.md)
+### [【樱花宅急便】步步为营的宰割](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [全球芯片短缺状况日趋恶化，或将持续到2023年底](/content/gnews/12/README.md)
+### [全球芯片短缺状况日趋恶化，或将持续到2023年底](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [病毒和疫苗能够侵入人体DNA](/content/gnews/13/README.md)
+### [病毒和疫苗能够侵入人体DNA](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [六中全会召开在即 北京继续借疫情加强控制](/content/gnews/14/README.md)
+### [六中全会召开在即 北京继续借疫情加强控制](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [必看 ！全球34位英雄医生专家警告疫苗危险（5）](/content/gnews/15/README.md)
+### [必看 ！全球34位英雄医生专家警告疫苗危险（5）](/content/gnews/17/README.md)
  ` 澳喜农场`
 
-### [疫苗受害者讲述疫苗副作用](/content/gnews/16/README.md)
+### [疫苗受害者讲述疫苗副作用](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [伊维菌素治疗新冠病毒有效，疫苗有副作用](/content/gnews/17/README.md)
+### [伊维菌素治疗新冠病毒有效，疫苗有副作用](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [Facebook 对针对儿童的疫苗信息实施更严格的审查](/content/gnews/18/README.md)
+### [Facebook 对针对儿童的疫苗信息实施更严格的审查](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [喜币上市11.1.11:11 《H-Coin to the Moon》掀开喜币上市庆典的篇章](/content/gnews/19/README.md)
+### [喜币上市11.1.11:11 《H-Coin to the Moon》掀开喜币上市庆典的篇章](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [接种过疫苗的人可能面临所谓突破性感染的风险](/content/gnews/20/README.md)
+### [接种过疫苗的人可能面临所谓突破性感染的风险](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [坎特球员：耐克利益为先，无视中共国人权问题](/content/gnews/21/README.md)
+### [坎特球员：耐克利益为先，无视中共国人权问题](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：中共国开始对 3至11岁儿童打毒针](/content/gnews/22/README.md)
+### [秘翻在线：中共国开始对 3至11岁儿童打毒针](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [联盟工作汇报文字版摘要2021.10.31](/content/gnews/23/README.md)
+### [联盟工作汇报文字版摘要2021.10.31](/content/gnews/25/README.md)
  ` 纽约香草山MOS02`
 
-### [王毅谭德塞在罗马唱双簧，继续推进全球疫苗强制行动](/content/gnews/24/README.md)
+### [王毅谭德塞在罗马唱双簧，继续推进全球疫苗强制行动](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [路易斯安那州上诉法院禁止本州医院解雇未接种疫苗的雇员](/content/gnews/25/README.md)
+### [路易斯安那州上诉法院禁止本州医院解雇未接种疫苗的雇员](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [习近平G20会议提出全球疫苗合作行动倡议](/content/gnews/26/README.md)
+### [习近平G20会议提出全球疫苗合作行动倡议](/content/gnews/28/README.md)
  ` 儒为`
 
-### [中共国本土疫情延烧 上海迪士尼关闭](/content/gnews/27/README.md)
+### [中共国本土疫情延烧 上海迪士尼关闭](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [塔克：所谓的COVID疫苗正在慢慢地杀死人](/content/gnews/28/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [感谢您！对中共百年掀锅盖式体恤民情说不的郭文贵先生](/content/gnews/29/README.md)
+### [感谢您！对中共百年掀锅盖式体恤民情说不的郭文贵先生](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [千金难买喜币](/content/gnews/30/README.md)
+### [千金难买喜币](/content/gnews/31/README.md)
  ` 银河勇气之星`
-
-### [前中情局官员：中共正在发动全社会之力窃取美国](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [秘翻在线：格芯前景无限 芯片供不应求](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`

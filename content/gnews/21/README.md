@@ -2,50 +2,76 @@
 ---
 
 
-## 坎特球员：耐克利益为先，无视中共国人权问题
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1632737/)
+## 喜币上市11.1.11:11 《H-Coin to the Moon》掀开喜币上市庆典的篇章
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1632759/)
 
-**简评：**
+撰稿：Shifter
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-01-at-6.26.52-AM.png)图片来源：GETTR & GTV
+2021年11月1日格林威治时间早晨9点52分，战友威廉王创作的《H-Coin to the Moon》掀开格林威治时间（GMT）2021年11月1日11时11分庆祝喜马拉雅币上市的序幕。
 
-耐克公司在美国支持黑名贵，为少数族裔发声，也为其他的社会不公大声疾呼。但在中共国的问题上，耐克沉默不语，完全忽视了中共国存在着严重的强迫劳动和种族灭绝。耐克和全球很多知名品牌享受着中共国劳工在强迫劳动下产生的利益，没有计划和时限终结这一切，与中共国的强制劳工公开切割。坎特球员喊话耐克的老板亲自去中共国的奴隶集中营，感受一下奴工们的生活。耐克必须停止伪善，废除现代奴隶制。
+自由多么熟悉的字眼
+Freedom sounds familiar to me
 
+缺不知不觉理我越来越远
+But unknowingly getting far away from me
 
+曾经那个意气风华的少年
+The man with charms and energy only exists in the past
 
-**视频字幕：**
+为里生成只能品名挣钱
+Working hard desperately to only fight for living
 
-**埃内斯坎特：**亲爱的耐克，你们口口声声说，你们给社区带来了正面影响。
+财富是他们画下的大饼
+Wealth is their rain check but always out of touch
 
-确实，在美国，耐克与黑命贵站在一起，与停止反亚裔仇恨站在一起。耐克与拉美社区站在一起，与性少数群体站在一起，还在美国其他社会不公上大声疾呼。
+虚幻背后发现全都是陷阱
+A beautiful illusion with full of traps behind
 
-但在中国问题上，耐克一直保持沉默。你们对中国警察的暴力执法视而不见。关于中国社会对性少数人群的歧视，你们不闻不问。关于中国少数民族受到的压迫，你们更是闭口不谈。
+各种经济暴雷
+All kinds of economical implosion
 
-你们不敢发声。是谁在中国生产你们的球鞋？你们知道吗？
+房价崩的稀碎
+Housing prices crashes to the hell
 
-中国有太多血汗工厂，比如新疆人被当作现代奴工驱使，此时此刻遍布全中国。目前有数百万新疆人被关押、贩卖，安排在集中营、监狱和工厂里强制劳动。
+抬起头 前路一片漆黑
 
-他们一直在监控之下被迫长时间工作，生存条件恶劣。他们还遭受政治再教育。他们没有言论自由，没有宗教自由，甚至不允许离开中国。
+Raise my head full of darkness covers the road ahead
+Welcome to the world to the new world
+Welcome to the world H-coin to the moon
+Welcome to the world to the new world
+Welcome to the world H-coin to the moon
 
-你们知道吗，几乎整个服装鞋业的上色都是由新疆奴工做的？很多全球知名品牌都不例外，当然也包括NBA最大赞助商之一，耐克。
+H-coin to the moon H-coin to the moon
 
-耐克声称他们的供应链上不允许强制劳动，但他们却不向我们证明这一承诺。他们没有公开与中共政府的强制劳工做公开切割。没有计划和时限终结这一切。
+安全 最前沿加密技术出手
+Security guarded by the most advanced encrypt technology
 
-他们没有公开承诺终止使用新疆奴工。別忘了，你们穿的每一双鞋，每一件T恤衫背后充满了泪水、压迫和血汗。
+让你的财富没人能夺走
+No one can take wealth away from you
 
-耐克的广告语是，just do it（想做就做吧）。然而，对于给你们生产球鞋，让你们赚钱的奴工，你们会做什么呢？
+稳定币 浮动币 设计天下无双
+Stable Coin Floating Coin Unparalleled design under the heaven
 
-我要给耐克的老板捎个话。不如我给咱们订几张机票，一起去中国？我们可以试着去那里的奴工集中营，你们自己好好看看。
+还有二十趴 黄金挂钩
+20% gold reserve attaches to the value
 
-勒布朗詹姆斯和麦克乔丹，欢迎你们也一起来。耐克必须行动，停止你们的伪善，废止现代奴隶制。
+摧毁 不停压榨你的机器
+Destroy the machine to suck you to dry
 
-*编辑：【英国伦敦喜庄园编辑部】*
+从此不再做金钱的奴隶
+Never be money slavers again
 
-*字幕：free20200604 |听写：云岭|翻译：Wade|PR：Roberts|简评/文字整理/编辑：胖丁| Page：小六月*
+喜联储的大门 永远敞开向你
+Himalaya Federal Reserve welcomes you forever
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+前途光明 就在喜币
+The brilliant future – Himalaya Coin
 
-[![](https://spark.adobe.com/page/6OoRXH0noKkvN/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/6OoRXH0noKkvN/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+Welcome to the world to the new world
+Welcome to the world H-coin to the moon
+
+来源链接：https://gettr.com/streaming/pfs1k7a90e
+
 
 
  

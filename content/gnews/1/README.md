@@ -2,36 +2,20 @@
 ---
 
 
-## 视频| 喜币上市&#8211;战友的心愿及祝福
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1632901/)
+## 喜币上市11.1.11:11 前国务卿蓬佩奥将要参选下届美国总统
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1632929/)
 
-制作：香草山视频部
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/AP_20014048344048-1068x712-1.jpg)图片来源：share.america.gov
+川普总统一着不慎，给自己带来了灭顶之灾，参选美国下届总统已经无望。在十一月1日“喜马拉雅币上市庆典”中，郭文贵先生说，前国务卿蓬佩奥将要参选下届美国总统。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+郭先生说，川普总统和蓬佩奥是有默契的，如一方参选美国总统，另一方将不参选。
 
+川普总统不幸落入中共SPAC陷阱，却为蓬佩奥先生带来了这次前所未有的机遇，相信他将改变这纷繁错乱的世界格局。迈克·蓬佩奥在2018-2021期间任美国国务卿，曾任美国陆军军官、堪萨斯州联邦众议员和中央情报局局长。
 
+参考链接：
 
-
-
-
-
-
-
-*发稿：雪梨*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+[喜马拉雅币上市庆典](https://gtv.org/broadcast/watch/617fb54b11d1862968feda54)
 
  
 
