@@ -2,30 +2,35 @@
 ---
 
 
-## 白宫新闻秘书普萨基感染中共病毒 已接种过疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1632061/)
+## 如果联合国财务公开，马斯克允诺赠款解决世界饥饿
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1632093/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-108.png)
-图片来自网络
+#### 整理报道：月映万川 
 
-《联合早报》11月1日消息，美国白宫新闻秘书普萨基星期天（10月31日）确诊感染中共病毒。
+#### 编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/10/习近平-2.jpeg)**图片来源：Republicworld.com**
+11月1日，世界首富埃隆·马斯克针对一位联合国的官员的说法提出了挑战。这位官员称，只要马斯克拿出一小部分财产，就能帮助世界解决饥饿问题。
 
-普萨基表示，她在确诊前最后一次见到总统拜登是在10月26日。据一名知情人士透露，拜登10月30日的病毒检测结果呈阴性。
+这位官员是联合国粮食食品项目计划署署长大卫·比斯利。上周他又一次重复了本月初他的推特里提到的，对于像马斯克这样的亿万富豪，“他们需要挺身而出，只要一次就好”。
 
-《路透社》的报道称，现年42岁的普萨基表示，26日她是在户外见到拜登，当时两人都坐着，她戴着口罩，与拜登的距离超过6英尺（约1.8米）。
+大卫先生不断强调，“60亿美元能够拯救4.2千万即将饿死的人口”。
 
-普萨基证实自己已完成了中共病毒疫苗接种。她还表示，她有轻微症状。
+马斯克在自己的推特指出，如果世界粮食计划署“能够做出一个准确计划来使用这60亿美元解决世界饥饿问题，我现在就卖掉特斯拉的股票去行动……但是，联合国粮食计划署的支出计划必须要有公开的账目，并保证大众的知情权”。
 
-此外，普萨基还补充说，她没有跟随拜登前往罗马和格拉斯哥，是因为她的一名家庭成员感染了中共病毒。她从10月27日开始自我隔离，并反复得到阴性检测结果。直到星期天，她的检测结果才呈阳性。
+60亿美元只是目前马斯克个人净资产的一小部分。他的个人资产已经达到3110亿美金。而仅仅在10月29日这一天，他的个人净资产就增加了93亿美元。
 
-普萨基还表示，她将在完成第10天隔离并取得阴性检测结果后，返回工作岗位。
+目前，这位联合国世界粮食计划署官员尚未回应。
 
-已完成疫苗接种的白宫新闻秘书仍然感染了中共病毒，这是疫苗无用的最有力例证之一，也是对白宫强推疫苗强制令的最大讽刺。
+新闻链接：[Elon Musk tweets that he’ll donate $US6 billion to end world hunger, if the United Nations’ World Food Program can provide ‘open source accounting’ to show public precisely how the money is spent (afr.com)](https://www.afr.com/world/north-america/elon-musk-says-he-ll-donate-8b-to-end-world-hunger-on-one-condition-20211101-p594tf)
 
-注：本文仅代表作者观点
+发布：文泓
 
-**新闻链接：**[https://www.zaobao.com/realtime/world/story20211101-1209042](https://www.zaobao.com/realtime/world/story20211101-1209042)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
