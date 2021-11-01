@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/1/2021 7:59 PM (UTC)`
+
+11/1/2021 【HCoin To the Moon Celebration】Peter Navarro’s book “In Trump Time” confirms the critical intelligence from Miles Guo on the CCP virus. The book is approved by the National Security Council. US Congress will request declassification of related documents on the CCP bioweapon.<br/><br/>11/1/2021【HCoin To the Moon 庆典】纳瓦罗新书《川普时间》证明郭文贵先生提供了中共病毒的关键情报。该书被美国国家安全委员会批准。美国会未来会要求解密关于中共生物武器的机密文件。
+![img](https://media.gettr.com/group35/getter/2021/11/01/19/59/9c838b65-bfe6-0b6f-daf8-ef130f91dc13/out.jpg)
+
+---
+
 `@miles 11/1/2021 5:34 PM (UTC)`
 
 11/1/2021 [HCoin To the Moon Celebration]：The Chinese Communist Party’s so-called senior cadres always pretend they know everything by brainwashing others and crashing others’ confidence to achieve their ultimate goal to fool and cheat their own people<br/><br/>11/1/2021【HCoin To the Moon 庆典】： 中共所谓的领导在外都装神弄鬼，利用洗脑和愚民政策欺骗老百姓！
@@ -298,13 +305,6 @@ CNN：蔡英文首次公开承认美国军队正在台湾训练台湾部队<br/>
 
 <br/>10月28日：这才是真正的赚钱的机会……
 ![img](https://media.gettr.com/group34/getter/2021/10/28/15/51/8aa1b869-9a0d-3a2b-a4ec-1ab73e31df79/out.jpg)
-
----
-
-`@miles 10/28/2021 2:15 PM (UTC)`
-
-10月28号：尊敬的战友们好……当被欺骗统治了几十年的灵魂和生活。去面对真相的时候．是无法适应的，这是悲剧，这也是我们中国人过去七十年的悲哀，新世界的到来．将改变全地球的所有的这一切！
-![img](https://media.gettr.com/group11/getter/2021/10/28/14/15/9a72dd2d-37e1-110a-6322-3c3ecbe8b4db/out.jpg)
 
 ---
 
