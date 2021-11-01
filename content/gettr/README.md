@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/1/2021 8:22 PM (UTC)`
+
+11/1/2021 【HCoin To the Moon Celebration】With our own free wealth, we then have the power and the voice to protect ourselves and families, this is the meaning of the New Federal State of China<br/><br/>11/1/2021【HCoin To the Moon 庆典】我们拥有了自己的自由财富，才拥有了保护自己和家人的力量和话语权，这就是新中国联邦的意义
+![img](https://media.gettr.com/group14/getter/2021/11/01/20/22/44ca31bf-2088-fafd-3224-dcba23d4b187/out.jpg)
+
+---
+
 `@miles 11/1/2021 7:59 PM (UTC)`
 
 11/1/2021 【HCoin To the Moon Celebration】Peter Navarro’s book “In Trump Time” confirms the critical intelligence from Miles Guo on the CCP virus. The book is approved by the National Security Council. US Congress will request declassification of related documents on the CCP bioweapon.<br/><br/>11/1/2021【HCoin To the Moon 庆典】纳瓦罗新书《川普时间》证明郭文贵先生提供了中共病毒的关键情报。该书被美国国家安全委员会批准。美国会未来会要求解密关于中共生物武器的机密文件。
@@ -298,13 +305,6 @@ CNN：蔡英文首次公开承认美国军队正在台湾训练台湾部队<br/>
 
 10/28/2021 Miles Guo’s GETTR: Global financial sector and MSM didn’t buy the story of that SPAC; on the contrary, the GlobalFoundries (Nasdaq: GFS) receives positive reaction on the capital market, even said so, most of the listing company’s profits were taken away by underwriters and Lao Baixing or deplorables have no way to participate in its pre-IPO financing<br/><br/>10/28/2021 七哥盖特：世界金融圈和主流媒体对SPAC反应冷淡；而今天NASDAQ上市的格芯公司(Nasdaq: GFS)受到热捧，但公司上市的主要利润都被华尔街投行拿走了，根本没草根们什么事儿<br/>
 ![img](https://media.gettr.com/group6/getter/2021/10/28/23/01/7d61137e-b7b5-0cd9-9454-0b325d142f9b/out.jpg)
-
----
-
-`@miles 10/28/2021 3:51 PM (UTC)`
-
-<br/>10月28日：这才是真正的赚钱的机会……
-![img](https://media.gettr.com/group34/getter/2021/10/28/15/51/8aa1b869-9a0d-3a2b-a4ec-1ab73e31df79/out.jpg)
 
 ---
 

@@ -2,23 +2,38 @@
 ---
 
 
-## 喜币上市(11/1/2021) 新中国联邦人重新定义的忠诚
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1633383/)
+## 美国一高中未经家长同意擅自为学生注射中共病毒疫苗
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1633439/)
 
-撰稿：回响
-采图：香水百合
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-01-at-12.18.03-PM.jpeg)图片来源：GTV & GETTR
-11月1日 喜币上市，在文贵大直播特别节目中，新中国联邦创始人郭文贵先生特别分享了新中国联邦人对“忠诚”的全新定义。
+**作者：日本东京方舟农场 北极**
 
-郭先生请现场嘉宾充分地发表了各自对忠诚的理解，最后一一列举现实中家庭、朋友、投资与被投资者等等之间的各种关系，特别在代持关系中，特别在涉及喜联储和喜币方面，忠诚一定是一个重大的课题。
+据WVUE FOX 8近日报道，路易斯安那州的一所学校在未经家长同意的情况下，给一名16岁的高中生注射了中共病毒疫苗。该学生的母亲已就此发起诉讼。
 
-郭先生明确凡是“忠”都是骗人的。财富、人格、政治上都必须去中心化。重在保诚：诚即是信、诚即是法、诚即是德、诚即是行，诚以待人。
+这名高中生的母亲詹妮弗·拉万（Jennifer Ravain）诉说了事情的经过：她的儿子今年16岁，上周在“奥克斯纳健康”（Ochsner Health）公司为学校组织的流动疫苗接种活动中，接种了中共病毒疫苗，但事前并未取得家长的知情同意。
 
-新中国联邦人对忠诚的重新定义，在喜币上市这个伟大的日子里，是喜币重要的内涵价值之一。
+这位母亲表示，她对于发生此事感到非常沮丧，并要对此发起诉讼。
 
-参考链接：https://gtv.org/broadcast/watch/617fb54b11d1862968feda54
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-1.png)图片来源：https://www.fox8live.com/2021/10/23/ochsner-admits-vaccinating-kenner-student-without-permission-mothers-lawyer-threatens-lawsuit/
 
-校对发布：Shifter
+此案的代理律师谢里·马图林（Shelly Maturin）告诉WVUE-Fox 8记者，他将代表这对母子向法院提起诉讼，谴责学校未经监护人授权，擅自给未成年人接种疫苗的行为。该律师表示，除学校外，还将把“奥克斯纳健康”和学校董事会同时列为被告，并希望通过此事警醒路易斯安那州的所有公民。
+
+奥克斯纳健康公司的首席医疗官罗伯特·哈特博士（Dr. Robert Hart）在书面声明中承认，未经监护人许可，不应给未成年学生接种疫苗，他对此表示歉意。
+
+这所学校的校董事会发言人帕里斯·文内特（Paris Vinnett）也表示，将对此事进行彻底调查。
+
+*参考链接：*
+
+[Ochsner admits vaccinating Kenner student without permission; mother’s lawyer threatens lawsuit](https://www.fox8live.com/2021/10/23/ochsner-admits-vaccinating-kenner-student-without-permission-mothers-lawyer-threatens-lawsuit/)
+
+* * *
+
+
+```
+素材采编：北极
+编辑：青衣青青
+校对/发布：Ranting
+```
+
 
  
 
