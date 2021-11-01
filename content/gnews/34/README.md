@@ -2,10 +2,10 @@
 ---
 
 
-## 飞机着火坠毁，21名乘客奇迹生还
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1631887/)
+## 23岁地产公司新员工酒店身亡
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1631897/)
 
-作者：纽约香草山信息部 – 6zero4
+作者：纽约香草山商业部 – 秋末的落叶
 
 
 
@@ -13,17 +13,21 @@
 
 
 
-10月19日上午，房产公司Flair Builders高管肯特（J. Alan Kent）的单通道大型私人飞机MD-87从休斯敦行政机场起飞前往波士顿。然而，飞机在跑道尽头因没有达到起飞高度而撞到了机场围栏并起火。最后，飞机穿越了一条公路并坠毁在一片田野上。奇迹的是，所有21名乘客和机组人员都从被火球吞没的飞机残骸中安全逃生。据了解，只有一人背部受伤被送医救治。此事件创造了航空事故人员伤亡数据接近零的奇迹！
+当地时间2021年10月20日，根据大陆新浪微博猫头鹰视频账号消息称，大陆一名23岁的地产公司女性员工被已婚上司带去开房并死亡。尸检报告称，该女性因七氟烷中毒导致急性呼吸、循环功能障碍而死亡。
 
-![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/jetcrshhouston.jpg?itok=c3yrz1rP)图片来源：FOX
+![](https://assets.gnews.org/wp-content/uploads/2021/10/50.jpg)图片来源：新浪微博视频截图
 
-文贵先生创立并引领的爆料革命，一直在灭共和唤醒世界的道路上创造了目不暇接的奇迹。而今，中共的经济、政治、军事和社会等各方面都严重后院起火，这所“破船”就如这架MD-87私人飞机，无可避免地即将坠毁。但是，所有墙内跟随文贵先生的战友就是MD-87飞机上的乘客——他们将全部幸运逃生。事实上，新中国联邦就是MD-17飞机最后的坠毁地，中共必将被摧毁在爆料革命的战场上！
+根据视频新闻线索，该用人单位名为“梅州市敏捷建筑工程有限公司”，其法定代表人名叫王铭。死者为入职该公司不到一个月的女性员工。另外，死者的母亲是聋哑人，父亲也有残疾，且离家多年未归。
+
+但是，中共媒体的新闻并没有明确该事件调查全程的详细情况，也没有提及该事件的任何后续处理情况，且报道中的多处言论自相矛盾。
+
+事实上，中共墙内生活的民众，其弱势群体的意外死亡案例比比皆是，而且总是没有后续。
 
 （本文仅代表作者观点）
 
 参考阅读：
 
-[“Miraculous”: All 21 Passengers Walk Away From Fiery Private Jet Crash Outside Houston](https://www.zerohedge.com/medical/miraculous-all-21-passengers-walk-away-fiery-private-jet-crash-outside-houston)
+#23岁地产公司新员工酒店身亡#，凌晨3点被已婚男上司带去开房\_https://weibo.com/tv/show/1034:4602465610563685?from=old\_pc\_videoshow
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
 

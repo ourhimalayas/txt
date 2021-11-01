@@ -2,21 +2,48 @@
 ---
 
 
-## 大量俄罗斯部队向乌克兰边境集结引起美国和欧洲的警觉
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1632078/)
+## 澳洲首都地区的残疾人支持工作者需强制接种疫苗
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1632103/)
 
-撰稿：Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片3-17.png)
-图片来源：k.sina.cn
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-零对冲网10月31日报道，大批俄罗斯部队在乌克兰边境处集合，西方领导人正在发出警告，在顿巴斯和克里米亚可能会冲突。华盛顿邮报周六已报道，有一大批更新了的俄罗斯部队在乌克兰边境聚集，引起美欧西方领导人对俄罗斯西部地区的注意，因为此次装备和人员的调动并非常规行为。
-此次针对基辅的行动是自四月份以来再次因俄罗斯大规模调集兵力前往乌克兰边境的行为，而引起西方对俄罗斯的紧张。但克林姆林宫则声称这只是部队在本国境内的自由调动。
-华盛顿邮报的周末报告也承认此次部队调动的目的“尚不清楚”，只是说看起来不像是训练演习。
-乌克兰国家安全与国防委员会参谋长阿列克西·丹尼洛夫在一份报告中指出，俄罗斯与白俄罗斯等国家2021年联合军演后，就在乌克兰边境训练地区留下了装备和控制及通讯中心，估计约有8万到9万俄罗斯的军队派驻在乌克兰边境，还不包括来自克里米亚的上万个驻军。
-近几个月来，克里姆林宫指责乌克兰向东部亲俄罗斯的武装分离分子发起进攻，而乌克兰则指责俄罗斯政府偷偷向他们运送武器，挑起事端。普京和其他俄罗斯领导人一直警告乌克兰和北约不要越过俄罗斯关于北约不能东扩至乌克兰。
-普京去年夏天就指责西方，尤其美国正事实上控制乌克兰的高级领导人。他说：“我们不允许那片历史曾与我们密切相关的领土和其上的人民被用来反对俄罗斯。我想说他们这样做得破坏他们自己的国家。”
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/28677-iowa-governor-kim-reynolds-signs-law-allowing-workers-to-seek-medical-and-religious-exemptions-from-covid-19-vaccine-mandate-758x506-1.jpg)
 
-# **新闻来源： **[Large-Scale Russian Troop Movements Along Ukraine Border Spark Alarm In US & Europe](https://www.zerohedge.com/geopolitical/new-large-scale-russian-troop-movements-along-ukraine-border-spark-alarm-us-europe)
+
+
+图片来源：cybernistas.com
+
+
+#### 编译：小红帽
+
+澳大利亚堪培拉的残疾人支持工作者和社区老年护理人员将被强制接种中共病毒（COVID-19）疫苗。
+
+首都新发布的公共卫生令将要求该行业的工人在11月15日之前接种第一剂疫苗，并在12月13日之前完全接种疫苗。
+
+澳大利亚首都地区卫生部长雷切尔·斯蒂芬-史密斯（Rachel Stephen-Smith）表示，该决定是在与该部门进行了大量会谈之后做出的。
+
+最初提议该行业的工人需要在11月29日之前完全接种疫苗，但在协商后该任务被推迟了两周。
+
+“利益相关者认为澳大利亚首都地区的公共卫生方向应该与新南威尔士州采取的方法更加一致，”斯蒂芬·史密斯(Stephen Smith)女士说。
+
+澳大利亚首都地区的医护人员和教师已被要求全面接种疫苗。
+
+在首都，超过92%的符合条件的12岁及以上人口接种了疫苗。堪培拉人将从周一开始接种加强剂。
+
+六个多月前接种过两剂疫苗的人，现在可以在政府诊所接种辉瑞疫苗加强剂，无论他们之前接种了哪种品牌的疫苗。
+
+同时，免疫功能低下的堪培拉人开始接种疫苗加强剂。
+
+**参考新闻：**[Vaccine mandate for ACT disability workers (thenewdaily.com.au)](https://thenewdaily.com.au/news/state/act/2021/11/01/vaccine-mandate-for-act-disability-workers/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

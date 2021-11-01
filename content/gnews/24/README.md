@@ -2,32 +2,23 @@
 ---
 
 
-## GTV新闻访谈简报|2021年10月31日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1631974/)
+## 速报：自民党现任秘书长首次小选区落选 岸田首相考虑替换方案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1632012/)
 
-作者：香草山翻译部
+#### 作者：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-587.png)[图片来源](https://news.yahoo.co.jp/articles/8a1125cd07c69a0b4ba75bbbad80bbd8c76105b8/images/000)
+据日本雅虎新闻11月1日深夜消息，自民党现任干事长甘利明（神奈川县第13选区）在小选区落选， 虽然在比例代表区复活当选，但岸田首相已经在考虑替换干事长的方案。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+据党内官员称，现任干事长在小选区中落选还是第一次。 31日晚间甘利干事长在接受富士电视台采访时说，“我将进退交给岸田首相处理。”
 
+消息来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1031text-SC.png)
-校对：Stay文苑
+###### [**岸田首相、甘利幹事長を交代させる方向で検討…現職幹事長の小選挙区敗北は初**](https://news.yahoo.co.jp/articles/8a1125cd07c69a0b4ba75bbbad80bbd8c76105b8)
 
-编辑：Stay文苑
+*编辑：东京樱花团 / 文小白
+发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
 
-发稿：Stay文苑
-
-视频参看：[晚GTV新闻访谈](https://gtv.org/broadcast/watch/617f348f11d1862968fe7294)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-17.png)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://紐約香草山農場%20%20|%20GTV-香草山之聲%20紐約香草山農場GTV-%20|%20MOS%20TALK%20香草山訪談%20紐約香草山農場%20|%20GETTR%20紐約香草山農場%20｜YouTube%20歡迎加入香草山農場%20%20|%20Discord)
 
  
 

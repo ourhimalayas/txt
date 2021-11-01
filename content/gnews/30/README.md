@@ -2,10 +2,10 @@
 ---
 
 
-## 中共病毒爆发，导致东京市中心住房成本持续上涨
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1631911/)
+## 美国白宫新闻发言人接种疫苗后仍然感染中共病毒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1631923/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/11._1-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1101-scaled.jpg)
 *编辑：东京樱花团/简报小组*
 *发布：东京樱花团 / tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

@@ -2,49 +2,26 @@
 ---
 
 
-## 澳洲首都地区的残疾人支持工作者需强制接种疫苗
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1632103/)
+## 有声|格芯上市意义深远，未来潜力巨大
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1632155/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+配音：香草山美食部 – 玫瑰园
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/28677-iowa-governor-kim-reynolds-signs-law-allowing-workers-to-seek-medical-and-religious-exemptions-from-covid-19-vaccine-mandate-758x506-1.jpg)
+在10月29日的大直播中，郭文贵先生高度评价了昨天在美国上市的全球领先半导体代工厂格芯公司。 郭先生预言， T3技术将使格芯公司的业务范围扩大至全球芯片产业，因其是5G及AI时代的核心所在。同时，郭先生补充，一旦T3技术面世，中共在通信、太空和军事等领域的技术将彻底落后于世界。 文贵先生表示，芯片对世界的未来极其重要，它更和新中国联邦未来的金融系统、数字区块链技术息息相关。因为当我们有了芯片，我们就有了更多的话语权。为此，郭先生也提到，未来将增资格芯公司，成为其第三大股东。彼时，这个公司也将属于爆料革命的战友们。 文贵先生还指出，中共对文明的扼杀将导致其自身的失败，但也会给格芯带来难得的历史机遇。倘若中共胆敢侵犯台湾，格芯必将与中共抗衡。因此，格芯公司未来的潜力巨大，或将成为万亿级别的企业。 格芯上市，意义深远。
 
+文字版原文：[格芯上市意义深远，未来潜力巨大](https://gnews.org/zh-hans/1628548/)
 
+音频处理：喜山必胜Maverick
 
-图片来源：cybernistas.com
-
-
-#### 编译：小红帽
-
-澳大利亚堪培拉的残疾人支持工作者和社区老年护理人员将被强制接种中共病毒（COVID-19）疫苗。
-
-首都新发布的公共卫生令将要求该行业的工人在11月15日之前接种第一剂疫苗，并在12月13日之前完全接种疫苗。
-
-澳大利亚首都地区卫生部长雷切尔·斯蒂芬-史密斯（Rachel Stephen-Smith）表示，该决定是在与该部门进行了大量会谈之后做出的。
-
-最初提议该行业的工人需要在11月29日之前完全接种疫苗，但在协商后该任务被推迟了两周。
-
-“利益相关者认为澳大利亚首都地区的公共卫生方向应该与新南威尔士州采取的方法更加一致，”斯蒂芬·史密斯(Stephen Smith)女士说。
-
-澳大利亚首都地区的医护人员和教师已被要求全面接种疫苗。
-
-在首都，超过92%的符合条件的12岁及以上人口接种了疫苗。堪培拉人将从周一开始接种加强剂。
-
-六个多月前接种过两剂疫苗的人，现在可以在政府诊所接种辉瑞疫苗加强剂，无论他们之前接种了哪种品牌的疫苗。
-
-同时，免疫功能低下的堪培拉人开始接种疫苗加强剂。
-
-**参考新闻：**[Vaccine mandate for ACT disability workers (thenewdaily.com.au)](https://thenewdaily.com.au/news/state/act/2021/11/01/vaccine-mandate-for-act-disability-workers/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

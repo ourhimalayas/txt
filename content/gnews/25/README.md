@@ -2,54 +2,18 @@
 ---
 
 
-## GFashion CEO达舒什女士为设计师推荐书籍
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1631958/)
+## 韩总统文在寅在G20峰会首次表明韩国碳中和目标
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1632006/)
 
-作者：纽约香草山文艺部 – 宁文静
+韩国天池农场——追着曙光跑
 
+据韩国KBS新闻10月31日报道  韩国总统文在寅当天在罗马出席G20领导人第十六次峰会第二阶段会议并发表讲话。他指出，韩国为努力实现碳中和目标，正在积极实施减煤政策，计划到2050年在国内全面取消煤炭火力发电，实现净零排放。这也是文在寅借G20峰会首次面向国际社会表明韩国碳中和目标。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/WhatsApp-Image-2021-11-01-at-11.36.55.jpeg)
+文在寅表示，韩国已制定《碳中立基本法》，新设民官共同参与的总统直属机构“2050碳中和委员会”，敲定《2050碳中和方案》，还上调了2030国家自主贡献（NDC）目标。他强调，在其任期内韩国已经提前关闭了8座燃煤电厂，计划到年底再关2座，并中断了对海外煤炭发电提供公共金融援助。
 
+根据这次G20罗马峰会的主题“人、地球与繁荣”的日程安排，30日举行的第一阶段会议重点讨论“全球经济与全球卫生”议题，31日举行的第二和第三阶段会议分别聚焦“气候变化和环境”以及“可持续发展”等议题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
-
-
-
-10月22日，多阿·达舒什女士在盖特上分享了一篇由她本人撰写的文章，向GFashion旗下的设计师推荐了几本必读书。
-
-![](https://doaadashoush.com/wp-content/uploads/doaadashoush-com/sites/851/Doaa-Dashoush-GFASHION-5-1080x675.png)图片来源：DoaDashoush.net
-
-文中说到，时装设计师不只是坐下来勾勒设计，还要从书本的阅读中受益，例如，在《时装设计师生存指南》中，通过一些顶级设计师的见解，学习服装材料、管理、营销和生产以及 服装秀制作人的经验；《时尚素描本》一书中直观展示了设计思路，包括绘制姿势、身体形态、服装和配饰等；通过阅读《为时装业写作》，可以融合不同的时尚行业写作技巧。
-
-达舒什女士在时装行业具有丰富的经验，目前担任GFashion的总裁兼首席执行官。GFashion自运营以来，其不遵循传统的设计风格、奢侈舒适的面料、独特的制作工艺，得到了各界人士的青睐。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-[中国人大常委会三审家庭教育促进法草案 孩子犯事将惩戒家长](https://www.voachinese.com/amp/China-drafts-law-to-punish-parents-for-children-s-bad-behaviour-20211018/6275463.html)
-
-[New China Law Will Punish Parents For Children’s ‘Bad Behavior’](https://www.zerohedge.com/political/new-china-law-will-punish-parents-childrens-bad-behavior)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+[新闻参考来源](https://youtu.be/1jYE5BFuRE0)
 
  
 
