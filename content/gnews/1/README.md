@@ -2,22 +2,43 @@
 ---
 
 
-## 秘翻在线:大多数美国家长不知道中共是美国大学的主要金主之一
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1632241/)
+## 2021年11月1日 11:11正式开启中国共产党灭亡倒计时
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1632281/)
 
-#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2021/11/FC6vDfjXEA4vGq7_副本.jpg)
+爆料革命四年来，相信很多战友不懂金融、不懂投资，但是四年来我们很多战友一样也没落下，这些没落下包括因为追随爆料革命追随郭文贵先生被喝茶、被刑拘甚至有的战友至今仍身处囹圄；
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1.jpg)图片来源：CNN
-据《华盛顿自由灯塔》（Washington Free Beacon）10月30日报道，追踪校园问题的非营利组织Lawfare Project 今年9月进行的一项民意调查显示，大多数美国家长不知道中共、沙特阿拉伯和卡塔尔是美国大学的主要金主，并担心外国资金会影响他们孩子的课堂教学内容。大约70%的受访者表示，他们担心外国捐赠会影响教学和研究的重点。
+这些没落下也包括在路大脑袋爆雷前大家三年如一日甚至一期不落地看路德访谈以及在路大脑袋之前的鸡腿潘和英提；这些没落下也包括我们和郭先生一起见证了海航的神话破灭和王健的暴尸奔牛村；
 
-虽然外国对美国大学的广泛资助已经引起了国会和Lawfare Project等团体的警觉，但普通的美国父母却并没有意识到这个问题。有近60%的受访者表示他们不知道这些国家是美国大学的主要捐助者，这部分是因为美国学校没有公开披露其资金来源，而且在许多情况下试图隐藏其与中共国等敌对国家的关系。
+这些没落下也包括我们义无反顾地一次又一次地给法治基金捐款，哪怕数额是那么地微不足道，这些没落下也包括我们通过各种渠道汇出的G-TV的投资款，而这些投资款中也包括了汇给了九指妖提供的各种诈骗账户；这些没落下也包括我们义无反顾地为自己或者为家人和朋友办理的G-Clubs卡；
 
-这些国家将美国的学术系统视为其宣传工作的核心。中共国试图窃取最先进的研究成果。而卡塔尔已花费数十亿美元在至少28所美国大学开展反犹主义等宣传活动。美国校园里的反犹主义和反以色列态度日益增加，而外国资金帮助煽动了这些运动，这引起了人们对这些外国捐赠的担忧。
+为什么我们经历了这么多，我们都一样也没落下？因为我们知道法治基金是灭共基金，法治基金是重建基金，因为我们知道G-TV是灭共平台；哪怕我们至今对成为G-Clubs成员意味着什么都不甚了了，我们也依然没落下为自己或者为家人和朋友办理G-Clubs卡；因为灭共之路绝非坦途，所以我们也没有落下路德、九指妖、英提、蛇妖闫的欺骗和背叛；
 
-超过80%的受访者表示，国会应颁布立法，要求学校公开说明每一笔外国捐款的详情。中共国对美国大学的资助仍然是家长们最担心的问题，有70%的家长对北京在美国学校的存在表示担忧，65%和57%的人对沙特阿拉伯和卡塔尔表达了类似担忧。Lawfare Project的执行董事布鲁克·戈尔茨坦(Brooke Goldstein)说：“父母有权利知道外国政府在如何干预我们孩子的教育！”
+因为灭共之路绝非坦途，所以虽然历经恐吓、威胁、背叛以及亲人和朋友的误解，我们一直不离不弃相依相伴走到今天，格林威治时间2021年11月1日 11:11 AM正在向我们走来，嘀嗒作响的倒计时钟声即将开启一个新时代，四年前郭文贵先生开启爆料革命的那一刻已经敲响中国共产党和邪恶势力的丧钟，而四年后喜币上市的则使开启中国共产党和邪恶势力的灭亡倒计时。
 
-新闻来源：[Most American Parents Unaware China, Saudi Arabia, Qatar are Major Donors to US Universities](https://freebeacon.com/campus/most-american-parents-unaware-china-saudi-arabia-qatar-are-major-donors-to-us-universities/)
+四年前我们与敲响共产党丧钟的郭文贵先生邂逅，四年间我们不离不弃，在今天，我们的心跳与嘀嗒作响的时钟合拍，与这嘀嗒声相伴的是中国共产党灭亡前的咯吱咯吱倒塌的声音，你听到了吗？
+
+撰稿：喜马拉雅的肉夹馍
+
+审核：喜马拉雅的馍夹肉
+
+校对：Maarago
+
+（文章内容仅代表作者个人观点）
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

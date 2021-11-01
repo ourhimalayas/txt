@@ -2,49 +2,26 @@
 ---
 
 
-## 澳洲首都地区的残疾人支持工作者需强制接种疫苗
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1632103/)
+## 日本众院选举快讯：盘点日本众院选举中落选的大佬
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1632167/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：东京樱花团｜文小白
+![](https://lh3.googleusercontent.com/Ze6hf4aSiqkv2vqw8o4ol1QWhets5l6PDOjMSgamfwdXkQb-ZGfAR6rPAtgaITvMQ5g9ab678D9oujEBxWR4jxB94mEjbA6smH1EjabJLG4ZTs9w3-jZO5RwiPLU4SdfGC0oynR7)[*图片来源*](https://static.chunichi.co.jp/image/article/size1/3/f/4/4/3f44404808cf4688d6f3b966f2b1765a_1.jpg)
+据日本雅虎新闻11月1日消息，第49届日本众议院选举尘埃落定，自民党虽然没有达到既定目标，但实现了单独过半数，与公明党合计的执政党议席数确保保了“绝对稳定多数”。可是选举中自民党一众大佬的落选，也为自民党提出了新的课题。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/28677-iowa-governor-kim-reynolds-signs-law-allowing-workers-to-seek-medical-and-religious-exemptions-from-covid-19-vaccine-mandate-758x506-1.jpg)
+最突出的是，曾历任国土交通大臣、经济再生大臣的石原派领袖、前自民党干事长的石原信照在东京第8区败北，随后的比例选区复活战也以失败告终。
 
+其他落选的大佬有：
 
+谋求第 17 次当选的前自治大臣野田毅（熊本第2区）；前环境大臣原田义昭（福冈第5区）；前地方振兴大臣山本幸三（福冈第10区）。
 
-图片来源：cybernistas.com
+此外，在立宪民主党中，日本民主党执政时期的内阁官房长官、选举对策委员会委员长的平野博文（大阪第11区）和党的副代表辻元清美（大阪第10区）均落选失去众议院席位。
 
+**消息来源：**[**大物落選相次ぐ…自民・石原伸晃氏は比例復活もできず、立民では平野博文氏と辻元清美氏議席失う**](https://news.yahoo.co.jp/articles/dbbe7dd78b8d1a6c5301cf91bdf9a8709cff3f40)
 
-#### 编译：小红帽
-
-澳大利亚堪培拉的残疾人支持工作者和社区老年护理人员将被强制接种中共病毒（COVID-19）疫苗。
-
-首都新发布的公共卫生令将要求该行业的工人在11月15日之前接种第一剂疫苗，并在12月13日之前完全接种疫苗。
-
-澳大利亚首都地区卫生部长雷切尔·斯蒂芬-史密斯（Rachel Stephen-Smith）表示，该决定是在与该部门进行了大量会谈之后做出的。
-
-最初提议该行业的工人需要在11月29日之前完全接种疫苗，但在协商后该任务被推迟了两周。
-
-“利益相关者认为澳大利亚首都地区的公共卫生方向应该与新南威尔士州采取的方法更加一致，”斯蒂芬·史密斯(Stephen Smith)女士说。
-
-澳大利亚首都地区的医护人员和教师已被要求全面接种疫苗。
-
-在首都，超过92%的符合条件的12岁及以上人口接种了疫苗。堪培拉人将从周一开始接种加强剂。
-
-六个多月前接种过两剂疫苗的人，现在可以在政府诊所接种辉瑞疫苗加强剂，无论他们之前接种了哪种品牌的疫苗。
-
-同时，免疫功能低下的堪培拉人开始接种疫苗加强剂。
-
-**参考新闻：**[Vaccine mandate for ACT disability workers (thenewdaily.com.au)](https://thenewdaily.com.au/news/state/act/2021/11/01/vaccine-mandate-for-act-disability-workers/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团 / 文小白*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

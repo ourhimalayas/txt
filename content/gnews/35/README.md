@@ -2,86 +2,56 @@
 ---
 
 
-## 郭文贵先生给国内战友的建议
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1631823/)
+## 中共新法：孩子“犯事”，家长“连坐”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1631915/)
 
-[https://gtv.org/video/id=617f21beadfd99590c31efcd](https://gtv.org/video/id=617f21beadfd99590c31efcd)
+作者：纽约香草山信息部 – 6zero4
 
-我唯一的一个个人观点建议
-Mi única sugerencia de opinión personal
 
-你要慎重考虑
-Debes pensar con cuidado
 
-在中国国内的
-Dentro de China
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-你没有生存能力, 没有足够的钱
-Si no tienes capacidad para sobrevivir ni el suficiente dinero
 
-你别出国, 出了国更惨
-No salgas del país porque será peor
 
-外国没有钱是寸步难行
-Es difícil moverse sin dinero en países extranjeros
+10月19日至23日，中共“橡皮图章” 立法机构人大第13届常委会第31次会议在北京举行，当中，中共人大将对《家庭教育促进法》草案进行第三次审议。
 
-没有语言更难行
-Sin saber el idioma es aún más difícil
+![](https://gdb.voanews.com/1F314422-84CD-42CF-9079-D2FCE88F89C0_cx0_cy10_cw0_w1080_h608_s.jpg)图片来源：AP
 
-在国内就到农村, 中小城市活着去
-Si estás en China, vaya a vivir en zonas rurales o ciudades pequeñas y medianas
+据悉，该法规定，家长若不履行或不正确履行家庭教育责任，将承担相应的法律后果。此外，当中还规定，公、检、法一旦发现未成年人存在严重不良行为或犯罪行为，可强令家长接受家庭教育指导并对家长进行训诫，甚至可被视为“同犯”。
 
-唯一的是, 我强烈建议任何情况下别打疫苗
-Lo único que recomiendo encarecidamente es no que se vacunen bajo ninguna situación
+目前，中共正在打击他们定义的西方文化“精神鸦片”——网络游戏、 崇拜好莱坞明星、流行音乐等不推崇所谓“正确价值观”的“娘炮”行为。而今，他们又推出这个以“戒瘾”为核心的青少年文化全面整顿倡议，为当局处理那些鼓励孩子违背中共的“正确价值观”行为的家长提供法律依据。
 
-别染上冠状病毒
-No te contagies del Covid-19
+中共党员，尤其是其司法系统官员的严重不良行为和犯罪率都远远高于中共国的未成年人，那么，中共党魁及各部门领导是不是也需要对其下属的犯罪行为负责并连坐呢？
 
-备好伊维菌素, 地塞米松, 羟氯喹和锌
-Prepare ivermectina, dexametasona, hidroxicloroquina y zinc
+（本文仅代表作者观点）
 
-然后是青蒿素
-y luego es la artemisinina
+参考阅读：
 
-绝对伊维素是防病的, 是治病的
-La ivermectina es preventivo y curativo
+[中国人大常委会三审家庭教育促进法草案 孩子犯事将惩戒家长](https://www.voachinese.com/amp/China-drafts-law-to-punish-parents-for-children-s-bad-behaviour-20211018/6275463.html)
 
-地塞米松是紧急控制你血氧的
-La dexametasona es una emergencia para controlar el oxígeno en la sangre
+[New China Law Will Punish Parents For Children’s ‘Bad Behavior’](https://www.zerohedge.com/political/new-china-law-will-punish-parents-childrens-bad-behavior)
 
-青蒿素是打了疫苗以后解毒的
-La artemisinina desintoxica después de ser vacunada
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
 
-还有防止病毒的(作用)
-Y también tiene función de prevenir el virus
+***编辑/校对/发稿：Irene木木***
 
-怎么吃, 请大家一定买正确的药
-Cómo tomarlo, compre el medicamento correcto
+**更多资讯，更多关注**
 
-按医嘱吃
-Toma según las indicaciones del médico
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-———————————————————
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**原视频网址**：[https://twitter.com/Se1y7CbLlJSeLVA/status/1452954306412355585](https://twitter.com/Se1y7CbLlJSeLVA/status/1452954306412355585)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-日期：10/31/2021
-原视频标题：
-Sugerencias dadas por el Sr. Wengui Guo para los compañeros luchadores de China
-原视频日期：10/24/2021
-任务编号：KC216（2690）
-视频时间段：0:00-0:58
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
  
 

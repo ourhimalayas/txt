@@ -2,48 +2,35 @@
 ---
 
 
-## 中共国三分之二的顶级房开发商违反了国家的债务“红线”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1632025/)
+## 如果联合国财务公开，马斯克允诺赠款解决世界饥饿
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1632093/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1635651890-8756.jpeg)*中共国密密麻麻的新建房地产群（网络图片）*
-中共国负债累累的开发商正在努力满足中共当局更严格的融资规定。
+#### 整理报道：月映万川 
 
-彭博社汇编的数据显示，截至10月29日，中共国房地产信息集团排名前30的大房地产公司中，有三分之二的公司至少已经违反了所谓的“三条红线”中的一项。
+#### 编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/10/习近平-2.jpeg)**图片来源：Republicworld.com**
+11月1日，世界首富埃隆·马斯克针对一位联合国的官员的说法提出了挑战。这位官员称，只要马斯克拿出一小部分财产，就能帮助世界解决饥饿问题。
 
-随着借贷相关规则收紧，以及官方发起的去杠杆化运动给房地产业带来的重压，开发商正面临越来越大的财务压力。中共恒大集团的流动性危机扰乱了市场，中共国的房地产行业在全球以美元计价的不良债务中占比近一半。投机级收益率在10月份曾短暂突破20%，为十年来的最高值。
+这位官员是联合国粮食食品项目计划署署长大卫·比斯利。上周他又一次重复了本月初他的推特里提到的，对于像马斯克这样的亿万富豪，“他们需要挺身而出，只要一次就好”。
 
-根据政府网站上官方媒体的报道，这三条红线是：
+大卫先生不断强调，“60亿美元能够拯救4.2千万即将饿死的人口”。
 
-房地产公司的负债率不应超过其资产的70%
+马斯克在自己的推特指出，如果世界粮食计划署“能够做出一个准确计划来使用这60亿美元解决世界饥饿问题，我现在就卖掉特斯拉的股票去行动……但是，联合国粮食计划署的支出计划必须要有公开的账目，并保证大众的知情权”。
 
-净负债不应超过股本
+60亿美元只是目前马斯克个人净资产的一小部分。他的个人资产已经达到3110亿美金。而仅仅在10月29日这一天，他的个人净资产就增加了93亿美元。
 
-而现金应至少等于短期借款数额
+目前，这位联合国世界粮食计划署官员尚未回应。
 
-简评：
+新闻链接：[Elon Musk tweets that he’ll donate $US6 billion to end world hunger, if the United Nations’ World Food Program can provide ‘open source accounting’ to show public precisely how the money is spent (afr.com)](https://www.afr.com/world/north-america/elon-musk-says-he-ll-donate-8b-to-end-world-hunger-on-one-condition-20211101-p594tf)
 
-房地产已经成了中共国最不稳定的因素之一，减债是其调控的主要手段。为什么中共房企会从负债，走到债台高筑，再到连还债能力都没有？而广大买房族往往短则10年，长则20年甚至更长的时间都在为还房贷而忙碌，而且不少都是老少两代人一起还贷。这种情况下大家买房的钱都去哪儿了？
+发布：文泓
 
-实际上，房地产是中共设计的主要用来搜刮老百姓钱财的工具之一，中共通过它把大家的血汗钱装进了自己的腰包。房企也只是充当中共的白手套而已，一两个房企的死活不会被中共放在眼里。所谓的“房子是用来住的不是用来炒的”，这样的宣传得反过来听才能避免上中共的当。
-
-新闻链接: [https://www.business-standard.com/article/international/two-thirds-of-china-s-top-developers-breach-state-s-red-line-on-debt-121103100149\_1.html](https://www.business-standard.com/article/international/two-thirds-of-china-s-top-developers-breach-state-s-red-line-on-debt-121103100149_1.html)
-
-翻译/简评：乡间小路
-
-PR：Julia Win
-
-
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
