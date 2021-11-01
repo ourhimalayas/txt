@@ -2,10 +2,10 @@
 ---
 
 
-## 路易斯安那州上诉法院禁止本州医院解雇未接种疫苗的雇员
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1632701/)
+## 全球芯片短缺状况日趋恶化，或将持续到2023年底
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1632788/)
 
-作者：纽约香草山福音部 –lilian89
+作者：英国喜庄园 – I770775
 
 
 
@@ -13,19 +13,18 @@
 
 
 
-10月30日，路易斯安那州第二巡回上诉法院发布了一项临时限制令，禁止包括奥克斯纳医疗系统在内的全州医疗机构解雇拒绝接种疫苗的员工。今年8月，奥克斯纳医疗系统颁布了一项强制疫苗接种政策，规定其32,000名 员工须在10月29日前接种疫苗或取得豁免，届时未获得豁免且拒绝接种的员工将被解雇。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1.jpg)
-就在奥克斯纳医院执行强制政策的最后期限前一天，路易斯安那州第二巡回上诉法院作出了有利于全州医护工作者的裁决。
+受中共病毒流行影响，全球各地芯片的供货大幅度减少，最近，已持续近一年的芯片短缺状况仍在日益加剧。
 
-目前，全美有12个州已在行政、立法或司法层面拒绝执行拜登政府的强制疫苗政策；其中，佛罗里达州在强力拒绝的同时，日均新增感染病例在10月27日降至全美最低。10月下旬以来，美国各界反对强制疫苗接政策的诉讼以及示威游行益发增多。拜登政府所主推的这一激进政策正面临空前的阻力。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-1.jpg)
+10月28日，华尔街日报有报道称，总部在纽约的PowerX公司今年5月份下的一笔芯片订单，本来约定夏季到货，但被一拖再拖，最后被告知很可能最早要到2022年5月才能收到货。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-1.jpg)
+PowerX公司的遭遇绝非个例，全球半导体短缺状况已经在各行各业蔓延。有知情人士爆料，最近下订单的很多买家，看到自己订单上的交货日期最晚已经延迟到了2024年。
+
 参考链接：
-[Louisiana Court of Appeal Rules in Favor of Shreveport Nurses and Grants Restraining Order Against Ochsner Hospital from Firing Unvaxxed Employees](https://www.thegatewaypundit.com/2021/10/louisiana-court-appeal-rules-favor-shreveport-nurses-grants-restraining-order-ochsner-hospital-firing-unvaxxed-employees/)
+[美媒：全球芯片短缺或持续到2023年](https://www.163.com/money/article/GNIRV503002580S6.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-总编: 飞虹
-编辑：Zion文恩
+总编/编辑：飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

@@ -2,40 +2,49 @@
 ---
 
 
-## 用信仰与品格秉持财富
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1632585/)
+## 路易斯安那州上诉法院禁止本州医院解雇未接种疫苗的雇员
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1632701/)
 
-作者：香草山文艺部-猪逻辑
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-9.jpg)
+作者：纽约香草山福音部 –lilian89
 
 
 
-君子爱财，取之有道。万众期待的喜马拉雅币HCOIN、HDO即将上市，其所孵化的财富自由可期的巨大前景，将是对战友智慧、信仰、眼界、行动力、判断力最好的奖赏。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-102.png)
 
-心态与坚守信仰是成就财富增值的重要内在品质。坚守或秉持财富，除了投资正确的标的之外，其投资和持有过程中的跌宕起伏、上下翻飞也对投资定力和修行有着极高的要求。战友、持有者还需知行合一，忘记时间，用良好的心态与耐心，克服人性的贪婪、躁动和盲目。
 
-巴菲特曾言，我大部分钱是靠屁股赚的。言外之意就是坐在那里一动不动，耐心等待一个大机会出现并牢牢抓住，长期持有。而大部分投资者往往天天忙着交易，乐此不疲。交易的本质是博弈，作为绝大多数中小散户的草根战友投资者，在缺乏基本交易技巧技能的前提下，在市场难以长期、短期获利或者整体跑输市场的情况下，不如做到岿然不动，管住手，甚至管住眼（不交易甚至不看，甚至为了掌控习惯、不看电视而把遥控器锁起来），投入生活，忘记持有的上下波动，今天赚了几个零明天亏了几位数。做好长期持有计划，和经受市场巨幅震荡的心理准备，成为延迟满足实验中坚持最久、最后获得更多糖块的小孩子。
+10月30日，路易斯安那州第二巡回上诉法院发布了一项临时限制令，禁止包括奥克斯纳医疗系统在内的全州医疗机构解雇拒绝接种疫苗的员工。今年8月，奥克斯纳医疗系统颁布了一项强制疫苗接种政策，规定其32,000名 员工须在10月29日前接种疫苗或取得豁免，届时未获得豁免且拒绝接种的员工将被解雇。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1.jpg)
+就在奥克斯纳医院执行强制政策的最后期限前一天，路易斯安那州第二巡回上诉法院作出了有利于全州医护工作者的裁决。
 
-财富自由后的自我管理，也需从修行和心态方面加强，养成良好的心态与自制力，避免自我膨胀，得意不狂妄，失意不气馁。财富是双刃剑，需深知祸福相依、乐极生悲，无节制与膨胀或可伴随衍生巨大的灾难。巴菲特几十年如一日居住在奥马哈几十年前的老别墅里，没有被五颜六色的奢华生活所迷惑，其伟大合伙人查理·芒格有言：“永远学会逆向思考，反面想问题。”美国20世纪，最伟大的股票和期货大投机家杰西·利弗莫尔一生大起大落，成功预测美国史上两场大股灾，其中52岁获利超过1亿（当年美国财政收入才42亿美金），但最终却在57岁时破产，经历三次婚姻，最后却开枪自杀，成为投资界留给世人惊醒的反面教材。如果我知道我在哪里死去或倒下，我将永远不去那里……，例如破产、挥霍无度、远离毒品、嗜酒、滥性等诸如此类。佛家有言，勤修戒定慧，息灭贪瞋痴。个人倾向和主张极简主义的生活态度，是聚焦于最精简的目标。
+目前，全美有12个州已在行政、立法或司法层面拒绝执行拜登政府的强制疫苗政策；其中，佛罗里达州在强力拒绝的同时，日均新增感染病例在10月27日降至全美最低。10月下旬以来，美国各界反对强制疫苗接政策的诉讼以及示威游行益发增多。拜登政府所主推的这一激进政策正面临空前的阻力。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-1.jpg)
+参考链接：
+[Louisiana Court of Appeal Rules in Favor of Shreveport Nurses and Grants Restraining Order Against Ochsner Hospital from Firing Unvaxxed Employees](https://www.thegatewaypundit.com/2021/10/louisiana-court-appeal-rules-favor-shreveport-nurses-grants-restraining-order-ochsner-hospital-firing-unvaxxed-employees/)
 
-建立一个健康、良性、正态的财富观念和消费观念对财富的秉守至关重要。解决了基本的吃喝拉撒、柴米油盐、衣食住行，甚至两性需求、安全感之后，本性上通常我们会聚焦于更高级的人生目标，譬如成就感、自我实现，以及更宏大的推动社会进步和变革。新中国联邦人请谨记我们内心自发驱动的力量，感恩无限美好的未来和希望。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-校对/发稿：飞虹
+总编: 飞虹
+编辑：Zion文恩
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

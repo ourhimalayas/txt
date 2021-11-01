@@ -2,42 +2,34 @@
 ---
 
 
-## G20 领导人就全球税收协议达成一致，设定 15% 的最低税率
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1631701/)
+## 日本要闻汇编 10月31日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1631727/)
 
-作者：美国香草山金融组 – 德州瑞秋
+#### 素材：东京樱花团｜GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-28.png)[*图片来源*](https://www.sinchew.com.my/wp-content/uploads/2021/10/e697a5e69cace4bc97e999a2e5a4a7e98089e68a95e7a5a8e38080e887aae6b091e5859ae68896e4bf9de4bd8fe689a7e694bfe69d83e4bd86e5a4b1e8aeaee5b8ad-scaled.jpg)
+1、[**日本众院选举投票日 等待选民作出评判**](https://china.kyodonews.net/news/2021/10/c86ce7c8814a--.html)
 
+日本第49届众院选举今日（31日）7点在全国各地启动投票。投票将在今晚8点结束，当天计票。此次众院选举围绕小选区289个议席、比例代表11区176个议席总计465个额定议席，1051名候选人展开角逐，人数为现行制度下最少。与众院选举同时，还将对11名最高法院法官实施国民审查。
 
+2、[**日本各政党利用网络为选举造势**](https://china.kyodonews.net/news/2021/10/da1ff25597d6-9.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+共同社31日消息，日本9个朝野政党在众院选举的选战中，在党的官网等上发布党首的演说视频。为防止新冠疫情再度蔓延，也是防疫措施的“在线演说”作为政治活动的一种形式逐渐固定下来。选举对策负责人表示：“这是结合面对面活动和网络、想方设法使主张渗透人心的选举战。”
 
+3、[**速报：截至18:00 众议院选举投票率31.64%，比上次高出1.65个百分点**](https://www3.nhk.or.jp/news/html/20211031/amp/k10013328631000.html)
 
+截至18:00，内务省公布消息称，众议院选举投票率为31.64%。比上一次2017年的29.99%，高出了1.65个百分点。 截至18日，统计的选民人数为156222764人。
 
-在本周罗马举行的 G20 峰会上，拜登总统和其他世界领导人批准了对企业征收15%的全球最低税率，美国政要也希望此举有助于支持拜登总统周四发布的“重建得更好”（“Build Back Better ”）的议程。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture777777777777777777777.jpg)
-在今年 7 月的G20会议上各国就曾对 15% 的最低税率达成一致。该措施在本周六举行的世界经济强国峰会上的得到正式的认可。在一份声明中，财政部长珍妮特·耶伦声称，领导人就国际税收规则达成的最低全球税收协议“将结束对公司税收的破坏性逐底竞争。” 拜登在推特上说：“在 G20 上，代表全球 GDP 80% 的领导人，无论是盟友还是竞争对手，都明确表示支持制定强有力的全球最低税。” “这不仅仅是一项税收协议，它是重塑我们全球经济并为我们的人民提供服务的外交。” 该协议旨在阻止跨国公司将利润储存在他们很少或根本不纳税的国家。如今，跨国公司可以从商标和知识产权中赚取巨额利润。但是他们可以将收入分配给避税天堂国家的子公司。
+4、[**第34届东京国际电影节开幕**](https://www3.nhk.or.jp/nhkworld/zh/news/330355/)
 
-在美国，更新税法需要国会的立法批准，这将面临着通过的重重挑战，因为美国拥有全球 2,000 家最大的跨国公司中的 28%。如将公司海外利润的最低税率从目前的 10.5% 提高到 15%，需要众议院和参议院一致通过这一法案。
+第34届“东京国际电影节”于30日正式拉开帷幕。这是亚洲规模最大的电影节之一。今年的东京国际电影节将时隔2年举行去年被取消的“主竞赛单元”。本届东京国际电影节将举行到11月8日，其间将在东京都的日比谷等会场上映126部作品。
 
-此次全球领导人一致批准了对企业征收15%的全球最低税率，可见各国政府都面临着巨大的财政赤字压力，期望通过税收来缓解。然而，企业增加税务成本将会导致全球的物价持续攀升和通货膨胀的情况越发严重。
+5、[**HIS预计2020财年亏损530亿日元**](https://china.kyodonews.net/news/2021/10/152299a2c1ae-his2020530.html)
 
-参考来源：[https://www.foxbusiness.com/economy/world-leaders-endorse-global-corporate-minimum-tax-at-g20-summit-in-rome](https://www.foxbusiness.com/economy/world-leaders-endorse-global-corporate-minimum-tax-at-g20-summit-in-rome)
+日本旅行社巨头HIS30日发布2020财年（2020年11月至2021年10月）业绩预期，合并财报净利润将出现530亿日元（约合人民币29.8亿元）亏损（上期为亏损250亿日元）。连续两年亏损，预计亏损额将创新高。主要业务出境游因新冠疫情长期持续而备受打击。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
-
-
+*编辑：东京樱花团 / 文小白*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

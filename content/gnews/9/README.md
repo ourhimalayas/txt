@@ -2,66 +2,76 @@
 ---
 
 
-## 班农专访4: 美国会保卫台湾
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1632643/)
+## 喜币上市11.1.11:11 《H-Coin to the Moon》掀开喜币上市庆典的篇章
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1632759/)
 
-**简评：**
+撰稿：Shifter
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-01-at-6.26.52-AM.png)图片来源：GETTR & GTV
+2021年11月1日格林威治时间早晨9点52分，战友威廉王创作的《H-Coin to the Moon》掀开格林威治时间（GMT）2021年11月1日11时11分庆祝喜马拉雅币上市的序幕。
 
-因为害怕惹怒中共，美国一直回避台湾问题，但是拜登揭露了这个秘密：美国会保护台湾。不说中共的一带一路布局，对香港和南中国海的阴谋，就算是为了美国自身的经济利益，和台湾先进的芯片生产和设计对美国的重要性，美国都应该保卫台湾。新中国联邦的郭文贵先生爆料中共对台湾的渗透，和中共在台湾的内鬼暗地出卖台湾利益。美国的特种部队和突击队，在和台湾的特种部队一起训练，致力于防护台湾。
+自由多么熟悉的字眼
+Freedom sounds familiar to me
 
-[GTV视频链接](https://gtv.org/video/id=617e723aadfd99590c31c696)
+缺不知不觉理我越来越远
+But unknowingly getting far away from me
 
+曾经那个意气风华的少年
+The man with charms and energy only exists in the past
 
+为里生成只能品名挣钱
+Working hard desperately to only fight for living
 
-**视频字幕：**
+财富是他们画下的大饼
+Wealth is their rain check but always out of touch
 
-**主持人**：是的。 谢谢你，班农先生。
+虚幻背后发现全都是陷阱
+A beautiful illusion with full of traps behind
 
-因此，在拜登总统明显承诺帮助台湾对抗中共的侵略之后，白宫迅速发表声明，似乎与拜登早先的说法互相矛盾。
+各种经济暴雷
+All kinds of economical implosion
 
-这很快就被一位中共顶级大外宣中国日报的资深编辑抓住把柄。他猛烈抨击拜登，说拜登太老了，头脑不清楚。美国是否仍致力于保卫台湾？ 班农先生？
+房价崩的稀碎
+Housing prices crashes to the hell
 
-**班农先生**：顺便再说一句，所有你们提出的问题都很棒。 这个问题非常重要。
+抬起头 前路一片漆黑
 
-我认为中文观众理解这一点非常重要。乔拜登把秘密说出来了。他是年纪大，但人们应该了解。 在那个会议之前，他听取了简报。
+Raise my head full of darkness covers the road ahead
+Welcome to the world to the new world
+Welcome to the world H-coin to the moon
+Welcome to the world to the new world
+Welcome to the world H-coin to the moon
 
-很明显，他们在国家安全委员会和白宫举行了很多会议，经常聚在一起谈论台湾。这在官方叫做“战略性模糊”，我们永远不会让中共知道我们是否真的保护台湾。
+H-coin to the moon H-coin to the moon
 
-他对此很坚决 “我们会捍卫它” ，他们让他继续说。安德森·库珀有点震惊地问，我们真的会保卫台湾吗？他说，是的。原因是他们一直在谈论这事，而这才是真的政策。
+安全 最前沿加密技术出手
+Security guarded by the most advanced encrypt technology
 
-这就是为什么我说他把”秘密”泄漏了。他们不想公开说出来，因为害怕惹恼中国共产党。
+让你的财富没人能夺走
+No one can take wealth away from you
 
-这是我认为所发生情况，班农作战室，尤其是GNEWS和GTV有一定的功劳以及其他为此新闻报导的媒体。我们已经改变了事态发展。
+稳定币 浮动币 设计天下无双
+Stable Coin Floating Coin Unparalleled design under the heaven
 
-我讲的不光是中共的图谋，一带一路的图谋，拿下香港后的图谋，还有南中国海的图谋。向美国人民强调，即使这不是道德上的当务之急，但至少是经济和金融上的当务之急，因为台湾集中着先进芯片的设计。台湾是（太平洋）西岸的矽谷。
+还有二十趴 黄金挂钩
+20% gold reserve attaches to the value
 
-无论有什么道义要求，我们都必须捍卫民主和捍卫台湾的中国人民。即便只是从实用角度来看，我们也不能让台湾落入中共之手。所以拜登说的很清楚，且我认为我们会保卫台湾是毫无疑问的。
+摧毁 不停压榨你的机器
+Destroy the machine to suck you to dry
 
-我也认为，中国共产党很聪明，他们对台湾的行动会是非常狡猾的，这毫无疑问。很明显，他们将试图进行某种渗透，并让许多台湾人站起来说，我们不想要西方，特别是美国的帮助。
+从此不再做金钱的奴隶
+Never be money slavers again
 
-记住，是文贵的出色爆料，几年前他在竞选台湾总统国民党初选时，揭露了富士康董事长郭台铭。文贵说，这是卖台贼。
+喜联储的大门 永远敞开向你
+Himalaya Federal Reserve welcomes you forever
 
-这个国民党已经从蒋介石的民族主义和反共党，变成了一个亲共党，而且他在竞选时，文贵说如果他赢了，你会看到暗地里重新统一。
+前途光明 就在喜币
+The brilliant future – Himalaya Coin
 
-这将非常复杂。我认为台湾、美国和所有海外侨民都必须对此保持警惕。
+Welcome to the world to the new world
+Welcome to the world H-coin to the moon
 
-**主持人**：谢谢你，班农先生。这就是为什么我偶尔会发现拜登政府的信息互相矛盾。谢谢你的解释。
+来源链接：https://gettr.com/streaming/pfs1k7a90e
 
-**班农先生**：我想明确一下，真正的答案是他的第一个答案 – 我们将捍卫台湾。我们将保卫它，因为我们必须。
-
-他们希望能够把这事掩盖过去。我认为这是让中国日报如此沮丧的原因，他们知道真正的意图。记着，你的听众应知道(会保卫台湾)。这已经被暴露了。
-
-现在我们实际上已经派有特种部队和突击队，和台湾特种部队一起训练。所以我相信美国，特别是为美国的利益，是致力于防御台湾的。
-[![](https://spark.adobe.com/page/YfumhygLWcVoQ/images/a126c348-b436-4f61-b608-5ad22cff9a0f.png?asset_id=97aee942-c3db-42f0-871b-ccab84a9de0f&amp;img_etag=%2210b729b8d584521311d0c78293ebdcfd%22&amp;size=2560)](https://spark.adobe.com/page/YfumhygLWcVoQ/images/a126c348-b436-4f61-b608-5ad22cff9a0f.png?asset_id=97aee942-c3db-42f0-871b-ccab84a9de0f&amp;img_etag=%2210b729b8d584521311d0c78293ebdcfd%22&amp;size=1024)
-*字幕：雨中漫步*｜*翻译：TCC* *| 校对：Wade* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-
-*编辑：【英国伦敦喜庄园编辑部】*
-[![](https://spark.adobe.com/page/YfumhygLWcVoQ/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/YfumhygLWcVoQ/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
 
 
  
