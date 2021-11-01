@@ -2,36 +2,26 @@
 ---
 
 
-## 如果联合国财务公开，马斯克允诺赠款解决世界饥饿
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1632093/)
+## 日本众院选举快讯：盘点日本众院选举中落选的大佬
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1632167/)
 
-#### 整理报道：月映万川 
+作者：东京樱花团｜文小白
+![](https://lh3.googleusercontent.com/Ze6hf4aSiqkv2vqw8o4ol1QWhets5l6PDOjMSgamfwdXkQb-ZGfAR6rPAtgaITvMQ5g9ab678D9oujEBxWR4jxB94mEjbA6smH1EjabJLG4ZTs9w3-jZO5RwiPLU4SdfGC0oynR7)[*图片来源*](https://static.chunichi.co.jp/image/article/size1/3/f/4/4/3f44404808cf4688d6f3b966f2b1765a_1.jpg)
+据日本雅虎新闻11月1日消息，第49届日本众议院选举尘埃落定，自民党虽然没有达到既定目标，但实现了单独过半数，与公明党合计的执政党议席数确保保了“绝对稳定多数”。可是选举中自民党一众大佬的落选，也为自民党提出了新的课题。
 
-#### 编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/习近平-2.jpeg)**图片来源：Republicworld.com**
-11月1日，世界首富埃隆·马斯克针对一位联合国的官员的说法提出了挑战。这位官员称，只要马斯克拿出一小部分财产，就能帮助世界解决饥饿问题。
+最突出的是，曾历任国土交通大臣、经济再生大臣的石原派领袖、前自民党干事长的石原信照在东京第8区败北，随后的比例选区复活战也以失败告终。
 
-这位官员是联合国粮食食品项目计划署署长大卫·比斯利。上周他又一次重复了本月初他的推特里提到的，对于像马斯克这样的亿万富豪，“他们需要挺身而出，只要一次就好”。
+其他落选的大佬有：
 
-大卫先生不断强调，“60亿美元能够拯救4.2千万即将饿死的人口”。
+谋求第 17 次当选的前自治大臣野田毅（熊本第2区）；前环境大臣原田义昭（福冈第5区）；前地方振兴大臣山本幸三（福冈第10区）。
 
-马斯克在自己的推特指出，如果世界粮食计划署“能够做出一个准确计划来使用这60亿美元解决世界饥饿问题，我现在就卖掉特斯拉的股票去行动……但是，联合国粮食计划署的支出计划必须要有公开的账目，并保证大众的知情权”。
+此外，在立宪民主党中，日本民主党执政时期的内阁官房长官、选举对策委员会委员长的平野博文（大阪第11区）和党的副代表辻元清美（大阪第10区）均落选失去众议院席位。
 
-60亿美元只是目前马斯克个人净资产的一小部分。他的个人资产已经达到3110亿美金。而仅仅在10月29日这一天，他的个人净资产就增加了93亿美元。
+**消息来源：**[**大物落選相次ぐ…自民・石原伸晃氏は比例復活もできず、立民では平野博文氏と辻元清美氏議席失う**](https://news.yahoo.co.jp/articles/dbbe7dd78b8d1a6c5301cf91bdf9a8709cff3f40)
 
-目前，这位联合国世界粮食计划署官员尚未回应。
-
-新闻链接：[Elon Musk tweets that he’ll donate $US6 billion to end world hunger, if the United Nations’ World Food Program can provide ‘open source accounting’ to show public precisely how the money is spent (afr.com)](https://www.afr.com/world/north-america/elon-musk-says-he-ll-donate-8b-to-end-world-hunger-on-one-condition-20211101-p594tf)
-
-发布：文泓
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团 / 文小白*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

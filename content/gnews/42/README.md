@@ -2,36 +2,41 @@
 ---
 
 
-## 佛州州长德桑蒂斯抨击拜登需特别会议阻止疫苗强制执行
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1631542/)
+## G20 领导人就全球税收协议达成一致，设定 15% 的最低税率
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1631701/)
 
-据《新闻大全》2021 年 10 月 30 日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-27.png)图片来自视频截图
-佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）周五对总统乔·拜登（Joe Biden）提出批评，他呼吁立法者在11月15日召开特别会议，讨论防止企业强制实施疫苗的立法。
+作者：美国香草山金融组 – 德州瑞秋
 
-德桑蒂斯在处理冠状病毒大流行的问题上，几乎经常与拜登政府意见相悖。德桑蒂斯说，总统试图迫使大型企业和政府承包商强制接种疫苗是越权行为。
 
-**[州长的公告说](https://www.flgov.com/wp-content/uploads/2021/10/10.29.21-Proc.pdf)**：“ 拜登政府已采取或威胁采取非同寻常的努力，强迫那些因健康、怀孕、宗教信仰（包括真诚的道德或伦理信仰）和先前感染而不愿接受疫苗的美国人注射COVID疫苗”。
 
-着眼于 2024 年总统竞选的德桑蒂斯对白宫和佛罗里达州地方政府的疫苗规定和其他大流行限制提出了严厉批评。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
 
-德桑蒂斯说：“强迫美国人接种疫苗将进一步加深使人们不信任政府和美国企业。”
 
-公告说：“不顾父母的反对而对健康的学童强行戴口罩和进行不必要的隔离，侵犯了父母为孩子做出医疗保健和教育决定的能力，并损害了佛罗里达学童接受他们应得的优质教育的能力。”
 
-周四，德桑蒂斯宣布就白宫对联邦承包商的疫苗强制执行提起诉讼。 他的政府还对当地学校董事会进行了罚款，这些董事会违反了州政府禁止在课堂上戴口罩的规定，并扣留了接受联邦拨款的地区资金，以减轻州政府的罚款。
+在本周罗马举行的 G20 峰会上，拜登总统和其他世界领导人批准了对企业征收15%的全球最低税率，美国政要也希望此举有助于支持拜登总统周四发布的“重建得更好”（“Build Back Better ”）的议程。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture777777777777777777777.jpg)
+在今年 7 月的G20会议上各国就曾对 15% 的最低税率达成一致。该措施在本周六举行的世界经济强国峰会上的得到正式的认可。在一份声明中，财政部长珍妮特·耶伦声称，领导人就国际税收规则达成的最低全球税收协议“将结束对公司税收的破坏性逐底竞争。” 拜登在推特上说：“在 G20 上，代表全球 GDP 80% 的领导人，无论是盟友还是竞争对手，都明确表示支持制定强有力的全球最低税。” “这不仅仅是一项税收协议，它是重塑我们全球经济并为我们的人民提供服务的外交。” 该协议旨在阻止跨国公司将利润储存在他们很少或根本不纳税的国家。如今，跨国公司可以从商标和知识产权中赚取巨额利润。但是他们可以将收入分配给避税天堂国家的子公司。
 
-特别会议还要求立法者澄清，当地学区不得强制要求学生戴口罩，而是将选择权留给家长。会议将于 11 月 19 日结束。
+在美国，更新税法需要国会的立法批准，这将面临着通过的重重挑战，因为美国拥有全球 2,000 家最大的跨国公司中的 28%。如将公司海外利润的最低税率从目前的 10.5% 提高到 15%，需要众议院和参议院一致通过这一法案。
 
-参议院议长威尔顿·辛普森(Wilton Simpson)和众议院议长克里斯·斯普洛尔斯(Chris Sprowls)发表联合声明，支持德桑蒂斯。
+此次全球领导人一致批准了对企业征收15%的全球最低税率，可见各国政府都面临着巨大的财政赤字压力，期望通过税收来缓解。然而，企业增加税务成本将会导致全球的物价持续攀升和通货膨胀的情况越发严重。
 
-他们说：“在过去两年里，佛罗里达人目睹了我们在其他州的朋友和亲戚的自由一次一个被剥夺。拜登政府在全国范围内强制实施非法和违宪的疫苗接种授权，剥夺了美国人民的工作尊严，我们不会袖手旁观。”
+参考来源：[https://www.foxbusiness.com/economy/world-leaders-endorse-global-corporate-minimum-tax-at-g20-summit-in-rome](https://www.foxbusiness.com/economy/world-leaders-endorse-global-corporate-minimum-tax-at-g20-summit-in-rome)
 
-许多其他州正在考虑反授权法案。德克萨斯州共和党州长格雷格·阿伯特（Greg Abbott）最近发布了一项行政命令，禁止任何实体要求接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
 
-原文链接：[https://www.newsmax.com/us/desantis-florida-vaccine-mandates-special/2021/10/29/id/1042583/](https://www.newsmax.com/us/desantis-florida-vaccine-mandates-special/2021/10/29/id/1042583/)
+编辑/校对/发稿：Hetangyuese
 
-翻译：飞利普 |校对：烟波浩淼|编辑+发布：黎明的光芒
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
+
 
  
 

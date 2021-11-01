@@ -2,38 +2,87 @@
 ---
 
 
-## 爱尔兰沃特福德揭露新冠疫苗是骗局
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631722/)
+## 郭文贵先生给国内战友的建议
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1631823/)
 
-作者：东京方舟农场 – 冰糖葫芦喵
+[https://gtv.org/video/id=617f21beadfd99590c31efcd](https://gtv.org/video/id=617f21beadfd99590c31efcd)
 
+我唯一的一个个人观点建议
+Mi única sugerencia de opinión personal
 
+你要慎重考虑
+Debes pensar con cuidado
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在中国国内的
+Dentro de China
 
+你没有生存能力, 没有足够的钱
+Si no tienes capacidad para sobrevivir ni el suficiente dinero
 
+你别出国, 出了国更惨
+No salgas del país porque será peor
 
-据网关专家10月30日的报道，在爱尔兰的沃特福德市，已有99.7%的成年人完全接种了新冠疫苗，但其14天内的发病率为每10万人1486例，是全国平均水平的3倍，成为全国感染率最高城市。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture66-1.jpg)
-英国政府警告说，接种疫苗的人似乎对新冠病毒感染后的免疫反应不完全。而科学家们发现，疫苗在免疫系统中产生的未知、长期变化，更令人担忧。
+外国没有钱是寸步难行
+Es difícil moverse sin dinero en países extranjeros
 
-报道指出，新冠疫苗的效果并不像预测或宣传的那样有效，疫苗未能保护接种者不受感染，相反促进了变异病毒的更普遍的感染。大型制药公司和许多所谓的公共卫生机构一样，都是骗子，许多人不再相信疾控中心的报告，而疾控中心已经证明自己是一个被制药业买通的腐败机构。
+没有语言更难行
+Sin saber el idioma es aún más difícil
 
-参考链接：[爱尔兰沃特福德揭露新冠疫苗是骗局](https://www.thegatewaypundit.com/2021/10/waterford-ireland-exposes-covid-vaccine-fraud/)
+在国内就到农村, 中小城市活着去
+Si estás en China, vaya a vivir en zonas rurales o ciudades pequeñas y medianas
 
-![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+唯一的是, 我强烈建议任何情况下别打疫苗
+Lo único que recomiendo encarecidamente es no que se vacunen bajo ninguna situación
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
+别染上冠状病毒
+No te contagies del Covid-19
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+备好伊维菌素, 地塞米松, 羟氯喹和锌
+Prepare ivermectina, dexametasona, hidroxicloroquina y zinc
+
+然后是青蒿素
+y luego es la artemisinina
+
+绝对伊维素是防病的, 是治病的
+La ivermectina es preventivo y curativo
+
+地塞米松是紧急控制你血氧的
+La dexametasona es una emergencia para controlar el oxígeno en la sangre
+
+青蒿素是打了疫苗以后解毒的
+La artemisinina desintoxica después de ser vacunada
+
+还有防止病毒的(作用)
+Y también tiene función de prevenir el virus
+
+怎么吃, 请大家一定买正确的药
+Cómo tomarlo, compre el medicamento correcto
+
+按医嘱吃
+Toma según las indicaciones del médico
+
+———————————————————
+
+**原视频网址**：[https://twitter.com/Se1y7CbLlJSeLVA/status/1452954306412355585](https://twitter.com/Se1y7CbLlJSeLVA/status/1452954306412355585)
+
+日期：10/31/2021
+原视频标题：
+Sugerencias dadas por el Sr. Wengui Guo para los compañeros luchadores de China
+原视频日期：10/24/2021
+任务编号：KC216（2690）
+视频时间段：0:00-0:58
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

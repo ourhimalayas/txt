@@ -2,197 +2,50 @@
 ---
 
 
-## 善用喜币喜联储代理权，让你成为永恒的罗斯柴尔德
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1631777/)
+## 何炅作为娱乐行业大咖受到打压
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1631904/)
 
-[https://gtv.org/video/id=617ebba8adfd99590c31dca4](https://gtv.org/video/id=617ebba8adfd99590c31dca4)
+**作者：**顺其自然
+**编辑、发布：**Candy
 
-如果你懂得喜联储这三字儿的时候
-Cuando entiendas estas tres palabras “Reserva Federal de Himalaya”
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/何炅.jpg)
 
-你在未来不用多
-En un futuro no muy lejano
+图片来源：娱乐八卦网
+何炅，因为习近平为让韭菜们多生娃整顿娱乐行业而失业，大哭！
 
-就3个月
-Solamente tres meses
+近日从网络流出的一支视频中看，何炅和周迅、黄磊等娱乐圈名人因乌镇戏剧节齐聚一堂。众人原本在餐厅聚餐有说有笑，但席间何炅突然情绪失控，抱着周迅哭个不停。
 
-你会逐渐地知道喜联储
-Gradualmente, te darás cuenta que La Reserva Federal de Himalaya
+据陆媒“搜狐娱乐”报导：伴随着中共广电总局开展所谓的“清朗行动”，不少电视综艺节目都面临整改。其中何炅、谢娜等主持的王牌综艺节目《快乐大本营》，被电视台以“升级改版、更新换代”为由遭停播。而该节目的停播就意味“快乐家族”的所有成员都暂时“失业”。
 
-喜联储现在是什么呢? 它还得有些钱
-¿Qué es La Reserva Federal de Himalaya en este momento? Él todavía necesita más dinero
+此外，何炅主持真人秀《令人心动的offer》，原本在主持阵容被列在第一顺位，但第三季开录已看不到他的踪影，而且也缺席最新一季的《明星大侦探》主持阵容。
 
-是要靠传统银行
-Debe depender de los bancos tradicionales
+有网民留言表示：“《快本》停播，《offer》等各节目也换人，何炅线上线下商务遭受重击。和《芒果》签的也只是主持约和节目约，不是体制内的人，又不敢提出离开解约，大起大落过的委屈啊！”认为何炅这次忍不住痛哭，是因为事业感到压力山大。
 
-因为你买喜币, 你都付的美元
-Porque compras monedas de Himalaya, debes pagarlo con el dólar
+我对湖南卫视的节目无感，基本上不看他们的节目，像什么《快乐大本营》之类的，但是我知道在年轻人中非常流行。之前中共对教培行业下狠手，就是因为若大家都激娃，都把所有的财力、物力、精力都集中在让孩子准备考上一个好大学，将来能去一个好单位，那么他就没有精力和财力再生二胎和三胎了。打击教培行业，令几近千万人失业。新东方从高高在上，现在已经破产倒闭。接着打击游戏行业，让年轻人少玩游戏，有时间多谈谈恋爱。后来一看，好嘛，快乐大本营还吸引一大堆年轻人呢！那怎么行，必须停了。所以现在是所有影响韭菜生娃的行业都必须整顿、关停，让你的精力无处发泄，最后只能生娃。
 
-付的日圆什么的
-O en yuan japonés
+习近平的中共这么急的原因就是：中共一直鼓吹的什么高科技行业、金融等，其实都是胡扯的。中共真正赚钱的，真正能在世界上拿的出手的，而且还能卡住各国脖子的，就是农民工的血汗工厂。而农民工的血汗工厂，由于现在年轻人的减少，很多都是年龄非常大的人在工作。如果没有年轻人跟进，年龄大的人再有几年干不动了，那么这个工厂也就要关停并转。
 
-当喜联储和喜币和喜美元增加流通以后
-Cuando se aumente la circulación del La Reserva Federal de Himalaya, su moneda y el dólar
+我们知道东南亚除了泰国，越南是中国低端产业的转出地，还有孟加拉国。孟加拉国的纺织业现在非常强劲，原因就是他有1.7亿的人口，而且还都是年轻人，人口结构特别好，类似于中国刚刚改革开放八九十年代时的那个人口结构。
 
-他自己就是一个银行和金融机构
-Él mismo será un banco y una institución financiera
+现在中共高科技又起不来，低端的血汗制造业工厂又在流失，习近平当然着急了，所以现在他就要把所有影响生育的行业全部都给关停了。不需要你们上什么大学，只要安心生出小韭菜，将来进工厂打工就可以了。因此也就看到了何炅痛苦的那一幕，即使是名人，在时代的大趋势下，也是一个蝼蚁，不知被哪个车轮碾压。
 
-如果战友们都去使用喜美元, 喜币去交易支付
-Si los compañeros luchadores realizan transacciones mediante el dólar de Himalaya y su moneda
+网友已经列出了下一个将要整顿的行业，就是避孕用品行业。还有短视频行业，像抖音聚会，都是玩儿手机，玩儿抖音，这太影响恋爱了。还有信用卡行业，引诱年轻人使用信用卡，为了还债焦头烂额，不肯结婚生娃，肯定要打击这个行业。
 
-互相间都去用的时候
-Cuando ambos se utilizan entre sí
+网友再预测一下，还会有哪些行业是中共要打击的？
 
-很快你会发现
-Pronto te darás cuenta
 
-全世界都到喜联储来开帐号
-Todo el mundo abrirá cuenta en La Reserva Federal de Himalaya
+```
+(免责声明：本文内容仅代表作者个人观点，Gnews不承担任何责任。）
+```
 
-而不是喜联储的, 咱们的战友们去到人家开帐号
-Y no es la propia reserva federal o que nuestros compañeros luchadores vayan a abrir las cuentas
 
-我们就废掉了过去(的游戏规则)
-De esta forma, eliminamos las reglas de juego del pasado
 
-就是从娘胎里长大
-Es como si crecemos en la barriga de nuestra madre
 
-你必须出来的时候有一个胎盘
-Debes tener placenta cuando salgas
-
-当你把这个剪断的时候
-Cuando la cortas
-
-你就是长大了
-Significa que ya creciste
-
-你可能会超过你的母胎
-Podrías sobrepasar al feto de tu madre
-
-你可能会超过世界
-Al mundo
-
-你可能会超过一切
-O a todo
-
-这就是战友们一定要善用喜美元
-Este es el por qué los compañeros luchadores deben hacer un buen uso al dólar de Himalaya
-
-善用喜币
-A la moneda de Himalaya
-
-而且战友们最核心的利益
-Y los intereses fundamentales de los compañeros luchadores
-
-是各农场和战友们未来所有的喜币的支付代理权
-Es el derecho de agencia de pago de la futura moneda de Himalaya de todos los compañeros luchadores de cada finca
-
-它真的可以让你成为巨大的有钱人
-Él realmente puede hacerte convertir en un rico
-
-就是当年JP摩根, 还有罗斯柴尔德
-Al igual como JP Morgan y Rothschild en aquel tiempo
-
-罗斯柴尔德当年
-Rothschild en aquel tiempo
-
-一个国家国王专门在欧洲借(钱)给人家战争
-El rey de un país le presta (dinero) especialmente a otros en Europa para la guerra
-
-你两家打仗, 我借你黄金
-Ustedes dos pelean y yo les presto el oro
-
-最后是罗斯柴尔德去了, 我来帮你来联系国家, 谁打仗借钱
-Finalmente, Rothschild fue y dijo, yo te ayudo a contactar con los países, quien tenga la guerra y pide prestado el dinero
-
-赌两边儿
-Apuesta dos lados
-
-最后这国王死了, 把黄金全委托给他支付
-Al final este rey murió y dejó a él para que se encargara del pago de oro
-
-就成立了罗斯柴尔德
-Y así fue que se estableció Rothschild
-
-今天的喜币就是这样
-Hoy la moneda de Himalaya es así
-
-当年的罗斯柴尔德
-El Rothschild de aquel año
-
-谁要想今天能代理好喜币的支付权
-Quien represente bien el derecho de pago de la moneda de Himalaya
-
-和在某地区的代理权, 你绝对是罗斯柴尔德
-Y la representación legal de algún sitio, eres absolutamente Rothschild
-
-而且是永恒的罗斯柴尔德
-Además, eres el eterno Rothschild
-
-你去好好看罗斯柴尔德的家族
-Vaya y vea bien la familia de Rothschild
-
-怎么后来生出3个儿子
-Cómo él luego tuvo tres hijos
-
-一个法国, 一个英国, 一个留在德国
-Uno en Francia, uno en Reino Unido y el otro se quedó en Alemania
-
-怎么把黄金成为世界上真正的货币
-Cómo hizo para que el oro se convirtiera en la moneda real de todo el mundo
-
-真正了控制全世界
-Tuvo el verdadero control de todo el mundo
-
-罗斯柴尔德到美国被JP摩根给干掉的时候
-Cuando Rothschild fue a EE. UU y fue eliminado por JP Morgan
-
-JP摩根就说
-JP Morgan dijo
-
-我要把你的所有的货币权在美国这块让我来拿走
-Voy a tomar todos los derechos monetarios que tienes aquí en EE. UU
-
-因为现在有股票
-Porque ahora hay acciones
-
-今天我们喜币和喜美元
-Hoy nuestra moneda y el dólar de Himalaya
-
-拥有一个股票和黄金连在一起的这么一个新的货币时代
-Tienen una nueva era de divisas en la que las acciones y el oro estén vinculados
-
-你拥有两个手
-Tu tienes dos manos
-
-两个时代的综合结构
-Es una estructura integral de las dos épocas
-
-如果你拥有代理权, 你就是最牛的
-Si obtienes la representación legal, serás el mejor
-
-———————————————————
-
-**原视频网址：**[** **https://twitter.com/se1y7cblljselva/status/1453191890417840135?s=24](https://twitter.com/se1y7cblljselva/status/1453191890417840135?s=24)
-
-日期：10/29/2021
-原视频标题：
-Tomar el buen uso de los derechos de representación legal de la moneda de Himalaya y su Reserva Federal para convertirlo en un eterno Rothschild
-原视频日期：10/27/2021
-任务编号：KC215(2689)
-视频时间段：0:00-2:18
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

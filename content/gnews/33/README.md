@@ -2,61 +2,54 @@
 ---
 
 
-## 我们走在正道主义大路上——祝贺喜币上市！
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1631729/)
+## 23岁地产公司新员工酒店身亡
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1631897/)
 
-作者：春晖   华盛顿DC农场
+作者：纽约香草山商业部 – 秋末的落叶
 
-演唱：初晓 
-素材：Yetta   36CIA
-视频制作：36CIA 
-字幕：36CIA
 
-我们走在大路上，
-联合灭共斗志昂扬，
-喜马拉雅山七星飞舞，
-喜币喜讯传向四方。
-向前进！向前进！
-灭共潮流不可阻挡，
-向前进！向前进！
-朝着胜利的方向。
 
-七芒星旗迎风飘扬，
-新中国联邦发奋图强，
-誓要夺回锦绣河山，
-快把国贼扫进坟场。
-向前进！向前进！
-正道主义不可阻挡，
-向前进！向前进！
-朝着胜利的方向。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-我们的道路多么宽广，
-我们的前程无比辉煌，
-我们献身这壮丽的事业，
-无限幸福无上荣光。
-向前进！向前进！
-正道主义不可阻挡，
-向前进！向前进！
-朝着胜利的方向。
-朝着胜利的方向——
 
-* * *
 
-**欢迎阅读更多【春晖专栏】文章：**
-[花环与圈套](https://gnews.org/zh-hans/1532235/)
-[夜雨乱谈兵](https://gnews.org/zh-hans/1353630/)
-[歌词 勇士壮歌行](https://gnews.org/zh-hans/1427092/)
-[围观一场裸奔中的忽悠](https://gnews.org/zh-hans/1415426/)
-[风 马 牛，外面有狼](https://gnews.org/zh-hans/1409824/)
-[春晖信箱之一](https://gnews.org/zh-hans/1257354/)
-[春晖信箱之二](https://gnews.org/zh-hans/1324736/) 
-[春晖信箱之三](https://gnews.org/zh-hans/1338771/)
-[给翠花的绝交信](https://gnews.org/zh-hans/1195451/)
-[金哨吹响爱飞扬](https://gnews.org/zh-hans/1195535/) 
-[“八卦”使人长寿](https://gnews.org/zh-hans/1195566/) 
-[中国人的美国梦之一](https://gnews.org/zh-hans/1229846/) 
-[中国人的美国梦之二](https://gnews.org/zh-hans/1288730/) 
-[中国人的美国梦之三](https://gnews.org/zh-hans/1362811/)
+当地时间2021年10月20日，根据大陆新浪微博猫头鹰视频账号消息称，大陆一名23岁的地产公司女性员工被已婚上司带去开房并死亡。尸检报告称，该女性因七氟烷中毒导致急性呼吸、循环功能障碍而死亡。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/50.jpg)图片来源：新浪微博视频截图
+
+根据视频新闻线索，该用人单位名为“梅州市敏捷建筑工程有限公司”，其法定代表人名叫王铭。死者为入职该公司不到一个月的女性员工。另外，死者的母亲是聋哑人，父亲也有残疾，且离家多年未归。
+
+但是，中共媒体的新闻并没有明确该事件调查全程的详细情况，也没有提及该事件的任何后续处理情况，且报道中的多处言论自相矛盾。
+
+事实上，中共墙内生活的民众，其弱势群体的意外死亡案例比比皆是，而且总是没有后续。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+#23岁地产公司新员工酒店身亡#，凌晨3点被已婚男上司带去开房\_https://weibo.com/tv/show/1034:4602465610563685?from=old\_pc\_videoshow
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
  
 
