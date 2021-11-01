@@ -2,70 +2,48 @@
 ---
 
 
-## 塔克：欧美人正在大量死亡
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1632593/)
+## 路易斯安那州上诉法院禁止本州医院解雇未接种疫苗的雇员
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1632701/)
 
-**简评：**
-
-世界各地的数据显示，大量人正在死亡，尤其是西欧的英国和德国，包括美国，50岁以下人的高死亡率已经持续了两年，30到50岁之间和20到50岁之间的人正以前所未有的速度死亡。这些死亡可能是病毒死亡人数计算错误，抑或封城，或药物过量导致。另一种可能性是与心脏有关，与大规模的疫苗接种有关。但没有足够的证据来支撑。人们在死亡，但是有一股神秘的力量在阻止任何人谈论真相。
-
-[GTV视频链接](https://gtv.org/video/id=6175679e247c5a3f908f68e4)
+作者：纽约香草山福音部 –lilian89
 
 
 
-**视频字幕：**
-
-**塔克**：来自世界各地的政府数据显示，所谓的”全部死因”死亡人数远高于正常水平。
-
-例如，这情况正在西欧发生。这是什么原因？如何解释呢？这些不是死于 COVID。这些都是直接死亡，是死于其他原因。是什么呢？
-
-巴伦森对此进行了深入研究。他是作家，也是记者。当然，他用隐射的方式写的，你应该读一读。
-
-他今晚来到节目。亚历克斯，非常感谢你的到来。你能简单描述一下吗？因为这是一个非常了不起的故事。
-
-**亚历克斯**：这很复杂，塔克，这里有几个冲突点，我知道我没有很多时间。我正在探索，并且已经在大海中捞针捞了几回了。我会再继续追踪下去。
-
-但是让我快速告诉你我们所知道的，在西欧的几个大国，特别是英国和德国这两个人口最多的国家，死亡人数突然增加且高于正常。这在英国已经持续了几个月。
-
-请记住，英国在今年早些时候为很多人接种了疫苗，几个月来他们的死亡率高于正常水平。
-
-德国疫苗接种发生在接近春天的时候，他们在 9 月份的死亡人数高于正常水平。我们不清楚原因。
-
-在英国，那里有较多的数据，看起来有很多是由于心血管死亡。我们不知道这是什么意思。
-
-在美国，50岁以下人的高死亡率已经持续了两年。我们在那个年龄层中发现了巨量的死亡人数。其中一些死因是COVID。其中一些死亡似乎与封城有关，或者药物过量，我们知道这种情况非常严重。
-
-但是在过去几个月中，即使春季 COVID 死亡人数有所下降，该年龄层的死亡人数在美国仍居高位。
-
-再说一次，这有几种可能性。
-
-一种可能性是某些 COVID 死亡人数被错误计算，尽管我们非常详细地计算 COVID 死亡人数。另一种可能性是封城或药物过量致死。尽管欧洲几乎没有像我们在这方面遇到的问题。
-
-另一种可能性，塔克，我甚至不敢大声说出来，因为我知道人们的反应，是与心脏有关，而且与大规模疫苗接种活动有关。但我们没有证据。我们没有足够的证据来区分这些因素的可能性
-
-我们所知道的是，在美国，30 到 50 岁年龄段和 20 到 50 岁年龄段的人正在以前所未有的速度死亡。
-
-现在我们看到一些欧洲国家死亡率过高，我们真的应该找出原因。
-
-**塔克**：嗯，这就是重点。 你说了五遍“我们不知道”。
-
-你是一个负责任的人。 是吧？请用 20 秒时间告诉我们，有没有人非常积极地、有组织地在找出这些人的死因？
-
-**亚历克斯**：我想说，有一个非常积极、有组织的力量在阻止任何人谈论这些数据。
-
-我被踢出推特； 我被迫使用隐射写法。除了你，没有人谈论。我也不知道为什么会这样。
-
-**塔克**：我认为这是我见过的最奇怪的事情。
-
-*字幕/听写：云岭* *| 翻译：TCC* *|**简评/文字整理/编辑：胖丁 | Page：我是球大哥*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-*编辑：【英国伦敦喜庄园编辑部】*
-[![](https://spark.adobe.com/page/7sctwgL5SKL9p/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/7sctwgL5SKL9p/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+
+10月30日，路易斯安那州第二巡回上诉法院发布了一项临时限制令，禁止包括奥克斯纳医疗系统在内的全州医疗机构解雇拒绝接种疫苗的员工。今年8月，奥克斯纳医疗系统颁布了一项强制疫苗接种政策，规定其32,000名 员工须在10月29日前接种疫苗或取得豁免，届时未获得豁免且拒绝接种的员工将被解雇。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1.jpg)
+就在奥克斯纳医院执行强制政策的最后期限前一天，路易斯安那州第二巡回上诉法院作出了有利于全州医护工作者的裁决。
+
+目前，全美有12个州已在行政、立法或司法层面拒绝执行拜登政府的强制疫苗政策；其中，佛罗里达州在强力拒绝的同时，日均新增感染病例在10月27日降至全美最低。10月下旬以来，美国各界反对强制疫苗接政策的诉讼以及示威游行益发增多。拜登政府所主推的这一激进政策正面临空前的阻力。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-1.jpg)
+参考链接：
+[Louisiana Court of Appeal Rules in Favor of Shreveport Nurses and Grants Restraining Order Against Ochsner Hospital from Firing Unvaxxed Employees](https://www.thegatewaypundit.com/2021/10/louisiana-court-appeal-rules-favor-shreveport-nurses-grants-restraining-order-ochsner-hospital-firing-unvaxxed-employees/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编: 飞虹
+编辑：Zion文恩
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
 
 
  

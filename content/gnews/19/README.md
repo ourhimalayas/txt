@@ -2,28 +2,28 @@
 ---
 
 
-## 有声|欧盟维护外交自主权，反击中共施压与胁迫
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1632495/)
+## 对冲中共金融风险！富时中国A50将扩数，消息致期指大幅跳水
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1632571/)
 
-配音：香草山美食部 – 玫瑰园
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-1.png)[图片来源](https://www.yicaiglobal.com/news/ftse-russell-postpones-decision-on-china-bond-inclusion-till-next-march-)
+证券之星11月1日消息，富时中国A50指数期货在上一交易日夜盘收跌0.04%的基础上高开，随后大幅跳水，报15611点，跌1.65%。
 
-10月28日欧盟理事会主席米歇尔、欧盟执委会主席范德赖恩两人以联名信函表示，支持立陶宛与台湾互设代表处，强调成员国有权与台湾深化关系，不能接受中共国对欧盟成员国威胁、施压，欧盟将采取反击。
+消息面上，外媒称，富时罗素公司正考虑对中国A50指数作出重大调整。
 
-此前，立陶宛因设立台湾代表处而受到中共的威胁。今年8月，欧洲 “福尔摩沙俱乐部”28国曾联名致函欧盟，声援立陶宛与台湾发展关系。
+富时罗素CEO斯塔尔(Arne Staal)表示，该公司可能会根据投资者的反馈意见调整其富时中国A50指数，正在考虑的变化包括扩大指数，有可能将现有50家公司扩大到100家公司。
 
-文字版原文；[欧盟维护外交自主权，反击中共施压与胁迫](https://gnews.org/zh-hans/1629325/)
+近期中国经济因煤炭短缺和地产商流动性紧张而受到干扰，加剧了中国股市的波动性，全球投资者对对冲工具的需求日益增长。
 
-音频处理：喜山必胜Maverick
+资本市场对政治和经济变化最为敏感，中共经济不断恶化已经引起全球投资者高度警惕和反应。当然，富时罗素也仅是从技术层面进行操作，治标不治本，要真正对冲中共金融风险，唯有撤出对中共的投资。
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+信息来源：
+
+[发生了什么？富时A50大幅跳水跌近2%](https://www.163.com/dy/article/GNN7IUQQ051984TV.html)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

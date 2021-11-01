@@ -2,21 +2,28 @@
 ---
 
 
-## 秘翻在线：继续挑衅 中共军机进入台湾防空识别区
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1632421/)
+## 有声|欧盟维护外交自主权，反击中共施压与胁迫
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1632495/)
 
-#### 撰稿：彩虹 
+配音：香草山美食部 – 玫瑰园
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2.jpg)图片来源：半岛电视台
-据《新闻极限》（Newsmax）11月1日报道，周日（10月31日），中共军机再次闯入台湾防空识别区进行挑衅，台湾军机起飞迎敌。
+10月28日欧盟理事会主席米歇尔、欧盟执委会主席范德赖恩两人以联名信函表示，支持立陶宛与台湾互设代表处，强调成员国有权与台湾深化关系，不能接受中共国对欧盟成员国威胁、施压，欧盟将采取反击。
 
-台湾国防部表示，在台湾海峡两岸紧张局势加剧之际，中共派遣包括战斗机在内的8架军机进入了台湾防空识别区，台湾空军紧急出动，对其进行了警告。这些中共飞机包括六架歼-16战斗机、一架反潜机和一架侦察机。
+此前，立陶宛因设立台湾代表处而受到中共的威胁。今年8月，欧洲 “福尔摩沙俱乐部”28国曾联名致函欧盟，声援立陶宛与台湾发展关系。
 
-**新闻来源**
+文字版原文；[欧盟维护外交自主权，反击中共施压与胁迫](https://gnews.org/zh-hans/1629325/)
 
-[Taiwan Scrambles Jets as Chinese Air Force Enters Air Defense Zone](https://www.newsmax.com/newsfront/china-taiwan-scrambles-jets/2021/10/31/id/1042685/)
+音频处理：喜山必胜Maverick
 
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
