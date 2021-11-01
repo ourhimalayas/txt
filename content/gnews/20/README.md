@@ -2,10 +2,10 @@
 ---
 
 
-## Facebook 对针对儿童的疫苗信息实施更严格的审查
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1632760/)
+## 六中全会召开在即 北京继续借疫情加强控制
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1632783/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：澳喜农场 – 在远方
 
 
 
@@ -13,14 +13,14 @@
 
 
 
-美国FDA刚刚正式批准对5至11岁儿童接种辉瑞新冠疫苗，Facebook便以全新身份Meta在美东时间10月30日宣布，它正在推出更严格的针对儿童的疫苗信息审查政策。该平台之前在2020年底对新冠疫苗信息进行了限制，但没有专门针对儿童的政策。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4.jpg)
-Meta在一篇新的博客文章中表示，它正在与CDC和WHO合作，以删除与儿童和新冠疫苗相关的内容，包括任何暗示新冠疫苗对儿童不安全、未经测试或无效的帖子。此外，Meta将以英语和西班牙语提醒人们疫苗已获批准给儿童接种。
+10月中旬以来，墙内突然爆发了新一波新冠疫情。北京处于六中全会即将召开、据冬奥会开幕不到100天的政治敏感时期，目前已是草木皆兵，在防疫措施上更是层层加码。
 
-Meta指出，自疫情爆发以来，它总共删除了来自Facebook和Instagram的20万条有关新冠病毒和疫苗的信息。
-
+北京市政府不仅封闭了有疫情风险的小区，关闭部分学校和商家，还延迟了一年一度的马拉松比赛。市政府同时从严惩治违反防疫规定的餐厅和诊所。从10月30日起至11月14日，暂停全区电影院的电影放映聚集性活动。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture.jpg)
+国外直飞北京的航班都被要求转道，待旅客完成隔离和核酸检测后，才能前往北京。本土发生病例的城市飞北京的航班被全部取消。政府下令去过疫区的民众必须在家接受隔离，其他地区赴京的民众要出示核酸阴性证明，并接受长达14天的健康检测。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5.jpg)
 参考链接：
-[Facebook puts tighter restrictions on vaccine misinformation targeted at children](https://www.theverge.com/2021/10/30/22754046/facebook-tighter-restrictions-vaccine-misinformation-children)
+[新一波疫情来势汹汹，中国政府为迎冬奥会全力封堵](https://www.voachinese.com/a/china-cracks-down-over-serious-covid-outbreak-20211030/6292168.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 

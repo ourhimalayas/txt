@@ -2,48 +2,50 @@
 ---
 
 
-## 路易斯安那州上诉法院禁止本州医院解雇未接种疫苗的雇员
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1632701/)
+## 坎特球员：耐克利益为先，无视中共国人权问题
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1632737/)
 
-作者：纽约香草山福音部 –lilian89
+**简评：**
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+耐克公司在美国支持黑名贵，为少数族裔发声，也为其他的社会不公大声疾呼。但在中共国的问题上，耐克沉默不语，完全忽视了中共国存在着严重的强迫劳动和种族灭绝。耐克和全球很多知名品牌享受着中共国劳工在强迫劳动下产生的利益，没有计划和时限终结这一切，与中共国的强制劳工公开切割。坎特球员喊话耐克的老板亲自去中共国的奴隶集中营，感受一下奴工们的生活。耐克必须停止伪善，废除现代奴隶制。
 
 
 
-10月30日，路易斯安那州第二巡回上诉法院发布了一项临时限制令，禁止包括奥克斯纳医疗系统在内的全州医疗机构解雇拒绝接种疫苗的员工。今年8月，奥克斯纳医疗系统颁布了一项强制疫苗接种政策，规定其32,000名 员工须在10月29日前接种疫苗或取得豁免，届时未获得豁免且拒绝接种的员工将被解雇。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1.jpg)
-就在奥克斯纳医院执行强制政策的最后期限前一天，路易斯安那州第二巡回上诉法院作出了有利于全州医护工作者的裁决。
+**视频字幕：**
 
-目前，全美有12个州已在行政、立法或司法层面拒绝执行拜登政府的强制疫苗政策；其中，佛罗里达州在强力拒绝的同时，日均新增感染病例在10月27日降至全美最低。10月下旬以来，美国各界反对强制疫苗接政策的诉讼以及示威游行益发增多。拜登政府所主推的这一激进政策正面临空前的阻力。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-1.jpg)
-参考链接：
-[Louisiana Court of Appeal Rules in Favor of Shreveport Nurses and Grants Restraining Order Against Ochsner Hospital from Firing Unvaxxed Employees](https://www.thegatewaypundit.com/2021/10/louisiana-court-appeal-rules-favor-shreveport-nurses-grants-restraining-order-ochsner-hospital-firing-unvaxxed-employees/)
+**埃内斯坎特：**亲爱的耐克，你们口口声声说，你们给社区带来了正面影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+确实，在美国，耐克与黑命贵站在一起，与停止反亚裔仇恨站在一起。耐克与拉美社区站在一起，与性少数群体站在一起，还在美国其他社会不公上大声疾呼。
 
-总编: 飞虹
-编辑：Zion文恩
-校对/发稿：为真不破20
+但在中国问题上，耐克一直保持沉默。你们对中国警察的暴力执法视而不见。关于中国社会对性少数人群的歧视，你们不闻不问。关于中国少数民族受到的压迫，你们更是闭口不谈。
 
-**更多资讯，更多关注**
+你们不敢发声。是谁在中国生产你们的球鞋？你们知道吗？
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+中国有太多血汗工厂，比如新疆人被当作现代奴工驱使，此时此刻遍布全中国。目前有数百万新疆人被关押、贩卖，安排在集中营、监狱和工厂里强制劳动。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+他们一直在监控之下被迫长时间工作，生存条件恶劣。他们还遭受政治再教育。他们没有言论自由，没有宗教自由，甚至不允许离开中国。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+你们知道吗，几乎整个服装鞋业的上色都是由新疆奴工做的？很多全球知名品牌都不例外，当然也包括NBA最大赞助商之一，耐克。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+耐克声称他们的供应链上不允许强制劳动，但他们却不向我们证明这一承诺。他们没有公开与中共政府的强制劳工做公开切割。没有计划和时限终结这一切。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+他们没有公开承诺终止使用新疆奴工。別忘了，你们穿的每一双鞋，每一件T恤衫背后充满了泪水、压迫和血汗。
 
+耐克的广告语是，just do it（想做就做吧）。然而，对于给你们生产球鞋，让你们赚钱的奴工，你们会做什么呢？
 
+我要给耐克的老板捎个话。不如我给咱们订几张机票，一起去中国？我们可以试着去那里的奴工集中营，你们自己好好看看。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+勒布朗詹姆斯和麦克乔丹，欢迎你们也一起来。耐克必须行动，停止你们的伪善，废止现代奴隶制。
 
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*字幕：free20200604 |听写：云岭|翻译：Wade|PR：Roberts|简评/文字整理/编辑：胖丁| Page：小六月*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+[![](https://spark.adobe.com/page/6OoRXH0noKkvN/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/6OoRXH0noKkvN/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
 
 
  

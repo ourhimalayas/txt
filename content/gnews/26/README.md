@@ -2,49 +2,46 @@
 ---
 
 
-## 王毅谭德塞在罗马唱双簧，继续推进全球疫苗强制行动
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1632718/)
+## 接种过疫苗的人可能面临所谓突破性感染的风险
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1632757/)
 
-作者：英国喜庄园 – I770775
+**简评：**
 
+一种新的COVID变种在英国和以色列已经出现，有证据表明一些变种可以逃避疫苗免疫，但逃不过自然免疫。自然免疫产生的抗体对抗病毒的不同部位，然而疫苗使身体产生的抗体只针对刺突蛋白。所以如果刺突蛋白变异或进化，会引起病毒逃过疫苗免疫，那些接种过疫苗的人可能面临所谓突破性感染的风险。人们会更加质疑为什么拜登政府继续强制美国人接种疫苗，包括那些具有天然免疫力的人。不可思议。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-10月30日，二十国集团领导人峰会在意大利罗马开幕。代表中共领导人习近平出席大会的王毅，于当地时间10月30日，会见了世界卫生组织总干事谭德塞。
-
-王毅和谭德塞两人一唱一和，完全回避追究病毒来源的根本性问题，反而大谈特谈如何继续在全球强制推行病毒疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3.1.jpg)
-在中共国疫情全面反扑的局面下，王毅继续无视现实，声称中共在抗击疫情方面已取得重大战略成果，希望和世卫组织共同探讨未来的抗疫合作，愿意将疫苗在全球“公平”分配。
-
-谭德塞则再次露出亲共的嘴脸，表示他支持中方新冠疫苗的实施计划，世卫组织坚决抵制所谓的“政治化”病毒溯源研究。
-
-参考链接：
-[王毅会见世界卫生组织总干事谭德塞](https://world.huanqiu.com/article/45OKgrGStbZ)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[GTV视频链接](https://gtv.org/video/id=617567e0247c5a3f908f68f7)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+**视频字幕：**
 
+**主持人**：一种新的COVID-19变种已经出现，主要在英国，以色列也有。引起美国卫生官员切实担忧。
+
+10月15号，英国卫生安全局说，6%的新病例是由一种叫做AY.4.2变种引起的。在美国，疾病控制中心说，目前为止，没有证据表明这种新变种会影响当前疫苗的有效性。然而，CDC的批评者指出，Delta变种的突破性病例数量是质疑疫苗有效性的理由。
+
+OAN与加州大学欧文分校医学院医学伦理学项目主任Aaron Carriotti博士进行了交谈。他认为对于接种疫苗的人来说，更多变种的出现是个问题，但是对于有天然免疫力的人来说，问题不大。
+
+**Aaron博士**：我认为会有后续疫情。 今年冬天会有另外一波。 但愿不要像Delta变种那么严重。但是对于你问题的答案，取决于新出现变种的特性。如果有新的变种，有证据表明一些变种可以逃避疫苗免疫。
+
+沒有证据表明他们可以逃过自然免疫，因为自然免疫作用更广。
+
+自然免疫产生的抗体对抗病毒的不同部位，然而疫苗使身体产生的抗体只针对刺突蛋白。所以如果刺突蛋白变异或进化会引起病毒逃过疫苗免疫，那样的话，会迎来更严重的一波疫情。
+
+说出来很悲伤，那些接种过疫苗的人可能面临所谓突破性感染的风险
+
+**主持人**：一些专家认为AY.4.2的刺突蛋白有改变，是Delta毒株的变种，对那些只有疫苗免疫的人来说更具有感染性
+
+这使人们更加质疑为什么拜登政府继续强制美国人接种疫苗，包括那些具有天然免疫力的人。
+
+*字幕: 雨中漫步*|*听写：云岭* *| 翻译：Roberts* *|* *Pr：致良知*｜*简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://spark.adobe.com/page/lfEGjOwnRAdHb/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/lfEGjOwnRAdHb/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
 
 
  

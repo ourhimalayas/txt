@@ -2,76 +2,31 @@
 ---
 
 
-## 喜币上市11.1.11:11 《H-Coin to the Moon》掀开喜币上市庆典的篇章
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1632759/)
+## 必看 ！全球34位英雄医生专家警告疫苗危险（5）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1632780/)
 
-撰稿：Shifter
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-01-at-6.26.52-AM.png)图片来源：GETTR & GTV
-2021年11月1日格林威治时间早晨9点52分，战友威廉王创作的《H-Coin to the Moon》掀开格林威治时间（GMT）2021年11月1日11时11分庆祝喜马拉雅币上市的序幕。
+翻译：Runaway
 
-自由多么熟悉的字眼
-Freedom sounds familiar to me
+我的名字是 Heiko Santelmann，我是一名德国医生，现在在挪威工作。我作为全科医生工作了40年，做研究20年，尤其最近10年在疫苗方面。我必须大声疾呼，这不是真正的医学意义的大流行，COVID-19疫苗没有被证实是无害的或有效的。我同意英国医学杂志的说法，测试没有诚实的进行。如果你研究结果，所谓的 90%有效率实际上只有0.2%。我想知道为什么盖茨和他的阴谋要花费数十亿美元来开发可以对男人、女人甚至未出生的孩子进行绝育的疫苗？
 
-缺不知不觉理我越来越远
-But unknowingly getting far away from me
+统一和强迫的医疗措施是不道德的，不能对手无寸铁的人群实施，无论是作为测试还是作为疫苗。任何医疗干预、检测、治疗或疫苗都只能基于个人医疗考虑、充分知情、患者同意和无害的临床证据，以符合道德和法律的方式实施。
 
-曾经那个意气风华的少年
-The man with charms and energy only exists in the past
+我叫米凯尔·诺德福斯。我是来自瑞典的医生，我正在研究综合医学。没有大流行，疫苗既不安全也不有效。给全人类提供未经测试的疫苗并将它们用作试验对象是完全疯狂的，我们现在必须停止它。而把它给并未感染COVID-19的孩子们就更疯狂了。迄今为止，我国没有人死于15岁以下，但却有副作用、风险和成本。这是浪费金钱，浪费人的生命和安全，所以现在就停止它。而且我还敢打赌，永远不会有像维生素D一样安全有效的疫苗，它可以将死亡率降低50%至95%，具体取决于您血液中维生素D的含量。非常感谢你。
 
-为里生成只能品名挣钱
-Working hard desperately to only fight for living
+你好，我是来自荷兰的医生。我已经了解了疫苗，我想告诉你三件事。首先，这种疫苗可以使妇女和女孩绝育。其次，这种疫苗可能会引起病毒干扰或免疫启动，然后会引起细胞因子风暴，这对您的健康非常危险。这已经在人类和动物的其它新冠疫苗试验中观察到。第三，这种疫苗可以永远改变你的基因蓝图、你的基因密码、你的DNA。我们不知道这会带来什么。非常感谢。告知自己，保护自己，保护您的孩子，去查证。
 
-财富是他们画下的大饼
-Wealth is their rain check but always out of touch
+视频/字幕：外星人
 
-虚幻背后发现全都是陷阱
-A beautiful illusion with full of traps behind
+（本文纯属个人观点，与G news无关）
 
-各种经济暴雷
-All kinds of economical implosion
+[必看 ！全球34位英雄医生专家警告疫苗危险（1）](https://gnews.org/zh-hans/1620972/)
 
-房价崩的稀碎
-Housing prices crashes to the hell
+[必看！全球**34**位英雄医生专家警告疫苗危险（**2**）](https://gnews.org/zh-hans/1624847/)
 
-抬起头 前路一片漆黑
+[必看 ！全球34位英雄医生专家警告疫苗危险（3）](https://gnews.org/zh-hans/1625015/)
 
-Raise my head full of darkness covers the road ahead
-Welcome to the world to the new world
-Welcome to the world H-coin to the moon
-Welcome to the world to the new world
-Welcome to the world H-coin to the moon
-
-H-coin to the moon H-coin to the moon
-
-安全 最前沿加密技术出手
-Security guarded by the most advanced encrypt technology
-
-让你的财富没人能夺走
-No one can take wealth away from you
-
-稳定币 浮动币 设计天下无双
-Stable Coin Floating Coin Unparalleled design under the heaven
-
-还有二十趴 黄金挂钩
-20% gold reserve attaches to the value
-
-摧毁 不停压榨你的机器
-Destroy the machine to suck you to dry
-
-从此不再做金钱的奴隶
-Never be money slavers again
-
-喜联储的大门 永远敞开向你
-Himalaya Federal Reserve welcomes you forever
-
-前途光明 就在喜币
-The brilliant future – Himalaya Coin
-
-Welcome to the world to the new world
-Welcome to the world H-coin to the moon
-
-来源链接：https://gettr.com/streaming/pfs1k7a90e
-
+[必看 ！全球34位英雄医生专家警告疫苗危险（4）](https://gnews.org/zh-hans/1625494/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
 
 
  

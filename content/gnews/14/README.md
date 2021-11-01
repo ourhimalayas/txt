@@ -2,46 +2,50 @@
 ---
 
 
-## 全球芯片短缺状况日趋恶化，或将持续到2023年底
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1632788/)
+## 百态人生——蒸花卷
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1632848/)
 
-作者：英国喜庄园 – I770775
+作者：香草山美食部-雨过天晴Rainbow
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-10.jpg)
 
 
 
-受中共病毒流行影响，全球各地芯片的供货大幅度减少，最近，已持续近一年的芯片短缺状况仍在日益加剧。
+一大早起来心不在焉。我边自言自语说“好像有什么事情忘了做”，边准备着早餐，直到先生在旁边说了一句“你不是说要蒸花卷吗？”对呀我怎么把这么重要的事都忘了呢？
 
-10月28日，华尔街日报有报道称，总部在纽约的PowerX公司今年5月份下的一笔芯片订单，本来约定夏季到货，但被一拖再拖，最后被告知很可能最早要到2022年5月才能收到货。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-1.jpg)
-PowerX公司的遭遇绝非个例，全球半导体短缺状况已经在各行各业蔓延。有知情人士爆料，最近下订单的很多买家，看到自己订单上的交货日期最晚已经延迟到了2024年。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_1856_2-rotated.jpg)
 
-参考链接：
-[美媒：全球芯片短缺或持续到2023年](https://www.163.com/money/article/GNIRV503002580S6.html)
+在我们南方老家，祖辈传承下来的喜庆糕点中有一种特殊的花卷——腊味糯米卷 ，它在七彩颜色中不占一席之位，在美味佳肴中也上不了台面，鸟枪换炮的人中人对它不屑一顾，劳碌奔波、苦中求生的草根则吃不上。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+这种用发面包裹着糯米、腊肠、虾米、香芋、红萝卜蒸熟的不起眼点心却是我童年时代的奢侈食品了。
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+计划经济年代，糯米花卷只有过年时家里才会做，面粉糯米腊肠限量，而且质量很差，面粉颜色是黄的，还有股霉味。糯米里面有细沙子。每次外婆都要用一个小砵子慢慢地淘干净。我记得花卷出锅时都会听见外婆说一声“好发啊！”尽管我已经懂事，明白大人们的寄望，但我所过的日子仍然如旧，我们还是省吃俭用。
+
+文贵先生的爆料，揭穿了中共几十年的谎言，三年自然灾害、援助非洲的真正目的是残杀国民，以援助为由利诱收买当地政府官员，达到向外扩张、妄想称霸世界的野心。很不幸，我家的亲友中也有曾经参与医疗队援助非洲和引进非洲及第三世界留学生的教学任务。感觉可悲的是直到爆料革命我们才清楚自己被玩弄了几十年，中国人的命不该如此啊！
+
+中共肆无忌惮地虐夺属于本国人民的资源和财富，明搞一带一路，暗是借路敛财，今年河南、山西多地水灾无人救助，灾民无家可归。可中共还是旧计重演，把国人财富用作巩固个人地位的礼品，送给可以同盟的政府甚至恐怖组织。中共一日不灭，民众永远不可能翻身。
+
+为了让中国14亿民众早日强大富足，文贵先生搭建的喜马拉雅虚拟货币平台将隆重上市！激动人心啊，感恩郭文贵先生给我们带来人生最大的机会！今夜又是一个不眠夜！
+
+家乡的美食，草根的心意，今晚就用这代表着美好生活愿望（发发发），富裕幸福（荷包鼓鼓），家人平安进步（糯米团团）的糯米花卷, 迎接2021-1101-11:11吧。
+
+喜盈新中国  币福联邦人！
+
+校对/发稿：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
 
 
