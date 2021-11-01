@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/1/2021 11:18 AM (UTC)`
+
+11月1号：这个伟大的日子确实让人太激动了，七哥现在边看直播！边吃着家常饭．最爱吃的还是家常饭，最爱穿的还是粗布衣！永远不会改变的东西……就是我们来自草根！
+![img](https://media.gettr.com/group27/getter/2021/11/01/11/18/edba00ad-abb4-8a61-c603-d27b49328f84/out.jpg)
+
+---
+
+`@miles 11/1/2021 11:13 AM (UTC)`
+
+Hcoin To The Moon <br/><br/>词：威廉王<br/>曲：唐平<br/>编曲： SFG<br/><br/>自由 多么熟悉的字眼<br/>却不知不觉 离我越来越遥远<br/>曾经那个意气风发的少年<br/>为了生存只能拼命挣钱<br/><br/>财富 是他们画下的大饼<br/>虚幻背后发现全都是陷阱<br/>经济各种暴雷  房价崩的稀碎<br/>抬起头 前路一片漆黑<br/><br/>welcome to the world<br/>to the new world<br/>welcome to the world <br/>Hcoin to the moon <br/><br/>welcome to the world<br/>to the new world<br/>welcome to the world <br/>Hcoin to the moon <br/>Hcoin to the moon <br/>Hcoin to the moon <br/><br/>安全 最前沿加密技术出手<br/>（Set me free）<br/>让你的财富 没人能夺走<br/>稳定币 浮动币 设计天下无双<br/>（I can see）<br/>还有二十帕 黄金挂钩<br/>摧毁 不停压榨你的机器<br/>（It’s our time）<br/>从此不再做金钱的奴隶<br/>喜联储的大门 永远敞开向你<br/>（Future‘s bright）<br/>前途光明  就在喜币<br/><br/>welcome to the world<br/>to the new world<br/>welcome to the world <br/>Hcoin to the moon<br/><br/>welcome to the world<br/>to the new world<br/>welcome to the world <br/>Hcoin to the moon<br/><br/>Hcoin to the moon<br/>Hcoin to the moon<br/>Hcoin to the moon<br/>Hcoin to the moon
+![img](https://media.gettr.com/group42/getter/2021/11/01/11/31df0ff6-c806-f7e0-aa46-61209a980746/out.jpg)
+
+---
+
 `@miles 11/1/2021 9:37 AM (UTC)`
 
 “HCOIN TO THE MOON” 喜马拉雅币上市庆典
@@ -291,20 +305,6 @@ CNN：蔡英文首次公开承认美国军队正在台湾训练台湾部队<br/>
 
 10月28日：尊敬的战友们好，你们健身了吗？传播C C P病毒真相和疫苗的解药了吗？一切都已经开始！
 ![img](https://media.gettr.com/group15/getter/2021/10/28/12/24/456f8032-0ea4-7612-43af-e811eba354c3/out.jpg)
-
----
-
-`@miles 10/28/2021 8:30 AM (UTC)`
-
-10/27/2021 Miles Guo: The issue of DWAC indicates the scams and criminal offenses committed by Bruno Wu on behalf of the CCP, and this is the greatest gift to the New Federal State of China and will expose the CCP’s infiltration, fraud, and conflict of interest among the lawyers, and in the prosecutors and courts in the US<br/><br/>10/27/2021 文贵直播：DWAC事件证明了代表中共的吴征在美国进行的欺骗和刑事犯罪，这是给新中国联邦带来的最大礼物；它将揭穿中共在美国律师界、检察官和法院的渗透、造假和利益冲突的内幕<br/>
-![img](https://media.gettr.com/group41/getter/2021/10/28/08/30/17e6fc68-e687-20af-175f-7ee09640a133/out.jpg)
-
----
-
-`@miles 10/28/2021 8:08 AM (UTC)`
-
-10/27/2021 Miles Guo: The DWAC incident has caused numerous small investors who support President Trump to be swindled by Bruno Wu, and this will further provoke their hatred towards the CCP and even the Chinese people; Bruno Wu’s deceptive and cunning nature is the best proof of how vicious and how low the CCP really is<br/><br/>10/27/2021 文贵直播：DWAC事件导致支持川普总统的众多小投资者的钱被骗走，这会挑起他们对中共甚至中国人的仇恨；吴征的欺骗和狡诈的本性恰恰佐证了中共真坏、真Low<br/>
-![img](https://media.gettr.com/group30/getter/2021/10/28/08/08/4aa293bf-123e-d307-d8a9-2ae12dcdf302/out.jpg)
 
 ---
 
