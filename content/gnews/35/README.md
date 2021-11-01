@@ -2,26 +2,23 @@
 ---
 
 
-## 日本众院选举快讯：盘点日本众院选举中落选的大佬
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1632167/)
+## 秘翻在线:大多数美国家长不知道中共是美国大学的主要金主之一
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1632241/)
 
-作者：东京樱花团｜文小白
-![](https://lh3.googleusercontent.com/Ze6hf4aSiqkv2vqw8o4ol1QWhets5l6PDOjMSgamfwdXkQb-ZGfAR6rPAtgaITvMQ5g9ab678D9oujEBxWR4jxB94mEjbA6smH1EjabJLG4ZTs9w3-jZO5RwiPLU4SdfGC0oynR7)[*图片来源*](https://static.chunichi.co.jp/image/article/size1/3/f/4/4/3f44404808cf4688d6f3b966f2b1765a_1.jpg)
-据日本雅虎新闻11月1日消息，第49届日本众议院选举尘埃落定，自民党虽然没有达到既定目标，但实现了单独过半数，与公明党合计的执政党议席数确保保了“绝对稳定多数”。可是选举中自民党一众大佬的落选，也为自民党提出了新的课题。
+#### 翻译/撰稿：zzballack
 
-最突出的是，曾历任国土交通大臣、经济再生大臣的石原派领袖、前自民党干事长的石原信照在东京第8区败北，随后的比例选区复活战也以失败告终。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1.jpg)图片来源：CNN
+据《华盛顿自由灯塔》（Washington Free Beacon）10月30日报道，追踪校园问题的非营利组织Lawfare Project 今年9月进行的一项民意调查显示，大多数美国家长不知道中共、沙特阿拉伯和卡塔尔是美国大学的主要金主，并担心外国资金会影响他们孩子的课堂教学内容。大约70%的受访者表示，他们担心外国捐赠会影响教学和研究的重点。
 
-其他落选的大佬有：
+虽然外国对美国大学的广泛资助已经引起了国会和Lawfare Project等团体的警觉，但普通的美国父母却并没有意识到这个问题。有近60%的受访者表示他们不知道这些国家是美国大学的主要捐助者，这部分是因为美国学校没有公开披露其资金来源，而且在许多情况下试图隐藏其与中共国等敌对国家的关系。
 
-谋求第 17 次当选的前自治大臣野田毅（熊本第2区）；前环境大臣原田义昭（福冈第5区）；前地方振兴大臣山本幸三（福冈第10区）。
+这些国家将美国的学术系统视为其宣传工作的核心。中共国试图窃取最先进的研究成果。而卡塔尔已花费数十亿美元在至少28所美国大学开展反犹主义等宣传活动。美国校园里的反犹主义和反以色列态度日益增加，而外国资金帮助煽动了这些运动，这引起了人们对这些外国捐赠的担忧。
 
-此外，在立宪民主党中，日本民主党执政时期的内阁官房长官、选举对策委员会委员长的平野博文（大阪第11区）和党的副代表辻元清美（大阪第10区）均落选失去众议院席位。
+超过80%的受访者表示，国会应颁布立法，要求学校公开说明每一笔外国捐款的详情。中共国对美国大学的资助仍然是家长们最担心的问题，有70%的家长对北京在美国学校的存在表示担忧，65%和57%的人对沙特阿拉伯和卡塔尔表达了类似担忧。Lawfare Project的执行董事布鲁克·戈尔茨坦(Brooke Goldstein)说：“父母有权利知道外国政府在如何干预我们孩子的教育！”
 
-**消息来源：**[**大物落選相次ぐ…自民・石原伸晃氏は比例復活もできず、立民では平野博文氏と辻元清美氏議席失う**](https://news.yahoo.co.jp/articles/dbbe7dd78b8d1a6c5301cf91bdf9a8709cff3f40)
+新闻来源：[Most American Parents Unaware China, Saudi Arabia, Qatar are Major Donors to US Universities](https://freebeacon.com/campus/most-american-parents-unaware-china-saudi-arabia-qatar-are-major-donors-to-us-universities/)
 
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

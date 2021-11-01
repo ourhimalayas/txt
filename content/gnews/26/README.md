@@ -2,15 +2,23 @@
 ---
 
 
-## 新加坡狮城农场预祝喜币喜支付上市成功！
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1632339/)
+## 樱花灭共诗——币鼎中原
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1632441/)
 
-**视频制作：逍遥小哥**
+#### 作者：东京樱花团/深藏不露
+![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
+开天辟地聚盘古，
 
-**策划：人间四月**
+喜马拉雅定乾坤。
 
+暗黑势力尽摧毁，
 
-
+普天同庆谢七哥！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.jpg)
+*插图：东京樱花团/闪闪*
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

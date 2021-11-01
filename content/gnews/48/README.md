@@ -2,41 +2,34 @@
 ---
 
 
-## G20 领导人就全球税收协议达成一致，设定 15% 的最低税率
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1631701/)
+## 突发消息：白宫发言人 Psaki 检测出 COVID-19 呈阳性
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1631747/)
 
-作者：美国香草山金融组 – 德州瑞秋
+翻译：Jenny Ball
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-5.jpg)周日，白宫新闻秘书珍·帕萨基（ Jen Psaki ）的 COVID-19 检测呈阳性，成为公开披露感染了该病毒的最高级别的白宫官员。
 
+“虽然自周三以来我没有与总统或白宫工作人员的高级成员进行过密切接触——并且在最后一次接触后的四天里检测结果呈阴性——但出于充分的透明度，我公开了今天的阳性检测结果，”她在一份声明中说。 “我最后一次见到总统是在周二，当时我们坐在外面，相距六英尺多，戴着口罩。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+她在一份声明中说，在她的一名家庭成员对该病毒呈阳性反应后，普萨基周四选择不与拜登总统和其他工作人员一起前往欧洲。她最后一次在白宫与记者举行了新闻发布会。
 
+**Psaki****说她接种了疫苗并且症状轻微**。在测试呈阴性后，她将在隔离 10 天后重返工作岗位。
 
+新闻秘书通常会定期与总统互动，这使得 Psaki 的阳性测试特别引人注目。拜登本月早些时候接受了他的 COVID-19 加强注射疫苗，但在 78 岁时，如果他感染了该病毒，他仍被认为是高危人群。
 
-在本周罗马举行的 G20 峰会上，拜登总统和其他世界领导人批准了对企业征收15%的全球最低税率，美国政要也希望此举有助于支持拜登总统周四发布的“重建得更好”（“Build Back Better ”）的议程。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture777777777777777777777.jpg)
-在今年 7 月的G20会议上各国就曾对 15% 的最低税率达成一致。该措施在本周六举行的世界经济强国峰会上的得到正式的认可。在一份声明中，财政部长珍妮特·耶伦声称，领导人就国际税收规则达成的最低全球税收协议“将结束对公司税收的破坏性逐底竞争。” 拜登在推特上说：“在 G20 上，代表全球 GDP 80% 的领导人，无论是盟友还是竞争对手，都明确表示支持制定强有力的全球最低税。” “这不仅仅是一项税收协议，它是重塑我们全球经济并为我们的人民提供服务的外交。” 该协议旨在阻止跨国公司将利润储存在他们很少或根本不纳税的国家。如今，跨国公司可以从商标和知识产权中赚取巨额利润。但是他们可以将收入分配给避税天堂国家的子公司。
+总统于周四前往欧洲。此后，他在罗马会见了教皇和 20 国集团领导人。他将于周一和周二参加在格拉斯哥举行的 COP26 气候峰会，然后返回华盛顿特区。
 
-在美国，更新税法需要国会的立法批准，这将面临着通过的重重挑战，因为美国拥有全球 2,000 家最大的跨国公司中的 28%。如将公司海外利润的最低税率从目前的 10.5% 提高到 15%，需要众议院和参议院一致通过这一法案。
+白宫拒绝透露其内部的突破性 COVID-19 案件，除非个人选择公开或与总统直接接触。
 
-此次全球领导人一致批准了对企业征收15%的全球最低税率，可见各国政府都面临着巨大的财政赤字压力，期望通过税收来缓解。然而，企业增加税务成本将会导致全球的物价持续攀升和通货膨胀的情况越发严重。
+其他披露阳性检测结果的高级政府官员包括：国土安全部部长亚历杭德罗·马约卡斯（Alejandro Mayorkas）和国务院发言人内德·普莱斯（Ned Price），他们都接种了疫苗。
 
-参考来源：[https://www.foxbusiness.com/economy/world-leaders-endorse-global-corporate-minimum-tax-at-g20-summit-in-rome](https://www.foxbusiness.com/economy/world-leaders-endorse-global-corporate-minimum-tax-at-g20-summit-in-rome)
+**参考资料：**[newsbreak][White House’s Psaki tests positive for COVID-19](https://www.newsbreak.com/news/2420013910813/white-house-s-psaki-tests-positive-for-covid-19?s=web_push_b_m_breaking)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+* * *
 
-编辑/校对/发稿：Hetangyuese
+*发布：信心的选择*
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-2.jpeg)
 
  
 

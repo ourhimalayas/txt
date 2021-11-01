@@ -2,49 +2,24 @@
 ---
 
 
-## 澳洲首都地区的残疾人支持工作者需强制接种疫苗
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1632103/)
+## 恒大债务是更大经济危机的前奏
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1632190/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.dw.com%2Fimage%2F59518387_303.jpg&amp;imgrefurl=https%3A%2F%2Fwww.dw.com%2Fzh%2F%25E6%2581%2592%25E5%25A4%25A7%25E5%258D%25B1%25E6%259C%25BA%25E5%2587%25BA%25E5%2594%25AE%25E9%2583%25A8%25E5%2588%2586%25E8%2582%25A1%25E6%259D%2583%25E7%25A0%25B4%25E5%25B1%2580-%25E4%25B8%25AD%25E5%259B%25BD%25E7%25A7%25B0%25E9%25A3%258E%25E9%2599%25A9%25E5%258F%25AF%25E6%258E%25A7%2Fa-59569138&amp;tbnid=k84sdE0mqZZaCM&amp;vet=12ahUKEwiv7dDbovbzAhXITPUHHTcaBcIQMygKegUIARCzAQ..i&amp;docid=eW-6voN23xKetM&amp;w=700&amp;h=394&amp;q=%E6%81%92%E5%A4%A7%E5%80%BA%E5%8A%A1%E6%98%AF%E6%9B%B4%E5%A4%A7%E7%BB%8F%E6%B5%8E%E5%8D%B1%E6%9C%BA%E7%9A%84%E5%89%8D%E5%A5%8F&amp;ved=2ahUKEwiv7dDbovbzAhXITPUHHTcaBcIQMygKegUIARCzAQ)
+《中共国有大麻烦了吗？》作者克鲁格曼认为，越是仔细观察中共国维持经济增长的方式，发现的问题也就越多。基本上，中共制造了一个巨大的房地产泡沫掩盖了更深层的失衡。很难想象这一切会有美好的结局。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/28677-iowa-governor-kim-reynolds-signs-law-allowing-workers-to-seek-medical-and-religious-exemptions-from-covid-19-vaccine-mandate-758x506-1.jpg)
+文章说，中共国经济增长放缓并没有什么神秘之处。中国之所以能够实现令人难以置信的快速增长，是得益于对更发达国家的技术借鉴，以及人口从农村向城市的大规模迁移。随着科技的发展和农村劳动力的减少，经济增长必然放缓。此外，独生子女政策让中共国拥有了通常存在于富裕国家的人口结构：劳动适龄人口多年前就达到了顶峰，如今其规模正在萎缩。
 
+中共的政策制定者对制约经济发展的深层问题——中共国人口出生率下降带来的问题被中共国脆弱的社会保障制度放大——再清楚不过，但不知何故一直未能解决。相反，他们在增长放缓的情况下还保持了很高的投资率——主要是通过鼓励在住房建设上的巨额支出。中共国的房地产投资现在都远超美国在2000年房地产泡沫顶峰时期的水平。一切看起来都不可持续，正因如此，许多观察人士担心，房地产巨头恒大的债务问题只是一场更广泛经济危机的前奏。
 
+信息来源：
 
-图片来源：cybernistas.com
+[墙外文摘：恒大债务是更大经济危机的前奏](https://www.dw.com/zh/%E5%A2%99%E5%A4%96%E6%96%87%E6%91%98%E6%81%92%E5%A4%A7%E5%80%BA%E5%8A%A1%E6%98%AF%E6%9B%B4%E5%A4%A7%E7%BB%8F%E6%B5%8E%E5%8D%B1%E6%9C%BA%E7%9A%84%E5%89%8D%E5%A5%8F/a-59679420)
 
-
-#### 编译：小红帽
-
-澳大利亚堪培拉的残疾人支持工作者和社区老年护理人员将被强制接种中共病毒（COVID-19）疫苗。
-
-首都新发布的公共卫生令将要求该行业的工人在11月15日之前接种第一剂疫苗，并在12月13日之前完全接种疫苗。
-
-澳大利亚首都地区卫生部长雷切尔·斯蒂芬-史密斯（Rachel Stephen-Smith）表示，该决定是在与该部门进行了大量会谈之后做出的。
-
-最初提议该行业的工人需要在11月29日之前完全接种疫苗，但在协商后该任务被推迟了两周。
-
-“利益相关者认为澳大利亚首都地区的公共卫生方向应该与新南威尔士州采取的方法更加一致，”斯蒂芬·史密斯(Stephen Smith)女士说。
-
-澳大利亚首都地区的医护人员和教师已被要求全面接种疫苗。
-
-在首都，超过92%的符合条件的12岁及以上人口接种了疫苗。堪培拉人将从周一开始接种加强剂。
-
-六个多月前接种过两剂疫苗的人，现在可以在政府诊所接种辉瑞疫苗加强剂，无论他们之前接种了哪种品牌的疫苗。
-
-同时，免疫功能低下的堪培拉人开始接种疫苗加强剂。
-
-**参考新闻：**[Vaccine mandate for ACT disability workers (thenewdaily.com.au)](https://thenewdaily.com.au/news/state/act/2021/11/01/vaccine-mandate-for-act-disability-workers/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

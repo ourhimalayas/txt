@@ -2,54 +2,26 @@
 ---
 
 
-## 布林肯警告中共不要对台湾采取单方面行动
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1631465/)
+## 香草山翻译部周刊|2021年10月31日第20期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1631522/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/C-8.jpg)thailanddaily.com
-《日经》（The Nikkei）转发路透社发表的文章，题目是“布林肯警告中共不要对台湾采取单方面行动”。【1】
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/text-CN-2.png)
+文章仅代表作者本人观点，与Gnews无关
 
-全文如下：
+总编： GBWater
+编辑： Lakers
+发稿： Lakers
 
-路透社罗马报道，美国国务院一位高级官员说，美国国务卿安东尼·布林肯周日（10月31日）对中共外交部长表示，美国反对中共加剧台湾海峡紧张局势的行动。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-17.png)
 
-这位官员说，布林肯在20国集团峰会期间与中共外交部长王毅进行了长达一小时的会晤，他“非常明确”地表示，华盛顿反对北京单方面改变台海那里的现状。
-
-最近中共在台湾防空识别区的军事演习有所增加，这是台北认为北京加强军事骚扰的一部分。中共声称该岛是其领土的一部分，并认为任何外国对台湾的干涉都是对其内政的干涉。
-
-这位国务院官员表示，美国希望负责任地管理世界两大经济体之间的激烈竞争，并补充说，双方都承认开放的沟通渠道至关重要。
-
-布林肯和王毅的会面是他们自3月份在阿拉斯加州安克拉奇（Anchorage）激烈交锋以来的第一次面对面会晤，当时美国和中共官员罕见地公开谴责对方的国家政策。
-
-这位官员说，星期日（10月31日）在罗马举行的会议“非常坦率”但富有成效，有助于为今年晚些时候美国总统拜登和中共习近平主席举行虚拟峰会奠定了基础。
-
-与大多数国家一样，美国与台湾没有正式外交关系，但华盛顿是台湾最重要的国际支持者和主要武器供应商，法律要求它提供自卫手段。
-
-美国长期以来一直奉行“战略模糊”的政策，即在如果中共发动袭击美国是否会进行军事干预以保护台湾问题上没有明确，尽管拜登上周表示，如果有必要美国将保护台湾。
-
-这位官员说，布林肯明确表示，华盛顿没有改变其对台湾的“一中”政策。
-
-这位官员说，下周将出席在格拉斯哥（Glasgow）举行的COP26联合国气候大会的美国高级外交官敦促中共国履行其作为负责任大国在限制排放方面的义务。
-
-美国务院还表示，他还担心中共其他“破坏了国际规则秩序，违背了我们的价值观和利益” 的行为，包括人权问题、新疆、西藏、香港问题以及东海、南中国海问题。
-
-这位官员说，布林肯和王毅没有讨论中共国最近进行的一次高超音速武器试验，军事专家说，这一试验似乎表明，北京正在寻求一种旨在躲避美国导弹防御的地球轨道系统。
-
-（原文完）
-
-笔者对媒体高调渲染布林肯的这种表态有点怀疑，于是查找了美国国务院的新闻稿，以下是新闻稿全文：【2】
-
-美国国务卿安东尼·布林肯今天（10月31日）在罗马会见了中共国务委员兼外交部长王毅，布林肯国务卿强调了保持开放的沟通渠道，以及负责任地管理美国和中共国之间的竞争的重要性。国务卿肯定了我们利益交汇的领域以及我们可以合作的领域，包括朝鲜、缅甸、伊朗、阿富汗和气候危机。他还对中共国的一些行动提出了担忧，这些行为破坏了国际规则秩序，违背了我们的价值观和利益，也违背了我们的盟友和伙伴，包括人权问题，新疆、西藏、香港问题，东海、南中国海和台湾等方面的行动。
-
-国务院稿的确没有像路透社说得那样强硬，“警告中共不要对台湾”，甚至不敢把台湾问题单列强调，只能说明美国国务院、拜登政府某种程度上的恐共、惧共。当然，《日经》等媒体也不会无中生有，空穴来风，布林肯一定作了这样的表达，只不过在怯共心态下官方发布时又改了调门。
-
-有关链接：
-
-【1】[https://asia.nikkei.com/Spotlight/G-20-summit-2/Blinken-warns-China-against-unilateral-action-regarding-Taiwan](https://asia.nikkei.com/Spotlight/G-20-summit-2/Blinken-warns-China-against-unilateral-action-regarding-Taiwan)
-
-【2】[https://www.state.gov/secretary-blinkens-meeting-with-prc-state-councilor-and-foreign-minister-wang/](https://www.state.gov/secretary-blinkens-meeting-with-prc-state-councilor-and-foreign-minister-wang/)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
