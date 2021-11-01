@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/1/2021 9:37 AM (UTC)`
+
+“HCOIN TO THE MOON” 喜马拉雅币上市庆典
+![img](https://media.gettr.com/group30/origin/2021/11/01/09/114a50be-85ff-f9a7-eec1-20b602a50f71/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@himalayaitaly 10/31/2021 8:05 PM (UTC)`
@@ -298,13 +305,6 @@ CNN：蔡英文首次公开承认美国军队正在台湾训练台湾部队<br/>
 
 10/27/2021 Miles Guo: The DWAC incident has caused numerous small investors who support President Trump to be swindled by Bruno Wu, and this will further provoke their hatred towards the CCP and even the Chinese people; Bruno Wu’s deceptive and cunning nature is the best proof of how vicious and how low the CCP really is<br/><br/>10/27/2021 文贵直播：DWAC事件导致支持川普总统的众多小投资者的钱被骗走，这会挑起他们对中共甚至中国人的仇恨；吴征的欺骗和狡诈的本性恰恰佐证了中共真坏、真Low<br/>
 ![img](https://media.gettr.com/group30/getter/2021/10/28/08/08/4aa293bf-123e-d307-d8a9-2ae12dcdf302/out.jpg)
-
----
-
-`@miles 10/28/2021 5:19 AM (UTC)`
-
-10/27/2021 Miles Guo: Two years ago, Bruno Wu was criminally investigated, however, the merger deal between DWAC and Trump's media platform failed to disclose that, so Bruno Wu will go to jail, and the merger deal will surely be subject to a criminal investigation<br/><br/>10/27/2021 文贵直播：吴征在两年前被刑事调查，但DWAC和川普媒体平台的并购交易却并未披露相关信息，吴征将因此而进监狱，且该并购交易也必将被刑事调查<br/>
-![img](https://media.gettr.com/group4/getter/2021/10/28/05/19/59b5a8d1-60cf-0b90-e05a-244227103d35/out.jpg)
 
 ---
 
