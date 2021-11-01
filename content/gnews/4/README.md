@@ -2,54 +2,21 @@
 ---
 
 
-## GFashion CEO达舒什女士为设计师推荐书籍
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1631958/)
+## 大量俄罗斯部队向乌克兰边境集结引起美国和欧洲的警觉
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1632078/)
 
-作者：纽约香草山文艺部 – 宁文静
+撰稿：Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片3-17.png)
+图片来源：k.sina.cn
 
+零对冲网10月31日报道，大批俄罗斯部队在乌克兰边境处集合，西方领导人正在发出警告，在顿巴斯和克里米亚可能会冲突。华盛顿邮报周六已报道，有一大批更新了的俄罗斯部队在乌克兰边境聚集，引起美欧西方领导人对俄罗斯西部地区的注意，因为此次装备和人员的调动并非常规行为。
+此次针对基辅的行动是自四月份以来再次因俄罗斯大规模调集兵力前往乌克兰边境的行为，而引起西方对俄罗斯的紧张。但克林姆林宫则声称这只是部队在本国境内的自由调动。
+华盛顿邮报的周末报告也承认此次部队调动的目的“尚不清楚”，只是说看起来不像是训练演习。
+乌克兰国家安全与国防委员会参谋长阿列克西·丹尼洛夫在一份报告中指出，俄罗斯与白俄罗斯等国家2021年联合军演后，就在乌克兰边境训练地区留下了装备和控制及通讯中心，估计约有8万到9万俄罗斯的军队派驻在乌克兰边境，还不包括来自克里米亚的上万个驻军。
+近几个月来，克里姆林宫指责乌克兰向东部亲俄罗斯的武装分离分子发起进攻，而乌克兰则指责俄罗斯政府偷偷向他们运送武器，挑起事端。普京和其他俄罗斯领导人一直警告乌克兰和北约不要越过俄罗斯关于北约不能东扩至乌克兰。
+普京去年夏天就指责西方，尤其美国正事实上控制乌克兰的高级领导人。他说：“我们不允许那片历史曾与我们密切相关的领土和其上的人民被用来反对俄罗斯。我想说他们这样做得破坏他们自己的国家。”
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
-
-
-
-10月22日，多阿·达舒什女士在盖特上分享了一篇由她本人撰写的文章，向GFashion旗下的设计师推荐了几本必读书。
-
-![](https://doaadashoush.com/wp-content/uploads/doaadashoush-com/sites/851/Doaa-Dashoush-GFASHION-5-1080x675.png)图片来源：DoaDashoush.net
-
-文中说到，时装设计师不只是坐下来勾勒设计，还要从书本的阅读中受益，例如，在《时装设计师生存指南》中，通过一些顶级设计师的见解，学习服装材料、管理、营销和生产以及 服装秀制作人的经验；《时尚素描本》一书中直观展示了设计思路，包括绘制姿势、身体形态、服装和配饰等；通过阅读《为时装业写作》，可以融合不同的时尚行业写作技巧。
-
-达舒什女士在时装行业具有丰富的经验，目前担任GFashion的总裁兼首席执行官。GFashion自运营以来，其不遵循传统的设计风格、奢侈舒适的面料、独特的制作工艺，得到了各界人士的青睐。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-[中国人大常委会三审家庭教育促进法草案 孩子犯事将惩戒家长](https://www.voachinese.com/amp/China-drafts-law-to-punish-parents-for-children-s-bad-behaviour-20211018/6275463.html)
-
-[New China Law Will Punish Parents For Children’s ‘Bad Behavior’](https://www.zerohedge.com/political/new-china-law-will-punish-parents-childrens-bad-behavior)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+# **新闻来源： **[Large-Scale Russian Troop Movements Along Ukraine Border Spark Alarm In US & Europe](https://www.zerohedge.com/geopolitical/new-large-scale-russian-troop-movements-along-ukraine-border-spark-alarm-us-europe)
 
  
 

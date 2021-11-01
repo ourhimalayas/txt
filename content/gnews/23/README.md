@@ -2,24 +2,50 @@
 ---
 
 
-## 诡异：中共对布林肯警告不要在台海采取单边行动集体静默
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1631746/)
+## 飞机着火坠毁，21名乘客奇迹生还
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1631887/)
 
-#### 加拿大多伦多枫叶农场 丁过
-![](https://assets.gnews.org/wp-content/uploads/2021/10/mobile01-6d825ed55fb211723145869b9aeabae5.jpg)来源：mobile01
-德国之声31日报道，在意大利罗马举办的20国集团峰会期间，美国国务卿布林肯同中共外长王毅举行了会谈。美国一位高官透露，会谈中布林肯以“最明确的措辞”警告王毅：美国坚决反对中国采取加剧台海紧张局势的行动。
+作者：纽约香草山信息部 – 6zero4
 
-这是拜登政府上台以来，作为外交一把手的美国国务卿在正式外交场合对中共的最强硬表态，并被美方高官有意透露给媒体，说明美中双方的博弈正朝着深水区发展。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/333e1223af4235cedc8bd33bc94fa2f3.jpg)来源：环球网
-诡异的是，中共外交部官网及记者会在对本次会谈的回应中，只字不提布林肯的严厉警告，只说王毅如何教训布林肯。中共国所有的官方媒体及社交网站包括非常激进的环球时报，统统和中共外交部的口径高度一致，让翻墙即入刑的墙内民众误认为美国已经对中共臣服。
 
-布林肯的这个警告要是放在以前，早就在中共国炸开了锅，那么问题来了，现在的中共为什么如此隐忍和安静呢？可能的原因无非两个：一是双方迫于舆论和政敌压力，需要各自演戏予以化解，实际上是一种心照不宣的配合；二是中共真要对台湾动手了，在发起攻击前制造一种平和的假象，为成功突袭夺得先机。
 
-参考来源：
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-[布林肯警告中国不要在台海采取单边行动](https://www.dw.com/zh/布林肯警告中国不要在台海采取单边行动/a-59678781)
 
-（文章仅代表作者观点，与GNEWS无关）
+
+10月19日上午，房产公司Flair Builders高管肯特（J. Alan Kent）的单通道大型私人飞机MD-87从休斯敦行政机场起飞前往波士顿。然而，飞机在跑道尽头因没有达到起飞高度而撞到了机场围栏并起火。最后，飞机穿越了一条公路并坠毁在一片田野上。奇迹的是，所有21名乘客和机组人员都从被火球吞没的飞机残骸中安全逃生。据了解，只有一人背部受伤被送医救治。此事件创造了航空事故人员伤亡数据接近零的奇迹！
+
+![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/jetcrshhouston.jpg?itok=c3yrz1rP)图片来源：FOX
+
+文贵先生创立并引领的爆料革命，一直在灭共和唤醒世界的道路上创造了目不暇接的奇迹。而今，中共的经济、政治、军事和社会等各方面都严重后院起火，这所“破船”就如这架MD-87私人飞机，无可避免地即将坠毁。但是，所有墙内跟随文贵先生的战友就是MD-87飞机上的乘客——他们将全部幸运逃生。事实上，新中国联邦就是MD-17飞机最后的坠毁地，中共必将被摧毁在爆料革命的战场上！
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+[“Miraculous”: All 21 Passengers Walk Away From Fiery Private Jet Crash Outside Houston](https://www.zerohedge.com/medical/miraculous-all-21-passengers-walk-away-fiery-private-jet-crash-outside-houston)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
  
 

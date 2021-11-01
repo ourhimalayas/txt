@@ -2,34 +2,54 @@
 ---
 
 
-## 突发消息：白宫发言人 Psaki 检测出 COVID-19 呈阳性
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1631747/)
+## 23岁地产公司新员工酒店身亡
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1631897/)
 
-翻译：Jenny Ball
+作者：纽约香草山商业部 – 秋末的落叶
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-5.jpg)周日，白宫新闻秘书珍·帕萨基（ Jen Psaki ）的 COVID-19 检测呈阳性，成为公开披露感染了该病毒的最高级别的白宫官员。
 
-“虽然自周三以来我没有与总统或白宫工作人员的高级成员进行过密切接触——并且在最后一次接触后的四天里检测结果呈阴性——但出于充分的透明度，我公开了今天的阳性检测结果，”她在一份声明中说。 “我最后一次见到总统是在周二，当时我们坐在外面，相距六英尺多，戴着口罩。”
 
-她在一份声明中说，在她的一名家庭成员对该病毒呈阳性反应后，普萨基周四选择不与拜登总统和其他工作人员一起前往欧洲。她最后一次在白宫与记者举行了新闻发布会。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-**Psaki****说她接种了疫苗并且症状轻微**。在测试呈阴性后，她将在隔离 10 天后重返工作岗位。
 
-新闻秘书通常会定期与总统互动，这使得 Psaki 的阳性测试特别引人注目。拜登本月早些时候接受了他的 COVID-19 加强注射疫苗，但在 78 岁时，如果他感染了该病毒，他仍被认为是高危人群。
 
-总统于周四前往欧洲。此后，他在罗马会见了教皇和 20 国集团领导人。他将于周一和周二参加在格拉斯哥举行的 COP26 气候峰会，然后返回华盛顿特区。
+当地时间2021年10月20日，根据大陆新浪微博猫头鹰视频账号消息称，大陆一名23岁的地产公司女性员工被已婚上司带去开房并死亡。尸检报告称，该女性因七氟烷中毒导致急性呼吸、循环功能障碍而死亡。
 
-白宫拒绝透露其内部的突破性 COVID-19 案件，除非个人选择公开或与总统直接接触。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/50.jpg)图片来源：新浪微博视频截图
 
-其他披露阳性检测结果的高级政府官员包括：国土安全部部长亚历杭德罗·马约卡斯（Alejandro Mayorkas）和国务院发言人内德·普莱斯（Ned Price），他们都接种了疫苗。
+根据视频新闻线索，该用人单位名为“梅州市敏捷建筑工程有限公司”，其法定代表人名叫王铭。死者为入职该公司不到一个月的女性员工。另外，死者的母亲是聋哑人，父亲也有残疾，且离家多年未归。
 
-**参考资料：**[newsbreak][White House’s Psaki tests positive for COVID-19](https://www.newsbreak.com/news/2420013910813/white-house-s-psaki-tests-positive-for-covid-19?s=web_push_b_m_breaking)
+但是，中共媒体的新闻并没有明确该事件调查全程的详细情况，也没有提及该事件的任何后续处理情况，且报道中的多处言论自相矛盾。
 
-* * *
+事实上，中共墙内生活的民众，其弱势群体的意外死亡案例比比皆是，而且总是没有后续。
 
-*发布：信心的选择*
+（本文仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1-3-2.jpeg)
+参考阅读：
+
+#23岁地产公司新员工酒店身亡#，凌晨3点被已婚男上司带去开房\_https://weibo.com/tv/show/1034:4602465610563685?from=old\_pc\_videoshow
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
  
 

@@ -2,30 +2,35 @@
 ---
 
 
-## 疫情反复、航油价格上涨，三大航三季度亏损80亿
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1632017/)
+## 如果联合国财务公开，马斯克允诺赠款解决世界饥饿
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1632093/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/163542927431113700_a640x364.jpg)疫情反复、航油价格上涨，三大航三季度亏损80亿 网络图片
-据新浪科技10月31日报道，继二季度亏损近百亿元后，国航、东航、南航10月29日发布三季报。因疫情原因，三大航三季度平均亏损约26亿。国航净亏损35.36亿元，南航营收269.19亿元，为三家最高。
+#### 整理报道：月映万川 
 
-三家航空公司总结业绩下滑的原因为：新冠疫情导致出行减少；航油价格上涨；汇率波动，人民币升值幅度减弱。于是，不管发展，只管涨价的发改委又出了新规定，航空公司可自主确定国内航线旅客燃油附加费。
+#### 编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/10/习近平-2.jpeg)**图片来源：Republicworld.com**
+11月1日，世界首富埃隆·马斯克针对一位联合国的官员的说法提出了挑战。这位官员称，只要马斯克拿出一小部分财产，就能帮助世界解决饥饿问题。
 
-2018年6月5日，航空公司恢复征收国内航线燃油附加费；2019年1月5日，暂停收取。近日，已有航空公司宣布恢复征收燃油附加费。换汤不换药，CCP治下降低成本和盈利的基础就是让老百姓买单，把价格加到老百姓身上。虽然已经没有多少利润，但老百姓的血能吸多少就吸多少，这是CCP邪恶的本质。
+这位官员是联合国粮食食品项目计划署署长大卫·比斯利。上周他又一次重复了本月初他的推特里提到的，对于像马斯克这样的亿万富豪，“他们需要挺身而出，只要一次就好”。
 
-新闻参考链接：[https://finance.sina.cn/2021-10-31/detail-iktzqtyu4545963.d.html?sinawapsharesource=newsapp](https://finance.sina.cn/2021-10-31/detail-iktzqtyu4545963.d.html?sinawapsharesource=newsapp%25EF%25BC%2588%25E6%258E%25A8%25E8%258D%2590%25E5%2588%25B0%25E5%25A2%2599%25E5%2586%2585%25E8%2581%259A%25E9%259B%2586%25E5%258C%25BA%25EF%25BC%2589)
+大卫先生不断强调，“60亿美元能够拯救4.2千万即将饿死的人口”。
 
-* * *
+马斯克在自己的推特指出，如果世界粮食计划署“能够做出一个准确计划来使用这60亿美元解决世界饥饿问题，我现在就卖掉特斯拉的股票去行动……但是，联合国粮食计划署的支出计划必须要有公开的账目，并保证大众的知情权”。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+60亿美元只是目前马斯克个人净资产的一小部分。他的个人资产已经达到3110亿美金。而仅仅在10月29日这一天，他的个人净资产就增加了93亿美元。
 
+目前，这位联合国世界粮食计划署官员尚未回应。
 
-编辑：【英国伦敦喜庄园编辑部】
+新闻链接：[Elon Musk tweets that he’ll donate $US6 billion to end world hunger, if the United Nations’ World Food Program can provide ‘open source accounting’ to show public precisely how the money is spent (afr.com)](https://www.afr.com/world/north-america/elon-musk-says-he-ll-donate-8b-to-end-world-hunger-on-one-condition-20211101-p594tf)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+发布：文泓
 
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

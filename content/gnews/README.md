@@ -15,110 +15,110 @@
 
 ---
 
-### [疫情反复、航油价格上涨，三大航三季度亏损80亿](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [速报：自民党现任秘书长首次小选区落选 岸田首相考虑替换方案](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [GTV新闻访谈简报|2021年10月31日晚](/content/gnews/3/README.md)
- ` 纽约香草山MOS01`
-
-### [GFashion CEO达舒什女士为设计师推荐书籍](/content/gnews/4/README.md)
- ` 纽约香草山MOS02`
-
-### [中共国将在塔吉克斯坦与阿富汗边境建立军事基地](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021/10/31文贵先生盖特直播精要](/content/gnews/6/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美国白宫新闻发言人接种疫苗后仍然感染中共病毒](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共新法：孩子“犯事”，家长“连坐”](/content/gnews/8/README.md)
- ` 纽约香草山MOS02`
-
-### [中共病毒爆发，导致东京市中心住房成本持续上涨](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [何炅作为娱乐行业大咖受到打压](/content/gnews/10/README.md)
+### [如果联合国财务公开，马斯克允诺赠款解决世界饥饿](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [速报：在野党联手展开激战 自民党确保“绝对稳定多数”](/content/gnews/11/README.md)
+### [速报：立宪民主党小泽一郎比例选区复活当选](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [23岁地产公司新员工酒店身亡](/content/gnews/12/README.md)
- ` 纽约香草山MOS02`
+### [世卫组织部署为非洲6-24月龄婴儿施打有争议的疟疾“疫苗”](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [飞机着火坠毁，21名乘客奇迹生还](/content/gnews/13/README.md)
- ` 纽约香草山MOS02`
+### [大量俄罗斯部队向乌克兰边境集结引起美国和欧洲的警觉](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [喜币的“价格自适应机制”和“增发机制”写在喜币上市前](/content/gnews/14/README.md)
+### [白宫新闻秘书普萨基感染中共病毒 已接种过疫苗](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [喜幣的「價格自適應機製」和「增發機製」](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [郭文贵先生给国内战友的建议](/content/gnews/15/README.md)
+### [中共国三分之二的顶级房开发商违反了国家的债务“红线”](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [雅典娜时报-第099期](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [喜币的“价格自适应机制”和“增发机制”](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [华尔兹议员抨击美公司为赚钱罔顾中共国家威胁](/content/gnews/16/README.md)
+### [疫情反复、航油价格上涨，三大航三季度亏损80亿](/content/gnews/10/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [速报：自民党现任秘书长首次小选区落选 岸田首相考虑替换方案](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [韩总统文在寅在G20峰会首次表明韩国碳中和目标](/content/gnews/12/README.md)
+ ` 首尔天池农场`
+
+### [GTV新闻访谈简报|2021年10月31日晚](/content/gnews/13/README.md)
+ ` 纽约香草山MOS01`
+
+### [GFashion CEO达舒什女士为设计师推荐书籍](/content/gnews/14/README.md)
+ ` 纽约香草山MOS02`
+
+### [中共国将在塔吉克斯坦与阿富汗边境建立军事基地](/content/gnews/15/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2021/10/31文贵先生盖特直播精要](/content/gnews/16/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美国白宫新闻发言人接种疫苗后仍然感染中共病毒](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共新法：孩子“犯事”，家长“连坐”](/content/gnews/18/README.md)
+ ` 纽约香草山MOS02`
+
+### [中共病毒爆发，导致东京市中心住房成本持续上涨](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [何炅作为娱乐行业大咖受到打压](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [速报：在野党联手展开激战 自民党确保“绝对稳定多数”](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [23岁地产公司新员工酒店身亡](/content/gnews/22/README.md)
+ ` 纽约香草山MOS02`
+
+### [飞机着火坠毁，21名乘客奇迹生还](/content/gnews/23/README.md)
+ ` 纽约香草山MOS02`
+
+### [喜币的“价格自适应机制”和“增发机制”写在喜币上市前](/content/gnews/24/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [郭文贵先生给国内战友的建议](/content/gnews/25/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [华尔兹议员抨击美公司为赚钱罔顾中共国家威胁](/content/gnews/26/README.md)
  ` HimalayaRussia`
 
-### [加拿大将向国际组织捐赠莫德纳疫苗](/content/gnews/17/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [善用喜币喜联储代理权，让你成为永恒的罗斯柴尔德](/content/gnews/18/README.md)
+### [善用喜币喜联储代理权，让你成为永恒的罗斯柴尔德](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [英政府报告：完全接种者的免疫系统正衰退殆尽](/content/gnews/19/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [G20峰会澳洲总理呼吁国际社会继续调查新冠病毒起源](/content/gnews/20/README.md)
- ` 墨尔本雅典娜农场`
-
-### [快讯：日本众议院选举所有议席确定](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [突发消息：白宫发言人 Psaki 检测出 COVID-19 呈阳性](/content/gnews/22/README.md)
+### [突发消息：白宫发言人 Psaki 检测出 COVID-19 呈阳性](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [诡异：中共对布林肯警告不要在台海采取单边行动集体静默](/content/gnews/23/README.md)
- ` 丁过`
-
-### [加拿大旅行用疫苗护照于10月30日正式生效](/content/gnews/24/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [我们走在正道主义大路上——祝贺喜币上市！](/content/gnews/25/README.md)
+### [我们走在正道主义大路上——祝贺喜币上市！](/content/gnews/29/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [日本要闻汇编 10月31日](/content/gnews/26/README.md)
+### [日本要闻汇编 10月31日](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [爱尔兰沃特福德揭露新冠疫苗是骗局](/content/gnews/27/README.md)
+### [爱尔兰沃特福德揭露新冠疫苗是骗局](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [杰森·米勒：疫苗强制令导致美国社会分裂](/content/gnews/28/README.md)
+### [杰森·米勒：疫苗强制令导致美国社会分裂](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [杰森·米勒：佛州州长将成为2024总统大选中最具领导力候选人](/content/gnews/29/README.md)
+### [杰森·米勒：佛州州长将成为2024总统大选中最具领导力候选人](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [新中国联邦的三大优势：有信仰、有人才、有货币](/content/gnews/30/README.md)
- ` GTV新闻访谈`
-
-### [《新西兰先驱报》公然扭曲报道去年战友们的抗议活动](/content/gnews/31/README.md)
- ` GTV新闻访谈`
-
-### [喜币上市在即，郭文贵先生和战友们相约庆典直播](/content/gnews/32/README.md)
- ` GTV新闻访谈`
-
-### [2018月5日11日 郭文贵先生公布2017年5月1日至2日与刘彥平通话全文字版](/content/gnews/33/README.md)
+### [2018月5日11日 郭文贵先生公布2017年5月1日至2日与刘彥平通话全文字版](/content/gnews/34/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [G20 领导人就全球税收协议达成一致，设定 15% 的最低税率](/content/gnews/34/README.md)
+### [G20 领导人就全球税收协议达成一致，设定 15% 的最低税率](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
-
-### [香港实施【电影审查法】影视辉煌恐难再现](/content/gnews/35/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
 
 ### [酩悦香槟 (Moët)，一个普世成功的品牌](/content/gnews/36/README.md)
  ` 纽约香草山MOS03`

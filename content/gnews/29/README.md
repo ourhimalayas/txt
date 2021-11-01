@@ -2,40 +2,62 @@
 ---
 
 
-## 杰森·米勒：佛州州长将成为2024总统大选中最具领导力候选人
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1631720/)
+## 我们走在正道主义大路上——祝贺喜币上市！
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1631729/)
 
-作者：澳喜农场 – 在远方
+作者：春晖   华盛顿DC农场
 
+演唱：初晓 
+素材：Yetta   36CIA
+视频制作：36CIA 
+字幕：36CIA
 
+我们走在大路上，
+联合灭共斗志昂扬，
+喜马拉雅山七星飞舞，
+喜币喜讯传向四方。
+向前进！向前进！
+灭共潮流不可阻挡，
+向前进！向前进！
+朝着胜利的方向。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+七芒星旗迎风飘扬，
+新中国联邦发奋图强，
+誓要夺回锦绣河山，
+快把国贼扫进坟场。
+向前进！向前进！
+正道主义不可阻挡，
+向前进！向前进！
+朝着胜利的方向。
 
+我们的道路多么宽广，
+我们的前程无比辉煌，
+我们献身这壮丽的事业，
+无限幸福无上荣光。
+向前进！向前进！
+正道主义不可阻挡，
+向前进！向前进！
+朝着胜利的方向。
+朝着胜利的方向——
 
+* * *
 
-10月30日，盖特首席执行官杰森·米勒先生接受News Max采访。
+**欢迎阅读更多【春晖专栏】文章：**
+[花环与圈套](https://gnews.org/zh-hans/1532235/)
+[夜雨乱谈兵](https://gnews.org/zh-hans/1353630/)
+[歌词 勇士壮歌行](https://gnews.org/zh-hans/1427092/)
+[围观一场裸奔中的忽悠](https://gnews.org/zh-hans/1415426/)
+[风 马 牛，外面有狼](https://gnews.org/zh-hans/1409824/)
+[春晖信箱之一](https://gnews.org/zh-hans/1257354/)
+[春晖信箱之二](https://gnews.org/zh-hans/1324736/) 
+[春晖信箱之三](https://gnews.org/zh-hans/1338771/)
+[给翠花的绝交信](https://gnews.org/zh-hans/1195451/)
+[金哨吹响爱飞扬](https://gnews.org/zh-hans/1195535/) 
+[“八卦”使人长寿](https://gnews.org/zh-hans/1195566/) 
+[中国人的美国梦之一](https://gnews.org/zh-hans/1229846/) 
+[中国人的美国梦之二](https://gnews.org/zh-hans/1288730/) 
+[中国人的美国梦之三](https://gnews.org/zh-hans/1362811/)
 
-主持人提到，佛罗里达州州长德桑提斯宣布，将就拜登政府的疫苗强制令提起诉讼，还会为全美各地失去工作的警察，每人提供5000美金搬家费，欢迎前往佛州工作。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-14.jpg)
-杰森·米勒先生称赞说，德桑提斯州长在这些事情上，已经展现出相当强的领导力。虽然他仍然希望川普总统在2024年继续竞选总统，而且他认为川普总统显然会遥遥领先。但是，如果出于某种原因川普总统不能参选，德桑提斯州长将会是总统大选中绝对的领跑者。
-
-他很确定德桑提斯州长，在面对民主的真谛时所展现出的反对大政府的领导力，尤其是在过去几年中，州长的表现非常优秀。
-
-参考链接：[杰森·米勒：佛州州长将成为2024总统大选中最具领导力候选人](https://gettr.com/post/pfp2r74147)
-
-![This image has an empty alt attribute; its file name is October.jpg](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
