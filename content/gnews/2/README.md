@@ -2,34 +2,20 @@
 ---
 
 
-## 有声|贼喊捉贼 共军扰台军机竟首先广播驱离台湾军机
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1633702/)
+## 秘翻在线: 北京小区多处因疫情被封闭管理
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1633730/)
 
-配音：香草山美食部-玫瑰园
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed.jpg)图片来源：网络截屏
+据新浪网11月1日报道，北京再现本土疫情。此次蔓延中共国各地的疫情呈多点散发，已涉及到16省、自治区和直辖市。同日，北京市委新闻发布会上要求市民继续坚持非必要不出境、不出京，对于在外出差的人如有与已知病例有时空重合，应暂缓回京的政策。
 
-10月29日中午，共军扰台飞机，竟然对台湾军机近距离广播称，台湾地区飞机已经危及共军军机飞行安全，并让其立即离开。
+北京本土病例已有31例，涉及到多个区县， 而号称“亚洲最大社区”的天通苑，也在11月1日晚加入了多个小区，施行封闭管理，“只进不出”，且居民要连夜排队做核酸检测。本轮疫情均为德尔塔变异毒株，与西北地区属同一传播链。
 
-据统计，共军2021年已累计入侵台湾空域214天，本月累计入侵台湾空域18天。本月台军广播驱离记录108次，2021年累计广播驱离已达647次。
+对于官方的说法，此次疫情源头来自内蒙古额济纳旗，并初步判定为境外输入。就此说法，网民们评论“他们入境前的核算都白做了吗？他们没打疫苗吗？他们怎么没有传染机组人员？他们怎么那么幸运就到中国发病来了？”中共国对疫情的来源、管控一直在欺骗大众，等到真相一日曝光，就是这个极权政府倒闭之时。
 
-近日，台湾总统蔡英文、美国总统拜登对美台关系的讲话，以及蔡英文首次证实有美军驻训台湾的事情，已经深深刺痛了中共的敏感神经，加剧共军扰台。
-
-文字版原文：[贼喊捉贼 共军扰台军机竟首先广播驱离台湾军机](https://gnews.org/zh-hans/1631283/)
-
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-
+**新闻来源：**[北京天通苑北二区封闭管理测核酸，小区只进不出|北京市|核酸|新冠肺炎\_新浪新闻 (sina.com.cn)](https://k.sina.com.cn/article_1411163204_541ca444020012te1.html)
 
  
 
