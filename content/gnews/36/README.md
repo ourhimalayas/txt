@@ -2,35 +2,34 @@
 ---
 
 
-## 如果联合国财务公开，马斯克允诺赠款解决世界饥饿
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1632093/)
+## 中共国地方政府债务风险之一：借新还旧难偿债
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1632111/)
 
-#### 整理报道：月映万川 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/nimg.ws_.126.net_-2.jpg)中共国地方政府债务风险之一：借新还旧难偿债 网络图片
+据大卫手工活10月31日报道，近些年，随着2万多亿地方债以及近3万亿城投债到期兑付高峰的到来，地方政府债务风险事件频发。
 
-#### 编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/习近平-2.jpeg)**图片来源：Republicworld.com**
-11月1日，世界首富埃隆·马斯克针对一位联合国的官员的说法提出了挑战。这位官员称，只要马斯克拿出一小部分财产，就能帮助世界解决饥饿问题。
+地方政府债务是指按照法律、合约的形式明确记载和规定需要由地方政府来偿还的债务，政府需要对此承担法律义务。除此之外，地方城投平台和国有企业等举债，由政府提供担保或实质上承担偿还义务的债务，为隐性债务。1994年，地方政府财政收入大部分上交中央，因此地方政府不得不通过各种渠道举债以缓解财政压力。
 
-这位官员是联合国粮食食品项目计划署署长大卫·比斯利。上周他又一次重复了本月初他的推特里提到的，对于像马斯克这样的亿万富豪，“他们需要挺身而出，只要一次就好”。
+2008年财政部明确规定地方政府可利用融资平台通过市场机制筹措配套资金。2020年末，地方政府显性债务余额为256,615亿元，主要以政府债券形式存在。2020年度兑付金额为20,757亿元。地方政府对到期债券的兑付基本上是通过发行再融资债券完成的，即“借新还旧”。地方政府基本上丧失了自给自足偿还债务的能力。
 
-大卫先生不断强调，“60亿美元能够拯救4.2千万即将饿死的人口”。
+除了显性债务，截至2019年底，地方政府隐性债务总额有514,430亿元。2021年地方债到期规模为26,680亿，城投债为29,503亿。在债务偿还高峰期的背景下，部分地区债务压力凸显，信用风险事件频发，地方国企和城投平台非标债券违约增多。2020年11月永煤集团违约，相关责任人撤职，河南省融资环境恶化。
 
-马斯克在自己的推特指出，如果世界粮食计划署“能够做出一个准确计划来使用这60亿美元解决世界饥饿问题，我现在就卖掉特斯拉的股票去行动……但是，联合国粮食计划署的支出计划必须要有公开的账目，并保证大众的知情权”。
+借钱度日救得了一时，救不了一世。拆东墙补西墙的结果是，哪面墙都千疮百孔，随时都会倒塌。中共国的经济就像一堵摇摇欲坠的墙，怎么补都解决不了问题。伪中央政府已经自顾不暇，地方政府也只能背着债得活一时算一时。只有彻底推翻CCP，追回盗国贼偷走的国家财富，地方政府和民生大众才有活路。
 
-60亿美元只是目前马斯克个人净资产的一小部分。他的个人资产已经达到3110亿美金。而仅仅在10月29日这一天，他的个人净资产就增加了93亿美元。
+新闻参考链接：[https://c.m.163.com/news/a/GNLLB7FL05446KB9.html?spss=newsapp](https://c.m.163.com/news/a/GNLLB7FL05446KB9.html?spss=newsapp)
 
-目前，这位联合国世界粮食计划署官员尚未回应。
+* * *
 
-新闻链接：[Elon Musk tweets that he’ll donate $US6 billion to end world hunger, if the United Nations’ World Food Program can provide ‘open source accounting’ to show public precisely how the money is spent (afr.com)](https://www.afr.com/world/north-america/elon-musk-says-he-ll-donate-8b-to-end-world-hunger-on-one-condition-20211101-p594tf)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-发布：文泓
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
