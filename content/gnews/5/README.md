@@ -2,35 +2,36 @@
 ---
 
 
-## 英国银行CEO涉杰弗里·爱泼斯坦案被调查后辞职
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1634092/)
+## 埃隆·马斯克就虐待儿童性丑闻挑战联合国
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1634100/)
 
 #### **【雅典娜快讯】，紧贴时事脉搏**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/fc65de980f.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Peacekeepers-UN-627783.jpg)
 
 
 
-图片来源：techkee.com
+图片来源：express.co.uk
 
 
 #### 编译：小红帽
 
-英国银行业巨头巴克莱银行 (Barclays) 的首席执行官杰斯·斯塔利 (Jes Staley) 将在监管机构对他与性犯罪者杰弗里·爱泼斯坦 (Jeffrey Epstein) 的关系展开调查后辞职。
+在推特（Twitter）上就巨额资金能否解决世界饥饿问题展开辩论时，特斯拉创始人埃隆·马斯克（Elon Musk）就联合国儿童性虐待丑闻向联合国提出挑战。
 
-斯塔利的辞职结束了他在该银行有争议的六年统治。
+媒体对这一问题的大部分报道都围绕着马斯克对联合国世界粮食计划署主任大卫·比斯利（David Beasley）的回应上，比斯利上周告诉美国有线电视新闻网（CNN），马斯克的60亿美元捐款可以拯救4200万人,“如果我们不帮助他们，他们就会死”。
 
-该银行全球市场负责人CS文卡塔克里希南（CS Venkatakrishnan）将接替斯塔利担任首席执行官一职，并在周一承诺继续其前任的战略。
+马斯克反问比斯利：“这里发生了什么？”以及同时还发布一篇标题为“饥饿的儿童”年仅九岁就被迫向联合国官员口交以获得食物的文章[链接](https://www.express.co.uk/news/world/627783/Starving-children-as-young-as-NINE-forced-to-give-UN-officials-oral-sex-to-get-food/amp)。
 
-巴克莱银行表示，周五晚间获悉金融行为监管局和审慎监管局对斯塔利向巴克莱银行描述他与爱泼斯坦的关系，以及随后在巴克莱银行对监管机构的回应中对这种关系的描述的初步结论。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/01.png)图片来源：推特
 
-“鉴于这些结论，以及斯塔利先生打算对此结论提出异议，董事会和斯塔利已经同意，斯塔利将辞去集团首席执行官和巴克莱银行董事的职务，”该银行表示。
 
-巴克莱银行去年表示，英国金融监管机构正在调查斯塔利和爱泼斯坦之间的联系，爱泼斯坦在等待性交易罪审判期间自杀了。
+这篇文章详细介绍了一份报告，揭露了联合国维和人员如何在中非共和国“口交和肛交”儿童，以及联合国儿童基金会的高级官员如何无视这一丑闻，显然是为了掩盖事实。
 
-斯塔利此前曾表示，他与爱泼斯坦的关系于2015年底结束。他现在对这种关系感到后悔。
+“该报告在2015 年发表”，其结论是：“在联合国当局得知性虐待指控后一年半多之后，没有人被逮捕。”
 
-**参考新闻：**[British bank CEO Jes Staley quits after Epstein probe (thenewdaily.com.au)](https://thenewdaily.com.au/news/2021/11/01/british-bank-ceo-jes-staley-quits-jeffrey-epstein/)
+大多数关于推特交流的媒体报道甚至没有提到马斯克就虐待儿童的性丑闻向比斯利提出质疑。
+
+**参考新闻：**[Elon Musk Challenges UN Over Child Abuse Sex Scandal (humansarefree.com)](https://humansarefree.com/2021/11/elon-musk-challenges-un-over-child-abuse-sex-scandal.html)
 
 ***发布：小红帽***
 

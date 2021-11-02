@@ -2,14 +2,10 @@
 ---
 
 
-## 日本众议院选举揭晓：自民党获胜
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1634038/)
+## 11/1/2021【HCoin To the Moon 庆典】：我们既支持蓬培奥也支持川普竞选美国总统
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1634048/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11._2-scaled.jpg)
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
-
+秘密翻译组-北美组
 
  
 
