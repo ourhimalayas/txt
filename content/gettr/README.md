@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/2/2021 10:51 AM (UTC)`
+
+11/1/2021 【HCoin To the Moon Celebration】Never forget to be kind, be honest, and distinguish evil and good with “Only truth prevails” <br/><br/>11/1/2021 【HCoin to The Moon庆典】永远记住：真诚、善待一切、唯真不破, 分辨善恶。
+![img](https://media.gettr.com/group45/getter/2021/11/02/10/51/28d62348-fcde-47b1-1726-dcf7455c94a7/out.jpg)
+
+---
+
 `@miles 11/2/2021 10:31 AM (UTC)`
 
 2021年11月2日: 法治基金,法治社会每周捐款留言精选集<br/>法治基金, 法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>2nd of November, 2021 Weekly Rule of Law Foundation and Society donors messages collection <br/>The Rule of Law Foundation and Society team heartfully thank all of our supporters and donors！
@@ -292,13 +299,6 @@ Pompeo: The CCP has the capacity and intent to do the real harm to the US. <br/>
 
 10/29/2021 Miles Guo: The collapse of the CCP’s real estate financing will happen from May to July next year; what scares the financial sector the most is that real estate developers such as Sunac and Fantasia lack the willingness to repay; Li Ka-shing is selling the assets and real estates under Hutchison Whampoa, and this will lead to a financial disaster at home and abroad, and no one will pay for the insurance bought by the Chinese Lao Baixing<br/><br/>10/29/2021 文贵直播：中共房地产将于明年5月到7月发生融资暴雷；让金融界最恐惧的是融创、花样年等房地产商无还款意愿；李嘉诚正在卖和记黄埔名下的房产和产业，这将导致国内外的金融灾难，中国老百姓买的保险将无人赔付<br/>
 ![img](https://media.gettr.com/group13/getter/2021/10/30/00/39/b1f1df7c-eae8-1b92-f52d-20037ca0c60c/out.jpg)
-
----
-
-`@miles 10/29/2021 11:50 PM (UTC)`
-
-10/29/2021 Miles Guo: The CCP’s internal struggles, invasion of Taiwan, imposing property tax, genocide, and its imminent financial collapse will eventually led the Chinese people to take it down<br/><br/>10/29/2021 文贵直播：中共的内斗、打台湾、强推房产税、搞种族大屠杀和面临的金融崩溃终将导致中国人将其消灭<br/>
-![img](https://media.gettr.com/group43/getter/2021/10/29/23/50/4d7335a4-742b-a025-c8e3-cea716438d82/out.jpg)
 
 ---
 

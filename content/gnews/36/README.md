@@ -2,64 +2,22 @@
 ---
 
 
-## 参议员瑞克·斯科特：在谭德塞的“领导”下,世卫组织沦为共产主义中国 的傀儡，让全球健康危机失控
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1633936/)
+## 文贵视角:GETTR 让政治家有尊严的获取财富
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1633958/)
 
-参议员瑞克·斯科特： 拜登在全球舞台上的又一次失败。在谭德塞的“领导”下，世卫组织沦为 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的傀儡，让全球健康危机失控。拜登未能提名一位能革新的候选人不容忽视。 【附路透社报道：谭德赛成为世卫组织主席的唯一提名人】
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Image-2.jpg)
+**政治家未来争取支持的重要平台在GETTR，不是财团或暗黑势力**
 
+11月1日的直播中，草根小哥问郭文贵先生，”西班牙总统雅伊尔．波索纳洛(Jair Messias Bolsonaro)已加入GETTR，他未来可以因为GETTR直播而得到钜额打赏，而打赏功能又直接绑定H pay。这样的模式也适用于其他的政治家，如果他们在GETTR直播中提出’中共不等于中国人’，想必战友们都很愿意给他们打赏，这样对未来的政治板块一定有所影响。”
 
+文贵先生直夸草根小哥洞见深远，”目前的政治生态是，全世界的政治家、政客退休之后都去做说客、公关，当年最有名的德国总理柯尔开着破车，到俄罗斯的石油公司当顾问，一年只拿30万美元。澳大利亚的前任几个总理到中共国，学中文、唱卡拉OK，活得像狗一样!美国的前几任总统也到中共国，像卡特到中共国拿游说费用也不过十几万美元，中共还故意羞辱他，让他在人民大会堂外等四个小时。”未来所有在任或者退休的政治家，都可以在GETTR直播，阐述他们治国的理念或者分享在任时的机密消息，除了寻求观众的认同与打赏，更是生猛的口述历史。
 
-> Another failure from Biden on the global stage. Under Tedros’ “leadership”, the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) has become a puppet for Communist China & allowed a global health crisis to spiral out of control. Biden’s failure to nominate a reformer candidate can’t be overlooked. [https://t.co/Cu3Ln37oLs](https://t.co/Cu3Ln37oLs)
-> — Rick Scott (@SenRickScott) [November 1, 2021](https://twitter.com/SenRickScott/status/1455252097784549379?ref_src=twsrc%5Etfw)
+**GETTR彻底剷除政治生态的腐败势力**
 
+GETTR除了让人们可以自由的发表言论，不再像脸书、油管、推特有言论审查机制，还可以挖除现今政治生态孳生的腐臭毒瘤。”FACEBOOK必定非死不可，像推特(油管)这样审查言论的媒体也会灭亡，它们都有推动中共病毒疫苗的原罪，必定被集体诉讼缠身。最后就剩下没有原罪的GETTR！”文贵先生说。
 
-
-参议员兰德·保罗： 伟大文章，关于蝠奇在 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 大流行期间所犯的错。 在大科技审查它之前阅读，并记得每天查看[http://LibertyTree.com](https://t.co/4oUVScf896?amp=1)以获取未经审查的自由新闻。
-
-
-
-> Great article on Fauci’s failures during pandemic.   
-> 
-> Read it before big tech censors it, and remember to check [https://t.co/ZFP9Lcyg7d](https://t.co/ZFP9Lcyg7d) daily for uncensored liberty news. [https://t.co/GBhy9VoUZk](https://t.co/GBhy9VoUZk)
-> — Senator Rand Paul (@RandPaul) [November 2, 2021](https://twitter.com/RandPaul/status/1455329277583441921?ref_src=twsrc%5Etfw)
-
-
-
-前副国务卿基思·克拉奇： 在世界各国领导人齐聚格拉斯哥应对气候变化之际，让我们记住，没有比 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 更大的环境威胁了。它对空气，陆地和水域的攻击仅次于对自由的攻击。 #26届气候变迁大会#COP26 [#TogetherForOurPlanet](https://twitter.com/hashtag/TogetherForOurPlanet?src=hashtag_click) 【附图片：[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对空气，陆地和水域造成的各项污染】
-
-
-
-> As world leaders are gathered in Glasgow to address climate change, let's remember that there's no bigger threat to the environment than the Chinese Communist Party. Its assault on air, land, and water is second only to its assault on freedom. [#COP26](https://twitter.com/hashtag/COP26?src=hash&amp;ref_src=twsrc%5Etfw) [#TogetherForOurPlanet](https://twitter.com/hashtag/TogetherForOurPlanet?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/IcZBDWPCD4](https://t.co/IcZBDWPCD4)
-> — Keith J. Krach (@KeithJKrach) [November 1, 2021](https://twitter.com/KeithJKrach/status/1455253474560647180?ref_src=twsrc%5Etfw)
-
-
-
-美国国务院： COVID-19 大流行给我们所有人带来了前所未有的挑战。共同战胜这场大流行病显示了美台联系的力量。
-
-
-
-> The COVID-19 pandemic has posed unprecedented challenges for all of us. Working together to defeat this pandemic shows the strength of the United States-Taiwan relationship. [pic.twitter.com/ZewU6e0Q1j](https://t.co/ZewU6e0Q1j)
-> — Department of State (@StateDept) [November 1, 2021](https://twitter.com/StateDept/status/1455225624159793158?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·沃尔兹: 黑石正在资助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的军事建设。未来的美国士兵将面临由拉里·芬克购买给 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的军事装备。
-
-
-
-> BlackRock is funding the Chinese military buildup. Future American soldiers will face CCP military equipment bought by Larry Fink. [https://t.co/QmGwJfIf44](https://t.co/QmGwJfIf44)
-> — Rep. Mike Waltz (@michaelgwaltz) [October 31, 2021](https://twitter.com/michaelgwaltz/status/1454846789224484879?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·沃尔兹: 我对伊内斯·坎特(Enes Kanter)的道德勇气赞不绝口，并大声疾呼，谴责NBA,耐克,奥运会和左派的虚伪，他们在国内宣扬“社会正义”的同时却对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的种族灭绝视而不见。 【附相关视频：批判美国很多人为了钱而放弃道德底线，跪舔 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)】
-
-
-
-> I can't praise Enes Kanter enough for having moral courage & calling out the hypocrisy of the NBA, Nike, the Olympics & the Left who are overlooking genocide in China while preaching “social justice” at home. [pic.twitter.com/1rDJYGliWF](https://t.co/1rDJYGliWF)
-> — Rep. Mike Waltz (@michaelgwaltz) [October 31, 2021](https://twitter.com/michaelgwaltz/status/1454898971579715585?ref_src=twsrc%5Etfw)
-
-
+“政治家可以靠着自己卓越的口才、娴熟的政治理念，在GETTR直播中有尊严的获得可观打赏。另外他们的绝密讯息也不再卖给独裁者，而是透过GETTR直播合法的与大众分享。最重要的是，这些政治家势必与新中国联邦同一阵线，共同唾弃邪恶的共产党与暗黑势力。”文贵先生一语道破GETTR对现今政治生态的重大影响，GETTR釜底抽薪的剷除了政治家及政客赖以为生的腐败暗黑势力，让未来的政治生态注入了一股清流。
 
  
 
