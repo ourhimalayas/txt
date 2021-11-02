@@ -2,36 +2,28 @@
 ---
 
 
-## 美国航空公司不得不取消1000多个航班
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1634784/)
+## 芯片紧缺，苹果丢车保帅——减产iPad，力保iPhone13生产
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1634871/)
 
-作者：纽约香草山福音部 –lilian89
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-自10月29日开始，美国航空公司三天内取消了1000多个航班，他们将此归咎于工作人员不足和危险的大风天气。根据该公司的疫苗接种计划，11月24日之前，他们可能需要解雇或裁减数千名不愿接种疫苗的员工。
+翻译：billwilliam
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-1.jpeg)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-1.jpg)图源：gearopen.com
 
-那些坚决抵制疫苗强制政策的员工，现在已不在乎美国航空公司是否会损失一大笔钱。在被解雇之前，很多人还想要用完他们的病假和其他假期。
+日经英文网11月2日报道，因为疫情大流行导致芯片严重紧缺，苹果公司大幅减少iPad生产，而将珍贵的芯片专注于iPhone13的生产。据称两种智能产品都通用同样的核心芯片和辅助芯片，存在零部件的竞争关系。
 
-一旦最后期限到来，美航将失去4200名飞行员。这可能会使该公司在一年中最繁忙的时候陷入瘫痪。
+有消息称，苹果公司在过去两个月减少了50%的iPad产量，转而将芯片用于生产iPhone13。同时，原本用于旧版iPhone的零部件也被转去生产iPhone13。苹果优先生产iPhone13手机是因为预测其在西方市场的需求远比iPad更强劲。欧洲和美国市场占苹果营业额的66%。
 
-本月早些时候，西南航空公司也由于同样的原因不得不取消数千个航班，使他们损失了7500万美元。之后，西南航空不得不扭转方向，不再解雇他们未接种疫苗的员工。
+iPone13已于今年9月24日上市，苹果公司预计新版手机的销售量会在上市后几个月达到峰值，所以要加紧生产。今年购买iPad的顾客可能要等待六周（12月份）才能交付。其实平板电脑的需求也很火爆。全球iPad运输量同比增长6.7%，达到5320万部，占市场份额32.5%，因为人们在疫情期间选择远程工作。这也不是苹果第一次丢车保帅。2020年，iPad的零部件就曾被转去生产iPone12，当时是苹果的第一款5G手机。分析师有信心认为，即使iPad短缺，顾客也不会转而购买安卓平板电脑。
 
-参考链接：[American Airlines Cancels More Than 1,000 Flights in 24 Hours – Blames Staffing Shortages and ‘High Winds’](https://djhjmedia.com/Steven/American-airlines-cancels-more-than-1000-flights-in-24-hours-blames-staffing-shortages-and-high-winds/)
+苹果承认此举是因为全球供应链吃紧。CFO卢卡·马斯瑞（Luca Maestri）在最近的财务发布会上预测今年第四季度iPad的销售会下降，因为缺乏零部件。CEO库克（Tim Cook）也说，7至9月份的销售低于预期60亿美元，因为“全行业硅芯片紧缺，以及与新冠病毒疫情相关的生产被扰乱”。对本季度的影响甚至会更大。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+中共病毒疫情以及疫苗带来的灾难才刚刚显现，大量人口染病、疫苗副作用、甚至死亡会严重扰乱芯片的生产和供应链。芯片紧缺导致连苹果这样拥有全球供应链的公司都不得不减产。优先生产新版iPhone也有好处，未来如果iPhone能连接卫星星链网，那么这样可以保证在大灾难下人类的通讯安全。这也说明，生产芯片的格芯公司有着举足轻重的地位。
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：谐趣园
+消息来源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://asia.nikkei.com/Business/Tech/Semiconductors/Apple-trims-iPad-production-to-feed-chips-to-iPhone-13](https://asia.nikkei.com/Business/Tech/Semiconductors/Apple-trims-iPad-production-to-feed-chips-to-iPhone-13)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

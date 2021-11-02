@@ -2,112 +2,33 @@
 ---
 
 
-## 祖国必须统一，不计代价地动如雷霆后，冬季到台北去看雨
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1634473/)
+## 顺其自然
+` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1634515/)
 
-[https://gtv.org/video/id=6180fbfbadfd99590c324466](https://gtv.org/video/id=6180fbfbadfd99590c324466)
+By：银河勇气星｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-11.jpg)图片：骄子
+喜币上市了，可以开始交易了。墙内时间是持续了整个晚上，直到第二天中午，喜币上市的庆典大直播才算结束了。不睡觉的岂止是战友们，中南坑里彻夜未眠中间困到不行都不敢去补觉的又有多少人，我们共同见证了这个伟大的时刻，是的，我们和我们终将灭掉的仇人中南坑，见证了这个时刻。
 
-台湾知名教授邱毅日前发表视频表示
-A well-known Taiwanese professor Qiu Yi recently published a video saying
+大自然有一种定律叫做杀不死我的，只会使我更强大。爆料革命走了这么几年，几乎就没有哪件事顺顺利利进行下来的，共产党在后面发动的都是国家级的搞破坏耍流氓。七哥常说的“逆增上缘”，底色是爆料革命的唯真不破。用真来刺破假，让人们回归对善恶的基本认知。爆料革命新中国联邦发生的每件事，都值得刻印在历史里。今天喜币的上市，是战友们的一小步，也是人类的一大步。
 
-蔡英文把“促进转型委员会”变成一个去中国化的政治斗争工具
-Tsai Ing-wen turned the “Committee for the Promotion of Transformation” into a tool of political struggle for de-Chineseization
+历史上人们总是赞颂那些敢于站出来反对强权迫害人权自由的人，科学在人类历史上起到了重要的推动作用，思想进步的源泉往往来源于科学的一小步。布鲁诺被烧死，不是因为他宣扬哥白尼的日心说，按道理说，哥白尼本人更应该被烧死才对。布鲁诺因为反对统治阶级罗马教廷限制人们的思想，质疑当时的宗教哲学，人们开始思考宗教的欺骗性。日心说作为布鲁诺反对教廷的理论依据，这是自然科学的客观性，客观科学推翻了教廷主导的地心说。罗马教廷在当时是作为上帝的传话人存在的，就是只有教廷里的神职人员才能和上帝对话，天文上的理论当然也是上帝告诉教皇这样的传话人，由教皇传达给世人。而布鲁诺的情况就是教廷根本就是个agent是个骗子，要解放思想敢于反对教廷，才能找出真相，找到到底谁才是宇宙的中心。布鲁诺否定了宗教的地位，否定了当时的社会统治阶级，放到任何时代都会被处以极刑。统治阶级存在的目的就是统治，统一而治理，你只能听我的，你的一切都是我的。
 
-因为国民党这批人不争气，所以才使民进党可以为所欲为
-Because the Kuomintang people are not up to date, so the Democratic Progressive Party can do whatever it wants
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Giordano_Bruno.jpg)布鲁诺 / 图源：网路
 
-如果不赶快统一，台湾就真的没救了
-If you don’t quickly reunify, Taiwan will be really hopeless
+我们所生活的地方可以称之为自然之地。自然就是亿万年未曾改变的规律，比如春生夏长，秋收冬藏。这些不变的规律，只等待着人类去发现。人们的眼界，见识，随着人类社会的不断发展，越来越开阔，今天我们已经不会再为地心说和日心说争论，因为人类有了望远镜，望远镜里看一眼，什么都知道了，科学可以去验证。当代的人类在听到布鲁诺这个故事的时候也许会嗤之以鼻，技术进步的优越性体现在人类的方方面面，从而让某些人开始拥有了莫名的自信。然而人心从未变过，现代人拥有的各种情感，喜怒哀乐惆怅失望，古代人同样有过。正因为如此，统治阶级，可以以不同的形式存在与每一个时代。相对于哥白尼临死前发表了日心说，布鲁诺勇敢地站出来支持哥白尼的日心说，反对教廷对人们制造的谎言，引领人类走上一个科学革命的道路，尤其是被教廷烧死的惨状，几乎推动了一次历史觉醒的大进程。放在当时的社会背景下，把日心说交给教皇，由教皇来宣布所谓的“上帝的旨意日心说”，布鲁诺完全可以这样做。但是他没有，他选择相信教廷在撒谎，宗教本身就是谎言。如果说哥白尼奠定了某些基础，那布鲁诺才是把他发扬光大的人。对话语权的掌控，对思想的禁锢，才是人类发现不了科学真相的原因。
 
-中国外交部讲得最明白：搞“台独”是死路一条！
-The Chinese Ministry of Foreign Affairs said it most clearly: “Taiwan independence” is a dead end!
+自从七哥站出来爆料，中南坑使用过的手段，劝退，遣返，谈条件，太多了。因为他们始终不认为自己是错误的，哪怕你郭文贵说得再对，那也应该是由共产党来定义你说得对不对，所以海外民运伪类们那么多年伸手要钱还能在社交媒体上活得那么好。作为共产党统治下的中国奴隶，不论你是反共产党，还是亲共产党，都应该是共产党说了算。共产党无论好坏，你都要活在他的手掌里，还有没有道理？喜币毫无疑问是人类即将进入虚拟时代这个真理的最强表现，共产党怎么不想要呢，他们要牢牢控制在自己手里，这就是共产党的统一性和未来观。一个创新的诞生，必然要付出巨大的代价，七哥都说了如果以后喜币系统被下市，被黑断，那都应该是正常现象，因为喜币挑战了财富拥有的规则，财富从家天下变为民天下，共产党乃至全世界的财富都会被重新分配。
 
-中国大陆这已是连续两日发出严厉警告
-Mainland China has issued severe warnings for two consecutive days
-
-蔡英文当局和域外干涉势力(包括美国、日本等军事力量）
-Tsai Ing-wen authorities and extraterritorial interference forces (including the United States and Japan, etc military forces)
-
-已经让一直致力于和平努力的大陆没有了任何退路
-have left the mainland which has been committed to peace efforts, with no way back
-
-关于如何惩罚，结合国台办、外交部、国防部发言人所用的原话
-Regarding how to punish, combined with the original words used by the spokespersons of the Taiwan Affairs Office of the State Council, the Ministry of Foreign Affairs, and the Ministry of National Defense
-
-有以下三种不可或缺
-there are three indispensable
-
-其一，不计代价，这是态度，也是实力。
-First, regardless of the cost, this is attitude and strength
-
-就算美军介入，解放军照样坚定地维护国家统一和领土完整
-even if the US military intervenes, the People’s Liberation Army still firmly maintains national unity and territorial integrity
-
-即便付出再大的代价也在所不惜
-No matter how great it costs and do not hesitate
-
-其二，灭顶之灾，这是警告，更是后果
-Second, the disaster of extinction, this is a warning, but also a consequence
-
-一旦启动雷霆打击，第一波肯定包括对“台独”顽固分子的精确“斩首”打击，
-Once the Thunder strike is launched, the first wave will definitely include precise “beheading” strikes on diehards of “Taiwan independence”
-
-其三，动如雷霆，冬季到台北去看雨。
-Third, moving like thunder, go to Taipei in winter to see the rain
-
-蔡英文既然决定了一条路走到黑，
-Since Tsai Ing-wen has decided on a path to resist
-
-解放军维护国家统一和领土完整，
-The People’s Liberation Army safeguards national unity and territorial integrity
-
-必然是雷霆之力，迅速实现两岸统一
-It must be the power of thunder to quickly realize cross-strait reunification
-
-评论：
-Comment:
-
-台湾官方民调：87.5%民众反对“一国两制”
-Taiwan’s official poll: 87.5% of the people oppose “one country, two systems”
-
-8成以上民众支持捍卫国家主权及台湾民主。
-More than 80% of the people support the defense of national sovereignty and Taiwan’s democracy
-
-尽管如此，中共国无视台湾民意，与卖台贼一起先在舆论上先占先机
-Despite this, the CCP ignores Taiwan’s public opinion and, together with the Taiwan’s traitors, takes the lead in public opinion
-
-尽管蔡英文总统在接受CNN的采访时表示
-Although President Tsai Ing-wen claimed in an interview with CNN
-
-美军在台湾有少许人员已进驻
-A small number of US troops have been stationed in Taiwan
-
-但中共还是要采取武力行动拿下台湾
-But the CCP still has to take force action to take Taiwan
-
-使中共国的老百性深信不移
-for convincing the Laobaixing in China
-
-此评论数据来自：https://www.dw.com/zh/台湾官方民调875民众反对一国两制/a-59138793
+善恶就是最基本的真理。真理是什么，是自然，是亘古不变的东西。老话常说顺其自然，没人比中南坑更加懂得顺其自然，他们个个一天天之乎者也，比谁都自信，但是比谁都不自然，更何况懂得真正的顺其自然。我想最新的顺其自然就是中南坑的老杂毛和战友都亲眼看着喜币上市，在这里再也没有什么谁统治谁，我的钱我说了算，人人平等。
 
 * * *
 
-Date:10/31/2021
-原文标题: 秦安：祖国必须统一，不计代价地动如雷霆后，冬季到台北去看雨
-Qin An: The motherland must be unified. after moving like thunder at all costs and go to Taipei to watch the rain in winter
-原文日期：2021/10/29
-原文链接 https://www.163.com/dy/article/GNFNP54305526B7P.html?f=post2020\_dy\_recommends
-任务编号：KC217(2733)
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+作者：骄子
+审核：兵嫂、天雷滚滚
+发布：骄子
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/欢迎战友回家-1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

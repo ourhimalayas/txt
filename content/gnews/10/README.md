@@ -2,21 +2,36 @@
 ---
 
 
-## 台湾危矣？
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1634683/)
+## 美国航空公司不得不取消1000多个航班
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1634784/)
 
-韩国天池农场——追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-03-at-00.03.58.jpeg)
-据新华社11月1日的报道 中共军委主席习近平日前签署命令，发布《军队装备订购规定》，自2021年11月1日起施行。
+作者：纽约香草山福音部 –lilian89
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+自10月29日开始，美国航空公司三天内取消了1000多个航班，他们将此归咎于工作人员不足和危险的大风天气。根据该公司的疫苗接种计划，11月24日之前，他们可能需要解雇或裁减数千名不愿接种疫苗的员工。
 
-其中《规定》指出“坚持以习近平新时代中国特色社会主义思想为指导，深入贯彻习近平强军思想，深入贯彻新时代军事战略方针，着眼有效履行新时代人民军队使命任务，全面聚焦备战打仗，深刻把握装备订购工作的特点规律，科学规范新形势下装备订购工作的基本原则、基本任务、基本内容和管理制度，是军队装备订购工作的基本法规”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-1.jpeg)
 
-新中国联邦创始人郭文贵先生在美东时间2021年11月1日喜马拉雅币上市庆典大直播中，与台湾宝岛农场战友连线时，透露了一个消息：刚刚中共内部国家安全委员会开会，大多数想近期攻台的人最后的决定是要保冬奥会，“冬奥会以后对台再动手”。还有南海如果发生了联军（美军、日军）对共军擦枪走火，会再“另择时机”。
+那些坚决抵制疫苗强制政策的员工，现在已不在乎美国航空公司是否会损失一大笔钱。在被解雇之前，很多人还想要用完他们的病假和其他假期。
 
-北京时间11月2日，就有杭州的网友拍到运载着装甲车的列车和运载着物资装备的军用汽车穿过市民大街，这是为了转移国人的注意力吗？还是对郭文贵先生爆料的一种回应？但有两点是可以肯定的，一是中共一直有密切关注爆料革命新中国联邦的每一场直播，二是台湾危矣！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-03-at-00.03.57.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-03-at-00.05.19.jpeg)图片来之网络
-[新闻来源](https://xhpfmapi.zhongguowangshi.com/vh512/share/10360865) [文贵先生11月1日直播](https://gettr.com/post/pfs1k7a90e)
+一旦最后期限到来，美航将失去4200名飞行员。这可能会使该公司在一年中最繁忙的时候陷入瘫痪。
 
+本月早些时候，西南航空公司也由于同样的原因不得不取消数千个航班，使他们损失了7500万美元。之后，西南航空不得不扭转方向，不再解雇他们未接种疫苗的员工。
+
+参考链接：[American Airlines Cancels More Than 1,000 Flights in 24 Hours – Blames Staffing Shortages and ‘High Winds’](https://djhjmedia.com/Steven/American-airlines-cancels-more-than-1000-flights-in-24-hours-blames-staffing-shortages-and-high-winds/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+总编：飞虹
+编辑：飞虹
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

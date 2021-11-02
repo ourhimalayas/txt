@@ -2,32 +2,35 @@
 ---
 
 
-## 格伦.杨金表示他将不会推行强制疫苗政策
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1633782/)
+## 喜币：世界上最干净最安全的加密货币
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1633962/)
 
-撰稿：Grace
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-3.png)
-图片来源：Thenewyorktoday
+作者：纽约香草山 – Noemi
 
-据Newsmax10月31日报道，当日，弗吉尼亚州共和党候选人格伦·杨金（Glenn Youngkin），在Newsmax上说，虽然他支持中共病毒疫苗并鼓励人们去接种，但是，如果他在星期二晚上当选该州州长，他将不会推行强制疫苗政策。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-杨金说：“我已经接种了疫苗；我的家人也接种了疫苗；我鼓励那些能在批准的地方接种疫苗的人去接种，但我不会强制要求接种疫苗，我认为学校不应该这样做，特别是对幼儿而言。”
+2021年11月1日，是一个值得载入全人类史册的日子。今天，代表着世界金融未来的喜币正式上市了。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-7.jpg)
+文贵先生曾说“应用区块链技术，同时锚定20%黄金，回归到布雷顿森林体系的喜币，将会成为世界上最安全的货币。喜币将会是全人类的未来。”同时，喜币在去中心化的区块链技术上，还加入了责任中心化的管理制度。
 
-杨金还说：“我认为那是父母的决定，我相信父母对他们的孩子有做决定的基本权利。而且，作为州长，我将确保我为父母的权利站出来。”
+在上市之前，用最严格的KYC审查系统，喜币成为世界上最干净的加密货币，永远不会成为同比特币、火币一样的洗钱工具。
 
-杨金的竞争对手是弗吉尼亚州前州长特里.麦考利夫（Terry McAuliffe）。
+在喜币上市的一片欢庆中，文贵先生告诫新中国联邦人和喜币拥有者们，不要像中共体制下的贪官、白手套们一样，贪图任何不干净的钱和来路不明的钱，否则，将会像海航的陈峰、王健一样，财富终将被清零，甚至惹来杀身之祸。只有尊重和善待财富，才能让自己享受财富带来的一切。
 
-杨金告诉主持人迪克.莫里斯(Dick Morris), 拜登或奥巴马为麦考利夫站台,而且来自民主党州长或工会的大量资金注入了麦考利夫的竞选团队，试图挽救麦考利夫现在失败的政治生涯。但杨金相信，拜登和奥巴马无法为麦考利夫带来选民的热情。
+参考链接：[喜币：世界上最干净最安全的加密货币](https://gettr.com/post/pfqycl20f3)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编：飞虹
+编辑：DM
+校正/发稿：Fei797
 
-另一方面，据《保守信念》(Conservative Belief)11月1日报道，川普总统周一在最后一刻向弗吉尼亚州的共和党选民发出呼吁，要求他们集体出动，将选票投给格伦.杨金。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-对于杨金，川普总统说: “杨金是一个好人，一个勤劳的人，一个成功的人。他热爱弗吉尼亚州，想为你们减税，拯救你们孩子的教育，以及其他许多非常好的事情。”
-
-但是川普认为“麦考利夫是一个撒谎，欺骗和偷窃的低级政治家。他是一个糟糕的高税率州长，如果当选，他将再次成为一个更糟糕的州长”。
-
-**新闻来源：**[**Youngkin to Newsmax: I Won’t Order Vaccine Mandates**](https://www.newsmax.com/politics/glennyoungkin-virginia-governor-campaign/2021/10/31/id/1042689/)
-
-** **[**Trump Makes Big Move To Drive Voter Turnout for Youngkin in Va. Governor’s Race**](https://conservativebrief.com/trump-makes-53775/?utm_source=CB&amp;utm_medium=DJD)** **
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
