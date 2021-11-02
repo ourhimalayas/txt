@@ -2,27 +2,27 @@
 ---
 
 
-## 中共国制造活动指数两个月内连续下降
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1634842/)
+## 德国教育部长要求关闭所有孔子学院
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1634878/)
 
-作者：香草山农场 – 柳是多水土透
+作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月30日，多家媒体报道指出，中共国10月份的工厂活动指数在两个月中连续收缩。证据显示，中共国庞大的制造业正被原材料价格上涨、大范围停电和加快减速的房地产行业拖累。
+默克尔刚刚于10月26日正式下台，在任教育部长卡利斯泽克就向德国大学校长会议和各州教育部长会议写了一封信，要求大学“重新评估孔子学院在德国高等学院群内的作用”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide4-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8.jpeg)
 
-报道提及，中共官方公布的采购经理人指数本月降至49.2，相较于9月的指数持续下跌。另外，电力供应短缺正在打乱从东北至广东深圳工厂的生产节奏。中共国家统计局发布的数字显示，中共国第三季度的经济增长跌落至年内新低。
+她说，很长时间以来，她就对19所孔子学院在德国高校的影响满怀担忧。目前来看，孔子学院对德国学术自由的影响是长远的，不可接受的。
 
-对此，数据分析师认为，多个供给端因素加剧了中共的经济失速，包括芯片短缺、物流业过载、新冠封锁等，加之中共国内燃料、煤、化工产品和金属的价格加速上涨，证据表明，中共的滞涨正在发生。
+此前，有两所大学迫于中共驻徳总领事冯海阳的压力，取消了德文书《习近平传》的推介会。该书的作者之一奥斯特批评孔子学院是“北京在德国的长臂”。另一位作者则称，不能谈论国家领导人，在中国司空见惯，但在德国是不能容忍的。该事件直接引发教育部长要求关闭德国境内所有的孔子学院。
 
-参考链接：
-1）[China manufacturing slows as property and energy woes hit economy](https://www.ft.com/content/b338d366-f94f-46d1-b732-5470bde825c3)
-2）[China’s Manufacturing Activity Contracts for Second Straight Month](https://www.wsj.com/articles/chinas-manufacturing-activity-contracts-for-second-straight-month-11635645642?mod=hp_lista_pos4)
+这是继瑞典与挪威之后，又一个不愿被中共通过文化输出，进行侵蚀和操控的国家。
+
+参考链接：[德国联邦教育部长要求终止德国所有孔子学院](https://info.51.ca/news/world/2021-10/1042519.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 总编：飞虹
-编辑：Irene木木
+编辑：飞虹
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

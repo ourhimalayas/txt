@@ -2,28 +2,112 @@
 ---
 
 
-## 不畏强权的勇者
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1634434/)
+## 祖国必须统一，不计代价地动如雷霆后，冬季到台北去看雨
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1634473/)
 
-作者：东京樱花团｜阿恩
-![](https://assets.gnews.org/wp-content/uploads/2021/11/不畏强权的勇者.png)
-[*图片来源*](https://image.stheadline.com/f/1500p0/0x0/100/st/8d1274fd17cf9a05918dbf2120ffdaa1/stheadline/inewsmedia/20211102/_2021110212064542319.jpg)
+[https://gtv.org/video/id=6180fbfbadfd99590c324466](https://gtv.org/video/id=6180fbfbadfd99590c324466)
 
-国安恶法暴政下的香港，自由发声的机会已经稀少，能走的都各奔东西，走不了的只能改变路线，用各种方式继续表达对自由民主的追求。香港人很有创意，在疫情催生的口罩产业中开辟了自己的市场，他们推出色彩缤纷的口罩，黄色的卖得非常好。闭关锁港的香港一片萧条，大量年轻人进入外送行业，撑起香港人的餐桌，我们经常可以发现快餐袋中会附送“香港人加油”的温馨祝福。
+台湾知名教授邱毅日前发表视频表示
+A well-known Taiwanese professor Qiu Yi recently published a video saying
 
-由于港共政府对年轻人的打压和歧视，许多大型财团一度拒绝聘用本地大学毕业的年轻人，那些有案底的年轻人更是属于被抛弃的对象。许多泛民主派的区议员自掏腰包增设助理和办事职员的职务，邀请这些曾浴血奋战捍卫民主自由的年轻人加入。直到港府出阴招逼迫泛民派系的区议员辞职，这些年轻人似乎又不见了前路，但又有辞职的前区议员开设搬家公司，将许多有工作需要的年轻人聚集起来。
+蔡英文把“促进转型委员会”变成一个去中国化的政治斗争工具
+Tsai Ing-wen turned the “Committee for the Promotion of Transformation” into a tool of political struggle for de-Chineseization
 
-国安恶法以言入罪司空见惯，中共对香港年轻人的警惕愈发变态，年初年轻的外卖员年因为“年轻就是罪”被港警无礼截停搜身，期间更被怀疑盗窃“外卖袋”，即使在收到外卖公司确认该青年是正规雇员，且外卖袋是允许随身携带，警察依然没完没了地找他的茬，最后在年轻人的钱包中搜到“光复香港 时代革命”的卡片而被拘留，之后该年轻人被控用头袭警的罪名，今日被判入狱4个月，并被法官批评毫无悔意。
+因为国民党这批人不争气，所以才使民进党可以为所欲为
+Because the Kuomintang people are not up to date, so the Democratic Progressive Party can do whatever it wants
 
-曾经的香港，犯罪记录确实能毁掉人的前程，但如今在中共邪恶暴政的统治下，屈枉正直，颠倒黑白，司法界已经被中共的流氓占领，审判再也没有公义可言。但香港人从没有放弃过反抗中共的暴政，我们可以见到区域法院外风雨无阻的市民们，只为在听众席上为受审者递上心型的手势，只为高呼“撑住”，还有那些狂追囚车的“追车师”们，他们就是想让那些被中共羁押的同胞们不要觉得孤单，还有许多香港人与他们同在。
+如果不赶快统一，台湾就真的没救了
+If you don’t quickly reunify, Taiwan will be really hopeless
 
-黎明前是最黑暗的时刻，也最容易令人失去希望，但同胞们应该要知道，全球灭共的号角已经吹响，喜币已经成功上市，新中国联邦的力量势不可挡，同胞们是充满智慧的民族，我们必须在黑暗中携手同心，才能瓦解中共。
+中国外交部讲得最明白：搞“台独”是死路一条！
+The Chinese Ministry of Foreign Affairs said it most clearly: “Taiwan independence” is a dead end!
 
-**资料来源：**[**被搜出「光时」贴纸 外卖员警署内以头袭警罪成囚四个月**](https://std.stheadline.com/realtime/article/1769831/%E5%8D%B3%E6%99%82-%E6%B8%AF%E8%81%9E-%E8%A2%AB%E6%90%9C%E5%87%BA-%E5%85%89%E6%99%82-%E8%B2%BC%E7%B4%99-%E5%A4%96%E8%B3%A3%E5%93%A1%E8%AD%A6%E7%BD%B2%E5%85%A7%E4%BB%A5%E9%A0%AD%E8%A5%B2%E8%AD%A6%E7%BD%AA%E6%88%90%E5%9B%9A%E5%9B%9B%E5%80%8B%E6%9C%88)
+中国大陆这已是连续两日发出严厉警告
+Mainland China has issued severe warnings for two consecutive days
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
+蔡英文当局和域外干涉势力(包括美国、日本等军事力量）
+Tsai Ing-wen authorities and extraterritorial interference forces (including the United States and Japan, etc military forces)
+
+已经让一直致力于和平努力的大陆没有了任何退路
+have left the mainland which has been committed to peace efforts, with no way back
+
+关于如何惩罚，结合国台办、外交部、国防部发言人所用的原话
+Regarding how to punish, combined with the original words used by the spokespersons of the Taiwan Affairs Office of the State Council, the Ministry of Foreign Affairs, and the Ministry of National Defense
+
+有以下三种不可或缺
+there are three indispensable
+
+其一，不计代价，这是态度，也是实力。
+First, regardless of the cost, this is attitude and strength
+
+就算美军介入，解放军照样坚定地维护国家统一和领土完整
+even if the US military intervenes, the People’s Liberation Army still firmly maintains national unity and territorial integrity
+
+即便付出再大的代价也在所不惜
+No matter how great it costs and do not hesitate
+
+其二，灭顶之灾，这是警告，更是后果
+Second, the disaster of extinction, this is a warning, but also a consequence
+
+一旦启动雷霆打击，第一波肯定包括对“台独”顽固分子的精确“斩首”打击，
+Once the Thunder strike is launched, the first wave will definitely include precise “beheading” strikes on diehards of “Taiwan independence”
+
+其三，动如雷霆，冬季到台北去看雨。
+Third, moving like thunder, go to Taipei in winter to see the rain
+
+蔡英文既然决定了一条路走到黑，
+Since Tsai Ing-wen has decided on a path to resist
+
+解放军维护国家统一和领土完整，
+The People’s Liberation Army safeguards national unity and territorial integrity
+
+必然是雷霆之力，迅速实现两岸统一
+It must be the power of thunder to quickly realize cross-strait reunification
+
+评论：
+Comment:
+
+台湾官方民调：87.5%民众反对“一国两制”
+Taiwan’s official poll: 87.5% of the people oppose “one country, two systems”
+
+8成以上民众支持捍卫国家主权及台湾民主。
+More than 80% of the people support the defense of national sovereignty and Taiwan’s democracy
+
+尽管如此，中共国无视台湾民意，与卖台贼一起先在舆论上先占先机
+Despite this, the CCP ignores Taiwan’s public opinion and, together with the Taiwan’s traitors, takes the lead in public opinion
+
+尽管蔡英文总统在接受CNN的采访时表示
+Although President Tsai Ing-wen claimed in an interview with CNN
+
+美军在台湾有少许人员已进驻
+A small number of US troops have been stationed in Taiwan
+
+但中共还是要采取武力行动拿下台湾
+But the CCP still has to take force action to take Taiwan
+
+使中共国的老百性深信不移
+for convincing the Laobaixing in China
+
+此评论数据来自：https://www.dw.com/zh/台湾官方民调875民众反对一国两制/a-59138793
+
+* * *
+
+Date:10/31/2021
+原文标题: 秦安：祖国必须统一，不计代价地动如雷霆后，冬季到台北去看雨
+Qin An: The motherland must be unified. after moving like thunder at all costs and go to Taipei to watch the rain in winter
+原文日期：2021/10/29
+原文链接 https://www.163.com/dy/article/GNFNP54305526B7P.html?f=post2020\_dy\_recommends
+任务编号：KC217(2733)
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
