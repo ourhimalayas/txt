@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/2/2021 11:17 PM (UTC)`
+
+11/2/2021 Miles Guo’s GETTR: Zhang Gaoli messes around with Peng Shuai, and all the CCP old kleptocrats sexually abuse virgins; Taking down the CCP is our central and the only goal; After the CCP is destroyed, we will establish the government of the New Federal State of China that has rule of law and religious freedom, and truly belongs to the people<br/><br/>11/2/2021 文贵盖特: 张高丽玩彭帅，中共老杂毛全都是玩幼女；灭共是我们的核心，唯一的目标，灭完共，建立一个有法治和信仰自由的、真正民天下的新中国联邦政权
+![img](https://media.gettr.com/group46/getter/2021/11/02/23/17/01d90dda-644d-e33e-a41e-1e3a9fbf74be/out.jpg)
+
+---
+
 `@miles 11/2/2021 10:17 PM (UTC)`
 
 11/1/2021 [HCoin To the Moon Celebration]: Fellow fighters, the first thing you should do is to take care of your parents if you become wealthy; The significance of the Himalaya Coin is that it works in the entire world and that it can absolutely bring financial freedom to numerous people across the globe<br/><br/>11/1/2021【HCoin To the Moon 庆典】：战友们， 如果你们有钱了，第一个就要对自己的父母好；喜币的意义在于它在全世界都管用，而且它绝对能给很多人带来财富自由！
@@ -290,15 +297,6 @@ Hcoin To The Moon <br/><br/>词：威廉王<br/>曲：唐平<br/>编曲： SFG<b
 10月30号：太棒了👏👏👏👏👏
 > `@witchpeace 10/30/2021 5:17 PM (UTC)`<br/>
 ![img](https://media.gettr.com/group25/getter/2021/10/30/17/5b159d74-281a-9d62-95e1-9d971c56c5c4/4cd4f9aff5f0982bbf3f88accd0fa0ab.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@globalhimalaya 10/30/2021 5:13 AM (UTC)`
-
-Pompeo: The CCP has the capacity and intent to do the real harm to the US. <br/>蓬佩奥：中共有能力、有意图真正危害美国。美国不仅要带头推进台湾参与联合国，而且要用实际行动向习近平表明：图谋台湾是绝不可接受的
-![img](https://media.gettr.com/group36/origin/2021/10/30/05/13/84e358fc-376b-9bfa-c85d-ccaaf55e7bf5/out.jpg)
 
 ---
 
