@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/2/2021 1:55 AM (UTC)`
+
+“HCOIN TO THE MOON” 喜马拉雅币上市庆典
+![img](https://media.gettr.com/group30/origin/2021/11/01/09/114a50be-85ff-f9a7-eec1-20b602a50f71/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 11/2/2021 1:48 AM (UTC)`
 
 11/1/2021 [HCoin To the Moon Celebration]: What does “loyalty” mean? We, the Whistleblowers’ Movement and the New Federal State of China, shall forget “loyalty” - decentralization, but we shall keep “honesty” - treating others with honesty and “honesty” lies in what we do not what we say<br/><br/>11/1/2021【HCoin To the Moon 庆典】：什么是“忠诚”？爆料革命和新中国联邦要摒弃“忠” - 去中心化，但一定要有“诚” - 以“诚”待人、“诚”在行动<br/>
@@ -298,13 +305,6 @@ Studio Vibes<br/>@DDNYC
 
 Welcome to the world！<br/>To the new world！<br/>Hcoin to the moon！<br/>不能发完整版，憋死😂
 ![img](https://media.gettr.com/group38/getter/2021/10/29/09/43/d2219abd-9d00-a16b-1e86-77f5da02ecb1/out.jpg)
-
----
-
-`@miles 10/29/2021 8:35 AM (UTC)`
-
-CNN：蔡英文首次公开承认美国军队正在台湾训练台湾部队<br/><br/>CNN：Tsai Ing-wen confirms US troops are on the island training Taiwanese troops
-![img](https://media.gettr.com/group49/getter/2021/10/29/08/35/ddb50321-4a19-7b05-c910-4be916d0f881/out.jpg)
 
 ---
 

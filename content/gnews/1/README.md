@@ -2,78 +2,64 @@
 ---
 
 
-## G时评：“姜太公钓鱼”的隐喻
-` GISELLE` [轉載自GNews](https://gnews.org/zh-hans/1633868/)
+## 参议员瑞克·斯科特：在谭德塞的“领导”下,世卫组织沦为共产主义中国 的傀儡，让全球健康危机失控
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1633936/)
 
-**作者/图片设计：Giselle**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/沙滩.png)
+参议员瑞克·斯科特： 拜登在全球舞台上的又一次失败。在谭德塞的“领导”下，世卫组织沦为 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的傀儡，让全球健康危机失控。拜登未能提名一位能革新的候选人不容忽视。 【附路透社报道：谭德赛成为世卫组织主席的唯一提名人】
 
 
-**【故事】**
 
-商纣王暴虐，周文王决心推翻纣王暴政。太公姜子牙受师傅之命，下界帮助文王。
+> Another failure from Biden on the global stage. Under Tedros’ “leadership”, the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) has become a puppet for Communist China & allowed a global health crisis to spiral out of control. Biden’s failure to nominate a reformer candidate can’t be overlooked. [https://t.co/Cu3Ln37oLs](https://t.co/Cu3Ln37oLs)
+> — Rick Scott (@SenRickScott) [November 1, 2021](https://twitter.com/SenRickScott/status/1455252097784549379?ref_src=twsrc%5Etfw)
 
-为了吸引文王关注，姜子牙在文王回都途中，在河的一边，用没有鱼饵的直钩钓鱼。文王见到了，果然很好奇，主动跟他交谈，发现姜子牙很有才华，于是招至麾下。后来姜子牙屡建奇功，帮助文王和他的儿子推翻了商纣王的统治，建立了周朝。
 
-这就是歇后语“姜太公钓鱼，愿者上钩”的由来。
 
-**【解读】**
+参议员兰德·保罗： 伟大文章，关于蝠奇在 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 大流行期间所犯的错。 在大科技审查它之前阅读，并记得每天查看[http://LibertyTree.com](https://t.co/4oUVScf896?amp=1)以获取未经审查的自由新闻。
 
-这个传说其实是经不起推敲的。
 
-首先，鱼钩沉在水里，文王是如何得知姜太公的鱼钩无钩、无饵？难道他有透视眼？
 
-其次，文王回都城，必定是骑马或者坐车，他怎么会去留意一个河边垂钓的路人？而且还能发现那么细小的鱼钩居然是直的？
+> Great article on Fauci’s failures during pandemic.   
+> 
+> Read it before big tech censors it, and remember to check [https://t.co/ZFP9Lcyg7d](https://t.co/ZFP9Lcyg7d) daily for uncensored liberty news. [https://t.co/GBhy9VoUZk](https://t.co/GBhy9VoUZk)
+> — Senator Rand Paul (@RandPaul) [November 2, 2021](https://twitter.com/RandPaul/status/1455329277583441921?ref_src=twsrc%5Etfw)
 
-除非他像茜茜公主一样，将鱼钩直接甩到文王身上，如此一来，文王想不发现，都不可能……
 
-所以，传说就是传说。
 
-世人将姜太公钓鱼，愿者上钩，比喻成“心甘情愿钻进他人设下的圈套”，其实，这个解读是不对的，是误导，世人已经被误导了两千多年。
+前副国务卿基思·克拉奇： 在世界各国领导人齐聚格拉斯哥应对气候变化之际，让我们记住，没有比 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 更大的环境威胁了。它对空气，陆地和水域的攻击仅次于对自由的攻击。 #26届气候变迁大会#COP26 [#TogetherForOurPlanet](https://twitter.com/hashtag/TogetherForOurPlanet?src=hashtag_click) 【附图片：[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对空气，陆地和水域造成的各项污染】
 
-在姜太公钓鱼的故事里：
 
-【钩】代表圈套、陷阱、套路；
 
-【饵】代表名利、财富、权势。
+> As world leaders are gathered in Glasgow to address climate change, let's remember that there's no bigger threat to the environment than the Chinese Communist Party. Its assault on air, land, and water is second only to its assault on freedom. [#COP26](https://twitter.com/hashtag/COP26?src=hash&amp;ref_src=twsrc%5Etfw) [#TogetherForOurPlanet](https://twitter.com/hashtag/TogetherForOurPlanet?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/IcZBDWPCD4](https://t.co/IcZBDWPCD4)
+> — Keith J. Krach (@KeithJKrach) [November 1, 2021](https://twitter.com/KeithJKrach/status/1455253474560647180?ref_src=twsrc%5Etfw)
 
-无钩、无饵，意味着：没有圈套陷阱，也没有利益诱惑。
 
-姜太公钓鱼的故事，隐喻了他对统治者选拔人才的标准：
 
-1，破除名利世界的诱惑；
+美国国务院： COVID-19 大流行给我们所有人带来了前所未有的挑战。共同战胜这场大流行病显示了美台联系的力量。
 
-2，追求内心真正的信仰；
 
-3，出于实现理想的目的。
 
-“鱼钩”寓意官位。
+> The COVID-19 pandemic has posed unprecedented challenges for all of us. Working together to defeat this pandemic shows the strength of the United States-Taiwan relationship. [pic.twitter.com/ZewU6e0Q1j](https://t.co/ZewU6e0Q1j)
+> — Department of State (@StateDept) [November 1, 2021](https://twitter.com/StateDept/status/1455225624159793158?ref_src=twsrc%5Etfw)
 
-统治者惯于用金钱、美色、权力、名望等诱惑他人为自己服务，殊不知，世上从来没有免费的午餐，一切都是有代价的。当你一口吞下了鱼饵，势必就会吞下鱼钩，从此受制于人，一生不得自由。
 
-东汉刘秀当了皇帝之后，其同窗都做了大官。有严光（严子陵）者，为刘秀所欣赏之人，是浙江人，但刘秀却在这批做官同学名单之中，找不到此人，原来此人已经回到富春江钓鱼去了。
 
-刘秀多次邀请严子陵入仕，严子陵皆不为所动，一直选择垂钓富春江，至今，富春江上仍有严子陵钓鱼台。
+众议员迈克·沃尔兹: 黑石正在资助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的军事建设。未来的美国士兵将面临由拉里·芬克购买给 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的军事装备。
 
-这是另一个关于垂钓的故事。
 
-“鱼饵”代表名利、财富、美色诱惑。
 
-世人因利而聚，必定因利而散。
+> BlackRock is funding the Chinese military buildup. Future American soldiers will face CCP military equipment bought by Larry Fink. [https://t.co/QmGwJfIf44](https://t.co/QmGwJfIf44)
+> — Rep. Mike Waltz (@michaelgwaltz) [October 31, 2021](https://twitter.com/michaelgwaltz/status/1454846789224484879?ref_src=twsrc%5Etfw)
 
-财富、名利、美色固然可以拉拢一批人，可是，这些物质方面的刺激，更容易激发人的名利心、得失心、嫉妒心。
 
-名利场上很少盛产理想、美德，皆源于此。
 
-有利益的地方就会有纷争、背叛、杀戮，美色环伺必定会引来嫉妒、劫掠。
+众议员迈克·沃尔兹: 我对伊内斯·坎特(Enes Kanter)的道德勇气赞不绝口，并大声疾呼，谴责NBA,耐克,奥运会和左派的虚伪，他们在国内宣扬“社会正义”的同时却对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的种族灭绝视而不见。 【附相关视频：批判美国很多人为了钱而放弃道德底线，跪舔 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)】
 
-只有不为名利、财富、美色等诱惑所动，出于追求内心共同的信仰、利他、共赢，才能真正把人才团聚在一起，发挥各自最大的创造力。
 
-千百年来，我们的教育目的一直是“书中自有黄金屋，书中自有颜如玉”，成为“人上人”，“找到一份高薪工作”，却从来没有哪一种教育，在教导我们：利他、共赢……这是何其的悲哀！
 
-姜太公钓鱼的故事，距今已两千多年，这两千多年以来，又有几个人能真正读懂这个故事呢？
+> I can't praise Enes Kanter enough for having moral courage & calling out the hypocrisy of the NBA, Nike, the Olympics & the Left who are overlooking genocide in China while preaching “social justice” at home. [pic.twitter.com/1rDJYGliWF](https://t.co/1rDJYGliWF)
+> — Rep. Mike Waltz (@michaelgwaltz) [October 31, 2021](https://twitter.com/michaelgwaltz/status/1454898971579715585?ref_src=twsrc%5Etfw)
 
-（文章内容仅代表作者个人观点）
+
 
  
 

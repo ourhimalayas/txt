@@ -2,33 +2,37 @@
 ---
 
 
-## 有声|贼喊捉贼 共军扰台军机竟首先广播驱离台湾军机
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1633702/)
+## 若与确诊病例有“时空重合”不得回京
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1633751/)
 
-配音：香草山美食部-玫瑰园
+**作者：日本东京方舟农场 子辰**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+11月1日，北京市卫健委发布通报称，市民非必要不出京，人在外地的北京居民，若与确诊病例有“时空重合”须暂缓回京。相关措施使许多正要返京的民众措手不及。
 
-10月29日中午，共军扰台飞机，竟然对台湾军机近距离广播称，台湾地区飞机已经危及共军军机飞行安全，并让其立即离开。
+据北京卫健委通报，北京这次新一轮疫情已经累计报告31个COVID-19病例，其中29例确诊，2例为无症状感染者。
 
-据统计，共军2021年已累计入侵台湾空域214天，本月累计入侵台湾空域18天。本月台军广播驱离记录108次，2021年累计广播驱离已达647次。
+卫建委要求正在京外出差、旅游等未返京人员，如果与目前国内已报告病例的公布行程有“时空重合”，应就地自我隔离，并配合各项管控措施。
 
-近日，台湾总统蔡英文、美国总统拜登对美台关系的讲话，以及蔡英文首次证实有美军驻训台湾的事情，已经深深刺痛了中共的敏感神经，加剧共军扰台。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-3.jpg)图片来源：https://www.epochtimes.com/gb/21/11/1/n13344723.htm
 
-文字版原文：[贼喊捉贼 共军扰台军机竟首先广播驱离台湾军机](https://gnews.org/zh-hans/1631283/)
+中共所谓“时空重合”，指在同一社区、同一商超、同一车站机场等停留超过四小时以上即称为“时空重合”。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这项政策导致一些没有去过中高风险区、打过疫苗、核酸阴性、行程码绿码的人，都回不了北京。
+
+民众对于这种严防死守的政策表示非常的错愕与不满，纷纷猜测为什么要限制返京，有猜测中共即将召开重要会议的，也有猜测因为冬奥会的，还有民众猜测北京疫情失控。
+
+*参考链接：*
+
+[【疫情11.1】中国疫情扩散16省 北京封城](https://www.epochtimes.com/gb/21/11/1/n13344723.htm)
+
+* * *
 
 
+```
+素材采编：子辰
+编辑：文顺
+校对/发布：Ranting
+```
 
 
  
