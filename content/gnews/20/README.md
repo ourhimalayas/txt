@@ -2,38 +2,43 @@
 ---
 
 
-## 若与确诊病例有“时空重合”不得回京
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1633751/)
+## 拒绝接种疫苗被解雇，澳洲人热衷社交媒体上寻找工作
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1633804/)
 
-**作者：日本东京方舟农场 子辰**
+#### **编译报导：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5825.jpg)**图片来源：HR DailyAdvisor & ITV News**
+因拒绝强制疫苗接种令而失业的澳大利亚人，正在使用社交媒体在未执行新规定的工作场所寻找和分享就业机会。
 
-11月1日，北京市卫健委发布通报称，市民非必要不出京，人在外地的北京居民，若与确诊病例有“时空重合”须暂缓回京。相关措施使许多正要返京的民众措手不及。
+在澳洲各州和领地都实施了涵盖医疗卫生和护理人员、教师和警察以及建筑和酒店工作人员等一系列行业的强制疫苗授权后，Telegram和Facebook涌入了大量寻找有偿工作的人。
 
-据北京卫健委通报，北京这次新一轮疫情已经累计报告31个COVID-19病例，其中29例确诊，2例为无症状感染者。
+在一些招聘网站上，一些乐于接受未接种疫苗的企业宣传“欢迎所有人”。
 
-卫建委要求正在京外出差、旅游等未返京人员，如果与目前国内已报告病例的公布行程有“时空重合”，应就地自我隔离，并配合各项管控措施。
+人数最多的未接种疫苗求职者群体中有20,000人，其中包括美容治疗师、儿童保育员、残疾支持人员和会计师。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-3.jpg)图片来源：https://www.epochtimes.com/gb/21/11/1/n13344723.htm
+阿什是一位电工，拒绝接种疫苗，让他失去了拥有20年的职业生涯。
 
-中共所谓“时空重合”，指在同一社区、同一商超、同一车站机场等停留超过四小时以上即称为“时空重合”。
+朱利安·梅尔文失去了园艺师的工作，一直在筛选招聘广告，因为他无法接种疫苗，他现在主要是打零工。
 
-这项政策导致一些没有去过中高风险区、打过疫苗、核酸阴性、行程码绿码的人，都回不了北京。
+史蒂夫经营一家公司，他一直在一个不需要员工或客户接种疫苗的企业名录上为他的公司做广告。
 
-民众对于这种严防死守的政策表示非常的错愕与不满，纷纷猜测为什么要限制返京，有猜测中共即将召开重要会议的，也有猜测因为冬奥会的，还有民众猜测北京疫情失控。
+“我不反对疫苗，我反对让我这样做的人”，史蒂夫说：“我不喜欢有人被迫这样做。”
 
-*参考链接：*
+一所律师事务所负责人安德鲁·道格拉斯表示，如果一个行业属于政府授权范围，则不可能对其提出挑战。但一些员工认为他们可以在家工作以避免不得不遵守。
 
-[【疫情11.1】中国疫情扩散16省 北京封城](https://www.epochtimes.com/gb/21/11/1/n13344723.htm)
+与此同时，越来越多的企业就如何实施自己的疫苗授权任务寻求建议，以避免失去客户。
 
-* * *
+维多利亚州工商会首席执行官保罗·格拉表示，现在疫苗授权最大的挑战之一是企业裁员的风险。
 
+新闻链接：[Australians fired for refusing Covid vaccine search social media for ‘welcoming’ employers | Australia news | The Guardian](https://www.theguardian.com/australia-news/2021/nov/02/australians-fired-for-refusing-covid-vaccine-search-social-media-for-welcoming-employers)
 
-```
-素材采编：子辰
-编辑：文顺
-校对/发布：Ranting
-```
+**发布：文泓**
 
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

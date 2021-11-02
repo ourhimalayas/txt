@@ -2,48 +2,38 @@
 ---
 
 
-## 美航空公司因人员紧缺推迟或取消逾千个航班
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1633484/)
+## 继佛罗里达州后，19 个州就 COVID-19 疫苗强制令起诉拜登政府
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1633585/)
 
-**作者：日本东京方舟农场 海星**
+【简评：】*随着拜登的疫苗强制接种令生效日期越来越近，各地出现了因为拒绝接种而休假甚至辞职的浪潮，包括飞行员、医疗卫生工作者、消防员等，这无疑对城市的正常运转带来极大影响，如果坚决执行拜登此项行政令的州政府官员没有悬崖勒马，我们可以想象灾难的场景即将到来。*
 
-10月31日，美国航空公司因人员紧缺在本周末推迟或取消了逾千个航班。
+据《大纪元时报》记者[MIMI NGUYEN LY](https://www.theepochtimes.com/author-mimi-nguyen-ly)，2021年10月30日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-14-e1635796491954.png)2020年12月15日，在科罗拉多州奥罗拉，工作人员拿着一剂新冠疫苗进行临床试验。图片来源：Michael Ciaglo/Getty Images
+周五，美国几个州就‘拜登政府要求联邦工作人员和承包商接种新冠疫苗’一事提起了多起联邦诉讼。
 
-据《CNN》报道，追踪美国国内班机延误和取消信息的FlightAware显示，本周六晚上，美国航空公司取消了499个航班，占其业务的18%。另有近300个航班被推迟，占其业务的11%。
+德克萨斯州在加尔维斯顿的联邦法院单独提起诉讼。在密苏里州联邦地区法院提起的另一起诉讼涉及阿拉斯加州、阿肯色州、爱荷华州、密苏里州、蒙大拿州、内布拉斯加州、新罕布什尔州、北达科他州、南达科他州和怀俄明州。在佐治亚州联邦地方法院提起的另一起诉讼涉及佐治亚州、阿拉巴马州、爱达荷州、堪萨斯州、南卡罗来纳州、犹他州和西弗吉尼亚州。
 
-本周五，FlightAware显示，美国航空公司推迟了738个航班，几乎占其业务的四分之一。另有342个航班被取消。该公司还预先取消了本周日的284个航班。
+此前一天，**佛罗里达州州长罗恩·德桑蒂斯(Ron DeSantis)宣布，他就疫苗接种强制令起诉了联邦政府。截至周五晚些时候，就该强制令起诉拜登政府的州总数为 19 个。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2.png)图片来源：https://edition.cnn.com/2021/10/30/business/american-airlines-flight-cancellations/index.html
+**总统乔·拜登于 9 月 9 日发布了一项影响深远的行政命令，要求几乎所有联邦雇员（包括联邦文职雇员和承包商）接种 COVID-19 疫苗作为就业条件。该命令将于12月8日生效。根据该命令，常规的COVID-19检测不再是一种选择，但可能会批准宗教或医学豁免。不遵守该行政令的承包商可能会失去政府的合同。**
 
-美国航空公司在一份声明中声称，航班大面积取消和延误是由于天气恶劣和人员紧缺造成。
+所有19个州都试图阻止拜登的强制令，认为这一要求违反了联邦采购法，而且是对联邦权力的僭越。各州还认为，拜登的疫苗命令违反了联邦政府和州政府权力分离的第十修正案；利用联邦开支来胁迫各州，这是违反宪法的；并且没有适当地允许 60 天的公众评论。
 
-10月初，美国西南航空曾以天气恶劣取消逾千个航班，但随后被调查记者德鲁·赫尔南德斯揭露，真正的原因是员工为捍卫自己的身体自主权，集体抗议拜登政府的强制疫苗接种令，主流媒体却试图掩盖这一事实。 此前，美国航空公司为响应拜登政府的强制疫苗接种令，即要求联邦承包商在12月8日前为员工接种疫苗，因此该公司于10月6日通知所有在美员工，必须在11月24日之前完成疫苗接种，否则将被解雇。
+拜登政府没有立即回应置评请求。
 
-*参考链接：*
+原文连接：[https://www.theepochtimes.com/mkt\_breakingnews/19-states-sue-biden-administration-over-covid-19-vaccine-mandate\_4077074.html](https://www.theepochtimes.com/mkt_breakingnews/19-states-sue-biden-administration-over-covid-19-vaccine-mandate_4077074.html)
 
-[American Airlines cancels hundreds of flights during Halloween weekend](https://edition.cnn.com/2021/10/30/business/american-airlines-flight-cancellations/index.html)
+翻译：洛杉矶盘古农场 – 钢蛋儿
 
+校对：洛杉矶盘古农场 – 柯镇恶
 
+评论：洛杉矶盘古农场 – 钢蛋儿
 
-> [西南航空雇员集体抗议实验性疫苗强制接种令](https://gnews.org/zh-hans/1612335/)
+编辑：洛杉矶盘古农场 –柯镇恶
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-
-
-
-
-> [美国航空限期员工接种新冠疫苗](https://gnews.org/zh-hans/1586580/)
-
-
-
-* * *
-
-
-```
-素材采编：海星
-编辑：文顺
-校对/发布：Ranting
-```
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
