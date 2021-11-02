@@ -2,22 +2,25 @@
 ---
 
 
-## 美国航空公司不得不取消1000多个航班
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1634784/)
+## 中共国粮荒爆发在即，官方发布全民《粮食节约行动方案》
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1634824/)
 
-作者：纽约香草山福音部 –lilian89
+作者：英国喜庄园 – I770775
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-自10月29日开始，美国航空公司三天内取消了1000多个航班，他们将此归咎于工作人员不足和危险的大风天气。根据该公司的疫苗接种计划，11月24日之前，他们可能需要解雇或裁减数千名不愿接种疫苗的员工。
+10月31日，中共中央印发《粮食节约行动方案》要求全国各地区、各部门认真贯彻落实。中央农办负责人称，全民节约粮食是保障国家粮食安全的重要途径。方案提出，要有效利用麦糠、麸皮、薯渣等粮油加工副产物，生产食用产品。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide2-1.jpeg)
 
-那些坚决抵制疫苗强制政策的员工，现在已不在乎美国航空公司是否会损失一大笔钱。在被解雇之前，很多人还想要用完他们的病假和其他假期。
+中共国海关公布的数据显示，2021年1-6月中共国粮食进口量8436.3万吨，比去年同期增长43.1%；1-9月份的粮食总进口量达12827.3万吨，比去年同期增长29.3%。
 
-一旦最后期限到来，美航将失去4200名飞行员。这可能会使该公司在一年中最繁忙的时候陷入瘫痪。
+从数据不难看出，尽管中共国粮食的进口量同比依然在增长，但环比来看增长数据已经在急速下降。
 
-本月早些时候，西南航空公司也由于同样的原因不得不取消数千个航班，使他们损失了7500万美元。之后，西南航空不得不扭转方向，不再解雇他们未接种疫苗的员工。
+由于疫情的长期封锁，国际海运成本已经翻倍，国际粮价整体都在大幅攀升。近日欧盟各国联合英国、加拿大、土耳其等国又集体取消了对中共国的关税优惠国待遇。这些因素叠加，让本来外汇吃紧的中共，想依靠粮食进口解决国内粮食缺口的希望变得越来越渺茫。
 
-参考链接：[American Airlines Cancels More Than 1,000 Flights in 24 Hours – Blames Staffing Shortages and ‘High Winds’](https://djhjmedia.com/Steven/American-airlines-cancels-more-than-1000-flights-in-24-hours-blames-staffing-shortages-and-high-winds/)
+参考链接：
+1）[为进一步保障粮食安全开辟重要途径——中央农办负责人就《粮食节约行动方案》答记者问](http://www.gov.cn/zhengce/2021-11/01/content_5648094.htm)
+2）[中共中央办公厅 国务院办公厅印发《粮食节约行动方案》](http://www.chinanews.com/gn/2021/11-01/9599117.shtml)
+3）[我国大举进口八千多万吨粮食！](https://finance.sina.com.cn/money/future/roll/2021-07-15/doc-ikqcfnca6970703.shtml)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 

@@ -2,37 +2,49 @@
 ---
 
 
-## 多国同时取消对中共国普惠制关税优惠国待遇
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1634887/)
+## 美媒称中共在建造导弹发射井上取得重大进展
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1635012/)
 
-作者：美东香草山农场 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月30日，据盖特消息，自2021年12月1日起，欧盟27国、英国、加拿大、土耳其、乌克兰和列支敦士登等32个国家将取消对中共国的普惠制关税优惠国待遇。报道称，截至目前，仍旧保留中共国普惠制待遇的只余三国：挪威、澳大利亚和新西兰。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide10.jpeg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/S-1.jpg)alwaysfreshnews.com
+《国会山》（the hill）发表文章，题目“报告称，中共在建造导弹发射井方面似乎取得了‘重大进展’”。
 
-“普惠制” 是普遍优惠制度的简称，是发达国家给予发展中国家及地区的出口制成品和半制成品普遍的、非歧视的、非互惠的优惠关税制度。中共国自2001年加入世贸组织后，除最惠国待遇外，还享受普惠制待遇。
+全文如下：
 
-据了解，土耳其、越南、印尼、孟加拉国、柬埔寨等国家依然享有普惠制待遇。这将有利于这些国家成为新兴的劳动密集型出口国，从而打破中共国在全球产品供应链中的垄断。
+无党派研究中心“美国科学家联合会”（FAS，Federation of American Scientists）的一份报告显示，中共在西部建造导弹发射井方面似乎正在取得“重大进展”。
 
-参考链接：
-1）[https://www.gettr.com/post/pfp70471d4](https://www.gettr.com/post/pfp70471d4)
-2）[海关总署：下月起不再对输欧盟成员国等国家货物签发普惠制原产地证书](http://finance.people.com.cn/n1/2021/1028/c1004-32267063.html)
-3）[各国取消普惠制关税优惠，中共国正以光速倒退回入世前](https://gnews.org/zh-hans/1630782/)
+该报告周二（11 月2日）发布，根据商业卫星图像，详细描述了玉门、哈密和鄂尔多斯附近三个疑似导弹发射井的快速施工情况。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+正如报告所指出的，中共政府没有证实或否认正在建设的设施是用于发射井。
 
-总编：Irene木木 
-编辑：Irene木木 
-校正/发稿：谐趣园
+报告还指出，显示出的发射井场地距离投入使用还有“许多年”，中共国将如何装备和运营这些发射井尚不清楚。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+报告指出：“对中共来说，这是一次史无前例的核建设。重要的是，这种集结不会进一步加剧核竞争和助长其他核武器国家的最坏情况计划，尽管我们担心这些都是可能的结果。”
+
+美国和其他国家越来越担心中共的核能力，据报道，今年早些时候，中共在夏季进行了两次可能的高超音速武器试验，其中包括向太空发射高超音速导弹。
+
+参谋长联席会议主席马克·米利（Mark Milley）在彭博电视台（Bloomberg Television）的“大卫·鲁宾斯坦秀（The David Rubenstein Show）点对点对话”节目中说，这次明显的测试“非常接近”斯普特尼克（Sputnik）时刻，指的是1957年苏联将第一颗人造卫星送入轨道的时刻。
+
+周二（11月2日）的报告称，中共似乎正在全国建造大约300个新的导弹发射井。
+
+“美国科学家联合会”（FAS）表示，中共在建造发射井方面，他们已经观察到“几乎每周都有新的进展”，一旦发射场投入使用，“似乎能够支持预期的导弹行动”。
+
+报告还描述了三种不同类型的掩体，用于保护设施免受环境因素的影响。
+
+这份报告并不是FAS第一次警告中共增加的核发射井，7月下旬，FAS报道称，中共似乎正在玉门西北约240英里的哈密建设了一座核设施，此前，该组织报告称，中共正在甘肃建设120个发射井。
+
+在哈米核设施的报告发布后，美国战略司令部表示，这是“两个月以来公众发现的第二次，我们一直在谈论关于世界面临的日益严重的威胁，以及围绕着它的背后秘密的话题。”
+
+（全文完）
+
+穷兵黩武也是邪共的一种手段，蓝金黄的渗透，超限战的病毒、疫苗，邪魔没有做不到的，只有想不到的。看得出来，中共正在末日狂奔，离它灭亡的日子越来越近了。
+
+原文链接：
+
+[https://thehill.com/policy/defense/579563-china-appears-to-make-significant-progress-in-building-missile?rl=1](https://thehill.com/policy/defense/579563-china-appears-to-make-significant-progress-in-building-missile?rl=1)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
