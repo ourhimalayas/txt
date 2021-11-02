@@ -2,59 +2,45 @@
 ---
 
 
-## 福奇是如何愚弄美国的？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1634343/)
+## 数十万冠状病毒疫苗受伤被积压未能进入 VAERS
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1634408/)
 
 翻译：Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-10.jpg)图片来源：dw.com
+![](https://assets.gnews.org/wp-content/uploads/2021/11/All-deaths-reported-to-VAERS-by-year.jpg)图片来源：newstarget.com
 
-当大流行来袭时，美国需要向人寻求建议。媒体和公众自然会关注安东尼·福奇博士——美国国家过敏和传染病研究所（NIAID）所长、受人尊敬的实验室免疫学家和川普总统选定的 COVID 顾问之一。不幸的是，福奇博士弄错了主要的流行病学和公共卫生问题。现实和科学研究现在已经揭穿了他。
+## ……还有更多的受伤和死亡人数即将到来
 
-**以下是关键问题：**
+在最新一期的《医生与科学家》中，布赖恩·胡克博士（Brian Hooker）采访了 杰西卡·罗斯（Jessica Rose）, 讨论三十多年前由 CDC 和 FDA 建立的[疫苗伤害监测系统](https://childrenshealthdefense.org/defender/chd-tv-doctors-scientists-brian-hooker-jessica-rose-vaers-system/)**VAERS**的失败。罗斯博士是生物数学和分子研究方面的专家。
 
-自然免疫力。通过[推动疫苗授权](https://www.voanews.com/a/fauci-defends-coronavirus-vaccination-mandates/6274249.html)，福奇博士忽略了在美国有超过 4500 万的 COVID 康复者自然获得了免疫力。越来越多的证据表明，自然免疫比疫苗诱导的免疫力更强、更持久。[以色列的一项研究](https://www.medrxiv.org/content/10.1101/2021.08.24.21262415v1)证明，接种疫苗的人感染有症状的 COVID 的可能性是未接种疫苗，从先前感染病毒康复的人的 27 倍。
+2021 年 1 月，她利用自己作为计算生物学家的技能，开始分析疫苗VAERS中的数据。 每周，她从 VAERS 下载公开可用的数据集，每周比较输入**。她发现疫苗伤害报告，从一个星期到下一个星期都不见了**。每周，数据都会在 VAERS 系统中更新。她发现一些数据被覆盖，从系统中消失了。她还发现，“数十万”冠状病毒疫苗伤害报告被积压，没有及时出现以提醒医疗保健专业人员注意疫苗的严重问题。
 
-至少自公元前 430 年的[雅典瘟疫](https://www.gutenberg.org/files/7142/7142-h/7142-h.htm)以来，我们就知道对疾病的自然免疫。飞行员、卡车司机和码头工人都知道它， [护士比任何人都更了解它](https://brownstone.org/articles/hospitals-should-hire-not-fire-nurses-with-natural-immunity/)。在福奇的授权下，医院正在[解雇英勇的护士](https://fee.org/articles/massive-nurse-shortage-hits-houston-weeks-after-150-unvaccinated-nurses-and-hospital-workers-fired/)，这些护士在照顾病人时感染了新冠肺炎。凭借其卓越的免疫力，他们完全可以照顾最年长和最虚弱的患者，其传播风险甚至低于接种疫苗的患者。
+**VAERS 中积压了数十万份疫苗伤害报告**
 
-**保护老人**
+在采访中，罗斯博士讨论了 VAERS 系统的系统性缺陷，这些缺陷阻止了被动报告系统按照最初的意图为公众利益服务。药物警戒系统成立于 1990 年，旨在检测疫苗问题，提醒监管机构和公众注意特定疫苗的严重不良事件和禁忌症。数据由卫生与公共服务部管理。医疗保健专业人员将数据输入系统，并在 30 分钟内完成报告。2021年，医护人员被疫苗伤害大量报告淹没，没有时间将它们全部输入系统。许多与 Covid 疫苗相关的医学问题被忽视、丢弃或打折，当成是疫苗的巧合或正常反应。
 
-虽然任何人都可能被感染，但老年人和年轻人之间的死亡风险差异超过一千倍。在美国报告的 COVID [死亡人数超过700,000之后](https://www.newsweek.com/where-americas-cases-hospitalizations-deaths-stand-19-months-covid-19-pandemic-1637775)，我们现在知道：封锁未能保护高危老年人。当面对集中保护弱势群体的想法时，福奇博士承认他不知道如何实现它， [认为这是不可能的](https://www.foxnews.com/health/fauci-coronavirus-herd-immunity-great-barrington-declaration-nonsense)。这对于实验室科学家来说，可能是可以理解的，但公共卫生科学家提出了许多[具体的建议](https://www.newsweek.com/we-should-focus-protecting-vulnerable-covid-infection-opinion-1543225)，如果福奇和其他官员没有忽视它们，而这些建议会有所帮助。
+已提交的数十万份不良事件报告，描绘了医疗渎职的可怕画面。这些严重的公共卫生问题，尚未得到任何监管机构或司法程序的解决。**过去，如果**** VAERS ****系统记录了一种疫苗导致**** 50 ****多人死亡，那么疫苗就会被撤出市场。到**** 2021 ****年，仅**** 10 ****个月内就有超过**** 20,000 ****人死亡。其中高达**** 97% ****的问题来自新的**** mRNA Covid ****疫苗，而不是疫苗供应的其余部分。联邦政府没有将这些致命产品从市场上撤下，而是发布了非法授权，强迫个人参与人口减少实验。**这可能是该系统最大的缺陷：应该监督数据并向公众警告医疗暴行的机构与试图推动疫苗的实体相同——疫苗是“安全有效的”。 （相关：COVID 疫苗实验导致疫苗[伤害和死亡人数猛增](https://www.naturalnews.com/2021-10-24-covid-vaccine-experiment-causes-monstrous-spike-in-vaccine-injuries.html)，严重不良事件被低估了八倍。）
 
-我们现在可以做些什么来最大程度地降低 COVID 死亡率？ 当前的疫苗接种工作应侧重于覆盖 60 岁以上既未康复也未接种疫苗的人群，包括农村地区和内陆地区难以接触到、不太富裕的人群。**相反，福奇博士为已经免疫的儿童、学生和工作年龄的成年人（所有低风险人群）推行了疫苗接种计划，这对劳动力市场造成了巨大破坏，并阻碍了许多医院的运营。**
+**严重不良事件和死亡人数的发生幅度大于**** VAERS ****系统中记录的数量**
 
-华盛顿特区 – 7 月 20 日：顶级传染病专家 福奇博士于 2021 年 7 月 20 日在华盛顿特区国会山在参议院卫生、教育、劳工和养老金委员会就 COVID-19 的状况作证。 过去三周，COVID-19 病例增加了两倍，未接种疫苗的人住院和死亡人数正在上升。
+在分析了 VAERS 系统中缺失的数据后，罗斯博士得出的结论是，Covid 疫苗接种后的严重不良事件和死亡人数，**远高于**** VAERS ****系统中记录的数据**。有些问题被低估了 31 倍，而其他更常见的副作用可能被低估了 100 倍。到 9 月，罗斯博士参加了 FDA 的疫苗和相关生物制品咨询委员会会议，引起了人们对 VAERS 系统中漏报问题的关注。[她的研究标题为](https://cf5e727d-d02d-4d71-89ff-9fe2d3ad957f.filesusr.com/ugd/adf864_0490c898f7514df4b6fbc5935da07322.pdf)“对 VAERS 药物警戒的批判性评估：美国VAERS 是一个有效的药物警戒系统吗？” 并发表在《科学》、《公共卫生政策》和《法律》上。
 
-**学校停课**
+她的论文得出结论，“数十万”不良事件积压并等待输入系统。“在我的决定中，我发现最重要的事情是这个工具——**它可以是一种药物警戒工具**——但是否被这样使用了？”罗斯博士说。
 
-学校是流感的主要传播点，**但不是**** COVID ****的主要传播点**。虽然儿童确实会被感染，**但他们死于**** COVID ****的风险微乎其微**，低于他们已经是很低的死于流感的风险。在整个 2020 年春季浪潮中，瑞典为其所有 180 万名 1 至 15 岁的儿童提供日托和学校服务，不戴口罩、不进行测试或保持社交距离。**结果呢？**** ****儿童的**** COVID**[** ****死亡为零**](https://www.folkhalsomyndigheten.se/contentassets/c1b78bffbfde4a7899eb0d8ffdb57b09/covid-19-school-aged-children.pdf)，[教师的风险](https://www.nejm.org/doi/full/10.1056/NEJMc2026670)低于其他职业的平均水平。2020 年秋季，大多数欧洲国家纷纷效仿，结果相似。考虑到停课对儿童的破坏性影响，福奇博士[倡导停课](https://dossier.substack.com/p/dr-flip-flop-a-timeline-of-faucis)，可能是他职业生涯中最大的错误*。*
+文章内容来源：
 
-**口罩**
+[ChildrensHealthDefense.org](https://childrenshealthdefense.org/defender/chd-tv-doctors-scientists-brian-hooker-jessica-rose-vaers-system/)
 
-医学研究的黄金标准是随机试验，现在有两个关于成人 COVID 口罩的试验。对于儿童，没有确凿的科学证据表明口罩有效。[丹麦的一项研究](https://www.acpjournals.org/doi/full/10.7326/M20-6817)发现，在冠状病毒感染方面，掩蔽和不掩蔽之间没有统计学上的显着差异。[在孟加拉国的一项研究中](https://www.poverty-action.org/sites/default/files/publications/Mask_RCT____Symptomatic_Seropositivity_083121.pdf)，95% 的置信区间表明，口罩将传播减少了 0% 到 18%。因此，**口罩要么是零**，要么是有限的好处。 福奇博士本可以强调更多重要的流行病措施，例如，改善学校的通风，和雇佣具有天然免疫力的疗养院工作人员
+[NaturalNews.com](https://www.naturalnews.com/2021-10-24-covid-vaccine-experiment-causes-monstrous-spike-in-vaccine-injuries.html)
 
-**接触者追踪**
+[IPAKPHPI.com](https://cf5e727d-d02d-4d71-89ff-9fe2d3ad957f.filesusr.com/ugd/adf864_0490c898f7514df4b6fbc5935da07322.pdf) [PDF]
 
-对于一些传染病，如埃博拉和梅毒，接触者追踪至关重要。对于像 COVID 这样普遍流行的病毒感染，它是宝贵的公共卫生资源的无妄浪费，并没有阻止这种疾病。
-
-**附带公共健康损害**
-
-一个基本的公共卫生原则是：健康是多方面的； 控制单一传染病并不等同于健康。 作为一名免疫学家，福奇博士未能正确考虑和权衡封锁对癌症检测和治疗、心血管疾病结果、糖尿病护理、儿童疫苗接种率、心理健康和阿片类药物过量服用等方面的灾难性影响。在未来的许多年里，美国人将忍受并死于这种附带损害。
-
-在私下谈话中，我们的大多数科学同事都同意我们的观点。虽然有些人已经发声了，但为什么没有更多人这样做呢？ 好吧，有些人尝试过但失败了。其他人在看到同事在媒体上[诽谤](https://thefederalist.com/2021/03/18/one-of-the-lockdowns-greatest-casualties-could-be-science/)和[抹黑](https://www.spectator.co.uk/article/covid-lockdown-and-the-retreat-of-scientific-debate)或被大科技审查时保持沉默。有些是政府雇员，他们被禁止违反官方政策。许多人害怕[失去职位](https://thefederalist.com/2021/04/28/cdc-punishes-superstar-scientist-for-covid-vaccine-recommendation-the-cdc-followed-4-days-later/) 或[研究经费](https://www.niaid.nih.gov/grants-contracts/niaid-budget-data-comparisons)，**因为他们知道福奇博士坐拥世界上最大的传染病研究资金** 。
-
-**证据确凿**
-
-州长、记者、科学家、大学校长、医院管理人员和商界领袖，可以继续关注安福奇博士或睁开眼睛。在超过 700,000 例 COVID 死亡和封锁的破坏性影响之后，是时候回归公共卫生的[基本原则](https://twitter.com/MartinKulldorff/status/1340352565481975812)了。
-
-*马丁·库尔多夫（Martin Kulldorff ）博士是哈佛医学院的流行病学家、生物统计学家和医学教授。杰伊·巴塔查里亚（ Jay Bhattachary），医学博士，斯坦福大学医学院卫生政策教授。两人都是新成立的布朗斯通研究所 的高级学者。*
-
-**参考资料：**[newsweek][How Fauci Fooled America | Opinion](https://www.newsweek.com/how-fauci-fooled-america-opinion-1643839)
+**参考资料：**[newstarget][Hundreds of thousands of covid vaccine injuries BACKLOGGED and not yet entered into VAERS … far greater numbers of injuries and deaths are still to come](https://www.newstarget.com/2021-10-31-hundreds-of-thousands-covid-vaccine-injuries-backlogged-not-entered-into-vaers.html)
 
 * * *
 
 *审核：文乐
-校对：信心满满
+校对：阿伯塔
 发布：信心的选择*
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)

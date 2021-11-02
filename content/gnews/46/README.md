@@ -2,28 +2,39 @@
 ---
 
 
-## 中国男子网络发狗子表情包，警察觉得受到侮辱将其行政拘留九日
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1633867/)
+## 朴昌海战友被诬告诈骗，京畿（ji）道警署不予立案打脸伪类
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1633970/)
 
-韩国首尔天池农场—虎眼　校对/上传—无明逆流
+#### 作者：英国喜庄园-I770775
 
-导读：在中国的网络上民众表达自己内心真实的想法是危险的。一不小心就能触碰到某些部门某些人敏感脆弱的神经，随之而来的就是警察的拘留和罚款。如前不久的民众在朋友圈里抱怨交通违法罚款不合理被拘留，男子在网上把爆炸特效用在收费站上被逮捕等等…
-中国警察除了在服务外国人上专业到位之外，在给中国人莫须有罪名上也是天下无双。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
 
-2021年10月30日宁夏青铜峡市城关派出所接到“群众举报”，有人在微信群里发送侮辱“人民警察”的信息。接到举报信息后，城关派出所迅速组织警力进行调查。
-根据警察的说法，违法嫌疑人李某因对小区疫情管控不满，在330余人的微信聊天群里发送了一张侮辱“人民警察”的照片，公然对警察形象进行侮辱。警察“依法”将李某传唤至派出所，讯问后，李某对其在微信群里侮辱“人民警察”的行为表示认罪。当地警方以《中华人民共和国治安管理处罚法》认定李某的行为已构成“寻衅滋事罪”，对李某予以行政拘留九日的处罚。
+最近，爆料革命的好消息接连不断。就在喜币上市前夕，韩国农场又传来了喜讯。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-3.jpg)
+10月31号，草根小哥发盖特称，深受战友们喜爱的“朴司令”朴昌海战友，被诬告诈骗的罪名不成立，直接啪啪打脸伪类。
 
-下图为当地警方觉得受辱的表情包：
+据盖文介绍，自8月份以来，在韩国，中共精心安排了众多伪类，蓄意碰瓷并诬告朴昌海先生诈骗。韩国京畿道鞍山警署，经过近两个月的调查了解，终于在10月13日，正式驳回了伪类的诬告。调查通知书显示，该案件没有充足的证据，证明朴昌海先生涉嫌诈骗，所以不予立案，“不起诉”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/d696c277-9c02-48ae-ba7e-4c0c3e10e1d6.jpg)
+盖文里，草根小哥掩饰不住喜悦，掷地有声：朴昌海先生的赢，让中共伪类节节败退，新中国联邦战友步步攀升。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/c0e04221-5981-472e-b3f0-3d45c7ad7e03.jpg)
+参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/41eadb83-c702-4478-8207-be53f8d88dc6.jpg)
+[朴昌海战友被诬告诈骗，京畿（ji）道警署不予立案打脸伪类](https://gettr.com/post/pfnnnb5189)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编：飞虹
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-网上同类表情包：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/f77ff8ae-78e0-4f02-86b7-993ee0ed6875.jpg)
-（本文仅代表作者个人观点）
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
 
  
 
