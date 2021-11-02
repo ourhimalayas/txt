@@ -2,26 +2,35 @@
 ---
 
 
-## 日本众院选举快讯：立民党党首枝野因选举失利有意引咎辞职
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1634325/)
+## 有声|杰森·米勒：疫苗强制令导致美国社会分裂
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1634486/)
 
-#### 作者：东京樱花团｜文小白
-![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-1-1.png)[*图片来源*](https://cdn.hk01.com/di/media/images/dw/20200910/380758690568998912.jpeg/Gk3QfqO7H4VwDg7BnVSobWi2M0HgPnUxL7022y-9Nts?v=w1920r16_9)
-日本在野党立宪民主党的代表枝野幸男11月2日在党内干部会议上表示，由于立宪民主党在10月31日众议院选举投票中获得的议席数少于选举前，自己打算引咎辞职。
+配音：香草山香港部-文凯琳
 
-- ***延展阅读：***[***立宪民主党***](https://ja.m.wikipedia.org/wiki/%E7%AB%8B%E6%86%B2%E6%B0%91%E4%B8%BB%E5%85%9A_%28%E6%97%A5%E6%9C%AC_2017%29)
-- ***延展阅读：***[***枝野幸男***](https://ja.m.wikipedia.org/wiki/%E6%9E%9D%E9%87%8E%E5%B9%B8%E7%94%B7)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+
+目前，佛罗里达州的中共病毒感染率，已经达到全美国最低，德克萨斯州的感染率，也低于许多民主党执政的蓝州。而这两个州对拜登政府的疫苗强制令反抗最为激烈。
+
+盖特CEO杰森.米勒先生10月30日接受Newsmax采访时说，很多防疫措施，在科学上都讲不通，尤其是口罩强制令、疫苗强制令，和疫苗护照等措施。在纽约，没有疫苗卡甚至不能去买汉堡，这实在太荒谬了。人们正在被迫搬往其他地区，并非是他们喜欢那里的气候或是某些工作。如今人们在全国各地搬家，就是为了远离政府。
+
+米勒先生认为，这是美国历史上民众第一次出现这样的自我选择。对美国而言，这是一种令人不安的趋势。他认为民主党错误的政策，让纽约和西雅图等城市，因为失去不愿强制接种疫苗的警力，而陷入混乱。这是迫使美国分裂为两个不同社会的迹象，将对蓝领工人造成伤害，也会对那些需要到实际工作场合去工作的人，造成伤害。
+
+文字版原文：[杰森·米勒：疫苗强制令导致美国社会分裂](https://gnews.org/zh-hans/1631721/)
+
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-枝野说：“出现了少于原有议席的非常遗憾的结果，这完全是因为我的能力不足，深表歉意。”他透露称有意在最早10日召集的特别国会的闭会日辞职。此外，干事长福山哲郎也表态将引咎辞职。
 
-立宪民主党由原民进党的左派成员出走后于2017年10月3日组成，为日本最大在野党，由枝野幸男出任党首。
-
-在10月31日的选举中，立民党与共产党、国民民主党等4个在野党推出了统一候选人，在213个选区与执政党和执政党方面的无党派候选人展开对决。虽然小选区的议席数从公告前的48个增加到57个，但比例代表议席数从公告前的62个大减至39个，未能凭借在野党携手共斗实现飞跃性发展。
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

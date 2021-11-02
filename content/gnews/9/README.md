@@ -2,15 +2,12 @@
 ---
 
 
-## 七星照币
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1634430/)
+## 山东菏泽碧桂园铂悦城农民工讨薪被项目负责人车辆压伤
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1634538/)
 
-韩国首尔天池农场—腊八　校对/上传—无明逆流
-![](https://assets.gnews.org/wp-content/uploads/2021/11/bb0186fc-2e3f-4bdc-97a5-0261189ad63a.jpg)
-**七哥藏大爱，带着使命来。
-准备三十载，猛料随手摘。
-战友显英才，农场兴未来。
-G系搭平台，喜币发大财。**
+10月21日上午，山东菏泽碧桂园铂悦城项目工地门口多名农民工聚集拉条幅、讨要薪资，一名农民工被项目负责人车辆压伤。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

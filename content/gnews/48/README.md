@@ -2,20 +2,43 @@
 ---
 
 
-## 秘翻在线: 北京小区多处因疫情被封闭管理
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1633730/)
+## 拒绝接种疫苗被解雇，澳洲人热衷社交媒体上寻找工作
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1633804/)
 
-撰稿：西枫westca
+#### **编译报导：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5825.jpg)**图片来源：HR DailyAdvisor & ITV News**
+因拒绝强制疫苗接种令而失业的澳大利亚人，正在使用社交媒体在未执行新规定的工作场所寻找和分享就业机会。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed.jpg)图片来源：网络截屏
-据新浪网11月1日报道，北京再现本土疫情。此次蔓延中共国各地的疫情呈多点散发，已涉及到16省、自治区和直辖市。同日，北京市委新闻发布会上要求市民继续坚持非必要不出境、不出京，对于在外出差的人如有与已知病例有时空重合，应暂缓回京的政策。
+在澳洲各州和领地都实施了涵盖医疗卫生和护理人员、教师和警察以及建筑和酒店工作人员等一系列行业的强制疫苗授权后，Telegram和Facebook涌入了大量寻找有偿工作的人。
 
-北京本土病例已有31例，涉及到多个区县， 而号称“亚洲最大社区”的天通苑，也在11月1日晚加入了多个小区，施行封闭管理，“只进不出”，且居民要连夜排队做核酸检测。本轮疫情均为德尔塔变异毒株，与西北地区属同一传播链。
+在一些招聘网站上，一些乐于接受未接种疫苗的企业宣传“欢迎所有人”。
 
-对于官方的说法，此次疫情源头来自内蒙古额济纳旗，并初步判定为境外输入。就此说法，网民们评论“他们入境前的核算都白做了吗？他们没打疫苗吗？他们怎么没有传染机组人员？他们怎么那么幸运就到中国发病来了？”中共国对疫情的来源、管控一直在欺骗大众，等到真相一日曝光，就是这个极权政府倒闭之时。
+人数最多的未接种疫苗求职者群体中有20,000人，其中包括美容治疗师、儿童保育员、残疾支持人员和会计师。
 
-**新闻来源：**[北京天通苑北二区封闭管理测核酸，小区只进不出|北京市|核酸|新冠肺炎\_新浪新闻 (sina.com.cn)](https://k.sina.com.cn/article_1411163204_541ca444020012te1.html)
+阿什是一位电工，拒绝接种疫苗，让他失去了拥有20年的职业生涯。
+
+朱利安·梅尔文失去了园艺师的工作，一直在筛选招聘广告，因为他无法接种疫苗，他现在主要是打零工。
+
+史蒂夫经营一家公司，他一直在一个不需要员工或客户接种疫苗的企业名录上为他的公司做广告。
+
+“我不反对疫苗，我反对让我这样做的人”，史蒂夫说：“我不喜欢有人被迫这样做。”
+
+一所律师事务所负责人安德鲁·道格拉斯表示，如果一个行业属于政府授权范围，则不可能对其提出挑战。但一些员工认为他们可以在家工作以避免不得不遵守。
+
+与此同时，越来越多的企业就如何实施自己的疫苗授权任务寻求建议，以避免失去客户。
+
+维多利亚州工商会首席执行官保罗·格拉表示，现在疫苗授权最大的挑战之一是企业裁员的风险。
+
+新闻链接：[Australians fired for refusing Covid vaccine search social media for ‘welcoming’ employers | Australia news | The Guardian](https://www.theguardian.com/australia-news/2021/nov/02/australians-fired-for-refusing-covid-vaccine-search-social-media-for-welcoming-employers)
+
+**发布：文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
