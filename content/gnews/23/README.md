@@ -2,8 +2,8 @@
 ---
 
 
-## 11/1/2021【HCoin To the Moon 庆典】：盖特通过喜支付进行的打赏功能将让政客们站着把钱赚了
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1633847/)
+## 11/1/2021【HCoin To the Moon 庆典】：什么是“忠诚”？
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1633923/)
 
 秘密翻译组-北美组
 

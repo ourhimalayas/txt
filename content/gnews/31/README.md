@@ -2,32 +2,43 @@
 ---
 
 
-## 格伦.杨金表示他将不会推行强制疫苗政策
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1633782/)
+## 拒绝接种疫苗被解雇，澳洲人热衷社交媒体上寻找工作
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1633804/)
 
-撰稿：Grace
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-3.png)
-图片来源：Thenewyorktoday
+#### **编译报导：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5825.jpg)**图片来源：HR DailyAdvisor & ITV News**
+因拒绝强制疫苗接种令而失业的澳大利亚人，正在使用社交媒体在未执行新规定的工作场所寻找和分享就业机会。
 
-据Newsmax10月31日报道，当日，弗吉尼亚州共和党候选人格伦·杨金（Glenn Youngkin），在Newsmax上说，虽然他支持中共病毒疫苗并鼓励人们去接种，但是，如果他在星期二晚上当选该州州长，他将不会推行强制疫苗政策。
+在澳洲各州和领地都实施了涵盖医疗卫生和护理人员、教师和警察以及建筑和酒店工作人员等一系列行业的强制疫苗授权后，Telegram和Facebook涌入了大量寻找有偿工作的人。
 
-杨金说：“我已经接种了疫苗；我的家人也接种了疫苗；我鼓励那些能在批准的地方接种疫苗的人去接种，但我不会强制要求接种疫苗，我认为学校不应该这样做，特别是对幼儿而言。”
+在一些招聘网站上，一些乐于接受未接种疫苗的企业宣传“欢迎所有人”。
 
-杨金还说：“我认为那是父母的决定，我相信父母对他们的孩子有做决定的基本权利。而且，作为州长，我将确保我为父母的权利站出来。”
+人数最多的未接种疫苗求职者群体中有20,000人，其中包括美容治疗师、儿童保育员、残疾支持人员和会计师。
 
-杨金的竞争对手是弗吉尼亚州前州长特里.麦考利夫（Terry McAuliffe）。
+阿什是一位电工，拒绝接种疫苗，让他失去了拥有20年的职业生涯。
 
-杨金告诉主持人迪克.莫里斯(Dick Morris), 拜登或奥巴马为麦考利夫站台,而且来自民主党州长或工会的大量资金注入了麦考利夫的竞选团队，试图挽救麦考利夫现在失败的政治生涯。但杨金相信，拜登和奥巴马无法为麦考利夫带来选民的热情。
+朱利安·梅尔文失去了园艺师的工作，一直在筛选招聘广告，因为他无法接种疫苗，他现在主要是打零工。
 
-另一方面，据《保守信念》(Conservative Belief)11月1日报道，川普总统周一在最后一刻向弗吉尼亚州的共和党选民发出呼吁，要求他们集体出动，将选票投给格伦.杨金。
+史蒂夫经营一家公司，他一直在一个不需要员工或客户接种疫苗的企业名录上为他的公司做广告。
 
-对于杨金，川普总统说: “杨金是一个好人，一个勤劳的人，一个成功的人。他热爱弗吉尼亚州，想为你们减税，拯救你们孩子的教育，以及其他许多非常好的事情。”
+“我不反对疫苗，我反对让我这样做的人”，史蒂夫说：“我不喜欢有人被迫这样做。”
 
-但是川普认为“麦考利夫是一个撒谎，欺骗和偷窃的低级政治家。他是一个糟糕的高税率州长，如果当选，他将再次成为一个更糟糕的州长”。
+一所律师事务所负责人安德鲁·道格拉斯表示，如果一个行业属于政府授权范围，则不可能对其提出挑战。但一些员工认为他们可以在家工作以避免不得不遵守。
 
-**新闻来源：**[**Youngkin to Newsmax: I Won’t Order Vaccine Mandates**](https://www.newsmax.com/politics/glennyoungkin-virginia-governor-campaign/2021/10/31/id/1042689/)
+与此同时，越来越多的企业就如何实施自己的疫苗授权任务寻求建议，以避免失去客户。
 
-** **[**Trump Makes Big Move To Drive Voter Turnout for Youngkin in Va. Governor’s Race**](https://conservativebrief.com/trump-makes-53775/?utm_source=CB&amp;utm_medium=DJD)** **
+维多利亚州工商会首席执行官保罗·格拉表示，现在疫苗授权最大的挑战之一是企业裁员的风险。
+
+新闻链接：[Australians fired for refusing Covid vaccine search social media for ‘welcoming’ employers | Australia news | The Guardian](https://www.theguardian.com/australia-news/2021/nov/02/australians-fired-for-refusing-covid-vaccine-search-social-media-for-welcoming-employers)
+
+**发布：文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
