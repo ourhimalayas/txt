@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/2/2021 10:31 AM (UTC)`
+
+2021年11月2日: 法治基金,法治社会每周捐款留言精选集<br/>法治基金, 法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>2nd of November, 2021 Weekly Rule of Law Foundation and Society donors messages collection <br/>The Rule of Law Foundation and Society team heartfully thank all of our supporters and donors！
+![img](https://media.gettr.com/group8/getter/2021/11/02/10/31/36cc78f1-c0a4-fd97-69a1-d0cc76dc6a25/out.jpg)
+
+---
+
 `@miles 11/2/2021 4:59 AM (UTC)`
 
 11/1/2021【HCoin To the Moon Celebration】: We support both Pompeo and Trump running for President of the United States as long as they are determined to take down the CCP! We will not take sides!<br/><br/>11/1/2021【HCoin To the Moon 庆典】：我们既支持蓬培奥也支持川普竞选美国总统，只要他们坚决灭共！我们不会在他们之间选边儿站队！<br/>
@@ -292,15 +299,6 @@ Pompeo: The CCP has the capacity and intent to do the real harm to the US. <br/>
 
 10/29/2021 Miles Guo: The CCP’s internal struggles, invasion of Taiwan, imposing property tax, genocide, and its imminent financial collapse will eventually led the Chinese people to take it down<br/><br/>10/29/2021 文贵直播：中共的内斗、打台湾、强推房产税、搞种族大屠杀和面临的金融崩溃终将导致中国人将其消灭<br/>
 ![img](https://media.gettr.com/group43/getter/2021/10/29/23/50/4d7335a4-742b-a025-c8e3-cea716438d82/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gfashion 10/29/2021 7:18 PM (UTC)`
-
-Studio Vibes<br/>@DDNYC
-![img](https://media.gettr.com/group6/origin/2021/10/29/19/18/5d8f7084-5b75-41fc-39fe-ff23a82bf716/out.jpg)
 
 ---
 
