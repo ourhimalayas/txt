@@ -2,39 +2,28 @@
 ---
 
 
-## 中共国粮荒爆发在即，官方发布全民《粮食节约行动方案》
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1634824/)
+## 芯片紧缺，苹果丢车保帅——减产iPad，力保iPhone13生产
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1634871/)
 
-作者：英国喜庄园 – I770775
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月31日，中共中央印发《粮食节约行动方案》要求全国各地区、各部门认真贯彻落实。中央农办负责人称，全民节约粮食是保障国家粮食安全的重要途径。方案提出，要有效利用麦糠、麸皮、薯渣等粮油加工副产物，生产食用产品。
+翻译：billwilliam
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide2-1.jpeg)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-1.jpg)图源：gearopen.com
 
-中共国海关公布的数据显示，2021年1-6月中共国粮食进口量8436.3万吨，比去年同期增长43.1%；1-9月份的粮食总进口量达12827.3万吨，比去年同期增长29.3%。
+日经英文网11月2日报道，因为疫情大流行导致芯片严重紧缺，苹果公司大幅减少iPad生产，而将珍贵的芯片专注于iPhone13的生产。据称两种智能产品都通用同样的核心芯片和辅助芯片，存在零部件的竞争关系。
 
-从数据不难看出，尽管中共国粮食的进口量同比依然在增长，但环比来看增长数据已经在急速下降。
+有消息称，苹果公司在过去两个月减少了50%的iPad产量，转而将芯片用于生产iPhone13。同时，原本用于旧版iPhone的零部件也被转去生产iPhone13。苹果优先生产iPhone13手机是因为预测其在西方市场的需求远比iPad更强劲。欧洲和美国市场占苹果营业额的66%。
 
-由于疫情的长期封锁，国际海运成本已经翻倍，国际粮价整体都在大幅攀升。近日欧盟各国联合英国、加拿大、土耳其等国又集体取消了对中共国的关税优惠国待遇。这些因素叠加，让本来外汇吃紧的中共，想依靠粮食进口解决国内粮食缺口的希望变得越来越渺茫。
+iPone13已于今年9月24日上市，苹果公司预计新版手机的销售量会在上市后几个月达到峰值，所以要加紧生产。今年购买iPad的顾客可能要等待六周（12月份）才能交付。其实平板电脑的需求也很火爆。全球iPad运输量同比增长6.7%，达到5320万部，占市场份额32.5%，因为人们在疫情期间选择远程工作。这也不是苹果第一次丢车保帅。2020年，iPad的零部件就曾被转去生产iPone12，当时是苹果的第一款5G手机。分析师有信心认为，即使iPad短缺，顾客也不会转而购买安卓平板电脑。
 
-参考链接：
-1）[为进一步保障粮食安全开辟重要途径——中央农办负责人就《粮食节约行动方案》答记者问](http://www.gov.cn/zhengce/2021-11/01/content_5648094.htm)
-2）[中共中央办公厅 国务院办公厅印发《粮食节约行动方案》](http://www.chinanews.com/gn/2021/11-01/9599117.shtml)
-3）[我国大举进口八千多万吨粮食！](https://finance.sina.com.cn/money/future/roll/2021-07-15/doc-ikqcfnca6970703.shtml)
+苹果承认此举是因为全球供应链吃紧。CFO卢卡·马斯瑞（Luca Maestri）在最近的财务发布会上预测今年第四季度iPad的销售会下降，因为缺乏零部件。CEO库克（Tim Cook）也说，7至9月份的销售低于预期60亿美元，因为“全行业硅芯片紧缺，以及与新冠病毒疫情相关的生产被扰乱”。对本季度的影响甚至会更大。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+中共病毒疫情以及疫苗带来的灾难才刚刚显现，大量人口染病、疫苗副作用、甚至死亡会严重扰乱芯片的生产和供应链。芯片紧缺导致连苹果这样拥有全球供应链的公司都不得不减产。优先生产新版iPhone也有好处，未来如果iPhone能连接卫星星链网，那么这样可以保证在大灾难下人类的通讯安全。这也说明，生产芯片的格芯公司有着举足轻重的地位。
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：谐趣园
+消息来源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://asia.nikkei.com/Business/Tech/Semiconductors/Apple-trims-iPad-production-to-feed-chips-to-iPhone-13](https://asia.nikkei.com/Business/Tech/Semiconductors/Apple-trims-iPad-production-to-feed-chips-to-iPhone-13)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

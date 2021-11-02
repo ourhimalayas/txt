@@ -2,10 +2,36 @@
 ---
 
 
-## 11/1/2021【HCoin To the Moon 庆典】：喜币有三大法宝
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1634548/)
+## 有声|酩悦香槟 (Moët)，一个普世成功的品牌
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1634603/)
 
-秘密翻译组-北美组
+配音：香草山媒体部 – Gtv abeilles（蜜蜂）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+
+自公元496年法兰西人的第一个国王克洛维在香槟地区最中心的兰斯大教堂加冕以来，这里的葡萄酒一直作为加冕和洗礼神圣之用。香槟酒的酿制工艺是自古希腊、罗马几千年以来葡萄酒酿制工艺的一次突破。只有香槟地区产的葡萄汽酒才能叫香槟酒。
+
+自1743年以来，克劳德·酩悦（Claud Moët）一直在创造着世界上最受赞赏的香槟酒。其1000公顷的葡萄园主要由顶级和特级葡萄园组成，是法国香槟地区最大和最有声望的庄园，其葡萄园的丰富性和多样性表现在Moët葡萄酒的公认质量上。
+
+喜马拉雅币是最具突破性、唯一性、承前启后神奇性的代表新时代的币种，并兼具——美元（法币）**、**喜美元（代币）**、**喜币（虚拟币）**、**黄金（货币）——四币联合的属性。
+
+喜币精神像作为特殊葡萄酒形象的香槟酒一样闪闪发光。而作为香槟酒之最的酩悦香槟 (Moët)更能见证稀有喜币上市的这一难忘历史时刻——**格林威治时间2021年11月1日11时11分！HCOIN TO THE MOON !**
+
+文字版原文：[酩悦香槟 (Moët)，一个普世成功的品牌](https://gnews.org/zh-hans/1631633/)
+
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
 
  
 

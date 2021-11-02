@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/2/2021 7:31 PM (UTC)`
+
+11月2日：真假之分……天地之别，可悲可恨的一群无知的中共国下三滥所谓的成功人士……
+![img](https://media.gettr.com/group13/getter/2021/11/02/19/31/0cf7b07d-c533-b95f-b3d0-2d2d6fb613c3/9a6b0c26c5ef5bc698b53f9d66b9bce1.jpg)
+
+---
+
 `@miles 11/2/2021 5:36 PM (UTC)`
 
 在 GETTR 上加入我的直播。
@@ -296,13 +303,6 @@ Pompeo: The CCP has the capacity and intent to do the real harm to the US. <br/>
 ![img](https://media.gettr.com/group37/origin/2021/10/30/16/50/edb53e2c-a2ac-5ca8-5176-c86ddb2a33b4/out.jpg)
 > `@himalayaukclub 10/30/2021 4:44 PM (UTC)`<br/>10月27日  法国巴黎<br/>人们在参议院外面举行抗议活动 #反对疫苗护照<br/><br/>October 27, Paris, France<br/>People gather outside the Senate building to protest against vaccine passports
 ![img](https://media.gettr.com/group37/origin/2021/10/30/16/44/52198d08-c7d5-b740-3566-befdfcf7701a/out.jpg)
-
----
-
-`@miles 10/30/2021 7:40 AM (UTC)`
-
-10/29/2021 Miles Guo: DWAC's document on the SPAC IPO reflect that 1) the company has no cash, and Bruno Wu and Patrick Orlando painted a rosy picture for President Trump; 2) DWAC has not yet found a real investor; and 3) DWAC will have trouble keeping their promises because it’s backed by the CCP<br/><br/>10/29/2021 文贵直播：DWAC的关于SPAC上市的文件说明：1) 该公司没现金，吴征和Patrick Orlando只是给川普总统画了个大饼；2) DWAC尚未找到真正的投资人；3) 由于其背后是中共，DWAC难以兑现其承诺<br/>
-![img](https://media.gettr.com/group38/getter/2021/10/30/07/40/114f39e9-8921-3c31-394d-26a21a01d670/out.jpg)
 
 ---
 

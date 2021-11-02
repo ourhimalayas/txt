@@ -2,12 +2,10 @@
 ---
 
 
-## 许多公司都在试图将供应链多样化以避免过于依赖中共国
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1634540/)
+## 11/1/2021【HCoin To the Moon 庆典】：喜币有三大法宝
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1634548/)
 
-10/27/2021 Tigress财务合作公司首席投资官和研究部主任Ivan Feinseth：全球半导体短缺影响到我们日常生活的方方面面，许多公司都在试图将供应链多样化以避免过于依赖中共国。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+秘密翻译组-北美组
 
  
 

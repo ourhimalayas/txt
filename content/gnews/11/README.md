@@ -2,27 +2,28 @@
 ---
 
 
-## 中共国制造活动指数两个月内连续下降
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1634842/)
+## 多国同时取消对中共国普惠制关税优惠国待遇
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1634887/)
 
-作者：香草山农场 – 柳是多水土透
+作者：美东香草山农场 文真
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月30日，多家媒体报道指出，中共国10月份的工厂活动指数在两个月中连续收缩。证据显示，中共国庞大的制造业正被原材料价格上涨、大范围停电和加快减速的房地产行业拖累。
+10月30日，据盖特消息，自2021年12月1日起，欧盟27国、英国、加拿大、土耳其、乌克兰和列支敦士登等32个国家将取消对中共国的普惠制关税优惠国待遇。报道称，截至目前，仍旧保留中共国普惠制待遇的只余三国：挪威、澳大利亚和新西兰。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide4-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide10.jpeg)
 
-报道提及，中共官方公布的采购经理人指数本月降至49.2，相较于9月的指数持续下跌。另外，电力供应短缺正在打乱从东北至广东深圳工厂的生产节奏。中共国家统计局发布的数字显示，中共国第三季度的经济增长跌落至年内新低。
+“普惠制” 是普遍优惠制度的简称，是发达国家给予发展中国家及地区的出口制成品和半制成品普遍的、非歧视的、非互惠的优惠关税制度。中共国自2001年加入世贸组织后，除最惠国待遇外，还享受普惠制待遇。
 
-对此，数据分析师认为，多个供给端因素加剧了中共的经济失速，包括芯片短缺、物流业过载、新冠封锁等，加之中共国内燃料、煤、化工产品和金属的价格加速上涨，证据表明，中共的滞涨正在发生。
+据了解，土耳其、越南、印尼、孟加拉国、柬埔寨等国家依然享有普惠制待遇。这将有利于这些国家成为新兴的劳动密集型出口国，从而打破中共国在全球产品供应链中的垄断。
 
 参考链接：
-1）[China manufacturing slows as property and energy woes hit economy](https://www.ft.com/content/b338d366-f94f-46d1-b732-5470bde825c3)
-2）[China’s Manufacturing Activity Contracts for Second Straight Month](https://www.wsj.com/articles/chinas-manufacturing-activity-contracts-for-second-straight-month-11635645642?mod=hp_lista_pos4)
+1）[https://www.gettr.com/post/pfp70471d4](https://www.gettr.com/post/pfp70471d4)
+2）[海关总署：下月起不再对输欧盟成员国等国家货物签发普惠制原产地证书](http://finance.people.com.cn/n1/2021/1028/c1004-32267063.html)
+3）[各国取消普惠制关税优惠，中共国正以光速倒退回入世前](https://gnews.org/zh-hans/1630782/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编：飞虹
-编辑：Irene木木
+总编：Irene木木 
+编辑：Irene木木 
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
