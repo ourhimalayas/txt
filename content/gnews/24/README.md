@@ -2,35 +2,34 @@
 ---
 
 
-## 中小银行资本告急！10月7家农商行计划定增募资37亿元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1633679/)
+## 有声|贼喊捉贼 共军扰台军机竟首先广播驱离台湾军机
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1633702/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12.png)[图片来源](https://www.jiemian.com/article/5720414.html)
-刚刚过去的10月，有6家中小银行在中共证监会官网披露定增情况。
+配音：香草山美食部-玫瑰园
 
-这6家中小银行均为农商行，包括安徽省3家农商行：太湖农商银行拟定增募资约1.5亿元，休宁农商银行拟定增募资约1亿元，潜山农商行拟定增募资约1.5亿元；湖南省1家农商行：湘乡农商银行拟定增募资约6亿元；内蒙古1家农商行：太仆寺农商银行拟定增募资约0.84亿元；贵州省1家农商行：乌当农商行拟定增募资约6亿元。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
 
-此外，无锡农村商业银行（无锡银行，600908.SH）拟定增募资不超20亿元补血。10月29日，无锡银行发布的公告显示，无锡银行本次非公开发行A股股票数量不超过3.205亿股(含本数)，募集资金总额不超过20亿元(含本数)，扣除相关发行费用后将全部用于补充无锡银行核心一级资本。
+10月29日中午，共军扰台飞机，竟然对台湾军机近距离广播称，台湾地区飞机已经危及共军军机飞行安全，并让其立即离开。
 
-6家在证监会网站披露定增计划的农商行中，有2家在定增补充资本的同时也搭售一定的不良资产。
+据统计，共军2021年已累计入侵台湾空域214天，本月累计入侵台湾空域18天。本月台军广播驱离记录108次，2021年累计广播驱离已达647次。
 
-上述7家银行拟募资金额合计约为37亿元。
+近日，台湾总统蔡英文、美国总统拜登对美台关系的讲话，以及蔡英文首次证实有美军驻训台湾的事情，已经深深刺痛了中共的敏感神经，加剧共军扰台。
 
-近年来，中共中小银行普遍面临资本金告急的局面。今年，中共财政部已安排了2000亿元专项债券额度，支持20个地区的中小银行补充资本。
+文字版原文：[贼喊捉贼 共军扰台军机竟首先广播驱离台湾军机](https://gnews.org/zh-hans/1631283/)
 
-长期以来，中共中小银行资产不良率都居高不下，亏空严重。当前，随着中共经济急转直下，特别是房地产、地方债和金融机构的不断暴雷，中小银行的危机和风险进一步加剧，突然倒闭恐将随时发生。
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-信息来源：
 
-[10月7家农商行发布定增计划，合计拟募资额约36.85亿](https://finance.sina.com.cn/tech/2021-11-01/doc-iktzqtyu4682707.shtml)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
-关键词：
-
-摘要：
 
  
 
