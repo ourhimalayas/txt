@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/2/2021 3:49 AM (UTC)`
+
+11/1/2021 [HCoin To the Moon Celebration]: Liechtenstein decided to decouple with the CCP to invest in the Himalaya Reserve; Luxembourg, with the world's highest GDP per capita, would rather decouple with the CCP in order to invest in the Himalaya Reserve; on behalf of the Himalaya Reserve, Europe's largest political lobbying firm is lobbying various countries around the world to decouple with the CCP!<br/><br/>11/1/2021【HCoin To the Moon 庆典】：列支敦士登因投资喜联储而果断跟中共脱钩；全球人均GDP最高的卢森堡宁愿跟中共脱钩也要投资喜联储；欧洲最大的政治游说公司正在为喜联储在全球游说多国与中共脱钩！<br/>
+![img](https://media.gettr.com/group22/getter/2021/11/02/03/49/44d1ec47-3c8f-1c6b-a8dc-fca393abcf24/out.jpg)
+
+---
+
+`@miles 11/2/2021 3:42 AM (UTC)`
+
+11/1/2021 【HCoin To the Moon Celebration】The Himalaya Reserve wouldn’t be disappeared by the CCP with our capability and overseas protection.<br/><br/> 11/1/2021 【HCoin to The Moon庆典】我们的能力和海外力量的保护，使中共无法消灭喜联储
+![img](https://media.gettr.com/group39/getter/2021/11/02/03/42/07d65798-fd87-03dc-2d5e-036e5b752895/out.jpg)
+
+---
+
 `@miles 11/2/2021 1:55 AM (UTC)`
 
 “HCOIN TO THE MOON” 喜马拉雅币上市庆典
@@ -287,24 +301,6 @@ Studio Vibes<br/>@DDNYC
 
 2021年10月29日 文贵大直播：美股一周大事件；金油粮食人工价；国内违约房地产；喜币应运虚拟币
 ![img](https://media.gettr.com/group33/origin/2021/10/29/12/5924761e-1746-4ac6-cdb8-4645b039d54d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@tangping 10/29/2021 9:17 AM (UTC)`
-
-金属质感的声音，《Hcoin to the moon》试听多10秒😂
-![img](https://media.gettr.com/group2/getter/2021/10/29/09/17/fe9f5cf9-da1d-d5eb-5948-b0ff645d5fde/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@tangping 10/29/2021 9:43 AM (UTC)`
-
-Welcome to the world！<br/>To the new world！<br/>Hcoin to the moon！<br/>不能发完整版，憋死😂
-![img](https://media.gettr.com/group38/getter/2021/10/29/09/43/d2219abd-9d00-a16b-1e86-77f5da02ecb1/out.jpg)
 
 ---
 
