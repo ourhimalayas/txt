@@ -2,16 +2,30 @@
 ---
 
 
-## 喜币上市 (11/1/2021) 郭文贵：大好消息：冬奥会之前中共可能不会对台动武
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1633648/)
+## 有声|喜联储构筑连接加密货币和金融系统的桥梁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1633666/)
 
-撰稿：卡拉马佐夫姐姐
-![](https://assets.gnews.org/wp-content/uploads/2021/11/20211101-喜币上市-1112021-郭文贵：大好消息：冬奥会之前中共可能不会对台动武.png)
-郭文贵先生在2021年11月1日喜马拉雅币上市庆典大直播中与台湾宝岛农场战友连线时，透露了一个好消息：刚刚中共内部国家安全委员会开会，大多数想近期攻台的人最后的决定是要保冬奥会，“冬奥会以后对台再动手”。还有南海如果发生了联军（美军、日军）对共军擦枪走火，会再“另择时机”。
+配音：香草山美食部-玫瑰园
 
-郭先生表示，他觉得这是一个天大的好消息，最起码冬奥会之前台湾比较安全。而且如果能开冬奥会，“对台湾、对我们都是个好事，因为开冬奥会很有可能把这个恶魔（中共）彻底摁倒”。党内、国内聪明的人都觉得打台湾是个不归路，“我们宁可推迟几年灭共，也不希望共产党以攻打台湾来成就我们灭共，这是发自内心的”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
 
-来源：[https://gettr.com/post/pfs1k7a90e](https://gettr.com/post/pfs1k7a90e)
+当今技术已经使购买加密货币，如同使用信用卡一样简单。 每个人都知道加密货币金融革命即将到来。然而，仅加密数字货币无法引领这场革命，一个能联系传统金融系统和新兴金融系统的加密数字货币交易、支付平台，将构架起这场颠覆性金融革命的桥梁。
+
+郭先生在27日大直播中表示，“没有任何人可以改变，今后一定是虚拟币的时代，未来互联网绝对是人类的一切” 。喜币，喜美元，喜支付和喜联储，正在架设通往加密货币市场的桥梁。 在29日的大直播中，郭先生谈到，喜联储立足于澳大利亚的客户认证机构，是英属维尔京群岛的注册金融机构，并已于去年拿到美国支付牌照；在不久的将来，也将获得几个主要国家的数字银行牌照。喜联储已成为这场金融变革的弄潮儿。
+
+文字版原文：[喜联储构筑连接加密货币和金融系统的](https://gnews.org/zh-hans/1628552/)
+
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

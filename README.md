@@ -15,113 +15,113 @@
 
 ---
 
-### [参议员瑞克·斯科特：在谭德塞的“领导”下,世卫组织沦为共产主义中国 的傀儡，让全球健康危机失控](/content/gnews/1/README.md)
+### [昆士兰州新任州长丈夫与辉瑞的历史渊源](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [参议员瑞克·斯科特：在谭德塞的“领导”下,世卫组织沦为共产主义中国 的傀儡，让全球健康危机失控](/content/gnews/2/README.md)
  ` 美国政要直译推`
 
-### [一法官叫停芝加哥警察的疫苗强制令](/content/gnews/2/README.md)
+### [一法官叫停芝加哥警察的疫苗强制令](/content/gnews/3/README.md)
  ` HimalayaRussia`
 
-### [11/1/2021【HCoin To the Moon 庆典】：什么是“忠诚”？](/content/gnews/3/README.md)
+### [11/1/2021【HCoin To the Moon 庆典】：什么是“忠诚”？](/content/gnews/4/README.md)
  ` 秘密翻译组-北美组`
 
-### [G时评：“姜太公钓鱼”的隐喻](/content/gnews/4/README.md)
+### [G时评：“姜太公钓鱼”的隐喻](/content/gnews/5/README.md)
  ` GISELLE`
 
-### [中国男子网络发狗子表情包，警察觉得受到侮辱将其行政拘留九日](/content/gnews/5/README.md)
+### [中国男子网络发狗子表情包，警察觉得受到侮辱将其行政拘留九日](/content/gnews/6/README.md)
  ` 首尔天池农场`
 
-### [11/1/2021【HCoin To the Moon 庆典】：中共将英国作为平爆小组的指挥中心以攻击喜联储](/content/gnews/6/README.md)
+### [11/1/2021【HCoin To the Moon 庆典】：中共将英国作为平爆小组的指挥中心以攻击喜联储](/content/gnews/7/README.md)
  ` 秘密翻译组-北美组`
 
-### [11/1/2021【HCoin To the Moon 庆典】：盖特通过喜支付进行的打赏功能将让政客们站着把钱赚了](/content/gnews/7/README.md)
+### [11/1/2021【HCoin To the Moon 庆典】：盖特通过喜支付进行的打赏功能将让政客们站着把钱赚了](/content/gnews/8/README.md)
  ` 秘密翻译组-北美组`
 
-### [每日快报：大多数美国人要求福奇辞职](/content/gnews/8/README.md)
+### [每日快报：大多数美国人要求福奇辞职](/content/gnews/9/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [《悲惨世界》重现中共国，劳苦大众何去何从？](/content/gnews/9/README.md)
+### [《悲惨世界》重现中共国，劳苦大众何去何从？](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年11月01日喜币上市大直播（二）大雨围城速记](/content/gnews/10/README.md)
+### [2021年11月01日喜币上市大直播（二）大雨围城速记](/content/gnews/11/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [炒热李云迪嫖娼事件，中共到底闹的什么鬼？](/content/gnews/11/README.md)
+### [炒热李云迪嫖娼事件，中共到底闹的什么鬼？](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [G时评：若你爱我的灵魂](/content/gnews/12/README.md)
+### [G时评：若你爱我的灵魂](/content/gnews/13/README.md)
  ` GISELLE`
 
-### [拒绝接种疫苗被解雇，澳洲人热衷社交媒体上寻找工作](/content/gnews/13/README.md)
+### [拒绝接种疫苗被解雇，澳洲人热衷社交媒体上寻找工作](/content/gnews/14/README.md)
  ` 走进澳洲`
 
-### [百态人生——我哭了](/content/gnews/14/README.md)
+### [百态人生——我哭了](/content/gnews/15/README.md)
  ` 纽约香草山MOS03`
 
-### [格伦.杨金表示他将不会推行强制疫苗政策](/content/gnews/15/README.md)
+### [格伦.杨金表示他将不会推行强制疫苗政策](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [纳瓦罗新书揭双手沾满鲜血的流氓FDA](/content/gnews/16/README.md)
+### [纳瓦罗新书揭双手沾满鲜血的流氓FDA](/content/gnews/17/README.md)
  ` HimalayaRussia`
 
-### [中共将新冠疫苗强制接种政策推向3至11岁儿童](/content/gnews/17/README.md)
+### [中共将新冠疫苗强制接种政策推向3至11岁儿童](/content/gnews/18/README.md)
  ` 纽约香草山MOS03`
 
-### [若与确诊病例有“时空重合”不得回京](/content/gnews/18/README.md)
+### [若与确诊病例有“时空重合”不得回京](/content/gnews/19/README.md)
  ` 日本东京方舟农场`
 
-### [秘翻在线: 北京小区多处因疫情被封闭管理](/content/gnews/19/README.md)
+### [秘翻在线: 北京小区多处因疫情被封闭管理](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新冠的自然免疫力是重新开放的关键因素](/content/gnews/20/README.md)
+### [新冠的自然免疫力是重新开放的关键因素](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [有声|中共控制的房地产公司无还款意愿将导致金融灾难](/content/gnews/21/README.md)
+### [有声|中共控制的房地产公司无还款意愿将导致金融灾难](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声|贼喊捉贼 共军扰台军机竟首先广播驱离台湾军机](/content/gnews/22/README.md)
+### [有声|贼喊捉贼 共军扰台军机竟首先广播驱离台湾军机](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [中小银行资本告急！10月7家农商行计划定增募资37亿元](/content/gnews/23/README.md)
+### [中小银行资本告急！10月7家农商行计划定增募资37亿元](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乐坛两歌星在完整接种疫苗后仍感染中共病毒](/content/gnews/24/README.md)
+### [乐坛两歌星在完整接种疫苗后仍感染中共病毒](/content/gnews/25/README.md)
  ` 日本东京方舟农场`
 
-### [日本众院选举快讯：外相茂木将接替甘利明担任自民党干事长](/content/gnews/25/README.md)
+### [日本众院选举快讯：外相茂木将接替甘利明担任自民党干事长](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|喜联储构筑连接加密货币和金融系统的桥梁](/content/gnews/26/README.md)
+### [有声|喜联储构筑连接加密货币和金融系统的桥梁](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [喜币上市 (11/1/2021) 郭文贵：大好消息：冬奥会之前中共可能不会对台动武](/content/gnews/27/README.md)
+### [喜币上市 (11/1/2021) 郭文贵：大好消息：冬奥会之前中共可能不会对台动武](/content/gnews/28/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共国经济全面恶化助力喜币腾飞！](/content/gnews/28/README.md)
+### [中共国经济全面恶化助力喜币腾飞！](/content/gnews/29/README.md)
  ` 军迷wilson`
 
-### [有声|万众瞩目的喜币将给世界带来无限希望](/content/gnews/29/README.md)
+### [有声|万众瞩目的喜币将给世界带来无限希望](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [日本将伊维菌素治疗合法化结束了COVID-19疫苗引发的新冠疫情](/content/gnews/30/README.md)
+### [日本将伊维菌素治疗合法化结束了COVID-19疫苗引发的新冠疫情](/content/gnews/31/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [DC每日热点1101](/content/gnews/31/README.md)
+### [DC每日热点1101](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2021年11月01日喜币上市大直播大雨围城速记](/content/gnews/32/README.md)
+### [2021年11月01日喜币上市大直播大雨围城速记](/content/gnews/33/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [11/1/2021【HCoin To the Moon 庆典】：喜币上市、喜交所上线会对世界金融造成巨大冲击](/content/gnews/33/README.md)
+### [11/1/2021【HCoin To the Moon 庆典】：喜币上市、喜交所上线会对世界金融造成巨大冲击](/content/gnews/34/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|郭文贵先生谈投资哲学：坚持到最好的那一秒](/content/gnews/34/README.md)
+### [有声|郭文贵先生谈投资哲学：坚持到最好的那一秒](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [继佛罗里达州后，19 个州就 COVID-19 疫苗强制令起诉拜登政府](/content/gnews/35/README.md)
+### [继佛罗里达州后，19 个州就 COVID-19 疫苗强制令起诉拜登政府](/content/gnews/36/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [有声|苹果公司已对中共国绝望](/content/gnews/36/README.md)
- ` MOSREC`
 
 ### [美航空公司因人员紧缺推迟或取消逾千个航班](/content/gnews/37/README.md)
  ` 日本东京方舟农场`

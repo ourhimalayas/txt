@@ -2,8 +2,8 @@
 ---
 
 
-## 11/1/2021【HCoin To the Moon 庆典】：盖特通过喜支付进行的打赏功能将让政客们站着把钱赚了
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1633847/)
+## 11/1/2021【HCoin To the Moon 庆典】：中共将英国作为平爆小组的指挥中心以攻击喜联储
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1633860/)
 
 秘密翻译组-北美组
 
