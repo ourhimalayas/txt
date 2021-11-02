@@ -2,30 +2,19 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月1日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1633215/)
+## 疫苗接种率96.8%的北京，又开始封小区、查核酸
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1633294/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO.jpg)
+作者：Stephen(文文)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_1321.jpg)
+截止当地时间10月31日，本轮“旅行团疫情”在北京已经造成多达30人感染，北京市海淀、丰台、昌平等区又开始了封小区、查核酸行动。北京可谓是中共疫苗推广力度最大的地区，然而在疫情面前，依然脆弱不堪一击，无法阻断病毒传播。中共疫苗再次被证实根本不能阻断病毒传播。 9月初，北京常住人口中18岁以上成年人疫苗接种率就已经达到了96.8%（新闻链接1）。而截至10月底，北京共完成接种2049万人（新闻链接2），以北京常住人口2189万人计算，总接种率也已经高达93.6%。早已经超过中共专家所谓的“群体免疫”门槛。即使是这么高的疫苗接种率，病毒在北京的传播依然非常快速和容易。中共疫苗根本无法起到预防病毒感染的作用。 中共疫苗在塞舌尔、蒙古、柬埔寨等国的防疫表现已经充分说明了其无效性，而本轮疫情中北京的情况也是清楚的说明了中共疫苗到底有没有效果。 然而，中共不但罔顾疫苗无效的事实，还将疫苗黑手正式伸向了未成年人。中共在近日已经在全国全面启动“3-11周岁未成年儿童的新冠病毒疫苗接种”行动。中共家族利益集团为了疫苗经济利益完全罔顾事实，不但强推疫苗接种，还将魔抓伸向3-11岁的少年儿童！ 疫苗在全球范围内的表现已经足以说明其在阻断疫情方面毫无作用，疫情已经接近2年，各国政府应该放弃所谓“疫苗政治正确”，引导科学家研究和讨论疫苗副作用问题，以及病毒的真正来源。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_.png)
-文章仅代表作者本人观点，与Gnews无关
+[新闻链接](https://xw.qq.com/cmsid/20210909A0694800?f=newdc)1
 
-视频参看：2021.11.01早GTV新闻访谈
+[新闻链接](https://xw.qq.com/cmsid/20211030A05T0T00?f=newdc)2
 
-[https://gtv.org/broadcast/watch/617fb54b11d1862968feda54](https://gtv.org/broadcast/watch/617fb54b11d1862968feda54)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+审核校对：Barry Jack
+上传排版：F
 
  
 

@@ -2,29 +2,33 @@
 ---
 
 
-## 有声|喜联储构筑连接加密货币和金融系统的桥梁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1633666/)
+## 乐坛两歌星在完整接种疫苗后仍感染中共病毒
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1633677/)
 
-配音：香草山美食部-玫瑰园
+**作者：日本东京方舟农场 Kevin wang**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+据苹果新闻网11月1日报道，美国摇滚歌星琼·邦·乔飞（Jon Bon Jovi）和加拿大歌星布莱恩亚当斯在完整接种疫苗的情况下仍确诊感染中共病毒，双方的演出活动均已取消。
 
-当今技术已经使购买加密货币，如同使用信用卡一样简单。 每个人都知道加密货币金融革命即将到来。然而，仅加密数字货币无法引领这场革命，一个能联系传统金融系统和新兴金融系统的加密数字货币交易、支付平台，将构架起这场颠覆性金融革命的桥梁。
+报道称，琼·邦·乔飞公关发布声明证实其完整接种疫苗，并计划在佛罗里达州一场万圣节活动中演出并与乐迷互动。在他确诊中共病毒的消息对外宣布之时，演出地点也已有乐迷入场，目前还不清楚主办单位是否会退票。
 
-郭先生在27日大直播中表示，“没有任何人可以改变，今后一定是虚拟币的时代，未来互联网绝对是人类的一切” 。喜币，喜美元，喜支付和喜联储，正在架设通往加密货币市场的桥梁。 在29日的大直播中，郭先生谈到，喜联储立足于澳大利亚的客户认证机构，是英属维尔京群岛的注册金融机构，并已于去年拿到美国支付牌照；在不久的将来，也将获得几个主要国家的数字银行牌照。喜联储已成为这场金融变革的弄潮儿。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/微信图片_20211101215532.png)图片来源：https://tw.appledaily.com/entertainment/20211101/JNFDO2J2K5BJBBNUZGFH6YV5PI/
 
-文字版原文：[喜联储构筑连接加密货币和金融系统的](https://gnews.org/zh-hans/1628552/)
+而另一位歌星布莱恩亚当斯原本排定昨晚在摇滚名人堂盛典上演出，但证实确诊后，已经取消上台表演的计划。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+布莱恩亚当斯经纪人证实这位艺人已完整接种COVID-19 疫苗，且是无症状患者。他的场次已临时改由其他歌星顶替。
+
+*参考链接：*
+
+[天團「邦喬飛」主唱染疫！接種疫苗仍確診　立即取消演出](https://tw.appledaily.com/entertainment/20211101/JNFDO2J2K5BJBBNUZGFH6YV5PI/)
+
+* * *
+
+
+```
+素材采编：Kevin wang
+编辑：文顺
+校对/发布：Ranting
+```
 
 
  
