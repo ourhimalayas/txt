@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/2/2021 4:06 PM (UTC)`
+
+11月2号：尊敬的战友们好，我们一起开启了一个崭新的新的不同的经济生活！而共产党进入了更大的麻烦．内部的政治斗争正在进入了白热化状态，共产党你完了！
+![img](https://media.gettr.com/group38/getter/2021/11/02/16/06/0c85646c-3ed3-e3eb-0003-4fb8c2c76659/29cc48842876d6d3b401f098b93bfa68.jpg)
+
+---
+
 `@miles 11/2/2021 12:53 PM (UTC)`
 
 11月2号：共产党想干啥了，真的在往福建方向布兵吗？真想咋活咋活。
@@ -293,12 +300,6 @@ Pompeo: The CCP has the capacity and intent to do the real harm to the US. <br/>
 `@locmergu1 10/30/2021 12:52 AM (UTC)`
 
 个人认为，喜币是用来流通和保值的，不是用来投机的。所以我们需要一个稳健增值的币值，而不是一个热钱驱动暴涨暴跌的币值
-
----
-
-`@liujz 10/30/2021 12:55 AM (UTC)`
-
-七哥创造了一个无国界、无边际的安全的金额流通体系
 
 ---
 
