@@ -27,101 +27,101 @@
 ### [日本众院选举快讯：前文科相林芳正或接任茂木担任外相](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国免税龙头中免集团闪崩跌停 市值已蒸发近3000亿](/content/gnews/5/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共证实欧盟等32国取消对中贸易优惠待遇](/content/gnews/6/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共鼓励群众储备应急物资为哪般？](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [“疫苗・检测包”试验，日本全国逐渐推广](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [外媒报道日本执政党对中共的强硬姿态赢得年轻投票者](/content/gnews/9/README.md)
+### [从一个老战友角度认识文贵先生谈大家致富后“继续灭共”](/content/gnews/5/README.md)
  ` 澳喜农场`
 
-### [中共病毒，导致日本女性自杀人数大幅增加](/content/gnews/10/README.md)
+### [中共国免税龙头中免集团闪崩跌停 市值已蒸发近3000亿](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共证实欧盟等32国取消对中贸易优惠待遇](/content/gnews/7/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共鼓励群众储备应急物资为哪般？](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频| 起飞](/content/gnews/11/README.md)
+### [“疫苗・检测包”试验，日本全国逐渐推广](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [外媒报道日本执政党对中共的强硬姿态赢得年轻投票者](/content/gnews/10/README.md)
+ ` 澳喜农场`
+
+### [中共病毒，导致日本女性自杀人数大幅增加](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [视频| 起飞](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [澳大利亚很快跟随美国为5至11岁的儿童接种疫苗](/content/gnews/12/README.md)
+### [澳大利亚很快跟随美国为5至11岁的儿童接种疫苗](/content/gnews/13/README.md)
  ` 走进澳洲`
 
-### [美国可口可乐公司:&#8221;接种疫苗后可获得230万韩元的奖金&#8221;](/content/gnews/13/README.md)
+### [美国可口可乐公司:&#8221;接种疫苗后可获得230万韩元的奖金&#8221;](/content/gnews/14/README.md)
  ` 首尔天池农场`
 
-### [美媒提出质疑“与中共国做生意值得吗？”深度讨论（5）](/content/gnews/14/README.md)
+### [美媒提出质疑“与中共国做生意值得吗？”深度讨论（5）](/content/gnews/15/README.md)
  ` 澳喜农场`
 
-### [美媒提出质疑“与中共国做生意值得吗？”深度讨论（4）](/content/gnews/15/README.md)
+### [美媒提出质疑“与中共国做生意值得吗？”深度讨论（4）](/content/gnews/16/README.md)
  ` 澳喜农场`
 
-### [由马丁路德宗教改革想到当下危机——谁把 “赎罪券”继承了下来？](/content/gnews/16/README.md)
+### [由马丁路德宗教改革想到当下危机——谁把 “赎罪券”继承了下来？](/content/gnews/17/README.md)
  ` 纽约香草山MOS03`
 
-### [美国与欧盟宣布承诺，重击中共国贸易](/content/gnews/17/README.md)
+### [美国与欧盟宣布承诺，重击中共国贸易](/content/gnews/18/README.md)
  ` 澳喜农场`
 
-### [埃隆·马斯克就虐待儿童性丑闻挑战联合国](/content/gnews/18/README.md)
+### [埃隆·马斯克就虐待儿童性丑闻挑战联合国](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [英国银行CEO涉杰弗里·爱泼斯坦案被调查后辞职](/content/gnews/19/README.md)
+### [英国银行CEO涉杰弗里·爱泼斯坦案被调查后辞职](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [雅典娜时报-第100期](/content/gnews/20/README.md)
+### [雅典娜时报-第100期](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [海航陈峰被抓 资产被逼贱卖](/content/gnews/21/README.md)
+### [海航陈峰被抓 资产被逼贱卖](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [11月1日喜币上市大直播概要](/content/gnews/22/README.md)
+### [11月1日喜币上市大直播概要](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国财长耶伦表示目前对中共国关税不变](/content/gnews/23/README.md)
+### [美国财长耶伦表示目前对中共国关税不变](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/1/2021【HCoin To the Moon 庆典】：我们既支持蓬培奥也支持川普竞选美国总统](/content/gnews/24/README.md)
+### [11/1/2021【HCoin To the Moon 庆典】：我们既支持蓬培奥也支持川普竞选美国总统](/content/gnews/25/README.md)
  ` 秘密翻译组-北美组`
 
-### [日本众议院选举揭晓：自民党获胜](/content/gnews/25/README.md)
+### [日本众议院选举揭晓：自民党获胜](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|多达1.2万名美国空军人员拒绝接种新冠疫苗](/content/gnews/26/README.md)
+### [有声|多达1.2万名美国空军人员拒绝接种新冠疫苗](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [有声|中共新法：孩子“犯事”，家长“连坐”](/content/gnews/27/README.md)
+### [有声|中共新法：孩子“犯事”，家长“连坐”](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [新型的新中国联邦人，新的信仰，新的宗教的诞生](/content/gnews/28/README.md)
+### [新型的新中国联邦人，新的信仰，新的宗教的诞生](/content/gnews/29/README.md)
  ` 纽约香草山MOS03`
 
-### [中共国实施《个人信息保护法》 数据隐私“安全锁”？](/content/gnews/29/README.md)
+### [中共国实施《个人信息保护法》 数据隐私“安全锁”？](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [昆士兰州4000名未接种疫苗的卫生工作者被停薪留职](/content/gnews/30/README.md)
+### [昆士兰州4000名未接种疫苗的卫生工作者被停薪留职](/content/gnews/31/README.md)
  ` 走进澳洲`
 
-### [11/1/2021【HCoin To the Moon 庆典】：列支敦士登因投资喜联储而果断跟中共脱钩](/content/gnews/31/README.md)
+### [11/1/2021【HCoin To the Moon 庆典】：列支敦士登因投资喜联储而果断跟中共脱钩](/content/gnews/32/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|日本将限制中共国留学生涉猎安保敏感技术](/content/gnews/32/README.md)
+### [有声|日本将限制中共国留学生涉猎安保敏感技术](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [文贵视角:GETTR 让政治家有尊严的获取财富](/content/gnews/33/README.md)
+### [文贵视角:GETTR 让政治家有尊严的获取财富](/content/gnews/34/README.md)
  ` 秘密翻译组-原创组`
 
-### [昆士兰州新任州长丈夫与辉瑞的历史渊源](/content/gnews/34/README.md)
+### [昆士兰州新任州长丈夫与辉瑞的历史渊源](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [参议员瑞克·斯科特：在谭德塞的“领导”下,世卫组织沦为共产主义中国 的傀儡，让全球健康危机失控](/content/gnews/35/README.md)
+### [参议员瑞克·斯科特：在谭德塞的“领导”下,世卫组织沦为共产主义中国 的傀儡，让全球健康危机失控](/content/gnews/36/README.md)
  ` 美国政要直译推`
-
-### [一法官叫停芝加哥警察的疫苗强制令](/content/gnews/36/README.md)
- ` HimalayaRussia`
 
 ### [11/1/2021【HCoin To the Moon 庆典】：什么是“忠诚”？](/content/gnews/37/README.md)
  ` 秘密翻译组-北美组`

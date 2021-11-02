@@ -2,64 +2,41 @@
 ---
 
 
-## 参议员瑞克·斯科特：在谭德塞的“领导”下,世卫组织沦为共产主义中国 的傀儡，让全球健康危机失控
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1633936/)
+## 昆士兰州新任州长丈夫与辉瑞的历史渊源
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1633949/)
 
-参议员瑞克·斯科特： 拜登在全球舞台上的又一次失败。在谭德塞的“领导”下，世卫组织沦为 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的傀儡，让全球健康危机失控。拜登未能提名一位能革新的候选人不容忽视。 【附路透社报道：谭德赛成为世卫组织主席的唯一提名人】
+#### 翻译：月映万川
 
+#### 编辑/评论：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5825-1.jpg)**图片来源：The Australia & Herald Sun **
+**新闻评点：**
 
+这篇旧闻再次翻出来是有意义的，因为澳大利亚昆士兰州前任首席卫生官珍妮特·杨，其丈夫格雷姆·尼莫教授与辉瑞等一干大型药企都有深厚渊源。而杨博士曾经因为阿斯利康疫苗的接种事宜与联邦首席卫生官发生口水战，让媒体质疑她是否存在利益冲突问题。
 
-> Another failure from Biden on the global stage. Under Tedros’ “leadership”, the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) has become a puppet for Communist China & allowed a global health crisis to spiral out of control. Biden’s failure to nominate a reformer candidate can’t be overlooked. [https://t.co/Cu3Ln37oLs](https://t.co/Cu3Ln37oLs)
-> — Rick Scott (@SenRickScott) [November 1, 2021](https://twitter.com/SenRickScott/status/1455252097784549379?ref_src=twsrc%5Etfw)
+杨博士于11月1日担任昆州州长，当日州卫生部长便宣布4000名拒绝接种新冠疫苗的医务人员已被停薪留职处分。昆士兰州疫情控制总体较好，所以疫苗接种率在联邦排位倒数。现在珍妮特·杨新官上任准备急起直追了。黑暗势力驱动全球政商两界达成幕后交易，不断催生疫苗危机。昆州新任州长及其丈夫存在的利益冲突嫌疑也只是冰山一角。
 
+**翻译正文：**
 
+据透露，在昆士兰州首席卫生官的丈夫格雷姆·尼莫教授任职辉瑞公司新冠疫苗咨询顾问时，他一直收到辉瑞制药给他的旅行津贴和福利。
 
-参议员兰德·保罗： 伟大文章，关于蝠奇在 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 大流行期间所犯的错。 在大科技审查它之前阅读，并记得每天查看[http://LibertyTree.com](https://t.co/4oUVScf896?amp=1)以获取未经审查的自由新闻。
+当昆州首席卫生官珍妮特·杨博士宣布，阿斯利康疫苗不应该为40岁以下人群接种，如果要给60岁以下人群接种，也必须要根据医嘱来决定，社交媒体上就出现了关于杨博士丈夫与辉瑞制药关系的讨论。尽管，卫生官的言论是被一项研究所证明的，但是她的立场还是招致联邦副首席卫生官迈克尔·基德博士的谴责。
 
+当时，媒体没有暗示杨博士的立场有任何利益冲突，也没有与她丈夫的工作有任何联系。昆州卫生部表示，她没有为新冠疫苗制造商进行工作，也没有去参加会议或收取演讲费。她的丈夫是受人尊敬的微生物学家尼莫教授，他在去年退休前是昆士兰卫生部的微生物学主任。
 
+约10年前，尼莫教授一直在辉瑞公司和其他制药公司（诺华和生物梅里厄）的咨询委员会任职。诺华公司今年早些时候宣布了一项（授权）生产辉瑞-生物技术公司疫苗的协议。
 
-> Great article on Fauci’s failures during pandemic.   
-> 
-> Read it before big tech censors it, and remember to check [https://t.co/ZFP9Lcyg7d](https://t.co/ZFP9Lcyg7d) daily for uncensored liberty news. [https://t.co/GBhy9VoUZk](https://t.co/GBhy9VoUZk)
-> — Senator Rand Paul (@RandPaul) [November 2, 2021](https://twitter.com/RandPaul/status/1455329277583441921?ref_src=twsrc%5Etfw)
+根据目前可以看到的文件，**辉瑞和诺华公司曾经资助过尼莫教授去参加在****2011****年悉尼举行的抗微生物药物耐药性峰会**。同时，医疗卫生方面的消息称，尼莫教授被认为帮助了一家与阿斯利康合并的公司。但是，**卫生部的官方发言人否认了首席卫生官参与了****2011****的峰会，并且也否认了首席卫生官与任何的疫苗公司有相关利益。**
 
+原文链接：[Couriermail.com.au | Subscribe to The Courier Mail for exclusive stories](https://www.couriermail.com.au/subscribe/news/1/?sourceCode=CMWEB_WRE170_a_GGL&amp;dest=https%3A%2F%2Fwww.couriermail.com.au%2Fnews%2Fqueensland%2Frevealed-professor-graeme-nimmos-history-with-drug-company-pfizer%2Fnews-story%2Ffc488b086e6fb13c4126bf4bef82a8b8&amp;memtype=anonymous&amp;mode=premium&amp;v21=dynamic-warm-control-score&amp;V21spcbehaviour=append)
 
+**发布：文泓**
 
-前副国务卿基思·克拉奇： 在世界各国领导人齐聚格拉斯哥应对气候变化之际，让我们记住，没有比 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 更大的环境威胁了。它对空气，陆地和水域的攻击仅次于对自由的攻击。 #26届气候变迁大会#COP26 [#TogetherForOurPlanet](https://twitter.com/hashtag/TogetherForOurPlanet?src=hashtag_click) 【附图片：[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对空气，陆地和水域造成的各项污染】
-
-
-
-> As world leaders are gathered in Glasgow to address climate change, let's remember that there's no bigger threat to the environment than the Chinese Communist Party. Its assault on air, land, and water is second only to its assault on freedom. [#COP26](https://twitter.com/hashtag/COP26?src=hash&amp;ref_src=twsrc%5Etfw) [#TogetherForOurPlanet](https://twitter.com/hashtag/TogetherForOurPlanet?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/IcZBDWPCD4](https://t.co/IcZBDWPCD4)
-> — Keith J. Krach (@KeithJKrach) [November 1, 2021](https://twitter.com/KeithJKrach/status/1455253474560647180?ref_src=twsrc%5Etfw)
-
-
-
-美国国务院： COVID-19 大流行给我们所有人带来了前所未有的挑战。共同战胜这场大流行病显示了美台联系的力量。
-
-
-
-> The COVID-19 pandemic has posed unprecedented challenges for all of us. Working together to defeat this pandemic shows the strength of the United States-Taiwan relationship. [pic.twitter.com/ZewU6e0Q1j](https://t.co/ZewU6e0Q1j)
-> — Department of State (@StateDept) [November 1, 2021](https://twitter.com/StateDept/status/1455225624159793158?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·沃尔兹: 黑石正在资助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的军事建设。未来的美国士兵将面临由拉里·芬克购买给 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的军事装备。
-
-
-
-> BlackRock is funding the Chinese military buildup. Future American soldiers will face CCP military equipment bought by Larry Fink. [https://t.co/QmGwJfIf44](https://t.co/QmGwJfIf44)
-> — Rep. Mike Waltz (@michaelgwaltz) [October 31, 2021](https://twitter.com/michaelgwaltz/status/1454846789224484879?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·沃尔兹: 我对伊内斯·坎特(Enes Kanter)的道德勇气赞不绝口，并大声疾呼，谴责NBA,耐克,奥运会和左派的虚伪，他们在国内宣扬“社会正义”的同时却对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的种族灭绝视而不见。 【附相关视频：批判美国很多人为了钱而放弃道德底线，跪舔 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)】
-
-
-
-> I can't praise Enes Kanter enough for having moral courage & calling out the hypocrisy of the NBA, Nike, the Olympics & the Left who are overlooking genocide in China while preaching “social justice” at home. [pic.twitter.com/1rDJYGliWF](https://t.co/1rDJYGliWF)
-> — Rep. Mike Waltz (@michaelgwaltz) [October 31, 2021](https://twitter.com/michaelgwaltz/status/1454898971579715585?ref_src=twsrc%5Etfw)
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

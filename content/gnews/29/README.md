@@ -2,24 +2,47 @@
 ---
 
 
-## 中共国实施《个人信息保护法》 数据隐私“安全锁”？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1633989/)
+## 新型的新中国联邦人，新的信仰，新的宗教的诞生
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1634002/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-9.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp2.itc.cn%2Fimages01%2F20211101%2F2fec33457e494b2b8800500375b36659.jpeg&amp;imgrefurl=https%3A%2F%2Fsunnews.cc%2Fzhihu%2F673550.html&amp;tbnid=vK3c0JOK0rEgRM&amp;vet=12ahUKEwjFwpn23_jzAhXkK30KHal_BYkQMygEegQIARAd..i&amp;docid=g1JcK8xrxmzUfM&amp;w=1200&amp;h=720&amp;itg=1&amp;q=%E4%B8%AD%E5%85%B1%E5%9B%BD%E5%AE%9E%E6%96%BD%E3%80%8A%E4%B8%AA%E4%BA%BA%E4%BF%A1%E6%81%AF%E4%BF%9D%E6%8A%A4%E6%B3%95%E3%80%8B%20%E6%95%B0%E6%8D%AE%E9%9A%90%E7%A7%81%E2%80%9C%E5%AE%89%E5%85%A8%E9%94%81%E2%80%9D%EF%BC%9F&amp;ved=2ahUKEwjFwpn23_jzAhXkK30KHal_BYkQMygEegQIARAd)
-《中共国个人信息保护法》11月1日起施行。媒体宣传称，该法为所谓“保护个人信息权益、规范个人信息处理活动、促进个人信息合理利用提供了明确的法律依据。”中共国民众的“个人信息安全将得到全方位保护”。综合媒体报道，新法明确规定不得过度收集个人信息、大数据杀熟、滥用人脸识别技术等；并且将不满十四周岁未成年人的个人信息作为敏感个人信息；个人信息跨境提供的规则也有所修改。
+作者：纽约香草山农场健身部 – 幸福鸟
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月1日举世瞩目的喜币终于问世了！拥有巨大财富的新型的新中国联邦人，新的信仰和新的宗教也随之应运而生！这不仅仅是钱的问题！而是用金钱的力量来消灭邪恶的中共和黑暗势力！这是一种新的信仰和宗教，即坚信上天会引导我们采取行动来战胜黑暗势力，为人类带来一个新的美好的世界！我们坚信我们一定会成功！
 
-今年8月20日中共人大常委会表决通过《个人信息保护法》。一些法律界人士认为，这部法律在很多方面都参照了欧盟的《通用数据保护条例》（GDPR）。而后者被视为目前全球最严格、也最健全的网络数据隐私保护框架。
+![New Federal State of China - Wikipedia](https://upload.wikimedia.org/wikipedia/commons/thumb/0/06/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%9B%BD%E6%97%97.svg/1200px-%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%9B%BD%E6%97%97.svg.png)
 
-不过中共这部法律并没有对政府部门获取个人数据做出太多限制，只是笼统规定“国家机关为履行法定职责处理个人信息,应当依照法律、行政法规规定的权限、程序进行,不得超出履行法定职责所必需的范围和限度”。新的法律为政府部门留出了不少例外条款，比如“国家机关不得公开或者向他人提供其处理的个人信息,法律、行政法规另有规定或者取得个人同意的除外”。中共的法律历来都是针对老百姓，说一套做一套，而对执法者的违法行为总是能网开一面，理由就是国家安全需要，关于具体执法部门一些滥权，总能找出很多法律条款或理由为他们开脱，这一次，也不会例外。
+七哥给我们新型的新中国联邦人提出了三个问题，我们草根战友们在给出各自的回答后得到的都是七哥的“完全不对”！大家在捧腹大笑之余，又不得不承认贫穷，被洗脑，和无知限制了我们的想象。同时，我们也懂得了七哥这三个问题的重要性！
 
-信息来源：
+七哥的第一个问题是：什么叫忠诚？
 
-[中国实施《个人信息保护法》 数据隐私安全锁？](https://info.51.ca/news/china/2021-11/1042776.html)
+忠诚欺骗了我们一辈子！家庭，朋友，合作者都要求我们忠诚。东西方传统忠诚是衷心，都是中心化。而我们信奉的忠诚是包括财富，人格，政治等一切的去中心化！诚是核心，
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+忠诚就是不要虚假的忠诚，要去中心化，要诚在于心，要诚待父母，诚待朋友，诚待战友。
+
+七哥的第二个问题是：什么叫奉献？
+
+传统的奉献，奉就是无我，把你的所有一切都献出。一旦奉了，你就是无条件地要献出一切，献就是祭祀！那谁要是要求你奉献就是骗子，是我们的敌人。人人都是平等的，为什么我要奉献给你啊？任何宗教让你奉献时，它就不是好的。故我们要把奉献改成献奉，就是愿给多少给多少。今天的喜币就是七哥献奉给战友的，是平等的。你可以买也可以不买。
+
+七哥的第三个问题是：唯真不破追求的结果是什么？要达到什么目的？
+
+爆料革命的唯真不破的核心目标就是要去假存真，就是要知善恶，要有善恶之分，要以善去恶。七哥希望我们要善待自己，家人，朋友和战友，要善待财富。 新型的新中国联邦人将遵循七哥指明的三个新的概念，以崭新的形象出现在世人面前，不愧于新中国联邦人的称号！
+
+![](https://cdn.discordapp.com/attachments/873743101305430037/904371534930534400/Screen_Shot_2021-10-31_at_10.05.40_PM.png)
+
+**校对/发稿：童谣**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
