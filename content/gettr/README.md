@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/2/2021 10:59 AM (UTC)`
+
+11/1/2021 【HCoin To the Moon Celebration】HCoin will become the universally recognized force for defending justice and have a bright future<br/><br/>11/1/2021 【HCoin to The Moon庆典】喜币会成为人类上大家共同认可的捍卫正义的力量，并将越走越远。<br/>
+![img](https://media.gettr.com/group8/getter/2021/11/02/10/59/12c0e807-9995-5166-c9d5-60d8a8279234/out.jpg)
+
+---
+
 `@miles 11/2/2021 10:51 AM (UTC)`
 
 11/1/2021 【HCoin To the Moon Celebration】Never forget to be kind, be honest, and distinguish evil and good with “Only truth prevails” <br/><br/>11/1/2021 【HCoin to The Moon庆典】永远记住：真诚、善待一切、唯真不破, 分辨善恶。
@@ -292,13 +299,6 @@ Pompeo: The CCP has the capacity and intent to do the real harm to the US. <br/>
 
 10月29日：尊敬的战友们好！这样的解读我直播说的话：是完全错误的，没有基本的金融常识，也是不了解喜联储金融系统的结果。任何人只要通过喜美元帐号KYC以后…可以在喜美元自己的帐号里面合法的购买无限的喜美元，这些喜美元随时可以兑换成美元现金，及HPAY合法可以支付的交易．这不等同于你一定会买喜币。<br/><br/>【文贵大直播爆料：战友机构投资者，用40亿购买了4千万喜币。大家算算，机构持有喜币成本是100美元一个，那么星期一喜币上市该多少钱？】
 ![img](https://media.gettr.com/group17/getter/2021/10/30/00/a4960ada-363c-dba1-baff-9ceca65cbc5c/e896ca286429452ff82bd96419dc310a.jpg)
-
----
-
-`@miles 10/30/2021 12:39 AM (UTC)`
-
-10/29/2021 Miles Guo: The collapse of the CCP’s real estate financing will happen from May to July next year; what scares the financial sector the most is that real estate developers such as Sunac and Fantasia lack the willingness to repay; Li Ka-shing is selling the assets and real estates under Hutchison Whampoa, and this will lead to a financial disaster at home and abroad, and no one will pay for the insurance bought by the Chinese Lao Baixing<br/><br/>10/29/2021 文贵直播：中共房地产将于明年5月到7月发生融资暴雷；让金融界最恐惧的是融创、花样年等房地产商无还款意愿；李嘉诚正在卖和记黄埔名下的房产和产业，这将导致国内外的金融灾难，中国老百姓买的保险将无人赔付<br/>
-![img](https://media.gettr.com/group13/getter/2021/10/30/00/39/b1f1df7c-eae8-1b92-f52d-20037ca0c60c/out.jpg)
 
 ---
 
