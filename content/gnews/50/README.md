@@ -2,25 +2,27 @@
 ---
 
 
-## 喜币：世界上最干净最安全的加密货币
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1633962/)
+## 朴昌海战友被诬告诈骗，京畿（ji）道警署不予立案打脸伪类
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1633970/)
 
-作者：纽约香草山 – Noemi
+#### 作者：英国喜庄园-I770775
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
 
-2021年11月1日，是一个值得载入全人类史册的日子。今天，代表着世界金融未来的喜币正式上市了。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-7.jpg)
-文贵先生曾说“应用区块链技术，同时锚定20%黄金，回归到布雷顿森林体系的喜币，将会成为世界上最安全的货币。喜币将会是全人类的未来。”同时，喜币在去中心化的区块链技术上，还加入了责任中心化的管理制度。
+最近，爆料革命的好消息接连不断。就在喜币上市前夕，韩国农场又传来了喜讯。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-3.jpg)
+10月31号，草根小哥发盖特称，深受战友们喜爱的“朴司令”朴昌海战友，被诬告诈骗的罪名不成立，直接啪啪打脸伪类。
 
-在上市之前，用最严格的KYC审查系统，喜币成为世界上最干净的加密货币，永远不会成为同比特币、火币一样的洗钱工具。
+据盖文介绍，自8月份以来，在韩国，中共精心安排了众多伪类，蓄意碰瓷并诬告朴昌海先生诈骗。韩国京畿道鞍山警署，经过近两个月的调查了解，终于在10月13日，正式驳回了伪类的诬告。调查通知书显示，该案件没有充足的证据，证明朴昌海先生涉嫌诈骗，所以不予立案，“不起诉”。
 
-在喜币上市的一片欢庆中，文贵先生告诫新中国联邦人和喜币拥有者们，不要像中共体制下的贪官、白手套们一样，贪图任何不干净的钱和来路不明的钱，否则，将会像海航的陈峰、王健一样，财富终将被清零，甚至惹来杀身之祸。只有尊重和善待财富，才能让自己享受财富带来的一切。
+盖文里，草根小哥掩饰不住喜悦，掷地有声：朴昌海先生的赢，让中共伪类节节败退，新中国联邦战友步步攀升。
 
-参考链接：[喜币：世界上最干净最安全的加密货币](https://gettr.com/post/pfqycl20f3)
+参考链接：
+
+[朴昌海战友被诬告诈骗，京畿（ji）道警署不予立案打脸伪类](https://gettr.com/post/pfnnnb5189)
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 总编：飞虹
-编辑：DM
+编辑：Kathy文艺
 校正/发稿：Fei797
 
 **更多资讯，更多关注**
@@ -31,6 +33,8 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
 
  
 

@@ -2,18 +2,12 @@
 ---
 
 
-## 西媒头条 — 第100期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1634498/)
+## NBA因人权问题抨击美国，却对中共国人权问题闭口不谈
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1634536/)
 
-制作：蚂蚁兄弟
+10/26/2021 人权律师里奥·特雷尔说：美国国家篮球协会球员可以因为不够完美的人权状况夜以继日地批评美国。可提到中共国，勒布朗·詹姆斯或美国国家篮球协会就因为金钱而一言不发，这一切都与金钱有关。
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/xm1102.001.jpeg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

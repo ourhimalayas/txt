@@ -2,42 +2,111 @@
 ---
 
 
-## DC大中华时事：中共部署今冬明春蔬菜等生活必需品市场保供稳价工作
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1634438/)
+## 祖国必须统一，不计代价地动如雷霆后，冬季到台北去看雨
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1634473/)
 
-*编辑：映兰轩 / 作图：*中华之光
+[https://gtv.org/video/id=6180fbfbadfd99590c324466](https://gtv.org/video/id=6180fbfbadfd99590c324466)
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
+台湾知名教授邱毅日前发表视频表示
+A well-known Taiwanese professor Qiu Yi recently published a video saying
 
-#   墙国妄语每日驳
+蔡英文把“促进转型委员会”变成一个去中国化的政治斗争工具
+Tsai Ing-wen turned the “Committee for the Promotion of Transformation” into a tool of political struggle for de-Chineseization
 
-### ***11.01.新华网：商务部部署今冬明春蔬菜等生活必需品市场保供稳价工作*** 
+因为国民党这批人不争气，所以才使民进党可以为所欲为
+Because the Kuomintang people are not up to date, so the Democratic Progressive Party can do whatever it wants
 
-*商务部近日印发通知，部署各地深入贯彻落实党中央、国务院决策部署，保障今冬明春广大人民群众生活必需品供应充足，切实做好市场保供稳价工作。通知强调，各地商务主管部门要紧紧围绕保供稳价工作目标，压实“菜篮子”市长负责制，细化工作措施；强化横向协作与纵向联动，加强与有关部门的工作协调，形成工作合力；建立完善省际间和本地区联保联供机制，健全有关工作方案，根据形势及时开展跨区域调运；加强市场运行监测，每日跟踪蔬菜、肉类等重点生活必需品供求和价格变化情况，及时预测，及早预警。*
+如果不赶快统一，台湾就真的没救了
+If you don’t quickly reunify, Taiwan will be really hopeless
 
-*通知要求，各地支持鼓励大型农产品流通企业与蔬菜、粮油、畜禽养殖等农产品生产基地建立紧密合作关系，签订长期供销协议；耐储蔬菜要提前采购，锁定货源，做好本地菜与客菜之间，北菜与南菜之间、设施菜与露天菜之间的梯次轮换和衔接供应；健全完备本地肉类储备规模及管理制度；北方省份要按时完成本年度冬春蔬菜储备计划，南方省份要根据自身情况建立完善蔬菜储备；及时投放肉类、蔬菜等生活必需品储备，补充市场供应。通知还鼓励家庭根据需要储存一定数量的生活必需品，满足日常生活和突发情况需要；加强应急投放网络建设，优化应急投放集散地和投放网点，确保投放渠道畅通有效；充分利用大型连锁商贸企业网络优势，保障在重要时段和紧急情况下商贸供应网络正常运营；及时发布商品市场供求和价格信息，稳定社会预期。*
+中国外交部讲得最明白：搞“台独”是死路一条！
+The Chinese Ministry of Foreign Affairs said it most clearly: “Taiwan independence” is a dead end!
 
-**简评：中共国内食品危机迫在眉睫。从近期比较密集的和粮食有关的举措就可以看出来。不是食品极为短缺的情况中共是不会让百姓储备粮食的。这个冬天，缺粮缺电，百姓的苦日子真的到来了。再叠加疫苗的致死和致残，不可想象会发生什么。**
+中国大陆这已是连续两日发出严厉警告
+Mainland China has issued severe warnings for two consecutive days
 
-### *11.01.人民日报：中央军委主席习近平签署命令发布《军队装备订购规定》* 
+蔡英文当局和域外干涉势力(包括美国、日本等军事力量）
+Tsai Ing-wen authorities and extraterritorial interference forces (including the United States and Japan, etc military forces)
 
-*中央军委主席习近平日前签署命令，发布《军队装备订购规定》，自2021年11月1日起施行。《规定》坚持以习近平新时代中国特色社会主义思想为指导，深入贯彻习近平强军思想，深入贯彻新时代军事战略方针，着眼有效履行新时代人民军队使命任务，全面聚焦备战打仗，深刻把握装备订购工作的特点规律，科学规范新形势下装备订购工作的基本原则、基本任务、基本内容和管理制度，是军队装备订购工作的基本法规。*
+已经让一直致力于和平努力的大陆没有了任何退路
+have left the mainland which has been committed to peace efforts, with no way back
 
-*《规定》共8章42条，按照军委管总、战区主战、军种主建的总原则，规范了军队装备订购工作的管理机制；坚持以战领建，明确保障战斗力快速生成的具体措施；贯彻军队现代化管理理念，完善装备订购工作需求生成、规划计划、建设立项、合同订立、履行监督的管理流程；破解制约装备建设的矛盾问题，构建质量至上、竞争择优、集约高效、监督制衡的工作制度。*
+关于如何惩罚，结合国台办、外交部、国防部发言人所用的原话
+Regarding how to punish, combined with the original words used by the spokespersons of the Taiwan Affairs Office of the State Council, the Ministry of Foreign Affairs, and the Ministry of National Defense
 
-**简评：中共国知道自己可能和美国不可避免发生一战，但是自己的武器装备还不够实力，所以开始重视军备购买。同时，习近平重新规范军备订购规定，也可以借机整肃军队，把军队的采购权掌握在自己手里。利益驱动关系，这样不仅可以敛财，还可以让下面的人跟随他，为自己20大继续执政肃清障碍。**
+有以下三种不可或缺
+there are three indispensable
 
-### *11.01.环球时报：俄媒称俄电力公司将对华电力出口几乎增加一倍，网友：这是“好邻居”典范 x*i下面这样下面de 
+其一，不计代价，这是态度，也是实力。
+First, regardless of the cost, this is attitude and strength
 
-*综合俄罗斯塔斯社、“今日俄罗斯”（RT）报道，俄罗斯电力公司Inter RAO一名发言人当地时间11月1日称，自当天起，该公司将对华电力出口几乎增加了一倍。对此，有网友表示，这是“好邻居”的典范。*
+就算美军介入，解放军照样坚定地维护国家统一和领土完整
+even if the US military intervenes, the People’s Liberation Army still firmly maintains national unity and territorial integrity
 
-**简评：中共政府感激俄罗斯，自己不好意思说，借用网友的口吻说出来。这是中共政府一贯用的伎俩。凡是自己不方便直接出面的，夸自己或者骂别人，都会找一个莫须有的或者安排好的“自己人”来实现自己的目的。这就是中共虚假欺骗的本性，和我们爆料革命和新中国联邦倡导的“为真不破”相差是天和地的级别，不可同日而语。中共已经没有什么前途可言了。**
+即便付出再大的代价也在所不惜
+No matter how great it costs and do not hesitate
 
-#   港台资讯
-![](https://media.discordapp.net/attachments/858887785507323904/904904440769810532/20211102C.jpg?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/904904442015543376/20211102B.jpg?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/904904442753712128/20211102A.jpg?width=1043&amp;height=586)
-*编辑：*映兰轩
-*作图：中华之光
-发布：文顾*
+其二，灭顶之灾，这是警告，更是后果
+Second, the disaster of extinction, this is a warning, but also a consequence
+
+一旦启动雷霆打击，第一波肯定包括对“台独”顽固分子的精确“斩首”打击，
+Once the Thunder strike is launched, the first wave will definitely include precise “beheading” strikes on diehards of “Taiwan independence”
+
+其三，动如雷霆，冬季到台北去看雨。
+Third, moving like thunder, go to Taipei in winter to see the rain
+
+蔡英文既然决定了一条路走到黑，
+Since Tsai Ing-wen has decided on a path to resist
+
+解放军维护国家统一和领土完整，
+The People’s Liberation Army safeguards national unity and territorial integrity
+
+必然是雷霆之力，迅速实现两岸统一
+It must be the power of thunder to quickly realize cross-strait reunification
+
+评论：
+Comment:
+
+台湾官方民调：87.5%民众反对“一国两制”
+Taiwan’s official poll: 87.5% of the people oppose “one country, two systems”
+
+8成以上民众支持捍卫国家主权及台湾民主。
+More than 80% of the people support the defense of national sovereignty and Taiwan’s democracy
+
+尽管如此，中共国无视台湾民意，与卖台贼一起先在舆论上先占先机
+Despite this, the CCP ignores Taiwan’s public opinion and, together with the Taiwan’s traitors, takes the lead in public opinion
+
+尽管蔡英文总统在接受CNN的采访时表示
+Although President Tsai Ing-wen claimed in an interview with CNN
+
+美军在台湾有少许人员已进驻
+A small number of US troops have been stationed in Taiwan
+
+但中共还是要采取武力行动拿下台湾
+But the CCP still has to take force action to take Taiwan
+
+使中共国的老百性深信不移
+for convincing the Laobaixing in China
+
+此评论数据来自：https://www.dw.com/zh/台湾官方民调875民众反对一国两制/a-59138793
+
+* * *
+
+Date:10/31/2021
+原文标题: 秦安：祖国必须统一，不计代价地动如雷霆后，冬季到台北去看雨
+Qin An: The motherland must be unified. after moving like thunder at all costs and go to Taipei to watch the rain in winter
+原文日期：2021/10/29
+原文链接 https://www.163.com/dy/article/GNFNP54305526B7P.html?f=post2020\_dy\_recommends
+任务编号：KC217(2733)
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

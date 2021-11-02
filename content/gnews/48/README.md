@@ -2,24 +2,27 @@
 ---
 
 
-## 白宫发言人普萨基感染中共病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1633994/)
+## 考虑心肌炎风险，FDA暂未批准青少年使用莫德纳疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1634016/)
 
-#### 作者：纽约香草山 – AlexZ
+作者：纽约香草山农场医疗部 – 云豹
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-白宫发言人普萨基10月31日表示，她的 COVID-19 检测呈阳性。这是目前本届政府最高级别白宫官员被感染中共病毒。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-4.jpg)
-她在一份声明中说，她最近一次见到拜登总统是在周二。拜登政府对中共病毒一直非常谨慎，除了今年春天的一个短暂时期外，都要求所有人员在室内也要戴口罩。并且与总统接触的白宫工作人员也经常接受检测。更重要的是，普萨基已经注射过疫苗。但是，在重重防护下，普萨基依然感染了中共病毒。
+美国食品药品监督管理局（FDA）于10月29日通知莫德纳公司，推迟莫德纳中共新冠病毒疫苗在12-17岁青少年中使用的申请。莫德纳疫苗在欧盟地区使用后，已引起多例青少年心肌炎的病例。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-2.jpg)
+瑞典公共卫生机构表示，一项研究显示，注射莫德纳疫苗会增加罹患心肌炎及心包膜炎的风险。因此芬兰、瑞典、丹麦、挪威等国，最近相继停止了莫德纳疫苗在青少年中的使用许可。
 
-有网友质疑：“既然疫苗不能控制病毒传播，为什么还要推行强制疫苗？！”
+据悉，FDA最快要在2022年1月后才可能再次发布新的审核结果。
+
+中共新冠病毒疫苗的副作用，越来越成为不容忽视的人类健康灾害。
 
 参考链接：
 
-[White House press secretary Jen Psaki reveals she has COVID-19](https://www.npr.org/2021/10/31/1050984596/white-house-press-secretary-jen-psaki-reveals-she-has-covid-19)
+[美國食藥局：因心肌炎風險 青少年注射莫德納再等等](https://www.cna.com.tw/news/aopl/202111010011.aspx)
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-总编/编辑：木白
+总编：飞虹
+编辑：Delilah小胖
 校正/发稿：Fei797
 
 **更多资讯，更多关注**
@@ -28,7 +31,9 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

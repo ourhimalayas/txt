@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/2/2021 5:36 PM (UTC)`
+
+在 GETTR 上加入我的直播。
+![img](https://media.gettr.com/group1/getter/2021/10/23/19/bef325e0-a7dd-eef4-f1c5-6977a36aeaf7/7f87f676c946650f527b3506087be38c.jpeg)
+
+---
+
 `@miles 11/2/2021 4:51 PM (UTC)`
 
 11月2号：进入了中国政治局和常委以后……能和13岁的女孩发生性关系，这算是年龄大的了．他们一般都喜欢七岁到11岁的，而且进入政治局和常委之后，只要不是政治需要，这叫作风不检点，強奸罪名只适用于我们这些草根和老百姓的．张高丽曾是常委……不存在什么强奸和犯罪……战友们都太天真了。【这事儿挺大，关键是彭帅的年龄。她19年时18岁，今年20，如果按微博所说，7年前发生关系，那时候是13岁。没记错的话，根据中国法律，与14岁以下未成年人发生关系，无论是否自愿，都算强奸。🙏🙏🙏🙏】
@@ -296,13 +303,6 @@ Pompeo: The CCP has the capacity and intent to do the real harm to the US. <br/>
 
 10/29/2021 Miles Guo: DWAC's document on the SPAC IPO reflect that 1) the company has no cash, and Bruno Wu and Patrick Orlando painted a rosy picture for President Trump; 2) DWAC has not yet found a real investor; and 3) DWAC will have trouble keeping their promises because it’s backed by the CCP<br/><br/>10/29/2021 文贵直播：DWAC的关于SPAC上市的文件说明：1) 该公司没现金，吴征和Patrick Orlando只是给川普总统画了个大饼；2) DWAC尚未找到真正的投资人；3) 由于其背后是中共，DWAC难以兑现其承诺<br/>
 ![img](https://media.gettr.com/group38/getter/2021/10/30/07/40/114f39e9-8921-3c31-394d-26a21a01d670/out.jpg)
-
----
-
-`@miles 10/30/2021 2:21 AM (UTC)`
-
-10/29/2021 Miles Guo: GlobalFoundries, in which Mubadala invests, controls core technologies, and it may become a trillion-dollar or a half-trillion-dollar company thanks to the CCP and Xi Jinping<br/><br/>10/29/2021 文贵直播：由穆巴达拉投资的格芯掌握核心技术，它可能因为中共和习近平而跻身万亿或半万亿级的公司<br/>
-![img](https://media.gettr.com/group2/getter/2021/10/30/02/21/9d24f964-925f-5bbc-1482-8b56913d7748/out.jpg)
 
 ---
 
