@@ -2,8 +2,8 @@
 ---
 
 
-## 11/1/2021【HCoin To the Moon 庆典】：列支敦士登因投资喜联储而果断跟中共脱钩
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1633981/)
+## 11/1/2021【HCoin To the Moon 庆典】：我们既支持蓬培奥也支持川普竞选美国总统
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1634048/)
 
 秘密翻译组-北美组
 
