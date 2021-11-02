@@ -2,11 +2,13 @@
 ---
 
 
-## 11/1/2021【HCoin To the Moon 庆典】：我们既支持蓬培奥也支持川普竞选美国总统
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1634048/)
+## 美国财长耶伦表示目前对中共国关税不变
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1634056/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1102-2-scaled.jpg)
+*编辑：东京樱花团/简报小组*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
