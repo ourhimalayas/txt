@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/2/2021 4:59 AM (UTC)`
+
+11/1/2021【HCoin To the Moon Celebration】: We support both Pompeo and Trump running for President of the United States as long as they are determined to take down the CCP! We will not take sides!<br/><br/>11/1/2021【HCoin To the Moon 庆典】：我们既支持蓬培奥也支持川普竞选美国总统，只要他们坚决灭共！我们不会在他们之间选边儿站队！<br/>
+![img](https://media.gettr.com/group3/getter/2021/11/02/04/59/862c7ad2-9690-4a0c-8be6-1b80c49dba5a/out.jpg)
+
+---
+
 `@miles 11/2/2021 3:49 AM (UTC)`
 
 11/1/2021 [HCoin To the Moon Celebration]: Liechtenstein decided to decouple with the CCP to invest in the Himalaya Reserve; Luxembourg, with the world's highest GDP per capita, would rather decouple with the CCP in order to invest in the Himalaya Reserve; on behalf of the Himalaya Reserve, Europe's largest political lobbying firm is lobbying various countries around the world to decouple with the CCP!<br/><br/>11/1/2021【HCoin To the Moon 庆典】：列支敦士登因投资喜联储而果断跟中共脱钩；全球人均GDP最高的卢森堡宁愿跟中共脱钩也要投资喜联储；欧洲最大的政治游说公司正在为喜联储在全球游说多国与中共脱钩！<br/>
@@ -294,13 +301,6 @@ Pompeo: The CCP has the capacity and intent to do the real harm to the US. <br/>
 
 Studio Vibes<br/>@DDNYC
 ![img](https://media.gettr.com/group6/origin/2021/10/29/19/18/5d8f7084-5b75-41fc-39fe-ff23a82bf716/out.jpg)
-
----
-
-`@miles 10/29/2021 12:30 PM (UTC)`
-
-2021年10月29日 文贵大直播：美股一周大事件；金油粮食人工价；国内违约房地产；喜币应运虚拟币
-![img](https://media.gettr.com/group33/origin/2021/10/29/12/5924761e-1746-4ac6-cdb8-4645b039d54d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
