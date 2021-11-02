@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/2/2021 10:17 PM (UTC)`
+
+11/1/2021 [HCoin To the Moon Celebration]: Fellow fighters, the first thing you should do is to take care of your parents if you become wealthy; The significance of the Himalaya Coin is that it works in the entire world and that it can absolutely bring financial freedom to numerous people across the globe<br/><br/>11/1/2021【HCoin To the Moon 庆典】：战友们， 如果你们有钱了，第一个就要对自己的父母好；喜币的意义在于它在全世界都管用，而且它绝对能给很多人带来财富自由！
+![img](https://media.gettr.com/group39/getter/2021/11/02/22/17/5fa14cdf-200e-8ebc-eafe-862f85c80406/out.jpg)
+
+---
+
 `@miles 11/2/2021 10:09 PM (UTC)`
 
 11/1/2021 [HCoin To the Moon Celebration]: The notion of “Feng Xian” (sacrifice and contribute) is the biggest lie in history, and the Whistleblowers’ Movement has replaced “Feng Xian” with “Xian Feng” (heartfelt offering), which means I take actions and give you my selfless and sincere love. The Himalaya Coin is my heartfelt offering to all of our fellow fighters.<br/><br/>11/1/2021【HCoin To the Moon 庆典】：“奉献”是历史上最大的谎言，爆料革命把“奉献”改为“献奉” - 我行动，给你我无私的、真诚的爱，喜币是七哥给战友们的“献奉”<br/>
@@ -292,17 +299,6 @@ Hcoin To The Moon <br/><br/>词：威廉王<br/>曲：唐平<br/>编曲： SFG<b
 
 Pompeo: The CCP has the capacity and intent to do the real harm to the US. <br/>蓬佩奥：中共有能力、有意图真正危害美国。美国不仅要带头推进台湾参与联合国，而且要用实际行动向习近平表明：图谋台湾是绝不可接受的
 ![img](https://media.gettr.com/group36/origin/2021/10/30/05/13/84e358fc-376b-9bfa-c85d-ccaaf55e7bf5/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayaukclub 10/30/2021 4:50 PM (UTC)`
-
-10月28日  美国纽约<br/>纽约市消防员在市长比尔·德布拉西奥住所外集会，抗议针对市政工作者的新冠疫苗强制令<br/>#抗议强制接种 #反对疫苗护照 <br/><br/>October 28, New York, USA<br/>NYC firefighters rally outside Mayor Bill De Blasio’s residence to protest Covid-19 vaccine mandate for city workers
-![img](https://media.gettr.com/group37/origin/2021/10/30/16/50/edb53e2c-a2ac-5ca8-5176-c86ddb2a33b4/out.jpg)
-> `@himalayaukclub 10/30/2021 4:44 PM (UTC)`<br/>10月27日  法国巴黎<br/>人们在参议院外面举行抗议活动 #反对疫苗护照<br/><br/>October 27, Paris, France<br/>People gather outside the Senate building to protest against vaccine passports
-![img](https://media.gettr.com/group37/origin/2021/10/30/16/44/52198d08-c7d5-b740-3566-befdfcf7701a/out.jpg)
 
 ---
 
