@@ -2,27 +2,27 @@
 ---
 
 
-## 中共国制造活动指数两个月内连续下降
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1634842/)
+## 意大利政府首次向中共表达关切台海局势及新疆、香港人权问题
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1634864/)
 
-作者：香草山农场 – 柳是多水土透
+作者：香草山农场 医疗部 – 云豹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月30日，多家媒体报道指出，中共国10月份的工厂活动指数在两个月中连续收缩。证据显示，中共国庞大的制造业正被原材料价格上涨、大范围停电和加快减速的房地产行业拖累。
+10月31日，意大利外交部发布的新闻稿指出，G20会议期间，意大利外长迪马尤在29日与中共外长王毅会谈时明确表示，意大利政府很关切台湾海峡的紧张局势，希望两岸能以对话方式让情势和缓。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide4-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6.jpeg)
 
-报道提及，中共官方公布的采购经理人指数本月降至49.2，相较于9月的指数持续下跌。另外，电力供应短缺正在打乱从东北至广东深圳工厂的生产节奏。中共国家统计局发布的数字显示，中共国第三季度的经济增长跌落至年内新低。
+此外，外长迪马尤「特别强调」意大利对新疆和香港人权问题的担忧，希望中共能和欧盟恢复有关人权问题的高级对话。
 
-对此，数据分析师认为，多个供给端因素加剧了中共的经济失速，包括芯片短缺、物流业过载、新冠封锁等，加之中共国内燃料、煤、化工产品和金属的价格加速上涨，证据表明，中共的滞涨正在发生。
+意大利是被中共深度蓝金黄的国家，也是欧盟及G7中最早参与中共一带一路的国家，是中共眼中视为囊中之物的欧盟前进堡垒。有专家分析，这次意大利政府首次敢于公开发表对于台湾、新疆、香港等被中共视为大忌议题的看法，显示随着民意对中共的不满，意大利政府已经见风转舵，明确改变对中共言听计从的态度，慢慢转回到西方民主价值的阵营中。
 
 参考链接：
-1）[China manufacturing slows as property and energy woes hit economy](https://www.ft.com/content/b338d366-f94f-46d1-b732-5470bde825c3)
-2）[China’s Manufacturing Activity Contracts for Second Straight Month](https://www.wsj.com/articles/chinas-manufacturing-activity-contracts-for-second-straight-month-11635645642?mod=hp_lista_pos4)
+1）[義大利政府首度向中國關切台海情勢 點名香港新疆人權遭壓迫](https://www.cna.com.tw/news/firstnews/202111010026.aspx)
+2）[曾簽一帶一路協議 義大利對中國態度冷卻](https://www.cna.com.tw/news/firstnews/202110010359.aspx)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 总编：飞虹
-编辑：Irene木木
+编辑：飞虹
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
