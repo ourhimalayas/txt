@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/2/2021 12:25 AM (UTC)`
+
+11/1/2021 [HCoin To the Moon Celebration]: The CCP is using the UK as the command center for its anti-Whistleblowers' Movement task force and to attack the Himalaya Coin. But because we are well-prepared to resist and are protected by the UK and other countries, we are able to crush the CCP's crazy operations. Had it not been so, the launch of Himalay Coin would have been delayed for a month.<br/><br/>11/1/2021【HCoin To the Moon 庆典】：中共将英国作为平爆小组的指挥中心以攻击喜联储，但我们有绝对的实力反抗并得到了英国等国家的保护，成功粉碎了中共疯狂的行动，否则喜币将推迟一个月上市<br/>
+![img](https://media.gettr.com/group9/getter/2021/11/02/00/25/5d62d522-fbdc-15cf-5d37-ae1099743a9e/out.jpg)
+
+---
+
 `@miles 11/1/2021 8:49 PM (UTC)`
 
 “HCOIN TO THE MOON” 喜马拉雅币上市庆典
@@ -298,13 +305,6 @@ CNN：蔡英文首次公开承认美国军队正在台湾训练台湾部队<br/>
 
 纳瓦罗：福奇最大的谎言是，他从2020年1月28日就确切地知道致命的中共病毒来自他资助的武汉生物武器实验室，但他没有告诉川普总统，并费尽心机地加倍掩盖<br/><br/>Navarro: The big lie of Fauci is that he knew from Jan. 28th, 2020 that the deadly Covid-19 virus came from the Wuhan bioweapon lab funded by him, but he didn’t tell President Trump and doubled down with engineered coverup <br/>
 ![img](https://media.gettr.com/group21/getter/2021/10/29/08/33/0d1378f3-fff7-c2a6-fd60-a739d60897c5/out.jpg)
-
----
-
-`@miles 10/29/2021 8:31 AM (UTC)`
-
-娜塔莉·温特斯：福奇故意和中共勾结，制造出杀死全世界数以百万人的病毒，这是叛国罪<br/><br/>Natalie Winters: Fauci deliberately colluded with the CCP to create a virus that killed millions of people around the world. It is treason
-![img](https://media.gettr.com/group41/getter/2021/10/29/08/5276b84e-cba3-bdb0-0ea9-8304327a7197/out.jpg)
 
 ---
 
