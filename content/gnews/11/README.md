@@ -2,32 +2,56 @@
 ---
 
 
-## 有声|贼喊捉贼 共军扰台军机竟首先广播驱离台湾军机
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1633702/)
+## 中共将新冠疫苗强制接种政策推向3至11岁儿童
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1633762/)
 
-配音：香草山美食部-玫瑰园
+作者：纽约香草山农场 – 静水流深
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
 
-10月29日中午，共军扰台飞机，竟然对台湾军机近距离广播称，台湾地区飞机已经危及共军军机飞行安全，并让其立即离开。
 
-据统计，共军2021年已累计入侵台湾空域214天，本月累计入侵台湾空域18天。本月台军广播驱离记录108次，2021年累计广播驱离已达647次。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2.jpg)
 
-近日，台湾总统蔡英文、美国总统拜登对美台关系的讲话，以及蔡英文首次证实有美军驻训台湾的事情，已经深深刺痛了中共的敏感神经，加剧共军扰台。
 
-文字版原文：[贼喊捉贼 共军扰台军机竟首先广播驱离台湾军机](https://gnews.org/zh-hans/1631283/)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+为了继续骗取各年龄层人群接种疫苗，中共一直反复强调：接种新冠疫苗是筑牢人群免疫屏障的重要组成部分，是阻断新冠病毒传播的最重要的措施。果真如此吗？
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-21.png)图源网络
+
+首先，新冠病毒是中共制造的病毒，为什么要全人群来建立免疫屏障？其次，既然新冠疫苗是阻断新冠病毒传播的最重要措施，那为什么已接种两剂疫苗的人还要根据需要，不断进行核酸检测？为什么还有那么多已接种两剂疫苗的人还是感染了？对于中共的骗术，就从来没有人思考、怀疑一下吗？
+
+中共的教育从来就是教学生听话——听家长的话、听老师的话；老师听校长的话；校长听教管中心的话；教管中心听教育局的话。对于上面的要求，身处基层的人不需要思考、不需要反驳，只需要听话以及乖乖服从。在中共的教育体系下，人们丧失了基本的思考能力，只知道服从——领导说什么就是什么，出了事由领导负责。试问，领导又真的会负责吗？
+
+暑假期间，中共骗取12岁以上的学生接种疫苗，学校为此成了临时疫苗接种点。9月开学后，年满12周岁没来得及打疫苗的，或者只打了一针的，学校根据上级要求，每天统计学生疫苗接种情况，甚至在没有监护人陪同签名的情况下，直接开车把学生拉到医院接种疫苗。他们这么积极的行为只有一个目的：清零，因为上面领导要求清零。
+
+而今，没有年满12周岁的学生暂时可以喘口气，但是中共依然不会放过这群孩子。在开学的时候，学校就收集好了学生本人的身份证号码、家庭住址、父母双方的身份证号码、电话号码。到了10月份，哪些学生年满12周岁，学校全部可以统计出来，继续让这些学生去打新冠疫苗。
+
+如今，中共要求3-11岁的儿童接种疫苗，那学校根本就不需要再继续统计是否年满12周岁，直接要求没有接种的学生去接种就行。更过分的是，有些学校将接种疫苗前需要签署的《健康状况询问与接种禁忌核查表》发到各个班级，让学生自己先判断自己的健康状况，填写受种者姓名、身份证号码、父母亲姓名、身份证号码。什么时候学校可以包办让学生填写《健康状况询问与接种禁忌核查表》？什么时候学校有责任成为临时疫苗接种点，或者直接拉学生去接种？学校不应该是教书育人的地方吗？
+
+在中共的毒手下，学校早就变质，进行的是维持中共政权的教育。而最可怜的是学生，最弱势的群体，任中共无限宰割与推残。
+
+参考阅读：
+
+新闻观察：中（共）国多地启动3-11岁人群疫苗接种\_http://news.china.com.cn/2021-10/26/content\_77834208.htm
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1.jpg)
+
+***编辑/校对/发稿：Irene木木***
+
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2.jpg)
 
 
 
