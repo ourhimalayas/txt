@@ -2,27 +2,24 @@
 ---
 
 
-## 朴昌海战友被诬告诈骗，京畿（ji）道警署不予立案打脸伪类
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1633970/)
+## 白宫发言人普萨基感染中共病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1633994/)
 
-#### 作者：英国喜庄园-I770775
+#### 作者：纽约香草山 – AlexZ
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
 
-最近，爆料革命的好消息接连不断。就在喜币上市前夕，韩国农场又传来了喜讯。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-3.jpg)
-10月31号，草根小哥发盖特称，深受战友们喜爱的“朴司令”朴昌海战友，被诬告诈骗的罪名不成立，直接啪啪打脸伪类。
+白宫发言人普萨基10月31日表示，她的 COVID-19 检测呈阳性。这是目前本届政府最高级别白宫官员被感染中共病毒。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-4.jpg)
+她在一份声明中说，她最近一次见到拜登总统是在周二。拜登政府对中共病毒一直非常谨慎，除了今年春天的一个短暂时期外，都要求所有人员在室内也要戴口罩。并且与总统接触的白宫工作人员也经常接受检测。更重要的是，普萨基已经注射过疫苗。但是，在重重防护下，普萨基依然感染了中共病毒。
 
-据盖文介绍，自8月份以来，在韩国，中共精心安排了众多伪类，蓄意碰瓷并诬告朴昌海先生诈骗。韩国京畿道鞍山警署，经过近两个月的调查了解，终于在10月13日，正式驳回了伪类的诬告。调查通知书显示，该案件没有充足的证据，证明朴昌海先生涉嫌诈骗，所以不予立案，“不起诉”。
-
-盖文里，草根小哥掩饰不住喜悦，掷地有声：朴昌海先生的赢，让中共伪类节节败退，新中国联邦战友步步攀升。
+有网友质疑：“既然疫苗不能控制病毒传播，为什么还要推行强制疫苗？！”
 
 参考链接：
 
-[朴昌海战友被诬告诈骗，京畿（ji）道警署不予立案打脸伪类](https://gettr.com/post/pfnnnb5189)
+[White House press secretary Jen Psaki reveals she has COVID-19](https://www.npr.org/2021/10/31/1050984596/white-house-press-secretary-jen-psaki-reveals-she-has-covid-19)
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-总编：飞虹
-编辑：Kathy文艺
+总编/编辑：木白
 校正/发稿：Fei797
 
 **更多资讯，更多关注**
@@ -31,11 +28,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

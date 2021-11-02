@@ -2,15 +2,18 @@
 ---
 
 
-## 七星照币
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1634430/)
+## 西媒头条 — 第100期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1634498/)
 
-韩国首尔天池农场—腊八　校对/上传—无明逆流
-![](https://assets.gnews.org/wp-content/uploads/2021/11/bb0186fc-2e3f-4bdc-97a5-0261189ad63a.jpg)
-**七哥藏大爱，带着使命来。
-准备三十载，猛料随手摘。
-战友显英才，农场兴未来。
-G系搭平台，喜币发大财。**
+制作：蚂蚁兄弟
+
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/xm1102.001.jpeg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
 
  
 

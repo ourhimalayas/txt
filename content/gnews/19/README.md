@@ -2,21 +2,12 @@
 ---
 
 
-## 七哥说— 第24期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1634506/)
+## 许多公司都在试图将供应链多样化以避免过于依赖中共国
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1634540/)
 
-制作：Inzaghi
+10/27/2021 Tigress财务合作公司首席投资官和研究部主任Ivan Feinseth：全球半导体短缺影响到我们日常生活的方方面面，许多公司都在试图将供应链多样化以避免过于依赖中共国。
 
-天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
-不抛弃，不放弃的正是你心中那一份对信念的坚定。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/a112.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/a111.png)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
