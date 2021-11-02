@@ -2,42 +2,112 @@
 ---
 
 
-## 墙内要闻汇编 11月2日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1634344/)
+## 祖国必须统一，不计代价地动如雷霆后，冬季到台北去看雨
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1634473/)
 
-#### 素材：东京樱花团｜GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-3.png)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1102/20211102020526271.jpg)
-1、[**北京两所学校紧急封校 大批小学生拉走隔离**](https://www.aboluowang.com/2021/1102/1667073.html)
+[https://gtv.org/video/id=6180fbfbadfd99590c324466](https://gtv.org/video/id=6180fbfbadfd99590c324466)
 
-2021年11月1日，北京两所学校发现确诊病例，紧急封校，大量家长深夜在校外守候。2日凌晨，大批小学生身穿防护服坐上大巴车，被拉走集中隔离。一位家长说，下午接到学校通知，家长可来给孩子送衣服一起前往隔离点，不过现在孩子还未离开校园。深夜11点半，有学校校领导出来告诉家长，把孩子的衣服打包好，写上名字给保安带进校内，明天会告诉孩子检测结果和隔离信息，家长可去酒店陪同，家长们这才散去。被隔离的孩子们全部身穿防护服，11月2日凌晨1点左右，确诊教师所在班级学生全部被送往集中隔离点，每位学生允许一名家长陪同隔离。
+台湾知名教授邱毅日前发表视频表示
+A well-known Taiwanese professor Qiu Yi recently published a video saying
 
-2、[**缺防疫物资 甘肃天水紧急求助**](https://www.aboluowang.com/2021/1102/1666983.html)
+蔡英文把“促进转型委员会”变成一个去中国化的政治斗争工具
+Tsai Ing-wen turned the “Committee for the Promotion of Transformation” into a tool of political struggle for de-Chineseization
 
-10月31日，天水市应急救援协会发出求助函。信中说，截止当日，一线防疫工作已持续11天，备灾物质基本消耗殆尽。目前因物质短缺，严重影响救灾作业。特向社会爱心人士、单位和企业家求助以下物品：医务防护服、医用脚套、医用头套、N95口罩等等。但天水市当地居民刘先生（化名）11月1日下午接受大纪元记者采访时表示，目前疫情封锁比武汉封城还严，都知道官方没有公布真实数据，百姓恐慌。
+因为国民党这批人不争气，所以才使民进党可以为所欲为
+Because the Kuomintang people are not up to date, so the Democratic Progressive Party can do whatever it wants
 
-3、[**中国疫情扩散 北京要部分在外民众暂缓回京**](https://www.aboluowang.com/2021/1102/1666750.html)
+如果不赶快统一，台湾就真的没救了
+If you don’t quickly reunify, Taiwan will be really hopeless
 
-这一轮疫情北京已经累计报告31个COVID-19病例，其中29例确诊，2例为无症状感染者。北京市卫健委今天表示，正在京外出差、旅游等未返京人员，如果与目前国内已报告病例的公布行程有时空重合，应立即向社区（村）、单位、宾馆报告行程，“就地自我隔离”不外出，并配合各项管控措施。许多在外地的北京人健康宝、行程码都是绿色，有48小时内的核酸检测证明，但就是回不了北京，有的被限制购票，有的购票了也不让进站。对于这波发展中的疫情，北京采取严防死守的态度。北京通州区10月30日发布消息，已办理涉疫类案件7件，行政拘留9人，理由包括违规进京、试图逃避检查进京等。
+中国外交部讲得最明白：搞“台独”是死路一条！
+The Chinese Ministry of Foreign Affairs said it most clearly: “Taiwan independence” is a dead end!
 
-4、[**生命受威胁 北京14人宣布停止参选人大代表**](https://www.aboluowang.com/2021/1102/1666847.html)
+中国大陆这已是连续两日发出严厉警告
+Mainland China has issued severe warnings for two consecutive days
 
-北京市区级人大代表选举还有4天，包含“709案”家属在内的14名独立参选者今天发布联合声明，为了人身自由和生命安全，宣布停止参选行动。声明中说，他们自10月15日表明参选后，其中10名独立候选人被警察“死看死守”：有的被带到派出所“喝茶”，有的不让离开居住的社区，有的深夜从家里带走“被旅游”，有的遭到乡政府强拆威胁等，这10人只能被迫取消选举宣传活动。尽管有多年的维权抗争经验，但声明说，这次参选让他们感到恐惧，在恐惧和压力之下，“为了我们14人的人身自由和生命安全，我们宣布停止独立候选人的参选行动”。
+蔡英文当局和域外干涉势力(包括美国、日本等军事力量）
+Tsai Ing-wen authorities and extraterritorial interference forces (including the United States and Japan, etc military forces)
 
-5、[**海底捞再曝食安事件 市值已蒸发3500亿**](https://www.aboluowang.com/2021/1102/1666963.html)
+已经让一直致力于和平努力的大陆没有了任何退路
+have left the mainland which has been committed to peace efforts, with no way back
 
-近日，中国知名连锁餐饮企业海底捞国际控股有限公司再次曝出食品安全事件。该公司官网上公布自查出的问题包括食材过期问题、设备失效问题，还有不卫生操作等。11月1日盘中一度跌近6%，至20.55港元，为连续第8日下跌，股价创出2019年2月以来新低。较今年2月创出的历史最高位85.80港元/股，海底捞已跌去76%，市值由最高时逼近4,700亿跌至目前不足1,200亿港元，市值蒸发了3,500亿港元。
+关于如何惩罚，结合国台办、外交部、国防部发言人所用的原话
+Regarding how to punish, combined with the original words used by the spokespersons of the Taiwan Affairs Office of the State Council, the Ministry of Foreign Affairs, and the Ministry of National Defense
 
-6、[**中国10月楼市销售低迷 经济前景恐添压力**](https://www.aboluowang.com/2021/1102/1666964.html)
+有以下三种不可或缺
+there are three indispensable
 
-据房地产研究机构克而瑞（CRIC）在周一（1日）发布的报告指出，中国前百大房企10月新屋销售年减32％，持续给中国经济成长带来极大的压力。由于房地产业约占1/4中国国内生产总值（GDP），中国房地产与建筑产业在今年第三季开始销售业绩下探，出现疫情大流行以来的首次衰退，进而影响中国第三季经济成长放缓。
+其一，不计代价，这是态度，也是实力。
+First, regardless of the cost, this is attitude and strength
 
-7、[**中国低薪、工时长难改善 中媒：青年绝望想“躺平”**](https://www.aboluowang.com/2021/1102/1666965.html)
+就算美军介入，解放军照样坚定地维护国家统一和领土完整
+even if the US military intervenes, the People’s Liberation Army still firmly maintains national unity and territorial integrity
 
-年轻人面对低薪、工时长的“996”职场文化，怎么拼也无法改善，难以超越的贫富鸿沟让许多人不愿辛勤工作，“躺平”文化正席卷全中国，以表达对社会的绝望，不利产业竞争力。根据上海薪酬数据，截至9月，中国前30名职业院校应届毕业生的平均月薪为6276元人民币，比前100名高校毕业生的平均月薪整整低了30%。然而低薪也造成技术劳工严重短缺的恶果，中国只有约30%的劳动力拥有高中或更高学历，是中等收入国家中水平最低的国家之一，对产业竞争力的提升形成莫大阻碍。
+即便付出再大的代价也在所不惜
+No matter how great it costs and do not hesitate
 
-*编辑：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+其二，灭顶之灾，这是警告，更是后果
+Second, the disaster of extinction, this is a warning, but also a consequence
+
+一旦启动雷霆打击，第一波肯定包括对“台独”顽固分子的精确“斩首”打击，
+Once the Thunder strike is launched, the first wave will definitely include precise “beheading” strikes on diehards of “Taiwan independence”
+
+其三，动如雷霆，冬季到台北去看雨。
+Third, moving like thunder, go to Taipei in winter to see the rain
+
+蔡英文既然决定了一条路走到黑，
+Since Tsai Ing-wen has decided on a path to resist
+
+解放军维护国家统一和领土完整，
+The People’s Liberation Army safeguards national unity and territorial integrity
+
+必然是雷霆之力，迅速实现两岸统一
+It must be the power of thunder to quickly realize cross-strait reunification
+
+评论：
+Comment:
+
+台湾官方民调：87.5%民众反对“一国两制”
+Taiwan’s official poll: 87.5% of the people oppose “one country, two systems”
+
+8成以上民众支持捍卫国家主权及台湾民主。
+More than 80% of the people support the defense of national sovereignty and Taiwan’s democracy
+
+尽管如此，中共国无视台湾民意，与卖台贼一起先在舆论上先占先机
+Despite this, the CCP ignores Taiwan’s public opinion and, together with the Taiwan’s traitors, takes the lead in public opinion
+
+尽管蔡英文总统在接受CNN的采访时表示
+Although President Tsai Ing-wen claimed in an interview with CNN
+
+美军在台湾有少许人员已进驻
+A small number of US troops have been stationed in Taiwan
+
+但中共还是要采取武力行动拿下台湾
+But the CCP still has to take force action to take Taiwan
+
+使中共国的老百性深信不移
+for convincing the Laobaixing in China
+
+此评论数据来自：https://www.dw.com/zh/台湾官方民调875民众反对一国两制/a-59138793
+
+* * *
+
+Date:10/31/2021
+原文标题: 秦安：祖国必须统一，不计代价地动如雷霆后，冬季到台北去看雨
+Qin An: The motherland must be unified. after moving like thunder at all costs and go to Taipei to watch the rain in winter
+原文日期：2021/10/29
+原文链接 https://www.163.com/dy/article/GNFNP54305526B7P.html?f=post2020\_dy\_recommends
+任务编号：KC217(2733)
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

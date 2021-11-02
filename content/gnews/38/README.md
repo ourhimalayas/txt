@@ -2,12 +2,10 @@
 ---
 
 
-## 山东菏泽碧桂园铂悦城农民工讨薪被项目负责人车辆压伤
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1634538/)
+## 11/1/2021【HCoin To the Moon 庆典】：喜币有三大法宝
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1634548/)
 
-10月21日上午，山东菏泽碧桂园铂悦城项目工地门口多名农民工聚集拉条幅、讨要薪资，一名农民工被项目负责人车辆压伤。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+秘密翻译组-北美组
 
  
 

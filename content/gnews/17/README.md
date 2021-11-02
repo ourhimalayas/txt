@@ -2,30 +2,27 @@
 ---
 
 
-## 中共国粮荒爆发在即，官方发布全民《粮食节约行动方案》
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1634824/)
+## 中共国制造活动指数两个月内连续下降
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1634842/)
 
-作者：英国喜庄园 – I770775
+作者：香草山农场 – 柳是多水土透
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月31日，中共中央印发《粮食节约行动方案》要求全国各地区、各部门认真贯彻落实。中央农办负责人称，全民节约粮食是保障国家粮食安全的重要途径。方案提出，要有效利用麦糠、麸皮、薯渣等粮油加工副产物，生产食用产品。
+10月30日，多家媒体报道指出，中共国10月份的工厂活动指数在两个月中连续收缩。证据显示，中共国庞大的制造业正被原材料价格上涨、大范围停电和加快减速的房地产行业拖累。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide2-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide4-1.jpeg)
 
-中共国海关公布的数据显示，2021年1-6月中共国粮食进口量8436.3万吨，比去年同期增长43.1%；1-9月份的粮食总进口量达12827.3万吨，比去年同期增长29.3%。
+报道提及，中共官方公布的采购经理人指数本月降至49.2，相较于9月的指数持续下跌。另外，电力供应短缺正在打乱从东北至广东深圳工厂的生产节奏。中共国家统计局发布的数字显示，中共国第三季度的经济增长跌落至年内新低。
 
-从数据不难看出，尽管中共国粮食的进口量同比依然在增长，但环比来看增长数据已经在急速下降。
-
-由于疫情的长期封锁，国际海运成本已经翻倍，国际粮价整体都在大幅攀升。近日欧盟各国联合英国、加拿大、土耳其等国又集体取消了对中共国的关税优惠国待遇。这些因素叠加，让本来外汇吃紧的中共，想依靠粮食进口解决国内粮食缺口的希望变得越来越渺茫。
+对此，数据分析师认为，多个供给端因素加剧了中共的经济失速，包括芯片短缺、物流业过载、新冠封锁等，加之中共国内燃料、煤、化工产品和金属的价格加速上涨，证据表明，中共的滞涨正在发生。
 
 参考链接：
-1）[为进一步保障粮食安全开辟重要途径——中央农办负责人就《粮食节约行动方案》答记者问](http://www.gov.cn/zhengce/2021-11/01/content_5648094.htm)
-2）[中共中央办公厅 国务院办公厅印发《粮食节约行动方案》](http://www.chinanews.com/gn/2021/11-01/9599117.shtml)
-3）[我国大举进口八千多万吨粮食！](https://finance.sina.com.cn/money/future/roll/2021-07-15/doc-ikqcfnca6970703.shtml)
+1）[China manufacturing slows as property and energy woes hit economy](https://www.ft.com/content/b338d366-f94f-46d1-b732-5470bde825c3)
+2）[China’s Manufacturing Activity Contracts for Second Straight Month](https://www.wsj.com/articles/chinas-manufacturing-activity-contracts-for-second-straight-month-11635645642?mod=hp_lista_pos4)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 总编：飞虹
-编辑：飞虹
+编辑：Irene木木
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
