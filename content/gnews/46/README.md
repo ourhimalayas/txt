@@ -2,34 +2,34 @@
 ---
 
 
-## 澳大利亚很快跟随美国为5至11岁的儿童接种疫苗
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1634150/)
+## 有声|新中国联邦的三大优势：有信仰、有人才、有货币
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1634521/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+配音：香草山香港部-文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2021年10月31日，郭文贵先生在盖特中说，喜币不是用来炒的，它是一个系统，是喜联储的组成部分，要充分了解这个系统，使用这个系统。这个系统是干净合法的，安全可靠的。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Untitled.jpg)圖片來源：resources0.news.com.au
+这个系统有三大优势：首先注册者可信。拥有喜账户的人都是经过严格的KYC，是可靠的投资人，众多信用投资者将乐意与他们合作，其信用价值不可估量。
 
+其次，喜币可靠。喜币是众多虚拟币中唯一锚定黄金、去中心化、自由流通、中心化管理的币种，它的价值得到保证，随时可以转成喜美元，许多人将以拥有喜币为荣。
 
-#### 编译：小红帽
+最后，喜支付好用。拥有喜账户电子钱包的人，将可以随时随地互相秒转，不再受地方银行的限制。如今喜美元已有第一家商户开通了支付功能，喜币上市之后，开通喜支付的商家数量将超出想象。
 
-如果澳大利亚跟随美国的步伐，澳大利亚400万5至11岁的儿童可能会在2021年底之前接种辉瑞公司的中共病毒（Covid-19）疫苗。
+新中国联邦人正在打开喜联储大门，喜迎八方客人。
 
-10月29日，美国联邦药物管理局批准辉瑞的mRNA疫苗在美国5至11岁儿童中紧急使用。如果本周召开会议的美国疾病控制中心推荐，该疫苗将立即用于美国2800万名5至11岁符合条件的儿童使用。
+文字版原文：[新中国联邦的三大优势：有信仰、有人才、有货币](https://gnews.org/zh-hans/1631719/)
 
-辉瑞于10月26日向澳大利亚治疗用品管理局 (TGA) 提供了有关5至11岁儿童疫苗的初步数据。在第二天卫生部长的新闻发布会上，澳大利亚治疗用品管理局负责人约翰·斯凯里特（John Skerritt）教授表示：“批准用于5至11岁儿童的疫苗需要几周时间，但我希望能在11月底达成目标”。
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-许多国家已经开始为年幼的儿童接种中共病毒疫苗。例如，斯洛伐克于9月9日为5至11岁的弱势儿童启动了辉瑞疫苗接种计划。古巴一直在为2至10岁的儿童接种古巴开发的疫苗。自6月以来，中共国一直在使用科兴疫苗为3至17岁的弱势儿童接种，并将很快强制要求学生在学校接种疫苗。自9月以来，智利和柬埔寨也一直在为6至12岁的儿童接种疫苗。自8月以来，阿拉伯联合酋长国一直在向3至17岁的儿童提供国药集团的疫苗。
-
-**参考新闻：**[Australia may soon follow America in vaccinating children as young as five (msn.com)](https://www.msn.com/en-au/news/opinion/australia-may-soon-follow-america-in-vaccinating-children-as-young-as-five/ar-AAQdcms)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

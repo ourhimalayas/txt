@@ -2,36 +2,40 @@
 ---
 
 
-## 意大利政府首次向中共表达关切台海局势及新疆、香港人权问题
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1634864/)
+## 特朗普顾问彼得纳瓦罗在新书中提及郭文贵向美国预警新冠
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1635023/)
 
-作者：香草山农场 医疗部 – 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月31日，意大利外交部发布的新闻稿指出，G20会议期间，意大利外长迪马尤在29日与中共外长王毅会谈时明确表示，意大利政府很关切台湾海峡的紧张局势，希望两岸能以对话方式让情势和缓。
+作者：Peter Navarro
+翻译: HimaBoy
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Trump.jpg)
 
-此外，外长迪马尤「特别强调」意大利对新疆和香港人权问题的担忧，希望中共能和欧盟恢复有关人权问题的高级对话。
+在今天发布的彼得纳瓦罗的新书《特朗普时代：美国瘟疫年杂志》中第32页提及了郭文贵向美国预警新冠。原文翻译如下:
 
-意大利是被中共深度蓝金黄的国家，也是欧盟及G7中最早参与中共一带一路的国家，是中共眼中视为囊中之物的欧盟前进堡垒。有专家分析，这次意大利政府首次敢于公开发表对于台湾、新疆、香港等被中共视为大忌议题的看法，显示随着民意对中共的不满，意大利政府已经见风转舵，明确改变对中共言听计从的态度，慢慢转回到西方民主价值的阵营中。
+“仅在 4 天前，中国湖北省的卫星图像就出现了令人不安的烟雾信号。 中国主要城市武汉在规模上与纽约相媲美，引起了病毒式火灾，武汉的火葬场正在燃烧如此多的尸体，以至于棕色的烟雾笼罩着天空。 超过 500 万武汉人逃离了瘟疫之城，许多人带着病毒传播到世界其他地方。
 
-参考链接：
-1）[義大利政府首度向中國關切台海情勢 點名香港新疆人權遭壓迫](https://www.cna.com.tw/news/firstnews/202111010026.aspx)
-2）[曾簽一帶一路協議 義大利對中國態度冷卻](https://www.cna.com.tw/news/firstnews/202110010359.aspx)
+一周前，我一直在与史蒂文·班农以及史蒂夫的一位朋友和支持者、中国外籍亿万富翁和中共对手郭文贵谈论病毒的危险。 迈尔斯和史蒂文·哈特菲尔博士等专家警告我们，中国的麻烦不仅在路上。 正是由于没有旅行限制，病毒很可能已经在这里了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+郭根据他从敌后获得的情报，不排除这是中国进攻的可能性。 它的目的可能是扼杀香港的民主乃至破坏特朗普总统的连任。
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：谐趣园
+就他而言，一直处于领先地位的班农在两天前开始了一个名为作战室：大流行的新播客。 不幸的是世界卫生组织要到 3 月 11 日才会正式宣布大流行。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

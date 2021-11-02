@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/2/2021 10:09 PM (UTC)`
+
+11/1/2021 [HCoin To the Moon Celebration]: The notion of “Feng Xian” (sacrifice and contribute) is the biggest lie in history, and the Whistleblowers’ Movement has replaced “Feng Xian” with “Xian Feng” (heartfelt offering), which means I take actions and give you my selfless and sincere love. The Himalaya Coin is my heartfelt offering to all of our fellow fighters.<br/><br/>11/1/2021【HCoin To the Moon 庆典】：“奉献”是历史上最大的谎言，爆料革命把“奉献”改为“献奉” - 我行动，给你我无私的、真诚的爱，喜币是七哥给战友们的“献奉”<br/>
+![img](https://media.gettr.com/group25/getter/2021/11/02/22/09/02fef904-cea9-f58e-98fa-f921b762c8ee/out.jpg)
+
+---
+
 `@miles 11/2/2021 7:31 PM (UTC)`
 
 11月2日：真假之分……天地之别，可悲可恨的一群无知的中共国下三滥所谓的成功人士……
@@ -296,13 +303,6 @@ Pompeo: The CCP has the capacity and intent to do the real harm to the US. <br/>
 ![img](https://media.gettr.com/group37/origin/2021/10/30/16/50/edb53e2c-a2ac-5ca8-5176-c86ddb2a33b4/out.jpg)
 > `@himalayaukclub 10/30/2021 4:44 PM (UTC)`<br/>10月27日  法国巴黎<br/>人们在参议院外面举行抗议活动 #反对疫苗护照<br/><br/>October 27, Paris, France<br/>People gather outside the Senate building to protest against vaccine passports
 ![img](https://media.gettr.com/group37/origin/2021/10/30/16/44/52198d08-c7d5-b740-3566-befdfcf7701a/out.jpg)
-
----
-
-`@miles 10/30/2021 7:40 AM (UTC)`
-
-10/29/2021 Miles Guo: DWAC's document on the SPAC IPO reflect that 1) the company has no cash, and Bruno Wu and Patrick Orlando painted a rosy picture for President Trump; 2) DWAC has not yet found a real investor; and 3) DWAC will have trouble keeping their promises because it’s backed by the CCP<br/><br/>10/29/2021 文贵直播：DWAC的关于SPAC上市的文件说明：1) 该公司没现金，吴征和Patrick Orlando只是给川普总统画了个大饼；2) DWAC尚未找到真正的投资人；3) 由于其背后是中共，DWAC难以兑现其承诺<br/>
-![img](https://media.gettr.com/group38/getter/2021/10/30/07/40/114f39e9-8921-3c31-394d-26a21a01d670/out.jpg)
 
 ---
 

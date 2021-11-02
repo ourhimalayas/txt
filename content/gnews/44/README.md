@@ -2,18 +2,12 @@
 ---
 
 
-## 西媒头条 — 第100期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1634498/)
+## 许多公司都在试图将供应链多样化以避免过于依赖中共国
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1634540/)
 
-制作：蚂蚁兄弟
+10/27/2021 Tigress财务合作公司首席投资官和研究部主任Ivan Feinseth：全球半导体短缺影响到我们日常生活的方方面面，许多公司都在试图将供应链多样化以避免过于依赖中共国。
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/xm1102.001.jpeg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,36 +2,23 @@
 ---
 
 
-## 有声|酩悦香槟 (Moët)，一个普世成功的品牌
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1634603/)
+## 秘翻在线：全球因中共病毒而死亡的人数在两年内达到5百万
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1634665/)
 
-配音：香草山媒体部 – Gtv abeilles（蜜蜂）
+**翻译：  Evalu**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-02-223719.jpg)      图片来源：www.epochtimes.com
+美联社11月1日报道，全球因中共病毒疫情而死亡的人数在周一达到了5百万，这个不到两年的疫情不仅催毁了贫穷的国家，而且也让富裕国家的第一线医疗系统变得很窘迫。
 
-自公元496年法兰西人的第一个国王克洛维在香槟地区最中心的兰斯大教堂加冕以来，这里的葡萄酒一直作为加冕和洗礼神圣之用。香槟酒的酿制工艺是自古希腊、罗马几千年以来葡萄酒酿制工艺的一次突破。只有香槟地区产的葡萄汽酒才能叫香槟酒。
+无论是美国，欧盟，英国和巴西—-所有中上等收入国家或高收入国家—-占全球1/8的人口，而死亡数却达到了将近达到半数。单单美国死亡数就达到了74万5千人，高于任何其他国家。
 
-自1743年以来，克劳德·酩悦（Claud Moët）一直在创造着世界上最受赞赏的香槟酒。其1000公顷的葡萄园主要由顶级和特级葡萄园组成，是法国香槟地区最大和最有声望的庄园，其葡萄园的丰富性和多样性表现在Moët葡萄酒的公认质量上。
+一位在耶鲁公共卫生学院工作的感染科专家阿尔伯特·库博士说： “这是我们人生中的特殊时期，我们要做的就是保护我们自己不至于有另外500万生命的逝去。”
+据约翰霍普金斯大学统计显示，死亡总数相当于整个洛杉矶和旧金山合起来的总人口数，达到了全球自1950年以来历次各国间战争所致的死亡数，因中共病毒的死亡已经排在死亡原因中继心脏病和中风后的第三位。几乎可以肯定，很多在贫穷的国家如印度，人们因为没有足够的测试能力而死于家中，造成一些死亡人数未被统计在内。
 
-喜马拉雅币是最具突破性、唯一性、承前启后神奇性的代表新时代的币种，并兼具——美元（法币）**、**喜美元（代币）**、**喜币（虚拟币）**、**黄金（货币）——四币联合的属性。
+中共病毒疫情的热点区域已经从爆发地区转到世界各地，尤其是俄罗斯，乌克兰和东欧其他国家。哥伦比亚大学全球健康中心图像采集结接口主任瓦法·爱尔萨达博士说： “这次疫情的独特之处是它重击了高资源国家，这是中共病毒疫情很具讽刺意味的地方。” 因为富裕国家有更长的寿命预期，并有很大比例的老年人，癌症存活者，老人院居民，他们很容易受疫情伤害，而穷国有更多的孩子和年轻人，较少因染疫而发生严重病情。在美国，受疫情影响更重的是黑人和西班牙裔，因为他们相对于白人更趋于生活贫穷，不易于寻求健康照顾。
 
-喜币精神像作为特殊葡萄酒形象的香槟酒一样闪闪发光。而作为香槟酒之最的酩悦香槟 (Moët)更能见证稀有喜币上市的这一难忘历史时刻——**格林威治时间2021年11月1日11时11分！HCOIN TO THE MOON !**
-
-文字版原文：[酩悦香槟 (Moët)，一个普世成功的品牌](https://gnews.org/zh-hans/1631633/)
-
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+**新闻来源：** [COVID-19′s global death toll tops 5 million in under 2 years](https://apnews.com/article/coronavirus-pandemic-africa-health-pandemics-infectious-diseases-838421260675827b7e735729b90ff95f)
 
  
 
