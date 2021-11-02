@@ -2,65 +2,32 @@
 ---
 
 
-## 参议员瑞克·斯科特：在谭德塞的“领导”下,世卫组织沦为共产主义中国 的傀儡，让全球健康危机失控
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1633936/)
+## 有声|中共新法：孩子“犯事”，家长“连坐”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1634006/)
 
-参议员瑞克·斯科特： 拜登在全球舞台上的又一次失败。在谭德塞的“领导”下，世卫组织沦为 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的傀儡，让全球健康危机失控。拜登未能提名一位能革新的候选人不容忽视。 【附路透社报道：谭德赛成为世卫组织主席的唯一提名人】
+配音：香草山美食部 – 玫瑰园
 
+10月19日至23日，中共“橡皮图章” 立法机构人大第13届常委会第31次会议在北京举行，当中，中共人大将对《家庭教育促进法》草案进行第三次审议。
 
+据悉，该法规定，家长若不履行或不正确履行家庭教育责任，将承担相应的法律后果。此外，当中还规定，公、检、法一旦发现未成年人存在严重不良行为或犯罪行为，可强令家长接受家庭教育指导并对家长进行训诫，甚至可被视为“同犯”。
 
-> Another failure from Biden on the global stage. Under Tedros’ “leadership”, the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) has become a puppet for Communist China & allowed a global health crisis to spiral out of control. Biden’s failure to nominate a reformer candidate can’t be overlooked. [https://t.co/Cu3Ln37oLs](https://t.co/Cu3Ln37oLs)
-> — Rick Scott (@SenRickScott) [November 1, 2021](https://twitter.com/SenRickScott/status/1455252097784549379?ref_src=twsrc%5Etfw)
+目前，中共正在打击他们定义的西方文化“精神鸦片”——网络游戏、 崇拜好莱坞明星、流行音乐等不推崇所谓“正确价值观”的“娘炮”行为。而今，他们又推出这个以“戒瘾”为核心的青少年文化全面整顿倡议，为当局处理那些鼓励孩子违背中共的“正确价值观”行为的家长提供法律依据。
 
+中共党员，尤其是其司法系统官员的严重不良行为和犯罪率都远远高于中共国的未成年人，那么，中共党魁及各部门领导是不是也需要对其下属的犯罪行为负责并连坐呢？
 
+文字版原文：[中共新法：孩子“犯事”，家长“连坐”](https://gnews.org/zh-hans/1631915/)
 
-参议员兰德·保罗： 伟大文章，关于蝠奇在 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 大流行期间所犯的错。 在大科技审查它之前阅读，并记得每天查看[http://LibertyTree.com](https://t.co/4oUVScf896?amp=1)以获取未经审查的自由新闻。
+音频处理：喜山必胜Maverick
 
-
-
-> Great article on Fauci’s failures during pandemic.   
-> 
-> Read it before big tech censors it, and remember to check [https://t.co/ZFP9Lcyg7d](https://t.co/ZFP9Lcyg7d) daily for uncensored liberty news. [https://t.co/GBhy9VoUZk](https://t.co/GBhy9VoUZk)
-> — Senator Rand Paul (@RandPaul) [November 2, 2021](https://twitter.com/RandPaul/status/1455329277583441921?ref_src=twsrc%5Etfw)
-
-
-
-前副国务卿基思·克拉奇： 在世界各国领导人齐聚格拉斯哥应对气候变化之际，让我们记住，没有比 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 更大的环境威胁了。它对空气，陆地和水域的攻击仅次于对自由的攻击。 #26届气候变迁大会#COP26 [#TogetherForOurPlanet](https://twitter.com/hashtag/TogetherForOurPlanet?src=hashtag_click) 【附图片：[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对空气，陆地和水域造成的各项污染】
-
-
-
-> As world leaders are gathered in Glasgow to address climate change, let's remember that there's no bigger threat to the environment than the Chinese Communist Party. Its assault on air, land, and water is second only to its assault on freedom. [#COP26](https://twitter.com/hashtag/COP26?src=hash&amp;ref_src=twsrc%5Etfw) [#TogetherForOurPlanet](https://twitter.com/hashtag/TogetherForOurPlanet?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/IcZBDWPCD4](https://t.co/IcZBDWPCD4)
-> — Keith J. Krach (@KeithJKrach) [November 1, 2021](https://twitter.com/KeithJKrach/status/1455253474560647180?ref_src=twsrc%5Etfw)
-
-
-
-美国国务院： COVID-19 大流行给我们所有人带来了前所未有的挑战。共同战胜这场大流行病显示了美台联系的力量。
-
-
-
-> The COVID-19 pandemic has posed unprecedented challenges for all of us. Working together to defeat this pandemic shows the strength of the United States-Taiwan relationship. [pic.twitter.com/ZewU6e0Q1j](https://t.co/ZewU6e0Q1j)
-> — Department of State (@StateDept) [November 1, 2021](https://twitter.com/StateDept/status/1455225624159793158?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·沃尔兹: 黑石正在资助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的军事建设。未来的美国士兵将面临由拉里·芬克购买给 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的军事装备。
-
-
-
-> BlackRock is funding the Chinese military buildup. Future American soldiers will face CCP military equipment bought by Larry Fink. [https://t.co/QmGwJfIf44](https://t.co/QmGwJfIf44)
-> — Rep. Mike Waltz (@michaelgwaltz) [October 31, 2021](https://twitter.com/michaelgwaltz/status/1454846789224484879?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·沃尔兹: 我对伊内斯·坎特(Enes Kanter)的道德勇气赞不绝口，并大声疾呼，谴责NBA,耐克,奥运会和左派的虚伪，他们在国内宣扬“社会正义”的同时却对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的种族灭绝视而不见。 【附相关视频：批判美国很多人为了钱而放弃道德底线，跪舔 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)】
-
-
-
-> I can't praise Enes Kanter enough for having moral courage & calling out the hypocrisy of the NBA, Nike, the Olympics & the Left who are overlooking genocide in China while preaching “social justice” at home. [pic.twitter.com/1rDJYGliWF](https://t.co/1rDJYGliWF)
-> — Rep. Mike Waltz (@michaelgwaltz) [October 31, 2021](https://twitter.com/michaelgwaltz/status/1454898971579715585?ref_src=twsrc%5Etfw)
-
-
-
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

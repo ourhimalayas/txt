@@ -2,46 +2,24 @@
 ---
 
 
-## 埃隆·马斯克就虐待儿童性丑闻挑战联合国
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1634100/)
+## 中共病毒，导致日本女性自杀人数大幅增加
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1634165/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-4.png)[图片来源](https://news.yahoo.co.jp/articles/182bbb224a56e05b1c99a93b4a662ba4d28192aa/images/000)
+朝日新闻11月2日报道，2020年女性自杀人数为7026人，比上年增加935人（15.4%）。在男性自杀人数略有减少的同时，女性自杀人数在大幅增加，这是时隔11年全国自杀人数首次上升。2日，政府在内阁会议上分析了21年版的自杀对策白皮书，中共病毒把职业女性逼到了绝境。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Peacekeepers-UN-627783.jpg)
+白皮书调查了中共病毒对女性的影响，数据显示，职业女性的自杀人数有所增加。按职业分类，增幅最大的是被雇佣者，增加了381人；其次是学生，增加了140人。相反，“其他无业者”减少了98人，“家庭主妇”减少了70人，“工作问题”比过去五年的平均水平增加了 34.8%。
 
+受疫情影响，就业环境恶化，非正规就业女性比例上升。厚生劳动省表示，中共病毒导致的就业环境变化，是自杀者增加的重要原因。接下来疫苗灾难导致的全面经济危机，又会使该情况恶化到何种程度。
 
+信息来源：
 
-图片来源：express.co.uk
+[女性の自殺15%増、7千人　非正規拡大が一因　全体は11年ぶり増](https://news.yahoo.co.jp/articles/2e7e3d914ea3139a3f729b01fea06808c094b704)
 
-
-#### 编译：小红帽
-
-在推特（Twitter）上就巨额资金能否解决世界饥饿问题展开辩论时，特斯拉创始人埃隆·马斯克（Elon Musk）就联合国儿童性虐待丑闻向联合国提出挑战。
-
-媒体对这一问题的大部分报道都围绕着马斯克对联合国世界粮食计划署主任大卫·比斯利（David Beasley）的回应上，比斯利上周告诉美国有线电视新闻网（CNN），马斯克的60亿美元捐款可以拯救4200万人,“如果我们不帮助他们，他们就会死”。
-
-马斯克反问比斯利：“这里发生了什么？”以及同时还发布一篇标题为“饥饿的儿童”年仅九岁就被迫向联合国官员口交以获得食物的文章[链接](https://www.express.co.uk/news/world/627783/Starving-children-as-young-as-NINE-forced-to-give-UN-officials-oral-sex-to-get-food/amp)。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/01.png)图片来源：推特
-
-
-这篇文章详细介绍了一份报告，揭露了联合国维和人员如何在中非共和国“口交和肛交”儿童，以及联合国儿童基金会的高级官员如何无视这一丑闻，显然是为了掩盖事实。
-
-“该报告在2015 年发表”，其结论是：“在联合国当局得知性虐待指控后一年半多之后，没有人被逮捕。”
-
-大多数关于推特交流的媒体报道甚至没有提到马斯克就虐待儿童的性丑闻向比斯利提出质疑。
-
-**参考新闻：**[Elon Musk Challenges UN Over Child Abuse Sex Scandal (humansarefree.com)](https://humansarefree.com/2021/11/elon-musk-challenges-un-over-child-abuse-sex-scandal.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

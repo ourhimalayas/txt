@@ -2,43 +2,38 @@
 ---
 
 
-## 拒绝接种疫苗被解雇，澳洲人热衷社交媒体上寻找工作
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1633804/)
+## 一法官叫停芝加哥警察的疫苗强制令
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1633926/)
 
-#### **编译报导：文泓**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5825.jpg)**图片来源：HR DailyAdvisor & ITV News**
-因拒绝强制疫苗接种令而失业的澳大利亚人，正在使用社交媒体在未执行新规定的工作场所寻找和分享就业机会。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-在澳洲各州和领地都实施了涵盖医疗卫生和护理人员、教师和警察以及建筑和酒店工作人员等一系列行业的强制疫苗授权后，Telegram和Facebook涌入了大量寻找有偿工作的人。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/C.jpg)foxnews.com
+《福克斯新闻》发表文章，题目“法官下令终止芝加哥疫苗强制的最后期限，站在了警察联盟一边”，副标题称，该命令只适用于“芝加哥警察兄弟会”（the Chicago Fraternal Order of Police）的成员。
 
-在一些招聘网站上，一些乐于接受未接种疫苗的企业宣传“欢迎所有人”。
+全文如下：
 
-人数最多的未接种疫苗求职者群体中有20,000人，其中包括美容治疗师、儿童保育员、残疾支持人员和会计师。
+伊利诺伊州的一名法官批准了一项临时限制令，禁止对芝加哥警察实施强制疫苗接种，支持“芝加哥警察兄弟会”。
 
-阿什是一位电工，拒绝接种疫苗，让他失去了拥有20年的职业生涯。
+库克（Cook）郡法官雷蒙德·米切尔（Raymond Mitchell）周一（11月1日）宣布了一份书面决定，该市仍然可以将不遵守市政府令的警察置于无薪状态，在10月15日前报告他们的疫苗接种情况。然而，该命令阻止了市政府解雇未在12月31日最后期限前完成疫苗接种的警察兄弟会成员，直到警察兄弟会的论点被仲裁人听取。
 
-朱利安·梅尔文失去了园艺师的工作，一直在筛选招聘广告，因为他无法接种疫苗，他现在主要是打零工。
+该命令只适用于警察兄弟会成员，不适用于该市别的工作人员。
 
-史蒂夫经营一家公司，他一直在一个不需要员工或客户接种疫苗的企业名录上为他的公司做广告。
+米切尔在命令中写道：“该市的律师在口头辩论中建议，在2021年12月31日之前对申诉进行仲裁是可能的，但这是双方之间需要解决的问题。因此，保护工会获得有意义仲裁的权利的唯一补救办法是继续遵守12月31日的疫苗接种要求，直到仲裁完成。”
 
-“我不反对疫苗，我反对让我这样做的人”，史蒂夫说：“我不喜欢有人被迫这样做。”
+上周，芝加哥警察兄弟会已经申请了一项限制令，以强制对此事进行仲裁。该工会主席约翰·卡坦扎拉（John Catanzara Jr.）当时说：“我们只是要求这位法官迫使该市停止他们的政策，让警察重新工作，并迫使该市回到谈判桌上仲裁。”
 
-一所律师事务所负责人安德鲁·道格拉斯表示，如果一个行业属于政府授权范围，则不可能对其提出挑战。但一些员工认为他们可以在家工作以避免不得不遵守。
+法官的裁决是在卡坦扎拉敦促工会成员反抗该市的疫苗强制令之后作出的。
 
-与此同时，越来越多的企业就如何实施自己的疫苗授权任务寻求建议，以避免失去客户。
+卡坦扎拉上个月在《福克斯与朋友》（Fox & Friends）节目中谈到芝加哥市长洛里·莱特福特（Lori Lightfoot）时说：“这位市长到现在一切都是独裁。她只是决定要这样做，就将其推广到整个城市的劳动力中。”
 
-维多利亚州工商会首席执行官保罗·格拉表示，现在疫苗授权最大的挑战之一是企业裁员的风险。
+（全文完）
 
-新闻链接：[Australians fired for refusing Covid vaccine search social media for ‘welcoming’ employers | Australia news | The Guardian](https://www.theguardian.com/australia-news/2021/nov/02/australians-fired-for-refusing-covid-vaccine-search-social-media-for-welcoming-employers)
+芝加哥是极左的城市，市长正在把城市加州化，加州正在中共化，出现卡坦扎拉这样的警察工会领袖，米切尔这样的法官实属不易，可见人们对疫苗强制政策的抵制。当人们更深刻地意识到，这是阴谋集团在作恶时，反抗的力度会更大。
 
-**发布：文泓**
+原文链接：
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://www.foxnews.com/us/judge-halts-chicago-vaccine-mandate-police-union](https://www.foxnews.com/us/judge-halts-chicago-vaccine-mandate-police-union)
 
  
 
