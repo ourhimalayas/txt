@@ -2,30 +2,18 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月02日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1634753/)
+## 新中国联邦加密数字货币-喜玛拉雅币成功隆重上市
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1634766/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO.jpg)
+撰稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2021/11/a.jpg)
+全球首家真正数字加密货币金融交易系统，总部位于巴哈马的新中国联邦喜马拉雅联储，于美东时间早上22时11分左右正式开市，并面向全球公开发行了其首批10亿枚加密数字货币-喜玛拉雅币。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV-2.png)
-文章仅代表作者本人观点，与Gnews无关
+尽管喜马拉雅币在本次公开上市交易之前，各界特别是金融界及加密数字货币行业都对投资该币市场讳莫如深，但由于喜币与美元直接挂钩和等值互换，并铆定20%黄金作为其价值保障储备，以及已获得了包括美国等各主要金融国家在内的公开上市交易牌照和经营许可，因此喜玛拉雅币的市场发展前景被业界一致高度看好。
 
-视频参看：2021.11.02早GTV新闻访谈
+不出意料，喜币在刚刚开盘就达到了0.478美元的单价，并一度快速攀升至7.856美元单价的高位。截至发稿之时，喜币的单价为8.107美元，涨幅达2602.33%，成交量为7577212.848枚，并仍处在不断继续攀高之势中。
 
-[https://gtv.org/broadcast/watch/61812ebb11d18629680073ec](https://gtv.org/broadcast/watch/61812ebb11d18629680073ec)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+由于喜联储及喜币与生俱来的正道主意核心价值，相信它必将能真正成为给全人类带来光明，希望，正义，安全，能力和财富的独立金融平台和自由诺亚方舟。
 
  
 
