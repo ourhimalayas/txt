@@ -15,128 +15,128 @@
 
 ---
 
-### [墙内要闻汇编 11月2日](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [福奇是如何愚弄美国的？](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [秘翻在线：伊维菌素让日本新冠疫情得到有力缓解](/content/gnews/3/README.md)
+### [秘翻在线:亚马逊对“加密货币”愈来愈有兴趣](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本众院选举速报：当选女性议员45人，占总数的9.7%](/content/gnews/4/README.md)
+### [DC大中华时事：中共部署今冬明春蔬菜等生活必需品市场保供稳价工作](/content/gnews/2/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [不畏强权的勇者](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本众院选举快讯：立民党党首枝野因选举失利有意引咎辞职](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [印尼政府释放“伊维菌素”和“疫苗”的政治游戏](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共商务部部署蔬菜等必需品市场保供稳价工作](/content/gnews/7/README.md)
- ` 儒为`
-
-### [文·贵天成——文贵先生谈“吴征、杨澜”（十）](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
-
-### [IBAC将调查维州工党滥用公共资源的腐败行为](/content/gnews/9/README.md)
- ` 走进澳洲`
-
-### [文·贵天成——文贵先生谈“吴征、杨澜”（九）](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
-
-### [澳媒报道中共开始打击娘炮运动](/content/gnews/11/README.md)
- ` 澳喜农场`
-
-### [谈谈对文贵先生号召大家发财之后“孝为先”的个人认识](/content/gnews/12/README.md)
- ` 澳喜农场`
-
-### [（原创小说）参加选美的丑女 – 2](/content/gnews/13/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [喜币上市 扬帆起航 刚刚开始 未来可期](/content/gnews/14/README.md)
- ` 澳喜农场`
-
-### [危言耸听！COP26失败等于宣布小岛国和发展中国家死刑](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [纽约市继续强迫市雇员接种毒疫苗](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共超限战灭港行动（八十三）七二一·恐袭事件之谁主真相](/content/gnews/17/README.md)
- ` 英喜-粵語組`
-
-### [日本众院选举快讯：前文科相林芳正或接任茂木担任外相](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [从一个老战友角度认识文贵先生谈大家致富后“继续灭共”](/content/gnews/19/README.md)
- ` 澳喜农场`
-
-### [中共国免税龙头中免集团闪崩跌停 市值已蒸发近3000亿](/content/gnews/20/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共证实欧盟等32国取消对中贸易优惠待遇](/content/gnews/21/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共鼓励群众储备应急物资为哪般？](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [“疫苗・检测包”试验，日本全国逐渐推广](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [外媒报道日本执政党对中共的强硬姿态赢得年轻投票者](/content/gnews/24/README.md)
- ` 澳喜农场`
-
-### [中共病毒，导致日本女性自杀人数大幅增加](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [视频| 起飞](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [澳大利亚很快跟随美国为5至11岁的儿童接种疫苗](/content/gnews/27/README.md)
- ` 走进澳洲`
-
-### [美国可口可乐公司:&#8221;接种疫苗后可获得230万韩元的奖金&#8221;](/content/gnews/28/README.md)
+### [七星照币](/content/gnews/4/README.md)
  ` 首尔天池农场`
 
-### [美媒提出质疑“与中共国做生意值得吗？”深度讨论（5）](/content/gnews/29/README.md)
- ` 澳喜农场`
+### [疫苗护照计划毫无用处，并且是对公民权利的大规模侵犯](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美媒提出质疑“与中共国做生意值得吗？”深度讨论（4）](/content/gnews/30/README.md)
- ` 澳喜农场`
+### [参议员兰德·保罗呼吁解雇福奇，因为他一直在欺骗公众](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [埃隆·马斯克就虐待儿童性丑闻挑战联合国](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
+### [佛罗里达州就强制联邦承包商执行疫苗令而起诉拜登政府](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [英国银行CEO涉杰弗里·爱泼斯坦案被调查后辞职](/content/gnews/32/README.md)
- ` 墨尔本雅典娜农场`
+### [数十万冠状病毒疫苗受伤被积压未能进入 VAERS](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [11月1日喜币上市大直播概要](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
+### [币圈新闻动态：HCN正式上市交易](/content/gnews/9/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [美国财长耶伦表示目前对中共国关税不变](/content/gnews/34/README.md)
+### [墙内要闻汇编 11月2日](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/1/2021【HCoin To the Moon 庆典】：我们既支持蓬培奥也支持川普竞选美国总统](/content/gnews/35/README.md)
- ` 秘密翻译组-北美组`
+### [福奇是如何愚弄美国的？](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|多达1.2万名美国空军人员拒绝接种新冠疫苗](/content/gnews/36/README.md)
- ` MOSREC`
+### [秘翻在线：伊维菌素让日本新冠疫情得到有力缓解](/content/gnews/12/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [有声|中共新法：孩子“犯事”，家长“连坐”](/content/gnews/37/README.md)
- ` MOSREC`
-
-### [中共国实施《个人信息保护法》 数据隐私“安全锁”？](/content/gnews/38/README.md)
+### [日本众院选举速报：当选女性议员45人，占总数的9.7%](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [昆士兰州4000名未接种疫苗的卫生工作者被停薪留职](/content/gnews/39/README.md)
+### [日本众院选举快讯：立民党党首枝野因选举失利有意引咎辞职](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [印尼政府释放“伊维菌素”和“疫苗”的政治游戏](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共商务部部署蔬菜等必需品市场保供稳价工作](/content/gnews/16/README.md)
+ ` 儒为`
+
+### [文·贵天成——文贵先生谈“吴征、杨澜”（十）](/content/gnews/17/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [IBAC将调查维州工党滥用公共资源的腐败行为](/content/gnews/18/README.md)
  ` 走进澳洲`
 
-### [11/1/2021【HCoin To the Moon 庆典】：列支敦士登因投资喜联储而果断跟中共脱钩](/content/gnews/40/README.md)
+### [文·贵天成——文贵先生谈“吴征、杨澜”（九）](/content/gnews/19/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [澳媒报道中共开始打击娘炮运动](/content/gnews/20/README.md)
+ ` 澳喜农场`
+
+### [谈谈对文贵先生号召大家发财之后“孝为先”的个人认识](/content/gnews/21/README.md)
+ ` 澳喜农场`
+
+### [（原创小说）参加选美的丑女 – 2](/content/gnews/22/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [喜币上市 扬帆起航 刚刚开始 未来可期](/content/gnews/23/README.md)
+ ` 澳喜农场`
+
+### [危言耸听！COP26失败等于宣布小岛国和发展中国家死刑](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [纽约市继续强迫市雇员接种毒疫苗](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共超限战灭港行动（八十三）七二一·恐袭事件之谁主真相](/content/gnews/26/README.md)
+ ` 英喜-粵語組`
+
+### [日本众院选举快讯：前文科相林芳正或接任茂木担任外相](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [从一个老战友角度认识文贵先生谈大家致富后“继续灭共”](/content/gnews/28/README.md)
+ ` 澳喜农场`
+
+### [中共国免税龙头中免集团闪崩跌停 市值已蒸发近3000亿](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共证实欧盟等32国取消对中贸易优惠待遇](/content/gnews/30/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [视频| 起飞](/content/gnews/31/README.md)
+ ` MOSREC`
+
+### [澳大利亚很快跟随美国为5至11岁的儿童接种疫苗](/content/gnews/32/README.md)
+ ` 走进澳洲`
+
+### [美媒提出质疑“与中共国做生意值得吗？”深度讨论（5）](/content/gnews/33/README.md)
+ ` 澳喜农场`
+
+### [美媒提出质疑“与中共国做生意值得吗？”深度讨论（4）](/content/gnews/34/README.md)
+ ` 澳喜农场`
+
+### [英国银行CEO涉杰弗里·爱泼斯坦案被调查后辞职](/content/gnews/35/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [11月1日喜币上市大直播概要](/content/gnews/36/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国财长耶伦表示目前对中共国关税不变](/content/gnews/37/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [11/1/2021【HCoin To the Moon 庆典】：我们既支持蓬培奥也支持川普竞选美国总统](/content/gnews/38/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|日本将限制中共国留学生涉猎安保敏感技术](/content/gnews/41/README.md)
+### [有声|多达1.2万名美国空军人员拒绝接种新冠疫苗](/content/gnews/39/README.md)
  ` MOSREC`
+
+### [中共国实施《个人信息保护法》 数据隐私“安全锁”？](/content/gnews/40/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [昆士兰州4000名未接种疫苗的卫生工作者被停薪留职](/content/gnews/41/README.md)
+ ` 走进澳洲`
 
 ### [中国男子网络发狗子表情包，警察觉得受到侮辱将其行政拘留九日](/content/gnews/42/README.md)
  ` 首尔天池农场`

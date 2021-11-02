@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/2/2021 12:53 PM (UTC)`
+
+11月2号：共产党想干啥了，真的在往福建方向布兵吗？真想咋活咋活。
+![img](https://media.gettr.com/group16/getter/2021/11/02/12/53/027f5bc4-5bb5-78a7-e8ab-b5e1a4476266/out.jpg)
+
+---
+
 `@miles 11/2/2021 10:59 AM (UTC)`
 
 11/1/2021 【HCoin To the Moon Celebration】HCoin will become the universally recognized force for defending justice and have a bright future<br/><br/>11/1/2021 【HCoin to The Moon庆典】喜币会成为人类上大家共同认可的捍卫正义的力量，并将越走越远。<br/>
@@ -292,13 +299,6 @@ Pompeo: The CCP has the capacity and intent to do the real harm to the US. <br/>
 `@liujz 10/30/2021 12:55 AM (UTC)`
 
 七哥创造了一个无国界、无边际的安全的金额流通体系
-
----
-
-`@miles 10/30/2021 12:41 AM (UTC)`
-
-10月29日：尊敬的战友们好！这样的解读我直播说的话：是完全错误的，没有基本的金融常识，也是不了解喜联储金融系统的结果。任何人只要通过喜美元帐号KYC以后…可以在喜美元自己的帐号里面合法的购买无限的喜美元，这些喜美元随时可以兑换成美元现金，及HPAY合法可以支付的交易．这不等同于你一定会买喜币。<br/><br/>【文贵大直播爆料：战友机构投资者，用40亿购买了4千万喜币。大家算算，机构持有喜币成本是100美元一个，那么星期一喜币上市该多少钱？】
-![img](https://media.gettr.com/group17/getter/2021/10/30/00/a4960ada-363c-dba1-baff-9ceca65cbc5c/e896ca286429452ff82bd96419dc310a.jpg)
 
 ---
 
