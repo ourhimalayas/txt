@@ -2,15 +2,10 @@
 ---
 
 
-## 喜币上市（11/1/2021) 庆典大直播简报
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1635224/)
+## 11/2/2021 文贵盖特: 张高丽玩彭帅，中共老杂毛全都是玩幼女
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1635321/)
 
-简报制作：艾伦
-焦点采稿：秘翻原创组
-![](https://assets.gnews.org/wp-content/uploads/2021/11/喜币上市1.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/喜币上市2.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/喜币上市3.png)
-参考链接：https://gtv.org/video/id=618052ba11d1862968ffaa0d
-
-发布：Shifter
+秘密翻译组-北美组
 
  
 

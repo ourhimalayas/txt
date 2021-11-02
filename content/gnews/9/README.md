@@ -2,28 +2,41 @@
 ---
 
 
-## 日本前国会议员质疑入境隔离承诺书
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1635168/)
+## 拜登在格拉斯哥峰会上称，气候变化是“生存威胁”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1635259/)
 
-#### 撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-6.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Famd-pctr.c.yimg.jp%2Fr%2Fiwiz-amd%2F20211014-03720124-tospoweb-000-6-view.jpg%3Fw%3D640%26h%3D585%26q%3D90%26exp%3D10800%26pri%3Dl&amp;imgrefurl=https%3A%2F%2Fnews.yahoo.co.jp%2Farticles%2Fac78b641111076830f78fd381ffe387e76bf22d6&amp;tbnid=7RvjEwDb-qP1cM&amp;vet=12ahUKEwi6ofuSivrzAhXhGDQIHajpA9IQMygIegUIARCmAQ..i&amp;docid=vtZFIunsY2NweM&amp;w=640&amp;h=585&amp;q=%E5%B1%B1%E5%B0%BE%E5%BF%97%E6%A1%9C%E9%87%8C&amp;hl=zh-CN&amp;ved=2ahUKEwi6ofuSivrzAhXhGDQIHajpA9IQMygIegUIARCmAQ#imgrc=7RvjEwDb-qP1cM&amp;imgdii=vFk88jIQz6x8FM)
-前众议院议员山尾志樱里（47岁）2日更新了她的推特。上个月31日我从意大利参加国际会议回来时，依据所谓的对抗中共病毒的对策，我被要求提交一份“承诺书”。
+【简评：】*今年COP26联合国世界气候峰会的目标是：1. 到21世纪中叶确保全球净零碳排放，保持 1.5 °C 升温目标； 2. 适应气候变化，全球共同努力帮助受气候变化影响的国家,尽可能保护和恢复生态系统,保护生命和家园；3. 实现净零碳排放所需要的大量资金支持；4. 加强各国政府、企业和民间的合作。要做到这4点不容易。爱护环境，爱护大自然，减少砍伐，减少污染，是每个人的责任，我们要从自己做起，爱护我们的家园 —— 地球。*
 
-山尾前议员上传了她写的“承诺书”的图片。本来，需要向厚生劳动大臣和法务大臣做出承诺，并签字，保证遵守相关防止感染的规定事项。但此位前议员在签名一栏外写道，“我认为没有义务向政府承诺。但是，我会遵守这些条款并采取措施防止感染”，后予以提交。
+据《华盛顿考察》作者：Jeremy Beaman，2021年11月1日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-26-e1635892258179.png)图片来源：《华盛顿考察》视频
+美国总统乔·拜登周一在格拉斯哥峰会上称，气候变化是“我们一生的共同挑战”，并夸耀其政府的努力。
 
-入境手续好像也没有问题，“没有问任何问题，手续完成了。承诺有什么用？不做承诺就提交看来也可以？”她说，“无论是承诺不使用公共交通工具还是自我隔离 14 天，如果确实有必要，都应该通过法律来证明其合理性。”
+**拜登在联合国COP26气候大会上向世界各国领导人发表讲话，他将不断变化的气候描述为一种“生存威胁”，并敦促采取重大行动，使各国免受其影响。**
 
-山尾前议员没有参加31日的众议院选举。 宣布“不再参选国会议员”。
+拜登在谈到美国最近经历的极端天气时说：“世界上每个地区都可以讲述类似的故事。这场COVID大流行已经如此痛苦地清楚地表明，没有一个国家可以将自己与无国界的威胁隔离开来。我们知道，如果我们不能抓住这一势头，**我们没有人可以逃脱尚未到来的最糟糕的情况**。”
 
-如果普通民众也能有山尾议员些许的法律意识，也不会对政府的强制疫苗政策听之从之。凡事多问一个为什么，有没有合理性，也许一念之间，您将挽救您甚至所有家人的生命，而不是在不明疫苗成份为何物时，盲目接种，付出惨重代价，亦或在身体中种下一颗“定时炸弹”！真相就在眼前，希望所有人擦亮双眼，至少对政府所谓的政策有些许质疑，人类的命运也将彻底改写。
+拜登还讨论了“向2030年的短期冲刺”，他的政府寻求将美国的温室气体排放至少减少50%，以及达到净零碳排放的“马拉松”任务，他还注意到全球范围内的高能源价格，将其描述为“行动的呼吁”。
 
-信息源：
+他说：“我们不能把它作为放弃我们清洁能源目标的理由，而必须把它看作是对行动的呼吁。高额的能源价格只会加强使能源多样化的迫切需要，加倍努力开发清洁能源，并适应有前途的新清洁能源技术。”
 
-[新型コロナ水際対策の隔離誓約書「法的根拠ない」と山尾志桜里・元議員、事実上の入国素通りに問題提起](https://news.yahoo.co.jp/articles/19ac24a54254779ca668fbcecb19c65b405c842f)
+格拉斯哥峰会恰逢拜登努力通过国会提出1.75万亿美元的立法方案，该方案提出了约5550亿美元的资金，用于扩大可再生能源技术、电动汽车的使用和清洁生产，以支持政府的去碳化目标。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+白宫上周在拜登出访欧洲之前发布了其最新的立法框架，民主党人仍在解决立法中的分歧。
+
+原文连接：[https://www.washingtonexaminer.com/policy/biden-calls-climate-change-an-existential-threat-at-glasgow-summit](https://www.washingtonexaminer.com/policy/biden-calls-climate-change-an-existential-threat-at-glasgow-summit)
+
+（本文评论仅代表个人观点）
+
+翻译：洛杉矶盘古农场 – TrueSky
+
+评论/校编：洛杉矶盘古农场 – 明子
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

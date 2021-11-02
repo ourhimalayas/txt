@@ -2,36 +2,24 @@
 ---
 
 
-## Facebook前员工呼吁扎克伯格下台
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1635044/)
+## 台湾和日本还在貌似认真的探讨疫苗护照
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1635159/)
 
-**作者：日本东京方舟农场 海星**
+#### 撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-6.png)（图片源自本文链接）
+11月2日日本雅虎网站消息：据台北中央社报道，台日关系协会秘书长周学佑在2日的外交部例行记者会上表示，台湾和日本将就中共病毒疫苗护照的互认进行会谈。预计还将讨论承认台湾疫苗相关问题。
 
-11月1日，在葡萄牙首都里斯本举行的网络峰会上，曾向媒体披露大量内部文件的Facebook前员工弗朗西斯·豪根（Frances Haugen）强烈要求马克·扎克伯格(Mark Zuckerberg)卸任CEO的职位，原因是扎克伯格不是一个注重用户安全的领导人。
+据日本媒体报道，日本政府已经开始考虑放宽其病毒隔离防空措施。计划在本月底前，原则结束之前被暂停入境的的短期商业人士、外国学生和技术实习生入境日本。对此，周学佑说，日本政府还没有公布这方面的任何细节，他将和日本与台湾的联络机构–日本台湾交流协会保持密切联系。
 
-据《卫报》报道， 当豪根在峰会上被问及扎克伯格是否应该下台时，她非常肯定地回答：”是的。我认为，有一个愿意专注于用户安全的领导者，Facebook会更强大。” 她还强调，如果扎克伯格继续担任上周更名为Meta的Facebook公司的CEO，这家公司就不太可能会改变。
+同一天，主管中央传染病指挥中心的卫生部长陈时中在立法院全体会议前对媒体说，批准台湾制造商高端疫苗生物制剂生产的疫苗，预计也将被列入与日本会谈的议程。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-5.jpg)图片来源：https://www.theguardian.com/technology/2021/nov/01/mark-zuckerberg-should-quit-facebook-says-frances-haugen
+信息来源：
 
-豪根表示，虽然扎克伯格持有Facebook 54%的投票权股份，控制着公司的决策，地位难以动摇，但她认为股东至少有权利选择他们的CEO，因此她呼吁让其他人掌握主导权。
+[台湾、ワクチン証明の相互承認に向け日本と協議へ 国産ワクチンも議題に](https://news.yahoo.co.jp/articles/42e850afe2024385bafdceb38e1d765a4fc59b26)
 
-此外，豪根还批评了扎克伯格不先专注于修复安全问题，而是去重塑品牌概念的决定。豪根说，她向国会、监管机构和新闻界公布的文件清楚地表明，Facebook需要在基本安全系统上花费更多资金，而不是向虚拟现实领域扩张。 豪根此前对外公布的文件显示，Facebook明知旗下Instagram程序加剧了少女的心理健康问题并因此遭到指控；它还帮助煽动埃塞俄比亚的种族暴力；此外，Facebook自己的员工还对未能阻止1月6日国会山暴乱前的错误信息传播感到失望。
-
-*参考链接：*
-
-[Mark Zuckerberg should quit Facebook, says Frances Haugen](https://www.theguardian.com/technology/2021/nov/01/mark-zuckerberg-should-quit-facebook-says-frances-haugen)
-
-* * *
-
-
-```
-素材采编：海星
-编辑：青衣青青
-校对：小星星
-发布：Ranting
-```
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
