@@ -2,70 +2,185 @@
 ---
 
 
-## 中共国格力除湿机因未通报有安全隐患而被罚款9100 万美元
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1635339/)
+## 吴征利用SPAC把川普拿下，下一步人民币数字化
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1635435/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/110302-1.jpg)2021 年 8 月 16 日，在中共国湖北省武汉市爆发 COVID-19 疫情后，格力工厂的一名员工正在检控生产线上的电路板。（CD via Reuters）
-作者：Naveen Athrappully |2021年11月1日 更新：2021年11月1日
+[https://gtv.org/video/id=6180fc78adfd99590c32447f](https://gtv.org/video/id=6180fc78adfd99590c32447f)
 
-总部位于中共国的格力电器及其两家子公司，包括一家在美国的子公司，已同意支付 9100万美元，以解决因未向美国消费品安全委员会（CPSC）及时报告其有质量问题的除湿机可能着火的刑事指控。
+**郭文贵**
+**Miles Guo**
 
-根据法庭文件，在格力高管已经知道有缺陷的除湿机不符合适用的安全标准，有起火风险的情况下，该公司掩盖了信息并将报告推迟了数月。 随着消费者对火灾和相关损失的投诉增加，高管们最终被迫报告了这个问题。
+我今天给你们爆个料
+I’m going to break the news for you today
 
-格力电器总部位于中共国珠海，是全球最大的空调制造商，股票在深圳证券交易所交易。
+你知道
+You know
 
-63岁的格力首席执行官Charley Loh和66岁的格力美国首席行政官Simon Chu已被司法部起诉，罪名是根据《消费品安全法》（CPSA）提起的重罪指控和未及时通告的电汇欺诈。
+这个SPAC
+this SPAC stock,
 
-“没有人应该担心正确使用的消费品可能会导致亲人受伤或死亡”加州中区代理美国检察官Tracy L.Wilkison在新闻稿中说。
+上市之后
+after being listed on the market,
 
-“格力在报告其危险和有缺陷的除湿机已知问题方面长达数月的拖延既是犯罪行为又是代价高昂的。格力公司推迟报告其有缺陷的除湿机的决定导致了数百万产品被召回并支付了数百万美元。我们不会允许公司以牺牲消费者的健康和安全为代价获利”Wilkison补充道。
+我和一个政法委的
+I was talking with a political and legal committee,
 
-直到2013年9月，测试才上报并且产品才被召回。根据文件，延迟的原因是“秋季和冬季温度较低将有助于防止格力除湿机过热和着火，在2012年9月之后的6到9个月内，起火的可能性很低。”
+一个老领导
+a senior leader.
 
-2007年至2013年间，格力在该国以不同名称（包括Kenmore、GE和Frigidaire）销售了近200万台除湿机。
+我说你们这票干得漂亮是不是呀
+I said, “you had done an awesome job, isn’t it?”
 
-作为延期起诉协议（[DPA](https://www.justice.gov/opa/press-release/file/1445401/download)）的一部分，在2012年7月26日左右，首席执行官Loh看到了格力除湿机燃烧的视频。Loh立即将视频转发给了负责美国出口的格力香港总监，称该视频“光看就吓人”，“格力产品质量存在非常严重的问题”。
+挺高兴的
+“Very excited”
 
-后来经过测试发现产品会着火，Loh再次给香港总监发邮件说：“结果跟你说的不一样”，“结果显示所有样品都可以着火，显然材料不符合UL标准！我认为工厂没有告诉我们事实和真相。”
+是，北京一片欢腾啊
+“Yes, Beijing is having a great celebration”
 
-2013年3月14日，该公司向美国消费品安全委员会（CPSC）报告消费者投诉除湿机着火并损坏其财产的情况，但没有提及问题的原因是有缺陷的产品。此外，格力向零售商出售产品，并谎称除湿机符合所有行业标准。
+他说
+He said,
 
-在接下来的一个月里，一份独立的测试报告显示，除湿机使用的塑料劣质，不符合防火标准。
+所有的海外局
+“all overseas offices,
 
-根据认罪协议 ([pdf](https://www.justice.gov/opa/press-release/file/1445406/download))，“美国消费者因购买有缺陷和危险的格力除湿机而损失了至少1740万美元”，并在2012年9月至2013年4月期间“遭受了至少 210 万美元的财产损失”。
+国际合作局的人
+and the International Cooperation Bureau employees
 
-最后，2013年9月12日，格力宣布在美国主动召回220万台除湿机。然而此时，消费者已经报告了2000多起事故，其中450起火灾事故和超过1900万美元的财产损失。
+刚刚给我打完电话
+just hung up the phone with me,
 
-在2012年9月至2013年4月期间，格力能够从分销和批发中获得超过3900万美元的收益。 由于他们没有立即向美国消费品安全委员会（CPSC）报告，这笔款项被视为没收。
+说这次吴征啊立功了
+saying that Bruno Wu has done a meritorious service
 
-美国消费品安全委员会（CPSC）主席亚历克斯·霍恩-萨里克（Alex Hoehn-Saric）在新闻稿中说：“这一历史性的刑事执法行动应该表明，CPSC将充分利用其权力来保护美国家庭的安全。”“不报告危险产品会使消费者面临不必要的风险，并且不会被容忍。”
+把川普拿下
+by compromised Trump.
 
-格力首席执行官和美国首席行政官不认罪，并定于2022年3月15日在洛杉矶开庭审判。
+下一个目标
+The next target is
 
-**简评：**
+迈克·蓬佩奥
+Mike Pompeo”.
 
-在中共国的统治下，绝大多数的企业文化中没有“诚实”二字。一切都是以利益为先，面子为大。明知道犯了错也不愿意主动承担，只会想方设法蒙混过关，保全自己的利益。在中共国也许可以运用“关系”摆平，可是到了国际舞台，这一招不奏效了，因为一切都是靠事实和法律说话。
+我要跟蓬佩奥同志
+I need to see Comrade Pompeo in person,
 
-同时我们也可以看到，中共国内哪怕像格力这样的大企业，也没有把人放在最重要的位置。他们宁愿让消费者冒着生命安全的风险使用有瑕疵的产品，也不愿意在第一时间告知相关单位，主动承担利润的损失，避免更多灾难的发生。究其根源，这是在中国共产党的领导下导致人们对生命的漠视和法律的无视！
+面对面的好好谈谈这事儿
+Talk about this matter face to face
 
-原文链接：[China-Based Gree Electric Fined $91 Million for Failure to Report Dangerous Dehumidifiers](https://www.theepochtimes.com/china-based-gree-electric-fined-91-million-for-failure-to-report-dangerous-dehumidifiers_4078975.html)
+我上次告诉他
+I told him last time
 
-*翻译：Bruce Z#1641*
+我说你家里边
+I said that inside your house
 
-*校对：clau*
+你的电话绝对是被监听的
+your telephones were definitely tapped (by CCP),
 
-* * *
+我说我这电话
+so did my phone here
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+就当着共产党随时听着
+Just pretend that the Communist Party is listening anytime
 
+我从来没觉得它不听
+I have never sensed that they would not listen
 
-编辑：【英国伦敦喜庄园编辑部】
+我希望它都听到
+I hope they can hear all of them
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+最好别漏
+It’s better not to miss anything
 
+共产党下一个目标
+The Communist Party’s next goal
 
+就是世界的虚拟货币
+is the world’s virtual currency
+
+共产党
+The Communist Party
+
+现在，王毅所谓的出访
+currently, Wang Yi’s so-called visits
+
+你去看，阿尔巴尼亚
+You can take a look, Albania,
+
+塞尔维亚、卡塔尔、意大利
+Serbia, Qatar, Italy,
+
+希腊
+and Greece.
+
+说叫一带一路合作，
+Call the Belt and Road cooperation
+
+全是干啥去了？
+what have they all gone for?
+
+接受我人民币支付的
+to coordinating the RMB payment acceptive
+
+货币项下业务
+of business under currency.
+
+刚刚到红海
+(WangYi) just arrived the Red Sea
+
+秘密的见了沙特王子本·萨勒曼
+and met Saudi Prince Bin Salman secretly.
+
+继续推进
+and continued advance
+
+跟沙特的人民币项下的石油
+with Saudi Arabia’s oil business under the RMB Project.
+
+是沙特的立国之本
+(Oil) is the foundation of Saudi Arabia.
+
+和美国的，
+As far as the United States,
+
+后来跟美国签了一个长期共用
+later it signed a long-term sharing agreement with the United States
+
+最低油价
+the lowest oil price
+
+15美金一桶的油价，永不改变
+The price of $15 a barrel of oil will never change
+
+这是美国的利益所在
+This is America’s interests
+
+现在，共产党要把
+Currently, the Communist Party wants
+
+阿美石油变成自己的了
+to turn the Aramco oil business into its own.
+
+———————————————————
+
+**原视频链接**: [https://gettr.com/post/pfj822be03](https://gettr.com/post/pfj822be03)
+
+Date: 10/29/2021
+原视频标题: 
+Bruno Wu Took Advantage of SPAC and Compromised Trump; The Next Target Will be The RMB Digitization
+原视频日期：2021/10/27
+任务编号：KC218(2717)
+视频时间段 : 0:00-1:50
+
+英听校: 洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校: 洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

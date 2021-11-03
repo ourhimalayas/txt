@@ -2,25 +2,43 @@
 ---
 
 
-## 美国军医作证“新冠病毒疫苗”危害
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1635566/)
+## 营商环境具有挑战性，让雅虎永久退出中共国
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1635603/)
 
-原文采编：UCool优酷 编译撰稿：文所未闻
+#### 编译报导：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5823-2.jpg)图片来源：Financial Times & UPI
+近日雅虎表示，它已从中共国撤出其服务，理由是营商环境“越来越具有挑战性”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-7-edited.jpg)图片来源：CBC
+**关键点：**
 
+——此举是在微软将领英（LinkedIn）撤出中共国的几周后发生的；
 
-据自媒体《信息战》11月2日报道，因为担心美空军飞行员在飞行期间有心脏病发作等风险， 美军中校特蕾莎曾在九月份建议国防部让所有接种过“新冠病毒疫苗”的飞行员停止其飞行任务。该中校于当天就以上问题在参议院小组面前出席作证。
+——中共国已用自己的搜索引擎和社交媒体平台取代了选择离开的西方互联网公司；
 
-在其证词中，特蕾莎中校提及她目睹了很多以前身体健康的士兵在接种该疫苗的几周内，都出现了心脏病、垂体脑瘤、甲状腺功能障碍、偏头痛、月经不调等各种病症。甚至有在执行飞行任务过程中因为肺栓塞而突发死亡的案例。而这一切都似乎和接种“新冠病毒疫苗”有关联。
+——过去几年，雅虎大大缩减了其在中共国的业务；
 
-据悉，美国陆军上周宣布，现役士兵有大约三个月的时间来接种两剂该疫苗，否则将可能被军方开除。然而，许多现役军人都拒绝接种该疫苗，并且一些人已经因为军队苛刻的强制接种规定而被迫提前退役。
+——该公司是最近几周内第二个退出中共国的西方科技品牌。
 
-* * *
+雅虎公司在一份声明中说：“认识到中共国日益严峻的商业和法律环境，从11月1日起，中国大陆将不再提供雅虎的全套服务。”
 
-校对编辑，发稿：硫酸羟氯喹64
+上个月，微软拔掉了领英在中共国的插头，今天，标志着美国最后一个主要社交网络撤离了中共国。
 
-[原文链接：](https://www.infowars.com/posts/army-flight-surgeon-urges-pentagon-to-ground-pilots-who-took-covid-injection/)
+领英的理由是“中共国的营商环境更具挑战性，合规要求更高”。
+
+这些科技公司的离开，说明了互联网公司在一个巨大的潜在市场中正面临的选择，**中共国政府要求它们审查被视为政治敏感或不适当的内容和关键词。**
+
+取而代之的是，中共国公司填补了这一空白，正在创造了一个拥有自己的数字巨头的替代互联网。百度搜索引擎在很大程度上取代了雅虎和谷歌，而微信和微博是领先的社交媒体平台。
+
+新闻链接：[Yahoo leaves China for good, citing ‘challenging’ environment – ABC News](https://www.abc.net.au/news/2021-11-03/yahoo-pulls-out-of-china/100589476)
+
+发布：文泓
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
