@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/3/2021 12:02 AM (UTC)`
+
+11月2号：世界的大事儿都在发生中……每一件大事的发生都对中国共产党是致命的打击👊……在美国Miles <br/><br/>Virginia弗吉尼亚的选举将再一次的震撼世界．共产党的愚蠢的行动……永远是我们灭共的最好的工具和证据．共产党你完了！
+![img](https://media.gettr.com/group8/getter/2021/11/03/00/02/6de7d47d-65c4-a00d-278b-c033137f8b7a/574ce5217e7e0864d48b15f35d72114a.jpg)
+
+---
+
 `@miles 11/2/2021 11:17 PM (UTC)`
 
 11/2/2021 Miles Guo’s GETTR: Zhang Gaoli messes around with Peng Shuai, and all the CCP old kleptocrats sexually abuse virgins; Taking down the CCP is our central and the only goal; After the CCP is destroyed, we will establish the government of the New Federal State of China that has rule of law and religious freedom, and truly belongs to the people<br/><br/>11/2/2021 文贵盖特: 张高丽玩彭帅，中共老杂毛全都是玩幼女；灭共是我们的核心，唯一的目标，灭完共，建立一个有法治和信仰自由的、真正民天下的新中国联邦政权
@@ -289,14 +296,6 @@ Hcoin To The Moon <br/><br/>词：威廉王<br/>曲：唐平<br/>编曲： SFG<b
 
 10月30号：这可是大事……
 ![img](https://media.gettr.com/group47/getter/2021/10/30/17/37/3736242a-4d42-1491-bef5-4f76d5b84b3e/8a52d309f2fe7286dc2f51bc624ec17e.jpg)
-
----
-
-`@miles 10/30/2021 5:24 PM (UTC)`
-
-10月30号：太棒了👏👏👏👏👏
-> `@witchpeace 10/30/2021 5:17 PM (UTC)`<br/>
-![img](https://media.gettr.com/group25/getter/2021/10/30/17/5b159d74-281a-9d62-95e1-9d971c56c5c4/4cd4f9aff5f0982bbf3f88accd0fa0ab.jpg)
 
 ---
 
