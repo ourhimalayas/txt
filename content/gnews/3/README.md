@@ -2,47 +2,40 @@
 ---
 
 
-## 孟建柱王岐山张高丽和常委们玩处女玩11岁到17岁女孩
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1635652/)
+## Facebook关闭有争议的人脸识别程序，誓要删除超 10 亿个模板
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1635683/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/下载_副本.jpg)
-据[MILES GUO 直播 2021-11-02](https://gettr.com/streaming/pfv59d80a7)时间点03：20——
+#### 【**雅典娜快讯】，紧贴时事脉搏**
 
-兄弟姐妹们，大家都看到了，张高丽玩一个彭帅——10来岁的小姑娘，还跟人家谈恋爱，一个常委和10岁小女孩谈恋爱，讲哲学、讲政治、讲经济，我R他八辈祖宗了，你看那副德行，戴着假发，当年喊江泽民——江主席万岁！在泰山上，一下子行了，进常委了。那种腐败，是吧？中国人的悲哀啊！
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/google-facebook-new6-1920-800x450-1.jpg)
 
-我们明天继续直播，我们要请郝海东兄弟、钊颖妹妹谈谈常委怎么和一个10来岁的孩子谈恋爱的，咱们好好聊聊。
 
-（中间内容省略）**[MILES GUO 直播 2021-11-02](https://gettr.com/streaming/pfv59d80a7)**时间点15：00——
 
-张高丽跟彭帅谈恋爱，第一次发生性关系10岁左右，很多人很惊讶，七哥爆了四年料了，你惊讶啥呀？我跟你们说你们都觉得我胡扯，我有必要胡扯？我有儿子、有闺女，我有家有业的，我胡扯那我招我那个口障干什么呀？那些老杂毛儿玩儿11岁到17岁，他基本上是11岁、13岁、15岁，还不玩阴数，只玩单数，那吃阴枣那是正常的事儿，你看那张高丽那个德行，你看那样，哪个不玩啊？你告诉我有一个不玩的吗？不可能的，谁说谁不玩，咱就R他八辈儿祖宗，没有一个不玩的。
+图片来源：searchengineland.com
 
-悲哀的事情，红黄蓝幼儿园的事件有人查吗？孟建柱——孟建柱一天睡觉前不弄个处女孟建柱睡不着，王岐山要不玩个处女，他睡不着，这么多年，王岐山他就是觉得自己吃亏了，虽然有私生子女，他觉得跟姚明珊吃亏了，到处玩儿。
 
-那马明哲个王八蛋，那马明哲专门给他找处女，周亮现在还是人民银行纪委书记，哇塞，真搞笑，搞纪委的人全都是玩处女的，中国搞经济的张高丽喊江泽民万岁的，是吧？专完10岁的姑娘，还玩体育运动员。
+#### 编译：小红帽
 
-（以下暂略）
+脸书（Facebook）以对隐私和道德的“日益担忧”为由，宣布将停止使用人脸识别技术，并删除迄今为止从选择加入该计划的用户那里收集的超10亿个的个人模板。
 
-撰稿：喜马拉雅的肉夹馍；
+脸书人工智能副总裁杰罗姆·佩森蒂（Jerome Pesenti）周二表示，这一决定是“全公司范围内限制在我们产品中使用人脸识别的举措的一部分”。
 
-审核：喜马拉雅的馍夹肉；
+佩森蒂解释说，当该功能停止时，在“未来几周”的某个时候，超过10亿选择加入脸书用户的人脸识别模板将被删除，并且不会被自动识别。佩森蒂补充说，世界各地的当局仍在努力为该技术的使用提供明确的规则，脸书致力于“与领导这次讨论的民间社会团体和监管机构合作”。
 
-校对：Maarago；
+早在8月，韩国监管机构就对脸书进行了罚款，理由是脸书假定20万名用户同意该功能，并且不让他们选择退出人脸识别。今年初，在联邦法院裁定人脸识别功能违反了州隐私法后，这家硅谷巨头还被勒令向美国伊利诺伊州的160万用户支付6.5亿美元的集体诉讼赔偿金。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+为了回应最初于2015年提起的诉讼，脸书已在2019年禁用了自动人脸识别功能，并将其设为可选。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+**参考新闻：**[Facebook SHUTTING DOWN controversial face recognition program, vows to delete over a BILLION templates — RT World News](https://www.rt.com/news/539195-facebook-shuts-face-recognition/)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+***发布：小红帽***
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

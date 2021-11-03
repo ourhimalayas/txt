@@ -2,21 +2,25 @@
 ---
 
 
-## 雅典娜时报-第101期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1635516/)
+## 加拿大政府加快低龄儿童的疫苗接种计划
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1635555/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+采编：青青  编译撰稿：文明(添草灭共）
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-3.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-1.png)
-***发布：小红帽***
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-6-edited.jpg)图片来源：TNR
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+据加拿大媒体【CTV新闻】11月2日报道，继美国上周授权【辉瑞公司】“新冠病毒疫苗”可紧急用于低龄儿童后，加拿大开始制定针对幼儿的接种该疫苗的计划。
+
+【渥太华卫生委员会】在日前举行了讨论会，初步制定了针对加拿大5至11岁年龄段共计7.7万名儿童接种该疫苗的政策。预计这些儿童将在未来几周内获得接种资格。
+
+此前，辉瑞公司已正式要求【加拿大卫生部】批准使用其针对5至11岁儿童的“新冠病毒疫苗”。一旦正式获准，【渥太华公共卫生局】将迅速扩大该疫苗的推广规模。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://ottawa.ctvnews.ca/how-ottawa-public-health-plans-to-vaccinate-77-000-children-against-covid-19-1.5648174)
 
  
 
