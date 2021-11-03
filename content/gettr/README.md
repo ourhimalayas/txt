@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/3/2021 10:15 PM (UTC)`
+
+11/1/2021 【HCoin To the Moon Celebration】 The wealth of Himalaya  Reserve belongs to our grassroots people and don’t forget about our mission of taking down the CCP.<br/><br/>11/1/2021 【HCoin to The Moon庆典】喜联储的财富属于民天下，永远不要忘记我们的使命是消灭共产党<br/>
+![img](https://media.gettr.com/group9/getter/2021/11/03/22/15/595ed3c2-8480-a980-059e-d57599c1a0e3/out.jpg)
+
+---
+
 `@miles 11/3/2021 12:20 PM (UTC)`
 
 2021年11月3日 文贵大直播 常委张高丽恋幼女十几年  中共信仰缺失与心理变态   房地产债务违约与房产税   喜币上市到底意味着什么
@@ -289,13 +296,6 @@ Hcoin To The Moon <br/><br/>词：威廉王<br/>曲：唐平<br/>编曲： SFG<b
 
 10月30号：尊敬的战友们好，全世界都在．深呼吸的等待着两件事儿，共产党是否攻打台湾？喜币上市以后会是什么样的情况？
 ![img](https://media.gettr.com/group23/getter/2021/10/30/23/16/3a428f3f-8581-09a5-6d63-794f6ee8a0fe/out.jpg)
-
----
-
-`@miles 10/30/2021 9:47 PM (UTC)`
-
-拒绝强制疫苗接种的纽约市民正面临着生计威胁，但对他们来说，对疫苗伤害的担忧比失去工作更可怕<br/><br/>New Yorkers who refuse mandatory vaccinations are facing the consequences of putting their livelihood on the line， but for them, concerns about the vaccine， more frightening than losing their job
-![img](https://media.gettr.com/group26/getter/2021/10/30/21/47/34ada847-f174-3f6c-139c-156aed30b871/out.jpg)
 
 ---
 
