@@ -2,58 +2,32 @@
 ---
 
 
-## 最新报告显示，伊维菌素有86%的预防率和67%的早期治疗率
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1636356/)
+## 彭帅的忍辱不堪和叶钊颖的勇敢反共
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1636443/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：波士顿五月花  黄金时代
+![](https://assets.gnews.org/wp-content/uploads/2021/11/20211103.jpg)
+2021年11月2日，北京时间22时左右，中国女子职业网球运动员彭帅在其个人认证微博帐号发文，曝光了她与中国前国家副总理张高丽之间长达十余年的不伦关系。虽然该文连同彭帅的微博帐号都很快被删除，但其截图还是被广泛传播、并引发了世界媒体的强烈关注。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ivermectin-_1794c8dfc62_large.jpg)
+彭帅对CCP高层内部丑闻的曝光，令人不禁想起同样身为杰出女运动员的叶钊颖对中国羽毛球队内部丑闻的揭露。根据叶钊颖在访谈中的爆料，在2000年悉尼奥运会羽毛球女单半决赛中，时任中国羽毛球队总教练李永波勒令她必须让球负于队友龚智超，而其中的原因是李与龚之间存在性关系。
 
+在继续分析彭叶二人的异同之前，让我们先回顾一下她们各自所取得的辉煌成就。
 
+彭帅，1986年出生，湖南湘潭人，网球女子世界单打最高排名第14位，女子双打世界最高排名第一位，美网女单四强，温网法网两个大满贯女双冠军。
 
-图片来源：gulfnews.com
+叶钊颖，1974年出生，浙江杭州人，1995-1998年的四年内八次列羽毛球女子单打世界排名第一位，一个世界杯和两个世锦赛单打冠军，两个苏迪曼杯和三个尤伯杯团体冠军。
 
+毫无疑问，这是两位在各自的专业领域都曾经站上世界之巅的女运动员。她们都是中华民族优秀儿女的杰出代表，同时也都是CCP邪恶体制的受害者。但是在面对恶魔时不同的选择，导致了她们现在不同的命运。叶钊颖在受到李永波的迫害后选择了对抗，并在新中国联邦成立时，与郝海东先生一起勇敢地站出来誓言推翻CCP；而彭帅在被迫与年长其40岁的张高丽发生性关系之后，非但没有反抗反而仍然与其保持长期联系。
 
-编译：小红帽
+看看叶钊颖和彭帅现在截然不同的人生境遇，中共国内各领域的精英们，请扪心自问，你们的成就比得上叶钊颖和彭帅吗？你们能保证自己不会受到同样的迫害吗？不要再沉默和忍让了，请勇敢地站出来，加入新中国联邦、加入爆料革命，与郭文贵先生和全世界的战友们一起，携手推翻CCP的邪恶统治！
 
-一份[包含64项研究的最新国际报告](https://ivmmeta.com/ivm-meta.pdf)显示，伊维菌素作为中共病毒（COVID-19）预防措施的成功率为86%，而在的早期中共病毒治疗中的成功率为67%。
+* * *
 
-这些结果同时亦反映了过去一年中[关于羟氯喹（对中共病毒有效）的290多项研究报告](https://c19hcq.com/)。
+*编辑：文合*
 
-尽管这些药物在同行评审研究中持续有效，但美国疾病控制与预防中心(CDC) 、福奇博士和美国食品药品监督管理局(FDA)嘲笑使用这些药物来治疗中共病毒。到了某个时候，他们将不得不承认自己错了，而且这可能是导致数百万人死于这种致命病毒的原因。
+*封面：霹雳鼠年*
 
-Gateway Pundit网站曾广泛报道了美国疾病控制与预防中心导致数千美国人死亡。
-
-这份新的国际报告显示，伊维菌素在预防和降低中共病毒死亡率方面表现非常出色。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ivermectin-study-success-01.jpg)
-
-
-
-图片来源：thegatewaypundit.com
-
-
-伊维菌素的效果优于其他药物。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ivermectin-study-success-01-1.jpg)
-
-
-
-图片来源：thegatewaypundit.com
-
-
-这是整个完整的[研究报告](https://www.scribd.com/document/536540814/Ivermectin-Study-Continues-to-Show-Promising-Results#download&amp;from_embed)，供阅读。
-
-**参考新闻：**[WONDER DRUG: New International Ivermectin Report of 64 Studies Shows 86% Success as Prophylaxis and 67% Success in Early Treatment (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/11/wonder-drug-new-international-ivermectin-report-64-studies-shows-86-success-prophylaxis-67-success-early-treatment/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*发布：吐纳*
 
  
 

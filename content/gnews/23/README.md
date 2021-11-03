@@ -2,21 +2,30 @@
 ---
 
 
-## 中共国将不再享受贸易优惠待遇
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1636229/)
+## 有声|多国同时取消对中共国普惠制关税优惠国待遇
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1636283/)
 
-撰稿：葛大饼
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片5.png)
-图片来源： Line Today
+配音：香草山美食部 – 玫瑰园
 
-根据2021年11月3日 网易报道，中国海关总署在官网发布公告，自 12月1日起，停止签发输往有27个成员国的欧盟、英国、加拿大、土耳其、乌克兰、列支敦士登「普惠制」原产地证书（Form A），间接证实欧盟等32国取消中国的最惠国待遇。
+10月30日，据盖特消息，自2021年12月1日起，欧盟27国、英国、加拿大、土耳其、乌克兰和列支敦士登等32个国家将取消对中共国的普惠制关税优惠国待遇。报道称，截至目前，仍旧保留中共国普惠制待遇的只余三国：挪威、澳大利亚和新西兰。
 
-**海关法专业资深律师吴国雄对此表示，中国加入世界贸易组织（WTO)获得了最惠国待遇，**最惠国待遇是互相给予优惠，既然是互惠的，如单方取消即可能违反公约，必然导致贸易纠纷、贸易报复。
+“普惠制” 是普遍优惠制度的简称，是发达国家给予发展中国家及地区的出口制成品和半制成品普遍的、非歧视的、非互惠的优惠关税制度。中共国自2001年加入世贸组织后，除最惠国待遇外，还享受普惠制待遇。
 
-最惠国待遇（GSP）是指发达国家给约发展中国家的出口商品，在最惠国待遇的基础上，对进口关税进行削减或免除。笔者曾经在国内从事过外贸行业，好些出口企业就是靠出口退税存活的，这个最惠国待遇取消，墙内又是倒下一大片，最终还是老百姓吃苦。
+据了解，土耳其、越南、印尼、孟加拉国、柬埔寨等国家依然享有普惠制待遇。这将有利于这些国家成为新兴的劳动密集型出口国，从而打破中共国在全球产品供应链中的垄断。
 
-**新闻来源：https://c.m.163.com/news/a/GNS6MK0H0551SI3J.html?spss=today-news-hotrank**
+文字版原文：[多国同时取消对中共国普惠制关税优惠国待遇](https://gnews.org/zh-hans/1634887/)
 
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

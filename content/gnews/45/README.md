@@ -2,34 +2,29 @@
 ---
 
 
-## 国际要闻汇编 11月3日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1635850/)
+## 针下亡魂｜德国 32 岁心理学专家接种疫苗12日后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1636096/)
 
-#### 素材：东京樱花团｜GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-5.png)[*图片来源*](https://i.ntdtv.com/assets/uploads/2021/11/GettyImages-1221007577.jpg)
-1、[**纳瓦罗新书披露内幕 呼吁推翻中共**](https://www.aboluowang.com/2021/1103/1667335.html)
+**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 3/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-前白宫国家贸易委员会主任彼得‧纳瓦罗（Peter Navarro）在11月2日新书《川普时代：美国瘟疫年日记》（In Trump Time: A Journal of America’s Plague Year）发行前接受采访时毫不客气地称，中国共产党是一个“需要推翻的野蛮政权”。他还指责了拜登政府对中共的绥靖态度。据纳瓦罗说，他这本书的主要任务之一是“澄清11月3日”，即2020年总统大选的日子，到底发生了什么。
+【德国】北莱茵-西法伦州一名 32 岁的女心理学家 Dana Ottmann 在接种完阿斯利康 COVID-19 疫苗后的第12日死亡。
 
-2、[**环境日益严峻 雅虎宣布退出中国大陆**](https://www.voachinese.com/a/yahoo-pulls-out-of-china-ending-tumultuous-two-decade-relationship-20211102/6296925.html)
+据德媒 Welt TV 报导指，Dana 在当地一间康复诊所任职心理医师，按照规定，她于 2 月 25 日接受了第一剂疫苗，翌日，她就感到剧烈的头痛，但由于 Dana 自小就时有偏头痛的情况，因此没有特别留意。直至 3 月 9 日上午，当 Dana 的母亲 Petra Ottmann 因无法联络上 Dana，而直接去到她的寓所时，才发现，Dana 早已倒在浴室的地板上，没有了呼吸。
 
-鉴于中国日益严峻的商业和法律环境，雅虎公司从11月1日起，在中国大陆将无法访问雅虎的全套服务。就在雅虎公司宣布退出中国之际，中国全国人大今年8月通过的《个人信息保护法》已于11月1日生效。该法规定了公司可以收集个人数据的条件，包括获得个人的同意，并规定在将数据传输到国外时确保数据保护的准则。
+Dana 的母亲，Petra 立即问责当地卫生及法律当局，她认为是疫苗造成了女儿的死亡，可惜，Petra 向媒体表示，“他们每个人都试图将注意力从阿斯利康疫苗上转移开，把一切归因于她女儿的偏头痛。”
 
-3、[**美国将全力阻止中国钢铁进口冲击美国产业**](https://www.voachinese.com/a/tai-on-china-steel-harm-20211102/6297133.html)
+不过，据 Dana 居住地区公布的最新尸检结果显示，Dana 死于凝血功能障碍，即脑出血。[**尸检阐述**](https://www.welt.de/politik/deutschland/article230732399/Gehirnblutung-Tod-junger-Frau-hing-mit-AstraZeneca-Impfung-zusammen.html)如下：“格赖夫斯瓦尔德大学免疫学和输血医学研究所认为，是对阿斯利康疫苗的免疫反应导致了该女子死亡。”
 
-美国贸易代表戴琪，在出席2日美国钢铁协会和美国钢铁制造商协会时指出，美国政府将阻止中国钢铁产品进口对美国钢铁产业和市场造成的损害，提振美国钢铁产业的竞争力。戴琪说美国钢铁产业面临的主要挑战除了疫情之外就是全球钢铁产能过剩的问题。中国是全球钢铁产能过剩的最大驱动力，而且向其钢铁产业注入数十亿美元，损害了美国和世界各地钢铁工人的利益。
+Dana 的母亲 Petra 强调“我并非反对疫苗，只是目前疫苗的可用数据太少，不应迫使任何人过早接种。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗_0.jpg)
+来源｜[个案054](https://www.welt.de/politik/deutschland/plus229668113/32-Jahre-alt-geimpft-gestorben-ist-AstraZeneca-schuld.html)
 
-4、[**中国申请加入DEPA，欲与美争夺话语权**](https://www.voachinese.com/a/china-applies-to-join-depa-20211102/6297221.html)
+* * *
 
-中国商务部11月1日发表声明，称中国已正式提交了加入《数字经济伙伴关系协定》(DEPA)的申请。中国国家主席习近平在G20峰会上发表的视频讲话中承诺，将与各方合作，推动数字经济的“健康有序”的发展。分析认为，北京此举意在“增强中国在国际规则制定中的话语权”。
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//｜//[澳洲 56 岁电台主持人接种疫苗两个月后死亡](https://gnews.org/zh-hans/1622426/)//｜//[美国 39 岁女医护接种疫苗4日后死亡](https://gnews.org/zh-hans/1625214/)//｜//[美国 56 岁男医生接种疫苗两周后死亡](https://gnews.org/zh-hans/1629915/)//
 
-5、[**受美制裁打击 华为将出售服务器业务**](https://www.aboluowang.com/2021/1103/1667316.html)
-
-彭博周二（2日）报道指出，华为出售使用x86处理器架构的服务器业务已经进入深入谈判，此前该公司遭美国列入黑名单，使其难以再从英特尔取得微处理器，这是这家中国科技业巨擘遭受美国制裁的最新打击。
-
-*编辑：东京樱花团 / 文小白
-发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

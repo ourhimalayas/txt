@@ -2,28 +2,44 @@
 ---
 
 
-## 中共禁止议论彭帅事件
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1636231/)
+## 有声|新型的新中国联邦人，新的信仰，新的宗教的诞生
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1636303/)
 
-撰稿：东京樱花团/上善若水
+配音：香草山美食部 – 玫瑰园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/中共禁止议论彭帅事件.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg3.secretchina.com%2Fpic%2F2021%2F11-3%2Fp3034841a435621400-ss.jpg&amp;imgrefurl=https%3A%2F%2Fwww.secretchina.com%2Fnews%2Fgb%2F2021%2F11%2F03%2F988452.html&amp;tbnid=kzxaDBMx4Jk7mM&amp;vet=12ahUKEwiTiZ_AjvzzAhW2ktgFHVEPAc0QMygFegUIARCuAQ..i&amp;docid=ji1ZG-_7G-oiJM&amp;w=600&amp;h=336&amp;q=%E5%BD%AD%E5%B8%85&amp;ved=2ahUKEwiTiZ_AjvzzAhW2ktgFHVEPAc0QMygFegUIARCuAQ)
+11月1日举世瞩目的喜币终于问世了！拥有巨大财富的新型的新中国联邦人，新的信仰和新的宗教也随之应运而生！这不仅仅是钱的问题！而是用金钱的力量来消灭邪恶的中共和黑暗势力！这是一种新的信仰和宗教，即坚信上天会引导我们采取行动来战胜黑暗势力，为人类带来一个新的美好的世界！我们坚信我们一定会成功！
 
-中共国社交媒体微博周二 (11月2日) 晚上突然出现一则中共国网球名将彭帅发的帖子的截图，她在文中透露曾与中共前常委张高丽发生性关系，并指控张高丽事后玩消失。因为涉及到中共前高级官员性丑闻，相关内容很快从微博上被删除，彭帅目前处于失联状态。
+七哥给我们新型的新中国联邦人提出了三个问题，我们草根战友们在给出各自的回答后得到的都是七哥的“完全不对”！大家在捧腹大笑之余，又不得不承认贫穷，被洗脑，和无知限制了我们的想象。同时，我们也懂得了七哥这三个问题的重要性！
 
-根据网上流传的截图，彭帅称自己十数年前与张高丽发生性关系，但后来张高丽到升任常委到北京后，便没再与彭帅联系。彭帅在帖子中称，张高丽三年前退休后，某日与彭帅在北京康铭大厦打球后，与妻子把彭帅带到家中，再次要求与彭帅在房内发生性行为，彭帅写道当时还有一个人在外帮忙守着。
+七哥的第一个问题是：什么叫忠诚？
 
-她写道：“那天下午我原本没有同意一直哭，晚饭是和你还有康洁阿姨一起吃的。晚饭后我也并不愿意，你说恨我！又说你这七年从未忘记过我，会对我好等等……我又怕又慌带着七年前对你的情感同意了……是的就是我们发生性关系了。”
+忠诚欺骗了我们一辈子！家庭，朋友，合作者都要求我们忠诚。东西方传统忠诚是衷心，都是中心化。而我们信奉的忠诚是包括财富，人格，政治等一切的去中心化！诚是核心，
 
-彭帅称原本张高丽说11月2日下午到他家两人谈谈，但当彭帅2日中午尝试与他联系时，彭帅称张高丽“说有事再联系，推托一切，藉口说改天再联系”。她在帖子中写道：“你总怕我带什么录音器，留下证据什么的。是的，除我以外我没留下证据证明，没有录音、没有录像、只有被扭曲的我的真实经历。”
+忠诚就是不要虚假的忠诚，要去中心化，要诚在于心，要诚待父母，诚待朋友，诚待战友。
 
-信息来源：
+七哥的第二个问题是：什么叫奉献？
 
-[彭帅事件真相扑朔迷离 专家：共产党不许人们议论](https://www.dw.com/zh/%E5%BD%AD%E5%B8%85%E4%BA%8B%E4%BB%B6%E7%9C%9F%E7%9B%B8%E6%89%91%E6%9C%94%E8%BF%B7%E7%A6%BB-%E4%B8%93%E5%AE%B6%E5%85%B1%E4%BA%A7%E5%85%9A%E4%B8%8D%E8%AE%B8%E4%BA%BA%E4%BB%AC%E8%AE%AE%E8%AE%BA/a-59702973)
+传统的奉献，奉就是无我，把你的所有一切都献出。一旦奉了，你就是无条件地要献出一切，献就是祭祀！那谁要是要求你奉献就是骗子，是我们的敌人。人人都是平等的，为什么我要奉献给你啊？任何宗教让你奉献时，它就不是好的。故我们要把奉献改成献奉，就是愿给多少给多少。今天的喜币就是七哥献奉给战友的，是平等的。你可以买也可以不买。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
+七哥的第三个问题是：唯真不破追求的结果是什么？要达到什么目的？
+
+爆料革命的唯真不破的核心目标就是要去假存真，就是要知善恶，要有善恶之分，要以善去恶。七哥希望我们要善待自己，家人，朋友和战友，要善待财富。 新型的新中国联邦人将遵循七哥指明的三个新的概念，以崭新的形象出现在世人面前，不愧于新中国联邦人的称号！
+
+文字版原文：[新型的新中国联邦人，新的信仰，新的宗教的诞生](https://gnews.org/zh-hans/1634002/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
