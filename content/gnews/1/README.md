@@ -2,43 +2,55 @@
 ---
 
 
-## 未来要按参加的时间、贡献和G系列的投资额度分享股份
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1635785/)
+## 新西兰财经G乐部 2021年11月3日
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1635823/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2305_副本.jpg)
-据[MILES GUO 直播 2021-11-02](https://gettr.com/streaming/pfv59d80a7)时间点9：41——
+采编：蚂蚁的城堡
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-1-10.jpg)
+提纲：
 
-没有人发现一个问题，明年六四的时候，过的时候都带着喜币来的时候啥感觉呀？都带着喜币来的时候啥感觉？兄弟姐妹们想想，想想。  两周年的时候，中国人在成立了新中国的体制的时候，两周年的时候就会拥有了自己的金融系统、自己的货币，这是人类上多大的传奇！
+1、阳光城11月40亿债务待偿；沙钢集团被证监会立案调查；华夏控股及子公司近94亿债务逾期
 
-我相信到两年的时候，喜币系统、爆料革命、新中国联邦加入的人数会突破千万，正式加入的会超过千万。我们未来会登记正式加入新中国联邦的，未来会自动成为整个金融系统的按照家庭、人数分配财富，真的叫共享财富，咱们叫真正的共享，按照你参加的时间、贡献和投资G系列的额度分享股份——终生的！
+2、蔡向阳突然离世，华夏基金发布“致持有人的一封信”，并变更9只产品基金经理
 
-这是我瞎说的，你们别当个事儿，走着看吧！跟喜币没关系，跟喜联储没关系，走着看吧！我发梦呢！H-Coin to the moon, H-Coin to the moon.
+3、港交所：正研究为SPAC上市框架松绑
 
-我们要真正让人感受到，拿到手里的受西方法律保护的永久式的股权，就像美联储、罗斯柴尔德家族拥有的那个股票一样，就一张纸，你有120股就够了，是吧？那时候你就觉得喜币不重要了，因为喜币他爹，你是喜币他爹，新中国联邦人都要当喜币的爹才行。
+4、Facebook的吹哨人Haugen呼吁：扎克伯格应该下台
 
-（以下暂略）
+正文
 
-撰稿：喜马拉雅的肉夹馍；
+1、阳光城11月40亿债务待偿；沙钢集团被证监会立案调查；华夏控股及子公司近94亿债务逾期
 
-审核：喜马拉雅的馍夹肉；
+11月2日，房企方面，东方金诚、惠誉、中诚信、穆迪等多家评级机构下调阳光城主体或相关债项评级；泰禾集团公司及董事长黄其森因信披不及时被深交所通报批评；华夏控股公司及下属子公司93.89亿债务未能如期偿还；出于商业原因，惠誉确认并撤销花样年控股“RD”长期外币发行人评级；蓝光发展前三季度净利润为-70.04.亿元，亏损金额占上年末净资产15.10%。
 
-校对：Maarago；
+[参考链接](http://www.21jingji.com/article/20211103/herald/bfeac5bb4127a34406e21d1938a37f3b.html)：
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+2、蔡向阳突然离世，华夏基金发布“致持有人的一封信”，并变更9只产品基金经理
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+证券时报网：11月2日晚间，华夏基金晚间发布多只基金的基金经理调整公告，因蔡向阳去世。年仅41岁的蔡向阳，于今年4月刚升任为公司副总经理，也是行业“投而优则仕”的典范之一。以蔡向阳管理时间最长的华夏回报混合基金为例，wind数据显示，其从2014年5月28日起开始管理该基金，至2021年11月1日的任职时间为7年又160天，任职回报164.89%，年化回报14.12%。该基金在市场上有着“分红之王”的称号，2003年成立以来分红超100次。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+[参考链接](https://news.stcn.com/sd/202111/t20211103_3830147.html)：
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+3、港交所：正研究为SPAC上市框架松绑
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+香港就引入SPAC(特殊目的收购公司)上市机制的市场咨询期已于上周结束，据了解，港交所在接获市场各方持份者的回复意见后，正研究为SPAC上市框架松绑，但暂时未知松绑的程度如何，或要综合市场意见再作决定。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+港交所在响应媒体查询时称，SPAC上市框架咨询刚于上周结束，现正审视市场提交的意见，会于适时公布咨询总结。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+报道指，港交所正研究就SPAC咨询文件上的三点要求弹性处理，包括专业投资者人数、独立第三方投资者(PIPE)投资占比、赎回股份与反对票合并捆绑的问题。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[参考链接](https://www.hkmipo.com/2021/11/02/4a01884b56/)：
+
+4、Facebook的吹哨人Haugen呼吁：扎克伯格应该下台
+
+路透11月1日 – 在泄露大量有关Facebook内部运作的爆炸性文件后，吹哨人Frances Haugen在她的首次公开讲话中敦促她的前老板扎克伯格(Mark Zuckerberg)下台，并希望公司允许变革，而不是将资源投入到品牌重塑当中。这位前Facebook产品经理对扎克伯格是否应该辞职的问题作出了肯定回答，并补充说：“也许这是一个让其他人掌权的机会…有一个愿意关注安全的人，Facebook会更强大。”Haugen在评论这Facebook牌重塑工作时说，考虑到安全问题尚未解决，这样做毫无意义。
+
+[参考链接](https://finance.sina.com.cn/roll/2021-11-01/doc-iktzqtyu4645925.shtml)：
+
+
+
+审核校对：Barry Jack
+上传排版：F
 
  
 

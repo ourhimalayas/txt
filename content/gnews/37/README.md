@@ -2,41 +2,40 @@
 ---
 
 
-## Facebook對針對兒童疫苗「的錯誤信息」施加更嚴格的限製
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1635505/)
+## 美国航空公司以天气和人员问题为由取消700多个航班
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1635539/)
 
-【簡評：】*對於此文，我只想說「臉書」只剩下「書」了，臉已經不要了，已經光明正大地不要臉了。其他沒什麽可說的了，哦，對了，不要臉的Facebook註定要被丟棄到垃圾堆，現在它提醒給孩子註射疫苗，我們就千萬不能這麽幹。*
+据《CNBC》作者：Leslie Josephs，2021年10月30日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-29-e1635905008730.png)2020年10月28日，在澳大利亚悉尼，一架美国航空公司的波音777-300ER飞机从悉尼机场起飞。Loren Elliott | 路透社
+**美国航空公司自上周五以来取消了1000多个航班，它将这些中断归咎于其最繁忙的枢纽的人员配置问题和异常天气。**
 
-据《The Verge》记者Emma Roth，2021年10月30日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-27-e1635902507831.png)圖片來源: Alex Castro / The Verge
-**Facebook提醒用戶該疫苗現已可供兒童使用**
+根据航班跟踪网站FlightAware的数据，星期六，美国航空公司取消了近460个航班，占其主线计划的17%。总部设在达拉斯的西南航空公司削减了86个航班，占其周六运营的2%。
 
-就在美國食品藥品監督管理局(FDA)正式批準輝瑞(Pfizer)公司的針對5歲至11歲兒童的COVID-19疫苗之際，**Facebook的全新身份Meta公司宣布，將對兒童的疫苗錯誤信息推出更嚴格的政策。**該平臺此前在2020年底對COVID-19疫苗的錯誤信息進行了限製，但沒有專門針對兒童的政策。
+在周五取消340个航班的基础上，美航又取消了285个航班，占其周日计划行程的10%。
 
-Meta在一篇新的博客文章中表示，**它正在與美國疾病控製和預防中心(CDC)和世界衛生組織(WHO)合作，刪除平臺上傳播的與兒童和COVID-19疫苗有關的「錯誤」內容。這包括任何暗示COVID-19疫苗不安全、未經測試或對兒童無效的帖子。**此外，Meta公司還將提供英語和西班牙語的即時提醒，告知該疫苗已被批準用於兒童，並提供在何處可接種該疫苗的信息。
+美航首席运营官David Seymour周六在一份员工说明中说，问题始于周四的大风，大风削减了其达拉斯·沃斯堡国际机场枢纽的运力，机组成员最终在下一个航班上失去了排队位置。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-28-e1635902683951.png)圖片來源：Facebook
+根据CNBC看到的内部统计，飞行员和空乘人员的可用性被列为周六和周日大部分取消航班的原因。
 
-Meta 指出，自中共病毒COVID-19疫情開始以來，它總共從 Facebook 和 Instagram 刪除了2000萬條涉及COVID-19 和疫苗的「錯誤信息」。
+Seymour写道：“随着整个系统天气的增加，我们的人员配置开始变得紧张，因为机组成员最终不在他们的正常飞行序列中”，他说，大多数客户在当天就被重新预订了，他预计11月的运营将趋于稳定。
 
-這些數字與我們從 Facebook 泄露的內部文件中看到的情況不一致——Facebook 文件清楚地表明，該平臺對與 COVID-19 疫苗相關的錯誤信息準備不足。 如果 Facebook 準備得更充分，它可能會在疫情早期發起打擊（針對兒童和成人的） 「錯誤信息」的活動，從而可能會刪除更多「虛假內容」。
+自春末旅游需求大幅反弹以来，航空公司一直在努力应对人员短缺问题，这已导致数百次航班取消和其他服务中断。在疫情最严重时期，航空公司说服数千名员工接受自愿买断或休假，以削减工资支出。
 
+现在，他们正试图再次增加人员，招聘飞行员、空乘人员、停机坪和客户服务人员以及其他人员。精简人员使航空公司更难从恶劣天气或技术问题等干扰中恢复。
 
+西南航空本月早些时候表示，本月早些时候的一次故障使其损失了7,500万美元，该公司取消了2,000多个航班。它还表示，在早些时候的削减之后，它将进一步削减剩余的2021年时间表，以避免更多的中断。
 
+美国航空的Seymour说，1800名空姐将从11月1日开始休假返回，其余的人将在12月前返回。它说，它还在招聘飞行员、机械师、机场工作人员和预订人员，“因此更多的团队成员将在假日季节到位”。
 
+原文连接：[https://www.cnbc.com/2021/10/30/american-airlines-cancels-hundreds-of-weekend-flights.html](https://www.cnbc.com/2021/10/30/american-airlines-cancels-hundreds-of-weekend-flights.html)
 
+翻译：洛杉矶盘古农场 — TrueSky
 
+校对：洛杉矶盘古农场 — Mike Li
 
-
-
-原文連接：[https://www.theverge.com/2021/10/30/22754046/facebook-tighter-restrictions-vaccine-misinformation-children](https://www.theverge.com/2021/10/30/22754046/facebook-tighter-restrictions-vaccine-misinformation-children)
-
-翻譯：洛杉磯盤古農場 – 鋼蛋兒
-校對：洛杉磯盤古農場 – Mike Li
-評論：洛杉磯盤古農場 – 鋼蛋兒
-編輯：洛杉磯盤古農場 – 心照
+编辑：洛杉矶盘古农场 — 心照
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉磯盤古農場歡迎您加入: (或點擊上方圖片）
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 

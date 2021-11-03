@@ -2,34 +2,45 @@
 ---
 
 
-## 欧洲议会官方代表团首次访台 意义重大
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1635774/)
+## 眼前三件事:推广Hpay登记战友捋清战友未清的账和代持
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1635818/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-1.png)
-图片来自网络
+![](https://assets.gnews.org/wp-content/uploads/2021/11/封面-49_副本.jpg)
+据[MILES GUO 直播 2021-11-02](https://gettr.com/streaming/pfv59d80a7)时间点24：36——
 
-无惧中共压力，欧洲议会“外国干预欧盟民主程序特别委员会”（INGE）派遣的访台代表团，预计将与11月3日如期抵达台湾。台湾行政院长苏贞昌将在行政院接见代表团。
+眼前三件事儿，兄弟姐妹们，全力以赴地推广H-Pay下月上线，抓住这个机会，它比喜币重要；
 
-据《希望之声》2021年11月3日报道，对于此次访台，欧洲议会向《中央社》强调，此前还没有欧洲议会的官方代表团访问过台湾，这更加凸显出此次访台意义重大。据悉，议员们这次来台湾的主要议题是交流抵抗虚假讯息经验。
+第二，抓紧把我们的很多战友登记在册，不要落下一个人；
 
-曾任欧洲议会政治幕僚、现于台湾进行博士后研究的匈牙利学者冯儒莎（Zsuzsa Anna Ferenczy）在接受采访时表示，考虑到台湾议题的极度敏感，就明白这趟访问行程绝非寻常。
+还有一个，在喜币上市前的很多未清的账、未算的数还有各农场的代持都要捋清楚，联盟委员会要做这事儿。
 
-不过冯儒莎也指出，基于台湾拥有绝佳的专业知识，并证明身为民主国家能利用科技以及公开透明来对抗假讯息，因此特别委员会安排这趟访问并不令人感到意外。
+全力以赴发展盖特、G-TV、G-Clubs、G-Fashion、H-pay，想想会有多大吧。
 
-有欧洲学者表示，尽管此行压力可想而知，但在相关议题上，台湾可提供丰富经验供欧盟参考。
+罗斯柴尔德的雪茄是好啊，是好啊！真好！但是他家后继无人了，该我们新中国联邦上场了，当年的洛克菲勒、J.P.摩根拥有半个美国的财富或大半个美国的财富，罗斯柴尔德曾经拥有世界上大半的财富，从来没有一个中国人拥有这么多财富过，新中国联邦可能未来是。
 
-欧洲议会设立“外国干预欧盟民主程序特别委员会”，主要是为应对外国干涉欧盟与各成员国的选举。特别在中共病毒疫情蔓延全球期间，当中共和俄罗斯针对疫情在欧盟及全球进行有影响力的假讯息宣传活动时，特别委员会将提出需要采取立法的行动。
+（以下暂略）
 
-华府智库“战略暨国际研究中心”（CSIS）今年1月便发布报告指出，中共长期以来运用一切手段试图影响台湾舆论，尤其是自2016年蔡英文首度当选总统后，假讯息攻势大增。
+撰稿：喜马拉雅的肉夹馍；
 
-该智库当时的报告指出，台湾在应对中共不实讯息上，包括政府回应、培养公民媒体素养等经验，可供美国参考。国际社会也应共同合作，应对中共散播假讯息。
+审核：喜马拉雅的馍夹肉；
 
-欧洲议会官方代表团首次具有重大意义的访台，无疑是又一次触碰了中共所谓的“红线”。中共的“战狼”们必定又要狂吠一番。然后呢？中共还敢做出什么反击之举吗？
+校对：Maarago；
 
-注：本文仅代表作者观点
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-**新闻链接：**[https://www.soundofhope.org/post/561792](https://www.soundofhope.org/post/561792)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

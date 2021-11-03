@@ -2,25 +2,32 @@
 ---
 
 
-## 美国军医作证“新冠病毒疫苗”危害
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1635566/)
+## GTV新闻访谈简报|2021年11月2日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1635608/)
 
-原文采编：UCool优酷 编译撰稿：文所未闻
+作者：香草山翻译部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-7-edited.jpg)图片来源：CBC
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO.jpg)
 
 
-据自媒体《信息战》11月2日报道，因为担心美空军飞行员在飞行期间有心脏病发作等风险， 美军中校特蕾莎曾在九月份建议国防部让所有接种过“新冠病毒疫苗”的飞行员停止其飞行任务。该中校于当天就以上问题在参议院小组面前出席作证。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1102text-SC.png)
+校对：Stay文苑
 
-在其证词中，特蕾莎中校提及她目睹了很多以前身体健康的士兵在接种该疫苗的几周内，都出现了心脏病、垂体脑瘤、甲状腺功能障碍、偏头痛、月经不调等各种病症。甚至有在执行飞行任务过程中因为肺栓塞而突发死亡的案例。而这一切都似乎和接种“新冠病毒疫苗”有关联。
+编辑：Stay文苑
 
-据悉，美国陆军上周宣布，现役士兵有大约三个月的时间来接种两剂该疫苗，否则将可能被军方开除。然而，许多现役军人都拒绝接种该疫苗，并且一些人已经因为军队苛刻的强制接种规定而被迫提前退役。
+发稿：Stay文苑
 
-* * *
+视频参看：[晚GTV新闻访谈](https://gtv.org/broadcast/watch/6181d7de11d186296800a248)
 
-校对编辑，发稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
 
-[原文链接：](https://www.infowars.com/posts/army-flight-surgeon-urges-pentagon-to-ground-pilots-who-took-covid-injection/)
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
 
  
 
