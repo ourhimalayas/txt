@@ -2,42 +2,45 @@
 ---
 
 
-## 喜币回归货币金本位制，开启人类数字货币新时代
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1635691/)
+## 德国公司为已接种疫苗和未接种疫苗的员工设立隔离食堂
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1635731/)
 
-作者：纽约香草山农场 – 飞虹
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-
-
-2021年11月1日，令世界瞩目的喜马拉雅币终于在隆重上市了，开启了人类数字货币新时代。
-
-喜币目前发行，以美元为稳定币，并用不少于20%购买黄金做备兑资产，也即以黄金和美元信用为锚。随着时间的推移，喜币发行量增大，可以配置其他国家的主权债券，或少量股权，分散风险。而随着喜币规模和流通量的逐步扩大，其信用也会逐步被各国认可，具备成为各国的储备货币的条件。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture7777777.jpg)
-此外，喜币应用区块链技术，在存储和支付上实现去中心化，可摆脱任何国家权力的控制。而它的反洗钱KYC运作，则充分中心化。这些运作机制，更保证了喜币的安全可靠。
-
-喜币开创了全新的超越国家主权的货币体系和商业文明。将重估一切价值，而开启人类的数字货币新时代。
-
-参考链接：[喜币回归货币金本位制，开启人类数字货币新时代](https://gettr.com/post/pfrgmr3d3c)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/3DquG0_0ckO4UG800-1.jpg)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+图片来源：newsbreak.com
 
 
+#### 编译：小红帽
 
-总编：飞虹
-编辑：木白
-校对/发稿：Hetangyuese
+德国几家大型公司正在为已接种中共病毒（COVID-19）疫苗的员工建立食堂，然而未接种疫苗的员工只能呆在单独的隔离区域，并被迫继续遵守社交距离和戴口罩的规定。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+制药巨头拜耳、能源公司Eon和旅游公司Alltours都将实施新规定，未接种疫苗的员工将被视为二等公民。
+
+“在为疫苗接种者和中共病毒康复人员设立的‘2G’区域里，员工将被允许在完全正常的条件下一起吃饭，而那些未接种疫苗或未提供疫苗接种情况信息的员工，将不得不继续遵守社交距离、用餐时用隔断保持距离、戴口罩等规则”《当地人》报道。
+
+拜耳还宣布，其员工也已开始组建“排除未接种疫苗员工”的工作小组。
+
+在柏林参观圣诞市场的人如果没有接种疫苗，也将被拒绝进入。
+
+尽管面临着无耻的歧视，但90%尚未接种疫苗的德国人表示，他们没有计划在不久的将来接种疫苗。
+
+德国当局曾在1月份宣布，违反中共病毒封锁规则的人将被逮捕，并拘留在全国各地的难民营里。
+
+**参考新闻：**[German Companies Creating Segregated Canteens For Vaccinated and Unvaccinated – Summit News](https://summit.news/2021/11/01/german-companies-creating-segregated-canteens-for-vaccinated-and-unvaccinated/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
