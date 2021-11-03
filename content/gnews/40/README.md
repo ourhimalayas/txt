@@ -2,51 +2,38 @@
 ---
 
 
-## 爆料：与中共脱钩的欧洲国家是喜联储的“币仓”之一
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1635937/)
+## COVID-19 最新情报｜护士爆料 003：“医疗领域正在失去能够理性思考，并坚持原则的医务工作者”
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1636106/)
 
-作者：香草山农场教育部 – 晓仙女
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜3/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_0.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
+**【澳洲/公立医院急诊室/注册护士】**
 
+*以下为转述：*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+#### **医生刻意回避疫苗因素**
 
+我是墨尔本东部一间医院的急诊室护士，我每天在急诊室可以见到许多 20～30 岁的年轻人来求诊，其中以男性居多，即使病患都强调是接种疫苗后发生的胸痛、头痛，医生们仍然纪录为心里等与疫苗无关的因素，从未被认可与疫苗有关。
 
+我记得有一名年轻、健康的女性，她因职业而被迫接受疫苗，之后就一直头痛，但在医院她没得过任何有帮助的治疗，医生让她回家，让她自行修复，并且没有为她留下纪录。
 
-2021年11月1日，郭文贵先生在《喜币全球上市大直播》中爆料：
+还有一名患者，被诊断出 ITP，这是辉瑞疫苗已知的不良反应之一。并且，当时他的血小板几乎已经消失了，但接诊医生坚持认为，这和他三天前接种的疫苗无关，所以也没有纪录在案。
 
-近期欧洲几个国家终止了与中共当局的最惠国待遇，其中的列支敦士登是世界知名的金融自由国家。该国曾是中共对外金融渗透的重要一环，中共每年在列支敦士登投入海外公关费用的百分之八，旨在打造中共的海外金库。然而，列支敦士登成为欧盟中率先与中共贸易脱钩的国家，并顺利成为了“喜联储”的重要金融储备地之一。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-8.jpg)
-文贵先生指出，新中国联邦 “政治小组”的战友们，不舍昼夜地不懈工作，让欧洲几大金融中心认识到喜联储的真正价值，促成了这一伟大的成就。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3.1-2.jpg)
-在现有的几大跨国贸易协议中，“喜币、喜支付和喜联储”将以其低成本、零中介、高保密、超安全等特征大放异彩，并真正打通全球自由贸易的“任督二脉”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-4.jpg)
-参考链接：
-郭先生直播：[2021年11月01日 “HCOIN TO THE MOON” 喜马拉雅币上市庆典 （上）](https://gtv.org/video/id=618159b92051c747ccf8c38c)
+注：ITP（免疫性血小板减少性紫癜），是一种血液疾病，特征是血液中血小板数量骤减，血小板的作用是凝血。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+如果科学真的受到尊重，人们就会得到适当的跟进，例如胸痛等原因就会得到调查，但事实并非如此。
 
-总编：飞虹
-编辑：Zion文恩
-校对/发稿：为真不破20
+#### **缺乏合理可接受的风险/效用分析**
 
-**更多资讯，更多关注**
+已经有许多专家揭示，对年轻人而言，接种疫苗的风险比病毒更大，虽然这个理论没有进行过正式的研究，但我怀疑这是真的，对未成年的孩子来说更是如此。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+现在政府呼吁对所有儿童进行疫苗接种，尽管孩子们受到新冠病毒伤害的风险几乎为零，反而疫苗风险相对较高，医学治疗方案本应建基于一个合理可接受的风险/效用分析，但在本次疫情中，他们完全没有这么做。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+我最担心的是，医疗领域即将失去能够理性思考，并坚持原则的工作人员，患者的医疗保健或将因此变得更糟。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-16.jpg)
+来源：[003](https://www.australiannationalreview.com/nurses-speak-out/nurses-speak-out-0013-26-09-2021-rn-emergency-department-melbourne-vic/)
 
  
 

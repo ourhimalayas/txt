@@ -2,40 +2,47 @@
 ---
 
 
-## Facebook关闭有争议的人脸识别程序，誓要删除超 10 亿个模板
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1635683/)
+## 寒冬将至，中共国百姓面临基本生活必须品的价格飙升
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1635743/)
 
-#### 【**雅典娜快讯】，紧贴时事脉搏**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/google-facebook-new6-1920-800x450-1.jpg)
+作者：香草山金融部 – 闲聊钱币
 
 
 
-图片来源：searchengineland.com
 
 
-#### 编译：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
 
-脸书（Facebook）以对隐私和道德的“日益担忧”为由，宣布将停止使用人脸识别技术，并删除迄今为止从选择加入该计划的用户那里收集的超10亿个的个人模板。
 
-脸书人工智能副总裁杰罗姆·佩森蒂（Jerome Pesenti）周二表示，这一决定是“全公司范围内限制在我们产品中使用人脸识别的举措的一部分”。
 
-佩森蒂解释说，当该功能停止时，在“未来几周”的某个时候，超过10亿选择加入脸书用户的人脸识别模板将被删除，并且不会被自动识别。佩森蒂补充说，世界各地的当局仍在努力为该技术的使用提供明确的规则，脸书致力于“与领导这次讨论的民间社会团体和监管机构合作”。
 
-早在8月，韩国监管机构就对脸书进行了罚款，理由是脸书假定20万名用户同意该功能，并且不让他们选择退出人脸识别。今年初，在联邦法院裁定人脸识别功能违反了州隐私法后，这家硅谷巨头还被勒令向美国伊利诺伊州的160万用户支付6.5亿美元的集体诉讼赔偿金。
 
-为了回应最初于2015年提起的诉讼，脸书已在2019年禁用了自动人脸识别功能，并将其设为可选。
+上海/北京，11月2日（路透社）–据一位微博用户称，超市里的人们特别是老年人开始恐慌性囤积大米，食用油和盐等生活必须品。某些社交媒体认为导致这种情况的原因是由于同台湾日趋紧张的关系，而中共政府却将此归结于COVID-19疫情的流行和异常大雨的极端天气。
 
-**参考新闻：**[Facebook SHUTTING DOWN controversial face recognition program, vows to delete over a BILLION templates — RT World News](https://www.rt.com/news/539195-facebook-shuts-face-recognition/)
+一家未署名的当地媒体公布了一份建议在家储存的商品清单，包括饼干，方便面、维生素、收音机和手电筒。中共支持的《经济日报》却告诉网民不要有 “过多的想象力”。《人民日报》也称，类似应急储备通知每年都会通报。目的是确保公民在其所在地区发生封锁时不会措手不及。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2.jpg)
+中共国蔬菜大省 – 山东省的蔬菜种植遭到大雨的摧毁，疫情又导致了运输链的断裂，再有农历新年将近，多种因素导致了食品等生活必须品价格飙涨。据山东省寿光市交易中心的蔬菜价格指数显示，黄瓜、菠菜和西兰花的价格比10月初上涨了一倍多。
 
-***发布：小红帽***
+据国家电视台周一晚间报道，政府计划 “在适当的时候 “释放蔬菜储备，以应对价格上涨。但是储备了哪些蔬菜，以及储备量有多大却未向公众披露。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+看来中共国离吃草的年代真的不远了。
+
+（本文仅代表作者观点）
+
+参考来源：[寒冬将至，中共国百姓面临基本生活必须品的价格飙升](https://www.reuters.com/world/china/china-urges-families-keep-stores-daily-needs-ahead-winter-2021-11-02/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Daily%20Briefing%20-%20Huawei%20COP26%20-%202nd%20Nov%202021&amp;utm_campaign=Daily%20Briefing%20-%20Huawei%20COP26%20-%202nd%20Nov%202021)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

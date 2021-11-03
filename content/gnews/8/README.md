@@ -2,59 +2,38 @@
 ---
 
 
-## 最新报告显示，伊维菌素有86%的预防率和67%的早期治疗率
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1636356/)
+## 墙内要闻汇编 11月3日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1636387/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+素材：东京樱花团｜GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/11/墙内要闻汇编-11月3日.png)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1103/20211103020832924.jpg)
+1、[**彭帅揭中共国务院前副总理兽行**](https://www.aboluowang.com/2021/1103/1667488.html)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ivermectin-_1794c8dfc62_large.jpg)
+35岁中国网球名将彭帅2日晚间控诉，75岁中共国务院前副总理张高丽和她发生不伦恋，还被张高丽带回家性侵，张高丽的妻子康洁甚至在门外把风，文章一出，彭帅微博随即遭到关闭，相关文章都被删光。对此，时代力量立委王婉谕3日表示，权势性侵、性骚的问题在各国可能都会出现，但是可以想见，在越不民主、越威权的地方，这样的事情就可能更加严重。
 
+2、[**恐慌！中国“粮荒”发酵 常州大批市民排队抢购物资**](https://www.aboluowang.com/2021/1103/1667491.html)
 
+据陆媒今(3)日报导，江苏省常州市一些大型超市出现民众排队抢购生活物资的情况。常州市多家大型超市工作人员告记者，一大早超市就挤满了抢购生活物资的市民，连锁大超市几百个推车都不够用，有的超市排队结账甚至要等2个小时。中共商务部在前天(1日)晚上发出的通告中表示，要保障今年冬季和明年春季的生活物资供应，还要稳定价格。要压实“菜篮子”市长负责制，每日跟踪蔬菜、肉类等重点生活必需品供求和价格变化情况，及时预测，及早预警。要求建立完善省际间和本地区联保联供机制。
 
-图片来源：gulfnews.com
+3、[**黑龙江疫情管控升级 “四门落锁” 51个小区硬封闭**](https://www.aboluowang.com/2021/1103/1667483.html)
 
+黑龙江卫健委11月3日通报，2日新增35例本土确诊病例，都在黑河市爱辉区；新增本土无症状感染者1例，在哈尔滨市平房区。自10月27日发现首例确诊病例以来，黑河市爱辉区7天累计确诊病例已有140例，成为全国疫情重灾区之一。不过，由于中共一直掩盖疫情，当地实际感染人数可能远超过官方数字。黑河市爱辉区疫情防控负责人冯军恩在2日的新闻发布会上称，当地已启动“四门落锁”机制，对8个进出城区道路设置交通卡口，严控人员、车辆离开。
 
-编译：小红帽
+4、[**鼓励按需杀人? 河南公布人体器官收费标准**](https://www.aboluowang.com/2021/1103/1667469.html)
 
-一份[包含64项研究的最新国际报告](https://ivmmeta.com/ivm-meta.pdf)显示，伊维菌素作为中共病毒（COVID-19）预防措施的成功率为86%，而在的早期中共病毒治疗中的成功率为67%。
+河南省六部门联合发布通知，公布该省的捐献器官收费标准，单次代收捐献器官获取费用，即肝脏运输成本，比如成人肝脏指导价为26万元，儿童为10万元，成人单肾指导价为16万元，双肾为23万元。学者认为，当局分拆器官手术医疗费，属违法行为。也为非法器官移植开绿灯。日本静冈大学教授杨海英认为：“人体器官的摘取和移植手术都包含在手术费用中，中国政府现在出台器官摘取和运输等成本价格以后，会增多有些人故意杀人取器官，诱拐儿童，杀害弱势群体等问题，会进一步破坏社会稳定。”
 
-这些结果同时亦反映了过去一年中[关于羟氯喹（对中共病毒有效）的290多项研究报告](https://c19hcq.com/)。
+5、[**不寻常信号 深圳经济增速转负了**](https://www.aboluowang.com/2021/1103/1667490.html)
 
-尽管这些药物在同行评审研究中持续有效，但美国疾病控制与预防中心(CDC) 、福奇博士和美国食品药品监督管理局(FDA)嘲笑使用这些药物来治疗中共病毒。到了某个时候，他们将不得不承认自己错了，而且这可能是导致数百万人死于这种致命病毒的原因。
+今年，中国国内第一个工业利润累计同比增速转负的核心城市，竟是深圳。根据深圳市统计局的月报数据，1-6月份深圳规模以上工业企业利润总额1343亿，同比2020年同期的1264亿，增幅6.3%；到了今年1-7月份，其利润总额1522亿，同比去年同期的1572亿，增幅就变成了-3.2%。注意，这是个负值！
 
-Gateway Pundit网站曾广泛报道了美国疾病控制与预防中心导致数千美国人死亡。
+6、[**中共军方紧急声明：这是一条假消息！极易引发严重后果**](https://www.aboluowang.com/2021/1103/1667522.html)** **
 
-这份新的国际报告显示，伊维菌素在预防和降低中共病毒死亡率方面表现非常出色。
+据中共军方喉舌“解放军新闻传播中心融媒体”披露，2日在“许多网络平台传播着一条不同人武部向预备役退伍军人发送的短信”，内容是“市人民武装部，各位预备役退伍军人你们好，现接国防部动员部文件通知传达精神，台湾问题严峻，望各位能做好随时召回准备，确保召之即来，来之能战，战之必胜！”中共军方强调，“此信息系谣言！”，并表示“伪造军队机关部门向外发送通知的行为，涉嫌违纪违法。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ivermectin-study-success-01.jpg)
-
-
-
-图片来源：thegatewaypundit.com
-
-
-伊维菌素的效果优于其他药物。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ivermectin-study-success-01-1.jpg)
-
-
-
-图片来源：thegatewaypundit.com
-
-
-这是整个完整的[研究报告](https://www.scribd.com/document/536540814/Ivermectin-Study-Continues-to-Show-Promising-Results#download&amp;from_embed)，供阅读。
-
-**参考新闻：**[WONDER DRUG: New International Ivermectin Report of 64 Studies Shows 86% Success as Prophylaxis and 67% Success in Early Treatment (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/11/wonder-drug-new-international-ivermectin-report-64-studies-shows-86-success-prophylaxis-67-success-early-treatment/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

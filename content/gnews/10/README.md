@@ -2,20 +2,58 @@
 ---
 
 
-## 接种和未疫苗的人会一样传播 Delta 变体
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1636327/)
+## 最新报告显示，伊维菌素有86%的预防率和67%的早期治疗率
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1636356/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11031-1.jpg)图片来自路透社
-发表在《柳叶刀》小组的传染病医学杂志上的一项研究表明疫苗保护的局限性：接种了双剂量新冠疫苗并感染了冠状病毒 delta 变体的个人与未接种疫苗的人有着非常相似的传播疾病的速度。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-在英国进行的为期一年的研究共监测了 621 名出现新冠病毒症状的人，研究人员得出结论：感染 delta 变体的接种疫苗个体的感染率为 25%，而未接种疫苗的个体感染率为 38%。当你去看家庭接触者时，这两个指数更接近，其中接种疫苗但有症状的受试者的感染率为 25%，而未接种疫苗的受试者为 23%。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ivermectin-_1794c8dfc62_large.jpg)
 
-研究人员在他们的结论中明确表示：“尽管目前的疫苗在预防新冠病毒引起的严重疾病和死亡方面仍然有效，但结果表明，单独接种疫苗不足以防止 delta 变体在家庭环境中的传播”。
 
-原文链接：[https://europa.today.it/attualita/vaccinati-trasmettono-variante-delta-come-non-vaccinati.html#\_ga=2.75835285.1002968678.1635926454-145009575.1615972944](https://europa.today.it/attualita/vaccinati-trasmettono-variante-delta-come-non-vaccinati.html#_ga=2.75835285.1002968678.1635926454-145009575.1615972944)
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+图片来源：gulfnews.com
+
+
+编译：小红帽
+
+一份[包含64项研究的最新国际报告](https://ivmmeta.com/ivm-meta.pdf)显示，伊维菌素作为中共病毒（COVID-19）预防措施的成功率为86%，而在的早期中共病毒治疗中的成功率为67%。
+
+这些结果同时亦反映了过去一年中[关于羟氯喹（对中共病毒有效）的290多项研究报告](https://c19hcq.com/)。
+
+尽管这些药物在同行评审研究中持续有效，但美国疾病控制与预防中心(CDC) 、福奇博士和美国食品药品监督管理局(FDA)嘲笑使用这些药物来治疗中共病毒。到了某个时候，他们将不得不承认自己错了，而且这可能是导致数百万人死于这种致命病毒的原因。
+
+Gateway Pundit网站曾广泛报道了美国疾病控制与预防中心导致数千美国人死亡。
+
+这份新的国际报告显示，伊维菌素在预防和降低中共病毒死亡率方面表现非常出色。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ivermectin-study-success-01.jpg)
+
+
+
+图片来源：thegatewaypundit.com
+
+
+伊维菌素的效果优于其他药物。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ivermectin-study-success-01-1.jpg)
+
+
+
+图片来源：thegatewaypundit.com
+
+
+这是整个完整的[研究报告](https://www.scribd.com/document/536540814/Ivermectin-Study-Continues-to-Show-Promising-Results#download&amp;from_embed)，供阅读。
+
+**参考新闻：**[WONDER DRUG: New International Ivermectin Report of 64 Studies Shows 86% Success as Prophylaxis and 67% Success in Early Treatment (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/11/wonder-drug-new-international-ivermectin-report-64-studies-shows-86-success-prophylaxis-67-success-early-treatment/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

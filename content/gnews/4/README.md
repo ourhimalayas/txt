@@ -2,23 +2,37 @@
 ---
 
 
-## 人类社会文明进入了一个崭新的时代
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1636403/)
+## 新中国联邦人当“德财兼备”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636427/)
 
-**作者：**天空的鸿雁
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-02-at-9.39.40-PM-edited.jpeg)图片来源：Gnews
-昨天看了GTV关于喜联储首日开盘上市直播，从第一个喜币进行交易起始，就预示着地球人类社会文明进入了一个崭新的时代！未来它将进入千家万户的生活中，进入金融、商贸、生活、消费等个个领域中，并且是全球流通性的货币。喜币与美元自由互换机制，就是虚拟喜币具有法定货币的实质意义，它具有虚拟货币的发行权、定价权；具有与其它国家法定货币全球流通的同等地位。
+作者：香草山农场 – 恩永存
 
-我们新中国联邦做到了！就在今天，喜币使世界人类文明进步向前跨跃了一大步！使人类社会文明进入了一个崭新的时代！我们新中国联邦人都应该为此感到骄傲和自豪!
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-新中国联邦肩负着人类文明发展的历史使命！我们新中国联邦人也承载着重任，铲除世间的的邪恶，匡夫正义、弘扬正道主义，要让所有人都能得到公平、公正、信仰自由，法治、民主、有尊严的生活状态。这是我们新中国联邦战友们的责任和目标。
+在11月1日喜币上市的当天，文贵先生在直播中与战友们讨论了德与财的相关话题。为此，文贵先生专门提到了三个词——“忠诚”、“奉献”和“善待”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-19.jpg)
+首先，忠诚意味着诚实人做善事，我们新中国联邦一定要反对假忠诚。其次， 奉献代表着无私且甘心地给予他人，其本质就是爱，以及为爱的对象尽自己的本分。接着，文贵先生向战友们提出“善待”的要求，即使大家拥有了钱财，也需善待父母、善待家人、善待战友、善待他人，同时，文贵先生希望战友们做钱财的主人，不要变成钱财的奴隶。
 
-驱尽阴霾，铲除邪恶，让阳光照亮大地，让爱心温暖人间，新中国联邦人不仅仅要建立自己的体系、政权，也将会带领全世界爱和平，有信仰、追求平等、法治、自由、民主的人们进入新时代，我们的前方任重道远，责任重大，喜马拉雅就是我们的目标，一个恒定不变的真理就是坚持。坚持我们的信仰到最后，胜利只属于英勇无畏的强者！新中国联邦的战友们加油！紧跟七哥！紧跟爆料革命！有了喜联储，喜币、喜美元做后盾，我们就像有了无穷无尽的子弹，加油干Take Down ccp !
+最后，文贵先生再次强调了新中国联邦人“唯真不破”的核心——其实质就是真理，即万事万物的原理，它源于真善美，合乎大爱。然大爱即大德，大爱存于心，大德显于行。因此，能辨善恶，做善事，为善人，用我们所拥有的钱财去爱人，才是我们所追求的目标。
 
-编辑/发布：LILY
+参考链接：
 
-20211103
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+[2021年11月01日 “HCOIN TO THE MOON” 喜马拉雅币上市庆典 （上）](https://gtv.org/video/id=618159b92051c747ccf8c38c)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编/编辑：Irene木木
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
