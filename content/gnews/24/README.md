@@ -2,20 +2,36 @@
 ---
 
 
-## 接种和未疫苗的人会一样传播 Delta 变体
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1636327/)
+## 新中国联邦人当“德财兼备”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636427/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11031-1.jpg)图片来自路透社
-发表在《柳叶刀》小组的传染病医学杂志上的一项研究表明疫苗保护的局限性：接种了双剂量新冠疫苗并感染了冠状病毒 delta 变体的个人与未接种疫苗的人有着非常相似的传播疾病的速度。
+作者：香草山农场 – 恩永存
 
-在英国进行的为期一年的研究共监测了 621 名出现新冠病毒症状的人，研究人员得出结论：感染 delta 变体的接种疫苗个体的感染率为 25%，而未接种疫苗的个体感染率为 38%。当你去看家庭接触者时，这两个指数更接近，其中接种疫苗但有症状的受试者的感染率为 25%，而未接种疫苗的受试者为 23%。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-研究人员在他们的结论中明确表示：“尽管目前的疫苗在预防新冠病毒引起的严重疾病和死亡方面仍然有效，但结果表明，单独接种疫苗不足以防止 delta 变体在家庭环境中的传播”。
+在11月1日喜币上市的当天，文贵先生在直播中与战友们讨论了德与财的相关话题。为此，文贵先生专门提到了三个词——“忠诚”、“奉献”和“善待”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-19.jpg)
+首先，忠诚意味着诚实人做善事，我们新中国联邦一定要反对假忠诚。其次， 奉献代表着无私且甘心地给予他人，其本质就是爱，以及为爱的对象尽自己的本分。接着，文贵先生向战友们提出“善待”的要求，即使大家拥有了钱财，也需善待父母、善待家人、善待战友、善待他人，同时，文贵先生希望战友们做钱财的主人，不要变成钱财的奴隶。
 
-原文链接：[https://europa.today.it/attualita/vaccinati-trasmettono-variante-delta-come-non-vaccinati.html#\_ga=2.75835285.1002968678.1635926454-145009575.1615972944](https://europa.today.it/attualita/vaccinati-trasmettono-variante-delta-come-non-vaccinati.html#_ga=2.75835285.1002968678.1635926454-145009575.1615972944)
+最后，文贵先生再次强调了新中国联邦人“唯真不破”的核心——其实质就是真理，即万事万物的原理，它源于真善美，合乎大爱。然大爱即大德，大爱存于心，大德显于行。因此，能辨善恶，做善事，为善人，用我们所拥有的钱财去爱人，才是我们所追求的目标。
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+参考链接：
+
+[2021年11月01日 “HCOIN TO THE MOON” 喜马拉雅币上市庆典 （上）](https://gtv.org/video/id=618159b92051c747ccf8c38c)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编/编辑：Irene木木
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
 
  
 

@@ -2,28 +2,26 @@
 ---
 
 
-## 港府连续三年出现财政赤字
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636557/)
+## 新书《真正的安东尼·福奇》即将上市
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636640/)
 
-作者：日本方舟农场 – Andy5
-
+作者：洛杉矶盘古农场 – 滴水穿石
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+相关消息称，新书《真正的安东尼·福奇》将于11月9日正式上市。据悉，书中详细地揭示了安东尼·福奇和他的制药团队是如何从疾病中获取丰厚的利润，以及他工作的这50年给美国公共卫生造成了何种灾难性的后果。
 
-当地时间10月29日，港府公布本财年度前6个月的财政状况，共赤字一千一百五十七亿港元。据悉，港府财政赤字始于2019年，正是光复香港时代革命之初。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-5.jpg)
-对此，郭先生在大直播中提到，中共认为，国家发展的必需品只有能源，但却不知，更为重要的是国人以及他们所需的自由创造的环境。因此，当香港失去了那些追求自由、民主的香港人，香港也就再无真正的发展。对于中共来说，他们所觊觎（jiyu）的只是那片土地和财富，绝对不是具有创造未来能力的人民。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-1.jpeg)
 
-参考链接：
+安东尼·福奇，美国国家过敏症和传染病研究所主任。数据显示，福奇每年以科学研究的名义，支配约61 亿美元的美国纳税人资金。而这些资金支持其研究所大量开发新药和疫苗，并逐渐转变为大型制药公司的产品孵化器。多年来，福奇获得了超乎想象的权利，比如，可以批准和授权相关药物和疫苗，或借联邦“知识与创新”领导人的名号，在军队实行独裁统治，包括允许委员会紧急使用授权新冠疫苗等。
 
-[香港本财政年度前6个月赤字逾1100亿港元](https://www.chinanews.com/ga/2021/10-29/9598198.shtml)
+但书中提到，福奇一再违反联邦法律，违规进行有毒的艾滋病和癌症化学疗法的致命实验。另外，福奇资助的一些疫苗给世界民众造成的伤害远超过它们声称的效用。
 
-[香港财政司司长:香港财政15年来首次出现赤字](https://news.sina.com.cn/o/2020-01-12/doc-iihnzhha2004482.shtml)
+参考链接：[My New Book — ‘The Real Anthony Fauci’ — Now Available for Pre-Order](https://childrenshealthdefense.org/defender/robert-f-kennedy-jr-book-the-real-anthony-fauci/)
 
-[上半年各地财政盘点，仅上海有“盈余”，地方财政平衡压力上升](https://www.yicai.com/news/101132981.html)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-总编：飞虹
-编辑：Kathy文艺
-校正/发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：Irene木木
+编辑：Irene木木 
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,11 +29,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

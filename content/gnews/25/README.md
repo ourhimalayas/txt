@@ -2,30 +2,35 @@
 ---
 
 
-## 有声|意大利政府首次向中共表达关切台海局势及新疆、香港人权问题
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1636318/)
+## 快讯：共和党人赢得弗吉尼亚州长选举
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1636419/)
 
-配音：香草山美食部 – 玫瑰园
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-10月31日，意大利外交部发布的新闻稿指出，G20会议期间，意大利外长迪马尤在29日与中共外长王毅会谈时明确表示，意大利政府很关切台湾海峡的紧张局势，希望两岸能以对话方式让情势和缓。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/V.png)nowhabersham.com
+被文贵先生称为美国2022、2024选举风向标的弗吉尼亚州长选举尘埃落定，共和党人格伦·扬金（Glenn Youngkin）险胜，CNN极不情愿地作出了预测【1】，并确认，称“共和党扬金在弗吉尼亚州州长竞选中获胜”。【2】
 
-此外，外长迪马尤「特别强调」意大利对新疆和香港人权问题的担忧，希望中共能和欧盟恢复有关人权问题的高级对话。
+文贵先生在下午的盖特中也表示出了期待，“弗吉尼亚的选举将再一次的震撼世界”【2】
 
-意大利是被中共深度蓝金黄的国家，也是欧盟及G7中最早参与中共一带一路的国家，是中共眼中视为囊中之物的欧盟前进堡垒。有专家分析，这次意大利政府首次敢于公开发表对于台湾、新疆、香港等被中共视为大忌议题的看法，显示随着民意对中共的不满，意大利政府已经见风转舵，明确改变对中共言听计从的态度，慢慢转回到西方民主价值的阵营中。
+笔者认为，如果没有奥巴马的作弊布局【3】，共和党会轻而易举地赢得该州的选举。弗吉尼亚2020总统大选在舞弊欺诈的嫌疑下，拜登比川普多了10个百分点，共和党司法审计的诉求还在进行中。
 
-文字版原文：[意大利政府首次向中共表达关切台海局势及新疆、香港人权问题](https://gnews.org/zh-hans/1634864/)
+笔者发稿时为止，新泽西的州长选举还在统计中，在统计超过78%的情况下，共和党人领先2.7万多张选票。【4】
 
-音频处理：喜山必胜Maverick
+文贵先生11月3日早在进行的大直播中爆料，弗吉尼亚、新泽西、夏威夷共和党人横扫各界选举，而且各位当选者都是坚定的新中国联邦的支持者。好戏正在上演！
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+有关链接：
+
+【1】[https://www.cnn.com/politics/live-news/election-day-results-11-02-21](https://www.cnn.com/politics/live-news/election-day-results-11-02-21)
+
+【2】[https://www.cnn.com/election/2021/results/virginia/governor](https://www.cnn.com/election/2021/results/virginia/governor)
+
+【3】[https://gettr.com/post/pfxjgo86f9](https://gettr.com/post/pfxjgo86f9)
+
+【4】[https://gnews.org/zh-hans/1634841/](https://gnews.org/zh-hans/1634841/)
+
+[https://www.cnn.com/election/2021/results/new-jersey/governor](https://www.cnn.com/election/2021/results/new-jersey/governor)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

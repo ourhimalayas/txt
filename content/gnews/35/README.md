@@ -2,21 +2,32 @@
 ---
 
 
-## 中共国将不再享受贸易优惠待遇
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1636229/)
+## 有声|德国教育部长要求关闭所有孔子学院
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1636272/)
 
-撰稿：葛大饼
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片5.png)
-图片来源： Line Today
+配音：香草山美食部 – 玫瑰园
 
-根据2021年11月3日 网易报道，中国海关总署在官网发布公告，自 12月1日起，停止签发输往有27个成员国的欧盟、英国、加拿大、土耳其、乌克兰、列支敦士登「普惠制」原产地证书（Form A），间接证实欧盟等32国取消中国的最惠国待遇。
+默克尔刚刚于10月26日正式下台，在任教育部长卡利斯泽克就向德国大学校长会议和各州教育部长会议写了一封信，要求大学“重新评估孔子学院在德国高等学院群内的作用”。
 
-**海关法专业资深律师吴国雄对此表示，中国加入世界贸易组织（WTO)获得了最惠国待遇，**最惠国待遇是互相给予优惠，既然是互惠的，如单方取消即可能违反公约，必然导致贸易纠纷、贸易报复。
+她说，很长时间以来，她就对19所孔子学院在德国高校的影响满怀担忧。目前来看，孔子学院对德国学术自由的影响是长远的，不可接受的。
 
-最惠国待遇（GSP）是指发达国家给约发展中国家的出口商品，在最惠国待遇的基础上，对进口关税进行削减或免除。笔者曾经在国内从事过外贸行业，好些出口企业就是靠出口退税存活的，这个最惠国待遇取消，墙内又是倒下一大片，最终还是老百姓吃苦。
+此前，有两所大学迫于中共驻徳总领事冯海阳的压力，取消了德文书《习近平传》的推介会。该书的作者之一奥斯特批评孔子学院是“北京在德国的长臂”。另一位作者则称，不能谈论国家领导人，在中国司空见惯，但在德国是不能容忍的。该事件直接引发教育部长要求关闭德国境内所有的孔子学院。
 
-**新闻来源：https://c.m.163.com/news/a/GNS6MK0H0551SI3J.html?spss=today-news-hotrank**
+这是继瑞典与挪威之后，又一个不愿被中共通过文化输出，进行侵蚀和操控的国家。
 
+文字版原文：[德国教育部长要求关闭所有孔子学院](https://gnews.org/zh-hans/1634878/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

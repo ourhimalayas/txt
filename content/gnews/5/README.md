@@ -2,31 +2,34 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月03日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1636582/)
+## 坎特国会山前声援中国人权 指责NBA保持沉默
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636651/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO.jpg)
+作者：澳喜农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+此前，美国NBA球员坎特曾为西藏人权发声。10月30日，坎特于华盛顿国会山下再次参加为中国人权声援的集会，替新疆受打压的维吾尔族和其他少数族裔再度向世界发出呐喊。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-2.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide10-2.jpeg)
 
-视频参看：2021.11.03早GTV新闻访谈
+集会上，坎特身穿印有四面旗帜的T恤，分别是代表维吾尔人的蓝旗，香港行政区区旗，西藏雪山狮子旗和东蒙古人民自治政府的旗帜。坎特在发言时并没有只局限于新疆地区，他也鼓励包括西藏人、台湾人、香港人在内的所有人团结在一起，为自由努力。
 
-[https://gtv.org/broadcast/watch/6182803211d186296800e0ef](https://gtv.org/broadcast/watch/6182803211d186296800e0ef)
+另外，坎特指出，对于中共在人权上的恶行，NBA居然一直保持沉默。为此，坎特还批评说，作为NBA运动员，他为NBA感到悲哀和羞耻。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+参考链接: [NBA球员坎特加入中国人权集会 国会山下斥责NBA保持沉默](https://www.rfa.org/mandarin/yataibaodao/shaoshuminzu/wy-10302021190844.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：飞虹
+编辑：Irene木木
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

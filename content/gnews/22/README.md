@@ -2,58 +2,37 @@
 ---
 
 
-## 最新报告显示，伊维菌素有86%的预防率和67%的早期治疗率
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1636356/)
+## 喜币上市，战友仍需健身健心
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636450/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：纽约香草山文艺部 – 宁文静
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ivermectin-_1794c8dfc62_large.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+2021年11月1日，爆料革命迎来了一个重大的历史时刻——喜币上市——很多人的人生也因此发生了翻天覆地的变化。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-9.jpg)
+对此，郭先生直播中一再警醒战友们，既要健身，更要健心。郭先生提到，喜币上市之后，战友们会因着自身的富有，招来那些没有投资机会者的羡慕和嫉妒，这是人的本性之恶。所以，郭先生提醒战友们，千万不要有暴富心态，且在面对巨额财富时，一定要保持住本心，不能贪婪。
 
+郭先生还告诉战友们，在正道主义的路上，健身是为了磨练意志，坚持到最后的那一刻；健心，则是为了不忘初衷，牢记使命。
 
-图片来源：gulfnews.com
+参考链接：
 
+[2021年10月29日 文贵大直播：格芯在美国上市的重大意义和其未来价值，格芯与数字货币紧密相连；喜币周一上市会带来什么样的改变；房地产会在明年5-7月爆雷，是中共制造的最大的噩梦](https://gtv.org/video/id=617be96f11d1862968fccc4b)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-编译：小红帽
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-一份[包含64项研究的最新国际报告](https://ivmmeta.com/ivm-meta.pdf)显示，伊维菌素作为中共病毒（COVID-19）预防措施的成功率为86%，而在的早期中共病毒治疗中的成功率为67%。
-
-这些结果同时亦反映了过去一年中[关于羟氯喹（对中共病毒有效）的290多项研究报告](https://c19hcq.com/)。
-
-尽管这些药物在同行评审研究中持续有效，但美国疾病控制与预防中心(CDC) 、福奇博士和美国食品药品监督管理局(FDA)嘲笑使用这些药物来治疗中共病毒。到了某个时候，他们将不得不承认自己错了，而且这可能是导致数百万人死于这种致命病毒的原因。
-
-Gateway Pundit网站曾广泛报道了美国疾病控制与预防中心导致数千美国人死亡。
-
-这份新的国际报告显示，伊维菌素在预防和降低中共病毒死亡率方面表现非常出色。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ivermectin-study-success-01.jpg)
-
-
-
-图片来源：thegatewaypundit.com
-
-
-伊维菌素的效果优于其他药物。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ivermectin-study-success-01-1.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-
-图片来源：thegatewaypundit.com
-
-
-这是整个完整的[研究报告](https://www.scribd.com/document/536540814/Ivermectin-Study-Continues-to-Show-Promising-Results#download&amp;from_embed)，供阅读。
-
-**参考新闻：**[WONDER DRUG: New International Ivermectin Report of 64 Studies Shows 86% Success as Prophylaxis and 67% Success in Early Treatment (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/11/wonder-drug-new-international-ivermectin-report-64-studies-shows-86-success-prophylaxis-67-success-early-treatment/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

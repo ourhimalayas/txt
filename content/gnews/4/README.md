@@ -2,39 +2,22 @@
 ---
 
 
-## 中共地方债务借新还旧，将面临22万亿元的地方债到期
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636590/)
+## 文贵爆料 3/11: “毁人不倦&#8221;的”圣人“朱镕基
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1636652/)
 
-作者：日本方舟农场 – Andy5
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-1.jpg)
+提到总理朱镕基，总让人有一种高山仰止的敬仰之情，然而，世人都错看了他。郭文贵先生在10月29日的大直播中说，朱镕基视百姓的生命如草芥，是大秦赵高和李斯的综合体。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+房地产税什么时候开始？房地产税是真正的是从93年到95年就开始讨论，当时叫中房，当时中房是代表中国房地产的政策，然后南部叫深房，叫北有中房、南有深房。朱镕基太王八蛋了。中国老百姓当年下岗的时候啊，是带着老婆卖淫的、带着闺女卖淫的，报告他以后，朱镕基是哈哈大笑的。他说我们还再能稳定个十年、二十年，就这个畜生。
 
-当地时间11月1日，中共媒体报道称，中共前三季度的政府地方债券发行规模近2.9万亿。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-8.jpg)
-此前，中共发布的报告中提到，2021年至2026年间，中共的地方债将有22万亿元到期。该报告还明确地指出，许多地方政府只能通过借新还旧不断滚动债务。数据显示，中共国债务余额超过1.5万亿元的省份已增加至9个。
+朱镕基当时就说了，房地产税是解决所有中国历史上经济问题的最重要的标志，这是我朱镕基一九八七年讲的，你们去查查啊，说征房地产税之日就是中国经济所有历史问题都解决了。在这之前就卖地，叫地方债务，而且炒作、洗钱、再洗钱，然后拿着这些热钱到外国去并购。我跟吴仪聊了七个小时。她说到朱镕基的时候，她说，朱镕基这个家伙心里有个魔，我越看他越像当年的毛泽东附体，她说他把老百姓死亡当成兴奋剂。
 
-相关评论指出，中共将要爆雷的不止是恒大等地产企业，甚至连地方政府都可能因还不上债务而爆雷。中共现在推出的房地产税很可能就是其债务上“拆东墙、补西墙”的策略之一。
+郭先生说，朱镕基这个家伙是个中国邪恶的赵高和李斯综合体啊！
 
 参考链接：
 
-[地方债发行提速增效 前3季度发行规模近2.9万亿](https://finance.sina.com.cn/roll/2021-11-01/doc-iktzscyy2943735.shtml?cref=cj)
-
-[报告：地方债务迎来到期高峰期，未来五年至少偿还22万亿元](https://finance.sina.com.cn/tech/2021-10-26/doc-iktzqtyu3653084.shtml)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-总编：飞虹
-编辑：AN
-校正/发稿：Fei797
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+[2021年11月03 日 文贵大直播](https://gettr.com/streaming/pfyckddba1)
 
  
 
