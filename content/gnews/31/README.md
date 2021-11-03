@@ -2,20 +2,34 @@
 ---
 
 
-## 接种和未疫苗的人会一样传播 Delta 变体
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1636327/)
+## 快讯：共和党人赢得弗吉尼亚州长选举
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1636419/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11031-1.jpg)图片来自路透社
-发表在《柳叶刀》小组的传染病医学杂志上的一项研究表明疫苗保护的局限性：接种了双剂量新冠疫苗并感染了冠状病毒 delta 变体的个人与未接种疫苗的人有着非常相似的传播疾病的速度。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-在英国进行的为期一年的研究共监测了 621 名出现新冠病毒症状的人，研究人员得出结论：感染 delta 变体的接种疫苗个体的感染率为 25%，而未接种疫苗的个体感染率为 38%。当你去看家庭接触者时，这两个指数更接近，其中接种疫苗但有症状的受试者的感染率为 25%，而未接种疫苗的受试者为 23%。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/V.png)nowhabersham.com
+被文贵先生称为美国2022、2024选举风向标的弗吉尼亚州长选举尘埃落定，共和党人格伦·扬金（Glenn Youngkin）险胜，CNN极不情愿地作出了预测【1】，并确认，称“共和党扬金在弗吉尼亚州州长竞选中获胜”。【2】
 
-研究人员在他们的结论中明确表示：“尽管目前的疫苗在预防新冠病毒引起的严重疾病和死亡方面仍然有效，但结果表明，单独接种疫苗不足以防止 delta 变体在家庭环境中的传播”。
+文贵先生在下午的盖特中也表示出了期待，“弗吉尼亚的选举将再一次的震撼世界”【2】
 
-原文链接：[https://europa.today.it/attualita/vaccinati-trasmettono-variante-delta-come-non-vaccinati.html#\_ga=2.75835285.1002968678.1635926454-145009575.1615972944](https://europa.today.it/attualita/vaccinati-trasmettono-variante-delta-come-non-vaccinati.html#_ga=2.75835285.1002968678.1635926454-145009575.1615972944)
+笔者认为，如果没有奥巴马的作弊布局【3】，共和党会轻而易举地赢得该州的选举。弗吉尼亚2020总统大选在舞弊欺诈的嫌疑下，拜登比川普多了10个百分点，共和党司法审计的诉求还在进行中。
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+笔者发稿时为止，新泽西的州长选举还在统计中，在统计超过78%的情况下，共和党人领先2.7万多张选票。【4】
+
+文贵先生11月3日早在进行的大直播中爆料，弗吉尼亚、新泽西、夏威夷共和党人横扫各界选举，而且各位当选者都是坚定的新中国联邦的支持者。好戏正在上演！
+
+有关链接：
+
+【1】[https://www.cnn.com/politics/live-news/election-day-results-11-02-21](https://www.cnn.com/politics/live-news/election-day-results-11-02-21)
+
+【2】[https://www.cnn.com/election/2021/results/virginia/governor](https://www.cnn.com/election/2021/results/virginia/governor)
+
+【3】[https://gettr.com/post/pfxjgo86f9](https://gettr.com/post/pfxjgo86f9)
+
+【4】[https://gnews.org/zh-hans/1634841/](https://gnews.org/zh-hans/1634841/)
+
+[https://www.cnn.com/election/2021/results/new-jersey/governor](https://www.cnn.com/election/2021/results/new-jersey/governor)
 
  
 

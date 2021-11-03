@@ -2,30 +2,21 @@
 ---
 
 
-## 有声|多国同时取消对中共国普惠制关税优惠国待遇
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1636283/)
+## 接种和未疫苗的人会一样传播 Delta 变体
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1636327/)
 
-配音：香草山美食部 – 玫瑰园
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11031-1.jpg)图片来自路透社
+发表在《柳叶刀》小组的传染病医学杂志上的一项研究表明疫苗保护的局限性：接种了双剂量新冠疫苗并感染了冠状病毒 delta 变体的个人与未接种疫苗的人有着非常相似的传播疾病的速度。
 
-10月30日，据盖特消息，自2021年12月1日起，欧盟27国、英国、加拿大、土耳其、乌克兰和列支敦士登等32个国家将取消对中共国的普惠制关税优惠国待遇。报道称，截至目前，仍旧保留中共国普惠制待遇的只余三国：挪威、澳大利亚和新西兰。
+在英国进行的为期一年的研究共监测了 621 名出现新冠病毒症状的人，研究人员得出结论：感染 delta 变体的接种疫苗个体的感染率为 25%，而未接种疫苗的个体感染率为 38%。当你去看家庭接触者时，这两个指数更接近，其中接种疫苗但有症状的受试者的感染率为 25%，而未接种疫苗的受试者为 23%。
 
-“普惠制” 是普遍优惠制度的简称，是发达国家给予发展中国家及地区的出口制成品和半制成品普遍的、非歧视的、非互惠的优惠关税制度。中共国自2001年加入世贸组织后，除最惠国待遇外，还享受普惠制待遇。
+研究人员在他们的结论中明确表示：“尽管目前的疫苗在预防新冠病毒引起的严重疾病和死亡方面仍然有效，但结果表明，单独接种疫苗不足以防止 delta 变体在家庭环境中的传播”。
 
-据了解，土耳其、越南、印尼、孟加拉国、柬埔寨等国家依然享有普惠制待遇。这将有利于这些国家成为新兴的劳动密集型出口国，从而打破中共国在全球产品供应链中的垄断。
+原文链接：[https://europa.today.it/attualita/vaccinati-trasmettono-variante-delta-come-non-vaccinati.html#\_ga=2.75835285.1002968678.1635926454-145009575.1615972944](https://europa.today.it/attualita/vaccinati-trasmettono-variante-delta-come-non-vaccinati.html#_ga=2.75835285.1002968678.1635926454-145009575.1615972944)
 
-文字版原文：[多国同时取消对中共国普惠制关税优惠国待遇](https://gnews.org/zh-hans/1634887/)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
-音频处理：喜山必胜Maverick
-
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

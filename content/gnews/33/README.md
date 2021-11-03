@@ -2,43 +2,58 @@
 ---
 
 
-## 有声|新型的新中国联邦人，新的信仰，新的宗教的诞生
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1636303/)
+## 最新报告显示，伊维菌素有86%的预防率和67%的早期治疗率
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1636356/)
 
-配音：香草山美食部 – 玫瑰园
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-11月1日举世瞩目的喜币终于问世了！拥有巨大财富的新型的新中国联邦人，新的信仰和新的宗教也随之应运而生！这不仅仅是钱的问题！而是用金钱的力量来消灭邪恶的中共和黑暗势力！这是一种新的信仰和宗教，即坚信上天会引导我们采取行动来战胜黑暗势力，为人类带来一个新的美好的世界！我们坚信我们一定会成功！
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ivermectin-_1794c8dfc62_large.jpg)
 
-七哥给我们新型的新中国联邦人提出了三个问题，我们草根战友们在给出各自的回答后得到的都是七哥的“完全不对”！大家在捧腹大笑之余，又不得不承认贫穷，被洗脑，和无知限制了我们的想象。同时，我们也懂得了七哥这三个问题的重要性！
 
-七哥的第一个问题是：什么叫忠诚？
 
-忠诚欺骗了我们一辈子！家庭，朋友，合作者都要求我们忠诚。东西方传统忠诚是衷心，都是中心化。而我们信奉的忠诚是包括财富，人格，政治等一切的去中心化！诚是核心，
+图片来源：gulfnews.com
 
-忠诚就是不要虚假的忠诚，要去中心化，要诚在于心，要诚待父母，诚待朋友，诚待战友。
 
-七哥的第二个问题是：什么叫奉献？
+编译：小红帽
 
-传统的奉献，奉就是无我，把你的所有一切都献出。一旦奉了，你就是无条件地要献出一切，献就是祭祀！那谁要是要求你奉献就是骗子，是我们的敌人。人人都是平等的，为什么我要奉献给你啊？任何宗教让你奉献时，它就不是好的。故我们要把奉献改成献奉，就是愿给多少给多少。今天的喜币就是七哥献奉给战友的，是平等的。你可以买也可以不买。
+一份[包含64项研究的最新国际报告](https://ivmmeta.com/ivm-meta.pdf)显示，伊维菌素作为中共病毒（COVID-19）预防措施的成功率为86%，而在的早期中共病毒治疗中的成功率为67%。
 
-七哥的第三个问题是：唯真不破追求的结果是什么？要达到什么目的？
+这些结果同时亦反映了过去一年中[关于羟氯喹（对中共病毒有效）的290多项研究报告](https://c19hcq.com/)。
 
-爆料革命的唯真不破的核心目标就是要去假存真，就是要知善恶，要有善恶之分，要以善去恶。七哥希望我们要善待自己，家人，朋友和战友，要善待财富。 新型的新中国联邦人将遵循七哥指明的三个新的概念，以崭新的形象出现在世人面前，不愧于新中国联邦人的称号！
+尽管这些药物在同行评审研究中持续有效，但美国疾病控制与预防中心(CDC) 、福奇博士和美国食品药品监督管理局(FDA)嘲笑使用这些药物来治疗中共病毒。到了某个时候，他们将不得不承认自己错了，而且这可能是导致数百万人死于这种致命病毒的原因。
 
-文字版原文：[新型的新中国联邦人，新的信仰，新的宗教的诞生](https://gnews.org/zh-hans/1634002/)
+Gateway Pundit网站曾广泛报道了美国疾病控制与预防中心导致数千美国人死亡。
 
-音频处理：喜山必胜Maverick
+这份新的国际报告显示，伊维菌素在预防和降低中共病毒死亡率方面表现非常出色。
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ivermectin-study-success-01.jpg)
 
+
+
+图片来源：thegatewaypundit.com
+
+
+伊维菌素的效果优于其他药物。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ivermectin-study-success-01-1.jpg)
+
+
+
+图片来源：thegatewaypundit.com
+
+
+这是整个完整的[研究报告](https://www.scribd.com/document/536540814/Ivermectin-Study-Continues-to-Show-Promising-Results#download&amp;from_embed)，供阅读。
+
+**参考新闻：**[WONDER DRUG: New International Ivermectin Report of 64 Studies Shows 86% Success as Prophylaxis and 67% Success in Early Treatment (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/11/wonder-drug-new-international-ivermectin-report-64-studies-shows-86-success-prophylaxis-67-success-early-treatment/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

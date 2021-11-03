@@ -2,39 +2,52 @@
 ---
 
 
-## 港府连续三年出现财政赤字
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636557/)
+## 中共国军方的人工智能系统用于对台作战军事演习
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1636606/)
 
-作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1635668694-617e52d6a81cd.jpg)图片来源：twitter Ryan Fedasiuk
+摘要翻译：
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台北（台湾新闻）——乔治城大学的安全与新兴技术中心(CSET)发布的一份新报告显示，中国人民解放军 (PLA) 正在使用人工智能来模拟针对入侵台湾以及其他军事目标的军事演习。
 
-当地时间10月29日，港府公布本财年度前6个月的财政状况，共赤字一千一百五十七亿港元。据悉，港府财政赤字始于2019年，正是光复香港时代革命之初。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-5.jpg)
-对此，郭先生在大直播中提到，中共认为，国家发展的必需品只有能源，但却不知，更为重要的是国人以及他们所需的自由创造的环境。因此，当香港失去了那些追求自由、民主的香港人，香港也就再无真正的发展。对于中共来说，他们所觊觎（jiyu）的只是那片土地和财富，绝对不是具有创造未来能力的人民。
+这份题为“利用闪电：中国军队如何采用人工智能”的报告审查了解放军和国有国防企业去年授予的近350份人工智能相关设备合同，以跟踪中国对该技术的采用情况。
 
-参考链接：
+CSET研究员瑞安·费达修克（Ryan Fedasiuk）周四（10月28日）在推特上发帖说“具体来说，我们发现解放军正在购买旨在识别海底车辆、台湾行动的军事演习、追踪美国海军舰艇和部署电子对抗措施等任务的人工智能系统”。
 
-[香港本财政年度前6个月赤字逾1100亿港元](https://www.chinanews.com/ga/2021/10-29/9598198.shtml)
+他接着说：“我们发现中共国的军民融合发展战略正在带来实实在在的红利。在我们数据集中的273家人工智能设备供应商中，60%是私营公司。绝大多数规模都非常小，仅在过去10年才成立。”
 
-[香港财政司司长:香港财政15年来首次出现赤字](https://news.sina.com.cn/o/2020-01-12/doc-iihnzhha2004482.shtml)
+该报告的执行摘要称，美国决策者必须了解中共国军方已经掌握的商业化现成的人工智能技术，并列举了台湾问题的危机威胁。
 
-[上半年各地财政盘点，仅上海有“盈余”，地方财政平衡压力上升](https://www.yicai.com/news/101132981.html)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-总编：飞虹
-编辑：Kathy文艺
-校正/发稿：Fei797
+报告援引一名解放军指挥官的话称，中共国经常使用军事演习来弥补实际作战经验的不足，并有效地测试和优化作战计划。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+“毫无疑问，解放军已经授予了用于专业军事教育项目的基于人工智能的专有军事演习软件签订了合同。例如，渊亭科技宣传了一款名为“AlphaWar”的基于人工智能的军事演习模拟器，其灵感来自DeepMind的星际争霸人工智能系统 AlphaStar”报告写道。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+该报告还讨论了台湾与海底战的关系。
+
+十年前，解放军海军在反潜战（ASW）方面的能力有限。然而今天，它正在对支持人工智能的海底指挥自动化（ISR）系统进行大量投资，自2017年以来，随着“水下长城”的建设——这是一个关于其水下声学传感器网络的宏伟称号—该系统加快了速度。
+
+报告指出，这些新技术可能会在危机中挑战美国及其盟国的潜艇部队。
+
+这些发现在9月份宣布澳英美（AUKUS）协议后，人们对潜艇战重新产生兴趣的时候出现的。这协议涉及澳大利亚、英国和美国之间的核技术转让和尖端潜艇的建造，被视为对台湾的安全特别重要，并已被美国企业研究所等几个著名智囊团分析.
+
+简评：
+
+今年中共国军机飞临台湾的防空识别区挑衅台湾的新闻经常出现，而现在中共国军方人工智能系统用于对台作战军事演习的细节和智能设备供应商也曝光在大众眼里，充分暴露了中共对自由台湾的觊觎。
+
+香港在中共的统治下已经沦陷，爆料革命和新中国联邦的爆料，让全世界了解了中共对香港年青人的暴行。对于台湾，我们真心地希望战争不要发生。为了做到这一点，我们需要通过我们自己的GTV，GNEWS和GETTR，反映真实信息、真正言论自由的社交媒体平台，将中共的丑恶嘴脸揭露在世界面前，汇集世界正义力量共同推翻中共，还世界以和平。
+
+新闻链接：[Chinese military’s AI systems used to wargame Taiwan operations: Report](https://www.taiwannews.com.tw/en/news/4331034)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

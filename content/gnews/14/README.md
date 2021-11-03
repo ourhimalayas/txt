@@ -2,28 +2,26 @@
 ---
 
 
-## 中共地方债务借新还旧，将面临22万亿元的地方债到期
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636590/)
+## 新书《真正的安东尼·福奇》即将上市
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636640/)
 
-作者：日本方舟农场 – Andy5
-
+作者：洛杉矶盘古农场 – 滴水穿石
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+相关消息称，新书《真正的安东尼·福奇》将于11月9日正式上市。据悉，书中详细地揭示了安东尼·福奇和他的制药团队是如何从疾病中获取丰厚的利润，以及他工作的这50年给美国公共卫生造成了何种灾难性的后果。
 
-当地时间11月1日，中共媒体报道称，中共前三季度的政府地方债券发行规模近2.9万亿。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-8.jpg)
-此前，中共发布的报告中提到，2021年至2026年间，中共的地方债将有22万亿元到期。该报告还明确地指出，许多地方政府只能通过借新还旧不断滚动债务。数据显示，中共国债务余额超过1.5万亿元的省份已增加至9个。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-1.jpeg)
 
-相关评论指出，中共将要爆雷的不止是恒大等地产企业，甚至连地方政府都可能因还不上债务而爆雷。中共现在推出的房地产税很可能就是其债务上“拆东墙、补西墙”的策略之一。
+安东尼·福奇，美国国家过敏症和传染病研究所主任。数据显示，福奇每年以科学研究的名义，支配约61 亿美元的美国纳税人资金。而这些资金支持其研究所大量开发新药和疫苗，并逐渐转变为大型制药公司的产品孵化器。多年来，福奇获得了超乎想象的权利，比如，可以批准和授权相关药物和疫苗，或借联邦“知识与创新”领导人的名号，在军队实行独裁统治，包括允许委员会紧急使用授权新冠疫苗等。
 
-参考链接：
+但书中提到，福奇一再违反联邦法律，违规进行有毒的艾滋病和癌症化学疗法的致命实验。另外，福奇资助的一些疫苗给世界民众造成的伤害远超过它们声称的效用。
 
-[地方债发行提速增效 前3季度发行规模近2.9万亿](https://finance.sina.com.cn/roll/2021-11-01/doc-iktzscyy2943735.shtml?cref=cj)
+参考链接：[My New Book — ‘The Real Anthony Fauci’ — Now Available for Pre-Order](https://childrenshealthdefense.org/defender/robert-f-kennedy-jr-book-the-real-anthony-fauci/)
 
-[报告：地方债务迎来到期高峰期，未来五年至少偿还22万亿元](https://finance.sina.com.cn/tech/2021-10-26/doc-iktzqtyu3653084.shtml)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-总编：飞虹
-编辑：AN
-校正/发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：Irene木木
+编辑：Irene木木 
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,11 +29,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
