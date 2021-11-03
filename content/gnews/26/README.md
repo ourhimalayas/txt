@@ -2,47 +2,46 @@
 ---
 
 
-## 2021/11/02 文贵先生盖特直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1636581/)
+## 中共收紧人口流动，多地熔断“跨省游” 并削减国际航班数量
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636637/)
 
-[![](https://spark.adobe.com/page/W3n2PhSabz21M/images/ec9a64bf-a1dd-4a9d-bd3c-77c9236a1e08.png?asset_id=5f7b16fd-9bec-40e7-9949-9c8d7c4fbb13&amp;img_etag=%227dc92dd87aee53c6a45f7444831c6798%22&amp;size=2560)](https://spark.adobe.com/page/W3n2PhSabz21M/images/ec9a64bf-a1dd-4a9d-bd3c-77c9236a1e08.png?asset_id=5f7b16fd-9bec-40e7-9949-9c8d7c4fbb13&amp;img_etag=%227dc92dd87aee53c6a45f7444831c6798%22&amp;size=1024)
-**[文贵先生盖特链接](https://gettr.com/post/pfv59d80a7)**
+作者：美东香草山 – 山本不惑 / 纽约香草山文艺部 – 宁文静
 
-尊敬的战友们好，你们传播病毒、疫苗、解药和香港危机的真相了吗? 战友们的信息不能一一回复，所以，直播一下，同时试一下手机盖特直播的感觉。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-都已经11月份了，中央公园的树木仍然是绿色的，全球气候真的变暖了。文贵先生的一位从华盛顿来这里开会的朋友说: 全球真的变暖了，这位朋友曾经也是一位反对地球变暖学说的人。
+当地时间11月1日，据中共媒体报道，从10月27日起，内蒙古额济纳旗开始分批转运滞留当地的旅客，截至31日，已完成九千一百多人的运送。此前，因额济纳旗的新冠疫情，有近万名游客滞留该地区。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-2.jpg)
+另有消息指出，相较于中共在今年上半年大量鼓励民众旅行、拉动内需的政策，此次内蒙古疫情后，中共一改口风，要求各地严格执行“跨省游”的熔断机制。同时，中共民航局宣布大幅削减国际客运航班，将冬春飞行航班数下调至每周408次，可谓是将国门越关越紧。为此，中共还向民众大肆宣传“短途游”、“云旅游”等概念。
 
-张高丽和一位十几岁的小女孩(彭帅)谈恋爱，还和她讲政治、讲哲学，真是荒谬至极。张高丽第一次和那个女孩发生性关系的时候，彭帅才11岁左右，就像孟建柱对待红黄蓝幼儿园一样。当年张高丽就是因为喊江泽民万岁而被重用进了常委。明天文贵先生继续直播，和郝海东夫妇谈谈这些情况。
+有关评论称，中共正在试图以疫情为外衣，掩盖其限制墙内民众人口流动的真正目的。 而今，中共正在为即将到来的巨大经济崩塌做准备，封国、封城、封户、限制人员流动是其必然的手段。
 
-昨天真的是历史性的一天，很多事物都被改写了。虽然战友们手里有了喜币，但我们的任务是灭共，灭共的路上没有周末和假日，也没有休息，只有调整。灭共是现在唯一的核心任务，为的是建立一个真正的民选政府和信仰自由、法制独立，真正的以民为本的新中国联邦政权。
+参考链接：
 
-直播前一位美国的朋友说文贵先生创造了财富的神话中的神话，超越了他父亲当年创造的辉煌事业。文贵先生当年创立的裕达、盘古、海通、方正、中阿基金、日本基金和新加坡基金，背后的重大交易都是文贵先生参与进行的。当你拥有财富的时候，要不就有驾驭财富的能力，要不你就成为财富的奴隶，死在利益上。记住文贵先生说的话，喜联储和喜币才刚刚开始，都还没有开始流通呢，大机构还没有登场。接下来有喜美元帐号和存款的，有7% 的利息，利息支付用H- Coin ，三年、五年、七年期。7% – 10% 高过美国国债，永远不会贬值，再加上H-Coin，3年才会形成流通。
+[内蒙古额济纳旗基本完成滞留游客转运工作](http://district.ce.cn/newarea/roll/202111/01/t20211101_37047083.shtml)
 
-昨天文贵先生直播了17个小时，观看直播的外国人最多。
+[国务院联防联控机制新闻发布会：严格执行跨省游“熔断”机制 暂停旅游专列](https://www.mct.gov.cn/whzx/whyw/202110/t20211025_928521.htm)
 
-战友们要好好感谢各个农场主、联盟委员会和那些默默无闻付出的人。昨天喜联储创造的业绩已经超过7000亿美元。
+[暂停旅游专列、跨省游实施熔断机制 旅游业再遇冰点？](https://finance.sina.com.cn/stock/hyyj/2021-10-28/doc-iktzqtyu4030078.shtml)
 
-直播前有几个战友想要把自己的一部分喜币给文贵先生，文贵先生很感动，但文贵先生不要战友的喜币。文贵先生说: 都留着，过几周或半年会看到喜币的价值。接下来的G-Club、GTV 、G-Fashion 、喜联储上市，我们要成为全世界希望最多的人群，没有打疫苗的人群，最快乐的人群，最善待和会利用财富的人群，最受人尊重和欢迎的人群，这就是新中国联邦。
+[疫情防控下旅游商家如何过冬？](https://finance.sina.com.cn/chanjing/cyxw/2021-11-01/doc-iktzqtyu4335897.shtml?cre=tianyi&amp;mod=pcpager_fin&amp;loc=1&amp;r=0&amp;rfunc=28&amp;tj=cxvertical_pc_pager_spt&amp;tr=174)
 
-现在是一币难求啊，另外战友们要低调，千万不要炫富，会引来杀身之祸。
+[@滨州市民，暂时别做出游计划了，跨省游熔断机制呼之欲出](https://www.binzhounews.com.cn/article/2021081008423269.html)
 
-政青昨天进了6-7万币。想当初，那些离开了爆料革命的人，现在追悔莫及。当疫苗灾难爆发的时候，美国全球征税的时候，共产党的两会结束或要打台湾的时候，那喜币的真正价值就会体现出来。
+[中国今冬明春大幅削减进出中国的国际航班](https://www.voachinese.com/a/airlines-to-cut-international-flights-to-and-from-china-for-new-season-20211030/6292101.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编：Irene木木 / 正义的小新
+编辑：Irene木木 / Kathy文艺
+校正/发稿：Fei797
 
-如果明年的六四，战友们都拿着喜币会是什么情景? 两周年的时间，新中国联邦有了自己的金融系统，自己的货币，这是人类的传奇，到时正式加入新中国联邦的人会超过1000万。未来正式加入新中国联邦的会自动成为整个金融系统按照家庭、人数、按照加入的时间、贡献、投资G系列的额度来分享股份、分配财富，和喜联储、喜币没有关系。我们要让战友感受到的是，拿到手里的是受西方法律真正保护的永久性股权。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-目前3件事要尽力而为地去做 : 1.全力以赴推广H-Pay (下个月上线，比喜币重要)。2. 抓紧给新战友登记入册，要把所有的真战友加入到我们的农场。3 . 要把喜币上市前的许多未清的账和各农场代持的股票要缕清楚，联盟委员会要做这件事。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-当年的John.D.Rockefeller，J.P.Morgan ，罗斯柴尔德家族拥有大半个美国的财富。未来的新中国联邦可能会拥有同样的实力。
-
-*听写：* *wisteria* *| 校对：乐禧禧 | Page：我是球大哥*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-*编辑：【英国伦敦喜庄园编辑部】*
-[![](https://spark.adobe.com/page/W3n2PhSabz21M/images/434c787b-b56c-4c75-b03a-756701760c1e.jpg?asset_id=cd84937d-f070-483b-be2e-b4cec1db01fa&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/W3n2PhSabz21M/images/434c787b-b56c-4c75-b03a-756701760c1e.jpg?asset_id=cd84937d-f070-483b-be2e-b4cec1db01fa&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
 
 
  

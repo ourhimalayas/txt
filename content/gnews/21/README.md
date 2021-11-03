@@ -2,25 +2,24 @@
 ---
 
 
-## 脸书将其消费者定位最低年龄下调至6岁儿童
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636614/)
+## 新数字驾照将包括使用者的疫苗接种状况
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636663/)
 
-作者：纽约香草山农场 – Delilah小胖
+作者：纽约香草山福音部 –lilian89
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月30日，据盖特提供的脸书——现更名为Meta公司的内部员工爆料信息显示，早在今年4月9日，其公司内部的一篇博客文章表明，该公司计划招聘多个职位，并将其受众从当前13岁的底线门槛，降至6到9岁的孩子。
+11月1日的报道称，一种新的数字驾驶执照正在包括犹他州在内的几个州中推行。据了解，除驾驶员基本信息外，这种新的数字驾照还将显示驾照持有者的新冠疫苗接种状况。同时，报道还补充道，今后的数字驾照中或将继续添加持有者的健康记录、财务报告、信用评分、旅行记录等敏感信息，且这些信息将被政府追踪。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide11-1.jpeg)
 
-批评者认为，Meta平台的这些文件清楚地表明，该公司的首要任务不是努力降低其现有平台对青少年的危害，而是更偏向于吸引年幼的孩子，并为其建立Meta产品的终生用户渠道，但其产品对年幼的孩子来说并不安全。
+报道称，这将是我们所知的个人权利的终结，全球主义者正在席卷全世界，民众应该警醒。
 
-针对Meta的这一行径，盖特CEO杰森·米勒先生在其盖文中直接评论到：“Meta的行为让人觉得不舒服”。而盖特用户的盖文评论更是直接了当地认为，Meta此举涉嫌虐待儿童。
-
-参考链接: [https://gettr.com/post/pfmzgz18a8](https://gettr.com/post/pfmzgz18a8)
+参考链接:
+ [The New Digital Driver’s License Will Include Your Vaccine Status – May Eventually Include Your Credit Score, Travel Records and Social Credit Score](https://www.thegatewaypundit.com/2021/11/news-digital-drivers-license-will-include-vaccine-status-may-eventually-include-credit-score-travel-records-social-credit-score-video/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：Irene木木
-编辑：sam jeep
+总编：飞虹
+编辑：飞虹
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

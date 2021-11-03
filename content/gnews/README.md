@@ -15,122 +15,122 @@
 
 ---
 
-### [议员托马斯·马西呼吁终止不合逻辑、不科学的疫苗强制令](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [共和党人执掌弗吉尼亚州](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [拜登在台湾问题上的失误和软弱使中共国更加胆大妄为](/content/gnews/2/README.md)
+### [重析CDC研究后，研究人员呼吁停止为孕妇接种](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [世界各地的人民纷纷觉醒并游行抗议疫苗护照和疫苗极权](/content/gnews/3/README.md)
+### [西媒头条 — 第101期](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [DC每日热点1103](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [家庭反洗脑序列：第33篇 爱台湾 爱台湾](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [邪恶势力制造全球混乱、攫取利益和权力，奴役全人类](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新西兰首相贾新达·亚登宣布工作场所疫苗强制令](/content/gnews/4/README.md)
+### [议员托马斯·马西呼吁终止不合逻辑、不科学的疫苗强制令](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [山麓自由集会：阿尔伯塔小镇为自由而战](/content/gnews/5/README.md)
+### [拜登在台湾问题上的失误和软弱使中共国更加胆大妄为](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [世界各地的人民纷纷觉醒并游行抗议疫苗护照和疫苗极权](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [新西兰首相贾新达·亚登宣布工作场所疫苗强制令](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [山麓自由集会：阿尔伯塔小镇为自由而战](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [纽约政府清洗反马克思主义机构，导致消防、警察的失业](/content/gnews/6/README.md)
+### [纽约政府清洗反马克思主义机构，导致消防、警察的失业](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [马斯克的无奈](/content/gnews/7/README.md)
+### [马斯克的无奈](/content/gnews/13/README.md)
  ` 银河勇气之星`
 
-### [疫苗抗议者向英国国会投掷注射器，高喊“纽伦堡来了”](/content/gnews/8/README.md)
+### [疫苗抗议者向英国国会投掷注射器，高喊“纽伦堡来了”](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [众议员奇普·罗伊质问NIH删改“功能增强研究”定义](/content/gnews/9/README.md)
+### [众议员奇普·罗伊质问NIH删改“功能增强研究”定义](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [共产党的邪恶裤腰带](/content/gnews/10/README.md)
+### [共产党的邪恶裤腰带](/content/gnews/16/README.md)
  ` 骄子`
 
-### [采访：加航员工加入反疫苗护照的斗争](/content/gnews/11/README.md)
+### [采访：加航员工加入反疫苗护照的斗争](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/12/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [疫苗强制令导致美国多地公共设施人员短缺](/content/gnews/13/README.md)
+### [疫苗强制令导致美国多地公共设施人员短缺](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [中共要求3-11岁儿童在12月底前完成新冠疫苗接种](/content/gnews/14/README.md)
+### [中共要求3-11岁儿童在12月底前完成新冠疫苗接种](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [新数字驾照将包括使用者的疫苗接种状况](/content/gnews/15/README.md)
+### [新数字驾照将包括使用者的疫苗接种状况](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [文贵爆料 3/11: “毁人不倦&#8221;的”圣人“朱镕基](/content/gnews/16/README.md)
+### [文贵爆料 3/11: “毁人不倦&#8221;的”圣人“朱镕基](/content/gnews/22/README.md)
  ` 秘密翻译组-原创组`
 
-### [坎特国会山前声援中国人权 指责NBA保持沉默](/content/gnews/17/README.md)
+### [坎特国会山前声援中国人权 指责NBA保持沉默](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [俄罗斯全网报道彭帅指控张高丽对其性侵丑闻](/content/gnews/18/README.md)
+### [俄罗斯全网报道彭帅指控张高丽对其性侵丑闻](/content/gnews/24/README.md)
  ` HimalayaRussia`
 
-### [新书《真正的安东尼·福奇》即将上市](/content/gnews/19/README.md)
+### [新书《真正的安东尼·福奇》即将上市](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [中共收紧人口流动，多地熔断“跨省游” 并削减国际航班数量](/content/gnews/20/README.md)
+### [中共收紧人口流动，多地熔断“跨省游” 并削减国际航班数量](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [脸书将其消费者定位最低年龄下调至6岁儿童](/content/gnews/21/README.md)
+### [脸书将其消费者定位最低年龄下调至6岁儿童](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [中共国军方的人工智能系统用于对台作战军事演习](/content/gnews/22/README.md)
+### [中共国军方的人工智能系统用于对台作战军事演习](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [福建、浙江多地惊现大量军车坦克，疑为中共攻台信号](/content/gnews/23/README.md)
+### [福建、浙江多地惊现大量军车坦克，疑为中共攻台信号](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [中共地方债务借新还旧，将面临22万亿元的地方债到期](/content/gnews/24/README.md)
+### [中共地方债务借新还旧，将面临22万亿元的地方债到期](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [GTV新闻访谈简报|2021年11月03日早](/content/gnews/25/README.md)
+### [GTV新闻访谈简报|2021年11月03日早](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
 
-### [2021/11/02 文贵先生盖特直播精要](/content/gnews/26/README.md)
+### [2021/11/02 文贵先生盖特直播精要](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [港府连续三年出现财政赤字](/content/gnews/27/README.md)
+### [GTV新闻访谈简报|2021年11月3日早](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：数千人报告在注射中共病毒疫苗后出现异常肿瘤](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [GTV新闻访谈简报|2021年11月3日早](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [SPAC会成为世界上未来金融市场的主要工具](/content/gnews/30/README.md)
- ` GTV新闻访谈`
-
-### [11/03/21 香港快讯 钟翰林承认分裂国家及洗黑钱罪 庭上称：我认罪，我问心无愧](/content/gnews/31/README.md)
+### [11/03/21 香港快讯 钟翰林承认分裂国家及洗黑钱罪 庭上称：我认罪，我问心无愧](/content/gnews/34/README.md)
  ` 英喜-粵語組`
 
-### [秘翻在线:台湾30岁男子因为接种中共病毒疫苗而获90万救济金](/content/gnews/32/README.md)
+### [秘翻在线:台湾30岁男子因为接种中共病毒疫苗而获90万救济金](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [11/03/2021 国际财经快讯：喜币成交价突破10美元，24小时成交量达234万枚; 美联储会议前，全球股市保持在历史最高点附近](/content/gnews/33/README.md)
+### [11/03/2021 国际财经快讯：喜币成交价突破10美元，24小时成交量达234万枚; 美联储会议前，全球股市保持在历史最高点附近](/content/gnews/36/README.md)
  ` 秘密翻译组金融团队`
 
-### [快讯：共和党人赢得弗吉尼亚州长选举](/content/gnews/34/README.md)
+### [快讯：共和党人赢得弗吉尼亚州长选举](/content/gnews/37/README.md)
  ` HimalayaRussia`
 
-### [新州州长宣布，未接种疫苗居民的自由将被推迟](/content/gnews/35/README.md)
+### [新州州长宣布，未接种疫苗居民的自由将被推迟](/content/gnews/38/README.md)
  ` 走进澳洲`
 
-### [最新报告显示，伊维菌素有86%的预防率和67%的早期治疗率](/content/gnews/36/README.md)
+### [最新报告显示，伊维菌素有86%的预防率和67%的早期治疗率](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
-
-### [病毒学专家马丁·哈迪奇教授指出疫苗接种不能阻止&#8221;逃逸突变&#8221;且接种的有效性将逐渐降低](/content/gnews/37/README.md)
- ` MG 澳喜农场多语组`
-
-### [接种和未疫苗的人会一样传播 Delta 变体](/content/gnews/38/README.md)
- ` Charlie`
-
-### [中共国网络疯传“统一台湾的第一天”时间表 小粉红已被洗脑至癫狂](/content/gnews/39/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [中共国喊打声一片！台湾真的危也](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

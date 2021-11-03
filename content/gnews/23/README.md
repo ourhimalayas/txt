@@ -2,25 +2,26 @@
 ---
 
 
-## 福建、浙江多地惊现大量军车坦克，疑为中共攻台信号
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636599/)
+## 坎特国会山前声援中国人权 指责NBA保持沉默
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636651/)
 
-作者：纽约香草山-Noemi
-
+作者：澳喜农场 – 在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+此前，美国NBA球员坎特曾为西藏人权发声。10月30日，坎特于华盛顿国会山下再次参加为中国人权声援的集会，替新疆受打压的维吾尔族和其他少数族裔再度向世界发出呐喊。
 
-当地时间11月2日，多位用户在盖特上发布视频爆料称，墙内福建福州、浙江杭州、温州等地相继出现大规模的中共军车以及装甲坦克运输车队，疑为中共即将攻台的危险信号。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-2.jpg)
-盖特视频显示，杭州市区内存在大量军车装载着坦克等军用装备，列成一队，在公路上缓慢前行，交警们在旁指挥“清场”。而同样的情况还发生在福州、温州等地的市区中。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide10-2.jpeg)
 
-对此，盖特用户也在文贵先生发布的该条视频盖文下评论道，中共越加疯狂，也就越快走向灭亡。
+集会上，坎特身穿印有四面旗帜的T恤，分别是代表维吾尔人的蓝旗，香港行政区区旗，西藏雪山狮子旗和东蒙古人民自治政府的旗帜。坎特在发言时并没有只局限于新疆地区，他也鼓励包括西藏人、台湾人、香港人在内的所有人团结在一起，为自由努力。
 
-参考链接：
+另外，坎特指出，对于中共在人权上的恶行，NBA居然一直保持沉默。为此，坎特还批评说，作为NBA运动员，他为NBA感到悲哀和羞耻。
 
-[11月2日，中共国浙江省杭州市上城区南宋皇城遗址凤凰山脚路东面，大量军车运输坦克等装备！](https://gettr.com/post/pfuop7edf0)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-总编/编辑：Irene木木
-校正/发稿：Fei797
+参考链接: [NBA球员坎特加入中国人权集会 国会山下斥责NBA保持沉默](https://www.rfa.org/mandarin/yataibaodao/shaoshuminzu/wy-10302021190844.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：飞虹
+编辑：Irene木木
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -28,11 +29,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

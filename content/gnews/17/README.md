@@ -2,34 +2,52 @@
 ---
 
 
-## 坎特国会山前声援中国人权 指责NBA保持沉默
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636651/)
+## 采访：加航员工加入反疫苗护照的斗争
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1636827/)
 
-作者：澳喜农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-此前，美国NBA球员坎特曾为西藏人权发声。10月30日，坎特于华盛顿国会山下再次参加为中国人权声援的集会，替新疆受打压的维吾尔族和其他少数族裔再度向世界发出呐喊。
+作者：Adam Soos
+翻译：Himasally
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide10-2.jpeg)
 
-集会上，坎特身穿印有四面旗帜的T恤，分别是代表维吾尔人的蓝旗，香港行政区区旗，西藏雪山狮子旗和东蒙古人民自治政府的旗帜。坎特在发言时并没有只局限于新疆地区，他也鼓励包括西藏人、台湾人、香港人在内的所有人团结在一起，为自由努力。
 
-另外，坎特指出，对于中共在人权上的恶行，NBA居然一直保持沉默。为此，坎特还批评说，作为NBA运动员，他为NBA感到悲哀和羞耻。
+自新冠爆发以来，航空业一直处于许多受争议的中心。
 
-参考链接: [NBA球员坎特加入中国人权集会 国会山下斥责NBA保持沉默](https://www.rfa.org/mandarin/yataibaodao/shaoshuminzu/wy-10302021190844.html)
+从取消的不退款航班到大规模裁员，没有多少好消息，而且这种趋势只会持续下去。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+现在，由于贾斯汀·特鲁多的支持，已付费的客户不仅面临因疫苗状态而被排除在航空旅行之外，航空公司员工也面临着可能因疫苗状态而被解雇的情况。
 
-总编：飞虹
-编辑：Irene木木
-校正/发稿：谐趣园
+这是一位航空公司员工的故事，由于您在FightVaccinePassports.com的慷慨支持，她将有机会捍卫自己的生计。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+我们已隐瞒她的身份，以尽可能长时间地保护她的工作，但我们认为你需要听到她的故事。
+
+经过数十年的服务，这位在家工作且与同事或客户没有面对面接触的加航员工可能会因为不愿意接种疫苗而失业。
+
+更糟糕的是，她已经感染了新冠并且实验室确认了她的新冠抗体。尽管她天生具有免疫力，而且她在家工作，但加航不愿意为她提供任何合理的便利。
+
+我们会见了FightVaccinePassorts.com 的这位客户並采访了她，以了解更多关于她的故事，之后我们加入了 JSS 律师事务所，莎拉·米勒免费为客户提供法律顾问，了解有关该客户的法律更新计划前进。
+
+这只是我们在加拿大各地讲述的无数故事之一。
+
+这些故事很重要，因为对于每个勇敢分享他们的故事的人来说，他们家里也有许多人正在经历类似的事情。 來源：[https://www.rebelnews.com/interview\_air\_canada\_employee\_joins\_the\_fight\_against\_vaccine\_passports](https://www.rebelnews.com/interview_air_canada_employee_joins_the_fight_against_vaccine_passports)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
