@@ -2,38 +2,111 @@
 ---
 
 
-## 美媒提出质疑“与中共国做生意值得吗？”深度讨论（5）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1634139/)
+## 祖国必须统一，不计代价地动如雷霆后，冬季到台北去看雨
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1634473/)
 
-撰稿：喜妈
+[https://gtv.org/video/id=6180fbfbadfd99590c324466](https://gtv.org/video/id=6180fbfbadfd99590c324466)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-1.jpg)
+台湾知名教授邱毅日前发表视频表示
+A well-known Taiwanese professor Qiu Yi recently published a video saying
 
-图片来自网络
+蔡英文把“促进转型委员会”变成一个去中国化的政治斗争工具
+Tsai Ing-wen turned the “Committee for the Promotion of Transformation” into a tool of political struggle for de-Chineseization
 
-美国马萨诸塞州地方媒体报道，美国应该重新考虑与中共国的贸易关系，美国可能已经到了“与中国做生意可能不值得的”时候。在美中巨大的贸易逆差之下，报道认为，即使中共国“可能是美国最大的贸易伙伴之一”，可是中共国“每年花费”美国“数万亿美元”：这包括在“廉价产品”之外的“病毒、污染、致命合成药物、假冒商品甚至人体器官的世界主要出口国”等带来的产品。这些产品都在提醒美国和美国人民，美国应该反思与中共国的贸易关系。
+因为国民党这批人不争气，所以才使民进党可以为所欲为
+Because the Kuomintang people are not up to date, so the Democratic Progressive Party can do whatever it wants
 
-此外，报道指出美国社会应该“考虑”不应该和中共继续贸易的几点原因：“COVID-19 大流行”、“环境破坏”、“阿片类药物危机”、“盗窃知识产权”和“躲避审计”等。文章尤其指出中共在与美国的贸易和各种文化经济联系中，盗取很多知识产权。比如在控制疫情上，“尽管其 COVID-19 疫苗无效”，中共国“通过窃取美国的知识产权”却获得在其他方面“巨大的技术进步”。
+如果不赶快统一，台湾就真的没救了
+If you don’t quickly reunify, Taiwan will be really hopeless
 
-文章引用美国国家亚洲研究局的数据显示：中共国“窃取知识产权给美国经济造成的年度成本‘超过 2250 亿美元’”。这些涉及“假冒商品、盗版软件和窃取商业机密”的成本，“可能高达 6000 亿美元”。报道援引美国司法部向参议院情报委员会提交的报告称，“从 2011 年到 18 年，涉及国家从事经济间谍活动或从中受益的案件超过 90% 的指控都与中共国有关。”
+中国外交部讲得最明白：搞“台独”是死路一条！
+The Chinese Ministry of Foreign Affairs said it most clearly: “Taiwan independence” is a dead end!
 
-文章分享来自《福布斯》的报道，美国商务部调查“窃取商业机密案件超过三分之二的案件涉及中共国”；”或与中共国有关”。文章还指出：即使“当中共国没有窃取我们的知识产权时”，它也“正在用恶意软件破坏或入侵我们的系统”。报道特别将华为公司产品和设备里“包含使中国政府能够监视用户的后门”；同时，文章还提到“华为还被指控欺诈、窃取知识产权和参与中共国维吾尔族穆斯林的‘再教育’营”。
+中国大陆这已是连续两日发出严厉警告
+Mainland China has issued severe warnings for two consecutive days
 
-文章认为，中共国“窃取美国大学的研究成果”，并建立了“人才计划”，“以识别和招募可以为中共国窃取技术的人”。报道指出，“中共以铁腕统治中国公民，却为了一己私利，公然违法”。报道认为：“让中共拥有或控制的中国公司比美国公司更有优势是不可接受的”。因此，报道认为在特朗普总统在任时，美国国会罕见地一致投票通过了《外国公司问责法》成为既定法律，“禁止在美国交易外国公司股票”，“除非允许上市公司会计监督委员会监督这些公司的行为”。
+蔡英文当局和域外干涉势力(包括美国、日本等军事力量）
+Tsai Ing-wen authorities and extraterritorial interference forces (including the United States and Japan, etc military forces)
 
-该报道特别指出，中共国“是一个独裁国家”；其国家主席和普通中共国公民之间毫无平等。不仅是财富上没有平等，中共在自己治下“为大约 100 万维吾尔族穆斯林建立了集中营”；它“摘取法轮功良心犯的器官，折磨和杀害无辜的人”。同时，中共国“创造了世界上最大、最复杂的在线审查机构”。
+已经让一直致力于和平努力的大陆没有了任何退路
+have left the mainland which has been committed to peace efforts, with no way back
 
-文章认为中共国“不只是寻求成为世界强国”；“它正在寻求控制世界”。香港和台湾问题都是一个明证。因此文章特别呼吁，在这些背景和中共的邪恶特质下，“美国公司可能会受到什么影响？” 美国公司还可以继续和中共国做生意吗？
+关于如何惩罚，结合国台办、外交部、国防部发言人所用的原话
+Regarding how to punish, combined with the original words used by the spokespersons of the Taiwan Affairs Office of the State Council, the Ministry of Foreign Affairs, and the Ministry of National Defense
 
-综上所述，笔者认为，这篇文章所反映出来的美国民间对中共邪恶的认识，非常全面非常到位。同时，这些能够简单直接地反映出中共的邪恶本质的方面，能被美国民间媒体所了解和认识到，非常不容易啊。这集中折射出中共国和外部世界的关系,中共整个执政能力低下、其合理合法性令人质疑、国际规范框架体系缺失、公平交易失衡和人权公民权益丧失等问题。
+有以下三种不可或缺
+there are three indispensable
 
-虽然中共靠长期的金钱收买达到了对自己的宣传和形象维护的目的，可是这些靠谎言所编织起来的光鲜外表，经不起质疑和验证。何况，有了爆料革命，有了跟随七哥进行灭共的战友们，当然也有在各种真相和事实下不断被撼动和唤醒的西方民众。他们开始从疑惑、迷茫、不解到自己去挖掘、体会、思考,自己做出判断。笔者认为，这是一篇非常好的视角全面、见解独到和忠于事实的文章。这样的报道，既能让美国人民更好地了解中共邪恶，也能通过我们的介绍和分享，让中国读者认识到，中共之恶世间不容，灭共是世界潮流和共识的, 这一天很快就要来到。
+其一，不计代价，这是态度，也是实力。
+First, regardless of the cost, this is attitude and strength
 
-（本文纯属个人观点，与Gnews无关）
+就算美军介入，解放军照样坚定地维护国家统一和领土完整
+even if the US military intervenes, the People’s Liberation Army still firmly maintains national unity and territorial integrity
 
-[文章参考来源消息](https://www.metrowestdailynews.com/story/business/2021/10/31/columnist-brenda-wenning-questions-whether-its-worth-doing-business-china/6191637001/)
+即便付出再大的代价也在所不惜
+No matter how great it costs and do not hesitate
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+其二，灭顶之灾，这是警告，更是后果
+Second, the disaster of extinction, this is a warning, but also a consequence
+
+一旦启动雷霆打击，第一波肯定包括对“台独”顽固分子的精确“斩首”打击，
+Once the Thunder strike is launched, the first wave will definitely include precise “beheading” strikes on diehards of “Taiwan independence”
+
+其三，动如雷霆，冬季到台北去看雨。
+Third, moving like thunder, go to Taipei in winter to see the rain
+
+蔡英文既然决定了一条路走到黑，
+Since Tsai Ing-wen has decided on a path to resist
+
+解放军维护国家统一和领土完整，
+The People’s Liberation Army safeguards national unity and territorial integrity
+
+必然是雷霆之力，迅速实现两岸统一
+It must be the power of thunder to quickly realize cross-strait reunification
+
+评论：
+Comment:
+
+台湾官方民调：87.5%民众反对“一国两制”
+Taiwan’s official poll: 87.5% of the people oppose “one country, two systems”
+
+8成以上民众支持捍卫国家主权及台湾民主。
+More than 80% of the people support the defense of national sovereignty and Taiwan’s democracy
+
+尽管如此，中共国无视台湾民意，与卖台贼一起先在舆论上先占先机
+Despite this, the CCP ignores Taiwan’s public opinion and, together with the Taiwan’s traitors, takes the lead in public opinion
+
+尽管蔡英文总统在接受CNN的采访时表示
+Although President Tsai Ing-wen claimed in an interview with CNN
+
+美军在台湾有少许人员已进驻
+A small number of US troops have been stationed in Taiwan
+
+但中共还是要采取武力行动拿下台湾
+But the CCP still has to take force action to take Taiwan
+
+使中共国的老百性深信不移
+for convincing the Laobaixing in China
+
+此评论数据来自：https://www.dw.com/zh/台湾官方民调875民众反对一国两制/a-59138793
+
+* * *
+
+Date:10/31/2021
+原文标题: 秦安：祖国必须统一，不计代价地动如雷霆后，冬季到台北去看雨
+Qin An: The motherland must be unified. after moving like thunder at all costs and go to Taipei to watch the rain in winter
+原文日期：2021/10/29
+原文链接 https://www.163.com/dy/article/GNFNP54305526B7P.html?f=post2020\_dy\_recommends
+任务编号：KC217(2733)
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

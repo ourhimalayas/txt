@@ -2,18 +2,12 @@
 ---
 
 
-## 西媒头条 — 第100期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1634498/)
+## 山东菏泽碧桂园铂悦城农民工讨薪被项目负责人车辆压伤
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1634538/)
 
-制作：蚂蚁兄弟
+10月21日上午，山东菏泽碧桂园铂悦城项目工地门口多名农民工聚集拉条幅、讨要薪资，一名农民工被项目负责人车辆压伤。
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/xm1102.001.jpeg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
