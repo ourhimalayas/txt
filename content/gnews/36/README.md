@@ -2,31 +2,35 @@
 ---
 
 
-## Facebook关闭有争议的人脸识别程序，誓要删除超 10 亿个模板
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1635683/)
+## 德国公司为已接种疫苗和未接种疫苗的员工设立隔离食堂
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1635731/)
 
-#### 【**雅典娜快讯】，紧贴时事脉搏**
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/google-facebook-new6-1920-800x450-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/3DquG0_0ckO4UG800-1.jpg)
 
 
 
-图片来源：searchengineland.com
+图片来源：newsbreak.com
 
 
 #### 编译：小红帽
 
-脸书（Facebook）以对隐私和道德的“日益担忧”为由，宣布将停止使用人脸识别技术，并删除迄今为止从选择加入该计划的用户那里收集的超10亿个的个人模板。
+德国几家大型公司正在为已接种中共病毒（COVID-19）疫苗的员工建立食堂，然而未接种疫苗的员工只能呆在单独的隔离区域，并被迫继续遵守社交距离和戴口罩的规定。
 
-脸书人工智能副总裁杰罗姆·佩森蒂（Jerome Pesenti）周二表示，这一决定是“全公司范围内限制在我们产品中使用人脸识别的举措的一部分”。
+制药巨头拜耳、能源公司Eon和旅游公司Alltours都将实施新规定，未接种疫苗的员工将被视为二等公民。
 
-佩森蒂解释说，当该功能停止时，在“未来几周”的某个时候，超过10亿选择加入脸书用户的人脸识别模板将被删除，并且不会被自动识别。佩森蒂补充说，世界各地的当局仍在努力为该技术的使用提供明确的规则，脸书致力于“与领导这次讨论的民间社会团体和监管机构合作”。
+“在为疫苗接种者和中共病毒康复人员设立的‘2G’区域里，员工将被允许在完全正常的条件下一起吃饭，而那些未接种疫苗或未提供疫苗接种情况信息的员工，将不得不继续遵守社交距离、用餐时用隔断保持距离、戴口罩等规则”《当地人》报道。
 
-早在8月，韩国监管机构就对脸书进行了罚款，理由是脸书假定20万名用户同意该功能，并且不让他们选择退出人脸识别。今年初，在联邦法院裁定人脸识别功能违反了州隐私法后，这家硅谷巨头还被勒令向美国伊利诺伊州的160万用户支付6.5亿美元的集体诉讼赔偿金。
+拜耳还宣布，其员工也已开始组建“排除未接种疫苗员工”的工作小组。
 
-为了回应最初于2015年提起的诉讼，脸书已在2019年禁用了自动人脸识别功能，并将其设为可选。
+在柏林参观圣诞市场的人如果没有接种疫苗，也将被拒绝进入。
 
-**参考新闻：**[Facebook SHUTTING DOWN controversial face recognition program, vows to delete over a BILLION templates — RT World News](https://www.rt.com/news/539195-facebook-shuts-face-recognition/)
+尽管面临着无耻的歧视，但90%尚未接种疫苗的德国人表示，他们没有计划在不久的将来接种疫苗。
+
+德国当局曾在1月份宣布，违反中共病毒封锁规则的人将被逮捕，并拘留在全国各地的难民营里。
+
+**参考新闻：**[German Companies Creating Segregated Canteens For Vaccinated and Unvaccinated – Summit News](https://summit.news/2021/11/01/german-companies-creating-segregated-canteens-for-vaccinated-and-unvaccinated/)
 
 ***发布：小红帽***
 

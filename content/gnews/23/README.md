@@ -2,20 +2,45 @@
 ---
 
 
-## 美国空军人员面临接种中共病毒疫苗的最后通牒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1635757/)
+## 眼前三件事:推广Hpay登记战友捋清战友未清的账和代持
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1635818/)
 
-编译：沙子最怕你不理它
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-11.png)
-据合众国际社11月2日报道，美国空军人员面临在周二接种中共病毒疫苗的最后通牒。已经有40名空军新兵和受训人员因为拒绝接种中共病毒疫苗而被迫离职。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/封面-49_副本.jpg)
+据[MILES GUO 直播 2021-11-02](https://gettr.com/streaming/pfv59d80a7)时间点24：36——
 
-国防部长劳埃德•奥斯汀(Lloyd J. Austin)在8月份向军事指挥官宣布任务的备忘录中表示:“为了保卫这个国家，我们需要一支健康和随时准备的部队.”军队的每个部门都要在部门自己制定的截止日期前接种疫苗，但年底前必须必须完成任务。
+眼前三件事儿，兄弟姐妹们，全力以赴地推广H-Pay下月上线，抓住这个机会，它比喜币重要；
 
-国防部新闻秘书约翰•柯比(John F.Kirby)周一表示，奥斯汀希望军事领导人执行这项任务的时候人性化一点。柯比说：“我知道他向他们明确表示，他本人作为一名前指挥官，知道领导人可采取一系列措施，帮助部队为自己、部队和家庭做出正确的决定，既然没有使用《统一军事司法法典》（the Uniform Code of Military Justice)，因此并没有惩罚措施。” 大约97%的军人至少接种了一剂COVID-19疫苗。这包括99%的水手、97%的飞行员和93%的海军陆战队士兵。
+第二，抓紧把我们的很多战友登记在册，不要落下一个人；
 
-来源：[U.S. Air Force personnel face deadline for COVID-19 vaccine](https://www.upi.com/Top_News/US/2021/11/02/air-force-COVID-19-vaccine-mandate-deadline/5321635867545/)
+还有一个，在喜币上市前的很多未清的账、未算的数还有各农场的代持都要捋清楚，联盟委员会要做这事儿。
 
+全力以赴发展盖特、G-TV、G-Clubs、G-Fashion、H-pay，想想会有多大吧。
 
+罗斯柴尔德的雪茄是好啊，是好啊！真好！但是他家后继无人了，该我们新中国联邦上场了，当年的洛克菲勒、J.P.摩根拥有半个美国的财富或大半个美国的财富，罗斯柴尔德曾经拥有世界上大半的财富，从来没有一个中国人拥有这么多财富过，新中国联邦可能未来是。
+
+（以下暂略）
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago；
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

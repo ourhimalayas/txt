@@ -2,63 +2,45 @@
 ---
 
 
-## 喜币上市畅谈金枪鱼 促灭共激情
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1635856/)
+## #FauciLiedDogsDied成热搜 “虐狗实验”持续发酵
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1635974/)
 
-作者：香草山农场教育部 – 晓仙女
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+两天前非营利组织“白衣废物”就福奇所在的NIH资助了一项残酷的幼犬实验进行了指控。此事在社交媒体引发了巨大的反响。#FauciLiedDogsDied 成为推特热搜。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9.jpg)
+
+该项实验旨在以幼犬作为诱饵吸引有传染性的沙蝇叮咬，感染后注射实验药物以查验有效程度。实验过程中细节的描述因过于残忍引起网民的强烈不适，而这种生理及心理的不适超越了左右之分。
+
+佛州州长德桑蒂斯说，这是“难以想象和令人厌恶”的，纳税人的钱不能被这样使用，福奇必须要承担责任。众议员泰勒·格林发起了一个国会请愿书，她说资助虐狗实验和中共生物武器杀死几百万人的最高薪酬联邦雇员需要被解雇。在这条推特热搜下，左翼人士同样心有余悸。有人留言：幸亏我的狗很安全！
+
+美国文化中，狗是重要的家庭成员。这次爆出的“虐狗”丑闻，在社交媒体持续发酵，有望撼动福奇在科学、医疗界坚不可摧的地位。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+- [https://twitter.com/bennyjohnson/status/1452688321818374155?s=21](https://twitter.com/bennyjohnson/status/1452688321818374155?s=21)
+- [https://www.zerohedge.com/medical/fauci-funded-cruel-puppy-experiments-where-sand-flies-eat-them-alive-vocal-cords-severed](https://www.zerohedge.com/medical/fauci-funded-cruel-puppy-experiments-where-sand-flies-eat-them-alive-vocal-cords-severed)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-2021年11月1日福满之日，喜币全球上市大直播意义深远，爆料革命全球战友同心同德，直播庆典欢聚一堂，恭迎喜币上市。组委会为此精心准备了一条贵重的金枪鱼，嘉宾们一番评论后，郭先生也兴奋地畅谈金枪鱼的特别之处，给战友们上了一堂饮食课。
-
-1.金枪鱼是恒温鱼类，全球多季节生存的鱼；
-
-2.养殖的金枪鱼比海里的好吃；
-
-3.蓝旗金枪鱼最贵，但是长旗的最好；
-
-4.钓上来的金枪鱼品质会变差，最好是网捕；
-
-5.鱼被杀后25分钟为上等，35分钟为中等，45分钟为下等，时间长会有毒；
-
-6.切金枪鱼时不能压，鱼头2块肉最好，必须现场吃；
-
-7.金枪鱼最肥的部分备受吹捧，但肉筋部分最好。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-15.jpg)
-文贵先生激动的说：“今天的金枪鱼97磅，大约1万美元，就几个喜币而已，拥有喜币的战友以后可以天天吃。”
-
-文贵先生与战友们开心地分享饮食文化，更加激起新中国联邦人灭共的激情，向往过上真正自由的有品质的生活。
-
-参考链接：
-郭先生直播：[2021年11月01日 “HCOIN TO THE MOON” 喜马拉雅币上市庆典 （上）](https://gtv.org/video/id=618159b92051c747ccf8c38c)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：飞虹
-编辑：Zion文恩
-校对/发稿：为真不破20
+***编辑***：***Ivy001***
+***校对/发稿：海阔天空1***
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
 
  
 

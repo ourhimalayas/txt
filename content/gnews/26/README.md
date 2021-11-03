@@ -2,47 +2,26 @@
 ---
 
 
-## 寒冬将至，中共国百姓面临基本生活必须品的价格飙升
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1635743/)
+## 空气中的细小颗粒物每年导致400万人过早死亡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1635794/)
 
-作者：香草山金融部 – 闲聊钱币
+编辑：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片4-1.png)
+图片来源：网络截图
 
+据合众国际社11月2日报道， 总部设在日本的一个研究所说，全世界每年有超过400万人因PM2.5的微小颗粒进入肺部和心血管系统而过早死亡。
 
+近年来，科学家们越来越关注PM2.5颗粒物对空气污染和健康的影响。位于日本筑波的国家环境研究所的一个团队周二就这一问题发表了一篇论文，由研究员Keisuke Nansai领导的该团队根据2010年收集的数据绘制了微观粒子图，然后预测它们在199个国家的健康影响。
 
+其调查结果表明20国集团中的19个国家的消费品消费对全世界78000名婴儿的过早死亡负有责任。该报告还断言，全球贸易在PM2.5的传播中发挥了作用，因为 “一个国家的消费可能导致另一个国家的PM2.5污染。”
 
+该研究所警告说，如果世界领导人不采取行动应对污染，就会出现危险。报告说现在还没有研究量化20国集团国家对大气中的PM2.5造成的实质性健康影响的消费责任，这种科学知识的缺乏有可能拖延国际合作的努力，来保护PM2.5污染的受害者。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+根据美国环境保护局的说法，这些颗粒有许多大小和形状，可以由数百种不同的化学物质组成。有些是直接从某个源头排放出来的，如建筑工地、未铺设的道路、田地、烟囱或火灾。大多数颗粒物在大气中的形成是化学物质复杂反应的结果，如二氧化硫和氮氧化物，它们是发电厂、工业和汽车排放的污染物。
 
+纽约州卫生部说，细小的颗粒物也是由发电厂等来源的气体或水滴在大气中反应形成的。这些化学反应可能发生在离原始排放源很远的地方。由于细颗粒物可以从它们的源头被带到很远的地方，野火或火山爆发等事件可以提高距离事件数百英里的细颗粒物浓度。
 
-
-
-
-上海/北京，11月2日（路透社）–据一位微博用户称，超市里的人们特别是老年人开始恐慌性囤积大米，食用油和盐等生活必须品。某些社交媒体认为导致这种情况的原因是由于同台湾日趋紧张的关系，而中共政府却将此归结于COVID-19疫情的流行和异常大雨的极端天气。
-
-一家未署名的当地媒体公布了一份建议在家储存的商品清单，包括饼干，方便面、维生素、收音机和手电筒。中共支持的《经济日报》却告诉网民不要有 “过多的想象力”。《人民日报》也称，类似应急储备通知每年都会通报。目的是确保公民在其所在地区发生封锁时不会措手不及。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2.jpg)
-中共国蔬菜大省 – 山东省的蔬菜种植遭到大雨的摧毁，疫情又导致了运输链的断裂，再有农历新年将近，多种因素导致了食品等生活必须品价格飙涨。据山东省寿光市交易中心的蔬菜价格指数显示，黄瓜、菠菜和西兰花的价格比10月初上涨了一倍多。
-
-据国家电视台周一晚间报道，政府计划 “在适当的时候 “释放蔬菜储备，以应对价格上涨。但是储备了哪些蔬菜，以及储备量有多大却未向公众披露。
-
-看来中共国离吃草的年代真的不远了。
-
-（本文仅代表作者观点）
-
-参考来源：[寒冬将至，中共国百姓面临基本生活必须品的价格飙升](https://www.reuters.com/world/china/china-urges-families-keep-stores-daily-needs-ahead-winter-2021-11-02/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Daily%20Briefing%20-%20Huawei%20COP26%20-%202nd%20Nov%202021&amp;utm_campaign=Daily%20Briefing%20-%20Huawei%20COP26%20-%202nd%20Nov%202021)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+新闻来源：Report: Fine particles in air cause 4M premature deaths a year
 
  
 

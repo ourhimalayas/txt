@@ -2,52 +2,48 @@
 ---
 
 
-## 喜币上市，展望未来
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1635692/)
+## 寒冬将至，中共国百姓面临基本生活必须品的价格飙升
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1635743/)
 
-作者：纽约香草山农场 – 蓝天大海
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+作者：香草山金融部 – 闲聊钱币
 
 
 
 
 
-2021年11月1日喜币公开上市交易，是爆料革命历史上的一个重要时刻。在喜币上市的庆典直播中，郭文贵先生对喜币和喜美元的前景做了精辟的概述：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture7777.jpg)
-1、喜币上市将对全球金融系统产生重大影响，这种影响人们很快就可以体验到；
-
-2、存放在喜美元帐户中的喜美元会有很高的利息，这在全世界都不曾有过；
-
-3、喜美元很快会推出借贷业务，大家将会看到借贷的利率很低，仅比存款利息略高一点；
-
-4、很快将要推出的喜币支付功能是喜联储的核心价值；
-
-5、喜币和喜美元因为拥有支付系统，将成为全球性的无国界货币。
-
-郭先生创造了独一无二的，强大的，也是世界上最干净的货币。他的诞生不仅让爆料革命战友们拥有了世界上最干净的财富，也为灭共事业提供了强大的经济支持。以钱灭共，重锤终于落地！
-
-参考链接：[喜币上市，展望未来](https://gettr.com/post/pfs1k7a90e)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 
+上海/北京，11月2日（路透社）–据一位微博用户称，超市里的人们特别是老年人开始恐慌性囤积大米，食用油和盐等生活必须品。某些社交媒体认为导致这种情况的原因是由于同台湾日趋紧张的关系，而中共政府却将此归结于COVID-19疫情的流行和异常大雨的极端天气。
 
-总编：Irene木木
-编辑：AN
-校对/发稿：Hetangyuese
+一家未署名的当地媒体公布了一份建议在家储存的商品清单，包括饼干，方便面、维生素、收音机和手电筒。中共支持的《经济日报》却告诉网民不要有 “过多的想象力”。《人民日报》也称，类似应急储备通知每年都会通报。目的是确保公民在其所在地区发生封锁时不会措手不及。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2.jpg)
+中共国蔬菜大省 – 山东省的蔬菜种植遭到大雨的摧毁，疫情又导致了运输链的断裂，再有农历新年将近，多种因素导致了食品等生活必须品价格飙涨。据山东省寿光市交易中心的蔬菜价格指数显示，黄瓜、菠菜和西兰花的价格比10月初上涨了一倍多。
+
+据国家电视台周一晚间报道，政府计划 “在适当的时候 “释放蔬菜储备，以应对价格上涨。但是储备了哪些蔬菜，以及储备量有多大却未向公众披露。
+
+看来中共国离吃草的年代真的不远了。
+
+（本文仅代表作者观点）
+
+参考来源：[寒冬将至，中共国百姓面临基本生活必须品的价格飙升](https://www.reuters.com/world/china/china-urges-families-keep-stores-daily-needs-ahead-winter-2021-11-02/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Daily%20Briefing%20-%20Huawei%20COP26%20-%202nd%20Nov%202021&amp;utm_campaign=Daily%20Briefing%20-%20Huawei%20COP26%20-%202nd%20Nov%202021)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+编辑/校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

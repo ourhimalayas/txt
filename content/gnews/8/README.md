@@ -2,46 +2,28 @@
 ---
 
 
-## 1025新闻快讯
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1635881/)
+## 秘翻在线：路透社如何看中共国蔬菜价格飙升和日用品抢购
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1635999/)
 
-作者：纽约香草山福音部 – 林礼，日本方舟农场 Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
-1. 内蒙古爆发疫情 近万名游客受困 午夜突发爆炸4死3伤 
-内蒙古阿拉善盟连续数天新增确诊病例，截止至23日早上10点，累计确诊病例超过20例，其中达来呼布镇被定为高风险地区。据央视消息，受此次疫情影响，有近万名游客受困于额济纳旗的胡杨林旅游胜地。屋漏偏遭连夜雨，10月22日半夜11点多，阿拉善盟高新技术产业开发区内的一家化工厂发生爆炸事故，目前已造成4人死亡、3人受伤。官方在爆炸发生12个小时后才公布相关消息。
+#### 撰稿：彩虹
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-3-1.jpg)图片来源：埃及独立报
+11月2日，针对中共国供应短缺，《国家极限》发布文章，引用《路透社》的报道，指由于中共病毒（COVID-19）疫情和异常大雨导致蔬菜价格飙升。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-1.jpg)
+报道指，周一，中共国商务部发布的指令在国内社交媒体上激起了一些担忧，许多人认为这可能是由于台海紧张局势引发的，需要人们囤积大米、食用油和盐。如一位微博用户写道“消息一出来，我附近的所有老人都到超市里疯狂地抢购”。
 
-1. 不思考苗苗是否有效反而强推第三针
-新加坡将CCP科兴疫苗纳入全国接种计划，并且说接种完3针才算是接种完毕。同时根据新加坡的数据，日媒ANN新闻联盟做了统计，目前新加坡已经由84%的民众接种完两针疫苗，然而在本周二（19日）新加坡出现单日最高确诊3994人，次日死亡数也出现新高达到18人。就在这种情况下新加坡政府不思考苗苗是否有效，反而开始强推第三针。
+同时，许多当地媒体最近还公布了家庭需要储备的紧急清单，里面包括饼干、方便面、维生素、收音机和手电筒等。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-1.jpg)
-（本文仅代表作者观点）
+文章认为，中共政府通常会在中国最重要的节日农历新年之前做出努力，以提高新鲜蔬菜和猪肉的供应，而2022年的2月初才是农历新年。但是，由于10月初的极端天气摧毁了国家最大的蔬菜种植基地的农作物，并且从西北部到东北部爆发的中共病毒（COVID-19），可能是扰乱食品供应的主要原因。
 
-参考阅读：
+上周，黄瓜、菠菜和西兰花的价格比10月初上涨了一倍多。山东省寿光市贸易中心的蔬菜价格指数显示，菠菜的价格比一些猪肉还贵，达到每公斤16.67元（2.60美元）。
 
-- [https://www.aboluowang.com/2021/1024/1663368.html](https://www.aboluowang.com/2021/1024/1663368.html)
-- [https://www.zaobao.com.sg/realtime/singapore/story20211023-1206232](https://www.zaobao.com.sg/realtime/singapore/story20211023-1206232)
-- [https://gettr.com/post/pf0rrwbfdb](https://gettr.com/post/pf0rrwbfdb)
+作者认为，尽管最近几天价格有所缓和，但经济学家预计10月份的消费者价格通胀率将同比大幅上升，这是五个月以来的第一次。
 
+**新闻来源**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov.jpg)
-
-***编辑***：***文真***
-***校对/发稿：海阔天空1***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[China Urges Families to Keep Stocks of Daily Necessities Ahead of Winter](https://www.newsmax.com/newsfront/china-vegetables-stock-winter/2021/11/02/id/1042896/)
 
  
 

@@ -2,47 +2,43 @@
 ---
 
 
-## 多米诺效应：中共国房地产的困境波及全球著名项目
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1635742/)
+## 未来要按参加的时间、贡献和G系列的投资额度分享股份
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1635785/)
 
-作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2305_副本.jpg)
+据[MILES GUO 直播 2021-11-02](https://gettr.com/streaming/pfv59d80a7)时间点9：41——
 
+没有人发现一个问题，明年六四的时候，过的时候都带着喜币来的时候啥感觉呀？都带着喜币来的时候啥感觉？兄弟姐妹们想想，想想。  两周年的时候，中国人在成立了新中国的体制的时候，两周年的时候就会拥有了自己的金融系统、自己的货币，这是人类上多大的传奇！
 
+我相信到两年的时候，喜币系统、爆料革命、新中国联邦加入的人数会突破千万，正式加入的会超过千万。我们未来会登记正式加入新中国联邦的，未来会自动成为整个金融系统的按照家庭、人数分配财富，真的叫共享财富，咱们叫真正的共享，按照你参加的时间、贡献和投资G系列的额度分享股份——终生的！
 
+这是我瞎说的，你们别当个事儿，走着看吧！跟喜币没关系，跟喜联储没关系，走着看吧！我发梦呢！H-Coin to the moon, H-Coin to the moon.
 
+我们要真正让人感受到，拿到手里的受西方法律保护的永久式的股权，就像美联储、罗斯柴尔德家族拥有的那个股票一样，就一张纸，你有120股就够了，是吧？那时候你就觉得喜币不重要了，因为喜币他爹，你是喜币他爹，新中国联邦人都要当喜币的爹才行。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+（以下暂略）
 
+撰稿：喜马拉雅的肉夹馍；
 
+审核：喜马拉雅的馍夹肉；
 
+校对：Maarago；
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-伦敦，10月31日（路透社–全球顶级的大城市，例如伦敦、纽约、悉尼和其他城市的知名大型项目的开发商正面临现金争夺战。原因在于中共国的房地产危机和这些项目有着千丝万缕的联系。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4.jpg)
-类似恒大集团(3333.HK)在这场危机中的挣扎，另一家总部位于上海的绿地控股(0337.HK)同样面临同样困境。它在悉尼，布鲁克林、洛杉矶、巴黎和多伦多等地有价值数十亿美元的项目。而这些资金全部是突破了债务红线获得的。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-类似的中共国地产商比比皆是。它们在争夺海外地段时付出了高成本，当资金链出现问题时，这些地产商急于出售资产换取现金。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-中共国开发商在2013年至2018年期间进行了大规模的超出它们偿还能力的国际支出。但随着政策的收紧，这些公司希望后来者承接烫手山芋的美梦即将破灭。它们会迫不及待的降价出售。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-中共国做事一贯是杀鸡取卵，只顾眼前利益，不计后果。现在是时候还债了。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-（本文仅代表作者观点）
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-参考来源：[多米诺效应：中共国房地产的困境波及全球著名项目](https://www.reuters.com/world/china/chinas-property-woes-put-prestige-global-projects-play-2021-10-31/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=01-11-21&amp;utm_campaign=01-11-21)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
