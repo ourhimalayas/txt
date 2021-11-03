@@ -2,63 +2,24 @@
 ---
 
 
-## 喜币上市畅谈金枪鱼 促灭共激情
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1635856/)
+## 秘翻在线:美国一些州推出的新数字驾照将包含个人疫苗状况信息
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1635922/)
 
-作者：香草山农场教育部 – 晓仙女
+#### 翻译/撰稿：zzballack
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-1.jpg)图片来源：福布斯
+据《网关专家》（Gateway Pundit）11月1日报道，美国的犹他州以及其它州目前正在制定一种新的数字驾照，它将包括你的驾照信息和疫苗接种状况。政府将对其进行追踪，并提供给政府雇员。
 
+根据《网关专家》一位读者提供的信息，新驾照今后还可能包括以下信息：健康记录、财务报告、信用分数、旅行记录、登记车辆、花费、投票、性侵犯者身份、拥有的执照和许可证、停车罚款、社会信用评分。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+如果这计划得以实施，我们所知的个人权利将会被终结。不要指望善变的最高法院会帮助你。如果极权主义者执行这一措施，你在美国将不再拥有任何权利，全球主义者喜欢的中共模式已经来到了美国。
 
+美国密西西比州也在讨论类似的移动身份证（Mobile ID）计划，该证件将包含你的驾照和疫苗状况信息，允许用户存储一个虚拟的驾驶执照和中共病毒疫苗接种卡。
 
+数字极权社会已逐步来临，大科技公司利用它们收集的海量个人数据协助专制政府对公民实施全天候无死角的监控。而中共病毒大流行则是政府、科技寡头以及邪恶势力进一步侵犯个人隐私和公民权利、建设所谓的“新世界秩序（New World Order）”的最好机会。全世界渴望和热爱自由的人必须联合起来反抗逐渐升级的疫苗暴政，夺回属于我们的自由。
 
-2021年11月1日福满之日，喜币全球上市大直播意义深远，爆料革命全球战友同心同德，直播庆典欢聚一堂，恭迎喜币上市。组委会为此精心准备了一条贵重的金枪鱼，嘉宾们一番评论后，郭先生也兴奋地畅谈金枪鱼的特别之处，给战友们上了一堂饮食课。
-
-1.金枪鱼是恒温鱼类，全球多季节生存的鱼；
-
-2.养殖的金枪鱼比海里的好吃；
-
-3.蓝旗金枪鱼最贵，但是长旗的最好；
-
-4.钓上来的金枪鱼品质会变差，最好是网捕；
-
-5.鱼被杀后25分钟为上等，35分钟为中等，45分钟为下等，时间长会有毒；
-
-6.切金枪鱼时不能压，鱼头2块肉最好，必须现场吃；
-
-7.金枪鱼最肥的部分备受吹捧，但肉筋部分最好。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-15.jpg)
-文贵先生激动的说：“今天的金枪鱼97磅，大约1万美元，就几个喜币而已，拥有喜币的战友以后可以天天吃。”
-
-文贵先生与战友们开心地分享饮食文化，更加激起新中国联邦人灭共的激情，向往过上真正自由的有品质的生活。
-
-参考链接：
-郭先生直播：[2021年11月01日 “HCOIN TO THE MOON” 喜马拉雅币上市庆典 （上）](https://gtv.org/video/id=618159b92051c747ccf8c38c)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：飞虹
-编辑：Zion文恩
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+新闻来源：[The New Digital Driver’s License Will Include Your Vaccine Status – May Eventually Include Your Credit Score, Travel Records and Social Credit Score (VIDEO)](https://www.thegatewaypundit.com/2021/11/news-digital-drivers-license-will-include-vaccine-status-may-eventually-include-credit-score-travel-records-social-credit-score-video/)
 
  
 

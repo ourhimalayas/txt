@@ -2,28 +2,46 @@
 ---
 
 
-## 秘翻在线：路透社如何看中共国蔬菜价格飙升和日用品抢购
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1635999/)
+## 在澳大利亚首都地区，接种两剂疫苗的旅客仍被迫隔离
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1636063/)
 
-#### 撰稿：彩虹
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-3-1.jpg)图片来源：埃及独立报
-11月2日，针对中共国供应短缺，《国家极限》发布文章，引用《路透社》的报道，指由于中共病毒（COVID-19）疫情和异常大雨导致蔬菜价格飙升。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/COVID_quarantine.5fd3c3a2de5a1.jpg)
 
-报道指，周一，中共国商务部发布的指令在国内社交媒体上激起了一些担忧，许多人认为这可能是由于台海紧张局势引发的，需要人们囤积大米、食用油和盐。如一位微博用户写道“消息一出来，我附近的所有老人都到超市里疯狂地抢购”。
 
-同时，许多当地媒体最近还公布了家庭需要储备的紧急清单，里面包括饼干、方便面、维生素、收音机和手电筒等。
 
-文章认为，中共政府通常会在中国最重要的节日农历新年之前做出努力，以提高新鲜蔬菜和猪肉的供应，而2022年的2月初才是农历新年。但是，由于10月初的极端天气摧毁了国家最大的蔬菜种植基地的农作物，并且从西北部到东北部爆发的中共病毒（COVID-19），可能是扰乱食品供应的主要原因。
+图片来源：ehstoday.com
 
-上周，黄瓜、菠菜和西兰花的价格比10月初上涨了一倍多。山东省寿光市贸易中心的蔬菜价格指数显示，菠菜的价格比一些猪肉还贵，达到每公斤16.67元（2.60美元）。
 
-作者认为，尽管最近几天价格有所缓和，但经济学家预计10月份的消费者价格通胀率将同比大幅上升，这是五个月以来的第一次。
+#### 编译：小红帽
 
-**新闻来源**
+一些完全接种中共病毒（COVID-19）疫苗的旅客在进入澳大利亚首都领地时被迫接受隔离，尽管他们已经接种了两剂疫苗。
 
-[China Urges Families to Keep Stocks of Daily Necessities Ahead of Winter](https://www.newsmax.com/newsfront/china-vegetables-stock-winter/2021/11/02/id/1042896/)
+虽然从高风险中共病毒地区来到首都领地，已完全接种疫苗的旅行者可以豁免入境，但如果一个人在抵达日期前不到两周才接种第二剂疫苗，则仍需要隔离。
+
+该领地的首席卫生官凯琳·科尔曼（Kerryn Coleman）博士说，少数人受到了这个措施的影响。
+
+科尔曼拒绝承认对“前往堪培拉的健康建议不明确”的说法。“如果健康建议不（清晰），我们将研究如何确保它更清晰，”她说。“我能理解人们对无法像他们希望的那样自由行动感到失望。我们正在努力与受此影响的个人合作。”
+
+此前，堪培拉南部的一所学校检测到大规模中共病毒感染者后被迫关闭。
+
+卫生当局已确认17例病例与万尼亚萨（Wanniassa）学校初级校区有关。该学校有120多人被确认为密切接触者。
+
+所有在接触期间在学校的学生、教职员工和访客都被要求接受测试和隔离，直到他们得到阴性结果。
+
+科尔曼表示，虽然出现了大量病例，但这种爆发并不意外。随着我们继续开放，我们将看到社区中的中共病毒的传播病例。
+
+**参考新闻：**[Double dosed Australians forced to quarantine in ACT (thenewdaily.com.au)](https://thenewdaily.com.au/news/coronavirus/2021/11/03/double-dosed-quarantine-act/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

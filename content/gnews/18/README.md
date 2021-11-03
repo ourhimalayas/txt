@@ -2,32 +2,32 @@
 ---
 
 
-## #FauciLiedDogsDied成热搜 “虐狗实验”持续发酵
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1635974/)
+## NBA球员Enes Kanter呼吁中共：“停止种族灭绝，现在!”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1636053/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
-两天前非营利组织“白衣废物”就福奇所在的NIH资助了一项残酷的幼犬实验进行了指控。此事在社交媒体引发了巨大的反响。#FauciLiedDogsDied 成为推特热搜。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+伊内斯-坎特是一名土耳其职业篮球运动员，目前为波士顿凯尔特人队效力并担任中锋。他在社交媒体平台GETTR上面，有多达513.5K的跟随者！由于土耳其政府的腐败丑闻，坎特在2013年开始公开批评土耳其总统雷杰普-塔伊普-埃尔多安，2016年发生的政变未遂后，他在推特上称这位土耳其总统为 “我们这个世纪的希特勒”，2019年在Lebron James，公开为CCP辩护时，坎特对勒布朗-詹姆斯进行了严厉的抨击。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/10.jpeg)
 
-该项实验旨在以幼犬作为诱饵吸引有传染性的沙蝇叮咬，感染后注射实验药物以查验有效程度。实验过程中细节的描述因过于残忍引起网民的强烈不适，而这种生理及心理的不适超越了左右之分。
+中共对维吾尔族穆斯林人口进行种族灭绝，他们被集中关押起来，被强奸，被折磨，被强迫劳动，被谋杀。
 
-佛州州长德桑蒂斯说，这是“难以想象和令人厌恶”的，纳税人的钱不能被这样使用，福奇必须要承担责任。众议员泰勒·格林发起了一个国会请愿书，她说资助虐狗实验和中共生物武器杀死几百万人的最高薪酬联邦雇员需要被解雇。在这条推特热搜下，左翼人士同样心有余悸。有人留言：幸亏我的狗很安全！
+上周和整个周末，坎特在Twitter和Instagram上都发布信息，他写道：“我永远不会为说真话而道歉，你不能收买我，你不能吓唬我，你不能让我沉默。”坚持传播中共的罪行。
 
-美国文化中，狗是重要的家庭成员。这次爆出的“虐狗”丑闻，在社交媒体持续发酵，有望撼动福奇在科学、医疗界坚不可摧的地位。
+带着这些强有力的信息，坎特发布了他的新鞋，充满了个性表达的艺术作品。周五，坎特发布了一段视频信息，在世界舞台上呼吁中共结束奴隶制劳动。对中国的人权暴行，坎特进一步解释了中共骇人听闻的行为。
+
+CCP不仅对国内各少数民族采用同化洗脑政策，企图消灭他们的民族信仰和与众不同的民族特性与民族文化。同时，对其党员之间也采用株连九族的残忍手段来达到他们互相争权夺利的目的！
 
 （本文仅代表作者观点）
 
 参考阅读：
 
-- [https://twitter.com/bennyjohnson/status/1452688321818374155?s=21](https://twitter.com/bennyjohnson/status/1452688321818374155?s=21)
-- [https://www.zerohedge.com/medical/fauci-funded-cruel-puppy-experiments-where-sand-flies-eat-them-alive-vocal-cords-severed](https://www.zerohedge.com/medical/fauci-funded-cruel-puppy-experiments-where-sand-flies-eat-them-alive-vocal-cords-severed)
+- [https://thegatewaypundit.com](https://thegatewaypundit.com)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1.jpg)
 
-***编辑***：***Ivy001***
+***编辑***：***Irene木木***
 ***校对/发稿：海阔天空1***
 
 **更多资讯，更多关注**
