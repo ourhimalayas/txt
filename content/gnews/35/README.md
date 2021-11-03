@@ -2,45 +2,51 @@
 ---
 
 
-## 眼前三件事:推广Hpay登记战友捋清战友未清的账和代持
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1635818/)
+## 爆料：与中共脱钩的欧洲国家是喜联储的“币仓”之一
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1635937/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/封面-49_副本.jpg)
-据[MILES GUO 直播 2021-11-02](https://gettr.com/streaming/pfv59d80a7)时间点24：36——
+作者：香草山农场教育部 – 晓仙女
 
-眼前三件事儿，兄弟姐妹们，全力以赴地推广H-Pay下月上线，抓住这个机会，它比喜币重要；
 
-第二，抓紧把我们的很多战友登记在册，不要落下一个人；
 
-还有一个，在喜币上市前的很多未清的账、未算的数还有各农场的代持都要捋清楚，联盟委员会要做这事儿。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-全力以赴发展盖特、G-TV、G-Clubs、G-Fashion、H-pay，想想会有多大吧。
 
-罗斯柴尔德的雪茄是好啊，是好啊！真好！但是他家后继无人了，该我们新中国联邦上场了，当年的洛克菲勒、J.P.摩根拥有半个美国的财富或大半个美国的财富，罗斯柴尔德曾经拥有世界上大半的财富，从来没有一个中国人拥有这么多财富过，新中国联邦可能未来是。
 
-（以下暂略）
+2021年11月1日，郭文贵先生在《喜币全球上市大直播》中爆料：
 
-撰稿：喜马拉雅的肉夹馍；
+近期欧洲几个国家终止了与中共当局的最惠国待遇，其中的列支敦士登是世界知名的金融自由国家。该国曾是中共对外金融渗透的重要一环，中共每年在列支敦士登投入海外公关费用的百分之八，旨在打造中共的海外金库。然而，列支敦士登成为欧盟中率先与中共贸易脱钩的国家，并顺利成为了“喜联储”的重要金融储备地之一。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-8.jpg)
+文贵先生指出，新中国联邦 “政治小组”的战友们，不舍昼夜地不懈工作，让欧洲几大金融中心认识到喜联储的真正价值，促成了这一伟大的成就。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3.1-2.jpg)
+在现有的几大跨国贸易协议中，“喜币、喜支付和喜联储”将以其低成本、零中介、高保密、超安全等特征大放异彩，并真正打通全球自由贸易的“任督二脉”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-4.jpg)
+参考链接：
+郭先生直播：[2021年11月01日 “HCOIN TO THE MOON” 喜马拉雅币上市庆典 （上）](https://gtv.org/video/id=618159b92051c747ccf8c38c)
 
-审核：喜马拉雅的馍夹肉；
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-校对：Maarago；
+总编：飞虹
+编辑：Zion文恩
+校对/发稿：为真不破20
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+**更多资讯，更多关注**
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

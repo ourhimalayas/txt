@@ -2,33 +2,32 @@
 ---
 
 
-## 1025新闻快讯
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1635881/)
+## NBA球员Enes Kanter呼吁中共：“停止种族灭绝，现在!”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1636053/)
 
-作者：纽约香草山福音部 – 林礼，日本方舟农场 Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
-1. 内蒙古爆发疫情 近万名游客受困 午夜突发爆炸4死3伤 
-内蒙古阿拉善盟连续数天新增确诊病例，截止至23日早上10点，累计确诊病例超过20例，其中达来呼布镇被定为高风险地区。据央视消息，受此次疫情影响，有近万名游客受困于额济纳旗的胡杨林旅游胜地。屋漏偏遭连夜雨，10月22日半夜11点多，阿拉善盟高新技术产业开发区内的一家化工厂发生爆炸事故，目前已造成4人死亡、3人受伤。官方在爆炸发生12个小时后才公布相关消息。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+伊内斯-坎特是一名土耳其职业篮球运动员，目前为波士顿凯尔特人队效力并担任中锋。他在社交媒体平台GETTR上面，有多达513.5K的跟随者！由于土耳其政府的腐败丑闻，坎特在2013年开始公开批评土耳其总统雷杰普-塔伊普-埃尔多安，2016年发生的政变未遂后，他在推特上称这位土耳其总统为 “我们这个世纪的希特勒”，2019年在Lebron James，公开为CCP辩护时，坎特对勒布朗-詹姆斯进行了严厉的抨击。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/10.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-1.jpg)
+中共对维吾尔族穆斯林人口进行种族灭绝，他们被集中关押起来，被强奸，被折磨，被强迫劳动，被谋杀。
 
-1. 不思考苗苗是否有效反而强推第三针
-新加坡将CCP科兴疫苗纳入全国接种计划，并且说接种完3针才算是接种完毕。同时根据新加坡的数据，日媒ANN新闻联盟做了统计，目前新加坡已经由84%的民众接种完两针疫苗，然而在本周二（19日）新加坡出现单日最高确诊3994人，次日死亡数也出现新高达到18人。就在这种情况下新加坡政府不思考苗苗是否有效，反而开始强推第三针。
+上周和整个周末，坎特在Twitter和Instagram上都发布信息，他写道：“我永远不会为说真话而道歉，你不能收买我，你不能吓唬我，你不能让我沉默。”坚持传播中共的罪行。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-1.jpg)
+带着这些强有力的信息，坎特发布了他的新鞋，充满了个性表达的艺术作品。周五，坎特发布了一段视频信息，在世界舞台上呼吁中共结束奴隶制劳动。对中国的人权暴行，坎特进一步解释了中共骇人听闻的行为。
+
+CCP不仅对国内各少数民族采用同化洗脑政策，企图消灭他们的民族信仰和与众不同的民族特性与民族文化。同时，对其党员之间也采用株连九族的残忍手段来达到他们互相争权夺利的目的！
+
 （本文仅代表作者观点）
 
 参考阅读：
 
-- [https://www.aboluowang.com/2021/1024/1663368.html](https://www.aboluowang.com/2021/1024/1663368.html)
-- [https://www.zaobao.com.sg/realtime/singapore/story20211023-1206232](https://www.zaobao.com.sg/realtime/singapore/story20211023-1206232)
-- [https://gettr.com/post/pf0rrwbfdb](https://gettr.com/post/pf0rrwbfdb)
+- [https://thegatewaypundit.com](https://thegatewaypundit.com)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1.jpg)
 
-***编辑***：***文真***
+***编辑***：***Irene木木***
 ***校对/发稿：海阔天空1***
 
 **更多资讯，更多关注**

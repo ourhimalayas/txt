@@ -2,54 +2,46 @@
 ---
 
 
-## 纳瓦罗新书《川普时代》透露爆料革命的影响力
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1635903/)
+## 在澳大利亚首都地区，接种两剂疫苗的旅客仍被迫隔离
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1636063/)
 
-信息采集：星星
-作者：英国喜庄园 – I770775
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/COVID_quarantine.5fd3c3a2de5a1.jpg)
 
 
 
-皮特•纳瓦罗先生的著作《川普时代》于今年9月份在亚马逊上市，书中详细记述了他在川普政府履职期间的重要历史事件，其中有两件事和爆料革命直接相关：
-
-第一件事，是前川普总统签署的全球旅行限制。2020年中共病毒爆发之初，川普总统听从纳瓦罗先生的情报建议，在第一时间签署了全球旅行限制，有效地阻止了中共病毒在美国的大面积传播，挽救了无数美国人的生命。纳瓦罗先生的新书批露了该情报的来源就来自郭文贵先生的爆料革命。
-
-第二件事是疫苗问题。中共病毒爆发初期，本来纳瓦罗先生是美国最早推动开发疫苗的人，但后来他再次听取了郭先生关于疫苗真相的爆料，反过来开始坚决反对拜登政府的疫苗强制令。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-7.jpg)
-作为前白宫贸易顾问和川普总统的助理，纳瓦罗先生在书中披露的信息，无疑是经美国法律认证，并以法律形式形成白宫文件的，这再次验证了爆料革命“唯真不破”的宗旨，也表明了新中国联邦的政治势力。
-
-另外，纳瓦罗先生在9月17号做客《战斗室》节目时，也介绍了他写《川普时代》的重要意义：唤醒美国人民，唤醒世界人民，让大家看清中共的邪恶本质，号召大家勇敢站出来，彻底消灭共产主义。
-
-参考链接：
-[纳瓦罗新书证实： 川普2020年1月30日的旅行禁令是听从了爆料革命的意见。](https://gettr.com/post/pfspupaf12)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：Irene木木
-编辑：AN
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+图片来源：ehstoday.com
 
 
+#### 编译：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+一些完全接种中共病毒（COVID-19）疫苗的旅客在进入澳大利亚首都领地时被迫接受隔离，尽管他们已经接种了两剂疫苗。
 
+虽然从高风险中共病毒地区来到首都领地，已完全接种疫苗的旅行者可以豁免入境，但如果一个人在抵达日期前不到两周才接种第二剂疫苗，则仍需要隔离。
 
+该领地的首席卫生官凯琳·科尔曼（Kerryn Coleman）博士说，少数人受到了这个措施的影响。
+
+科尔曼拒绝承认对“前往堪培拉的健康建议不明确”的说法。“如果健康建议不（清晰），我们将研究如何确保它更清晰，”她说。“我能理解人们对无法像他们希望的那样自由行动感到失望。我们正在努力与受此影响的个人合作。”
+
+此前，堪培拉南部的一所学校检测到大规模中共病毒感染者后被迫关闭。
+
+卫生当局已确认17例病例与万尼亚萨（Wanniassa）学校初级校区有关。该学校有120多人被确认为密切接触者。
+
+所有在接触期间在学校的学生、教职员工和访客都被要求接受测试和隔离，直到他们得到阴性结果。
+
+科尔曼表示，虽然出现了大量病例，但这种爆发并不意外。随着我们继续开放，我们将看到社区中的中共病毒的传播病例。
+
+**参考新闻：**[Double dosed Australians forced to quarantine in ACT (thenewdaily.com.au)](https://thenewdaily.com.au/news/coronavirus/2021/11/03/double-dosed-quarantine-act/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
