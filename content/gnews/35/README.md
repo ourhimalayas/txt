@@ -2,51 +2,20 @@
 ---
 
 
-## 爆料：与中共脱钩的欧洲国家是喜联储的“币仓”之一
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1635937/)
+## 接种和未疫苗的人会一样传播 Delta 变体
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1636077/)
 
-作者：香草山农场教育部 – 晓仙女
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11031.jpg)图片来自Blogsicilia
+发表在《柳叶刀》小组的传染病医学杂志上的一项研究表明疫苗保护的局限性：接种了双剂量新冠疫苗并感染了冠状病毒 delta 变体的个人与未接种疫苗的人有着非常相似的传播疾病的速度。
 
+在英国进行的为期一年的研究共监测了 621 名出现新冠病毒症状的人，研究人员得出结论：感染 delta 变体的接种疫苗个体的感染率为 25%，而未接种疫苗的个体感染率为 38%。当你去看家庭接触者时，这两个指数更接近，其中接种疫苗但有症状的受试者的感染率为 25%，而未接种疫苗的受试者为 23%。
 
+研究人员在他们的结论中明确表示：“尽管目前的疫苗在预防新冠病毒引起的严重疾病和死亡方面仍然有效，但结果表明，单独接种疫苗不足以防止 delta 变体在家庭环境中的传播”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+原文链接：[https://europa.today.it/attualita/vaccinati-trasmettono-variante-delta-come-non-vaccinati.html#\_ga=2.75835285.1002968678.1635926454-145009575.1615972944](https://europa.today.it/attualita/vaccinati-trasmettono-variante-delta-come-non-vaccinati.html#_ga=2.75835285.1002968678.1635926454-145009575.1615972944)
 
-
-
-2021年11月1日，郭文贵先生在《喜币全球上市大直播》中爆料：
-
-近期欧洲几个国家终止了与中共当局的最惠国待遇，其中的列支敦士登是世界知名的金融自由国家。该国曾是中共对外金融渗透的重要一环，中共每年在列支敦士登投入海外公关费用的百分之八，旨在打造中共的海外金库。然而，列支敦士登成为欧盟中率先与中共贸易脱钩的国家，并顺利成为了“喜联储”的重要金融储备地之一。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-8.jpg)
-文贵先生指出，新中国联邦 “政治小组”的战友们，不舍昼夜地不懈工作，让欧洲几大金融中心认识到喜联储的真正价值，促成了这一伟大的成就。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3.1-2.jpg)
-在现有的几大跨国贸易协议中，“喜币、喜支付和喜联储”将以其低成本、零中介、高保密、超安全等特征大放异彩，并真正打通全球自由贸易的“任督二脉”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-4.jpg)
-参考链接：
-郭先生直播：[2021年11月01日 “HCOIN TO THE MOON” 喜马拉雅币上市庆典 （上）](https://gtv.org/video/id=618159b92051c747ccf8c38c)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：飞虹
-编辑：Zion文恩
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 
