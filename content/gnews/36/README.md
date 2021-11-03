@@ -2,48 +2,44 @@
 ---
 
 
-## 2021/11/02 文贵先生盖特直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1636581/)
+## 俄罗斯全网报道彭帅指控张高丽对其性侵丑闻
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1636647/)
 
-[![](https://spark.adobe.com/page/W3n2PhSabz21M/images/ec9a64bf-a1dd-4a9d-bd3c-77c9236a1e08.png?asset_id=5f7b16fd-9bec-40e7-9949-9c8d7c4fbb13&amp;img_etag=%227dc92dd87aee53c6a45f7444831c6798%22&amp;size=2560)](https://spark.adobe.com/page/W3n2PhSabz21M/images/ec9a64bf-a1dd-4a9d-bd3c-77c9236a1e08.png?asset_id=5f7b16fd-9bec-40e7-9949-9c8d7c4fbb13&amp;img_etag=%227dc92dd87aee53c6a45f7444831c6798%22&amp;size=1024)
-**[文贵先生盖特链接](https://gettr.com/post/pfv59d80a7)**
+俄罗斯莫斯科喀秋莎农场 星河
 
-尊敬的战友们好，你们传播病毒、疫苗、解药和香港危机的真相了吗? 战友们的信息不能一一回复，所以，直播一下，同时试一下手机盖特直播的感觉。
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/P.jpg)news.yahoo.com
+美东时间11月3日报道，两届网球大满贯得主彭帅指控前中共国第一副总理张高丽对其进行了性侵。彭帅周二在中共国社交网络微博的官方页面上提出了这一指控，但该帖子很快被删除。俄罗斯媒体全网对此进行了报道。
 
-都已经11月份了，中央公园的树木仍然是绿色的，全球气候真的变暖了。文贵先生的一位从华盛顿来这里开会的朋友说: 全球真的变暖了，这位朋友曾经也是一位反对地球变暖学说的人。
+彭帅的指控在互联网上被广泛传播，对她的名字和“网球”一词的搜索被阻止，与此有关。据《华盛顿邮报》报道，周三，即使不提及这些指控，也不可能在微博上发布带有彭帅和张高丽名字的帖子，中共国互联网上会马上显示帖子违反“相关法律和法规”的警告，彭的个人主页上的评论也已被禁止。
 
-张高丽和一位十几岁的小女孩(彭帅)谈恋爱，还和她讲政治、讲哲学，真是荒谬至极。张高丽第一次和那个女孩发生性关系的时候，彭帅才11岁左右，就像孟建柱对待红黄蓝幼儿园一样。当年张高丽就是因为喊江泽民万岁而被重用进了常委。明天文贵先生继续直播，和郝海东夫妇谈谈这些情况。
+彭帅承认她无法提供证据。她说，这位官员第一次袭击她是在10多年前（2007年至2012年），当时张高丽任中共天津市委书记。此后，他们有很长一段时间没有见面。
 
-昨天真的是历史性的一天，很多事物都被改写了。虽然战友们手里有了喜币，但我们的任务是灭共，灭共的路上没有周末和假日，也没有休息，只有调整。灭共是现在唯一的核心任务，为的是建立一个真正的民选政府和信仰自由、法制独立，真正的以民为本的新中国联邦政权。
+大约三年前，张高丽已经退休，他邀请彭帅和他的妻子一起打网球，然后在他们家吃饭。在那里，他再次强迫彭帅与他发生了性关系。这位网球运动员指出，她“从未同意过，所发生的事情让她流泪”。彭帅最终同意了与张高丽的婚外情，这种情况一直持续到最近。
 
-直播前一位美国的朋友说文贵先生创造了财富的神话中的神话，超越了他父亲当年创造的辉煌事业。文贵先生当年创立的裕达、盘古、海通、方正、中阿基金、日本基金和新加坡基金，背后的重大交易都是文贵先生参与进行的。当你拥有财富的时候，要不就有驾驭财富的能力，要不你就成为财富的奴隶，死在利益上。记住文贵先生说的话，喜联储和喜币才刚刚开始，都还没有开始流通呢，大机构还没有登场。接下来有喜美元帐号和存款的，有7% 的利息，利息支付用H- Coin ，三年、五年、七年期。7% – 10% 高过美国国债，永远不会贬值，再加上H-Coin，3年才会形成流通。
+35岁的彭帅是前世界排名第一的双打选手。她总共赢得了25场WTA比赛（包括两个单打冠军）。彭帅在2013年赢得了温网冠军，在2014年在罗兰∙加洛斯球场折桂。
 
-昨天文贵先生直播了17个小时，观看直播的外国人最多。
+11月1日，张高丽满75岁。他从2013-2018年担任中共国第一副总理，在此之前，他在中国共产党党内担任过各种职务。2017年，俄罗斯总理梅德韦杰夫在访问中共国期间授予张高丽友谊勋章，以表彰他对加强与俄罗斯合作过程中所做出的巨大贡献。
 
-战友们要好好感谢各个农场主、联盟委员会和那些默默无闻付出的人。昨天喜联储创造的业绩已经超过7000亿美元。
+参考链接：
 
-直播前有几个战友想要把自己的一部分喜币给文贵先生，文贵先生很感动，但文贵先生不要战友的喜币。文贵先生说: 都留着，过几周或半年会看到喜币的价值。接下来的G-Club、GTV 、G-Fashion 、喜联储上市，我们要成为全世界希望最多的人群，没有打疫苗的人群，最快乐的人群，最善待和会利用财富的人群，最受人尊重和欢迎的人群，这就是新中国联邦。
+[https://sportrbc.ru/news/618296c89a79474fee1a8fb3?ruid=uUjlA11ELf50EEeBAwNeAg==&from=from\_main\_14](https://sportrbc.ru/news/618296c89a79474fee1a8fb3?ruid=uUjlA11ELf50EEeBAwNeAg==&amp;from=from_main_14)
 
-现在是一币难求啊，另外战友们要低调，千万不要炫富，会引来杀身之祸。
+[https://lenta.ru/news/2021/11/03/vicepremierlitay/](https://lenta.ru/news/2021/11/03/vicepremierlitay/)
 
-政青昨天进了6-7万币。想当初，那些离开了爆料革命的人，现在追悔莫及。当疫苗灾难爆发的时候，美国全球征税的时候，共产党的两会结束或要打台湾的时候，那喜币的真正价值就会体现出来。
+[https://www.gazeta.ru/sport/news/2021/11/03/n\_16797667.shtml](https://www.gazeta.ru/sport/news/2021/11/03/n_16797667.shtml)
 
-如果明年的六四，战友们都拿着喜币会是什么情景? 两周年的时间，新中国联邦有了自己的金融系统，自己的货币，这是人类的传奇，到时正式加入新中国联邦的人会超过1000万。未来正式加入新中国联邦的会自动成为整个金融系统按照家庭、人数、按照加入的时间、贡献、投资G系列的额度来分享股份、分配财富，和喜联储、喜币没有关系。我们要让战友感受到的是，拿到手里的是受西方法律真正保护的永久性股权。
+[https://www.kp.ru/sports/tennis/byvshego-vicze-premera-obvinili-v-domogatelstvah-chempionki-bolshogo-shlema/](https://www.kp.ru/sports/tennis/byvshego-vicze-premera-obvinili-v-domogatelstvah-chempionki-bolshogo-shlema/)
 
-目前3件事要尽力而为地去做 : 1.全力以赴推广H-Pay (下个月上线，比喜币重要)。2. 抓紧给新战友登记入册，要把所有的真战友加入到我们的农场。3 . 要把喜币上市前的许多未清的账和各农场代持的股票要缕清楚，联盟委员会要做这件事。
+[https://www.sport-express.ru/tennis/wta/news/eks-tennisistka-obvinila-byvshego-vice-premera-kitaya-v-seksualnom-nasilii-1853280/](https://www.sport-express.ru/tennis/wta/news/eks-tennisistka-obvinila-byvshego-vice-premera-kitaya-v-seksualnom-nasilii-1853280/)
 
-当年的John.D.Rockefeller，J.P.Morgan ，罗斯柴尔德家族拥有大半个美国的财富。未来的新中国联邦可能会拥有同样的实力。
+[https://www.championat.com/tennis/news-4502569-chempionka-tbsh-obvinila-byvshego-vice-premera-kitaya-v-seksualnom-nasilii.html](https://www.championat.com/tennis/news-4502569-chempionka-tbsh-obvinila-byvshego-vice-premera-kitaya-v-seksualnom-nasilii.html)
 
-*听写：* *wisteria* *| 校对：乐禧禧 | Page：我是球大哥*
+[https://www.sports.ru/tennis/1102832648-eks-tennisistka-obvinila-byvshego-vicze-premera-kitaya-v-seksualnom-na.html](https://www.sports.ru/tennis/1102832648-eks-tennisistka-obvinila-byvshego-vicze-premera-kitaya-v-seksualnom-na.html)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+[https://politexpert.net/266195-byvshaya-pervaya-raketka-mira-shuai-pen-zayavila-o-nasilii-so-storony-vice-premera-kitaya](https://politexpert.net/266195-byvshaya-pervaya-raketka-mira-shuai-pen-zayavila-o-nasilii-so-storony-vice-premera-kitaya)
 
-
-*编辑：【英国伦敦喜庄园编辑部】*
-[![](https://spark.adobe.com/page/W3n2PhSabz21M/images/434c787b-b56c-4c75-b03a-756701760c1e.jpg?asset_id=cd84937d-f070-483b-be2e-b4cec1db01fa&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/W3n2PhSabz21M/images/434c787b-b56c-4c75-b03a-756701760c1e.jpg?asset_id=cd84937d-f070-483b-be2e-b4cec1db01fa&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
-
+[https://sport24.ru/news/tennis/2021-11-03-eks-pervaya-raketka-mira-obvinila-byvshego-vitse-premyera-kitaya-v-seksualnom-nasilii](https://sport24.ru/news/tennis/2021-11-03-eks-pervaya-raketka-mira-obvinila-byvshego-vitse-premyera-kitaya-v-seksualnom-nasilii)
 
  
 

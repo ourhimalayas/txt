@@ -2,12 +2,10 @@
 ---
 
 
-## 寒冬将至，中共国百姓面临基本生活必须品的价格飙升
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1635743/)
+## 雅虎计划退出中共国
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1635745/)
 
-作者：香草山金融部 – 闲聊钱币
-
-
+作者：美国香草山金融组- 德州瑞秋
 
 
 
@@ -15,21 +13,17 @@
 
 
 
+11月2日香港雅虎公司表示，它计划退出中国，理由是 “商业和法律环境越来越具有挑战性” 。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1.jpg)
+该公司在一份声明中表示，从 11 月 1 日起，将无法再从中国大陆访问其服务。“雅虎仍然致力于维护我们用户的权利和自由开放的互联网。我们感谢用户的支持，”声明中写道。
 
+雅虎是近几周来第二家减少在华业务的美国大型科技公司。上个月，微软的专业网络平台 LinkedIn 表示将关闭其中文网站，取而代之的是招聘委员会。
 
-上海/北京，11月2日（路透社）–据一位微博用户称，超市里的人们特别是老年人开始恐慌性囤积大米，食用油和盐等生活必须品。某些社交媒体认为导致这种情况的原因是由于同台湾日趋紧张的关系，而中共政府却将此归结于COVID-19疫情的流行和异常大雨的极端天气。
-
-一家未署名的当地媒体公布了一份建议在家储存的商品清单，包括饼干，方便面、维生素、收音机和手电筒。中共支持的《经济日报》却告诉网民不要有 “过多的想象力”。《人民日报》也称，类似应急储备通知每年都会通报。目的是确保公民在其所在地区发生封锁时不会措手不及。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2.jpg)
-中共国蔬菜大省 – 山东省的蔬菜种植遭到大雨的摧毁，疫情又导致了运输链的断裂，再有农历新年将近，多种因素导致了食品等生活必须品价格飙涨。据山东省寿光市交易中心的蔬菜价格指数显示，黄瓜、菠菜和西兰花的价格比10月初上涨了一倍多。
-
-据国家电视台周一晚间报道，政府计划 “在适当的时候 “释放蔬菜储备，以应对价格上涨。但是储备了哪些蔬菜，以及储备量有多大却未向公众披露。
-
-看来中共国离吃草的年代真的不远了。
+雅虎此前曾缩减在中国的业务规模，并于 2015 年关闭了其北京办事处。它从中国撤出在很大程度上也只是象征性的，因为雅虎的一些服务，比如其门户网站，在中共国已经被封锁了。
 
 （本文仅代表作者观点）
 
-参考来源：[寒冬将至，中共国百姓面临基本生活必须品的价格飙升](https://www.reuters.com/world/china/china-urges-families-keep-stores-daily-needs-ahead-winter-2021-11-02/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Daily%20Briefing%20-%20Huawei%20COP26%20-%202nd%20Nov%202021&amp;utm_campaign=Daily%20Briefing%20-%20Huawei%20COP26%20-%202nd%20Nov%202021)
+参考来源：[雅虎计划退出中共国](https://www.foxbusiness.com/technology/yahoo-pulls-out-of-china-amid-challenging-environment)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
 
